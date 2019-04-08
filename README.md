@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 1/14 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [14](/content/README-14.md) [**>**](/content/README-2.md)
 
+[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/2019/04/20190408-6044925743176035036.md)
+
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
 
 [文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
@@ -51,8 +53,6 @@
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
 
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190209-3310541803704262131.md)
-
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/2019/02/20190208-4952752821783304200.md)
 
 
 ## 頁面 1/14 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [14](/content/README-14.md) [**>**](/content/README-2.md)
