@@ -3,7 +3,10 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
+[文字版 全部列表](/content/README-all.md)
+
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+
 ## 頁面 1/15 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [15](/content/README-15.md) [**>**](/content/README-2.md)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
