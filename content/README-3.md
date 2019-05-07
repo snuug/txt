@@ -2,7 +2,8 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 3/15 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [15](/content/README-15.md) [**>**](/content/README-4.md)
+
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)## 頁面 3/15 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [15](/content/README-15.md) [**>**](/content/README-4.md)
 
 [文字版：2019年1月23日文貴報平安直播](/content/2019/01/20190125-5995035220130924499.md)
 

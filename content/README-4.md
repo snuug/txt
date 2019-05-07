@@ -2,7 +2,8 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 4/15 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [15](/content/README-15.md) [**>**](/content/README-5.md)
+
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)## 頁面 4/15 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [15](/content/README-15.md) [**>**](/content/README-5.md)
 
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
 

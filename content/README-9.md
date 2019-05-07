@@ -2,7 +2,8 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 9/15 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [**>**](/content/README-10.md)
+
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)## 頁面 9/15 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [**>**](/content/README-10.md)
 
 [文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/2018/04/20180418-5862976291239032790.md)
 

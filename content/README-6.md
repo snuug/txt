@@ -2,7 +2,8 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 6/15 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [15](/content/README-15.md) [**>**](/content/README-7.md)
+
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)## 頁面 6/15 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [15](/content/README-15.md) [**>**](/content/README-7.md)
 
 [文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/content/2018/09/20180909-4427977020918468528.md)
 
