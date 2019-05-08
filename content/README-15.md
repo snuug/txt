@@ -3,8 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-## 頁面 15/15 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15**
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+## 頁面 15/15 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [查看全部](/content/README-all.md)
 
 [文贵9月15日直播第二季第二集：孟建柱的最爱的情人，与政法黑暗到什么程度，除了杀人灭口，他们为什么要杀掉雷洋？杨澜为什么子宫切除？吴征为什么要参与杀雷洋？以黑占有当事人的巨额财富！如何欺骗习主席，党中央！](/content/2018/04/20180418-3737775031867528364.md)
 
@@ -31,4 +31,4 @@
 [|郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/2018/04/20180418-3180317526840992396.md)
 
 
-## 頁面 15/15 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15**
+## 頁面 15/15 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [查看全部](/content/README-all.md)

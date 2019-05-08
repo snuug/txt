@@ -3,8 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md)
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
 
@@ -57,4 +57,4 @@
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/2019/01/20190131-1680667895953644784.md)
 
 
-## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md)
+## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

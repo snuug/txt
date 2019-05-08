@@ -3,8 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
-## 頁面 14/15 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [**>**](/content/README-15.md)
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+## 頁面 14/15 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
 [美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
 
@@ -57,4 +57,4 @@
 [2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/2018/04/20180418-4181709165210679355.md)
 
 
-## 頁面 14/15 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [**>**](/content/README-15.md)
+## 頁面 14/15 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
