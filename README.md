@@ -6,6 +6,8 @@
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
 ## 頁面 1/15 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [15](/content/README-15.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/2019/05/20190510-8107152999267349007.md)
+
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/2019/05/20190508-7522402504104525602.md)
 
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190508-3556468867911732041.md)
@@ -53,8 +55,6 @@
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
 
 [文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
-
-[文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190331-2880102853633751402.md)
 
 
 ## 頁面 1/15 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [15](/content/README-15.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
