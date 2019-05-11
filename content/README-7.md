@@ -6,6 +6,14 @@
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
 ## 頁面 7/15 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [15](/content/README-15.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
+
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180810-4256963212298749895.md)
+
+[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180810-3627104687795521023.md)
+
+[文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180809-5918968027514942039.md)
+
 [文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/2018/07/20180725-7254204072739066791.md)
 
 [文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/2018/07/20180722-7878722502564769859.md)
@@ -47,14 +55,6 @@
 [文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180603-4228988724633844641.md)
 
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/06/20180601-5466761042269971935.md)
-
-[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180530-639277482984082138.md)
-
-[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
-
-[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180526-5314910770568044153.md)
-
-[文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
 
 
 ## 頁面 7/15 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [15](/content/README-15.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)

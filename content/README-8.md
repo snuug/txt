@@ -6,6 +6,14 @@
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
 ## 頁面 8/15 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [15](/content/README-15.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180530-639277482984082138.md)
+
+[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
+
+[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180526-5314910770568044153.md)
+
+[文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
+
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180513-8900938020145834574.md)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
@@ -47,14 +55,6 @@
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
 
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
-
-[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
-
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/content/2018/04/20180418-6417716069003334186.md)
-
-[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/content/2018/04/20180418-7188809671168778035.md)
-
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
 
 
 ## 頁面 8/15 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [15](/content/README-15.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
