@@ -6,6 +6,8 @@
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
 ## 頁面 3/15 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [15](/content/README-15.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190211-8075148906737063035.md)
+
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190211-7889508875905531484.md)
 
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
@@ -53,8 +55,6 @@
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/2019/01/20190107-8663591932172573911.md)
 
 [文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190103-5930616806834548247.md)
-
-[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2019/01/20190101-1701485310206179392.md)
 
 
 ## 頁面 3/15 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [15](/content/README-15.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
