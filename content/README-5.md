@@ -3,7 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+
 ## 頁面 5/15 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [15](/content/README-15.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
 [文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/2018/11/20181114-7269018934518411869.md)

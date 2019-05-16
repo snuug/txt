@@ -3,7 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+
 ## 頁面 4/15 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [15](/content/README-15.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
 [文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2019/01/20190101-1701485310206179392.md)

@@ -3,7 +3,8 @@
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](/content/start_guide.md)
+推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+
 ## 頁面 15/15 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [查看全部](/content/README-all.md)
 
 [2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
