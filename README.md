@@ -4,6 +4,7 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+
 ## 頁面 1/15 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [15](/content/README-15.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190515-851228741762433038.md)
