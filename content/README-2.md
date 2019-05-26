@@ -5,7 +5,11 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/16 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [16](/content/README-16.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/2019/04/20190421-3663457252526137440.md)
+
+[文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/2019/04/20190419-6305900525322511967.md)
 
 [文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/content/2019/04/20190417-8226491175604297051.md)
 
@@ -53,9 +57,5 @@
 
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
 
-[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/2019/02/20190222-1257758446657176479.md)
 
-[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/2019/02/20190220-7271469985429924299.md)
-
-
-## 頁面 2/15 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [15](/content/README-15.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/16 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [16](/content/README-16.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

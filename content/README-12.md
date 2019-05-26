@@ -5,7 +5,11 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 12/15 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/16 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
+
+[2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
 
 [文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
 
@@ -53,9 +57,5 @@
 
 [文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
 
-[文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/2018/04/20180418-6405859290507553352.md)
-
-
-## 頁面 12/15 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/16 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
