@@ -7,6 +7,8 @@
 
 ## 頁面 1/16 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [16](/content/README-16.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
+
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
 
 [文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
@@ -54,8 +56,6 @@
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/2019/04/20190425-6473105803624226885.md)
 
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/2019/04/20190423-1316930851159830610.md)
-
-[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
 
 
 ## 頁面 1/16 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [16](/content/README-16.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
