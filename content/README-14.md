@@ -7,6 +7,8 @@
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
+
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
 
 [翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
@@ -54,8 +56,6 @@
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
-
-[Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
 
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
