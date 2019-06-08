@@ -7,6 +7,8 @@
 
 ## 頁面 15/16 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/2018/04/20180418-8782315684152609597.md)
+
 [2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
@@ -54,8 +56,6 @@
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
 
 [郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
-
-[郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
 
 
 ## 頁面 15/16 [**<**](/content/README-14.md) [1](/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
