@@ -7,6 +7,8 @@
 
 ## 頁面 2/16 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [16](/content/README-16.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
+
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/content/2019/05/20190503-4410540874074802687.md)
 
 [文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/content/2019/05/20190501-8065411428742956557.md)
@@ -54,8 +56,6 @@
 [文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
 
 [文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/2019/03/20190305-7678928871394571383.md)
-
-[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/2019/03/20190304-4934492035985499612.md)
 
 
 ## 頁面 2/16 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [16](/content/README-16.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
