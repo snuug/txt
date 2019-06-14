@@ -7,6 +7,10 @@
 
 ## 頁面 10/16 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/2018/04/20180418-2853950060193549328.md)
+
+[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/2018/04/20180418-5862976291239032790.md)
+
 [文字版2018年3月28日郭先生YouTube三个视频1. 香港警察如何黑抓我们的员工和钱？2. 香港警察查封我们香港DBS银行．建行．中国银行的帐号用的什么法律手续？3. 为什么西方政府现在开始关注黑港警事件？](/content/2018/04/20180418-7552905014733217015.md)
 
 [ 文字版： 3月28日香港黑警察与金正恩访华！](/content/2018/04/20180418-7167850208053713596.md)
@@ -52,10 +56,6 @@
 [文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
 
 [重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/2018/04/20180418-3510219950010298563.md)
-
-[文字版：《文贵看春晚》爆料（三，四）](/content/2018/04/20180418-9010451938927487211.md)
-
-[文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
 
 
 ## 頁面 10/16 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

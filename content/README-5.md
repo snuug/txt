@@ -7,6 +7,10 @@
 
 ## 頁面 5/16 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [16](/content/README-16.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
+
+[文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
+
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/content/2018/12/20181209-8884360174846064842.md)
 
 [文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/content/2018/12/20181205-2670968089452974831.md)
@@ -52,10 +56,6 @@
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/2018/11/20181101-6081222795262941074.md)
 
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/2018/10/20181030-5728690210531220405.md)
-
-[文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/2018/10/20181029-8202855451212977956.md)
-
-[文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181029-1889983154079130395.md)
 
 
 ## 頁面 5/16 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [16](/content/README-16.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
