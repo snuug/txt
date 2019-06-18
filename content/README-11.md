@@ -7,6 +7,8 @@
 
 ## 頁面 11/16 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/2018/04/20180418-9206841940282105316.md)
+
 [文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
 
 [文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
@@ -54,8 +56,6 @@
 [郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
 
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/2018/04/20180418-619291156807124954.md)
-
-[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
 
 
 ## 頁面 11/16 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

@@ -7,6 +7,8 @@
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
+
 [翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
 
 [翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
@@ -54,8 +56,6 @@
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
 
 [（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7734893512727563056.md)
-
-[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/2018/04/20180418-4451931649943991252.md)
 
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

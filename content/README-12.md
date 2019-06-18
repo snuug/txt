@@ -7,6 +7,8 @@
 
 ## 頁面 12/16 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
+
 [2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/2018/04/20180418-6993418396066281259.md)
 
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/2018/04/20180418-4208012880425825380.md)
@@ -54,8 +56,6 @@
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
-
-[文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
 
 
 ## 頁面 12/16 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
