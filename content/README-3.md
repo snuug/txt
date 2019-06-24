@@ -7,6 +7,8 @@
 
 ## 頁面 3/16 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [16](/content/README-16.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/content/2019/04/20190411-1430890358024836109.md)
+
 [文字版：4月9号文贵报平安直播！谈谈陈小平先生和何频先生．明镜．和龚小夏女士上次直播时没有说清楚的几个事](/content/2019/04/20190409-7580597247840553748.md)
 
 [文字版：2019年4月7日美欧日等将对中资国营，香港自贸协定，中共及香港官员的一系列立法制裁，或调查，或列入黑名单，行动，将是中共灭亡的第一步！](/content/2019/04/20190408-8215608975739288782.md)
@@ -54,8 +56,6 @@
 [关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
 
 [文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
-
-[文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
 
 
 ## 頁面 3/16 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [16](/content/README-16.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
