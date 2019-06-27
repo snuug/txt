@@ -7,6 +7,8 @@
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
+
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
 
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
@@ -54,8 +56,6 @@
 [（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
 
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
-
-[（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-5887917197465527624.md)
 
 
 ## 頁面 14/16 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
