@@ -7,6 +7,8 @@
 
 ## 頁面 6/16 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [16](/content/README-16.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/content/2018/11/20181117-9134684520600037722.md)
+
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/content/2018/11/20181117-5688974428760501004.md)
 
 [文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/content/2018/11/20181116-2341303954846594943.md)
@@ -54,8 +56,6 @@
 [文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/content/2018/10/20181012-1934130956992732839.md)
 
 [文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/content/2018/10/20181012-2308330179087964490.md)
-
-[2018 年 10 月 10 日,文贵先生过媒体直播文字版 ——江,朱,王家族正在砸船式洗钱,公布 11 月记者招待会地点](/content/2018/10/20181010-3706069488897098623.md)
 
 
 ## 頁面 6/16 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [16](/content/README-16.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
