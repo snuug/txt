@@ -5,7 +5,9 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 8/16 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [16](/content/README-16.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+## 頁面 8/17 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [17](/content/README-17.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
 
 [文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
 
@@ -55,7 +57,5 @@
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
-
-## 頁面 8/16 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [16](/content/README-16.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
+## 頁面 8/17 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [17](/content/README-17.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

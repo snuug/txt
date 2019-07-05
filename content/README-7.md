@@ -5,7 +5,9 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 7/16 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [16](/content/README-16.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
+## 頁面 7/17 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [17](/content/README-17.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
+
+[文字版：2018年10月10日，文贵先生过媒体直播——江，朱，王家族正在砸船式洗钱，公布11月记者招待会地点](/content/2018/10/20181012-1934130956992732839.md)
 
 [文字版：文贵先生istagram直播：关于台湾被中共攻打，美国是否出兵？1万亿美元阻击做空港币！10/9/2018 ](/content/2018/10/20181012-2308330179087964490.md)
 
@@ -55,7 +57,5 @@
 
 [文字版：2018年8月23文贵在船上谈王建](/content/2018/08/20180827-6547778481544377583.md)
 
-[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
 
-
-## 頁面 7/16 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [16](/content/README-16.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
+## 頁面 7/17 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [17](/content/README-17.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)

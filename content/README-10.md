@@ -5,7 +5,9 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 10/16 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/17 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [17](/content/README-17.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/2018/04/20180421-3038856326236637866.md)
 
 [文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/2018/04/20180421-8587540103403110873.md)
 
@@ -55,7 +57,5 @@
 
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
 
-[文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/2018/04/20180418-39810748690895167.md)
 
-
-## 頁面 10/16 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+## 頁面 10/17 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [17](/content/README-17.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
