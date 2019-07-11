@@ -7,6 +7,8 @@
 
 ## 頁面 17/17 [**<**](/content/README-16.md) [1](/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [查看全部](/content/README-all.md)
 
+[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
+
 [郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
 
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
