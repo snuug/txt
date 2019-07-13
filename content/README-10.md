@@ -7,6 +7,8 @@
 
 ## 頁面 10/17 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [17](/content/README-17.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版郭先生2018年5月2日 ins直播](/content/2018/05/20180504-824140605329420568.md)
+
 [文字版：4月28日金正恩是我们学习的坏榜样！ ](/content/2018/04/20180429-1799430545409667372.md)
 
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/2018/04/20180426-3820645061800034569.md)
@@ -54,8 +56,6 @@
 [文字版郭友访谈 | 郭先生与小蚂蚁亲密接触（2018年3月31日）](/content/2018/04/20180418-5802151698966349959.md)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/2018/04/20180418-2853950060193549328.md)
-
-[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/2018/04/20180418-5862976291239032790.md)
 
 
 ## 頁面 10/17 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [17](/content/README-17.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
