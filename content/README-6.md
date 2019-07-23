@@ -7,6 +7,8 @@
 
 ## 頁面 6/17 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [17](/content/README-17.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/2018/12/20181218-3889821236277365249.md)
+
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/2018/12/20181218-8948086997100898897.md)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
@@ -54,8 +56,6 @@
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/2018/11/20181102-2322680967443605626.md)
 
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/2018/11/20181102-6608329269804536528.md)
-
-[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/2018/11/20181101-6081222795262941074.md)
 
 
 ## 頁面 6/17 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [17](/content/README-17.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
