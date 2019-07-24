@@ -7,6 +7,8 @@
 
 ## 頁面 14/17 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
+
 [自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/2018/04/20180418-4898378291964960909.md)
 
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
@@ -54,8 +56,6 @@
 [文字版 郭先生10月27报平安](/content/2018/04/20180418-1204915936908036259.md)
 
 [2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
-
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
 
 
 ## 頁面 14/17 [**<**](/content/README-13.md) [1](/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
