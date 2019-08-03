@@ -7,6 +7,8 @@
 
 ## 頁面 3/17 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [17](/content/README-17.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
+
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/2019/05/20190514-4477543672120238865.md)
@@ -54,8 +56,6 @@
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/content/2019/04/20190416-1716208713998494644.md)
 
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/content/2019/04/20190415-6656531151323124700.md)
-
-[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/content/2019/04/20190414-1930118777431360844.md)
 
 
 ## 頁面 3/17 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [17](/content/README-17.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
