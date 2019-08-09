@@ -5,7 +5,15 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 6/17 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [17](/content/README-17.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/18 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [18](/content/README-18.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/2019/01/20190113-3654521321996198385.md)
+
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
+
+[文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
 [文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/2019/01/20190111-7038821530851525661.md)
 
@@ -49,13 +57,5 @@
 
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/2018/11/20181124-4394519846774733520.md)
 
-[翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/2018/11/20181124-6313930265884722848.md)
 
-[翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
-
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
-
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/2018/11/20181122-149600174493022230.md)
-
-
-## 頁面 6/17 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [17](/content/README-17.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/18 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [18](/content/README-18.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

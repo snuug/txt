@@ -5,7 +5,15 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 2/17 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [17](/content/README-17.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/18 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [18](/content/README-18.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
+
+[文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
+
+[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
+
+[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
 
 [文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
 
@@ -49,13 +57,5 @@
 
 [文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/content/2019/06/20190604-5110748633595841625.md)
 
-[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/content/2019/06/20190601-2272712478111328158.md)
 
-[翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
-
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
-
-[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
-
-
-## 頁面 2/17 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [17](/content/README-17.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+## 頁面 2/18 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [18](/content/README-18.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

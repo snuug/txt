@@ -5,7 +5,15 @@
 
 推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-## 頁面 12/17 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/18 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+
+[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/2018/04/20180418-7259055052246962788.md)
+
+[文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
+
+[文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/2018/04/20180418-39810748690895167.md)
+
+[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/content/2018/04/20180418-8884654215311993874.md)
 
 [头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/content/2018/04/20180418-8895540675062184474.md)
 
@@ -49,13 +57,5 @@
 
 [文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
 
-[文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
 
-[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
-
-[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
-
-[文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
-
-
-## 頁面 12/17 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
+## 頁面 12/18 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
