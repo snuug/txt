@@ -7,6 +7,10 @@
 
 ## 頁面 4/18 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [18](/content/README-18.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/content/2019/04/20190429-8077674753386524222.md)
+
+[文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/2019/04/20190425-6473105803624226885.md)
+
 [文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/2019/04/20190423-1316930851159830610.md)
 
 [文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
@@ -52,10 +56,6 @@
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/2019/02/20190228-4589670167001687334.md)
 
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/2019/02/20190227-2121363787945897238.md)
-
-[文字版：2月24日，文贵谈，法治基金建立的真正目的](/content/2019/02/20190227-189178427361048869.md)
-
-[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
 
 
 ## 頁面 4/18 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [18](/content/README-18.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
