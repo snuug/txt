@@ -1,9 +1,13 @@
-###  [:house:首頁](https://github.com/ourhimalayas/home) | [:tv:視頻](https://github.com/ourhimalayas/videos) | [:books:文字](https://github.com/ourhimalayas/txt) | [:newspaper:報道](https://github.com/ourhimalayas/news) | [:eagle:郭文](https://github.com/ourhimalayas/guomedia) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:books:視頻文字版](https://github.com/ourhimalayas/txt) | [:newspaper:相關報道](https://github.com/ourhimalayas/news) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
-# 郭文貴先生視頻的文字版
-轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 
-推薦:point_right: [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+推薦文章:point_right:
+
+[郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
+
+[香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
+
+## 最新郭文
 
 ## 頁面 10/18 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [18](/content/README-18.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
