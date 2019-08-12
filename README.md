@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月12号：尊敬的战友们好．你们为香港反送中传播抗议的真实信息了吗？你们为香港的战友们发声了吗？你们健身了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/224128](https://www.guo.media/posts/224128) `2019-08-12T14:40:07`
+##
+
 **milesguo** 8月10日-8月18日香港反送中活动日程
 
 [https://www.guo.media/posts/223931](https://www.guo.media/posts/223931) `2019-08-12T10:34:46`
