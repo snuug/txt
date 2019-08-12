@@ -11,7 +11,7 @@
 
 ## 最新郭文
 
-## 頁面 17/18 [**<**](/content/README-16.md) [1](/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/18 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
 
@@ -64,4 +64,4 @@
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)
 
 
-## 頁面 17/18 [**<**](/content/README-16.md) [1](/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/18 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
