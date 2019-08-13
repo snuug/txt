@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月13号：伟大的美国有了伟大的决定，将在这关键的时刻与正义，自由法治的香港人民．和勇敢的香港同胞站在一起，美国将和欧洲联合一起，在证明解放军或大陆警察在香港出现．并镇压学生．就会马上取消中共最惠国待遇地位．香港自贸区协议。并对香港和大陆的官员进行制裁，查封他们在海外所有资产，这是一个伟大的时刻感恩美国干人万佛万神，🙏🙏🙏🙏🙏🙏一切都是刚刚开始。【Sanctions; removal of free trade status ; capital controls miles This is a decision that has already been formed. This is the United States that can help Hong Kong now. I hope that you will be satisfied.】
+
+[https://www.guo.media/posts/224516](https://www.guo.media/posts/224516) `2019-08-13T14:10:06`
+##
+
 **milesguo** 8月13日：今天在香港机场．以及医界的行动．是一个四两拨千斤最智慧最安全的抗议行动．希望香港各个界别都可以有同样的行动……知行合一拯救香港……香港的所有市民越来越感受到了……香港这是最后一个争取本属于香港人基本安全的机会，不成为共产党砧板上的肉，香港的一家三代的女人不能被共产党一个官员去玩弄……共产党在香港不能想抓谁就抓谁……香港不会成为盗国贼洗钱的犯罪的臭港……香港已经别无选择……过去的十几个小时。美国各个重要前所未有的发言，都是对香港的真实有行动的支持……今天天亮后，美国和欧洲将有一系列的会议和决定……香港一定会赢，而且会改变香港和14亿中国人的命运……一切都是刚刚开始！
 
 [https://www.guo.media/posts/224452](https://www.guo.media/posts/224452) `2019-08-13T08:55:06`
