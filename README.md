@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月13号：尊敬的战友们好．文贵将在1小时内直播．谈谈未来两天将发生什么大事儿，一切都是刚刚开始！
+
+[https://www.guo.media/posts/224683](https://www.guo.media/posts/224683) `2019-08-13T22:10:07`
+##
+
 **milesguo** 8月13日:尊敬的战友们！郭媒体可以更新了！发现BUG请跟帖反馈✍️✍️✍️✍️🙏🙏🙏万分感谢💕
 
 [https://www.guo.media/posts/224631](https://www.guo.media/posts/224631) `2019-08-13T18:55:06`
