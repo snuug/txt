@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月14号：尊敬的战友们好！你们传播香港的真相了吗？你们健身了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/224890](https://www.guo.media/posts/224890) `2019-08-14T15:10:07`
+##
+
 **milesguo** 8月13号：尊敬的战友们好．文贵将在1小时内直播．谈谈未来两天将发生什么大事儿，一切都是刚刚开始！
 
 [https://www.guo.media/posts/224683](https://www.guo.media/posts/224683) `2019-08-13T22:10:07`
