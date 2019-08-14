@@ -177,13 +177,3 @@
 [https://www.guo.media/posts/222899](https://www.guo.media/posts/222899) `2019-08-12T10:35:13`
 ##
 
-**milesguo** 8月8号：亲爱的战友们！赶快拿出证据．去举报，这些危害美国国家安全！拿着美国护照，天天威胁美国．坑害美国的败类吧……一切都是刚刚开始！
-
-[https://www.guo.media/posts/222725](https://www.guo.media/posts/222725) `2019-08-12T10:35:14`
-##
-
-**milesguo** 8月8日：马上就要报平安直播啦…亲爱的战友们！
-
-[https://www.guo.media/posts/222662](https://www.guo.media/posts/222662) `2019-08-12T10:35:16`
-##
-
