@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月15日：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相信息了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/225201](https://www.guo.media/posts/225201) `2019-08-15T15:10:07`
+##
+
 **milesguo** 8月14日：解放军真要镇压香港人民了吗？https://m.washingtontimes.com/news/2019/aug/14/inside-the-ring-chinese-military-preparing-crackdo/
 
 [https://www.guo.media/posts/225049](https://www.guo.media/posts/225049) `2019-08-15T01:40:06`
