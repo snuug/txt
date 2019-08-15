@@ -162,28 +162,3 @@
 [https://www.guo.media/posts/223231](https://www.guo.media/posts/223231) `2019-08-12T10:35:07`
 ##
 
-**milesguo** 8月9日：英文字幕郭先生谈王岐山的私生子们遍地全球<br>Miles Kwok: Wang qishan's illegitimate children are all over the world 【GM18】
-
-[https://www.guo.media/posts/223130](https://www.guo.media/posts/223130) `2019-08-12T10:35:08`
-##
-
-**milesguo** 五大诉求缺一不可！
-
-[https://www.guo.media/posts/223066](https://www.guo.media/posts/223066) `2019-08-12T10:35:10`
-##
-
-**milesguo** August 8, CCTV: Slandering China a "Currency Manipulator" is a typical double standard action<br>【GM34，GM38】<br>
-
-[https://www.guo.media/posts/223009](https://www.guo.media/posts/223009) `2019-08-12T10:35:11`
-##
-
-**milesguo** 8月9号：尊敬的战友们好！你们健身了吗？你们往身上泼水了吗？今天没有直播．一切都是刚刚开始！
-
-[https://www.guo.media/posts/222919](https://www.guo.media/posts/222919) `2019-08-12T10:35:12`
-##
-
-**milesguo** 8月9日：衷心感谢战友做的这些……一切都是刚刚开始！
-
-[https://www.guo.media/posts/222899](https://www.guo.media/posts/222899) `2019-08-12T10:35:13`
-##
-
