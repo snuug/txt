@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年8月16日 法治基金每周捐款留言精选集 weekly Rule of Law Foundation donors messages collection<br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors!
+
+[https://www.guo.media/posts/225325](https://www.guo.media/posts/225325) `2019-08-16T04:55:06`
+##
+
 **milesguo** 8月15日：战斗中的快乐……不可言喻……衷心地感谢战友们积极．辛苦的．传播香港危机的真相……一切都是刚刚开始！
 
 [https://www.guo.media/posts/225205](https://www.guo.media/posts/225205) `2019-08-15T15:55:07`
