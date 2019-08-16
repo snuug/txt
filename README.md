@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月16号：尊敬的战友们好．你们传播香港危机的真相了吗？香港反送中运动．已经变成了国际集体反共的运动，战友们和香港同胞们一定要抓住机会，赢得这场前所未有的灭共战争，一切都是刚刚开始！
+
+[https://www.guo.media/posts/225423](https://www.guo.media/posts/225423) `2019-08-16T14:25:06`
+##
+
 **milesguo** 2019年8月16日 法治社会每周捐款留言精选集 weekly Rule of Law Society donors messages collection<br><br>法治社会团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Society team heartfully thanks all of our supporters and donors!
 
 [https://www.guo.media/posts/225340](https://www.guo.media/posts/225340) `2019-08-16T05:55:06`
