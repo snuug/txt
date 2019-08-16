@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年8月16日 法治社会每周捐款留言精选集 weekly Rule of Law Society donors messages collection<br><br>法治社会团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Society team heartfully thanks all of our supporters and donors!
+
+[https://www.guo.media/posts/225340](https://www.guo.media/posts/225340) `2019-08-16T05:55:06`
+##
+
 **milesguo** 2019年8月16日 法治基金每周捐款留言精选集 weekly Rule of Law Foundation donors messages collection<br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors!
 
 [https://www.guo.media/posts/225325](https://www.guo.media/posts/225325) `2019-08-16T04:55:06`
