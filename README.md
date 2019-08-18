@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019-08-17 （原声-录制版） 班农与文贵先生谈：香港危机 美国即将必须采取的行动
+
+[https://www.guo.media/posts/225935](https://www.guo.media/posts/225935) `2019-08-18T05:40:07`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/225904](https://www.guo.media/posts/225904) `2019-08-18T04:55:06`
