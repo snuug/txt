@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月19日：华为嗝嗝屁了……
+
+[https://www.guo.media/posts/226344](https://www.guo.media/posts/226344) `2019-08-19T13:55:06`
+##
+
 **milesguo** 【新闻】 8月19号 川普总统用天安门血腥镇压类比香港事件<br><br>路透社报道：这个周日，川普总统在新泽西州，站在空军一号前接受媒体采访时，类比了1989年的北京对学生领导的民主运动的血腥镇压和（如今中共当局）对香港游行的施暴。【GM09】<br><br>新闻链接：<br>https://www.reuters.com/article/us-hongkong-protests-idUSKCN1V802N
 
 [https://www.guo.media/posts/226191](https://www.guo.media/posts/226191) `2019-08-19T02:10:06`
