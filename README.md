@@ -142,18 +142,3 @@
 [https://www.guo.media/posts/224890](https://www.guo.media/posts/224890) `2019-08-14T15:10:07`
 ##
 
-**milesguo** 8月13号：尊敬的战友们好．文贵将在1小时内直播．谈谈未来两天将发生什么大事儿，一切都是刚刚开始！
-
-[https://www.guo.media/posts/224683](https://www.guo.media/posts/224683) `2019-08-13T22:10:07`
-##
-
-**milesguo** 8月13日:尊敬的战友们！郭媒体可以更新了！发现BUG请跟帖反馈✍️✍️✍️✍️🙏🙏🙏万分感谢💕
-
-[https://www.guo.media/posts/224631](https://www.guo.media/posts/224631) `2019-08-13T18:55:06`
-##
-
-**milesguo** 8月13号：伟大的美国有了伟大的决定，将在这关键的时刻与正义，自由法治的香港人民．和勇敢的香港同胞站在一起，美国将和欧洲联合一起，在证明解放军或大陆警察在香港出现．并镇压学生．就会马上取消中共最惠国待遇地位．香港自贸区协议。并对香港和大陆的官员进行制裁，查封他们在海外所有资产，这是一个伟大的时刻感恩美国干人万佛万神，🙏🙏🙏🙏🙏🙏一切都是刚刚开始。【Sanctions; removal of free trade status ; capital controls miles This is a decision that has already been formed. This is the United States that can help Hong Kong now. I hope that you will be satisfied.】
-
-[https://www.guo.media/posts/224516](https://www.guo.media/posts/224516) `2019-08-13T14:10:06`
-##
-
