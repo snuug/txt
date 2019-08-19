@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月18日文贵直播：从818的170万港人再上街，来看大湾区的吞港计划！<br><br>
+
+[https://www.guo.media/posts/226186](https://www.guo.media/posts/226186) `2019-08-19T01:40:07`
+##
+
 **milesguo** From Reuters: “Speaking to reporters before boarding Air Force One in New Jersey on Sunday, U.S. President Donald Trump drew parallels between the violent protests in Hong Kong and Beijing's bloody suppression of student-led pro-democracy protests in Tiananmen Square in 1989.” https://www.google.com/amp/s/mobile.reuters.com/article/amp/idUSKCN1V802N
 
 [https://www.guo.media/posts/226181](https://www.guo.media/posts/226181) `2019-08-19T01:10:06`
