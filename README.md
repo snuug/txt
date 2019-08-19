@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** From Reuters: “Speaking to reporters before boarding Air Force One in New Jersey on Sunday, U.S. President Donald Trump drew parallels between the violent protests in Hong Kong and Beijing's bloody suppression of student-led pro-democracy protests in Tiananmen Square in 1989.” https://www.google.com/amp/s/mobile.reuters.com/article/amp/idUSKCN1V802N
+
+[https://www.guo.media/posts/226181](https://www.guo.media/posts/226181) `2019-08-19T01:10:06`
+##
+
 **milesguo** 白宫签名教程图片分享🙏感谢随便小哥！！
 
 [https://www.guo.media/posts/226163](https://www.guo.media/posts/226163) `2019-08-18T22:55:06`
