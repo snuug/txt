@@ -157,13 +157,3 @@
 [https://www.guo.media/posts/225201](https://www.guo.media/posts/225201) `2019-08-15T15:10:07`
 ##
 
-**milesguo** 8月14日：解放军真要镇压香港人民了吗？https://m.washingtontimes.com/news/2019/aug/14/inside-the-ring-chinese-military-preparing-crackdo/
-
-[https://www.guo.media/posts/225049](https://www.guo.media/posts/225049) `2019-08-15T01:40:06`
-##
-
-**milesguo** 8月14号：尊敬的战友们好！你们传播香港的真相了吗？你们健身了吗？一切都是刚刚开始！
-
-[https://www.guo.media/posts/224890](https://www.guo.media/posts/224890) `2019-08-14T15:10:07`
-##
-
