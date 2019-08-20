@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月19日：大家应该马上去看林郑月娥记者会直播！
+
+[https://www.guo.media/posts/226498](https://www.guo.media/posts/226498) `2019-08-20T01:40:06`
+##
+
 **milesguo** 8月19日：这是谁呀？
 
 [https://www.guo.media/posts/226430](https://www.guo.media/posts/226430) `2019-08-19T19:25:06`
