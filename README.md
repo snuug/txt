@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 衷心地感谢这位战友修改的痘痘的视频！
+
+[https://www.guo.media/posts/226755](https://www.guo.media/posts/226755) `2019-08-21T02:55:06`
+##
+
 **milesguo** 8月20日文貴直播：王岐山的侄子搶奪盤古大關的 “斬龍刀”！和西方媒體面對的司法審判的改變！
 
 [https://www.guo.media/posts/226749](https://www.guo.media/posts/226749) `2019-08-21T02:40:07`
