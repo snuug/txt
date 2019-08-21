@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月21号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/226968](https://www.guo.media/posts/226968) `2019-08-21T14:25:07`
+##
+
 **milesguo** 衷心地感谢这位战友修改的痘痘的视频！
 
 [https://www.guo.media/posts/226755](https://www.guo.media/posts/226755) `2019-08-21T02:55:06`
