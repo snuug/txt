@@ -152,38 +152,3 @@
 [https://www.guo.media/posts/226059](https://www.guo.media/posts/226059) `2019-08-18T14:25:07`
 ##
 
-**milesguo** <br>8月18号：伟大的香港人民．让人尊敬的香港同胞，绝不屈服，绝不妥协的香港同胞……上天会保佑我们．香港会赢的非常精彩，一切都是刚刚开始！
-
-[https://www.guo.media/posts/225967](https://www.guo.media/posts/225967) `2019-08-18T07:40:06`
-##
-
-**milesguo** 2019-08-17 （原声-录制版） 班农与文贵先生谈：香港危机 美国即将必须采取的行动
-
-[https://www.guo.media/posts/225935](https://www.guo.media/posts/225935) `2019-08-18T05:40:07`
-##
-
-**milesguo** 
-
-[https://www.guo.media/posts/225904](https://www.guo.media/posts/225904) `2019-08-18T04:55:06`
-##
-
-**milesguo** 香港同胞818人不倒人全到💪💪💪【GM46】
-
-[https://www.guo.media/posts/225886](https://www.guo.media/posts/225886) `2019-08-18T03:55:06`
-##
-
-**milesguo** 2019-08-17 （中文频道-录制版）班农与文贵先生谈：香港危机 美国即将必须采取的行动
-
-[https://www.guo.media/posts/225852](https://www.guo.media/posts/225852) `2019-08-18T01:25:06`
-##
-
-**milesguo** 8月17号：现在是纽约时间下午5．40……文贵将马上直播回复很多战友给文贵有关今天直播的私信……因为无法一一回复，所以马上直播集体回复有关的问题，一切都是刚刚开始！
-
-[https://www.guo.media/posts/225786](https://www.guo.media/posts/225786) `2019-08-17T21:55:07`
-##
-
-**milesguo** 8月17日：这些美国的朋友们，将会坚定地支持香港的同胞们……一切都是刚刚开始！
-
-[https://www.guo.media/posts/225738](https://www.guo.media/posts/225738) `2019-08-17T16:10:06`
-##
-
