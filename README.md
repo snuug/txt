@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Mr. Guo wengui's live broadcast on August 23:Now is the most critical moment! Waiting for 3 good news!郭文贵先生8月23日直播正的精彩片段： 现在是最关键的时刻！ 在等三个好消息！<br>【GM18】
+
+[https://www.guo.media/posts/227898](https://www.guo.media/posts/227898) `2019-08-24T09:40:07`
+##
+
 **milesguo** 香港之路！自由永存! 静待重生🙏🙏🙏🙏🙏🙏✊✊✊✊【GM50】
 
 [https://www.guo.media/posts/227763](https://www.guo.media/posts/227763) `2019-08-24T01:25:07`
