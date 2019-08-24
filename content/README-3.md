@@ -13,6 +13,8 @@
 
 ## 頁面 3/18 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [18](/content/README-18.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
+
 [文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
@@ -60,8 +62,6 @@
 [文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/2019/05/20190512-8072600133061975327.md)
 
 [文字版：2019年5月10日文贵50岁生日感言](/content/2019/05/20190511-4805446820921789375.md)
-
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/2019/05/20190511-3890850294287177156.md)
 
 
 ## 頁面 3/18 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [18](/content/README-18.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

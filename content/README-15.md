@@ -13,6 +13,8 @@
 
 ## 頁面 15/18 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
+
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
 
 [路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
@@ -60,8 +62,6 @@
 [CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
 
 [翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/content/2018/04/20180418-3200590908291834579.md)
-
-[文字版 郭先生10月27报平安](/content/2018/04/20180418-1204915936908036259.md)
 
 
 ## 頁面 15/18 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
