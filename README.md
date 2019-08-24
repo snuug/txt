@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月24号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？又有大好事即将发生……美英联合灭共……特别行政执法权开始执行……👉👉👉天佑香港人民……香港百年的善行天下……现在已经开启了世界上最善良的人们的保护的……因缘果报之轮回！天理一直都在！灭共的时间到了……<br>一切都是刚刚开始！
+
+[https://www.guo.media/posts/227934](https://www.guo.media/posts/227934) `2019-08-24T12:25:07`
+##
+
 **milesguo** Highlights of Mr. Guo wengui's live broadcast on August 23:Now is the most critical moment! Waiting for 3 good news!郭文贵先生8月23日直播正的精彩片段： 现在是最关键的时刻！ 在等三个好消息！<br>【GM18】
 
 [https://www.guo.media/posts/227898](https://www.guo.media/posts/227898) `2019-08-24T09:40:07`
