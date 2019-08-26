@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年8月25日 法治基金和法治社会每周捐款留言精选集 weekly Rule of Law Foundation and Rule of Law Society donors messages collection
+
+[https://www.guo.media/posts/228454](https://www.guo.media/posts/228454) `2019-08-26T05:40:07`
+##
+
 **milesguo** 「視頻」多角度呈现警察暴行!开真枪!踹翻跪地市民!<br><br>8月25日晚荃灣沙咀道示威人群與警察發生衝突,警方在毫無警示的情況下,突然開真槍.隨後有至少三名警察拔槍指向示威群眾.並且一個警察踢翻了一位跪地請求不要開槍的市民.本視頻從多角度呈現了這一幕.<br><br>香港警察對待示威群眾的暴行愈演愈烈.<br>從高樓施放催淚瓦斯到布袋彈近距離爆頭!<br>現在警察又開了真槍!<br>下一步難道中共真要把坦克開到香港麼?! 【GM50】
 
 [https://www.guo.media/posts/228426](https://www.guo.media/posts/228426) `2019-08-26T02:55:06`
