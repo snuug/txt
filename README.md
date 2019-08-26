@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月26 日：中共昨晚給美國貿易高層打電話，希望重回談判桌。並且表示這次談判他們要做出改變。川普總統說：「他們傷得很重，但他們明白要做正確的事。我對習保持尊重，也對談判保持尊重，因為這對世界是一個積極的促進」。<br><br>評：如果傷得不重，不會在還沒動手，就跪地求饒了。但這次籌碼又要加高了！【GM49】
+
+[https://www.guo.media/posts/228481](https://www.guo.media/posts/228481) `2019-08-26T07:40:07`
+##
+
 **milesguo** 2019年8月25日 法治基金和法治社会每周捐款留言精选集 weekly Rule of Law Foundation and Rule of Law Society donors messages collection
 
 [https://www.guo.media/posts/228454](https://www.guo.media/posts/228454) `2019-08-26T05:40:07`
