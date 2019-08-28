@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【新闻】中共发布了香港时间8月29日PLA在凌晨进驻香港！郭先生老是梦对啊🙏🙏🙏🙏<br>上帝保佑香港同胞🙏🙏🙏<br>【GM33】
+
+[https://www.guo.media/posts/229263](https://www.guo.media/posts/229263) `2019-08-28T21:40:07`
+##
+
 **milesguo** 8月28日:中共军队从屯公进入香港，【GM22】
 
 [https://www.guo.media/posts/229258](https://www.guo.media/posts/229258) `2019-08-28T21:10:07`
