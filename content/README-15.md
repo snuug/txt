@@ -13,6 +13,10 @@
 
 ## 頁面 15/18 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
+
+[自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
+
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
@@ -58,10 +62,6 @@
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
-
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
-
-[翻译：《每日野兽》报：这支推特水军部队正在围剿一名中国异议分子](/content/2018/04/20180418-3200590908291834579.md)
 
 
 ## 頁面 15/18 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
