@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 马上10万💪💪💪<br>CCP使劲了花招也阻挡不住民心所向🎈🍾🍾🍾🍾📣👏👏✌️✌️👍👍😍😍🎉🎉😆😆🚗🚗<br>【GM33】
+
+[https://www.guo.media/posts/229285](https://www.guo.media/posts/229285) `2019-08-29T00:25:06`
+##
+
 **milesguo** 2019 08 28 郭文贵先生直播：解放军军车 装甲车已经开进香港香港已经进入紧急状态，
 
 [https://www.guo.media/posts/229278](https://www.guo.media/posts/229278) `2019-08-28T23:40:06`
