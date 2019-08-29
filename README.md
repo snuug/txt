@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【喜讯】纽约时间8月28日晚上八点三十到九点，白宫网站请愿签名把共产党定为恐怖组织超过10万💪💪✊✊🙏🙏🎉🎉😍😍<br>感谢神🙏感恩郭先生🙏【GM33】
+
+[https://www.guo.media/posts/229319](https://www.guo.media/posts/229319) `2019-08-29T01:25:07`
+##
+
 **milesguo** 马上10万💪💪💪<br>CCP使劲了花招也阻挡不住民心所向🎈🍾🍾🍾🍾📣👏👏✌️✌️👍👍😍😍🎉🎉😆😆🚗🚗<br>【GM33】
 
 [https://www.guo.media/posts/229285](https://www.guo.media/posts/229285) `2019-08-29T00:25:06`
