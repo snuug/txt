@@ -147,23 +147,3 @@
 [https://www.guo.media/posts/227934](https://www.guo.media/posts/227934) `2019-08-24T12:25:07`
 ##
 
-**milesguo** Highlights of Mr. Guo wengui's live broadcast on August 23:Now is the most critical moment! Waiting for 3 good news!郭文贵先生8月23日直播正的精彩片段： 现在是最关键的时刻！ 在等三个好消息！<br>【GM18】
-
-[https://www.guo.media/posts/227898](https://www.guo.media/posts/227898) `2019-08-24T09:40:07`
-##
-
-**milesguo** 香港之路！自由永存! 静待重生🙏🙏🙏🙏🙏🙏✊✊✊✊【GM50】
-
-[https://www.guo.media/posts/227763](https://www.guo.media/posts/227763) `2019-08-24T01:25:07`
-##
-
-**milesguo** 8月23日，尊敬的战友们好！文贵将在纽约时间下午2:00开始直播！乱聊，川普总统和习近平的好哥们！为什么突然变成敌我关系了……以及人民币的汇率！和香港危机的下一步！一切都是刚刚开始！
-
-[https://www.guo.media/posts/227679](https://www.guo.media/posts/227679) `2019-08-23T17:55:06`
-##
-
-**milesguo** 8月23号：尊敬的战友们好．你们健身了吗？你们往身上泼水了吗？你们传播香港危机的真相了吗？文贵向你们报告．为什么从昨天到今天架着直播机，却一直没直播……文贵等什么大事发生……一切都是刚刚开始！
-
-[https://www.guo.media/posts/227636](https://www.guo.media/posts/227636) `2019-08-23T15:55:07`
-##
-
