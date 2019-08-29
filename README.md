@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月29日：马上起飞了……向战友们报告！一切都是刚刚开始！(二)
+
+[https://www.guo.media/posts/229515](https://www.guo.media/posts/229515) `2019-08-29T15:55:07`
+##
+
+**milesguo** 8月29日：马上起飞了……向战友们报告！一切都是刚刚开始！(－)
+
+[https://www.guo.media/posts/229514](https://www.guo.media/posts/229514) `2019-08-29T15:55:09`
+##
+
 **milesguo** 【抖音】8月29日：看看抖音号:rmrbxmt  人民日报宣传军队进入香港！无耻中共欲盖弥彰！欺瞒人民欺骗世界！年轻的战士们被洗脑训练的跟军犬一样！！！【GM22】
 
 [https://www.guo.media/posts/229512](https://www.guo.media/posts/229512) `2019-08-29T15:40:07`
