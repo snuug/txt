@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月30日: 香港同胞图片讲解CCP对其他国家的政治影响都是从香港开始的！<br>CCP’s Political Influence<br>【GM02】
+
+[https://www.guo.media/posts/229657](https://www.guo.media/posts/229657) `2019-08-30T07:40:07`
+##
+
+**milesguo** 8月30日: 香港同胞图片讲解所谓的贸易自由根本不存在！<br>Freedom to trade? Freedom To Not Buy Chinese Products? Not Really!【GM02】
+
+[https://www.guo.media/posts/229656](https://www.guo.media/posts/229656) `2019-08-30T07:40:08`
+##
+
 **milesguo** 8月30日: 香港同胞图片讲解CCP不履行《中英联合声明》<br>Dishonor the Spirit of Contract 
 
 [https://www.guo.media/posts/229655](https://www.guo.media/posts/229655) `2019-08-30T07:25:07`
