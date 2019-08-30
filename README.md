@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月30日: 香港同胞图片讲解CCP不履行《中英联合声明》<br>Dishonor the Spirit of Contract 
+
+[https://www.guo.media/posts/229655](https://www.guo.media/posts/229655) `2019-08-30T07:25:07`
+##
+
+**milesguo** 8月30日: 香港同胞图片讲解CCP白色恐怖😱<br>CCP’s White Terror<br>
+
+[https://www.guo.media/posts/229654](https://www.guo.media/posts/229654) `2019-08-30T07:25:08`
+##
+
 **milesguo** 8月30日: 香港同胞图片讲解CCP如何监控世界👀👀👀<br>The CCP Surveillance State<br>Big China Is Watching You 
 
 [https://www.guo.media/posts/229652](https://www.guo.media/posts/229652) `2019-08-30T07:10:06`
