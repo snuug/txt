@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月30日: 香港同胞图片讲解CCP如何监控世界👀👀👀<br>The CCP Surveillance State<br>Big China Is Watching You 
+
+[https://www.guo.media/posts/229652](https://www.guo.media/posts/229652) `2019-08-30T07:10:06`
+##
+
+**milesguo** 8月30日: 香港同胞图片讲解CCP 渗透<br>The CCP Infiltration  【GM02】
+
+[https://www.guo.media/posts/229649](https://www.guo.media/posts/229649) `2019-08-30T07:10:08`
+##
+
 **milesguo** 【新闻】8月30日：驻港共军升血旗！邪共最后的疯狂！<br>今天上午，中共驻港部队举行口号上所谓的第22次轮换任务，强制军管后在香港首次举行升五星血旗仪式。以此来狂妄的喧嚣香港在中共手中，香港并不是港人的香港！正是末日疯狂，肆恣叫嚣！<br>血旗招展迎风飘，邪共妖魔狂妄哮！<br>驻港部队可曾见，香港人民在苦熬！<br>港人抗争求自由，五大诉求可知道？<br>都是人生父母养，何故为妖魔效劳！<br>邪共为恶罪滔滔，苍天可曾把谁饶！<br>身为人民子弟兵，勿要为邪共撑腰！<br>莫做违背良心事，因果善恶终有报！<br>马上云开雾散日，邪共妖魔把台倒！【GM30】<br>引自：https://m.weibo.cn/detail/4410945579252255
 
 [https://www.guo.media/posts/229639](https://www.guo.media/posts/229639) `2019-08-30T06:10:08`
