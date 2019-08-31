@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日：香港大屠杀的开始……六
+
+[https://www.guo.media/posts/230051](https://www.guo.media/posts/230051) `2019-08-31T16:40:07`
+##
+
 **milesguo** 8月31日：香港大屠杀的开始……五
 
 [https://www.guo.media/posts/230044](https://www.guo.media/posts/230044) `2019-08-31T16:25:09`
