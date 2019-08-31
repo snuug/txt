@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日: 请传播📣📣📣📣让世界关注香港同胞此时的勇敢和苦难！【GM02】
+
+[https://www.guo.media/posts/230102](https://www.guo.media/posts/230102) `2019-08-31T20:10:06`
+##
+
 **milesguo** 8月31日: 警察連外藉遊客也不放過<br>外籍遊客遭警察叉頸襲擊，外籍遊客不明白為何警察要這樣做，又說這是香港，不是大陸，為何不能行<br>
 
 [https://www.guo.media/posts/230084](https://www.guo.media/posts/230084) `2019-08-31T18:25:07`
