@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日: 警察懲罰兼羞辱急救員<br>23:44 油麻地地鐵站內，警察喝罵三名急救員，命令他們面向牆璧，不准離開。(有線新聞)
+
+[https://www.guo.media/posts/230072](https://www.guo.media/posts/230072) `2019-08-31T17:40:06`
+##
+
+**milesguo** 月31日：香港大屠杀的开始……七
+
+[https://www.guo.media/posts/230070](https://www.guo.media/posts/230070) `2019-08-31T17:40:08`
+##
+
 **milesguo** 8月31: 黑警追打手无寸铁的平民！
 
 [https://www.guo.media/posts/230064](https://www.guo.media/posts/230064) `2019-08-31T17:10:06`
