@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日：香港大屠杀的开始……二
+
+[https://www.guo.media/posts/230040](https://www.guo.media/posts/230040) `2019-08-31T16:10:07`
+##
+
+**milesguo** 8月31日：香港大屠杀的开始……
+
+[https://www.guo.media/posts/230039](https://www.guo.media/posts/230039) `2019-08-31T16:10:09`
+##
+
 **milesguo** 8月31日:请看看共产党最新的对港宣传策略、颠倒黑白、嫁祸美国、以及别有用心的最新视频。<br>
 
 [https://www.guo.media/posts/230014](https://www.guo.media/posts/230014) `2019-08-31T15:10:08`
