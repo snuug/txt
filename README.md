@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Aug 31: HK 831 Terrorist Attack
+
+[https://www.guo.media/posts/230077](https://www.guo.media/posts/230077) `2019-08-31T18:10:08`
+##
+
 **milesguo** 8月31日: 香港黑警的暴行凌驾法治!!!!
 
 [https://www.guo.media/posts/230074](https://www.guo.media/posts/230074) `2019-08-31T17:55:07`
