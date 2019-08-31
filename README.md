@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日: 与香港人站在一起✊✊✊
+
+[https://www.guo.media/posts/229924](https://www.guo.media/posts/229924) `2019-08-31T08:10:07`
+##
+
+**milesguo** 8月31日: 全 員 出 動 圍 封 西 環<br>【15:00】警方在中聯辦後門的德輔道西，駕設巨型水馬封路，亦疑派出警犬隊出動。
+
+[https://www.guo.media/posts/229922](https://www.guo.media/posts/229922) `2019-08-31T08:10:08`
+##
+
 **milesguo** 8月31号：尊敬的战友们好．一直在等待香港的进展……我已经在摄像机前等了几个小时了，请大家先去休息，直播时再行通告……万分抱歉……一切都是刚刚开始！
 
 [https://www.guo.media/posts/229861](https://www.guo.media/posts/229861) `2019-08-31T04:10:07`
