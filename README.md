@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 【香港新闻】铁证如山，香港黑警多次朝示威者头部射击<br>警察是保护市民安全的，但香港警察就是黑社会，对待香港市民下手凶残，多次朝市民头部开枪，下面的视频，铁证如山！【GM06】<br>来源：网络
+
+[https://www.guo.media/posts/229805](https://www.guo.media/posts/229805) `2019-08-31T00:40:06`
+##
+
+**milesguo** 【推文】8月30号 德国联邦外交部 香港基本法保障港人的言论和集会自由<br><br>德国外交部官方推特发文撑港人：香港《基本法》保障言论自由和集会自由。 任何希望和平使用这项权利的人都不得以武力压制，我们需要降低冲突和对话。【德语新闻】<br><br>推特截图：<br>https://cdn.discordapp.com/attachments/617091347823984651/617095165361914004/image0.png
+
+[https://www.guo.media/posts/229804](https://www.guo.media/posts/229804) `2019-08-31T00:40:08`
+##
+
+**milesguo** 【关注香港】8月30日：香港同胞分析的黑警装备【GM02】
+
+[https://www.guo.media/posts/229803](https://www.guo.media/posts/229803) `2019-08-31T00:40:09`
+##
+
 **milesguo** 【关注香港】8月30日：香港同胞分析的黑警装备（English）<br>
 
 [https://www.guo.media/posts/229802](https://www.guo.media/posts/229802) `2019-08-31T00:25:07`
