@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日: 警察連外藉遊客也不放過<br>外籍遊客遭警察叉頸襲擊，外籍遊客不明白為何警察要這樣做，又說這是香港，不是大陸，為何不能行<br>
+
+[https://www.guo.media/posts/230084](https://www.guo.media/posts/230084) `2019-08-31T18:25:07`
+##
+
 **milesguo** Aug 31: HK 831 Terrorist Attack
 
 [https://www.guo.media/posts/230077](https://www.guo.media/posts/230077) `2019-08-31T18:10:08`
