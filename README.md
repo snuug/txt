@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日：勇敢．伟大的香港同胞……今天再次震撼了世界！共匪真的开始害怕了……一切都是刚刚开始！
+
+[https://www.guo.media/posts/229928](https://www.guo.media/posts/229928) `2019-08-31T08:25:06`
+##
+
 **milesguo** 8月31日: 与香港人站在一起✊✊✊
 
 [https://www.guo.media/posts/229924](https://www.guo.media/posts/229924) `2019-08-31T08:10:07`
