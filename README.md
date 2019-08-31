@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】8月30日：香港同胞分析的黑警装备（English）<br>
+
+[https://www.guo.media/posts/229802](https://www.guo.media/posts/229802) `2019-08-31T00:25:07`
+##
+
 **milesguo** 8月30日: 香港同胞图片讲解CCP对其他国家的政治影响都是从香港开始的！<br>CCP’s Political Influence<br>【GM02】
 
 [https://www.guo.media/posts/229657](https://www.guo.media/posts/229657) `2019-08-30T07:40:07`
