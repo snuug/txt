@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 8月31: 黑警追打手无寸铁的平民！
+
+[https://www.guo.media/posts/230064](https://www.guo.media/posts/230064) `2019-08-31T17:10:06`
+##
+
+**milesguo** 8月31日：香港9月1日零晨……尊敬的香港同胞们你们今天的表现太伟大了……在美国和欧洲将很快的公告……并有行动……最利香人民同胞的的消息🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都是刚刚开始！8月31日：香港大屠杀的开始……六
+
+[https://www.guo.media/posts/230060](https://www.guo.media/posts/230060) `2019-08-31T17:10:08`
+##
+
+**milesguo** 8月31日: 香港年轻人正在经历着无情残暴的镇压🙏🙏
+
+[https://www.guo.media/posts/230058](https://www.guo.media/posts/230058) `2019-08-31T17:10:09`
+##
+
 **milesguo** 8月31日：香港大屠杀的开始……六
 
 [https://www.guo.media/posts/230051](https://www.guo.media/posts/230051) `2019-08-31T16:40:07`
