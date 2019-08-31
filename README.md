@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 8月31日: 香港黑警的暴行凌驾法治!!!!
+
+[https://www.guo.media/posts/230074](https://www.guo.media/posts/230074) `2019-08-31T17:55:07`
+##
+
 **milesguo** 8月31日: 警察懲罰兼羞辱急救員<br>23:44 油麻地地鐵站內，警察喝罵三名急救員，命令他們面向牆璧，不准離開。(有線新聞)
 
 [https://www.guo.media/posts/230072](https://www.guo.media/posts/230072) `2019-08-31T17:40:06`
