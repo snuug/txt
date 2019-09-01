@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 9月1日: 请向全世界传播8月31日在香港，中共指使的恶警们的种种恶行！共24张图！8-14<br>【GM02】
+
+[https://www.guo.media/posts/230484](https://www.guo.media/posts/230484) `2019-09-01T22:55:10`
+##
+
+**milesguo** 9月1日: 请向全世界传播8月31日在香港，中共指使的恶警们的种种恶行！共24张图！1-7<br>【GM02】<br>
+
+[https://www.guo.media/posts/230483](https://www.guo.media/posts/230483) `2019-09-01T22:55:14`
+##
+
 **milesguo** 9月1日文贵与班农先生直播：习近平与王岐山的攻台计划！<br>September 1, 2019 Wengui and Mr. Bannon's Live Broadcast: Xi Jinping and Wang Qishan's Plan to Attack Taiwan！
 
 [https://www.guo.media/posts/230470](https://www.guo.media/posts/230470) `2019-09-01T21:55:09`
