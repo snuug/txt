@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Aug 31: CCP vs HK PEOPLE, unfair game! Six Cheats! 【GM02】
+
+[https://www.guo.media/posts/230301](https://www.guo.media/posts/230301) `2019-09-01T05:25:07`
+##
+
 **milesguo** 8月31日: 香港同胞图片解读中共恶行！六宗罪✊✊✊中文版请传播<br>【GM02】
 
 [https://www.guo.media/posts/230297](https://www.guo.media/posts/230297) `2019-09-01T05:10:09`
