@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月1号：尊敬的战友们好．你们传播香港危机真相了吗？今天文贵将在纽约时间．中午12点．北京时间零晨12:00左右．与班农先生直播爆料．共产党的香港之外的另外一个威胁全世界的计划！一切都是刚刚开始！
+
+[https://www.guo.media/posts/230416](https://www.guo.media/posts/230416) `2019-09-01T14:40:35`
+##
+
 **milesguo** Aug 31: CCP vs HK PEOPLE, unfair game! Six Cheats! 【GM02】
 
 [https://www.guo.media/posts/230301](https://www.guo.media/posts/230301) `2019-09-01T05:25:07`
