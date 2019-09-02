@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月2日: 香港同胞总结的中共纳粹 CHINAZI 📣📣📣📣📣传播
+
+[https://www.guo.media/posts/230688](https://www.guo.media/posts/230688) `2019-09-02T21:25:10`
+##
+
 **milesguo** 【关注香港】6月9日～9月2日：警方使用橡胶子弹.催泪弹…数量跟被捕的示威者人数的粗略统计【GM02】
 
 [https://www.guo.media/posts/230685](https://www.guo.media/posts/230685) `2019-09-02T21:10:10`
