@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月2日：这幅漫画作品真是太棒了👏一切都是刚刚开始！
+
+[https://www.guo.media/posts/230633](https://www.guo.media/posts/230633) `2019-09-02T15:40:09`
+##
+
 **milesguo** https://www.google.com/amp/s/www.cbsnews.com/amp/news/hong-kong-protest-today-airport-blockade-strike-action-china-warns-end-is-coming-2019-09-01/
 
 [https://www.guo.media/posts/230604](https://www.guo.media/posts/230604) `2019-09-02T11:40:09`
