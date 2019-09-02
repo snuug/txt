@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 9月2号：尊敬的战友们好文贵，马上在这里报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/230640](https://www.guo.media/posts/230640) `2019-09-02T16:10:09`
+##
+
+**milesguo** https://mobile.reuters.com/video/2019/09/02/hk-leader-would-quit-if-she-could?videoId=595215059&videoChannel=117760
+
+[https://www.guo.media/posts/230639](https://www.guo.media/posts/230639) `2019-09-02T16:10:13`
+##
+
 **milesguo** 9月2日：这幅漫画作品真是太棒了👏一切都是刚刚开始！
 
 [https://www.guo.media/posts/230633](https://www.guo.media/posts/230633) `2019-09-02T15:40:09`
