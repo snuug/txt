@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** https://www.google.com/amp/s/www.cbsnews.com/amp/news/hong-kong-protest-today-airport-blockade-strike-action-china-warns-end-is-coming-2019-09-01/
+
+[https://www.guo.media/posts/230604](https://www.guo.media/posts/230604) `2019-09-02T11:40:09`
+##
+
 **milesguo** 9月1日: 请向全世界传播8月31日在香港，中共指使的恶警们的种种恶行！共24张图！8-14<br>【GM02】
 
 [https://www.guo.media/posts/230484](https://www.guo.media/posts/230484) `2019-09-01T22:55:10`
@@ -325,15 +330,5 @@
 **milesguo** 8月28日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！
 
 [https://www.guo.media/posts/229158](https://www.guo.media/posts/229158) `2019-08-28T13:55:07`
-##
-
-**milesguo** 8月28号：香港人民的智慧和幽默，真是太棒了，请问战友们用车断香港路……佔领机场．抓住香港政府的春货．这两个创意的设计最初创始人是谁？😻😻😻😹😹😹👉👉👉一切都是刚刚开始！
-
-[https://www.guo.media/posts/229072](https://www.guo.media/posts/229072) `2019-08-28T06:25:07`
-##
-
-**milesguo** 8月27号：尊敬的战友们好．你们健身了吗？你们往身上泼水了吗？历史的时刻即将到来，香港危机发生重大拐点……请战友们一定保护好家人的隐私，最近共匪会大规模的骇客战友们的手机和网络电脑。在欧洲刚刚结束的＂郭七＂会议．会发生什么？会有什么样的行动？请大家练好你们的心脏吧，一切都是刚刚开始！
-
-[https://www.guo.media/posts/228938](https://www.guo.media/posts/228938) `2019-08-27T16:25:08`
 ##
 
