@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】共产党的恶毒手段从来都是没有最残暴只有更残暴✊✊✊灭共是中国人唯一的出路✊✊✊✊
+
+[https://www.guo.media/posts/230759](https://www.guo.media/posts/230759) `2019-09-03T02:40:09`
+##
+
 **milesguo** 9月2日郭文贵先生在图森报平安直播视频
 
 [https://www.guo.media/posts/230726](https://www.guo.media/posts/230726) `2019-09-03T01:25:09`
