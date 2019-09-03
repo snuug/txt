@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月3日：北京将真正的对香港开始执行戒严计划……Beijing just paid out plans for martial law一切都是刚刚开始！【September 3: Beijing will truly implement a martial law plan for Hong Kong...miles Beijing just paid out plans for martial law. Everything is just beginning!！】
+
+[https://www.guo.media/posts/230880](https://www.guo.media/posts/230880) `2019-09-03T14:40:07`
+##
+
 **milesguo** 【关注香港】目睹共产党洗脑的暴警的恶毒手段！谁可以再容忍共产党的统治✊✊✊
 
 [https://www.guo.media/posts/230762](https://www.guo.media/posts/230762) `2019-09-03T02:55:10`
