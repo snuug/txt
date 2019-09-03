@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】目睹共产党洗脑的暴警的恶毒手段！谁可以再容忍共产党的统治✊✊✊
+
+[https://www.guo.media/posts/230762](https://www.guo.media/posts/230762) `2019-09-03T02:55:10`
+##
+
 **milesguo** 【关注香港】共产党的恶毒手段从来都是没有最残暴只有更残暴✊✊✊灭共是中国人唯一的出路✊✊✊✊
 
 [https://www.guo.media/posts/230759](https://www.guo.media/posts/230759) `2019-09-03T02:40:09`
