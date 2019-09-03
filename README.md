@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月3号：尊敬的战友们好．香港．中国．世界．进入了关键的时刻……文贵马上就要开始直播……一切都是刚刚开始直播！
+
+[https://www.guo.media/posts/230888](https://www.guo.media/posts/230888) `2019-09-03T14:55:07`
+##
+
 **milesguo** 9月3日：北京将真正的对香港开始执行戒严计划……Beijing just paid out plans for martial law一切都是刚刚开始！【September 3: Beijing will truly implement a martial law plan for Hong Kong...miles Beijing just paid out plans for martial law. Everything is just beginning!！】
 
 [https://www.guo.media/posts/230880](https://www.guo.media/posts/230880) `2019-09-03T14:40:07`
