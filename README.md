@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月4号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了么？文贵将在纽约时间上午10:00前(半小时内)报平安直播！聊聊林郑月娥的新四条！一切都是刚刚开始！
+
+[https://www.guo.media/posts/231142](https://www.guo.media/posts/231142) `2019-09-04T13:40:07`
+##
+
 **milesguo** 9月3日晚间郭文贵先生华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！<br><br>9/3/2019 Guo Wengui's live evening broadcast from Washington D.C.<br>Hong Kong, the fuse that will ignite a major war between East and West. What is the CCP's so-called new model of great power relations?
 
 [https://www.guo.media/posts/231018](https://www.guo.media/posts/231018) `2019-09-04T02:40:06`
