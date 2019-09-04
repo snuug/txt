@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月4日郭文贵先生:“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!
+
+[https://www.guo.media/posts/231198](https://www.guo.media/posts/231198) `2019-09-04T17:55:06`
+##
+
 **milesguo** 【关注香港】9月4日: 香港同胞英语图片披露CCP黑警恶行📣📣📣战友们传播！
 
 [https://www.guo.media/posts/231194](https://www.guo.media/posts/231194) `2019-09-04T16:55:07`
