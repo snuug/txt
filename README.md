@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月4日郭文贵先生:“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!<br><br>9/4/2019 <br>Mr. Miles Kwok: Carrie Lam and the four remaining core demands will further unite the people of Hong Kong. The revocation of the free trade zone and the stillbirth of the CCP's Greater Bay Area.<br>
+
+[https://www.guo.media/posts/231213](https://www.guo.media/posts/231213) `2019-09-04T20:10:07`
+##
+
 **milesguo** 【关注香港】9月4日: 香港同胞会继续抗争！五项诉求一个不能少！为捍卫人权自由，一步不退让✊✊✊<br>9月8日下午2点美国领事馆请愿！【GM02】
 
 [https://www.guo.media/posts/231205](https://www.guo.media/posts/231205) `2019-09-04T18:55:07`
