@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月4日: 香港同胞英语图片披露CCP黑警恶行📣📣📣战友们传播！
+
+[https://www.guo.media/posts/231194](https://www.guo.media/posts/231194) `2019-09-04T16:55:07`
+##
+
+**milesguo** 9月4日：白宫旁边的＂总统＂教堂．是华盛顿特区最有代表性教堂之一……为所有的战友及香港同胞祈福平安！🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
+
+[https://www.guo.media/posts/231193](https://www.guo.media/posts/231193) `2019-09-04T16:55:08`
+##
+
 **milesguo** 9月4日：兄弟姐妹们千万别忘了这个重点！一
 
 [https://www.guo.media/posts/231176](https://www.guo.media/posts/231176) `2019-09-04T16:10:07`
