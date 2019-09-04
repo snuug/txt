@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月3日晚间郭文贵先生华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！<br><br>9/3/2019 Guo Wengui's live evening broadcast from Washington D.C.<br>Hong Kong, the fuse that will ignite a major war between East and West. What is the CCP's so-called new model of great power relations?
+
+[https://www.guo.media/posts/231018](https://www.guo.media/posts/231018) `2019-09-04T02:40:06`
+##
+
 **milesguo** 9月3日：文贵一天紧张激烈的工作后．马上就要开始直播．与朋友乱聊一下．……因为太多战友私信无法一一回复-直播中一并感谢大家吧……一切都是刚刚开始！
 
 [https://www.guo.media/posts/230989](https://www.guo.media/posts/230989) `2019-09-03T23:55:06`
