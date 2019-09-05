@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月5日: 香港同胞英文图片披露林郑月娥花言巧语愚弄港人！传播📣📣📣
+
+[https://www.guo.media/posts/231309](https://www.guo.media/posts/231309) `2019-09-05T09:25:08`
+##
+
 **milesguo** 【关注香港】9月5日: 香港人五项诉求缺一不可游行活动行程安排：
 
 [https://www.guo.media/posts/231277](https://www.guo.media/posts/231277) `2019-09-05T06:10:08`
