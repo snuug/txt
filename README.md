@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Wish the Glory Belongs to Hong Kong【GM33】
+
+[https://www.guo.media/posts/231413](https://www.guo.media/posts/231413) `2019-09-05T17:25:09`
+##
+
 **milesguo** 9月5号文贵报平安，全球从自动灭共到联合灭共的时代。
 
 [https://www.guo.media/posts/231363](https://www.guo.media/posts/231363) `2019-09-05T13:40:08`
