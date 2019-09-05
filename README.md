@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月5号文贵报平安，全球从自动灭共到联合灭共的时代。
+
+[https://www.guo.media/posts/231363](https://www.guo.media/posts/231363) `2019-09-05T13:40:08`
+##
+
 **milesguo** 【关注香港】9月5日: 香港同胞英文图片披露林郑月娥花言巧语愚弄港人！传播📣📣📣
 
 [https://www.guo.media/posts/231309](https://www.guo.media/posts/231309) `2019-09-05T09:25:08`
