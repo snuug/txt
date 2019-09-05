@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 林郑月娥撤回遣返法案的真正目的解析🙏🙏📣📣📣【GM46】
+
+[https://www.guo.media/posts/231255](https://www.guo.media/posts/231255) `2019-09-05T02:55:07`
+##
+
 **milesguo** 9月4日郭文贵先生:“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!<br><br>9/4/2019 <br>Mr. Miles Kwok: Carrie Lam and the four remaining core demands will further unite the people of Hong Kong. The revocation of the free trade zone and the stillbirth of the CCP's Greater Bay Area.<br>
 
 [https://www.guo.media/posts/231213](https://www.guo.media/posts/231213) `2019-09-04T20:10:07`
