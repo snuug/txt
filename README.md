@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月5日：开着飞机回家了……吃饺子哦……一切都是刚刚开始！
+
+[https://www.guo.media/posts/231475](https://www.guo.media/posts/231475) `2019-09-06T00:55:08`
+##
+
 **milesguo** Wish the Glory Belongs to Hong Kong【GM33】
 
 [https://www.guo.media/posts/231413](https://www.guo.media/posts/231413) `2019-09-05T17:25:09`
