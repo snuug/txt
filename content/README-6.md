@@ -13,6 +13,8 @@
 
 ## 頁面 6/18 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [18](/content/README-18.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/2019/02/20190220-7271469985429924299.md)
+
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/content/2019/02/20190219-8738304753006288590.md)
 
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/content/2019/02/20190219-2494851897294759550.md)
@@ -60,8 +62,6 @@
 [文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
 
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
-
-[文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
 
 ## 頁面 6/18 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [18](/content/README-18.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
