@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Joe庄随手拍郭先生之中装系【GM33】
+
+[https://www.guo.media/posts/231731](https://www.guo.media/posts/231731) `2019-09-06T23:25:09`
+##
+
+**milesguo** Joe 庄随手拍郭先生之西装系<br>【GM33】
+
+[https://www.guo.media/posts/231730](https://www.guo.media/posts/231730) `2019-09-06T23:25:12`
+##
+
 **milesguo** 【新闻】9月6日香港地铁示威人群静坐举牌文明集会<br>香港地铁站——太子站示威人群内坐下来抗议。抗议者高呼“放出8月31日太子站监控录像”等控诉8月31日香港警察速龙小队在地铁里无差别攻击市民。【GM22】
 
 [https://www.guo.media/posts/231671](https://www.guo.media/posts/231671) `2019-09-06T15:25:09`
