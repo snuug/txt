@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【推特】9月6日，斯伯丁将军推文：贸易战并不单单贸易战。它是关于确保通过全球化和开放互联网获得创新，技术，人才和资本，从而不会使极权政府压迫他们的人民，破坏民主国家并威胁他们的邻国。【GM01】<br><br>https://twitter.com/robert\_spalding/status/1170024341364531200
+
+[https://www.guo.media/posts/231732](https://www.guo.media/posts/231732) `2019-09-06T23:40:09`
+##
+
 **milesguo** Joe庄随手拍郭先生之中装系【GM33】
 
 [https://www.guo.media/posts/231731](https://www.guo.media/posts/231731) `2019-09-06T23:25:09`
