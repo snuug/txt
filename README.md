@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】香港人会在9月8日前往美国驻港澳领事馆游行📣📣📣<br>
+
+[https://www.guo.media/posts/231910](https://www.guo.media/posts/231910) `2019-09-07T15:55:10`
+##
+
 **milesguo** 【关注香港】中国时间9月7日香港下午4点48分香港东涌地区警方戒严。【GM22】
 
 [https://www.guo.media/posts/231848](https://www.guo.media/posts/231848) `2019-09-07T09:25:09`
