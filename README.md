@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月6日: 香港同胞英文图片传播CCP危害📣📣📣<br>Do you know China has infiltrated into your daily life, from surveillance systems, financial services, public transports to film productions?<br><br>If you think China doesn't concern you, please have a look at how China is taking over your work, expenses, personal data and leisure activities.<br><br>Feel free to share.
+
+[https://www.guo.media/posts/231735](https://www.guo.media/posts/231735) `2019-09-07T00:25:10`
+##
+
 **milesguo** 【推特】9月6日，斯伯丁将军推文：贸易战并不单单贸易战。它是关于确保通过全球化和开放互联网获得创新，技术，人才和资本，从而不会使极权政府压迫他们的人民，破坏民主国家并威胁他们的邻国。【GM01】<br><br>https://twitter.com/robert\_spalding/status/1170024341364531200
 
 [https://www.guo.media/posts/231732](https://www.guo.media/posts/231732) `2019-09-06T23:40:09`
