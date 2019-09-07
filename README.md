@@ -237,23 +237,3 @@
 [https://www.guo.media/posts/230604](https://www.guo.media/posts/230604) `2019-09-02T11:40:09`
 ##
 
-**milesguo** 9月1日: 请向全世界传播8月31日在香港，中共指使的恶警们的种种恶行！共24张图！8-14<br>【GM02】
-
-[https://www.guo.media/posts/230484](https://www.guo.media/posts/230484) `2019-09-01T22:55:10`
-##
-
-**milesguo** 9月1日: 请向全世界传播8月31日在香港，中共指使的恶警们的种种恶行！共24张图！1-7<br>【GM02】<br>
-
-[https://www.guo.media/posts/230483](https://www.guo.media/posts/230483) `2019-09-01T22:55:14`
-##
-
-**milesguo** 9月1日文贵与班农先生直播：习近平与王岐山的攻台计划！<br>September 1, 2019 Wengui and Mr. Bannon's Live Broadcast: Xi Jinping and Wang Qishan's Plan to Attack Taiwan！
-
-[https://www.guo.media/posts/230470](https://www.guo.media/posts/230470) `2019-09-01T21:55:09`
-##
-
-**milesguo** 9月1号：尊敬的战友们好．你们传播香港危机真相了吗？今天文贵将在纽约时间．中午12点．北京时间零晨12:00左右．与班农先生直播爆料．共产党的香港之外的另外一个威胁全世界的计划！一切都是刚刚开始！
-
-[https://www.guo.media/posts/230416](https://www.guo.media/posts/230416) `2019-09-01T14:40:35`
-##
-
