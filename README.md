@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月7日: 香港同胞英文图片传播CCP镇压和平游行真相<br>#english Timeline of the entire movement until the end of August<br>【GM02】
+
+[https://www.guo.media/posts/231951](https://www.guo.media/posts/231951) `2019-09-07T19:25:09`
+##
+
 **milesguo** 【关注香港】9月7日: 香港同胞英语图片宣传林郑月娥你太晚了！你们已经造成了这么大的伤害！五项诉求缺一不可！【GM02】
 
 [https://www.guo.media/posts/231950](https://www.guo.media/posts/231950) `2019-09-07T19:10:10`
