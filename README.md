@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月6日: Hong Kong Human Rights and Democracy Act must be p\*\*\*ed. Stand with Hong Kong on 8 September.<br>【GM02】
+
+[https://www.guo.media/posts/231751](https://www.guo.media/posts/231751) `2019-09-07T01:40:11`
+##
+
 **milesguo** 【关注香港】9月8日香港同胞人权与民主祈祷会🙏🙏
 
 [https://www.guo.media/posts/231741](https://www.guo.media/posts/231741) `2019-09-07T00:55:10`
