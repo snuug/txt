@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】香港同胞9月8日人权与民主祈祷会路线及时间线🙏🙏🙏<br>【GM02】
+
+[https://www.guo.media/posts/231982](https://www.guo.media/posts/231982) `2019-09-07T23:55:09`
+##
+
 **milesguo** 【关注香港】The 9th Citizens ‘ Press Conference 
 
 [https://www.guo.media/posts/231970](https://www.guo.media/posts/231970) `2019-09-07T22:40:10`
