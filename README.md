@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】The 9th Citizens ‘ Press Conference 
+
+[https://www.guo.media/posts/231970](https://www.guo.media/posts/231970) `2019-09-07T22:40:10`
+##
+
 **milesguo** 【关注香港】9月7日: 香港同胞英文图片传播CCP镇压和平游行真相<br>#english Timeline of the entire movement until the end of August<br>【GM02】
 
 [https://www.guo.media/posts/231951](https://www.guo.media/posts/231951) `2019-09-07T19:25:09`
