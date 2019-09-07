@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】中国时间9月7日香港下午4点48分香港东涌地区警方戒严。【GM22】
+
+[https://www.guo.media/posts/231848](https://www.guo.media/posts/231848) `2019-09-07T09:25:09`
+##
+
 **milesguo** 9月7号：尊敬的战友们好．文贵将在纽约时间．7号上午十点左右．也就是五个小时后．直播乱聊香港危机的方方面面……一切都是刚刚开始！
 
 [https://www.guo.media/posts/231844](https://www.guo.media/posts/231844) `2019-09-07T08:55:09`
