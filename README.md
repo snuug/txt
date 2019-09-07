@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月7日郭文贵先生直播：关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！
+
+[https://www.guo.media/posts/231912](https://www.guo.media/posts/231912) `2019-09-07T16:25:10`
+##
+
 **milesguo** 【关注香港】香港人会在9月8日前往美国驻港澳领事馆游行📣📣📣<br>
 
 [https://www.guo.media/posts/231910](https://www.guo.media/posts/231910) `2019-09-07T15:55:10`
