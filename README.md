@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月7号：尊敬的战友们好．你们觉得在这个视频中．此时此刻正在香港机场．抓捕抗议人民的所谓香港的警察，他们还是香港人．和香港的警察吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/231838](https://www.guo.media/posts/231838) `2019-09-07T08:10:09`
+##
+
 **milesguo** 【关注香港】9月6日: Hong Kong Human Rights and Democracy Act must be p\*\*\*ed. Stand with Hong Kong on 8 September.<br>【GM02】
 
 [https://www.guo.media/posts/231751](https://www.guo.media/posts/231751) `2019-09-07T01:40:11`
