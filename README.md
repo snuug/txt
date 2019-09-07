@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月8日香港同胞人权与民主祈祷会🙏🙏
+
+[https://www.guo.media/posts/231741](https://www.guo.media/posts/231741) `2019-09-07T00:55:10`
+##
+
 **milesguo** 【关注香港】9月6日: 香港同胞英文图片传播CCP危害📣📣📣<br>Do you know China has infiltrated into your daily life, from surveillance systems, financial services, public transports to film productions?<br><br>If you think China doesn't concern you, please have a look at how China is taking over your work, expenses, personal data and leisure activities.<br><br>Feel free to share.
 
 [https://www.guo.media/posts/231735](https://www.guo.media/posts/231735) `2019-09-07T00:25:10`
