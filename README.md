@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】中国时间9月8日下午2点23分美国驻港大使馆附近现场图片（防暴警察堵住前往使馆的道路不知道什么原因）【GM22】
+
+[https://www.guo.media/posts/232067](https://www.guo.media/posts/232067) `2019-09-08T06:40:10`
+##
+
 **milesguo** 【关注香港】9月8日: 香港人权民主法案问答📣📣
 
 [https://www.guo.media/posts/232020](https://www.guo.media/posts/232020) `2019-09-08T03:40:09`
