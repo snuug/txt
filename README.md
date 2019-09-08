@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月8日: 24:16太子 #旺角警署<br>多名持械警員突然向街到連開多槍， 聽到有近十發槍聲。<br>#now #蘋果【GM02】
+
+[https://www.guo.media/posts/232196](https://www.guo.media/posts/232196) `2019-09-08T18:10:09`
+##
+
 **milesguo** 9月8日郭文贵先生直播：美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！<br>9/8/2019<br>Mr. Guo Wengui's live broadcast: Efforts in the US to aid Hong Kong and vanquish the CCP to begin on Capitol Hill. Li Xiaojia and the futures crash at the Stock Exchange of Hong Kong have upped the ante. How the CCP uses inflation to enslave the Chinese people.
 
 [https://www.guo.media/posts/232184](https://www.guo.media/posts/232184) `2019-09-08T17:10:09`
