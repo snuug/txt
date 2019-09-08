@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月8日: 香港爷爷抗议者加入抗议行列！不愿看到年轻人被暴打🙏🙏🙏🙏不愿香港变成广州！
+
+[https://www.guo.media/posts/232176](https://www.guo.media/posts/232176) `2019-09-08T16:40:10`
+##
+
 **milesguo** 【关注香港】9月8日: 香港同胞和平抗议五项诉求缺一不可！Be water ✊
 
 [https://www.guo.media/posts/232156](https://www.guo.media/posts/232156) `2019-09-08T15:25:09`
