@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月9日联校人链🙏🙏🙏看看香港学生的坚强!
+
+[https://www.guo.media/posts/232322](https://www.guo.media/posts/232322) `2019-09-09T09:40:18`
+##
+
+**milesguo** 【关注香港】9.9联校人链！秀茂坪中学生响应组跨校人链，多个学校联合起来抗争到底，绝不罢休！参与学校包括圣公会何明华会督中学、梁式芝书院及香港道教联合会青松中学！【GM30】
+
+[https://www.guo.media/posts/232319](https://www.guo.media/posts/232319) `2019-09-09T09:40:24`
+##
+
+**milesguo** 【关注香港】中国时间9月8日晚上11点18分铜锣湾家庭主妇，记者，游客因为没有带防毒面具吸入了警方投掷的催泪瓦斯释放出的有毒气体。【GM22】
+
+[https://www.guo.media/posts/232317](https://www.guo.media/posts/232317) `2019-09-09T09:40:28`
+##
+
 **milesguo** 【关注香港】香港时间9月9日，<br>September 9<br>Secondary school students across Hong Kong are continuing their school boycott, forming human chains across the city this morning. <br><br>Source: various sources
 
 [https://www.guo.media/posts/232283](https://www.guo.media/posts/232283) `2019-09-09T04:55:12`
