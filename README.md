@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月8日郭文贵先生直播精彩片段： 中共最担心的就是大陆会展开平民运动。香港给14亿人做出了最好的榜样！ Highlights of Mr. Guo Wengui's live broadcast on September 8:The communist party's biggest fear is that it will lead the mainland people into a populist movement. Hong Kong's campaign has set the best example for 1.4 billion people【GM18】
+
+[https://www.guo.media/posts/232325](https://www.guo.media/posts/232325) `2019-09-09T10:10:11`
+##
+
 **milesguo** 【关注香港】9月9日联校人链🙏🙏🙏看看香港学生的坚强!
 
 [https://www.guo.media/posts/232322](https://www.guo.media/posts/232322) `2019-09-09T09:40:18`
