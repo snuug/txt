@@ -257,33 +257,3 @@
 [https://www.guo.media/posts/231142](https://www.guo.media/posts/231142) `2019-09-04T13:40:07`
 ##
 
-**milesguo** 9月3日晚间郭文贵先生华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！<br><br>9/3/2019 Guo Wengui's live evening broadcast from Washington D.C.<br>Hong Kong, the fuse that will ignite a major war between East and West. What is the CCP's so-called new model of great power relations?
-
-[https://www.guo.media/posts/231018](https://www.guo.media/posts/231018) `2019-09-04T02:40:06`
-##
-
-**milesguo** 9月3日：文贵一天紧张激烈的工作后．马上就要开始直播．与朋友乱聊一下．……因为太多战友私信无法一一回复-直播中一并感谢大家吧……一切都是刚刚开始！
-
-[https://www.guo.media/posts/230989](https://www.guo.media/posts/230989) `2019-09-03T23:55:06`
-##
-
-**milesguo** 9月3日郭文贵先生在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！
-
-[https://www.guo.media/posts/230934](https://www.guo.media/posts/230934) `2019-09-03T18:10:07`
-##
-
-**milesguo** 【关注香港】9月3日: 这就是香港！含蓄而又绅士，纯真而又坚强，对待同胞和友邻永远礼敬相待。但面对中共这个魔党和邪恶港府所发动的残暴屠杀，没有半个人畏惧和退缩，上至白发苍颜下至锦瑟少年同心并力，光复香港，这是一场当之无愧的时代革命。如果不是良心失坏，究竟是谁才会把他们当成暴徒！【GM44】
-
-[https://www.guo.media/posts/230909](https://www.guo.media/posts/230909) `2019-09-03T16:40:08`
-##
-
-**milesguo** 9月3号：尊敬的战友们好．香港．中国．世界．进入了关键的时刻……文贵马上就要开始直播……一切都是刚刚开始直播！
-
-[https://www.guo.media/posts/230888](https://www.guo.media/posts/230888) `2019-09-03T14:55:07`
-##
-
-**milesguo** 9月3日：北京将真正的对香港开始执行戒严计划……Beijing just paid out plans for martial law一切都是刚刚开始！【September 3: Beijing will truly implement a martial law plan for Hong Kong...miles Beijing just paid out plans for martial law. Everything is just beginning!！】
-
-[https://www.guo.media/posts/230880](https://www.guo.media/posts/230880) `2019-09-03T14:40:07`
-##
-
