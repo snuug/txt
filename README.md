@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月9号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以末收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？一切都是刚刚开始！
+
+[https://www.guo.media/posts/232368](https://www.guo.media/posts/232368) `2019-09-09T14:55:10`
+##
+
 **milesguo** 9月8日郭文贵先生直播精彩片段： 中共最担心的就是大陆会展开平民运动。香港给14亿人做出了最好的榜样！ Highlights of Mr. Guo Wengui's live broadcast on September 8:The communist party's biggest fear is that it will lead the mainland people into a populist movement. Hong Kong's campaign has set the best example for 1.4 billion people【GM18】
 
 [https://www.guo.media/posts/232325](https://www.guo.media/posts/232325) `2019-09-09T10:10:11`
