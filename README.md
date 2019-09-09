@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】香港时间9月9日，<br>September 9<br>Secondary school students across Hong Kong are continuing their school boycott, forming human chains across the city this morning. <br><br>Source: various sources
+
+[https://www.guo.media/posts/232283](https://www.guo.media/posts/232283) `2019-09-09T04:55:12`
+##
+
 **milesguo** 【关注香港】9月8日: 24:16太子 #旺角警署<br>多名持械警員突然向街到連開多槍， 聽到有近十發槍聲。<br>#now #蘋果【GM02】
 
 [https://www.guo.media/posts/232196](https://www.guo.media/posts/232196) `2019-09-08T18:10:09`
