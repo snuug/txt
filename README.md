@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月10号：尊敬的战友们好！文贵在凌晨6:00先向大家报平安了，一切都是刚刚开始！
+
+[https://www.guo.media/posts/232534](https://www.guo.media/posts/232534) `2019-09-10T10:25:09`
+##
+
 **milesguo** 【关注香港】Conscience for sale<br>黑警出卖良心！！！
 
 [https://www.guo.media/posts/232503](https://www.guo.media/posts/232503) `2019-09-10T06:25:08`
