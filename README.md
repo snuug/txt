@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】Conscience for sale<br>黑警出卖良心！！！
+
+[https://www.guo.media/posts/232503](https://www.guo.media/posts/232503) `2019-09-10T06:25:08`
+##
+
 **milesguo** 【关注香港】香港同胞游行日程表
 
 [https://www.guo.media/posts/232485](https://www.guo.media/posts/232485) `2019-09-10T03:55:09`
