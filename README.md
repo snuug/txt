@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月11日：我自己回看2017年5月29的这个直播我都感到震惊，时间是最好的答案……一切都是刚刚开始！
+
+[https://www.guo.media/posts/232896](https://www.guo.media/posts/232896) `2019-09-11T21:25:10`
+##
+
 **milesguo** 2019年9月11日郭文贵先生直播：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！<br>9/11/2019 Mr. Guo Wengui's live broadcast: The inside story behind Bolton's departure from the White House. The grand assembly of diverse, anti-CCP forces worldwide.
 
 [https://www.guo.media/posts/232870](https://www.guo.media/posts/232870) `2019-09-11T17:25:09`
