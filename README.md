@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年9月11日郭文贵先生直播：博尔顿离开白宫内幕！全世界各方面灭共人士灭共力量大聚集！<br>9/11/2019 Mr. Guo Wengui's live broadcast: The inside story behind Bolton's departure from the White House. The grand assembly of diverse, anti-CCP forces worldwide.
+
+[https://www.guo.media/posts/232870](https://www.guo.media/posts/232870) `2019-09-11T17:25:09`
+##
+
 **milesguo** 9月11号：这是美国最悲伤的日子。这是美国重新强大的一个里程碑的开始……天佑，美国，我们大家都应该想想，这个世界上如果没有一个强大安全的美国．世界将变成什么样子？文贵在一小时内报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/232802](https://www.guo.media/posts/232802) `2019-09-11T13:25:10`
