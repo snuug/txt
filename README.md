@@ -207,38 +207,3 @@
 [https://www.guo.media/posts/231667](https://www.guo.media/posts/231667) `2019-09-06T14:40:11`
 ##
 
-**milesguo** 【关注香港】9月7日机场见📣📣📣💪💪💪✊✊✊
-
-[https://www.guo.media/posts/231638](https://www.guo.media/posts/231638) `2019-09-06T09:55:07`
-##
-
-**milesguo** 9月5号：这就是路德家的豪宅的内部部分景观视频(二）盗国贼们，不管他们有几万亿美元，他们也不能光明正大地享受着．世界上最美丽的大自然．和这样的艺术性的豪宅。这就是伟大的美国．这就是伟大的爆料革命．．喜马拉雅实现后，我们每个中国人每个战友等应有的生活，一切都是刚刚开始！
-
-[https://www.guo.media/posts/231535](https://www.guo.media/posts/231535) `2019-09-06T01:55:07`
-##
-
-**milesguo** 9月5号：这就是路德家的豪宅的外部部分景观视频(一）
-
-[https://www.guo.media/posts/231533](https://www.guo.media/posts/231533) `2019-09-06T01:55:09`
-##
-
-**milesguo** 9月5日：昨天的香港恒生指数．和恒生期货市场．在共产党托市无望的情况下，在接近崩溃的时候……共产党和香港政府．完全以耍流氓黑社会的方式停止交易……这是共产党和香港政府彻底崩溃的最直接证据，这是世界上金融市场最最重要的历史时刻，这也是香港保卫运动以来．最直接的成果．香港抗议运动到了最危险的最重要的时刻！一切都是刚刚开始！
-
-[https://www.guo.media/posts/231478](https://www.guo.media/posts/231478) `2019-09-06T01:10:07`
-##
-
-**milesguo** 9月5日：开着飞机回家了……吃饺子哦……一切都是刚刚开始！
-
-[https://www.guo.media/posts/231475](https://www.guo.media/posts/231475) `2019-09-06T00:55:08`
-##
-
-**milesguo** Wish the Glory Belongs to Hong Kong【GM33】
-
-[https://www.guo.media/posts/231413](https://www.guo.media/posts/231413) `2019-09-05T17:25:09`
-##
-
-**milesguo** 9月5号文贵报平安，全球从自动灭共到联合灭共的时代。
-
-[https://www.guo.media/posts/231363](https://www.guo.media/posts/231363) `2019-09-05T13:40:08`
-##
-
