@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月11日: 香港同胞们的不一样的中秋活动计划（2）<br>五大诉求缺一不可✊✊✊<br>【GM02】
+
+[https://www.guo.media/posts/232931](https://www.guo.media/posts/232931) `2019-09-12T00:25:09`
+##
+
+**milesguo** 【关注香港】9月11日: 香港同胞们的不一样的中秋活动计划 （1）【GM02】<br>五大诉求缺一不可✊✊✊
+
+[https://www.guo.media/posts/232928](https://www.guo.media/posts/232928) `2019-09-12T00:25:12`
+##
+
 **milesguo** 9月11日：我自己回看2017年5月29的这个直播我都感到震惊，时间是最好的答案……一切都是刚刚开始！
 
 [https://www.guo.media/posts/232896](https://www.guo.media/posts/232896) `2019-09-11T21:25:10`
