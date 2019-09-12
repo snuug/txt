@@ -13,6 +13,8 @@
 
 ## 頁面 8/19 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [19](/content/README-19.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/content/2018/11/20181124-4765015310552564158.md)
+
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/2018/11/20181124-4394519846774733520.md)
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/2018/11/20181124-6313930265884722848.md)
@@ -60,8 +62,6 @@
 [文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/2018/10/20181025-6578176193643751329.md)
 
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/2018/10/20181025-1627101594427437852.md)
-
-[文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/content/2018/10/20181021-3410714193458373203.md)
 
 
 ## 頁面 8/19 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [19](/content/README-19.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
