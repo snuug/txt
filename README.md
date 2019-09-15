@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月15日: CCP黑警没有灵魂没有道德没有底线，就是一群被CCP喂了人尸丸的行尸走肉！！只有灭了CCP，我们才会有平安幸福！<br>【GM33】【GM46】
+
+[https://www.guo.media/posts/233744](https://www.guo.media/posts/233744) `2019-09-15T20:10:09`
+##
+
 **milesguo** 2019年9月15日郭文贵先生直播：香港已成为恐惧之港，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！<br>9/15/2019<br>Mr. Guo Wengui's live broadcast: Hong Kong has become a port of terror. The duel between good and evil has begun (the light that is the US versus the CCP's darkness). We are currently focusing upon spreading the truth about the crisis in Hong Kong.
 
 [https://www.guo.media/posts/233730](https://www.guo.media/posts/233730) `2019-09-15T16:40:09`
