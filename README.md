@@ -12,6 +12,111 @@
 ## 最新郭文
 
 
+**milesguo** [關注香港] 9月15日<br>伸縮警棍VS時代革命<br>         在香港民眾反送中,抵制中共極權統治的抗議活動不斷升溫中。中共政權不僅向香港增派了大陸武警和軍隊，中共還向警方發放了伸縮警棍以及各種鎮壓民眾的武器。<br>     香港警方同意向休班警員發放伸縮警棍，讓他們在休班期間執行警察職務，並且已經有大量身著便衣、手持伸縮警棍的警察逮捕示威人士。這一舉動引起香港民眾極大的不滿！<br>       近日，香港演員王喜在其Facebook上傳了一部影片，片中以幽默的風格諷刺了香港警察持伸縮警棍隨意毆打群眾，並且警方不作為的香港現狀。並且表達了他對香港人與極權抗爭的支持。<br>        他的這部影片已經獲得近百萬次觀看和廣泛的傳播。也使得中共官媒環球時報對其「點名表揚」。<br>【GM50】
+
+[https://www.guo.media/posts/233694](https://www.guo.media/posts/233694) `2019-09-15T12:10:09`
+##
+
+**milesguo** 【關注香港】9月15日 <br>9.15 港島自由行銅鑼灣實況<br>香港同胞高喊「五大訴求， 缺一不可」， 「光復香港，時代革命」等口號，將再次震撼世界！<br><br>（來自香港戰友）【GM57】
+
+[https://www.guo.media/posts/233661](https://www.guo.media/posts/233661) `2019-09-15T12:10:13`
+##
+
+**milesguo** 【关注香港】Sep 15th Some people moved on, BUT NOT US! FREE HONG KONG DEMOCRACY NOW! 【GM02】
+
+[https://www.guo.media/posts/233646](https://www.guo.media/posts/233646) `2019-09-15T12:10:15`
+##
+
+**milesguo** 【关注香港】9月14日: 这还是香港吗？这是要干啥？？<br>【GM33】
+
+[https://www.guo.media/posts/233565](https://www.guo.media/posts/233565) `2019-09-15T12:10:18`
+##
+
+**milesguo** 9月14号：香港爆出抗议运动中，所谓的．有人性侵女孩的视频．和视频录制的方式．和当年播出过文贵的郭3秒的视频中，录制视频的方式．角度手法．应出自同一人。这应该是孙力军的手法，下三滥的共产党．孙立军……。共产党永远是用生殖器治国，再用生殖器打击别人……共不灭，天理不容。【有年轻女孩被他人误导，为男暴徒提供免费性服务。”香港特别行政区行政会议成员罗范椒芬四天前曾透露这样一则让人难以置信的消息。今日（13日）中午，社交媒体上曝出另一段疑似“香港年轻女孩讲述被暴徒性侵经历”的视频，视频中一位年轻女孩通过自己的亲身经历，似乎从另一侧面印证“男暴徒诱导、性侵年轻女孩”的不齿事实。】
+
+[https://www.guo.media/posts/233535](https://www.guo.media/posts/233535) `2019-09-15T12:10:21`
+##
+
+**milesguo** 9月14号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从共产党昨天在香港疯狂！说明了，共产党是个彻彻底底的大流氓集团．一切都是刚刚开始！
+
+[https://www.guo.media/posts/233518](https://www.guo.media/posts/233518) `2019-09-15T12:10:23`
+##
+
+**milesguo** 【關注香港】9月14日<br>今天淘大花園商場犹如一個设好的局，親共團體號召在商場唱紅歌，故意與現場市民爭吵打架，由於是直播，吸引了很多抗爭者去支援，不料，防暴警察四圍包抄，見年輕人就抓，沒有任何原因。据说最小的才11歲。<br><br>（来自香港战友）<br>【GM57】
+
+[https://www.guo.media/posts/233496](https://www.guo.media/posts/233496) `2019-09-15T12:10:26`
+##
+
+**milesguo** 【關注香港】9月14日<br>特報：香港人再集結 港島大遊行<br>二零一九年九月十五日 銅鑼灣上映<br><br>香港同胞制作<br>【GM57】
+
+[https://www.guo.media/posts/233486](https://www.guo.media/posts/233486) `2019-09-15T12:10:28`
+##
+
+**milesguo** 【关注香港】港人反送中抗争三个多月了，从来都是文明而有序，再看这些中共花钱收买派出捣乱的红卫兵，张牙舞爪伴随着杀猪般的嘶吼！简直就是泼妇骂街，这血旗舞的都快当拖把用了，倒是挺符合中共的风格！【GM30】
+
+[https://www.guo.media/posts/233367](https://www.guo.media/posts/233367) `2019-09-15T12:10:31`
+##
+
+**milesguo** 【关注香港】天佑好人，月照义士！在这月明之夜，给港人最美好的祝福！信念与爱心能无惧黑夜，撑到天亮！全世界关注香港良善的人们，今夜都会为港人祈福！光复香港，邪共必亡！【GM30】
+
+[https://www.guo.media/posts/233362](https://www.guo.media/posts/233362) `2019-09-15T12:10:33`
+##
+
+**milesguo** 【新闻】9月13日，林郑月娥录音被曝光，声称港府除了三万警力甚么都没有！<br>香港黑警到底有多少？声称港府黑警三万，可中共在港黑警多。自港人反送中抗议以来，中共无所不用其极的扰乱香港，不光出动军警，连地痞流氓都上阵了。林郑月娥只说港府的警力，避重就轻的话术措辞！<br>据路透社报道，林郑月娥承认，港府目前「除了三万警力之外甚么都没有」，而由于「反修例」人士的数量已超过警队，这表示港府无论做甚么，都必须充份考虑警方的评价和反应，以便给予警方一些、当警方面对示威者时寡不敌众而无法执行的权力。<br>不答应港人的诉求就耍无赖，黑警暴行清场未果就装可怜！承认有啥用，反正也没人信，不答应港人的五大诉求，瞎扯什么都是没用！【GM40】【GM30】<br>引自：https://theinitium.com/article/20190913-evening-brief/
+
+[https://www.guo.media/posts/233361](https://www.guo.media/posts/233361) `2019-09-15T12:10:35`
+##
+
+**milesguo** 【推文】9月13日 卡尔巴斯发推揭露赌场大亨何超瓊 何超瓊近日曾无耻地在联合国代表香港人表态“我们港人支持香港警察执法”<br><br>9月13日，卡尔巴斯发推：大西洋城赌场大亨(何鴻燊)和女儿(何超瓊)与中国黑帮有联系：“目前在澳门从事赌场业务几乎不可能不与三合会集团有联系，他们是所谓的有组织犯罪。” <br><br>中共，黑帮，土匪一家亲。【GM09】【GM02】<br><br>链接：<br>https://twitter.com/jkylebass/status/1172484463151988736?s=21
+
+[https://www.guo.media/posts/233360](https://www.guo.media/posts/233360) `2019-09-15T12:10:38`
+##
+
+**milesguo** 【推文】9月13号 文化战开战了？ 比尔戈兹发文：‪国务卿彭培奥督促 好莱坞 抵制中国的审查，介绍中共统治中国的真相。‬【GM09】<br><br>链接：<br>‪ https://twitter.com/billgertz/status/1172480956869033984?s=21<br><br>
+
+[https://www.guo.media/posts/233359](https://www.guo.media/posts/233359) `2019-09-15T12:10:41`
+##
+
+**milesguo** 9月13号：尊敬的战友们好！一小时内文贵直播！向战友们祝福中秋节快乐！文贵与战友们分享第一个没有母亲的中秋节的感受！一切都是刚刚开始！
+
+[https://www.guo.media/posts/233301](https://www.guo.media/posts/233301) `2019-09-15T12:10:45`
+##
+
+**milesguo** 2019年9月13日 <br>法治社会每周捐款留言精选集 <br>weekly Rule of Law Society donor’s messages collection <br><br>法治社会团队衷心感谢所有的捐款者和支持者！The Rule of Law Society team heartully thanks all of our supporters and donors!
+
+[https://www.guo.media/posts/233300](https://www.guo.media/posts/233300) `2019-09-15T12:10:47`
+##
+
+**milesguo** 2019年9月13日 ：<br>法治基金每周捐款留言精选集  <br>Weekly Rule of Law Foundation donor’s messages collection <br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors！
+
+[https://www.guo.media/posts/233299](https://www.guo.media/posts/233299) `2019-09-15T12:10:50`
+##
+
+**milesguo** 【关注香港】9月13日中秋，今天！抗争日程9.13中秋夜香港之路燃亮狮子山，现在是香港开埠200年来在最危难的时刻，也是香港摆脱共产党枷锁桎梏的一飞冲天的时刻，东方之珠的子民们即当代香港青年，在中秋夜狮子山对横亘古今之明月发大心愿作狮子吼“光复、革命”！这明月之辉光一样沐浴在我们所以战友及其全球华人身上，让我们一作狮子吼“光复香港、时代革命”！【GM11】
+
+[https://www.guo.media/posts/233250](https://www.guo.media/posts/233250) `2019-09-15T12:10:52`
+##
+
+**milesguo** 9月12日：尊敬的战友们谁知道这个视频的出处……万分感谢……
+
+[https://www.guo.media/posts/233170](https://www.guo.media/posts/233170) `2019-09-15T12:10:55`
+##
+
+**milesguo** 【关注香港】Fool us once, shame on you; fool us twice, shame on me!! CCP你们的大忽悠休想再得逞！【GM02】
+
+[https://www.guo.media/posts/233142](https://www.guo.media/posts/233142) `2019-09-15T12:10:57`
+##
+
+**milesguo** 9月12号：很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频……过两天再直播吃饭，万分抱歉……🙏🙏🙏😻😻😻✊✊✊一切都是刚刚开始！
+
+[https://www.guo.media/posts/233082](https://www.guo.media/posts/233082) `2019-09-15T12:10:59`
+##
+
+**milesguo** 9月12号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！一切都是刚刚开始！
+
+[https://www.guo.media/posts/233081](https://www.guo.media/posts/233081) `2019-09-15T12:11:02`
+##
+
 **milesguo** 【关注香港】今天 ！现在 ！美国通过 《新疆人权法案》这是以法灭共、国际自动灭共标志性的大事件！在爆料革命的影响下后续美国两党共同推动的《香港人权与民主法案》等一些列的立法，就是一条条绞杀共产党的套索！大顺人心 大合天意！ <br>光复香港，时代革命【GM02】【GM11】
 
 [https://www.guo.media/posts/232943](https://www.guo.media/posts/232943) `2019-09-12T01:10:09`
@@ -50,135 +155,5 @@
 **milesguo** 【关注香港】9月10日，今晚世界杯外围赛，香港vs伊朗。港人在球场齐声高唱《我愿荣光归香港》，这是“光复香港，时代革命”的歌声，排山倒海般的声浪诉说着港人反抗中共暴政的决心！雄浑的歌声在球场上空久久回荡！【GM30】
 
 [https://www.guo.media/posts/232594](https://www.guo.media/posts/232594) `2019-09-10T16:55:09`
-##
-
-**milesguo** 9月10号：尊敬的战友们好！文贵在凌晨6:00先向大家报平安了，一切都是刚刚开始！
-
-[https://www.guo.media/posts/232534](https://www.guo.media/posts/232534) `2019-09-10T10:25:09`
-##
-
-**milesguo** 【关注香港】Conscience for sale<br>黑警出卖良心！！！
-
-[https://www.guo.media/posts/232503](https://www.guo.media/posts/232503) `2019-09-10T06:25:08`
-##
-
-**milesguo** 【关注香港】香港同胞游行日程表
-
-[https://www.guo.media/posts/232485](https://www.guo.media/posts/232485) `2019-09-10T03:55:09`
-##
-
-**milesguo** 【关注香港】💪💪💪💪💪💪💪💪💪💪💪💪💪💪💪💪
-
-[https://www.guo.media/posts/232379](https://www.guo.media/posts/232379) `2019-09-09T15:55:09`
-##
-
-**milesguo** 9月9号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？为什么香港的富豪．被威胁他们隐蔽海外资产共产党可以末收！昨天香港的金融市场再次地被共产党用电脑控制，这意味着什么？一切都是刚刚开始！
-
-[https://www.guo.media/posts/232368](https://www.guo.media/posts/232368) `2019-09-09T14:55:10`
-##
-
-**milesguo** 9月8日郭文贵先生直播精彩片段： 中共最担心的就是大陆会展开平民运动。香港给14亿人做出了最好的榜样！ Highlights of Mr. Guo Wengui's live broadcast on September 8:The communist party's biggest fear is that it will lead the mainland people into a populist movement. Hong Kong's campaign has set the best example for 1.4 billion people【GM18】
-
-[https://www.guo.media/posts/232325](https://www.guo.media/posts/232325) `2019-09-09T10:10:11`
-##
-
-**milesguo** 【关注香港】9月9日联校人链🙏🙏🙏看看香港学生的坚强!
-
-[https://www.guo.media/posts/232322](https://www.guo.media/posts/232322) `2019-09-09T09:40:18`
-##
-
-**milesguo** 【关注香港】9.9联校人链！秀茂坪中学生响应组跨校人链，多个学校联合起来抗争到底，绝不罢休！参与学校包括圣公会何明华会督中学、梁式芝书院及香港道教联合会青松中学！【GM30】
-
-[https://www.guo.media/posts/232319](https://www.guo.media/posts/232319) `2019-09-09T09:40:24`
-##
-
-**milesguo** 【关注香港】中国时间9月8日晚上11点18分铜锣湾家庭主妇，记者，游客因为没有带防毒面具吸入了警方投掷的催泪瓦斯释放出的有毒气体。【GM22】
-
-[https://www.guo.media/posts/232317](https://www.guo.media/posts/232317) `2019-09-09T09:40:28`
-##
-
-**milesguo** 【关注香港】香港时间9月9日，<br>September 9<br>Secondary school students across Hong Kong are continuing their school boycott, forming human chains across the city this morning. <br><br>Source: various sources
-
-[https://www.guo.media/posts/232283](https://www.guo.media/posts/232283) `2019-09-09T04:55:12`
-##
-
-**milesguo** 【关注香港】9月8日: 24:16太子 #旺角警署<br>多名持械警員突然向街到連開多槍， 聽到有近十發槍聲。<br>#now #蘋果【GM02】
-
-[https://www.guo.media/posts/232196](https://www.guo.media/posts/232196) `2019-09-08T18:10:09`
-##
-
-**milesguo** 9月8日郭文贵先生直播：美国国会山开山“灭共助港”，李小加港交所期货交易当机玩儿大了！中共如何用通货膨胀奴役中国人民！<br>9/8/2019<br>Mr. Guo Wengui's live broadcast: Efforts in the US to aid Hong Kong and vanquish the CCP to begin on Capitol Hill. Li Xiaojia and the futures crash at the Stock Exchange of Hong Kong have upped the ante. How the CCP uses inflation to enslave the Chinese people.
-
-[https://www.guo.media/posts/232184](https://www.guo.media/posts/232184) `2019-09-08T17:10:09`
-##
-
-**milesguo** 【关注香港】9月8日: 香港爷爷抗议者加入抗议行列！不愿看到年轻人被暴打🙏🙏🙏🙏不愿香港变成广州！
-
-[https://www.guo.media/posts/232176](https://www.guo.media/posts/232176) `2019-09-08T16:40:10`
-##
-
-**milesguo** 【关注香港】9月8日: 香港同胞和平抗议五项诉求缺一不可！Be water ✊
-
-[https://www.guo.media/posts/232156](https://www.guo.media/posts/232156) `2019-09-08T15:25:09`
-##
-
-**milesguo** 【关注香港】香港「反送中」示威進入第14週，今天又有最新發展，數以百計港人齊聚市中心準備遊行到美國領事館前，要求美國總統川普解放香港。<br>昨晚示威活動再傳暴力之後，群眾今天揮舞美國國旗和標語牌遊行籲請美國協助，警方則在一旁戒備。<br>美國國防部長艾斯培（Mark Esper）昨天促請中國政府對香港問題保持克制。<br>他在法國巴黎做出上述呼籲之際，港警昨晚連續第2晚對旺角群眾施放催淚瓦斯。【GM40】<br>新聞鏈接<br>https://udn.com/news/story/120538/4035897<br>
-
-[https://www.guo.media/posts/232147](https://www.guo.media/posts/232147) `2019-09-08T14:40:40`
-##
-
-**milesguo** 9月8号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？文贵在20分钟内报平安直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/232143](https://www.guo.media/posts/232143) `2019-09-08T14:25:09`
-##
-
-**milesguo** 9月8号：通过直播看到香港人民今天在遮打花园的游行．证明了对人民好的政权和统治人民的集权获得的人性的尊重的完全不同！共产党所犯下的罪行罪恶．到了全世界要跟他算总账的时候了……二十几个小时后，美国国会将会开启历史多个立法的先例，拯救香港．美国人与香港人将坚定地站在一起！让香港真正的成为一个港人治港，依法治港的香港特别时代！一切都是刚刚开始！
-
-[https://www.guo.media/posts/232082](https://www.guo.media/posts/232082) `2019-09-08T07:40:10`
-##
-
-**milesguo** 【关注香港】中国时间9月8日下午2点23分美国驻港大使馆附近现场图片（防暴警察堵住前往使馆的道路不知道什么原因）【GM22】
-
-[https://www.guo.media/posts/232067](https://www.guo.media/posts/232067) `2019-09-08T06:40:10`
-##
-
-**milesguo** 【关注香港】9月8日: 香港人权民主法案问答📣📣
-
-[https://www.guo.media/posts/232020](https://www.guo.media/posts/232020) `2019-09-08T03:40:09`
-##
-
-**milesguo** 【关注香港】9月8日，历史总是惊人的相似！<br>香港黑警与当年纳粹已经没有任何区别！折磨民众残害民众！历史总在重演，只有法治民主才能阻挡住人性的恶！只有灭掉共产党才能让全世界和平！【GM08】
-
-[https://www.guo.media/posts/232018](https://www.guo.media/posts/232018) `2019-09-08T03:25:09`
-##
-
-**milesguo** 【关注香港】香港同胞9月8日人权与民主祈祷会路线及时间线🙏🙏🙏<br>【GM02】
-
-[https://www.guo.media/posts/231982](https://www.guo.media/posts/231982) `2019-09-07T23:55:09`
-##
-
-**milesguo** 【关注香港】The 9th Citizens ‘ Press Conference 
-
-[https://www.guo.media/posts/231970](https://www.guo.media/posts/231970) `2019-09-07T22:40:10`
-##
-
-**milesguo** 【关注香港】9月7日: 香港同胞英文图片传播CCP镇压和平游行真相<br>#english Timeline of the entire movement until the end of August<br>【GM02】
-
-[https://www.guo.media/posts/231951](https://www.guo.media/posts/231951) `2019-09-07T19:25:09`
-##
-
-**milesguo** 【关注香港】9月7日: 香港同胞英语图片宣传林郑月娥你太晚了！你们已经造成了这么大的伤害！五项诉求缺一不可！【GM02】
-
-[https://www.guo.media/posts/231950](https://www.guo.media/posts/231950) `2019-09-07T19:10:10`
-##
-
-**milesguo** 9月7日郭文贵先生直播：关注香港被抓、被自杀的年轻人！北京下达死命令：不允许超过100人集会！美国将通过一系列法案支持香港人民！
-
-[https://www.guo.media/posts/231912](https://www.guo.media/posts/231912) `2019-09-07T16:25:10`
-##
-
-**milesguo** 【关注香港】香港人会在9月8日前往美国驻港澳领事馆游行📣📣📣<br>
-
-[https://www.guo.media/posts/231910](https://www.guo.media/posts/231910) `2019-09-07T15:55:10`
 ##
 
