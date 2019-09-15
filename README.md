@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年9月15日郭文贵先生直播：香港已成为恐惧之港，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！<br>9/15/2019<br>Mr. Guo Wengui's live broadcast: Hong Kong has become a port of terror. The duel between good and evil has begun (the light that is the US versus the CCP's darkness). We are currently focusing upon spreading the truth about the crisis in Hong Kong.
+
+[https://www.guo.media/posts/233730](https://www.guo.media/posts/233730) `2019-09-15T16:40:09`
+##
+
 **milesguo** 9月15日：尊敬的战友们好：文贵将在半小时内直播报平安！一切都是刚刚开始！
 
 [https://www.guo.media/posts/233715](https://www.guo.media/posts/233715) `2019-09-15T14:10:09`
