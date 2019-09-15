@@ -13,6 +13,8 @@
 
 ## 頁面 18/19 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
+
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
 
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
@@ -60,8 +62,6 @@
 [郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
 
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
-
-[郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)
 
 
 ## 頁面 18/19 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
