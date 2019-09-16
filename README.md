@@ -172,13 +172,3 @@
 [https://www.guo.media/posts/232802](https://www.guo.media/posts/232802) `2019-09-11T13:25:10`
 ##
 
-**milesguo** 【关注香港】9月10日：香港同胞决定在911停止抗议以纪念美国911的恐怖袭击事件 【GM02】
-
-[https://www.guo.media/posts/232603](https://www.guo.media/posts/232603) `2019-09-10T18:10:10`
-##
-
-**milesguo** 【关注香港】9月10日，今晚世界杯外围赛，香港vs伊朗。港人在球场齐声高唱《我愿荣光归香港》，这是“光复香港，时代革命”的歌声，排山倒海般的声浪诉说着港人反抗中共暴政的决心！雄浑的歌声在球场上空久久回荡！【GM30】
-
-[https://www.guo.media/posts/232594](https://www.guo.media/posts/232594) `2019-09-10T16:55:09`
-##
-
