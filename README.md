@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月16日: 没有什么可以阻止香港人✊✊✊
+
+[https://www.guo.media/posts/233983](https://www.guo.media/posts/233983) `2019-09-16T19:55:09`
+##
+
 **milesguo** 9月16日 【短片】帝國的毀滅     Downfall<br><br>（翻譯自香港戰友視頻）【GM57】
 
 [https://www.guo.media/posts/233944](https://www.guo.media/posts/233944) `2019-09-16T16:40:10`
