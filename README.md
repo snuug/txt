@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年9月17日郭文贵先生直播：马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动
+
+[https://www.guo.media/posts/234209](https://www.guo.media/posts/234209) `2019-09-17T15:55:09`
+##
+
 **milesguo** 9月17日：尊敬的战友好！一小时内文贵保平安直播！
 
 [https://www.guo.media/posts/234189](https://www.guo.media/posts/234189) `2019-09-17T13:10:10`
