@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月17日：尊敬的战友好！一小时内文贵保平安直播！
+
+[https://www.guo.media/posts/234189](https://www.guo.media/posts/234189) `2019-09-17T13:10:10`
+##
+
 **milesguo** 【关注香港】9月17日: 香港同胞制作的自6月9日以来的每天发生的事件宣传海报！<br>请战友们传播📣📣📣📣<br>看看中共外交部的厚颜无耻掩盖真相，多么无耻！【GM08】【GM22】
 
 [https://www.guo.media/posts/234147](https://www.guo.media/posts/234147) `2019-09-17T10:25:09`
