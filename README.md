@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】Five reasons why the people of Hong Kong are still FURIOUS<br> 3-5 【GM02】<br>✊✊✊✊✊
+
+[https://www.guo.media/posts/234277](https://www.guo.media/posts/234277) `2019-09-17T23:55:10`
+##
+
+**milesguo** 【关注香港】Five reasons why the people of Hong Kong are still FURIOUS<br> 1-3. 【GM02】<br>✊✊✊✊✊
+
+[https://www.guo.media/posts/234276](https://www.guo.media/posts/234276) `2019-09-17T23:55:13`
+##
+
 **milesguo** 2019年9月17日郭文贵先生直播：马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动
 
 [https://www.guo.media/posts/234209](https://www.guo.media/posts/234209) `2019-09-17T15:55:09`
