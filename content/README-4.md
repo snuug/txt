@@ -13,6 +13,10 @@
 
 ## 頁面 4/19 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [19](/content/README-19.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/2019/06/20190611-3204594728389036788.md)
+
+[文字版：2019年6月8日文貴直播](/content/2019/06/20190608-7050696263727200895.md)
+
 [文字版：2019年6月7日 香港的事真搞大了 ](/content/2019/06/20190608-7273432154872200395.md)
 
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/content/2019/06/20190606-5836717562215401221.md)
@@ -58,10 +62,6 @@
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190507-3556468867911732041.md)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
-
-[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
-
-[文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/content/2019/05/20190503-4410540874074802687.md)
 
 
 ## 頁面 4/19 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [19](/content/README-19.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
