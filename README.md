@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月18日：天助我们灭共……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
+
+[https://www.guo.media/posts/234432](https://www.guo.media/posts/234432) `2019-09-18T19:40:09`
+##
+
 **milesguo** 9月18号尊敬的战友们好．这一切的背后真相是什么！！一切都是刚刚开始！
 
 [https://www.guo.media/posts/234375](https://www.guo.media/posts/234375) `2019-09-18T11:40:09`
