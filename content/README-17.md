@@ -13,6 +13,8 @@
 
 ## 頁面 17/19 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
+
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
 
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
@@ -60,8 +62,6 @@
 [美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
 
 [美国新闻关于郭先生的报道的收集](/content/2018/04/20180418-2688604786049331221.md)
-
-[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/2018/04/20180418-5215268758560370583.md)
 
 
 ## 頁面 17/19 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
