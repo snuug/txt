@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月18号尊敬的战友们好．这一切的背后真相是什么！！一切都是刚刚开始！
+
+[https://www.guo.media/posts/234375](https://www.guo.media/posts/234375) `2019-09-18T11:40:09`
+##
+
 **milesguo** 【关注香港】9月18号香港游行海报<br>【GM22】
 
 [https://www.guo.media/posts/234342](https://www.guo.media/posts/234342) `2019-09-18T07:25:10`
@@ -195,30 +200,5 @@
 **milesguo** 2019年9月13日 ：<br>法治基金每周捐款留言精选集  <br>Weekly Rule of Law Foundation donor’s messages collection <br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors！
 
 [https://www.guo.media/posts/233299](https://www.guo.media/posts/233299) `2019-09-15T12:10:50`
-##
-
-**milesguo** 【关注香港】9月13日中秋，今天！抗争日程9.13中秋夜香港之路燃亮狮子山，现在是香港开埠200年来在最危难的时刻，也是香港摆脱共产党枷锁桎梏的一飞冲天的时刻，东方之珠的子民们即当代香港青年，在中秋夜狮子山对横亘古今之明月发大心愿作狮子吼“光复、革命”！这明月之辉光一样沐浴在我们所以战友及其全球华人身上，让我们一作狮子吼“光复香港、时代革命”！【GM11】
-
-[https://www.guo.media/posts/233250](https://www.guo.media/posts/233250) `2019-09-15T12:10:52`
-##
-
-**milesguo** 9月12日：尊敬的战友们谁知道这个视频的出处……万分感谢……
-
-[https://www.guo.media/posts/233170](https://www.guo.media/posts/233170) `2019-09-15T12:10:55`
-##
-
-**milesguo** 【关注香港】Fool us once, shame on you; fool us twice, shame on me!! CCP你们的大忽悠休想再得逞！【GM02】
-
-[https://www.guo.media/posts/233142](https://www.guo.media/posts/233142) `2019-09-15T12:10:57`
-##
-
-**milesguo** 9月12号：很多战友发私信希望我吃饭直播一下……非常抱歉……由于船上有其他人和马上有很多会要开……我只能录个短的视频……过两天再直播吃饭，万分抱歉……🙏🙏🙏😻😻😻✊✊✊一切都是刚刚开始！
-
-[https://www.guo.media/posts/233082](https://www.guo.media/posts/233082) `2019-09-15T12:10:59`
-##
-
-**milesguo** 9月12号：尊敬的战友们好！你们健身了吗？你们传播香港危机的真相了吗？过去两天的香港黑警行动的减少……将是香港重大危机爆发开始……请香港朋友们要了解共产党的＂涵养杀术＂务必小心！！！！！一切都是刚刚开始！
-
-[https://www.guo.media/posts/233081](https://www.guo.media/posts/233081) `2019-09-15T12:11:02`
 ##
 
