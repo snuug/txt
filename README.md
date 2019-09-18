@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【警惕】ccp正在不顾一切的摧毁世界文明！<br>1.中共通过联想、小米、华为、中兴、oppo手机来监控你的个人信息！<br>2.中共通过微博、微信、QQ来监控你的社交信息<br>3.中共通过阿里巴巴、京东、天猫来监控你的购物信息<br>4.中共通过汇丰银行、工商银行、中国银行、建设银行来操控你的资金<br>中共对人的监控无处不在！抵制中共！【GM08】
+
+[https://www.guo.media/posts/234281](https://www.guo.media/posts/234281) `2019-09-18T00:25:09`
+##
+
 **milesguo** 【关注香港】Five reasons why the people of Hong Kong are still FURIOUS<br> 3-5 【GM02】<br>✊✊✊✊✊
 
 [https://www.guo.media/posts/234277](https://www.guo.media/posts/234277) `2019-09-17T23:55:10`
