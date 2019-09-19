@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月19日，千万公民，创造奇迹！九月二十九日，全球反共抗极权大游行！<br>【GM01】<br>#929GlobalAntiChinaziMarch
+
+[https://www.guo.media/posts/234480](https://www.guo.media/posts/234480) `2019-09-19T01:10:09`
+##
+
 **milesguo** 9月18日：天助我们灭共……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏
 
 [https://www.guo.media/posts/234432](https://www.guo.media/posts/234432) `2019-09-18T19:40:09`
