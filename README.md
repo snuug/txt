@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月20号：尊敬的战友们好！纽约苹果店开业啦……直播的战友应该换苹果新的11手机了，一切都是刚刚开始！
+
+[https://www.guo.media/posts/234794](https://www.guo.media/posts/234794) `2019-09-20T13:55:09`
+##
+
 **milesguo** 2019年9月19日 ：<br>法治基金每周捐款留言精选集  <br>Weekly Rule of Law Foundation donor’s messages collection <br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors！
 
 [https://www.guo.media/posts/234707](https://www.guo.media/posts/234707) `2019-09-20T01:40:10`
