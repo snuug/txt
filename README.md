@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【中文字幕】9月20 日：川普跟莫里森记者会谈中美贸易：<br><br>1⃣ 中国农产品采购足够达成贸易协议吗？不够！我们要的是全面协议，不是部分协议，我们需要大交易！<br>2⃣ 中国正经历最糟糕经济，57年最差。它只会更差！<br>3⃣ 中国由于贬值货币正吞噬关税，但这不会发生在其他国家。中国是中国！<br>4⃣ 我和习主席关系无以伦比，目前有点瑕疵<br>5⃣ 我们经济很棒，削减管制，也有效抑制了石油攻击导致的价格上涨<br>【GM49】
+
+[https://www.guo.media/posts/234848](https://www.guo.media/posts/234848) `2019-09-20T22:25:10`
+##
+
 **milesguo** 2019年9月20日郭文贵先生直播：感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！9/20/2019Mr. Guo Wengui's live broadcast: I appreciate your concern, brothers-in-arms, as I hadn't broadcast live for a few days. The most trying times for the people of Hong Kong will come after October. Please take extra precautions!
 
 [https://www.guo.media/posts/234832](https://www.guo.media/posts/234832) `2019-09-20T18:10:09`
