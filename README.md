@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年9月19日 ：<br>法治基金每周捐款留言精选集  <br>Weekly Rule of Law Foundation donor’s messages collection <br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors！
+
+[https://www.guo.media/posts/234707](https://www.guo.media/posts/234707) `2019-09-20T01:40:10`
+##
+
+**milesguo** 2019年9月19日 <br>法治社会每周捐款留言精选集 <br>weekly Rule of Law Society donor’s messages collection <br><br>法治社会团队衷心感谢所有的捐款者和支持者！The Rule of Law Society team heartully thanks all of our supporters and donors!
+
+[https://www.guo.media/posts/234706](https://www.guo.media/posts/234706) `2019-09-20T01:40:12`
+##
+
 **milesguo** 【关注香港】9月19日，千万公民，创造奇迹！九月二十九日，全球反共抗极权大游行！<br>【GM01】<br>#929GlobalAntiChinaziMarch
 
 [https://www.guo.media/posts/234480](https://www.guo.media/posts/234480) `2019-09-19T01:10:09`
