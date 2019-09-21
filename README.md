@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月21日：新疆集中营的真相视频……和香港反送中运动的真相……都证明了共产党是个万恶的恐怖集团……天不灭共．天理不容……全人类都将无法拥有未来和安全，一切都是刚刚开始！
+
+[https://www.guo.media/posts/235012](https://www.guo.media/posts/235012) `2019-09-21T14:25:10`
+##
+
 **milesguo** 【观点】<br><br>Seventy Years Too Many<br><br>七十年的磨难<br><br>【中英双语对照版】【GM04】<br><br>[https://spark.adobe.com/page/1bknZWGJSP92Q/](https://spark.adobe.com/page/1bknZWGJSP92Q/ "https://spark.adobe.com/page/1bknZWGJSP92Q/")
 
 [https://www.guo.media/posts/234991](https://www.guo.media/posts/234991) `2019-09-21T13:40:10`
