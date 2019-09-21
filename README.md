@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】”I never know what might happy next” — Woman arrested on August 31 【GM02】
+
+[https://www.guo.media/posts/234941](https://www.guo.media/posts/234941) `2019-09-21T07:40:10`
+##
+
 **milesguo** 【关注香港】9月21日：男儿膝下有黄金，能让他如此虔诚下跪的，只有一颗爱港的赤子之心！解决矛盾最好的方法，不是仇恨，而是爱！港人诉求抗争越挫越勇，是爱让他们团结一心，是爱让他们无惧死亡！<br>为爱而生，为爱而死！唯有忘我之人，才能拥有这么强大的力量！ CCP永远都不懂这个道理，它们总以为强权可以压制一切！这世间最美好的，却是CCP最害怕的！【GM30】
 
 [https://www.guo.media/posts/234881](https://www.guo.media/posts/234881) `2019-09-21T01:40:09`
