@@ -172,28 +172,3 @@
 [https://www.guo.media/posts/233915](https://www.guo.media/posts/233915) `2019-09-16T14:25:09`
 ##
 
-**milesguo** 【关注香港】9月15日: 香港同胞9月19日税局升级行动！以及接下去的抗议规划✊✊✊五项诉求缺一不可！<br>【GM92】
-
-[https://www.guo.media/posts/233834](https://www.guo.media/posts/233834) `2019-09-16T06:10:09`
-##
-
-**milesguo** 【关注香港】香港返送中抗争100日，过去的这100天当中香港人的团结，勇气，勇敢，坚韧得到了国际社会的认可，得到了世界的支持，五大诉求，缺一不可，香港人，加油！【GM06】
-
-[https://www.guo.media/posts/233752](https://www.guo.media/posts/233752) `2019-09-15T22:10:09`
-##
-
-**milesguo** 【关注香港】9月15日: CCP黑警没有灵魂没有道德没有底线，就是一群被CCP喂了人尸丸的行尸走肉！！只有灭了CCP，我们才会有平安幸福！<br>【GM33】【GM46】
-
-[https://www.guo.media/posts/233744](https://www.guo.media/posts/233744) `2019-09-15T20:10:09`
-##
-
-**milesguo** 2019年9月15日郭文贵先生直播：香港已成为恐惧之港，现在已是黑白对决（美国的白对CCP的黑）！我们目前以传播香港危机真相为核心！<br>9/15/2019<br>Mr. Guo Wengui's live broadcast: Hong Kong has become a port of terror. The duel between good and evil has begun (the light that is the US versus the CCP's darkness). We are currently focusing upon spreading the truth about the crisis in Hong Kong.
-
-[https://www.guo.media/posts/233730](https://www.guo.media/posts/233730) `2019-09-15T16:40:09`
-##
-
-**milesguo** 9月15日：尊敬的战友们好：文贵将在半小时内直播报平安！一切都是刚刚开始！
-
-[https://www.guo.media/posts/233715](https://www.guo.media/posts/233715) `2019-09-15T14:10:09`
-##
-
