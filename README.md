@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月22日: 战友们宣传出去，香港同胞2月29日行动计划📣📣📣📣📣全球反极权游行！
+
+[https://www.guo.media/posts/235514](https://www.guo.media/posts/235514) `2019-09-22T23:40:10`
+##
+
 **milesguo** 【关注香港】9月22日: 预报香港同胞将会在9月27日声援被捕女性<br>【GM02】
 
 [https://www.guo.media/posts/235504](https://www.guo.media/posts/235504) `2019-09-22T22:40:10`
