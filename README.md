@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月22日: 预报香港同胞将会在9月27日声援被捕女性<br>【GM02】
+
+[https://www.guo.media/posts/235504](https://www.guo.media/posts/235504) `2019-09-22T22:40:10`
+##
+
 **milesguo** 9月22日: 【香港同胞制图】<br>中共篡政70年，杀人如麻民不聊生！【GM02】
 
 [https://www.guo.media/posts/235501](https://www.guo.media/posts/235501) `2019-09-22T22:25:10`
