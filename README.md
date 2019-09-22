@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月22日海报 【GM22】
+
+[https://www.guo.media/posts/235205](https://www.guo.media/posts/235205) `2019-09-22T04:55:10`
+##
+
 **milesguo** HK Sep 21: Violation of International Humanitarian Law 【GM02】
 
 [https://www.guo.media/posts/235070](https://www.guo.media/posts/235070) `2019-09-21T22:10:10`
