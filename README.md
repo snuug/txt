@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** HK Sep 22: <br>DEFEND UNIVERSAL VALUE<br>STOP THE RISE OF CHINAZI 【GM02】
+
+[https://www.guo.media/posts/235498](https://www.guo.media/posts/235498) `2019-09-22T22:10:09`
+##
+
 **milesguo** 【关注香港】黑警假扮示威者，出动“间谍”混淆视听<br>香港9月22日23时许，在屯门、太子等地发现多名示威者着装的黑警。图1为23时40分，屯门疑似黑警装扮的示威者走出警署；图2为23时52分太子弥敦道疑似女警乔装的示威者遭记者包围追访，其有警棍但无委任证；图3为23时53分，太子弥敦道疑似黑警乔装的示威者登上私家车遭记者包围追访.邪恶始终见不了光，CCP的底裤掉满香港大街。【GM02】【GM32】
 
 [https://www.guo.media/posts/235494](https://www.guo.media/posts/235494) `2019-09-22T21:55:10`
