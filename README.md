@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 
+
+[https://www.guo.media/posts/235488](https://www.guo.media/posts/235488) `2019-09-22T21:25:13`
+##
+
 **milesguo** 9月22号：尊敬的战友们好！衷心感谢这么多战友的关心，担心……以及给我发来的问候的私信．文贵无法一一回复，将在半小时内直播报平安！一切都是刚刚开始！
 
 [https://www.guo.media/posts/235382](https://www.guo.media/posts/235382) `2019-09-22T14:10:11`
