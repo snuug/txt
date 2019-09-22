@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月22日: 【香港同胞制图】<br>中共篡政70年，杀人如麻民不聊生！【GM02】
+
+[https://www.guo.media/posts/235501](https://www.guo.media/posts/235501) `2019-09-22T22:25:10`
+##
+
 **milesguo** HK Sep 22: <br>DEFEND UNIVERSAL VALUE<br>STOP THE RISE OF CHINAZI 【GM02】
 
 [https://www.guo.media/posts/235498](https://www.guo.media/posts/235498) `2019-09-22T22:10:09`
