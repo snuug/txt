@@ -187,33 +187,3 @@
 [https://www.guo.media/posts/234375](https://www.guo.media/posts/234375) `2019-09-18T11:40:09`
 ##
 
-**milesguo** 【关注香港】9月18号香港游行海报<br>【GM22】
-
-[https://www.guo.media/posts/234342](https://www.guo.media/posts/234342) `2019-09-18T07:25:10`
-##
-
-**milesguo** 【警惕】ccp正在不顾一切的摧毁世界文明！<br>1.中共通过联想、小米、华为、中兴、oppo手机来监控你的个人信息！<br>2.中共通过微博、微信、QQ来监控你的社交信息<br>3.中共通过阿里巴巴、京东、天猫来监控你的购物信息<br>4.中共通过汇丰银行、工商银行、中国银行、建设银行来操控你的资金<br>中共对人的监控无处不在！抵制中共！【GM08】
-
-[https://www.guo.media/posts/234281](https://www.guo.media/posts/234281) `2019-09-18T00:25:09`
-##
-
-**milesguo** 【关注香港】Five reasons why the people of Hong Kong are still FURIOUS<br> 3-5 【GM02】<br>✊✊✊✊✊
-
-[https://www.guo.media/posts/234277](https://www.guo.media/posts/234277) `2019-09-17T23:55:10`
-##
-
-**milesguo** 【关注香港】Five reasons why the people of Hong Kong are still FURIOUS<br> 1-3. 【GM02】<br>✊✊✊✊✊
-
-[https://www.guo.media/posts/234276](https://www.guo.media/posts/234276) `2019-09-17T23:55:13`
-##
-
-**milesguo** 2019年9月17日郭文贵先生直播：马云儒学也得肛门癌，还有大佬会出事，体制内战友要安全的支持爆料革命，香港人要时刻提防CCP灭绝人性的行动
-
-[https://www.guo.media/posts/234209](https://www.guo.media/posts/234209) `2019-09-17T15:55:09`
-##
-
-**milesguo** 9月17日：尊敬的战友好！一小时内文贵保平安直播！
-
-[https://www.guo.media/posts/234189](https://www.guo.media/posts/234189) `2019-09-17T13:10:10`
-##
-
