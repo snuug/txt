@@ -13,6 +13,8 @@
 
 ## 頁面 11/19 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [19](/content/README-19.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/2018/07/20180722-7878722502564769859.md)
+
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/2018/07/20180719-6182147046946865202.md)
 
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
@@ -60,8 +62,6 @@
 [文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
 
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
-
-[文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
 
 
 ## 頁面 11/19 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [19](/content/README-19.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
