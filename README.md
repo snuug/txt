@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月24日 <br><br>一条战友的信息，<br>一段文贵的深夜心声.....<br><br>【GM50】
+
+[https://www.guo.media/posts/235859](https://www.guo.media/posts/235859) `2019-09-24T09:25:09`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/235803](https://www.guo.media/posts/235803) `2019-09-24T02:10:13`
