@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 
+
+[https://www.guo.media/posts/235803](https://www.guo.media/posts/235803) `2019-09-24T02:10:13`
+##
+
 **milesguo** 【关注香港】香港文宣又出新海报让人触目惊心，言简意赅地呈现出CCP政权镇压贫民抗议的一个个丑陋行径：任何人都可以以任何原因被捕和被杀！面对这样一个邪恶的政权，香港人民坚决抗争到底的精神是世界人民争取自由民主法治的好榜样。【GM10】<br>【GM02】
 
 [https://www.guo.media/posts/235795](https://www.guo.media/posts/235795) `2019-09-24T01:55:09`
