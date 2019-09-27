@@ -12,6 +12,51 @@
 ## 最新郭文
 
 
+**milesguo** 9.27 Stand Up for Victims at Hong Kong San Uk Ling Torture Camp
+
+[https://www.guo.media/posts/236632](https://www.guo.media/posts/236632) `2019-09-27T08:52:29`
+##
+
+**milesguo** Sep 26: Stand With Hong Kong
+
+[https://www.guo.media/posts/236631](https://www.guo.media/posts/236631) `2019-09-27T08:52:32`
+##
+
+**milesguo** 2019年9月26日郭先生教我们怎样做金枪鱼美食。
+
+[https://www.guo.media/posts/236578](https://www.guo.media/posts/236578) `2019-09-27T08:52:35`
+##
+
+**milesguo** 9月26号：文贵向大家分享美食，国内准备睡觉的战友切勿打开。我们不仅仅能吃五花猪肉．也能吃盗国贼，无法在特供里吃到真正的纯天然特级美食，不是有钱，有权就懂得如何享受．能吃到最真正的上等石材……更需要一个人对世界的真正认知．对生活真正的感悟才可以……一切都是刚刚开始！
+
+[https://www.guo.media/posts/236572](https://www.guo.media/posts/236572) `2019-09-27T08:52:37`
+##
+
+**milesguo** 9月26号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？这些为午餐准备的食材，真希望能与战友们分享！带到我们喜马拉雅农场时．我们在共同享受吧！一切都是刚刚开始！
+
+[https://www.guo.media/posts/236556](https://www.guo.media/posts/236556) `2019-09-27T08:52:40`
+##
+
+**milesguo** 9月25号：由于昨天的江路郭直播节目得到了投资战友们的高度认可，有战友赚了大钱！文贵也开始享受特供的<br>待遇啦，这感觉也是虽然很美好，但是文贵却不能够接受任何人的礼物……我会将特供礼物本钱寄给你们🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都是刚刚开始！
+
+[https://www.guo.media/posts/236397](https://www.guo.media/posts/236397) `2019-09-27T08:52:43`
+##
+
+**milesguo** 【中文字幕】9月25日:众议院少数党领袖凯文麦卡瑟今晨对佩洛西就弹劾总统一事表达严重不满。他说：我担心这种做法对美国社会有什么影响，向世界展示了什么？佩洛西的作为改变了国会应有的角色，本该是立法和法治机构，却在毫无事实依据下指责总统违法。她今天欠美国一个道歉，她是否应该继续她的工作都是问题！
+
+[https://www.guo.media/posts/236327](https://www.guo.media/posts/236327) `2019-09-27T08:52:47`
+##
+
+**milesguo** 【香港新闻】9月25号美国参议院外交关系委员会同意受理《香港人权和民主法案》<br>9月25号, 正在美国国会推动的《香港人权和民主法案》有最新进展！刚刚，美国国会参议院外交关系委员会开会讨论，通过受理《香港人权和民主法案》。该法案接下来提交众议院讨论和集体投票表决，通过后交由参议院讨论，通过后由川普总统签署，才能正式成为法例。佛罗里达参议院马克.卢比奥是这项法案的发起人。这项名为“S. 1838: Hong Kong Human Rights and Democracy Act of 2019”法案，是作为1992年“香港政策法”修正案。重申美国在香港自治权受到攻击的时候，将维护香港自由和民主的历史承诺，同时也会对那些压制香港基本自由的香港和中国内地的政府官员采取惩罚措施。【GM12】<br>消息来源参议院马克.卢比奥官方推文<br>[https://twitter.com/senrubiopress/status/1176957132295548929?s=12](https://twitter.com/senrubiopress/status/1176957132295548929?s=12 "https://twitter.com/senrubiopress/status/1176957132295548929?s=12")
+
+[https://www.guo.media/posts/236326](https://www.guo.media/posts/236326) `2019-09-27T08:52:50`
+##
+
+**milesguo** 【中文字幕】9月24 日：在佩洛西发布弹劾询问几分钟后，川普竞选释放了该视频。<br><br>川普：是时候停止这些胡言乱语了。那个人说，弹劾是唯一能够在2020总统竞选击败川普的方式。这是一种恭维吧，我猜。<br><br>而事实上，作用是相反的。因为现在我们有历史上最好的民意测验。民主党人太疯狂了！<br><br>当民主党人的唯一目标是攻击川普，川普总统正在为你而战！<br><br>天佑川普总统！【GM49】
+
+[https://www.guo.media/posts/236096](https://www.guo.media/posts/236096) `2019-09-27T08:53:06`
+##
+
 **milesguo** 2019年9月24日郭文贵先生报平安直播；红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖。<br>9/24/2019 Mr. Guo Wengui's live broadcast: Braised pork may be tasty, but the CCP offers it's people swine fever pork. After the military parade, good-looking young men and women will be assigned to serve leaders based on those leaders' rank. The women  will become mistresses while the men will become bodyguards for the leaders' wives.
 
 [https://www.guo.media/posts/236035](https://www.guo.media/posts/236035) `2019-09-24T20:55:09`
@@ -135,70 +180,5 @@
 **milesguo** 【观点】<br><br>Seventy Years Too Many<br><br>七十年的磨难<br><br>【中英双语对照版】【GM04】<br><br>[https://spark.adobe.com/page/1bknZWGJSP92Q/](https://spark.adobe.com/page/1bknZWGJSP92Q/ "https://spark.adobe.com/page/1bknZWGJSP92Q/")
 
 [https://www.guo.media/posts/234991](https://www.guo.media/posts/234991) `2019-09-21T13:40:10`
-##
-
-**milesguo** 【关注香港】9月21日，为了迎接929“抗中共、反纳粹全球集会“，香港抗议的年轻人又出新创意。他们通过社交媒体传递手工制作精美的和平鸽的教程，激励全民动起手来，为迎接929大集会做准备。<br>几个月来香港反送中运动不仅让世界看到了香港同胞的坚韧不屈、永不妥协的宝贵精神，多才多艺的香港年轻人在抗议活动中展示的各种创意也让世人耳目一新。从“连侬墙“，到“香港之光“手拖手人链，到“荣光归香港“歌声响彻香港，无不展现了香港人民的团结，和追求自由的决心。让残酷的抗争充满了无限浪漫的气息。预祝香港929集会取得巨大的胜利，让和平鸽在香港、中国大陆以及世界各地自由飞翔—-前提就是必须要灭掉邪恶的CCP！香港同胞加油！【GM10】
-
-[https://www.guo.media/posts/234960](https://www.guo.media/posts/234960) `2019-09-21T10:10:10`
-##
-
-**milesguo** 【关注香港】9月21日：卖港妖魔，任人踩踏！西铁朗屏站行人天桥地上，贴满何妖肖像，柱上亦有其相片，来往的人群随意踩踏！此等卖港求荣之贼，港人恨之入骨，今日照片满地遭人践踏，未来必定遗臭万年全民唾骂！【GM30】
-
-[https://www.guo.media/posts/234951](https://www.guo.media/posts/234951) `2019-09-21T09:10:09`
-##
-
-**milesguo** 【关注香港】9月21日香港海报 【GM22】
-
-[https://www.guo.media/posts/234947](https://www.guo.media/posts/234947) `2019-09-21T08:55:10`
-##
-
-**milesguo** 【关注香港】”I never know what might happy next” — Woman arrested on August 31 【GM02】
-
-[https://www.guo.media/posts/234941](https://www.guo.media/posts/234941) `2019-09-21T07:40:10`
-##
-
-**milesguo** 【关注香港】9月21日：男儿膝下有黄金，能让他如此虔诚下跪的，只有一颗爱港的赤子之心！解决矛盾最好的方法，不是仇恨，而是爱！港人诉求抗争越挫越勇，是爱让他们团结一心，是爱让他们无惧死亡！<br>为爱而生，为爱而死！唯有忘我之人，才能拥有这么强大的力量！ CCP永远都不懂这个道理，它们总以为强权可以压制一切！这世间最美好的，却是CCP最害怕的！【GM30】
-
-[https://www.guo.media/posts/234881](https://www.guo.media/posts/234881) `2019-09-21T01:40:09`
-##
-
-**milesguo** 【中文字幕】9月20 日：彭培奥：当伊朗外长威胁发动全面战争，美国却进行旨在成就和平的联盟。美国明确伊朗是炸毁沙特油田的祸首。今日决定向中东派兵，旨在防御。美国寻求和平以及促成和平协议。希望伊朗的伊斯兰共和国也同样如此。<br>【GM49】
-
-[https://www.guo.media/posts/234877](https://www.guo.media/posts/234877) `2019-09-21T01:10:09`
-##
-
-**milesguo** 【关注香港】9月20日:不认命是我们唯一的武器，自由和尊严一定要靠自己去争得！【GM02】
-
-[https://www.guo.media/posts/234860](https://www.guo.media/posts/234860) `2019-09-20T23:40:09`
-##
-
-**milesguo** 【中文字幕】9月20 日：川普跟莫里森记者会谈中美贸易：<br><br>1⃣ 中国农产品采购足够达成贸易协议吗？不够！我们要的是全面协议，不是部分协议，我们需要大交易！<br>2⃣ 中国正经历最糟糕经济，57年最差。它只会更差！<br>3⃣ 中国由于贬值货币正吞噬关税，但这不会发生在其他国家。中国是中国！<br>4⃣ 我和习主席关系无以伦比，目前有点瑕疵<br>5⃣ 我们经济很棒，削减管制，也有效抑制了石油攻击导致的价格上涨<br>【GM49】
-
-[https://www.guo.media/posts/234848](https://www.guo.media/posts/234848) `2019-09-20T22:25:10`
-##
-
-**milesguo** 2019年9月20日郭文贵先生直播：感谢战友们的担心，文贵为什么这两天没直播。香港最艰难时期是十月后，请香港战友加倍小心！9/20/2019Mr. Guo Wengui's live broadcast: I appreciate your concern, brothers-in-arms, as I hadn't broadcast live for a few days. The most trying times for the people of Hong Kong will come after October. Please take extra precautions!
-
-[https://www.guo.media/posts/234832](https://www.guo.media/posts/234832) `2019-09-20T18:10:09`
-##
-
-**milesguo** 9月20日：几天来文贵没有直播．很多战友们担心文贵……我这几天确实有点私人的事情无法直播……战友们的关心让文贵非常非常感动．我将在一1小时内硬撑着直播向大家报平安……【文贵先生几天没直播了，也没上传十分钟视频，非常挂念！期待小视频或直播报平安🙏🙏🙏🙏🙏🙏🙏】
-
-[https://www.guo.media/posts/234796](https://www.guo.media/posts/234796) `2019-09-20T14:10:10`
-##
-
-**milesguo** 9月20号：尊敬的战友们好！纽约苹果店开业啦……直播的战友应该换苹果新的11手机了，一切都是刚刚开始！
-
-[https://www.guo.media/posts/234794](https://www.guo.media/posts/234794) `2019-09-20T13:55:09`
-##
-
-**milesguo** 2019年9月19日 ：<br>法治基金每周捐款留言精选集  <br>Weekly Rule of Law Foundation donor’s messages collection <br><br>法治基金团队衷心感谢所有的捐款者和支持者！<br>The Rule of Law Foundation team heartfully thanks all of our supporters and donors！
-
-[https://www.guo.media/posts/234707](https://www.guo.media/posts/234707) `2019-09-20T01:40:10`
-##
-
-**milesguo** 2019年9月19日 <br>法治社会每周捐款留言精选集 <br>weekly Rule of Law Society donor’s messages collection <br><br>法治社会团队衷心感谢所有的捐款者和支持者！The Rule of Law Society team heartully thanks all of our supporters and donors!
-
-[https://www.guo.media/posts/234706](https://www.guo.media/posts/234706) `2019-09-20T01:40:12`
 ##
 
