@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Sep 27: END THE TYRANNY FIGHT FOR AUTONOMY<br>【GM02】
+
+[https://www.guo.media/posts/237020](https://www.guo.media/posts/237020) `2019-09-27T21:10:09`
+##
+
+**milesguo** Sep 27: Call on your government to stand with HK📣📣📣【GM02】
+
+[https://www.guo.media/posts/237018](https://www.guo.media/posts/237018) `2019-09-27T21:10:12`
+##
+
 **milesguo** 【关注香港】9月27日：看看香港同胞声援新屋岭被捕者✊✊✊
 
 [https://www.guo.media/posts/236981](https://www.guo.media/posts/236981) `2019-09-27T17:40:09`
