@@ -13,6 +13,10 @@
 
 ## 頁面 12/19 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [19](/content/README-19.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
+
+[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
+
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
 
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
@@ -58,10 +62,6 @@
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/content/2018/04/20180418-6417716069003334186.md)
 
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/content/2018/04/20180418-7188809671168778035.md)
-
-[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
-
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
 
 
 ## 頁面 12/19 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [19](/content/README-19.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

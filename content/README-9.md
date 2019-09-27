@@ -13,6 +13,10 @@
 
 ## 頁面 9/19 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [19](/content/README-19.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/2018/11/20181102-6608329269804536528.md)
+
+[文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/2018/11/20181101-6081222795262941074.md)
+
 [翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/2018/10/20181030-5728690210531220405.md)
 
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/2018/10/20181029-8202855451212977956.md)
@@ -58,10 +62,6 @@
 [文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺](/content/2018/09/20180921-2736922515347046582.md)
 
 [文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/2018/09/20180917-8550776674007589502.md)
-
-[文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/2018/09/20180916-1687313530283465166.md)
-
-[文字版：9月10号马云辞职的真正原因](/content/2018/09/20180913-8040960110830809305.md)
 
 
 ## 頁面 9/19 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [19](/content/README-19.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
