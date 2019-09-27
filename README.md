@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月27号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？香港的每时每刻都至关重要，拜托战友们一定全力以赴，传播，香港的真相！去弹劾总统事件发生后，世界的股市的行情又被文贵给蒙对了，不管怎样我都拜请战友们．千万不要做投机，赚快钱．那太危险⚠️一切都是刚刚开始！
+
+[https://www.guo.media/posts/236847](https://www.guo.media/posts/236847) `2019-09-27T10:10:10`
+##
+
 **milesguo** 9.27 Stand Up for Victims at Hong Kong San Uk Ling Torture Camp
 
 [https://www.guo.media/posts/236632](https://www.guo.media/posts/236632) `2019-09-27T08:52:29`
