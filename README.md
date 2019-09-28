@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月27号：尊敬的战友们好！明天9月28号·星期六纽约时间上午10:00．文贵将在郭媒体直播报平安！一切都是刚刚开始！
+
+[https://www.guo.media/posts/237077](https://www.guo.media/posts/237077) `2019-09-28T01:10:09`
+##
+
 **milesguo** Sep 27: END THE TYRANNY FIGHT FOR AUTONOMY<br>【GM02】
 
 [https://www.guo.media/posts/237020](https://www.guo.media/posts/237020) `2019-09-27T21:10:09`
