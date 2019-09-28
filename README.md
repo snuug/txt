@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** THE 15th CITIZENS’ PRESS CONFERENCE<br>【GM33】<br>
+
+[https://www.guo.media/posts/237309](https://www.guo.media/posts/237309) `2019-09-28T20:55:09`
+##
+
 **milesguo** 29.09.2019: SOGO CAUSEWAY BAY GLOBAL ANTI-TPOTALITARNISM MARCH
 
 [https://www.guo.media/posts/237304](https://www.guo.media/posts/237304) `2019-09-28T20:40:09`
