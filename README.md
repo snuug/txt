@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 29.09.2019: SOGO CAUSEWAY BAY GLOBAL ANTI-TPOTALITARNISM MARCH
+
+[https://www.guo.media/posts/237304](https://www.guo.media/posts/237304) `2019-09-28T20:40:09`
+##
+
 **milesguo** 2019年9月27日文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！
 
 [https://www.guo.media/posts/237245](https://www.guo.media/posts/237245) `2019-09-28T15:55:09`
