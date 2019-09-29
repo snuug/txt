@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】香港9月29日下午1点47分到54分动态<br>1347 #銅鑼灣 #東角道 警察突然衝出防線外，將一名身穿黑衣男子捉走，將其帶到防線內搜查。#有線<br><br>1352 #銅鑼灣 警民關係聯絡組人員剛與市民發生爭執及拉扯，曾揮動警棍。#now<br><br>1352 灣仔循道衛理教會 有年輕人被帶上警車 #灣仔 <br><br>1353 中銀人壽保險大廈狗車<br><br>1354 大角咀港灣豪庭轉入南昌街 2龍1eu<br>【GM02】【GM22】
+
+[https://www.guo.media/posts/237453](https://www.guo.media/posts/237453) `2019-09-29T07:40:11`
+##
+
 **milesguo** 9月28号：尊敬的战友们好！明天9月29号．星期天纽约上午时间9:00．文贵在郭媒体荣幸的将与北京姑娘聊天室．连线直播．请大家关注北京姑娘聊天室YouTube频道一切都是刚刚开始！[https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA](https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA "https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA")
 
 [https://www.guo.media/posts/237408](https://www.guo.media/posts/237408) `2019-09-29T03:25:10`
