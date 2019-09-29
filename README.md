@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Guo Wengui’s live broadcast on Sep 28: The moment of true autonomy for China is coming【GM18】<br>郭文贵先生9月28日直播精彩片段： 中国真正实现独立自治的时刻即将到来
+
+[https://www.guo.media/posts/237498](https://www.guo.media/posts/237498) `2019-09-29T10:25:09`
+##
+
 **milesguo** 【中文字幕】 9月29日译制 完整版  班农在美国著名保守派论坛菲力斯鹰的讲话 “香港同胞们 全球的正义之士都站在你们一边 中共就是纸老虎 野心很大 实力没有。”  【zuzu】【GM38】<br><br>
 
 [https://www.guo.media/posts/237491](https://www.guo.media/posts/237491) `2019-09-29T09:55:10`
