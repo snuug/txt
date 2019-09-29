@@ -147,23 +147,3 @@
 [https://www.guo.media/posts/235948](https://www.guo.media/posts/235948) `2019-09-24T14:40:10`
 ##
 
-**milesguo** 9月24日 <br><br>一条战友的信息，<br>一段文贵的深夜心声.....<br><br>【GM50】
-
-[https://www.guo.media/posts/235859](https://www.guo.media/posts/235859) `2019-09-24T09:25:09`
-##
-
-**milesguo** 
-
-[https://www.guo.media/posts/235803](https://www.guo.media/posts/235803) `2019-09-24T02:10:13`
-##
-
-**milesguo** 【关注香港】香港文宣又出新海报让人触目惊心，言简意赅地呈现出CCP政权镇压贫民抗议的一个个丑陋行径：任何人都可以以任何原因被捕和被杀！面对这样一个邪恶的政权，香港人民坚决抗争到底的精神是世界人民争取自由民主法治的好榜样。【GM10】<br>【GM02】
-
-[https://www.guo.media/posts/235795](https://www.guo.media/posts/235795) `2019-09-24T01:55:09`
-##
-
-**milesguo** 2019年9月23日 郭文贵先生与班农先生直播：中共全面实施“驭民五术”，国庆军演民不聊生。应对中共“三大战役”，美国只会打口炮么？美国武力介入香港问题的可能性有多大？
-
-[https://www.guo.media/posts/235742](https://www.guo.media/posts/235742) `2019-09-23T18:10:10`
-##
-
