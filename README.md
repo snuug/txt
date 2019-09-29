@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】9月29日：全球挺香港人民五项诉求一个不能少！全球灭共！请看看日本🇯🇵游行<br>【GM33】
+
+[https://www.guo.media/posts/237554](https://www.guo.media/posts/237554) `2019-09-29T16:40:10`
+##
+
 **milesguo** Guo Wengui’s live broadcast on Sep 28: The moment of true autonomy for China is coming【GM18】<br>郭文贵先生9月28日直播精彩片段： 中国真正实现独立自治的时刻即将到来
 
 [https://www.guo.media/posts/237498](https://www.guo.media/posts/237498) `2019-09-29T10:25:09`
