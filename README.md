@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月28号：尊敬的战友们好！明天9月29号．星期天纽约上午时间9:00．文贵在郭媒体荣幸的将与北京姑娘聊天室．连线直播．请大家关注北京姑娘聊天室YouTube频道一切都是刚刚开始！[https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA](https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA "https://www.youtube.com/channel/UCOirMCtvj9hqt2QC9GUL-LA")
+
+[https://www.guo.media/posts/237408](https://www.guo.media/posts/237408) `2019-09-29T03:25:10`
+##
+
 **milesguo** THE 15th CITIZENS’ PRESS CONFERENCE<br>【GM33】<br>
 
 [https://www.guo.media/posts/237309](https://www.guo.media/posts/237309) `2019-09-28T20:55:09`
