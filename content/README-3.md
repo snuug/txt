@@ -13,6 +13,8 @@
 
 ## 頁面 3/19 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [19](/content/README-19.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
+
 [文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
@@ -60,8 +62,6 @@
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/2019/06/20190621-2858079650750078361.md)
 
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
-
-[文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
 
 
 ## 頁面 3/19 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [19](/content/README-19.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
