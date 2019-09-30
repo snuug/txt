@@ -13,6 +13,8 @@
 
 ## 頁面 18/19 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7734893512727563056.md)
+
 [1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/2018/04/20180418-4451931649943991252.md)
 
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
@@ -60,8 +62,6 @@
 [2017年9月19日明镜专访郭文贵第六期（1）：郭文贵与刘彦平谈话录音剪掉很多“国家机密”](/content/2018/04/20180418-3702263840213416314.md)
 
 [20179年9月19日明镜专访郭文贵第六期（3）：孟建柱女儿是美国公民，掌握财产惊天](/content/2018/04/20180418-4699290349257208973.md)
-
-[2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/content/2018/04/20180418-4084377282763556.md)
 
 
 ## 頁面 18/19 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
