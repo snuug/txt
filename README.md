@@ -142,18 +142,3 @@
 [https://www.guo.media/posts/236326](https://www.guo.media/posts/236326) `2019-09-27T08:52:50`
 ##
 
-**milesguo** 【中文字幕】9月24 日：在佩洛西发布弹劾询问几分钟后，川普竞选释放了该视频。<br><br>川普：是时候停止这些胡言乱语了。那个人说，弹劾是唯一能够在2020总统竞选击败川普的方式。这是一种恭维吧，我猜。<br><br>而事实上，作用是相反的。因为现在我们有历史上最好的民意测验。民主党人太疯狂了！<br><br>当民主党人的唯一目标是攻击川普，川普总统正在为你而战！<br><br>天佑川普总统！【GM49】
-
-[https://www.guo.media/posts/236096](https://www.guo.media/posts/236096) `2019-09-27T08:53:06`
-##
-
-**milesguo** 2019年9月24日郭文贵先生报平安直播；红烧肉真香，ccp给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级別分配，美女当小三，帅哥当领导夫人保镖。<br>9/24/2019 Mr. Guo Wengui's live broadcast: Braised pork may be tasty, but the CCP offers it's people swine fever pork. After the military parade, good-looking young men and women will be assigned to serve leaders based on those leaders' rank. The women  will become mistresses while the men will become bodyguards for the leaders' wives.
-
-[https://www.guo.media/posts/236035](https://www.guo.media/posts/236035) `2019-09-24T20:55:09`
-##
-
-**milesguo** <br>9月24号：尊敬的战友们好！太多战友们的私信和关心，让文贵真是感动至极……很多战友要求今天务必视频一小段……文贵会马上调整时间．约在40分钟左右开始直播报平安……完全不爆料，纯粹与战友们乱聊……请不要影响国内战友们的休息和生活，一切都是刚刚开始！
-
-[https://www.guo.media/posts/235948](https://www.guo.media/posts/235948) `2019-09-24T14:40:10`
-##
-
