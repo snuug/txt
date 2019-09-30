@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月30日：尊敬的战友们好：文贵与班农先生中国时间10月1日上午8点⋯纽约9月30日下午8点……连线北京天安门现场及各地战友，香港抗议现场、解读即时国际重大事件，揭露中共疯狂的十一国庆真相及目的！<br><br>切记不要搞错时间：<br>美东时间9月30日晚8点（中国大陆时间10月1日早8点）开始，连续直播12个小时！敬请战友们关注郭媒体直播，避免您的直播频道被关闭请不要转播！！！
+
+[https://www.guo.media/posts/237854](https://www.guo.media/posts/237854) `2019-09-30T16:25:09`
+##
+
 **milesguo** What happened on September 29 at Hong Kong?<br>God is watching 🙏🙏🙏
 
 [https://www.guo.media/posts/237645](https://www.guo.media/posts/237645) `2019-09-30T01:40:09`
