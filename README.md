@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** What happened on September 29 at Hong Kong?<br>God is watching 🙏🙏🙏
+
+[https://www.guo.media/posts/237645](https://www.guo.media/posts/237645) `2019-09-30T01:40:09`
+##
+
 **milesguo** 【关注香港】9月29日：全球挺香港人民五项诉求一个不能少！全球灭共！请看看日本🇯🇵游行<br>【GM33】
 
 [https://www.guo.media/posts/237554](https://www.guo.media/posts/237554) `2019-09-29T16:40:10`
