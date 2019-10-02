@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月2日：MIZ   是啥意思吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/238367](https://www.guo.media/posts/238367) `2019-10-02T11:25:10`
+##
+
 **milesguo** 10月2号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/238351](https://www.guo.media/posts/238351) `2019-10-02T10:40:10`
