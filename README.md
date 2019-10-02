@@ -112,33 +112,3 @@
 [https://www.guo.media/posts/236958](https://www.guo.media/posts/236958) `2019-09-27T16:10:09`
 ##
 
-**milesguo** 9月27号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？香港的每时每刻都至关重要，拜托战友们一定全力以赴，传播，香港的真相！去弹劾总统事件发生后，世界的股市的行情又被文贵给蒙对了，不管怎样我都拜请战友们．千万不要做投机，赚快钱．那太危险⚠️一切都是刚刚开始！
-
-[https://www.guo.media/posts/236847](https://www.guo.media/posts/236847) `2019-09-27T10:10:10`
-##
-
-**milesguo** 9.27 Stand Up for Victims at Hong Kong San Uk Ling Torture Camp
-
-[https://www.guo.media/posts/236632](https://www.guo.media/posts/236632) `2019-09-27T08:52:29`
-##
-
-**milesguo** Sep 26: Stand With Hong Kong
-
-[https://www.guo.media/posts/236631](https://www.guo.media/posts/236631) `2019-09-27T08:52:32`
-##
-
-**milesguo** 2019年9月26日郭先生教我们怎样做金枪鱼美食。
-
-[https://www.guo.media/posts/236578](https://www.guo.media/posts/236578) `2019-09-27T08:52:35`
-##
-
-**milesguo** 9月26号：文贵向大家分享美食，国内准备睡觉的战友切勿打开。我们不仅仅能吃五花猪肉．也能吃盗国贼，无法在特供里吃到真正的纯天然特级美食，不是有钱，有权就懂得如何享受．能吃到最真正的上等石材……更需要一个人对世界的真正认知．对生活真正的感悟才可以……一切都是刚刚开始！
-
-[https://www.guo.media/posts/236572](https://www.guo.media/posts/236572) `2019-09-27T08:52:37`
-##
-
-**milesguo** 9月26号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？这些为午餐准备的食材，真希望能与战友们分享！带到我们喜马拉雅农场时．我们在共同享受吧！一切都是刚刚开始！
-
-[https://www.guo.media/posts/236556](https://www.guo.media/posts/236556) `2019-09-27T08:52:40`
-##
-
