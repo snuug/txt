@@ -82,38 +82,3 @@
 [https://www.guo.media/posts/237245](https://www.guo.media/posts/237245) `2019-09-28T15:55:09`
 ##
 
-**milesguo** 【關注香港】2019年9月28号：今天是「雨傘革命」五週年紀念日，當年就是因為看到香港自９７主權移交至今，短短十八年功夫由人人安居樂業的都市，變成置業自居者望樓興嘆，打工階層的權益被逐步侵蝕，社會資源被中資和少數家族壟斷，黑金政治腐敗，警權過大而且彼此包庇和縱容，所有的承諾變成泡影......<br>香港警隊對六月九日以來的多次大遊行採取日益升級的鎮壓，這次的抗爭運動席卷各行各業，因為愈來愈多的香港人認清這個政府的本質：沒有民選基礎和不受監管的政府是多麼可怕！他們只是中共極權政黨手中的統治工具。所以今天的全民抗爭劍指中共，要「全球抗共」！<br>【GM02】【GM42】
-
-[https://www.guo.media/posts/237153](https://www.guo.media/posts/237153) `2019-09-28T06:55:09`
-##
-
-**milesguo** 2019年9月27日文贵班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加！川普总统的弹劾程序和对中共的制裁将有大戏上演！
-
-[https://www.guo.media/posts/237102](https://www.guo.media/posts/237102) `2019-09-28T01:55:09`
-##
-
-**milesguo** 9月27号：尊敬的战友们好！明天9月28号·星期六纽约时间上午10:00．文贵将在郭媒体直播报平安！一切都是刚刚开始！
-
-[https://www.guo.media/posts/237077](https://www.guo.media/posts/237077) `2019-09-28T01:10:09`
-##
-
-**milesguo** Sep 27: END THE TYRANNY FIGHT FOR AUTONOMY<br>【GM02】
-
-[https://www.guo.media/posts/237020](https://www.guo.media/posts/237020) `2019-09-27T21:10:09`
-##
-
-**milesguo** Sep 27: Call on your government to stand with HK📣📣📣【GM02】
-
-[https://www.guo.media/posts/237018](https://www.guo.media/posts/237018) `2019-09-27T21:10:12`
-##
-
-**milesguo** 【关注香港】9月27日：看看香港同胞声援新屋岭被捕者✊✊✊
-
-[https://www.guo.media/posts/236981](https://www.guo.media/posts/236981) `2019-09-27T17:40:09`
-##
-
-**milesguo** 9月27号：尊敬的战友们好！在今天下午3:00文贵将与班农先生直播……谈关于江泽民，朱镕基如何看香港之乱！和所谓的70年国庆！弹劾川普总统到底会发生什么？一切都是刚刚开始！
-
-[https://www.guo.media/posts/236958](https://www.guo.media/posts/236958) `2019-09-27T16:10:09`
-##
-
