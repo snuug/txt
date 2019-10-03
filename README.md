@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】共產黨歷來奴役和鎮壓大陸人民的手段，今天正在用來對付香港同胞！今天香港同胞的偉大抗爭就是為了阻止香港變成大陸。浴血奮戰，香港必贏！【GM44】
+
+[https://www.guo.media/posts/238795](https://www.guo.media/posts/238795) `2019-10-03T22:55:10`
+##
+
 **milesguo** 【EN-CN Subtitles】Mr. Guo's opening speech on October 1st, which was on live simultaneously with the National Anniversary Day of the Chinese Communist Party【中英文字幕】郭文贵先生10月1日与中共国庆同时直播的开篇演讲（完整版）GM011235363738 Kim 阿丙
 
 [https://www.guo.media/posts/238770](https://www.guo.media/posts/238770) `2019-10-03T19:40:10`
