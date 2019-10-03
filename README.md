@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月3日：爆炸新闻！  2019年10月2日．香港警方卢伟聪向行政长官林郑月娥．禁止夜间通行令，🔨🔪🗡⚔️🔗这是真的吗？❌❌❌⁉️⁉️⁉️⁉️⁉️⁉️📵🚯🚷🚭🚳🚱 October 3rd: Explosion News!  October 2, 2019.  Hong Kong police officer Lu Weicong told the Chief Executive, Mrs Carrie Lam.  It is forbidden to pass the night pass. Is this true?  ❌❌❌!?️!?️!?️!?️!?️!?️📵🚯🚷🚭🚳🚱
+
+[https://www.guo.media/posts/238684](https://www.guo.media/posts/238684) `2019-10-03T12:10:10`
+##
+
 **milesguo** 10月2号：尊敬的香港的同胞和战友们好！多个渠道告诉文贵，未来的24小时内，CCP对香港可能实施戒严……并有大抓捕行动……文贵无法确认这些信息……请香港同胞根据你们的周边情况及你们掌握的信息自作决定……天佑香港……一切都是刚刚开始！
 
 [https://www.guo.media/posts/238475](https://www.guo.media/posts/238475) `2019-10-02T21:10:09`
