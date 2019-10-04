@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>10月5日：尊敬的战友们好一小时内文贵报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/239086](https://www.guo.media/posts/239086) `2019-10-04T21:10:09`
+##
+
 **milesguo** 10月3日：香港同胞向世界展示了他们独特的智慧和勇气，无数个爆料革命的战友正在与他们战斗在同一个城市香港一切都是刚刚开始！
 
 [https://www.guo.media/posts/239022](https://www.guo.media/posts/239022) `2019-10-04T15:25:10`
