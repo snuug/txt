@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 直播视频精选：18大借反腐排除异己！19大借修宪唯我独尊！— MIZ 制作
+
+[https://www.guo.media/posts/239812](https://www.guo.media/posts/239812) `2019-10-07T17:40:09`
+##
+
+**milesguo** 直播精华节选：原来贾庆林才是中国的老大啊！— MIZ 制作
+
+[https://www.guo.media/posts/239809](https://www.guo.media/posts/239809) `2019-10-07T17:40:12`
+##
+
 **milesguo** 10月7日：尊敬的战友们好！文贵马上直播报平安，♥️🔴一切都是刚刚开始！
 
 [https://www.guo.media/posts/239783](https://www.guo.media/posts/239783) `2019-10-07T14:55:11`
