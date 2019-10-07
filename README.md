@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 10月7日报平安直播精华：华尔街眼中的西藏！满足地狱的需要！— MIZ 制作
+
+[https://www.guo.media/posts/239855](https://www.guo.media/posts/239855) `2019-10-07T20:25:09`
+##
+
+**milesguo** 10月7日报平安直播精华：爆料革命受到来自华尔街的最大威胁！— MIZ 制作
+
+[https://www.guo.media/posts/239853](https://www.guo.media/posts/239853) `2019-10-07T20:25:12`
+##
+
 **milesguo** 直播视频精选：18大借反腐排除异己！19大借修宪唯我独尊！— MIZ 制作
 
 [https://www.guo.media/posts/239812](https://www.guo.media/posts/239812) `2019-10-07T17:40:09`
