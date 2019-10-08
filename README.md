@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 9月8号：尊敬的战友们好！40分钟内文贵报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/240035](https://www.guo.media/posts/240035) `2019-10-08T13:10:09`
+##
+
 **milesguo** 【新疆新聞】10月7號，美国商务部宣布新增和制裁中共28家实体和企业<br>美国商务部工业和安全局，在联邦公报网站7号发出通告，新增28家中共实体和企业到进出口限制实体名单。这些公司因涉嫌从事违反美国国家安全或外交政策利益的活动，被制裁“上榜挂名”。其中8家中共科技企业，涉嫌帮助中共在新疆维吾尔自治区，对维吾尔族，哈萨克族和其他穆斯林少数群体实施镇压，大规模拘禁和高科技监视，而侵犯和践踏人权。它们分别是：大华科技，海康威视，科大讯飞，旷视科技，商汤科技，厦门美亚柏科资讯有限公司，依图科技和益新科技。另外18家实体是包括新疆维吾尔自治区政府公安局及其下属的十八个市县公安局和其他下属机构。<br>近年来不断有大媒体和国际社会披露，中共在新疆维吾尔自治区非法关押和囚禁超过2百万的维吾尔族人，严重侵害和践踏人权，引起美国政府密切关注。今年9月12号，美参议院通过《维吾尔人权政策法案》要求当局加强关注新疆人权被侵害的状况，以及制裁侵权的中国官员。时隔不到一个月，美国政府就做出上述制裁中共动作，可谓大快人心。【GM12】<br>消息来源联邦公报网站，该通告将于10月9号正式在该网站发布[https://www.federalregister.gov/documents/2019/10/09/2019-22210/addition-of-certain-entities-to-the-entity-list](https://www.federalregister.gov/documents/2019/10/09/2019-22210/addition-of-certain-entities-to-the-entity-list "https://www.federalregister.gov/documents/2019/10/09/2019-22210/addition-of-certain-entities-to-the-entity-list")
 
 [https://www.guo.media/posts/239907](https://www.guo.media/posts/239907) `2019-10-08T03:10:09`
