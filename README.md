@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** We beat them before!<br>We will beat them again!
+
+[https://www.guo.media/posts/239884](https://www.guo.media/posts/239884) `2019-10-08T00:10:09`
+##
+
 **milesguo** 10月7日：我们都在为我们的维吾尔姐妹进入白宫而自豪……但是这个制栽名单是我们的几个战友在几个月前．她还没有进入国务院办公室工作前完成的！我们有很多很多共同的战友在默默付出着……工作着……一切都是刚刚开始！
 
 [https://www.guo.media/posts/239874](https://www.guo.media/posts/239874) `2019-10-07T22:40:09`
