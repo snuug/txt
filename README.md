@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br><br>10月8日 美参议员发表声明：NBA只要钱，中国共产党要求他们放弃最基本的人权。NBA随后发表声明说，金钱是最重要的！<br><br>纽约时报报道 原文链接：[https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html](https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html "https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html")<br>【MIZ】
+
+[https://www.guo.media/posts/240211](https://www.guo.media/posts/240211) `2019-10-09T04:40:09`
+##
+
 **milesguo** 10月8日：尊敬的战友们好．感谢你们一直想念SNOW …….他现在性格变得越来越粗鲁啦……有点像香港的警察的感觉🙏❌必须得好好教育教育他了，🤪他还有点不服……啊……一切都是刚刚开始！
 
 [https://www.guo.media/posts/240187](https://www.guo.media/posts/240187) `2019-10-09T02:25:09`
