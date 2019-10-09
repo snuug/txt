@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月9日：尊敬的战友们好！文贵将在今天纽约时间上午9:40和10:20之间直播报平安一切都是刚刚开始！
+
+[https://www.guo.media/posts/240288](https://www.guo.media/posts/240288) `2019-10-09T12:55:10`
+##
+
 **milesguo** 【国际新闻】<br><br>10月8日 美参议员发表声明：NBA只要钱，中国共产党要求他们放弃最基本的人权。NBA随后发表声明说，金钱是最重要的！<br><br>纽约时报报道 原文链接：[https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html](https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html "https://www.nytimes.com/reuters/2019/10/08/sports/basketball/08reuters-china-basketball-nba.html")<br>【MIZ】
 
 [https://www.guo.media/posts/240211](https://www.guo.media/posts/240211) `2019-10-09T04:40:09`
