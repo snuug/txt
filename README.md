@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Five tactics of CCP to control the people !<br>History of thousands of years! 【GM33】
+
+[https://www.guo.media/posts/240657](https://www.guo.media/posts/240657) `2019-10-10T21:55:09`
+##
+
 **milesguo** 【关注香港】<br>10月10日，法制是什么？黑白是什么？底线是什么？对CCP来说，什么都不是！<br>【GM32】【GM02】
 
 [https://www.guo.media/posts/240654](https://www.guo.media/posts/240654) `2019-10-10T21:40:10`
