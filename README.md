@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月10日香港海报【GM22】
+
+[https://www.guo.media/posts/240464](https://www.guo.media/posts/240464) `2019-10-10T05:25:09`
+##
+
 **milesguo** 10月9号：每时每刻都在被香港人民的勇敢而震撼……也为香港留学和失去生命的人而感到悲痛，一切都是刚刚开始！
 
 [https://www.guo.media/posts/240425](https://www.guo.media/posts/240425) `2019-10-10T01:25:10`
