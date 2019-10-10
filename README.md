@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月10号：尊敬的战友们好！半小时后，在华盛顿中美贸易双I10会谈．与文贵今天报平安直播同时开始……9:30在郭媒体直播．一切都是刚刚开始！
+
+[https://www.guo.media/posts/240543](https://www.guo.media/posts/240543) `2019-10-10T12:55:10`
+##
+
 **milesguo** 【关注香港】10月10日香港海报【GM22】
 
 [https://www.guo.media/posts/240464](https://www.guo.media/posts/240464) `2019-10-10T05:25:09`
