@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】明居正教授指CCP震慑性杀人，以蒙蔽世界恐吓港胞。<br>10月10日，明居正教授在《台湾最前线》栏目中揭露港人被自杀缘由，并称CCP震慑性杀人已在香港发生！ 研究中国问题的明居正教授分析指出，中共杀人从不手软，他们正在行震慑性杀人这套，把香港人逐一私下杀掉，然后造成自杀的样子，也不怕有人知道，用黑暗手法吓怕大家，令大家不敢再反抗。【GM32】【GM02】<br><br>新闻来源：[https://youtu.be/NQgoBDManQQ?t=158](https://youtu.be/NQgoBDManQQ?t=158 "https://youtu.be/NQgoBDManQQ?t=158")
+
+[https://www.guo.media/posts/240993](https://www.guo.media/posts/240993) `2019-10-11T21:25:10`
+##
+
 **milesguo** Oct 11: Liberate Hong Kong; Revolution of our age”. 【GM33】
 
 [https://www.guo.media/posts/240964](https://www.guo.media/posts/240964) `2019-10-11T20:55:09`
