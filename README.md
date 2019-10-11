@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>《2019美国安全无人机法案》<br><br>“American Security Drone Act 2019”<br>
+
+[https://www.guo.media/posts/241017](https://www.guo.media/posts/241017) `2019-10-11T22:55:09`
+##
+
 **milesguo** 【关注香港】<br>10月10日22时许，CCP黑警在黄埔再逮捕两名港胞，一名身穿黑色短袖，一名赤裸上身。【GM32】【GM02】
 
 [https://www.guo.media/posts/241001](https://www.guo.media/posts/241001) `2019-10-11T21:40:09`
