@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】香港人日程表<br><br>無數的催淚彈沒有讓香港人退縮<br>高壓水炮沒有把團結的港人衝散<br>離心臟三釐米的子彈剛剛取出來<br>下次行動的怒吼已經撐滿了胸口<br>香港人！加油！<br><br>【MIZ】
+
+[https://www.guo.media/posts/240819](https://www.guo.media/posts/240819) `2019-10-11T10:10:09`
+##
+
 **milesguo** 【关注香港】10月11日香港海报 【GM22】
 
 [https://www.guo.media/posts/240781](https://www.guo.media/posts/240781) `2019-10-11T07:25:09`
