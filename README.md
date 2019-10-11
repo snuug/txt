@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Oct 11: Liberate Hong Kong; Revolution of our age”. 【GM33】
+
+[https://www.guo.media/posts/240964](https://www.guo.media/posts/240964) `2019-10-11T20:55:09`
+##
+
 **milesguo** 【关注香港】10月12日香港海报【GM22】
 
 [https://www.guo.media/posts/240960](https://www.guo.media/posts/240960) `2019-10-11T20:40:10`
