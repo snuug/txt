@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月10：号尊敬的战友们好！今天的SNOW有了很大的变化😹😹😹比香港警察表现的好多了……，一切都是刚刚开始！
+
+[https://www.guo.media/posts/240684](https://www.guo.media/posts/240684) `2019-10-11T00:40:09`
+##
+
 **milesguo** 【关注香港】10月10号: 中大女学生除去口罩亲述进入新屋岭后被警察暴力性侵！【GM33】
 
 [https://www.guo.media/posts/240675](https://www.guo.media/posts/240675) `2019-10-11T00:10:09`
