@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月11日香港海报 【GM22】
+
+[https://www.guo.media/posts/240781](https://www.guo.media/posts/240781) `2019-10-11T07:25:09`
+##
+
 **milesguo** 【翻譯】<br><br>路透社10月10日：<br><br>參議員：抖音的[Musical.ly交易需經美國國家安全審核](http://Musical.ly交易需經美國國家安全審核 "Musical.ly交易需經美國國家安全審核") [https://spark.adobe.com/page/EIyzf7OpAZo6D/](https://spark.adobe.com/page/EIyzf7OpAZo6D/ "https://spark.adobe.com/page/EIyzf7OpAZo6D/")<br><br>【秘密翻譯組】<br><br>
 
 [https://www.guo.media/posts/240772](https://www.guo.media/posts/240772) `2019-10-11T06:55:11`
