@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月10号: 中大女学生除去口罩亲述进入新屋岭后被警察暴力性侵！【GM33】
+
+[https://www.guo.media/posts/240675](https://www.guo.media/posts/240675) `2019-10-11T00:10:09`
+##
+
 **milesguo** Five tactics of CCP to control the people !<br>History of thousands of years! 【GM33】
 
 [https://www.guo.media/posts/240657](https://www.guo.media/posts/240657) `2019-10-10T21:55:09`
