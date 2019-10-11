@@ -14,6 +14,11 @@
 
 **milesguo** 【国际新闻】<br><br>10月9日彭博社：继被美国列为黑名单公司之后，麻省理工学院正在审查中国的AI项目 <br><br>原文链接：<br>[https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company](https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company "https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company")<br><br>【MIZ】
 
+[https://www.guo.media/posts/241025](https://www.guo.media/posts/241025) `2019-10-11T23:55:09`
+##
+
+**milesguo** 【国际新闻】<br><br>10月9日彭博社：继被美国列为黑名单公司之后，麻省理工学院正在审查中国的AI项目 <br><br>原文链接：<br>[https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company](https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company "https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company")<br><br>【MIZ】
+
 [https://www.guo.media/posts/241023](https://www.guo.media/posts/241023) `2019-10-11T23:40:09`
 ##
 
