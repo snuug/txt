@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br><br>10月9日彭博社：继被美国列为黑名单公司之后，麻省理工学院正在审查中国的AI项目 <br><br>原文链接：<br>[https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company](https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company "https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company")<br><br>【MIZ】
+
+[https://www.guo.media/posts/241023](https://www.guo.media/posts/241023) `2019-10-11T23:40:09`
+##
+
+**milesguo** 【国际新闻】<br><br>美权威AI组织爆料！证实北京政权在港部署准军事部队！AI技术定位学生，大陆警察参与抓捕，性侵女学生。<br><br>原文链接：<br>[https://theaiorganization.com/artificial-intelligence-with-facial-recognition-hunts-hongkong-youth-for-capture-rape-so-called-suicide/](https://theaiorganization.com/artificial-intelligence-with-facial-recognition-hunts-hongkong-youth-for-capture-rape-so-called-suicide/ "https://theaiorganization.com/artificial-intelligence-with-facial-recognition-hunts-hongkong-youth-for-capture-rape-so-called-suicide/")<br><br>【MIZ】
+
+[https://www.guo.media/posts/241022](https://www.guo.media/posts/241022) `2019-10-11T23:40:12`
+##
+
 **milesguo** 【翻译】<br><br>《2019美国安全无人机法案》<br><br>“American Security Drone Act 2019”<br>
 
 [https://www.guo.media/posts/241017](https://www.guo.media/posts/241017) `2019-10-11T22:55:09`
