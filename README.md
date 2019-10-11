@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月12日香港海报【GM22】
+
+[https://www.guo.media/posts/240960](https://www.guo.media/posts/240960) `2019-10-11T20:40:10`
+##
+
 **milesguo** 10月11号：尊敬的战友们好……由于今天上午有几个重要的会议，提前开始！文贵今天没有报平安直播一切都是刚刚开始！
 
 [https://www.guo.media/posts/240867](https://www.guo.media/posts/240867) `2019-10-11T13:25:09`
