@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br><br>华盛顿邮报10月10日报道：苹果app商店下架⾹港示威者使⽤的警察追踪应⽤程序。<br><br>原文链接：<br>[https://www.washingtonpost.com/world/asia\_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63\_story.html](https://www.washingtonpost.com/world/asia_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63_story.html "https://www.washingtonpost.com/world/asia_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63_story.html")<br><br>【MIZ】
+
+[https://www.guo.media/posts/240705](https://www.guo.media/posts/240705) `2019-10-11T02:40:09`
+##
+
+**milesguo** 【国际新闻】<br><br>10月9日报道：NBA为了挽救与中国的关系，现在要求所有球员在比赛开始前唱中国国歌。<br><br>原文链接：<br>[https://babylonbee.com/news/nba-requiring-players-to-stand-for-chinese-national-anthem](https://babylonbee.com/news/nba-requiring-players-to-stand-for-chinese-national-anthem "https://babylonbee.com/news/nba-requiring-players-to-stand-for-chinese-national-anthem")<br><br>【MIZ】
+
+[https://www.guo.media/posts/240704](https://www.guo.media/posts/240704) `2019-10-11T02:40:12`
+##
+
 **milesguo** 10月10：号尊敬的战友们好！今天的SNOW有了很大的变化😹😹😹比香港警察表现的好多了……，一切都是刚刚开始！
 
 [https://www.guo.media/posts/240684](https://www.guo.media/posts/240684) `2019-10-11T00:40:09`
