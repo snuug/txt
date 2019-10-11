@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>路透社10月10日：<br><br>參議員：抖音的[Musical.ly交易需經美國國家安全審核](http://Musical.ly交易需經美國國家安全審核 "Musical.ly交易需經美國國家安全審核") [https://spark.adobe.com/page/EIyzf7OpAZo6D/](https://spark.adobe.com/page/EIyzf7OpAZo6D/ "https://spark.adobe.com/page/EIyzf7OpAZo6D/")<br><br>【秘密翻譯組】<br><br>
+
+[https://www.guo.media/posts/240772](https://www.guo.media/posts/240772) `2019-10-11T06:55:11`
+##
+
 **milesguo** 【国际新闻】<br><br>华盛顿邮报10月10日报道：苹果app商店下架⾹港示威者使⽤的警察追踪应⽤程序。<br><br>原文链接：<br>[https://www.washingtonpost.com/world/asia\_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63\_story.html](https://www.washingtonpost.com/world/asia_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63_story.html "https://www.washingtonpost.com/world/asia_pacific/apple-pulls-police-tracking-app-used-by-hong-kong-protesters/2019/10/10/4aad5ebe-eb14-11e9-a329-7378fbfa1b63_story.html")<br><br>【MIZ】
 
 [https://www.guo.media/posts/240705](https://www.guo.media/posts/240705) `2019-10-11T02:40:09`
