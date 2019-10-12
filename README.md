@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【新闻翻译】<br> <br>彭博社10月11日: 中國的隱性資本外逃激增<br><br>• 这一外逃增幅超过了2015年和2016年的水平<br><br>• 有记录的居民外流是10年来最小的<br><br>[https://spark.adobe.com/page/6iHpbatqhfqF6/](https://spark.adobe.com/page/6iHpbatqhfqF6/ "https://spark.adobe.com/page/6iHpbatqhfqF6/")<br><br>【秘密翻译组】<br><br><br><br> <br> 
+
+[https://www.guo.media/posts/241133](https://www.guo.media/posts/241133) `2019-10-12T05:55:09`
+##
+
 **milesguo** 【翻译】路透社10月12日：<br>蓬佩奥说，奥威尔的《1984》正在中国新疆地区上演<br><br>[https://spark.adobe.com/page/P9MAQjweTf9eh/](https://spark.adobe.com/page/P9MAQjweTf9eh/ "https://spark.adobe.com/page/P9MAQjweTf9eh/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/241054](https://www.guo.media/posts/241054) `2019-10-12T01:25:10`
