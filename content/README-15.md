@@ -13,6 +13,12 @@
 
 ## 頁面 15/19 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
+
+[文字版：郭文贵先生2018年2月4日郭媒体直播](/content/2018/04/20180418-7184160832028927540.md)
+
+[2018年2月3号 文贵郭媒体报平安视频](/content/2018/04/20180418-8770803911585151936.md)
+
 [郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
 
 [郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
@@ -56,12 +62,6 @@
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
 
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
-
-[2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
-
-[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
-
-[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/content/2018/04/20180418-8844190551130915159.md)
 
 
 ## 頁面 15/19 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
