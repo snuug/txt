@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】路透社10月12日：<br>蓬佩奥说，奥威尔的《1984》正在中国新疆地区上演<br><br>[https://spark.adobe.com/page/P9MAQjweTf9eh/](https://spark.adobe.com/page/P9MAQjweTf9eh/ "https://spark.adobe.com/page/P9MAQjweTf9eh/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/241054](https://www.guo.media/posts/241054) `2019-10-12T01:25:10`
+##
+
 **milesguo** 【国际新闻】<br><br>10月9日彭博社：继被美国列为黑名单公司之后，麻省理工学院正在审查中国的AI项目 <br><br>原文链接：<br>[https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company](https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company "https://www.bloomberg.com/news/articles/2019-10-09/chinese-ai-project-is-under-review-at-mit-after-u-s-blacklists-company")<br><br>【MIZ】
 
 [https://www.guo.media/posts/241025](https://www.guo.media/posts/241025) `2019-10-11T23:55:09`
