@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月12号：尊敬的战友们好！一个小时后……文贵将在郭媒体开始星期六直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/241241](https://www.guo.media/posts/241241) `2019-10-12T12:40:09`
+##
+
 **milesguo** 【新闻翻译】<br> <br>彭博社10月11日: 中國的隱性資本外逃激增<br><br>• 这一外逃增幅超过了2015年和2016年的水平<br><br>• 有记录的居民外流是10年来最小的<br><br>[https://spark.adobe.com/page/6iHpbatqhfqF6/](https://spark.adobe.com/page/6iHpbatqhfqF6/ "https://spark.adobe.com/page/6iHpbatqhfqF6/")<br><br>【秘密翻译组】<br><br><br><br> <br> 
 
 [https://www.guo.media/posts/241133](https://www.guo.media/posts/241133) `2019-10-12T05:55:09`
