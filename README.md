@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 10月12号：与战友们分SNOW吃酸奶的片刻……一切都是刚刚开始！
+
+[https://www.guo.media/posts/241277](https://www.guo.media/posts/241277) `2019-10-12T14:55:10`
+##
+
+**milesguo** 10月12号：与战友们分享．我太太刚刚为我组装的太空母舰……一切都是刚刚开始！
+
+[https://www.guo.media/posts/241276](https://www.guo.media/posts/241276) `2019-10-12T14:55:13`
+##
+
 **milesguo** 10月12号：尊敬的战友们好！一个小时后……文贵将在郭媒体开始星期六直播！一切都是刚刚开始！
 
 [https://www.guo.media/posts/241241](https://www.guo.media/posts/241241) `2019-10-12T12:40:09`
