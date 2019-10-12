@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【台灣新聞】<br><br>路透社10月10日: 台灣領導人拒絕中國「一國兩制」的提議<br><br>原文鏈接：<br><br>[https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB](https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB "https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB")<br><br>【北京姑娘聊天室】【MIZ】
+
+[https://www.guo.media/posts/241281](https://www.guo.media/posts/241281) `2019-10-12T15:10:10`
+##
+
 **milesguo** 10月12号：与战友们分SNOW吃酸奶的片刻……一切都是刚刚开始！
 
 [https://www.guo.media/posts/241277](https://www.guo.media/posts/241277) `2019-10-12T14:55:10`
