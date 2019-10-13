@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Thank you Hong Kong protesters 💕💕💕💕💕💕💕【GM33】
+
+[https://www.guo.media/posts/241705](https://www.guo.media/posts/241705) `2019-10-13T23:25:12`
+##
+
+**milesguo** 【关注香港】10月13日:传播香港真相📣📣📣✊✊✊✊【GM33】
+
+[https://www.guo.media/posts/241704](https://www.guo.media/posts/241704) `2019-10-13T23:25:15`
+##
+
 **milesguo** 【香港真相】CCP的黑警<br><br>• 栽贓嫁禍<br>• 性騷擾性暴力<br>• 假扮示威者<br>• 警黑勾結<br>• 濫用武力<br>• 威脅驚嚇<br><br>【MIZ】（香港文宣）<br>
 
 [https://www.guo.media/posts/241699](https://www.guo.media/posts/241699) `2019-10-13T22:40:09`
