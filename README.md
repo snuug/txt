@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>美國總統川普與中共簽初步協議後稱「香港抗議運動在淡化」，對香港堅持抗議的手足同胞造成了巨大傷害！四個月的堅持每一分鐘都有血淚！<br>看中方代表團個個滿面笑容，看美方代表團的表情一言難盡！真的是中共又贏一局？<br>沒錯！但一切剛剛開始！我們絕不會放棄！香港抗議運動即將迎來最艱難的時刻！起而伏之，伏而起之！爆料革命不是請客吃飯，西方世界反共已成共識，需要的只是時間，我們不僅會贏，而且會大贏！民主法治不是免費的午餐，我們相信西方社會的正義力量，更相信我們自己的力量！香港抗議運動為自由而生，更不會改變初衷！<br>手足同胞，互相守望，四海戰友，傳播真相！不割席、不篤灰；不拋棄，不放棄！<br>中國大陸人、香港人、新疆人、西藏人、台灣人，團結起來，為我們自己、為孩子未來的光明加油！<br><br>【MIZ】
+
+[https://www.guo.media/posts/241399](https://www.guo.media/posts/241399) `2019-10-13T00:10:09`
+##
+
 **milesguo** 【台灣新聞】<br><br>路透社10月10日: 台灣領導人拒絕中國「一國兩制」的提議<br><br>原文鏈接：<br><br>[https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB](https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB "https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB")<br><br>【北京姑娘聊天室】【MIZ】
 
 [https://www.guo.media/posts/241281](https://www.guo.media/posts/241281) `2019-10-12T15:10:10`
