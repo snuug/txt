@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月14日香港海报【GM22】
+
+[https://www.guo.media/posts/241684](https://www.guo.media/posts/241684) `2019-10-13T20:40:09`
+##
+
 **milesguo** 【新闻】关于NBA中国困境的5种残酷有趣的漫画，看看中共的渗透！<br>【GM13】
 
 [https://www.guo.media/posts/241639](https://www.guo.media/posts/241639) `2019-10-13T16:10:09`
