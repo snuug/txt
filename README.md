@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月13号：尊敬的战友们好！文贵马上在郭媒体报平安直播……一切都是刚刚开始！（这些老照片非常有意思)
+
+[https://www.guo.media/posts/241625](https://www.guo.media/posts/241625) `2019-10-13T14:40:12`
+##
+
 **milesguo** 10月13号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/241621](https://www.guo.media/posts/241621) `2019-10-13T14:10:10`
