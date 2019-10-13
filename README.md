@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【新闻】关于NBA中国困境的5种残酷有趣的漫画，看看中共的渗透！<br>【GM13】
+
+[https://www.guo.media/posts/241639](https://www.guo.media/posts/241639) `2019-10-13T16:10:09`
+##
+
 **milesguo** 10月13号：尊敬的战友们好！文贵马上在郭媒体报平安直播……一切都是刚刚开始！（这些老照片非常有意思)
 
 [https://www.guo.media/posts/241625](https://www.guo.media/posts/241625) `2019-10-13T14:40:12`
