@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月14日，超过13万人的遮打花园，香港人权民主法案集气大会✊✊✊ 【GM33】
+
+[https://www.guo.media/posts/241999](https://www.guo.media/posts/241999) `2019-10-14T23:40:12`
+##
+
 **milesguo** 【國際快讯】【中美貿易戰】<br><br>CNBC10月14日: 消息人士稱，中國希望在簽署第一階段貿易協議之前進行新一輪談<br><br>原文鏈接：<br>[https://www.cnbc.com/2019/10/14/china-wants-another-round-of-talks-before-signing-phase-one-of-the-trade-deal-source-says.html](https://www.cnbc.com/2019/10/14/china-wants-another-round-of-talks-before-signing-phase-one-of-the-trade-deal-source-says.html "https://www.cnbc.com/2019/10/14/china-wants-another-round-of-talks-before-signing-phase-one-of-the-trade-deal-source-says.html")<br><br>【MIZ】【北京姑娘聊天室】<br>
 
 [https://www.guo.media/posts/241904](https://www.guo.media/posts/241904) `2019-10-14T15:10:48`
