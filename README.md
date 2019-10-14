@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【國際新聞】【關注香港】<br><br>零對衝-Zerohedge網10月12日報道：香港逮捕了750名兒童抗議者，引發眾怒。<br><br>原文鏈接：<br>[https://www.zerohedge.com/geopolitical/arrest-750-child-protesters-hong-kong-sparks-outrage](https://www.zerohedge.com/geopolitical/arrest-750-child-protesters-hong-kong-sparks-outrage "https://www.zerohedge.com/geopolitical/arrest-750-child-protesters-hong-kong-sparks-outrage")<br><br>【北京姑娘聊天室】【MIZ】
+
+[https://www.guo.media/posts/241734](https://www.guo.media/posts/241734) `2019-10-14T01:10:10`
+##
+
 **milesguo** Thank you Hong Kong protesters 💕💕💕💕💕💕💕【GM33】
 
 [https://www.guo.media/posts/241705](https://www.guo.media/posts/241705) `2019-10-13T23:25:12`
