@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【摘要翻譯】<br><br>HKFP 香港自由新聞網10月12日: “我們擔心香港將會成為中國的一個城市”：專訪民主鼻祖馬丁.李（Martin Lee）<br> <br>[https://spark.adobe.com/page/9hqTpsrlmK1Ck/](https://spark.adobe.com/page/9hqTpsrlmK1Ck/ "https://spark.adobe.com/page/9hqTpsrlmK1Ck/")<br><br>【秘密翻譯組】<br><br> 
+
+[https://www.guo.media/posts/241772](https://www.guo.media/posts/241772) `2019-10-14T03:40:10`
+##
+
 **milesguo** 【翻譯】<br><br>華盛頓郵報10月11日:中國正在構建對所有美國人的金融槓桿<br><br>[https://spark.adobe.com/page/KY3YWS4dNDQJd/](https://spark.adobe.com/page/KY3YWS4dNDQJd/ "https://spark.adobe.com/page/KY3YWS4dNDQJd/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/241762](https://www.guo.media/posts/241762) `2019-10-14T03:10:10`
