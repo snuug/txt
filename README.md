@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港真相】<br><br>⚠️警惕！由各政府部門車輛偽裝成的警車！<br><br>⚠️Alert! Police cars disguised as all sorts of government vehicles!<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/241844](https://www.guo.media/posts/241844) `2019-10-14T10:10:09`
+##
+
 **milesguo** 【摘要翻譯】<br><br>HKFP 香港自由新聞網10月12日: “我們擔心香港將會成為中國的一個城市”：專訪民主鼻祖馬丁.李（Martin Lee）<br> <br>[https://spark.adobe.com/page/9hqTpsrlmK1Ck/](https://spark.adobe.com/page/9hqTpsrlmK1Ck/ "https://spark.adobe.com/page/9hqTpsrlmK1Ck/")<br><br>【秘密翻譯組】<br><br> 
 
 [https://www.guo.media/posts/241772](https://www.guo.media/posts/241772) `2019-10-14T03:40:10`
