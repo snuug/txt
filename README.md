@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>《10.14人權法案集氣大會》<br><br>日期：10月14日<br>時間：晚上七點正<br>地點：遮打花園<br><br>【MIZ】
+
+[https://www.guo.media/posts/241896](https://www.guo.media/posts/241896) `2019-10-14T14:10:10`
+##
+
 **milesguo** 【香港真相】【英文版】<br><br>香港黑警暴行<br> Hong Kong  police’s brutality<br><br>【MIZ 】（香港文宣）<br><br>
 
 [https://www.guo.media/posts/241866](https://www.guo.media/posts/241866) `2019-10-14T11:40:10`
