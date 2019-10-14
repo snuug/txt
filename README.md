@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>爆眼！溺亡！槍擊！強姦！<br>嚇不倒勇敢無懼的香港人！<br>港人不朽！香港人！加油！<br><br>Blind! Drowned! Shooting! Rape! <br>The people of Hong Kong never fear! <br>Hong Kong people are immortal! <br>The people of Hong Kong! Come on!<br><br>【MIZ】（戰友原創）
+
+[https://www.guo.media/posts/241855](https://www.guo.media/posts/241855) `2019-10-14T11:10:10`
+##
+
 **milesguo** 【感恩美國】【關注香港】<br><br>10月14日美國即將對《2019香港人權與民主法案》進行投票。預計該法案將會順利通過。感恩美國！天佑香港！🙏<br><br>On October 14, the US Congress will vote on the “Hong Kong Human Right and Democracy Act of 2019”. This Act is expected to pass without a hitch. Thanks America! God bless Hong Kong!🙏<br><br>【MIZ】
 
 [https://www.guo.media/posts/241849](https://www.guo.media/posts/241849) `2019-10-14T10:55:09`
