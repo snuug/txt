@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月14号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵马上直播报平安……一切都是刚刚开始！
+
+[https://www.guo.media/posts/241898](https://www.guo.media/posts/241898) `2019-10-14T14:25:10`
+##
+
 **milesguo** 【關注香港】<br><br>《10.14人權法案集氣大會》<br><br>日期：10月14日<br>時間：晚上七點正<br>地點：遮打花園<br><br>【MIZ】
 
 [https://www.guo.media/posts/241896](https://www.guo.media/posts/241896) `2019-10-14T14:10:10`
