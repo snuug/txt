@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【感恩美國】【關注香港】<br><br>10月14日美國即將對《2019香港人權與民主法案》進行投票。預計該法案將會順利通過。感恩美國！天佑香港！🙏<br><br>On October 14, the US Congress will vote on the “Hong Kong Human Right and Democracy Act of 2019”. This Act is expected to pass without a hitch. Thanks America! God bless Hong Kong!🙏<br><br>【MIZ】
+
+[https://www.guo.media/posts/241849](https://www.guo.media/posts/241849) `2019-10-14T10:55:09`
+##
+
 **milesguo** 【香港真相】<br><br>⚠️警惕！由各政府部門車輛偽裝成的警車！<br><br>⚠️Alert! Police cars disguised as all sorts of government vehicles!<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/241844](https://www.guo.media/posts/241844) `2019-10-14T10:10:09`
