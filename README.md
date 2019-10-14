@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【香港真相】【英文版】<br><br>自6月返送中運動以來，香港地鐵都發生了什麼？<br><br>From June, anti- extradition movement in Hong Kong， what happened to MTR?<br><br>【MIZ】（香港文宣）<br>
+
+[https://www.guo.media/posts/242003](https://www.guo.media/posts/242003) `2019-10-14T23:55:09`
+##
+
+**milesguo** 【关注香港】香港时间10月15日：挺港无处不在，动漫因正义而活！让港人的声音传遍世界，只要有正义的地方，就有挺港的身影！光复香港，时代革命！消灭血共，全球起来！【GM30】
+
+[https://www.guo.media/posts/242001](https://www.guo.media/posts/242001) `2019-10-14T23:55:12`
+##
+
 **milesguo** 【关注香港】10月14日，超过13万人的遮打花园，香港人权民主法案集气大会✊✊✊ 【GM33】
 
 [https://www.guo.media/posts/241999](https://www.guo.media/posts/241999) `2019-10-14T23:40:12`
