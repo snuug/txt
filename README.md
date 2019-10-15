@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港真相】【尋人啓事】<br><br>“米字旗王婆婆” 自8月11日被警方暴力拘捕後失蹤至今<br><br>“The Union Jack Grandma Wang “ has been missing since 11 August after suffering police brutality<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242170](https://www.guo.media/posts/242170) `2019-10-15T12:10:09`
+##
+
 **milesguo** 【關注香港】<br><br>香港人，反抗！<br>Hong Kong people, resist!<br><br>廢除惡法、獨立調查、重組警隊<br>——民陣宣佈 10 月 20 日舉辦大遊行<br><br>Abolish anti-mask law, setup independent commission of inquiry, and rebuild Hong Kong police force——Civil Human Rights Front Calls for Rally on 20 October <br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/242143](https://www.guo.media/posts/242143) `2019-10-15T11:40:09`
