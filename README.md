@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>Stand with Morey 籃球迷聚首修頓集會<br>日期：十月十五日（星期二）<br>時間：19:30<br>地點：修頓室外場<br><br>【MIZ】<br><br>
+
+[https://www.guo.media/posts/242036](https://www.guo.media/posts/242036) `2019-10-15T02:25:09`
+##
+
 **milesguo** 【关注香港】10月14日:香港同胞10月18日“和你拖2.0面具人链宣传图片📣📣📣📣📣传播<br>【GM33】
 
 [https://www.guo.media/posts/242011](https://www.guo.media/posts/242011) `2019-10-15T00:25:09`
