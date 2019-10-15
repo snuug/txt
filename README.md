@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【新聞翻譯】<br>CNBC 10月13日 中國9月份的進出口降幅超過預期<br><br>[https://spark.adobe.com/page/e7Mi7L0XCkewq/](https://spark.adobe.com/page/e7Mi7L0XCkewq/ "https://spark.adobe.com/page/e7Mi7L0XCkewq/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/242096](https://www.guo.media/posts/242096) `2019-10-15T06:55:10`
+##
+
 **milesguo** 【關注香港】<br>Stand with Morey 籃球迷聚首修頓集會<br>日期：十月十五日（星期二）<br>時間：19:30<br>地點：修頓室外場<br><br>【MIZ】<br><br>
 
 [https://www.guo.media/posts/242036](https://www.guo.media/posts/242036) `2019-10-15T02:25:09`
