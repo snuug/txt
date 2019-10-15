@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月14日:香港同胞10月18日“和你拖2.0面具人链宣传图片📣📣📣📣📣传播<br>【GM33】
+
+[https://www.guo.media/posts/242011](https://www.guo.media/posts/242011) `2019-10-15T00:25:09`
+##
+
 **milesguo** 【香港真相】【英文版】<br><br>自6月返送中運動以來，香港地鐵都發生了什麼？<br><br>From June, anti- extradition movement in Hong Kong， what happened to MTR?<br><br>【MIZ】（香港文宣）<br>
 
 [https://www.guo.media/posts/242003](https://www.guo.media/posts/242003) `2019-10-14T23:55:09`
