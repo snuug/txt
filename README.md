@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Stand with Hong Kong !<br>Fight for Freedom!<br><br>By 文希<br><br>【GM44】
+
+[https://www.guo.media/posts/242318](https://www.guo.media/posts/242318) `2019-10-15T19:40:09`
+##
+
 **milesguo** 【关注香港】10月14日晚和平集会结束后不久，香港地铁在晚上10点暂停了所有服务。许多香港人被困在中环。于此同时，身穿香港警服的驻港戒严部队在巡逻，他们在地铁站内全副武装随意搜查和拦截香港公民包括8、9岁的小孩，好像他们是香港的主宰者，他们把香港变的更像一个集中营并且戒严部队正在向这个方向努力着。【GM22】
 
 [https://www.guo.media/posts/242238](https://www.guo.media/posts/242238) `2019-10-15T15:55:10`
