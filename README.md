@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br><br>美德研究机构爆：“学习强国” APP有“超级后门”，可浏览手机隐私，并能随时启动手机录音功能。<br><br>原文链接：<br><br>[https://www.rfa.org/cantonese/news/app-10142019081513.html](https://www.rfa.org/cantonese/news/app-10142019081513.html "https://www.rfa.org/cantonese/news/app-10142019081513.html") [https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html](https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html "https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html")<br><br>【MIZ】
+
+[https://www.guo.media/posts/242196](https://www.guo.media/posts/242196) `2019-10-15T13:55:10`
+##
+
 **milesguo** 【香港真相】【尋人啓事】<br><br>“米字旗王婆婆” 自8月11日被警方暴力拘捕後失蹤至今<br><br>“The Union Jack Grandma Wang “ has been missing since 11 August after suffering police brutality<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/242170](https://www.guo.media/posts/242170) `2019-10-15T12:10:09`
