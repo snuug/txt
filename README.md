@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br> <br>香港危機🆘<br>請通過《香港人權民主法案》<br>解放香港<br><br>Hong Kong in crisis! 🆘 <br>Please pass the “Hong Kong Human Right and Democracy Act”<br>Liberate Hong Kong <br><br>【MIZ】
+
+[https://www.guo.media/posts/242142](https://www.guo.media/posts/242142) `2019-10-15T11:10:10`
+##
+
 **liuabing11** 
 【新闻】10月15日台湾自由时报报导：中國經濟急速下滑！郭文貴先生爆：現在GDP基本上是0
  
