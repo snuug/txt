@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月15日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵马上开始报平安直播！一切都是刚刚开始！<br>[https://cn.nytimes.com/business/20191015/deutsche-bank-china/](https://cn.nytimes.com/business/20191015/deutsche-bank-china/ "https://cn.nytimes.com/business/20191015/deutsche-bank-china/")
+
+[https://www.guo.media/posts/242198](https://www.guo.media/posts/242198) `2019-10-15T14:10:11`
+##
+
 **milesguo** 【国际新闻】<br><br>美德研究机构爆：“学习强国” APP有“超级后门”，可浏览手机隐私，并能随时启动手机录音功能。<br><br>原文链接：<br><br>[https://www.rfa.org/cantonese/news/app-10142019081513.html](https://www.rfa.org/cantonese/news/app-10142019081513.html "https://www.rfa.org/cantonese/news/app-10142019081513.html") [https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html](https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html "https://www.voachinese.com/a/big-brother-on-your-phone-20192015/5123659.html")<br><br>【MIZ】
 
 [https://www.guo.media/posts/242196](https://www.guo.media/posts/242196) `2019-10-15T13:55:10`
