@@ -13,6 +13,8 @@
 
 ## 頁面 5/20 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [20](/content/README-20.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/content/2019/06/20190601-2272712478111328158.md)
+
 [翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
 
 [文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
@@ -60,8 +62,6 @@
 [文字版：2019年4月27日談談剛剛在中國結束的第二屆一帶一路的會議，和剛剛結束的曼哈頓當前危機委員會的重大意義，戰友路德參加直播](/content/2019/04/20190429-8077674753386524222.md)
 
 [文字版：2019年4月24日报告昨天的三个神秘会议和对张健先生突然病逝的祈祷](/content/2019/04/20190425-6473105803624226885.md)
-
-[文字版：2019年4月22日美国宣布对伊朗石油输出禁运不再给豁免国家，对CCP将是什么巨大打击？](/content/2019/04/20190423-1316930851159830610.md)
 
 
 ## 頁面 5/20 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [20](/content/README-20.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
