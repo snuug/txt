@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>香港人，反抗！<br>Hong Kong people, resist!<br><br>廢除惡法、獨立調查、重組警隊<br>——民陣宣佈 10 月 20 日舉辦大遊行<br><br>Abolish anti-mask law, setup independent commission of inquiry, and rebuild Hong Kong police force——Civil Human Rights Front Calls for Rally on 20 October <br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242143](https://www.guo.media/posts/242143) `2019-10-15T11:40:09`
+##
+
 **milesguo** 【關注香港】<br> <br>香港危機🆘<br>請通過《香港人權民主法案》<br>解放香港<br><br>Hong Kong in crisis! 🆘 <br>Please pass the “Hong Kong Human Right and Democracy Act”<br>Liberate Hong Kong <br><br>【MIZ】
 
 [https://www.guo.media/posts/242142](https://www.guo.media/posts/242142) `2019-10-15T11:10:10`
@@ -306,25 +311,5 @@
 **milesguo** 10月10号：尊敬的战友们好！半小时后，在华盛顿中美贸易双I10会谈．与文贵今天报平安直播同时开始……9:30在郭媒体直播．一切都是刚刚开始！
 
 [https://www.guo.media/posts/240543](https://www.guo.media/posts/240543) `2019-10-10T12:55:10`
-##
-
-**milesguo** 【关注香港】10月10日香港海报【GM22】
-
-[https://www.guo.media/posts/240464](https://www.guo.media/posts/240464) `2019-10-10T05:25:09`
-##
-
-**milesguo** 10月9号：每时每刻都在被香港人民的勇敢而震撼……也为香港留学和失去生命的人而感到悲痛，一切都是刚刚开始！
-
-[https://www.guo.media/posts/240425](https://www.guo.media/posts/240425) `2019-10-10T01:25:10`
-##
-
-**milesguo** 📣📣📣📣📣关注香港
-
-[https://www.guo.media/posts/240407](https://www.guo.media/posts/240407) `2019-10-10T00:25:09`
-##
-
-**milesguo** 10月9日：尊敬的战友们好！文贵将在今天纽约时间上午9:40和10:20之间直播报平安一切都是刚刚开始！
-
-[https://www.guo.media/posts/240288](https://www.guo.media/posts/240288) `2019-10-09T12:55:10`
 ##
 
