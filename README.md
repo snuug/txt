@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月15日：恭喜祝贺香港人民．刚刚获得了美国众议院无异议．通过的《香港人权保护法案》这是香港人民用鲜血生命换来的．史无前例的对中国人权争取的最大保护法！创造了伟大的历史！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的……上天保佑香港。一切都是刚刚开始！
+
+[https://www.guo.media/posts/242331](https://www.guo.media/posts/242331) `2019-10-15T20:40:09`
+##
+
 **milesguo** Stand with Hong Kong !<br>Fight for Freedom!<br><br>By 文希<br><br>【GM44】
 
 [https://www.guo.media/posts/242318](https://www.guo.media/posts/242318) `2019-10-15T19:40:09`
