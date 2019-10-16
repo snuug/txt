@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【岑子傑遇襲】<br>On Wednesday 16 Oct 2019,Jimmy Sham, a leader of the Civil Human Rights Front, the group behind huge, peaceful marches over the past months, was attacked for the second time. Four or five men assaulted him with hammers in the Mongkok district, leaving him bleeding from head, according to the Front. He was conscious when he was rushed to the hospital.<br><br>No white terror ! They can’t kill us all!<br><br>【MIZ】（香港文宣）<br>
+
+[https://www.guo.media/posts/242862](https://www.guo.media/posts/242862) `2019-10-16T22:55:09`
+##
+
 **milesguo** 10月16日：香港民阵召集人岑子杰再遭击杀，黑警冷漠踏血而过！【GM41】
 
 [https://www.guo.media/posts/242832](https://www.guo.media/posts/242832) `2019-10-16T19:40:09`
