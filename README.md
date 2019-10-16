@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>10月16日 林鄭今日到立法會宣讀任內第三份施政報告。報告會不足半小時宣告休會。回應五大訴求才是最好的施政！<br><br>附施政報告要點<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242693](https://www.guo.media/posts/242693) `2019-10-16T11:10:09`
+##
+
 **milesguo** 【翻译】<br><br>亚洲时报10月14日: 美国政府对中共情报系统的打击<br><br>作者：比尔·格茨<br><br><br>[https://spark.adobe.com/page/MUMGVJvVXMQW1/](https://spark.adobe.com/page/MUMGVJvVXMQW1/ "https://spark.adobe.com/page/MUMGVJvVXMQW1/")<br><br>【MIZ】
 
 [https://www.guo.media/posts/242570](https://www.guo.media/posts/242570) `2019-10-16T09:55:09`
