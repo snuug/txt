@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月16日：香港民阵召集人岑子杰再遭击杀，黑警冷漠踏血而过！【GM41】
+
+[https://www.guo.media/posts/242832](https://www.guo.media/posts/242832) `2019-10-16T19:40:09`
+##
+
 **milesguo** 【关注香港】10月16日:岑子杰最新消息🙏🙏🙏来自他的Facebook<br><br>“看见医院中声援的战友，我感受到大家的爱，但对不起，令大家忧心了，我会尽快恢复，然后继续坚持五大诉求的目标，坚持和理非的信念！”<br><br>https://m.[facebook.com/Sham.Tsz.Kit/](https://facebook.com/Sham.Tsz.Kit/ "facebook.com/Sham.Tsz.Kit/")<br><br>【GM40】
 
 [https://www.guo.media/posts/242806](https://www.guo.media/posts/242806) `2019-10-16T17:55:09`
