@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>亚洲时报10月14日: 美国政府对中共情报系统的打击<br><br>作者：比尔·格茨<br><br><br>[https://spark.adobe.com/page/MUMGVJvVXMQW1/](https://spark.adobe.com/page/MUMGVJvVXMQW1/ "https://spark.adobe.com/page/MUMGVJvVXMQW1/")<br><br>【MIZ】
+
+[https://www.guo.media/posts/242570](https://www.guo.media/posts/242570) `2019-10-16T09:55:09`
+##
+
+**milesguo** 【中共真相】中共全球石油佈局<br>世界能源為何屈從中共獨裁政權<br>中共揮金如土威脅世界石油安全<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242551](https://www.guo.media/posts/242551) `2019-10-16T09:55:12`
+##
+
+**milesguo** 【一帶一路真相】<br>他到底是埃塞俄比亞的救星？還是新殖民者？<br>震裂了厄瓜多爾大壩的罪魁禍首到底是誰？<br>斯里蘭卡的噩夢為何從從漢班托塔港托管開始？<br><br>他撒下的是人民血與淚，<br>他送出的是黃金打造的腳鐐和嚼環，<br>他更輸出骯臟的紅色基因！<br>他就是這個邪惡的政權CCP！<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242547](https://www.guo.media/posts/242547) `2019-10-16T09:55:14`
+##
+
+**milesguo** 【關注香港】<br>香港人在集結<br>香港九龍1020大遊行<br>200萬人奇蹟將再次重現<br>一起走下去！絕不妥協！<br>只要爭取，只要抗爭<br>我們就有希望！<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242464](https://www.guo.media/posts/242464) `2019-10-16T09:55:17`
+##
+
+**milesguo** 【關注香港】<br>香港人抗爭，是因為他們珍惜自由。<br>更是因為他們清楚的明白：<br>2年後<br>5年後<br>10年後<br>在CCP統治下的香港未來會變成什麼樣！<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242441](https://www.guo.media/posts/242441) `2019-10-16T09:55:21`
+##
+
+**milesguo** 【香港真相】<br><br>香港“自殺”或“被自殺”統計<br>這些不是數據<br>這些是我們的傷痕<br>🙏🙏🙏🙏🙏🙏🙏<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242381](https://www.guo.media/posts/242381) `2019-10-16T09:55:30`
+##
+
+**milesguo** 【關注香港】<br><br>美國眾議院美國時間10月15日週二一致通過以下三項法案與決議：<br><br>• 《香港人權與民主法案》（Hong Kong Human Rights and Democracy Act of 2019）<br><br>• 有關禁止美國向香港警方出售人群管制及防暴設備的《保護香港法案》（Protect Hong Kong Act）<br><br>• 支持港人示威權的《與香港並肩決議案》（Stand with Hong Kong Resolution）<br><br>參院版本《香港人權與民主法案》已排期審議。參眾兩院各自通過法案後，若文本內容有差異，須交兩院協商委員會審議，協商後的文本再經參眾兩院通過，方交總統簽署生效。<br><br>報導全文：<br>https://s.[nextmedia.com/realtime/a.php?i=20191016&s=10793140&a=60158657](http://nextmedia.com/realtime/a.php?i=20191016&s=10793140&a=60158657 "nextmedia.com/realtime/a.php?i=20191016&s=10793140&a=60158657")<br><br>【MIZ】<br><br>
+
+[https://www.guo.media/posts/242377](https://www.guo.media/posts/242377) `2019-10-16T09:55:34`
+##
+
 **milesguo** 10月15日：恭喜祝贺香港人民．刚刚获得了美国众议院无异议．通过的《香港人权保护法案》这是香港人民用鲜血生命换来的．史无前例的对中国人权争取的最大保护法！创造了伟大的历史！可敬可爱的香港人，用行动证明给我们．口炮．恐惧都是死路一条．只有抗争才能得到自己想要的……上天保佑香港。一切都是刚刚开始！
 
 [https://www.guo.media/posts/242331](https://www.guo.media/posts/242331) `2019-10-15T20:40:09`
