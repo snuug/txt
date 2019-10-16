@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月16日:岑子杰最新消息🙏🙏🙏来自他的Facebook<br><br>“看见医院中声援的战友，我感受到大家的爱，但对不起，令大家忧心了，我会尽快恢复，然后继续坚持五大诉求的目标，坚持和理非的信念！”<br><br>https://m.[facebook.com/Sham.Tsz.Kit/](https://facebook.com/Sham.Tsz.Kit/ "facebook.com/Sham.Tsz.Kit/")<br><br>【GM40】
+
+[https://www.guo.media/posts/242806](https://www.guo.media/posts/242806) `2019-10-16T17:55:09`
+##
+
 **milesguo** 10月16号尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？你们知道香港昨天发生的．共产党利用黑社会的杀手手段……残害香港议员岺子杰先生的事情吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/242778](https://www.guo.media/posts/242778) `2019-10-16T15:40:10`
