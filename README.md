@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br>福克斯新聞 10月15日<br>參議員 馬可.盧比奧：中國想徹底取代美國——我們不能讓它把全世界當作人質<br><br>[https://spark.adobe.com/page/4X46gfCBleJrv/](https://spark.adobe.com/page/4X46gfCBleJrv/ "https://spark.adobe.com/page/4X46gfCBleJrv/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/242737](https://www.guo.media/posts/242737) `2019-10-16T13:40:11`
+##
+
 **milesguo** 【關注香港】<br>最新香港民意調查結果：<br>• 51.5%對香港警察「零信任度」<br>• 44.9% 無難以接受的激烈行動<br>• 71.4% 反對緊急法<br>• 主要訴求支持度上升<br>• 68.8%要求大規模重組警隊<br>• 52.5%接受自衛制服<br>• 48.1% 不認同警察開槍<br>• 對警察濫暴保持高度不滿<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/242699](https://www.guo.media/posts/242699) `2019-10-16T11:40:09`
