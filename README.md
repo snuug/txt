@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月16日: 香港同胞文宣组每天倾力制图宣传！我们传播📣📣📣📣📣通过法案（2）【GM33】
+
+[https://www.guo.media/posts/242887](https://www.guo.media/posts/242887) `2019-10-16T23:55:09`
+##
+
+**milesguo** 【关注香港】10月16日: 香港同胞文宣组每天倾力制图宣传！我们传播📣📣📣📣📣通过法案（1）【GM33】
+
+[https://www.guo.media/posts/242885](https://www.guo.media/posts/242885) `2019-10-16T23:55:12`
+##
+
 **milesguo** 【岑子傑遇襲】<br>On Wednesday 16 Oct 2019,Jimmy Sham, a leader of the Civil Human Rights Front, the group behind huge, peaceful marches over the past months, was attacked for the second time. Four or five men assaulted him with hammers in the Mongkok district, leaving him bleeding from head, according to the Front. He was conscious when he was rushed to the hospital.<br><br>No white terror ! They can’t kill us all!<br><br>【MIZ】（香港文宣）<br>
 
 [https://www.guo.media/posts/242862](https://www.guo.media/posts/242862) `2019-10-16T22:55:09`
