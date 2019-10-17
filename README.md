@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港真相】<br>2019年6月-9月，香港共發現118具屍體！一定要查明真相，為死者伸冤！<br>From June to September 2019, 118 corpses were found in Hong Kong. <br>We need the truth and justice!<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/242936](https://www.guo.media/posts/242936) `2019-10-17T02:55:10`
+##
+
 **milesguo** 【关注香港】10月16日: 香港同胞文宣组每天倾力制图宣传！我们传播📣📣📣📣📣通过法案（2）【GM33】
 
 [https://www.guo.media/posts/242887](https://www.guo.media/posts/242887) `2019-10-16T23:55:09`
