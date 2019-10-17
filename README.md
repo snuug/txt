@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>他們散播恐懼<br>讓你恐懼到不能呼吸<br>逐個擊碎脆弱的個體<br>抹去那些憤怒的血跡<br><br>他們感到恐懼<br>因為恐懼去修改法律<br>因為恐懼去封鎖消息<br>因為恐懼去毀屍滅跡<br><br>退一步<br>他們讓我們恐懼<br>進一身<br>他們為我們祭旗！<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/243074](https://www.guo.media/posts/243074) `2019-10-17T13:25:11`
+##
+
 **milesguo** 【翻譯】<br>彭博社10月17日： 美參議員無視中國威脅，繼續推進香港議案<br> <br>[https://spark.adobe.com/page/BSfkCKUmL2BSz/](https://spark.adobe.com/page/BSfkCKUmL2BSz/ "https://spark.adobe.com/page/BSfkCKUmL2BSz/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/243070](https://www.guo.media/posts/243070) `2019-10-17T13:10:10`
