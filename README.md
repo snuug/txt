@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>10月17日 香港活動時間表：<br><br>12:00 學界萬人大罷課大集會<br>             銀髮族參與，還陳彥霖真相<br>             地點：調景嶺HKDI設計大道<br><br>19:30 第二十次民間記者會<br><br>19:30 逆權公民放映會<br>             地點：大角咀街市對出半圓形  <br>                           空地（現場有義賣）<br><br>20:00 地厚天高放映會 <br>              地點：李鄭屋遊樂場<br><br>【MIZ】（香港文宣）<br><br>
+
+[https://www.guo.media/posts/242952](https://www.guo.media/posts/242952) `2019-10-17T03:25:09`
+##
+
 **milesguo** 【香港真相】<br>2019年6月-9月，香港共發現118具屍體！一定要查明真相，為死者伸冤！<br>From June to September 2019, 118 corpses were found in Hong Kong. <br>We need the truth and justice!<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/242936](https://www.guo.media/posts/242936) `2019-10-17T02:55:10`
