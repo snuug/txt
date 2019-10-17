@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Oct 16: Reasons why Hong Kong Police and local Triads are considered in collusion by public.<br>
+
+[https://www.guo.media/posts/242982](https://www.guo.media/posts/242982) `2019-10-17T05:25:10`
+##
+
 **milesguo** 【關注香港】<br>10月17日 香港活動時間表：<br><br>12:00 學界萬人大罷課大集會<br>             銀髮族參與，還陳彥霖真相<br>             地點：調景嶺HKDI設計大道<br><br>19:30 第二十次民間記者會<br><br>19:30 逆權公民放映會<br>             地點：大角咀街市對出半圓形  <br>                           空地（現場有義賣）<br><br>20:00 地厚天高放映會 <br>              地點：李鄭屋遊樂場<br><br>【MIZ】（香港文宣）<br><br>
 
 [https://www.guo.media/posts/242952](https://www.guo.media/posts/242952) `2019-10-17T03:25:09`
