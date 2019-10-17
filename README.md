@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月17号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/243050](https://www.guo.media/posts/243050) `2019-10-17T11:10:09`
+##
+
 **milesguo** 【翻译】<br>10月16日华尔街日报：尽管贸易战暂缓，中美之间更接近冷战 国土安全，人权问题导致分歧扩大<br><br>[https://spark.adobe.com/page/G048qYLac1vEL/](https://spark.adobe.com/page/G048qYLac1vEL/ "https://spark.adobe.com/page/G048qYLac1vEL/")<br><br>【MIZ】【北京姑娘聊天室】
 
 [https://www.guo.media/posts/243042](https://www.guo.media/posts/243042) `2019-10-17T10:10:09`
