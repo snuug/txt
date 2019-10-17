@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月16日: 众议院在15日《香港人权与民主法案》投票前再一次举行听证会，众多美国参议院大佬发言，如：McGovern、Smith、Suozzi、Young、McAdams、King、Daines等，他们说：美方每天都被提醒，勇敢的香港人對自由的渴望；其中法案的主要提案人、联邦众议员史密斯还用中文说“香港加油”，以此鼓励香港人。<br>【GM60】
+
+[https://www.guo.media/posts/242991](https://www.guo.media/posts/242991) `2019-10-17T05:55:09`
+##
+
 **milesguo** Oct 16: Reasons why Hong Kong Police and local Triads are considered in collusion by public.<br>
 
 [https://www.guo.media/posts/242982](https://www.guo.media/posts/242982) `2019-10-17T05:25:10`
