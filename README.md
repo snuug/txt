@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br>彭博社10月17日： 美參議員無視中國威脅，繼續推進香港議案<br> <br>[https://spark.adobe.com/page/BSfkCKUmL2BSz/](https://spark.adobe.com/page/BSfkCKUmL2BSz/ "https://spark.adobe.com/page/BSfkCKUmL2BSz/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/243070](https://www.guo.media/posts/243070) `2019-10-17T13:10:10`
+##
+
 **milesguo** 【关注香港】<br>救救香港！救救香港人！<br>谴责香港警暴对医护人道救援的阻拦与破坏！谴责警方对生命的藐视和暴行！数百数千的手足被捕、被失踪、被自杀，这是一场巨大的人道危机！<br>这不是任何群体的权益，这是普世救赎！<br>无论您是否信仰耶稣，请与我们为已经逝去的、正在抗争的；为过去、现在与未来共同祈祷：<br>主、耶稣基督，我们藉着洗礼与祢同死同葬；祢既藉着父的力量，从死中复活；求祢也使我们能度一种新生活。昔日的我们已与祢同钉在十字架上；求祢消除我们的罪愆，不再做罪恶的奴隶。我们既与祢同死，亦必与祢同生；死于罪恶，活于天主。<br><br>【MIZ】
 
 [https://www.guo.media/posts/243063](https://www.guo.media/posts/243063) `2019-10-17T12:10:10`
