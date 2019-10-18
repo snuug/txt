@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月18日：尊敬的战友们好！下周四的演讲至关重要……彭斯副总统是上天的使者……上帝的天使……也是和平善良的坚强守护者……没有人可以改变他那坚定灭共的信念……一切都是刚刚开始！
+
+[https://www.guo.media/posts/243439](https://www.guo.media/posts/243439) `2019-10-18T23:10:10`
+##
+
 **milesguo** 【關注香港】<br>嘿！朋友。你還在為被版權侵犯困擾麼？可以試試支持香港。<br>知名YouTuber「PewDiePie」在視頻中公開支持香港後遭到中共全網封殺。<br><br>【MIZ】
 
 [https://www.guo.media/posts/243436](https://www.guo.media/posts/243436) `2019-10-18T22:55:10`
