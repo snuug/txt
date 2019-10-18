@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月18日：每次看到这些勇敢无私伟大的战友，都让文资万分的感动……感谢你们……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏在10月15日与 Kim C 的一次战友连线☎️，触发了我的首播！一切都是刚刚开始！✊✊✊<br><br>[youtu.be/PUO-Sye\_4dQ](https://youtu.be/PUO-Sye_4dQ "youtu.be/PUO-Sye_4dQ")
+
+[https://www.guo.media/posts/243416](https://www.guo.media/posts/243416) `2019-10-18T18:55:10`
+##
+
 **milesguo** 10月18日：共产党到底是西门庆．还是潘金莲呢？这位天才的朋友美丽的歌声，给出了完美的答案！共产党就是个……一切都是刚刚开始！
 
 [https://www.guo.media/posts/243403](https://www.guo.media/posts/243403) `2019-10-18T17:40:09`
