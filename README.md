@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月18日：共产党到底是西门庆．还是潘金莲呢？这位天才的朋友美丽的歌声，给出了完美的答案！共产党就是个……一切都是刚刚开始！
+
+[https://www.guo.media/posts/243403](https://www.guo.media/posts/243403) `2019-10-18T17:40:09`
+##
+
 **milesguo** 【關注香港】<br>10月18日明報：陳百祥現身警署打氣︰如我做警務處長 兩個月前已開真槍 <br><br>向來支持警隊的陳百祥（阿叻）繼日前流出一張他與多位警察的合照後，今日再流出他疑到警署送奶茶、咖啡，慰勞警隊的片段。片段中，向來語出驚人的阿叻表示如果他是警務處長，兩個月前已開真槍﹗<br><br>原文链接：<br>[https://ol.mingpao.com/ldy/showbiz/latest/20191018/1571377157030/%e9%99%b3%e7%99%be%e7%a5%a5%e7%8f%be%e8%ba%ab%e8%ad%a6%e7%bd%b2%e6%89%93%e6%b0%a3-%e5%a6%82%e6%88%91%e5%81%9a%e8%ad%a6%e5%8b%99%e8%99%95%e9%95%b7-%e5%85%a9%e5%80%8b%e6%9c%88%e5%89%8d%e5%b7%b2%e9%96%8b%e7%9c%9f%e6%a7%8d](https://ol.mingpao.com/ldy/showbiz/latest/20191018/1571377157030/%e9%99%b3%e7%99%be%e7%a5%a5%e7%8f%be%e8%ba%ab%e8%ad%a6%e7%bd%b2%e6%89%93%e6%b0%a3-%e5%a6%82%e6%88%91%e5%81%9a%e8%ad%a6%e5%8b%99%e8%99%95%e9%95%b7-%e5%85%a9%e5%80%8b%e6%9c%88%e5%89%8d%e5%b7%b2%e9%96%8b%e7%9c%9f%e6%a7%8d "https://ol.mingpao.com/ldy/showbiz/latest/20191018/1571377157030/%e9%99%b3%e7%99%be%e7%a5%a5%e7%8f%be%e8%ba%ab%e8%ad%a6%e7%bd%b2%e6%89%93%e6%b0%a3-%e5%a6%82%e6%88%91%e5%81%9a%e8%ad%a6%e5%8b%99%e8%99%95%e9%95%b7-%e5%85%a9%e5%80%8b%e6%9c%88%e5%89%8d%e5%b7%b2%e9%96%8b%e7%9c%9f%e6%a7%8d")<br><br>【MIZ】<br>
 
 [https://www.guo.media/posts/243356](https://www.guo.media/posts/243356) `2019-10-18T14:40:09`
