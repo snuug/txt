@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月17日: 回顾这周重大事件！<br>岑子杰被打伤<br>NBA再跪地<br>江苏高架坍塌<br>中美贸易加5%关税谈判<br>新疆法案我们的在一起为新疆推动 【GM08】
+
+[https://www.guo.media/posts/243251](https://www.guo.media/posts/243251) `2019-10-18T04:25:10`
+##
+
 **milesguo** 【關注香港】<br>致敬勇敢堅強的香港女孩<br>她們也會怕黑，也會流淚<br>甚至恐懼，但是<br>她們從不站在人群之後<br>她們用盡全部力氣<br>去反抗，去爭取<br>讓我們一起守護<br>香港的女孩們<br>🙏🙏🙏🙏🙏🙏<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/243216](https://www.guo.media/posts/243216) `2019-10-18T02:40:10`
