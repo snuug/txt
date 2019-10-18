@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>嘿！朋友。你還在為被版權侵犯困擾麼？可以試試支持香港。<br>知名YouTuber「PewDiePie」在視頻中公開支持香港後遭到中共全網封殺。<br><br>【MIZ】
+
+[https://www.guo.media/posts/243436](https://www.guo.media/posts/243436) `2019-10-18T22:55:10`
+##
+
 **milesguo** 10月18日：每次看到这些勇敢无私伟大的战友，都让文资万分的感动……感谢你们……🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏在10月15日与 Kim C 的一次战友连线☎️，触发了我的首播！一切都是刚刚开始！✊✊✊<br><br>[youtu.be/PUO-Sye\_4dQ](https://youtu.be/PUO-Sye_4dQ "youtu.be/PUO-Sye_4dQ")
 
 [https://www.guo.media/posts/243416](https://www.guo.media/posts/243416) `2019-10-18T18:55:10`
