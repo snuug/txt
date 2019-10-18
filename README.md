@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1018号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗！一个半小时后，纽约时间18号上午9:30到10:00之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天，一切都是刚刚开始！
+
+[https://www.guo.media/posts/243341](https://www.guo.media/posts/243341) `2019-10-18T12:10:10`
+##
+
 **milesguo** 【國際新聞】<br><br>由捷克前總統哈維爾所創立的Forum 2000 國際論壇 發表聲明撐香港<br><br>聲明全文鏈接：<br><br>[https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg\_d8\_3uqcCIHA](https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA "https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA")<br><br>【MIZ】
 
 [https://www.guo.media/posts/243327](https://www.guo.media/posts/243327) `2019-10-18T09:55:09`
