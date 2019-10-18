@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【國際新聞】<br><br>由捷克前總統哈維爾所創立的Forum 2000 國際論壇 發表聲明撐香港<br><br>聲明全文鏈接：<br><br>[https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg\_d8\_3uqcCIHA](https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA "https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA")<br><br>【MIZ】
+
+[https://www.guo.media/posts/243327](https://www.guo.media/posts/243327) `2019-10-18T09:55:09`
+##
+
 **milesguo** 【转载】Christian Dior中國地圖出錯急忙澄清道歉<br><br>Now新聞台10月18日：繼NBA、美國蘋果公司、高級品牌Tiffany，再有西方企業「得罪」中國。這次是法國奢侈時尚品牌Christian Dior，風波源自一幅地圖。<br><br>美國《華爾街日報》報道Dior星期三在浙江工商大學一場學生簡介會上，用了一幅不包括台灣的中國地圖，當時Dior員工正招募實習生，答問環節時有同學問為何展示的中國地圖看不到台灣。<br><br>工作人員回應指公司稱呼台灣和香港為中國台灣、中國香港，內地則叫做中國大陸，三地合稱為Great China。<br><br>有同學不滿解釋，更發現地圖上連西藏也消失了，片段在內地社交網絡廣傳。<br><br>Dior立即「救火」，在微博發聲明指對於有關員工「錯誤描述並錯誤解釋」深表歉意和不安，強調是不代表公司立場的員工個人失當行為，承諾嚴肅處理、認真調查。<br><br>除了跟員工「割席」，Dior又重申維護一個中國原則，珍惜中國人民的情感，說Dior是「中國的朋友」、「誠摯熱愛之心無可置疑！」，不知內地消費者對這番肺腑之言「收貨」嗎？<br><br>新闻链接：<br>[http://news.now.com/home/international/player?newsId=366716](https://news.now.com/home/international/player?newsId=366716 "http://news.now.com/home/international/player?newsId=366716")<br><br>【MIZ】<br><br>
 
 [https://www.guo.media/posts/243321](https://www.guo.media/posts/243321) `2019-10-18T09:10:09`
