@@ -348,33 +348,3 @@
 [https://www.guo.media/posts/241621](https://www.guo.media/posts/241621) `2019-10-13T14:10:10`
 ##
 
-**milesguo** 【香港真相】<br>蘋果日報刊登了一份所謂「自殺」死亡名單，從6月12號到10月10號，一共隕落118位香港人！無論是膠帶封口的大海浮屍，還是「跳樓」身亡，卻連個進入大樓的影像都沒有被監控拍到的死者，統統被警方鑒定為「自殺」！<br>這些記錄令人心痛！<br>我們需要的是充滿拯救、人性、希望的香港辛德勒名單，不是這樣一份死亡名單！<br>有記錄的死者已經高達118位，還有更多的無名失蹤抗議者呢？他們是生是死？他們此時此刻在哪裡？他們是否正遭受非人折磨？他們是我們的同胞手足！<br>覺醒！覺醒！覺醒！<br>傳播香港真相，我們需要的不僅是西方社會對中共極權意識形態腐蝕的覺醒，更重要的是我們自己的覺醒！<br>難道十四億被奴役的中國人無法反抗數百暴政家族？！<br>難道七百萬曾經擁有自由的香港人，無法守護為自由而戰的自己的孩子？！<br>團結起來，傳播真相，終結死亡名單！<br>歷史會證明一切！<br><br>【MIZ】
-
-[https://www.guo.media/posts/241477](https://www.guo.media/posts/241477) `2019-10-13T03:55:09`
-##
-
-**milesguo** 【關注香港】<br>美國總統川普與中共簽初步協議後稱「香港抗議運動在淡化」，對香港堅持抗議的手足同胞造成了巨大傷害！四個月的堅持每一分鐘都有血淚！<br>看中方代表團個個滿面笑容，看美方代表團的表情一言難盡！真的是中共又贏一局？<br>沒錯！但一切剛剛開始！我們絕不會放棄！香港抗議運動即將迎來最艱難的時刻！起而伏之，伏而起之！爆料革命不是請客吃飯，西方世界反共已成共識，需要的只是時間，我們不僅會贏，而且會大贏！民主法治不是免費的午餐，我們相信西方社會的正義力量，更相信我們自己的力量！香港抗議運動為自由而生，更不會改變初衷！<br>手足同胞，互相守望，四海戰友，傳播真相！不割席、不篤灰；不拋棄，不放棄！<br>中國大陸人、香港人、新疆人、西藏人、台灣人，團結起來，為我們自己、為孩子未來的光明加油！<br><br>【MIZ】
-
-[https://www.guo.media/posts/241399](https://www.guo.media/posts/241399) `2019-10-13T00:10:09`
-##
-
-**milesguo** 【台灣新聞】<br><br>路透社10月10日: 台灣領導人拒絕中國「一國兩制」的提議<br><br>原文鏈接：<br><br>[https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB](https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB "https://uk.reuters.com/article/uk-taiwan-anniversary-president-idUKKBN1WP0BB")<br><br>【北京姑娘聊天室】【MIZ】
-
-[https://www.guo.media/posts/241281](https://www.guo.media/posts/241281) `2019-10-12T15:10:10`
-##
-
-**milesguo** 10月12号：与战友们分SNOW吃酸奶的片刻……一切都是刚刚开始！
-
-[https://www.guo.media/posts/241277](https://www.guo.media/posts/241277) `2019-10-12T14:55:10`
-##
-
-**milesguo** 10月12号：与战友们分享．我太太刚刚为我组装的太空母舰……一切都是刚刚开始！
-
-[https://www.guo.media/posts/241276](https://www.guo.media/posts/241276) `2019-10-12T14:55:13`
-##
-
-**milesguo** 10月12号：尊敬的战友们好！一个小时后……文贵将在郭媒体开始星期六直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/241241](https://www.guo.media/posts/241241) `2019-10-12T12:40:09`
-##
-
