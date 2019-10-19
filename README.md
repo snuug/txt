@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>Now新聞10月19日： 一名19歲的本地男子，在大埔連儂牆懷疑與另一名政見不同的男子爭執後，被另一名男子用刀襲擊傷頸及腹部，腸臟外露，並倒臥在地上。有救護員到場為他救治，後送到威爾斯醫院治理，送院時清醒。警方拘捕一名22歲內地男子。<br><br>傷者的朋友表示，他們在附近派周日遊行的傳單，突然被一名手持生果刀的男子襲擊。<br><br>新聞鏈接：[http://news.now.com/home/local/player?newsId=366854](https://news.now.com/home/local/player?newsId=366854 "http://news.now.com/home/local/player?newsId=366854") 
+
+[https://www.guo.media/posts/243596](https://www.guo.media/posts/243596) `2019-10-19T12:40:10`
+##
+
 **milesguo** 【關注香港】10.20 九龍大遊行<br><br>警方反對<br>白色恐怖<br>也絕不妥協<br>堅持到底<br>香港人， 反抗！<br><br>【MIZ】（香港文宣）<br>
 
 [https://www.guo.media/posts/243591](https://www.guo.media/posts/243591) `2019-10-19T12:25:10`
