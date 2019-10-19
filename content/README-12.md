@@ -13,6 +13,8 @@
 
 ## 頁面 12/20 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [20](/content/README-20.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
+
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
@@ -60,8 +62,6 @@
 [郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180425-6089618542439587251.md)
 
 [文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/2018/04/20180425-1035788071787459036.md)
-
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/2018/04/20180422-7434374756497601766.md)
 
 
 ## 頁面 12/20 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [20](/content/README-20.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

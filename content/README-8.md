@@ -13,6 +13,8 @@
 
 ## 頁面 8/20 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [20](/content/README-20.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月16日郭先生报平安视频（上，下）](/content/2019/01/20190118-5239795096969232686.md)
+
 [文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/2019/01/20190113-3654521321996198385.md)
 
 [文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
@@ -60,8 +62,6 @@
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/content/2018/11/20181129-7314078079125955077.md)
 
 [翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/content/2018/11/20181124-4765015310552564158.md)
-
-[翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/2018/11/20181124-4394519846774733520.md)
 
 
 ## 頁面 8/20 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [20](/content/README-20.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
