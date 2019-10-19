@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 10月19号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？有时看看老照片．还好这个手机里有几个月前路德先生．Sara女士．几个月前来纽约时的照片．别有一番风情！一切都是刚刚开始！
+
+[https://www.guo.media/posts/243608](https://www.guo.media/posts/243608) `2019-10-19T14:10:10`
+##
+
+**milesguo** 【关注香港】<br>#Stand with HK   How can we help?<br>我们能做些什么来帮助香港人？<br><br>• 制作表情包，海报，绘画，视频等宣传品<br><br>• 加入网上抗议，各种活动，推特，分享传播<br><br>• 呼吁国际慈善组织帮助香港示威者<br><br>• 将香港警察暴行报告给国际警察协会<br><br>• 减少对中国产品和中国公司的依赖<br><br>• 在你的社区建立连侬墙<br><br>• 寄给香港示威者各种保护装备<br><br>• 参加当地的#STANDWITHHK 接力活动<br><br>• 暂缓到香港的旅行计划，直到香港政府满足了五大诉求<br><br>【MIZ】（香港文宣）<br><br><br><br>
+
+[https://www.guo.media/posts/243605](https://www.guo.media/posts/243605) `2019-10-19T14:10:13`
+##
+
 **milesguo** 【關注香港】<br>Now新聞10月19日： 一名19歲的本地男子，在大埔連儂牆懷疑與另一名政見不同的男子爭執後，被另一名男子用刀襲擊傷頸及腹部，腸臟外露，並倒臥在地上。有救護員到場為他救治，後送到威爾斯醫院治理，送院時清醒。警方拘捕一名22歲內地男子。<br><br>傷者的朋友表示，他們在附近派周日遊行的傳單，突然被一名手持生果刀的男子襲擊。<br><br>新聞鏈接：[http://news.now.com/home/local/player?newsId=366854](https://news.now.com/home/local/player?newsId=366854 "http://news.now.com/home/local/player?newsId=366854") 
 
 [https://www.guo.media/posts/243596](https://www.guo.media/posts/243596) `2019-10-19T12:40:10`
