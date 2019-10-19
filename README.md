@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>HKFP香港自由新闻10月18日: 中文大学负责人在听取了20名学生在警察拘留所中遭受虐待的陈述后呼吁进行独立调查<br><br>[https://spark.adobe.com/page/GC3rEaQtYKWBi/](https://spark.adobe.com/page/GC3rEaQtYKWBi/ "https://spark.adobe.com/page/GC3rEaQtYKWBi/")<br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/243532](https://www.guo.media/posts/243532) `2019-10-19T05:40:10`
+##
+
 **milesguo** 【關注香港】<br><br>他們放棄了自己的假期與朋友一起旅行<br>他們犧牲了他們的青春為保衛這片熱土<br>他們只是普通的香港人<br>他們與我們有一樣的生活<br>勇武派<br>你累了 就休息一會兒<br>10月20日<br>我們並齊腳步再次出發<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/243523](https://www.guo.media/posts/243523) `2019-10-19T04:55:09`
