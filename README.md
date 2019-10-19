@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>他們放棄了自己的假期與朋友一起旅行<br>他們犧牲了他們的青春為保衛這片熱土<br>他們只是普通的香港人<br>他們與我們有一樣的生活<br>勇武派<br>你累了 就休息一會兒<br>10月20日<br>我們並齊腳步再次出發<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/243523](https://www.guo.media/posts/243523) `2019-10-19T04:55:09`
+##
+
 **milesguo** 【關注香港】<br><br>香港人經歷了真正的自由<br>才懂得自由的寶貴<br>他們明白什麼是真正的幸福<br>所以才拒絕近在咫尺的“中國夢”<br><br>【MIZ】（香港文宣）
 
 [https://www.guo.media/posts/243522](https://www.guo.media/posts/243522) `2019-10-19T04:40:10`
