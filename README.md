@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】國家評論 10月17日：美國正在中國化嗎？<br><br>[https://spark.adobe.com/page/R8Q6q5pRwlyZ4/](https://spark.adobe.com/page/R8Q6q5pRwlyZ4/ "https://spark.adobe.com/page/R8Q6q5pRwlyZ4/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/243576](https://www.guo.media/posts/243576) `2019-10-19T11:25:09`
+##
+
 **milesguo** 【翻译】<br>HKFP香港自由新闻10月18日: 中文大学负责人在听取了20名学生在警察拘留所中遭受虐待的陈述后呼吁进行独立调查<br><br>[https://spark.adobe.com/page/GC3rEaQtYKWBi/](https://spark.adobe.com/page/GC3rEaQtYKWBi/ "https://spark.adobe.com/page/GC3rEaQtYKWBi/")<br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/243532](https://www.guo.media/posts/243532) `2019-10-19T05:40:10`
