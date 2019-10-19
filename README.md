@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br>2019年10月17日 The Guardian報道<br>“想想你的家人”中囯政府對抗議新疆問題的歐洲公民進行恐嚇<br><br>[https://spark.adobe.com/page/FlgtCgOM0brcP/](https://spark.adobe.com/page/FlgtCgOM0brcP/ "https://spark.adobe.com/page/FlgtCgOM0brcP/")<br><br>【北京姑娘聊天室】【MIZ】<br>
+
+[https://www.guo.media/posts/243518](https://www.guo.media/posts/243518) `2019-10-19T04:25:09`
+##
+
 **milesguo** 10月18日：尊敬的战友们好！下周四的演讲至关重要……彭斯副总统是上天的使者……上帝的天使……也是和平善良的坚强守护者……没有人可以改变他那坚定灭共的信念……一切都是刚刚开始！
 
 [https://www.guo.media/posts/243439](https://www.guo.media/posts/243439) `2019-10-18T23:10:10`
