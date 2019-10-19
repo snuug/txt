@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>香港人經歷了真正的自由<br>才懂得自由的寶貴<br>他們明白什麼是真正的幸福<br>所以才拒絕近在咫尺的“中國夢”<br><br>【MIZ】（香港文宣）
+
+[https://www.guo.media/posts/243522](https://www.guo.media/posts/243522) `2019-10-19T04:40:10`
+##
+
 **milesguo** 【翻譯】<br>2019年10月17日 The Guardian報道<br>“想想你的家人”中囯政府對抗議新疆問題的歐洲公民進行恐嚇<br><br>[https://spark.adobe.com/page/FlgtCgOM0brcP/](https://spark.adobe.com/page/FlgtCgOM0brcP/ "https://spark.adobe.com/page/FlgtCgOM0brcP/")<br><br>【北京姑娘聊天室】【MIZ】<br>
 
 [https://www.guo.media/posts/243518](https://www.guo.media/posts/243518) `2019-10-19T04:25:09`
