@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】10.20 九龍大遊行<br><br>警方反對<br>白色恐怖<br>也絕不妥協<br>堅持到底<br>香港人， 反抗！<br><br>【MIZ】（香港文宣）<br>
+
+[https://www.guo.media/posts/243591](https://www.guo.media/posts/243591) `2019-10-19T12:25:10`
+##
+
 **milesguo** 【翻譯】國家評論 10月17日：美國正在中國化嗎？<br><br>[https://spark.adobe.com/page/R8Q6q5pRwlyZ4/](https://spark.adobe.com/page/R8Q6q5pRwlyZ4/ "https://spark.adobe.com/page/R8Q6q5pRwlyZ4/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/243576](https://www.guo.media/posts/243576) `2019-10-19T11:25:09`
