@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <@438727917715980298> <br><br>【关注香港】10月20日 黑警假扮示威者被港人抓包 黑警穿花衣服假扮示威者用油漆污染警署的招牌，然后该“示威者”屁颠屁颠地跑回了警署，一大群警察守候迎接。全程被照片拍摄在案。港人在用相机直播共产党的愚蠢。就这么愚蠢的中共统治了14亿人70年。【GM09】<br><br>新闻来源：<br>[https://twitter.com/Msktpp1\_2020/status/1185928227723841536](https://twitter.com/Msktpp1_2020/status/1185928227723841536 "https://twitter.com/Msktpp1_2020/status/1185928227723841536") 
+
+[https://www.guo.media/posts/243988](https://www.guo.media/posts/243988) `2019-10-20T18:56:15`
+##
+
 **milesguo** 10月20号：这个小五是何方神圣啊？一听就是政事大伯的变音版……这又是属于哪个帮派？一切都是刚刚开始！[https://youtu.be/7TS8HdMIYns](https://youtu.be/7TS8HdMIYns "https://youtu.be/7TS8HdMIYns")
 
 [https://www.guo.media/posts/243960](https://www.guo.media/posts/243960) `2019-10-20T15:40:13`
