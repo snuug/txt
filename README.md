@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】中国时间10月20日香港实况：<br>中午12点53分：油麻地港铁封闭不要继续。<br>中午12点54分：大榄隧道布满警察，不建议前进。<br>中午13点00分：请确保带上雨伞。今天很热。【GM22】
+
+[https://www.guo.media/posts/243807](https://www.guo.media/posts/243807) `2019-10-20T06:10:12`
+##
+
 **milesguo** 【翻譯】路透社10月19日:<br><br>白宮官員：彭斯將於下週四發表對華政策演講<br><br>[https://spark.adobe.com/page/9AhWqlnTKDb1E/](https://spark.adobe.com/page/9AhWqlnTKDb1E/ "https://spark.adobe.com/page/9AhWqlnTKDb1E/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/243755](https://www.guo.media/posts/243755) `2019-10-20T04:40:12`
