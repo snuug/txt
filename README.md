@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月19日: 香港同胞为我们所有人而战✊✊✊
+
+[https://www.guo.media/posts/243751](https://www.guo.media/posts/243751) `2019-10-20T04:25:56`
+##
+
 **milesguo** 【香港真相】<br>港警对手无寸铁的香港人民滥用武力数据：（截止到10月17日）<br><br>催泪弹  4800颗+<br>橡皮弹  1700颗+<br>海绵弹  600颗+<br>布袋弹  370颗+<br>实弹      10颗<br>抓捕       2595人 <br>                年龄从12岁—83岁<br><br>🆘立即解散重组警队<br><br>【MIZ】（香港文宣）<br><br><br><br><br><br><br>
 
 [https://www.guo.media/posts/243728](https://www.guo.media/posts/243728) `2019-10-20T03:10:11`
