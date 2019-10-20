@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】路透社10月19日:<br><br>白宮官員：彭斯將於下週四發表對華政策演講<br><br>[https://spark.adobe.com/page/9AhWqlnTKDb1E/](https://spark.adobe.com/page/9AhWqlnTKDb1E/ "https://spark.adobe.com/page/9AhWqlnTKDb1E/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/243755](https://www.guo.media/posts/243755) `2019-10-20T04:40:12`
+##
+
 **milesguo** 【关注香港】10月19日: 香港同胞为我们所有人而战✊✊✊
 
 [https://www.guo.media/posts/243751](https://www.guo.media/posts/243751) `2019-10-20T04:25:56`
