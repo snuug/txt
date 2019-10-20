@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港現場】<br>10月20日 文明的香港人👍<br><br>16:15  水炮車藍色水炮擊中清真寺，把部分建築染成藍色，當時清真寺前並沒有示威人群<br><br>17:00  大批市民自發前來清潔清真寺<br><br>【MIZ】
+
+[https://www.guo.media/posts/243878](https://www.guo.media/posts/243878) `2019-10-20T10:40:12`
+##
+
 **milesguo** 【关注香港】10月20日香港游行现场！感恩在现场的战友们🙏🙏<br>【GM33】
 
 [https://www.guo.media/posts/243853](https://www.guo.media/posts/243853) `2019-10-20T07:40:11`
