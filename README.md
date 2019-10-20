@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>大纪元时报10月18日：<br>中国“一带一路”项目游说力度在欧洲飞速发展而不为人知<br><br>[https://spark.adobe.com/page/uWsTARbzVQgDk/](https://spark.adobe.com/page/uWsTARbzVQgDk/ "https://spark.adobe.com/page/uWsTARbzVQgDk/")<br><br>【MIZ】【北京姑娘聊天室】
+
+[https://www.guo.media/posts/243937](https://www.guo.media/posts/243937) `2019-10-20T13:55:09`
+##
+
 **milesguo** 【香港現場】<br>10月20日 文明的香港人👍<br><br>16:15  水炮車藍色水炮擊中清真寺，把部分建築染成藍色，當時清真寺前並沒有示威人群<br><br>17:00  大批市民自發前來清潔清真寺<br><br>【MIZ】
 
 [https://www.guo.media/posts/243878](https://www.guo.media/posts/243878) `2019-10-20T10:40:12`
