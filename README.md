@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】香港时间10月19日，战友之声VOG媒体人在香港游行现场直播，普通话解说📣📣📣📣<br><br>[https://youtu.be/GDrZL89KHos](https://youtu.be/GDrZL89KHos "https://youtu.be/GDrZL89KHos")
+
+[https://www.guo.media/posts/243825](https://www.guo.media/posts/243825) `2019-10-20T06:55:10`
+##
+
 **milesguo** 【香港現場】<br><br>10月20日香港九龍大遊行開始<br><br>13:46  尖沙咀 梳士巴利道<br>梳士巴利道公園內有大量市民加入遊行。<br><br>14:08 尖沙咀 彌敦道<br>各國持旗手出現，當中以英國及美國國旗較多。<br><br>香港人，加油！<br><br>【MIZ】
 
 [https://www.guo.media/posts/243816](https://www.guo.media/posts/243816) `2019-10-20T06:25:11`
