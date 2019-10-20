@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月20号：这个小五是何方神圣啊？一听就是政事大伯的变音版……这又是属于哪个帮派？一切都是刚刚开始！[https://youtu.be/7TS8HdMIYns](https://youtu.be/7TS8HdMIYns "https://youtu.be/7TS8HdMIYns")
+
+[https://www.guo.media/posts/243960](https://www.guo.media/posts/243960) `2019-10-20T15:40:13`
+##
+
 **milesguo** 【关注香港】中国时间10月20日香港下午15点41分——15点52分香港现场图文直播【GM02】【GM22】
 
 [https://www.guo.media/posts/243958](https://www.guo.media/posts/243958) `2019-10-20T15:25:12`
