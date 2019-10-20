@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月20号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/243942](https://www.guo.media/posts/243942) `2019-10-20T14:25:13`
+##
+
 **milesguo** 【翻译】<br><br>大纪元时报10月18日：<br>中国“一带一路”项目游说力度在欧洲飞速发展而不为人知<br><br>[https://spark.adobe.com/page/uWsTARbzVQgDk/](https://spark.adobe.com/page/uWsTARbzVQgDk/ "https://spark.adobe.com/page/uWsTARbzVQgDk/")<br><br>【MIZ】【北京姑娘聊天室】
 
 [https://www.guo.media/posts/243937](https://www.guo.media/posts/243937) `2019-10-20T13:55:09`
