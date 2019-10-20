@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月20日香港游行现场！感恩在现场的战友们🙏🙏<br>【GM33】
+
+[https://www.guo.media/posts/243853](https://www.guo.media/posts/243853) `2019-10-20T07:40:11`
+##
+
+**milesguo** 【香港現場】<br>10月20日香港九龍大遊行<br><br>14:03 尖沙咀 梳士巴利公園<br>有市民於梳士巴利公園展開十八區簽名巨型橫幅<br><br>15:14 尖沙咀 尖沙咀警署<br>多次槍聲，已發射多發催淚彈<br><br>【MIZ】<br><br><br><br><br>
+
+[https://www.guo.media/posts/243851](https://www.guo.media/posts/243851) `2019-10-20T07:40:14`
+##
+
 **milesguo** 【关注香港】香港时间10月19日，战友之声VOG媒体人在香港游行现场直播，普通话解说📣📣📣📣<br><br>[https://youtu.be/GDrZL89KHos](https://youtu.be/GDrZL89KHos "https://youtu.be/GDrZL89KHos")
 
 [https://www.guo.media/posts/243825](https://www.guo.media/posts/243825) `2019-10-20T06:55:10`
