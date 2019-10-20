@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】中国时间10月20日香港下午15点41分——15点52分香港现场图文直播【GM02】【GM22】
+
+[https://www.guo.media/posts/243958](https://www.guo.media/posts/243958) `2019-10-20T15:25:12`
+##
+
 **milesguo** 10月20号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/243942](https://www.guo.media/posts/243942) `2019-10-20T14:25:13`
