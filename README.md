@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月19日香港同胞的宣传图片📣📣📣📣
+
+[https://www.guo.media/posts/243700](https://www.guo.media/posts/243700) `2019-10-20T01:40:12`
+##
+
 **milesguo** 10月19日：陈彦霖少女的死因－将是香港人……了解共产党对所有香港人有多大威胁……共产党有多邪恶……最好的案例……一切都是刚刚开始！
 
 [https://www.guo.media/posts/243699](https://www.guo.media/posts/243699) `2019-10-20T01:25:11`
