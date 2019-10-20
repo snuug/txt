@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong on Oct 20th<br><br>【GM02】
+
+[https://www.guo.media/posts/244014](https://www.guo.media/posts/244014) `2019-10-20T23:55:12`
+##
+
 **milesguo** 【关注香港】10月20日: 香港队长✊✊✊✊By 文希<br>【GM33】<br>
 
 [https://www.guo.media/posts/244006](https://www.guo.media/posts/244006) `2019-10-20T23:10:10`
