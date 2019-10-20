@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月20日香港游行海报📣📣📣📣📣📣📣📣📣📣📣📣📣📣【GM22】
+
+[https://www.guo.media/posts/243719](https://www.guo.media/posts/243719) `2019-10-20T02:55:11`
+##
+
 **milesguo** 【香港真相】<br><br>誰是暴徒<br>誰在謀殺<br>香港人在流血<br><br>關注今日10.20 九龍大遊行<br>香港本地時間13:30<br><br>天佑香港🙏🙏🙏<br><br>【MIZ】（香港文宣）<br>
 
 [https://www.guo.media/posts/243708](https://www.guo.media/posts/243708) `2019-10-20T02:10:11`
