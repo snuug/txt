@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港日程】<br>10月21日<br><br>19:00 勿忘721 元郎恐襲三個月靜坐<br><br>警黑社會合作<br>無差別襲擊市民<br>香港人流的每一滴血都不能忘記<br><br>【MIZ】<br>
+
+[https://www.guo.media/posts/244070](https://www.guo.media/posts/244070) `2019-10-21T05:10:10`
+##
+
 **milesguo** 【關注香港】<br><br>為信念<br>從沒有後退<br>冒著藍色水炮<br>勇敢前行<br><br>In faith, banners high<br>We pledge to fight<br>They spray us blue<br>We make it through<br><br>【MIZ】
 
 [https://www.guo.media/posts/244023](https://www.guo.media/posts/244023) `2019-10-21T01:25:11`
