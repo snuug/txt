@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br>10月21日 ABC新闻：澳大利亚总理莫里森利用本周末在雅加达出席印尼总统佐科·维多多（Joko Widodo）就职仪式的机会，会见了中国国家副主席王岐山。<br><br>• 中澳在几个问题上关系紧张<br>• 莫里森称，澳大利亚不会被“亲美或亲中”的二元论所束缚<br>• 莫里森在会面时强调“澳大利亚是独立主权国家”<br><br>与王岐山会谈后，莫里森没有收到访华的邀请。莫里森表示，王岐山是习近平主席的特使，无法发出任何邀请。<br><br>与此同时，洛伊研究所（Lowy Institute）今天（10月21日）发布的一份报告警告称，如果不增加在太平洋地区的援助预算总额，那么澳大利亚在该地区的战略地位可能会进一步处于劣势。该报告名为《债务的海洋？一带一路以及太平洋地区的债务外交》（Ocean of debt? Belt and Road and debt diplomacy in the Pacific）<br><br>原文链接：<br><br>[https://www.abc.net.au/chinese/2019-10-21/scott-morrison-meets-with-chinese-vice-president-in-jakarta/11622954](https://www.abc.net.au/chinese/2019-10-21/scott-morrison-meets-with-chinese-vice-president-in-jakarta/11622954 "https://www.abc.net.au/chinese/2019-10-21/scott-morrison-meets-with-chinese-vice-president-in-jakarta/11622954")<br><br>【MIZ】<br><br><br>
+
+[https://www.guo.media/posts/244148](https://www.guo.media/posts/244148) `2019-10-21T10:10:12`
+##
+
 **milesguo** 【關注香港】今天是香港元朗7.21三個月的記念日，那是警黑合作的開始，是香港進入「警察治港」的標誌性日子。香港在共產黨手中被玩弄蹂躪，市民權利被侵犯，年輕的被捕者被性侵被殘殺......這一幕幕血淋淋的事實那麼真實地呈現在大眾的視線之中，一再挑戰著我們的善良底線。但香港人沒有被恐懼吓怕，而是更勇敢地站出來抗爭！他們也無懼林鄭的「緊急法」和「禁幪面法」，反而更加讓大家團結在一起。今晚的靜坐就是香港人發出的又一強音：港人沒有忘記7.21！　香港人　反抗！<br><br>【GM02】【GM42】
 
 [https://www.guo.media/posts/244120](https://www.guo.media/posts/244120) `2019-10-21T07:25:11`
