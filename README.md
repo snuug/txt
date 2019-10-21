@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br>10.21多家公立醫院今日中午發起靜坐<br>他們手舉口號：<br>醫護市民 一起同行<br>抗議警察濫捕<br>不要白色恐怖<br>心存良知 守護公義<br>五大訴求 缺一不可<br>守護自由 絕不投降<br>香港人 反抗<br><br>【MIZ】
+
+[https://www.guo.media/posts/244109](https://www.guo.media/posts/244109) `2019-10-21T07:11:10`
+##
+
 **milesguo** 【香港日程】<br>10月21日<br>12:30 醫民同行 保護病人權益午間靜坐<br><br>抗議防爆警察持槍進入醫院<br>抗議男警強行進入產房<br>譴責警察威嚇醫護人員<br>聲援醫護人員無辜被捕<br><br>【MIZ】
 
 [https://www.guo.media/posts/244073](https://www.guo.media/posts/244073) `2019-10-21T05:25:11`
