@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港現場】<br>10月21日 勿忘7.21 恐怖襲擊三個月靜坐 黑警向市民狂射催淚彈<br><br>【MIZ】<br>
+
+[https://www.guo.media/posts/244261](https://www.guo.media/posts/244261) `2019-10-21T17:25:09`
+##
+
 **milesguo** 【翻译】<br>路透社10月18日：与美国贸易谈判后，中国加大了对巴西大豆的购买<br><br>[https://spark.adobe.com/page/iBxCfQ1xpcaBd/](https://spark.adobe.com/page/iBxCfQ1xpcaBd/ "https://spark.adobe.com/page/iBxCfQ1xpcaBd/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/244246](https://www.guo.media/posts/244246) `2019-10-21T16:25:12`
