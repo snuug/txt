@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】10月21日：721元朗恐袭三个月！入夜后的元朗，黑警又开始大肆抓捕抗议者，中共不灭，永无宁日！【GM30】
+
+[https://www.guo.media/posts/244278](https://www.guo.media/posts/244278) `2019-10-21T18:40:11`
+##
+
 **milesguo** 【香港現場】<br>10月21日 勿忘7.21 恐怖襲擊三個月靜坐 黑警向市民狂射催淚彈<br><br>【MIZ】<br>
 
 [https://www.guo.media/posts/244261](https://www.guo.media/posts/244261) `2019-10-21T17:25:09`
