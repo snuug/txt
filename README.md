@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>為信念<br>從沒有後退<br>冒著藍色水炮<br>勇敢前行<br><br>In faith, banners high<br>We pledge to fight<br>They spray us blue<br>We make it through<br><br>【MIZ】
+
+[https://www.guo.media/posts/244023](https://www.guo.media/posts/244023) `2019-10-21T01:25:11`
+##
+
 **milesguo** Hong Kong on Oct 20th<br><br>【GM02】
 
 [https://www.guo.media/posts/244014](https://www.guo.media/posts/244014) `2019-10-20T23:55:12`
