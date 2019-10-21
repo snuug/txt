@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港日程】<br>10月21日<br>12:30 醫民同行 保護病人權益午間靜坐<br><br>抗議防爆警察持槍進入醫院<br>抗議男警強行進入產房<br>譴責警察威嚇醫護人員<br>聲援醫護人員無辜被捕<br><br>【MIZ】
+
+[https://www.guo.media/posts/244073](https://www.guo.media/posts/244073) `2019-10-21T05:25:11`
+##
+
 **milesguo** 【香港日程】<br>10月21日<br><br>19:00 勿忘721 元郎恐襲三個月靜坐<br><br>警黑社會合作<br>無差別襲擊市民<br>香港人流的每一滴血都不能忘記<br><br>【MIZ】<br>
 
 [https://www.guo.media/posts/244070](https://www.guo.media/posts/244070) `2019-10-21T05:10:10`
