@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>路透社10月18日：与美国贸易谈判后，中国加大了对巴西大豆的购买<br><br>[https://spark.adobe.com/page/iBxCfQ1xpcaBd/](https://spark.adobe.com/page/iBxCfQ1xpcaBd/ "https://spark.adobe.com/page/iBxCfQ1xpcaBd/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/244246](https://www.guo.media/posts/244246) `2019-10-21T16:25:12`
+##
+
+**milesguo** 10月21日：文贵马上会第二次直播……关于香港紧急公告，一切都是刚刚开始！
+
+[https://www.guo.media/posts/244244](https://www.guo.media/posts/244244) `2019-10-21T16:25:15`
+##
+
 **milesguo** 10月21日: “中国共产党最后的晚餐” 图片宣传—-By 明月清风<br>【GM08】
 
 [https://www.guo.media/posts/244239](https://www.guo.media/posts/244239) `2019-10-21T16:10:11`
