@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月21号：尊敬的战友们好！半小时内文贵报平安直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/244218](https://www.guo.media/posts/244218) `2019-10-21T14:25:10`
+##
+
 **milesguo** 10月21号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始🙏
 
 [https://www.guo.media/posts/244187](https://www.guo.media/posts/244187) `2019-10-21T13:55:11`
