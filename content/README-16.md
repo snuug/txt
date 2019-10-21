@@ -13,6 +13,8 @@
 
 ## 頁面 16/20 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
+
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/2018/04/20180418-1652882263538149002.md)
 
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/2018/04/20180418-6784868507419879908.md)
@@ -60,8 +62,6 @@
 [Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/2018/04/20180418-7095490617264238723.md)
 
 [Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/2018/04/20180418-2982915845250551148.md)
-
-[11月8日文贵twitter再次被封7天后的报平安视频](/content/2018/04/20180418-7262790199483543364.md)
 
 
 ## 頁面 16/20 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

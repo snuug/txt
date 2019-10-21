@@ -13,6 +13,8 @@
 
 ## 頁面 2/20 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [20](/content/README-20.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
+
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/content/2019/09/20190911-4067565485172047887.md)
 
 [文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/content/2019/09/20190910-2862056043397167369.md)
@@ -60,8 +62,6 @@
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
-
-[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/2019/08/20190811-3305401800182542531.md)
 
 
 ## 頁面 2/20 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [20](/content/README-20.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
