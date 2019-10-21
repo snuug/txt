@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月21日: “中国共产党最后的晚餐” 图片宣传—-By 明月清风<br>【GM08】
+
+[https://www.guo.media/posts/244239](https://www.guo.media/posts/244239) `2019-10-21T16:10:11`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/244228](https://www.guo.media/posts/244228) `2019-10-21T14:55:13`
