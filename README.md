@@ -12,6 +12,17 @@
 ## 最新郭文
 
 
+**liuabing11** 
+【新闻】10月15日台湾自由时报报导：中國經濟急速下滑！郭文貴先生爆：現在GDP基本上是0
+ 
+受美中貿易戰和國內需求疲軟等內外因素衝擊，中國經濟持續放緩，中國反共富豪郭文貴美東時間12日直播爆料，中國現在國內生產毛額（GDP）成長「基本上是0」，如今沒有多少外國企業會願意繼續在中國投資，他還預告自明年4月起，中國經濟會開始真正「倒下來」。【GM45】
+ 
+[https://ec.ltn.com.tw/article/breakingnews/2945760](https://ec.ltn.com.tw/article/breakingnews/2945760)
+
+
+[https://www.guo.media/posts/](https://www.guo.media/posts/) `2019-10-15T07:55:11`
+##
+
 **milesguo** 【翻译】<br><br>CNBC10月21日: 蓬佩奥说，中国对美国企业的攻击“完全不恰当”<br><br>[https://spark.adobe.com/page/TJlwuvntwhzF1/](https://spark.adobe.com/page/TJlwuvntwhzF1/ "https://spark.adobe.com/page/TJlwuvntwhzF1/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/244364](https://www.guo.media/posts/244364) `2019-10-22T02:55:11`
