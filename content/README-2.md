@@ -13,6 +13,10 @@
 
 ## 頁面 2/20 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [20](/content/README-20.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
+
+[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/content/2019/09/20190915-1829806510018363153.md)
+
 [文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
 
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/content/2019/09/20190911-4067565485172047887.md)
@@ -58,10 +62,6 @@
 [文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/2019/08/20190814-2176259177090842759.md)
 
 [文字版：8月12日文贵在车上直播](/content/2019/08/20190814-5736259304944176367.md)
-
-[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
-
-[文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
 
 
 ## 頁面 2/20 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [20](/content/README-20.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
