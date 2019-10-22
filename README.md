@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>CNBC10月21日: 蓬佩奥说，中国对美国企业的攻击“完全不恰当”<br><br>[https://spark.adobe.com/page/TJlwuvntwhzF1/](https://spark.adobe.com/page/TJlwuvntwhzF1/ "https://spark.adobe.com/page/TJlwuvntwhzF1/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/244364](https://www.guo.media/posts/244364) `2019-10-22T02:55:11`
+##
+
 **milesguo** 10月21日：这就是香港黑井犯罪作案的……共产党的<br>欲盖弥彰……,必将成为被审判的证据……上天有眼，一切都是刚刚开始！
 
 [https://www.guo.media/posts/244354](https://www.guo.media/posts/244354) `2019-10-22T02:10:13`
