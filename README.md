@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月22号：尊敬的战友们好！你们健身了吗！你们传播香港危机真相了吗？文贵将在今天上午．10:30 11:00之间，报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/244485](https://www.guo.media/posts/244485) `2019-10-22T13:55:09`
+##
+
 **milesguo** 【美国法案】<br>国会议员John Curtis 10月18日：提议“2019年台湾盟国间保护与加强行动（台北）法案”<br><br>[https://spark.adobe.com/page/gjIjumyDCVrO9/](https://spark.adobe.com/page/gjIjumyDCVrO9/ "https://spark.adobe.com/page/gjIjumyDCVrO9/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/244453](https://www.guo.media/posts/244453) `2019-10-22T11:25:10`
