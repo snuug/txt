@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】2019年10月21日由于原定纪念在“7月21日元朗警察和黑社会合作”中遇难和被伤害的港人静坐活动，因为香港地铁不让民众悼念提前关闭元朗地铁站 ，因此抗议者聚集在城市周围的车站，例如铜锣湾车地铁站在悼念721恐怖袭击小型展览。【GM22】<br>引自：[https://twitter.com/KongTsungGan/status/1186278720467804160](https://twitter.com/KongTsungGan/status/1186278720467804160 "https://twitter.com/KongTsungGan/status/1186278720467804160")
+
+[https://www.guo.media/posts/244509](https://www.guo.media/posts/244509) `2019-10-22T16:25:10`
+##
+
 **milesguo** 10月22号：尊敬的战友们好！你们健身了吗！你们传播香港危机真相了吗？文贵将在今天上午．10:30 11:00之间，报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/244485](https://www.guo.media/posts/244485) `2019-10-22T13:55:09`
