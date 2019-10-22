@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】2019年10月21日23点10分防暴警员施放催泪烟，同时现场有警犬执勤。但是警犬没有配备防毒面具，可见该警犬面容憔悴及伸出舌头，貌似十分痛苦。不知有没有触犯犯香港法例169章《防止残酷对待动物条例》。【GM22】<br>引自：[https://twitter.com/yukikei/status/1186304761680678917](https://twitter.com/yukikei/status/1186304761680678917 "https://twitter.com/yukikei/status/1186304761680678917")
+
+[https://www.guo.media/posts/244390](https://www.guo.media/posts/244390) `2019-10-22T05:40:09`
+##
+
+**milesguo** 【关注香港】2019年10月21日至10月27日香港人游行日程表【GM22】
+
+[https://www.guo.media/posts/244389](https://www.guo.media/posts/244389) `2019-10-22T05:40:12`
+##
+
 **milesguo** 【緊急公告】⚠️<br>10月21日:郭先生爆出的CCP殘害香港人的地點，調查下去，大多是駐港部隊的駐地和軍事禁區！大多地處樹木遮擋之處，一般人不能窺探內中情況。再次說明瞭CCP的軍隊早已插手，實施了「無聲的戒嚴」！<br>【MIZ】<br>
 
 [https://www.guo.media/posts/244382](https://www.guo.media/posts/244382) `2019-10-22T04:10:09`
