@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【美国法案】<br>国会议员John Curtis 10月18日：提议“2019年台湾盟国间保护与加强行动（台北）法案”<br><br>[https://spark.adobe.com/page/gjIjumyDCVrO9/](https://spark.adobe.com/page/gjIjumyDCVrO9/ "https://spark.adobe.com/page/gjIjumyDCVrO9/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/244453](https://www.guo.media/posts/244453) `2019-10-22T11:25:10`
+##
+
 **milesguo** 【关注香港】2019年10月21日23点10分防暴警员施放催泪烟，同时现场有警犬执勤。但是警犬没有配备防毒面具，可见该警犬面容憔悴及伸出舌头，貌似十分痛苦。不知有没有触犯犯香港法例169章《防止残酷对待动物条例》。【GM22】<br>引自：[https://twitter.com/yukikei/status/1186304761680678917](https://twitter.com/yukikei/status/1186304761680678917 "https://twitter.com/yukikei/status/1186304761680678917")
 
 [https://www.guo.media/posts/244390](https://www.guo.media/posts/244390) `2019-10-22T05:40:09`
