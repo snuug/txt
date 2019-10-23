@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br>Now新闻10月23日：美国国务卿蓬佩奥指，中国是以胁迫及贪污治国的战略竞争对手。<br><br>蓬佩奥在华盛顿出席智库组织传统基金会的活动并致辞，讲述现届美国政府的外交政策，指他身为国务卿有责任协助各国认清世界真相，其中一个真相是，中国极其量是一个使用胁迫及贪污，作为治国手段的战略竞争对手。<br><br>他说曾走访芬兰，阐述中国及俄罗斯在北极圈的掠地意图及军事扩张，亦联同日本、澳洲及印度，重启已经沉寂九年的四方安全对话，以确保中国在世界留在“适当的位置”。<br><br>蓬佩奥表示，华府以至美国政界对中国发生的改变，坐视不理太久，亦做得不够，现在美国已认清挑战，希望其他国家亦意识到风险。<br><br>新闻链接：<br><br>[http://news.now.com/home/international/player?newsId=367261](https://news.now.com/home/international/player?newsId=367261 "http://news.now.com/home/international/player?newsId=367261")<br><br>【MIZ】
+
+[https://www.guo.media/posts/244691](https://www.guo.media/posts/244691) `2019-10-23T10:40:09`
+##
+
 **milesguo** 【关注香港】2019年10月23日香港海报【GM22】
 
 [https://www.guo.media/posts/244668](https://www.guo.media/posts/244668) `2019-10-23T09:10:09`
