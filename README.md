@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【中国新闻】华春莹辟谣<br>Now新闻台10月23日: 英国《金融时报》引述消息人士指，中央政府正计划任命一名临时行政长官，明年三月取代现任行政长官林郑月娥，又指目前呼声最高是陈德霖及唐英年。<br>在北京，外交部发言人华春莹批评有关言论是政治谣言，而且是别有用心。<br><br>原文链接：<br><br>[http://news.now.com/home/local/player?newsId=367312](https://news.now.com/home/local/player?newsId=367312 "http://news.now.com/home/local/player?newsId=367312")<br><br>【MIZ】
+
+[https://www.guo.media/posts/244711](https://www.guo.media/posts/244711) `2019-10-23T11:40:09`
+##
+
 **milesguo** 【国际新闻】<br><br>Now新闻台10月23日:日本首相安倍晋三跟国家副主席王岐山确认，将合作实现国家主席习近平明年访日。<br><br>安倍晋三在东京跟到当地出席日皇登基仪式的王岐山会面，双方一致同意为成功实现习近平在明年春天以国宾身分访问日本展开合作。<br><br>两人亦谈及香港的修例风波，安倍对香港的局势深感忧虑，呼吁当局克制并以对话方式和平解决问题。<br><br>安倍又就中国拘留北海道大学一名教授的事件要求中方采取积极应对，日本传媒报道涉事教授曾任职于外务省和防卫省防卫研究所，可能被怀疑从事间谍活动。<br><br>新闻链接：<br><br>[http://news.now.com/home/international/player?newsId=367306](https://news.now.com/home/international/player?newsId=367306 "http://news.now.com/home/international/player?newsId=367306")<br><br>【MIZ】
 
 [https://www.guo.media/posts/244699](https://www.guo.media/posts/244699) `2019-10-23T11:10:09`
@@ -346,45 +351,5 @@
 **milesguo** 1018号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗！一个半小时后，纽约时间18号上午9:30到10:00之间．文贵将在郭媒体．开始今天的直播！不爆料，就是与战友们聊天，一切都是刚刚开始！
 
 [https://www.guo.media/posts/243341](https://www.guo.media/posts/243341) `2019-10-18T12:10:10`
-##
-
-**milesguo** 【國際新聞】<br><br>由捷克前總統哈維爾所創立的Forum 2000 國際論壇 發表聲明撐香港<br><br>聲明全文鏈接：<br><br>[https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg\_d8\_3uqcCIHA](https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA "https://www.forum2000.cz/en/news/participants-of-the-forum-2000-conference-standwithhongkong?fbclid=IwAR0piYFFqvwmn2K4Z6R5U64DCbMX6BbR7u2bdp5UIW6SxFg_d8_3uqcCIHA")<br><br>【MIZ】
-
-[https://www.guo.media/posts/243327](https://www.guo.media/posts/243327) `2019-10-18T09:55:09`
-##
-
-**milesguo** 【转载】Christian Dior中國地圖出錯急忙澄清道歉<br><br>Now新聞台10月18日：繼NBA、美國蘋果公司、高級品牌Tiffany，再有西方企業「得罪」中國。這次是法國奢侈時尚品牌Christian Dior，風波源自一幅地圖。<br><br>美國《華爾街日報》報道Dior星期三在浙江工商大學一場學生簡介會上，用了一幅不包括台灣的中國地圖，當時Dior員工正招募實習生，答問環節時有同學問為何展示的中國地圖看不到台灣。<br><br>工作人員回應指公司稱呼台灣和香港為中國台灣、中國香港，內地則叫做中國大陸，三地合稱為Great China。<br><br>有同學不滿解釋，更發現地圖上連西藏也消失了，片段在內地社交網絡廣傳。<br><br>Dior立即「救火」，在微博發聲明指對於有關員工「錯誤描述並錯誤解釋」深表歉意和不安，強調是不代表公司立場的員工個人失當行為，承諾嚴肅處理、認真調查。<br><br>除了跟員工「割席」，Dior又重申維護一個中國原則，珍惜中國人民的情感，說Dior是「中國的朋友」、「誠摯熱愛之心無可置疑！」，不知內地消費者對這番肺腑之言「收貨」嗎？<br><br>新闻链接：<br>[http://news.now.com/home/international/player?newsId=366716](https://news.now.com/home/international/player?newsId=366716 "http://news.now.com/home/international/player?newsId=366716")<br><br>【MIZ】<br><br>
-
-[https://www.guo.media/posts/243321](https://www.guo.media/posts/243321) `2019-10-18T09:10:09`
-##
-
-**milesguo** 10月17日: 回顾这周重大事件！<br>岑子杰被打伤<br>NBA再跪地<br>江苏高架坍塌<br>中美贸易加5%关税谈判<br>新疆法案我们的在一起为新疆推动 【GM08】
-
-[https://www.guo.media/posts/243251](https://www.guo.media/posts/243251) `2019-10-18T04:25:10`
-##
-
-**milesguo** 【關注香港】<br>致敬勇敢堅強的香港女孩<br>她們也會怕黑，也會流淚<br>甚至恐懼，但是<br>她們從不站在人群之後<br>她們用盡全部力氣<br>去反抗，去爭取<br>讓我們一起守護<br>香港的女孩們<br>🙏🙏🙏🙏🙏🙏<br><br>【MIZ】（香港文宣）
-
-[https://www.guo.media/posts/243216](https://www.guo.media/posts/243216) `2019-10-18T02:40:10`
-##
-
-**milesguo** 【香港真相】<br>8.31事件後接連發生多宗離奇死亡事件。警方不公佈死者全名，不公佈具體死因，疑點重重卻宣佈全部“無可疑”，校方也暗地與警方配合，謊言，造假，企圖息事寧人，蒙混過關，毀屍滅跡。<br><br>记住“真的假不了，假的真不了！” <br><br>【MIZ】（香港文宣）<br>
-
-[https://www.guo.media/posts/243177](https://www.guo.media/posts/243177) `2019-10-17T23:10:09`
-##
-
-**milesguo** 【關注香港】<br><br>他們散播恐懼<br>讓你恐懼到不能呼吸<br>逐個擊碎脆弱的個體<br>抹去那些憤怒的血跡<br><br>他們感到恐懼<br>因為恐懼去修改法律<br>因為恐懼去封鎖消息<br>因為恐懼去毀屍滅跡<br><br>退一步<br>他們讓我們恐懼<br>進一身<br>他們為我們祭旗！<br><br>【MIZ】（香港文宣）
-
-[https://www.guo.media/posts/243074](https://www.guo.media/posts/243074) `2019-10-17T13:25:11`
-##
-
-**milesguo** 【翻譯】<br>彭博社10月17日： 美參議員無視中國威脅，繼續推進香港議案<br> <br>[https://spark.adobe.com/page/BSfkCKUmL2BSz/](https://spark.adobe.com/page/BSfkCKUmL2BSz/ "https://spark.adobe.com/page/BSfkCKUmL2BSz/")<br><br>【秘密翻譯組】
-
-[https://www.guo.media/posts/243070](https://www.guo.media/posts/243070) `2019-10-17T13:10:10`
-##
-
-**milesguo** 【关注香港】<br>救救香港！救救香港人！<br>谴责香港警暴对医护人道救援的阻拦与破坏！谴责警方对生命的藐视和暴行！数百数千的手足被捕、被失踪、被自杀，这是一场巨大的人道危机！<br>这不是任何群体的权益，这是普世救赎！<br>无论您是否信仰耶稣，请与我们为已经逝去的、正在抗争的；为过去、现在与未来共同祈祷：<br>主、耶稣基督，我们藉着洗礼与祢同死同葬；祢既藉着父的力量，从死中复活；求祢也使我们能度一种新生活。昔日的我们已与祢同钉在十字架上；求祢消除我们的罪愆，不再做罪恶的奴隶。我们既与祢同死，亦必与祢同生；死于罪恶，活于天主。<br><br>【MIZ】
-
-[https://www.guo.media/posts/243063](https://www.guo.media/posts/243063) `2019-10-17T12:10:10`
 ##
 
