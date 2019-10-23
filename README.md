@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港今日日程】<br>十月二十三（周三）<br>警犬不是武器 請願行動<br>時間 : 16 : 30<br>地點 : 灣仔警察總部門外<br><br>尖沙咀 快閃和理唱<br>合唱團@重慶大廈<br>時間 : 19 : 00<br>地點 : 重慶大廈外集合<br><br>英國領事館國旗人鏈<br>時間：19:30<br>地點：英國領事館<br><br>地厚天高放映會<br>時間：20 : 00<br>地點：葵芳 (葵涌運動場看台後空地)<br>時間 : 20 : 30<br>地點 : 慈雲山中心對出 ( 近毓華街 )<br><br>【MIZ】<br>
+
+[https://www.guo.media/posts/244567](https://www.guo.media/posts/244567) `2019-10-23T00:25:10`
+##
+
 **milesguo** 【关注香港】2019年10月21日由于原定纪念在“7月21日元朗警察和黑社会合作”中遇难和被伤害的港人静坐活动，因为香港地铁不让民众悼念提前关闭元朗地铁站 ，因此抗议者聚集在城市周围的车站，例如铜锣湾车地铁站在悼念721恐怖袭击小型展览。【GM22】<br>引自：[https://twitter.com/KongTsungGan/status/1186278720467804160](https://twitter.com/KongTsungGan/status/1186278720467804160 "https://twitter.com/KongTsungGan/status/1186278720467804160")
 
 [https://www.guo.media/posts/244509](https://www.guo.media/posts/244509) `2019-10-22T16:25:10`
