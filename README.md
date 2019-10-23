@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】2019年10月23日香港海报【GM22】
+
+[https://www.guo.media/posts/244668](https://www.guo.media/posts/244668) `2019-10-23T09:10:09`
+##
+
 **milesguo** 【关注香港】六月至十月十七日警察防爆子弹使用情况、六月至十月十七日自杀和被自杀统计。【GM22】
 
 [https://www.guo.media/posts/244636](https://www.guo.media/posts/244636) `2019-10-23T06:40:09`
