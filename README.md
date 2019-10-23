@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月23日尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？半小时内文贵报平安直播一切都是刚刚开始！
+
+[https://www.guo.media/posts/244737](https://www.guo.media/posts/244737) `2019-10-23T14:10:10`
+##
+
 **milesguo** 【中国新闻】华春莹辟谣<br>Now新闻台10月23日: 英国《金融时报》引述消息人士指，中央政府正计划任命一名临时行政长官，明年三月取代现任行政长官林郑月娥，又指目前呼声最高是陈德霖及唐英年。<br>在北京，外交部发言人华春莹批评有关言论是政治谣言，而且是别有用心。<br><br>原文链接：<br><br>[http://news.now.com/home/local/player?newsId=367312](https://news.now.com/home/local/player?newsId=367312 "http://news.now.com/home/local/player?newsId=367312")<br><br>【MIZ】
 
 [https://www.guo.media/posts/244711](https://www.guo.media/posts/244711) `2019-10-23T11:40:09`
