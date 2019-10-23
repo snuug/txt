@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【国际新闻】<br><br>Now新闻台10月23日:日本首相安倍晋三跟国家副主席王岐山确认，将合作实现国家主席习近平明年访日。<br><br>安倍晋三在东京跟到当地出席日皇登基仪式的王岐山会面，双方一致同意为成功实现习近平在明年春天以国宾身分访问日本展开合作。<br><br>两人亦谈及香港的修例风波，安倍对香港的局势深感忧虑，呼吁当局克制并以对话方式和平解决问题。<br><br>安倍又就中国拘留北海道大学一名教授的事件要求中方采取积极应对，日本传媒报道涉事教授曾任职于外务省和防卫省防卫研究所，可能被怀疑从事间谍活动。<br><br>新闻链接：<br><br>[http://news.now.com/home/international/player?newsId=367306](https://news.now.com/home/international/player?newsId=367306 "http://news.now.com/home/international/player?newsId=367306")<br><br>【MIZ】
+
+[https://www.guo.media/posts/244699](https://www.guo.media/posts/244699) `2019-10-23T11:10:09`
+##
+
 **milesguo** 【国际新闻】<br>Now新闻10月23日：美国国务卿蓬佩奥指，中国是以胁迫及贪污治国的战略竞争对手。<br><br>蓬佩奥在华盛顿出席智库组织传统基金会的活动并致辞，讲述现届美国政府的外交政策，指他身为国务卿有责任协助各国认清世界真相，其中一个真相是，中国极其量是一个使用胁迫及贪污，作为治国手段的战略竞争对手。<br><br>他说曾走访芬兰，阐述中国及俄罗斯在北极圈的掠地意图及军事扩张，亦联同日本、澳洲及印度，重启已经沉寂九年的四方安全对话，以确保中国在世界留在“适当的位置”。<br><br>蓬佩奥表示，华府以至美国政界对中国发生的改变，坐视不理太久，亦做得不够，现在美国已认清挑战，希望其他国家亦意识到风险。<br><br>新闻链接：<br><br>[http://news.now.com/home/international/player?newsId=367261](https://news.now.com/home/international/player?newsId=367261 "http://news.now.com/home/international/player?newsId=367261")<br><br>【MIZ】
 
 [https://www.guo.media/posts/244691](https://www.guo.media/posts/244691) `2019-10-23T10:40:09`
