@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月24日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？郭媒体11:00转播彭斯副总统的重要演讲……一切都是刚刚开始！
+
+[https://www.guo.media/posts/245061](https://www.guo.media/posts/245061) `2019-10-24T13:55:21`
+##
+
 **milesguo** 【翻译】<br><br>QUARTZ10月22日:中国明显缺席了一次重要的全球宇航会议<br><br>副总统迈克·彭斯(Mike Pence)尖锐地指出，太空合作将只针对“热爱自由的国家”<br><br>[https://spark.adobe.com/page/KcneQ2Fm7EHdT/](https://spark.adobe.com/page/KcneQ2Fm7EHdT/ "https://spark.adobe.com/page/KcneQ2Fm7EHdT/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/244969](https://www.guo.media/posts/244969) `2019-10-24T07:55:10`
