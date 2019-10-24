@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>QUARTZ10月22日:中国明显缺席了一次重要的全球宇航会议<br><br>副总统迈克·彭斯(Mike Pence)尖锐地指出，太空合作将只针对“热爱自由的国家”<br><br>[https://spark.adobe.com/page/KcneQ2Fm7EHdT/](https://spark.adobe.com/page/KcneQ2Fm7EHdT/ "https://spark.adobe.com/page/KcneQ2Fm7EHdT/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/244969](https://www.guo.media/posts/244969) `2019-10-24T07:55:10`
+##
+
 **milesguo** 10月23号：应战友们的要求，发一段关于SNOW的视频，一切都是刚刚开始！
 
 [https://www.guo.media/posts/244838](https://www.guo.media/posts/244838) `2019-10-24T01:40:09`
