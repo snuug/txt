@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月23号：应战友们的要求，发一段关于SNOW的视频，一切都是刚刚开始！
+
+[https://www.guo.media/posts/244838](https://www.guo.media/posts/244838) `2019-10-24T01:40:09`
+##
+
 **milesguo** 10月23日：明天24日上午十点至十一点．伍德罗·威尔逊国际学者中心．彭斯总统演讲！一切都是刚刚开始！
 
 [https://www.guo.media/posts/244822](https://www.guo.media/posts/244822) `2019-10-24T00:40:09`
