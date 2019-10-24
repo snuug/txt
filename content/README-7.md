@@ -13,6 +13,8 @@
 
 ## 頁面 7/20 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [20](/content/README-20.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/2019/03/20190303-6089231756466029624.md)
+
 [文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/2019/02/20190228-4589670167001687334.md)
 
 [文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/2019/02/20190227-2121363787945897238.md)
@@ -60,8 +62,6 @@
 [文字版：2019年1月23日文貴報平安直播](/content/2019/01/20190125-5995035220130924499.md)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/2019/01/20190123-2188991099465691450.md)
-
-[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/2019/01/20190123-8364143851191456056.md)
 
 
 ## 頁面 7/20 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [20](/content/README-20.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
