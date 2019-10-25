@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>大纪元时报10月21日：跨国FBI案揭露了涉及中国学生间谍的复杂故事<br><br>[https://spark.adobe.com/page/7lc6DqzCgj0gt/](https://spark.adobe.com/page/7lc6DqzCgj0gt/ "https://spark.adobe.com/page/7lc6DqzCgj0gt/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/245362](https://www.guo.media/posts/245362) `2019-10-25T06:25:09`
+##
+
 **milesguo** 【翻译】<br><br>10月24日 彭斯副总统对华政策演讲<br><br><br>[https://spark.adobe.com/page/0H9aXSKIG1UpQ/](https://spark.adobe.com/page/0H9aXSKIG1UpQ/ "https://spark.adobe.com/page/0H9aXSKIG1UpQ/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/245352](https://www.guo.media/posts/245352) `2019-10-25T05:55:10`
