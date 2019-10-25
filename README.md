@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>10月24号：战友之声的面具先生和庄烈宏先生的美东之声的节目做得太棒了👏👏👏一切都是刚刚开始！[https://youtu.be/Z43D5\_hhh4s](https://youtu.be/Z43D5_hhh4s "https://youtu.be/Z43D5_hhh4s")
+
+[https://www.guo.media/posts/245190](https://www.guo.media/posts/245190) `2019-10-25T00:55:10`
+##
+
 **milesguo** 10月24日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？郭媒体11:00转播彭斯副总统的重要演讲……一切都是刚刚开始！
 
 [https://www.guo.media/posts/245061](https://www.guo.media/posts/245061) `2019-10-24T13:55:21`
