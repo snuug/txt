@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>10月24日 彭斯副总统对华政策演讲<br><br><br>[https://spark.adobe.com/page/0H9aXSKIG1UpQ/](https://spark.adobe.com/page/0H9aXSKIG1UpQ/ "https://spark.adobe.com/page/0H9aXSKIG1UpQ/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/245352](https://www.guo.media/posts/245352) `2019-10-25T05:55:10`
+##
+
 **milesguo** <br>10月24号：战友之声的面具先生和庄烈宏先生的美东之声的节目做得太棒了👏👏👏一切都是刚刚开始！[https://youtu.be/Z43D5\_hhh4s](https://youtu.be/Z43D5_hhh4s "https://youtu.be/Z43D5_hhh4s")
 
 [https://www.guo.media/posts/245190](https://www.guo.media/posts/245190) `2019-10-25T00:55:10`
