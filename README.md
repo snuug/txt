@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>Washington Examiner 10月18日: <br>五角大楼警告：“没有安全港”：中国计划从关键港口封锁美国军队<br><br>[https://spark.adobe.com/page/m9BnCVAUWHaHL/](https://spark.adobe.com/page/m9BnCVAUWHaHL/ "https://spark.adobe.com/page/m9BnCVAUWHaHL/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/245373](https://www.guo.media/posts/245373) `2019-10-25T07:10:09`
+##
+
 **milesguo** 【翻译】<br><br>大纪元时报10月21日：跨国FBI案揭露了涉及中国学生间谍的复杂故事<br><br>[https://spark.adobe.com/page/7lc6DqzCgj0gt/](https://spark.adobe.com/page/7lc6DqzCgj0gt/ "https://spark.adobe.com/page/7lc6DqzCgj0gt/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/245362](https://www.guo.media/posts/245362) `2019-10-25T06:25:09`
