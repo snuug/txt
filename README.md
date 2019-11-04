@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>路透社11月2日: 中國進口商品交易會前夕，歐盟發出“承諾疲勞” 的警告<br><br>[https://spark.adobe.com/page/DHMAvdk7yix9M/](https://spark.adobe.com/page/DHMAvdk7yix9M/ "https://spark.adobe.com/page/DHMAvdk7yix9M/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/250521](https://www.guo.media/posts/250521) `2019-11-04T10:10:10`
+##
+
 **milesguo** 【翻译】<br><br>台湾英文新闻11月3日: 欧洲政治联盟谴责中国干涉台湾选举<br><br><br>泛欧自由党派联盟通过了支持台湾民主、香港抗议的决议<br><br>[https://spark.adobe.com/page/qooRgGnPyUftC/](https://spark.adobe.com/page/qooRgGnPyUftC/ "https://spark.adobe.com/page/qooRgGnPyUftC/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/250444](https://www.guo.media/posts/250444) `2019-11-04T06:03:34`
