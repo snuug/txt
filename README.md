@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 10月4号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/250568](https://www.guo.media/posts/250568) `2019-11-04T14:10:12`
+##
+
 **milesguo** 【翻譯】<br><br>路透社11月2日: 中國進口商品交易會前夕，歐盟發出“承諾疲勞” 的警告<br><br>[https://spark.adobe.com/page/DHMAvdk7yix9M/](https://spark.adobe.com/page/DHMAvdk7yix9M/ "https://spark.adobe.com/page/DHMAvdk7yix9M/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/250521](https://www.guo.media/posts/250521) `2019-11-04T10:10:10`
