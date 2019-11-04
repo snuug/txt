@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>HKFP香港自由新闻11月3日: 香港政府无视警察的肆意虐待是对新闻自由的威胁<br><br>[https://spark.adobe.com/page/GQNzSdInzAlDo/](https://spark.adobe.com/page/GQNzSdInzAlDo/ "https://spark.adobe.com/page/GQNzSdInzAlDo/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/250632](https://www.guo.media/posts/250632) `2019-11-04T17:25:11`
+##
+
 **milesguo** 11月4号：尊敬的战友们好！文贵将在11点前报平安直播……本来今天没有准备直播，但是看到很多战友的留言，希望能看到文贵的视频……文贵临时调整时间……简单的直播报平安，希望国内的战友们不要影响休息，一切都是刚刚开始！
 
 [https://www.guo.media/posts/250596](https://www.guo.media/posts/250596) `2019-11-04T15:10:11`
