@@ -12,6 +12,191 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>台湾英文新闻11月3日: 欧洲政治联盟谴责中国干涉台湾选举<br><br><br>泛欧自由党派联盟通过了支持台湾民主、香港抗议的决议<br><br>[https://spark.adobe.com/page/qooRgGnPyUftC/](https://spark.adobe.com/page/qooRgGnPyUftC/ "https://spark.adobe.com/page/qooRgGnPyUftC/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/250444](https://www.guo.media/posts/250444) `2019-11-04T06:03:34`
+##
+
+**milesguo** 【關注香港】<br><br>全民三罷，即將啓動<br>香港人，反抗<br>Fight for freedom <br>Stand with Hong Kong <br><br>【MIZ】<br>
+
+[https://www.guo.media/posts/250426](https://www.guo.media/posts/250426) `2019-11-04T06:03:37`
+##
+
+**milesguo** 【香港真相】<br><br>香港被戒嚴？<br>這些觸目驚心的畫面就是答案！<br><br>Is Hong Kong under de facto martial law?<br>You can find the answer through all these incredible images!<br><br>【MIZ】
+
+[https://www.guo.media/posts/250418](https://www.guo.media/posts/250418) `2019-11-04T06:03:39`
+##
+
+**milesguo** 【翻譯】<br><br>衛報10月29日: 香港警察的無奈：「不是我們要實施懲罰」<br><br>與抗議者的戰鬥使警察部隊產生分裂：一些人追逐權力，另一些人要保護自由<br><br>[https://spark.adobe.com/page/aD0Lpqd7g4M04/](https://spark.adobe.com/page/aD0Lpqd7g4M04/ "https://spark.adobe.com/page/aD0Lpqd7g4M04/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/250393](https://www.guo.media/posts/250393) `2019-11-04T06:03:42`
+##
+
+**milesguo** 11月3日：在山上在山上小息时与战友们闲聊几句……一切都是刚刚开始！
+
+[https://www.guo.media/posts/250355](https://www.guo.media/posts/250355) `2019-11-04T06:03:44`
+##
+
+**milesguo** 【翻译】<br><br>香港自由新闻HKFP11月3日 ：示威者瞄准中国官方媒体总部，急救人员和消防员卷入香港岛冲突之中<br><br>[https://spark.adobe.com/page/foLjcxMQ1dw3P/](https://spark.adobe.com/page/foLjcxMQ1dw3P/ "https://spark.adobe.com/page/foLjcxMQ1dw3P/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/250285](https://www.guo.media/posts/250285) `2019-11-04T06:03:47`
+##
+
+**milesguo** 11月3号：文贵报平安直播！文贵又要进山开会了，一切都是刚刚开始！
+
+[https://www.guo.media/posts/250265](https://www.guo.media/posts/250265) `2019-11-04T06:03:49`
+##
+
+**milesguo** 11月3号：尊敬的战友们好！文贵马上报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/250261](https://www.guo.media/posts/250261) `2019-11-04T06:03:52`
+##
+
+**milesguo** 【香港真相】<br><br>11.3 瘋狂濫暴 瘋狂濫捕<br>Hong Kong 🆘<br><br>【MIZ】
+
+[https://www.guo.media/posts/250260](https://www.guo.media/posts/250260) `2019-11-04T06:03:54`
+##
+
+**milesguo** 【摘要翻譯】<br><br>美國司法部10月30日：美國已達成和解協議追回7億多美元的資產，這些資產據稱涉及到馬來西亞主權財富基金的腐敗<br> <br>[https://spark.adobe.com/page/FDsiJxZLciK9p/](https://spark.adobe.com/page/FDsiJxZLciK9p/ "https://spark.adobe.com/page/FDsiJxZLciK9p/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/250205](https://www.guo.media/posts/250205) `2019-11-04T06:03:56`
+##
+
+**milesguo** 【翻譯】<br><br>CNBC11月1日: 做空者卡森.布洛克說，美國不能任由中國“擺佈我們的公司和人民”<br><br>[https://spark.adobe.com/page/szSjhaUQHnK4y/](https://spark.adobe.com/page/szSjhaUQHnK4y/ "https://spark.adobe.com/page/szSjhaUQHnK4y/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/250199](https://www.guo.media/posts/250199) `2019-11-04T06:03:59`
+##
+
+**milesguo** 【香港真相】<br><br>比納粹德軍更無人性<br>比侵華日軍更殘暴<br>比ISIS更恐怖<br>從以警治國 以黑治國<br>到以警治港 以黑治港<br>香港早已淪陷<br>光復香港<br>建立新中國<br><br>【MIZ】<br><br><br>
+
+[https://www.guo.media/posts/250076](https://www.guo.media/posts/250076) `2019-11-04T06:04:01`
+##
+
+**milesguo** 【翻译】【中英双语】<br><br>2019 美国国务卿迈克尔·蓬佩奥在赫尔曼·卡恩奖颁奖晚会就“中国的挑战”发表的讲话<br><br>[https://spark.adobe.com/page/Xf2GE7mvXF8sC/](https://spark.adobe.com/page/Xf2GE7mvXF8sC/ "https://spark.adobe.com/page/Xf2GE7mvXF8sC/")<br><br>【战鹰团】
+
+[https://www.guo.media/posts/250059](https://www.guo.media/posts/250059) `2019-11-04T06:04:04`
+##
+
+**milesguo** 【香港真相】<br><br>11.2 香港發生了什麼？<br><br>What really happened in Hong Kong on 2 November 2019?<br><br>【MIZ】
+
+[https://www.guo.media/posts/250004](https://www.guo.media/posts/250004) `2019-11-04T06:04:06`
+##
+
+**milesguo** 11月2日：西雅图的战友在挺港行动中……[https://twitter.com/shirly1331一切都是刚刚开始！](https://twitter.com/shirly1331一切都是刚刚开始！ "https://twitter.com/shirly1331一切都是刚刚开始！")
+
+[https://www.guo.media/posts/249991](https://www.guo.media/posts/249991) `2019-11-04T06:04:09`
+##
+
+**milesguo** 11月2日：小五说的字幕版来了……
+
+[https://www.guo.media/posts/249988](https://www.guo.media/posts/249988) `2019-11-04T06:04:12`
+##
+
+**milesguo** 【翻译】<br><br>大纪元时报10月29日: 中国侵入性的新网络安全法是偷盗美国知识产权的又一个后门吗？<br><br>[https://spark.adobe.com/page/B0r3Aiv77R0ZN/](https://spark.adobe.com/page/B0r3Aiv77R0ZN/ "https://spark.adobe.com/page/B0r3Aiv77R0ZN/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/249970](https://www.guo.media/posts/249970) `2019-11-04T06:04:16`
+##
+
+**milesguo** 【翻译】<br><br>The ambition of the CPP's blockchain and digital currency<br><br>中共区块链及数字货币的野心<br><br><br>[https://spark.adobe.com/page/rKeoLyk5SR7ZO/](https://spark.adobe.com/page/rKeoLyk5SR7ZO/ "https://spark.adobe.com/page/rKeoLyk5SR7ZO/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/249964](https://www.guo.media/posts/249964) `2019-11-04T06:04:19`
+##
+
+**milesguo** 11月2号：感谢在中央公园相遇的战友那些暖心的话，感谢那些来自香港的战友们那些感动人的话，只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命，我们正在实现我们的喜马拉雅目标……让中国人活在没有恐惧，一个法制和信仰自由的社会即将到来，一切都是刚刚开始！
+
+[https://www.guo.media/posts/249959](https://www.guo.media/posts/249959) `2019-11-04T06:04:21`
+##
+
+**milesguo** 11月2号：感谢在中央公园相遇的战友那些暖心的话，感谢那些来自香港的战友们那些感动人的话，只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命，我们正在实现我们的喜马拉雅目标……让中国人活在没有恐惧，一个法制和信仰自由的社会即将到来，一切都是刚刚开始！
+
+[https://www.guo.media/posts/249958](https://www.guo.media/posts/249958) `2019-11-04T06:04:23`
+##
+
+**milesguo** 11月2号：尊敬的战友们好！应正在重要的视频会议中，直播会在10:30左右进行非常抱歉，今天没有任何爆料……请战友们不要因为等直播影响休息。一切都是刚刚开始！
+
+[https://www.guo.media/posts/249842](https://www.guo.media/posts/249842) `2019-11-04T06:04:26`
+##
+
+**milesguo** 【香港現場】<br>11.2 香港人在反抗<br><br>合法集會被警方腰斬<br>警方催淚彈放題<br>大肆無差別抓捕<br>包括記者，急救人員<br>香港人沒有放棄<br>香港人，加油！<br><br>【MIZ】
+
+[https://www.guo.media/posts/249803](https://www.guo.media/posts/249803) `2019-11-04T06:04:28`
+##
+
+**milesguo** 【翻译】<br><br>香港自由新闻HKFP11月1日：英国呼吁警方对香港的抗议活动作出“适当的”回应，并结束暴力<br><br>[https://spark.adobe.com/page/QJIvPemgkCRFC/](https://spark.adobe.com/page/QJIvPemgkCRFC/ "https://spark.adobe.com/page/QJIvPemgkCRFC/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/249757](https://www.guo.media/posts/249757) `2019-11-04T06:04:31`
+##
+
+**milesguo** 11月1号：尊敬的战友们好！明天纽约时间上午10:00．文贵报平安直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/249566](https://www.guo.media/posts/249566) `2019-11-04T06:04:35`
+##
+
+**milesguo** 【翻译】<br><br>国家评论10月31日：参议员Hawley支持对镇压抗议的中国和香港当局进行制裁的法案<br><br>[https://spark.adobe.com/page/EEsZFyEmvMUoD/](https://spark.adobe.com/page/EEsZFyEmvMUoD/ "https://spark.adobe.com/page/EEsZFyEmvMUoD/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/249517](https://www.guo.media/posts/249517) `2019-11-04T06:04:37`
+##
+
+**milesguo** 11月1日：这是某个NGO机构要求购买的郭战装……当然我们是送给他们了…看看他们怎么用吧……一切都是刚刚开始！
+
+[https://www.guo.media/posts/249462](https://www.guo.media/posts/249462) `2019-11-04T06:04:39`
+##
+
+**milesguo** 11月1日：共产党的邪恶之恐怖😱是有史以来最惨无人性的……天不灭共．共必灭人类．一切都是刚刚开始！
+
+[https://www.guo.media/posts/249404](https://www.guo.media/posts/249404) `2019-11-04T06:04:42`
+##
+
+**milesguo** 11月1号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？下午5点前文贵没有直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/249386](https://www.guo.media/posts/249386) `2019-11-04T06:04:44`
+##
+
+**milesguo** 【翻译】<br><br>Coindesk 网 10月28日: <br>中共要求共产党员宣誓效忠区块链<br><br>[https://spark.adobe.com/page/Q7qX3n7TifG5R/](https://spark.adobe.com/page/Q7qX3n7TifG5R/ "https://spark.adobe.com/page/Q7qX3n7TifG5R/")<br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/249309](https://www.guo.media/posts/249309) `2019-11-04T06:04:47`
+##
+
+**milesguo** 【翻译】<br><br>华盛顿时报 10月31日: <br>蓬佩奥：是共产党在威胁着美国和全球安全，而不是中国人民！<br><br>作者：比尔.格茨<br><br>[https://spark.adobe.com/page/bpBTBzxdNVvbr/](https://spark.adobe.com/page/bpBTBzxdNVvbr/ "https://spark.adobe.com/page/bpBTBzxdNVvbr/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/249209](https://www.guo.media/posts/249209) `2019-11-04T06:04:49`
+##
+
+**milesguo** 【时事短评】<br><br>蓬佩奥呼吁全球跟中共刚正面！<br>潘多拉盒子打开条件完成一半？<br><br><br>[https://spark.adobe.com/page/Kz2Ob6ahIw7eX/](https://spark.adobe.com/page/Kz2Ob6ahIw7eX/ "https://spark.adobe.com/page/Kz2Ob6ahIw7eX/")<br><br>【MIZ】
+
+[https://www.guo.media/posts/249178](https://www.guo.media/posts/249178) `2019-11-04T06:04:53`
+##
+
+**milesguo** 10月31号：世界在觉醒😇共产党正在往自己的棺材板上顶钉最后的那几根钉子……今天美国人对共产党的区块链战略的威胁．让美国人彻底看透了共党灭美的狼子野心……这都是上天送给我们的礼物🎁共产党要建立的黑色金融帝国．挑战世界秩序．要奴隶全世界人民的愚蠢的行为，将使世界上的和平力量．团结起来共同铲除这个邪恶的共产党流氓组织……这就是爆料革命的．天时，地利人和．这是把灭共战场拉向国际的巨大胜利．一切都是刚刚开始！🙏🙏🙏🙏🙏🙏
+
+[https://www.guo.media/posts/249094](https://www.guo.media/posts/249094) `2019-11-04T06:04:55`
+##
+
+**milesguo** 10月31号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吧吗！今天没有直播．一切都是刚刚开始！
+
+[https://www.guo.media/posts/248973](https://www.guo.media/posts/248973) `2019-11-04T06:05:00`
+##
+
+**milesguo** 【關注香港】<br>2019 中共香港 VS 1933 纳粹德国<br><br>當人們把納粹的照片和中共在香港的暴行放在一起做比較時，你會發現，雖然相隔半個世紀，但是獨裁者對於人民都是一樣的心狠手辣，不同的是中共更加熟練的用冠冕堂皇的語言去修飾他們的暴行，以及使用高科技手段去維持他們的專制！<br><br>但是相信他們也會有相同的命運！最終走向萬劫不復的滅亡！<br><br>【MIZ】
+
+[https://www.guo.media/posts/248799](https://www.guo.media/posts/248799) `2019-11-04T06:05:02`
+##
+
+**milesguo** 【国际新闻】<br><br>英国政府网10月29日：关于新疆的联合声明<br><br>[https://spark.adobe.com/page/WA2fSLrCSQKDI/](https://spark.adobe.com/page/WA2fSLrCSQKDI/ "https://spark.adobe.com/page/WA2fSLrCSQKDI/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/248708](https://www.guo.media/posts/248708) `2019-11-04T06:05:04`
+##
+
+**milesguo** 10月30日：尊敬的战友们好！这是我的私人厨师，从今天凌晨3:00为我们的Sara女士．老江．路德．庄烈宏先生的午餐．烹制的法国鸭腿和5A级的日本和牛肉，我们一起在直播中吃吧，一切都是刚刚开始
+
+[https://www.guo.media/posts/248619](https://www.guo.media/posts/248619) `2019-11-04T06:05:07`
+##
+
+**milesguo** 2019年10月29日郭文贵先生直播摘要<br><br>05：40–大家不要急着评论最近传说的中美签订第一阶段协议，也不要去急着评论区块链。 <br>14：15–文贵最早提出华为本身就是PLA，华为也是区块链的一部分。区块链重要的是领导一切。共党开始玩这些是2006年开始的，号称数字奥运。所有参加奥运的人，包括虹膜、指纹等信息都在共党那里存档。威视当年口号就是建立数字最高峰，即数字政治——数字在前，政治在后，数字治国。 <br>18：00–区块链最核心的问题是政治、军事情报和金融。十一阅兵西方最感兴趣的是信息部队；美国已经研制出量子计算机，区块链在量子计算面前啥都不是。 <br>22：16–共党说的区块链是战略性的，其核心本质与大家想的不同，明天大概十点多文贵直播进一步解释。 <br>32:16–在泰国的战友回国时在海关被警告，不要置家人于危险中。 33:45–革命不是靠捐款，外国革命成功的人士都因有爱。战友情高于爱情、兄弟情。 <br>38:20–班农先生信息泄露是因为CCP黑客。 <br>40:00–爆料革命有底气，因为文贵先生没有偷过一分税，没在大陆拿一分钱，没有干过一件犯法的事。 <br>45:30–签约投资郭媒体的十几个人都高过班农先生。 <br>47:35–签约投资郭媒体的三个原则：必须挺川普、爆料革命绝不参与美国政治、必须坚定反共。背后还有更多牛人。 <br>49:20– G媒体会有大的变化，投资人将有惊人并购。中国老板的海外资产白
+
+[https://www.guo.media/posts/248570](https://www.guo.media/posts/248570) `2019-11-04T06:05:09`
+##
+
 **milesguo** 【國際新聞】<br><br>WhatsApp控告以色列科技公司NSO集團，幫政府入侵約1400個用戶的電話。<br><br>Now新聞台10月30日: WhatsApp入稟美國三藩市的聯邦法院，指NSO利用視像通話功能傳送惡意軟件，協助墨西哥和阿聯酋等20國政府，秘密監控手機機主，包括記者、外交官和異見人士。<br><br>WhatsApp要求禁止NSO取用或意圖取用Whatsapp與母公司Facebook的服務，並要求賠償，但沒披露金額。<br><br>NSO強烈否認指控，重申提供的科技全部用於反恐和打擊嚴重罪行。NSO開發的間諜軟件，被指與《華盛頓郵報》記者卡舒吉在土耳其遇害案有關。<br><br>原文鏈接：<br><br>[http://news.now.com/home/international/player?newsId=368077](https://news.now.com/home/international/player?newsId=368077 "http://news.now.com/home/international/player?newsId=368077")<br><br>【MIZ】
 
 [https://www.guo.media/posts/248467](https://www.guo.media/posts/248467) `2019-10-30T08:58:10`
@@ -45,197 +230,5 @@
 **milesguo** 10月29日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗……与大家分享．美容美发后的SNOW 的视频……一切都是刚刚开始！
 
 [https://www.guo.media/posts/248143](https://www.guo.media/posts/248143) `2019-10-30T08:58:28`
-##
-
-**milesguo** 【關注香港】<br><br>勿忘8.31<br>我們知道他們在說謊<br>他們也知道自己是說謊<br>他們也知道<br>我們知道他們在說謊<br>但是他們依然在說謊<br>10.31  還我真相<br><br>【MIZ】<br>
-
-[https://www.guo.media/posts/248089](https://www.guo.media/posts/248089) `2019-10-30T08:58:31`
-##
-
-**milesguo** 10月28日：黑警要给CCP四中全会献礼．❌❌❌❌🈲🈲🈲所以……【昨天，警察瘋狂鎮壓香港人。橡膠子彈，布袋彈如雨點般發射；摧淚彈放題，整條彌敦道煙霧彌漫，還射入藥店商鋪，毒煙還攻入兩邊民居，巴士，私家車，司機和乘客痛苦不堪；拘捕200多人（破紀錄），30多人受傷送院（保守估計）。香港已成為摧淚之城，毒煙之城，暴虐之城！更加激起香港人的滿腔怒火！】一切都是刚刚开始！🙏🙏🙏🙏🙏🙏
-
-[https://www.guo.media/posts/247647](https://www.guo.media/posts/247647) `2019-10-30T08:58:35`
-##
-
-**milesguo** 10月28日：【生命危险⚠️大家转发：三名维吾尔人。两大人，1小孩。去往欧洲的飞机转机西非冈比亚。目前被冈比亚政府扣留，押往中国大使馆的路上！】
-
-[https://www.guo.media/posts/247578](https://www.guo.media/posts/247578) `2019-10-30T08:58:38`
-##
-
-**milesguo** 10月28日：一下楼就遇到我们的老战友了……一切都是刚刚开始！(第二次上传）
-
-[https://www.guo.media/posts/247554](https://www.guo.media/posts/247554) `2019-10-30T08:58:40`
-##
-
-**milesguo** 【關注香港】<br><br>11.2 下午三時 維園流水式集會<br><br>求援國際<br>堅守自治<br>為當刻而守護<br>為未來而反抗<br>香港人，加油<br><br>🖐🖐🖐✊✊✊<br><br>【MIZ】
-
-[https://www.guo.media/posts/247475](https://www.guo.media/posts/247475) `2019-10-30T08:58:44`
-##
-
-**milesguo** 10月28日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？今天有几个重要的会议．时间太赶．还要健身．非常抱歉，今天可能没有报直播了……感谢战友们对SNOW 的关心，现在分享SNOW 今早的与我一起健身的视频！一切都是刚刚开始！
-
-[https://www.guo.media/posts/247432](https://www.guo.media/posts/247432) `2019-10-30T08:58:47`
-##
-
-**milesguo** 【翻譯】<br><br>10月27日蓬佩奧：國際宗教自由日<br><br>[https://spark.adobe.com/page/KqfsOaIPlS3tK/](https://spark.adobe.com/page/KqfsOaIPlS3tK/ "https://spark.adobe.com/page/KqfsOaIPlS3tK/")<br><br>【秘密翻譯組】<br><br>
-
-[https://www.guo.media/posts/247173](https://www.guo.media/posts/247173) `2019-10-30T08:58:49`
-##
-
-**milesguo** 10月27日：尊敬的战友们好！你们猜我正在准备和谁开会……每周七天每天24小时，不停灭共——一切都是刚刚开始！
-
-[https://www.guo.media/posts/246830](https://www.guo.media/posts/246830) `2019-10-30T08:58:52`
-##
-
-**milesguo** 10月27日：此时此刻的纽约．正在下着毛毛雨．和临近秋天的中央公园．以及最现代化的摩天大楼．相应成画．浪漫至极……只有身临其境，才能感受到纽约的现代．与自然和国际化的完美融合……忍不住的冲动将此情此景．用我最愚蠢的录像方式．分享给战友们！一切都是刚刚开始！
-
-[https://www.guo.media/posts/246744](https://www.guo.media/posts/246744) `2019-10-30T08:58:55`
-##
-
-**milesguo** 10月27日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
-
-[https://www.guo.media/posts/246731](https://www.guo.media/posts/246731) `2019-10-30T08:58:58`
-##
-
-**liuabing11** 
-【新闻】10月15日台湾自由时报报导：中國經濟急速下滑！郭文貴先生爆：現在GDP基本上是0
- 
-受美中貿易戰和國內需求疲軟等內外因素衝擊，中國經濟持續放緩，中國反共富豪郭文貴美東時間12日直播爆料，中國現在國內生產毛額（GDP）成長「基本上是0」，如今沒有多少外國企業會願意繼續在中國投資，他還預告自明年4月起，中國經濟會開始真正「倒下來」。【GM45】
- 
-[https://ec.ltn.com.tw/article/breakingnews/2945760](https://ec.ltn.com.tw/article/breakingnews/2945760)
-
-
-[https://www.guo.media/posts/](https://www.guo.media/posts/) `2019-10-15T07:55:11`
-##
-
-**milesguo** 【翻譯】The Hill 10月24日: <br>放逐之後的回歸：班農為川普彈劾案而戰<br><br>錄播結束後，班農向國會山講述了他在億萬富翁投資人郭文貴紐約家裡播出的另一檔節目。郭文貴在美國的名字是Miles Kwok。<br><br>班農說，那檔節目穿越了防火墻，讓數百萬中國人看到了，他認為自己就是香港民主抗議活動的“幕後黑手”。<br><br>[https://spark.adobe.com/page/hKJDAT4PEICNE/](https://spark.adobe.com/page/hKJDAT4PEICNE/ "https://spark.adobe.com/page/hKJDAT4PEICNE/")<br><br>【秘密翻譯組】<br>
-
-[https://www.guo.media/posts/246699](https://www.guo.media/posts/246699) `2019-10-30T08:59:01`
-##
-
-**milesguo** 【翻译】<br><br>Newsweek 10月24日：纽特·金里奇：不再幻想有一个仁慈的中国。幸运的是，美国有特朗普 <br><br>[https://spark.adobe.com/page/q9TZFtmV0vei6/](https://spark.adobe.com/page/q9TZFtmV0vei6/ "https://spark.adobe.com/page/q9TZFtmV0vei6/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/246617](https://www.guo.media/posts/246617) `2019-10-30T08:59:03`
-##
-
-**milesguo** 10月27号：尊敬的战友们好！拜托战友们一定要加快传播香港危机真相！郭媒体的G POST 与G NEWS数据库和功能相容．过程当中造成的使用不稳定………给大家带来的麻烦．衷心地向战友们道歉，一切都是刚刚开始！
-
-[https://www.guo.media/posts/246428](https://www.guo.media/posts/246428) `2019-10-30T08:59:06`
-##
-
-**milesguo** 【翻译】<br><br>FOX新闻10月25日: NBA的亚当·西尔弗（Adam Silver）回应了彭斯批评联盟对中国大力打压的回应<br><br>[https://spark.adobe.com/page/VoMKBSE8LX5xI/](https://spark.adobe.com/page/VoMKBSE8LX5xI/ "https://spark.adobe.com/page/VoMKBSE8LX5xI/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/246426](https://www.guo.media/posts/246426) `2019-10-30T08:59:08`
-##
-
-**liuabing11** 
-【新闻】10月15日台湾自由时报报导：中國經濟急速下滑！郭文貴先生爆：現在GDP基本上是0
- 
-受美中貿易戰和國內需求疲軟等內外因素衝擊，中國經濟持續放緩，中國反共富豪郭文貴美東時間12日直播爆料，中國現在國內生產毛額（GDP）成長「基本上是0」，如今沒有多少外國企業會願意繼續在中國投資，他還預告自明年4月起，中國經濟會開始真正「倒下來」。【GM45】
- 
-[https://ec.ltn.com.tw/article/breakingnews/2945760](https://ec.ltn.com.tw/article/breakingnews/2945760)
-
-
-[https://www.guo.media/posts/](https://www.guo.media/posts/) `2019-10-15T07:55:11`
-##
-
-**milesguo** 10月26号：文贵在＂办公床＂上报平安直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/246136](https://www.guo.media/posts/246136) `2019-10-30T08:59:11`
-##
-
-**milesguo** 10月26号尊敬的战友们好文贵，马上报平安直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/246116](https://www.guo.media/posts/246116) `2019-10-30T08:59:13`
-##
-
-**milesguo** 【翻譯】<br><br>大紀元時報10月25日: 中國的不平等驅使許多人出國尋求更好的生活<br><br>[https://spark.adobe.com/page/3KGP2BOfyumco/](https://spark.adobe.com/page/3KGP2BOfyumco/ "https://spark.adobe.com/page/3KGP2BOfyumco/")<br><br>【秘密翻譯組】<br><br>
-
-[https://www.guo.media/posts/246085](https://www.guo.media/posts/246085) `2019-10-30T08:59:16`
-##
-
-**milesguo** 【香港現場】<br><br>10月26日: 今晚中環遮打花園有醫護拒絕惡法集會，抗議黑警粗暴干涉醫院運作，干涉醫護專業救人 <br><br>【MIZ 】
-
-[https://www.guo.media/posts/246051](https://www.guo.media/posts/246051) `2019-10-30T08:59:18`
-##
-
-**milesguo** 【香港新聞】<br><br>10月25日香港法院頒布禁令：禁止起底警察及其家人。<br>請問香港法院是在保護殺人兇手麼？<br><br>[http://www.guancha.cn/politics/2019\_10\_25\_522759.shtml](http://www.guancha.cn/politics/2019_10_25_522759.shtml "http://www.guancha.cn/politics/2019_10_25_522759.shtml")<br><br>【MIZ】<br>
-
-[https://www.guo.media/posts/245991](https://www.guo.media/posts/245991) `2019-10-30T08:59:21`
-##
-
-**milesguo** 【翻譯】<br>NBC新聞：NBA與中國之間的鬥爭令共產黨的危害暴露無遺<br><br>[https://spark.adobe.com/page/spnd05aJ1NMUM/](https://spark.adobe.com/page/spnd05aJ1NMUM/ "https://spark.adobe.com/page/spnd05aJ1NMUM/")<br><br>【秘密翻譯組】<br>
-
-[https://www.guo.media/posts/245938](https://www.guo.media/posts/245938) `2019-10-30T08:59:23`
-##
-
-**milesguo** 【关注香港】10月25日晚香港某地有学生面带口罩，手举有关“光复香港时代革命”的口号的打印纸或者手机，在街上静默行走。呼吁香港人不要忘记牺牲手足，不要让真相沉没。【GM02】【GM38】
-
-[https://www.guo.media/posts/245926](https://www.guo.media/posts/245926) `2019-10-30T08:59:26`
-##
-
-**milesguo** 【翻译】<br><br>RiskScreen10月24日: 众议院通过法案，公开空壳公司的业主<br><br>[https://spark.adobe.com/page/znNcNNboKj2uJ/](https://spark.adobe.com/page/znNcNNboKj2uJ/ "https://spark.adobe.com/page/znNcNNboKj2uJ/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/245918](https://www.guo.media/posts/245918) `2019-10-30T08:59:28`
-##
-
-**milesguo** 【关注香港】10月26日香港游行海报【GM22】
-
-[https://www.guo.media/posts/245905](https://www.guo.media/posts/245905) `2019-10-30T08:59:30`
-##
-
-**milesguo** 【翻译】<br>新唐人新闻10月24日: 主要活动家敦促美国人保护免受暴政的自由<br><br>[https://spark.adobe.com/page/oSukIefnLl3R0/](https://spark.adobe.com/page/oSukIefnLl3R0/ "https://spark.adobe.com/page/oSukIefnLl3R0/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/245877](https://www.guo.media/posts/245877) `2019-10-30T08:59:33`
-##
-
-**milesguo** 【关注香港】10月25日: 彭斯副总统🙏🙏🙏🙏💕💕💕💕💕By 文熙<br><br><br>【GM33】
-
-[https://www.guo.media/posts/245726](https://www.guo.media/posts/245726) `2019-10-30T08:59:36`
-##
-
-**milesguo** 10月25号：尊敬的战友们好！文贵马上会在郭媒体与路徳先生．试新到的无线设备……没有任何爆料……希望战友们不要要浪费时间……一切都是刚刚开始！
-
-[https://www.guo.media/posts/245703](https://www.guo.media/posts/245703) `2019-10-30T08:59:38`
-##
-
-**milesguo** 10月25号：尊敬的战友们好！你们健身了吗？你能传播香港危机真相了吗？10:30以前文贵会报平安直播，一切都是刚刚开始！
-
-[https://www.guo.media/posts/245554](https://www.guo.media/posts/245554) `2019-10-30T08:59:40`
-##
-
-**milesguo** 【国内新闻】<br><br>Now新闻台10月25日：中共第十九届四中全会下星期在北京召开，有分析认为今次全会可能涉及人事安排。至于官方拖至会议举行前几日才公布确实日期，分析认为与香港近期局势、中美贸易战引致内地经济放缓等因素有关。<br><br>中共总书记习近平主持政治局会议，会上决定第十九届中央委员会第四次全体会议在本月28日至31日在北京召开，议程包括坚持和完善中国特色社会主义制度、推进国家治理体系和治理能力现代化若干重大问题。<br><br>原文链接：<br><br>[http://news.now.com/home/international/player?newsId=367457](https://news.now.com/home/international/player?newsId=367457 "http://news.now.com/home/international/player?newsId=367457")<br><br>【MIZ】
-
-[https://www.guo.media/posts/245442](https://www.guo.media/posts/245442) `2019-10-30T08:59:43`
-##
-
-**milesguo** 【國內新聞】<br><br>Now新聞台10月25日:在北京，外交部回應美國副總統彭斯的言論，批評以他為首的美國政客顛倒黑白，造謠誣衊，是要阻撓中國的穩定和發展，重申台灣和香港事務純屬中國內政。<br><br>華春瑩：「美國副總統發表講話，對中國社會制度和人權、宗教狀況進行蓄意歪曲，對中國內外政策進行無端指責。中國政府堅決維護國家主權、安全、發展利益，台灣、香港、新疆等事務都純屬中國內政，絕不允許任何外部勢力干涉。」<br><br>原文鏈接：[http://news.now.com/home/international/player?newsId=367545](https://news.now.com/home/international/player?newsId=367545 "http://news.now.com/home/international/player?newsId=367545")<br><br>【MIZ】
-
-[https://www.guo.media/posts/245440](https://www.guo.media/posts/245440) `2019-10-30T08:59:45`
-##
-
-**milesguo** 【翻译】<br><br>Washington Examiner 10月18日: <br>五角大楼警告：“没有安全港”：中国计划从关键港口封锁美国军队<br><br>[https://spark.adobe.com/page/m9BnCVAUWHaHL/](https://spark.adobe.com/page/m9BnCVAUWHaHL/ "https://spark.adobe.com/page/m9BnCVAUWHaHL/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/245373](https://www.guo.media/posts/245373) `2019-10-25T07:10:09`
-##
-
-**milesguo** 【翻译】<br><br>大纪元时报10月21日：跨国FBI案揭露了涉及中国学生间谍的复杂故事<br><br>[https://spark.adobe.com/page/7lc6DqzCgj0gt/](https://spark.adobe.com/page/7lc6DqzCgj0gt/ "https://spark.adobe.com/page/7lc6DqzCgj0gt/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/245362](https://www.guo.media/posts/245362) `2019-10-25T06:25:09`
-##
-
-**milesguo** 【翻译】<br><br>10月24日 彭斯副总统对华政策演讲<br><br><br>[https://spark.adobe.com/page/0H9aXSKIG1UpQ/](https://spark.adobe.com/page/0H9aXSKIG1UpQ/ "https://spark.adobe.com/page/0H9aXSKIG1UpQ/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/245352](https://www.guo.media/posts/245352) `2019-10-25T05:55:10`
-##
-
-**milesguo** <br>10月24号：战友之声的面具先生和庄烈宏先生的美东之声的节目做得太棒了👏👏👏一切都是刚刚开始！[https://youtu.be/Z43D5\_hhh4s](https://youtu.be/Z43D5_hhh4s "https://youtu.be/Z43D5_hhh4s")
-
-[https://www.guo.media/posts/245190](https://www.guo.media/posts/245190) `2019-10-25T00:55:10`
-##
-
-**milesguo** 10月24日：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？郭媒体11:00转播彭斯副总统的重要演讲……一切都是刚刚开始！
-
-[https://www.guo.media/posts/245061](https://www.guo.media/posts/245061) `2019-10-24T13:55:21`
 ##
 
