@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>The Verge 11月4日：由於中國的恐懼加劇，抖音本週不會來國會作證<br><br>[https://spark.adobe.com/page/o2xqvjnskVypS/](https://spark.adobe.com/page/o2xqvjnskVypS/ "https://spark.adobe.com/page/o2xqvjnskVypS/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/250965](https://www.guo.media/posts/250965) `2019-11-05T16:40:10`
+##
+
 **milesguo** 11月5日：文贵要浪一下啦……
 
 [https://www.guo.media/posts/250952](https://www.guo.media/posts/250952) `2019-11-05T16:10:10`
