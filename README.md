@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月5日：文贵要浪一下啦……
+
+[https://www.guo.media/posts/250952](https://www.guo.media/posts/250952) `2019-11-05T16:10:10`
+##
+
 **milesguo** 11月5号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吧吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/250912](https://www.guo.media/posts/250912) `2019-11-05T14:25:11`
