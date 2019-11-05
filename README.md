@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月5号：喜马拉雅国际工作站翻译的这个视频太好了……一切都是刚刚开始！
+
+[https://www.guo.media/posts/251063](https://www.guo.media/posts/251063) `2019-11-05T23:40:11`
+##
+
 **milesguo** 【翻译】<br><br>The Verge 11月4日：由於中國的恐懼加劇，抖音本週不會來國會作證<br><br>[https://spark.adobe.com/page/o2xqvjnskVypS/](https://spark.adobe.com/page/o2xqvjnskVypS/ "https://spark.adobe.com/page/o2xqvjnskVypS/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/250965](https://www.guo.media/posts/250965) `2019-11-05T16:40:10`
