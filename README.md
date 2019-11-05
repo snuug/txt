@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月4日：这一切是如此美丽……却又是这么不协调……一切都是刚刚开始！
+
+[https://www.guo.media/posts/250714](https://www.guo.media/posts/250714) `2019-11-05T02:10:11`
+##
+
 **milesguo** 11月4日：没有给SNOW 吃酸奶，他就生气了😤……他太现实了，一切都是刚刚开始。
 
 [https://www.guo.media/posts/250706](https://www.guo.media/posts/250706) `2019-11-05T01:25:10`
