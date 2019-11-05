@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月4日：没有给SNOW 吃酸奶，他就生气了😤……他太现实了，一切都是刚刚开始。
+
+[https://www.guo.media/posts/250706](https://www.guo.media/posts/250706) `2019-11-05T01:25:10`
+##
+
 **milesguo** 【翻译】<br><br>HKFP香港自由新闻11月3日: 香港政府无视警察的肆意虐待是对新闻自由的威胁<br><br>[https://spark.adobe.com/page/GQNzSdInzAlDo/](https://spark.adobe.com/page/GQNzSdInzAlDo/ "https://spark.adobe.com/page/GQNzSdInzAlDo/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/250632](https://www.guo.media/posts/250632) `2019-11-04T17:25:11`
