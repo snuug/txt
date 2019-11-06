@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月6号：文贵拜请所有的战友们千万不要忘了我们的现在的重点．传播香港危机的真相……一切都是刚刚开始！
+
+[https://www.guo.media/posts/251418](https://www.guo.media/posts/251418) `2019-11-06T22:55:12`
+##
+
 **milesguo** 11月6号：小伍说的英文字幕版又来了，一切都是刚刚开始！
 
 [https://www.guo.media/posts/251388](https://www.guo.media/posts/251388) `2019-11-06T19:10:11`
