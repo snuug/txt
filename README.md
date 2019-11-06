@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港文宣-面對暴政系列】<br><br>《暴政：掌控關鍵年代的獨裁風潮，洞悉時代之惡的二十堂課》<br><br>—— Timothy Snyder<br><br>【MIZ】
+
+[https://www.guo.media/posts/251216](https://www.guo.media/posts/251216) `2019-11-06T07:10:12`
+##
+
 **milesguo** 11月5日：尊敬的战友们好！明天也就是11月6日上午．10:00文贵直播，没有爆料．这些砸锅的欺民贼和乱聊这几天共产党创造的几个荒唐政治事件！<br>和进入了深水区的香港抗议运动我们应该做什么……一切都是刚刚开始！
 
 [https://www.guo.media/posts/251100](https://www.guo.media/posts/251100) `2019-11-06T00:55:11`
