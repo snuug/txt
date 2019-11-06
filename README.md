@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港文宣— 全港三罷】<br><br>全民儲糧  準備罷工<br>成立工會  全港三罷<br>自己的香港  自己救<br>罷工  罷課  罷市<br><br>【MIZ】<br><br><br>
+
+[https://www.guo.media/posts/251281](https://www.guo.media/posts/251281) `2019-11-06T11:25:11`
+##
+
 **milesguo** 【香港文宣-面對暴政系列】<br><br>《暴政：掌控關鍵年代的獨裁風潮，洞悉時代之惡的二十堂課》<br><br>—— Timothy Snyder<br><br>【MIZ】
 
 [https://www.guo.media/posts/251216](https://www.guo.media/posts/251216) `2019-11-06T07:10:12`
