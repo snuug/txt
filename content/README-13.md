@@ -13,6 +13,10 @@
 
 ## 頁面 13/20 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [20](/content/README-20.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/content/2018/06/20180612-5378414891358976970.md)
+
+[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180607-8000393637108456093.md)
+
 [文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/content/2018/06/20180605-3544664024044691633.md)
 
 [文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180602-4228988724633844641.md)
@@ -58,10 +62,6 @@
 [文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/2018/04/20180421-8336686313989639143.md)
 
 [文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
-
-[文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/content/2018/04/20180418-263041945712607182.md)
-
-[文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/2018/04/20180418-500002948561788779.md)
 
 
 ## 頁面 13/20 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [20](/content/README-20.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
