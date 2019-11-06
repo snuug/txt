@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【摘要翻譯】<br><br>CNBC11月5日:即使達成貿易協議，美國可能繼續對中國科技公司施壓<br><br>[https://spark.adobe.com/page/Ve37Wj1Niz7ji/](https://spark.adobe.com/page/Ve37Wj1Niz7ji/ "https://spark.adobe.com/page/Ve37Wj1Niz7ji/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/251289](https://www.guo.media/posts/251289) `2019-11-06T11:55:11`
+##
+
 **milesguo** 【香港文宣— 全港三罷】<br><br>全民儲糧  準備罷工<br>成立工會  全港三罷<br>自己的香港  自己救<br>罷工  罷課  罷市<br><br>【MIZ】<br><br><br>
 
 [https://www.guo.media/posts/251281](https://www.guo.media/posts/251281) `2019-11-06T11:25:11`
