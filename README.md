@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月6号：小伍说的英文字幕版又来了，一切都是刚刚开始！
+
+[https://www.guo.media/posts/251388](https://www.guo.media/posts/251388) `2019-11-06T19:10:11`
+##
+
 **milesguo** 【摘要翻譯】<br><br>CNBC11月5日:即使達成貿易協議，美國可能繼續對中國科技公司施壓<br><br>[https://spark.adobe.com/page/Ve37Wj1Niz7ji/](https://spark.adobe.com/page/Ve37Wj1Niz7ji/ "https://spark.adobe.com/page/Ve37Wj1Niz7ji/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/251289](https://www.guo.media/posts/251289) `2019-11-06T11:55:11`
