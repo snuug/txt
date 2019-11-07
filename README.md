@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>BREITBART11月6日: 国会敦促海关禁止进口中国新疆奴隶劳工生产的商品<br><br>[https://spark.adobe.com/page/Y5J1TaM71IhlO/](https://spark.adobe.com/page/Y5J1TaM71IhlO/ "https://spark.adobe.com/page/Y5J1TaM71IhlO/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/251625](https://www.guo.media/posts/251625) `2019-11-07T16:40:12`
+##
+
 **milesguo** 11月7日：尊敬的战友们好！你们健身了吗？你们传播香港危机真象了吗？文贵将在10:00左右<br>报平安直播！没有任何爆料千万不要影响国内战友们的休息，一切都是刚刚开始！
 
 [https://www.guo.media/posts/251609](https://www.guo.media/posts/251609) `2019-11-07T14:26:10`
