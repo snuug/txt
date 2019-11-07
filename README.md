@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港中文大学学生吳傲雪致香港特首一封公開信 【英文版】<br><br>An Open Letter from Sonia Ng: Like a legend thorn bird, you only sing once for the most beautiful song but impale upon the sharpest spine with the deepest pain. The whole world listens and God in his heaven smiles.  #SoniaNg #HKCU #MeToo <br><br>[https://spark.adobe.com/page/bDPKauQ7IyNEU/](https://spark.adobe.com/page/bDPKauQ7IyNEU/ "https://spark.adobe.com/page/bDPKauQ7IyNEU/")<br><br>【战鹰团】
+
+[https://www.guo.media/posts/251676](https://www.guo.media/posts/251676) `2019-11-07T22:55:10`
+##
+
 **milesguo** 【翻译】<br><br>BREITBART11月6日: 国会敦促海关禁止进口中国新疆奴隶劳工生产的商品<br><br>[https://spark.adobe.com/page/Y5J1TaM71IhlO/](https://spark.adobe.com/page/Y5J1TaM71IhlO/ "https://spark.adobe.com/page/Y5J1TaM71IhlO/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/251625](https://www.guo.media/posts/251625) `2019-11-07T16:40:12`
