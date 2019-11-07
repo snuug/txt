@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>HKFP香港自由新聞11月5日: 北京通過信息操縱將香港抗議活動構陷為“獨立” 陰謀<br><br>[https://spark.adobe.com/page/ZwAYDs3IclsRk/](https://spark.adobe.com/page/ZwAYDs3IclsRk/ "https://spark.adobe.com/page/ZwAYDs3IclsRk/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/251451](https://www.guo.media/posts/251451) `2019-11-07T00:55:10`
+##
+
 **milesguo** 11月6号：文贵拜请所有的战友们千万不要忘了我们的现在的重点．传播香港危机的真相……一切都是刚刚开始！
 
 [https://www.guo.media/posts/251418](https://www.guo.media/posts/251418) `2019-11-06T22:55:12`
