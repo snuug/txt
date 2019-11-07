@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>美联社曼谷11月5日：美国向亚洲示好，计划与中国的“一带一路”抗衡<br><br>[https://spark.adobe.com/page/5kmUvmsNkSXa3/](https://spark.adobe.com/page/5kmUvmsNkSXa3/ "https://spark.adobe.com/page/5kmUvmsNkSXa3/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/251531](https://www.guo.media/posts/251531) `2019-11-07T07:10:11`
+##
+
 **milesguo** 【翻譯】<br><br>HKFP香港自由新聞11月5日: 北京通過信息操縱將香港抗議活動構陷為“獨立” 陰謀<br><br>[https://spark.adobe.com/page/ZwAYDs3IclsRk/](https://spark.adobe.com/page/ZwAYDs3IclsRk/ "https://spark.adobe.com/page/ZwAYDs3IclsRk/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/251451](https://www.guo.media/posts/251451) `2019-11-07T00:55:10`
