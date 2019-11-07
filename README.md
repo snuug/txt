@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>參議員馬克.盧比奧網站11月6日: 盧比奧、沙欣倡導兩黨兩院TSP禁令，阻止委員會把聯邦退休儲蓄存到中國<br><br>[https://spark.adobe.com/page/DZ5U6Wix5AnK4/](https://spark.adobe.com/page/DZ5U6Wix5AnK4/ "https://spark.adobe.com/page/DZ5U6Wix5AnK4/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/251602](https://www.guo.media/posts/251602) `2019-11-07T13:55:12`
+##
+
 **liuabing11** 
 【新闻】10月15日台湾自由时报报导：中國經濟急速下滑！郭文貴先生爆：現在GDP基本上是0
  
