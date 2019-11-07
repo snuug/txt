@@ -232,33 +232,3 @@
 [https://www.guo.media/posts/249803](https://www.guo.media/posts/249803) `2019-11-04T06:04:28`
 ##
 
-**milesguo** 【翻译】<br><br>香港自由新闻HKFP11月1日：英国呼吁警方对香港的抗议活动作出“适当的”回应，并结束暴力<br><br>[https://spark.adobe.com/page/QJIvPemgkCRFC/](https://spark.adobe.com/page/QJIvPemgkCRFC/ "https://spark.adobe.com/page/QJIvPemgkCRFC/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/249757](https://www.guo.media/posts/249757) `2019-11-04T06:04:31`
-##
-
-**milesguo** 11月1号：尊敬的战友们好！明天纽约时间上午10:00．文贵报平安直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/249566](https://www.guo.media/posts/249566) `2019-11-04T06:04:35`
-##
-
-**milesguo** 【翻译】<br><br>国家评论10月31日：参议员Hawley支持对镇压抗议的中国和香港当局进行制裁的法案<br><br>[https://spark.adobe.com/page/EEsZFyEmvMUoD/](https://spark.adobe.com/page/EEsZFyEmvMUoD/ "https://spark.adobe.com/page/EEsZFyEmvMUoD/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/249517](https://www.guo.media/posts/249517) `2019-11-04T06:04:37`
-##
-
-**milesguo** 11月1日：这是某个NGO机构要求购买的郭战装……当然我们是送给他们了…看看他们怎么用吧……一切都是刚刚开始！
-
-[https://www.guo.media/posts/249462](https://www.guo.media/posts/249462) `2019-11-04T06:04:39`
-##
-
-**milesguo** 11月1日：共产党的邪恶之恐怖😱是有史以来最惨无人性的……天不灭共．共必灭人类．一切都是刚刚开始！
-
-[https://www.guo.media/posts/249404](https://www.guo.media/posts/249404) `2019-11-04T06:04:42`
-##
-
-**milesguo** 11月1号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？下午5点前文贵没有直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/249386](https://www.guo.media/posts/249386) `2019-11-04T06:04:44`
-##
-
