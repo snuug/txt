@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 11月7日：尊敬的战友们好！你们健身了吗？你们传播香港危机真象了吗？文贵将在10:00左右<br>报平安直播！没有任何爆料千万不要影响国内战友们的休息，一切都是刚刚开始！
+
+[https://www.guo.media/posts/251609](https://www.guo.media/posts/251609) `2019-11-07T14:26:10`
+##
+
+**milesguo** 【香港日程】<br><br>11月8日 星期五：<br><br>7:45 a.m.  和你返工 各區<br><br>12:30 p.m. 中環快閃再集結 渣打花園<br><br>8:00 p.m.  夢遊大講堂「民主與公民社會活躍化」 旺角道，上海街<br><br>9:00-10:00 p.m. 火炭人和你跑 火炭站A出口<br><br>【MIZ】
+
+[https://www.guo.media/posts/251608](https://www.guo.media/posts/251608) `2019-11-07T14:26:13`
+##
+
 **milesguo** 【翻譯】<br><br>參議員馬克.盧比奧網站11月6日: 盧比奧、沙欣倡導兩黨兩院TSP禁令，阻止委員會把聯邦退休儲蓄存到中國<br><br>[https://spark.adobe.com/page/DZ5U6Wix5AnK4/](https://spark.adobe.com/page/DZ5U6Wix5AnK4/ "https://spark.adobe.com/page/DZ5U6Wix5AnK4/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/251602](https://www.guo.media/posts/251602) `2019-11-07T13:55:12`
