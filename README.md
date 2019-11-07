@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月7日：小五说英文字幕版的视频又又来啦……一切都是刚刚开始！
+
+[https://www.guo.media/posts/251681](https://www.guo.media/posts/251681) `2019-11-07T23:10:12`
+##
+
 **milesguo** 香港中文大学学生吳傲雪致香港特首一封公開信 【英文版】<br><br>An Open Letter from Sonia Ng: Like a legend thorn bird, you only sing once for the most beautiful song but impale upon the sharpest spine with the deepest pain. The whole world listens and God in his heaven smiles.  #SoniaNg #HKCU #MeToo <br><br>[https://spark.adobe.com/page/bDPKauQ7IyNEU/](https://spark.adobe.com/page/bDPKauQ7IyNEU/ "https://spark.adobe.com/page/bDPKauQ7IyNEU/")<br><br>【战鹰团】
 
 [https://www.guo.media/posts/251676](https://www.guo.media/posts/251676) `2019-11-07T22:55:10`
