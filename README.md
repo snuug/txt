@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>白宫11月7日：2019年全国共产主义受害者纪念日总统致辞<br><br>[https://spark.adobe.com/page/unmmGaLPBV6Hw/](https://spark.adobe.com/page/unmmGaLPBV6Hw/ "https://spark.adobe.com/page/unmmGaLPBV6Hw/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/251743](https://www.guo.media/posts/251743) `2019-11-08T02:40:10`
+##
+
 **milesguo** 【翻译】<br><br>彭博社11月7日: 纽约科技公司被指控向美国出售中国间谍装备<br><br>[https://spark.adobe.com/page/NsfNgjUdXpbWJ/](https://spark.adobe.com/page/NsfNgjUdXpbWJ/ "https://spark.adobe.com/page/NsfNgjUdXpbWJ/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/251741](https://www.guo.media/posts/251741) `2019-11-08T02:10:11`
