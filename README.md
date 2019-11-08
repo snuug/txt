@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 性侵案惹的祸？刘强东辞去全国政协委员<br><br>内地电商京东集团创办人刘强东以个人理由请辞全国政协委员。<br><br>央视《新闻联播》报道，刘强东因个人原因请辞全国政协第十三届全国委员会。常务委员会第九次会议在北京闭幕，并宣布有关消息。<br><br>[https://news.guo.media/cn/9664/](https://news.guo.media/cn/9664/ "https://news.guo.media/cn/9664/")<br><br>【MIZ】<br>
+
+[https://www.guo.media/posts/251740](https://www.guo.media/posts/251740) `2019-11-08T01:55:11`
+##
+
 **milesguo** 11月7日：小五说英文字幕版的视频又又来啦……一切都是刚刚开始！
 
 [https://www.guo.media/posts/251681](https://www.guo.media/posts/251681) `2019-11-07T23:10:12`
