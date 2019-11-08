@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【关注香港】<br><br>香港科技大学新移民学生呼吁:用尽一切方法争取香港自由，一同谴责警方暴力，生死与共。<br><br>A new immigrant student at the Hong Kong University of Science and Technology called for  fighting for the freedom of Hong Kong  by all means， condemning police violence, and living or dying together.<br><br>[https://news.guo.media/cn/9693/](https://news.guo.media/cn/9693/ "https://news.guo.media/cn/9693/")
+
+[https://www.guo.media/posts/251825](https://www.guo.media/posts/251825) `2019-11-08T06:40:11`
+##
+
 **milesguo** 【關注香港】<br><br>11月8日:本週一凌晨在將軍澳尚德邨停車場墮下昏迷的科技大學學生周梓樂，留院五日後，今天早上8時09分傷重不治。<br><br>科技大學校長史維在畢業禮上確認墮樓學生周梓樂的死訊，一度落淚。<br><br>伊利沙伯醫院深切治療部外，仍然放滿市民送上的紙鶴及鮮花，多名醫護人員早上進出他留醫的病房。<br><br>周梓樂週一凌晨在尚德邨停車場墮樓，他腦幹受壓以及盆骨骨折，接受過兩次腦部手術，一直在深切治療部留醫。<br><br>全城悼念周同學<br>日期：11月8日 <br>時間：1945-2200 <br>八點準時默哀<br><br>願手足一路好走 <br><br>絕不讓真相沈沒<br><br>新聞來源：<br><br>[http://news.now.com/home/local/player?newsId=369147](https://news.now.com/home/local/player?newsId=369147 "http://news.now.com/home/local/player?newsId=369147") [http://news.now.com/home/local/player?newsId=369148](https://news.now.com/home/local/player?newsId=369148 "http://news.now.com/home/local/player?newsId=369148")<br><br><br>【MIZ】
 
 [https://www.guo.media/posts/251812](https://www.guo.media/posts/251812) `2019-11-08T05:55:10`
