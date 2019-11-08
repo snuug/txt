@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月8号尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/251911](https://www.guo.media/posts/251911) `2019-11-08T13:10:11`
+##
+
 **milesguo** 【關注香港】<br><br>11.8  20:00 <br>全城默哀 悼念周同學<br><br>他是梓樂<br>他是個勇敢 愛香港的年輕人<br>他的名字永遠不會被遺忘<br>為周同學 找到真相<br>為周同學 走下去<br><br>【MIZ】
 
 [https://www.guo.media/posts/251896](https://www.guo.media/posts/251896) `2019-11-08T11:40:10`
