@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>彭博社11月7日: 纽约科技公司被指控向美国出售中国间谍装备<br><br>[https://spark.adobe.com/page/NsfNgjUdXpbWJ/](https://spark.adobe.com/page/NsfNgjUdXpbWJ/ "https://spark.adobe.com/page/NsfNgjUdXpbWJ/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/251741](https://www.guo.media/posts/251741) `2019-11-08T02:10:11`
+##
+
 **milesguo** 性侵案惹的祸？刘强东辞去全国政协委员<br><br>内地电商京东集团创办人刘强东以个人理由请辞全国政协委员。<br><br>央视《新闻联播》报道，刘强东因个人原因请辞全国政协第十三届全国委员会。常务委员会第九次会议在北京闭幕，并宣布有关消息。<br><br>[https://news.guo.media/cn/9664/](https://news.guo.media/cn/9664/ "https://news.guo.media/cn/9664/")<br><br>【MIZ】<br>
 
 [https://www.guo.media/posts/251740](https://www.guo.media/posts/251740) `2019-11-08T01:55:11`
