@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>11.8  20:00 <br>全城默哀 悼念周同學<br><br>他是梓樂<br>他是個勇敢 愛香港的年輕人<br>他的名字永遠不會被遺忘<br>為周同學 找到真相<br>為周同學 走下去<br><br>【MIZ】
+
+[https://www.guo.media/posts/251896](https://www.guo.media/posts/251896) `2019-11-08T11:40:10`
+##
+
 **milesguo** 【关注香港】<br><br>香港科技大学新移民学生呼吁:用尽一切方法争取香港自由，一同谴责警方暴力，生死与共。<br><br>A new immigrant student at the Hong Kong University of Science and Technology called for  fighting for the freedom of Hong Kong  by all means， condemning police violence, and living or dying together.<br><br>[https://news.guo.media/cn/9693/](https://news.guo.media/cn/9693/ "https://news.guo.media/cn/9693/")
 
 [https://www.guo.media/posts/251825](https://www.guo.media/posts/251825) `2019-11-08T06:40:11`
@@ -236,70 +241,5 @@
 **milesguo** 【香港真相】<br><br>11.3 瘋狂濫暴 瘋狂濫捕<br>Hong Kong 🆘<br><br>【MIZ】
 
 [https://www.guo.media/posts/250260](https://www.guo.media/posts/250260) `2019-11-04T06:03:54`
-##
-
-**milesguo** 【摘要翻譯】<br><br>美國司法部10月30日：美國已達成和解協議追回7億多美元的資產，這些資產據稱涉及到馬來西亞主權財富基金的腐敗<br> <br>[https://spark.adobe.com/page/FDsiJxZLciK9p/](https://spark.adobe.com/page/FDsiJxZLciK9p/ "https://spark.adobe.com/page/FDsiJxZLciK9p/")<br><br>【秘密翻譯組】
-
-[https://www.guo.media/posts/250205](https://www.guo.media/posts/250205) `2019-11-04T06:03:56`
-##
-
-**milesguo** 【翻譯】<br><br>CNBC11月1日: 做空者卡森.布洛克說，美國不能任由中國“擺佈我們的公司和人民”<br><br>[https://spark.adobe.com/page/szSjhaUQHnK4y/](https://spark.adobe.com/page/szSjhaUQHnK4y/ "https://spark.adobe.com/page/szSjhaUQHnK4y/")<br><br>【秘密翻譯組】
-
-[https://www.guo.media/posts/250199](https://www.guo.media/posts/250199) `2019-11-04T06:03:59`
-##
-
-**milesguo** 【香港真相】<br><br>比納粹德軍更無人性<br>比侵華日軍更殘暴<br>比ISIS更恐怖<br>從以警治國 以黑治國<br>到以警治港 以黑治港<br>香港早已淪陷<br>光復香港<br>建立新中國<br><br>【MIZ】<br><br><br>
-
-[https://www.guo.media/posts/250076](https://www.guo.media/posts/250076) `2019-11-04T06:04:01`
-##
-
-**milesguo** 【翻译】【中英双语】<br><br>2019 美国国务卿迈克尔·蓬佩奥在赫尔曼·卡恩奖颁奖晚会就“中国的挑战”发表的讲话<br><br>[https://spark.adobe.com/page/Xf2GE7mvXF8sC/](https://spark.adobe.com/page/Xf2GE7mvXF8sC/ "https://spark.adobe.com/page/Xf2GE7mvXF8sC/")<br><br>【战鹰团】
-
-[https://www.guo.media/posts/250059](https://www.guo.media/posts/250059) `2019-11-04T06:04:04`
-##
-
-**milesguo** 【香港真相】<br><br>11.2 香港發生了什麼？<br><br>What really happened in Hong Kong on 2 November 2019?<br><br>【MIZ】
-
-[https://www.guo.media/posts/250004](https://www.guo.media/posts/250004) `2019-11-04T06:04:06`
-##
-
-**milesguo** 11月2日：西雅图的战友在挺港行动中……[https://twitter.com/shirly1331一切都是刚刚开始！](https://twitter.com/shirly1331一切都是刚刚开始！ "https://twitter.com/shirly1331一切都是刚刚开始！")
-
-[https://www.guo.media/posts/249991](https://www.guo.media/posts/249991) `2019-11-04T06:04:09`
-##
-
-**milesguo** 11月2日：小五说的字幕版来了……
-
-[https://www.guo.media/posts/249988](https://www.guo.media/posts/249988) `2019-11-04T06:04:12`
-##
-
-**milesguo** 【翻译】<br><br>大纪元时报10月29日: 中国侵入性的新网络安全法是偷盗美国知识产权的又一个后门吗？<br><br>[https://spark.adobe.com/page/B0r3Aiv77R0ZN/](https://spark.adobe.com/page/B0r3Aiv77R0ZN/ "https://spark.adobe.com/page/B0r3Aiv77R0ZN/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/249970](https://www.guo.media/posts/249970) `2019-11-04T06:04:16`
-##
-
-**milesguo** 【翻译】<br><br>The ambition of the CPP's blockchain and digital currency<br><br>中共区块链及数字货币的野心<br><br><br>[https://spark.adobe.com/page/rKeoLyk5SR7ZO/](https://spark.adobe.com/page/rKeoLyk5SR7ZO/ "https://spark.adobe.com/page/rKeoLyk5SR7ZO/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/249964](https://www.guo.media/posts/249964) `2019-11-04T06:04:19`
-##
-
-**milesguo** 11月2号：感谢在中央公园相遇的战友那些暖心的话，感谢那些来自香港的战友们那些感动人的话，只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命，我们正在实现我们的喜马拉雅目标……让中国人活在没有恐惧，一个法制和信仰自由的社会即将到来，一切都是刚刚开始！
-
-[https://www.guo.media/posts/249959](https://www.guo.media/posts/249959) `2019-11-04T06:04:21`
-##
-
-**milesguo** 11月2号：感谢在中央公园相遇的战友那些暖心的话，感谢那些来自香港的战友们那些感动人的话，只有灭共才能让我们更加的安全和幸福，我们有共同的目标……我们有上天赋予的使命，我们正在实现我们的喜马拉雅目标……让中国人活在没有恐惧，一个法制和信仰自由的社会即将到来，一切都是刚刚开始！
-
-[https://www.guo.media/posts/249958](https://www.guo.media/posts/249958) `2019-11-04T06:04:23`
-##
-
-**milesguo** 11月2号：尊敬的战友们好！应正在重要的视频会议中，直播会在10:30左右进行非常抱歉，今天没有任何爆料……请战友们不要因为等直播影响休息。一切都是刚刚开始！
-
-[https://www.guo.media/posts/249842](https://www.guo.media/posts/249842) `2019-11-04T06:04:26`
-##
-
-**milesguo** 【香港現場】<br>11.2 香港人在反抗<br><br>合法集會被警方腰斬<br>警方催淚彈放題<br>大肆無差別抓捕<br>包括記者，急救人員<br>香港人沒有放棄<br>香港人，加油！<br><br>【MIZ】
-
-[https://www.guo.media/posts/249803](https://www.guo.media/posts/249803) `2019-11-04T06:04:28`
 ##
 
