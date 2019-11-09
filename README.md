@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>POLITICAL 11月8日：特朗普说他并没有同意降低中国关税<br><br>[https://spark.adobe.com/page/UmWb9muNHhJnS/](https://spark.adobe.com/page/UmWb9muNHhJnS/ "https://spark.adobe.com/page/UmWb9muNHhJnS/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/252165](https://www.guo.media/posts/252165) `2019-11-09T06:55:10`
+##
+
 **milesguo** 【關注香港】<br><br>他是被政權推下去的<br>他是被政權殺死的<br><br>香港人， 報仇<br>Hong Kong,  avenge <br><br>我們流過的所有淚水<br>一定會讓你們十倍奉還<br><br>【MIZ】
 
 [https://www.guo.media/posts/252106](https://www.guo.media/posts/252106) `2019-11-09T02:25:10`
