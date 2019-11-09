@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br>路透社11月6日: 對中國小銀行的擔憂引發了不到兩周內第二次擠兌<br><br>[https://spark.adobe.com/page/HkCMLMprMgZin/](https://spark.adobe.com/page/HkCMLMprMgZin/ "https://spark.adobe.com/page/HkCMLMprMgZin/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/252194](https://www.guo.media/posts/252194) `2019-11-09T10:10:10`
+##
+
 **milesguo** 【翻译】<br><br>POLITICAL 11月8日：特朗普说他并没有同意降低中国关税<br><br>[https://spark.adobe.com/page/UmWb9muNHhJnS/](https://spark.adobe.com/page/UmWb9muNHhJnS/ "https://spark.adobe.com/page/UmWb9muNHhJnS/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/252165](https://www.guo.media/posts/252165) `2019-11-09T06:55:10`
