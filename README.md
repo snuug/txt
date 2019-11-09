@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>美国国务院11月8日: <br>1989年的教训：自由与我们的未来<br><br>[https://spark.adobe.com/page/6fZrTxlt94v2r/](https://spark.adobe.com/page/6fZrTxlt94v2r/ "https://spark.adobe.com/page/6fZrTxlt94v2r/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/252284](https://www.guo.media/posts/252284) `2019-11-09T16:40:11`
+##
+
 **milesguo** 11月9号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？半小时左右报平安直播……一切都是刚刚开始！
 
 [https://www.guo.media/posts/252228](https://www.guo.media/posts/252228) `2019-11-09T13:11:10`
