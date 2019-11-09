@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月9号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？半小时左右报平安直播……一切都是刚刚开始！
+
+[https://www.guo.media/posts/252228](https://www.guo.media/posts/252228) `2019-11-09T13:11:10`
+##
+
 **milesguo** 【翻譯】<br>路透社11月6日: 對中國小銀行的擔憂引發了不到兩周內第二次擠兌<br><br>[https://spark.adobe.com/page/HkCMLMprMgZin/](https://spark.adobe.com/page/HkCMLMprMgZin/ "https://spark.adobe.com/page/HkCMLMprMgZin/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/252194](https://www.guo.media/posts/252194) `2019-11-09T10:10:10`
