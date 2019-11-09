@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>他是被政權推下去的<br>他是被政權殺死的<br><br>香港人， 報仇<br>Hong Kong,  avenge <br><br>我們流過的所有淚水<br>一定會讓你們十倍奉還<br><br>【MIZ】
+
+[https://www.guo.media/posts/252106](https://www.guo.media/posts/252106) `2019-11-09T02:25:10`
+##
+
 **milesguo** 11月8号尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/251911](https://www.guo.media/posts/251911) `2019-11-08T13:10:11`
