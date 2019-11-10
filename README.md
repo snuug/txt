@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>白宮11月9日: 2019年世界自由日的總統宣言<br><br>[https://spark.adobe.com/page/L1GZ9AfmMoBn3/](https://spark.adobe.com/page/L1GZ9AfmMoBn3/ "https://spark.adobe.com/page/L1GZ9AfmMoBn3/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/252451](https://www.guo.media/posts/252451) `2019-11-10T07:10:10`
+##
+
 **milesguo** 【郭言郭语90秒 GUO’S REMARKS IN 90 SECONDS 】<br><br>What is the CCP going to do next in Hong Kong? (4 Nov 2019)<br><br><br>[https://news.guo.media/10552/](https://news.guo.media/10552/ "https://news.guo.media/10552/")
 
 [https://www.guo.media/posts/252434](https://www.guo.media/posts/252434) `2019-11-10T05:40:10`
