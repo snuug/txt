@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 这才是美国开始怼抖音的真正原因！<br><br>斯伯丁将军在一个电台采访中表示：中共复制脸书的商业模式，把自己的价值观推广到全世界。而且中共还盗取用户的隐私数据。美国虽然创造了互联网，但是部分领域的立法没有跟上，导致了中共利用这些不法之地，进行技术和隐私的盗取。<br><br>[https://news.guo.media/cn/10531/](https://news.guo.media/cn/10531/ "https://news.guo.media/cn/10531/")
+
+[https://www.guo.media/posts/252431](https://www.guo.media/posts/252431) `2019-11-10T05:25:10`
+##
+
 **milesguo** 【關注香港】<br><br>11.11 早上7時，十八區開花<br>罷工 罷課 罷市<br>全民三罷 癱瘓香港<br><br>這是香港最困難的兩周<br>一定要堅持下去<br>香港人， 報仇<br>香港人，加油<br><br>Strike to save Hong Kong<br>Stand with Hong Kong <br>Hong Kong, avenge <br><br>【MIZ】
 
 [https://www.guo.media/posts/252410](https://www.guo.media/posts/252410) `2019-11-10T03:40:10`
