@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月10号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在半小时内直播报平安！一切都是刚刚开始！
+
+[https://www.guo.media/posts/252573](https://www.guo.media/posts/252573) `2019-11-10T15:40:10`
+##
+
 **milesguo** 【翻译】<br><br>WND 网 11月9日： 红色中国在美国的带薪帮凶<br><br>[https://spark.adobe.com/page/kJGWQ7Crc5NhL/](https://spark.adobe.com/page/kJGWQ7Crc5NhL/ "https://spark.adobe.com/page/kJGWQ7Crc5NhL/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/252532](https://www.guo.media/posts/252532) `2019-11-10T14:25:11`
