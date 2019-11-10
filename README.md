@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>WND 网 11月9日： 红色中国在美国的带薪帮凶<br><br>[https://spark.adobe.com/page/kJGWQ7Crc5NhL/](https://spark.adobe.com/page/kJGWQ7Crc5NhL/ "https://spark.adobe.com/page/kJGWQ7Crc5NhL/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/252532](https://www.guo.media/posts/252532) `2019-11-10T14:25:11`
+##
+
 **milesguo** 【翻譯】<br><br>白宮11月9日: 2019年世界自由日的總統宣言<br><br>[https://spark.adobe.com/page/L1GZ9AfmMoBn3/](https://spark.adobe.com/page/L1GZ9AfmMoBn3/ "https://spark.adobe.com/page/L1GZ9AfmMoBn3/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/252451](https://www.guo.media/posts/252451) `2019-11-10T07:10:10`
