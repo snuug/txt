@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【郭言郭语90秒 GUO’S REMARKS IN 90 SECONDS 】<br><br>What is the CCP going to do next in Hong Kong? (4 Nov 2019)<br><br><br>[https://news.guo.media/10552/](https://news.guo.media/10552/ "https://news.guo.media/10552/")
+
+[https://www.guo.media/posts/252434](https://www.guo.media/posts/252434) `2019-11-10T05:40:10`
+##
+
 **milesguo** 这才是美国开始怼抖音的真正原因！<br><br>斯伯丁将军在一个电台采访中表示：中共复制脸书的商业模式，把自己的价值观推广到全世界。而且中共还盗取用户的隐私数据。美国虽然创造了互联网，但是部分领域的立法没有跟上，导致了中共利用这些不法之地，进行技术和隐私的盗取。<br><br>[https://news.guo.media/cn/10531/](https://news.guo.media/cn/10531/ "https://news.guo.media/cn/10531/")
 
 [https://www.guo.media/posts/252431](https://www.guo.media/posts/252431) `2019-11-10T05:25:10`
