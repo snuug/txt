@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【關注香港】<br><br>11.11 早上7時，十八區開花<br>罷工 罷課 罷市<br>全民三罷 癱瘓香港<br><br>這是香港最困難的兩周<br>一定要堅持下去<br>香港人， 報仇<br>香港人，加油<br><br>Strike to save Hong Kong<br>Stand with Hong Kong <br>Hong Kong, avenge <br><br>【MIZ】
+
+[https://www.guo.media/posts/252410](https://www.guo.media/posts/252410) `2019-11-10T03:40:10`
+##
+
 **milesguo** 【翻译】<br><br>美国国务院11月8日: <br>1989年的教训：自由与我们的未来<br><br>[https://spark.adobe.com/page/6fZrTxlt94v2r/](https://spark.adobe.com/page/6fZrTxlt94v2r/ "https://spark.adobe.com/page/6fZrTxlt94v2r/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/252284](https://www.guo.media/posts/252284) `2019-11-09T16:40:11`
