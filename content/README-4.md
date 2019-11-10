@@ -11,7 +11,9 @@
 
 ## 最新郭文
 
-## 頁面 4/20 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [20](/content/README-20.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/21 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [21](/content/README-21.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
 
@@ -61,7 +63,5 @@
 
 [文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
-
-## 頁面 4/20 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [20](/content/README-20.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/21 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [21](/content/README-21.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

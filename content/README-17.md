@@ -11,7 +11,9 @@
 
 ## 最新郭文
 
-## 頁面 17/20 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/21 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
 
@@ -61,7 +63,5 @@
 
 [文字版：2017年11月2日曹长青：怎么看郭文贵的“不反习”和“保命保财报仇”？](/content/2018/04/20180418-343207939646177641.md)
 
-[翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
 
-
-## 頁面 17/20 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/21 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
