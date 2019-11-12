@@ -158,28 +158,3 @@
 [https://www.guo.media/posts/](https://www.guo.media/posts/) `2019-10-15T07:55:11`
 ##
 
-**milesguo** 【翻译】<br><br>美联社曼谷11月5日：美国向亚洲示好，计划与中国的“一带一路”抗衡<br><br>[https://spark.adobe.com/page/5kmUvmsNkSXa3/](https://spark.adobe.com/page/5kmUvmsNkSXa3/ "https://spark.adobe.com/page/5kmUvmsNkSXa3/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/251531](https://www.guo.media/posts/251531) `2019-11-07T07:10:11`
-##
-
-**milesguo** 【翻譯】<br><br>HKFP香港自由新聞11月5日: 北京通過信息操縱將香港抗議活動構陷為“獨立” 陰謀<br><br>[https://spark.adobe.com/page/ZwAYDs3IclsRk/](https://spark.adobe.com/page/ZwAYDs3IclsRk/ "https://spark.adobe.com/page/ZwAYDs3IclsRk/")<br><br>【秘密翻譯組】
-
-[https://www.guo.media/posts/251451](https://www.guo.media/posts/251451) `2019-11-07T00:55:10`
-##
-
-**milesguo** 11月6号：文贵拜请所有的战友们千万不要忘了我们的现在的重点．传播香港危机的真相……一切都是刚刚开始！
-
-[https://www.guo.media/posts/251418](https://www.guo.media/posts/251418) `2019-11-06T22:55:12`
-##
-
-**milesguo** 11月6号：小伍说的英文字幕版又来了，一切都是刚刚开始！
-
-[https://www.guo.media/posts/251388](https://www.guo.media/posts/251388) `2019-11-06T19:10:11`
-##
-
-**milesguo** 【摘要翻譯】<br><br>CNBC11月5日:即使達成貿易協議，美國可能繼續對中國科技公司施壓<br><br>[https://spark.adobe.com/page/Ve37Wj1Niz7ji/](https://spark.adobe.com/page/Ve37Wj1Niz7ji/ "https://spark.adobe.com/page/Ve37Wj1Niz7ji/")<br><br>【秘密翻譯組】
-
-[https://www.guo.media/posts/251289](https://www.guo.media/posts/251289) `2019-11-06T11:55:11`
-##
-
