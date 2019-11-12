@@ -13,6 +13,8 @@
 
 ## 頁面 2/21 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [21](/content/README-21.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月14日游艇机舱报平安直播](/content/2019/10/20191015-2796579194021955341.md)
+
 [文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/content/2019/10/20191014-1580303253011226173.md)
 
 [文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/2019/10/20191014-3517209154004585431.md)
@@ -60,8 +62,6 @@
 [文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
 
 [文字版：2019年9月9日 路德访谈文贵，班农先生](/content/2019/09/20190911-4067565485172047887.md)
-
-[文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/content/2019/09/20190910-2862056043397167369.md)
 
 
 ## 頁面 2/21 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [21](/content/README-21.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
