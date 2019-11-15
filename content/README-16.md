@@ -13,6 +13,8 @@
 
 ## 頁面 16/21 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
+
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
 
 [文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
@@ -60,8 +62,6 @@
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/2018/04/20180418-6750041180802210914.md)
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/content/2018/04/20180418-7392390193329846030.md)
-
-[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
 
 
 ## 頁面 16/21 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
