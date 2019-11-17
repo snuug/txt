@@ -13,6 +13,10 @@
 
 ## 頁面 10/21 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [21](/content/README-21.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/content/2018/12/20181209-8884360174846064842.md)
+
+[文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/content/2018/12/20181205-2670968089452974831.md)
+
 [文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/content/2018/12/20181201-3387021380873494190.md)
 
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/content/2018/11/20181129-7314078079125955077.md)
@@ -58,10 +62,6 @@
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/2018/10/20181029-8202855451212977956.md)
 
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181029-1889983154079130395.md)
-
-[文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/2018/10/20181026-2575309675439495092.md)
-
-[翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
 
 
 ## 頁面 10/21 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [21](/content/README-21.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
