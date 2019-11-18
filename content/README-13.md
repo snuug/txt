@@ -13,6 +13,8 @@
 
 ## 頁面 13/21 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [21](/content/README-21.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
+
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/2018/07/20180719-5443469418694785796.md)
 
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/2018/07/20180711-4817682308462486547.md)
@@ -60,8 +62,6 @@
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
 
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
-
-[文字版郭先生2018年5月2日 ins直播](/content/2018/05/20180504-824140605329420568.md)
 
 
 ## 頁面 13/21 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [21](/content/README-21.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
