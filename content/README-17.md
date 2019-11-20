@@ -13,6 +13,8 @@
 
 ## 頁面 17/21 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/2018/04/20180418-7284381815755271685.md)
+
 [何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/content/2018/04/20180418-2077883396848379491.md)
 
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/content/2018/04/20180418-6392488223382498573.md)
@@ -60,8 +62,6 @@
 [路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
 
 [自由灯塔：美国之音因为一个有争议的采访解雇了三名员工](/content/2018/04/20180418-4898378291964960909.md)
-
-[国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
 
 
 ## 頁面 17/21 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
