@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>11月20号：刚刚．又是最短的时间最快的速度全票通过香港保护法……全又是一个伟大的传奇！<br>伟大的南茜……伟大的美国！一切都是刚刚开始！
+
+[https://www.guo.media/posts/254388](https://www.guo.media/posts/254388) `2019-11-20T22:40:10`
+##
+
 **milesguo** 11月20日：下午了3.20 迈尔斯<br><br> 佩洛西呼吁在@ 330pm进行现场辩论，并在辩论后安排进行有记录的投票<br><br> 重大新闻
 
 [https://www.guo.media/posts/254360](https://www.guo.media/posts/254360) `2019-11-20T20:25:11`
