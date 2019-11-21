@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11/21/2019 郭文贵先生报平安直播
+
+[https://www.guo.media/posts/254515](https://www.guo.media/posts/254515) `2019-11-21T16:40:12`
+##
+
 **milesguo** <br>11月21号：尊敬的战友们好！你们健身了吗？你们传插香港危机真相了吗！文贵马上在这里报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/254498](https://www.guo.media/posts/254498) `2019-11-21T14:55:12`
