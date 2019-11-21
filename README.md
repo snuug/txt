@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月21号：这仅仅是我们的一位战友……向法制基金捐款的五百分之一，万分的感谢您．这就是战友的力量．灭共的力量．一切都是刚刚开始！
+
+[https://www.guo.media/posts/254539](https://www.guo.media/posts/254539) `2019-11-21T18:55:12`
+##
+
 **milesguo** 11/21/2019 郭文贵先生报平安直播
 
 [https://www.guo.media/posts/254515](https://www.guo.media/posts/254515) `2019-11-21T16:40:12`
