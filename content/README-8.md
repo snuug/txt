@@ -13,6 +13,8 @@
 
 ## 頁面 8/21 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [21](/content/README-21.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190330-2880102853633751402.md)
+
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
 
 [文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
@@ -60,8 +62,6 @@
 [For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/2019/02/20190206-4750659155472193962.md)
 
 [文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/2019/01/20190131-8326021185101637411.md)
-
-[文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/2019/01/20190131-1680667895953644784.md)
 
 
 ## 頁面 8/21 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [21](/content/README-21.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

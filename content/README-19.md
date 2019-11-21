@@ -13,6 +13,8 @@
 
 ## 頁面 19/21 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
+
 [翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
@@ -60,8 +62,6 @@
 [1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/2018/04/20180418-4451931649943991252.md)
 
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
-
-[翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
 
 
 ## 頁面 19/21 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
