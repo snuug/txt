@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 法治基金一周年紀念片 <br>First anniversary film of the Rule of Law Foundation
+
+[https://www.guo.media/posts/254756](https://www.guo.media/posts/254756) `2019-11-22T16:55:11`
+##
+
 **milesguo** 【翻譯】<br><br>紐約時報11月18日: 香港六個月抗爭 我們是怎麼走到今天的？<br><br>[https://spark.adobe.com/page/0p9gofS1zEHDJ/](https://spark.adobe.com/page/0p9gofS1zEHDJ/ "https://spark.adobe.com/page/0p9gofS1zEHDJ/")<br><br>【秘密翻譯組】<br><br><br>
 
 [https://www.guo.media/posts/254750](https://www.guo.media/posts/254750) `2019-11-22T16:10:11`
