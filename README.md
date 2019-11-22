@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br><br>每日電訊11月19日: 參議院報告發現，美國機構的外國出生研究人員秘密為中國工作，並秘密招募其他人員<br><br>[https://spark.adobe.com/page/rzNiMQ5XfB6UQ/](https://spark.adobe.com/page/rzNiMQ5XfB6UQ/ "https://spark.adobe.com/page/rzNiMQ5XfB6UQ/")<br><br>【秘密翻譯組】<br><br><br>
+
+[https://www.guo.media/posts/254813](https://www.guo.media/posts/254813) `2019-11-22T23:25:10`
+##
+
 **milesguo** 【翻译】<br><br>BBC英国广播公司11月20日: 郑文杰：英国前领事馆工作人员说他在中国受到酷刑<br><br>[https://spark.adobe.com/page/j4B3BUS3W0ibT/](https://spark.adobe.com/page/j4B3BUS3W0ibT/ "https://spark.adobe.com/page/j4B3BUS3W0ibT/")<br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/254811](https://www.guo.media/posts/254811) `2019-11-22T22:40:11`
