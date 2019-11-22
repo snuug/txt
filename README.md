@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 
+
+[https://www.guo.media/posts/254632](https://www.guo.media/posts/254632) `2019-11-22T03:55:14`
+##
+
 **milesguo** 【翻譯】<br><br>國會山11月19日: 川普揚言，若達不成貿易協議，他將提高中國關稅<br><br>[https://spark.adobe.com/page/5IgEVZdbUqFaq/](https://spark.adobe.com/page/5IgEVZdbUqFaq/ "https://spark.adobe.com/page/5IgEVZdbUqFaq/")<br><br>【秘密翻譯組】<br><br><br>
 
 [https://www.guo.media/posts/254569](https://www.guo.media/posts/254569) `2019-11-21T22:55:12`
