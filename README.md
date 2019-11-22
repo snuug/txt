@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>Zerohegde 网11月21日: 暴力激增失控，富裕的香港人正在“启动应急计划”<br><br>[https://spark.adobe.com/page/puhaTntv3nWxm/](https://spark.adobe.com/page/puhaTntv3nWxm/ "https://spark.adobe.com/page/puhaTntv3nWxm/")<br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/254818](https://www.guo.media/posts/254818) `2019-11-22T23:55:11`
+##
+
 **milesguo** 【翻譯】<br><br>每日電訊11月19日: 參議院報告發現，美國機構的外國出生研究人員秘密為中國工作，並秘密招募其他人員<br><br>[https://spark.adobe.com/page/rzNiMQ5XfB6UQ/](https://spark.adobe.com/page/rzNiMQ5XfB6UQ/ "https://spark.adobe.com/page/rzNiMQ5XfB6UQ/")<br><br>【秘密翻譯組】<br><br><br>
 
 [https://www.guo.media/posts/254813](https://www.guo.media/posts/254813) `2019-11-22T23:25:10`
