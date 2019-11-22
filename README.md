@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月22号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天上午没有直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/254737](https://www.guo.media/posts/254737) `2019-11-22T14:40:13`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/254633](https://www.guo.media/posts/254633) `2019-11-22T04:10:13`
