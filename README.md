@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>BBC英国广播公司11月20日: 郑文杰：英国前领事馆工作人员说他在中国受到酷刑<br><br>[https://spark.adobe.com/page/j4B3BUS3W0ibT/](https://spark.adobe.com/page/j4B3BUS3W0ibT/ "https://spark.adobe.com/page/j4B3BUS3W0ibT/")<br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/254811](https://www.guo.media/posts/254811) `2019-11-22T22:40:11`
+##
+
 **milesguo** 法治基金一周年紀念片 <br>First anniversary film of the Rule of Law Foundation
 
 [https://www.guo.media/posts/254756](https://www.guo.media/posts/254756) `2019-11-22T16:55:11`
