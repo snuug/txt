@@ -13,6 +13,8 @@
 
 ## 頁面 5/21 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [21](/content/README-21.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
+
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
 
 [文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/2019/07/20190716-7014702308102493724.md)
@@ -60,8 +62,6 @@
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
 
 [文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
-
-[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
 
 
 ## 頁面 5/21 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [21](/content/README-21.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
