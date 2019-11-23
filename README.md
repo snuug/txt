@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br><br>时代周刊网11月21日: “整个系统旨在压制我们” 中国的国家监控对世界其他地区意味着什么<br><br>[https://spark.adobe.com/page/3iSIYXhSQGoQa/](https://spark.adobe.com/page/3iSIYXhSQGoQa/ "https://spark.adobe.com/page/3iSIYXhSQGoQa/")<br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/254910](https://www.guo.media/posts/254910) `2019-11-23T06:55:10`
+##
+
+**milesguo** 11/21/2019 郭文贵先生报平安直播. Part 2
+
+[https://www.guo.media/posts/254906](https://www.guo.media/posts/254906) `2019-11-23T06:55:14`
+##
+
 **milesguo** 11/21/2019 郭文贵先生报平安直播. Part 1
 
 [https://www.guo.media/posts/254900](https://www.guo.media/posts/254900) `2019-11-23T06:10:11`
