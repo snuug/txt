@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月22号：尊敬的战友们好！明天11月23日，纽约时间上午9:00左右文贵开始直播，我会告诉战友们这个穿红条纹T恤衫的人到底是谁？？？😇😇😇❌❌❌一切都是刚刚开始！
+
+[https://www.guo.media/posts/254860](https://www.guo.media/posts/254860) `2019-11-23T03:25:14`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/254854](https://www.guo.media/posts/254854) `2019-11-23T03:10:32`
