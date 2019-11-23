@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11/21/2019 郭文贵先生报平安直播. Part 1
+
+[https://www.guo.media/posts/254900](https://www.guo.media/posts/254900) `2019-11-23T06:10:11`
+##
+
 **milesguo** 11月22号：M lZ这个节目做得太棒了。[https://youtu.be/fql5qE1rVa8](https://youtu.be/fql5qE1rVa8 "https://youtu.be/fql5qE1rVa8")
 
 [https://www.guo.media/posts/254868](https://www.guo.media/posts/254868) `2019-11-23T03:55:14`
