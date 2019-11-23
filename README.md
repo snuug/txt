@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11/21/2019 郭文贵先生报平安直播. Part 3
+
+[https://www.guo.media/posts/254914](https://www.guo.media/posts/254914) `2019-11-23T07:10:11`
+##
+
 **milesguo** 【翻译】<br><br>时代周刊网11月21日: “整个系统旨在压制我们” 中国的国家监控对世界其他地区意味着什么<br><br>[https://spark.adobe.com/page/3iSIYXhSQGoQa/](https://spark.adobe.com/page/3iSIYXhSQGoQa/ "https://spark.adobe.com/page/3iSIYXhSQGoQa/")<br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/254910](https://www.guo.media/posts/254910) `2019-11-23T06:55:10`
