@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>CNBC11月24日: 亞洲股市走高，香港民主派在選舉中大獲全勝<br><br>[https://spark.adobe.com/page/IYz56TJph2jTb/](https://spark.adobe.com/page/IYz56TJph2jTb/ "https://spark.adobe.com/page/IYz56TJph2jTb/")<br><br>【秘密翻譯組】<br><br><br>
+
+[https://www.guo.media/posts/255441](https://www.guo.media/posts/255441) `2019-11-25T09:25:10`
+##
+
 **milesguo**  【翻译】<br><br>BBC英国广播公司11月25日: 香港选举：民主团体大获成功<br><br>[https://spark.adobe.com/page/fDEZjuWDgWzmT/](https://spark.adobe.com/page/fDEZjuWDgWzmT/ "https://spark.adobe.com/page/fDEZjuWDgWzmT/")<br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/255400](https://www.guo.media/posts/255400) `2019-11-25T06:25:11`
