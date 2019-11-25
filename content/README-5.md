@@ -13,6 +13,10 @@
 
 ## 頁面 5/21 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [21](/content/README-21.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
+
+[文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
+
 [文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
@@ -58,10 +62,6 @@
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
 
 [文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/2019/06/20190621-2858079650750078361.md)
-
-[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
-
-[文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
 
 
 ## 頁面 5/21 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [21](/content/README-21.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
