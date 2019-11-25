@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月25号：尊敬的战友们好！你们健身了吗？传播香港危机真相了吗？一切都是刚刚开始。
+
+[https://www.guo.media/posts/255466](https://www.guo.media/posts/255466) `2019-11-25T13:10:12`
+##
+
 **milesguo**  【翻譯】<br><br>CNBC11月24日: 亞洲股市走高，香港民主派在選舉中大獲全勝<br><br>[https://spark.adobe.com/page/IYz56TJph2jTb/](https://spark.adobe.com/page/IYz56TJph2jTb/ "https://spark.adobe.com/page/IYz56TJph2jTb/")<br><br>【秘密翻譯組】<br><br><br>
 
 [https://www.guo.media/posts/255441](https://www.guo.media/posts/255441) `2019-11-25T09:25:10`
