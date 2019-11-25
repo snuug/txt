@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>BBC英国广播公司11月25日: 香港选举：民主团体大获成功<br><br>[https://spark.adobe.com/page/fDEZjuWDgWzmT/](https://spark.adobe.com/page/fDEZjuWDgWzmT/ "https://spark.adobe.com/page/fDEZjuWDgWzmT/")<br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/255400](https://www.guo.media/posts/255400) `2019-11-25T06:25:11`
+##
+
 **milesguo** 【关注香港】<br>11月25日 <br>㊗️贺🎉🎉🎉<br>伟大的香港人民<br>经过6个月不屈不挠的奋战<br>用鲜血，生命迎得了<br>2019年区议会选举的绝对性胜利！<br><br>这是<br>人民的胜利！<br>民主的胜利！<br>信仰的胜利！<br>正义的胜利！<br><br>感谢香港同胞们！<br>你们的胜利鼓舞了我们！<br>没有共产党的新中国一定会到来！<br><br>【MIZ】【香港文宣图】
 
 [https://www.guo.media/posts/255329](https://www.guo.media/posts/255329) `2019-11-25T06:06:24`
