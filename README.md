@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>纽约时报11月24日: 互联网公司准备与“深度伪造（Deepfake)”的未来作斗争<br><br>[https://spark.adobe.com/page/X5RI05qkGXP0X/](https://spark.adobe.com/page/X5RI05qkGXP0X/ "https://spark.adobe.com/page/X5RI05qkGXP0X/")<br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/255490](https://www.guo.media/posts/255490) `2019-11-25T15:55:11`
+##
+
 **milesguo** 11月25号：尊敬的战友们好！你们健身了吗？传播香港危机真相了吗？一切都是刚刚开始。
 
 [https://www.guo.media/posts/255466](https://www.guo.media/posts/255466) `2019-11-25T13:10:12`
