@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>日经新闻11月24日: 美国对⾹港遭受暴⼒镇压的应急计划<br><br>[https://spark.adobe.com/page/CkzLezUaPmp5K/](https://spark.adobe.com/page/CkzLezUaPmp5K/ "https://spark.adobe.com/page/CkzLezUaPmp5K/")<br><br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/255567](https://www.guo.media/posts/255567) `2019-11-25T23:10:10`
+##
+
 **milesguo**  【翻译】<br><br>纽约时报11月24日: 互联网公司准备与“深度伪造（Deepfake)”的未来作斗争<br><br>[https://spark.adobe.com/page/X5RI05qkGXP0X/](https://spark.adobe.com/page/X5RI05qkGXP0X/ "https://spark.adobe.com/page/X5RI05qkGXP0X/")<br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/255490](https://www.guo.media/posts/255490) `2019-11-25T15:55:11`
