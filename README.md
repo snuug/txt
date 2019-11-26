@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>大西洋网11月25日: 香港没有亲中的“沉默的大多数”<br><br><br>[https://spark.adobe.com/page/Os758uDTWBbmt/](https://spark.adobe.com/page/Os758uDTWBbmt/ "https://spark.adobe.com/page/Os758uDTWBbmt/")<br><br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/255788](https://www.guo.media/posts/255788) `2019-11-26T08:10:10`
+##
+
 **milesguo**  【翻译】<br><br>路透社11月26日: 中国召见美国大使抗议香港人权法案<br><br>[https://spark.adobe.com/page/fNlKwEkd0jQ5x/](https://spark.adobe.com/page/fNlKwEkd0jQ5x/ "https://spark.adobe.com/page/fNlKwEkd0jQ5x/")<br><br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/255778](https://www.guo.media/posts/255778) `2019-11-26T07:25:11`
