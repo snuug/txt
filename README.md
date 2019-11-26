@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>雅虎财经— 彭博社11月25日: 中国计划创纪录地发行60亿美元的美元债券<br><br>[https://spark.adobe.com/page/uotAe3gVYxCcz/](https://spark.adobe.com/page/uotAe3gVYxCcz/ "https://spark.adobe.com/page/uotAe3gVYxCcz/") 
+
+[https://www.guo.media/posts/255805](https://www.guo.media/posts/255805) `2019-11-26T10:40:10`
+##
+
 **milesguo**  【翻譯】<br><br>英國金融時報11月25日: 台灣根據中共間諜的指控拘捕了幾名企業高管<br><br>[https://spark.adobe.com/page/JaxBBGvQsgRYZ/](https://spark.adobe.com/page/JaxBBGvQsgRYZ/ "https://spark.adobe.com/page/JaxBBGvQsgRYZ/")<br><br><br>【秘密翻譯組】<br><br><br>
 
 [https://www.guo.media/posts/255800](https://www.guo.media/posts/255800) `2019-11-26T09:55:10`
