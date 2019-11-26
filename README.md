@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月25号：尊敬的战友们好！明天．11月26日上午．9．30……文贵将首次在郭媒体与我们的好朋友Gertz Bill一起直播！……一切都是刚刚开始！
+
+[https://www.guo.media/posts/255588](https://www.guo.media/posts/255588) `2019-11-26T01:10:10`
+##
+
 **milesguo**  【翻译】<br><br>日经新闻11月24日: 美国对⾹港遭受暴⼒镇压的应急计划<br><br>[https://spark.adobe.com/page/CkzLezUaPmp5K/](https://spark.adobe.com/page/CkzLezUaPmp5K/ "https://spark.adobe.com/page/CkzLezUaPmp5K/")<br><br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/255567](https://www.guo.media/posts/255567) `2019-11-25T23:10:10`
