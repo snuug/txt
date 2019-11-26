@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>路透社11月26日: 中国召见美国大使抗议香港人权法案<br><br>[https://spark.adobe.com/page/fNlKwEkd0jQ5x/](https://spark.adobe.com/page/fNlKwEkd0jQ5x/ "https://spark.adobe.com/page/fNlKwEkd0jQ5x/")<br><br><br>【秘密翻译组】<br><br><br>
+
+[https://www.guo.media/posts/255778](https://www.guo.media/posts/255778) `2019-11-26T07:25:11`
+##
+
 **milesguo** 11月25号晚上9:16：【China just call US Ambassador in Beijing over to see foreign minister to file official complaint on legislation】共产党害怕了要和美国大使交涉了没用，谁都阻挡不了，香港保护法的通过，一切都是刚刚开始！
 
 [https://www.guo.media/posts/255607](https://www.guo.media/posts/255607) `2019-11-26T02:25:11`
