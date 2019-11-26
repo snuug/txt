@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>英國金融時報11月25日: 台灣根據中共間諜的指控拘捕了幾名企業高管<br><br>[https://spark.adobe.com/page/JaxBBGvQsgRYZ/](https://spark.adobe.com/page/JaxBBGvQsgRYZ/ "https://spark.adobe.com/page/JaxBBGvQsgRYZ/")<br><br><br>【秘密翻譯組】<br><br><br>
+
+[https://www.guo.media/posts/255800](https://www.guo.media/posts/255800) `2019-11-26T09:55:10`
+##
+
 **milesguo**  【翻译】<br><br>大西洋网11月25日: 香港没有亲中的“沉默的大多数”<br><br><br>[https://spark.adobe.com/page/Os758uDTWBbmt/](https://spark.adobe.com/page/Os758uDTWBbmt/ "https://spark.adobe.com/page/Os758uDTWBbmt/")<br><br><br>【秘密翻译组】<br><br><br>
 
 [https://www.guo.media/posts/255788](https://www.guo.media/posts/255788) `2019-11-26T08:10:10`
