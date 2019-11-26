@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年11月26日郭文贵先生与中共威胁论创始人比尔格兹先生直播
+
+[https://www.guo.media/posts/255877](https://www.guo.media/posts/255877) `2019-11-26T19:10:10`
+##
+
 **milesguo**  【翻译】<br><br>雅虎财经— 彭博社11月25日: 中国计划创纪录地发行60亿美元的美元债券<br><br>[https://spark.adobe.com/page/uotAe3gVYxCcz/](https://spark.adobe.com/page/uotAe3gVYxCcz/ "https://spark.adobe.com/page/uotAe3gVYxCcz/") 
 
 [https://www.guo.media/posts/255805](https://www.guo.media/posts/255805) `2019-11-26T10:40:10`
