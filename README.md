@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月25号晚上9:16：【China just call US Ambassador in Beijing over to see foreign minister to file official complaint on legislation】共产党害怕了要和美国大使交涉了没用，谁都阻挡不了，香港保护法的通过，一切都是刚刚开始！
+
+[https://www.guo.media/posts/255607](https://www.guo.media/posts/255607) `2019-11-26T02:25:11`
+##
+
 **milesguo** 11月25号：尊敬的战友们好！明天．11月26日上午．9．30……文贵将首次在郭媒体与我们的好朋友Gertz Bill一起直播！……一切都是刚刚开始！
 
 [https://www.guo.media/posts/255588](https://www.guo.media/posts/255588) `2019-11-26T01:10:10`
