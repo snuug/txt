@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>11月27号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/256057](https://www.guo.media/posts/256057) `2019-11-27T14:40:10`
+##
+
 **milesguo**  【翻译】<br><br>Business Insider 11月27日: 令人震惊的泄密事件使中国转移其大规模压迫维吾尔族穆斯林的证据的主要策略失去作用<br><br>[https://spark.adobe.com/page/TMw3DS7dGy4gp/](https://spark.adobe.com/page/TMw3DS7dGy4gp/ "https://spark.adobe.com/page/TMw3DS7dGy4gp/")<br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/256002](https://www.guo.media/posts/256002) `2019-11-27T11:25:11`
