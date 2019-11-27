@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>Business Insider 11月27日: 令人震惊的泄密事件使中国转移其大规模压迫维吾尔族穆斯林的证据的主要策略失去作用<br><br>[https://spark.adobe.com/page/TMw3DS7dGy4gp/](https://spark.adobe.com/page/TMw3DS7dGy4gp/ "https://spark.adobe.com/page/TMw3DS7dGy4gp/")<br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/256002](https://www.guo.media/posts/256002) `2019-11-27T11:25:11`
+##
+
 **milesguo** 2019年11月26日郭文贵先生与中共威胁论创始人比尔格兹先生直播
 
 [https://www.guo.media/posts/255877](https://www.guo.media/posts/255877) `2019-11-26T19:10:10`
