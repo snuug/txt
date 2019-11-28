@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 感恩的心！心怀感恩，无惧险阻，风雨同行<br><br>[https://news.guo.media/cn/17670/](https://news.guo.media/cn/17670/ "https://news.guo.media/cn/17670/")
+
+[https://www.guo.media/posts/256383](https://www.guo.media/posts/256383) `2019-11-28T18:55:11`
+##
+
 **milesguo** 感恩节！来自中国人的心声<br><br>[https://news.guo.media/cn/17594/](https://news.guo.media/cn/17594/ "https://news.guo.media/cn/17594/")
 
 [https://www.guo.media/posts/256373](https://www.guo.media/posts/256373) `2019-11-28T17:25:10`
