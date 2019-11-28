@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Guo’s Remarks in 90 Seconds 郭言郭语 90 秒】<br><br>Hong Kong Act and Politicians’ Concerns (27 Nov 2019)<br><br>香港法案與從政者關注事項(2019年11月27日)<br><br><br>[https://spark.adobe.com/page/o7669dEOsBfhk/](https://spark.adobe.com/page/o7669dEOsBfhk/ "https://spark.adobe.com/page/o7669dEOsBfhk/")<br><br>【Guo Library】
+
+[https://www.guo.media/posts/256240](https://www.guo.media/posts/256240) `2019-11-28T07:10:10`
+##
+
 **milesguo** 11月27号：尊敬的战友们好文贵马上直播，乱聊感恩节前的感受没有任何爆料……一切都是刚刚开始！
 
 [https://www.guo.media/posts/256129](https://www.guo.media/posts/256129) `2019-11-28T00:10:10`
