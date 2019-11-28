@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月27号：尊敬的战友们好文贵马上直播，乱聊感恩节前的感受没有任何爆料……一切都是刚刚开始！
+
+[https://www.guo.media/posts/256129](https://www.guo.media/posts/256129) `2019-11-28T00:10:10`
+##
+
 **milesguo** <br>11月27号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播！一切都是刚刚开始！
 
 [https://www.guo.media/posts/256057](https://www.guo.media/posts/256057) `2019-11-27T14:40:10`
