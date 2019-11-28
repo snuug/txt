@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月28号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？祝所有的战友和家人们感恩节快乐，一切都是刚刚开始！
+
+[https://www.guo.media/posts/256350](https://www.guo.media/posts/256350) `2019-11-28T15:25:11`
+##
+
 **milesguo**  【摘要翻譯】<br><br>美國國務院 11月26日: 國務卿邁克爾.R.蓬佩奧向媒體發表講話（新疆，香港部分摘要）<br><br>[https://spark.adobe.com/page/WulwLbLKJelGS/](https://spark.adobe.com/page/WulwLbLKJelGS/ "https://spark.adobe.com/page/WulwLbLKJelGS/")<br><br>【秘密翻譯組】<br>
 
 [https://www.guo.media/posts/256295](https://www.guo.media/posts/256295) `2019-11-28T11:25:11`
