@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月28号：亲爱的战友们你们猜猜文贵怎么过感恩节？一切都是刚刚开始！
+
+[https://www.guo.media/posts/256391](https://www.guo.media/posts/256391) `2019-11-28T19:55:10`
+##
+
 **milesguo** A Thanksgiving Message<br><br>[https://news.guo.media/17851/](https://news.guo.media/17851/ "https://news.guo.media/17851/")
 
 [https://www.guo.media/posts/256390](https://www.guo.media/posts/256390) `2019-11-28T19:40:10`
