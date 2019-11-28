@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【摘要翻譯】<br><br>美國國務院 11月26日: 國務卿邁克爾.R.蓬佩奧向媒體發表講話（新疆，香港部分摘要）<br><br>[https://spark.adobe.com/page/WulwLbLKJelGS/](https://spark.adobe.com/page/WulwLbLKJelGS/ "https://spark.adobe.com/page/WulwLbLKJelGS/")<br><br>【秘密翻譯組】<br>
+
+[https://www.guo.media/posts/256295](https://www.guo.media/posts/256295) `2019-11-28T11:25:11`
+##
+
 **milesguo**  【翻译】<br><br>美国商务部 11月26日: 美国商务部提出保护美国的信息与通信技术及服务的供应链安全的规则<br><br>[https://spark.adobe.com/page/3bDwM0XXgYvVg/](https://spark.adobe.com/page/3bDwM0XXgYvVg/ "https://spark.adobe.com/page/3bDwM0XXgYvVg/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
 
 [https://www.guo.media/posts/256283](https://www.guo.media/posts/256283) `2019-11-28T10:55:11`
