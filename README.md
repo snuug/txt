@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** A Thanksgiving Message<br><br>[https://news.guo.media/17851/](https://news.guo.media/17851/ "https://news.guo.media/17851/")
+
+[https://www.guo.media/posts/256390](https://www.guo.media/posts/256390) `2019-11-28T19:40:10`
+##
+
 **milesguo** 【Revolution Dairy 1】How myself changed between 2017-2019<br><br>[https://news.guo.media/17436/](https://news.guo.media/17436/ "https://news.guo.media/17436/")
 
 [https://www.guo.media/posts/256386](https://www.guo.media/posts/256386) `2019-11-28T19:10:11`
