@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>澳洲時代報 11月24日: （澳洲）當局認為，中共試圖在聯邦議會安插自己的候選人<br><br>[https://spark.adobe.com/page/CXrfgRMO9eeoS/](https://spark.adobe.com/page/CXrfgRMO9eeoS/ "https://spark.adobe.com/page/CXrfgRMO9eeoS/")<br><br><br>【秘密翻譯組】<br><br>
+
+[https://www.guo.media/posts/256255](https://www.guo.media/posts/256255) `2019-11-28T08:25:10`
+##
+
 **milesguo** 【Guo’s Remarks in 90 Seconds 郭言郭语 90 秒】<br><br>Hong Kong Act and Politicians’ Concerns (27 Nov 2019)<br><br>香港法案與從政者關注事項(2019年11月27日)<br><br><br>[https://spark.adobe.com/page/o7669dEOsBfhk/](https://spark.adobe.com/page/o7669dEOsBfhk/ "https://spark.adobe.com/page/o7669dEOsBfhk/")<br><br>【Guo Library】
 
 [https://www.guo.media/posts/256240](https://www.guo.media/posts/256240) `2019-11-28T07:10:10`
