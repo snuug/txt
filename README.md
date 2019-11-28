@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【Revolution Dairy 1】How myself changed between 2017-2019<br><br>[https://news.guo.media/17436/](https://news.guo.media/17436/ "https://news.guo.media/17436/")
+
+[https://www.guo.media/posts/256386](https://www.guo.media/posts/256386) `2019-11-28T19:10:11`
+##
+
+**milesguo** Rubio, Cardin, Risch, Menendez赞扬川普总统将《香港人权与民主法案》签署为法律<br><br>[https://news.guo.media/cn/17714/](https://news.guo.media/cn/17714/ "https://news.guo.media/cn/17714/")
+
+[https://www.guo.media/posts/256385](https://www.guo.media/posts/256385) `2019-11-28T19:10:14`
+##
+
 **milesguo** 感恩的心！心怀感恩，无惧险阻，风雨同行<br><br>[https://news.guo.media/cn/17670/](https://news.guo.media/cn/17670/ "https://news.guo.media/cn/17670/")
 
 [https://www.guo.media/posts/256383](https://www.guo.media/posts/256383) `2019-11-28T18:55:11`
