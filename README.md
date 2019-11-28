@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月28日：衷心地祝福所有的战友们感恩节快乐！一切都是刚刚开始！
+
+[https://www.guo.media/posts/256407](https://www.guo.media/posts/256407) `2019-11-28T21:55:10`
+##
+
 **milesguo** 11月28号：看看文贵在吃啥呢？咋子过感恩节里！与战友们分享里！一切都是刚刚开始！
 
 [https://www.guo.media/posts/256406](https://www.guo.media/posts/256406) `2019-11-28T21:40:10`
