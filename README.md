@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>美国商务部 11月26日: 美国商务部提出保护美国的信息与通信技术及服务的供应链安全的规则<br><br>[https://spark.adobe.com/page/3bDwM0XXgYvVg/](https://spark.adobe.com/page/3bDwM0XXgYvVg/ "https://spark.adobe.com/page/3bDwM0XXgYvVg/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
+
+[https://www.guo.media/posts/256283](https://www.guo.media/posts/256283) `2019-11-28T10:55:11`
+##
+
 **milesguo**  【翻译】<br><br>The Guardian 11月27日: 欧洲需要中国的数十亿资金。但她知道代价吗？<br><br>[https://spark.adobe.com/page/JT6RK1kig5eWb/](https://spark.adobe.com/page/JT6RK1kig5eWb/ "https://spark.adobe.com/page/JT6RK1kig5eWb/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
 
 [https://www.guo.media/posts/256266](https://www.guo.media/posts/256266) `2019-11-28T09:25:10`
