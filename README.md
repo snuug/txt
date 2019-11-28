@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>“Thank You! America”: The Voice Of A Freedom-Loving Chinese<br><br>[https://news.guo.media/17693/](https://news.guo.media/17693/ "https://news.guo.media/17693/")
+
+[https://www.guo.media/posts/256363](https://www.guo.media/posts/256363) `2019-11-28T16:55:11`
+##
+
 **milesguo** 11月28号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？祝所有的战友和家人们感恩节快乐，一切都是刚刚开始！
 
 [https://www.guo.media/posts/256350](https://www.guo.media/posts/256350) `2019-11-28T15:25:11`
