@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>The Guardian 11月27日: 欧洲需要中国的数十亿资金。但她知道代价吗？<br><br>[https://spark.adobe.com/page/JT6RK1kig5eWb/](https://spark.adobe.com/page/JT6RK1kig5eWb/ "https://spark.adobe.com/page/JT6RK1kig5eWb/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
+
+[https://www.guo.media/posts/256266](https://www.guo.media/posts/256266) `2019-11-28T09:25:10`
+##
+
 **milesguo**  【翻譯】<br><br>澳洲時代報 11月24日: （澳洲）當局認為，中共試圖在聯邦議會安插自己的候選人<br><br>[https://spark.adobe.com/page/CXrfgRMO9eeoS/](https://spark.adobe.com/page/CXrfgRMO9eeoS/ "https://spark.adobe.com/page/CXrfgRMO9eeoS/")<br><br><br>【秘密翻譯組】<br><br>
 
 [https://www.guo.media/posts/256255](https://www.guo.media/posts/256255) `2019-11-28T08:25:10`
