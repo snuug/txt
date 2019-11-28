@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 感恩节！来自中国人的心声<br><br>[https://news.guo.media/cn/17594/](https://news.guo.media/cn/17594/ "https://news.guo.media/cn/17594/")
+
+[https://www.guo.media/posts/256373](https://www.guo.media/posts/256373) `2019-11-28T17:25:10`
+##
+
 **milesguo** 2019年11月27日郭文贵先生直播摘要<br><br>[https://news.guo.media/cn/17651/](https://news.guo.media/cn/17651/ "https://news.guo.media/cn/17651/") 
 
 [https://www.guo.media/posts/256367](https://www.guo.media/posts/256367) `2019-11-28T17:10:11`
