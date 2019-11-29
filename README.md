@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 龚小夏女士为何谎话连篇？<br><br>[https://news.guo.media/cn/17916/](https://news.guo.media/cn/17916/ "https://news.guo.media/cn/17916/")
+
+[https://www.guo.media/posts/256573](https://www.guo.media/posts/256573) `2019-11-29T20:25:11`
+##
+
 **milesguo** 爆料革命是中国历史进程的幸运拐点（第二部分）<br><br>[https://news.guo.media/cn/18041/](https://news.guo.media/cn/18041/ "https://news.guo.media/cn/18041/")
 
 [https://www.guo.media/posts/256571](https://www.guo.media/posts/256571) `2019-11-29T20:10:10`
