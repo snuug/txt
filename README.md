@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国教授林蔚 香港问题的根源就是中共<br><br>[https://news.guo.media/cn/17905/](https://news.guo.media/cn/17905/ "https://news.guo.media/cn/17905/")
+
+[https://www.guo.media/posts/256445](https://www.guo.media/posts/256445) `2019-11-29T02:10:11`
+##
+
 **milesguo** 香港爱丁堡广场数万民众发起感恩节集会，万众一心，热血澎湃的歌声响彻云霄<br><br>[https://news.guo.media/cn/17876/](https://news.guo.media/cn/17876/ "https://news.guo.media/cn/17876/")
 
 [https://www.guo.media/posts/256442](https://www.guo.media/posts/256442) `2019-11-29T01:55:10`
