@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国军人来看看：川普总统在阿富汗的感恩节，美军就是来消灭恐怖分子的<br><br>[https://news.guo.media/cn/18148/](https://news.guo.media/cn/18148/ "https://news.guo.media/cn/18148/")
+
+[https://www.guo.media/posts/256578](https://www.guo.media/posts/256578) `2019-11-29T22:25:10`
+##
+
 **milesguo** 声援理大反对围捕集会！急救员讲述示威学生被打头破血流下颚见骨<br><br>[https://news.guo.media/cn/18127/](https://news.guo.media/cn/18127/ "https://news.guo.media/cn/18127/")
 
 [https://www.guo.media/posts/256576](https://www.guo.media/posts/256576) `2019-11-29T21:40:10`
