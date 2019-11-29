@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 佩罗西关于签署《香港人权与民主法案》的声明<br><br>[https://news.guo.media/cn/17982/](https://news.guo.media/cn/17982/ "https://news.guo.media/cn/17982/")
+
+[https://www.guo.media/posts/256562](https://www.guo.media/posts/256562) `2019-11-29T19:10:10`
+##
+
+**milesguo** 小巴猪：中美第一阶段协议都有啥？为啥签不成<br><br>[https://news.guo.media/cn/17858/](https://news.guo.media/cn/17858/ "https://news.guo.media/cn/17858/")
+
+[https://www.guo.media/posts/256560](https://www.guo.media/posts/256560) `2019-11-29T19:10:13`
+##
+
 **milesguo** 11月29号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播……一切都是刚刚开始。！
 
 [https://www.guo.media/posts/256535](https://www.guo.media/posts/256535) `2019-11-29T15:25:11`
