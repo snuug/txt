@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 请勿欺港太甚—致中共公开信<br><br>[https://news.guo.media/cn/17899/](https://news.guo.media/cn/17899/ "https://news.guo.media/cn/17899/")
+
+[https://www.guo.media/posts/256463](https://www.guo.media/posts/256463) `2019-11-29T04:10:10`
+##
+
 **milesguo** 美国教授林蔚 香港问题的根源就是中共<br><br>[https://news.guo.media/cn/17905/](https://news.guo.media/cn/17905/ "https://news.guo.media/cn/17905/")
 
 [https://www.guo.media/posts/256445](https://www.guo.media/posts/256445) `2019-11-29T02:10:11`
