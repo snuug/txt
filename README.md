@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 德国总理默克尔议会上公开为中共站台<br><br>[https://news.guo.media/cn/18189/](https://news.guo.media/cn/18189/ "https://news.guo.media/cn/18189/")
+
+[https://www.guo.media/posts/256584](https://www.guo.media/posts/256584) `2019-11-29T22:55:10`
+##
+
+**milesguo** 抖音上关于新疆真相的传播，中共和大外宣不能再欺骗下去<br><br>[https://news.guo.media/cn/18137/](https://news.guo.media/cn/18137/ "https://news.guo.media/cn/18137/")
+
+[https://www.guo.media/posts/256582](https://www.guo.media/posts/256582) `2019-11-29T22:55:13`
+##
+
 **milesguo** 中国军人来看看：川普总统在阿富汗的感恩节，美军就是来消灭恐怖分子的<br><br>[https://news.guo.media/cn/18148/](https://news.guo.media/cn/18148/ "https://news.guo.media/cn/18148/")
 
 [https://www.guo.media/posts/256578](https://www.guo.media/posts/256578) `2019-11-29T22:25:10`
