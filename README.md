@@ -282,33 +282,3 @@
 [https://www.guo.media/posts/255161](https://www.guo.media/posts/255161) `2019-11-25T06:06:58`
 ##
 
-**milesguo**  【翻译】<br><br>香港自由新闻11月23日: 随着摄影记者梅·詹姆斯被准无条件释放，有线电视新闻就23名记者的待遇向警方投诉<br><br><br>[https://spark.adobe.com/page/l2bkiops8UrML/](https://spark.adobe.com/page/l2bkiops8UrML/ "https://spark.adobe.com/page/l2bkiops8UrML/")<br><br>【秘密翻译组】<br><br><br>
-
-[https://www.guo.media/posts/255132](https://www.guo.media/posts/255132) `2019-11-25T06:07:01`
-##
-
-**milesguo** 11月23号：这是田丁在西雅图的照片，一切都是刚刚开始！
-
-[https://www.guo.media/posts/255109](https://www.guo.media/posts/255109) `2019-11-25T06:07:04`
-##
-
-**milesguo**  【翻译】<br><br>香港电台网11月24日: 美国官员:可能达成贸易协议，但不会不管香港<br><br>[https://spark.adobe.com/page/w6lOfrZuhlyiK/](https://spark.adobe.com/page/w6lOfrZuhlyiK/ "https://spark.adobe.com/page/w6lOfrZuhlyiK/")<br><br><br>【秘密翻译组】<br><br><br>
-
-[https://www.guo.media/posts/255080](https://www.guo.media/posts/255080) `2019-11-25T06:07:07`
-##
-
-**milesguo** 【翻译】<br><br>英国独立网11月21日: 香港市民理应从英国得到更多——从永久居留权开始<br><br>[https://spark.adobe.com/page/eALfqXRN2x4l9/](https://spark.adobe.com/page/eALfqXRN2x4l9/ "https://spark.adobe.com/page/eALfqXRN2x4l9/")<br><br>【秘密翻译组】<br><br><br>
-
-[https://www.guo.media/posts/255068](https://www.guo.media/posts/255068) `2019-11-25T06:07:10`
-##
-
-**milesguo** 【翻譯】<br><br>香港自由新聞11月22日: 對警察行為的可靠調查可以讓香港走上和平之路<br><br>[https://spark.adobe.com/page/WagKBCJjYvsPa/](https://spark.adobe.com/page/WagKBCJjYvsPa/ "https://spark.adobe.com/page/WagKBCJjYvsPa/")<br><br><br>【秘密翻譯組】<br><br>
-
-[https://www.guo.media/posts/255065](https://www.guo.media/posts/255065) `2019-11-25T06:07:13`
-##
-
-**milesguo** 11月23号：尊敬的战友们好！在马上进行的今天直播前，请大家看两个小视频，一切都是刚刚开始！
-
-[https://www.guo.media/posts/255011](https://www.guo.media/posts/255011) `2019-11-25T06:07:17`
-##
-
