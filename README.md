@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中国对外证券投资大部分在美国香港<br><br>[https://news.guo.media/cn/18184/](https://news.guo.media/cn/18184/ "https://news.guo.media/cn/18184/")
+
+[https://www.guo.media/posts/256585](https://www.guo.media/posts/256585) `2019-11-29T23:10:11`
+##
+
 **milesguo** 德国总理默克尔议会上公开为中共站台<br><br>[https://news.guo.media/cn/18189/](https://news.guo.media/cn/18189/ "https://news.guo.media/cn/18189/")
 
 [https://www.guo.media/posts/256584](https://www.guo.media/posts/256584) `2019-11-29T22:55:10`
