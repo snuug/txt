@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港爱丁堡广场数万民众发起感恩节集会，万众一心，热血澎湃的歌声响彻云霄<br><br>[https://news.guo.media/cn/17876/](https://news.guo.media/cn/17876/ "https://news.guo.media/cn/17876/")
+
+[https://www.guo.media/posts/256442](https://www.guo.media/posts/256442) `2019-11-29T01:55:10`
+##
+
 **milesguo** 新疆和田与喀什的人口净增长率下降了约84%<br><br>[https://news.guo.media/cn/17862/](https://news.guo.media/cn/17862/ "https://news.guo.media/cn/17862/")
 
 [https://www.guo.media/posts/256433](https://www.guo.media/posts/256433) `2019-11-29T01:25:11`
