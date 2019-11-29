@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月29号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播……一切都是刚刚开始。！
+
+[https://www.guo.media/posts/256535](https://www.guo.media/posts/256535) `2019-11-29T15:25:11`
+##
+
 **milesguo** 爆料革命是中国历史进程的幸运拐点（第一部分）<br><br>[https://news.guo.media/cn/18027/](https://news.guo.media/cn/18027/ "https://news.guo.media/cn/18027/")
 
 [https://www.guo.media/posts/256484](https://www.guo.media/posts/256484) `2019-11-29T07:40:10`
