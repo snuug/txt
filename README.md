@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** <br>2018年7月2日-5日王健在法国普罗旺斯被杀前一天到被杀后两天的几十个视频的剪辑<br><br>[https://news.guo.media/cn/17896/](https://news.guo.media/cn/17896/ "https://news.guo.media/cn/17896/")
+
+[https://www.guo.media/posts/256430](https://www.guo.media/posts/256430) `2019-11-29T01:10:11`
+##
+
+**milesguo** <br>美国参议员Marsha Blackburn：美国永远不会放弃保护为自由而战的香港人的基本人权和言论自由<br><br>[https://news.guo.media/cn/17785/](https://news.guo.media/cn/17785/ "https://news.guo.media/cn/17785/")
+
+[https://www.guo.media/posts/256429](https://www.guo.media/posts/256429) `2019-11-29T01:10:14`
+##
+
 **milesguo** 11月28日：衷心地祝福所有的战友们感恩节快乐！一切都是刚刚开始！
 
 [https://www.guo.media/posts/256407](https://www.guo.media/posts/256407) `2019-11-28T21:55:10`
