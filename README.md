@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 新疆和田与喀什的人口净增长率下降了约84%<br><br>[https://news.guo.media/cn/17862/](https://news.guo.media/cn/17862/ "https://news.guo.media/cn/17862/")
+
+[https://www.guo.media/posts/256433](https://www.guo.media/posts/256433) `2019-11-29T01:25:11`
+##
+
+**milesguo** 小巴猪:中美贸易逆差到底有多少<br><br>[https://news.guo.media/cn/17660/](https://news.guo.media/cn/17660/ "https://news.guo.media/cn/17660/")
+
+[https://www.guo.media/posts/256431](https://www.guo.media/posts/256431) `2019-11-29T01:25:14`
+##
+
 **milesguo** <br>2018年7月2日-5日王健在法国普罗旺斯被杀前一天到被杀后两天的几十个视频的剪辑<br><br>[https://news.guo.media/cn/17896/](https://news.guo.media/cn/17896/ "https://news.guo.media/cn/17896/")
 
 [https://www.guo.media/posts/256430](https://www.guo.media/posts/256430) `2019-11-29T01:10:11`
