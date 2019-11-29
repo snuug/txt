@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 爆料革命是中国历史进程的幸运拐点（第二部分）<br><br>[https://news.guo.media/cn/18041/](https://news.guo.media/cn/18041/ "https://news.guo.media/cn/18041/")
+
+[https://www.guo.media/posts/256571](https://www.guo.media/posts/256571) `2019-11-29T20:10:10`
+##
+
 **milesguo** 佩罗西关于签署《香港人权与民主法案》的声明<br><br>[https://news.guo.media/cn/17982/](https://news.guo.media/cn/17982/ "https://news.guo.media/cn/17982/")
 
 [https://www.guo.media/posts/256562](https://www.guo.media/posts/256562) `2019-11-29T19:10:10`
