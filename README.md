@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Thank you President Trump for the greatest moment in history! Europe is about to wake up!<br><br>[https://news.guo.media/18491/](https://news.guo.media/18491/ "https://news.guo.media/18491/")
+
+[https://www.guo.media/posts/256784](https://www.guo.media/posts/256784) `2019-11-30T20:10:11`
+##
+
 **milesguo** 11月30日：今天刚刚定了明年交付的迈巴赫SUV两台和奔驰G TR一台……最近文贵工作表现不错，需要奖励一下……一切都是刚刚开始！
 
 [https://www.guo.media/posts/256775](https://www.guo.media/posts/256775) `2019-11-30T18:40:12`
