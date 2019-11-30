@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月29日：尊敬的战友们好！明天11月30日．星期六．文贵不直播，因为今天有点小激动……怕明天在视频前丢人现眼掉眼泪💧……这几天比较受刺激，除了那【尸白的火鸡】还有很多大事正在发生中……又收到香港朋友寄来的老照片……心脏有点小起伏……请战友们原谅🙏🙏🙏一切都是刚刚开始！
+
+[https://www.guo.media/posts/256638](https://www.guo.media/posts/256638) `2019-11-30T04:25:11`
+##
+
 **milesguo** 11月29日香港要闻：香港人权法执行前，疯警图升级火力镇压，伪独立检讨委员会形同虚设，蒙面恶法借尸还魂<br><br>[https://news.guo.media/cn/18243/](https://news.guo.media/cn/18243/ "https://news.guo.media/cn/18243/")
 
 [https://www.guo.media/posts/256622](https://www.guo.media/posts/256622) `2019-11-30T03:40:10`
