@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** TikTok is brainwashing young people in the free world<br><br>[https://news.guo.media/18214/](https://news.guo.media/18214/ "https://news.guo.media/18214/")
+
+[https://www.guo.media/posts/256592](https://www.guo.media/posts/256592) `2019-11-30T00:10:10`
+##
+
 **milesguo** 小巴猪：中国对外证券投资大部分在美国香港<br><br>[https://news.guo.media/cn/18184/](https://news.guo.media/cn/18184/ "https://news.guo.media/cn/18184/")
 
 [https://www.guo.media/posts/256585](https://www.guo.media/posts/256585) `2019-11-29T23:10:11`
