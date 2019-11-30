@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美中贸易谈判关键时刻 川普将在北约峰会上谈中国威胁<br><br>[https://news.guo.media/cn/18315/](https://news.guo.media/cn/18315/ "https://news.guo.media/cn/18315/")
+
+[https://www.guo.media/posts/256666](https://www.guo.media/posts/256666) `2019-11-30T07:25:10`
+##
+
+**milesguo** 章家敦访谈：其实整个国家都挺身支持那些香港的民主力量<br><br>[https://news.guo.media/cn/18308/](https://news.guo.media/cn/18308/ "https://news.guo.media/cn/18308/")
+
+[https://www.guo.media/posts/256663](https://www.guo.media/posts/256663) `2019-11-30T07:25:13`
+##
+
 **milesguo** 危险!港警拟恢复使用木弹 威力强可射断脚 命中头部可致命!<br><br>[https://news.guo.media/cn/18311/](https://news.guo.media/cn/18311/ "https://news.guo.media/cn/18311/")
 
 [https://www.guo.media/posts/256662](https://www.guo.media/posts/256662) `2019-11-30T07:10:10`
