@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Arrested foreigners for Supporting “Anti-China and disrupting Hong Kong”<br><br>[https://news.guo.media/18497/](https://news.guo.media/18497/ "https://news.guo.media/18497/")
+
+[https://www.guo.media/posts/256787](https://www.guo.media/posts/256787) `2019-11-30T21:55:12`
+##
+
 **milesguo** Miles Guo: Thank you President Trump for the greatest moment in history! Europe is about to wake up!<br><br>[https://news.guo.media/18491/](https://news.guo.media/18491/ "https://news.guo.media/18491/")
 
 [https://www.guo.media/posts/256784](https://www.guo.media/posts/256784) `2019-11-30T20:10:11`
