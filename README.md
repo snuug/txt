@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 11月29日香港要闻：香港人权法执行前，疯警图升级火力镇压，伪独立检讨委员会形同虚设，蒙面恶法借尸还魂<br><br>[https://news.guo.media/cn/18243/](https://news.guo.media/cn/18243/ "https://news.guo.media/cn/18243/")
+
+[https://www.guo.media/posts/256622](https://www.guo.media/posts/256622) `2019-11-30T03:40:10`
+##
+
+**milesguo** 11月28日广东省茂名市化州县文楼林场修建火葬场镇压村民目前最新情况<br><br>[https://news.guo.media/cn/18232/](https://news.guo.media/cn/18232/ "https://news.guo.media/cn/18232/")
+
+[https://www.guo.media/posts/256620](https://www.guo.media/posts/256620) `2019-11-30T03:40:13`
+##
+
+**milesguo** 11月29日：今天收到了过去同事发给我的……我的人生中最重要的导师之一，贺龄乐先生临终前写给我的遗言……和他为我整理的几十年与我在一起时的多幅照片……人生与什么人在一起能交什么朋友。这是最最重要的……感恩上天让我能和这些伟大的人在一起，才能让郭文贵这个草根……100%的农民．走向一个对社会有贡献的特别人生的旅程……而不是行尸走肉．纸醉金迷的腐烂人生🙏🙏🙏🙏🙏🙏🙏🙏🙏😭😭😭😭😭😭😭😭😭😭😭照片中有裕达国贸第一任行政总裁约翰．陈先生……以及我的宗教．信仰．建筑的导师……台北的李祖原先生……在1991年我在郑州签署裕达合同时……在洛杉矶西来寺……澳大利亚．与同事……以及裕达试开业时照片……感慨万千……这个世界时间是最公平的裁判…………更重要的是自己的良知……和知行合一的能力．与结果……我深信上天对任何一个人的行为都会有记录……民心不可欺．天意不可违……更重要的是自己的致良知……就是不能欺骗自己……一切都是刚刚开始！
+
+[https://www.guo.media/posts/256619](https://www.guo.media/posts/256619) `2019-11-30T03:40:16`
+##
+
 **milesguo**  【翻译】<br><br>华盛顿时报 比尔格茨 11月24日: 五角大楼加紧终结中国军事控制太空的“梦想”<br><br>[https://spark.adobe.com/page/wiqGKjzwMXl0j/](https://spark.adobe.com/page/wiqGKjzwMXl0j/ "https://spark.adobe.com/page/wiqGKjzwMXl0j/")<br><br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/256605](https://www.guo.media/posts/256605) `2019-11-30T02:10:10`
