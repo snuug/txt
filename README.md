@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** China Merchants​ Bank halts oversea fund transfer on Dec 2nd. Announcement got removed<br><br>[https://news.guo.media/18206/](https://news.guo.media/18206/ "https://news.guo.media/18206/")
+
+[https://www.guo.media/posts/256647](https://www.guo.media/posts/256647) `2019-11-30T05:40:10`
+##
+
 **milesguo** 【中英双语版】<br><br>贺龄乐老师留给文贵的临终遗言<br><br>The last words from Wengui‘s teacher — He Lingle<br><br>[https://spark.adobe.com/page/3gZ8v31z0l1Ir/](https://spark.adobe.com/page/3gZ8v31z0l1Ir/ "https://spark.adobe.com/page/3gZ8v31z0l1Ir/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/256645](https://www.guo.media/posts/256645) `2019-11-30T05:25:10`
