@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>路透社11月29日: 獨家報道：美國將出台新規進一步限制華為的供貨商<br><br>[https://spark.adobe.com/page/KXE5fA2us7FWJ/](https://spark.adobe.com/page/KXE5fA2us7FWJ/ "https://spark.adobe.com/page/KXE5fA2us7FWJ/")<br><br>【秘密翻譯組】<br><br>
+
+[https://www.guo.media/posts/256718](https://www.guo.media/posts/256718) `2019-11-30T10:55:11`
+##
+
 **milesguo**  【翻译】<br><br>华盛顿时报11月29日: 特朗普将告诉北约增加国防开支，抵制中国的影响<br><br>[https://spark.adobe.com/page/SHDTQ1LtKGzM6/](https://spark.adobe.com/page/SHDTQ1LtKGzM6/ "https://spark.adobe.com/page/SHDTQ1LtKGzM6/")<br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/256717](https://www.guo.media/posts/256717) `2019-11-30T10:25:11`
