@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 好消息！抖音公司给发布让大家去关注中国新疆问题的视频得女孩道歉啦！并解封了她的账户！<br><br>[https://news.guo.media/cn/18508/](https://news.guo.media/cn/18508/ "https://news.guo.media/cn/18508/")
+
+[https://www.guo.media/posts/256794](https://www.guo.media/posts/256794) `2019-11-30T22:25:11`
+##
+
 **milesguo** The CCP is defaming and planing to “bar the drafters of the bill from entering China”<br><br>[https://news.guo.media/18501/](https://news.guo.media/18501/ "https://news.guo.media/18501/")
 
 [https://www.guo.media/posts/256790](https://www.guo.media/posts/256790) `2019-11-30T22:10:11`
