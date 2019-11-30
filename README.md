@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年11月30日：文贵报平安视频·曾宏和赵岩是如何为小夏争风吃醋的！乱聊再乱聊，一切都是刚刚开始！
+
+[https://www.guo.media/posts/256747](https://www.guo.media/posts/256747) `2019-11-30T16:25:10`
+##
+
 **milesguo** 2019年11月30日文贵报平安视频
 
 [https://www.guo.media/posts/256738](https://www.guo.media/posts/256738) `2019-11-30T15:55:11`
