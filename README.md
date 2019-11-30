@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月30日：今天刚刚定了明年交付的迈巴赫SUV两台和奔驰G TR一台……最近文贵工作表现不错，需要奖励一下……一切都是刚刚开始！
+
+[https://www.guo.media/posts/256775](https://www.guo.media/posts/256775) `2019-11-30T18:40:12`
+##
+
 **milesguo** 小巴猪：谁在给中共输血续命<br><br>[https://news.guo.media/cn/18218/](https://news.guo.media/cn/18218/ "https://news.guo.media/cn/18218/")
 
 [https://www.guo.media/posts/256772](https://www.guo.media/posts/256772) `2019-11-30T18:10:10`
