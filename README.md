@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>路透社11月29日: 中国在北极的推进中混合着军事与科学——丹麦<br><br>[https://spark.adobe.com/page/fo4Sgr0HeMhhx/](https://spark.adobe.com/page/fo4Sgr0HeMhhx/ "https://spark.adobe.com/page/fo4Sgr0HeMhhx/")<br><br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/256705](https://www.guo.media/posts/256705) `2019-11-30T09:25:10`
+##
+
 **milesguo** 中共在北极科考的双重目的<br><br>[https://news.guo.media/cn/18301/](https://news.guo.media/cn/18301/ "https://news.guo.media/cn/18301/")
 
 [https://www.guo.media/posts/256677](https://www.guo.media/posts/256677) `2019-11-30T08:10:10`
