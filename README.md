@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>华盛顿时报 比尔格茨 11月24日: 五角大楼加紧终结中国军事控制太空的“梦想”<br><br>[https://spark.adobe.com/page/wiqGKjzwMXl0j/](https://spark.adobe.com/page/wiqGKjzwMXl0j/ "https://spark.adobe.com/page/wiqGKjzwMXl0j/")<br><br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/256605](https://www.guo.media/posts/256605) `2019-11-30T02:10:10`
+##
+
 **milesguo** TikTok is brainwashing young people in the free world<br><br>[https://news.guo.media/18214/](https://news.guo.media/18214/ "https://news.guo.media/18214/")
 
 [https://www.guo.media/posts/256592](https://www.guo.media/posts/256592) `2019-11-30T00:10:10`
