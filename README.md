@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Sasha Gong smears Miles Guo and the Rule of Law Foundation<br><br>[https://news.guo.media/18392/](https://news.guo.media/18392/ "https://news.guo.media/18392/")
+
+[https://www.guo.media/posts/256715](https://www.guo.media/posts/256715) `2019-11-30T09:55:10`
+##
+
 **milesguo** 受中共邪恶政权蛊惑收买 中国自以为的外馆数量超越美国 这3年跟台湾断交的国家现在惨况<br><br>[https://news.guo.media/cn/18337/](https://news.guo.media/cn/18337/ "https://news.guo.media/cn/18337/")
 
 [https://www.guo.media/posts/256710](https://www.guo.media/posts/256710) `2019-11-30T09:40:10`
