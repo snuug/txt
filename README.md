@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>华盛顿时报11月29日: 特朗普将告诉北约增加国防开支，抵制中国的影响<br><br>[https://spark.adobe.com/page/SHDTQ1LtKGzM6/](https://spark.adobe.com/page/SHDTQ1LtKGzM6/ "https://spark.adobe.com/page/SHDTQ1LtKGzM6/")<br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/256717](https://www.guo.media/posts/256717) `2019-11-30T10:25:11`
+##
+
 **milesguo** Sasha Gong smears Miles Guo and the Rule of Law Foundation<br><br>[https://news.guo.media/18392/](https://news.guo.media/18392/ "https://news.guo.media/18392/")
 
 [https://www.guo.media/posts/256715](https://www.guo.media/posts/256715) `2019-11-30T09:55:10`
