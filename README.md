@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Chinese military​ sends threatening messages to Hong Kong<br><br>[https://news.guo.media/18297/](https://news.guo.media/18297/ "https://news.guo.media/18297/")
+
+[https://www.guo.media/posts/256656](https://www.guo.media/posts/256656) `2019-11-30T06:10:11`
+##
+
 **milesguo** China Merchants​ Bank halts oversea fund transfer on Dec 2nd. Announcement got removed<br><br>[https://news.guo.media/18206/](https://news.guo.media/18206/ "https://news.guo.media/18206/")
 
 [https://www.guo.media/posts/256647](https://www.guo.media/posts/256647) `2019-11-30T05:40:10`
