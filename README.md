@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 受中共邪恶政权蛊惑收买 中国自以为的外馆数量超越美国 这3年跟台湾断交的国家现在惨况<br><br>[https://news.guo.media/cn/18337/](https://news.guo.media/cn/18337/ "https://news.guo.media/cn/18337/")
+
+[https://www.guo.media/posts/256710](https://www.guo.media/posts/256710) `2019-11-30T09:40:10`
+##
+
 **milesguo**  【翻译】<br><br>路透社11月29日: 中国在北极的推进中混合着军事与科学——丹麦<br><br>[https://spark.adobe.com/page/fo4Sgr0HeMhhx/](https://spark.adobe.com/page/fo4Sgr0HeMhhx/ "https://spark.adobe.com/page/fo4Sgr0HeMhhx/")<br><br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/256705](https://www.guo.media/posts/256705) `2019-11-30T09:25:10`
