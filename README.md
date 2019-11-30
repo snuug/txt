@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 危险!港警拟恢复使用木弹 威力强可射断脚 命中头部可致命!<br><br>[https://news.guo.media/cn/18311/](https://news.guo.media/cn/18311/ "https://news.guo.media/cn/18311/")
+
+[https://www.guo.media/posts/256662](https://www.guo.media/posts/256662) `2019-11-30T07:10:10`
+##
+
 **milesguo** Chinese military​ sends threatening messages to Hong Kong<br><br>[https://news.guo.media/18297/](https://news.guo.media/18297/ "https://news.guo.media/18297/")
 
 [https://www.guo.media/posts/256656](https://www.guo.media/posts/256656) `2019-11-30T06:10:11`
