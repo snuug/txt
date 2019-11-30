@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 福克斯报道：川普总统欲与塔利班达成协议<br><br>[https://news.guo.media/cn/18422/](https://news.guo.media/cn/18422/ "https://news.guo.media/cn/18422/")
+
+[https://www.guo.media/posts/256766](https://www.guo.media/posts/256766) `2019-11-30T17:25:11`
+##
+
+**milesguo** 【寻人启事】手足失踪！望大家广传寻找<br><br>[https://news.guo.media/cn/18409/](https://news.guo.media/cn/18409/ "https://news.guo.media/cn/18409/")
+
+[https://www.guo.media/posts/256764](https://www.guo.media/posts/256764) `2019-11-30T17:25:14`
+##
+
+**milesguo** 斯伯丁将军访谈：中共是如何控制富豪和政客的<br><br>[https://news.guo.media/cn/18452/](https://news.guo.media/cn/18452/ "https://news.guo.media/cn/18452/")
+
+[https://www.guo.media/posts/256762](https://www.guo.media/posts/256762) `2019-11-30T17:25:17`
+##
+
+**milesguo** 斯里兰卡新政府 要索回租给中国99年的深水港<br><br>[https://news.guo.media/cn/18461/](https://news.guo.media/cn/18461/ "https://news.guo.media/cn/18461/")
+
+[https://www.guo.media/posts/256759](https://www.guo.media/posts/256759) `2019-11-30T17:25:20`
+##
+
+**milesguo** 面具先生：川普总统配合郭文贵先生打组合拳！<br><br>[https://news.guo.media/cn/18459/](https://news.guo.media/cn/18459/ "https://news.guo.media/cn/18459/")
+
+[https://www.guo.media/posts/256758](https://www.guo.media/posts/256758) `2019-11-30T17:25:23`
+##
+
+**milesguo** 一支威胁本国人民的军队已经丧失合法性<br><br>[https://news.guo.media/cn/18457/](https://news.guo.media/cn/18457/ "https://news.guo.media/cn/18457/")
+
+[https://www.guo.media/posts/256753](https://www.guo.media/posts/256753) `2019-11-30T17:25:26`
+##
+
 **milesguo** 2019年11月30日：文贵报平安视频·曾宏和赵岩是如何为小夏争风吃醋的！乱聊再乱聊，一切都是刚刚开始！
 
 [https://www.guo.media/posts/256747](https://www.guo.media/posts/256747) `2019-11-30T16:25:10`
