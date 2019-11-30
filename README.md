@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The CCP is defaming and planing to “bar the drafters of the bill from entering China”<br><br>[https://news.guo.media/18501/](https://news.guo.media/18501/ "https://news.guo.media/18501/")
+
+[https://www.guo.media/posts/256790](https://www.guo.media/posts/256790) `2019-11-30T22:10:11`
+##
+
 **milesguo** Arrested foreigners for Supporting “Anti-China and disrupting Hong Kong”<br><br>[https://news.guo.media/18497/](https://news.guo.media/18497/ "https://news.guo.media/18497/")
 
 [https://www.guo.media/posts/256787](https://www.guo.media/posts/256787) `2019-11-30T21:55:12`
