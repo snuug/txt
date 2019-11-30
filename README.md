@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：谁在给中共输血续命<br><br>[https://news.guo.media/cn/18218/](https://news.guo.media/cn/18218/ "https://news.guo.media/cn/18218/")
+
+[https://www.guo.media/posts/256772](https://www.guo.media/posts/256772) `2019-11-30T18:10:10`
+##
+
 **milesguo** 福克斯报道：川普总统欲与塔利班达成协议<br><br>[https://news.guo.media/cn/18422/](https://news.guo.media/cn/18422/ "https://news.guo.media/cn/18422/")
 
 [https://www.guo.media/posts/256766](https://www.guo.media/posts/256766) `2019-11-30T17:25:11`
