@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 海航系违约不断，半年内仍有百亿债券待偿，借新还旧腾挪空间变小<br><br>[https://news.guo.media/cn/18606/](https://news.guo.media/cn/18606/ "https://news.guo.media/cn/18606/")
+
+[https://www.guo.media/posts/256887](https://www.guo.media/posts/256887) `2019-12-01T06:25:12`
+##
+
+**milesguo** 海航系违约不断，半年内仍有百亿债券待偿，借新还旧腾挪空间变小<br><br>[https://news.guo.media/cn/18606/](https://news.guo.media/cn/18606/ "https://news.guo.media/cn/18606/")
+
+[https://www.guo.media/posts/256885](https://www.guo.media/posts/256885) `2019-12-01T06:25:15`
+##
+
 **milesguo** The troubled HNA group sold its last asset in UK<br><br>[https://news.guo.media/18594/](https://news.guo.media/18594/ "https://news.guo.media/18594/")
 
 [https://www.guo.media/posts/256882](https://www.guo.media/posts/256882) `2019-12-01T05:40:11`
