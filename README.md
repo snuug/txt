@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 22年前，他说，这个年轻人会改变中国，影响世界！<br><br>[https://news.guo.media/cn/18550/](https://news.guo.media/cn/18550/ "https://news.guo.media/cn/18550/")
+
+[https://www.guo.media/posts/256833](https://www.guo.media/posts/256833) `2019-12-01T02:40:10`
+##
+
+**milesguo** 文字版2019年11月29日文贵谈龚小夏过往点滴<br><br>[https://news.guo.media/cn/18560/](https://news.guo.media/cn/18560/ "https://news.guo.media/cn/18560/")
+
+[https://www.guo.media/posts/256830](https://www.guo.media/posts/256830) `2019-12-01T02:40:14`
+##
+
 **milesguo** 光复香港，需众同行！12.2罢工，不容再等！<br><br>[https://news.guo.media/cn/18545/](https://news.guo.media/cn/18545/ "https://news.guo.media/cn/18545/")
 
 [https://www.guo.media/posts/256829](https://www.guo.media/posts/256829) `2019-12-01T02:25:11`
