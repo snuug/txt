@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>MINGTIANDI网11月28日: 海航表示，为了逃离英国，将最后一处伦敦资产以低于市场价24%的价格出售<br><br>[https://spark.adobe.com/page/oLLzwtRpsXgr8/](https://spark.adobe.com/page/oLLzwtRpsXgr8/ "https://spark.adobe.com/page/oLLzwtRpsXgr8/")<br><br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/256918](https://www.guo.media/posts/256918) `2019-12-01T09:25:10`
+##
+
 **milesguo** 中国情搜新动作 南海美济礁部署飞船<br><br>[https://news.guo.media/cn/18670/](https://news.guo.media/cn/18670/ "https://news.guo.media/cn/18670/")
 
 [https://www.guo.media/posts/256909](https://www.guo.media/posts/256909) `2019-12-01T08:10:11`
