@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** FOX披露中共在社交媒体上打压有关疫情的信息，删除有关传播鼠疫信息的推文，这是会导致鼠疫在全世界蔓延<br><br>[https://news.guo.media/cn/18662/](https://news.guo.media/cn/18662/ "https://news.guo.media/cn/18662/")
+
+[https://www.guo.media/posts/256896](https://www.guo.media/posts/256896) `2019-12-01T07:10:10`
+##
+
 **milesguo** 海航系违约不断，半年内仍有百亿债券待偿，借新还旧腾挪空间变小<br><br>[https://news.guo.media/cn/18606/](https://news.guo.media/cn/18606/ "https://news.guo.media/cn/18606/")
 
 [https://www.guo.media/posts/256887](https://www.guo.media/posts/256887) `2019-12-01T06:25:12`
