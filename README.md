@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中共干掉美元的计划，胜率有多少<br><br>[https://news.guo.media/cn/18522/](https://news.guo.media/cn/18522/ "https://news.guo.media/cn/18522/")
+
+[https://www.guo.media/posts/256826](https://www.guo.media/posts/256826) `2019-12-01T01:25:11`
+##
+
+**milesguo** 11月15日砸毁香港收费站警察乔装作案嫁祸勇武派<br><br>[https://news.guo.media/cn/18535/](https://news.guo.media/cn/18535/ "https://news.guo.media/cn/18535/")
+
+[https://www.guo.media/posts/256825](https://www.guo.media/posts/256825) `2019-12-01T01:25:14`
+##
+
+**milesguo** 【文贵先生的导师贺龄乐老先生临终书信】聪明是天赋，而善良是本性<br><br>[https://news.guo.media/cn/18509/](https://news.guo.media/cn/18509/ "https://news.guo.media/cn/18509/")
+
+[https://www.guo.media/posts/256824](https://www.guo.media/posts/256824) `2019-12-01T01:25:17`
+##
+
 **milesguo** 【文贵先生的导师贺龄乐老先生临终书信】聪明是天赋，而善良是本性<br><br>[https://news.guo.media/cn/18509/](https://news.guo.media/cn/18509/ "https://news.guo.media/cn/18509/")
 
 [https://www.guo.media/posts/256818](https://www.guo.media/posts/256818) `2019-12-01T01:10:10`
