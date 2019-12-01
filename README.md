@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月1日：尊敬的战友们好！你们健身了吗？你们传播香的危机真相了吗？文贵马上直播．没有任何爆料，完全是乱聊，一切都是刚刚开始！
+
+[https://www.guo.media/posts/256968](https://www.guo.media/posts/256968) `2019-12-01T15:10:11`
+##
+
 **milesguo**  【翻譯】<br><br>香港自由新聞11月30日: 北京迅速對香港人實施報復，大學首當其衝<br><br>[https://spark.adobe.com/page/YeXyLmiOHmfxi/](https://spark.adobe.com/page/YeXyLmiOHmfxi/ "https://spark.adobe.com/page/YeXyLmiOHmfxi/")<br><br>【秘密翻譯組】<br>
 
 [https://www.guo.media/posts/256929](https://www.guo.media/posts/256929) `2019-12-01T10:55:11`
