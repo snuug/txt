@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** The troubled HNA group sold its last asset in UK<br><br>[https://news.guo.media/18594/](https://news.guo.media/18594/ "https://news.guo.media/18594/")
+
+[https://www.guo.media/posts/256882](https://www.guo.media/posts/256882) `2019-12-01T05:40:11`
+##
+
+**milesguo** China Commerce Bank in trouble: dollar exchange rate becomes 1:45<br><br>[https://news.guo.media/18552/](https://news.guo.media/18552/ "https://news.guo.media/18552/")
+
+[https://www.guo.media/posts/256881](https://www.guo.media/posts/256881) `2019-12-01T05:40:14`
+##
+
+**milesguo** From Kong Linlin’s sentence to CCP’s weaponized media in the West<br><br>[https://news.guo.media/18494/](https://news.guo.media/18494/ "https://news.guo.media/18494/")
+
+[https://www.guo.media/posts/256880](https://www.guo.media/posts/256880) `2019-12-01T05:40:18`
+##
+
 **milesguo**  【翻译】<br><br>华盛顿时报11月25日: 远程导弹试射增加了不断扩大的中国核武库<br><br>[https://spark.adobe.com/page/QbQhDRVlp31aC/](https://spark.adobe.com/page/QbQhDRVlp31aC/ "https://spark.adobe.com/page/QbQhDRVlp31aC/")<br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/256859](https://www.guo.media/posts/256859) `2019-12-01T03:25:10`
