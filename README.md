@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月30号 昨天发的贺先生的信隔着塑料纸，我再重新拍一遍发给兄弟姐妹们。
+
+[https://www.guo.media/posts/256809](https://www.guo.media/posts/256809) `2019-12-01T00:10:10`
+##
+
 **milesguo** 好消息！抖音公司给发布让大家去关注中国新疆问题的视频得女孩道歉啦！并解封了她的账户！<br><br>[https://news.guo.media/cn/18508/](https://news.guo.media/cn/18508/ "https://news.guo.media/cn/18508/")
 
 [https://www.guo.media/posts/256794](https://www.guo.media/posts/256794) `2019-11-30T22:25:11`
