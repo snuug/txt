@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【香港真相】<br><br>面對港府漠視，香港網友將《警察濫權實錄》資料庫上線:<br><br>🔗 [https://tl.hkrev.info/police-timeline/](https://tl.hkrev.info/police-timeline/ "https://tl.hkrev.info/police-timeline/")<br><br>網站曝光超過1400件自2019年6月9日起濫用權力、暴力、濫捕示威者個案(附影片/新聞來源,並設有中英日文)，含十四個範疇。該網站還收錄有反送中運動的時間軸、新聞時序、遊行統計、文宣物等資料。<br><br><br>HKPolice Abuse Record database :<br><br>🔗 [https://tl.hkrev.info/police-timeline/](https://tl.hkrev.info/police-timeline/ "https://tl.hkrev.info/police-timeline/")<br><br>The website has exposed >1,400 cases of abuse of power, violence, and excessive arrest of demonstrators since 2019/6/9 (with video/news source in Chinese, English, Japanese), including 14 categories. #HKPoliceTerrorism<br><br>【戰鷹團】
+
+[https://www.guo.media/posts/256813](https://www.guo.media/posts/256813) `2019-12-01T00:25:10`
+##
+
 **milesguo** 11月30号 昨天发的贺先生的信隔着塑料纸，我再重新拍一遍发给兄弟姐妹们。
 
 [https://www.guo.media/posts/256809](https://www.guo.media/posts/256809) `2019-12-01T00:10:10`
