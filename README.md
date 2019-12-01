@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 光复香港，需众同行！12.2罢工，不容再等！<br><br>[https://news.guo.media/cn/18545/](https://news.guo.media/cn/18545/ "https://news.guo.media/cn/18545/")
+
+[https://www.guo.media/posts/256829](https://www.guo.media/posts/256829) `2019-12-01T02:25:11`
+##
+
 **milesguo** 小巴猪：中共干掉美元的计划，胜率有多少<br><br>[https://news.guo.media/cn/18522/](https://news.guo.media/cn/18522/ "https://news.guo.media/cn/18522/")
 
 [https://www.guo.media/posts/256826](https://www.guo.media/posts/256826) `2019-12-01T01:25:11`
