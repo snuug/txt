@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>华盛顿时报11月25日: 远程导弹试射增加了不断扩大的中国核武库<br><br>[https://spark.adobe.com/page/QbQhDRVlp31aC/](https://spark.adobe.com/page/QbQhDRVlp31aC/ "https://spark.adobe.com/page/QbQhDRVlp31aC/")<br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/256859](https://www.guo.media/posts/256859) `2019-12-01T03:25:10`
+##
+
 **milesguo** 22年前，他说，这个年轻人会改变中国，影响世界！<br><br>[https://news.guo.media/cn/18550/](https://news.guo.media/cn/18550/ "https://news.guo.media/cn/18550/")
 
 [https://www.guo.media/posts/256833](https://www.guo.media/posts/256833) `2019-12-01T02:40:10`
