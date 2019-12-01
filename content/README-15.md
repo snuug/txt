@@ -13,6 +13,10 @@
 
 ## 頁面 15/21 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/content/2018/04/20180418-263041945712607182.md)
+
+[文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/2018/04/20180418-500002948561788779.md)
+
 [文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/content/2018/04/20180418-67355639840191064.md)
 
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
@@ -58,10 +62,6 @@
 [头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/content/2018/04/20180418-8895540675062184474.md)
 
 [文字版：03/16/18如何感恩．并享受．砸郭运动！王岐山到底是总理还是监察委主任．副主席？一切都是刚刚开始！](/content/2018/04/20180418-2325296927078284742.md)
-
-[文字版：03/15/18文贵的天真就是无知吗？文贵的无私追求就是愚蠢吗？明镜的陈军为什么无缘无故的有害文贵呢？](/content/2018/04/20180418-3224603331520399831.md)
-
-[文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/content/2018/04/20180418-7942093624246044835.md)
 
 
 ## 頁面 15/21 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
