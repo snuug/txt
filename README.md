@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 从显示行业看到 共产党 最后的喘气<br><br>[https://news.guo.media/cn/18601/](https://news.guo.media/cn/18601/ "https://news.guo.media/cn/18601/")
+
+[https://www.guo.media/posts/257052](https://www.guo.media/posts/257052) `2019-12-01T23:25:10`
+##
+
+**milesguo** 美国数字产品黑色星期五销售创新高<br><br>[https://news.guo.media/cn/18837/](https://news.guo.media/cn/18837/ "https://news.guo.media/cn/18837/")
+
+[https://www.guo.media/posts/257051](https://www.guo.media/posts/257051) `2019-12-01T23:25:13`
+##
+
 **milesguo** 延迟发薪 裁减航线 取消机上娱乐系统 海南航空集团旗下 香港航空面临庞大危机 盗国贼富爸爸没钱了?<br><br>[https://news.guo.media/cn/18691/](https://news.guo.media/cn/18691/ "https://news.guo.media/cn/18691/")
 
 [https://www.guo.media/posts/256978](https://www.guo.media/posts/256978) `2019-12-01T16:10:11`
