@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>香港自由新聞11月30日: 北京迅速對香港人實施報復，大學首當其衝<br><br>[https://spark.adobe.com/page/YeXyLmiOHmfxi/](https://spark.adobe.com/page/YeXyLmiOHmfxi/ "https://spark.adobe.com/page/YeXyLmiOHmfxi/")<br><br>【秘密翻譯組】<br>
+
+[https://www.guo.media/posts/256929](https://www.guo.media/posts/256929) `2019-12-01T10:55:11`
+##
+
 **milesguo**  【翻译】<br><br>MINGTIANDI网11月28日: 海航表示，为了逃离英国，将最后一处伦敦资产以低于市场价24%的价格出售<br><br>[https://spark.adobe.com/page/oLLzwtRpsXgr8/](https://spark.adobe.com/page/oLLzwtRpsXgr8/ "https://spark.adobe.com/page/oLLzwtRpsXgr8/")<br><br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/256918](https://www.guo.media/posts/256918) `2019-12-01T09:25:10`
