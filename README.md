@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 延迟发薪 裁减航线 取消机上娱乐系统 海南航空集团旗下 香港航空面临庞大危机 盗国贼富爸爸没钱了?<br><br>[https://news.guo.media/cn/18691/](https://news.guo.media/cn/18691/ "https://news.guo.media/cn/18691/")
+
+[https://www.guo.media/posts/256978](https://www.guo.media/posts/256978) `2019-12-01T16:10:11`
+##
+
 **milesguo** 12月1日：尊敬的战友们好！你们健身了吗？你们传播香的危机真相了吗？文贵马上直播．没有任何爆料，完全是乱聊，一切都是刚刚开始！
 
 [https://www.guo.media/posts/256968](https://www.guo.media/posts/256968) `2019-12-01T15:10:11`
