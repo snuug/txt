@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>加拿大全球新闻12月1日: 华为在孟晚舟被捕一周年之际发布了她的信件<br><br>[https://spark.adobe.com/page/VKrvk3lHEqyck/](https://spark.adobe.com/page/VKrvk3lHEqyck/ "https://spark.adobe.com/page/VKrvk3lHEqyck/")<br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257130](https://www.guo.media/posts/257130) `2019-12-02T06:55:11`
+##
+
+**milesguo** Miles Guo: Britain will also step in to punish the Hong Kong government and officials<br><br>[https://news.guo.media/19075/](https://news.guo.media/19075/ "https://news.guo.media/19075/")
+
+[https://www.guo.media/posts/257129](https://www.guo.media/posts/257129) `2019-12-02T06:55:14`
+##
+
+**milesguo** 共产党官方“爆料”：人民币前身是“冥币”<br><br>[https://news.guo.media/cn/19076/](https://news.guo.media/cn/19076/ "https://news.guo.media/cn/19076/")
+
+[https://www.guo.media/posts/257128](https://www.guo.media/posts/257128) `2019-12-02T06:55:17`
+##
+
+**milesguo** 《军情动态》日本拟年底通过内阁会议 派遣自卫队至中东巡航<br><br>[https://news.guo.media/cn/19059/](https://news.guo.media/cn/19059/ "https://news.guo.media/cn/19059/")
+
+[https://www.guo.media/posts/257127](https://www.guo.media/posts/257127) `2019-12-02T06:55:20`
+##
+
+**milesguo** 人未救先回填水泥！广州地铁施工区塌陷掉2车、3人失联<br><br>[https://news.guo.media/cn/19054/](https://news.guo.media/cn/19054/ "https://news.guo.media/cn/19054/")
+
+[https://www.guo.media/posts/257126](https://www.guo.media/posts/257126) `2019-12-02T06:55:23`
+##
+
 **milesguo** 被抓手足合集！请广泛传播，早日知道他们的消息<br><br>[https://news.guo.media/cn/18967/](https://news.guo.media/cn/18967/ "https://news.guo.media/cn/18967/")
 
 [https://www.guo.media/posts/257122](https://www.guo.media/posts/257122) `2019-12-02T06:40:11`
