@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Nov 20 highlights】Miles Guo exposed inside information on HNA Chairman’s questionable death<br><br>[https://news.guo.media/19167/](https://news.guo.media/19167/ "https://news.guo.media/19167/")
+
+[https://www.guo.media/posts/257255](https://www.guo.media/posts/257255) `2019-12-02T16:10:11`
+##
+
 **milesguo** Breaking News: China announced countermeasures against the US “Hong Kong Human Rights and Democracy Act”<br><br>[https://news.guo.media/19224/](https://news.guo.media/19224/ "https://news.guo.media/19224/")
 
 [https://www.guo.media/posts/257246](https://www.guo.media/posts/257246) `2019-12-02T14:55:11`
