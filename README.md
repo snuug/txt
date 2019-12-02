@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>悉尼晨锋报11月30日: 我们对中国的恐惧并不是憎恶<br><br>[https://spark.adobe.com/page/iAXOExDud0flH/](https://spark.adobe.com/page/iAXOExDud0flH/ "https://spark.adobe.com/page/iAXOExDud0flH/")<br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257082](https://www.guo.media/posts/257082) `2019-12-02T02:10:11`
+##
+
 **milesguo** 国内屏蔽：前华为员工因追讨补偿被诬敲诈勒索拘禁251天<br><br>[https://news.guo.media/cn/18880/](https://news.guo.media/cn/18880/ "https://news.guo.media/cn/18880/")
 
 [https://www.guo.media/posts/257068](https://www.guo.media/posts/257068) `2019-12-02T01:10:10`
