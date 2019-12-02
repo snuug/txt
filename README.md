@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 11月30日香港要闻：港共施政继续倒行逆施 ，维稳机器渗透各个政府部门，拨乱反正彻查大白象<br><br>[https://news.guo.media/cn/18856/](https://news.guo.media/cn/18856/ "https://news.guo.media/cn/18856/")
+
+[https://www.guo.media/posts/257093](https://www.guo.media/posts/257093) `2019-12-02T04:10:11`
+##
+
 **milesguo**  【翻译】<br><br>悉尼晨锋报11月30日: 我们对中国的恐惧并不是憎恶<br><br>[https://spark.adobe.com/page/iAXOExDud0flH/](https://spark.adobe.com/page/iAXOExDud0flH/ "https://spark.adobe.com/page/iAXOExDud0flH/")<br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257082](https://www.guo.media/posts/257082) `2019-12-02T02:10:11`
