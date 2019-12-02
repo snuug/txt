@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中南坑发生了什么大事儿，分析一下！<br><br>[https://news.guo.media/cn/19153/](https://news.guo.media/cn/19153/ "https://news.guo.media/cn/19153/")
+
+[https://www.guo.media/posts/257144](https://www.guo.media/posts/257144) `2019-12-02T08:10:10`
+##
+
+**milesguo** 美中贸易协议暂停<br><br>[https://news.guo.media/cn/19155/](https://news.guo.media/cn/19155/ "https://news.guo.media/cn/19155/")
+
+[https://www.guo.media/posts/257143](https://www.guo.media/posts/257143) `2019-12-02T08:10:14`
+##
+
 **milesguo**  【翻译】<br><br>加拿大全球新闻12月1日: 华为在孟晚舟被捕一周年之际发布了她的信件<br><br>[https://spark.adobe.com/page/VKrvk3lHEqyck/](https://spark.adobe.com/page/VKrvk3lHEqyck/ "https://spark.adobe.com/page/VKrvk3lHEqyck/")<br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257130](https://www.guo.media/posts/257130) `2019-12-02T06:55:11`
