@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 党内斗：中国中央纪委大动作扫贪 内蒙古 吉林1日4高官落马<br><br>[https://news.guo.media/cn/18795/](https://news.guo.media/cn/18795/ "https://news.guo.media/cn/18795/")
+
+[https://www.guo.media/posts/257057](https://www.guo.media/posts/257057) `2019-12-02T00:25:10`
+##
+
 **milesguo** 从显示行业看到 共产党 最后的喘气<br><br>[https://news.guo.media/cn/18601/](https://news.guo.media/cn/18601/ "https://news.guo.media/cn/18601/")
 
 [https://www.guo.media/posts/257052](https://www.guo.media/posts/257052) `2019-12-01T23:25:10`
