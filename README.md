@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国国际共和研究所关于中国共产党宣布制裁非政府组织的声明<br><br>[https://news.guo.media/cn/19313/](https://news.guo.media/cn/19313/ "https://news.guo.media/cn/19313/")
+
+[https://www.guo.media/posts/257274](https://www.guo.media/posts/257274) `2019-12-02T18:10:10`
+##
+
 **milesguo** 华为欲盖弥彰，墙内年轻人纷纷觉醒，并挺身而出<br><br>[https://news.guo.media/cn/19173/](https://news.guo.media/cn/19173/ "https://news.guo.media/cn/19173/")
 
 [https://www.guo.media/posts/257260](https://www.guo.media/posts/257260) `2019-12-02T16:25:11`
