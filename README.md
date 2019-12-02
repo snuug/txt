@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 在伦敦庆祝北约成立70周年会议前夕 蓬佩奥喊话：欧洲必须以5G安全为首要位置<br><br>[https://news.guo.media/cn/19296/](https://news.guo.media/cn/19296/ "https://news.guo.media/cn/19296/")
+
+[https://www.guo.media/posts/257310](https://www.guo.media/posts/257310) `2019-12-02T22:40:11`
+##
+
+**milesguo** 邀美军专家团登台谈建军备战 台湾国防部：以军购合约模式邀请美军专家团队来台<br><br>[https://news.guo.media/cn/19281/](https://news.guo.media/cn/19281/ "https://news.guo.media/cn/19281/")
+
+[https://www.guo.media/posts/257307](https://www.guo.media/posts/257307) `2019-12-02T22:40:14`
+##
+
+**milesguo** 《大学问》汕大校歌！活出生命的光彩，才无愧于春秋<br><br>[https://news.guo.media/cn/19259/](https://news.guo.media/cn/19259/ "https://news.guo.media/cn/19259/")
+
+[https://www.guo.media/posts/257306](https://www.guo.media/posts/257306) `2019-12-02T22:40:18`
+##
+
+**milesguo** 12月2号：尊敬的战友们好．拟定于今天下午6:00左右的直播，由于时间的安排和各种大事情正在发生中尚未成熟……今天就不直播了……明天上午．12月3号9:00以后我们再直播……一切都是刚刚开始！
+
+[https://www.guo.media/posts/257304](https://www.guo.media/posts/257304) `2019-12-02T22:40:21`
+##
+
 **milesguo** 继马云 ，马化腾之后雷军卸任中国区总裁 嗯 刘强东也不远了？<br><br>[https://news.guo.media/cn/19247/](https://news.guo.media/cn/19247/ "https://news.guo.media/cn/19247/")
 
 [https://www.guo.media/posts/257294](https://www.guo.media/posts/257294) `2019-12-02T19:55:10`
