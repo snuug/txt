@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 蓬佩奥:美国有责任确保落实《中英联合声明》<br><br>[https://news.guo.media/cn/19333/](https://news.guo.media/cn/19333/ "https://news.guo.media/cn/19333/")
+
+[https://www.guo.media/posts/257314](https://www.guo.media/posts/257314) `2019-12-02T22:55:10`
+##
+
+**milesguo** 海航成功借钱 40 亿，还怎么还？<br><br>[https://news.guo.media/cn/19300/](https://news.guo.media/cn/19300/ "https://news.guo.media/cn/19300/")
+
+[https://www.guo.media/posts/257312](https://www.guo.media/posts/257312) `2019-12-02T22:55:14`
+##
+
 **milesguo** 在伦敦庆祝北约成立70周年会议前夕 蓬佩奥喊话：欧洲必须以5G安全为首要位置<br><br>[https://news.guo.media/cn/19296/](https://news.guo.media/cn/19296/ "https://news.guo.media/cn/19296/")
 
 [https://www.guo.media/posts/257310](https://www.guo.media/posts/257310) `2019-12-02T22:40:11`
