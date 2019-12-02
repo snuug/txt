@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 国内屏蔽：前华为员工因追讨补偿被诬敲诈勒索拘禁251天<br><br>[https://news.guo.media/cn/18880/](https://news.guo.media/cn/18880/ "https://news.guo.media/cn/18880/")
+
+[https://www.guo.media/posts/257068](https://www.guo.media/posts/257068) `2019-12-02T01:10:10`
+##
+
 **milesguo** 党内斗：中国中央纪委大动作扫贪 内蒙古 吉林1日4高官落马<br><br>[https://news.guo.media/cn/18795/](https://news.guo.media/cn/18795/ "https://news.guo.media/cn/18795/")
 
 [https://www.guo.media/posts/257057](https://www.guo.media/posts/257057) `2019-12-02T00:25:10`
