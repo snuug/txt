@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻譯】<br><br>悉尼先驅晨報 12月1日:  分析人士：大失所望的中國官員密切關注王立強案 <br><br><br>[https://spark.adobe.com/page/aRcp6Qk7JLfGA/](https://spark.adobe.com/page/aRcp6Qk7JLfGA/ "https://spark.adobe.com/page/aRcp6Qk7JLfGA/")<br><br><br>【秘密翻譯組】<br>
+
+[https://www.guo.media/posts/257220](https://www.guo.media/posts/257220) `2019-12-02T13:10:10`
+##
+
 **milesguo**  【翻译】<br><br>December 2, 2019 163.com -The Paper News :<br>Ministry of Foreign Affairs of PRC: we will suspend approval of the application for US warships and aircrafts to rest in Hong Kong<br><br>网易-澎湃新闻12月2日: <br>外交部：暂停审批美军舰机赴港休整申请<br><br><br>[https://spark.adobe.com/page/B7LI3gSfYRrvC/](https://spark.adobe.com/page/B7LI3gSfYRrvC/ "https://spark.adobe.com/page/B7LI3gSfYRrvC/")<br><br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257181](https://www.guo.media/posts/257181) `2019-12-02T09:10:11`
