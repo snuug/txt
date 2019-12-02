@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** HNA receives 568 million dollars loan from eight domestic banks<br><br>[https://news.guo.media/19279/](https://news.guo.media/19279/ "https://news.guo.media/19279/")
+
+[https://www.guo.media/posts/257281](https://www.guo.media/posts/257281) `2019-12-02T18:55:10`
+##
+
 **milesguo** Rally to support Indonesian Domestic Worker: Stop Political Oppression<br><br>[https://news.guo.media/19204/](https://news.guo.media/19204/ "https://news.guo.media/19204/")
 
 [https://www.guo.media/posts/257277](https://www.guo.media/posts/257277) `2019-12-02T18:25:10`
