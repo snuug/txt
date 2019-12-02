@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>南华早报11月30日: 香港领导人只有一条出路：与整个社区展开广泛、开放、包容的对话<br><br>[https://spark.adobe.com/page/clMCrBurn6vvP/](https://spark.adobe.com/page/clMCrBurn6vvP/ "https://spark.adobe.com/page/clMCrBurn6vvP/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
+
+[https://www.guo.media/posts/257224](https://www.guo.media/posts/257224) `2019-12-02T14:25:10`
+##
+
 **milesguo**  【翻譯】<br><br>悉尼先驅晨報 12月1日:  分析人士：大失所望的中國官員密切關注王立強案 <br><br><br>[https://spark.adobe.com/page/aRcp6Qk7JLfGA/](https://spark.adobe.com/page/aRcp6Qk7JLfGA/ "https://spark.adobe.com/page/aRcp6Qk7JLfGA/")<br><br><br>【秘密翻譯組】<br>
 
 [https://www.guo.media/posts/257220](https://www.guo.media/posts/257220) `2019-12-02T13:10:10`
