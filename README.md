@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 香港广告界罢工！力挺前线抗争手足<br><br>[https://news.guo.media/cn/19120/](https://news.guo.media/cn/19120/ "https://news.guo.media/cn/19120/")
+
+[https://www.guo.media/posts/257231](https://www.guo.media/posts/257231) `2019-12-02T14:40:11`
+##
+
+**milesguo** 驻港戒严部队军警十六项国际罪行 ！全球抵抗共产暴政 ！<br><br>[https://news.guo.media/cn/19112/](https://news.guo.media/cn/19112/ "https://news.guo.media/cn/19112/")
+
+[https://www.guo.media/posts/257230](https://www.guo.media/posts/257230) `2019-12-02T14:40:15`
+##
+
+**milesguo** 港反送中休战逾一周警民冲突再现!　香港财长：15年来首次政府财政赤字<br><br>[https://news.guo.media/cn/19063/](https://news.guo.media/cn/19063/ "https://news.guo.media/cn/19063/")
+
+[https://www.guo.media/posts/257229](https://www.guo.media/posts/257229) `2019-12-02T14:40:18`
+##
+
+**milesguo** 举枪威胁！黑警无故粗暴推搡路人<br><br>[https://news.guo.media/cn/19096/](https://news.guo.media/cn/19096/ "https://news.guo.media/cn/19096/")
+
+[https://www.guo.media/posts/257227](https://www.guo.media/posts/257227) `2019-12-02T14:40:21`
+##
+
+**milesguo** HK Police searched civilians and recorded personal information arbitrarily on street<br><br>[https://news.guo.media/19038/](https://news.guo.media/19038/ "https://news.guo.media/19038/")
+
+[https://www.guo.media/posts/257226](https://www.guo.media/posts/257226) `2019-12-02T14:40:24`
+##
+
 **milesguo**  【翻译】<br><br>南华早报11月30日: 香港领导人只有一条出路：与整个社区展开广泛、开放、包容的对话<br><br>[https://spark.adobe.com/page/clMCrBurn6vvP/](https://spark.adobe.com/page/clMCrBurn6vvP/ "https://spark.adobe.com/page/clMCrBurn6vvP/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
 
 [https://www.guo.media/posts/257224](https://www.guo.media/posts/257224) `2019-12-02T14:25:10`
