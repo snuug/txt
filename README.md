@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 被抓手足合集！请广泛传播，早日知道他们的消息<br><br>[https://news.guo.media/cn/18967/](https://news.guo.media/cn/18967/ "https://news.guo.media/cn/18967/")
+
+[https://www.guo.media/posts/257122](https://www.guo.media/posts/257122) `2019-12-02T06:40:11`
+##
+
+**milesguo** 广播：2019/12/1郭文贵先生直播 中共倒台前必将爆发粮食危机<br><br>[https://news.guo.media/cn/18951/](https://news.guo.media/cn/18951/ "https://news.guo.media/cn/18951/")
+
+[https://www.guo.media/posts/257120](https://www.guo.media/posts/257120) `2019-12-02T06:40:14`
+##
+
 **milesguo**  【翻译】<br><br>路透社11月29日: 美国将与北约盟国讨论中国、5G带来的挑战<br><br>[https://spark.adobe.com/page/0UFFnjV1xwcqm/](https://spark.adobe.com/page/0UFFnjV1xwcqm/ "https://spark.adobe.com/page/0UFFnjV1xwcqm/")<br><br><br>【秘密翻译组】<br><br>
 
 [https://www.guo.media/posts/257113](https://www.guo.media/posts/257113) `2019-12-02T05:40:10`
