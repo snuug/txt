@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 继马云 ，马化腾之后雷军卸任中国区总裁 嗯 刘强东也不远了？<br><br>[https://news.guo.media/cn/19247/](https://news.guo.media/cn/19247/ "https://news.guo.media/cn/19247/")
+
+[https://www.guo.media/posts/257294](https://www.guo.media/posts/257294) `2019-12-02T19:55:10`
+##
+
+**milesguo** Leaked footage of interrogation from China: Torture Device- Electrocuting Helmet<br><br>[https://news.guo.media/19317/](https://news.guo.media/19317/ "https://news.guo.media/19317/")
+
+[https://www.guo.media/posts/257293](https://www.guo.media/posts/257293) `2019-12-02T19:55:14`
+##
+
 **milesguo** 联合国人权事务高级专员巴切莱特：需要聆听年轻人的声音<br><br>[https://news.guo.media/cn/19242/](https://news.guo.media/cn/19242/ "https://news.guo.media/cn/19242/")
 
 [https://www.guo.media/posts/257287](https://www.guo.media/posts/257287) `2019-12-02T19:25:11`
