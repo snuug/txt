@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 联合国人权事务高级专员巴切莱特：需要聆听年轻人的声音<br><br>[https://news.guo.media/cn/19242/](https://news.guo.media/cn/19242/ "https://news.guo.media/cn/19242/")
+
+[https://www.guo.media/posts/257287](https://www.guo.media/posts/257287) `2019-12-02T19:25:11`
+##
+
 **milesguo** HNA receives 568 million dollars loan from eight domestic banks<br><br>[https://news.guo.media/19279/](https://news.guo.media/19279/ "https://news.guo.media/19279/")
 
 [https://www.guo.media/posts/257281](https://www.guo.media/posts/257281) `2019-12-02T18:55:10`
