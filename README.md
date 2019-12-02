@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 华为欲盖弥彰，墙内年轻人纷纷觉醒，并挺身而出<br><br>[https://news.guo.media/cn/19173/](https://news.guo.media/cn/19173/ "https://news.guo.media/cn/19173/")
+
+[https://www.guo.media/posts/257260](https://www.guo.media/posts/257260) `2019-12-02T16:25:11`
+##
+
+**milesguo** The communist new law ensures complete visibility into the networks of foreign companies<br><br>[https://news.guo.media/19200/](https://news.guo.media/19200/ "https://news.guo.media/19200/")
+
+[https://www.guo.media/posts/257258](https://www.guo.media/posts/257258) `2019-12-02T16:25:14`
+##
+
 **milesguo** 【Nov 20 highlights】Miles Guo exposed inside information on HNA Chairman’s questionable death<br><br>[https://news.guo.media/19167/](https://news.guo.media/19167/ "https://news.guo.media/19167/")
 
 [https://www.guo.media/posts/257255](https://www.guo.media/posts/257255) `2019-12-02T16:10:11`
