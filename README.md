@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【翻译】<br><br>路透社11月29日: 美国将与北约盟国讨论中国、5G带来的挑战<br><br>[https://spark.adobe.com/page/0UFFnjV1xwcqm/](https://spark.adobe.com/page/0UFFnjV1xwcqm/ "https://spark.adobe.com/page/0UFFnjV1xwcqm/")<br><br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/257113](https://www.guo.media/posts/257113) `2019-12-02T05:40:10`
+##
+
 **milesguo** 11月30日香港要闻：港共施政继续倒行逆施 ，维稳机器渗透各个政府部门，拨乱反正彻查大白象<br><br>[https://news.guo.media/cn/18856/](https://news.guo.media/cn/18856/ "https://news.guo.media/cn/18856/")
 
 [https://www.guo.media/posts/257093](https://www.guo.media/posts/257093) `2019-12-02T04:10:11`
