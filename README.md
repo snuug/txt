@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Breaking News: China announced countermeasures against the US “Hong Kong Human Rights and Democracy Act”<br><br>[https://news.guo.media/19224/](https://news.guo.media/19224/ "https://news.guo.media/19224/")
+
+[https://www.guo.media/posts/257246](https://www.guo.media/posts/257246) `2019-12-02T14:55:11`
+##
+
+**milesguo** 12月2号：尊敬的战友们好！<br>你们健身了吗？你们船舶香港危机真相了吗？文贵马上报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/257243](https://www.guo.media/posts/257243) `2019-12-02T14:55:15`
+##
+
+**milesguo** [Funeral Industry in China] Squeeze Out Your Money When You Die<br><br>[https://news.guo.media/19030/](https://news.guo.media/19030/ "https://news.guo.media/19030/")
+
+[https://www.guo.media/posts/257237](https://www.guo.media/posts/257237) `2019-12-02T14:55:18`
+##
+
+**milesguo**  【翻译】<br><br>12月1日:  致欧盟委员会主席乌苏拉·冯·德莱恩夫人的公开信，请通过欧盟范围的《马格尼茨基法案》<br><br><br>[https://spark.adobe.com/page/8CyAR81b0BIz8/](https://spark.adobe.com/page/8CyAR81b0BIz8/ "https://spark.adobe.com/page/8CyAR81b0BIz8/")<br><br>【秘密翻译组】<br><br>
+
+[https://www.guo.media/posts/257236](https://www.guo.media/posts/257236) `2019-12-02T14:55:21`
+##
+
+**milesguo** 【挥着镰刀的银行】你还在存款吗？<br><br>[https://news.guo.media/cn/19122/](https://news.guo.media/cn/19122/ "https://news.guo.media/cn/19122/")
+
+[https://www.guo.media/posts/257235](https://www.guo.media/posts/257235) `2019-12-02T14:55:24`
+##
+
+**milesguo** 志愿急救员排排站，被黑警挨个搜身<br><br>[https://news.guo.media/cn/19139/](https://news.guo.media/cn/19139/ "https://news.guo.media/cn/19139/")
+
+[https://www.guo.media/posts/257232](https://www.guo.media/posts/257232) `2019-12-02T14:55:27`
+##
+
 **milesguo** 香港广告界罢工！力挺前线抗争手足<br><br>[https://news.guo.media/cn/19120/](https://news.guo.media/cn/19120/ "https://news.guo.media/cn/19120/")
 
 [https://www.guo.media/posts/257231](https://www.guo.media/posts/257231) `2019-12-02T14:40:11`
