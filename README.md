@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Rally to support Indonesian Domestic Worker: Stop Political Oppression<br><br>[https://news.guo.media/19204/](https://news.guo.media/19204/ "https://news.guo.media/19204/")
+
+[https://www.guo.media/posts/257277](https://www.guo.media/posts/257277) `2019-12-02T18:25:10`
+##
+
 **milesguo** 美国国际共和研究所关于中国共产党宣布制裁非政府组织的声明<br><br>[https://news.guo.media/cn/19313/](https://news.guo.media/cn/19313/ "https://news.guo.media/cn/19313/")
 
 [https://www.guo.media/posts/257274](https://www.guo.media/posts/257274) `2019-12-02T18:10:10`
