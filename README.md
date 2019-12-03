@@ -777,38 +777,3 @@
 [https://www.guo.media/posts/256350](https://www.guo.media/posts/256350) `2019-11-28T15:25:11`
 ##
 
-**milesguo**  【摘要翻譯】<br><br>美國國務院 11月26日: 國務卿邁克爾.R.蓬佩奧向媒體發表講話（新疆，香港部分摘要）<br><br>[https://spark.adobe.com/page/WulwLbLKJelGS/](https://spark.adobe.com/page/WulwLbLKJelGS/ "https://spark.adobe.com/page/WulwLbLKJelGS/")<br><br>【秘密翻譯組】<br>
-
-[https://www.guo.media/posts/256295](https://www.guo.media/posts/256295) `2019-11-28T11:25:11`
-##
-
-**milesguo**  【翻译】<br><br>美国商务部 11月26日: 美国商务部提出保护美国的信息与通信技术及服务的供应链安全的规则<br><br>[https://spark.adobe.com/page/3bDwM0XXgYvVg/](https://spark.adobe.com/page/3bDwM0XXgYvVg/ "https://spark.adobe.com/page/3bDwM0XXgYvVg/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
-
-[https://www.guo.media/posts/256283](https://www.guo.media/posts/256283) `2019-11-28T10:55:11`
-##
-
-**milesguo**  【翻译】<br><br>The Guardian 11月27日: 欧洲需要中国的数十亿资金。但她知道代价吗？<br><br>[https://spark.adobe.com/page/JT6RK1kig5eWb/](https://spark.adobe.com/page/JT6RK1kig5eWb/ "https://spark.adobe.com/page/JT6RK1kig5eWb/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
-
-[https://www.guo.media/posts/256266](https://www.guo.media/posts/256266) `2019-11-28T09:25:10`
-##
-
-**milesguo**  【翻譯】<br><br>澳洲時代報 11月24日: （澳洲）當局認為，中共試圖在聯邦議會安插自己的候選人<br><br>[https://spark.adobe.com/page/CXrfgRMO9eeoS/](https://spark.adobe.com/page/CXrfgRMO9eeoS/ "https://spark.adobe.com/page/CXrfgRMO9eeoS/")<br><br><br>【秘密翻譯組】<br><br>
-
-[https://www.guo.media/posts/256255](https://www.guo.media/posts/256255) `2019-11-28T08:25:10`
-##
-
-**milesguo** 【Guo’s Remarks in 90 Seconds 郭言郭语 90 秒】<br><br>Hong Kong Act and Politicians’ Concerns (27 Nov 2019)<br><br>香港法案與從政者關注事項(2019年11月27日)<br><br><br>[https://spark.adobe.com/page/o7669dEOsBfhk/](https://spark.adobe.com/page/o7669dEOsBfhk/ "https://spark.adobe.com/page/o7669dEOsBfhk/")<br><br>【Guo Library】
-
-[https://www.guo.media/posts/256240](https://www.guo.media/posts/256240) `2019-11-28T07:10:10`
-##
-
-**milesguo** 11月27号：尊敬的战友们好文贵马上直播，乱聊感恩节前的感受没有任何爆料……一切都是刚刚开始！
-
-[https://www.guo.media/posts/256129](https://www.guo.media/posts/256129) `2019-11-28T00:10:10`
-##
-
-**milesguo** <br>11月27号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播！一切都是刚刚开始！
-
-[https://www.guo.media/posts/256057](https://www.guo.media/posts/256057) `2019-11-27T14:40:10`
-##
-
