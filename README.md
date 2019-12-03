@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** City Wide Strike, Advertising Sector Follows<br><br>[https://news.guo.media/19665/](https://news.guo.media/19665/ "https://news.guo.media/19665/")
+
+[https://www.guo.media/posts/257497](https://www.guo.media/posts/257497) `2019-12-03T22:40:11`
+##
+
 **milesguo** Chinese Foreign Ministry: we strongly urge the Canadian side to release Meng Wanzhou as soon as possible<br><br>[https://news.guo.media/19541/](https://news.guo.media/19541/ "https://news.guo.media/19541/")
 
 [https://www.guo.media/posts/257496](https://www.guo.media/posts/257496) `2019-12-03T22:25:11`
