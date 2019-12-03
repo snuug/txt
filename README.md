@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月3号：凌晨1:30几个小时的以香港战友们的视频和通话……无比的伤心和感动……纽约在下着大雪．我家的三个露台下满了满地白雪……非常的浪漫……可我的心境却在香港的孩子们的哭泣😿声中．无法自拔…回到我自己真实所处的环境中来……可怕的哭声和恐惧的痛苦😖欺骗……覆盖了整个香港上空……这个世界上没有比共产党更邪恶的。他给人类带来的灾难和伤害与这个世界，完全不能相容！天,必灭共……一切都是刚刚开始！
+
+[https://www.guo.media/posts/257357](https://www.guo.media/posts/257357) `2019-12-03T06:40:10`
+##
+
+**milesguo** 让共产党即将倒台的袁世凯 2.0<br><br>[https://news.guo.media/cn/19397/](https://news.guo.media/cn/19397/ "https://news.guo.media/cn/19397/")
+
+[https://www.guo.media/posts/257356](https://www.guo.media/posts/257356) `2019-12-03T06:40:14`
+##
+
 **milesguo** 今日美国政要推文精选1202<br><br>[https://news.guo.media/cn/19434/](https://news.guo.media/cn/19434/ "https://news.guo.media/cn/19434/")
 
 [https://www.guo.media/posts/257344](https://www.guo.media/posts/257344) `2019-12-03T03:55:10`
