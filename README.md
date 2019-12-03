@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/3郭文贵先生直播 中共在香港做的恶一定会被清算<br><br>[https://news.guo.media/cn/19643/](https://news.guo.media/cn/19643/ "https://news.guo.media/cn/19643/")
+
+[https://www.guo.media/posts/257463](https://www.guo.media/posts/257463) `2019-12-03T18:40:10`
+##
+
 **milesguo** Chinese Foreign Ministry: Pompeo keeps repeating poisonous lies<br><br>[https://news.guo.media/19655/](https://news.guo.media/19655/ "https://news.guo.media/19655/")
 
 [https://www.guo.media/posts/257461](https://www.guo.media/posts/257461) `2019-12-03T18:25:12`
