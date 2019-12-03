@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【GNEWS】<br><br>Hainan Airlines Holding Co. , Ltd. plans to issue an amount of 1 billion yuan super & short-term commercial paper (SCP) to meet its repayment obligations, with nearly 100 billion yuan debts to be repaid<br><br>海南航空控股有限公司计划发行10亿元超短期融资券(SCP)来偿还债务，将偿还近1000亿元债务<br><br><br>[https://spark.adobe.com/page/W0MkKPKMCGTV5/](https://spark.adobe.com/page/W0MkKPKMCGTV5/ "https://spark.adobe.com/page/W0MkKPKMCGTV5/")<br><br>【秘密翻译组】<br><br><br><br><br>
+
+[https://www.guo.media/posts/257366](https://www.guo.media/posts/257366) `2019-12-03T07:55:11`
+##
+
 **milesguo** 易纲定调货币政策，无法阻止人民币变“毛”<br><br>[https://news.guo.media/cn/19417/](https://news.guo.media/cn/19417/ "https://news.guo.media/cn/19417/")
 
 [https://www.guo.media/posts/257362](https://www.guo.media/posts/257362) `2019-12-03T07:10:11`
