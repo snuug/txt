@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 有一个国家竟有这么多的世界第一！你能猜到吗？<br><br>[https://news.guo.media/cn/19597/](https://news.guo.media/cn/19597/ "https://news.guo.media/cn/19597/")
+
+[https://www.guo.media/posts/257515](https://www.guo.media/posts/257515) `2019-12-03T23:55:10`
+##
+
+**milesguo** 
+
+[https://www.guo.media/posts/257514](https://www.guo.media/posts/257514) `2019-12-03T23:55:17`
+##
+
+**milesguo** 
+
+[https://www.guo.media/posts/257513](https://www.guo.media/posts/257513) `2019-12-03T23:55:23`
+##
+
+**milesguo** 12月3日:很多战友发私信要看SNOW 的视频. !衷心的感谢所有的战友SNOW 的关心 !一切都是刚刚开始！
+
+[https://www.guo.media/posts/257512](https://www.guo.media/posts/257512) `2019-12-03T23:55:26`
+##
+
 **milesguo** 听外国人说说在中国取钱、汇钱有多难<br><br>[https://news.guo.media/cn/19595/](https://news.guo.media/cn/19595/ "https://news.guo.media/cn/19595/")
 
 [https://www.guo.media/posts/257505](https://www.guo.media/posts/257505) `2019-12-03T23:40:11`
