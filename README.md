@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：从人口结构看中共造的孽<br><br>[https://news.guo.media/cn/19336/](https://news.guo.media/cn/19336/ "https://news.guo.media/cn/19336/")
+
+[https://www.guo.media/posts/257335](https://www.guo.media/posts/257335) `2019-12-03T02:55:10`
+##
+
+**milesguo** 冲破黎明前的黑暗 荣光必归香港(下篇)<br><br>[https://news.guo.media/cn/19322/](https://news.guo.media/cn/19322/ "https://news.guo.media/cn/19322/") 
+
+[https://www.guo.media/posts/257334](https://www.guo.media/posts/257334) `2019-12-03T02:55:13`
+##
+
 **milesguo** 蓬佩奥:美国有责任确保落实《中英联合声明》<br><br>[https://news.guo.media/cn/19333/](https://news.guo.media/cn/19333/ "https://news.guo.media/cn/19333/")
 
 [https://www.guo.media/posts/257314](https://www.guo.media/posts/257314) `2019-12-02T22:55:10`
