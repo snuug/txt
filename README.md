@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Foreign Ministry: Pompeo keeps repeating poisonous lies<br><br>[https://news.guo.media/19655/](https://news.guo.media/19655/ "https://news.guo.media/19655/")
+
+[https://www.guo.media/posts/257461](https://www.guo.media/posts/257461) `2019-12-03T18:25:12`
+##
+
 **milesguo** 面具先生：郭文贵先生爆料以来群魔四起妲几当道祸国殃民！<br><br>[https://news.guo.media/cn/19624/](https://news.guo.media/cn/19624/ "https://news.guo.media/cn/19624/")
 
 [https://www.guo.media/posts/257455](https://www.guo.media/posts/257455) `2019-12-03T17:40:10`
