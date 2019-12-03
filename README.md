@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 易纲定调货币政策，无法阻止人民币变“毛”<br><br>[https://news.guo.media/cn/19417/](https://news.guo.media/cn/19417/ "https://news.guo.media/cn/19417/")
+
+[https://www.guo.media/posts/257362](https://www.guo.media/posts/257362) `2019-12-03T07:10:11`
+##
+
 **milesguo** 【泪奔】妹子街头高唱壮歌，看看路过港人的反应<br><br>[https://news.guo.media/cn/19236/](https://news.guo.media/cn/19236/ "https://news.guo.media/cn/19236/")
 
 [https://www.guo.media/posts/257361](https://www.guo.media/posts/257361) `2019-12-03T06:55:11`
