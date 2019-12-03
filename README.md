@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Foreign Ministry: we strongly urge the Canadian side to release Meng Wanzhou as soon as possible<br><br>[https://news.guo.media/19541/](https://news.guo.media/19541/ "https://news.guo.media/19541/")
+
+[https://www.guo.media/posts/257496](https://www.guo.media/posts/257496) `2019-12-03T22:25:11`
+##
+
+**milesguo** 2019年12月3日郭文贵先生直播摘要<br><br>[https://news.guo.media/cn/19661/](https://news.guo.media/cn/19661/ "https://news.guo.media/cn/19661/")
+
+[https://www.guo.media/posts/257495](https://www.guo.media/posts/257495) `2019-12-03T22:25:14`
+##
+
+**milesguo** 爱比暴力强！黑警与暴力割席刻不容缓<br><br>[https://news.guo.media/cn/19564/](https://news.guo.media/cn/19564/ "https://news.guo.media/cn/19564/")
+
+[https://www.guo.media/posts/257494](https://www.guo.media/posts/257494) `2019-12-03T22:25:17`
+##
+
+**milesguo** 卫港之战！香港人今天不站出来，就没机会站出来了<br><br>[https://news.guo.media/cn/19558/](https://news.guo.media/cn/19558/ "https://news.guo.media/cn/19558/")
+
+[https://www.guo.media/posts/257493](https://www.guo.media/posts/257493) `2019-12-03T22:25:21`
+##
+
 **milesguo** 广播：2019/12/3郭文贵先生直播 中共在香港做的恶一定会被清算<br><br>[https://news.guo.media/cn/19643/](https://news.guo.media/cn/19643/ "https://news.guo.media/cn/19643/")
 
 [https://www.guo.media/posts/257463](https://www.guo.media/posts/257463) `2019-12-03T18:40:10`
