@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [Hong Kong]Pro-Beijing Dolls Marching Against the USA, Burning Trump’s Profile.<br><br>[https://news.guo.media/19578/](https://news.guo.media/19578/ "https://news.guo.media/19578/")
+
+[https://www.guo.media/posts/257448](https://www.guo.media/posts/257448) `2019-12-03T16:40:12`
+##
+
 **milesguo** The Farm: Current Status of Hong Kong<br><br>[https://news.guo.media/19504/](https://news.guo.media/19504/ "https://news.guo.media/19504/")
 
 [https://www.guo.media/posts/257439](https://www.guo.media/posts/257439) `2019-12-03T15:55:10`
