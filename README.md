@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 听外国人说说在中国取钱、汇钱有多难<br><br>[https://news.guo.media/cn/19595/](https://news.guo.media/cn/19595/ "https://news.guo.media/cn/19595/")
+
+[https://www.guo.media/posts/257505](https://www.guo.media/posts/257505) `2019-12-03T23:40:11`
+##
+
+**milesguo** 党内斗：中共国内蒙古自治区人大常委会原副主任邢云受贿案一审被判处死缓<br><br>[https://news.guo.media/cn/19582/](https://news.guo.media/cn/19582/ "https://news.guo.media/cn/19582/")
+
+[https://www.guo.media/posts/257503](https://www.guo.media/posts/257503) `2019-12-03T23:40:14`
+##
+
 **milesguo** 12月3日:很多战友发私信要看SNOW 的视频. !衷心的感谢所有的战友SNOW 的关心 !一切都是刚刚开始。
 
 [https://www.guo.media/posts/257501](https://www.guo.media/posts/257501) `2019-12-03T23:10:10`
