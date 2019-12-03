@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 面具先生：郭文贵先生爆料以来群魔四起妲几当道祸国殃民！<br><br>[https://news.guo.media/cn/19624/](https://news.guo.media/cn/19624/ "https://news.guo.media/cn/19624/")
+
+[https://www.guo.media/posts/257455](https://www.guo.media/posts/257455) `2019-12-03T17:40:10`
+##
+
 **milesguo** 12月3号：刚刚的为某位女战友买了几件礼物……大家猜猜这是为哪位女战友买的，一切都是刚刚开始！
 
 [https://www.guo.media/posts/257453](https://www.guo.media/posts/257453) `2019-12-03T16:55:11`
