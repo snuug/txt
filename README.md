@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【GNEWS】<br><br>China fears about food security<br><br>中国担心粮食安全问题<br><br>[https://spark.adobe.com/page/wxMSMrY7LsbFe/](https://spark.adobe.com/page/wxMSMrY7LsbFe/ "https://spark.adobe.com/page/wxMSMrY7LsbFe/")<br><br>【秘密翻译组】
+
+[https://www.guo.media/posts/257378](https://www.guo.media/posts/257378) `2019-12-03T09:25:10`
+##
+
 **milesguo** Miles Guo: Xi Jinping’s order was withdrawn. Is he in danger ?<br><br>[https://news.guo.media/19505/](https://news.guo.media/19505/ "https://news.guo.media/19505/")
 
 [https://www.guo.media/posts/257375](https://www.guo.media/posts/257375) `2019-12-03T08:55:12`
