@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 今日美国政要推文精选1202<br><br>[https://news.guo.media/cn/19434/](https://news.guo.media/cn/19434/ "https://news.guo.media/cn/19434/")
+
+[https://www.guo.media/posts/257344](https://www.guo.media/posts/257344) `2019-12-03T03:55:10`
+##
+
+**milesguo** 文字版2019年12月1日郭先生报平安直播<br><br>[https://news.guo.media/cn/19415/](https://news.guo.media/cn/19415/ "https://news.guo.media/cn/19415/")
+
+[https://www.guo.media/posts/257342](https://www.guo.media/posts/257342) `2019-12-03T03:55:14`
+##
+
 **milesguo** 中共从美元荒到美元疯<br><br>[https://news.guo.media/cn/19380/](https://news.guo.media/cn/19380/ "https://news.guo.media/cn/19380/")
 
 [https://www.guo.media/posts/257339](https://www.guo.media/posts/257339) `2019-12-03T03:25:10`
