@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月3日:很多战友发私信要看SNOW 的视频. !衷心的感谢所有的战友SNOW 的关心 !一切都是刚刚开始。
+
+[https://www.guo.media/posts/257501](https://www.guo.media/posts/257501) `2019-12-03T23:10:10`
+##
+
 **milesguo** City Wide Strike, Advertising Sector Follows<br><br>[https://news.guo.media/19665/](https://news.guo.media/19665/ "https://news.guo.media/19665/")
 
 [https://www.guo.media/posts/257497](https://www.guo.media/posts/257497) `2019-12-03T22:40:11`
