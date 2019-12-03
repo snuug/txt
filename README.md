@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 到底谁提前花了3100万美元（2亿人民币）买入看跌期权？ 押注美股下跌<br><br>[https://news.guo.media/cn/19618/](https://news.guo.media/cn/19618/ "https://news.guo.media/cn/19618/")
+
+[https://www.guo.media/posts/257429](https://www.guo.media/posts/257429) `2019-12-03T15:25:12`
+##
+
+**milesguo** 上帝与香港人同在！自由，民主，普世价值的路上并不孤单<br><br>[https://news.guo.media/cn/19554/](https://news.guo.media/cn/19554/ "https://news.guo.media/cn/19554/")
+
+[https://www.guo.media/posts/257428](https://www.guo.media/posts/257428) `2019-12-03T15:25:15`
+##
+
 **milesguo** 梁家杰大律师： 说香港警察是恐怖分子都说轻了<br><br>[https://news.guo.media/cn/19531/](https://news.guo.media/cn/19531/ "https://news.guo.media/cn/19531/")
 
 [https://www.guo.media/posts/257426](https://www.guo.media/posts/257426) `2019-12-03T15:10:11`
