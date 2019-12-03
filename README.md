@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Current Status of Hong Kong<br><br>[https://news.guo.media/19504/](https://news.guo.media/19504/ "https://news.guo.media/19504/")
+
+[https://www.guo.media/posts/257439](https://www.guo.media/posts/257439) `2019-12-03T15:55:10`
+##
+
 **milesguo** 到底谁提前花了3100万美元（2亿人民币）买入看跌期权？ 押注美股下跌<br><br>[https://news.guo.media/cn/19618/](https://news.guo.media/cn/19618/ "https://news.guo.media/cn/19618/")
 
 [https://www.guo.media/posts/257429](https://www.guo.media/posts/257429) `2019-12-03T15:25:12`
