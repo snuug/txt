@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 中共从美元荒到美元疯<br><br>[https://news.guo.media/cn/19380/](https://news.guo.media/cn/19380/ "https://news.guo.media/cn/19380/")
+
+[https://www.guo.media/posts/257339](https://www.guo.media/posts/257339) `2019-12-03T03:25:10`
+##
+
+**milesguo** 共产党掌控下的中国人，百姓生命不如草芥，当着遇难者家属的面活埋已经不是第一次了！<br><br>[https://news.guo.media/cn/19362/](https://news.guo.media/cn/19362/ "https://news.guo.media/cn/19362/")
+
+[https://www.guo.media/posts/257338](https://www.guo.media/posts/257338) `2019-12-03T03:25:14`
+##
+
+**milesguo** 习王“蛇鼠”大战已燃！“路江谈”12月2号 劲爆直播 精彩文字摘要<br><br>[https://news.guo.media/cn/19343/](https://news.guo.media/cn/19343/ "https://news.guo.media/cn/19343/")
+
+[https://www.guo.media/posts/257336](https://www.guo.media/posts/257336) `2019-12-03T03:25:17`
+##
+
 **milesguo** 小巴猪：从人口结构看中共造的孽<br><br>[https://news.guo.media/cn/19336/](https://news.guo.media/cn/19336/ "https://news.guo.media/cn/19336/")
 
 [https://www.guo.media/posts/257335](https://www.guo.media/posts/257335) `2019-12-03T02:55:10`
