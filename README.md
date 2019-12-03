@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 梁家杰大律师： 说香港警察是恐怖分子都说轻了<br><br>[https://news.guo.media/cn/19531/](https://news.guo.media/cn/19531/ "https://news.guo.media/cn/19531/")
+
+[https://www.guo.media/posts/257426](https://www.guo.media/posts/257426) `2019-12-03T15:10:11`
+##
+
+**milesguo** 突发：川普总统刚刚表示：等到2020年11月之后再和中国签贸易协议<br><br>[https://news.guo.media/cn/19625/](https://news.guo.media/cn/19625/ "https://news.guo.media/cn/19625/")
+
+[https://www.guo.media/posts/257425](https://www.guo.media/posts/257425) `2019-12-03T15:10:14`
+##
+
 **milesguo**  【GNEWS】<br><br>China fears about food security<br><br>中国担心粮食安全问题<br><br>[https://spark.adobe.com/page/wxMSMrY7LsbFe/](https://spark.adobe.com/page/wxMSMrY7LsbFe/ "https://spark.adobe.com/page/wxMSMrY7LsbFe/")<br><br>【秘密翻译组】
 
 [https://www.guo.media/posts/257378](https://www.guo.media/posts/257378) `2019-12-03T09:25:10`
