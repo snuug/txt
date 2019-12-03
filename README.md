@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月3号：刚刚的为某位女战友买了几件礼物……大家猜猜这是为哪位女战友买的，一切都是刚刚开始！
+
+[https://www.guo.media/posts/257453](https://www.guo.media/posts/257453) `2019-12-03T16:55:11`
+##
+
+**milesguo** 12月3号：暂时再见！伟大的李金山大师，我们很快会在喜马拉雅相见．多保重，一切都是刚刚开始！
+
+[https://www.guo.media/posts/257450](https://www.guo.media/posts/257450) `2019-12-03T16:55:14`
+##
+
 **milesguo** [Hong Kong]Pro-Beijing Dolls Marching Against the USA, Burning Trump’s Profile.<br><br>[https://news.guo.media/19578/](https://news.guo.media/19578/ "https://news.guo.media/19578/")
 
 [https://www.guo.media/posts/257448](https://www.guo.media/posts/257448) `2019-12-03T16:40:12`
