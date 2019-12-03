@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Xi Jinping’s order was withdrawn. Is he in danger ?<br><br>[https://news.guo.media/19505/](https://news.guo.media/19505/ "https://news.guo.media/19505/")
+
+[https://www.guo.media/posts/257375](https://www.guo.media/posts/257375) `2019-12-03T08:55:12`
+##
+
+**milesguo** 文字版2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！<br><br>[https://news.guo.media/cn/19484/](https://news.guo.media/cn/19484/ "https://news.guo.media/cn/19484/")
+
+[https://www.guo.media/posts/257374](https://www.guo.media/posts/257374) `2019-12-03T08:55:15`
+##
+
+**milesguo** 美商务部长罗斯谈中美贸易战<br><br>[https://news.guo.media/cn/19476/](https://news.guo.media/cn/19476/ "https://news.guo.media/cn/19476/")
+
+[https://www.guo.media/posts/257373](https://www.guo.media/posts/257373) `2019-12-03T08:55:18`
+##
+
+**milesguo** Gordon Chang：北京取消美国海军停靠香港是中共对自身的制裁<br><br>[https://news.guo.media/cn/19467/](https://news.guo.media/cn/19467/ "https://news.guo.media/cn/19467/")
+
+[https://www.guo.media/posts/257372](https://www.guo.media/posts/257372) `2019-12-03T08:55:21`
+##
+
+**milesguo** 女议员邝葆贤逼退港警，香港市民齐声称赞：没有投错票！<br><br>[https://news.guo.media/cn/19469/](https://news.guo.media/cn/19469/ "https://news.guo.media/cn/19469/")
+
+[https://www.guo.media/posts/257371](https://www.guo.media/posts/257371) `2019-12-03T08:55:24`
+##
+
+**milesguo** 灰衫男拍摄记者大头照，与黑衫人士起肢体冲突<br><br>[https://news.guo.media/cn/19448/](https://news.guo.media/cn/19448/ "https://news.guo.media/cn/19448/")
+
+[https://www.guo.media/posts/257370](https://www.guo.media/posts/257370) `2019-12-03T08:55:27`
+##
+
+**milesguo**  【GNEWS】<br><br>Pro-CCP? The Hong Kong Human Rights and Democracy Act of 2019 might prevent you from entering to the United States<br><br>亲共？《2019香港人权和民主法案》可能会阻止你进入美国<br><br><br>[https://spark.adobe.com/page/rYL5iUeWxryBK/](https://spark.adobe.com/page/rYL5iUeWxryBK/ "https://spark.adobe.com/page/rYL5iUeWxryBK/")<br><br><br>【秘密翻译组】<br><br><br><br><br>
+
+[https://www.guo.media/posts/257369](https://www.guo.media/posts/257369) `2019-12-03T08:55:30`
+##
+
 **milesguo**  【GNEWS】<br><br>Hainan Airlines Holding Co. , Ltd. plans to issue an amount of 1 billion yuan super & short-term commercial paper (SCP) to meet its repayment obligations, with nearly 100 billion yuan debts to be repaid<br><br>海南航空控股有限公司计划发行10亿元超短期融资券(SCP)来偿还债务，将偿还近1000亿元债务<br><br><br>[https://spark.adobe.com/page/W0MkKPKMCGTV5/](https://spark.adobe.com/page/W0MkKPKMCGTV5/ "https://spark.adobe.com/page/W0MkKPKMCGTV5/")<br><br>【秘密翻译组】<br><br><br><br><br>
 
 [https://www.guo.media/posts/257366](https://www.guo.media/posts/257366) `2019-12-03T07:55:11`
