@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 昨天文贵报平安直播之后，收到许多战友询问换汇的问题，现统一回复如下：<br>我们需要的是能够提供500万美金以上，和1000万美金以上金额的换汇方。<br>换汇方需要提供的信息：<br>1. 公司名称和联系电话<br>2. 准备换外汇的金额<br>3. 换汇的地点<br>4. 负责人名字<br>5. 是否是存续法人<br>6. 人民币的收款信息<br>7. 中国人民币的来源是否合法的证明<br>收到以上信息后，我们会提供购汇方对等的信息，包括联系人，企业信息，资金来源，人民币税后证明及相关法律文件。<br>关于见面的要求：<br>如换汇方提出需要见面，我们只有一个见面地点，对方可以派律师和有效的法人来纽约喜马拉雅大使馆见面。见面前请提供以上所有的有效身份信息和企业信息， 信息收到后我们会安排见面。<br>谢谢战友们！<br>
+
+[https://www.guo.media/posts/257654](https://www.guo.media/posts/257654) `2019-12-04T14:40:11`
+##
+
+**milesguo** 12月4号文贵报平安谈香港律政司长郑若骅被绑架回京的经过
+
+[https://www.guo.media/posts/257653](https://www.guo.media/posts/257653) `2019-12-04T14:40:16`
+##
+
 **milesguo**  【Gnews 】<br>北京重申：“两制从属于一国，要尊重中央的权力”<br>Beijing re-emphasised : "The two systems are subordinate to one country and the power of the central government must be respected”<br>[https://spark.adobe.com/page/QsT3n9R4lmJOW/](https://spark.adobe.com/page/QsT3n9R4lmJOW/ "https://spark.adobe.com/page/QsT3n9R4lmJOW/")<br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257643](https://www.guo.media/posts/257643) `2019-12-04T12:40:10`
