@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12/03/2019 Miles Guo’s Livestream Summary<br><br>[https://news.guo.media/19792/](https://news.guo.media/19792/ "https://news.guo.media/19792/")
+
+[https://www.guo.media/posts/257568](https://www.guo.media/posts/257568) `2019-12-04T04:55:10`
+##
+
+**milesguo** 03/12/2019 Miles Guo’s Livestream Summary<br><br>[https://news.guo.media/19792/](https://news.guo.media/19792/ "https://news.guo.media/19792/")
+
+[https://www.guo.media/posts/257566](https://www.guo.media/posts/257566) `2019-12-04T04:55:14`
+##
+
 **milesguo** 今日美国政要推文精选 1203<br><br>[https://news.guo.media/cn/19722/](https://news.guo.media/cn/19722/ "https://news.guo.media/cn/19722/")
 
 [https://www.guo.media/posts/257565](https://www.guo.media/posts/257565) `2019-12-04T04:40:11`
