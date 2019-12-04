@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 面具先生：郭文贵先生爆料说川普总统在弹劾门之后彻底放下包袱！<br>[https://news.guo.media/cn/20019/](https://news.guo.media/cn/20019/ "https://news.guo.media/cn/20019/")
+
+[https://www.guo.media/posts/257749](https://www.guo.media/posts/257749) `2019-12-04T23:25:10`
+##
+
+**milesguo** 大肚冰冰现身机场，难道是怀孕了？<br>[https://news.guo.media/cn/19990/](https://news.guo.media/cn/19990/ "https://news.guo.media/cn/19990/")
+
+[https://www.guo.media/posts/257748](https://www.guo.media/posts/257748) `2019-12-04T23:25:14`
+##
+
+**milesguo** 光天化日！乔装黑警当街抓捕学生<br>[https://news.guo.media/cn/19858/](https://news.guo.media/cn/19858/ "https://news.guo.media/cn/19858/")
+
+[https://www.guo.media/posts/257746](https://www.guo.media/posts/257746) `2019-12-04T23:25:19`
+##
+
+**milesguo** 浏阳烟花厂发生爆炸，目前已造成7死多伤<br>[https://news.guo.media/cn/19954/](https://news.guo.media/cn/19954/ "https://news.guo.media/cn/19954/")
+
+[https://www.guo.media/posts/257745](https://www.guo.media/posts/257745) `2019-12-04T23:25:22`
+##
+
+**milesguo** 广播：2019/12/4文贵给北京盘古投资公司和北京政泉置业公司和河南裕达酒店置业有限公司同事们发出的安全保护办法
+
+[https://www.guo.media/posts/257744](https://www.guo.media/posts/257744) `2019-12-04T23:25:25`
+##
+
 **milesguo** 受北大方正违约波及 市场担忧中国校企 半导体龙头紫光集团债券价格崩跌!<br>[https://news.guo.media/cn/19991/](https://news.guo.media/cn/19991/ "https://news.guo.media/cn/19991/")
 
 [https://www.guo.media/posts/257741](https://www.guo.media/posts/257741) `2019-12-04T21:55:11`
