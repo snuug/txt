@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Chinese intercontinental missiles training video by “Rocket Army”<br><br>[https://news.guo.media/19674/](https://news.guo.media/19674/ "https://news.guo.media/19674/")
+
+[https://www.guo.media/posts/257516](https://www.guo.media/posts/257516) `2019-12-04T00:10:11`
+##
+
 **milesguo** 有一个国家竟有这么多的世界第一！你能猜到吗？<br><br>[https://news.guo.media/cn/19597/](https://news.guo.media/cn/19597/ "https://news.guo.media/cn/19597/")
 
 [https://www.guo.media/posts/257515](https://www.guo.media/posts/257515) `2019-12-03T23:55:10`
