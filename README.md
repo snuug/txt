@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【Gnews 】<br><br>无法解决的中美贸易战<br><br>[https://spark.adobe.com/page/upcFfcZbkTgAW/](https://spark.adobe.com/page/upcFfcZbkTgAW/ "https://spark.adobe.com/page/upcFfcZbkTgAW/")<br><br><br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257608](https://www.guo.media/posts/257608) `2019-12-04T08:40:10`
+##
+
 **milesguo**  【Gnews 】<br><br>卢比奥、梅内德斯为众议院通过参议院维吾尔法案喝彩<br><br>[https://spark.adobe.com/page/ln5ImDva602WB/](https://spark.adobe.com/page/ln5ImDva602WB/ "https://spark.adobe.com/page/ln5ImDva602WB/")<br><br>【秘密翻譯組】<br>
 
 [https://www.guo.media/posts/257606](https://www.guo.media/posts/257606) `2019-12-04T08:10:10`
