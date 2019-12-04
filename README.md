@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Will CCP and the US completely break off diplomatic ties, just like North Korea?<br><br>[https://news.guo.media/19821/](https://news.guo.media/19821/ "https://news.guo.media/19821/")
+
+[https://www.guo.media/posts/257580](https://www.guo.media/posts/257580) `2019-12-04T05:25:10`
+##
+
 **milesguo** 12/03/2019 Miles Guo’s Livestream Summary<br><br>[https://news.guo.media/19792/](https://news.guo.media/19792/ "https://news.guo.media/19792/")
 
 [https://www.guo.media/posts/257568](https://www.guo.media/posts/257568) `2019-12-04T04:55:10`
