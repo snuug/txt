@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** U.K. Legislators: Remove the word “Royal” from the Royal Hong Kong Police Association<br><br>[https://news.guo.media/19802/](https://news.guo.media/19802/ "https://news.guo.media/19802/")
+
+[https://www.guo.media/posts/257601](https://www.guo.media/posts/257601) `2019-12-04T07:40:10`
+##
+
+**milesguo** 北大方正爆雷！背后的衝击波会不会是核弹级？！<br><br>[https://news.guo.media/cn/19767/](https://news.guo.media/cn/19767/ "https://news.guo.media/cn/19767/")
+
+[https://www.guo.media/posts/257600](https://www.guo.media/posts/257600) `2019-12-04T07:40:13`
+##
+
+**milesguo** 揭中共H股全流通财富洗劫和利益勾兑诡计<br><br>[https://news.guo.media/cn/19746/](https://news.guo.media/cn/19746/ "https://news.guo.media/cn/19746/") 
+
+[https://www.guo.media/posts/257598](https://www.guo.media/posts/257598) `2019-12-04T07:40:19`
+##
+
 **milesguo** 12月3日香港要闻：中共野蛮制裁NGO 公然对抗全世界文明，林郑竟问：香港市民哪方面自由受损？「人到无耻，胆自大」<br><br>[https://news.guo.media/cn/19742/](https://news.guo.media/cn/19742/ "https://news.guo.media/cn/19742/")
 
 [https://www.guo.media/posts/257597](https://www.guo.media/posts/257597) `2019-12-04T07:25:11`
