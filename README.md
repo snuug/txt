@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【Gnews 】<br>北京重申：“两制从属于一国，要尊重中央的权力”<br>Beijing re-emphasised : "The two systems are subordinate to one country and the power of the central government must be respected”<br>[https://spark.adobe.com/page/QsT3n9R4lmJOW/](https://spark.adobe.com/page/QsT3n9R4lmJOW/ "https://spark.adobe.com/page/QsT3n9R4lmJOW/")<br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257643](https://www.guo.media/posts/257643) `2019-12-04T12:40:10`
+##
+
 **milesguo**  【Gnews 】<br><br>无法解决的中美贸易战<br><br>[https://spark.adobe.com/page/upcFfcZbkTgAW/](https://spark.adobe.com/page/upcFfcZbkTgAW/ "https://spark.adobe.com/page/upcFfcZbkTgAW/")<br><br><br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257608](https://www.guo.media/posts/257608) `2019-12-04T08:40:10`
