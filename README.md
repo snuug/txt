@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Deception and Manipulation inside China’s Growing Economy – Part 3/3<br>[https://news.guo.media/19849/](https://news.guo.media/19849/ "https://news.guo.media/19849/")
+
+[https://www.guo.media/posts/257678](https://www.guo.media/posts/257678) `2019-12-04T16:25:11`
+##
+
+**milesguo** Sewage tank Collapse in Printing and Dyeing Plant in Haining, Zhejiang<br>[https://news.guo.media/19876/](https://news.guo.media/19876/ "https://news.guo.media/19876/")
+
+[https://www.guo.media/posts/257675](https://www.guo.media/posts/257675) `2019-12-04T16:25:14`
+##
+
 **milesguo** 美国商务部长罗斯12月3号接受CNBC采访谈美中贸易<br>[https://news.guo.media/cn/19943/](https://news.guo.media/cn/19943/ "https://news.guo.media/cn/19943/")
 
 [https://www.guo.media/posts/257656](https://www.guo.media/posts/257656) `2019-12-04T14:55:10`
