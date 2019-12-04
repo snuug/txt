@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo**  【GNEWS】<br><br>中大校長段崇智教授公開信<br><br>An open letter from Professors Tuan Sung-chi， Vice -chancellor of CUHK<br><br>[https://spark.adobe.com/page/12RjEppdXFUqP/](https://spark.adobe.com/page/12RjEppdXFUqP/ "https://spark.adobe.com/page/12RjEppdXFUqP/")<br><br>【秘密翻譯組】
+
+[https://www.guo.media/posts/257521](https://www.guo.media/posts/257521) `2019-12-04T00:40:10`
+##
+
+**milesguo** 重磅！技术战争进入白热化，白宫考虑将华为踢出美国银行系统<br><br>[https://news.guo.media/cn/19698/](https://news.guo.media/cn/19698/ "https://news.guo.media/cn/19698/")
+
+[https://www.guo.media/posts/257519](https://www.guo.media/posts/257519) `2019-12-04T00:40:14`
+##
+
+**milesguo** 重磅！技术战争进入白热化，白宫考虑将华为踢出美国银行系统<br><br>[https://news.guo.media/cn/19698/](https://news.guo.media/cn/19698/ "https://news.guo.media/cn/19698/")
+
+[https://www.guo.media/posts/257518](https://www.guo.media/posts/257518) `2019-12-04T00:40:17`
+##
+
 **milesguo** Chinese intercontinental missiles training video by “Rocket Army”<br><br>[https://news.guo.media/19674/](https://news.guo.media/19674/ "https://news.guo.media/19674/")
 
 [https://www.guo.media/posts/257516](https://www.guo.media/posts/257516) `2019-12-04T00:10:11`
