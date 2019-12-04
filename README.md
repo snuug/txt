@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 新疆大规模收缴哈萨克文书籍，心口相传的文化收的了吗<br><br>[https://news.guo.media/cn/19714/](https://news.guo.media/cn/19714/ "https://news.guo.media/cn/19714/")
+
+[https://www.guo.media/posts/257563](https://www.guo.media/posts/257563) `2019-12-04T04:25:10`
+##
+
+**milesguo** ＂以警治国＂的又一铁证—-一位战友的经历<br><br>[https://news.guo.media/cn/19591/](https://news.guo.media/cn/19591/ "https://news.guo.media/cn/19591/")
+
+[https://www.guo.media/posts/257562](https://www.guo.media/posts/257562) `2019-12-04T04:25:14`
+##
+
 **milesguo** 宙斯小队直播节目：<br>爱听不听 第三期 重磅嘉宾！<br>“钢铁侠对话七哥郭文贵”<br>⏰北京时间12月7日周六晚上10点30<br>爱听不听<br>爱看不看<br>爱信不信<br>爱咋滴咋滴<br>走起！<br><br>[https://youtu.be/qgZ\_UYJh9iE](https://youtu.be/qgZ_UYJh9iE "https://youtu.be/qgZ_UYJh9iE")<br><br>【MIZ】
 
 [https://www.guo.media/posts/257559](https://www.guo.media/posts/257559) `2019-12-04T04:10:11`
