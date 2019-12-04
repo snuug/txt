@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月3号：尊敬的战友们好！明天12月4号．文贵要全天出席听证会．所以明天没有直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/257530](https://www.guo.media/posts/257530) `2019-12-04T01:25:11`
+##
+
+**milesguo** 简评：华爲作爲解放军，美国怎能不往死里弄！<br><br>[https://news.guo.media/cn/19696/](https://news.guo.media/cn/19696/ "https://news.guo.media/cn/19696/")
+
+[https://www.guo.media/posts/257529](https://www.guo.media/posts/257529) `2019-12-04T01:25:14`
+##
+
 **milesguo** 右眼失明印尼记者：中枪改变人生　坚持诉讼为阻警暴重演<br><br>[https://news.guo.media/cn/19614/](https://news.guo.media/cn/19614/ "https://news.guo.media/cn/19614/")
 
 [https://www.guo.media/posts/257525](https://www.guo.media/posts/257525) `2019-12-04T01:10:10`
