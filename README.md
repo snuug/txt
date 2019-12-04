@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Warning: WhatsApp not safe in Hong Kong<br>[https://news.guo.media/20023/](https://news.guo.media/20023/ "https://news.guo.media/20023/")
+
+[https://www.guo.media/posts/257735](https://www.guo.media/posts/257735) `2019-12-04T21:10:12`
+##
+
 **milesguo** 共产党不灭，“孝”只会永远停留在嘴炮<br>[https://news.guo.media/cn/19908/](https://news.guo.media/cn/19908/ "https://news.guo.media/cn/19908/")
 
 [https://www.guo.media/posts/257694](https://www.guo.media/posts/257694) `2019-12-04T17:40:11`
