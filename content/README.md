@@ -13,6 +13,8 @@
 
 ## 頁面 1/21 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [21](/content/README-21.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
+
 [文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/2019/12/20191203-2918612896973787175.md)
 
 [文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
@@ -60,8 +62,6 @@
 [文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
 
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
-
-[文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
 
 
 ## 頁面 1/21 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [21](/content/README-21.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
