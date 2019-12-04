@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【GNEWS】<br><br>美国官员捍卫上周颁布的《香港人权与民主法》<br><br>U.S. Official Defends Hong Kong Human Rights and Democracy Act<br><br>[https://spark.adobe.com/page/CquOD9XNNUz1c/](https://spark.adobe.com/page/CquOD9XNNUz1c/ "https://spark.adobe.com/page/CquOD9XNNUz1c/")<br><br><br>【秘密翻譯組】<br>
+
+[https://www.guo.media/posts/257551](https://www.guo.media/posts/257551) `2019-12-04T03:25:11`
+##
+
 **milesguo** China slams passage of Xinjiang-related bill by US House<br><br>[https://news.guo.media/19738/](https://news.guo.media/19738/ "https://news.guo.media/19738/")
 
 [https://www.guo.media/posts/257547](https://www.guo.media/posts/257547) `2019-12-04T02:55:11`
