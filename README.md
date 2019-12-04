@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月3日香港要闻：中共野蛮制裁NGO 公然对抗全世界文明，林郑竟问：香港市民哪方面自由受损？「人到无耻，胆自大」<br><br>[https://news.guo.media/cn/19742/](https://news.guo.media/cn/19742/ "https://news.guo.media/cn/19742/")
+
+[https://www.guo.media/posts/257597](https://www.guo.media/posts/257597) `2019-12-04T07:25:11`
+##
+
 **milesguo** Miles Guo: Will CCP and the US completely break off diplomatic ties, just like North Korea?<br><br>[https://news.guo.media/19821/](https://news.guo.media/19821/ "https://news.guo.media/19821/")
 
 [https://www.guo.media/posts/257580](https://www.guo.media/posts/257580) `2019-12-04T05:25:10`
