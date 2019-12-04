@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 宙斯小队直播节目：<br>爱听不听 第三期 重磅嘉宾！<br>“钢铁侠对话七哥郭文贵”<br>⏰北京时间12月7日周六晚上10点30<br>爱听不听<br>爱看不看<br>爱信不信<br>爱咋滴咋滴<br>走起！<br><br>[https://youtu.be/qgZ\_UYJh9iE](https://youtu.be/qgZ_UYJh9iE "https://youtu.be/qgZ_UYJh9iE")<br><br>【MIZ】
+
+[https://www.guo.media/posts/257559](https://www.guo.media/posts/257559) `2019-12-04T04:10:11`
+##
+
 **milesguo** 参议员Tom Cotton猛烈抨击中共：贪欲、扩张欲、掌控欲<br><br>[https://news.guo.media/cn/19790/](https://news.guo.media/cn/19790/ "https://news.guo.media/cn/19790/")
 
 [https://www.guo.media/posts/257553](https://www.guo.media/posts/257553) `2019-12-04T03:55:11`
