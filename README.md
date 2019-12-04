@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 今日美国政要推文精选 1203<br><br>[https://news.guo.media/cn/19722/](https://news.guo.media/cn/19722/ "https://news.guo.media/cn/19722/")
+
+[https://www.guo.media/posts/257565](https://www.guo.media/posts/257565) `2019-12-04T04:40:11`
+##
+
+**milesguo** 浙江海宁一印染厂发生严重污水罐体坍塌事故<br><br>[https://news.guo.media/cn/19691/](https://news.guo.media/cn/19691/ "https://news.guo.media/cn/19691/")
+
+[https://www.guo.media/posts/257564](https://www.guo.media/posts/257564) `2019-12-04T04:40:14`
+##
+
 **milesguo** 新疆大规模收缴哈萨克文书籍，心口相传的文化收的了吗<br><br>[https://news.guo.media/cn/19714/](https://news.guo.media/cn/19714/ "https://news.guo.media/cn/19714/")
 
 [https://www.guo.media/posts/257563](https://www.guo.media/posts/257563) `2019-12-04T04:25:10`
