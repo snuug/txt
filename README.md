@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中共粮食危机有多严重？<br><br>[https://news.guo.media/cn/19852/](https://news.guo.media/cn/19852/ "https://news.guo.media/cn/19852/")
+
+[https://www.guo.media/posts/257605](https://www.guo.media/posts/257605) `2019-12-04T07:55:10`
+##
+
+**milesguo** 英国议员谏言女王夺香港皇家警察称号<br><br>[https://news.guo.media/cn/19892/](https://news.guo.media/cn/19892/ "https://news.guo.media/cn/19892/")
+
+[https://www.guo.media/posts/257604](https://www.guo.media/posts/257604) `2019-12-04T07:55:14`
+##
+
+**milesguo** U.K. Legislators: Remove the word “Royal” from the Royal Hong Kong Police Association<br><br>[https://news.guo.media/19802/](https://news.guo.media/19802/ "https://news.guo.media/19802/")
+
+[https://www.guo.media/posts/257603](https://www.guo.media/posts/257603) `2019-12-04T07:55:17`
+##
+
 **milesguo** U.K. Legislators: Remove the word “Royal” from the Royal Hong Kong Police Association<br><br>[https://news.guo.media/19802/](https://news.guo.media/19802/ "https://news.guo.media/19802/")
 
 [https://www.guo.media/posts/257601](https://www.guo.media/posts/257601) `2019-12-04T07:40:10`
