@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** China’s Ministry of Justice holds open-day event<br><br>[https://news.guo.media/19709/](https://news.guo.media/19709/ "https://news.guo.media/19709/")
+
+[https://www.guo.media/posts/257542](https://www.guo.media/posts/257542) `2019-12-04T02:25:11`
+##
+
+**milesguo** 沈阳一商住楼外墙保温材料起火，6分钟从5楼窜至25楼，中共商品房防火材料如同摆设！网友：这是谋杀<br><br>[https://news.guo.media/cn/19682/](https://news.guo.media/cn/19682/ "https://news.guo.media/cn/19682/")
+
+[https://www.guo.media/posts/257537](https://www.guo.media/posts/257537) `2019-12-04T02:25:14`
+##
+
 **milesguo** 12月3号：尊敬的战友们好！明天12月4号．文贵要全天出席听证会．所以明天没有直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/257530](https://www.guo.media/posts/257530) `2019-12-04T01:25:11`
