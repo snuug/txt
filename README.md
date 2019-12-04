@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo**  【Gnews 】<br>「香港警察的軍事化是反人道（人類）罪」<br>[https://spark.adobe.com/page/NEUa7J3O5Cf4z/](https://spark.adobe.com/page/NEUa7J3O5Cf4z/ "https://spark.adobe.com/page/NEUa7J3O5Cf4z/")<br>【戰鷹團】<br>
+
+[https://www.guo.media/posts/257751](https://www.guo.media/posts/257751) `2019-12-04T23:40:11`
+##
+
 **milesguo** 面具先生：郭文贵先生爆料说川普总统在弹劾门之后彻底放下包袱！<br>[https://news.guo.media/cn/20019/](https://news.guo.media/cn/20019/ "https://news.guo.media/cn/20019/")
 
 [https://www.guo.media/posts/257749](https://www.guo.media/posts/257749) `2019-12-04T23:25:10`
