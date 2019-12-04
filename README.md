@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 蛇鼠一窝？伊朗俄罗斯和中国将于12月27日举行海军演习<br>[https://news.guo.media/cn/19974/](https://news.guo.media/cn/19974/ "https://news.guo.media/cn/19974/")
+
+[https://www.guo.media/posts/257738](https://www.guo.media/posts/257738) `2019-12-04T21:25:10`
+##
+
+**milesguo** Miles Guo: The Secretary for Justice of Hong Kong Teresa Chang was forced to return to Hong Kong from London<br>[https://news.guo.media/20029/](https://news.guo.media/20029/ "https://news.guo.media/20029/")
+
+[https://www.guo.media/posts/257737](https://www.guo.media/posts/257737) `2019-12-04T21:25:13`
+##
+
 **milesguo** Warning: WhatsApp not safe in Hong Kong<br>[https://news.guo.media/20023/](https://news.guo.media/20023/ "https://news.guo.media/20023/")
 
 [https://www.guo.media/posts/257735](https://www.guo.media/posts/257735) `2019-12-04T21:10:12`
