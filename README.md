@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 右眼失明印尼记者：中枪改变人生　坚持诉讼为阻警暴重演<br><br>[https://news.guo.media/cn/19614/](https://news.guo.media/cn/19614/ "https://news.guo.media/cn/19614/")
+
+[https://www.guo.media/posts/257525](https://www.guo.media/posts/257525) `2019-12-04T01:10:10`
+##
+
 **milesguo**  【GNEWS】<br><br>中大校長段崇智教授公開信<br><br>An open letter from Professors Tuan Sung-chi， Vice -chancellor of CUHK<br><br>[https://spark.adobe.com/page/12RjEppdXFUqP/](https://spark.adobe.com/page/12RjEppdXFUqP/ "https://spark.adobe.com/page/12RjEppdXFUqP/")<br><br>【秘密翻譯組】
 
 [https://www.guo.media/posts/257521](https://www.guo.media/posts/257521) `2019-12-04T00:40:10`
