@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 受北大方正违约波及 市场担忧中国校企 半导体龙头紫光集团债券价格崩跌!<br>[https://news.guo.media/cn/19991/](https://news.guo.media/cn/19991/ "https://news.guo.media/cn/19991/")
+
+[https://www.guo.media/posts/257741](https://www.guo.media/posts/257741) `2019-12-04T21:55:11`
+##
+
+**milesguo** 对冲基金经理凯尔·巴斯（Kyle Bass）支持限制世界银行对中国贷款的法案<br>[https://news.guo.media/cn/20003/](https://news.guo.media/cn/20003/ "https://news.guo.media/cn/20003/")
+
+[https://www.guo.media/posts/257740](https://www.guo.media/posts/257740) `2019-12-04T21:55:14`
+##
+
+**milesguo** 蛇鼠一窝？伊朗俄罗斯和中国将于12月27日举行海军演习<br>[https://news.guo.media/cn/19974/](https://news.guo.media/cn/19974/ "https://news.guo.media/cn/19974/")
+
+[https://www.guo.media/posts/257739](https://www.guo.media/posts/257739) `2019-12-04T21:55:17`
+##
+
 **milesguo** 蛇鼠一窝？伊朗俄罗斯和中国将于12月27日举行海军演习<br>[https://news.guo.media/cn/19974/](https://news.guo.media/cn/19974/ "https://news.guo.media/cn/19974/")
 
 [https://www.guo.media/posts/257738](https://www.guo.media/posts/257738) `2019-12-04T21:25:10`
