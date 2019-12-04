@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 共产党不灭，“孝”只会永远停留在嘴炮<br>[https://news.guo.media/cn/19908/](https://news.guo.media/cn/19908/ "https://news.guo.media/cn/19908/")
+
+[https://www.guo.media/posts/257694](https://www.guo.media/posts/257694) `2019-12-04T17:40:11`
+##
+
+**milesguo** Lego版《荣光》，香港人的集体抗争和荣耀<br>[https://news.guo.media/cn/19886/](https://news.guo.media/cn/19886/ "https://news.guo.media/cn/19886/")
+
+[https://www.guo.media/posts/257693](https://www.guo.media/posts/257693) `2019-12-04T17:40:14`
+##
+
+**milesguo** 中国不让美舰停靠香港 美学者：提高美舰增加访台意愿 航母可能停靠台湾<br>[https://news.guo.media/cn/19848/](https://news.guo.media/cn/19848/ "https://news.guo.media/cn/19848/")
+
+[https://www.guo.media/posts/257692](https://www.guo.media/posts/257692) `2019-12-04T17:40:17`
+##
+
 **milesguo** State leader Li Zhanshu tells HK to learn from Macau<br>[https://news.guo.media/19942/](https://news.guo.media/19942/ "https://news.guo.media/19942/")
 
 [https://www.guo.media/posts/257691](https://www.guo.media/posts/257691) `2019-12-04T17:25:11`
