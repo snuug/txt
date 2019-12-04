@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** State leader Li Zhanshu tells HK to learn from Macau<br>[https://news.guo.media/19942/](https://news.guo.media/19942/ "https://news.guo.media/19942/")
+
+[https://www.guo.media/posts/257691](https://www.guo.media/posts/257691) `2019-12-04T17:25:11`
+##
+
+**milesguo** Fake News Disseminated by Pro-Beijing Group<br>[https://news.guo.media/19956/](https://news.guo.media/19956/ "https://news.guo.media/19956/")
+
+[https://www.guo.media/posts/257690](https://www.guo.media/posts/257690) `2019-12-04T17:25:14`
+##
+
+**milesguo** TikTok sued for transferring US user data to China<br>[https://news.guo.media/19891/](https://news.guo.media/19891/ "https://news.guo.media/19891/")
+
+[https://www.guo.media/posts/257688](https://www.guo.media/posts/257688) `2019-12-04T17:25:17`
+##
+
 **milesguo** Deception and Manipulation inside China’s Growing Economy – Part 3/3<br>[https://news.guo.media/19849/](https://news.guo.media/19849/ "https://news.guo.media/19849/")
 
 [https://www.guo.media/posts/257678](https://www.guo.media/posts/257678) `2019-12-04T16:25:11`
