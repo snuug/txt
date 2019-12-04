@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 参议员Tom Cotton猛烈抨击中共：贪欲、扩张欲、掌控欲<br><br>[https://news.guo.media/cn/19790/](https://news.guo.media/cn/19790/ "https://news.guo.media/cn/19790/")
+
+[https://www.guo.media/posts/257553](https://www.guo.media/posts/257553) `2019-12-04T03:55:11`
+##
+
 **milesguo**  【GNEWS】<br><br>美国官员捍卫上周颁布的《香港人权与民主法》<br><br>U.S. Official Defends Hong Kong Human Rights and Democracy Act<br><br>[https://spark.adobe.com/page/CquOD9XNNUz1c/](https://spark.adobe.com/page/CquOD9XNNUz1c/ "https://spark.adobe.com/page/CquOD9XNNUz1c/")<br><br><br>【秘密翻譯組】<br>
 
 [https://www.guo.media/posts/257551](https://www.guo.media/posts/257551) `2019-12-04T03:25:11`
