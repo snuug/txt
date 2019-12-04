@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** China slams passage of Xinjiang-related bill by US House<br><br>[https://news.guo.media/19738/](https://news.guo.media/19738/ "https://news.guo.media/19738/")
+
+[https://www.guo.media/posts/257547](https://www.guo.media/posts/257547) `2019-12-04T02:55:11`
+##
+
 **milesguo** China’s Ministry of Justice holds open-day event<br><br>[https://news.guo.media/19709/](https://news.guo.media/19709/ "https://news.guo.media/19709/")
 
 [https://www.guo.media/posts/257542](https://www.guo.media/posts/257542) `2019-12-04T02:25:11`
