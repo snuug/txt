@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 今日美国政要推文精选1204<br>[https://news.guo.media/zh-hans/45109/](https://news.guo.media/zh-hans/45109/ "https://news.guo.media/zh-hans/45109/")
+
+[https://www.guo.media/posts/257818](https://www.guo.media/posts/257818) `2019-12-05T08:55:11`
+##
+
 **milesguo** 【Gnews】<br>全球制裁:澳加入美对中共的制裁联盟<br>Global sanction: Australia joins US sanction alliance on CCP<br>[https://spark.adobe.com/page/LXdSJtzEnlIYy/](https://spark.adobe.com/page/LXdSJtzEnlIYy/ "https://spark.adobe.com/page/LXdSJtzEnlIYy/")<br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257809](https://www.guo.media/posts/257809) `2019-12-05T08:10:10`
