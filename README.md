@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Sen. Marsha Blackburn: US supporting pro-democracy movement in Hong Kong<br>[https://news.guo.media/45544/](https://news.guo.media/45544/ "https://news.guo.media/45544/")
+
+[https://www.guo.media/posts/257899](https://www.guo.media/posts/257899) `2019-12-05T15:10:11`
+##
+
 **milesguo** China’s FM: 911 attacks are still fresh in memory. We warn the US to not forget about how painful that was for you.<br>[https://news.guo.media/45460/](https://news.guo.media/45460/ "https://news.guo.media/45460/")
 
 [https://www.guo.media/posts/257893](https://www.guo.media/posts/257893) `2019-12-05T14:55:11`
