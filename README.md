@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 英国电信商Three选择爱立信替代华为5G<br>[https://news.guo.media/zh-hans/45648/](https://news.guo.media/zh-hans/45648/ "https://news.guo.media/zh-hans/45648/")
+
+[https://www.guo.media/posts/257911](https://www.guo.media/posts/257911) `2019-12-05T15:55:12`
+##
+
 **milesguo** 12月5号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/257908](https://www.guo.media/posts/257908) `2019-12-05T15:25:11`
