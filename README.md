@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 华中农业大学外国语学院老师因为反送中示威者辩护遭学生举报！<br>[https://news.guo.media/zh-hans/45235/](https://news.guo.media/zh-hans/45235/ "https://news.guo.media/zh-hans/45235/")
+
+[https://www.guo.media/posts/257938](https://www.guo.media/posts/257938) `2019-12-05T19:25:10`
+##
+
 **milesguo** 文字版2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法<br>[https://news.guo.media/zh-hans/45839/](https://news.guo.media/zh-hans/45839/ "https://news.guo.media/zh-hans/45839/")
 
 [https://www.guo.media/posts/257936](https://www.guo.media/posts/257936) `2019-12-05T18:55:11`
