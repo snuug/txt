@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法<br>[https://news.guo.media/zh-hans/45839/](https://news.guo.media/zh-hans/45839/ "https://news.guo.media/zh-hans/45839/")
+
+[https://www.guo.media/posts/257936](https://www.guo.media/posts/257936) `2019-12-05T18:55:11`
+##
+
+**milesguo** 广播：2019/12/5文贵报平安！火鸡龚在美国国会到底有啥本事！<br>[https://news.guo.media/zh-hans/45843/](https://news.guo.media/zh-hans/45843/ "https://news.guo.media/zh-hans/45843/")
+
+[https://www.guo.media/posts/257935](https://www.guo.media/posts/257935) `2019-12-05T18:55:14`
+##
+
+**milesguo** 参议员玛莎·布莱克本：美国支持香港的民主运动<br>[https://news.guo.media/zh-hans/45626/](https://news.guo.media/zh-hans/45626/ "https://news.guo.media/zh-hans/45626/")
+
+[https://www.guo.media/posts/257934](https://www.guo.media/posts/257934) `2019-12-05T18:55:17`
+##
+
+**milesguo** 中共开始清算郑若骅? 郑若骅丈夫潘乐陶任主席安乐工程　旗下全资子公司涉违反竞争法被搜查!<br>[https://news.guo.media/zh-hans/45856/](https://news.guo.media/zh-hans/45856/ "https://news.guo.media/zh-hans/45856/")
+
+[https://www.guo.media/posts/257933](https://www.guo.media/posts/257933) `2019-12-05T18:55:20`
+##
+
+**milesguo** 美国家安全专家惠顿 中国不守信 我们已经失去耐心<br>[https://news.guo.media/zh-hans/45568/](https://news.guo.media/zh-hans/45568/ "https://news.guo.media/zh-hans/45568/")
+
+[https://www.guo.media/posts/257932](https://www.guo.media/posts/257932) `2019-12-05T18:55:22`
+##
+
 **milesguo** 12月4号麦康奈尔：很自豪几十年来都和香港站在一块<br>[https://news.guo.media/zh-hans/45500/](https://news.guo.media/zh-hans/45500/ "https://news.guo.media/zh-hans/45500/")
 
 [https://www.guo.media/posts/257929](https://www.guo.media/posts/257929) `2019-12-05T18:25:12`
