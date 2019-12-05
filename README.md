@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 台湾区块链平台媒体《大师链》 落地北京配合中共区块链战略 渗透台湾进行意识统战<br>[https://news.guo.media/zh-hans/46020/](https://news.guo.media/zh-hans/46020/ "https://news.guo.media/zh-hans/46020/")
+
+[https://www.guo.media/posts/257943](https://www.guo.media/posts/257943) `2019-12-05T19:55:12`
+##
+
 **milesguo** 面具先生：郭文贵先生爆料郑若骅被“送终”共产党开始在香港问题上找替罪羊<br>[https://news.guo.media/zh-hans/46029/](https://news.guo.media/zh-hans/46029/ "https://news.guo.media/zh-hans/46029/")
 
 [https://www.guo.media/posts/257941](https://www.guo.media/posts/257941) `2019-12-05T19:40:10`
