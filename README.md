@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 12月4号麦康奈尔：很自豪几十年来都和香港站在一块<br>[https://news.guo.media/zh-hans/45500/](https://news.guo.media/zh-hans/45500/ "https://news.guo.media/zh-hans/45500/")
+
+[https://www.guo.media/posts/257929](https://www.guo.media/posts/257929) `2019-12-05T18:25:12`
+##
+
+**milesguo** 使用政府推广的“清洁煤”取暖，河北多地村民发生一氧化碳中毒死亡事件，年龄最小仅13岁<br>[https://news.guo.media/zh-hans/45428/](https://news.guo.media/zh-hans/45428/ "https://news.guo.media/zh-hans/45428/")
+
+[https://www.guo.media/posts/257928](https://www.guo.media/posts/257928) `2019-12-05T18:25:15`
+##
+
+**milesguo** 凯尔巴斯 我们不应该与中国这种违反人权的国家有交集<br>[https://news.guo.media/zh-hans/45505/](https://news.guo.media/zh-hans/45505/ "https://news.guo.media/zh-hans/45505/")
+
+[https://www.guo.media/posts/257927](https://www.guo.media/posts/257927) `2019-12-05T18:25:18`
+##
+
+**milesguo** 无情的中共国，中共必灭<br>[https://news.guo.media/zh-hans/45600/](https://news.guo.media/zh-hans/45600/ "https://news.guo.media/zh-hans/45600/")
+
+[https://www.guo.media/posts/257926](https://www.guo.media/posts/257926) `2019-12-05T18:25:20`
+##
+
+**milesguo** 建制派死保林郑！弹劾特首议案遭否决<br>[https://news.guo.media/zh-hans/45591/](https://news.guo.media/zh-hans/45591/ "https://news.guo.media/zh-hans/45591/")
+
+[https://www.guo.media/posts/257924](https://www.guo.media/posts/257924) `2019-12-05T18:25:26`
+##
+
 **milesguo** 12月5号：尊敬的战友们好．后天12月7号上午9:30开始．文贵接受钢铁侠的访谈，为了增加MIZ的订阅量，🙏🙏🙏请战友们订阅MIZ频道．大家只能一起到MIZ频道观看！郭媒体不直播不转播……🙏🙏🙏🌹🌹🌹👉👇👉👉👉[https://youtu.be/qgZ\_UYJh9iE一切都是刚刚开始！](https://youtu.be/qgZ_UYJh9iE一切都是刚刚开始！ "https://youtu.be/qgZ_UYJh9iE一切都是刚刚开始！")
 
 [https://www.guo.media/posts/257915](https://www.guo.media/posts/257915) `2019-12-05T16:40:12`
