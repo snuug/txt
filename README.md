@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** China’s FM: 911 attacks are still fresh in memory. We warn the US to not forget about how painful that was for you.<br>[https://news.guo.media/45460/](https://news.guo.media/45460/ "https://news.guo.media/45460/")
+
+[https://www.guo.media/posts/257893](https://www.guo.media/posts/257893) `2019-12-05T14:55:11`
+##
+
+**milesguo** 04/12/2019 Miles Guo’s Livestream Summary<br>[https://news.guo.media/45360/](https://news.guo.media/45360/ "https://news.guo.media/45360/")
+
+[https://www.guo.media/posts/257892](https://www.guo.media/posts/257892) `2019-12-05T14:55:16`
+##
+
+**milesguo** 【Gnews】<br>逃亡台湾的香港示威者，他们的未来在哪里？<br>What is the future of Hong Kong Anti Extradition Law protesters who fleeing to Taiwan?<br>[https://spark.adobe.com/page/emcc4bK6NGUgo/](https://spark.adobe.com/page/emcc4bK6NGUgo/ "https://spark.adobe.com/page/emcc4bK6NGUgo/")<br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257890](https://www.guo.media/posts/257890) `2019-12-05T14:55:18`
+##
+
 **milesguo** 【Gnews】<br>贸易战仅仅是刚刚开始<br>The trade war is just the beginning<br>[https://spark.adobe.com/page/XIYZC318LVI2G/](https://spark.adobe.com/page/XIYZC318LVI2G/ "https://spark.adobe.com/page/XIYZC318LVI2G/")<br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257874](https://www.guo.media/posts/257874) `2019-12-05T13:10:11`
