@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 面具先生：郭文贵先生爆料郑若骅被“送终”共产党开始在香港问题上找替罪羊<br>[https://news.guo.media/zh-hans/46029/](https://news.guo.media/zh-hans/46029/ "https://news.guo.media/zh-hans/46029/")
+
+[https://www.guo.media/posts/257941](https://www.guo.media/posts/257941) `2019-12-05T19:40:10`
+##
+
+**milesguo** 【香港网报】第十六期墙纸：回首，向前！<br>[https://news.guo.media/zh-hans/45929/](https://news.guo.media/zh-hans/45929/ "https://news.guo.media/zh-hans/45929/")
+
+[https://www.guo.media/posts/257940](https://www.guo.media/posts/257940) `2019-12-05T19:40:13`
+##
+
+**milesguo** 维吾尔人权法案的通过，将预示着中美进入“准脱钩”状态<br>[https://news.guo.media/zh-hans/45911/](https://news.guo.media/zh-hans/45911/ "https://news.guo.media/zh-hans/45911/")
+
+[https://www.guo.media/posts/257939](https://www.guo.media/posts/257939) `2019-12-05T19:40:16`
+##
+
 **milesguo** 华中农业大学外国语学院老师因为反送中示威者辩护遭学生举报！<br>[https://news.guo.media/zh-hans/45235/](https://news.guo.media/zh-hans/45235/ "https://news.guo.media/zh-hans/45235/")
 
 [https://www.guo.media/posts/257938](https://www.guo.media/posts/257938) `2019-12-05T19:25:10`
