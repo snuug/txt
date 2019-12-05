@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月4日：全球自动灭共．共产党以假治国的最好证据……路江博的访谈节目太棒了[https://youtu.be/UjyHsi3Abkk](https://youtu.be/UjyHsi3Abkk "https://youtu.be/UjyHsi3Abkk") 👏👏👏天赐给爆料的大礼物……军事专家博先生……路．江．博．这个节目真的会救那些我们当傻兵农民的孩子……一切都是刚刚开始！
+
+[https://www.guo.media/posts/257776](https://www.guo.media/posts/257776) `2019-12-05T03:10:10`
+##
+
 **milesguo** Stop World Bank funding for China’s global hegemony & belt-and-road<br>[https://news.guo.media/20033/](https://news.guo.media/20033/ "https://news.guo.media/20033/")
 
 [https://www.guo.media/posts/257764](https://www.guo.media/posts/257764) `2019-12-05T01:10:12`
