@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>华盛顿时报 比尔.格茨 12月3日:<br>叛逃者：中国从香港窃取美国武器和军事技术<br>[https://spark.adobe.com/page/rbrwF8lSgl3m4/](https://spark.adobe.com/page/rbrwF8lSgl3m4/ "https://spark.adobe.com/page/rbrwF8lSgl3m4/")<br>（王立强提供的更多中共情报组织细节，以及有关李源潮，乐视，李克强，p2p等内容曝光）<br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257847](https://www.guo.media/posts/257847) `2019-12-05T11:40:11`
+##
+
 **milesguo** 港律政司长伦敦受伤后至北京治疗 郭文贵爆：是被中共绑架回京<br>[https://news.guo.media/zh-hans/45361/](https://news.guo.media/zh-hans/45361/ "https://news.guo.media/zh-hans/45361/")
 
 [https://www.guo.media/posts/257835](https://www.guo.media/posts/257835) `2019-12-05T09:40:11`
@@ -950,145 +955,5 @@
 **milesguo** 2019年11月30日文贵报平安视频
 
 [https://www.guo.media/posts/256738](https://www.guo.media/posts/256738) `2019-11-30T15:55:11`
-##
-
-**milesguo**  【翻譯】<br><br>路透社11月29日: 獨家報道：美國將出台新規進一步限制華為的供貨商<br><br>[https://spark.adobe.com/page/KXE5fA2us7FWJ/](https://spark.adobe.com/page/KXE5fA2us7FWJ/ "https://spark.adobe.com/page/KXE5fA2us7FWJ/")<br><br>【秘密翻譯組】<br><br>
-
-[https://www.guo.media/posts/256718](https://www.guo.media/posts/256718) `2019-11-30T10:55:11`
-##
-
-**milesguo**  【翻译】<br><br>华盛顿时报11月29日: 特朗普将告诉北约增加国防开支，抵制中国的影响<br><br>[https://spark.adobe.com/page/SHDTQ1LtKGzM6/](https://spark.adobe.com/page/SHDTQ1LtKGzM6/ "https://spark.adobe.com/page/SHDTQ1LtKGzM6/")<br><br>【秘密翻译组】<br>
-
-[https://www.guo.media/posts/256717](https://www.guo.media/posts/256717) `2019-11-30T10:25:11`
-##
-
-**milesguo** Sasha Gong smears Miles Guo and the Rule of Law Foundation<br><br>[https://news.guo.media/18392/](https://news.guo.media/18392/ "https://news.guo.media/18392/")
-
-[https://www.guo.media/posts/256715](https://www.guo.media/posts/256715) `2019-11-30T09:55:10`
-##
-
-**milesguo** 受中共邪恶政权蛊惑收买 中国自以为的外馆数量超越美国 这3年跟台湾断交的国家现在惨况<br><br>[https://news.guo.media/cn/18337/](https://news.guo.media/cn/18337/ "https://news.guo.media/cn/18337/")
-
-[https://www.guo.media/posts/256710](https://www.guo.media/posts/256710) `2019-11-30T09:40:10`
-##
-
-**milesguo**  【翻译】<br><br>路透社11月29日: 中国在北极的推进中混合着军事与科学——丹麦<br><br>[https://spark.adobe.com/page/fo4Sgr0HeMhhx/](https://spark.adobe.com/page/fo4Sgr0HeMhhx/ "https://spark.adobe.com/page/fo4Sgr0HeMhhx/")<br><br><br>【秘密翻译组】<br><br>
-
-[https://www.guo.media/posts/256705](https://www.guo.media/posts/256705) `2019-11-30T09:25:10`
-##
-
-**milesguo** 中共在北极科考的双重目的<br><br>[https://news.guo.media/cn/18301/](https://news.guo.media/cn/18301/ "https://news.guo.media/cn/18301/")
-
-[https://www.guo.media/posts/256677](https://www.guo.media/posts/256677) `2019-11-30T08:10:10`
-##
-
-**milesguo** 美中贸易谈判关键时刻 川普将在北约峰会上谈中国威胁<br><br>[https://news.guo.media/cn/18315/](https://news.guo.media/cn/18315/ "https://news.guo.media/cn/18315/")
-
-[https://www.guo.media/posts/256666](https://www.guo.media/posts/256666) `2019-11-30T07:25:10`
-##
-
-**milesguo** 章家敦访谈：其实整个国家都挺身支持那些香港的民主力量<br><br>[https://news.guo.media/cn/18308/](https://news.guo.media/cn/18308/ "https://news.guo.media/cn/18308/")
-
-[https://www.guo.media/posts/256663](https://www.guo.media/posts/256663) `2019-11-30T07:25:13`
-##
-
-**milesguo** 危险!港警拟恢复使用木弹 威力强可射断脚 命中头部可致命!<br><br>[https://news.guo.media/cn/18311/](https://news.guo.media/cn/18311/ "https://news.guo.media/cn/18311/")
-
-[https://www.guo.media/posts/256662](https://www.guo.media/posts/256662) `2019-11-30T07:10:10`
-##
-
-**milesguo** Chinese military​ sends threatening messages to Hong Kong<br><br>[https://news.guo.media/18297/](https://news.guo.media/18297/ "https://news.guo.media/18297/")
-
-[https://www.guo.media/posts/256656](https://www.guo.media/posts/256656) `2019-11-30T06:10:11`
-##
-
-**milesguo** China Merchants​ Bank halts oversea fund transfer on Dec 2nd. Announcement got removed<br><br>[https://news.guo.media/18206/](https://news.guo.media/18206/ "https://news.guo.media/18206/")
-
-[https://www.guo.media/posts/256647](https://www.guo.media/posts/256647) `2019-11-30T05:40:10`
-##
-
-**milesguo** 【中英双语版】<br><br>贺龄乐老师留给文贵的临终遗言<br><br>The last words from Wengui‘s teacher — He Lingle<br><br>[https://spark.adobe.com/page/3gZ8v31z0l1Ir/](https://spark.adobe.com/page/3gZ8v31z0l1Ir/ "https://spark.adobe.com/page/3gZ8v31z0l1Ir/")<br><br>【秘密翻译组】
-
-[https://www.guo.media/posts/256645](https://www.guo.media/posts/256645) `2019-11-30T05:25:10`
-##
-
-**milesguo** 11月29日：尊敬的战友们好！明天11月30日．星期六．文贵不直播，因为今天有点小激动……怕明天在视频前丢人现眼掉眼泪💧……这几天比较受刺激，除了那【尸白的火鸡】还有很多大事正在发生中……又收到香港朋友寄来的老照片……心脏有点小起伏……请战友们原谅🙏🙏🙏一切都是刚刚开始！
-
-[https://www.guo.media/posts/256638](https://www.guo.media/posts/256638) `2019-11-30T04:25:11`
-##
-
-**milesguo** 11月29日香港要闻：香港人权法执行前，疯警图升级火力镇压，伪独立检讨委员会形同虚设，蒙面恶法借尸还魂<br><br>[https://news.guo.media/cn/18243/](https://news.guo.media/cn/18243/ "https://news.guo.media/cn/18243/")
-
-[https://www.guo.media/posts/256622](https://www.guo.media/posts/256622) `2019-11-30T03:40:10`
-##
-
-**milesguo** 11月28日广东省茂名市化州县文楼林场修建火葬场镇压村民目前最新情况<br><br>[https://news.guo.media/cn/18232/](https://news.guo.media/cn/18232/ "https://news.guo.media/cn/18232/")
-
-[https://www.guo.media/posts/256620](https://www.guo.media/posts/256620) `2019-11-30T03:40:13`
-##
-
-**milesguo** 11月29日：今天收到了过去同事发给我的……我的人生中最重要的导师之一，贺龄乐先生临终前写给我的遗言……和他为我整理的几十年与我在一起时的多幅照片……人生与什么人在一起能交什么朋友。这是最最重要的……感恩上天让我能和这些伟大的人在一起，才能让郭文贵这个草根……100%的农民．走向一个对社会有贡献的特别人生的旅程……而不是行尸走肉．纸醉金迷的腐烂人生🙏🙏🙏🙏🙏🙏🙏🙏🙏😭😭😭😭😭😭😭😭😭😭😭照片中有裕达国贸第一任行政总裁约翰．陈先生……以及我的宗教．信仰．建筑的导师……台北的李祖原先生……在1991年我在郑州签署裕达合同时……在洛杉矶西来寺……澳大利亚．与同事……以及裕达试开业时照片……感慨万千……这个世界时间是最公平的裁判…………更重要的是自己的良知……和知行合一的能力．与结果……我深信上天对任何一个人的行为都会有记录……民心不可欺．天意不可违……更重要的是自己的致良知……就是不能欺骗自己……一切都是刚刚开始！
-
-[https://www.guo.media/posts/256619](https://www.guo.media/posts/256619) `2019-11-30T03:40:16`
-##
-
-**milesguo**  【翻译】<br><br>华盛顿时报 比尔格茨 11月24日: 五角大楼加紧终结中国军事控制太空的“梦想”<br><br>[https://spark.adobe.com/page/wiqGKjzwMXl0j/](https://spark.adobe.com/page/wiqGKjzwMXl0j/ "https://spark.adobe.com/page/wiqGKjzwMXl0j/")<br><br><br>【秘密翻译组】<br><br>
-
-[https://www.guo.media/posts/256605](https://www.guo.media/posts/256605) `2019-11-30T02:10:10`
-##
-
-**milesguo** TikTok is brainwashing young people in the free world<br><br>[https://news.guo.media/18214/](https://news.guo.media/18214/ "https://news.guo.media/18214/")
-
-[https://www.guo.media/posts/256592](https://www.guo.media/posts/256592) `2019-11-30T00:10:10`
-##
-
-**milesguo** 小巴猪：中国对外证券投资大部分在美国香港<br><br>[https://news.guo.media/cn/18184/](https://news.guo.media/cn/18184/ "https://news.guo.media/cn/18184/")
-
-[https://www.guo.media/posts/256585](https://www.guo.media/posts/256585) `2019-11-29T23:10:11`
-##
-
-**milesguo** 德国总理默克尔议会上公开为中共站台<br><br>[https://news.guo.media/cn/18189/](https://news.guo.media/cn/18189/ "https://news.guo.media/cn/18189/")
-
-[https://www.guo.media/posts/256584](https://www.guo.media/posts/256584) `2019-11-29T22:55:10`
-##
-
-**milesguo** 抖音上关于新疆真相的传播，中共和大外宣不能再欺骗下去<br><br>[https://news.guo.media/cn/18137/](https://news.guo.media/cn/18137/ "https://news.guo.media/cn/18137/")
-
-[https://www.guo.media/posts/256582](https://www.guo.media/posts/256582) `2019-11-29T22:55:13`
-##
-
-**milesguo** 中国军人来看看：川普总统在阿富汗的感恩节，美军就是来消灭恐怖分子的<br><br>[https://news.guo.media/cn/18148/](https://news.guo.media/cn/18148/ "https://news.guo.media/cn/18148/")
-
-[https://www.guo.media/posts/256578](https://www.guo.media/posts/256578) `2019-11-29T22:25:10`
-##
-
-**milesguo** 声援理大反对围捕集会！急救员讲述示威学生被打头破血流下颚见骨<br><br>[https://news.guo.media/cn/18127/](https://news.guo.media/cn/18127/ "https://news.guo.media/cn/18127/")
-
-[https://www.guo.media/posts/256576](https://www.guo.media/posts/256576) `2019-11-29T21:40:10`
-##
-
-**milesguo** 龚小夏女士为何谎话连篇？<br><br>[https://news.guo.media/cn/17916/](https://news.guo.media/cn/17916/ "https://news.guo.media/cn/17916/")
-
-[https://www.guo.media/posts/256573](https://www.guo.media/posts/256573) `2019-11-29T20:25:11`
-##
-
-**milesguo** 爆料革命是中国历史进程的幸运拐点（第二部分）<br><br>[https://news.guo.media/cn/18041/](https://news.guo.media/cn/18041/ "https://news.guo.media/cn/18041/")
-
-[https://www.guo.media/posts/256571](https://www.guo.media/posts/256571) `2019-11-29T20:10:10`
-##
-
-**milesguo** 佩罗西关于签署《香港人权与民主法案》的声明<br><br>[https://news.guo.media/cn/17982/](https://news.guo.media/cn/17982/ "https://news.guo.media/cn/17982/")
-
-[https://www.guo.media/posts/256562](https://www.guo.media/posts/256562) `2019-11-29T19:10:10`
-##
-
-**milesguo** 小巴猪：中美第一阶段协议都有啥？为啥签不成<br><br>[https://news.guo.media/cn/17858/](https://news.guo.media/cn/17858/ "https://news.guo.media/cn/17858/")
-
-[https://www.guo.media/posts/256560](https://www.guo.media/posts/256560) `2019-11-29T19:10:13`
-##
-
-**milesguo** 11月29号：尊敬的战友们好你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播……一切都是刚刚开始。！
-
-[https://www.guo.media/posts/256535](https://www.guo.media/posts/256535) `2019-11-29T15:25:11`
 ##
 
