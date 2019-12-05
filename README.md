@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Gnews】<br>全球制裁:澳加入美对中共的制裁联盟<br>Global sanction: Australia joins US sanction alliance on CCP<br>[https://spark.adobe.com/page/LXdSJtzEnlIYy/](https://spark.adobe.com/page/LXdSJtzEnlIYy/ "https://spark.adobe.com/page/LXdSJtzEnlIYy/")<br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257809](https://www.guo.media/posts/257809) `2019-12-05T08:10:10`
+##
+
 **milesguo** 12月4日：全球自动灭共．共产党以假治国的最好证据……路江博的访谈节目太棒了[https://youtu.be/UjyHsi3Abkk](https://youtu.be/UjyHsi3Abkk "https://youtu.be/UjyHsi3Abkk") 👏👏👏天赐给爆料的大礼物……军事专家博先生……路．江．博．这个节目真的会救那些我们当傻兵农民的孩子……一切都是刚刚开始！
 
 [https://www.guo.media/posts/257776](https://www.guo.media/posts/257776) `2019-12-05T03:10:10`
