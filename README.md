@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Stop World Bank funding for China’s global hegemony & belt-and-road<br>[https://news.guo.media/20033/](https://news.guo.media/20033/ "https://news.guo.media/20033/")
+
+[https://www.guo.media/posts/257764](https://www.guo.media/posts/257764) `2019-12-05T01:10:12`
+##
+
 **milesguo** 批香港特首林郑渎职　香港泛民立法会议员提案 弹劾林郑月娥「送她安心上路」<br>[https://news.guo.media/cn/20025/](https://news.guo.media/cn/20025/ "https://news.guo.media/cn/20025/")
 
 [https://www.guo.media/posts/257762](https://www.guo.media/posts/257762) `2019-12-05T00:55:11`
