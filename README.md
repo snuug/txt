@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月5号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？一切都是刚刚开始！
+
+[https://www.guo.media/posts/257908](https://www.guo.media/posts/257908) `2019-12-05T15:25:11`
+##
+
 **milesguo** Sen. Marsha Blackburn: US supporting pro-democracy movement in Hong Kong<br>[https://news.guo.media/45544/](https://news.guo.media/45544/ "https://news.guo.media/45544/")
 
 [https://www.guo.media/posts/257899](https://www.guo.media/posts/257899) `2019-12-05T15:10:11`
