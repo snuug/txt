@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Gnews】<br>贸易战仅仅是刚刚开始<br>The trade war is just the beginning<br>[https://spark.adobe.com/page/XIYZC318LVI2G/](https://spark.adobe.com/page/XIYZC318LVI2G/ "https://spark.adobe.com/page/XIYZC318LVI2G/")<br>【秘密翻译组】<br>
+
+[https://www.guo.media/posts/257874](https://www.guo.media/posts/257874) `2019-12-05T13:10:11`
+##
+
 **milesguo** 【翻译】<br>华盛顿时报 比尔.格茨 12月3日:<br>叛逃者：中国从香港窃取美国武器和军事技术<br>[https://spark.adobe.com/page/rbrwF8lSgl3m4/](https://spark.adobe.com/page/rbrwF8lSgl3m4/ "https://spark.adobe.com/page/rbrwF8lSgl3m4/")<br>（王立强提供的更多中共情报组织细节，以及有关李源潮，乐视，李克强，p2p等内容曝光）<br>【秘密翻译组】<br>
 
 [https://www.guo.media/posts/257847](https://www.guo.media/posts/257847) `2019-12-05T11:40:11`
