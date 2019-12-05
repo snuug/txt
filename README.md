@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 低级警暴是被当椅子，高级岂不是要掉头<br>[https://news.guo.media/zh-hans/45256/](https://news.guo.media/zh-hans/45256/ "https://news.guo.media/zh-hans/45256/")
+
+[https://www.guo.media/posts/257828](https://www.guo.media/posts/257828) `2019-12-05T09:25:11`
+##
+
+**milesguo** 低级警暴是被当椅子，高级岂不是要掉头<br>[https://news.guo.media/zh-hans/45256/](https://news.guo.media/zh-hans/45256/ "https://news.guo.media/zh-hans/45256/")
+
+[https://www.guo.media/posts/257827](https://www.guo.media/posts/257827) `2019-12-05T09:25:14`
+##
+
 **milesguo** 今日美国政要推文精选1204<br>[https://news.guo.media/zh-hans/45109/](https://news.guo.media/zh-hans/45109/ "https://news.guo.media/zh-hans/45109/")
 
 [https://www.guo.media/posts/257818](https://www.guo.media/posts/257818) `2019-12-05T08:55:11`
