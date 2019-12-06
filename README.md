@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 共党暴徒 小粉红在香港烧川普头像 踩踏美国国旗<br>[https://news.guo.media/zh-hans/46609/](https://news.guo.media/zh-hans/46609/ "https://news.guo.media/zh-hans/46609/")
+
+[https://www.guo.media/posts/258119](https://www.guo.media/posts/258119) `2019-12-06T16:55:10`
+##
+
 **milesguo** 海航公募债宣布停牌<br>[https://news.guo.media/zh-hans/46567/](https://news.guo.media/zh-hans/46567/ "https://news.guo.media/zh-hans/46567/")
 
 [https://www.guo.media/posts/258115](https://www.guo.media/posts/258115) `2019-12-06T16:40:11`
