@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 战友爆料接龙，路德继核内幕私信又接中共芯片内幕！是真是假？<br>[https://news.guo.media/zh-hans/46480/](https://news.guo.media/zh-hans/46480/ "https://news.guo.media/zh-hans/46480/") 
+
+[https://www.guo.media/posts/258057](https://www.guo.media/posts/258057) `2019-12-06T08:25:10`
+##
+
 **milesguo** 12月05日 美国政要推文精选<br>[https://news.guo.media/zh-hans/46317/](https://news.guo.media/zh-hans/46317/ "https://news.guo.media/zh-hans/46317/")
 
 [https://www.guo.media/posts/258044](https://www.guo.media/posts/258044) `2019-12-06T06:55:11`
