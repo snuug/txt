@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月6日：文贵报平安直播．关于如何进行人民币和美元的大额交易……台湾，香港……．法案……全球联合灭共等等……和无线网络对人大脑子，上海，一切都是刚刚开始！
+
+[https://www.guo.media/posts/258099](https://www.guo.media/posts/258099) `2019-12-06T15:10:11`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/258097](https://www.guo.media/posts/258097) `2019-12-06T14:40:14`
