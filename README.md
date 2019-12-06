@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月6号：尊敬的战友们好文贵马上开始今天的报平安直播！。宙斯小队与文贵先生连线访谈直播节目：MIZ 👉👉[https://www.youtube.com/watch?v=qgZ\_UYJh9iE。请在这个频道观看，为了增加该频道的订阅和关注度．郭媒体．将不直播不转播！](https://www.youtube.com/watch?v=qgZ_UYJh9iE。请在这个频道观看，为了增加该频道的订阅和关注度．郭媒体．将不直播不转播！ "https://www.youtube.com/watch?v=qgZ_UYJh9iE。请在这个频道观看，为了增加该频道的订阅和关注度．郭媒体．将不直播不转播！")<br>“钢铁侠对话七哥郭文贵”聊家常．聊人生．聊爱情．聊赚钱的．幸福聊天．和幸福灭共的无所不聊的．无聊节目！<br>⏰北京时间12月7日，纽约时间12月7日上午9:30．周六晚上10点30😻😻😻✊✊✊<br>[https://www.youtube.com/watch?v=qgZ\_UYJh9iE](https://www.youtube.com/watch?v=qgZ_UYJh9iE "https://www.youtube.com/watch?v=qgZ_UYJh9iE")
+
+[https://www.guo.media/posts/258093](https://www.guo.media/posts/258093) `2019-12-06T14:25:11`
+##
+
 **milesguo** 「小五说」中共一旦触犯“香港人权法案”，将会带来的后果。<br>[https://news.guo.media/zh-hans/46448/](https://news.guo.media/zh-hans/46448/ "https://news.guo.media/zh-hans/46448/")
 
 [https://www.guo.media/posts/258065](https://www.guo.media/posts/258065) `2019-12-06T08:55:12`
