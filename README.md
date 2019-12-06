@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共全球作恶 世界为其买单<br>[https://news.guo.media/zh-hans/46248/](https://news.guo.media/zh-hans/46248/ "https://news.guo.media/zh-hans/46248/")
+
+[https://www.guo.media/posts/258025](https://www.guo.media/posts/258025) `2019-12-06T05:40:11`
+##
+
 **milesguo** 来自中共的表彰！何君尧获中国政法大学名誉博士学位<br>[https://news.guo.media/zh-hans/46249/](https://news.guo.media/zh-hans/46249/ "https://news.guo.media/zh-hans/46249/")
 
 [https://www.guo.media/posts/258020](https://www.guo.media/posts/258020) `2019-12-06T05:25:10`
