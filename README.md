@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月6日香港发生三起非正常死亡事件<br>[https://news.guo.media/zh-hans/46784/](https://news.guo.media/zh-hans/46784/ "https://news.guo.media/zh-hans/46784/")
+
+[https://www.guo.media/posts/258197](https://www.guo.media/posts/258197) `2019-12-06T22:40:11`
+##
+
 **milesguo** Far From The Truth: Police Pirate Photo and Distort Fact in Promotional Material<br>[https://news.guo.media/46664/](https://news.guo.media/46664/ "https://news.guo.media/46664/")
 
 [https://www.guo.media/posts/258196](https://www.guo.media/posts/258196) `2019-12-06T22:25:10`
