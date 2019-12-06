@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “Trash the White House” by China Central Television & People’s Daily<br>[https://news.guo.media/46160/](https://news.guo.media/46160/ "https://news.guo.media/46160/")
+
+[https://www.guo.media/posts/257982](https://www.guo.media/posts/257982) `2019-12-06T01:10:10`
+##
+
 **milesguo** 惊奇！神秘人给路德写私信告密中共核武器真相，是真是假？<br>[https://news.guo.media/zh-hans/46187/](https://news.guo.media/zh-hans/46187/ "https://news.guo.media/zh-hans/46187/")
 
 [https://www.guo.media/posts/257980](https://www.guo.media/posts/257980) `2019-12-06T00:55:10`
