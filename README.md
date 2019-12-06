@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Far From The Truth: Police Pirate Photo and Distort Fact in Promotional Material<br>[https://news.guo.media/46664/](https://news.guo.media/46664/ "https://news.guo.media/46664/")
+
+[https://www.guo.media/posts/258196](https://www.guo.media/posts/258196) `2019-12-06T22:25:10`
+##
+
+**milesguo** HNA Public Offering Bond issuance suspension<br>[https://news.guo.media/46660/](https://news.guo.media/46660/ "https://news.guo.media/46660/")
+
+[https://www.guo.media/posts/258194](https://www.guo.media/posts/258194) `2019-12-06T22:25:13`
+##
+
+**milesguo** Over 600 Hong Kong residents arrested in the mainland in the first 10 months of 2019<br>[https://news.guo.media/45663/](https://news.guo.media/45663/ "https://news.guo.media/45663/")
+
+[https://www.guo.media/posts/258192](https://www.guo.media/posts/258192) `2019-12-06T22:25:16`
+##
+
+**milesguo** CCP: The U.S. Launches Double Standard Against Terrorism<br>[https://news.guo.media/46507/](https://news.guo.media/46507/ "https://news.guo.media/46507/")
+
+[https://www.guo.media/posts/258190](https://www.guo.media/posts/258190) `2019-12-06T22:25:19`
+##
+
+**milesguo** The Communist Leaders to Tighten Internet Media Restriction Next Year<br>[https://news.guo.media/46595/](https://news.guo.media/46595/ "https://news.guo.media/46595/")
+
+[https://www.guo.media/posts/258189](https://www.guo.media/posts/258189) `2019-12-06T22:25:22`
+##
+
 **milesguo** 共党暴徒 小粉红在香港烧川普头像 踩踏美国国旗<br>[https://news.guo.media/zh-hans/46609/](https://news.guo.media/zh-hans/46609/ "https://news.guo.media/zh-hans/46609/")
 
 [https://www.guo.media/posts/258119](https://www.guo.media/posts/258119) `2019-12-06T16:55:10`
