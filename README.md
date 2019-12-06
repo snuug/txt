@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 致香港手足書，香港手足加油！<br>[https://news.guo.media/zh-hant/46388/](https://news.guo.media/zh-hant/46388/ "https://news.guo.media/zh-hant/46388/")
+
+[https://www.guo.media/posts/258041](https://www.guo.media/posts/258041) `2019-12-06T06:40:11`
+##
+
+**milesguo** 致香港手足書，香港手足加油！<br>[https://news.guo.media/zh-hant/46388/](https://news.guo.media/zh-hant/46388/ "https://news.guo.media/zh-hant/46388/")
+
+[https://www.guo.media/posts/258038](https://www.guo.media/posts/258038) `2019-12-06T06:40:14`
+##
+
+**milesguo** 中国的金融体系已经面临崩溃的边缘（第一部分）<br>[https://news.guo.media/zh-hans/46286/](https://news.guo.media/zh-hans/46286/ "https://news.guo.media/zh-hans/46286/")
+
+[https://www.guo.media/posts/258037](https://www.guo.media/posts/258037) `2019-12-06T06:40:17`
+##
+
 **milesguo** 中国的金融体系已经面临崩溃的边缘（第一部分）<br>[https://news.guo.media/zh-hans/46286/](https://news.guo.media/zh-hans/46286/ "https://news.guo.media/zh-hans/46286/")
 
 [https://www.guo.media/posts/258028](https://www.guo.media/posts/258028) `2019-12-06T06:10:11`
