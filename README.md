@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国的金融体系已经面临崩溃的边缘（第一部分）<br>[https://news.guo.media/zh-hans/46286/](https://news.guo.media/zh-hans/46286/ "https://news.guo.media/zh-hans/46286/")
+
+[https://www.guo.media/posts/258028](https://www.guo.media/posts/258028) `2019-12-06T06:10:11`
+##
+
 **milesguo** 中共全球作恶 世界为其买单<br>[https://news.guo.media/zh-hans/46248/](https://news.guo.media/zh-hans/46248/ "https://news.guo.media/zh-hans/46248/")
 
 [https://www.guo.media/posts/258025](https://www.guo.media/posts/258025) `2019-12-06T05:40:11`
