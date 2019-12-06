@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 惊奇！神秘人给路德写私信告密中共核武器真相，是真是假？<br>[https://news.guo.media/zh-hans/46187/](https://news.guo.media/zh-hans/46187/ "https://news.guo.media/zh-hans/46187/")
+
+[https://www.guo.media/posts/257980](https://www.guo.media/posts/257980) `2019-12-06T00:55:10`
+##
+
+**milesguo** 斯伯丁将军 带你详细了解什么是5G. 以及中共控制了5G 可以做什么<br>[https://news.guo.media/zh-hans/46176/](https://news.guo.media/zh-hans/46176/ "https://news.guo.media/zh-hans/46176/")
+
+[https://www.guo.media/posts/257979](https://www.guo.media/posts/257979) `2019-12-06T00:55:13`
+##
+
+**milesguo** 提防中共债务转移收割韭菜<br>[https://news.guo.media/zh-hans/46127/](https://news.guo.media/zh-hans/46127/ "https://news.guo.media/zh-hans/46127/")
+
+[https://www.guo.media/posts/257977](https://www.guo.media/posts/257977) `2019-12-06T00:55:16`
+##
+
+**milesguo** 提防中共债务转移收割韭菜<br>[https://news.guo.media/zh-hans/46127/](https://news.guo.media/zh-hans/46127/ "https://news.guo.media/zh-hans/46127/")
+
+[https://www.guo.media/posts/257973](https://www.guo.media/posts/257973) `2019-12-06T00:55:19`
+##
+
 **milesguo** 台湾区块链平台媒体《大师链》 落地北京配合中共区块链战略 渗透台湾进行意识统战<br>[https://news.guo.media/zh-hans/46020/](https://news.guo.media/zh-hans/46020/ "https://news.guo.media/zh-hans/46020/")
 
 [https://www.guo.media/posts/257943](https://www.guo.media/posts/257943) `2019-12-05T19:55:12`
