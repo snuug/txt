@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 美军舰停靠台湾声浪四起 中官媒嚣张「共机能掠过总统府」台回击就开战! 郭文贵先生5月预告美舰停靠台湾将成真?<br>[https://news.guo.media/zh-hans/46523/](https://news.guo.media/zh-hans/46523/ "https://news.guo.media/zh-hans/46523/")
+
+[https://www.guo.media/posts/258105](https://www.guo.media/posts/258105) `2019-12-06T15:55:11`
+##
+
+**milesguo** 美籍影星刘亦菲在推特发布自己电影新海报遭到抵制<br>[https://news.guo.media/zh-hans/46546/](https://news.guo.media/zh-hans/46546/ "https://news.guo.media/zh-hans/46546/")
+
+[https://www.guo.media/posts/258104](https://www.guo.media/posts/258104) `2019-12-06T15:55:14`
+##
+
+**milesguo** 力反「代理人法」后　台商组织再对《反渗透法》发动攻势 强力阻挡立法 假保护言论自由之名 替中共辩护之实<br>[https://news.guo.media/zh-hans/46477/](https://news.guo.media/zh-hans/46477/ "https://news.guo.media/zh-hans/46477/")
+
+[https://www.guo.media/posts/258103](https://www.guo.media/posts/258103) `2019-12-06T15:55:17`
+##
+
 **milesguo** 12月6日：文贵报平安直播．关于如何进行人民币和美元的大额交易……台湾，香港……．法案……全球联合灭共等等……和无线网络对人大脑子，上海，一切都是刚刚开始！
 
 [https://www.guo.media/posts/258099](https://www.guo.media/posts/258099) `2019-12-06T15:10:11`
