@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月05日 美国政要推文精选<br>[https://news.guo.media/zh-hans/46317/](https://news.guo.media/zh-hans/46317/ "https://news.guo.media/zh-hans/46317/")
+
+[https://www.guo.media/posts/258044](https://www.guo.media/posts/258044) `2019-12-06T06:55:11`
+##
+
 **milesguo** 致香港手足書，香港手足加油！<br>[https://news.guo.media/zh-hant/46388/](https://news.guo.media/zh-hant/46388/ "https://news.guo.media/zh-hant/46388/")
 
 [https://www.guo.media/posts/258041](https://www.guo.media/posts/258041) `2019-12-06T06:40:11`
