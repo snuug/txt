@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 来自中共的表彰！何君尧获中国政法大学名誉博士学位<br>[https://news.guo.media/zh-hans/46249/](https://news.guo.media/zh-hans/46249/ "https://news.guo.media/zh-hans/46249/")
+
+[https://www.guo.media/posts/258020](https://www.guo.media/posts/258020) `2019-12-06T05:25:10`
+##
+
+**milesguo** Motion to impeach HK CE Carrie Lam rejected by pro-Beijing camp<br>[https://news.guo.media/46279/](https://news.guo.media/46279/ "https://news.guo.media/46279/")
+
+[https://www.guo.media/posts/258019](https://www.guo.media/posts/258019) `2019-12-06T05:25:14`
+##
+
+**milesguo** 党媒大外宣，二招走遍天下－－－假和骗！<br>[https://news.guo.media/zh-hans/46247/](https://news.guo.media/zh-hans/46247/ "https://news.guo.media/zh-hans/46247/")
+
+[https://www.guo.media/posts/258018](https://www.guo.media/posts/258018) `2019-12-06T05:25:17`
+##
+
 **milesguo** 小巴猪：中共先利用房企借美元，然后完美收割<br>[https://news.guo.media/zh-hans/46203/](https://news.guo.media/zh-hans/46203/ "https://news.guo.media/zh-hans/46203/")
 
 [https://www.guo.media/posts/257989](https://www.guo.media/posts/257989) `2019-12-06T01:40:10`
