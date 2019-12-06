@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 「小五说」中共一旦触犯“香港人权法案”，将会带来的后果。<br>[https://news.guo.media/zh-hans/46448/](https://news.guo.media/zh-hans/46448/ "https://news.guo.media/zh-hans/46448/")
+
+[https://www.guo.media/posts/258065](https://www.guo.media/posts/258065) `2019-12-06T08:55:12`
+##
+
 **milesguo** 战友爆料接龙，路德继核内幕私信又接中共芯片内幕！是真是假？<br>[https://news.guo.media/zh-hans/46480/](https://news.guo.media/zh-hans/46480/ "https://news.guo.media/zh-hans/46480/") 
 
 [https://www.guo.media/posts/258057](https://www.guo.media/posts/258057) `2019-12-06T08:25:10`
