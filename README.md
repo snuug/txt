@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中共先利用房企借美元，然后完美收割<br>[https://news.guo.media/zh-hans/46203/](https://news.guo.media/zh-hans/46203/ "https://news.guo.media/zh-hans/46203/")
+
+[https://www.guo.media/posts/257989](https://www.guo.media/posts/257989) `2019-12-06T01:40:10`
+##
+
+**milesguo** The CCP is on the verge of collapse. Iran, Turkey, North Korea are bound to snap<br>[https://news.guo.media/46112/](https://news.guo.media/46112/ "https://news.guo.media/46112/")
+
+[https://www.guo.media/posts/257988](https://www.guo.media/posts/257988) `2019-12-06T01:40:13`
+##
+
+**milesguo** Huawei’s Most Difficult Time Are Soon to Come<br>[https://news.guo.media/45930/](https://news.guo.media/45930/ "https://news.guo.media/45930/")
+
+[https://www.guo.media/posts/257985](https://www.guo.media/posts/257985) `2019-12-06T01:40:16`
+##
+
 **milesguo** “Trash the White House” by China Central Television & People’s Daily<br>[https://news.guo.media/46160/](https://news.guo.media/46160/ "https://news.guo.media/46160/")
 
 [https://www.guo.media/posts/257982](https://www.guo.media/posts/257982) `2019-12-06T01:10:10`
