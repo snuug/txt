@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 海航公募债宣布停牌<br>[https://news.guo.media/zh-hans/46567/](https://news.guo.media/zh-hans/46567/ "https://news.guo.media/zh-hans/46567/")
+
+[https://www.guo.media/posts/258115](https://www.guo.media/posts/258115) `2019-12-06T16:40:11`
+##
+
 **milesguo** 美军舰停靠台湾声浪四起 中官媒嚣张「共机能掠过总统府」台回击就开战! 郭文贵先生5月预告美舰停靠台湾将成真?<br>[https://news.guo.media/zh-hans/46523/](https://news.guo.media/zh-hans/46523/ "https://news.guo.media/zh-hans/46523/")
 
 [https://www.guo.media/posts/258105](https://www.guo.media/posts/258105) `2019-12-06T15:55:11`
