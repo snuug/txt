@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 12月7号．应很多战友的要求，随手拍了几张今天和钢铁侠直播后的几张照片，给战友们分享，衷心的感谢战友们的关心🙏🙏🙏🙏🙏🙏文贵在这献丑了一切都是刚刚开始！【三】
+
+[https://www.guo.media/posts/258392](https://www.guo.media/posts/258392) `2019-12-07T19:40:11`
+##
+
+**milesguo** 12月7号．应很多战友的要求，随手拍了几张今天和钢铁侠直播后的几张照片，给战友们分享，衷心的感谢战友们的关心🙏🙏🙏🙏🙏🙏文贵在这献丑了一切都是刚刚开始！【二】
+
+[https://www.guo.media/posts/258391](https://www.guo.media/posts/258391) `2019-12-07T19:40:14`
+##
+
+**milesguo** 12月7号．应很多战友的要求，随手拍了几张今天和钢铁侠直播后的几张照片，给战友们分享，衷心的感谢战友们的关心🙏🙏🙏🙏🙏🙏文贵在这献丑了一切都是刚刚开始！【一】
+
+[https://www.guo.media/posts/258389](https://www.guo.media/posts/258389) `2019-12-07T19:40:17`
+##
+
+**milesguo** Company of Justice Chief’s Husband Under Investigation<br>[https://news.guo.media/47569/](https://news.guo.media/47569/ "https://news.guo.media/47569/")
+
+[https://www.guo.media/posts/258384](https://www.guo.media/posts/258384) `2019-12-07T19:40:20`
+##
+
+**milesguo** Donald Trump pressured the World Bank not to loan money to Communist China<br>[https://news.guo.media/47599/](https://news.guo.media/47599/ "https://news.guo.media/47599/")
+
+[https://www.guo.media/posts/258383](https://www.guo.media/posts/258383) `2019-12-07T19:40:23`
+##
+
 **milesguo** New HKSAR Police Chief will take ‘hard and soft’ approaches against protesters<br>[https://news.guo.media/47551/](https://news.guo.media/47551/ "https://news.guo.media/47551/")
 
 [https://www.guo.media/posts/258382](https://www.guo.media/posts/258382) `2019-12-07T19:25:10`
