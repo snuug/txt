@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共邪恶的教育体制<br>[https://news.guo.media/zh-hans/47683/](https://news.guo.media/zh-hans/47683/ "https://news.guo.media/zh-hans/47683/")
+
+[https://www.guo.media/posts/258429](https://www.guo.media/posts/258429) `2019-12-07T23:40:12`
+##
+
+**milesguo** 川普呼吁世界银行停止给中国贷款<br>[https://news.guo.media/zh-hans/47664/](https://news.guo.media/zh-hans/47664/ "https://news.guo.media/zh-hans/47664/")
+
+[https://www.guo.media/posts/258427](https://www.guo.media/posts/258427) `2019-12-07T23:40:15`
+##
+
+**milesguo** 2019年12月7日 郭文贵先生报平安音频 谈帮助美国的朋友第一次完成了2700万美元和国内人民币的1比10的汇率！兑换！共享火鸡龚.造谣诽谤.对我们法治基金造成的实质的伤害<br>[https://news.guo.media/zh-hans/47618/](https://news.guo.media/zh-hans/47618/ "https://news.guo.media/zh-hans/47618/")
+
+[https://www.guo.media/posts/258425](https://www.guo.media/posts/258425) `2019-12-07T23:40:18`
+##
+
+**milesguo** 共产党疯了向美国亮剑，澳门扣留美国商会会长2小时！<br>[https://news.guo.media/zh-hans/47580/](https://news.guo.media/zh-hans/47580/ "https://news.guo.media/zh-hans/47580/")
+
+[https://www.guo.media/posts/258424](https://www.guo.media/posts/258424) `2019-12-07T23:40:21`
+##
+
 **milesguo** 【打脸】2020年全面实现小康社会<br>[https://news.guo.media/zh-hans/47541/](https://news.guo.media/zh-hans/47541/ "https://news.guo.media/zh-hans/47541/")
 
 [https://www.guo.media/posts/258422](https://www.guo.media/posts/258422) `2019-12-07T23:25:10`
