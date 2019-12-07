@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP Fighting Its Own Issues Of Conduct, Integrity And Corruption Along With Plunging Economy<br>[https://news.guo.media/46823/](https://news.guo.media/46823/ "https://news.guo.media/46823/")
+
+[https://www.guo.media/posts/258226](https://www.guo.media/posts/258226) `2019-12-07T01:25:11`
+##
+
 **milesguo** 12月6日香港发生三起非正常死亡事件<br>[https://news.guo.media/zh-hans/46784/](https://news.guo.media/zh-hans/46784/ "https://news.guo.media/zh-hans/46784/")
 
 [https://www.guo.media/posts/258197](https://www.guo.media/posts/258197) `2019-12-06T22:40:11`
