@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 【打脸】2020年全面实现小康社会<br>[https://news.guo.media/zh-hans/47541/](https://news.guo.media/zh-hans/47541/ "https://news.guo.media/zh-hans/47541/")
+
+[https://www.guo.media/posts/258422](https://www.guo.media/posts/258422) `2019-12-07T23:25:10`
+##
+
+**milesguo** 章家敦：世界银行在用美国纳税人的钱资助中共的军队<br>[https://news.guo.media/zh-hans/47508/](https://news.guo.media/zh-hans/47508/ "https://news.guo.media/zh-hans/47508/")
+
+[https://www.guo.media/posts/258421](https://www.guo.media/posts/258421) `2019-12-07T23:25:14`
+##
+
+**milesguo** 佛山突发山火，愿受灾民众平安无事！<br>[https://news.guo.media/zh-hans/47478/](https://news.guo.media/zh-hans/47478/ "https://news.guo.media/zh-hans/47478/")
+
+[https://www.guo.media/posts/258420](https://www.guo.media/posts/258420) `2019-12-07T23:25:16`
+##
+
+**milesguo** 台湾人将地下通道变成支持香港反送中的连农墙<br>[https://news.guo.media/zh-hans/47449/](https://news.guo.media/zh-hans/47449/ "https://news.guo.media/zh-hans/47449/")
+
+[https://www.guo.media/posts/258419](https://www.guo.media/posts/258419) `2019-12-07T23:25:19`
+##
+
+**milesguo** 面具先生：郭文贵先生石破天惊爆出中国将出现下一个袁世凯和华盛顿<br>[https://news.guo.media/zh-hans/47435/](https://news.guo.media/zh-hans/47435/ "https://news.guo.media/zh-hans/47435/")
+
+[https://www.guo.media/posts/258418](https://www.guo.media/posts/258418) `2019-12-07T23:25:22`
+##
+
 **milesguo** 12月7号．应很多战友的要求，随手拍了几张今天和钢铁侠直播后的几张照片，给战友们分享，衷心的感谢战友们的关心🙏🙏🙏🙏🙏🙏文贵在这献丑了一切都是刚刚开始！【三】
 
 [https://www.guo.media/posts/258392](https://www.guo.media/posts/258392) `2019-12-07T19:40:11`
