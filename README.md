@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [China]Debt crisis at Founder company akin to a nuclear disaster on company financials<br>[https://news.guo.media/47419/](https://news.guo.media/47419/ "https://news.guo.media/47419/")
+
+[https://www.guo.media/posts/258374](https://www.guo.media/posts/258374) `2019-12-07T19:10:10`
+##
+
 **milesguo** 12月7号：文贵报平安直播.尊敬的战友们好.共享下我机工火鸡龚.造谣诽谤.对我们法治基金造成的实质的伤害，.我们将让啊。她赔偿所有的损失！今天我们帮助美国的朋友第一次完成了2700万美元和国内人民币的一笔10的汇率！兑换！爆料革命将拯救更多在共产党控制的国内被伤害被欺骗被威胁的朋友们！一切，都是刚刚开始！
 
 [https://www.guo.media/posts/258335](https://www.guo.media/posts/258335) `2019-12-07T13:40:11`
