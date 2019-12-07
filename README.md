@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 评：韩国立案调查小粉红<br>[https://news.guo.media/zh-hans/47148/](https://news.guo.media/zh-hans/47148/ "https://news.guo.media/zh-hans/47148/")
+
+[https://www.guo.media/posts/258277](https://www.guo.media/posts/258277) `2019-12-07T04:55:11`
+##
+
+**milesguo** 小巴猪：中共如何逼农民买房子？<br>[https://news.guo.media/zh-hans/47060/](https://news.guo.media/zh-hans/47060/ "https://news.guo.media/zh-hans/47060/")
+
+[https://www.guo.media/posts/258276](https://www.guo.media/posts/258276) `2019-12-07T04:55:14`
+##
+
 **milesguo** 【Gnews】<br>美参议员给国际奥委会的信，敦促2022冬奥会主办国中国维护人权<br>[https://spark.adobe.com/page/KFxk90Yva3LNE/](https://spark.adobe.com/page/KFxk90Yva3LNE/ "https://spark.adobe.com/page/KFxk90Yva3LNE/")<br>【秘密翻译组】
 
 [https://www.guo.media/posts/258269](https://www.guo.media/posts/258269) `2019-12-07T03:55:11`
