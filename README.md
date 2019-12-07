@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月7号：<br>尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？文贵马上在这里报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/258320](https://www.guo.media/posts/258320) `2019-12-07T12:40:12`
+##
+
 **milesguo** Miles Guo: Sooner or later the US aircraft carriers will go to Taiwan and all kinds of forces will be there<br>[https://news.guo.media/47334/](https://news.guo.media/47334/ "https://news.guo.media/47334/")
 
 [https://www.guo.media/posts/258299](https://www.guo.media/posts/258299) `2019-12-07T08:25:12`
