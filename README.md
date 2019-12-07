@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 草根系统性分析共产党的体制所造成的中国社会生态<br>[https://news.guo.media/zh-hans/47147/](https://news.guo.media/zh-hans/47147/ "https://news.guo.media/zh-hans/47147/")
+
+[https://www.guo.media/posts/258278](https://www.guo.media/posts/258278) `2019-12-07T05:10:13`
+##
+
 **milesguo** 评：韩国立案调查小粉红<br>[https://news.guo.media/zh-hans/47148/](https://news.guo.media/zh-hans/47148/ "https://news.guo.media/zh-hans/47148/")
 
 [https://www.guo.media/posts/258277](https://www.guo.media/posts/258277) `2019-12-07T04:55:11`
