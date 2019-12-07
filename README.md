@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中国的金融体系已经面临崩溃的边缘（第二部分）<br>[https://news.guo.media/zh-hans/46892/](https://news.guo.media/zh-hans/46892/ "https://news.guo.media/zh-hans/46892/")
+
+[https://www.guo.media/posts/258265](https://www.guo.media/posts/258265) `2019-12-07T03:40:11`
+##
+
+**milesguo** 葵青区众志成城抗警暴！民不畏死，奈何以死惧之<br>[https://news.guo.media/zh-hans/46866/](https://news.guo.media/zh-hans/46866/ "https://news.guo.media/zh-hans/46866/")
+
+[https://www.guo.media/posts/258264](https://www.guo.media/posts/258264) `2019-12-07T03:40:15`
+##
+
+**milesguo** 海外华人该如何应对小粉红的威胁<br>[https://news.guo.media/zh-hans/46843/](https://news.guo.media/zh-hans/46843/ "https://news.guo.media/zh-hans/46843/")
+
+[https://www.guo.media/posts/258263](https://www.guo.media/posts/258263) `2019-12-07T03:40:18`
+##
+
+**milesguo** 12月5日香港要闻：郭文贵爆料，郑若骅被送中「作茧自缚」，立会提弹劾林郑，被质询内地扣押港人，李家超厚颜无耻狡辩<br>[https://news.guo.media/zh-hans/46841/](https://news.guo.media/zh-hans/46841/ "https://news.guo.media/zh-hans/46841/")
+
+[https://www.guo.media/posts/258262](https://www.guo.media/posts/258262) `2019-12-07T03:40:21`
+##
+
 **milesguo** CCP Fighting Its Own Issues Of Conduct, Integrity And Corruption Along With Plunging Economy<br>[https://news.guo.media/46823/](https://news.guo.media/46823/ "https://news.guo.media/46823/")
 
 [https://www.guo.media/posts/258226](https://www.guo.media/posts/258226) `2019-12-07T01:25:11`
