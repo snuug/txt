@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: CCP Espionage and Spycraft: The Infiltration of Global Institutions<br>[https://news.guo.media/46845/](https://news.guo.media/46845/ "https://news.guo.media/46845/")
+
+[https://www.guo.media/posts/258281](https://www.guo.media/posts/258281) `2019-12-07T05:55:10`
+##
+
 **milesguo** 草根系统性分析共产党的体制所造成的中国社会生态<br>[https://news.guo.media/zh-hans/47147/](https://news.guo.media/zh-hans/47147/ "https://news.guo.media/zh-hans/47147/")
 
 [https://www.guo.media/posts/258278](https://www.guo.media/posts/258278) `2019-12-07T05:10:13`
