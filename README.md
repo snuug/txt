@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 大肚“范爷”冰冰，惊现美国“华人月子之都”！为何？<br>[https://news.guo.media/zh-hans/47149/](https://news.guo.media/zh-hans/47149/ "https://news.guo.media/zh-hans/47149/")
+
+[https://www.guo.media/posts/258282](https://www.guo.media/posts/258282) `2019-12-07T06:55:11`
+##
+
 **milesguo** The Farm: CCP Espionage and Spycraft: The Infiltration of Global Institutions<br>[https://news.guo.media/46845/](https://news.guo.media/46845/ "https://news.guo.media/46845/")
 
 [https://www.guo.media/posts/258281](https://www.guo.media/posts/258281) `2019-12-07T05:55:10`
