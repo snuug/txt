@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Sooner or later the US aircraft carriers will go to Taiwan and all kinds of forces will be there<br>[https://news.guo.media/47334/](https://news.guo.media/47334/ "https://news.guo.media/47334/")
+
+[https://www.guo.media/posts/258299](https://www.guo.media/posts/258299) `2019-12-07T08:25:12`
+##
+
+**milesguo** 12月8日国际人权日游行文宣片隆重上线！<br>[https://news.guo.media/zh-hans/47384/](https://news.guo.media/zh-hans/47384/ "https://news.guo.media/zh-hans/47384/")
+
+[https://www.guo.media/posts/258298](https://www.guo.media/posts/258298) `2019-12-07T08:25:15`
+##
+
+**milesguo** 中国猪瘟祸及全球 粮农组织：食品价格涨幅18％飙2年来新高!<br>[https://news.guo.media/zh-hans/47374/](https://news.guo.media/zh-hans/47374/ "https://news.guo.media/zh-hans/47374/")
+
+[https://www.guo.media/posts/258297](https://www.guo.media/posts/258297) `2019-12-07T08:25:18`
+##
+
+**milesguo** 【图文段子】戏说“坑”里的那些糟烂事儿<br>[https://news.guo.media/zh-hans/47352/](https://news.guo.media/zh-hans/47352/ "https://news.guo.media/zh-hans/47352/")
+
+[https://www.guo.media/posts/258296](https://www.guo.media/posts/258296) `2019-12-07T08:25:21`
+##
+
 **milesguo** 大肚“范爷”冰冰，惊现美国“华人月子之都”！为何？<br>[https://news.guo.media/zh-hans/47149/](https://news.guo.media/zh-hans/47149/ "https://news.guo.media/zh-hans/47149/")
 
 [https://www.guo.media/posts/258282](https://www.guo.media/posts/258282) `2019-12-07T06:55:11`
