@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** New HKSAR Police Chief will take ‘hard and soft’ approaches against protesters<br>[https://news.guo.media/47551/](https://news.guo.media/47551/ "https://news.guo.media/47551/")
+
+[https://www.guo.media/posts/258382](https://www.guo.media/posts/258382) `2019-12-07T19:25:10`
+##
+
+**milesguo** HKPF accepting Red Envelope to opposite “Electoral Corruption”<br>[https://news.guo.media/47498/](https://news.guo.media/47498/ "https://news.guo.media/47498/")
+
+[https://www.guo.media/posts/258380](https://www.guo.media/posts/258380) `2019-12-07T19:25:14`
+##
+
+**milesguo** Pro-Communist willing overturn any election that is not good for Beijing<br>[https://news.guo.media/47497/](https://news.guo.media/47497/ "https://news.guo.media/47497/")
+
+[https://www.guo.media/posts/258379](https://www.guo.media/posts/258379) `2019-12-07T19:25:17`
+##
+
+**milesguo** The central government will always be the ‘strong backing’ of the Hong Kong Police, says the minister<br>[https://news.guo.media/47506/](https://news.guo.media/47506/ "https://news.guo.media/47506/")
+
+[https://www.guo.media/posts/258378](https://www.guo.media/posts/258378) `2019-12-07T19:25:20`
+##
+
+**milesguo** CCP uses DNA to map Uighurs’ faces: feared to be as another crackdown tool<br>[https://news.guo.media/46728/](https://news.guo.media/46728/ "https://news.guo.media/46728/")
+
+[https://www.guo.media/posts/258377](https://www.guo.media/posts/258377) `2019-12-07T19:25:23`
+##
+
+**milesguo** [Social credit system] 36 More Railway Stations use E-Tickets<br>[https://news.guo.media/47443/](https://news.guo.media/47443/ "https://news.guo.media/47443/")
+
+[https://www.guo.media/posts/258376](https://www.guo.media/posts/258376) `2019-12-07T19:25:25`
+##
+
 **milesguo** [China]Debt crisis at Founder company akin to a nuclear disaster on company financials<br>[https://news.guo.media/47419/](https://news.guo.media/47419/ "https://news.guo.media/47419/")
 
 [https://www.guo.media/posts/258374](https://www.guo.media/posts/258374) `2019-12-07T19:10:10`
