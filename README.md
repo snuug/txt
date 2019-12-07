@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 【Gnews】<br>美参议员给国际奥委会的信，敦促2022冬奥会主办国中国维护人权<br>[https://spark.adobe.com/page/KFxk90Yva3LNE/](https://spark.adobe.com/page/KFxk90Yva3LNE/ "https://spark.adobe.com/page/KFxk90Yva3LNE/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/258269](https://www.guo.media/posts/258269) `2019-12-07T03:55:11`
+##
+
+**milesguo** 中共党报今又称国内粮食高产，忽悠百姓<br>[https://news.guo.media/zh-hans/47031/](https://news.guo.media/zh-hans/47031/ "https://news.guo.media/zh-hans/47031/")
+
+[https://www.guo.media/posts/258268](https://www.guo.media/posts/258268) `2019-12-07T03:55:14`
+##
+
+**milesguo** 12月06日 美国政要推文精选<br>[https://news.guo.media/zh-hans/46923/](https://news.guo.media/zh-hans/46923/ "https://news.guo.media/zh-hans/46923/")
+
+[https://www.guo.media/posts/258267](https://www.guo.media/posts/258267) `2019-12-07T03:55:17`
+##
+
+**milesguo** 从郑若骅被送中到安乐工程被搜查<br>[https://news.guo.media/zh-hans/46943/](https://news.guo.media/zh-hans/46943/ "https://news.guo.media/zh-hans/46943/")
+
+[https://www.guo.media/posts/258266](https://www.guo.media/posts/258266) `2019-12-07T03:55:21`
+##
+
 **milesguo** 中国的金融体系已经面临崩溃的边缘（第二部分）<br>[https://news.guo.media/zh-hans/46892/](https://news.guo.media/zh-hans/46892/ "https://news.guo.media/zh-hans/46892/")
 
 [https://www.guo.media/posts/258265](https://www.guo.media/posts/258265) `2019-12-07T03:40:11`
