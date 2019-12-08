@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 劲爆！王健之死谜团之一真死假死！<br>[https://news.guo.media/zh-hans/48031/](https://news.guo.media/zh-hans/48031/ "https://news.guo.media/zh-hans/48031/") 
+
+[https://www.guo.media/posts/258489](https://www.guo.media/posts/258489) `2019-12-08T05:25:11`
+##
+
+**milesguo** 郭文贵先生12月7号直播喊话：龚小夏一定会为自己的行为付出代价！<br>[https://news.guo.media/zh-hans/48036/](https://news.guo.media/zh-hans/48036/ "https://news.guo.media/zh-hans/48036/")
+
+[https://www.guo.media/posts/258487](https://www.guo.media/posts/258487) `2019-12-08T05:25:14`
+##
+
 **milesguo** 12月7日 美国政要推文精选<br>[https://news.guo.media/zh-hans/47867/](https://news.guo.media/zh-hans/47867/ "https://news.guo.media/zh-hans/47867/")
 
 [https://www.guo.media/posts/258480](https://www.guo.media/posts/258480) `2019-12-08T04:55:12`
