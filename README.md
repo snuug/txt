@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 8, some footages from the HK protest<br>[https://news.guo.media/48832/](https://news.guo.media/48832/ "https://news.guo.media/48832/")
+
+[https://www.guo.media/posts/258643](https://www.guo.media/posts/258643) `2019-12-08T23:55:10`
+##
+
 **milesguo** 泪目!这就是共产党统治下的中国！92岁老大爷逛集市买不起猪肉！<br>[https://news.guo.media/zh-hans/48811/](https://news.guo.media/zh-hans/48811/ "https://news.guo.media/zh-hans/48811/")
 
 [https://www.guo.media/posts/258636](https://www.guo.media/posts/258636) `2019-12-08T22:55:10`
