@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 无耻黑警！这么不要脸的话也说得出<br>[https://news.guo.media/zh-hans/47798/](https://news.guo.media/zh-hans/47798/ "https://news.guo.media/zh-hans/47798/")
+
+[https://www.guo.media/posts/258476](https://www.guo.media/posts/258476) `2019-12-08T04:40:11`
+##
+
 **milesguo** 12月6日香港要闻：区选后 民意做武器 势如破竹，建制派跳船 节节败退，1208齐上街，誓除傀儡政权<br>[https://news.guo.media/zh-hans/47802/](https://news.guo.media/zh-hans/47802/ "https://news.guo.media/zh-hans/47802/")
 
 [https://www.guo.media/posts/258475](https://www.guo.media/posts/258475) `2019-12-08T04:25:12`
