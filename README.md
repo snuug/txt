@@ -12,6 +12,46 @@
 ## 最新郭文
 
 
+**milesguo** 12/07/2019钢铁侠对话文贵直播摘要<br>[https://news.guo.media/zh-hans/48791/](https://news.guo.media/zh-hans/48791/ "https://news.guo.media/zh-hans/48791/")
+
+[https://www.guo.media/posts/258634](https://www.guo.media/posts/258634) `2019-12-08T22:40:11`
+##
+
+**milesguo** 广播：2019/12/8郭文贵先生直播 除了换汇郭媒体也能让战友们赚大钱<br>[https://news.guo.media/zh-hans/48768/](https://news.guo.media/zh-hans/48768/ "https://news.guo.media/zh-hans/48768/")
+
+[https://www.guo.media/posts/258633](https://www.guo.media/posts/258633) `2019-12-08T22:40:14`
+##
+
+**milesguo** 是的，你没看错，中共下令‘焚书’！<br>[https://news.guo.media/zh-hans/48512/](https://news.guo.media/zh-hans/48512/ "https://news.guo.media/zh-hans/48512/")
+
+[https://www.guo.media/posts/258632](https://www.guo.media/posts/258632) `2019-12-08T22:40:17`
+##
+
+**milesguo** 男孩用小提琴为百万港人伴奏《愿荣光归香港》<br>[https://news.guo.media/zh-hans/48732/](https://news.guo.media/zh-hans/48732/ "https://news.guo.media/zh-hans/48732/")
+
+[https://www.guo.media/posts/258631](https://www.guo.media/posts/258631) `2019-12-08T22:40:20`
+##
+
+**milesguo** 束手无策祸港难，差人进京求“恶方”？刚柔并济也难敌正义<br>[https://news.guo.media/zh-hans/48663/](https://news.guo.media/zh-hans/48663/ "https://news.guo.media/zh-hans/48663/")
+
+[https://www.guo.media/posts/258630](https://www.guo.media/posts/258630) `2019-12-08T22:40:23`
+##
+
+**milesguo** 为什么 你穷的 连猪肉都舍不得吃了<br>[https://news.guo.media/zh-hans/48624/](https://news.guo.media/zh-hans/48624/ "https://news.guo.media/zh-hans/48624/")
+
+[https://www.guo.media/posts/258629](https://www.guo.media/posts/258629) `2019-12-08T22:40:26`
+##
+
+**milesguo** 中共国又一个银行行长被抓，工商银行上海分行行长顾国明被批捕<br>[https://news.guo.media/zh-hans/48637/](https://news.guo.media/zh-hans/48637/ "https://news.guo.media/zh-hans/48637/")
+
+[https://www.guo.media/posts/258628](https://www.guo.media/posts/258628) `2019-12-08T22:40:29`
+##
+
+**milesguo** 香港「国际人权日」游行 香港再度破80万人上街游行抗争! 中共区议会选举大败后 港人再次上街游行<br>[https://news.guo.media/zh-hans/48630/](https://news.guo.media/zh-hans/48630/ "https://news.guo.media/zh-hans/48630/")
+
+[https://www.guo.media/posts/258626](https://www.guo.media/posts/258626) `2019-12-08T22:40:32`
+##
+
 **milesguo** 200余香港示威者逃往台湾！ 纽时：台北长老教会牧师居中联系 女示威者被港警强奸怀孕 逃往台湾进行流产手术<br>[https://news.guo.media/zh-hans/48599/](https://news.guo.media/zh-hans/48599/ "https://news.guo.media/zh-hans/48599/")
 
 [https://www.guo.media/posts/258625](https://www.guo.media/posts/258625) `2019-12-08T22:25:10`
