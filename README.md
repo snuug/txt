@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：股市下跌前夕，官媒诱导股民接盘<br>[https://news.guo.media/zh-hans/48104/](https://news.guo.media/zh-hans/48104/ "https://news.guo.media/zh-hans/48104/")
+
+[https://www.guo.media/posts/258525](https://www.guo.media/posts/258525) `2019-12-08T08:10:17`
+##
+
 **milesguo** Chinese Ambassador​ to UK: no political prisoner in China<br>[https://news.guo.media/48041/](https://news.guo.media/48041/ "https://news.guo.media/48041/")
 
 [https://www.guo.media/posts/258521](https://www.guo.media/posts/258521) `2019-12-08T07:40:11`
