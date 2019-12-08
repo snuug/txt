@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月8日香港国际人权日游行前线速报<br>[https://news.guo.media/zh-hans/48358/](https://news.guo.media/zh-hans/48358/ "https://news.guo.media/zh-hans/48358/")
+
+[https://www.guo.media/posts/258563](https://www.guo.media/posts/258563) `2019-12-08T15:40:11`
+##
+
 **milesguo** 香港350家婚礼公司拒绝向港警服务 内地微博官方账号污名婚礼公司为暴徒机构<br>[https://news.guo.media/zh-hans/48141/](https://news.guo.media/zh-hans/48141/ "https://news.guo.media/zh-hans/48141/")
 
 [https://www.guo.media/posts/258562](https://www.guo.media/posts/258562) `2019-12-08T15:25:11`
