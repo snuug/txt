@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Gnews】<br>Guo’s Remark in 90 Seconds<br>Where have the loans from the World Bank to China gone? Has China ever paid back the loans to the World Bank?<br>(Excerpt from the interview by the MIZ, 7 Dec 2019)<br>[https://spark.adobe.com/page/ifOcGbhLamgdA/](https://spark.adobe.com/page/ifOcGbhLamgdA/ "https://spark.adobe.com/page/ifOcGbhLamgdA/")<br>【Guo Library 】
+
+[https://www.guo.media/posts/258458](https://www.guo.media/posts/258458) `2019-12-08T03:25:11`
+##
+
 **milesguo** 12月7号：从现在开始香港将进入新的时刻🙏🙏🙏世界上各种力量正在香港聚集！请战友们高度关注香港的时态……香港的同胞们．战友们务必要用智慧来面对接下来的巨大挑战……我们将永远和你们站在一起．支持你们！一切都是刚刚开始！
 
 [https://www.guo.media/posts/258455](https://www.guo.media/posts/258455) `2019-12-08T02:40:11`
