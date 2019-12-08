@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo Exposes CCP’s World Bank Scandals On Dec. 7th<br>[https://news.guo.media/47788/](https://news.guo.media/47788/ "https://news.guo.media/47788/")
+
+[https://www.guo.media/posts/258519](https://www.guo.media/posts/258519) `2019-12-08T07:25:10`
+##
+
+**milesguo** Hong Kong pro-democracy activists become fugitives in a video game<br>[https://news.guo.media/47899/](https://news.guo.media/47899/ "https://news.guo.media/47899/")
+
+[https://www.guo.media/posts/258517](https://www.guo.media/posts/258517) `2019-12-08T07:25:14`
+##
+
+**milesguo** Survey: Hong Kong citizen’s attitude towards the District Council election<br>[https://news.guo.media/47949/](https://news.guo.media/47949/ "https://news.guo.media/47949/")
+
+[https://www.guo.media/posts/258515](https://www.guo.media/posts/258515) `2019-12-08T07:25:17`
+##
+
+**milesguo** Breaking News! Miles Guo said, “Wang Jian is really dead, he was murdered! “<br>[https://news.guo.media/47864/](https://news.guo.media/47864/ "https://news.guo.media/47864/")
+
+[https://www.guo.media/posts/258513](https://www.guo.media/posts/258513) `2019-12-08T07:25:20`
+##
+
+**milesguo** Entry to Macau denied for HK American Chamber of Commerce chair and president<br>[https://news.guo.media/47822/](https://news.guo.media/47822/ "https://news.guo.media/47822/")
+
+[https://www.guo.media/posts/258512](https://www.guo.media/posts/258512) `2019-12-08T07:25:23`
+##
+
+**milesguo** Is this real China? Is this just fantasy?<br>[https://news.guo.media/47633/](https://news.guo.media/47633/ "https://news.guo.media/47633/")
+
+[https://www.guo.media/posts/258510](https://www.guo.media/posts/258510) `2019-12-08T07:25:26`
+##
+
+**milesguo** Muffled cries: How evil the Chinese Communist Party is!<br>[https://news.guo.media/47171/](https://news.guo.media/47171/ "https://news.guo.media/47171/")
+
+[https://www.guo.media/posts/258509](https://www.guo.media/posts/258509) `2019-12-08T07:25:29`
+##
+
 **milesguo** 英国诺丁汉出现光复香港时代革命 伦敦泰特美术馆外写下圣诞寄语<br>[https://news.guo.media/zh-hans/48085/](https://news.guo.media/zh-hans/48085/ "https://news.guo.media/zh-hans/48085/")
 
 [https://www.guo.media/posts/258504](https://www.guo.media/posts/258504) `2019-12-08T07:10:11`
