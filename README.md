@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月8号：尊敬的战友了好！你们健身了吗？你们传播香港危机真相了吗？文贵将在一个小时后，纽约时间上午9:30左右报平安直播……一切都是刚刚开始！
+
+[https://www.guo.media/posts/258549](https://www.guo.media/posts/258549) `2019-12-08T13:40:11`
+##
+
 **milesguo** 小巴猪：股市下跌前夕，官媒诱导股民接盘<br>[https://news.guo.media/zh-hans/48104/](https://news.guo.media/zh-hans/48104/ "https://news.guo.media/zh-hans/48104/")
 
 [https://www.guo.media/posts/258525](https://www.guo.media/posts/258525) `2019-12-08T08:10:17`
