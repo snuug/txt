@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 12月7日 美国政要推文精选<br>[https://news.guo.media/zh-hans/47867/](https://news.guo.media/zh-hans/47867/ "https://news.guo.media/zh-hans/47867/")
+
+[https://www.guo.media/posts/258480](https://www.guo.media/posts/258480) `2019-12-08T04:55:12`
+##
+
+**milesguo** “陈小蠢”台湾开唱，因挺港警被逼穿防弹背心？<br>[https://news.guo.media/zh-hans/47842/](https://news.guo.media/zh-hans/47842/ "https://news.guo.media/zh-hans/47842/")
+
+[https://www.guo.media/posts/258479](https://www.guo.media/posts/258479) `2019-12-08T04:55:16`
+##
+
+**milesguo** 【灭共在行动】美司法部启动新项目 针对中共盗窃知识产权<br>[https://news.guo.media/zh-hans/47790/](https://news.guo.media/zh-hans/47790/ "https://news.guo.media/zh-hans/47790/")
+
+[https://www.guo.media/posts/258478](https://www.guo.media/posts/258478) `2019-12-08T04:55:20`
+##
+
 **milesguo** 无耻黑警！这么不要脸的话也说得出<br>[https://news.guo.media/zh-hans/47798/](https://news.guo.media/zh-hans/47798/ "https://news.guo.media/zh-hans/47798/")
 
 [https://www.guo.media/posts/258476](https://www.guo.media/posts/258476) `2019-12-08T04:40:11`
