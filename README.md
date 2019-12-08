@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 泪目!这就是共产党统治下的中国！92岁老大爷逛集市买不起猪肉！<br>[https://news.guo.media/zh-hans/48811/](https://news.guo.media/zh-hans/48811/ "https://news.guo.media/zh-hans/48811/")
+
+[https://www.guo.media/posts/258636](https://www.guo.media/posts/258636) `2019-12-08T22:55:10`
+##
+
+**milesguo** 2019年12月8日郭文贵先生直播：达成10笔交易 郭先生教各位战友如何革命发大财!<br>[https://news.guo.media/zh-hans/48772/](https://news.guo.media/zh-hans/48772/ "https://news.guo.media/zh-hans/48772/")
+
+[https://www.guo.media/posts/258635](https://www.guo.media/posts/258635) `2019-12-08T22:55:14`
+##
+
 **milesguo** 12/07/2019钢铁侠对话文贵直播摘要<br>[https://news.guo.media/zh-hans/48791/](https://news.guo.media/zh-hans/48791/ "https://news.guo.media/zh-hans/48791/")
 
 [https://www.guo.media/posts/258634](https://www.guo.media/posts/258634) `2019-12-08T22:40:11`
