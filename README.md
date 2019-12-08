@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 12月6日香港要闻：区选后 民意做武器 势如破竹，建制派跳船 节节败退，1208齐上街，誓除傀儡政权<br>[https://news.guo.media/zh-hans/47802/](https://news.guo.media/zh-hans/47802/ "https://news.guo.media/zh-hans/47802/")
+
+[https://www.guo.media/posts/258475](https://www.guo.media/posts/258475) `2019-12-08T04:25:12`
+##
+
+**milesguo** 胡润榜中的待宰羔羊：从刘强东看中共如何对民营企业家进行抽丝剥茧<br>[https://news.guo.media/zh-hans/47766/](https://news.guo.media/zh-hans/47766/ "https://news.guo.media/zh-hans/47766/")
+
+[https://www.guo.media/posts/258474](https://www.guo.media/posts/258474) `2019-12-08T04:25:15`
+##
+
+**milesguo** 写在2019年12月8日香港国际人权日游行之际<br>[https://news.guo.media/zh-hans/47751/](https://news.guo.media/zh-hans/47751/ "https://news.guo.media/zh-hans/47751/")
+
+[https://www.guo.media/posts/258472](https://www.guo.media/posts/258472) `2019-12-08T04:25:19`
+##
+
+**milesguo** 邓炳强访京 武力会不会升级<br>[https://news.guo.media/zh-hans/47742/](https://news.guo.media/zh-hans/47742/ "https://news.guo.media/zh-hans/47742/")
+
+[https://www.guo.media/posts/258471](https://www.guo.media/posts/258471) `2019-12-08T04:25:22`
+##
+
+**milesguo** 坐看云起，静待中共灭亡<br>[https://news.guo.media/zh-hans/47717/](https://news.guo.media/zh-hans/47717/ "https://news.guo.media/zh-hans/47717/")
+
+[https://www.guo.media/posts/258470](https://www.guo.media/posts/258470) `2019-12-08T04:25:26`
+##
+
 **milesguo** 【Gnews】<br>Guo’s Remark in 90 Seconds<br>Where have the loans from the World Bank to China gone? Has China ever paid back the loans to the World Bank?<br>(Excerpt from the interview by the MIZ, 7 Dec 2019)<br>[https://spark.adobe.com/page/ifOcGbhLamgdA/](https://spark.adobe.com/page/ifOcGbhLamgdA/ "https://spark.adobe.com/page/ifOcGbhLamgdA/")<br>【Guo Library 】
 
 [https://www.guo.media/posts/258458](https://www.guo.media/posts/258458) `2019-12-08T03:25:11`
