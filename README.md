@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月7号：从现在开始香港将进入新的时刻🙏🙏🙏世界上各种力量正在香港聚集！请战友们高度关注香港的时态……香港的同胞们．战友们务必要用智慧来面对接下来的巨大挑战……我们将永远和你们站在一起．支持你们！一切都是刚刚开始！
+
+[https://www.guo.media/posts/258455](https://www.guo.media/posts/258455) `2019-12-08T02:40:11`
+##
+
 **milesguo** 爱听不听——人生没有如果 永远要带着一颗感恩的心 钢铁侠对话七哥郭文贵 第三期<br>[https://youtu.be/qgZ\_UYJh9iE](https://youtu.be/qgZ_UYJh9iE "https://youtu.be/qgZ_UYJh9iE") 
 
 [https://www.guo.media/posts/258440](https://www.guo.media/posts/258440) `2019-12-08T00:25:11`
