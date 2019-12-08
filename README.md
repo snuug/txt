@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Offer opportunities for Liquidating Chinese Asset for Foreign Cash<br>[https://news.guo.media/48021/](https://news.guo.media/48021/ "https://news.guo.media/48021/")
+
+[https://www.guo.media/posts/258606](https://www.guo.media/posts/258606) `2019-12-08T18:55:11`
+##
+
 **milesguo** 12月8日香港国际人权日游行前线速报<br>[https://news.guo.media/zh-hans/48358/](https://news.guo.media/zh-hans/48358/ "https://news.guo.media/zh-hans/48358/")
 
 [https://www.guo.media/posts/258563](https://www.guo.media/posts/258563) `2019-12-08T15:40:11`
