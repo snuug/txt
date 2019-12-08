@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 爱听不听——人生没有如果 永远要带着一颗感恩的心 钢铁侠对话七哥郭文贵 第三期<br>[https://youtu.be/qgZ\_UYJh9iE](https://youtu.be/qgZ_UYJh9iE "https://youtu.be/qgZ_UYJh9iE") 
+
+[https://www.guo.media/posts/258440](https://www.guo.media/posts/258440) `2019-12-08T00:25:11`
+##
+
 **milesguo** 中共邪恶的教育体制<br>[https://news.guo.media/zh-hans/47683/](https://news.guo.media/zh-hans/47683/ "https://news.guo.media/zh-hans/47683/")
 
 [https://www.guo.media/posts/258429](https://www.guo.media/posts/258429) `2019-12-07T23:40:12`
