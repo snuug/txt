@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo and Iron Man Live Broadcast on 12/07/2019<br>[https://news.guo.media/48587/](https://news.guo.media/48587/ "https://news.guo.media/48587/")
+
+[https://www.guo.media/posts/258611](https://www.guo.media/posts/258611) `2019-12-08T19:10:10`
+##
+
+**milesguo** Over 800,000 Hong Kong citizens anticipated the Human Rights Day March<br>[https://news.guo.media/48681/](https://news.guo.media/48681/ "https://news.guo.media/48681/")
+
+[https://www.guo.media/posts/258610](https://www.guo.media/posts/258610) `2019-12-08T19:10:14`
+##
+
+**milesguo** Hong Kong Police Commissioner: Observe the Flag-raising Ceremony in Beijing<br>[https://news.guo.media/48628/](https://news.guo.media/48628/ "https://news.guo.media/48628/")
+
+[https://www.guo.media/posts/258609](https://www.guo.media/posts/258609) `2019-12-08T19:10:16`
+##
+
+**milesguo** Jimmy Shum slams the HK police to reflect on their wrong-doings<br>[https://news.guo.media/48594/](https://news.guo.media/48594/ "https://news.guo.media/48594/")
+
+[https://www.guo.media/posts/258608](https://www.guo.media/posts/258608) `2019-12-08T19:10:19`
+##
+
+**milesguo** Miles Guo: The CCP has used World Bank loans to build concentration camps in Xinjiang<br>[https://news.guo.media/48132/](https://news.guo.media/48132/ "https://news.guo.media/48132/")
+
+[https://www.guo.media/posts/258607](https://www.guo.media/posts/258607) `2019-12-08T19:10:22`
+##
+
 **milesguo** Miles Guo: Offer opportunities for Liquidating Chinese Asset for Foreign Cash<br>[https://news.guo.media/48021/](https://news.guo.media/48021/ "https://news.guo.media/48021/")
 
 [https://www.guo.media/posts/258606](https://www.guo.media/posts/258606) `2019-12-08T18:55:11`
