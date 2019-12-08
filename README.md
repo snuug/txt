@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 英国诺丁汉出现光复香港时代革命 伦敦泰特美术馆外写下圣诞寄语<br>[https://news.guo.media/zh-hans/48085/](https://news.guo.media/zh-hans/48085/ "https://news.guo.media/zh-hans/48085/")
+
+[https://www.guo.media/posts/258504](https://www.guo.media/posts/258504) `2019-12-08T07:10:11`
+##
+
 **milesguo** 劲爆！王健之死谜团之一真死假死！<br>[https://news.guo.media/zh-hans/48031/](https://news.guo.media/zh-hans/48031/ "https://news.guo.media/zh-hans/48031/") 
 
 [https://www.guo.media/posts/258489](https://www.guo.media/posts/258489) `2019-12-08T05:25:11`
