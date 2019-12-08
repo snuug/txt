@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 200余香港示威者逃往台湾！ 纽时：台北长老教会牧师居中联系 女示威者被港警强奸怀孕 逃往台湾进行流产手术<br>[https://news.guo.media/zh-hans/48599/](https://news.guo.media/zh-hans/48599/ "https://news.guo.media/zh-hans/48599/")
+
+[https://www.guo.media/posts/258625](https://www.guo.media/posts/258625) `2019-12-08T22:25:10`
+##
+
 **milesguo** Highlights of Miles Guo and Iron Man Live Broadcast on 12/07/2019<br>[https://news.guo.media/48587/](https://news.guo.media/48587/ "https://news.guo.media/48587/")
 
 [https://www.guo.media/posts/258611](https://www.guo.media/posts/258611) `2019-12-08T19:10:10`
