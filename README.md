@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Ambassador​ to UK: no political prisoner in China<br>[https://news.guo.media/48041/](https://news.guo.media/48041/ "https://news.guo.media/48041/")
+
+[https://www.guo.media/posts/258521](https://www.guo.media/posts/258521) `2019-12-08T07:40:11`
+##
+
+**milesguo** Miles Guo calls out on today’s livestream: Sasha Gong will be held accountable for her actions.<br>[https://news.guo.media/48010/](https://news.guo.media/48010/ "https://news.guo.media/48010/")
+
+[https://www.guo.media/posts/258520](https://www.guo.media/posts/258520) `2019-12-08T07:40:14`
+##
+
 **milesguo** Miles Guo Exposes CCP’s World Bank Scandals On Dec. 7th<br>[https://news.guo.media/47788/](https://news.guo.media/47788/ "https://news.guo.media/47788/")
 
 [https://www.guo.media/posts/258519](https://www.guo.media/posts/258519) `2019-12-08T07:25:10`
