@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国将取消贸易战部份关税<br>[https://news.guo.media/zh-hans/49410/](https://news.guo.media/zh-hans/49410/ "https://news.guo.media/zh-hans/49410/")
+
+[https://www.guo.media/posts/258776](https://www.guo.media/posts/258776) `2019-12-09T14:55:10`
+##
+
 **milesguo** 12月9号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？文贵马上(纽约早上8点)在这里报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/258753](https://www.guo.media/posts/258753) `2019-12-09T12:55:11`
