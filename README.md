@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共骇客攻击世界各地的维吾尔流亡者<br>[https://news.guo.media/zh-hans/49370/](https://news.guo.media/zh-hans/49370/ "https://news.guo.media/zh-hans/49370/")
+
+[https://www.guo.media/posts/258740](https://www.guo.media/posts/258740) `2019-12-09T12:10:11`
+##
+
 **milesguo** 【翻译】<br>Lawfare 博客网12月8日:NBA与中国掠夺性自由主义<br>[https://spark.adobe.com/page/R8tEZYvIdbK0X/](https://spark.adobe.com/page/R8tEZYvIdbK0X/ "https://spark.adobe.com/page/R8tEZYvIdbK0X/")<br>【秘密翻译组】
 
 [https://www.guo.media/posts/258733](https://www.guo.media/posts/258733) `2019-12-09T10:55:12`
