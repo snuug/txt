@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月9号：尊敬的战友们好！文贵庄严声明.刚刚在网络上疯传的文贵需要比特币捐款的信息是由加拿大和美国几个惯犯诈骗者所谓……有共产党的平爆小组在背后操作…这是诈骗行为.请大家不要上当.应将上传信息马上删掉！文贵再次庄重承诺.文贵永远不会向战友们伸<br>手要捐款！或任何的商业利益！爆料革命就什么业务运动不会有任何利益目的！一切都是刚刚开始！
+
+[https://www.guo.media/posts/258782](https://www.guo.media/posts/258782) `2019-12-09T15:25:11`
+##
+
 **milesguo** 中国将取消贸易战部份关税<br>[https://news.guo.media/zh-hans/49410/](https://news.guo.media/zh-hans/49410/ "https://news.guo.media/zh-hans/49410/")
 
 [https://www.guo.media/posts/258776](https://www.guo.media/posts/258776) `2019-12-09T14:55:10`
