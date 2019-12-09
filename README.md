@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>Lawfare 博客网12月8日:NBA与中国掠夺性自由主义<br>[https://spark.adobe.com/page/R8tEZYvIdbK0X/](https://spark.adobe.com/page/R8tEZYvIdbK0X/ "https://spark.adobe.com/page/R8tEZYvIdbK0X/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/258733](https://www.guo.media/posts/258733) `2019-12-09T10:55:12`
+##
+
 **milesguo** 12月9日香港十区三罢活动多名示威者被捕<br>[https://news.guo.media/zh-hans/49237/](https://news.guo.media/zh-hans/49237/ "https://news.guo.media/zh-hans/49237/")
 
 [https://www.guo.media/posts/258716](https://www.guo.media/posts/258716) `2019-12-09T08:10:10`
