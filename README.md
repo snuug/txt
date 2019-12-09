@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 全球爱港人士撑香港，演唱《海阔天空》，时代革命 光复香港<br>[https://news.guo.media/zh-hans/48938/](https://news.guo.media/zh-hans/48938/ "https://news.guo.media/zh-hans/48938/")
+
+[https://www.guo.media/posts/258668](https://www.guo.media/posts/258668) `2019-12-09T01:40:11`
+##
+
 **milesguo** 《2020庚子年—商鞅：战争正在逼近》<br>[https://news.guo.media/zh-hans/48918/](https://news.guo.media/zh-hans/48918/ "https://news.guo.media/zh-hans/48918/")
 
 [https://www.guo.media/posts/258662](https://www.guo.media/posts/258662) `2019-12-09T01:25:11`
