@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 从中央电视台在FACEBOOK号召小粉红到白宫搞装修说起<br>[https://news.guo.media/zh-hans/48897/](https://news.guo.media/zh-hans/48897/ "https://news.guo.media/zh-hans/48897/")
+
+[https://www.guo.media/posts/258654](https://www.guo.media/posts/258654) `2019-12-09T01:10:12`
+##
+
+**milesguo** 必看！一位被捕香港大学生的公开信，写给有理想的你<br>[https://news.guo.media/zh-hans/48868/](https://news.guo.media/zh-hans/48868/ "https://news.guo.media/zh-hans/48868/")
+
+[https://www.guo.media/posts/258653](https://www.guo.media/posts/258653) `2019-12-09T01:10:15`
+##
+
+**milesguo** 杨洁篪同美国国务卿蓬佩奥通电话都说了啥？<br>[https://news.guo.media/zh-hans/48869/](https://news.guo.media/zh-hans/48869/ "https://news.guo.media/zh-hans/48869/")
+
+[https://www.guo.media/posts/258652](https://www.guo.media/posts/258652) `2019-12-09T01:10:18`
+##
+
 **milesguo** December 8, some footages from the HK protest<br>[https://news.guo.media/48832/](https://news.guo.media/48832/ "https://news.guo.media/48832/")
 
 [https://www.guo.media/posts/258643](https://www.guo.media/posts/258643) `2019-12-08T23:55:10`
