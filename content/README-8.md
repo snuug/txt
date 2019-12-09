@@ -13,6 +13,8 @@
 
 ## 頁面 8/22 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [22](/content/README-22.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月21日为什么要揭穿李嘉诚，马云，郭台铭，江志成](/content/2019/04/20190422-2917569343036844190.md)
+
 [文字版：2019年4月20日班农先生与文贵谈郭台铭选台湾总统](/content/2019/04/20190421-3663457252526137440.md)
 
 [文字版：郭文贵先生直播2019年4月19日一个难忘的日子](/content/2019/04/20190419-6305900525322511967.md)
@@ -60,8 +62,6 @@
 [文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
 
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
-
-[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
 
 
 ## 頁面 8/22 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [22](/content/README-22.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
