@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月9号：尊敬的战友们好．【文贵向大家展示一下❌❌❌王健被杀的时候穿的的短裤．袜子．及第一次在被杀现场的高清彩色照片！<br>❌❌希望战友们准备好小心脏不要受不了，今天只展示短裤！】再谈人民币换汇美元的事情！集体回复大家对换汇的一些问题，战友们如有什么问题，请在下面留言，我即时时回复。一切都是刚刚开始！
+
+[https://www.guo.media/posts/258886](https://www.guo.media/posts/258886) `2019-12-09T23:25:10`
+##
+
 **milesguo** 为什么梵蒂冈对香港事件闭口不谈？<br>[https://news.guo.media/zh-hans/49490/](https://news.guo.media/zh-hans/49490/ "https://news.guo.media/zh-hans/49490/")
 
 [https://www.guo.media/posts/258786](https://www.guo.media/posts/258786) `2019-12-09T15:40:11`
