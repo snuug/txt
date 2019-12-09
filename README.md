@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Estimated Financial Outlook for RMB<br>[https://news.guo.media/49023/](https://news.guo.media/49023/ "https://news.guo.media/49023/")
+
+[https://www.guo.media/posts/258684](https://www.guo.media/posts/258684) `2019-12-09T04:55:11`
+##
+
+**milesguo** 港人网上发起三罢，黑警多区严防戒备<br>[https://news.guo.media/zh-hans/49014/](https://news.guo.media/zh-hans/49014/ "https://news.guo.media/zh-hans/49014/")
+
+[https://www.guo.media/posts/258683](https://www.guo.media/posts/258683) `2019-12-09T04:55:14`
+##
+
+**milesguo** 12月8日 美国政要推文精选<br>[https://news.guo.media/zh-hans/48986/](https://news.guo.media/zh-hans/48986/ "https://news.guo.media/zh-hans/48986/")
+
+[https://www.guo.media/posts/258682](https://www.guo.media/posts/258682) `2019-12-09T04:55:17`
+##
+
 **milesguo** 全球爱港人士撑香港，演唱《海阔天空》，时代革命 光复香港<br>[https://news.guo.media/zh-hans/48938/](https://news.guo.media/zh-hans/48938/ "https://news.guo.media/zh-hans/48938/")
 
 [https://www.guo.media/posts/258668](https://www.guo.media/posts/258668) `2019-12-09T01:40:11`
