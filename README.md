@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 《2020庚子年—商鞅：战争正在逼近》<br>[https://news.guo.media/zh-hans/48918/](https://news.guo.media/zh-hans/48918/ "https://news.guo.media/zh-hans/48918/")
+
+[https://www.guo.media/posts/258662](https://www.guo.media/posts/258662) `2019-12-09T01:25:11`
+##
+
 **milesguo** 从中央电视台在FACEBOOK号召小粉红到白宫搞装修说起<br>[https://news.guo.media/zh-hans/48897/](https://news.guo.media/zh-hans/48897/ "https://news.guo.media/zh-hans/48897/")
 
 [https://www.guo.media/posts/258654](https://www.guo.media/posts/258654) `2019-12-09T01:10:12`
