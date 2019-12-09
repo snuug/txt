@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 加拿大多伦多 美国纽约举办声援香港集会<br>[https://news.guo.media/zh-hans/49117/](https://news.guo.media/zh-hans/49117/ "https://news.guo.media/zh-hans/49117/")
+
+[https://www.guo.media/posts/258694](https://www.guo.media/posts/258694) `2019-12-09T06:25:11`
+##
+
 **milesguo** 文字版2019年12月7日郭先生对话钢铁侠<br>[https://news.guo.media/zh-hans/49109/](https://news.guo.media/zh-hans/49109/ "https://news.guo.media/zh-hans/49109/")
 
 [https://www.guo.media/posts/258690](https://www.guo.media/posts/258690) `2019-12-09T05:40:10`
