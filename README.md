@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: What will happen after the overthrow of the CCP? What will be the 1st thing that we need to do?<br>[https://news.guo.media/49061/](https://news.guo.media/49061/ "https://news.guo.media/49061/")
+
+[https://www.guo.media/posts/258685](https://www.guo.media/posts/258685) `2019-12-09T05:10:11`
+##
+
 **milesguo** The Farm: Estimated Financial Outlook for RMB<br>[https://news.guo.media/49023/](https://news.guo.media/49023/ "https://news.guo.media/49023/")
 
 [https://www.guo.media/posts/258684](https://www.guo.media/posts/258684) `2019-12-09T04:55:11`
