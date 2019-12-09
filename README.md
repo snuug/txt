@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 12月9日香港十区三罢活动多名示威者被捕<br>[https://news.guo.media/zh-hans/49237/](https://news.guo.media/zh-hans/49237/ "https://news.guo.media/zh-hans/49237/")
+
+[https://www.guo.media/posts/258716](https://www.guo.media/posts/258716) `2019-12-09T08:10:10`
+##
+
+**milesguo** 2019年12月8日郭文贵先生直播摘要<br>[https://news.guo.media/zh-hans/49331/](https://news.guo.media/zh-hans/49331/ "https://news.guo.media/zh-hans/49331/")
+
+[https://www.guo.media/posts/258714](https://www.guo.media/posts/258714) `2019-12-09T08:10:14`
+##
+
+**milesguo** 上访20年老太国家信访局门口大唱：共产党的贪官真不少<br>[https://news.guo.media/zh-hans/49268/](https://news.guo.media/zh-hans/49268/ "https://news.guo.media/zh-hans/49268/")
+
+[https://www.guo.media/posts/258713](https://www.guo.media/posts/258713) `2019-12-09T08:10:17`
+##
+
+**milesguo** 疯狂！中共成功杂交了猪-猴，还要接着开世界律师大会？<br>[https://news.guo.media/zh-hans/48935/](https://news.guo.media/zh-hans/48935/ "https://news.guo.media/zh-hans/48935/")
+
+[https://www.guo.media/posts/258712](https://www.guo.media/posts/258712) `2019-12-09T08:10:20`
+##
+
 **milesguo** 一起看看世界银行的中国项目<br>[https://news.guo.media/zh-hans/49189/](https://news.guo.media/zh-hans/49189/ "https://news.guo.media/zh-hans/49189/")
 
 [https://www.guo.media/posts/258704](https://www.guo.media/posts/258704) `2019-12-09T07:25:11`
