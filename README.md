@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月7日郭先生对话钢铁侠<br>[https://news.guo.media/zh-hans/49109/](https://news.guo.media/zh-hans/49109/ "https://news.guo.media/zh-hans/49109/")
+
+[https://www.guo.media/posts/258690](https://www.guo.media/posts/258690) `2019-12-09T05:40:10`
+##
+
+**milesguo** 汉字分裂——简谈爆料革命中的繁简汉字<br>[https://news.guo.media/zh-hans/49072/](https://news.guo.media/zh-hans/49072/ "https://news.guo.media/zh-hans/49072/")
+
+[https://www.guo.media/posts/258689](https://www.guo.media/posts/258689) `2019-12-09T05:40:14`
+##
+
 **milesguo** Miles Guo: What will happen after the overthrow of the CCP? What will be the 1st thing that we need to do?<br>[https://news.guo.media/49061/](https://news.guo.media/49061/ "https://news.guo.media/49061/")
 
 [https://www.guo.media/posts/258685](https://www.guo.media/posts/258685) `2019-12-09T05:10:11`
