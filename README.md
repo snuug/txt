@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 一起看看世界银行的中国项目<br>[https://news.guo.media/zh-hans/49189/](https://news.guo.media/zh-hans/49189/ "https://news.guo.media/zh-hans/49189/")
+
+[https://www.guo.media/posts/258704](https://www.guo.media/posts/258704) `2019-12-09T07:25:11`
+##
+
 **milesguo** 加拿大多伦多 美国纽约举办声援香港集会<br>[https://news.guo.media/zh-hans/49117/](https://news.guo.media/zh-hans/49117/ "https://news.guo.media/zh-hans/49117/")
 
 [https://www.guo.media/posts/258694](https://www.guo.media/posts/258694) `2019-12-09T06:25:11`
