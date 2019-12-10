@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 听话才有蛋糕吃– 论中国的胁迫性经济霸凌<br>[https://news.guo.media/zh-hans/50348/](https://news.guo.media/zh-hans/50348/ "https://news.guo.media/zh-hans/50348/")
+
+[https://www.guo.media/posts/259062](https://www.guo.media/posts/259062) `2019-12-10T17:10:10`
+##
+
 **milesguo** 香港民主人士反对给警察加薪<br>[https://news.guo.media/zh-hans/50334/](https://news.guo.media/zh-hans/50334/ "https://news.guo.media/zh-hans/50334/")
 
 [https://www.guo.media/posts/259058](https://www.guo.media/posts/259058) `2019-12-10T16:40:11`
