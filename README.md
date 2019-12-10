@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港民主人士反对给警察加薪<br>[https://news.guo.media/zh-hans/50334/](https://news.guo.media/zh-hans/50334/ "https://news.guo.media/zh-hans/50334/")
+
+[https://www.guo.media/posts/259058](https://www.guo.media/posts/259058) `2019-12-10T16:40:11`
+##
+
 **milesguo** 中国政府启动两种“大炮”镇压香港示威<br>[https://news.guo.media/zh-hans/50321/](https://news.guo.media/zh-hans/50321/ "https://news.guo.media/zh-hans/50321/")
 
 [https://www.guo.media/posts/259049](https://www.guo.media/posts/259049) `2019-12-10T16:10:11`
