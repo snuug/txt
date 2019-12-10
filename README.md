@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月10号：尊敬的战友们好，请战友们．将你们在国内或任何地方给法治基金捐款者．末成功的信息．和票据．发到法制基金网站联络留言的这里．我们急需这些信息衷心的感谢战友们的支持，一切都是刚刚开始！🙏🙏🙏🙏[https://rolfoundation.org/index-chinese.php](https://rolfoundation.org/index-chinese.php "https://rolfoundation.org/index-chinese.php")
+
+[https://www.guo.media/posts/259066](https://www.guo.media/posts/259066) `2019-12-10T17:55:10`
+##
+
 **milesguo** 听话才有蛋糕吃– 论中国的胁迫性经济霸凌<br>[https://news.guo.media/zh-hans/50348/](https://news.guo.media/zh-hans/50348/ "https://news.guo.media/zh-hans/50348/")
 
 [https://www.guo.media/posts/259062](https://www.guo.media/posts/259062) `2019-12-10T17:10:10`
