@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共加速灭亡,竟下令政府机关电脑软硬件“去洋化”<br>[https://news.guo.media/zh-hans/50309/](https://news.guo.media/zh-hans/50309/ "https://news.guo.media/zh-hans/50309/")
+
+[https://www.guo.media/posts/259044](https://www.guo.media/posts/259044) `2019-12-10T15:40:11`
+##
+
+**milesguo** <br>12月10号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵，今天一大早一直开会，没有时间报平安直播，等下午有时间在直播报平安，一切都是刚刚开始！
+
+[https://www.guo.media/posts/259043](https://www.guo.media/posts/259043) `2019-12-10T15:40:14`
+##
+
 **milesguo** 12月9号：尊敬的战友们好．【文贵向大家展示一下❌❌❌王健被杀的时候穿的的短裤．袜子．及第一次在被杀现场的高清彩色照片！[http://livestream.com/accounts/27235681/events/8197481](https://livestream.com/accounts/27235681/events/8197481 "http://livestream.com/accounts/27235681/events/8197481")<br>❌❌希望战友们准备好小心脏不要受不了，今天只展示短裤！】再谈人民币换汇美元的事情！集体回复大家对换汇的一些问题，战友们如有什么问题，请在下面留言，我即时时回复。一切都是刚刚开始！
 
 [https://www.guo.media/posts/258904](https://www.guo.media/posts/258904) `2019-12-10T01:40:11`
