@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月8日文贵报平安<br>[https://news.guo.media/zh-hans/50024/](https://news.guo.media/zh-hans/50024/ "https://news.guo.media/zh-hans/50024/")
+
+[https://www.guo.media/posts/259142](https://www.guo.media/posts/259142) `2019-12-10T22:55:11`
+##
+
+**milesguo** 【寻人启事】71岁男子潘立祥失踪，请大家帮忙寻找<br>[https://news.guo.media/zh-hans/50017/](https://news.guo.media/zh-hans/50017/ "https://news.guo.media/zh-hans/50017/")
+
+[https://www.guo.media/posts/259140](https://www.guo.media/posts/259140) `2019-12-10T22:55:14`
+##
+
 **milesguo** “老大哥”垂死挣扎，土共推行铁路全过程信息化<br>[https://news.guo.media/zh-hans/50006/](https://news.guo.media/zh-hans/50006/ "https://news.guo.media/zh-hans/50006/")
 
 [https://www.guo.media/posts/259139](https://www.guo.media/posts/259139) `2019-12-10T22:40:11`
