@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 林郑月娥本周六赴京向中共汇报工作<br>[https://news.guo.media/zh-hans/50105/](https://news.guo.media/zh-hans/50105/ "https://news.guo.media/zh-hans/50105/")
+
+[https://www.guo.media/posts/259156](https://www.guo.media/posts/259156) `2019-12-10T23:55:11`
+##
+
+**milesguo** 一男一女手足被捕！请各位战友广传避免被消失<br>[https://news.guo.media/zh-hans/50092/](https://news.guo.media/zh-hans/50092/ "https://news.guo.media/zh-hans/50092/")
+
+[https://www.guo.media/posts/259155](https://www.guo.media/posts/259155) `2019-12-10T23:55:14`
+##
+
+**milesguo** 爆料革命下马上出现的袁世凯和华盛顿<br>[https://news.guo.media/zh-hans/50078/](https://news.guo.media/zh-hans/50078/ "https://news.guo.media/zh-hans/50078/")
+
+[https://www.guo.media/posts/259154](https://www.guo.media/posts/259154) `2019-12-10T23:55:18`
+##
+
+**milesguo** 来一场穿越时空的对话——问答中共新华社<br>[https://news.guo.media/zh-hans/50040/](https://news.guo.media/zh-hans/50040/ "https://news.guo.media/zh-hans/50040/")
+
+[https://www.guo.media/posts/259153](https://www.guo.media/posts/259153) `2019-12-10T23:55:21`
+##
+
 **milesguo** 文字版2019年12月8日文贵报平安<br>[https://news.guo.media/zh-hans/50024/](https://news.guo.media/zh-hans/50024/ "https://news.guo.media/zh-hans/50024/")
 
 [https://www.guo.media/posts/259142](https://www.guo.media/posts/259142) `2019-12-10T22:55:11`
