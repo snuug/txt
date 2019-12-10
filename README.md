@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** “老大哥”垂死挣扎，土共推行铁路全过程信息化<br>[https://news.guo.media/zh-hans/50006/](https://news.guo.media/zh-hans/50006/ "https://news.guo.media/zh-hans/50006/")
+
+[https://www.guo.media/posts/259139](https://www.guo.media/posts/259139) `2019-12-10T22:40:11`
+##
+
+**milesguo** 面具先生：深挖禽伪平！一个让龚火鸡忘恩负义只能排第二的畜生！<br>[https://news.guo.media/zh-hans/49988/](https://news.guo.media/zh-hans/49988/ "https://news.guo.media/zh-hans/49988/")
+
+[https://www.guo.media/posts/259138](https://www.guo.media/posts/259138) `2019-12-10T22:40:14`
+##
+
+**milesguo** 视频：12月9日郭文贵先生第二次直播: 爆王健彩色尸体照片！王健短裤！喊话王家跟美国政府合作！<br>[https://news.guo.media/zh-hans/49926/](https://news.guo.media/zh-hans/49926/ "https://news.guo.media/zh-hans/49926/")
+
+[https://www.guo.media/posts/259137](https://www.guo.media/posts/259137) `2019-12-10T22:40:17`
+##
+
+**milesguo** 12月9日 美国政要推文精选<br>[https://news.guo.media/zh-hans/49932/](https://news.guo.media/zh-hans/49932/ "https://news.guo.media/zh-hans/49932/")
+
+[https://www.guo.media/posts/259136](https://www.guo.media/posts/259136) `2019-12-10T22:40:20`
+##
+
+**milesguo** 世界人权宣言！保障人权，人人有责<br>[https://news.guo.media/zh-hans/49920/](https://news.guo.media/zh-hans/49920/ "https://news.guo.media/zh-hans/49920/")
+
+[https://www.guo.media/posts/259135](https://www.guo.media/posts/259135) `2019-12-10T22:40:23`
+##
+
+**milesguo** 时间沙漏！“生命”无关大小，每个都紧密相连<br>[https://news.guo.media/zh-hans/49768/](https://news.guo.media/zh-hans/49768/ "https://news.guo.media/zh-hans/49768/")
+
+[https://www.guo.media/posts/259134](https://www.guo.media/posts/259134) `2019-12-10T22:40:26`
+##
+
+**milesguo** 七日内分五次帮储户提取5万美金 中银河北承德分行挨罚！！！<br>[https://news.guo.media/zh-hans/49806/](https://news.guo.media/zh-hans/49806/ "https://news.guo.media/zh-hans/49806/")
+
+[https://www.guo.media/posts/259133](https://www.guo.media/posts/259133) `2019-12-10T22:40:29`
+##
+
 **milesguo** Highlights of Miles Guo’s First Live Broadcast on 12/09/2019<br>[https://news.guo.media/50382/](https://news.guo.media/50382/ "https://news.guo.media/50382/")
 
 [https://www.guo.media/posts/259093](https://www.guo.media/posts/259093) `2019-12-10T19:55:11`
