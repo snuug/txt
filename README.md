@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国政府启动两种“大炮”镇压香港示威<br>[https://news.guo.media/zh-hans/50321/](https://news.guo.media/zh-hans/50321/ "https://news.guo.media/zh-hans/50321/")
+
+[https://www.guo.media/posts/259049](https://www.guo.media/posts/259049) `2019-12-10T16:10:11`
+##
+
 **milesguo** 中共加速灭亡,竟下令政府机关电脑软硬件“去洋化”<br>[https://news.guo.media/zh-hans/50309/](https://news.guo.media/zh-hans/50309/ "https://news.guo.media/zh-hans/50309/")
 
 [https://www.guo.media/posts/259044](https://www.guo.media/posts/259044) `2019-12-10T15:40:11`
