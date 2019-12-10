@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Opening Video of 2019 Reagan National Defense Forum<br>[https://news.guo.media/50244/](https://news.guo.media/50244/ "https://news.guo.media/50244/")
+
+[https://www.guo.media/posts/259089](https://www.guo.media/posts/259089) `2019-12-10T19:40:10`
+##
+
+**milesguo** [China] His Wife “Hanged Herself” after CCP Official Under Investigation<br>[https://news.guo.media/50055/](https://news.guo.media/50055/ "https://news.guo.media/50055/")
+
+[https://www.guo.media/posts/259087](https://www.guo.media/posts/259087) `2019-12-10T19:40:14`
+##
+
+**milesguo** Miles Guo: Guo Media was hacked, the donation information on the Gpost is fake, don’t be tricked<br>[https://news.guo.media/49544/](https://news.guo.media/49544/ "https://news.guo.media/49544/")
+
+[https://www.guo.media/posts/259086](https://www.guo.media/posts/259086) `2019-12-10T19:40:17`
+##
+
+**milesguo** Steve Bannon: Trump does not need the CCP to help American economy<br>[https://news.guo.media/49537/](https://news.guo.media/49537/ "https://news.guo.media/49537/")
+
+[https://www.guo.media/posts/259085](https://www.guo.media/posts/259085) `2019-12-10T19:40:20`
+##
+
+**milesguo** Chinese say No while CCP Advocates Nationalism!<br>[https://news.guo.media/49424/](https://news.guo.media/49424/ "https://news.guo.media/49424/")
+
+[https://www.guo.media/posts/259084](https://www.guo.media/posts/259084) `2019-12-10T19:40:23`
+##
+
+**milesguo** 共产党绞肉机开启，落马官员被调查，随后其妻京城名伶姜亦珊“被”家中自缢?<br>[https://news.guo.media/zh-hans/49792/](https://news.guo.media/zh-hans/49792/ "https://news.guo.media/zh-hans/49792/")
+
+[https://www.guo.media/posts/259083](https://www.guo.media/posts/259083) `2019-12-10T19:40:25`
+##
+
 **milesguo** 共产党的病毒原理以及爱与创造<br>[https://news.guo.media/zh-hans/49776/](https://news.guo.media/zh-hans/49776/ "https://news.guo.media/zh-hans/49776/")
 
 [https://www.guo.media/posts/259082](https://www.guo.media/posts/259082) `2019-12-10T19:25:11`
