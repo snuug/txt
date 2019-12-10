@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s First Live Broadcast on 12/09/2019<br>[https://news.guo.media/50382/](https://news.guo.media/50382/ "https://news.guo.media/50382/")
+
+[https://www.guo.media/posts/259093](https://www.guo.media/posts/259093) `2019-12-10T19:55:11`
+##
+
+**milesguo** Beijing orders governmental offices to replace all foreign computer equipment and software<br>[https://news.guo.media/50248/](https://news.guo.media/50248/ "https://news.guo.media/50248/")
+
+[https://www.guo.media/posts/259092](https://www.guo.media/posts/259092) `2019-12-10T19:55:14`
+##
+
+**milesguo** Breaking News: Miles Guo released the photos of Wang Jian’s death, Wang Qishan had another kidney transplant<br>[https://news.guo.media/50270/](https://news.guo.media/50270/ "https://news.guo.media/50270/")
+
+[https://www.guo.media/posts/259091](https://www.guo.media/posts/259091) `2019-12-10T19:55:17`
+##
+
+**milesguo** Hong Kong Police Sexual Violence: Nazi Behavior<br>[https://news.guo.media/50246/](https://news.guo.media/50246/ "https://news.guo.media/50246/")
+
+[https://www.guo.media/posts/259090](https://www.guo.media/posts/259090) `2019-12-10T19:55:20`
+##
+
 **milesguo** Opening Video of 2019 Reagan National Defense Forum<br>[https://news.guo.media/50244/](https://news.guo.media/50244/ "https://news.guo.media/50244/")
 
 [https://www.guo.media/posts/259089](https://www.guo.media/posts/259089) `2019-12-10T19:40:10`
