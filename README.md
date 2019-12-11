@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 战友戏谈：我和王歧山副主席唠唠嗑<br>[https://news.guo.media/zh-hans/50917/](https://news.guo.media/zh-hans/50917/ "https://news.guo.media/zh-hans/50917/")
+
+[https://www.guo.media/posts/259299](https://www.guo.media/posts/259299) `2019-12-11T07:40:11`
+##
+
+**milesguo** 12月10日 美国政要推文精选<br>[https://news.guo.media/zh-hans/50783/](https://news.guo.media/zh-hans/50783/ "https://news.guo.media/zh-hans/50783/")
+
+[https://www.guo.media/posts/259298](https://www.guo.media/posts/259298) `2019-12-11T07:40:15`
+##
+
+**milesguo** 共产党的杰作—中国进入滞涨时代<br>[https://news.guo.media/zh-hans/50813/](https://news.guo.media/zh-hans/50813/ "https://news.guo.media/zh-hans/50813/")
+
+[https://www.guo.media/posts/259297](https://www.guo.media/posts/259297) `2019-12-11T07:40:18`
+##
+
+**milesguo** 衡水保利炸啦！欺骗业主，要求退房<br>[https://news.guo.media/zh-hans/50748/](https://news.guo.media/zh-hans/50748/ "https://news.guo.media/zh-hans/50748/")
+
+[https://www.guo.media/posts/259296](https://www.guo.media/posts/259296) `2019-12-11T07:40:22`
+##
+
+**milesguo** 文字版2019年12月9日上午郭文贵先生报平安直播<br>[https://news.guo.media/zh-hans/50732/](https://news.guo.media/zh-hans/50732/ "https://news.guo.media/zh-hans/50732/")
+
+[https://www.guo.media/posts/259294](https://www.guo.media/posts/259294) `2019-12-11T07:40:25`
+##
+
 **milesguo** 一封迟到的信《被捕抗争者给香港人的公开信》<br>[https://news.guo.media/zh-hans/50711/](https://news.guo.media/zh-hans/50711/ "https://news.guo.media/zh-hans/50711/")
 
 [https://www.guo.media/posts/259278](https://www.guo.media/posts/259278) `2019-12-11T05:40:12`
