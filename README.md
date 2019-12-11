@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Letter From Mainland: To My Dear Hongkongers<br>[https://news.guo.media/51102/](https://news.guo.media/51102/ "https://news.guo.media/51102/")
+
+[https://www.guo.media/posts/259410](https://www.guo.media/posts/259410) `2019-12-11T20:40:11`
+##
+
+**milesguo** [China]CCP Punished a Bank for letting individuals withdraw USD<br>[https://news.guo.media/50675/](https://news.guo.media/50675/ "https://news.guo.media/50675/")
+
+[https://www.guo.media/posts/259409](https://www.guo.media/posts/259409) `2019-12-11T20:40:14`
+##
+
+**milesguo** Two Canadian have been detained in China for one year: Michael Kovrig & Michael Spavor<br>[https://news.guo.media/50770/](https://news.guo.media/50770/ "https://news.guo.media/50770/")
+
+[https://www.guo.media/posts/259408](https://www.guo.media/posts/259408) `2019-12-11T20:40:17`
+##
+
+**milesguo** Sweden’s ex-ambassador to China charged for her role in HK kidnap case<br>[https://news.guo.media/50738/](https://news.guo.media/50738/ "https://news.guo.media/50738/")
+
+[https://www.guo.media/posts/259407](https://www.guo.media/posts/259407) `2019-12-11T20:40:20`
+##
+
+**milesguo** <br>Hong Kong: The International Human Rights Day • On Day Assembly<br>[https://news.guo.media/50607/](https://news.guo.media/50607/ "https://news.guo.media/50607/")
+
+[https://www.guo.media/posts/259406](https://www.guo.media/posts/259406) `2019-12-11T20:40:23`
+##
+
 **milesguo** WTO上诉机构停摆 中共大使表演“耍流氓”<br>[https://news.guo.media/zh-hans/51004/](https://news.guo.media/zh-hans/51004/ "https://news.guo.media/zh-hans/51004/")
 
 [https://www.guo.media/posts/259393](https://www.guo.media/posts/259393) `2019-12-11T17:10:11`
