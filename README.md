@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国国会将出国防授权法案重拳打击中共<br>[https://news.guo.media/zh-hans/50464/](https://news.guo.media/zh-hans/50464/ "https://news.guo.media/zh-hans/50464/")
+
+[https://www.guo.media/posts/259176](https://www.guo.media/posts/259176) `2019-12-11T01:10:10`
+##
+
 **milesguo** 广播：2019/12/9郭文贵先生直播爆料王建彩色尸体照片！王健短裤！喊话王家跟美国政府合作！<br>[https://news.guo.media/zh-hans/50201/](https://news.guo.media/zh-hans/50201/ "https://news.guo.media/zh-hans/50201/") 
 
 [https://www.guo.media/posts/259166](https://www.guo.media/posts/259166) `2019-12-11T00:10:10`
