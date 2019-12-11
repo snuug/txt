@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 浅谈中国留学生组织 – CCP是如何在海外渗透学生学者群体的<br>[https://news.guo.media/zh-hans/50289/](https://news.guo.media/zh-hans/50289/ "https://news.guo.media/zh-hans/50289/")
+
+[https://www.guo.media/posts/259185](https://www.guo.media/posts/259185) `2019-12-11T01:40:11`
+##
+
+**milesguo** 中共国通胀创8年新高，这可是涂脂抹粉的“官方数据”<br>[https://news.guo.media/zh-hans/50256/](https://news.guo.media/zh-hans/50256/ "https://news.guo.media/zh-hans/50256/")
+
+[https://www.guo.media/posts/259184](https://www.guo.media/posts/259184) `2019-12-11T01:40:14`
+##
+
+**milesguo** 2019年“里根国防论坛”开场视频<br>[https://news.guo.media/zh-hans/50213/](https://news.guo.media/zh-hans/50213/ "https://news.guo.media/zh-hans/50213/")
+
+[https://www.guo.media/posts/259183](https://www.guo.media/posts/259183) `2019-12-11T01:40:17`
+##
+
+**milesguo** 美国大使2019年国际人权日声明<br>[https://news.guo.media/zh-hans/50221/](https://news.guo.media/zh-hans/50221/ "https://news.guo.media/zh-hans/50221/")
+
+[https://www.guo.media/posts/259180](https://www.guo.media/posts/259180) `2019-12-11T01:40:20`
+##
+
 **milesguo** 美国国会将出国防授权法案重拳打击中共<br>[https://news.guo.media/zh-hans/50464/](https://news.guo.media/zh-hans/50464/ "https://news.guo.media/zh-hans/50464/")
 
 [https://www.guo.media/posts/259176](https://www.guo.media/posts/259176) `2019-12-11T01:10:10`
