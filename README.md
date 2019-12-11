@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共机密不断外泄 中共高层内斗白日化<br>[https://news.guo.media/zh-hans/50580/](https://news.guo.media/zh-hans/50580/ "https://news.guo.media/zh-hans/50580/")
+
+[https://www.guo.media/posts/259221](https://www.guo.media/posts/259221) `2019-12-11T02:25:10`
+##
+
+**milesguo** 时代革命半年纪！港人将在爱丁堡广场纪念<br>[https://news.guo.media/zh-hans/50540/](https://news.guo.media/zh-hans/50540/ "https://news.guo.media/zh-hans/50540/")
+
+[https://www.guo.media/posts/259219](https://www.guo.media/posts/259219) `2019-12-11T02:25:14`
+##
+
+**milesguo** CCP Promotes 37 Generals In Chinese Armed Police To Maintain Social Stability<br>[https://news.guo.media/50558/](https://news.guo.media/50558/ "https://news.guo.media/50558/")
+
+[https://www.guo.media/posts/259218](https://www.guo.media/posts/259218) `2019-12-11T02:25:17`
+##
+
+**milesguo** THE TRUE STORY BEHIND STRATEGIC VISION US LLC<br>[https://news.guo.media/50457/](https://news.guo.media/50457/ "https://news.guo.media/50457/")
+
+[https://www.guo.media/posts/259217](https://www.guo.media/posts/259217) `2019-12-11T02:25:20`
+##
+
 **milesguo** 禁蒙面法即刻失效：香港高院驳回政府上诉<br>[https://news.guo.media/zh-hans/50518/](https://news.guo.media/zh-hans/50518/ "https://news.guo.media/zh-hans/50518/")
 
 [https://www.guo.media/posts/259214](https://www.guo.media/posts/259214) `2019-12-11T02:10:10`
