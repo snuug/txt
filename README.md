@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/9郭文贵先生直播爆料王建彩色尸体照片！王健短裤！喊话王家跟美国政府合作！<br>[https://news.guo.media/zh-hans/50201/](https://news.guo.media/zh-hans/50201/ "https://news.guo.media/zh-hans/50201/") 
+
+[https://www.guo.media/posts/259166](https://www.guo.media/posts/259166) `2019-12-11T00:10:10`
+##
+
+**milesguo** 世银借中国的钱去哪了？郭文贵大爆惊人内幕!<br>[https://news.guo.media/zh-hans/50180/](https://news.guo.media/zh-hans/50180/ "https://news.guo.media/zh-hans/50180/")
+
+[https://www.guo.media/posts/259165](https://www.guo.media/posts/259165) `2019-12-11T00:10:14`
+##
+
+**milesguo** 台湾2020年汉光演习电脑兵棋推演 台美军事通报机制确立 印太司令部首度直接派连络官参与并登台<br>[https://news.guo.media/zh-hans/50161/](https://news.guo.media/zh-hans/50161/ "https://news.guo.media/zh-hans/50161/")
+
+[https://www.guo.media/posts/259162](https://www.guo.media/posts/259162) `2019-12-11T00:10:17`
+##
+
+**milesguo** 旺角居民变活靶子，黑警肆意射击<br>[https://news.guo.media/zh-hans/50136/](https://news.guo.media/zh-hans/50136/ "https://news.guo.media/zh-hans/50136/")
+
+[https://www.guo.media/posts/259159](https://www.guo.media/posts/259159) `2019-12-11T00:10:20`
+##
+
 **milesguo** 林郑月娥本周六赴京向中共汇报工作<br>[https://news.guo.media/zh-hans/50105/](https://news.guo.media/zh-hans/50105/ "https://news.guo.media/zh-hans/50105/")
 
 [https://www.guo.media/posts/259156](https://www.guo.media/posts/259156) `2019-12-10T23:55:11`
