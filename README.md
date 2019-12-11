@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Constant Leak of CCP’s Secret With Escalated Infighting At Top Level<br>[https://news.guo.media/50603/](https://news.guo.media/50603/ "https://news.guo.media/50603/")
+
+[https://www.guo.media/posts/259235](https://www.guo.media/posts/259235) `2019-12-11T02:55:11`
+##
+
 **milesguo** 中共机密不断外泄 中共高层内斗白日化<br>[https://news.guo.media/zh-hans/50580/](https://news.guo.media/zh-hans/50580/ "https://news.guo.media/zh-hans/50580/")
 
 [https://www.guo.media/posts/259221](https://www.guo.media/posts/259221) `2019-12-11T02:25:10`
