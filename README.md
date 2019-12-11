@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** Communist claims to have earned unanimous praise worldwide on its contribution to human rights<br>[https://news.guo.media/51269/](https://news.guo.media/51269/ "https://news.guo.media/51269/")
+
+[https://www.guo.media/posts/259419](https://www.guo.media/posts/259419) `2019-12-11T20:55:11`
+##
+
+**milesguo** Miles Guo: The CCP will threaten more Hong Kongers<br>[https://news.guo.media/51261/](https://news.guo.media/51261/ "https://news.guo.media/51261/")
+
+[https://www.guo.media/posts/259418](https://www.guo.media/posts/259418) `2019-12-11T20:55:15`
+##
+
+**milesguo** Weekly Highlights of Miles Guo’s Live Broadcast (Dec 3-6)<br>[https://news.guo.media/51246/](https://news.guo.media/51246/ "https://news.guo.media/51246/")
+
+[https://www.guo.media/posts/259417](https://www.guo.media/posts/259417) `2019-12-11T20:55:18`
+##
+
+**milesguo** Weekly Highlights of Miles Guo’s Live Broadcast (Nov 21-27)<br>[https://news.guo.media/51240/](https://news.guo.media/51240/ "https://news.guo.media/51240/")
+
+[https://www.guo.media/posts/259416](https://www.guo.media/posts/259416) `2019-12-11T20:55:21`
+##
+
+**milesguo** A Hong Kong District Councilor Was Refused Entry Into the Mainland<br>[https://news.guo.media/51224/](https://news.guo.media/51224/ "https://news.guo.media/51224/")
+
+[https://www.guo.media/posts/259415](https://www.guo.media/posts/259415) `2019-12-11T20:55:24`
+##
+
+**milesguo** Wang Jian was murdered by people closest to him!<br>[https://news.guo.media/51226/](https://news.guo.media/51226/ "https://news.guo.media/51226/")
+
+[https://www.guo.media/posts/259413](https://www.guo.media/posts/259413) `2019-12-11T20:55:27`
+##
+
+**milesguo** The Farm: CCP Espionage and Spycraft, The Infiltration of Interpol<br>[https://news.guo.media/50927/](https://news.guo.media/50927/ "https://news.guo.media/50927/")
+
+[https://www.guo.media/posts/259412](https://www.guo.media/posts/259412) `2019-12-11T20:55:30`
+##
+
 **milesguo** Letter From Mainland: To My Dear Hongkongers<br>[https://news.guo.media/51102/](https://news.guo.media/51102/ "https://news.guo.media/51102/")
 
 [https://www.guo.media/posts/259410](https://www.guo.media/posts/259410) `2019-12-11T20:40:11`
