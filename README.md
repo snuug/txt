@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 禁蒙面法即刻失效：香港高院驳回政府上诉<br>[https://news.guo.media/zh-hans/50518/](https://news.guo.media/zh-hans/50518/ "https://news.guo.media/zh-hans/50518/")
+
+[https://www.guo.media/posts/259214](https://www.guo.media/posts/259214) `2019-12-11T02:10:10`
+##
+
+**milesguo** 港人金钟再集会！高举时代革命和美国国旗<br>[https://news.guo.media/zh-hans/50480/](https://news.guo.media/zh-hans/50480/ "https://news.guo.media/zh-hans/50480/")
+
+[https://www.guo.media/posts/259212](https://www.guo.media/posts/259212) `2019-12-11T02:10:14`
+##
+
+**milesguo** 何君尧配合中共党媒撒谎<br>[https://news.guo.media/zh-hans/50465/](https://news.guo.media/zh-hans/50465/ "https://news.guo.media/zh-hans/50465/")
+
+[https://www.guo.media/posts/259210](https://www.guo.media/posts/259210) `2019-12-11T02:10:18`
+##
+
+**milesguo** 中共捐赠的“假大空”<br>[https://news.guo.media/zh-hans/50442/](https://news.guo.media/zh-hans/50442/ "https://news.guo.media/zh-hans/50442/")
+
+[https://www.guo.media/posts/259209](https://www.guo.media/posts/259209) `2019-12-11T02:10:21`
+##
+
+**milesguo** 详解中国经济困局：信贷无法刺激增长<br>[https://news.guo.media/zh-hans/50440/](https://news.guo.media/zh-hans/50440/ "https://news.guo.media/zh-hans/50440/")
+
+[https://www.guo.media/posts/259208](https://www.guo.media/posts/259208) `2019-12-11T02:10:24`
+##
+
+**milesguo** 12月9日香港要闻：港人抗争半年 坚持五大要求；驱除共党光复香港，文贵说「将迎来一个没有共产党的新中国」<br>[https://news.guo.media/zh-hans/50395/](https://news.guo.media/zh-hans/50395/ "https://news.guo.media/zh-hans/50395/")
+
+[https://www.guo.media/posts/259207](https://www.guo.media/posts/259207) `2019-12-11T02:10:27`
+##
+
 **milesguo** 川普总统和蓬佩奥国务卿周二与拉夫罗夫举行会面并讨论将中国纳入军控范围<br>[https://news.guo.media/zh-hans/50385/](https://news.guo.media/zh-hans/50385/ "https://news.guo.media/zh-hans/50385/")
 
 [https://www.guo.media/posts/259202](https://www.guo.media/posts/259202) `2019-12-11T01:55:11`
