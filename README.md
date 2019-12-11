@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 周二美俄外长联合记者会戳破中共“军事强国”的谎话<br>[https://news.guo.media/zh-hans/51297/](https://news.guo.media/zh-hans/51297/ "https://news.guo.media/zh-hans/51297/")
+
+[https://www.guo.media/posts/259422](https://www.guo.media/posts/259422) `2019-12-11T21:40:12`
+##
+
 **milesguo** Communist claims to have earned unanimous praise worldwide on its contribution to human rights<br>[https://news.guo.media/51269/](https://news.guo.media/51269/ "https://news.guo.media/51269/")
 
 [https://www.guo.media/posts/259419](https://www.guo.media/posts/259419) `2019-12-11T20:55:11`
