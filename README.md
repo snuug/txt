@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 手脚被砍断港警还能判定是自杀!? 台湾发型设计师爆料跟香港老客人对话 香港黑警只手遮天 香港人民惨况<br>[https://news.guo.media/zh-hans/51109/](https://news.guo.media/zh-hans/51109/ "https://news.guo.media/zh-hans/51109/")
+
+[https://www.guo.media/posts/259444](https://www.guo.media/posts/259444) `2019-12-11T23:55:11`
+##
+
+**milesguo** 清理中共代言人！传「他」被美国盯上 香港亲共人士恐慌 怕被西方国家清算<br>[https://news.guo.media/zh-hans/51095/](https://news.guo.media/zh-hans/51095/ "https://news.guo.media/zh-hans/51095/")
+
+[https://www.guo.media/posts/259443](https://www.guo.media/posts/259443) `2019-12-11T23:55:15`
+##
+
+**milesguo** 广播：2019/12/11郭文贵先生直播 王建之死的真相引发国内巨大反响<br>[https://news.guo.media/zh-hans/51078/](https://news.guo.media/zh-hans/51078/ "https://news.guo.media/zh-hans/51078/")
+
+[https://www.guo.media/posts/259442](https://www.guo.media/posts/259442) `2019-12-11T23:55:18`
+##
+
 **milesguo** 面具先生：从郭文贵先生爆料绝密中的绝密文件！看郭先生28年的准备和灭共的决心<br>[https://news.guo.media/zh-hans/51069/](https://news.guo.media/zh-hans/51069/ "https://news.guo.media/zh-hans/51069/")
 
 [https://www.guo.media/posts/259441](https://www.guo.media/posts/259441) `2019-12-11T23:40:10`
