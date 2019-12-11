@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 川普总统和蓬佩奥国务卿周二与拉夫罗夫举行会面并讨论将中国纳入军控范围<br>[https://news.guo.media/zh-hans/50385/](https://news.guo.media/zh-hans/50385/ "https://news.guo.media/zh-hans/50385/")
+
+[https://www.guo.media/posts/259202](https://www.guo.media/posts/259202) `2019-12-11T01:55:11`
+##
+
+**milesguo** 2019年12月9日郭文贵先生关于“王健之死”直播摘要<br>[https://news.guo.media/zh-hans/50362/](https://news.guo.media/zh-hans/50362/ "https://news.guo.media/zh-hans/50362/")
+
+[https://www.guo.media/posts/259199](https://www.guo.media/posts/259199) `2019-12-11T01:55:15`
+##
+
 **milesguo** 浅谈中国留学生组织 – CCP是如何在海外渗透学生学者群体的<br>[https://news.guo.media/zh-hans/50289/](https://news.guo.media/zh-hans/50289/ "https://news.guo.media/zh-hans/50289/")
 
 [https://www.guo.media/posts/259185](https://www.guo.media/posts/259185) `2019-12-11T01:40:11`
