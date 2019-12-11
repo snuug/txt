@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 面具先生：从郭文贵先生爆料绝密中的绝密文件！看郭先生28年的准备和灭共的决心<br>[https://news.guo.media/zh-hans/51069/](https://news.guo.media/zh-hans/51069/ "https://news.guo.media/zh-hans/51069/")
+
+[https://www.guo.media/posts/259441](https://www.guo.media/posts/259441) `2019-12-11T23:40:10`
+##
+
+**milesguo** 香港监警会国际专家「集体辞职」打脸林郑月娥!<br>[https://news.guo.media/zh-hans/51062/](https://news.guo.media/zh-hans/51062/ "https://news.guo.media/zh-hans/51062/")
+
+[https://www.guo.media/posts/259440](https://www.guo.media/posts/259440) `2019-12-11T23:40:14`
+##
+
+**milesguo** 赤祼祼的舆论操控，评新华社文章《国际社会谴责美国国会众议院通过涉疆法案 》<br>[https://news.guo.media/zh-hans/51042/](https://news.guo.media/zh-hans/51042/ "https://news.guo.media/zh-hans/51042/")
+
+[https://www.guo.media/posts/259439](https://www.guo.media/posts/259439) `2019-12-11T23:40:17`
+##
+
+**milesguo** WTO上诉机构停摆 中共大使表演“耍流氓”<br>[https://news.guo.media/zh-hans/51004/](https://news.guo.media/zh-hans/51004/ "https://news.guo.media/zh-hans/51004/")
+
+[https://www.guo.media/posts/259438](https://www.guo.media/posts/259438) `2019-12-11T23:40:20`
+##
+
+**milesguo** “碰瓷”团伙牵出公安局党委副书记和人大代表性侵未成年少女<br>[https://news.guo.media/zh-hans/50981/](https://news.guo.media/zh-hans/50981/ "https://news.guo.media/zh-hans/50981/")
+
+[https://www.guo.media/posts/259437](https://www.guo.media/posts/259437) `2019-12-11T23:40:23`
+##
+
+**milesguo** 广州地陷遇难者家属曝料：当地政府为了快速处理直接活埋父亲和丈夫！<br>[https://news.guo.media/zh-hans/50948/](https://news.guo.media/zh-hans/50948/ "https://news.guo.media/zh-hans/50948/")
+
+[https://www.guo.media/posts/259436](https://www.guo.media/posts/259436) `2019-12-11T23:40:26`
+##
+
+**milesguo** “让领导先走”—纪念新疆克拉玛依12.8大火罹难者<br>[https://news.guo.media/zh-hans/50725/](https://news.guo.media/zh-hans/50725/ "https://news.guo.media/zh-hans/50725/")
+
+[https://www.guo.media/posts/259435](https://www.guo.media/posts/259435) `2019-12-11T23:40:29`
+##
+
 **milesguo** 12月10号，卢比奥演讲: 美国的目标当然不是阻止中国的崛起<br>[https://news.guo.media/zh-hans/51013/](https://news.guo.media/zh-hans/51013/ "https://news.guo.media/zh-hans/51013/")
 
 [https://www.guo.media/posts/259432](https://www.guo.media/posts/259432) `2019-12-11T23:25:11`
