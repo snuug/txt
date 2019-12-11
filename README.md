@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 一封迟到的信《被捕抗争者给香港人的公开信》<br>[https://news.guo.media/zh-hans/50711/](https://news.guo.media/zh-hans/50711/ "https://news.guo.media/zh-hans/50711/")
+
+[https://www.guo.media/posts/259278](https://www.guo.media/posts/259278) `2019-12-11T05:40:12`
+##
+
+**milesguo** 寒冬已到，“京东”强, “国民”聪和贾跃亭的棉裤要穿好<br>[https://news.guo.media/zh-hans/50613/](https://news.guo.media/zh-hans/50613/ "https://news.guo.media/zh-hans/50613/")
+
+[https://www.guo.media/posts/259277](https://www.guo.media/posts/259277) `2019-12-11T05:40:15`
+##
+
+**milesguo** 访民人权日前夕到美使馆参加活动，多人被公安带走<br>[https://news.guo.media/zh-hans/50569/](https://news.guo.media/zh-hans/50569/ "https://news.guo.media/zh-hans/50569/")
+
+[https://www.guo.media/posts/259276](https://www.guo.media/posts/259276) `2019-12-11T05:40:18`
+##
+
+**milesguo** 斯伯丁将军一眼看穿 中共的经济模式<br>[https://news.guo.media/zh-hans/50579/](https://news.guo.media/zh-hans/50579/ "https://news.guo.media/zh-hans/50579/")
+
+[https://www.guo.media/posts/259274](https://www.guo.media/posts/259274) `2019-12-11T05:40:22`
+##
+
 **milesguo** Constant Leak of CCP’s Secret With Escalated Infighting At Top Level<br>[https://news.guo.media/50603/](https://news.guo.media/50603/ "https://news.guo.media/50603/")
 
 [https://www.guo.media/posts/259235](https://www.guo.media/posts/259235) `2019-12-11T02:55:11`
