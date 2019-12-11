@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** WTO上诉机构停摆 中共大使表演“耍流氓”<br>[https://news.guo.media/zh-hans/51004/](https://news.guo.media/zh-hans/51004/ "https://news.guo.media/zh-hans/51004/")
+
+[https://www.guo.media/posts/259393](https://www.guo.media/posts/259393) `2019-12-11T17:10:11`
+##
+
+**milesguo** 12月10号，卢比奥演讲: 美国的目标当然不是阻止中国的崛起<br>[https://news.guo.media/zh-hans/51013/](https://news.guo.media/zh-hans/51013/ "https://news.guo.media/zh-hans/51013/")
+
+[https://www.guo.media/posts/259392](https://www.guo.media/posts/259392) `2019-12-11T17:10:14`
+##
+
+**milesguo** “碰瓷”团伙牵出公安局党委副书记和人大代表性侵未成年少女<br>[https://news.guo.media/zh-hans/50981/](https://news.guo.media/zh-hans/50981/ "https://news.guo.media/zh-hans/50981/") 
+
+[https://www.guo.media/posts/259391](https://www.guo.media/posts/259391) `2019-12-11T17:10:18`
+##
+
+**milesguo** 广州地陷遇难者家属曝料：当地政府为了快速处理直接活埋父亲和丈夫！<br>[https://news.guo.media/zh-hans/50948/](https://news.guo.media/zh-hans/50948/ "https://news.guo.media/zh-hans/50948/")
+
+[https://www.guo.media/posts/259390](https://www.guo.media/posts/259390) `2019-12-11T17:10:21`
+##
+
+**milesguo** “让领导先走”—纪念新疆克拉玛依12.8大火罹难者<br>[https://news.guo.media/zh-hans/50725/](https://news.guo.media/zh-hans/50725/ "https://news.guo.media/zh-hans/50725/")
+
+[https://www.guo.media/posts/259389](https://www.guo.media/posts/259389) `2019-12-11T17:10:24`
+##
+
 **milesguo** 12月11号文贵报平安直播：尊敬的战友们好！你们健身了吗你们传播香港危机真相了吗？一切都是刚刚开始！
 
 [https://www.guo.media/posts/259345](https://www.guo.media/posts/259345) `2019-12-11T13:25:11`
