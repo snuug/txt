@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** [Shocking] The Farm: CCP Espionage and Spycraft, The “BGY” Program<br>[https://news.guo.media/51672/](https://news.guo.media/51672/ "https://news.guo.media/51672/")
+
+[https://www.guo.media/posts/259602](https://www.guo.media/posts/259602) `2019-12-12T14:25:11`
+##
+
+**milesguo** [China]Local Government Buried Road-Collapse Victims Alive<br>[https://news.guo.media/51376/](https://news.guo.media/51376/ "https://news.guo.media/51376/")
+
+[https://www.guo.media/posts/259601](https://www.guo.media/posts/259601) `2019-12-12T14:25:14`
+##
+
+**milesguo** The CCP Regime Took Side With Russia, Calling U.S.” dependency biggest nuclear risk”<br>[https://news.guo.media/51277/](https://news.guo.media/51277/ "https://news.guo.media/51277/")
+
+[https://www.guo.media/posts/259600](https://www.guo.media/posts/259600) `2019-12-12T14:25:17`
+##
+
 **milesguo** 布鲁塞尔大学关闭孔子学院<br>[https://news.guo.media/zh-hans/51737/](https://news.guo.media/zh-hans/51737/ "https://news.guo.media/zh-hans/51737/")
 
 [https://www.guo.media/posts/259559](https://www.guo.media/posts/259559) `2019-12-12T12:55:10`
