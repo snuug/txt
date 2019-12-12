@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 突发事件！厦门吕厝地铁2号线路面塌陷地铁水流成河<br>[https://news.guo.media/zh-hans/51933/](https://news.guo.media/zh-hans/51933/ "https://news.guo.media/zh-hans/51933/")
+
+[https://www.guo.media/posts/259663](https://www.guo.media/posts/259663) `2019-12-12T20:10:10`
+##
+
 **milesguo** 视频：12月12日郭文贵先生报平安直播：有大事情要发生啊，先来分享喜悦！<br>[https://news.guo.media/zh-hans/51972/](https://news.guo.media/zh-hans/51972/ "https://news.guo.media/zh-hans/51972/")
 
 [https://www.guo.media/posts/259660](https://www.guo.media/posts/259660) `2019-12-12T19:55:10`
