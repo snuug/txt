@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 12月11日 美国政要推文精选<br>[https://news.guo.media/zh-hans/51481/](https://news.guo.media/zh-hans/51481/ "https://news.guo.media/zh-hans/51481/")
+
+[https://www.guo.media/posts/259512](https://www.guo.media/posts/259512) `2019-12-12T06:40:10`
+##
+
+**milesguo** 老江观点：1:12.7, 人民币贬值的起点<br>[https://news.guo.media/zh-hans/51452/](https://news.guo.media/zh-hans/51452/ "https://news.guo.media/zh-hans/51452/")
+
+[https://www.guo.media/posts/259511](https://www.guo.media/posts/259511) `2019-12-12T06:40:13`
+##
+
+**milesguo** 美商务部长证实 中共把瘟猪肉给中国人吃！<br>[https://news.guo.media/zh-hans/51421/](https://news.guo.media/zh-hans/51421/ "https://news.guo.media/zh-hans/51421/")
+
+[https://www.guo.media/posts/259510](https://www.guo.media/posts/259510) `2019-12-12T06:40:16`
+##
+
+**milesguo** 全球自动灭共：加拿大在行动<br>[https://news.guo.media/zh-hans/51394/](https://news.guo.media/zh-hans/51394/ "https://news.guo.media/zh-hans/51394/")
+
+[https://www.guo.media/posts/259509](https://www.guo.media/posts/259509) `2019-12-12T06:40:19`
+##
+
+**milesguo** 文字版2019年12月9日郭文贵先生第二次直播：爆王健尸体的高清照片<br>[https://news.guo.media/zh-hans/51370/](https://news.guo.media/zh-hans/51370/ "https://news.guo.media/zh-hans/51370/")
+
+[https://www.guo.media/posts/259508](https://www.guo.media/posts/259508) `2019-12-12T06:40:22`
+##
+
+**milesguo** 12月10日香港要闻：林郑脑子进水，派公职耗公币酬庸败选奴才，倒行逆施与民为敌<br>[https://news.guo.media/zh-hans/51362/](https://news.guo.media/zh-hans/51362/ "https://news.guo.media/zh-hans/51362/")
+
+[https://www.guo.media/posts/259507](https://www.guo.media/posts/259507) `2019-12-12T06:40:25`
+##
+
 **milesguo** 教授还是禽兽？——北大博导与多人发生关系被举报，上财副教授性侵女学生遭开除<br>[https://news.guo.media/zh-hans/51338/](https://news.guo.media/zh-hans/51338/ "https://news.guo.media/zh-hans/51338/")
 
 [https://www.guo.media/posts/259506](https://www.guo.media/posts/259506) `2019-12-12T06:25:12`
