@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 布鲁塞尔大学关闭孔子学院<br>[https://news.guo.media/zh-hans/51737/](https://news.guo.media/zh-hans/51737/ "https://news.guo.media/zh-hans/51737/")
+
+[https://www.guo.media/posts/259559](https://www.guo.media/posts/259559) `2019-12-12T12:55:10`
+##
+
 **milesguo** 【翻译】<br>华盛顿邮报 比尔.格茨 12月09日:<br>“社会信用评分”：中国将推出“奥威尔式”大规模监测工具<br>[https://spark.adobe.com/page/HrKce5vCshbgK/](https://spark.adobe.com/page/HrKce5vCshbgK/ "https://spark.adobe.com/page/HrKce5vCshbgK/")<br>【秘密翻译组】
 
 [https://www.guo.media/posts/259530](https://www.guo.media/posts/259530) `2019-12-12T10:40:10`
