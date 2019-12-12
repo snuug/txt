@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>华盛顿邮报 比尔.格茨 12月09日:<br>“社会信用评分”：中国将推出“奥威尔式”大规模监测工具<br>[https://spark.adobe.com/page/HrKce5vCshbgK/](https://spark.adobe.com/page/HrKce5vCshbgK/ "https://spark.adobe.com/page/HrKce5vCshbgK/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/259530](https://www.guo.media/posts/259530) `2019-12-12T10:40:10`
+##
+
 **milesguo** 文字版2019年12月10日文贵报平安：共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡<br>[https://news.guo.media/zh-hans/51614/](https://news.guo.media/zh-hans/51614/ "https://news.guo.media/zh-hans/51614/")
 
 [https://www.guo.media/posts/259522](https://www.guo.media/posts/259522) `2019-12-12T09:25:09`
