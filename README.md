@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生一周直播精选（12月3日-6日）<br>[https://news.guo.media/zh-hans/51255/](https://news.guo.media/zh-hans/51255/ "https://news.guo.media/zh-hans/51255/")
+
+[https://www.guo.media/posts/259454](https://www.guo.media/posts/259454) `2019-12-12T00:40:11`
+##
+
+**milesguo** 郭文贵先生一周直播精选（11月21日-27日）<br>[https://news.guo.media/zh-hans/51253/](https://news.guo.media/zh-hans/51253/ "https://news.guo.media/zh-hans/51253/")
+
+[https://www.guo.media/posts/259453](https://www.guo.media/posts/259453) `2019-12-12T00:40:14`
+##
+
 **milesguo** 突发！中国铁路工程集团原党委常委段秀斌接受纪律审查和监察调查​​​​<br>[https://news.guo.media/zh-hans/51206/](https://news.guo.media/zh-hans/51206/ "https://news.guo.media/zh-hans/51206/")
 
 [https://www.guo.media/posts/259448](https://www.guo.media/posts/259448) `2019-12-12T00:10:11`
