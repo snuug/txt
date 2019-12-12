@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Foreign Ministry Spokesperson Hua Chunying Called US Ambassador “Too Stupid”<br>[https://news.guo.media/51895/](https://news.guo.media/51895/ "https://news.guo.media/51895/")
+
+[https://www.guo.media/posts/259646](https://www.guo.media/posts/259646) `2019-12-12T19:25:09`
+##
+
+**milesguo** Time Magazine Yields to Beijing: person of the year<br>[https://news.guo.media/51877/](https://news.guo.media/51877/ "https://news.guo.media/51877/")
+
+[https://www.guo.media/posts/259645](https://www.guo.media/posts/259645) `2019-12-12T19:25:12`
+##
+
 **milesguo** 12月12号：尊敬的战友们好．你们健身了吗？你们传播香港危机真相了吗？文贵在这分享，我夫人送给我的礼物．越野车．挖掘机。一切都是刚刚开始！
 
 [https://www.guo.media/posts/259621](https://www.guo.media/posts/259621) `2019-12-12T16:10:10`
