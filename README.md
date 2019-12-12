@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 突发！中国铁路工程集团原党委常委段秀斌接受纪律审查和监察调查​​​​<br>[https://news.guo.media/zh-hans/51206/](https://news.guo.media/zh-hans/51206/ "https://news.guo.media/zh-hans/51206/")
+
+[https://www.guo.media/posts/259448](https://www.guo.media/posts/259448) `2019-12-12T00:10:11`
+##
+
+**milesguo** 网友微信晒书被举报后遭到河北邯郸警察上门搜家<br>[https://news.guo.media/zh-hans/51158/](https://news.guo.media/zh-hans/51158/ "https://news.guo.media/zh-hans/51158/")
+
+[https://www.guo.media/posts/259447](https://www.guo.media/posts/259447) `2019-12-12T00:10:14`
+##
+
+**milesguo** 《我们守护的公义，不是一个已崩坏的象征——一群法律系学生及旧生回应大律师公会2019年12月9日之声明》<br>[https://news.guo.media/zh-hans/51153/](https://news.guo.media/zh-hans/51153/ "https://news.guo.media/zh-hans/51153/")
+
+[https://www.guo.media/posts/259446](https://www.guo.media/posts/259446) `2019-12-12T00:10:17`
+##
+
+**milesguo** 美国作家记者何伟任教四川大学疑似遭学生举报<br>[https://news.guo.media/zh-hans/51108/](https://news.guo.media/zh-hans/51108/ "https://news.guo.media/zh-hans/51108/")
+
+[https://www.guo.media/posts/259445](https://www.guo.media/posts/259445) `2019-12-12T00:10:20`
+##
+
 **milesguo** 手脚被砍断港警还能判定是自杀!? 台湾发型设计师爆料跟香港老客人对话 香港黑警只手遮天 香港人民惨况<br>[https://news.guo.media/zh-hans/51109/](https://news.guo.media/zh-hans/51109/ "https://news.guo.media/zh-hans/51109/")
 
 [https://www.guo.media/posts/259444](https://www.guo.media/posts/259444) `2019-12-11T23:55:11`
