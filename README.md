@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 唠嗑完王副主席！再和小夏女士谈谈心<br>[https://news.guo.media/zh-hans/51534/](https://news.guo.media/zh-hans/51534/ "https://news.guo.media/zh-hans/51534/")
+
+[https://www.guo.media/posts/259517](https://www.guo.media/posts/259517) `2019-12-12T07:55:10`
+##
+
 **milesguo** 12月11日 美国政要推文精选<br>[https://news.guo.media/zh-hans/51481/](https://news.guo.media/zh-hans/51481/ "https://news.guo.media/zh-hans/51481/")
 
 [https://www.guo.media/posts/259512](https://www.guo.media/posts/259512) `2019-12-12T06:40:10`
