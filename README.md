@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 教授还是禽兽？——北大博导与多人发生关系被举报，上财副教授性侵女学生遭开除<br>[https://news.guo.media/zh-hans/51338/](https://news.guo.media/zh-hans/51338/ "https://news.guo.media/zh-hans/51338/")
+
+[https://www.guo.media/posts/259506](https://www.guo.media/posts/259506) `2019-12-12T06:25:12`
+##
+
 **milesguo** 美国的封锁战略决定了WTO最高法院的命运<br>[https://news.guo.media/zh-hans/51435/](https://news.guo.media/zh-hans/51435/ "https://news.guo.media/zh-hans/51435/")
 
 [https://www.guo.media/posts/259489](https://www.guo.media/posts/259489) `2019-12-12T03:40:10`
