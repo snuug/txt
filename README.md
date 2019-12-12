@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月12号：尊敬的战友们好．今天的晚餐有极为重要的朋友．有重大的事件……爆料革命家进入另外一个新的时代……请大家一起来品尝着美食……一切都是刚刚开始！
+
+[https://www.guo.media/posts/259699](https://www.guo.media/posts/259699) `2019-12-12T23:55:10`
+##
+
 **milesguo** 法治基金C4主席班农先生刚召开了C4董事会议，将收集因PAYPAL捐款而被CCP抓捕问讯的信息<br>[https://news.guo.media/zh-hans/52216/](https://news.guo.media/zh-hans/52216/ "https://news.guo.media/zh-hans/52216/")
 
 [https://www.guo.media/posts/259676](https://www.guo.media/posts/259676) `2019-12-12T21:25:10`
