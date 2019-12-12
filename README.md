@@ -12,6 +12,46 @@
 ## 最新郭文
 
 
+**milesguo** 美国拟投资重稀土工厂确保供应武器开发<br>[https://news.guo.media/zh-hans/51920/](https://news.guo.media/zh-hans/51920/ "https://news.guo.media/zh-hans/51920/")
+
+[https://www.guo.media/posts/259656](https://www.guo.media/posts/259656) `2019-12-12T19:40:10`
+##
+
+**milesguo** 《时代》风云人物出炉小川普炮轰：竟敢不选香港人！时代杂志舔共背后原因为何? Salesforce与阿里巴巴合作<br>[https://news.guo.media/zh-hans/51876/](https://news.guo.media/zh-hans/51876/ "https://news.guo.media/zh-hans/51876/")
+
+[https://www.guo.media/posts/259655](https://www.guo.media/posts/259655) `2019-12-12T19:40:13`
+##
+
+**milesguo** 面具先生：从裕达到盘古到爆料看郭先生28年的准备的艰辛历程<br>[https://news.guo.media/zh-hans/51856/](https://news.guo.media/zh-hans/51856/ "https://news.guo.media/zh-hans/51856/")
+
+[https://www.guo.media/posts/259654](https://www.guo.media/posts/259654) `2019-12-12T19:40:16`
+##
+
+**milesguo** 带你了解12月12日香港人游行详细情况<br>[https://news.guo.media/zh-hans/51740/](https://news.guo.media/zh-hans/51740/ "https://news.guo.media/zh-hans/51740/")
+
+[https://www.guo.media/posts/259653](https://www.guo.media/posts/259653) `2019-12-12T19:40:19`
+##
+
+**milesguo** 6.12半周年，12.8八十万人大游行，香港人赢了甚么？<br>[https://news.guo.media/zh-hans/51718/](https://news.guo.media/zh-hans/51718/ "https://news.guo.media/zh-hans/51718/")
+
+[https://www.guo.media/posts/259652](https://www.guo.media/posts/259652) `2019-12-12T19:40:21`
+##
+
+**milesguo** 三个美国实验室拒绝检验香港剧毒催泪弹！他们到底在怕什么？！<br>[https://news.guo.media/zh-hans/51691/](https://news.guo.media/zh-hans/51691/ "https://news.guo.media/zh-hans/51691/")
+
+[https://www.guo.media/posts/259651](https://www.guo.media/posts/259651) `2019-12-12T19:40:24`
+##
+
+**milesguo** 驻港戒严部队乔装示威者袭击年轻市民欲栽赃嫁祸<br>[https://news.guo.media/zh-hans/51689/](https://news.guo.media/zh-hans/51689/ "https://news.guo.media/zh-hans/51689/")
+
+[https://www.guo.media/posts/259650](https://www.guo.media/posts/259650) `2019-12-12T19:40:27`
+##
+
+**milesguo** 《我们都是木头人》诗朗诵，挺郭反共宣言！<br>[https://news.guo.media/zh-hans/51673/](https://news.guo.media/zh-hans/51673/ "https://news.guo.media/zh-hans/51673/")
+
+[https://www.guo.media/posts/259649](https://www.guo.media/posts/259649) `2019-12-12T19:40:29`
+##
+
 **milesguo** Foreign Ministry Spokesperson Hua Chunying Called US Ambassador “Too Stupid”<br>[https://news.guo.media/51895/](https://news.guo.media/51895/ "https://news.guo.media/51895/")
 
 [https://www.guo.media/posts/259646](https://www.guo.media/posts/259646) `2019-12-12T19:25:09`
