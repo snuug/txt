@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 法治基金C4主席班农先生刚召开了C4董事会议，将收集因PAYPAL捐款而被CCP抓捕问讯的信息<br>[https://news.guo.media/zh-hans/52216/](https://news.guo.media/zh-hans/52216/ "https://news.guo.media/zh-hans/52216/")
+
+[https://www.guo.media/posts/259676](https://www.guo.media/posts/259676) `2019-12-12T21:25:10`
+##
+
+**milesguo** 中美即将达成贸易协议？<br>[https://news.guo.media/zh-hans/52190/](https://news.guo.media/zh-hans/52190/ "https://news.guo.media/zh-hans/52190/")
+
+[https://www.guo.media/posts/259675](https://www.guo.media/posts/259675) `2019-12-12T21:25:13`
+##
+
+**milesguo** “稀土,台湾和香港” 美国最新国防授权法案剑指中共！<br>[https://news.guo.media/zh-hans/52031/](https://news.guo.media/zh-hans/52031/ "https://news.guo.media/zh-hans/52031/")
+
+[https://www.guo.media/posts/259674](https://www.guo.media/posts/259674) `2019-12-12T21:25:15`
+##
+
+**milesguo** 【中大回顾| 11.12 中大「战后」一个月合辑：前与后 日与夜】<br>[https://news.guo.media/zh-hans/52171/](https://news.guo.media/zh-hans/52171/ "https://news.guo.media/zh-hans/52171/")
+
+[https://www.guo.media/posts/259673](https://www.guo.media/posts/259673) `2019-12-12T21:25:18`
+##
+
 **milesguo** 2019年12月12日郭文贵先生直播摘要<br>[https://news.guo.media/zh-hans/52020/](https://news.guo.media/zh-hans/52020/ "https://news.guo.media/zh-hans/52020/")
 
 [https://www.guo.media/posts/259672](https://www.guo.media/posts/259672) `2019-12-12T21:10:10`
