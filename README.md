@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>Kyma新闻12月10日: 11名藏在卡车家具里的中国移民在圣伊西德罗（San ysidro）被发现<br>[https://spark.adobe.com/page/MuE3hgsnadS5P/](https://spark.adobe.com/page/MuE3hgsnadS5P/ "https://spark.adobe.com/page/MuE3hgsnadS5P/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/259482](https://www.guo.media/posts/259482) `2019-12-12T03:10:11`
+##
+
 **milesguo** 香港法案生效！亲共媒体入境美国被拒<br>[https://news.guo.media/zh-hans/51315/](https://news.guo.media/zh-hans/51315/ "https://news.guo.media/zh-hans/51315/")
 
 [https://www.guo.media/posts/259456](https://www.guo.media/posts/259456) `2019-12-12T00:55:12`
