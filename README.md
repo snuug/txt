@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月10日文贵报平安：共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡<br>[https://news.guo.media/zh-hans/51614/](https://news.guo.media/zh-hans/51614/ "https://news.guo.media/zh-hans/51614/")
+
+[https://www.guo.media/posts/259522](https://www.guo.media/posts/259522) `2019-12-12T09:25:09`
+##
+
+**milesguo** 中国人到底出了什么问题？（第一部分）<br>[https://news.guo.media/zh-hans/51613/](https://news.guo.media/zh-hans/51613/ "https://news.guo.media/zh-hans/51613/")
+
+[https://www.guo.media/posts/259521](https://www.guo.media/posts/259521) `2019-12-12T09:25:12`
+##
+
 **milesguo** 唠嗑完王副主席！再和小夏女士谈谈心<br>[https://news.guo.media/zh-hans/51534/](https://news.guo.media/zh-hans/51534/ "https://news.guo.media/zh-hans/51534/")
 
 [https://www.guo.media/posts/259517](https://www.guo.media/posts/259517) `2019-12-12T07:55:10`
