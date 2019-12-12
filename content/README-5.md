@@ -13,6 +13,8 @@
 
 ## 頁面 5/22 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [22](/content/README-22.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：8月9日 郭文贵先生船上报平安直播](/content/2019/08/20190811-3314587443288819358.md)
+
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/content/2019/08/20190809-1309289777403280615.md)
 
 [文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/2019/08/20190808-3378844936967794316.md)
@@ -60,8 +62,6 @@
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
 
 [文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/2019/07/20190709-1755868837124119656.md)
-
-[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/2019/07/20190708-1629076298190675341.md)
 
 
 ## 頁面 5/22 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [22](/content/README-22.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
