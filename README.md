@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 视频：12月12日郭文贵先生报平安直播：有大事情要发生啊，先来分享喜悦！<br>[https://news.guo.media/zh-hans/51972/](https://news.guo.media/zh-hans/51972/ "https://news.guo.media/zh-hans/51972/")
+
+[https://www.guo.media/posts/259660](https://www.guo.media/posts/259660) `2019-12-12T19:55:10`
+##
+
+**milesguo** 2019年12月12日郭文贵先生报平安直播音频<br>[https://news.guo.media/zh-hans/51964/](https://news.guo.media/zh-hans/51964/ "https://news.guo.media/zh-hans/51964/")
+
+[https://www.guo.media/posts/259659](https://www.guo.media/posts/259659) `2019-12-12T19:55:13`
+##
+
+**milesguo** 岑子杰：民阵绝不割席，因为香港人已经付出的太多<br>[https://news.guo.media/zh-hans/51923/](https://news.guo.media/zh-hans/51923/ "https://news.guo.media/zh-hans/51923/") 
+
+[https://www.guo.media/posts/259658](https://www.guo.media/posts/259658) `2019-12-12T19:55:15`
+##
+
 **milesguo** 美国拟投资重稀土工厂确保供应武器开发<br>[https://news.guo.media/zh-hans/51920/](https://news.guo.media/zh-hans/51920/ "https://news.guo.media/zh-hans/51920/")
 
 [https://www.guo.media/posts/259656](https://www.guo.media/posts/259656) `2019-12-12T19:40:10`
