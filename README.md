@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 河北迁安恶势力团伙：公职人员、人大代表、富商等数十人疑涉案<br>[https://news.guo.media/zh-hans/51647/](https://news.guo.media/zh-hans/51647/ "https://news.guo.media/zh-hans/51647/")
+
+[https://www.guo.media/posts/259608](https://www.guo.media/posts/259608) `2019-12-12T14:55:10`
+##
+
 **milesguo** [Shocking] The Farm: CCP Espionage and Spycraft, The “BGY” Program<br>[https://news.guo.media/51672/](https://news.guo.media/51672/ "https://news.guo.media/51672/")
 
 [https://www.guo.media/posts/259602](https://www.guo.media/posts/259602) `2019-12-12T14:25:11`
