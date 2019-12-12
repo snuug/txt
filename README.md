@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港法案生效！亲共媒体入境美国被拒<br>[https://news.guo.media/zh-hans/51315/](https://news.guo.media/zh-hans/51315/ "https://news.guo.media/zh-hans/51315/")
+
+[https://www.guo.media/posts/259456](https://www.guo.media/posts/259456) `2019-12-12T00:55:12`
+##
+
 **milesguo** 郭文贵先生一周直播精选（12月3日-6日）<br>[https://news.guo.media/zh-hans/51255/](https://news.guo.media/zh-hans/51255/ "https://news.guo.media/zh-hans/51255/")
 
 [https://www.guo.media/posts/259454](https://www.guo.media/posts/259454) `2019-12-12T00:40:11`
