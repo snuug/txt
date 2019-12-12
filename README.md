@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国的封锁战略决定了WTO最高法院的命运<br>[https://news.guo.media/zh-hans/51435/](https://news.guo.media/zh-hans/51435/ "https://news.guo.media/zh-hans/51435/")
+
+[https://www.guo.media/posts/259489](https://www.guo.media/posts/259489) `2019-12-12T03:40:10`
+##
+
 **milesguo** 【翻译】<br>Kyma新闻12月10日: 11名藏在卡车家具里的中国移民在圣伊西德罗（San ysidro）被发现<br>[https://spark.adobe.com/page/MuE3hgsnadS5P/](https://spark.adobe.com/page/MuE3hgsnadS5P/ "https://spark.adobe.com/page/MuE3hgsnadS5P/")<br>【秘密翻译组】
 
 [https://www.guo.media/posts/259482](https://www.guo.media/posts/259482) `2019-12-12T03:10:11`
