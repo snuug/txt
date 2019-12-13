@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 聊聊袁世凯和华盛顿如何登场<br>[https://news.guo.media/zh-hans/52536/](https://news.guo.media/zh-hans/52536/ "https://news.guo.media/zh-hans/52536/")
+
+[https://www.guo.media/posts/259902](https://www.guo.media/posts/259902) `2019-12-13T17:55:09`
+##
+
 **milesguo** 中国国企面临20年来最大规模的美元违约，投资者遭受重大损失<br>[https://news.guo.media/zh-hans/52814/](https://news.guo.media/zh-hans/52814/ "https://news.guo.media/zh-hans/52814/") 
 
 [https://www.guo.media/posts/259868](https://www.guo.media/posts/259868) `2019-12-13T15:40:10`
