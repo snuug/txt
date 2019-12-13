@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月13日：看文贵直播的链接……Take a look at GTV's events on Livestream [livestream.com/accounts/27235．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频，](https://livestream.com/accounts/27235．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频， "livestream.com/accounts/27235．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频，")<br>除了文贵的那个30万<br>YouTube 的订阅的频道是文贵的之外，其他都是假的！请战友们举报或不要点击，看那些不是文贵的YouTube假频道，今天．12月13日中午．12:00前……文贵将直播报平安，一切都是刚刚开始。
+
+[https://www.guo.media/posts/259795](https://www.guo.media/posts/259795) `2019-12-13T09:25:10`
+##
+
 **milesguo** 帝国大厦将要发生什么惊天动地的大事？ ——看2019年12月12日郭先生直播有感<br>[https://news.guo.media/zh-hans/52524/](https://news.guo.media/zh-hans/52524/ "https://news.guo.media/zh-hans/52524/")
 
 [https://www.guo.media/posts/259763](https://www.guo.media/posts/259763) `2019-12-13T05:25:10`
