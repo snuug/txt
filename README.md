@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 中共取消收费站，加快搜刮百姓财富<br>[https://news.guo.media/zh-hans/52421/](https://news.guo.media/zh-hans/52421/ "https://news.guo.media/zh-hans/52421/")
+
+[https://www.guo.media/posts/259758](https://www.guo.media/posts/259758) `2019-12-13T05:10:10`
+##
+
+**milesguo** 【最新快讯】美中达成部分贸易协议!<br>[https://news.guo.media/zh-hans/52423/](https://news.guo.media/zh-hans/52423/ "https://news.guo.media/zh-hans/52423/")
+
+[https://www.guo.media/posts/259757](https://www.guo.media/posts/259757) `2019-12-13T05:10:13`
+##
+
+**milesguo** 写给党内还没成为战友的人<br>[https://news.guo.media/zh-hans/52388/](https://news.guo.media/zh-hans/52388/ "https://news.guo.media/zh-hans/52388/")
+
+[https://www.guo.media/posts/259755](https://www.guo.media/posts/259755) `2019-12-13T05:10:16`
+##
+
+**milesguo** 小巴猪：纳瓦罗说无迹象显示原定于12月15日生效的关税不会加征<br>[https://news.guo.media/zh-hans/52351/](https://news.guo.media/zh-hans/52351/ "https://news.guo.media/zh-hans/52351/")
+
+[https://www.guo.media/posts/259754](https://www.guo.media/posts/259754) `2019-12-13T05:10:18`
+##
+
+**milesguo** 中国人到底出了什么问题？（第二部分）<br>[https://news.guo.media/zh-hans/52340/](https://news.guo.media/zh-hans/52340/ "https://news.guo.media/zh-hans/52340/")
+
+[https://www.guo.media/posts/259753](https://www.guo.media/posts/259753) `2019-12-13T05:10:21`
+##
+
+**milesguo** 眼镜观点：12月15日大概率不会有协议<br>[https://news.guo.media/zh-hans/52329/](https://news.guo.media/zh-hans/52329/ "https://news.guo.media/zh-hans/52329/")
+
+[https://www.guo.media/posts/259752](https://www.guo.media/posts/259752) `2019-12-13T05:10:23`
+##
+
+**milesguo** 澳门沦陷20周年祭—-评《澳门回归祖国20周年系列述评》<br>[https://news.guo.media/zh-hans/52280/](https://news.guo.media/zh-hans/52280/ "https://news.guo.media/zh-hans/52280/")
+
+[https://www.guo.media/posts/259750](https://www.guo.media/posts/259750) `2019-12-13T05:10:26`
+##
+
 **milesguo** 12月12号：尊敬的战友们好．今天的晚餐有极为重要的朋友．有重大的事件……爆料革命家进入另外一个新的时代……请大家一起来品尝着美食……一切都是刚刚开始！
 
 [https://www.guo.media/posts/259699](https://www.guo.media/posts/259699) `2019-12-12T23:55:10`
