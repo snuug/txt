@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** “毛狮子头”海报惊现CBA！浙江广厦被罚100万<br>[https://news.guo.media/zh-hans/52789/](https://news.guo.media/zh-hans/52789/ "https://news.guo.media/zh-hans/52789/")
+
+[https://www.guo.media/posts/259911](https://www.guo.media/posts/259911) `2019-12-13T18:10:10`
+##
+
+**milesguo** 12月11日香港要闻：监警会国际专家组跳船，港共或难保最后遮羞布，终将露傀儡独裁真面目；郭文贵再爆猛料<br>[https://news.guo.media/zh-hans/52759/](https://news.guo.media/zh-hans/52759/ "https://news.guo.media/zh-hans/52759/")
+
+[https://www.guo.media/posts/259910](https://www.guo.media/posts/259910) `2019-12-13T18:10:13`
+##
+
+**milesguo** 影视业寒冬！本年度超过3228家影视公司消失<br>[https://news.guo.media/zh-hans/52751/](https://news.guo.media/zh-hans/52751/ "https://news.guo.media/zh-hans/52751/")
+
+[https://www.guo.media/posts/259908](https://www.guo.media/posts/259908) `2019-12-13T18:10:15`
+##
+
+**milesguo** 塌！塌！塌！继广州地铁坍塌不到半月，厦门吕厝站地铁又塌陷了。但愿不要再现广州地铁填埋式救援！<br>[https://news.guo.media/zh-hans/52708/](https://news.guo.media/zh-hans/52708/ "https://news.guo.media/zh-hans/52708/")
+
+[https://www.guo.media/posts/259906](https://www.guo.media/posts/259906) `2019-12-13T18:10:18`
+##
+
+**milesguo** 12月12日 美国政要推文精选<br>[https://news.guo.media/zh-hans/52583/](https://news.guo.media/zh-hans/52583/ "https://news.guo.media/zh-hans/52583/")
+
+[https://www.guo.media/posts/259905](https://www.guo.media/posts/259905) `2019-12-13T18:10:21`
+##
+
+**milesguo** 评新华社文章“外交部发言人：‘对华恐惧偏执症’是病，但并非无药可治”<br>[https://news.guo.media/zh-hans/52563/](https://news.guo.media/zh-hans/52563/ "https://news.guo.media/zh-hans/52563/")
+
+[https://www.guo.media/posts/259904](https://www.guo.media/posts/259904) `2019-12-13T18:10:23`
+##
+
+**milesguo** 妄议七三：王岐山能撑过圣诞都是问题？<br>[https://news.guo.media/zh-hans/52547/](https://news.guo.media/zh-hans/52547/ "https://news.guo.media/zh-hans/52547/")
+
+[https://www.guo.media/posts/259903](https://www.guo.media/posts/259903) `2019-12-13T18:10:27`
+##
+
 **milesguo** 聊聊袁世凯和华盛顿如何登场<br>[https://news.guo.media/zh-hans/52536/](https://news.guo.media/zh-hans/52536/ "https://news.guo.media/zh-hans/52536/")
 
 [https://www.guo.media/posts/259902](https://www.guo.media/posts/259902) `2019-12-13T17:55:09`
