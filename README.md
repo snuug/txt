@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国国企面临20年来最大规模的美元违约，投资者遭受重大损失<br>[https://news.guo.media/zh-hans/52814/](https://news.guo.media/zh-hans/52814/ "https://news.guo.media/zh-hans/52814/") 
+
+[https://www.guo.media/posts/259868](https://www.guo.media/posts/259868) `2019-12-13T15:40:10`
+##
+
 **milesguo** 這裡有為中共效命的知名科學家，有對中共衷心耿耿的家臣，有顯赫的軍方人士，也有體制內的高官。但無論他們過往有多少汗馬功勞，一旦被懷疑對中共不利，就毫不猶豫地被消失。中共邪惡如此，罪惡累累。中共不滅，天理不容！<br>[https://spark.adobe.com/page/umQ3HztSf6TyI/](https://spark.adobe.com/page/umQ3HztSf6TyI/ "https://spark.adobe.com/page/umQ3HztSf6TyI/")<br>【戰鷹團】
 
 [https://www.guo.media/posts/259835](https://www.guo.media/posts/259835) `2019-12-13T12:40:10`
