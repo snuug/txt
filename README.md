@@ -12,6 +12,46 @@
 ## 最新郭文
 
 
+**milesguo** 视频：12月13日郭文贵先生直播爆出惊人王健之第四种死法！<br>[https://news.guo.media/zh-hans/53022/](https://news.guo.media/zh-hans/53022/ "https://news.guo.media/zh-hans/53022/")
+
+[https://www.guo.media/posts/259922](https://www.guo.media/posts/259922) `2019-12-13T18:25:10`
+##
+
+**milesguo** 惊天秘闻！郭文贵先生在纽约时间早上直播爆王健第四种之死背后要关注哪几个人？<br>[https://news.guo.media/zh-hans/53011/](https://news.guo.media/zh-hans/53011/ "https://news.guo.media/zh-hans/53011/") 
+
+[https://www.guo.media/posts/259921](https://www.guo.media/posts/259921) `2019-12-13T18:25:13`
+##
+
+**milesguo** 广播：郭文贵先生直播 王岐山换肾和习近平晋升将军背后的故事 王建的第四种死法<br>[https://news.guo.media/zh-hans/52999/](https://news.guo.media/zh-hans/52999/ "https://news.guo.media/zh-hans/52999/")
+
+[https://www.guo.media/posts/259919](https://www.guo.media/posts/259919) `2019-12-13T18:25:16`
+##
+
+**milesguo** 郭佳怡《2047》6分钟带你了解香港年轻示威者害怕失去家乡的故事<br>[https://news.guo.media/zh-hans/52928/](https://news.guo.media/zh-hans/52928/ "https://news.guo.media/zh-hans/52928/")
+
+[https://www.guo.media/posts/259918](https://www.guo.media/posts/259918) `2019-12-13T18:25:19`
+##
+
+**milesguo** 200多名韩国学生于首尔声援港人抗争<br>[https://news.guo.media/zh-hans/52939/](https://news.guo.media/zh-hans/52939/ "https://news.guo.media/zh-hans/52939/")
+
+[https://www.guo.media/posts/259916](https://www.guo.media/posts/259916) `2019-12-13T18:25:21`
+##
+
+**milesguo** 美国参众两院议员提出限制世界银行对中共国进行贷款的法案<br>[https://news.guo.media/zh-hans/52825/](https://news.guo.media/zh-hans/52825/ "https://news.guo.media/zh-hans/52825/")
+
+[https://www.guo.media/posts/259915](https://www.guo.media/posts/259915) `2019-12-13T18:25:24`
+##
+
+**milesguo** 猪价跌了？那是一个美丽的数学谎言<br>[https://news.guo.media/zh-hans/52844/](https://news.guo.media/zh-hans/52844/ "https://news.guo.media/zh-hans/52844/")
+
+[https://www.guo.media/posts/259914](https://www.guo.media/posts/259914) `2019-12-13T18:25:26`
+##
+
+**milesguo** 香港人发起全港十八区反对警察加薪联署 六万多人投票<br>[https://news.guo.media/zh-hans/52826/](https://news.guo.media/zh-hans/52826/ "https://news.guo.media/zh-hans/52826/")
+
+[https://www.guo.media/posts/259913](https://www.guo.media/posts/259913) `2019-12-13T18:25:29`
+##
+
 **milesguo** “毛狮子头”海报惊现CBA！浙江广厦被罚100万<br>[https://news.guo.media/zh-hans/52789/](https://news.guo.media/zh-hans/52789/ "https://news.guo.media/zh-hans/52789/")
 
 [https://www.guo.media/posts/259911](https://www.guo.media/posts/259911) `2019-12-13T18:10:10`
