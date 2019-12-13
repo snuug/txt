@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 帝国大厦将要发生什么惊天动地的大事？ ——看2019年12月12日郭先生直播有感<br>[https://news.guo.media/zh-hans/52524/](https://news.guo.media/zh-hans/52524/ "https://news.guo.media/zh-hans/52524/")
+
+[https://www.guo.media/posts/259763](https://www.guo.media/posts/259763) `2019-12-13T05:25:10`
+##
+
+**milesguo** 中共贸易陷入绝境与全球自动灭共<br>[https://news.guo.media/zh-hans/52483/](https://news.guo.media/zh-hans/52483/ "https://news.guo.media/zh-hans/52483/")
+
+[https://www.guo.media/posts/259761](https://www.guo.media/posts/259761) `2019-12-13T05:25:13`
+##
+
+**milesguo** 大律师杨岳桥揭露 香港被污染的选举制度<br>[https://news.guo.media/zh-hans/52469/](https://news.guo.media/zh-hans/52469/ "https://news.guo.media/zh-hans/52469/")
+
+[https://www.guo.media/posts/259759](https://www.guo.media/posts/259759) `2019-12-13T05:25:15`
+##
+
 **milesguo** 中共取消收费站，加快搜刮百姓财富<br>[https://news.guo.media/zh-hans/52421/](https://news.guo.media/zh-hans/52421/ "https://news.guo.media/zh-hans/52421/")
 
 [https://www.guo.media/posts/259758](https://www.guo.media/posts/259758) `2019-12-13T05:10:10`
