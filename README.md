@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 戰友日文編譯：中國共產黨最害怕的男人，郭文貴。中國出身的實業家，投資家，如今在美國，以」爆料革命「為開端，為實現中國的民主法治自由而戰鬥。為何選擇」以壹己之力敵壹國「這條兇險之路？為何 」雖千萬人吾往矣「？請和我們壹起去嘗試瞭解他。<br>[https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1\_5172](https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1_5172 "https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1_5172")<br>【戰鷹團】
+
+[https://www.guo.media/posts/259831](https://www.guo.media/posts/259831) `2019-12-13T12:25:11`
+##
+
 **milesguo** 美丽人生 – 感恩美国通过维吾尔人权政策法案<br>[https://news.guo.media/zh-hans/52562/](https://news.guo.media/zh-hans/52562/ "https://news.guo.media/zh-hans/52562/") 
 
 [https://www.guo.media/posts/259813](https://www.guo.media/posts/259813) `2019-12-13T10:55:10`
