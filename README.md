@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 這裡有為中共效命的知名科學家，有對中共衷心耿耿的家臣，有顯赫的軍方人士，也有體制內的高官。但無論他們過往有多少汗馬功勞，一旦被懷疑對中共不利，就毫不猶豫地被消失。中共邪惡如此，罪惡累累。中共不滅，天理不容！<br>[https://spark.adobe.com/page/umQ3HztSf6TyI/](https://spark.adobe.com/page/umQ3HztSf6TyI/ "https://spark.adobe.com/page/umQ3HztSf6TyI/")<br>【戰鷹團】
+
+[https://www.guo.media/posts/259835](https://www.guo.media/posts/259835) `2019-12-13T12:40:10`
+##
+
+**milesguo** 企業家本是社會精英<br>然而在中共國，他們卻只充作提款機和遮羞布<br>他們看似風光無限，實則危若累卵<br>他們看似掌控一切，實則身在地獄<br>中共為刀俎，他們為魚肉<br>予取予奪，毫無顧忌<br>今天大批企業紛紛倒閉<br>黑雲壓城城欲摧<br>冬去春來，否極泰來<br>是否新中國曙光在現<br>[https://spark.adobe.com/page/FRJn9Lsy5ThZ8/](https://spark.adobe.com/page/FRJn9Lsy5ThZ8/ "https://spark.adobe.com/page/FRJn9Lsy5ThZ8/")<br>【戰鷹團】
+
+[https://www.guo.media/posts/259833](https://www.guo.media/posts/259833) `2019-12-13T12:40:13`
+##
+
 **milesguo** 戰友日文編譯：中國共產黨最害怕的男人，郭文貴。中國出身的實業家，投資家，如今在美國，以」爆料革命「為開端，為實現中國的民主法治自由而戰鬥。為何選擇」以壹己之力敵壹國「這條兇險之路？為何 」雖千萬人吾往矣「？請和我們壹起去嘗試瞭解他。<br>[https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1\_5172](https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1_5172 "https://spark.adobe.com/page/qBKhtLVEPAAhR/?w=1_5172")<br>【戰鷹團】
 
 [https://www.guo.media/posts/259831](https://www.guo.media/posts/259831) `2019-12-13T12:25:11`
