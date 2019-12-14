@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong “Mongkok Write with You” movement writing Christmas cards to those protestors in prison<br>[https://news.guo.media/53427/](https://news.guo.media/53427/ "https://news.guo.media/53427/")
+
+[https://www.guo.media/posts/260260](https://www.guo.media/posts/260260) `2019-12-14T21:40:12`
+##
+
+**milesguo** 2019年12月14日郭文贵先生直播摘要<br>[https://news.guo.media/zh-hans/53636/](https://news.guo.media/zh-hans/53636/ "https://news.guo.media/zh-hans/53636/")
+
+[https://www.guo.media/posts/260259](https://www.guo.media/posts/260259) `2019-12-14T21:40:15`
+##
+
 **milesguo** 广播：2019/12/14郭文贵先生直播 王建尸检结果首次爆出 翡翠色的心脏！暗绿色的脑子！极其恐怖！<br>[https://news.guo.media/zh-hans/53592/](https://news.guo.media/zh-hans/53592/ "https://news.guo.media/zh-hans/53592/")
 
 [https://www.guo.media/posts/260206](https://www.guo.media/posts/260206) `2019-12-14T20:16:57`
