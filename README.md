@@ -12,6 +12,161 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/14郭文贵先生直播 王建尸检结果首次爆出 翡翠色的心脏！暗绿色的脑子！极其恐怖！<br>[https://news.guo.media/zh-hans/53592/](https://news.guo.media/zh-hans/53592/ "https://news.guo.media/zh-hans/53592/")
+
+[https://www.guo.media/posts/260206](https://www.guo.media/posts/260206) `2019-12-14T20:16:57`
+##
+
+**milesguo** 惊悚！郭文贵先生刚爆出海南陈峰玩女明星双修欢喜佛，同时隔壁在解剖王健！有下载链接<br>[https://news.guo.media/zh-hans/53582/](https://news.guo.media/zh-hans/53582/ "https://news.guo.media/zh-hans/53582/")
+
+[https://www.guo.media/posts/260203](https://www.guo.media/posts/260203) `2019-12-14T20:17:00`
+##
+
+**milesguo** 龚小夏女士的推文里引用的黄河边的节目到底说了啥？<br>[https://news.guo.media/zh-hans/53449/](https://news.guo.media/zh-hans/53449/ "https://news.guo.media/zh-hans/53449/")
+
+[https://www.guo.media/posts/260192](https://www.guo.media/posts/260192) `2019-12-14T20:17:05`
+##
+
+**milesguo** 经典的里根式幽默 一支乌托邦的解毒剂<br>[https://news.guo.media/zh-hans/53486/](https://news.guo.media/zh-hans/53486/ "https://news.guo.media/zh-hans/53486/")
+
+[https://www.guo.media/posts/260191](https://www.guo.media/posts/260191) `2019-12-14T20:17:08`
+##
+
+**milesguo** 面具先生：郭文贵先生爆料王健第四种死法背后的力量是什么？<br>[https://news.guo.media/zh-hans/53489/](https://news.guo.media/zh-hans/53489/ "https://news.guo.media/zh-hans/53489/")
+
+[https://www.guo.media/posts/260190](https://www.guo.media/posts/260190) `2019-12-14T20:17:10`
+##
+
+**milesguo** 国际人权组织亚洲主管对港警水炮混入有毒化学物质表示震惊<br>[https://news.guo.media/zh-hans/53500/](https://news.guo.media/zh-hans/53500/ "https://news.guo.media/zh-hans/53500/")
+
+[https://www.guo.media/posts/260189](https://www.guo.media/posts/260189) `2019-12-14T20:17:13`
+##
+
+**milesguo** 中央经济工作会议的核心内容是什么<br>[https://news.guo.media/zh-hans/53513/](https://news.guo.media/zh-hans/53513/ "https://news.guo.media/zh-hans/53513/")
+
+[https://www.guo.media/posts/260188](https://www.guo.media/posts/260188) `2019-12-14T20:17:16`
+##
+
+**milesguo** 6月反遣返法运动以来，港府共支付香港警察9.5亿港元加班费<br>[https://news.guo.media/zh-hans/53558/](https://news.guo.media/zh-hans/53558/ "https://news.guo.media/zh-hans/53558/")
+
+[https://www.guo.media/posts/260172](https://www.guo.media/posts/260172) `2019-12-14T20:17:18`
+##
+
+**milesguo** 中共在世界银行的影响力：要求台湾工作人员领取中国护照<br>[https://news.guo.media/zh-hans/53541/](https://news.guo.media/zh-hans/53541/ "https://news.guo.media/zh-hans/53541/")
+
+[https://www.guo.media/posts/260168](https://www.guo.media/posts/260168) `2019-12-14T20:17:21`
+##
+
+**milesguo** 港币挂钩美元 — 香港当前政治动荡下港币挂钩美元制度的前景<br>[https://news.guo.media/zh-hans/53529/](https://news.guo.media/zh-hans/53529/ "https://news.guo.media/zh-hans/53529/")
+
+[https://www.guo.media/posts/260163](https://www.guo.media/posts/260163) `2019-12-14T20:17:24`
+##
+
+**milesguo** Miles Guo: What does it mean that Wang Jian is the fourth way to die?<br>[https://news.guo.media/53278/](https://news.guo.media/53278/ "https://news.guo.media/53278/")
+
+[https://www.guo.media/posts/260146](https://www.guo.media/posts/260146) `2019-12-14T20:17:26`
+##
+
+**milesguo** 13-year-old Hong Kong Girl Sentenced to Yearlong Probation Order: Burning Chinese National Flag<br>[https://news.guo.media/53158/](https://news.guo.media/53158/ "https://news.guo.media/53158/")
+
+[https://www.guo.media/posts/260143](https://www.guo.media/posts/260143) `2019-12-14T20:17:29`
+##
+
+**milesguo** 和洋节说“不”！中共强迫下的洗脑教育<br>[https://news.guo.media/zh-hans/53401/](https://news.guo.media/zh-hans/53401/ "https://news.guo.media/zh-hans/53401/")
+
+[https://www.guo.media/posts/260141](https://www.guo.media/posts/260141) `2019-12-14T20:17:32`
+##
+
+**milesguo** 文字版2019年12月13日文贵报平安，王健的第四种死法<br>[https://news.guo.media/zh-hans/53388/](https://news.guo.media/zh-hans/53388/ "https://news.guo.media/zh-hans/53388/")
+
+[https://www.guo.media/posts/260140](https://www.guo.media/posts/260140) `2019-12-14T20:17:34`
+##
+
+**milesguo** 带你了解12月14日至15日香港游行情况<br>[https://news.guo.media/zh-hans/53308/](https://news.guo.media/zh-hans/53308/ "https://news.guo.media/zh-hans/53308/")
+
+[https://www.guo.media/posts/260139](https://www.guo.media/posts/260139) `2019-12-14T20:17:37`
+##
+
+**milesguo** 【中国股民福利】内部人士揭秘中共股市(上篇)<br>[https://news.guo.media/zh-hans/50638/](https://news.guo.media/zh-hans/50638/ "https://news.guo.media/zh-hans/50638/")
+
+[https://www.guo.media/posts/260137](https://www.guo.media/posts/260137) `2019-12-14T20:17:40`
+##
+
+**milesguo** 抵制赤色病毒<br>[https://news.guo.media/zh-hans/53367/](https://news.guo.media/zh-hans/53367/ "https://news.guo.media/zh-hans/53367/")
+
+[https://www.guo.media/posts/260136](https://www.guo.media/posts/260136) `2019-12-14T20:17:42`
+##
+
+**milesguo** 四名蒙面匪徒洗劫花园街表行 旺角闹市中遭市民阻截弃车逃亡<br>[https://news.guo.media/zh-hans/53271/](https://news.guo.media/zh-hans/53271/ "https://news.guo.media/zh-hans/53271/")
+
+[https://www.guo.media/posts/260135](https://www.guo.media/posts/260135) `2019-12-14T20:17:45`
+##
+
+**milesguo** 圣诞贺卡！冬日里暖心的祝福…<br>[https://news.guo.media/zh-hans/53238/](https://news.guo.media/zh-hans/53238/ "https://news.guo.media/zh-hans/53238/")
+
+[https://www.guo.media/posts/260104](https://www.guo.media/posts/260104) `2019-12-14T20:17:47`
+##
+
+**milesguo** 8名手足被捕！黑警已进入疯狂状态<br>[https://news.guo.media/zh-hans/53224/](https://news.guo.media/zh-hans/53224/ "https://news.guo.media/zh-hans/53224/")
+
+[https://www.guo.media/posts/260103](https://www.guo.media/posts/260103) `2019-12-14T20:17:50`
+##
+
+**milesguo** 12月13日 美国政要推特精选<br>[https://news.guo.media/zh-hans/53178/](https://news.guo.media/zh-hans/53178/ "https://news.guo.media/zh-hans/53178/")
+
+[https://www.guo.media/posts/260101](https://www.guo.media/posts/260101) `2019-12-14T20:17:53`
+##
+
+**milesguo** 挪威电信运营商宣布弃用华为，并结束10年合作<br>[https://news.guo.media/zh-hans/53163/](https://news.guo.media/zh-hans/53163/ "https://news.guo.media/zh-hans/53163/")
+
+[https://www.guo.media/posts/260099](https://www.guo.media/posts/260099) `2019-12-14T20:17:56`
+##
+
+**milesguo** 【翻译】<br>澳大利亚战略政策研究所12月12日: 分析王立强对中共军方间谍网络的披露<br>[https://spark.adobe.com/page/XMvwXh5APhRqq/](https://spark.adobe.com/page/XMvwXh5APhRqq/ "https://spark.adobe.com/page/XMvwXh5APhRqq/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/260080](https://www.guo.media/posts/260080) `2019-12-14T20:17:59`
+##
+
+**milesguo** 上海嘉里粮油公司突发火灾 数万吨粮油或付之一炬<br>[https://news.guo.media/zh-hans/53136/](https://news.guo.media/zh-hans/53136/ "https://news.guo.media/zh-hans/53136/")
+
+[https://www.guo.media/posts/260075](https://www.guo.media/posts/260075) `2019-12-14T20:18:02`
+##
+
+**milesguo** 部分港股频繁出现断崖跳水，暗示中国房地产业濒临绝境？<br>[https://news.guo.media/zh-hans/53102/](https://news.guo.media/zh-hans/53102/ "https://news.guo.media/zh-hans/53102/")
+
+[https://www.guo.media/posts/260073](https://www.guo.media/posts/260073) `2019-12-14T20:18:04`
+##
+
+**milesguo** 多省作秀整顿P2P 中共将继续骗取财富<br>[https://news.guo.media/zh-hans/53103/](https://news.guo.media/zh-hans/53103/ "https://news.guo.media/zh-hans/53103/")
+
+[https://www.guo.media/posts/260070](https://www.guo.media/posts/260070) `2019-12-14T20:18:07`
+##
+
+**milesguo** 供销社死灰复燃，到中共国内遍地开花<br>[https://news.guo.media/zh-hans/53091/](https://news.guo.media/zh-hans/53091/ "https://news.guo.media/zh-hans/53091/")
+
+[https://www.guo.media/posts/260068](https://www.guo.media/posts/260068) `2019-12-14T20:18:09`
+##
+
+**milesguo** 我给林郑捎句话 ——写在林郑即将到京汇报之际<br>[https://news.guo.media/zh-hans/53070/](https://news.guo.media/zh-hans/53070/ "https://news.guo.media/zh-hans/53070/")
+
+[https://www.guo.media/posts/260067](https://www.guo.media/posts/260067) `2019-12-14T20:18:12`
+##
+
+**milesguo** 章家敦接受Fox最新采访 第一阶段贸易协议 中共经济负增长<br>[https://news.guo.media/zh-hans/53074/](https://news.guo.media/zh-hans/53074/ "https://news.guo.media/zh-hans/53074/")
+
+[https://www.guo.media/posts/260062](https://www.guo.media/posts/260062) `2019-12-14T20:18:15`
+##
+
+**milesguo** 班农接受CNBC采访谈中美关系:川普在打破中共商业模式,重构世界经济秩序<br>[https://news.guo.media/zh-hans/53037/](https://news.guo.media/zh-hans/53037/ "https://news.guo.media/zh-hans/53037/")
+
+[https://www.guo.media/posts/260060](https://www.guo.media/posts/260060) `2019-12-14T20:18:17`
+##
+
+**milesguo** 12月13日：🙏🙏🙏【文贵将在明天14日9点半左右开始报平安直播！乱聊，这几天发生的不可思议的事情？】看文贵直播的链接．Take a look at GTV's events on Livestream [http://livestream.com/accounts/27235681．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频，](https://livestream.com/accounts/27235681．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频， "http://livestream.com/accounts/27235681．尊敬的战友们好．很多战友发私信问在哪里看文贵直播，请战友们点击，上面的链接到GTV看文贵的直播．文贵短期内不会在YouTube发文贵的视频，")<br>除了文贵的那个30万<br>YouTube 的订阅的频道是文贵的之外，其他都是假的！请战友们举报或不要点击，看那些不是文贵的YouTube假频道，今天．12月13日中午．12:00前……文贵将直播报平安，一切都是刚刚开始。
+
+[https://www.guo.media/posts/259991](https://www.guo.media/posts/259991) `2019-12-14T20:18:21`
+##
+
 **milesguo** 视频：12月13日郭文贵先生直播爆出惊人王健之第四种死法！<br>[https://news.guo.media/zh-hans/53022/](https://news.guo.media/zh-hans/53022/ "https://news.guo.media/zh-hans/53022/")
 
 [https://www.guo.media/posts/259922](https://www.guo.media/posts/259922) `2019-12-13T18:25:10`
@@ -890,200 +1045,5 @@
 **milesguo** 中共骇客攻击世界各地的维吾尔流亡者<br>[https://news.guo.media/zh-hans/49370/](https://news.guo.media/zh-hans/49370/ "https://news.guo.media/zh-hans/49370/")
 
 [https://www.guo.media/posts/258740](https://www.guo.media/posts/258740) `2019-12-09T12:10:11`
-##
-
-**milesguo** 【翻译】<br>Lawfare 博客网12月8日:NBA与中国掠夺性自由主义<br>[https://spark.adobe.com/page/R8tEZYvIdbK0X/](https://spark.adobe.com/page/R8tEZYvIdbK0X/ "https://spark.adobe.com/page/R8tEZYvIdbK0X/")<br>【秘密翻译组】
-
-[https://www.guo.media/posts/258733](https://www.guo.media/posts/258733) `2019-12-09T10:55:12`
-##
-
-**milesguo** 12月9日香港十区三罢活动多名示威者被捕<br>[https://news.guo.media/zh-hans/49237/](https://news.guo.media/zh-hans/49237/ "https://news.guo.media/zh-hans/49237/")
-
-[https://www.guo.media/posts/258716](https://www.guo.media/posts/258716) `2019-12-09T08:10:10`
-##
-
-**milesguo** 2019年12月8日郭文贵先生直播摘要<br>[https://news.guo.media/zh-hans/49331/](https://news.guo.media/zh-hans/49331/ "https://news.guo.media/zh-hans/49331/")
-
-[https://www.guo.media/posts/258714](https://www.guo.media/posts/258714) `2019-12-09T08:10:14`
-##
-
-**milesguo** 上访20年老太国家信访局门口大唱：共产党的贪官真不少<br>[https://news.guo.media/zh-hans/49268/](https://news.guo.media/zh-hans/49268/ "https://news.guo.media/zh-hans/49268/")
-
-[https://www.guo.media/posts/258713](https://www.guo.media/posts/258713) `2019-12-09T08:10:17`
-##
-
-**milesguo** 疯狂！中共成功杂交了猪-猴，还要接着开世界律师大会？<br>[https://news.guo.media/zh-hans/48935/](https://news.guo.media/zh-hans/48935/ "https://news.guo.media/zh-hans/48935/")
-
-[https://www.guo.media/posts/258712](https://www.guo.media/posts/258712) `2019-12-09T08:10:20`
-##
-
-**milesguo** 一起看看世界银行的中国项目<br>[https://news.guo.media/zh-hans/49189/](https://news.guo.media/zh-hans/49189/ "https://news.guo.media/zh-hans/49189/")
-
-[https://www.guo.media/posts/258704](https://www.guo.media/posts/258704) `2019-12-09T07:25:11`
-##
-
-**milesguo** 加拿大多伦多 美国纽约举办声援香港集会<br>[https://news.guo.media/zh-hans/49117/](https://news.guo.media/zh-hans/49117/ "https://news.guo.media/zh-hans/49117/")
-
-[https://www.guo.media/posts/258694](https://www.guo.media/posts/258694) `2019-12-09T06:25:11`
-##
-
-**milesguo** 文字版2019年12月7日郭先生对话钢铁侠<br>[https://news.guo.media/zh-hans/49109/](https://news.guo.media/zh-hans/49109/ "https://news.guo.media/zh-hans/49109/")
-
-[https://www.guo.media/posts/258690](https://www.guo.media/posts/258690) `2019-12-09T05:40:10`
-##
-
-**milesguo** 汉字分裂——简谈爆料革命中的繁简汉字<br>[https://news.guo.media/zh-hans/49072/](https://news.guo.media/zh-hans/49072/ "https://news.guo.media/zh-hans/49072/")
-
-[https://www.guo.media/posts/258689](https://www.guo.media/posts/258689) `2019-12-09T05:40:14`
-##
-
-**milesguo** Miles Guo: What will happen after the overthrow of the CCP? What will be the 1st thing that we need to do?<br>[https://news.guo.media/49061/](https://news.guo.media/49061/ "https://news.guo.media/49061/")
-
-[https://www.guo.media/posts/258685](https://www.guo.media/posts/258685) `2019-12-09T05:10:11`
-##
-
-**milesguo** The Farm: Estimated Financial Outlook for RMB<br>[https://news.guo.media/49023/](https://news.guo.media/49023/ "https://news.guo.media/49023/")
-
-[https://www.guo.media/posts/258684](https://www.guo.media/posts/258684) `2019-12-09T04:55:11`
-##
-
-**milesguo** 港人网上发起三罢，黑警多区严防戒备<br>[https://news.guo.media/zh-hans/49014/](https://news.guo.media/zh-hans/49014/ "https://news.guo.media/zh-hans/49014/")
-
-[https://www.guo.media/posts/258683](https://www.guo.media/posts/258683) `2019-12-09T04:55:14`
-##
-
-**milesguo** 12月8日 美国政要推文精选<br>[https://news.guo.media/zh-hans/48986/](https://news.guo.media/zh-hans/48986/ "https://news.guo.media/zh-hans/48986/")
-
-[https://www.guo.media/posts/258682](https://www.guo.media/posts/258682) `2019-12-09T04:55:17`
-##
-
-**milesguo** 全球爱港人士撑香港，演唱《海阔天空》，时代革命 光复香港<br>[https://news.guo.media/zh-hans/48938/](https://news.guo.media/zh-hans/48938/ "https://news.guo.media/zh-hans/48938/")
-
-[https://www.guo.media/posts/258668](https://www.guo.media/posts/258668) `2019-12-09T01:40:11`
-##
-
-**milesguo** 《2020庚子年—商鞅：战争正在逼近》<br>[https://news.guo.media/zh-hans/48918/](https://news.guo.media/zh-hans/48918/ "https://news.guo.media/zh-hans/48918/")
-
-[https://www.guo.media/posts/258662](https://www.guo.media/posts/258662) `2019-12-09T01:25:11`
-##
-
-**milesguo** 从中央电视台在FACEBOOK号召小粉红到白宫搞装修说起<br>[https://news.guo.media/zh-hans/48897/](https://news.guo.media/zh-hans/48897/ "https://news.guo.media/zh-hans/48897/")
-
-[https://www.guo.media/posts/258654](https://www.guo.media/posts/258654) `2019-12-09T01:10:12`
-##
-
-**milesguo** 必看！一位被捕香港大学生的公开信，写给有理想的你<br>[https://news.guo.media/zh-hans/48868/](https://news.guo.media/zh-hans/48868/ "https://news.guo.media/zh-hans/48868/")
-
-[https://www.guo.media/posts/258653](https://www.guo.media/posts/258653) `2019-12-09T01:10:15`
-##
-
-**milesguo** 杨洁篪同美国国务卿蓬佩奥通电话都说了啥？<br>[https://news.guo.media/zh-hans/48869/](https://news.guo.media/zh-hans/48869/ "https://news.guo.media/zh-hans/48869/")
-
-[https://www.guo.media/posts/258652](https://www.guo.media/posts/258652) `2019-12-09T01:10:18`
-##
-
-**milesguo** December 8, some footages from the HK protest<br>[https://news.guo.media/48832/](https://news.guo.media/48832/ "https://news.guo.media/48832/")
-
-[https://www.guo.media/posts/258643](https://www.guo.media/posts/258643) `2019-12-08T23:55:10`
-##
-
-**milesguo** 泪目!这就是共产党统治下的中国！92岁老大爷逛集市买不起猪肉！<br>[https://news.guo.media/zh-hans/48811/](https://news.guo.media/zh-hans/48811/ "https://news.guo.media/zh-hans/48811/")
-
-[https://www.guo.media/posts/258636](https://www.guo.media/posts/258636) `2019-12-08T22:55:10`
-##
-
-**milesguo** 2019年12月8日郭文贵先生直播：达成10笔交易 郭先生教各位战友如何革命发大财!<br>[https://news.guo.media/zh-hans/48772/](https://news.guo.media/zh-hans/48772/ "https://news.guo.media/zh-hans/48772/")
-
-[https://www.guo.media/posts/258635](https://www.guo.media/posts/258635) `2019-12-08T22:55:14`
-##
-
-**milesguo** 12/07/2019钢铁侠对话文贵直播摘要<br>[https://news.guo.media/zh-hans/48791/](https://news.guo.media/zh-hans/48791/ "https://news.guo.media/zh-hans/48791/")
-
-[https://www.guo.media/posts/258634](https://www.guo.media/posts/258634) `2019-12-08T22:40:11`
-##
-
-**milesguo** 广播：2019/12/8郭文贵先生直播 除了换汇郭媒体也能让战友们赚大钱<br>[https://news.guo.media/zh-hans/48768/](https://news.guo.media/zh-hans/48768/ "https://news.guo.media/zh-hans/48768/")
-
-[https://www.guo.media/posts/258633](https://www.guo.media/posts/258633) `2019-12-08T22:40:14`
-##
-
-**milesguo** 是的，你没看错，中共下令‘焚书’！<br>[https://news.guo.media/zh-hans/48512/](https://news.guo.media/zh-hans/48512/ "https://news.guo.media/zh-hans/48512/")
-
-[https://www.guo.media/posts/258632](https://www.guo.media/posts/258632) `2019-12-08T22:40:17`
-##
-
-**milesguo** 男孩用小提琴为百万港人伴奏《愿荣光归香港》<br>[https://news.guo.media/zh-hans/48732/](https://news.guo.media/zh-hans/48732/ "https://news.guo.media/zh-hans/48732/")
-
-[https://www.guo.media/posts/258631](https://www.guo.media/posts/258631) `2019-12-08T22:40:20`
-##
-
-**milesguo** 束手无策祸港难，差人进京求“恶方”？刚柔并济也难敌正义<br>[https://news.guo.media/zh-hans/48663/](https://news.guo.media/zh-hans/48663/ "https://news.guo.media/zh-hans/48663/")
-
-[https://www.guo.media/posts/258630](https://www.guo.media/posts/258630) `2019-12-08T22:40:23`
-##
-
-**milesguo** 为什么 你穷的 连猪肉都舍不得吃了<br>[https://news.guo.media/zh-hans/48624/](https://news.guo.media/zh-hans/48624/ "https://news.guo.media/zh-hans/48624/")
-
-[https://www.guo.media/posts/258629](https://www.guo.media/posts/258629) `2019-12-08T22:40:26`
-##
-
-**milesguo** 中共国又一个银行行长被抓，工商银行上海分行行长顾国明被批捕<br>[https://news.guo.media/zh-hans/48637/](https://news.guo.media/zh-hans/48637/ "https://news.guo.media/zh-hans/48637/")
-
-[https://www.guo.media/posts/258628](https://www.guo.media/posts/258628) `2019-12-08T22:40:29`
-##
-
-**milesguo** 香港「国际人权日」游行 香港再度破80万人上街游行抗争! 中共区议会选举大败后 港人再次上街游行<br>[https://news.guo.media/zh-hans/48630/](https://news.guo.media/zh-hans/48630/ "https://news.guo.media/zh-hans/48630/")
-
-[https://www.guo.media/posts/258626](https://www.guo.media/posts/258626) `2019-12-08T22:40:32`
-##
-
-**milesguo** 200余香港示威者逃往台湾！ 纽时：台北长老教会牧师居中联系 女示威者被港警强奸怀孕 逃往台湾进行流产手术<br>[https://news.guo.media/zh-hans/48599/](https://news.guo.media/zh-hans/48599/ "https://news.guo.media/zh-hans/48599/")
-
-[https://www.guo.media/posts/258625](https://www.guo.media/posts/258625) `2019-12-08T22:25:10`
-##
-
-**milesguo** Highlights of Miles Guo and Iron Man Live Broadcast on 12/07/2019<br>[https://news.guo.media/48587/](https://news.guo.media/48587/ "https://news.guo.media/48587/")
-
-[https://www.guo.media/posts/258611](https://www.guo.media/posts/258611) `2019-12-08T19:10:10`
-##
-
-**milesguo** Over 800,000 Hong Kong citizens anticipated the Human Rights Day March<br>[https://news.guo.media/48681/](https://news.guo.media/48681/ "https://news.guo.media/48681/")
-
-[https://www.guo.media/posts/258610](https://www.guo.media/posts/258610) `2019-12-08T19:10:14`
-##
-
-**milesguo** Hong Kong Police Commissioner: Observe the Flag-raising Ceremony in Beijing<br>[https://news.guo.media/48628/](https://news.guo.media/48628/ "https://news.guo.media/48628/")
-
-[https://www.guo.media/posts/258609](https://www.guo.media/posts/258609) `2019-12-08T19:10:16`
-##
-
-**milesguo** Jimmy Shum slams the HK police to reflect on their wrong-doings<br>[https://news.guo.media/48594/](https://news.guo.media/48594/ "https://news.guo.media/48594/")
-
-[https://www.guo.media/posts/258608](https://www.guo.media/posts/258608) `2019-12-08T19:10:19`
-##
-
-**milesguo** Miles Guo: The CCP has used World Bank loans to build concentration camps in Xinjiang<br>[https://news.guo.media/48132/](https://news.guo.media/48132/ "https://news.guo.media/48132/")
-
-[https://www.guo.media/posts/258607](https://www.guo.media/posts/258607) `2019-12-08T19:10:22`
-##
-
-**milesguo** Miles Guo: Offer opportunities for Liquidating Chinese Asset for Foreign Cash<br>[https://news.guo.media/48021/](https://news.guo.media/48021/ "https://news.guo.media/48021/")
-
-[https://www.guo.media/posts/258606](https://www.guo.media/posts/258606) `2019-12-08T18:55:11`
-##
-
-**milesguo** 12月8日香港国际人权日游行前线速报<br>[https://news.guo.media/zh-hans/48358/](https://news.guo.media/zh-hans/48358/ "https://news.guo.media/zh-hans/48358/")
-
-[https://www.guo.media/posts/258563](https://www.guo.media/posts/258563) `2019-12-08T15:40:11`
-##
-
-**milesguo** 香港350家婚礼公司拒绝向港警服务 内地微博官方账号污名婚礼公司为暴徒机构<br>[https://news.guo.media/zh-hans/48141/](https://news.guo.media/zh-hans/48141/ "https://news.guo.media/zh-hans/48141/")
-
-[https://www.guo.media/posts/258562](https://www.guo.media/posts/258562) `2019-12-08T15:25:11`
-##
-
-**milesguo** 12月8号：尊敬的战友了好！你们健身了吗？你们传播香港危机真相了吗？文贵将在一个小时后，纽约时间上午9:30左右报平安直播……一切都是刚刚开始！
-
-[https://www.guo.media/posts/258549](https://www.guo.media/posts/258549) `2019-12-08T13:40:11`
 ##
 
