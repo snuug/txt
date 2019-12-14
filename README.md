@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Foreign Ministry Spokesperson Denied Remarks About U.S. Assistance To China’s Development<br>[https://news.guo.media/53629/](https://news.guo.media/53629/ "https://news.guo.media/53629/")
+
+[https://www.guo.media/posts/260264](https://www.guo.media/posts/260264) `2019-12-14T21:55:12`
+##
+
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/13/2019<br>[https://news.guo.media/53615/](https://news.guo.media/53615/ "https://news.guo.media/53615/")
+
+[https://www.guo.media/posts/260263](https://www.guo.media/posts/260263) `2019-12-14T21:55:16`
+##
+
+**milesguo** Pro-Beijing Lawmakers Arrogant: Occupies Presidents Seat in Hong Kong’s Legislative Council<br>[https://news.guo.media/53569/](https://news.guo.media/53569/ "https://news.guo.media/53569/")
+
+[https://www.guo.media/posts/260261](https://www.guo.media/posts/260261) `2019-12-14T21:55:19`
+##
+
 **milesguo** Hong Kong “Mongkok Write with You” movement writing Christmas cards to those protestors in prison<br>[https://news.guo.media/53427/](https://news.guo.media/53427/ "https://news.guo.media/53427/")
 
 [https://www.guo.media/posts/260260](https://www.guo.media/posts/260260) `2019-12-14T21:40:12`
