@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Wang Qishan and the Pedophile Rings of the CCP<br>[https://gnews.org/54567/](https://gnews.org/54567/ "https://gnews.org/54567/")
+
+[https://www.guo.media/posts/260495](https://www.guo.media/posts/260495) `2019-12-15T18:10:10`
+##
+
 **milesguo** 惊悚！郭文贵先生爆出王岐山跟陈峰一样玩双修！红黄蓝幼儿园孩子都是让他们玩的！请下载传播！<br>[https://gnews.org/zh-hans/54503/](https://gnews.org/zh-hans/54503/ "https://gnews.org/zh-hans/54503/")
 
 [https://www.guo.media/posts/260481](https://www.guo.media/posts/260481) `2019-12-15T16:40:10`
