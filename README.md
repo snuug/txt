@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong Police Allegedly Sexual Harassed Female Shopper<br>[https://gnews.org/54433/](https://gnews.org/54433/ "https://gnews.org/54433/")
+
+[https://www.guo.media/posts/260459](https://www.guo.media/posts/260459) `2019-12-15T14:55:11`
+##
+
 **milesguo** December 15, Posters on HK Protest<br>[https://gnews.org/54313/](https://gnews.org/54313/ "https://gnews.org/54313/")
 
 [https://www.guo.media/posts/260458](https://www.guo.media/posts/260458) `2019-12-15T14:40:23`
