@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/15郭文贵先生直播 爆料魔教教主王岐山变态双修 幼儿园小孩不放过<br>[https://gnews.org/zh-hans/54506/](https://gnews.org/zh-hans/54506/ "https://gnews.org/zh-hans/54506/")
+
+[https://www.guo.media/posts/260480](https://www.guo.media/posts/260480) `2019-12-15T16:25:10`
+##
+
 **milesguo** Hong Kong Police Allegedly Sexual Harassed Female Shopper<br>[https://gnews.org/54433/](https://gnews.org/54433/ "https://gnews.org/54433/")
 
 [https://www.guo.media/posts/260459](https://www.guo.media/posts/260459) `2019-12-15T14:55:11`
