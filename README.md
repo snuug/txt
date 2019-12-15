@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>美国贸易代表办公室 12 月13日:<br>美中达成第一阶段贸易协议：内容简报<br>[https://spark.adobe.com/page/XbXvxfRvQIRho/](https://spark.adobe.com/page/XbXvxfRvQIRho/ "https://spark.adobe.com/page/XbXvxfRvQIRho/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/260423](https://www.guo.media/posts/260423) `2019-12-15T10:40:10`
+##
+
 **milesguo** 越南即将加入灭共大军？美国国务院助理国务卿史达伟计划前往越南访问<br>[https://news.guo.media/zh-hans/54010/](https://news.guo.media/zh-hans/54010/ "https://news.guo.media/zh-hans/54010/")
 
 [https://www.guo.media/posts/260399](https://www.guo.media/posts/260399) `2019-12-15T07:55:11`
