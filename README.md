@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 瑞典多位国会议员要求驱逐中共国驻瑞大使<br>[https://news.guo.media/zh-hans/53691/](https://news.guo.media/zh-hans/53691/ "https://news.guo.media/zh-hans/53691/")
+
+[https://www.guo.media/posts/260290](https://www.guo.media/posts/260290) `2019-12-15T01:55:10`
+##
+
 **milesguo** 新疆泄密后中共试图收紧信息管理，然而依然有内部人士透露信息出来！<br>[https://news.guo.media/zh-hans/53677/](https://news.guo.media/zh-hans/53677/ "https://news.guo.media/zh-hans/53677/")
 
 [https://www.guo.media/posts/260283](https://www.guo.media/posts/260283) `2019-12-15T00:55:10`
