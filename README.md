@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** December 15, Posters on HK Protest<br>[https://gnews.org/54313/](https://gnews.org/54313/ "https://gnews.org/54313/")
+
+[https://www.guo.media/posts/260458](https://www.guo.media/posts/260458) `2019-12-15T14:40:23`
+##
+
+**milesguo** Lest We Forget: The First Death of the Hong Kong Protest, Mr. Yellow Raincoat<br>[https://gnews.org/54236/](https://gnews.org/54236/ "https://gnews.org/54236/")
+
+[https://www.guo.media/posts/260457](https://www.guo.media/posts/260457) `2019-12-15T14:40:29`
+##
+
+**milesguo** [Dec 15, HK]Police Storm in Shatin’s New Town Plaza, Arrest Civilians<br>[https://gnews.org/54136/](https://gnews.org/54136/ "https://gnews.org/54136/")
+
+[https://www.guo.media/posts/260456](https://www.guo.media/posts/260456) `2019-12-15T14:40:35`
+##
+
+**milesguo** CCTV: Hong Kong’s education system requires thorough curettage for detoxification<br>[https://gnews.org/54104/](https://gnews.org/54104/ "https://gnews.org/54104/")
+
+[https://www.guo.media/posts/260455](https://www.guo.media/posts/260455) `2019-12-15T14:40:44`
+##
+
+**milesguo** Cyclist from Japan Offers Free Coffee in Support of Hong Kong Protesters<br>[https://gnews.org/54028/](https://gnews.org/54028/ "https://gnews.org/54028/")
+
+[https://www.guo.media/posts/260454](https://www.guo.media/posts/260454) `2019-12-15T14:40:55`
+##
+
 **milesguo** Miles Guo: Former Interpol Meng Hongwei’s role in Wang Jian’s death<br>[https://gnews.org/54068/](https://gnews.org/54068/ "https://gnews.org/54068/")
 
 [https://www.guo.media/posts/260448](https://www.guo.media/posts/260448) `2019-12-15T12:40:10`
