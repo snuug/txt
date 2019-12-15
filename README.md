@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中國的人民幣重磅下挫 - 相對於中國作為世界最大的貿易國家，中國人民幣的影響力遠低於其經濟體量。對於人民幣來說，它存在於壹個基本封閉的資本賬號以及極度投機的資產市場，這是相對不受歡迎的。<br>【戰鷹團】<br>[https://spark.adobe.com/page/iCjQ6DpHmzvQo/](https://spark.adobe.com/page/iCjQ6DpHmzvQo/ "https://spark.adobe.com/page/iCjQ6DpHmzvQo/")
+
+[https://www.guo.media/posts/260292](https://www.guo.media/posts/260292) `2019-12-15T02:10:10`
+##
+
 **milesguo** 瑞典多位国会议员要求驱逐中共国驻瑞大使<br>[https://news.guo.media/zh-hans/53691/](https://news.guo.media/zh-hans/53691/ "https://news.guo.media/zh-hans/53691/")
 
 [https://www.guo.media/posts/260290](https://www.guo.media/posts/260290) `2019-12-15T01:55:10`
