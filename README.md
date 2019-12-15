@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月15日：尊敬的战友们好！今天早上9:30文贵报平安直播．谈谈双修陈（峰）的淫乱．与佛教的关系和共产党的以假治国！👉👉点击链接[http://livestream.com/accounts/27235681．一切都是刚刚开始！](https://livestream.com/accounts/27235681．一切都是刚刚开始！ "http://livestream.com/accounts/27235681．一切都是刚刚开始！")
+
+[https://www.guo.media/posts/260428](https://www.guo.media/posts/260428) `2019-12-15T11:25:09`
+##
+
 **milesguo** 【翻译】<br>美国贸易代表办公室 12 月13日:<br>美中达成第一阶段贸易协议：内容简报<br>[https://spark.adobe.com/page/XbXvxfRvQIRho/](https://spark.adobe.com/page/XbXvxfRvQIRho/ "https://spark.adobe.com/page/XbXvxfRvQIRho/")<br>【秘密翻译组】
 
 [https://www.guo.media/posts/260423](https://www.guo.media/posts/260423) `2019-12-15T10:40:10`
