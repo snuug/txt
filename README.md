@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 亲历831事件的香港前线抗争者讲述“杀人之夜”<br>[https://news.guo.media/zh-hans/53950/](https://news.guo.media/zh-hans/53950/ "https://news.guo.media/zh-hans/53950/")
+
+[https://www.guo.media/posts/260396](https://www.guo.media/posts/260396) `2019-12-15T07:40:10`
+##
+
+**milesguo** 中共与俄国的噩梦：美国海军福特级航母改变游戏规则<br>[https://news.guo.media/zh-hans/53940/](https://news.guo.media/zh-hans/53940/ "https://news.guo.media/zh-hans/53940/")
+
+[https://www.guo.media/posts/260394](https://www.guo.media/posts/260394) `2019-12-15T07:40:13`
+##
+
 **milesguo** 美空军“陆基战略威慑”项目悄悄上马，美国战力大幅提升<br>[https://news.guo.media/zh-hans/53912/](https://news.guo.media/zh-hans/53912/ "https://news.guo.media/zh-hans/53912/")
 
 [https://www.guo.media/posts/260365](https://www.guo.media/posts/260365) `2019-12-15T05:10:10`
