@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 越南即将加入灭共大军？美国国务院助理国务卿史达伟计划前往越南访问<br>[https://news.guo.media/zh-hans/54010/](https://news.guo.media/zh-hans/54010/ "https://news.guo.media/zh-hans/54010/")
+
+[https://www.guo.media/posts/260399](https://www.guo.media/posts/260399) `2019-12-15T07:55:11`
+##
+
+**milesguo** 南亚人士被抓！黑警抓人不顾法理？<br>[https://news.guo.media/zh-hans/53980/](https://news.guo.media/zh-hans/53980/ "https://news.guo.media/zh-hans/53980/")
+
+[https://www.guo.media/posts/260398](https://www.guo.media/posts/260398) `2019-12-15T07:55:15`
+##
+
+**milesguo** 海外小粉红嚣张拍挺港游行大陆生照片给中国黑警<br>[https://news.guo.media/zh-hans/53943/](https://news.guo.media/zh-hans/53943/ "https://news.guo.media/zh-hans/53943/")
+
+[https://www.guo.media/posts/260397](https://www.guo.media/posts/260397) `2019-12-15T07:55:18`
+##
+
 **milesguo** 亲历831事件的香港前线抗争者讲述“杀人之夜”<br>[https://news.guo.media/zh-hans/53950/](https://news.guo.media/zh-hans/53950/ "https://news.guo.media/zh-hans/53950/")
 
 [https://www.guo.media/posts/260396](https://www.guo.media/posts/260396) `2019-12-15T07:40:10`
