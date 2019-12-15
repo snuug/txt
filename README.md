@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Chinese government charts course for economy in 2020<br>[https://news.guo.media/53645/](https://news.guo.media/53645/ "https://news.guo.media/53645/")
+
+[https://www.guo.media/posts/260280](https://www.guo.media/posts/260280) `2019-12-15T00:25:10`
+##
+
+**milesguo** Wang Yi criticized America not as trustworthy as communist China<br>[https://news.guo.media/53646/](https://news.guo.media/53646/ "https://news.guo.media/53646/")
+
+[https://www.guo.media/posts/260279](https://www.guo.media/posts/260279) `2019-12-15T00:25:13`
+##
+
 **milesguo** Chinese Foreign Ministry Spokesperson Denied Remarks About U.S. Assistance To China’s Development<br>[https://news.guo.media/53629/](https://news.guo.media/53629/ "https://news.guo.media/53629/")
 
 [https://www.guo.media/posts/260264](https://www.guo.media/posts/260264) `2019-12-14T21:55:12`
