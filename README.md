@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 撕开王岐山的画皮 ！王岐山领导下的中共邪恶世界版图之冰山一角<br>[https://gnews.org/zh-hans/54205/](https://gnews.org/zh-hans/54205/ "https://gnews.org/zh-hans/54205/")
+
+[https://www.guo.media/posts/260519](https://www.guo.media/posts/260519) `2019-12-15T21:55:12`
+##
+
+**milesguo** TVB艺人拉队撑港警，人面兽心毫无廉耻！<br>[https://gnews.org/zh-hans/54244/](https://gnews.org/zh-hans/54244/ "https://gnews.org/zh-hans/54244/")
+
+[https://www.guo.media/posts/260518](https://www.guo.media/posts/260518) `2019-12-15T21:55:16`
+##
+
+**milesguo** 阿森纳球员厄齐尔对新疆维吾尔族的支持发言之后，央视取消直播阿森纳vs曼城 比赛<br>[https://gnews.org/zh-hans/54254/](https://gnews.org/zh-hans/54254/ "https://gnews.org/zh-hans/54254/")
+
+[https://www.guo.media/posts/260515](https://www.guo.media/posts/260515) `2019-12-15T21:55:20`
+##
+
+**milesguo** 九龙湾德福有戒严部队向小朋友迎面射胡椒喷雾<br>[https://gnews.org/zh-hans/54064/](https://gnews.org/zh-hans/54064/ "https://gnews.org/zh-hans/54064/")
+
+[https://www.guo.media/posts/260514](https://www.guo.media/posts/260514) `2019-12-15T21:55:23`
+##
+
 **milesguo** The Farm: Wang Qishan and the Pedophile Rings of the CCP<br>[https://gnews.org/54567/](https://gnews.org/54567/ "https://gnews.org/54567/")
 
 [https://www.guo.media/posts/260495](https://www.guo.media/posts/260495) `2019-12-15T18:10:10`
