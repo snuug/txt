@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** “衷心感谢”党中央让我们活着<br>[https://news.guo.media/zh-hans/53822/](https://news.guo.media/zh-hans/53822/ "https://news.guo.media/zh-hans/53822/")
+
+[https://www.guo.media/posts/260309](https://www.guo.media/posts/260309) `2019-12-15T03:25:11`
+##
+
+**milesguo** 12月14日 美国政要推文精选<br>[https://news.guo.media/zh-hans/53818/](https://news.guo.media/zh-hans/53818/ "https://news.guo.media/zh-hans/53818/")
+
+[https://www.guo.media/posts/260307](https://www.guo.media/posts/260307) `2019-12-15T03:25:14`
+##
+
+**milesguo** 推翻共产党后的新中国，一切才是刚刚开始！<br>[https://news.guo.media/zh-hans/53757/](https://news.guo.media/zh-hans/53757/ "https://news.guo.media/zh-hans/53757/")
+
+[https://www.guo.media/posts/260306](https://www.guo.media/posts/260306) `2019-12-15T03:25:17`
+##
+
+**milesguo** 震惊！联合国被爆与共产党合作监视人权活动人士<br>[https://news.guo.media/zh-hans/53690/](https://news.guo.media/zh-hans/53690/ "https://news.guo.media/zh-hans/53690/")
+
+[https://www.guo.media/posts/260305](https://www.guo.media/posts/260305) `2019-12-15T03:25:21`
+##
+
 **milesguo** 12月12日香港要闻：国际专家小组不愿成为林郑欺骗港人的帮凶，在艰难的时刻，对港人展示何谓原则和风骨<br>[https://news.guo.media/zh-hans/53732/](https://news.guo.media/zh-hans/53732/ "https://news.guo.media/zh-hans/53732/")
 
 [https://www.guo.media/posts/260302](https://www.guo.media/posts/260302) `2019-12-15T03:10:10`
