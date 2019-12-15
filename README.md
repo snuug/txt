@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 太平洋舰队司令：警告中国恐吓<br>[https://news.guo.media/zh-hans/53873/](https://news.guo.media/zh-hans/53873/ "https://news.guo.media/zh-hans/53873/")
+
+[https://www.guo.media/posts/260321](https://www.guo.media/posts/260321) `2019-12-15T04:25:12`
+##
+
 **milesguo** “衷心感谢”党中央让我们活着<br>[https://news.guo.media/zh-hans/53822/](https://news.guo.media/zh-hans/53822/ "https://news.guo.media/zh-hans/53822/")
 
 [https://www.guo.media/posts/260309](https://www.guo.media/posts/260309) `2019-12-15T03:25:11`
