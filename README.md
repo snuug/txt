@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 批中共「流氓集团」霸权扩张　川普前首席战略顾问班农：台湾大选将牵动全球!<br>[https://gnews.org/zh-hans/54303/](https://gnews.org/zh-hans/54303/ "https://gnews.org/zh-hans/54303/")
+
+[https://www.guo.media/posts/260534](https://www.guo.media/posts/260534) `2019-12-15T23:10:10`
+##
+
+**milesguo** 美国宣布对伊朗启动新一波制裁　藉此打击中东恐怖组织「武器运输网」<br>[https://gnews.org/zh-hans/54195/](https://gnews.org/zh-hans/54195/ "https://gnews.org/zh-hans/54195/")
+
+[https://www.guo.media/posts/260532](https://www.guo.media/posts/260532) `2019-12-15T23:10:13`
+##
+
 **milesguo** 真心话！一位留美学生怎么看待爆料革命<br>[https://gnews.org/zh-hans/54480/](https://gnews.org/zh-hans/54480/ "https://gnews.org/zh-hans/54480/")
 
 [https://www.guo.media/posts/260531](https://www.guo.media/posts/260531) `2019-12-15T22:55:10`
