@@ -1147,38 +1147,3 @@
 [https://www.guo.media/posts/259043](https://www.guo.media/posts/259043) `2019-12-10T15:40:14`
 ##
 
-**milesguo** 12月9号：尊敬的战友们好．【文贵向大家展示一下❌❌❌王健被杀的时候穿的的短裤．袜子．及第一次在被杀现场的高清彩色照片！[http://livestream.com/accounts/27235681/events/8197481](https://livestream.com/accounts/27235681/events/8197481 "http://livestream.com/accounts/27235681/events/8197481")<br>❌❌希望战友们准备好小心脏不要受不了，今天只展示短裤！】再谈人民币换汇美元的事情！集体回复大家对换汇的一些问题，战友们如有什么问题，请在下面留言，我即时时回复。一切都是刚刚开始！
-
-[https://www.guo.media/posts/258904](https://www.guo.media/posts/258904) `2019-12-10T01:40:11`
-##
-
-**milesguo** 12月9号：尊敬的战友们好．【文贵向大家展示一下❌❌❌王健被杀的时候穿的的短裤．袜子．及第一次在被杀现场的高清彩色照片！<br>❌❌希望战友们准备好小心脏不要受不了，今天只展示短裤！】再谈人民币换汇美元的事情！集体回复大家对换汇的一些问题，战友们如有什么问题，请在下面留言，我即时时回复。一切都是刚刚开始！
-
-[https://www.guo.media/posts/258886](https://www.guo.media/posts/258886) `2019-12-09T23:25:10`
-##
-
-**milesguo** 为什么梵蒂冈对香港事件闭口不谈？<br>[https://news.guo.media/zh-hans/49490/](https://news.guo.media/zh-hans/49490/ "https://news.guo.media/zh-hans/49490/")
-
-[https://www.guo.media/posts/258786](https://www.guo.media/posts/258786) `2019-12-09T15:40:11`
-##
-
-**milesguo** 12月9号：尊敬的战友们好！文贵庄严声明.刚刚在网络上疯传的文贵需要比特币捐款的信息是由加拿大和美国几个惯犯诈骗者所谓……有共产党的平爆小组在背后操作…这是诈骗行为.请大家不要上当.应将上传信息马上删掉！文贵再次庄重承诺.文贵永远不会向战友们伸<br>手要捐款！或任何的商业利益！爆料革命就什么业务运动不会有任何利益目的！一切都是刚刚开始！
-
-[https://www.guo.media/posts/258782](https://www.guo.media/posts/258782) `2019-12-09T15:25:11`
-##
-
-**milesguo** 中国将取消贸易战部份关税<br>[https://news.guo.media/zh-hans/49410/](https://news.guo.media/zh-hans/49410/ "https://news.guo.media/zh-hans/49410/")
-
-[https://www.guo.media/posts/258776](https://www.guo.media/posts/258776) `2019-12-09T14:55:10`
-##
-
-**milesguo** 12月9号：尊敬的战友们好！你们健身了吗？你们传播香港危及真相了吗？文贵马上(纽约早上8点)在这里报平安直播，一切都是刚刚开始！
-
-[https://www.guo.media/posts/258753](https://www.guo.media/posts/258753) `2019-12-09T12:55:11`
-##
-
-**milesguo** 中共骇客攻击世界各地的维吾尔流亡者<br>[https://news.guo.media/zh-hans/49370/](https://news.guo.media/zh-hans/49370/ "https://news.guo.media/zh-hans/49370/")
-
-[https://www.guo.media/posts/258740](https://www.guo.media/posts/258740) `2019-12-09T12:10:11`
-##
-
