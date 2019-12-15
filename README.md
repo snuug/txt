@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 美空军“陆基战略威慑”项目悄悄上马，美国战力大幅提升<br>[https://news.guo.media/zh-hans/53912/](https://news.guo.media/zh-hans/53912/ "https://news.guo.media/zh-hans/53912/")
+
+[https://www.guo.media/posts/260365](https://www.guo.media/posts/260365) `2019-12-15T05:10:10`
+##
+
+**milesguo** 文字版2019年12月12日文贵报平安：对港四大原则即将出台，香港将面临诱惑分化<br>[https://news.guo.media/zh-hans/53889/](https://news.guo.media/zh-hans/53889/ "https://news.guo.media/zh-hans/53889/")
+
+[https://www.guo.media/posts/260357](https://www.guo.media/posts/260357) `2019-12-15T05:10:13`
+##
+
+**milesguo** 【中国股民福利】内部人士揭秘中共股市(下篇)<br>[https://news.guo.media/zh-hans/53884/](https://news.guo.media/zh-hans/53884/ "https://news.guo.media/zh-hans/53884/")
+
+[https://www.guo.media/posts/260356](https://www.guo.media/posts/260356) `2019-12-15T05:10:15`
+##
+
 **milesguo** 太平洋舰队司令：警告中国恐吓<br>[https://news.guo.media/zh-hans/53873/](https://news.guo.media/zh-hans/53873/ "https://news.guo.media/zh-hans/53873/")
 
 [https://www.guo.media/posts/260321](https://www.guo.media/posts/260321) `2019-12-15T04:25:12`
