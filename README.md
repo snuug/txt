@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 黑警当街行凶，记者惨遭毒打<br>[https://gnews.org/zh-hans/54782/](https://gnews.org/zh-hans/54782/ "https://gnews.org/zh-hans/54782/")
+
+[https://www.guo.media/posts/260545](https://www.guo.media/posts/260545) `2019-12-15T23:40:10`
+##
+
+**milesguo** 12月15日下午14点至17点驻港戒严部队逮捕多人包括外籍人士<br>[https://gnews.org/zh-hans/54663/](https://gnews.org/zh-hans/54663/ "https://gnews.org/zh-hans/54663/")
+
+[https://www.guo.media/posts/260544](https://www.guo.media/posts/260544) `2019-12-15T23:40:13`
+##
+
+**milesguo** 12月15日驻港戒严部队深夜清场多名军警围殴记者 向记者眼部射击催泪弹<br>[https://gnews.org/zh-hans/54619/](https://gnews.org/zh-hans/54619/ "https://gnews.org/zh-hans/54619/")
+
+[https://www.guo.media/posts/260543](https://www.guo.media/posts/260543) `2019-12-15T23:40:15`
+##
+
+**milesguo** 2019年12月15日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/54600/](https://gnews.org/zh-hans/54600/ "https://gnews.org/zh-hans/54600/")
+
+[https://www.guo.media/posts/260540](https://www.guo.media/posts/260540) `2019-12-15T23:40:18`
+##
+
 **milesguo** 批中共「流氓集团」霸权扩张　川普前首席战略顾问班农：台湾大选将牵动全球!<br>[https://gnews.org/zh-hans/54303/](https://gnews.org/zh-hans/54303/ "https://gnews.org/zh-hans/54303/")
 
 [https://www.guo.media/posts/260534](https://www.guo.media/posts/260534) `2019-12-15T23:10:10`
