@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Former Interpol Meng Hongwei’s role in Wang Jian’s death<br>[https://gnews.org/54068/](https://gnews.org/54068/ "https://gnews.org/54068/")
+
+[https://www.guo.media/posts/260448](https://www.guo.media/posts/260448) `2019-12-15T12:40:10`
+##
+
+**milesguo** [China]Anti-Christmas movement in schools<br>[https://gnews.org/53953/](https://gnews.org/53953/ "https://gnews.org/53953/")
+
+[https://www.guo.media/posts/260447](https://www.guo.media/posts/260447) `2019-12-15T12:40:12`
+##
+
+**milesguo** Commander of Pacific Fleet: China projects its military capacity<br>[https://gnews.org/53866/](https://gnews.org/53866/ "https://gnews.org/53866/")
+
+[https://www.guo.media/posts/260446](https://www.guo.media/posts/260446) `2019-12-15T12:40:15`
+##
+
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/14/2019<br>[https://gnews.org/53731/](https://gnews.org/53731/ "https://gnews.org/53731/")
+
+[https://www.guo.media/posts/260445](https://www.guo.media/posts/260445) `2019-12-15T12:40:18`
+##
+
+**milesguo** Miles Guo: Why did Wang Jian’s internal organs turn green? But the autopsy reports said everything was normal<br>[https://gnews.org/53720/](https://gnews.org/53720/ "https://gnews.org/53720/") 
+
+[https://www.guo.media/posts/260444](https://www.guo.media/posts/260444) `2019-12-15T12:40:20`
+##
+
+**milesguo** Swedish parliament members: expel​ Chinese ambassador<br>[https://gnews.org/53755/](https://gnews.org/53755/ "https://gnews.org/53755/")
+
+[https://www.guo.media/posts/260440](https://www.guo.media/posts/260440) `2019-12-15T12:40:23`
+##
+
 **milesguo** 12月15日：尊敬的战友们好！今天早上9:30文贵报平安直播．谈谈双修陈（峰）的淫乱．与佛教的关系和共产党的以假治国！👉👉点击链接[http://livestream.com/accounts/27235681．一切都是刚刚开始！](https://livestream.com/accounts/27235681．一切都是刚刚开始！ "http://livestream.com/accounts/27235681．一切都是刚刚开始！")
 
 [https://www.guo.media/posts/260428](https://www.guo.media/posts/260428) `2019-12-15T11:25:09`
