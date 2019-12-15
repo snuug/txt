@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 真心话！一位留美学生怎么看待爆料革命<br>[https://gnews.org/zh-hans/54480/](https://gnews.org/zh-hans/54480/ "https://gnews.org/zh-hans/54480/")
+
+[https://www.guo.media/posts/260531](https://www.guo.media/posts/260531) `2019-12-15T22:55:10`
+##
+
 **milesguo** 撕开王岐山的画皮 ！王岐山领导下的中共邪恶世界版图之冰山一角<br>[https://gnews.org/zh-hans/54205/](https://gnews.org/zh-hans/54205/ "https://gnews.org/zh-hans/54205/")
 
 [https://www.guo.media/posts/260519](https://www.guo.media/posts/260519) `2019-12-15T21:55:12`
