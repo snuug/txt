@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Chinese Navy Is Busy Building Warships<br>[https://gnews.org/54833/](https://gnews.org/54833/ "https://gnews.org/54833/")
+
+[https://www.guo.media/posts/260613](https://www.guo.media/posts/260613) `2019-12-16T05:10:10`
+##
+
 **milesguo** 《路透》自爆母公司自我审查　中国境内封锁六四、反送中新闻<br>[https://gnews.org/zh-hans/54217/](https://gnews.org/zh-hans/54217/ "https://gnews.org/zh-hans/54217/")
 
 [https://www.guo.media/posts/260609](https://www.guo.media/posts/260609) `2019-12-16T04:55:10`
