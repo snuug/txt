@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月16号：尊敬的战友们好！这是如何使用GWES看文贵直播的一个小视频介绍一切都是刚刚开始。[https://gnews.org/](https://gnews.org/ "https://gnews.org/")
+
+[https://www.guo.media/posts/260721](https://www.guo.media/posts/260721) `2019-12-16T16:10:10`
+##
+
 **milesguo** 压在中国足球身上的三座大山！中国足球的未来在哪里？<br>[https://gnews.org/zh-hans/55377/](https://gnews.org/zh-hans/55377/ "https://gnews.org/zh-hans/55377/")
 
 [https://www.guo.media/posts/260704](https://www.guo.media/posts/260704) `2019-12-16T14:25:18`
