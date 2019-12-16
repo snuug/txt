@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月16日：王岐山又出来证明自己没换腰子了……又来证明文贵情报准确了……还带上了杨洁篪，杨波切！看来刚刚一起双修过……一切都是刚刚开始！
+
+[https://www.guo.media/posts/260728](https://www.guo.media/posts/260728) `2019-12-16T16:40:10`
+##
+
 **milesguo** 12月16号：尊敬的战友们好！这是如何使用GWES看文贵直播的一个小视频介绍一切都是刚刚开始。[https://gnews.org/](https://gnews.org/ "https://gnews.org/")
 
 [https://www.guo.media/posts/260721](https://www.guo.media/posts/260721) `2019-12-16T16:10:10`
