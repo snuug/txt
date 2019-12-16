@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 梁先生逝世半周年悼念活动<br>[https://gnews.org/zh-hans/54988/](https://gnews.org/zh-hans/54988/ "https://gnews.org/zh-hans/54988/")
+
+[https://www.guo.media/posts/260583](https://www.guo.media/posts/260583) `2019-12-16T03:25:10`
+##
+
+**milesguo** 西方左派政客之邪恶是如何养成的<br>[https://gnews.org/zh-hans/54936/](https://gnews.org/zh-hans/54936/ "https://gnews.org/zh-hans/54936/")
+
+[https://www.guo.media/posts/260581](https://www.guo.media/posts/260581) `2019-12-16T03:25:13`
+##
+
 **milesguo** 美国出台国防法以应对来自中国芬太尼的威胁<br>[https://gnews.org/zh-hans/54965/](https://gnews.org/zh-hans/54965/ "https://gnews.org/zh-hans/54965/")
 
 [https://www.guo.media/posts/260576](https://www.guo.media/posts/260576) `2019-12-16T03:10:10`
