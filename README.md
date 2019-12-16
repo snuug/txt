@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月15日 美国政要推文精选<br>[https://gnews.org/zh-hans/54973/](https://gnews.org/zh-hans/54973/ "https://gnews.org/zh-hans/54973/")
+
+[https://www.guo.media/posts/260585](https://www.guo.media/posts/260585) `2019-12-16T03:40:11`
+##
+
 **milesguo** 梁先生逝世半周年悼念活动<br>[https://gnews.org/zh-hans/54988/](https://gnews.org/zh-hans/54988/ "https://gnews.org/zh-hans/54988/")
 
 [https://www.guo.media/posts/260583](https://www.guo.media/posts/260583) `2019-12-16T03:25:10`
