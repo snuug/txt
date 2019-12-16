@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 美国国防部长：中国是美军关注的首要重点<br>[https://gnews.org/zh-hans/55714/](https://gnews.org/zh-hans/55714/ "https://gnews.org/zh-hans/55714/")
+
+[https://www.guo.media/posts/260784](https://www.guo.media/posts/260784) `2019-12-16T23:10:10`
+##
+
+**milesguo** 2019年2月16日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/55753/](https://gnews.org/zh-hans/55753/ "https://gnews.org/zh-hans/55753/")
+
+[https://www.guo.media/posts/260783](https://www.guo.media/posts/260783) `2019-12-16T23:10:14`
+##
+
+**milesguo** 广播：2019/12/16郭文贵先生直播<br>[https://gnews.org/zh-hans/55666/](https://gnews.org/zh-hans/55666/ "https://gnews.org/zh-hans/55666/")
+
+[https://www.guo.media/posts/260782](https://www.guo.media/posts/260782) `2019-12-16T23:10:17`
+##
+
+**milesguo** 郭台铭二度抛售阿里，孙正义套现百亿<br>[https://gnews.org/zh-hans/55652/](https://gnews.org/zh-hans/55652/ "https://gnews.org/zh-hans/55652/")
+
+[https://www.guo.media/posts/260781](https://www.guo.media/posts/260781) `2019-12-16T23:10:19`
+##
+
+**milesguo** 黑警街上公开打人，阻记者拍摄欲掩人耳目<br>[https://gnews.org/zh-hans/55418/](https://gnews.org/zh-hans/55418/ "https://gnews.org/zh-hans/55418/")
+
+[https://www.guo.media/posts/260780](https://www.guo.media/posts/260780) `2019-12-16T23:10:22`
+##
+
 **milesguo** 告海外沉默力量书！<br>[https://gnews.org/zh-hans/55446/](https://gnews.org/zh-hans/55446/ "https://gnews.org/zh-hans/55446/")
 
 [https://www.guo.media/posts/260779](https://www.guo.media/posts/260779) `2019-12-16T22:55:14`
