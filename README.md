@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【图文墙纸】面对不公义，都有发声的权利和义务<br>[https://gnews.org/zh-hans/55303/](https://gnews.org/zh-hans/55303/ "https://gnews.org/zh-hans/55303/")
+
+[https://www.guo.media/posts/260651](https://www.guo.media/posts/260651) `2019-12-16T07:55:10`
+##
+
 **milesguo** Baptist University Student Reporter hit in the right eye<br>[https://gnews.org/55057/](https://gnews.org/55057/ "https://gnews.org/55057/")
 
 [https://www.guo.media/posts/260636](https://www.guo.media/posts/260636) `2019-12-16T06:55:10`
