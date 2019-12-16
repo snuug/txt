@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 孟建柱视察海南红黄蓝幼儿园？？！<br>[https://gnews.org/zh-hans/55163/](https://gnews.org/zh-hans/55163/ "https://gnews.org/zh-hans/55163/")
+
+[https://www.guo.media/posts/260608](https://www.guo.media/posts/260608) `2019-12-16T04:40:10`
+##
+
+**milesguo** 12月15日下午16点至16日凌晨3点30分驻港戒严部队逮捕多人详细情况<br>[https://gnews.org/zh-hans/55078/](https://gnews.org/zh-hans/55078/ "https://gnews.org/zh-hans/55078/")
+
+[https://www.guo.media/posts/260607](https://www.guo.media/posts/260607) `2019-12-16T04:40:13`
+##
+
 **milesguo** 12月15日 美国政要推文精选<br>[https://gnews.org/zh-hans/54973/](https://gnews.org/zh-hans/54973/ "https://gnews.org/zh-hans/54973/")
 
 [https://www.guo.media/posts/260585](https://www.guo.media/posts/260585) `2019-12-16T03:40:11`
