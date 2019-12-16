@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 告海外沉默力量书！<br>[https://gnews.org/zh-hans/55446/](https://gnews.org/zh-hans/55446/ "https://gnews.org/zh-hans/55446/")
+
+[https://www.guo.media/posts/260779](https://www.guo.media/posts/260779) `2019-12-16T22:55:14`
+##
+
+**milesguo** 免费咖啡！日本“咖啡王子”带给香港人微笑<br>[https://gnews.org/zh-hans/55572/](https://gnews.org/zh-hans/55572/ "https://gnews.org/zh-hans/55572/")
+
+[https://www.guo.media/posts/260778](https://www.guo.media/posts/260778) `2019-12-16T22:55:18`
+##
+
 **milesguo** 12月16日：战友们用智慧的双眼找到了双修教教主王岐山的历史轨迹……任何人做过事情都是有迹可寻的……一切都是刚刚开始！【️🧙‍♀️{ 文贵爆料 言之凿凿 }<br>【南怀瑾先生建议我特别要多喝白萝卜汤】<br>《人民网》转2004年2月18号《京华时报》《代市长对委员实话实说》<br>援引代市长王岐山发言“我受命到北京时 多少香港的朋友给我打电话。南怀瑾先生还建议我特别要多喝白萝卜汤。我在上任期间就是中午一碗面 晚上一碗面 一碗萝卜汤”】
 
 [https://www.guo.media/posts/260753](https://www.guo.media/posts/260753) `2019-12-16T18:40:10`
