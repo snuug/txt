@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** GTV观看指南：2分钟学会如何在GTV看郭先生直播视频<br>[https://gnews.org/zh-hans/55378/](https://gnews.org/zh-hans/55378/ "https://gnews.org/zh-hans/55378/")
+
+[https://www.guo.media/posts/260666](https://www.guo.media/posts/260666) `2019-12-16T08:40:10`
+##
+
 **milesguo** 【图文墙纸】面对不公义，都有发声的权利和义务<br>[https://gnews.org/zh-hans/55303/](https://gnews.org/zh-hans/55303/ "https://gnews.org/zh-hans/55303/")
 
 [https://www.guo.media/posts/260651](https://www.guo.media/posts/260651) `2019-12-16T07:55:10`
