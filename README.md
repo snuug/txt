@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国公布9月一起秘密驱逐涉嫌间谍活动的中共官员事件<br>[https://gnews.org/zh-hans/55480/](https://gnews.org/zh-hans/55480/ "https://gnews.org/zh-hans/55480/")
+
+[https://www.guo.media/posts/260686](https://www.guo.media/posts/260686) `2019-12-16T12:10:10`
+##
+
 **milesguo** GTV观看指南：2分钟学会如何在GTV看郭先生直播视频<br>[https://gnews.org/zh-hans/55378/](https://gnews.org/zh-hans/55378/ "https://gnews.org/zh-hans/55378/")
 
 [https://www.guo.media/posts/260666](https://www.guo.media/posts/260666) `2019-12-16T08:40:10`
