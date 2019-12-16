@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Baptist University Student Reporter hit in the right eye<br>[https://gnews.org/55057/](https://gnews.org/55057/ "https://gnews.org/55057/")
+
+[https://www.guo.media/posts/260636](https://www.guo.media/posts/260636) `2019-12-16T06:55:10`
+##
+
+**milesguo** CCP Raced To Develop 6G While U.S. And Its Western Allies Tried To Stop The Rollout Of Huawei 5G<br>[https://gnews.org/54949/](https://gnews.org/54949/ "https://gnews.org/54949/")
+
+[https://www.guo.media/posts/260635](https://www.guo.media/posts/260635) `2019-12-16T06:55:13`
+##
+
+**milesguo** 伟大的香港人敲响了 CCP 的丧钟!<br>[https://gnews.org/zh-hans/55267/](https://gnews.org/zh-hans/55267/ "https://gnews.org/zh-hans/55267/")
+
+[https://www.guo.media/posts/260633](https://www.guo.media/posts/260633) `2019-12-16T06:55:16`
+##
+
+**milesguo** 12月15日驻港戒严部队制造事端 港人机智识破阴谋<br>[https://gnews.org/zh-hans/55251/](https://gnews.org/zh-hans/55251/ "https://gnews.org/zh-hans/55251/")
+
+[https://www.guo.media/posts/260631](https://www.guo.media/posts/260631) `2019-12-16T06:55:19`
+##
+
 **milesguo** The Chinese Navy Is Busy Building Warships<br>[https://gnews.org/54833/](https://gnews.org/54833/ "https://gnews.org/54833/")
 
 [https://www.guo.media/posts/260613](https://www.guo.media/posts/260613) `2019-12-16T05:10:10`
