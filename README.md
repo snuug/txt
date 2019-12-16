@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 严防共谍！美国秘密驱逐涉嫌在入侵军事基地后从事间谍活动的中国官员<br>[https://gnews.org/zh-hans/54926/](https://gnews.org/zh-hans/54926/ "https://gnews.org/zh-hans/54926/")
+
+[https://www.guo.media/posts/260557](https://www.guo.media/posts/260557) `2019-12-16T01:40:11`
+##
+
+**milesguo** 戒严部队搞笑时间：用脚灭火不成反被跳踢踏舞引发众人笑声不断<br>[https://gnews.org/zh-hans/54879/](https://gnews.org/zh-hans/54879/ "https://gnews.org/zh-hans/54879/")
+
+[https://www.guo.media/posts/260556](https://www.guo.media/posts/260556) `2019-12-16T01:40:14`
+##
+
 **milesguo** 黑警当街行凶，记者惨遭毒打<br>[https://gnews.org/zh-hans/54782/](https://gnews.org/zh-hans/54782/ "https://gnews.org/zh-hans/54782/")
 
 [https://www.guo.media/posts/260545](https://www.guo.media/posts/260545) `2019-12-15T23:40:10`
