@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 压在中国足球身上的三座大山！中国足球的未来在哪里？<br>[https://gnews.org/zh-hans/55377/](https://gnews.org/zh-hans/55377/ "https://gnews.org/zh-hans/55377/")
+
+[https://www.guo.media/posts/260704](https://www.guo.media/posts/260704) `2019-12-16T14:25:18`
+##
+
+**milesguo** 驻港戒严部队军警冲入餐厅抓人害怕留下证据 记者拍摄时遭军警攻击鼻梁受伤<br>[https://gnews.org/zh-hans/55276/](https://gnews.org/zh-hans/55276/ "https://gnews.org/zh-hans/55276/")
+
+[https://www.guo.media/posts/260703](https://www.guo.media/posts/260703) `2019-12-16T14:25:27`
+##
+
 **milesguo** 12月15日香港要闻：港珠澳大桥岂止大白象工程，更是摧毁香港核心工具；周日十八区和平集会，鬼卒再出洞扰民<br>[https://gnews.org/zh-hans/55554/](https://gnews.org/zh-hans/55554/ "https://gnews.org/zh-hans/55554/")
 
 [https://www.guo.media/posts/260702](https://www.guo.media/posts/260702) `2019-12-16T14:10:10`
