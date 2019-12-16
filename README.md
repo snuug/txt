@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 12月15日香港要闻：港珠澳大桥岂止大白象工程，更是摧毁香港核心工具；周日十八区和平集会，鬼卒再出洞扰民<br>[https://gnews.org/zh-hans/55554/](https://gnews.org/zh-hans/55554/ "https://gnews.org/zh-hans/55554/")
+
+[https://www.guo.media/posts/260702](https://www.guo.media/posts/260702) `2019-12-16T14:10:10`
+##
+
+**milesguo** Social Welfare Sector to Go On Strike, Urging Response for the Five Demands<br>[https://gnews.org/55500/](https://gnews.org/55500/ "https://gnews.org/55500/")
+
+[https://www.guo.media/posts/260700](https://www.guo.media/posts/260700) `2019-12-16T14:10:13`
+##
+
+**milesguo** Miles Guo: Wang Qishan and Chen Feng practice Yab-Yum with little girls from age 8 to 14<br>[https://gnews.org/55298/](https://gnews.org/55298/ "https://gnews.org/55298/")
+
+[https://www.guo.media/posts/260699](https://www.guo.media/posts/260699) `2019-12-16T14:10:15`
+##
+
+**milesguo** There is More to Justice than its Shattered Visage<br>[https://gnews.org/55249/](https://gnews.org/55249/ "https://gnews.org/55249/")
+
+[https://www.guo.media/posts/260698](https://www.guo.media/posts/260698) `2019-12-16T14:10:18`
+##
+
+**milesguo** Hong Kong: Health problems due to tear gas<br>[https://gnews.org/54951/](https://gnews.org/54951/ "https://gnews.org/54951/")
+
+[https://www.guo.media/posts/260697](https://www.guo.media/posts/260697) `2019-12-16T14:10:21`
+##
+
 **milesguo** 2019年12月15日墨尔本反共集会：对一带一路说“不”，支持香港<br>[https://gnews.org/zh-hans/55495/](https://gnews.org/zh-hans/55495/ "https://gnews.org/zh-hans/55495/")
 
 [https://www.guo.media/posts/260689](https://www.guo.media/posts/260689) `2019-12-16T12:55:11`
