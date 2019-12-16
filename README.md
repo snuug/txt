@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年12月15日墨尔本反共集会：对一带一路说“不”，支持香港<br>[https://gnews.org/zh-hans/55495/](https://gnews.org/zh-hans/55495/ "https://gnews.org/zh-hans/55495/")
+
+[https://www.guo.media/posts/260689](https://www.guo.media/posts/260689) `2019-12-16T12:55:11`
+##
+
 **milesguo** 美国公布9月一起秘密驱逐涉嫌间谍活动的中共官员事件<br>[https://gnews.org/zh-hans/55480/](https://gnews.org/zh-hans/55480/ "https://gnews.org/zh-hans/55480/")
 
 [https://www.guo.media/posts/260686](https://www.guo.media/posts/260686) `2019-12-16T12:10:10`
