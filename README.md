@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 《路透》自爆母公司自我审查　中国境内封锁六四、反送中新闻<br>[https://gnews.org/zh-hans/54217/](https://gnews.org/zh-hans/54217/ "https://gnews.org/zh-hans/54217/")
+
+[https://www.guo.media/posts/260609](https://www.guo.media/posts/260609) `2019-12-16T04:55:10`
+##
+
 **milesguo** 孟建柱视察海南红黄蓝幼儿园？？！<br>[https://gnews.org/zh-hans/55163/](https://gnews.org/zh-hans/55163/ "https://gnews.org/zh-hans/55163/")
 
 [https://www.guo.media/posts/260608](https://www.guo.media/posts/260608) `2019-12-16T04:40:10`
