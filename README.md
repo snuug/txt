@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 国人的冷漠麻木是催化邪恶体制壮大的根本原因<br>[https://gnews.org/zh-hans/54121/](https://gnews.org/zh-hans/54121/ "https://gnews.org/zh-hans/54121/")
+
+[https://www.guo.media/posts/260575](https://www.guo.media/posts/260575) `2019-12-16T02:55:10`
+##
+
 **milesguo** 严防共谍！美国秘密驱逐涉嫌在入侵军事基地后从事间谍活动的中国官员<br>[https://gnews.org/zh-hans/54926/](https://gnews.org/zh-hans/54926/ "https://gnews.org/zh-hans/54926/")
 
 [https://www.guo.media/posts/260557](https://www.guo.media/posts/260557) `2019-12-16T01:40:11`
