@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国出台国防法以应对来自中国芬太尼的威胁<br>[https://gnews.org/zh-hans/54965/](https://gnews.org/zh-hans/54965/ "https://gnews.org/zh-hans/54965/")
+
+[https://www.guo.media/posts/260576](https://www.guo.media/posts/260576) `2019-12-16T03:10:10`
+##
+
 **milesguo** 国人的冷漠麻木是催化邪恶体制壮大的根本原因<br>[https://gnews.org/zh-hans/54121/](https://gnews.org/zh-hans/54121/ "https://gnews.org/zh-hans/54121/")
 
 [https://www.guo.media/posts/260575](https://www.guo.media/posts/260575) `2019-12-16T02:55:10`
