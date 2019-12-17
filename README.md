@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 轻松挺郭开心灭共 回顾里根的反苏笑话<br>[https://gnews.org/zh-hans/56312/](https://gnews.org/zh-hans/56312/ "https://gnews.org/zh-hans/56312/")
+
+[https://www.guo.media/posts/260950](https://www.guo.media/posts/260950) `2019-12-17T16:10:10`
+##
+
 **milesguo** [China] Man Detained for Exposing Local Government Online<br>[https://gnews.org/56369/](https://gnews.org/56369/ "https://gnews.org/56369/")
 
 [https://www.guo.media/posts/260940](https://www.guo.media/posts/260940) `2019-12-17T15:40:10`
