@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国海军战力提升！最新军舰进入最后测试阶段<br>[https://gnews.org/zh-hans/56108/](https://gnews.org/zh-hans/56108/ "https://gnews.org/zh-hans/56108/")
+
+[https://www.guo.media/posts/260967](https://www.guo.media/posts/260967) `2019-12-17T17:55:10`
+##
+
 **milesguo** 史蒂夫·班农称“台湾的民主选举跟香港街头抗议”对抵制中共全球制霸野心，至关重要！<br>[https://gnews.org/zh-hans/56457/](https://gnews.org/zh-hans/56457/ "https://gnews.org/zh-hans/56457/")
 
 [https://www.guo.media/posts/260965](https://www.guo.media/posts/260965) `2019-12-17T17:40:09`
