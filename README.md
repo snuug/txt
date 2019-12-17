@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻译】<br>CNBC《面对国家》节目12月15日采访莱特希泽：莱特希泽证实中美第一阶段贸易协议已达成，预计明年一月签署<br>[https://spark.adobe.com/page/LiHFTuksX9ScA/](https://spark.adobe.com/page/LiHFTuksX9ScA/ "https://spark.adobe.com/page/LiHFTuksX9ScA/")<br>【秘密翻译组】
+
+[https://www.guo.media/posts/260860](https://www.guo.media/posts/260860) `2019-12-17T07:25:11`
+##
+
 **milesguo** 百业凋零的中共国真实状况之——青岛科技街<br>[https://gnews.org/zh-hans/55948/](https://gnews.org/zh-hans/55948/ "https://gnews.org/zh-hans/55948/")
 
 [https://www.guo.media/posts/260826](https://www.guo.media/posts/260826) `2019-12-17T04:25:13`
