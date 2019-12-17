@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “You Holiness” 王歧山的双修教派信仰的是什么？<br>[https://gnews.org/zh-hans/55856/](https://gnews.org/zh-hans/55856/ "https://gnews.org/zh-hans/55856/")
+
+[https://www.guo.media/posts/260785](https://www.guo.media/posts/260785) `2019-12-17T00:25:10`
+##
+
 **milesguo** 美国国防部长：中国是美军关注的首要重点<br>[https://gnews.org/zh-hans/55714/](https://gnews.org/zh-hans/55714/ "https://gnews.org/zh-hans/55714/")
 
 [https://www.guo.media/posts/260784](https://www.guo.media/posts/260784) `2019-12-16T23:10:10`
