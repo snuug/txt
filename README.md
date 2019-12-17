@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/16/2019<br>[https://gnews.org/56472/](https://gnews.org/56472/ "https://gnews.org/56472/")
+
+[https://www.guo.media/posts/260999](https://www.guo.media/posts/260999) `2019-12-17T20:55:10`
+##
+
 **milesguo** Hong Kong citizens wrote their wishes on the floor of a shopping mall<br>[https://gnews.org/56357/](https://gnews.org/56357/ "https://gnews.org/56357/")
 
 [https://www.guo.media/posts/260987](https://www.guo.media/posts/260987) `2019-12-17T19:55:10`
