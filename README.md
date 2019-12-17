@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: The Early Recovery of The World Bank<br>[https://gnews.org/55805/](https://gnews.org/55805/ "https://gnews.org/55805/")
+
+[https://www.guo.media/posts/260922](https://www.guo.media/posts/260922) `2019-12-17T14:25:11`
+##
+
+**milesguo** Brother Rain interprets CCP’s front-page​ news, Dec 16<br>[https://gnews.org/55787/](https://gnews.org/55787/ "https://gnews.org/55787/")
+
+[https://www.guo.media/posts/260921](https://www.guo.media/posts/260921) `2019-12-17T14:25:14`
+##
+
 **milesguo** Highlights of Miles Guo’s Live Broadcast on 12/15/2019<br>[https://gnews.org/55799/](https://gnews.org/55799/ "https://gnews.org/55799/")
 
 [https://www.guo.media/posts/260903](https://www.guo.media/posts/260903) `2019-12-17T11:55:10`
