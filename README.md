@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 面具先生：郭文贵先生爆料革命2017-2019关于生殖器治国从姚依林到王岐山<br>[https://gnews.org/zh-hans/56434/](https://gnews.org/zh-hans/56434/ "https://gnews.org/zh-hans/56434/")
+
+[https://www.guo.media/posts/260963](https://www.guo.media/posts/260963) `2019-12-17T17:25:11`
+##
+
 **milesguo** 环球时报主任赴美签证被拒签，网民欢庆如同过年<br>[https://gnews.org/zh-hans/56045/](https://gnews.org/zh-hans/56045/ "https://gnews.org/zh-hans/56045/")
 
 [https://www.guo.media/posts/260960](https://www.guo.media/posts/260960) `2019-12-17T17:10:10`
