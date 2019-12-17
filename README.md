@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** GNews征稿要求：有助于灭共，稿件形式多样化，请参照网站的各个栏目<br>[https://gnews.org/zh-hans/56527/](https://gnews.org/zh-hans/56527/ "https://gnews.org/zh-hans/56527/")
+
+[https://www.guo.media/posts/261011](https://www.guo.media/posts/261011) `2019-12-17T22:40:11`
+##
+
+**milesguo** 12月16日香港要闻：港共再研恶法图以警治港，中共驻港厉鬼施恐袭市民，传媒无一幸免<br>[https://gnews.org/zh-hans/56505/](https://gnews.org/zh-hans/56505/ "https://gnews.org/zh-hans/56505/")
+
+[https://www.guo.media/posts/261010](https://www.guo.media/posts/261010) `2019-12-17T22:40:14`
+##
+
+**milesguo** 又一艘航母加入海军, 中共在军国主义的道路上越走越远<br>[https://gnews.org/zh-hans/56469/](https://gnews.org/zh-hans/56469/ "https://gnews.org/zh-hans/56469/")
+
+[https://www.guo.media/posts/261009](https://www.guo.media/posts/261009) `2019-12-17T22:40:17`
+##
+
 **milesguo** CCP attends commissioning of first Chinese-built aircraft carrier<br>[https://gnews.org/56491/](https://gnews.org/56491/ "https://gnews.org/56491/")
 
 [https://www.guo.media/posts/261000](https://www.guo.media/posts/261000) `2019-12-17T21:10:11`
