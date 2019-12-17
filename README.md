@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong citizens wrote their wishes on the floor of a shopping mall<br>[https://gnews.org/56357/](https://gnews.org/56357/ "https://gnews.org/56357/")
+
+[https://www.guo.media/posts/260987](https://www.guo.media/posts/260987) `2019-12-17T19:55:10`
+##
+
 **milesguo** 美国海军战力提升！最新军舰进入最后测试阶段<br>[https://gnews.org/zh-hans/56108/](https://gnews.org/zh-hans/56108/ "https://gnews.org/zh-hans/56108/")
 
 [https://www.guo.media/posts/260967](https://www.guo.media/posts/260967) `2019-12-17T17:55:10`
