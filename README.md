@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Chinese don’t own their land and they are not all communists<br>[https://gnews.org/56098/](https://gnews.org/56098/ "https://gnews.org/56098/")
+
+[https://www.guo.media/posts/260924](https://www.guo.media/posts/260924) `2019-12-17T14:40:11`
+##
+
+**milesguo** Resident Evil Hong Kong Edition: It’s Not A Game but Reality<br>[https://gnews.org/55537/](https://gnews.org/55537/ "https://gnews.org/55537/")
+
+[https://www.guo.media/posts/260923](https://www.guo.media/posts/260923) `2019-12-17T14:40:14`
+##
+
 **milesguo** The Farm: The Early Recovery of The World Bank<br>[https://gnews.org/55805/](https://gnews.org/55805/ "https://gnews.org/55805/")
 
 [https://www.guo.media/posts/260922](https://www.guo.media/posts/260922) `2019-12-17T14:25:11`
