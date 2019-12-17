@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪读党报：中共如何应对人口老龄化？<br>[https://gnews.org/zh-hans/55875/](https://gnews.org/zh-hans/55875/ "https://gnews.org/zh-hans/55875/")
+
+[https://www.guo.media/posts/260803](https://www.guo.media/posts/260803) `2019-12-17T02:10:10`
+##
+
 **milesguo** “You Holiness” 王歧山的双修教派信仰的是什么？<br>[https://gnews.org/zh-hans/55856/](https://gnews.org/zh-hans/55856/ "https://gnews.org/zh-hans/55856/")
 
 [https://www.guo.media/posts/260785](https://www.guo.media/posts/260785) `2019-12-17T00:25:10`
