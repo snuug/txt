@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/17郭文贵先生直播 一个坏消息 两个好消息<br>[https://gnews.org/zh-hans/56331/](https://gnews.org/zh-hans/56331/ "https://gnews.org/zh-hans/56331/")
+
+[https://www.guo.media/posts/260956](https://www.guo.media/posts/260956) `2019-12-17T16:55:11`
+##
+
 **milesguo** 轻松挺郭开心灭共 回顾里根的反苏笑话<br>[https://gnews.org/zh-hans/56312/](https://gnews.org/zh-hans/56312/ "https://gnews.org/zh-hans/56312/")
 
 [https://www.guo.media/posts/260950](https://www.guo.media/posts/260950) `2019-12-17T16:10:10`
