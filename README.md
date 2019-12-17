@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 史蒂夫·班农称“台湾的民主选举跟香港街头抗议”对抵制中共全球制霸野心，至关重要！<br>[https://gnews.org/zh-hans/56457/](https://gnews.org/zh-hans/56457/ "https://gnews.org/zh-hans/56457/")
+
+[https://www.guo.media/posts/260965](https://www.guo.media/posts/260965) `2019-12-17T17:40:09`
+##
+
+**milesguo** 警惕！中共国的AI监控技术出口到60多个国家<br>[https://gnews.org/zh-hans/56164/](https://gnews.org/zh-hans/56164/ "https://gnews.org/zh-hans/56164/")
+
+[https://www.guo.media/posts/260964](https://www.guo.media/posts/260964) `2019-12-17T17:40:13`
+##
+
 **milesguo** 面具先生：郭文贵先生爆料革命2017-2019关于生殖器治国从姚依林到王岐山<br>[https://gnews.org/zh-hans/56434/](https://gnews.org/zh-hans/56434/ "https://gnews.org/zh-hans/56434/")
 
 [https://www.guo.media/posts/260963](https://www.guo.media/posts/260963) `2019-12-17T17:25:11`
