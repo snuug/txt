@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP attends commissioning of first Chinese-built aircraft carrier<br>[https://gnews.org/56491/](https://gnews.org/56491/ "https://gnews.org/56491/")
+
+[https://www.guo.media/posts/261000](https://www.guo.media/posts/261000) `2019-12-17T21:10:11`
+##
+
 **milesguo** Highlights of Miles Guo’s Live Broadcast on 12/16/2019<br>[https://gnews.org/56472/](https://gnews.org/56472/ "https://gnews.org/56472/")
 
 [https://www.guo.media/posts/260999](https://www.guo.media/posts/260999) `2019-12-17T20:55:10`
