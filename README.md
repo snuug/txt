@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 百业凋零的中共国真实状况之——青岛科技街<br>[https://gnews.org/zh-hans/55948/](https://gnews.org/zh-hans/55948/ "https://gnews.org/zh-hans/55948/")
+
+[https://www.guo.media/posts/260826](https://www.guo.media/posts/260826) `2019-12-17T04:25:13`
+##
+
+**milesguo** 贵州省安龙县发生煤矿事故致14人死亡，2人被困<br>[https://gnews.org/zh-hans/56032/](https://gnews.org/zh-hans/56032/ "https://gnews.org/zh-hans/56032/")
+
+[https://www.guo.media/posts/260825](https://www.guo.media/posts/260825) `2019-12-17T04:25:17`
+##
+
 **milesguo** 现货黄金走势面临关键抉择<br>[https://gnews.org/zh-hans/55905/](https://gnews.org/zh-hans/55905/ "https://gnews.org/zh-hans/55905/")
 
 [https://www.guo.media/posts/260809](https://www.guo.media/posts/260809) `2019-12-17T02:25:10`
