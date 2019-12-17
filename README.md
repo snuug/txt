@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** [China] Man Detained for Exposing Local Government Online<br>[https://gnews.org/56369/](https://gnews.org/56369/ "https://gnews.org/56369/")
+
+[https://www.guo.media/posts/260940](https://www.guo.media/posts/260940) `2019-12-17T15:40:10`
+##
+
+**milesguo** Hong Kong Reporters Were Refused Entry to Macau By China Customs<br>[https://gnews.org/56340/](https://gnews.org/56340/ "https://gnews.org/56340/")
+
+[https://www.guo.media/posts/260939](https://www.guo.media/posts/260939) `2019-12-17T15:40:13`
+##
+
 **milesguo** Miles Guo: Chinese don’t own their land and they are not all communists<br>[https://gnews.org/56098/](https://gnews.org/56098/ "https://gnews.org/56098/")
 
 [https://www.guo.media/posts/260924](https://www.guo.media/posts/260924) `2019-12-17T14:40:11`
