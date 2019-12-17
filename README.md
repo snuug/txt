@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 环球时报主任赴美签证被拒签，网民欢庆如同过年<br>[https://gnews.org/zh-hans/56045/](https://gnews.org/zh-hans/56045/ "https://gnews.org/zh-hans/56045/")
+
+[https://www.guo.media/posts/260960](https://www.guo.media/posts/260960) `2019-12-17T17:10:10`
+##
+
+**milesguo** 陈峰你不孤单！王岐山仁波切维基百科突然上线<br>[https://gnews.org/zh-hans/56396/](https://gnews.org/zh-hans/56396/ "https://gnews.org/zh-hans/56396/")
+
+[https://www.guo.media/posts/260958](https://www.guo.media/posts/260958) `2019-12-17T17:10:13`
+##
+
+**milesguo** 权力的游戏！枪杆子 笔杆子 刀把子 钱袋子 地耗子<br>[https://gnews.org/zh-hans/56354/](https://gnews.org/zh-hans/56354/ "https://gnews.org/zh-hans/56354/")
+
+[https://www.guo.media/posts/260957](https://www.guo.media/posts/260957) `2019-12-17T17:10:15`
+##
+
 **milesguo** 广播：2019/12/17郭文贵先生直播 一个坏消息 两个好消息<br>[https://gnews.org/zh-hans/56331/](https://gnews.org/zh-hans/56331/ "https://gnews.org/zh-hans/56331/")
 
 [https://www.guo.media/posts/260956](https://www.guo.media/posts/260956) `2019-12-17T16:55:11`
