@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 现货黄金走势面临关键抉择<br>[https://gnews.org/zh-hans/55905/](https://gnews.org/zh-hans/55905/ "https://gnews.org/zh-hans/55905/")
+
+[https://www.guo.media/posts/260809](https://www.guo.media/posts/260809) `2019-12-17T02:25:10`
+##
+
+**milesguo** 徐州自由自在网络科技有限公司（papitube）配合共产党维稳台湾<br>[https://gnews.org/zh-hans/55901/](https://gnews.org/zh-hans/55901/ "https://gnews.org/zh-hans/55901/")
+
+[https://www.guo.media/posts/260808](https://www.guo.media/posts/260808) `2019-12-17T02:25:14`
+##
+
+**milesguo** 推测王健之死——人类的第四种死法：“设计死”<br>[https://gnews.org/zh-hans/55625/](https://gnews.org/zh-hans/55625/ "https://gnews.org/zh-hans/55625/")
+
+[https://www.guo.media/posts/260806](https://www.guo.media/posts/260806) `2019-12-17T02:25:16`
+##
+
+**milesguo** 驻港戒严部队冲入商场抓人，至少两人被捕<br>[https://gnews.org/zh-hans/55433/](https://gnews.org/zh-hans/55433/ "https://gnews.org/zh-hans/55433/")
+
+[https://www.guo.media/posts/260805](https://www.guo.media/posts/260805) `2019-12-17T02:25:19`
+##
+
 **milesguo** 小巴猪读党报：中共如何应对人口老龄化？<br>[https://gnews.org/zh-hans/55875/](https://gnews.org/zh-hans/55875/ "https://gnews.org/zh-hans/55875/")
 
 [https://www.guo.media/posts/260803](https://www.guo.media/posts/260803) `2019-12-17T02:10:10`
