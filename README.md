@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/15/2019<br>[https://gnews.org/55799/](https://gnews.org/55799/ "https://gnews.org/55799/")
+
+[https://www.guo.media/posts/260903](https://www.guo.media/posts/260903) `2019-12-17T11:55:10`
+##
+
+**milesguo** HK Protest: Notes from the reporters on the scene from Dec. 15 to 16<br>[https://gnews.org/55472/](https://gnews.org/55472/ "https://gnews.org/55472/")
+
+[https://www.guo.media/posts/260902](https://www.guo.media/posts/260902) `2019-12-17T11:55:13`
+##
+
+**milesguo** 中国不国：从高层到底层的性虐童现象<br>[https://gnews.org/zh-hans/56196/](https://gnews.org/zh-hans/56196/ "https://gnews.org/zh-hans/56196/") 
+
+[https://www.guo.media/posts/260901](https://www.guo.media/posts/260901) `2019-12-17T11:55:16`
+##
+
+**milesguo** 文字版12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用<br>[https://gnews.org/zh-hans/56251/](https://gnews.org/zh-hans/56251/ "https://gnews.org/zh-hans/56251/")
+
+[https://www.guo.media/posts/260899](https://www.guo.media/posts/260899) `2019-12-17T11:55:19`
+##
+
 **milesguo** 伐共檄文——致全体中华儿女的一封信<br>[https://gnews.org/zh-hans/56182/](https://gnews.org/zh-hans/56182/ "https://gnews.org/zh-hans/56182/")
 
 [https://www.guo.media/posts/260896](https://www.guo.media/posts/260896) `2019-12-17T11:40:10`
