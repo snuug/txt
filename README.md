@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共弱民之术——甘愿平庸<br>[https://gnews.org/zh-hans/56229/](https://gnews.org/zh-hans/56229/ "https://gnews.org/zh-hans/56229/")
+
+[https://www.guo.media/posts/261056](https://www.guo.media/posts/261056) `2019-12-18T03:10:11`
+##
+
 **milesguo** Highlights of Miles Guo’s Live Broadcast on 12/17/2019<br>[https://gnews.org/56552/](https://gnews.org/56552/ "https://gnews.org/56552/")
 
 [https://www.guo.media/posts/261039](https://www.guo.media/posts/261039) `2019-12-18T02:25:10`
