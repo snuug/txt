@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 请原谅我这一生放荡不羁爱自由 ——致香港自由战士的赞歌<br>[https://gnews.org/zh-hans/56991/](https://gnews.org/zh-hans/56991/ "https://gnews.org/zh-hans/56991/")
+
+[https://www.guo.media/posts/261235](https://www.guo.media/posts/261235) `2019-12-18T22:40:10`
+##
+
+**milesguo** 【翻譯】<br>Refinitiv使用過濾機制阻止路透社報道香港抗議活動<br>[https://spark.adobe.com/page/wqrCSCWzWLExe/](https://spark.adobe.com/page/wqrCSCWzWLExe/ "https://spark.adobe.com/page/wqrCSCWzWLExe/")<br>【戰鷹團】
+
+[https://www.guo.media/posts/261234](https://www.guo.media/posts/261234) `2019-12-18T22:40:13`
+##
+
+**milesguo** 乐山医疗事故看中共体制下医疗现状<br>[https://gnews.org/zh-hans/56928/](https://gnews.org/zh-hans/56928/ "https://gnews.org/zh-hans/56928/")
+
+[https://www.guo.media/posts/261233](https://www.guo.media/posts/261233) `2019-12-18T22:40:16`
+##
+
 **milesguo** China, Russia aim to lift some DPRK sanctions on North Korea<br>[https://gnews.org/57418/](https://gnews.org/57418/ "https://gnews.org/57418/")
 
 [https://www.guo.media/posts/261224](https://www.guo.media/posts/261224) `2019-12-18T20:25:10`
