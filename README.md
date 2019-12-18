@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/17/2019<br>[https://gnews.org/56552/](https://gnews.org/56552/ "https://gnews.org/56552/")
+
+[https://www.guo.media/posts/261039](https://www.guo.media/posts/261039) `2019-12-18T02:25:10`
+##
+
 **milesguo** The Farm: Espionage and Spycraft: CCP’s Information Warfare in Action<br>[https://gnews.org/55844/](https://gnews.org/55844/ "https://gnews.org/55844/")
 
 [https://www.guo.media/posts/261034](https://www.guo.media/posts/261034) `2019-12-18T01:40:12`
