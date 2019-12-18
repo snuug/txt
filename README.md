@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** China, Russia aim to lift some DPRK sanctions on North Korea<br>[https://gnews.org/57418/](https://gnews.org/57418/ "https://gnews.org/57418/")
+
+[https://www.guo.media/posts/261224](https://www.guo.media/posts/261224) `2019-12-18T20:25:10`
+##
+
+**milesguo** <br>Brother Rain interprets CCP’s front-page news, Dec 18<br>[https://gnews.org/57407/](https://gnews.org/57407/ "https://gnews.org/57407/")
+
+[https://www.guo.media/posts/261223](https://www.guo.media/posts/261223) `2019-12-18T20:25:13`
+##
+
 **milesguo** Hong Kong New Year’s Eve Firework Cancelled<br>[https://gnews.org/57285/](https://gnews.org/57285/ "https://gnews.org/57285/")
 
 [https://www.guo.media/posts/261220](https://www.guo.media/posts/261220) `2019-12-18T19:10:10`
