@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Espionage and Spycraft: CCP’s Information Warfare in Action<br>[https://gnews.org/55844/](https://gnews.org/55844/ "https://gnews.org/55844/")
+
+[https://www.guo.media/posts/261034](https://www.guo.media/posts/261034) `2019-12-18T01:40:12`
+##
+
+**milesguo** 美国参院通过「国防授权法案」保护台湾,川普将马上签字<br>[https://gnews.org/zh-hans/56725/](https://gnews.org/zh-hans/56725/ "https://gnews.org/zh-hans/56725/")
+
+[https://www.guo.media/posts/261032](https://www.guo.media/posts/261032) `2019-12-18T01:40:15`
+##
+
+**milesguo** 目的地 – 致敬香港英雄<br>[https://gnews.org/zh-hans/56588/](https://gnews.org/zh-hans/56588/ "https://gnews.org/zh-hans/56588/")
+
+[https://www.guo.media/posts/261031](https://www.guo.media/posts/261031) `2019-12-18T01:40:17`
+##
+
+**milesguo** 再一次捍卫香港：雄起！加拿大<br>[https://gnews.org/zh-hans/56586/](https://gnews.org/zh-hans/56586/ "https://gnews.org/zh-hans/56586/")
+
+[https://www.guo.media/posts/261030](https://www.guo.media/posts/261030) `2019-12-18T01:40:20`
+##
+
 **milesguo** 每日灭共（第十期）今天你双修了吗？<br>[https://gnews.org/zh-hans/55658/](https://gnews.org/zh-hans/55658/ "https://gnews.org/zh-hans/55658/")
 
 [https://www.guo.media/posts/261029](https://www.guo.media/posts/261029) `2019-12-18T01:25:10`
