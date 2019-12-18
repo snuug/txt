@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 社会动荡导致香港50亿美元的资金外流<br>[https://gnews.org/zh-hans/57183/](https://gnews.org/zh-hans/57183/ "https://gnews.org/zh-hans/57183/")
+
+[https://www.guo.media/posts/261165](https://www.guo.media/posts/261165) `2019-12-18T14:40:10`
+##
+
+**milesguo** 美法院裁定禁止四家中国公司出售盗版思科（Cisco）产品<br>[https://gnews.org/zh-hans/57159/](https://gnews.org/zh-hans/57159/ "https://gnews.org/zh-hans/57159/")
+
+[https://www.guo.media/posts/261164](https://www.guo.media/posts/261164) `2019-12-18T14:40:13`
+##
+
 **milesguo** Miles Guo shared two good news and one bad news from Washington, DC<br>[https://gnews.org/56787/](https://gnews.org/56787/ "https://gnews.org/56787/")
 
 [https://www.guo.media/posts/261156](https://www.guo.media/posts/261156) `2019-12-18T12:55:10`
