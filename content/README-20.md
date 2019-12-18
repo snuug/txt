@@ -13,6 +13,10 @@
 
 ## 頁面 20/22 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
+
+[翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
+
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
 
 [CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/2018/04/20180418-3704285633140806842.md)
@@ -58,10 +62,6 @@
 [美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
 
 [美国新闻关于郭先生的报道的收集](/content/2018/04/20180418-2688604786049331221.md)
-
-[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/2018/04/20180418-5215268758560370583.md)
-
-[逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/content/2018/04/20180418-745923463937073308.md)
 
 
 ## 頁面 20/22 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
