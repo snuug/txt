@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 12月17日 美国政要推文精选<br>[https://gnews.org/zh-hans/56859/](https://gnews.org/zh-hans/56859/ "https://gnews.org/zh-hans/56859/")
+
+[https://www.guo.media/posts/261190](https://www.guo.media/posts/261190) `2019-12-18T15:55:10`
+##
+
+**milesguo** 分析：中共为何惧怕「逆全球化」<br>[https://gnews.org/zh-hans/56857/](https://gnews.org/zh-hans/56857/ "https://gnews.org/zh-hans/56857/")
+
+[https://www.guo.media/posts/261189](https://www.guo.media/posts/261189) `2019-12-18T15:55:14`
+##
+
+**milesguo** 文字版2019年12月16号文贵报平安：维护海外华人形象，依法惩治海外的大小欺民贼<br>[https://gnews.org/zh-hans/56848/](https://gnews.org/zh-hans/56848/ "https://gnews.org/zh-hans/56848/")
+
+[https://www.guo.media/posts/261187](https://www.guo.media/posts/261187) `2019-12-18T15:55:16`
+##
+
+**milesguo** 从王教宗的全球野心出发 重新认识蓝金黄绿<br>[https://gnews.org/zh-hans/56837/](https://gnews.org/zh-hans/56837/ "https://gnews.org/zh-hans/56837/")
+
+[https://www.guo.media/posts/261186](https://www.guo.media/posts/261186) `2019-12-18T15:55:19`
+##
+
+**milesguo** 看一看中国对外承包工程商会和“一带一路”的参与企业<br>[https://gnews.org/zh-hans/56813/](https://gnews.org/zh-hans/56813/ "https://gnews.org/zh-hans/56813/")
+
+[https://www.guo.media/posts/261185](https://www.guo.media/posts/261185) `2019-12-18T15:55:22`
+##
+
 **milesguo** 社会动荡导致香港50亿美元的资金外流<br>[https://gnews.org/zh-hans/57183/](https://gnews.org/zh-hans/57183/ "https://gnews.org/zh-hans/57183/")
 
 [https://www.guo.media/posts/261165](https://www.guo.media/posts/261165) `2019-12-18T14:40:10`
