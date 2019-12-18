@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong New Year’s Eve Firework Cancelled<br>[https://gnews.org/57285/](https://gnews.org/57285/ "https://gnews.org/57285/")
+
+[https://www.guo.media/posts/261220](https://www.guo.media/posts/261220) `2019-12-18T19:10:10`
+##
+
+**milesguo** Chinese Foreign Ministry Asked U.S. to “correct its mistake” for Expelling Two Chinese Diplomats<br>[https://gnews.org/57154/](https://gnews.org/57154/ "https://gnews.org/57154/")
+
+[https://www.guo.media/posts/261219](https://www.guo.media/posts/261219) `2019-12-18T19:10:13`
+##
+
+**milesguo** CUHK President Chosen for Times Higher Education Person of the Year<br>[https://gnews.org/57144/](https://gnews.org/57144/ "https://gnews.org/57144/")
+
+[https://www.guo.media/posts/261218](https://www.guo.media/posts/261218) `2019-12-18T19:10:16`
+##
+
 **milesguo** 183 Days of Nebulous Clouds of Tear Gas in Hong Kong<br>[https://gnews.org/57085/](https://gnews.org/57085/ "https://gnews.org/57085/")
 
 [https://www.guo.media/posts/261207](https://www.guo.media/posts/261207) `2019-12-18T17:40:11`
