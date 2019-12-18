@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo shared two good news and one bad news from Washington, DC<br>[https://gnews.org/56787/](https://gnews.org/56787/ "https://gnews.org/56787/")
+
+[https://www.guo.media/posts/261156](https://www.guo.media/posts/261156) `2019-12-18T12:55:10`
+##
+
 **milesguo** Our Destination – Salute to Hong Kong Heroes<br>[https://gnews.org/56715/](https://gnews.org/56715/ "https://gnews.org/56715/")
 
 [https://www.guo.media/posts/261152](https://www.guo.media/posts/261152) `2019-12-18T12:40:11`
