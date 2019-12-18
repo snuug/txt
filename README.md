@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月14日文贵报平安谈：王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实<br>[https://gnews.org/zh-hans/56793/](https://gnews.org/zh-hans/56793/ "https://gnews.org/zh-hans/56793/")
+
+[https://www.guo.media/posts/261084](https://www.guo.media/posts/261084) `2019-12-18T06:10:10`
+##
+
+**milesguo** 不为人知的盗国贼抢钱手段 ——银行票据案黑洞<br>[https://gnews.org/zh-hans/56745/](https://gnews.org/zh-hans/56745/ "https://gnews.org/zh-hans/56745/")
+
+[https://www.guo.media/posts/261083](https://www.guo.media/posts/261083) `2019-12-18T06:10:13`
+##
+
 **milesguo** 美国务卿蓬佩奥力挺球星: 北京作恶瞒不住<br>[https://gnews.org/zh-hans/56739/](https://gnews.org/zh-hans/56739/ "https://gnews.org/zh-hans/56739/")
 
 [https://www.guo.media/posts/261064](https://www.guo.media/posts/261064) `2019-12-18T04:10:10`
