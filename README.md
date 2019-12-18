@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美国务卿蓬佩奥力挺球星: 北京作恶瞒不住<br>[https://gnews.org/zh-hans/56739/](https://gnews.org/zh-hans/56739/ "https://gnews.org/zh-hans/56739/")
+
+[https://www.guo.media/posts/261064](https://www.guo.media/posts/261064) `2019-12-18T04:10:10`
+##
+
+**milesguo** 在最坏的时代做最好的人<br>[https://gnews.org/zh-hans/55640/](https://gnews.org/zh-hans/55640/ "https://gnews.org/zh-hans/55640/")
+
+[https://www.guo.media/posts/261063](https://www.guo.media/posts/261063) `2019-12-18T04:10:13`
+##
+
 **milesguo** 中共弱民之术——甘愿平庸<br>[https://gnews.org/zh-hans/56229/](https://gnews.org/zh-hans/56229/ "https://gnews.org/zh-hans/56229/")
 
 [https://www.guo.media/posts/261056](https://www.guo.media/posts/261056) `2019-12-18T03:10:11`
