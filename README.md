@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Our Destination – Salute to Hong Kong Heroes<br>[https://gnews.org/56715/](https://gnews.org/56715/ "https://gnews.org/56715/")
+
+[https://www.guo.media/posts/261152](https://www.guo.media/posts/261152) `2019-12-18T12:40:11`
+##
+
+**milesguo** China launches two new BeiDou Navigation satellites<br>[https://gnews.org/56678/](https://gnews.org/56678/ "https://gnews.org/56678/")
+
+[https://www.guo.media/posts/261151](https://www.guo.media/posts/261151) `2019-12-18T12:40:14`
+##
+
+**milesguo** Some footages on ‘Christmas Shopping’ in HK<br>[https://gnews.org/56644/](https://gnews.org/56644/ "https://gnews.org/56644/")
+
+[https://www.guo.media/posts/261150](https://www.guo.media/posts/261150) `2019-12-18T12:40:17`
+##
+
+**milesguo** CCP’s front-page​ news brought to you by Brother Rain, Dec 17<br>[https://gnews.org/56563/](https://gnews.org/56563/ "https://gnews.org/56563/")
+
+[https://www.guo.media/posts/261148](https://www.guo.media/posts/261148) `2019-12-18T12:40:20`
+##
+
+**milesguo** December 17, Posters on HK protest<br>[https://gnews.org/56602/](https://gnews.org/56602/ "https://gnews.org/56602/")
+
+[https://www.guo.media/posts/261147](https://www.guo.media/posts/261147) `2019-12-18T12:40:22`
+##
+
 **milesguo** 12月18号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天还要继续开庭，所以早上5:00起床，今天只能是录制视频给大家了！今天下午可能直播！一切都是刚刚开始！
 
 [https://www.guo.media/posts/261133](https://www.guo.media/posts/261133) `2019-12-18T11:25:11`
