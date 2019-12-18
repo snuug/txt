@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Responses When US Rejects VISAs of two CCP Journalists<br>[https://gnews.org/57056/](https://gnews.org/57056/ "https://gnews.org/57056/")
+
+[https://www.guo.media/posts/261205](https://www.guo.media/posts/261205) `2019-12-18T17:25:10`
+##
+
+**milesguo** Hong Kong “Social Welfare Sector: Humanitarian Crisis Assembly” Artwork Show<br>[https://gnews.org/57031/](https://gnews.org/57031/ "https://gnews.org/57031/")
+
+[https://www.guo.media/posts/261204](https://www.guo.media/posts/261204) `2019-12-18T17:25:13`
+##
+
 **milesguo** 参议员Marsha Blackburn: 香港人民“不想变成中国那样”以及用《浏览器法案》来对抗中共国家级监控<br>[https://gnews.org/zh-hans/57197/](https://gnews.org/zh-hans/57197/ "https://gnews.org/zh-hans/57197/")
 
 [https://www.guo.media/posts/261193](https://www.guo.media/posts/261193) `2019-12-18T16:25:10`
