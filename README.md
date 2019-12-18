@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月18号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵今天还要继续开庭，所以早上5:00起床，今天只能是录制视频给大家了！今天下午可能直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/261133](https://www.guo.media/posts/261133) `2019-12-18T11:25:11`
+##
+
 **milesguo** 葵涌大厦平台惊现裸尸，警方结论没有可疑之处<br>[https://gnews.org/zh-hans/56812/](https://gnews.org/zh-hans/56812/ "https://gnews.org/zh-hans/56812/")
 
 [https://www.guo.media/posts/261098](https://www.guo.media/posts/261098) `2019-12-18T07:25:10`
