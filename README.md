@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 参议员Marsha Blackburn: 香港人民“不想变成中国那样”以及用《浏览器法案》来对抗中共国家级监控<br>[https://gnews.org/zh-hans/57197/](https://gnews.org/zh-hans/57197/ "https://gnews.org/zh-hans/57197/")
+
+[https://www.guo.media/posts/261193](https://www.guo.media/posts/261193) `2019-12-18T16:25:10`
+##
+
+**milesguo** 爆料革命与平民主义对人类灵魂进化的意义<br>[https://gnews.org/zh-hans/57198/](https://gnews.org/zh-hans/57198/ "https://gnews.org/zh-hans/57198/")
+
+[https://www.guo.media/posts/261192](https://www.guo.media/posts/261192) `2019-12-18T16:25:13`
+##
+
 **milesguo** 12月17日 美国政要推文精选<br>[https://gnews.org/zh-hans/56859/](https://gnews.org/zh-hans/56859/ "https://gnews.org/zh-hans/56859/")
 
 [https://www.guo.media/posts/261190](https://www.guo.media/posts/261190) `2019-12-18T15:55:10`
