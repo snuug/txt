@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 葵涌大厦平台惊现裸尸，警方结论没有可疑之处<br>[https://gnews.org/zh-hans/56812/](https://gnews.org/zh-hans/56812/ "https://gnews.org/zh-hans/56812/")
+
+[https://www.guo.media/posts/261098](https://www.guo.media/posts/261098) `2019-12-18T07:25:10`
+##
+
 **milesguo** 万事皆空果不虚！——华尔街究竟有谁、以及为何双修之溯源<br>[https://gnews.org/zh-hans/56762/](https://gnews.org/zh-hans/56762/ "https://gnews.org/zh-hans/56762/")
 
 [https://www.guo.media/posts/261085](https://www.guo.media/posts/261085) `2019-12-18T06:25:10`
