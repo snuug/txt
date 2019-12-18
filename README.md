@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 万事皆空果不虚！——华尔街究竟有谁、以及为何双修之溯源<br>[https://gnews.org/zh-hans/56762/](https://gnews.org/zh-hans/56762/ "https://gnews.org/zh-hans/56762/")
+
+[https://www.guo.media/posts/261085](https://www.guo.media/posts/261085) `2019-12-18T06:25:10`
+##
+
 **milesguo** 文字版2019年12月14日文贵报平安谈：王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实<br>[https://gnews.org/zh-hans/56793/](https://gnews.org/zh-hans/56793/ "https://gnews.org/zh-hans/56793/")
 
 [https://www.guo.media/posts/261084](https://www.guo.media/posts/261084) `2019-12-18T06:10:10`
