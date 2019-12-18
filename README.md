@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 每日灭共（第十期）今天你双修了吗？<br>[https://gnews.org/zh-hans/55658/](https://gnews.org/zh-hans/55658/ "https://gnews.org/zh-hans/55658/")
+
+[https://www.guo.media/posts/261029](https://www.guo.media/posts/261029) `2019-12-18T01:25:10`
+##
+
 **milesguo** GNews征稿要求：有助于灭共，稿件形式多样化，请参照网站的各个栏目<br>[https://gnews.org/zh-hans/56527/](https://gnews.org/zh-hans/56527/ "https://gnews.org/zh-hans/56527/")
 
 [https://www.guo.media/posts/261011](https://www.guo.media/posts/261011) `2019-12-17T22:40:11`
