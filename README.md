@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Twisted evil in kindergarten, an underground industry for CCP cult members<br>[https://gnews.org/57500/](https://gnews.org/57500/ "https://gnews.org/57500/")
+
+[https://www.guo.media/posts/261353](https://www.guo.media/posts/261353) `2019-12-19T13:10:10`
+##
+
+**milesguo** December 18, Posters on HK protest<br>[https://gnews.org/57619/](https://gnews.org/57619/ "https://gnews.org/57619/")
+
+[https://www.guo.media/posts/261352](https://www.guo.media/posts/261352) `2019-12-19T13:10:13`
+##
+
 **milesguo** 12月19号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗！由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了……一切都是刚刚开始！
 
 [https://www.guo.media/posts/261347](https://www.guo.media/posts/261347) `2019-12-19T12:40:10`
