@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 19, posters on HK protest<br>[https://gnews.org/58256/](https://gnews.org/58256/ "https://gnews.org/58256/")
+
+[https://www.guo.media/posts/261470](https://www.guo.media/posts/261470) `2019-12-19T23:25:10`
+##
+
 **milesguo** Brother Rain interprets CCP’s front-page news, Dec 19<br>[https://gnews.org/58211/](https://gnews.org/58211/ "https://gnews.org/58211/")
 
 [https://www.guo.media/posts/261468](https://www.guo.media/posts/261468) `2019-12-19T22:55:10`
