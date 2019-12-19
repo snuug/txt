@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 爆料<br>殘忍“騙殺”！維基百科爆出王健死亡真相<br>[https://gnews.org/zh-hant/58081/](https://gnews.org/zh-hant/58081/ "https://gnews.org/zh-hant/58081/")
+
+[https://www.guo.media/posts/261370](https://www.guo.media/posts/261370) `2019-12-19T14:40:11`
+##
+
+**milesguo** 今年第2起中国女子闯川普度假庄园被捕 中共特务锲而不舍?<br>[https://gnews.org/zh-hans/58002/](https://gnews.org/zh-hans/58002/ "https://gnews.org/zh-hans/58002/")
+
+[https://www.guo.media/posts/261369](https://www.guo.media/posts/261369) `2019-12-19T14:40:14`
+##
+
+**milesguo** 12月18日 美國政要推文精選<br>[https://gnews.org/zh-hant/57989/](https://gnews.org/zh-hant/57989/ "https://gnews.org/zh-hant/57989/")
+
+[https://www.guo.media/posts/261368](https://www.guo.media/posts/261368) `2019-12-19T14:40:17`
+##
+
+**milesguo** 复旦大学修改校章程删除学术独立和思想自由引发学生集会抗议<br>[https://gnews.org/zh-hans/57887/](https://gnews.org/zh-hans/57887/ "https://gnews.org/zh-hans/57887/")
+
+[https://www.guo.media/posts/261367](https://www.guo.media/posts/261367) `2019-12-19T14:40:20`
+##
+
 **milesguo** Highlights of Miles Guo’s Weekly Broadcasts 7 – 12, 2019<br>[https://gnews.org/57938/](https://gnews.org/57938/ "https://gnews.org/57938/")
 
 [https://www.guo.media/posts/261355](https://www.guo.media/posts/261355) `2019-12-19T13:25:10`
