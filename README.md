@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Foreign Ministry Spokesperson called Tibetan policy and support act “is in serious violation of international law”<br>[https://gnews.org/58152/](https://gnews.org/58152/ "https://gnews.org/58152/")
+
+[https://www.guo.media/posts/261432](https://www.guo.media/posts/261432) `2019-12-19T17:55:10`
+##
+
 **milesguo** CCP’s Vice Chairman Meets Japanese Defense Minister Taro Kono<br>[https://gnews.org/58137/](https://gnews.org/58137/ "https://gnews.org/58137/")
 
 [https://www.guo.media/posts/261431](https://www.guo.media/posts/261431) `2019-12-19T17:25:10`
