@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪读党报：民主可以立国，民粹可以强国<br>[https://gnews.org/zh-hans/58083/](https://gnews.org/zh-hans/58083/ "https://gnews.org/zh-hans/58083/")
+
+[https://www.guo.media/posts/261394](https://www.guo.media/posts/261394) `2019-12-19T14:55:10`
+##
+
+**milesguo** 中共被曝长期非法在《纽时》、《华邮》等海外媒体上做虚假宣传<br>[https://gnews.org/zh-hans/58092/](https://gnews.org/zh-hans/58092/ "https://gnews.org/zh-hans/58092/")
+
+[https://www.guo.media/posts/261392](https://www.guo.media/posts/261392) `2019-12-19T14:55:13`
+##
+
+**milesguo** 谈谈西藏密宗和中共官员欺师灭祖的双修恶行<br>[https://gnews.org/zh-hans/56982/](https://gnews.org/zh-hans/56982/ "https://gnews.org/zh-hans/56982/")
+
+[https://www.guo.media/posts/261391](https://www.guo.media/posts/261391) `2019-12-19T14:55:16`
+##
+
+**milesguo** 声援反送中被关押，广东公民被强制送戒毒所<br>[https://gnews.org/zh-hans/58091/](https://gnews.org/zh-hans/58091/ "https://gnews.org/zh-hans/58091/")
+
+[https://www.guo.media/posts/261381](https://www.guo.media/posts/261381) `2019-12-19T14:55:19`
+##
+
 **milesguo** 爆料<br>殘忍“騙殺”！維基百科爆出王健死亡真相<br>[https://gnews.org/zh-hant/58081/](https://gnews.org/zh-hant/58081/ "https://gnews.org/zh-hant/58081/")
 
 [https://www.guo.media/posts/261370](https://www.guo.media/posts/261370) `2019-12-19T14:40:11`
