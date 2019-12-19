@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** CCP’s Vice Chairman Meets Japanese Defense Minister Taro Kono<br>[https://gnews.org/58137/](https://gnews.org/58137/ "https://gnews.org/58137/")
+
+[https://www.guo.media/posts/261431](https://www.guo.media/posts/261431) `2019-12-19T17:25:10`
+##
+
+**milesguo** [China] Students Protest after ‘freedom of thought’ cut<br>[https://gnews.org/58027/](https://gnews.org/58027/ "https://gnews.org/58027/")
+
+[https://www.guo.media/posts/261430](https://www.guo.media/posts/261430) `2019-12-19T17:25:13`
+##
+
 **milesguo** 是贸易战使香港经济衰退，香港示威游行并不是经济衰退的主要原因<br>[https://gnews.org/zh-hans/58162/](https://gnews.org/zh-hans/58162/ "https://gnews.org/zh-hans/58162/")
 
 [https://www.guo.media/posts/261411](https://www.guo.media/posts/261411) `2019-12-19T16:25:10`
