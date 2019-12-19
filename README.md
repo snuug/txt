@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 【寻人启事】多位手足失踪，望大家广传寻找！<br>[https://gnews.org/zh-hans/57764/](https://gnews.org/zh-hans/57764/ "https://gnews.org/zh-hans/57764/")
+
+[https://www.guo.media/posts/261294](https://www.guo.media/posts/261294) `2019-12-19T03:10:11`
+##
+
+**milesguo** 不要被现状误导，喜马拉雅后清除余毒仅需10年(篇二)<br>[https://gnews.org/zh-hans/57786/](https://gnews.org/zh-hans/57786/ "https://gnews.org/zh-hans/57786/")
+
+[https://www.guo.media/posts/261293](https://www.guo.media/posts/261293) `2019-12-19T03:10:13`
+##
+
+**milesguo** 爆料革命如何拯救中国人的精神世界？（第一部分）<br>[https://gnews.org/zh-hans/57220/](https://gnews.org/zh-hans/57220/ "https://gnews.org/zh-hans/57220/")
+
+[https://www.guo.media/posts/261292](https://www.guo.media/posts/261292) `2019-12-19T03:10:16`
+##
+
 **milesguo** 历史上的今天：加拿大军人为香港浴血奋战<br>[https://gnews.org/zh-hans/57558/](https://gnews.org/zh-hans/57558/ "https://gnews.org/zh-hans/57558/")
 
 [https://www.guo.media/posts/261291](https://www.guo.media/posts/261291) `2019-12-19T02:55:11`
