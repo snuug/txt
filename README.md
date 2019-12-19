@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 是贸易战使香港经济衰退，香港示威游行并不是经济衰退的主要原因<br>[https://gnews.org/zh-hans/58162/](https://gnews.org/zh-hans/58162/ "https://gnews.org/zh-hans/58162/")
+
+[https://www.guo.media/posts/261411](https://www.guo.media/posts/261411) `2019-12-19T16:25:10`
+##
+
 **milesguo** The Farm: Cutting Hong Kong’s Supply Lines<br>[https://gnews.org/58008/](https://gnews.org/58008/ "https://gnews.org/58008/")
 
 [https://www.guo.media/posts/261407](https://www.guo.media/posts/261407) `2019-12-19T15:40:11`
