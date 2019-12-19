@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月19号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗！由于文贵诉郭宝胜的案件在华盛顿开庭．延期一了天．今天不能直播了……一切都是刚刚开始！
+
+[https://www.guo.media/posts/261347](https://www.guo.media/posts/261347) `2019-12-19T12:40:10`
+##
+
 **milesguo** 著名粉红五毛花千芳母亲养老证书被共产党收回<br>[https://gnews.org/zh-hans/57864/](https://gnews.org/zh-hans/57864/ "https://gnews.org/zh-hans/57864/")
 
 [https://www.guo.media/posts/261318](https://www.guo.media/posts/261318) `2019-12-19T06:25:10`
