@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 历史上的今天：加拿大军人为香港浴血奋战<br>[https://gnews.org/zh-hans/57558/](https://gnews.org/zh-hans/57558/ "https://gnews.org/zh-hans/57558/")
+
+[https://www.guo.media/posts/261291](https://www.guo.media/posts/261291) `2019-12-19T02:55:11`
+##
+
+**milesguo** 香港中学教材惊现共产党洗脑内容<br>[https://gnews.org/zh-hans/57566/](https://gnews.org/zh-hans/57566/ "https://gnews.org/zh-hans/57566/")
+
+[https://www.guo.media/posts/261290](https://www.guo.media/posts/261290) `2019-12-19T02:55:13`
+##
+
 **milesguo** 川普告急！弹劾不弹劾？15分钟之内揭分晓！众议院已激辩11小时！<br>[https://gnews.org/zh-hans/57611/](https://gnews.org/zh-hans/57611/ "https://gnews.org/zh-hans/57611/")
 
 [https://www.guo.media/posts/261288](https://www.guo.media/posts/261288) `2019-12-19T02:25:10`
