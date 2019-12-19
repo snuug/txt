@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 震惊！台湾警察猛追大陆游客竟为了…<br>[https://gnews.org/zh-hans/58177/](https://gnews.org/zh-hans/58177/ "https://gnews.org/zh-hans/58177/")
+
+[https://www.guo.media/posts/261433](https://www.guo.media/posts/261433) `2019-12-19T18:25:10`
+##
+
 **milesguo** Chinese Foreign Ministry Spokesperson called Tibetan policy and support act “is in serious violation of international law”<br>[https://gnews.org/58152/](https://gnews.org/58152/ "https://gnews.org/58152/")
 
 [https://www.guo.media/posts/261432](https://www.guo.media/posts/261432) `2019-12-19T17:55:10`
