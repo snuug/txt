@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 圣诞节前夕阿富汗人民获得美军礼物特殊移民签证<br>[https://gnews.org/zh-hans/57332/](https://gnews.org/zh-hans/57332/ "https://gnews.org/zh-hans/57332/")
+
+[https://www.guo.media/posts/261247](https://www.guo.media/posts/261247) `2019-12-19T00:10:10`
+##
+
 **milesguo** 揭发中国器官移植医学丑闻澳洲学者荣登十大科学家<br>[https://gnews.org/zh-hans/57121/](https://gnews.org/zh-hans/57121/ "https://gnews.org/zh-hans/57121/")
 
 [https://www.guo.media/posts/261242](https://www.guo.media/posts/261242) `2019-12-18T23:25:10`
