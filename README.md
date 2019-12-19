@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 中共国公布最新修版的《中国新闻工作者职业道德准则》打脸自己<br>[https://gnews.org/zh-hans/57453/](https://gnews.org/zh-hans/57453/ "https://gnews.org/zh-hans/57453/")
+
+[https://www.guo.media/posts/261258](https://www.guo.media/posts/261258) `2019-12-19T00:55:10`
+##
+
+**milesguo** 会员注册登录流程说明<br>[https://gnews.org/zh-hans/57367/](https://gnews.org/zh-hans/57367/ "https://gnews.org/zh-hans/57367/")
+
+[https://www.guo.media/posts/261257](https://www.guo.media/posts/261257) `2019-12-19T00:55:13`
+##
+
+**milesguo** 美丽的新疆- 纳粹的集中营<br>[https://gnews.org/zh-hans/57379/](https://gnews.org/zh-hans/57379/ "https://gnews.org/zh-hans/57379/")
+
+[https://www.guo.media/posts/261256](https://www.guo.media/posts/261256) `2019-12-19T00:55:16`
+##
+
 **milesguo** 圣诞节前夕阿富汗人民获得美军礼物特殊移民签证<br>[https://gnews.org/zh-hans/57332/](https://gnews.org/zh-hans/57332/ "https://gnews.org/zh-hans/57332/")
 
 [https://www.guo.media/posts/261247](https://www.guo.media/posts/261247) `2019-12-19T00:10:10`
