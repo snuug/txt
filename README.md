@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生一周精彩直播集锦（2019年12月7-12日）<br>[https://gnews.org/zh-hans/57830/](https://gnews.org/zh-hans/57830/ "https://gnews.org/zh-hans/57830/")
+
+[https://www.guo.media/posts/261316](https://www.guo.media/posts/261316) `2019-12-19T06:10:10`
+##
+
 **milesguo** 【寻人启事】多位手足失踪，望大家广传寻找！<br>[https://gnews.org/zh-hans/57764/](https://gnews.org/zh-hans/57764/ "https://gnews.org/zh-hans/57764/")
 
 [https://www.guo.media/posts/261294](https://www.guo.media/posts/261294) `2019-12-19T03:10:11`
