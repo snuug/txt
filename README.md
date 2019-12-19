@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Weekly Broadcasts 7 – 12, 2019<br>[https://gnews.org/57938/](https://gnews.org/57938/ "https://gnews.org/57938/")
+
+[https://www.guo.media/posts/261355](https://www.guo.media/posts/261355) `2019-12-19T13:25:10`
+##
+
+**milesguo** Macau: CCP’s lethal weapon for ultimate spy rings and infiltrations<br>[https://gnews.org/57446/](https://gnews.org/57446/ "https://gnews.org/57446/")
+
+[https://www.guo.media/posts/261354](https://www.guo.media/posts/261354) `2019-12-19T13:25:13`
+##
+
 **milesguo** Twisted evil in kindergarten, an underground industry for CCP cult members<br>[https://gnews.org/57500/](https://gnews.org/57500/ "https://gnews.org/57500/")
 
 [https://www.guo.media/posts/261353](https://www.guo.media/posts/261353) `2019-12-19T13:10:10`
