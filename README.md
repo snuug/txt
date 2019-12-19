@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 川普告急！弹劾不弹劾？15分钟之内揭分晓！众议院已激辩11小时！<br>[https://gnews.org/zh-hans/57611/](https://gnews.org/zh-hans/57611/ "https://gnews.org/zh-hans/57611/")
+
+[https://www.guo.media/posts/261288](https://www.guo.media/posts/261288) `2019-12-19T02:25:10`
+##
+
+**milesguo** 12月17日香港要闻：「三地三检」港共故意制造漏洞，灭共使者爆料被印证，精神病院成秘密屠场<br>[https://gnews.org/zh-hans/57544/](https://gnews.org/zh-hans/57544/ "https://gnews.org/zh-hans/57544/")
+
+[https://www.guo.media/posts/261287](https://www.guo.media/posts/261287) `2019-12-19T02:25:13`
+##
+
+**milesguo** 香港前线抗争者讲述警察暴行和自己成为全职抗争者的心路历程<br>[https://gnews.org/zh-hans/57527/](https://gnews.org/zh-hans/57527/ "https://gnews.org/zh-hans/57527/")
+
+[https://www.guo.media/posts/261286](https://www.guo.media/posts/261286) `2019-12-19T02:25:15`
+##
+
+**milesguo** 在中共国文字到底有没有力量<br>[https://gnews.org/zh-hans/57501/](https://gnews.org/zh-hans/57501/ "https://gnews.org/zh-hans/57501/")
+
+[https://www.guo.media/posts/261285](https://www.guo.media/posts/261285) `2019-12-19T02:25:18`
+##
+
+**milesguo** 中共《决定》永远奴役十四亿中国人<br>[https://gnews.org/zh-hans/57471/](https://gnews.org/zh-hans/57471/ "https://gnews.org/zh-hans/57471/")
+
+[https://www.guo.media/posts/261284](https://www.guo.media/posts/261284) `2019-12-19T02:25:21`
+##
+
 **milesguo** 12月18号：尊敬的战友们好！因今天控告郭宝胜的案件开庭要延迟到明天，所以要等明天19号开完庭后择时向大家报平安直播！🥰🥰🥰🙏🙏🙏👉👉👉香港香港香港一切都是刚刚开始！<br>
 
 [https://www.guo.media/posts/261262](https://www.guo.media/posts/261262) `2019-12-19T01:10:10`
