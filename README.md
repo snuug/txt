@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共《章程》党化学校 中国同胞抗争不断<br>[https://gnews.org/zh-hans/58231/](https://gnews.org/zh-hans/58231/ "https://gnews.org/zh-hans/58231/")
+
+[https://www.guo.media/posts/261474](https://www.guo.media/posts/261474) `2019-12-19T23:55:10`
+##
+
 **milesguo** December 19, posters on HK protest<br>[https://gnews.org/58256/](https://gnews.org/58256/ "https://gnews.org/58256/")
 
 [https://www.guo.media/posts/261470](https://www.guo.media/posts/261470) `2019-12-19T23:25:10`
