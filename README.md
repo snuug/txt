@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Brother Rain interprets CCP’s front-page news, Dec 19<br>[https://gnews.org/58211/](https://gnews.org/58211/ "https://gnews.org/58211/")
+
+[https://www.guo.media/posts/261468](https://www.guo.media/posts/261468) `2019-12-19T22:55:10`
+##
+
+**milesguo** 【冻结星火】香港黑警滥捕抹黑星火同盟「洗黑钱」 律师指款项投资属正常<br>[https://gnews.org/zh-hans/58213/](https://gnews.org/zh-hans/58213/ "https://gnews.org/zh-hans/58213/")
+
+[https://www.guo.media/posts/261467](https://www.guo.media/posts/261467) `2019-12-19T22:55:12`
+##
+
+**milesguo** 20岁的澳大利亚人权活动人士德鲁·帕夫洛因为组织支持香港抗议的活动收到来自中共死亡威胁<br>[https://gnews.org/zh-hans/58288/](https://gnews.org/zh-hans/58288/ "https://gnews.org/zh-hans/58288/")
+
+[https://www.guo.media/posts/261466](https://www.guo.media/posts/261466) `2019-12-19T22:55:15`
+##
+
 **milesguo** 震惊！台湾警察猛追大陆游客竟为了…<br>[https://gnews.org/zh-hans/58177/](https://gnews.org/zh-hans/58177/ "https://gnews.org/zh-hans/58177/")
 
 [https://www.guo.media/posts/261433](https://www.guo.media/posts/261433) `2019-12-19T18:25:10`
