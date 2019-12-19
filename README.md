@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 著名粉红五毛花千芳母亲养老证书被共产党收回<br>[https://gnews.org/zh-hans/57864/](https://gnews.org/zh-hans/57864/ "https://gnews.org/zh-hans/57864/")
+
+[https://www.guo.media/posts/261318](https://www.guo.media/posts/261318) `2019-12-19T06:25:10`
+##
+
+**milesguo** 老江观点：人民币将再贬百分之十<br>[https://gnews.org/zh-hans/57842/](https://gnews.org/zh-hans/57842/ "https://gnews.org/zh-hans/57842/")
+
+[https://www.guo.media/posts/261317](https://www.guo.media/posts/261317) `2019-12-19T06:25:13`
+##
+
 **milesguo** 郭文贵先生一周精彩直播集锦（2019年12月7-12日）<br>[https://gnews.org/zh-hans/57830/](https://gnews.org/zh-hans/57830/ "https://gnews.org/zh-hans/57830/")
 
 [https://www.guo.media/posts/261316](https://www.guo.media/posts/261316) `2019-12-19T06:10:10`
