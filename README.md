@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Cutting Hong Kong’s Supply Lines<br>[https://gnews.org/58008/](https://gnews.org/58008/ "https://gnews.org/58008/")
+
+[https://www.guo.media/posts/261407](https://www.guo.media/posts/261407) `2019-12-19T15:40:11`
+##
+
+**milesguo** What All Hongkongers Want For Christmas<br>[https://gnews.org/57765/](https://gnews.org/57765/ "https://gnews.org/57765/")
+
+[https://www.guo.media/posts/261404](https://www.guo.media/posts/261404) `2019-12-19T15:40:13`
+##
+
+**milesguo** 《香港监察》联合创始人兼主席本尼迪克特·罗杰斯（Benedict Rogers）致香港在押人员和抗议者的公开信<br>[https://gnews.org/zh-hans/58122/](https://gnews.org/zh-hans/58122/ "https://gnews.org/zh-hans/58122/")
+
+[https://www.guo.media/posts/261400](https://www.guo.media/posts/261400) `2019-12-19T15:40:16`
+##
+
 **milesguo** 小巴猪读党报：民主可以立国，民粹可以强国<br>[https://gnews.org/zh-hans/58083/](https://gnews.org/zh-hans/58083/ "https://gnews.org/zh-hans/58083/")
 
 [https://www.guo.media/posts/261394](https://www.guo.media/posts/261394) `2019-12-19T14:55:10`
