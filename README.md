@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 社福界「香港人权及民主法案请愿」游行，途经九个国家驻港领事馆<br>[https://gnews.org/zh-hans/58418/](https://gnews.org/zh-hans/58418/ "https://gnews.org/zh-hans/58418/")
+
+[https://www.guo.media/posts/261513](https://www.guo.media/posts/261513) `2019-12-20T04:40:10`
+##
+
+**milesguo** 卡尔巴斯为明天将在华盛顿举行的抗议世界银行贷款给中国政府贷款修建新疆集中营的活动呼吁<br>[https://gnews.org/zh-hans/58444/](https://gnews.org/zh-hans/58444/ "https://gnews.org/zh-hans/58444/")
+
+[https://www.guo.media/posts/261512](https://www.guo.media/posts/261512) `2019-12-20T04:40:13`
+##
+
+**milesguo** 爆料革命如何拯救中国人的精神世界？（第二部分）<br>[https://gnews.org/zh-hans/57238/](https://gnews.org/zh-hans/57238/ "https://gnews.org/zh-hans/57238/")
+
+[https://www.guo.media/posts/261511](https://www.guo.media/posts/261511) `2019-12-20T04:40:16`
+##
+
 **milesguo** 【灭共日记】 雾霾中国！底层老百姓的无奈与心酸！<br>[https://gnews.org/zh-hans/58361/](https://gnews.org/zh-hans/58361/ "https://gnews.org/zh-hans/58361/")
 
 [https://www.guo.media/posts/261499](https://www.guo.media/posts/261499) `2019-12-20T02:10:10`
