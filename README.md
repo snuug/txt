@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Some thoughts after the Guo Baosheng’s case<br>[https://gnews.org/59248/](https://gnews.org/59248/ "https://gnews.org/59248/")
+
+[https://www.guo.media/posts/261689](https://www.guo.media/posts/261689) `2019-12-20T21:55:10`
+##
+
+**milesguo** Brother Rain interprets CCP’s front-page news, Dec 20<br>[https://gnews.org/59208/](https://gnews.org/59208/ "https://gnews.org/59208/")
+
+[https://www.guo.media/posts/261688](https://www.guo.media/posts/261688) `2019-12-20T21:55:13`
+##
+
 **milesguo** Miles Guo: There is no way President Trump can be impeached!<br>[https://gnews.org/59201/](https://gnews.org/59201/ "https://gnews.org/59201/")
 
 [https://www.guo.media/posts/261687](https://www.guo.media/posts/261687) `2019-12-20T20:40:10`
