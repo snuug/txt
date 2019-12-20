@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月17日文贵报平安直播<br>[https://gnews.org/zh-hans/58629/](https://gnews.org/zh-hans/58629/ "https://gnews.org/zh-hans/58629/")
+
+[https://www.guo.media/posts/261539](https://www.guo.media/posts/261539) `2019-12-20T07:40:10`
+##
+
+**milesguo** 在中英联合声明周年纪念日，霍利参议员就中共侵犯人权问题致函联合国<br>[https://gnews.org/zh-hans/58584/](https://gnews.org/zh-hans/58584/ "https://gnews.org/zh-hans/58584/")
+
+[https://www.guo.media/posts/261535](https://www.guo.media/posts/261535) `2019-12-20T07:40:13`
+##
+
 **milesguo** 全球阻击华为： 格林兰岛拒绝华为5G，选择爱立信， 意大利也受到来自本国安全委员会的警告<br>[https://gnews.org/zh-hans/58619/](https://gnews.org/zh-hans/58619/ "https://gnews.org/zh-hans/58619/")
 
 [https://www.guo.media/posts/261534](https://www.guo.media/posts/261534) `2019-12-20T07:25:11`
