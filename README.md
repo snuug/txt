@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 【灭共日记】 雾霾中国！底层老百姓的无奈与心酸！<br>[https://gnews.org/zh-hans/58361/](https://gnews.org/zh-hans/58361/ "https://gnews.org/zh-hans/58361/")
+
+[https://www.guo.media/posts/261499](https://www.guo.media/posts/261499) `2019-12-20T02:10:10`
+##
+
+**milesguo** 美国东亚及太平洋事务助理国务卿David Stilwell讲述美国对中共过去几十年的友好政策换来的只是中共的欺骗和背叛<br>[https://gnews.org/zh-hans/58374/](https://gnews.org/zh-hans/58374/ "https://gnews.org/zh-hans/58374/")
+
+[https://www.guo.media/posts/261498](https://www.guo.media/posts/261498) `2019-12-20T02:10:12`
+##
+
+**milesguo** 中共专制下的“肉荒”，更是“钱荒”<br>[https://gnews.org/zh-hans/58339/](https://gnews.org/zh-hans/58339/ "https://gnews.org/zh-hans/58339/")
+
+[https://www.guo.media/posts/261497](https://www.guo.media/posts/261497) `2019-12-20T02:10:15`
+##
+
+**milesguo** 香港水警追截非法捕捞操作失误导致翻船落水<br>[https://gnews.org/zh-hans/58322/](https://gnews.org/zh-hans/58322/ "https://gnews.org/zh-hans/58322/")
+
+[https://www.guo.media/posts/261493](https://www.guo.media/posts/261493) `2019-12-20T02:10:18`
+##
+
 **milesguo** CCP charts course for Macao and Hong Kong’s growth<br>[https://gnews.org/58297/](https://gnews.org/58297/ "https://gnews.org/58297/")
 
 [https://www.guo.media/posts/261475](https://www.guo.media/posts/261475) `2019-12-20T00:10:10`
