@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP charts course for Macao and Hong Kong’s growth<br>[https://gnews.org/58297/](https://gnews.org/58297/ "https://gnews.org/58297/")
+
+[https://www.guo.media/posts/261475](https://www.guo.media/posts/261475) `2019-12-20T00:10:10`
+##
+
 **milesguo** 中共《章程》党化学校 中国同胞抗争不断<br>[https://gnews.org/zh-hans/58231/](https://gnews.org/zh-hans/58231/ "https://gnews.org/zh-hans/58231/")
 
 [https://www.guo.media/posts/261474](https://www.guo.media/posts/261474) `2019-12-19T23:55:10`
