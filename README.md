@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美国高级军官在瑞士与俄罗斯外长举行了会谈<br>[https://gnews.org/zh-hans/58570/](https://gnews.org/zh-hans/58570/ "https://gnews.org/zh-hans/58570/")
+
+[https://www.guo.media/posts/261523](https://www.guo.media/posts/261523) `2019-12-20T06:25:10`
+##
+
+**milesguo** 香港现在情况怎么了?台湾小妹去香港6天实际观察与心得分享 愿天佑香港!<br>[https://gnews.org/zh-hans/58567/](https://gnews.org/zh-hans/58567/ "https://gnews.org/zh-hans/58567/")
+
+[https://www.guo.media/posts/261521](https://www.guo.media/posts/261521) `2019-12-20T06:25:13`
+##
+
 **milesguo** 美国军方正在为朝鲜的”圣诞礼物”做准备<br>[https://gnews.org/zh-hans/58469/](https://gnews.org/zh-hans/58469/ "https://gnews.org/zh-hans/58469/")
 
 [https://www.guo.media/posts/261517](https://www.guo.media/posts/261517) `2019-12-20T05:55:10`
