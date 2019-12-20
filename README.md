@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月20日：文贵在华盛顿．控郭宝盛．欺诈．诽谤案开庭……进行第四天，文贵竟然开出了兴奋！开出了激动！这是为什么呢？一切都是刚刚开始！
+
+[https://www.guo.media/posts/261622](https://www.guo.media/posts/261622) `2019-12-20T12:25:10`
+##
+
 **milesguo** [China] Stoves Banned by Local Government<br>[https://gnews.org/58713/](https://gnews.org/58713/ "https://gnews.org/58713/")
 
 [https://www.guo.media/posts/261613](https://www.guo.media/posts/261613) `2019-12-20T11:55:13`
