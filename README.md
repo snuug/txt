@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 欧洲议会授予维吾尔族持不同政见者伊力哈木·土赫提最高人权奖“萨哈罗夫奖”<br>[https://gnews.org/zh-hans/59012/](https://gnews.org/zh-hans/59012/ "https://gnews.org/zh-hans/59012/")
+
+[https://www.guo.media/posts/261658](https://www.guo.media/posts/261658) `2019-12-20T15:40:10`
+##
+
+**milesguo** 广播：2019/12/20文贵在华盛顿．控郭宝盛．欺诈．诽谤案开庭……进行第四天，文贵竟然开出了兴奋！开出了激动！这是为什么呢？<br>[https://gnews.org/zh-hans/59076/](https://gnews.org/zh-hans/59076/ "https://gnews.org/zh-hans/59076/")
+
+[https://www.guo.media/posts/261657](https://www.guo.media/posts/261657) `2019-12-20T15:40:13`
+##
+
+**milesguo** 中国人素质低不配拥有民主？<br>[https://gnews.org/zh-hans/59033/](https://gnews.org/zh-hans/59033/ "https://gnews.org/zh-hans/59033/")
+
+[https://www.guo.media/posts/261655](https://www.guo.media/posts/261655) `2019-12-20T15:40:16`
+##
+
+**milesguo** 龙门冰室老板张俊杰背后不为人知的故事<br>[https://gnews.org/zh-hans/58805/](https://gnews.org/zh-hans/58805/ "https://gnews.org/zh-hans/58805/")
+
+[https://www.guo.media/posts/261653](https://www.guo.media/posts/261653) `2019-12-20T15:40:18`
+##
+
 **milesguo** Fundraising Platform for Protestors Spark Alliance Releases Statement on Arrest of its Members<br>[https://gnews.org/58394/](https://gnews.org/58394/ "https://gnews.org/58394/")
 
 [https://www.guo.media/posts/261629](https://www.guo.media/posts/261629) `2019-12-20T13:10:10`
