@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国军方正在为朝鲜的”圣诞礼物”做准备<br>[https://gnews.org/zh-hans/58469/](https://gnews.org/zh-hans/58469/ "https://gnews.org/zh-hans/58469/")
+
+[https://www.guo.media/posts/261517](https://www.guo.media/posts/261517) `2019-12-20T05:55:10`
+##
+
 **milesguo** 社福界「香港人权及民主法案请愿」游行，途经九个国家驻港领事馆<br>[https://gnews.org/zh-hans/58418/](https://gnews.org/zh-hans/58418/ "https://gnews.org/zh-hans/58418/")
 
 [https://www.guo.media/posts/261513](https://www.guo.media/posts/261513) `2019-12-20T04:40:10`
