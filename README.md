@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Chinese Foreign Ministry mocked Trudeau and Called him “pull chestnuts out of fire for others”<br>[https://gnews.org/59053/](https://gnews.org/59053/ "https://gnews.org/59053/")
+
+[https://www.guo.media/posts/261675](https://www.guo.media/posts/261675) `2019-12-20T16:55:12`
+##
+
 **milesguo** [China] Bonus Pork for Making a 10K Deposit<br>[https://gnews.org/59046/](https://gnews.org/59046/ "https://gnews.org/59046/")
 
 [https://www.guo.media/posts/261671](https://www.guo.media/posts/261671) `2019-12-20T16:40:10`
