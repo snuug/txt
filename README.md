@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 全球阻击华为： 格林兰岛拒绝华为5G，选择爱立信， 意大利也受到来自本国安全委员会的警告<br>[https://gnews.org/zh-hans/58619/](https://gnews.org/zh-hans/58619/ "https://gnews.org/zh-hans/58619/")
+
+[https://www.guo.media/posts/261534](https://www.guo.media/posts/261534) `2019-12-20T07:25:11`
+##
+
 **milesguo** 我们都要理所当然的对共产党说“不”！<br>[https://gnews.org/zh-hans/58474/](https://gnews.org/zh-hans/58474/ "https://gnews.org/zh-hans/58474/")
 
 [https://www.guo.media/posts/261528](https://www.guo.media/posts/261528) `2019-12-20T06:40:10`
