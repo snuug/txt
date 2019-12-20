@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国驻温哥华总领馆组织公民协助志愿者团体，引发人们对干涉加拿大事务的担忧<br>[https://gnews.org/zh-hans/58764/](https://gnews.org/zh-hans/58764/ "https://gnews.org/zh-hans/58764/")
+
+[https://www.guo.media/posts/261606](https://www.guo.media/posts/261606) `2019-12-20T11:10:12`
+##
+
 **milesguo** 中共国资金外流创历史记录<br>[https://gnews.org/zh-hans/58749/](https://gnews.org/zh-hans/58749/ "https://gnews.org/zh-hans/58749/")
 
 [https://www.guo.media/posts/261604](https://www.guo.media/posts/261604) `2019-12-20T10:40:09`
