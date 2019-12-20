@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** [China] Bonus Pork for Making a 10K Deposit<br>[https://gnews.org/59046/](https://gnews.org/59046/ "https://gnews.org/59046/")
+
+[https://www.guo.media/posts/261671](https://www.guo.media/posts/261671) `2019-12-20T16:40:10`
+##
+
+**milesguo** Pass Your Own Hong Kong Human Rights Act: Hongkongers Demand World Support<br>[https://gnews.org/58007/](https://gnews.org/58007/ "https://gnews.org/58007/")
+
+[https://www.guo.media/posts/261670](https://www.guo.media/posts/261670) `2019-12-20T16:40:14`
+##
+
 **milesguo** 欧洲议会授予维吾尔族持不同政见者伊力哈木·土赫提最高人权奖“萨哈罗夫奖”<br>[https://gnews.org/zh-hans/59012/](https://gnews.org/zh-hans/59012/ "https://gnews.org/zh-hans/59012/")
 
 [https://www.guo.media/posts/261658](https://www.guo.media/posts/261658) `2019-12-20T15:40:10`
