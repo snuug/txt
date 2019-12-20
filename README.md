@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 我们都要理所当然的对共产党说“不”！<br>[https://gnews.org/zh-hans/58474/](https://gnews.org/zh-hans/58474/ "https://gnews.org/zh-hans/58474/")
+
+[https://www.guo.media/posts/261528](https://www.guo.media/posts/261528) `2019-12-20T06:40:10`
+##
+
 **milesguo** 美国高级军官在瑞士与俄罗斯外长举行了会谈<br>[https://gnews.org/zh-hans/58570/](https://gnews.org/zh-hans/58570/ "https://gnews.org/zh-hans/58570/")
 
 [https://www.guo.media/posts/261523](https://www.guo.media/posts/261523) `2019-12-20T06:25:10`
