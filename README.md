@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Fundraising Platform for Protestors Spark Alliance Releases Statement on Arrest of its Members<br>[https://gnews.org/58394/](https://gnews.org/58394/ "https://gnews.org/58394/")
+
+[https://www.guo.media/posts/261629](https://www.guo.media/posts/261629) `2019-12-20T13:10:10`
+##
+
+**milesguo** 面具先生：两则新闻铁证如山验证郭文贵先生爆料！<br>[https://gnews.org/zh-hans/58794/](https://gnews.org/zh-hans/58794/ "https://gnews.org/zh-hans/58794/")
+
+[https://www.guo.media/posts/261628](https://www.guo.media/posts/261628) `2019-12-20T13:10:13`
+##
+
 **milesguo** 12月20日：文贵在华盛顿．控郭宝盛．欺诈．诽谤案开庭……进行第四天，文贵竟然开出了兴奋！开出了激动！这是为什么呢？一切都是刚刚开始！
 
 [https://www.guo.media/posts/261622](https://www.guo.media/posts/261622) `2019-12-20T12:25:10`
