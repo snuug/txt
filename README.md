@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: There is no way President Trump can be impeached!<br>[https://gnews.org/59201/](https://gnews.org/59201/ "https://gnews.org/59201/")
+
+[https://www.guo.media/posts/261687](https://www.guo.media/posts/261687) `2019-12-20T20:40:10`
+##
+
+**milesguo** Suicide or Passive Suicide?<br>[https://gnews.org/58812/](https://gnews.org/58812/ "https://gnews.org/58812/")
+
+[https://www.guo.media/posts/261686](https://www.guo.media/posts/261686) `2019-12-20T20:40:13`
+##
+
+**milesguo** European Parliament Awards Top Rights ‘Sakharov Prize’ to Uighur Dissident Ilham Tohti<br>[https://gnews.org/58747/](https://gnews.org/58747/ "https://gnews.org/58747/")
+
+[https://www.guo.media/posts/261685](https://www.guo.media/posts/261685) `2019-12-20T20:40:15`
+##
+
 **milesguo** Chinese Foreign Ministry mocked Trudeau and Called him “pull chestnuts out of fire for others”<br>[https://gnews.org/59053/](https://gnews.org/59053/ "https://gnews.org/59053/")
 
 [https://www.guo.media/posts/261675](https://www.guo.media/posts/261675) `2019-12-20T16:55:12`
