@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** [China] Stoves Banned by Local Government<br>[https://gnews.org/58713/](https://gnews.org/58713/ "https://gnews.org/58713/")
+
+[https://www.guo.media/posts/261613](https://www.guo.media/posts/261613) `2019-12-20T11:55:13`
+##
+
+**milesguo** ‘Money laundering’ charges for Hong Kong protest supporters<br>[https://gnews.org/58622/](https://gnews.org/58622/ "https://gnews.org/58622/")
+
+[https://www.guo.media/posts/261612](https://www.guo.media/posts/261612) `2019-12-20T11:55:16`
+##
+
+**milesguo** 12月19日 美国政要推文精选<br>[https://gnews.org/zh-hans/58676/](https://gnews.org/zh-hans/58676/ "https://gnews.org/zh-hans/58676/")
+
+[https://www.guo.media/posts/261611](https://www.guo.media/posts/261611) `2019-12-20T11:55:19`
+##
+
+**milesguo** 王岐山上台以来中国服务贸易逆差暴涨，外汇储备暴跌，钱都去哪了？<br>[https://gnews.org/zh-hans/58632/](https://gnews.org/zh-hans/58632/ "https://gnews.org/zh-hans/58632/")
+
+[https://www.guo.media/posts/261609](https://www.guo.media/posts/261609) `2019-12-20T11:55:23`
+##
+
 **milesguo** 中国驻温哥华总领馆组织公民协助志愿者团体，引发人们对干涉加拿大事务的担忧<br>[https://gnews.org/zh-hans/58764/](https://gnews.org/zh-hans/58764/ "https://gnews.org/zh-hans/58764/")
 
 [https://www.guo.media/posts/261606](https://www.guo.media/posts/261606) `2019-12-20T11:10:12`
