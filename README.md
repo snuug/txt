@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 驻港戒严部队情绪失控挥舞警棍攻击立场新闻记者<br>[https://gnews.org/zh-hans/59620/](https://gnews.org/zh-hans/59620/ "https://gnews.org/zh-hans/59620/")
+
+[https://www.guo.media/posts/261866](https://www.guo.media/posts/261866) `2019-12-21T15:40:10`
+##
+
 **milesguo** Why Chinese Communist Party afraid of Christmas so much!<br>[https://gnews.org/59643/](https://gnews.org/59643/ "https://gnews.org/59643/")
 
 [https://www.guo.media/posts/261859](https://www.guo.media/posts/261859) `2019-12-21T14:40:11`
