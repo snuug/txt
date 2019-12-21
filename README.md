@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 每日灭共（第十一期）三分钟了解美国弹劾大戏<br>[https://gnews.org/zh-hans/59258/](https://gnews.org/zh-hans/59258/ "https://gnews.org/zh-hans/59258/")
+
+[https://www.guo.media/posts/261709](https://www.guo.media/posts/261709) `2019-12-21T00:40:10`
+##
+
+**milesguo** 甘肃省镇原县图书馆“焚书”事件的读后感<br>[https://gnews.org/zh-hans/59244/](https://gnews.org/zh-hans/59244/ "https://gnews.org/zh-hans/59244/")
+
+[https://www.guo.media/posts/261708](https://www.guo.media/posts/261708) `2019-12-21T00:40:13`
+##
+
+**milesguo** 一周热点新闻短评（12.13-12.20）<br>[https://gnews.org/zh-hans/59110/](https://gnews.org/zh-hans/59110/ "https://gnews.org/zh-hans/59110/")
+
+[https://www.guo.media/posts/261707](https://www.guo.media/posts/261707) `2019-12-21T00:40:16`
+##
+
+**milesguo** 美国国务卿蓬佩奥：中国人民不支持执政的中国共产党<br>[https://gnews.org/zh-hans/59171/](https://gnews.org/zh-hans/59171/ "https://gnews.org/zh-hans/59171/")
+
+[https://www.guo.media/posts/261706](https://www.guo.media/posts/261706) `2019-12-21T00:40:19`
+##
+
 **milesguo** Miles Guo: Some thoughts after the Guo Baosheng’s case<br>[https://gnews.org/59248/](https://gnews.org/59248/ "https://gnews.org/59248/")
 
 [https://www.guo.media/posts/261689](https://www.guo.media/posts/261689) `2019-12-20T21:55:10`
