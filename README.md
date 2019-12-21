@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美参议员致信国际奥委会关于取消中共国在2022年举办冬奥会<br>[https://gnews.org/zh-hans/59753/](https://gnews.org/zh-hans/59753/ "https://gnews.org/zh-hans/59753/")
+
+[https://www.guo.media/posts/261878](https://www.guo.media/posts/261878) `2019-12-21T16:40:11`
+##
+
+**milesguo** CCP抢钱无底线，小企业也不放过！<br>[https://gnews.org/zh-hans/59339/](https://gnews.org/zh-hans/59339/ "https://gnews.org/zh-hans/59339/")
+
+[https://www.guo.media/posts/261877](https://www.guo.media/posts/261877) `2019-12-21T16:40:14`
+##
+
 **milesguo** [China] Two People Arrested for Sharing the Truth of Hong Kong<br>[https://gnews.org/59691/](https://gnews.org/59691/ "https://gnews.org/59691/")
 
 [https://www.guo.media/posts/261869](https://www.guo.media/posts/261869) `2019-12-21T15:55:13`
