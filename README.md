@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** CCP Leader Expressed Grave Concerns in the Phone Call With President Trump<br>[https://gnews.org/59733/](https://gnews.org/59733/ "https://gnews.org/59733/")
+
+[https://www.guo.media/posts/261914](https://www.guo.media/posts/261914) `2019-12-21T20:40:11`
+##
+
+**milesguo** PLA Refused Malfunctioning Jet Landing in Hong Kong Caused Doubt<br>[https://gnews.org/59619/](https://gnews.org/59619/ "https://gnews.org/59619/")
+
+[https://www.guo.media/posts/261912](https://www.guo.media/posts/261912) `2019-12-21T20:40:14`
+##
+
 **milesguo** 耗时4天的诉讼案在陪审团经过激烈争论后公平公正的得出审判结果！郭文贵先生分享亲身体验美国的司法公正，有重播链接<br>[https://gnews.org/zh-hans/59818/](https://gnews.org/zh-hans/59818/ "https://gnews.org/zh-hans/59818/")
 
 [https://www.guo.media/posts/261911](https://www.guo.media/posts/261911) `2019-12-21T19:55:10`
