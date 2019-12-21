@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月21號：現在吃飯．吃完飯以後就馬直播！還是真正的中國飯好吃😋一切都是剛剛開始！
+
+[https://www.guo.media/posts/261887](https://www.guo.media/posts/261887) `2019-12-21T17:10:10`
+##
+
+**milesguo** 好消息！灭共战友班农先生被评为”华盛顿最有影响力的人之一”<br>[https://gnews.org/zh-hans/59790/](https://gnews.org/zh-hans/59790/ "https://gnews.org/zh-hans/59790/")
+
+[https://www.guo.media/posts/261885](https://www.guo.media/posts/261885) `2019-12-21T17:10:13`
+##
+
 **milesguo** 12月21号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在纽约时间今天下午一点左右直播报平安，一切都是刚刚开始！
 
 [https://www.guo.media/posts/261884](https://www.guo.media/posts/261884) `2019-12-21T16:55:12`
