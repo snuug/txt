@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 天赋灭共使命的川普总统写给要弹劾他的众议院议长南希•佩洛西的信，字字铿锵！<br>[https://gnews.org/zh-hans/59400/](https://gnews.org/zh-hans/59400/ "https://gnews.org/zh-hans/59400/")
+
+[https://www.guo.media/posts/261777](https://www.guo.media/posts/261777) `2019-12-21T05:55:10`
+##
+
+**milesguo** 喜报！郭文贵先生诉欺民贼郭宝胜案大胜!<br>[https://gnews.org/zh-hans/59389/](https://gnews.org/zh-hans/59389/ "https://gnews.org/zh-hans/59389/")
+
+[https://www.guo.media/posts/261776](https://www.guo.media/posts/261776) `2019-12-21T05:55:13`
+##
+
+**milesguo** 惊魂动魄！触目惊心的红黄蓝<br>[https://gnews.org/zh-hans/58590/](https://gnews.org/zh-hans/58590/ "https://gnews.org/zh-hans/58590/")
+
+[https://www.guo.media/posts/261775](https://www.guo.media/posts/261775) `2019-12-21T05:55:16`
+##
+
 **milesguo** 灭共路上我们能做什么<br>[https://gnews.org/zh-hans/59327/](https://gnews.org/zh-hans/59327/ "https://gnews.org/zh-hans/59327/")
 
 [https://www.guo.media/posts/261756](https://www.guo.media/posts/261756) `2019-12-21T04:55:10`
