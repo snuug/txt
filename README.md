@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Steve Bannon Named as “One of the Most Powerful People In Washington”<br>[https://gnews.org/59758/](https://gnews.org/59758/ "https://gnews.org/59758/")
+
+[https://www.guo.media/posts/261916](https://www.guo.media/posts/261916) `2019-12-21T20:55:10`
+##
+
 **milesguo** CCP Leader Expressed Grave Concerns in the Phone Call With President Trump<br>[https://gnews.org/59733/](https://gnews.org/59733/ "https://gnews.org/59733/")
 
 [https://www.guo.media/posts/261914](https://www.guo.media/posts/261914) `2019-12-21T20:40:11`
