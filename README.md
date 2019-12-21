@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共的精准扶贫 一场道德变现的把戏<br>[https://gnews.org/zh-hans/59467/](https://gnews.org/zh-hans/59467/ "https://gnews.org/zh-hans/59467/")
+
+[https://www.guo.media/posts/261787](https://www.guo.media/posts/261787) `2019-12-21T06:40:11`
+##
+
+**milesguo** 北京昌平政府强拆昌平阳房镇西马房村十三处民宅<br>[https://gnews.org/zh-hans/59423/](https://gnews.org/zh-hans/59423/ "https://gnews.org/zh-hans/59423/")
+
+[https://www.guo.media/posts/261783](https://www.guo.media/posts/261783) `2019-12-21T06:40:13`
+##
+
 **milesguo** 天赋灭共使命的川普总统写给要弹劾他的众议院议长南希•佩洛西的信，字字铿锵！<br>[https://gnews.org/zh-hans/59400/](https://gnews.org/zh-hans/59400/ "https://gnews.org/zh-hans/59400/")
 
 [https://www.guo.media/posts/261777](https://www.guo.media/posts/261777) `2019-12-21T05:55:10`
