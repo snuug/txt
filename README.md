@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 突发！沙田水边发现漂浮尸体，嘴上疑似有胶带封口<br>[https://gnews.org/zh-hans/59436/](https://gnews.org/zh-hans/59436/ "https://gnews.org/zh-hans/59436/")
+
+[https://www.guo.media/posts/261792](https://www.guo.media/posts/261792) `2019-12-21T07:10:10`
+##
+
 **milesguo** 中共的精准扶贫 一场道德变现的把戏<br>[https://gnews.org/zh-hans/59467/](https://gnews.org/zh-hans/59467/ "https://gnews.org/zh-hans/59467/")
 
 [https://www.guo.media/posts/261787](https://www.guo.media/posts/261787) `2019-12-21T06:40:11`
