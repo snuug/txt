@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 浅论“平民主义”和“民粹主义”的认知差异<br>[https://gnews.org/zh-hans/58400/](https://gnews.org/zh-hans/58400/ "https://gnews.org/zh-hans/58400/")
+
+[https://www.guo.media/posts/261734](https://www.guo.media/posts/261734) `2019-12-21T02:40:10`
+##
+
 **milesguo** 每日灭共（第十一期）三分钟了解美国弹劾大戏<br>[https://gnews.org/zh-hans/59258/](https://gnews.org/zh-hans/59258/ "https://gnews.org/zh-hans/59258/")
 
 [https://www.guo.media/posts/261709](https://www.guo.media/posts/261709) `2019-12-21T00:40:10`
