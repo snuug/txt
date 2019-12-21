@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [China] Two People Arrested for Sharing the Truth of Hong Kong<br>[https://gnews.org/59691/](https://gnews.org/59691/ "https://gnews.org/59691/")
+
+[https://www.guo.media/posts/261869](https://www.guo.media/posts/261869) `2019-12-21T15:55:13`
+##
+
 **milesguo** 驻港戒严部队情绪失控挥舞警棍攻击立场新闻记者<br>[https://gnews.org/zh-hans/59620/](https://gnews.org/zh-hans/59620/ "https://gnews.org/zh-hans/59620/")
 
 [https://www.guo.media/posts/261866](https://www.guo.media/posts/261866) `2019-12-21T15:40:10`
