@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 解析文贵先生对于金融市场的神判断<br>[https://gnews.org/zh-hans/59308/](https://gnews.org/zh-hans/59308/ "https://gnews.org/zh-hans/59308/")
+
+[https://www.guo.media/posts/261752](https://www.guo.media/posts/261752) `2019-12-21T04:40:10`
+##
+
 **milesguo** 浅论“平民主义”和“民粹主义”的认知差异<br>[https://gnews.org/zh-hans/58400/](https://gnews.org/zh-hans/58400/ "https://gnews.org/zh-hans/58400/")
 
 [https://www.guo.media/posts/261734](https://www.guo.media/posts/261734) `2019-12-21T02:40:10`
