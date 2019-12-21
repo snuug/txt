@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 灭共路上我们能做什么<br>[https://gnews.org/zh-hans/59327/](https://gnews.org/zh-hans/59327/ "https://gnews.org/zh-hans/59327/")
+
+[https://www.guo.media/posts/261756](https://www.guo.media/posts/261756) `2019-12-21T04:55:10`
+##
+
+**milesguo** 如何在墙内传播香港危机真相？<br>[https://gnews.org/zh-hans/59282/](https://gnews.org/zh-hans/59282/ "https://gnews.org/zh-hans/59282/")
+
+[https://www.guo.media/posts/261755](https://www.guo.media/posts/261755) `2019-12-21T04:55:12`
+##
+
+**milesguo** 12月20号：刚刚结束了文贵诉郭宝盛欺诈和诽谤案……及四天开庭审理后，我们大赢陪审团一致决议，郭宝胜诈骗罪成．诽谤罪成！衷心的感谢战友们的一切！没有你们不可能有这样的传奇再次的发生，明天我將擇時直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/261754](https://www.guo.media/posts/261754) `2019-12-21T04:55:15`
+##
+
 **milesguo** 解析文贵先生对于金融市场的神判断<br>[https://gnews.org/zh-hans/59308/](https://gnews.org/zh-hans/59308/ "https://gnews.org/zh-hans/59308/")
 
 [https://www.guo.media/posts/261752](https://www.guo.media/posts/261752) `2019-12-21T04:40:10`
