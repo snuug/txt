@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月21号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在纽约时间今天下午一点左右直播报平安，一切都是刚刚开始！
+
+[https://www.guo.media/posts/261884](https://www.guo.media/posts/261884) `2019-12-21T16:55:12`
+##
+
 **milesguo** 美参议员致信国际奥委会关于取消中共国在2022年举办冬奥会<br>[https://gnews.org/zh-hans/59753/](https://gnews.org/zh-hans/59753/ "https://gnews.org/zh-hans/59753/")
 
 [https://www.guo.media/posts/261878](https://www.guo.media/posts/261878) `2019-12-21T16:40:11`
