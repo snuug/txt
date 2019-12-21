@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Why Chinese Communist Party afraid of Christmas so much!<br>[https://gnews.org/59643/](https://gnews.org/59643/ "https://gnews.org/59643/")
+
+[https://www.guo.media/posts/261859](https://www.guo.media/posts/261859) `2019-12-21T14:40:11`
+##
+
+**milesguo** 我是“王教宗”！恶贯满盈的“王教宗”！<br>
+
+[https://www.guo.media/posts/261858](https://www.guo.media/posts/261858) `2019-12-21T14:40:14`
+##
+
+**milesguo** Some Demonstrators Accused of Rioting By Hong Kong Police<br>[https://gnews.org/59321/](https://gnews.org/59321/ "https://gnews.org/59321/")
+
+[https://www.guo.media/posts/261857](https://www.guo.media/posts/261857) `2019-12-21T14:40:17`
+##
+
+**milesguo** 爆料革命如何拯救中国人的精神世界？（第三部分）<br>[https://gnews.org/zh-hans/57268/](https://gnews.org/zh-hans/57268/ "https://gnews.org/zh-hans/57268/")
+
+[https://www.guo.media/posts/261855](https://www.guo.media/posts/261855) `2019-12-21T14:40:19`
+##
+
 **milesguo** Survey Results on Pay Raise for Hong Kong Police Force<br>[https://gnews.org/58910/](https://gnews.org/58910/ "https://gnews.org/58910/")
 
 [https://www.guo.media/posts/261843](https://www.guo.media/posts/261843) `2019-12-21T13:25:10`
