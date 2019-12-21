@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Survey Results on Pay Raise for Hong Kong Police Force<br>[https://gnews.org/58910/](https://gnews.org/58910/ "https://gnews.org/58910/")
+
+[https://www.guo.media/posts/261843](https://www.guo.media/posts/261843) `2019-12-21T13:25:10`
+##
+
 **milesguo** ARTICLESCHINACENSORED<br>China’s space ambitions: a navy in space & Mars exploration<br>[https://gnews.org/59480/](https://gnews.org/59480/ "https://gnews.org/59480/")
 
 [https://www.guo.media/posts/261841](https://www.guo.media/posts/261841) `2019-12-21T13:10:10`
