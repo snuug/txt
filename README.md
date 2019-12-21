@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 太空部队成为美国军方的第六个分支<br>[https://gnews.org/zh-hans/59529/](https://gnews.org/zh-hans/59529/ "https://gnews.org/zh-hans/59529/")
+
+[https://www.guo.media/posts/261794](https://www.guo.media/posts/261794) `2019-12-21T07:25:10`
+##
+
+**milesguo** 12月20日 美国政要推文精选<br>[https://gnews.org/zh-hans/59476/](https://gnews.org/zh-hans/59476/ "https://gnews.org/zh-hans/59476/")
+
+[https://www.guo.media/posts/261793](https://www.guo.media/posts/261793) `2019-12-21T07:25:13`
+##
+
 **milesguo** 突发！沙田水边发现漂浮尸体，嘴上疑似有胶带封口<br>[https://gnews.org/zh-hans/59436/](https://gnews.org/zh-hans/59436/ "https://gnews.org/zh-hans/59436/")
 
 [https://www.guo.media/posts/261792](https://www.guo.media/posts/261792) `2019-12-21T07:10:10`
