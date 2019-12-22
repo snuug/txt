@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生最早预言的“脱钩”被《金融时报》评为2019年度词语<br>[https://gnews.org/zh-hans/60454/](https://gnews.org/zh-hans/60454/ "https://gnews.org/zh-hans/60454/") 
+
+[https://www.guo.media/posts/261980](https://www.guo.media/posts/261980) `2019-12-22T05:55:10`
+##
+
 **milesguo** 与中共军队合作无异于与虎谋皮<br>[https://gnews.org/zh-hans/60312/](https://gnews.org/zh-hans/60312/ "https://gnews.org/zh-hans/60312/")
 
 [https://www.guo.media/posts/261963](https://www.guo.media/posts/261963) `2019-12-22T04:10:10`
