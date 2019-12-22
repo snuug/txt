@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “支持香港 守护民主 光复高雄 保卫台湾” 30万人罢韩游行<br>[https://gnews.org/zh-hans/60244/](https://gnews.org/zh-hans/60244/ "https://gnews.org/zh-hans/60244/")
+
+[https://www.guo.media/posts/261961](https://www.guo.media/posts/261961) `2019-12-22T03:55:10`
+##
+
 **milesguo** 解放军中将呼应爆料革命？ 2020是中共统一台湾的关键年<br>[https://gnews.org/zh-hans/60203/](https://gnews.org/zh-hans/60203/ "https://gnews.org/zh-hans/60203/")
 
 [https://www.guo.media/posts/261958](https://www.guo.media/posts/261958) `2019-12-22T03:40:10`
