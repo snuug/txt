@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** “大五毛（染香）”的遭遇和干五毛（花千芳）网爆<br>[https://gnews.org/zh-hans/60502/](https://gnews.org/zh-hans/60502/ "https://gnews.org/zh-hans/60502/")
+
+[https://www.guo.media/posts/262041](https://www.guo.media/posts/262041) `2019-12-22T14:40:10`
+##
+
+**milesguo** 12月20日和21日香港被捕市民详情<br>[https://gnews.org/zh-hans/60684/](https://gnews.org/zh-hans/60684/ "https://gnews.org/zh-hans/60684/")
+
+[https://www.guo.media/posts/262040](https://www.guo.media/posts/262040) `2019-12-22T14:40:13`
+##
+
+**milesguo** 美国国防部长希望将部队从阿富汗转移到印度太平洋以对抗中共国<br>[https://gnews.org/zh-hans/60619/](https://gnews.org/zh-hans/60619/ "https://gnews.org/zh-hans/60619/")
+
+[https://www.guo.media/posts/262039](https://www.guo.media/posts/262039) `2019-12-22T14:40:16`
+##
+
 **milesguo** HK Police Violence on Press and Civilians at Rally for Human Rights<br>[https://gnews.org/60918/](https://gnews.org/60918/ "https://gnews.org/60918/")
 
 [https://www.guo.media/posts/262036](https://www.guo.media/posts/262036) `2019-12-22T14:25:10`
