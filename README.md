@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 正在亚利桑那州凤凰城直播<br>[http://livestream.com/accounts/27235681/events/8197481](https://livestream.com/accounts/27235681/events/8197481 "http://livestream.com/accounts/27235681/events/8197481")
+
+[https://www.guo.media/posts/262065](https://www.guo.media/posts/262065) `2019-12-22T17:55:10`
+##
+
+**milesguo** “Justice is served”Highlights of Miles Guo’s live broadcast on December 21st<br>[https://gnews.org/60149/](https://gnews.org/60149/ "https://gnews.org/60149/")
+
+[https://www.guo.media/posts/262063](https://www.guo.media/posts/262063) `2019-12-22T17:55:13`
+##
+
 **milesguo** 英国女皇发表「御座致词」考虑修改叛国法　防范中俄间谍　英国新内阁拟修改叛国法<br>[https://gnews.org/zh-hans/60997/](https://gnews.org/zh-hans/60997/ "https://gnews.org/zh-hans/60997/")
 
 [https://www.guo.media/posts/262062](https://www.guo.media/posts/262062) `2019-12-22T17:40:10`
