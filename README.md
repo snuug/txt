@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共加强管控高校言论 传这些人恐被列重点监控<br>[https://gnews.org/zh-hans/60124/](https://gnews.org/zh-hans/60124/ "https://gnews.org/zh-hans/60124/")
+
+[https://www.guo.media/posts/261938](https://www.guo.media/posts/261938) `2019-12-22T01:25:10`
+##
+
+**milesguo** 【灭共日记】谁把中国老百姓变成器官库？981首长健康工程到底是什么？<br>[https://gnews.org/zh-hans/60071/](https://gnews.org/zh-hans/60071/ "https://gnews.org/zh-hans/60071/")
+
+[https://www.guo.media/posts/261937](https://www.guo.media/posts/261937) `2019-12-22T01:25:13`
+##
+
 **milesguo** <br>小巴猪：锦州银行事件和王岐山有关，反映出中国官员互相双规<br>[https://gnews.org/zh-hans/60071/](https://gnews.org/zh-hans/60071/ "https://gnews.org/zh-hans/60071/")
 
 [https://www.guo.media/posts/261935](https://www.guo.media/posts/261935) `2019-12-22T00:55:10`
