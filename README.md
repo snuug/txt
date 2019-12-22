@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 爆料革命如何拯救中国人的精神世界？（第四部分）<br>[https://gnews.org/zh-hans/57284/](https://gnews.org/zh-hans/57284/ "https://gnews.org/zh-hans/57284/")
+
+[https://www.guo.media/posts/262043](https://www.guo.media/posts/262043) `2019-12-22T14:55:10`
+##
+
 **milesguo** “大五毛（染香）”的遭遇和干五毛（花千芳）网爆<br>[https://gnews.org/zh-hans/60502/](https://gnews.org/zh-hans/60502/ "https://gnews.org/zh-hans/60502/")
 
 [https://www.guo.media/posts/262041](https://www.guo.media/posts/262041) `2019-12-22T14:40:10`
