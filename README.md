@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 针对在新疆令人震惊的“集体强奸”项目， 维族活动人士呼吁澳政府对中共更强硬<br>[https://gnews.org/zh-hans/60646/](https://gnews.org/zh-hans/60646/ "https://gnews.org/zh-hans/60646/")
+
+[https://www.guo.media/posts/262003](https://www.guo.media/posts/262003) `2019-12-22T10:10:10`
+##
+
 **milesguo** 中共加强对藏族宗教节日的限制<br>[https://gnews.org/zh-hans/60639/](https://gnews.org/zh-hans/60639/ "https://gnews.org/zh-hans/60639/")
 
 [https://www.guo.media/posts/262000](https://www.guo.media/posts/262000) `2019-12-22T09:40:11`
