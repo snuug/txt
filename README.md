@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月22号：尊敬的战友们好！文贵马上直播报平安，请点击这里便可进入看直播，一切都是刚刚开始！GTV‘s events on Livestream [http://livestream.com/accounts/27235681](https://livestream.com/accounts/27235681 "http://livestream.com/accounts/27235681")
+
+[https://www.guo.media/posts/262059](https://www.guo.media/posts/262059) `2019-12-22T17:25:10`
+##
+
 **milesguo** 爆料革命如何拯救中国人的精神世界？（第四部分）<br>[https://gnews.org/zh-hans/57284/](https://gnews.org/zh-hans/57284/ "https://gnews.org/zh-hans/57284/")
 
 [https://www.guo.media/posts/262043](https://www.guo.media/posts/262043) `2019-12-22T14:55:10`
