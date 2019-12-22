@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** <br>新宿唱响《愿荣光归香港》<br>[https://gnews.org/zh-hans/60783/](https://gnews.org/zh-hans/60783/ "https://gnews.org/zh-hans/60783/")
+
+[https://www.guo.media/posts/262024](https://www.guo.media/posts/262024) `2019-12-22T13:25:11`
+##
+
+**milesguo** 【灭共日记】海外华人为何遭排挤？不干涉别国内政的真相？<br>[https://gnews.org/zh-hans/60255/](https://gnews.org/zh-hans/60255/ "https://gnews.org/zh-hans/60255/")
+
+[https://www.guo.media/posts/262023](https://www.guo.media/posts/262023) `2019-12-22T13:25:13`
+##
+
 **milesguo** 豆腐渣工程！湖南长沙再现地铁塌方<br>[https://gnews.org/zh-hans/60577/](https://gnews.org/zh-hans/60577/ "https://gnews.org/zh-hans/60577/")
 
 [https://www.guo.media/posts/262022](https://www.guo.media/posts/262022) `2019-12-22T13:10:09`
