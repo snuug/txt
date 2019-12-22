@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共加强对藏族宗教节日的限制<br>[https://gnews.org/zh-hans/60639/](https://gnews.org/zh-hans/60639/ "https://gnews.org/zh-hans/60639/")
+
+[https://www.guo.media/posts/262000](https://www.guo.media/posts/262000) `2019-12-22T09:40:11`
+##
+
 **milesguo** 中共穷兵黩武惹众怒，印太地区包围圈已形成， 俄国见风使舵拒与中共军事结盟<br>[https://gnews.org/zh-hans/59242/](https://gnews.org/zh-hans/59242/ "https://gnews.org/zh-hans/59242/")
 
 [https://www.guo.media/posts/261989](https://www.guo.media/posts/261989) `2019-12-22T07:25:10`
