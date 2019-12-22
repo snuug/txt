@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 马来西亚穆斯林敦促抵制中国产品<br>[https://gnews.org/zh-hans/60898/](https://gnews.org/zh-hans/60898/ "https://gnews.org/zh-hans/60898/")
+
+[https://www.guo.media/posts/262029](https://www.guo.media/posts/262029) `2019-12-22T13:40:10`
+##
+
 **milesguo** <br>新宿唱响《愿荣光归香港》<br>[https://gnews.org/zh-hans/60783/](https://gnews.org/zh-hans/60783/ "https://gnews.org/zh-hans/60783/")
 
 [https://www.guo.media/posts/262024](https://www.guo.media/posts/262024) `2019-12-22T13:25:11`
