@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** HK Police Violence on Press and Civilians at Rally for Human Rights<br>[https://gnews.org/60918/](https://gnews.org/60918/ "https://gnews.org/60918/")
+
+[https://www.guo.media/posts/262036](https://www.guo.media/posts/262036) `2019-12-22T14:25:10`
+##
+
 **milesguo** HK Police Points Gun At Journalists and Rally Attendees<br>[https://gnews.org/60910/](https://gnews.org/60910/ "https://gnews.org/60910/")
 
 [https://www.guo.media/posts/262034](https://www.guo.media/posts/262034) `2019-12-22T14:10:10`
