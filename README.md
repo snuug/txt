@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 豆腐渣工程！湖南长沙再现地铁塌方<br>[https://gnews.org/zh-hans/60577/](https://gnews.org/zh-hans/60577/ "https://gnews.org/zh-hans/60577/")
+
+[https://www.guo.media/posts/262022](https://www.guo.media/posts/262022) `2019-12-22T13:10:09`
+##
+
+**milesguo** President of International Association of Lawyers Rejected From Chinese Global Lawyers Forum<br>[https://gnews.org/60725/](https://gnews.org/60725/ "https://gnews.org/60725/")
+
+[https://www.guo.media/posts/262021](https://www.guo.media/posts/262021) `2019-12-22T13:10:12`
+##
+
+**milesguo** Shinjuku Singing “Glory to Hong Kong!” to Stand with HK<br>[https://gnews.org/60659/](https://gnews.org/60659/ "https://gnews.org/60659/")
+
+[https://www.guo.media/posts/262020](https://www.guo.media/posts/262020) `2019-12-22T13:10:15`
+##
+
 **milesguo** 针对在新疆令人震惊的“集体强奸”项目， 维族活动人士呼吁澳政府对中共更强硬<br>[https://gnews.org/zh-hans/60646/](https://gnews.org/zh-hans/60646/ "https://gnews.org/zh-hans/60646/")
 
 [https://www.guo.media/posts/262003](https://www.guo.media/posts/262003) `2019-12-22T10:10:10`
