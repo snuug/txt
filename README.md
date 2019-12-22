@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Shinjuku Singing “Glory to Hong Kong!” to Stand with HK<br>[https://gnews.org/60659/](https://gnews.org/60659/ "https://gnews.org/60659/")
+
+[https://www.guo.media/posts/262070](https://www.guo.media/posts/262070) `2019-12-22T18:25:10`
+##
+
+**milesguo** Miles Guo: After four days of trial, Miles shared some insights<br>[https://gnews.org/60618/](https://gnews.org/60618/ "https://gnews.org/60618/")
+
+[https://www.guo.media/posts/262069](https://www.guo.media/posts/262069) `2019-12-22T18:25:13`
+##
+
+**milesguo** Beautiful Xinjian – CNazi’s Concentration Camp<br>[https://gnews.org/60353/](https://gnews.org/60353/ "https://gnews.org/60353/")
+
+[https://www.guo.media/posts/262068](https://www.guo.media/posts/262068) `2019-12-22T18:25:15`
+##
+
 **milesguo** 正在亚利桑那州凤凰城直播<br>[http://livestream.com/accounts/27235681/events/8197481](https://livestream.com/accounts/27235681/events/8197481 "http://livestream.com/accounts/27235681/events/8197481")
 
 [https://www.guo.media/posts/262065](https://www.guo.media/posts/262065) `2019-12-22T17:55:10`
