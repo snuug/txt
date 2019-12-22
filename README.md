@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共穷兵黩武惹众怒，印太地区包围圈已形成， 俄国见风使舵拒与中共军事结盟<br>[https://gnews.org/zh-hans/59242/](https://gnews.org/zh-hans/59242/ "https://gnews.org/zh-hans/59242/")
+
+[https://www.guo.media/posts/261989](https://www.guo.media/posts/261989) `2019-12-22T07:25:10`
+##
+
+**milesguo** 12月21日 美国政要推文精选<br>[https://gnews.org/zh-hans/60514/](https://gnews.org/zh-hans/60514/ "https://gnews.org/zh-hans/60514/")
+
+[https://www.guo.media/posts/261988](https://www.guo.media/posts/261988) `2019-12-22T07:25:13`
+##
+
 **milesguo** 中共渗透之利害！竟然把军事用品也伪造了卖给美军！<br>[https://gnews.org/zh-hans/60501/](https://gnews.org/zh-hans/60501/ "https://gnews.org/zh-hans/60501/")
 
 [https://www.guo.media/posts/261986](https://www.guo.media/posts/261986) `2019-12-22T06:55:09`
