@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生在亚利桑那州凤凰城分享沙漠城市风情美景附上看重播链接<br>[https://gnews.org/zh-hans/61064/](https://gnews.org/zh-hans/61064/ "https://gnews.org/zh-hans/61064/")
+
+[https://www.guo.media/posts/262081](https://www.guo.media/posts/262081) `2019-12-22T19:10:10`
+##
+
+**milesguo** 广播：2019/12/22郭文贵先生亚利桑那州直播 王岐山杀狗拯救中国人论 精神已出大问题<br>[https://gnews.org/zh-hans/61052/](https://gnews.org/zh-hans/61052/ "https://gnews.org/zh-hans/61052/")
+
+[https://www.guo.media/posts/262080](https://www.guo.media/posts/262080) `2019-12-22T19:10:12`
+##
+
 **milesguo** Tense Relations Between the Hong Kong Police and Citizens<br>[https://gnews.org/61021/](https://gnews.org/61021/ "https://gnews.org/61021/")
 
 [https://www.guo.media/posts/262075](https://www.guo.media/posts/262075) `2019-12-22T18:55:11`
