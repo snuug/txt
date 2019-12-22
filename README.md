@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 与中共军队合作无异于与虎谋皮<br>[https://gnews.org/zh-hans/60312/](https://gnews.org/zh-hans/60312/ "https://gnews.org/zh-hans/60312/")
+
+[https://www.guo.media/posts/261963](https://www.guo.media/posts/261963) `2019-12-22T04:10:10`
+##
+
+**milesguo** 何韵诗接受华尔街日报采访 强调香港人民绝不会轻易放弃对民主自由的追求<br>[https://gnews.org/zh-hans/60298/](https://gnews.org/zh-hans/60298/ "https://gnews.org/zh-hans/60298/")
+
+[https://www.guo.media/posts/261962](https://www.guo.media/posts/261962) `2019-12-22T04:10:13`
+##
+
 **milesguo** “支持香港 守护民主 光复高雄 保卫台湾” 30万人罢韩游行<br>[https://gnews.org/zh-hans/60244/](https://gnews.org/zh-hans/60244/ "https://gnews.org/zh-hans/60244/")
 
 [https://www.guo.media/posts/261961](https://www.guo.media/posts/261961) `2019-12-22T03:55:10`
