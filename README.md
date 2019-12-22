@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 双修教宗王岐山是怎样炼成的？———七宗罪造就的邪教魔王<br>[https://gnews.org/zh-hans/61017/](https://gnews.org/zh-hans/61017/ "https://gnews.org/zh-hans/61017/")
+
+[https://www.guo.media/posts/262094](https://www.guo.media/posts/262094) `2019-12-22T22:10:10`
+##
+
+**milesguo** 声援维吾尔族人权集会戒严部队军警虚假护旗枪指市民<br>[https://gnews.org/zh-hans/61078/](https://gnews.org/zh-hans/61078/ "https://gnews.org/zh-hans/61078/")
+
+[https://www.guo.media/posts/262093](https://www.guo.media/posts/262093) `2019-12-22T22:10:13`
+##
+
+**milesguo** 求证？中共公安的邪恶计划：Y库！<br>[https://gnews.org/zh-hans/61029/](https://gnews.org/zh-hans/61029/ "https://gnews.org/zh-hans/61029/")
+
+[https://www.guo.media/posts/262092](https://www.guo.media/posts/262092) `2019-12-22T22:10:16`
+##
+
+**milesguo** 12月20日香港要闻: 港共对人道基金抹黑，施白色恐怖阻吓分化， 弄巧反拙反证实法治被蚕食<br>[https://gnews.org/zh-hans/60940/](https://gnews.org/zh-hans/60940/ "https://gnews.org/zh-hans/60940/")
+
+[https://www.guo.media/posts/262091](https://www.guo.media/posts/262091) `2019-12-22T22:10:19`
+##
+
 **milesguo** 郭文贵先生在亚利桑那州凤凰城分享沙漠城市风情美景附上看重播链接<br>[https://gnews.org/zh-hans/61064/](https://gnews.org/zh-hans/61064/ "https://gnews.org/zh-hans/61064/")
 
 [https://www.guo.media/posts/262081](https://www.guo.media/posts/262081) `2019-12-22T19:10:10`
