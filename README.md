@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “法网恢恢，鴰胜终受因果天报” 郭文贵先生 12月21号胜诉宝胜案-直播摘要<br>[https://gnews.org/zh-hans/60095/](https://gnews.org/zh-hans/60095/ "https://gnews.org/zh-hans/60095/")
+
+[https://www.guo.media/posts/261952](https://www.guo.media/posts/261952) `2019-12-22T03:25:11`
+##
+
 **milesguo** 中共加强管控高校言论 传这些人恐被列重点监控<br>[https://gnews.org/zh-hans/60124/](https://gnews.org/zh-hans/60124/ "https://gnews.org/zh-hans/60124/")
 
 [https://www.guo.media/posts/261938](https://www.guo.media/posts/261938) `2019-12-22T01:25:10`
