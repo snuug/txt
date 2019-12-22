@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Tense Relations Between the Hong Kong Police and Citizens<br>[https://gnews.org/61021/](https://gnews.org/61021/ "https://gnews.org/61021/")
+
+[https://www.guo.media/posts/262075](https://www.guo.media/posts/262075) `2019-12-22T18:55:11`
+##
+
+**milesguo** Hong Kong Police Stormed in Suport Uyghurs Rally<br>[https://gnews.org/60932/](https://gnews.org/60932/ "https://gnews.org/60932/")
+
+[https://www.guo.media/posts/262074](https://www.guo.media/posts/262074) `2019-12-22T18:55:14`
+##
+
 **milesguo** Shinjuku Singing “Glory to Hong Kong!” to Stand with HK<br>[https://gnews.org/60659/](https://gnews.org/60659/ "https://gnews.org/60659/")
 
 [https://www.guo.media/posts/262070](https://www.guo.media/posts/262070) `2019-12-22T18:25:10`
