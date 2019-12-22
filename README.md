@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** HK Police Points Gun At Journalists and Rally Attendees<br>[https://gnews.org/60910/](https://gnews.org/60910/ "https://gnews.org/60910/")
+
+[https://www.guo.media/posts/262034](https://www.guo.media/posts/262034) `2019-12-22T14:10:10`
+##
+
+**milesguo** Teenager Hit In The Head By Tear Gas Canister Finally Wakes Up After A Month In Coma<br>[https://gnews.org/60790/](https://gnews.org/60790/ "https://gnews.org/60790/")
+
+[https://www.guo.media/posts/262033](https://www.guo.media/posts/262033) `2019-12-22T14:10:14`
+##
+
+**milesguo** 台美签署F16V战机M1A2坦克及拖式反装甲飞弹3大军购合约总额达2900亿台币　台湾政府建军备战军事实力又将大幅提升<br>[https://gnews.org/zh-hans/60895/](https://gnews.org/zh-hans/60895/ "https://gnews.org/zh-hans/60895/")
+
+[https://www.guo.media/posts/262031](https://www.guo.media/posts/262031) `2019-12-22T14:10:16`
+##
+
 **milesguo** 马来西亚穆斯林敦促抵制中国产品<br>[https://gnews.org/zh-hans/60898/](https://gnews.org/zh-hans/60898/ "https://gnews.org/zh-hans/60898/")
 
 [https://www.guo.media/posts/262029](https://www.guo.media/posts/262029) `2019-12-22T13:40:10`
