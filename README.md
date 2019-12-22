@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** <br>小巴猪：锦州银行事件和王岐山有关，反映出中国官员互相双规<br>[https://gnews.org/zh-hans/60071/](https://gnews.org/zh-hans/60071/ "https://gnews.org/zh-hans/60071/")
+
+[https://www.guo.media/posts/261935](https://www.guo.media/posts/261935) `2019-12-22T00:55:10`
+##
+
+**milesguo** General of PLA: 2020 should be the year to liberate Taiwan<br>[https://gnews.org/59817/](https://gnews.org/59817/ "https://gnews.org/59817/")
+
+[https://www.guo.media/posts/261934](https://www.guo.media/posts/261934) `2019-12-22T00:55:13`
+##
+
 **milesguo** December 21, Posters on HK Protest<br>[https://gnews.org/59862/](https://gnews.org/59862/ "https://gnews.org/59862/")
 
 [https://www.guo.media/posts/261933](https://www.guo.media/posts/261933) `2019-12-22T00:40:10`
