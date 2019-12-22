@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 北京东燕郊！鬼子进村了…<br>[https://gnews.org/zh-hans/60395/](https://gnews.org/zh-hans/60395/ "https://gnews.org/zh-hans/60395/")
+
+[https://www.guo.media/posts/261985](https://www.guo.media/posts/261985) `2019-12-22T06:40:10`
+##
+
+**milesguo** 老江观点：中共将由于全世界对其失望而灭亡<br>[https://gnews.org/zh-hans/60352/](https://gnews.org/zh-hans/60352/ "https://gnews.org/zh-hans/60352/")
+
+[https://www.guo.media/posts/261984](https://www.guo.media/posts/261984) `2019-12-22T06:40:13`
+##
+
 **milesguo** 郭文贵先生最早预言的“脱钩”被《金融时报》评为2019年度词语<br>[https://gnews.org/zh-hans/60454/](https://gnews.org/zh-hans/60454/ "https://gnews.org/zh-hans/60454/") 
 
 [https://www.guo.media/posts/261980](https://www.guo.media/posts/261980) `2019-12-22T05:55:10`
