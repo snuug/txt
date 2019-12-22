@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 英国女皇发表「御座致词」考虑修改叛国法　防范中俄间谍　英国新内阁拟修改叛国法<br>[https://gnews.org/zh-hans/60997/](https://gnews.org/zh-hans/60997/ "https://gnews.org/zh-hans/60997/")
+
+[https://www.guo.media/posts/262062](https://www.guo.media/posts/262062) `2019-12-22T17:40:10`
+##
+
+**milesguo** 香港警方突袭了“声援维吾尔族人权集会”<br>[https://gnews.org/zh-hans/60994/](https://gnews.org/zh-hans/60994/ "https://gnews.org/zh-hans/60994/")
+
+[https://www.guo.media/posts/262061](https://www.guo.media/posts/262061) `2019-12-22T17:40:13`
+##
+
 **milesguo** 12月22号：尊敬的战友们好！文贵马上直播报平安，请点击这里便可进入看直播，一切都是刚刚开始！GTV‘s events on Livestream [http://livestream.com/accounts/27235681](https://livestream.com/accounts/27235681 "http://livestream.com/accounts/27235681")
 
 [https://www.guo.media/posts/262059](https://www.guo.media/posts/262059) `2019-12-22T17:25:10`
