@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共渗透之利害！竟然把军事用品也伪造了卖给美军！<br>[https://gnews.org/zh-hans/60501/](https://gnews.org/zh-hans/60501/ "https://gnews.org/zh-hans/60501/")
+
+[https://www.guo.media/posts/261986](https://www.guo.media/posts/261986) `2019-12-22T06:55:09`
+##
+
 **milesguo** 北京东燕郊！鬼子进村了…<br>[https://gnews.org/zh-hans/60395/](https://gnews.org/zh-hans/60395/ "https://gnews.org/zh-hans/60395/")
 
 [https://www.guo.media/posts/261985](https://www.guo.media/posts/261985) `2019-12-22T06:40:10`
