@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** HK Movement-Supporting Restaurant Provides New Year’s Feast For Free<br>[https://gnews.org/61490/](https://gnews.org/61490/ "https://gnews.org/61490/")
+
+[https://www.guo.media/posts/262238](https://www.guo.media/posts/262238) `2019-12-23T17:40:10`
+##
+
 **milesguo** Hong Kong Protesters Are Declaring ‘I Won’t Kill Myself’ Just in Case They Disappear<br>[https://gnews.org/61439/](https://gnews.org/61439/ "https://gnews.org/61439/")
 
 [https://www.guo.media/posts/262236](https://www.guo.media/posts/262236) `2019-12-23T17:25:10`
