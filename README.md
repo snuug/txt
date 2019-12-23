@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: An American friend felt that Wang Qishan is mentally ill after meeting him<br>[https://gnews.org/61394/](https://gnews.org/61394/ "https://gnews.org/61394/")
+
+[https://www.guo.media/posts/262215](https://www.guo.media/posts/262215) `2019-12-23T15:40:10`
+##
+
+**milesguo** China wants to be the economic savior for Argentina<br>[https://gnews.org/61365/](https://gnews.org/61365/ "https://gnews.org/61365/")
+
+[https://www.guo.media/posts/262214](https://www.guo.media/posts/262214) `2019-12-23T15:40:13`
+##
+
 **milesguo** 驻港戒严部队盘查时多次恐吓男子原因仅仅是将手放入裤兜里<br>[https://gnews.org/zh-hans/61314/](https://gnews.org/zh-hans/61314/ "https://gnews.org/zh-hans/61314/")
 
 [https://www.guo.media/posts/262205](https://www.guo.media/posts/262205) `2019-12-23T14:10:10`
