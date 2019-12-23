@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 23, Posters on HK Protest<br>[https://gnews.org/61671/](https://gnews.org/61671/ "https://gnews.org/61671/")
+
+[https://www.guo.media/posts/262259](https://www.guo.media/posts/262259) `2019-12-23T23:25:11`
+##
+
 **milesguo** Denial, Rebuttal and Attacks Became Routine at Chinese Foreign Ministry Spokesperson’s Press Conference<br>[https://gnews.org/61505/](https://gnews.org/61505/ "https://gnews.org/61505/")
 
 [https://www.guo.media/posts/262258](https://www.guo.media/posts/262258) `2019-12-23T23:10:11`
