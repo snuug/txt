@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** How Hong Kong police deliberately attack ordinary citizens？<br>[https://gnews.org/61149/](https://gnews.org/61149/ "https://gnews.org/61149/")
+
+[https://www.guo.media/posts/262232](https://www.guo.media/posts/262232) `2019-12-23T17:10:11`
+##
+
 **milesguo** The Farm: Espionage and Spycraft, The CCP’s Global Disinformation Warfare Apparatus<br>[https://gnews.org/61411/](https://gnews.org/61411/ "https://gnews.org/61411/")
 
 [https://www.guo.media/posts/262231](https://www.guo.media/posts/262231) `2019-12-23T16:55:13`
