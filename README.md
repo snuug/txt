@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 韭菜大荟萃！鲜为人知的正和岛上的大佬们<br>[https://gnews.org/zh-hans/60311/](https://gnews.org/zh-hans/60311/ "https://gnews.org/zh-hans/60311/")
+
+[https://www.guo.media/posts/262117](https://www.guo.media/posts/262117) `2019-12-23T01:55:10`
+##
+
+**milesguo** 银行危机！对老百姓的影响！今天你取钱了吗？<br>[https://gnews.org/zh-hans/60669/](https://gnews.org/zh-hans/60669/ "https://gnews.org/zh-hans/60669/")
+
+[https://www.guo.media/posts/262116](https://www.guo.media/posts/262116) `2019-12-23T01:55:13`
+##
+
 **milesguo** 12月22号：只有在美国这样伟大的国家．高科技的人，才能拥有很多国家总统都没有的高尚的生活条件．这位朋友的房子．无论他的建筑的设计．具备的功能．几百年的树木，都是在中共的绑架的中国永远无法拥有……这就是美国伟大的核心，她聚拢了全世界的人才．全人类的智慧，让在这里安心．安全．拥有的合法财富．和创造更多的伟大与文明……这就是美国为什么伟大的核心，当任何国家将权利私有化．财富公有化，他都将失去所有的人才．和创新能力……更不可能有未来……一切都是刚刚开始！
 
 [https://www.guo.media/posts/262100](https://www.guo.media/posts/262100) `2019-12-23T00:25:10`
