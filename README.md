@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 美国海军时报警告世界，如果你寻求与中共和平相处，那就准备战争！<br>[https://gnews.org/zh-hans/61266/](https://gnews.org/zh-hans/61266/ "https://gnews.org/zh-hans/61266/")
+
+[https://www.guo.media/posts/262156](https://www.guo.media/posts/262156) `2019-12-23T07:10:10`
+##
+
+**milesguo** 英国一名6岁小女孩收到来自中共国监狱劳工的求救信<br>[https://gnews.org/zh-hans/61253/](https://gnews.org/zh-hans/61253/ "https://gnews.org/zh-hans/61253/")
+
+[https://www.guo.media/posts/262155](https://www.guo.media/posts/262155) `2019-12-23T07:10:13`
+##
+
+**milesguo** 小巴猪：中共倒车之下，资本转向印度，国内创业公司大量倒闭<br>[https://gnews.org/zh-hans/60082/](https://gnews.org/zh-hans/60082/ "https://gnews.org/zh-hans/60082/")
+
+[https://www.guo.media/posts/262154](https://www.guo.media/posts/262154) `2019-12-23T07:10:15`
+##
+
 **milesguo** 爆料革命的本根——爱！<br>[https://gnews.org/zh-hans/61233/](https://gnews.org/zh-hans/61233/ "https://gnews.org/zh-hans/61233/")
 
 [https://www.guo.media/posts/262151](https://www.guo.media/posts/262151) `2019-12-23T06:10:10`
