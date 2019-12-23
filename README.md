@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共国工厂涉嫌“强制”犯人从事生产<br>[https://gnews.org/zh-hans/61377/](https://gnews.org/zh-hans/61377/ "https://gnews.org/zh-hans/61377/")
+
+[https://www.guo.media/posts/262177](https://www.guo.media/posts/262177) `2019-12-23T09:55:11`
+##
+
+**milesguo** 中共国“九段线”的主张太“荒谬”，遭到马来西亚外长质疑<br>[https://gnews.org/zh-hans/61366/](https://gnews.org/zh-hans/61366/ "https://gnews.org/zh-hans/61366/") 
+
+[https://www.guo.media/posts/262176](https://www.guo.media/posts/262176) `2019-12-23T09:55:14`
+##
+
 **milesguo** 亲爱的战友们！GNews用户们！圣诞节快乐！<br>[https://gnews.org/zh-hans/61309/](https://gnews.org/zh-hans/61309/ "https://gnews.org/zh-hans/61309/")
 
 [https://www.guo.media/posts/262165](https://www.guo.media/posts/262165) `2019-12-23T07:55:10`
