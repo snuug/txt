@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles’ Livestream Broadcast on 12/22/2019<br>[https://gnews.org/61363/](https://gnews.org/61363/ "https://gnews.org/61363/")
+
+[https://www.guo.media/posts/262196](https://www.guo.media/posts/262196) `2019-12-23T12:40:10`
+##
+
+**milesguo** Profiles of Hong Kong Repression: Perpetrators of Human Rights and Democracy Abuse<br>[https://gnews.org/61107/](https://gnews.org/61107/ "https://gnews.org/61107/")
+
+[https://www.guo.media/posts/262195](https://www.guo.media/posts/262195) `2019-12-23T12:40:13`
+##
+
+**milesguo** CCP’s Top Lawmaking Body Slammed the Passage of US National Defense Authorization Act<br>[https://gnews.org/60937/](https://gnews.org/60937/ "https://gnews.org/60937/")
+
+[https://www.guo.media/posts/262194](https://www.guo.media/posts/262194) `2019-12-23T12:40:16`
+##
+
+**milesguo** 海南陵水200余栋别墅遭政府拆除，业主欲哭无泪！中共到底玩什么把戏？<br>[https://gnews.org/zh-hans/61209/](https://gnews.org/zh-hans/61209/ "https://gnews.org/zh-hans/61209/")
+
+[https://www.guo.media/posts/262193](https://www.guo.media/posts/262193) `2019-12-23T12:40:19`
+##
+
+**milesguo** 文字版2019年12月21日文贵报平安:谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机<br>[https://gnews.org/zh-hans/61336/](https://gnews.org/zh-hans/61336/ "https://gnews.org/zh-hans/61336/")
+
+[https://www.guo.media/posts/262191](https://www.guo.media/posts/262191) `2019-12-23T12:40:21`
+##
+
+**milesguo** 2019年12月22日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/61335/](https://gnews.org/zh-hans/61335/ "https://gnews.org/zh-hans/61335/")
+
+[https://www.guo.media/posts/262190](https://www.guo.media/posts/262190) `2019-12-23T12:40:24`
+##
+
 **milesguo** 中共国工厂涉嫌“强制”犯人从事生产<br>[https://gnews.org/zh-hans/61377/](https://gnews.org/zh-hans/61377/ "https://gnews.org/zh-hans/61377/")
 
 [https://www.guo.media/posts/262177](https://www.guo.media/posts/262177) `2019-12-23T09:55:11`
