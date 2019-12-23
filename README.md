@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong Protesters Are Declaring ‘I Won’t Kill Myself’ Just in Case They Disappear<br>[https://gnews.org/61439/](https://gnews.org/61439/ "https://gnews.org/61439/")
+
+[https://www.guo.media/posts/262236](https://www.guo.media/posts/262236) `2019-12-23T17:25:10`
+##
+
+**milesguo** 看重播：12月23日郭文贵先生直播提醒香港同胞一定不要被共产党的阴谋诡计分散人心<br>[https://gnews.org/zh-hans/61533/](https://gnews.org/zh-hans/61533/ "https://gnews.org/zh-hans/61533/")
+
+[https://www.guo.media/posts/262234](https://www.guo.media/posts/262234) `2019-12-23T17:25:13`
+##
+
 **milesguo** How Hong Kong police deliberately attack ordinary citizens？<br>[https://gnews.org/61149/](https://gnews.org/61149/ "https://gnews.org/61149/")
 
 [https://www.guo.media/posts/262232](https://www.guo.media/posts/262232) `2019-12-23T17:10:11`
