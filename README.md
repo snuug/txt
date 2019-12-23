@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 亲爱的战友们！GNews用户们！圣诞节快乐！<br>[https://gnews.org/zh-hans/61309/](https://gnews.org/zh-hans/61309/ "https://gnews.org/zh-hans/61309/")
+
+[https://www.guo.media/posts/262165](https://www.guo.media/posts/262165) `2019-12-23T07:55:10`
+##
+
+**milesguo** 大外宣！助排华！多阴险！<br>[https://gnews.org/zh-hans/61296/](https://gnews.org/zh-hans/61296/ "https://gnews.org/zh-hans/61296/")
+
+[https://www.guo.media/posts/262164](https://www.guo.media/posts/262164) `2019-12-23T07:55:13`
+##
+
+**milesguo** 中共延长妇女退休年龄等于每年万亿级的红利<br>[https://gnews.org/zh-hans/61278/](https://gnews.org/zh-hans/61278/ "https://gnews.org/zh-hans/61278/")
+
+[https://www.guo.media/posts/262163](https://www.guo.media/posts/262163) `2019-12-23T07:55:16`
+##
+
 **milesguo** 美国海军时报警告世界，如果你寻求与中共和平相处，那就准备战争！<br>[https://gnews.org/zh-hans/61266/](https://gnews.org/zh-hans/61266/ "https://gnews.org/zh-hans/61266/")
 
 [https://www.guo.media/posts/262156](https://www.guo.media/posts/262156) `2019-12-23T07:10:10`
