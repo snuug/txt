@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “文贵先生花费75万律师费与郭宝胜打10万欺诈官司”之我见<br>[https://gnews.org/zh-hans/61116/](https://gnews.org/zh-hans/61116/ "https://gnews.org/zh-hans/61116/")
+
+[https://www.guo.media/posts/262123](https://www.guo.media/posts/262123) `2019-12-23T03:10:10`
+##
+
 **milesguo** 韭菜大荟萃！鲜为人知的正和岛上的大佬们<br>[https://gnews.org/zh-hans/60311/](https://gnews.org/zh-hans/60311/ "https://gnews.org/zh-hans/60311/")
 
 [https://www.guo.media/posts/262117](https://www.guo.media/posts/262117) `2019-12-23T01:55:10`
