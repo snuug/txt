@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月22日 美国政要推文精选<br>[https://gnews.org/zh-hans/61167/](https://gnews.org/zh-hans/61167/ "https://gnews.org/zh-hans/61167/")
+
+[https://www.guo.media/posts/262141](https://www.guo.media/posts/262141) `2019-12-23T05:10:10`
+##
+
+**milesguo** 面具先生：「有图有真相」川普总统被弹劾背后的玄机是什么？<br>[https://gnews.org/zh-hans/61148/](https://gnews.org/zh-hans/61148/ "https://gnews.org/zh-hans/61148/")
+
+[https://www.guo.media/posts/262139](https://www.guo.media/posts/262139) `2019-12-23T05:10:13`
+##
+
 **milesguo** “文贵先生花费75万律师费与郭宝胜打10万欺诈官司”之我见<br>[https://gnews.org/zh-hans/61116/](https://gnews.org/zh-hans/61116/ "https://gnews.org/zh-hans/61116/")
 
 [https://www.guo.media/posts/262123](https://www.guo.media/posts/262123) `2019-12-23T03:10:10`
