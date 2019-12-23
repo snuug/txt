@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 爆料革命的本根——爱！<br>[https://gnews.org/zh-hans/61233/](https://gnews.org/zh-hans/61233/ "https://gnews.org/zh-hans/61233/")
+
+[https://www.guo.media/posts/262151](https://www.guo.media/posts/262151) `2019-12-23T06:10:10`
+##
+
+**milesguo** 中共解决“三农”问题的骗局<br>[https://gnews.org/zh-hans/61193/](https://gnews.org/zh-hans/61193/ "https://gnews.org/zh-hans/61193/")
+
+[https://www.guo.media/posts/262150](https://www.guo.media/posts/262150) `2019-12-23T06:10:13`
+##
+
 **milesguo** 12月22日 美国政要推文精选<br>[https://gnews.org/zh-hans/61167/](https://gnews.org/zh-hans/61167/ "https://gnews.org/zh-hans/61167/")
 
 [https://www.guo.media/posts/262141](https://www.guo.media/posts/262141) `2019-12-23T05:10:10`
