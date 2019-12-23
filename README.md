@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Denial, Rebuttal and Attacks Became Routine at Chinese Foreign Ministry Spokesperson’s Press Conference<br>[https://gnews.org/61505/](https://gnews.org/61505/ "https://gnews.org/61505/")
+
+[https://www.guo.media/posts/262258](https://www.guo.media/posts/262258) `2019-12-23T23:10:11`
+##
+
+**milesguo** China’s city-building and Russia’s oil-drilling in the South China Sea<br>[https://gnews.org/61392/](https://gnews.org/61392/ "https://gnews.org/61392/") 
+
+[https://www.guo.media/posts/262257](https://www.guo.media/posts/262257) `2019-12-23T23:10:14`
+##
+
+**milesguo** Geng Shuang urged the US to “get its own house in order”<br>[https://gnews.org/61534/](https://gnews.org/61534/ "https://gnews.org/61534/")
+
+[https://www.guo.media/posts/262256](https://www.guo.media/posts/262256) `2019-12-23T23:10:16`
+##
+
 **milesguo** HK Movement-Supporting Restaurant Provides New Year’s Feast For Free<br>[https://gnews.org/61490/](https://gnews.org/61490/ "https://gnews.org/61490/")
 
 [https://www.guo.media/posts/262238](https://www.guo.media/posts/262238) `2019-12-23T17:40:10`
