@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Espionage and Spycraft, The CCP’s Global Disinformation Warfare Apparatus<br>[https://gnews.org/61411/](https://gnews.org/61411/ "https://gnews.org/61411/")
+
+[https://www.guo.media/posts/262231](https://www.guo.media/posts/262231) `2019-12-23T16:55:13`
+##
+
 **milesguo** 12月23号：尊敬的战友们好🙏🙏🙏文贵会在40分钟左右保平安直播，一切都是刚刚开始！👉👉👉点击这里[https://gnews.org/zh-hans/](https://gnews.org/zh-hans/ "https://gnews.org/zh-hans/")
 
 [https://www.guo.media/posts/262220](https://www.guo.media/posts/262220) `2019-12-23T16:10:10`
