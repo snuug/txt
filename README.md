@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 12月23日 美国政要推特精选<br>[https://gnews.org/zh-hans/62183/](https://gnews.org/zh-hans/62183/ "https://gnews.org/zh-hans/62183/")
+
+[https://www.guo.media/posts/262351](https://www.guo.media/posts/262351) `2019-12-24T08:40:10`
+##
+
+**milesguo** 中国人文明、理性、有血性地抗争中共“驭民”<br>[https://gnews.org/zh-hans/62112/](https://gnews.org/zh-hans/62112/ "https://gnews.org/zh-hans/62112/")
+
+[https://www.guo.media/posts/262350](https://www.guo.media/posts/262350) `2019-12-24T08:40:13`
+##
+
+**milesguo** 当真理被邪教绑架，能咬牙立住就是胜利<br>[https://gnews.org/zh-hans/62099/](https://gnews.org/zh-hans/62099/ "https://gnews.org/zh-hans/62099/")
+
+[https://www.guo.media/posts/262349](https://www.guo.media/posts/262349) `2019-12-24T08:40:15`
+##
+
+**milesguo** 1982年圣诞节里根总统在白宫为孩子们读耶稣的故事<br>[https://gnews.org/zh-hans/61979/](https://gnews.org/zh-hans/61979/ "https://gnews.org/zh-hans/61979/")
+
+[https://www.guo.media/posts/262347](https://www.guo.media/posts/262347) `2019-12-24T08:40:18`
+##
+
 **milesguo** 亲爱的战友们！GNews用户们！圣诞节快乐！<br>[https://gnews.org/zh-hans/61309/](https://gnews.org/zh-hans/61309/ "https://gnews.org/zh-hans/61309/")
 
 [https://www.guo.media/posts/262341](https://www.guo.media/posts/262341) `2019-12-24T08:10:11`
