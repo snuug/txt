@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 亲爱的战友们！GNews用户们！圣诞节快乐！<br>[https://gnews.org/zh-hans/61309/](https://gnews.org/zh-hans/61309/ "https://gnews.org/zh-hans/61309/")
+
+[https://www.guo.media/posts/262341](https://www.guo.media/posts/262341) `2019-12-24T08:10:11`
+##
+
 **milesguo** 2019年12月23日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/61982/](https://gnews.org/zh-hans/61982/ "https://gnews.org/zh-hans/61982/")
 
 [https://www.guo.media/posts/262309](https://www.guo.media/posts/262309) `2019-12-24T05:25:10`
