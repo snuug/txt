@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 从郭宝胜欺诈罪与诽谤罪成立看中共政权的必然灭亡<br>[https://gnews.org/zh-hans/61267/](https://gnews.org/zh-hans/61267/ "https://gnews.org/zh-hans/61267/")
+
+[https://www.guo.media/posts/262301](https://www.guo.media/posts/262301) `2019-12-24T04:55:11`
+##
+
+**milesguo** China: A man arrested for making complaints to local police on WeChat<br>[https://gnews.org/61839/](https://gnews.org/61839/ "https://gnews.org/61839/")
+
+[https://www.guo.media/posts/262300](https://www.guo.media/posts/262300) `2019-12-24T04:55:14`
+##
+
 **milesguo** 中共将完善居住权制度规定,何为人死房子归党？<br>[https://gnews.org/zh-hans/61463/](https://gnews.org/zh-hans/61463/ "https://gnews.org/zh-hans/61463/")
 
 [https://www.guo.media/posts/262296](https://www.guo.media/posts/262296) `2019-12-24T04:40:10`
