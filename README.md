@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Macau Cybersecurity Law Comes Into Effect; Mandatory Mobile Phones Registration Now Required<br>[https://gnews.org/62068/](https://gnews.org/62068/ "https://gnews.org/62068/")
+
+[https://www.guo.media/posts/262449](https://www.guo.media/posts/262449) `2019-12-24T18:25:12`
+##
+
 **milesguo** 中国人是中共的“活体器官库”和“外汇器官库”<br>[https://gnews.org/zh-hans/62181/](https://gnews.org/zh-hans/62181/ "https://gnews.org/zh-hans/62181/")
 
 [https://www.guo.media/posts/262441](https://www.guo.media/posts/262441) `2019-12-24T16:55:11`
