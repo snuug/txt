@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月24号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵马上开始报平安直播，一切都是刚刚开始！观看直播请点击👉👉👉[https://gnews.org/62174/](https://gnews.org/62174/ "https://gnews.org/62174/")
+
+[https://www.guo.media/posts/262408](https://www.guo.media/posts/262408) `2019-12-24T15:55:10`
+##
+
 **milesguo** Miles Guo: Wang Qishan’s four principles, use Macao to disintegrate Hong Kong’s different parties<br>[https://gnews.org/62174/](https://gnews.org/62174/ "https://gnews.org/62174/")
 
 [https://www.guo.media/posts/262396](https://www.guo.media/posts/262396) `2019-12-24T14:40:11`
