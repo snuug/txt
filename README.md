@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【翻譯】<br>中國人正在拒絕執政黨—共產黨<br>[https://spark.adobe.com/page/phw0FpnEDeSkn/](https://spark.adobe.com/page/phw0FpnEDeSkn/ "https://spark.adobe.com/page/phw0FpnEDeSkn/")<br>【戰鷹團】
+
+[https://www.guo.media/posts/262462](https://www.guo.media/posts/262462) `2019-12-24T23:10:10`
+##
+
 **milesguo** The Farm: NYTimes used for Disinformation Warfare<br>[https://gnews.org/62700/](https://gnews.org/62700/ "https://gnews.org/62700/")
 
 [https://www.guo.media/posts/262454](https://www.guo.media/posts/262454) `2019-12-24T21:25:10`
