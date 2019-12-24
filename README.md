@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共将完善居住权制度规定,何为人死房子归党？<br>[https://gnews.org/zh-hans/61463/](https://gnews.org/zh-hans/61463/ "https://gnews.org/zh-hans/61463/")
+
+[https://www.guo.media/posts/262296](https://www.guo.media/posts/262296) `2019-12-24T04:40:10`
+##
+
 **milesguo** 如何看待陈峰仁波切在哈佛演讲的标本意义<br>[https://gnews.org/zh-hans/61646/](https://gnews.org/zh-hans/61646/ "https://gnews.org/zh-hans/61646/")
 
 [https://www.guo.media/posts/262293](https://www.guo.media/posts/262293) `2019-12-24T04:25:11`
