@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 中共灭！共享尊严体面生活…<br>[https://gnews.org/zh-hans/61942/](https://gnews.org/zh-hans/61942/ "https://gnews.org/zh-hans/61942/")
+
+[https://www.guo.media/posts/262381](https://www.guo.media/posts/262381) `2019-12-24T13:10:10`
+##
+
+**milesguo** 星火同盟被封不灭仍可燎原<br>[https://gnews.org/zh-hans/62002/](https://gnews.org/zh-hans/62002/ "https://gnews.org/zh-hans/62002/")
+
+[https://www.guo.media/posts/262380](https://www.guo.media/posts/262380) `2019-12-24T13:10:13`
+##
+
+**milesguo** 文字版2019年12月22日文贵在亚利桑那州凤凰城报平安<br>[https://gnews.org/zh-hans/62260/](https://gnews.org/zh-hans/62260/ "https://gnews.org/zh-hans/62260/")
+
+[https://www.guo.media/posts/262379](https://www.guo.media/posts/262379) `2019-12-24T13:10:15`
+##
+
 **milesguo**  备忘录：2019年失踪的中国活动人士<br>[https://gnews.org/zh-hans/62304/](https://gnews.org/zh-hans/62304/ "https://gnews.org/zh-hans/62304/")
 
 [https://www.guo.media/posts/262371](https://www.guo.media/posts/262371) `2019-12-24T11:55:10`
