@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 美国国务院发言人圣诞节致词<br>[https://gnews.org/zh-hans/62643/](https://gnews.org/zh-hans/62643/ "https://gnews.org/zh-hans/62643/")
+
+[https://www.guo.media/posts/262473](https://www.guo.media/posts/262473) `2019-12-24T23:55:10`
+##
+
+**milesguo** 广播：2019/12/24郭文贵先生直播 中共大肆杀狗真相竟是因为迷信！<br>[https://gnews.org/zh-hans/62618/](https://gnews.org/zh-hans/62618/ "https://gnews.org/zh-hans/62618/")
+
+[https://www.guo.media/posts/262472](https://www.guo.media/posts/262472) `2019-12-24T23:55:13`
+##
+
+**milesguo** 黑警为掩盖暴行，对记者大打出手<br>[https://gnews.org/zh-hans/62603/](https://gnews.org/zh-hans/62603/ "https://gnews.org/zh-hans/62603/")
+
+[https://www.guo.media/posts/262471](https://www.guo.media/posts/262471) `2019-12-24T23:55:15`
+##
+
+**milesguo** 平安夜突发 山东威海大庆路59号海林依景强拆事件<br>[https://gnews.org/zh-hans/62455/](https://gnews.org/zh-hans/62455/ "https://gnews.org/zh-hans/62455/")
+
+[https://www.guo.media/posts/262470](https://www.guo.media/posts/262470) `2019-12-24T23:55:18`
+##
+
+**milesguo** 这个冬天有些冷，这个年关有些紧！<br>[https://gnews.org/zh-hans/62535/](https://gnews.org/zh-hans/62535/ "https://gnews.org/zh-hans/62535/")
+
+[https://www.guo.media/posts/262468](https://www.guo.media/posts/262468) `2019-12-24T23:55:20`
+##
+
 **milesguo** 看重播：12月24日郭文贵先生报平安直播，王岐山迷信生肖相冲掀起杀狗运动<br>[https://gnews.org/zh-hans/62855/](https://gnews.org/zh-hans/62855/ "https://gnews.org/zh-hans/62855/")
 
 [https://www.guo.media/posts/262467](https://www.guo.media/posts/262467) `2019-12-24T23:40:10`
