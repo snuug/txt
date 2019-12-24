@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国人是中共的“活体器官库”和“外汇器官库”<br>[https://gnews.org/zh-hans/62181/](https://gnews.org/zh-hans/62181/ "https://gnews.org/zh-hans/62181/")
+
+[https://www.guo.media/posts/262441](https://www.guo.media/posts/262441) `2019-12-24T16:55:11`
+##
+
 **milesguo** 刚刚！香港年轻人因躲避黑警抓捕意外坠楼！<br>[https://gnews.org/zh-hans/62451/](https://gnews.org/zh-hans/62451/ "https://gnews.org/zh-hans/62451/")
 
 [https://www.guo.media/posts/262423](https://www.guo.media/posts/262423) `2019-12-24T16:40:10`
