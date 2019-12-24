@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 如何看待陈峰仁波切在哈佛演讲的标本意义<br>[https://gnews.org/zh-hans/61646/](https://gnews.org/zh-hans/61646/ "https://gnews.org/zh-hans/61646/")
+
+[https://www.guo.media/posts/262293](https://www.guo.media/posts/262293) `2019-12-24T04:25:11`
+##
+
+**milesguo** 中共安委会“督查”只会造成更多事故<br>[https://gnews.org/zh-hans/61631/](https://gnews.org/zh-hans/61631/ "https://gnews.org/zh-hans/61631/")
+
+[https://www.guo.media/posts/262291](https://www.guo.media/posts/262291) `2019-12-24T04:25:13`
+##
+
+**milesguo** 从历史上中国的第一次全民直选谈中国人民的民主<br>[https://gnews.org/zh-hans/61620/](https://gnews.org/zh-hans/61620/ "https://gnews.org/zh-hans/61620/")
+
+[https://www.guo.media/posts/262290](https://www.guo.media/posts/262290) `2019-12-24T04:25:16`
+##
+
 **milesguo** 孔子学院的真相！欧洲再出手灭共<br>[https://gnews.org/zh-hans/61567/](https://gnews.org/zh-hans/61567/ "https://gnews.org/zh-hans/61567/")
 
 [https://www.guo.media/posts/262289](https://www.guo.media/posts/262289) `2019-12-24T04:10:10`
