@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看重播：12月24日郭文贵先生报平安直播，王岐山迷信生肖相冲掀起杀狗运动<br>[https://gnews.org/zh-hans/62855/](https://gnews.org/zh-hans/62855/ "https://gnews.org/zh-hans/62855/")
+
+[https://www.guo.media/posts/262467](https://www.guo.media/posts/262467) `2019-12-24T23:40:10`
+##
+
 **milesguo** 【翻譯】<br>中國人正在拒絕執政黨—共產黨<br>[https://spark.adobe.com/page/phw0FpnEDeSkn/](https://spark.adobe.com/page/phw0FpnEDeSkn/ "https://spark.adobe.com/page/phw0FpnEDeSkn/")<br>【戰鷹團】
 
 [https://www.guo.media/posts/262462](https://www.guo.media/posts/262462) `2019-12-24T23:10:10`
