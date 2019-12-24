@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: NYTimes used for Disinformation Warfare<br>[https://gnews.org/62700/](https://gnews.org/62700/ "https://gnews.org/62700/")
+
+[https://www.guo.media/posts/262454](https://www.guo.media/posts/262454) `2019-12-24T21:25:10`
+##
+
 **milesguo** Macau Cybersecurity Law Comes Into Effect; Mandatory Mobile Phones Registration Now Required<br>[https://gnews.org/62068/](https://gnews.org/62068/ "https://gnews.org/62068/")
 
 [https://www.guo.media/posts/262449](https://www.guo.media/posts/262449) `2019-12-24T18:25:12`
