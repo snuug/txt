@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo**  备忘录：2019年失踪的中国活动人士<br>[https://gnews.org/zh-hans/62304/](https://gnews.org/zh-hans/62304/ "https://gnews.org/zh-hans/62304/")
+
+[https://www.guo.media/posts/262371](https://www.guo.media/posts/262371) `2019-12-24T11:55:10`
+##
+
+**milesguo** 金融时报2019年度语: Be Water像水一样<br>[https://gnews.org/zh-hans/62290/](https://gnews.org/zh-hans/62290/ "https://gnews.org/zh-hans/62290/")
+
+[https://www.guo.media/posts/262370](https://www.guo.media/posts/262370) `2019-12-24T11:55:13`
+##
+
 **milesguo** 12月23日 美国政要推特精选<br>[https://gnews.org/zh-hans/62183/](https://gnews.org/zh-hans/62183/ "https://gnews.org/zh-hans/62183/")
 
 [https://www.guo.media/posts/262351](https://www.guo.media/posts/262351) `2019-12-24T08:40:10`
