@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Wang Qishan’s four principles, use Macao to disintegrate Hong Kong’s different parties<br>[https://gnews.org/62174/](https://gnews.org/62174/ "https://gnews.org/62174/")
+
+[https://www.guo.media/posts/262396](https://www.guo.media/posts/262396) `2019-12-24T14:40:11`
+##
+
+**milesguo** The Farm: The CCP’s Treatment of Dogs<br>[https://gnews.org/62101/](https://gnews.org/62101/ "https://gnews.org/62101/")
+
+[https://www.guo.media/posts/262395](https://www.guo.media/posts/262395) `2019-12-24T14:40:13`
+##
+
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/23/2019<br>[https://gnews.org/61968/](https://gnews.org/61968/ "https://gnews.org/61968/")
+
+[https://www.guo.media/posts/262394](https://www.guo.media/posts/262394) `2019-12-24T14:40:16`
+##
+
+**milesguo** Brother Rain interprets CCP’s front-page news, Dec 23<br>[https://gnews.org/61879/](https://gnews.org/61879/ "https://gnews.org/61879/")
+
+[https://www.guo.media/posts/262393](https://www.guo.media/posts/262393) `2019-12-24T14:40:20`
+##
+
+**milesguo** 中共为何甘冒天下之大不韪伪造韩国总统的香港新疆评论<br>[https://gnews.org/zh-hans/62426/](https://gnews.org/zh-hans/62426/ "https://gnews.org/zh-hans/62426/")
+
+[https://www.guo.media/posts/262392](https://www.guo.media/posts/262392) `2019-12-24T14:40:22`
+##
+
+**milesguo** 驻港戒严部队已经布控新城市广场<br>[https://gnews.org/zh-hans/62410/](https://gnews.org/zh-hans/62410/ "https://gnews.org/zh-hans/62410/")
+
+[https://www.guo.media/posts/262391](https://www.guo.media/posts/262391) `2019-12-24T14:40:25`
+##
+
 **milesguo** 香港葵芳连侬墙隧道文宣更新引路人打卡<br>[https://gnews.org/zh-hans/62330/](https://gnews.org/zh-hans/62330/ "https://gnews.org/zh-hans/62330/")
 
 [https://www.guo.media/posts/262383](https://www.guo.media/posts/262383) `2019-12-24T13:25:11`
