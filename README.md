@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年12月23日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/61982/](https://gnews.org/zh-hans/61982/ "https://gnews.org/zh-hans/61982/")
+
+[https://www.guo.media/posts/262309](https://www.guo.media/posts/262309) `2019-12-24T05:25:10`
+##
+
+**milesguo** 12月22日香港要闻：内地生无惧中共打压坚持与港人同行，各行业筹组新工会对抗不公平的制度<br>[https://gnews.org/zh-hans/61656/](https://gnews.org/zh-hans/61656/ "https://gnews.org/zh-hans/61656/")
+
+[https://www.guo.media/posts/262308](https://www.guo.media/posts/262308) `2019-12-24T05:25:14`
+##
+
 **milesguo** 从郭宝胜欺诈罪与诽谤罪成立看中共政权的必然灭亡<br>[https://gnews.org/zh-hans/61267/](https://gnews.org/zh-hans/61267/ "https://gnews.org/zh-hans/61267/")
 
 [https://www.guo.media/posts/262301](https://www.guo.media/posts/262301) `2019-12-24T04:55:11`
