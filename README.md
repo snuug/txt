@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** CCP Regime Determined to Ease Sanctions on North Korea<br>[https://gnews.org/62459/](https://gnews.org/62459/ "https://gnews.org/62459/")
+
+[https://www.guo.media/posts/262583](https://www.guo.media/posts/262583) `2019-12-25T08:10:10`
+##
+
+**milesguo** Abe visits China, Beijing pressures Japan to sign RCEP to survive trade war<br>[https://gnews.org/62630/](https://gnews.org/62630/ "https://gnews.org/62630/")
+
+[https://www.guo.media/posts/262582](https://www.guo.media/posts/262582) `2019-12-25T08:10:13`
+##
+
 **milesguo** 警惕中共在金融市场谋划一场掠夺大戏<br>[https://gnews.org/zh-hans/63229/](https://gnews.org/zh-hans/63229/ "https://gnews.org/zh-hans/63229/")
 
 [https://www.guo.media/posts/262562](https://www.guo.media/posts/262562) `2019-12-25T06:25:10`
