@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 12月25日：尊敬的战友们好……文贵将在半小时内报平安直播！
+
+[https://www.guo.media/posts/262639](https://www.guo.media/posts/262639) `2019-12-25T16:10:10`
+##
+
+**milesguo** NYT is an onlooker when facing darkness, while the West waking up to the communist party<br>[https://gnews.org/63178/](https://gnews.org/63178/ "https://gnews.org/63178/")
+
+[https://www.guo.media/posts/262638](https://www.guo.media/posts/262638) `2019-12-25T16:10:13`
+##
+
+**milesguo** December 24, Posters on HK Protest<br>[https://gnews.org/62761/](https://gnews.org/62761/ "https://gnews.org/62761/")
+
+[https://www.guo.media/posts/262637](https://www.guo.media/posts/262637) `2019-12-25T16:10:16`
+##
+
+**milesguo** 北大方正港交所申请7档境外债券停牌 获国有坏帐银行信达输血80亿人民币 中国银行系统恐将雪上加霜<br>[https://gnews.org/zh-hans/63616/](https://gnews.org/zh-hans/63616/ "https://gnews.org/zh-hans/63616/")
+
+[https://www.guo.media/posts/262636](https://www.guo.media/posts/262636) `2019-12-25T16:10:18`
+##
+
 **milesguo** <br>人脸识别，要从娃娃抓起！<br>[https://gnews.org/zh-hans/63261/](https://gnews.org/zh-hans/63261/ "https://gnews.org/zh-hans/63261/")
 
 [https://www.guo.media/posts/262633](https://www.guo.media/posts/262633) `2019-12-25T15:10:10`
