@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 警惕中共在金融市场谋划一场掠夺大戏<br>[https://gnews.org/zh-hans/63229/](https://gnews.org/zh-hans/63229/ "https://gnews.org/zh-hans/63229/")
+
+[https://www.guo.media/posts/262562](https://www.guo.media/posts/262562) `2019-12-25T06:25:10`
+##
+
+**milesguo** 为狗而移民！<br>[https://gnews.org/zh-hans/63230/](https://gnews.org/zh-hans/63230/ "https://gnews.org/zh-hans/63230/")
+
+[https://www.guo.media/posts/262561](https://www.guo.media/posts/262561) `2019-12-25T06:25:13`
+##
+
 **milesguo** 2019年末，中国人依然在讨薪的路上狂奔！<br>[https://gnews.org/zh-hans/62871/](https://gnews.org/zh-hans/62871/ "https://gnews.org/zh-hans/62871/")
 
 [https://www.guo.media/posts/262559](https://www.guo.media/posts/262559) `2019-12-25T06:10:10`
