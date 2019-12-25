@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港手足一定要认清王歧山的四原则——看郭先生12月23日谈王岐山布局香港有感<br>[https://gnews.org/zh-hans/63028/](https://gnews.org/zh-hans/63028/ "https://gnews.org/zh-hans/63028/")
+
+[https://www.guo.media/posts/262504](https://www.guo.media/posts/262504) `2019-12-25T02:55:10`
+##
+
 **milesguo** 饥荒故事——饥荒离我们有多近<br>[https://gnews.org/zh-hans/62984/](https://gnews.org/zh-hans/62984/ "https://gnews.org/zh-hans/62984/")
 
 [https://www.guo.media/posts/262501](https://www.guo.media/posts/262501) `2019-12-25T02:25:10`
