@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong Police Publicly Calling Citizens Cockroaches<br>[https://gnews.org/63579/](https://gnews.org/63579/ "https://gnews.org/63579/")
+
+[https://www.guo.media/posts/262680](https://www.guo.media/posts/262680) `2019-12-25T22:10:12`
+##
+
+**milesguo** [China] Two More Forced Demolitions within a Week<br>[https://gnews.org/63592/](https://gnews.org/63592/ "https://gnews.org/63592/")
+
+[https://www.guo.media/posts/262679](https://www.guo.media/posts/262679) `2019-12-25T22:10:16`
+##
+
 **milesguo** Student Arrestee Feels Warm: Receiving Citizens’ Support in Christmas Card<br>[https://gnews.org/63186/](https://gnews.org/63186/ "https://gnews.org/63186/")
 
 [https://www.guo.media/posts/262677](https://www.guo.media/posts/262677) `2019-12-25T21:25:12`
