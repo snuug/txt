@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 饥荒故事——饥荒离我们有多近<br>[https://gnews.org/zh-hans/62984/](https://gnews.org/zh-hans/62984/ "https://gnews.org/zh-hans/62984/")
+
+[https://www.guo.media/posts/262501](https://www.guo.media/posts/262501) `2019-12-25T02:25:10`
+##
+
 **milesguo** 旺角男子从高处堕下的目击者陈述； 警方涉嫌介入<br>[https://gnews.org/zh-hans/62916/](https://gnews.org/zh-hans/62916/ "https://gnews.org/zh-hans/62916/")
 
 [https://www.guo.media/posts/262496](https://www.guo.media/posts/262496) `2019-12-25T01:40:10`
