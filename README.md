@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** <br>人脸识别，要从娃娃抓起！<br>[https://gnews.org/zh-hans/63261/](https://gnews.org/zh-hans/63261/ "https://gnews.org/zh-hans/63261/")
+
+[https://www.guo.media/posts/262633](https://www.guo.media/posts/262633) `2019-12-25T15:10:10`
+##
+
+**milesguo** 苹果在人权立场的前后不一致，证明自由民主不是虚伪和廉价的<br>[https://gnews.org/zh-hans/63330/](https://gnews.org/zh-hans/63330/ "https://gnews.org/zh-hans/63330/")
+
+[https://www.guo.media/posts/262632](https://www.guo.media/posts/262632) `2019-12-25T15:10:13`
+##
+
+**milesguo** <br>驻港戒严部队寻衅滋事背后攻击路人<br>[https://gnews.org/zh-hans/63487/](https://gnews.org/zh-hans/63487/ "https://gnews.org/zh-hans/63487/")
+
+[https://www.guo.media/posts/262630](https://www.guo.media/posts/262630) `2019-12-25T15:10:17`
+##
+
+**milesguo** 12月24日 美国政要推文精选<br>[https://gnews.org/zh-hans/63361/](https://gnews.org/zh-hans/63361/ "https://gnews.org/zh-hans/63361/")
+
+[https://www.guo.media/posts/262628](https://www.guo.media/posts/262628) `2019-12-25T15:10:20`
+##
+
+**milesguo** 意大利歌剧家史蒂芬诺·洛多拉在香港抗议现场上演意大利版“愿荣光归香港”<br>[https://gnews.org/zh-hans/63396/](https://gnews.org/zh-hans/63396/ "https://gnews.org/zh-hans/63396/")
+
+[https://www.guo.media/posts/262627](https://www.guo.media/posts/262627) `2019-12-25T15:10:23`
+##
+
 **milesguo** 新西兰橄榄球明星公开反对中共新疆集中营<br>[https://gnews.org/zh-hans/63565/](https://gnews.org/zh-hans/63565/ "https://gnews.org/zh-hans/63565/")
 
 [https://www.guo.media/posts/262621](https://www.guo.media/posts/262621) `2019-12-25T13:40:10`
