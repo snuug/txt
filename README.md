@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: The superstition of the CCP officialdom. Why did Wang Qishan order to kill all the dogs？<br>[https://gnews.org/62859/](https://gnews.org/62859/ "https://gnews.org/62859/")
+
+[https://www.guo.media/posts/262586](https://www.guo.media/posts/262586) `2019-12-25T08:25:12`
+##
+
+**milesguo** “Sparking the Free World Afire” Rally in Hong Kong<br>[https://gnews.org/61851/](https://gnews.org/61851/ "https://gnews.org/61851/")
+
+[https://www.guo.media/posts/262584](https://www.guo.media/posts/262584) `2019-12-25T08:25:15`
+##
+
 **milesguo** CCP Regime Determined to Ease Sanctions on North Korea<br>[https://gnews.org/62459/](https://gnews.org/62459/ "https://gnews.org/62459/")
 
 [https://www.guo.media/posts/262583](https://www.guo.media/posts/262583) `2019-12-25T08:10:10`
