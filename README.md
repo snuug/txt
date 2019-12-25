@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2019/12/25郭先生连线卡丽熙女士<br>[https://gnews.org/zh-hans/63680/](https://gnews.org/zh-hans/63680/ "https://gnews.org/zh-hans/63680/")
+
+[https://www.guo.media/posts/262696](https://www.guo.media/posts/262696) `2019-12-25T23:25:10`
+##
+
+**milesguo** 《致敬香港》- 年轻学子们的抗争<br>[https://gnews.org/zh-hans/63677/](https://gnews.org/zh-hans/63677/ "https://gnews.org/zh-hans/63677/")
+
+[https://www.guo.media/posts/262695](https://www.guo.media/posts/262695) `2019-12-25T23:25:13`
+##
+
+**milesguo** 圣诞恐惧症！中共禁止基督徒举办圣诞聚会<br>[https://gnews.org/zh-hans/63594/](https://gnews.org/zh-hans/63594/ "https://gnews.org/zh-hans/63594/")
+
+[https://www.guo.media/posts/262693](https://www.guo.media/posts/262693) `2019-12-25T23:25:16`
+##
+
+**milesguo** 台湾「反渗透法」如照妖镜 照出一片红色阴影 国民党、亲民党均反对 蔡英文表示大家坐下来好好谈<br>[https://gnews.org/zh-hans/63642/](https://gnews.org/zh-hans/63642/ "https://gnews.org/zh-hans/63642/")
+
+[https://www.guo.media/posts/262692](https://www.guo.media/posts/262692) `2019-12-25T23:25:19`
+##
+
 **milesguo** December 25, Posters on HK Protest<br>[https://gnews.org/63848/](https://gnews.org/63848/ "https://gnews.org/63848/")
 
 [https://www.guo.media/posts/262684](https://www.guo.media/posts/262684) `2019-12-25T22:40:10`
