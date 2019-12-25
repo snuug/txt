@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Student Arrestee Feels Warm: Receiving Citizens’ Support in Christmas Card<br>[https://gnews.org/63186/](https://gnews.org/63186/ "https://gnews.org/63186/")
+
+[https://www.guo.media/posts/262677](https://www.guo.media/posts/262677) `2019-12-25T21:25:12`
+##
+
+**milesguo** [China] CCP Will Control All Passwords from Jan 1, 2020<br>[https://gnews.org/63483/](https://gnews.org/63483/ "https://gnews.org/63483/")
+
+[https://www.guo.media/posts/262676](https://www.guo.media/posts/262676) `2019-12-25T21:25:15`
+##
+
+**milesguo** [China] Online English teacher dismissed for supporting Xinjiang<br>[https://gnews.org/63448/](https://gnews.org/63448/ "https://gnews.org/63448/")
+
+[https://www.guo.media/posts/262675](https://www.guo.media/posts/262675) `2019-12-25T21:25:18`
+##
+
+**milesguo** Italian opera singer Stefano Lodola performed Italian version of “Glory to Hong Kong”<br>[https://gnews.org/63341/](https://gnews.org/63341/ "https://gnews.org/63341/")
+
+[https://www.guo.media/posts/262674](https://www.guo.media/posts/262674) `2019-12-25T21:25:21`
+##
+
+**milesguo** HK Police Cause Terror Among Shoppers in Mongkok on Xmas Eve<br>[https://gnews.org/63221/](https://gnews.org/63221/ "https://gnews.org/63221/")
+
+[https://www.guo.media/posts/262673](https://www.guo.media/posts/262673) `2019-12-25T21:25:24`
+##
+
 **milesguo** 12月25日：尊敬的战友们好……文贵将在半小时内报平安直播！
 
 [https://www.guo.media/posts/262639](https://www.guo.media/posts/262639) `2019-12-25T16:10:10`
