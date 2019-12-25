@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** HK Police: We can judge citizens who “Cause Trouble” on Christmas’ Eve<br>[https://gnews.org/62237/](https://gnews.org/62237/ "https://gnews.org/62237/")
+
+[https://www.guo.media/posts/262486](https://www.guo.media/posts/262486) `2019-12-25T00:40:10`
+##
+
+**milesguo** Why New York Times Spoke ill of Steve Bannon One Day Before Christmas?<br>[https://gnews.org/62644/](https://gnews.org/62644/ "https://gnews.org/62644/")
+
+[https://www.guo.media/posts/262485](https://www.guo.media/posts/262485) `2019-12-25T00:40:12`
+##
+
 **milesguo** 美国国务院发言人圣诞节致词<br>[https://gnews.org/zh-hans/62643/](https://gnews.org/zh-hans/62643/ "https://gnews.org/zh-hans/62643/")
 
 [https://www.guo.media/posts/262473](https://www.guo.media/posts/262473) `2019-12-24T23:55:10`
