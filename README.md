@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国退役舰长发出警告：中共试射潜射导弹对和平构成威胁<br>[https://gnews.org/zh-hans/63360/](https://gnews.org/zh-hans/63360/ "https://gnews.org/zh-hans/63360/")
+
+[https://www.guo.media/posts/262594](https://www.guo.media/posts/262594) `2019-12-25T09:10:11`
+##
+
 **milesguo** Miles Guo: The superstition of the CCP officialdom. Why did Wang Qishan order to kill all the dogs？<br>[https://gnews.org/62859/](https://gnews.org/62859/ "https://gnews.org/62859/")
 
 [https://www.guo.media/posts/262586](https://www.guo.media/posts/262586) `2019-12-25T08:25:12`
