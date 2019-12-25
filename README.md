@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 这大国，究竟是谁的取款机？<br>[https://gnews.org/zh-hans/62376/](https://gnews.org/zh-hans/62376/ "https://gnews.org/zh-hans/62376/")
+
+[https://www.guo.media/posts/262510](https://www.guo.media/posts/262510) `2019-12-25T03:10:10`
+##
+
+**milesguo** GNEWS独家报道！天津翠金湖盛世园（美墅岛）70年大产权被强拆事件<br>[https://gnews.org/zh-hans/62909/](https://gnews.org/zh-hans/62909/ "https://gnews.org/zh-hans/62909/")
+
+[https://www.guo.media/posts/262508](https://www.guo.media/posts/262508) `2019-12-25T03:10:14`
+##
+
+**milesguo** 香港要闻：魔警恶行罄竹难书，中共极权倒行逆施，港共配合滥捕滥告；龙门冰室有情有义，冬至设宴关爱香港儿女<br>[https://gnews.org/zh-hans/63045/](https://gnews.org/zh-hans/63045/ "https://gnews.org/zh-hans/63045/")
+
+[https://www.guo.media/posts/262506](https://www.guo.media/posts/262506) `2019-12-25T03:10:16`
+##
+
+**milesguo** 比双修更恐怖的是，他们为什么要双修！<br>[https://gnews.org/zh-hans/62920/](https://gnews.org/zh-hans/62920/ "https://gnews.org/zh-hans/62920/")
+
+[https://www.guo.media/posts/262505](https://www.guo.media/posts/262505) `2019-12-25T03:10:19`
+##
+
 **milesguo** 香港手足一定要认清王歧山的四原则——看郭先生12月23日谈王岐山布局香港有感<br>[https://gnews.org/zh-hans/63028/](https://gnews.org/zh-hans/63028/ "https://gnews.org/zh-hans/63028/")
 
 [https://www.guo.media/posts/262504](https://www.guo.media/posts/262504) `2019-12-25T02:55:10`
