@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：国有企业经济指标加速恶化<br>[https://gnews.org/zh-hans/63698/](https://gnews.org/zh-hans/63698/ "https://gnews.org/zh-hans/63698/")
+
+[https://www.guo.media/posts/262698](https://www.guo.media/posts/262698) `2019-12-25T23:40:11`
+##
+
+**milesguo** 评新华社新闻—— “外方人士：美方粗暴干预香港事务造成恶劣国际影响”<br>[https://gnews.org/zh-hans/63299/](https://gnews.org/zh-hans/63299/ "https://gnews.org/zh-hans/63299/")
+
+[https://www.guo.media/posts/262697](https://www.guo.media/posts/262697) `2019-12-25T23:40:14`
+##
+
 **milesguo** 广播：2019/12/25郭先生连线卡丽熙女士<br>[https://gnews.org/zh-hans/63680/](https://gnews.org/zh-hans/63680/ "https://gnews.org/zh-hans/63680/")
 
 [https://www.guo.media/posts/262696](https://www.guo.media/posts/262696) `2019-12-25T23:25:10`
