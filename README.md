@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 25, Posters on HK Protest<br>[https://gnews.org/63848/](https://gnews.org/63848/ "https://gnews.org/63848/")
+
+[https://www.guo.media/posts/262684](https://www.guo.media/posts/262684) `2019-12-25T22:40:10`
+##
+
 **milesguo** CCP Deployed New Peacekeeping Infantry Battalion to S. Sudan to Carry Out UN missions<br>[https://gnews.org/63691/](https://gnews.org/63691/ "https://gnews.org/63691/")
 
 [https://www.guo.media/posts/262683](https://www.guo.media/posts/262683) `2019-12-25T22:25:10`
