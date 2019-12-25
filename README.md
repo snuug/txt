@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 2019年末，中国人依然在讨薪的路上狂奔！<br>[https://gnews.org/zh-hans/62871/](https://gnews.org/zh-hans/62871/ "https://gnews.org/zh-hans/62871/")
+
+[https://www.guo.media/posts/262559](https://www.guo.media/posts/262559) `2019-12-25T06:10:10`
+##
+
+**milesguo** “双修教宗”王岐山：你是不是疯了？<br>[https://gnews.org/zh-hans/63219/](https://gnews.org/zh-hans/63219/ "https://gnews.org/zh-hans/63219/")
+
+[https://www.guo.media/posts/262558](https://www.guo.media/posts/262558) `2019-12-25T06:10:13`
+##
+
+**milesguo** 平安夜不平安！黑警疯狂清场民众<br>[https://gnews.org/zh-hans/63152/](https://gnews.org/zh-hans/63152/ "https://gnews.org/zh-hans/63152/")
+
+[https://www.guo.media/posts/262557](https://www.guo.media/posts/262557) `2019-12-25T06:10:15`
+##
+
+**milesguo** 重庆男子烧中共“血旗”被判一年<br>[https://gnews.org/zh-hans/63138/](https://gnews.org/zh-hans/63138/ "https://gnews.org/zh-hans/63138/")
+
+[https://www.guo.media/posts/262556](https://www.guo.media/posts/262556) `2019-12-25T06:10:18`
+##
+
 **milesguo** 这大国，究竟是谁的取款机？<br>[https://gnews.org/zh-hans/62376/](https://gnews.org/zh-hans/62376/ "https://gnews.org/zh-hans/62376/")
 
 [https://www.guo.media/posts/262510](https://www.guo.media/posts/262510) `2019-12-25T03:10:10`
