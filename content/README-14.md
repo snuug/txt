@@ -13,6 +13,8 @@
 
 ## 頁面 14/22 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [22](/content/README-22.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180809-3627104687795521023.md)
+
 [文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180808-5918968027514942039.md)
 
 [文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/2018/07/20180725-7254204072739066791.md)
@@ -60,8 +62,6 @@
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180529-639277482984082138.md)
 
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
-
-[文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180525-5314910770568044153.md)
 
 
 ## 頁面 14/22 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [22](/content/README-22.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
