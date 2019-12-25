@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** CCP Deployed New Peacekeeping Infantry Battalion to S. Sudan to Carry Out UN missions<br>[https://gnews.org/63691/](https://gnews.org/63691/ "https://gnews.org/63691/")
+
+[https://www.guo.media/posts/262683](https://www.guo.media/posts/262683) `2019-12-25T22:25:10`
+##
+
+**milesguo** China bans Christmas gatherings, rewrites Bible<br>[https://gnews.org/63621/](https://gnews.org/63621/ "https://gnews.org/63621/")
+
+[https://www.guo.media/posts/262681](https://www.guo.media/posts/262681) `2019-12-25T22:25:12`
+##
+
 **milesguo** Hong Kong Police Publicly Calling Citizens Cockroaches<br>[https://gnews.org/63579/](https://gnews.org/63579/ "https://gnews.org/63579/")
 
 [https://www.guo.media/posts/262680](https://www.guo.media/posts/262680) `2019-12-25T22:10:12`
