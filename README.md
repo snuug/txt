@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 旺角男子从高处堕下的目击者陈述； 警方涉嫌介入<br>[https://gnews.org/zh-hans/62916/](https://gnews.org/zh-hans/62916/ "https://gnews.org/zh-hans/62916/")
+
+[https://www.guo.media/posts/262496](https://www.guo.media/posts/262496) `2019-12-25T01:40:10`
+##
+
+**milesguo** 2019年人权指数分析报告出炉，中国大陆排行垫底<br>[https://gnews.org/zh-hans/62349/](https://gnews.org/zh-hans/62349/ "https://gnews.org/zh-hans/62349/")
+
+[https://www.guo.media/posts/262495](https://www.guo.media/posts/262495) `2019-12-25T01:40:13`
+##
+
+**milesguo** 中国人！应站着去争诉而不是呆候压迫和灭亡<br>[https://gnews.org/zh-hans/62419/](https://gnews.org/zh-hans/62419/ "https://gnews.org/zh-hans/62419/")
+
+[https://www.guo.media/posts/262494](https://www.guo.media/posts/262494) `2019-12-25T01:40:15`
+##
+
 **milesguo** HK Police: We can judge citizens who “Cause Trouble” on Christmas’ Eve<br>[https://gnews.org/62237/](https://gnews.org/62237/ "https://gnews.org/62237/")
 
 [https://www.guo.media/posts/262486](https://www.guo.media/posts/262486) `2019-12-25T00:40:10`
