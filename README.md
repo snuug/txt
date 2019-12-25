@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 新西兰橄榄球明星公开反对中共新疆集中营<br>[https://gnews.org/zh-hans/63565/](https://gnews.org/zh-hans/63565/ "https://gnews.org/zh-hans/63565/")
+
+[https://www.guo.media/posts/262621](https://www.guo.media/posts/262621) `2019-12-25T13:40:10`
+##
+
 **milesguo** 美国退役舰长发出警告：中共试射潜射导弹对和平构成威胁<br>[https://gnews.org/zh-hans/63360/](https://gnews.org/zh-hans/63360/ "https://gnews.org/zh-hans/63360/")
 
 [https://www.guo.media/posts/262594](https://www.guo.media/posts/262594) `2019-12-25T09:10:11`
