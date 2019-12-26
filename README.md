@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 中共收割民营企业玩出新花样<br>[https://gnews.org/zh-hans/63994/](https://gnews.org/zh-hans/63994/ "https://gnews.org/zh-hans/63994/")
+
+[https://www.guo.media/posts/262717](https://www.guo.media/posts/262717) `2019-12-26T04:10:10`
+##
+
+**milesguo** 上海警方开枪处置事件中误伤的路人，孰之过？<br>[https://gnews.org/zh-hans/63993/](https://gnews.org/zh-hans/63993/ "https://gnews.org/zh-hans/63993/")
+
+[https://www.guo.media/posts/262716](https://www.guo.media/posts/262716) `2019-12-26T04:10:13`
+##
+
+**milesguo** 中国房地产泡沫的前世今生(海南)<br>[https://gnews.org/zh-hans/63967/](https://gnews.org/zh-hans/63967/ "https://gnews.org/zh-hans/63967/")
+
+[https://www.guo.media/posts/262715](https://www.guo.media/posts/262715) `2019-12-26T04:10:15`
+##
+
+**milesguo** 王岐山迷信属相！杀狗保党！保政权！中共70年执政！人畜共愤！<br>[https://gnews.org/zh-hans/63223/](https://gnews.org/zh-hans/63223/ "https://gnews.org/zh-hans/63223/")
+
+[https://www.guo.media/posts/262714](https://www.guo.media/posts/262714) `2019-12-26T04:10:19`
+##
+
+**milesguo** 香港要闻：和勇不分 重组工会 对抗极权。以「洗黑钱」为借口打压人道基金，实施「滥捕伎俩」打压抗争运动<br>[https://gnews.org/zh-hans/63958/](https://gnews.org/zh-hans/63958/ "https://gnews.org/zh-hans/63958/")
+
+[https://www.guo.media/posts/262713](https://www.guo.media/posts/262713) `2019-12-26T04:10:21`
+##
+
+**milesguo** 钱，女人和密码，统统上交听党的！<br>[https://gnews.org/zh-hans/63932/](https://gnews.org/zh-hans/63932/ "https://gnews.org/zh-hans/63932/")
+
+[https://www.guo.media/posts/262712](https://www.guo.media/posts/262712) `2019-12-26T04:10:24`
+##
+
 **milesguo** 2019年12月24日至25日平安夜驻港戒严部队抓捕示威者详细情况<br>[https://gnews.org/zh-hans/63744/](https://gnews.org/zh-hans/63744/ "https://gnews.org/zh-hans/63744/")
 
 [https://www.guo.media/posts/262711](https://www.guo.media/posts/262711) `2019-12-26T03:55:10`
