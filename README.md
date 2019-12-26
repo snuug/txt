@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 锦州银行董事长死亡事件<br>[https://gnews.org/zh-hans/64312/](https://gnews.org/zh-hans/64312/ "https://gnews.org/zh-hans/64312/")
+
+[https://www.guo.media/posts/262743](https://www.guo.media/posts/262743) `2019-12-26T07:40:10`
+##
+
+**milesguo** 试图走私美国“生物材料”出境，中共研究员被控<br>[https://gnews.org/zh-hans/64237/](https://gnews.org/zh-hans/64237/ "https://gnews.org/zh-hans/64237/")
+
+[https://www.guo.media/posts/262742](https://www.guo.media/posts/262742) `2019-12-26T07:40:13`
+##
+
 **milesguo** Popular Garment Stores and Restautants hit with Tear Gas Canisters on Xmas Day<br>[https://gnews.org/64214/](https://gnews.org/64214/ "https://gnews.org/64214/")
 
 [https://www.guo.media/posts/262738](https://www.guo.media/posts/262738) `2019-12-26T06:55:11`
