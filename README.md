@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** An uneasy atmosphere on Boxing Day in Hong Kong<br>[https://gnews.org/64658/](https://gnews.org/64658/ "https://gnews.org/64658/")
+
+[https://www.guo.media/posts/262831](https://www.guo.media/posts/262831) `2019-12-26T21:25:10`
+##
+
+**milesguo** HK Police Allegedly Retaliate by Searching and Detaining Civilian<br>[https://gnews.org/64311/](https://gnews.org/64311/ "https://gnews.org/64311/")
+
+[https://www.guo.media/posts/262830](https://www.guo.media/posts/262830) `2019-12-26T21:25:12`
+##
+
+**milesguo** A graffiti in the shape of Christmas tree<br>[https://gnews.org/64334/](https://gnews.org/64334/ "https://gnews.org/64334/")
+
+[https://www.guo.media/posts/262829](https://www.guo.media/posts/262829) `2019-12-26T21:25:15`
+##
+
+**milesguo** Chinese aircraft carrier sails through Taiwan Strait ahead of elections<br>[https://gnews.org/64540/](https://gnews.org/64540/ "https://gnews.org/64540/")
+
+[https://www.guo.media/posts/262828](https://www.guo.media/posts/262828) `2019-12-26T21:25:18`
+##
+
 **milesguo** Police Disregards Human Right of Arrested Civilians<br>[https://gnews.org/63931/](https://gnews.org/63931/ "https://gnews.org/63931/")
 
 [https://www.guo.media/posts/262827](https://www.guo.media/posts/262827) `2019-12-26T21:10:10`
