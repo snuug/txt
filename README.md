@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** China’s 34th rocket launch this year on Dec 27: a game-changer<br>[https://gnews.org/64681/](https://gnews.org/64681/ "https://gnews.org/64681/")
+
+[https://www.guo.media/posts/262836](https://www.guo.media/posts/262836) `2019-12-26T22:10:11`
+##
+
+**milesguo** If someone is forcing China into an opponent, China will be a qualified opponent, says Communist China’s Ministry of Defense<br>[https://gnews.org/64750/](https://gnews.org/64750/ "https://gnews.org/64750/")
+
+[https://www.guo.media/posts/262835](https://www.guo.media/posts/262835) `2019-12-26T22:10:14`
+##
+
 **milesguo** December 26, Posters on HK Protest<br>[https://gnews.org/64682/](https://gnews.org/64682/ "https://gnews.org/64682/")
 
 [https://www.guo.media/posts/262833](https://www.guo.media/posts/262833) `2019-12-26T21:40:10`
