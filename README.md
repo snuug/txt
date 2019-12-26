@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 宵禁之下的圣诞夜，没有平安的平安夜<br>[https://gnews.org/zh-hans/64491/](https://gnews.org/zh-hans/64491/ "https://gnews.org/zh-hans/64491/")
+
+[https://www.guo.media/posts/262792](https://www.guo.media/posts/262792) `2019-12-26T15:55:10`
+##
+
 **milesguo** Homeless affected by teargas: Resist anything that’s incorrect<br>[https://gnews.org/64259/](https://gnews.org/64259/ "https://gnews.org/64259/")
 
 [https://www.guo.media/posts/262791](https://www.guo.media/posts/262791) `2019-12-26T15:40:10`
