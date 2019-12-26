@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 圣诞节驻港戒严部队商场逮捕多人，暴力镇压中学生<br>[https://gnews.org/zh-hans/64546/](https://gnews.org/zh-hans/64546/ "https://gnews.org/zh-hans/64546/")
+
+[https://www.guo.media/posts/262800](https://www.guo.media/posts/262800) `2019-12-26T16:40:10`
+##
+
 **milesguo** 关于灭共导致美股崩盘姿势的推演<br>[https://gnews.org/zh-hans/63484/](https://gnews.org/zh-hans/63484/ "https://gnews.org/zh-hans/63484/")
 
 [https://www.guo.media/posts/262798](https://www.guo.media/posts/262798) `2019-12-26T16:25:11`
