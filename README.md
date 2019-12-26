@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 关于灭共导致美股崩盘姿势的推演<br>[https://gnews.org/zh-hans/63484/](https://gnews.org/zh-hans/63484/ "https://gnews.org/zh-hans/63484/")
+
+[https://www.guo.media/posts/262798](https://www.guo.media/posts/262798) `2019-12-26T16:25:11`
+##
+
+**milesguo** 看重播：12月26日郭文贵先生在凤凰城分享祈祷山美景，美国要战伊朗中俄，习王之战即将全面开始！<br>[https://gnews.org/zh-hans/64617/](https://gnews.org/zh-hans/64617/ "https://gnews.org/zh-hans/64617/")
+
+[https://www.guo.media/posts/262795](https://www.guo.media/posts/262795) `2019-12-26T16:25:14`
+##
+
+**milesguo** 这个世界会好吗？人民不需要自由<br>[https://gnews.org/zh-hans/64464/](https://gnews.org/zh-hans/64464/ "https://gnews.org/zh-hans/64464/")
+
+[https://www.guo.media/posts/262794](https://www.guo.media/posts/262794) `2019-12-26T16:25:16`
+##
+
 **milesguo** 宵禁之下的圣诞夜，没有平安的平安夜<br>[https://gnews.org/zh-hans/64491/](https://gnews.org/zh-hans/64491/ "https://gnews.org/zh-hans/64491/")
 
 [https://www.guo.media/posts/262792](https://www.guo.media/posts/262792) `2019-12-26T15:55:10`
