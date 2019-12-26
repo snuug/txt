@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月26日：衷心地感谢凤凰城Phoenix．所有的兄弟姐妹们！一切都是刚刚开始！
+
+[https://www.guo.media/posts/262820](https://www.guo.media/posts/262820) `2019-12-26T19:40:11`
+##
+
 **milesguo** 2019年12月27日郭文贵先生凤凰城直播摘要<br>[https://gnews.org/zh-hans/64731/](https://gnews.org/zh-hans/64731/ "https://gnews.org/zh-hans/64731/")
 
 [https://www.guo.media/posts/262812](https://www.guo.media/posts/262812) `2019-12-26T17:55:11`
