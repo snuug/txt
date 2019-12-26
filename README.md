@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Citizens Investigated for Revving his Motorcycle<br>[https://gnews.org/64284/](https://gnews.org/64284/ "https://gnews.org/64284/")
+
+[https://www.guo.media/posts/262822](https://www.guo.media/posts/262822) `2019-12-26T20:10:10`
+##
+
 **milesguo** 12月26日：衷心地感谢凤凰城Phoenix．所有的兄弟姐妹们！一切都是刚刚开始！
 
 [https://www.guo.media/posts/262820](https://www.guo.media/posts/262820) `2019-12-26T19:40:11`
