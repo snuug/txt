@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年12月27日郭文贵先生凤凰城直播摘要<br>[https://gnews.org/zh-hans/64731/](https://gnews.org/zh-hans/64731/ "https://gnews.org/zh-hans/64731/")
+
+[https://www.guo.media/posts/262812](https://www.guo.media/posts/262812) `2019-12-26T17:55:11`
+##
+
+**milesguo** 广播：2019/12/26郭文贵先生直播 中共经济正在崩溃 习王之战全面开启<br>[https://gnews.org/zh-hans/64628/](https://gnews.org/zh-hans/64628/ "https://gnews.org/zh-hans/64628/")
+
+[https://www.guo.media/posts/262810](https://www.guo.media/posts/262810) `2019-12-26T17:55:13`
+##
+
 **milesguo** 圣诞节驻港戒严部队商场逮捕多人，暴力镇压中学生<br>[https://gnews.org/zh-hans/64546/](https://gnews.org/zh-hans/64546/ "https://gnews.org/zh-hans/64546/")
 
 [https://www.guo.media/posts/262800](https://www.guo.media/posts/262800) `2019-12-26T16:40:10`
