@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共体制下14亿人即将裸奔—-《密码法》<br>[https://gnews.org/zh-hans/64037/](https://gnews.org/zh-hans/64037/ "https://gnews.org/zh-hans/64037/")
+
+[https://www.guo.media/posts/262718](https://www.guo.media/posts/262718) `2019-12-26T04:25:10`
+##
+
 **milesguo** 中共收割民营企业玩出新花样<br>[https://gnews.org/zh-hans/63994/](https://gnews.org/zh-hans/63994/ "https://gnews.org/zh-hans/63994/")
 
 [https://www.guo.media/posts/262717](https://www.guo.media/posts/262717) `2019-12-26T04:10:10`
