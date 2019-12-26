@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共出台《意见》掩饰其两大恶行<br>[https://gnews.org/zh-hans/64062/](https://gnews.org/zh-hans/64062/ "https://gnews.org/zh-hans/64062/")
+
+[https://www.guo.media/posts/262724](https://www.guo.media/posts/262724) `2019-12-26T05:25:10`
+##
+
+**milesguo** 美军可以今晚就对朝鲜开战！<br>[https://gnews.org/zh-hans/64034/](https://gnews.org/zh-hans/64034/ "https://gnews.org/zh-hans/64034/")
+
+[https://www.guo.media/posts/262723](https://www.guo.media/posts/262723) `2019-12-26T05:25:13`
+##
+
 **milesguo** 中共体制下14亿人即将裸奔—-《密码法》<br>[https://gnews.org/zh-hans/64037/](https://gnews.org/zh-hans/64037/ "https://gnews.org/zh-hans/64037/")
 
 [https://www.guo.media/posts/262718](https://www.guo.media/posts/262718) `2019-12-26T04:25:10`
