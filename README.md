@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** China, Russia and Iran will hold a joint naval exercise in the Gulf of Oman<br>[https://gnews.org/64765/](https://gnews.org/64765/ "https://gnews.org/64765/")
+
+[https://www.guo.media/posts/262837](https://www.guo.media/posts/262837) `2019-12-26T22:40:10`
+##
+
 **milesguo** China’s 34th rocket launch this year on Dec 27: a game-changer<br>[https://gnews.org/64681/](https://gnews.org/64681/ "https://gnews.org/64681/")
 
 [https://www.guo.media/posts/262836](https://www.guo.media/posts/262836) `2019-12-26T22:10:11`
