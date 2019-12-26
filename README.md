@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 外籍指挥官陶辉碰猪队友不妙反被喷<br>[https://gnews.org/zh-hans/64160/](https://gnews.org/zh-hans/64160/ "https://gnews.org/zh-hans/64160/")
+
+[https://www.guo.media/posts/262788](https://www.guo.media/posts/262788) `2019-12-26T15:25:11`
+##
+
+**milesguo** 郭文贵先生一周直播精选<br>[https://gnews.org/zh-hans/64433/](https://gnews.org/zh-hans/64433/ "https://gnews.org/zh-hans/64433/")
+
+[https://www.guo.media/posts/262787](https://www.guo.media/posts/262787) `2019-12-26T15:25:13`
+##
+
+**milesguo** 12月25日 美国政要推文精选<br>[https://gnews.org/zh-hans/64347/](https://gnews.org/zh-hans/64347/ "https://gnews.org/zh-hans/64347/")
+
+[https://www.guo.media/posts/262786](https://www.guo.media/posts/262786) `2019-12-26T15:25:16`
+##
+
 **milesguo** 12月27号尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在40分钟左右开始报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/262774](https://www.guo.media/posts/262774) `2019-12-26T14:55:10`
