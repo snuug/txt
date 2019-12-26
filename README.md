@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 26, Posters on HK Protest<br>[https://gnews.org/64682/](https://gnews.org/64682/ "https://gnews.org/64682/")
+
+[https://www.guo.media/posts/262833](https://www.guo.media/posts/262833) `2019-12-26T21:40:10`
+##
+
 **milesguo** An uneasy atmosphere on Boxing Day in Hong Kong<br>[https://gnews.org/64658/](https://gnews.org/64658/ "https://gnews.org/64658/")
 
 [https://www.guo.media/posts/262831](https://www.guo.media/posts/262831) `2019-12-26T21:25:10`
