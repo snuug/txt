@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 震惊！中共下令修改《圣经》、《古兰经》等经书中与“社会主义核心价值观”不符的部分<br>[https://gnews.org/zh-hans/64410/](https://gnews.org/zh-hans/64410/ "https://gnews.org/zh-hans/64410/")
+
+[https://www.guo.media/posts/262748](https://www.guo.media/posts/262748) `2019-12-26T08:40:12`
+##
+
 **milesguo** 锦州银行董事长死亡事件<br>[https://gnews.org/zh-hans/64312/](https://gnews.org/zh-hans/64312/ "https://gnews.org/zh-hans/64312/")
 
 [https://www.guo.media/posts/262743](https://www.guo.media/posts/262743) `2019-12-26T07:40:10`
