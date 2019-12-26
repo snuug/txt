@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Police Disregards Human Right of Arrested Civilians<br>[https://gnews.org/63931/](https://gnews.org/63931/ "https://gnews.org/63931/")
+
+[https://www.guo.media/posts/262827](https://www.guo.media/posts/262827) `2019-12-26T21:10:10`
+##
+
 **milesguo** Citizens Investigated for Revving his Motorcycle<br>[https://gnews.org/64284/](https://gnews.org/64284/ "https://gnews.org/64284/")
 
 [https://www.guo.media/posts/262822](https://www.guo.media/posts/262822) `2019-12-26T20:10:10`
