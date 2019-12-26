@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Homeless affected by teargas: Resist anything that’s incorrect<br>[https://gnews.org/64259/](https://gnews.org/64259/ "https://gnews.org/64259/")
+
+[https://www.guo.media/posts/262791](https://www.guo.media/posts/262791) `2019-12-26T15:40:10`
+##
+
+**milesguo** Police Escort Pro-Police Supporter to Safety After Head-butting Reporter<br>[https://gnews.org/64240/](https://gnews.org/64240/ "https://gnews.org/64240/")
+
+[https://www.guo.media/posts/262789](https://www.guo.media/posts/262789) `2019-12-26T15:40:13`
+##
+
 **milesguo** 外籍指挥官陶辉碰猪队友不妙反被喷<br>[https://gnews.org/zh-hans/64160/](https://gnews.org/zh-hans/64160/ "https://gnews.org/zh-hans/64160/")
 
 [https://www.guo.media/posts/262788](https://www.guo.media/posts/262788) `2019-12-26T15:25:11`
