@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Popular Garment Stores and Restautants hit with Tear Gas Canisters on Xmas Day<br>[https://gnews.org/64214/](https://gnews.org/64214/ "https://gnews.org/64214/")
+
+[https://www.guo.media/posts/262738](https://www.guo.media/posts/262738) `2019-12-26T06:55:11`
+##
+
+**milesguo** China tests sub-launched missile while building a new aircraft carrier<br>[https://gnews.org/64209/](https://gnews.org/64209/ "https://gnews.org/64209/")
+
+[https://www.guo.media/posts/262735](https://www.guo.media/posts/262735) `2019-12-26T06:55:14`
+##
+
+**milesguo** China dismisses prison labor note in Christmas card as “a farce”<br>[https://gnews.org/64076/](https://gnews.org/64076/ "https://gnews.org/64076/")
+
+[https://www.guo.media/posts/262734](https://www.guo.media/posts/262734) `2019-12-26T06:55:16`
+##
+
 **milesguo** 中共出台《意见》掩饰其两大恶行<br>[https://gnews.org/zh-hans/64062/](https://gnews.org/zh-hans/64062/ "https://gnews.org/zh-hans/64062/")
 
 [https://www.guo.media/posts/262724](https://www.guo.media/posts/262724) `2019-12-26T05:25:10`
