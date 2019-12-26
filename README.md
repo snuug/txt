@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2019年12月24日至25日平安夜驻港戒严部队抓捕示威者详细情况<br>[https://gnews.org/zh-hans/63744/](https://gnews.org/zh-hans/63744/ "https://gnews.org/zh-hans/63744/")
+
+[https://www.guo.media/posts/262711](https://www.guo.media/posts/262711) `2019-12-26T03:55:10`
+##
+
 **milesguo** 小巴猪：国有企业经济指标加速恶化<br>[https://gnews.org/zh-hans/63698/](https://gnews.org/zh-hans/63698/ "https://gnews.org/zh-hans/63698/")
 
 [https://www.guo.media/posts/262698](https://www.guo.media/posts/262698) `2019-12-25T23:40:11`
