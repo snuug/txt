@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Bannon’s War Room: China’s Seven structural sins, Decoupling with China?<br>[https://gnews.org/65200/](https://gnews.org/65200/ "https://gnews.org/65200/")
+
+[https://www.guo.media/posts/262934](https://www.guo.media/posts/262934) `2019-12-27T13:10:10`
+##
+
+**milesguo** 从日本众议院议员收受中共贿赂事件观察中共渗透问题<br>[https://gnews.org/zh-hans/65008/](https://gnews.org/zh-hans/65008/ "https://gnews.org/zh-hans/65008/")
+
+[https://www.guo.media/posts/262933](https://www.guo.media/posts/262933) `2019-12-27T13:10:12`
+##
+
+**milesguo** 【日程表】带你了解12月27日至 2020年1月6日香港游行详细情况<br>[https://gnews.org/zh-hans/65022/](https://gnews.org/zh-hans/65022/ "https://gnews.org/zh-hans/65022/")
+
+[https://www.guo.media/posts/262932](https://www.guo.media/posts/262932) `2019-12-27T13:10:15`
+##
+
+**milesguo** 12月26日 美国政要推文精选<br>[https://gnews.org/zh-hans/65128/](https://gnews.org/zh-hans/65128/ "https://gnews.org/zh-hans/65128/")
+
+[https://www.guo.media/posts/262931](https://www.guo.media/posts/262931) `2019-12-27T13:10:18`
+##
+
 **milesguo** 香港的抗议活动将持续到2020年，并计划举行新年游行<br>[https://gnews.org/zh-hans/65374/](https://gnews.org/zh-hans/65374/ "https://gnews.org/zh-hans/65374/")
 
 [https://www.guo.media/posts/262922](https://www.guo.media/posts/262922) `2019-12-27T10:55:10`
