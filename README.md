@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Police harassed RTHK off-duty reporter and called him “thug reporter” in Kwun Tong<br>[https://gnews.org/64511/](https://gnews.org/64511/ "https://gnews.org/64511/")
+
+[https://www.guo.media/posts/262865](https://www.guo.media/posts/262865) `2019-12-27T02:10:10`
+##
+
+**milesguo** Miles Guo: The battle between Xi Jinping and Wang Qishan is about to begin in full swing !<br>[https://gnews.org/64810/](https://gnews.org/64810/ "https://gnews.org/64810/")
+
+[https://www.guo.media/posts/262864](https://www.guo.media/posts/262864) `2019-12-27T02:10:13`
+##
+
 **milesguo** Beijing’s tactics to sway Taiwan electrons: perks, spies & intimidations<br>[https://gnews.org/64781/](https://gnews.org/64781/ "https://gnews.org/64781/")
 
 [https://www.guo.media/posts/262863](https://www.guo.media/posts/262863) `2019-12-27T01:55:11`
