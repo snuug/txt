@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 班农和纳瓦罗点名 中共七宗罪<br>[https://gnews.org/zh-hans/65604/](https://gnews.org/zh-hans/65604/ "https://gnews.org/zh-hans/65604/")
+
+[https://www.guo.media/posts/262982](https://www.guo.media/posts/262982) `2019-12-27T18:55:10`
+##
+
 **milesguo** Police Confirms Use of “Coloured Pepper Spray” in Tai Po<br>[https://gnews.org/64892/](https://gnews.org/64892/ "https://gnews.org/64892/")
 
 [https://www.guo.media/posts/262976](https://www.guo.media/posts/262976) `2019-12-27T18:10:10`
