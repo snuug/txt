@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 立法会议员张华峰女儿坠楼身亡<br>[https://gnews.org/zh-hans/64900/](https://gnews.org/zh-hans/64900/ "https://gnews.org/zh-hans/64900/")
+
+[https://www.guo.media/posts/262888](https://www.guo.media/posts/262888) `2019-12-27T04:25:13`
+##
+
+**milesguo** 圣诞夜！北京王府井天主教堂大量公安包围<br>[https://gnews.org/zh-hans/64863/](https://gnews.org/zh-hans/64863/ "https://gnews.org/zh-hans/64863/")
+
+[https://www.guo.media/posts/262887](https://www.guo.media/posts/262887) `2019-12-27T04:25:18`
+##
+
 **milesguo** 2019年中国企业违约率破历史记录<br>[https://gnews.org/zh-hans/64843/](https://gnews.org/zh-hans/64843/ "https://gnews.org/zh-hans/64843/")
 
 [https://www.guo.media/posts/262882](https://www.guo.media/posts/262882) `2019-12-27T04:10:10`
