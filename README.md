@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港的抗议活动将持续到2020年，并计划举行新年游行<br>[https://gnews.org/zh-hans/65374/](https://gnews.org/zh-hans/65374/ "https://gnews.org/zh-hans/65374/")
+
+[https://www.guo.media/posts/262922](https://www.guo.media/posts/262922) `2019-12-27T10:55:10`
+##
+
 **milesguo** 华为崛起背后是中共政府的庞大支持<br>[https://gnews.org/zh-hans/65171/](https://gnews.org/zh-hans/65171/ "https://gnews.org/zh-hans/65171/")
 
 [https://www.guo.media/posts/262916](https://www.guo.media/posts/262916) `2019-12-27T09:10:11`
