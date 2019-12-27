@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年中国企业违约率破历史记录<br>[https://gnews.org/zh-hans/64843/](https://gnews.org/zh-hans/64843/ "https://gnews.org/zh-hans/64843/")
+
+[https://www.guo.media/posts/262882](https://www.guo.media/posts/262882) `2019-12-27T04:10:10`
+##
+
+**milesguo** 芯片有多重要？为何美军方要求台积电在美设厂？<br>[https://gnews.org/zh-hans/64839/](https://gnews.org/zh-hans/64839/ "https://gnews.org/zh-hans/64839/")
+
+[https://www.guo.media/posts/262880](https://www.guo.media/posts/262880) `2019-12-27T04:10:13`
+##
+
 **milesguo** 港人号召多区商场集会，黑警商场内巡逻严防戒备<br>[https://gnews.org/zh-hans/64519/](https://gnews.org/zh-hans/64519/ "https://gnews.org/zh-hans/64519/")
 
 [https://www.guo.media/posts/262878](https://www.guo.media/posts/262878) `2019-12-27T03:55:11`
