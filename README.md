@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中美脱钩，脱的不只是汇率，更是财富生产、分配方式<br>[https://gnews.org/zh-hans/64997/](https://gnews.org/zh-hans/64997/ "https://gnews.org/zh-hans/64997/")
+
+[https://www.guo.media/posts/262906](https://www.guo.media/posts/262906) `2019-12-27T06:25:10`
+##
+
+**milesguo** 老江观点：黄金 未来货币发行的不二依据<br>[https://gnews.org/zh-hans/64921/](https://gnews.org/zh-hans/64921/ "https://gnews.org/zh-hans/64921/")
+
+[https://www.guo.media/posts/262905](https://www.guo.media/posts/262905) `2019-12-27T06:25:13`
+##
+
+**milesguo** 恐怖的“思想道德提高班”！高中生被关反省后，精神分裂跳楼身亡<br>[https://gnews.org/zh-hans/64927/](https://gnews.org/zh-hans/64927/ "https://gnews.org/zh-hans/64927/")
+
+[https://www.guo.media/posts/262904](https://www.guo.media/posts/262904) `2019-12-27T06:25:15`
+##
+
+**milesguo** 视践踏仁爱为美学，不灭中共你说灭谁？<br>[https://gnews.org/zh-hans/64962/](https://gnews.org/zh-hans/64962/ "https://gnews.org/zh-hans/64962/")
+
+[https://www.guo.media/posts/262902](https://www.guo.media/posts/262902) `2019-12-27T06:25:18`
+##
+
 **milesguo** 立法会议员张华峰女儿坠楼身亡<br>[https://gnews.org/zh-hans/64900/](https://gnews.org/zh-hans/64900/ "https://gnews.org/zh-hans/64900/")
 
 [https://www.guo.media/posts/262888](https://www.guo.media/posts/262888) `2019-12-27T04:25:13`
