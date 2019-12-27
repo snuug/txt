@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** China’s solution to local governments’ debt crisis: issue more bonds<br>[https://gnews.org/64822/](https://gnews.org/64822/ "https://gnews.org/64822/")
+
+[https://www.guo.media/posts/262992](https://www.guo.media/posts/262992) `2019-12-27T21:40:10`
+##
+
+**milesguo** Miles Guo：Los Angeles and Phoenix are some of the important places to wipe out the CCP in the future!<br>[https://gnews.org/65680/](https://gnews.org/65680/ "https://gnews.org/65680/")
+
+[https://www.guo.media/posts/262991](https://www.guo.media/posts/262991) `2019-12-27T21:40:12`
+##
+
 **milesguo** 班农和纳瓦罗点名 中共七宗罪<br>[https://gnews.org/zh-hans/65604/](https://gnews.org/zh-hans/65604/ "https://gnews.org/zh-hans/65604/")
 
 [https://www.guo.media/posts/262982](https://www.guo.media/posts/262982) `2019-12-27T18:55:10`
