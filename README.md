@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** HK Police Mocked Citizens at Shopping Centre: “You Should Jump Off and Speak to Me!”<br>[https://gnews.org/64937/](https://gnews.org/64937/ "https://gnews.org/64937/")
+
+[https://www.guo.media/posts/262912](https://www.guo.media/posts/262912) `2019-12-27T07:55:10`
+##
+
 **milesguo** Highlights of Miles Guo’s Live Broadcast on 12/27/2019<br>[https://gnews.org/64915/](https://gnews.org/64915/ "https://gnews.org/64915/")
 
 [https://www.guo.media/posts/262910](https://www.guo.media/posts/262910) `2019-12-27T07:40:10`
