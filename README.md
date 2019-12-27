@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 12/27/2019<br>[https://gnews.org/64915/](https://gnews.org/64915/ "https://gnews.org/64915/")
+
+[https://www.guo.media/posts/262910](https://www.guo.media/posts/262910) `2019-12-27T07:40:10`
+##
+
 **milesguo** 中美脱钩，脱的不只是汇率，更是财富生产、分配方式<br>[https://gnews.org/zh-hans/64997/](https://gnews.org/zh-hans/64997/ "https://gnews.org/zh-hans/64997/")
 
 [https://www.guo.media/posts/262906](https://www.guo.media/posts/262906) `2019-12-27T06:25:10`
