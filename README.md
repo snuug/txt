@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月27号：文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！
+
+[https://www.guo.media/posts/262970](https://www.guo.media/posts/262970) `2019-12-27T17:25:12`
+##
+
 **milesguo** CCP Called U.S. “China’s military threat” Statement “a thief cries ‘stop the thief’”<br>[https://gnews.org/65588/](https://gnews.org/65588/ "https://gnews.org/65588/")
 
 [https://www.guo.media/posts/262964](https://www.guo.media/posts/262964) `2019-12-27T16:25:10`
