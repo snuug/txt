@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 12月27号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？因为今天一大早就需要连续开几个会，所以非常抱歉今天没有报平安直播！文贵在这里向大家报平安了，一切都是刚刚开始！
+
+[https://www.guo.media/posts/262949](https://www.guo.media/posts/262949) `2019-12-27T15:25:10`
+##
+
+**milesguo** 从依赖美元到挑战美元，解析中共在中美对抗中金融领域的穷兵黩武<br>[https://gnews.org/zh-hans/65518/](https://gnews.org/zh-hans/65518/ "https://gnews.org/zh-hans/65518/")
+
+[https://www.guo.media/posts/262948](https://www.guo.media/posts/262948) `2019-12-27T15:25:13`
+##
+
+**milesguo** <br>班农先生带你了解美国人对中共认识的转变<br>[https://gnews.org/zh-hans/65502/](https://gnews.org/zh-hans/65502/ "https://gnews.org/zh-hans/65502/")
+
+[https://www.guo.media/posts/262947](https://www.guo.media/posts/262947) `2019-12-27T15:25:16`
+##
+
+**milesguo** 为了不吃草——囤粮备荒记<br>[https://gnews.org/zh-hans/65500/](https://gnews.org/zh-hans/65500/ "https://gnews.org/zh-hans/65500/")
+
+[https://www.guo.media/posts/262946](https://www.guo.media/posts/262946) `2019-12-27T15:25:18`
+##
+
 **milesguo** 小巴猪：共产党加紧掠夺农民宅基地，什么目的呢<br>[https://gnews.org/zh-hans/65490/](https://gnews.org/zh-hans/65490/ "https://gnews.org/zh-hans/65490/")
 
 [https://www.guo.media/posts/262944](https://www.guo.media/posts/262944) `2019-12-27T15:10:10`
