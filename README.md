@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Beijing’s tactics to sway Taiwan electrons: perks, spies & intimidations<br>[https://gnews.org/64781/](https://gnews.org/64781/ "https://gnews.org/64781/")
+
+[https://www.guo.media/posts/262863](https://www.guo.media/posts/262863) `2019-12-27T01:55:11`
+##
+
 **milesguo** China, Russia and Iran will hold a joint naval exercise in the Gulf of Oman<br>[https://gnews.org/64765/](https://gnews.org/64765/ "https://gnews.org/64765/")
 
 [https://www.guo.media/posts/262837](https://www.guo.media/posts/262837) `2019-12-26T22:40:10`
