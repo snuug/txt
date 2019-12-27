@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Police Confirms Use of “Coloured Pepper Spray” in Tai Po<br>[https://gnews.org/64892/](https://gnews.org/64892/ "https://gnews.org/64892/")
+
+[https://www.guo.media/posts/262976](https://www.guo.media/posts/262976) `2019-12-27T18:10:10`
+##
+
 **milesguo** 12月27号：文貴衷心的感谢洛杉矶⋯⋯的战友们，⋯⋯⋯⋯一切都是剛剛開始！
 
 [https://www.guo.media/posts/262970](https://www.guo.media/posts/262970) `2019-12-27T17:25:12`
