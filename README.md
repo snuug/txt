@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：2018-2019年A股上市公司控制权大量变更<br>[https://gnews.org/zh-hans/65782/](https://gnews.org/zh-hans/65782/ "https://gnews.org/zh-hans/65782/")
+
+[https://www.guo.media/posts/263005](https://www.guo.media/posts/263005) `2019-12-27T23:55:18`
+##
+
+**milesguo** 中共体制是北京民航总医院悲剧的罪魁祸首<br>[https://gnews.org/zh-hans/65760/](https://gnews.org/zh-hans/65760/ "https://gnews.org/zh-hans/65760/")
+
+[https://www.guo.media/posts/263004](https://www.guo.media/posts/263004) `2019-12-27T23:55:21`
+##
+
+**milesguo** 中国房地产的前世今生(当下)<br>[https://gnews.org/zh-hans/65745/](https://gnews.org/zh-hans/65745/ "https://gnews.org/zh-hans/65745/")
+
+[https://www.guo.media/posts/263003](https://www.guo.media/posts/263003) `2019-12-27T23:55:23`
+##
+
+**milesguo** 老江观点 股指走势分析—协议签不成<br>[https://gnews.org/zh-hans/65653/](https://gnews.org/zh-hans/65653/ "https://gnews.org/zh-hans/65653/")
+
+[https://www.guo.media/posts/263002](https://www.guo.media/posts/263002) `2019-12-27T23:55:27`
+##
+
+**milesguo** 长篇连载: 一名党龄30年的老党员与爆料革命<br>[https://gnews.org/zh-hans/65721/](https://gnews.org/zh-hans/65721/ "https://gnews.org/zh-hans/65721/")
+
+[https://www.guo.media/posts/263001](https://www.guo.media/posts/263001) `2019-12-27T23:55:29`
+##
+
 **milesguo** 12月27號：再次的感謝洛杉磯戰友的盛情和勇敢⋯⋯一切都是剛剛開始！
 
 [https://www.guo.media/posts/262995](https://www.guo.media/posts/262995) `2019-12-27T22:55:10`
