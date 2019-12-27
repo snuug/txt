@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** CCP Called U.S. “China’s military threat” Statement “a thief cries ‘stop the thief’”<br>[https://gnews.org/65588/](https://gnews.org/65588/ "https://gnews.org/65588/")
+
+[https://www.guo.media/posts/262964](https://www.guo.media/posts/262964) `2019-12-27T16:25:10`
+##
+
+**milesguo** The Farm: CCP Ownership of SCMP and Internet Censorship<br>[https://gnews.org/65571/](https://gnews.org/65571/ "https://gnews.org/65571/")
+
+[https://www.guo.media/posts/262963](https://www.guo.media/posts/262963) `2019-12-27T16:25:13`
+##
+
+**milesguo** Police Challenged Privacy Protection and Wanted to Open Confidential Letter<br>[https://gnews.org/64875/](https://gnews.org/64875/ "https://gnews.org/64875/")
+
+[https://www.guo.media/posts/262961](https://www.guo.media/posts/262961) `2019-12-27T16:25:16`
+##
+
 **milesguo** 12月27号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？因为今天一大早就需要连续开几个会，所以非常抱歉今天没有报平安直播！文贵在这里向大家报平安了，一切都是刚刚开始！
 
 [https://www.guo.media/posts/262949](https://www.guo.media/posts/262949) `2019-12-27T15:25:10`
