@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：共产党加紧掠夺农民宅基地，什么目的呢<br>[https://gnews.org/zh-hans/65490/](https://gnews.org/zh-hans/65490/ "https://gnews.org/zh-hans/65490/")
+
+[https://www.guo.media/posts/262944](https://www.guo.media/posts/262944) `2019-12-27T15:10:10`
+##
+
 **milesguo** Bannon’s War Room: China’s Seven structural sins, Decoupling with China?<br>[https://gnews.org/65200/](https://gnews.org/65200/ "https://gnews.org/65200/")
 
 [https://www.guo.media/posts/262934](https://www.guo.media/posts/262934) `2019-12-27T13:10:10`
