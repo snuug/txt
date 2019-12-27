@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月27號：再次的感謝洛杉磯戰友的盛情和勇敢⋯⋯一切都是剛剛開始！
+
+[https://www.guo.media/posts/262995](https://www.guo.media/posts/262995) `2019-12-27T22:55:10`
+##
+
 **milesguo** China’s solution to local governments’ debt crisis: issue more bonds<br>[https://gnews.org/64822/](https://gnews.org/64822/ "https://gnews.org/64822/")
 
 [https://www.guo.media/posts/262992](https://www.guo.media/posts/262992) `2019-12-27T21:40:10`
