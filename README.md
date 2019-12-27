@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 港人号召多区商场集会，黑警商场内巡逻严防戒备<br>[https://gnews.org/zh-hans/64519/](https://gnews.org/zh-hans/64519/ "https://gnews.org/zh-hans/64519/")
+
+[https://www.guo.media/posts/262878](https://www.guo.media/posts/262878) `2019-12-27T03:55:11`
+##
+
+**milesguo** 会员注册登录流程说明，请跟帖反馈遇到的问题！<br>[https://gnews.org/zh-hans/57367/](https://gnews.org/zh-hans/57367/ "https://gnews.org/zh-hans/57367/")
+
+[https://www.guo.media/posts/262876](https://www.guo.media/posts/262876) `2019-12-27T03:55:14`
+##
+
+**milesguo** 【美国思想领袖】香港前民主党主席刘慧卿Emily Lau专访精华<br>[https://gnews.org/zh-hans/64748/](https://gnews.org/zh-hans/64748/ "https://gnews.org/zh-hans/64748/")
+
+[https://www.guo.media/posts/262874](https://www.guo.media/posts/262874) `2019-12-27T03:55:17`
+##
+
 **milesguo** Police harassed RTHK off-duty reporter and called him “thug reporter” in Kwun Tong<br>[https://gnews.org/64511/](https://gnews.org/64511/ "https://gnews.org/64511/")
 
 [https://www.guo.media/posts/262865](https://www.guo.media/posts/262865) `2019-12-27T02:10:10`
