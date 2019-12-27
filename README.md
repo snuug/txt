@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 华为崛起背后是中共政府的庞大支持<br>[https://gnews.org/zh-hans/65171/](https://gnews.org/zh-hans/65171/ "https://gnews.org/zh-hans/65171/")
+
+[https://www.guo.media/posts/262916](https://www.guo.media/posts/262916) `2019-12-27T09:10:11`
+##
+
 **milesguo** HK Police Mocked Citizens at Shopping Centre: “You Should Jump Off and Speak to Me!”<br>[https://gnews.org/64937/](https://gnews.org/64937/ "https://gnews.org/64937/")
 
 [https://www.guo.media/posts/262912](https://www.guo.media/posts/262912) `2019-12-27T07:55:10`
