@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 问题与期望：未来新中国教育 引进基督教会学校的理由<br>[https://gnews.org/zh-hans/66671/](https://gnews.org/zh-hans/66671/ "https://gnews.org/zh-hans/66671/")
+
+[https://www.guo.media/posts/263132](https://www.guo.media/posts/263132) `2019-12-28T18:55:10`
+##
+
+**milesguo** 中共政府公开承认没钱了<br>[https://gnews.org/zh-hans/66606/](https://gnews.org/zh-hans/66606/ "https://gnews.org/zh-hans/66606/")
+
+[https://www.guo.media/posts/263131](https://www.guo.media/posts/263131) `2019-12-28T18:55:13`
+##
+
 **milesguo** 看直播：纽约时间12月28日早上郭文贵先生直播，请点GTV链接<br>[https://gnews.org/zh-hans/66087/](https://gnews.org/zh-hans/66087/ "https://gnews.org/zh-hans/66087/")
 
 [https://www.guo.media/posts/263117](https://www.guo.media/posts/263117) `2019-12-28T15:55:10`
