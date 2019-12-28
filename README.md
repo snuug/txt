@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2020全面小康，是小康还是小糠！今天你托国家大腿了吗？<br>[https://gnews.org/zh-hans/66213/](https://gnews.org/zh-hans/66213/ "https://gnews.org/zh-hans/66213/")
+
+[https://www.guo.media/posts/263114](https://www.guo.media/posts/263114) `2019-12-28T14:55:10`
+##
+
+**milesguo** “Study With You” Activity Held in Hong Kong<br>[https://gnews.org/65912/](https://gnews.org/65912/ "https://gnews.org/65912/")
+
+[https://www.guo.media/posts/263109](https://www.guo.media/posts/263109) `2019-12-28T14:55:13`
+##
+
 **milesguo** 从张国栋事件来看待西方国家对于中共间谍企业的态度<br>[https://gnews.org/zh-hans/66308/](https://gnews.org/zh-hans/66308/ "https://gnews.org/zh-hans/66308/")
 
 [https://www.guo.media/posts/263103](https://www.guo.media/posts/263103) `2019-12-28T14:25:40`
