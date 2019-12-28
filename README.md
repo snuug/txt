@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 科学家与中国的合作，是否可能独立于中国的政治之外<br>[https://gnews.org/zh-hans/65971/](https://gnews.org/zh-hans/65971/ "https://gnews.org/zh-hans/65971/")
+
+[https://www.guo.media/posts/263017](https://www.guo.media/posts/263017) `2019-12-28T02:40:10`
+##
+
 **milesguo** 驳一下那些质疑香港抗争的观点，传播香港危机真相<br>[https://gnews.org/zh-hans/65460/](https://gnews.org/zh-hans/65460/ "https://gnews.org/zh-hans/65460/")
 
 [https://www.guo.media/posts/263015](https://www.guo.media/posts/263015) `2019-12-28T02:25:10`
