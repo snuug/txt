@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** How Western Mainstream Media Got Infiltrated by the CCP<br>[https://gnews.org/65479/](https://gnews.org/65479/ "https://gnews.org/65479/")
+
+[https://www.guo.media/posts/263090](https://www.guo.media/posts/263090) `2019-12-28T12:40:11`
+##
+
+**milesguo** CCP’s Most powerful Rocket Sent its Largest New-Generation Satellite Into Earth Orbit<br>[https://gnews.org/65891/](https://gnews.org/65891/ "https://gnews.org/65891/")
+
+[https://www.guo.media/posts/263089](https://www.guo.media/posts/263089) `2019-12-28T12:40:14`
+##
+
+**milesguo** December 27, Posters on HK Protest<br>[https://gnews.org/65792/](https://gnews.org/65792/ "https://gnews.org/65792/")
+
+[https://www.guo.media/posts/263088](https://www.guo.media/posts/263088) `2019-12-28T12:40:16`
+##
+
+**milesguo** Chinese official: party is over for China’s real-estate speculators<br>[https://gnews.org/64808/](https://gnews.org/64808/ "https://gnews.org/64808/")
+
+[https://www.guo.media/posts/263087](https://www.guo.media/posts/263087) `2019-12-28T12:40:18`
+##
+
+**milesguo** 文字版2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化<br>[https://gnews.org/zh-hans/66265/](https://gnews.org/zh-hans/66265/ "https://gnews.org/zh-hans/66265/")
+
+[https://www.guo.media/posts/263086](https://www.guo.media/posts/263086) `2019-12-28T12:40:21`
+##
+
 **milesguo** 文字版2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化<br>[https://gnews.org/zh-hans/66265/](https://gnews.org/zh-hans/66265/ "https://gnews.org/zh-hans/66265/")
 
 [https://www.guo.media/posts/263084](https://www.guo.media/posts/263084) `2019-12-28T12:25:10`
