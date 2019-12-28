@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 继包商银行之后，又一家地方银行—恒丰银行破产<br>[https://gnews.org/zh-hans/66242/](https://gnews.org/zh-hans/66242/ "https://gnews.org/zh-hans/66242/")
+
+[https://www.guo.media/posts/263077](https://www.guo.media/posts/263077) `2019-12-28T10:40:10`
+##
+
 **milesguo** 公报私仇？驻港戒严部队抓捕自己人<br>[https://gnews.org/zh-hans/66176/](https://gnews.org/zh-hans/66176/ "https://gnews.org/zh-hans/66176/")
 
 [https://www.guo.media/posts/263063](https://www.guo.media/posts/263063) `2019-12-28T08:10:10`
