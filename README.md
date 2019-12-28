@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 众议员瑞森绍尔接受美女主持采访 谈香港<br>[https://gnews.org/zh-hans/66036/](https://gnews.org/zh-hans/66036/ "https://gnews.org/zh-hans/66036/")
+
+[https://www.guo.media/posts/263048](https://www.guo.media/posts/263048) `2019-12-28T05:55:10`
+##
+
 **milesguo** 中共经济正在崩塌，央行再发元旦降息信号：浮动利率贷款定价新基准— LPR<br>[https://gnews.org/zh-hans/66059/](https://gnews.org/zh-hans/66059/ "https://gnews.org/zh-hans/66059/")
 
 [https://www.guo.media/posts/263047](https://www.guo.media/posts/263047) `2019-12-28T05:40:10`
