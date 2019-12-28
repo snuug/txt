@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看直播：纽约时间12月28日早上郭文贵先生直播，请点GTV链接<br>[https://gnews.org/zh-hans/66087/](https://gnews.org/zh-hans/66087/ "https://gnews.org/zh-hans/66087/")
+
+[https://www.guo.media/posts/263117](https://www.guo.media/posts/263117) `2019-12-28T15:55:10`
+##
+
 **milesguo** 2020全面小康，是小康还是小糠！今天你托国家大腿了吗？<br>[https://gnews.org/zh-hans/66213/](https://gnews.org/zh-hans/66213/ "https://gnews.org/zh-hans/66213/")
 
 [https://www.guo.media/posts/263114](https://www.guo.media/posts/263114) `2019-12-28T14:55:10`
