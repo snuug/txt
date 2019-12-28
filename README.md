@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美元流动危机 中国的终结游戏<br>[https://gnews.org/zh-hans/66435/](https://gnews.org/zh-hans/66435/ "https://gnews.org/zh-hans/66435/")
+
+[https://www.guo.media/posts/263097](https://www.guo.media/posts/263097) `2019-12-28T14:10:10`
+##
+
 **milesguo** How Western Mainstream Media Got Infiltrated by the CCP<br>[https://gnews.org/65479/](https://gnews.org/65479/ "https://gnews.org/65479/")
 
 [https://www.guo.media/posts/263090](https://www.guo.media/posts/263090) `2019-12-28T12:40:11`
