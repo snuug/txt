@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月27日：应战友们的要求．发一个SNOW 在空中散步的视频，感谢战们对他的关心，🙏🙏🙏🙏🙏🙏一切都是刚刚开始！
+
+[https://www.guo.media/posts/263026](https://www.guo.media/posts/263026) `2019-12-28T03:40:10`
+##
+
+**milesguo** 12月27日：应战友们的要求．发一个SNOW 在空中散步的视频，感谢战们对他的关心，🙏🙏🙏🙏🙏🙏一切都是刚刚开始！
+
+[https://www.guo.media/posts/263024](https://www.guo.media/posts/263024) `2019-12-28T03:40:13`
+##
+
 **milesguo** 科学家与中国的合作，是否可能独立于中国的政治之外<br>[https://gnews.org/zh-hans/65971/](https://gnews.org/zh-hans/65971/ "https://gnews.org/zh-hans/65971/")
 
 [https://www.guo.media/posts/263017](https://www.guo.media/posts/263017) `2019-12-28T02:40:10`
