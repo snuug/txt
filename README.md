@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 驳一下那些质疑香港抗争的观点，传播香港危机真相<br>[https://gnews.org/zh-hans/65460/](https://gnews.org/zh-hans/65460/ "https://gnews.org/zh-hans/65460/")
+
+[https://www.guo.media/posts/263015](https://www.guo.media/posts/263015) `2019-12-28T02:25:10`
+##
+
+**milesguo** 香港要闻：港共爪牙魔警恶行滔天，人权组织势要追查到底，灭共战线在日悄然展开<br>[https://gnews.org/zh-hans/65793/](https://gnews.org/zh-hans/65793/ "https://gnews.org/zh-hans/65793/")
+
+[https://www.guo.media/posts/263014](https://www.guo.media/posts/263014) `2019-12-28T02:25:12`
+##
+
 **milesguo** 小巴猪：2018-2019年A股上市公司控制权大量变更<br>[https://gnews.org/zh-hans/65782/](https://gnews.org/zh-hans/65782/ "https://gnews.org/zh-hans/65782/")
 
 [https://www.guo.media/posts/263005](https://www.guo.media/posts/263005) `2019-12-27T23:55:18`
