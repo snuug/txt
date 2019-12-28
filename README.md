@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 平安夜凌晨驻港戒严部队销毁青年坠楼录像<br>[https://gnews.org/zh-hans/66084/](https://gnews.org/zh-hans/66084/ "https://gnews.org/zh-hans/66084/")
+
+[https://www.guo.media/posts/263055](https://www.guo.media/posts/263055) `2019-12-28T06:25:10`
+##
+
+**milesguo** 中共“反垄断”？丰田中国公司被罚8761万元<br>[https://gnews.org/zh-hans/66093/](https://gnews.org/zh-hans/66093/ "https://gnews.org/zh-hans/66093/")
+
+[https://www.guo.media/posts/263054](https://www.guo.media/posts/263054) `2019-12-28T06:25:13`
+##
+
 **milesguo** 林郑班子为何一直拒绝公布警方催泪弹和颜料水成份<br>[https://gnews.org/zh-hans/66060/](https://gnews.org/zh-hans/66060/ "https://gnews.org/zh-hans/66060/")
 
 [https://www.guo.media/posts/263052](https://www.guo.media/posts/263052) `2019-12-28T06:10:10`
