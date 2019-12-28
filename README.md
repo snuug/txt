@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 林郑班子为何一直拒绝公布警方催泪弹和颜料水成份<br>[https://gnews.org/zh-hans/66060/](https://gnews.org/zh-hans/66060/ "https://gnews.org/zh-hans/66060/")
+
+[https://www.guo.media/posts/263052](https://www.guo.media/posts/263052) `2019-12-28T06:10:10`
+##
+
 **milesguo** 众议员瑞森绍尔接受美女主持采访 谈香港<br>[https://gnews.org/zh-hans/66036/](https://gnews.org/zh-hans/66036/ "https://gnews.org/zh-hans/66036/")
 
 [https://www.guo.media/posts/263048](https://www.guo.media/posts/263048) `2019-12-28T05:55:10`
