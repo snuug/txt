@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化<br>[https://gnews.org/zh-hans/66265/](https://gnews.org/zh-hans/66265/ "https://gnews.org/zh-hans/66265/")
+
+[https://www.guo.media/posts/263084](https://www.guo.media/posts/263084) `2019-12-28T12:25:10`
+##
+
+**milesguo** 圣诞假期，一名中国公民闯入美军事基地禁区拍照被捕，疑是间谍<br>[https://gnews.org/zh-hans/66294/](https://gnews.org/zh-hans/66294/ "https://gnews.org/zh-hans/66294/")
+
+[https://www.guo.media/posts/263083](https://www.guo.media/posts/263083) `2019-12-28T12:25:13`
+##
+
 **milesguo** 继包商银行之后，又一家地方银行—恒丰银行破产<br>[https://gnews.org/zh-hans/66242/](https://gnews.org/zh-hans/66242/ "https://gnews.org/zh-hans/66242/")
 
 [https://www.guo.media/posts/263077](https://www.guo.media/posts/263077) `2019-12-28T10:40:10`
