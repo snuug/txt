@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 公报私仇？驻港戒严部队抓捕自己人<br>[https://gnews.org/zh-hans/66176/](https://gnews.org/zh-hans/66176/ "https://gnews.org/zh-hans/66176/")
+
+[https://www.guo.media/posts/263063](https://www.guo.media/posts/263063) `2019-12-28T08:10:10`
+##
+
 **milesguo** 中共，伊朗，俄罗斯三大极权国家抱团军演，挑战美国，挑战民主<br>[https://gnews.org/zh-hans/66186/](https://gnews.org/zh-hans/66186/ "https://gnews.org/zh-hans/66186/")
 
 [https://www.guo.media/posts/263061](https://www.guo.media/posts/263061) `2019-12-28T07:55:12`
