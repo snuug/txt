@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 香港要闻 ：官警勾结 狼狈为奸，民商无助 苦不堪言，一月一齐上街抗极权；文贵凤凰城直播预告：巨变正在发生中<br>[https://gnews.org/zh-hans/66895/](https://gnews.org/zh-hans/66895/ "https://gnews.org/zh-hans/66895/")
+
+[https://www.guo.media/posts/263172](https://www.guo.media/posts/263172) `2019-12-28T23:10:10`
+##
+
+**milesguo** 医生叹息无言论自由52.8万人关注转发 官方吓尿紧急屏蔽信息<br>[https://gnews.org/zh-hans/66303/](https://gnews.org/zh-hans/66303/ "https://gnews.org/zh-hans/66303/")
+
+[https://www.guo.media/posts/263170](https://www.guo.media/posts/263170) `2019-12-28T23:10:14`
+##
+
+**milesguo** 马来西亚前总理纳吉布被控下令杀人，此案披露疑与孟建柱失势有关<br>[https://gnews.org/zh-hans/66814/](https://gnews.org/zh-hans/66814/ "https://gnews.org/zh-hans/66814/")
+
+[https://www.guo.media/posts/263169](https://www.guo.media/posts/263169) `2019-12-28T23:10:17`
+##
+
+**milesguo** 黑警肆意打人，不考虑自己的明天！<br>[https://gnews.org/zh-hans/66746/](https://gnews.org/zh-hans/66746/ "https://gnews.org/zh-hans/66746/")
+
+[https://www.guo.media/posts/263168](https://www.guo.media/posts/263168) `2019-12-28T23:10:19`
+##
+
+**milesguo** 文字版2019年12月26日文贵报平安谈：中共经济正在崩溃，习王之战正在展开<br>[https://gnews.org/zh-hans/66283/](https://gnews.org/zh-hans/66283/ "https://gnews.org/zh-hans/66283/")
+
+[https://www.guo.media/posts/263167](https://www.guo.media/posts/263167) `2019-12-28T23:10:22`
+##
+
 **milesguo** 问题与期望：未来新中国教育 引进基督教会学校的理由<br>[https://gnews.org/zh-hans/66671/](https://gnews.org/zh-hans/66671/ "https://gnews.org/zh-hans/66671/")
 
 [https://www.guo.media/posts/263132](https://www.guo.media/posts/263132) `2019-12-28T18:55:10`
