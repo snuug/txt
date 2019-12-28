@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月27日 美国政要推特精选<br>[https://gnews.org/zh-hans/65983/](https://gnews.org/zh-hans/65983/ "https://gnews.org/zh-hans/65983/")
+
+[https://www.guo.media/posts/263040](https://www.guo.media/posts/263040) `2019-12-28T05:10:11`
+##
+
 **milesguo** 12月27日：看直播点击这里👉👉👉[https://gnews.org/尊敬的战友们好！明天上午也就是12月28日．纽约时间上午9:30左右！文贵报平安直播！谈谈这几天文贵在几个城市的感受！和细思极恐先生……成立基金文贵的看法……一切都是刚刚开始！](https://gnews.org/尊敬的战友们好！明天上午也就是12月28日．纽约时间上午9:30左右！文贵报平安直播！谈谈这几天文贵在几个城市的感受！和细思极恐先生&hellip;&hellip;成立基金文贵的看法&hellip;&hellip;一切都是刚刚开始！ "https://gnews.org/尊敬的战友们好！明天上午也就是12月28日．纽约时间上午9:30左右！文贵报平安直播！谈谈这几天文贵在几个城市的感受！和细思极恐先生&hellip;&hellip;成立基金文贵的看法&hellip;&hellip;一切都是刚刚开始！")
 
 [https://www.guo.media/posts/263038](https://www.guo.media/posts/263038) `2019-12-28T04:55:10`
