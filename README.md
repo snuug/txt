@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共经济正在崩塌，央行再发元旦降息信号：浮动利率贷款定价新基准— LPR<br>[https://gnews.org/zh-hans/66059/](https://gnews.org/zh-hans/66059/ "https://gnews.org/zh-hans/66059/")
+
+[https://www.guo.media/posts/263047](https://www.guo.media/posts/263047) `2019-12-28T05:40:10`
+##
+
+**milesguo** 从中共国债务，观察欧亚丝路周边国家的政经惨况<br>[https://gnews.org/zh-hans/66016/](https://gnews.org/zh-hans/66016/ "https://gnews.org/zh-hans/66016/")
+
+[https://www.guo.media/posts/263046](https://www.guo.media/posts/263046) `2019-12-28T05:40:13`
+##
+
 **milesguo** 12月27日 美国政要推特精选<br>[https://gnews.org/zh-hans/65983/](https://gnews.org/zh-hans/65983/ "https://gnews.org/zh-hans/65983/")
 
 [https://www.guo.media/posts/263040](https://www.guo.media/posts/263040) `2019-12-28T05:10:11`
