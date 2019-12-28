@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共，伊朗，俄罗斯三大极权国家抱团军演，挑战美国，挑战民主<br>[https://gnews.org/zh-hans/66186/](https://gnews.org/zh-hans/66186/ "https://gnews.org/zh-hans/66186/")
+
+[https://www.guo.media/posts/263061](https://www.guo.media/posts/263061) `2019-12-28T07:55:12`
+##
+
 **milesguo** 平安夜凌晨驻港戒严部队销毁青年坠楼录像<br>[https://gnews.org/zh-hans/66084/](https://gnews.org/zh-hans/66084/ "https://gnews.org/zh-hans/66084/")
 
 [https://www.guo.media/posts/263055](https://www.guo.media/posts/263055) `2019-12-28T06:25:10`
