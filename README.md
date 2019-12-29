@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月28日 美国政要推特精选<br>[https://gnews.org/zh-hans/67529/](https://gnews.org/zh-hans/67529/ "https://gnews.org/zh-hans/67529/")
+
+[https://www.guo.media/posts/263301](https://www.guo.media/posts/263301) `2019-12-29T15:55:11`
+##
+
+**milesguo** 2019年最后年终炮？杭州市萧山化工厂爆炸<br>[https://gnews.org/zh-hans/67579/](https://gnews.org/zh-hans/67579/ "https://gnews.org/zh-hans/67579/")
+
+[https://www.guo.media/posts/263299](https://www.guo.media/posts/263299) `2019-12-29T15:55:14`
+##
+
 **milesguo** [Hong Kong] Five Policemen beating one protestor<br>[https://gnews.org/66636/](https://gnews.org/66636/ "https://gnews.org/66636/")
 
 [https://www.guo.media/posts/263296](https://www.guo.media/posts/263296) `2019-12-29T15:10:10`
