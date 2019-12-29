@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Stock IPO and Listing Becomes Easier Under CCP’s Revised Securities Law<br>[https://gnews.org/66905/](https://gnews.org/66905/ "https://gnews.org/66905/")
+
+[https://www.guo.media/posts/263324](https://www.guo.media/posts/263324) `2019-12-29T17:55:10`
+##
+
+**milesguo** The freeze of Spark Alliance’s account stirring up worries on the safety of individual property in HK, says Alvin Yeung<br>[https://gnews.org/66888/](https://gnews.org/66888/ "https://gnews.org/66888/")
+
+[https://www.guo.media/posts/263323](https://www.guo.media/posts/263323) `2019-12-29T17:55:13`
+##
+
+**milesguo** Police Arrested 336 People During Christmas Holidays, Youngest Aged 12<br>[https://gnews.org/66307/](https://gnews.org/66307/ "https://gnews.org/66307/")
+
+[https://www.guo.media/posts/263322](https://www.guo.media/posts/263322) `2019-12-29T17:55:15`
+##
+
 **milesguo** 一名党龄30年的老党员与爆料革命（第二章）<br>[https://gnews.org/zh-hans/67797/](https://gnews.org/zh-hans/67797/ "https://gnews.org/zh-hans/67797/")
 
 [https://www.guo.media/posts/263320](https://www.guo.media/posts/263320) `2019-12-29T17:40:11`
