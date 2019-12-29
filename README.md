@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [Hong Kong] Five Policemen beating one protestor<br>[https://gnews.org/66636/](https://gnews.org/66636/ "https://gnews.org/66636/")
+
+[https://www.guo.media/posts/263296](https://www.guo.media/posts/263296) `2019-12-29T15:10:10`
+##
+
 **milesguo** 小巴猪：中共希望拉拢日韩和东盟对抗美国，痴人说梦<br>[https://gnews.org/zh-hans/67365/](https://gnews.org/zh-hans/67365/ "https://gnews.org/zh-hans/67365/")
 
 [https://www.guo.media/posts/263291](https://www.guo.media/posts/263291) `2019-12-29T14:25:10`
