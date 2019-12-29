@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 大量青年便衣黑警卧底疯狂抓人<br>[https://gnews.org/zh-hans/67371/](https://gnews.org/zh-hans/67371/ "https://gnews.org/zh-hans/67371/")
+
+[https://www.guo.media/posts/263318](https://www.guo.media/posts/263318) `2019-12-29T17:25:12`
+##
+
 **milesguo** 东风导弹制的末端导技术乃沿袭自美国潘兴II导弹<br>[https://gnews.org/zh-hans/67753/](https://gnews.org/zh-hans/67753/ "https://gnews.org/zh-hans/67753/")
 
 [https://www.guo.media/posts/263311](https://www.guo.media/posts/263311) `2019-12-29T16:55:12`
