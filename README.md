@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 日本大学中国籍教授 回国后失联！<br>[https://gnews.org/zh-hans/67746/](https://gnews.org/zh-hans/67746/ "https://gnews.org/zh-hans/67746/")
+
+[https://www.guo.media/posts/263310](https://www.guo.media/posts/263310) `2019-12-29T16:40:10`
+##
+
+**milesguo** 抖音日本紧急招聘 视频审查员<br>[https://gnews.org/zh-hans/67691/](https://gnews.org/zh-hans/67691/ "https://gnews.org/zh-hans/67691/")
+
+[https://www.guo.media/posts/263309](https://www.guo.media/posts/263309) `2019-12-29T16:40:13`
+##
+
 **milesguo** 谈谈中美之战与爆料革命<br>[https://gnews.org/zh-hans/67640/](https://gnews.org/zh-hans/67640/ "https://gnews.org/zh-hans/67640/")
 
 [https://www.guo.media/posts/263305](https://www.guo.media/posts/263305) `2019-12-29T16:10:10`
