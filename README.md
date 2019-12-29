@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** December 28, Posters on HK Protest<br>[https://gnews.org/66941/](https://gnews.org/66941/ "https://gnews.org/66941/")
+
+[https://www.guo.media/posts/263325](https://www.guo.media/posts/263325) `2019-12-29T18:10:11`
+##
+
 **milesguo** Stock IPO and Listing Becomes Easier Under CCP’s Revised Securities Law<br>[https://gnews.org/66905/](https://gnews.org/66905/ "https://gnews.org/66905/")
 
 [https://www.guo.media/posts/263324](https://www.guo.media/posts/263324) `2019-12-29T17:55:10`
