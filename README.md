@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** “说真话”-反共灭共的有力武器<br>[https://gnews.org/zh-hans/67202/](https://gnews.org/zh-hans/67202/ "https://gnews.org/zh-hans/67202/")
+
+[https://www.guo.media/posts/263287](https://www.guo.media/posts/263287) `2019-12-29T13:55:11`
+##
+
+**milesguo** 12月28日驻港戒严部队上水商场逮捕示威者 便衣警察互相抓捕？<br>[https://gnews.org/zh-hans/67138/](https://gnews.org/zh-hans/67138/ "https://gnews.org/zh-hans/67138/")
+
+[https://www.guo.media/posts/263286](https://www.guo.media/posts/263286) `2019-12-29T13:55:14`
+##
+
 **milesguo** 言论自由运动（FOSOP）：美国抵制中共长臂 捍卫校园言论自由<br>[https://gnews.org/zh-hans/67690/](https://gnews.org/zh-hans/67690/ "https://gnews.org/zh-hans/67690/")
 
 [https://www.guo.media/posts/263275](https://www.guo.media/posts/263275) `2019-12-29T12:40:11`
