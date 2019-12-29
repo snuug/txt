@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Wang Qishan’s recent state. The end is coming for HNA. Who tried to murder [Mr.Guo?](http://Mr.Guo? "Mr.Guo?") [https://gnews.org/67451/](https://gnews.org/67451/ "https://gnews.org/67451/")
+
+[https://www.guo.media/posts/263341](https://www.guo.media/posts/263341) `2019-12-29T20:55:11`
+##
+
+**milesguo** “US won’t give up until CCP exterminated” highlights of Miles Guo’s live broadcast on December 28<br>[https://gnews.org/67261/](https://gnews.org/67261/ "https://gnews.org/67261/")
+
+[https://www.guo.media/posts/263339](https://www.guo.media/posts/263339) `2019-12-29T20:55:14`
+##
+
+**milesguo** Miles Guo: How do American negotiators view the China-US trade negotiations？<br>[https://gnews.org/67298/](https://gnews.org/67298/ "https://gnews.org/67298/")
+
+[https://www.guo.media/posts/263338](https://www.guo.media/posts/263338) `2019-12-29T20:55:16`
+##
+
+**milesguo** Plainsclothes Police Subdued Many People in Sheung Shui Plaza<br>[https://gnews.org/66429/](https://gnews.org/66429/ "https://gnews.org/66429/")
+
+[https://www.guo.media/posts/263337](https://www.guo.media/posts/263337) `2019-12-29T20:55:20`
+##
+
 **milesguo** December 28, Posters on HK Protest<br>[https://gnews.org/66941/](https://gnews.org/66941/ "https://gnews.org/66941/")
 
 [https://www.guo.media/posts/263325](https://www.guo.media/posts/263325) `2019-12-29T18:10:11`
