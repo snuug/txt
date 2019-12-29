@@ -13,6 +13,12 @@
 
 ## 頁面 7/22 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [22](/content/README-22.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
+
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/2019/06/20190621-2858079650750078361.md)
+
+[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
+
 [文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
 
 [文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
@@ -56,12 +62,6 @@
 [翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/2019/05/20190514-4477543672120238865.md)
-
-[文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/2019/05/20190512-8072600133061975327.md)
-
-[文字版：2019年5月10日文贵50岁生日感言](/content/2019/05/20190511-4805446820921789375.md)
-
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/2019/05/20190511-3890850294287177156.md)
 
 
 ## 頁面 7/22 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [22](/content/README-22.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)

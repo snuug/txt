@@ -13,6 +13,12 @@
 
 ## 頁面 6/22 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [22](/content/README-22.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月25日 请战友们记住7月21号7月23号7月24号7月25号 一切都是刚刚开始](/content/2019/07/20190728-6395183003803536442.md)
+
+[文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/content/2019/07/20190726-326879781741066444.md)
+
+[文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
+
 [文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
 
 [文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
@@ -56,12 +62,6 @@
 [翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
 
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/2019/06/20190623-2853766971834487830.md)
-
-[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
-
-[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/2019/06/20190621-2858079650750078361.md)
-
-[文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
 
 
 ## 頁面 6/22 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [22](/content/README-22.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
