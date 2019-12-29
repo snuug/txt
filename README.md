@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 东风导弹制的末端导技术乃沿袭自美国潘兴II导弹<br>[https://gnews.org/zh-hans/67753/](https://gnews.org/zh-hans/67753/ "https://gnews.org/zh-hans/67753/")
+
+[https://www.guo.media/posts/263311](https://www.guo.media/posts/263311) `2019-12-29T16:55:12`
+##
+
 **milesguo** 日本大学中国籍教授 回国后失联！<br>[https://gnews.org/zh-hans/67746/](https://gnews.org/zh-hans/67746/ "https://gnews.org/zh-hans/67746/")
 
 [https://www.guo.media/posts/263310](https://www.guo.media/posts/263310) `2019-12-29T16:40:10`
