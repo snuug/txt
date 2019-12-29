@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** “回应细丝设立基金,’尹队长’问题和亚当’双面道’;习王之战全面开始”12月28日郭文贵先生直播文字摘要<br>[https://gnews.org/zh-hans/67113/](https://gnews.org/zh-hans/67113/ "https://gnews.org/zh-hans/67113/")
+
+[https://www.guo.media/posts/263191](https://www.guo.media/posts/263191) `2019-12-29T01:40:11`
+##
+
+**milesguo** 外资入中共——有去无回<br>[https://gnews.org/zh-hans/67038/](https://gnews.org/zh-hans/67038/ "https://gnews.org/zh-hans/67038/")
+
+[https://www.guo.media/posts/263190](https://www.guo.media/posts/263190) `2019-12-29T01:40:14`
+##
+
 **milesguo** 驳环球时报社评：韩国媒体莫太敏感 莫动辄上纲上线<br>[https://gnews.org/zh-hans/66925/](https://gnews.org/zh-hans/66925/ "https://gnews.org/zh-hans/66925/")
 
 [https://www.guo.media/posts/263189](https://www.guo.media/posts/263189) `2019-12-29T01:25:11`
