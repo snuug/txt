@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中共希望拉拢日韩和东盟对抗美国，痴人说梦<br>[https://gnews.org/zh-hans/67365/](https://gnews.org/zh-hans/67365/ "https://gnews.org/zh-hans/67365/")
+
+[https://www.guo.media/posts/263291](https://www.guo.media/posts/263291) `2019-12-29T14:25:10`
+##
+
 **milesguo** 街友猝死红磡后巷尸体发臭才被发现<br>[https://gnews.org/zh-hans/67339/](https://gnews.org/zh-hans/67339/ "https://gnews.org/zh-hans/67339/")
 
 [https://www.guo.media/posts/263290](https://www.guo.media/posts/263290) `2019-12-29T14:10:11`
