@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 街友猝死红磡后巷尸体发臭才被发现<br>[https://gnews.org/zh-hans/67339/](https://gnews.org/zh-hans/67339/ "https://gnews.org/zh-hans/67339/")
+
+[https://www.guo.media/posts/263290](https://www.guo.media/posts/263290) `2019-12-29T14:10:11`
+##
+
+**milesguo** 内蒙公安枪杀案 2副局长死伤3警<br>[https://gnews.org/zh-hans/67287/](https://gnews.org/zh-hans/67287/ "https://gnews.org/zh-hans/67287/")
+
+[https://www.guo.media/posts/263289](https://www.guo.media/posts/263289) `2019-12-29T14:10:14`
+##
+
+**milesguo** 德国情报局：去中国旅游时 别被中共偷信息<br>[https://gnews.org/zh-hans/67242/](https://gnews.org/zh-hans/67242/ "https://gnews.org/zh-hans/67242/")
+
+[https://www.guo.media/posts/263288](https://www.guo.media/posts/263288) `2019-12-29T14:10:17`
+##
+
 **milesguo** “说真话”-反共灭共的有力武器<br>[https://gnews.org/zh-hans/67202/](https://gnews.org/zh-hans/67202/ "https://gnews.org/zh-hans/67202/")
 
 [https://www.guo.media/posts/263287](https://www.guo.media/posts/263287) `2019-12-29T13:55:11`
