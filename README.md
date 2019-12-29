@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 谈谈中美之战与爆料革命<br>[https://gnews.org/zh-hans/67640/](https://gnews.org/zh-hans/67640/ "https://gnews.org/zh-hans/67640/")
+
+[https://www.guo.media/posts/263305](https://www.guo.media/posts/263305) `2019-12-29T16:10:10`
+##
+
+**milesguo** 七十年：中国文化之殇！<br>[https://gnews.org/zh-hans/67323/](https://gnews.org/zh-hans/67323/ "https://gnews.org/zh-hans/67323/")
+
+[https://www.guo.media/posts/263303](https://www.guo.media/posts/263303) `2019-12-29T16:10:13`
+##
+
 **milesguo** 12月28日 美国政要推特精选<br>[https://gnews.org/zh-hans/67529/](https://gnews.org/zh-hans/67529/ "https://gnews.org/zh-hans/67529/")
 
 [https://www.guo.media/posts/263301](https://www.guo.media/posts/263301) `2019-12-29T15:55:11`
