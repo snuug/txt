@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo shares how he made his money and his life experiences<br>[https://gnews.org/68026/](https://gnews.org/68026/ "https://gnews.org/68026/")
+
+[https://www.guo.media/posts/263353](https://www.guo.media/posts/263353) `2019-12-29T23:10:10`
+##
+
+**milesguo** Rally Shows the World That Hong Kongers Are Not Willing to Give Up Their Fight<br>[https://gnews.org/67752/](https://gnews.org/67752/ "https://gnews.org/67752/")
+
+[https://www.guo.media/posts/263352](https://www.guo.media/posts/263352) `2019-12-29T23:10:13`
+##
+
+**milesguo** Chinese Communist Party ‘worries’ President Tsai Ing-wen will become a dictator<br>[https://gnews.org/67969/](https://gnews.org/67969/ "https://gnews.org/67969/")
+
+[https://www.guo.media/posts/263351](https://www.guo.media/posts/263351) `2019-12-29T23:10:15`
+##
+
+**milesguo** CCP Meets with Organization of the Islamic Cooperation (OIC)’s Representatives and Principal of General Secretariat<br>[https://gnews.org/67937/](https://gnews.org/67937/ "https://gnews.org/67937/")
+
+[https://www.guo.media/posts/263349](https://www.guo.media/posts/263349) `2019-12-29T23:10:18`
+##
+
+**milesguo** Brother Rain interprets CCP’s front-page news, Dec 28th<br>[https://gnews.org/67899/](https://gnews.org/67899/ "https://gnews.org/67899/")
+
+[https://www.guo.media/posts/263348](https://www.guo.media/posts/263348) `2019-12-29T23:10:20`
+##
+
+**milesguo** Riot Police Loses Control Over Emotions at KowloonBay<br>[https://gnews.org/67125/](https://gnews.org/67125/ "https://gnews.org/67125/")
+
+[https://www.guo.media/posts/263347](https://www.guo.media/posts/263347) `2019-12-29T23:10:23`
+##
+
 **milesguo** Miles Guo: Wang Qishan’s recent state. The end is coming for HNA. Who tried to murder [Mr.Guo?](http://Mr.Guo? "Mr.Guo?") [https://gnews.org/67451/](https://gnews.org/67451/ "https://gnews.org/67451/")
 
 [https://www.guo.media/posts/263341](https://www.guo.media/posts/263341) `2019-12-29T20:55:11`
