@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 一名党龄30年的老党员与爆料革命（第二章）<br>[https://gnews.org/zh-hans/67797/](https://gnews.org/zh-hans/67797/ "https://gnews.org/zh-hans/67797/")
+
+[https://www.guo.media/posts/263320](https://www.guo.media/posts/263320) `2019-12-29T17:40:11`
+##
+
 **milesguo** 大量青年便衣黑警卧底疯狂抓人<br>[https://gnews.org/zh-hans/67371/](https://gnews.org/zh-hans/67371/ "https://gnews.org/zh-hans/67371/")
 
 [https://www.guo.media/posts/263318](https://www.guo.media/posts/263318) `2019-12-29T17:25:12`
