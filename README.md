@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 驳环球时报社评：韩国媒体莫太敏感 莫动辄上纲上线<br>[https://gnews.org/zh-hans/66925/](https://gnews.org/zh-hans/66925/ "https://gnews.org/zh-hans/66925/")
+
+[https://www.guo.media/posts/263189](https://www.guo.media/posts/263189) `2019-12-29T01:25:11`
+##
+
+**milesguo** 为什么“以美灭共”是拯救中国人民的最佳方案<br>[https://gnews.org/zh-hans/66913/](https://gnews.org/zh-hans/66913/ "https://gnews.org/zh-hans/66913/")
+
+[https://www.guo.media/posts/263188](https://www.guo.media/posts/263188) `2019-12-29T01:25:14`
+##
+
 **milesguo** 香港要闻 ：官警勾结 狼狈为奸，民商无助 苦不堪言，一月一齐上街抗极权；文贵凤凰城直播预告：巨变正在发生中<br>[https://gnews.org/zh-hans/66895/](https://gnews.org/zh-hans/66895/ "https://gnews.org/zh-hans/66895/")
 
 [https://www.guo.media/posts/263172](https://www.guo.media/posts/263172) `2019-12-28T23:10:10`
