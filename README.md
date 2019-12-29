@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看重播：12月29日纽约时间9：30郭文贵先生报平安直播！并同时音频电话连线钢铁侠的问答七哥的节目，一切都是刚刚开始！<br>[https://gnews.org/zh-hans/67809/](https://gnews.org/zh-hans/67809/ "https://gnews.org/zh-hans/67809/")
+
+[https://www.guo.media/posts/263354](https://www.guo.media/posts/263354) `2019-12-29T23:40:10`
+##
+
 **milesguo** Miles Guo shares how he made his money and his life experiences<br>[https://gnews.org/68026/](https://gnews.org/68026/ "https://gnews.org/68026/")
 
 [https://www.guo.media/posts/263353](https://www.guo.media/posts/263353) `2019-12-29T23:10:10`
