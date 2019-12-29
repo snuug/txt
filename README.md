@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 言论自由运动（FOSOP）：美国抵制中共长臂 捍卫校园言论自由<br>[https://gnews.org/zh-hans/67690/](https://gnews.org/zh-hans/67690/ "https://gnews.org/zh-hans/67690/")
+
+[https://www.guo.media/posts/263275](https://www.guo.media/posts/263275) `2019-12-29T12:40:11`
+##
+
 **milesguo** 12月29号：尊敬的战友们好！今天上午9:30文贵报平安直播！并同时音频电话连线！钢铁侠的问答七哥的节目，一切都是刚刚开始！看直播请点击这里👉👉👉[https://gnews.org/zh-hans/](https://gnews.org/zh-hans/ "https://gnews.org/zh-hans/")
 
 [https://www.guo.media/posts/263214](https://www.guo.media/posts/263214) `2019-12-29T05:10:11`
