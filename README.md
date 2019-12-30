@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 海康威视员工跳楼身亡公司说抑郁自杀，其中另有隐情！<br>[https://gnews.org/zh-hans/68513/](https://gnews.org/zh-hans/68513/ "https://gnews.org/zh-hans/68513/")
+
+[https://www.guo.media/posts/263580](https://www.guo.media/posts/263580) `2019-12-30T22:25:10`
+##
+
+**milesguo** 美国海军部署最新反舰导弹<br>[https://gnews.org/zh-hans/68489/](https://gnews.org/zh-hans/68489/ "https://gnews.org/zh-hans/68489/")
+
+[https://www.guo.media/posts/263577](https://www.guo.media/posts/263577) `2019-12-30T22:25:13`
+##
+
+**milesguo** 爆料革命究竟是什么，它为什么能有如此之魅力能让世界发生天翻地覆的变化呢 [https://gnews.org/zh-hans/68495/](https://gnews.org/zh-hans/68495/ "https://gnews.org/zh-hans/68495/")
+
+[https://www.guo.media/posts/263576](https://www.guo.media/posts/263576) `2019-12-30T22:25:15`
+##
+
 **milesguo** [https://gnews.org/zh-hans/68342/](https://gnews.org/zh-hans/68342/ "https://gnews.org/zh-hans/68342/")
 
 [https://www.guo.media/posts/263572](https://www.guo.media/posts/263572) `2019-12-30T22:10:10`
