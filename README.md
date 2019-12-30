@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 从华为公司宣布34岁以上员工合同到期不再续签— 来看中共国对工薪阶层的无视<br>[https://gnews.org/zh-hans/67885/](https://gnews.org/zh-hans/67885/ "https://gnews.org/zh-hans/67885/")
+
+[https://www.guo.media/posts/263359](https://www.guo.media/posts/263359) `2019-12-30T00:40:10`
+##
+
 **milesguo** 看重播：12月29日纽约时间9：30郭文贵先生报平安直播！并同时音频电话连线钢铁侠的问答七哥的节目，一切都是刚刚开始！<br>[https://gnews.org/zh-hans/67809/](https://gnews.org/zh-hans/67809/ "https://gnews.org/zh-hans/67809/")
 
 [https://www.guo.media/posts/263354](https://www.guo.media/posts/263354) `2019-12-29T23:40:10`
