@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Verdict Form Released One Week After Miles Guo Won the Defamation Case<br>[https://gnews.org/68149/](https://gnews.org/68149/ "https://gnews.org/68149/")
+
+[https://www.guo.media/posts/263425](https://www.guo.media/posts/263425) `2019-12-30T08:10:10`
+##
+
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 29/12/2019<br>[https://gnews.org/68197/](https://gnews.org/68197/ "https://gnews.org/68197/")
+
+[https://www.guo.media/posts/263423](https://www.guo.media/posts/263423) `2019-12-30T08:10:13`
+##
+
 **milesguo** 惊呆了！2019中共魔幻国度下的A股上市公司<br>[https://gnews.org/zh-hans/68198/](https://gnews.org/zh-hans/68198/ "https://gnews.org/zh-hans/68198/")
 
 [https://www.guo.media/posts/263416](https://www.guo.media/posts/263416) `2019-12-30T06:25:10`
