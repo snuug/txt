@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看直播！纽约时间12月30日郭文贵先生报平安直播谈CCP诡计拉外资<br>[https://gnews.org/zh-hans/68496/](https://gnews.org/zh-hans/68496/ "https://gnews.org/zh-hans/68496/")
+
+[https://www.guo.media/posts/263511](https://www.guo.media/posts/263511) `2019-12-30T15:25:10`
+##
+
 **milesguo** 12月30号：尊敬的战友们好！文贵会在40分钟后……也就是9:30报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/263492](https://www.guo.media/posts/263492) `2019-12-30T14:10:10`
