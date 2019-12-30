@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 17 Year-Old Student suffers post-traumatic stress disorder (PTSD) after police brutality<br>[https://gnews.org/68397/](https://gnews.org/68397/ "https://gnews.org/68397/")
+
+[https://www.guo.media/posts/263479](https://www.guo.media/posts/263479) `2019-12-30T13:10:10`
+##
+
+**milesguo** [China] Man arrested for selling VPN routers<br>[https://gnews.org/68379/](https://gnews.org/68379/ "https://gnews.org/68379/")
+
+[https://www.guo.media/posts/263478](https://www.guo.media/posts/263478) `2019-12-30T13:10:13`
+##
+
+**milesguo** HK Publishers Advised to Amend the Teaching Material for Liberal Studies<br>[https://gnews.org/68145/](https://gnews.org/68145/ "https://gnews.org/68145/")
+
+[https://www.guo.media/posts/263477](https://www.guo.media/posts/263477) `2019-12-30T13:10:16`
+##
+
 **milesguo** 郭文贵先生告郭宝胜诽谤欺诈赢得大胜，公布判决文件<br>[https://gnews.org/zh-hans/68334/](https://gnews.org/zh-hans/68334/ "https://gnews.org/zh-hans/68334/")
 
 [https://www.guo.media/posts/263429](https://www.guo.media/posts/263429) `2019-12-30T08:25:11`
