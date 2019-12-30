@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 中共被指用骇客组织攻击新疆与香港人权活动人士<br>[https://gnews.org/zh-hans/68049/](https://gnews.org/zh-hans/68049/ "https://gnews.org/zh-hans/68049/")
+
+[https://www.guo.media/posts/263370](https://www.guo.media/posts/263370) `2019-12-30T01:40:10`
+##
+
+**milesguo** “双修”已在教师界中蔓延，中共控制下的教育还有何意义呢<br>[https://gnews.org/zh-hans/68028/](https://gnews.org/zh-hans/68028/ "https://gnews.org/zh-hans/68028/")
+
+[https://www.guo.media/posts/263369](https://www.guo.media/posts/263369) `2019-12-30T01:40:13`
+##
+
+**milesguo** “爆料革命天空飘来两行字儿: 必须灭掉共产党; 必须无果无利无求无惧 ” 12月29号 郭文贵先生直播文字摘要<br>[https://gnews.org/zh-hans/67994/](https://gnews.org/zh-hans/67994/ "https://gnews.org/zh-hans/67994/")
+
+[https://www.guo.media/posts/263368](https://www.guo.media/posts/263368) `2019-12-30T01:40:15`
+##
+
+**milesguo** 信马列、信“双修”才是真正的迷信<br>[https://gnews.org/zh-hans/68005/](https://gnews.org/zh-hans/68005/ "https://gnews.org/zh-hans/68005/")
+
+[https://www.guo.media/posts/263366](https://www.guo.media/posts/263366) `2019-12-30T01:40:18`
+##
+
+**milesguo** 愿荣归香港<br>[https://gnews.org/zh-hans/67958/](https://gnews.org/zh-hans/67958/ "https://gnews.org/zh-hans/67958/")
+
+[https://www.guo.media/posts/263365](https://www.guo.media/posts/263365) `2019-12-30T01:40:21`
+##
+
+**milesguo** 广播：2019/12/29郭文贵先生直播连线钢铁侠<br>[https://gnews.org/zh-hans/67914/](https://gnews.org/zh-hans/67914/ "https://gnews.org/zh-hans/67914/")
+
+[https://www.guo.media/posts/263364](https://www.guo.media/posts/263364) `2019-12-30T01:40:23`
+##
+
 **milesguo** 上水广场驻港戒严部队军警多人疯狂围殴男青年<br>[https://gnews.org/zh-hans/67855/](https://gnews.org/zh-hans/67855/ "https://gnews.org/zh-hans/67855/")
 
 [https://www.guo.media/posts/263361](https://www.guo.media/posts/263361) `2019-12-30T01:10:10`
