@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** White Terror: Dismiss Principals for Supporting Teachers’ Behaviour<br>[https://gnews.org/67929/](https://gnews.org/67929/ "https://gnews.org/67929/")
+
+[https://www.guo.media/posts/263480](https://www.guo.media/posts/263480) `2019-12-30T13:25:10`
+##
+
 **milesguo** 17 Year-Old Student suffers post-traumatic stress disorder (PTSD) after police brutality<br>[https://gnews.org/68397/](https://gnews.org/68397/ "https://gnews.org/68397/")
 
 [https://www.guo.media/posts/263479](https://www.guo.media/posts/263479) `2019-12-30T13:10:10`
