@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 惊呆了！2019中共魔幻国度下的A股上市公司<br>[https://gnews.org/zh-hans/68198/](https://gnews.org/zh-hans/68198/ "https://gnews.org/zh-hans/68198/")
+
+[https://www.guo.media/posts/263416](https://www.guo.media/posts/263416) `2019-12-30T06:25:10`
+##
+
 **milesguo** 12月29日 西方政要推文精选<br>[https://gnews.org/zh-hans/68211/](https://gnews.org/zh-hans/68211/ "https://gnews.org/zh-hans/68211/")
 
 [https://www.guo.media/posts/263397](https://www.guo.media/posts/263397) `2019-12-30T03:55:10`
