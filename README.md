@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月30日：👉👉👉[https://gnews.org下午6:00文贵将在半小时内第二次直播！](https://gnews.org下午6:00文贵将在半小时内第二次直播！ "https://gnews.org下午6:00文贵将在半小时内第二次直播！")<br>向战友们征求1月22号法制基金的年会和1月26号中国春节的直播节目战友们的意见……一切都是刚刚开始。[https://gnews.org](https://gnews.org "https://gnews.org")
+
+[https://www.guo.media/posts/263587](https://www.guo.media/posts/263587) `2019-12-30T22:55:10`
+##
+
 **milesguo** 2019年末海航董事长陈峰：没钱了，工资发放要延后！<br>[https://gnews.org/zh-hans/68590/](https://gnews.org/zh-hans/68590/ "https://gnews.org/zh-hans/68590/")
 
 [https://www.guo.media/posts/263583](https://www.guo.media/posts/263583) `2019-12-30T22:40:10`
