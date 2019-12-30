@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 上水广场驻港戒严部队军警多人疯狂围殴男青年<br>[https://gnews.org/zh-hans/67855/](https://gnews.org/zh-hans/67855/ "https://gnews.org/zh-hans/67855/")
+
+[https://www.guo.media/posts/263361](https://www.guo.media/posts/263361) `2019-12-30T01:10:10`
+##
+
 **milesguo** 从华为公司宣布34岁以上员工合同到期不再续签— 来看中共国对工薪阶层的无视<br>[https://gnews.org/zh-hans/67885/](https://gnews.org/zh-hans/67885/ "https://gnews.org/zh-hans/67885/")
 
 [https://www.guo.media/posts/263359](https://www.guo.media/posts/263359) `2019-12-30T00:40:10`
