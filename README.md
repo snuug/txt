@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 离开爆料革命，你什么都不是<br>[https://gnews.org/zh-hans/68046/](https://gnews.org/zh-hans/68046/ "https://gnews.org/zh-hans/68046/")
+
+[https://www.guo.media/posts/263538](https://www.guo.media/posts/263538) `2019-12-30T18:25:13`
+##
+
+**milesguo** 2021年量产射程超过1000公里雄二E巡弋飞弹打击面涵盖解放军东部和南部战区<br>[https://gnews.org/zh-hans/68418/](https://gnews.org/zh-hans/68418/ "https://gnews.org/zh-hans/68418/")
+
+[https://www.guo.media/posts/263537](https://www.guo.media/posts/263537) `2019-12-30T18:25:16`
+##
+
 **milesguo** 12月30日：尊敬的战友们发来了很多如何看今天直播的问题！请战友们点击这里就可以进入到GNEWS主页点击进入GTV就可以看今天的和所有的文贵直播👉👉👉[https://gnews.org/一切都是刚刚开始！](https://gnews.org/一切都是刚刚开始！ "https://gnews.org/一切都是刚刚开始！")
 
 [https://www.guo.media/posts/263532](https://www.guo.media/posts/263532) `2019-12-30T17:25:10`
