@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月30日：尊敬的战友们发来了很多如何看今天直播的问题！请战友们点击这里就可以进入到GNEWS主页点击进入GTV就可以看今天的和所有的文贵直播👉👉👉[https://gnews.org/一切都是刚刚开始！](https://gnews.org/一切都是刚刚开始！ "https://gnews.org/一切都是刚刚开始！")
+
+[https://www.guo.media/posts/263532](https://www.guo.media/posts/263532) `2019-12-30T17:25:10`
+##
+
+**milesguo** 12月30号：12:17如果战友们有时间请点击，这里看一看正在直播的安平漫谈吧，一切都是刚刚开始！[https://youtu.be/dU7ESXeH3ck](https://youtu.be/dU7ESXeH3ck "https://youtu.be/dU7ESXeH3ck")
+
+[https://www.guo.media/posts/263531](https://www.guo.media/posts/263531) `2019-12-30T17:25:13`
+##
+
 **milesguo** 看直播！纽约时间12月30日郭文贵先生报平安直播谈CCP诡计拉外资<br>[https://gnews.org/zh-hans/68496/](https://gnews.org/zh-hans/68496/ "https://gnews.org/zh-hans/68496/")
 
 [https://www.guo.media/posts/263511](https://www.guo.media/posts/263511) `2019-12-30T15:25:10`
