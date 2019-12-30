@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 12月29日 西方政要推文精选<br>[https://gnews.org/zh-hans/68211/](https://gnews.org/zh-hans/68211/ "https://gnews.org/zh-hans/68211/")
+
+[https://www.guo.media/posts/263397](https://www.guo.media/posts/263397) `2019-12-30T03:55:10`
+##
+
+**milesguo** 提高华人形象，我们每个人都必须行动起来<br>[https://gnews.org/zh-hans/68144/](https://gnews.org/zh-hans/68144/ "https://gnews.org/zh-hans/68144/")
+
+[https://www.guo.media/posts/263393](https://www.guo.media/posts/263393) `2019-12-30T03:55:13`
+##
+
 **milesguo** <br>第二个中国人涉偷拍美国佛州海军基地「禁区」造被捕<br>[https://gnews.org/zh-hans/68067/](https://gnews.org/zh-hans/68067/ "https://gnews.org/zh-hans/68067/")
 
 [https://www.guo.media/posts/263389](https://www.guo.media/posts/263389) `2019-12-30T03:40:11`
