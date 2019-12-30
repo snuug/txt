@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 奴性被连根拔起之日，才是教育落地生根之时<br>[https://gnews.org/zh-hans/68109/](https://gnews.org/zh-hans/68109/ "https://gnews.org/zh-hans/68109/")
+
+[https://www.guo.media/posts/263371](https://www.guo.media/posts/263371) `2019-12-30T01:55:10`
+##
+
 **milesguo** 中共被指用骇客组织攻击新疆与香港人权活动人士<br>[https://gnews.org/zh-hans/68049/](https://gnews.org/zh-hans/68049/ "https://gnews.org/zh-hans/68049/")
 
 [https://www.guo.media/posts/263370](https://www.guo.media/posts/263370) `2019-12-30T01:40:10`
