@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年末海航董事长陈峰：没钱了，工资发放要延后！<br>[https://gnews.org/zh-hans/68590/](https://gnews.org/zh-hans/68590/ "https://gnews.org/zh-hans/68590/")
+
+[https://www.guo.media/posts/263583](https://www.guo.media/posts/263583) `2019-12-30T22:40:10`
+##
+
+**milesguo** 小巴猪：央行数字货币最大的作用就是匿名转钱<br>[https://gnews.org/zh-hans/68599/](https://gnews.org/zh-hans/68599/ "https://gnews.org/zh-hans/68599/")
+
+[https://www.guo.media/posts/263581](https://www.guo.media/posts/263581) `2019-12-30T22:40:13`
+##
+
 **milesguo** 海康威视员工跳楼身亡公司说抑郁自杀，其中另有隐情！<br>[https://gnews.org/zh-hans/68513/](https://gnews.org/zh-hans/68513/ "https://gnews.org/zh-hans/68513/")
 
 [https://www.guo.media/posts/263580](https://www.guo.media/posts/263580) `2019-12-30T22:25:10`
