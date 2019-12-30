@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生告郭宝胜诽谤欺诈赢得大胜，公布判决文件<br>[https://gnews.org/zh-hans/68334/](https://gnews.org/zh-hans/68334/ "https://gnews.org/zh-hans/68334/")
+
+[https://www.guo.media/posts/263429](https://www.guo.media/posts/263429) `2019-12-30T08:25:11`
+##
+
+**milesguo** 香港在曝城门水塘发现浮尸 身份死因待查<br>[https://gnews.org/zh-hans/68293/](https://gnews.org/zh-hans/68293/ "https://gnews.org/zh-hans/68293/")
+
+[https://www.guo.media/posts/263426](https://www.guo.media/posts/263426) `2019-12-30T08:25:16`
+##
+
 **milesguo** Verdict Form Released One Week After Miles Guo Won the Defamation Case<br>[https://gnews.org/68149/](https://gnews.org/68149/ "https://gnews.org/68149/")
 
 [https://www.guo.media/posts/263425](https://www.guo.media/posts/263425) `2019-12-30T08:10:10`
