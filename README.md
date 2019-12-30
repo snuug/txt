@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>第二个中国人涉偷拍美国佛州海军基地「禁区」造被捕<br>[https://gnews.org/zh-hans/68067/](https://gnews.org/zh-hans/68067/ "https://gnews.org/zh-hans/68067/")
+
+[https://www.guo.media/posts/263389](https://www.guo.media/posts/263389) `2019-12-30T03:40:11`
+##
+
 **milesguo** 奴性被连根拔起之日，才是教育落地生根之时<br>[https://gnews.org/zh-hans/68109/](https://gnews.org/zh-hans/68109/ "https://gnews.org/zh-hans/68109/")
 
 [https://www.guo.media/posts/263371](https://www.guo.media/posts/263371) `2019-12-30T01:55:10`
