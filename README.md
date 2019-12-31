@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜<br>[https://gnews.org/zh-hans/69104/](https://gnews.org/zh-hans/69104/ "https://gnews.org/zh-hans/69104/")
+
+[https://www.guo.media/posts/263669](https://www.guo.media/posts/263669) `2019-12-31T04:55:10`
+##
+
+**milesguo** 广播：2019/12/30郭文贵先生第二次直播 美军航母出动秒杀伊朗革命卫队军事基地；王健装尸袋照片爆出，他在流泪！<br>[https://gnews.org/zh-hans/69125/](https://gnews.org/zh-hans/69125/ "https://gnews.org/zh-hans/69125/")
+
+[https://www.guo.media/posts/263667](https://www.guo.media/posts/263667) `2019-12-31T04:55:14`
+##
+
 **milesguo** 慎入！郭文贵直播爆料海航前董事长王健最新尸体照片！<br>[https://gnews.org/zh-hans/68999/](https://gnews.org/zh-hans/68999/ "https://gnews.org/zh-hans/68999/")
 
 [https://www.guo.media/posts/263645](https://www.guo.media/posts/263645) `2019-12-31T02:55:10`
