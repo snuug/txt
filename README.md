@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 港高校生被抓3次曝光黑警刑求、性侵暴行、伪造搜查令<br>[https://gnews.org/zh-hans/69318/](https://gnews.org/zh-hans/69318/ "https://gnews.org/zh-hans/69318/")
+
+[https://www.guo.media/posts/263703](https://www.guo.media/posts/263703) `2019-12-31T07:10:11`
+##
+
+**milesguo** 2020是霹雳年，不能让任何人阻挡爆料革命！2019年12月30日郭文贵先生第一次直播摘要<br>[https://gnews.org/zh-hans/69295/](https://gnews.org/zh-hans/69295/ "https://gnews.org/zh-hans/69295/")
+
+[https://www.guo.media/posts/263702](https://www.guo.media/posts/263702) `2019-12-31T07:10:15`
+##
+
+**milesguo** “美军空袭就是针对俄中伊军演;更多王健惨死照片曝光;王岐山惧怕到死 ” 12月30号 郭文贵先生直播文字摘要<br>[https://gnews.org/zh-hans/69235/](https://gnews.org/zh-hans/69235/ "https://gnews.org/zh-hans/69235/")
+
+[https://www.guo.media/posts/263701](https://www.guo.media/posts/263701) `2019-12-31T07:10:18`
+##
+
+**milesguo** 中共体制下的暴力教育：浙江龙港市一小学教师8分钟内疯狂殴打数名学生<br>[https://gnews.org/zh-hans/69220/](https://gnews.org/zh-hans/69220/ "https://gnews.org/zh-hans/69220/")
+
+[https://www.guo.media/posts/263700](https://www.guo.media/posts/263700) `2019-12-31T07:10:20`
+##
+
 **milesguo** 看直播：12月30日郭文贵先生第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示<br>[https://gnews.org/zh-hans/69074/](https://gnews.org/zh-hans/69074/ "https://gnews.org/zh-hans/69074/")
 
 [https://www.guo.media/posts/263673](https://www.guo.media/posts/263673) `2019-12-31T05:10:10`
