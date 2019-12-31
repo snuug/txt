@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 黑警天水围再抓人，请大家广传给被抓手足家人<br>[https://gnews.org/zh-hans/68700/](https://gnews.org/zh-hans/68700/ "https://gnews.org/zh-hans/68700/")
+
+[https://www.guo.media/posts/263621](https://www.guo.media/posts/263621) `2019-12-31T01:40:10`
+##
+
+**milesguo** 广播：2019/12/30郭文贵先生直播 2020年谁阻挡爆料革命灭谁 不再涵养细丝亚当等伪类<br>[https://gnews.org/zh-hans/68667/](https://gnews.org/zh-hans/68667/ "https://gnews.org/zh-hans/68667/")
+
+[https://www.guo.media/posts/263619](https://www.guo.media/posts/263619) `2019-12-31T01:40:13`
+##
+
 **milesguo** 12月30日：👉👉👉[https://gnews.org下午6:00文贵将在半小时内第二次直播！](https://gnews.org下午6:00文贵将在半小时内第二次直播！ "https://gnews.org下午6:00文贵将在半小时内第二次直播！")<br>向战友们征求1月22号法制基金的年会和1月26号中国春节的直播节目战友们的意见……一切都是刚刚开始。[https://gnews.org](https://gnews.org "https://gnews.org")
 
 [https://www.guo.media/posts/263587](https://www.guo.media/posts/263587) `2019-12-30T22:55:10`
