@@ -12,6 +12,51 @@
 ## 最新郭文
 
 
+**milesguo** Chinese professor from Japanese University missing after return to China!<br>[https://gnews.org/69145/](https://gnews.org/69145/ "https://gnews.org/69145/")
+
+[https://www.guo.media/posts/263789](https://www.guo.media/posts/263789) `2019-12-31T13:40:10`
+##
+
+**milesguo** The CCP Recruit Volunteers to Promote Loyalty in Canada<br>[https://gnews.org/68972/](https://gnews.org/68972/ "https://gnews.org/68972/")
+
+[https://www.guo.media/posts/263788](https://www.guo.media/posts/263788) `2019-12-31T13:40:13`
+##
+
+**milesguo** Warning!!! Miles Guo Exhibiting Graphic Photos of Murdered HNA CEO’s Body<br>[https://gnews.org/69030/](https://gnews.org/69030/ "https://gnews.org/69030/")
+
+[https://www.guo.media/posts/263786](https://www.guo.media/posts/263786) `2019-12-31T13:40:15`
+##
+
+**milesguo** A series of photos that show the aftermath of the siege of PolyU<br>[https://gnews.org/68608/](https://gnews.org/68608/ "https://gnews.org/68608/")
+
+[https://www.guo.media/posts/263785](https://www.guo.media/posts/263785) `2019-12-31T13:40:18`
+##
+
+**milesguo** December 30, Posters on HK Protest<br>[https://gnews.org/68839/](https://gnews.org/68839/ "https://gnews.org/68839/")
+
+[https://www.guo.media/posts/263783](https://www.guo.media/posts/263783) `2019-12-31T13:40:21`
+##
+
+**milesguo** CCP and Tanzania held joint military training code named “Sincere Partners-2019”<br>[https://gnews.org/68799/](https://gnews.org/68799/ "https://gnews.org/68799/")
+
+[https://www.guo.media/posts/263781](https://www.guo.media/posts/263781) `2019-12-31T13:40:23`
+##
+
+**milesguo** Geng Shuang urged the US to ensure “Freedom from Fear” for its own people<br>[https://gnews.org/68704/](https://gnews.org/68704/ "https://gnews.org/68704/")
+
+[https://www.guo.media/posts/263780](https://www.guo.media/posts/263780) `2019-12-31T13:40:26`
+##
+
+**milesguo** Chinese Protestant pastor Wang Yi jailed for ‘inciting’ subversion<br>[https://gnews.org/68797/](https://gnews.org/68797/ "https://gnews.org/68797/")
+
+[https://www.guo.media/posts/263779](https://www.guo.media/posts/263779) `2019-12-31T13:40:28`
+##
+
+**milesguo** Public Memorial in Hong Kong: Residents Mourn Despite Vandalism<br>[https://gnews.org/68434/](https://gnews.org/68434/ "https://gnews.org/68434/")
+
+[https://www.guo.media/posts/263778](https://www.guo.media/posts/263778) `2019-12-31T13:40:31`
+##
+
 **milesguo** GNEWS独家报道：武汉爆发SARS病毒 官方隐瞒信息长达五天！<br>[https://gnews.org/zh-hans/69337/](https://gnews.org/zh-hans/69337/ "https://gnews.org/zh-hans/69337/")
 
 [https://www.guo.media/posts/263717](https://www.guo.media/posts/263717) `2019-12-31T08:10:10`
