@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月31号：尊敬的战友们好！这期的面具先生节目做得太好了……👉👉👉如果有时间请战友们点击观看！[https://youtu.be/xw2e7khE9qA](https://youtu.be/xw2e7khE9qA "https://youtu.be/xw2e7khE9qA")
+
+[https://www.guo.media/posts/263854](https://www.guo.media/posts/263854) `2019-12-31T18:10:10`
+##
+
 **milesguo** 12月30日：老顽童先生和卡丽熙女士及Q先生今天的节目太精彩了，一切都是刚刚开始。[https://youtu.be/oQ5ei-USgZM](https://youtu.be/oQ5ei-USgZM "https://youtu.be/oQ5ei-USgZM")
 
 [https://www.guo.media/posts/263846](https://www.guo.media/posts/263846) `2019-12-31T17:10:11`
