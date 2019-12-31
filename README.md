@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 慎入！郭文贵直播爆料海航前董事长王健最新尸体照片！<br>[https://gnews.org/zh-hans/68999/](https://gnews.org/zh-hans/68999/ "https://gnews.org/zh-hans/68999/")
+
+[https://www.guo.media/posts/263645](https://www.guo.media/posts/263645) `2019-12-31T02:55:10`
+##
+
+**milesguo** 香港要闻：港人毋忘殇痛雨中集会 继续坚持势争要求；魔警伏击挑衅；叶刘避重就轻 爆内幕图开脱责任；文贵直播摘要 劝勿起贪念<br>[https://gnews.org/zh-hans/69020/](https://gnews.org/zh-hans/69020/ "https://gnews.org/zh-hans/69020/")
+
+[https://www.guo.media/posts/263644](https://www.guo.media/posts/263644) `2019-12-31T02:55:13`
+##
+
 **milesguo** 老共的什么病毒？中国人为什么容易被骗<br>[https://gnews.org/zh-hans/69000/](https://gnews.org/zh-hans/69000/ "https://gnews.org/zh-hans/69000/")
 
 [https://www.guo.media/posts/263638](https://www.guo.media/posts/263638) `2019-12-31T02:40:10`
