@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 老共的什么病毒？中国人为什么容易被骗<br>[https://gnews.org/zh-hans/69000/](https://gnews.org/zh-hans/69000/ "https://gnews.org/zh-hans/69000/")
+
+[https://www.guo.media/posts/263638](https://www.guo.media/posts/263638) `2019-12-31T02:40:10`
+##
+
 **milesguo** 瞧瞧圣诞节期间美军侦察机飞越朝鲜半岛警告北朝鲜，如入无人之境<br>[https://gnews.org/zh-hans/68986/](https://gnews.org/zh-hans/68986/ "https://gnews.org/zh-hans/68986/")
 
 [https://www.guo.media/posts/263637](https://www.guo.media/posts/263637) `2019-12-31T02:25:10`
