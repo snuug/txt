@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** GNEWS独家报道：武汉爆发SARS病毒 官方隐瞒信息长达五天！<br>[https://gnews.org/zh-hans/69337/](https://gnews.org/zh-hans/69337/ "https://gnews.org/zh-hans/69337/")
+
+[https://www.guo.media/posts/263717](https://www.guo.media/posts/263717) `2019-12-31T08:10:10`
+##
+
+**milesguo** 12月30日 美国政要推特精选<br>[https://gnews.org/zh-hans/69335/](https://gnews.org/zh-hans/69335/ "https://gnews.org/zh-hans/69335/")
+
+[https://www.guo.media/posts/263716](https://www.guo.media/posts/263716) `2019-12-31T08:10:12`
+##
+
+**milesguo** 泯灭人性！黑警肆意虐待孕妇至呕吐<br>[https://gnews.org/zh-hans/69321/](https://gnews.org/zh-hans/69321/ "https://gnews.org/zh-hans/69321/")
+
+[https://www.guo.media/posts/263714](https://www.guo.media/posts/263714) `2019-12-31T08:10:15`
+##
+
 **milesguo** 一名党龄30年的老党员与爆料革命（第三章）<br>[https://gnews.org/zh-hans/69193/](https://gnews.org/zh-hans/69193/ "https://gnews.org/zh-hans/69193/")
 
 [https://www.guo.media/posts/263704](https://www.guo.media/posts/263704) `2019-12-31T07:25:10`
