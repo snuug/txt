@@ -12,6 +12,46 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生诉郭宝胜判决书看美国法治<br>[https://gnews.org/zh-hans/69752/](https://gnews.org/zh-hans/69752/ "https://gnews.org/zh-hans/69752/")
+
+[https://www.guo.media/posts/263885](https://www.guo.media/posts/263885) `2019-12-31T22:40:11`
+##
+
+**milesguo** 香港要闻：教育局掀白色恐怖 挟校长执行政治任务；港共喉舌狂批黄色经济圈 ；魔警再使阴招恐吓 图打压元旦大游行<br>[https://gnews.org/zh-hans/69744/](https://gnews.org/zh-hans/69744/ "https://gnews.org/zh-hans/69744/")
+
+[https://www.guo.media/posts/263884](https://www.guo.media/posts/263884) `2019-12-31T22:40:13`
+##
+
+**milesguo** 中共在香港打土豪分田地正在进行中<br>[https://gnews.org/zh-hans/69734/](https://gnews.org/zh-hans/69734/ "https://gnews.org/zh-hans/69734/")
+
+[https://www.guo.media/posts/263883](https://www.guo.media/posts/263883) `2019-12-31T22:40:16`
+##
+
+**milesguo** 小巴猪：权贵借国企混改瓜分天津国企，王岐山家拿一个，孟建柱家拿一个<br>[https://gnews.org/zh-hans/69726/](https://gnews.org/zh-hans/69726/ "https://gnews.org/zh-hans/69726/")
+
+[https://www.guo.media/posts/263882](https://www.guo.media/posts/263882) `2019-12-31T22:40:19`
+##
+
+**milesguo** <br>一名党龄30年的老党员与爆料革命（第四章）<br>[https://gnews.org/zh-hans/69676/](https://gnews.org/zh-hans/69676/ "https://gnews.org/zh-hans/69676/")
+
+[https://www.guo.media/posts/263881](https://www.guo.media/posts/263881) `2019-12-31T22:40:22`
+##
+
+**milesguo** 【年终总结】2019年神奇的夏天——香港反送中运动<br>[https://gnews.org/zh-hans/69643/](https://gnews.org/zh-hans/69643/ "https://gnews.org/zh-hans/69643/")
+
+[https://www.guo.media/posts/263880](https://www.guo.media/posts/263880) `2019-12-31T22:40:24`
+##
+
+**milesguo** 做一个目标明确、立场坚定的战友<br>[https://gnews.org/zh-hans/69625/](https://gnews.org/zh-hans/69625/ "https://gnews.org/zh-hans/69625/")
+
+[https://www.guo.media/posts/263879](https://www.guo.media/posts/263879) `2019-12-31T22:40:27`
+##
+
+**milesguo** 中共工厂流水线式教育毒害中华儿女<br>[https://gnews.org/zh-hans/69252/](https://gnews.org/zh-hans/69252/ "https://gnews.org/zh-hans/69252/")
+
+[https://www.guo.media/posts/263878](https://www.guo.media/posts/263878) `2019-12-31T22:40:31`
+##
+
 **milesguo** 12月31日：给战友上厕所时的消遣礼物🎁……假牧师．骗子郭宝胜为什么请白人律师．还是总统的孙子？郭宝胜的律师费为什么是烤鸭店老板付的？赵岩．火鸡龚为什么知道郭宝胜的律师费来源？傅希秋到底和郭宝盛是什么关系，傅希秋是不是郭宝胜案背后的大佬？假律师江涛．与骗子郭宝胜和烤鸭店的老板及傅希秋又是什么样的关系？鸡腿潘<br>到底有没有黑客别人的技术能力？是不是共匪的白手套？以及龚小夏男朋友是谁？他有多恨杨建利？他是什么时候开始领任务砸了班农的？叶宁和赵岩是什么样的利益关系？陈军陈死烤！孟维参．熊宪民屎诺！的钱是来自何方？怎么拿到的几百万美元是谁当了白手套？请战友们看看文贵在洗手间里翻看手机WhatsApp 的截图．请大家在上厕所时将这几个奇怪的关系拼一下图．会非常有意思．请点击下面的截屏图片！一切都是刚刚开始！
 
 [https://www.guo.media/posts/263873](https://www.guo.media/posts/263873) `2019-12-31T21:10:10`
