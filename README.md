@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 看直播：12月30日郭文贵先生第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示<br>[https://gnews.org/zh-hans/69074/](https://gnews.org/zh-hans/69074/ "https://gnews.org/zh-hans/69074/")
+
+[https://www.guo.media/posts/263673](https://www.guo.media/posts/263673) `2019-12-31T05:10:10`
+##
+
+**milesguo** 班农纳瓦罗战情室12月29日92辑精选 中俄伊海上联合军演意图是什么？<br>[https://gnews.org/zh-hans/68824/](https://gnews.org/zh-hans/68824/ "https://gnews.org/zh-hans/68824/")
+
+[https://www.guo.media/posts/263672](https://www.guo.media/posts/263672) `2019-12-31T05:10:13`
+##
+
+**milesguo** 中共是东亚乱局的邪恶流氓的根源<br>[https://gnews.org/zh-hans/69133/](https://gnews.org/zh-hans/69133/ "https://gnews.org/zh-hans/69133/")
+
+[https://www.guo.media/posts/263671](https://www.guo.media/posts/263671) `2019-12-31T05:10:16`
+##
+
+**milesguo** 中共文字狱！今天你保存聊天记录了吗？<br>[https://gnews.org/zh-hans/69112/](https://gnews.org/zh-hans/69112/ "https://gnews.org/zh-hans/69112/")
+
+[https://www.guo.media/posts/263670](https://www.guo.media/posts/263670) `2019-12-31T05:10:19`
+##
+
 **milesguo** 文字版2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜<br>[https://gnews.org/zh-hans/69104/](https://gnews.org/zh-hans/69104/ "https://gnews.org/zh-hans/69104/")
 
 [https://www.guo.media/posts/263669](https://www.guo.media/posts/263669) `2019-12-31T04:55:10`
