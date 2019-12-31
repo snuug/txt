@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月30日：老顽童先生和卡丽熙女士及Q先生今天的节目太精彩了，一切都是刚刚开始。[https://youtu.be/oQ5ei-USgZM](https://youtu.be/oQ5ei-USgZM "https://youtu.be/oQ5ei-USgZM")
+
+[https://www.guo.media/posts/263846](https://www.guo.media/posts/263846) `2019-12-31T17:10:11`
+##
+
 **milesguo** 文字版：2019年12月29日郭先生与钢铁侠电话连线直播<br>[https://gnews.org/zh-hans/69462/](https://gnews.org/zh-hans/69462/ "https://gnews.org/zh-hans/69462/")
 
 [https://www.guo.media/posts/263807](https://www.guo.media/posts/263807) `2019-12-31T15:10:10`
