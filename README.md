@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo:Photos of Wang Jian’s tragic death and details of his murder<br>[https://gnews.org/69554/](https://gnews.org/69554/ "https://gnews.org/69554/")
+
+[https://www.guo.media/posts/263791](https://www.guo.media/posts/263791) `2019-12-31T13:55:10`
+##
+
+**milesguo** Miles Guo: 60% of the protesters arrested in Hong Kong were underage children<br>[https://gnews.org/69336/](https://gnews.org/69336/ "https://gnews.org/69336/")
+
+[https://www.guo.media/posts/263790](https://www.guo.media/posts/263790) `2019-12-31T13:55:13`
+##
+
 **milesguo** Chinese professor from Japanese University missing after return to China!<br>[https://gnews.org/69145/](https://gnews.org/69145/ "https://gnews.org/69145/")
 
 [https://www.guo.media/posts/263789](https://www.guo.media/posts/263789) `2019-12-31T13:40:10`
