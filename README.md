@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月31号：尊敬的战友们好，你们健身了吗？你们传播香港危机真相了吗？今天文贵没有报平安视频直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/263795](https://www.guo.media/posts/263795) `2019-12-31T14:25:10`
+##
+
 **milesguo** Miles Guo:Photos of Wang Jian’s tragic death and details of his murder<br>[https://gnews.org/69554/](https://gnews.org/69554/ "https://gnews.org/69554/")
 
 [https://www.guo.media/posts/263791](https://www.guo.media/posts/263791) `2019-12-31T13:55:10`
