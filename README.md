@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 一名党龄30年的老党员与爆料革命（第三章）<br>[https://gnews.org/zh-hans/69193/](https://gnews.org/zh-hans/69193/ "https://gnews.org/zh-hans/69193/")
+
+[https://www.guo.media/posts/263704](https://www.guo.media/posts/263704) `2019-12-31T07:25:10`
+##
+
 **milesguo** 港高校生被抓3次曝光黑警刑求、性侵暴行、伪造搜查令<br>[https://gnews.org/zh-hans/69318/](https://gnews.org/zh-hans/69318/ "https://gnews.org/zh-hans/69318/")
 
 [https://www.guo.media/posts/263703](https://www.guo.media/posts/263703) `2019-12-31T07:10:11`
