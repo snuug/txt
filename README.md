@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 12月31号：看看鸡腿潘(细思)是如何编造虚构贷款项目！向法制社会申请骗贷的文件！👉👉👉[https://spark.adobe.com/page/6eA5aw7VvvK5Q/](https://spark.adobe.com/page/6eA5aw7VvvK5Q/ "https://spark.adobe.com/page/6eA5aw7VvvK5Q/")
+
+[https://www.guo.media/posts/263860](https://www.guo.media/posts/263860) `2019-12-31T19:25:10`
+##
+
 **milesguo** 12月31号：尊敬的战友们好！这期的面具先生节目做得太好了……👉👉👉如果有时间请战友们点击观看！[https://youtu.be/xw2e7khE9qA](https://youtu.be/xw2e7khE9qA "https://youtu.be/xw2e7khE9qA")
 
 [https://www.guo.media/posts/263854](https://www.guo.media/posts/263854) `2019-12-31T18:10:10`
