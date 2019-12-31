@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 文字版：2019年12月29日郭先生与钢铁侠电话连线直播<br>[https://gnews.org/zh-hans/69462/](https://gnews.org/zh-hans/69462/ "https://gnews.org/zh-hans/69462/")
+
+[https://www.guo.media/posts/263807](https://www.guo.media/posts/263807) `2019-12-31T15:10:10`
+##
+
+**milesguo** 爆料革命，坚如磐石 ！<br>[https://gnews.org/zh-hans/69589/](https://gnews.org/zh-hans/69589/ "https://gnews.org/zh-hans/69589/")
+
+[https://www.guo.media/posts/263806](https://www.guo.media/posts/263806) `2019-12-31T15:10:13`
+##
+
+**milesguo** 文字版2019年12月27日文贵报平安录播<br>[https://gnews.org/zh-hans/69561/](https://gnews.org/zh-hans/69561/ "https://gnews.org/zh-hans/69561/")
+
+[https://www.guo.media/posts/263805](https://www.guo.media/posts/263805) `2019-12-31T15:10:16`
+##
+
+**milesguo** 评人民日报头版刊发国纪平文章： 时不我待 只争朝夕——把握中国与世界共同发展的历史机遇<br>[https://gnews.org/zh-hans/69516/](https://gnews.org/zh-hans/69516/ "https://gnews.org/zh-hans/69516/")
+
+[https://www.guo.media/posts/263804](https://www.guo.media/posts/263804) `2019-12-31T15:10:19`
+##
+
 **milesguo** 12月31号：尊敬的战友们好，你们健身了吗？你们传播香港危机真相了吗？今天文贵没有报平安视频直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/263795](https://www.guo.media/posts/263795) `2019-12-31T14:25:10`
