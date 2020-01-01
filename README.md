@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 老共的什么病毒？中国人为什么容易被骗 篇二<br>[https://gnews.org/zh-hans/70064/](https://gnews.org/zh-hans/70064/ "https://gnews.org/zh-hans/70064/")
+
+[https://www.guo.media/posts/263980](https://www.guo.media/posts/263980) `2020-01-01T05:10:11`
+##
+
 **milesguo** 来自财务从业人员的科普-细丝的行为有多么恶劣<br>[https://gnews.org/zh-hans/70051/](https://gnews.org/zh-hans/70051/ "https://gnews.org/zh-hans/70051/")
 
 [https://www.guo.media/posts/263954](https://www.guo.media/posts/263954) `2020-01-01T03:40:10`
