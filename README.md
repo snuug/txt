@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 细得跟丝儿一样的小黄瓜，澳洲鸡腿<br>[https://gnews.org/zh-hans/70368/](https://gnews.org/zh-hans/70368/ "https://gnews.org/zh-hans/70368/") 
+
+[https://www.guo.media/posts/264022](https://www.guo.media/posts/264022) `2020-01-01T08:10:10`
+##
+
+**milesguo** 12月31日 美国政要推文精选<br>[https://gnews.org/zh-hans/70281/](https://gnews.org/zh-hans/70281/ "https://gnews.org/zh-hans/70281/")
+
+[https://www.guo.media/posts/264020](https://www.guo.media/posts/264020) `2020-01-01T08:10:12`
+##
+
 **milesguo** 有图有真相！鸡腿潘是如何诈骗报销的？<br>[https://gnews.org/zh-hans/68962/](https://gnews.org/zh-hans/68962/ "https://gnews.org/zh-hans/68962/")
 
 [https://www.guo.media/posts/263986](https://www.guo.media/posts/263986) `2020-01-01T05:25:10`
