@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 反抗与清理——香港抗议运动中不经意的街头艺术<br>[https://gnews.org/zh-hans/69478/](https://gnews.org/zh-hans/69478/ "https://gnews.org/zh-hans/69478/")
+
+[https://www.guo.media/posts/264052](https://www.guo.media/posts/264052) `2020-01-01T11:25:10`
+##
+
 **milesguo** 土耳其的维吾尔儿童难民<br>[https://gnews.org/zh-hans/70626/](https://gnews.org/zh-hans/70626/ "https://gnews.org/zh-hans/70626/")
 
 [https://www.guo.media/posts/264050](https://www.guo.media/posts/264050) `2020-01-01T10:55:10`
