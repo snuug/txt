@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Anti-Infiltration Efforts and Irregular Warfare in Taiwan<br>[https://gnews.org/69896/](https://gnews.org/69896/ "https://gnews.org/69896/")
+
+[https://www.guo.media/posts/264111](https://www.guo.media/posts/264111) `2020-01-01T16:25:10`
+##
+
+**milesguo** Brother Rain interprets CCP’s front-page news, Dec 30th<br>[https://gnews.org/69826/](https://gnews.org/69826/ "https://gnews.org/69826/")
+
+[https://www.guo.media/posts/264110](https://www.guo.media/posts/264110) `2020-01-01T16:25:13`
+##
+
 **milesguo** Taiwan: anti-infiltration law passed ahead of a ‘dramatic’ election<br>[https://gnews.org/69807/](https://gnews.org/69807/ "https://gnews.org/69807/")
 
 [https://www.guo.media/posts/264109](https://www.guo.media/posts/264109) `2020-01-01T16:10:10`
