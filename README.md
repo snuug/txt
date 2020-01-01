@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 最新消息！美国增派海军陆战队保护巴格达大使馆！<br>[https://gnews.org/zh-hans/69847/](https://gnews.org/zh-hans/69847/ "https://gnews.org/zh-hans/69847/")
+
+[https://www.guo.media/posts/263950](https://www.guo.media/posts/263950) `2020-01-01T03:25:11`
+##
+
+**milesguo** 12月31号：尊敬的战友们好！明天2020年1月1号．纽约时间上午9:30……文贵直播与战友们聊聊文贵<br>对2019年爆料革命的一些感想🤣🤣🤣✊✊✊和2020年的一些计划……时间会很长<br>有正事儿的战友们该干啥干啥，不要浪费时间！一切都是刚刚开始！
+
+[https://www.guo.media/posts/263949](https://www.guo.media/posts/263949) `2020-01-01T03:25:13`
+##
+
 **milesguo** Arbitrary Arrest and Abusive Prosecution: Man Charged for Carrying a Hexagon Key and Spanner<br>[https://gnews.org/69202/](https://gnews.org/69202/ "https://gnews.org/69202/")
 
 [https://www.guo.media/posts/263934](https://www.guo.media/posts/263934) `2020-01-01T02:10:10`
