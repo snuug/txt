@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 法治基金,法治社会每周捐款留言精选集<br>[https://gnews.org/zh-hans/70764/](https://gnews.org/zh-hans/70764/ "https://gnews.org/zh-hans/70764/")
+
+[https://www.guo.media/posts/264090](https://www.guo.media/posts/264090) `2020-01-01T13:40:10`
+##
+
 **milesguo** 中国科学家贺建奎因基因编辑婴儿被判刑三年<br>[https://gnews.org/zh-hans/69563/](https://gnews.org/zh-hans/69563/ "https://gnews.org/zh-hans/69563/")
 
 [https://www.guo.media/posts/264079](https://www.guo.media/posts/264079) `2020-01-01T12:55:10`
