@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 土耳其的维吾尔儿童难民<br>[https://gnews.org/zh-hans/70626/](https://gnews.org/zh-hans/70626/ "https://gnews.org/zh-hans/70626/")
+
+[https://www.guo.media/posts/264050](https://www.guo.media/posts/264050) `2020-01-01T10:55:10`
+##
+
 **milesguo** 中国面临近10年来最严重的组合型经济困境<br>[https://gnews.org/zh-hans/69499/](https://gnews.org/zh-hans/69499/ "https://gnews.org/zh-hans/69499/")
 
 [https://www.guo.media/posts/264042](https://www.guo.media/posts/264042) `2020-01-01T10:25:14`
