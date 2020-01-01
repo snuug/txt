@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Taiwan: anti-infiltration law passed ahead of a ‘dramatic’ election<br>[https://gnews.org/69807/](https://gnews.org/69807/ "https://gnews.org/69807/")
+
+[https://www.guo.media/posts/264109](https://www.guo.media/posts/264109) `2020-01-01T16:10:10`
+##
+
 **milesguo** 看直播：2020年1月1日纽约时间早上9：30左右郭文贵先生直播<br>[https://gnews.org/zh-hans/70562/](https://gnews.org/zh-hans/70562/ "https://gnews.org/zh-hans/70562/")
 
 [https://www.guo.media/posts/264105](https://www.guo.media/posts/264105) `2020-01-01T15:10:11`
