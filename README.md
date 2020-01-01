@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国面临近10年来最严重的组合型经济困境<br>[https://gnews.org/zh-hans/69499/](https://gnews.org/zh-hans/69499/ "https://gnews.org/zh-hans/69499/")
+
+[https://www.guo.media/posts/264042](https://www.guo.media/posts/264042) `2020-01-01T10:25:14`
+##
+
 **milesguo** 2020.1.1新年初始，港人继续抗争维园大游行<br>[https://gnews.org/zh-hans/70422/](https://gnews.org/zh-hans/70422/ "https://gnews.org/zh-hans/70422/")
 
 [https://www.guo.media/posts/264026](https://www.guo.media/posts/264026) `2020-01-01T08:25:11`
