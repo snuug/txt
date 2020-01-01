@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 2020.1.1新年初始，港人继续抗争维园大游行<br>[https://gnews.org/zh-hans/70422/](https://gnews.org/zh-hans/70422/ "https://gnews.org/zh-hans/70422/")
+
+[https://www.guo.media/posts/264026](https://www.guo.media/posts/264026) `2020-01-01T08:25:11`
+##
+
+**milesguo** 黑警心虚拆太子站外祭奠<br>[https://gnews.org/zh-hans/70409/](https://gnews.org/zh-hans/70409/ "https://gnews.org/zh-hans/70409/")
+
+[https://www.guo.media/posts/264025](https://www.guo.media/posts/264025) `2020-01-01T08:25:14`
+##
+
+**milesguo** 中共黑警跨年镇压香港人<br>[https://gnews.org/zh-hans/70379/](https://gnews.org/zh-hans/70379/ "https://gnews.org/zh-hans/70379/")
+
+[https://www.guo.media/posts/264024](https://www.guo.media/posts/264024) `2020-01-01T08:25:16`
+##
+
 **milesguo** 细得跟丝儿一样的小黄瓜，澳洲鸡腿<br>[https://gnews.org/zh-hans/70368/](https://gnews.org/zh-hans/70368/ "https://gnews.org/zh-hans/70368/") 
 
 [https://www.guo.media/posts/264022](https://www.guo.media/posts/264022) `2020-01-01T08:10:10`
