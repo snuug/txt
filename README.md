@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** <br>2020新年第一天郭文贵先生佩戴了一个神秘的徽章<br>[https://gnews.org/zh-hans/70895/](https://gnews.org/zh-hans/70895/ "https://gnews.org/zh-hans/70895/")
+
+[https://www.guo.media/posts/264134](https://www.guo.media/posts/264134) `2020-01-01T18:55:11`
+##
+
+**milesguo** 广播：2020/1/1郭文贵先生直播 2020是盘古开天霹雳年，灭掉共产党！<br>[https://gnews.org/zh-hans/70858/](https://gnews.org/zh-hans/70858/ "https://gnews.org/zh-hans/70858/")
+
+[https://www.guo.media/posts/264133](https://www.guo.media/posts/264133) `2020-01-01T18:55:14`
+##
+
 **milesguo** The Farm: Anti-Infiltration Efforts and Irregular Warfare in Taiwan<br>[https://gnews.org/69896/](https://gnews.org/69896/ "https://gnews.org/69896/")
 
 [https://www.guo.media/posts/264111](https://www.guo.media/posts/264111) `2020-01-01T16:25:10`
