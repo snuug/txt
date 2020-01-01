@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 从中共国商务部长的一席话，看2020全面朝鲜化的阴谋？<br>[https://gnews.org/zh-hans/70557/](https://gnews.org/zh-hans/70557/ "https://gnews.org/zh-hans/70557/")
+
+[https://www.guo.media/posts/264095](https://www.guo.media/posts/264095) `2020-01-01T14:10:10`
+##
+
+**milesguo** 驻港戒严部队便衣冒充示威者反被识破 仓皇逃跑掉落汽油弹<br>[https://gnews.org/zh-hans/70631/](https://gnews.org/zh-hans/70631/ "https://gnews.org/zh-hans/70631/")
+
+[https://www.guo.media/posts/264094](https://www.guo.media/posts/264094) `2020-01-01T14:10:13`
+##
+
+**milesguo** 从郭宝胜与傳希秋看中共无处不在的渗透<br>[https://gnews.org/zh-hans/70246/](https://gnews.org/zh-hans/70246/ "https://gnews.org/zh-hans/70246/")
+
+[https://www.guo.media/posts/264093](https://www.guo.media/posts/264093) `2020-01-01T14:10:16`
+##
+
 **milesguo** 法治基金,法治社会每周捐款留言精选集<br>[https://gnews.org/zh-hans/70764/](https://gnews.org/zh-hans/70764/ "https://gnews.org/zh-hans/70764/")
 
 [https://www.guo.media/posts/264090](https://www.guo.media/posts/264090) `2020-01-01T13:40:10`
