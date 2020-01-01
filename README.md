@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看直播：2020年1月1日纽约时间早上9：30左右郭文贵先生直播<br>[https://gnews.org/zh-hans/70562/](https://gnews.org/zh-hans/70562/ "https://gnews.org/zh-hans/70562/")
+
+[https://www.guo.media/posts/264105](https://www.guo.media/posts/264105) `2020-01-01T15:10:11`
+##
+
 **milesguo** 八角棒槌：真正的趋利避害，不是一场荒唐的摇奖游戏<br>[https://gnews.org/zh-hans/70754/](https://gnews.org/zh-hans/70754/ "https://gnews.org/zh-hans/70754/")
 
 [https://www.guo.media/posts/264097](https://www.guo.media/posts/264097) `2020-01-01T14:25:10`
