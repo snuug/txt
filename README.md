@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Arbitrary Arrest and Abusive Prosecution: Man Charged for Carrying a Hexagon Key and Spanner<br>[https://gnews.org/69202/](https://gnews.org/69202/ "https://gnews.org/69202/")
+
+[https://www.guo.media/posts/263934](https://www.guo.media/posts/263934) `2020-01-01T02:10:10`
+##
+
+**milesguo** CCP’s Foreign Minister Holds Talks with its Iranian Counterpart amid U.S. Airstrike in Middle East<br>[https://gnews.org/69687/](https://gnews.org/69687/ "https://gnews.org/69687/")
+
+[https://www.guo.media/posts/263933](https://www.guo.media/posts/263933) `2020-01-01T02:10:13`
+##
+
+**milesguo** CCP’s Foreign Minister Holds Talks with its Iranian Counterpart amid U.S. Airstrike in Middle East<br>[https://gnews.org/69687/](https://gnews.org/69687/ "https://gnews.org/69687/")
+
+[https://www.guo.media/posts/263932](https://www.guo.media/posts/263932) `2020-01-01T02:10:16`
+##
+
+**milesguo** [China] CCP admits ‘desperately short of money’<br>[https://gnews.org/68415/](https://gnews.org/68415/ "https://gnews.org/68415/")
+
+[https://www.guo.media/posts/263931](https://www.guo.media/posts/263931) `2020-01-01T02:10:18`
+##
+
 **milesguo** 郭文贵先生诉郭宝胜判决书看美国法治<br>[https://gnews.org/zh-hans/69752/](https://gnews.org/zh-hans/69752/ "https://gnews.org/zh-hans/69752/")
 
 [https://www.guo.media/posts/263885](https://www.guo.media/posts/263885) `2019-12-31T22:40:11`
