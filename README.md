@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国科学家贺建奎因基因编辑婴儿被判刑三年<br>[https://gnews.org/zh-hans/69563/](https://gnews.org/zh-hans/69563/ "https://gnews.org/zh-hans/69563/")
+
+[https://www.guo.media/posts/264079](https://www.guo.media/posts/264079) `2020-01-01T12:55:10`
+##
+
 **milesguo** 美中科技战争:美国如何在人口不足的情况下用中共人才引进劣势保持技术领先地位<br>[https://gnews.org/zh-hans/70681/](https://gnews.org/zh-hans/70681/ "https://gnews.org/zh-hans/70681/")
 
 [https://www.guo.media/posts/264068](https://www.guo.media/posts/264068) `2020-01-01T12:25:10`
