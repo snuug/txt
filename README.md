@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 八角棒槌：真正的趋利避害，不是一场荒唐的摇奖游戏<br>[https://gnews.org/zh-hans/70754/](https://gnews.org/zh-hans/70754/ "https://gnews.org/zh-hans/70754/")
+
+[https://www.guo.media/posts/264097](https://www.guo.media/posts/264097) `2020-01-01T14:25:10`
+##
+
+**milesguo** 中共可远程操控对菲律宾断电<br>[https://gnews.org/zh-hans/70669/](https://gnews.org/zh-hans/70669/ "https://gnews.org/zh-hans/70669/")
+
+[https://www.guo.media/posts/264096](https://www.guo.media/posts/264096) `2020-01-01T14:25:14`
+##
+
 **milesguo** 从中共国商务部长的一席话，看2020全面朝鲜化的阴谋？<br>[https://gnews.org/zh-hans/70557/](https://gnews.org/zh-hans/70557/ "https://gnews.org/zh-hans/70557/")
 
 [https://www.guo.media/posts/264095](https://www.guo.media/posts/264095) `2020-01-01T14:10:10`
