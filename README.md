@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Eastern District Council Member-Elect Charged With Assault of Police Officer<br>[https://gnews.org/69215/](https://gnews.org/69215/ "https://gnews.org/69215/")
+
+[https://www.guo.media/posts/264165](https://www.guo.media/posts/264165) `2020-01-01T22:25:10`
+##
+
+**milesguo** Miles Guo: Senior Chinese official Meng Jianzhu’s influence in southeast Asia is staggering!<br>[https://gnews.org/70423/](https://gnews.org/70423/ "https://gnews.org/70423/")
+
+[https://www.guo.media/posts/264164](https://www.guo.media/posts/264164) `2020-01-01T22:25:13`
+##
+
+**milesguo** Hongkongers Claim their New Year, Unafraid of the Authorities’ Intimidation<br>[https://gnews.org/70096/](https://gnews.org/70096/ "https://gnews.org/70096/")
+
+[https://www.guo.media/posts/264163](https://www.guo.media/posts/264163) `2020-01-01T22:25:16`
+##
+
 **milesguo** <br>2020新年第一天郭文贵先生佩戴了一个神秘的徽章<br>[https://gnews.org/zh-hans/70895/](https://gnews.org/zh-hans/70895/ "https://gnews.org/zh-hans/70895/")
 
 [https://www.guo.media/posts/264134](https://www.guo.media/posts/264134) `2020-01-01T18:55:11`
