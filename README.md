@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020是美中技术冲突的关键年<br>[https://gnews.org/zh-hans/69505/](https://gnews.org/zh-hans/69505/ "https://gnews.org/zh-hans/69505/")
+
+[https://www.guo.media/posts/264059](https://www.guo.media/posts/264059) `2020-01-01T11:55:10`
+##
+
 **milesguo** 反抗与清理——香港抗议运动中不经意的街头艺术<br>[https://gnews.org/zh-hans/69478/](https://gnews.org/zh-hans/69478/ "https://gnews.org/zh-hans/69478/")
 
 [https://www.guo.media/posts/264052](https://www.guo.media/posts/264052) `2020-01-01T11:25:10`
