@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美中科技战争:美国如何在人口不足的情况下用中共人才引进劣势保持技术领先地位<br>[https://gnews.org/zh-hans/70681/](https://gnews.org/zh-hans/70681/ "https://gnews.org/zh-hans/70681/")
+
+[https://www.guo.media/posts/264068](https://www.guo.media/posts/264068) `2020-01-01T12:25:10`
+##
+
+**milesguo** 中共国的明斯基时刻（经济大崩溃）即将到来<br>[https://gnews.org/zh-hans/69511/](https://gnews.org/zh-hans/69511/ "https://gnews.org/zh-hans/69511/")
+
+[https://www.guo.media/posts/264067](https://www.guo.media/posts/264067) `2020-01-01T12:25:13`
+##
+
 **milesguo** 2020是美中技术冲突的关键年<br>[https://gnews.org/zh-hans/69505/](https://gnews.org/zh-hans/69505/ "https://gnews.org/zh-hans/69505/")
 
 [https://www.guo.media/posts/264059](https://www.guo.media/posts/264059) `2020-01-01T11:55:10`
