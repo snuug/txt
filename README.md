@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Hikvision Employee Committed Suicide, Real Reason Blocked<br>[https://gnews.org/70779/](https://gnews.org/70779/ "https://gnews.org/70779/")
+
+[https://www.guo.media/posts/264167](https://www.guo.media/posts/264167) `2020-01-01T22:40:11`
+##
+
+**milesguo** Weekly Rule of Law Foundation and Society donors messages collection<br>[https://gnews.org/70784/](https://gnews.org/70784/ "https://gnews.org/70784/")
+
+[https://www.guo.media/posts/264166](https://www.guo.media/posts/264166) `2020-01-01T22:40:14`
+##
+
 **milesguo** Eastern District Council Member-Elect Charged With Assault of Police Officer<br>[https://gnews.org/69215/](https://gnews.org/69215/ "https://gnews.org/69215/")
 
 [https://www.guo.media/posts/264165](https://www.guo.media/posts/264165) `2020-01-01T22:25:10`
