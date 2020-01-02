@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** “爆料革命正式进入了彻底灭共年！”　2020年1月1日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/71237/](https://gnews.org/zh-hans/71237/ "https://gnews.org/zh-hans/71237/")
+
+[https://www.guo.media/posts/264242](https://www.guo.media/posts/264242) `2020-01-02T06:10:10`
+##
+
+**milesguo** 老江观点：耶稣的悲伤和眼泪不是为了自己<br>[https://gnews.org/zh-hans/71189/](https://gnews.org/zh-hans/71189/ "https://gnews.org/zh-hans/71189/")
+
+[https://www.guo.media/posts/264241](https://www.guo.media/posts/264241) `2020-01-02T06:10:13`
+##
+
 **milesguo** 从华尔街日报2020年元旦的一条推文说起–要鲜花不要狗屎<br>[https://gnews.org/zh-hans/71149/](https://gnews.org/zh-hans/71149/ "https://gnews.org/zh-hans/71149/")
 
 [https://www.guo.media/posts/264238](https://www.guo.media/posts/264238) `2020-01-02T05:55:10`
