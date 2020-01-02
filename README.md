@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2019年12月30日文贵报平安谈：2020是霹雳年，不能让任何人阻挡爆料革命！<br>[https://gnews.org/zh-hans/71374/](https://gnews.org/zh-hans/71374/ "https://gnews.org/zh-hans/71374/")
+
+[https://www.guo.media/posts/264269](https://www.guo.media/posts/264269) `2020-01-02T08:25:10`
+##
+
+**milesguo** 中共“血”染澳洲 浅谈澳洲被渗透<br>[https://gnews.org/zh-hans/71352/](https://gnews.org/zh-hans/71352/ "https://gnews.org/zh-hans/71352/")
+
+[https://www.guo.media/posts/264268](https://www.guo.media/posts/264268) `2020-01-02T08:25:13`
+##
+
 **milesguo** 1月1日 美国政要推特精选<br>[https://gnews.org/zh-hans/71257/](https://gnews.org/zh-hans/71257/ "https://gnews.org/zh-hans/71257/")
 
 [https://www.guo.media/posts/264256](https://www.guo.media/posts/264256) `2020-01-02T07:25:12`
