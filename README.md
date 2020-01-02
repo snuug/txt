@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 新殖民主义:中共正在非洲大陆打造自给自足的大型中国城市<br>[https://gnews.org/zh-hans/71427/](https://gnews.org/zh-hans/71427/ "https://gnews.org/zh-hans/71427/")
+
+[https://www.guo.media/posts/264280](https://www.guo.media/posts/264280) `2020-01-02T09:55:10`
+##
+
 **milesguo** 中共的《密码法》引发美国参议员对国家安全的担忧<br>[https://gnews.org/zh-hans/71414/](https://gnews.org/zh-hans/71414/ "https://gnews.org/zh-hans/71414/")
 
 [https://www.guo.media/posts/264277](https://www.guo.media/posts/264277) `2020-01-02T09:40:11`
