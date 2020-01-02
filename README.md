@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 中共高调谈人权司法保障欺骗西方世界<br>[https://gnews.org/zh-hans/71022/](https://gnews.org/zh-hans/71022/ "https://gnews.org/zh-hans/71022/")
+
+[https://www.guo.media/posts/264222](https://www.guo.media/posts/264222) `2020-01-02T04:25:11`
+##
+
+**milesguo** 黑警丧心病狂推倒记者<br>[https://gnews.org/zh-hans/70512/](https://gnews.org/zh-hans/70512/ "https://gnews.org/zh-hans/70512/")
+
+[https://www.guo.media/posts/264221](https://www.guo.media/posts/264221) `2020-01-02T04:25:14`
+##
+
+**milesguo** 驻港戒严部队军警袭击立法会议员许智峯<br>[https://gnews.org/zh-hans/70796/](https://gnews.org/zh-hans/70796/ "https://gnews.org/zh-hans/70796/")
+
+[https://www.guo.media/posts/264220](https://www.guo.media/posts/264220) `2020-01-02T04:25:16`
+##
+
+**milesguo** 台湾《反渗透法》三读通过 中共国台办批：为选举私利搞「绿色恐怖」！ 2020年成为台湾「反共元年」<br>[https://gnews.org/zh-hans/70821/](https://gnews.org/zh-hans/70821/ "https://gnews.org/zh-hans/70821/")
+
+[https://www.guo.media/posts/264219](https://www.guo.media/posts/264219) `2020-01-02T04:25:19`
+##
+
+**milesguo** 中共官员上班兼嫖妓？湖南公家机关内暗设妓院 王岐山的双修教遍及全国?<br>[https://gnews.org/zh-hans/70778/](https://gnews.org/zh-hans/70778/ "https://gnews.org/zh-hans/70778/")
+
+[https://www.guo.media/posts/264217](https://www.guo.media/posts/264217) `2020-01-02T04:25:22`
+##
+
 **milesguo** January 1, Posters on HK Protest<br>[https://gnews.org/70910/](https://gnews.org/70910/ "https://gnews.org/70910/")
 
 [https://www.guo.media/posts/264191](https://www.guo.media/posts/264191) `2020-01-02T00:25:10`
