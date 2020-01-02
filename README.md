@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文字版 2019年12月10日「爱听不听」第4期 民主制度不完美 但却是唯一选择 钢铁侠对话穆桂英<br>[https://gnews.org/zh-hans/71221/](https://gnews.org/zh-hans/71221/ "https://gnews.org/zh-hans/71221/")
+
+[https://www.guo.media/posts/264227](https://www.guo.media/posts/264227) `2020-01-02T05:10:11`
+##
+
 **milesguo** 时间到了——2020灭共元年<br>[https://gnews.org/zh-hans/71042/](https://gnews.org/zh-hans/71042/ "https://gnews.org/zh-hans/71042/")
 
 [https://www.guo.media/posts/264223](https://www.guo.media/posts/264223) `2020-01-02T04:40:10`
