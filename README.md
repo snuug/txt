@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文字版：路德社 2019年 12月5日 冀先生揭开海外亲民贼的产业链 路德安红访谈<br>[https://gnews.org/zh-hans/71349/](https://gnews.org/zh-hans/71349/ "https://gnews.org/zh-hans/71349/")
+
+[https://www.guo.media/posts/264252](https://www.guo.media/posts/264252) `2020-01-02T06:55:10`
+##
+
 **milesguo** “爆料革命正式进入了彻底灭共年！”　2020年1月1日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/71237/](https://gnews.org/zh-hans/71237/ "https://gnews.org/zh-hans/71237/")
 
 [https://www.guo.media/posts/264242](https://www.guo.media/posts/264242) `2020-01-02T06:10:10`
