@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 扫清思想障碍，回归人性本源！<br>[https://gnews.org/zh-hans/71236/](https://gnews.org/zh-hans/71236/ "https://gnews.org/zh-hans/71236/")
+
+[https://www.guo.media/posts/264254](https://www.guo.media/posts/264254) `2020-01-02T07:10:11`
+##
+
 **milesguo** 文字版：路德社 2019年 12月5日 冀先生揭开海外亲民贼的产业链 路德安红访谈<br>[https://gnews.org/zh-hans/71349/](https://gnews.org/zh-hans/71349/ "https://gnews.org/zh-hans/71349/")
 
 [https://www.guo.media/posts/264252](https://www.guo.media/posts/264252) `2020-01-02T06:55:10`
