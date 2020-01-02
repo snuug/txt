@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 从华尔街日报2020年元旦的一条推文说起–要鲜花不要狗屎<br>[https://gnews.org/zh-hans/71149/](https://gnews.org/zh-hans/71149/ "https://gnews.org/zh-hans/71149/")
+
+[https://www.guo.media/posts/264238](https://www.guo.media/posts/264238) `2020-01-02T05:55:10`
+##
+
+**milesguo** 小巴猪：以色列教育，中国未来的方向<br>[https://gnews.org/zh-hans/71153/](https://gnews.org/zh-hans/71153/ "https://gnews.org/zh-hans/71153/")
+
+[https://www.guo.media/posts/264237](https://www.guo.media/posts/264237) `2020-01-02T05:55:13`
+##
+
+**milesguo** 驻港戒严部队随意抓人 我说你违法了你就是违法了<br>[https://gnews.org/zh-hans/71117/](https://gnews.org/zh-hans/71117/ "https://gnews.org/zh-hans/71117/")
+
+[https://www.guo.media/posts/264236](https://www.guo.media/posts/264236) `2020-01-02T05:55:16`
+##
+
+**milesguo** 香港街头疑似便衣黑警众目睽睽之下拖人离开<br>[https://gnews.org/zh-hans/71062/](https://gnews.org/zh-hans/71062/ "https://gnews.org/zh-hans/71062/")
+
+[https://www.guo.media/posts/264235](https://www.guo.media/posts/264235) `2020-01-02T05:55:18`
+##
+
+**milesguo** 香港要闻：港人无惧极权暴政抹黑打压 为1月1日大游行集气 ；蓝丝出丑国际 破坏立陶宛景点 损华人形象<br>[https://gnews.org/zh-hans/71054/](https://gnews.org/zh-hans/71054/ "https://gnews.org/zh-hans/71054/")
+
+[https://www.guo.media/posts/264234](https://www.guo.media/posts/264234) `2020-01-02T05:55:21`
+##
+
 **milesguo** 文字版 2019年12月10日「爱听不听」第4期 民主制度不完美 但却是唯一选择 钢铁侠对话穆桂英<br>[https://gnews.org/zh-hans/71221/](https://gnews.org/zh-hans/71221/ "https://gnews.org/zh-hans/71221/")
 
 [https://www.guo.media/posts/264227](https://www.guo.media/posts/264227) `2020-01-02T05:10:11`
