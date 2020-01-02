@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** What CCP accomplished in the four-day trilateral joint naval drills with Russia and Iran?<br>[https://gnews.org/71640/](https://gnews.org/71640/ "https://gnews.org/71640/")
+
+[https://www.guo.media/posts/264369](https://www.guo.media/posts/264369) `2020-01-02T20:10:10`
+##
+
+**milesguo** PolyU Staff Members Required to Sign “Consent Letter” Regarding Possible Risk when Resuming Work<br>[https://gnews.org/70660/](https://gnews.org/70660/ "https://gnews.org/70660/")
+
+[https://www.guo.media/posts/264366](https://www.guo.media/posts/264366) `2020-01-02T20:10:13`
+##
+
+**milesguo** The Farm: Underground Church Religious Persecution<br>[https://gnews.org/71469/](https://gnews.org/71469/ "https://gnews.org/71469/")
+
+[https://www.guo.media/posts/264365](https://www.guo.media/posts/264365) `2020-01-02T20:10:15`
+##
+
+**milesguo** The Manners of HK Riot Police: Attacking Reporters and Littering<br>[https://gnews.org/71121/](https://gnews.org/71121/ "https://gnews.org/71121/")
+
+[https://www.guo.media/posts/264364](https://www.guo.media/posts/264364) `2020-01-02T20:10:18`
+##
+
 **milesguo** Miles Guo: What are the main strategies for 2020? What is the total amount of donations to the Rule of Law Foundation?<br>[https://gnews.org/71142/](https://gnews.org/71142/ "https://gnews.org/71142/")
 
 [https://www.guo.media/posts/264323](https://www.guo.media/posts/264323) `2020-01-02T15:10:10`
