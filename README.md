@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** January 1, Posters on HK Protest<br>[https://gnews.org/70910/](https://gnews.org/70910/ "https://gnews.org/70910/")
+
+[https://www.guo.media/posts/264191](https://www.guo.media/posts/264191) `2020-01-02T00:25:10`
+##
+
+**milesguo** The Cyber Crimes of the CCP Against HK Human Rights NGOs<br>[https://gnews.org/70850/](https://gnews.org/70850/ "https://gnews.org/70850/")
+
+[https://www.guo.media/posts/264190](https://www.guo.media/posts/264190) `2020-01-02T00:25:13`
+##
+
+**milesguo** Turnout for 2020 New Year’s March Higher Than 1.03 Million<br>[https://gnews.org/70826/](https://gnews.org/70826/ "https://gnews.org/70826/")
+
+[https://www.guo.media/posts/264188](https://www.guo.media/posts/264188) `2020-01-02T00:25:16`
+##
+
 **milesguo** Hikvision Employee Committed Suicide, Real Reason Blocked<br>[https://gnews.org/70779/](https://gnews.org/70779/ "https://gnews.org/70779/")
 
 [https://www.guo.media/posts/264167](https://www.guo.media/posts/264167) `2020-01-01T22:40:11`
