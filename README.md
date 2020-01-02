@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看直播：2020年1月2日郭文贵先生直播<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/264390](https://www.guo.media/posts/264390) `2020-01-02T23:10:12`
+##
+
 **milesguo** 2020年1月2号：尊敬的战友们好你们健身了吗？你们船舶香港危机真相了吗？应著作战友的要求，文贵将在半小时内补上今天的报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/264381](https://www.guo.media/posts/264381) `2020-01-02T21:40:12`
