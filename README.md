@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 时间到了——2020灭共元年<br>[https://gnews.org/zh-hans/71042/](https://gnews.org/zh-hans/71042/ "https://gnews.org/zh-hans/71042/")
+
+[https://www.guo.media/posts/264223](https://www.guo.media/posts/264223) `2020-01-02T04:40:10`
+##
+
 **milesguo** 中共高调谈人权司法保障欺骗西方世界<br>[https://gnews.org/zh-hans/71022/](https://gnews.org/zh-hans/71022/ "https://gnews.org/zh-hans/71022/")
 
 [https://www.guo.media/posts/264222](https://www.guo.media/posts/264222) `2020-01-02T04:25:11`
