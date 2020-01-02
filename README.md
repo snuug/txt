@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP’s true 2020 economic outlook: Wang Qishan says “eat grass”<br>[https://gnews.org/71697/](https://gnews.org/71697/ "https://gnews.org/71697/")
+
+[https://www.guo.media/posts/264370](https://www.guo.media/posts/264370) `2020-01-02T20:25:10`
+##
+
 **milesguo** What CCP accomplished in the four-day trilateral joint naval drills with Russia and Iran?<br>[https://gnews.org/71640/](https://gnews.org/71640/ "https://gnews.org/71640/")
 
 [https://www.guo.media/posts/264369](https://www.guo.media/posts/264369) `2020-01-02T20:10:10`
