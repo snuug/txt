@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 2020中国新年第一拆！山东省菏泽市马集镇政府强拆民宅<br>[https://gnews.org/zh-hans/71480/](https://gnews.org/zh-hans/71480/ "https://gnews.org/zh-hans/71480/")
+
+[https://www.guo.media/posts/264315](https://www.guo.media/posts/264315) `2020-01-02T14:40:10`
+##
+
+**milesguo** 香港铜锣湾黑警遇残次胡椒喷雾报应中招<br>[https://gnews.org/zh-hans/71075/](https://gnews.org/zh-hans/71075/ "https://gnews.org/zh-hans/71075/")
+
+[https://www.guo.media/posts/264314](https://www.guo.media/posts/264314) `2020-01-02T14:40:13`
+##
+
+**milesguo** 惊爆！武汉SARS已入香港？<br>[https://gnews.org/zh-hans/71401/](https://gnews.org/zh-hans/71401/ "https://gnews.org/zh-hans/71401/")
+
+[https://www.guo.media/posts/264313](https://www.guo.media/posts/264313) `2020-01-02T14:40:16`
+##
+
+**milesguo** 文字版2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人的王健死亡照片<br>[https://gnews.org/zh-hans/71421/](https://gnews.org/zh-hans/71421/ "https://gnews.org/zh-hans/71421/")
+
+[https://www.guo.media/posts/264312](https://www.guo.media/posts/264312) `2020-01-02T14:40:18`
+##
+
 **milesguo** 新殖民主义:中共正在非洲大陆打造自给自足的大型中国城市<br>[https://gnews.org/zh-hans/71427/](https://gnews.org/zh-hans/71427/ "https://gnews.org/zh-hans/71427/")
 
 [https://www.guo.media/posts/264280](https://www.guo.media/posts/264280) `2020-01-02T09:55:10`
