@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020年1月2号：尊敬的战友们好你们健身了吗？你们船舶香港危机真相了吗？应著作战友的要求，文贵将在半小时内补上今天的报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/264381](https://www.guo.media/posts/264381) `2020-01-02T21:40:12`
+##
+
 **milesguo** CCP’s true 2020 economic outlook: Wang Qishan says “eat grass”<br>[https://gnews.org/71697/](https://gnews.org/71697/ "https://gnews.org/71697/")
 
 [https://www.guo.media/posts/264370](https://www.guo.media/posts/264370) `2020-01-02T20:25:10`
