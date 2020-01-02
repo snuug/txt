@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月1日 美国政要推特精选<br>[https://gnews.org/zh-hans/71257/](https://gnews.org/zh-hans/71257/ "https://gnews.org/zh-hans/71257/")
+
+[https://www.guo.media/posts/264256](https://www.guo.media/posts/264256) `2020-01-02T07:25:12`
+##
+
 **milesguo** 扫清思想障碍，回归人性本源！<br>[https://gnews.org/zh-hans/71236/](https://gnews.org/zh-hans/71236/ "https://gnews.org/zh-hans/71236/")
 
 [https://www.guo.media/posts/264254](https://www.guo.media/posts/264254) `2020-01-02T07:10:11`
