@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: What are the main strategies for 2020? What is the total amount of donations to the Rule of Law Foundation?<br>[https://gnews.org/71142/](https://gnews.org/71142/ "https://gnews.org/71142/")
+
+[https://www.guo.media/posts/264323](https://www.guo.media/posts/264323) `2020-01-02T15:10:10`
+##
+
+**milesguo** 一名党龄30年的老党员与爆料革命（第五章）<br>[https://gnews.org/zh-hans/71639/](https://gnews.org/zh-hans/71639/ "https://gnews.org/zh-hans/71639/")
+
+[https://www.guo.media/posts/264321](https://www.guo.media/posts/264321) `2020-01-02T15:10:13`
+##
+
+**milesguo** 天津翠金湖盛世园被强拆事件跟踪报道：最后的坚守<br>[https://gnews.org/zh-hans/71571/](https://gnews.org/zh-hans/71571/ "https://gnews.org/zh-hans/71571/")
+
+[https://www.guo.media/posts/264320](https://www.guo.media/posts/264320) `2020-01-02T15:10:16`
+##
+
 **milesguo** 香港“疯”跨2020！港人坚持不懈，并肩同行！<br>[https://gnews.org/zh-hans/71555/](https://gnews.org/zh-hans/71555/ "https://gnews.org/zh-hans/71555/")
 
 [https://www.guo.media/posts/264319](https://www.guo.media/posts/264319) `2020-01-02T14:55:10`
