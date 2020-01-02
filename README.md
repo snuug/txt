@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 香港“疯”跨2020！港人坚持不懈，并肩同行！<br>[https://gnews.org/zh-hans/71555/](https://gnews.org/zh-hans/71555/ "https://gnews.org/zh-hans/71555/")
+
+[https://www.guo.media/posts/264319](https://www.guo.media/posts/264319) `2020-01-02T14:55:10`
+##
+
+**milesguo** 心寒！学生元旦“唱红歌”表演突然晕倒，一旁老师选择无视<br>[https://gnews.org/zh-hans/71532/](https://gnews.org/zh-hans/71532/ "https://gnews.org/zh-hans/71532/")
+
+[https://www.guo.media/posts/264318](https://www.guo.media/posts/264318) `2020-01-02T14:55:13`
+##
+
+**milesguo** 小巴猪：中国完全可以实现全民免费医疗<br>[https://gnews.org/zh-hans/71522/](https://gnews.org/zh-hans/71522/ "https://gnews.org/zh-hans/71522/")
+
+[https://www.guo.media/posts/264317](https://www.guo.media/posts/264317) `2020-01-02T14:55:16`
+##
+
 **milesguo** 2020中国新年第一拆！山东省菏泽市马集镇政府强拆民宅<br>[https://gnews.org/zh-hans/71480/](https://gnews.org/zh-hans/71480/ "https://gnews.org/zh-hans/71480/")
 
 [https://www.guo.media/posts/264315](https://www.guo.media/posts/264315) `2020-01-02T14:40:10`
