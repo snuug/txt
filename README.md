@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共的《密码法》引发美国参议员对国家安全的担忧<br>[https://gnews.org/zh-hans/71414/](https://gnews.org/zh-hans/71414/ "https://gnews.org/zh-hans/71414/")
+
+[https://www.guo.media/posts/264277](https://www.guo.media/posts/264277) `2020-01-02T09:40:11`
+##
+
 **milesguo** 用六张图比较贸易战第二年的中美经济<br>[https://gnews.org/zh-hans/71308/](https://gnews.org/zh-hans/71308/ "https://gnews.org/zh-hans/71308/")
 
 [https://www.guo.media/posts/264276](https://www.guo.media/posts/264276) `2020-01-02T09:25:10`
