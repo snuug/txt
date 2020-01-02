@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 用六张图比较贸易战第二年的中美经济<br>[https://gnews.org/zh-hans/71308/](https://gnews.org/zh-hans/71308/ "https://gnews.org/zh-hans/71308/")
+
+[https://www.guo.media/posts/264276](https://www.guo.media/posts/264276) `2020-01-02T09:25:10`
+##
+
 **milesguo** 文字版2019年12月30日文贵报平安谈：2020是霹雳年，不能让任何人阻挡爆料革命！<br>[https://gnews.org/zh-hans/71374/](https://gnews.org/zh-hans/71374/ "https://gnews.org/zh-hans/71374/")
 
 [https://www.guo.media/posts/264269](https://www.guo.media/posts/264269) `2020-01-02T08:25:10`
