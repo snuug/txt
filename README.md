@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP’s true 2020 economic outlook: Wang Qishan says “eat grass”<br>[https://gnews.org/71697/](https://gnews.org/71697/ "https://gnews.org/71697/")
+
+[https://www.guo.media/posts/264397](https://www.guo.media/posts/264397) `2020-01-02T23:40:11`
+##
+
 **milesguo** 看直播：2020年1月2日郭文贵先生直播<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
 
 [https://www.guo.media/posts/264390](https://www.guo.media/posts/264390) `2020-01-02T23:10:12`
