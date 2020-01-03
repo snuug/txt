@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 华为禁令：中国公司“艰难的2020”完整时间表<br>[https://gnews.org/zh-hans/72197/](https://gnews.org/zh-hans/72197/ "https://gnews.org/zh-hans/72197/")
+
+[https://www.guo.media/posts/264498](https://www.guo.media/posts/264498) `2020-01-03T13:10:11`
+##
+
 **milesguo** 中共将下调银行存款准备金率<br>[https://gnews.org/zh-hans/72229/](https://gnews.org/zh-hans/72229/ "https://gnews.org/zh-hans/72229/")
 
 [https://www.guo.media/posts/264497](https://www.guo.media/posts/264497) `2020-01-03T12:55:11`
