@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: Obituaries — Major General Qassem Soleimani<br>[https://gnews.org/72205/](https://gnews.org/72205/ "https://gnews.org/72205/")
+
+[https://www.guo.media/posts/264531](https://www.guo.media/posts/264531) `2020-01-03T16:40:12`
+##
+
+**milesguo** Miles Guo: Is Hong Kong’s SARS another plot by Wang Qishan?<br>[https://gnews.org/72264/](https://gnews.org/72264/ "https://gnews.org/72264/")
+
+[https://www.guo.media/posts/264530](https://www.guo.media/posts/264530) `2020-01-03T16:40:15`
+##
+
 **milesguo** Gates Set up at PolyU Entrance to Surveillance and Access Control<br>[https://gnews.org/72250/](https://gnews.org/72250/ "https://gnews.org/72250/")
 
 [https://www.guo.media/posts/264528](https://www.guo.media/posts/264528) `2020-01-03T16:10:11`
