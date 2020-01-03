@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 1月2日 美国政要推特精选<br>[https://gnews.org/zh-hans/72328/](https://gnews.org/zh-hans/72328/ "https://gnews.org/zh-hans/72328/")
+
+[https://www.guo.media/posts/264507](https://www.guo.media/posts/264507) `2020-01-03T13:25:13`
+##
+
+**milesguo** 黑警抓捕无辜路人！街头暴力，场面嚣张…<br>[https://gnews.org/zh-hans/72331/](https://gnews.org/zh-hans/72331/ "https://gnews.org/zh-hans/72331/")
+
+[https://www.guo.media/posts/264506](https://www.guo.media/posts/264506) `2020-01-03T13:25:17`
+##
+
+**milesguo** 猴蛇谈国内教育<br>[https://gnews.org/zh-hans/71190/](https://gnews.org/zh-hans/71190/ "https://gnews.org/zh-hans/71190/")
+
+[https://www.guo.media/posts/264505](https://www.guo.media/posts/264505) `2020-01-03T13:25:20`
+##
+
+**milesguo** “非典可能用作封港的借口” 郭文贵先生2020年1月2日直播摘要<br>[https://gnews.org/zh-hans/72273/](https://gnews.org/zh-hans/72273/ "https://gnews.org/zh-hans/72273/")
+
+[https://www.guo.media/posts/264504](https://www.guo.media/posts/264504) `2020-01-03T13:25:24`
+##
+
+**milesguo** 战友热线：小巴猪谈天津国企混改<br>[https://gnews.org/zh-hans/72256/](https://gnews.org/zh-hans/72256/ "https://gnews.org/zh-hans/72256/")
+
+[https://www.guo.media/posts/264502](https://www.guo.media/posts/264502) `2020-01-03T13:25:27`
+##
+
+**milesguo** 蔡英文追晋沉一鸣并颁「青天白日」勋章 幸存中将军吹哨求救指引救人超冷静 美国参谋长联席会议主席发表声明致哀台湾黑鹰失事<br>[https://gnews.org/zh-hans/72212/](https://gnews.org/zh-hans/72212/ "https://gnews.org/zh-hans/72212/")
+
+[https://www.guo.media/posts/264501](https://www.guo.media/posts/264501) `2020-01-03T13:25:30`
+##
+
+**milesguo** 一名党龄30年的老党员与爆料革命（第六章）<br>[https://gnews.org/zh-hans/72231/](https://gnews.org/zh-hans/72231/ "https://gnews.org/zh-hans/72231/")
+
+[https://www.guo.media/posts/264500](https://www.guo.media/posts/264500) `2020-01-03T13:25:34`
+##
+
 **milesguo** 华为禁令：中国公司“艰难的2020”完整时间表<br>[https://gnews.org/zh-hans/72197/](https://gnews.org/zh-hans/72197/ "https://gnews.org/zh-hans/72197/")
 
 [https://www.guo.media/posts/264498](https://www.guo.media/posts/264498) `2020-01-03T13:10:11`
