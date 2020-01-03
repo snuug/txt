@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共治下的教育“情花之毒”<br>[https://gnews.org/zh-hans/71180/](https://gnews.org/zh-hans/71180/ "https://gnews.org/zh-hans/71180/")
+
+[https://www.guo.media/posts/264410](https://www.guo.media/posts/264410) `2020-01-03T01:40:11`
+##
+
+**milesguo** 中国隐藏的上百万颗“污水”炸弹和几百亿立方米工业污水<br>[https://gnews.org/zh-hans/71676/](https://gnews.org/zh-hans/71676/ "https://gnews.org/zh-hans/71676/")
+
+[https://www.guo.media/posts/264407](https://www.guo.media/posts/264407) `2020-01-03T01:40:15`
+##
+
 **milesguo** 1月2日：应战友们的要求发几张SNOW 的照片！一切都是刚刚开始！
 
 [https://www.guo.media/posts/264400](https://www.guo.media/posts/264400) `2020-01-03T01:10:12`
