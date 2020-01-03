@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Gates Set up at PolyU Entrance to Surveillance and Access Control<br>[https://gnews.org/72250/](https://gnews.org/72250/ "https://gnews.org/72250/")
+
+[https://www.guo.media/posts/264528](https://www.guo.media/posts/264528) `2020-01-03T16:10:11`
+##
+
+**milesguo** HK Civilians in Wheelchairs Joined the Civil Human Rights Front New Year Rally<br>[https://gnews.org/71896/](https://gnews.org/71896/ "https://gnews.org/71896/")
+
+[https://www.guo.media/posts/264526](https://www.guo.media/posts/264526) `2020-01-03T16:10:15`
+##
+
 **milesguo** 1月3號：這是法治基金和法治社會對共產黨帶來巨大的恐懼之後的結果……紅頭文件……共產黨用這個法律文件將給法治基金和法治社會帶來訴共官司和必贏的結果，他阻止搶劫了國內戰的捐款，但卻在美國觸犯了侵害美國公民社會利益的嚴重罪行，我們將根據這個文件去追償幾百億美元的賠償，感謝共產黨送給我們這麼好的禮物，這是為什麼我們一直隱而不發……他一分¥0.1都不會影響法治基金最後的那個捐款數額……而且會幫助法治基金贏得世界的信任和尊重，誰都無法阻止这两个基金将成为中国建国。以及中国人民的诺亚方舟的唯一基金，🌹🌹🌹🙏🙏🙏一切都是刚刚开始！
 
 [https://www.guo.media/posts/264517](https://www.guo.media/posts/264517) `2020-01-03T15:25:11`
