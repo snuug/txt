@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月2日：应战友们的要求发几张SNOW 的照片！一切都是刚刚开始！
+
+[https://www.guo.media/posts/264400](https://www.guo.media/posts/264400) `2020-01-03T01:10:12`
+##
+
 **milesguo** CCP’s true 2020 economic outlook: Wang Qishan says “eat grass”<br>[https://gnews.org/71697/](https://gnews.org/71697/ "https://gnews.org/71697/")
 
 [https://www.guo.media/posts/264397](https://www.guo.media/posts/264397) `2020-01-02T23:40:11`
