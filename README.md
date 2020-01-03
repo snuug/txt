@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [China] 2020 Poverty Standard of Human Province<br>[https://gnews.org/71857/](https://gnews.org/71857/ "https://gnews.org/71857/")
+
+[https://www.guo.media/posts/264515](https://www.guo.media/posts/264515) `2020-01-03T15:10:13`
+##
+
 **milesguo** 1月3号！尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在一个小时后，纽约时间上午9:30左右．保平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/264508](https://www.guo.media/posts/264508) `2020-01-03T13:40:11`
