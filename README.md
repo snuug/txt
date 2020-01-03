@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 这一届操纵A股的人智商不太行<br>[https://gnews.org/zh-hans/72285/](https://gnews.org/zh-hans/72285/ "https://gnews.org/zh-hans/72285/")
+
+[https://www.guo.media/posts/264563](https://www.guo.media/posts/264563) `2020-01-03T21:40:11`
+##
+
+**milesguo** 中共投资拉动经济骗局一路走到黑<br>[https://gnews.org/zh-hans/72377/](https://gnews.org/zh-hans/72377/ "https://gnews.org/zh-hans/72377/")
+
+[https://www.guo.media/posts/264561](https://www.guo.media/posts/264561) `2020-01-03T21:40:14`
+##
+
+**milesguo** 广播：2020/1/3 郭文贵先生直播 苏莱曼尼(伊朗版江泽民)的死将引发美国内部革命剑指中共<br>[https://gnews.org/zh-hans/72387/](https://gnews.org/zh-hans/72387/ "https://gnews.org/zh-hans/72387/")
+
+[https://www.guo.media/posts/264560](https://www.guo.media/posts/264560) `2020-01-03T21:40:17`
+##
+
 **milesguo** Miles Guo Described Qassem Soleimani as the Young Former General Secretary of CCP<br>[https://gnews.org/72399/](https://gnews.org/72399/ "https://gnews.org/72399/")
 
 [https://www.guo.media/posts/264549](https://www.guo.media/posts/264549) `2020-01-03T17:55:11`
