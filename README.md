@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月3号！尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？文贵将在一个小时后，纽约时间上午9:30左右．保平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/264508](https://www.guo.media/posts/264508) `2020-01-03T13:40:11`
+##
+
 **milesguo** 1月2日 美国政要推特精选<br>[https://gnews.org/zh-hans/72328/](https://gnews.org/zh-hans/72328/ "https://gnews.org/zh-hans/72328/")
 
 [https://www.guo.media/posts/264507](https://www.guo.media/posts/264507) `2020-01-03T13:25:13`
