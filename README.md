@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵爆料艾未未：共产党的黑打手，人间的垃圾<br>[https://gnews.org/zh-hans/71770/](https://gnews.org/zh-hans/71770/ "https://gnews.org/zh-hans/71770/")
+
+[https://www.guo.media/posts/264465](https://www.guo.media/posts/264465) `2020-01-03T08:40:11`
+##
+
+**milesguo** 香港要闻：新年伊始 港人追求民主自由决心从未放弃；港共恐怖组织无底线施暴 ；英解密-中共早已统领香港各黑社会组织<br>[https://gnews.org/zh-hans/71782/](https://gnews.org/zh-hans/71782/ "https://gnews.org/zh-hans/71782/")
+
+[https://www.guo.media/posts/264462](https://www.guo.media/posts/264462) `2020-01-03T08:40:14`
+##
+
+**milesguo** CCP统治下的中国男足为何越来越阳痿？<br>[https://gnews.org/zh-hans/71655/](https://gnews.org/zh-hans/71655/ "https://gnews.org/zh-hans/71655/")
+
+[https://www.guo.media/posts/264460](https://www.guo.media/posts/264460) `2020-01-03T08:40:18`
+##
+
 **milesguo** 1月2号：尊敬的战友们好！了解文贵的战友们……请看我过去几十个小时和刚刚的直播的视频说到的——世界格局和关系……因此就巨大的改变，爆料革命又迎来了一场巨大的胜利✌️这是我过去几十几十个小时内直播中的重中之重……现在已经发生了……预知后事如何——一切都是刚刚开始！
 
 [https://www.guo.media/posts/264417](https://www.guo.media/posts/264417) `2020-01-03T02:55:11`
