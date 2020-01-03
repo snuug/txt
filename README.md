@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月2号：尊敬的战友们好！了解文贵的战友们……请看我过去几十个小时和刚刚的直播的视频说到的——世界格局和关系……因此就巨大的改变，爆料革命又迎来了一场巨大的胜利✌️这是我过去几十几十个小时内直播中的重中之重……现在已经发生了……预知后事如何——一切都是刚刚开始！
+
+[https://www.guo.media/posts/264417](https://www.guo.media/posts/264417) `2020-01-03T02:55:11`
+##
+
 **milesguo** 中共治下的教育“情花之毒”<br>[https://gnews.org/zh-hans/71180/](https://gnews.org/zh-hans/71180/ "https://gnews.org/zh-hans/71180/")
 
 [https://www.guo.media/posts/264410](https://www.guo.media/posts/264410) `2020-01-03T01:40:11`
