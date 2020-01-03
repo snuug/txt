@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月3号：郭骗子，文贵又给蒙对了……这是第几万回蒙对了？那些鸡帮．痔疮派！济们能不能也蒙对一会呀……因为他们没有得到真正的反共的人们的支持，爆料革命最大的资源，就是共产党内部的。我们那些无名伟大的战友们，任何模式，我们这些伟大的战友做出了一个又一个的伟大的贡献的事实的人都是我们的敌人．这些内部战友才是我们最核心的力量！一切都是刚刚开始！
+
+[https://www.guo.media/posts/264534](https://www.guo.media/posts/264534) `2020-01-03T16:55:12`
+##
+
 **milesguo** The Farm: Obituaries — Major General Qassem Soleimani<br>[https://gnews.org/72205/](https://gnews.org/72205/ "https://gnews.org/72205/")
 
 [https://www.guo.media/posts/264531](https://www.guo.media/posts/264531) `2020-01-03T16:40:12`
