@@ -12,6 +12,51 @@
 ## 最新郭文
 
 
+**milesguo** 从细丝潘的问题谈谈什么是爆料革命的战友<br>[https://gnews.org/zh-hans/72050/](https://gnews.org/zh-hans/72050/ "https://gnews.org/zh-hans/72050/")
+
+[https://www.guo.media/posts/264474](https://www.guo.media/posts/264474) `2020-01-03T08:55:11`
+##
+
+**milesguo** 2019年国际大事与爆料革命！<br>[https://gnews.org/zh-hans/72035/](https://gnews.org/zh-hans/72035/ "https://gnews.org/zh-hans/72035/")
+
+[https://www.guo.media/posts/264473](https://www.guo.media/posts/264473) `2020-01-03T08:55:14`
+##
+
+**milesguo** 比尔.戈兹“中共经济陷入困境；中共上层更是异常迷信的恐惧政权的覆灭”<br>[https://gnews.org/zh-hans/71994/](https://gnews.org/zh-hans/71994/ "https://gnews.org/zh-hans/71994/")
+
+[https://www.guo.media/posts/264472](https://www.guo.media/posts/264472) `2020-01-03T08:55:17`
+##
+
+**milesguo** 中共洗劫企业家财富的恶意《意见》<br>[https://gnews.org/zh-hans/71983/](https://gnews.org/zh-hans/71983/ "https://gnews.org/zh-hans/71983/")
+
+[https://www.guo.media/posts/264471](https://www.guo.media/posts/264471) `2020-01-03T08:55:20`
+##
+
+**milesguo** <br>广播：2020/1/2 郭文贵先生直播<br>[https://gnews.org/zh-hans/71893/](https://gnews.org/zh-hans/71893/ "https://gnews.org/zh-hans/71893/")
+
+[https://www.guo.media/posts/264470](https://www.guo.media/posts/264470) `2020-01-03T08:55:24`
+##
+
+**milesguo** 嗟来之食压弯了中国“知识分子”的脊梁<br>[https://gnews.org/zh-hans/71666/](https://gnews.org/zh-hans/71666/ "https://gnews.org/zh-hans/71666/")
+
+[https://www.guo.media/posts/264469](https://www.guo.media/posts/264469) `2020-01-03T08:55:27`
+##
+
+**milesguo** 八角棒槌：维权自杀，试问在中共国能换来什么？<br>[https://gnews.org/zh-hans/71855/](https://gnews.org/zh-hans/71855/ "https://gnews.org/zh-hans/71855/")
+
+[https://www.guo.media/posts/264468](https://www.guo.media/posts/264468) `2020-01-03T08:55:31`
+##
+
+**milesguo** <br>细思极恐和何频对香港抗争的态度<br>[https://gnews.org/zh-hans/71463/](https://gnews.org/zh-hans/71463/ "https://gnews.org/zh-hans/71463/")
+
+[https://www.guo.media/posts/264467](https://www.guo.media/posts/264467) `2020-01-03T08:55:34`
+##
+
+**milesguo** <br>评“金灿荣：美国接连对中国打出十四张牌，我们可以从三个方向着力”<br>[https://gnews.org/zh-hans/71806/](https://gnews.org/zh-hans/71806/ "https://gnews.org/zh-hans/71806/")
+
+[https://www.guo.media/posts/264466](https://www.guo.media/posts/264466) `2020-01-03T08:55:37`
+##
+
 **milesguo** 郭文贵爆料艾未未：共产党的黑打手，人间的垃圾<br>[https://gnews.org/zh-hans/71770/](https://gnews.org/zh-hans/71770/ "https://gnews.org/zh-hans/71770/")
 
 [https://www.guo.media/posts/264465](https://www.guo.media/posts/264465) `2020-01-03T08:40:11`
