@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共将下调银行存款准备金率<br>[https://gnews.org/zh-hans/72229/](https://gnews.org/zh-hans/72229/ "https://gnews.org/zh-hans/72229/")
+
+[https://www.guo.media/posts/264497](https://www.guo.media/posts/264497) `2020-01-03T12:55:11`
+##
+
 **milesguo** 从细丝潘的问题谈谈什么是爆料革命的战友<br>[https://gnews.org/zh-hans/72050/](https://gnews.org/zh-hans/72050/ "https://gnews.org/zh-hans/72050/")
 
 [https://www.guo.media/posts/264474](https://www.guo.media/posts/264474) `2020-01-03T08:55:11`
