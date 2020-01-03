@@ -13,6 +13,8 @@
 
 ## 頁面 13/22 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [22](/content/README-22.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版：20181004 郭先生报平安直播 希望成功快点到来](/content/2018/10/20181005-2805451400972075742.md)
+
 [美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/content/2018/10/20181004-6010597625419921233.md)
 
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/content/2018/10/20181004-4197432532070823443.md)
@@ -60,8 +62,6 @@
 [文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
 
 [文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/2018/08/20180820-7217065400016406673.md)
-
-[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/content/2018/08/20180818-8117868108357444047.md)
 
 
 ## 頁面 13/22 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [22](/content/README-22.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

@@ -13,6 +13,8 @@
 
 ## 頁面 5/22 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [22](/content/README-22.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月3日郭先生第一次直播](/content/2019/09/20190904-8691813112681761342.md)
+
 [文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/2019/09/20190904-5593137024471595991.md)
 
 [文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/2019/09/20190904-6068893514694750692.md)
@@ -60,8 +62,6 @@
 [文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
 
 [文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
-
-[文字版：郭先生2019年8月1日緊急直播](/content/2019/08/20190805-195928358226764282.md)
 
 
 ## 頁面 5/22 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [22](/content/README-22.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
