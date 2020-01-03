@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 大战一触即发？！川普刚发表演说“杀萨拉曼尼是为止战，美国已做好准备，应对一切反应！”<br>[https://gnews.org/zh-hans/72599/](https://gnews.org/zh-hans/72599/ "https://gnews.org/zh-hans/72599/")
+
+[https://www.guo.media/posts/264567](https://www.guo.media/posts/264567) `2020-01-03T21:55:11`
+##
+
+**milesguo** 美国国防部长马克·T·埃斯珀在1月2日就伊朗主导的袭击发布声明<br>[https://gnews.org/zh-hans/72608/](https://gnews.org/zh-hans/72608/ "https://gnews.org/zh-hans/72608/")
+
+[https://www.guo.media/posts/264566](https://www.guo.media/posts/264566) `2020-01-03T21:55:14`
+##
+
+**milesguo** “法治基金已经准备好了各种针对共产党的方案，灭掉中共” 2020年1月3日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/72558/](https://gnews.org/zh-hans/72558/ "https://gnews.org/zh-hans/72558/")
+
+[https://www.guo.media/posts/264564](https://www.guo.media/posts/264564) `2020-01-03T21:55:17`
+##
+
 **milesguo** 这一届操纵A股的人智商不太行<br>[https://gnews.org/zh-hans/72285/](https://gnews.org/zh-hans/72285/ "https://gnews.org/zh-hans/72285/")
 
 [https://www.guo.media/posts/264563](https://www.guo.media/posts/264563) `2020-01-03T21:40:11`
