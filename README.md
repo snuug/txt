@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 债务是悬在中共头上的达摩克利斯之剑(地方债)<br>[https://gnews.org/zh-hans/72719/](https://gnews.org/zh-hans/72719/ "https://gnews.org/zh-hans/72719/")
+
+[https://www.guo.media/posts/264625](https://www.guo.media/posts/264625) `2020-01-04T04:10:11`
+##
+
+**milesguo** 从以下几个角度看体制内的年轻精英是如何成为炮灰和替死鬼的（1）<br>[https://gnews.org/zh-hans/72301/](https://gnews.org/zh-hans/72301/ "https://gnews.org/zh-hans/72301/")
+
+[https://www.guo.media/posts/264624](https://www.guo.media/posts/264624) `2020-01-04T04:10:14`
+##
+
+**milesguo** 老江观点：美国中资上市股要凉<br>[https://gnews.org/zh-hans/72683/](https://gnews.org/zh-hans/72683/ "https://gnews.org/zh-hans/72683/")
+
+[https://www.guo.media/posts/264623](https://www.guo.media/posts/264623) `2020-01-04T04:10:17`
+##
+
+**milesguo** 香港要闻：港共极权扼杀市民自由权利 刻意制造混乱腰斩元旦游行；英檔解密：港人曾与真民主擦肩而过<br>[https://gnews.org/zh-hans/72692/](https://gnews.org/zh-hans/72692/ "https://gnews.org/zh-hans/72692/")
+
+[https://www.guo.media/posts/264622](https://www.guo.media/posts/264622) `2020-01-04T04:10:20`
+##
+
 **milesguo** Exposed Confidential Document Reveals How CCP Block Donations to Steve Bannon’s Rule of Law Foundation<br>[https://gnews.org/72637/](https://gnews.org/72637/ "https://gnews.org/72637/")
 
 [https://www.guo.media/posts/264604](https://www.guo.media/posts/264604) `2020-01-04T01:40:12`
