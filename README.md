@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 台湾黑鹰失事 AIT声明有玄机 前外交官：最后一句写给中共看 「美国在台协会已准备好，随时就此一事件为台湾提供协助。」<br>[https://gnews.org/zh-hans/72761/](https://gnews.org/zh-hans/72761/ "https://gnews.org/zh-hans/72761/")
+
+[https://www.guo.media/posts/264635](https://www.guo.media/posts/264635) `2020-01-04T05:10:11`
+##
+
 **milesguo** 中共统治下的抑郁症等精神疾病，及未来需要进行的人性恢复<br>[https://gnews.org/zh-hans/72311/](https://gnews.org/zh-hans/72311/ "https://gnews.org/zh-hans/72311/")
 
 [https://www.guo.media/posts/264626](https://www.guo.media/posts/264626) `2020-01-04T04:25:11`
