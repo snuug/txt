@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Exposed Confidential Document Reveals How CCP Block Donations to Steve Bannon’s Rule of Law Foundation<br>[https://gnews.org/72637/](https://gnews.org/72637/ "https://gnews.org/72637/")
+
+[https://www.guo.media/posts/264604](https://www.guo.media/posts/264604) `2020-01-04T01:40:12`
+##
+
+**milesguo** DAB sets up body to monitor new district councillors<br>[https://gnews.org/72325/](https://gnews.org/72325/ "https://gnews.org/72325/")
+
+[https://www.guo.media/posts/264603](https://www.guo.media/posts/264603) `2020-01-04T01:40:15`
+##
+
 **milesguo** 1月3号：明天1月4号．9:30报平安直播，请点击这里，👉👉[https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！](https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！ "https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！")
 
 [https://www.guo.media/posts/264593](https://www.guo.media/posts/264593) `2020-01-04T00:40:11`
