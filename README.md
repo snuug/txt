@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国务卿庞培奥“川普此次凭借决绝的意志，才将苏拉曼尼的屠戮阴谋消灭于萌芽”<br>[https://gnews.org/zh-hans/72861/](https://gnews.org/zh-hans/72861/ "https://gnews.org/zh-hans/72861/")
+
+[https://www.guo.media/posts/264642](https://www.guo.media/posts/264642) `2020-01-04T05:40:12`
+##
+
 **milesguo** 回顾哥伦比亚广播公司（CBS）2019年7月24号发表的关于郭文贵先生的文章<br>[https://gnews.org/zh-hans/72860/](https://gnews.org/zh-hans/72860/ "https://gnews.org/zh-hans/72860/")
 
 [https://www.guo.media/posts/264640](https://www.guo.media/posts/264640) `2020-01-04T05:25:14`
