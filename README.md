@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看直播：2020年1月4日郭文贵先生直播，乱聊不爆料！<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/") 
+
+[https://www.guo.media/posts/264745](https://www.guo.media/posts/264745) `2020-01-04T14:40:11`
+##
+
 **milesguo** “The death of Soleimani will cause the U.S. to focus its attention on exterminating the [CCP.”](http://CCP.&rdquo; "CCP.&rdquo;") Highlights of Miles Guo’s Live Broadcast on 04/01/2020<br>[https://gnews.org/72865/](https://gnews.org/72865/ "https://gnews.org/72865/")
 
 [https://www.guo.media/posts/264738](https://www.guo.media/posts/264738) `2020-01-04T14:25:11`
