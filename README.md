@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 回顾哥伦比亚广播公司（CBS）2019年7月24号发表的关于郭文贵先生的文章<br>[https://gnews.org/zh-hans/72860/](https://gnews.org/zh-hans/72860/ "https://gnews.org/zh-hans/72860/")
+
+[https://www.guo.media/posts/264640](https://www.guo.media/posts/264640) `2020-01-04T05:25:14`
+##
+
+**milesguo** 时隔二十四小时，空袭再次击毙五名伊朗支持武装分子<br>[https://gnews.org/zh-hans/72813/](https://gnews.org/zh-hans/72813/ "https://gnews.org/zh-hans/72813/")
+
+[https://www.guo.media/posts/264639](https://www.guo.media/posts/264639) `2020-01-04T05:25:19`
+##
+
+**milesguo** 美国务卿庞培奥“干掉苏莱曼尼乃川普总统关键之决定；救国人性命于危难，匡扶天下之正义；此人怙恶不悛，死有余辜”<br>[https://gnews.org/zh-hans/72782/](https://gnews.org/zh-hans/72782/ "https://gnews.org/zh-hans/72782/")
+
+[https://www.guo.media/posts/264637](https://www.guo.media/posts/264637) `2020-01-04T05:25:22`
+##
+
+**milesguo** 突发！香港顺和楼有人自杀身亡<br>[https://gnews.org/zh-hans/72771/](https://gnews.org/zh-hans/72771/ "https://gnews.org/zh-hans/72771/")
+
+[https://www.guo.media/posts/264636](https://www.guo.media/posts/264636) `2020-01-04T05:25:27`
+##
+
 **milesguo** 台湾黑鹰失事 AIT声明有玄机 前外交官：最后一句写给中共看 「美国在台协会已准备好，随时就此一事件为台湾提供协助。」<br>[https://gnews.org/zh-hans/72761/](https://gnews.org/zh-hans/72761/ "https://gnews.org/zh-hans/72761/")
 
 [https://www.guo.media/posts/264635](https://www.guo.media/posts/264635) `2020-01-04T05:10:11`
