@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共统治下的抑郁症等精神疾病，及未来需要进行的人性恢复<br>[https://gnews.org/zh-hans/72311/](https://gnews.org/zh-hans/72311/ "https://gnews.org/zh-hans/72311/")
+
+[https://www.guo.media/posts/264626](https://www.guo.media/posts/264626) `2020-01-04T04:25:11`
+##
+
 **milesguo** 债务是悬在中共头上的达摩克利斯之剑(地方债)<br>[https://gnews.org/zh-hans/72719/](https://gnews.org/zh-hans/72719/ "https://gnews.org/zh-hans/72719/")
 
 [https://www.guo.media/posts/264625](https://www.guo.media/posts/264625) `2020-01-04T04:10:11`
