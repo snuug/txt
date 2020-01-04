@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 伊拉克巴拉德美军空军基地及巴格达“绿色和平区”周六晚遭到火箭袭击，无伤亡<br>[https://gnews.org/zh-hans/73203/](https://gnews.org/zh-hans/73203/ "https://gnews.org/zh-hans/73203/")
+
+[https://www.guo.media/posts/264796](https://www.guo.media/posts/264796) `2020-01-04T23:55:11`
+##
+
+**milesguo** “共产党发文禁止给法治基金捐款甚至抓人，意味着开启了中美之间的金融战争” 2020年1月5日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/73167/](https://gnews.org/zh-hans/73167/ "https://gnews.org/zh-hans/73167/")
+
+[https://www.guo.media/posts/264795](https://www.guo.media/posts/264795) `2020-01-04T23:55:14`
+##
+
+**milesguo** 中共强制中小学男生抽血建档DNA<br>[https://gnews.org/zh-hans/73142/](https://gnews.org/zh-hans/73142/ "https://gnews.org/zh-hans/73142/")
+
+[https://www.guo.media/posts/264793](https://www.guo.media/posts/264793) `2020-01-04T23:55:17`
+##
+
+**milesguo** 广播：2020/1/4 郭文贵先生直播 共产党 你结束了！<br>[https://gnews.org/zh-hans/73146/](https://gnews.org/zh-hans/73146/ "https://gnews.org/zh-hans/73146/")
+
+[https://www.guo.media/posts/264792](https://www.guo.media/posts/264792) `2020-01-04T23:55:20`
+##
+
 **milesguo** 黑鹰失事 台湾运安会官员：排除大部分80%机械或80%天气因素<br>[https://gnews.org/zh-hans/73140/](https://gnews.org/zh-hans/73140/ "https://gnews.org/zh-hans/73140/")
 
 [https://www.guo.media/posts/264776](https://www.guo.media/posts/264776) `2020-01-04T20:10:18`
