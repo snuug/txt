@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月3号：明天1月4号．9:30报平安直播，请点击这里，👉👉[https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！](https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！ "https://gnews.org/尊敬的战友们好，明天我们会乱聊不爆料，希望不要影响大家的周末时间一切都是刚刚开始！")
+
+[https://www.guo.media/posts/264593](https://www.guo.media/posts/264593) `2020-01-04T00:40:11`
+##
+
 **milesguo** 大战一触即发？！川普刚发表演说“杀萨拉曼尼是为止战，美国已做好准备，应对一切反应！”<br>[https://gnews.org/zh-hans/72599/](https://gnews.org/zh-hans/72599/ "https://gnews.org/zh-hans/72599/")
 
 [https://www.guo.media/posts/264567](https://www.guo.media/posts/264567) `2020-01-03T21:55:11`
