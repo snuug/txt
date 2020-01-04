@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月4号：面具先生的直播，真是太棒了，希望战友，点击这里进去观看！[https://youtu.be/Z32ar65UioY一切都是刚刚开始！](https://youtu.be/Z32ar65UioY一切都是刚刚开始！ "https://youtu.be/Z32ar65UioY一切都是刚刚开始！")
+
+[https://www.guo.media/posts/264770](https://www.guo.media/posts/264770) `2020-01-04T18:25:11`
+##
+
 **milesguo** HK Police Can Now Define Riot As They Please<br>[https://gnews.org/72569/](https://gnews.org/72569/ "https://gnews.org/72569/")
 
 [https://www.guo.media/posts/264765](https://www.guo.media/posts/264765) `2020-01-04T17:25:13`
