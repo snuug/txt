@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** HK Police Can Now Define Riot As They Please<br>[https://gnews.org/72569/](https://gnews.org/72569/ "https://gnews.org/72569/")
+
+[https://www.guo.media/posts/264765](https://www.guo.media/posts/264765) `2020-01-04T17:25:13`
+##
+
+**milesguo** The Chinese Communist Party unstabilizes the Middle East<br>[https://gnews.org/69659/](https://gnews.org/69659/ "https://gnews.org/69659/")
+
+[https://www.guo.media/posts/264764](https://www.guo.media/posts/264764) `2020-01-04T17:25:16`
+##
+
 **milesguo** Miles Guo: Qasem Soleimani’s relations with the CCP. Where did the CCP steal the US military technology?<br>[https://gnews.org/73052/](https://gnews.org/73052/ "https://gnews.org/73052/")
 
 [https://www.guo.media/posts/264761](https://www.guo.media/posts/264761) `2020-01-04T16:25:11`
