@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 剿共檄文<br>[https://gnews.org/zh-hans/72922/](https://gnews.org/zh-hans/72922/ "https://gnews.org/zh-hans/72922/")
+
+[https://www.guo.media/posts/264664](https://www.guo.media/posts/264664) `2020-01-04T08:40:12`
+##
+
+**milesguo** 文字版2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！<br>[https://gnews.org/zh-hans/72893/](https://gnews.org/zh-hans/72893/ "https://gnews.org/zh-hans/72893/")
+
+[https://www.guo.media/posts/264663](https://www.guo.media/posts/264663) `2020-01-04T08:40:15`
+##
+
 **milesguo** 中铁三局快还钱！贫苦工人讨薪难…<br>[https://gnews.org/zh-hans/72886/](https://gnews.org/zh-hans/72886/ "https://gnews.org/zh-hans/72886/")
 
 [https://www.guo.media/posts/264662](https://www.guo.media/posts/264662) `2020-01-04T08:25:11`
