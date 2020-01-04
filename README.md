@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Qasem Soleimani’s relations with the CCP. Where did the CCP steal the US military technology?<br>[https://gnews.org/73052/](https://gnews.org/73052/ "https://gnews.org/73052/")
+
+[https://www.guo.media/posts/264761](https://www.guo.media/posts/264761) `2020-01-04T16:25:11`
+##
+
 **milesguo** 看直播：2020年1月4日郭文贵先生直播，乱聊不爆料！<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/") 
 
 [https://www.guo.media/posts/264745](https://www.guo.media/posts/264745) `2020-01-04T14:40:11`
