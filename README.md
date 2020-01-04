@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 分析：开往罗湖口岸的死亡列车<br>[https://gnews.org/zh-hans/72783/](https://gnews.org/zh-hans/72783/ "https://gnews.org/zh-hans/72783/")
+
+[https://www.guo.media/posts/264736](https://www.guo.media/posts/264736) `2020-01-04T14:10:11`
+##
+
+**milesguo** 1月3日 美国政要推特精选<br>[https://gnews.org/zh-hans/73093/](https://gnews.org/zh-hans/73093/ "https://gnews.org/zh-hans/73093/")
+
+[https://www.guo.media/posts/264735](https://www.guo.media/posts/264735) `2020-01-04T14:10:14`
+##
+
+**milesguo** 1月4日香港政府宣布启动严重应变级别应对不明肺炎<br>[https://gnews.org/zh-hans/73108/](https://gnews.org/zh-hans/73108/ "https://gnews.org/zh-hans/73108/")
+
+[https://www.guo.media/posts/264733](https://www.guo.media/posts/264733) `2020-01-04T14:10:21`
+##
+
+**milesguo** 从学术角度来解释台湾黑鹰直升机坠机的可能性<br>[https://gnews.org/zh-hans/73036/](https://gnews.org/zh-hans/73036/ "https://gnews.org/zh-hans/73036/")
+
+[https://www.guo.media/posts/264731](https://www.guo.media/posts/264731) `2020-01-04T14:10:24`
+##
+
+**milesguo** 文字版2020年1月2日文贵报平安直播：聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！<br>[https://gnews.org/zh-hans/72983/](https://gnews.org/zh-hans/72983/ "https://gnews.org/zh-hans/72983/")
+
+[https://www.guo.media/posts/264730](https://www.guo.media/posts/264730) `2020-01-04T14:10:27`
+##
+
 **milesguo** 美国第二舰队宣布全面投入战斗，挑战中共在北极的野心<br>[https://gnews.org/zh-hans/73024/](https://gnews.org/zh-hans/73024/ "https://gnews.org/zh-hans/73024/")
 
 [https://www.guo.media/posts/264689](https://www.guo.media/posts/264689) `2020-01-04T11:55:11`
