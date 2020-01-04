@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 美国第二舰队宣布全面投入战斗，挑战中共在北极的野心<br>[https://gnews.org/zh-hans/73024/](https://gnews.org/zh-hans/73024/ "https://gnews.org/zh-hans/73024/")
+
+[https://www.guo.media/posts/264689](https://www.guo.media/posts/264689) `2020-01-04T11:55:11`
+##
+
+**milesguo** 川普在几个月内就干掉了一些世界顶级恐怖分子<br>[https://gnews.org/zh-hans/73037/](https://gnews.org/zh-hans/73037/ "https://gnews.org/zh-hans/73037/")
+
+[https://www.guo.media/posts/264688](https://www.guo.media/posts/264688) `2020-01-04T11:55:14`
+##
+
+**milesguo** 中共在年底大肆镇压拘捕人权活动人士<br>[https://gnews.org/zh-hans/73118/](https://gnews.org/zh-hans/73118/ "https://gnews.org/zh-hans/73118/")
+
+[https://www.guo.media/posts/264685](https://www.guo.media/posts/264685) `2020-01-04T11:55:17`
+##
+
 **milesguo** 剿共檄文<br>[https://gnews.org/zh-hans/72922/](https://gnews.org/zh-hans/72922/ "https://gnews.org/zh-hans/72922/")
 
 [https://www.guo.media/posts/264664](https://www.guo.media/posts/264664) `2020-01-04T08:40:12`
