@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 中铁三局快还钱！贫苦工人讨薪难…<br>[https://gnews.org/zh-hans/72886/](https://gnews.org/zh-hans/72886/ "https://gnews.org/zh-hans/72886/")
+
+[https://www.guo.media/posts/264662](https://www.guo.media/posts/264662) `2020-01-04T08:25:11`
+##
+
+**milesguo** 小巴猪：以色列应该把中共列为头号威胁<br>[https://gnews.org/zh-hans/72900/](https://gnews.org/zh-hans/72900/ "https://gnews.org/zh-hans/72900/")
+
+[https://www.guo.media/posts/264661](https://www.guo.media/posts/264661) `2020-01-04T08:25:14`
+##
+
+**milesguo** 美军又发威：空袭什叶派民兵组织， 至少 6 名民兵死亡<br>[https://gnews.org/zh-hans/72820/](https://gnews.org/zh-hans/72820/ "https://gnews.org/zh-hans/72820/")
+
+[https://www.guo.media/posts/264660](https://www.guo.media/posts/264660) `2020-01-04T08:25:17`
+##
+
 **milesguo** 美国务卿庞培奥“川普此次凭借决绝的意志，才将苏拉曼尼的屠戮阴谋消灭于萌芽”<br>[https://gnews.org/zh-hans/72861/](https://gnews.org/zh-hans/72861/ "https://gnews.org/zh-hans/72861/")
 
 [https://www.guo.media/posts/264642](https://www.guo.media/posts/264642) `2020-01-04T05:40:12`
