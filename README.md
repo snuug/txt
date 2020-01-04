@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月4号：这个是网络传的伊郎童妻的痛苦视频，我们在这个视频里能看到被陈峰．王岐山等双休的那些孩子的同样的痛苦惨状……无论用什么样的理由．对这样的未成年的孩子．进行这样的生理摧残都是天理不容……一切都是刚刚开始！【伊朗的双修制#度下的9岁合法童妻， 儿童新娘的婚后状态。】
+
+[https://www.guo.media/posts/264773](https://www.guo.media/posts/264773) `2020-01-04T19:25:10`
+##
+
 **milesguo** 1月4号：面具先生的直播，真是太棒了，希望战友，点击这里进去观看！[https://youtu.be/Z32ar65UioY一切都是刚刚开始！](https://youtu.be/Z32ar65UioY一切都是刚刚开始！ "https://youtu.be/Z32ar65UioY一切都是刚刚开始！")
 
 [https://www.guo.media/posts/264770](https://www.guo.media/posts/264770) `2020-01-04T18:25:11`
