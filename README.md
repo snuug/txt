@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** “The death of Soleimani will cause the U.S. to focus its attention on exterminating the [CCP.”](http://CCP.&rdquo; "CCP.&rdquo;") Highlights of Miles Guo’s Live Broadcast on 04/01/2020<br>[https://gnews.org/72865/](https://gnews.org/72865/ "https://gnews.org/72865/")
+
+[https://www.guo.media/posts/264738](https://www.guo.media/posts/264738) `2020-01-04T14:25:11`
+##
+
 **milesguo** 分析：开往罗湖口岸的死亡列车<br>[https://gnews.org/zh-hans/72783/](https://gnews.org/zh-hans/72783/ "https://gnews.org/zh-hans/72783/")
 
 [https://www.guo.media/posts/264736](https://www.guo.media/posts/264736) `2020-01-04T14:10:11`
