@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 黑鹰失事 台湾运安会官员：排除大部分80%机械或80%天气因素<br>[https://gnews.org/zh-hans/73140/](https://gnews.org/zh-hans/73140/ "https://gnews.org/zh-hans/73140/")
+
+[https://www.guo.media/posts/264776](https://www.guo.media/posts/264776) `2020-01-04T20:10:18`
+##
+
 **milesguo** 1月4号：这个是网络传的伊郎童妻的痛苦视频，我们在这个视频里能看到被陈峰．王岐山等双休的那些孩子的同样的痛苦惨状……无论用什么样的理由．对这样的未成年的孩子．进行这样的生理摧残都是天理不容……一切都是刚刚开始！【伊朗的双修制#度下的9岁合法童妻， 儿童新娘的婚后状态。】
 
 [https://www.guo.media/posts/264775](https://www.guo.media/posts/264775) `2020-01-04T19:40:11`
