@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 致命时刻：中国共产党还能活多久?<br>[https://gnews.org/zh-hans/73614/](https://gnews.org/zh-hans/73614/ "https://gnews.org/zh-hans/73614/")
+
+[https://www.guo.media/posts/264880](https://www.guo.media/posts/264880) `2020-01-05T10:10:10`
+##
+
 **milesguo** 美国摄影师因报道香港抗议活动而被拒入境入香港<br>[https://gnews.org/zh-hans/73623/](https://gnews.org/zh-hans/73623/ "https://gnews.org/zh-hans/73623/")
 
 [https://www.guo.media/posts/264877](https://www.guo.media/posts/264877) `2020-01-05T09:55:11`
