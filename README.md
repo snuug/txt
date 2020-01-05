@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 视频：台湾黑鹰事故现场，参谋总长沈一鸣上将等八名军人因直升机事故而丧生<br>[https://gnews.org/zh-hans/73513/](https://gnews.org/zh-hans/73513/ "https://gnews.org/zh-hans/73513/")
+
+[https://www.guo.media/posts/264864](https://www.guo.media/posts/264864) `2020-01-05T07:25:11`
+##
+
+**milesguo** “以卵击石”军迷分析军力对比：伊朗若对美国开战维持不了几天<br>[https://gnews.org/zh-hans/73375/](https://gnews.org/zh-hans/73375/ "https://gnews.org/zh-hans/73375/")
+
+[https://www.guo.media/posts/264863](https://www.guo.media/posts/264863) `2020-01-05T07:25:15`
+##
+
+**milesguo** 无人机航拍！港人元旦游行遭黑警强力清场<br>[https://gnews.org/zh-hans/73486/](https://gnews.org/zh-hans/73486/ "https://gnews.org/zh-hans/73486/")
+
+[https://www.guo.media/posts/264862](https://www.guo.media/posts/264862) `2020-01-05T07:25:18`
+##
+
+**milesguo** 郭文贵先生的反共哥们-班农和比尔戈兹双刀联手！插中共!解读伊朗-俄罗斯-中共邪恶轴心的布局和野心<br>[https://gnews.org/zh-hans/73483/](https://gnews.org/zh-hans/73483/ "https://gnews.org/zh-hans/73483/")
+
+[https://www.guo.media/posts/264861](https://www.guo.media/posts/264861) `2020-01-05T07:25:21`
+##
+
 **milesguo** 中共强迫新疆近五十万穆斯林儿童读寄宿学校<br>[https://gnews.org/zh-hans/73424/](https://gnews.org/zh-hans/73424/ "https://gnews.org/zh-hans/73424/")
 
 [https://www.guo.media/posts/264844](https://www.guo.media/posts/264844) `2020-01-05T03:40:10`
