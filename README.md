@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共强迫新疆近五十万穆斯林儿童读寄宿学校<br>[https://gnews.org/zh-hans/73424/](https://gnews.org/zh-hans/73424/ "https://gnews.org/zh-hans/73424/")
+
+[https://www.guo.media/posts/264844](https://www.guo.media/posts/264844) `2020-01-05T03:40:10`
+##
+
+**milesguo** 独裁者在肝颤 川普总统霸气三连推<br>[https://gnews.org/zh-hans/73433/](https://gnews.org/zh-hans/73433/ "https://gnews.org/zh-hans/73433/")
+
+[https://www.guo.media/posts/264843](https://www.guo.media/posts/264843) `2020-01-05T03:40:14`
+##
+
+**milesguo** 文字版2020年1月3日文贵报平安：中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始<br>[https://gnews.org/zh-hans/73406/](https://gnews.org/zh-hans/73406/ "https://gnews.org/zh-hans/73406/")
+
+[https://www.guo.media/posts/264841](https://www.guo.media/posts/264841) `2020-01-05T03:40:17`
+##
+
+**milesguo** 全世界都穷 只有中国好<br>[https://gnews.org/zh-hans/73390/](https://gnews.org/zh-hans/73390/ "https://gnews.org/zh-hans/73390/")
+
+[https://www.guo.media/posts/264840](https://www.guo.media/posts/264840) `2020-01-05T03:40:20`
+##
+
 **milesguo** 中国教育的奇耻大辱：让孩子输在受精卵上<br>[https://gnews.org/zh-hans/73378/](https://gnews.org/zh-hans/73378/ "https://gnews.org/zh-hans/73378/")
 
 [https://www.guo.media/posts/264813](https://www.guo.media/posts/264813) `2020-01-05T01:25:11`
