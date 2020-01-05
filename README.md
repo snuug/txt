@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国摄影师因报道香港抗议活动而被拒入境入香港<br>[https://gnews.org/zh-hans/73623/](https://gnews.org/zh-hans/73623/ "https://gnews.org/zh-hans/73623/")
+
+[https://www.guo.media/posts/264877](https://www.guo.media/posts/264877) `2020-01-05T09:55:11`
+##
+
 **milesguo** January 4, Posters on HK Protest<br>[https://gnews.org/73208/](https://gnews.org/73208/ "https://gnews.org/73208/")
 
 [https://www.guo.media/posts/264871](https://www.guo.media/posts/264871) `2020-01-05T08:25:11`
