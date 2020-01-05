@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** January 4, Posters on HK Protest<br>[https://gnews.org/73208/](https://gnews.org/73208/ "https://gnews.org/73208/")
+
+[https://www.guo.media/posts/264871](https://www.guo.media/posts/264871) `2020-01-05T08:25:11`
+##
+
+**milesguo** Iraqis tweet: rocket attacks Balad airbase and Baghdad’s Green Zone<br>[https://gnews.org/73217/](https://gnews.org/73217/ "https://gnews.org/73217/")
+
+[https://www.guo.media/posts/264870](https://www.guo.media/posts/264870) `2020-01-05T08:25:15`
+##
+
+**milesguo** Acting Chief Magistrate Criticized Police for Delaying Document Submission<br>[https://gnews.org/72757/](https://gnews.org/72757/ "https://gnews.org/72757/")
+
+[https://www.guo.media/posts/264869](https://www.guo.media/posts/264869) `2020-01-05T08:25:17`
+##
+
 **milesguo** <br>大陆青年看郭文贵爆料赴港支援反送中<br>[https://gnews.org/zh-hans/73449/](https://gnews.org/zh-hans/73449/ "https://gnews.org/zh-hans/73449/")
 
 [https://www.guo.media/posts/264867](https://www.guo.media/posts/264867) `2020-01-05T07:55:12`
