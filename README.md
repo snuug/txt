@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 中国教育的奇耻大辱：让孩子输在受精卵上<br>[https://gnews.org/zh-hans/73378/](https://gnews.org/zh-hans/73378/ "https://gnews.org/zh-hans/73378/")
+
+[https://www.guo.media/posts/264813](https://www.guo.media/posts/264813) `2020-01-05T01:25:11`
+##
+
+**milesguo** 香港要闻：港共武装恐怖组织肆虐 变本加厉、英檔解密 曾钰成疑反对三方谈政制 揭亲共政党出卖港人<br>[https://gnews.org/zh-hans/73363/](https://gnews.org/zh-hans/73363/ "https://gnews.org/zh-hans/73363/")
+
+[https://www.guo.media/posts/264812](https://www.guo.media/posts/264812) `2020-01-05T01:25:14`
+##
+
+**milesguo** 1月4号：尊敬的战友们好……明天1月5号上午9:30 [https://gnews.org，/报平安直播，一切都是刚刚开始！](https://gnews.org，/报平安直播，一切都是刚刚开始！ "https://gnews.org，/报平安直播，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/264811](https://www.guo.media/posts/264811) `2020-01-05T01:25:17`
+##
+
+**milesguo** 小巴猪：中共强大的原因之一——统一思想、统一行动<br>[https://gnews.org/zh-hans/73350/](https://gnews.org/zh-hans/73350/ "https://gnews.org/zh-hans/73350/")
+
+[https://www.guo.media/posts/264809](https://www.guo.media/posts/264809) `2020-01-05T01:25:20`
+##
+
+**milesguo** 新加坡爆发首例不明肺炎个案<br>[https://gnews.org/zh-hans/73333/](https://gnews.org/zh-hans/73333/ "https://gnews.org/zh-hans/73333/")
+
+[https://www.guo.media/posts/264806](https://www.guo.media/posts/264806) `2020-01-05T01:25:23`
+##
+
 **milesguo** 带你了解2020年1月5日至1月24日香港游行<br>[https://gnews.org/zh-hans/73285/](https://gnews.org/zh-hans/73285/ "https://gnews.org/zh-hans/73285/")
 
 [https://www.guo.media/posts/264797](https://www.guo.media/posts/264797) `2020-01-05T00:10:10`
