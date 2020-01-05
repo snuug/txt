@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>大陆青年看郭文贵爆料赴港支援反送中<br>[https://gnews.org/zh-hans/73449/](https://gnews.org/zh-hans/73449/ "https://gnews.org/zh-hans/73449/")
+
+[https://www.guo.media/posts/264867](https://www.guo.media/posts/264867) `2020-01-05T07:55:12`
+##
+
 **milesguo** 湖南衡阳政府机关大楼沦为卖淫窝点 干部走10米便到<br>[https://gnews.org/zh-hans/73525/](https://gnews.org/zh-hans/73525/ "https://gnews.org/zh-hans/73525/")
 
 [https://www.guo.media/posts/264865](https://www.guo.media/posts/264865) `2020-01-05T07:40:11`
