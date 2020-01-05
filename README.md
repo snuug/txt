@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 湖南衡阳政府机关大楼沦为卖淫窝点 干部走10米便到<br>[https://gnews.org/zh-hans/73525/](https://gnews.org/zh-hans/73525/ "https://gnews.org/zh-hans/73525/")
+
+[https://www.guo.media/posts/264865](https://www.guo.media/posts/264865) `2020-01-05T07:40:11`
+##
+
 **milesguo** 视频：台湾黑鹰事故现场，参谋总长沈一鸣上将等八名军人因直升机事故而丧生<br>[https://gnews.org/zh-hans/73513/](https://gnews.org/zh-hans/73513/ "https://gnews.org/zh-hans/73513/")
 
 [https://www.guo.media/posts/264864](https://www.guo.media/posts/264864) `2020-01-05T07:25:11`
