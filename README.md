@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 1月6号 美国政要推特精选<br>[https://gnews.org/zh-hans/74981/](https://gnews.org/zh-hans/74981/ "https://gnews.org/zh-hans/74981/")
+
+[https://www.guo.media/posts/265289](https://www.guo.media/posts/265289) `2020-01-07T13:10:11`
+##
+
+**milesguo** 我所见闻的白手套<br>[https://gnews.org/zh-hans/74549/](https://gnews.org/zh-hans/74549/ "https://gnews.org/zh-hans/74549/")
+
+[https://www.guo.media/posts/265288](https://www.guo.media/posts/265288) `2020-01-07T13:10:15`
+##
+
+**milesguo** 【DT挖掘机系列】还原一个真实的鸡腿潘-潘林正（第一部分）<br>[https://gnews.org/zh-hans/74998/](https://gnews.org/zh-hans/74998/ "https://gnews.org/zh-hans/74998/")
+
+[https://www.guo.media/posts/265287](https://www.guo.media/posts/265287) `2020-01-07T13:10:18`
+##
+
+**milesguo** 铲除畜类 铲除伪类 刻不容缓<br>[https://gnews.org/zh-hans/74859/](https://gnews.org/zh-hans/74859/ "https://gnews.org/zh-hans/74859/")
+
+[https://www.guo.media/posts/265286](https://www.guo.media/posts/265286) `2020-01-07T13:10:22`
+##
+
+**milesguo** 广播：2020/1/6 郭文贵先生第二次直播 揭开傅希秋的真面目<br>[https://gnews.org/zh-hans/74918/](https://gnews.org/zh-hans/74918/ "https://gnews.org/zh-hans/74918/")
+
+[https://www.guo.media/posts/265285](https://www.guo.media/posts/265285) `2020-01-07T13:10:25`
+##
+
+**milesguo** 货运成了中共的侵略筹码？被狭持的世界运输业！<br>[https://gnews.org/zh-hans/74873/](https://gnews.org/zh-hans/74873/ "https://gnews.org/zh-hans/74873/")
+
+[https://www.guo.media/posts/265284](https://www.guo.media/posts/265284) `2020-01-07T13:10:28`
+##
+
 **milesguo** 老江观点：港币的最后挣扎<br>[https://gnews.org/zh-hans/74876/](https://gnews.org/zh-hans/74876/ "https://gnews.org/zh-hans/74876/")
 
 [https://www.guo.media/posts/265283](https://www.guo.media/posts/265283) `2020-01-07T12:55:11`
