@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月5日文贵报平安直播：谈傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！<br>[https://gnews.org/zh-hans/74845/](https://gnews.org/zh-hans/74845/ "https://gnews.org/zh-hans/74845/")
+
+[https://www.guo.media/posts/265260](https://www.guo.media/posts/265260) `2020-01-07T07:55:11`
+##
+
+**milesguo** 肯尼亚发生致命袭击后，美国非洲司令部的东非应急部队到达位于肯尼亚的曼达湾<br>[https://gnews.org/zh-hans/74767/](https://gnews.org/zh-hans/74767/ "https://gnews.org/zh-hans/74767/")
+
+[https://www.guo.media/posts/265259](https://www.guo.media/posts/265259) `2020-01-07T07:55:14`
+##
+
+**milesguo** 中共的“帝国坟场”<br>[https://gnews.org/zh-hans/74792/](https://gnews.org/zh-hans/74792/ "https://gnews.org/zh-hans/74792/")
+
+[https://www.guo.media/posts/265258](https://www.guo.media/posts/265258) `2020-01-07T07:55:18`
+##
+
 **milesguo** 因离封锁线稍近陈伯被军警用胡椒喷雾对准后脑<br>[https://gnews.org/zh-hans/74752/](https://gnews.org/zh-hans/74752/ "https://gnews.org/zh-hans/74752/")
 
 [https://www.guo.media/posts/265254](https://www.guo.media/posts/265254) `2020-01-07T07:40:11`
