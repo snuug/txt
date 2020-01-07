@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 因离封锁线稍近陈伯被军警用胡椒喷雾对准后脑<br>[https://gnews.org/zh-hans/74752/](https://gnews.org/zh-hans/74752/ "https://gnews.org/zh-hans/74752/")
+
+[https://www.guo.media/posts/265254](https://www.guo.media/posts/265254) `2020-01-07T07:40:11`
+##
+
 **milesguo** 共产党走独裁道路之“抓壮丁”疯狂补血军队的人员不足<br>[https://gnews.org/zh-hans/74759/](https://gnews.org/zh-hans/74759/ "https://gnews.org/zh-hans/74759/")
 
 [https://www.guo.media/posts/265245](https://www.guo.media/posts/265245) `2020-01-07T06:55:11`
