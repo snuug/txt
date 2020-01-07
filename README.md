@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 1月7日至1月8日香港游行<br>[https://gnews.org/zh-hans/74701/](https://gnews.org/zh-hans/74701/ "https://gnews.org/zh-hans/74701/")
+
+[https://www.guo.media/posts/265242](https://www.guo.media/posts/265242) `2020-01-07T06:40:10`
+##
+
+**milesguo** 香港要闻：新『沙士』袭港 轰港共政府刻意隐瞒；英檔解密<br>[https://gnews.org/zh-hans/74713/](https://gnews.org/zh-hans/74713/ "https://gnews.org/zh-hans/74713/")
+
+[https://www.guo.media/posts/265241](https://www.guo.media/posts/265241) `2020-01-07T06:40:14`
+##
+
+**milesguo** 一名党龄30年的老党员与爆料革命（第七章）<br>[https://gnews.org/zh-hans/74681/](https://gnews.org/zh-hans/74681/ "https://gnews.org/zh-hans/74681/")
+
+[https://www.guo.media/posts/265240](https://www.guo.media/posts/265240) `2020-01-07T06:40:17`
+##
+
 **milesguo** 郭文贵先生爆料傅希秋：披着人权光环的最大蛇头<br>[https://gnews.org/zh-hans/74640/](https://gnews.org/zh-hans/74640/ "https://gnews.org/zh-hans/74640/")
 
 [https://www.guo.media/posts/265239](https://www.guo.media/posts/265239) `2020-01-07T06:25:11`
