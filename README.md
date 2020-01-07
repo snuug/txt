@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 索莱曼尼（Soleimani）之后，金正恩何去何从<br>[https://gnews.org/zh-hans/75122/](https://gnews.org/zh-hans/75122/ "https://gnews.org/zh-hans/75122/")
+
+[https://www.guo.media/posts/265321](https://www.guo.media/posts/265321) `2020-01-07T17:55:11`
+##
+
 **milesguo** 中共驻伊拉克大使说北京准备提供军援 藉由支援伊拉克绕过美国制裁支援伊朗<br>[https://gnews.org/zh-hans/75463/](https://gnews.org/zh-hans/75463/ "https://gnews.org/zh-hans/75463/")
 
 [https://www.guo.media/posts/265310](https://www.guo.media/posts/265310) `2020-01-07T16:40:11`
