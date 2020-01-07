@@ -13,6 +13,10 @@
 
 ## 頁面 18/23 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
+
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
+
 [文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
@@ -58,10 +62,6 @@
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
 
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/2018/04/20180418-1652882263538149002.md)
-
-[曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/2018/04/20180418-6784868507419879908.md)
-
-[自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
 
 
 ## 頁面 18/23 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
