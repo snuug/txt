@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [Guo’s Remarks in 90 Seconds ] CCP’s Hong Kong Personnel Changes (6 Jan 2020)<br>[https://gnews.org/74942/](https://gnews.org/74942/ "https://gnews.org/74942/")
+
+[https://www.guo.media/posts/265232](https://www.guo.media/posts/265232) `2020-01-07T05:55:15`
+##
+
 **milesguo** 我们在爆料革命里的角色<br>[https://gnews.org/zh-hans/74679/](https://gnews.org/zh-hans/74679/ "https://gnews.org/zh-hans/74679/")
 
 [https://www.guo.media/posts/265212](https://www.guo.media/posts/265212) `2020-01-07T05:10:10`
