@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 老江观点：港币的最后挣扎<br>[https://gnews.org/zh-hans/74876/](https://gnews.org/zh-hans/74876/ "https://gnews.org/zh-hans/74876/")
+
+[https://www.guo.media/posts/265283](https://www.guo.media/posts/265283) `2020-01-07T12:55:11`
+##
+
+**milesguo** 美陆军第82伞兵部署到中东科威特：不许带手机和笔记本电脑<br>[https://gnews.org/zh-hans/74847/](https://gnews.org/zh-hans/74847/ "https://gnews.org/zh-hans/74847/")
+
+[https://www.guo.media/posts/265282](https://www.guo.media/posts/265282) `2020-01-07T12:55:14`
+##
+
 **milesguo** 美陆军第82伞兵部署到中东科威特：不许带手机和笔记本电脑<br>[https://gnews.org/zh-hans/74847/](https://gnews.org/zh-hans/74847/ "https://gnews.org/zh-hans/74847/")
 
 [https://www.guo.media/posts/265261](https://www.guo.media/posts/265261) `2020-01-07T08:10:10`
