@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 中共驻伊拉克大使说北京准备提供军援 藉由支援伊拉克绕过美国制裁支援伊朗<br>[https://gnews.org/zh-hans/75463/](https://gnews.org/zh-hans/75463/ "https://gnews.org/zh-hans/75463/")
+
+[https://www.guo.media/posts/265310](https://www.guo.media/posts/265310) `2020-01-07T16:40:11`
+##
+
+**milesguo** 广播：2020/1/7 郭文贵先生直播 爆料革命要终结CCP造成的华人互相排斥；台湾人投票蔡英文！<br>[https://gnews.org/zh-hans/75433/](https://gnews.org/zh-hans/75433/ "https://gnews.org/zh-hans/75433/")
+
+[https://www.guo.media/posts/265308](https://www.guo.media/posts/265308) `2020-01-07T16:40:14`
+##
+
+**milesguo** 八角棒槌：中共体制之毒-不是杀人就是如何被杀<br>[https://gnews.org/zh-hans/75432/](https://gnews.org/zh-hans/75432/ "https://gnews.org/zh-hans/75432/")
+
+[https://www.guo.media/posts/265307](https://www.guo.media/posts/265307) `2020-01-07T16:40:18`
+##
+
+**milesguo** 【挖掘机团队出品】 狗屎系列：广州国安特务，龚老太太之前世今生！（第一部分）<br>[https://gnews.org/zh-hans/75280/](https://gnews.org/zh-hans/75280/ "https://gnews.org/zh-hans/75280/")
+
+[https://www.guo.media/posts/265306](https://www.guo.media/posts/265306) `2020-01-07T16:40:21`
+##
+
+**milesguo** 美国国务卿蓬佩奧在接受NBC“媒体面对面”采访上的讲话<br>[https://gnews.org/zh-hans/75380/](https://gnews.org/zh-hans/75380/ "https://gnews.org/zh-hans/75380/")
+
+[https://www.guo.media/posts/265305](https://www.guo.media/posts/265305) `2020-01-07T16:40:24`
+##
+
 **milesguo** 中共是怎么盗取海外技术的，一起守住华人最后的底线<br>[https://gnews.org/zh-hans/75132/](https://gnews.org/zh-hans/75132/ "https://gnews.org/zh-hans/75132/")
 
 [https://www.guo.media/posts/265304](https://www.guo.media/posts/265304) `2020-01-07T16:25:11`
