@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生爆料傅希秋：披着人权光环的最大蛇头<br>[https://gnews.org/zh-hans/74640/](https://gnews.org/zh-hans/74640/ "https://gnews.org/zh-hans/74640/")
+
+[https://www.guo.media/posts/265239](https://www.guo.media/posts/265239) `2020-01-07T06:25:11`
+##
+
 **milesguo** [Guo’s Remarks in 90 Seconds ] CCP’s Hong Kong Personnel Changes (6 Jan 2020)<br>[https://gnews.org/74942/](https://gnews.org/74942/ "https://gnews.org/74942/")
 
 [https://www.guo.media/posts/265232](https://www.guo.media/posts/265232) `2020-01-07T05:55:15`
