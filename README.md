@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共是怎么盗取海外技术的，一起守住华人最后的底线<br>[https://gnews.org/zh-hans/75132/](https://gnews.org/zh-hans/75132/ "https://gnews.org/zh-hans/75132/")
+
+[https://www.guo.media/posts/265304](https://www.guo.media/posts/265304) `2020-01-07T16:25:11`
+##
+
 **milesguo** 1月6号 美国政要推特精选<br>[https://gnews.org/zh-hans/74981/](https://gnews.org/zh-hans/74981/ "https://gnews.org/zh-hans/74981/")
 
 [https://www.guo.media/posts/265289](https://www.guo.media/posts/265289) `2020-01-07T13:10:11`
