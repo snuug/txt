@@ -12,6 +12,371 @@
 ## 最新郭文
 
 
+**milesguo** 我们在爆料革命里的角色<br>[https://gnews.org/zh-hans/74679/](https://gnews.org/zh-hans/74679/ "https://gnews.org/zh-hans/74679/")
+
+[https://www.guo.media/posts/265212](https://www.guo.media/posts/265212) `2020-01-07T05:10:10`
+##
+
+**milesguo** 【视频】如果我是大魔王<br>[https://gnews.org/zh-hans/74624/](https://gnews.org/zh-hans/74624/ "https://gnews.org/zh-hans/74624/")
+
+[https://www.guo.media/posts/265211](https://www.guo.media/posts/265211) `2020-01-07T05:10:15`
+##
+
+**milesguo** 视频：执行斩首行动的无人机，让敌人闻风丧胆的MQ-9收割者及新一代无人机<br>[https://gnews.org/zh-hans/74597/](https://gnews.org/zh-hans/74597/ "https://gnews.org/zh-hans/74597/")
+
+[https://www.guo.media/posts/265210](https://www.guo.media/posts/265210) `2020-01-07T05:10:18`
+##
+
+**milesguo** 老江观点：老板，组织让你退休<br>[https://gnews.org/zh-hans/74569/](https://gnews.org/zh-hans/74569/ "https://gnews.org/zh-hans/74569/")
+
+[https://www.guo.media/posts/265209](https://www.guo.media/posts/265209) `2020-01-07T05:10:23`
+##
+
+**milesguo** 回应伊朗宣布停止履行《伊朗核协议》，川普总统发话：伊朗永远不会拥有核武！<br>[https://gnews.org/zh-hans/74570/](https://gnews.org/zh-hans/74570/ "https://gnews.org/zh-hans/74570/")
+
+[https://www.guo.media/posts/265206](https://www.guo.media/posts/265206) `2020-01-07T05:10:26`
+##
+
+**milesguo** 美国国务卿蓬佩奥: 美军没有计划撤离伊拉克<br>[https://gnews.org/zh-hans/74555/](https://gnews.org/zh-hans/74555/ "https://gnews.org/zh-hans/74555/")
+
+[https://www.guo.media/posts/265205](https://www.guo.media/posts/265205) `2020-01-07T05:10:30`
+##
+
+**milesguo** 2020年1月6号：Linzheng Pan may change his name to Jonathan Young<br>这是他注册的公司．从一系列的行为看出这货准备坑蒙拐骗反对爆料革命已经很久了。<br>2017年九月份鸡腿潘已改名为Jonathan Young 这个日期应该在他向法治基金申请贷款之前！有准备的诈骗……
+
+[https://www.guo.media/posts/265203](https://www.guo.media/posts/265203) `2020-01-07T05:10:33`
+##
+
+**milesguo** 香港前警察表示现在港警完全违规<br>[https://gnews.org/zh-hans/74537/](https://gnews.org/zh-hans/74537/ "https://gnews.org/zh-hans/74537/")
+
+[https://www.guo.media/posts/265202](https://www.guo.media/posts/265202) `2020-01-07T05:10:36`
+##
+
+**milesguo** 广播：2020/1/6 郭文贵先生直播 傅希秋我R你八辈祖宗！法庭见！<br>[https://gnews.org/zh-hans/74498/](https://gnews.org/zh-hans/74498/ "https://gnews.org/zh-hans/74498/")
+
+[https://www.guo.media/posts/265201](https://www.guo.media/posts/265201) `2020-01-07T05:10:39`
+##
+
+**milesguo** 【怒】交通局官员乘车 扬言弄死司机<br>[https://gnews.org/zh-hans/74483/](https://gnews.org/zh-hans/74483/ "https://gnews.org/zh-hans/74483/")
+
+[https://www.guo.media/posts/265186](https://www.guo.media/posts/265186) `2020-01-07T05:10:42`
+##
+
+**milesguo** 6th January, 2020<br>All US government officials ，please take a look. This so-called US citizen engaged in illegal political asylum , threat and fraud in the US. Using the FBI, Vice President Pence , Secretary of State Pompeo, and other US officials to engage fake asylum business under their names. What a garbage is Fu Xiqiu!<br>He also said that he met with FBI law enforcement agents ！According to his tweets, he was in Midland for 4 hours from the time he said he would meet FBI agents to the time he reported the result of the meeting. This fake paster continues to lie, deceive and threaten!
+
+[https://www.guo.media/posts/265182](https://www.guo.media/posts/265182) `2020-01-07T05:10:45`
+##
+
+**milesguo** 1月6日，请所有的美国政府官员看一看，所谓美国公民在美国搞非法政治庇护，威胁诈骗。利用美国FBI，彭斯副总统，国务卿蓬佩奥以及其他美国政府官员，打着他们名声做假政治庇护生意的假牧师，傅希秋是什么东西！还说与FBI联邦执法特工见了面。根据他的推文，从他去说去见FBI特工时间为1:16am，到他报告会见结果，时间为5:24am, 4个小时都在Midland！这个假牧师还在继续编造谎言，欺骗威胁！
+
+[https://www.guo.media/posts/265181](https://www.guo.media/posts/265181) `2020-01-07T05:10:48`
+##
+
+**milesguo** 1月6号：[https://gnews.org/zh-hans/．下午6:00尊敬的战友们好文贵，马上再次直播，关于傅希秋这个神棍片子的在FBI的事情一切都是刚刚开始！，](https://gnews.org/zh-hans/．下午6:00尊敬的战友们好文贵，马上再次直播，关于傅希秋这个神棍片子的在FBI的事情一切都是刚刚开始！， "https://gnews.org/zh-hans/．下午6:00尊敬的战友们好文贵，马上再次直播，关于傅希秋这个神棍片子的在FBI的事情一切都是刚刚开始！，")
+
+[https://www.guo.media/posts/265174](https://www.guo.media/posts/265174) `2020-01-07T05:10:56`
+##
+
+**milesguo** 1月6号：尊敬的战友们好！先让战友们看看，到底谁是傅希秋？他是什么样的骗子……傅希秋你不要FBI的找我我就R你八辈祖宗！你是一个绝对的神棍．十骗子，做搞非法政治庇护……骗色骗钱——共产党的走狗……傅希秋我们会在这里有一个黑白分明的结果！别装孙子……装神弄鬼，请你拿出你的真正的行动来证明，谁是骗子？谁是共产党的走狗……美国的法律是公正的，你玩的这流氓下三滥手段……只能对那些懦弱的傻子们管用……帮我擦厕所的都比你有本事，你能在美国欺负这么多危难之时的同胞趁人之危，又在美国代表着所谓的中国宗教姐，这是美国的悲剧中国人的悲哀，不可能让你这个披着宗教外衣的孙子……懦弱的小人……再代表我们14亿中国人……在美国在世界的……任何地方！一切都是刚刚开始！
+
+[https://www.guo.media/posts/265159](https://www.guo.media/posts/265159) `2020-01-07T05:11:00`
+##
+
+**milesguo** Heavy Police Deployment at Anti Parallel Trading Rally, followed by Mass Arrests<br>[https://gnews.org/74457/](https://gnews.org/74457/ "https://gnews.org/74457/")
+
+[https://www.guo.media/posts/265151](https://www.guo.media/posts/265151) `2020-01-07T05:11:02`
+##
+
+**milesguo** Over 10,000 Attended the Anti-parallel Trading Protest on Sunday<br>[https://gnews.org/74442/](https://gnews.org/74442/ "https://gnews.org/74442/")
+
+[https://www.guo.media/posts/265150](https://www.guo.media/posts/265150) `2020-01-07T05:11:06`
+##
+
+**milesguo** An Altar Built In Memory Of The Death of Civilians<br>[https://gnews.org/74426/](https://gnews.org/74426/ "https://gnews.org/74426/")
+
+[https://www.guo.media/posts/265149](https://www.guo.media/posts/265149) `2020-01-07T05:11:09`
+##
+
+**milesguo** Grandpa Chan Determined to Walk With Youths<br>[https://gnews.org/74412/](https://gnews.org/74412/ "https://gnews.org/74412/")
+
+[https://www.guo.media/posts/265148](https://www.guo.media/posts/265148) `2020-01-07T05:11:12`
+##
+
+**milesguo** 1月6号：我们的战友霹雳小皮匠，重开门大吉，请点击这里观看。[https://www.youtube.com/watch?v=5tEiIxsKc8k．一切都是刚刚开始！](https://www.youtube.com/watch?v=5tEiIxsKc8k．一切都是刚刚开始！ "https://www.youtube.com/watch?v=5tEiIxsKc8k．一切都是刚刚开始！")
+
+[https://www.guo.media/posts/265137](https://www.guo.media/posts/265137) `2020-01-07T05:11:15`
+##
+
+**milesguo** Hong Kong Protests in the Virtual World<br>[https://gnews.org/73916/](https://gnews.org/73916/ "https://gnews.org/73916/")
+
+[https://www.guo.media/posts/265132](https://www.guo.media/posts/265132) `2020-01-07T05:11:21`
+##
+
+**milesguo** Member of “Protect the Children” Attacked by the Police for No Reason<br>[https://gnews.org/74381/](https://gnews.org/74381/ "https://gnews.org/74381/")
+
+[https://www.guo.media/posts/265130](https://www.guo.media/posts/265130) `2020-01-07T05:11:24`
+##
+
+**milesguo** US deploys thousands of Marines to the Mediterranean Sea<br>[https://gnews.org/74326/](https://gnews.org/74326/ "https://gnews.org/74326/")
+
+[https://www.guo.media/posts/265126](https://www.guo.media/posts/265126) `2020-01-07T05:11:27`
+##
+
+**milesguo** Jan 5, Highlights of Miles Guo’s Live Broadcast<br>[https://gnews.org/74255/](https://gnews.org/74255/ "https://gnews.org/74255/")
+
+[https://www.guo.media/posts/265119](https://www.guo.media/posts/265119) `2020-01-07T05:11:30`
+##
+
+**milesguo** 美国务院发言人精彩回应凤凰台小五毛<br>[https://gnews.org/zh-hans/74438/](https://gnews.org/zh-hans/74438/ "https://gnews.org/zh-hans/74438/")
+
+[https://www.guo.media/posts/265116](https://www.guo.media/posts/265116) `2020-01-07T05:11:33`
+##
+
+**milesguo** 香港太和邨13岁少女跳楼当场死亡<br>[https://gnews.org/zh-hans/74352/](https://gnews.org/zh-hans/74352/ "https://gnews.org/zh-hans/74352/")
+
+[https://www.guo.media/posts/265114](https://www.guo.media/posts/265114) `2020-01-07T05:11:36`
+##
+
+**milesguo** 1月5日 美国政要推特精选<br>[https://gnews.org/zh-hans/74435/](https://gnews.org/zh-hans/74435/ "https://gnews.org/zh-hans/74435/")
+
+[https://www.guo.media/posts/265112](https://www.guo.media/posts/265112) `2020-01-07T05:11:39`
+##
+
+**milesguo** 2020年与爆料革命一起开天霹雳！<br>[https://gnews.org/zh-hans/74329/](https://gnews.org/zh-hans/74329/ "https://gnews.org/zh-hans/74329/")
+
+[https://www.guo.media/posts/265111](https://www.guo.media/posts/265111) `2020-01-07T05:11:42`
+##
+
+**milesguo** 5G将成为中共和西方最终的分歧<br>[https://gnews.org/zh-hans/74342/](https://gnews.org/zh-hans/74342/ "https://gnews.org/zh-hans/74342/")
+
+[https://www.guo.media/posts/265096](https://www.guo.media/posts/265096) `2020-01-07T05:11:45`
+##
+
+**milesguo** 港府的疯狂：星火同盟负责人为抗议活动筹款遭到拘捕<br>[https://gnews.org/zh-hans/74392/](https://gnews.org/zh-hans/74392/ "https://gnews.org/zh-hans/74392/") 
+
+[https://www.guo.media/posts/265094](https://www.guo.media/posts/265094) `2020-01-07T05:11:48`
+##
+
+**milesguo** 五角大楼禁止美国军人使用抖音（TikTok）<br>[https://gnews.org/zh-hans/74402/](https://gnews.org/zh-hans/74402/ "https://gnews.org/zh-hans/74402/")
+
+[https://www.guo.media/posts/265093](https://www.guo.media/posts/265093) `2020-01-07T05:11:51`
+##
+
+**milesguo** 中东紧张局势加剧，几千名美国海军陆战队员结束演习，前往地中海<br>[https://gnews.org/zh-hans/74260/](https://gnews.org/zh-hans/74260/ "https://gnews.org/zh-hans/74260/")
+
+[https://www.guo.media/posts/265066](https://www.guo.media/posts/265066) `2020-01-07T05:11:54`
+##
+
+**milesguo** 【寻人启事】近期失踪人士，请大家广传帮忙寻找…<br>[https://gnews.org/zh-hans/74293/](https://gnews.org/zh-hans/74293/ "https://gnews.org/zh-hans/74293/")
+
+[https://www.guo.media/posts/265065](https://www.guo.media/posts/265065) `2020-01-07T05:11:57`
+##
+
+**milesguo** 蓬佩奥不排除对伊朗领导人反动更多袭击，伊朗不拒绝谈判，索马里美军基地遭袭<br>[https://gnews.org/zh-hans/74195/](https://gnews.org/zh-hans/74195/ "https://gnews.org/zh-hans/74195/") 
+
+[https://www.guo.media/posts/265064](https://www.guo.media/posts/265064) `2020-01-07T05:12:00`
+##
+
+**milesguo** 又现爆雷，血本无归！近200万人被坑1000亿<br>[https://gnews.org/zh-hans/74196/](https://gnews.org/zh-hans/74196/ "https://gnews.org/zh-hans/74196/")
+
+[https://www.guo.media/posts/265042](https://www.guo.media/posts/265042) `2020-01-07T05:12:03`
+##
+
+**milesguo** 文字版2020年1月4日文贵报平安直播：共产党不管你咋折腾，你完蛋了！<br>[https://gnews.org/zh-hans/74206/](https://gnews.org/zh-hans/74206/ "https://gnews.org/zh-hans/74206/")
+
+[https://www.guo.media/posts/265040](https://www.guo.media/posts/265040) `2020-01-07T05:12:07`
+##
+
+**milesguo** 1月5号郭文贵先生与Bannon先生开会总结了伊朗事件最爆料革命会产生什么样的效果<br>[https://gnews.org/zh-hans/74152/](https://gnews.org/zh-hans/74152/ "https://gnews.org/zh-hans/74152/")
+
+[https://www.guo.media/posts/265034](https://www.guo.media/posts/265034) `2020-01-07T05:12:10`
+##
+
+**milesguo** 老江观点：中东的事儿才刚开始<br>[https://gnews.org/zh-hans/74161/](https://gnews.org/zh-hans/74161/ "https://gnews.org/zh-hans/74161/")
+
+[https://www.guo.media/posts/265032](https://www.guo.media/posts/265032) `2020-01-07T05:12:12`
+##
+
+**milesguo** 中共洗脑下的“变态爱国”！<br>[https://gnews.org/zh-hans/74124/](https://gnews.org/zh-hans/74124/ "https://gnews.org/zh-hans/74124/")
+
+[https://www.guo.media/posts/265031](https://www.guo.media/posts/265031) `2020-01-07T05:12:15`
+##
+
+**milesguo** 八角棒槌：从苏莱曼尼之死，看波切们的最终下场<br>[https://gnews.org/zh-hans/74128/](https://gnews.org/zh-hans/74128/ "https://gnews.org/zh-hans/74128/")
+
+[https://www.guo.media/posts/265029](https://www.guo.media/posts/265029) `2020-01-07T05:12:18`
+##
+
+**milesguo** 1月5号文贵在这里又要浪一浪了，应战友们的要求，将今天穿的衣服录一段视频发出来，一切都是刚刚开始。
+
+[https://www.guo.media/posts/265028](https://www.guo.media/posts/265028) `2020-01-07T05:12:22`
+##
+
+**milesguo** 杀肥猪过大年 中共拿下一院士<br>[https://gnews.org/zh-hans/74091/](https://gnews.org/zh-hans/74091/ "https://gnews.org/zh-hans/74091/")
+
+[https://www.guo.media/posts/265026](https://www.guo.media/posts/265026) `2020-01-07T05:12:24`
+##
+
+**milesguo** 香港黑警上水再抓人，被捕者不见惧色<br>[https://gnews.org/zh-hans/73979/](https://gnews.org/zh-hans/73979/ "https://gnews.org/zh-hans/73979/")
+
+[https://www.guo.media/posts/265024](https://www.guo.media/posts/265024) `2020-01-07T05:12:28`
+##
+
+**milesguo** 1月5号：尊敬的战友们好，👉👉[https://gnews.org/zh-hans/．看直播请点击这里。明天上午9:30报平安直播，一切都是刚刚开始！](https://gnews.org/zh-hans/．看直播请点击这里。明天上午9:30报平安直播，一切都是刚刚开始！ "https://gnews.org/zh-hans/．看直播请点击这里。明天上午9:30报平安直播，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/265020](https://www.guo.media/posts/265020) `2020-01-07T05:12:31`
+##
+
+**milesguo** Miles Guo: The CCP is fooling private enterprises again!<br>[https://gnews.org/73895/](https://gnews.org/73895/ "https://gnews.org/73895/")
+
+[https://www.guo.media/posts/265013](https://www.guo.media/posts/265013) `2020-01-07T05:12:39`
+##
+
+**milesguo** 2019年香港人撑起了中华民族的脊梁<br>[https://gnews.org/zh-hans/73971/](https://gnews.org/zh-hans/73971/ "https://gnews.org/zh-hans/73971/")
+
+[https://www.guo.media/posts/265012](https://www.guo.media/posts/265012) `2020-01-07T05:12:42`
+##
+
+**milesguo** 小巴猪：双货币系统，一个国家两种货币，未来货币发行机制的探讨<br>[https://gnews.org/zh-hans/73961/](https://gnews.org/zh-hans/73961/ "https://gnews.org/zh-hans/73961/")
+
+[https://www.guo.media/posts/265011](https://www.guo.media/posts/265011) `2020-01-07T05:12:44`
+##
+
+**milesguo** 香港要闻：港人对港共施政绝望 市民为自保需做足保护措施 ；30年前预言逐一应验；中共龌龊打压手段 令香港陷入人道灾难<br>[https://gnews.org/zh-hans/73953/](https://gnews.org/zh-hans/73953/ "https://gnews.org/zh-hans/73953/")
+
+[https://www.guo.media/posts/265009](https://www.guo.media/posts/265009) `2020-01-07T05:12:47`
+##
+
+**milesguo** 中共金融“开放”的监守自盗<br>[https://gnews.org/zh-hans/73935/](https://gnews.org/zh-hans/73935/ "https://gnews.org/zh-hans/73935/")
+
+[https://www.guo.media/posts/265005](https://www.guo.media/posts/265005) `2020-01-07T05:12:50`
+##
+
+**milesguo** 谈谈中共对苏莱曼尼被斩首与印尼黑色五月暴动两起事件的不同反应<br>[https://gnews.org/zh-hans/73919/](https://gnews.org/zh-hans/73919/ "https://gnews.org/zh-hans/73919/")
+
+[https://www.guo.media/posts/265003](https://www.guo.media/posts/265003) `2020-01-07T05:12:53`
+##
+
+**milesguo** January 5, Posters on HK Protest<br>[https://gnews.org/73858/](https://gnews.org/73858/ "https://gnews.org/73858/")
+
+[https://www.guo.media/posts/264959](https://www.guo.media/posts/264959) `2020-01-07T05:13:02`
+##
+
+**milesguo** HK Police Arrested A Medical Doctor and Firefighters in the 2020 New Year Mass Arrest<br>[https://gnews.org/73435/](https://gnews.org/73435/ "https://gnews.org/73435/")
+
+[https://www.guo.media/posts/264958](https://www.guo.media/posts/264958) `2020-01-07T05:13:05`
+##
+
+**milesguo** Police ordered HSBC to freeze Spark Alliance asset without a court order<br>[https://gnews.org/73652/](https://gnews.org/73652/ "https://gnews.org/73652/")
+
+[https://www.guo.media/posts/264957](https://www.guo.media/posts/264957) `2020-01-07T05:13:09`
+##
+
+**milesguo** The VP of the Hong Kong Professional Teachers’ Union Shares His Support for Students in Public<br>[https://gnews.org/73221/](https://gnews.org/73221/ "https://gnews.org/73221/")
+
+[https://www.guo.media/posts/264956](https://www.guo.media/posts/264956) `2020-01-07T05:13:12`
+##
+
+**milesguo** 1月5号：钢铁侠穆桂英的精彩节目👉👉[https://youtu.be/fD-jBj0Ltio．战友们如有时间请点击，观看，一切都是刚刚开始！](https://youtu.be/fD-jBj0Ltio．战友们如有时间请点击，观看，一切都是刚刚开始！ "https://youtu.be/fD-jBj0Ltio．战友们如有时间请点击，观看，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/264947](https://www.guo.media/posts/264947) `2020-01-07T05:13:15`
+##
+
+**milesguo** 看重播：2020年1月5日郭文贵先生直播谈傅希秋是挂牌特务<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/264946](https://www.guo.media/posts/264946) `2020-01-07T05:13:18`
+##
+
+**milesguo** “傅希秋、火鸡龚是挂牌的特务；艾未未等海外欺民贼将被扫入历史的垃圾桶” 2020年1月5日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/73845/](https://gnews.org/zh-hans/73845/ "https://gnews.org/zh-hans/73845/")
+
+[https://www.guo.media/posts/264945](https://www.guo.media/posts/264945) `2020-01-07T05:13:21`
+##
+
+**milesguo** 美国国务卿彭培奥认定苏莱曼尼对2019年血腥镇压伊朗抗议运动负责<br>[https://gnews.org/zh-hans/73693/](https://gnews.org/zh-hans/73693/ "https://gnews.org/zh-hans/73693/")
+
+[https://www.guo.media/posts/264944](https://www.guo.media/posts/264944) `2020-01-07T05:13:24`
+##
+
+**milesguo** 美国国务卿彭培奥：卡西姆·苏莱曼尼策划了对伊朗抗议运动的残酷镇压<br>[https://gnews.org/zh-hans/73769/](https://gnews.org/zh-hans/73769/ "https://gnews.org/zh-hans/73769/")
+
+[https://www.guo.media/posts/264943](https://www.guo.media/posts/264943) `2020-01-07T05:13:27`
+##
+
+**milesguo** 美国国务卿彭培奥指出伊拉克人民要求摆脱伊朗的影响<br>[https://gnews.org/zh-hans/73717/](https://gnews.org/zh-hans/73717/ "https://gnews.org/zh-hans/73717/")
+
+[https://www.guo.media/posts/264942](https://www.guo.media/posts/264942) `2020-01-07T05:13:30`
+##
+
+**milesguo** 1月5号：今天的报平安直播GTV在线人数达12．7万人，在国内使用VPN人数超过700万个．这是一个美国的最大的电视及网络数据公司监督观看得出的结果。这个数据震撼了他们……几个月前，他和我们开会时完全不相信郭媒体的有数亿人观看的这个数据……但今天他们彻底的被吓到了……这就是爆料革命的力量，这就是共产党必须被灭亡的证据，全球自动灭共．全球联合灭共！到了新的关键时刻！文贵应战友们的要求．随机拍几张短腿的企鹅郭文贵照片……谢谢共产党和起名人们给我的这个企鹅🐧郭的名字！我非常的享受！一切刚刚开始！
+
+[https://www.guo.media/posts/264937](https://www.guo.media/posts/264937) `2020-01-07T05:13:33`
+##
+
+**milesguo** 广播：2020/1/5 郭文贵先生直播 傅希秋是中共间谍！庚子年与中华民族命运1840-2020历史惊人相似！<br>[https://gnews.org/zh-hans/73778/](https://gnews.org/zh-hans/73778/ "https://gnews.org/zh-hans/73778/")
+
+[https://www.guo.media/posts/264932](https://www.guo.media/posts/264932) `2020-01-07T05:13:36`
+##
+
+**milesguo** 看重播：2020年1月5日郭文贵先生直播谈傅希秋是挂牌特务<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/264927](https://www.guo.media/posts/264927) `2020-01-07T05:13:39`
+##
+
+**milesguo** 中共在香港投下病毒与伊朗必然和美国开战？<br>[https://gnews.org/zh-hans/73749/](https://gnews.org/zh-hans/73749/ "https://gnews.org/zh-hans/73749/")
+
+[https://www.guo.media/posts/264926](https://www.guo.media/posts/264926) `2020-01-07T05:13:42`
+##
+
+**milesguo** 驻港戒严部队胡椒喷雾喷射同袍 民众欢呼雀跃<br>[https://gnews.org/zh-hans/73696/](https://gnews.org/zh-hans/73696/ "https://gnews.org/zh-hans/73696/")
+
+[https://www.guo.media/posts/264925](https://www.guo.media/posts/264925) `2020-01-07T05:13:45`
+##
+
+**milesguo** 1月4日 美国政要推特精选<br>[https://gnews.org/zh-hans/73637/](https://gnews.org/zh-hans/73637/ "https://gnews.org/zh-hans/73637/")
+
+[https://www.guo.media/posts/264924](https://www.guo.media/posts/264924) `2020-01-07T05:13:48`
+##
+
+**milesguo** 美国国务卿彭培奥阐述让川普总统采取果敢行动击毙苏莱曼尼的原因<br>[https://gnews.org/zh-hans/73679/](https://gnews.org/zh-hans/73679/ "https://gnews.org/zh-hans/73679/")
+
+[https://www.guo.media/posts/264918](https://www.guo.media/posts/264918) `2020-01-07T05:13:51`
+##
+
+**milesguo** 美国国务卿彭培奥给伊朗人民的讯息<br>[https://gnews.org/zh-hans/73663/](https://gnews.org/zh-hans/73663/ "https://gnews.org/zh-hans/73663/")
+
+[https://www.guo.media/posts/264917](https://www.guo.media/posts/264917) `2020-01-07T05:13:54`
+##
+
+**milesguo** 台湾人会选一个奶共的总统上台吗？<br>[https://gnews.org/zh-hans/73448/](https://gnews.org/zh-hans/73448/ "https://gnews.org/zh-hans/73448/")
+
+[https://www.guo.media/posts/264916](https://www.guo.media/posts/264916) `2020-01-07T05:13:57`
+##
+
+**milesguo** 香港上水反水货客游行 军警严密布控<br>[https://gnews.org/zh-hans/73556/](https://gnews.org/zh-hans/73556/ "https://gnews.org/zh-hans/73556/")
+
+[https://www.guo.media/posts/264915](https://www.guo.media/posts/264915) `2020-01-07T05:14:00`
+##
+
+**milesguo** Miles Guo: The US will make big moves against North Korea, Taiwan, and Hong Kong! There will be direct action against the CCP!<br>[https://gnews.org/73549/](https://gnews.org/73549/ "https://gnews.org/73549/")
+
+[https://www.guo.media/posts/264905](https://www.guo.media/posts/264905) `2020-01-07T05:14:03`
+##
+
+**milesguo** The Farm: Bob Fu, Activism Infiltration<br>[https://gnews.org/73472/](https://gnews.org/73472/ "https://gnews.org/73472/")
+
+[https://www.guo.media/posts/264904](https://www.guo.media/posts/264904) `2020-01-07T05:14:06`
+##
+
+**milesguo** [China] Student fainted, Teacher Ignored While Performing Red Song<br>[https://gnews.org/73405/](https://gnews.org/73405/ "https://gnews.org/73405/")
+
+[https://www.guo.media/posts/264903](https://www.guo.media/posts/264903) `2020-01-07T05:14:09`
+##
+
+**milesguo** 失踪的维吾尔人还会出现吗？<br>[https://gnews.org/zh-hans/73583/](https://gnews.org/zh-hans/73583/ "https://gnews.org/zh-hans/73583/")
+
+[https://www.guo.media/posts/264881](https://www.guo.media/posts/264881) `2020-01-07T05:14:12`
+##
+
 **milesguo** 致命时刻：中国共产党还能活多久?<br>[https://gnews.org/zh-hans/73614/](https://gnews.org/zh-hans/73614/ "https://gnews.org/zh-hans/73614/")
 
 [https://www.guo.media/posts/264880](https://www.guo.media/posts/264880) `2020-01-05T10:10:10`
@@ -850,455 +1215,5 @@
 **milesguo** 2020是美中技术冲突的关键年<br>[https://gnews.org/zh-hans/69505/](https://gnews.org/zh-hans/69505/ "https://gnews.org/zh-hans/69505/")
 
 [https://www.guo.media/posts/264059](https://www.guo.media/posts/264059) `2020-01-01T11:55:10`
-##
-
-**milesguo** 反抗与清理——香港抗议运动中不经意的街头艺术<br>[https://gnews.org/zh-hans/69478/](https://gnews.org/zh-hans/69478/ "https://gnews.org/zh-hans/69478/")
-
-[https://www.guo.media/posts/264052](https://www.guo.media/posts/264052) `2020-01-01T11:25:10`
-##
-
-**milesguo** 土耳其的维吾尔儿童难民<br>[https://gnews.org/zh-hans/70626/](https://gnews.org/zh-hans/70626/ "https://gnews.org/zh-hans/70626/")
-
-[https://www.guo.media/posts/264050](https://www.guo.media/posts/264050) `2020-01-01T10:55:10`
-##
-
-**milesguo** 中国面临近10年来最严重的组合型经济困境<br>[https://gnews.org/zh-hans/69499/](https://gnews.org/zh-hans/69499/ "https://gnews.org/zh-hans/69499/")
-
-[https://www.guo.media/posts/264042](https://www.guo.media/posts/264042) `2020-01-01T10:25:14`
-##
-
-**milesguo** 2020.1.1新年初始，港人继续抗争维园大游行<br>[https://gnews.org/zh-hans/70422/](https://gnews.org/zh-hans/70422/ "https://gnews.org/zh-hans/70422/")
-
-[https://www.guo.media/posts/264026](https://www.guo.media/posts/264026) `2020-01-01T08:25:11`
-##
-
-**milesguo** 黑警心虚拆太子站外祭奠<br>[https://gnews.org/zh-hans/70409/](https://gnews.org/zh-hans/70409/ "https://gnews.org/zh-hans/70409/")
-
-[https://www.guo.media/posts/264025](https://www.guo.media/posts/264025) `2020-01-01T08:25:14`
-##
-
-**milesguo** 中共黑警跨年镇压香港人<br>[https://gnews.org/zh-hans/70379/](https://gnews.org/zh-hans/70379/ "https://gnews.org/zh-hans/70379/")
-
-[https://www.guo.media/posts/264024](https://www.guo.media/posts/264024) `2020-01-01T08:25:16`
-##
-
-**milesguo** 细得跟丝儿一样的小黄瓜，澳洲鸡腿<br>[https://gnews.org/zh-hans/70368/](https://gnews.org/zh-hans/70368/ "https://gnews.org/zh-hans/70368/") 
-
-[https://www.guo.media/posts/264022](https://www.guo.media/posts/264022) `2020-01-01T08:10:10`
-##
-
-**milesguo** 12月31日 美国政要推文精选<br>[https://gnews.org/zh-hans/70281/](https://gnews.org/zh-hans/70281/ "https://gnews.org/zh-hans/70281/")
-
-[https://www.guo.media/posts/264020](https://www.guo.media/posts/264020) `2020-01-01T08:10:12`
-##
-
-**milesguo** 有图有真相！鸡腿潘是如何诈骗报销的？<br>[https://gnews.org/zh-hans/68962/](https://gnews.org/zh-hans/68962/ "https://gnews.org/zh-hans/68962/")
-
-[https://www.guo.media/posts/263986](https://www.guo.media/posts/263986) `2020-01-01T05:25:10`
-##
-
-**milesguo** 2019年12月31日至香港凌晨示威者被抓情况<br>[https://gnews.org/zh-hans/70092/](https://gnews.org/zh-hans/70092/ "https://gnews.org/zh-hans/70092/")
-
-[https://www.guo.media/posts/263983](https://www.guo.media/posts/263983) `2020-01-01T05:25:13`
-##
-
-**milesguo** 山东龙口入海口肆意排污 官方：废弃管道<br>[https://gnews.org/zh-hans/70181/](https://gnews.org/zh-hans/70181/ "https://gnews.org/zh-hans/70181/")
-
-[https://www.guo.media/posts/263981](https://www.guo.media/posts/263981) `2020-01-01T05:25:16`
-##
-
-**milesguo** 老共的什么病毒？中国人为什么容易被骗 篇二<br>[https://gnews.org/zh-hans/70064/](https://gnews.org/zh-hans/70064/ "https://gnews.org/zh-hans/70064/")
-
-[https://www.guo.media/posts/263980](https://www.guo.media/posts/263980) `2020-01-01T05:10:11`
-##
-
-**milesguo** 来自财务从业人员的科普-细丝的行为有多么恶劣<br>[https://gnews.org/zh-hans/70051/](https://gnews.org/zh-hans/70051/ "https://gnews.org/zh-hans/70051/")
-
-[https://www.guo.media/posts/263954](https://www.guo.media/posts/263954) `2020-01-01T03:40:10`
-##
-
-**milesguo** 光复香港，时代革命！为自由，抗争到底…<br>[https://gnews.org/zh-hans/69892/](https://gnews.org/zh-hans/69892/ "https://gnews.org/zh-hans/69892/")
-
-[https://www.guo.media/posts/263953](https://www.guo.media/posts/263953) `2020-01-01T03:40:13`
-##
-
-**milesguo** 2020元旦灭共倒计时！！！<br>[https://gnews.org/zh-hans/69536/](https://gnews.org/zh-hans/69536/ "https://gnews.org/zh-hans/69536/")
-
-[https://www.guo.media/posts/263952](https://www.guo.media/posts/263952) `2020-01-01T03:40:16`
-##
-
-**milesguo** 从李子柒谈失业成为压倒中共的一根稻草<br>[https://gnews.org/zh-hans/69866/](https://gnews.org/zh-hans/69866/ "https://gnews.org/zh-hans/69866/")
-
-[https://www.guo.media/posts/263951](https://www.guo.media/posts/263951) `2020-01-01T03:40:18`
-##
-
-**milesguo** 最新消息！美国增派海军陆战队保护巴格达大使馆！<br>[https://gnews.org/zh-hans/69847/](https://gnews.org/zh-hans/69847/ "https://gnews.org/zh-hans/69847/")
-
-[https://www.guo.media/posts/263950](https://www.guo.media/posts/263950) `2020-01-01T03:25:11`
-##
-
-**milesguo** 12月31号：尊敬的战友们好！明天2020年1月1号．纽约时间上午9:30……文贵直播与战友们聊聊文贵<br>对2019年爆料革命的一些感想🤣🤣🤣✊✊✊和2020年的一些计划……时间会很长<br>有正事儿的战友们该干啥干啥，不要浪费时间！一切都是刚刚开始！
-
-[https://www.guo.media/posts/263949](https://www.guo.media/posts/263949) `2020-01-01T03:25:13`
-##
-
-**milesguo** Arbitrary Arrest and Abusive Prosecution: Man Charged for Carrying a Hexagon Key and Spanner<br>[https://gnews.org/69202/](https://gnews.org/69202/ "https://gnews.org/69202/")
-
-[https://www.guo.media/posts/263934](https://www.guo.media/posts/263934) `2020-01-01T02:10:10`
-##
-
-**milesguo** CCP’s Foreign Minister Holds Talks with its Iranian Counterpart amid U.S. Airstrike in Middle East<br>[https://gnews.org/69687/](https://gnews.org/69687/ "https://gnews.org/69687/")
-
-[https://www.guo.media/posts/263933](https://www.guo.media/posts/263933) `2020-01-01T02:10:13`
-##
-
-**milesguo** CCP’s Foreign Minister Holds Talks with its Iranian Counterpart amid U.S. Airstrike in Middle East<br>[https://gnews.org/69687/](https://gnews.org/69687/ "https://gnews.org/69687/")
-
-[https://www.guo.media/posts/263932](https://www.guo.media/posts/263932) `2020-01-01T02:10:16`
-##
-
-**milesguo** [China] CCP admits ‘desperately short of money’<br>[https://gnews.org/68415/](https://gnews.org/68415/ "https://gnews.org/68415/")
-
-[https://www.guo.media/posts/263931](https://www.guo.media/posts/263931) `2020-01-01T02:10:18`
-##
-
-**milesguo** 郭文贵先生诉郭宝胜判决书看美国法治<br>[https://gnews.org/zh-hans/69752/](https://gnews.org/zh-hans/69752/ "https://gnews.org/zh-hans/69752/")
-
-[https://www.guo.media/posts/263885](https://www.guo.media/posts/263885) `2019-12-31T22:40:11`
-##
-
-**milesguo** 香港要闻：教育局掀白色恐怖 挟校长执行政治任务；港共喉舌狂批黄色经济圈 ；魔警再使阴招恐吓 图打压元旦大游行<br>[https://gnews.org/zh-hans/69744/](https://gnews.org/zh-hans/69744/ "https://gnews.org/zh-hans/69744/")
-
-[https://www.guo.media/posts/263884](https://www.guo.media/posts/263884) `2019-12-31T22:40:13`
-##
-
-**milesguo** 中共在香港打土豪分田地正在进行中<br>[https://gnews.org/zh-hans/69734/](https://gnews.org/zh-hans/69734/ "https://gnews.org/zh-hans/69734/")
-
-[https://www.guo.media/posts/263883](https://www.guo.media/posts/263883) `2019-12-31T22:40:16`
-##
-
-**milesguo** 小巴猪：权贵借国企混改瓜分天津国企，王岐山家拿一个，孟建柱家拿一个<br>[https://gnews.org/zh-hans/69726/](https://gnews.org/zh-hans/69726/ "https://gnews.org/zh-hans/69726/")
-
-[https://www.guo.media/posts/263882](https://www.guo.media/posts/263882) `2019-12-31T22:40:19`
-##
-
-**milesguo** <br>一名党龄30年的老党员与爆料革命（第四章）<br>[https://gnews.org/zh-hans/69676/](https://gnews.org/zh-hans/69676/ "https://gnews.org/zh-hans/69676/")
-
-[https://www.guo.media/posts/263881](https://www.guo.media/posts/263881) `2019-12-31T22:40:22`
-##
-
-**milesguo** 【年终总结】2019年神奇的夏天——香港反送中运动<br>[https://gnews.org/zh-hans/69643/](https://gnews.org/zh-hans/69643/ "https://gnews.org/zh-hans/69643/")
-
-[https://www.guo.media/posts/263880](https://www.guo.media/posts/263880) `2019-12-31T22:40:24`
-##
-
-**milesguo** 做一个目标明确、立场坚定的战友<br>[https://gnews.org/zh-hans/69625/](https://gnews.org/zh-hans/69625/ "https://gnews.org/zh-hans/69625/")
-
-[https://www.guo.media/posts/263879](https://www.guo.media/posts/263879) `2019-12-31T22:40:27`
-##
-
-**milesguo** 中共工厂流水线式教育毒害中华儿女<br>[https://gnews.org/zh-hans/69252/](https://gnews.org/zh-hans/69252/ "https://gnews.org/zh-hans/69252/")
-
-[https://www.guo.media/posts/263878](https://www.guo.media/posts/263878) `2019-12-31T22:40:31`
-##
-
-**milesguo** 12月31日：给战友上厕所时的消遣礼物🎁……假牧师．骗子郭宝胜为什么请白人律师．还是总统的孙子？郭宝胜的律师费为什么是烤鸭店老板付的？赵岩．火鸡龚为什么知道郭宝胜的律师费来源？傅希秋到底和郭宝盛是什么关系，傅希秋是不是郭宝胜案背后的大佬？假律师江涛．与骗子郭宝胜和烤鸭店的老板及傅希秋又是什么样的关系？鸡腿潘<br>到底有没有黑客别人的技术能力？是不是共匪的白手套？以及龚小夏男朋友是谁？他有多恨杨建利？他是什么时候开始领任务砸了班农的？叶宁和赵岩是什么样的利益关系？陈军陈死烤！孟维参．熊宪民屎诺！的钱是来自何方？怎么拿到的几百万美元是谁当了白手套？请战友们看看文贵在洗手间里翻看手机WhatsApp 的截图．请大家在上厕所时将这几个奇怪的关系拼一下图．会非常有意思．请点击下面的截屏图片！一切都是刚刚开始！
-
-[https://www.guo.media/posts/263873](https://www.guo.media/posts/263873) `2019-12-31T21:10:10`
-##
-
-**milesguo** 
-
-[https://www.guo.media/posts/263871](https://www.guo.media/posts/263871) `2019-12-31T20:55:10`
-##
-
-**milesguo** 12月31号：看看鸡腿潘(细思)是如何编造虚构贷款项目！向法制社会申请骗贷的文件！👉👉👉[https://spark.adobe.com/page/6eA5aw7VvvK5Q/](https://spark.adobe.com/page/6eA5aw7VvvK5Q/ "https://spark.adobe.com/page/6eA5aw7VvvK5Q/")
-
-[https://www.guo.media/posts/263860](https://www.guo.media/posts/263860) `2019-12-31T19:25:10`
-##
-
-**milesguo** 12月31号：尊敬的战友们好！这期的面具先生节目做得太好了……👉👉👉如果有时间请战友们点击观看！[https://youtu.be/xw2e7khE9qA](https://youtu.be/xw2e7khE9qA "https://youtu.be/xw2e7khE9qA")
-
-[https://www.guo.media/posts/263854](https://www.guo.media/posts/263854) `2019-12-31T18:10:10`
-##
-
-**milesguo** 12月30日：老顽童先生和卡丽熙女士及Q先生今天的节目太精彩了，一切都是刚刚开始。[https://youtu.be/oQ5ei-USgZM](https://youtu.be/oQ5ei-USgZM "https://youtu.be/oQ5ei-USgZM")
-
-[https://www.guo.media/posts/263846](https://www.guo.media/posts/263846) `2019-12-31T17:10:11`
-##
-
-**milesguo** 文字版：2019年12月29日郭先生与钢铁侠电话连线直播<br>[https://gnews.org/zh-hans/69462/](https://gnews.org/zh-hans/69462/ "https://gnews.org/zh-hans/69462/")
-
-[https://www.guo.media/posts/263807](https://www.guo.media/posts/263807) `2019-12-31T15:10:10`
-##
-
-**milesguo** 爆料革命，坚如磐石 ！<br>[https://gnews.org/zh-hans/69589/](https://gnews.org/zh-hans/69589/ "https://gnews.org/zh-hans/69589/")
-
-[https://www.guo.media/posts/263806](https://www.guo.media/posts/263806) `2019-12-31T15:10:13`
-##
-
-**milesguo** 文字版2019年12月27日文贵报平安录播<br>[https://gnews.org/zh-hans/69561/](https://gnews.org/zh-hans/69561/ "https://gnews.org/zh-hans/69561/")
-
-[https://www.guo.media/posts/263805](https://www.guo.media/posts/263805) `2019-12-31T15:10:16`
-##
-
-**milesguo** 评人民日报头版刊发国纪平文章： 时不我待 只争朝夕——把握中国与世界共同发展的历史机遇<br>[https://gnews.org/zh-hans/69516/](https://gnews.org/zh-hans/69516/ "https://gnews.org/zh-hans/69516/")
-
-[https://www.guo.media/posts/263804](https://www.guo.media/posts/263804) `2019-12-31T15:10:19`
-##
-
-**milesguo** 12月31号：尊敬的战友们好，你们健身了吗？你们传播香港危机真相了吗？今天文贵没有报平安视频直播，一切都是刚刚开始！
-
-[https://www.guo.media/posts/263795](https://www.guo.media/posts/263795) `2019-12-31T14:25:10`
-##
-
-**milesguo** Miles Guo:Photos of Wang Jian’s tragic death and details of his murder<br>[https://gnews.org/69554/](https://gnews.org/69554/ "https://gnews.org/69554/")
-
-[https://www.guo.media/posts/263791](https://www.guo.media/posts/263791) `2019-12-31T13:55:10`
-##
-
-**milesguo** Miles Guo: 60% of the protesters arrested in Hong Kong were underage children<br>[https://gnews.org/69336/](https://gnews.org/69336/ "https://gnews.org/69336/")
-
-[https://www.guo.media/posts/263790](https://www.guo.media/posts/263790) `2019-12-31T13:55:13`
-##
-
-**milesguo** Chinese professor from Japanese University missing after return to China!<br>[https://gnews.org/69145/](https://gnews.org/69145/ "https://gnews.org/69145/")
-
-[https://www.guo.media/posts/263789](https://www.guo.media/posts/263789) `2019-12-31T13:40:10`
-##
-
-**milesguo** The CCP Recruit Volunteers to Promote Loyalty in Canada<br>[https://gnews.org/68972/](https://gnews.org/68972/ "https://gnews.org/68972/")
-
-[https://www.guo.media/posts/263788](https://www.guo.media/posts/263788) `2019-12-31T13:40:13`
-##
-
-**milesguo** Warning!!! Miles Guo Exhibiting Graphic Photos of Murdered HNA CEO’s Body<br>[https://gnews.org/69030/](https://gnews.org/69030/ "https://gnews.org/69030/")
-
-[https://www.guo.media/posts/263786](https://www.guo.media/posts/263786) `2019-12-31T13:40:15`
-##
-
-**milesguo** A series of photos that show the aftermath of the siege of PolyU<br>[https://gnews.org/68608/](https://gnews.org/68608/ "https://gnews.org/68608/")
-
-[https://www.guo.media/posts/263785](https://www.guo.media/posts/263785) `2019-12-31T13:40:18`
-##
-
-**milesguo** December 30, Posters on HK Protest<br>[https://gnews.org/68839/](https://gnews.org/68839/ "https://gnews.org/68839/")
-
-[https://www.guo.media/posts/263783](https://www.guo.media/posts/263783) `2019-12-31T13:40:21`
-##
-
-**milesguo** CCP and Tanzania held joint military training code named “Sincere Partners-2019”<br>[https://gnews.org/68799/](https://gnews.org/68799/ "https://gnews.org/68799/")
-
-[https://www.guo.media/posts/263781](https://www.guo.media/posts/263781) `2019-12-31T13:40:23`
-##
-
-**milesguo** Geng Shuang urged the US to ensure “Freedom from Fear” for its own people<br>[https://gnews.org/68704/](https://gnews.org/68704/ "https://gnews.org/68704/")
-
-[https://www.guo.media/posts/263780](https://www.guo.media/posts/263780) `2019-12-31T13:40:26`
-##
-
-**milesguo** Chinese Protestant pastor Wang Yi jailed for ‘inciting’ subversion<br>[https://gnews.org/68797/](https://gnews.org/68797/ "https://gnews.org/68797/")
-
-[https://www.guo.media/posts/263779](https://www.guo.media/posts/263779) `2019-12-31T13:40:28`
-##
-
-**milesguo** Public Memorial in Hong Kong: Residents Mourn Despite Vandalism<br>[https://gnews.org/68434/](https://gnews.org/68434/ "https://gnews.org/68434/")
-
-[https://www.guo.media/posts/263778](https://www.guo.media/posts/263778) `2019-12-31T13:40:31`
-##
-
-**milesguo** GNEWS独家报道：武汉爆发SARS病毒 官方隐瞒信息长达五天！<br>[https://gnews.org/zh-hans/69337/](https://gnews.org/zh-hans/69337/ "https://gnews.org/zh-hans/69337/")
-
-[https://www.guo.media/posts/263717](https://www.guo.media/posts/263717) `2019-12-31T08:10:10`
-##
-
-**milesguo** 12月30日 美国政要推特精选<br>[https://gnews.org/zh-hans/69335/](https://gnews.org/zh-hans/69335/ "https://gnews.org/zh-hans/69335/")
-
-[https://www.guo.media/posts/263716](https://www.guo.media/posts/263716) `2019-12-31T08:10:12`
-##
-
-**milesguo** 泯灭人性！黑警肆意虐待孕妇至呕吐<br>[https://gnews.org/zh-hans/69321/](https://gnews.org/zh-hans/69321/ "https://gnews.org/zh-hans/69321/")
-
-[https://www.guo.media/posts/263714](https://www.guo.media/posts/263714) `2019-12-31T08:10:15`
-##
-
-**milesguo** 一名党龄30年的老党员与爆料革命（第三章）<br>[https://gnews.org/zh-hans/69193/](https://gnews.org/zh-hans/69193/ "https://gnews.org/zh-hans/69193/")
-
-[https://www.guo.media/posts/263704](https://www.guo.media/posts/263704) `2019-12-31T07:25:10`
-##
-
-**milesguo** 港高校生被抓3次曝光黑警刑求、性侵暴行、伪造搜查令<br>[https://gnews.org/zh-hans/69318/](https://gnews.org/zh-hans/69318/ "https://gnews.org/zh-hans/69318/")
-
-[https://www.guo.media/posts/263703](https://www.guo.media/posts/263703) `2019-12-31T07:10:11`
-##
-
-**milesguo** 2020是霹雳年，不能让任何人阻挡爆料革命！2019年12月30日郭文贵先生第一次直播摘要<br>[https://gnews.org/zh-hans/69295/](https://gnews.org/zh-hans/69295/ "https://gnews.org/zh-hans/69295/")
-
-[https://www.guo.media/posts/263702](https://www.guo.media/posts/263702) `2019-12-31T07:10:15`
-##
-
-**milesguo** “美军空袭就是针对俄中伊军演;更多王健惨死照片曝光;王岐山惧怕到死 ” 12月30号 郭文贵先生直播文字摘要<br>[https://gnews.org/zh-hans/69235/](https://gnews.org/zh-hans/69235/ "https://gnews.org/zh-hans/69235/")
-
-[https://www.guo.media/posts/263701](https://www.guo.media/posts/263701) `2019-12-31T07:10:18`
-##
-
-**milesguo** 中共体制下的暴力教育：浙江龙港市一小学教师8分钟内疯狂殴打数名学生<br>[https://gnews.org/zh-hans/69220/](https://gnews.org/zh-hans/69220/ "https://gnews.org/zh-hans/69220/")
-
-[https://www.guo.media/posts/263700](https://www.guo.media/posts/263700) `2019-12-31T07:10:20`
-##
-
-**milesguo** 看直播：12月30日郭文贵先生第二次直播向战友询问1/22和春节晚会的举办形式，有惊人王健死亡照片出示<br>[https://gnews.org/zh-hans/69074/](https://gnews.org/zh-hans/69074/ "https://gnews.org/zh-hans/69074/")
-
-[https://www.guo.media/posts/263673](https://www.guo.media/posts/263673) `2019-12-31T05:10:10`
-##
-
-**milesguo** 班农纳瓦罗战情室12月29日92辑精选 中俄伊海上联合军演意图是什么？<br>[https://gnews.org/zh-hans/68824/](https://gnews.org/zh-hans/68824/ "https://gnews.org/zh-hans/68824/")
-
-[https://www.guo.media/posts/263672](https://www.guo.media/posts/263672) `2019-12-31T05:10:13`
-##
-
-**milesguo** 中共是东亚乱局的邪恶流氓的根源<br>[https://gnews.org/zh-hans/69133/](https://gnews.org/zh-hans/69133/ "https://gnews.org/zh-hans/69133/")
-
-[https://www.guo.media/posts/263671](https://www.guo.media/posts/263671) `2019-12-31T05:10:16`
-##
-
-**milesguo** 中共文字狱！今天你保存聊天记录了吗？<br>[https://gnews.org/zh-hans/69112/](https://gnews.org/zh-hans/69112/ "https://gnews.org/zh-hans/69112/")
-
-[https://www.guo.media/posts/263670](https://www.guo.media/posts/263670) `2019-12-31T05:10:19`
-##
-
-**milesguo** 文字版2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜<br>[https://gnews.org/zh-hans/69104/](https://gnews.org/zh-hans/69104/ "https://gnews.org/zh-hans/69104/")
-
-[https://www.guo.media/posts/263669](https://www.guo.media/posts/263669) `2019-12-31T04:55:10`
-##
-
-**milesguo** 广播：2019/12/30郭文贵先生第二次直播 美军航母出动秒杀伊朗革命卫队军事基地；王健装尸袋照片爆出，他在流泪！<br>[https://gnews.org/zh-hans/69125/](https://gnews.org/zh-hans/69125/ "https://gnews.org/zh-hans/69125/")
-
-[https://www.guo.media/posts/263667](https://www.guo.media/posts/263667) `2019-12-31T04:55:14`
-##
-
-**milesguo** 慎入！郭文贵直播爆料海航前董事长王健最新尸体照片！<br>[https://gnews.org/zh-hans/68999/](https://gnews.org/zh-hans/68999/ "https://gnews.org/zh-hans/68999/")
-
-[https://www.guo.media/posts/263645](https://www.guo.media/posts/263645) `2019-12-31T02:55:10`
-##
-
-**milesguo** 香港要闻：港人毋忘殇痛雨中集会 继续坚持势争要求；魔警伏击挑衅；叶刘避重就轻 爆内幕图开脱责任；文贵直播摘要 劝勿起贪念<br>[https://gnews.org/zh-hans/69020/](https://gnews.org/zh-hans/69020/ "https://gnews.org/zh-hans/69020/")
-
-[https://www.guo.media/posts/263644](https://www.guo.media/posts/263644) `2019-12-31T02:55:13`
-##
-
-**milesguo** 老共的什么病毒？中国人为什么容易被骗<br>[https://gnews.org/zh-hans/69000/](https://gnews.org/zh-hans/69000/ "https://gnews.org/zh-hans/69000/")
-
-[https://www.guo.media/posts/263638](https://www.guo.media/posts/263638) `2019-12-31T02:40:10`
-##
-
-**milesguo** 瞧瞧圣诞节期间美军侦察机飞越朝鲜半岛警告北朝鲜，如入无人之境<br>[https://gnews.org/zh-hans/68986/](https://gnews.org/zh-hans/68986/ "https://gnews.org/zh-hans/68986/")
-
-[https://www.guo.media/posts/263637](https://www.guo.media/posts/263637) `2019-12-31T02:25:10`
-##
-
-**milesguo** 黑警天水围再抓人，请大家广传给被抓手足家人<br>[https://gnews.org/zh-hans/68700/](https://gnews.org/zh-hans/68700/ "https://gnews.org/zh-hans/68700/")
-
-[https://www.guo.media/posts/263621](https://www.guo.media/posts/263621) `2019-12-31T01:40:10`
-##
-
-**milesguo** 广播：2019/12/30郭文贵先生直播 2020年谁阻挡爆料革命灭谁 不再涵养细丝亚当等伪类<br>[https://gnews.org/zh-hans/68667/](https://gnews.org/zh-hans/68667/ "https://gnews.org/zh-hans/68667/")
-
-[https://www.guo.media/posts/263619](https://www.guo.media/posts/263619) `2019-12-31T01:40:13`
-##
-
-**milesguo** 12月30日：👉👉👉[https://gnews.org下午6:00文贵将在半小时内第二次直播！](https://gnews.org下午6:00文贵将在半小时内第二次直播！ "https://gnews.org下午6:00文贵将在半小时内第二次直播！")<br>向战友们征求1月22号法制基金的年会和1月26号中国春节的直播节目战友们的意见……一切都是刚刚开始。[https://gnews.org](https://gnews.org "https://gnews.org")
-
-[https://www.guo.media/posts/263587](https://www.guo.media/posts/263587) `2019-12-30T22:55:10`
-##
-
-**milesguo** 2019年末海航董事长陈峰：没钱了，工资发放要延后！<br>[https://gnews.org/zh-hans/68590/](https://gnews.org/zh-hans/68590/ "https://gnews.org/zh-hans/68590/")
-
-[https://www.guo.media/posts/263583](https://www.guo.media/posts/263583) `2019-12-30T22:40:10`
-##
-
-**milesguo** 小巴猪：央行数字货币最大的作用就是匿名转钱<br>[https://gnews.org/zh-hans/68599/](https://gnews.org/zh-hans/68599/ "https://gnews.org/zh-hans/68599/")
-
-[https://www.guo.media/posts/263581](https://www.guo.media/posts/263581) `2019-12-30T22:40:13`
-##
-
-**milesguo** 海康威视员工跳楼身亡公司说抑郁自杀，其中另有隐情！<br>[https://gnews.org/zh-hans/68513/](https://gnews.org/zh-hans/68513/ "https://gnews.org/zh-hans/68513/")
-
-[https://www.guo.media/posts/263580](https://www.guo.media/posts/263580) `2019-12-30T22:25:10`
-##
-
-**milesguo** 美国海军部署最新反舰导弹<br>[https://gnews.org/zh-hans/68489/](https://gnews.org/zh-hans/68489/ "https://gnews.org/zh-hans/68489/")
-
-[https://www.guo.media/posts/263577](https://www.guo.media/posts/263577) `2019-12-30T22:25:13`
-##
-
-**milesguo** 爆料革命究竟是什么，它为什么能有如此之魅力能让世界发生天翻地覆的变化呢 [https://gnews.org/zh-hans/68495/](https://gnews.org/zh-hans/68495/ "https://gnews.org/zh-hans/68495/")
-
-[https://www.guo.media/posts/263576](https://www.guo.media/posts/263576) `2019-12-30T22:25:15`
-##
-
-**milesguo** [https://gnews.org/zh-hans/68342/](https://gnews.org/zh-hans/68342/ "https://gnews.org/zh-hans/68342/")
-
-[https://www.guo.media/posts/263572](https://www.guo.media/posts/263572) `2019-12-30T22:10:10`
-##
-
-**milesguo** [https://gnews.org/zh-hans/68449/](https://gnews.org/zh-hans/68449/ "https://gnews.org/zh-hans/68449/")
-
-[https://www.guo.media/posts/263571](https://www.guo.media/posts/263571) `2019-12-30T21:55:10`
-##
-
-**milesguo** [https://gnews.org/zh-hans/67809/](https://gnews.org/zh-hans/67809/ "https://gnews.org/zh-hans/67809/")
-
-[https://www.guo.media/posts/263570](https://www.guo.media/posts/263570) `2019-12-30T21:55:12`
-##
-
-**milesguo** 离开爆料革命，你什么都不是<br>[https://gnews.org/zh-hans/68046/](https://gnews.org/zh-hans/68046/ "https://gnews.org/zh-hans/68046/")
-
-[https://www.guo.media/posts/263538](https://www.guo.media/posts/263538) `2019-12-30T18:25:13`
-##
-
-**milesguo** 2021年量产射程超过1000公里雄二E巡弋飞弹打击面涵盖解放军东部和南部战区<br>[https://gnews.org/zh-hans/68418/](https://gnews.org/zh-hans/68418/ "https://gnews.org/zh-hans/68418/")
-
-[https://www.guo.media/posts/263537](https://www.guo.media/posts/263537) `2019-12-30T18:25:16`
-##
-
-**milesguo** 12月30日：尊敬的战友们发来了很多如何看今天直播的问题！请战友们点击这里就可以进入到GNEWS主页点击进入GTV就可以看今天的和所有的文贵直播👉👉👉[https://gnews.org/一切都是刚刚开始！](https://gnews.org/一切都是刚刚开始！ "https://gnews.org/一切都是刚刚开始！")
-
-[https://www.guo.media/posts/263532](https://www.guo.media/posts/263532) `2019-12-30T17:25:10`
-##
-
-**milesguo** 12月30号：12:17如果战友们有时间请点击，这里看一看正在直播的安平漫谈吧，一切都是刚刚开始！[https://youtu.be/dU7ESXeH3ck](https://youtu.be/dU7ESXeH3ck "https://youtu.be/dU7ESXeH3ck")
-
-[https://www.guo.media/posts/263531](https://www.guo.media/posts/263531) `2019-12-30T17:25:13`
-##
-
-**milesguo** 看直播！纽约时间12月30日郭文贵先生报平安直播谈CCP诡计拉外资<br>[https://gnews.org/zh-hans/68496/](https://gnews.org/zh-hans/68496/ "https://gnews.org/zh-hans/68496/")
-
-[https://www.guo.media/posts/263511](https://www.guo.media/posts/263511) `2019-12-30T15:25:10`
-##
-
-**milesguo** 12月30号：尊敬的战友们好！文贵会在40分钟后……也就是9:30报平安直播，一切都是刚刚开始！
-
-[https://www.guo.media/posts/263492](https://www.guo.media/posts/263492) `2019-12-30T14:10:10`
-##
-
-**milesguo** White Terror: Dismiss Principals for Supporting Teachers’ Behaviour<br>[https://gnews.org/67929/](https://gnews.org/67929/ "https://gnews.org/67929/")
-
-[https://www.guo.media/posts/263480](https://www.guo.media/posts/263480) `2019-12-30T13:25:10`
-##
-
-**milesguo** 17 Year-Old Student suffers post-traumatic stress disorder (PTSD) after police brutality<br>[https://gnews.org/68397/](https://gnews.org/68397/ "https://gnews.org/68397/")
-
-[https://www.guo.media/posts/263479](https://www.guo.media/posts/263479) `2019-12-30T13:10:10`
-##
-
-**milesguo** [China] Man arrested for selling VPN routers<br>[https://gnews.org/68379/](https://gnews.org/68379/ "https://gnews.org/68379/")
-
-[https://www.guo.media/posts/263478](https://www.guo.media/posts/263478) `2019-12-30T13:10:13`
-##
-
-**milesguo** HK Publishers Advised to Amend the Teaching Material for Liberal Studies<br>[https://gnews.org/68145/](https://gnews.org/68145/ "https://gnews.org/68145/")
-
-[https://www.guo.media/posts/263477](https://www.guo.media/posts/263477) `2019-12-30T13:10:16`
 ##
 
