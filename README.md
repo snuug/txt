@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 共产党走独裁道路之“抓壮丁”疯狂补血军队的人员不足<br>[https://gnews.org/zh-hans/74759/](https://gnews.org/zh-hans/74759/ "https://gnews.org/zh-hans/74759/")
+
+[https://www.guo.media/posts/265245](https://www.guo.media/posts/265245) `2020-01-07T06:55:11`
+##
+
+**milesguo** 小巴猪：中共降准的真正原因，细丝极恐<br>[https://gnews.org/zh-hans/74741/](https://gnews.org/zh-hans/74741/ "https://gnews.org/zh-hans/74741/")
+
+[https://www.guo.media/posts/265244](https://www.guo.media/posts/265244) `2020-01-07T06:55:14`
+##
+
 **milesguo** 1月7日至1月8日香港游行<br>[https://gnews.org/zh-hans/74701/](https://gnews.org/zh-hans/74701/ "https://gnews.org/zh-hans/74701/")
 
 [https://www.guo.media/posts/265242](https://www.guo.media/posts/265242) `2020-01-07T06:40:10`
