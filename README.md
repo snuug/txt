@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2020年1月7日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/75466/](https://gnews.org/zh-hans/75466/ "https://gnews.org/zh-hans/75466/")
+
+[https://www.guo.media/posts/265325](https://www.guo.media/posts/265325) `2020-01-07T18:55:13`
+##
+
+**milesguo** 看重播：2020年1月7日郭文贵先生直播谈CCP把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/265324](https://www.guo.media/posts/265324) `2020-01-07T18:55:16`
+##
+
 **milesguo** 索莱曼尼（Soleimani）之后，金正恩何去何从<br>[https://gnews.org/zh-hans/75122/](https://gnews.org/zh-hans/75122/ "https://gnews.org/zh-hans/75122/")
 
 [https://www.guo.media/posts/265321](https://www.guo.media/posts/265321) `2020-01-07T17:55:11`
