@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美陆军第82伞兵部署到中东科威特：不许带手机和笔记本电脑<br>[https://gnews.org/zh-hans/74847/](https://gnews.org/zh-hans/74847/ "https://gnews.org/zh-hans/74847/")
+
+[https://www.guo.media/posts/265261](https://www.guo.media/posts/265261) `2020-01-07T08:10:10`
+##
+
 **milesguo** 文字版2020年1月5日文贵报平安直播：谈傅希秋是挂牌特务，艾未未等欺民贼将被扫入历史的垃圾桶！<br>[https://gnews.org/zh-hans/74845/](https://gnews.org/zh-hans/74845/ "https://gnews.org/zh-hans/74845/")
 
 [https://www.guo.media/posts/265260](https://www.guo.media/posts/265260) `2020-01-07T07:55:11`
