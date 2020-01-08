@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP opposes Trump’s “arbitrary use or threat of sanction on Iraq”<br>[https://gnews.org/74943/](https://gnews.org/74943/ "https://gnews.org/74943/")
+
+[https://www.guo.media/posts/265435](https://www.guo.media/posts/265435) `2020-01-08T08:25:11`
+##
+
 **milesguo** Miles Guo: The CCP defines the Expose Revolution as a political movement<br>[https://gnews.org/74777/](https://gnews.org/74777/ "https://gnews.org/74777/")
 
 [https://www.guo.media/posts/265430](https://www.guo.media/posts/265430) `2020-01-08T08:10:12`
