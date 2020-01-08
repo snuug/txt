@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月6日文贵报平安第一次直播：谈灭爆小组网络占山头插红旗全线失败<br>[https://gnews.org/zh-hans/75640/](https://gnews.org/zh-hans/75640/ "https://gnews.org/zh-hans/75640/")
+
+[https://www.guo.media/posts/265406](https://www.guo.media/posts/265406) `2020-01-08T06:55:11`
+##
+
 **milesguo** 关于傅希秋：假牧师<br>[https://gnews.org/zh-hans/75979/](https://gnews.org/zh-hans/75979/ "https://gnews.org/zh-hans/75979/")
 
 [https://www.guo.media/posts/265391](https://www.guo.media/posts/265391) `2020-01-08T05:55:11`
