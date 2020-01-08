@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 视频：美国向伊朗附近部署110架F-35战斗机和B-52轰炸机，更多美军被派往中东<br>[https://gnews.org/zh-hans/75705/](https://gnews.org/zh-hans/75705/ "https://gnews.org/zh-hans/75705/")
+
+[https://www.guo.media/posts/265417](https://www.guo.media/posts/265417) `2020-01-08T07:25:11`
+##
+
+**milesguo** 【挖掘机团队出品】 狗屎系列：广州国安特务，龚老太太之前世今生！（第二部分）<br>[https://gnews.org/zh-hans/75731/](https://gnews.org/zh-hans/75731/ "https://gnews.org/zh-hans/75731/")
+
+[https://www.guo.media/posts/265415](https://www.guo.media/posts/265415) `2020-01-08T07:25:14`
+##
+
+**milesguo** 郭文贵先生爆料系列：海航帝国败亡录！<br>[https://gnews.org/zh-hans/75680/](https://gnews.org/zh-hans/75680/ "https://gnews.org/zh-hans/75680/")
+
+[https://www.guo.media/posts/265414](https://www.guo.media/posts/265414) `2020-01-08T07:25:17`
+##
+
+**milesguo** 从苏莱曼尼之死，看爆料革命重要性<br>[https://gnews.org/zh-hans/75664/](https://gnews.org/zh-hans/75664/ "https://gnews.org/zh-hans/75664/")
+
+[https://www.guo.media/posts/265413](https://www.guo.media/posts/265413) `2020-01-08T07:25:20`
+##
+
 **milesguo** 文字版2020年1月6日文贵报平安第一次直播：谈灭爆小组网络占山头插红旗全线失败<br>[https://gnews.org/zh-hans/75640/](https://gnews.org/zh-hans/75640/ "https://gnews.org/zh-hans/75640/")
 
 [https://www.guo.media/posts/265406](https://www.guo.media/posts/265406) `2020-01-08T06:55:11`
