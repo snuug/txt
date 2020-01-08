@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美国11月份的贸易逆差降至三年来最低点<br>‪[https://gnews.org/zh-hans/76080/‬](https://gnews.org/zh-hans/76080/‬ "https://gnews.org/zh-hans/76080/‬")
+
+[https://www.guo.media/posts/265450](https://www.guo.media/posts/265450) `2020-01-08T10:55:10`
+##
+
+**milesguo** 尽管中共政府迫害基督徒，为什么方济各教皇还要与它合作？<br>‪[https://gnews.org/zh-hans/76157/‬](https://gnews.org/zh-hans/76157/‬ "https://gnews.org/zh-hans/76157/‬")
+
+[https://www.guo.media/posts/265449](https://www.guo.media/posts/265449) `2020-01-08T10:55:15`
+##
+
 **milesguo** 美国参议员卢比奥：不要给中国在人权上一个通行证<br>[https://gnews.org/zh-hans/76118/](https://gnews.org/zh-hans/76118/ "https://gnews.org/zh-hans/76118/")
 
 [https://www.guo.media/posts/265446](https://www.guo.media/posts/265446) `2020-01-08T09:25:11`
