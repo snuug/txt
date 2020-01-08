@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: The fake human rights activists involved in providing false information, illegal immigration and money laundering<br>[https://gnews.org/74910/](https://gnews.org/74910/ "https://gnews.org/74910/")
+
+[https://www.guo.media/posts/265459](https://www.guo.media/posts/265459) `2020-01-08T13:55:12`
+##
+
+**milesguo** Hongkongers endured much, from the searing summer days to the frigid cold, yet not given up<br>[https://gnews.org/74615/](https://gnews.org/74615/ "https://gnews.org/74615/")
+
+[https://www.guo.media/posts/265457](https://www.guo.media/posts/265457) `2020-01-08T13:55:15`
+##
+
+**milesguo** AFRICOM’s East Africa Response Force now in Manda Bay after attack in Kenya<br>[https://gnews.org/74842/](https://gnews.org/74842/ "https://gnews.org/74842/")
+
+[https://www.guo.media/posts/265456](https://www.guo.media/posts/265456) `2020-01-08T13:55:18`
+##
+
 **milesguo** 美国11月份的贸易逆差降至三年来最低点<br>‪[https://gnews.org/zh-hans/76080/‬](https://gnews.org/zh-hans/76080/‬ "https://gnews.org/zh-hans/76080/‬")
 
 [https://www.guo.media/posts/265450](https://www.guo.media/posts/265450) `2020-01-08T10:55:10`
