@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：共产党的刀已经磨好了，1亿农民即将被收割<br>[https://gnews.org/zh-hans/76253/](https://gnews.org/zh-hans/76253/ "https://gnews.org/zh-hans/76253/")
+
+[https://www.guo.media/posts/265536](https://www.guo.media/posts/265536) `2020-01-08T17:10:12`
+##
+
+**milesguo** 川普演讲提到中国：认清现实的时候到了<br>[https://gnews.org/zh-hans/76360/](https://gnews.org/zh-hans/76360/ "https://gnews.org/zh-hans/76360/")
+
+[https://www.guo.media/posts/265535](https://www.guo.media/posts/265535) `2020-01-08T17:10:15`
+##
+
+**milesguo** 台湾大选在即！小蔡《大声说话》强力支持香港的抗争运动！<br>[https://gnews.org/zh-hans/76331/](https://gnews.org/zh-hans/76331/ "https://gnews.org/zh-hans/76331/")
+
+[https://www.guo.media/posts/265534](https://www.guo.media/posts/265534) `2020-01-08T17:10:18`
+##
+
 **milesguo** 1月7日 美国政要推特精选<br>[https://gnews.org/zh-hans/76254/](https://gnews.org/zh-hans/76254/ "https://gnews.org/zh-hans/76254/")
 
 [https://www.guo.media/posts/265528](https://www.guo.media/posts/265528) `2020-01-08T16:10:11`
