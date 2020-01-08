@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【更新 update】关于傅希秋 About Bob Fu<br>[https://spark.adobe.com/page/AWUWwZh4gbIyp/](https://spark.adobe.com/page/AWUWwZh4gbIyp/ "https://spark.adobe.com/page/AWUWwZh4gbIyp/")
+
+[https://www.guo.media/posts/265357](https://www.guo.media/posts/265357) `2020-01-08T01:55:10`
+##
+
 **milesguo** 因举报济南农商行涉30亿票据诈骗及高层淫乱，原举报人彭博获刑4年<br>[https://gnews.org/zh-hans/75645/](https://gnews.org/zh-hans/75645/ "https://gnews.org/zh-hans/75645/")
 
 [https://www.guo.media/posts/265355](https://www.guo.media/posts/265355) `2020-01-08T01:25:11`
