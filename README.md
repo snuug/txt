@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** About Bob Fu – A Fake Pastor<br>[https://gnews.org/75775/](https://gnews.org/75775/ "https://gnews.org/75775/")
+
+[https://www.guo.media/posts/265376](https://www.guo.media/posts/265376) `2020-01-08T04:25:10`
+##
+
 **milesguo** 【更新 update】关于傅希秋 About Bob Fu<br>[https://spark.adobe.com/page/AWUWwZh4gbIyp/](https://spark.adobe.com/page/AWUWwZh4gbIyp/ "https://spark.adobe.com/page/AWUWwZh4gbIyp/")
 
 [https://www.guo.media/posts/265357](https://www.guo.media/posts/265357) `2020-01-08T01:55:10`
