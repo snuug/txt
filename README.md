@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 关于傅希秋：假牧师<br>[https://gnews.org/zh-hans/75979/](https://gnews.org/zh-hans/75979/ "https://gnews.org/zh-hans/75979/")
+
+[https://www.guo.media/posts/265391](https://www.guo.media/posts/265391) `2020-01-08T05:55:11`
+##
+
 **milesguo** About Bob Fu – A Fake Pastor<br>[https://gnews.org/75775/](https://gnews.org/75775/ "https://gnews.org/75775/")
 
 [https://www.guo.media/posts/265376](https://www.guo.media/posts/265376) `2020-01-08T04:25:10`
