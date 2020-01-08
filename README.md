@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 因举报济南农商行涉30亿票据诈骗及高层淫乱，原举报人彭博获刑4年<br>[https://gnews.org/zh-hans/75645/](https://gnews.org/zh-hans/75645/ "https://gnews.org/zh-hans/75645/")
+
+[https://www.guo.media/posts/265355](https://www.guo.media/posts/265355) `2020-01-08T01:25:11`
+##
+
+**milesguo** 【DT挖掘机系列】还原一个真实的鸡腿潘-潘林正（第二部分）<br>[https://gnews.org/zh-hans/75141/](https://gnews.org/zh-hans/75141/ "https://gnews.org/zh-hans/75141/")
+
+[https://www.guo.media/posts/265354](https://www.guo.media/posts/265354) `2020-01-08T01:25:14`
+##
+
+**milesguo** 小巴猪：中共如果承认自己人被炸死，后果很严重<br>[https://gnews.org/zh-hans/75631/](https://gnews.org/zh-hans/75631/ "https://gnews.org/zh-hans/75631/")
+
+[https://www.guo.media/posts/265353](https://www.guo.media/posts/265353) `2020-01-08T01:25:17`
+##
+
 **milesguo** 至少十枚火箭击中驻扎在伊拉克阿萨德空军基地的美军，伊朗宣布对此负责<br>[https://gnews.org/zh-hans/75623/](https://gnews.org/zh-hans/75623/ "https://gnews.org/zh-hans/75623/")
 
 [https://www.guo.media/posts/265351](https://www.guo.media/posts/265351) `2020-01-08T01:10:11`
