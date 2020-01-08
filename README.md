@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国参议员卢比奥：不要给中国在人权上一个通行证<br>[https://gnews.org/zh-hans/76118/](https://gnews.org/zh-hans/76118/ "https://gnews.org/zh-hans/76118/")
+
+[https://www.guo.media/posts/265446](https://www.guo.media/posts/265446) `2020-01-08T09:25:11`
+##
+
 **milesguo** CCP opposes Trump’s “arbitrary use or threat of sanction on Iraq”<br>[https://gnews.org/74943/](https://gnews.org/74943/ "https://gnews.org/74943/")
 
 [https://www.guo.media/posts/265435](https://www.guo.media/posts/265435) `2020-01-08T08:25:11`
