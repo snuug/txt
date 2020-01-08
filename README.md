@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 伊朗人大规模悼念Soleimani索莱玛尼？别相信伊朗的大外宣<br>[https://gnews.org/zh-hans/76056/](https://gnews.org/zh-hans/76056/ "https://gnews.org/zh-hans/76056/")
+
+[https://www.guo.media/posts/265423](https://www.guo.media/posts/265423) `2020-01-08T07:40:10`
+##
+
+**milesguo** 韩国瑜，中共的狗！（第一部分）<br>[https://gnews.org/zh-hans/75981/](https://gnews.org/zh-hans/75981/ "https://gnews.org/zh-hans/75981/")
+
+[https://www.guo.media/posts/265420](https://www.guo.media/posts/265420) `2020-01-08T07:40:14`
+##
+
+**milesguo** 伊朗袭击美驻伊拉克军事基地后，川普说“一切都好”，伊朗说“不寻求战争”<br>[https://gnews.org/zh-hans/75982/](https://gnews.org/zh-hans/75982/ "https://gnews.org/zh-hans/75982/")
+
+[https://www.guo.media/posts/265418](https://www.guo.media/posts/265418) `2020-01-08T07:40:17`
+##
+
 **milesguo** 视频：美国向伊朗附近部署110架F-35战斗机和B-52轰炸机，更多美军被派往中东<br>[https://gnews.org/zh-hans/75705/](https://gnews.org/zh-hans/75705/ "https://gnews.org/zh-hans/75705/")
 
 [https://www.guo.media/posts/265417](https://www.guo.media/posts/265417) `2020-01-08T07:25:11`
