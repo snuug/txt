@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: The CCP defines the Expose Revolution as a political movement<br>[https://gnews.org/74777/](https://gnews.org/74777/ "https://gnews.org/74777/")
+
+[https://www.guo.media/posts/265430](https://www.guo.media/posts/265430) `2020-01-08T08:10:12`
+##
+
 **milesguo** 伊朗人大规模悼念Soleimani索莱玛尼？别相信伊朗的大外宣<br>[https://gnews.org/zh-hans/76056/](https://gnews.org/zh-hans/76056/ "https://gnews.org/zh-hans/76056/")
 
 [https://www.guo.media/posts/265423](https://www.guo.media/posts/265423) `2020-01-08T07:40:10`
