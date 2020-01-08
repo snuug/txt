@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 1月7日 美国政要推特精选<br>[https://gnews.org/zh-hans/76254/](https://gnews.org/zh-hans/76254/ "https://gnews.org/zh-hans/76254/")
+
+[https://www.guo.media/posts/265528](https://www.guo.media/posts/265528) `2020-01-08T16:10:11`
+##
+
+**milesguo** 天津肿瘤医院科主任收受礼品的反思<br>[https://gnews.org/zh-hans/76220/](https://gnews.org/zh-hans/76220/ "https://gnews.org/zh-hans/76220/")
+
+[https://www.guo.media/posts/265527](https://www.guo.media/posts/265527) `2020-01-08T16:10:15`
+##
+
+**milesguo** 中共，农民工的梦魇；保障，笑不起的欺骗<br>[https://gnews.org/zh-hans/76194/](https://gnews.org/zh-hans/76194/ "https://gnews.org/zh-hans/76194/")
+
+[https://www.guo.media/posts/265526](https://www.guo.media/posts/265526) `2020-01-08T16:10:18`
+##
+
+**milesguo** 一位基督徒与爆料革命<br>[https://gnews.org/zh-hans/76171/](https://gnews.org/zh-hans/76171/ "https://gnews.org/zh-hans/76171/")
+
+[https://www.guo.media/posts/265524](https://www.guo.media/posts/265524) `2020-01-08T16:10:24`
+##
+
+**milesguo** 警惕：中共的魔爪已经伸向世界<br>[https://gnews.org/zh-hans/76163/](https://gnews.org/zh-hans/76163/ "https://gnews.org/zh-hans/76163/")
+
+[https://www.guo.media/posts/265523](https://www.guo.media/posts/265523) `2020-01-08T16:10:27`
+##
+
+**milesguo** 中共投资拉动经济骗局一路走到黑<br>[https://gnews.org/zh-hans/76128/](https://gnews.org/zh-hans/76128/ "https://gnews.org/zh-hans/76128/")
+
+[https://www.guo.media/posts/265522](https://www.guo.media/posts/265522) `2020-01-08T16:10:30`
+##
+
+**milesguo** 1月11日台湾人请回台湾投票！一定要选蔡英文！！！<br>[https://gnews.org/zh-hans/76064/](https://gnews.org/zh-hans/76064/ "https://gnews.org/zh-hans/76064/")
+
+[https://www.guo.media/posts/265521](https://www.guo.media/posts/265521) `2020-01-08T16:10:33`
+##
+
 **milesguo** Miles Guo: The absurdity of Sino-US trade. The importance of the Strait of Malacca to the CCP<br>[https://gnews.org/75908/](https://gnews.org/75908/ "https://gnews.org/75908/")
 
 [https://www.guo.media/posts/265474](https://www.guo.media/posts/265474) `2020-01-08T14:10:11`
