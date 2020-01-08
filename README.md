@@ -12,6 +12,51 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: The absurdity of Sino-US trade. The importance of the Strait of Malacca to the CCP<br>[https://gnews.org/75908/](https://gnews.org/75908/ "https://gnews.org/75908/")
+
+[https://www.guo.media/posts/265474](https://www.guo.media/posts/265474) `2020-01-08T14:10:11`
+##
+
+**milesguo** Iranian ballistic missiles hit US military facilities in Iraq<br>[https://gnews.org/75630/](https://gnews.org/75630/ "https://gnews.org/75630/")
+
+[https://www.guo.media/posts/265473](https://www.guo.media/posts/265473) `2020-01-08T14:10:14`
+##
+
+**milesguo** 24-Year-Old Man Arrested for Breach of Bail Conditions 5 Minutes Before Departure Allowed<br>[https://gnews.org/75372/](https://gnews.org/75372/ "https://gnews.org/75372/")
+
+[https://www.guo.media/posts/265472](https://www.guo.media/posts/265472) `2020-01-08T14:10:17`
+##
+
+**milesguo** January 7, Posters on HK Protest<br>[https://gnews.org/75528/](https://gnews.org/75528/ "https://gnews.org/75528/")
+
+[https://www.guo.media/posts/265471](https://www.guo.media/posts/265471) `2020-01-08T14:10:21`
+##
+
+**milesguo** Brave Mainland Young Man Protest in Hong Kong<br>[https://gnews.org/75307/](https://gnews.org/75307/ "https://gnews.org/75307/")
+
+[https://www.guo.media/posts/265470](https://www.guo.media/posts/265470) `2020-01-08T14:10:23`
+##
+
+**milesguo** Friendly Fire: Police Pepper-Sprayed a Masked Undercover Officer Until the Warrant Card was Shown<br>[https://gnews.org/74478/](https://gnews.org/74478/ "https://gnews.org/74478/")
+
+[https://www.guo.media/posts/265469](https://www.guo.media/posts/265469) `2020-01-08T14:10:27`
+##
+
+**milesguo** Breaking News on Twitter: Beijing offers military assistance to Iraq<br>[https://gnews.org/74941/](https://gnews.org/74941/ "https://gnews.org/74941/")
+
+[https://www.guo.media/posts/265467](https://www.guo.media/posts/265467) `2020-01-08T14:10:29`
+##
+
+**milesguo** CCP opposes Trump’s “arbitrary use or threat of sanction on Iraq”<br>[https://gnews.org/74943/](https://gnews.org/74943/ "https://gnews.org/74943/")
+
+[https://www.guo.media/posts/265465](https://www.guo.media/posts/265465) `2020-01-08T14:10:33`
+##
+
+**milesguo** Japan’s Finance Minister warns bankers about CCP’s digital currency<br>[https://gnews.org/74939/](https://gnews.org/74939/ "https://gnews.org/74939/")
+
+[https://www.guo.media/posts/265464](https://www.guo.media/posts/265464) `2020-01-08T14:10:36`
+##
+
 **milesguo** Miles Guo: The fake human rights activists involved in providing false information, illegal immigration and money laundering<br>[https://gnews.org/74910/](https://gnews.org/74910/ "https://gnews.org/74910/")
 
 [https://www.guo.media/posts/265459](https://www.guo.media/posts/265459) `2020-01-08T13:55:12`
