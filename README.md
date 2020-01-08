@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** President Trump calls for peace and an effective nuclear deal with Iran<br>[https://gnews.org/76454/](https://gnews.org/76454/ "https://gnews.org/76454/")
+
+[https://www.guo.media/posts/265556](https://www.guo.media/posts/265556) `2020-01-08T23:55:10`
+##
+
+**milesguo** CCP requires all males to submit blood samples for tracking<br>[https://gnews.org/75591/](https://gnews.org/75591/ "https://gnews.org/75591/")
+
+[https://www.guo.media/posts/265555](https://www.guo.media/posts/265555) `2020-01-08T23:55:14`
+##
+
 **milesguo** The Farm: China Trade Deal, Anti-Parallel Trade, Hong Kong Escalation<br>[https://gnews.org/76268/](https://gnews.org/76268/ "https://gnews.org/76268/")
 
 [https://www.guo.media/posts/265554](https://www.guo.media/posts/265554) `2020-01-08T23:40:10`
