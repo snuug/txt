@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: China Trade Deal, Anti-Parallel Trade, Hong Kong Escalation<br>[https://gnews.org/76268/](https://gnews.org/76268/ "https://gnews.org/76268/")
+
+[https://www.guo.media/posts/265554](https://www.guo.media/posts/265554) `2020-01-08T23:40:10`
+##
+
+**milesguo** Lawmaker Condemns Correctional Services Department: Cold Meals Provided in Cold Weather<br>[https://gnews.org/75613/](https://gnews.org/75613/ "https://gnews.org/75613/")
+
+[https://www.guo.media/posts/265553](https://www.guo.media/posts/265553) `2020-01-08T23:40:13`
+##
+
+**milesguo** [China] Whistleblower sentenced to prison for exposing CCP’s corruption<br>[https://gnews.org/76110/](https://gnews.org/76110/ "https://gnews.org/76110/")
+
+[https://www.guo.media/posts/265552](https://www.guo.media/posts/265552) `2020-01-08T23:40:16`
+##
+
+**milesguo** 印尼：我们处于高度戒备状态以应对中共在南中国海的挑衅举动<br>[https://gnews.org/zh-hans/76321/](https://gnews.org/zh-hans/76321/ "https://gnews.org/zh-hans/76321/")
+
+[https://www.guo.media/posts/265551](https://www.guo.media/posts/265551) `2020-01-08T23:40:20`
+##
+
 **milesguo** 小巴猪：共产党的刀已经磨好了，1亿农民即将被收割<br>[https://gnews.org/zh-hans/76253/](https://gnews.org/zh-hans/76253/ "https://gnews.org/zh-hans/76253/")
 
 [https://www.guo.media/posts/265536](https://www.guo.media/posts/265536) `2020-01-08T17:10:12`
