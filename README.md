@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 被邪恶蚕食的民主<br>[https://gnews.org/zh-hans/76702/](https://gnews.org/zh-hans/76702/ "https://gnews.org/zh-hans/76702/")
+
+[https://www.guo.media/posts/265607](https://www.guo.media/posts/265607) `2020-01-09T04:55:12`
+##
+
+**milesguo** 广播：2020/1/8 郭文贵先生吃鸡腿直播 美国伊朗会开战么？<br>[https://gnews.org/zh-hans/76675/](https://gnews.org/zh-hans/76675/ "https://gnews.org/zh-hans/76675/")
+
+[https://www.guo.media/posts/265606](https://www.guo.media/posts/265606) `2020-01-09T04:55:15`
+##
+
 **milesguo** 文字版2020年1月7日文贵直播谈：中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文<br>[https://gnews.org/zh-hans/76660/](https://gnews.org/zh-hans/76660/ "https://gnews.org/zh-hans/76660/")
 
 [https://www.guo.media/posts/265605](https://www.guo.media/posts/265605) `2020-01-09T04:40:11`
