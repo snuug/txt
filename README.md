@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共执政思想内核1——商鞅思想的秘密<br>[https://gnews.org/zh-hans/76780/](https://gnews.org/zh-hans/76780/ "https://gnews.org/zh-hans/76780/")
+
+[https://www.guo.media/posts/265650](https://www.guo.media/posts/265650) `2020-01-09T10:25:11`
+##
+
+**milesguo** 中共对叛逃间谍王立强发出威胁<br>[https://gnews.org/zh-hans/76783/](https://gnews.org/zh-hans/76783/ "https://gnews.org/zh-hans/76783/")
+
+[https://www.guo.media/posts/265649](https://www.guo.media/posts/265649) `2020-01-09T10:25:14`
+##
+
 **milesguo** 中共出台禁令：禁止学校使用任何外国教材<br>[https://gnews.org/zh-hans/76722/](https://gnews.org/zh-hans/76722/ "https://gnews.org/zh-hans/76722/")
 
 [https://www.guo.media/posts/265648](https://www.guo.media/posts/265648) `2020-01-09T10:10:10`
