@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月7日文贵直播谈：中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文<br>[https://gnews.org/zh-hans/76660/](https://gnews.org/zh-hans/76660/ "https://gnews.org/zh-hans/76660/")
+
+[https://www.guo.media/posts/265605](https://www.guo.media/posts/265605) `2020-01-09T04:40:11`
+##
+
+**milesguo** 文字版2020年1月6日文贵第二次直播：到底谁是傅希秋，他是什么样的骗子<br>[https://gnews.org/zh-hans/76611/](https://gnews.org/zh-hans/76611/ "https://gnews.org/zh-hans/76611/")
+
+[https://www.guo.media/posts/265601](https://www.guo.media/posts/265601) `2020-01-09T04:40:14`
+##
+
+**milesguo** 【回顾】30分钟！带你了解 2017-2018 郭文贵先生爆料<br>[https://gnews.org/zh-hans/76610/](https://gnews.org/zh-hans/76610/ "https://gnews.org/zh-hans/76610/")
+
+[https://www.guo.media/posts/265597](https://www.guo.media/posts/265597) `2020-01-09T04:40:18`
+##
+
+**milesguo** 中国实现”喜马拉雅“之后，你的生活会怎样？<br>[https://gnews.org/zh-hans/76574/](https://gnews.org/zh-hans/76574/ "https://gnews.org/zh-hans/76574/") 
+
+[https://www.guo.media/posts/265596](https://www.guo.media/posts/265596) `2020-01-09T04:40:21`
+##
+
 **milesguo** 文贵在百忙之中读战友们给法治基金,法治社会的捐款留言<br>[https://gnews.org/zh-hans/76643/](https://gnews.org/zh-hans/76643/ "https://gnews.org/zh-hans/76643/")
 
 [https://www.guo.media/posts/265586](https://www.guo.media/posts/265586) `2020-01-09T02:55:11`
