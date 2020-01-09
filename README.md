@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 中共双修与伊朗童婚是一对孪生魔子<br>[https://gnews.org/zh-hans/76831/](https://gnews.org/zh-hans/76831/ "https://gnews.org/zh-hans/76831/")
+
+[https://www.guo.media/posts/265682](https://www.guo.media/posts/265682) `2020-01-09T15:40:10`
+##
+
+**milesguo** 1月8号 美国政要推特精选<br>[https://gnews.org/zh-hans/76782/](https://gnews.org/zh-hans/76782/ "https://gnews.org/zh-hans/76782/")
+
+[https://www.guo.media/posts/265681](https://www.guo.media/posts/265681) `2020-01-09T15:40:14`
+##
+
 **milesguo** 中共执政思想内核1——商鞅思想的秘密<br>[https://gnews.org/zh-hans/76780/](https://gnews.org/zh-hans/76780/ "https://gnews.org/zh-hans/76780/")
 
 [https://www.guo.media/posts/265650](https://www.guo.media/posts/265650) `2020-01-09T10:25:11`
