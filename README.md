@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文贵在百忙之中读战友们给法治基金,法治社会的捐款留言<br>[https://gnews.org/zh-hans/76643/](https://gnews.org/zh-hans/76643/ "https://gnews.org/zh-hans/76643/")
+
+[https://www.guo.media/posts/265586](https://www.guo.media/posts/265586) `2020-01-09T02:55:11`
+##
+
 **milesguo** 川普总统在白宫发表讲话：是结束伊朗恐怖主义的时候了<br>[https://gnews.org/zh-hans/76584/](https://gnews.org/zh-hans/76584/ "https://gnews.org/zh-hans/76584/")
 
 [https://www.guo.media/posts/265571](https://www.guo.media/posts/265571) `2020-01-09T02:40:10`
