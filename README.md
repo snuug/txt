@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月9号：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？拜托战友们一定要发动一切力量……让台湾蔡英文总统当选……绝不能把台湾变成第二个香港……文贵求所有的战友们．一起发动一切资源……投小英总统的票……文贵正在L A筹办喜马拉雅大使馆的．及《第四个庚子的中国》的言讲……一切都是刚刚开始！
+
+[https://www.guo.media/posts/265693](https://www.guo.media/posts/265693) `2020-01-09T16:10:11`
+##
+
 **milesguo** 中共双修与伊朗童婚是一对孪生魔子<br>[https://gnews.org/zh-hans/76831/](https://gnews.org/zh-hans/76831/ "https://gnews.org/zh-hans/76831/")
 
 [https://www.guo.media/posts/265682](https://www.guo.media/posts/265682) `2020-01-09T15:40:10`
