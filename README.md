@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 川普总统在白宫发表讲话：是结束伊朗恐怖主义的时候了<br>[https://gnews.org/zh-hans/76584/](https://gnews.org/zh-hans/76584/ "https://gnews.org/zh-hans/76584/")
+
+[https://www.guo.media/posts/265571](https://www.guo.media/posts/265571) `2020-01-09T02:40:10`
+##
+
 **milesguo** 性教育缺乏的中国：当知识被利用！性教育能邪恶到超乎你的想象<br>[https://gnews.org/zh-hans/76550/](https://gnews.org/zh-hans/76550/ "https://gnews.org/zh-hans/76550/")
 
 [https://www.guo.media/posts/265570](https://www.guo.media/posts/265570) `2020-01-09T02:25:11`
