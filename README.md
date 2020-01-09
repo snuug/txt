@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 性教育缺乏的中国：当知识被利用！性教育能邪恶到超乎你的想象<br>[https://gnews.org/zh-hans/76550/](https://gnews.org/zh-hans/76550/ "https://gnews.org/zh-hans/76550/")
+
+[https://www.guo.media/posts/265570](https://www.guo.media/posts/265570) `2020-01-09T02:25:11`
+##
+
+**milesguo** 1月8号文贵向战友们分享在小飞机上吃鸡腿的视频<br>[https://gnews.org/zh-hans/76497/](https://gnews.org/zh-hans/76497/ "https://gnews.org/zh-hans/76497/")
+
+[https://www.guo.media/posts/265569](https://www.guo.media/posts/265569) `2020-01-09T02:25:14`
+##
+
 **milesguo** 视频：执行斩首伊朗恐怖军头苏莱曼尼而名声大噪的”地狱火”飞刀型和爆炸型导弹<br>[https://gnews.org/zh-hans/76378/](https://gnews.org/zh-hans/76378/ "https://gnews.org/zh-hans/76378/")
 
 [https://www.guo.media/posts/265558](https://www.guo.media/posts/265558) `2020-01-09T00:10:11`
