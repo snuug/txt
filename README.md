@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 视频：执行斩首伊朗恐怖军头苏莱曼尼而名声大噪的”地狱火”飞刀型和爆炸型导弹<br>[https://gnews.org/zh-hans/76378/](https://gnews.org/zh-hans/76378/ "https://gnews.org/zh-hans/76378/")
+
+[https://www.guo.media/posts/265558](https://www.guo.media/posts/265558) `2020-01-09T00:10:11`
+##
+
+**milesguo** January 8, Posters on HK Protest<br>[https://gnews.org/76506/](https://gnews.org/76506/ "https://gnews.org/76506/")
+
+[https://www.guo.media/posts/265557](https://www.guo.media/posts/265557) `2020-01-09T00:10:15`
+##
+
 **milesguo** President Trump calls for peace and an effective nuclear deal with Iran<br>[https://gnews.org/76454/](https://gnews.org/76454/ "https://gnews.org/76454/")
 
 [https://www.guo.media/posts/265556](https://www.guo.media/posts/265556) `2020-01-08T23:55:10`
