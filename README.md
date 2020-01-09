@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 韩国瑜，中共的狗！（第二部分）<br>[https://gnews.org/zh-hans/76274/](https://gnews.org/zh-hans/76274/ "https://gnews.org/zh-hans/76274/")
+
+[https://www.guo.media/posts/265640](https://www.guo.media/posts/265640) `2020-01-09T09:55:10`
+##
+
 **milesguo** 被邪恶蚕食的民主<br>[https://gnews.org/zh-hans/76702/](https://gnews.org/zh-hans/76702/ "https://gnews.org/zh-hans/76702/")
 
 [https://www.guo.media/posts/265607](https://www.guo.media/posts/265607) `2020-01-09T04:55:12`
