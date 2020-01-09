@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共出台禁令：禁止学校使用任何外国教材<br>[https://gnews.org/zh-hans/76722/](https://gnews.org/zh-hans/76722/ "https://gnews.org/zh-hans/76722/")
+
+[https://www.guo.media/posts/265648](https://www.guo.media/posts/265648) `2020-01-09T10:10:10`
+##
+
+**milesguo** 黑警手中的凶器大盘点<br>[https://gnews.org/zh-hans/76746/](https://gnews.org/zh-hans/76746/ "https://gnews.org/zh-hans/76746/")
+
+[https://www.guo.media/posts/265646](https://www.guo.media/posts/265646) `2020-01-09T10:10:14`
+##
+
+**milesguo** 杀肥猪过大年 中共拿下一福彩女主任<br>[https://gnews.org/zh-hans/76706/](https://gnews.org/zh-hans/76706/ "https://gnews.org/zh-hans/76706/")
+
+[https://www.guo.media/posts/265645](https://www.guo.media/posts/265645) `2020-01-09T10:10:17`
+##
+
+**milesguo** 港府再抓幕后黑手，遭香港民主派立法会议员抨击<br>[https://gnews.org/zh-hans/76828/](https://gnews.org/zh-hans/76828/ "https://gnews.org/zh-hans/76828/")
+
+[https://www.guo.media/posts/265644](https://www.guo.media/posts/265644) `2020-01-09T10:10:20`
+##
+
 **milesguo** 韩国瑜，中共的狗！（第二部分）<br>[https://gnews.org/zh-hans/76274/](https://gnews.org/zh-hans/76274/ "https://gnews.org/zh-hans/76274/")
 
 [https://www.guo.media/posts/265640](https://www.guo.media/posts/265640) `2020-01-09T09:55:10`
