@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 老江观点：贸易协议中的硬伤<br>[https://gnews.org/zh-hans/77014/](https://gnews.org/zh-hans/77014/ "https://gnews.org/zh-hans/77014/")
+
+[https://www.guo.media/posts/265754](https://www.guo.media/posts/265754) `2020-01-10T05:10:11`
+##
+
 **milesguo** 情报显示伊朗火箭误击乌克兰客机<br>[https://gnews.org/zh-hans/77017/](https://gnews.org/zh-hans/77017/ "https://gnews.org/zh-hans/77017/")
 
 [https://www.guo.media/posts/265753](https://www.guo.media/posts/265753) `2020-01-10T04:55:11`
