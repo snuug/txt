@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：中共渗透台湾,从连战到韩国瑜<br>[https://gnews.org/zh-hans/77256/](https://gnews.org/zh-hans/77256/ "https://gnews.org/zh-hans/77256/")
+
+[https://www.guo.media/posts/265777](https://www.guo.media/posts/265777) `2020-01-10T08:55:10`
+##
+
+**milesguo** 老大哥说他没盯着你——中共的1984<br>[https://gnews.org/zh-hans/77227/](https://gnews.org/zh-hans/77227/ "https://gnews.org/zh-hans/77227/")
+
+[https://www.guo.media/posts/265776](https://www.guo.media/posts/265776) `2020-01-10T08:55:14`
+##
+
+**milesguo** 美军视频：美国副总统彭斯相信伊朗早前发射的导弹旨在杀死驻伊拉克的美军<br>[https://gnews.org/zh-hans/77232/](https://gnews.org/zh-hans/77232/ "https://gnews.org/zh-hans/77232/")
+
+[https://www.guo.media/posts/265775](https://www.guo.media/posts/265775) `2020-01-10T08:55:17`
+##
+
 **milesguo** 文字版：解密中共即邪教共产党祖宗摩尼教的前世今生「爱听不听」第6期钢铁侠对话穆桂英<br>[https://gnews.org/zh-hans/77192/](https://gnews.org/zh-hans/77192/ "https://gnews.org/zh-hans/77192/") 
 
 [https://www.guo.media/posts/265765](https://www.guo.media/posts/265765) `2020-01-10T06:10:11`
