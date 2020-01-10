@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** [China] Force Demolishment of A Whole Market<br>[https://gnews.org/77473/](https://gnews.org/77473/ "https://gnews.org/77473/")
+
+[https://www.guo.media/posts/265830](https://www.guo.media/posts/265830) `2020-01-10T15:40:11`
+##
+
+**milesguo** Senior Inspector Unable to give a Credible Account of Attack<br>[https://gnews.org/76884/](https://gnews.org/76884/ "https://gnews.org/76884/")
+
+[https://www.guo.media/posts/265829](https://www.guo.media/posts/265829) `2020-01-10T15:40:14`
+##
+
+**milesguo** Brother Rain interprets CCP front page news—January 7th 2020<br>[https://gnews.org/77026/](https://gnews.org/77026/ "https://gnews.org/77026/")
+
+[https://www.guo.media/posts/265828](https://www.guo.media/posts/265828) `2020-01-10T15:40:17`
+##
+
+**milesguo** anuary 8, Posters on HK Protest<br>[https://gnews.org/77034/](https://gnews.org/77034/ "https://gnews.org/77034/")
+
+[https://www.guo.media/posts/265827](https://www.guo.media/posts/265827) `2020-01-10T15:40:20`
+##
+
+**milesguo** US officials: Ukrainian plane crash is “highly likely” linked to Iran<br>[https://gnews.org/77012/](https://gnews.org/77012/ "https://gnews.org/77012/")
+
+[https://www.guo.media/posts/265825](https://www.guo.media/posts/265825) `2020-01-10T15:40:23`
+##
+
+**milesguo** 1月10号：尊敬的战友们好！👉[https://gnews.org/．你们健身了吗？你们传播香港危机真相了吗？你们去和台湾的同胞们一起反韩投蔡保未来了吗？文贵将在纽约时间11:30左右．也就是这个信息发布一小时左右开始．](https://gnews.org/．你们健身了吗？你们传播香港危机真相了吗？你们去和台湾的同胞们一起反韩投蔡保未来了吗？文贵将在纽约时间11:30左右．也就是这个信息发布一小时左右开始． "https://gnews.org/．你们健身了吗？你们传播香港危机真相了吗？你们去和台湾的同胞们一起反韩投蔡保未来了吗？文贵将在纽约时间11:30左右．也就是这个信息发布一小时左右开始．")<br>应很多战友的要求．和感谢战友们对文贵的担心．和很多战友们发来的信息无法一回复．一会儿，文贵在报平安直播中一一回复！一切都是刚刚开始！
+
+[https://www.guo.media/posts/265824](https://www.guo.media/posts/265824) `2020-01-10T15:40:27`
+##
+
 **milesguo** Rockets landed in Baghdad’s Green Zone hours after Trump’s speech<br>[https://gnews.org/77003/](https://gnews.org/77003/ "https://gnews.org/77003/")
 
 [https://www.guo.media/posts/265814](https://www.guo.media/posts/265814) `2020-01-10T13:55:11`
