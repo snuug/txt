@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广西大唐物流市场开业3小时被当地政府暴力强拆<br>[https://gnews.org/zh-hans/76924/](https://gnews.org/zh-hans/76924/ "https://gnews.org/zh-hans/76924/")
+
+[https://www.guo.media/posts/265751](https://www.guo.media/posts/265751) `2020-01-10T04:40:11`
+##
+
 **milesguo** 中国的粮食危机与耕地问题（一）<br>[https://gnews.org/zh-hans/76867/](https://gnews.org/zh-hans/76867/ "https://gnews.org/zh-hans/76867/")
 
 [https://www.guo.media/posts/265712](https://www.guo.media/posts/265712) `2020-01-09T22:25:11`
