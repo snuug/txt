@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月10号：尊敬的战友们好！关于所谓的川普总统发信息给我，这是误传．不真实……我们的爆料革命是14亿中国人民和全世界反共的人民……反共的反邪恶的正义大革命……我们的靠山是爱好和平有良心的有勇气的人们……不需要任何人为我们站台！一切都是刚刚开始！
+
+[https://www.guo.media/posts/265845](https://www.guo.media/posts/265845) `2020-01-10T18:25:11`
+##
+
 **milesguo** 1月9号 美国政要推特精选<br>[https://gnews.org/zh-hans/77371/](https://gnews.org/zh-hans/77371/ "https://gnews.org/zh-hans/77371/")
 
 [https://www.guo.media/posts/265838](https://www.guo.media/posts/265838) `2020-01-10T17:25:11`
