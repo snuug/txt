@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【挖掘机团队出品】2019的海航，正在大踏步奔向地狱！<br>[https://gnews.org/zh-hans/77201/](https://gnews.org/zh-hans/77201/ "https://gnews.org/zh-hans/77201/")
+
+[https://www.guo.media/posts/265764](https://www.guo.media/posts/265764) `2020-01-10T05:40:10`
+##
+
+**milesguo** 文字版：2020年1月3日 解密中共即邪教 共产党祖宗摩尼教的前世今生 「爱听不听」第6期 钢铁侠对话穆桂英<br>[https://gnews.org/zh-hans/77192/](https://gnews.org/zh-hans/77192/ "https://gnews.org/zh-hans/77192/")
+
+[https://www.guo.media/posts/265762](https://www.guo.media/posts/265762) `2020-01-10T05:40:14`
+##
+
 **milesguo** 香港还是我原来的那个家吗？<br>[https://gnews.org/zh-hans/77196/](https://gnews.org/zh-hans/77196/ "https://gnews.org/zh-hans/77196/")
 
 [https://www.guo.media/posts/265760](https://www.guo.media/posts/265760) `2020-01-10T05:25:11`
