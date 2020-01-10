@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月9号 美国政要推特精选<br>[https://gnews.org/zh-hans/77371/](https://gnews.org/zh-hans/77371/ "https://gnews.org/zh-hans/77371/")
+
+[https://www.guo.media/posts/265838](https://www.guo.media/posts/265838) `2020-01-10T17:25:11`
+##
+
 **milesguo** [China] Force Demolishment of A Whole Market<br>[https://gnews.org/77473/](https://gnews.org/77473/ "https://gnews.org/77473/")
 
 [https://www.guo.media/posts/265830](https://www.guo.media/posts/265830) `2020-01-10T15:40:11`
