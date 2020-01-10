@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** Rockets landed in Baghdad’s Green Zone hours after Trump’s speech<br>[https://gnews.org/77003/](https://gnews.org/77003/ "https://gnews.org/77003/")
+
+[https://www.guo.media/posts/265814](https://www.guo.media/posts/265814) `2020-01-10T13:55:11`
+##
+
+**milesguo** CCP blamed U.S. as “root cause of Iranian tensions”, and called Pompeo’s accusation “fabricated lies”<br>[https://gnews.org/76976/](https://gnews.org/76976/ "https://gnews.org/76976/")
+
+[https://www.guo.media/posts/265813](https://www.guo.media/posts/265813) `2020-01-10T13:55:14`
+##
+
+**milesguo** Opinion: The Outrageous Chinese Sex Education System<br>[https://gnews.org/76719/](https://gnews.org/76719/ "https://gnews.org/76719/")
+
+[https://www.guo.media/posts/265812](https://www.guo.media/posts/265812) `2020-01-10T13:55:18`
+##
+
+**milesguo** Opinion: CCP’s viral warfare in Hong Kong?<br>[https://gnews.org/76887/](https://gnews.org/76887/ "https://gnews.org/76887/")
+
+[https://www.guo.media/posts/265811](https://www.guo.media/posts/265811) `2020-01-10T13:55:21`
+##
+
+**milesguo** Best Derivative Video in Jan: “Voice Out – The Two Worlds”<br>[https://gnews.org/76865/](https://gnews.org/76865/ "https://gnews.org/76865/")
+
+[https://www.guo.media/posts/265810](https://www.guo.media/posts/265810) `2020-01-10T13:55:24`
+##
+
+**milesguo** Yuen Long District Council Forms Group to Urge Investigation into Police Brutality<br>[https://gnews.org/76385/](https://gnews.org/76385/ "https://gnews.org/76385/")
+
+[https://www.guo.media/posts/265809](https://www.guo.media/posts/265809) `2020-01-10T13:55:28`
+##
+
+**milesguo** Miles Guo: Iran wants to talk to the US by attacking Iraq’s US base!<br>[https://gnews.org/76721/](https://gnews.org/76721/ "https://gnews.org/76721/")
+
+[https://www.guo.media/posts/265808](https://www.guo.media/posts/265808) `2020-01-10T13:55:31`
+##
+
 **milesguo** 美国国会敦促：应以“反人类罪”对中共实施制裁<br>[https://gnews.org/zh-hans/77362/](https://gnews.org/zh-hans/77362/ "https://gnews.org/zh-hans/77362/")
 
 [https://www.guo.media/posts/265792](https://www.guo.media/posts/265792) `2020-01-10T11:10:13`
