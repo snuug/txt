@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 香港还是我原来的那个家吗？<br>[https://gnews.org/zh-hans/77196/](https://gnews.org/zh-hans/77196/ "https://gnews.org/zh-hans/77196/")
+
+[https://www.guo.media/posts/265760](https://www.guo.media/posts/265760) `2020-01-10T05:25:11`
+##
+
+**milesguo** 江苏省声称8000万人口中只有17人处于贫困状态，网上引发激烈争论<br>[https://gnews.org/zh-hans/77146/](https://gnews.org/zh-hans/77146/ "https://gnews.org/zh-hans/77146/")
+
+[https://www.guo.media/posts/265759](https://www.guo.media/posts/265759) `2020-01-10T05:25:15`
+##
+
+**milesguo** 打造红色星球！中共觊觎全世界，灭共是当今人类最为紧迫的事<br>[https://gnews.org/zh-hans/77135/](https://gnews.org/zh-hans/77135/ "https://gnews.org/zh-hans/77135/")
+
+[https://www.guo.media/posts/265758](https://www.guo.media/posts/265758) `2020-01-10T05:25:18`
+##
+
+**milesguo** 香港民众悼念周梓乐，黑警夜晚施放胡椒剂并拘捕多人<br>[https://gnews.org/zh-hans/77111/](https://gnews.org/zh-hans/77111/ "https://gnews.org/zh-hans/77111/")
+
+[https://www.guo.media/posts/265757](https://www.guo.media/posts/265757) `2020-01-10T05:25:21`
+##
+
+**milesguo** 香港民众悼念周梓乐，黑警夜晚施放胡椒剂并拘捕多人<br>[https://gnews.org/zh-hans/77111/](https://gnews.org/zh-hans/77111/ "https://gnews.org/zh-hans/77111/")
+
+[https://www.guo.media/posts/265756](https://www.guo.media/posts/265756) `2020-01-10T05:25:24`
+##
+
+**milesguo** 【挖掘机团队出品】郭台铭的前世今生！爱台？卖台！<br>[https://gnews.org/zh-hans/77097/](https://gnews.org/zh-hans/77097/ "https://gnews.org/zh-hans/77097/")
+
+[https://www.guo.media/posts/265755](https://www.guo.media/posts/265755) `2020-01-10T05:25:27`
+##
+
 **milesguo** 老江观点：贸易协议中的硬伤<br>[https://gnews.org/zh-hans/77014/](https://gnews.org/zh-hans/77014/ "https://gnews.org/zh-hans/77014/")
 
 [https://www.guo.media/posts/265754](https://www.guo.media/posts/265754) `2020-01-10T05:10:11`
