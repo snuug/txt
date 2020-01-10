@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 美国国会敦促：应以“反人类罪”对中共实施制裁<br>[https://gnews.org/zh-hans/77362/](https://gnews.org/zh-hans/77362/ "https://gnews.org/zh-hans/77362/")
+
+[https://www.guo.media/posts/265792](https://www.guo.media/posts/265792) `2020-01-10T11:10:13`
+##
+
+**milesguo** 香港当局非法没收抗议者手机，个人信息被肆意读取并怀疑被安装间谍软件<br>[https://gnews.org/zh-hans/77330/](https://gnews.org/zh-hans/77330/ "https://gnews.org/zh-hans/77330/") 
+
+[https://www.guo.media/posts/265791](https://www.guo.media/posts/265791) `2020-01-10T11:10:16`
+##
+
+**milesguo** 2020年，中国制造业将继续外流<br>[https://gnews.org/zh-hans/77318/](https://gnews.org/zh-hans/77318/ "https://gnews.org/zh-hans/77318/")
+
+[https://www.guo.media/posts/265790](https://www.guo.media/posts/265790) `2020-01-10T11:10:20`
+##
+
 **milesguo** 香港要闻：『蹊跷』不明疫症为何只在香港爆发？ 或为戒严令准备；黑警发起舆论战旨在分化 和勇不分坚拒割席<br>[https://gnews.org/zh-hans/77310/](https://gnews.org/zh-hans/77310/ "https://gnews.org/zh-hans/77310/")
 
 [https://www.guo.media/posts/265779](https://www.guo.media/posts/265779) `2020-01-10T09:10:11`
