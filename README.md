@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文字版：解密中共即邪教共产党祖宗摩尼教的前世今生「爱听不听」第6期钢铁侠对话穆桂英<br>[https://gnews.org/zh-hans/77192/](https://gnews.org/zh-hans/77192/ "https://gnews.org/zh-hans/77192/") 
+
+[https://www.guo.media/posts/265765](https://www.guo.media/posts/265765) `2020-01-10T06:10:11`
+##
+
 **milesguo** 【挖掘机团队出品】2019的海航，正在大踏步奔向地狱！<br>[https://gnews.org/zh-hans/77201/](https://gnews.org/zh-hans/77201/ "https://gnews.org/zh-hans/77201/")
 
 [https://www.guo.media/posts/265764](https://www.guo.media/posts/265764) `2020-01-10T05:40:10`
