@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 中共内外负隅顽抗——黎明前的黑暗<br>[https://gnews.org/zh-hans/77467/](https://gnews.org/zh-hans/77467/ "https://gnews.org/zh-hans/77467/")
+
+[https://www.guo.media/posts/265868](https://www.guo.media/posts/265868) `2020-01-10T20:40:10`
+##
+
+**milesguo** 八角棒槌：解除“系统”的枷锁，唯一途径就是灭共<br>[https://gnews.org/zh-hans/77465/](https://gnews.org/zh-hans/77465/ "https://gnews.org/zh-hans/77465/")
+
+[https://www.guo.media/posts/265867](https://www.guo.media/posts/265867) `2020-01-10T20:40:13`
+##
+
+**milesguo** 【挖掘机团队出品】深度挖掘！Ideanomics公司(原七星云)吴征！为盗国贼洗钱！<br>[https://gnews.org/zh-hans/77440/](https://gnews.org/zh-hans/77440/ "https://gnews.org/zh-hans/77440/")
+
+[https://www.guo.media/posts/265866](https://www.guo.media/posts/265866) `2020-01-10T20:40:16`
+##
+
+**milesguo** CCP是中国互害社会的罪魁祸首！<br>[https://gnews.org/zh-hans/77429/](https://gnews.org/zh-hans/77429/ "https://gnews.org/zh-hans/77429/")
+
+[https://www.guo.media/posts/265865](https://www.guo.media/posts/265865) `2020-01-10T20:40:19`
+##
+
+**milesguo** 一个普通学生到底花了多少时间学习思想品德政治课？为什么？<br>[https://gnews.org/zh-hans/77326/](https://gnews.org/zh-hans/77326/ "https://gnews.org/zh-hans/77326/")
+
+[https://www.guo.media/posts/265864](https://www.guo.media/posts/265864) `2020-01-10T20:40:22`
+##
+
+**milesguo** 中日盗国贼哪家强？<br>[https://gnews.org/zh-hans/77158/](https://gnews.org/zh-hans/77158/ "https://gnews.org/zh-hans/77158/")
+
+[https://www.guo.media/posts/265863](https://www.guo.media/posts/265863) `2020-01-10T20:40:25`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/265849](https://www.guo.media/posts/265849) `2020-01-10T19:10:10`
