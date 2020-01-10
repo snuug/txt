@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港要闻：『蹊跷』不明疫症为何只在香港爆发？ 或为戒严令准备；黑警发起舆论战旨在分化 和勇不分坚拒割席<br>[https://gnews.org/zh-hans/77310/](https://gnews.org/zh-hans/77310/ "https://gnews.org/zh-hans/77310/")
+
+[https://www.guo.media/posts/265779](https://www.guo.media/posts/265779) `2020-01-10T09:10:11`
+##
+
 **milesguo** 小巴猪：中共渗透台湾,从连战到韩国瑜<br>[https://gnews.org/zh-hans/77256/](https://gnews.org/zh-hans/77256/ "https://gnews.org/zh-hans/77256/")
 
 [https://www.guo.media/posts/265777](https://www.guo.media/posts/265777) `2020-01-10T08:55:10`
