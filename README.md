@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: invasion & sanction will follow Han Kuo-yu’s election<br>[https://gnews.org/77679/](https://gnews.org/77679/ "https://gnews.org/77679/")
+
+[https://www.guo.media/posts/266061](https://www.guo.media/posts/266061) `2020-01-11T13:55:11`
+##
+
+**milesguo** Average Medical Inpatient Bed Occupancy Rate of Public Hospital at Midnight Was at 112%<br>[https://gnews.org/77171/](https://gnews.org/77171/ "https://gnews.org/77171/")
+
+[https://www.guo.media/posts/266060](https://www.guo.media/posts/266060) `2020-01-11T13:55:15`
+##
+
+**milesguo** [China] Textbooks Must Reflect the Will of the CCP and State?<br>[https://gnews.org/77548/](https://gnews.org/77548/ "https://gnews.org/77548/")
+
+[https://www.guo.media/posts/266056](https://www.guo.media/posts/266056) `2020-01-11T13:55:18`
+##
+
 **milesguo** 2020台湾大选：蔡英文总统发言节录<br>[https://gnews.org/zh-hans/78338/](https://gnews.org/zh-hans/78338/ "https://gnews.org/zh-hans/78338/")
 
 [https://www.guo.media/posts/266054](https://www.guo.media/posts/266054) `2020-01-11T13:40:10`
