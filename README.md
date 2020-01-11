@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共影响英国脱欧？欧洲被蓝金黄的真相！<br>[https://gnews.org/zh-hans/77816/](https://gnews.org/zh-hans/77816/ "https://gnews.org/zh-hans/77816/")
+
+[https://www.guo.media/posts/265952](https://www.guo.media/posts/265952) `2020-01-11T06:40:10`
+##
+
 **milesguo** 台湾蔡英文大选港人来挺！一定要选蔡英文！！！<br>[https://gnews.org/zh-hans/77792/](https://gnews.org/zh-hans/77792/ "https://gnews.org/zh-hans/77792/")
 
 [https://www.guo.media/posts/265943](https://www.guo.media/posts/265943) `2020-01-11T04:10:11`
