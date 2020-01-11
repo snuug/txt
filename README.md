@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Taiwan 2020 election: Tsai Ing -wen will soon issue a reelection declaration<br>[https://gnews.org/78225/](https://gnews.org/78225/ "https://gnews.org/78225/")
+
+[https://www.guo.media/posts/266029](https://www.guo.media/posts/266029) `2020-01-11T12:25:11`
+##
+
 **milesguo** 2020 台湾大选：蔡英文宣布将在晚八点召开记者会<br>[https://gnews.org/zh-hans/78198/](https://gnews.org/zh-hans/78198/ "https://gnews.org/zh-hans/78198/")
 
 [https://www.guo.media/posts/266023](https://www.guo.media/posts/266023) `2020-01-11T12:10:10`
