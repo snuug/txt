@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵爆料台湾大选：如果韩国瑜赢得选举，美国对台湾的态度将大变！<br>[https://gnews.org/zh-hans/77592/](https://gnews.org/zh-hans/77592/ "https://gnews.org/zh-hans/77592/")
+
+[https://www.guo.media/posts/265891](https://www.guo.media/posts/265891) `2020-01-11T00:40:11`
+##
+
 **milesguo** 广播：2020/1/10 郭文贵先生直播 台湾大选选小菜,韩国🐟有毒！<br>
 
 [https://www.guo.media/posts/265890](https://www.guo.media/posts/265890) `2020-01-11T00:25:11`
