@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 承认了！伊朗军方称「人为失误」击落乌克兰客机<br>[https://gnews.org/zh-hans/78436/](https://gnews.org/zh-hans/78436/ "https://gnews.org/zh-hans/78436/")
+
+[https://www.guo.media/posts/266097](https://www.guo.media/posts/266097) `2020-01-11T19:10:11`
+##
+
+**milesguo** 战友热线： 输了台湾，中共还剩哪些牌？<br>[https://gnews.org/zh-hans/78383/](https://gnews.org/zh-hans/78383/ "https://gnews.org/zh-hans/78383/")
+
+[https://www.guo.media/posts/266096](https://www.guo.media/posts/266096) `2020-01-11T19:10:14`
+##
+
 **milesguo** 【Selected edition with subtitles】 Miles Guo shares his history and feelings of the past 30 years of making friends and buying clothes on the Beverly Rodeo Drive<br>[https://gnews.org/78409/](https://gnews.org/78409/ "https://gnews.org/78409/")
 
 [https://www.guo.media/posts/266077](https://www.guo.media/posts/266077) `2020-01-11T14:55:11`
