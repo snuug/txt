@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月10日 美国政要推特精选<br>[https://gnews.org/zh-hans/77909/](https://gnews.org/zh-hans/77909/ "https://gnews.org/zh-hans/77909/")
+
+[https://www.guo.media/posts/265962](https://www.guo.media/posts/265962) `2020-01-11T07:55:11`
+##
+
 **milesguo** 一名党龄30年的老党员与爆料革命（第八章）<br>[https://gnews.org/zh-hans/77887/](https://gnews.org/zh-hans/77887/ "https://gnews.org/zh-hans/77887/")
 
 [https://www.guo.media/posts/265957](https://www.guo.media/posts/265957) `2020-01-11T07:10:11`
