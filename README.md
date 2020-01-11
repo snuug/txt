@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** CCP finished its first S. Sudan peacekeeping patrol and escort mission in 2020<br>[https://gnews.org/77722/](https://gnews.org/77722/ "https://gnews.org/77722/")
+
+[https://www.guo.media/posts/266063](https://www.guo.media/posts/266063) `2020-01-11T14:10:18`
+##
+
 **milesguo** Miles Guo: invasion & sanction will follow Han Kuo-yu’s election<br>[https://gnews.org/77679/](https://gnews.org/77679/ "https://gnews.org/77679/")
 
 [https://www.guo.media/posts/266061](https://www.guo.media/posts/266061) `2020-01-11T13:55:11`
