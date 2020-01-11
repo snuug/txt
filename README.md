@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2020/1/10 郭文贵先生直播 台湾大选选小菜,韩国🐟有毒！<br>
+
+[https://www.guo.media/posts/265890](https://www.guo.media/posts/265890) `2020-01-11T00:25:11`
+##
+
+**milesguo** 视频：蓬佩奥表示美军将阻止中共袭击南中国海；美为中共量身定做远程反舰导弹<br>[https://gnews.org/zh-hans/77255/](https://gnews.org/zh-hans/77255/ "https://gnews.org/zh-hans/77255/")
+
+[https://www.guo.media/posts/265889](https://www.guo.media/posts/265889) `2020-01-11T00:25:14`
+##
+
+**milesguo** 制约中俄两国 美陆军部长：拟在台菲东方岛屿设置「长程飞弹」不怕触怒北京<br>[https://gnews.org/zh-hans/77540/](https://gnews.org/zh-hans/77540/ "https://gnews.org/zh-hans/77540/")
+
+[https://www.guo.media/posts/265888](https://www.guo.media/posts/265888) `2020-01-11T00:25:17`
+##
+
+**milesguo** 乌克兰客机传被击落176人亡 路透：伊朗飞弹疑为俄制SA-15臂铠飞弹<br>[https://gnews.org/zh-hans/77506/](https://gnews.org/zh-hans/77506/ "https://gnews.org/zh-hans/77506/")
+
+[https://www.guo.media/posts/265887](https://www.guo.media/posts/265887) `2020-01-11T00:25:20`
+##
+
 **milesguo** 中共内外负隅顽抗——黎明前的黑暗<br>[https://gnews.org/zh-hans/77467/](https://gnews.org/zh-hans/77467/ "https://gnews.org/zh-hans/77467/")
 
 [https://www.guo.media/posts/265868](https://www.guo.media/posts/265868) `2020-01-10T20:40:10`
