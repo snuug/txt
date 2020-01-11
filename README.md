@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 1月11号：尊敬的战友们好三个小时后，👉👉[https://gnews.org/．也就是纽约上午9:30钟星期六直播虽然是刚刚回到纽约，一直在看台湾的大选直播，睡不着啊，睡不着呀，兴奋了兴奋了，我现在想裸奔去中央公园……一切都是刚刚开始🙏🙏🙏](https://gnews.org/．也就是纽约上午9:30钟星期六直播虽然是刚刚回到纽约，一直在看台湾的大选直播，睡不着啊，睡不着呀，兴奋了兴奋了，我现在想裸奔去中央公园&hellip;&hellip;一切都是刚刚开始🙏🙏🙏 "https://gnews.org/．也就是纽约上午9:30钟星期六直播虽然是刚刚回到纽约，一直在看台湾的大选直播，睡不着啊，睡不着呀，兴奋了兴奋了，我现在想裸奔去中央公园&hellip;&hellip;一切都是刚刚开始🙏🙏🙏")
+
+[https://www.guo.media/posts/266008](https://www.guo.media/posts/266008) `2020-01-11T11:25:11`
+##
+
+**milesguo** 【精选字幕版】文贵给战友们分享过去30年在美国比弗利Rodeo Drive交的朋友和买衣服的历史和感受<br>[https://gnews.org/zh-hans/78144/](https://gnews.org/zh-hans/78144/ "https://gnews.org/zh-hans/78144/")
+
+[https://www.guo.media/posts/266007](https://www.guo.media/posts/266007) `2020-01-11T11:25:14`
+##
+
+**milesguo** 台湾大选：大局已定<br>[https://gnews.org/zh-hans/78146/](https://gnews.org/zh-hans/78146/ "https://gnews.org/zh-hans/78146/")
+
+[https://www.guo.media/posts/266006](https://www.guo.media/posts/266006) `2020-01-11T11:25:17`
+##
+
 **milesguo** 1月11号：感谢上天．祝贺伟大的台湾人民……更要感恩最最伟大的香港人民——是香港人民的鲜血和生命换来了今天伟大的台湾历史时刻🙏🙏🙏🙏🙏🙏🙏🙏🙏恭喜台湾人民……爱台湾<br>爱台湾，爱台湾，一切都是刚刚开始！
 
 [https://www.guo.media/posts/265987](https://www.guo.media/posts/265987) `2020-01-11T10:10:11`
