@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 【挖掘机团队出品】超重磅挖掘！华为！华为！华为！<br>[https://gnews.org/zh-hans/77509/](https://gnews.org/zh-hans/77509/ "https://gnews.org/zh-hans/77509/")
+
+[https://www.guo.media/posts/265903](https://www.guo.media/posts/265903) `2020-01-11T02:10:10`
+##
+
+**milesguo** 挥”大棒”, 捏”春袋”一起上！美国对伊朗出台新的经济制裁<br>[https://gnews.org/zh-hans/77616/](https://gnews.org/zh-hans/77616/ "https://gnews.org/zh-hans/77616/")
+
+[https://www.guo.media/posts/265902](https://www.guo.media/posts/265902) `2020-01-11T02:10:14`
+##
+
 **milesguo** 郭文贵爆料台湾大选：如果韩国瑜赢得选举，美国对台湾的态度将大变！<br>[https://gnews.org/zh-hans/77592/](https://gnews.org/zh-hans/77592/ "https://gnews.org/zh-hans/77592/")
 
 [https://www.guo.media/posts/265891](https://www.guo.media/posts/265891) `2020-01-11T00:40:11`
