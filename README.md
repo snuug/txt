@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2020 台湾大选：蔡英文宣布将在晚八点召开记者会<br>[https://gnews.org/zh-hans/78198/](https://gnews.org/zh-hans/78198/ "https://gnews.org/zh-hans/78198/")
+
+[https://www.guo.media/posts/266023](https://www.guo.media/posts/266023) `2020-01-11T12:10:10`
+##
+
+**milesguo** Taiwan 2020 election: Tsai Ing-wen announces press conference at 8 p.m.<br>[https://gnews.org/78217/](https://gnews.org/78217/ "https://gnews.org/78217/")
+
+[https://www.guo.media/posts/266022](https://www.guo.media/posts/266022) `2020-01-11T12:10:14`
+##
+
 **milesguo** Taiwan 2020 election: the big picture is set<br>[https://gnews.org/78184/](https://gnews.org/78184/ "https://gnews.org/78184/")
 
 [https://www.guo.media/posts/266015](https://www.guo.media/posts/266015) `2020-01-11T11:40:12`
