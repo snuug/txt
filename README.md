@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020台湾大选：蔡英文总统发言节录<br>[https://gnews.org/zh-hans/78338/](https://gnews.org/zh-hans/78338/ "https://gnews.org/zh-hans/78338/")
+
+[https://www.guo.media/posts/266054](https://www.guo.media/posts/266054) `2020-01-11T13:40:10`
+##
+
 **milesguo** 2020 台湾大选：蔡英文得票已经打破2008年大选马英九最高得票纪录<br>[https://gnews.org/zh-hans/78308/](https://gnews.org/zh-hans/78308/ "https://gnews.org/zh-hans/78308/")
 
 [https://www.guo.media/posts/266048](https://www.guo.media/posts/266048) `2020-01-11T13:25:11`
