@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 台湾与香港之间仅一张选票的距离<br>[https://gnews.org/zh-hans/78044/](https://gnews.org/zh-hans/78044/ "https://gnews.org/zh-hans/78044/")
+
+[https://www.guo.media/posts/265981](https://www.guo.media/posts/265981) `2020-01-11T09:55:11`
+##
+
 **milesguo** 谁还记得抗议人群中，那位挥舞着英国国旗的“老奶奶”？<br>[https://gnews.org/zh-hans/78022/](https://gnews.org/zh-hans/78022/ "https://gnews.org/zh-hans/78022/")
 
 [https://www.guo.media/posts/265978](https://www.guo.media/posts/265978) `2020-01-11T09:40:11`
