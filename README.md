@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Taiwan 2020 election: Excerpts from President Tsai Ing-wen’s remarks<br>[https://gnews.org/78371/](https://gnews.org/78371/ "https://gnews.org/78371/")
+
+[https://www.guo.media/posts/266068](https://www.guo.media/posts/266068) `2020-01-11T14:25:14`
+##
+
+**milesguo** 韩国瑜败选后“溃逃”，上百家媒体被放鸽子<br>[https://gnews.org/zh-hans/78352/](https://gnews.org/zh-hans/78352/ "https://gnews.org/zh-hans/78352/")
+
+[https://www.guo.media/posts/266066](https://www.guo.media/posts/266066) `2020-01-11T14:25:22`
+##
+
 **milesguo** CCP finished its first S. Sudan peacekeeping patrol and escort mission in 2020<br>[https://gnews.org/77722/](https://gnews.org/77722/ "https://gnews.org/77722/")
 
 [https://www.guo.media/posts/266063](https://www.guo.media/posts/266063) `2020-01-11T14:10:18`
