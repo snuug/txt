@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 谁还记得抗议人群中，那位挥舞着英国国旗的“老奶奶”？<br>[https://gnews.org/zh-hans/78022/](https://gnews.org/zh-hans/78022/ "https://gnews.org/zh-hans/78022/")
+
+[https://www.guo.media/posts/265978](https://www.guo.media/posts/265978) `2020-01-11T09:40:11`
+##
+
 **milesguo** 详细介绍美国对伊朗即将实施的新制裁措施<br>[https://gnews.org/zh-hans/77980/](https://gnews.org/zh-hans/77980/ "https://gnews.org/zh-hans/77980/")
 
 [https://www.guo.media/posts/265965](https://www.guo.media/posts/265965) `2020-01-11T08:10:11`
