@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020 台湾大选：蔡英文即将发表连任宣言<br>[https://gnews.org/zh-hans/78236/](https://gnews.org/zh-hans/78236/ "https://gnews.org/zh-hans/78236/")
+
+[https://www.guo.media/posts/266030](https://www.guo.media/posts/266030) `2020-01-11T12:40:10`
+##
+
 **milesguo** Taiwan 2020 election: Tsai Ing -wen will soon issue a reelection declaration<br>[https://gnews.org/78225/](https://gnews.org/78225/ "https://gnews.org/78225/")
 
 [https://www.guo.media/posts/266029](https://www.guo.media/posts/266029) `2020-01-11T12:25:11`
