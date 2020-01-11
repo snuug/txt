@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生直播首次揭露：“以共灭共”是美国在中美贸易战中的核心战术<br>[https://gnews.org/zh-hans/78469/](https://gnews.org/zh-hans/78469/ "https://gnews.org/zh-hans/78469/")
+
+[https://www.guo.media/posts/266103](https://www.guo.media/posts/266103) `2020-01-11T19:25:11`
+##
+
+**milesguo** 广播：2020/1/11 郭文贵先生直播 台湾打开了共产党的第二道地狱大门<br>[https://gnews.org/zh-hans/78456/](https://gnews.org/zh-hans/78456/ "https://gnews.org/zh-hans/78456/")
+
+[https://www.guo.media/posts/266099](https://www.guo.media/posts/266099) `2020-01-11T19:25:14`
+##
+
+**milesguo** 看直播：2020年1月11日郭文贵先生直播谈台湾大选为什么会大赢？为什么说蔡英文也可能会遗臭万年？<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/266098](https://www.guo.media/posts/266098) `2020-01-11T19:25:17`
+##
+
 **milesguo** 承认了！伊朗军方称「人为失误」击落乌克兰客机<br>[https://gnews.org/zh-hans/78436/](https://gnews.org/zh-hans/78436/ "https://gnews.org/zh-hans/78436/")
 
 [https://www.guo.media/posts/266097](https://www.guo.media/posts/266097) `2020-01-11T19:10:11`
