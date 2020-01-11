@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 全台最大诈骗犯韩国瑜：连中共！骗台湾！千万别选他！<br>[https://gnews.org/zh-hans/77755/](https://gnews.org/zh-hans/77755/ "https://gnews.org/zh-hans/77755/")
+
+[https://www.guo.media/posts/265939](https://www.guo.media/posts/265939) `2020-01-11T03:40:10`
+##
+
 **milesguo** 全台最大诈骗犯韩国瑜：连中共！骗台湾！千万别选他！<br>[https://gnews.org/zh-hans/77755/](https://gnews.org/zh-hans/77755/ "https://gnews.org/zh-hans/77755/") 
 
 [https://www.guo.media/posts/265925](https://www.guo.media/posts/265925) `2020-01-11T02:40:12`
