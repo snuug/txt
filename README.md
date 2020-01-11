@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Taiwan 2020 election: Tsai Ing-wen has surpassed the number of votes she received in the 2016 election<br>[https://gnews.org/78259/](https://gnews.org/78259/ "https://gnews.org/78259/")
+
+[https://www.guo.media/posts/266036](https://www.guo.media/posts/266036) `2020-01-11T12:55:11`
+##
+
+**milesguo** 2020 台湾大选：蔡英文超越2016 年大选所得票数<br>[https://gnews.org/zh-hans/78250/](https://gnews.org/zh-hans/78250/ "https://gnews.org/zh-hans/78250/")
+
+[https://www.guo.media/posts/266034](https://www.guo.media/posts/266034) `2020-01-11T12:55:14`
+##
+
 **milesguo** 2020 台湾大选：蔡英文即将发表连任宣言<br>[https://gnews.org/zh-hans/78236/](https://gnews.org/zh-hans/78236/ "https://gnews.org/zh-hans/78236/")
 
 [https://www.guo.media/posts/266030](https://www.guo.media/posts/266030) `2020-01-11T12:40:10`
