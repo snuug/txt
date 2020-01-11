@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2019年1月11日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/78488/](https://gnews.org/zh-hans/78488/ "https://gnews.org/zh-hans/78488/")
+
+[https://www.guo.media/posts/266110](https://www.guo.media/posts/266110) `2020-01-11T20:25:11`
+##
+
+**milesguo** 蔡总统高票连任 民意强烈对中共说不! 丞相起风了! 反共东风起将 席卷全世界! 美国国务卿蓬佩奥发表祝贺声明!<br>[https://gnews.org/zh-hans/78519/](https://gnews.org/zh-hans/78519/ "https://gnews.org/zh-hans/78519/")
+
+[https://www.guo.media/posts/266108](https://www.guo.media/posts/266108) `2020-01-11T20:25:14`
+##
+
 **milesguo** 郭文贵先生直播首次揭露：“以共灭共”是美国在中美贸易战中的核心战术<br>[https://gnews.org/zh-hans/78469/](https://gnews.org/zh-hans/78469/ "https://gnews.org/zh-hans/78469/")
 
 [https://www.guo.media/posts/266103](https://www.guo.media/posts/266103) `2020-01-11T19:25:11`
