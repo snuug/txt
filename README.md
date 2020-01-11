@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 台湾蔡英文大选港人来挺！一定要选蔡英文！！！<br>[https://gnews.org/zh-hans/77792/](https://gnews.org/zh-hans/77792/ "https://gnews.org/zh-hans/77792/")
+
+[https://www.guo.media/posts/265943](https://www.guo.media/posts/265943) `2020-01-11T04:10:11`
+##
+
+**milesguo** 从郭文贵先生爆料而感悟台湾大选的关键<br>[https://gnews.org/zh-hans/77771/](https://gnews.org/zh-hans/77771/ "https://gnews.org/zh-hans/77771/")
+
+[https://www.guo.media/posts/265941](https://www.guo.media/posts/265941) `2020-01-11T04:10:14`
+##
+
 **milesguo** 全台最大诈骗犯韩国瑜：连中共！骗台湾！千万别选他！<br>[https://gnews.org/zh-hans/77755/](https://gnews.org/zh-hans/77755/ "https://gnews.org/zh-hans/77755/")
 
 [https://www.guo.media/posts/265939](https://www.guo.media/posts/265939) `2020-01-11T03:40:10`
