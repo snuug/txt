@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【Selected edition with subtitles】 Miles Guo shares his history and feelings of the past 30 years of making friends and buying clothes on the Beverly Rodeo Drive<br>[https://gnews.org/78409/](https://gnews.org/78409/ "https://gnews.org/78409/")
+
+[https://www.guo.media/posts/266077](https://www.guo.media/posts/266077) `2020-01-11T14:55:11`
+##
+
 **milesguo** Taiwan 2020 election: Excerpts from President Tsai Ing-wen’s remarks<br>[https://gnews.org/78371/](https://gnews.org/78371/ "https://gnews.org/78371/")
 
 [https://www.guo.media/posts/266068](https://www.guo.media/posts/266068) `2020-01-11T14:25:14`
