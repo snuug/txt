@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 一名党龄30年的老党员与爆料革命（第八章）<br>[https://gnews.org/zh-hans/77887/](https://gnews.org/zh-hans/77887/ "https://gnews.org/zh-hans/77887/")
+
+[https://www.guo.media/posts/265957](https://www.guo.media/posts/265957) `2020-01-11T07:10:11`
+##
+
+**milesguo** 俄罗斯军舰“逼近”美国海军驱逐舰<br>[https://gnews.org/zh-hans/77910/](https://gnews.org/zh-hans/77910/ "https://gnews.org/zh-hans/77910/")
+
+[https://www.guo.media/posts/265956](https://www.guo.media/posts/265956) `2020-01-11T07:10:14`
+##
+
+**milesguo** 老江观点：中共金融经济开始自爆<br>[https://gnews.org/zh-hans/77844/](https://gnews.org/zh-hans/77844/ "https://gnews.org/zh-hans/77844/")
+
+[https://www.guo.media/posts/265955](https://www.guo.media/posts/265955) `2020-01-11T07:10:17`
+##
+
+**milesguo** 台湾大选蔡英文呼吁用选票守护台湾民主 避免出现第二个香港<br>[https://gnews.org/zh-hans/77863/](https://gnews.org/zh-hans/77863/ "https://gnews.org/zh-hans/77863/")
+
+[https://www.guo.media/posts/265954](https://www.guo.media/posts/265954) `2020-01-11T07:10:20`
+##
+
+**milesguo** 香港中环民众发起「和你Lunch」活动 争相踩踏官员相片表示抗议<br>[https://gnews.org/zh-hans/77835/](https://gnews.org/zh-hans/77835/ "https://gnews.org/zh-hans/77835/")
+
+[https://www.guo.media/posts/265953](https://www.guo.media/posts/265953) `2020-01-11T07:10:23`
+##
+
 **milesguo** 中共影响英国脱欧？欧洲被蓝金黄的真相！<br>[https://gnews.org/zh-hans/77816/](https://gnews.org/zh-hans/77816/ "https://gnews.org/zh-hans/77816/")
 
 [https://www.guo.media/posts/265952](https://www.guo.media/posts/265952) `2020-01-11T06:40:10`
