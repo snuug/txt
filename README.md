@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2020 台湾大选：蔡英文得票已经打破2008年大选马英九最高得票纪录<br>[https://gnews.org/zh-hans/78308/](https://gnews.org/zh-hans/78308/ "https://gnews.org/zh-hans/78308/")
+
+[https://www.guo.media/posts/266048](https://www.guo.media/posts/266048) `2020-01-11T13:25:11`
+##
+
+**milesguo** Taiwan 2020 election: Tsai Ing-wen has already broken the previous record set by Ma Ying-jeou in 2008 election<br>[https://gnews.org/78272/](https://gnews.org/78272/ "https://gnews.org/78272/")
+
+[https://www.guo.media/posts/266042](https://www.guo.media/posts/266042) `2020-01-11T13:25:15`
+##
+
 **milesguo** Taiwan 2020 election: Tsai Ing-wen has surpassed the number of votes she received in the 2016 election<br>[https://gnews.org/78259/](https://gnews.org/78259/ "https://gnews.org/78259/")
 
 [https://www.guo.media/posts/266036](https://www.guo.media/posts/266036) `2020-01-11T12:55:11`
