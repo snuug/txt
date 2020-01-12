@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 台湾大选报道被断播！CCP的四个自信去哪了？！<br>[https://gnews.org/zh-hans/78919/](https://gnews.org/zh-hans/78919/ "https://gnews.org/zh-hans/78919/")
+
+[https://www.guo.media/posts/266177](https://www.guo.media/posts/266177) `2020-01-12T07:55:12`
+##
+
 **milesguo** 文字版2020年1月10日文贵报平安直播： 台湾选举的重要性和战友们关心换汇的几个问题<br>[https://gnews.org/zh-hans/78737/](https://gnews.org/zh-hans/78737/ "https://gnews.org/zh-hans/78737/")
 
 [https://www.guo.media/posts/266168](https://www.guo.media/posts/266168) `2020-01-12T06:25:12`
