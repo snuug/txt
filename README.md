@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 聊一下文贵先生1月11号直播爆料<br>[https://gnews.org/zh-hans/79171/](https://gnews.org/zh-hans/79171/ "https://gnews.org/zh-hans/79171/")
+
+[https://www.guo.media/posts/266253](https://www.guo.media/posts/266253) `2020-01-12T22:40:11`
+##
+
+**milesguo** 蔡英文脸书发文台湾人守住了民主的堡垒<br>[https://gnews.org/zh-hans/79214/](https://gnews.org/zh-hans/79214/ "https://gnews.org/zh-hans/79214/")
+
+[https://www.guo.media/posts/266252](https://www.guo.media/posts/266252) `2020-01-12T22:40:14`
+##
+
+**milesguo** Taiwanese Say No to China, After the Failure of “One Country Two Systems” in Hong Kong<br>[https://gnews.org/79081/](https://gnews.org/79081/ "https://gnews.org/79081/")
+
+[https://www.guo.media/posts/266251](https://www.guo.media/posts/266251) `2020-01-12T22:40:17`
+##
+
+**milesguo** CCP commissioned its first Type 055 fourth generation of destroyers<br>[https://gnews.org/79251/](https://gnews.org/79251/ "https://gnews.org/79251/")
+
+[https://www.guo.media/posts/266250](https://www.guo.media/posts/266250) `2020-01-12T22:40:20`
+##
+
 **milesguo** 西方学术机构会变成了中国共产党的同谋吗？<br>[https://gnews.org/zh-hans/79089/](https://gnews.org/zh-hans/79089/ "https://gnews.org/zh-hans/79089/")
 
 [https://www.guo.media/posts/266232](https://www.guo.media/posts/266232) `2020-01-12T16:10:11`
