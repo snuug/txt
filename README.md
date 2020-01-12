@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月10日文贵报平安直播： 台湾选举的重要性和战友们关心换汇的几个问题<br>[https://gnews.org/zh-hans/78737/](https://gnews.org/zh-hans/78737/ "https://gnews.org/zh-hans/78737/")
+
+[https://www.guo.media/posts/266168](https://www.guo.media/posts/266168) `2020-01-12T06:25:12`
+##
+
+**milesguo** CCP宁可花钱解决你，也不解决你上访的问题！<br>[https://gnews.org/zh-hans/78726/](https://gnews.org/zh-hans/78726/ "https://gnews.org/zh-hans/78726/")
+
+[https://www.guo.media/posts/266167](https://www.guo.media/posts/266167) `2020-01-12T06:25:15`
+##
+
+**milesguo** 【挖掘机团队出品】桥水基金与王岐山的亲密关系！<br>[https://gnews.org/zh-hans/78688/](https://gnews.org/zh-hans/78688/ "https://gnews.org/zh-hans/78688/")
+
+[https://www.guo.media/posts/266166](https://www.guo.media/posts/266166) `2020-01-12T06:25:18`
+##
+
 **milesguo** 从新华社的二连发看中共警察执法已经荡然无存<br>[https://gnews.org/zh-hans/78680/](https://gnews.org/zh-hans/78680/ "https://gnews.org/zh-hans/78680/")
 
 [https://www.guo.media/posts/266165](https://www.guo.media/posts/266165) `2020-01-12T06:10:11`
