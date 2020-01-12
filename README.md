@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 八角棒槌：在言论自由的利剑之下，镰刀和钉锤将不堪一击<br>[https://gnews.org/zh-hans/78774/](https://gnews.org/zh-hans/78774/ "https://gnews.org/zh-hans/78774/")
+
+[https://www.guo.media/posts/266185](https://www.guo.media/posts/266185) `2020-01-12T08:55:11`
+##
+
+**milesguo** 「反渗透法」预定15日公告生效 小英当选總統 反共在前进 反渗透法迅速上马!<br>[https://gnews.org/zh-hans/78802/](https://gnews.org/zh-hans/78802/ "https://gnews.org/zh-hans/78802/")
+
+[https://www.guo.media/posts/266184](https://www.guo.media/posts/266184) `2020-01-12T08:55:14`
+##
+
+**milesguo** 如入无人之境：以色列F-35隐形战机对叙利亚境内的伊朗目标发动攻击，击毙8人<br>[https://gnews.org/zh-hans/78771/](https://gnews.org/zh-hans/78771/ "https://gnews.org/zh-hans/78771/")
+
+[https://www.guo.media/posts/266183](https://www.guo.media/posts/266183) `2020-01-12T08:55:17`
+##
+
 **milesguo** Taiwan election coverage has been cut off in mainland China! Where are the CCP’s Four Confidence !<br>[https://gnews.org/78950/](https://gnews.org/78950/ "https://gnews.org/78950/")
 
 [https://www.guo.media/posts/266182](https://www.guo.media/posts/266182) `2020-01-12T08:25:11`
