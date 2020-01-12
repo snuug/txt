@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 1月11日 美国政要推特精选<br>[https://gnews.org/zh-hans/78977/](https://gnews.org/zh-hans/78977/ "https://gnews.org/zh-hans/78977/")
+
+[https://www.guo.media/posts/266216](https://www.guo.media/posts/266216) `2020-01-12T13:55:11`
+##
+
+**milesguo** 中国第一艘055型导弹驱逐舰投入使用<br>[https://gnews.org/zh-hans/78872/](https://gnews.org/zh-hans/78872/ "https://gnews.org/zh-hans/78872/")
+
+[https://www.guo.media/posts/266215](https://www.guo.media/posts/266215) `2020-01-12T13:55:15`
+##
+
+**milesguo** A light-hearted satire of China losing its influence in Hong Kong and Taiwan<br>[https://gnews.org/79069/](https://gnews.org/79069/ "https://gnews.org/79069/")
+
+[https://www.guo.media/posts/266214](https://www.guo.media/posts/266214) `2020-01-12T13:55:18`
+##
+
+**milesguo** US, EU, and Japan Congratulated Tsai Ing-wen’s Landslide Victory<br>[https://gnews.org/78969/](https://gnews.org/78969/ "https://gnews.org/78969/")
+
+[https://www.guo.media/posts/266213](https://www.guo.media/posts/266213) `2020-01-12T13:55:22`
+##
+
+**milesguo** CCP sends warning message after Taiwan’s presidential election<br>[https://gnews.org/78814/](https://gnews.org/78814/ "https://gnews.org/78814/")
+
+[https://www.guo.media/posts/266212](https://www.guo.media/posts/266212) `2020-01-12T13:55:25`
+##
+
+**milesguo** Miles Guo: The inside story behind Taiwan’s election and suggestion to Taiwan’s President Tsai Ing-wen (Part I)<br>[https://gnews.org/78707/](https://gnews.org/78707/ "https://gnews.org/78707/")
+
+[https://www.guo.media/posts/266211](https://www.guo.media/posts/266211) `2020-01-12T13:55:28`
+##
+
+**milesguo** Miles Guo: What are the core strategies and tactics of the China-US trade war? Taiwan opened the second door to the destruction of the CCP (Part II)<br>[https://gnews.org/78788/](https://gnews.org/78788/ "https://gnews.org/78788/")
+
+[https://www.guo.media/posts/266210](https://www.guo.media/posts/266210) `2020-01-12T13:55:31`
+##
+
 **milesguo** 2020年开年大戏：蔡英文赢了，CCP输了！<br>[https://gnews.org/zh-hans/79016/](https://gnews.org/zh-hans/79016/ "https://gnews.org/zh-hans/79016/")
 
 [https://www.guo.media/posts/266205](https://www.guo.media/posts/266205) `2020-01-12T11:25:11`
