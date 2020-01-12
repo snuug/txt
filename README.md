@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月11号：尊敬的战友们好！明天1月12号星期天，由于文贵在12:00前都有会议安排！明天没有报平安视频直播！一切都是刚刚开始！
+
+[https://www.guo.media/posts/266148](https://www.guo.media/posts/266148) `2020-01-12T02:55:10`
+##
+
 **milesguo** 独裁者去死！伊朗民众抗议军方击落乌克兰客机；英大使被伊朗拘留一小时后获释<br>[https://gnews.org/zh-hans/78548/](https://gnews.org/zh-hans/78548/ "https://gnews.org/zh-hans/78548/")
 
 [https://www.guo.media/posts/266142](https://www.guo.media/posts/266142) `2020-01-12T02:25:10`
