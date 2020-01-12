@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共战略布局地中海带来的威胁<br>[https://gnews.org/zh-hans/78870/](https://gnews.org/zh-hans/78870/ "https://gnews.org/zh-hans/78870/")
+
+[https://www.guo.media/posts/266193](https://www.guo.media/posts/266193) `2020-01-12T10:10:10`
+##
+
 **milesguo** Trump tweets his support for Iranian protesters<br>[https://gnews.org/78609/](https://gnews.org/78609/ "https://gnews.org/78609/")
 
 [https://www.guo.media/posts/266188](https://www.guo.media/posts/266188) `2020-01-12T09:25:11`
