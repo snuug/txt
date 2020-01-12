@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 蔡英文连任粉碎中共统战梦<br>[https://gnews.org/zh-hans/79047/](https://gnews.org/zh-hans/79047/ "https://gnews.org/zh-hans/79047/")
+
+[https://www.guo.media/posts/266203](https://www.guo.media/posts/266203) `2020-01-12T10:55:11`
+##
+
+**milesguo** Tsai Ing-wen’s Reelection Crushes CCP’s Dream From United Front<br>[https://gnews.org/79027/](https://gnews.org/79027/ "https://gnews.org/79027/")
+
+[https://www.guo.media/posts/266198](https://www.guo.media/posts/266198) `2020-01-12T10:55:14`
+##
+
 **milesguo** 中共战略布局地中海带来的威胁<br>[https://gnews.org/zh-hans/78870/](https://gnews.org/zh-hans/78870/ "https://gnews.org/zh-hans/78870/")
 
 [https://www.guo.media/posts/266193](https://www.guo.media/posts/266193) `2020-01-12T10:10:10`
