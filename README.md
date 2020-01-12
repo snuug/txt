@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 中共是怎样把党文化强加给香港学生<br>[https://gnews.org/zh-hans/78638/](https://gnews.org/zh-hans/78638/ "https://gnews.org/zh-hans/78638/")
+
+[https://www.guo.media/posts/266160](https://www.guo.media/posts/266160) `2020-01-12T04:55:10`
+##
+
+**milesguo** 蔡英文，名垂青史与遗臭万年就在一念之间<br>[https://gnews.org/zh-hans/78495/](https://gnews.org/zh-hans/78495/ "https://gnews.org/zh-hans/78495/")
+
+[https://www.guo.media/posts/266158](https://www.guo.media/posts/266158) `2020-01-12T04:55:14`
+##
+
+**milesguo** 美国总统川普发推支持伊朗民众抗议：您们的勇气鼓舞着我们！<br>[https://gnews.org/zh-hans/78595/](https://gnews.org/zh-hans/78595/ "https://gnews.org/zh-hans/78595/")
+
+[https://www.guo.media/posts/266156](https://www.guo.media/posts/266156) `2020-01-12T04:55:17`
+##
+
 **milesguo** 1月11号：尊敬的战友们好！明天1月12号星期天，由于文贵在12:00前都有会议安排！明天没有报平安视频直播！一切都是刚刚开始！
 
 [https://www.guo.media/posts/266148](https://www.guo.media/posts/266148) `2020-01-12T02:55:10`
