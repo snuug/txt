@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 香港粉岭警察机动部队训练基地传出求救和枪声<br>[https://gnews.org/zh-hans/79199/](https://gnews.org/zh-hans/79199/ "https://gnews.org/zh-hans/79199/")
+
+[https://www.guo.media/posts/266230](https://www.guo.media/posts/266230) `2020-01-12T15:40:11`
+##
+
+**milesguo** 中国学校不发奖学金改发猪肉！全班前三名获猪肉、猪脚<br>[https://gnews.org/zh-hans/79183/](https://gnews.org/zh-hans/79183/ "https://gnews.org/zh-hans/79183/")
+
+[https://www.guo.media/posts/266229](https://www.guo.media/posts/266229) `2020-01-12T15:40:14`
+##
+
+**milesguo** 伊朗事件的幕后黑手到底是谁？<br>[https://gnews.org/zh-hans/78853/](https://gnews.org/zh-hans/78853/ "https://gnews.org/zh-hans/78853/")
+
+[https://www.guo.media/posts/266228](https://www.guo.media/posts/266228) `2020-01-12T15:40:17`
+##
+
+**milesguo** 爆料革命跨入第三年之际抚今追昔看看砸郭丑剧？<br>[https://gnews.org/zh-hans/79147/](https://gnews.org/zh-hans/79147/ "https://gnews.org/zh-hans/79147/")
+
+[https://www.guo.media/posts/266227](https://www.guo.media/posts/266227) `2020-01-12T15:40:20`
+##
+
+**milesguo** 日本如果在与中共签署第五个政治文件还会具有任何的现实意义吗？<br>[https://gnews.org/zh-hans/78945/](https://gnews.org/zh-hans/78945/ "https://gnews.org/zh-hans/78945/")
+
+[https://www.guo.media/posts/266226](https://www.guo.media/posts/266226) `2020-01-12T15:40:23`
+##
+
+**milesguo** 香港文华饕记餐厅被砸毁<br>[https://gnews.org/zh-hans/79105/](https://gnews.org/zh-hans/79105/ "https://gnews.org/zh-hans/79105/")
+
+[https://www.guo.media/posts/266225](https://www.guo.media/posts/266225) `2020-01-12T15:40:26`
+##
+
 **milesguo** 西方学术机构会变成了中国共产党的同谋吗？<br>[https://gnews.org/zh-hans/79089/](https://gnews.org/zh-hans/79089/ "https://gnews.org/zh-hans/79089/")
 
 [https://www.guo.media/posts/266222](https://www.guo.media/posts/266222) `2020-01-12T15:10:10`
