@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 西方学术机构会变成了中国共产党的同谋吗？<br>[https://gnews.org/zh-hans/79089/](https://gnews.org/zh-hans/79089/ "https://gnews.org/zh-hans/79089/")
+
+[https://www.guo.media/posts/266232](https://www.guo.media/posts/266232) `2020-01-12T16:10:11`
+##
+
 **milesguo** 香港粉岭警察机动部队训练基地传出求救和枪声<br>[https://gnews.org/zh-hans/79199/](https://gnews.org/zh-hans/79199/ "https://gnews.org/zh-hans/79199/")
 
 [https://www.guo.media/posts/266230](https://www.guo.media/posts/266230) `2020-01-12T15:40:11`
