@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 西方学术机构会变成了中国共产党的同谋吗？<br>[https://gnews.org/zh-hans/79089/](https://gnews.org/zh-hans/79089/ "https://gnews.org/zh-hans/79089/")
+
+[https://www.guo.media/posts/266222](https://www.guo.media/posts/266222) `2020-01-12T15:10:10`
+##
+
+**milesguo** 日媒吓傻了！台湾年轻人「大返乡」投票潮超狂 飞22hrs也要回家 台湾人从世界各地回家投票 成日本热搜话题<br>[https://gnews.org/zh-hans/79068/](https://gnews.org/zh-hans/79068/ "https://gnews.org/zh-hans/79068/")
+
+[https://www.guo.media/posts/266221](https://www.guo.media/posts/266221) `2020-01-12T15:10:14`
+##
+
+**milesguo** 驻港戒严部队拘捕快递员 大陆来港学生演讲支持反送中<br>[https://gnews.org/zh-hans/79010/](https://gnews.org/zh-hans/79010/ "https://gnews.org/zh-hans/79010/")
+
+[https://www.guo.media/posts/266220](https://www.guo.media/posts/266220) `2020-01-12T15:10:17`
+##
+
 **milesguo** 1月11日 美国政要推特精选<br>[https://gnews.org/zh-hans/78977/](https://gnews.org/zh-hans/78977/ "https://gnews.org/zh-hans/78977/")
 
 [https://www.guo.media/posts/266216](https://www.guo.media/posts/266216) `2020-01-12T13:55:11`
