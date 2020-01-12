@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月8日文贵报平安直播：跟战友们分享在小飞机上吃鸡腿<br>[https://gnews.org/zh-hans/78746/](https://gnews.org/zh-hans/78746/ "https://gnews.org/zh-hans/78746/")
+
+[https://www.guo.media/posts/266179](https://www.guo.media/posts/266179) `2020-01-12T08:10:11`
+##
+
 **milesguo** 台湾大选报道被断播！CCP的四个自信去哪了？！<br>[https://gnews.org/zh-hans/78919/](https://gnews.org/zh-hans/78919/ "https://gnews.org/zh-hans/78919/")
 
 [https://www.guo.media/posts/266177](https://www.guo.media/posts/266177) `2020-01-12T07:55:12`
