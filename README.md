@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020年开年大戏：蔡英文赢了，CCP输了！<br>[https://gnews.org/zh-hans/79016/](https://gnews.org/zh-hans/79016/ "https://gnews.org/zh-hans/79016/")
+
+[https://www.guo.media/posts/266205](https://www.guo.media/posts/266205) `2020-01-12T11:25:11`
+##
+
 **milesguo** 蔡英文连任粉碎中共统战梦<br>[https://gnews.org/zh-hans/79047/](https://gnews.org/zh-hans/79047/ "https://gnews.org/zh-hans/79047/")
 
 [https://www.guo.media/posts/266203](https://www.guo.media/posts/266203) `2020-01-12T10:55:11`
