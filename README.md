@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Taiwan election coverage has been cut off in mainland China! Where are the CCP’s Four Confidence !<br>[https://gnews.org/78950/](https://gnews.org/78950/ "https://gnews.org/78950/")
+
+[https://www.guo.media/posts/266182](https://www.guo.media/posts/266182) `2020-01-12T08:25:11`
+##
+
 **milesguo** 文字版2020年1月8日文贵报平安直播：跟战友们分享在小飞机上吃鸡腿<br>[https://gnews.org/zh-hans/78746/](https://gnews.org/zh-hans/78746/ "https://gnews.org/zh-hans/78746/")
 
 [https://www.guo.media/posts/266179](https://www.guo.media/posts/266179) `2020-01-12T08:10:11`
