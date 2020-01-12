@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 从新华社的二连发看中共警察执法已经荡然无存<br>[https://gnews.org/zh-hans/78680/](https://gnews.org/zh-hans/78680/ "https://gnews.org/zh-hans/78680/")
+
+[https://www.guo.media/posts/266165](https://www.guo.media/posts/266165) `2020-01-12T06:10:11`
+##
+
+**milesguo** 香港要闻：港共极权破坏法治 打压无所不用其极 全城弥漫白色恐怖；舔共奴才 再为恶法保驾护航<br>[https://gnews.org/zh-hans/78669/](https://gnews.org/zh-hans/78669/ "https://gnews.org/zh-hans/78669/")
+
+[https://www.guo.media/posts/266164](https://www.guo.media/posts/266164) `2020-01-12T06:10:15`
+##
+
 **milesguo** 小巴猪：台湾大选，中共哭晕在厕所<br>[https://gnews.org/zh-hans/78624/](https://gnews.org/zh-hans/78624/ "https://gnews.org/zh-hans/78624/")
 
 [https://www.guo.media/posts/266161](https://www.guo.media/posts/266161) `2020-01-12T05:10:10`
