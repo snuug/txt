@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Trump tweets his support for Iranian protesters<br>[https://gnews.org/78609/](https://gnews.org/78609/ "https://gnews.org/78609/")
+
+[https://www.guo.media/posts/266188](https://www.guo.media/posts/266188) `2020-01-12T09:25:11`
+##
+
+**milesguo** 台湾领导人赢得大选后会见美国最高官员<br>[https://gnews.org/zh-hans/78855/](https://gnews.org/zh-hans/78855/ "https://gnews.org/zh-hans/78855/")
+
+[https://www.guo.media/posts/266187](https://www.guo.media/posts/266187) `2020-01-12T09:25:14`
+##
+
+**milesguo** 战友福利：2020中国汽车市场前瞻<br>[https://gnews.org/zh-hans/78837/](https://gnews.org/zh-hans/78837/ "https://gnews.org/zh-hans/78837/")
+
+[https://www.guo.media/posts/266186](https://www.guo.media/posts/266186) `2020-01-12T09:25:18`
+##
+
 **milesguo** 八角棒槌：在言论自由的利剑之下，镰刀和钉锤将不堪一击<br>[https://gnews.org/zh-hans/78774/](https://gnews.org/zh-hans/78774/ "https://gnews.org/zh-hans/78774/")
 
 [https://www.guo.media/posts/266185](https://www.guo.media/posts/266185) `2020-01-12T08:55:11`
