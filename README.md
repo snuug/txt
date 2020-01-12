@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：台湾大选，中共哭晕在厕所<br>[https://gnews.org/zh-hans/78624/](https://gnews.org/zh-hans/78624/ "https://gnews.org/zh-hans/78624/")
+
+[https://www.guo.media/posts/266161](https://www.guo.media/posts/266161) `2020-01-12T05:10:10`
+##
+
 **milesguo** 中共是怎样把党文化强加给香港学生<br>[https://gnews.org/zh-hans/78638/](https://gnews.org/zh-hans/78638/ "https://gnews.org/zh-hans/78638/")
 
 [https://www.guo.media/posts/266160](https://www.guo.media/posts/266160) `2020-01-12T04:55:10`
