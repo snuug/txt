@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月12日 美国政要推特精选<br>[https://gnews.org/zh-hans/79589/](https://gnews.org/zh-hans/79589/ "https://gnews.org/zh-hans/79589/")
+
+[https://www.guo.media/posts/266341](https://www.guo.media/posts/266341) `2020-01-13T14:40:12`
+##
+
 **milesguo** 以共灭共核心战略之下的贸易协议会如何收场？<br>[https://gnews.org/zh-hans/79487/](https://gnews.org/zh-hans/79487/ "https://gnews.org/zh-hans/79487/")
 
 [https://www.guo.media/posts/266337](https://www.guo.media/posts/266337) `2020-01-13T14:10:11`
