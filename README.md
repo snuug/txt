@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 班农：川普总统通过经济战追究独裁者责任<br>[https://gnews.org/zh-hans/79655/](https://gnews.org/zh-hans/79655/ "https://gnews.org/zh-hans/79655/")
+
+[https://www.guo.media/posts/266327](https://www.guo.media/posts/266327) `2020-01-13T13:25:11`
+##
+
 **milesguo** 国际NGO组织“人权观察”负责人被拒入境香港<br>[https://gnews.org/zh-hans/79550/](https://gnews.org/zh-hans/79550/ "https://gnews.org/zh-hans/79550/")
 
 [https://www.guo.media/posts/266307](https://www.guo.media/posts/266307) `2020-01-13T09:25:10`
