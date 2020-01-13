@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国将就中国购买伊朗石油问题对其实施制裁<br>[https://gnews.org/zh-hans/79522/](https://gnews.org/zh-hans/79522/ "https://gnews.org/zh-hans/79522/")
+
+[https://www.guo.media/posts/266304](https://www.guo.media/posts/266304) `2020-01-13T09:10:11`
+##
+
 **milesguo** 广州地陷事故三名失联人员遗体终于全部找到了<br>[https://gnews.org/zh-hans/79394/](https://gnews.org/zh-hans/79394/ "https://gnews.org/zh-hans/79394/")
 
 [https://www.guo.media/posts/266297](https://www.guo.media/posts/266297) `2020-01-13T07:25:10`
