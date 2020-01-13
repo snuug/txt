@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 国际NGO组织“人权观察”负责人被拒入境香港<br>[https://gnews.org/zh-hans/79550/](https://gnews.org/zh-hans/79550/ "https://gnews.org/zh-hans/79550/")
+
+[https://www.guo.media/posts/266307](https://www.guo.media/posts/266307) `2020-01-13T09:25:10`
+##
+
+**milesguo** 川普向伊朗政府发出警告：不要杀害你们的抗议者<br>[https://gnews.org/zh-hans/79532/](https://gnews.org/zh-hans/79532/ "https://gnews.org/zh-hans/79532/")
+
+[https://www.guo.media/posts/266305](https://www.guo.media/posts/266305) `2020-01-13T09:25:14`
+##
+
 **milesguo** 美国将就中国购买伊朗石油问题对其实施制裁<br>[https://gnews.org/zh-hans/79522/](https://gnews.org/zh-hans/79522/ "https://gnews.org/zh-hans/79522/")
 
 [https://www.guo.media/posts/266304](https://www.guo.media/posts/266304) `2020-01-13T09:10:11`
