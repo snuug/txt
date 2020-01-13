@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美宣布将中国从汇率操纵国名单中移除，重新列入汇率操作的“监控名单”<br>[https://gnews.org/zh-hans/79997/](https://gnews.org/zh-hans/79997/ "https://gnews.org/zh-hans/79997/")
+
+[https://www.guo.media/posts/266400](https://www.guo.media/posts/266400) `2020-01-13T23:55:11`
+##
+
 **milesguo** 1月13号：拜请大家订阅韩国征战有嫖娼海先生频道：[https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！ "https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！")
 
 [https://www.guo.media/posts/266389](https://www.guo.media/posts/266389) `2020-01-13T22:10:11`
