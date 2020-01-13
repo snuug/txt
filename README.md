@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 台湾大选！一位大陆战友谈谈感受<br>[https://gnews.org/zh-hans/79452/](https://gnews.org/zh-hans/79452/ "https://gnews.org/zh-hans/79452/")
+
+[https://www.guo.media/posts/266342](https://www.guo.media/posts/266342) `2020-01-13T14:55:11`
+##
+
 **milesguo** 1月12日 美国政要推特精选<br>[https://gnews.org/zh-hans/79589/](https://gnews.org/zh-hans/79589/ "https://gnews.org/zh-hans/79589/")
 
 [https://www.guo.media/posts/266341](https://www.guo.media/posts/266341) `2020-01-13T14:40:12`
