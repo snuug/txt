@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** News articles from CCP show that Its Police Force is Absolutely Corrupted<br>[https://gnews.org/79496/](https://gnews.org/79496/ "https://gnews.org/79496/")
+
+[https://www.guo.media/posts/266334](https://www.guo.media/posts/266334) `2020-01-13T13:55:10`
+##
+
+**milesguo** <br>【挖掘机团队出品】超重量级挖掘！中共对宗教的残酷打压<br>[https://gnews.org/zh-hans/79463/](https://gnews.org/zh-hans/79463/ "https://gnews.org/zh-hans/79463/")
+
+[https://www.guo.media/posts/266333](https://www.guo.media/posts/266333) `2020-01-13T13:55:14`
+##
+
+**milesguo** [Hong Kong Follow Up] Granny Wang, now under close surveillance by CCP<br>[https://gnews.org/79428/](https://gnews.org/79428/ "https://gnews.org/79428/")
+
+[https://www.guo.media/posts/266331](https://www.guo.media/posts/266331) `2020-01-13T13:55:18`
+##
+
+**milesguo** The Farm: Flight PS752<br>[https://gnews.org/79399/](https://gnews.org/79399/ "https://gnews.org/79399/")
+
+[https://www.guo.media/posts/266330](https://www.guo.media/posts/266330) `2020-01-13T13:55:20`
+##
+
 **milesguo** 班农：川普总统通过经济战追究独裁者责任<br>[https://gnews.org/zh-hans/79655/](https://gnews.org/zh-hans/79655/ "https://gnews.org/zh-hans/79655/")
 
 [https://www.guo.media/posts/266327](https://www.guo.media/posts/266327) `2020-01-13T13:25:11`
