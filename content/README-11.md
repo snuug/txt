@@ -13,6 +13,8 @@
 
 ## 頁面 11/23 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [23](/content/README-23.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/2019/01/20190123-2188991099465691450.md)
+
 [文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/2019/01/20190123-8364143851191456056.md)
 
 [文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/content/2019/01/20190122-141136365873986277.md)
@@ -60,8 +62,6 @@
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
 
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
-
-[文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/content/2018/12/20181209-8884360174846064842.md)
 
 
 ## 頁面 11/23 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [23](/content/README-23.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
