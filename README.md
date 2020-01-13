@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月13号：拜请大家订阅韩国征战有嫖娼海先生频道：[https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！](https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！ "https://www.youtube.com/channel/UCdxCALFQp1y1fo29gR1rEQQ．朴先生是我们一直以来最真诚的可信赖的无私的战友，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/266389](https://www.guo.media/posts/266389) `2020-01-13T22:10:11`
+##
+
 **milesguo** 老师，我手冷！你可以教她做乖乖女，但请你保护好她！<br>[https://gnews.org/zh-hans/79705/](https://gnews.org/zh-hans/79705/ "https://gnews.org/zh-hans/79705/")
 
 [https://www.guo.media/posts/266353](https://www.guo.media/posts/266353) `2020-01-13T15:40:12`
