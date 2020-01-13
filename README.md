@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 以共灭共核心战略之下的贸易协议会如何收场？<br>[https://gnews.org/zh-hans/79487/](https://gnews.org/zh-hans/79487/ "https://gnews.org/zh-hans/79487/")
+
+[https://www.guo.media/posts/266337](https://www.guo.media/posts/266337) `2020-01-13T14:10:11`
+##
+
+**milesguo** “Run Our City” Runners Raised Their Hands Symbolizing “Five Demands, Not One Less”<br>[https://gnews.org/79561/](https://gnews.org/79561/ "https://gnews.org/79561/")
+
+[https://www.guo.media/posts/266335](https://www.guo.media/posts/266335) `2020-01-13T14:10:14`
+##
+
 **milesguo** News articles from CCP show that Its Police Force is Absolutely Corrupted<br>[https://gnews.org/79496/](https://gnews.org/79496/ "https://gnews.org/79496/")
 
 [https://www.guo.media/posts/266334](https://www.guo.media/posts/266334) `2020-01-13T13:55:10`
