@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月12号：尊敬的战友们好！明天1月13号．看直播请戳这里。👉👉[https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！](https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！ "https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！")
+
+[https://www.guo.media/posts/266266](https://www.guo.media/posts/266266) `2020-01-13T02:10:11`
+##
+
 **milesguo** 聊一下文贵先生1月11号直播爆料<br>[https://gnews.org/zh-hans/79171/](https://gnews.org/zh-hans/79171/ "https://gnews.org/zh-hans/79171/")
 
 [https://www.guo.media/posts/266253](https://www.guo.media/posts/266253) `2020-01-12T22:40:11`
