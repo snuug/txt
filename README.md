@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 又双叒出现伤医事件，武汉双流人民法院副局长殴打医生<br>[https://gnews.org/zh-hans/79347/](https://gnews.org/zh-hans/79347/ "https://gnews.org/zh-hans/79347/")
+
+[https://www.guo.media/posts/266288](https://www.guo.media/posts/266288) `2020-01-13T05:55:10`
+##
+
+**milesguo** 霹雳年！请对独裁放弃幻想<br>[https://gnews.org/zh-hans/79336/](https://gnews.org/zh-hans/79336/ "https://gnews.org/zh-hans/79336/")
+
+[https://www.guo.media/posts/266287](https://www.guo.media/posts/266287) `2020-01-13T05:55:14`
+##
+
+**milesguo** 【挖掘机团队出品】深挖！中共对新西兰的全面渗透！-1<br>[https://gnews.org/zh-hans/78909/](https://gnews.org/zh-hans/78909/ "https://gnews.org/zh-hans/78909/")
+
+[https://www.guo.media/posts/266286](https://www.guo.media/posts/266286) `2020-01-13T05:55:17`
+##
+
+**milesguo** 班农力挺川普称他是 “1930年的丘吉尔, 他不再对北京/伊朗独裁者姑息, 为世界争取自由和民主的人们发声”<br>[https://gnews.org/zh-hans/79320/](https://gnews.org/zh-hans/79320/ "https://gnews.org/zh-hans/79320/")
+
+[https://www.guo.media/posts/266285](https://www.guo.media/posts/266285) `2020-01-13T05:55:20`
+##
+
 **milesguo** 1月12号：尊敬的战友们好！明天1月13号．看直播请戳这里。👉👉[https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！](https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！ "https://gnews.org/zh-hans/．纽约时间上午9:30文贵报平安直播，纯粹乱聊．不爆料．一切都是刚刚开始！")
 
 [https://www.guo.media/posts/266266](https://www.guo.media/posts/266266) `2020-01-13T02:10:11`
