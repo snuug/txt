@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 老师，我手冷！你可以教她做乖乖女，但请你保护好她！<br>[https://gnews.org/zh-hans/79705/](https://gnews.org/zh-hans/79705/ "https://gnews.org/zh-hans/79705/")
+
+[https://www.guo.media/posts/266353](https://www.guo.media/posts/266353) `2020-01-13T15:40:12`
+##
+
+**milesguo** 惊悚！油塘纪律部队宿舍，男子高处坠楼身亡！<br>[https://gnews.org/zh-hans/79679/](https://gnews.org/zh-hans/79679/ "https://gnews.org/zh-hans/79679/")
+
+[https://www.guo.media/posts/266352](https://www.guo.media/posts/266352) `2020-01-13T15:40:15`
+##
+
 **milesguo** 台湾大选！一位大陆战友谈谈感受<br>[https://gnews.org/zh-hans/79452/](https://gnews.org/zh-hans/79452/ "https://gnews.org/zh-hans/79452/")
 
 [https://www.guo.media/posts/266342](https://www.guo.media/posts/266342) `2020-01-13T14:55:11`
