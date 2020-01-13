@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 广州地陷事故三名失联人员遗体终于全部找到了<br>[https://gnews.org/zh-hans/79394/](https://gnews.org/zh-hans/79394/ "https://gnews.org/zh-hans/79394/")
+
+[https://www.guo.media/posts/266297](https://www.guo.media/posts/266297) `2020-01-13T07:25:10`
+##
+
+**milesguo** 华人的孤岛现象：烙印<br>[https://gnews.org/zh-hans/79006/](https://gnews.org/zh-hans/79006/ "https://gnews.org/zh-hans/79006/")
+
+[https://www.guo.media/posts/266296](https://www.guo.media/posts/266296) `2020-01-13T07:25:14`
+##
+
+**milesguo** 文字版：2020年1月11日文贵直播谈：台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年<br>[https://gnews.org/zh-hans/79365/](https://gnews.org/zh-hans/79365/ "https://gnews.org/zh-hans/79365/")
+
+[https://www.guo.media/posts/266295](https://www.guo.media/posts/266295) `2020-01-13T07:25:17`
+##
+
+**milesguo** 中共地铁安检要持续到何时？<br>[https://gnews.org/zh-hans/79363/](https://gnews.org/zh-hans/79363/ "https://gnews.org/zh-hans/79363/")
+
+[https://www.guo.media/posts/266294](https://www.guo.media/posts/266294) `2020-01-13T07:25:20`
+##
+
 **milesguo** 又双叒出现伤医事件，武汉双流人民法院副局长殴打医生<br>[https://gnews.org/zh-hans/79347/](https://gnews.org/zh-hans/79347/ "https://gnews.org/zh-hans/79347/")
 
 [https://www.guo.media/posts/266288](https://www.guo.media/posts/266288) `2020-01-13T05:55:10`
