@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 伊朗国家电视台主持人辞职 她说：“对不起大家！我在电视台说了13年谎”<br>[https://gnews.org/zh-hans/80161/](https://gnews.org/zh-hans/80161/ "https://gnews.org/zh-hans/80161/")
+
+[https://www.guo.media/posts/266496](https://www.guo.media/posts/266496) `2020-01-14T08:55:10`
+##
+
+**milesguo** 川普总统连任之路！“摇摆州”爱荷华州初选最新民调<br>[https://gnews.org/zh-hans/80160/](https://gnews.org/zh-hans/80160/ "https://gnews.org/zh-hans/80160/")
+
+[https://www.guo.media/posts/266495](https://www.guo.media/posts/266495) `2020-01-14T08:55:14`
+##
+
+**milesguo** Raheem Kassam和Jason Miller谈论伊朗过去如噩梦般的一周<br>[https://gnews.org/zh-hans/80143/](https://gnews.org/zh-hans/80143/ "https://gnews.org/zh-hans/80143/")
+
+[https://www.guo.media/posts/266494](https://www.guo.media/posts/266494) `2020-01-14T08:55:17`
+##
+
+**milesguo** 【挖掘机团队出品】美国盛德.奥斯汀律师事务所与海航集团(HNA)的勾当！<br>[https://gnews.org/zh-hans/80089/](https://gnews.org/zh-hans/80089/ "https://gnews.org/zh-hans/80089/")
+
+[https://www.guo.media/posts/266493](https://www.guo.media/posts/266493) `2020-01-14T08:55:20`
+##
+
+**milesguo** 《一个被“罚”130亿美元的超级富商》 这部电影的男主角应该是谁？<br>[https://gnews.org/zh-hans/80062/](https://gnews.org/zh-hans/80062/ "https://gnews.org/zh-hans/80062/")
+
+[https://www.guo.media/posts/266492](https://www.guo.media/posts/266492) `2020-01-14T08:55:23`
+##
+
+**milesguo** 震慑中共：美空军第18联队与海军，陆军和海军陆战队在西太平洋进行多兵种演习<br>[https://gnews.org/zh-hans/80007/](https://gnews.org/zh-hans/80007/ "https://gnews.org/zh-hans/80007/")
+
+[https://www.guo.media/posts/266491](https://www.guo.media/posts/266491) `2020-01-14T08:55:26`
+##
+
 **milesguo** 《华尔街日报》证实：美中贸易战，美国经济“毫发无损”<br>[https://gnews.org/zh-hans/80162/](https://gnews.org/zh-hans/80162/ "https://gnews.org/zh-hans/80162/")
 
 [https://www.guo.media/posts/266468](https://www.guo.media/posts/266468) `2020-01-14T06:55:10`
