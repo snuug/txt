@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** C919想挑战波音和空客公司怕没那么容易<br>[https://gnews.org/zh-hans/80311/](https://gnews.org/zh-hans/80311/ "https://gnews.org/zh-hans/80311/")
+
+[https://www.guo.media/posts/266500](https://www.guo.media/posts/266500) `2020-01-14T09:40:12`
+##
+
 **milesguo** 伊朗国家电视台主持人辞职 她说：“对不起大家！我在电视台说了13年谎”<br>[https://gnews.org/zh-hans/80161/](https://gnews.org/zh-hans/80161/ "https://gnews.org/zh-hans/80161/")
 
 [https://www.guo.media/posts/266496](https://www.guo.media/posts/266496) `2020-01-14T08:55:10`
