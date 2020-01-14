@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共在国内对宗教的打压策略和手段<br>[https://gnews.org/zh-hans/80039/](https://gnews.org/zh-hans/80039/ "https://gnews.org/zh-hans/80039/")
+
+[https://www.guo.media/posts/266563](https://www.guo.media/posts/266563) `2020-01-14T18:55:10`
+##
+
+**milesguo** 莱特希泽谈第一阶段中美贸易协议<br>[https://gnews.org/zh-hans/80496/](https://gnews.org/zh-hans/80496/ "https://gnews.org/zh-hans/80496/")
+
+[https://www.guo.media/posts/266562](https://www.guo.media/posts/266562) `2020-01-14T18:55:14`
+##
+
+**milesguo** 小巴猪：灭共越快越好，越早越好，中共会让中国万劫不覆<br>[https://gnews.org/zh-hans/80473/](https://gnews.org/zh-hans/80473/ "https://gnews.org/zh-hans/80473/")
+
+[https://www.guo.media/posts/266560](https://www.guo.media/posts/266560) `2020-01-14T18:55:17`
+##
+
+**milesguo** 八角棒槌：当获得金钱信仰时，中共又让我们失去了什么？<br>[https://gnews.org/zh-hans/80469/](https://gnews.org/zh-hans/80469/ "https://gnews.org/zh-hans/80469/")
+
+[https://www.guo.media/posts/266559](https://www.guo.media/posts/266559) `2020-01-14T18:55:20`
+##
+
 **milesguo** 韩国瑜的败选为什么会让我欢呼雀跃<br>[https://gnews.org/zh-hans/80402/](https://gnews.org/zh-hans/80402/ "https://gnews.org/zh-hans/80402/")
 
 [https://www.guo.media/posts/266532](https://www.guo.media/posts/266532) `2020-01-14T15:25:11`
