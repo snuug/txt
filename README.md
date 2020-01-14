@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 爆料革命是躲过中共股市洪水的方舟<br>[https://gnews.org/zh-hans/79856/](https://gnews.org/zh-hans/79856/ "https://gnews.org/zh-hans/79856/")
+
+[https://www.guo.media/posts/266421](https://www.guo.media/posts/266421) `2020-01-14T02:25:12`
+##
+
+**milesguo** 2020年1月13日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/79771/](https://gnews.org/zh-hans/79771/ "https://gnews.org/zh-hans/79771/")
+
+[https://www.guo.media/posts/266420](https://www.guo.media/posts/266420) `2020-01-14T02:25:15`
+##
+
+**milesguo** 霍梅尼最像王岐山？郭文贵先生揭露爆骗革命本质，灭共第三道大门即将打开！<br>[https://gnews.org/zh-hans/79750/](https://gnews.org/zh-hans/79750/ "https://gnews.org/zh-hans/79750/")
+
+[https://www.guo.media/posts/266419](https://www.guo.media/posts/266419) `2020-01-14T02:25:18`
+##
+
+**milesguo** 由人权观察执行长在香港被拒入境所引起的思考<br>[https://gnews.org/zh-hans/79759/](https://gnews.org/zh-hans/79759/ "https://gnews.org/zh-hans/79759/")
+
+[https://www.guo.media/posts/266418](https://www.guo.media/posts/266418) `2020-01-14T02:25:21`
+##
+
+**milesguo** 广播：2020/1/13 郭文贵先生直播 伊朗中国命运惊人相似; 中国人未来不叫Chinese<br>[https://gnews.org/zh-hans/79739/](https://gnews.org/zh-hans/79739/ "https://gnews.org/zh-hans/79739/")
+
+[https://www.guo.media/posts/266417](https://www.guo.media/posts/266417) `2020-01-14T02:25:24`
+##
+
+**milesguo** 看直播：2020年1月13日郭文贵先生直播谈绝不允许中国有伊朗的霍梅尼现象<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/266416](https://www.guo.media/posts/266416) `2020-01-14T02:25:27`
+##
+
 **milesguo** 美宣布将中国从汇率操纵国名单中移除，重新列入汇率操作的“监控名单”<br>[https://gnews.org/zh-hans/79997/](https://gnews.org/zh-hans/79997/ "https://gnews.org/zh-hans/79997/")
 
 [https://www.guo.media/posts/266400](https://www.guo.media/posts/266400) `2020-01-13T23:55:11`
