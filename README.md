@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 13th January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/80384/](https://gnews.org/80384/ "https://gnews.org/80384/")
+
+[https://www.guo.media/posts/266505](https://www.guo.media/posts/266505) `2020-01-14T11:10:13`
+##
+
 **milesguo** C919想挑战波音和空客公司怕没那么容易<br>[https://gnews.org/zh-hans/80311/](https://gnews.org/zh-hans/80311/ "https://gnews.org/zh-hans/80311/")
 
 [https://www.guo.media/posts/266500](https://www.guo.media/posts/266500) `2020-01-14T09:40:12`
