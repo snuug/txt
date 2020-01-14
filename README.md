@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong protest slogans are transformed into Lunar New Year greetings<br>[https://gnews.org/79600/](https://gnews.org/79600/ "https://gnews.org/79600/")
+
+[https://www.guo.media/posts/266574](https://www.guo.media/posts/266574) `2020-01-14T20:10:11`
+##
+
+**milesguo** 【中外挖掘机团队联合出品】美国银湖私募股权公司与中共盗国贼的关系<br>[https://gnews.org/zh-hans/80195/](https://gnews.org/zh-hans/80195/ "https://gnews.org/zh-hans/80195/")
+
+[https://www.guo.media/posts/266573](https://www.guo.media/posts/266573) `2020-01-14T20:10:14`
+##
+
+**milesguo** 广播：2020/1/14 郭文贵先生直播 一定要避免霍梅尼事件发生在中国！伊朗一定会被灭！<br>[https://gnews.org/zh-hans/80553/](https://gnews.org/zh-hans/80553/ "https://gnews.org/zh-hans/80553/")
+
+[https://www.guo.media/posts/266572](https://www.guo.media/posts/266572) `2020-01-14T20:10:17`
+##
+
+**milesguo** 红色性侵<br>[https://gnews.org/zh-hans/80545/](https://gnews.org/zh-hans/80545/ "https://gnews.org/zh-hans/80545/")
+
+[https://www.guo.media/posts/266571](https://www.guo.media/posts/266571) `2020-01-14T20:10:20`
+##
+
+**milesguo** 中共国体制下的去智化教育<br>[https://gnews.org/zh-hans/80517/](https://gnews.org/zh-hans/80517/ "https://gnews.org/zh-hans/80517/")
+
+[https://www.guo.media/posts/266570](https://www.guo.media/posts/266570) `2020-01-14T20:10:23`
+##
+
 **milesguo** 中共在国内对宗教的打压策略和手段<br>[https://gnews.org/zh-hans/80039/](https://gnews.org/zh-hans/80039/ "https://gnews.org/zh-hans/80039/")
 
 [https://www.guo.media/posts/266563](https://www.guo.media/posts/266563) `2020-01-14T18:55:10`
