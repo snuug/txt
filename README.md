@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** World’s largest single-dish radio telescope begins operation in China<br>[https://gnews.org/79849/](https://gnews.org/79849/ "https://gnews.org/79849/")
+
+[https://www.guo.media/posts/266615](https://www.guo.media/posts/266615) `2020-01-14T23:55:11`
+##
+
+**milesguo** CCP media: Beijing’s policy ‘clear’ after Taiwan vote<br>[https://gnews.org/79841/](https://gnews.org/79841/ "https://gnews.org/79841/")
+
+[https://www.guo.media/posts/266612](https://www.guo.media/posts/266612) `2020-01-14T23:55:15`
+##
+
+**milesguo** Beijing’s reasons for denying “trouble stirrer” entry to Hong Kong<br>[https://gnews.org/79819/](https://gnews.org/79819/ "https://gnews.org/79819/")
+
+[https://www.guo.media/posts/266611](https://www.guo.media/posts/266611) `2020-01-14T23:55:18`
+##
+
+**milesguo** Hong Kong judiciary plans to accelerate protest trials<br>[https://gnews.org/79764/](https://gnews.org/79764/ "https://gnews.org/79764/")
+
+[https://www.guo.media/posts/266610](https://www.guo.media/posts/266610) `2020-01-14T23:55:21`
+##
+
+**milesguo** A Forced’ Suicide’ Captured in HK<br>[https://gnews.org/79674/](https://gnews.org/79674/ "https://gnews.org/79674/")
+
+[https://www.guo.media/posts/266609](https://www.guo.media/posts/266609) `2020-01-14T23:55:24`
+##
+
+**milesguo** Never Give Up: Rebuilding the Lennon Walls Across Hong Kong<br>[https://gnews.org/79615/](https://gnews.org/79615/ "https://gnews.org/79615/")
+
+[https://www.guo.media/posts/266607](https://www.guo.media/posts/266607) `2020-01-14T23:55:30`
+##
+
+**milesguo** Privacy Commissioner: The spirit of the rule of law is to have equality under the law<br>[https://gnews.org/77811/](https://gnews.org/77811/ "https://gnews.org/77811/")
+
+[https://www.guo.media/posts/266606](https://www.guo.media/posts/266606) `2020-01-14T23:55:33`
+##
+
 **milesguo** Hong Kong protest slogans are transformed into Lunar New Year greetings<br>[https://gnews.org/79600/](https://gnews.org/79600/ "https://gnews.org/79600/")
 
 [https://www.guo.media/posts/266574](https://www.guo.media/posts/266574) `2020-01-14T20:10:11`
