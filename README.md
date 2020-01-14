@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月13号：尊敬的战友们好，看直播戳👉👉[https://gnews.org/zh-hans/．明天1月14号上午9:30文贵报平安直播！回答战友们一直要搞清楚的川反内裤——的全部答案，一切都是刚刚开始！](https://gnews.org/zh-hans/．明天1月14号上午9:30文贵报平安直播！回答战友们一直要搞清楚的川反内裤&mdash;&mdash;的全部答案，一切都是刚刚开始！ "https://gnews.org/zh-hans/．明天1月14号上午9:30文贵报平安直播！回答战友们一直要搞清楚的川反内裤&mdash;&mdash;的全部答案，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/266430](https://www.guo.media/posts/266430) `2020-01-14T03:40:10`
+##
+
 **milesguo** 杀了所有会打鸣的公鸡，天就不亮了吗？ ——评“人权观察”执行董事入境香港被拒<br>[https://gnews.org/zh-hans/79895/](https://gnews.org/zh-hans/79895/ "https://gnews.org/zh-hans/79895/")
 
 [https://www.guo.media/posts/266423](https://www.guo.media/posts/266423) `2020-01-14T03:10:11`
