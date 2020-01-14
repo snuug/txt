@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 杀了所有会打鸣的公鸡，天就不亮了吗？ ——评“人权观察”执行董事入境香港被拒<br>[https://gnews.org/zh-hans/79895/](https://gnews.org/zh-hans/79895/ "https://gnews.org/zh-hans/79895/")
+
+[https://www.guo.media/posts/266423](https://www.guo.media/posts/266423) `2020-01-14T03:10:11`
+##
+
 **milesguo** 爆料革命是躲过中共股市洪水的方舟<br>[https://gnews.org/zh-hans/79856/](https://gnews.org/zh-hans/79856/ "https://gnews.org/zh-hans/79856/")
 
 [https://www.guo.media/posts/266421](https://www.guo.media/posts/266421) `2020-01-14T02:25:12`
