@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 《华尔街日报》证实：美中贸易战，美国经济“毫发无损”<br>[https://gnews.org/zh-hans/80162/](https://gnews.org/zh-hans/80162/ "https://gnews.org/zh-hans/80162/")
+
+[https://www.guo.media/posts/266468](https://www.guo.media/posts/266468) `2020-01-14T06:55:10`
+##
+
 **milesguo** 香港警察“一哥”邓炳强血腥镇压同胞录<br>[https://gnews.org/zh-hans/80006/](https://gnews.org/zh-hans/80006/ "https://gnews.org/zh-hans/80006/")
 
 [https://www.guo.media/posts/266439](https://www.guo.media/posts/266439) `2020-01-14T04:25:11`
