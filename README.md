@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 韩国瑜的败选为什么会让我欢呼雀跃<br>[https://gnews.org/zh-hans/80402/](https://gnews.org/zh-hans/80402/ "https://gnews.org/zh-hans/80402/")
+
+[https://www.guo.media/posts/266532](https://www.guo.media/posts/266532) `2020-01-14T15:25:11`
+##
+
+**milesguo** 从郭文贵现象，看真男儿的10大特质！<br>[https://gnews.org/zh-hans/80280/](https://gnews.org/zh-hans/80280/ "https://gnews.org/zh-hans/80280/")
+
+[https://www.guo.media/posts/266531](https://www.guo.media/posts/266531) `2020-01-14T15:25:15`
+##
+
+**milesguo** 1月13日 美国政要推特精选<br>[https://gnews.org/zh-hans/80333/](https://gnews.org/zh-hans/80333/ "https://gnews.org/zh-hans/80333/")
+
+[https://www.guo.media/posts/266530](https://www.guo.media/posts/266530) `2020-01-14T15:25:18`
+##
+
+**milesguo** 中共银行承兑汇票风险初漏<br>[https://gnews.org/zh-hans/80310/](https://gnews.org/zh-hans/80310/ "https://gnews.org/zh-hans/80310/")
+
+[https://www.guo.media/posts/266529](https://www.guo.media/posts/266529) `2020-01-14T15:25:22`
+##
+
+**milesguo** 平民浅谈中华民族自由宣言<br>[https://gnews.org/zh-hans/80232/](https://gnews.org/zh-hans/80232/ "https://gnews.org/zh-hans/80232/")
+
+[https://www.guo.media/posts/266528](https://www.guo.media/posts/266528) `2020-01-14T15:25:25`
+##
+
+**milesguo** 伊朗民众纷纷抗议，专制政权岌岌可危<br>[https://gnews.org/zh-hans/80176/](https://gnews.org/zh-hans/80176/ "https://gnews.org/zh-hans/80176/")
+
+[https://www.guo.media/posts/266527](https://www.guo.media/posts/266527) `2020-01-14T15:25:29`
+##
+
 **milesguo** 蔡英文成功连任，中共已四面楚歌<br>[https://gnews.org/zh-hans/80105/](https://gnews.org/zh-hans/80105/ "https://gnews.org/zh-hans/80105/")
 
 [https://www.guo.media/posts/266510](https://www.guo.media/posts/266510) `2020-01-14T11:40:11`
