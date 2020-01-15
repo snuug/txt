@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 欲成正道主义之正果 必绝中国“霍梅尼”之嗣<br>[https://gnews.org/zh-hans/81458/](https://gnews.org/zh-hans/81458/ "https://gnews.org/zh-hans/81458/")
+
+[https://www.guo.media/posts/266803](https://www.guo.media/posts/266803) `2020-01-15T17:55:11`
+##
+
+**milesguo** 蔡英文总统签署公布台湾《反渗透法》<br>[https://gnews.org/zh-hans/81436/](https://gnews.org/zh-hans/81436/ "https://gnews.org/zh-hans/81436/")
+
+[https://www.guo.media/posts/266802](https://www.guo.media/posts/266802) `2020-01-15T17:55:14`
+##
+
+**milesguo** 广播：2020/1/15 郭文贵先生直播 中国、俄罗斯、朝鲜2020年政权一定颠覆！<br>[https://gnews.org/zh-hans/81410/](https://gnews.org/zh-hans/81410/ "https://gnews.org/zh-hans/81410/")
+
+[https://www.guo.media/posts/266801](https://www.guo.media/posts/266801) `2020-01-15T17:55:17`
+##
+
+**milesguo** 定点爆破！无人机战争吓破独裁者的怂胆<br>[https://gnews.org/zh-hans/81403/](https://gnews.org/zh-hans/81403/ "https://gnews.org/zh-hans/81403/")
+
+[https://www.guo.media/posts/266800](https://www.guo.media/posts/266800) `2020-01-15T17:55:20`
+##
+
 **milesguo** 《我告诉你女孩子一生都要害怕些什么》 唱出中国女性宿命与原罪歌曲 迅速遭「河蟹」下架<br>[https://gnews.org/zh-hans/81417/](https://gnews.org/zh-hans/81417/ "https://gnews.org/zh-hans/81417/")
 
 [https://www.guo.media/posts/266790](https://www.guo.media/posts/266790) `2020-01-15T16:55:11`
