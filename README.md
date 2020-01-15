@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 人权观察报告——国外批评者受到中共审查<br>[https://gnews.org/zh-hans/81304/](https://gnews.org/zh-hans/81304/ "https://gnews.org/zh-hans/81304/")
+
+[https://www.guo.media/posts/266752](https://www.guo.media/posts/266752) `2020-01-15T13:40:11`
+##
+
 **milesguo** 被讥讽的中共推特外交<br>[https://gnews.org/zh-hans/81268/](https://gnews.org/zh-hans/81268/ "https://gnews.org/zh-hans/81268/")
 
 [https://www.guo.media/posts/266745](https://www.guo.media/posts/266745) `2020-01-15T13:10:13`
