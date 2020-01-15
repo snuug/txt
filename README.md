@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Gnews独家报道：中共强拆北京昌平果庄价值数亿房产<br>[https://gnews.org/zh-hans/80919/](https://gnews.org/zh-hans/80919/ "https://gnews.org/zh-hans/80919/")
+
+[https://www.guo.media/posts/266754](https://www.guo.media/posts/266754) `2020-01-15T13:55:11`
+##
+
 **milesguo** 人权观察报告——国外批评者受到中共审查<br>[https://gnews.org/zh-hans/81304/](https://gnews.org/zh-hans/81304/ "https://gnews.org/zh-hans/81304/")
 
 [https://www.guo.media/posts/266752](https://www.guo.media/posts/266752) `2020-01-15T13:40:11`
