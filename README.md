@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 2020年1月14日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/81081/](https://gnews.org/zh-hans/81081/ "https://gnews.org/zh-hans/81081/")
+
+[https://www.guo.media/posts/266691](https://www.guo.media/posts/266691) `2020-01-15T08:25:10`
+##
+
+**milesguo** 台湾民主火炉在替香港回火「反中大火再回香港」香港观选团半个香港政界都来了！<br>[https://gnews.org/zh-hans/80861/](https://gnews.org/zh-hans/80861/ "https://gnews.org/zh-hans/80861/")
+
+[https://www.guo.media/posts/266690](https://www.guo.media/posts/266690) `2020-01-15T08:25:14`
+##
+
+**milesguo** 川普表示可能等到2020大选后再来完成中美贸易协议<br>[https://gnews.org/zh-hans/80845/](https://gnews.org/zh-hans/80845/ "https://gnews.org/zh-hans/80845/")
+
+[https://www.guo.media/posts/266689](https://www.guo.media/posts/266689) `2020-01-15T08:25:17`
+##
+
+**milesguo** 站起来，同胞们！<br>[https://gnews.org/zh-hans/80770/](https://gnews.org/zh-hans/80770/ "https://gnews.org/zh-hans/80770/")
+
+[https://www.guo.media/posts/266688](https://www.guo.media/posts/266688) `2020-01-15T08:25:21`
+##
+
+**milesguo** 从霍梅尼式的政治骗子看中国的未来<br>[https://gnews.org/zh-hans/80741/](https://gnews.org/zh-hans/80741/ "https://gnews.org/zh-hans/80741/")
+
+[https://www.guo.media/posts/266687](https://www.guo.media/posts/266687) `2020-01-15T08:25:24`
+##
+
+**milesguo** CCP怎样用土改和文革摧毁中国人的团结意识和道德底线走向互害！<br>[https://gnews.org/zh-hans/80719/](https://gnews.org/zh-hans/80719/ "https://gnews.org/zh-hans/80719/")
+
+[https://www.guo.media/posts/266686](https://www.guo.media/posts/266686) `2020-01-15T08:25:27`
+##
+
+**milesguo** 文字版2020年1月13日文贵报平安：谈伊朗巴列维王国和霍梅尼神棍<br>[https://gnews.org/zh-hans/80695/](https://gnews.org/zh-hans/80695/ "https://gnews.org/zh-hans/80695/")
+
+[https://www.guo.media/posts/266685](https://www.guo.media/posts/266685) `2020-01-15T08:25:30`
+##
+
 **milesguo** 大赦与反思，除余毒！<br>[https://gnews.org/zh-hans/80700/](https://gnews.org/zh-hans/80700/ "https://gnews.org/zh-hans/80700/")
 
 [https://www.guo.media/posts/266669](https://www.guo.media/posts/266669) `2020-01-15T06:55:11`
