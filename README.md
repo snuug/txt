@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 大赦与反思，除余毒！<br>[https://gnews.org/zh-hans/80700/](https://gnews.org/zh-hans/80700/ "https://gnews.org/zh-hans/80700/")
+
+[https://www.guo.media/posts/266669](https://www.guo.media/posts/266669) `2020-01-15T06:55:11`
+##
+
 **milesguo** 香港反送中运动为什么没有出现“乌合之众”现象<br>[https://gnews.org/zh-hans/80662/](https://gnews.org/zh-hans/80662/ "https://gnews.org/zh-hans/80662/")
 
 [https://www.guo.media/posts/266661](https://www.guo.media/posts/266661) `2020-01-15T05:25:11`
