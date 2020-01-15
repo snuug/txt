@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 《我告诉你女孩子一生都要害怕些什么》 唱出中国女性宿命与原罪歌曲 迅速遭「河蟹」下架<br>[https://gnews.org/zh-hans/81417/](https://gnews.org/zh-hans/81417/ "https://gnews.org/zh-hans/81417/")
+
+[https://www.guo.media/posts/266790](https://www.guo.media/posts/266790) `2020-01-15T16:55:11`
+##
+
+**milesguo** 我们需要可信赖的中国政权！郭先生爆料“千年中美和平战略协议”揭示未来新中美关系<br>[https://gnews.org/zh-hans/81355/](https://gnews.org/zh-hans/81355/ "https://gnews.org/zh-hans/81355/")
+
+[https://www.guo.media/posts/266789](https://www.guo.media/posts/266789) `2020-01-15T16:55:16`
+##
+
 **milesguo** 俄罗斯怎么了？梅德韦杰夫宣布俄政府全体辞职<br>[https://gnews.org/zh-hans/81389/](https://gnews.org/zh-hans/81389/ "https://gnews.org/zh-hans/81389/")
 
 [https://www.guo.media/posts/266788](https://www.guo.media/posts/266788) `2020-01-15T16:40:11`
