@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 俄罗斯怎么了？梅德韦杰夫宣布俄政府全体辞职<br>[https://gnews.org/zh-hans/81389/](https://gnews.org/zh-hans/81389/ "https://gnews.org/zh-hans/81389/")
+
+[https://www.guo.media/posts/266788](https://www.guo.media/posts/266788) `2020-01-15T16:40:11`
+##
+
+**milesguo** 《军武新知》太空战如何开打？美军攻防卫星可能方式曝光 美国首任「太空军军令部长」宣誓就职<br>[https://gnews.org/zh-hans/81385/](https://gnews.org/zh-hans/81385/ "https://gnews.org/zh-hans/81385/")
+
+[https://www.guo.media/posts/266787](https://www.guo.media/posts/266787) `2020-01-15T16:40:14`
+##
+
+**milesguo** 说说中国在巴拿马运河的那些事儿<br>[https://gnews.org/zh-hans/81383/](https://gnews.org/zh-hans/81383/ "https://gnews.org/zh-hans/81383/")
+
+[https://www.guo.media/posts/266786](https://www.guo.media/posts/266786) `2020-01-15T16:40:17`
+##
+
+**milesguo** 签否，签否，这中美的贸易协议<br>[https://gnews.org/zh-hans/81352/](https://gnews.org/zh-hans/81352/ "https://gnews.org/zh-hans/81352/")
+
+[https://www.guo.media/posts/266784](https://www.guo.media/posts/266784) `2020-01-15T16:40:20`
+##
+
+**milesguo** 1月15号，卡尔巴斯：贸易协议是暂时的平静 中美会脱钩<br>[https://gnews.org/zh-hans/81327/](https://gnews.org/zh-hans/81327/ "https://gnews.org/zh-hans/81327/")
+
+[https://www.guo.media/posts/266783](https://www.guo.media/posts/266783) `2020-01-15T16:40:23`
+##
+
+**milesguo** <br>【挖掘机团队出品】长推深挖中共另一个盗国集团”明天系”<br>[https://gnews.org/zh-hans/80903/](https://gnews.org/zh-hans/80903/ "https://gnews.org/zh-hans/80903/")
+
+[https://www.guo.media/posts/266782](https://www.guo.media/posts/266782) `2020-01-15T16:40:26`
+##
+
+**milesguo** 为什么中国人勤劳却不富裕？<br>[https://gnews.org/zh-hans/81123/](https://gnews.org/zh-hans/81123/ "https://gnews.org/zh-hans/81123/")
+
+[https://www.guo.media/posts/266781](https://www.guo.media/posts/266781) `2020-01-15T16:40:29`
+##
+
 **milesguo** CCP carried out its first 2020 peacekeeping defense drill in Mali<br>[https://gnews.org/80109/](https://gnews.org/80109/ "https://gnews.org/80109/")
 
 [https://www.guo.media/posts/266763](https://www.guo.media/posts/266763) `2020-01-15T14:10:11`
