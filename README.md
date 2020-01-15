@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** CCP carried out its first 2020 peacekeeping defense drill in Mali<br>[https://gnews.org/80109/](https://gnews.org/80109/ "https://gnews.org/80109/")
+
+[https://www.guo.media/posts/266763](https://www.guo.media/posts/266763) `2020-01-15T14:10:11`
+##
+
+**milesguo** Miles Guo: Iran’s Khomeini is like today’s overseas fake pro-democracy activists<br>[https://gnews.org/79979/](https://gnews.org/79979/ "https://gnews.org/79979/")
+
+[https://www.guo.media/posts/266762](https://www.guo.media/posts/266762) `2020-01-15T14:10:14`
+##
+
+**milesguo** 八角棒槌：从伊朗的时局，到班农的平民主义<br>[https://gnews.org/zh-hans/81255/](https://gnews.org/zh-hans/81255/ "https://gnews.org/zh-hans/81255/")
+
+[https://www.guo.media/posts/266761](https://www.guo.media/posts/266761) `2020-01-15T14:10:17`
+##
+
+**milesguo** 1月14日 美国政要推特精选<br>[https://gnews.org/zh-hans/81203/](https://gnews.org/zh-hans/81203/ "https://gnews.org/zh-hans/81203/")
+
+[https://www.guo.media/posts/266760](https://www.guo.media/posts/266760) `2020-01-15T14:10:20`
+##
+
+**milesguo** 写给CCP体制内的同志，这关乎你的未来！<br>[https://gnews.org/zh-hans/81164/](https://gnews.org/zh-hans/81164/ "https://gnews.org/zh-hans/81164/")
+
+[https://www.guo.media/posts/266759](https://www.guo.media/posts/266759) `2020-01-15T14:10:24`
+##
+
+**milesguo** 迈向非洲的喜马拉雅 – 乞力马扎罗山(Kilimanjaro)<br>[https://gnews.org/zh-hans/81139/](https://gnews.org/zh-hans/81139/ "https://gnews.org/zh-hans/81139/") 
+
+[https://www.guo.media/posts/266756](https://www.guo.media/posts/266756) `2020-01-15T14:10:29`
+##
+
+**milesguo** 郭先生又一次扒了ccp的内裤<br>[https://gnews.org/zh-hans/80756/](https://gnews.org/zh-hans/80756/ "https://gnews.org/zh-hans/80756/")
+
+[https://www.guo.media/posts/266755](https://www.guo.media/posts/266755) `2020-01-15T14:10:32`
+##
+
 **milesguo** Gnews独家报道：中共强拆北京昌平果庄价值数亿房产<br>[https://gnews.org/zh-hans/80919/](https://gnews.org/zh-hans/80919/ "https://gnews.org/zh-hans/80919/")
 
 [https://www.guo.media/posts/266754](https://www.guo.media/posts/266754) `2020-01-15T13:55:11`
