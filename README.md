@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国是否进一步降低关税将取决于中共是否遵守第一阶段贸易协议<br>[https://gnews.org/zh-hans/81232/](https://gnews.org/zh-hans/81232/ "https://gnews.org/zh-hans/81232/")
+
+[https://www.guo.media/posts/266737](https://www.guo.media/posts/266737) `2020-01-15T12:10:12`
+##
+
 **milesguo** 2020年1月14日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/81081/](https://gnews.org/zh-hans/81081/ "https://gnews.org/zh-hans/81081/")
 
 [https://www.guo.media/posts/266691](https://www.guo.media/posts/266691) `2020-01-15T08:25:10`
