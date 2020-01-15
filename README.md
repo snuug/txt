@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月14号：尊敬战友们好！👉👉戳这里．[https://gnews.org/zh-hans/．明天1月15号纽约时间上午9:30报平安直播不爆料完全乱聊．一切都是刚刚开始！](https://gnews.org/zh-hans/．明天1月15号纽约时间上午9:30报平安直播不爆料完全乱聊．一切都是刚刚开始！ "https://gnews.org/zh-hans/．明天1月15号纽约时间上午9:30报平安直播不爆料完全乱聊．一切都是刚刚开始！")
+
+[https://www.guo.media/posts/266632](https://www.guo.media/posts/266632) `2020-01-15T02:25:12`
+##
+
 **milesguo** World’s largest single-dish radio telescope begins operation in China<br>[https://gnews.org/79849/](https://gnews.org/79849/ "https://gnews.org/79849/")
 
 [https://www.guo.media/posts/266615](https://www.guo.media/posts/266615) `2020-01-14T23:55:11`
