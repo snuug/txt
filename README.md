@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 被讥讽的中共推特外交<br>[https://gnews.org/zh-hans/81268/](https://gnews.org/zh-hans/81268/ "https://gnews.org/zh-hans/81268/")
+
+[https://www.guo.media/posts/266745](https://www.guo.media/posts/266745) `2020-01-15T13:10:13`
+##
+
 **milesguo** 美国是否进一步降低关税将取决于中共是否遵守第一阶段贸易协议<br>[https://gnews.org/zh-hans/81232/](https://gnews.org/zh-hans/81232/ "https://gnews.org/zh-hans/81232/")
 
 [https://www.guo.media/posts/266737](https://www.guo.media/posts/266737) `2020-01-15T12:10:12`
