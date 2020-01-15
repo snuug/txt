@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美国务卿蓬佩奥在奥斯坦福大学演讲：重新考虑中美两国商业关系<br>[https://gnews.org/zh-hans/81172/](https://gnews.org/zh-hans/81172/ "https://gnews.org/zh-hans/81172/")
+
+[https://www.guo.media/posts/266807](https://www.guo.media/posts/266807) `2020-01-15T18:10:11`
+##
+
+**milesguo** 中美签署第一阶段贸易协议！副总统彭斯演讲最后一句竟这样说…<br>[https://gnews.org/zh-hans/81434/](https://gnews.org/zh-hans/81434/ "https://gnews.org/zh-hans/81434/")
+
+[https://www.guo.media/posts/266805](https://www.guo.media/posts/266805) `2020-01-15T18:10:15`
+##
+
 **milesguo** 欲成正道主义之正果 必绝中国“霍梅尼”之嗣<br>[https://gnews.org/zh-hans/81458/](https://gnews.org/zh-hans/81458/ "https://gnews.org/zh-hans/81458/")
 
 [https://www.guo.media/posts/266803](https://www.guo.media/posts/266803) `2020-01-15T17:55:11`
