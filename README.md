@@ -12,6 +12,46 @@
 ## 最新郭文
 
 
+**milesguo** China’s Twisted Education System Produce Slaves<br>[https://gnews.org/80914/](https://gnews.org/80914/ "https://gnews.org/80914/")
+
+[https://www.guo.media/posts/266829](https://www.guo.media/posts/266829) `2020-01-15T21:40:10`
+##
+
+**milesguo** CCP completed 9-day Sea Guardians 2020 joint naval exercise with Pakistan<br>[https://gnews.org/80771/](https://gnews.org/80771/ "https://gnews.org/80771/")
+
+[https://www.guo.media/posts/266828](https://www.guo.media/posts/266828) `2020-01-15T21:40:14`
+##
+
+**milesguo** CCP’s Vice President Wang Qishan offering help to resolve Venezuela issue<br>[https://gnews.org/80738/](https://gnews.org/80738/ "https://gnews.org/80738/")
+
+[https://www.guo.media/posts/266827](https://www.guo.media/posts/266827) `2020-01-15T21:40:17`
+##
+
+**milesguo** Miles Guo: Corruption in Iran is the same as CCP. Esmail Ghanni murdered three Iranian-Canadians because they knew too many secrets<br>[https://gnews.org/80655/](https://gnews.org/80655/ "https://gnews.org/80655/")
+
+[https://www.guo.media/posts/266826](https://www.guo.media/posts/266826) `2020-01-15T21:40:20`
+##
+
+**milesguo** Miles Guo: Iran downed Ukrainian jetliner to kill fleeing SETAD Exec<br>[https://gnews.org/80617/](https://gnews.org/80617/ "https://gnews.org/80617/")
+
+[https://www.guo.media/posts/266825](https://www.guo.media/posts/266825) `2020-01-15T21:40:23`
+##
+
+**milesguo** Police Warns of Possible Arrests Even for Peaceful Lennon Wall Creation<br>[https://gnews.org/79364/](https://gnews.org/79364/ "https://gnews.org/79364/")
+
+[https://www.guo.media/posts/266824](https://www.guo.media/posts/266824) `2020-01-15T21:40:26`
+##
+
+**milesguo** CUHK Social Work students urge to cancel private closed-door meeting with Police Officers<br>[https://gnews.org/80233/](https://gnews.org/80233/ "https://gnews.org/80233/")
+
+[https://www.guo.media/posts/266823](https://www.guo.media/posts/266823) `2020-01-15T21:40:29`
+##
+
+**milesguo** British Parliament Member Expresses Concern: Hong Kong Police Arrests Girl Within British Consulate Bounds<br>[https://gnews.org/79616/](https://gnews.org/79616/ "https://gnews.org/79616/")
+
+[https://www.guo.media/posts/266822](https://www.guo.media/posts/266822) `2020-01-15T21:40:32`
+##
+
 **milesguo** 美国务卿蓬佩奥在奥斯坦福大学演讲：重新考虑中美两国商业关系<br>[https://gnews.org/zh-hans/81172/](https://gnews.org/zh-hans/81172/ "https://gnews.org/zh-hans/81172/")
 
 [https://www.guo.media/posts/266807](https://www.guo.media/posts/266807) `2020-01-15T18:10:11`
