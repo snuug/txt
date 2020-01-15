@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** [China] 6 Dead, Massive Sinkhole in Xi Ning City!<br>[https://gnews.org/80950/](https://gnews.org/80950/ "https://gnews.org/80950/")
+
+[https://www.guo.media/posts/266831](https://www.guo.media/posts/266831) `2020-01-15T21:55:12`
+##
+
+**milesguo** CCP Premier says reform efforts will be pushed<br>[https://gnews.org/81077/](https://gnews.org/81077/ "https://gnews.org/81077/")
+
+[https://www.guo.media/posts/266830](https://www.guo.media/posts/266830) `2020-01-15T21:55:16`
+##
+
 **milesguo** China’s Twisted Education System Produce Slaves<br>[https://gnews.org/80914/](https://gnews.org/80914/ "https://gnews.org/80914/")
 
 [https://www.guo.media/posts/266829](https://www.guo.media/posts/266829) `2020-01-15T21:40:10`
