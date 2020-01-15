@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港反送中运动为什么没有出现“乌合之众”现象<br>[https://gnews.org/zh-hans/80662/](https://gnews.org/zh-hans/80662/ "https://gnews.org/zh-hans/80662/")
+
+[https://www.guo.media/posts/266661](https://www.guo.media/posts/266661) `2020-01-15T05:25:11`
+##
+
 **milesguo** 14th January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/80778/](https://gnews.org/80778/ "https://gnews.org/80778/")
 
 [https://www.guo.media/posts/266642](https://www.guo.media/posts/266642) `2020-01-15T03:25:11`
