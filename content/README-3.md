@@ -13,6 +13,8 @@
 
 ## 頁面 3/23 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [23](/content/README-23.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
+
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/2019/11/20191117-3916342912052380154.md)
 
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/content/2019/11/20191117-5300701663572959846.md)
@@ -60,8 +62,6 @@
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/2019/10/20191028-4834533128406187922.md)
 
 [文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/2019/10/20191028-9024076555776316516.md)
-
-[文字版：2019年10月24日文贵直播，谈彭斯副总统演讲](/content/2019/10/20191025-642685838159792507.md)
 
 
 ## 頁面 3/23 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [23](/content/README-23.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
