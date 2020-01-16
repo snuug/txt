@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Secretary Pompeo Delivers Remarks to Stanford University: Rethinking China-US Commercial Relationship<br>[https://gnews.org/81195/](https://gnews.org/81195/ "https://gnews.org/81195/")
+
+[https://www.guo.media/posts/266860](https://www.guo.media/posts/266860) `2020-01-16T02:25:10`
+##
+
+**milesguo** 21-year-old student being kicked in the lower body and beaten to bone fracture by police after arrest<br>[https://gnews.org/81266/](https://gnews.org/81266/ "https://gnews.org/81266/")
+
+[https://www.guo.media/posts/266859](https://www.guo.media/posts/266859) `2020-01-16T02:25:14`
+##
+
 **milesguo** 15th January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/81665/](https://gnews.org/81665/ "https://gnews.org/81665/")
 
 [https://www.guo.media/posts/266853](https://www.guo.media/posts/266853) `2020-01-16T02:10:10`
