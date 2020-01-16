@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 15th January 2020 Key points of Miles Guo’s second live broadcast<br>[https://gnews.org/81785/](https://gnews.org/81785/ "https://gnews.org/81785/")
+
+[https://www.guo.media/posts/266898](https://www.guo.media/posts/266898) `2020-01-16T06:55:13`
+##
+
 **milesguo** 平民浅谈中华民族平等宪法<br>[https://gnews.org/zh-hans/81726/](https://gnews.org/zh-hans/81726/ "https://gnews.org/zh-hans/81726/")
 
 [https://www.guo.media/posts/266896](https://www.guo.media/posts/266896) `2020-01-16T06:40:11`
