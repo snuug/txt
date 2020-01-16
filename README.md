@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 2020年1月15日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/81714/](https://gnews.org/zh-hans/81714/ "https://gnews.org/zh-hans/81714/")
+
+[https://www.guo.media/posts/266887](https://www.guo.media/posts/266887) `2020-01-16T06:10:11`
+##
+
+**milesguo** 文字版2020年1月14日文贵报平安：谈伊朗霍梅尼现象绝对不能在中国发生<br>[https://gnews.org/zh-hans/81691/](https://gnews.org/zh-hans/81691/ "https://gnews.org/zh-hans/81691/")
+
+[https://www.guo.media/posts/266886](https://www.guo.media/posts/266886) `2020-01-16T06:10:14`
+##
+
+**milesguo** 论乌合之众背后星火燎原的恐惧心里<br>[https://gnews.org/zh-hans/81661/](https://gnews.org/zh-hans/81661/ "https://gnews.org/zh-hans/81661/")
+
+[https://www.guo.media/posts/266885](https://www.guo.media/posts/266885) `2020-01-16T06:10:17`
+##
+
+**milesguo** 欧盟前外交官为中共间谍<br>[https://gnews.org/zh-hans/81643/](https://gnews.org/zh-hans/81643/ "https://gnews.org/zh-hans/81643/")
+
+[https://www.guo.media/posts/266884](https://www.guo.media/posts/266884) `2020-01-16T06:10:20`
+##
+
 **milesguo** 2020中共必亡！还不信的快快醒来！<br>[https://gnews.org/zh-hans/81134/](https://gnews.org/zh-hans/81134/ "https://gnews.org/zh-hans/81134/")
 
 [https://www.guo.media/posts/266882](https://www.guo.media/posts/266882) `2020-01-16T05:10:11`
