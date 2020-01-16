@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 签了！中美第一阶段贸易协议的签署仪式<br>[https://gnews.org/zh-hans/81933/](https://gnews.org/zh-hans/81933/ "https://gnews.org/zh-hans/81933/")
+
+[https://www.guo.media/posts/266972](https://www.guo.media/posts/266972) `2020-01-16T14:10:11`
+##
+
+**milesguo** 山头林立的海外欺民贼在爆骗之年将何去何从？<br>[https://gnews.org/zh-hans/81804/](https://gnews.org/zh-hans/81804/ "https://gnews.org/zh-hans/81804/")
+
+[https://www.guo.media/posts/266971](https://www.guo.media/posts/266971) `2020-01-16T14:10:14`
+##
+
+**milesguo** 1月15日 美国政要推特精选<br>[https://gnews.org/zh-hans/81893/](https://gnews.org/zh-hans/81893/ "https://gnews.org/zh-hans/81893/")
+
+[https://www.guo.media/posts/266970](https://www.guo.media/posts/266970) `2020-01-16T14:10:17`
+##
+
+**milesguo** 2020年1月15日郭文贵先生第二次直播摘要：文贵先生对中美签署第一阶段贸易协议过程的看法<br>[https://gnews.org/zh-hans/81836/](https://gnews.org/zh-hans/81836/ "https://gnews.org/zh-hans/81836/")
+
+[https://www.guo.media/posts/266969](https://www.guo.media/posts/266969) `2020-01-16T14:10:21`
+##
+
 **milesguo** 香港警方将新增电枪和网枪，以对付示威者<br>[https://gnews.org/zh-hans/81882/](https://gnews.org/zh-hans/81882/ "https://gnews.org/zh-hans/81882/")
 
 [https://www.guo.media/posts/266941](https://www.guo.media/posts/266941) `2020-01-16T10:40:11`
