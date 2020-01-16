@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: What is the real meaning behind the China-US trade agreement? What kind of China is in America’s interest?<br>[https://gnews.org/81636/](https://gnews.org/81636/ "https://gnews.org/81636/")
+
+[https://www.guo.media/posts/266872](https://www.guo.media/posts/266872) `2020-01-16T03:40:11`
+##
+
+**milesguo** Highlights of Miles Guo’s Live Broadcast on 14/01/2020<br>[https://gnews.org/81518/](https://gnews.org/81518/ "https://gnews.org/81518/")
+
+[https://www.guo.media/posts/266871](https://www.guo.media/posts/266871) `2020-01-16T03:40:15`
+##
+
 **milesguo** Secretary Pompeo Delivers Remarks to Stanford University: Rethinking China-US Commercial Relationship<br>[https://gnews.org/81195/](https://gnews.org/81195/ "https://gnews.org/81195/")
 
 [https://www.guo.media/posts/266860](https://www.guo.media/posts/266860) `2020-01-16T02:25:10`
