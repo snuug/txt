@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港反送中运动右眼失明教师对香港教育界的呼吁<br>[https://gnews.org/zh-hans/81608/](https://gnews.org/zh-hans/81608/ "https://gnews.org/zh-hans/81608/")
+
+[https://www.guo.media/posts/266878](https://www.guo.media/posts/266878) `2020-01-16T04:40:11`
+##
+
 **milesguo** Miles Guo: What is the real meaning behind the China-US trade agreement? What kind of China is in America’s interest?<br>[https://gnews.org/81636/](https://gnews.org/81636/ "https://gnews.org/81636/")
 
 [https://www.guo.media/posts/266872](https://www.guo.media/posts/266872) `2020-01-16T03:40:11`
