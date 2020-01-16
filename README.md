@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** <br>1月16号：尊敬的战友们好．你们健身了吗？你们传播香港危机真相了吗？文贵今天因时间安排不过来．没有报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/266981](https://www.guo.media/posts/266981) `2020-01-16T14:55:11`
+##
+
 **milesguo** Hong Kong Police Force Considers Arming Officers with Tasers and Net Guns<br>[https://gnews.org/81302/](https://gnews.org/81302/ "https://gnews.org/81302/")
 
 [https://www.guo.media/posts/266976](https://www.guo.media/posts/266976) `2020-01-16T14:25:12`
