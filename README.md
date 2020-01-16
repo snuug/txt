@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: This Sino-US trade agreement is a “war treaty”! Why is there no media coverage of the US-china trade agreement?<br>[https://gnews.org/81983/](https://gnews.org/81983/ "https://gnews.org/81983/")
+
+[https://www.guo.media/posts/266995](https://www.guo.media/posts/266995) `2020-01-16T17:40:10`
+##
+
 **milesguo** <br>1月16号：尊敬的战友们好．你们健身了吗？你们传播香港危机真相了吗？文贵今天因时间安排不过来．没有报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/266981](https://www.guo.media/posts/266981) `2020-01-16T14:55:11`
