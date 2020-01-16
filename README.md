@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 老江观点：另类解析“协议”<br>[https://gnews.org/zh-hans/81995/](https://gnews.org/zh-hans/81995/ "https://gnews.org/zh-hans/81995/")
+
+[https://www.guo.media/posts/267025](https://www.guo.media/posts/267025) `2020-01-16T23:55:11`
+##
+
 **milesguo** 我们需要的不是慈善，而是生活的保障！<br>[https://gnews.org/zh-hans/81970/](https://gnews.org/zh-hans/81970/ "https://gnews.org/zh-hans/81970/")
 
 [https://www.guo.media/posts/267013](https://www.guo.media/posts/267013) `2020-01-16T21:25:12`
