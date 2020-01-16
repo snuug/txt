@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 斩断中共借道东南亚出口续命之路<br>[https://gnews.org/zh-hans/81534/](https://gnews.org/zh-hans/81534/ "https://gnews.org/zh-hans/81534/")
+
+[https://www.guo.media/posts/266846](https://www.guo.media/posts/266846) `2020-01-16T01:25:11`
+##
+
+**milesguo** 中美签署第一阶段贸易协议！共产党在全世界丢人现眼！<br>[https://gnews.org/zh-hans/81434/](https://gnews.org/zh-hans/81434/ "https://gnews.org/zh-hans/81434/")
+
+[https://www.guo.media/posts/266845](https://www.guo.media/posts/266845) `2020-01-16T01:25:14`
+##
+
+**milesguo** 1月15号，史蒂夫·班农：川普总统会坚持他的政策 这只是第一阶段的协议<br>[https://gnews.org/zh-hans/81481/](https://gnews.org/zh-hans/81481/ "https://gnews.org/zh-hans/81481/")
+
+[https://www.guo.media/posts/266842](https://www.guo.media/posts/266842) `2020-01-16T01:25:18`
+##
+
 **milesguo** [China] 6 Dead, Massive Sinkhole in Xi Ning City!<br>[https://gnews.org/80950/](https://gnews.org/80950/ "https://gnews.org/80950/")
 
 [https://www.guo.media/posts/266831](https://www.guo.media/posts/266831) `2020-01-15T21:55:12`
