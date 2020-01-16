@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中华人民共和国政府和美利坚合众国政府 经济贸易协议 （中文版）<br>[https://gnews.org/zh-hans/81813/](https://gnews.org/zh-hans/81813/ "https://gnews.org/zh-hans/81813/")
+
+[https://www.guo.media/posts/266917](https://www.guo.media/posts/266917) `2020-01-16T07:55:18`
+##
+
+**milesguo** 【挖掘机团队出品】中共网络打手！流氓公司360与中共防火墙<br>[https://gnews.org/zh-hans/81784/](https://gnews.org/zh-hans/81784/ "https://gnews.org/zh-hans/81784/")
+
+[https://www.guo.media/posts/266916](https://www.guo.media/posts/266916) `2020-01-16T07:55:24`
+##
+
+**milesguo** 签署贸易协议对灭共的积极意义<br>[https://gnews.org/zh-hans/81770/](https://gnews.org/zh-hans/81770/ "https://gnews.org/zh-hans/81770/")
+
+[https://www.guo.media/posts/266915](https://www.guo.media/posts/266915) `2020-01-16T07:55:28`
+##
+
+**milesguo** 彭斯副总统谈第一阶段贸易协议<br>[https://gnews.org/zh-hans/81743/](https://gnews.org/zh-hans/81743/ "https://gnews.org/zh-hans/81743/")
+
+[https://www.guo.media/posts/266913](https://www.guo.media/posts/266913) `2020-01-16T07:55:32`
+##
+
 **milesguo** 15th January 2020 Key points of Miles Guo’s second live broadcast<br>[https://gnews.org/81785/](https://gnews.org/81785/ "https://gnews.org/81785/")
 
 [https://www.guo.media/posts/266898](https://www.guo.media/posts/266898) `2020-01-16T06:55:13`
