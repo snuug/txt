@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020中共必亡！还不信的快快醒来！<br>[https://gnews.org/zh-hans/81134/](https://gnews.org/zh-hans/81134/ "https://gnews.org/zh-hans/81134/")
+
+[https://www.guo.media/posts/266882](https://www.guo.media/posts/266882) `2020-01-16T05:10:11`
+##
+
 **milesguo** 去伪存真，唯真不破！看清伪民运的本质！<br>[https://gnews.org/zh-hans/81447/](https://gnews.org/zh-hans/81447/ "https://gnews.org/zh-hans/81447/")
 
 [https://www.guo.media/posts/266881](https://www.guo.media/posts/266881) `2020-01-16T04:55:11`
