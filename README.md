@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 小巴猪：轴心国战线和同盟国战线都已形成<br>[https://gnews.org/zh-hans/81593/](https://gnews.org/zh-hans/81593/ "https://gnews.org/zh-hans/81593/")
+
+[https://www.guo.media/posts/266851](https://www.guo.media/posts/266851) `2020-01-16T01:40:11`
+##
+
+**milesguo** 香港要闻：中共刻意隐瞒疫情 拘记者阻报导真相；大律师工会主席高度赞扬抗争者 品格良好；魔警不择手段取证 遭司法复核<br>[https://gnews.org/zh-hans/81576/](https://gnews.org/zh-hans/81576/ "https://gnews.org/zh-hans/81576/")
+
+[https://www.guo.media/posts/266849](https://www.guo.media/posts/266849) `2020-01-16T01:40:14`
+##
+
+**milesguo** 粮食问题紧迫当头 中共庚子年又“撒粮”<br>[https://gnews.org/zh-hans/81557/](https://gnews.org/zh-hans/81557/ "https://gnews.org/zh-hans/81557/")
+
+[https://www.guo.media/posts/266848](https://www.guo.media/posts/266848) `2020-01-16T01:40:17`
+##
+
 **milesguo** 斩断中共借道东南亚出口续命之路<br>[https://gnews.org/zh-hans/81534/](https://gnews.org/zh-hans/81534/ "https://gnews.org/zh-hans/81534/")
 
 [https://www.guo.media/posts/266846](https://www.guo.media/posts/266846) `2020-01-16T01:25:11`
