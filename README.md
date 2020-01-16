@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 去伪存真，唯真不破！看清伪民运的本质！<br>[https://gnews.org/zh-hans/81447/](https://gnews.org/zh-hans/81447/ "https://gnews.org/zh-hans/81447/")
+
+[https://www.guo.media/posts/266881](https://www.guo.media/posts/266881) `2020-01-16T04:55:11`
+##
+
 **milesguo** 香港反送中运动右眼失明教师对香港教育界的呼吁<br>[https://gnews.org/zh-hans/81608/](https://gnews.org/zh-hans/81608/ "https://gnews.org/zh-hans/81608/")
 
 [https://www.guo.media/posts/266878](https://www.guo.media/posts/266878) `2020-01-16T04:40:11`
