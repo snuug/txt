@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美中贸易协议——第一年中国将增加美国购买额767亿美元,两年总和不少于2000亿美元<br>[https://gnews.org/zh-hans/81845/](https://gnews.org/zh-hans/81845/ "https://gnews.org/zh-hans/81845/")
+
+[https://www.guo.media/posts/266940](https://www.guo.media/posts/266940) `2020-01-16T10:11:10`
+##
+
 **milesguo** 广播：2020/1/15 郭文贵先生直播 中美贸易协议(庚子赔款)不让中国人知道的秘密<br>[https://gnews.org/zh-hans/81824/](https://gnews.org/zh-hans/81824/ "https://gnews.org/zh-hans/81824/")
 
 [https://www.guo.media/posts/266934](https://www.guo.media/posts/266934) `2020-01-16T09:10:11`
