@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 我们需要的不是慈善，而是生活的保障！<br>[https://gnews.org/zh-hans/81970/](https://gnews.org/zh-hans/81970/ "https://gnews.org/zh-hans/81970/")
+
+[https://www.guo.media/posts/267013](https://www.guo.media/posts/267013) `2020-01-16T21:25:12`
+##
+
+**milesguo** CCP’s mouthpiece comments on phase one US-China trade deal<br>[https://gnews.org/82003/](https://gnews.org/82003/ "https://gnews.org/82003/")
+
+[https://www.guo.media/posts/267012](https://www.guo.media/posts/267012) `2020-01-16T21:25:15`
+##
+
+**milesguo** Chinese Premier: cut taxes and expenditure<br>[https://gnews.org/81996/](https://gnews.org/81996/ "https://gnews.org/81996/")
+
+[https://www.guo.media/posts/267011](https://www.guo.media/posts/267011) `2020-01-16T21:25:18`
+##
+
 **milesguo** Miles Guo: This Sino-US trade agreement is a “war treaty”! Why is there no media coverage of the US-china trade agreement?<br>[https://gnews.org/81983/](https://gnews.org/81983/ "https://gnews.org/81983/")
 
 [https://www.guo.media/posts/266995](https://www.guo.media/posts/266995) `2020-01-16T17:40:10`
