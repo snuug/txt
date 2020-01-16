@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2020/1/15 郭文贵先生直播 中美贸易协议(庚子赔款)不让中国人知道的秘密<br>[https://gnews.org/zh-hans/81824/](https://gnews.org/zh-hans/81824/ "https://gnews.org/zh-hans/81824/")
+
+[https://www.guo.media/posts/266934](https://www.guo.media/posts/266934) `2020-01-16T09:10:11`
+##
+
 **milesguo** 中华人民共和国政府和美利坚合众国政府 经济贸易协议 （中文版）<br>[https://gnews.org/zh-hans/81813/](https://gnews.org/zh-hans/81813/ "https://gnews.org/zh-hans/81813/")
 
 [https://www.guo.media/posts/266917](https://www.guo.media/posts/266917) `2020-01-16T07:55:18`
