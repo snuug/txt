@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 15th January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/81665/](https://gnews.org/81665/ "https://gnews.org/81665/")
+
+[https://www.guo.media/posts/266853](https://www.guo.media/posts/266853) `2020-01-16T02:10:10`
+##
+
 **milesguo** 小巴猪：轴心国战线和同盟国战线都已形成<br>[https://gnews.org/zh-hans/81593/](https://gnews.org/zh-hans/81593/ "https://gnews.org/zh-hans/81593/")
 
 [https://www.guo.media/posts/266851](https://www.guo.media/posts/266851) `2020-01-16T01:40:11`
