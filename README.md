@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong Police Force Considers Arming Officers with Tasers and Net Guns<br>[https://gnews.org/81302/](https://gnews.org/81302/ "https://gnews.org/81302/")
+
+[https://www.guo.media/posts/266976](https://www.guo.media/posts/266976) `2020-01-16T14:25:12`
+##
+
+**milesguo** Youngster Arrested For “Assaulting Police” and “Possessing Offensive Weapon” After Accidentally Filming Plainclothed Officers<br>[https://gnews.org/81276/](https://gnews.org/81276/ "https://gnews.org/81276/")
+
+[https://www.guo.media/posts/266975](https://www.guo.media/posts/266975) `2020-01-16T14:25:16`
+##
+
+**milesguo** 日本89年经济危机看中国现在和未来<br>[https://gnews.org/zh-hans/81938/](https://gnews.org/zh-hans/81938/ "https://gnews.org/zh-hans/81938/")
+
+[https://www.guo.media/posts/266973](https://www.guo.media/posts/266973) `2020-01-16T14:25:20`
+##
+
 **milesguo** 签了！中美第一阶段贸易协议的签署仪式<br>[https://gnews.org/zh-hans/81933/](https://gnews.org/zh-hans/81933/ "https://gnews.org/zh-hans/81933/")
 
 [https://www.guo.media/posts/266972](https://www.guo.media/posts/266972) `2020-01-16T14:10:11`
