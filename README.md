@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** [Phase One]CCP Releases a Cheating Plan Targeting US Milk Powder<br>[https://gnews.org/82315/](https://gnews.org/82315/ "https://gnews.org/82315/")
+
+[https://www.guo.media/posts/267141](https://www.guo.media/posts/267141) `2020-01-17T18:40:12`
+##
+
 **milesguo** 【中文字幕】CNBC访谈：班农卡尔巴斯谈第一阶段美中贸易协议<br>[https://gnews.org/zh-hans/82765/](https://gnews.org/zh-hans/82765/ "https://gnews.org/zh-hans/82765/")
 
 [https://www.guo.media/posts/267140](https://www.guo.media/posts/267140) `2020-01-17T17:25:11`
