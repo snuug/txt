@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 
+
+[https://www.guo.media/posts/267154](https://www.guo.media/posts/267154) `2020-01-17T22:10:12`
+##
+
 **milesguo** Steve Bannon: The signal is Trump has USMCA and the China Deal<br>[https://gnews.org/82797/](https://gnews.org/82797/ "https://gnews.org/82797/")
 
 [https://www.guo.media/posts/267144](https://www.guo.media/posts/267144) `2020-01-17T19:10:10`
