@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 致命一击——华盛顿完善华为禁令，施压台积电，进一步扩大科技战成果<br>[https://gnews.org/zh-hans/82362/](https://gnews.org/zh-hans/82362/ "https://gnews.org/zh-hans/82362/")
+
+[https://www.guo.media/posts/267083](https://www.guo.media/posts/267083) `2020-01-17T09:10:10`
+##
+
 **milesguo** 中共官员：警察不打人养来干嘛？<br>[https://gnews.org/zh-hans/82328/](https://gnews.org/zh-hans/82328/ "https://gnews.org/zh-hans/82328/")
 
 [https://www.guo.media/posts/267077](https://www.guo.media/posts/267077) `2020-01-17T07:55:11`
