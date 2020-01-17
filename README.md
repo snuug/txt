@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 香港要闻：港共匪首报告倒果为因 纵容警暴 难掩其施政失败 魔警失控更加有持无恐、理大校方刻意隐瞒校园空气氰化物含量<br>[https://gnews.org/zh-hans/82872/](https://gnews.org/zh-hans/82872/ "https://gnews.org/zh-hans/82872/")
+
+[https://www.guo.media/posts/267163](https://www.guo.media/posts/267163) `2020-01-17T22:40:11`
+##
+
+**milesguo** 2020年1月17日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/82846/](https://gnews.org/zh-hans/82846/ "https://gnews.org/zh-hans/82846/")
+
+[https://www.guo.media/posts/267162](https://www.guo.media/posts/267162) `2020-01-17T22:40:14`
+##
+
+**milesguo** 八角棒槌：不管中共何时灭，我们都得在道标前驻足<br>[https://gnews.org/zh-hans/82826/](https://gnews.org/zh-hans/82826/ "https://gnews.org/zh-hans/82826/")
+
+[https://www.guo.media/posts/267161](https://www.guo.media/posts/267161) `2020-01-17T22:40:17`
+##
+
 **milesguo** 
 
 [https://www.guo.media/posts/267154](https://www.guo.media/posts/267154) `2020-01-17T22:10:12`
