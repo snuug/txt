@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** A fight for one pen, a treaty for the death: China and the US signed the phase one trade deal<br>[https://gnews.org/82042/](https://gnews.org/82042/ "https://gnews.org/82042/")
+
+[https://www.guo.media/posts/267095](https://www.guo.media/posts/267095) `2020-01-17T11:55:10`
+##
+
 **milesguo** China and the US signed the phase one trade deal: a fight for one pen, a treaty for the death<br>[https://gnews.org/82042/](https://gnews.org/82042/ "https://gnews.org/82042/")
 
 [https://www.guo.media/posts/267093](https://www.guo.media/posts/267093) `2020-01-17T11:40:11`
