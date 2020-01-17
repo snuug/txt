@@ -13,6 +13,8 @@
 
 ## 頁面 18/23 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：《文贵看春晚》爆料（三，四）](/content/2018/04/20180418-9010451938927487211.md)
+
 [文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
 
 [文字版：《文贵看春晚》爆料（一，二）](/content/2018/04/20180418-7031561939158175109.md)
@@ -60,8 +62,6 @@
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/2018/04/20180418-4208012880425825380.md)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/2018/04/20180418-7284381815755271685.md)
-
-[何频：當年對周永康李東生發出警報，今天收到警報的是誰？（《點點今天事》）为小平老婆呐喊](/content/2018/04/20180418-2077883396848379491.md)
 
 
 ## 頁面 18/23 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
