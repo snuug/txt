@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2020/1/17 郭文贵先生直播 灭共的第2.7道大门已经打开<br>[https://gnews.org/zh-hans/82726/](https://gnews.org/zh-hans/82726/ "https://gnews.org/zh-hans/82726/")
+
+[https://www.guo.media/posts/267133](https://www.guo.media/posts/267133) `2020-01-17T16:25:11`
+##
+
 **milesguo** 【图组】大家使劲传！传到世界每个角落，让所有的人都知道…<br>[https://gnews.org/zh-hans/82703/](https://gnews.org/zh-hans/82703/ "https://gnews.org/zh-hans/82703/")
 
 [https://www.guo.media/posts/267129](https://www.guo.media/posts/267129) `2020-01-17T15:55:11`
