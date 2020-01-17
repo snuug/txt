@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文字版2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡<br>[https://gnews.org/zh-hans/82431/](https://gnews.org/zh-hans/82431/ "https://gnews.org/zh-hans/82431/")
+
+[https://www.guo.media/posts/267123](https://www.guo.media/posts/267123) `2020-01-17T15:10:12`
+##
+
+**milesguo** 台湾大选后首次！美国军舰驶经台湾海峡　<br>[https://gnews.org/zh-hans/82367/](https://gnews.org/zh-hans/82367/ "https://gnews.org/zh-hans/82367/")
+
+[https://www.guo.media/posts/267122](https://www.guo.media/posts/267122) `2020-01-17T15:10:16`
+##
+
 **milesguo** 一场钢笔争夺战，一份中共的死亡协议：中美签署第一阶段贸易协议<br>[https://gnews.org/zh-hans/82449/](https://gnews.org/zh-hans/82449/ "https://gnews.org/zh-hans/82449/")
 
 [https://www.guo.media/posts/267105](https://www.guo.media/posts/267105) `2020-01-17T12:10:12`
