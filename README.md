@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 好莱坞与中共的亲密关系面临清算<br>[https://gnews.org/zh-hans/82381/](https://gnews.org/zh-hans/82381/ "https://gnews.org/zh-hans/82381/")
+
+[https://www.guo.media/posts/267087](https://www.guo.media/posts/267087) `2020-01-17T09:40:10`
+##
+
 **milesguo** 致命一击——华盛顿完善华为禁令，施压台积电，进一步扩大科技战成果<br>[https://gnews.org/zh-hans/82362/](https://gnews.org/zh-hans/82362/ "https://gnews.org/zh-hans/82362/")
 
 [https://www.guo.media/posts/267083](https://www.guo.media/posts/267083) `2020-01-17T09:10:10`
