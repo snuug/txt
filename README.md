@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中共官员：警察不打人养来干嘛？<br>[https://gnews.org/zh-hans/82328/](https://gnews.org/zh-hans/82328/ "https://gnews.org/zh-hans/82328/")
+
+[https://www.guo.media/posts/267077](https://www.guo.media/posts/267077) `2020-01-17T07:55:11`
+##
+
 **milesguo** 香港要闻：港共戒严再升级 引入电击枪「人权观察」年报狠批中共 斥林郑拒独立查港警滥暴、台湾设『香港恶棍』名单<br>[https://gnews.org/zh-hans/82313/](https://gnews.org/zh-hans/82313/ "https://gnews.org/zh-hans/82313/")
 
 [https://www.guo.media/posts/267071](https://www.guo.media/posts/267071) `2020-01-17T06:55:12`
