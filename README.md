@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 郭先生爆料贸易协议中文版本四大猫腻！川普震怒！<br>[https://gnews.org/zh-hans/82645/](https://gnews.org/zh-hans/82645/ "https://gnews.org/zh-hans/82645/")
+
+[https://www.guo.media/posts/267135](https://www.guo.media/posts/267135) `2020-01-17T16:40:11`
+##
+
+**milesguo** 最近美伊紧张局势浅谈<br>[https://gnews.org/zh-hans/82746/](https://gnews.org/zh-hans/82746/ "https://gnews.org/zh-hans/82746/")
+
+[https://www.guo.media/posts/267134](https://www.guo.media/posts/267134) `2020-01-17T16:40:15`
+##
+
 **milesguo** 广播：2020/1/17 郭文贵先生直播 灭共的第2.7道大门已经打开<br>[https://gnews.org/zh-hans/82726/](https://gnews.org/zh-hans/82726/ "https://gnews.org/zh-hans/82726/")
 
 [https://www.guo.media/posts/267133](https://www.guo.media/posts/267133) `2020-01-17T16:25:11`
