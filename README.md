@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Two secrets behind the Sino-US trade agreement!<br>[https://gnews.org/82890/](https://gnews.org/82890/ "https://gnews.org/82890/")
+
+[https://www.guo.media/posts/267166](https://www.guo.media/posts/267166) `2020-01-17T22:55:10`
+##
+
+**milesguo** 一场捐款牵动万千民众的心，掷爱百万，女大学生吴花燕，年仅24岁离世，是命运的操作，又或是中共政府的戏弄<br>[https://gnews.org/zh-hans/82889/](https://gnews.org/zh-hans/82889/ "https://gnews.org/zh-hans/82889/")
+
+[https://www.guo.media/posts/267165](https://www.guo.media/posts/267165) `2020-01-17T22:55:14`
+##
+
+**milesguo** 对贸易协议经济金融领域浅显认识<br>[https://gnews.org/zh-hans/82880/](https://gnews.org/zh-hans/82880/ "https://gnews.org/zh-hans/82880/")
+
+[https://www.guo.media/posts/267164](https://www.guo.media/posts/267164) `2020-01-17T22:55:17`
+##
+
 **milesguo** 香港要闻：港共匪首报告倒果为因 纵容警暴 难掩其施政失败 魔警失控更加有持无恐、理大校方刻意隐瞒校园空气氰化物含量<br>[https://gnews.org/zh-hans/82872/](https://gnews.org/zh-hans/82872/ "https://gnews.org/zh-hans/82872/")
 
 [https://www.guo.media/posts/267163](https://www.guo.media/posts/267163) `2020-01-17T22:40:11`
