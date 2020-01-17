@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Steve Bannon: The signal is Trump has USMCA and the China Deal<br>[https://gnews.org/82797/](https://gnews.org/82797/ "https://gnews.org/82797/")
+
+[https://www.guo.media/posts/267144](https://www.guo.media/posts/267144) `2020-01-17T19:10:10`
+##
+
+**milesguo** CCP asks UK to reject US demand to ban Huawei’s 5G<br>[https://gnews.org/82833/](https://gnews.org/82833/ "https://gnews.org/82833/")
+
+[https://www.guo.media/posts/267143](https://www.guo.media/posts/267143) `2020-01-17T19:10:14`
+##
+
+**milesguo** Hong Kong Pro-democracy Movement<br>[https://gnews.org/81917/](https://gnews.org/81917/ "https://gnews.org/81917/")
+
+[https://www.guo.media/posts/267142](https://www.guo.media/posts/267142) `2020-01-17T19:10:17`
+##
+
 **milesguo** [Phase One]CCP Releases a Cheating Plan Targeting US Milk Powder<br>[https://gnews.org/82315/](https://gnews.org/82315/ "https://gnews.org/82315/")
 
 [https://www.guo.media/posts/267141](https://www.guo.media/posts/267141) `2020-01-17T18:40:12`
