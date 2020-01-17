@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** CNBC’s full interview with Steve Bannon and Kyle Bass on ‘phase one’ trade deal<br>[https://gnews.org/82030/](https://gnews.org/82030/ "https://gnews.org/82030/")
+
+[https://www.guo.media/posts/267055](https://www.guo.media/posts/267055) `2020-01-17T03:40:11`
+##
+
+**milesguo** Steve Bannon: Trump’s trade war ‘broke the Chinese communist party’<br>[https://gnews.org/82021/](https://gnews.org/82021/ "https://gnews.org/82021/")
+
+[https://www.guo.media/posts/267054](https://www.guo.media/posts/267054) `2020-01-17T03:40:14`
+##
+
 **milesguo** 旺角午夜持刀行凶案，是否能成戒严理由？<br>[https://gnews.org/zh-hans/82108/](https://gnews.org/zh-hans/82108/ "https://gnews.org/zh-hans/82108/")
 
 [https://www.guo.media/posts/267049](https://www.guo.media/posts/267049) `2020-01-17T03:25:14`
