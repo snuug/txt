@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 一场钢笔争夺战，一份中共的死亡协议：中美签署第一阶段贸易协议<br>[https://gnews.org/zh-hans/82449/](https://gnews.org/zh-hans/82449/ "https://gnews.org/zh-hans/82449/")
+
+[https://www.guo.media/posts/267105](https://www.guo.media/posts/267105) `2020-01-17T12:10:12`
+##
+
 **milesguo** A fight for one pen, a treaty for the death: China and the US signed the phase one trade deal<br>[https://gnews.org/82042/](https://gnews.org/82042/ "https://gnews.org/82042/")
 
 [https://www.guo.media/posts/267095](https://www.guo.media/posts/267095) `2020-01-17T11:55:10`
