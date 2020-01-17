@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** 香港要闻：港共戒严再升级 引入电击枪「人权观察」年报狠批中共 斥林郑拒独立查港警滥暴、台湾设『香港恶棍』名单<br>[https://gnews.org/zh-hans/82313/](https://gnews.org/zh-hans/82313/ "https://gnews.org/zh-hans/82313/")
+
+[https://www.guo.media/posts/267071](https://www.guo.media/posts/267071) `2020-01-17T06:55:12`
+##
+
+**milesguo** 美国国务卿蓬佩奥发表“硅谷与国家安全”的演讲<br>[https://gnews.org/zh-hans/82170/](https://gnews.org/zh-hans/82170/ "https://gnews.org/zh-hans/82170/")
+
+[https://www.guo.media/posts/267070](https://www.guo.media/posts/267070) `2020-01-17T06:55:15`
+##
+
+**milesguo** 斩首恐怖分子，封锁伊朗经济<br>[https://gnews.org/zh-hans/82294/](https://gnews.org/zh-hans/82294/ "https://gnews.org/zh-hans/82294/")
+
+[https://www.guo.media/posts/267069](https://www.guo.media/posts/267069) `2020-01-17T06:55:18`
+##
+
+**milesguo** 2019年最赚钱的行业和最赔钱的行业带来的启示<br>[https://gnews.org/zh-hans/82260/](https://gnews.org/zh-hans/82260/ "https://gnews.org/zh-hans/82260/")
+
+[https://www.guo.media/posts/267068](https://www.guo.media/posts/267068) `2020-01-17T06:55:21`
+##
+
+**milesguo** 香港再出疑点重重的自杀事件<br>[https://gnews.org/zh-hans/82239/](https://gnews.org/zh-hans/82239/ "https://gnews.org/zh-hans/82239/")
+
+[https://www.guo.media/posts/267067](https://www.guo.media/posts/267067) `2020-01-17T06:55:25`
+##
+
 **milesguo** 【挖掘机团队出品】深度挖掘“中粮”！<br>[https://gnews.org/zh-hans/82181/](https://gnews.org/zh-hans/82181/ "https://gnews.org/zh-hans/82181/")
 
 [https://www.guo.media/posts/267064](https://www.guo.media/posts/267064) `2020-01-17T06:25:11`
