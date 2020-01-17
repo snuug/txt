@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国能兑现第一阶段贸易协定的内容吗？在接下来的“第二阶段”贸易协议中，美国希望从中国得到哪些好处？<br>[https://gnews.org/zh-hans/82403/](https://gnews.org/zh-hans/82403/ "https://gnews.org/zh-hans/82403/")
+
+[https://www.guo.media/posts/267089](https://www.guo.media/posts/267089) `2020-01-17T10:10:10`
+##
+
 **milesguo** 好莱坞与中共的亲密关系面临清算<br>[https://gnews.org/zh-hans/82381/](https://gnews.org/zh-hans/82381/ "https://gnews.org/zh-hans/82381/")
 
 [https://www.guo.media/posts/267087](https://www.guo.media/posts/267087) `2020-01-17T09:40:10`
