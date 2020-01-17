@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国梦之强拆！血拆！杀人抢土地！<br>[https://gnews.org/zh-hans/82053/](https://gnews.org/zh-hans/82053/ "https://gnews.org/zh-hans/82053/")
+
+[https://www.guo.media/posts/267037](https://www.guo.media/posts/267037) `2020-01-17T01:55:10`
+##
+
 **milesguo** 老江观点：另类解析“协议”<br>[https://gnews.org/zh-hans/81995/](https://gnews.org/zh-hans/81995/ "https://gnews.org/zh-hans/81995/")
 
 [https://www.guo.media/posts/267025](https://www.guo.media/posts/267025) `2020-01-16T23:55:11`
