@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 旺角午夜持刀行凶案，是否能成戒严理由？<br>[https://gnews.org/zh-hans/82108/](https://gnews.org/zh-hans/82108/ "https://gnews.org/zh-hans/82108/")
+
+[https://www.guo.media/posts/267049](https://www.guo.media/posts/267049) `2020-01-17T03:25:14`
+##
+
 **milesguo** 爆料革命给老百姓的重要机会<br>[https://gnews.org/zh-hans/82093/](https://gnews.org/zh-hans/82093/ "https://gnews.org/zh-hans/82093/")
 
 [https://www.guo.media/posts/267048](https://www.guo.media/posts/267048) `2020-01-17T03:10:11`
