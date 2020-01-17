@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【挖掘机团队出品】深度挖掘“中粮”！<br>[https://gnews.org/zh-hans/82181/](https://gnews.org/zh-hans/82181/ "https://gnews.org/zh-hans/82181/")
+
+[https://www.guo.media/posts/267064](https://www.guo.media/posts/267064) `2020-01-17T06:25:11`
+##
+
 **milesguo** Trish Regan’s interview with Bannon: Trump has locked down the Iranian economy<br>[https://gnews.org/82172/](https://gnews.org/82172/ "https://gnews.org/82172/")
 
 [https://www.guo.media/posts/267056](https://www.guo.media/posts/267056) `2020-01-17T03:55:11`
