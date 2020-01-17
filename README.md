@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月16号：尊敬的战友们好，👉👉，[https://gnews.org/．明天1月17号．纽约时间上午9:30和10:00之间．文贵保平安直播．一切都是刚刚开始！](https://gnews.org/．明天1月17号．纽约时间上午9:30和10:00之间．文贵保平安直播．一切都是刚刚开始！ "https://gnews.org/．明天1月17号．纽约时间上午9:30和10:00之间．文贵保平安直播．一切都是刚刚开始！")
+
+[https://www.guo.media/posts/267041](https://www.guo.media/posts/267041) `2020-01-17T02:55:11`
+##
+
 **milesguo** 中国梦之强拆！血拆！杀人抢土地！<br>[https://gnews.org/zh-hans/82053/](https://gnews.org/zh-hans/82053/ "https://gnews.org/zh-hans/82053/")
 
 [https://www.guo.media/posts/267037](https://www.guo.media/posts/267037) `2020-01-17T01:55:10`
