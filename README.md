@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Trish Regan’s interview with Bannon: Trump has locked down the Iranian economy<br>[https://gnews.org/82172/](https://gnews.org/82172/ "https://gnews.org/82172/")
+
+[https://www.guo.media/posts/267056](https://www.guo.media/posts/267056) `2020-01-17T03:55:11`
+##
+
 **milesguo** CNBC’s full interview with Steve Bannon and Kyle Bass on ‘phase one’ trade deal<br>[https://gnews.org/82030/](https://gnews.org/82030/ "https://gnews.org/82030/")
 
 [https://www.guo.media/posts/267055](https://www.guo.media/posts/267055) `2020-01-17T03:40:11`
