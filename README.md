@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中国粮食危机与耕地问题（二）——纪念三年困难期间饿死的几千万同胞<br>[https://gnews.org/zh-hans/83034/](https://gnews.org/zh-hans/83034/ "https://gnews.org/zh-hans/83034/")
+
+[https://www.guo.media/posts/267243](https://www.guo.media/posts/267243) `2020-01-18T09:25:11`
+##
+
 **milesguo** 以庚子年之鸦片战争与庚子国难看中美协议<br>[https://gnews.org/zh-hans/83017/](https://gnews.org/zh-hans/83017/ "https://gnews.org/zh-hans/83017/")
 
 [https://www.guo.media/posts/267228](https://www.guo.media/posts/267228) `2020-01-18T07:25:11`
