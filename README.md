@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共央视口舌赵忠祥带着（步步紧逼）走了<br>[https://gnews.org/zh-hans/82931/](https://gnews.org/zh-hans/82931/ "https://gnews.org/zh-hans/82931/")
+
+[https://www.guo.media/posts/267209](https://www.guo.media/posts/267209) `2020-01-18T04:25:11`
+##
+
+**milesguo** 喝过茶的老战友：教你如何对抗中国高科技管制审查！<br>[https://gnews.org/zh-hans/82918/](https://gnews.org/zh-hans/82918/ "https://gnews.org/zh-hans/82918/")
+
+[https://www.guo.media/posts/267208](https://www.guo.media/posts/267208) `2020-01-18T04:25:14`
+##
+
+**milesguo** 看重播：2020年1月17日郭文贵先生直播谈中美贸易战内幕 中美贸易协议为何一定是滑稽的结局?<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/267207](https://www.guo.media/posts/267207) `2020-01-18T04:25:17`
+##
+
+**milesguo** 中共的洗脑术<br>[https://gnews.org/zh-hans/82211/](https://gnews.org/zh-hans/82211/ "https://gnews.org/zh-hans/82211/")
+
+[https://www.guo.media/posts/267205](https://www.guo.media/posts/267205) `2020-01-18T04:25:20`
+##
+
 **milesguo** 17 January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/82972/](https://gnews.org/82972/ "https://gnews.org/82972/")
 
 [https://www.guo.media/posts/267199](https://www.guo.media/posts/267199) `2020-01-18T03:40:10`
