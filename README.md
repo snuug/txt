@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Scholar: Government’s relief measures could be just a promissory note<br>[https://gnews.org/81927/](https://gnews.org/81927/ "https://gnews.org/81927/")
+
+[https://www.guo.media/posts/267281](https://www.guo.media/posts/267281) `2020-01-18T15:10:11`
+##
+
 **milesguo** 中共党员普遍患有精神病<br>[https://gnews.org/zh-hans/83215/](https://gnews.org/zh-hans/83215/ "https://gnews.org/zh-hans/83215/")
 
 [https://www.guo.media/posts/267276](https://www.guo.media/posts/267276) `2020-01-18T14:10:11`
