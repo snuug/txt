@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 17 January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/82972/](https://gnews.org/82972/ "https://gnews.org/82972/")
+
+[https://www.guo.media/posts/267199](https://www.guo.media/posts/267199) `2020-01-18T03:40:10`
+##
+
 **milesguo** 1月17号：尊敬的战友们好！看直播戳👉这里．[https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！](https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！ "https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！")
 
 [https://www.guo.media/posts/267190](https://www.guo.media/posts/267190) `2020-01-18T03:25:10`
