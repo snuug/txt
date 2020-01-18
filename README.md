@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: Why delete the video of China’s Vice-Premier Liu He’s press conference? How does the CCP view the US-China trade deal?<br>[https://gnews.org/83396/](https://gnews.org/83396/ "https://gnews.org/83396/")
+
+[https://www.guo.media/posts/267314](https://www.guo.media/posts/267314) `2020-01-18T23:10:10`
+##
+
 **milesguo** Peter Navarro talks about phase one trade deal with China and expectations for phase two<br>[https://gnews.org/83362/](https://gnews.org/83362/ "https://gnews.org/83362/")
 
 [https://www.guo.media/posts/267309](https://www.guo.media/posts/267309) `2020-01-18T21:10:10`
