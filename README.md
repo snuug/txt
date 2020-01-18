@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 港府疯了，连春节集市都不允许举办<br>[https://gnews.org/zh-hans/83093/](https://gnews.org/zh-hans/83093/ "https://gnews.org/zh-hans/83093/")
+
+[https://www.guo.media/posts/267251](https://www.guo.media/posts/267251) `2020-01-18T10:40:10`
+##
+
 **milesguo** 尽管开放二胎政策，中共国的出生率在共产主义暴政下达到历史最低水平<br>[https://gnews.org/zh-hans/83086/](https://gnews.org/zh-hans/83086/ "https://gnews.org/zh-hans/83086/")
 
 [https://www.guo.media/posts/267248](https://www.guo.media/posts/267248) `2020-01-18T10:25:10`
