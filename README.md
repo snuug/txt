@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Peter Navarro talks about phase one trade deal with China and expectations for phase two<br>[https://gnews.org/83362/](https://gnews.org/83362/ "https://gnews.org/83362/")
+
+[https://www.guo.media/posts/267309](https://www.guo.media/posts/267309) `2020-01-18T21:10:10`
+##
+
+**milesguo** 2020年1月18日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/83378/](https://gnews.org/zh-hans/83378/ "https://gnews.org/zh-hans/83378/")
+
+[https://www.guo.media/posts/267308](https://www.guo.media/posts/267308) `2020-01-18T21:10:15`
+##
+
 **milesguo** 看了郭叔的直播， Snow大胆的想象了一下，ccp内部矛盾应该是这样的……<br>[https://gnews.org/zh-hans/83235/](https://gnews.org/zh-hans/83235/ "https://gnews.org/zh-hans/83235/")
 
 [https://www.guo.media/posts/267291](https://www.guo.media/posts/267291) `2020-01-18T16:40:11`
