@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月18号：尊敬的战友们好！明天1月19号．文贵让战友们好好休息，不打扰战友们的周末，所以明天没有报平安视频直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/267317](https://www.guo.media/posts/267317) `2020-01-18T23:40:12`
+##
+
 **milesguo** Miles Guo: Why delete the video of China’s Vice-Premier Liu He’s press conference? How does the CCP view the US-China trade deal?<br>[https://gnews.org/83396/](https://gnews.org/83396/ "https://gnews.org/83396/")
 
 [https://www.guo.media/posts/267314](https://www.guo.media/posts/267314) `2020-01-18T23:10:10`
