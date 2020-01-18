@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月17号：尊敬的战友们好！看直播戳👉这里．[https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！](https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！ "https://gnews.org/．明天1月18号，9:30保平安直播，纯粹乱聊，不爆料，希望不要影响大家周末休息，一切都是刚刚开始！")
+
+[https://www.guo.media/posts/267190](https://www.guo.media/posts/267190) `2020-01-18T03:25:10`
+##
+
 **milesguo** 2020年1月17日 ： 法治基金，法治社会每周捐款留言精选集<br>[https://gnews.org/zh-hans/82939/](https://gnews.org/zh-hans/82939/ "https://gnews.org/zh-hans/82939/")
 
 [https://www.guo.media/posts/267185](https://www.guo.media/posts/267185) `2020-01-18T01:40:10`
