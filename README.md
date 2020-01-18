@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 文贵新词：能在一夜之间推翻共产党的“实货储蓄”<br>[https://gnews.org/zh-hans/83219/](https://gnews.org/zh-hans/83219/ "https://gnews.org/zh-hans/83219/")
+
+[https://www.guo.media/posts/267270](https://www.guo.media/posts/267270) `2020-01-18T13:40:12`
+##
+
+**milesguo** Miles Guo’s new word: Physical Commodity Deposit, which can take down the CCP overnight<br>[https://gnews.org/83186/](https://gnews.org/83186/ "https://gnews.org/83186/")
+
+[https://www.guo.media/posts/267269](https://www.guo.media/posts/267269) `2020-01-18T13:40:15`
+##
+
 **milesguo** 一份起诉书暴露中共对美国科技领域渗透的新招数<br>[https://gnews.org/zh-hans/83110/](https://gnews.org/zh-hans/83110/ "https://gnews.org/zh-hans/83110/")
 
 [https://www.guo.media/posts/267254](https://www.guo.media/posts/267254) `2020-01-18T10:55:11`
