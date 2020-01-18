@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2020年1月17日 ： 法治基金，法治社会每周捐款留言精选集<br>[https://gnews.org/zh-hans/82939/](https://gnews.org/zh-hans/82939/ "https://gnews.org/zh-hans/82939/")
+
+[https://www.guo.media/posts/267185](https://www.guo.media/posts/267185) `2020-01-18T01:40:10`
+##
+
 **milesguo** Miles Guo: Two secrets behind the Sino-US trade agreement!<br>[https://gnews.org/82890/](https://gnews.org/82890/ "https://gnews.org/82890/")
 
 [https://www.guo.media/posts/267166](https://www.guo.media/posts/267166) `2020-01-17T22:55:10`
