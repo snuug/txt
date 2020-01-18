@@ -13,6 +13,10 @@
 
 ## 頁面 6/23 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [23](/content/README-23.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/2019/08/20190819-5676820155081817041.md)
+
+[文字版：郭文貴先生8月16日文貴直播](/content/2019/08/20190819-2341336785643764547.md)
+
 [文字版：郭文貴先生2019年8月15日報平安直播](/content/2019/08/20190819-7582253714688026419.md)
 
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/2019/08/20190815-8696204592091636594.md)
@@ -58,10 +62,6 @@
 [文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
 
 [文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
-
-[文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
-
-[文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/2019/07/20190716-7014702308102493724.md)
 
 
 ## 頁面 6/23 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [23](/content/README-23.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
