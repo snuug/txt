@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 中共党员普遍患有精神病<br>[https://gnews.org/zh-hans/83215/](https://gnews.org/zh-hans/83215/ "https://gnews.org/zh-hans/83215/")
+
+[https://www.guo.media/posts/267276](https://www.guo.media/posts/267276) `2020-01-18T14:10:11`
+##
+
+**milesguo** 立武出品：为什么庚子协议是一份开战协议——浅析贸易协议条款<br>[https://gnews.org/zh-hans/83184/](https://gnews.org/zh-hans/83184/ "https://gnews.org/zh-hans/83184/")
+
+[https://www.guo.media/posts/267275](https://www.guo.media/posts/267275) `2020-01-18T14:10:14`
+##
+
+**milesguo** 从古代专制王朝经验教训中解读为什么中共国冥币一定会变成废纸<br>[https://gnews.org/zh-hans/83182/](https://gnews.org/zh-hans/83182/ "https://gnews.org/zh-hans/83182/")
+
+[https://www.guo.media/posts/267274](https://www.guo.media/posts/267274) `2020-01-18T14:10:18`
+##
+
+**milesguo** 1月17日 美国政要推特精选<br>[https://gnews.org/zh-hans/83129/](https://gnews.org/zh-hans/83129/ "https://gnews.org/zh-hans/83129/")
+
+[https://www.guo.media/posts/267273](https://www.guo.media/posts/267273) `2020-01-18T14:10:21`
+##
+
 **milesguo** 中美贸易协议——套在中共脖子上的死亡绞索<br>[https://gnews.org/zh-hans/83102/](https://gnews.org/zh-hans/83102/ "https://gnews.org/zh-hans/83102/")
 
 [https://www.guo.media/posts/267272](https://www.guo.media/posts/267272) `2020-01-18T13:55:11`
