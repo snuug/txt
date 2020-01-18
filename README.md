@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 灭共农场：心里控制，病毒暴发，视网膜热扫描<br>[https://gnews.org/zh-hans/83257/](https://gnews.org/zh-hans/83257/ "https://gnews.org/zh-hans/83257/")
+
+[https://www.guo.media/posts/267284](https://www.guo.media/posts/267284) `2020-01-18T15:25:11`
+##
+
+**milesguo** The Farm: PsyOps, Viral Outbreaks, Thermal Retina Scans<br>[https://gnews.org/83236/](https://gnews.org/83236/ "https://gnews.org/83236/")
+
+[https://www.guo.media/posts/267282](https://www.guo.media/posts/267282) `2020-01-18T15:25:14`
+##
+
 **milesguo** Scholar: Government’s relief measures could be just a promissory note<br>[https://gnews.org/81927/](https://gnews.org/81927/ "https://gnews.org/81927/")
 
 [https://www.guo.media/posts/267281](https://www.guo.media/posts/267281) `2020-01-18T15:10:11`
