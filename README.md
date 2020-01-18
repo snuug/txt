@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 尽管开放二胎政策，中共国的出生率在共产主义暴政下达到历史最低水平<br>[https://gnews.org/zh-hans/83086/](https://gnews.org/zh-hans/83086/ "https://gnews.org/zh-hans/83086/")
+
+[https://www.guo.media/posts/267248](https://www.guo.media/posts/267248) `2020-01-18T10:25:10`
+##
+
 **milesguo** 中国粮食危机与耕地问题（二）——纪念三年困难期间饿死的几千万同胞<br>[https://gnews.org/zh-hans/83034/](https://gnews.org/zh-hans/83034/ "https://gnews.org/zh-hans/83034/")
 
 [https://www.guo.media/posts/267243](https://www.guo.media/posts/267243) `2020-01-18T09:25:11`
