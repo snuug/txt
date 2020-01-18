@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 班农先生接受FOX专访力挺总统<br>[https://gnews.org/zh-hans/82993/](https://gnews.org/zh-hans/82993/ "https://gnews.org/zh-hans/82993/")
+
+[https://www.guo.media/posts/267216](https://www.guo.media/posts/267216) `2020-01-18T05:40:11`
+##
+
+**milesguo** 中国二代征信系统上线 你的人生再无隐私！<br>[https://gnews.org/zh-hans/82981/](https://gnews.org/zh-hans/82981/ "https://gnews.org/zh-hans/82981/")
+
+[https://www.guo.media/posts/267214](https://www.guo.media/posts/267214) `2020-01-18T05:40:14`
+##
+
 **milesguo** 德国机械制造者转向中国批评者阵营<br>[https://gnews.org/zh-hans/82957/](https://gnews.org/zh-hans/82957/ "https://gnews.org/zh-hans/82957/") 
 
 [https://www.guo.media/posts/267210](https://www.guo.media/posts/267210) `2020-01-18T04:40:11`
