@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 德国机械制造者转向中国批评者阵营<br>[https://gnews.org/zh-hans/82957/](https://gnews.org/zh-hans/82957/ "https://gnews.org/zh-hans/82957/") 
+
+[https://www.guo.media/posts/267210](https://www.guo.media/posts/267210) `2020-01-18T04:40:11`
+##
+
 **milesguo** 中共央视口舌赵忠祥带着（步步紧逼）走了<br>[https://gnews.org/zh-hans/82931/](https://gnews.org/zh-hans/82931/ "https://gnews.org/zh-hans/82931/")
 
 [https://www.guo.media/posts/267209](https://www.guo.media/posts/267209) `2020-01-18T04:25:11`
