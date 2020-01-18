@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 以庚子年之鸦片战争与庚子国难看中美协议<br>[https://gnews.org/zh-hans/83017/](https://gnews.org/zh-hans/83017/ "https://gnews.org/zh-hans/83017/")
+
+[https://www.guo.media/posts/267228](https://www.guo.media/posts/267228) `2020-01-18T07:25:11`
+##
+
+**milesguo** 香港反送中运动何去何从？<br>[https://gnews.org/zh-hans/82997/](https://gnews.org/zh-hans/82997/ "https://gnews.org/zh-hans/82997/")
+
+[https://www.guo.media/posts/267227](https://www.guo.media/posts/267227) `2020-01-18T07:25:15`
+##
+
 **milesguo** 班农先生接受FOX专访力挺总统<br>[https://gnews.org/zh-hans/82993/](https://gnews.org/zh-hans/82993/ "https://gnews.org/zh-hans/82993/")
 
 [https://www.guo.media/posts/267216](https://www.guo.media/posts/267216) `2020-01-18T05:40:11`
