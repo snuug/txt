@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 一份起诉书暴露中共对美国科技领域渗透的新招数<br>[https://gnews.org/zh-hans/83110/](https://gnews.org/zh-hans/83110/ "https://gnews.org/zh-hans/83110/")
+
+[https://www.guo.media/posts/267254](https://www.guo.media/posts/267254) `2020-01-18T10:55:11`
+##
+
 **milesguo** 港府疯了，连春节集市都不允许举办<br>[https://gnews.org/zh-hans/83093/](https://gnews.org/zh-hans/83093/ "https://gnews.org/zh-hans/83093/")
 
 [https://www.guo.media/posts/267251](https://www.guo.media/posts/267251) `2020-01-18T10:40:10`
