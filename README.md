@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中美贸易协议——套在中共脖子上的死亡绞索<br>[https://gnews.org/zh-hans/83102/](https://gnews.org/zh-hans/83102/ "https://gnews.org/zh-hans/83102/")
+
+[https://www.guo.media/posts/267272](https://www.guo.media/posts/267272) `2020-01-18T13:55:11`
+##
+
 **milesguo** 文贵新词：能在一夜之间推翻共产党的“实货储蓄”<br>[https://gnews.org/zh-hans/83219/](https://gnews.org/zh-hans/83219/ "https://gnews.org/zh-hans/83219/")
 
 [https://www.guo.media/posts/267270](https://www.guo.media/posts/267270) `2020-01-18T13:40:12`
