@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 看了郭叔的直播， Snow大胆的想象了一下，ccp内部矛盾应该是这样的……<br>[https://gnews.org/zh-hans/83235/](https://gnews.org/zh-hans/83235/ "https://gnews.org/zh-hans/83235/")
+
+[https://www.guo.media/posts/267291](https://www.guo.media/posts/267291) `2020-01-18T16:40:11`
+##
+
 **milesguo** 灭共农场：心里控制，病毒暴发，视网膜热扫描<br>[https://gnews.org/zh-hans/83257/](https://gnews.org/zh-hans/83257/ "https://gnews.org/zh-hans/83257/")
 
 [https://www.guo.media/posts/267284](https://www.guo.media/posts/267284) `2020-01-18T15:25:11`
