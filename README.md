@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 全民吊打开车进故宫女子背后的舆论牵引手段初探<br>[https://gnews.org/zh-hans/83955/](https://gnews.org/zh-hans/83955/ "https://gnews.org/zh-hans/83955/")
+
+[https://www.guo.media/posts/267458](https://www.guo.media/posts/267458) `2020-01-19T23:55:11`
+##
+
 **milesguo** snow讲段子｜阎王听完王岐山的遭遇，立马要了碗孟婆汤<br>[https://gnews.org/zh-hans/84008/](https://gnews.org/zh-hans/84008/ "https://gnews.org/zh-hans/84008/")
 
 [https://www.guo.media/posts/267450](https://www.guo.media/posts/267450) `2020-01-19T22:25:11`
