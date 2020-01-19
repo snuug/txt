@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中美贸易协议，到底谁在搞我们？<br>[https://gnews.org/zh-hans/83492/](https://gnews.org/zh-hans/83492/ "https://gnews.org/zh-hans/83492/")
+
+[https://www.guo.media/posts/267333](https://www.guo.media/posts/267333) `2020-01-19T03:10:11`
+##
+
 **milesguo** Swagger : 从人民币兑美元汇率看中美贸易战<br>[https://gnews.org/zh-hans/83432/](https://gnews.org/zh-hans/83432/ "https://gnews.org/zh-hans/83432/")
 
 [https://www.guo.media/posts/267326](https://www.guo.media/posts/267326) `2020-01-19T01:10:11`
