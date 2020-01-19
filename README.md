@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 佈隆博格宣佈竞选总统背后暗藏怎样的玄机<br>[https://gnews.org/zh-hans/83679/](https://gnews.org/zh-hans/83679/ "https://gnews.org/zh-hans/83679/")
+
+[https://www.guo.media/posts/267361](https://www.guo.media/posts/267361) `2020-01-19T10:25:10`
+##
+
+**milesguo** 中国大量增持黄金会哄抬黄金价格吗？<br>[https://gnews.org/zh-hans/83639/](https://gnews.org/zh-hans/83639/ "https://gnews.org/zh-hans/83639/")
+
+[https://www.guo.media/posts/267360](https://www.guo.media/posts/267360) `2020-01-19T10:25:14`
+##
+
 **milesguo** 今年春节中国人还能大鱼大肉吗？<br>[https://gnews.org/zh-hans/83613/](https://gnews.org/zh-hans/83613/ "https://gnews.org/zh-hans/83613/")
 
 [https://www.guo.media/posts/267359](https://www.guo.media/posts/267359) `2020-01-19T10:10:11`
