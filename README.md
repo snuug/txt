@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo’s Video Recording On Jan 19, 2020<br>[https://gnews.org/83944/](https://gnews.org/83944/ "https://gnews.org/83944/")
+
+[https://www.guo.media/posts/267449](https://www.guo.media/posts/267449) `2020-01-19T21:55:11`
+##
+
 **milesguo** 郭文贵先生诉伪类喜讯连连！夏业良输掉官司以后不愿意付钱想申请暂缓执行被法庭驳回！<br>[https://gnews.org/zh-hans/83905/](https://gnews.org/zh-hans/83905/ "https://gnews.org/zh-hans/83905/")
 
 [https://www.guo.media/posts/267446](https://www.guo.media/posts/267446) `2020-01-19T21:10:12`
