@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 战友热线：以杨文医生被杀案剖析中共医疗体制邪恶本质<br>[https://gnews.org/zh-hans/83731/](https://gnews.org/zh-hans/83731/ "https://gnews.org/zh-hans/83731/")
+
+[https://www.guo.media/posts/267394](https://www.guo.media/posts/267394) `2020-01-19T14:40:12`
+##
+
+**milesguo** 书记“一把手”，统领一切的寄生虫！<br>[https://gnews.org/zh-hans/83632/](https://gnews.org/zh-hans/83632/ "https://gnews.org/zh-hans/83632/")
+
+[https://www.guo.media/posts/267393](https://www.guo.media/posts/267393) `2020-01-19T14:40:16`
+##
+
+**milesguo** 以中美贸易协议为例，来看看中共在历史上是怎样卖国的（一）<br>[https://gnews.org/zh-hans/83569/](https://gnews.org/zh-hans/83569/ "https://gnews.org/zh-hans/83569/") 
+
+[https://www.guo.media/posts/267392](https://www.guo.media/posts/267392) `2020-01-19T14:40:19`
+##
+
 **milesguo** y0kYwmUqsjRVlEMXuta3PC2gwqOnWlchEcRc80VnzQBMDUfAysTwttO22XdAWbO6mynXNCuK3LynyU6NqUw56J7OxbOMRydsHsWkJcCcwpW8iISuB4ttSq1T5I07a9z8EpjJOLLbKSW9BI8ff5DpvZPTLGQ1npDxsVOEBCe1KHdh6K5GwvlXZ8HylomQdobVQZ5fCHa67TKvT30guuS6ziZEsSlwTACjPjrQ0mZaJBr9gDnLHP3sNcmPNctFPn16ZYYUTH70lOh0Hmac3ovAyjJuBTYuCEP6h2a9DkAxVSqJy6GoqESU9gfR2FOuqgUDY5zElTRYBQazSXtfO9Qe2h3lWg6np4hHIkc1aVihcCcE6uiS3IUynwE8Ma6kgIZv0Rm3gZVPnHHAtKRCxFBzWmmVKnfAGNrmZO0zp9J3ubp1yciRVDqhQgfJD91lmz6FHFHRsnAjbCu0j9Ygtg9LukGI4N1JV6bLCA7SsICgA5yCwSm7ldeYCQkCgD11CHSrQ5pmlM5SSEaPqq2Wep1pSAXJJHBRX1K21NNmZBrtnYqF1MM60cKGz65cvRB4reyrbBPApmSZnXZWwAjDuTrjZNQ603VrNEBb2CkjrGSxgCbq1VisXo438cKhN2HdmJhpzYU7cVKHzyahXkbUJ1DTsyK
 
 [https://www.guo.media/posts/267383](https://www.guo.media/posts/267383) `2020-01-19T13:10:14`
