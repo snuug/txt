@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 大陆受迫害维权律师致信香港：“不是因为有希望才战斗，而是因为战斗才有希望”<br>[https://gnews.org/zh-hans/83553/](https://gnews.org/zh-hans/83553/ "https://gnews.org/zh-hans/83553/")
+
+[https://www.guo.media/posts/267358](https://www.guo.media/posts/267358) `2020-01-19T09:55:11`
+##
+
+**milesguo** “敏感”中国！中共统治下的文字狱<br>[https://gnews.org/zh-hans/83606/](https://gnews.org/zh-hans/83606/ "https://gnews.org/zh-hans/83606/")
+
+[https://www.guo.media/posts/267357](https://www.guo.media/posts/267357) `2020-01-19T09:55:14`
+##
+
+**milesguo** 2020！不允许公众号发布楼市动荡消息<br>[https://gnews.org/zh-hans/83536/](https://gnews.org/zh-hans/83536/ "https://gnews.org/zh-hans/83536/")
+
+[https://www.guo.media/posts/267356](https://www.guo.media/posts/267356) `2020-01-19T09:55:18`
+##
+
+**milesguo** 文字版2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局<br>[https://gnews.org/zh-hans/83527/](https://gnews.org/zh-hans/83527/ "https://gnews.org/zh-hans/83527/")
+
+[https://www.guo.media/posts/267354](https://www.guo.media/posts/267354) `2020-01-19T09:55:21`
+##
+
 **milesguo** 【挖掘机团队出品】中共的另一只电子狗：讯飞！<br>[https://gnews.org/zh-hans/83509/](https://gnews.org/zh-hans/83509/ "https://gnews.org/zh-hans/83509/")
 
 [https://www.guo.media/posts/267343](https://www.guo.media/posts/267343) `2020-01-19T04:40:11`
