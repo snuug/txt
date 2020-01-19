@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** Swagger : 从人民币兑美元汇率看中美贸易战<br>[https://gnews.org/zh-hans/83432/](https://gnews.org/zh-hans/83432/ "https://gnews.org/zh-hans/83432/")
+
+[https://www.guo.media/posts/267326](https://www.guo.media/posts/267326) `2020-01-19T01:10:11`
+##
+
+**milesguo** 香港抑郁了，到底是谁的错？<br>[https://gnews.org/zh-hans/83294/](https://gnews.org/zh-hans/83294/ "https://gnews.org/zh-hans/83294/")
+
+[https://www.guo.media/posts/267325](https://www.guo.media/posts/267325) `2020-01-19T01:10:14`
+##
+
+**milesguo** 中共“全面小康”下惨死的贵州女孩<br>[https://gnews.org/zh-hans/83026/](https://gnews.org/zh-hans/83026/ "https://gnews.org/zh-hans/83026/")
+
+[https://www.guo.media/posts/267323](https://www.guo.media/posts/267323) `2020-01-19T01:10:17`
+##
+
+**milesguo** 中共甘肃省连杀4“肥猪”作肉馅饺子过小年夜<br>[https://gnews.org/zh-hans/83412/](https://gnews.org/zh-hans/83412/ "https://gnews.org/zh-hans/83412/")
+
+[https://www.guo.media/posts/267322](https://www.guo.media/posts/267322) `2020-01-19T01:10:20`
+##
+
+**milesguo** 18 January 2020 Key points of Miles Guo’s live broadcast<br>[https://gnews.org/83478/](https://gnews.org/83478/ "https://gnews.org/83478/")
+
+[https://www.guo.media/posts/267321](https://www.guo.media/posts/267321) `2020-01-19T01:10:23`
+##
+
 **milesguo** 1月18号：尊敬的战友们好！明天1月19号．文贵让战友们好好休息，不打扰战友们的周末，所以明天没有报平安视频直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/267317](https://www.guo.media/posts/267317) `2020-01-18T23:40:12`
