@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** snow讲段子｜阎王听完王岐山的遭遇，立马要了碗孟婆汤<br>[https://gnews.org/zh-hans/84008/](https://gnews.org/zh-hans/84008/ "https://gnews.org/zh-hans/84008/")
+
+[https://www.guo.media/posts/267450](https://www.guo.media/posts/267450) `2020-01-19T22:25:11`
+##
+
 **milesguo** Miles Guo’s Video Recording On Jan 19, 2020<br>[https://gnews.org/83944/](https://gnews.org/83944/ "https://gnews.org/83944/")
 
 [https://www.guo.media/posts/267449](https://www.guo.media/posts/267449) `2020-01-19T21:55:11`
