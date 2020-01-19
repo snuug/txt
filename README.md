@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Bannon: Ukraine Is a Sideshow, the Main Thing Is China<br>[https://gnews.org/83878/](https://gnews.org/83878/ "https://gnews.org/83878/")
+
+[https://www.guo.media/posts/267434](https://www.guo.media/posts/267434) `2020-01-19T19:40:11`
+##
+
+**milesguo** Breaking News from Miles Guo:The CCP spent $500 billion to buy a pass to slaughter Hong Kong! But the CCP will not succeed!<br>[https://gnews.org/83844/](https://gnews.org/83844/ "https://gnews.org/83844/")
+
+[https://www.guo.media/posts/267432](https://www.guo.media/posts/267432) `2020-01-19T19:40:14`
+##
+
 **milesguo** The Farm: PsyOps, Tibetan Persecution, State Department Report Delayed on Tibet<br>[https://gnews.org/83788/](https://gnews.org/83788/ "https://gnews.org/83788/")
 
 [https://www.guo.media/posts/267430](https://www.guo.media/posts/267430) `2020-01-19T19:10:11`
