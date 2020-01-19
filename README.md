@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** Lunchtime Protest in Kwun Tong: Citizens Expressed Concerns Over The Soaring Number Of Dead Bodies And Suicide Cases<br>[https://gnews.org/82489/](https://gnews.org/82489/ "https://gnews.org/82489/")
+
+[https://www.guo.media/posts/267425](https://www.guo.media/posts/267425) `2020-01-19T18:40:10`
+##
+
+**milesguo** Miles Guo: Biden and Bloomberg are CCP’s “double-gun” against Trump<br>[https://gnews.org/83375/](https://gnews.org/83375/ "https://gnews.org/83375/")
+
+[https://www.guo.media/posts/267423](https://www.guo.media/posts/267423) `2020-01-19T18:40:14`
+##
+
 **milesguo** 广播：1月19号惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！<br>[https://gnews.org/zh-hans/83816/](https://gnews.org/zh-hans/83816/ "https://gnews.org/zh-hans/83816/")
 
 [https://www.guo.media/posts/267414](https://www.guo.media/posts/267414) `2020-01-19T16:10:11`
