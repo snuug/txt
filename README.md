@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 任奸之策：中国人长期生活在“正不压邪”环境里<br>[https://gnews.org/zh-hans/83588/](https://gnews.org/zh-hans/83588/ "https://gnews.org/zh-hans/83588/")
+
+[https://www.guo.media/posts/267408](https://www.guo.media/posts/267408) `2020-01-19T15:40:11`
+##
+
+**milesguo** 1月19日 美国政要推特精选<br>[https://gnews.org/zh-hans/83740/](https://gnews.org/zh-hans/83740/ "https://gnews.org/zh-hans/83740/")
+
+[https://www.guo.media/posts/267407](https://www.guo.media/posts/267407) `2020-01-19T15:40:14`
+##
+
+**milesguo** 【挖掘机团队出品】中共“毒丸计划”之芬太尼！<br>[https://gnews.org/zh-hans/83648/](https://gnews.org/zh-hans/83648/ "https://gnews.org/zh-hans/83648/")
+
+[https://www.guo.media/posts/267406](https://www.guo.media/posts/267406) `2020-01-19T15:40:17`
+##
+
+**milesguo** 1月19号：香港同胞务必从现在起……要高度警觉和注意⚠️……香港可能将进入另外一个大灾难的发生……<br>也在此感谢我们英国的战友．部长先生．给文贵特别定制的春节礼物，猫屎咖啡和我最喜欢的西部拉拉咖啡，作为中国春节的礼物，一切都是刚刚开始！
+
+[https://www.guo.media/posts/267405](https://www.guo.media/posts/267405) `2020-01-19T15:40:21`
+##
+
 **milesguo** 战友热线：以杨文医生被杀案剖析中共医疗体制邪恶本质<br>[https://gnews.org/zh-hans/83731/](https://gnews.org/zh-hans/83731/ "https://gnews.org/zh-hans/83731/")
 
 [https://www.guo.media/posts/267394](https://www.guo.media/posts/267394) `2020-01-19T14:40:12`
