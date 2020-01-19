@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 【挖掘机团队出品】中共的另一只电子狗：讯飞！<br>[https://gnews.org/zh-hans/83509/](https://gnews.org/zh-hans/83509/ "https://gnews.org/zh-hans/83509/")
+
+[https://www.guo.media/posts/267343](https://www.guo.media/posts/267343) `2020-01-19T04:40:11`
+##
+
 **milesguo** 知识分子的长处以理服人,无理可讲则好比死无葬身之地<br>[https://gnews.org/zh-hans/83450/](https://gnews.org/zh-hans/83450/ "https://gnews.org/zh-hans/83450/")
 
 [https://www.guo.media/posts/267342](https://www.guo.media/posts/267342) `2020-01-19T04:25:13`
