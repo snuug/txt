@@ -13,6 +13,8 @@
 
 ## 頁面 19/23 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/2018/04/20180418-6993418396066281259.md)
+
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/2018/04/20180418-4208012880425825380.md)
 
 [曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/2018/04/20180418-7284381815755271685.md)
@@ -60,8 +62,6 @@
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
 
 [文字版：HBO 频道  VICE 新闻：中国流亡富翁郭文贵用Youtube 向贪腐宣战](/content/2018/04/20180418-2996614567598336236.md)
-
-[路透社：美国国会催促要求中国记者注册为特工](/content/2018/04/20180418-1850311727870023205.md)
 
 
 ## 頁面 19/23 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
