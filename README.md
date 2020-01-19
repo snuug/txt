@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 郭文贵先生诉伪类喜讯连连！夏业良输掉官司以后不愿意付钱想申请暂缓执行被法庭驳回！<br>[https://gnews.org/zh-hans/83905/](https://gnews.org/zh-hans/83905/ "https://gnews.org/zh-hans/83905/")
+
+[https://www.guo.media/posts/267446](https://www.guo.media/posts/267446) `2020-01-19T21:10:12`
+##
+
 **milesguo** 1月19号郭文贵先生爆惊天的新闻，中美协议是卖香港的交易，这就是中共所谓的外溢效应！<br>[https://gnews.org/zh-hans/83867/](https://gnews.org/zh-hans/83867/ "https://gnews.org/zh-hans/83867/")
 
 [https://www.guo.media/posts/267445](https://www.guo.media/posts/267445) `2020-01-19T20:55:11`
