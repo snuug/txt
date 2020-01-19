@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: PsyOps, Tibetan Persecution, State Department Report Delayed on Tibet<br>[https://gnews.org/83788/](https://gnews.org/83788/ "https://gnews.org/83788/")
+
+[https://www.guo.media/posts/267430](https://www.guo.media/posts/267430) `2020-01-19T19:10:11`
+##
+
+**milesguo** Re-elected BAR Chairman Philip Dykes Confirms Credible Media Reports on Police Brutality in Hong Kong, Despite Carrie Lam’s Denial<br>[https://gnews.org/83255/](https://gnews.org/83255/ "https://gnews.org/83255/")
+
+[https://www.guo.media/posts/267429](https://www.guo.media/posts/267429) `2020-01-19T19:10:15`
+##
+
 **milesguo** Lunchtime Protest in Kwun Tong: Citizens Expressed Concerns Over The Soaring Number Of Dead Bodies And Suicide Cases<br>[https://gnews.org/82489/](https://gnews.org/82489/ "https://gnews.org/82489/")
 
 [https://www.guo.media/posts/267425](https://www.guo.media/posts/267425) `2020-01-19T18:40:10`
