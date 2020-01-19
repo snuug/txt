@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 知识分子的长处以理服人,无理可讲则好比死无葬身之地<br>[https://gnews.org/zh-hans/83450/](https://gnews.org/zh-hans/83450/ "https://gnews.org/zh-hans/83450/")
+
+[https://www.guo.media/posts/267342](https://www.guo.media/posts/267342) `2020-01-19T04:25:13`
+##
+
+**milesguo** 香港要闻：大律师公会主席狠批林郑、港共2020年第一份反对游行通知书 打压游行集会自由、监警会以JR为由突煞停公布反送中报告<br>[https://gnews.org/zh-hans/83495/](https://gnews.org/zh-hans/83495/ "https://gnews.org/zh-hans/83495/")
+
+[https://www.guo.media/posts/267341](https://www.guo.media/posts/267341) `2020-01-19T04:25:16`
+##
+
 **milesguo** 中美贸易协议，到底谁在搞我们？<br>[https://gnews.org/zh-hans/83492/](https://gnews.org/zh-hans/83492/ "https://gnews.org/zh-hans/83492/")
 
 [https://www.guo.media/posts/267333](https://www.guo.media/posts/267333) `2020-01-19T03:10:11`
