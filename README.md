@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月19号郭文贵先生爆惊天的新闻，中美协议是卖香港的交易，这就是中共所谓的外溢效应！<br>[https://gnews.org/zh-hans/83867/](https://gnews.org/zh-hans/83867/ "https://gnews.org/zh-hans/83867/")
+
+[https://www.guo.media/posts/267445](https://www.guo.media/posts/267445) `2020-01-19T20:55:11`
+##
+
 **milesguo** January 19 Bannon’s War Room: Impeachment<br>[https://gnews.org/83892/](https://gnews.org/83892/ "https://gnews.org/83892/")
 
 [https://www.guo.media/posts/267435](https://www.guo.media/posts/267435) `2020-01-19T19:55:11`
