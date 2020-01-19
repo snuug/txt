@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 广播：1月19号惊天的新闻．中美协议是卖香港的交易。这就是中共所谓的外溢效应！<br>[https://gnews.org/zh-hans/83816/](https://gnews.org/zh-hans/83816/ "https://gnews.org/zh-hans/83816/")
+
+[https://www.guo.media/posts/267414](https://www.guo.media/posts/267414) `2020-01-19T16:10:11`
+##
+
+**milesguo** 武汉冠状病毒肺炎《民间观察：1723人或62人，你信谁？》<br>[https://gnews.org/zh-hans/83766/](https://gnews.org/zh-hans/83766/ "https://gnews.org/zh-hans/83766/")
+
+[https://www.guo.media/posts/267413](https://www.guo.media/posts/267413) `2020-01-19T16:10:14`
+##
+
 **milesguo** 任奸之策：中国人长期生活在“正不压邪”环境里<br>[https://gnews.org/zh-hans/83588/](https://gnews.org/zh-hans/83588/ "https://gnews.org/zh-hans/83588/")
 
 [https://www.guo.media/posts/267408](https://www.guo.media/posts/267408) `2020-01-19T15:40:11`
