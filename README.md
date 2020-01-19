@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** January 19 Bannon’s War Room: Impeachment<br>[https://gnews.org/83892/](https://gnews.org/83892/ "https://gnews.org/83892/")
+
+[https://www.guo.media/posts/267435](https://www.guo.media/posts/267435) `2020-01-19T19:55:11`
+##
+
 **milesguo** Bannon: Ukraine Is a Sideshow, the Main Thing Is China<br>[https://gnews.org/83878/](https://gnews.org/83878/ "https://gnews.org/83878/")
 
 [https://www.guo.media/posts/267434](https://www.guo.media/posts/267434) `2020-01-19T19:40:11`
