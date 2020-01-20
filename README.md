@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** A deleted video by the CCP: Liu He answering Phoenix TV reporter’s questions in the press conference<br>[https://gnews.org/83812/](https://gnews.org/83812/ "https://gnews.org/83812/")
+
+[https://www.guo.media/posts/267466](https://www.guo.media/posts/267466) `2020-01-20T00:25:12`
+##
+
 **milesguo** 被中共删掉的刘鹤记者招待会视频：刘鹤答凤凰卫视记者问<br>[https://gnews.org/zh-hans/83799/](https://gnews.org/zh-hans/83799/ "https://gnews.org/zh-hans/83799/")
 
 [https://www.guo.media/posts/267464](https://www.guo.media/posts/267464) `2020-01-20T00:10:12`
