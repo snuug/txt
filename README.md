@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 进入“小糠”社会才两周不到，女大学生吴花燕离我们而去<br>[https://gnews.org/zh-hans/84661/](https://gnews.org/zh-hans/84661/ "https://gnews.org/zh-hans/84661/")
+
+[https://www.guo.media/posts/267647](https://www.guo.media/posts/267647) `2020-01-20T16:40:11`
+##
+
 **milesguo** 1月20号：尊敬的战友们好！文贵将在半小时后，也就是纽约时间20号上午9:30报平安直播，一切都是刚刚开始！
 
 [https://www.guo.media/posts/267633](https://www.guo.media/posts/267633) `2020-01-20T14:10:11`
