@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Miles Guo: The CCP is most afraid of seizing their overseas assets and RICO Act. What is happening with SARS in China?<br>[https://gnews.org/84985/](https://gnews.org/84985/ "https://gnews.org/84985/")
+
+[https://www.guo.media/posts/267677](https://www.guo.media/posts/267677) `2020-01-20T21:10:12`
+##
+
 **milesguo** Hundreds of students and supporters rally against White Terror in Hong Kong<br>[https://gnews.org/83756/](https://gnews.org/83756/ "https://gnews.org/83756/")
 
 [https://www.guo.media/posts/267666](https://www.guo.media/posts/267666) `2020-01-20T19:25:11`
