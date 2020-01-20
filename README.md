@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 为什么爆料革命把CCP和中国人分开如此之重要！<br>[https://gnews.org/zh-hans/84065/](https://gnews.org/zh-hans/84065/ "https://gnews.org/zh-hans/84065/")
+
+[https://www.guo.media/posts/267490](https://www.guo.media/posts/267490) `2020-01-20T04:10:12`
+##
+
 **milesguo** 艾未未口出狂言被起诉<br>[https://gnews.org/zh-hans/84048/](https://gnews.org/zh-hans/84048/ "https://gnews.org/zh-hans/84048/")
 
 [https://www.guo.media/posts/267480](https://www.guo.media/posts/267480) `2020-01-20T02:10:11`
