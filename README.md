@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 1月19日 美国政要推特精选<br>[https://gnews.org/zh-hans/84667/](https://gnews.org/zh-hans/84667/ "https://gnews.org/zh-hans/84667/")
+
+[https://www.guo.media/posts/267622](https://www.guo.media/posts/267622) `2020-01-20T13:10:11`
+##
+
+**milesguo** 欺民贼群丑图：砸郭伪类、假民运、骗捐党、吃六四血馒头、诋毁香港…<br>[https://gnews.org/zh-hans/84596/](https://gnews.org/zh-hans/84596/ "https://gnews.org/zh-hans/84596/")
+
+[https://www.guo.media/posts/267621](https://www.guo.media/posts/267621) `2020-01-20T13:10:14`
+##
+
 **milesguo** 美国第一家孔子学院即将关闭<br>[https://gnews.org/zh-hans/84618/](https://gnews.org/zh-hans/84618/ "https://gnews.org/zh-hans/84618/")
 
 [https://www.guo.media/posts/267608](https://www.guo.media/posts/267608) `2020-01-20T10:55:10`
