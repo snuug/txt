@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** [Sensitive China] Word censorship under CCP’s dictatorship<br>[https://gnews.org/84476/](https://gnews.org/84476/ "https://gnews.org/84476/")
+
+[https://www.guo.media/posts/267513](https://www.guo.media/posts/267513) `2020-01-20T07:55:12`
+##
+
+**milesguo** 世界卫生组织：帮你降低感染冠状病毒的风险！<br>[https://gnews.org/zh-hans/84511/](https://gnews.org/zh-hans/84511/ "https://gnews.org/zh-hans/84511/")
+
+[https://www.guo.media/posts/267512](https://www.guo.media/posts/267512) `2020-01-20T07:55:15`
+##
+
 **milesguo** 假如中美开战 让孙瑶贯军刘呈杰先上<br>[https://gnews.org/zh-hans/84454/](https://gnews.org/zh-hans/84454/ "https://gnews.org/zh-hans/84454/")
 
 [https://www.guo.media/posts/267501](https://www.guo.media/posts/267501) `2020-01-20T05:55:11`
