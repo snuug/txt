@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 假如中美开战 让孙瑶贯军刘呈杰先上<br>[https://gnews.org/zh-hans/84454/](https://gnews.org/zh-hans/84454/ "https://gnews.org/zh-hans/84454/")
+
+[https://www.guo.media/posts/267501](https://www.guo.media/posts/267501) `2020-01-20T05:55:11`
+##
+
 **milesguo** Breaking News from Miles Guo:The CCP spent $500 billion to buy a pass to slaughter Hong Kong! But the CCP will not succeed!<br>[https://gnews.org/83844/](https://gnews.org/83844/ "https://gnews.org/83844/")
 
 [https://www.guo.media/posts/267497](https://www.guo.media/posts/267497) `2020-01-20T05:25:11`
