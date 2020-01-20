@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 被中共删掉的刘鹤记者招待会视频：刘鹤答凤凰卫视记者问<br>[https://gnews.org/zh-hans/83799/](https://gnews.org/zh-hans/83799/ "https://gnews.org/zh-hans/83799/")
+
+[https://www.guo.media/posts/267464](https://www.guo.media/posts/267464) `2020-01-20T00:10:12`
+##
+
 **milesguo** 全民吊打开车进故宫女子背后的舆论牵引手段初探<br>[https://gnews.org/zh-hans/83955/](https://gnews.org/zh-hans/83955/ "https://gnews.org/zh-hans/83955/")
 
 [https://www.guo.media/posts/267458](https://www.guo.media/posts/267458) `2020-01-19T23:55:11`
