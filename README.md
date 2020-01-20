@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Breaking News from Miles Guo:The CCP spent $500 billion to buy a pass to slaughter Hong Kong! But the CCP will not succeed!<br>[https://gnews.org/83844/](https://gnews.org/83844/ "https://gnews.org/83844/")
+
+[https://www.guo.media/posts/267497](https://www.guo.media/posts/267497) `2020-01-20T05:25:11`
+##
+
 **milesguo** 【图组】大家加油传！传遍天涯海角，让每一个人都知道…<br>[https://gnews.org/zh-hans/84445/](https://gnews.org/zh-hans/84445/ "https://gnews.org/zh-hans/84445/")
 
 [https://www.guo.media/posts/267493](https://www.guo.media/posts/267493) `2020-01-20T04:25:11`
