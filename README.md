@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 香港要闻:教育局散播白色恐怖 港版红卫兵批斗教育界；港百分百戒严状态 任何人成为打压对象<br>[https://gnews.org/zh-hans/84563/](https://gnews.org/zh-hans/84563/ "https://gnews.org/zh-hans/84563/")
+
+[https://www.guo.media/posts/267591](https://www.guo.media/posts/267591) `2020-01-20T08:40:11`
+##
+
 **milesguo** [Sensitive China] Word censorship under CCP’s dictatorship<br>[https://gnews.org/84476/](https://gnews.org/84476/ "https://gnews.org/84476/")
 
 [https://www.guo.media/posts/267513](https://www.guo.media/posts/267513) `2020-01-20T07:55:12`
