@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国国会确定中共在新疆犯下“危害人类罪”，美国和平队将撤出中国<br>[https://gnews.org/zh-hans/84571/](https://gnews.org/zh-hans/84571/ "https://gnews.org/zh-hans/84571/")
+
+[https://www.guo.media/posts/267596](https://www.guo.media/posts/267596) `2020-01-20T09:10:10`
+##
+
 **milesguo** 香港要闻:教育局散播白色恐怖 港版红卫兵批斗教育界；港百分百戒严状态 任何人成为打压对象<br>[https://gnews.org/zh-hans/84563/](https://gnews.org/zh-hans/84563/ "https://gnews.org/zh-hans/84563/")
 
 [https://www.guo.media/posts/267591](https://www.guo.media/posts/267591) `2020-01-20T08:40:11`
