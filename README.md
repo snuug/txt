@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 美国第一家孔子学院即将关闭<br>[https://gnews.org/zh-hans/84618/](https://gnews.org/zh-hans/84618/ "https://gnews.org/zh-hans/84618/")
+
+[https://www.guo.media/posts/267608](https://www.guo.media/posts/267608) `2020-01-20T10:55:10`
+##
+
 **milesguo** 美国国会确定中共在新疆犯下“危害人类罪”，美国和平队将撤出中国<br>[https://gnews.org/zh-hans/84571/](https://gnews.org/zh-hans/84571/ "https://gnews.org/zh-hans/84571/")
 
 [https://www.guo.media/posts/267596](https://www.guo.media/posts/267596) `2020-01-20T09:10:10`
