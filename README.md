@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 艾未未口出狂言被起诉<br>[https://gnews.org/zh-hans/84048/](https://gnews.org/zh-hans/84048/ "https://gnews.org/zh-hans/84048/")
+
+[https://www.guo.media/posts/267480](https://www.guo.media/posts/267480) `2020-01-20T02:10:11`
+##
+
 **milesguo** 警惕！中共的舆论战！！！<br>[https://gnews.org/zh-hans/83777/](https://gnews.org/zh-hans/83777/ "https://gnews.org/zh-hans/83777/")
 
 [https://www.guo.media/posts/267470](https://www.guo.media/posts/267470) `2020-01-20T01:25:11`
