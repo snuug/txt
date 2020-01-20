@@ -12,6 +12,36 @@
 ## 最新郭文
 
 
+**milesguo** 专制国家的本质：从古代的长城到中共国的网络防火墙<br>[https://gnews.org/zh-hans/84477/](https://gnews.org/zh-hans/84477/ "https://gnews.org/zh-hans/84477/")
+
+[https://www.guo.media/posts/267656](https://www.guo.media/posts/267656) `2020-01-20T17:10:11`
+##
+
+**milesguo** 《真相与警报》 ——Mr. J真相系列<br>[https://gnews.org/zh-hans/84884/](https://gnews.org/zh-hans/84884/ "https://gnews.org/zh-hans/84884/")
+
+[https://www.guo.media/posts/267655](https://www.guo.media/posts/267655) `2020-01-20T17:10:14`
+##
+
+**milesguo** 死亡蝙蝠——武汉SARS实情真相！<br>[https://gnews.org/zh-hans/84585/](https://gnews.org/zh-hans/84585/ "https://gnews.org/zh-hans/84585/")
+
+[https://www.guo.media/posts/267654](https://www.guo.media/posts/267654) `2020-01-20T17:10:18`
+##
+
+**milesguo** 【图组】新鲜出炉！抓紧传！每一张图都是灭共的子弹<br>[https://gnews.org/zh-hans/84857/](https://gnews.org/zh-hans/84857/ "https://gnews.org/zh-hans/84857/")
+
+[https://www.guo.media/posts/267653](https://www.guo.media/posts/267653) `2020-01-20T17:10:21`
+##
+
+**milesguo** 武汉肺炎冠状病毒图像曝光 疫情失控扩散 习近平下令加强防疫与监测工作<br>[https://gnews.org/zh-hans/84866/](https://gnews.org/zh-hans/84866/ "https://gnews.org/zh-hans/84866/")
+
+[https://www.guo.media/posts/267652](https://www.guo.media/posts/267652) `2020-01-20T17:10:24`
+##
+
+**milesguo** 文字版2020年1月18日文贵谈：刘鹤招待会取消预示着什么？爆料革命击中了中共的所有要害！<br>[https://gnews.org/zh-hans/84727/](https://gnews.org/zh-hans/84727/ "https://gnews.org/zh-hans/84727/")
+
+[https://www.guo.media/posts/267651](https://www.guo.media/posts/267651) `2020-01-20T17:10:27`
+##
+
 **milesguo** 进入“小糠”社会才两周不到，女大学生吴花燕离我们而去<br>[https://gnews.org/zh-hans/84661/](https://gnews.org/zh-hans/84661/ "https://gnews.org/zh-hans/84661/")
 
 [https://www.guo.media/posts/267647](https://www.guo.media/posts/267647) `2020-01-20T16:40:11`
