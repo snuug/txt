@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 看重播：2020年1月20日郭文贵先生直播谈中国现在正在发生的非典的真相<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
+
+[https://www.guo.media/posts/267692](https://www.guo.media/posts/267692) `2020-01-20T23:40:12`
+##
+
+**milesguo** 北京又双叒伤医，谁来保障医生的安全？正义？还是法治<br>[https://gnews.org/zh-hans/85000/](https://gnews.org/zh-hans/85000/ "https://gnews.org/zh-hans/85000/")
+
+[https://www.guo.media/posts/267691](https://www.guo.media/posts/267691) `2020-01-20T23:40:16`
+##
+
+**milesguo** “武汉非典肺炎”跟踪系列报道：中国协和医院2020年1月18日发布的关于病毒感染的肺炎防控工作要求<br>[https://gnews.org/zh-hans/84972/](https://gnews.org/zh-hans/84972/ "https://gnews.org/zh-hans/84972/")
+
+[https://www.guo.media/posts/267689](https://www.guo.media/posts/267689) `2020-01-20T23:40:19`
+##
+
+**milesguo** 2020年1月20日郭文贵先生直播摘要<br>[https://gnews.org/zh-hans/84958/](https://gnews.org/zh-hans/84958/ "https://gnews.org/zh-hans/84958/")
+
+[https://www.guo.media/posts/267688](https://www.guo.media/posts/267688) `2020-01-20T23:40:22`
+##
+
 **milesguo** 广播：2020/1/20 郭文贵先生直播 谈国内SARS非典肺炎与胡舒立财新的关系<br>[https://gnews.org/zh-hans/84941/](https://gnews.org/zh-hans/84941/ "https://gnews.org/zh-hans/84941/")
 
 [https://www.guo.media/posts/267686](https://www.guo.media/posts/267686) `2020-01-20T23:25:10`
