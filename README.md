@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 警惕！中共的舆论战！！！<br>[https://gnews.org/zh-hans/83777/](https://gnews.org/zh-hans/83777/ "https://gnews.org/zh-hans/83777/")
+
+[https://www.guo.media/posts/267470](https://www.guo.media/posts/267470) `2020-01-20T01:25:11`
+##
+
 **milesguo** A deleted video by the CCP: Liu He answering Phoenix TV reporter’s questions in the press conference<br>[https://gnews.org/83812/](https://gnews.org/83812/ "https://gnews.org/83812/")
 
 [https://www.guo.media/posts/267466](https://www.guo.media/posts/267466) `2020-01-20T00:25:12`
