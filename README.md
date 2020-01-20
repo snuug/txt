@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 广播：2020/1/20 郭文贵先生直播 谈国内SARS非典肺炎与胡舒立财新的关系<br>[https://gnews.org/zh-hans/84941/](https://gnews.org/zh-hans/84941/ "https://gnews.org/zh-hans/84941/")
+
+[https://www.guo.media/posts/267686](https://www.guo.media/posts/267686) `2020-01-20T23:25:10`
+##
+
+**milesguo** 郭先生直播回答非典问题：请参考王岐山的女魔王胡舒立！<br>[https://gnews.org/zh-hans/84901/](https://gnews.org/zh-hans/84901/ "https://gnews.org/zh-hans/84901/")
+
+[https://www.guo.media/posts/267684](https://www.guo.media/posts/267684) `2020-01-20T23:25:14`
+##
+
+**milesguo** CCP to curb spread of new coronavirus-related pneumonia<br>[https://gnews.org/84980/](https://gnews.org/84980/ "https://gnews.org/84980/")
+
+[https://www.guo.media/posts/267683](https://www.guo.media/posts/267683) `2020-01-20T23:25:17`
+##
+
 **milesguo** Miles Guo: The CCP is most afraid of seizing their overseas assets and RICO Act. What is happening with SARS in China?<br>[https://gnews.org/84985/](https://gnews.org/84985/ "https://gnews.org/84985/")
 
 [https://www.guo.media/posts/267677](https://www.guo.media/posts/267677) `2020-01-20T21:10:12`
