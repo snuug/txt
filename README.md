@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 灭共后；中国人民能得到什么？<br>[https://gnews.org/zh-hans/84578/](https://gnews.org/zh-hans/84578/ "https://gnews.org/zh-hans/84578/")
+
+[https://www.guo.media/posts/267709](https://www.guo.media/posts/267709) `2020-01-21T02:40:11`
+##
+
 **milesguo** 看重播：2020年1月20日郭文贵先生直播谈中国现在正在发生的非典的真相<br>[https://gnews.org/zh-hans/71740/](https://gnews.org/zh-hans/71740/ "https://gnews.org/zh-hans/71740/")
 
 [https://www.guo.media/posts/267692](https://www.guo.media/posts/267692) `2020-01-20T23:40:12`
