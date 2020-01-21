@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 从“吴花燕”看中共的降智教育<br>[https://gnews.org/zh-hans/85170/](https://gnews.org/zh-hans/85170/ "https://gnews.org/zh-hans/85170/")
+
+[https://www.guo.media/posts/267730](https://www.guo.media/posts/267730) `2020-01-21T05:10:11`
+##
+
+**milesguo** 【图组】我要真普选！好人一生平安…<br>[https://gnews.org/zh-hans/85154/](https://gnews.org/zh-hans/85154/ "https://gnews.org/zh-hans/85154/")
+
+[https://www.guo.media/posts/267726](https://www.guo.media/posts/267726) `2020-01-21T05:10:15`
+##
+
+**milesguo** 2003年4月5日至2020年1月20日期间财新关于冠状病毒的报道轨迹<br>[https://gnews.org/zh-hans/85043/](https://gnews.org/zh-hans/85043/ "https://gnews.org/zh-hans/85043/")
+
+[https://www.guo.media/posts/267725](https://www.guo.media/posts/267725) `2020-01-21T05:10:18`
+##
+
+**milesguo** 【挖掘机团队出品】重磅！中国华信叶简明对国外政界商界的巨额贿赂<br>[https://gnews.org/zh-hans/84116/](https://gnews.org/zh-hans/84116/ "https://gnews.org/zh-hans/84116/")
+
+[https://www.guo.media/posts/267724](https://www.guo.media/posts/267724) `2020-01-21T05:10:21`
+##
+
 **milesguo** 灭共后；中国人民能得到什么？<br>[https://gnews.org/zh-hans/84578/](https://gnews.org/zh-hans/84578/ "https://gnews.org/zh-hans/84578/")
 
 [https://www.guo.media/posts/267709](https://www.guo.media/posts/267709) `2020-01-21T02:40:11`
