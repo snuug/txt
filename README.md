@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 穆迪公司下调对香港的评级<br>[https://gnews.org/zh-hans/85434/](https://gnews.org/zh-hans/85434/ "https://gnews.org/zh-hans/85434/")
+
+[https://www.guo.media/posts/267774](https://www.guo.media/posts/267774) `2020-01-21T10:55:09`
+##
+
 **milesguo** 疑似来自中共集团的网络攻击窃取了三菱公司的数据<br>https://gnews.org/zh-hans/85415/
 
 [https://www.guo.media/posts/267772](https://www.guo.media/posts/267772) `2020-01-21T10:40:07`
