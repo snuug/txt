@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 疑似中共制造武汉肺炎！残杀百姓转移视线保政权，比日本731还可怕<br>[https://gnews.org/zh-hans/85551/](https://gnews.org/zh-hans/85551/ "https://gnews.org/zh-hans/85551/")
+
+[https://www.guo.media/posts/267870](https://www.guo.media/posts/267870) `2020-01-21T21:25:09`
+##
+
+**milesguo** 郭文贵先生的记忆力为什么那么好？看看他自己怎么说<br>[https://gnews.org/zh-hans/85542/](https://gnews.org/zh-hans/85542/ "https://gnews.org/zh-hans/85542/")
+
+[https://www.guo.media/posts/267869](https://www.guo.media/posts/267869) `2020-01-21T21:25:12`
+##
+
 **milesguo** 抵抗武汉肺炎的唯一方法<br>https://gnews.org/zh-hans/85463/
 
 [https://www.guo.media/posts/267868](https://www.guo.media/posts/267868) `2020-01-21T20:40:09`
