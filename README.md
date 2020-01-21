@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 亲情何在？“武汉肺炎”下触目惊心的通知<br>[https://gnews.org/zh-hans/85324/](https://gnews.org/zh-hans/85324/ "https://gnews.org/zh-hans/85324/")
+
+[https://www.guo.media/posts/267742](https://www.guo.media/posts/267742) `2020-01-21T07:25:12`
+##
+
+**milesguo** 叵测居心！黑警殴打医疗志愿者<br>[https://gnews.org/zh-hans/85305/](https://gnews.org/zh-hans/85305/ "https://gnews.org/zh-hans/85305/")
+
+[https://www.guo.media/posts/267741](https://www.guo.media/posts/267741) `2020-01-21T07:25:15`
+##
+
+**milesguo** 故宫！已沦为权力任性下的狂欢场<br>[https://gnews.org/zh-hans/85282/](https://gnews.org/zh-hans/85282/ "https://gnews.org/zh-hans/85282/")
+
+[https://www.guo.media/posts/267739](https://www.guo.media/posts/267739) `2020-01-21T07:25:18`
+##
+
+**milesguo** 新型冠状病毒感染的肺炎诊疗方案（试行）<br>[https://gnews.org/zh-hans/85274/](https://gnews.org/zh-hans/85274/ "https://gnews.org/zh-hans/85274/")
+
+[https://www.guo.media/posts/267738](https://www.guo.media/posts/267738) `2020-01-21T07:25:21`
+##
+
 **milesguo** 从“吴花燕”看中共的降智教育<br>[https://gnews.org/zh-hans/85170/](https://gnews.org/zh-hans/85170/ "https://gnews.org/zh-hans/85170/")
 
 [https://www.guo.media/posts/267730](https://www.guo.media/posts/267730) `2020-01-21T05:10:11`
