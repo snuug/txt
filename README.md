@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 1月22号：应战有的要求．发几张文贵的照片……谢谢战友们的关心……拜请战友们传播香港的真相，一切都是刚刚开始！
+
+[https://www.guo.media/posts/268143](https://www.guo.media/posts/268143) `2020-01-22T17:25:07`
+##
+
 **milesguo** 1月21日 美国政要推特精选<br>https://gnews.org/zh-hans/86068/
 
 [https://www.guo.media/posts/268127](https://www.guo.media/posts/268127) `2020-01-22T15:40:09`
