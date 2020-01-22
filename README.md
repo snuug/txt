@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 搞政治的很脏，但不关心政治的却很可耻！<br>[https://gnews.org/zh-hans/85653/](https://gnews.org/zh-hans/85653/ "https://gnews.org/zh-hans/85653/")
+
+[https://www.guo.media/posts/267969](https://www.guo.media/posts/267969) `2020-01-22T03:25:09`
+##
+
 **milesguo** 1月20日 美国政要推特精选<br>https://gnews.org/zh-hans/85617/
 
 [https://www.guo.media/posts/267967](https://www.guo.media/posts/267967) `2020-01-22T03:10:08`
