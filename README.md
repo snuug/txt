@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 向郭先生和战友们拜个早年！祝福我们能够早日实现喜马拉雅新中国🎊🎆🍾️🎉<br>https://gnews.org/zh-hans/85995/
+
+[https://www.guo.media/posts/267997](https://www.guo.media/posts/267997) `2020-01-22T07:25:07`
+##
+
 **milesguo** 2003年的非典造就了王岐山和胡舒立<br>https://gnews.org/zh-hans/85934/
 
 [https://www.guo.media/posts/267992](https://www.guo.media/posts/267992) `2020-01-22T05:10:07`
