@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 【图组】光复香港，炮竹一声除暴政！霹雳灭共年，大家加油传！<br>[https://gnews.org/zh-hans/85848/](https://gnews.org/zh-hans/85848/ "https://gnews.org/zh-hans/85848/")
+
+[https://www.guo.media/posts/267983](https://www.guo.media/posts/267983) `2020-01-22T04:25:09`
+##
+
+**milesguo** 华为：发不义之财，留千古骂名！<br>[https://gnews.org/zh-hans/85600/](https://gnews.org/zh-hans/85600/ "https://gnews.org/zh-hans/85600/")
+
+[https://www.guo.media/posts/267982](https://www.guo.media/posts/267982) `2020-01-22T04:25:12`
+##
+
+**milesguo** 从郭先生所说的，中国人为什么会这样，在历史中寻找国人普遍性格形成的原因<br>https://gnews.org/zh-hans/85584/
+
+[https://www.guo.media/posts/267981](https://www.guo.media/posts/267981) `2020-01-22T04:25:13`
+##
+
 **milesguo** 搞政治的很脏，但不关心政治的却很可耻！<br>[https://gnews.org/zh-hans/85653/](https://gnews.org/zh-hans/85653/ "https://gnews.org/zh-hans/85653/")
 
 [https://www.guo.media/posts/267969](https://www.guo.media/posts/267969) `2020-01-22T03:25:09`
