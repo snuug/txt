@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 1月21日 美国政要推特精选<br>https://gnews.org/zh-hans/86068/
+
+[https://www.guo.media/posts/268127](https://www.guo.media/posts/268127) `2020-01-22T15:40:09`
+##
+
+**milesguo** STEAM玩家神预测冠状病毒2020年来袭<br>[https://gnews.org/zh-hans/86036/](https://gnews.org/zh-hans/86036/ "https://gnews.org/zh-hans/86036/")
+
+[https://www.guo.media/posts/268125](https://www.guo.media/posts/268125) `2020-01-22T15:40:13`
+##
+
+**milesguo** 1月22号：尊敬的战友们好👉👉！．https://gnews.org/．你们健身了吗？你们传播香港危机真相了吗？文贵马上报平安直播，一切都是刚刚开始！
+
+[https://www.guo.media/posts/268124](https://www.guo.media/posts/268124) `2020-01-22T15:40:14`
+##
+
+**milesguo** 因中共的一胎化政策引来的社会问题，这颗炸弹什么时候会爆炸？<br>https://gnews.org/zh-hans/86023/
+
+[https://www.guo.media/posts/268122](https://www.guo.media/posts/268122) `2020-01-22T15:40:15`
+##
+
 **milesguo** 每个人都该知道的事情（一）<br>https://gnews.org/zh-hans/86016/
 
 [https://www.guo.media/posts/268118](https://www.guo.media/posts/268118) `2020-01-22T15:25:07`
