@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Highlights of Miles Guo’s Live Broadcast on January 20, 2020<br>[https://gnews.org/85165/](https://gnews.org/85165/ "https://gnews.org/85165/")
+
+[https://www.guo.media/posts/267926](https://www.guo.media/posts/267926) `2020-01-22T00:55:10`
+##
+
 **milesguo** 疑似中共制造武汉肺炎！残杀百姓转移视线保政权，比日本731还可怕<br>[https://gnews.org/zh-hans/85551/](https://gnews.org/zh-hans/85551/ "https://gnews.org/zh-hans/85551/")
 
 [https://www.guo.media/posts/267870](https://www.guo.media/posts/267870) `2020-01-21T21:25:09`
