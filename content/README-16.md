@@ -13,6 +13,10 @@
 
 ## 頁面 16/23 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [23](/content/README-23.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180529-639277482984082138.md)
+
+[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
+
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180525-5314910770568044153.md)
 
 [文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
@@ -58,10 +62,6 @@
 [文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
 
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
-
-[文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
-
-[文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/content/2018/04/20180418-6417716069003334186.md)
 
 
 ## 頁面 16/23 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [23](/content/README-23.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
