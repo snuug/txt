@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 每个人都该知道的事情（一）<br>https://gnews.org/zh-hans/86016/
+
+[https://www.guo.media/posts/268118](https://www.guo.media/posts/268118) `2020-01-22T15:25:07`
+##
+
 **milesguo** Young man arrested for possessing a spray glue<br>[https://gnews.org/85500/](https://gnews.org/85500/ "https://gnews.org/85500/")
 
 [https://www.guo.media/posts/268113](https://www.guo.media/posts/268113) `2020-01-22T14:40:10`
