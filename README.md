@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 中美贸易战对中国带来的影响远远大于对美国的影响<br>[https://gnews.org/zh-hans/86092/](https://gnews.org/zh-hans/86092/ "https://gnews.org/zh-hans/86092/")
+
+[https://www.guo.media/posts/268106](https://www.guo.media/posts/268106) `2020-01-22T14:10:09`
+##
+
 **milesguo** 美国发现首例新型冠状病毒<br>https://gnews.org/zh-hans/86006/
 
 [https://www.guo.media/posts/268015](https://www.guo.media/posts/268015) `2020-01-22T07:55:08`
