@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 美国发现首例新型冠状病毒<br>https://gnews.org/zh-hans/86006/
+
+[https://www.guo.media/posts/268015](https://www.guo.media/posts/268015) `2020-01-22T07:55:08`
+##
+
+**milesguo** 温哥华法庭尴尬一幕：孟晚舟支持者承认收取150美元费用并为自己的行为忏悔<br>https://gnews.org/zh-hans/85983/
+
+[https://www.guo.media/posts/268014](https://www.guo.media/posts/268014) `2020-01-22T07:55:10`
+##
+
 **milesguo** 向郭先生和战友们拜个早年！祝福我们能够早日实现喜马拉雅新中国🎊🎆🍾️🎉<br>https://gnews.org/zh-hans/85995/
 
 [https://www.guo.media/posts/267997](https://www.guo.media/posts/267997) `2020-01-22T07:25:07`
