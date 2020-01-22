@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** WHO: New cases of “Wuhan pneumonia” virus suggest human transmission<br>[https://gnews.org/85683/](https://gnews.org/85683/ "https://gnews.org/85683/")
+
+[https://www.guo.media/posts/267953](https://www.guo.media/posts/267953) `2020-01-22T02:40:11`
+##
+
+**milesguo** Assembly Marking Six Months After the Yuen Long 7.21 Attack<br>https://gnews.org/85507/
+
+[https://www.guo.media/posts/267952](https://www.guo.media/posts/267952) `2020-01-22T02:40:13`
+##
+
 **kailin1990** VvGwSjxBLMMaSafHeyl4SPg622GnV8sj05MqtGXHFIVOwSR7bmur10QlE89psjULt7dUZLEVs56GcRwGGFfbOpLk9MdLTMMmu33TzQSyxvnpbkPGBnAfWvkhGa28FeWLw9ALRCBWQBNwiRzmzCLHPtp2D8pvhmRpMCMaj2ItZXIXrEvpWaFfVDHhRpeK9xTt289xdN6DD9Lhnet4SionNU0gjcZmI7CStLeCnZARO48Z5llKB0wlDpTCNlomCgekGRm6h9kksc1puuAypsuQXag9dPsaGMWdGLIHPQ1q0VoWFmRTSzW3kTT0An2aNKA50EH1tbXwXPL6MAvQqoQZDHdW57g1fg2do8bSE3bDWwnOgGRE8mrTensVWBkcGGziCvb2RGN9QwvHT4hoZfcImbhMsEqnsbhnXuFfAMWrBvSTouGOuW081hKPkhd6Q4pmHYRxON8GMGMbSWkYVyCklOnEiCcEF3z4P1UxZah56f2XZvKcr2pi
 
 [https://www.guo.media/posts/267941](https://www.guo.media/posts/267941) `2020-01-22T02:10:07`
