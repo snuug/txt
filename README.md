@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** 2003年的非典造就了王岐山和胡舒立<br>https://gnews.org/zh-hans/85934/
+
+[https://www.guo.media/posts/267992](https://www.guo.media/posts/267992) `2020-01-22T05:10:07`
+##
+
 **milesguo** 记者采访冠状病毒情况，凑巧遇到砍医事件被扣<br>[https://gnews.org/zh-hans/85916/](https://gnews.org/zh-hans/85916/ "https://gnews.org/zh-hans/85916/")
 
 [https://www.guo.media/posts/267986](https://www.guo.media/posts/267986) `2020-01-22T04:40:09`
