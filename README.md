@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** Hong Kong government disagrees with Moody’s rating downgrade<br>[https://gnews.org/85350/](https://gnews.org/85350/ "https://gnews.org/85350/")
+
+[https://www.guo.media/posts/267930](https://www.guo.media/posts/267930) `2020-01-22T01:55:09`
+##
+
+**milesguo** CCP leader talks to Chinese military after visiting Myanmar<br>[https://gnews.org/84999/](https://gnews.org/84999/ "https://gnews.org/84999/")
+
+[https://www.guo.media/posts/267929](https://www.guo.media/posts/267929) `2020-01-22T01:55:12`
+##
+
+**milesguo** CCP and Russia will hold a meeting to discuss Iran nuclear issue<br>https://gnews.org/85185/
+
+[https://www.guo.media/posts/267928](https://www.guo.media/posts/267928) `2020-01-22T01:55:13`
+##
+
 **milesguo** Highlights of Miles Guo’s Live Broadcast on January 20, 2020<br>[https://gnews.org/85165/](https://gnews.org/85165/ "https://gnews.org/85165/")
 
 [https://www.guo.media/posts/267926](https://www.guo.media/posts/267926) `2020-01-22T00:55:10`
