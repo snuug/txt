@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 记者采访冠状病毒情况，凑巧遇到砍医事件被扣<br>[https://gnews.org/zh-hans/85916/](https://gnews.org/zh-hans/85916/ "https://gnews.org/zh-hans/85916/")
+
+[https://www.guo.media/posts/267986](https://www.guo.media/posts/267986) `2020-01-22T04:40:09`
+##
+
+**milesguo** 文字版2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待华人不受人尊重的原因<br>https://gnews.org/zh-hans/85908/
+
+[https://www.guo.media/posts/267984](https://www.guo.media/posts/267984) `2020-01-22T04:40:10`
+##
+
 **milesguo** 【图组】光复香港，炮竹一声除暴政！霹雳灭共年，大家加油传！<br>[https://gnews.org/zh-hans/85848/](https://gnews.org/zh-hans/85848/ "https://gnews.org/zh-hans/85848/")
 
 [https://www.guo.media/posts/267983](https://www.guo.media/posts/267983) `2020-01-22T04:25:09`
