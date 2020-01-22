@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Young man arrested for possessing a spray glue<br>[https://gnews.org/85500/](https://gnews.org/85500/ "https://gnews.org/85500/")
+
+[https://www.guo.media/posts/268113](https://www.guo.media/posts/268113) `2020-01-22T14:40:10`
+##
+
+**milesguo** The Farm: “Wuhan Virus” and PLA Military Theory<br>https://gnews.org/85891/
+
+[https://www.guo.media/posts/268112](https://www.guo.media/posts/268112) `2020-01-22T14:40:11`
+##
+
+**milesguo** Opinion: The Chinese Communist Party is suspected of making Wuhan coronavirus to butcher the Chinese people in order to stay in power!<br>[https://gnews.org/85693/](https://gnews.org/85693/ "https://gnews.org/85693/")
+
+[https://www.guo.media/posts/268111](https://www.guo.media/posts/268111) `2020-01-22T14:40:14`
+##
+
+**milesguo** First case of coronavirus detected in U.S.<br>[https://gnews.org/85695/](https://gnews.org/85695/ "https://gnews.org/85695/")
+
+[https://www.guo.media/posts/268110](https://www.guo.media/posts/268110) `2020-01-22T14:40:17`
+##
+
 **milesguo** 中美贸易战对中国带来的影响远远大于对美国的影响<br>[https://gnews.org/zh-hans/86092/](https://gnews.org/zh-hans/86092/ "https://gnews.org/zh-hans/86092/")
 
 [https://www.guo.media/posts/268106](https://www.guo.media/posts/268106) `2020-01-22T14:10:09`
