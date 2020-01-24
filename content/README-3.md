@@ -13,6 +13,10 @@
 
 ## 頁面 3/23 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [23](/content/README-23.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
+
+[文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
+
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
 
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
@@ -58,10 +62,6 @@
 [文字版：2019年11月3日文贵在山上小憩时与战友们闲聊几句](/content/2019/11/20191105-5144727764458030814.md)
 
 [文字版：2019年11月3日文贵进山前报平安](/content/2019/11/20191104-2786002853804232017.md)
-
-[文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
-
-[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
 
 
 ## 頁面 3/23 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [23](/content/README-23.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
