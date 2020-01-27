@@ -13,6 +13,8 @@
 
 ## 頁面 2/23 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [23](/content/README-23.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
+
 [文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
 
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/2019/12/20191228-6979826398362851059.md)
@@ -60,8 +62,6 @@
 [文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
 
 [文字版：2019年11月29日文贵谈龚小夏过往点滴](/content/2019/12/20191201-3479974122524096649.md)
-
-[文字版：2019年11月27日晚上文贵再谈《香港人权与民主法案》并祝感恩节快乐](/content/2019/11/20191129-6884019306620752974.md)
 
 
 ## 頁面 2/23 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [23](/content/README-23.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

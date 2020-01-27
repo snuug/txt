@@ -13,6 +13,8 @@
 
 ## 頁面 19/23 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
+
 [翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
 
 [2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
@@ -60,8 +62,6 @@
 [2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
 
 [2017.11.21 文贵Instagram健身直播 ](/content/2018/04/20180418-7655939134164928883.md)
-
-[文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
 
 
 ## 頁面 19/23 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
