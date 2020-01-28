@@ -13,6 +13,10 @@
 
 ## 頁面 10/23 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [23](/content/README-23.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/content/2019/04/20190415-6656531151323124700.md)
+
+[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/content/2019/04/20190414-1930118777431360844.md)
+
 [文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/content/2019/04/20190414-3550758239268922002.md)
 
 [文字版：2019年4月9号史蒂夫·班农先生在“当前危险委员会-中国”活动上发言](/content/2019/04/20190411-1430890358024836109.md)
@@ -58,10 +62,6 @@
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/content/2019/02/20190219-8738304753006288590.md)
 
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/content/2019/02/20190219-2494851897294759550.md)
-
-[重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/content/2019/02/20190219-5950789475618575573.md)
-
-[关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
 
 
 ## 頁面 10/23 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [23](/content/README-23.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
