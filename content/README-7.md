@@ -13,6 +13,10 @@
 
 ## 頁面 7/24 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [24](/content/README-24.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
+
+[文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/2019/08/20190811-3305401800182542531.md)
+
 [文字版：8月9日 郭文贵先生船上报平安直播](/content/2019/08/20190811-3314587443288819358.md)
 
 [文字版：8月8日 中共对世界布下的天罗地网 并不能阻止中共灭亡的步伐](/content/2019/08/20190809-1309289777403280615.md)
@@ -58,10 +62,6 @@
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
 
 [文字版：2019年7月8日：文贵车上谈王健之死](/content/2019/07/20190710-5360676795961744736.md)
-
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
-
-[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/2019/07/20190709-1755868837124119656.md)
 
 
 ## 頁面 7/24 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [24](/content/README-24.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
