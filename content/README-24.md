@@ -13,6 +13,8 @@
 
 ## 頁面 24/24 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [查看全部](/content/README-all.md)
 
+[郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
+
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)
 
 [袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版](/content/2018/04/20180418-1789482780048338185.md)

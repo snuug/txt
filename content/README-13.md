@@ -13,6 +13,8 @@
 
 ## 頁面 13/24 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [24](/content/README-24.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/content/2018/12/20181201-3387021380873494190.md)
+
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/content/2018/11/20181129-7314078079125955077.md)
 
 [翻译：U 盘里面的16分钟的关于海航视频字幕中英文对照](/content/2018/11/20181124-4765015310552564158.md)
@@ -60,8 +62,6 @@
 [文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/2018/10/20181026-2575309675439495092.md)
 
 [翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
-
-[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/2018/10/20181025-6578176193643751329.md)
 
 
 ## 頁面 13/24 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [24](/content/README-24.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

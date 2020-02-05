@@ -13,6 +13,8 @@
 
 ## 頁面 9/24 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [24](/content/README-24.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月7日 香港的事真搞大了 ](/content/2019/06/20190608-7273432154872200395.md)
+
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/content/2019/06/20190606-5836717562215401221.md)
 
 [文字版2019年5月31日文貴試直播](/content/2019/06/20190605-8092628019236727777.md)
@@ -60,8 +62,6 @@
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
 
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/content/2019/05/20190503-4410540874074802687.md)
-
-[文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/content/2019/05/20190501-8065411428742956557.md)
 
 
 ## 頁面 9/24 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [24](/content/README-24.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
