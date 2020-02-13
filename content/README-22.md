@@ -13,6 +13,12 @@
 
 ## 頁面 22/24 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
+
+[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
+
+[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
+
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
 
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
@@ -56,12 +62,6 @@
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
-
-[美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
-
-[美国新闻关于郭先生的报道的收集](/content/2018/04/20180418-2688604786049331221.md)
-
-[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/2018/04/20180418-5215268758560370583.md)
 
 
 ## 頁面 22/24 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
