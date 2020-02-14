@@ -13,6 +13,8 @@
 
 ## 頁面 4/24 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [24](/content/README-24.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/2019/11/20191121-5294984680700709371.md)
+
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/2019/11/20191120-7407976853651843177.md)
 
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
@@ -60,8 +62,6 @@
 [文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
 
 [文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
-
-[文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
 
 
 ## 頁面 4/24 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [24](/content/README-24.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
