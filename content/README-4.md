@@ -13,6 +13,8 @@
 
 ## 頁面 4/24 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [24](/content/README-24.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
+
 [文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/2019/11/20191121-5294984680700709371.md)
 
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/2019/11/20191120-7407976853651843177.md)
@@ -60,8 +62,6 @@
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
 
 [文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
-
-[文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
 
 
 ## 頁面 4/24 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [24](/content/README-24.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

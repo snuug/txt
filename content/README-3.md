@@ -13,6 +13,8 @@
 
 ## 頁面 3/24 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [24](/content/README-24.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
+
 [文字版：2019年12月8号文贵报平安直播](/content/2019/12/20191220-6902125038601635282.md)
 
 [文字版：2019年12月17日文贵报平安直播](/content/2019/12/20191220-5572994760820034862.md)
@@ -60,8 +62,6 @@
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
 
 [文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
-
-[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
 
 
 ## 頁面 3/24 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [24](/content/README-24.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
