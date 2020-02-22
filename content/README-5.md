@@ -13,6 +13,10 @@
 
 ## 頁面 5/24 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [24](/content/README-24.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
+
+[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
+
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
 
 [文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
@@ -58,10 +62,6 @@
 [文字版：2019年10月01日晚上郭先生和班农先生连线各地战友，传播香港抗议现场，解读国际重大事件，揭露中共十一国庆真相！](/content/2019/10/20191007-4819247370019373728.md)
 
 [文字版：2019年10月5日与郭文贵先生与MIZ宙斯小队连线](/content/2019/10/20191007-4743874505375198179.md)
-
-[文字稿：2019年10月4日郭文贵先生直播谈香港动用紧急法，出台禁止蒙面条例](/content/2019/10/20191007-5253787192699836521.md)
-
-[文字版：2019年9月30日开篇演讲](/content/2019/10/20191001-5934250796818600450.md)
 
 
 ## 頁面 5/24 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [24](/content/README-24.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
