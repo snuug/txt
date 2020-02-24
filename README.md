@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** First Hong Kong citizen died of Wuhan pneumonia in Wuhan, China<br>https://gnews.org/122669/
+
+[https://www.guo.media/posts/272702](https://www.guo.media/posts/272702) `2020-02-24T21:40:07`
+##
+
+**milesguo** TNT Daily : People’s daily lied again . An old man fell from the fourth floor<br>https://gnews.org/123033/
+
+[https://www.guo.media/posts/272701](https://www.guo.media/posts/272701) `2020-02-24T21:40:09`
+##
+
+**milesguo** TNT Daily : People’s daily lied again . An old man fell from the fourth floor<br>https://gnews.org/123033/
+
+[https://www.guo.media/posts/272700](https://www.guo.media/posts/272700) `2020-02-24T21:40:11`
+##
+
 **milesguo** 杀鱼者！从长江珍稀鱼类的灭绝看大劫难发生的必然性（二）<br>https://gnews.org/zh-hans/122652/
 
 [https://www.guo.media/posts/272692](https://www.guo.media/posts/272692) `2020-02-24T19:25:10`
