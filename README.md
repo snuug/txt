@@ -12,6 +12,31 @@
 ## 最新郭文
 
 
+**milesguo** COVID-19 autopsy report: a new case report study in Lancet Respir Med<br>https://gnews.org/123201/
+
+[https://www.guo.media/posts/272707](https://www.guo.media/posts/272707) `2020-02-24T21:55:08`
+##
+
+**milesguo** HK Government issues Red Outbound Travel Alert on South Korea<br>https://gnews.org/123133/
+
+[https://www.guo.media/posts/272706](https://www.guo.media/posts/272706) `2020-02-24T21:55:10`
+##
+
+**milesguo** Former SARS Fighter Criticiszed HKSAR Government for not Learning from the Past Tragedy<br>https://gnews.org/123096/
+
+[https://www.guo.media/posts/272705](https://www.guo.media/posts/272705) `2020-02-24T21:55:11`
+##
+
+**milesguo** In Solidarity: Nepali Organizations Distribute Free Masks in Hong Kong for Multiple Times<br>https://gnews.org/122398/
+
+[https://www.guo.media/posts/272704](https://www.guo.media/posts/272704) `2020-02-24T21:55:12`
+##
+
+**milesguo** First Hong Kong citizen died of Wuhan pneumonia in Wuhan, China<br>https://gnews.org/122669/
+
+[https://www.guo.media/posts/272703](https://www.guo.media/posts/272703) `2020-02-24T21:55:13`
+##
+
 **milesguo** First Hong Kong citizen died of Wuhan pneumonia in Wuhan, China<br>https://gnews.org/122669/
 
 [https://www.guo.media/posts/272702](https://www.guo.media/posts/272702) `2020-02-24T21:40:07`
