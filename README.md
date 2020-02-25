@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 《武汉肺炎》疫情影响！中国两会确认延期!<br>https://gnews.org/zh-hans/123156/
+
+[https://www.guo.media/posts/272714](https://www.guo.media/posts/272714) `2020-02-25T00:40:07`
+##
+
+**milesguo** 民以食为天！生化瘟疫包围下中国粮食哪去了？<br>https://gnews.org/zh-hans/123102/
+
+[https://www.guo.media/posts/272713](https://www.guo.media/posts/272713) `2020-02-25T00:40:09`
+##
+
 **milesguo** COVID-19 autopsy report: a new case report study in Lancet Respir Med<br>https://gnews.org/123201/
 
 [https://www.guo.media/posts/272707](https://www.guo.media/posts/272707) `2020-02-24T21:55:08`
