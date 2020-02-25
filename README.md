@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** COVID-19 related? China reports 1M increase in influenza last December<br>https://gnews.org/123359/
+
+[https://www.guo.media/posts/272859](https://www.guo.media/posts/272859) `2020-02-25T20:25:09`
+##
+
+**milesguo** WSJ: First Experimental Coronavirus Vaccine for Human Testing<br>https://gnews.org/123480/
+
+[https://www.guo.media/posts/272858](https://www.guo.media/posts/272858) `2020-02-25T20:25:10`
+##
+
+**milesguo** US Forces Korea raises risk level as dependent contracts coronavirus<br>https://gnews.org/123345/
+
+[https://www.guo.media/posts/272857](https://www.guo.media/posts/272857) `2020-02-25T20:25:12`
+##
+
 **milesguo** 【中文字幕】2020年1月27日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/124014/
 
 [https://www.guo.media/posts/272848](https://www.guo.media/posts/272848) `2020-02-25T19:10:07`
