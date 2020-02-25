@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 新冠病毒爆发前神演习模拟之脑洞大开<br>https://gnews.org/zh-hans/123854/
+
+[https://www.guo.media/posts/272813](https://www.guo.media/posts/272813) `2020-02-25T15:25:07`
+##
+
+**milesguo** 2.29前兆！武汉出城通告朝令夕改 中国经济难以维系 箭军“枕戈待旦”（国内篇）<br>https://gnews.org/zh-hans/123821/
+
+[https://www.guo.media/posts/272812](https://www.guo.media/posts/272812) `2020-02-25T15:25:09`
+##
+
+**milesguo** 文字版2020年2月21日郭先生参加班农战斗室访谈<br>https://gnews.org/zh-hans/123765/
+
+[https://www.guo.media/posts/272810](https://www.guo.media/posts/272810) `2020-02-25T15:25:11`
+##
+
+**milesguo** 中共忽悠大家上班！不要相信！ “共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/123767/
+
+[https://www.guo.media/posts/272809](https://www.guo.media/posts/272809) `2020-02-25T15:25:12`
+##
+
 **milesguo** 2月25日新冠病毒疫情要闻快报<br>https://gnews.org/zh-hans/123961/
 
 [https://www.guo.media/posts/272804](https://www.guo.media/posts/272804) `2020-02-25T14:10:07`
