@@ -12,6 +12,21 @@
 ## 最新郭文
 
 
+**milesguo** 冠状病毒污水直接排放进菜园<br>https://gnews.org/zh-hans/123927/
+
+[https://www.guo.media/posts/272842](https://www.guo.media/posts/272842) `2020-02-25T18:55:08`
+##
+
+**milesguo** 武汉肺炎全面失控！共产党丧心病狂！残忍火化活人！<br>https://gnews.org/zh-hans/123662/
+
+[https://www.guo.media/posts/272841](https://www.guo.media/posts/272841) `2020-02-25T18:55:10`
+##
+
+**milesguo** 病毒肆虐！未来经济到底走向如何？<br>https://gnews.org/zh-hans/123798/
+
+[https://www.guo.media/posts/272840](https://www.guo.media/posts/272840) `2020-02-25T18:55:11`
+##
+
 **milesguo** 病毒肆虐！未来经济到底走向如何？<br>https://gnews.org/zh-hans/123798/
 
 [https://www.guo.media/posts/272836](https://www.guo.media/posts/272836) `2020-02-25T18:10:07`
