@@ -12,6 +12,11 @@
 ## 最新郭文
 
 
+**milesguo** Wuhan Coronavirus Pandemic Episode 31, February 24, 2020<br>https://gnews.org/123726/
+
+[https://www.guo.media/posts/272860](https://www.guo.media/posts/272860) `2020-02-25T20:40:08`
+##
+
 **milesguo** COVID-19 related? China reports 1M increase in influenza last December<br>https://gnews.org/123359/
 
 [https://www.guo.media/posts/272859](https://www.guo.media/posts/272859) `2020-02-25T20:25:09`
