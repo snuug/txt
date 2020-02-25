@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 斯蒂夫.班农“战争室”推出特别节目“瘟疫施虐中共国”第二十三期<br>https://gnews.org/zh-hans/123344/
+
+[https://www.guo.media/posts/272716](https://www.guo.media/posts/272716) `2020-02-25T00:55:09`
+##
+
+**milesguo** 2020年1月27日灭共者说中文字幕合集<br>https://gnews.org/zh-hans/123213/
+
+[https://www.guo.media/posts/272715](https://www.guo.media/posts/272715) `2020-02-25T00:55:10`
+##
+
 **milesguo** 《武汉肺炎》疫情影响！中国两会确认延期!<br>https://gnews.org/zh-hans/123156/
 
 [https://www.guo.media/posts/272714](https://www.guo.media/posts/272714) `2020-02-25T00:40:07`
