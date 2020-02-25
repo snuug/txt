@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** Pro-Beijing “disabled” elderly seen walking and arguing with protestors in Tuen Mun Park<br>https://gnews.org/123064/
+
+[https://www.guo.media/posts/272872](https://www.guo.media/posts/272872) `2020-02-25T22:40:08`
+##
+
+**milesguo** Second Day of Protest: HK Kowloon Bay Residents Oppose Unconsulted Designated Clinic<br>https://gnews.org/123072/
+
+[https://www.guo.media/posts/272870](https://www.guo.media/posts/272870) `2020-02-25T22:40:09`
+##
+
+**milesguo** TNT Daily : Ministry of Culture of China says that Chinese tourists received unfair treatment in the US<br>https://gnews.org/123912/
+
+[https://www.guo.media/posts/272869](https://www.guo.media/posts/272869) `2020-02-25T22:40:11`
+##
+
+**milesguo** COVID-19 work resumption in China: “sweatshops” become “blood shops”<br>https://gnews.org/123274/
+
+[https://www.guo.media/posts/272868](https://www.guo.media/posts/272868) `2020-02-25T22:40:12`
+##
+
 **milesguo** Wuhan Coronavirus Pandemic Episode 31, February 24, 2020<br>https://gnews.org/123726/
 
 [https://www.guo.media/posts/272860](https://www.guo.media/posts/272860) `2020-02-25T20:40:08`
