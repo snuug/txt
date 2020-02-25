@@ -12,6 +12,41 @@
 ## 最新郭文
 
 
+**milesguo** 班农先生：中国的新冠疫情已经失控<br>https://gnews.org/zh-hans/123515/
+
+[https://www.guo.media/posts/272749](https://www.guo.media/posts/272749) `2020-02-25T05:25:07`
+##
+
+**milesguo** 投资！中共支持经济最后一条蹩脚拐杖<br>https://gnews.org/zh-hans/123482/
+
+[https://www.guo.media/posts/272748](https://www.guo.media/posts/272748) `2020-02-25T05:25:08`
+##
+
+**milesguo** 以湖北为镜，看全国粮食和通胀问题<br>https://gnews.org/zh-hans/123458/
+
+[https://www.guo.media/posts/272747](https://www.guo.media/posts/272747) `2020-02-25T05:25:10`
+##
+
+**milesguo** 从生老病死的特供到分阶的抚恤再到连工伤都挨不着边儿的韭菜<br>https://gnews.org/zh-hans/123422/
+
+[https://www.guo.media/posts/272746](https://www.guo.media/posts/272746) `2020-02-25T05:25:11`
+##
+
+**milesguo** 中共无耻文人，连马屁文都写的如此之Low！<br>https://gnews.org/zh-hans/123396/
+
+[https://www.guo.media/posts/272745](https://www.guo.media/posts/272745) `2020-02-25T05:25:12`
+##
+
+**milesguo** 造就【中国速度】的农民工成为“定时炸弹”？共产党再次上演【卸磨杀驴】！<br>https://gnews.org/zh-hans/123118/
+
+[https://www.guo.media/posts/272744](https://www.guo.media/posts/272744) `2020-02-25T05:25:13`
+##
+
+**milesguo** 中共国一夜之间多省疫情新增人数归零，难道武汉病毒都是带“智能”的？<br>https://gnews.org/zh-hans/122711/
+
+[https://www.guo.media/posts/272743](https://www.guo.media/posts/272743) `2020-02-25T05:25:14`
+##
+
 **milesguo** 斯蒂夫.班农“战争室”推出特别节目“瘟疫施虐中共国”第二十三期<br>https://gnews.org/zh-hans/123344/
 
 [https://www.guo.media/posts/272716](https://www.guo.media/posts/272716) `2020-02-25T00:55:09`
