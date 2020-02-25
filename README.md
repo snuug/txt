@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 【中文字幕】2020年1月27日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/124014/
+
+[https://www.guo.media/posts/272848](https://www.guo.media/posts/272848) `2020-02-25T19:10:07`
+##
+
+**milesguo** <br>武汉肺炎下，中共国的那些“荒唐”事儿（二十一）<br>https://gnews.org/zh-hans/123758/
+
+[https://www.guo.media/posts/272847](https://www.guo.media/posts/272847) `2020-02-25T19:10:09`
+##
+
+**milesguo** 【中文字幕】彼得·纳瓦罗（Peter Navarro）谈美国如何与冠状病毒的传播作斗争<br>https://gnews.org/zh-hans/123955/
+
+[https://www.guo.media/posts/272845](https://www.guo.media/posts/272845) `2020-02-25T19:10:10`
+##
+
+**milesguo** 【中文字幕】疫情国际快讯<br>https://gnews.org/zh-hans/123951/
+
+[https://www.guo.media/posts/272844](https://www.guo.media/posts/272844) `2020-02-25T19:10:11`
+##
+
 **milesguo** 冠状病毒污水直接排放进菜园<br>https://gnews.org/zh-hans/123927/
 
 [https://www.guo.media/posts/272842](https://www.guo.media/posts/272842) `2020-02-25T18:55:08`
