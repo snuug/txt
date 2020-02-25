@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** 2月25日新冠病毒疫情要闻快报<br>https://gnews.org/zh-hans/123961/
+
+[https://www.guo.media/posts/272804](https://www.guo.media/posts/272804) `2020-02-25T14:10:07`
+##
+
+**milesguo** February 25 Updates on COVID-19 Pandemic<br>https://gnews.org/123970/
+
+[https://www.guo.media/posts/272802](https://www.guo.media/posts/272802) `2020-02-25T14:10:09`
+##
+
 **milesguo** 武汉肺炎下，中共国的那些“荒唐”事儿（二十）<br>https://gnews.org/zh-hans/123750/
 
 [https://www.guo.media/posts/272770](https://www.guo.media/posts/272770) `2020-02-25T08:55:08`
