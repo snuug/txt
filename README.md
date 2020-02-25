@@ -12,6 +12,26 @@
 ## 最新郭文
 
 
+**milesguo** 2020年2月24日武汉冠状病毒大流行第31集<br>https://gnews.org/zh-hans/123696/
+
+[https://www.guo.media/posts/272760](https://www.guo.media/posts/272760) `2020-02-25T07:25:07`
+##
+
+**milesguo** 火线入党加红包，杀人无形不用刀！<br>https://gnews.org/zh-hans/123597/
+
+[https://www.guo.media/posts/272759](https://www.guo.media/posts/272759) `2020-02-25T07:25:09`
+##
+
+**milesguo** 2月24日 美国政要推文精选<br>https://gnews.org/zh-hans/123544/
+
+[https://www.guo.media/posts/272758](https://www.guo.media/posts/272758) `2020-02-25T07:25:10`
+##
+
+**milesguo** 好消息！制药商Moderna提供首个用于人体测试的实验性冠状病毒疫苗<br>https://gnews.org/zh-hans/123539/
+
+[https://www.guo.media/posts/272757](https://www.guo.media/posts/272757) `2020-02-25T07:25:12`
+##
+
 **milesguo** 班农先生：中国的新冠疫情已经失控<br>https://gnews.org/zh-hans/123515/
 
 [https://www.guo.media/posts/272749](https://www.guo.media/posts/272749) `2020-02-25T05:25:07`
