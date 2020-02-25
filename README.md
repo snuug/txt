@@ -12,6 +12,16 @@
 ## 最新郭文
 
 
+**milesguo** The Farm: The CCP is preparing to attack Taiwan<br>https://gnews.org/124010/
+
+[https://www.guo.media/posts/272874](https://www.guo.media/posts/272874) `2020-02-25T22:55:07`
+##
+
+**milesguo** 【Subtitle】January 27, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/124022/
+
+[https://www.guo.media/posts/272873](https://www.guo.media/posts/272873) `2020-02-25T22:55:09`
+##
+
 **milesguo** Pro-Beijing “disabled” elderly seen walking and arguing with protestors in Tuen Mun Park<br>https://gnews.org/123064/
 
 [https://www.guo.media/posts/272872](https://www.guo.media/posts/272872) `2020-02-25T22:40:08`
