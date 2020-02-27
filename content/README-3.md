@@ -13,6 +13,8 @@
 
 ## 頁面 3/24 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [24](/content/README-24.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/2020/01/20200102-3330652484007682662.md)
+
 [文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/2019/12/20191231-3168641532778332278.md)
 
 [文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
@@ -60,8 +62,6 @@
 [文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/2019/12/20191203-2918612896973787175.md)
 
 [文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
-
-[文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
 
 
 ## 頁面 3/24 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [24](/content/README-24.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

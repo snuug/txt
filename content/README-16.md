@@ -13,6 +13,8 @@
 
 ## 頁面 16/24 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [24](/content/README-24.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/content/2018/08/20180817-7104426966626506659.md)
+
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/2018/08/20180817-2378902037495839266.md)
 
 [文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/2018/08/20180816-757785613793361402.md)
@@ -60,8 +62,6 @@
 [文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/content/2018/06/20180626-3936778233865225859.md)
 
 [文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/2018/06/20180619-3280425494890246053.md)
-
-[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/content/2018/06/20180612-5378414891358976970.md)
 
 
 ## 頁面 16/24 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [24](/content/README-24.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

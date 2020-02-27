@@ -13,6 +13,8 @@
 
 ## 頁面 8/24 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [24](/content/README-24.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月31日爆猛料遭黑客疯狂攻击](/content/2019/08/20190804-3048854052865103791.md)
+
 [文字版：2019年7月31日 乱聊上海西郊宾馆 开启CCP死亡第二战场](/content/2019/08/20190802-6690690952476016345.md)
 
 [文字版：7月29日 共产党已经进入倒计时](/content/2019/07/20190730-277183401038624152.md)
@@ -60,8 +62,6 @@
 [文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
 
 [文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/2019/06/20190630-3604984578617941887.md)
-
-[文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/2019/06/20190627-3104653818463071254.md)
 
 
 ## 頁面 8/24 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [24](/content/README-24.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
