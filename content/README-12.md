@@ -13,6 +13,8 @@
 
 ## 頁面 12/24 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [24](/content/README-24.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/content/2019/02/20190219-2494851897294759550.md)
+
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/content/2019/02/20190219-5950789475618575573.md)
 
 [关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
@@ -60,8 +62,6 @@
 [文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
 [文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/2019/01/20190111-7038821530851525661.md)
-
-[文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/2019/01/20190108-2730263120772075960.md)
 
 
 ## 頁面 12/24 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [24](/content/README-24.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
