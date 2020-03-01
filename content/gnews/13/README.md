@@ -1,97 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19病毒爆發簡易模擬
-`2020-03-01 05:57 GM36` [轉載自GNews](https://gnews.org/zh-hant/128861/)
+## 武漢肺炎下中國上演的奇葩黨式隔離！
+`2020-03-01 06:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/128591/)
 
-Mr. J 2020.3.1
+**作者：滅共日記**
 
-中共生化武器COVID-19能否滅絕人類？存在這種可能，如果大家不作為的話。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054648/COVID-19_01-1.jpg)
-我們當然要有所作為。我們很難得到先進的生化武器傳播數學模型，於是我們可以利用遊戲和MOD來模擬。讓我們進入遊戲《瘟疫公司》（Plague Inc.）和名聲大噪的MOD“關閉壹切”。
+中國黨式的隔離已經開始上演，今天就和大家來說說各種奇葩的隔離方式！從最開始的封城，封村，封路，再到直接用電焊給你焊在家裡讓你永遠不和祖國分離！如果大家不了解封城有多可怕，可以參考一下國共內戰時期的長春圍困戰！在此我就不多贅述！
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054720/COVID-19_02-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054731/COVID-19_03-2.jpg)
+**1 封城：**
 
+封城只會讓城裡的老百姓更恐慌，雖然短期內斷絕了與外界的來往，短期來看問題不大，但是這種沒有信息公開的隔離治療，往往比這病毒更可怕，而且城內物資沒有，技術沒有，醫護人員配備不足，這樣的封城，長期來看我認為這就等同於一場謀殺！
 
-毫無疑問，COVID-19是生化武器，中共生化武器。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054740/COVID-19_04-2.jpg)
-我們全力以赴應對這場生化危機，所以將遊戲難度設定為“困難”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054751/COVID-19_05-3.jpg)
-將瘟疫名稱設定為“COVID-19”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054816/COVID-19_06-2.jpg)
-參照現實中的COVID-19的病毒特征，盡量使基因序列接近現實，分別為：ATP高能量（對應生化武器）、大氣親和性、靜態傳播基因（對應中共基因編輯行為）、達爾文主義者（對應高變異率）、極端微生物（對應武器級適應能力）。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054835/COVID-19_07-2.jpg)
-進入遊戲模擬，並參照現實將遊戲起始點設定為中國。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01033055/%E5%9B%BE%E7%89%871-2.png)
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054848/COVID-19_08-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054858/COVID-19_09-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054911/COVID-19_10-2.jpg)
+**2 封村，封路：**
 
+這種做法更加瘋狂，大家都知道，村子裡面可沒有醫院，沒有消防部隊，頂多有個鄉鎮衛生所，醫療環境和醫療資源都有限。如果一旦村子裡這時候有人感染或是發生火災，路封了，消防車和救護車想進都進不來，到時候可能村里的人不是死於無法治療，是死於出不去！這種現象，只能說共產黨的村官，都是相當的愚蠢的，而且封路的手法也瘋狂至極，有挖斷板油馬路，有用水泥砌牆，有用大量的土堆積的，甚至天氣冷的地方會用冰牆。
 
-模擬進程開始後，嚴格參照COVID-19的實際臨床表現設定發病癥狀，依次為：咳嗽、肺炎、噴嚏、肺間質纖維化、免疫抑制、發熱。不做其它額外添加。
+**3 在家隔離：**
 
-依次為：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054957/COVID-19_11-3.jpg)
-傳播途徑僅保守限定為：嚙齒動物傳播1級、家畜傳播1級、鳥類傳播1級、空氣傳播1級、水源傳播1級，不進行升級，放棄針對炎熱環境和低收入區域的昆蟲傳播和血液傳播。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055007/COVID-19_12-2.jpg)
-模擬到此時，在不到5個月的時間裏，全球已經有超過13.4億人被感染，超過1.5億人死亡。在現實條件下，即便以這13.4億人為最小感染規模，按照生化專家給出的15%致死率和中共給出的2%致死率，死亡人口分別是2.01億人和2680萬人。COVID-19的真實致死率很可能超過15%。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055016/COVID-19_13-2.jpg)
-當在模擬進程下還原出COVID-19的基本DNA特征時（抗藥能力1級、抗藥能力2級、基因強化1級、基因重組1級、基因重組2級、基因重組3級），全球死亡人口已經超過19億人，解藥研發進度為46%。
+在我看來，在家隔離，相比於其他隔離方法應該算是比較幸福的一件事了，最大的問題就是食物問題，如果你沒有囤積食物，而且還盲目相信政府，那就很有可能餓死在家中，或者等待社區加上十幾倍的利潤幫你購買，因為不可能讓你自己出去購買，這已經是社區獨門壟斷的生意了！
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055039/COVID-19_14-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055049/COVID-19_15-2.jpg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01033128/%E5%9B%BE%E7%89%872-5.png)
 
+**4 方艙醫院：**
 
-此時的全球人類已經死亡27%，請記住這個數字。附全球人口曲線圖、疾病進化曲線圖、解藥研制曲線圖。需要說明的是，由於設定的保守，傳染性被人為壓制到了SARS的水平，現實中COVID-19的傳染性高出SARS數十倍，同時作為生化武器也更加致命。
+去方艙醫院隔離還是挺危險的，如果是我，寧願自己住在外面流浪也不願意去那種地方，想想幾百人集中隔離，這尼瑪哪是隔離治病啊，這就是去集體自殺啊，雖然那裡有吃有喝，但也可能是你最後的晚餐！
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055102/COVID-19_16-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055112/COVID-19_17-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055121/COVID-19_18-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055142/COVID-19_19-2.jpg)
+**5 強制隔離：**
 
+全國大部分地區都用這種方法，隔離地點由當地政府統一安排，找幾家大型的賓館，先不說賓館符不符合封閉的隔離環境，一天的費用應該是250-350元，這個費用是完全自費的，政府不會為老百姓買單的，政府只負責強制隔離你，強制收取你的隔離費用，哪有什麼免費隔離，別傻了，看看有多少老百姓被坑，為什麼會有老百姓跑，隔離14天住賓館的費用對於普通老百姓來說，也不是一筆小數目！
 
-截至此時全球死亡的19億人口中，包含了中國14億人口。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055134/COVID-19_20-2.jpg)
-模擬過程中COVID-19先後自動進化出了“失眠”和“出汗”，因為符合現實情況，予以保留，實際上對模擬進程影響可以忽略不計。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055133/COVID-19_21-2.jpg)
-隔離！隔離！隔離！隔離的意義不亞於解藥研發，隔離極為有效的控制了新增感染人口。隔離，自我隔離，交通隔離，全球隔離，這是最重要的事！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055154/COVID-19_22-2.jpg)
-近15個月過去，COVID-19解藥研發成功並開始在全世界分發。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055202/COVID-19_23-2.jpg)
-模擬進程中COVID-19的各項設定得到了遵守。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01033156/%E5%9B%BE%E7%89%873-1.png)
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055214/COVID-19_24-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055228/COVID-19_25-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055239/COVID-19_26-2.jpg)
+**6 疫情期間回國人員隔離：**
 
+什麼叫同人不同命，中國外交部展現的淋漓盡致，因為海外輿論壓力，疫情期間回國的同胞都有免費隔離的福利，難道中國的老百姓不是人，海外回來的華僑同胞就是人嗎？為什麼海外回來的有免費的待遇？這難道就是傳說中的一國兩制嗎? 雖然他們享受著免費隔離，但是環境也沒好到哪裡去，我今天看到一個視頻是在一家醫院，一個房間有6張床位，裡面隔離5個人，5個人這也叫隔離嗎？而且護士長一點也沒有迴避的和下屬說：出門一定要鎖上門，不要讓他們跑了！這海外同胞都是犯人嗎？即使你們是這樣想的，能不能做的有點風度，能不能隱晦一點?
 
-數據顯示，在COVID-19解藥研發進程的47%-100%階段，全球死亡人口停留在了27%，“隔離”非常有效的阻止了“新增”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055228/COVID-19_27-2.jpg)
-模擬結果顯示東亞、中亞被摧毀，當前的現實情況是韓國和意大利疫情嚴重。事實上，我個人認為歐洲法語區國家未來將是疫情最重的國家，凡事皆有代價。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055238/COVID-19_28-2.jpg)
-最終的全球人口曲線圖、解藥研制曲線圖、疾病進化曲線圖。
+**7 牢房形式隔離：**
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055252/COVID-19_29-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055301/COVID-19_30-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055309/COVID-19_31-2.jpg)
+在網絡上看到很多地方都用的這種方法，都是那種簡易的彩鋼房，一個窗戶全是鐵欄杆，裡面的環境幾乎和監獄相差無幾，抓到你關進去14天，當然了還要強制徵收隔離費，而且網傳說抓到一個病人還有獎勵提成！
 
+以上就是我總結的從武漢封城開始到現在，共產黨所上演的隔離荒唐事！
 
-我們確實會擊敗COVID-19病毒，但是這只是對生者而言。況且，COVID-19病毒的大爆發還沒有到來，我們誰都無法確定自己能夠活下來。模擬數據顯示全球死亡率為27%，而中國死亡率為100%，即使在現實條件下將數字下調壹半，您能夠接受嗎？
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055319/COVID-19_32-2.jpg)
-模擬進程耗時470天，我們要堅持這麽久，我們如何才能在隔離條件下堅持這麽久呢？答案是儲備。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055330/COVID-19_33-2.jpg)
-這是爆發初期的日死亡人數，超過200萬的日死亡人口，這還不是最高的數字。保存這張圖片吧，如果某壹天您堅持不下去了，看壹看這張圖片。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055338/COVID-19_34-2.jpg)
-結論：
-<br>COVID-19疫情大爆發尚未開始；
-<br>會死很多人；
-<br>隔離是最有效的保障措施。
+GNEWS之前文章： 
+中共用央視與網絡大肆宣傳[https://gnews.org/zh-hans/126294/](https://gnews.org/zh-hans/126294/) 
+栽贓嫁禍！引導輿論！ [https://gnews.org/zh-hans/126266/](https://gnews.org/zh-hans/126266/) 
+中國人沉默的代價之政治沉默篇！ [https://gnews.org/zh-hans/125430/](https://gnews.org/zh-hans/125430/)
 
-請大家儲備好食品和藥品，做好隔離，認真鍛煉身體，等待滅共，等待解藥，等待勝利！
-
-壹切已經開始！
-
-GM36
+（文章內容僅代表作者觀點）
 
 0
