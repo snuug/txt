@@ -7,7 +7,7 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:newspaper:GNews 節錄 :fire: :new: 本站現測試轉載GNews的一些文章， 歡迎閲讀！](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
 **milesguo** The Farm: The CCP is preparing to attack Taiwan<br>https://gnews.org/124010/
