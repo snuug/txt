@@ -1,4 +1,4 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -7,9 +7,7 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:更多報道](https://github.com/ourhimalayas/news) 
-
-## 最新郭文
+[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
 **milesguo** The Farm: The CCP is preparing to attack Taiwan<br>https://gnews.org/124010/
