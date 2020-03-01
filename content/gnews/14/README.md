@@ -1,37 +1,166 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從日韓爆發疫情以來的輿論風向變化，看中共洗腦宣傳的邪惡
-`2020-03-01 01:29 GM30` [轉載自GNews](https://gnews.org/zh-hant/128309/)
+## 2月29日 美國政要推文精選
+`2020-03-01 01:37 GM65` [轉載自GNews](https://gnews.org/zh-hant/128315/)
 
-**作者：飛揚的魚**
+> China’s government (that steals at least $400 billion of US IP ANNUALLY) HAS TO BE KIDDING by being “upset” for the rejection of Weng Binyang’s desire to allow the fox to guard the henhouse. [#NICETRYCCP](https://twitter.com/hashtag/NICETRYCCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/bZXYoT1mwX](https://t.co/bZXYoT1mwX)
+> — 😷Kyle Bass😷 (@Jkylebass) [February 28, 2020](https://twitter.com/Jkylebass/status/1233254165536788480?ref_src=twsrc%5Etfw)
 
-隨著日本、韓國、意大利疫情的大規模爆發，毫無疑問19年新型冠狀病毒已經成為了全球的性災難。尤其是韓國，自從超級傳播者出現以來，確診人數從200到400，從1000到1700，再到現在的突破2000，幾乎是呈指數函數趨勢上升，後來居上超過日本，成為了僅次於中國大陸的幾乎是最嚴重的國家，讓人不禁冒出一身冷汗。意大利的局勢也不容樂觀，目前確診人數已經突破700，大有趕日超韓的趨勢。同時輿論聚焦的熱點已經從武漢和中國轉移到了整個世界，讓人又深刻地感受到了一把中共製造的病毒危害全世界的“人類命運共同體”的鐵拳的邪惡。但令我怎麼也沒想到的是中共的宣傳機器居然巧妙地利用這次目光的轉移“華麗地”完成了一次輿情的導向和給牆內韭菜粉紅們的洗腦。
+卡爾·巴斯先生：中國政府（每年至少竊取美國價值4000億美元的知識產權） 因為王彬穎的“讓狐貍看守雞窩”的願望被拒而感到“不滿”，別逗了！#中共想的美
 
-最近我能聽到的最多的聲音就是“你看看，他們也感染上了”、“也就是在我們中國，（在中共的領導下啊）才能得到有效的控制”、“你看看他們民主國家的政府，就是不行，還得是我們才有集中力量辦大事兒的優勢”……這些幾近是不像有基本道德和感情的人說出來的言論，像一堆蓊鬱的蒼蠅一樣是噁心得我喘不過氣來。
+美聯社：中國抨擊美國“攻擊”其聯合國機構候選人
 
-首先，不管是什麼原因爆發的疫情，天天盼望著“一帶一路”、“人類命運共同體”的中共國自乾五和小粉紅們現在居然在這樣一個全人類的災難面前去嘲笑、譏諷，抱著看笑話的態度去旁觀，又一次讓人著實感受到了中共國多年以來洗腦所造就的畸形意識形態產物。
+> Anders Corr ⁦[@anderscorr](https://twitter.com/anderscorr?ref_src=twsrc%5Etfw)⁩ writes a seminal piece on how China’s Communist Party has its hooks into Mike Bloomberg. Mike was the best Mayor NYC has ever had, but his capture by the CCP is deeply troubling. It could easily become a Nat Security prob [https://t.co/ceLcrhZhy8](https://t.co/ceLcrhZhy8)
+> — 😷Kyle Bass😷 (@Jkylebass) [February 28, 2020](https://twitter.com/Jkylebass/status/1233371037779230726?ref_src=twsrc%5Etfw)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01012702/image0-4.jpg)
+卡爾·巴斯先生 連推：Anders Corr寫了壹篇開創性的文章，講述了中共是如何與麥克·布隆伯格勾結的。麥克曾是紐約市有史以來最好的市長，但他被中共“拿下”讓人深感不安。這很容易成為國家安全問題。他曾對CNBC新聞說：“在中國，他們有壹套關於發布新聞的規定。我們遵守這些規定。如果不這樣，妳在那裏就呆不下去。”（中共是）21世紀犯下最令人發指反人類罪的壹個政權——多賺錢不總是解決問題的答案。布隆伯格對《金融時報》說：“我們確實從中賺了點錢。這肯定是物有所值的……最大的好處就是與客戶建立了更好的關系，”彭博終端在中國的銷售正在“迅速增長”。
 
-其次，難道我們忘了這個病毒是哪裡來的嗎？無論是故意投毒、無意洩露，還是所謂的吃蝙蝠傳播，根源都是中共國，因為我們的過失或說是中共的邪惡導致了全世界的大災難，非但沒有愧疚或檢討悔過之情，以一副令人作嘔的所謂“大國傲慢”的姿態去冷眼惡語相加，實在令人寒心。
+> Sun Yang, the Chinese Communist Party’s national hero, found guilty. The cultural differentials between the West and the Chinese government are widening by the day. Imagine how vibrant, productive, and symbiotic our relationship would be sans subversion. [https://t.co/1TujAPIl0V](https://t.co/1TujAPIl0V)
+> — 😷Kyle Bass😷 (@Jkylebass) [February 28, 2020](https://twitter.com/Jkylebass/status/1233378993560268800?ref_src=twsrc%5Etfw)
 
-再次，拋去病毒根源不說，中共國的嚴密殘酷的言論管控體質、低效冗雜的行政官僚體質和腐敗獨裁的公共管理體質其實真正是促使此次疫情爆發的罪魁禍首。 12月初就發現首例確診病人，隨後不想怎麼解決疫情，而是把8個僅僅在微信群裡給同學、家人和朋友透風的醫生以“造謠傳謠”的罪名予以警告和訓誡，也就是“解決提出問題的人”。 1月份疫情小規模傳播，華春瑩所謂1月3日給美國的情報中就說明了這個疫情而擁戴“偉光正”的中共的老百姓居然什麼也不知道，媒體還是形勢大好，一片龍騰虎躍，喜慶祥和的氛圍。 1月中旬疫情進一步爆發，眼看瞞不住了，就派王廣發這種磚家去裝樣子視察一下，然後恬不知恥地說什麼“可防、可控、人不傳人”這種屁話。當然現實很快就給了他們一個大耳光，疫情的大規模爆發證明人傳人，更諷刺的是連號稱“人不傳人”的專家王廣發也感染上了這個疾病。與此同時，一無所知的老百姓還在一片喜慶祥和的氛圍中準備喜迎春節，各種大規模人員聚集活動為疫情的大規模傳染和爆發提供了有力的載體。更可笑的是武漢政府竟然在明知道有疫情已經上報的情況下隆重地仍然舉辦百步亭萬家宴活動，滑天下之大稽。
+卡爾·巴斯先生：孫楊，中共的民族英雄，被判有罪。西方和中國政府之間的文化差異與日俱增。
 
-疫情大規模爆發之後輿情引導還是往常的套路：封鎖消息、瞞報數據、解決提出問題和發布真相的人（比如李文亮、陳秋實、方斌、李澤華……還有成千上萬名被喝茶、視頻認罪的網民）、喪事兒變喜事兒、歌頌功德，轉移矛盾，讓人們的的視角轉移到其他國家的疫情上去，嘲笑或仇恨其他國家，激起一股莫須有的強烈的所謂民族自豪感和戰狼般的咄咄逼人的態勢。寫到這兒，不禁心中一股悲涼辛酸湧上來，有著善良、樸實、勤勞、淳樸這些優良傳統的中國人今天居然被共產黨洗腦成了不分黑白、不講邏輯、沒有理性、不知感恩、只會喊打喊殺，充滿了仇恨和偏見的戰狼和紅衛兵。
+《紐約時報》：孫楊，中國奧運遊泳運動員，被禁賽8年
 
-剛剛在吃飯的時候又被我母親的日常關心“時事”的評論給噎到無語了。電視裡放著偉光正的新聞聯播，她也情緒激昂了起來，已然忘記了自己三十年幼師的身份退休之後每月只能拿一千五退休金的現實，自豪地附和道：這也就是在我們中國，才能得到這麼好的控制。你看看美國，什麼忙都沒幫，自己爆發流感死了六千多人，比咱們多多了；你看看韓國，疫情爆發這麼迅速，都是因為他們政府太軟弱了，人們出去都不帶口罩，防範意識太差了，還有信那些邪教信的。我飯差點兒沒噴出來。記得前一段時間李文亮醫生去世的時候，一石激起千層浪，那個晚上微博很多覺醒的民眾紛紛發言質疑、批判、懷念，感人肺腑，很多良知大V也站出來伸張正義，瞬時讓我看到了Twitter的影子。第二天早上我母親還為他拭淚。那時我真的感覺看到了曙光，感覺我們這個民族還是有很大自我覺醒的可能性的。但誰知幾滴清水不能滌蕩一個泥潭，強大的維穩體系和洗腦宣傳力量很快就把一點點乍現的火光熄滅，憤怒的情緒轉為悲傷，質疑問題根源的思想導向被扭轉到歌頌功德，爭取言論自由的呼聲被對美帝的喊打喊殺聲音淹沒……
+> After the arrest of [#JimmyLai](https://twitter.com/hashtag/JimmyLai?src=hash&amp;ref_src=twsrc%5Etfw), the HK “police” are now the rabid animals of a failed state. Lam has lost all respect as has her thuggish police force. HK has lost its autonomy, its basic law, and any sense of respect for human rights. [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#Chinazi](https://twitter.com/hashtag/Chinazi?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/WnmheZslEl](https://t.co/WnmheZslEl)
+> — 😷Kyle Bass😷 (@Jkylebass) [February 29, 2020](https://twitter.com/Jkylebass/status/1233749319230029825?ref_src=twsrc%5Etfw)
 
-先說美國，真的是感覺到不值。多年來用優各種惠政策和自由平等的價值觀扶植起來的居然是頭白眼狼。自從1月3號中方向美方通報以來多次提出派CDC的專家到中國來調查協助被拒絕；用貨機拉去十噸以上的救援物資去武漢後來去向還不明；國會通過對中國的一億美元的官方救援款項援助中國疫情；各種大小公司爭先恐後向武漢捐財捐物不計其數；吉利德公司向中國免費提供抗疫藥物瑞德西韋（居然已經被搶注商標，而且在進入所謂臨床試驗階段之後就悄無聲息了）……美國對中國援助了這麼多居然就成了“沒有任何實質性幫助”，在全球每年常規爆發的流感居然還被拿來成為攻擊恩人的工具，且不說流感的傳染性、致死率和危害性是遠遠不能和新型冠狀病毒相提並論的，在幾億人口的美國每年幾千名死亡人數這樣的致死率和世界平均水平比起來已經很低了，而且在統計過程中很多直接死亡原因是並發症比如心腦血管疾病、糖尿病並發症等病症的案也被統計在內，並且大部分是老年人，本身免疫力就已經下降。與此相較，嚴格按照直接死因是流感的標準統計的中共國，刨去了瞞報虛報漏報，根據騰訊官方的文章數字統計，中國每年有8.8萬名患者死於流感……用這種條件不對等的比較去營造錯覺給民眾洗腦是中共宣傳機構管用的手段，更可怕的是，茫茫眾生中看到這些真真假假的信息的時候已經失去了思考的能力了……
+卡爾·巴斯先生：繼逮捕黎智英先生之後，香港“警察”現在就是這個垮了的政府派出來的瘋狂的動物。林和她的流氓警察都已經失去了尊嚴。香港已經沒了自治、基本法和對人權的尊重。
 
-疫情爆發之後，美國、英國、澳大利亞第一時間做出迅速及時的預警，實行了航班停飛、入境加強隔離等措施，被官媒批評是過度防衛，回不去的留學生也跟著一塊兒喊打喊殺；但更早封鎖邊境、管控措施更加嚴厲的的朝鮮、俄羅斯等國家倒是聽不見有什麼聲音對他們批評指責的，甚至在朝鮮只要是被隔離對像有很大的被槍斃的危險，俄羅斯出現了全面排查華人甚至華人被殺的現象，這算不算是“反華勢力”呢？怎麼不見小粉紅戰狼們來雖遠必誅啊？是不是只會騎在文明、民主、好欺負的國家的脖子上拉屎呢？即使在國內各省各市都加緊封閉管理的情況下，一向和中共勾兌得火熱的日本、韓國、意大利和白左馬克龍執政的法國，在疫情爆發之後對中共國保持了開放的態度，尤其是友邦日本和韓國，提供了大量的救援物資，還給予精神支持，讓人感動，甚至網絡輿論一度偏向友好和感謝，但在日韓意大利爆發疫情之後我們聽到的卻是無數的譏諷、嘲笑和假大空的所謂“民族自豪”，這種忘恩負義、恩將仇報、過河拆橋、卸磨殺驢的叢林社會意識形態，恕我這種俗人理解不了天朝臣民的崇高的思想水準。
+香港眾誌：繼香港開啟新壹輪政治迫害和逮捕媒體大亨黎智英先生後，今天晚上，香港警察的重拳直接打在了香港人的臉上。
 
-再說韓國，口口聲聲被指責“管控不力”，“普遍不戴口罩，民眾防範性不強”，但我想追根溯源地問一問，這些的根源是什麼？他們的疫情難道不是中共國傳入進去的嗎，他們對於疫情的評判標準是什麼呢？不還是你中共公佈的假數據嗎？他們的參考意見來源是什麼呢？不還是早就被中共藍金黃、天天就知道舔腚、說好話的NGO組織WHO嗎？成天描述得“可防可控可治”，“沒有必要引起恐慌”“繼續保持同中國的友好往來”，韓國當局左派政府當然會被這種妖言給迷惑了。但是在全面爆發之後迅速引起當局和全社會的重視，衛生防疫部門、保健部門、社會調查部門、獨立新聞媒體各司其事，高效運轉，儘管現在每天的確診數字有驚人的增長趨勢，治療隔離床位也已經超負荷運轉，很多患者還在排床位等住院，局勢十分緊張，但當局確實已經傾盡全力。導致疫情爆發的重要因素是31號患者超級傳播者，她是新天地教會的信徒，帶病在人員稠密的場所做禮拜，還去了很多公共場所，同時在首爾光化門還有泛民派舉行的集會遊行，但這些都是在宗教信仰自由、集會遊行合法的民主國家在疫情爆發之前沒有辦法去強力干預的。當然也不得不承認的是無論在哪個國家都有那麼一幫人不識大局、意識薄弱的民眾幹出一些糊塗事，當然號稱“室外聚會不會感染，主耶穌會給你們治好”的牧師其實也是傑出代表。當然這也是好機會來引導輿論攻擊宗教信仰、民主制度，正如微博上那些罵人不帶髒字，連諷刺帶挖苦的五毛分紅一樣，把焦點全部都引導到對於邪教的攻擊、對總統的不滿上邊，好像就可以忘卻病毒的來源了。
+> China's Uighur slave labor reported at factories that supply Nike, Apple, and Dell.Tremendous reporting here by ⁦[@annafifield](https://twitter.com/annafifield?ref_src=twsrc%5Etfw)⁩ and the ⁦[@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw)⁩. Boycott companies that use slave labor to cut costs. [#HumanRightsViolations](https://twitter.com/hashtag/HumanRightsViolations?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/kbGNDTD2mU](https://t.co/kbGNDTD2mU)
+> — 😷Kyle Bass😷 (@Jkylebass) [February 29, 2020](https://twitter.com/Jkylebass/status/1233881980275695616?ref_src=twsrc%5Etfw)
 
-網上普遍的輿論是“大邱正在努力學習武漢”時，我感覺十分荒唐可笑，這二者有什麼可比性嗎?在大邱或首爾有無數病患無醫可求、慘死家中或者曝屍街頭的嗎？有幾十個火葬場、幾十萬焚屍車晝夜不停地燒的場景嗎？傳播疫情真相會被約談、被視頻認罪、被威脅、被抓嗎？會有救援物資和善款源源不斷地到達最終卻都難以下發不知去向的嗎？會有醫護人員穿著薄如蟬翼的防護服、劣質的口罩和護目鏡，累到崩潰，發兩條求助消息還要被維穩的情況嗎？會有運去的蔬菜被搶奪、被掩埋、被轉賣隨後老百姓不得不高價從政府手裡買劣質菜的滑稽場面嗎？會有無數上吊、跳樓、跳河的人間慘劇嗎？會有不戴口罩被綁在樹上或遊街羞辱、一家在家裡打麻將遭到紅袖標地痞無賴打砸搶、把家裡的門貼條或焊死、一邊喊著某某加油一邊歧視疏遠那兒的人的可笑又可悲的場景嗎？會強制把你隔離還要自己承擔一天三百多的天價隔離費嗎？會通過控制檢測試劑盒、發放定量指標等方式在確診人數上玩花樣嗎？會把腿還動彈的活人裝進裝屍袋送進焚化爐嗎？我最近在持續關注韓國各大媒體的報導，有韓聯社、NAVER、KBS、大邱MBC等獨立新聞媒體在不間斷地持續跟進，甚至有24小時直播的平台，衛生保健部實時就最新確診人數和最新調查情況，尤其是對新天地教會的信徒的跟踪調查，召開新聞發布會，各大媒體平台會及時、公開、客觀地報導，讓人們第一時間知道真實數字。郭先生說過，只要讓言論自由、信息公開透明、媒體發揮應有的作用，人們知道疫情的嚴重程度之後會主動地自我隔離，剛剛也從新聞中得知大邱現在也是街道上幾乎是空無一人了，所以說這話是很對的。而中共呢？一切數據、信息都是假的。據郭先生說，現在為止確診人數一定超過百萬，死亡人數超過十萬，而冠冕堂皇的官方數字居然顯示死亡兩千多，很多省市0增長，這不是可笑至極嗎？連千里之外的意大利、法國、美國、新西蘭的疫情爆發得都這麼猛烈，他居然說增長率是0，還贏得小粉紅們一片叫好，真是由衷地感覺到一種悲涼。
+卡爾·巴斯先生：據報道，為耐克、蘋果和戴爾等公司供貨的工廠使用中國維族人當奴隸工。Anna Fifield記者和《華盛頓郵報》有大量報道。抵制使用奴隸工來削減成本的公司。 #侵犯人權
 
-我覺得無知不可怕，洗腦也不可怕，因為我們畢竟沒有權利決定出生在哪裡。真正可怕的是像《肖申克的救贖》那樣，從一開始的在高牆中面對不公和黑暗的掙扎與反抗，到後來的順從與適應，到最後自己把自己當成這個體制的一部分，主動讓自己相信謊言，來維護這個剝削自己的體制，再一塊兒去馴化別人。在黑暗中生活慣了的人們看到光太刺眼，往往不願意接受光，甚至厭惡光。不顧再怎麼掙扎終究是沒有用，因為黑暗終究會過去，光明一定會到來，不知道到時候自甘五和小粉紅們該怎麼接受這殘酷而刺眼的真相。
+> Most people don’t know we rely on China for a majority of our prescription drugs.
+>  
+> The coronavirus serves as a stark reminder of the necessity of bringing the supply chain back to the United States. [pic.twitter.com/ExvjkGQG0w](https://t.co/ExvjkGQG0w)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 28, 2020](https://twitter.com/MarshaBlackburn/status/1233435955429859328?ref_src=twsrc%5Etfw)
 
-（文章內容僅代表作者觀點）
+參議員 Marsha Blackburn：多數人都不知道我們依賴中國生產大部分處方藥。冠狀病毒讓人們充分意識到把供應鏈搬回美國的必要性。
 
-0
+> China isn’t an ally or partner of the United States—it’s a strategic competitor. The experiment to befriend China has clearly failed. Time to reconsider. [pic.twitter.com/Nzu2YuvfOV](https://t.co/Nzu2YuvfOV)
+> — Tom Cotton (@SenTomCotton) [February 28, 2020](https://twitter.com/SenTomCotton/status/1233528801990184962?ref_src=twsrc%5Etfw)
+
+參議員 Tom Cotton：中國不是美國的盟友或夥伴——它是戰略競爭對手。嘗試與中國成為朋友的做法顯然失敗了。現在需要重新思考壹下。
+
+> The goal of American foreign policy is simple: We want the economic and military strength to run the show and protect our nation’s interests around the world. I discussed this and much else with [@HudsonInstitute](https://twitter.com/HudsonInstitute?ref_src=twsrc%5Etfw): [pic.twitter.com/zFNRj4oLhR](https://t.co/zFNRj4oLhR)
+> — Tom Cotton (@SenTomCotton) [February 29, 2020](https://twitter.com/SenTomCotton/status/1233554106620489728?ref_src=twsrc%5Etfw)
+
+參議員 Tom Cotton：美國外交政策的目標很簡單：我們要加強經濟和軍事實力，保護我們在全球的利益。我與哈德遜研究院深入探討了這個話題：
+
+> While I was in Hong Kong, I met Jimmy Lai and other pro-democracy dissidents. Reports of his arrest are deeply troubling. Instead of focusing on the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw), the HK government and Communist Chinese Party are exploiting this crisis to attack political opponents. [https://t.co/TLb0a9Rfph](https://t.co/TLb0a9Rfph) [pic.twitter.com/SE8lEDrstj](https://t.co/SE8lEDrstj)
+> — Senator Ted Cruz (@SenTedCruz) [February 28, 2020](https://twitter.com/SenTedCruz/status/1233503606634172416?ref_src=twsrc%5Etfw)
+
+參議員 Ted Cruz：在香港時，我與黎智英先生及其他持不同政見的民主人士見過面。他被捕的報道令人深感擔憂。香港政府和中共沒有全力應對冠狀病毒疫情，反而利用此次危機來攻擊政治對手。
+
+> My podcast on the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) with Dr. Anthony Fauci delivered real facts about the virus, not media speculation or hysteria.[https://t.co/mSto5LlADe](https://t.co/mSto5LlADe)
+> — Newt Gingrich (@newtgingrich) [February 28, 2020](https://twitter.com/newtgingrich/status/1233444251020734465?ref_src=twsrc%5Etfw)
+
+美國眾議員前議長金裏奇：我與Anthony Fauci博士討論冠狀病毒話題的播客節目，告訴人們關於病毒的真實情況，沒有媒體界的猜測或歇斯底裏。
+
+金裏奇360網：紐特·金裏奇｜紐特的世界 56集：中國冠狀病毒
+
+> Productive conversation with the White House Coronavirus Taskforce today aboard Air Force 2. [@SecAzar](https://twitter.com/SecAzar?ref_src=twsrc%5Etfw) and the taskforce members are bringing the whole of government approach and all federal resources to bear as we work to protect the American people. [pic.twitter.com/qLGJVpqihP](https://t.co/qLGJVpqihP)
+> — Mike Pence (@Mike\_Pence) [February 28, 2020](https://twitter.com/Mike_Pence/status/1233536027295395840?ref_src=twsrc%5Etfw)
+
+彭斯副總統：今天在空軍2號飛機上與白宮冠狀病毒特別工作組進行了成效顯著的通話。衛生部長Azar和工作組成員們正調動所有政府和聯邦的資源和措施，為保護美國人民努力工作著。
+
+> President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)’s number one priority is to protect the health and well-being of the American people and we will continue to bring a government-wide response to the threat of Coronavirus.
+> — Mike Pence (@Mike\_Pence) [February 29, 2020](https://twitter.com/Mike_Pence/status/1233881393601613830?ref_src=twsrc%5Etfw)
+
+彭斯副總統 連推：川普總統關註的頭等大事是保護美國人民的健康和幸福，我們會繼續調動所有政府部門應對冠狀病毒的威脅。今天，白宮冠狀病毒特別工作組在戰情室舉行了富有成效的會議。我們對伊朗實施了旅行禁令，將前往意大利和韓國特定地區的旅行建議提升至四級—敦促美國人不要前往那些地區。
+
+> Left [#Qatar](https://twitter.com/hashtag/Qatar?src=hash&amp;ref_src=twsrc%5Etfw) knowing that the world is a safer place, with solid progress towards a political settlement that will end the war in [#Afghanistan](https://twitter.com/hashtag/Afghanistan?src=hash&amp;ref_src=twsrc%5Etfw). Thank you to Qatar and our allies and partners for their support of peace in Afghanistan. [pic.twitter.com/j6C9B6DxDT](https://t.co/j6C9B6DxDT)
+> — Secretary Pompeo (@SecPompeo) [March 1, 2020](https://twitter.com/SecPompeo/status/1233919884297326593?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：已啟程離開卡塔爾，深知通過這些政治解決阿富汗戰亂的堅實進程，世界會變得更加安全。感謝卡塔爾及我們的盟友和合作夥伴給予阿富汗和平進程的支持。（美國和塔利班簽訂和平協定）
+
+> We now face the first (but not the last) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)-related drug shortage in America
+> 
+> This is by far the single greatest threat our nation faces from [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> This is what happens when you depend on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) for 80% of our pharmaceuticals[https://t.co/T3YjRuWBIn](https://t.co/T3YjRuWBIn)
+> — Marco Rubio (@marcorubio) [February 28, 2020](https://twitter.com/marcorubio/status/1233376091185741825?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：美國現在面臨著第壹個（但不是最後壹個）與冠狀病毒相關的藥物短缺問題。這是自2019冠狀病毒爆發以來我們國家面對的最大的威脅，遠超其它的威脅程度。當我們80%的醫藥都依賴中國時就會發生這種情況。
+
+CNN：美國出現第壹個與冠狀病毒相關的藥物短缺問題
+
+> Better headline would be “How [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wields [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) investment to bend European countries”
+> 
+> Huawei is not a telecommunications company,it is an instrument of national power for the Chinese Communist Party. 
+> 
+>  [https://t.co/Q9jLPZfnS2](https://t.co/Q9jLPZfnS2) via [@politico](https://twitter.com/politico?ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [February 28, 2020](https://twitter.com/marcorubio/status/1233435657181257729?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：壹個更好的題目是“中國是如何利用華為的投資讓歐洲國家屈服的”。華為不是個電信公司，它是中共國家權力的工具。
+
+《Politico》新聞：華為如何利用投資讓歐洲國家屈服
+
+> Heartbroken to hear of the first confirmed US [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) death.
+> 
+> We must do EVERYTHING we can to make sure that all Americans are safe and have the resources they need to protect themselves from this outbreak. [https://t.co/ywLeaGHogX](https://t.co/ywLeaGHogX)
+> — Rick Scott (@SenRickScott) [February 29, 2020](https://twitter.com/SenRickScott/status/1233840087223455744?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：聽到美國第壹個因冠狀病毒去世的病例，深感痛心。我們必須盡壹切所能保證所有美國人的安全，並提供他們所需要的資源進行自我保護。
+
+《華爾街日報》：突發：華盛頓州報告美國第壹個死於冠狀病毒的病例
+
+> Glad to see that the Secure and Trusted Communications Networks Act of 2019 passed the Senate. 
+> 
+> The US should not be purchasing tech from our adversaries as it poses a serious national security threat. We must focus on protecting our data and intellectual property. [https://t.co/SH991NQQga](https://t.co/SH991NQQga)
+> — Rick Scott (@SenRickScott) [March 1, 2020](https://twitter.com/SenRickScott/status/1233921016671457280?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：很高興看到參議院通過了《2019安全和可信通信網絡法》。美國不應該從給我們帶來嚴重國家安全威脅的對手那裏購買科技產品。我們必須重點保護我們的數據和知識產權。
+
+參議院商業委員會：內容提示：壹項保護美國通信網絡不受華為、中興等外國公司威脅的法案在參議院得到通過，現在正被送往總統的辦公桌上！請看以下參議員Wicker的回復聲明：
+
+> [https://t.co/8G8oUo0uZb](https://t.co/8G8oUo0uZb) [pic.twitter.com/uoePAQ8Wyz](https://t.co/uoePAQ8Wyz)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [February 28, 2020](https://twitter.com/robert_spalding/status/1233367299463221248?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：
+
+Matt Stoller：中國人領導著國際電信聯盟、國際民航組織、聯合國工業發展組織和糧農組織。所有其它國家在聯合國專門機構中都只占有壹個領導職位。
+
+《外交政策》雜誌：中國競爭世界保護知識產權組織的領導席位
+
+> As the coronavirus spreads around the world, the Chinese government is fighting a war on two fronts: one against the virus itself and one against the truth. [https://t.co/f64DvPnQKf](https://t.co/f64DvPnQKf) [@PostOpinions](https://twitter.com/PostOpinions?ref_src=twsrc%5Etfw)
+> — Josh Rogin (@joshrogin) [February 28, 2020](https://twitter.com/joshrogin/status/1233390070784307200?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+Josh Rogin：當冠狀病毒在全世界擴散時，中國政府在應付兩個戰場：壹個是對抗病毒本身，另壹個是打壓真相。
+
+《華盛頓郵報》：觀點｜中國無法同時打擊病毒又反對真相
+
+> “For too long, American companies, politicians, and academics have caved to Chinese pressure, and the trend will continue as long as CCP-influenced academic rhetoric continues to dominate.” [https://t.co/SkMldW8cS4](https://t.co/SkMldW8cS4)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [February 29, 2020](https://twitter.com/robert_spalding/status/1233600830844043265?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“美國公司、政界人士和學者已經屈服於中國的壓力太久了，而且只要受中共影響的學術言論繼續占主導地位，這種趨勢就會繼續下去。”
+
+《偉大美國》新聞網：美國的對中政策主張的隱形代價
+
+> Exactly [https://t.co/tn56aMXxyE](https://t.co/tn56aMXxyE)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [February 29, 2020](https://twitter.com/robert_spalding/status/1233685079697895424?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：說的對
+
+《商業內參》雜誌：谷歌前CEO Eric Schmidt說，如果美國政府不介入，中國將取代矽谷世界科技巨頭的地位
+
+> This is the insanity we pour our retirement funds into. Good job Wall Street. [https://t.co/sPMIOVoWfN](https://t.co/sPMIOVoWfN)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [February 29, 2020](https://twitter.com/robert_spalding/status/1233876486702104578?ref_src=twsrc%5Etfw)
+
+> Insane. Yet in Chinese communist party land, it makes perfect sense. [https://t.co/k9g3uLYvFV](https://t.co/k9g3uLYvFV)
+> — Jan Jekielek (@JanJekielek) [February 29, 2020](https://twitter.com/JanJekielek/status/1233866681862311939?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這就是我們投入了大量退休基金的瘋狂（中國現狀）。幹得漂亮，華爾街。
+
+Jan Jekielek：瘋狂。然而在中共的土地上，這很能說得通。
+
+曾錚：視頻證據。在溫州，工廠經理說，因為政府把用電量當作復工率的壹個標準，所以他們必須在午夜之前用掉3000千瓦時的電量。盡管因為2019冠狀病毒導致原材料和工人缺乏，這個工廠無法復工，經理還是不得不打開所有空調和其它設備，來達到他們的消耗配額。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01013451/04_22-1.png)
+1+
