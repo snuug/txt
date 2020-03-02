@@ -1,107 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月1日美國政要推文精選
-`2020-03-02 02:09 GM65` [轉載自GNews](https://gnews.org/zh-hant/129470/)
+## 武漢肺炎下，“無網”之課多麼荒唐！
+`2020-03-02 02:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/129242/)
 
-> Coronavirus: In addition to screening travelers “prior to boarding” from certain designated high risk countries, or areas within those countries, they will also be screened when they arrive in America. Thank you! [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) [@SecAzar](https://twitter.com/SecAzar?ref_src=twsrc%5Etfw) [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw) [@CDCDirector](https://twitter.com/CDCDirector?ref_src=twsrc%5Etfw)
-> — Donald J. Trump (@realDonaldTrump) [March 1, 2020](https://twitter.com/realDonaldTrump/status/1234109126864707585?ref_src=twsrc%5Etfw)
+**作者：滅共日記**
 
-川普總統：冠狀病毒：從某些特定高風險國家或其國內某些區域來美國的人們，除了在“登機之前”對他們進行篩查，當到達美國之後要再進行一次篩查。謝謝！
+現在的中國，每一個人都在經歷著一段特殊的時期，但是我覺得，最放飛自我的就是現在的學生！從這次疫情開始，對於他們來說，什麼是作業，不存在的，根本不需要認真寫，反正老師也看不到他們偷懶，反正放假的日子也長的很！但是最近各地受疫情影響，陸續開始了網課模式，讓很多放飛自我的學生重新套上了小夾板！
 
-> Trade deal with China for President Trump to pursue: Make Beijing pay for the damage caused by the Wuhan virus. They have trillions in cash reserves and China’s Communist Party should be held accountable for China making the world sick with new microbes
-> — Bill Gertz (@BillGertz) [March 1, 2020](https://twitter.com/BillGertz/status/1234139234354827264?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01210456/%E5%9B%BE%E7%89%871-6.png)
 
-比爾·格茨先生：川普總統（應該）推行的與中國的貿易協議：讓北京賠償因武漢病毒造成的損失。他們有幾萬億的現金儲備，而中國用一種新微生物讓全世界都得病，中共應該對此負責。
+說實話，在我看來，上網課其實對大多數學生用處甚微，並且效率極低，要知道手機電腦本身對學生誘惑就大，學生面對著手機電腦怎麼可能認真學習？況且還是在家，學習氛圍幾乎沒有，怎麼靜下心學習？就算是學霸，也不可能試手機電腦一切玩物為糞土吧？而且現在學生不上學，以中國家長的一貫作風，寒暑假必然是要補回來的，所以我真不知道網課的意義在哪裡呢？而且上網課的學生那麼多，有的學校多則可能幾百人上一堂課，大家在群裡七嘴八舌的，怎麼能完全聽明白老師的重點和解答呢？網課需要家裡有網絡設備，一旦有的孩子家裡網絡出現問題，那課程就癱瘓了，沒有辦法跟上進度，落下的課程有誰能幫他們補上？最關鍵的是，網課的授課效果得不到保證，線下課的及時反饋可能是大型網課永遠企及不到的功能。雖然疫情當前，可能沒有更好的辦法解決學生上課的問題，我也不是否定網課的形式，只不過在我看來，這種網課的模式就是共產黨教育體制下的形式主義的表現！
 
-> This is big [https://t.co/OQh18RnqGQ](https://t.co/OQh18RnqGQ)
-> — Josh Hawley (@HawleyMO) [March 1, 2020](https://twitter.com/HawleyMO/status/1234230881419698182?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01210534/%E5%9B%BE%E7%89%872-9.png)
 
-參議員Josh Hawley：這事大了
+大家要知道，在家，上網課的最重要的要求就是必須有一個良好的上網的環境，可能對於城市和富裕的家庭來說，這根本不是問題，但是要知道中國還有很多基礎設施非常差，沒有網絡，網速不夠快的山區和農村，有誰想過這些農村的孩子呢？他們到底該怎麼上網課？農村的孩子缺少的東西太多太多了，跟城市的差距不是一般的大，有些地方的孩子，別說網絡了，可能生存溫飽都是問題，這種地方的孩子能有網絡就是一種奢求的渴望，要求能上網課的網速，更是難上加難。最近看到太多關於農村的孩子沒有辦法上網課一些心酸的事情！
 
-Stephen McDonell 連推：一份報告中提到關於強迫中國的維吾爾族人做苦力的指控，很多大公司將面臨這項指控的壓力，包括蘋果、寶馬、Gap、耐克、三星……這個名單很長： Abercrombie & Fitch（A&F）、宏基、阿迪達斯、阿爾斯通、亞馬遜、蘋果、華碩、北京汽車、寶馬、龐巴迪、博世、比亞迪、CK、金鼎電器、孩特、切瑞蒂1881、長安汽車、思科、中國中車、戴爾、伊萊克斯、斐樂、方正集團、廣汽集團（汽車）、Gap、吉利汽車、通用電氣、通用汽車、谷歌、H&M、海爾、哈特馬克思、海信、日立、惠普、宏達國際電子、華為、科大訊飛、傑克瓊斯、捷豹、日本顯示器公司、LLBean、拉科斯特、路虎、聯想、LG、李寧、Mayor、魅族、奔馳、MG、微軟、三菱、三美、耐克、任天堂、諾基亞、北臉、Oculus、Oppo、松下、Polo Ralph Lauren、彪馬、榮威、上汽、三星、上汽通用五菱、夏普、西門子、斯凱奇、索尼、TDK、Tommy Hilfiger、東芝、清華同方、優衣庫、維密、Vivo、大眾、小米、Zara、傑尼亞、中興。都是些大牌子，毫無疑問他們遇到問題了… #中國#新疆
+第一個：湖北長陽，小學生畢夢琪在家中上網課，但是大山里的信號弱。為了追逐信號，她媽媽在室外的開闊空間，用透明薄膜和竹條搭了個棚，女兒在裡面上課。真是古有鑿壁偷光，今有搭棚找網。
 
-> Confirmation of a [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) case in [#DominicanRepublic](https://twitter.com/hashtag/DominicanRepublic?src=hash&amp;ref_src=twsrc%5Etfw) is a troubling development:
-> 
-> -Chances of outbreak in [#Haiti](https://twitter.com/hashtag/Haiti?src=hash&amp;ref_src=twsrc%5Etfw) now very high & impact could be catastrophic
-> -Cases in [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) now a near certainty
-> 
-> Top priority must be preparedness for elderly & other vulnerable Floridians
-> — Marco Rubio (@marcorubio) [March 1, 2020](https://twitter.com/marcorubio/status/1234206901941997569?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01210603/%E5%9B%BE%E7%89%873-4.png)
 
-參議員Marco Rubio：多米尼加共和國確認一個冠狀病毒感染病例，這是令人不安的發展態勢：—現在海地爆發疫情的機率很高，而且可能是災難性的。 —現在幾乎可以確定佛羅里達州將出現感染病例。最重要的是必須做好準備，保護佛羅里達州的老年人和其他脆弱的人。
+第二個：河南洛寧，14歲女孩郭翠珠，因要上網課，爸爸手機流量不夠，每天只能去村支部蹭網學習。而這個時候，父親總是默默地蹲坐在角落陪伴女兒。天寒地凍，女孩埋頭苦讀，父親蹲守一邊。
 
-> Not a question of if but when confirmed cases of [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) are found in [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> We must provide accurate information on best ways to prevent it from spreading
-> 
-> And prioritize resources to help health care workers,the elderly & those with preexisting health conditions. [pic.twitter.com/54wCWKmDLA](https://t.co/54wCWKmDLA)
-> — Marco Rubio (@marcorubio) [March 2, 2020](https://twitter.com/marcorubio/status/1234287392997224450?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01210635/%E5%9B%BE%E7%89%874-3.png)
 
-參議員Marco Rubio：佛羅里達一定會出現冠狀病毒確診病例，只是時間早晚問題。我們必須提供準確的阻止它擴散的最好方法的信息。並且優先向醫務工作者、老年人和已有健康問題的人提供資源。
+第三個：15歲的四川女孩楊秀花則要難得多。她的學校要求每天早上7:45分打卡。可是她家附近連個手機信號都找不到。她費了好大的勁，四處尋找，終於在離家4公里外的一處懸崖邊找到了信號。我們是不是該反思一下，線上學習沒推動教育公平，反而在擴大差距？這樣的事情絕不是孤例，這些孩子還算是幸運的，起碼他們有父母陪在身邊，要知道還有很多和她年齡相仿的孩子，像一些留守兒童，父母不在身邊，只有年邁的老人照顧他們，這些老人更不可能懂網絡，又有多少孩子找遍了滿山遍野也依然找不到信號，誰能告訴我，他們到底該怎麼辦？
 
-> The threat of the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) continues to be a major concern. 
-> 
-> With the first US death yesterday and new cases in various countries each day, we must take every precaution to protect Americans. More travel restrictions is a common sense step. [https://t.co/X7LLbjWZgx](https://t.co/X7LLbjWZgx)
-> — Rick Scott (@SenRickScott) [March 1, 2020](https://twitter.com/SenRickScott/status/1234133523918983168?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01210704/%E5%9B%BE%E7%89%875-4.png)
 
-參議員Rick Scott：冠狀病毒帶來的威脅仍然是主要的擔憂。鑑於美國昨天已有首個死亡病例，且不同國家每天都有新增病例，我們必須採取一切預防措施來保護美國人。增加旅行限制是常識性的做法。
+親愛的戰友們，人人生而平等，難道農村孩子就沒有追求公平的權利嗎？每一個人都有夢想，每一個人都希望能和別人在一個公平舞台上博弈，難道農村孩子就有錯嗎？憑什麼這些孩子要經受這些不公平的待遇？這一切罪魁禍首，就是共產黨，就是他們讓中國社會城鄉教育資源差距變大！而現在宣傳的網課在我看來就是整個社會教育組織對山溝裡學生的一場霸凌盛宴！無論貧窮與否，真心的希望每一個孩子都不要被遺忘！每一個孩子都應該得到平等的對待！
 
-> Apparently [@Nike](https://twitter.com/Nike?ref_src=twsrc%5Etfw) only cares about human rights and taking a political stand when they can make money off of it.
-> 
-> Nike should immediately cut ties with factories in Communist China that force Uyghurs into slave labor. [https://t.co/FJGjfRwrHS](https://t.co/FJGjfRwrHS)
-> — Rick Scott (@SenRickScott) [March 2, 2020](https://twitter.com/SenRickScott/status/1234275912100859904?ref_src=twsrc%5Etfw)
+GNEWS之前文章： 
+中國上演的奇葩黨式隔離！ [https://gnews.org/zh-hans/128521/](https://gnews.org/zh-hans/128521/) 
+ 13歲男孩弒母！ [https://gnews.org/zh-hans/128269/](https://gnews.org/zh-hans/128269/) 
+比我生命更重要嗎？ [https://gnews.org/zh-hans/128091/](https://gnews.org/zh-hans/128091/)
 
-參議員Rick Scott：顯然，耐克只在能賺錢的時候才關心人權並有政治立場。中國強迫維吾爾族人從事奴隸勞動，耐克應該立刻切斷與中國工廠的聯繫。
+（文章內容僅代表作者觀點）
 
-> State health officials announced 2 presumptive positive [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) cases in FL.
-> My top priority is the health of Floridians. I've been in contact with federal, state & local officials & am confident they have the resources to keep families safe. But everyone must stay vigilant. [https://t.co/litKz4rQe8](https://t.co/litKz4rQe8)
-> — Rick Scott (@SenRickScott) [March 2, 2020](https://twitter.com/SenRickScott/status/1234315406426464256?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：州衛生官員宣布佛羅里達州出現2例推定冠狀病毒呈陽性病例。我的首要任務是佛羅里達人的健康。我一直與聯邦、州和地方官員保持聯繫，確信他們有足夠的資源保護各家安全。但所有人都要保持警惕。
-
-佛羅里達衛生部：佛羅里達有兩個推定冠狀病毒呈陽性病例：希爾斯伯勒縣的一名成年居民和海牛縣的一名成年居民。兩人都已被隔離並得到妥善照顧。
-
-> It's time to call out China's BS! [https://t.co/jGyf26tLpb](https://t.co/jGyf26tLpb) via [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 1, 2020](https://twitter.com/robert_spalding/status/1234038609923264512?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：現在該揭穿中國的謊話連篇了！
-
-YouTube視頻（一位在中國生活了14年半的美國人，以一個外國人的視角，用視頻記錄了中共統治下，中國乍看上去光鮮亮麗，實際上大多數人生活水平和衛生狀況低下，資源過度開發，各種污染、健康、民生問題嚴重的真實現狀。有人說熟悉的地方沒有風景。可是見慣了那麼多問題，我們的心卻不能變得麻木。中共治國，一味地追求利益最大化，無視對大自然的保護和對人性的尊重，對我們賴以生存的這片土地造成了深深的傷害，未來很多年可能都難以撫平。想想現在的孩子，有幾個見過繁星滿天的夜空，體會過毫無顧慮、撒歡兒一樣的街邊玩耍？可憐他們習以為常的是霧霾和心霾。我們需要改變體制、改善教育、放開言論和信仰自由，還大人們一顆真心，還孩子們一片藍天，一塊淨土，一個未來。編者按）
-
-> This is excellent. A must read on debt owed by emerging market countries to China. It requires a wholesale reassessment of EM financial health. [https://t.co/6UV5K6tv89](https://t.co/6UV5K6tv89)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 1, 2020](https://twitter.com/robert_spalding/status/1234120645224673288?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：這篇文章非常好。關於新興市場國家欠中國的債務的必讀文章。它要求對這些國家財務狀況進行整體重新評估。
-
-《哈佛商業評論》雜誌：世界欠中國多少錢？
-
-> Excellent report. Look at the section on bio. [https://t.co/miMzO90GVo](https://t.co/miMzO90GVo)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 1, 2020](https://twitter.com/robert_spalding/status/1234124273758986241?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：精彩報告。讀一下有關生物技術的部分。
-
-《歐亞評論》雜誌：頭腦戰爭：有分析稱，中國利用認知科學和生物技術追求軍事優勢
-
-> Never forget that China is filled with genuinely good and considerate people, ready to work hard and sacrifice themselves for others. Also never forget how the Chinese Communist Party is destroying the potential those people have to make China a warm place to live for everyone. [https://t.co/SJKE1vJVE3](https://t.co/SJKE1vJVE3)
-> — Jojje Olsson (@jojjeols) [March 1, 2020](https://twitter.com/jojjeols/status/1234119400753528833?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍轉推：
-
-Jojje Olsson：不要忘記，中國有很多生性善良和體貼的人，努力工作著，願意為別人做出奉獻。更不要忘了這些人有能力讓中國變成所有人溫馨生活的地方，而中共又是如何毀了他們的潛力的。
-
-Lily Kuo：鐘進杏，廣西一位32歲的醫生，因連續33天從事病毒“控制與預防”工作過度勞累而去世。 2月28日，一位同事撞開他的宿舍門發現了他。據報導，他已結婚，有一個6歲的女兒。
-
-> 👏👏👏 [https://t.co/0uhmZnJy9X](https://t.co/0uhmZnJy9X)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234317623766265859?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：👏👏👏
-
-美聯社新聞：五角大樓認為與塔利班簽訂協議將使注意力集中在（應對）中國上
-
-> Current understanding is [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) spreads mostly from person to person through respiratory droplets produced when a person coughs or sneezes, similar to how flu spreads. Learn more at [https://t.co/VvIzx7O3mM](https://t.co/VvIzx7O3mM) [pic.twitter.com/MiHHHyCfTa](https://t.co/MiHHHyCfTa)
-> — CDC (@CDCgov) [March 1, 2020](https://twitter.com/CDCgov/status/1234201238280994817?ref_src=twsrc%5Etfw)
-
-美國疾病防控中心：目前認為2019冠狀病毒主要通過咳嗽或打噴嚏時產生的呼吸道飛沫致使人與人之間傳播，與流感的傳播方式相似。了解更多內容[https://www.cdc.gov/coronavirus/2019-ncov/index.html](https://www.cdc.gov/coronavirus/2019-ncov/index.html)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/02020849/04_26.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/02020618/image0-11.jpg)
 0
