@@ -1,97 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19病毒爆發簡易模擬
-`2020-03-01 05:57 GM36` [轉載自GNews](https://gnews.org/zh-hant/128861/)
+## 一位基督徒與爆料革命：中共政權是裝滿了義人骨頭和粉飾一切污穢的墳墓
+`2020-03-01 10:31 GM30` [轉載自GNews](https://gnews.org/zh-hant/128118/)
 
-Mr. J 2020.3.1
+**作者：sojourners**
 
-中共生化武器COVID-19能否滅絕人類？存在這種可能，如果大家不作為的話。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054648/COVID-19_01-1.jpg)
-我們當然要有所作為。我們很難得到先進的生化武器傳播數學模型，於是我們可以利用遊戲和MOD來模擬。讓我們進入遊戲《瘟疫公司》（Plague Inc.）和名聲大噪的MOD“關閉壹切”。
+中國的基督徒一直受到“不可論斷人”（參馬太福音7:1—2）的錯誤教導的餵養，從而失去批評政府的自由。這種自由的批評是上帝賦予一個公民基本的良心發現以及聖靈的感動的心，因為聖經裡說，“不要消滅聖靈的感動，”（帖撒羅尼迦前書5:19），所以這種“良心的自由在成熟國家裡，在成熟人的身上不可抗拒地體現出來。一個真正成熟的人，為了良心自由的緣故，寧可自願流放，寧可坐牢，甚至寧可犧牲自己的生命。”（參亞伯拉罕.凱波爾《加爾文主義與政治》），這就是基督精神。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054720/COVID-19_02-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054731/COVID-19_03-2.jpg)
+基督徒都知道馬丁路德的宗教改革，那是一場完全的基督教領域的撥亂反正，是新教倫理的革命。這場革命將基督真道徹底還原使徒時代的初代教會的良心，因此，荷蘭著名神學家亞伯拉罕.凱波爾繼續說道：“在宗教改革的英勇鬥爭中，為了使這一人類自由中最寶貴的自由脫離專制制度的桎梏，鮮血流成了河。今天任何一個宗教改革的後代若不奮力捍衛我們的這一自由就是在踐踏父輩的榮譽”。因此，凱波爾博士繼續說道，“假如政府想要管理百姓，他必須尊重我們人類最高的道德力量”（參亞伯拉罕.凱波爾《加爾文主義與政治》）這既是對專制政權的批評與勸勉，也是在繼續強調基督新教倫理的核心立場，即上帝是忌邪的神，我們不可對邪惡世界視而不見。
 
+新約聖經中耶穌基督在批評專制政權的時候毫不掩飾自己的憤怒和露骨又刺耳且扎心的批評，主說：“你們這假冒為善的文士和法利賽人有禍了！因為你們好像粉飾的墳墓，外面好看，裡面卻裝滿了死人的骨頭和一切的污穢”。 （馬太福音23:27）這是批評耶穌時代的宗教領袖（文士法利賽人）們的話，放在今天，同樣適用中共政權以及貪婪的中共官員們。他們在建造新疆集中營虐殺新疆人的時候，美其名曰“新疆維吾爾自治區勞動教養管理局”；他們在鎮壓西藏人的時候，說是藏獨；1989年的六四時鎮壓漢人學生運動說是恐怖分子；鎮壓異見人士、鎮壓知識分子、教師、牧師、基督徒的時候，美其名曰是叛國者和西方勢力培養的間諜和別有用心的陰謀家等等。 CCP執政70年來，從未容忍他的百姓批評過自己，更不用說在任何一次政府失職或違法而引發的群體事件後有個哪怕一次公開的謝罪的都沒有，都是百姓的錯。在CCP治下的國家沒有公民，尤其是**歷史進入到2015年後，執政當局完全劫持了國家** ， **企圖通過一帶一路和對華爾街的控制，以及千人計劃，加上藍金黃和BGY計劃準備劫持整個世界** 。 **如今武漢新冠肺炎已經被國際社會公認為是生化武器，這不僅僅是要毒死中國人，更是有意將病毒散播到美國和全世界** 。
 
-毫無疑問，COVID-19是生化武器，中共生化武器。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054740/COVID-19_04-2.jpg)
-我們全力以赴應對這場生化危機，所以將遊戲難度設定為“困難”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054751/COVID-19_05-3.jpg)
-將瘟疫名稱設定為“COVID-19”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054816/COVID-19_06-2.jpg)
-參照現實中的COVID-19的病毒特征，盡量使基因序列接近現實，分別為：ATP高能量（對應生化武器）、大氣親和性、靜態傳播基因（對應中共基因編輯行為）、達爾文主義者（對應高變異率）、極端微生物（對應武器級適應能力）。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054835/COVID-19_07-2.jpg)
-進入遊戲模擬，並參照現實將遊戲起始點設定為中國。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/02/29215609/%E5%9B%BE%E7%89%871-3.jpg)
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054848/COVID-19_08-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054858/COVID-19_09-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054911/COVID-19_10-2.jpg)
+有證據顯示，在中共和美國簽署貿易協議第一階段協議時病毒就已經擴散了，財新網於2019年12月26日就已經報導了疫情。而中美第一階段貿易協議是在2020年1月15日簽署的，路德社2020年1月18日就率先獨家報導了這一戰役的疫情。這更加令人毛骨悚然。凡對CCP 的邪惡計劃提出批評的就會重則人間消失，輕則牢獄之災。武漢醫生吹哨人李文亮就是例證，諸如此類悲慘命運的“先知”，在中共國從來都不含糊——殺無赦。正如聖經裡說的那樣， [“這就是你們自己證明是殺害先知者的子孫了”。](http://sj.jidujiao.com/piece.php?bibleno=40&amp;chapter=23&amp;section=31&amp;loc=1#31) （馬太福音23:31）不但將生化武器級別的病毒釋放給自己的百姓，還力圖傳播到美國和全球，凡在中共官方社交平台傳送新冠炎病毒的人一律抓捕，甚至殺害。一個舉國之力殺害異己者、殺害吹哨人的國家政權在現代文明世界十分罕見。
+
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/02/29220653/%E5%9B%BE%E7%89%872-144.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/02/29220749/%E5%9B%BE%E7%89%873-119.png)
 
 
-模擬進程開始後，嚴格參照COVID-19的實際臨床表現設定發病癥狀，依次為：咳嗽、肺炎、噴嚏、肺間質纖維化、免疫抑制、發熱。不做其它額外添加。
+滅共者郭先生本是其中的受害者之一，如今郭先生被迫流亡到美國，成為一名舉世矚目的滅共者，這令筆者想到了聖經中約瑟的遭遇，當約瑟被自己的兄長出賣到埃及後，成為埃及的宰相，後因以色列全鏡出現罕見的旱災，被迫去埃及賣糧吃的時候兄弟重逢，此時約瑟的兄長們早已無法辨認十幾年前弟弟，而此時約瑟已經身為一國宰相，本可以報當年謀害他的哥哥們的仇，但約瑟選擇了饒恕，以德抱怨。於是，約瑟說：“從前你們的意思是要害我，但神的意思原是好的，要保全許多人的性命，成就今日的光景”（創世記50:20）。如今眼睜睜地看到CCP即將脆斷之際，竟擺出最後瘋狂的招數——向香港發動了生化戰，卻鬼使神差地發展到了不可控地步之後又以恐怖的速度從香港迂迴到武漢又向全球蔓延，由於CCP隱瞞疫情，自動發動了這一場百年不遇的生化戰，導致的人道災難波及到的國家多達42個之多。
 
-依次為：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01054957/COVID-19_11-3.jpg)
-傳播途徑僅保守限定為：嚙齒動物傳播1級、家畜傳播1級、鳥類傳播1級、空氣傳播1級、水源傳播1級，不進行升級，放棄針對炎熱環境和低收入區域的昆蟲傳播和血液傳播。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055007/COVID-19_12-2.jpg)
-模擬到此時，在不到5個月的時間裏，全球已經有超過13.4億人被感染，超過1.5億人死亡。在現實條件下，即便以這13.4億人為最小感染規模，按照生化專家給出的15%致死率和中共給出的2%致死率，死亡人口分別是2.01億人和2680萬人。COVID-19的真實致死率很可能超過15%。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055016/COVID-19_13-2.jpg)
-當在模擬進程下還原出COVID-19的基本DNA特征時（抗藥能力1級、抗藥能力2級、基因強化1級、基因重組1級、基因重組2級、基因重組3級），全球死亡人口已經超過19億人，解藥研發進度為46%。
+而郭先生至今所做的一切都是以一顆華夏子孫的胸懷，也為了人類的和平，在這場戰役中力挽狂瀾，抓住了CCP犯罪的證據，抓住了戰爭的主動權，因此，筆者深信，郭先生為“要保全許多人的性命，成就今日的光景”。這光景就是喚醒了國人的心、喚醒了美國以及西方世界的正義力量，相信CCP的末日即將來到。而這一切所要成的事，筆者更加相信“這是耶和華所作的，在我們眼中看為希奇”。 （詩篇118:23）
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055039/COVID-19_14-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055049/COVID-19_15-2.jpg)
-
-
-此時的全球人類已經死亡27%，請記住這個數字。附全球人口曲線圖、疾病進化曲線圖、解藥研制曲線圖。需要說明的是，由於設定的保守，傳染性被人為壓制到了SARS的水平，現實中COVID-19的傳染性高出SARS數十倍，同時作為生化武器也更加致命。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055102/COVID-19_16-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055112/COVID-19_17-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055121/COVID-19_18-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055142/COVID-19_19-2.jpg)
-
-
-截至此時全球死亡的19億人口中，包含了中國14億人口。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055134/COVID-19_20-2.jpg)
-模擬過程中COVID-19先後自動進化出了“失眠”和“出汗”，因為符合現實情況，予以保留，實際上對模擬進程影響可以忽略不計。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055133/COVID-19_21-2.jpg)
-隔離！隔離！隔離！隔離的意義不亞於解藥研發，隔離極為有效的控制了新增感染人口。隔離，自我隔離，交通隔離，全球隔離，這是最重要的事！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055154/COVID-19_22-2.jpg)
-近15個月過去，COVID-19解藥研發成功並開始在全世界分發。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055202/COVID-19_23-2.jpg)
-模擬進程中COVID-19的各項設定得到了遵守。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055214/COVID-19_24-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055228/COVID-19_25-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055239/COVID-19_26-2.jpg)
-
-
-數據顯示，在COVID-19解藥研發進程的47%-100%階段，全球死亡人口停留在了27%，“隔離”非常有效的阻止了“新增”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055228/COVID-19_27-2.jpg)
-模擬結果顯示東亞、中亞被摧毀，當前的現實情況是韓國和意大利疫情嚴重。事實上，我個人認為歐洲法語區國家未來將是疫情最重的國家，凡事皆有代價。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055238/COVID-19_28-2.jpg)
-最終的全球人口曲線圖、解藥研制曲線圖、疾病進化曲線圖。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055252/COVID-19_29-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055301/COVID-19_30-2.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055309/COVID-19_31-2.jpg)
-
-
-我們確實會擊敗COVID-19病毒，但是這只是對生者而言。況且，COVID-19病毒的大爆發還沒有到來，我們誰都無法確定自己能夠活下來。模擬數據顯示全球死亡率為27%，而中國死亡率為100%，即使在現實條件下將數字下調壹半，您能夠接受嗎？
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055319/COVID-19_32-2.jpg)
-模擬進程耗時470天，我們要堅持這麽久，我們如何才能在隔離條件下堅持這麽久呢？答案是儲備。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055330/COVID-19_33-2.jpg)
-這是爆發初期的日死亡人數，超過200萬的日死亡人口，這還不是最高的數字。保存這張圖片吧，如果某壹天您堅持不下去了，看壹看這張圖片。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01055338/COVID-19_34-2.jpg)
-結論：
-<br>COVID-19疫情大爆發尚未開始；
-<br>會死很多人；
-<br>隔離是最有效的保障措施。
-
-請大家儲備好食品和藥品，做好隔離，認真鍛煉身體，等待滅共，等待解藥，等待勝利！
-
-壹切已經開始！
-
-GM36
+（文章內容僅代表作者觀點）
 
 0
