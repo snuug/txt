@@ -1,61 +1,151 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最佳避險選擇：美金當之無愧
-`2020-03-01 22:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/128801/)
+## 關於文貴口中的當代袁世凱的猜想
+`2020-03-01 23:24 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/129022/)
 
-[https://spark.adobe.com/page/oYNDxrMD4PPJy/](https://spark.adobe.com/page/oYNDxrMD4PPJy/)
+[https://spark.adobe.com/page/EZCCT3vxWQUN0/](https://spark.adobe.com/page/EZCCT3vxWQUN0/)
 
-*來源: ZeroHedge, Fri, 02/28/2020 – 10:41*
+#### 【 DT [@DTinLAC](https://twitter.com/DTinLAC) 挖掘機團隊出品！！！】
 
-*作者：Tyler Durden*
+翻译： ignoreme, newbief, TCC
 
-*翻譯：Roberts；RA61*
+PR： TCC
 
-*簡評：Roberts；海闊天空*
+### **推1：核彈! 誰是當代袁世凱?!**
 
-**評論: 在各國中央銀行為了穩定“繁榮經濟”紛紛向金融系統大量注水，致使人們對現有銀行系統信心下降，股票市場開始動盪，多個國家銀行體系面臨崩潰，必將導致全球經濟的重新調整。在這一過程中，美元不失為持有貨幣的最佳選擇。**
+以下內容純屬瞎蒙,如有雷同實屬巧合。 不喜勿噴, 謝謝!
 
-**貨幣是一個國家綜合實力的體現。目前，在全球的外匯儲備中，美國以64.7%的比例傲居全球之首。資本天生逐利，天生具有最敏銳的嗅覺，能找到安全之所。美元為什麼能獲得世界各國的青睞，給各國信心，成為各國投資者的依靠？這不僅僅是因為美國雄厚的經濟實力，更重要的是美國一直堅定地捍衛民主、自由的價值理念，是自由世界的燈塔，是守望人類的希望。雖然本文作者對特朗普總統多有微詞，但無可否認的是，特朗普總統上臺以來，堅定地復興美國，同時對世界邪惡力量毫不留情地進行打擊，堅定地捍衛了美國的傳統價值觀念。美國強大，美元才能持續堅挺。**
+文貴先生說了多次, 中國會出來一個袁世凱, 一個華盛頓! 袁世凱肯定是先出來的, 那我們就先在共匪茅屎坑裡挖兩下? 大家備好防毒面具免得受不了那個腐臭!
 
-**相對於中共國的人民幣來說，中共國在國際市場上撒潑耍賴，信用盡失；中共國經濟搖搖欲墜，虛假的經濟、金融系統一觸即破；中共國的央行又毫無廉恥、毫無節操地大量放水；銀行畸形的運行系統使其早已成為盜國賊和大國企的提款機，成為竊取百姓財富的割草機。人民幣成為冥幣的時代近在咫尺了！**
+翠花, 上袁世凱! 哦不, 上末代皇帝!
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01150437/image-4.png)
+### **推2： 誰是當代袁世凱?**
 
-## **美元先漲後退- 為什麼？**
+先奉上思維導圖一張, 是為了請大家看的更清晰, 思路更順暢! 袁世凱就在圖中! 挖寶遊戲開始!
 
-近期，因大量熱錢通過兌換成日元的方式出逃中國導致美元走勢疲軟，同時歐元經過此前下跌有所反彈（死貓效應）。儘管如此，美元依然處於高位。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/775494c0-0cbb-403b-b15c-f1fd85bd6580.png?asset_id=9c1d7dc4-b68d-433a-97ff-4cd3bc0ea394&amp;img_etag=0e8ade67b438528ccba84bab0790a8f7&amp;size=2560)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/775494c0-0cbb-403b-b15c-f1fd85bd6580.png?asset_id=9c1d7dc4-b68d-433a-97ff-4cd3bc0ea394&amp;img_etag=0e8ade67b438528ccba84bab0790a8f7&amp;size=1024)
-貨幣匯率似乎被鎖定在一個狹窄的交易區間，這可能是央行操縱走向極端的又一個跡象。2015年年底，大量財富開始流入美國，以尋求保護，免受其所遭受的破壞。從那以後發生了很多事情。由於特朗普和許多其他貶低美元的人、貿易戰和幾種虛擬貨幣的引入，使美元略顯疲軟。儘管如此，美元仍相對強勁，美元大幅升值被視為全球金融體系的一顆定時炸彈。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/b0eadc13-cb63-43c4-973a-148d43610a19.png?asset_id=362b81c6-f312-41e9-af30-56ade123c39b&amp;img_etag=ca0db10b395af765b0a9d2f08c35fb19&amp;size=2560)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/b0eadc13-cb63-43c4-973a-148d43610a19.png?asset_id=362b81c6-f312-41e9-af30-56ade123c39b&amp;img_etag=ca0db10b395af765b0a9d2f08c35fb19&amp;size=1024)
-美元走強的主要原因是許多國家採取的政策比美國領導人選擇的政策更糟糕。全球的投資者都在進行大量的投機遊戲，其中包含很多風險。這是由於在充滿挑戰的環境中獲得合理利潤的驅使。儘管如此，所有這些趨向於強化了美元是全球金融的關鍵這一事實，並保證了自己在跌勢之前一直處於領先地位。
+如果圖中有錯誤, 那是DT學習不精細, 請戰友們隨時指出即可。
 
-美元走強折射出全球經濟的不穩定，這也是中央銀行要極力避免的。或許這也解釋了各國央行為何紛紛向金融系統池中注水，且步調一致。直言不諱地講，如果沒有美聯儲的參與和默許，過去十年中信貸的迅速膨脹是不可能發生的。如果沒有美聯儲的認可，美元也不可能作為支撐世界經濟的最強貨幣。這個格局的形成還要追溯到2008年爆發的金融危機，在以往政策不再能滿足經濟發展的情況下 當時的美聯儲主席Ben Bernanke及時調整了政策，採取大規模量化寬鬆的金融政策（QE），從而刺激了全球經濟的復蘇。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/e61b445a-aa0f-4a2b-bc05-68502fd12160.png?asset_id=0a9d33be-f50f-4bb3-b32f-0a39f469b3a0&amp;img_etag=d3e0f365bfc280fcca35b9c07d718f16&amp;size=2560)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/e61b445a-aa0f-4a2b-bc05-68502fd12160.png?asset_id=0a9d33be-f50f-4bb3-b32f-0a39f469b3a0&amp;img_etag=d3e0f365bfc280fcca35b9c07d718f16&amp;size=1024)
-如今，量化寬鬆已成為病態金融體系的生命線，而非恢復健康所需的刺激。這又回到了很少有人持有的觀點，即美聯儲主席鮑威爾做出的政策調整更多是出於對美元走強會讓金融體系崩潰的擔憂，而不是來自特朗普總統敲打。它還可能與最近的“回購流動性”問題以及資金流向問題有關。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/df6d0008-413d-49f9-8b1c-c32d138714ce.png?asset_id=23471620-3b77-4769-bb78-f93721913121&amp;img_etag=2d06805a44006c9d0206af2433c58b0d&amp;size=2560)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/df6d0008-413d-49f9-8b1c-c32d138714ce.png?asset_id=23471620-3b77-4769-bb78-f93721913121&amp;img_etag=2d06805a44006c9d0206af2433c58b0d&amp;size=1024)
-一個佔據主導地位的穩定貨幣會使其他貨幣屈從甚至付出高昂代價。對於任何國家而言，若不顧經濟實際情況而濫用這條金融定律，勢必將為此付出痛苦代價。這在任何國家的帳戶餘額中都有體現，這些國家眼睜睜地看著本國貨幣貶值，因為其進口遠遠超過出口。一般來說，財富傾向于流向安全、受保護的地方。在財富能夠迅速跨越國界的今天尤其如此。資本的流入或流出是一件大事。
+以末代皇帝為核心的一個共匪最後的烏托邦, 該結束了!
 
-縱觀歷史，資本會追隨強勢貨幣，這就意味著世界各地的財富和資本會湧進美國。流入美國的資本會流入債券和股票去支撐較低的利率和股市市場。 對於我的老讀者都知道，我認為美國股市場被高估了，而債券市場的“泡沫”會隨時破滅，但只要美國一直是資本存放最安全保險的地方，美元就不會貶值。當這種“自我補償”模式得以自我迴圈時，美元將變得堅挺無比.
+在這裡, 榮登老佛爺寶座的, 肯定是江澤民啦! 這個位置非它莫屬哇!
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/c81a2441-036b-4351-8e9e-872ca81268bf.png?asset_id=0c6a42b4-3c68-42a0-9295-57db79505cae&amp;img_etag=cdbf454a0f6548f64fe63b97374f39f3&amp;size=2560)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/c81a2441-036b-4351-8e9e-872ca81268bf.png?asset_id=0c6a42b4-3c68-42a0-9295-57db79505cae&amp;img_etag=cdbf454a0f6548f64fe63b97374f39f3&amp;size=1024)
+末代皇帝習近平
 
-中央銀行操縱貨幣市場這一理論的重要部分是基於這樣一種想法，即幾種貨幣已經變得相當脆弱。考慮到這一點，中央銀行似乎正在盡一切努力通過將貨幣交易保持在“安靜”範圍內來增強經濟穩定的感覺。他們的優勢在於，人們認為全球經濟正在穩步發展，因為世界各地的中央銀行繼續印鈔並抽出資金，以尋找從未真正到來的“難以捉摸的增長”。
+江澤民:老佛爺慈禧太后
 
-不要低估跨境資金作為強大的經濟力量進入一個國家的力量。儘管美元被描述為壁櫥中最乾淨的髒襯衫，或是劣質社區中最好的房子，畢竟它還是被認為是矮子裡的將軍。現實是其他選擇都沒有通過氣味測試。部分原因是因為美元作為世界儲備貨幣，相對於其他貨幣具有巨大的優勢。這使其成為“預設貨幣”，並根據美元的市場規模，流通量和流動性來衡量，考量，和固定其他所有貨幣。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/f7ab8b12-7818-403f-af21-3b0745c72024.png?asset_id=242a6a56-6036-4d48-ad41-d5a02ec9f627&amp;img_etag=78e2a335652a46c30b484813e0e16bb2&amp;size=2560)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/f7ab8b12-7818-403f-af21-3b0745c72024.png?asset_id=242a6a56-6036-4d48-ad41-d5a02ec9f627&amp;img_etag=78e2a335652a46c30b484813e0e16bb2&amp;size=1024)
-理解美元非常重要的圖表
+李克強: 婉容皇后, 打醬油的啊
 
-上圖顯示了主導世界舞臺的四種主要貨幣。它們是英鎊，歐元，日元，當然還有美元。其餘所有貨幣在整體方案中都是小參與者。約翰·梅納德·凱恩斯（John Maynard Keynes）說，通過不斷的通貨膨脹，政府可以通過秘密的和難以察覺的方式侵佔其公民財富的重要部分。由於中央銀行瘋狂地控制債券利率，貨幣就會貶值。儘管沒有很多債券守護人，但還是有很多貨幣守護人隨時準備讓人們知道他們的存在。
+栗戰書: 河北師範夜校畢業的紅二代, 您好啊
 
-低利率加上寬鬆的信貸導致的熱錢湧入經濟，往往會造成繁榮的幻覺。國家竊取財富的“特洛伊木馬方法”是通過債務貨幣化。這是通過大量印製新貨幣或新稅來完成的。如果您仔細觀察的話，您會看到貨幣市場開始反映出人們對央行創建的系統的信心下降。這一點從對黃金的重新燃起的興趣和大量新的加密貨幣的出現可以看出。
+汪洋: 黨校畢業的團派人物, 您有何打算?
 
-我們創造的虛假經濟可能會迅速消失。股市開始動盪，特朗普總統加大了對美聯儲主席傑羅姆•鮑威爾(Jerome Powell)的攻擊力度，稱其“破壞了派對”，這突顯出美國經濟多麼依賴持續的廉價資金流動。特朗普已經成為市場的首席啦啦隊長，並不斷指出飆升的股市證明瞭他在促進經濟增長方面的技能。事實上，他那有缺陷的稅收改革方案主要是通過鼓勵大規模股票回購讓富人受益，只是這種做法加上大規模的赤字支出，才讓繁榮的假像得以延續。
-[!\[\](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/fc178424-9e40-4acb-804a-e853eda16d10.jpg?asset_id=dc884003-2651-4ae9-b719-1810ae51f0e3&amp;img_etag=baa4febf727f7a320cc4bdf92a16ca28&amp;size=1024)](https://spark.adobe.com/page/oYNDxrMD4PPJy/images/fc178424-9e40-4acb-804a-e853eda16d10.jpg?asset_id=dc884003-2651-4ae9-b719-1810ae51f0e3&amp;img_etag=baa4febf727f7a320cc4bdf92a16ca28&amp;size=1024)
-中央銀行進行貨幣創造的實驗將它們推進一個角落。他們目前的政策應該使我們對貨幣作為未來經濟工具的使用提出質疑。由於其安全存儲財富的能力受到嚴格審查，這也增加了更多貨幣失敗的風險。貨幣正在演變為政府的工具，並已成為武器，這使它們脫離了其最初的商業交易媒介角色。再次必須指出，美元作為儲備貨幣的作用使其在世界市場上的重要性太大。毫無疑問，它是其他貨幣和商品的評估基準。
+王滬寧: 老佛爺的親隨, 大太監李蓮英公公哇
 
-綜合考慮所有因素，法定貨幣通常是相當薄弱的一部分。這意味著最好不要看得太近，否則系統會因信仰而粘在一起，祈禱可能會崩潰。總體而言，美元比起其弱勢的姐妹歐元和日元仍然是更好的持有貨幣。如果確實中央銀行落後於相對窄幅的貨幣交易，則必須注意，這種貨幣操縱是下手的非常危險的途徑。這是一個滑坡，使貨幣的實際價值受到質疑，並進一步扭曲了真實的價格發現。
+趙樂際: 工農兵大學生出身的交了投名狀投靠的卻是最後一個皇帝, 咋辦?
 
-隨著貨幣遊戲的不斷發展，很明顯我們的許多金融結構都建立在不斷變化的沙灘上。這意味著銀行家多年來用於隱藏和轉移債務的計畫正受到攻擊。如果當前的體系崩潰，它將掀起全球經濟體系的重新調整的到高潮。如果世界各地的人們試圖擺脫本國貨幣，那麼美元的升值是合乎邏輯的。最後，這將不是美國或其經濟的救贖，但它肯定會創造一種提升動力，我們應該明智地利用這一優勢。
+韓正: 您在海外的情人和私生子安排的如何了?
 
-[新聞鏈結](https://www.zerohedge.com/geopolitical/dollar-pushed-higher-then-backed-why)
+王岐山:鐵帽子王, 溥偉
 
-**編輯 【喜馬拉雅戰鷹團**】
+孟建柱: 孟監國, 攝政王載灃
+
+孫力軍:孟建柱的頭號殺手馬仔, 孟建柱夫人的床上最愛! 和孟建柱共用一個情人董卿的婊兄弟!
+
+王毅: 現任外交部長, 一派胡言! 關門, 放王毅!
+
+###  **推3： 誰是當代袁世凱?**
+
+我們就從這張導圖中,分析出誰是袁世凱!
+
+從是誰在中南坑下毒開始!
+
+既然3月份中南坑要有3個以上去八寶山焚化爐報導, 那麼放毒者就可以排除七常委。 老蛤蟆肯定不會, 王岐山呐? 嗯? 你說啥? 王岐山也不會?! 可我認為王岐山會呢? 誰去干? 孟建柱孫力軍啊, 不是現成的殺手馬仔嗎?
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/ad9e96e3-4cdd-4a86-a412-d6dd6d00cd35.jpg?asset_id=e8ed9d04-802d-47ad-ba84-e4445c31866d&amp;img_etag=10f937759bea61a30917167c27af6791&amp;size=1024)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/ad9e96e3-4cdd-4a86-a412-d6dd6d00cd35.jpg?asset_id=e8ed9d04-802d-47ad-ba84-e4445c31866d&amp;img_etag=10f937759bea61a30917167c27af6791&amp;size=1024)
+### **推4： 誰是當代袁世凱?**
+
+還有誰敢在中那坑下毒嗎? 沒了!
+
+下毒的目的是什麼? 殺人! 殺常委,最好連習一起殺了! 那二號權力人物、鐵帽子王, 是不是就可以登基了?!
+
+所以, 在中南坑下毒, 是王岐山。
+
+老王想: 你們真偉大光榮正確到刀槍不入我也不怕, 我放毒!
+
+即將喜奔八寶山的常委們, 你們醒了沒?
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/99ac1f9b-4cd7-46b7-88ac-e8ed675a60de.jpg?asset_id=ff67c9a6-d04b-4e40-aa97-611b221cee63&amp;img_etag=4e348ebbbdd6d1ffdaa4ba45ea33f577&amp;size=2560)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/99ac1f9b-4cd7-46b7-88ac-e8ed675a60de.jpg?asset_id=ff67c9a6-d04b-4e40-aa97-611b221cee63&amp;img_etag=4e348ebbbdd6d1ffdaa4ba45ea33f577&amp;size=1024)
+### **推5： 誰是當代袁世凱?**
+
+看來袁世凱就是王岐山了? 別急, 還沒分析完呐~~~
+
+那孟監國就不能是袁世凱嗎? 孟監國可比孫力軍牛叉多了啊, 雖然一起睡過董卿 (是不是3P我可不知道,董卿在美國生的兒子是誰的我也不知道), 但是老大就要有老大的氣度和風範, 哪怕老婆被馬仔睡了也只是微微一笑, 絕對不抽~~~~
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01152513/image-6.png)
+### **推6： 誰是當代袁世凱?**
+
+孫力軍和孟建柱老婆蔣其芳在美國的時候, 孫力軍奉老大命令照顧孟夫人蔣其芳, 後來就給照顧的無微不至, 孟夫人蔣其芳孫力軍的口活。。。。 咳咳咳, 後面自己去想像3000字。。。
+
+鑰匙楊看這個孟孫一起睡董卿會不會吃醋哇?。。。。。。
+
+吳征在心裡默默說了一個字。。。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/01152323/image-5.png)
+### **推7： 誰是當代袁世凱?**
+
+接著分析,該到誰了? 哦,”一派胡言啊”~~這是薄熙來還是王毅呐? 王毅!
+
+乍一看照片, 以為看見鬼了, 誰啊, 魔鬼周恩來!
+
+這人剛猛有餘, 任性太差, 您哪能在眾多媒體面前張開糞門就「一派胡言」呐? 沒底蘊, 沉不住氣, 難當大屎,
+
+哦不, 大事!
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/0dd4447f-a477-4429-b610-cc249f9f5a2c.png?asset_id=68dda840-1bbd-49ba-ab0a-36bf41a0fbcf&amp;img_etag=e7e94514bc7e1ff816d555df5e81ae27&amp;size=2927)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/0dd4447f-a477-4429-b610-cc249f9f5a2c.png?asset_id=68dda840-1bbd-49ba-ab0a-36bf41a0fbcf&amp;img_etag=e7e94514bc7e1ff816d555df5e81ae27&amp;size=1024)
+推8： 誰是當代袁世凱?
+
+接著看, 楊潔篪!
+
+嗯?! 似乎有東西在腦海閃過。。。 七哥說過好幾次, 這個人可不簡單, 那也是雙休教的教宗級別的人物啊!
+
+面相太有喜感了~~~最引人注目的, 就是那雙炯炯有神的綠豆眼~~~
+
+楊潔篪可不簡單, 曾經被小布希他爹老布希稱為”Tiger Yang 老虎楊”
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/53129aba-7881-42e9-8669-27f31863eb42.png?asset_id=f02c6384-b02d-484b-ab14-caae54ea0cea&amp;img_etag=8354c21e943f55e310549200558129c0&amp;size=2854)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/53129aba-7881-42e9-8669-27f31863eb42.png?asset_id=f02c6384-b02d-484b-ab14-caae54ea0cea&amp;img_etag=8354c21e943f55e310549200558129c0&amp;size=1024)
+推9： 誰是當代袁世凱?
+
+楊潔篪, 1950年生於上海。
+
+「篪」指一種笛子, 要不您改名叫楊擀麵杖如何?。
+
+中國職業外交官、中共高層領導人。 南京大學歷史學系世界史專業畢業, 歷史學博士。 現中共中央政治局委員, 中央外事工作委員會秘書長兼辦公室主任, =秘書長, (這孫子也是江家人馬! )
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/0e0fb97e-4812-4956-9ddf-66d7eb6d6954.png?asset_id=0cc34d32-ec96-4429-b221-43d4e0a0a653&amp;img_etag=4d7b4232b018fd181afc7cbf87369a42&amp;size=2560)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/0e0fb97e-4812-4956-9ddf-66d7eb6d6954.png?asset_id=0cc34d32-ec96-4429-b221-43d4e0a0a653&amp;img_etag=4d7b4232b018fd181afc7cbf87369a42&amp;size=1024)
+推10： 誰是當代袁世凱?
+
+中央港澳工作協調小組副組長。 曾任國務委員、第十二屆國務院黨組成員。
+
+在中國駐美國大使館工作過12年, 與布希家族建立良好關係。 有媒體披露, 布希家族在某些情況下, 會選擇與楊潔篪私下溝通, 作為與中國政府溝通的管道。 管道, 就是下水道了? 排泄污穢用的! 背景挺厚!
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/b5b9804d-9003-4e2d-b95f-e0c07d2f3559.png?asset_id=1bf91a4c-089e-4fda-a267-f50a646b14e2&amp;img_etag=d13ecd20ec36f230b3ef5a53c456cfef&amp;size=2560)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/b5b9804d-9003-4e2d-b95f-e0c07d2f3559.png?asset_id=1bf91a4c-089e-4fda-a267-f50a646b14e2&amp;img_etag=d13ecd20ec36f230b3ef5a53c456cfef&amp;size=1024)
+### **推11： 誰是當代袁世凱?**
+
+2019年11月26日,中共中央政治局委員、中央外事工作委員會辦公室主任, 楊潔篪, 楊擀麵杖, 就美國國會近日通過”2019年香港人權與民主法案”接受新華社妓者踩訪, 對美國表示強烈譴責和反對!
+
+共匪老王八一隻!
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/4a16eea9-dbfe-4b2c-97bc-d9c2069c6d8a.png?asset_id=1d4320a5-769e-4a61-9b46-3378df40de35&amp;img_etag=f6b1e5eceafad0d3bc20d1575c1fd48f&amp;size=1024)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/4a16eea9-dbfe-4b2c-97bc-d9c2069c6d8a.png?asset_id=1d4320a5-769e-4a61-9b46-3378df40de35&amp;img_etag=f6b1e5eceafad0d3bc20d1575c1fd48f&amp;size=1024)
+### **推12： 誰是當代袁世凱?**
+
+還記得文貴先生提過幾次楊潔篪嗎? 從2018年4月就說過! 說這人非常重要!
+
+楊潔篪,就是那個要做袁世凱的人!
+
+楊潔篪,江派人, 也是江澤民打算推出的奇兵。 楊在對外各方面輕車熟路, 而且在香港問題上堅決譴責美國,
+
+讓江澤民大為讚賞。 雖然也是雙休派的, 但是共匪高層哪個不是呢?
+[!\[\](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/5280ad36-1d52-483b-bc8e-e02bbac6c7d1.png?asset_id=fb54325b-4d37-4511-9bb9-c33a7de7771a&amp;img_etag=068cb16961b0fd06a87b5b249dd6aa7f&amp;size=2560)](https://spark.adobe.com/page/EZCCT3vxWQUN0/images/5280ad36-1d52-483b-bc8e-e02bbac6c7d1.png?asset_id=fb54325b-4d37-4511-9bb9-c33a7de7771a&amp;img_etag=068cb16961b0fd06a87b5b249dd6aa7f&amp;size=1024)
+### **推13： 誰是當代袁世凱?**
+
+給水深火熱的中南糞坑加點胡椒麵辣椒麵, 讓他們更加爽! 又要防備王岐山放毒, 又要防備楊擀麵杖在江澤民支援下一步到位, 同時全世界在緊緊盯著中南坑!
+
+八寶山的焚屍爐在對中南坑溫柔的呼喚: 來呀, 首長。。。 為您服務。。。
+
+(暫此。 有新的變化再續! )
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
