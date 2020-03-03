@@ -1,34 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武漢病毒使得中國經濟雪上加霜，民營企業家陷入個人債務
-`2020-03-03 07:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/130221/)
+## 3月2日美國政要推文精選
+`2020-03-03 08:01 GM65` [轉載自GNews](https://gnews.org/zh-hant/130259/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03073934/8C2E19A0-EDFD-4303-B58A-A4D01431786B.jpeg)
-**經濟衰退，生意遲緩，**   **中小企業銀行貸款債台高築**
+> I am meeting with the major pharmaceutical companies today at the White House about progress on a vaccine and cure. Progress being made!
+> — Donald J. Trump (@realDonaldTrump) [March 2, 2020](https://twitter.com/realDonaldTrump/status/1234455007765942273?ref_src=twsrc%5Etfw)
 
-近幾個月來，華夏大地病毒肆虐，封城封路，生意停滯不前。中國經濟是以外向型為主，長期以來經濟增長主要靠出口，由於病毒的肆虐，來自於國外的訂單，特別是歐洲和中東的訂單更是日趨枯竭。很多以出口為主的中小型公司企業難以為繼。很多公司企業的目標已不是謀求發展，而是努力活下去。但是支持中小公司企業的銀行貸款卻是可望而不可及。有企業主為了使企業能勉強維持不倒閉，將自己的住房做為抵押，尋求銀行貸款。
+川普總統：今天，我將在白宮與主要的醫藥公司會面，討論疫苗和治療藥物的進展情況。正在取得進展！
 
-“我的企業現金已經完全斷流啦， 想申請到銀行貸款非常困難。為了生存，我只好把住房抵押了。“說這話的是生產眼鏡的溫州葉老闆。雖然為了應對病毒對經濟的影響，一種低利息的特別貸款被推出。但是這種貸款一般中小企業難以得到。像他這樣規模的企業，要想申請的這種貸款，就必須有高額抵押，還需要付出比大公司高出很多的利息。葉老闆的住房抵押出了兩百萬的貸款。
+> It is concerning to hear that [@UTKnoxville](https://twitter.com/UTKnoxville?ref_src=twsrc%5Etfw) Professor Anming Hu concealed his relationship with a Chinese University and worked on projects for the US government.[https://t.co/bmg00PI3c6](https://t.co/bmg00PI3c6)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 2, 2020](https://twitter.com/MarshaBlackburn/status/1234495185503051776?ref_src=twsrc%5Etfw)
 
-如果更多的企業老闆都像葉老闆這樣抵押房屋獲取貸款，其後果對經濟的影響將是非常嚴重的。不在銀行貸款範圍的眾多中小企業是中國經濟發展的脊梁， 他們也是受病毒衝擊影響最大的。二月份清華和北大對1506個中小企業做了一份調查，百分之八十五的受訪者表示，三個月之內現金就要斷流。葉老闆說，他的兩百萬貸款，只能維持兩個月生產開銷和給一百個員工發工資。他需要新的現金注入或者接到訂單。
+參議員Marsha Blackburn 連推：田納西大學教授胡安明（Anming Hu，音譯）隱瞞他與中國大學的關係，同時為美國政府進行項目研究的事令人擔憂。中國用“軟實力”滲透並監視我們的大學的做法令人震驚，這就是為什麼我們要支持將這些壞人剷除。
 
-最近，中國人民銀行注入五千億資金，意在幫助那些掙扎在生存邊緣的中小企業，為他們提供低成本資金，為他們戰勝病毒維持生產助一臂之力。這是在已經註入三千億的基礎上的再一次的注入。 “如果這還不夠，我們準備繼續增加“，人行副行長如是說。
+Quartz網：田納西教授被指控對美國國家航空航天局（NASA）隱瞞與中國的關係
 
-但是，這些資金根本就到不了需要它的生意人手上。無節制注入資金會更刺激經濟泡沫的膨脹。
+> Allowing China to lead the World Intellectual Property Organization would be letting the fox guard the hen house. Under no circumstances should this regime be the leader of global intellectual property policy. [https://t.co/kYFfyaIzwt](https://t.co/kYFfyaIzwt)
+> — Tom Cotton (@SenTomCotton) [March 2, 2020](https://twitter.com/SenTomCotton/status/1234583253622906881?ref_src=twsrc%5Etfw)
 
-企業對資金的需求是巨大的。大部分的中小企業都徘徊掙扎在繼續掙扎求生存還是就此歇業的痛苦之中，他們都面臨著三個月資金鍊斷裂的嚴重挑戰。要么關閉生意，要么尋求高利率抵押貸款。
+參議員Tom Cotton：讓中國領導世界知識產權組織就像讓狐狸保護雞窩。任何情況下都不應該讓這個政權領導世界知識產權組織。
 
-國家新增加投放的貨幣都蜂擁去了醫藥行業。
+參議員Cotton官網：Cotton，幕僚敦促蓬佩奧反對中國對世界知識產權組織的候選提名
 
-對於一般的中小企業，銀行並不清楚也沒有可靠數據用於判斷中小企業是否具有申請貸款的資質 和還款能力。銀行也就不願意承擔風險為中小民營企業放貸。
+> The Chinese Communist Party kicked out real journalists because their publication reported the facts. Today, the administration retaliated by restricting the number of Chinese propagandists in the U.S. [https://t.co/Oey9RG1z5x](https://t.co/Oey9RG1z5x)
+> — Tom Cotton (@SenTomCotton) [March 2, 2020](https://twitter.com/SenTomCotton/status/1234614419331702786?ref_src=twsrc%5Etfw)
 
-中共國號稱已經步入發達國家之列，全球第二的巨大經濟體，在經濟結構和管理上，卻如此缺乏規範，缺乏立法，缺乏執行，缺乏評估，缺乏監管，使得經濟在災難衝擊面前顯得如此脆弱，如此束手無策。
+參議員Tom Cotton：中共因為這些真正的記者發表了事實報導而趕走了他們。今天，政府採取了限制中國大外宣人員在美數量的報復措施。
 
-**評：**如果疫情不能很快過去，國際訂單不能很快恢復，中國廣大中小企業，將面臨經濟寒冬。而一旦倒閉潮開始出現，那將如漣漪一般，越來越多，越來越大；經濟一旦進入惡行循環，雪上加霜難以避免，萬覆不劫也不是沒有可能。
+> This Thursday I will be visiting [@3M](https://twitter.com/3M?ref_src=twsrc%5Etfw) in Minnesota. We are grateful for the work [@3M](https://twitter.com/3M?ref_src=twsrc%5Etfw) is doing to aid in the Coronavirus response as they work to produce protective equipment that will help keep our health care providers and those affected by the virus safe.
+> — Mike Pence (@Mike\_Pence) [March 2, 2020](https://twitter.com/Mike_Pence/status/1234528204603449346?ref_src=twsrc%5Etfw)
 
-**[原文鏈接](https://asia.nikkei.com/Spotlight/Coronavirus/Coronavirus-drives-Chinese-business-owners-into-personal-debt)**
+彭斯副總統：本週四我將訪問位於明尼蘇達州的3M公司。我們對3M公司在應對冠狀病毒疫情工作中提供的幫助表示感謝，他們生產的防護設備會幫助保護我們的醫護人員和受感染人員的安全。
 
-**翻譯報導：** Sunny
+> Today, we announced a personnel cap on Chinese government-controlled media organizations in the United States. We urge Beijing to respect freedom of expression and will continue to seek reciprocity across the bilateral relationship.
+> — Secretary Pompeo (@SecPompeo) [March 2, 2020](https://twitter.com/SecPompeo/status/1234540896357670913?ref_src=twsrc%5Etfw)
 
+美國國務卿蓬佩奧：今天我們宣布對在美國的中國政府媒體機構實行人員限制政策。我們敦促北京尊重自由和言論，並繼續在雙邊關係中尋求對等互利。
+
+> Just spoke to [@GovRonDeSantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) early this morning. [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) has a solid plan to deal with [#CoronaVirus](https://twitter.com/hashtag/CoronaVirus?src=hash&amp;ref_src=twsrc%5Etfw) & we are working on getting federal funds passed in DC ASAP.
+> — Marco Rubio (@marcorubio) [March 2, 2020](https://twitter.com/marcorubio/status/1234466536540319745?ref_src=twsrc%5Etfw)
+
+參議員Marco Rubio：就在今天早上與佛羅里達州州長Ron DeSantis進行了交流。佛羅里達州有切實的計劃應對冠狀病毒，我們正在努力讓華盛頓盡快通過聯邦政府撥款。
+
+> 1. Don’t listen to crazy stuff online. Get the facts about how to prevent & treat [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/pOv9tGyE67](https://t.co/pOv9tGyE67)
+> 
+> 2. Don’t just show up at ER call your doctor or hospital before you go
+> 
+> 3. Employers, don’t force sick people to come in to work [pic.twitter.com/Yf2qpbtaPv](https://t.co/Yf2qpbtaPv)
+> — Marco Rubio (@marcorubio) [March 2, 2020](https://twitter.com/marcorubio/status/1234542037313126401?ref_src=twsrc%5Etfw)
+
+參議員Marco Rubio：1. 不要聽網上那些瘋狂的內容。了解一下如何預防和治療冠狀病毒的實情。 2. 不要直接去急診室，先給你的家庭醫生或醫院打電話。 3. 雇主們，不要強迫生病的人上班。
+
+> Globe editorial: Better late than never: The Trudeau government is finally getting the right advice on China – The Globe and Mail [https://t.co/pHRgAyNwQc](https://t.co/pHRgAyNwQc)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234401871521091585?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：加拿大《環球郵報》社論：遲到總比沒有好：特魯多政府終於在中國問題上的到了一些正確建議。
+
+> I no longer recognize Hong Kong. [https://t.co/ti3jLrnjQf](https://t.co/ti3jLrnjQf)
+> — Mike Gonzalez (@Gundisalvus) [March 1, 2020](https://twitter.com/Gundisalvus/status/1234103908705812480?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+Mike Gonzalez：我已經認不出香港的樣子了。
+
+Eileen Chang：當地媒體報導，一位記者被香港警察用胡椒噴劑襲擊，並將其打昏。她最終被送往醫院。
+
+> Step one – understand the war you are in: "From Beijing's perspective, political influence operations are at least as important as military operations, if not more so."[https://t.co/Hvy8hEOiIg](https://t.co/Hvy8hEOiIg)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234457749745852416?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：第一步——明白你所參與的戰爭：“北京認為，政治影響運作與軍事運作同樣重要，甚至更重要。”
+
+Real Clear Defense網站：中國在理念之戰中的反攻
+
+> "China’s ambassador in Washington probably wishes he could just go home."[https://t.co/3jR9bLfeEi](https://t.co/3jR9bLfeEi)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234462237936386048?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“中國駐華盛頓大使恨不得現在就能回國。”
+
+Politico網：中國和危險的冠狀病毒政治
+
+> Exclusive: Chinese city orders destruction of coronavirus epidemic data;… [https://t.co/v5ysG5i5SN](https://t.co/v5ysG5i5SN) via [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234527982766764037?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：獨家：中國城市下令銷毀冠狀病毒疫情數據；…
+
+YouTube視頻
+
+> “Using China as a hub…that model died this week, I think,” Vladimir Signorelli, head of Bretton Woods Research [https://t.co/Zqfe0m0lvN](https://t.co/Zqfe0m0lvN)
+> — SCS\_Disputes (@SCS\_Disputes) [March 2, 2020](https://twitter.com/SCS_Disputes/status/1234338787246764033?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+SCS\_Disputes：布雷頓森林研究所負責人Vladimir Signorelli說，“把中國當作樞紐…我認為上週這個模式已經結束了。”
+
+《福布斯》：冠狀病毒可能終結中國作為全球製造業樞紐的地位
+
+> Is the mortality rate for coronavirus higher in China because the pollution damages people’s lungs?
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234529395165007875?ref_src=twsrc%5Etfw)
+
+> It certainly does not help. In 2014, my husband and I took a trip to Jining Shandong when I was four months pregnant. The pollution there was horrible. There was no sky, only yellowish brown smog around us and above us. The visibility was less than 50 meters. My husband and I
+> — Asians for Trump WWG1WGA (@hobbitonlyh) [March 2, 2020](https://twitter.com/hobbitonlyh/status/1234532269945163776?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中國冠狀病毒死亡率比較高，是因為污染損害了人們的肺嗎？
+
+Asians for Trump WWG1WGA 回复：它（污染）肯定是沒有益處的。 2014年，我懷孕四個月的時候，和我丈夫到山東濟寧出差。那裡的污染太可怕了。沒有藍天，只有棕黃色的霧霾包圍著我們。能見度不到50米。我和我丈夫一到那裡就開始嘔吐和拉肚子。那次是一趟7天的公差，但我們不得不在第三天就離開那個可怕的地方。我那時開始覺得如果不離開，我可能會流產。之前我們都非常健康。
+
+> Great! [https://t.co/v7bzECmn9i](https://t.co/v7bzECmn9i)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 2, 2020](https://twitter.com/robert_spalding/status/1234605418154020864?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：很好！
+
+Hong Zhang，PhD：“新華社、中國國際廣播電台、中國環球電視網、中國日報和人民日報被要求在3月13日之前將工作人員從160名減至100名。除此之外，美國還將利用簽證對所有中國記者在美停留時間實施不同的限制。目前在美國大概有3000名這樣的記者，而美國駐中國記者只有幾十個。“
+
+《國家評論》雜誌：川普政府要求中國國家媒體減少在美工作人員數量
+
+> Decoupling [https://t.co/dTN0O7Pe8Z](https://t.co/dTN0O7Pe8Z)
+> — Masked Mao Balding 大老板 (@BaldingsWorld) [March 2, 2020](https://twitter.com/BaldingsWorld/status/1234506663127736320?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+Masked Mao Balding 大老闆：正在脫鉤
+
+電視與電影：票房：《木蘭》慘敗。 《木蘭》中國發行被取消，預算3億多，需要收入6.5億達到收支平衡。女主角詆毀香港抗議遊行者讓情況變得更糟。迪斯尼可能把它丟到流媒體播放。好萊塢歷史上最大的失敗。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03075840/04_30.png)
 0
