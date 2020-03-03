@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王岐山段子｜‼ ️😂王岐山被困武漢！流落街頭！居然撿垃圾吃！應勇居然這樣對待王岐山！ 4分3秒，笑死我了！ 😂
-`2020-03-02 21:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/130035/)
+## 參議員魯比奧火力全開，抨擊中共
+`2020-03-02 21:43 GM37` [轉載自GNews](https://gnews.org/zh-hant/130028/)
 
-作者：楚門
+點擊[***此處***](https://www.youtube.com/watch?v=0jyWzpde2Zw&amp;t=21s)查看原視頻。
+
+
 
 0
