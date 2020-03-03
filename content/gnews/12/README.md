@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 參議員魯比奧火力全開，抨擊中共
-`2020-03-02 21:43 GM37` [轉載自GNews](https://gnews.org/zh-hant/130028/)
+## 真愛生命，不要復工！ “共渡難關，武漢疫情每日熱線”
+`2020-03-02 23:49 GM30` [轉載自GNews](https://gnews.org/zh-hant/130064/)
 
-點擊[***此處***](https://www.youtube.com/watch?v=0jyWzpde2Zw&amp;t=21s)查看原視頻。
+戰友之家2020/3/3 真愛生命，不要復工！ “共渡難關，武漢疫情每日熱線”！
 
 
+
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
 0
