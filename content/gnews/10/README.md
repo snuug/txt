@@ -1,17 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 網購還安全嗎？亞馬遜在西雅圖的員工染上武漢冠狀病毒
-`2020-03-03 21:57 GM33` [轉載自GNews](https://gnews.org/zh-hant/130620/)
+## “e租寶”的錢哪去了
+`2020-03-03 22:26 GM06` [轉載自GNews](https://gnews.org/zh-hant/130634/)
 
-據[Seattletims](https://www.seattletimes.com/business/amazon/amazon-employee-in-seattle-has-tested-positive-for-illness-caused-by-coronavirus/) 3月3日報導，一名在西雅圖的亞馬遜員工COVID-19檢測呈陽性，也就是他感染了新型冠狀病毒。
+作者：背靠背
 
-消息說，該員工於2月25日星期二回家，感覺身體不適，此後一直沒有回來工作。消息說，亞馬遜週二收到消息稱，該員工對COVID-19的檢測呈陽性。
+“e租寶”100億資金進入中國-全球影視聯盟基金，地點美國洛杉磯，背後實際控制是北京陽光七星文化集團。參考[https://gnews.org/zh-hans/124268/](https://gnews.org/zh-hans/124268/) 。
 
-消息說，與感染員工密切接觸的其他員工（定義為長時間接近6英尺內）已經得到通知。
+**掛著“解決中小企業融資難、融資貴的問題”的羊頭偽裝下，賣的實際是“坑老百姓血汗錢”的毒肉，老百姓謀中共的利，中共謀老百姓的本。** “e租寶”判決書中，380億元資金不能返還。據財新記者報導鈺誠集團資金去向集中在緬甸，實際投入金額可能不足百億。圖2所示，鈺誠集團宣講提到，響應中共“一帶一路”戰略，投資400億建東南亞自貿區，並且完成一期、二期規劃，位於緬甸佤邦，佔地面積427公頃。
 
-亞馬遜在該地區擁有超過53，500 名員工，分佈在數十座建築和倉庫中。這座12層、佔地31.7萬平方英尺的巴西大廈於2015年開業，周圍環繞著亞馬遜的其他辦公室，並在11樓設有一個圖書館。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203446/34.jpg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203508/35.jpg)
+**白手套-丁寧-e租寶實際控制人。**
 
-新聞鏈接： [https://www.seattletimes.com/business/amazon/amazon-employee-in-seattle-has-tested-positive-for-illness-caused-by-coronavirus/](https://www.seattletimes.com/business/amazon/amazon-employee-in-seattle-has-tested-positive-for-illness-caused-by-coronavirus/)
+丁寧2015年，33歲，土生土長的安徽蚌埠人，有緬甸國籍。有消息指在家鄉經營家族五金生意發家，後到緬甸做生意，與緬甸果敢邦華人武裝首領彭家聲關係密切，被彭家聲授予「果敢同盟軍副司令」、「果敢民族主義黨副書記」頭銜。
+
+**鈺誠集團東南亞自貿區和東南亞聯合銀行，打造“科技+金融”融合發展模式。**
+
+鈺誠集團在緬甸第二特區（佤邦）建設鈺誠東南亞自由貿易區和東南亞聯合銀行，東南亞自貿區合作夥伴包括中國國際貿易學會副會長姚望、高盛前執行董事、仕富資本創始合夥人張哲。根據中國經濟網2015年5月26日報導，鈺誠投資方在佤邦自由貿易區具有行政管理權。通過有關部門同意境外成立銀行，王岐山家族影子若隱若現。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203548/36.jpg)
+
+**鈺誠集團為東南亞聯合銀行準備的黃金儲備來源。**
+
+在山東招金金銀精煉有限公司定制1239根印刻“東南亞聯合銀行”金條，重125530克即125.53KG，這麼大批量黃金順利生產、順利通過邊防運至緬甸。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203717/37.jpg)
+
+**曾經風光無限，發展飛速的鈺誠集團–互聯網金融A2P領航者。**
+
+**“e租寶”業務A2P（Asset to Peer）簡介** 。即資產對個人，融資租賃債權轉讓為基礎的互聯網金融服務模式。 **投資人通過e租寶平台投資的標的物是融資租賃企業項目債權。**融資租賃[企業](https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A)向平台提出優質債權轉讓申請，平台對[債權](https://wiki.mbalib.com/wiki/%E5%80%BA%E6%9D%83)進行嚴密甄選之後將此類信息向[投資者](https://wiki.mbalib.com/wiki/%E6%8A%95%E8%B5%84%E8%80%85)發布，普通投資者則可以進行[信息選擇](https://wiki.mbalib.com/wiki/%E4%BF%A1%E6%81%AF%E9%80%89%E6%8B%A9)並進行投資，從中獲得[投資回報](https://wiki.mbalib.com/wiki/%E6%8A%95%E8%B5%84%E5%9B%9E%E6%8A%A5) 。
+
+**什麼是融資租賃企業。**
+
+中共國融資租賃企業股東要么有大銀行、大國企背景，行業進入門檻高，業務佔據市場份額近50%，其中業務集中在飛機租賃、基礎設施等，也存在用於購買787的可能性；要么財大氣粗外資背景，哪一個也不是鈺誠集團能惹的起的。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203804/38.jpg)
+**e租寶所獲榮譽眾多，包裝華麗且美麗。**
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03204955/35-1-scaled.jpg)
+
+“e租寶”號動車京滬線開通，2015年5月15日高鐵列車首發。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205045/36-1.jpg)
+
+新華財經報導2015年9月14日，鈺誠集團出席2015年土耳其安卡拉B20峰會，由中共國貿促會，以及鈺誠集團、中國石化集團、中糧集團、國家電力投資集團、國家電網、中國建設銀行、寶鋼股份、中國華能、中國大唐等大型企業在內的13家組成參會的中國代表團。
+
+**鈺誠集團是融資租賃方面的門外漢嗎？**
+
+根據2015年5月26日CCTV證券平道《投資理財》欄目對張敏、溫元凱專訪，張敏說道：“我們不是門外漢，也不是一個單純的沒有風控能力的地方平台”，在進軍互聯網金融領域之前，鈺誠集團在融資租賃業務規模已經達到160億人民幣。
+
+**“e租寶”判決書中提到，非法持有槍支。**
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205144/37-1.jpg)
+
+**財新網起底鈺誠集團。**
+
+根據郭文貴先生多次爆料，胡舒立和她控制的財新網與王岐山、孟建柱、孫立軍利益關係密切，鈺誠集團被王岐山掏肛，推斷e租寶投資人的財富流入王岐山腰包，涉及380 -400億。
+
+時間：2015年12月
+
+主體：王岐山為首利益集團
+
+金額：估算約100-400億人民幣
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205246/66.jpg)
+
+**公安機關扣押的資產，2015年中共魔鬼孟建柱控制著公檢法系統。**
+
+根據郭文貴先生爆料，2011年10月湄公河慘案後，孟建柱暗黑勢力控制了東南亞。在鈺誠集團資產掠奪上，不可能缺位。
+
+時間：2015年12月
+
+主體：孟建柱為首利益集團
+
+金額：估算約140-160億人民幣
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205329/77.jpg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205350/88.jpg)
+
+鈺誠集團旗下鈺誠國際現金收購香港上市公司創信國際，涉及股份468743940股，佔總股本64.15%，代價為481157811.54港元。
+
+時間：2015年11月
+
+主體：香港上市公司創信國際控股有限公司，註冊地是百慕大，股份代號676
+
+金額：估算約4.8億港元
+
+為什麼e租寶做了這麼大的局，倒下的如此迅猛。 2015年6月股災發生，也許正是股災提早戳破了這泡沫。
+
+（文章內容僅代表作者個人觀點）
 
 0
