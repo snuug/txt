@@ -1,20 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國財政部長：不會因為冠狀病毒而暫停對中國的關稅徵收
-`2020-03-03 23:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/130734/)
+## 「超級富豪」如何應對冠狀病毒？
+`2020-03-03 22:30 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/130623/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03233100/phae-one-trade-deal-with-china.jpg)
-據路透社週二消息，美國財政部部部長姆努欽在眾議院籌款委員會的聽證會上表示，美國當前階段並未考慮對受冠狀病毒困擾的中國暫停關稅徵收，但隨著形勢的發展，美國政府將考慮所有可能的選擇，尤其是能幫助那些受此影響的中小型企業和特定經濟領域的選擇。
+[https://spark.adobe.com/page/ENWJv2ZhkNDa9/](https://spark.adobe.com/page/ENWJv2ZhkNDa9/)
 
-他說，美國財政部已經成立了一個專門小組，以評估病毒對經濟的影響。目前正在調查中小型企業受疫情影響的情況，並可能提出具體建議來幫助這些企業。
+*來源：ZeroHedge, Tue, 03/03/2020 – 09:20*
 
-去年12月，中美之間達成了“第一階段”的貿易協議。美國政府對1200億美元的中國商品徵收7.5%的關稅，對另外價值2500億美元的商品徵收25%的關稅。美國政府表示，維持關稅對確保中國遵守貿易協定條款至關重要。
+*作者：Tyler Durden*
 
-翻譯報導：投
+*翻譯、簡評：海闊天空*
 
-[相關鏈接1](https://www.reuters.com/article/us-health-coronavirus-usa-china-idUSKBN20Q256)
+**簡評：這個世界是不平等的，據法廣的報道，富人為避免感染以私人飛機出行。這個世界又是平等的，在零對衝的這篇文章里，超級富豪用錢買不到疫苗，新冠病毒面前，人人平等。超級富豪得到的建議也只是洗手和隔離，馬雲即使跑到新西蘭也絕難避禍。何止平等，新冠病毒還是民主的，無論官員還是平民，無人能夠幸免，伊朗副總統、衛生部長也都確認感染，人類真正進入了病毒共同體時代。**
 
-[相關鏈接2](https://www.washingtonexaminer.com/policy/economy/no-plans-to-lower-china-tariffs-over-coronavirus-outbreak-mnuchin-says)
+**不知道放毒的中南坑官員是否會被病毒反肆？多年以來，中共當權者喪盡天良，無視天道昭昭，逆天而行，操弄權術、視人命如草芥、窮凶極惡，現在病毒驟然降臨，病毒會不會AI識別、定向報復？**
+
+**不知道與中共勾結的金髮碧眼的國外精英是不是膽戰心寒？多年來這些精英被中共滲透、收買，養虎為患，無視中共慘絕人寰的人道災難，昧著良心與中共合謀，共同瓜分中國人民的用血汗掙得的財富，現在病毒突然襲來，會不會有感天道循環，報應不爽？**
+
+**不知道是不是中國人民一直以來容忍中共的胡作非為，為了追求口腹之欲放棄了對民主自由的追求，為了明哲保身放棄對自我權利的主張，任由中共越來越張狂、越來越殘忍，現在被詛咒？**
+
+**在狡詐、無情的病毒面前，人類是否應該進行一場深刻的集體反省，反省自己的罪與惡，用行動獲得自己的救與贖？堅決、決絕地拋棄中共，堅決、決絕地反對中共，堅決、決絕地滅掉中共，還人類一個太平世界。**
+
+## 超級富豪準備如何應對冠狀病毒？
+
+關於冠狀病毒的有趣之處是，它是一個獨特地影響所有人的問題。由於疫苗還沒有準備就緒，這就意味著超級富豪們只能自謀生路，去應對一個他們不能簡單地花錢去解決的問題。
+[!\[\](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/5165E410-CE36-4F5A-8598-454CD54427DC.jpg?asset_id=97B37CE6-DEAD-4E48-BF9D-1D1E3DE2F60E&amp;size=2560)](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/5165E410-CE36-4F5A-8598-454CD54427DC.jpg?asset_id=97B37CE6-DEAD-4E48-BF9D-1D1E3DE2F60E&amp;size=900)
+和其他所有人一樣，美國的超級富豪也在為疫情爆發做準備。據彭博社報道，雖然他們中的一些人可能會打電話給他們願意捐助的醫院，而不是與當地的家庭醫生交談，但實際上並沒有一個超級富豪能夠負擔得起，而其他人卻負擔不起的解決方案。正如許多人所知道的，就目前而言，解決方案歸結起來就是洗手和小心，就像你試圖避免普通流感一樣。
+
+家得寶公司(Home Depot Inc.)的聯合創始人蘭貢(Ken Langone)致電紐約大學蘭貢健康中心(NYU Langone Health)的一位高管和一位頂級科學家詢問此事。他被告知了我們其他人被告知的事情，不管是否屬實:
+
+「在疾病方面比我聰明的人告訴我，‘目前的情況是，這是一場嚴重的流感。’」
+
+他說，如果他不得不返回紐約大學朗格尼分校，他就不會得到「特殊待遇」。當然，我們其餘的人一直與那裡的高層管理人員和頂尖科學家交談……
+[!\[\](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/A1835347-90E8-4EC0-825C-E68BBFB64768.png?asset_id=BE5114E7-A78B-4FD2-9E91-70490B5ED640&amp;size=2560)](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/A1835347-90E8-4EC0-825C-E68BBFB64768.png?asset_id=BE5114E7-A78B-4FD2-9E91-70490B5ED640&amp;size=703) ZeroHedge 文章原圖 
+和世界其他地方一樣，許多億萬富翁只是在洗手。另一些人則準備乘坐私人飛機出城，與世界領先的專家進行咨詢，並獲得長期的醫療服務。
+
+高端禮賓服務公司Private Medical的管理合伙人、內科醫生喬丹·施萊因(Jordan Shlain)說:
+
+「這裡的戰況非常緊張。該公司正在採購數百種全身覆蓋物，包括去舊金山，硅谷，洛杉磯和紐約採購。我們不得不乞討、借貸或偷竊。好吧，不是偷——是乞討、借錢和付錢。」
+
+科羅拉多州阿斯彭(Aspen)的出診醫生蒂姆·克魯斯(Tim Kruse)說:
+
+「富人不一定能獲得普通人無法獲得的東西。但這並沒有阻止他們詢問是否可以得到冠狀病毒疫苗。答案是否定的。他們只是想知道。」
+
+最後，一個擔心解決不平等問題的病毒……
+[!\[\](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/69B6FE02-5437-4E3D-8DBA-95282205A597.jpg?asset_id=11C0E6BF-EDB8-426B-8CC1-B257B137D342&amp;size=1024)](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/69B6FE02-5437-4E3D-8DBA-95282205A597.jpg?asset_id=11C0E6BF-EDB8-426B-8CC1-B257B137D342&amp;size=1024)
+一家大型對衝基金的聯合創始人表示，如果所有人都因為機票可能會更便宜而急於購票，病毒就會迅速傳播。即使他飛到他在意大利的一所房子里，那裡很快也會成為疫情爆發的中心。
+
+查爾斯斯蒂文森(Charles Stevenson)是一名投資者，曾長期擔任公園大道(Park Avenue)一處有幾位億萬富翁的合作公寓的董事會主席，他說:
+
+「我現在一點也不擔心——它現在離我還遠著呢。如果這裡的人感染了冠狀病毒，我就會離開這裡。我要飛到愛達荷州，把自己關在小屋裡。」
+[!\[\](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/406E3DDF-4E26-4D21-B222-6B1859D96DCE.jpg?asset_id=AE88A992-E04C-46FB-962D-3DDD29D561DD&amp;size=2560)](https://spark.adobe.com/page/ENWJv2ZhkNDa9/images/406E3DDF-4E26-4D21-B222-6B1859D96DCE.jpg?asset_id=AE88A992-E04C-46FB-962D-3DDD29D561DD&amp;size=500) ZeroHedge 文章原圖 
+紐約大學(New York University)研究城市政策和規劃的米切爾莫斯(Mitchell Moss)說，由於封鎖，你和你的另一半住在一起可能會導致意想不到的後果:
+
+「這將破壞富人的婚姻。所有這些旅行的丈夫和妻子現在必須花時間和他們的配偶在一起。」
+
+但是，儘管超級富豪現在面臨著許多其他人都面臨的問題(包括病毒和他們的婚姻)，他們仍然有一些優勢。得克薩斯大學奧斯汀分校戴爾醫學院(University of Texas at Austin ‘s Dell Medical School)負責健康公平的副院長朱爾•馬倫(Jewel Mullen)總結道:
+
+「金錢、交通和信息等資源為人們提供了預防和保護措施，可以幫助人們在應對災難時創造更舒適的環境。這才是你真正看到不同需求的地方。」
+
+[新聞鏈結](https://www.zerohedge.com/health/how-super-rich-are-preparing-coronavirus)
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
