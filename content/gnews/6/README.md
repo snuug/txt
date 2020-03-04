@@ -1,93 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “e租寶”的錢哪去了
-`2020-03-03 22:26 GM06` [轉載自GNews](https://gnews.org/zh-hant/130634/)
+## 陰謀？-疫情的背後陰險佈局！
+`2020-03-03 22:52 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/130674/)
 
-作者：背靠背
+*作者：寒冰*
 
-“e租寶”100億資金進入中國-全球影視聯盟基金，地點美國洛杉磯，背後實際控制是北京陽光七星文化集團。參考[https://gnews.org/zh-hans/124268/](https://gnews.org/zh-hans/124268/) 。
+*簡評：玄天生*
 
-**掛著“解決中小企業融資難、融資貴的問題”的羊頭偽裝下，賣的實際是“坑老百姓血汗錢”的毒肉，老百姓謀中共的利，中共謀老百姓的本。** “e租寶”判決書中，380億元資金不能返還。據財新記者報導鈺誠集團資金去向集中在緬甸，實際投入金額可能不足百億。圖2所示，鈺誠集團宣講提到，響應中共“一帶一路”戰略，投資400億建東南亞自貿區，並且完成一期、二期規劃，位於緬甸佤邦，佔地面積427公頃。
+**簡評：一場人類生存危機拉起全球序幕，更讓西方認識到自己陪養了一個無惡不作的魔鬼。與魔同行，結果只會是人類滅絕的可能性！紅龍赤共的武漢肺炎是詭計、是陰謀還是……**
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203446/34.jpg)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203508/35.jpg)
-**白手套-丁寧-e租寶實際控制人。**
+[https://spark.adobe.com/page/jP81UBxxLNVAH/](https://spark.adobe.com/page/jP81UBxxLNVAH/)
 
-丁寧2015年，33歲，土生土長的安徽蚌埠人，有緬甸國籍。有消息指在家鄉經營家族五金生意發家，後到緬甸做生意，與緬甸果敢邦華人武裝首領彭家聲關係密切，被彭家聲授予「果敢同盟軍副司令」、「果敢民族主義黨副書記」頭銜。
 
-**鈺誠集團東南亞自貿區和東南亞聯合銀行，打造“科技+金融”融合發展模式。**
+[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/70A8B903-120E-403D-B24E-CD607657B9A2.jpg?asset_id=22360F98-C77F-4E65-BF95-E22691B27834&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/70A8B903-120E-403D-B24E-CD607657B9A2.jpg?asset_id=22360F98-C77F-4E65-BF95-E22691B27834&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/B622454E-8BE7-4B54-B187-29BEBDE8923E.jpg?asset_id=4EAFF544-453A-47D2-BBD5-ABD58EA63D17&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/B622454E-8BE7-4B54-B187-29BEBDE8923E.jpg?asset_id=4EAFF544-453A-47D2-BBD5-ABD58EA63D17&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/EB44FC4C-4D03-4057-AF4D-F717825F4C1C.jpg?asset_id=97A1301A-28FD-462B-88DD-4610871498BF&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/EB44FC4C-4D03-4057-AF4D-F717825F4C1C.jpg?asset_id=97A1301A-28FD-462B-88DD-4610871498BF&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/37A27414-D284-48FD-AC7F-3343C2ED58A5.jpg?asset_id=61977FA3-3406-4F32-8E1B-7A48BEFC447C&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/37A27414-D284-48FD-AC7F-3343C2ED58A5.jpg?asset_id=61977FA3-3406-4F32-8E1B-7A48BEFC447C&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/119E2833-2650-4236-9740-CD8E44AF29DA.jpg?asset_id=7FB0408E-28F2-4266-ABA6-768DD1D085F9&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/119E2833-2650-4236-9740-CD8E44AF29DA.jpg?asset_id=7FB0408E-28F2-4266-ABA6-768DD1D085F9&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/FF38AB0B-5D8A-491A-AAC6-611B5D555AB3.jpg?asset_id=B3989FB1-B679-45EF-AE43-7CB6FE21C1C7&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/FF38AB0B-5D8A-491A-AAC6-611B5D555AB3.jpg?asset_id=B3989FB1-B679-45EF-AE43-7CB6FE21C1C7&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/BF51C83A-E478-4FDC-9328-D4D75E4CF1C4.jpg?asset_id=05610F19-8751-4AAD-B38E-9A15C8A0434C&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/BF51C83A-E478-4FDC-9328-D4D75E4CF1C4.jpg?asset_id=05610F19-8751-4AAD-B38E-9A15C8A0434C&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/5D67B92A-0ACE-4C65-A58B-E8705FD4A9B6.jpg?asset_id=9BD6384E-0BB2-4A47-9372-BE442D8E90DF&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/5D67B92A-0ACE-4C65-A58B-E8705FD4A9B6.jpg?asset_id=9BD6384E-0BB2-4A47-9372-BE442D8E90DF&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/0EBC41E3-75A8-4E9D-8D0A-46DDAB1D1BED.jpg?asset_id=7DF389AE-05E0-4BE8-9979-7779C1DEE995&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/0EBC41E3-75A8-4E9D-8D0A-46DDAB1D1BED.jpg?asset_id=7DF389AE-05E0-4BE8-9979-7779C1DEE995&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/06CF3F97-656A-448D-B351-CDFDA27134C5.jpg?asset_id=029D7CCF-CBFA-4B67-A146-BD6F40966810&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/06CF3F97-656A-448D-B351-CDFDA27134C5.jpg?asset_id=029D7CCF-CBFA-4B67-A146-BD6F40966810&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/4A5EF074-3F82-4F78-BC3E-5808DA996321.jpg?asset_id=69D67E10-26CB-4B57-9516-15B8D0D4341D&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/4A5EF074-3F82-4F78-BC3E-5808DA996321.jpg?asset_id=69D67E10-26CB-4B57-9516-15B8D0D4341D&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/C1558B20-786D-42BA-9675-371296A1CE19.jpg?asset_id=080CE1DA-C0CC-425D-9CAB-66164DC77CD8&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/C1558B20-786D-42BA-9675-371296A1CE19.jpg?asset_id=080CE1DA-C0CC-425D-9CAB-66164DC77CD8&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/E32BAB6B-4BCF-4E49-900A-6A202EC1AF5C.jpg?asset_id=C2FF606D-34A0-4F76-A1FE-C7BB88FF12F2&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/E32BAB6B-4BCF-4E49-900A-6A202EC1AF5C.jpg?asset_id=C2FF606D-34A0-4F76-A1FE-C7BB88FF12F2&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/75BDDA81-274F-4D2A-9D1D-7E46DD1098DC.jpg?asset_id=B5B4CEB0-ECB5-449F-93A0-0BE39B069867&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/75BDDA81-274F-4D2A-9D1D-7E46DD1098DC.jpg?asset_id=B5B4CEB0-ECB5-449F-93A0-0BE39B069867&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/08F258C1-EDD8-4094-8EFB-70C4A61F4D65.jpg?asset_id=5B1442E7-F71F-436A-84DE-7AE4207DE36E&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/08F258C1-EDD8-4094-8EFB-70C4A61F4D65.jpg?asset_id=5B1442E7-F71F-436A-84DE-7AE4207DE36E&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/62573BD9-E33E-459E-9923-4D5AC0C6C969.jpg?asset_id=D08FA579-358F-45DD-A040-9883805693F0&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/62573BD9-E33E-459E-9923-4D5AC0C6C969.jpg?asset_id=D08FA579-358F-45DD-A040-9883805693F0&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/EC519D7B-48D3-4AB2-B93F-3DFFF56920B4.jpg?asset_id=D71F94F1-C752-4858-B821-06136F325906&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/EC519D7B-48D3-4AB2-B93F-3DFFF56920B4.jpg?asset_id=D71F94F1-C752-4858-B821-06136F325906&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/45076AAA-2FA7-4E56-8EDF-CBA1CF93D97B.jpg?asset_id=A1560634-95AA-4E72-B0DB-5F1CD15D0E54&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/45076AAA-2FA7-4E56-8EDF-CBA1CF93D97B.jpg?asset_id=A1560634-95AA-4E72-B0DB-5F1CD15D0E54&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/2307ADCA-C04E-4482-AF48-EA17534C4671.jpg?asset_id=4E82AE1C-421C-451C-BB3A-4520E01A0F01&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/2307ADCA-C04E-4482-AF48-EA17534C4671.jpg?asset_id=4E82AE1C-421C-451C-BB3A-4520E01A0F01&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/36D645E3-50CA-4FC1-9E78-C3D9D9AB10C4.jpg?asset_id=3908F576-BC41-415A-B2B3-C256D4204B72&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/36D645E3-50CA-4FC1-9E78-C3D9D9AB10C4.jpg?asset_id=3908F576-BC41-415A-B2B3-C256D4204B72&amp;size=1024)[!\[\](https://spark.adobe.com/page/jP81UBxxLNVAH/images/55F85E65-DCD8-4C1B-8180-BB2E3B2FF051.jpg?asset_id=D73E6F3B-E5E7-4DB0-BC49-91BB015E0EC5&amp;size=1024)](https://spark.adobe.com/page/jP81UBxxLNVAH/images/55F85E65-DCD8-4C1B-8180-BB2E3B2FF051.jpg?asset_id=D73E6F3B-E5E7-4DB0-BC49-91BB015E0EC5&amp;size=1024)
+如果說真正五千多年的中國是華夏文化的精粹，而中共則是共產主義、社會主義的假、大、空、騙的一個外來浸入者。反觀，美國則是英國體制上再一上層樓的進化。看下瑪雅文化、古埃及文化都在自然界進程中被淘汰了。這一次疫情，正是人類面臨一場人間浩劫。是人類文明再次進化，還是……
 
-鈺誠集團在緬甸第二特區（佤邦）建設鈺誠東南亞自由貿易區和東南亞聯合銀行，東南亞自貿區合作夥伴包括中國國際貿易學會副會長姚望、高盛前執行董事、仕富資本創始合夥人張哲。根據中國經濟網2015年5月26日報導，鈺誠投資方在佤邦自由貿易區具有行政管理權。通過有關部門同意境外成立銀行，王岐山家族影子若隱若現。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203548/36.jpg)
-
-**鈺誠集團為東南亞聯合銀行準備的黃金儲備來源。**
-
-在山東招金金銀精煉有限公司定制1239根印刻“東南亞聯合銀行”金條，重125530克即125.53KG，這麼大批量黃金順利生產、順利通過邊防運至緬甸。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203717/37.jpg)
-
-**曾經風光無限，發展飛速的鈺誠集團–互聯網金融A2P領航者。**
-
-**“e租寶”業務A2P（Asset to Peer）簡介** 。即資產對個人，融資租賃債權轉讓為基礎的互聯網金融服務模式。 **投資人通過e租寶平台投資的標的物是融資租賃企業項目債權。**融資租賃[企業](https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A)向平台提出優質債權轉讓申請，平台對[債權](https://wiki.mbalib.com/wiki/%E5%80%BA%E6%9D%83)進行嚴密甄選之後將此類信息向[投資者](https://wiki.mbalib.com/wiki/%E6%8A%95%E8%B5%84%E8%80%85)發布，普通投資者則可以進行[信息選擇](https://wiki.mbalib.com/wiki/%E4%BF%A1%E6%81%AF%E9%80%89%E6%8B%A9)並進行投資，從中獲得[投資回報](https://wiki.mbalib.com/wiki/%E6%8A%95%E8%B5%84%E5%9B%9E%E6%8A%A5) 。
-
-**什麼是融資租賃企業。**
-
-中共國融資租賃企業股東要么有大銀行、大國企背景，行業進入門檻高，業務佔據市場份額近50%，其中業務集中在飛機租賃、基礎設施等，也存在用於購買787的可能性；要么財大氣粗外資背景，哪一個也不是鈺誠集團能惹的起的。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03203804/38.jpg)
-**e租寶所獲榮譽眾多，包裝華麗且美麗。**
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03204955/35-1-scaled.jpg)
-
-“e租寶”號動車京滬線開通，2015年5月15日高鐵列車首發。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205045/36-1.jpg)
-
-新華財經報導2015年9月14日，鈺誠集團出席2015年土耳其安卡拉B20峰會，由中共國貿促會，以及鈺誠集團、中國石化集團、中糧集團、國家電力投資集團、國家電網、中國建設銀行、寶鋼股份、中國華能、中國大唐等大型企業在內的13家組成參會的中國代表團。
-
-**鈺誠集團是融資租賃方面的門外漢嗎？**
-
-根據2015年5月26日CCTV證券平道《投資理財》欄目對張敏、溫元凱專訪，張敏說道：“我們不是門外漢，也不是一個單純的沒有風控能力的地方平台”，在進軍互聯網金融領域之前，鈺誠集團在融資租賃業務規模已經達到160億人民幣。
-
-**“e租寶”判決書中提到，非法持有槍支。**
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205144/37-1.jpg)
-
-**財新網起底鈺誠集團。**
-
-根據郭文貴先生多次爆料，胡舒立和她控制的財新網與王岐山、孟建柱、孫立軍利益關係密切，鈺誠集團被王岐山掏肛，推斷e租寶投資人的財富流入王岐山腰包，涉及380 -400億。
-
-時間：2015年12月
-
-主體：王岐山為首利益集團
-
-金額：估算約100-400億人民幣
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205246/66.jpg)
-
-**公安機關扣押的資產，2015年中共魔鬼孟建柱控制著公檢法系統。**
-
-根據郭文貴先生爆料，2011年10月湄公河慘案後，孟建柱暗黑勢力控制了東南亞。在鈺誠集團資產掠奪上，不可能缺位。
-
-時間：2015年12月
-
-主體：孟建柱為首利益集團
-
-金額：估算約140-160億人民幣
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205329/77.jpg)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/03205350/88.jpg)
-
-鈺誠集團旗下鈺誠國際現金收購香港上市公司創信國際，涉及股份468743940股，佔總股本64.15%，代價為481157811.54港元。
-
-時間：2015年11月
-
-主體：香港上市公司創信國際控股有限公司，註冊地是百慕大，股份代號676
-
-金額：估算約4.8億港元
-
-為什麼e租寶做了這麼大的局，倒下的如此迅猛。 2015年6月股災發生，也許正是股災提早戳破了這泡沫。
-
-（文章內容僅代表作者個人觀點）
+編輯：【喜馬拉雅戰鷹團】
 
 0
