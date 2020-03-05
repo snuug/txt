@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月4日新冠病毒疫情要聞快報
-`2020-03-04 18:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/131076/)
+## 人生只有一次，千萬不要去複工！ “共渡難關，武漢疫情每日熱線”
+`2020-03-04 23:59 GM30` [轉載自GNews](https://gnews.org/zh-hant/131188/)
 
-伊朗多個高官確診新冠肺炎，學中共”墳頭蹦迪“；看中共，以假抗“疫”，以警抗“疫”，以黑抗“疫”。
-
-[圖文版PDF下載：](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/04181719/0304.pdf.pdf)[Download](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/04181719/0304.pdf.pdf)
+戰友之家2020/3/5 人生只有一次，千萬不要去複工！ “共渡難關，武漢疫情每日熱線”！
 
 
 
-製作：【上天造·滅疫組】
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
 0
