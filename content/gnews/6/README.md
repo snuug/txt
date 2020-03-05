@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月4日新冠病毒疫情要聞快報
-`2020-03-04 18:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/131076/)
+## 號外：冠狀病毒居然擅長數學
+`2020-03-04 18:40 GM37` [轉載自GNews](https://gnews.org/zh-hant/131055/)
 
-伊朗多個高官確診新冠肺炎，學中共”墳頭蹦迪“；看中共，以假抗“疫”，以警抗“疫”，以黑抗“疫”。
+美參議員湯姆•卡頓：金融雜誌巴倫周刊發現，可以使用一個簡單的數學公式預先精確地預測中共的官方死亡人數。這種冠狀病毒不僅具有傳染性和致命性，它還擅長數學 ，如果您相信中共的鬼話。
 
-[圖文版PDF下載：](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/04181719/0304.pdf.pdf)[Download](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/04181719/0304.pdf.pdf)
-
-
-
-製作：【上天造·滅疫組】
+點擊[***此處***](https://twitter.com/SenTomCotton/status/1235290123887136770?s=20)查看原視頻。
 
 0
