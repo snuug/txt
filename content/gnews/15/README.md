@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盜國賊表情包（組圖）
-`2020-03-06 02:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132179/)
+## 世界衛生組織要求所有國家全力以赴對抗武漢病毒
+`2020-03-06 04:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132211/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015602/34FF459E-B72E-4281-804F-F9326B0918F4.jpeg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06040745/1-18.png)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015620/BBF23473-19F0-49C6-ACFD-32C5E2BB5359.jpeg)
+面對日趨嚴重的武漢病毒疫情，世界衛生組織終於抗不住啦，開始呼籲世界所有國家全力以赴對抗武漢病毒，因為它繼續在世界各地快速蔓延傳播。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015636/E50FED75-7F95-4F32-8ABC-F538FADE0AF9.jpeg)
+世衛的譚德賽（Tedros）說，這個瘟疫可以遏制，但是世界各國必須協調行動，政府機構需要積極參與進來。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015655/31C6658E-E9DD-4775-940D-3748149BC1E7.jpeg)
+世界衛生官員深切關注到，病毒蔓延到的國家越來越多，疫情越來越嚴重。那些衛生保健系統薄弱的國家非常令人擔憂。而一些國家對疫情不夠重視，或者對抗疫情無能為力。所以世衛號召所有國家政府行動起來，採取有規模且目標明確的行動，全力以赴對抗病毒。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015716/BC68A4FE-0718-4642-BD78-D2EFADF8D9AD.jpeg)
+瘟疫對所有國家，所有民眾都構成威脅，無論貧富貴賤。抗疫不是演習，各國不能找藉口拖延或放棄，大家一定要全力以赴。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015732/C22A059F-6502-4E13-B37B-443C7F45A1E8.jpeg)
+世衛對武漢病毒危害的評估從高提高到了非常高。世衛突發衛生事件計劃執行主任麥克瑞安（Mike Ryan）博士表示，世界仍然可以避免最糟糕的情況，但是風險評估等級的提高意味著世衛對武漢病毒的關注度提高。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015757/6ACC0A7E-6530-42F2-B6DE-2890798DCB82.jpeg)
+世衛官員說，病毒的傳染機制還不是十分清楚，但至少可以說它不像流感。目前世界對預防流感的認知甚少，例如傳播方式，對它的抑制治療方法等。對於武漢病毒，更是知之甚少。但是像其他呼吸道疾病，人與人的接觸，打噴嚏，咳嗽，飛沫以及物品上殘留病毒，都可以引起傳染。事情總是可能變化。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015811/AEB8A246-2BA4-4E80-842E-FB444072BB9C.jpeg)
+現在疫情還處於初級階段，大爆發還沒到來。大家都需要學習有關病毒的新知識，才能更好了解病毒，從而預防和抵抗病毒。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015826/98B84FE9-60B4-46E2-A944-5C6A32A6D023.jpeg)
+[原文鏈接](https://www.cnbc.com/2020/03/05/who-calls-on-all-nations-to-pull-out-all-the-stops-to-fight-coronavirus.html)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015839/DF6D5865-F180-4F2C-9074-8789A249F9D9.jpeg)
-
-
-
-出品方：snow表情包組  就壮 绘制
-
-
-
-
-
-
+翻譯報導：Sunny
 
 0
