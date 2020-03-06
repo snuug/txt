@@ -1,22 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國眾議院外交委員會對黎智英等人被捕事件的聲明
-`2020-03-06 01:54 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132146/)
+## 盜國賊表情包（組圖）
+`2020-03-06 02:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132179/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015322/1-17.png)
-美國眾議院外交委員會代表Michael McCaul和主席ElotL. Engel日前對於香港當局抓捕《蘋果日報》創使人黎智英及立法會委員李卓人和楊森發表如下聲明：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015602/34FF459E-B72E-4281-804F-F9326B0918F4.jpeg)
 
-我們對上周香港當局以政治為由抓捕傑出香港公民黎智英，李卓人和楊森的事件深表擔憂。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015620/BBF23473-19F0-49C6-ACFD-32C5E2BB5359.jpeg)
 
-儘管香港當局聲稱這三位公民被控非法集會和恐嚇是基於過去的事件，但很明顯這源於上周黎智英發表的針對北京打壓言論自由加重了新冠病毒疫情的專欄文章。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015636/E50FED75-7F95-4F32-8ABC-F538FADE0AF9.jpeg)
 
-如果中國政府以為我們對香港的注意力已經轉移，於是可以有機會肆意違反自己的法律而不被國際社會注意，那你們就大錯特錯了。利用香港的法律實行政治動機將進一步敗壞香港的強大法治和作為一個自治區域的聲譽，特別是那些針對和平抗議者無差別的暴力鎮壓沒有被追責懲罰。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015655/31C6658E-E9DD-4775-940D-3748149BC1E7.jpeg)
 
-這些人都是當前香港人踐行自由集會和發聲的權力而遭到持續恐嚇的受害者。我們敦促香港政府立刻釋放所有由於政治原因被關押的人員。我們的國會領導人們已經通過了歷史性的《香港人權與民主法案》，我們會繼續密切觀查破壞香港自治的行為，包括即將呈交相關立法的報告。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015716/BC68A4FE-0718-4642-BD78-D2EFADF8D9AD.jpeg)
 
-[原文鏈接](https://gop-foreignaffairs.house.gov/)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015732/C22A059F-6502-4E13-B37B-443C7F45A1E8.jpeg)
 
-翻譯整理：人間四月
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015757/6ACC0A7E-6530-42F2-B6DE-2890798DCB82.jpeg)
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015811/AEB8A246-2BA4-4E80-842E-FB444072BB9C.jpeg)
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015826/98B84FE9-60B4-46E2-A944-5C6A32A6D023.jpeg)
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06015839/DF6D5865-F180-4F2C-9074-8789A249F9D9.jpeg)
+
+
+
+出品方：snow表情包組  就壮 绘制
+
+
+
+
+
+
 
 0
