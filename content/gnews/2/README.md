@@ -1,68 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》情與義值千金! 帛琉現疑似病例求援四處碰壁遭拒 台灣伸援手助抗疫 指導採檢火速送台檢驗
-`2020-03-07 12:01 GM15` [轉載自GNews](https://gnews.org/zh-hant/133026/)
+## 文字版：武汉冠状病毒大流行42集
+`2020-03-07 12:53 GM10` [轉載自GNews](https://gnews.org/zh-hant/133279/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07115123/cbb557a8-3d4e-448a-b778-07f4375e4697.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07113842/1154x768_20200307000114.jpg) 台灣方面即時伸援，透過視訊指導當地醫護採檢，並將檢體火速送到台灣檢驗，不僅替友邦解決燃眉之急，也展現台灣檢驗實力。 ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07113857/1154x768_20200307000113.jpg) 帛琉近日有一名美國醫療團志工出現肺炎、咳嗽等症狀，由於當地醫師不了解如何採檢，因此特由新光醫院感染科主任黃建賢透過視訊系統，線上教導當地醫師採檢，一步步從如何採檢、採哪裡、如何包裝等，檢體經層層包裝，6日晚間由護理人員搭機帶回台灣。 ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07113935/768x1024_20200307000111.jpg) 帛琉政府向台灣新光醫院尋求協助，新光醫院以視訊協助當地醫護完成採檢，並將檢體（圖）順利送至台灣檢驗，所幸最後確認為陰性。 
-> Statement from the President “On March 2020, the Ministry of Health announced that a US healthworker with flu symptoms…
-> [Office of the President, Republic of Palau](https://www.facebook.com/PalauPresident/)さんの投稿 [2020年3月3日火曜日](https://www.facebook.com/PalauPresident/posts/1563844167101010)
+战友之家译制
 
-帛琉近日收治一名疑似武漢肺炎的美籍人士，向多國請求協助未果，所幸台灣即時伸援，協助視訊採檢並將檢體送到台灣檢驗，不僅替友邦解決燃眉之急，也展現台灣檢驗實力。
-
-中央流行疫情指揮中心今天下午在記者會中宣布台灣替帛琉防疫的好消息，新光醫院院長侯勝茂表示，帛琉是距離台灣很近的邦交國，近日收治一名美籍武漢肺炎疑似病例卻苦無採檢、檢驗能力，台灣不僅視訊教採檢，更將檢體送至台灣檢驗，最後確認為陰性，讓帛琉政府鬆一口氣。
-
-參與這次抗疫行動的新光醫院感染科主任黃建賢今天接受記者訪問時表示，出現疑似症狀的是一名美國醫療團志工，2月底隨團抵達帛琉，3月2日出現疑似症狀至當地急診就醫，3日帛琉總統幕僚致電菲律賓、日本、關島協助代驗檢體未果，台灣得知後決定伸援手，檢體進口許可也獲衛福部、外交部支持。
-
-黃建賢說，4日新光醫院安排視訊教學會議，指導當地醫師如何採檢、檢體按WHO（世界衛生組織）國際標準3層封裝，5日二次採檢，6日晚間由護理人員將檢體帶到台灣，以全套防護裝備送至實驗室，今天中午證實為陰性。
-
-他表示，新光醫院和帛琉當地醫院往來密切，不僅有派員到當地長駐，平時也會進行視訊會議，每當登革熱疫情爆發時，都會以視訊教導防疫、討論疫情資訊，若當地出現急重難症個案也會提供線上諮詢，由於這次武漢肺炎傳染力高，當地還未採檢過疑似個案，才透過視訊隔空協助採檢。
-
-黃建賢指出，由於病患是美國籍人士，一開始曾詢問美國意見，但因關島、夏威夷檢驗設備還沒設置好，菲律賓、日本認為國際運送風險高婉拒，台灣不僅欣然接受，相關單位更火速通過檢體進口批准，讓這次防疫任務得以順利完成，也展現台灣檢驗實力。
-
-【帛琉檢體送台灣檢驗流程】
-
-◆2/底
-
-美國醫療團抵達帛琉
-
-◆3/2
-
-病人出現疑似症狀，急診就醫
-
-◆3/3
-
-帛琉總統幕僚致電請求低調協助，已請求菲律賓、日本、關島等地請求檢體代驗但皆未果。中華民國駐帛琉周民淦大使來電，確認檢體送台灣。醫院長官同意進口檢體業務，並獲衛福部、外交部支持。
-
-◆3/4
-本院安排視訊教學會議，指導採檢、檢體按WHO國際標準三層封裝；欲搭乘當日晚間華航，台灣端文件備妥，帛琉方貨運來不及安排。
-
-◆3/5
-
-二採咽喉
-
-◆3/6
-
-檢體晚間21:45抵台；疾管局安排專人機邊放驗加速通關；關務署安排全套防護裝備。
-
-◆23:40
-
-送抵國家實驗室鄧華真科長親自接檢體。
-
-◆3/7
-
-08:00開驗；12:30檢體證實陰性。
-
-## **台灣外交部：「我們幫助帛琉，等於幫助自己人！」**
-
-外交部亞太司長葛葆萱5日出席外交部例會時，針對帛琉總統公開感謝台灣政府表是，「幫助帛琉等於幫助自己人」，葛葆萱說，帛琉是與台灣距離最短的友邦，帛琉也是國人相當喜歡前往的旅遊勝地，每週有4航班直飛帛琉，台灣當然希望儘快協助帛琉釐清疑似案例到底是不是陽性，由台灣專業團隊協助做更精準的檢驗。
-
-中國旅遊局2017年11月下令，禁止中國旅行社出團到不願在台灣議題上就範的梵蒂岡與帛琉，去年又以重金利誘幾個太平洋國家如索羅門群島、吉里巴斯與台灣斷絕友邦關係，而帛琉不但堅持力挺台灣，還在當時的聯合國大會替台灣說話，甚至在大會結束後還到台灣來，用轉機過境方式歸國。
-
-此次幫助帛琉可以說是兩國友好情誼的牽絆具體展現。兩國情誼並不是中共大撒幣就能斬斷的。
-
-引自[中央社](https://www.cna.com.tw/news/ahel/202003070201.aspx)
-
-GM15
-
+[0306](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07123643/0306-1.pdf)[下载](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07123643/0306-1.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124259/Slide1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124313/Slide2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124327/Slide3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124343/Slide4.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124358/Slide5.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124451/Slide6-1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124440/Slide7.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125839/Slide8-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125853/Slide9-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125913/Slide10-1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125940/Slide11-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130511/Slide12-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130903/Slide13-4.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130923/Slide14-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130820/Slide15-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131004/Slide16-2.jpg)![](https://gnews.org/817c552a-cf05-4dc5-9d58-f7c07ce982c7)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131040/Slide19-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131116/Slide21-3.jpg)
 0
