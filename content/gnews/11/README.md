@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統下令阻止威脅美國安全的中資企業北京石基購買美國企業！
-`2020-03-07 05:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132848/)
+## 假假假！全是假！中共作假人神共憤，天理不容！
+`2020-03-07 07:39 GM30` [轉載自GNews](https://gnews.org/zh-hant/132768/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07052311/44722352-A673-45D2-9EA9-46A17BF7F611.jpeg)
-川普總統在周五下令中國資本必須撤回他們對一家美國企業的收購。這家中國資本是北京中長石基信息技術， 簡稱北京石基， 他們在2018年曾收購一家經營酒店物業管理軟件的公司，StayNTouch。現在，從白宮的一份聲明里，川普總統命令他們必須撤回他們的收購。
+**作者：北方以北**
 
-川普總統還表示，他有“可信證據” 這家中國公司 “可能會採取能威脅和影響到美國本土安全的行動。”
+近日，中共國國務院副總理孫春蘭視察武漢某小區，中共國官員照樣像往常一樣，前呼後擁，各種擺拍，但是這次被視察小區的老百姓卻不買賬，根據現場網友提供的視頻，老百姓紛紛站在樓上高呼：假的、假的、假的，全都是假的。弄得現場中共的官員非常的難堪。
 
-這次的禁令標誌著川普總統的第三次下令阻止外資對美國公司的收購， 原因是這些公司可能會威脅到美國的國土安全。這對美國來說是少見的， 類似這樣的禁令在美國近三十年中僅發生過六次(包括川普總統三次下令）。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07012647/1-23.png)
 
-不僅如此， 川普政府還加強了對所有中國資本的審查。審查全部是針對中國資本收購美國公司後是否會影響美國國土安全來衡量。美國國會還有專門審查外國投資的外資委員會，這裡否定了許多的來自中國的交易， 特別是關於科技公司的。
+我們現在來看看，武漢老百姓為什麼說全都是假的？
 
-外資委員會還對德國的公司 Infineon Technology AG （英飛凌）收購美國半導體芯片公司的審查做出了結果，他們會建議總統阻止這場收購。
+中共官媒宣稱市場上有15.5塊錢一斤的冷凍豬肉，並且在中國電信上給武漢居民發信息宣稱豬肉的零售價在7 ~17元/斤可以買。
 
-川普政府此前還曾阻止了 Lattice Semiconductor (萊迪斯半導體）的交易和一次 Broadcom （博通）對美國公司 （Qualcomm）博通的惡意收購。當時的 博通公司總部還在新加坡（目前在美國）， 但是川普政府仍然表示該交易會損害到高通公司的創新，還會給中國的無線技術上增加優勢。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07012728/2-4.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07012747/3-6.png)
 
-北京石基為酒店，餐飲，零售和娛樂行業提供軟件。白宮的命令並未具體說明所涉國家安全風險，但明確表示禁止北京石基通過StayNTouch訪問酒店客人數據。
 
-評： 美國政府很明確了， 不相信中國資本，是因為美國不相信中共這個流氓政府。
+但事實上據武漢當地的網友拍的照片反應，真實的豬肉價格如下，普遍的價格都在8 ~11美元：
 
-[原文鏈接](https://www.bloomberg.com/news/articles/2020-03-06/trump-blocks-chinese-deal-for-hotel-management-software-company)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07012904/4-1.jpg)
 
-翻譯報導：匿名
+另外武漢地區一般的蔬菜價格，也是貴的離譜，以下是武漢地區網友的微信截屏，一根肋骨加兩塊筒骨，外加一根蓮藕，合計220元，按照目前的匯率，換算成美元，折合31.4美元：
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07013119/5-6.png)
+
+我們再來看看中共官員視察的當地老百姓是怎麼說的，以下是微信截屏：
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07013223/6-3.png)
+
+當地老百姓普遍反應，中共領導視察居民在樓上喊的看到的外表都是假的，裡面的樓道非常的髒亂，並且還說當地小區物業不作為。
+
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07013305/7-3.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07013334/8-1.png)
+
+
+網友們對此紛紛評論：“武漢人民到了最危急的時刻。”，“孫春蘭是在氣氛這堆草包連現場都控制不了，拆自己台子，回去不好交差。”，“黨從來不介意人民知道或不知道他的謊言，因為他總是堅信自己的暴虐可以控制！”“大家都在演戲。”，“市民：領導我們家里人都死光了。領導：那你一定很開心吧。CCTV ：中國人民留下了幸福的眼淚。”
+
+（文章內容僅代表作者觀點）
 
 0
