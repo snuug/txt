@@ -1,51 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 擔心美國欠中國錢不還? 醒醒吧，先擔心中共的內債怎麼還吧！
-`2020-03-06 07:30 GM09` [轉載自GNews](https://gnews.org/zh-hant/132320/)
+## 3月5日美國政要推文精選
+`2020-03-06 08:53 GM65` [轉載自GNews](https://gnews.org/zh-hant/132375/)
 
-作者：GM47
+> Wuhan [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) : ‘recovered’ patient dies as China continues coverup [#cornaviruschina](https://twitter.com/hashtag/cornaviruschina?src=hash&amp;ref_src=twsrc%5Etfw) [#WuFlu](https://twitter.com/hashtag/WuFlu?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [#outbreak](https://twitter.com/hashtag/outbreak?src=hash&amp;ref_src=twsrc%5Etfw) – China wouldn’t let CDC scientists in because they would have found the truth of origin. [#WuhanLab](https://twitter.com/hashtag/WuhanLab?src=hash&amp;ref_src=twsrc%5Etfw) [#coverup](https://twitter.com/hashtag/coverup?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IkrS56wTKZ](https://t.co/IkrS56wTKZ)
+> — 😷Kyle Bass😷 (@Jkylebass) [March 5, 2020](https://twitter.com/Jkylebass/status/1235562839462400007?ref_src=twsrc%5Etfw)
 
-這幾年在中國網絡上比較火熱的一個話題是美國欠中國上萬億的錢，老話題了，但時不時還會被翻出來炒一下，各種自豪（厲害了我的國），各種擔心（美國不還錢），各種得瑟（逼債，拋空，砸盤美國），十分自HIGH十分熱鬧。
+卡爾·巴斯先生：武漢冠狀病毒：中國仍在掩蓋冠狀病毒、武漢肺炎爆發（真相），而“康復”了的患者不治而亡——中國不讓美國疾病防控中心的科學家介入，因為（如果讓他們介入）他們恐怕早已經發現病毒源頭了。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06072228/Screen-Shot-2020-03-06-at-9.21.06-PM.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06072238/Screen-Shot-2020-03-06-at-9.21.14-PM.png)
+南華早報：冠狀病毒：中國報告新增139病例，而”康復”了的患者不治而亡
 
+> Glad to see the USS Theodore Roosevelt visiting Da Nang. The U.S. should continue to focus on our growing partnership with Vietnam. [https://t.co/DipRv15CZe](https://t.co/DipRv15CZe)
+> — Tom Cotton (@SenTomCotton) [March 5, 2020](https://twitter.com/SenTomCotton/status/1235602524083826689?ref_src=twsrc%5Etfw)
 
-這個問題其實很簡單。我們梳理下。首先，擔心“美國欠中國錢不還”從概念上就錯了，中國持有的美國國債是一種投資方式，不能簡單理解為美國欠中國錢。其次，美國國債在證券市場上是一個優質的投資品種，也是搶手貨，還可流轉，你不想持有，隨時都可以在市場上轉手賣掉，可能還有人搶著接盤，根本不需要擔心美國還或不還的問題。問題倒是，美國國債是全世界公認的安全、保值、收益穩定的優質理財產品，你捨得賣嗎？你賣了準備換人民幣嗎？誰要真心覺得中國政府的信用比美國政府更好，拿人民幣資產比拿美元更安心，只能說一路走好，不送。
+參議員Tom Cotton：很高興看到羅斯福號航母訪問峴港。美國應該繼續重點發展與越南的伙伴關係。
 
-但凡有點理財知識，或有點資產配置需求的，你的銀行、理財顧問給你的建議基本都會從購買各種國債開始，為什麼這些專業人士不擔心美國不還錢？那些對“美國不還中國錢”話題自HIGH的人，基本可以確定一是沒錢，二是沒理財知識，三沒獨立思考能力，所以才會被中共的宣傳機構洗腦帶溝裡去。作為一根營養不良的小韭菜，還操著趙家人的心，悲哀。
+《星條旗報》（美國國防部報紙）：美國羅斯福號航母抵達越南，是繼1970年代後第二艘到訪的美國航母
 
-投資、金融、資產配置的事讓專家們去討論吧，這一萬多億美債到底有多少是中共真正可支配的我們也不知道，作為百姓，我們應該考慮的是，就算中共有這1萬多億美元跟老百姓有關係嗎？是讓你家老人養老金多了一分，還是你看病不要錢了，還是孩子教育免費了？
+> Four months into the Wuhan virus pandemic and still no clarity on the origin, as China pumps propaganda mill with disinformation of CIA origin [https://t.co/6uu9Qi4v5k](https://t.co/6uu9Qi4v5k)
+> — Bill Gertz (@BillGertz) [March 5, 2020](https://twitter.com/BillGertz/status/1235591005770047489?ref_src=twsrc%5Etfw)
 
-中共讓百姓討論過這個問題嗎？
+比爾·格茨先生：武漢病毒大流行已經四個月，仍沒有病毒來源的明確說法，而中國正在向大外宣機器大量輸送美國中情局（CIA）是（病毒）源頭的假料。
 
-百姓更應該考慮的是，中共國現在自身的債務問題，因為這刀最終肯定割到百姓頭上。
+《華盛頓時報》：在病毒虛假信息運作中，美國中情局成了靶子
 
-作為中共國的韭菜，必須明白一個道理，政府的所有債務，最終還錢的都是百姓。政府自身不會創造一分錢的財富，反而是要百姓供養。現在百姓不僅每年要耗費幾萬億供養著中共的官員，還要給這些官員為了所謂政績和個人私利折騰出來的債務買單。
+> This week’s Inside the Ring column in [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Esper talks to Chinese defense minister but fails to raise PLA lasering of P-8A aircraft; Senate battling nomination of new foreign broadcasting chief as Trump readies legal action [https://t.co/NTh5wHWkyp](https://t.co/NTh5wHWkyp)
+> — Bill Gertz (@BillGertz) [March 5, 2020](https://twitter.com/BillGertz/status/1235599845714530305?ref_src=twsrc%5Etfw)
 
-中共這些年到底給百姓欠了多少錢？就算兩個債，國債、地方債。
+比爾·格茨先生：《華盛頓時報》本週《Inside the Ring》專欄：埃斯珀與中國國防部長通話，但未能涉及解放軍向P-8A飛機發射激光一事；川普已準備好採取法律行動，而參議院在新任國際廣播事務負責人候選人問題上爭執不下
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06072248/Screen-Shot-2020-03-06-at-9.21.41-PM.png)
+《華盛頓時報》：國防部長埃斯珀與中國國防部長就持續的“合作與對話”交換意見
 
-中共國財政部的數據，2019年9月25日公佈2019年二季度末，中央政府債務餘額154675億元；截至2020年2月末， [全國地方政府債務餘額225302億元](http://yss.mof.gov.cn/zhuantilanmu/dfzgl/sjtj/202003/t20200303_3477036.htm) 。
+（Foreign broadcasting，此處指US Agency for Global Media，即美國國際媒體署，是美國聯邦政府負責美國對外廣播事務的美國政府獨立機構，負責管理美國之音、古巴廣播辦公室、工程和技術服務辦公室等行政機構，並監管自由歐洲電台／自由電台、自由亞洲電台和中東廣播網等非營利組織。維基百科）
 
-國債加地方債154675+225302=379977億元。
+> From the moment President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) took unprecedented action in January to respond to the Coronavirus, [@3M](https://twitter.com/3M?ref_src=twsrc%5Etfw) made the decision to go to full capacity in the production of crucial respiratory masks that protect health care providers who are caring for patients.
+> — Mike Pence (@Mike\_Pence) [March 5, 2020](https://twitter.com/Mike_Pence/status/1235690365757222914?ref_src=twsrc%5Etfw)
 
-14億人均約2.7萬，一個三口之家，就要替中共背8.1萬的債務。按照3.5%年利息計算，這些債務每年要還1.3萬多億的利息，人均利息一年950元。這是按中共官方自己承認的數據算的，按照中共報喜不報憂的風格，數據遮遮掩掩，債務肯定只多不少。因為地方債構成比較複雜，包括城投債、銀行貸款、非標、PPP、投資基金等來源渠道，由於口徑的差異和出發點的不同，地方政府顯性債務之外的隱性債務就是個迷霧中的大坑，你知道有坑，但不知道坑多大，中共或許知道，或許也沒數，反正它是不說。有報告推算， [實際地方債有60萬億以上](http://m.daguanjia018.com/zixun/206109.html) ，中國人均約4.3萬，一個三口之家就要替中共背債約13萬。
+彭斯副總統連推：自從川普總統於一月份採取前所未有行動應對冠狀病毒那一刻起，3M公司就做出全面啟動生產的決定，製造重要的呼吸面罩，用於保護照顧患者的醫務工作者。 3M公司在（保護）國人生命中起著至關重要的作用。我們感謝他們為遏制冠狀病毒的傳播所做的努力。
 
-這還沒算中共繼續不停借的債，當疫情襲來，中共又在吹噓“集中力量辦大事”，但是它沒跟你商量，已經集中力量又藉了一大堆債了。而且還告訴你，借債可是為了你好，是“開門紅”，那種春秋筆法不認真分析還真以為是啥好事。
+> Thrift Savings Board plans to move federal retirement funds into Chinese A-shares
+> 
+> Retirement of U.S. servicemembers & fed workers is financing [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s military modernization! 
+> 
+> Illegal for U.S. firms to do business with these companies but ok to invest fed retirement in them?
+> — Marco Rubio (@marcorubio) [March 5, 2020](https://twitter.com/marcorubio/status/1235509066144849920?ref_src=twsrc%5Etfw)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06072301/Screen-Shot-2020-03-06-at-9.21.49-PM.png)
+參議員Marco Rubio：聯邦退休儲蓄投資委員會（Federal Retirement Thrift Investment Board）計劃將聯邦退休基金轉投中國A股。美國公務員和聯邦政府僱員的退休金正被用來資助中國的軍事現代化！美國公司與這些（A股）公司做生意不合法，但用聯邦退休基金投資就可以了嗎？
 
-文字說得很繞，不直接講2020年新增多少地方債，只能自己算，去年43624+1900=45524億，人均3251元。就是說，一個三口之家，剛過完春節，2020年中共已經“又”幫你家“借”了1萬元的地方債了。
+> Why is [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s Communist Party encouraging conspiracy theories blaming U.S. for [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw)?
+> 
+> 1. To dampen internal discontent
+> 
+> 2. Distract from a true infection rate & death toll close to double the official count
+> 
+> 3. To save face internationally [https://t.co/UvrETESOM1](https://t.co/UvrETESOM1)
+> — Marco Rubio (@marcorubio) [March 5, 2020](https://twitter.com/marcorubio/status/1235537684828913665?ref_src=twsrc%5Etfw)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06072312/Screen-Shot-2020-03-06-at-9.22.00-PM.png)
+參議員Marco Rubio：為什麼中共在極力宣揚指責美國應該對冠狀病毒疫情負責的陰謀論？ 1. 緩和內部的不滿情緒2. 將人們的注意力從感染率和死亡人數接近官方數字兩倍的事實轉移開3. 保存國際顏面
 
-這還沒算國債的實際數據多少，還沒算國企的債務…，中共國啥都是黨的，但還債可就得用百姓的血汗錢，中共可不會自己種地、自己產金子。
+《華盛頓郵報》：陰謀論指責美國應該對冠狀病毒負責。中國樂此不疲鼓勵這些陰謀論。
 
-出來混，遲早要還的，中共肯定是混不下去了，跟一個沒未來的人談還錢就是個笑話，但這債是不會自己沒的，最終付出代價的還是中國百姓。
+> If you doubt [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will one day weaponize our reliance on them for pharmaceuticals see piece in official press of Communist Party
+> 
+> They mock America saying we would “fall into hell” during [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid19](https://twitter.com/hashtag/Covid19?src=hash&amp;ref_src=twsrc%5Etfw) if they cut us off & demand the U.S. & [#Florida](https://twitter.com/hashtag/Florida?src=hash&amp;ref_src=twsrc%5Etfw) apologize to them [https://t.co/P4u49CY8YW](https://t.co/P4u49CY8YW) [pic.twitter.com/4CtVCmWx0o](https://t.co/4CtVCmWx0o)
+> — Marco Rubio (@marcorubio) [March 5, 2020](https://twitter.com/marcorubio/status/1235663562120613888?ref_src=twsrc%5Etfw)
 
-編者按：有中共地方債理財產品的戰友，趕緊換成現金，外匯現金存著。
+參議員Marco Rubio：總有一天中國會把我們在醫藥方面對他們的依賴當作武器（對付我們），如果你對此還表示懷疑，請看看中共官方媒體的一篇文章。他們嘲笑說，如果他們切斷供應，美國在冠狀病毒疫情中會“陷入地獄”，並要求美國和佛羅里達向他們道歉。
 
+> We need to make sure everyone is informed and has up to date info on the current state of the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw). This is crucial at times like these. 
+> 
+> For any questions regarding the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw), contact [@CDCgov](https://twitter.com/CDCgov?ref_src=twsrc%5Etfw) hotline at 800-CDC-INFO or 800-232-4636. [pic.twitter.com/26ofdKWEc1](https://t.co/26ofdKWEc1)
+> — Rick Scott (@SenRickScott) [March 5, 2020](https://twitter.com/SenRickScott/status/1235620646224367616?ref_src=twsrc%5Etfw)
+
+參議員Rick Scott：我們需要確保所有人都及時收到有關冠狀病毒疫情現狀的最新信息。這在當前非常關鍵。如果有關于冠狀病毒的任何問題，請撥打疾控中心熱線800-CDC-INFO，即800-232-4636。
+
+> Cheating never pays…Reuters exclusive: Newly obtained documents show Huawei role in shipping prohibited U.S. gear to Iran [https://t.co/Cn9FmTRTec](https://t.co/Cn9FmTRTec)
+> — James Mulvenon (@jmulvenon) [March 4, 2020](https://twitter.com/jmulvenon/status/1235216804156448769?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+James Mulvenon：欺騙永遠得不到好結果…路透社獨家新聞：最新文件顯示華為在向伊朗運送美國禁運武器方面發揮了作用
+
+> We Need Hard Decoupling – The American Interest [https://t.co/eRqllREQ3l](https://t.co/eRqllREQ3l)
+> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 6, 2020](https://twitter.com/robert_spalding/status/1235837407771029507?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：《美國利益》雜誌——我們需要硬脫鉤
+
+> Are you ready in the event of an outbreak of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) in your community? CDC encourages you to create a household plan that can help protect your health and the health of those you care about. [https://t.co/isBYfXNv5A](https://t.co/isBYfXNv5A). [pic.twitter.com/NHc9CzmIhn](https://t.co/NHc9CzmIhn)
+> — CDC (@CDCgov) [March 5, 2020](https://twitter.com/CDCgov/status/1235689382935478278?ref_src=twsrc%5Etfw)
+
+美國疾病防控中心（CDC）連推：您所在社區準備好應對冠狀病毒疫情爆發了嗎？ CDC鼓勵您制定一個家庭計劃，可以幫助您保護個人和您所關心的人的健康。您應對冠狀病毒的家庭計劃應該包括：1）與鄰居討論應急計劃，2）確認您社區的急救組織，3）創建緊急聯繫人名單。您的計劃（還應）包括：1）與納入計劃的人員進行交流，2）為有嚴重並發症高風險的人安排護理方法。更多信息： [https://www.cdc.gov/coronavirus/2019-ncov/community/home/get-your-household-ready-for-COVID-19.html](https://www.cdc.gov/coronavirus/2019-ncov/community/home/get-your-household-ready-for-COVID-19.html)
+
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We expect Beijing to take a more fair approach towards American and other foreign press inside of China. We urge the CCP to immediately uphold its commitments to respect freedom of the press. [https://t.co/ymejZnNP8I](https://t.co/ymejZnNP8I) [pic.twitter.com/PIe6kTXHUV](https://t.co/PIe6kTXHUV)
+> — Department of State (@StateDept) [March 6, 2020](https://twitter.com/StateDept/status/1235724274075406337?ref_src=twsrc%5Etfw)
+
+美國國務院：國務卿蓬佩奧：我們希望北京對駐中國境內美國及其他外國媒體採取更公平的態度。我們敦促中共立即履行其尊重新聞自由的承諾。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06085250/04_42.png)
 0
