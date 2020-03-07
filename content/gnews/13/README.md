@@ -1,69 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球疫情和亞洲蝗災恐進一步惡化？
-`2020-03-06 20:11 GM30` [轉載自GNews](https://gnews.org/zh-hant/132505/)
+## 同處疫情重災區蔡英文台灣政府未雨綢繆行政能力受肯定
+`2020-03-06 21:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132573/)
 
-**作者：北方以北**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06214234/%E5%8F%B0%E6%B9%BE%E7%96%AB%E6%83%85.jpg)
+今年二月份台灣最新民調對蔡英文政府的支持率已達68.5%，比二月份高出十二個百分點。這是為什麼？
 
-郭文貴先生在之前的視頻中說疫情最壞的時刻還遠遠沒有來到，要戰友們做好長期的準備，屯糧、屯水。我們現在來看看世界各國目前疫情的發展情況。
+據一份署名為阿爾弗·詹寧斯（alph Jennings ）撰稿人在美國之音外文報導中指出，在對武漢疫情的防範過程中，蔡英文台灣政府做到了防範於未然，提早做好充分的準備和及時採取了相應的切實可行的措施。相比同樣處於世界上致命的冠狀病毒爆發最嚴重區的中國大陸，韓國和日本等，台灣脫穎而出，僅有42例孤立病例。
 
-**新聞一** ：意大利新型冠狀病毒患者超過3000例，現意大利全部學校停課。
+1，針對疫情蔓延控製本身的工作到位及時：從旅遊航班與大陸的提早中斷，到台灣衛生機構對全島公共場所提供消毒液和口罩配發，以及對學校等人群稠密場所的體溫檢查，都早於其他國家有序展開。台灣疾病控制中心的每日公告疫情情況。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195351/1-20.png)
+2，對疫情可能造成台灣經濟的負面影響，台灣政府已經未雨綢繆，政府已經就病毒而可能對經濟產生影響積極尋找降低最小的途徑。例如在二月份國會已經批准了19.6億美元的刺激性資金注入，專門針對爆發疫情爆發而可能產生經濟影響。
 
-**新聞二** ：美國加州宣布緊急狀態，全美因新型冠狀病毒死亡人數已達10人。
+點評：
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195414/2-3.png)
+我們不禁要問：同樣是華人，同樣面對危及民眾只生命的重要事件，在中共下的大陸和在蔡英文政府下台灣，處理過程和結果為何如此天壤之別？
 
-**新聞三：**美國華盛頓27名消防員和兩名警察被感染上新型冠狀病毒。
+我們不禁還要再問下：一個民族，一個國家是否能夠安居樂業，社會的福利最大普及化，到底取決於人性，民族性還是社會的體制？
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195443/3-5.png)
+[參考資料](https://www.voanews.com/science-health/coronavirus-outbreak/why-taiwan-has-just-42-coronavirus-cases-while-neighbors-report)
 
-**新聞四：**公主號遊輪21名前往加州，疫情籠罩世界。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195510/4-5.png)
-
-**新聞五：**韓國疫情感染人數超過5000人，日本疫情感染人數超過1000人。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195602/5-5.png)
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195619/6-2.png)
-
-**新聞六：**英國政府“正在討論”關閉議會以助控制疫情的傳播。美國聯合航空，削減航班數量。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195703/7-2.png)
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195711/8.png)
-
-**新聞七** ：日本全國中小學生臨時停課一個月。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195802/9-1.png)
-
-**新聞八** ：意大利老人抱怨，二戰時都沒有這樣恐慌過。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06195836/10.png)
-
-從上文列舉的若干新聞可以看出，隨著北半球春季的到來，春暖花開，溫度逐漸升高，這個時候也是各類病毒傳播的高峰期，恐怕一場全球疫情的擴散不可避免。
-
-而就在全球疫情肆虐的同時，東非、中東和南亞部分地區的蝗災卻愈演愈烈。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06200029/11.png)
-
-特別是隨著中國大陸春季的到來，溫度的升高，相信只要4000億蝗蟲大軍飛到中南半島的緬甸後，借助印度洋、孟加拉灣的西南季風，蝗蟲大軍會很自然的到達中國的雲貴高原。而云貴高原普遍海拔在1000米~2000米之間，高點的地方也不過4000多米，但蝗蟲卻可以飛到2000米的高空，時速可達100 ~200公里。
-
-所以蝗蟲大軍會很容易橫穿整個雲貴高原，屆時大陸最先倒霉的省份將是雲南、貴州、廣西、四川、重慶、湖南等地，隨著中國大陸天氣進一步的轉暖，如果中共國政府仍然不能有效的控制蝗災，那麼下一步蝗蟲大軍會藉助東南季風到達華北平原，然後繼續北上，直奔東北平原，到那時，整個中國的產糧區，將會基本陷落。 （以下是亞洲部分示意圖， **紅線**代表蝗蟲可能會到達的地方， **藍線**代表西南季風， **綠線**代表東南季風。）
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06200326/12.png)
-
-大陸的朋友現在可能會說，哪有那麼恐慌，現在糧食多的吃不完，我想說那隻是你看到的表面現象，筆者在之前寫過中國官方糧食數據是否可以前後對的上相關文章中，可以證明了中共國的糧食數據明顯造假，實際上中共國每年大概有20% ~30%，甚至40%的糧食需要進口。一旦國際上諸如美國、巴西等主要國家因為疫情原因，糧食產量受到影響，到時候中共國將是受衝擊最嚴重的國家之一。
-
-而中共國政府的腐敗與無能，相信大家早就深有體會，今年的武漢疫情就是最好的證明，剛開始官方闢謠抓李文亮等所謂8名造謠者，然後官方又出來說可防可控，一直到現在全球疫情的大爆發。可以說毫不誇張的說，盜國賊們寧願把錢拿出去藍金黃，甚至拿出去揮霍，也不會真正將錢花在中國老百姓身上，（從這些年來中共國花在醫療、教育、養老的錢可以看出。）而一旦中國大陸蝗蟲肆虐加上疫情進一步的惡化，中國老百姓將可能面臨嚴重的飢荒危險。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06200429/13.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06200446/14.png)
-
-
-（文章內容僅代表作者觀點）
+翻譯整理：佚名
 
 0

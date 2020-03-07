@@ -1,18 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：消息人士稱白宮認為中共製造了新冠病毒，將導致中共統治的結束
-`2020-03-06 23:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132640/)
+## 曾綁架52名美外交官的伊朗高官因冠狀病毒去世
+`2020-03-07 02:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/132787/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/06233003/10EBD8A3-4D34-441E-8AFF-E2D3C44BFA7F.png)
-川普政府內部的消息人士告訴CD媒體，白宮相信COVID-19起源於武漢的生物實驗室，而不是來自中國官員所描述的野生動物“海鮮市場”。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07022952/2-5.png)
+現年68歲的伊朗前駐敘利亞大使侯賽因·謝赫霍斯蘭姆在確診冠狀病毒兩天后於本週四去世。據報導，伊朗議會議員中有8％感染了冠狀病毒。
 
-消息人士還稱，川普團隊認為，由於疫情所引發的中國經濟完全崩潰，將導致中國共產黨的統治結束。
+國會發言人在謝赫霍斯蘭姆去世前一天還聲稱他正在從感染中恢復。
 
-評：這位消息人士為何人？一切已經開始！
+1979年，伊朗革命後，伊朗曾將美國52名美國外交官扣押在駐伊朗大使館，史稱伊朗人質危機。謝赫霍斯蘭姆是當時的領導者之一。
 
-[原文鏈接](https://creativedestructionmedia.com/news/asia/2020/03/02/breaking-white-house-believes-covid-19-came-from-wuhan-bio-lab-incident-could-mean-end-of-communist-party-rule-in-china/)
+伊朗衛生部說，本週五，在24小時之內，因冠狀病毒感染導致17人死亡，死亡總數激增至124人，並新增1000多例確診患者。
 
-翻譯報導：匿名
+在鄰近的海灣國家中，大多數確診案例要么是前往伊朗旅行的人，要么是被伊朗人感染的人。
+
+根據民航局遏制疫情的新措施，沙特阿拉伯週五呼籲過去14天內去過伊朗的公民上報。但是，由於沙特和伊朗是激烈的競爭對手，沙特什葉派的少數民族對於他們曾到訪過伊朗的行為諱莫如深。
+
+[原文鏈接](https://www.jpost.com/Middle-East/Iranian-official-involved-in-US-embassy-hostage-crisis-dies-of-coronavirus-620032)
+
+翻譯：Sonya
 
 0
