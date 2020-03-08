@@ -1,28 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 華南海鮮市場疑點重重，泉州隔離酒店倒塌心驚
-`2020-03-07 21:33 GM06` [轉載自GNews](https://gnews.org/zh-hant/133601/)
+## 綠帽吳爆岡芳鑰匙蘭表情包
+`2020-03-07 22:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/133674/)
 
-作者：立武
-
-2月29日之後，根據中共官方公佈的數據，境外輸入的病例增多，而國內的病例在減少，這似乎傳遞著一個中共希望傳遞的訊息： **病毒來源並非來自國內。**事實上，要調查病毒的來源，必須是初代的病毒，隨著變異病毒株樹的增多，確定初代病毒也尤為重要**。**根據中共通報的情況，初代的病毒似乎來源於華南海鮮市場，而最近圍繞華南海鮮市場的新聞也層出不窮。先是中共一遍又一遍的消毒，到後來的石正麗團隊趕赴現場，再到最近的拆遷，這一切都充滿著中共的特色社會主義特徵。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07212255/123-1.jpg)
-
-中共不但處理華南海鮮市場的囤積物，還清空所有商戶的貨物，儘管中共聲稱“主體建築不會拆”，但如此瘋狂的銷貨行為，已然與拆遷沒有什麼區別。但值得疑問的是，
-
-1. 中共此前一月二月都聲稱“挨家挨戶消毒”“每天消毒好幾次”，然而在3月3日卻又一次展開大規模消毒，這樣輪番的消毒浪費資源又沒有益處，也許可能令人懷疑是中共的形式主義，然而中共是完全可以在其他的地方進行消毒同時進行宣傳的，而且沒有必要連商戶的貨物都清理，顯然這已經超出了宣傳的效果，不如說是心虛的表現。
-2. 其次，中共中科院2月份最新研究認為，華南海鮮市場可能並非是病毒來源地，鐘南山更是宣稱病毒並非一定來自中國，在這樣的背景下，石正麗團隊在3月3日現身華南海鮮市場並帶走兩箱樣本，它聲稱是“為了研究新型冠狀病毒的環境存活”，但既然在此之前，中共已經多輪消毒，石正麗團隊為何在不斷消毒過後才來提取，而又為什麼不一開始進行提取都是值得懷疑的問題。
-3. 另外，中共為了處理囤積的貨物，為何進行如此不人道的“拆遷”行為，都是值得懷疑的，這不僅僅是違反中共自身憲法關於私人財產的條款，在中共聲名狼藉的當頭，又做出敗壞名聲的事情，可能已經是不得已之舉，而非正常的中共拆遷特色了。
-
-
-同時，在另一方面，在福建泉州，一棟疑似中共用來隔離的酒店的倒塌也極為弔詭，在視頻中，可以看出整個主體建築損毀相當嚴重，而恰好是用來隔離的酒店。一般認為，用來隔離的酒店會是比較好的酒店，然而酒店的倒塌，一方面中共沒有承擔好隔離人員的安全工作，另一方面，結合上述的疑問，似乎事情並非這麼簡單。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07212741/44-1.jpg)
-
-日前川普已經或多或少暗示了病毒來源地的存疑，也代表著美國方面在病毒來源地上的調查工作有了相當的進展，在中共大肆吹捧疫情控制住的當頭，對華南海鮮市場的瘋狂行為和隔離酒店的倒塌似乎昭示著中共在國內國外的雙重壓力下的舉動。一方面對可能來源於華南海鮮市場的初代病毒的毀屍滅跡，儘管不一定必要，但卻反映了中共對於病毒來源的心虛；另一方面，中共對於地方的疫情控制的大躍進要求，迫使地方可能採取某些舉動降低確診率，正如大躍進期間，地方瞞報中央的“畝產萬斤糧”。同時，或許我們可以分析出，病毒的來源是來自中共長期生化武器研究的產物，而對疫情真實情況的壓制，或許正表明疫情可能越來越嚴重，而在這樣的情況下，不復工等待美方和國際社會的調查結果應該是最好的選擇！
-
-（文章內容僅代表作者個人觀點）
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215645/DF4441CF-40FA-4D69-A1E9-641C6C3642B3.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215720/2347B89F-C427-48C8-8BFD-C5157FEA1B03.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215733/BAC4D454-BBDC-49FA-804E-748083F238FC.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215747/601D196A-CD74-41C4-B11D-8624D0277039.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215810/05AFA719-3A52-4DE4-A4DD-F86DE6AFC1B0.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215859/907081D9-E95F-4E23-90F3-930194991D8F.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215846/030078A0-8C9E-4230-9C88-F9F491493EBF.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215920/894ECDA0-7EF3-4303-8AB5-6E10F9219ECE.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215939/77695F9D-7E57-4B24-A9B5-A18DF988202F.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215952/32FA5F18-1678-4E87-9A73-E7F873159EF9.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07220013/6049DAA3-EBA9-4249-83E5-6785FC70471B.png)
+作者：【snow表情包組】【文瘋繪】
 
 0
