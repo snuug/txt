@@ -1,82 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月7日美國政要推文精選
-`2020-03-08 01:26 GM65` [轉載自GNews](https://gnews.org/zh-hant/133773/)
+## 中共冠狀病毒“放倒”意大利：意北部1600萬人被隔離
+`2020-03-08 03:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/133805/)
 
-> I’m glad [@BeijingPalmer](https://twitter.com/BeijingPalmer?ref_src=twsrc%5Etfw) is considering the full range of possibilities now. [https://t.co/gxzPal37pv](https://t.co/gxzPal37pv)
-> — Tom Cotton (@SenTomCotton) [March 7, 2020](https://twitter.com/SenTomCotton/status/1236364609822523392?ref_src=twsrc%5Etfw)
+![Image result for italy quarantine](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08032034/3-10.png)
+圖片來源：FT (Financial Times)
 
-參議員Tom Cotton：我很高興看到James Palmer先生（推特賬號用戶名：北京Palmer）現在把所有可能性都考慮在內了。五天前，他（James Palmer）指責我說的跟他一摸一樣的話是散佈“陰謀論”。究竟哪個說法對呢？
+夜總會、體育館、游泳池、博物館和滑雪場都將關閉。
 
-James Palmer 連推：中共現在這麼極力推動“病毒不是中國的”說法，不禁讓我想到一種可能——概率尚小——（但）這更可能是常規生物安全操作中的事故，而不是我之前認為的。我\*不\*是支持那些“故意制毒”的廢話。但生物安全事故在世界各地實驗室都有發生，某個傢伙下班之後，沒把手徹底洗乾淨就去吃東西，這種設想完全合理。我說“常規”是指過去7年美國大概發生了400起這種事故。當然，那些通常沒造成什麼後果。我沒找到中國這方面的數據，不確定他們是否統計過，但不管多努力地提高質量，還是發生了一些事故。不管怎樣，如果他們確實發現了就是這種情況，這也可能是他們如此拼命推動“病毒不來自中國”謊言的原因之一。但也可能是常規反美主義和維穩執念的行為。
+餐館和咖啡館可以營業，但顧客之間必須保持1米以上的距離。
 
-（推文發佈時間：美東時間3月7日上午11:19，即北京時間3月7日晚上12:19）
+人們被告知，盡可能呆在家裡，違反隔離規定的人將面臨三個月的監禁。
 
-跟帖中截圖內容：《外交政策》雜誌，James Palmer文章《北京知道誰應該因病毒受到指責：美國》，文章發表時間美東時間3月2日晚上8:44）
+體育比賽將向公眾關閉，意大利足球運動員工會主席呼籲推遲所有比賽。
 
-> The secrecy is the signature of a Communist country. We pretend China is “normal” but it’s very much not. [https://t.co/dHBxaHUlQf](https://t.co/dHBxaHUlQf)
-> — Karol Markowicz (@karol) [March 7, 2020](https://twitter.com/karol/status/1236289932425035776?ref_src=twsrc%5Etfw)
+……
 
-比爾·格茨先生轉推：
+你能想像這一切發生在自由的意大利嗎？
 
-Karol Markowicz：保密是共產主義國家的特點。我們假裝認為中國是“正常的”，但其實它非常不正常。
+但是，Yes，它發生了。
 
-《華爾街日報》：一切是怎麼開始的：中國早期應對冠狀病毒的失誤
+**意大利總理宣布，目前將至少有** **1600** **萬人在倫巴底地區和** **14** **個省份被強制隔離，**
 
-> Just finished meeting with [@VP](https://twitter.com/VP?ref_src=twsrc%5Etfw) & cruise industry on [#Covid19](https://twitter.com/hashtag/Covid19?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> Within 72 hours industry will provide a plan on to:
-> – enhance screening 
-> – testing onboard
-> – have pre-existing plan to for onshore medical care,quarantine & monitoring [pic.twitter.com/KJyYdfPOfr](https://t.co/KJyYdfPOfr)
-> — Marco Rubio (@marcorubio) [March 7, 2020](https://twitter.com/marcorubio/status/1236417620087320577?ref_src=twsrc%5Etfw)
+**封鎖將持續到** **4** **月初。而不久之前，意大利北部僅僅有大約** **5** **萬人受到隔離措施的影響。**
 
-參議員Marco Rubio：剛剛結束與副總統和遊輪行業關于冠狀病毒的會議。未來72小時內，遊輪業將提供一個計劃：—加強篩查，—船上測試，—預先制定上岸醫治、隔離和監測計劃
+新的隔離措施包括：關閉健身房、游泳池、博物館和滑雪場，這些措施是為了努力遏制急劇升級的病毒擴散。金融中心米蘭和旅遊熱點威尼斯也將隔離到4月3日。
 
-> An editorial calling for “clear communication” on [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) that uses quotes which are completely made up. 
-> 
-> I never said anything even remotely resembling what they claim is “conflicting information”. 
-> 
-> Not a misquote,totally made up by someone. [https://t.co/RTpvE4JTej](https://t.co/RTpvE4JTej)
-> — Marco Rubio (@marcorubio) [March 7, 2020](https://twitter.com/marcorubio/status/1236425119343525890?ref_src=twsrc%5Etfw)
+意大利目前是歐洲受災最嚴重的國家，週六報告病毒感染急劇上升。意大利的死亡人數已經超過230人，官方報告稱24小時內死亡人數超過50人。週六，確診病例增加了1200多例，達到5883例。
 
-參議員Marco Rubio：一篇呼籲就冠狀病毒問題進行“清晰對話”（言者表達的信息與聽者接收的信息一致，編者按）的社論，引用了完全編造的內容。我從未說過哪怕一句他們聲稱的“衝突的信息”。不是引用錯了，完全是某些人編出來（強加在我身上的）。
+倫巴底北部地區擁有1000萬人口，是意大利的金融中心米蘭，除了緊急通道外，其他地區都將關閉。包括威尼斯、帕爾馬和摩德納在內的14個省份將受到同樣的措施的影響，總人口約為1600萬。
 
-《棕櫚灘郵報》（佛羅里達州）：社論：佛羅里達州對冠狀病毒疫情的應對，使得“清晰對話”告急
+總理朱塞佩•孔蒂(Giuseppe Conte)表示，受影響的省份包括摩德納、帕爾馬、皮亞琴察、雷吉奧•艾米利亞(Reggio Emilia)、里米尼、佩薩羅和烏爾比諾、亞歷山德里亞、阿斯蒂、諾瓦拉、維爾巴諾•庫西奧•奧斯索拉(verbanski Cusio Ossola)、韋爾切利、帕多瓦、特雷維索和威尼斯。
 
-> CCP intimidation – “What’s equally shocking is how fearful they are. When we meet in my office, they want the blinds closed. They’re that fearful. I’ve passed on examples to the appropriate authorities.” [https://t.co/cH22otvbSq](https://t.co/cH22otvbSq)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 7, 2020](https://twitter.com/robert_spalding/status/1236268361039953920?ref_src=twsrc%5Etfw)
+意大利主要政治家尼古拉· 津加雷蒂（Nicola Zingaretti）週六表示，他的病毒檢測呈陽性。意大利中左翼民主黨(PD)領導人在Facebook 上發帖稱: “我很好，但未來幾天我將不得不待在家裡。”。
 
-斯伯丁將軍：中共的恐嚇——“同樣讓人感到震驚的是他們害怕到了那種程度。在我辦公室見面時，他們要把窗簾拉上。他們那麼害怕。我已經把一些實例交給了相關主管部門。”
+同時，意大利政府準備招募退休醫生，以應對不斷升級的疫情。
 
-Joanna Chiu（記者）：獨家報導：為什麼BC省的這位市長談論大溫地區加籍華人遭到騷擾
+**除意大利之外，其它各國也深受中共冠狀病毒的影響：**
 
-> “All of the fentanyl is coming from China and Hong Kong” [https://t.co/Ey9VOYS8jK](https://t.co/Ey9VOYS8jK)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 7, 2020](https://twitter.com/robert_spalding/status/1236291052845359108?ref_src=twsrc%5Etfw)
+據報導，伊朗已經確認了近6000例感染和145例死亡，全世界的病例數已經超過10萬。第二名國會議員是在伊朗死亡，那裡的衛生官員擔心病例數可能實際上要高得多。伊朗在過去的一天中有21人死于冠狀病毒，超過16000人正在接受檢測。
 
-斯伯丁將軍：“所有的芬太尼都來自中國和香港”
+週日，韓國官員表示，過去一天報告了367例新病例，使該國的病例總數達到7134例。
 
-YouTube視頻：芬太尼是如何從中國運到美國的（HBO電視台）
+在美國，一艘載有3533名乘客和船員的遊輪在21人檢測出艾滋病陽性後被扣留在舊金山附近的海岸。
 
-> So then he advocates for making Chinese companies comply with audit and transparency requirements right? Watch the stock prices plummet, and the lawsuits pour in. But hey, go with that. [https://t.co/XX3MlWigkt](https://t.co/XX3MlWigkt)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [March 7, 2020](https://twitter.com/robert_spalding/status/1236418140776660992?ref_src=twsrc%5Etfw)
+美國華盛頓州新增兩例死亡，使美國的死亡人數上升到19人。美國紐約州的病例從上週五的44例上升到76例，州長安德魯· 科莫宣布進入緊急狀態。
 
-斯伯丁將軍：那麼然後他提倡讓中國公司遵守審計和透明的各項要求，對不？等著看股價暴跌吧，然後各種官司紛湧而來。不過，嗨，您繼續。
+南美洲出現了第一例冠狀病毒死亡病例，一名64歲的男子在阿根廷死亡。
 
-《金融時報》：MSCI（明晟）主席為納入中國的決定辯解
+澳大利亞一名80多歲的男子成為第三個死於該病毒的人。
 
-> 🔴PREMIERE 9pm ET: [https://t.co/MSZY68uBha](https://t.co/MSZY68uBha)
-> 
-> “The Chinese…are great at buying [US tech], stealing it, reproducing it…
-> 
-> My goal for America…would be to invest in the technologies of the future…
-> 
-> [And] don’t let anybody steal it.”[@realKTMcFarland](https://twitter.com/realKTMcFarland?ref_src=twsrc%5Etfw) on [#AmericanThoughtLeaders](https://twitter.com/hashtag/AmericanThoughtLeaders?src=hash&amp;ref_src=twsrc%5Etfw) 🇺🇸 [pic.twitter.com/R3SUHrqpVo](https://t.co/R3SUHrqpVo)
-> — Jan Jekielek (@JanJekielek) [March 8, 2020](https://twitter.com/JanJekielek/status/1236454810184007681?ref_src=twsrc%5Etfw)
+其他報告病例總數增加的國家包括: 法國(增至949例) ; 德國(795例) ; 西班牙(441例) ; 英國(206例) ; 荷蘭(188例)。
 
-斯伯丁將軍轉發：
+哥倫比亞、保加利亞、哥斯達黎加、馬耳他、馬爾代夫和巴拉圭均有了首例病例的報告。
 
-Jan Jekielek：美東時間晚上9點首播。 “中國人…善於買、偷和復制（美國技術）…如果我為美國製定目標…那就是投資未來技術…並且不要讓任何人偷了去。”
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08012608/04_50.png)
+自從冠狀病毒在湖北省武漢市出現以來，中國已經有超過8萬人感染了冠狀病毒。
+
+到目前為止，全世界已有近3500例冠狀病毒死亡記錄。絕大多數病例都發生在中共國。
+
+**世界衛生組織(WHO)負責人泰德羅斯·阿達諾姆·蓋布雷耶蘇斯(Tedros Adhanom Ghebreyesus)稱病毒的傳播“令人深感擔憂” ，並敦促所有國家將遏制病毒作為“最優先事項”。**
+
+[原文鏈接](https://www.bbc.com/news/world-middle-east-51787238)
+
+翻譯報導：匿名
+
 0
