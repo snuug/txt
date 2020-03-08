@@ -1,11 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文字版：武汉冠状病毒大流行42集
-`2020-03-07 12:53 GM10` [轉載自GNews](https://gnews.org/zh-hant/133279/)
+## 美國會陷入新冠病毒的汪洋大海之中嗎？
+`2020-03-07 13:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/133280/)
 
-战友之家译制
+[https://spark.adobe.com/page/F2iTLHCu5v4r0/](https://spark.adobe.com/page/F2iTLHCu5v4r0/)
 
-[0306](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07123643/0306-1.pdf)[下载](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07123643/0306-1.pdf)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124259/Slide1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124313/Slide2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124327/Slide3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124343/Slide4.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124358/Slide5.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124451/Slide6-1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07124440/Slide7.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125839/Slide8-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125853/Slide9-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125913/Slide10-1.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07125940/Slide11-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130511/Slide12-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130903/Slide13-4.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130923/Slide14-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07130820/Slide15-3.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131004/Slide16-2.jpg)![](https://gnews.org/817c552a-cf05-4dc5-9d58-f7c07ce982c7)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131040/Slide19-2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07131116/Slide21-3.jpg)
+*来源： ZeroHedge*
+
+*作者: Tyler Durden*
+
+*翻譯: ignoreme**， PR: TCC*
+
+*簡評:* *TCC*
+
+#### **簡評： 中國的宣傳機構一直在積極參與中共的生物戰爭, 這是超限戰的一部分。 作為中共媒體的代言人, 新華社向美國為主的西方世界發聲, 要求世界應該感謝中共的愛。 文字中流露出威脅口吻, 因為它們已經控制了絕大部分藥物和口罩的生產。 這些是控制COVID-19疫情爆發所迫切需要的。 這哪是愛呀!**
+
+#### **這是中共的總體規劃超限戰的一部分。 先用所謂的藍金黃, 使對方墮落並產生依賴性, 掐住要害, 在重要時刻使對方動彈不得; 如不服從就可輕易地將對方至於死地。 自從2001年加入世貿組織後, 中共就處心積慮地發展其勢力及影響力。 他們通過慣用的藍金黃手段, 靜靜地打通關係的手段, 以低價競爭, 劣幣驅逐良幣, 進而循序漸進地取代了歐美當地的工廠, 而使之產生了對中共國的依賴性。**
+
+#### **希望這次新冠病毒的疫情能及時喚醒歐美國家, 能真正地瞭解到中共邪惡的本質及其綁架十四億中國人的事實, 能達到全球反共的決心與行動。 像那些藥物上癮的人一樣, 戒毒的過程一定會有一段痛苦與反思。這是對邪惡縱容所要付出的代價。**
+
+#### **這是正與邪之爭。 歷史告訴我們邪不壓正。 一切已經開始!**
+
+
+
+### **中共國暗示利用藥品出口進行敲詐, 將把美國冠推向冠狀病毒的深淵**
+
+中共的喉舌媒體【新華社】發表了一篇題為: “理直氣壯：世界欠中國一聲感謝！”
+
+文章作者稱: 美國的冠狀病毒疫情比政府披露的要嚴重的多, 另外, 除了川普總統在最近的記者會上稱讚中共國對疫情處置和控制, 新華社也指出, 美國股市已經持續下跌, 一周下跌超過12%。
+
+文章還稱, 強制實施對中國的旅行禁止令, 包括限制曾倒過中國的人是不友善的, 這會對美國經濟有重大影響。
+[!\[\](https://spark.adobe.com/page/F2iTLHCu5v4r0/images/efec2ee7-ed4f-4ab2-adfa-5a56d04330eb.jpg?asset_id=28885dbb-3e35-4a81-96fc-c43d10726a6e&amp;img_etag=762b5d04a5064879ddb488270a707bce&amp;size=2560)](https://spark.adobe.com/page/F2iTLHCu5v4r0/images/efec2ee7-ed4f-4ab2-adfa-5a56d04330eb.jpg?asset_id=28885dbb-3e35-4a81-96fc-c43d10726a6e&amp;img_etag=762b5d04a5064879ddb488270a707bce&amp;size=1024)
+美國政府官員, 像商務部長Rose, 國務卿Pompeo和白宮經濟顧問Navarro對中國爆發的新冠狀病毒肺炎疫情幸災樂禍, 並將協助美國公司撤回美國。
+
+這也向世界各國公司呼籲要考慮中共國供應鏈的風險。 甚至臭名遠揚的【華爾街日報】發表的臭名昭著的文章: “中國: 亞洲的真正病人”。 美國的【紐約時報】也發表文章譴責中國武漢的封城侵犯人權。 美國文化的落井下石真是無恥。 今天, 風水輪流轉, 美國已經成為新冠肺炎疫情的受害者。 同時, 中共國並沒有落井下石譴責美國。 此時, 美國應該認清自己的錯誤, 對你們的行為向中共國道歉-(翻譯自)【新華網】
+
+妙語連珠啊? 如果中共國現在報復美國, 包括旅行禁止和戰略性限制藥物出口, 美國將陷入冠狀病毒深淵。
+
+新華社稱: “美國大部分藥品要靠進口, “還有 “美國的大部分口罩也是中國生產並從中國進口。” 如果這個被限制, 美國將不能採取最基本的措施來防範新冠狀病毒。
+
+#### 實際上(來自於【新東方瞭望】雜誌的F. William Engdahl)
+
+美國現在銷售的藥品80%是中國生產。 這包括中國公司和外包藥品生產和中國合資的國外的藥品公司。 根據Hastings生物倫理學研究中心(Hastings Center bioethics research institute)的Rosemary Gibson的說法, 這種對中共國的依賴程度讓人擔憂。 她在2018年時曾針對這個話題寫了一本書。
+
+Gibson引用醫學通訊的數據, 他們給出的估計是目前美國80%藥品的活性成分是中國生產。
+
+不僅僅是活性成分, 還有化學物前質 – 用於製作活性成分化學構件。 我們依賴中國的化學構建來生產全系列的抗生素, 比如頭孢菌素。 在美國, 每天要用成千上萬次幫人們對抗嚴重感染。
+
+目前, 中共國生產的藥品, 包括大部分抗生素, 避孕藥, 控制血壓類藥物, 比如纈沙坦(valsartan),血液吸收劑, 比如肝素(heparin),還有各類抗癌藥。 還有常見藥物,盤尼西林, 抗壞血酸(Vitamin C), 和阿司匹林。 清單里還包括治療HIV的, 阿爾茨海默症, 躁鬱症, 精神分裂症, 癌症, 抑鬱症, 癲癇的藥物。 商務部門最近的一份研究報告發現美國97%的抗生素來自中共國。
+
+此外,【 新華社】在他們的”敲詐”文章中稱, 世界上仍有”偉大的愛”, 他們永遠不會做這樣的。 隨著他們冠狀病毒感染逐漸被控制, 中國出口口罩和藥品的能力會大大加強。
+
+[新聞鏈接](https://www.zerohedge.com/geopolitical/china-hints-blackmail-over-pharmaceutical-exports-would-plunge-us-mighty-sea)
+
+**編輯：【喜馬拉雅戰鷹團】**
+
 0
