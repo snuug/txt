@@ -1,16 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 綠帽吳爆岡芳鑰匙蘭表情包
-`2020-03-07 22:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/133674/)
+## 《武漢肺炎》米蘭封城草案引發逃難潮 地方首長反彈盼緩衝 米蘭、威尼斯封城！
+`2020-03-07 23:43 GM15` [轉載自GNews](https://gnews.org/zh-hant/133679/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215645/DF4441CF-40FA-4D69-A1E9-641C6C3642B3.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215720/2347B89F-C427-48C8-8BFD-C5157FEA1B03.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215733/BAC4D454-BBDC-49FA-804E-748083F238FC.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215747/601D196A-CD74-41C4-B11D-8624D0277039.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215810/05AFA719-3A52-4DE4-A4DD-F86DE6AFC1B0.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215859/907081D9-E95F-4E23-90F3-930194991D8F.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215846/030078A0-8C9E-4230-9C88-F9F491493EBF.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215920/894ECDA0-7EF3-4303-8AB5-6E10F9219ECE.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215939/77695F9D-7E57-4B24-A9B5-A18DF988202F.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215952/32FA5F18-1678-4E87-9A73-E7F873159EF9.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07220013/6049DAA3-EBA9-4249-83E5-6785FC70471B.png)
-作者：【snow表情包組】【文瘋繪】
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07233651/Noname-8.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07234137/Noname-9.jpg)
+義大利政府擬擴大封鎖米蘭所在行政大區消息一出，米蘭火車站昨天深夜湧入大量逃難潮，出城道路也擠滿車輛。不過幾位疫區行政首長都向政府喊話，希望給予緩衝時間。
+
+義大利7日確診2019年冠狀病毒疾病（COVID-19，武漢肺炎）病例達5883例，死亡人數233例，許多地方行政首長也感染，義大利政府晚間提出新的緊急措施，擬擴大封鎖的「紅色區域」。
+
+義大利網媒「粉絲頁」（Fanpage）報導，原本近日因疫情人潮大量減少的米蘭火車站，昨天深夜10時之後卻有愈來愈多人湧入，因為許多人認為義大利政府封鎖米蘭方案，最短可能在幾小時後就會實施。
+
+「粉絲頁」貼出一位米蘭學生的訪問影音，她表示，一聽到消息就飛奔到車站買了前往羅馬的車票，因為她怕一旦米蘭封城，她會再也見不到在羅馬的家人。
+
+總部在米蘭的義國第一大報「晚郵報」（Corriere della Sera）則形容，該報收到如雪片般飛來的疑問，有人擔心他們剛好這週末出城度假，封城之後還回得了家嗎？也有住在其他區域的高階經理說，他因出差暫時把小孩放在米蘭的爺爺奶奶家，萬一封城能把小孩接回來嗎？
+
+義大利政府的訊息不明確，先是「晚郵報」等多家大報昨晚8時許以快訊丟出爆炸性訊息，透露政府已決定增加封鎖的「紅色區域」，包括以米蘭為首府的整個倫巴底（Lombardia）大區。
+
+因近日義國政府常在晚間發布緊急措施，消息一出，引起台灣僑領、華人社群瘋狂轉傳，部分住在米蘭的台灣留學生急問，是否還來得及買機票回台灣。
+
+「晚郵報」稍後報導，對於義國中央政府所提方案，3個重災行政大區的首長都強烈反彈，認為中央擬定方案過程並未徵詢他們的意見，方案內容模糊不清，有執行困難，他們今天將再與中央政府溝通。
+
+倫巴底大區區長方達納（Attilio Fontana）說，他支持政府採取更強烈的限制性措施，但他認為這份方案部分內容很拙劣，很多模糊地帶，可能給人鑽漏洞的空間，他已經將意見傳給中央政府，希望能做出調整。
+
+艾米利羅馬那區（Emilia Romagna）主席博納西尼（Stefano Bonaccini）表示，他昨晚才從中央收到這份方案內容，希望中央能再給他幾小時反應方案內容的窒礙難行之處。
+
+目前媒體披露的義國政府擴大封鎖米蘭方案，上路時間仍未定，僅提到將實施至4月3日。
+
+引自[中央社](https://www.cna.com.tw/news/firstnews/202003080022.aspx)
+
+GM15
 
 0
