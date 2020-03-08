@@ -1,41 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一家共產黨病毒隔離酒店“意外”坍塌
-`2020-03-07 21:46 GM06` [轉載自GNews](https://gnews.org/zh-hant/133632/)
+## 綠帽吳爆岡芳鑰匙蘭表情包
+`2020-03-07 22:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/133674/)
 
-作者:麓山之蜂
-
-北京時間2020年3月7日晚19點多，位於福建泉州市鯉城區的一家CCP病毒集中隔離點欣佳酒店發生讓了人匪夷所思的坍塌。有目擊者稱，突然聽到一聲巨響，還以為是爆炸，後來發現是欣佳酒店所在的整棟樓坍塌。為什麼是在被用作CCP病毒的集中隔離點的時候坍塌呢？
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07213935/1234.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07213948/12345.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07213959/123456.png)
-
-圖片來源於現場目擊者
-目前這家酒店居住的集中隔離人員的主要來源地：
-
-1)、湖北(武漢)；
-
-2)、溫州的樂清市、泰順縣鹿城區、龍灣區、甌海區、瑞安市、永嘉縣實施居家隔離對象，被轉移到該酒店；
-
-3)、河南信陽、安徽阜陽、江西九江、南昌、重慶萬州五個重點城市來鯉人員；
-
-4)、溫州文成縣、龍港市、洞頭區、平陽縣、蒼南縣、經開區、生態園、雁湯山管委會實施居家隔離對象，被安排到該酒店；
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07214154/77-1.jpg)
-
-該酒店於2018年6月開業，酒店內擁有多種類型客房共計80間，該酒店到目前為止營業2年時間都不到。難道目前中共國的酒店“壽命”如此之短嗎？房屋質量真的如此之差嗎？ 
-據消息稱目前被困人員約70餘人，由於是中共安排的CCP病毒隔離定點酒店。所以，可以推斷出除了工作人員外，應該全部為隔離人員，不會有其他的入住人員。但是具體工作人員、隔離人員人數尚不確定。就在事發後，陸續有被隔離人員的家屬通過電話等方式聯繫正在隔離中的親人時，發現已經完全無法取得正常的聯繫了。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07214236/88-3.jpg)
-
-難道在這十分巧妙的時間就發生了這麼“意外”的坍塌，正常嗎？而且目擊者聽到的巨響與爆炸聲類似，是質量問題引起的還是蓄謀已久的讓酒店坍塌呢？這其中的真相十分讓人尋味！更是讓人捉摸不透。
-
-由於中共針對CCP病毒隔離點人員的身體健康狀況採取保密性、不公開、不透明等等措施；再加上中共高層下令不允許上報CCP病毒確診新增人數；但是又陸續有被確診人員的信息流露出來等等情況。是不是目前在該酒店的隔離人員有被確認已經感染呢？或者是多數人已經被確認感染呢？又或是已經出現了交叉感染現象呢？而該地政府官員為了不讓正在隔離點的人員的身體狀況讓外界知曉，已經確診人員人數不被曝光，中共是不是想通過某種方法、手段讓在該酒店的隔離人員被悄無聲息地“平息”掉呢？
-
-我們接下來一定要密切關注中共政府關於福建泉州欣佳酒店坍塌的官方發言，看他們是否能給出一個合理的解釋、讓人信服的理由。還有我們一定密切關注在此次救援人員中，有多少被隔離人員生還的人數，因為這個是十分關鍵，如果被隔離人員超過半數在這次坍塌中喪失生命(不僅是當時被發現就已經沒有生命跡象，還是在醫院中被搶救無效而失去生命的)。那如果是這樣的話，那您還以為這不是一場被蓄謀的坍塌嗎？為在這場坍塌中的受難者祈福、願你們都能得到及時的救治，健健康康地與家人團圓。
-
-(文章內容僅代表作者個人觀點)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215645/DF4441CF-40FA-4D69-A1E9-641C6C3642B3.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215720/2347B89F-C427-48C8-8BFD-C5157FEA1B03.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215733/BAC4D454-BBDC-49FA-804E-748083F238FC.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215747/601D196A-CD74-41C4-B11D-8624D0277039.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215810/05AFA719-3A52-4DE4-A4DD-F86DE6AFC1B0.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215859/907081D9-E95F-4E23-90F3-930194991D8F.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215846/030078A0-8C9E-4230-9C88-F9F491493EBF.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215920/894ECDA0-7EF3-4303-8AB5-6E10F9219ECE.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215939/77695F9D-7E57-4B24-A9B5-A18DF988202F.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07215952/32FA5F18-1678-4E87-9A73-E7F873159EF9.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/07220013/6049DAA3-EBA9-4249-83E5-6785FC70471B.png)
+作者：【snow表情包組】【文瘋繪】
 
 0
