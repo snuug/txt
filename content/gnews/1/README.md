@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》義大利封城&#8230; 奧地利總理庫爾茨：歐洲各國也會只是遲早的問題
-`2020-03-08 21:24 GM15` [轉載自GNews](https://gnews.org/zh-hant/134290/)
+## 《武漢肺炎》病例增加！ 沙烏地阿拉伯首度緊急封城 封鎖東部省石油豐富的蓋提夫城 停止上班
+`2020-03-08 21:25 GM15` [轉載自GNews](https://gnews.org/zh-hant/134279/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08210700/phpoUPc0y.jpg)
-義大利政府因應武漢肺炎疫情持續擴大，仿效中國，下令封鎖管制倫巴底、威尼托大區等疫情較嚴重地區，影響近1600萬民眾，也震撼歐洲鄰國。對此，奧地利總理庫爾茨（Sebastian Kurz）今（8）日表示，歐洲各國採取義大利那樣的激進措施，恐怕「只是時間早晚的問題」。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08205936/phpsIyNDA.jpg)
+沙烏地阿拉伯今（8）日新增4例武漢肺炎確診病例，目前累計總確診數上升至11例，該國已緊急封鎖蓋提夫城（Qatif），並宣布全面停班。
 
-根據[路透](https://www.reuters.com/article/us-health-coronavirus-austria/more-countries-will-have-to-adopt-italy-style-virus-steps-austrias-kurz-idUSKBN20V0KJ) 報導，奧地利南部鄰接義大利，對於義大利封城一事，33歲的庫爾茨向奧地利廣播集團（ORF）表示，歐洲各國採取義大利那樣的激進措施，只是遲早的問題，目前奧地利的疫情已受到控制，政府目前採取的措施適當，但未必是比須採取的最終措施。
+沙烏地阿拉伯本月3日通報首例新型冠狀病毒感染案件，1名該國公民從疫區國之一的巴林返國後，隱瞞他也曾去伊朗旅遊，隨後發病被送院隔離。
 
-庫爾茨表示，如果有必要，奧地利當然也可能下令各校園停課或停止大型活動，「關鍵的是何時進行這項決策，因為一個國家的經濟無法長期支撐此種措施」。
+該國衛生部官方推特表示，累計確診數已經上升到11例。
 
-為了防疫，奧地利宣布，下週將在與義大利連接的邊境地區實施為期兩週的健康抽檢。庫爾茲說，在意大利邊境的抽查不僅會檢驗出武漢肺炎感染者，也能減少旅行者的越境流動，從而降低感染風險。
+根據[《彭博》](https://www.bloomberg.com/news/articles/2020-03-08/saudi-arabia-puts-city-in-eastern-province-under-virus-lockdown)報導，沙烏地阿拉伯在該國發生11例新型冠狀病毒病例後，封鎖該國東部省石油豐富的蓋提夫城，該城擁有大量什葉派信徒，其次大多數是伊朗人，官方也將該城內部的政府機關、私人機構暫停上班。
 
-奧地利目前已暫時禁止飛往義大利北部以及伊朗、韓國等其他疫情熱點的航班，截至目前，奧地利武漢肺炎確診病例累積至102例。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3093101)
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3092981)
 
 GM15
 
