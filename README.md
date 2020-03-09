@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/274402](https://www.guo.media/posts/274402) `2020-03-09T22:25:13`
 ##
 
+**milesguo** U.N前美国发言人：只有像中国这样的集权政府才会给出让人混乱甚至误导的信息和数字，就像前苏联切尔诺贝利事件一样<br>https://gnews.org/zh-hans/135105/
+
+[https://www.guo.media/posts/274401](https://www.guo.media/posts/274401) `2020-03-09T22:55:11`
+##
+
 **milesguo** 中共病毒在德国意大利现状0309<br>https://gnews.org/zh-hans/135054/
 
 [https://www.guo.media/posts/274400](https://www.guo.media/posts/274400) `2020-03-09T22:25:15`
@@ -44,6 +49,11 @@
 **milesguo** Warroom 35 史蒂夫·班农：美国研制的治疗新冠的药正在临床试验中<br>https://gnews.org/zh-hans/134831/
 
 [https://www.guo.media/posts/274397](https://www.guo.media/posts/274397) `2020-03-09T21:40:16`
+##
+
+**milesguo** 中朝到底谁是老大？ ——武汉新冠肺炎病毒传播中分析中朝关系<br>https://gnews.org/zh-hans/134809/
+
+[https://www.guo.media/posts/274396](https://www.guo.media/posts/274396) `2020-03-09T22:55:12`
 ##
 
 **milesguo** 黑警趁夜突袭民宅抓人<br>https://gnews.org/zh-hans/134808/
