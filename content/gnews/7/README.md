@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣播：2020/3/8 郭文貴先生直播 世紀之戰即將發生！
-`2020-03-08 23:49 GM07` [轉載自GNews](https://gnews.org/zh-hant/134486/)
+## 醫護士去哪了，回來了嗎？未來誰給我們看病？“共渡難關，武漢疫情每日熱線”
+`2020-03-09 02:17 GM30` [轉載自GNews](https://gnews.org/zh-hant/134679/)
 
-接下來的經濟市場、金融市場倒閉，大家看吧。未來有點錢就能買個大樓用著，甚至可以送給你，因為交不起稅
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
