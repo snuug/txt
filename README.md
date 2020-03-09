@@ -16,9 +16,24 @@
 [https://www.guo.media/posts/274403](https://www.guo.media/posts/274403) `2020-03-09T21:40:12`
 ##
 
+**milesguo** 2020年2月3日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/135313/
+
+[https://www.guo.media/posts/274402](https://www.guo.media/posts/274402) `2020-03-09T22:25:13`
+##
+
+**milesguo** 中共病毒在德国意大利现状0309<br>https://gnews.org/zh-hans/135054/
+
+[https://www.guo.media/posts/274400](https://www.guo.media/posts/274400) `2020-03-09T22:25:15`
+##
+
 **milesguo** 轮回-中共灭亡可能路径<br>https://gnews.org/zh-hans/134873/
 
 [https://www.guo.media/posts/274399](https://www.guo.media/posts/274399) `2020-03-09T21:40:15`
+##
+
+**milesguo** 美国国家过敏和传染病研究所的医生Dr. Anthony Fauc谈疫情之下如何制定规则<br>https://gnews.org/zh-hans/134906/
+
+[https://www.guo.media/posts/274398](https://www.guo.media/posts/274398) `2020-03-09T22:25:16`
 ##
 
 **milesguo** Warroom 35 史蒂夫·班农：美国研制的治疗新冠的药正在临床试验中<br>https://gnews.org/zh-hans/134831/
