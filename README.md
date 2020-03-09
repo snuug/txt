@@ -11,6 +11,26 @@
 
 
 
+**milesguo** 塌！塌！塌！泉州一酒店突然倒塌，中共官方称被困约70人<br>https://gnews.org/zh-hans/134309/
+
+[https://www.guo.media/posts/274403](https://www.guo.media/posts/274403) `2020-03-09T21:40:12`
+##
+
+**milesguo** 轮回-中共灭亡可能路径<br>https://gnews.org/zh-hans/134873/
+
+[https://www.guo.media/posts/274399](https://www.guo.media/posts/274399) `2020-03-09T21:40:15`
+##
+
+**milesguo** Warroom 35 史蒂夫·班农：美国研制的治疗新冠的药正在临床试验中<br>https://gnews.org/zh-hans/134831/
+
+[https://www.guo.media/posts/274397](https://www.guo.media/posts/274397) `2020-03-09T21:40:16`
+##
+
+**milesguo** 黑警趁夜突袭民宅抓人<br>https://gnews.org/zh-hans/134808/
+
+[https://www.guo.media/posts/274395](https://www.guo.media/posts/274395) `2020-03-09T21:40:18`
+##
+
 **milesguo** 3月9号：尊敬的战友们好，今天是一个里程碑的日子，这个是我们几年来爆料革命，一直向世人公告的结果…<br>也必将达到空中取钱的我们的目标……凡跟随爆料革命者．赚了钱保了命……文贵建议所有的战友们，千万别在这个人类命运大逆转的时候，偷机取巧．那将粉身碎骨……<br>衷心感谢．刚刚日本，香港，新加坡的战友，今天给法制基金的巨额捐款……<br>凡是侥幸跟随共产党的人．<br>不管你身在何方．身处何国……将倾家荡产……莘县阳谷县搭县．我们一切靠现实和结果证明说了算……今天晚上在船上放烟火．因为私人原因不能直播，一切已经开始！👉👉👉【七哥的邦共产党摘毛视频，看的我停不下来了，太爽了……直到看到晩上的大放烟火🎆】
 
 [https://www.guo.media/posts/274377](https://www.guo.media/posts/274377) `2020-03-09T16:55:31`
