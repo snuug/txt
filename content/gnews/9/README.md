@@ -1,22 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》義大利封城&#8230; 奧地利總理庫爾茨：歐洲各國也會只是遲早的問題
-`2020-03-08 21:24 GM15` [轉載自GNews](https://gnews.org/zh-hant/134290/)
+## 3月8日美國政要推文精選
+`2020-03-08 21:52 GM65` [轉載自GNews](https://gnews.org/zh-hant/134358/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08210700/phpoUPc0y.jpg)
-義大利政府因應武漢肺炎疫情持續擴大，仿效中國，下令封鎖管制倫巴底、威尼托大區等疫情較嚴重地區，影響近1600萬民眾，也震撼歐洲鄰國。對此，奧地利總理庫爾茨（Sebastian Kurz）今（8）日表示，歐洲各國採取義大利那樣的激進措施，恐怕「只是時間早晚的問題」。
+> In the wake of the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw), Sen Josh Hawley introduces a bill to end United States dependency on China for the manufacturing and distribution of our medical supply. [https://t.co/BRx40LQ1Du](https://t.co/BRx40LQ1Du)
+> — Newt Gingrich (@newtgingrich) [March 8, 2020](https://twitter.com/newtgingrich/status/1236739714897473536?ref_src=twsrc%5Etfw)
 
-根據[路透](https://www.reuters.com/article/us-health-coronavirus-austria/more-countries-will-have-to-adopt-italy-style-virus-steps-austrias-kurz-idUSKBN20V0KJ) 報導，奧地利南部鄰接義大利，對於義大利封城一事，33歲的庫爾茨向奧地利廣播集團（ORF）表示，歐洲各國採取義大利那樣的激進措施，只是遲早的問題，目前奧地利的疫情已受到控制，政府目前採取的措施適當，但未必是比須採取的最終措施。
+美國眾議院前議長金里奇：在冠狀病毒疫情出現之後，參議員Josh Hawley引入法案，旨在結束美國在醫療用品的製造和分配上對中國的依賴。
 
-庫爾茨表示，如果有必要，奧地利當然也可能下令各校園停課或停止大型活動，「關鍵的是何時進行這項決策，因為一個國家的經濟無法長期支撐此種措施」。
+《國家評論》雜誌：Josh Hawley宣布一項法案，減少美國對中國醫療用品供應鏈的依賴
 
-為了防疫，奧地利宣布，下週將在與義大利連接的邊境地區實施為期兩週的健康抽檢。庫爾茲說，在意大利邊境的抽查不僅會檢驗出武漢肺炎感染者，也能減少旅行者的越境流動，從而降低感染風險。
+> FDA head says 2.1 million coronavirus tests will have been shipped to labs by Monday [https://t.co/Sp7dkAJ3on](https://t.co/Sp7dkAJ3on) [pic.twitter.com/u9P7anP2JV](https://t.co/u9P7anP2JV)
+> — Reuters (@Reuters) [March 8, 2020](https://twitter.com/Reuters/status/1236463044319985665?ref_src=twsrc%5Etfw)
 
-奧地利目前已暫時禁止飛往義大利北部以及伊朗、韓國等其他疫情熱點的航班，截至目前，奧地利武漢肺炎確診病例累積至102例。
+彭斯副總統轉推：
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3093101)
-
-GM15
-
+路透社：美國食品藥品監督管理局（FDA）負責任說，截至下週一將有210萬冠狀病毒檢測試劑運到各實驗室。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08215144/image0-53.jpg)
 0
