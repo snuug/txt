@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 【武汉肺炎】武汉肺炎最新消息/共产党人工制造病毒/3月9日视频合集<br>https://gnews.org/zh-hans/135436/
+
+[https://www.guo.media/posts/274404](https://www.guo.media/posts/274404) `2020-03-09T22:40:12`
+##
+
 **milesguo** 塌！塌！塌！泉州一酒店突然倒塌，中共官方称被困约70人<br>https://gnews.org/zh-hans/134309/
 
 [https://www.guo.media/posts/274403](https://www.guo.media/posts/274403) `2020-03-09T21:40:12`
