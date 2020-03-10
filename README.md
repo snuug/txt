@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274436](https://www.guo.media/posts/274436) `2020-03-10T07:25:21`
 ##
 
+**milesguo** 细思极恐——分析两例新冠状肺炎患者肺移植手术背后恐怖故事<br>https://gnews.org/zh-hans/135963/
+
+[https://www.guo.media/posts/274435](https://www.guo.media/posts/274435) `2020-03-10T07:40:13`
+##
+
 **milesguo** 中共冠状病毒大爆发 全球股市暴跌原油崩盘 — 郭文贵先生再次成功预测<br>https://gnews.org/zh-hans/135954/
 
 [https://www.guo.media/posts/274431](https://www.guo.media/posts/274431) `2020-03-10T04:40:14`
