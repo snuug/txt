@@ -16,9 +16,19 @@
 [https://www.guo.media/posts/274446](https://www.guo.media/posts/274446) `2020-03-10T08:55:14`
 ##
 
+**milesguo** 未来车贷房贷不用还，你还冒死上啥班！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/136423/
+
+[https://www.guo.media/posts/274444](https://www.guo.media/posts/274444) `2020-03-10T09:25:14`
+##
+
 **milesguo** 由天津坠机谈令谷车祸<br>https://gnews.org/zh-hans/136116/
 
 [https://www.guo.media/posts/274443](https://www.guo.media/posts/274443) `2020-03-10T08:55:16`
+##
+
+**milesguo** 只要中共在！盗国贼永远是刀俎，百姓永远是砧板上的鱼肉！<br>https://gnews.org/zh-hans/136194/
+
+[https://www.guo.media/posts/274442](https://www.guo.media/posts/274442) `2020-03-10T09:25:15`
 ##
 
 **milesguo** 3月9日 美国政要推文精选<br>https://gnews.org/zh-hans/136274/
