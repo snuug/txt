@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 醫療系統“大躍進”
-`2020-03-09 23:53 GM06` [轉載自GNews](https://gnews.org/zh-hant/136358/)
+## 只要中共在！盜國賊永遠是刀俎，百姓永遠是砧板上的魚肉！
+`2020-03-10 00:19 GM30` [轉載自GNews](https://gnews.org/zh-hant/136375/)
 
-作者：明澈
+**作者：北方以北**
 
-伴隨著國內看似逐漸穩定的疫情狀況，有些人決定立即回國，或被親友勸返，以避免海外每況愈下的狀況。
+最近這幾天在推特上看到幾則新聞，既感到氣憤，又在意料之中，想想中共統治中國大陸的這70年來不一直都是這樣嗎？按照中國的一句古話，“人為刀俎，我為魚肉”，在中共國，盜國賊們永遠都是刀俎，老百姓永遠都是砧板上的魚肉！
 
-但對比全世界醫療效率，處理流行病的能力，醫患比例，基礎醫療資源需求，壽命長度，可輕易看出疫情數據造假。希望一下數據可以幫助同胞看的更明白。
+新聞一：武漢華南市場的商戶一夜之間被中共洗劫。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234302/q.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232004/1-41.png)
 
-2018年世界醫療效率，中國與墨西哥並列第20位，而大量新增病例的韓國則處於第五位。
+新聞二：向中共國國務院副總理孫春蘭喊話，“假的，假的，全部都是假的”武漢某小區遭到報復，小區的出口被封死，居民全部封鎖在大樓內。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234323/w.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232043/2-12.png)
 
-對比全世界處理流行病的能力，前十位並沒有中國。就中美醫療投入金額，也相差甚遠。儘管中國的醫療保健市場是全球第二大市場，但它仍然相對不成熟，特別是與發達市場體系相比。儘管近二十年來一直以兩位數的速度增長，但醫療保健支出仍僅佔GDP的6％，而美國為17％，德國和法國為11％。
+新聞三：廣東十三行新中國大廈服裝城爆發示威，租戶們因為疫情期間沒有營業額，都要求爭取大廈減免租金和退租，結果招到中共國的警察和保安人員的毆打和噴辣椒水。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234455/r.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234639/e-1.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232109/3-13.png)
+
+新聞四：中共國官媒公然造假，中共國國家衛健委表示，赴湖北醫療隊4.2萬人，無一人感染新型冠狀病毒。但是中共國國務院辦公室在湖北武漢舉行的新聞發布會上又說湖北超過3000名醫護人員被感染，新聞前後矛盾。
+
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232327/4-10.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232350/5-11.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232429/6-13.png)
 
 
-醫患比例與醫比例世界各國對比圖。每一千個居民，中共國相對應1.8個醫生，美國2.6個醫生，瑞典4.3個醫生。中共國每個醫生有1.04個護士，屬於極低水平。
+從以上新聞我們可以看出，中共盜國賊們把老百姓當成豬狗的本性就一直沒有變過，對於老百姓想收肉就割肉，想打就打，想騙就騙。就在剛剛，筆者又搜索到一則新聞，說是在中共國國家廣電總局的指導下，中共國國家衛健委和上海市委宣傳部的支持下，打算把戰役拍成一部電視劇，叫《在一起》，大家看到沒有，又是中共的大內宣在牆內愚弄、洗腦老百姓，想想是多麼可恥啊。
 
-從以上數據顯示，中共國處處表現出弱勢。各國在面對中共國肺炎病毒高感染率的狀況，醫療效率越高反應越快，流行病處理能力越高越能控制疫情，居民人均擁有醫生數量越多，醫護人員配搭越合理越能處理突發狀況。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232603/7-8.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232649/8-6.png)
 
-奇怪的是面對迅猛疫情，中國各地在不同首例確證時間，交通條件，人口密度，人口結構，不同醫療條件，個人體質，氣候條件多種不確定因素的影響下，中共國卻能做到同一天各地達到完全零增長。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234744/h.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234808/k.png)
-最近國內各大平台吹起甩鍋外國的風，一說中共肺炎病毒來自美國流感，二說國內疫情成功控制，現在新增病例都是外國（意大利，韓國）飛來的人，大有將三月底第二波大爆發推給這些人的趨勢，哪國增長病例多，就說此國來中共國躲避疫情的人多。
+大家還記得前段時間中共國組織一幫低端的五毛編了一本幾百萬字的《大國戰役》的書嗎？結果遭來牆內一片罵聲，不得不匆匆下架，這次中共國的大內宣換了一招。
 
-這種行為可以形容為醫療數據上的大躍進新騙局。為應對此種即將來臨的醫療資源不足，糧食短缺，金融危機，建議大家積極屯糧，銀行里的現金取出來握在手裡，換匯，換物資。
+像類似的電影或者電視劇，中共國在最近幾年拍了很多，所謂宣傳中共國的主旋律，說到底就是給老百姓洗腦，愚弄老百姓，給老百姓打精神的麻醉藥，跟當年的納粹德國和軍國主義的日本如出一轍，甚至有過之而不無不及，什麼《戰狼》，什麼《攀登者》，什麼《人民的名義》，什麼《厲害了，我的國》，筆者在這裡強烈建議，以後等新聯邦政府成立之後，新聯邦政府的當政者們一定要把這些中共國拍的垃圾片全部禁止，就像1930年代歐洲女導演萊尼·雷芬斯塔爾給希特勒的納粹黨拍的宣傳片《意志的勝利》和《信仰的勝利》一樣，需要全部封殺，並且將這些例子拿來給中國人做教育的反面教材使用，讓後代子孫永遠都不要重蹈中共國這荒唐70年曆史的覆轍。
 
-參考連結：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232921/9-9.png)
 
-[https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/](https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/)
+如果總結起來，中共之所以能在全世界有今天這樣的狂妄、傲慢與無知，無外乎靠這些東西，什麼“槍桿子、刀把子、錢袋子、筆桿子、大內宣、大外宣、外加藍金黃”，說到底其核心就是一個“騙”字，“騙”字文化貫徹中共一百年的歷史始終，不僅騙中國人而且還騙外國人，而中國人是被騙的最慘的一類人，也是全世界被共產黨盜國賊們割韭菜割的最狠的一群人。
 
-[https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010\_fig10\_305702423](https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010_fig10_305702423)
-
-[https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors](https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors)
-
-[https://bmjopen.bmj.com/content/9/2/e023997.long?int\_source=trendmd&int\_medium=cpc&int\_campaign=usage-042019](https://bmjopen.bmj.com/content/9/2/e023997.long?int_source=trendmd&amp;int_medium=cpc&amp;int_campaign=usage-042019)
-
-[https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget](https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget)
-
-[https://www.globalxetfs.com/china-sector-analysis-health-care/](https://www.globalxetfs.com/china-sector-analysis-health-care/)
-
-（文章內容僅代表作者個人觀點）
+（文章內容僅代表作者觀點）
 
 0
