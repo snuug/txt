@@ -11,6 +11,16 @@
 
 
 
+**milesguo** <br>广东省钟南山医学基金会是否与天津红日健达康医药科技有限公司玩了一起空手道<br>https://gnews.org/zh-hans/135810/
+
+[https://www.guo.media/posts/274429](https://www.guo.media/posts/274429) `2020-03-10T04:25:26`
+##
+
+**milesguo** 武汉市民喊话中共官员：假的，全是假的<br>https://gnews.org/zh-hans/135686/
+
+[https://www.guo.media/posts/274427](https://www.guo.media/posts/274427) `2020-03-10T04:25:28`
+##
+
 **milesguo** Expert: a ‘tipping point’ before coronavirus kills<br>https://gnews.org/135680/
 
 [https://www.guo.media/posts/274418](https://www.guo.media/posts/274418) `2020-03-10T03:25:13`
