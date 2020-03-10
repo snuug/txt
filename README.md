@@ -11,14 +11,34 @@
 
 
 
+**milesguo** 中共冠状病毒大爆发 全球股市暴跌原油崩盘 — 郭文贵先生再次成功预测<br>https://gnews.org/zh-hans/135954/
+
+[https://www.guo.media/posts/274431](https://www.guo.media/posts/274431) `2020-03-10T04:40:14`
+##
+
+**milesguo** 中共承认一月3000医护感染，下轮爆发已经走在路上<br>https://gnews.org/zh-hans/135807/
+
+[https://www.guo.media/posts/274430](https://www.guo.media/posts/274430) `2020-03-10T04:40:15`
+##
+
 **milesguo** <br>广东省钟南山医学基金会是否与天津红日健达康医药科技有限公司玩了一起空手道<br>https://gnews.org/zh-hans/135810/
 
 [https://www.guo.media/posts/274429](https://www.guo.media/posts/274429) `2020-03-10T04:25:26`
 ##
 
+**milesguo** 所谓“全球首例新冠肺炎转阴患者双肺移植手术”绝对不是全球首例<br>https://gnews.org/zh-hans/135687/
+
+[https://www.guo.media/posts/274428](https://www.guo.media/posts/274428) `2020-03-10T04:40:17`
+##
+
 **milesguo** 武汉市民喊话中共官员：假的，全是假的<br>https://gnews.org/zh-hans/135686/
 
 [https://www.guo.media/posts/274427](https://www.guo.media/posts/274427) `2020-03-10T04:25:28`
+##
+
+**milesguo** 从天然气进口不可抗力看武汉肺炎对中国和世界的影响<br>https://gnews.org/zh-hans/135630/
+
+[https://www.guo.media/posts/274426](https://www.guo.media/posts/274426) `2020-03-10T04:40:18`
 ##
 
 **milesguo** Expert: a ‘tipping point’ before coronavirus kills<br>https://gnews.org/135680/
