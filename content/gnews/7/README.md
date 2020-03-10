@@ -1,53 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 醫療系統“大躍進”
-`2020-03-09 23:53 GM06` [轉載自GNews](https://gnews.org/zh-hant/136358/)
+## 3月9日美國政要推文精選
+`2020-03-09 23:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/136324/)
 
-作者：明澈
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLAAF](https://twitter.com/hashtag/PLAAF?src=hash&amp;ref_src=twsrc%5Etfw) seems to be testing its own [#SpaceFence](https://twitter.com/hashtag/SpaceFence?src=hash&amp;ref_src=twsrc%5Etfw) for [#space](https://twitter.com/hashtag/space?src=hash&amp;ref_src=twsrc%5Etfw) situational awareness.
+> At 60m width it is the largest phased array in the world.
+> Possibly covers entire space over [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) from its location on Hainan.
+> One such array was tested long ago in [#occupied](https://twitter.com/hashtag/occupied?src=hash&amp;ref_src=twsrc%5Etfw) [#Tibet](https://twitter.com/hashtag/Tibet?src=hash&amp;ref_src=twsrc%5Etfw) also. [pic.twitter.com/yTZMLOfFQ4](https://t.co/yTZMLOfFQ4)
+> — 卫纳夜格@Raj (@rajfortyseven) [March 9, 2020](https://twitter.com/rajfortyseven/status/1236842426817363968?ref_src=twsrc%5Etfw)
 
-伴隨著國內看似逐漸穩定的疫情狀況，有些人決定立即回國，或被親友勸返，以避免海外每況愈下的狀況。
+比爾·格茨先生轉推：
 
-但對比全世界醫療效率，處理流行病的能力，醫患比例，基礎醫療資源需求，壽命長度，可輕易看出疫情數據造假。希望一下數據可以幫助同胞看的更明白。
+衛納夜格@Raj：看上去中國解放軍海軍正在測試他們自己的“太空籬笆”項目，以增加他們對太空情況的掌握。這個60米寬的相位陣列（phased array）是世界上最大的。它坐落在海南，從那個位置可能覆蓋了整個中國上空的太空空間。很久以前在其占領的西藏地區也測試過類似的陣列。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234302/q.png)
+（太空籬笆項目，Space Fence，由美國空軍建造的第二代太空監視系統，用於追踪地球軌道內的人造衛星和太空垃圾。）
 
-2018年世界醫療效率，中國與墨西哥並列第20位，而大量新增病例的韓國則處於第五位。
+> As oil plunges 25% on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) fears, it looks like the global economy is on the verge of failing. Prez [#Trump](https://twitter.com/hashtag/Trump?src=hash&amp;ref_src=twsrc%5Etfw) has for years been talking about the solution: Disengaging from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). It's time to do that now. [#CoronaOutbreak](https://twitter.com/hashtag/CoronaOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [March 9, 2020](https://twitter.com/GordonGChang/status/1236862495911890944?ref_src=twsrc%5Etfw)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234323/w.png)
+比爾·格茨先生轉推：
 
-對比全世界處理流行病的能力，前十位並沒有中國。就中美醫療投入金額，也相差甚遠。儘管中國的醫療保健市場是全球第二大市場，但它仍然相對不成熟，特別是與發達市場體系相比。儘管近二十年來一直以兩位數的速度增長，但醫療保健支出仍僅佔GDP的6％，而美國為17％，德國和法國為11％。
+章家敦：出於對新冠病毒的恐懼，油價暴跌25%，看起來全球經濟都處在崩潰的邊緣。應對策略川普總統已經說了好多年了：與中國脫鉤。現在應該這樣做了。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234455/r.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234639/e-1.png)
+> Experts say individual action is key to [#COVID2019](https://twitter.com/hashtag/COVID2019?src=hash&amp;ref_src=twsrc%5Etfw) 
+> Follow best practices for hygiene,stay home if are or could be infected & avoid contact with people who are or may be infected
+> 
+> Govt should communicate & facilitate individual actions & help speed up tests,anti-viral & vaccine
+> — Marco Rubio (@marcorubio) [March 9, 2020](https://twitter.com/marcorubio/status/1237085647875252225?ref_src=twsrc%5Etfw)
 
+參議員Marco Rubio：專家說，個人採取措施是（控制）2019冠狀病毒的關鍵。遵循最好的衛生習慣，如有被感染的可能就呆在家裡，且避免與已經或可能已經感染的人接觸。政府應該推廣和協助個人措施，並幫助加快檢測、抗病毒藥和疫苗（研製）。
 
-醫患比例與醫比例世界各國對比圖。每一千個居民，中共國相對應1.8個醫生，美國2.6個醫生，瑞典4.3個醫生。中共國每個醫生有1.04個護士，屬於極低水平。
+> I sent a letter to the [@WorldBank](https://twitter.com/WorldBank?ref_src=twsrc%5Etfw) President David Malpass asking for info on the steps they are taking to reduce lending to Communist China.
+>  
+> There is no reason they should be lending to China, a developed & wealthy nation that oppresses its people & denies their human rights. [pic.twitter.com/fS0xnppiao](https://t.co/fS0xnppiao)
+> — Rick Scott (@SenRickScott) [March 9, 2020](https://twitter.com/SenRickScott/status/1237014635137638401?ref_src=twsrc%5Etfw)
 
-從以上數據顯示，中共國處處表現出弱勢。各國在面對中共國肺炎病毒高感染率的狀況，醫療效率越高反應越快，流行病處理能力越高越能控制疫情，居民人均擁有醫生數量越多，醫護人員配搭越合理越能處理突發狀況。
+參議員Rick Scott：我已致信世界銀行主席David Malpass，詢問他們有關逐步減少給中共國貸款的措施的信息。他們沒有任何理由再貸款給一個發達的、富裕的、壓迫其人民且否認其人權的中國了。
 
-奇怪的是面對迅猛疫情，中國各地在不同首例確證時間，交通條件，人口密度，人口結構，不同醫療條件，個人體質，氣候條件多種不確定因素的影響下，中共國卻能做到同一天各地達到完全零增長。
+> Exclusive: Canadian mayors may have unwittingly been targets of Chinese influence campaign … Beijing billionaire developer and Beijing vice mayor Chen Gang wowed Canadians on paid junket [#cndpoli](https://twitter.com/hashtag/cndpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#natsec](https://twitter.com/hashtag/natsec?src=hash&amp;ref_src=twsrc%5Etfw) [#huawei](https://twitter.com/hashtag/huawei?src=hash&amp;ref_src=twsrc%5Etfw) [#bcpoli](https://twitter.com/hashtag/bcpoli?src=hash&amp;ref_src=twsrc%5Etfw) | [https://t.co/6oS5jHrnWQ](https://t.co/6oS5jHrnWQ) [https://t.co/9a2SLRA7Vf](https://t.co/9a2SLRA7Vf)
+> — Sam Cooper (@scoopercooper) [March 9, 2020](https://twitter.com/scoopercooper/status/1236984688952180736?ref_src=twsrc%5Etfw)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234744/h.png)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234808/k.png)
-最近國內各大平台吹起甩鍋外國的風，一說中共肺炎病毒來自美國流感，二說國內疫情成功控制，現在新增病例都是外國（意大利，韓國）飛來的人，大有將三月底第二波大爆發推給這些人的趨勢，哪國增長病例多，就說此國來中共國躲避疫情的人多。
+斯伯丁將軍轉推：
 
-這種行為可以形容為醫療數據上的大躍進新騙局。為應對此種即將來臨的醫療資源不足，糧食短缺，金融危機，建議大家積極屯糧，銀行里的現金取出來握在手裡，換匯，換物資。
+Sam Cooper：獨家報導：加拿大各地市長可能無意間成了中國影響力運作的目標…北京億萬富豪開發商即北京副市長陳剛（組織的）帶薪公費旅遊給加拿大人留下深刻印象。
 
-參考連結：
+文章來源《環球新聞》（加拿大）
 
-[https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/](https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/)
+> The outbreak has affected just about every Chinese.But it’s the most vulnerable-the poor, the disabled, the old and the young-who have been hit hardest.The outbreak is exposing the breadth of China’s wealth gap & the holes in its social safety net. From me [https://t.co/2FrtswEJzU](https://t.co/2FrtswEJzU)
+> — Li Yuan (@LiYuan6) [March 9, 2020](https://twitter.com/LiYuan6/status/1236910851044458496?ref_src=twsrc%5Etfw)
 
-[https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010\_fig10\_305702423](https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010_fig10_305702423)
+斯伯丁將軍轉推：
 
-[https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors](https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors)
+Li Yuan：疫情爆發已經影響到幾乎每一個中國人。但那些最弱勢的人——窮人、殘疾人、老人和孩子——受打擊最大。疫情暴露了中國的貧富差距和社會安全大網中的漏洞。我的文章
 
-[https://bmjopen.bmj.com/content/9/2/e023997.long?int\_source=trendmd&int\_medium=cpc&int\_campaign=usage-042019](https://bmjopen.bmj.com/content/9/2/e023997.long?int_source=trendmd&amp;int_medium=cpc&amp;int_campaign=usage-042019)
-
-[https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget](https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget)
-
-[https://www.globalxetfs.com/china-sector-analysis-health-care/](https://www.globalxetfs.com/china-sector-analysis-health-care/)
-
-（文章內容僅代表作者個人觀點）
-
+《紐約時報》：在抗擊冠狀病毒的鬥爭中，中國的弱勢群體被忽視
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09235355/04_58-1.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09235417/1-1-5.png)
 0
