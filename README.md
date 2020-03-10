@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 白宫抗疫小组记者会彭斯发表讲话<br>https://gnews.org/zh-hans/136503/
+
+[https://www.guo.media/posts/274462](https://www.guo.media/posts/274462) `2020-03-10T16:10:20`
+##
+
 **milesguo** 文字版2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始<br>https://gnews.org/zh-hans/136569/
 
 [https://www.guo.media/posts/274446](https://www.guo.media/posts/274446) `2020-03-10T08:55:14`
