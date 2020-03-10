@@ -11,6 +11,11 @@
 
 
 
+**milesguo** February 3, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/135316/
+
+[https://www.guo.media/posts/274414](https://www.guo.media/posts/274414) `2020-03-10T01:10:20`
+##
+
 **milesguo** 米莎推特：中共如何以黑治港(二)<br>https://gnews.org/zh-hans/135513/
 
 [https://www.guo.media/posts/274412](https://www.guo.media/posts/274412) `2020-03-10T00:40:13`
