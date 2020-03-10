@@ -1,20 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈切特博士預測冠狀病毒會導致“全球50%到70%的人口受感染”
-`2020-03-09 21:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/135862/)
+## 香港警察使用胡椒噴霧停止市民抗議將人口密集區普通診所轉為抗冠狀病毒診所的抗議並逮捕抗議群眾
+`2020-03-09 21:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/135931/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09210126/%E5%93%88%E5%88%87%E7%89%B9%E5%8D%9A%E5%A3%AB%E9%A2%84%E6%B5%8B-1.jpg)
-理查德·哈切特（Richard Hatchett）博士於2005年至2006年擔任白宮國土安全委員會委員，是《國家大流行性流感實施戰略》的主要作者，現領導大流行病防備創新聯盟，大流行病防備創新聯盟(CFEPI)成立於三年前，旨在與威脅全球健康的新興疾病作鬥爭，與政府、企業和慈善機構有合作夥伴關係。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09211613/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B01.jpg)
 
-作為處於尋找冠狀病毒疫苗最前沿的一名傳染病專家，他在周五說，國家所面臨的局面如同戰爭，“全球50%到70%的人口可能會受感染。”他對英國的第四頻道表示，這是他職業生涯中遇到過的最可怕的疾病，集成了埃博拉病毒、MERS和SARS。而且由於傳染性和致死性比流感高出許多倍，因此令人恐懼。
 
-對於目前冠狀病毒人們所擔憂的問題，哈切特說：“我認為，與這種病毒最令人憂慮的是其傳染性和嚴重致病力或致死力的結合。而且自1918年西班牙流感以來，就我們就沒有見過一種病毒以同樣的方式結合了這兩種特性。我們見過非常致命的病毒，如埃博拉、尼帕，或者其它由我所經營的組織CEPI研究治療的疾病——但是這種病毒的死亡率很高——我的意思是說，埃博拉病毒在某些機制下的死亡率大於80%。但它們不具有傳染性，不像這個，冠狀病毒有爆發和擴散到全球的潛力。”
 
-哈切特還補充：“我不認為將其比作與第二次世界大戰是瘋狂的。世界衛生組織正在使用這些語言。他們已經看到了該病毒的能力。”接著他談到，如果我們沒準備好，該冠狀病毒有潛力導致全球大流行。關於該病毒如何在世界範圍傳播，哈切特說：“新加坡和香港並沒有進行封閉，但它們做出了非常積極的反應。接觸者追踪非常重要；接觸者的自覺隔離非常重要；隔離病例很重要。我認為未來將關閉學校。”
+在週日香港警方突然取消了在大埔區因將人口密集區普通診所作為武漢肺炎指定診所的抗議活動，並使用胡椒噴霧劑逮捕了數人。
 
-[原文鏈接](https://www.zerohedge.com/health/most-frightening-disease-ive-ever-encountered-my-career-says-architect-national-pandemic)
 
-半空宇宙的屋
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212028/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B02.jpg)
+
+
+
+包括屯門和堅尼地城在內的其他地區的居民此前曾抗議在其附近設立此類診所。
+
+
+
+
+中共國武漢肺炎在中國武漢首次被發現，至今已殺死3500人，並在全球感染至少105,000。截至週日上午，該新型病毒已在香港殺死2人，並感染了109人。
+
+
+
+
+抗議人群在下午2:30左右開始聚集，準備在下午3點從指定診所對面的天后廟風水廣場出發。大約下午3時15分，防暴警察向民政黨議員鐘廷智噴灑胡椒噴霧。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212101/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B03.jpg)
+
+
+
+大埔墟民政事務專員林榮榮告訴香港生產力促進局，曼先生早早到了，以監視任何可能發生的不合理逮捕行動。
+
+
+
+
+警察搜查了幾名穿著黑色衣服的年輕人，並要求他們取下口罩。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212156/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B04.jpg)
+
+
+
+警察設立了多條警戒線，並舉起藍色警告旗，宣布現場為非法集會。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212224/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B05.jpg)
+
+
+
+一名中年婦女在私人住宅區珍寶花園停車場附近被警察帶走。
+
+
+
+
+片刻後，一名警官制止站在房屋平台上的一名觀察員與他吵架並離開。然後他告訴他的同事將用胡椒噴霧對準她。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212300/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B06.jpg)
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212327/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B07.jpg)
+
+
+
+下午3:50左右，人群開始在安志路上游行，高喊著“沒有暴徒，只有暴政”，“解散警察部隊”，“香港人，報仇者”，“五大訴求，缺一不可”。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212359/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B08.jpg)
+
+
+
+人群隨後沿著安祥路行走，抗議者在下午4:10左右將垃圾桶和其他物體扔到路上，以阻止交通。隨後警察至少逮捕了兩人。數名路人和記者在這場小衝突中倒下。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212428/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B09.jpg)
+
+
+
+根據聯合社會出版社的報導，防暴警察用胡椒噴灑了Now TV的攝影師。該化學製劑還擊中了一些旁觀者，醫護人員和記者。
+
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212459/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B010.jpg)
+
+
+
+附近的多家商店都捲起了百葉窗，在對峙中暫時關閉。
+
+
+
+
+[新聞來源](https://www.hongkongfp.com/2020/03/08/pepper-spray-arrests-hong-kong-police-halt-anti-coronavirus-clinic-demo/)
+
+
+
+
+翻译整理： 佚名
+
 
 0
