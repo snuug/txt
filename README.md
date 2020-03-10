@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274416](https://www.guo.media/posts/274416) `2020-03-10T01:40:27`
 ##
 
+**milesguo** Government’s Prisoner-made Masks Purportedly Resold and Misused: Office of the Ombudsman Invites Citizens to Report<br>https://gnews.org/132946/
+
+[https://www.guo.media/posts/274415](https://www.guo.media/posts/274415) `2020-03-10T02:40:50`
+##
+
 **milesguo** February 3, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/135316/
 
 [https://www.guo.media/posts/274414](https://www.guo.media/posts/274414) `2020-03-10T01:10:20`
