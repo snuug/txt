@@ -1,59 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月9日美國政要推文精選
-`2020-03-09 23:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/136324/)
+## 只要中共在！盜國賊永遠是刀俎，百姓永遠是砧板上的魚肉！
+`2020-03-10 00:19 GM30` [轉載自GNews](https://gnews.org/zh-hant/136375/)
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLAAF](https://twitter.com/hashtag/PLAAF?src=hash&amp;ref_src=twsrc%5Etfw) seems to be testing its own [#SpaceFence](https://twitter.com/hashtag/SpaceFence?src=hash&amp;ref_src=twsrc%5Etfw) for [#space](https://twitter.com/hashtag/space?src=hash&amp;ref_src=twsrc%5Etfw) situational awareness.
-> At 60m width it is the largest phased array in the world.
-> Possibly covers entire space over [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) from its location on Hainan.
-> One such array was tested long ago in [#occupied](https://twitter.com/hashtag/occupied?src=hash&amp;ref_src=twsrc%5Etfw) [#Tibet](https://twitter.com/hashtag/Tibet?src=hash&amp;ref_src=twsrc%5Etfw) also. [pic.twitter.com/yTZMLOfFQ4](https://t.co/yTZMLOfFQ4)
-> — 卫纳夜格@Raj (@rajfortyseven) [March 9, 2020](https://twitter.com/rajfortyseven/status/1236842426817363968?ref_src=twsrc%5Etfw)
+**作者：北方以北**
 
-比爾·格茨先生轉推：
+最近這幾天在推特上看到幾則新聞，既感到氣憤，又在意料之中，想想中共統治中國大陸的這70年來不一直都是這樣嗎？按照中國的一句古話，“人為刀俎，我為魚肉”，在中共國，盜國賊們永遠都是刀俎，老百姓永遠都是砧板上的魚肉！
 
-衛納夜格@Raj：看上去中國解放軍海軍正在測試他們自己的“太空籬笆”項目，以增加他們對太空情況的掌握。這個60米寬的相位陣列（phased array）是世界上最大的。它坐落在海南，從那個位置可能覆蓋了整個中國上空的太空空間。很久以前在其占領的西藏地區也測試過類似的陣列。
+新聞一：武漢華南市場的商戶一夜之間被中共洗劫。
 
-（太空籬笆項目，Space Fence，由美國空軍建造的第二代太空監視系統，用於追踪地球軌道內的人造衛星和太空垃圾。）
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232004/1-41.png)
 
-> As oil plunges 25% on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) fears, it looks like the global economy is on the verge of failing. Prez [#Trump](https://twitter.com/hashtag/Trump?src=hash&amp;ref_src=twsrc%5Etfw) has for years been talking about the solution: Disengaging from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). It's time to do that now. [#CoronaOutbreak](https://twitter.com/hashtag/CoronaOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [March 9, 2020](https://twitter.com/GordonGChang/status/1236862495911890944?ref_src=twsrc%5Etfw)
+新聞二：向中共國國務院副總理孫春蘭喊話，“假的，假的，全部都是假的”武漢某小區遭到報復，小區的出口被封死，居民全部封鎖在大樓內。
 
-比爾·格茨先生轉推：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232043/2-12.png)
 
-章家敦：出於對新冠病毒的恐懼，油價暴跌25%，看起來全球經濟都處在崩潰的邊緣。應對策略川普總統已經說了好多年了：與中國脫鉤。現在應該這樣做了。
+新聞三：廣東十三行新中國大廈服裝城爆發示威，租戶們因為疫情期間沒有營業額，都要求爭取大廈減免租金和退租，結果招到中共國的警察和保安人員的毆打和噴辣椒水。
 
-> Experts say individual action is key to [#COVID2019](https://twitter.com/hashtag/COVID2019?src=hash&amp;ref_src=twsrc%5Etfw) 
-> Follow best practices for hygiene,stay home if are or could be infected & avoid contact with people who are or may be infected
-> 
-> Govt should communicate & facilitate individual actions & help speed up tests,anti-viral & vaccine
-> — Marco Rubio (@marcorubio) [March 9, 2020](https://twitter.com/marcorubio/status/1237085647875252225?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232109/3-13.png)
 
-參議員Marco Rubio：專家說，個人採取措施是（控制）2019冠狀病毒的關鍵。遵循最好的衛生習慣，如有被感染的可能就呆在家裡，且避免與已經或可能已經感染的人接觸。政府應該推廣和協助個人措施，並幫助加快檢測、抗病毒藥和疫苗（研製）。
+新聞四：中共國官媒公然造假，中共國國家衛健委表示，赴湖北醫療隊4.2萬人，無一人感染新型冠狀病毒。但是中共國國務院辦公室在湖北武漢舉行的新聞發布會上又說湖北超過3000名醫護人員被感染，新聞前後矛盾。
 
-> I sent a letter to the [@WorldBank](https://twitter.com/WorldBank?ref_src=twsrc%5Etfw) President David Malpass asking for info on the steps they are taking to reduce lending to Communist China.
->  
-> There is no reason they should be lending to China, a developed & wealthy nation that oppresses its people & denies their human rights. [pic.twitter.com/fS0xnppiao](https://t.co/fS0xnppiao)
-> — Rick Scott (@SenRickScott) [March 9, 2020](https://twitter.com/SenRickScott/status/1237014635137638401?ref_src=twsrc%5Etfw)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232327/4-10.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232350/5-11.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232429/6-13.png)
 
-參議員Rick Scott：我已致信世界銀行主席David Malpass，詢問他們有關逐步減少給中共國貸款的措施的信息。他們沒有任何理由再貸款給一個發達的、富裕的、壓迫其人民且否認其人權的中國了。
 
-> Exclusive: Canadian mayors may have unwittingly been targets of Chinese influence campaign … Beijing billionaire developer and Beijing vice mayor Chen Gang wowed Canadians on paid junket [#cndpoli](https://twitter.com/hashtag/cndpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#natsec](https://twitter.com/hashtag/natsec?src=hash&amp;ref_src=twsrc%5Etfw) [#huawei](https://twitter.com/hashtag/huawei?src=hash&amp;ref_src=twsrc%5Etfw) [#bcpoli](https://twitter.com/hashtag/bcpoli?src=hash&amp;ref_src=twsrc%5Etfw) | [https://t.co/6oS5jHrnWQ](https://t.co/6oS5jHrnWQ) [https://t.co/9a2SLRA7Vf](https://t.co/9a2SLRA7Vf)
-> — Sam Cooper (@scoopercooper) [March 9, 2020](https://twitter.com/scoopercooper/status/1236984688952180736?ref_src=twsrc%5Etfw)
+從以上新聞我們可以看出，中共盜國賊們把老百姓當成豬狗的本性就一直沒有變過，對於老百姓想收肉就割肉，想打就打，想騙就騙。就在剛剛，筆者又搜索到一則新聞，說是在中共國國家廣電總局的指導下，中共國國家衛健委和上海市委宣傳部的支持下，打算把戰役拍成一部電視劇，叫《在一起》，大家看到沒有，又是中共的大內宣在牆內愚弄、洗腦老百姓，想想是多麼可恥啊。
 
-斯伯丁將軍轉推：
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232603/7-8.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232649/8-6.png)
 
-Sam Cooper：獨家報導：加拿大各地市長可能無意間成了中國影響力運作的目標…北京億萬富豪開發商即北京副市長陳剛（組織的）帶薪公費旅遊給加拿大人留下深刻印象。
 
-文章來源《環球新聞》（加拿大）
+大家還記得前段時間中共國組織一幫低端的五毛編了一本幾百萬字的《大國戰役》的書嗎？結果遭來牆內一片罵聲，不得不匆匆下架，這次中共國的大內宣換了一招。
 
-> The outbreak has affected just about every Chinese.But it’s the most vulnerable-the poor, the disabled, the old and the young-who have been hit hardest.The outbreak is exposing the breadth of China’s wealth gap & the holes in its social safety net. From me [https://t.co/2FrtswEJzU](https://t.co/2FrtswEJzU)
-> — Li Yuan (@LiYuan6) [March 9, 2020](https://twitter.com/LiYuan6/status/1236910851044458496?ref_src=twsrc%5Etfw)
+像類似的電影或者電視劇，中共國在最近幾年拍了很多，所謂宣傳中共國的主旋律，說到底就是給老百姓洗腦，愚弄老百姓，給老百姓打精神的麻醉藥，跟當年的納粹德國和軍國主義的日本如出一轍，甚至有過之而不無不及，什麼《戰狼》，什麼《攀登者》，什麼《人民的名義》，什麼《厲害了，我的國》，筆者在這裡強烈建議，以後等新聯邦政府成立之後，新聯邦政府的當政者們一定要把這些中共國拍的垃圾片全部禁止，就像1930年代歐洲女導演萊尼·雷芬斯塔爾給希特勒的納粹黨拍的宣傳片《意志的勝利》和《信仰的勝利》一樣，需要全部封殺，並且將這些例子拿來給中國人做教育的反面教材使用，讓後代子孫永遠都不要重蹈中共國這荒唐70年曆史的覆轍。
 
-斯伯丁將軍轉推：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232921/9-9.png)
 
-Li Yuan：疫情爆發已經影響到幾乎每一個中國人。但那些最弱勢的人——窮人、殘疾人、老人和孩子——受打擊最大。疫情暴露了中國的貧富差距和社會安全大網中的漏洞。我的文章
+如果總結起來，中共之所以能在全世界有今天這樣的狂妄、傲慢與無知，無外乎靠這些東西，什麼“槍桿子、刀把子、錢袋子、筆桿子、大內宣、大外宣、外加藍金黃”，說到底其核心就是一個“騙”字，“騙”字文化貫徹中共一百年的歷史始終，不僅騙中國人而且還騙外國人，而中國人是被騙的最慘的一類人，也是全世界被共產黨盜國賊們割韭菜割的最狠的一群人。
 
-《紐約時報》：在抗擊冠狀病毒的鬥爭中，中國的弱勢群體被忽視
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09235355/04_58-1.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09235417/1-1-5.png)
+（文章內容僅代表作者觀點）
+
 0
