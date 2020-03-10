@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Italy expands lockdown to entire country to curb COVID-19<br>https://gnews.org/135578/
+
+[https://www.guo.media/posts/274417](https://www.guo.media/posts/274417) `2020-03-10T02:10:18`
+##
+
 **milesguo** 3000 medical workers infected with virus very early!<br>https://gnews.org/135286/
 
 [https://www.guo.media/posts/274416](https://www.guo.media/posts/274416) `2020-03-10T01:40:27`
