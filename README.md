@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/274441](https://www.guo.media/posts/274441) `2020-03-10T08:55:18`
 ##
 
+**milesguo** 2020年3月9日武汉冠状病毒大流行第45集<br>https://gnews.org/zh-hans/136220/
+
+[https://www.guo.media/posts/274437](https://www.guo.media/posts/274437) `2020-03-10T09:55:15`
+##
+
 **milesguo** 图解百步亭与汉口殡仪馆、P4实验室、雷神山医院、火神山医院、盘古大观、陆军防化学院的位置关系<br>https://gnews.org/zh-hans/136004/
 
 [https://www.guo.media/posts/274436](https://www.guo.media/posts/274436) `2020-03-10T07:25:21`
