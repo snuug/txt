@@ -1,35 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 信息不對稱引發的麻痺性，可能導致歐洲各地次生危機！
-`2020-03-10 04:28 GM30` [轉載自GNews](https://gnews.org/zh-hant/136872/)
+## 【武漢肺炎真相】\共產黨人工製造病毒\3月10日視頻合集
+`2020-03-10 05:48 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/137246/)
 
-**作者：山河大地**
+**大領導視察武漢，軍警特憲冒充普通人，警察在百姓家裡封嘴看管窗戶，武漢某醫院檢測出無任何感染者，商戶抗議繼續中，伊朗吹哨人現身**
 
-因中共政府一直在疫情信息上造假，隱瞞，拒不交出第一代毒株，種種反人類舉措正在全世界引發一系列負面效應，地球於短短幾週內已被中共病毒迅速染紅。即便如此，因信息的嚴重的不對稱，除部分已被劃入紅區，接到封城信息的意大利民眾終於嗅到絲緊張氣氛，大多數歐洲人仍一派樂觀天真，面對兇猛的病毒攻勢，這種麻痺無知比高確診率更為可怕！
 
-在意大利的確診人數如火箭般躥升的同時，其周邊鄰國如法國，西班牙等所採取的防範措施仍步調緩慢，或者說即使政府給予一定“警告”，實施手段也過於鬆懈，未能徹底有效地阻止人群聚集，提高民眾對病毒的清醒認知。
 
-以下兩圖可謂歐洲民眾對疫情麻痺大意程度的一個充分證明。
+**往期节目：**
 
-一，3月8日法國Landerneau小鎮的“藍精靈”大集會，共約3500人裝扮成藍精靈，為刷新“吉尼斯世界紀錄”而前來參加。只見人們嬉笑顏開，頭上雖帽了白帽子，卻無一人戴口罩。而法國當天的確診人數為1126例。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/10035227/1-72.jpg)
-
-二，3月8日西班牙馬德里的節日大型聚會。現場共30萬人聚集，人潮洶湧，歡呼聲此起彼伏——-若其中一人是冠狀病毒攜帶者，後果將不堪設想。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/10035643/2-17.jpg)
-
-回想在意大利疫情最嚴重的倫巴第小鎮Codogno，身為超級傳播者的1號病人本身也是個充滿活力，熱愛社會，運動的人，在被確診前曾多次參加馬拉松賽事，商業會議，朋友聚餐等，其傳播效果竟仍未引起周邊國家民眾的重視！
-
-而在意大利境內，除了明面兒上勢如破竹的疫情，某些地區已開始出現次生危機的苗頭。據意國媒體報導，意大利多地監獄正借疫情蔓延而產生暴亂。截止3月9日，中北部城市Modena監獄已有7名犯人因捲入暴動而死亡，此外打砸搶，縱火，試圖逃獄等亂像也在全國二十多所監獄中不斷引發。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/10040602/IMG_0904.jpg)
-
-意大利的醫療系統本來居於世界前列，未料確診數如此迅猛，醫護人員疲於應對，已開始出現有病人得不到及時醫治，即使身邊有親人不停採取救助措施也死於家中的案例。
-
-這些都只是意大利次生災難的開端，更是整個歐洲，乃至全世界陷入更大災難旋渦的開端—–而挽救損失，避免更多悲劇產生的辦法仍有，仍來得及！其中首要的就是傳播真相，把冠狀病毒的危害性真實傳達到更多耳朵裡，並儘快把CCP這個病毒製造者，投放者推到國際審判席上，讓它的累累罪行大白於天下！
-
-（文章內容僅代表作者觀點）
+武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
+ 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
+ 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
+ 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
+ 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
+ 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
+ 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
+ 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
+ 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
+ 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+ 武汉肺炎真相 2月29日 [https://youtu.be/XyxPCp33Wd4](https://youtu.be/XyxPCp33Wd4)
+ 武汉肺炎真相 2月28日 [https://youtu.be/p2QEILBE3yM](https://youtu.be/p2QEILBE3yM)
+ 武汉肺炎真相 2月27日 [https://www.youtube.com/watch?v=dIMUm\_x58zw](https://www.youtube.com/watch?v=dIMUm_x58zw)
+ 武汉肺炎真相 2月26日 [https://youtu.be/b78dxcdCrVs](https://youtu.be/b78dxcdCrVs)
+ 武汉肺炎真相 2月25日 [https://youtu.be/pWQn6Aq9xdY](https://youtu.be/pWQn6Aq9xdY)
+ 武汉肺炎真相 2月24日 [https://youtu.be/ejqWZhUEywo](https://youtu.be/ejqWZhUEywo)
+ 武汉肺炎真相 2月23日 [https://youtu.be/o1PyAC2nWio](https://youtu.be/o1PyAC2nWio)
+ 武汉肺炎真相 2月22日 [https://youtu.be/ayrWajiAcOA](https://youtu.be/ayrWajiAcOA)
+ 武汉肺炎真相 2月21日 [https://youtu.be/myCA3WBc2LU](https://youtu.be/myCA3WBc2LU)
+ 武汉肺炎真相 2月20日 [https://youtu.be/IaE5chdtCvM](https://youtu.be/IaE5chdtCvM)
+ 武汉肺炎真相 2月19日 [https://youtu.be/QP\_H-2-jQCY](https://youtu.be/QP_H-2-jQCY)
+ 武汉肺炎真相 2月18日 [https://youtu.be/06LM8NELTKQ](https://youtu.be/06LM8NELTKQ)
+ 武汉肺炎真相 2月17日 [https://youtu.be/GSqJxWPWHoM](https://youtu.be/GSqJxWPWHoM)
+ 武汉肺炎真相 2月16日 [https://youtu.be/\_nfcw3pwsmw](https://youtu.be/_nfcw3pwsmw)
+ 武汉肺炎真相 2月15日 [https://youtu.be/zhgmhOkbn70](https://youtu.be/zhgmhOkbn70)
+ 武汉肺炎真相 2月14日 [https://youtu.be/LvkxWxqP7zs](https://youtu.be/LvkxWxqP7zs)
+ 武汉肺炎真相 2月13日 [https://youtu.be/ZtAlyYOTjNs](https://youtu.be/ZtAlyYOTjNs)
+ 武汉肺炎真相 2月12日 [https://youtu.be/xyYv6ZF-vHI](https://youtu.be/xyYv6ZF-vHI)
+ 武汉肺炎真相 2月11日 [https://youtu.be/WEinEpmgXl8](https://youtu.be/WEinEpmgXl8)
+ 武汉肺炎真相 2月9日 [https://youtu.be/GgfRukJAt1o](https://youtu.be/GgfRukJAt1o)
+ 武汉肺炎真相 2月8日 [https://youtu.be/CBgJWvGUiT4](https://youtu.be/CBgJWvGUiT4)
+ 武汉肺炎真相 2月7日 [https://youtu.be/OxheG5TO08w](https://youtu.be/OxheG5TO08w)
+ 武汉肺炎真相 2月6日 [https://youtu.be/lhFhbigHszE](https://youtu.be/lhFhbigHszE)
+ 武汉肺炎真相 2月5日 [https://youtu.be/\_iEhSBWP0h0](https://youtu.be/_iEhSBWP0h0)
+ 武汉肺炎真相 2月4日 [https://youtu.be/i9C9rxYvYHI](https://youtu.be/i9C9rxYvYHI)
+ 武汉肺炎真相 2月3日 [https://youtu.be/b0Wv3A4Z6g4](https://youtu.be/b0Wv3A4Z6g4)
+ 武汉肺炎真相 2月2日 [https://youtu.be/RAvG4gcOkao](https://youtu.be/RAvG4gcOkao)
+ 武汉肺炎真相 2月1日 [https://youtu.be/jFton-\_GVrA](https://youtu.be/jFton-_GVrA)
 
 0
