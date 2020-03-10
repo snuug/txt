@@ -1,102 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港警察使用胡椒噴霧停止市民抗議將人口密集區普通診所轉為抗冠狀病毒診所的抗議並逮捕抗議群眾
-`2020-03-09 21:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/135931/)
+## CCP 變異病毒——感恩教育
+`2020-03-09 21:29 GM30` [轉載自GNews](https://gnews.org/zh-hant/134443/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09211613/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B01.jpg)
+**作者：玉米地大姐**
 
+郭文貴先生7日直播爆：“王岐山認為必須摘掉武漢疫情的帽子，要把疫情引向國際，讓大家一起死。中共要打贏這場國際輿論戰爭，摘掉帽子，嫁禍於人。海內外所有的媒體，網絡大V在配合WHO把武漢疫情改成COVID-19，但事實上嚴格講叫ccp病毒。”
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08222718/1-35.jpg)
 
-在週日香港警方突然取消了在大埔區因將人口密集區普通診所作為武漢肺炎指定診所的抗議活動，並使用胡椒噴霧劑逮捕了數人。
+今天講講CCP變異病毒——“感恩教育”的前世今生。我們知道感恩一詞本意是對別人的幫助表示感激，所謂滴水之恩當湧泉相報，人要有一顆感恩的心。在西方感恩則是對神的讚美，故有“感恩節”。
 
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08222746/2-13.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08222806/3-7.jpg)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212028/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B02.jpg)
 
+史上第一個將感恩扭曲成皇恩浩蕩的是孌臀狂魔朱元璋。只要朱元璋認為哪個大臣有過錯，命人當庭扒下褲子板子打屁股，挨打後的官員還得磕頭謝皇上不殺之恩。
 
+在朱元璋看來，老子沒活剝你的皮只打打屁股，作為臣子就該感恩戴德。挨打的臣子摸摸開花的屁股，想想皇上沒要自己的命，感激涕零由衷而生。於是主子與奴才的思維就這麼養成了。
 
-包括屯門和堅尼地城在內的其他地區的居民此前曾抗議在其附近設立此類診所。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08222851/4-6.jpg)
 
+打屁股也不是朱元璋的原創，其源頭來自民間不成文的師徒之規，師父懲罰徒弟，輕則戒尺打手心，重則藤條打屁股。電影《霸王別姬》成角兒後的段小樓和程蝶衣去拜訪師父，段小樓被師父擠兌幾句臉面掛不住，脫下褲子求打，邊挨打邊說師父打得好。
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08222941/5-3.jpg)
 
+師父打徒弟的出發點是，你學的東西是老子教給你的，打你是為你好，所以挨打的時候你得心存感激必須叫好。皇帝和臣子、師徒打與被打之間的關係，是儒家所倡導的“君君臣臣、父父子子”的變態反應，通過暴力將人性扭曲成斯德哥爾摩綜合症。
 
-中共國武漢肺炎在中國武漢首次被發現，至今已殺死3500人，並在全球感染至少105,000。截至週日上午，該新型病毒已在香港殺死2人，並感染了109人。
+1949年以來的中共撒謊成性，將盜國綁架中國人民的罪行篡改為“解放”。把強迫感恩化做口號：“舊社會人民當牛做馬，新社會當家做主人”、“沒有共產黨就沒有新中國”、“翻身不忘共產黨、幸福不忘毛主席。”
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08223014/6-2.jpg)
 
+毛魔頭又把感恩轉化為黨恩和個人崇拜的讚歌。大家是否記得小學課本有一篇文章，叫做《吃水不忘挖井人，時刻想念毛主席》。
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08223108/7-3.jpg)
 
-抗議人群在下午2:30左右開始聚集，準備在下午3點從指定診所對面的天后廟風水廣場出發。大約下午3時15分，防暴警察向民政黨議員鐘廷智噴灑胡椒噴霧。
+*瑞金城外有個村子叫沙洲壩，毛主席在江西領導革命的時候，在那兒住過。村子裡沒有水井，鄉親們吃水要到很遠的池塘去挑。毛主席就帶領戰士和鄉親們挖了一口井。解放以後，鄉親們在井旁邊立了一塊石碑，上面刻著：“吃水不忘挖井人，時刻想念毛主席。”*
 
+現在看這篇課文，分明是毛魔頭嫌池塘的水髒，打井是為他們自己人能夠喝上乾淨水免得跑肚拉稀。共產黨硬生生把這件事宣傳成老百姓對毛魔頭的無限感激和愛戴，將其寫入語文課本茶毒小學生。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212101/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B03.jpg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08223146/8-1.jpg)
 
+CCP病毒其特性是隨著時間的推移不斷演化變異，使其毒性越來越具有欺騙性和麻痺性。今天的盜國賊將CCP病毒插入“感恩毒株”使其變異成感恩教育，企圖掩蓋和轉嫁人為製造的生化危機與人道災難。
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/08223214/9.jpg)
 
-大埔墟民政事務專員林榮榮告訴香港生產力促進局，曼先生早早到了，以監視任何可能發生的不合理逮捕行動。
+*3月6日晚，在市新冠肺炎疫情防控指揮部視頻調度會上，湖北省委常委、武漢市委書記王忠林部署：“要在全市廣大市民中深入開展感恩教育，感恩總書記、感恩共產黨，聽黨話、跟黨走，形成強大正能量。*
 
+盜國賊已經徹底瘋狂不要臉，一手製造的病毒正在戕害著全世界。他們就迫不及待的強迫人民為其感恩唱讚歌。盜國賊的這個企圖不會長久，人民在覺醒，郭先生引領的爆料革命將會徹底葬送CCP病毒。
 
-
-
-警察搜查了幾名穿著黑色衣服的年輕人，並要求他們取下口罩。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212156/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B04.jpg)
-
-
-
-警察設立了多條警戒線，並舉起藍色警告旗，宣布現場為非法集會。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212224/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B05.jpg)
-
-
-
-一名中年婦女在私人住宅區珍寶花園停車場附近被警察帶走。
-
-
-
-
-片刻後，一名警官制止站在房屋平台上的一名觀察員與他吵架並離開。然後他告訴他的同事將用胡椒噴霧對準她。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212300/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B06.jpg)
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212327/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B07.jpg)
-
-
-
-下午3:50左右，人群開始在安志路上游行，高喊著“沒有暴徒，只有暴政”，“解散警察部隊”，“香港人，報仇者”，“五大訴求，缺一不可”。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212359/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B08.jpg)
-
-
-
-人群隨後沿著安祥路行走，抗議者在下午4:10左右將垃圾桶和其他物體扔到路上，以阻止交通。隨後警察至少逮捕了兩人。數名路人和記者在這場小衝突中倒下。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212428/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B09.jpg)
-
-
-
-根據聯合社會出版社的報導，防暴警察用胡椒噴灑了Now TV的攝影師。該化學製劑還擊中了一些旁觀者，醫護人員和記者。
-
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212459/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B010.jpg)
-
-
-
-附近的多家商店都捲起了百葉窗，在對峙中暫時關閉。
-
-
-
-
-[新聞來源](https://www.hongkongfp.com/2020/03/08/pepper-spray-arrests-hong-kong-police-halt-anti-coronavirus-clinic-demo/)
-
-
-
-
-翻译整理： 佚名
-
+（文章內容僅代表作者觀點）
 
 0

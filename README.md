@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 图解百步亭与汉口殡仪馆、P4实验室、雷神山医院、火神山医院、盘古大观、陆军防化学院的位置关系<br>https://gnews.org/zh-hans/136004/
+
+[https://www.guo.media/posts/274436](https://www.guo.media/posts/274436) `2020-03-10T07:25:21`
+##
+
 **milesguo** 中共冠状病毒大爆发 全球股市暴跌原油崩盘 — 郭文贵先生再次成功预测<br>https://gnews.org/zh-hans/135954/
 
 [https://www.guo.media/posts/274431](https://www.guo.media/posts/274431) `2020-03-10T04:40:14`
