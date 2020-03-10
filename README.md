@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3000 medical workers infected with virus very early!<br>https://gnews.org/135286/
+
+[https://www.guo.media/posts/274416](https://www.guo.media/posts/274416) `2020-03-10T01:40:27`
+##
+
 **milesguo** February 3, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/135316/
 
 [https://www.guo.media/posts/274414](https://www.guo.media/posts/274414) `2020-03-10T01:10:20`
