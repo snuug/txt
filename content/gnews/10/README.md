@@ -1,52 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】\共產黨人工製造病毒\3月10日視頻合集
-`2020-03-10 05:48 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/137246/)
+## 中國官方媒體的洗腦伎倆：污衊中共冠狀病毒是美國製造的生物武器
+`2020-03-10 06:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/137147/)
 
-**大領導視察武漢，軍警特憲冒充普通人，警察在百姓家裡封嘴看管窗戶，武漢某醫院檢測出無任何感染者，商戶抗議繼續中，伊朗吹哨人現身**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/10064607/338C20CF-B1F9-4D36-A9D5-D22CB02811B3.jpeg)
 
+中共把暴力專制與宣傳欺騙這兩個看家本領與致命絕活，淋漓盡致地運用到在這次所謂大國治疫當中。病毒開始蔓延的時候，對李文亮等八名醫生的真實疫情揭露直接污衊為造謠傳謠，加以棒喝打壓。當病毒迅速蔓延失控，一尊開始批示的時候，動用警察和戴著紅袖章的流氓開始強制隔離，對正常的人身自由肆加侵犯無底線。當中共官方的宣傳機器造勢武漢華南海鮮市場是這次新冠病毒產生來源時，路德社連續幾期的節目與後來俄羅斯聯邦衛生部發布的官方聲明排除了此次中共冠狀病毒是漫長自然進化的可能性。繼而中共官方媒體開始宣傳病毒來源尚不清楚，同時藉助網絡媒體、私人微博與手機頭條消息展開瘋狂的洗腦與虛假信息宣傳攻勢，指責是美國的中央情報局製造的生化武器導致中共冠狀病毒大爆發。
 
+**污衊美國中情局製造了這次中共冠狀病毒**
 
-**往期节目：**
+中共炮製了不同版本的美國陰謀論。一種說法是，2019年10月底，美國派出的369名參加在武漢舉行的世界軍運會人員其實是生化兵。聲稱美方人員所住的位置離華南海鮮城不遠。軍運會期間，這些369名生兵對華南海鮮市場進行了定點投放，結果造成了瘟疫流行。公民力量組織主席楊建利先生在緻美國副總統邁克•彭斯的一封公開信中說，“許多中國人相信並散佈了美國通過10月18日至27日在武漢舉行的世界軍事運動，將這種病毒作為生物炸彈進行投射的謠言。”他說，外界不知道中共政府在這個謠言的起源和傳播中所發揮的真正作用，美國和國際社會，應該在爆發之初就“向中國當局施加壓力，要求其提供有關病毒起源的信息。或者至少要允許就此問題展開的國際調查。” 還有其他一些在網上廣為流傳的說法。如美國的病毒實驗室製造出專門針對亞裔的新冠病毒，把它作為生化武器攻擊中國。還有消息說在武漢撤離的總領事館內埋有八個帶有生物危害標籤的容器。而且中共外交部正式要求美方對此作出解釋。 2月27日，台灣政客潘懷宗（Pan Hwai-tzong）在親中共的東森電視新聞節目中說：“冠狀病毒來自美國。”潘是台北市議員及台灣國立陽明大學的教授。中國的頂級病毒學專家鐘南山在同日的新聞發布會上說，冠狀病毒雖然最先出現在中國，很可能並非源自中國。
 
-武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
- 武汉肺炎真相 2月29日 [https://youtu.be/XyxPCp33Wd4](https://youtu.be/XyxPCp33Wd4)
- 武汉肺炎真相 2月28日 [https://youtu.be/p2QEILBE3yM](https://youtu.be/p2QEILBE3yM)
- 武汉肺炎真相 2月27日 [https://www.youtube.com/watch?v=dIMUm\_x58zw](https://www.youtube.com/watch?v=dIMUm_x58zw)
- 武汉肺炎真相 2月26日 [https://youtu.be/b78dxcdCrVs](https://youtu.be/b78dxcdCrVs)
- 武汉肺炎真相 2月25日 [https://youtu.be/pWQn6Aq9xdY](https://youtu.be/pWQn6Aq9xdY)
- 武汉肺炎真相 2月24日 [https://youtu.be/ejqWZhUEywo](https://youtu.be/ejqWZhUEywo)
- 武汉肺炎真相 2月23日 [https://youtu.be/o1PyAC2nWio](https://youtu.be/o1PyAC2nWio)
- 武汉肺炎真相 2月22日 [https://youtu.be/ayrWajiAcOA](https://youtu.be/ayrWajiAcOA)
- 武汉肺炎真相 2月21日 [https://youtu.be/myCA3WBc2LU](https://youtu.be/myCA3WBc2LU)
- 武汉肺炎真相 2月20日 [https://youtu.be/IaE5chdtCvM](https://youtu.be/IaE5chdtCvM)
- 武汉肺炎真相 2月19日 [https://youtu.be/QP\_H-2-jQCY](https://youtu.be/QP_H-2-jQCY)
- 武汉肺炎真相 2月18日 [https://youtu.be/06LM8NELTKQ](https://youtu.be/06LM8NELTKQ)
- 武汉肺炎真相 2月17日 [https://youtu.be/GSqJxWPWHoM](https://youtu.be/GSqJxWPWHoM)
- 武汉肺炎真相 2月16日 [https://youtu.be/\_nfcw3pwsmw](https://youtu.be/_nfcw3pwsmw)
- 武汉肺炎真相 2月15日 [https://youtu.be/zhgmhOkbn70](https://youtu.be/zhgmhOkbn70)
- 武汉肺炎真相 2月14日 [https://youtu.be/LvkxWxqP7zs](https://youtu.be/LvkxWxqP7zs)
- 武汉肺炎真相 2月13日 [https://youtu.be/ZtAlyYOTjNs](https://youtu.be/ZtAlyYOTjNs)
- 武汉肺炎真相 2月12日 [https://youtu.be/xyYv6ZF-vHI](https://youtu.be/xyYv6ZF-vHI)
- 武汉肺炎真相 2月11日 [https://youtu.be/WEinEpmgXl8](https://youtu.be/WEinEpmgXl8)
- 武汉肺炎真相 2月9日 [https://youtu.be/GgfRukJAt1o](https://youtu.be/GgfRukJAt1o)
- 武汉肺炎真相 2月8日 [https://youtu.be/CBgJWvGUiT4](https://youtu.be/CBgJWvGUiT4)
- 武汉肺炎真相 2月7日 [https://youtu.be/OxheG5TO08w](https://youtu.be/OxheG5TO08w)
- 武汉肺炎真相 2月6日 [https://youtu.be/lhFhbigHszE](https://youtu.be/lhFhbigHszE)
- 武汉肺炎真相 2月5日 [https://youtu.be/\_iEhSBWP0h0](https://youtu.be/_iEhSBWP0h0)
- 武汉肺炎真相 2月4日 [https://youtu.be/i9C9rxYvYHI](https://youtu.be/i9C9rxYvYHI)
- 武汉肺炎真相 2月3日 [https://youtu.be/b0Wv3A4Z6g4](https://youtu.be/b0Wv3A4Z6g4)
- 武汉肺炎真相 2月2日 [https://youtu.be/RAvG4gcOkao](https://youtu.be/RAvG4gcOkao)
- 武汉肺炎真相 2月1日 [https://youtu.be/jFton-\_GVrA](https://youtu.be/jFton-_GVrA)
+**嘲笑美國應對病毒一團亂麻**
+
+現在連最普通的中國人，通過看手機推送的關於美國抗疫的扭曲與虛假新聞，都會以一種嘲笑的口吻，說美國人應對這次中共冠狀病毒真的非常奇葩。普通人被中共媒體洗腦，說美國人連口罩都不戴，或根本沒有口罩戴。他們神經大條，把這個病只當成普通流感對待，不懂得保護自己。也沒有政府人員來讓發熱病人實施隔離。別的國家的人在病毒肆虐期間，是去超市搶購糧食與日用物品，而美國人竟然取搶購槍支。言外之意，美國很亂、很不安全。 3月4日新華社轉發了一篇標題“理直氣壯，世界應該感謝中國”的文章，指出“中國控制新冠肺炎取得了重大的進展，而美國卻陷於疾風驟雨之中，越來越多的州宣布緊急狀態，美國的醫療物資極度緊缺，一場失控的新冠肺炎疫情幾乎無法避免。” 中國宣傳媒體《證券時報》2月24日發表的一篇文章，採用一個自稱是金融學博士的保羅·科特雷爾（Paul Cottrell）未經證實的說法。他聲稱有消息人士說，當時美國已經有1000多人被確診中共冠狀病毒。美國疾病控制中心刻意隱瞞了真實的病毒爆發數據。
+
+**威脅美國若離開中共藥物將陷入地獄般災難**
+
+3月4日新華社的這篇報導主要從美國對中共藥品藥劑生產的依賴進行威脅。文章稱，由於美國的大部分的口罩是從中國生產、進口，如果中國禁止口罩出口給美國，那麼美國將陷入口罩荒。這樣，連這次中共新冠病毒的最基本的防護措施美國都無法做到。美國疾控中心官員的也曾公開表示，美國的絕大部分藥物依靠進口，有些藥物從歐洲進口，但是歐洲藥物企業的生產基地又在中國，因此美國約90%以上的進口藥物都和中共無法分開。說到這裡， 該文章特意強調，“言下之意，這個時候只要中國宣布藥品盡量滿足國內而禁止出口，美國將會陷入新冠肺炎疫情的地獄”。新華社的這篇文章威脅說如果中國宣布限制美國人或者近期去過美國者進入中國，禁止中國人前往美國， 那麼“美國的經濟將會遭受巨大的打擊，美國的股市更會暴跌”。文章還聲稱“現在我們應該理直氣壯的表示，美國欠中國一個道歉，世界欠中國一聲感謝”，因為“中國為了抗擊新冠肺炎疫情，做出了巨大的犧牲，付出了巨大的經濟成本，切斷了新冠病毒的傳播途徑”。如果真是該文虛假宣傳的那樣，切斷了新冠病毒的傳播途徑，那麼現在在全世界範圍內的大爆發又從何而來呢？
+
+評：用馬克思描述資本的話稍加修改來形容中共再貼切不過，中共來到世間，從頭到腳，每個毛孔都滴著謊言欺騙、血和骯髒的東西。中共的盜國賊家族是最貪戀資本的變態吸血鬼，榨乾、蹂躪和盤剝世代的中國老百姓無產者，卻稱自己是無產階級的先進代表。多種證據表明2019冠狀病毒，本質上是集邪惡、欺騙、殺人與生化武器為一體的中共病毒，但中共卻或明或暗地造謠、抹黑和歪曲真相，把它說成是由美國中央情報局製造。中共謊言的洗腦術與肥皂泡越吹越大，中共盜國賊們，盡可能的吹吧，吹的越歡、破的也越快！
+
+[原文鏈接](http://www.thetribunepapers.com/2020/03/07/china-media-launches-major-disinformation-offensive-on-coronavirus/)
+
+翻譯報導：心聲
 
 0
