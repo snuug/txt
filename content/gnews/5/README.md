@@ -1,57 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國經濟在崩潰的邊緣上又被暴踹了一腳
-`2020-03-09 23:30 GM06` [轉載自GNews](https://gnews.org/zh-hant/136256/)
+## 醫療系統“大躍進”
+`2020-03-09 23:53 GM06` [轉載自GNews](https://gnews.org/zh-hant/136358/)
 
-作者： 北方以北
+作者：明澈
 
-今天亞洲早盤美國WTI原油期貨開盤暴跌30%，一度跌破30美元/每桶，達到了29年來單日最大跌幅。黃金更是跌破1700美元/盎司，達到了自2011年以來最大漲幅，而美國的股指期貨在暴跌5%後，短暫的跌停。
+伴隨著國內看似逐漸穩定的疫情狀況，有些人決定立即回國，或被親友勸返，以避免海外每況愈下的狀況。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09225537/12-7.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09225615/122.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09225828/123.png)
+但對比全世界醫療效率，處理流行病的能力，醫患比例，基礎醫療資源需求，壽命長度，可輕易看出疫情數據造假。希望一下數據可以幫助同胞看的更明白。
 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234302/q.png)
 
-在反觀中共國的股市，香港的恆生指數，開盤直接暴跌1000點以上，新華富時A50，自上個星期五開始，同樣也是暴跌1000點以上，據郭先生3月8號在船上的爆料，共產黨盜國賊們早已經金融市場上佈置下了天兵天將，但即使這樣，還是沒有能守住金融市場的雪崩。
+2018年世界醫療效率，中國與墨西哥並列第20位，而大量新增病例的韓國則處於第五位。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09230758/1233-3.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09230820/1234-1.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234323/w.png)
 
+對比全世界處理流行病的能力，前十位並沒有中國。就中美醫療投入金額，也相差甚遠。儘管中國的醫療保健市場是全球第二大市場，但它仍然相對不成熟，特別是與發達市場體系相比。儘管近二十年來一直以兩位數的速度增長，但醫療保健支出仍僅佔GDP的6％，而美國為17％，德國和法國為11％。
 
-我們知道隨著郭先生這3年多來的爆料革命，中共國的經濟已經到了崩潰的邊緣，僅僅中共國官方的數據其外債就超過2萬億美元，根據曾經在中南坑工作過的穆桂英戰友的爆料，實際上中共國真實的外債已經超過50萬億美元，而短期需要償還的外債將在今年的3月份，也就是這個月將到達一個峰值，達到2.2萬億美元。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231033/12344.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231105/12344.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234455/r.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234639/e-1.png)
 
 
-以上只是外債，我們再來看看中共國的內債。據中南坑盜國賊之一的朱鎔基之子朱雲來在一次經濟論壇上都披露，2017年底中共國的內債已經達到600萬億人民幣，人均負債40萬，2018年內債達到720萬億，2019年外債達到860萬，如果按照目前的趨勢發展下去，2020年中共國的內債不出意外，將可能達到1000萬億人民幣。與此同時，中共國的中小企業的死亡率在98%，中共國每年約有100萬家企業倒閉，中共國的負債率更是GDP的7.5倍。而對比美國，即使在1929年經濟大蕭條時期，其負債規模還是要小於其GDP。可以說，中共國不管是內債還是外債，都已經遠遠超過了中共國經濟可以承受的範圍，事實上中共國的國家經濟早就已經破產了。
+醫患比例與醫比例世界各國對比圖。每一千個居民，中共國相對應1.8個醫生，美國2.6個醫生，瑞典4.3個醫生。中共國每個醫生有1.04個護士，屬於極低水平。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231304/1111.png)
+從以上數據顯示，中共國處處表現出弱勢。各國在面對中共國肺炎病毒高感染率的狀況，醫療效率越高反應越快，流行病處理能力越高越能控制疫情，居民人均擁有醫生數量越多，醫護人員配搭越合理越能處理突發狀況。
 
-而作為中共國國內內經濟的三架馬車之一的出口，目前也是慘不忍睹。以2020年的1月和2月舉例，其對外出口總量，總體暴跌17.2%，其中，機電產品出口1.2萬億人民幣，下降14.9％，占出口總值的58.8%；自動數據處理設備及其零部件出口1389.5億人民幣，下降26％；手機1003.1億人民幣，下降14.4%，服裝出口1122.6億人民幣，下降18.7%，塑料製品569.9億人民幣，下降14.8%，家具443.8億元，下降21.6%。
+奇怪的是面對迅猛疫情，中國各地在不同首例確證時間，交通條件，人口密度，人口結構，不同醫療條件，個人體質，氣候條件多種不確定因素的影響下，中共國卻能做到同一天各地達到完全零增長。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231449/876.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231524/987.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234744/h.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09234808/k.png)
+最近國內各大平台吹起甩鍋外國的風，一說中共肺炎病毒來自美國流感，二說國內疫情成功控制，現在新增病例都是外國（意大利，韓國）飛來的人，大有將三月底第二波大爆發推給這些人的趨勢，哪國增長病例多，就說此國來中共國躲避疫情的人多。
 
+這種行為可以形容為醫療數據上的大躍進新騙局。為應對此種即將來臨的醫療資源不足，糧食短缺，金融危機，建議大家積極屯糧，銀行里的現金取出來握在手裡，換匯，換物資。
 
-另外中共國的製造業和非製造業，更是衰退到了極點，以2020年2月中共國官方給出的數據為例，其製造業指數PMI僅僅為35.7，遠低於預期的45；製造業指數低於50代表衰退，也就是說，2月份中共國工業衰退了14.7點。在以2020年2月份中共國官方給出的非製造業指數舉例，直接從之前高於50點，衰退到目前的29.6點。
+參考連結：
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231642/908.png)
+[https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/](https://www.weforum.org/agenda/2018/09/ai-can-solve-china-s-doctor-shortage-here-s-how/)
 
-而中共國面對國內如此衰退的經濟，都採取了哪些手段呢？一方面中共國盜國賊們不顧疫情擴散的危險，逼著老百姓上前線去複工，想繼續盤活共產黨的經濟；另一方面面對如此衰敗的經濟，中共國央行唯一的手段就是放水，印刷鈔票，大水漫灌，僅僅2019年一年中共國的央行就放水達數万億人民幣。
+[https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010\_fig10\_305702423](https://www.researchgate.net/figure/5-Ratio-of-nurses-to-doctors-countries-of-the-Western-Pacific-2004-2010_fig10_305702423)
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231754/089.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231810/096.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231827/097.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09231844/098.png)
+[https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors](https://www.economist.com/china/2017/05/11/china-needs-many-more-primary-care-doctors)
 
+[https://bmjopen.bmj.com/content/9/2/e023997.long?int\_source=trendmd&int\_medium=cpc&int\_campaign=usage-042019](https://bmjopen.bmj.com/content/9/2/e023997.long?int_source=trendmd&amp;int_medium=cpc&amp;int_campaign=usage-042019)
 
-與此同時，中共國的廣義貨幣供應量M2以每月超過8%的速度快速擴張，截止到2020年1月份為止，中共國的M2更是達到前所未有的202萬億人民幣，按照現在中共國官方的匯率，折合成美元接近30萬億。 30萬億是什麼概念？ 30萬億的M2比同時期的美國＋日本＋歐盟貨幣的總和還要多，這樣的貨幣總量，中共國的人民幣豈能不變成廢紙？
+[https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget](https://www.crfb.org/papers/american-health-care-health-spending-and-federal-budget)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09232109/123456-1.png)
-
-以上只是筆者列舉的部分中共國官方公開的數據，相信真實的數據比中共國官方的數據還要誇張很多。所以，綜合上述，中共國的經濟早就已經到了崩潰的邊緣，只不過現在是郭先生聯合世界上的資本大鱷在中共國即將崩塌的金融之上又暴踹了一腳，加速其崩盤。
+[https://www.globalxetfs.com/china-sector-analysis-health-care/](https://www.globalxetfs.com/china-sector-analysis-health-care/)
 
 （文章內容僅代表作者個人觀點）
 
