@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Expert: a ‘tipping point’ before coronavirus kills<br>https://gnews.org/135680/
+
+[https://www.guo.media/posts/274418](https://www.guo.media/posts/274418) `2020-03-10T03:25:13`
+##
+
 **milesguo** Italy expands lockdown to entire country to curb COVID-19<br>https://gnews.org/135578/
 
 [https://www.guo.media/posts/274417](https://www.guo.media/posts/274417) `2020-03-10T02:10:18`
