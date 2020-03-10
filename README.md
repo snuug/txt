@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274446](https://www.guo.media/posts/274446) `2020-03-10T08:55:14`
 ##
 
+**milesguo** 从钟南山领誓谈开去<br>https://gnews.org/zh-hans/136411/
+
+[https://www.guo.media/posts/274445](https://www.guo.media/posts/274445) `2020-03-10T10:55:14`
+##
+
 **milesguo** 未来车贷房贷不用还，你还冒死上啥班！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/136423/
 
 [https://www.guo.media/posts/274444](https://www.guo.media/posts/274444) `2020-03-10T09:25:14`
