@@ -11,6 +11,21 @@
 
 
 
+**milesguo** <br>大外宣领域的“人民战争”<br>https://gnews.org/zh-hans/136365/
+
+[https://www.guo.media/posts/274467](https://www.guo.media/posts/274467) `2020-03-10T17:10:18`
+##
+
+**milesguo** 中国特色 官方指定 暴力敛财 坍塌甩锅<br>https://gnews.org/zh-hans/136523/
+
+[https://www.guo.media/posts/274465](https://www.guo.media/posts/274465) `2020-03-10T17:10:19`
+##
+
+**milesguo** 文字版2020年3月8日谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史<br>https://gnews.org/zh-hans/136613/
+
+[https://www.guo.media/posts/274464](https://www.guo.media/posts/274464) `2020-03-10T17:10:21`
+##
+
 **milesguo** 白宫抗疫小组记者会彭斯发表讲话<br>https://gnews.org/zh-hans/136503/
 
 [https://www.guo.media/posts/274462](https://www.guo.media/posts/274462) `2020-03-10T16:10:20`
