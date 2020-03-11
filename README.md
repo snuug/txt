@@ -11,6 +11,26 @@
 
 
 
+**milesguo** 平民主义、爆料革命与中共追求的全球化的角力已见分晓<br>https://gnews.org/zh-hans/138975/
+
+[https://www.guo.media/posts/274591](https://www.guo.media/posts/274591) `2020-03-11T23:10:11`
+##
+
+**milesguo** 卡尔·巴斯：中共政府陷入信任危机发表的数据无人信<br>https://gnews.org/zh-hans/138904/
+
+[https://www.guo.media/posts/274590](https://www.guo.media/posts/274590) `2020-03-11T23:10:13`
+##
+
+**milesguo** 荒唐！疫情下全国大学生统一学习“党课”<br>https://gnews.org/zh-hans/138672/
+
+[https://www.guo.media/posts/274588](https://www.guo.media/posts/274588) `2020-03-11T23:10:14`
+##
+
+**milesguo** 2020年3月7日灭共者说中文字幕合集（上）<br>https://gnews.org/zh-hans/138773/
+
+[https://www.guo.media/posts/274587](https://www.guo.media/posts/274587) `2020-03-11T23:10:15`
+##
+
 **milesguo** 湖北潜江通知全市复工!两小时后通知取消复工！逗你玩 ^o^<br>https://gnews.org/zh-hans/138605/
 
 [https://www.guo.media/posts/274579](https://www.guo.media/posts/274579) `2020-03-11T20:10:10`
