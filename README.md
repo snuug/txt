@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 武汉肺炎：细数红魔六宗罪<br>https://gnews.org/zh-hans/138429/
+
+[https://www.guo.media/posts/274561](https://www.guo.media/posts/274561) `2020-03-11T17:10:41`
+##
+
+**milesguo** 伊朗前总统内贾德先生给联合国秘书长的信中都说了啥<br>https://gnews.org/zh-hans/138400/
+
+[https://www.guo.media/posts/274559](https://www.guo.media/posts/274559) `2020-03-11T17:10:43`
+##
+
 **milesguo** 下跪磕头声声怨，等待大人包青天？<br>https://gnews.org/zh-hans/138369/
 
 [https://www.guo.media/posts/274554](https://www.guo.media/posts/274554) `2020-03-11T16:25:14`
