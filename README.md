@@ -11,9 +11,19 @@
 
 
 
+**milesguo** <br>Citizen Journalism: managing the crisis of COVID-19<br>https://gnews.org/137933/
+
+[https://www.guo.media/posts/274497](https://www.guo.media/posts/274497) `2020-03-11T02:10:14`
+##
+
 **milesguo** Special Ep 38- War Room: Pandemic, Wuhan Coronavirus<br>https://gnews.org/137902/
 
 [https://www.guo.media/posts/274496](https://www.guo.media/posts/274496) `2020-03-11T01:40:14`
+##
+
+**milesguo** 3月10号：过去的30个小时．全世界向更乱更糟的方向发展，接下来可能要有大事发生……战友们务必小心，务必小心，务必小心……文贵正在全力战斗……一切已经开始！
+
+[https://www.guo.media/posts/274490](https://www.guo.media/posts/274490) `2020-03-11T02:10:16`
 ##
 
 **milesguo** <br>Italian Health Official: coronavirus ‘worse than a bomb’ on Italy<br>https://gnews.org/137889/
@@ -31,9 +41,19 @@
 [https://www.guo.media/posts/274485](https://www.guo.media/posts/274485) `2020-03-11T01:40:15`
 ##
 
+**milesguo** Wake Up Folks, For Your Own Good  — Here Comes Virus, Here Comes CCP<br>https://gnews.org/137237/
+
+[https://www.guo.media/posts/274484](https://www.guo.media/posts/274484) `2020-03-11T02:10:17`
+##
+
 **milesguo** Stock market crossfire; CCP props up A-shares to avoid collapse<br>https://gnews.org/136557/
 
 [https://www.guo.media/posts/274483](https://www.guo.media/posts/274483) `2020-03-10T23:55:13`
+##
+
+**milesguo** Pro-Democracy Legislator accuses MTR of passing the buck in derailme<br>https://gnews.org/133588/
+
+[https://www.guo.media/posts/274482](https://www.guo.media/posts/274482) `2020-03-11T02:10:18`
 ##
 
 **milesguo** TNT Daily : Hubei Airport Group on Preparing for Resumption of Work and flights<br>https://gnews.org/136319/
