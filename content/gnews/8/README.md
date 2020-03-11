@@ -1,43 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港97回歸，法治早已名存實亡！
-`2020-03-11 01:44 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/138224/)
+## 3月10日美國政要推文精選
+`2020-03-11 01:49 GM65` [轉載自GNews](https://gnews.org/zh-hant/138354/)
 
-[https://spark.adobe.com/page/b8RiK6IgIoMp5/](https://spark.adobe.com/page/b8RiK6IgIoMp5/)
+https://twitter.com/Jkylebass/status/1237307549009022976
 
-*作者：玄天生*
+卡爾·巴斯先生：“北京反對”？ ！不管武漢冠狀病毒來自武漢生物武器實驗室、被感染的蝙蝠還是穿山甲，它都是源自中國。北京的人體器官活摘、集中營和奧威爾式監控國不允許任何反對意見。
 
-校對：Julian Win、海闊天空
+CNBC：北京反對“武漢冠狀病毒”一詞，說它可能不是源自中國
 
-**引言：香港，一顆被民主、法治百年洗禮的璀璨明珠，隨著97回歸，漸漸隕落。香港，一顆在英國民主、法治培育下的種子才過了大約150年，剛剛生出小苗。既被一個以馬列主義、赤納粹為本，任由人治、槍桿子出政權及披著羊皮的魔鬼–紅龍赤共，利用所謂的「一國兩制」，騙取世界信任，強勢收回。所謂學好要三年，學壞只要三天。22年的任由中共玩弄與操縱，香港政府、政客、商人，早已同流合污。再加上大量被中共洗腦的老百姓輸送到香港，香港早已不是當年的東方明珠，早已沉淪！魔鬼想要的永遠是取代上帝，吞噬靈魂。若自以為在利用魔鬼，最終也成了魔鬼的一部份。**
+https://twitter.com/theIWP/status/1237136252350222339
 
-眾所周知，中共體制是以權為本，誰當權誰就控制一切，連中國憲法也能任意篡改，法律任由當權者需要來決定。一個完全與世界不能融合的體制，拋出「一國兩制」，欺騙香港、欺騙世界。正如黑社會與警察本該對立，但當他們成為伙伴時，就是今天的港府和中共治下的社會，如6-9反送中，7-21元朗事件和8-31的太子站事件……港共政府徹底扯下遮醜布，露出了猙獰的真面目！他背後的主子-紅龍中共，早已露出獠牙，向民主、法治、有信仰、正義的美國表明，我要徹底把你打跨！謀劃「百年計劃」2021、2049全面建成「社會主義現代化強國」，實現「強國夢」。
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/0a37832f-8043-4196-9927-d6be5dd21692.jpg?asset_id=91daffcb-d870-48be-b473-d3c59e5d283d&amp;img_etag=44e63a2a47d7202a93f39a9bcd08b993&amp;size=2560)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/0a37832f-8043-4196-9927-d6be5dd21692.jpg?asset_id=91daffcb-d870-48be-b473-d3c59e5d283d&amp;img_etag=44e63a2a47d7202a93f39a9bcd08b993&amp;size=1024) 推特圖片：@Bobkrobinson1 
-今天的武漢疫情，CCP- VIRUS，，已通過各種方式和渠道，傳播到了世界，疫情正在全球各地爆發。再看看而由中共藍金黃下的WHO(World Health Organization)，在世人面前為中共洗地的嘴臉，如同黑社會老大手下的一個馬仔，不遺餘力的在幫老大叫囂，搖旗吶喊。果然拍得好，有甜頭，近期中共國既宣佈捐款WHO，2000萬美元。([新聞來源](https://www.rti.org.tw/news/view/id/2054483))
+比爾·格茨先生轉推：
 
-最近，香港警務處副處長在聯合國發言指責，有人別有用心抺黑警隊。其核心政治語言，是否與中共的外交部口吻極其相似？其次，聯合國(ONU)，也早就是一個虛假、被藍金黃的組織，引用「少林足球」一句–球證、觀眾、球會委員會都是我的人，那誰還敢大聲說話、大聲指責？！([新聞來源](https://www.thestandnews.com/politics/%E8%AD%A6%E5%8B%99%E8%99%95%E5%89%AF%E8%99%95%E9%95%B7%E9%83%AD%E8%94%AD%E5%BA%B6%E8%81%AF%E5%90%88%E5%9C%8B%E7%99%BC%E8%A8%80-%E6%8C%87%E8%B2%AC%E5%88%A5%E6%9C%89%E7%94%A8%E5%BF%83%E8%80%85%E6%8A%B9%E9%BB%91%E8%AD%A6%E9%9A%8A/))
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/67D363B1-D121-46CD-A5C6-47567972C861.jpg?asset_id=58728DF4-8889-40BC-8292-37BD93161069&amp;size=1024)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/67D363B1-D121-46CD-A5C6-47567972C861.jpg?asset_id=58728DF4-8889-40BC-8292-37BD93161069&amp;size=1024)
+世界政治學院（IWP）：比爾·格茨強調國防部對中國軍事力量和影響的擔憂
 
+《華盛頓時報》：馬克·埃斯珀：中國威脅到了五角大樓的“最高要務”
 
+https://twitter.com/BillGertz/status/1237347803657129995
 
+比爾·格茨先生：出於對數據竊取的擔憂，川普責令酒店管理軟件公司剝離中國老闆
 
-視頻(1) ：是關於20年3月8日市民在將軍澳尚禮樓澳聚集，悼念周梓樂逝世四個月，之後大量警察在尚禮樓一帶設立封鎖線，更把部份市民帶到停車場內，方便在沒有公眾視線下進行搜身，並且威嚇在場市民。一個不能在陽光下、民眾知情下解決問題，只能在遠離大眾視線的黑幕下執行任務，想必這只有在以警治國的黑社會環境下才會發生。([推特原文鏈結](https://twitter.com/johnmok64/status/1236998213044862978))
+《華盛頓時報》：川普發布針對中國軟件公司的命令以進行嚴厲打擊
 
-視頻(2) ：同一時間早上，大埔太源街發生的一幕，黑警與便衣如何利用自己的職權，恣意使用暴力對待市民。
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/3ef4d954-f25d-4ad8-9dcf-142a1e62e017.jpg?asset_id=a63a6029-b827-41a1-afa0-98fc749293e7&amp;img_etag=4cb88cfe8a836ed1953e571e08b0eefe&amp;size=2560)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/3ef4d954-f25d-4ad8-9dcf-142a1e62e017.jpg?asset_id=a63a6029-b827-41a1-afa0-98fc749293e7&amp;img_etag=4cb88cfe8a836ed1953e571e08b0eefe&amp;size=1024) 推特圖片 
-可見，港共的無恥完全承啓於中共。而特首在回答記者提問時，卻說警察因為壓力大，可能做法有點失準，請市民包容……當然事情也會不了了之。當然對於香港人、全人類，這事不會這樣完結。就如黑警面對一宗又一宗的被自殺、被跳樓的案件，一句“此案無可疑”，相信這是在任何文明、法治的社會下，是不可能發生、也是不可容忍的！如今在香港卻真實的、每天都在發生著。
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/90786EC6-1C69-4FC6-9309-241E7B1C6C82.jpg?asset_id=E9EA7016-5EB9-4F6F-AFFF-5D5EF0CE67BA&amp;size=2560)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/90786EC6-1C69-4FC6-9309-241E7B1C6C82.jpg?asset_id=E9EA7016-5EB9-4F6F-AFFF-5D5EF0CE67BA&amp;size=748)
-說起被自殺、被跳樓，對於中共牆內是否相識。習、王當年以反貪明意，不少相關人士都莫名的心臟衰竭、自殺和跳樓！當然事實真相只有等到今年6-4後或許會慢慢解開，但對比起現在香港大量自殺案、跳樓案，手法如出一轍，不禁毛骨悚然！
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/B2D44847-EFD1-47CB-9903-EDD3E6724DC3.jpg?asset_id=D5A87FF5-5E02-4A03-98C4-D86BEF9005B0&amp;size=1024)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/B2D44847-EFD1-47CB-9903-EDD3E6724DC3.jpg?asset_id=D5A87FF5-5E02-4A03-98C4-D86BEF9005B0&amp;size=1024)
-再看，香港管理法律調查的律政司-鄭若驊，因為僭建風波中，不被檢控，如前特首梁振英UGL案選擇不聽取獨立法律意見一樣，不被任何法律調查、追究。而她本人回答的是，她不知情。不只是僭建問題，就連港鐵沙中綫豆腐渣工程、禮頓、UGL之間的關係等等，天價的大白象工程，讓香港納稅人的錢盡為中共輸送。
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/0e48ca57-7b9e-49fa-b00d-26a639101688.jpg?asset_id=4f3d1254-32f9-4bd3-b6ca-cd1bd8e76277&amp;img_etag=1a609f5e46070346b111a4f390912a29&amp;size=2560)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/0e48ca57-7b9e-49fa-b00d-26a639101688.jpg?asset_id=4f3d1254-32f9-4bd3-b6ca-cd1bd8e76277&amp;img_etag=1a609f5e46070346b111a4f390912a29&amp;size=1024)
-推特圖片
+https://twitter.com/marcorubio/status/1237396604556062720
 
-政府工程，正常程序也是要招標，所謂低價所得，也是為了讓納稅人的錢用的值，但最近卻爆出鯉魚門、竹篙灣、西貢和八鄉四處興建檢疫中心，在未有公開招標下，其中竹篙灣是由政府委任國企旗下的「中國港灣」公司興建，造價達 1.9 億。可見，港共也不怕你查，因為中共到現在還存在呢！([新聞來源](https://www.thestandnews.com/politics/%E6%94%BF%E5%BA%9C%E6%9C%AA%E5%85%AC%E9%96%8B%E6%8B%9B%E6%A8%99-%E5%A7%94%E4%B8%AD%E8%B3%87%E5%8F%8A%E6%96%B0%E4%B8%96%E7%95%8C%E5%BB%BA%E6%AA%A2%E7%96%AB%E4%B8%AD%E5%BF%83-%E6%9C%B1%E5%87%B1%E5%BB%B8%E5%BC%95%E5%B7%A5%E7%A8%8B%E7%95%8C%E6%B6%88%E6%81%AF-%E9%A3%9F%E6%B0%B4%E7%94%9A%E6%B7%B1%E7%9B%8A%E6%9C%8B%E5%8F%8B/))
+參議員Marco Rubio：19冠狀病毒不是媒體陰謀、川普的失誤或僅僅像流感一樣。它是實實在在的公共衛生緊急狀況，將對公眾、經濟和我們的日常生活帶來嚴重影響。 （應對）冠狀病毒需要有個人的責任和行動，以及政府的措施。
 
-面對黑警與港共政權對市民的打壓，你認為香港還是擁有法治，那定是你選擇了蒙蔽雙眼，放棄真相。前路困難艱險，正如魔鬼將世界帶入黑暗，但是，一切魑魅魍魎都阻擋不住黎明的到來。傳播武漢疫情相、傳播香港真相，世界正在覺醒！
-[!\[\](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/cb4cb073-86b4-4520-b4b0-3de74b742b5f.jpg?asset_id=095ce506-595c-4d6c-9b89-83201a3bc888&amp;img_etag=8b3dbbe25940a58f5bac862fc8c75518&amp;size=2560)](https://spark.adobe.com/page/b8RiK6IgIoMp5/images/cb4cb073-86b4-4520-b4b0-3de74b742b5f.jpg?asset_id=095ce506-595c-4d6c-9b89-83201a3bc888&amp;img_etag=8b3dbbe25940a58f5bac862fc8c75518&amp;size=1024)
-**編輯 【喜馬拉雅戰鷹團】**
+https://twitter.com/TheEconomist/status/1237279557927002114
 
+斯伯丁將軍轉推：
+
+《經濟學家》雜誌：白宮驅逐為中國政府媒體工作的記者
+
+https://twitter.com/robert\_spalding/status/1237288367026470913
+
+斯伯丁將軍：肖（音譯，Xiao）說：“這不只是某種信息誤導或官方帶風向的說法。這是中國政府利用各種渠道，以幾乎前所未見的程度，精心策劃的、全員出動的運作行為。是一種反攻。”
+
+雅虎新聞：中國大外宣擴散冠狀病毒源自美國的“理論”
+
+https://twitter.com/robert\_spalding/status/1237289512239345664
+
+斯伯丁將軍：“中國1.2萬億美元股市反彈主要是由希望和槓桿推動的，中共官員現在面臨的風險是恐懼成為主導情緒，導致市場螺旋式下跌。”
+
+雅虎金融：全球暴跌給中國槓桿型股市狂潮帶來致命打擊
+
+https://twitter.com/robert\_spalding/status/1237291669327941632
+
+斯伯丁將軍：這反映了半導體行業的短期思維。美國需要產業政策，而不是加大對華芯片銷售來支撐一個已經失敗的相互依存關係。
+
+《華爾街日報》：美國芯片行業擔憂與中國的貿易戰會帶來長期損失
+
+https://twitter.com/robert\_spalding/status/1237363632738091008
+
+斯伯丁將軍：在中國怎麼賺錢：買人們的器官
+
+YouTube視頻
+
+https://twitter.com/robert\_spalding/status/1237434576399732738
+
+斯伯丁將軍連推：中共滲透到VOA—VOA不應該引用中共資助的研究，眾所周知這些研究是大外宣。 ”中國國家出資的新聞網站The Paper2015年的一項研究發現，60%境外針對中國工人的襲擊發生在非洲。2010年在讚比亞發生的一次這類事件曾引起國際關注。在那裡，對不安全的工作環境感到憤怒的礦工們聚集在一起抗議，遭到礦場中國經理的槍擊。那份報告還發現南非是排外主義事件最嚴重的地方。”
+
+VOA新聞：冠狀病毒將“恐華”帶到非洲
+
+https://twitter.com/robert\_spalding/status/1237435076268503040
+
+斯伯丁將軍：“四名德克薩斯人，一名紐約人因串謀向中國煉油廠出售伊朗被制裁石油獲利幾百萬而被捕”
+
+https://twitter.com/ChinaInFocusNTD/status/1237359018810712064
+
+斯伯丁將軍轉推：
+
+中國聚集—新唐人：外科醫生Enver Tohti在一個獨立的人民法庭上作證時說，“他們說把肝臟和兩個腎臟切下來…當我動刀時，他的身體開始掙扎，但太虛弱了掙扎不動。然後我意識到他還活著。”
+
+https://twitter.com/ChinaInFocusNTD/status/1237355344713650177
+
+斯伯丁將軍轉推：
+
+中國聚焦—新唐人：根據大紀元獲得的一份內部文件，中國山東省的兩家醫院將屍體送走時並未註明死亡原因。殯儀館員工看到他們的死亡證明上寫“不明肺炎”，擔心是冠狀病毒。
+
+https://twitter.com/anderscorr/status/1237364061941182464
+
+斯伯丁將軍轉推：
+
+Anders Corr博士：中國駐捷克共和國大使威脅該國，現在捷克人讓他回家。
+
+路透社：捷克總理說中國大使應該換人
+
+https://twitter.com/robert\_spalding/status/1237503170441621504
+
+斯伯丁將軍：值得回顧——“但展現的愛國主義，尤其是從年輕人身上表現出來的，也說明中共大外宣機器深諳大眾媒體和社交媒體時代象徵和象徵主義的威力。”
+
+《紐約時報》：中國掌握Instagram時代的政治大外宣手段
+
+https://twitter.com/robert\_spalding/status/1237504435565277184
+
+斯伯丁將軍：最喜歡的袁莉的文章—“學生們必須死記硬背清朝簽訂的不平等條約。這甚至有個名稱：“民族屈辱教育”。這種解說掩蓋了很多歷史。”
+
+《紐約時報》：中國的政治正確：一個國家，沒有爭議
+ 
 0
