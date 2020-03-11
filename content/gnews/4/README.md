@@ -1,21 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》不吐不快！病毒是人造盟友也背書? 伊朗前總統：武漢肺炎病毒是實驗室製造
-`2020-03-11 05:57 GM15` [轉載自GNews](https://gnews.org/zh-hant/138561/)
+## 隔口罩，識人臉
+`2020-03-11 07:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138592/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11052413/phpRDWrkt.jpg)
-> It is clear to the world that the mutated coronavirus was produced in lab, manufactured by the warfare stock houses of biological war belonging to world powers,& that it constitutes a threat on humanity more destructive than the other weapons that target humanity.[@antonioguterres](https://twitter.com/antonioguterres?ref_src=twsrc%5Etfw) [pic.twitter.com/lLLzvdMAGo](https://t.co/lLLzvdMAGo)
-> — Mahmoud Ahmadinejad (@Ahmadinejad1956) [March 9, 2020](https://twitter.com/Ahmadinejad1956/status/1237072414841937920?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11070931/1-54.png)
 
-武漢肺炎疫情延燒不斷，且不斷有看法認為，病毒是來自於實驗室人為製造。伊朗前總統阿賀馬迪內賈德（Mahmoud Ahmadinejad）10日在推特發文直言「全世界都清楚新冠病毒是在實驗室製造的」。
 
-阿賀馬迪內賈德在推特撰文指出，全世界都清楚新冠病毒是在實驗室製造的，被準備用於生物戰，他說這對人類的威脅超過了其他武器。阿賀馬迪內賈德認為，世界衛生組織應該要立即查明製造並散播病毒的實驗室，以及助長生物戰的其他單位。
+漢王科技有限公司最近研發出了一套新的人臉識別技術，可以隔著口罩識別人的身份。讓人不禁思考幾個問題，在全民抗擊疫情的檔口，如果全國疫情真的已經過去，我們為什麼需要花重金去研發這套新技術，人民馬上就可以不戴口罩出門啦？第二個問題就是這套技術這麼快研發出來的目的是什麼，有什麼情景會使得人們在疫情的恐懼下都不怎麼出門，而任何組織還覺得有必須研究一套這樣的系統？那再往前推演一步，有什麼樣的情景會使得人們會不怕疫情帶著口罩出門，而組織又有識別他們身份的必要？三個問題問下來，覺得這個系統放佛在為未來人民大規模上街機會做著事先的準備。
 
-阿賀馬迪內賈德的推文引起網友熱烈討論，許多人將矛頭指向中國，但阿賀馬迪內賈德文中並未明確寫出是針對哪些國家。
+中國花重金部署了世界上最先進的人臉識別系統，但是最近的疫情人人都戴著口罩，使得這些人臉識別系統形同虛設。這個新的人臉識別系統加配一個傳感器可以立即顯示這個人的體溫，通過掃描戴著口罩的全臉，通過比對數據庫，能立即知道人的姓名，準確率達到95%。而對於不戴口罩人的識別成功率可以達到99.5%。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3095702)
+漢王科技利用這套技術研發了兩個產品，一個是單一渠道，適合用在任何建築物的門口；一個叫做多渠道產品，可以用於多方位的監控攝像頭。這個攝像頭可以在一秒鐘內最多辨識出30個人。
 
-GM15
+漢王科技是在600萬個不戴口罩人臉的面部樣本和一個略小的帶口罩的面部樣本基礎上，以之前監控技術為模型開發出這個技術的。
+
+漢王科技最大的客戶是中國公安部，他利用漢王科技的監控技術，識別和追踪人民的面部信息，並和其數據庫的信息進行比對，以確定人的身份。官方說法是此科技可以幫助尋找逃犯和恐怖分子，但是誰又能夠來監督這個技術僅僅用來尋找逃犯和恐怖分子，而沒有被用來尋找那些對政府提出過意見的公民呢？
+
+漢王科技已經有200個公司目前使用了該科技，包括警察局，並即將在20個省市推廣。政府利用疫情推行了多種措施加強了對於民眾的監控，社交媒體儘管有一些反對聲音，但是民眾卻願意接受這些措施，認為這些措施可以在這些公共衛生危機下保證他們的安全。
+
+但是我想問的是，這些措施到底維護的是誰的安全？
+
+[原文鏈接](https://www.reuters.com/article/us-health-coronavirus-facial-recognition/even-mask-wearers-can-be-idd-china-facial-recognition-firm-says-idUSKBN20W0WL)
+
+翻譯報導：索馬里海草
 
 0
