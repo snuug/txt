@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274528](https://www.guo.media/posts/274528) `2020-03-11T07:10:19`
 ##
 
+**milesguo** 川普纾困救市！美股道琼早盘大涨 一如郭先生所言 会有几个起伏 油价大跌中共又吃闷亏 关注伊朗、俄罗斯、委内瑞拉<br>https://gnews.org/zh-hans/137991/
+
+[https://www.guo.media/posts/274526](https://www.guo.media/posts/274526) `2020-03-11T07:25:11`
+##
+
 **milesguo** 改口急转弯！英国强森政府拒绝「高风险5G厂商」 将重新审视华为<br>https://gnews.org/zh-hans/137968/
 
 [https://www.guo.media/posts/274523](https://www.guo.media/posts/274523) `2020-03-11T06:10:13`
