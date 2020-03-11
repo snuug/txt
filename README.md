@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 湖北潜江通知全市复工!两小时后通知取消复工！逗你玩 ^o^<br>https://gnews.org/zh-hans/138605/
+
+[https://www.guo.media/posts/274579](https://www.guo.media/posts/274579) `2020-03-11T20:10:10`
+##
+
 **milesguo** 武汉疫情大事记 第二集<br>https://gnews.org/zh-hans/138655/
 
 [https://www.guo.media/posts/274568](https://www.guo.media/posts/274568) `2020-03-11T17:40:10`
