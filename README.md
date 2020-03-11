@@ -11,6 +11,16 @@
 
 
 
+**milesguo** <br>Italian Health Official: coronavirus ‘worse than a bomb’ on Italy<br>https://gnews.org/137889/
+
+[https://www.guo.media/posts/274487](https://www.guo.media/posts/274487) `2020-03-11T00:10:23`
+##
+
+**milesguo** Hong Kong Microbiologist and SARS expert: Hospitals I visited in China planned for propaganda<br>https://gnews.org/137669/
+
+[https://www.guo.media/posts/274486](https://www.guo.media/posts/274486) `2020-03-11T00:10:24`
+##
+
 **milesguo** Stock market crossfire; CCP props up A-shares to avoid collapse<br>https://gnews.org/136557/
 
 [https://www.guo.media/posts/274483](https://www.guo.media/posts/274483) `2020-03-10T23:55:13`
