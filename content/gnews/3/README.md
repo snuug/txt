@@ -1,12 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港表情包系列：亂港四人幫，禽獸不如孫力軍，snow返送中表情包
-`2020-03-11 10:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138772/)
+## 揭露央視新聞聯播假大空害人系列之三
+`2020-03-11 10:05 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138788/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095118/D1CE3093-558F-4494-A5E1-D1A08B669C11.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095133/33EDEC25-8537-4D97-9CFF-1A1D3202EA68.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095155/F9AA158B-364B-46D5-B7BB-C40DD8FC46A3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095228/A509D8E6-E88A-4027-B508-DB50249A653D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095244/CA434F7E-6064-4EAA-A3B9-19C8E9C983B6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095252/8EF2A0B5-895B-4B24-AE93-40F52C632ABD.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095306/937BEDFC-52CE-4E96-9CB5-B1F37869E063.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095350/F6C77CFA-67FA-47A1-8970-B1F8553C0280.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095401/81190D88-D5B6-4727-BC0A-B8C976215533.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095405/25711719-2187-43DB-80D3-942C4F80080A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095420/01A43B8D-3163-47BE-8981-DF9B5DCC0C18.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095434/775A594D-D5FB-4A9E-ABF9-EC344DE6BDD9.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095454/FF6003F1-4F4D-47AA-8B4A-8572B7953536.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095518/27E92992-75C1-40FE-92D3-010398C89FFE.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095542/7C522879-1256-4FEF-AF36-15557BC2DFB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095605/D563AA58-80B2-4CAB-8591-F76CB915AE20.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095630/80C7C20A-00D8-48C4-998F-3DEFE5B67A88.jpeg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11100216/2-21.jpg)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095653/9A53F6FC-B620-430A-810E-6140E0B84E5B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095706/A6BF7401-6D81-4D10-A891-920660CFF76B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095719/1B2B3304-3BB0-4FA1-B1E9-B889F6A8615E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095733/B99F85A6-B49C-4818-B71F-C49AE3B31039.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095749/26E1787F-BDF1-4D2B-AB8D-2D6486B64774.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095817/46357C8A-E47B-4E62-AFB5-372B3060775E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095839/0788FA32-9C42-4699-B364-3D3E056FF1D3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095906/A3FC8545-BD9D-4B0A-90E8-F39599B06D74.jpeg)
-作者：【snow表情包組】【文熙繪製】
+3月6日新聞聯播
+
+一、在“決戰決勝脫貧攻堅座談會”上，習近平強調，堅決克服新冠疫情影響，堅決奪取脫貧攻堅全面勝利。貧困人口從2012年底9899萬減少到2019年底551萬，貧困發生率從10.2%降低到0.6%，“兩不愁”質量水平明顯提高，“三保障”突出問題總體解決，貧困地區群眾出行難、用電難、上學難、看病難、通訊難等長期沒有解決的老大難問題普遍解決，教育醫療住房有了保障。世界上沒有哪一個國家在這麼短的時間內幫助這麼多人脫貧，這對中國和世界都具有重大意義。彰顯了中國共產黨領導和社會主義制度的優勢。
+
+筆者揭露
+
+1.在這一段裡，習總書記首先充分自我誇獎了管理能力和管理成效。短短七年，貧困人口大幅減少，貧困率只有0.6%，這一定是全球近200個國家獨一無二的功勳。只是，他隱瞞了或者不知道，全國中西部地區的赤貧人口依然龐大，男女老少村民或攀附懸崖或攀扶天梯出入的景象時有公開，家徒四壁而鍋裡有肉有菜等著大領導“掀鍋蓋”的視察每年春節都有上演……嘴說的美麗數字哪裡掩得住淚崩的殘酷現實？
+
+2.“兩不愁”（不愁吃不愁穿）質量水平明顯提升，“三保障”是指義務教育、基本醫療和住房安全有保障。共產黨統治中國70年，現在才“解決”多麼多人的吃穿問題，按下不表。單說中共的領導視察就極具特色：基層部門安排好陪同人員，安排好線路，安排好演員，安排好道具……只為了大領導辛苦來滿意去。大家見過，特殊日子裡，環衛工人領了慰問金，拍完視頻或照片，慰問金被收回……我們有理由懷疑，貧困家庭鍋裡的肉菜也會在擺拍後被端走。貧困山區孩子們缺衣少食屢見不鮮，民間救助經年累月，中共你怎好意思當眾自吹自擂！自從鄉村小學被集中之後，多少孩子無法上學，能上學的也因為不菲的食宿費而艱於維持。多少家庭的房子還是草棚泥屋，難擋風雨。
+
+你說“突出問題總體解決”，什麼是“突出問題”，什麼是“總體解決”？你說貧困地區“教育醫療住房有了保障”，為什麼還有那麼多人在生死邊緣掙扎，上不起學看不起病住不起房？你沒有實施免費教育免費醫療之前，請不要再欺騙人民，好嗎？
+
+3.中共你剝奪了農民的土地，限制了農民的遷徙，你創新了“農民工”這個極具歧視性的人群。你賴以炫耀的高樓高鐵高速公路侵染了多少“農民工”的血汗，然後讓他們“非法群體討薪”又遭黑心警察威脅毆打？你長期政策性地製造了“貧困地區”和“貧困人口”，然後，幾十年如一日轟轟烈烈地“扶貧”“精準扶貧”，讓自己吹噓，讓民眾感恩，讓世界來學習你的“中國方案”“中國經驗”，你怎麼這麼不知羞恥？
+
+二、介紹脫貧時，農民戴口罩鋤地，戴口罩種菜（6:35起）；介紹科技部成果時，科研人員卻無口罩手套在科研操作，擺放檢測瓶（21:19）。央視，你還能再假一點嗎？你能不把假話當笑話講嗎？你撒謊的時候不要把觀眾都當成傻子，行嗎？
+
+三、國新辦發布會上說（18:38），全國馳援武漢4萬多醫務人員未發現感染的報告，五萬餘名確診出院的患者大多數使用了中醫藥。衛健委中醫藥局黨組書記余艷紅說：中國治療方案是中西醫共同並肩戰疫共同智慧的結晶，我們願意分享治療新冠肺炎的中國經驗中國方案。
+
+筆者打假：看來，這個武漢肺炎病毒的智慧遠在央視之上。它能分辨武漢醫護和馳援醫護，感染了3000多武漢湖北的醫護人員，卻放過了所有馳援的醫護人員。同一個病區有武漢醫護也有馳援醫護，這病毒就能在兩者之間鑽來鑽去，精準感染。按說，這病毒也不該這麼壞才行！醫護都是治病救人的天使，一個都不該感染才對！這病毒神奇到如此匪夷所思的程度，不知讀者您相不相信，反正，筆者是絕不敢相信！
+
+習主席為世界經濟把脈開方的偉大理想，在這次疫情中得到了體現，“中國經驗”“中國方案”簡直讓世界亮瞎了眼睛。央視，你趕快向歐美輸出你的“大國湯藥”！
+
+四、外國政黨領導人積極評價中國主動同世界分享疫情防控經驗。巴勒斯坦人民鬥爭陣線中央委員阿盧什表示：我們堅決反對一些國家將疫情政治化。當前疫情正在全球傳播，世界各國祇有同心協力，才能打贏這場疫情防控阻擊戰。我們堅信疫情不會影響中國經濟長期向好的發展態勢，中國將繼續在全面建成小康社會，實現中華民族偉大復興中國夢的道路上闊步前進。
+
+簡評：各位，這段話您是不是相當熟悉。這遣詞，這造句，這自信，這豪情……分明就是我們偉大黨中央發出的聲音。但筆者有充分理由相信，阿盧什的這個表示，要么是央視一廂情願做了他的代言人，要么是中方給了他通稿照登，要么是“高價”買來的表態。總之，作為完全不同政體和不同文化的巴勒斯坦領導人是絕無可能說出和中共如出一爐高度一致的話語。
+
+左媛觀點
 
 0
