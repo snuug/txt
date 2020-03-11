@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274530](https://www.guo.media/posts/274530) `2020-03-11T09:40:11`
 ##
 
+**milesguo** 爆料革命，中共的死穴，诬陷美国的计划将破产！<br>https://gnews.org/zh-hans/137992/
+
+[https://www.guo.media/posts/274529](https://www.guo.media/posts/274529) `2020-03-11T11:10:11`
+##
+
 **milesguo** 2020年3月10日武汉冠状病毒大流行第46集<br>https://gnews.org/zh-hans/138120/
 
 [https://www.guo.media/posts/274528](https://www.guo.media/posts/274528) `2020-03-11T07:10:19`
