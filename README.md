@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 中共对华南海鲜批发市场的反复消毒能不能彻底把第一犯罪现场消灭<br>https://gnews.org/zh-hans/137995/
+
+[https://www.guo.media/posts/274530](https://www.guo.media/posts/274530) `2020-03-11T09:40:11`
+##
+
 **milesguo** 2020年3月10日武汉冠状病毒大流行第46集<br>https://gnews.org/zh-hans/138120/
 
 [https://www.guo.media/posts/274528](https://www.guo.media/posts/274528) `2020-03-11T07:10:19`
