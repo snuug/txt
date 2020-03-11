@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》不吐不快！病毒是人造盟友也背書? 伊朗前總統：武漢肺炎病毒是實驗室製造
-`2020-03-11 05:57 GM15` [轉載自GNews](https://gnews.org/zh-hant/138561/)
+## 湖北潛江通知全市復工!兩小時後通知取消復工！逗你玩 ^o^
+`2020-03-11 07:59 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/138627/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11052413/phpRDWrkt.jpg)
-> It is clear to the world that the mutated coronavirus was produced in lab, manufactured by the warfare stock houses of biological war belonging to world powers,& that it constitutes a threat on humanity more destructive than the other weapons that target humanity.[@antonioguterres](https://twitter.com/antonioguterres?ref_src=twsrc%5Etfw) [pic.twitter.com/lLLzvdMAGo](https://t.co/lLLzvdMAGo)
-> — Mahmoud Ahmadinejad (@Ahmadinejad1956) [March 9, 2020](https://twitter.com/Ahmadinejad1956/status/1237072414841937920?ref_src=twsrc%5Etfw)
+**作者：滅共日記**
 
-武漢肺炎疫情延燒不斷，且不斷有看法認為，病毒是來自於實驗室人為製造。伊朗前總統阿賀馬迪內賈德（Mahmoud Ahmadinejad）10日在推特發文直言「全世界都清楚新冠病毒是在實驗室製造的」。
+最近總能在國內的新聞媒體上，看到全國形式一片大好的宣傳，這些宣傳就是共產黨為了復工欺騙中國老百姓的一種手段，事實與官方報導的消息根本就是完全不符合的，14億中國的老百姓仍然活在水深火熱的共產黨創造的徹頭徹尾的謊言世界裡，老百姓眼中以為的形式一片大好，其實是大好的一片，全是形式！
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11075021/1-108.jpg)
+就在剛剛，湖北潛江市新型冠狀病毒肺炎疫情防控指揮部連發兩份通告，上午8：30左右，第26號通告稱，潛江優化調整市內交通管控、人員管理和復工復產措施。但兩個小時後，潛江發布第27號通告，稱為落實分區分級分類分時差異化疫情防控策略，現對市新冠肺炎疫情防控指揮部發布的第26號通告予以取消，全市繼續實行嚴格交通管制、人員管控，堅決打贏疫情防控人民戰爭、總體戰、阻擊戰。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11075043/2-37.png)
+這兩份公告從開始到結束，僅僅用了兩個小時的時間，讓我想起了武漢當時下的出城令，也是大概三個小時左右就被官方否定了，什麼原因能讓一個政府單位發布通告朝令夕改這麼草率？而且都是不到半天的時間就取消了，媒體也沒有突然爆出又增加了什麼病例，怎麼就說取消就取消了呢？共產黨這樣的做法只能說明，他們知道全面復工非常危險，會導致疫情反彈，表明了當地疫情依然非常嚴重！
 
-阿賀馬迪內賈德在推特撰文指出，全世界都清楚新冠病毒是在實驗室製造的，被準備用於生物戰，他說這對人類的威脅超過了其他武器。阿賀馬迪內賈德認為，世界衛生組織應該要立即查明製造並散播病毒的實驗室，以及助長生物戰的其他單位。
+在中國，官方媒體一直在錯誤的引導老百姓的判斷方向，掩蓋疫情真相，導致大量的公司員工在復工，商場超市一些公共場所也陸陸續續的開放，這些復工的老百姓對於病毒，只是通過官方的宣傳，並沒有親身體驗過武漢病毒的危害，再加上一些生存的壓力，所以你會發現身邊的很多人都大著膽子去上班了，但是很多老百姓根本都不知道，你看到的是你看到的，還有很多是你沒有看到的呢？雖然現在去任何公共場所都會測體溫，我覺得這根本沒有用，怎麼可以證明這個數據是真實有效呢？這樣做真的能起到預警的效果嗎？要知道很多初期感染者是無症狀的，也不會發燒的，這樣做無非就是地方的形式主義在給上面領導的一個交代而已！就是因為中共打造的一片大好，導致一些老百姓已經不戴口罩或是慢慢的恢復聚會了。老百姓不可能向中共預想的那樣單位到家兩點一線的生活，如果繼續復工，那疫情的再次爆發是共產黨根本捂不住的事情！
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11075100/3-21.jpg)
+大家沒有發現嗎？共產黨就是怕自己捂不住，最近的中國媒體都在把所有輿論的觀點轉向國外的疫情，拼命的宣傳國外疫情是如何大爆發的，死了多少人，來轉移老百姓對國內疫情的注意力。先把國內輿論穩住，如果真的二次爆發了，順其自然的就可以讓外國人背鍋，爆發都可以賴到境外輸入，這樣讓老百姓覺得即使二次爆發，也不是黨的問題，把鍋甩給國外！
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11075113/4-12.png)
+現在日本，韓國，意大利，美國等國家每天病例都在增長，而中國什麼都在增長就是不增長病人了，還可以復工了，這就是共產黨在發動人海戰術與冠狀病毒肉搏，在共產黨眼裡中國14億人口，死1億又何妨，安撫好剩下的13億就行了！所以國內的同胞們，一定不要相信共產黨說的話，武漢本身就是一個最好的例子！
 
-阿賀馬迪內賈德的推文引起網友熱烈討論，許多人將矛頭指向中國，但阿賀馬迪內賈德文中並未明確寫出是針對哪些國家。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3095702)
-
-GM15
+GNEWS之前文章：
+ 全世界都在抢卫生纸？[https://gnews.org/zh-hans/137343/](https://gnews.org/zh-hans/137343/)
+ 爱国洗脑教育【思政大课】[https://gnews.org/zh-hans/137042/](https://gnews.org/zh-hans/137042/)
+ 世卫组织官网！竟然中外有别！[https://gnews.org/zh-hans/138485/](https://gnews.org/zh-hans/138485/)
 
 0

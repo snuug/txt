@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 捷克總理要求中共國駐捷大使換新
-`2020-03-11 04:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138540/)
+## 《武漢肺炎》不吐不快！病毒是人造盟友也背書? 伊朗前總統：武漢肺炎病毒是實驗室製造
+`2020-03-11 05:57 GM15` [轉載自GNews](https://gnews.org/zh-hant/138561/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11040858/1-52.png)
-總理安德烈·巴比斯(Andrej Babis)表示，在中共國大使館向捷克當局致函威脅後，中共國應更換其駐捷克共和國的大使，這一立場可能會進一步加劇兩國間的緊張關係。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11052413/phpRDWrkt.jpg)
+> It is clear to the world that the mutated coronavirus was produced in lab, manufactured by the warfare stock houses of biological war belonging to world powers,& that it constitutes a threat on humanity more destructive than the other weapons that target humanity.[@antonioguterres](https://twitter.com/antonioguterres?ref_src=twsrc%5Etfw) [pic.twitter.com/lLLzvdMAGo](https://t.co/lLLzvdMAGo)
+> — Mahmoud Ahmadinejad (@Ahmadinejad1956) [March 9, 2020](https://twitter.com/Ahmadinejad1956/status/1237072414841937920?ref_src=twsrc%5Etfw)
 
-今年一月，中國駐布拉格大使館在致捷克總統辦公室的一封信中說，如果有資深的捷克議員繼續計劃訪問台灣，北京將對在中國經營的捷克公司進行報復。
+武漢肺炎疫情延燒不斷，且不斷有看法認為，病毒是來自於實驗室人為製造。伊朗前總統阿賀馬迪內賈德（Mahmoud Ahmadinejad）10日在推特發文直言「全世界都清楚新冠病毒是在實驗室製造的」。
 
-這封1月10日的信暗示，如果當時的參議院議長雅羅斯拉夫·庫貝拉（Jaroslav Kubera）訪問台灣，則在中國大陸經營的捷克公司，例如大眾（VOWG\_p.DE）的子公司Skoda Auto和Home Credit信貸集團，將遭受損失。不過，庫伯拉在出發之前就去世了。
+阿賀馬迪內賈德在推特撰文指出，全世界都清楚新冠病毒是在實驗室製造的，被準備用於生物戰，他說這對人類的威脅超過了其他武器。阿賀馬迪內賈德認為，世界衛生組織應該要立即查明製造並散播病毒的實驗室，以及助長生物戰的其他單位。
 
-據捷克電視台報導說，他的繼任者米洛斯·維斯特拉西爾(Milos Vystrcil)可能會敦促中國取代大使，而巴比斯將支持這一需求。捷克電視台引述巴比斯的話說：“此人非常奇葩，他所寫的東西絕對不能接受，我們必須拒絕。”
+阿賀馬迪內賈德的推文引起網友熱烈討論，許多人將矛頭指向中國，但阿賀馬迪內賈德文中並未明確寫出是針對哪些國家。
 
-包括總統米洛斯·澤曼（Milos Zeman）在內的四名捷克高級官員最近幾年都在推進與中共國的密切聯繫，他們將於週三開會，就外交政策進行定期辯論，預計他們將會討論這個問題。
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3095702)
 
-但在2018年12月，兩國的雙邊關係出現了問題，當時，捷克網絡安全監督機構警告，使用中國電信設備製造商華為和中興通訊提供的網絡技術存在風險。
-
-去年，布拉格的市政當局表示支持西藏，並要求改變與北京的城際夥伴關係協議，以提及中國對台灣政策，使得兩國間的外交關係開始降溫。中國退出了該協議，布拉格卻與台灣首府台北建立了夥伴關係。中國認為台灣是其領土的一部分，並推動“一國兩制”的模式，台灣對此予以拒絕。而巴比斯政府一再表示堅持一個中國政策。
-
-台灣外交部在星期二的一份聲明中說，無論中國如何威脅，台灣將繼續加深與捷克共和國的交流與合作。
-
-[原文鏈接](https://www.reuters.com/article/us-china-czech-idUSKBN20W1EH)
-
-翻譯報導：半空宇宙的屋
+GM15
 
 0
