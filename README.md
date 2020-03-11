@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 改口急转弯！英国强森政府拒绝「高风险5G厂商」 将重新审视华为<br>https://gnews.org/zh-hans/137968/
+
+[https://www.guo.media/posts/274523](https://www.guo.media/posts/274523) `2020-03-11T06:10:13`
+##
+
+**milesguo** 殷鉴不远，在夏后之世——评习近平主席与孙春兰造访武汉疫区<br>https://gnews.org/zh-hans/137833/
+
+[https://www.guo.media/posts/274522](https://www.guo.media/posts/274522) `2020-03-11T06:10:15`
+##
+
+**milesguo** 疯国战疫！先狂后衰！<br>https://gnews.org/zh-hans/136921/
+
+[https://www.guo.media/posts/274520](https://www.guo.media/posts/274520) `2020-03-11T06:10:16`
+##
+
+**milesguo** 全中国3千万大学生同上爱国洗脑教育【思政大课】听党话、党让干啥就干啥！<br>https://gnews.org/zh-hans/137042/
+
+[https://www.guo.media/posts/274519](https://www.guo.media/posts/274519) `2020-03-11T06:10:17`
+##
+
+**milesguo** 2020年2月8日灭共者说中文字幕合集<br>https://gnews.org/zh-hans/137319/
+
+[https://www.guo.media/posts/274518](https://www.guo.media/posts/274518) `2020-03-11T06:10:18`
+##
+
 **milesguo** Wuhan Coronavirus Pandemic Episode 46, March 10, 2020<br>https://gnews.org/138097/
 
 [https://www.guo.media/posts/274502](https://www.guo.media/posts/274502) `2020-03-11T03:25:27`
