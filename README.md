@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Special Ep 38- War Room: Pandemic, Wuhan Coronavirus<br>https://gnews.org/137902/
+
+[https://www.guo.media/posts/274496](https://www.guo.media/posts/274496) `2020-03-11T01:40:14`
+##
+
 **milesguo** <br>Italian Health Official: coronavirus ‘worse than a bomb’ on Italy<br>https://gnews.org/137889/
 
 [https://www.guo.media/posts/274487](https://www.guo.media/posts/274487) `2020-03-11T00:10:23`
@@ -19,6 +24,11 @@
 **milesguo** Hong Kong Microbiologist and SARS expert: Hospitals I visited in China planned for propaganda<br>https://gnews.org/137669/
 
 [https://www.guo.media/posts/274486](https://www.guo.media/posts/274486) `2020-03-11T00:10:24`
+##
+
+**milesguo** 03/09/2020 Highlights of Wuhan Coronavirus Pandemic Update Ep 45<br>https://gnews.org/137380/
+
+[https://www.guo.media/posts/274485](https://www.guo.media/posts/274485) `2020-03-11T01:40:15`
 ##
 
 **milesguo** Stock market crossfire; CCP props up A-shares to avoid collapse<br>https://gnews.org/136557/
