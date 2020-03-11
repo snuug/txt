@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274528](https://www.guo.media/posts/274528) `2020-03-11T07:10:19`
 ##
 
+**milesguo** 疫情当前！为什么中国人都在抢粮食？ 而全世界都在抢卫生纸？<br>https://gnews.org/zh-hans/137343/
+
+[https://www.guo.media/posts/274527](https://www.guo.media/posts/274527) `2020-03-11T10:25:12`
+##
+
 **milesguo** 川普纾困救市！美股道琼早盘大涨 一如郭先生所言 会有几个起伏 油价大跌中共又吃闷亏 关注伊朗、俄罗斯、委内瑞拉<br>https://gnews.org/zh-hans/137991/
 
 [https://www.guo.media/posts/274526](https://www.guo.media/posts/274526) `2020-03-11T07:25:11`
