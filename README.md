@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 在家里猫起来，千万不要复工！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/138240/
+
+[https://www.guo.media/posts/274547](https://www.guo.media/posts/274547) `2020-03-11T15:40:19`
+##
+
+**milesguo** 中共对华南海鲜批发市场的反复消毒能不能彻底把第一犯罪现场消灭<br>https://gnews.org/zh-hans/137995/
+
+[https://www.guo.media/posts/274546](https://www.guo.media/posts/274546) `2020-03-11T15:40:21`
+##
+
 **milesguo** 中共对华南海鲜批发市场的反复消毒能不能彻底把第一犯罪现场消灭<br>https://gnews.org/zh-hans/137995/
 
 [https://www.guo.media/posts/274530](https://www.guo.media/posts/274530) `2020-03-11T09:40:11`
