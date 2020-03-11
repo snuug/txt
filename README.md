@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274579](https://www.guo.media/posts/274579) `2020-03-11T20:10:10`
 ##
 
+**milesguo** 3月11日：尊敬的战友们好！大约1小时左右．<br>纽约时间下午4:30左右。文贵乱聊直播，一切已经开始！
+
+[https://www.guo.media/posts/274578](https://www.guo.media/posts/274578) `2020-03-11T20:25:12`
+##
+
 **milesguo** 武汉疫情大事记 第二集<br>https://gnews.org/zh-hans/138655/
 
 [https://www.guo.media/posts/274568](https://www.guo.media/posts/274568) `2020-03-11T17:40:10`
