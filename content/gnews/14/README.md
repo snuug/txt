@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《武漢肺炎》不吐不快！病毒是人造盟友也背書? 伊朗前總統：武漢肺炎病毒是實驗室製造
-`2020-03-11 05:57 GM15` [轉載自GNews](https://gnews.org/zh-hant/138561/)
+## 日本政府提供1.6兆日元資金支援，及供應鏈的再建設支援，以應對中共病毒對日本經濟的打擊
+`2020-03-11 07:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138622/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11052413/phpRDWrkt.jpg)
-> It is clear to the world that the mutated coronavirus was produced in lab, manufactured by the warfare stock houses of biological war belonging to world powers,& that it constitutes a threat on humanity more destructive than the other weapons that target humanity.[@antonioguterres](https://twitter.com/antonioguterres?ref_src=twsrc%5Etfw) [pic.twitter.com/lLLzvdMAGo](https://t.co/lLLzvdMAGo)
-> — Mahmoud Ahmadinejad (@Ahmadinejad1956) [March 9, 2020](https://twitter.com/Ahmadinejad1956/status/1237072414841937920?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11074502/71F6054E-2D5D-451A-8718-D1030F811096.jpeg)
+由於中共肺炎感染擴大，日本政府決定擴大對於企業的資金支援。除了設立中小企業實質無利息，無擔保的超過5千億日元的新制度以外，同時幫助大企業的供應鏈的再建設。對於長期經濟停滯的擔心，預先打出經濟政策防止金融信用緊縮，提供了總額1.6兆日元規模的金融支援。
 
-武漢肺炎疫情延燒不斷，且不斷有看法認為，病毒是來自於實驗室人為製造。伊朗前總統阿賀馬迪內賈德（Mahmoud Ahmadinejad）10日在推特發文直言「全世界都清楚新冠病毒是在實驗室製造的」。
+政府在3月10日對於中共病毒進行了第二輪緊急政策的追加。 2月13日的第一輪政策主要是圍繞觀光業等中小企業的五千億的緊急貸款和保證額度。由於影響的擴大，本次追加了大約1.1兆日元的金融支援。第二輪政策主要是包括個體經營的中小、小規模事業者的資金支持的強化。
 
-阿賀馬迪內賈德在推特撰文指出，全世界都清楚新冠病毒是在實驗室製造的，被準備用於生物戰，他說這對人類的威脅超過了其他武器。阿賀馬迪內賈德認為，世界衛生組織應該要立即查明製造並散播病毒的實驗室，以及助長生物戰的其他單位。
+根據政府的指導意見，由於中共病毒影響造成營業額5%減少等影響的中小企業，無論信用狀況，一律可以拿到今後三年間利率0左右的融資。上限目前設定在3億日元。營業額1-2成減少的個體經營和中小規模事業者，更有利息補給制度。
 
-阿賀馬迪內賈德的推文引起網友熱烈討論，許多人將矛頭指向中國，但阿賀馬迪內賈德文中並未明確寫出是針對哪些國家。
+同時也強化了對大企業的支援。活用自從2008年雷曼危機以來創建的危機對應金融制度，日本政策投資銀行等，大約設置了2000億日元的支援額度，進行海外的供應鏈回歸國內等供應鏈的再構建支援。國際協力銀行也對海外項目進行了大約2500億日元的資金支援。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3095702)
+除此之外，為了減輕育兒負擔，國家出資給予臨時休學的餐費返還。滿足一定條件的自由職業者和個人營業的父母一律每日4100日元補助。對象為同企業或者個人有業務委託契約的人。
 
-GM15
+政府緊急放出金融支援政策是由於中小企業的關於資金流動變得越來越不安。日本政策金融公庫等政府的串口已經有1萬9千件諮詢，地方銀行和信用金庫也有大量諮詢。
+
+由於中共肺炎遭受損害，無論地域、業種和企業規模，基本都是中小企業。商業活動和進貨停止，也出現了陷入倒閉危機的企業。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11073357/6605049C-798F-4F41-8C3F-0D75617D68B7.jpeg)
+ **附表1：第一輪政策** •中共肺炎緊急對策•提高口罩產能到每月6億枚•簡易病毒檢測裝置、抗病毒藥和疫苗開發盡快啟動•承擔外來病毒檢測防護的檢疫所體制技能的強化• 禁止入國的對像國家區域和客船的指定• 旅遊業的5000億日元資金支援貸款、保證額• 僱傭補助金的條件降低![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11073533/A90C082A-D28F-48C7-88BA-017E9BAF833F.jpeg) **附表2:第二輪政策** •防止擴大感染和醫療體制國家購買2000萬口罩分發保育園等緊急時刻超過5000張病床•休校對策僱傭保護人的企業發放救助金國家出資展開中午前學童保育等•企業活動、僱傭對策對中小企業實質無利息無擔保的資金支援持續僱傭的企業發放補助金的擴充
+[原文鏈接](https://www.nikkei.com/article/DGXMZO56574510Z00C20A3MM8000/?n_cid=SPTMG002)
+
+翻譯報導：匿名
 
 0

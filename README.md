@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 3月10日 美国政要推文精选<br>https://gnews.org/zh-hans/138342/
+
+[https://www.guo.media/posts/274550](https://www.guo.media/posts/274550) `2020-03-11T16:10:21`
+##
+
+**milesguo** 【武漢肺炎真相】肺炎最新消息\共產黨人工製造病毒\3月11日視頻合集<br>https://gnews.org/zh-hant/138286/
+
+[https://www.guo.media/posts/274549](https://www.guo.media/posts/274549) `2020-03-11T16:10:22`
+##
+
 **milesguo** 在家里猫起来，千万不要复工！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/138240/
 
 [https://www.guo.media/posts/274547](https://www.guo.media/posts/274547) `2020-03-11T15:40:19`

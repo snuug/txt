@@ -1,24 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共冠狀病毒正在摧毀港滬酒店業
-`2020-03-11 08:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138660/)
+## 香港表情包系列：亂港四人幫，禽獸不如孫力軍，snow返送中表情包
+`2020-03-11 10:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/138772/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11084318/1-109.jpg)
-中共冠狀病毒已經使港滬兩地酒店定量下滑。酒店行業數據網站OTA Insight數據顯示，滬港兩地酒店業已基本“歇菜”。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095118/D1CE3093-558F-4494-A5E1-D1A08B669C11.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095133/33EDEC25-8537-4D97-9CFF-1A1D3202EA68.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095155/F9AA158B-364B-46D5-B7BB-C40DD8FC46A3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095228/A509D8E6-E88A-4027-B508-DB50249A653D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095244/CA434F7E-6064-4EAA-A3B9-19C8E9C983B6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095252/8EF2A0B5-895B-4B24-AE93-40F52C632ABD.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095306/937BEDFC-52CE-4E96-9CB5-B1F37869E063.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095350/F6C77CFA-67FA-47A1-8970-B1F8553C0280.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095401/81190D88-D5B6-4727-BC0A-B8C976215533.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095405/25711719-2187-43DB-80D3-942C4F80080A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095420/01A43B8D-3163-47BE-8981-DF9B5DCC0C18.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095434/775A594D-D5FB-4A9E-ABF9-EC344DE6BDD9.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095454/FF6003F1-4F4D-47AA-8B4A-8572B7953536.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095518/27E92992-75C1-40FE-92D3-010398C89FFE.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095542/7C522879-1256-4FEF-AF36-15557BC2DFB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095605/D563AA58-80B2-4CAB-8591-F76CB915AE20.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095630/80C7C20A-00D8-48C4-998F-3DEFE5B67A88.jpeg)
 
-原定於4月3日舉行的香港七人欖球賽是世界七人欖球賽系列比賽的熱門賽。可是由於擔心存在病毒超級攜帶者，主辦方已於2月17日左右決定將該賽事將推遲舉行。在1月6日，香港酒店的定量比世界平均水平高40％。球賽被取消後，酒店定量急劇下滑。自一月以來，香港酒店平均需求下降了50％。
-
-上海的狀況稍好，因為它的市場更大。但是它同樣不能抵抗中共冠狀病毒所帶來的衝擊。在預定舉辦的上海時裝周延期後，這座城市也出現了類似的數據下滑。上海時裝周原定於在3月26日舉行。在2月17日，主辦方宣布推遲該活動。根據OTA Insight的數據，自1月份以來，上海酒店需求的下滑較小，僅下降了10％左右。但是，上海時裝週並不是熱門活動。通常它大約能帶來10％左右的酒店增量，因此隨著活動的取消，需求也就消失了。
-
-OTA Insight現在正在為紐約和舊金山收集類似數據。到今年年底，中共冠狀病毒將使全球酒店業的旅館預訂量減少數千萬，從而減少該領域相關的股票和私募股權收入，特別是酒店房地產投資信託基金。隨著在奧斯汀的SXSW電影節，印第安納維爾斯的巴黎銀行網球公開賽（BNP Paribas Open）以及波士頓聖帕特里克節遊行等活動的取消，美國酒店的取消人數也有所增加。同時歐洲的酒店可能也面臨同樣的問題，尤其是意大利本週開始全境封鎖。
-
-“當人們不想參加擁擠的活動時，恐懼會引起更多恐懼。”位於澤西城的私人財富管理公司Caliber Financial Partners的創始人兼總裁Patrick Healey說。在中共冠狀病毒到來之前，我們都認為經濟狀況良好。現在疫情可能會迫使經濟陷入衰退，而貨幣政策也無濟於事。 ” “我的擔心會一直持續到看到歐洲的病例減少。 ”
-
-意大利週二超過了10,000例確診病例。其中，724人已康復，另有631人死亡。
-
-[原文鏈接](https://www.forbes.com/sites/kenrapoza/2020/03/10/see-how-shanghai-hong-kong-hotel-traffic-has-collapsed-due-to-coronavirus/#6a9cfb381d23)
-
-翻譯報導：Y
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095653/9A53F6FC-B620-430A-810E-6140E0B84E5B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095706/A6BF7401-6D81-4D10-A891-920660CFF76B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095719/1B2B3304-3BB0-4FA1-B1E9-B889F6A8615E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095733/B99F85A6-B49C-4818-B71F-C49AE3B31039.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095749/26E1787F-BDF1-4D2B-AB8D-2D6486B64774.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095817/46357C8A-E47B-4E62-AFB5-372B3060775E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095839/0788FA32-9C42-4699-B364-3D3E056FF1D3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/11095906/A3FC8545-BD9D-4B0A-90E8-F39599B06D74.jpeg)
+作者：【snow表情包組】【文熙繪製】
 
 0
