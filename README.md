@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274676](https://www.guo.media/posts/274676) `2020-03-12T16:25:12`
 ##
 
+**milesguo** 【武漢肺炎真相】共产党制造的生化武器\3月12日视频合集<br>https://gnews.org/zh-hans/139364/
+
+[https://www.guo.media/posts/274675](https://www.guo.media/posts/274675) `2020-03-12T17:10:23`
+##
+
 **milesguo** 3月12号：尊敬的战友们好！在40分钟后，http://livestream.com/accounts/27235681．纽约时间：3月10号上午9:30文与战略友一起吃早，午饭．和战友们继续乱聊……一切已经开始！
 
 [https://www.guo.media/posts/274660](https://www.guo.media/posts/274660) `2020-03-12T12:55:11`
