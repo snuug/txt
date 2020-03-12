@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274590](https://www.guo.media/posts/274590) `2020-03-11T23:10:13`
 ##
 
+**milesguo** Warroom 26 史蒂夫·班农：控制中共冠状病毒疫情的两大措施究竟是什么<br>https://gnews.org/zh-hans/138891/
+
+[https://www.guo.media/posts/274589](https://www.guo.media/posts/274589) `2020-03-12T00:10:21`
+##
+
 **milesguo** 荒唐！疫情下全国大学生统一学习“党课”<br>https://gnews.org/zh-hans/138672/
 
 [https://www.guo.media/posts/274588](https://www.guo.media/posts/274588) `2020-03-11T23:10:14`
