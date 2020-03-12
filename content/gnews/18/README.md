@@ -1,18 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本化工廠商涉嫌非法向中國出口民轉軍設備，被警方逮捕
-`2020-03-12 01:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/139359/)
+## 【武漢肺炎真相】共產黨製造的生化武器\3月12日視頻合集
+`2020-03-12 01:50 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/139370/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/12011557/1-114.jpg)
-2016年6月2日，橫濱市的化學設備廠商“大川原化工機”，未經經濟產業省許可，將一台有可能用於製造生化武器的“噴霧乾燥裝置”，以1800萬日元的價格出口給了德國一家綜合化學公司在中國上海的分公司，並向海關提交了虛假資料，謊稱該產品不屬於管制對象而涉嫌違反《外匯法》，並且該公司還涉嫌向韓國非法出口同類產品，正在被調查。
+作者：滅共日記
 
-該裝置能將液體變成霧狀後乾燥，製成粉末，常用於製藥、製造飛機發動機等，但是有可能被轉用於軍事目的，製造生化武器等，2013年被列為出口管制對象。
+治愈二次復發、民眾被困極限發瘋、暴力執法、垃圾車運輸菜肉、街頭流浪的湖北人、疫情趁亂強拆、
 
-3月11日，日本警方搜查該公司總部，調查出口的經過和最終用途，並逮捕了包括社長在內的3人。
 
-[原文鏈接](https://www3.nhk.or.jp/news/html/20200311/k10012325701000.html)
 
-翻譯報導：渠和子
+请大家帮忙转发，让全世界知道，武汉肺炎真相，拯救更多人类。
+ 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
+ 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
+ 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
+ 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
+ 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
+ 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
+ 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
+ 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
+ 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
+ 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
+ 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
+ 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+
+
 
 0
