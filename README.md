@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274624](https://www.guo.media/posts/274624) `2020-03-12T05:25:22`
 ##
 
+**milesguo** 河南郑州一公职人员疑“带毒”出境，飞经法、意、阿三国<br>https://gnews.org/zh-hans/139177/
+
+[https://www.guo.media/posts/274623](https://www.guo.media/posts/274623) `2020-03-12T05:55:18`
+##
+
 **milesguo** <br>“零”确诊背后的『疫城人尸丸』与中共的末日算盘<br>https://gnews.org/zh-hans/139084/
 
 [https://www.guo.media/posts/274622](https://www.guo.media/posts/274622) `2020-03-12T05:25:23`
