@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 储存好物品，千万别上班！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/139416/
+
+[https://www.guo.media/posts/274677](https://www.guo.media/posts/274677) `2020-03-12T18:10:13`
+##
+
 **milesguo** 武汉疫情发哨人艾芬控诉：为避免恐慌 领导谈话封口！不允许穿防护服！<br>https://gnews.org/zh-hans/139376/
 
 [https://www.guo.media/posts/274676](https://www.guo.media/posts/274676) `2020-03-12T16:25:12`
