@@ -11,6 +11,21 @@
 
 
 
+**milesguo** Conflicting instructions from local government on work resumption<br>https://gnews.org/138635/
+
+[https://www.guo.media/posts/274618](https://www.guo.media/posts/274618) `2020-03-12T04:10:21`
+##
+
+**milesguo** 15-year-old Slapped by HK Police While Detained: Caused Hearing Loss<br>https://gnews.org/137272/
+
+[https://www.guo.media/posts/274617](https://www.guo.media/posts/274617) `2020-03-12T04:10:22`
+##
+
+**milesguo** Don’t let the story of the original COVID-19 whistleblower die<br>https://gnews.org/138387/
+
+[https://www.guo.media/posts/274615](https://www.guo.media/posts/274615) `2020-03-12T04:10:23`
+##
+
 **milesguo** 3月11日：晚上9点．战友们🐎上去看川普总统的发布会吧👉😓😓．https://www.youtube.com/watch?v=dcsZjfs2cB4．一切已经开始！
 
 [https://www.guo.media/posts/274598](https://www.guo.media/posts/274598) `2020-03-12T01:55:22`
