@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 突发新闻：川普政府这周五开始对欧洲国家实施旅行限制<br>https://gnews.org/zh-hans/139148/
+
+[https://www.guo.media/posts/274621](https://www.guo.media/posts/274621) `2020-03-12T04:55:20`
+##
+
+**milesguo** 40万亿人民币经济刺激计划？中共国又向委内瑞拉迈进了一大步<br>https://gnews.org/zh-hans/139077/
+
+[https://www.guo.media/posts/274620](https://www.guo.media/posts/274620) `2020-03-12T04:55:22`
+##
+
 **milesguo** Conflicting instructions from local government on work resumption<br>https://gnews.org/138635/
 
 [https://www.guo.media/posts/274618](https://www.guo.media/posts/274618) `2020-03-12T04:10:21`
