@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨製造的生化武器\3月12日視頻合集
-`2020-03-12 01:50 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/139370/)
+## 疫情惡化：意大利當局宣布除藥店食品店外其餘商舖全部關張
+`2020-03-12 02:51 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/139414/)
 
-作者：滅共日記
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/12023330/Picture-1.png)
 
-治愈二次復發、民眾被困極限發瘋、暴力執法、垃圾車運輸菜肉、街頭流浪的湖北人、疫情趁亂強拆、
+中共國以外疫情最嚴重的意大利，死亡人數在過去的24小時內徒增31%達到了827人，而ICU被告知停止對老年人的治療而讓位給中共冠狀病毒患者。
 
+鑑於疫情急劇惡化，意大利當局宣布，除藥品和食品店外，其他所有商店統統關門，來防止疫情的進一步擴散。
 
+而意大利總理朱塞佩·孔戴（Giuseppe Conte）則宣布，意大利6千萬全體國民投入戰鬥，一齊對抗這場幾代人所面臨的最大危機- 中共冠狀病毒。同時，總理朱塞佩還感謝意大利人民為抗疫做出的犧牲。
 
-请大家帮忙转发，让全世界知道，武汉肺炎真相，拯救更多人类。
- 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
- 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
- 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+自從政府頒布了旅行和公共聚會的禁令以來，意大利人們的日常生活受到了影響– 街道清空了，教堂學校關閉了，人們的戶外生活沒有了。
 
+即使如此，中共冠狀病毒的病例在過去的24小時裡還是急劇攀升，感染人數早已過萬，死亡人數近千。醫院里人滿為患，一床難求。為解決醫院床位供不應求的矛盾，有頂尖醫生建議，改掉先來先得的一貫做法，而讓那些最有機會活下來的人優先得到床位。
 
+隨著大批商舖關張抗疫，人們的日常生活將會受到更深更廣泛的影響，也進一步加劇了對意大利經濟的重創。
+
+[**原文鏈接**](https://www.dailymail.co.uk/news/article-8101135/Intensive-care-units-stop-treating-elderly-coronavirus-outbreak-worsens.html)
+
+**翻譯報導：** Sunny
 
 0
