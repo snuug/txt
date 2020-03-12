@@ -11,6 +11,11 @@
 
 
 
+**milesguo** CCP Official: Coronavirus was confirmed in December 2019<br>https://gnews.org/138269/
+
+[https://www.guo.media/posts/274597](https://www.guo.media/posts/274597) `2020-03-12T01:40:14`
+##
+
 **milesguo** 平民主义、爆料革命与中共追求的全球化的角力已见分晓<br>https://gnews.org/zh-hans/138975/
 
 [https://www.guo.media/posts/274591](https://www.guo.media/posts/274591) `2020-03-11T23:10:11`
