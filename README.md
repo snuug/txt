@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月11日：晚上9点．战友们🐎上去看川普总统的发布会吧👉😓😓．https://www.youtube.com/watch?v=dcsZjfs2cB4．一切已经开始！
+
+[https://www.guo.media/posts/274598](https://www.guo.media/posts/274598) `2020-03-12T01:55:22`
+##
+
 **milesguo** CCP Official: Coronavirus was confirmed in December 2019<br>https://gnews.org/138269/
 
 [https://www.guo.media/posts/274597](https://www.guo.media/posts/274597) `2020-03-12T01:40:14`
