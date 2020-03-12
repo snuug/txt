@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 2020年3月11日郭文贵先生重磅直播<br>https://gnews.org/zh-hans/139219/
+
+[https://www.guo.media/posts/274625](https://www.guo.media/posts/274625) `2020-03-12T05:25:20`
+##
+
+**milesguo** 武汉疫情发哨子的人——艾芬<br>https://gnews.org/zh-hans/139162/
+
+[https://www.guo.media/posts/274624](https://www.guo.media/posts/274624) `2020-03-12T05:25:22`
+##
+
+**milesguo** <br>“零”确诊背后的『疫城人尸丸』与中共的末日算盘<br>https://gnews.org/zh-hans/139084/
+
+[https://www.guo.media/posts/274622](https://www.guo.media/posts/274622) `2020-03-12T05:25:23`
+##
+
 **milesguo** 突发新闻：川普政府这周五开始对欧洲国家实施旅行限制<br>https://gnews.org/zh-hans/139148/
 
 [https://www.guo.media/posts/274621](https://www.guo.media/posts/274621) `2020-03-12T04:55:20`
