@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月11日 美国政要推文精选<br>https://gnews.org/zh-hans/139329/
+
+[https://www.guo.media/posts/274650](https://www.guo.media/posts/274650) `2020-03-12T08:55:27`
+##
+
 **milesguo** 2020年3月10日武汉冠状病毒大流行第46集<br>https://gnews.org/zh-hans/139243/
 
 [https://www.guo.media/posts/274626](https://www.guo.media/posts/274626) `2020-03-12T07:40:23`
