@@ -56,6 +56,11 @@
 [https://www.guo.media/posts/274615](https://www.guo.media/posts/274615) `2020-03-12T04:10:23`
 ##
 
+**milesguo** TNT Daily : Mr. Wu was asked to pay 9,800 yuan after 14 days of isolation and observation<br>https://gnews.org/138424/
+
+[https://www.guo.media/posts/274613](https://www.guo.media/posts/274613) `2020-03-12T06:25:43`
+##
+
 **milesguo** 3月11日：晚上9点．战友们🐎上去看川普总统的发布会吧👉😓😓．https://www.youtube.com/watch?v=dcsZjfs2cB4．一切已经开始！
 
 [https://www.guo.media/posts/274598](https://www.guo.media/posts/274598) `2020-03-12T01:55:22`
