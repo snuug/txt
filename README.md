@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/274782](https://www.guo.media/posts/274782) `2020-03-13T18:55:13`
 ##
 
+**milesguo** 德国中共病毒疫情03月13日<br>https://gnews.org/zh-hans/140210/
+
+[https://www.guo.media/posts/274781](https://www.guo.media/posts/274781) `2020-03-13T19:40:12`
+##
+
 **milesguo** 中共外交是个筐，流氓无赖往里装！<br>https://gnews.org/zh-hans/140004/
 
 [https://www.guo.media/posts/274780](https://www.guo.media/posts/274780) `2020-03-13T19:10:17`
