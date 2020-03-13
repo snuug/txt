@@ -11,6 +11,11 @@
 
 
 
+**milesguo** “病毒”来自德国 ——兼谈德语中的“感恩”<br>https://gnews.org/zh-hans/140213/
+
+[https://www.guo.media/posts/274782](https://www.guo.media/posts/274782) `2020-03-13T18:55:13`
+##
+
 **milesguo** 虽千万人吾往矣!——评吹哨人李文亮医生和发哨人艾芬医生<br>https://gnews.org/zh-hans/139854/
 
 [https://www.guo.media/posts/274761](https://www.guo.media/posts/274761) `2020-03-13T15:40:21`
