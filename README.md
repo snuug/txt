@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 川普总统发表全国致辞<br>https://gnews.org/zh-hans/139532/
+
+[https://www.guo.media/posts/274735](https://www.guo.media/posts/274735) `2020-03-13T06:55:10`
+##
+
+**milesguo** 小巴猪：沙特和俄罗斯的石油价格战，主打欧洲<br>https://gnews.org/zh-hans/139722/
+
+[https://www.guo.media/posts/274732](https://www.guo.media/posts/274732) `2020-03-13T06:55:12`
+##
+
 **milesguo** QE4来了？美联储出手救市！道指暴力拉升逾千点，黄金反弹近40美元<br>https://gnews.org/zh-hans/139682/
 
 [https://www.guo.media/posts/274730](https://www.guo.media/posts/274730) `2020-03-13T06:40:13`
