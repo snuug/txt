@@ -1,28 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球化新趨勢：武漢病毒疫情造成的破產可能多於死亡
-`2020-03-13 09:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/140156/)
+## 意大利醫生與朋友的對話揭露疫情
+`2020-03-13 10:23 GM09` [轉載自GNews](https://gnews.org/zh-hant/140203/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13094352/eatdirt.jpg)
-武漢病毒疫情對經濟造成的危害可能比對公眾健康的危害更大。
+作者：Ying & Little
 
-由於武漢病毒疫情不斷擴大，受疫情影響，工廠商舖關門，學校停課，公眾活動被取消，出行被限制，雇主非常可能被迫裁員， 甚至企業可能倒閉。失業會造成個人的財務出現窘境：坐吃山空，繼而無錢付房貸車貸，無錢應付日常開支。武漢病毒引起的股市和市場的動盪，已經顯現出疫情對經濟影響的巨大威力。
+近日在推特上，疑似流出一段與意大利醫生之間的對話：
 
-武漢病毒已經造成世界上成千上萬的人死亡。而在經濟上，則是很多國家經濟衰退，股市崩盤，原油價格暴跌，數百萬人受到影響。
+朋友問意大利醫生他所在的醫院新冠狀病毒的感染情況如何。
 
-與抗擊疫情保護民眾健康同樣重要的是，對經濟注射疫苗，使得經濟能夠抵禦即將來臨的更大的恐慌。人們的痛苦可能以疾病和死亡的方式呈現，但是人們也可能因為沒有足夠收入而無法支付賬單房貸而失去住所，使生活陷入困境。
+醫生回答情況非常悲慘，幾百個人喪失了生命。醫生還表示，他們已經停止救助60歲以上的病人，他們只能等死。百分之三十的患者年齡在30到60之間。醫院呼吸機不夠。
 
-隨著供應鏈的枯竭，特別是中小企業紛紛陷入困境，正在苦苦掙扎。中共國是全球最大的生產工廠和出口國，受疫情影響訂單減少，工廠的開工率出現歷史性低點。加上已經開打的美中貿易戰，更使得經濟狀況雪上加霜，從而會影響到全球經濟狀況。每個人也會因此難以獨善其身。
+在米蘭，有600個患者接受氣管插管治療。醫生不得不選擇救治一部分患者，這意味著其他患者得不到救治。一個醫院一晚就要接待50個需要插管治療的患者。插管治療是有效的，但是醫生無法給300萬人進行插管。
 
-目前，各國政府都在嚴重關注武漢病毒造成的公眾健康危機，而沒有對病毒可能造成的經濟危機引起足夠重視。當下的意大利全國都處於封鎖狀態，經濟已經陷入衰退。很難想像意大利不會陷入經濟危機，也很難相信不會影響到歐盟和它最大的貿易夥伴美國。除非各國政府在關注民眾健康的同時，關注經濟並採取強有力措施和積極行動予以挽救，否則在武漢病毒疫情的影響下，全球性的經濟大衰退已無法避免。
+醫院的同事也有感染的。病毒檢驗試劑和手套對於需要救治50個病人的醫生來說，不夠用。醫生表示醫院已經沒有口罩了，試劑只剩30個。
 
-美國川普政府新近推出了削減工資稅的措施，旨在幫助雇主和僱員順利度過武漢病毒疫情造成的對經濟財務的影響。英國政府也宣布了一項武漢病毒疫情預算方案，意在幫助民眾抗疫和維持經濟。其他國家也應該跟進美國和英國，採取積極措施，保護企業的未來，開創新的世界經濟秩序，並在其中尋找機會發展和受益。
+朋友問醫生他本人是否感染。醫生表示他有很大可能檢測呈陽性。他的同事中，很多人都咳嗽。
 
-如果否認武漢病毒疫情對全球經濟的影響，忽略疫情對經濟帶來的變化，這種否定和忽視的態度，可能造成比疫情本身更大更壞的影響。
+這場全球流行病的蔓延無法延緩了。現在太晚了。在意大利，商場、學校、酒吧、電影院、戲院都關了。手術室都改成了重症監護室。醫生們已經停止了手術。醫生每天都在戰爭中。他們住在醫院試圖盡力阻止這場災難，但是感染人數還是持續增加。
 
-[原文鏈接](https://www.independent.co.uk/voices/coronavirus-deaths-trump-stock-market-pandemic-economy-bankrupt-italy-a9394891.html)
+讓人擔心的事，該醫生說他們不被允許講出醫院的真相，所以他/她要求匿名公開這段對話。同時他/她表示，現在大家看到的（意大利官方公佈）都是謊言，實際情況糟糕更多，甚至他/她認為德國的死亡率也在撒謊。
 
-翻譯報導：Sunny
+醫生最後表示他們已被政府召集。醫生堅信他們將盡一切努力製止這場災難。
 
+編者按：
+
+1，武漢應該比這糟糕。
+
+2，附郭先生談世界準備好了沒？
+
+> [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw): [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw) is finished. Same as France, Russia, Italy, Germany, Greece, Spain, Belgium, … 
+> Don't be ignorant of [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw). Be prepared. Stay safe. [pic.twitter.com/29umdNt8Gw](https://t.co/29umdNt8Gw)
+> — Voice of Guo Media (@VOG\_2020) [March 13, 2020](https://twitter.com/VOG_2020/status/1238459591987351553?ref_src=twsrc%5Etfw)
+
+## 來源： 
+
+> Devastating news
+> 
+> Conversation between my friend and Italian doctor
+> 
+> It’s war. Can’t even try to save them all. No one over 60 even gets full care
+> 
+> Every doctor likely sick, everyone coughs. No time to test them
+> 
+> No other critical care. Only this. So many dead
+> 
+> 30% are ages 30-60 [pic.twitter.com/vA1Z2PMflT](https://t.co/vA1Z2PMflT)
+> — Sindre Reino Trosterud (@STrosterud) [March 12, 2020](https://twitter.com/STrosterud/status/1238147269465116672?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101722/ES7IXcgXgAMNdo9.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101840/ES7IXcjXgAAWvz8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101849/ES7IXcmWoAE-GsT.jpeg)
 0
