@@ -11,6 +11,21 @@
 
 
 
+**milesguo** QE4来了？美联储出手救市！道指暴力拉升逾千点，黄金反弹近40美元<br>https://gnews.org/zh-hans/139682/
+
+[https://www.guo.media/posts/274730](https://www.guo.media/posts/274730) `2020-03-13T06:40:13`
+##
+
+**milesguo** 2020年3月7日灭共者说中文字幕合集（下）<br>https://gnews.org/zh-hans/139598/
+
+[https://www.guo.media/posts/274729](https://www.guo.media/posts/274729) `2020-03-13T06:40:14`
+##
+
+**milesguo** 广播：2020/3/11 郭文贵先生直播 未来三年五年活着是最幸福的事情<br>https://gnews.org/zh-hans/139533/
+
+[https://www.guo.media/posts/274728](https://www.guo.media/posts/274728) `2020-03-13T06:40:15`
+##
+
 **milesguo** Wuhan Coronavirus Pandemic Episode 48, March 12, 2020<br>https://gnews.org/139832/
 
 [https://www.guo.media/posts/274715](https://www.guo.media/posts/274715) `2020-03-13T02:55:18`
