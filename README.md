@@ -11,9 +11,34 @@
 
 
 
+**milesguo** 川普计划在今天下午宣布国家紧急状态<br>https://gnews.org/zh-hans/140323/
+
+[https://www.guo.media/posts/274785](https://www.guo.media/posts/274785) `2020-03-13T19:10:13`
+##
+
+**milesguo** 今天在华尔街爆仓的基金经理连“初中”都没有毕业<br>https://gnews.org/zh-hans/140282/
+
+[https://www.guo.media/posts/274783](https://www.guo.media/posts/274783) `2020-03-13T19:10:15`
+##
+
 **milesguo** “病毒”来自德国 ——兼谈德语中的“感恩”<br>https://gnews.org/zh-hans/140213/
 
 [https://www.guo.media/posts/274782](https://www.guo.media/posts/274782) `2020-03-13T18:55:13`
+##
+
+**milesguo** 中共外交是个筐，流氓无赖往里装！<br>https://gnews.org/zh-hans/140004/
+
+[https://www.guo.media/posts/274780](https://www.guo.media/posts/274780) `2020-03-13T19:10:17`
+##
+
+**milesguo** 意大利医生与朋友的对话揭露疫情<br>https://gnews.org/zh-hans/140170/
+
+[https://www.guo.media/posts/274779](https://www.guo.media/posts/274779) `2020-03-13T19:10:18`
+##
+
+**milesguo** 疫情使全世界更加保守，中国制造业中心地位将彻底失去<br>https://gnews.org/zh-hans/140175/
+
+[https://www.guo.media/posts/274777](https://www.guo.media/posts/274777) `2020-03-13T19:10:19`
 ##
 
 **milesguo** 虽千万人吾往矣!——评吹哨人李文亮医生和发哨人艾芬医生<br>https://gnews.org/zh-hans/139854/
