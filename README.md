@@ -11,14 +11,44 @@
 
 
 
+**milesguo** 武汉新冠肺炎疫情爆发检验新时代中俄全面战略协作伙伴关系<br>https://gnews.org/zh-hans/131995/
+
+[https://www.guo.media/posts/274740](https://www.guo.media/posts/274740) `2020-03-13T07:25:13`
+##
+
+**milesguo** 华尔街已经不止一次助纣为虐了！<br>https://gnews.org/zh-hans/139803/
+
+[https://www.guo.media/posts/274738](https://www.guo.media/posts/274738) `2020-03-13T07:25:15`
+##
+
+**milesguo** 沙特原油降价增产是川普灭共大棋局最重要的一步？<br>https://gnews.org/zh-hans/139789/
+
+[https://www.guo.media/posts/274737](https://www.guo.media/posts/274737) `2020-03-13T07:25:16`
+##
+
+**milesguo** 垃圾车装运“爱心肉”，具足中共特色的面子工程<br>https://gnews.org/zh-hans/139770/
+
+[https://www.guo.media/posts/274736](https://www.guo.media/posts/274736) `2020-03-13T07:25:18`
+##
+
 **milesguo** 川普总统发表全国致辞<br>https://gnews.org/zh-hans/139532/
 
 [https://www.guo.media/posts/274735](https://www.guo.media/posts/274735) `2020-03-13T06:55:10`
 ##
 
+**milesguo** 美国参议员卢比奥提出新的的议案 – 制止维吾尔族强迫劳工法案<br>https://gnews.org/zh-hans/139762/
+
+[https://www.guo.media/posts/274734](https://www.guo.media/posts/274734) `2020-03-13T07:25:19`
+##
+
 **milesguo** 小巴猪：沙特和俄罗斯的石油价格战，主打欧洲<br>https://gnews.org/zh-hans/139722/
 
 [https://www.guo.media/posts/274732](https://www.guo.media/posts/274732) `2020-03-13T06:55:12`
+##
+
+**milesguo** 用垃圾车运送猪肉，武汉市民站出来了！阻止百姓得到廉价菜，孝感市民站出来了<br>https://gnews.org/zh-hans/139723/
+
+[https://www.guo.media/posts/274731](https://www.guo.media/posts/274731) `2020-03-13T07:25:21`
 ##
 
 **milesguo** QE4来了？美联储出手救市！道指暴力拉升逾千点，黄金反弹近40美元<br>https://gnews.org/zh-hans/139682/
