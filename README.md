@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Wuhan Coronavirus Pandemic Episode 48, March 12, 2020<br>https://gnews.org/139832/
+
+[https://www.guo.media/posts/274715](https://www.guo.media/posts/274715) `2020-03-13T02:55:18`
+##
+
 **milesguo** Remarks by President Trump in Address to the Nation<br>https://gnews.org/139582/
 
 [https://www.guo.media/posts/274714](https://www.guo.media/posts/274714) `2020-03-13T02:25:19`
@@ -19,6 +24,11 @@
 **milesguo** Trump met with Brazilian president’s press secretary who tested positive for coronavirus<br>https://gnews.org/139706/
 
 [https://www.guo.media/posts/274712](https://www.guo.media/posts/274712) `2020-03-13T02:25:21`
+##
+
+**milesguo** Police Officers’ Unreasonable Stop-and-Search & Questionable Handling of Personal Data and Security Risks<br>https://gnews.org/139146/
+
+[https://www.guo.media/posts/274711](https://www.guo.media/posts/274711) `2020-03-13T02:55:20`
 ##
 
 **milesguo** Miles Guo: Coronavirus can infect up to 50% of the world’s population<br>https://gnews.org/139445/
