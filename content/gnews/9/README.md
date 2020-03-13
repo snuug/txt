@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】湖北孝感應城，業主自己聯繫購買新鮮又便宜的蔬菜，聯繫人被警察抓，大家圍堵要求放人！
-`2020-03-13 01:10 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/139935/)
+## 2020年國際F1一級方程式賽車澳大利亞大獎賽因中共病毒取消
+`2020-03-13 01:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/139992/)
 
-作者：滅共日記
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13013919/D007CFEC-1649-4355-A6FF-F44670B2D292.jpeg)
+由於對中共冠狀病毒的擔憂，作為當年F1賽事揭幕戰的澳大利亞大獎賽已被取消。組織者根據維多利亞州首席衛生官的最新醫療建議做出了此項決定，同時他們希望能夠在晚些時候舉辦該賽事。
 
+在午前的新聞發布會上，澳大利亞大獎賽公司董事長保羅·利特爾（Paul Little）就賽事的突然取消向車迷道歉，並表示所有已購票者都將收到全額退款。
 
+F1主席蔡斯•凱里(Chase Carey)表示，情況一直是“變化的”和“富有挑戰的”。他確實認為，賽事舉辦各方努力收集大量不同的信息，以在正確的時間做出正確的決定，他們也做到了。
 
-请大家帮忙前进，让全世界知道，武汉肺炎真相，拯救更多的人类。
-武汉肺炎真相3月12日[https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
-武汉肺炎真相3月11日[https://youtu.be/ WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
-武汉肺炎真相3月10日[https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
-武汉肺炎真相3月9日[https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
-武汉肺炎真相3月8日[https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
-武汉肺炎真相3月7日[https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
-武汉肺炎真相3月6日[https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
-武汉肺炎真相3月5日[https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
-武汉肺炎真相3月4日[https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
-武汉肺炎真相3月3日[https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
-武汉肺炎真相3月2日[https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
-武汉肺炎真相3月1日[https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+AGPC的首席執行官Andrew Westacott則表示，他們忙於處理取消賽事的善後事宜，因此尚無精力考慮將來如何重新安排該賽事。他說：“但這顯然是自然要討論的話題，但要花很多時間。”
+
+在較早的一份聲明中，組織者表示，在邁克拉倫車隊的一名成員被檢測病毒感染呈陽性之後，賽事官員與九支參賽車隊代表在周四晚上碰了頭，多數車隊認為比賽不應該繼續進行。
+
+聲明說，F1和FIA國際汽聯取消賽事的決定，得到澳大利亞大獎賽股份集團(AGPC)的全力支持。各方都考慮到了AGPC、澳大利亞賽車協會、員工及志願者對在墨爾本舉辦2020 年FIA一級方程式世界錦標賽揭幕戰所做出的巨大努力，然而得出的結論是，F1大家庭的所有成員，和更廣泛社區的安全，以及公平競爭是當務之急。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13014028/A4D34062-C072-4EB8-9BC0-AD8F6D0D6A44.jpeg)
+原定第一和第二節練習賽於週五下午舉行，排位賽在周六舉行，正賽在周日舉行。
+
+當被問及維多利亞州納稅人是否需要為該比賽買單時，Westacott先生承認，賽事的取消會帶來許多後果，包括財務上的。在隨後的一段時間，他們將與出資方通力合作，以確保採取恰當的合同措施。
+
+有車迷詢問何時可以收到退款；也有人氣憤地質疑說，是不是學校和超市也要被關閉。
+
+稍早，維多利亞州長安德魯斯 （Daniel Andrews）表示，出於公共健康的考慮，即便賽事進行，也不允許有現場觀眾。他提及，維州首席衛生官Brett Sutton已建議賽事組織者，要么沒有比賽，要么沒有觀眾。
+
+在做出取消比賽的決定之前，冠軍車手Lewis Hamilton週四曾發表評論說，他對比賽還在進行感到“驚訝”。
+
+麥克拉倫Lando Norris在社交媒體上表示，儘管極度失望和難過，他還是不能參賽，“目前最重要的是每個人的健康。” 他說，
+
+“我們一直在竭盡所能限制傳播，所以盡量少地接觸人。” “我唯一的想法就是與團隊和世界上每個人一起與之鬥爭。”
+
+州長安德魯斯先生表示，針對大型活動的其他調整，都將根據首席衛生官的建議來進行。
+
+他說：“如果我們不盡一切努力來減少感染該病毒的人數，我們將只會增加那些特別患感人群患重病的數量。”
+
+有關大獎賽的決定可能還會對一周之後開始的AFL賽季產生影響。
+
+安德魯斯先生說，已經與AFL首席執行官Gillon McLachlan進行過“非常詳細的”討論。安德魯斯說,非常沮喪，現在還不能告知下周是否會有橄欖球比賽，但是“你一定會在專家建議的指導下。”
+
+[原文鏈接](https://www.abc.net.au/news/2020-03-13/australian-formula-1-grand-prix-cancelled-over-coronavirus/12052142)
+
+翻譯報導：半空宇宙的屋
 
 0
