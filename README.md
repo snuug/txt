@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年3月12日武汉冠状病毒大流行第48集<br>https://gnews.org/zh-hans/139823/
+
+[https://www.guo.media/posts/274741](https://www.guo.media/posts/274741) `2020-03-13T09:55:14`
+##
+
 **milesguo** 武汉新冠肺炎疫情爆发检验新时代中俄全面战略协作伙伴关系<br>https://gnews.org/zh-hans/131995/
 
 [https://www.guo.media/posts/274740](https://www.guo.media/posts/274740) `2020-03-13T07:25:13`
