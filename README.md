@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 虽千万人吾往矣!——评吹哨人李文亮医生和发哨人艾芬医生<br>https://gnews.org/zh-hans/139854/
+
+[https://www.guo.media/posts/274761](https://www.guo.media/posts/274761) `2020-03-13T15:40:21`
+##
+
+**milesguo** 3月13号：尊敬的战友们好！在30分钟左右．http://livestream.com/accounts/27235681．与战友一起吃早，午饭．和战友们继续乱聊……一切已经开始！
+
+[https://www.guo.media/posts/274760](https://www.guo.media/posts/274760) `2020-03-13T15:40:22`
+##
+
 **milesguo** 2020年3月12日武汉冠状病毒大流行第48集<br>https://gnews.org/zh-hans/139823/
 
 [https://www.guo.media/posts/274741](https://www.guo.media/posts/274741) `2020-03-13T09:55:14`
