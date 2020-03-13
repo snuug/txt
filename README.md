@@ -11,6 +11,16 @@
 
 
 
+**milesguo** Miles Guo: What will the global economy look like in the future? (Part II)<br>https://gnews.org/140069/
+
+[https://www.guo.media/posts/274789](https://www.guo.media/posts/274789) `2020-03-13T22:25:11`
+##
+
+**milesguo** 梅克尔：短期内德国社会生活将发生根本变化<br>https://gnews.org/zh-hans/140049/
+
+[https://www.guo.media/posts/274786](https://www.guo.media/posts/274786) `2020-03-13T22:25:12`
+##
+
 **milesguo** 川普计划在今天下午宣布国家紧急状态<br>https://gnews.org/zh-hans/140323/
 
 [https://www.guo.media/posts/274785](https://www.guo.media/posts/274785) `2020-03-13T19:10:13`
