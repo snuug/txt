@@ -11,6 +11,21 @@
 
 
 
+**milesguo** Trump declared national emergency amid coronavirus pandemic and stock market meltdown<br>https://gnews.org/140307/
+
+[https://www.guo.media/posts/274796](https://www.guo.media/posts/274796) `2020-03-13T23:10:11`
+##
+
+**milesguo** February 10, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/140303/
+
+[https://www.guo.media/posts/274793](https://www.guo.media/posts/274793) `2020-03-13T23:10:13`
+##
+
+**milesguo** US Fight back: This pandemic came from China<br>https://gnews.org/140112/
+
+[https://www.guo.media/posts/274792](https://www.guo.media/posts/274792) `2020-03-13T23:10:14`
+##
+
 **milesguo** Miles Guo: What will the global economy look like in the future? (Part II)<br>https://gnews.org/140069/
 
 [https://www.guo.media/posts/274789](https://www.guo.media/posts/274789) `2020-03-13T22:25:11`
