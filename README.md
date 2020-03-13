@@ -11,6 +11,21 @@
 
 
 
+**milesguo** Remarks by President Trump in Address to the Nation<br>https://gnews.org/139582/
+
+[https://www.guo.media/posts/274714](https://www.guo.media/posts/274714) `2020-03-13T02:25:19`
+##
+
+**milesguo** Trump met with Brazilian president’s press secretary who tested positive for coronavirus<br>https://gnews.org/139706/
+
+[https://www.guo.media/posts/274712](https://www.guo.media/posts/274712) `2020-03-13T02:25:21`
+##
+
+**milesguo** Miles Guo: Coronavirus can infect up to 50% of the world’s population<br>https://gnews.org/139445/
+
+[https://www.guo.media/posts/274710](https://www.guo.media/posts/274710) `2020-03-13T02:25:23`
+##
+
 **milesguo** TNT Daily : some people reported that the masks they bought were only “semi-finished”<br>https://gnews.org/139375/
 
 [https://www.guo.media/posts/274708](https://www.guo.media/posts/274708) `2020-03-13T01:55:17`
