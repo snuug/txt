@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274714](https://www.guo.media/posts/274714) `2020-03-13T02:25:19`
 ##
 
+**milesguo** Miles Guo: Global redistribution of wealth(Part I）<br>https://gnews.org/139715/
+
+[https://www.guo.media/posts/274713](https://www.guo.media/posts/274713) `2020-03-13T03:10:13`
+##
+
 **milesguo** Trump met with Brazilian president’s press secretary who tested positive for coronavirus<br>https://gnews.org/139706/
 
 [https://www.guo.media/posts/274712](https://www.guo.media/posts/274712) `2020-03-13T02:25:21`
