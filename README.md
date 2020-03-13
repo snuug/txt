@@ -11,6 +11,11 @@
 
 
 
+**milesguo** TNT Daily : some people reported that the masks they bought were only “semi-finished”<br>https://gnews.org/139375/
+
+[https://www.guo.media/posts/274708](https://www.guo.media/posts/274708) `2020-03-13T01:55:17`
+##
+
 **milesguo** 储存好物品，千万别上班！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/139416/
 
 [https://www.guo.media/posts/274677](https://www.guo.media/posts/274677) `2020-03-12T18:10:13`
