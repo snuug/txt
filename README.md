@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274785](https://www.guo.media/posts/274785) `2020-03-13T19:10:13`
 ##
 
+**milesguo** 2020年2月10日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/140292/
+
+[https://www.guo.media/posts/274784](https://www.guo.media/posts/274784) `2020-03-13T20:10:11`
+##
+
 **milesguo** 今天在华尔街爆仓的基金经理连“初中”都没有毕业<br>https://gnews.org/zh-hans/140282/
 
 [https://www.guo.media/posts/274783](https://www.guo.media/posts/274783) `2020-03-13T19:10:15`
