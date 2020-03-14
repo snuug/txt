@@ -1,138 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全面甩鍋！中外交部發言人：疫情可能是美軍帶到武漢 中共大外宣戰略被郭先生提前戳破!
-`2020-03-13 20:01 GM15` [轉載自GNews](https://gnews.org/zh-hant/140411/)
+## 憤怒的武漢、孝感、豐城等市團結起來，要向中共討回活著的權利
+`2020-03-13 21:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/140482/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13195129/phprj7au9.jpg)
-趙立堅在官方認證的推特帳號上同時以中英版本發文，其中一篇寫道，「零號病人是什麼時候在美國出現的？有多少人被感染？醫院的名字是什麼？可能是美軍把疫情帶到了武漢。美國要透明！要公開數據！美國欠我們一個解釋！」
+**作者：ZYF**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13213642/2-32.jpg)
+3月12日晚左右，武漢、孝感、封城人民因長期不滿政府、超市、物業長期無視人民基本的生存權力，出售給廣大業主高價蔬菜，民眾為了能夠吃到價格合理的蔬菜而團結起來反抗暴政，人民集結起來發出了響亮的怒吼。
 
-美國國家安全顧問歐布萊恩直言，國際社會防疫工作因中國「掩蓋」最初武漢疫情而耽誤兩個月之久，若中方早採取合作態度，全世界不至於搞到今天這步田地。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13214005/1-133.jpg)
 
-##  中共大外宣戰略被郭先生提前戳破 
+事情起因為各市小業主們不滿長期吃昂貴的蔬菜，自行聯繫了低價蔬菜來小區送菜，物業認為阻擋了發財門路將其誹謗抓走，共產黨黑警來抓人時，人民長期壓抑的怒火直接爆發。已經被共產黨折磨到崩潰的人民不再沉默。
 
-> [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw): [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is spreading [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) to the whole world. Make the world in chaos so the regime can survive longer. [pic.twitter.com/s0amZkY2jj](https://t.co/s0amZkY2jj)
-> — Voice of Guo Media (@VOG\_2020) [February 24, 2020](https://twitter.com/VOG_2020/status/1231765483503796224?ref_src=twsrc%5Etfw)
+人民不顧武漢病毒的威脅，團結在一起發出了震耳欲聾的吼聲，“ 共產黨”、“下課”、“共產黨”、“下課”，積壓在心中無處發洩的怒火終於因為口糧被共產黨沒收而爆發。人民一再地退讓，換來的只是無休止地壓迫，人民每退一步，共產黨就逼三步。今天強搶低價蔬菜，明天就能搶家裡存款，後天就可以讓全家被“隔離”。如果活著已是奢望，何不奮起反抗。武昌和生活在當地的人們擁有天生的基因，哪裡有壓迫，哪裡就有反抗。
 
-王建议习把病毒推向国际：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13214058/3-25.jpg)
 
-Also, even more sinister,
-还有，更阴险的
-remember what I said today.
-王岐山、江家、杨娘娘
-Wang Qishan, the Jiang family,
-大家记住我今天说的话
-And Yang Jiechi gave Xi
-非常明确地给习建议：
-a very clear suggestion:
-最让我们安全的方式
-The safest way for us is to
-就是把病毒
-Bring the coronavirus to the world.
-弄到全世界去
-If they all face the coronavirus pandemic,
-他们都有了
-they won’t care about us,
-他们就不管我们的事了
-And they wouldn’t want to investigate the truth.
-他们就不要真相了
-If they all have the coronavirus,
-他们都有了
-they will help us solve the problem, because
-他们就会帮我们来解决问题
-our economic problem is also their problem.
-我们的经济问题也是他们的问题
-This is called second life.
-这叫第二条命
-Japan, Cambodia, the United States.
-日本，现在是日本、柬埔寨、美国
-Coronavirus will outbreak in the US.
-美国接着会爆发
-And in Canada, all European countries,
-加拿大，所有的欧洲
-and several tourist countries in Asia,
-然后亚洲的几个旅游国家
-will outbreak, too
-全面爆发，全面爆发
-It is to reuse the tricks against Hong Kong
-就是把当时对付香港的招再用一遍
-And use it again all over the world
-用到全世界去
-That is, I want to use this thing
-就是我要用这个东西
-to divert your attention,
-转移你的视线
-make you worse than me,
-让你比我还糟糕
-make you forget the truth, forget to
-让你忘掉真相
-seek the truth, forget to punish us,
-忘掉查找真相，忘掉追责
-or even be no ability to punish us,
-甚至是没能力追责
-no ability to seek the truth
-没能力查找真相
-Yes I got a problem,
-然后，我的问题
-but your problem is even worse,
-你的问题更大
-and this is the CCP.
-这就是共产党
-Believe it or not? Just wait and see
-大家信不信？走着看
-After February 29, you will all understand.
-2月29日以后，你们都会明白
-There is bound to be a big outbreak
-香港一定会大爆发
-in Hong Kong, and it will mainly infect
-而且主要爆发在警察和
-the police and law enforcement. Why?
-执法者身上，为什么？
-It’s not you, Hong Kong kids who will infect them.
-不是你香港的这些孩子们把他传染了
-Don’t be naive. Remember, in the end,
-香港的孩子们，你们别天真
-your biggest enemy is the person
-一定记住
-who pretends to help you,
-最后你最大的敌人就是帮你的人
-that is, the CCP.
-那就是共产党
-The people inside the CCP are very clear.
-共产党内部非常清楚
-They have begun to say
-内部已经开始了
-that Hong Kong police are
-说香港这些警察是我们
-our most vulnerable force and factor
-最不稳定的力量和因素
-What will happen if Hong Kong police
-香港警察都出去爆料怎么办？
-go out to expose the truth? What will happen
-香港警察全部
-if Hong Kong police collectively revolt?
-集体造反怎么办？
-What about those PLA and fake policemen
-还有在香港执法的解放军
-who dressed in police costumes in Hong Kong?
-穿着警察服装的黑警怎么办？
-Here comes the coronavirus epidemic,
-这个疫情来了
-if it cannot be prevented, it may not be a bad thing.
-如果是防不住，也不见得是坏事
-How to explain it in political language?
-用政治语言来解释什么？
-That’s the CCP wants these people to disappear.
-这些人应该消失
-They are the biggest witnesses and
-他们是最大的见证者
-will be our biggest threat in the future.
-未来是我们最大的威胁者
-They should disappear.
-他们应该消失
+湖北封城已經長達2個多月，也就在這短短七十多天，僅武漢市情況郭先生直播就透露，已經超過300萬人感染、50多萬人死亡。不斷有人死於武漢病毒，火葬場已經超負荷燒屍體直到今日。曾經健康的人不斷感染病毒，接連的死去，接連的燒掉，倖存的人只能眼睜睜看著可怕的景像不斷發生，人民的精神已經到崩潰的邊緣。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3098316)
+當天夜裡應勇前去現場，但也無濟於事。因為每一個人慢慢明白，他們受到的災難是誰帶給他們的。當抓捕李文良時，他們沒有說話；武漢封城時，他們沒有說話；讓回家隔離時，他們沒有說話；當親人一個一個變成骨灰盒時，他們只在哭泣。悲痛欲絕的聲音傳遍了武漢街頭，當初有多悲痛，如今就多憤怒。
 
-GM15
+手無寸鐵的人群即使面對成群的特警毫不退縮，仍然堅持抗爭。共產黨書記們傲慢的認為草民們只是小打小鬧，應付一下就可以讓他們滿足。這一次他們錯了，中南海即使處理湖北的狗腿子、讓民眾能夠買到低價的蔬菜也無法讓民眾的怒火平息。 13日早上仍有民眾無懼病毒威脅，聚集在一起抗爭權力。
+
+郭文貴先生2月27日直播說過，牆內民眾已經被徹底洗腦，只要給他們房子、吃的就不會反抗。很不幸讓再一次被郭先生說中，即使造謠、欺騙、瞞報都無法喚醒中國民眾；即使孩子、愛人、家人和親人一個一個相繼死去他們也不反抗。只有花更多的錢買高價的蔬菜，讓民眾糧食和錢受到了影響，這群人才鼓起勇氣發出反抗聲音。
+
+不要嘲笑我們每一個同胞，正是共產黨不留餘力洗腦，我們的父母家人才如此狂熱想相信共產黨，爹親娘親都不如黨親。這次反抗共產黨火花已經點燃，想把它掐滅是不可能的，套在14億同胞脖子上的枷鎖已經出現裂縫，戰友請繼續向牆內傳播武漢疫情真相。越多的人知道真相，就越容易我們實現喜馬拉雅目標。共產黨越瘋狂，對我們滅共越有利，但對牆內同胞傷害越大，我們一定要讓武漢疫情真相傳到越多的人耳中。
+
+請不要將武漢同胞爭取權力行為稱為暴動，共產黨曾在對待香港同胞合理爭取權力成為暴徒，將他們歪曲成為暴動。武漢和香港同胞都是在反抗共產黨暴政，不要將他們的正義行為曲解為暴動，這樣只會讓牆內同胞從內心上認為覺醒是一種錯誤，不敢反抗共產黨的統治。不要和大外宣一樣稱為暴動，這是人民的怒火，必將共產黨燒盡。
+
+（文章內容僅代表作者觀點）
 
 0

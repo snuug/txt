@@ -1,23 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鑽油護國 賠錢增加產量! 油價大跌中國石油巨頭正陷入兩難
-`2020-03-13 20:12 GM15` [轉載自GNews](https://gnews.org/zh-hant/140424/)
+## 居家隔離中C羅首發聲「生命安全凌駕一切利益!」
+`2020-03-13 22:33 GM15` [轉載自GNews](https://gnews.org/zh-hant/140488/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13201002/phpjkNvdZ.jpg)
-近期由於武漢肺炎可能下挫原油需求、沙烏地阿拉伯及俄羅斯互相威脅增產，國際油價不斷走低。《彭博》指出，現在中國國有石油企業如中國石油天然氣集團（PetroChina，中石油）、中國石油化工（Sinopec，中石化）中國海洋石油（Cnooc，中海油）正面臨油價過低但被要求提高產量的兩難處境。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222924/Noname-11.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222230/php1qQBrR.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222755/phpyiYYvd.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222241/phpzNdmw2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222450/php2qOOyy.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222645/Noname-10.jpg)
+武漢肺炎疫情蔓延，義甲強權祖文特斯的義大利中後衛魯加尼（Daniele Rugani）在日前確診，全隊都需要居家自我隔離，而目前在葡萄牙老家隔離的人氣球星C羅（Cristiano Ronaldo）在受到疫情波及後也首度在社群軟體發文。
 
-報導稱，國際原油價格上次處在此價位時是在2016年，當時3巨頭削減老舊昂貴油田的支出作為應對，產量隨之降低。但是在美中貿易戰開打後，緊張局勢促使習近平於2018年下令增加國內勘探和生產，維護中國的能源安全，因此現在油價過低的情況讓3家石油巨頭難以調整產量。
+「世界正在經歷一個非常艱難的時刻，需要我們投入關懷。」C羅在Instagram上寫道，「今天我不是以一個足球員的身分向你們說話，而是以一名關心最新疫情發展的兒子、父親、以及人類發聲。」
 
-相反的，外國石油公司已經開始止血，如西方石油公司（Occidental Petroleum）和Diamondback Energy等美國鑽探公司宣佈了削減開支的計劃。
+C羅表示，「我想慰問那些因疫情失去親人的大家、同時我的心與像隊友魯加尼一樣正在對抗病毒的人同在，最後要給予冒著危險挽救他人性命的專業醫護人員送上支持。」
 
-中國雖是全球最大石油進口國，事實上亦是產油大國，2015年產量高峰曾達到每日430萬桶，為全球第5大，隨後到2018年降到每日380萬桶、排名第8，只輸給OPEC前2大成員國。在習近平指示國營油企提高產量後，3巨頭次年支出增加18%，不過代價反映在股價上，如中石油下跌了20%，因「為國家服務而罔顧股東」。
-
-分析師指出，國營是個雙面刃，雖享有補貼和政策支持，但市場環境不佳時也得吞下，像中石油便在乾淨能源政策中，虧本進口天然氣。諮詢公司Rystad Energy 研究副總裁Parul Chopra說，中國油商對低價特別敏感，因為中國的油田較老，需要更多工作來維持產量，而新油井達到收支平衡的價位高達每桶41美元，沙國則是13美元、伊拉克只需11美元。
-
-能源諮詢公司Wood Mackenzie首席分析師Max Petrov則說，鑽井活動上升應篤定會增加，因為中國需要從武漢肺炎重擊中恢復，經濟活動復甦下北京會希望保持能源燃料流暢，下半年油企支出可能保持高位甚至再增加。也有分析師認為，低油價反而是中國進口廉價原油、補充儲備的好機會。
-
-引自[自由時報](https://ec.ltn.com.tw/article/breakingnews/3098338)
+引自[自由時報](https://sports.ltn.com.tw/news/breakingnews/3099140)
 
 GM15
 

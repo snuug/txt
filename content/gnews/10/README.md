@@ -1,18 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 居家隔離中C羅首發聲「生命安全凌駕一切利益!」
-`2020-03-13 22:33 GM15` [轉載自GNews](https://gnews.org/zh-hant/140488/)
+## 中共威脅美國：可實施藥品出口管制
+`2020-03-13 23:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/140577/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222924/Noname-11.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222230/php1qQBrR.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222755/phpyiYYvd.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222241/phpzNdmw2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222450/php2qOOyy.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222645/Noname-10.jpg)
-武漢肺炎疫情蔓延，義甲強權祖文特斯的義大利中後衛魯加尼（Daniele Rugani）在日前確診，全隊都需要居家自我隔離，而目前在葡萄牙老家隔離的人氣球星C羅（Cristiano Ronaldo）在受到疫情波及後也首度在社群軟體發文。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13235543/1-136.jpg)
+隨著全球中共病毒的疫情蔓延，中國共產黨正在加大對西方的威脅，並特別無恥地針對美國關於救命藥品發出警告。
 
-「世界正在經歷一個非常艱難的時刻，需要我們投入關懷。」C羅在Instagram上寫道，「今天我不是以一個足球員的身分向你們說話，而是以一名關心最新疫情發展的兒子、父親、以及人類發聲。」
+在中共官方媒體以及黨的喉舌新華社的一篇文章中，北京吹噓其對源自武漢市的中共病毒的出色處理，該病毒已迅速傳播到世界各地，感染了成千上萬的人，並殺死了近5,000人。文章還聲稱，中共國可以實施藥品出口管制，這將使美國陷入“中共病毒的巨大沼澤”。
 
-C羅表示，「我想慰問那些因疫情失去親人的大家、同時我的心與像隊友魯加尼一樣正在對抗病毒的人同在，最後要給予冒著危險挽救他人性命的專業醫護人員送上支持。」
+中共在全球供應鏈上的強硬把控，在全球中共病毒大流行期間造成了巨大的威脅，並且這種威脅可能會變成現實的可怕後果。雖然美國在全球研究領域處於領先地位，但是大部分生產救命藥品的公司或者生產線已經轉移到國外。美國食品藥物管理局(FDA)已經宣布了與中共病毒有關的第一個藥物短缺。儘管沒有透露短缺的藥物，但美國食品藥物管理局（FDA）明確表示無法獲得所需的足夠原料，因為這些原料是在中共國製造的。
 
-引自[自由時報](https://sports.ltn.com.tw/news/breakingnews/3099140)
+共和黨參議員Marco Rubio星期四對福克斯新聞明確表示：這是非常危險的，因為美國過份依賴中共國生產的關鍵產品，包括對抗中共病毒所需的技術藥品等。 Rubio認為，如果中共國威脅切斷與美國的供應，其結果可能會非常嚴峻。
 
-GM15
+[原文鏈接](https://www.foxnews.com/world/chinese-deny-americans-coronavirus-drugs)
+
+編譯：老師傅
 
 0
