@@ -1,52 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利醫生與朋友的對話揭露疫情
-`2020-03-13 10:23 GM09` [轉載自GNews](https://gnews.org/zh-hant/140203/)
+## 中共外交是個筐，流氓無賴往裡裝！
+`2020-03-13 10:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/140067/)
 
-作者：Ying & Little
+**作者：玉米地大姐**
 
-近日在推特上，疑似流出一段與意大利醫生之間的對話：
+3月12日，盜國賊外交發言人趙立堅發布中英文推文，並上傳11日美國國會聽證會的一段現場視頻，內容涉及是否有武漢新冠病人因為之前缺少檢測試劑盒，被當作流感病人處理。
 
-朋友問意大利醫生他所在的醫院新冠狀病毒的感染情況如何。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13041642/1-122.jpg)
 
-醫生回答情況非常悲慘，幾百個人喪失了生命。醫生還表示，他們已經停止救助60歲以上的病人，他們只能等死。百分之三十的患者年齡在30到60之間。醫院呼吸機不夠。
+再看12日盜國賊外交部發言人耿爽主持的例行記者會。
 
-在米蘭，有600個患者接受氣管插管治療。醫生不得不選擇救治一部分患者，這意味著其他患者得不到救治。一個醫院一晚就要接待50個需要插管治療的患者。插管治療是有效的，但是醫生無法給300萬人進行插管。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13041701/2-28.jpg) *2020年3月12日外交部發言人耿爽主持例行記者會*
 
-醫院的同事也有感染的。病毒檢驗試劑和手套對於需要救治50個病人的醫生來說，不夠用。醫生表示醫院已經沒有口罩了，試劑只剩30個。
+*問：今天，美國總統特朗普在發表全國電視講話時稱，新冠肺炎病毒疫情是從中國開始（started）並向全球傳播的。中方對此有何評論？*
 
-朋友問醫生他本人是否感染。醫生表示他有很大可能檢測呈陽性。他的同事中，很多人都咳嗽。
+*答：新冠肺炎疫情暴發以後，中方本著公開、透明、高度負責的態度，採取了最全面、最嚴格、最徹底的舉措，萬眾一心、眾志成城，打響了疫情防控的人民戰爭、總體戰、阻擊戰。經過艱苦努力，目前中國的疫情防控形勢發生了積極向好變化，取得了階段性重要成果，為世界範圍的抗疫鬥爭作出了重要貢獻。中方抗疫的努力和所取得的積極成效得到了國際社會的廣泛支持和普遍讚譽。*
 
-這場全球流行病的蔓延無法延緩了。現在太晚了。在意大利，商場、學校、酒吧、電影院、戲院都關了。手術室都改成了重症監護室。醫生們已經停止了手術。醫生每天都在戰爭中。他們住在醫院試圖盡力阻止這場災難，但是感染人數還是持續增加。
+盜國賊的外交官員回答記者提問早已淪為國際笑話，它有一套固定模式，什麼強詞奪理、所答非所問、偷換概念、顛倒黑白、道德綁架，轉移話題等等。趙立堅的推文就是典型的強詞奪理加顛倒黑白。
 
-讓人擔心的事，該醫生說他們不被允許講出醫院的真相，所以他/她要求匿名公開這段對話。同時他/她表示，現在大家看到的（意大利官方公佈）都是謊言，實際情況糟糕更多，甚至他/她認為德國的死亡率也在撒謊。
+耿爽面對“疫情是從中國開始並向全球傳播的”這樣的提問，他心裡清楚其主子是病毒始作俑者，所以回答既不能說是也不能說不是，用所答非所問來迴避避實質問題。
 
-醫生最後表示他們已被政府召集。醫生堅信他們將盡一切努力製止這場災難。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13041851/3-23.jpg)
 
-編者按：
+中共一向引以為傲的所謂大國外交是從周恩來開始的。民間流傳周恩來回答美國總統尼克鬆的段子。尼克松問北京有多少公共廁所？周恩來回答：“兩個，男廁和女廁。”
 
-1，武漢應該比這糟糕。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13041948/4-16.png)
 
-2，附郭先生談世界準備好了沒？
+先不論這個段子真假，尼克松問的是公共衛生問題，誰都知道那個年代像北京這樣的國都城市沒什麼公共衛生設施，周恩來只好用腦筋急轉彎來回答，看似機智實則是遮醜。我們知道，任何一個國家的外交官都擅長外交辭令，但人家恪守外交禮儀和底線，回答問題盡在“政治正確”的範疇內。
 
-> [#MilesGuo](https://twitter.com/hashtag/MilesGuo?src=hash&amp;ref_src=twsrc%5Etfw): [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw) is finished. Same as France, Russia, Italy, Germany, Greece, Spain, Belgium, … 
-> Don't be ignorant of [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw). Be prepared. Stay safe. [pic.twitter.com/29umdNt8Gw](https://t.co/29umdNt8Gw)
-> — Voice of Guo Media (@VOG\_2020) [March 13, 2020](https://twitter.com/VOG_2020/status/1238459591987351553?ref_src=twsrc%5Etfw)
+中共的外交嚴格來講是歪交，遵循的是流氓邏輯，其內核是中國傳統的詭辯術。自己永遠偉光正，錯誤永遠是對方。
 
-## 來源： 
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042029/5-6.jpg)
 
-> Devastating news
-> 
-> Conversation between my friend and Italian doctor
-> 
-> It’s war. Can’t even try to save them all. No one over 60 even gets full care
-> 
-> Every doctor likely sick, everyone coughs. No time to test them
-> 
-> No other critical care. Only this. So many dead
-> 
-> 30% are ages 30-60 [pic.twitter.com/vA1Z2PMflT](https://t.co/vA1Z2PMflT)
-> — Sindre Reino Trosterud (@STrosterud) [March 12, 2020](https://twitter.com/STrosterud/status/1238147269465116672?ref_src=twsrc%5Etfw)
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101722/ES7IXcgXgAMNdo9.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101840/ES7IXcjXgAAWvz8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13101849/ES7IXcmWoAE-GsT.jpeg)
+有人問孟子：“齊王送你一百兩黃金，你不收，宋國公送你七十兩，你收了，在薛地，薛君送你五十兩，你也收了。要么之前拒絕齊王是對的，要么後來收宋、薛的金子是錯的，哪個對哪個錯，你說說吧？”
+
+孟子回答：“都對，我在宋國要出門遠行，人家送我盤纏不對嗎？在薛地我聽說路上不安全，薛君送我錢買兵器防身，我不該接受嗎？而齊王沒有任何理由就送我錢，這是在收買我，君子不該被金錢收買。”
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042106/6-4.jpg)
+
+孟子這套說辭乍一看覺得有道理，從邏輯上講，就是詭辯。無故接受他人錢財是收買，有故接受別人錢財就不是收買？孟子用該不該接受，替換了別人說的收不收金的事實。
+
+中共盜國七十年來的外交水平從沒超過慈禧一朝的總理衙門，其外交發言人遇到軟柿子，擺出一副小雞姦老鷹的狂妄與傲慢之態，遇到強硬的則背後裝孫子搞藍金黃收買。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042159/7-6.jpg)
+
+華春瑩有次回答記者提問，借用特朗普抨擊媒體報導的字眼，向《紐約時報》和特朗普政府提出建議。
+
+*第一，《紐約時報》應該知道，它發表類似報導，只會多一個其做* *fake news* *（假新聞）的證據；第二，如果很擔心蘋果手機被竊聽的話，可以改用華為手機。*
+
+明明知道川普政府正在禁用華為手機，偏偏什麼噁心來什麼，一副無賴小人的嘴臉噁心至極。還有最能裝逼的王毅。女記者阿曼達向加拿大外長提問，表達對中共以竊取國家機密罪名逮捕加國公民高凱的關注。結果刺激了王毅的神經，不顧外交禮儀搶答斥責。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042238/8-10.png)
+
+*你的問題充滿對中國的偏見與不知何處而來的傲慢，我完全不能接受。你了解中國嗎？你去過中國嗎？你知不知道中國從一窮二白面貌，讓六億以上的人脫離貧窮，人均收入八千美元，現在中國是全球第二大經濟體。如果中國不能好好保護人權的話，中國能夠取得這麼大的發展嗎？你知道中國已將保護人權列入憲法嗎？*
+
+不了解盜國賊流氓外交本質的西方記者，常常被中共的外交人員的回答搞得一頭霧水不知如何應對。王毅搶占道德製高點，將提問轉換成反問加自答，以便達到混淆視聽的目的。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042305/9-2.jpg)
+
+假如用王毅這套流浪邏輯去問霍金，你了解黑洞嗎？你去過宇宙嗎？同樣的問題還可以問愛因斯坦的相對論，牛頓的萬有引力，保准會把這些大科學家氣活過來。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13042336/10.jpg)
+
+就像文先生貴開玩笑說美國人常常to high去想to low盜國賊的問題一樣，面對流氓無賴發言人，最好的回答是以其人之道，還治其人之身。若用王毅的邏輯反問他：你了解你家八輩祖宗嗎，你去過你八輩祖宗家嗎？
+
+（文章內容僅代表作者觀點）
+
 0
