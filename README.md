@@ -26,9 +26,19 @@
 [https://www.guo.media/posts/274792](https://www.guo.media/posts/274792) `2020-03-13T23:10:14`
 ##
 
+**milesguo** CCP Official: Men Infected With Coronavirus Should Do Fertility Test<br>https://gnews.org/140077/
+
+[https://www.guo.media/posts/274791](https://www.guo.media/posts/274791) `2020-03-14T00:25:26`
+##
+
 **milesguo** Miles Guo: What will the global economy look like in the future? (Part II)<br>https://gnews.org/140069/
 
 [https://www.guo.media/posts/274789](https://www.guo.media/posts/274789) `2020-03-13T22:25:11`
+##
+
+**milesguo** TNT Daily : Zhong Nanshan claimed here is hope that the coronavirus outbreak will end in June<br>https://gnews.org/139914/
+
+[https://www.guo.media/posts/274788](https://www.guo.media/posts/274788) `2020-03-14T00:25:28`
 ##
 
 **milesguo** 梅克尔：短期内德国社会生活将发生根本变化<br>https://gnews.org/zh-hans/140049/
