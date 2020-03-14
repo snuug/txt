@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 2020年3月13日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/140512/
+
+[https://www.guo.media/posts/274826](https://www.guo.media/posts/274826) `2020-03-14T03:55:12`
+##
+
+**milesguo** 居家隔离中C罗首发声 「生命安全凌驾一切利益!」<br>https://gnews.org/zh-hans/140510/
+
+[https://www.guo.media/posts/274825](https://www.guo.media/posts/274825) `2020-03-14T03:55:14`
+##
+
+**milesguo** 愤怒的武汉、孝感、丰城等市团结起来，要向中共讨回活着的权利<br>https://gnews.org/zh-hans/140462/
+
+[https://www.guo.media/posts/274823](https://www.guo.media/posts/274823) `2020-03-14T03:55:15`
+##
+
 **milesguo** Wuhan Coronavirus Pandemic Episode 49, March 13, 2020<br>https://gnews.org/140447/
 
 [https://www.guo.media/posts/274814](https://www.guo.media/posts/274814) `2020-03-14T02:10:11`
