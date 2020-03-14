@@ -1,18 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 居家隔離中C羅首發聲「生命安全凌駕一切利益!」
-`2020-03-13 22:33 GM15` [轉載自GNews](https://gnews.org/zh-hant/140488/)
+## 2020年3月13日郭文貴先生直播摘要
+`2020-03-13 22:43 GM10` [轉載自GNews](https://gnews.org/zh-hant/140523/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222924/Noname-11.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222230/php1qQBrR.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222755/phpyiYYvd.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222241/phpzNdmw2.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222450/php2qOOyy.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/13222645/Noname-10.jpg)
-武漢肺炎疫情蔓延，義甲強權祖文特斯的義大利中後衛魯加尼（Daniele Rugani）在日前確診，全隊都需要居家自我隔離，而目前在葡萄牙老家隔離的人氣球星C羅（Cristiano Ronaldo）在受到疫情波及後也首度在社群軟體發文。
+戰友之家•摘要組
 
-「世界正在經歷一個非常艱難的時刻，需要我們投入關懷。」C羅在Instagram上寫道，「今天我不是以一個足球員的身分向你們說話，而是以一名關心最新疫情發展的兒子、父親、以及人類發聲。」
+00：00 現在世界都亂了，不是一般的亂了。法國人做飯就是必須弄點顏色。昨天A股和香港恆生是堅持最難的一天，擀麵杖子撐的不容易。青煙裊裊還有不多少天了。我們要Hold住。
 
-C羅表示，「我想慰問那些因疫情失去親人的大家、同時我的心與像隊友魯加尼一樣正在對抗病毒的人同在，最後要給予冒著危險挽救他人性命的專業醫護人員送上支持。」
+02：21 文貴吃飯多，父母妻子都喜歡看文貴吃飯，一次吃好多燒雞，白酒。早上曾經可以吃十個饃，尤其喜歡吃燒雞。從前文貴每天陪父母吃飯，一家人十幾口一塊兒。 戰友們不知道發生多少事，文貴無法向大家解釋有多少事發生了。手機一段時間就滿了。
 
-引自[自由時報](https://sports.ltn.com.tw/news/breakingnews/3099140)
+06：25   昨天文貴日本朋友想和文貴喝酒，但是文貴怕他們一起全家洗澡的習慣，太不好意思了。調侃日本習俗，耍流氓也有合法性，受不了日本這個文化，不過日本朋友是全球最忠誠的。最不靠譜的朋友是中東人。文貴展示自己的遊艇。
 
-GM15
+12：05 黃河邊的官司無法取消，加拿大政府不許，他們要查清他所有資產和事情。
+
+14：00 文貴曾動過念，兩年前文貴知道會是這個結局，他的幾個基金也想和文貴一起做滅共基金。 現在掙錢的最低300%，高的800%。 後來文貴只想專心滅共，不希望摻雜別的分心。所以沒有做。接下來，文貴要搞G-TV，G-fashion。首先俄羅斯的哥們要認股10%。我們要讓戰友稱為雅典娜計劃，諾亞方舟的成員。大家吃穿都在G-fashion裡面，這樣全球金融中心亡了，馬雲算啥，不過是一個賣假貨的。G-TV要言論自由。
+
+18：30朋友現在就想投資文貴的fashion帝國。爆料戰友給法制基金捐款太重要了，現在兩個基金特別忙，要給各個政府提供各種信息。文貴還是遺憾搞了這兩個基金，太麻煩，還引來雞腿潘火雞龔。
+
+20：14 今天美國政府就怕突破兩萬點，真的很難突破。明天上午8/9點鐘直播。好多以前員工回來工作，以前工作都丟了。
+
+25：29 明天講這個疫情帶來什麼後果，世界未來走向何方，接下來世界金融和股票生存環境會如何。我們如看待人類面臨的巨變，我們做些啥。 這就是明天主題。文貴開始為世界祈禱。不要忘了香港，下午文貴要給國會發個東西，要作證，香港是大恩人，忘掉香港就忘了未來。
+
+更多詳情請看GTV：https://m.youtube.com/watch?v=IY9x-gvNE2g
 
 0
