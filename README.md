@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/274791](https://www.guo.media/posts/274791) `2020-03-14T00:25:26`
 ##
 
+**milesguo** The Electoral Affairs Commission Suggested Giving Priority to Elderly and Pregnant Voters<br>https://gnews.org/139046/
+
+[https://www.guo.media/posts/274790](https://www.guo.media/posts/274790) `2020-03-14T00:40:53`
+##
+
 **milesguo** Miles Guo: What will the global economy look like in the future? (Part II)<br>https://gnews.org/140069/
 
 [https://www.guo.media/posts/274789](https://www.guo.media/posts/274789) `2020-03-13T22:25:11`
