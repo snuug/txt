@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 正在发生的全人类的和平奴隶制度的解体之后会是什么样子<br>https://gnews.org/zh-hans/140330/
+
+[https://www.guo.media/posts/274806](https://www.guo.media/posts/274806) `2020-03-14T01:10:17`
+##
+
+**milesguo** 3月13号：尊敬的战友们好：👉👉．http://livestream.com/accounts/27235681．明天3月14号．星期六，纽约时间上午9:30文贵直播，一切已经开始！
+
+[https://www.guo.media/posts/274805](https://www.guo.media/posts/274805) `2020-03-14T01:10:18`
+##
+
 **milesguo** Trump declared national emergency amid coronavirus pandemic and stock market meltdown<br>https://gnews.org/140307/
 
 [https://www.guo.media/posts/274796](https://www.guo.media/posts/274796) `2020-03-13T23:10:11`
