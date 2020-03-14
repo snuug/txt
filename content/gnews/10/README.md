@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盜國賊動畫2｜《領導您免費》范冰冰大叫！
-`2020-03-14 07:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/140985/)
+## 盜國段子王怒懟趙立堅！ ！美軍傳播病毒？ AV看多了少了腦子！ ！
+`2020-03-14 08:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/141011/)
 
 作者：楚門
 
