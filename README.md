@@ -11,6 +11,21 @@
 
 
 
+**milesguo** Wuhan Coronavirus Pandemic Episode 49, March 13, 2020<br>https://gnews.org/140447/
+
+[https://www.guo.media/posts/274814](https://www.guo.media/posts/274814) `2020-03-14T02:10:11`
+##
+
+**milesguo** 钻油护国 赔钱增加产量! 油价大跌中国石油巨头正陷入两难<br>https://gnews.org/zh-hans/140430/
+
+[https://www.guo.media/posts/274813](https://www.guo.media/posts/274813) `2020-03-14T02:10:12`
+##
+
+**milesguo** 全面甩锅！中外交部发言人：疫情可能是美军带到武汉 中共大外宣战略被郭先生提前戳破!<br>https://gnews.org/zh-hans/140420/
+
+[https://www.guo.media/posts/274812](https://www.guo.media/posts/274812) `2020-03-14T02:10:14`
+##
+
 **milesguo** 正在发生的全人类的和平奴隶制度的解体之后会是什么样子<br>https://gnews.org/zh-hans/140330/
 
 [https://www.guo.media/posts/274806](https://www.guo.media/posts/274806) `2020-03-14T01:10:17`
