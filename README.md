@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 【武漢肺炎真相】共产党制造病毒\3月15日视频合集<br>https://gnews.org/zh-hans/141662/
+
+[https://www.guo.media/posts/274956](https://www.guo.media/posts/274956) `2020-03-15T22:25:10`
+##
+
 **milesguo** Warroom 44 史蒂夫·班农：川普总统为了抗疫在寻求平衡<br>https://gnews.org/zh-hans/141654/
 
 [https://www.guo.media/posts/274955](https://www.guo.media/posts/274955) `2020-03-15T20:55:13`
