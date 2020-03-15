@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274913](https://www.guo.media/posts/274913) `2020-03-15T08:56:00`
 ##
 
+**milesguo** 2020年2月8日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/141487/
+
+[https://www.guo.media/posts/274910](https://www.guo.media/posts/274910) `2020-03-15T09:40:13`
+##
+
 **milesguo** 千万不要被中共忽悠的回国！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/141476/
 
 [https://www.guo.media/posts/274909](https://www.guo.media/posts/274909) `2020-03-15T08:56:02`
@@ -31,9 +36,19 @@
 [https://www.guo.media/posts/274908](https://www.guo.media/posts/274908) `2020-03-15T08:56:03`
 ##
 
+**milesguo** 斯伯丁将军接受采访谈武汉病毒<br>https://gnews.org/zh-hans/141373/
+
+[https://www.guo.media/posts/274907](https://www.guo.media/posts/274907) `2020-03-15T09:40:15`
+##
+
 **milesguo** ‘唯物主义’对世界的毁灭力：未察觉的毁灭能力<br>https://gnews.org/zh-hans/141365/
 
 [https://www.guo.media/posts/274906](https://www.guo.media/posts/274906) `2020-03-15T08:56:05`
+##
+
+**milesguo** 2020年3月14日武汉冠状病毒大流行第50集<br>https://gnews.org/zh-hans/141334/
+
+[https://www.guo.media/posts/274901](https://www.guo.media/posts/274901) `2020-03-15T09:40:16`
 ##
 
 **milesguo** 中共体制老无所养病无所依，钱去哪了<br>https://gnews.org/zh-hans/141317/
@@ -46,9 +61,19 @@
 [https://www.guo.media/posts/274898](https://www.guo.media/posts/274898) `2020-03-15T08:56:09`
 ##
 
+**milesguo** 《武汉肺炎》西班牙将「全国封锁」 16日上午生效<br>https://gnews.org/zh-hans/141284/
+
+[https://www.guo.media/posts/274897](https://www.guo.media/posts/274897) `2020-03-15T09:40:18`
+##
+
 **milesguo** Fauci: 美国新冠病毒现行检测体制并不能真正适应我们的需要<br>https://gnews.org/zh-hans/141055/
 
 [https://www.guo.media/posts/274874](https://www.guo.media/posts/274874) `2020-03-15T08:56:10`
+##
+
+**milesguo** 修改证券交易规则，中共做好准备耍流氓，3.0之一就要实现了<br>https://gnews.org/zh-hans/140967/
+
+[https://www.guo.media/posts/274868](https://www.guo.media/posts/274868) `2020-03-15T09:40:19`
 ##
 
 **milesguo** 【武漢肺炎真相】3月14日视频合集<br>https://gnews.org/zh-hans/140944/
@@ -59,6 +84,11 @@
 **milesguo** 文字版2020年3月12日谈华尔街股市暴跌，世界资产重新分配<br>https://gnews.org/zh-hans/140908/
 
 [https://www.guo.media/posts/274866](https://www.guo.media/posts/274866) `2020-03-15T08:56:13`
+##
+
+**milesguo** 外资加紧抛售A股和中国国债，中共外汇更加吃紧，人民币贬值近在眼前<br>https://gnews.org/zh-hans/140903/
+
+[https://www.guo.media/posts/274865](https://www.guo.media/posts/274865) `2020-03-15T09:40:20`
 ##
 
 **milesguo** 2020年3月8日灭共者说中文字幕合集<br>https://gnews.org/zh-hans/140894/
