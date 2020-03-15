@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/274953](https://www.guo.media/posts/274953) `2020-03-15T21:10:12`
 ##
 
+**milesguo** 从财新关于冠状病毒的报道轨迹看中共的武汉肺炎宣传及控制路线图<br>https://gnews.org/zh-hans/141576/
+
+[https://www.guo.media/posts/274952](https://www.guo.media/posts/274952) `2020-03-15T21:40:12`
+##
+
 **milesguo** 共产党最后的收割！湖北省应城垄断菜价！防疫升级！引发群体抗议！<br>https://gnews.org/zh-hans/141553/
 
 [https://www.guo.media/posts/274916](https://www.guo.media/posts/274916) `2020-03-15T08:55:58`
