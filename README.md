@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274916](https://www.guo.media/posts/274916) `2020-03-15T08:55:58`
 ##
 
+**milesguo** 〘图揭大国真相〙从被逼迫的明星们看中共对“民众排外意识”的植入手法<br>https://gnews.org/zh-hans/141503/
+
+[https://www.guo.media/posts/274914](https://www.guo.media/posts/274914) `2020-03-15T11:10:12`
+##
+
 **milesguo** 文字版2020年3月13日船上分享美食和预告周六早上直播<br>https://gnews.org/zh-hans/141499/
 
 [https://www.guo.media/posts/274913](https://www.guo.media/posts/274913) `2020-03-15T08:56:00`
