@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/274906](https://www.guo.media/posts/274906) `2020-03-15T08:56:05`
 ##
 
+**milesguo** 石油危机必将是打开灭共之路中重要的一环<br>https://gnews.org/zh-hans/141346/
+
+[https://www.guo.media/posts/274905](https://www.guo.media/posts/274905) `2020-03-15T10:10:10`
+##
+
 **milesguo** 2020年3月14日武汉冠状病毒大流行第50集<br>https://gnews.org/zh-hans/141334/
 
 [https://www.guo.media/posts/274901](https://www.guo.media/posts/274901) `2020-03-15T09:40:16`
@@ -64,6 +69,11 @@
 **milesguo** 《武汉肺炎》西班牙将「全国封锁」 16日上午生效<br>https://gnews.org/zh-hans/141284/
 
 [https://www.guo.media/posts/274897](https://www.guo.media/posts/274897) `2020-03-15T09:40:18`
+##
+
+**milesguo** 《武汉肺炎》和川普通话没谈到奥运延期 安倍希望如期举办 玉碎也要办奥运!<br>https://gnews.org/zh-hans/141277/
+
+[https://www.guo.media/posts/274896](https://www.guo.media/posts/274896) `2020-03-15T10:10:12`
 ##
 
 **milesguo** Fauci: 美国新冠病毒现行检测体制并不能真正适应我们的需要<br>https://gnews.org/zh-hans/141055/
