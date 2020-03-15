@@ -61,6 +61,11 @@
 [https://www.guo.media/posts/274900](https://www.guo.media/posts/274900) `2020-03-15T08:56:07`
 ##
 
+**milesguo** 用事实驳斥中共外交部发言人赵志坚的谎言<br>https://gnews.org/zh-hans/141305/
+
+[https://www.guo.media/posts/274899](https://www.guo.media/posts/274899) `2020-03-15T10:25:11`
+##
+
 **milesguo** 《武汉肺炎》白宫医师：川普武汉肺炎检测呈阴性<br>https://gnews.org/zh-hans/141294/
 
 [https://www.guo.media/posts/274898](https://www.guo.media/posts/274898) `2020-03-15T08:56:09`
