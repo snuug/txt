@@ -121,6 +121,11 @@
 [https://www.guo.media/posts/274863](https://www.guo.media/posts/274863) `2020-03-15T08:56:16`
 ##
 
+**milesguo** Swagger：王岐山的金融诈骗术<br>https://gnews.org/zh-hans/140794/
+
+[https://www.guo.media/posts/274862](https://www.guo.media/posts/274862) `2020-03-15T12:25:20`
+##
+
 **milesguo** 2020年3月13日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/140512/
 
 [https://www.guo.media/posts/274826](https://www.guo.media/posts/274826) `2020-03-14T03:55:12`
