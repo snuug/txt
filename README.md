@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274954](https://www.guo.media/posts/274954) `2020-03-15T20:55:15`
 ##
 
+**milesguo** 全国红区的当下，意大利人生活纪实<br>https://gnews.org/zh-hans/141625/
+
+[https://www.guo.media/posts/274953](https://www.guo.media/posts/274953) `2020-03-15T21:10:12`
+##
+
 **milesguo** 共产党最后的收割！湖北省应城垄断菜价！防疫升级！引发群体抗议！<br>https://gnews.org/zh-hans/141553/
 
 [https://www.guo.media/posts/274916](https://www.guo.media/posts/274916) `2020-03-15T08:55:58`
