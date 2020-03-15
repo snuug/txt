@@ -11,6 +11,16 @@
 
 
 
+**milesguo** Warroom 44 史蒂夫·班农：川普总统为了抗疫在寻求平衡<br>https://gnews.org/zh-hans/141654/
+
+[https://www.guo.media/posts/274955](https://www.guo.media/posts/274955) `2020-03-15T20:55:13`
+##
+
+**milesguo** 川普总统：美国人可免费进行病毒测试<br>https://gnews.org/zh-hans/141646/
+
+[https://www.guo.media/posts/274954](https://www.guo.media/posts/274954) `2020-03-15T20:55:15`
+##
+
 **milesguo** 共产党最后的收割！湖北省应城垄断菜价！防疫升级！引发群体抗议！<br>https://gnews.org/zh-hans/141553/
 
 [https://www.guo.media/posts/274916](https://www.guo.media/posts/274916) `2020-03-15T08:55:58`
