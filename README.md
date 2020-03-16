@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 文字版2020年3月14日郭先生直播 爆料革命面临着重要选择，郭七条一定会改<br>https://gnews.org/zh-hans/142285/
+
+[https://www.guo.media/posts/275009](https://www.guo.media/posts/275009) `2020-03-16T08:40:11`
+##
+
 **milesguo** 《武汉肺炎》德国关闭边界 欧盟禁口罩出口! 欧洲发烧！ 6国锁国2国封城<br>https://gnews.org/zh-hans/142291/
 
 [https://www.guo.media/posts/275008](https://www.guo.media/posts/275008) `2020-03-16T08:25:23`
@@ -21,6 +26,11 @@
 [https://www.guo.media/posts/275006](https://www.guo.media/posts/275006) `2020-03-16T08:25:24`
 ##
 
+**milesguo** 3月15日 美国政要推文精选<br>https://gnews.org/zh-hans/142246/
+
+[https://www.guo.media/posts/275005](https://www.guo.media/posts/275005) `2020-03-16T08:40:13`
+##
+
 **milesguo** 好消息！疫苗要临床试验了！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/142166/
 
 [https://www.guo.media/posts/274997](https://www.guo.media/posts/274997) `2020-03-16T08:25:26`
@@ -29,6 +39,11 @@
 **milesguo** 湖北孝感社区上门送菜，竟然能饿死幼儿数天 无人发现 直至尸体发臭！<br>https://gnews.org/zh-hans/142141/
 
 [https://www.guo.media/posts/274996](https://www.guo.media/posts/274996) `2020-03-16T07:10:22`
+##
+
+**milesguo** 2020年2月12日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/142129/
+
+[https://www.guo.media/posts/274995](https://www.guo.media/posts/274995) `2020-03-16T08:40:14`
 ##
 
 **milesguo** 中国家长愚昧无知的集权教育！促使多少中国孩子走向死亡的深渊！<br>https://gnews.org/zh-hans/142043/
