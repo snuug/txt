@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 湖北孝感社区上门送菜，竟然能饿死幼儿数天 无人发现 直至尸体发臭！<br>https://gnews.org/zh-hans/142141/
+
+[https://www.guo.media/posts/274996](https://www.guo.media/posts/274996) `2020-03-16T07:10:22`
+##
+
 **milesguo** 中国家长愚昧无知的集权教育！促使多少中国孩子走向死亡的深渊！<br>https://gnews.org/zh-hans/142043/
 
 [https://www.guo.media/posts/274994](https://www.guo.media/posts/274994) `2020-03-16T06:10:12`
