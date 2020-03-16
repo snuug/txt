@@ -1,20 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本央行決定追加量化寬鬆，應對中共新冠病毒疫情
-`2020-03-16 03:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/142341/)
+## 【挖掘機團隊出品】南普陀會議邏輯導圖解讀！ ！ ！
+`2020-03-16 03:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/142352/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16033513/3-33.jpg)
-為了應對中共新冠病毒疫情對世界經濟的影響，3月15日，美國、歐盟、日本等國家和地區的6家央行，宣布將採取聯合行動增加資金供應。當日晚間， *美聯儲*緊急宣布將基準*利率降至*零，並啟動7000億美元規模的新一輪量化寬鬆計劃。
+**作者：DT挖掘機團隊**
 
-3月16日，日本央行臨時召開金融政策決定會議，時隔3年半再次決定追加量化寬鬆，將ETF（股票投資信託）購買規模從每年6萬億日元擴大到12萬億日元，並且增加購買企業發行的CP（商業票據）和公司債券，截至今年9月，將增加2萬億日元，公司債券購買額將增至4萬2000億日元，CP購買額將增至3萬2000億日元，支持企業資金周轉。同時還決定新增融資額度，截至今年9月，由民營金融機構增加零利率融資，支持營業額受疫情影響而下降的企業，RET（房地產投資信託）也由每年900億日元增加到1800億日元。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16034356/image0-152.jpg)
 
-日本央行原定於18日、19日召開金融政策決定會議，由於中共新冠病毒疫情擴大，導致經濟急劇惡化，因此首次提前召開，以穩定經濟。
+[**南普陀計劃**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16033943/%E5%8D%97%E6%99%AE%E9%99%80%E8%AE%A1%E5%88%92.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16033943/%E5%8D%97%E6%99%AE%E9%99%80%E8%AE%A1%E5%88%92.pdf)
 
-安倍首相稱讚日本央行採取了迅速適當的應對措施，日本政府的首要工作是穩定就業讓企業持續經營。今後，日本央行仍將與G7各國密切合作，採取必要且充分的經濟金融政策。
+**請點擊下載按鈕，下載文檔觀看！**
 
-[原文鏈接](https://www3.nhk.or.jp/news/html/20200316/k10012333711000.html?utm_int=news_contents_news-main_002)
-
-翻譯報導：匿名
+（文章內容僅代表作者觀點）
 
 0
