@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月16日：livestream.com/accounts/27235681．尊敬的战友们好！你们健身了吗？你们传播ccp武汉疫情．香港危机真相了吗？应战友们的要求．在一个半小时左右．文贵与战友们乱聊一下，一切已经开始！
+
+[https://www.guo.media/posts/275021](https://www.guo.media/posts/275021) `2020-03-16T14:10:20`
+##
+
 **milesguo** 文字版2020年3月14日郭先生直播 爆料革命面临着重要选择，郭七条一定会改<br>https://gnews.org/zh-hans/142285/
 
 [https://www.guo.media/posts/275009](https://www.guo.media/posts/275009) `2020-03-16T08:40:11`
