@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 中国家长愚昧无知的集权教育！促使多少中国孩子走向死亡的深渊！<br>https://gnews.org/zh-hans/142043/
+
+[https://www.guo.media/posts/274994](https://www.guo.media/posts/274994) `2020-03-16T06:10:12`
+##
+
+**milesguo** 德国因中共病毒 关闭部分边界<br>https://gnews.org/zh-hans/142087/
+
+[https://www.guo.media/posts/274991](https://www.guo.media/posts/274991) `2020-03-16T06:10:14`
+##
+
 **milesguo** 2020年3月15日武汉冠状病毒大流行第51集<br>https://gnews.org/zh-hans/142088/
 
 [https://www.guo.media/posts/274977](https://www.guo.media/posts/274977) `2020-03-16T04:55:14`
