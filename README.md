@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月15号：衷l心的感谢所有的战友……在全人类的危机面前……表现出的无私勇敢智慧……一切已经开始！
+
+[https://www.guo.media/posts/274964](https://www.guo.media/posts/274964) `2020-03-16T02:40:23`
+##
+
 **milesguo** 【武漢肺炎真相】共产党制造病毒\3月15日视频合集<br>https://gnews.org/zh-hans/141662/
 
 [https://www.guo.media/posts/274956](https://www.guo.media/posts/274956) `2020-03-15T22:25:10`
