@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 参议员汤姆·克顿：美国政府将重新审视中美关系<br>https://gnews.org/zh-hans/142418/
+
+[https://www.guo.media/posts/275042](https://www.guo.media/posts/275042) `2020-03-16T18:55:11`
+##
+
+**milesguo** 【武漢肺炎真相】共产党制造病毒\3月16日视频合集<br>https://gnews.org/zh-hans/142354/
+
+[https://www.guo.media/posts/275041](https://www.guo.media/posts/275041) `2020-03-16T18:55:13`
+##
+
+**milesguo** 【挖掘机团队出品】南普陀会议逻辑导图解读！！！<br>https://gnews.org/zh-hans/142342/
+
+[https://www.guo.media/posts/275036](https://www.guo.media/posts/275036) `2020-03-16T18:55:14`
+##
+
 **milesguo** 3月16日：livestream.com/accounts/27235681．尊敬的战友们好！你们健身了吗？你们传播ccp武汉疫情．香港危机真相了吗？应战友们的要求．在一个半小时左右．文贵与战友们乱聊一下，一切已经开始！
 
 [https://www.guo.media/posts/275021](https://www.guo.media/posts/275021) `2020-03-16T14:10:20`
