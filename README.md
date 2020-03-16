@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/274994](https://www.guo.media/posts/274994) `2020-03-16T06:10:12`
 ##
 
+**milesguo** 无耻！中共外交部又在污蔑美国<br>https://gnews.org/zh-hans/142096/
+
+[https://www.guo.media/posts/274993](https://www.guo.media/posts/274993) `2020-03-16T06:55:13`
+##
+
 **milesguo** 德国因中共病毒 关闭部分边界<br>https://gnews.org/zh-hans/142087/
 
 [https://www.guo.media/posts/274991](https://www.guo.media/posts/274991) `2020-03-16T06:10:14`
