@@ -1,12 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年2月12日滅共者說雙語字幕合集
-`2020-03-15 23:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/142135/)
+## 好消息！疫苗要臨床試驗了！ “共渡難關，武漢疫情每日熱線”
+`2020-03-16 00:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/142221/)
 
-•武漢疫情只要三條就解決。
-•不是疫災是黨災，相信共產黨就是找死。
-•全世界都會與中共永遠脫鉤。
-•挺共者將會特慘。
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
 0
