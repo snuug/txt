@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 谈谈在武汉肺炎面前的事急从权原则<br>https://gnews.org/zh-hans/141907/
+
+[https://www.guo.media/posts/274971](https://www.guo.media/posts/274971) `2020-03-16T03:55:47`
+##
+
+**milesguo** 大浪来了 美国利率2连降! Fed今晨紧急降息4码 启动7000亿美元量化宽松！<br>https://gnews.org/zh-hans/141967/
+
+[https://www.guo.media/posts/274970](https://www.guo.media/posts/274970) `2020-03-16T03:55:48`
+##
+
+**milesguo** 六位院士上当受骗的故事 ——红旗河西部调水工程、善林金融与庞氏骗局<br>https://gnews.org/zh-hans/141936/
+
+[https://www.guo.media/posts/274966](https://www.guo.media/posts/274966) `2020-03-16T03:55:49`
+##
+
 **milesguo** 八角棒槌：从粮食供需，看全民上街的前提<br>https://gnews.org/zh-hans/141904/
 
 [https://www.guo.media/posts/274965](https://www.guo.media/posts/274965) `2020-03-16T03:25:12`
