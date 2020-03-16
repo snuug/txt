@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 八角棒槌：从粮食供需，看全民上街的前提<br>https://gnews.org/zh-hans/141904/
+
+[https://www.guo.media/posts/274965](https://www.guo.media/posts/274965) `2020-03-16T03:25:12`
+##
+
 **milesguo** 3月15号：衷l心的感谢所有的战友……在全人类的危机面前……表现出的无私勇敢智慧……一切已经开始！
 
 [https://www.guo.media/posts/274964](https://www.guo.media/posts/274964) `2020-03-16T02:40:23`
