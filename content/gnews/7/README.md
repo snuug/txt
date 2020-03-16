@@ -1,37 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球降息，救不了股市，美國也可以利用打中共來解決國內問題
-`2020-03-16 10:25 小巴猪` [轉載自GNews](https://gnews.org/zh-hant/142504/)
+## 立武出品：中共外捐抗疫物資統計
+`2020-03-16 10:52 GM09` [轉載自GNews](https://gnews.org/zh-hant/142528/)
 
-很多人說現在美聯儲又降息，又回到2008年的時候，但是現在和2008年的時候完全不同。
+为什么一个月前中国人没口罩用？因为中共把口罩收缴了。最近几天中共在热炒‘二次爆发’，那么二次爆发的时候，中国人会有口罩用吗？
 
-2007年下半年開始美國次貸危機爆發，然後美聯儲連續降息，到2008年12月，一共降了10次，從5.25%一直降到0.25，但是美聯儲的負債從8千多億美元增加到兩萬多億美元，而現在已經超過4.5萬億美元。
+以下是中共官方对外撒防护物资的证据：
 
-![https://z1.dfcfw.com/2020/2/4/202002041944361384463615.jpg](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16102105/11-4.jpg)
+1. 3月16日，西班牙温州同乡会会长李欣瑜、李萜、黄胜华把共计250个N95口罩，100瓶100ml的消毒手液，300个三层医用口罩捐给马德里市中心医院。
+2. 3月15日，OPPO宣布向德国法国意大利西班牙日本等捐赠30万只口罩。
+3. 3月14日，蓝河集团对外宣布向意大利捐赠价值240万元的医疗物资，包括4万个N95口罩、1800套医用防护服、25万双医用手套等。
+4. 3月13日，三一集团向德国捐赠5万只口罩；万得向海外捐赠6万只口罩，中联重科向意大利捐赠5万只口罩；浙江苍南向意大利捐献20万只防护口罩。
+5. 3月12日，黑龙江向日本捐赠2万只口罩；马云准备向美国捐赠100万只口罩和50万份检测试剂盒；江苏盐城支持4家韩国企业总部30万只口罩。
+6. 3月11日，沈阳向日本札幌捐赠2.5万只口罩；苏宁向意大利捐赠30万只口罩，马云企业筹集180万只口罩和10万个病毒检测试剂盒捐赠给欧洲、10万只口罩给日本；中国潘氏宗亲通过潘基文基金会向韩国捐赠10万医用口罩；江苏省将向韩国、日本、意大利友城及友好交流地区捐赠50万只一次性医用外科口罩。
+7. 3月10日，中国中小企业国际合作协会向韩国创业加速器协会捐赠6000枚口罩；中共将于3月10日起向韩国出口口罩，首批500万只，包括普通医用口罩和N95口罩。
+8. 3月8日，瓯海区连夜准备了10万只医用口罩和其他预防新冠肺炎医药物资，运往意大利米兰。
+9. 3月6日，中共计划援助韩国110万只口罩，包括10万只N95口罩、100万只医用外科口罩。另外还有1万套医用防护服，以及5万人份检测试剂。马云向伊朗捐赠100万只口罩。
+10. 3月5日，马云向韩国捐赠100万只口罩；北京江苏企业商会向韩国捐赠10000防护服、100000只口罩、2000件消毒液；广东台铃电动车集团向韩国捐赠10000只口罩
+11. 3月4日，青田县和丽水市向意大利总共捐赠201600只口罩；江苏悦达集团携手东风悦达起亚向韩国大邱捐赠50000只医用口罩。
+12. 3月3日，浙江向韩国捐赠包括61200只医用防护口罩、1000件防护服、5000个护目镜、19200片医用纱布等价值23万人民币的防疫物资；南京亦向韩国捐赠2000套防护服、2000套隔离服、5万只口罩、一套人工智能CT诊疗系统。
+13. 3月2日，马云向日本捐赠100万只口罩；上海向韩国捐赠50万只口罩；大象联盟向韩国捐赠价值140万的防疫物资。
+14. 3月1日，中共向日本捐赠5000套防护服和10万只口罩。
+15. 2月29日，中共向伊朗捐赠5万个检测试剂盒和携氧设备，加上之前中国驻伊朗大使馆和在伊中资企业捐赠的25万只口罩及5000人份核酸检测试剂盒。
+16. 2月27日，上海市向大邱市和庆尚北道赠送50万只口罩，其中10万只为医用，40万只为KN95口罩；中共使馆紧急捐赠韩国大邱2.5万个口罩。
+17. 2月25日，中共驻伊朗大使馆25日向伊朗卫生和医疗教育部捐赠25万只口罩。
+18. 2月3日，菲律宾感谢中共捐赠20万只口罩。
+19. 1月17日，中共再次向菲律宾捐赠12000只防尘口罩。
+20. 1月15日，中共驻菲大使馆和中共海警再次向菲律宾捐赠2800只防尘口罩。
+21. 1月14日，中共驻菲律宾大使馆向菲律宾首都马尼拉市赠送千只N95型号口罩。
 
-奧巴馬時期，也是希望通過讓老百姓增加消費來拉動經濟，因為凡是智力正常的人都明白，只有每個老百姓強大了、富裕了，這個國家的經濟再能真正的繁榮，但是問題在於，由於長期大量的放水，大量的錢都去了金融和房地產市場，這就推高了股市和房地產。
 
-2018年的時候美聯儲宣布要退出QE，要加息，要把放出去的錢收回來，這樣直接造成的結果就是美元升值，因為流動性減少了，對應的其他國家的貨幣就是貶值，比如阿根廷，直接爆跌，因為美元被抽走了，等阿根廷這些國家的資產跌的一文不值的時候，美元還會回來收購，等到資產價格過高的時候，就再把美元抽走，這樣循環往復。
+链接：
 
-但是現在情形不一樣，美聯儲正常的話應該是處於一個加息的周期上，就是減少美元流動性，把放出去的錢收回來，利息高了，市場上錢少了，融資成本高了，美元升值了，這樣應該會導致股市下跌，等跌的差不多的時候，再往外放，這樣股市又漲回去，漲的差不多了再收，如此循環往復。
+[http://www.chinaqw.com/hqhr/2020/03-16/249696.shtml](http://www.chinaqw.com/hqhr/2020/03-16/249696.shtml)
 
-但是遇到了貿易戰，甚至美國還要為未來有可能發生的熱戰做準備，川普還希望刺激美國人消費，讓股市漲一直漲，讓美國人消費增加一直增加，這樣美國就偉大了。
+[http://finance.sina.com.cn/stock/relnews/cn/2020-03-16/doc-iimxyqwa0813700.shtml](http://finance.sina.com.cn/stock/relnews/cn/2020-03-16/doc-iimxyqwa0813700.shtml)
 
-但是又遇到了武漢肺炎，一場疫情，讓這一切來了個180度的大轉彎。
+[http://finance.sina.com.cn/wm/2020-03-14/doc-iimxyqwa0315128.shtml](http://finance.sina.com.cn/wm/2020-03-14/doc-iimxyqwa0315128.shtml)
 
-按理說應該跌的股票你非讓他漲，按理說應該上漲的股票出現暴跌，為什麼呢？從2018年開始，世界已經變了，以往的規律已經不好使了，中國有句話叫“不確定性因素”越來越大。
+[https://new.qq.com/omn/20200315/20200315A04S6500.html](https://new.qq.com/omn/20200315/20200315A04S6500.html)
 
-這時候美聯儲和全球這些央行怎麼救市呢？還是放水，降息1個百分點到0%至0.25%之間，這已經是到底了，2007年到2008年降了10次，今年這一次就已經到底了，後面你還有的可降嗎？
+[http://you.kantsuu.com/202003/20200314070417\_763415.shtml](http://you.kantsuu.com/202003/20200314070417_763415.shtml)
 
-2008年的時候流動性緊縮你往裡註水，金融機構手里大量的爛賬你給他收購了都算你頭上，然後問題就解決了，大家都不再恐慌，市場恢復正常，2009年美國股市就漲超過了2008年。
+[https://baijiahao.baidu.com/s?id=1661308409593690737&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1661308409593690737&amp;wfr=spider&amp;for=pc)
 
-這次全球恐慌是武漢肺炎病毒造成的，美聯儲有辦法解決嗎？解決不了市場上的恐慌情緒，你自己又沒有可以再繼續降息的空間了，再加上這些年金融和房地產積累起來的泡沫破滅，後面股市一定會一瀉千里。
+[http://finance.sina.com.cn/stock/relnews/hk/2020-03-16/doc-iimxxstf9413424.shtml](http://finance.sina.com.cn/stock/relnews/hk/2020-03-16/doc-iimxxstf9413424.shtml)
 
-再這樣繼續下去，即便中共不開戰，美國、日本這些國家都有可能找機會來奏中共了，因為他們也需要轉移矛盾，也會考慮使用戰爭手段刺激經濟。
+[https://3g.163.com/news/article\_cambrian/F7K1V5JF0534AAPM.html](https://3g.163.com/news/article_cambrian/F7K1V5JF0534AAPM.html)
 
-最簡單的例子，如果川普宣布跟中共開戰，那麼他可以明正言順的要求美國企業回流，給這些企業大把的訂單，製造業回來了，老百姓更有潛力，把中共也打殘了，這是解決中共以及美國國內問題的一個可以選擇的辦法。
+[http://www.jiangsu.gov.cn/art/2020/3/12/art\_60085\_9008411.html](http://www.jiangsu.gov.cn/art/2020/3/12/art_60085_9008411.html)
 
-（文章僅代表作者觀點）
+[http://www.js.xinhuanet.com/2020-03/13/c\_1125708988.htm](http://www.js.xinhuanet.com/2020-03/13/c_1125708988.htm)
+
+[https://baijiahao.baidu.com/s?id=1660976658676733295&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660976658676733295&amp;wfr=spider&amp;for=pc)
+
+[http://finance.ifeng.com/c/7umUIm3rDym](http://finance.ifeng.com/c/7umUIm3rDym)
+
+[http://finance.sina.com.cn/stock/relnews/us/2020-03-14/doc-iimxxstf8937269.shtml](http://finance.sina.com.cn/stock/relnews/us/2020-03-14/doc-iimxxstf8937269.shtml)
+
+[http://news.66wz.com/system/2020/03/09/105245537.shtml](http://news.66wz.com/system/2020/03/09/105245537.shtml)
+
+[http://finance.sina.com.cn/chanjing/gsnews/2020-03-11/doc-iimxyqvz9514337.shtml](http://finance.sina.com.cn/chanjing/gsnews/2020-03-11/doc-iimxyqvz9514337.shtml)
+
+[https://baijiahao.baidu.com/s?id=1660930005424761163&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660930005424761163&amp;wfr=spider&amp;for=pc)
+
+[http://www.chinasme.org.cn/n487/c1188547/content.html](http://www.chinasme.org.cn/n487/c1188547/content.html)
+
+[https://baijiahao.baidu.com/s?id=1660380341265488817&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660380341265488817&amp;wfr=spider&amp;for=pc)
+
+[https://baijiahao.baidu.com/s?id=1660750187780038876&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660750187780038876&amp;wfr=spider&amp;for=pc)
+
+[https://baijiahao.baidu.com/s?id=1660423297862676718&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660423297862676718&amp;wfr=spider&amp;for=pc)
+
+[https://baijiahao.baidu.com/s?id=1660824598873724877&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660824598873724877&amp;wfr=spider&amp;for=pc)
+
+[http://korea.people.com.cn/BIG5/n1/2020/0310/c431815-31625335.html](http://korea.people.com.cn/BIG5/n1/2020/0310/c431815-31625335.html)
+
+[http://news.qqddc.com/html/news/202003/news\_58602.html](http://news.qqddc.com/html/news/202003/news_58602.html)
+
+[https://baijiahao.baidu.com/s?id=1660315951613466490&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660315951613466490&amp;wfr=spider&amp;for=pc)
+
+[http://news.jstv.com/a/20200305/82ac6229dde943bea6a5f9fb8e2c95a0.shtml](http://news.jstv.com/a/20200305/82ac6229dde943bea6a5f9fb8e2c95a0.shtml)
+
+[http://www.chinaqw.com/hqhr/2020/03-03/247706.shtml](http://www.chinaqw.com/hqhr/2020/03-03/247706.shtml)
+
+[https://baijiahao.baidu.com/s?id=1660138598960836532&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660138598960836532&amp;wfr=spider&amp;for=pc)
+
+[https://baijiahao.baidu.com/s?id=1660101814050569711&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1660101814050569711&amp;wfr=spider&amp;for=pc)
+
+[http://sh.sina.com.cn/news/m/2020-03-04/detail-iimxxstf6284397.shtml](http://sh.sina.com.cn/news/m/2020-03-04/detail-iimxxstf6284397.shtml)
+
+[https://baijiahao.baidu.com/s?id=1659972693554622862&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1659972693554622862&amp;wfr=spider&amp;for=pc)
+
+[http://k.sina.com.cn/article\_2622472937\_9c4fc2e9001017nkc.html](http://k.sina.com.cn/article_2622472937_9c4fc2e9001017nkc.html)
+
+[http://cn.chinadaily.com.cn/a/202003/13/WS5e6b5efda3107bb6b57a65cd.html](http://cn.chinadaily.com.cn/a/202003/13/WS5e6b5efda3107bb6b57a65cd.html)
+
+[http://news.sina.com.cn/c/2020-02-27/doc-iimxxstf4873333.shtml](https://news.sina.com.cn/c/2020-02-27/doc-iimxxstf4873333.shtml)
+
+[http://world.people.com.cn/n1/2020/0227/c1002-31606363.html](http://world.people.com.cn/n1/2020/0227/c1002-31606363.html)
+
+[https://baijiahao.baidu.com/s?id=1657681573477292310&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1657681573477292310&amp;wfr=spider&amp;for=pc)
+
+[https://baijiahao.baidu.com/s?id=1656145784339981204&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1656145784339981204&amp;wfr=spider&amp;for=pc)
+
+
 
 0
