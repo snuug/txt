@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 《武汉肺炎》德国关闭边界 欧盟禁口罩出口! 欧洲发烧！ 6国锁国2国封城<br>https://gnews.org/zh-hans/142291/
+
+[https://www.guo.media/posts/275008](https://www.guo.media/posts/275008) `2020-03-16T08:25:23`
+##
+
+**milesguo** 好消息：美国官员透露说新冠状病毒疫苗试验于周一开始<br>https://gnews.org/zh-hans/142271/
+
+[https://www.guo.media/posts/275006](https://www.guo.media/posts/275006) `2020-03-16T08:25:24`
+##
+
+**milesguo** 好消息！疫苗要临床试验了！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/142166/
+
+[https://www.guo.media/posts/274997](https://www.guo.media/posts/274997) `2020-03-16T08:25:26`
+##
+
 **milesguo** 湖北孝感社区上门送菜，竟然能饿死幼儿数天 无人发现 直至尸体发臭！<br>https://gnews.org/zh-hans/142141/
 
 [https://www.guo.media/posts/274996](https://www.guo.media/posts/274996) `2020-03-16T07:10:22`
