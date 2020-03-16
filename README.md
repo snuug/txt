@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/274976](https://www.guo.media/posts/274976) `2020-03-16T04:55:15`
 ##
 
+**milesguo** 疫情之下中共48万亿新基建投资之末路狂花<br>https://gnews.org/zh-hans/141964/
+
+[https://www.guo.media/posts/274974](https://www.guo.media/posts/274974) `2020-03-16T05:10:12`
+##
+
 **milesguo** 人权红利 – 序言<br>https://gnews.org/zh-hans/142008/
 
 [https://www.guo.media/posts/274973](https://www.guo.media/posts/274973) `2020-03-16T04:55:16`
