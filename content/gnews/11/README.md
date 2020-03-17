@@ -1,21 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 毒源之說盡顯中共流氓本色，美嚴正警告停止散播荒誕謠言
-`2020-03-17 09:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143244/)
+## 美國知道武漢病毒從哪來的嗎？
+`2020-03-17 09:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/143246/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17090735/Picture-1-15.png)
-中美兩大世界經濟體的關係由於貿易戰，知識產權和新聞自由等分歧的加劇，已經使兩國的關係愈發複雜化，而如今的中共冠狀病毒全球的大爆發更讓兩國關係經受嚴峻考驗。
+[https://spark.adobe.com/page/2zZ8UPvk98oHY/](https://spark.adobe.com/page/2zZ8UPvk98oHY/)
 
-美國務院發言人摩根·奧爾塔古斯(Morgan Ortagus)說：“國務卿彭佩奧先生與中國外交部高級負責人楊潔篪在電話裡轉達了美方對中共散播虛假信息的怪誕謠言的強烈反對，同時也嚴歷譴責中方試圖把中共冠狀病毒的過錯轉嫁給美方的作法。是全世界所有國家共同抗疫的關鍵時刻。”
+## **班農作戰室 PANDEMIC EP-44 精選**
 
-上週五，美國就此緊急召見了中共駐美大使崔天凱，針對中共提出病毒可能是美國軍方帶入武漢的說法表示抗議，並由美國負責東亞的高級外交官大衛. 斯蒂爾維爾（David Stilwell）送交給中共駐美大使崔天凱一份嚴厲的陳述書。
+班農作戰室Pandemic EP44 談及CCP企圖炮製和污衊武漢病毒源於美國，對此川普總統做出了相應的回復。
 
-**譯評：** 
-不论中共如何的狡辯和反驳，事實上這場源於中共武漢并席捲全球性大瘟疫大災難就是中共早期掩蓋真相，未公開疫情信息以及沒及時採取防護措施而導致的。
+- CCP毋庸置疑是美國的敵人。
+- 川普表示中國和美國都知道武漢病毒的來源。
+- 川普沒有像其他政要一樣攻擊中共和習的目的是平衡。
 
-**[原文鏈接](https://www.reuters.com/article/health-coronavirus-china-pompeo/pompeo-conveyed-strong-u-s-objections-to-beijing-over-covid-19-accusations-idUSL1N2B952M)**
 
-**翻譯報導：**人間四月
+
+
+- 參議員湯姆·科頓呼籲中共有責任公開武漢P4實驗室所有相關信息，只有瞭解所有真相才能研發疫苗找到解藥。
+- 中共的官媒開始引導輿論栽贓病毒有可能來自美國軍方。
+- 崔大使被不尋常地叫到美國國務院，不知這位毫無信用的大使如何應對？
+
+
+
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
