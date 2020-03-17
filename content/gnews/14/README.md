@@ -1,21 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從馬雲捐口罩得到的教訓！
-`2020-03-16 13:11 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/142580/)
+## 共機臨空! 台灣國防部：多架中共軍機今夜飛越台灣西南海域 嘉義及台南基地戰機升空警戒攔截!
+`2020-03-16 13:56 GM15` [轉載自GNews](https://gnews.org/zh-hant/142623/)
 
-[https://spark.adobe.com/page/kGAvy17F2cMCK/](https://spark.adobe.com/page/kGAvy17F2cMCK/)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/16135030/phpvXvS2R.jpg)![中國「空警500」預警機今晚7點左右在台灣西南方海域進行飛行訓練，一度接近我防空識別區。（圖擷取自維基百科）](https://img.ltn.com.tw/Upload/news/600/2020/03/16/php66Apyg.jpg)
+國防部今（16）日證實，中國多架戰機罕見在今晚7點飛越台灣西南海域，國軍偵獲中共空警500、殲11等型機，共軍是在執行夜間飛行訓練，期間曾接近台灣防空識別區（ADIZ），經我空中偵巡戰機適切應對，實施廣播驅離後，共機飛離我防空識別區。
 
-### **班農作戰室 PANDEMIC EP-42 精選**
+據了解，大陸多架戰機，今晚在西南方海域直接貼著海峽中線飛，我方多架戰機自嘉義及台南基地升空警戒攔截。據了解，大陸軍機向來非常罕見會進行夜航訓練，因此今晚狀況相當罕見。
 
-史蒂夫·班农（Steve Bannon）与 杰克·麦克西（Jack Maxey）对谈有关馬雲基金將向美國捐贈數千台呼吸機、50萬個測試套件和一百萬個口罩一事。
+國防部強調，國軍運用聯合情監偵作為，對於台海周邊海空域狀況，均能全程監偵，充分掌握與應處，護衛國土安全，籲請國人放心。
 
-從 **SARS** 到 **CoronaVirus**，究竟有多少人被感染，有多少人喪生， 沒有人知道。 中共已經在世人面前完全失信。美國從中得到怎樣的教訓？
+引自[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3101919)
 
-
-
-杰克·麦克西（Jack Maxey）与史蒂夫·班农（Steve Bannon）在作战室共同主持了《大流行》节目。杰克（Jack）是作战室的研究负责人，并一直领导着有关冠状病毒的的报道。
-
-編輯：【喜馬拉雅戰鷹團】
+GM15
 
 0
