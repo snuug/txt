@@ -1,35 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中官員質疑美軍帶進病毒 川普：中國指稱美軍將病毒帶入中國的訊息是錯誤的!
-`2020-03-17 19:03 GM15` [轉載自GNews](https://gnews.org/zh-hant/143568/)
+## 武漢新型冠狀病毒爆發被隱藏的真相
+`2020-03-17 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143647/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190203/Noname-13.jpg)
-> The United States will be powerfully supporting those industries, like Airlines and others, that are particularly affected by the Chinese Virus. We will be stronger than ever before!
-> — Donald J. Trump (@realDonaldTrump) [March 16, 2020](https://twitter.com/realDonaldTrump/status/1239685852093169664?ref_src=twsrc%5Etfw)
-
-
-
-對於中國官員質疑美軍將病毒帶入武漢，美國總統川普今天斥責中國發布的訊息錯誤。他也捍衛自己使用「中國病毒」一詞表示，病毒確實來自中國，這是非常準確的用詞。
-
-川普昨天傍晚在推文上首度使用「中國病毒」（Chinese Virus）稱呼2019年冠狀病毒疾病（COVID-19，武漢肺炎），中國外交部發言人耿爽回應指出，近來美國一些政客把新冠病毒同中國相聯繫、搞污名化，中方強烈憤慨、堅決反對。
-
-川普在今天的記者會上被問及此事的看法以及是否會繼續使用「中國病毒」時表示，中國指稱美軍將病毒帶入中國的訊息是錯誤的。
-
-他表示，會使用「中國病毒」是因為這是病毒的來源地，病毒確實來自中國，「所以我想這是個非常準確的用詞」。
-
-川普也表示，不喜歡中國指稱病毒是美軍帶入的說法，美軍沒有將病毒傳給任何人。
-
-對於外界批評使用「中國病毒」有污名化的意味，川普也捍衛立場表示，中國質疑美軍帶入病毒才是對美軍的污名化。
-
-中國外交部發言人趙立堅12日以中英雙語連發多條推文，質疑美軍將病毒帶到武漢，並說「美國欠我們一個解釋」，引發美國政府強烈不滿。
-
-美國國務卿蓬佩奧（Mike Pompeo）昨天與中共中央外事工作委員會辦公室主任楊潔篪通電話時，對北京散播美軍帶入病毒一事表達強烈反對，呼籲北京不要散布不實訊息和荒誕謠言。
-
-美國國務院亞太助卿史達偉（David Stilwell）13日也曾召見中國駐美國大使崔天凱，對北京當局暗示2019冠狀病毒是由美軍帶進武漢一事表達強烈抗議。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3103365)
-
-GM15
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17185937/83D57615-DBA4-472A-A5D1-5EF0815BE920.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190026/799B29EF-6A02-4E48-BE1A-3EF621FFF76D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190446/08936B6D-325B-4461-A2A6-4A29EBAFAA9D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190509/E20FB7CD-AE1B-4FF2-A2B2-CC10D2BAB9B7.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190536/73C88BA1-A58D-41E6-A36C-59C30BFEEA7B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190602/5470BDFD-6515-440E-93B4-3F544A49F959.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190624/4329D914-5EA9-49F3-AE08-2FC611F8DA4C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190649/865B45D6-0BAB-4BBC-9C85-DFF2E0B87AA2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190708/74BBB0E3-0E4B-4CD8-9627-62CC933484F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190734/2D3374FE-1BA9-4869-92F8-45B995720DA3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190800/412F0974-BF30-493E-A7F7-1BC4B59C93B8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190824/6225396B-3C3A-406D-B7BF-B88371957EB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190846/90A431BF-0049-4E60-8F12-338DC60C482A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190913/E64D9C7E-5066-4364-8354-C5AB0228D242.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190951/5C1DFB4D-006D-450B-979D-81538EF19599.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191025/6174825A-9129-4B98-94C8-E778C9ABE567.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191047/165FF6CB-CB4E-41C0-92D2-F9E8F4AB4F9F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191114/BFC5EABA-DBE5-41A9-B5AA-2540333A2A32.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191139/343D0D26-72CF-4490-9514-3AE09D068E93.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191202/39F84DE3-DC38-4798-8399-339082C09F7D.jpeg)
+作者：牆內戰友
 
 0
