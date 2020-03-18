@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共产党制造病毒\3月18日视频合集
-`2020-03-18 06:32 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/144236/)
+## 非典的謎團，是否也是中共製造的？
+`2020-03-18 07:17 小巴猪` [轉載自GNews](https://gnews.org/zh-hant/144251/)
 
-没钱治武汉肺炎选怎轻声、北京一个干休所里有136个干部子女在国外 现在开始返回、网友介绍隔离点真实环境、为了躲避城管防疫部门打砸抢 被逼凌晨开夜市、等等····
+雖然非典已經過去很多年了，但是其中的很多疑點到現在還沒有解開，很多時候甚至讓人懷疑，非典也是中共製造出來害人的。
 
+根據網絡上公開的信息，非典事件有這樣幾大疑點：
 
+第一：中間宿主成謎，到現在也沒有發現SARS的中間宿主到底是什麼，也沒再出現自然界中感染SARS的事件，這個很不尋常。
 
-**视频制作不易、请大家传播疫情真相！拯救更多同胞！**
+我就舉一個例子，中東呼吸綜合症，中東呼吸綜合徵的中間宿主是單峰駝，這種病毒首先在中東地區的單峰駝身上傳播，然後人接觸單峰駝的時候有一定概率傳播給人，在這片地區上你去接觸所有單峰駝都有可能被感染，這就是中間宿主。但SARS不是，假如果子狸是中間宿主，那麼在很大一片區域內，只要人去接觸果子狸就有可能被感染。
 
-武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
- 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
- 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
- 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
- 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
- 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
- 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
- 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
- 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
- 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+SARS之所以一直不能確定中間宿主是什麼，原因就是再也沒有人或者根本沒有人是被野生動物傳播的，也就找不到中間宿主，那麼不是從動物身上傳播的，病毒是從哪來的呢？
+
+第二：官方解釋矛盾，SARS爆發是在廣東省佛山市，到2017年石正麗發布了一份報告，說在雲南省一處洞穴裡發現的菊頭蝠種群，找到了當年逞兇的SARS病毒的全部基因組組分，該病毒可以透過受體ACE2感染人類、果子狸、蝙蝠的細胞。
+
+也就是說SARS有可能不需要中間宿主就可以直接傳給人，但是又說距離那個洞穴不遠就有村子。
+
+這裡就很矛盾了，官方既然想告訴人們這個病毒不一定需要中間宿主就可以傳給人，那麼為什麼在蝙蝠附近的人始終沒有的病，而在廣東的人卻得病了呢？
+
+病毒到底是蝙蝠直接傳出去的？還是通過中間宿主傳出去的？這裡非常矛盾。
+
+第三：是否涉及中共內部政治鬥爭？ SARS和現在武漢肺炎爆發的時間點都跟中共內部政治鬥爭的關鍵時間點有關聯。
+
+2003年胡錦濤上任當中共總書記，江澤民退而不休，希望一直把持中國軍政大權，那麼他就要打擊胡錦濤，給他製造麻煩，讓他製造問題讓他解決不了，同時給自己人創造機會上位。
+
+王岐山在擔任北京市長以前早就跟江家勾結上了，他又跟朱鎔基是一條線上的，所以不排除江澤民和朱鎔基創造機會讓王岐山上位這種可能，第一是給自己找接班人，第二是希望利用王岐山制約胡錦濤，畢竟北京是首都，位置非常關鍵。
+
+武漢肺炎事件也有雷同支出，爆發的時間點非常關鍵，一方面香港抗議事件解決不了，貿易戰打的稀巴爛解決不了，黨內鬥爭白熱化江家有被習滅掉的危險，這個時候武漢肺炎爆發出來。
+
+整個武漢肺炎事件，從病毒製造到後面一些列的運作，整件事出來講話的關鍵人物，都和中科院有千絲萬縷的關聯，幾乎可以認定背後就是中科院，再往後面就是江綿恆，所以有理由懷疑，武漢肺炎事件是江綿恆主導的。
+
+所以你看，兩次病毒事件，都是在江家遇到危機的時候，都在創造條件讓江家自己人上台，都在打擊江家的政治對手。
+
+根據這些疑點，很有可能，SARS和武漢肺炎都是江家搞出來打擊政治對手的，當然這次也針對香港人。
+
+（文章僅代表作者觀點）
 
 0

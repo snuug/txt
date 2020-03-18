@@ -1,98 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月17日中共冠狀病毒新聞總匯：川普強硬回應“中國病毒”，歐美疫情嚴重，經濟刺激政策起效，解藥進展
-`2020-03-18 07:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144279/)
+## 雙修黨表情包｜雙修黨陳峰/仁波切王岐山/我是花和尚姑娘你別怕孫力軍
+`2020-03-18 08:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144453/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18074804/B6207C47-6AB0-4984-8F92-2012BE232FE3.jpeg)
-**白宮** ：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084422/F647B3A1-6D8A-4F6A-958C-47884BE2065D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084415/D5594B9B-A28B-4C9F-95A9-C1ABEE14D43B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084357/8A85B770-6603-415F-AEE6-8539929C58AD.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084336/B4C3B616-168E-4066-8194-3843751BE944.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084327/BB148356-6862-41B5-A8B8-00DCF83059A2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084306/5144CC6F-2B53-4A41-A0A0-09F0BFDCEB5A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084248/9DB4A5E1-6204-42BA-9252-9C7061F7531B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084236/2EF747D1-9284-4213-A14D-BCF040E1B3FB.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084223/F432E5BC-4F23-4550-87BD-C4D08AF8DB4A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084211/E7201C60-B91E-4DD5-A7B8-1DB93BA3A4BB.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084200/63CFE19A-1865-4309-8130-D69B767F06F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084148/3CAD5FB2-CCFD-46EE-9A45-62F893045B20.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084101/A6D5DED1-46FB-490B-87B2-0EF93AF2C476.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084136/61E6D460-24C2-4F6B-8526-F93CA68CB906.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084124/F1148FF8-9BED-4A83-BF56-A3B037A2FA71.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084110/093CCA19-52D2-49C5-8403-B4B730ED1B6E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084051/4EA6790A-90DE-42FB-8680-C6F19AE5F5E4.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084039/04CEC493-F02B-490E-9150-E419D5CDD87C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084024/C755A743-D299-4D1E-BDC0-7AE7F0EFA079.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18084000/EC8ED161-1D4D-4258-B063-E677477C109F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083943/8AA5C68D-5FDB-4D89-9816-357E5424B441.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083911/B1CDF81A-4C4D-4689-BE55-70F40A9617D0.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083933/C0D0DE2A-525A-416A-8E0F-091BFF0A7623.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083710/423ED08A-B672-403B-A443-206B3D5DC555.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083646/EB142C66-6582-4664-9500-3C7C2AE9D9C9.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18083634/9EBE8B3A-EB4A-44C6-8915-7229480D4288.jpeg)
 
-1. 昨晚，特朗普總統發表推特點名“中國病毒”，中國外交部回應表達強烈憤慨。也有人指出中國使用雙重標準，中國一直稱豬流感為“非洲豬流感”。
-
-2. 今天，特朗普總統將他“中國病毒”的措辭變得更嚴厲了，基本上證實了他的原始推文完全是有意的（由於中國一再的侮辱和對所謂病毒源自美國的謊言的回應）。同時也提醒美國人民注意病毒不是特朗普的錯，現在一些自由主義者的一些舉動像是說病毒是特朗普在生物武器實驗室做出來的東西一樣。
-
-3. 特朗普表示他已經同美國快餐巨頭會面了，還將與零售商CEO們見面。
-
-4. 白宮幕僚長麥克·馬瓦尼因為其侄女接觸了感染的巴西官員現在已自我隔離。
-
-**投資市場：**
-
-1. 白宮證實一項8500億美元的龐大計劃正在進行中，目標將現金交到每個普通的美國人手中，同時也將為航空業提供救助。林賽·格雷厄姆（Lindsey Graham）對現金政策表示反對。
-
-2. 儘管華爾街一直警告客戶不要追跌，美元股票期貨在周一劇烈下滑後終於穩定。今天並無大事發生，日本交易員的入場似乎是由於白宮的刺激政策符合他們的期待。開盤後，路透社匿名消息稱，有可能最早於今天美聯儲將恢復商業票據的融資設施。
-
-3. 歐洲區，儘管G-7承諾的“將會採取任何措施（保護市場）”沒有在當地起到什麼作用，但四千一百億歐元的救助計劃似乎使市場變得穩定了。
-
-4. 標普公司警告疫情可能會帶來經濟突發蕭條。
-
-5. 英國首相鮑里斯宣布一個價值3300億英鎊的大規模的經濟救助計劃和一個新法律草案，以加強警察隔離疫情的權力。
-
-6. 禁止做空引發了惡性循環的風險，禁止做空雖然可能有助於取得短期收益，但在禁令消失的那一刻，自然的“價格發現”過程突然重新出現之後，所有的市場壓力將會一併襲來。意大利週五禁止做空85支股票，然後周一又宣布24消失禁令，現在在考慮將禁令延長至90天。
-
-**好消息** ：
-
-1. 再生元製藥公司報告說，針對冠狀病毒感染的“基於抗體的”治療方法的測試可能已經準備就緒，可以在夏季初進行最後一輪臨床測試，可能會在2010年夏天結束時推出一種藥物。
-
-2. 輝瑞同時宣布，它將與一家瑞士生物技術公司合作，使用類似於Moderna的技術生產疫苗。
-
-3. 瑞士製藥公司羅氏已進行了約40萬次測試。
-
-4. 北京也報導說，另一項抗病毒藥物的中國試驗顯示了“讓人有希望的結果”。
-
-**美國疫情：**
-
-1. 國防部長馬克·埃斯佩（Mark Esper）說，海軍正在準備其兩艘醫院艦船，以在必要時幫助應對病毒。特朗普總統此前表示白宮正在“考慮”動員陸軍工程兵團，其有能力建造應急移動軍隊手術醫院，並可幫助將建築物改造成檢疫部隊和臨時醫院。埃斯佩同時表示軍方可以向全國各地的醫院分發超過500萬台呼吸器和其他必要的醫療設備，以及另外2,000台專用呼吸機。五角大樓可開放16個實驗室來測試病毒，並可能招募更多的國民警衛隊和預備役人員。
-
-2. 美國50州都出現確診病例，多地進行了“封城”，紐約也在考慮中。 “封城”下所有重要需求仍可正常進行，如室外運動，購買日用品、食物，藥物，醫療場所，餐飲外送和外賣仍開放。
-
-3. 特朗普政府計劃立即遣返所有試圖從墨西哥非法進入美國的尋求庇護者和其他外國人，稱不能讓冠狀病毒通過拘留設施傳播並感染邊境巡邏人員。
-
-4. 紐約州長安德魯·庫莫推動私人實驗室測試，今天確診432人，共1375例確診。同時紐約州將開放5個新的可提供駕車檢測的設施。庫莫表示，無論好壞，將對紐約州的危機反應承擔全部責任。庫莫預估45天內將達到峰值，屆時將需要五萬五到十一萬病床，一萬八至三萬七千重症監護病床。現在只有五萬三千病床和三千重症監護病床。庫莫要求聯邦政府提供幫助，今天特朗普總統在總統工作小組會議上讚揚了庫莫的表現。
-
-5. 紐約市長白思豪宣布48小時內將“封城”，目前共7人死亡。白思豪表示目前紐約沒有出現群聚感染。同時紐約宣布停止收學生貸款和醫療帳單30天，並宣布禁止打車軟件運營。
-
-6. 弗羅里達州州長宣布關閉酒吧和夜店，餐館仍可正常營業。
-
-7. 伊利諾伊州宣布第一例死亡。
-
-8. 昨天CDC員工確診一例感染
-
-9. 新澤西病例隔夜上漲50%， 新增169確診
-
-10. 五角大樓52名員工確診
-
-**世界疫情：**
-
-1. WHO內確認兩例感染。
-
-2. 俄羅斯昨天關閉與波蘭國境線，普京表示一切可控。
-
-3. 西班牙在疫情緊隨意大利其後（491例死亡，11178確診），西班牙已在葡萄牙和法國邊境建立關卡，已拒絕了500輛車進入國境。
-
-4. 過去24小時英國確診上升26%，確診病例到達1950，死亡55人。
-
-5. 意大利加強了封鎖的限制，針對在冠狀病毒爆發期間離開房屋的人，如果他們被認為是肆意傳播感染，將面臨最高12年監禁的威脅。
-
-6. 據報導，歐洲領導人決定對非歐盟公民關閉歐盟邊界，指示聯邦警察在所有過境點禁止非公民和非居民進入歐盟國家。此前，布魯塞爾剛剛宣布沒有必要關閉過境。
-
-7. 沙特阿拉伯命令所有私營部門的工人呆在家裡15天，此前沙特已經禁止外國人進入，並取消了穆斯林朝聖。
-
-8. 許多巴爾乾地區和中歐國家已經關閉了邊境。盧森堡和亞美尼亞宣布進入緊急狀態。
-
-11. 巴基斯坦出現第一例感染者死亡，目前有195例確診。
-
-**企業：**
-
-1. 亞馬遜已暫停將“非必要”商品運送到其倉庫。
-
-2. 優步（Uber）宣布旗下送餐服務對免收本地餐廳送餐費，同時優步宣布暫停倫敦拼車服務。
-
-3. 梅西百貨關閉全美門店
-
-4. 希爾頓酒店入住率只有15%
-
-[原文鏈接](https://www.zerohedge.com/geopolitical/us-covid-19-deaths-hit-85-after-largest-daily-jump-beijing-slams-trump-over-chinese)
-
-翻譯報導：Sonya
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095738/257B2001-6C5C-4483-84F8-28C5A0E1D4CC.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095636/14545ADA-B94A-419B-8BCF-B61E137720AC.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095725/FB6EBA04-CB85-4AB2-AD7C-0D76AA541B69.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095714/1C7E2A8B-6832-4880-AD2F-56D1DEDFC6C2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095943/98643D0A-48D2-4EB1-A29D-D4D8B3995C4E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095933/5CA5A636-08F0-4C8C-A412-07E7DE04FED3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095828/D4AB37F0-6CF7-4051-8401-4E2B517E881C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18100311/168C7827-8C23-41AB-934E-BDA919F0EDFD.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095853/20F57C3A-105E-4CC5-B43C-63F5DB26486E.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095911/50C518A8-13EE-4A1F-9A28-14E4A979664A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18095922/1C2475B7-1C3D-40A5-9A5E-B819A44D0B43.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18100150/D9F22291-CB69-4C0A-8C2C-0BB09FACC438.jpeg)
+作者：【snow表情包組】【明月繪製】
 
 0
