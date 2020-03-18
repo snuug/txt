@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共軍機又去台灣騷擾被驅離
-`2020-03-18 05:59 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144218/)
+## 【武漢肺炎真相】共产党制造病毒\3月18日视频合集
+`2020-03-18 06:32 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/144236/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18054841/87373471-2F44-429B-8DAF-D45FC95C5F29.png)
+没钱治武汉肺炎选怎轻声、北京一个干休所里有136个干部子女在国外 现在开始返回、网友介绍隔离点真实环境、为了躲避城管防疫部门打砸抢 被逼凌晨开夜市、等等····
 
-據路透社3月17日報導，台灣空軍再次緊急升空，警告正在接近台灣的中共軍機。在中共武漢病毒危機期間，海峽兩岸的軍事緊張局勢也一再升溫。
 
-台灣一再抱怨北京方面本應致力於中共武漢疫情防控卻不做為，而不斷派軍機靠近台灣進行騷擾。
 
-中共方面聲稱，他們是在演習保衛領土完整，並警告不能容忍台灣獨立。
+**视频制作不易、请大家传播疫情真相！拯救更多同胞！**
 
-台灣國防部在周一晚間表示，中共的J-11 戰鬥機和KJ-500機載預警機飛抵台灣西南海域進行夜間演習，並靠近台灣的防空識別區。台灣的空中偵察機和巡邏機做出了恰當反應並將他們驅離了台灣的防空識別區。
-
-台灣軍方密切關注台灣海峽及其周圍地區，確保台灣安全。台灣人民無須驚慌。
-
-中共軍方則沒有就此次擾台行動立刻發表評論。
-
-自2016年台灣總統蔡英文就職以來，中共就一直對台灣實行所謂的包圍島嶼演習。北京方面相信，蔡英文總統是台灣獨立的支持者。
-
-評：根據郭文貴先生的情報，中共已做好武統台灣的準備，通過發動局部戰爭轉移疫情帶來的社會矛盾和經濟危機，並可能引發第三次世界大戰。中共冠狀病毒正式吹響了戰爭的號角，同時也吹響了全世界滅共的號角。
-
-[原文鏈接](https://www.reuters.com/article/us-taiwan-china/taiwan-again-scrambles-jets-to-warn-off-chinese-air-force-idUSKBN21401R)
-
-翻譯報導： Sunny
+武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
+ 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
+ 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
+ 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
+ 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
+ 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
+ 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
+ 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
+ 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
+ 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
+ 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
+ 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
+ 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
+ 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
+ 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
+ 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
+ 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
+ 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
+ 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
 
 0
