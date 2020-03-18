@@ -1,10 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武漢新型冠狀病毒爆發被隱藏的真相
-`2020-03-17 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143647/)
+## 川普提8500億美元緊急支出計畫救股市 關注郭先生3月11日直播內容!
+`2020-03-17 19:44 GM15` [轉載自GNews](https://gnews.org/zh-hant/143623/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17185937/83D57615-DBA4-472A-A5D1-5EF0815BE920.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190026/799B29EF-6A02-4E48-BE1A-3EF621FFF76D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190446/08936B6D-325B-4461-A2A6-4A29EBAFAA9D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190509/E20FB7CD-AE1B-4FF2-A2B2-CC10D2BAB9B7.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190536/73C88BA1-A58D-41E6-A36C-59C30BFEEA7B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190602/5470BDFD-6515-440E-93B4-3F544A49F959.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190624/4329D914-5EA9-49F3-AE08-2FC611F8DA4C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190649/865B45D6-0BAB-4BBC-9C85-DFF2E0B87AA2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190708/74BBB0E3-0E4B-4CD8-9627-62CC933484F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190734/2D3374FE-1BA9-4869-92F8-45B995720DA3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190800/412F0974-BF30-493E-A7F7-1BC4B59C93B8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190824/6225396B-3C3A-406D-B7BF-B88371957EB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190846/90A431BF-0049-4E60-8F12-338DC60C482A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190913/E64D9C7E-5066-4364-8354-C5AB0228D242.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190951/5C1DFB4D-006D-450B-979D-81538EF19599.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191025/6174825A-9129-4B98-94C8-E778C9ABE567.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191047/165FF6CB-CB4E-41C0-92D2-F9E8F4AB4F9F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191114/BFC5EABA-DBE5-41A9-B5AA-2540333A2A32.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191139/343D0D26-72CF-4490-9514-3AE09D068E93.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191202/39F84DE3-DC38-4798-8399-339082C09F7D.jpeg)
-作者：牆內戰友
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191406/phpjw7xJk.jpg)
+「華盛頓郵報」今（17）日報導，美國總統川普將要求國會批准8500億美元（約新台幣25兆7000億元）的武漢肺炎緊急支出計畫，規模超越2008年金融危機美國祭出的7000億美元紓困方案。
+
+華盛頓郵報報導，由於2019冠狀病毒疾病（武漢肺炎）疫情帶來的經濟損害日益嚴重，川普提出這份紓困計畫，盼減緩衝擊。報導引述4名知情官員表示，方案內容將包括薪資稅減稅，以及提供美國航空業者總額500億美元（約新台幣1兆5100億元）援助。
+
+由於各國陸續實施封鎖措施，導致全球旅遊業幾近完全停擺，航空業者受到嚴重打擊。這份方案並不包括川普政府已提出、且美國聯邦眾議院已火速通過的1000億美元紓困案，內容包括提供病假支薪並擴大失業金給付範圍。
+
+此外，川普政府規劃的這份新紓困案規模，也超越2008年全球金融危機期間，美國政府為拯救金融體系而祭出的7000億美元「問題資產紓解計畫」（TARP）。
+
+報導還說，美國財政部長梅努欽（Steven Mnuchin）預計將向美國聯邦參議院共和黨團報告提案內容。
+
+
+
+## **郭文貴先生3月11日直播部分內容**
+
+大家你们看我昨天干了十几个小时，无论这些大佬进场、入场、出场、下单，文贵起关键作用，爆料革命起关键作用。头两天看了道琼斯跌了2000点，深圳还涨、上海还涨，所有懂金融的全都笑了。
+
+这就像我给他们举例：有一个傻子、有一个贪婪的人跳到海里去想捞那五毛钱的钢镚，结果快被淹死了。现在来了个共产党冲进去要救他，还有一些傻客、政治家进去救他。
+
+你去救人的时候，你要记住，当淹水的人第一反应就抓住来救他的人任何东西，他不松手。
+
+要不你把他救出来，你死，要不你俩都活，反正他抓住你不松手了。
+
+现在市场就是那个被淹死的人，肯定死。
+
+现在共产党去救他，那咋救他呀？第一你根本没救他，是假的，第二个你被他拽住给弄死。
+
+我们希望共产党救市，让这个频临死亡的世界贪婪的金融机构华尔街、金融家天天是剥削人民的这些剥削阶级，抓住共产党的擀面杖子，把共产党的擀面杖子彻底从裤裆里面给攥出来，这是我们希望的。
+
+使劲救，靠啥救？你不就拿那一点钱救。香港、上海，你不就是改电脑、改数据嘛！兄弟姐妹们，你们知道这意味着什么？这意味着上天在帮我们。
+
+他要不救，人家…人家降，我也降，你（能）咋的？！那美国…美国道琼斯指数，全人类投资最好的地方、最安全的地方都（跌）两千点了，我、我跌两千点咋了呀！老百姓你怨不着我。
+
+但是就这帮傻货，他就要救，这一救好了，他要不救麻烦了，不救就麻烦啦！咱灭啥共啊！市场跌没了，对吧！你看不是我（共产党）的事…我最怕的结果就是道琼斯跌，他也跌，道琼斯跌一，他跌俩，道琼斯跌一千，他跌三千点，跌没啦！
+
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3103330)
+
+GM15
 
 0
