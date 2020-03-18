@@ -1,19 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 老江觀點：股指短線或有反彈誘多
-`2020-03-17 14:38 Laojiang` [轉載自GNews](https://gnews.org/zh-hant/143467/)
+## 武漢新型冠狀病毒爆發被隱藏的真相
+`2020-03-17 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143647/)
 
-美國道瓊斯指數、標普指數、納茲達克指數經過連續下跌後，沿途斬妖除魔，殺掉大批盲目做多，過度槓桿加倉買入的股票投機商之後，短期技術圖形顯示嚴重超賣，日線圖更出現了嚴重底背離，短期需要做個修正，稍作反彈後再開始更大級別的殺跌。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17141654/image-44.png) **道瓊斯指數日線圖，指標的嚴重底背離以及超賣，短期反彈不可避免** 
-從長線分析，道瓊斯指數跌破了平台關鍵支撐位置21435.50後，曾一度跌破2009年2月以來形成的長期上漲趨勢線支撐，目前的反彈修正將在21435.5一線受到技術強壓力，相信此位置上下埋伏大量的做空單，屆時又將是一場血雨腥風。根據關鍵支撐位上下等量目標測算，本輪不跌到13300位置恐怕不能停。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17142628/image-45.png)道**瓊斯指數月線走勢分析，長期趨勢線支撐已經被跌破，目前的反彈非常虛弱** 
-
-
-美國聯邦和美聯儲儘管投下7000億救市，但對於泡沫巨大，又面臨空前的生化武器全球攻擊的失控局勢，任何的投入都無法填滿股市黑洞，這本身應該是個擠泡沫和返璞歸真的良性回調，被中共冠狀病毒的襲擊助推為一場金融災難，目前深不見底，在債務問題沒有徹底解決，中共病毒沒有得到完全控制之前，除了華爾街輸不起的大銀行家和股東，以及盜國賊海外股份代持家族財富持有人，沒有人會傻到去伸手接這把從雲端掉落的大砍刀。股市的崩盤不可阻擋，此前的多篇文章都有詳細分析，這裡不再囉嗦。
-
-
-
-*以上觀點僅供參考，一旦據此操作成功避險甚至發財致富，本人概不負責！*
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17185937/83D57615-DBA4-472A-A5D1-5EF0815BE920.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190026/799B29EF-6A02-4E48-BE1A-3EF621FFF76D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190446/08936B6D-325B-4461-A2A6-4A29EBAFAA9D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190509/E20FB7CD-AE1B-4FF2-A2B2-CC10D2BAB9B7.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190536/73C88BA1-A58D-41E6-A36C-59C30BFEEA7B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190602/5470BDFD-6515-440E-93B4-3F544A49F959.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190624/4329D914-5EA9-49F3-AE08-2FC611F8DA4C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190649/865B45D6-0BAB-4BBC-9C85-DFF2E0B87AA2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190708/74BBB0E3-0E4B-4CD8-9627-62CC933484F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190734/2D3374FE-1BA9-4869-92F8-45B995720DA3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190800/412F0974-BF30-493E-A7F7-1BC4B59C93B8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190824/6225396B-3C3A-406D-B7BF-B88371957EB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190846/90A431BF-0049-4E60-8F12-338DC60C482A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190913/E64D9C7E-5066-4364-8354-C5AB0228D242.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190951/5C1DFB4D-006D-450B-979D-81538EF19599.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191025/6174825A-9129-4B98-94C8-E778C9ABE567.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191047/165FF6CB-CB4E-41C0-92D2-F9E8F4AB4F9F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191114/BFC5EABA-DBE5-41A9-B5AA-2540333A2A32.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191139/343D0D26-72CF-4490-9514-3AE09D068E93.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191202/39F84DE3-DC38-4798-8399-339082C09F7D.jpeg)
+作者：牆內戰友
 
 0
