@@ -1,64 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “飛機撒錢”時代到來，川普政府欲立即發現金！所有的利好消息 只為逃命
-`2020-03-17 13:38 GM18` [轉載自GNews](https://gnews.org/zh-hant/143438/)
+## 武漢新型冠狀病毒爆發被隱藏的真相
+`2020-03-17 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143647/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17133441/b9fe90fc-206f-4563-9680-1d9cc9986d1e-1.png)
-美聯儲宣布將通過商業票據融資機制，支持信貸流向家庭和企業。努欽堅稱市場不會因為疫情關閉，同時宣布“撒錢”時代到來。
-
-週四（3月17日）美股盤中，各類資產明顯反彈！
-
-美股持續拉升，截止週五凌晨00:14，道指漲超千點，漲超5%，納指和標普500指數漲超7%。
-
-歐股盤中同樣大漲，歐洲斯托克600指數擴大漲幅至2.7%。歐洲斯托克50指數一度漲3.04%，西班牙IBEX35指數漲5%，意大利富時MIB指數漲3.17%。富時中國A50指數期貨日內漲幅超1%。
-
-現貨黃金持續拉升，一度站上1550美元/盎司，較日低反彈近85美元；現貨白銀一度收復13美元/盎司關口，日內漲近1.7%；現貨鉑金漲逾6%，報706.69美元/盎司。
-
-紐約聯儲宣布美聯儲周二將​​進行額外的隔夜回購操作，最高5000億美元。此外，美聯儲最新宣布，將通過建立商業票據融資機制（CPFF），以支持信貸流向家庭和企業。
-
-美聯儲於2008年10月創建了商業票據融資基金，以從公司發行人那裡購買商業票據並恢復市場信心。此後未償還的商業票據跌破了1萬億美元，但是近年來市場的使用再次增加。
-
-美國財長努欽稱，曾向美聯儲主席鮑威爾致信，要求為企業建立商業票據融資機制。市場原預期美聯儲上週日就會宣布推出這個融資機制，鮑威爾原以為降息至零+QE5就能解決市場流動性緊缺的問題，豈料這兩日市場的反應表明並非如此。所以，這個商業票據融資機制兩日後也終於與投資者見面了。
-
-美聯儲稱，受疫情影響，商業票據市場近日承受“相當大的壓力”，商業票據融資機制應能消除市場風險，提高企業在疫情爆發期間維持就業和投資的能力，財政部將向美聯儲提供100億美元的信貸保護，這些資金將來自財政部的外匯穩定基金，除非延期，商業票據融資機制將於2021年3月17日終止。
-
-市場呼聲最高的就是商業票據融資工具。因為這才是緩解市場“美元荒”的最有效措施，公司依靠商業票據市場作為滿足意外資金需求的可靠短期現金來源。
-
-企業一直在尋求利用商業票據市場來彌補短期資金缺口，而貨幣市場共同基金（MMF）則一直試圖在次級商業票據市場上籌集現金。如果無法進入商業票據市場，公司可能會向銀行求助，以利用其信貸額度，從而可能給貸方帶來更大的壓力。這其中的後果可能比較嚴重，因為按照摩根大通的計算，全球美元短缺數量自金融危機以來已經翻了一番，截至目前為12萬億美元，約占美國GDP的60％。
-
-但壞消息是，美聯儲推出這種“雷曼式劇本”，表明美國現在正面臨著系統性風險，其中還包括銀行和公司，這種風險之前並不存在。這就是為什麼市場在短暫做出上漲反應後可能加劇下跌的原因，特別是如果市場要求看看美聯儲還剩下什麼其他彈藥的情況下。如果還不能解決問題，市場到時就會像3個月前耶倫暗示的那樣，最終要求美聯儲購買股票。高盛稱，美股流動性已到了金融危機以來最糟糕的時候。
-
-事實上，美聯儲宣布以上決定後，衡量銀行間和融資市場美元稀缺性的FRA/OIS利差（即遠期利率協議和隔夜利率互換的利差）反而飆升，這表明金融體系的流動性壓力越來越大。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17133739/3-41.png)
-分析稱，雖然美聯儲可能已經“解決”了一個問題（企業流動性危機），但是全球金融體系中的美元/流動性短缺正在加劇。美國銀行警告：
-
-“這個工具（CPFF）無助於緩解融資需求，也不能解決貨幣基金的資金外流。”
-
-這暗示美聯儲將不得不尋求別的辦法。
-
-接下來，美國方面可能還會有緩解流動性危機的措施出現。
-
-1、美國聯邦監管機構正在考慮是否放寬對全國銀行的流動性規定。
-
-據消息人士，美國財政部下屬機構貨幣監理署（Office of The<br>Comptroller of The Currency）正在考慮放寬其2013年關於槓桿貸款的規定，但尚未做出最終決定。此舉將消除對銀行向有風險企業提供貸款的一些限制，可能為能源部門企業騰出資金，這些企業受到了日益嚴重的公共衛生危機和全球經濟活動回落的打擊。反對者則指出，關於槓桿貸款的規定在阻止銀行發放高風險貸款方面非常有效，這可能會使銀行在當前危機中處於不穩定狀態。
-
-2、川普政府正在醞釀實施一個8500億美元的經濟刺激計劃，“希望本週結束前通過法案”。
-
-據中新網，美國財政部長努欽17日將前往國會，與參議院共和黨議員討論第三輪新冠病毒應對方案，以抵擋疫情帶來的經濟危機。報導稱，川普政府想要實施一個8500億美元的經濟刺激計劃。據《華盛頓郵報》報導，白宮的提議將包括向航空業提供約500億美元的援助。
-
-美國總統川普今夜稱，新冠肺炎紓困資金將是大規模的。努欽則表示，將在周二晚公佈下一個援助計劃的細節。據他介紹：
-
-此前批准了美聯儲主席鮑威爾希望使用再貼現窗口的請求；
-
-美聯儲的商業票據工具將支持1萬億美元的信貸市場；
-
-美國總統川普要求實施稅收遞延，總值達3000億美元；
-
-可能在接下來的兩週內給美國人“發支票”。
-
-努欽說，對美國人來說，“支票”將被視為“業務中斷付款”。當被問及誰會收到支票時，川普說，大多數美國人會，但“年收入一百萬美元”的人可能不會，“希望美國人盡快拿到錢”。知情人士說，白宮還沒決定具體給美國人發多少錢，但希望多於1000美金。
-
-GM13 编辑
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17185937/83D57615-DBA4-472A-A5D1-5EF0815BE920.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190026/799B29EF-6A02-4E48-BE1A-3EF621FFF76D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190446/08936B6D-325B-4461-A2A6-4A29EBAFAA9D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190509/E20FB7CD-AE1B-4FF2-A2B2-CC10D2BAB9B7.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190536/73C88BA1-A58D-41E6-A36C-59C30BFEEA7B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190602/5470BDFD-6515-440E-93B4-3F544A49F959.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190624/4329D914-5EA9-49F3-AE08-2FC611F8DA4C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190649/865B45D6-0BAB-4BBC-9C85-DFF2E0B87AA2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190708/74BBB0E3-0E4B-4CD8-9627-62CC933484F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190734/2D3374FE-1BA9-4869-92F8-45B995720DA3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190800/412F0974-BF30-493E-A7F7-1BC4B59C93B8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190824/6225396B-3C3A-406D-B7BF-B88371957EB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190846/90A431BF-0049-4E60-8F12-338DC60C482A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190913/E64D9C7E-5066-4364-8354-C5AB0228D242.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190951/5C1DFB4D-006D-450B-979D-81538EF19599.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191025/6174825A-9129-4B98-94C8-E778C9ABE567.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191047/165FF6CB-CB4E-41C0-92D2-F9E8F4AB4F9F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191114/BFC5EABA-DBE5-41A9-B5AA-2540333A2A32.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191139/343D0D26-72CF-4490-9514-3AE09D068E93.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191202/39F84DE3-DC38-4798-8399-339082C09F7D.jpeg)
+作者：牆內戰友
 
 0

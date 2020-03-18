@@ -1,10 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武漢新型冠狀病毒爆發被隱藏的真相
-`2020-03-17 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143647/)
+## 意大利之淚：中共新冠病毒大爆發，放棄部分重症病人，約50%死亡率
+`2020-03-17 20:54 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/143690/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17185937/83D57615-DBA4-472A-A5D1-5EF0815BE920.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190026/799B29EF-6A02-4E48-BE1A-3EF621FFF76D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190446/08936B6D-325B-4461-A2A6-4A29EBAFAA9D.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190509/E20FB7CD-AE1B-4FF2-A2B2-CC10D2BAB9B7.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190536/73C88BA1-A58D-41E6-A36C-59C30BFEEA7B.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190602/5470BDFD-6515-440E-93B4-3F544A49F959.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190624/4329D914-5EA9-49F3-AE08-2FC611F8DA4C.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190649/865B45D6-0BAB-4BBC-9C85-DFF2E0B87AA2.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190708/74BBB0E3-0E4B-4CD8-9627-62CC933484F6.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190734/2D3374FE-1BA9-4869-92F8-45B995720DA3.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190800/412F0974-BF30-493E-A7F7-1BC4B59C93B8.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190824/6225396B-3C3A-406D-B7BF-B88371957EB5.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190846/90A431BF-0049-4E60-8F12-338DC60C482A.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190913/E64D9C7E-5066-4364-8354-C5AB0228D242.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17190951/5C1DFB4D-006D-450B-979D-81538EF19599.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191025/6174825A-9129-4B98-94C8-E778C9ABE567.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191047/165FF6CB-CB4E-41C0-92D2-F9E8F4AB4F9F.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191114/BFC5EABA-DBE5-41A9-B5AA-2540333A2A32.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191139/343D0D26-72CF-4490-9514-3AE09D068E93.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17191202/39F84DE3-DC38-4798-8399-339082C09F7D.jpeg)
-作者：牆內戰友
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/17205228/coffin-Italy.jpg)在意大利因中共冠狀病毒死亡的葬禮。圖片來源：DeathCareIndustry.com 
+據路透社報導，鑑於在意大利中共病毒感染人數大爆發，醫療資源與醫護人員的極度短缺，只能採取快速的病人分級治療方案。據悉，重症感染患者死亡率高達50%。
+
+**殘忍的病人分級治療方案**
+因病床極度緊缺，每次由兩名麻醉師與一名康復專家和一名內科醫師進行磋商，以決定這個床位給哪位病人使用。重症監護病房副主任雷斯塔（Marco Resta）說：“我們必須考慮老年患者離開重症監護室。而這無疑相當於放棄。
+
+意大利醫生面對如此多的老年新冠病毒患者時，他們必須做出分級的決定，不再治療那些存活機會很低的病人。這種突發性疫情使重症監護室承受了巨大壓力。
+
+在意大利這個不允許輔助死亡的天主教國家中，做出這種對病人的分級而差別對待方案尤其令人痛苦。例如阿爾弗雷多被確診新冠病毒兩週後，他的肺開始纖維化，使呼吸變得越來越困難。這裡的醫生不得不決定是否給他插管以幫助他呼吸。最後，他死於嗎啡注入的睡眠中時，其妻子同樣受感染目前還在口面罩呼吸器護理。
+
+**重症高死亡率**意大利遭受著來自第二次世界大戰以來最嚴重的醫療危機。前軍事醫生雷斯塔（Resta）表示，戰爭中都沒有經歷過這種嚴重狀況。這種嚴峻局面迫使醫生、患者及其家屬必須做出快速決定。截至本星期一，意大利的冠狀病毒死亡人數為2158，感染人數為27980，在意大利被重症監護病房收治的新冠病毒患者中有50％會死亡。而全國此類病房的通常死亡率為12％至16％。
+
+**親情關懷**
+隨著該國感染與死亡人數的急劇增加，與中共新冠病毒鬥爭形勢日趨嚴峻，醫院已不允許任何親人探訪了。在接受重症監護的患者，每兩人中就會有一人死亡。
+
+雷斯特醫生說，只要有新冠病毒患者入院，工作人員就會給親戚寫一封電子郵件，向親屬保證他們的親人將被“當作家人一樣”對待。
+
+瑪拉·貝托利尼（Mara Bertolini）父親的離世，是來自太平間工作人員電話告知。後來當她見到醫生時，無法忘懷使醫生悲傷中更多對未來的擔憂。所有醫生告誡家屬的話是，“請呆在家裡。”
+
+譯者點評： 
+自上週以來，意大利已進入完全自我隔離。政府急迫通過嚴格的隔離措施來減緩其南部的發病。但看來為時已晚，可以說意大利及其他親中共的國家為此次中共病毒大爆發付出慘重代價。當中共盜國賊在歐洲打著中歐合作的名義，實施偷竊技術，藍金黃官員，非法洗錢、控股銀行等滲透戰略的時候，歐洲不覺醒。當王岐山盜國賊在歐洲法國陰損秘密殺害海航董事長王健的時候，歐洲仍不覺醒。
+
+在中共政府制定了擴大國際輿論宣傳、向國際擴散新冠病毒的戰略，並輿論導謊稱此病毒來自美國等後，中共新冠病毒瘋狂肆虐包括意大利、法國、英國、德國等無數普通百姓。讓許多人命喪黃泉。
+
+代表現代人類文明的歐洲必須從殘酷的現實得到教訓，徹底認清中共的本質面目。與魔共舞，勢被魔鬼吞噬。只有彼此團結起來，早日剷除中共邪魔，以告慰逝去的無辜靈魂。
+
+[原文鏈接](https://www.reuters.com/article/us-health-coronavirus-italy-ethics-speci/special-report-all-is-well-in-italy-triage-and-lies-for-virus-patients-idUSKBN2133KG) 
+翻譯報導：心聲
 
 0
