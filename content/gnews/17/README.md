@@ -1,33 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共产党制造病毒\3月18日视频合集
-`2020-03-18 06:32 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/144236/)
+## 本週二川普政府推出萬億美元經濟刺激計劃救市
+`2020-03-18 07:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144244/)
 
-没钱治武汉肺炎选怎轻声、北京一个干休所里有136个干部子女在国外 现在开始返回、网友介绍隔离点真实环境、为了躲避城管防疫部门打砸抢 被逼凌晨开夜市、等等····
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18070637/DAE55F5F-9AB6-4AC4-9996-F01F19DF2B91.jpeg)
+為遏制中共冠狀病毒在美國大流行，經濟也受到了嚴重影響，川普政府出台了一系列的政策的同時，白宮正在尋求一項8500億美元到超過1萬億美元的經濟刺激計劃。
 
+川普總統在周二上午談到了這個即將出台的刺激計劃，但沒有透露其具體規模。他說：“這個刺激會很大，而且會很大膽。”
 
+週二晚些時候，財政部長史蒂芬·姆努欽（Steven Mnuchin）對共和黨參議員說，如果國會不頒布刺激計劃，失業率可能會達到20％。
 
-**视频制作不易、请大家传播疫情真相！拯救更多同胞！**
+該刺激方案可能包括：
 
-武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
- 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
- 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
- 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
- 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
- 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
- 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
- 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
- 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
- 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+5000億至5500億美元的直接付款或減稅
+
+2,000億至3,000億美元的小企業援助
+
+500億到1000億美元的航空和行業救濟
+
+2500億美元可能用於直接向美國人付款
+
+姆努欽在白宮新聞發布會上說，“美國人現在需要現金，我的意思是在接下來的兩週內。政府希望把救急資金立刻發到美國人的口袋裡。” 當然獲得直接救濟的人不包括百萬富翁。
+
+白宮現在就要與國會商談一攬子方案。這項措施將平衡需要幫助的個人和工人，以及已經表示需要支持的行業。川普總統和姆努欽（Mnuchin）認為航空業是必須要資助的。他們 還注意到由於旅行業停擺，郵輪和酒店業面臨著特殊的挑戰。川普在新聞發布會上說：“救助的規模要大而且要有力度。我們不想航空公司倒閉，不想讓員工失業。
+
+不過，民主黨人已經明確表示，對工業的任何支持都必須對工人提供大量援助。國會已經就第二次冠狀病毒救助法案中的帶薪休假產生爭議，該法案尚未通過參議院。
+
+新墨西哥州民主黨參議員湯姆·烏德爾（Tom Udall）對CNBC表示：“任何經濟救濟都應是流向工人及其家庭，而不是首席執行官和股東”。
+
+參議員伊麗莎白·沃倫（Elizabeth Warren）週二概述了自己一套刺激方案，包括任何接受聯邦政府救助資金的大企業要永久放棄股票回購，並在董事會中增加至少一個代表工人的席位。
+
+參議院少數黨領袖查克·舒默（Chuck Schumer）的辦公室週一表示，他將提出自己的計劃，至少花費7500億美元來對抗中共冠狀病毒大流行。這將包括對聯邦貸款的寬鬆政策，暫停驅逐和止贖，對小企業的援助和緊急托兒服務。
+
+在周二的中共冠狀病毒特別工作組簡報會期間，當川普及其官員表示政府正在動員一項重要的經濟刺激方案而且很快會生效後，主要經濟指數上漲。政府的經濟刺激計劃成為市場重點關注的熱點。
+
+[原文鏈接](https://www.cnbc.com/2020/03/17/mnuchin-says-trump-administration-is-looking-to-get-cash-to-americans-immediately.html)
+
+翻譯報導：匿名
 
 0
