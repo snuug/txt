@@ -1,30 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “打工費全押股票？”為什麼韓國年輕人要紛紛跳入火坑？
-`2020-03-19 04:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/145070/)
+## 【武漢肺炎真相】共產黨製造病毒\3月19日視頻合集
+`2020-03-19 04:11 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/145092/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19040152/1-1-21.jpg)
-專家提醒，房地產和虛擬貨幣投資需謹慎，切勿過於
+北京妖風，天津廊坊大火，領導子女回國享特權，中國強拆大隊復工推土機碾壓老百姓，全中國個體商業倒閉，社區財產集體擺拍作秀，網約車司機訴苦，棄嬰，等等····
 
-樂觀。
 
-準備就業的學生趙某（25歲）最近在猶豫是否應該將他兼職所得的全部收入投入股市。趙某說：“最近常常聽到周圍的朋友說應該趁股市低迷的時候購買一些三星電子的股票，所以我也正在準備作一些投資。”並說，想要賺錢就是要抓住這樣的機會。
 
-一家大型公司的員工李某（30歲）說：“對我們這一代人來說，’房地產神話’是其他人的故事，加密貨幣投資風險太大。現在我有了一份工作，有了一些錢，這是一個機會。”
-
-在中共冠狀病毒（COVID-19）全世界爆發的陰雲下，股市一天天暴跌。這中間，期待這次的危機能夠成為自己”人生逆轉”機遇的青年人急速增加。有分析認為，沒機會碰上父母那代的“房地產不敗神話”，又錯過投資加密貨幣時机的這一代青年人將中共冠状病毒的爆發視為一次人生機遇。
-
-根據韓國金融投資協會18日的調查，截至前一天，參與股票交易活動的帳戶數量為3023万余個。自1月20日韓國首個新型冠狀病毒確診病例出現以來，活動帳戶數量穩步增長，直至3月6日首次超過3000萬。證券方面表示，這段期間新開的股票賬戶中，青年客戶所佔的比例較高，60%新客戶的年齡為20~39歲。
-
-專家們說，對這些沒有親身經歷過1997年金融危機和2008年全球金融海嘯的新一代青年人選擇這個時候進行人生首次股票投資的行為表示憂慮。 大邱啟明大學社會學教授任云澤說：“在目前房價不斷上漲，虛擬貨幣高虧損率的情況下，這場危機在這一代青年人看來是人生的第一次機遇。”他說：“這可以看作是年輕人在目前就業變得不穩定的情況下，除工資以外渴望尋求其他获益途径的表现。”全北大學社會學教授薛東勛說：“20多歲的青年人們從未經歷過金融危機，他們樂觀的認為股市很快就會恢復。”
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19040130/2-4-7.jpg)
-專家建議，在股票波動較大的情況下，投資者應保持謹慎。漢城大學經濟學教授金相奉說，要銘記投資者不能自由地操縱市場，政府也不能保護投資股票的年輕人，切勿草率投資股票市場。對投機性投資甚至貸款投資等行為應該保持謹慎態度。
-
-譯評，本人在準備這篇報導的當天也遇到友人建議趁股市低迷的時候買進一些三星電子的股票。我笑而婉拒，不僅是沒有多少閒錢能拿來投資，最重要的是我相信這世界不僅是經濟，甚至是世界格局，都可能將迎來一個大翻盤。股市有風險，投資需謹慎。
-
-翻譯報導:Mc.DA
-
-[原文鏈接](http://naver.me/555TitTu)
+武汉肺炎真相 3月19日 [https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw)
+ 武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
+ 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
+ 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
+ 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
+ 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
+ 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
+ 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
+ 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
+ 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
+ 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
+ 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
+ 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
+ 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
+ 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
+ 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
+ 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
+ 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
+ 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
+ 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
 
 0
