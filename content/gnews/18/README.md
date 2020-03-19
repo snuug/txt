@@ -1,32 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨製造病毒\3月19日視頻合集
-`2020-03-19 04:11 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/145092/)
+## 快訊：從今晚3月19日晚午夜開始，新西蘭將對所有非居民關閉邊境
+`2020-03-19 04:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/145101/)
 
-北京妖風，天津廊坊大火，領導子女回國享特權，中國強拆大隊復工推土機碾壓老百姓，全中國個體商業倒閉，社區財產集體擺拍作秀，網約車司機訴苦，棄嬰，等等····
+![A person holding a sign posing for the cameraDescription automatically generated](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19041815/1-98.png)
+新西蘭總理賈辛達·阿登今晚對媒體宣布，這一規定將於今天午夜11點59分生效。這一重要決定是為了保護新西蘭人免受中共病毒的感染。 “保護新西蘭人民是我們的首要任務。” 阿登說道。 “為了做到這一點，我們需要減慢它傳播的速度。” 這是新西蘭歷史上第一次關閉國境：除新西蘭公民和居民外，世界上所有其他國家的人都不得進入新西蘭境內。
 
+目前，全球中共病毒病例總數已超過20萬。新西蘭政府越來越清晰的認識到，病毒在世界其他地區的迅速傳播意味著政府需要採取更強有力的邊境措施。
 
+此項規定的具體條款是除了新西蘭的公民和居民外，隨同返回新西蘭人一起旅行的伴侶，法定監護人或任何受撫養子女也可以返回，但也需要自我隔離14天。但是直系親屬不能獨自旅行，而需要與新西蘭公民或居住在同一航班上的家庭成員一起旅行。與以前的邊境限制不同，新規則將適用於可能來自太平洋島嶼的旅行者。衛生部門的“關鍵人員”也享有豁免權。
 
-武汉肺炎真相 3月19日 [https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw)
- 武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
- 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
- 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
- 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
- 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
- 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
- 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
- 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
- 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
- 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+同時，阿登也向再次提出警告，不遵守自我隔離規則的人將面臨後果。她今晚明確表示需要採取進一步措施。目前新西蘭已經有一名背包客因未遵守規定進行自我隔離而被驅除出境。
+
+目前，新西蘭已有28例中共病毒確診，所有確診病例無一例外都與海外旅遊人士有聯繫。阿登說，政府知道這一決定將對經濟產生重大影響。 “但是迅速惡化的全球健康狀況意味著對新西蘭人民健康的威脅已經上升。” 儘管新西蘭仍然沒有社區爆發的證據，但仍做出了這一決定。
+
+“如果我們要避免目前在海外看到的最糟糕情況，這種臨時措施至關重要。” 阿登說，她越來越擔心來新西蘭的遊客沒有充分自我隔離。我們必須阻止這樣不可承受的風險。
+
+阿登也同時明確表示這些規定不會影響到新西蘭的貨運。她敦促新西蘭人“制定計劃並做好準備”，但是也表示新西蘭存貨充足，搶購和囤貨是不必要的。
+
+在內閣今日下午做出決定後，新西蘭政府也告知了澳大利亞總理斯科特·莫里森。莫里森在接受媒體採訪時表示新西蘭和澳大利亞政府已經在努力進行處理各項協調工作，以保證兩國人民利益最大化。目前有超過60萬新西蘭人居住在澳大利亞。新西蘭總理阿登建議他們應該盡量不要旅行，以避免擴散傳播。
+
+[原文鏈接](https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&amp;objectid=12318284)
+
+翻譯報導：匿名
 
 0
