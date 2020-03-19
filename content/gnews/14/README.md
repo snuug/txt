@@ -1,32 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨製造病毒\3月19日視頻合集
-`2020-03-19 04:11 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/145092/)
+## 中共在支持巴基斯坦的恐怖組織嗎
+`2020-03-19 05:05 小巴猪` [轉載自GNews](https://gnews.org/zh-hant/145109/)
 
-北京妖風，天津廊坊大火，領導子女回國享特權，中國強拆大隊復工推土機碾壓老百姓，全中國個體商業倒閉，社區財產集體擺拍作秀，網約車司機訴苦，棄嬰，等等····
+2019年5月，聯合國安理會將巴基斯坦的“穆罕默德軍”列入恐怖分子名單，並且早在2001年就已經將穆罕默德軍列為與基地組織和塔利班有關聯的組織，此前印度也多次要求將該組織列為恐怖組織，但是都是由於中共阻撓未能實現。
 
+巴基斯坦軍方和巴基斯坦境內的恐怖組織可以說是比較曖昧，每次剿滅恐怖組織的活動都跟表演差不多，最後還媾和在一起了，甚至允許恐怖分子自治，而巴基斯坦軍方背後最大的支持力量就是中共，中共從很久以前就給與巴基斯坦軍方資金和武器技術支持，包括核武器，中共一帶一路在巴基斯坦的基建工程等很多也是被軍方及其利益集團承包。
 
+美國推翻阿富汗塔利班政權以後，當地很多恐怖分子流竄到巴基斯坦後來逐漸形成巴基斯塔利班組織，該組織已經控制了巴基斯塔西北部很大一片地區，他們設立恐怖組織訓練營，用恐怖手段殺害所有不服從自己的當地“長老”，並且在當地實行伊斯蘭原教旨的恐怖統治。
 
-武汉肺炎真相 3月19日 [https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw)
- 武汉肺炎真相 3月18日 [https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw)
- 武汉肺炎真相 3月17日 [https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4)
- 武汉肺炎真相 3月16日 [https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
- 武汉肺炎真相 3月15日 [https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA)
- 武汉肺炎真相 3月14日 [https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs)
- 武汉肺炎真相 3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY)
- 武汉肺炎真相 3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo)
- 武汉肺炎真相 3月12日 [https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso)
- 武汉肺炎真相 3月11日 [https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs)
- 武汉肺炎真相 3月10日 [https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240)
- 武汉肺炎真相 3月9日 [https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I)
- 武汉肺炎真相 3月8日 [https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE)
- 武汉肺炎真相 3月7日 [https://youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI)
- 武汉肺炎真相 3月6日 [https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4)
- 武汉肺炎真相 3月5日 [https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg)
- 武汉肺炎真相 3月4日 [https://youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8)
- 武汉肺炎真相 3月3日 [https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc)
- 武汉肺炎真相 3月2日 [https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo)
- 武汉肺炎真相 3月1日 [https://youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+巴基斯坦軍方支持的恐怖組織在阿富汗和印巴交界的克什米爾地區活動，製造恐怖襲擊，包括但不限於刺殺阿富汗總統，支持阿富汗塔利班組織重新奪取政權，對印度正規軍試試恐怖襲擊等，而巴基斯坦軍方背後就是中共。
+
+過去美國每年給巴基斯坦巨額援助用來剿滅恐怖分子，但是巴基斯坦軍方一直都是“剿匪不力”，直到川普上台以後，終於認清形勢，徹底斷絕了給巴基斯坦的援助。
+
+川普推特： *“美國過去* *15* *年愚蠢地給巴基斯坦超過* *330* *億美元援助，對方除了謊言與欺騙之外，什麼也沒給我們，把我們的領袖當白痴。”*
+
+*“他們為我們在阿富汗追捕的恐怖分子提供安全避風港，卻幾乎沒有幫我們，沒別的了！”*
+
+正是因為之前美國給予了巨額援助，才導致巴基斯坦境內恐怖組織異常活躍，而且這種影響不僅僅在巴基斯坦境內，整個中亞、中東地區的恐怖組織都有千絲萬縷的聯繫。
+
+中東以及中亞的恐怖組織主要依靠一種叫“哈瓦拉”的金融系統轉移財產，“哈瓦拉”具有非正式性及匿名性，相當部分的交易是為犯罪活動和恐怖活動服務。基地組織、ISIS都是利用這種獨立於金融系統之外的系統轉移財產，巴基斯坦有一半的私人匯款時通過哈瓦拉進行。
+
+最近巴基斯坦總理訪華，雙方簽了一個叫《中巴全天候戰略合作夥伴關係的聯合聲明》，官媒透露出來的信息不多，但是可以看到三方面內容，一個是一帶一路，一個是克什米爾地區，一個是阿富汗。
+
+個人看法，這三個問題指向三個方面，一帶一路是加強中共對巴基斯坦軍方的滲透，甚至是結成某種軍事盟約的前兆，目的是應對美國和印度的聯盟；克什米爾地區是印巴爭議地區，也是巴基斯坦軍方支持的恐怖分子活躍的地區，中共和巴基斯坦軍方支持當地恐怖分子襲擊印度軍方，製造混亂和衝突；第三個阿富汗，中共肯定希望利用巴基斯坦的恐怖組織控制阿富汗境內的塔利班組織，甚至控制未來的阿富汗政府。
+
+總而言之，中共、巴基斯坦軍方、巴基斯坦恐怖組織、阿富汗恐怖組織、中東地區其他恐怖組織，這些都是聯繫在一起的。
+
+（文章僅代表作者觀點）
 
 0
