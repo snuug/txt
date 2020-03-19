@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共又在作死——把病毒的源頭甩鍋給美國
-`2020-03-18 21:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144674/)
+## 北京、河北、天津多處大風伴隨火災暴發， 山雨欲來風滿樓？
+`2020-03-18 22:03 GM30` [轉載自GNews](https://gnews.org/zh-hant/144766/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18211253/1-1-10.jpg)
+**作者：zhoumeng**
 
-在掩蓋中共病毒的爆發和毫無人性的宣傳控制疫情的一系列拙劣表演後，中共正進行全面的虛假信息宣傳，以表明自己是有效政府的典範，而美國則是真正的反面角色。
+2020年3月18日京津冀等地遭遇今年最強大風，伴隨大風京津冀多處暴發大火。
 
-中國實驗室在12月就發現了這種新病毒，但中共命令他們停止測試並悄悄銷毀樣本。官員們甚至壓制了醫護人員，例如已故的李文亮醫生，他試圖提醒同事，即將爆發中共病毒。
+2020年3月18日，北京森林消防微博稱北京市延慶區永寧鎮、平谷區山東莊鎮、房山區青龍湖北山營村相繼發生森林火災。
 
-李文亮和他的同事都知道，該病毒是在12月通過人類接觸傳播的。但中共直到1月20日才公開否認。世界衛生組織(WHO)在1月14日發布推文：“中共當局進行的初步調查未發現人與人之間傳播的明確證據。”不僅如此，武漢當局還批准了一場涉及數万人的聚餐宴會，這些謊言幫助該病毒以比原本的速度更快地傳播。
+2020年3月18日，河北消防微博稱河北保定、滄州、衡水、廊坊、秦皇島等地發生多起火災。
 
-北京現在正在改寫歷史，甚至聲稱，由於其“迅速”的行動幫助了世界為抵抗疫情爭取了時間。而且它堅持認為美國可能是爆發的真正來源。
+2020年3月18日，天津津南消防微博稱津南區辛莊鎮白塘口村發生火災。
 
-Twitter在中國被禁用，但外交部發言人黨的吹鼓手趙立堅卻能用Twitter對全世界撒謊：“可能是美國軍隊將這一病毒帶到了武漢，”他在推特上說。 “美國欠我們一個解釋！”
+另外，不少網友2020年3月18日晚發微博稱北京通州，河北的邢台、燕郊、石家莊、雄安，天津的武清、北辰等地均發生大火。
 
-現在，北京正驅逐駐中共國的美國記者，包括揭露該報導的華爾街日報記者。
+京津冀集中在3月18日這一天暴發大規模火災，這場大火燒的很詭異，聯想到3月5日天津武清區軍機墜毀事件，一系列事件均發生在北京周邊，不由讓人浮想聯翩。
 
-美國政府的每一個分支機構以及美國媒體都必須向世界說明真相。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215323/1-93.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215510/3-2-6.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215621/2-71.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215606/4-29.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215814/5-27.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215717/6-25.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215735/7-2-3.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215756/8-15.png)
 
-[原文鏈接](https://nypost.com/2020/03/17/chinas-new-top-priority-spinning-coronavirus-and-blaming-the-us/)
-
-編譯：老師傅
 
 0
