@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國官方媒體未報：2020年3月中旬長江泰州靖江水域發生的一起船舶沉沒事故
-`2020-03-18 21:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/144709/)
+## 北京、河北、天津多處大風伴隨火災暴發， 山雨欲來風滿樓？
+`2020-03-18 22:03 GM30` [轉載自GNews](https://gnews.org/zh-hant/144766/)
 
-**作者：WWL**
+**作者：zhoumeng**
 
-在武漢新冠肺炎病毒的大國戰“疫”過程中，中共宣傳部門要求各地、各部門講好中國故事。對於各地發生的重大事故則隱瞞不報。
+2020年3月18日京津冀等地遭遇今年最強大風，伴隨大風京津冀多處暴發大火。
 
-2020年3月中旬，在長江泰州靖江水域發生了一起船舶碰撞嚴重事故，事故導致一艘船舶沉沒，死傷人數不明。中共各官方媒體，包括新華社、中央電視台、人民日報等，對此次沉船事故均沒有報導。
+2020年3月18日，北京森林消防微博稱北京市延慶區永寧鎮、平谷區山東莊鎮、房山區青龍湖北山營村相繼發生森林火災。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18214302/image0-168.jpg)
+2020年3月18日，河北消防微博稱河北保定、滄州、衡水、廊坊、秦皇島等地發生多起火災。
 
-那麼這件沉船事故是怎麼透露出來的呢？
+2020年3月18日，天津津南消防微博稱津南區辛莊鎮白塘口村發生火災。
 
-主要是靠講好中國故事。既然發生了沉船的事故，就有幫助打撈沉船的好故事。 2020年3月12日《中國水利網》（www.chinawater.com.cn）刊登題為《長江水利委員會水文長江口局開展應急掃測協助沉船定位打撈》的報導：“中國水利網站3月12日訊近日，長江泰州靖江水域發生一起船舶碰撞事故，事故導致1船沉沒，沉船嚴重威脅船舶航行安全。應江蘇泰州海事局請求，長江水利委員會水文長江口局迅速啟動應急響應，派出應急監測小組，攜帶側掃聲吶、多波束等專業掃測設備，連夜啟程趕往事發水域開展應急掃測，協助沉船定位打撈。”（ [http://www.chinawater.com.cn/newscenter/ly/cj /202003/t20200312\_746556.html](http://www.chinawater.com.cn/newscenter/ly/cj/202003/t20200312_746556.html) ）
+另外，不少網友2020年3月18日晚發微博稱北京通州，河北的邢台、燕郊、石家莊、雄安，天津的武清、北辰等地均發生大火。
 
-長江泰州靖江水域發生一起船舶碰撞事故，事故導致1船沉沒，沉船嚴重威脅船舶航行安全。這是一起嚴重的交通事故，威脅長江航運的安全。國家應急管理部、交通部和國家安全生產應急救援中心均沒有報導這起嚴重安全事故，是嚴重失職行為。
+京津冀集中在3月18日這一天暴發大規模火災，這場大火燒的很詭異，聯想到3月5日天津武清區軍機墜毀事件，一系列事件均發生在北京周邊，不由讓人浮想聯翩。
 
-報導說：“水文長江口局應急監測小組在做好防護措施的前提下，在事故現場開展了水下物體探測工作。憑藉著豐富的經驗，在數小時內，通過對探測數據及影像的分析判讀，準確地確定了沉船的位置及水下形態，為事故應急處置和水上交通秩序恢復提供了重要技術支撐。3月12日，江蘇泰州海事局給長江口局發來感謝函，對長江口局的幫助和支持表示感謝。”但是報導沒有說明，沉船是否已經被打撈起來，對長江航行安全的威脅是否已經消除。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215323/1-93.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215510/3-2-6.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215621/2-71.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215606/4-29.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215814/5-27.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215717/6-25.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215735/7-2-3.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215756/8-15.png)
 
-這就是中共宣傳部門要求各地、各部門講好的中國故事。這個中國故事的出發點是一場被隱瞞了的嚴重交通事故，是政府管理部門的失職。這是典型的人家的喪事，是某些人的喜事。喪事是能當作喜事來辦的，悲哀的故事也是能當好故事來講的。
-
-（文章內容僅代表作者觀點）
 
 0

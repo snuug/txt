@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生：如果2017年10月5日的這個新聞發布會能引起重視的話，今天的人類就沒有CCP武漢冠狀病毒這個大劫難了！
-`2020-03-18 23:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/144875/)
+## 兩種藥物對治療新冠病毒感染有效？ “共渡難關，武漢疫情每日熱線”
+`2020-03-19 00:24 GM30` [轉載自GNews](https://gnews.org/zh-hant/144908/)
 
-製作：【上天造·滅疫組】
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
 0
