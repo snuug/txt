@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京、河北、天津多處大風伴隨火災暴發， 山雨欲來風滿樓？
-`2020-03-18 22:03 GM30` [轉載自GNews](https://gnews.org/zh-hant/144766/)
+## 共產黨，京東的護盤遊戲好玩嗎？
+`2020-03-18 22:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/144805/)
 
-**作者：zhoumeng**
+**作者：瑞恩小哥**
 
-2020年3月18日京津冀等地遭遇今年最強大風，伴隨大風京津冀多處暴發大火。
+不得不提一下，本ID前幾篇gnews文章裡面指出的做空標的：FXI，阿里和京東，其中FXI本ID重倉做空已經碩果累累，阿里雖然本ID沒有倉位做空，但也根據之前的預期進入向下筆的延伸中，唯一本ID不明白的，就是京東這個謎之公司，他的走勢圖如下：
 
-2020年3月18日，北京森林消防微博稱北京市延慶區永寧鎮、平谷區山東莊鎮、房山區青龍湖北山營村相繼發生森林火災。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18222447/1-95.png)
 
-2020年3月18日，河北消防微博稱河北保定、滄州、衡水、廊坊、秦皇島等地發生多起火災。
+大家可以看到，最近幾個交易日，共產黨及其狗腿拼了命的在護盤京東。本ID不明白為什麼幫共產黨操盤的這些人這麼蠢。哦對了，還有更蠢的， 據說橋水基金爆倉了，因為他們在道指29000點的時候做多道瓊斯。本ID之前gnews的文章“這一波爆倉的基金經理初中都沒有畢業”裡面，雖然沒有指名道姓的提到哪個基金經理，但是本ID指出，誰要是在當時4小時第二個中樞上加倉股市，誰真的初中沒有畢業。看來，橋水基金主動用爆倉跳樓來回應本ID上一篇文章，可以評為金融圈的搞笑角色。那麼如果傳聞為真，可以說橋水基金之操盤水平之低劣，交易基礎之薄弱，簡直是交易歷史上聞所未聞。說到京東也一樣，本ID不知道是誰出的主意一定要在這裡護盤。但是問題是你護盤能有什麼好處？同期阿里的走勢是這樣：
 
-2020年3月18日，天津津南消防微博稱津南區辛莊鎮白塘口村發生火災。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18222433/2-72.png)
 
-另外，不少網友2020年3月18日晚發微博稱北京通州，河北的邢台、燕郊、石家莊、雄安，天津的武清、北辰等地均發生大火。
+連中國主權基金，江家的小金庫阿里都放棄治療了，那京東護盤能護多久？劉強東擀麵杖就比馬雲的好用？本ID在這裡正式提出：由於京東這幾天腦殘護盤，做空成本已經降低很多。所以，本ID將重點關注京東的做空機會(請交易基礎薄弱的戰友切莫參與！！) 本ID可以給共產黨一個建議：趕緊將手中籌碼扔出砸盤，不然會有群狼來跟你們搶做空成本，那個時候就更加尷尬了。這就像本ID之前有一篇文章“這一屆操縱A股的智商不太行“ 裡面的例子一樣，為了政治任務，共產黨不惜打亂操盤計劃，把A股的走勢搞的不倫不類。現在京東的例子也差不多，大概率是為了某些腦殘的政治任務或者利益相關方來進行護盤，那麼其後果也就是京東這塊腐肉吸引著群狼，越護盤狼越咬，最後導致原來可以掌握在自己手裡的做空單被群狼搶去。這是非常現實的事情。
 
-京津冀集中在3月18日這一天暴發大規模火災，這場大火燒的很詭異，聯想到3月5日天津武清區軍機墜毀事件，一系列事件均發生在北京周邊，不由讓人浮想聯翩。
+所以，看來共產黨又要在京東這個股票上，上演一次為了政治任務而不惜打亂操盤計劃這種拙劣的戲碼。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215323/1-93.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215510/3-2-6.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215621/2-71.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215606/4-29.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215814/5-27.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215717/6-25.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215735/7-2-3.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/18215756/8-15.png)
-
+（文章內容僅代表作者觀點）
 
 0
