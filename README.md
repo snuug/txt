@@ -501,6 +501,11 @@
 [https://www.guo.media/posts/275177](https://www.guo.media/posts/275177) `2020-03-20T11:11:23`
 ##
 
+**milesguo** TNT Daily :An international student in quarantine was dissatisfied with the dirty water provided<br>https://gnews.org/142784/
+
+[https://www.guo.media/posts/275176](https://www.guo.media/posts/275176) `2020-03-20T14:40:13`
+##
+
 **milesguo** Supplies and volunteers shortage at food banks due to pandemic<br>https://gnews.org/142778/
 
 [https://www.guo.media/posts/275175](https://www.guo.media/posts/275175) `2020-03-20T10:11:26`
