@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/275485](https://www.guo.media/posts/275485) `2020-03-20T11:10:39`
 ##
 
+**milesguo** 从所谓郭先生决定和INTY传媒翻脸了说开去<br>https://gnews.org/zh-hans/145665/
+
+[https://www.guo.media/posts/275483](https://www.guo.media/posts/275483) `2020-03-20T11:25:16`
+##
+
 **milesguo** 活着最重要，侥幸心理不可有！ “共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/145658/
 
 [https://www.guo.media/posts/275482](https://www.guo.media/posts/275482) `2020-03-20T10:10:14`
@@ -79,6 +84,11 @@
 **milesguo** 庞培奥批中共的虚假宣传：他们将无数生命置于危险之中<br>https://gnews.org/zh-hans/145411/
 
 [https://www.guo.media/posts/275430](https://www.guo.media/posts/275430) `2020-03-20T11:10:46`
+##
+
+**milesguo** 陈峰买菜<br>https://gnews.org/zh-hans/144887/
+
+[https://www.guo.media/posts/275429](https://www.guo.media/posts/275429) `2020-03-20T11:25:19`
 ##
 
 **milesguo** “守护”谭德塞！<br>https://gnews.org/zh-hans/144850/
@@ -144,6 +154,11 @@
 **milesguo** 盗国贼重拾韩战美军放毒骗局<br>https://gnews.org/zh-hans/144823/
 
 [https://www.guo.media/posts/275380](https://www.guo.media/posts/275380) `2020-03-20T10:10:39`
+##
+
+**milesguo** 八角棒槌：瓮中捉鳖 小粉红回国潮<br>https://gnews.org/zh-hans/145030/
+
+[https://www.guo.media/posts/275379](https://www.guo.media/posts/275379) `2020-03-20T11:25:21`
 ##
 
 **milesguo** 研究发现，A型血型患者可能更容易感染冠状病毒<br>https://gnews.org/zh-hans/145004/
@@ -241,14 +256,29 @@
 [https://www.guo.media/posts/275320](https://www.guo.media/posts/275320) `2020-03-20T10:11:01`
 ##
 
+**milesguo** Warroom 49：中共操纵WHO作为宣传机器颠倒黑白<br>https://gnews.org/zh-hans/144393/
+
+[https://www.guo.media/posts/275319](https://www.guo.media/posts/275319) `2020-03-20T11:25:25`
+##
+
 **milesguo** 川普政府将向美国人每人派发1000美金支票<br>https://gnews.org/zh-hans/144281/
 
 [https://www.guo.media/posts/275318](https://www.guo.media/posts/275318) `2020-03-20T10:11:02`
 ##
 
+**milesguo** 《武汉肺炎》欧盟也宣布与中研院合作开发疫苗和快筛<br>https://gnews.org/zh-hans/144471/
+
+[https://www.guo.media/posts/275317](https://www.guo.media/posts/275317) `2020-03-20T11:25:26`
+##
+
 **milesguo** 3月18日：如果2017年10月5日的这个新闻发布会能引起重视的话，今天的人类就没有CCP武汉冠状病毒这个大劫难了！<br>https://youtu.be/zXCshIg4aNE
 
 [https://www.guo.media/posts/275302](https://www.guo.media/posts/275302) `2020-03-20T10:11:04`
+##
+
+**milesguo** Non-pharmaceutical interventions (NPIs) to curb COVID-19<br>https://gnews.org/144540/
+
+[https://www.guo.media/posts/275289](https://www.guo.media/posts/275289) `2020-03-20T11:25:29`
 ##
 
 **milesguo** Trump Gov‘t Send Americans $1,000 Checks<br>https://gnews.org/144289/
@@ -269,6 +299,11 @@
 **milesguo** Pence asks construction companies to donate their N95 masks to hospitals<br>https://gnews.org/144267/
 
 [https://www.guo.media/posts/275285](https://www.guo.media/posts/275285) `2020-03-20T11:11:09`
+##
+
+**milesguo** TNT Daily : Shi, Zhengli claimed that mosquitos could become the third host of the novel coronavirus<br>https://gnews.org/143943/
+
+[https://www.guo.media/posts/275284](https://www.guo.media/posts/275284) `2020-03-20T11:25:31`
 ##
 
 **milesguo** TNT Daily : Shi, Zhengli claimed that mosquitos could become the third host of the novel coronavirus<br>https://gnews.org/143943/
@@ -306,9 +341,19 @@
 [https://www.guo.media/posts/275219](https://www.guo.media/posts/275219) `2020-03-20T10:11:14`
 ##
 
+**milesguo** 上海出台稳外贸重点企业“11条” 那么中共国的中小企业将何去何从呢<br>https://gnews.org/zh-hans/143684/
+
+[https://www.guo.media/posts/275218](https://www.guo.media/posts/275218) `2020-03-20T11:25:33`
+##
+
 **milesguo** 震惊！意大利中共病毒感染者可能已达10万人<br>https://gnews.org/zh-hans/143718/
 
 [https://www.guo.media/posts/275216](https://www.guo.media/posts/275216) `2020-03-20T10:11:16`
+##
+
+**milesguo** 2020年3月17日武汉冠状病毒大流行第53集<br>https://gnews.org/zh-hans/143698/
+
+[https://www.guo.media/posts/275209](https://www.guo.media/posts/275209) `2020-03-20T11:25:34`
 ##
 
 **milesguo** <br>川普提8500亿美元紧急支出计划救股市 关注郭先生3月11日直播内容!<br>https://gnews.org/zh-hans/143656/
@@ -319,6 +364,11 @@
 **milesguo** 马航370的未解之谜何时揭开<br>https://gnews.org/zh-hans/143483/
 
 [https://www.guo.media/posts/275203](https://www.guo.media/posts/275203) `2020-03-20T11:11:16`
+##
+
+**milesguo** “飞机撒钱”时代到来，川普政府欲立即发现金！所有的利好消息 只为逃命<br>https://gnews.org/zh-hans/143416/
+
+[https://www.guo.media/posts/275201](https://www.guo.media/posts/275201) `2020-03-20T11:25:37`
 ##
 
 **milesguo** <br>Special Ep 50- War Room: Pandemic, Wuhan Coronavirus<br>https://gnews.org/143558/
@@ -341,6 +391,11 @@
 [https://www.guo.media/posts/275184](https://www.guo.media/posts/275184) `2020-03-20T10:11:21`
 ##
 
+**milesguo** Beijing launches Xiao Tangshan Hospital for Travelers from aboard<br>https://gnews.org/143213/
+
+[https://www.guo.media/posts/275183](https://www.guo.media/posts/275183) `2020-03-20T11:25:39`
+##
+
 **milesguo** Death is around you and me: A huge conspiracy came quietly<br>https://gnews.org/143186/
 
 [https://www.guo.media/posts/275182](https://www.guo.media/posts/275182) `2020-03-20T10:11:23`
@@ -349,6 +404,11 @@
 **milesguo** Proposal Passed in District Council to Stop Inviting PRC Officials From Hong Kong Liaison Office to Funding Activities<br>https://gnews.org/141943/
 
 [https://www.guo.media/posts/275181](https://www.guo.media/posts/275181) `2020-03-20T11:11:20`
+##
+
+**milesguo** The Farm: Extremely high sulfur levels detected in China (on 3/16)<br>https://gnews.org/142677/
+
+[https://www.guo.media/posts/275180](https://www.guo.media/posts/275180) `2020-03-20T11:25:41`
 ##
 
 **milesguo** Letter to Inbound Travelers Entering Yunnan Directly or via Other Chinese Cities<br>https://gnews.org/143059/
@@ -369,6 +429,11 @@
 **milesguo** US government: foreign disinformation is stoking virus fears<br>https://gnews.org/142755/
 
 [https://www.guo.media/posts/275174](https://www.guo.media/posts/275174) `2020-03-20T11:11:24`
+##
+
+**milesguo** 3月17号：这个从内部流出的关于武汉病毒．官方标准的死亡名单，暴露出了C CP冠状病毒疫情以来，真正的死亡人数．时间和年龄．充分地打脸共产党有关武汉C C P病毒死亡的数据……特别是打脸只死老年人．不死年轻人．以及死亡所谓的总共几千人的说法……从时间地点可以推算出。仅仅二月份全中国的死亡人数和年龄以及掩盖死亡原因的这种犯罪统计掩盖的方式．就可以得出中共国的疫情灾难是多么的严重……可怕至极……一切已经开始！
+
+[https://www.guo.media/posts/275162](https://www.guo.media/posts/275162) `2020-03-20T11:25:44`
 ##
 
 **milesguo** 俄罗斯明天将再次收紧入境限制<br>https://gnews.org/zh-hans/143273/
@@ -441,6 +506,11 @@
 [https://www.guo.media/posts/275097](https://www.guo.media/posts/275097) `2020-03-20T10:11:40`
 ##
 
+**milesguo** 中共是如何利用“一分为二”的伪逻辑来给中国人洗脑的？<br>https://gnews.org/zh-hans/142783/
+
+[https://www.guo.media/posts/275096](https://www.guo.media/posts/275096) `2020-03-20T11:25:47`
+##
+
 **milesguo** 2020年3月16日武汉冠状病毒大流行第52集<br>https://gnews.org/zh-hans/142769/
 
 [https://www.guo.media/posts/275086](https://www.guo.media/posts/275086) `2020-03-20T10:11:41`
@@ -449,6 +519,11 @@
 **milesguo** 中国英国应对措施的不同体现的是价值观的不同<br>https://gnews.org/zh-hans/142747/
 
 [https://www.guo.media/posts/275085](https://www.guo.media/posts/275085) `2020-03-20T10:11:43`
+##
+
+**milesguo** 一名党龄30年的老党员与爆料革命（第九章）<br>https://gnews.org/zh-hans/142739/
+
+[https://www.guo.media/posts/275084](https://www.guo.media/posts/275084) `2020-03-20T11:25:48`
 ##
 
 **milesguo** 中共不给予基本检测，同时秘密建立隔离点<br>https://gnews.org/zh-hans/142718/
@@ -484,6 +559,11 @@
 **milesguo** 中共冠状病毒疫情下的幸存者：来自韩国釜山的故事<br>https://gnews.org/zh-hans/142479/
 
 [https://www.guo.media/posts/275062](https://www.guo.media/posts/275062) `2020-03-20T10:11:51`
+##
+
+**milesguo** 立武出品：中共外捐抗疫物资统计<br>https://gnews.org/zh-hans/142507/
+
+[https://www.guo.media/posts/275061](https://www.guo.media/posts/275061) `2020-03-20T11:25:52`
 ##
 
 **milesguo** 全球降息，救不了股市，美国也可以利用打中共来解决国内问题<br>https://gnews.org/zh-hans/142488/
