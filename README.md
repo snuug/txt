@@ -276,6 +276,11 @@
 [https://www.guo.media/posts/275325](https://www.guo.media/posts/275325) `2020-03-20T10:10:57`
 ##
 
+**milesguo** <br>武汉肺炎抗疫志愿者！如同卫生纸！共产党擦完屁股就扔！<br>https://gnews.org/zh-hans/144189/
+
+[https://www.guo.media/posts/275324](https://www.guo.media/posts/275324) `2020-03-20T12:55:13`
+##
+
 **milesguo** 《武汉肺炎》欧盟也宣布与中研院合作开发疫苗和快筛<br>https://gnews.org/zh-hans/144471/
 
 [https://www.guo.media/posts/275322](https://www.guo.media/posts/275322) `2020-03-20T10:10:59`
@@ -356,6 +361,11 @@
 [https://www.guo.media/posts/275272](https://www.guo.media/posts/275272) `2020-03-20T11:11:10`
 ##
 
+**milesguo** 3月18日：http://livestream.com/accounts/27235681．上午11:10应战友们的热烈要求，马上文贵在30分钟内开始今天的直播乱聊，一切都是已经开始！
+
+[https://www.guo.media/posts/275251](https://www.guo.media/posts/275251) `2020-03-20T12:55:15`
+##
+
 **milesguo** 文字版2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人<br>https://gnews.org/zh-hans/144058/
 
 [https://www.guo.media/posts/275225](https://www.guo.media/posts/275225) `2020-03-20T11:11:12`
@@ -414,6 +424,11 @@
 **milesguo** <br>川普提8500亿美元紧急支出计划救股市 关注郭先生3月11日直播内容!<br>https://gnews.org/zh-hans/143656/
 
 [https://www.guo.media/posts/275205](https://www.guo.media/posts/275205) `2020-03-20T11:11:14`
+##
+
+**milesguo** 中官员质疑美军带进病毒 川普：中国指称美军将病毒带入中国的讯息是错误的!<br>https://gnews.org/zh-hans/143585/
+
+[https://www.guo.media/posts/275204](https://www.guo.media/posts/275204) `2020-03-20T12:55:17`
 ##
 
 **milesguo** 马航370的未解之谜何时揭开<br>https://gnews.org/zh-hans/143483/
@@ -531,6 +546,11 @@
 [https://www.guo.media/posts/275113](https://www.guo.media/posts/275113) `2020-03-20T10:11:34`
 ##
 
+**milesguo** Warroom 48：美国人应该感激川普政府采取的积极措施<br>https://gnews.org/zh-hans/142924/
+
+[https://www.guo.media/posts/275112](https://www.guo.media/posts/275112) `2020-03-20T12:55:19`
+##
+
 **milesguo** 郭文贵先生：如果发生三战，那么中共将彻底灭亡，中国将会迅速加入国际系统<br>https://gnews.org/zh-hans/142912/
 
 [https://www.guo.media/posts/275104](https://www.guo.media/posts/275104) `2020-03-20T10:11:35`
@@ -544,6 +564,11 @@
 **milesguo** 彼得·纳瓦罗：美国会保障测试如期进行<br>https://gnews.org/zh-hans/142860/
 
 [https://www.guo.media/posts/275102](https://www.guo.media/posts/275102) `2020-03-20T11:11:34`
+##
+
+**milesguo** 国内爆料：废除解除隔离名单<br>https://gnews.org/zh-hans/142846/
+
+[https://www.guo.media/posts/275101](https://www.guo.media/posts/275101) `2020-03-20T12:55:21`
 ##
 
 **milesguo** <br>如果全球经济陷入衰退，美国会靠打中共振兴制造业吗<br>https://gnews.org/zh-hans/142834/
@@ -589,6 +614,11 @@
 **milesguo** 中共不给予基本检测，同时秘密建立隔离点<br>https://gnews.org/zh-hans/142718/
 
 [https://www.guo.media/posts/275079](https://www.guo.media/posts/275079) `2020-03-20T10:11:44`
+##
+
+**milesguo** 中国楼市即将完成他最后的历史使命一去不复返<br>https://gnews.org/zh-hans/142696/
+
+[https://www.guo.media/posts/275078](https://www.guo.media/posts/275078) `2020-03-20T12:55:22`
 ##
 
 **milesguo** 耐克将关闭美国所有商店对抗冠状病毒传播<br>https://gnews.org/zh-hans/142651/
