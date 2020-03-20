@@ -131,6 +131,11 @@
 [https://www.guo.media/posts/275417](https://www.guo.media/posts/275417) `2020-03-20T10:10:27`
 ##
 
+**milesguo** 吴征来美国干什么来了<br>https://gnews.org/zh-hans/145317/
+
+[https://www.guo.media/posts/275416](https://www.guo.media/posts/275416) `2020-03-20T14:10:15`
+##
+
 **milesguo** 白宫贸易顾问纳瓦罗接受福克斯采访谈到美国如何重建制造业<br>https://gnews.org/zh-hans/144960/
 
 [https://www.guo.media/posts/275415](https://www.guo.media/posts/275415) `2020-03-20T10:10:28`
@@ -189,6 +194,11 @@
 **milesguo** 研究发现，A型血型患者可能更容易感染冠状病毒<br>https://gnews.org/zh-hans/145004/
 
 [https://www.guo.media/posts/275378](https://www.guo.media/posts/275378) `2020-03-20T10:10:40`
+##
+
+**milesguo** 澳大利亚研究人员研究发现，现有的两种药物可以“治愈” COVID-19<br>https://gnews.org/zh-hans/144855/
+
+[https://www.guo.media/posts/275377](https://www.guo.media/posts/275377) `2020-03-20T14:10:17`
 ##
 
 **milesguo** 2020年3月12日灭共者说中文字幕合集（下）<br>https://gnews.org/zh-hans/144958/
