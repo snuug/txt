@@ -1,77 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 真正疾病不是冠狀病毒，而是喪心病狂的共產黨
-`2020-03-20 00:05 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/145619/)
+## 97金融風暴正在回歸！
+`2020-03-20 00:10 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/145384/)
 
-【中英对照翻译】 [https://spark.adobe.com/page/OdG8DiGjjMFhh/](https://spark.adobe.com/page/OdG8DiGjjMFhh/)
+[https://spark.adobe.com/page/MGoatpeMp3HDL/](https://spark.adobe.com/page/MGoatpeMp3HDL/)
 
-*作者：Gordon G. Chang* *March 17, 2020 at 5:00 am*
+*作者：玄天生*
 
-*翻译：TCC*
+**簡評：遠離股票、遠離投機。在CCPVirus肆虐毒害全世界的緊要關頭，現金（外幣）為王，保護好自己生命，做好囤糧、囤水準備，不要等到海嘯的海浪來時才做準備。因為見到海浪襲來時，你十有八九已失去生命。**
+[!\[\](https://spark.adobe.com/page/MGoatpeMp3HDL/images/7e3d3153-e765-4101-a7f8-2725a226b971.jpg?asset_id=6c040e4e-7d19-4a4b-a7e8-181209b10b2c&amp;img_etag=5c5a3fcd699fe61b77251b9161966d95&amp;size=1024)](https://spark.adobe.com/page/MGoatpeMp3HDL/images/7e3d3153-e765-4101-a7f8-2725a226b971.jpg?asset_id=6c040e4e-7d19-4a4b-a7e8-181209b10b2c&amp;img_etag=5c5a3fcd699fe61b77251b9161966d95&amp;size=1024)
+這幾天看著金融市場，尤其是美股的起起伏伏，仿佛坐著過山車一樣，刺激、危險和恐怖。雖然我不太懂金融，但，我還是能看出來：在反送中事件、CCP-VIRUS 生化武器侵害和攻擊之下，全球經濟都受到重創，而唯獨中共和香港的股票市場，卻沒有受到影響。不過，我最近發現，只要美股下跌時，港股都回升，反之若然。相信這一反常狀況又是被CCP操縱的結果！
 
-*简评：TCC*
+回看當年97金融風暴，亞洲市場都深受影響。想當年，經濟接近崩潰邊緣，新聞頭條都是因為金融危機跳樓自殺等。當然，那時的政府還是採取了一些應對措施，比如出招應付金融巨鱷索羅斯，而且好在香港是以美元作儲備貨幣，因為港元跟美元的掛勾，美元也是國際最普及的貨幣之一，香港在英國人於1997年剛徹走之時有 900 多億美元的外匯儲備，而美元存量大可以實行聯系匯率。因索羅斯不能以美元打美元，加上香港政府動用 1000 億港幣拉高香港股市，索羅斯計算過後最終徹走。
+[!\[\](https://spark.adobe.com/page/MGoatpeMp3HDL/images/a5adab31-0ba6-483d-a087-7e23850a0978.jpg?asset_id=56612e34-10cb-47ff-b888-82b0cbe7d469&amp;img_etag=50116a479e45124e1a2d632e221bcef8&amp;size=1024)](https://spark.adobe.com/page/MGoatpeMp3HDL/images/a5adab31-0ba6-483d-a087-7e23850a0978.jpg?asset_id=56612e34-10cb-47ff-b888-82b0cbe7d469&amp;img_etag=50116a479e45124e1a2d632e221bcef8&amp;size=1024)
+而現在港共政府，面對這一次的海嘯，已經不會那麼好運，因為這次的情況不一樣了。如果美國決定開始對付中共時，相信美國解決的第一件事情就是美元與港元的脫鉤。其實，美股這幾回的下跌，早已令香港炒家們、投機者們受到影響。但是如果美元真與港元脫鉤的話，不知多少香港人因此與委內瑞拉的情況一樣呢﹖當然若聽過文貴先生、爆料革命的節目和黃色經濟理論，把現金換成美元、外幣或是黃金等，有準備囤糧、囤水、囤物資，相信有這些準備的戰友們、手足們都能躲過這一場災難。
+[!\[\](https://spark.adobe.com/page/MGoatpeMp3HDL/images/4c44c92a-94ae-4af6-a21a-959176ee2599.jpg?asset_id=851085db-5fd6-4eae-bac1-84a621e99692&amp;img_etag=bd6ac5d1ec287b3d692c86c159cb55bb&amp;size=1024)](https://spark.adobe.com/page/MGoatpeMp3HDL/images/4c44c92a-94ae-4af6-a21a-959176ee2599.jpg?asset_id=851085db-5fd6-4eae-bac1-84a621e99692&amp;img_etag=bd6ac5d1ec287b3d692c86c159cb55bb&amp;size=1024) FB: LadyKylie in Germany 圖片 
+新一代的年青人或許不瞭解當年97件的慘況。因為中共國的教課書早已被中共篡改，七十年來，中共給老百姓用諸如：爹親娘親不如黨親，只有中共，才有香港等的各種畸形變態思想洗腦。很多人錯以為，當年的救市是中共的功勞。這就是中共一貫的手法，篡改歷史，編造謊言往自己身上貼金，抺掉事實發生的一切真相。因為中共只能活在假、大、空、騙、惡的世界裡才能得以生存和維繫。([新聞來源](https://medium.com/@kyliecthapthong/%E4%B8%AD%E5%9C%8B%E5%8F%88%E5%9C%A8%E9%A6%99%E6%B8%AF%E6%95%99%E7%A7%91%E6%9B%B8%E6%94%B9%E6%AD%B7%E5%8F%B2-%E6%B4%97%E9%A6%99%E6%B8%AF%E5%B0%8F%E6%9C%8B%E5%8F%8B%E8%85%A6-24c197a40e7b))
+[!\[\](https://spark.adobe.com/page/MGoatpeMp3HDL/images/9244a7aa-b819-4990-8dfe-1b6830f6e73c.jpg?asset_id=a996ede8-6571-4714-89a8-e5d24dd5641e&amp;img_etag=b91f12d2635018f08e1926558a28c92e&amp;size=1024)](https://spark.adobe.com/page/MGoatpeMp3HDL/images/9244a7aa-b819-4990-8dfe-1b6830f6e73c.jpg?asset_id=a996ede8-6571-4714-89a8-e5d24dd5641e&amp;img_etag=b91f12d2635018f08e1926558a28c92e&amp;size=1024)
+最後，香港97金融風暴的味道正在散發，就如海嘯來臨時，大海的哀嗚聲早已吹起，準備好一切，找個最安全的地方、準備好各種各樣的糧食，好好保護自己和家人，竭盡全力傳播香港真相和CCPvirus真相吧！
 
-*PR：海阔天空*
+*嗚謝圖片來源[unsplash](https://unsplash.com/) 和 [pixabay](https://pixabay.com/)*
 
-**引言：中共這次真的向美國發動了致命的珍珠港事件，正在向死往之路快速奔跑。歷史告訴我們與美國挑戰者終將滅亡，正義必戰勝邪惡。這次由中共國傳開造成世界大流行的疫情，中共不但沒道歉，至少在道義上，還用大外宣對外誣指是美國釋放的病毒。真是做賊的喊捉賊，厚顏無恥。這完全不是中國人的行為。現在美國漸漸覺醒了，中共的末日也掐指而算。所以文章指出，中國的真正疾病不是冠狀病毒，而是那喪心病狂的共產黨。**
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/3b43c0df-d31d-4b94-9dc7-28b15327af3a.jpg?asset_id=8e074105-d22c-43e5-b079-dd144f2af8b9&amp;img_etag=1b3c2efd3874a6c01094a7d5d2ba2946&amp;size=1024)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/3b43c0df-d31d-4b94-9dc7-28b15327af3a.jpg?asset_id=8e074105-d22c-43e5-b079-dd144f2af8b9&amp;img_etag=1b3c2efd3874a6c01094a7d5d2ba2946&amp;size=1024)
-眾所周知，在習近平主席公開承認該病之前，中共國在12月和1月允許冠狀病毒傳播六週。因此，毫不奇怪的是，美國人以及現在正在要求根本性政治變革的中國人民意識到真正的疾病是共產主義。圖為：共產黨“社區志願者”於2020年2月23日在中國北京的一條街道居民區的入口，對一名男子進行體溫測量。（照片由Nicolas Asfouri / AFP通過Getty Images攝影）
-
-## **中國的真正疾病：不是冠狀病毒**
-
-去年7月，五名一直犯錯的美國分析家告訴我們“中共國不是敵人”。
-
-實際上，這次他們在技術上是正確的。中國的共產主義不是一個敵人，而是唯一的敵人。
-
-在冠狀病毒大流行消退之後，美國人不應該忘記北京針對自己國家的惡意行為。
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/3ceaf629-21ac-4049-a9ab-3848c91d4f24.jpg?asset_id=47cf028c-f337-4d21-89d3-dddca0e38e59&amp;img_etag=74fcad060f3049e894a3ab887958bee9&amp;size=2560)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/3ceaf629-21ac-4049-a9ab-3848c91d4f24.jpg?asset_id=47cf028c-f337-4d21-89d3-dddca0e38e59&amp;img_etag=74fcad060f3049e894a3ab887958bee9&amp;size=1024)
-一個多月以來，中共中央政府的外交部和中共的《环球時報》一直在試圖對川普政府抹黑。這場運動在外交部發言人兼新聞部新聞司副司長新秀趙立堅發布的一系列推文下達到了高峰。
-
-在3月12日，他的一條推文中指責美國官員“不道德”。在數小時前，他在推特上說“零號病人”在美國，並暗示美軍“把這種流行病帶給了武漢”，暗示美國正在進行細菌生物戰。
-
-在同一天，外交部發言人趙的​​老闆華春瑩歪曲了疾病預防控制中心主任羅伯特·雷德菲爾德的證詞，以證明冠狀病毒的爆發已經在美國開始。
-
-第二天，在3月13日川普總統在玫瑰花園舉行的新聞發布會上淡化了這些公開的敵對信息。他首先提到了與中共國統治者習的談話，然後在談到中國領導人時說：“他們知道我言下之意。”
-
-實際上，如果中共國官員實際上知道冠狀病毒的起源，那就更糟。在這種情況下，這些官員竭盡全力責備美國，再次證明了他們的制度對美國根深蒂固的敵意。
-
-不幸的是，北京無法阻止這事。美國國務院於3月13日召喚中共國大使崔天凱抗議外交部的虛假宣傳活動。儘管發出了警告，但中共國駐南非大使林松田於3月16日繼續通過推文宣傳冠狀病毒不起源於中國的說法。
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/4e991f22-b788-40a4-9ff9-23fda67611ae.jpg?asset_id=6722ded3-dd31-4112-a02e-9483a84dd2a6&amp;img_etag=1e195a5bb581baf4bae892a8d28829a2&amp;size=2560)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/4e991f22-b788-40a4-9ff9-23fda67611ae.jpg?asset_id=6722ded3-dd31-4112-a02e-9483a84dd2a6&amp;img_etag=1e195a5bb581baf4bae892a8d28829a2&amp;size=1024)
-從這裡看來，兩國關係似乎只會繼續惡化。一方面，北京官方的新華社一直威脅要切斷“醫療用品”，“使”美國陷入“強大的冠狀病毒之深淵”。
-
-根據川普貿易顧問彼得·納瓦羅（Peter Navarro）的說法，北京已經將一家生產醫用口罩的美國工廠國有化。此外，福克斯商業網絡公司的瑪麗亞·巴蒂羅莫（Maria Bartiromo）反复廣播說，中共還強迫至少一艘載有運往美國口罩，手套和其他防護裝備的船隻返回中共國。
-
-北京威脅要切斷供應和傷害美國人，這只會導致美國削減與中共的貿易，或者更確切地說，是不允許貿易回到冠狀病毒之前的狀態了。有人認為，減少商業貿易是美國唯一的長期解決方案，因為中國共產黨試圖利用自己作為製造國的核心角色，傳播極權主義，推進西方民主國家所憎惡的其它地緣政治目標。
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/507c5d49-f35f-4142-9ae4-81ffe2a0ebed.jpg?asset_id=4a4eb7da-1f9e-4a44-a8d0-1f98262d305d&amp;img_etag=3e0abbacc6fda16c3cca9983323ac885&amp;size=2560)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/507c5d49-f35f-4142-9ae4-81ffe2a0ebed.jpg?asset_id=4a4eb7da-1f9e-4a44-a8d0-1f98262d305d&amp;img_etag=3e0abbacc6fda16c3cca9983323ac885&amp;size=1024)
-至少在起初，切斷聯繫仍將使貿易保持較高水平。但是，大量的商業活動通常被稱為中美的“鎮流器”，很可能再不會穩定關係了。
-
-哈佛大學已故政治學家塞繆爾·亨廷頓（Samuel Huntington）在《文明的衝突與世界秩序的重建》中問道， “貿易會增加還是減少發生衝突的可能性？” “它可至少降低國家間戰爭可能性的假設尚未得到證實，而且相反的證據卻不勝枚舉。”
-
-在他那本具有里程碑意義的書中還指出，高層次的貿易並不能阻止第一次世界大戰。正如亨廷頓在其他人的研究基礎上指出的那樣，期望是重要的。他寫道：“只有’當各國期望高貿易水平將在可預見的未來繼續時，經濟上的相互依存才能促進和平。’”但是，如果貿易夥伴“不期望高水平的相互依存繼續下去，戰爭便會發生。”
-
-在3月13日，川普預計兩國之間的貿易會增加，且稱中共國將根據1月15日簽署的第一階段貿易協議購買2500億美元的產品。北京在該協議中普遍承諾在兩年內增加對美國商品和服務的購買。這與2017年相比，增加了2,000億美元。
-
-但是，川普的樂觀在北京並未得到支持。中共國現在以這新冠流行病為藉口，來延緩推遲其購買的義務來改變協議，這是美國應該關注安排的核心。
-
-《環球時報》指出，這種大流行抑制了中共國對美國商品的需求，但這並不一定是解除貿易條約的好理由。
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/d234b690-60f0-4c7a-b1cd-9a4495a5e3e2.jpg?asset_id=bbcc2312-860e-4b79-88c4-ecd267304e2c&amp;img_etag=c8f8501d6677d29ea8cd0a46a93164a8&amp;size=2560)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/d234b690-60f0-4c7a-b1cd-9a4495a5e3e2.jpg?asset_id=bbcc2312-860e-4b79-88c4-ecd267304e2c&amp;img_etag=c8f8501d6677d29ea8cd0a46a93164a8&amp;size=1024)
-為什麼不？畢竟，習在授權在白宮簽署交易之前就知道冠狀病毒的流行。他曾在2月份說，在1月7日的一次中共中央政治局常委會議上發布了遏制這一流行病的命令。因此，習近平對1月15日簽約時對疫情的了解以及現在對救濟的要求使他顯得更加邪惡。很可能這是他從一開始就無意兌現貿易協議的一面。回想一下，習曾違反了2015年9月對前總統巴拉克·奧巴馬（Barack Obama）的承諾，關於不再從事人工島軍事化，以及以商業目的入侵美國。
-
-無論如何，今年中美貿易幾乎肯定會下降。這種脫節與川普宣稱要將製造業帶回國內的願望是一致的。
-
-總統顯然已經考慮了很長得時間了。例如，2017年7月21日，他發布了《評估和加強美國製造業和國防工業基礎以及供應鏈彈性的行政命令》。眾所周知，國防工業基地的研究揭露了美國的脆弱性，並導致採取了鼓勵製造業回國的行動。川普現在可以利用根據1977年國際緊急經濟權力法授予的廣泛權力繼續這一重要政策。
-
-當然，當兩國“脫節”，“脫鉤”或“脫離”經濟時，是不可避免地會導致戰爭。然而，隨著美國人對好戰的中共國保持警惕時，中美兩國關係也正在分崩離析。例如，中共國已經證明不可能不願傷害美國人。
-[!\[\](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/426cb154-c349-4534-a708-b4f13fcd6042.jpg?asset_id=b6ebfb6c-59e9-4dc5-8b90-f25f5671acf9&amp;img_etag=d66a16387a35631517fc6008816d079b&amp;size=2560)](https://spark.adobe.com/page/OdG8DiGjjMFhh/images/426cb154-c349-4534-a708-b4f13fcd6042.jpg?asset_id=b6ebfb6c-59e9-4dc5-8b90-f25f5671acf9&amp;img_etag=d66a16387a35631517fc6008816d079b&amp;size=1024)
-眾所周知，中共國在12月和1月允許冠狀病毒傳播了六個星期，然後習才公開承認該病。因此，毫不奇怪的是，美國人以及現在正在要求根本性政治變革的中國人民意識到真正的疾病是共產主義。
-
-冠狀病毒證明，對於美國和自由世界而言，中國的共產主義是個敵人-一個真正的敵人。
-
-*Gordon G. Chang是《中國的崩潰》作者和蓋茨通研究所傑出資深研究員*
-
-[新闻链接](https://www.gatestoneinstitute.org/15745/coronavirus-china-communism)
-
-**編輯：【喜馬拉雅戰鷹團】**
+編輯 【喜馬拉雅戰鷹團】
 
 0
