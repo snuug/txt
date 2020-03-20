@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 〘圖揭真相〙圖扇國際媒體耳光,他們有關中國報導都是假象—CCP的“非人主義”
-`2020-03-19 21:36 GM06` [轉載自GNews](https://gnews.org/zh-hant/145557/)
+## 3月19日德國簡訊
+`2020-03-19 21:54 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/145572/)
 
-作者：陽之戰
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19215159/6DBE83F6-213C-4C4F-915A-E7E96E358389.jpeg)
+⚫️ **德國確診人數超過14000人**
 
-一些國際媒體對中國的相關報導不論任何內容都造成了許多世界級的假象，都不含一分中國的實質本質，不是真實的CCP統治下的中國，世界被他們蒙上了一層膠質物使人們看不到真相，假象的連鎖反應對世界侵害威力是不言而喻的。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211524/1-1-24.jpg)
-從吳花燕這位善良的女孩說起，這位貴州女孩為了照顧患病的弟弟，每天只吃白米飯拌糟辣椒，致使吳花燕24歲的年齡體重不到23公斤，身高只135厘米，嚴重的營養不良，使她病逝，我們看看下面截圖國際媒體的相關報導。
+根據時代在線Zeit Online網站的統計，截止2020年3月19日20時06分，德國確診人數為14632人，死亡44人，治愈145人。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211439/2-4-10.jpg)
+[新聞來源](https://www.zeit.de/wissen/gesundheit/2020-03/coronavirus-deutschland-infektionen-faelle-verbreitung-epidemie-karte)
 
-這幾家國際媒體指出的要點都是中國對慈善機構監管不足，或慈善機構“消費善心”這和國內的輿論引導異曲同工，而沒說，吳花燕在醫院接受采訪時被國家管理的媒體機構導演成了“愛國家”，導演成了“正能量”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211414/3.jpg.png)
-關鍵問題還不在這，問題是中國的監管審查真的不嚴格嗎？請看下圖：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211347/4-34.png)
-武漢肺炎疫情期間網絡直播授課,在國內老師們因為直播過程中無意講了敏感詞導致出現大量的老師們正在直播時被封，說明了國內所有的直播都是在被時時監管這是難道不嚴格嗎？大錯特錯，CCP在對中國人實行的是全方位的監管審查，所投入的人力物力科技是任何國家都無法與之相比的。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211320/5-2-3.jpg)
-這只是從這一個事件中所窺見的冰山中的非常小的一個小小角。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211503/6-3-4.jpg)
-CCP 不是恐怖主義，因為恐怖主義的邪惡完全無法與之相比，它是“非人類主義”，恐怖主義只能算武力，而它是病毒式的入侵，和新冠病毒一樣，會矇騙，會欺騙，會潛伏，會入侵到各個國家的系統組織，造成不可預估的傷害。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/19211608/7-2-4.png)
-了解中國歷史的人可以知道，幾十年來在中國他們已經製造了數次世紀人道災難，為了控制掌控單單殺掉的人就以達數以億計，並且從未承認過錯誤，國際上對他們的欺騙性和這種“非人主義”的邪惡病毒需要重新認知，他們的基因裡從未把人當成人來看待，他們是人類的敵人。
+⚫️ **聯邦政府為小企業提供400億救助**
 
-（文章內容僅代表作者個人觀點）
+聯邦政府計劃為受冠狀病毒危機影響的自由職業者和10人以下的小公司提供充裕的救助，總額為400億歐元，其中100億歐元將直接撥款給個人企業和小公司，其餘的300億歐元作為貸款。聯邦財政部部長肖爾茨Olaf Scholz將以聯邦專用基金的形式組織這項基金，程序性的名稱為“團結基金”。具體計劃將由聯邦財政部和聯邦經濟部的專家們完成。聯邦政府將在事後審查受益人是否確實需要救助，必要時，補助將轉化為貸款，已保證可償還政府不合理支付的金錢。這項新舉措是有必要的，因為自由職業者和小企業不能獲得財政部長和經濟部長上星期介紹的流動性救助。德國有約500萬人為自由職業者。
+
+[新聞來源](https://www.spiegel.de/wirtschaft/soziales/corona-krise-bundesregierung-will-40-milliarden-euro-fuer-kleinstunternehmen-bereitstellen-a-ca1f6b3f-8156-4258-a31b-ff335095c9f2)
+
+⚫️ **歐洲中央銀行宣布7500億歐元的緊急購買計劃**
+
+為了抵抗冠狀病毒大流行對經濟的影響，歐洲中央銀行出乎意料地在周三夜間宣布對債券的緊急購買計劃，金額高達7500億歐元。債券指的是公共和私人手中的有價證券。歐洲中央銀行的購買計劃首先有利於穩定受冠狀病毒危機影響的金融市場。停止這項購買計劃要等到歐洲中央銀行委員會確認已經戰勝了冠狀病毒危機，但不會早於年底。歐洲央行也已準備好在需要時提高金額，調整有價證券的標準，按照歐洲央行的說法“需要多少就有多少，需要多長就有多長”。
+
+[新聞來源](https://www.wiwo.de/politik/europa/coronavirus-ezb-legt-notkaufprogramm-in-hoehe-von-750-milliarden-euro-auf-/25660046.html)
+
+⚫️ **西門子公司高層人事變動**
+
+歷經幾個月的不安，西門子監事會終於確定了公司未來的領導。西門子副總裁博樂仁Roland Busch最遲將於2021年2月3日舉行的股東大會時接任現任總裁凱颯Joe Kaeser。凱颯自2013年8月1日起擔任總裁一職，今後將成為西門子能源的監事會主席。公司旗下的能源部門也發生了人事變動，本應領導西門子能源的Michael Sen離開了公司，他的位置由來自林德集團的經理人Christian Bruch接任。西門子計劃在未來幾週將占公司40%銷售額的能源業務分離出來，新公司將於秋天上市。
+
+[新聞來源](https://www.handelsblatt.com/unternehmen/industrie/technologiekonzern-siemens-energie-vorstand-sen-geht-busch-wird-kaeser-nachfolger-/25663796.html)
+
+翻譯報導：匿名
 
 0
