@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/275485](https://www.guo.media/posts/275485) `2020-03-20T11:10:39`
 ##
 
+**milesguo** 《武汉肺炎》沙乌地阿拉伯宣布国内航班、火车、公车、计程车停开<br>https://gnews.org/zh-hans/145756/
+
+[https://www.guo.media/posts/275484](https://www.guo.media/posts/275484) `2020-03-20T11:55:22`
+##
+
 **milesguo** 从所谓郭先生决定和INTY传媒翻脸了说开去<br>https://gnews.org/zh-hans/145665/
 
 [https://www.guo.media/posts/275483](https://www.guo.media/posts/275483) `2020-03-20T11:25:16`
@@ -251,6 +256,11 @@
 [https://www.guo.media/posts/275330](https://www.guo.media/posts/275330) `2020-03-20T10:10:54`
 ##
 
+**milesguo** 为什么中国研发疫苗就是救人？美国研发疫苗就是美国投毒？中美疫苗大型双标现场！<br>https://gnews.org/zh-hans/144513/
+
+[https://www.guo.media/posts/275328](https://www.guo.media/posts/275328) `2020-03-20T11:55:25`
+##
+
 **milesguo** 欧洲首2位新冠确诊X光片曝！肺部被脓液塞爆布满毛玻璃状斑块<br>https://gnews.org/zh-hans/144509/
 
 [https://www.guo.media/posts/275327](https://www.guo.media/posts/275327) `2020-03-20T10:10:55`
@@ -299,6 +309,11 @@
 **milesguo** 3月18日：如果2017年10月5日的这个新闻发布会能引起重视的话，今天的人类就没有CCP武汉冠状病毒这个大劫难了！<br>https://youtu.be/zXCshIg4aNE
 
 [https://www.guo.media/posts/275302](https://www.guo.media/posts/275302) `2020-03-20T10:11:04`
+##
+
+**milesguo** 53 protesters were absent from the first hearing due to injuries<br>https://gnews.org/144585/
+
+[https://www.guo.media/posts/275290](https://www.guo.media/posts/275290) `2020-03-20T11:55:27`
 ##
 
 **milesguo** Non-pharmaceutical interventions (NPIs) to curb COVID-19<br>https://gnews.org/144540/
@@ -371,6 +386,11 @@
 [https://www.guo.media/posts/275218](https://www.guo.media/posts/275218) `2020-03-20T11:25:33`
 ##
 
+**milesguo** 中国人脸上纯真的笑容哪里去了？<br>https://gnews.org/zh-hans/143728/
+
+[https://www.guo.media/posts/275217](https://www.guo.media/posts/275217) `2020-03-20T11:55:28`
+##
+
 **milesguo** 震惊！意大利中共病毒感染者可能已达10万人<br>https://gnews.org/zh-hans/143718/
 
 [https://www.guo.media/posts/275216](https://www.guo.media/posts/275216) `2020-03-20T10:11:16`
@@ -379,6 +399,11 @@
 **milesguo** 2020年3月17日武汉冠状病毒大流行第53集<br>https://gnews.org/zh-hans/143698/
 
 [https://www.guo.media/posts/275209](https://www.guo.media/posts/275209) `2020-03-20T11:25:34`
+##
+
+**milesguo** 在中共统治下给14亿人民带来的最大损失究竟是什么？<br>https://gnews.org/zh-hans/143251/
+
+[https://www.guo.media/posts/275207](https://www.guo.media/posts/275207) `2020-03-20T11:55:30`
 ##
 
 **milesguo** SARS 与 2019-nCoV 如出一辙？<br>https://gnews.org/zh-hans/143136/
