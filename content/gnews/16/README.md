@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年3月19日武漢冠狀病毒大流行第55集
-`2020-03-19 23:54 GM33` [轉載自GNews](https://gnews.org/zh-hant/145655/)
+## 活著最重要，僥倖心理不可有！ “共渡難關，武漢疫情每日熱線”
+`2020-03-20 00:27 GM30` [轉載自GNews](https://gnews.org/zh-hant/145690/)
 
-疫情期間強拆推土機碾壓受害者；復工後各種倒地，數據還是零增長；武漢年輕人頻頻失踪；美國臨床試驗解藥，需5-6天出結果
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
 0
