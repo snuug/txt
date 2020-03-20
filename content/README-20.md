@@ -12,6 +12,8 @@
 
 ## 頁面 20/25 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/2018/04/20180418-763599540793711583.md)
+
 [文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/2018/04/20180418-3829299290570910245.md)
 
 [文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
@@ -59,8 +61,6 @@
 [《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/content/2018/04/20180418-6392488223382498573.md)
 
 [2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/content/2018/04/20180418-4672993002919879692.md)
-
-[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/2018/04/20180418-6750041180802210914.md)
 
 
 ## 頁面 20/25 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

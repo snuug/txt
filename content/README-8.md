@@ -12,6 +12,8 @@
 
 ## 頁面 8/25 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [25](/content/README-25.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：8月12日文贵在车上直播](/content/2019/08/20190814-5736259304944176367.md)
+
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
@@ -59,8 +61,6 @@
 [文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/content/2019/07/20190712-9051839422089379972.md)
 
 [文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/content/2019/07/20190711-2214533308636884375.md)
-
-[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
 
 
 ## 頁面 8/25 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [25](/content/README-25.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
