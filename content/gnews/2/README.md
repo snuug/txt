@@ -1,18 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年2月18-20日滅共者說雙語字幕合集
-`2020-03-20 11:33 GM77` [轉載自GNews](https://gnews.org/zh-hant/146092/)
+## 廣播：2020/3/20 郭文貴先生直播 共產黨病毒絕不能叫中國病毒！ ！ ！
+`2020-03-20 14:12 GM07` [轉載自GNews](https://gnews.org/zh-hant/146120/)
 
-•中共決定把戰役拉向國際，繼續藍金黃各種力量，繼續欺騙。
-•爆料革命是三極之一、Gnews 成為唯一，紐約時報幫大忙。
-•共產黨為支撐經濟復工，綁架威脅西方，新式改革開放。
-•撐過三到六個月的現金流不多，災難時刻還沒來。
-•共產黨的敵人排名榜，復工是第二次謀殺。
-•只要孫力軍出現的地方，一定是地獄般的災難。
-•去郭臺銘工廠打工，海航手紙價兜售，盜國集團各大企業爭先假破產。
-•共產黨喪心病狂對付爆料革命力量。
-•各大銀行配合作戰，盜國賊繼續造假，賴賬。
-•莫信黨，活著，等著勝利。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/20140911/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE111.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/20141019/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE117.png)
+
+
+
 
 0
