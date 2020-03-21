@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 中国的脱贫标准 都不如共产党官员家庭饲养一条狗的费用！<br>https://gnews.org/zh-hans/147301/
+
+[https://www.guo.media/posts/275620](https://www.guo.media/posts/275620) `2020-03-21T13:55:27`
+##
+
 **milesguo** Inty 之口 犹如地狱之门<br>https://gnews.org/zh-hans/147203/
 
 [https://www.guo.media/posts/275619](https://www.guo.media/posts/275619) `2020-03-21T12:40:22`
@@ -94,6 +99,11 @@
 **milesguo** 对氯喹药物的认识<br>https://gnews.org/zh-hans/145910/
 
 [https://www.guo.media/posts/275581](https://www.guo.media/posts/275581) `2020-03-21T12:25:33`
+##
+
+**milesguo** 国务卿蓬佩奥：中共政府的信息不透明使世界陷入危险之中<br>https://gnews.org/zh-hans/145917/
+
+[https://www.guo.media/posts/275580](https://www.guo.media/posts/275580) `2020-03-21T13:55:29`
 ##
 
 **milesguo** 3月20号：http://livestream.com/accounts/27235681．尊敬的战友们好！明天3月21号．纽约时间上午9:30文贵乱聊直播，一切都已经开始！
@@ -184,6 +194,11 @@
 **milesguo** Warroom 57 史蒂夫·班农：中共政府欲将中共和中国人民混为一谈<br>https://gnews.org/zh-hans/145951/
 
 [https://www.guo.media/posts/275547](https://www.guo.media/posts/275547) `2020-03-21T12:25:50`
+##
+
+**milesguo** 对氯喹药物的认识<br>https://gnews.org/zh-hans/145910/
+
+[https://www.guo.media/posts/275546](https://www.guo.media/posts/275546) `2020-03-21T13:55:30`
 ##
 
 **milesguo** 国务卿蓬佩奥：中共政府的信息不透明使世界陷入危险之中<br>https://gnews.org/zh-hans/145917/
