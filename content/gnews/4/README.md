@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨製造病毒3月21日視頻合集
-`2020-03-21 08:16 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/147647/)
+## 中共再撒弥天大谎
+`2020-03-21 11:21 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/147780/)
 
-加拿大總理夫人感染病毒發聲，廣州沙河租戶要求還錢，武漢協和醫院的發局部診又在排隊了！ ！ ，江蘇鹽城一危化品車翻下高速發生爆炸，疑似以色列試射防空飛彈“
+[https://spark.adobe.com/page/CRln0pMq3IyWL/](https://spark.adobe.com/page/CRln0pMq3IyWL/)
+
+##  **14億人無新增病例，你信嗎？** 
+
+多年來，美國主流媒體一直靠兜售中共謊言賺錢，愚弄美國民眾。如今，由中共製造的生化武器冠狀病毒，已經使上萬名美國人感染，並給美國造成了巨大的經濟損失。
+
+在CCPVirus 肆虐侵害全球之時，中共政府不僅擺出一副隔岸觀火的醜陋嘴臉，甚至栽贓陷害美國是冠狀病毒的罪魁禍首，並且編造出另一個彌天大謊：14億人的中國沒有新增病例！
+
+這個謊言令Dr. Sebastian Gorka 嗤笑出聲。在接受班農先生採訪時，他說：“作為世界上最大的共產主義專制獨裁政府，他們睜眼說瞎話。”
+
+班農先生表示：《南華早報》今日頭版報道香港新增48例CCPVirus 確診病例，創單日最高。而中共卻在此時對外宣稱“14億人無一人感染”！
+
+班農先生同時糾正Dr. Sebastian Gorka，提醒他分清中國人和中共。班農先生特別強調說：“中國人民是地球上最勤奮的人，不可原諒的是中共，而不是中國普通民眾。中國人民是CCP製造的這場生化武器冠狀病毒的最大受害者！”
+
+為了抵抗疫情帶來的經濟蕭條，美國財政部長史蒂夫·努欽在川普總統的指示下發表推文：把報稅日期推遲三個月到7月15日。
+
+## **班農作戰室 PANDEMIC EP-59 精選**
+
+3月20日，塞巴斯蒂安·高卡博士（Dr. Sebastian Gorka）接受史蒂夫·班農（Steve Bannon）電話採訪。
+
+Dr. Sebastian Gorka 是軍事和情報分析師,曾任川普總統副助理，現是福克斯新聞的撰稿人。
 
 
 
-武漢肺炎真相3月21日[https://youtu.be/\_VquBUU1oek](https://youtu.be/_VquBUU1oek) 
-武漢肺炎真相3月20日[https://youtu.be/PNtcBgLkYpQ](https://youtu.be/PNtcBgLkYpQ) 
-武漢肺炎真相3月19日[https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw) 
-武漢肺炎真相3月18日[https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw) 
-武漢肺炎真相3月17日[https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4) 
-武漢肺炎真相3月16日[https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8) 
-武漢肺炎真相3月15日[https://youtu.be/CdLYVEcNMhA](https://youtu.be/CdLYVEcNMhA) 
-武漢肺炎真相3月14日[https://youtu.be/ZMhTmrAArOs](https://youtu.be/ZMhTmrAArOs) 
-武漢肺炎真相3月13日B [https://youtu.be/yVaRmQFvGSY](https://youtu.be/yVaRmQFvGSY) 
-武漢肺炎真相3月13日A [https://youtu.be/DLmETG78Aeo](https://youtu.be/DLmETG78Aeo) 
-武漢肺炎真相3月12日[https://youtu.be/BCCEaMzTOso](https://youtu.be/BCCEaMzTOso) 
-武漢肺炎真相3月11日[https://youtu.be/WuGCDYy0eSs](https://youtu.be/WuGCDYy0eSs) 
-武漢肺炎真相3月10日日[https://youtu.be/lP744rlK240](https://youtu.be/lP744rlK240) 
-武漢肺炎真相3月9日[https://youtu.be/dQzA2EnRE\_I](https://youtu.be/dQzA2EnRE_I) 
-武漢肺炎真相3月8日[https://youtu.be/Px1IShLhjBE](https://youtu.be/Px1IShLhjBE) 
-武漢肺炎真相3月7日[https： //youtu.be/0vjr7yKl4DI](https://youtu.be/0vjr7yKl4DI) 
-武漢肺炎真相3月6日[https://youtu.be/OrnW3tC\_DC4](https://youtu.be/OrnW3tC_DC4) 
-武漢肺炎真相3月5日[https://youtu.be/L28gl197vfg](https://youtu.be/L28gl197vfg) 
-武漢肺炎真相3月4日[https：// youtu.be/U-yPN1dpEZ8](https://youtu.be/U-yPN1dpEZ8) 
-武漢肺炎真相3月3日[https://youtu.be/mLvq8x2jvuc](https://youtu.be/mLvq8x2jvuc) 
-武漢肺炎真相3月2日[https://youtu.be/Ct-jeUGrQoo](https://youtu.be/Ct-jeUGrQoo) 
-武漢肺炎真相3月1日[https： //youtu.be/QuCuHeCsjCU](https://youtu.be/QuCuHeCsjCU)
+**編輯：【喜馬拉雅戰鷹團】**
 
 0

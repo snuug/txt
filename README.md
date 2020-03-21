@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/275619](https://www.guo.media/posts/275619) `2020-03-21T12:40:22`
 ##
 
+**milesguo** 《武汉肺炎》非法居留移工恐成防疫破口 台湾移民署推扩大自行到案<br>https://gnews.org/zh-hans/147153/
+
+[https://www.guo.media/posts/275618](https://www.guo.media/posts/275618) `2020-03-21T16:55:28`
+##
+
 **milesguo** 防疫宣传骗回一堆小粉红中国吃苦头<br>https://gnews.org/zh-hans/147138/
 
 [https://www.guo.media/posts/275617](https://www.guo.media/posts/275617) `2020-03-21T12:40:24`
