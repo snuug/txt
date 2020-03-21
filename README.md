@@ -11,9 +11,44 @@
 
 
 
+**milesguo** Inty 之口 犹如地狱之门<br>https://gnews.org/zh-hans/147203/
+
+[https://www.guo.media/posts/275619](https://www.guo.media/posts/275619) `2020-03-21T12:40:22`
+##
+
+**milesguo** 防疫宣传骗回一堆小粉红中国吃苦头<br>https://gnews.org/zh-hans/147138/
+
+[https://www.guo.media/posts/275617](https://www.guo.media/posts/275617) `2020-03-21T12:40:24`
+##
+
+**milesguo** 面对疫情，千万不要掉以轻心！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/147085/
+
+[https://www.guo.media/posts/275616](https://www.guo.media/posts/275616) `2020-03-21T12:40:25`
+##
+
+**milesguo** 2020年3月20日武汉冠状病毒大流行第56集<br>https://gnews.org/zh-hans/147000/
+
+[https://www.guo.media/posts/275605](https://www.guo.media/posts/275605) `2020-03-21T12:40:26`
+##
+
+**milesguo** 俄罗斯背后的金主–中共可能趁低价购入俄罗斯原油<br>https://gnews.org/zh-hans/146936/
+
+[https://www.guo.media/posts/275604](https://www.guo.media/posts/275604) `2020-03-21T12:40:27`
+##
+
 **milesguo** 中国饮用水水质令人担忧 ——从回国被隔离的青年女子要喝矿泉水谈起<br>https://gnews.org/zh-hans/145582/
 
 [https://www.guo.media/posts/275603](https://www.guo.media/posts/275603) `2020-03-21T12:25:24`
+##
+
+**milesguo** 《武汉肺炎》震惊白宫首例确诊！美副总统彭斯办公室人员确诊<br>https://gnews.org/zh-hans/146938/
+
+[https://www.guo.media/posts/275602](https://www.guo.media/posts/275602) `2020-03-21T12:40:28`
+##
+
+**milesguo** 中共武汉数据清零造假，确诊病例仍在增加<br>https://gnews.org/zh-hans/146878/
+
+[https://www.guo.media/posts/275601](https://www.guo.media/posts/275601) `2020-03-21T12:40:29`
 ##
 
 **milesguo** 文字版2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗<br>https://gnews.org/zh-hans/146879/
@@ -21,9 +56,19 @@
 [https://www.guo.media/posts/275599](https://www.guo.media/posts/275599) `2020-03-21T12:25:27`
 ##
 
+**milesguo** “新式珍珠港事件”中共武汉病毒偷袭 ——欧美不要沉睡！<br>https://gnews.org/zh-hans/146868/
+
+[https://www.guo.media/posts/275589](https://www.guo.media/posts/275589) `2020-03-21T12:40:31`
+##
+
 **milesguo** （中共病毒）武汉瘟疫最佳的解药就是抛弃中共<br>https://gnews.org/zh-hans/146841/
 
 [https://www.guo.media/posts/275588](https://www.guo.media/posts/275588) `2020-03-21T12:25:28`
+##
+
+**milesguo** 美国给老百姓建立防火墙准备全面向共产党开战<br>https://gnews.org/zh-hans/146842/
+
+[https://www.guo.media/posts/275587](https://www.guo.media/posts/275587) `2020-03-21T12:40:32`
 ##
 
 **milesguo** 川普宣布全国紧急状态应对冠状病毒大爆发<br>https://gnews.org/zh-hans/140323/
@@ -31,9 +76,19 @@
 [https://www.guo.media/posts/275586](https://www.guo.media/posts/275586) `2020-03-21T12:25:30`
 ##
 
+**milesguo** 美国国务院发布全球四级健康警示—不要出国旅行<br>https://gnews.org/zh-hans/145980/
+
+[https://www.guo.media/posts/275584](https://www.guo.media/posts/275584) `2020-03-21T12:40:33`
+##
+
 **milesguo** 美国已采取有效措施对抗中共冠状病毒<br>https://gnews.org/zh-hans/145962/
 
 [https://www.guo.media/posts/275583](https://www.guo.media/posts/275583) `2020-03-21T12:25:31`
+##
+
+**milesguo** Warroom 57 史蒂夫·班农：中共政府欲将中共和中国人民混为一谈<br>https://gnews.org/zh-hans/145951/
+
+[https://www.guo.media/posts/275582](https://www.guo.media/posts/275582) `2020-03-21T12:40:34`
 ##
 
 **milesguo** 对氯喹药物的认识<br>https://gnews.org/zh-hans/145910/
@@ -51,6 +106,11 @@
 [https://www.guo.media/posts/275575](https://www.guo.media/posts/275575) `2020-03-21T12:25:36`
 ##
 
+**milesguo** Miles Guo: It is CCP coronavirus, not Chinese coronavirus!<br>https://gnews.org/146158/
+
+[https://www.guo.media/posts/275572](https://www.guo.media/posts/275572) `2020-03-21T12:40:36`
+##
+
 **milesguo** February 18-20, 2020. CCP Exterminator Miles Guo’s Crusade Against Communism<br>https://gnews.org/146094/
 
 [https://www.guo.media/posts/275571](https://www.guo.media/posts/275571) `2020-03-21T12:25:37`
@@ -66,9 +126,19 @@
 [https://www.guo.media/posts/275569](https://www.guo.media/posts/275569) `2020-03-21T12:25:40`
 ##
 
+**milesguo** Confrontations between China and US undercuts HK’s press freedom<br>https://gnews.org/145461/
+
+[https://www.guo.media/posts/275568](https://www.guo.media/posts/275568) `2020-03-21T12:40:37`
+##
+
 **milesguo** President Trump invokes Defense Production Act<br>https://gnews.org/145868/
 
 [https://www.guo.media/posts/275567](https://www.guo.media/posts/275567) `2020-03-21T12:25:41`
+##
+
+**milesguo** <br>Beijing upgrades entry policy for overseas passengers entering Beijing<br>https://gnews.org/145130/
+
+[https://www.guo.media/posts/275566](https://www.guo.media/posts/275566) `2020-03-21T12:40:38`
 ##
 
 **milesguo** <br>3月20号：尊敬的战友们好．造谣文贵是双面间谍的媒体．迈阿密风云．因无法应对文贵对他们的巨额诉讼赔偿的要求！现在宣布破产😝😝😝我们不会放过一个陷害我们的坏人——也不会忘掉一个帮助过我们的恩人！一切都已经开始！
@@ -76,9 +146,19 @@
 [https://www.guo.media/posts/275557](https://www.guo.media/posts/275557) `2020-03-21T12:25:43`
 ##
 
+**milesguo** 2020年3月20日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/146167/
+
+[https://www.guo.media/posts/275556](https://www.guo.media/posts/275556) `2020-03-21T12:40:39`
+##
+
 **milesguo** 2020年2月18-20日灭共者说双语字幕合集<br>https://gnews.org/zh-hans/146010/
 
 [https://www.guo.media/posts/275555](https://www.guo.media/posts/275555) `2020-03-21T12:25:44`
+##
+
+**milesguo** 1923 瘟疫后德国超级通胀<br>https://gnews.org/zh-hans/146063/
+
+[https://www.guo.media/posts/275554](https://www.guo.media/posts/275554) `2020-03-21T12:40:40`
 ##
 
 **milesguo** 中共利用外资数据，里面有猫腻<br>https://gnews.org/zh-hans/146041/
@@ -86,9 +166,19 @@
 [https://www.guo.media/posts/275553](https://www.guo.media/posts/275553) `2020-03-21T12:25:46`
 ##
 
+**milesguo** 【武漢肺炎真相】共产党制造病毒\3月20日视频合集<br>https://gnews.org/zh-hans/145991/
+
+[https://www.guo.media/posts/275550](https://www.guo.media/posts/275550) `2020-03-21T12:40:42`
+##
+
 **milesguo** 美国国务院发布全球四级健康警示—不要出国旅行<br>https://gnews.org/zh-hans/145980/
 
 [https://www.guo.media/posts/275549](https://www.guo.media/posts/275549) `2020-03-21T12:25:48`
+##
+
+**milesguo** 美国已采取有效措施对抗中共冠状病毒<br>https://gnews.org/zh-hans/145962/
+
+[https://www.guo.media/posts/275548](https://www.guo.media/posts/275548) `2020-03-21T12:40:44`
 ##
 
 **milesguo** Warroom 57 史蒂夫·班农：中共政府欲将中共和中国人民混为一谈<br>https://gnews.org/zh-hans/145951/
@@ -99,6 +189,11 @@
 **milesguo** 国务卿蓬佩奥：中共政府的信息不透明使世界陷入危险之中<br>https://gnews.org/zh-hans/145917/
 
 [https://www.guo.media/posts/275545](https://www.guo.media/posts/275545) `2020-03-21T12:25:51`
+##
+
+**milesguo** 李文亮调查结果公布！中国官方实力甩锅基层民警！高举起 轻轻放下<br>https://gnews.org/zh-hans/145886/
+
+[https://www.guo.media/posts/275544](https://www.guo.media/posts/275544) `2020-03-21T12:40:45`
 ##
 
 **milesguo** 3月20日：尊敬的战友们好!你们看一看👉全世界这一刻的焦点就是将病毒定义．到底是中国病毒🦠还是中国人病毒🦠还是共产党病毒🦠此事关重大，这事关所有的中国人，在世界上的安全和我们子孙后代在人类的生存的安全，在这个问题上千万不要天真。一旦定义，中国人和中国病毒，每个人不叫面临着无法想象的安全和生存环境的恶劣的后果—……大家千万不可轻视．应全部的力量到西方的政要和有影响的媒体下面．发表我们的观点，中共不等于中国人．武汉病毒就是共产党病毒🦠……🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
