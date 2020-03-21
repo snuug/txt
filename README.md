@@ -11,6 +11,16 @@
 
 
 
+**milesguo** Warroom 59：美国政府表示与中共国的战争已经升级<br>https://gnews.org/zh-hans/147556/
+
+[https://www.guo.media/posts/275656](https://www.guo.media/posts/275656) `2020-03-21T23:40:29`
+##
+
+**milesguo** 中共虚假宣传瞒天过海误导西方媒体<br>https://gnews.org/zh-hans/147540/
+
+[https://www.guo.media/posts/275654](https://www.guo.media/posts/275654) `2020-03-21T23:40:31`
+##
+
 **milesguo** 中国的脱贫标准 都不如共产党官员家庭饲养一条狗的费用！<br>https://gnews.org/zh-hans/147301/
 
 [https://www.guo.media/posts/275620](https://www.guo.media/posts/275620) `2020-03-21T13:55:27`
