@@ -1,10 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣播：2020/3/20 郭文貴先生直播 共產黨病毒絕不能叫中國病毒！ ！ ！
-`2020-03-20 14:12 GM07` [轉載自GNews](https://gnews.org/zh-hant/146120/)
+## 3月20日郭文貴先生給戰友們準備好了新一批的防護用品
+`2020-03-20 20:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/146839/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/20140911/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE111.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/20141019/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE117.png)
+尊敬的戰友們好，所有給法治基金捐款的戰友們，你們所有的申請，已全部發出，這是新到的另外一批的口罩，還有防護服，還有洗手液，給戰友們準備的，誰需要的話請給Sara和木蘭聯繫。一切都已經開始！
+
 
 
 
