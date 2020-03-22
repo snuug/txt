@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/275772](https://www.guo.media/posts/275772) `2020-03-22T16:55:14`
 ##
 
+**milesguo** 美国和巴基斯坦分裂是中共造成的吗<br>https://gnews.org/zh-hans/148593/
+
+[https://www.guo.media/posts/275771](https://www.guo.media/posts/275771) `2020-03-22T17:55:16`
+##
+
 **milesguo** 什么？！武汉市民起诉美国政府了<br>https://gnews.org/zh-hans/148562/
 
 [https://www.guo.media/posts/275770](https://www.guo.media/posts/275770) `2020-03-22T17:10:16`
