@@ -1,51 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港黑警抓捕手无寸铁的同胞
-`2020-03-21 14:26 GM02` [轉載自GNews](https://gnews.org/zh-hant/147878/)
+## 細究中共和世界衛生組織負責人勾當
+`2020-03-21 19:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/148092/)
 
-当地时间2020年3月21日晚 香港黑警抓捕手无寸铁的同胞请战友们传播出去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141609/IMG_20200322_020026_790.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141555/IMG_20200322_020027_612.jpg)
-2216 #尖沙咀 赫德道發利大廈 1名男子被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141545/IMG_20200322_020043_454.jpg)
-2055 #油塘 鯉魚門道1號公廁外
-1男被捕上咗 #AM6306，其餘大約13人全部上哂手扣
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141618/857422702_355001.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141708/857422990_356762.jpg)
-1552 #元朗 黨鐵站拉咗個街坊 班狗查完身份證話佢係被通緝人士
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141727/IMG_20200322_020215_616.jpg)
-2140 #元朗 又新街 2男被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141843/IMG_20200322_020232_630.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141825/IMG_20200322_020234_127.jpg)
-2105 #銅鑼灣 時代廣場 1男1女被捕。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141905/857420307_356722.jpg)
-2131 #銅鑼灣 時代廣場 圖中男子被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141929/500001700626_110484.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142041/500001800339_110954.jpg)
-2300 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142052/500001500748_110581.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142127/IMG_20200322_020441_274.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142112/IMG_20200322_020442_865.jpg)
-2312 #荃灣 荃新天地 一白衫男被捕 上左 #AM7388 沿沙咀道駛去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142208/857415647_356478.jpg)
-2335 #荃灣 荃新天地大河道沙咀道交介 上左 #AM7475 沿大河道駛去
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21190949/Picture-1-25.png)
+據昨天福克斯新聞(FOX) 以[China’s relationship with WHO chief in wake of coronavirus outbreak under the microscope］醒目標題，大篇幅報導世界衛生組織負責人貪德塞（Tedros Adhanom Ghebreyesus )在對中共極盡溜鬚拍馬，贊聲不絕的背後隱藏著與中共千絲萬縷的不可告人的利益關係。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142920/IMG_20200322_020513_060.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142907/IMG_20200322_020514_700.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142852/IMG_20200322_020515_896.jpg)
+**很明顯貪德塞【Tedros 】處處為中共撐腰滅火**
 
+在全人類都知道中共病毒是全球疫情大流行疫情的根源下，就在中共大張旗鼓地宣布零感染後，次日貪德塞立即發布推文高調公開讚揚中共：“中國昨天首次沒有報告國內中共病毒病例。這是一個了不起的成就，這使我們所有人都可以放心地消滅中共冠狀病毒。” 之前例如，當中共故意誤導世界時，貪德塞曾公開稱讚中共的“透明性”。此類言談非一朝一夕，也非一次兩次。從其一貫對中共相關的事件的風格，此世衛負責人的對中共之偏袒已經是司馬昭之心路人皆知。
 
-2234 #元朗 建業街 帶上am9877 #YLN25 [7] 齊蔭女：任xx 已有律師 #YLN26 [6] 啡色袋長髮女 #YLN27 [8] 銀白短髮女：黃xx #YLN28 [9] 白衫女 #YLN29 [10] 藍衫女 [4] 胡xx 已有律師 [8a] 黑帽男：譚xx
+近期德克薩斯大學聖安東尼奧分校政治學教授布拉德利·泰耶（Bradley Thayer）和公民力量副主席韓連潮等人質疑貪德塞“對武漢及中國其他地區所發生的事情視而不見”。他們尖銳指出，“中共冠狀病毒大流行表明，由於貪德塞世界錯過了遏製或減輕疫情蔓延關鍵期，他不適合領導世界衛生組織。”“ 
+泰耶和韓連潮在一篇評論文章中寫道：“貪德塞本應專注於全球抗擊大流行，但他反而將危機政治化，並幫助中共推卸了應對疫情的一系列不法行為的責任。”兩人還指責貪德塞用世衛組織平台“捍衛中國政府嚴重侵犯人權的行為”。中共的爪牙們抓捕試圖揭露真相的人們，使有些吹哨者消失得無影無踪。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142832/IMG_20200322_020538_797.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142817/IMG_20200322_020539_546.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142801/IMG_20200322_020553_628.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142746/IMG_20200322_020554_849.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142730/IMG_20200322_020555_804.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142721/IMG_20200322_020557_614.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142710/IMG_20200322_020558_136.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142654/IMG_20200322_020559_979.jpg)
+**很配合華春瑩用貪德塞【Tedros 】之言為自己佐證**
 
+事實是2019年，中共冠狀病毒起源於中國武漢，第一例病例於11月下旬公開，比中共政府聲稱的早了數週。從那以後截至本週五246,275例確診的中共病毒病例，在全球範圍內，中共冠狀病毒致死人數超過10,000。所以本質是，中共在爆發初期即最重要防範期，隱瞞助長了這場危機，而世衛組織是其重要推手和合作者。 
+本週五在針對中國外交部發言人華春瑩嘲諷美國國務院等推文，美國務院發言人摩根·奧爾塔古斯（Morgan Ortagus）揭露：“早在1月3日，中共已經下令銷毀中共病毒樣本，訓誡武漢醫生，並在網上審查公眾言論。” 華春瑩甚至在推文中露骨地引用世衛貪德塞的話來佐證自己的觀點。而這樣的相互“心照不宣”地配合，很明顯看出貪德塞一直是在給中共撐腰。
 
-0045 #元朗 合益路 建業街 9位被押上
+**很黑暗貪德塞【Tedros 】利益凌駕在生命之上與中共勾兌**
+
+貪德塞【Tedros 】為什麼敢冒天下不韙這麼明目張膽的為中共洗地？在此福克斯新聞(FOX)文章中進一步分析，首先是利益包括世界衛生組織和埃塞俄比亞都有巨大的好處。文中指出，”十多年來，埃塞俄比亞的經濟在很大程度上一直依賴中共：例如，“中共從頭開始建設首都亞的斯亞貝巴：斥資數億美元用於大型項目，包括在埃塞俄比亞最大的城市和新建的耗資1.6億美元的國家體育館。其次，”中國也已成為埃塞俄比亞的最大貿易夥伴。在34億美元的鐵路項目中，中國進出口銀行提供了29億美元，該項目將一個內陸的埃塞俄比亞與港口繁忙的國家吉布提連接在一起。同時，中共的資金也有助於建立埃塞俄比亞的第一條六車道高速公路。中共用高樓林立的摩天大樓來重塑亞的斯亞貝巴的整個天際線而受到讚譽。但是事與願違，在鐵路等項目未能盈利之後，中共對埃塞俄比亞的投資並不滿意。 如果中共退出埃塞俄比亞，整個經濟可能崩潰，這可能是是中共掐住貪德塞（Tedros）的死穴。利益衝突使他及其作為世衛組織負責人的行為昭然若揭。
+
+**很詭異貪德塞【Tedros 】無醫學和世衛管理背景卻能成負責人**
+
+貪德塞（Tedros）在2017年當選為WHO總幹事，在此之前他沒有接受過醫學培訓，沒有全球衛生管理經驗，居然獲得這個關係到全世界全人類生命安全的總幹事一職。這不得不令人深思？同時，據郭文貴先生的披露，其中文名字還是由中共盜國賊之首–王岐山親自“御封”。更詭異的是，貪德塞（Tedros ）繼任後採取了一些嚴重可疑的舉動，包括試圖任命當時的津巴布韋獨裁者羅伯特·穆加貝（Robert Mugabe）為世衛組織親善大使等等。總之，他便竭盡所能地包裝成為一位有愛心，能讓一些國家擺脫“政治”危機的領導人。
+
+**很搞笑貪德塞【Tedros 】準備中共式“自我調查**
+
+去年，美聯社曝光了一系列匿名電子郵件公開了世衛組織中關於種族主義，性別歧視和嚴重腐敗的指控之後，貪德塞（Tedros ）下令進行內部調查。這些電子郵件詳細說明了這些骯髒的交易，被批量送給高層管理人員，其中一些人還被指控為在剛果抗擊埃博拉病毒而濫用了資金。這樣自查自捧的“倡導開放，透明和多樣性”的調查讓各國批評家瞠目結舌：他們想知道在貪德塞的領導下，世衛組織怎麼可以有效地進行“自我調查”？
+
+現在越來越多質疑“貪德塞（Tedros ）對中共的忠誠撐腰”之背後居心。這種以世界絕大多數國家的利益和全人類的生命為代價的“對中共的忠誠撐腰”何時停止？ ！
+
+[原文鏈接](https://www.foxnews.com/world/coronavirus-china-who-chief-relationship-trouble)
+
+翻譯報導：匿名
 
 0
