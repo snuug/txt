@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年3月21日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/148702/
+
+[https://www.guo.media/posts/275775](https://www.guo.media/posts/275775) `2020-03-22T18:25:21`
+##
+
 **milesguo** 武汉已经正式复工，这些汹涌而至的人群，他们真得不知道他们将要面对的是什么<br>https://gnews.org/zh-hans/148663/
 
 [https://www.guo.media/posts/275774](https://www.guo.media/posts/275774) `2020-03-22T16:55:12`
