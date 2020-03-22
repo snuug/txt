@@ -1,26 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜迎0感染共產黨為二次爆發在造背鍋俠：海外歸國人員！暗指美國
-`2020-03-22 02:07 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/148392/)
+## 推特、油管舉報教程
+`2020-03-22 02:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/148433/)
 
-**作者：滅共日記**
+圖文制作：戰友之家图文制作：战友之家
 
-最近在中國的社交媒體上看到太多關於海外留學生，海外歸國人員回國的負面新聞，例如：集中隔離喝不到礦泉水，就等於沒有人權。還有，雖然我在隔離，但是我要出去跑步，並且不帶口罩，這都是為了我的健康，如果你不允許，那我就喊“騷擾”。共產黨也利用這個階段一直在宣傳現在屬於疫情轉向國外輸入階段，而這些歸國人員的表現，導致了各大平台上湧現出各式各樣的罵聲。是否真的是“匪夷所思，不可理喻”？共產黨這樣大肆宣傳回國人員這樣的負面信息背後的原因是什麼呢？
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22020307/1-1-39.jpg)
-如果說回國躲病的人是精緻的利己主義者，那些說沒交稅就不該回來的又何嘗不是利己。中國老百姓被共產黨70年洗腦洗的太自私了，完全沒有人性可言，對海外歸國人員的種種做法簡直就是中國的一貫傳統！武漢肺炎剛爆發的時候，口罩，醫療物資不夠用，各種求留學生，國外囤貨搶貨往國內寄，現在自己好了，人家有困難了，要回自己的國家了，你們竟然還立馬關了大門讓人別回來，還要臉不要？要幫助了就是同胞血濃於水，別人要幫忙就是外國狗賣國！看來中國老百姓的腦子已經被洗的全是漿糊了，難道看不出來這是共產黨在帶節奏嗎？看看最近的新聞海外華人，華僑話題變得非常的熱，雖然有些做法並不對，但是留學生、華僑是個很大的團體，個案不能代表集體，國內同樣也發生過很多這樣的案例！最讓我不能理解的是為什麼大家一聽到留學生回國就會用什麼家鄉建設你不在，千里投毒你最快這種，還有什麼當初崇洋媚外現在回來幹嘛這種讓人糟心的話。這些留學的孩子又沒犯什麼不可饒恕的錯誤？我相信大部分留學生回來的時候都是遵守規則的，而且為什麼要辱罵他們呢？他們不也是中國人嗎？
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22020155/2-4-23.jpg)
-怎麼就沒人想想，媒體這樣帶節奏，為什麼？其實那個所謂澳洲的拜耳員工，完全不必如此炒作，網絡媒體對細節的描述實在太到位了，不戴口罩跑步、對勸阻人員蠻橫撒潑，詭異操作令人匪夷所思，還有把一瓶礦泉水抬到了人權的高度，簡直視中國人中國法律中國人民抗疫成果如無物，中國媒體的報導如此詳實細緻，句句扎心，在相比前段時間的湖北省副省委書記、武漢市委書記馬國強在武漢市紅十會藉用的武漢國博中心提出一箱3M口罩，放入車內事件，全網刪帖，刪視頻，完全是不聞不問，不報不追，完全沒有細節的輕描淡寫。兩件事情的對比，足以看出海外人員歸國事件就是有人在故意帶節奏！還有北京宣布重啟小湯山醫院，真的主要是為了防止輸入性感染嗎？小湯山的重啟就為了當天感染的那20個病例嗎？中國的疫情壓力真的都在境外嗎？國內真的如官方報導幾乎清零嗎？以上的種種，難道不是中國共產黨為了二次爆發前甩鍋國外嗎？不過對於共產黨的死忠粉來說，這些也挺管用，現在好多老百姓都人認為病毒來源於美國，所有的複發都是境外輸入導致的！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22020205/3-53.jpg)
-除了這些被洗腦的韭菜，真不知道中共的宣傳還能騙到誰？我特別想問那些說病毒來源於美國的人幾個問題：1月3號中國外交部就把疫情警告通知到了美國，難道外交部是間諜嗎？湖北省委武漢市委瞞報，封鎖消息，抓吹哨人，封城前還放出幾百萬人流向全國，他們也是美國間諜嗎？如果是你們以為共產黨會傻到不抓嗎？如果不是，難道共產黨和美國是一伙的嗎？好好想想吧！只要中國有事哪一次不把鍋甩給美國？貿易戰說美國人出爾反爾，背信棄義；香港返送中的時候說美國人是幕後黑手；就連華為251也說美國人，想把事情搞大，要弄垮華為；你們以為美國人閒的沒事就願意打你中國嗎？這一次，武漢肺炎這麼大的鍋，共產黨怎麼可能放棄這次把輿論甩給美國的機會呢？
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22020245/4-1-8.jpg)
-親愛的同胞們，很多事實就擺在眼前，只要你用心去查一查都會找到真相，不要懶到連求證的機會都不給自己，你想做奴隸，沒人能幫你！
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023113/00011-1-scaled.jpg)推特1/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023052/00021-1-scaled.jpg)推特2/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023026/00031-1-scaled.jpg)推特3/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22022959/00041-1-scaled.jpg)推特4/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22022838/00051-1-scaled.jpg)推特5/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22022904/00061-1-scaled.jpg)推特6/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22022933/00071-1-scaled.jpg)推特7/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023152/00081-1-scaled.jpg)推特8/8
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023244/00091-1-scaled.jpg)油管1/1
 
-GNEWS之前文章： 
-中國官方聲稱的尿液糞便傳播[https://gnews.org/zh-hans/147669/](https://gnews.org/zh-hans/147669/) 
-中國的脫貧標準[https://gnews.org/zh-hans/147301/](https://gnews.org/zh-hans/147301/) 
-李文亮調查結果公佈！ [https://gnews.org/zh-hans/145886/](https://gnews.org/zh-hans/145886/) 
- 《方艙醫院真神奇》！ [https://gnews.org/zh-hans/145125/](https://gnews.org/zh-hans/145125/) 
-為什麼中國研發疫苗就是救人？ [https://gnews.org/zh-hans/144513/](https://gnews.org/zh-hans/144513/)
 
 0

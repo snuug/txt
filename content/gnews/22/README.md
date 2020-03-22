@@ -1,51 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港黑警抓捕手无寸铁的同胞
-`2020-03-21 14:26 GM02` [轉載自GNews](https://gnews.org/zh-hant/147878/)
+## 川普狂喊「中國病毒」 華郵專欄正名：「中共病毒」更準確!
+`2020-03-21 21:12 GM15` [轉載自GNews](https://gnews.org/zh-hant/148128/)
 
-当地时间2020年3月21日晚 香港黑警抓捕手无寸铁的同胞请战友们传播出去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141609/IMG_20200322_020026_790.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141555/IMG_20200322_020027_612.jpg)
-2216 #尖沙咀 赫德道發利大廈 1名男子被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141545/IMG_20200322_020043_454.jpg)
-2055 #油塘 鯉魚門道1號公廁外
-1男被捕上咗 #AM6306，其餘大約13人全部上哂手扣
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141618/857422702_355001.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141708/857422990_356762.jpg)
-1552 #元朗 黨鐵站拉咗個街坊 班狗查完身份證話佢係被通緝人士
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141727/IMG_20200322_020215_616.jpg)
-2140 #元朗 又新街 2男被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141843/IMG_20200322_020232_630.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141825/IMG_20200322_020234_127.jpg)
-2105 #銅鑼灣 時代廣場 1男1女被捕。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141905/857420307_356722.jpg)
-2131 #銅鑼灣 時代廣場 圖中男子被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141929/500001700626_110484.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142041/500001800339_110954.jpg)
-2300 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142052/500001500748_110581.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142127/IMG_20200322_020441_274.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142112/IMG_20200322_020442_865.jpg)
-2312 #荃灣 荃新天地 一白衫男被捕 上左 #AM7388 沿沙咀道駛去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142208/857415647_356478.jpg)
-2335 #荃灣 荃新天地大河道沙咀道交介 上左 #AM7475 沿大河道駛去
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21211104/Noname-17.jpg)
+武漢肺炎疫情蔓延全球，美國總統川普連日稱病毒為「中國病毒」，甚至在簡報上將「冠狀病毒」一詞劃掉寫上「中國」；對此，《華盛頓郵報》專欄作家喬西·羅金（Josh Rogin）在專欄指出，中國人民也是這次事件受害者，應該稱之為「中共病毒（CCP virus）」更準確，而且這樣只會冒犯到那些罪有應得的人。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142920/IMG_20200322_020513_060.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142907/IMG_20200322_020514_700.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142852/IMG_20200322_020515_896.jpg)
+喬西日前在《華盛頓郵報》發表專欄指出，川普堅持稱「中國病毒」的原因從技術上來說是正確的，因為中國官員正故意散布病毒可能起源自美國的謊言，而逃避責任；不過，喬西也指出，疫情爆發以來，西方世界對華裔歧視的種族主義事件不斷增加，白宮甚至有官員在公開場合提出了戲謔的「功夫」一詞，這都是不可接受的。
 
+喬西認為，中國的人民也是這次事件的受害者，國際社會應該將問題指向中共。雖然川普表示，稱之為「中國病毒」並不表示歧視，只是表示病毒來自中國；但中共戰略的一環，一直以來就是用政治、種族劃分國際社會，中國官員也經常用種族歧視為指控，以轉移外界對中國政府的批評。
 
-2234 #元朗 建業街 帶上am9877 #YLN25 [7] 齊蔭女：任xx 已有律師 #YLN26 [6] 啡色袋長髮女 #YLN27 [8] 銀白短髮女：黃xx #YLN28 [9] 白衫女 #YLN29 [10] 藍衫女 [4] 胡xx 已有律師 [8a] 黑帽男：譚xx
+外界應該具體譴責中國共產黨，譬如長時間隱匿疫情、第一時間要揭發疫情的醫生閉嘴、關押新聞記者等；而中國的人民、醫生、研究員冒著生命危險與病毒奮鬥，中國人也是這次事件中，中國嚴厲措施下的受害者，甚至可說是這個故事中的英雄。喬西提到，在長期研究中共影響力用做的澳洲，就有提出報告指出，應該避免將中國人民、中共政府一概而論。
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142832/IMG_20200322_020538_797.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142817/IMG_20200322_020539_546.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142801/IMG_20200322_020553_628.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142746/IMG_20200322_020554_849.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142730/IMG_20200322_020555_804.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142721/IMG_20200322_020557_614.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142710/IMG_20200322_020558_136.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142654/IMG_20200322_020559_979.jpg)
+最後，喬西認為，不該再說「中國病毒」了，因為此舉將中了中國共產黨企圖分化國際社會的計畫，並藉此轉移外界對中共疫情控管不當的事實，「我們就稱之為『中共病毒』更準確，且只會冒犯到那些罪有應得的人」。
 
+據網站介紹，喬西除了是《華盛頓郵報》全球觀點專欄的專欄作家，也是《CNN》的政治分析師，先前曾在《彭博》、《外交政策》、日本《朝日新聞》工作。
 
-0045 #元朗 合益路 建業街 9位被押上
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3108079)
+
+GM15
 
 0
