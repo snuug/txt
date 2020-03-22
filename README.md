@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/275722](https://www.guo.media/posts/275722) `2020-03-22T07:10:27`
 ##
 
+**milesguo** 喜迎0感染 共产党为二次爆发在造背锅侠：海外归国人员！暗指美国<br>https://gnews.org/zh-hans/148341/
+
+[https://www.guo.media/posts/275721](https://www.guo.media/posts/275721) `2020-03-22T07:25:14`
+##
+
 **milesguo** 广播：2020/3/21 郭文贵先生直播 我们爱新疆人 决不允许Inty等维奸再次绑架新疆同胞！举报行动起来！<br>https://gnews.org/zh-hans/148329/
 
 [https://www.guo.media/posts/275720](https://www.guo.media/posts/275720) `2020-03-22T06:56:13`
@@ -34,6 +39,11 @@
 **milesguo** 亲身经历 在墙内不还信用卡会怎样<br>https://gnews.org/zh-hans/148223/
 
 [https://www.guo.media/posts/275717](https://www.guo.media/posts/275717) `2020-03-22T07:10:29`
+##
+
+**milesguo** 中共是怎样背后操作让老百姓复工的<br>https://gnews.org/zh-hans/147687/
+
+[https://www.guo.media/posts/275716](https://www.guo.media/posts/275716) `2020-03-22T07:25:15`
 ##
 
 **milesguo** 年年岁岁花相似，岁岁年年人不同！<br>https://gnews.org/zh-hans/147425/
