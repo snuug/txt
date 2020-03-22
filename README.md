@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年3月21日武汉冠状病毒大流行第57集<br>https://gnews.org/zh-hans/148213/
+
+[https://www.guo.media/posts/275706](https://www.guo.media/posts/275706) `2020-03-22T05:10:24`
+##
+
 **milesguo** 大火面前，领导先走 中共冠状病毒面前，学生先行<br>https://gnews.org/zh-hans/148198/
 
 [https://www.guo.media/posts/275705](https://www.guo.media/posts/275705) `2020-03-22T03:55:27`
@@ -39,6 +44,11 @@
 **milesguo** 谈最近一次新疆东突厥斯坦共和国分裂新疆、大规模屠杀汉族人事件，以及新疆独立的一种可能情况的推演<br>https://gnews.org/zh-hans/148138/
 
 [https://www.guo.media/posts/275698](https://www.guo.media/posts/275698) `2020-03-22T03:55:35`
+##
+
+**milesguo** 川普狂喊「中国病毒」 华邮专栏正名：「中共病毒」更准确!<br>https://gnews.org/zh-hans/148133/
+
+[https://www.guo.media/posts/275697](https://www.guo.media/posts/275697) `2020-03-22T05:10:26`
 ##
 
 **milesguo** 香港黑警抓捕手无寸铁的同胞<br>https://gnews.org/zh-hans/147963/
