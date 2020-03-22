@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 墙内反美、战狼外交部、海外大外宣，中共战争前的舆论前战？<br>https://gnews.org/zh-hans/147750/
+
+[https://www.guo.media/posts/275722](https://www.guo.media/posts/275722) `2020-03-22T07:10:27`
+##
+
 **milesguo** 广播：2020/3/21 郭文贵先生直播 我们爱新疆人 决不允许Inty等维奸再次绑架新疆同胞！举报行动起来！<br>https://gnews.org/zh-hans/148329/
 
 [https://www.guo.media/posts/275720](https://www.guo.media/posts/275720) `2020-03-22T06:56:13`
@@ -24,6 +29,11 @@
 **milesguo** 共和党全国委员会就中国政府不诚实的病毒来源造势行动发表声明<br>https://gnews.org/zh-hans/148235/
 
 [https://www.guo.media/posts/275718](https://www.guo.media/posts/275718) `2020-03-22T06:56:16`
+##
+
+**milesguo** 亲身经历 在墙内不还信用卡会怎样<br>https://gnews.org/zh-hans/148223/
+
+[https://www.guo.media/posts/275717](https://www.guo.media/posts/275717) `2020-03-22T07:10:29`
 ##
 
 **milesguo** 年年岁岁花相似，岁岁年年人不同！<br>https://gnews.org/zh-hans/147425/
