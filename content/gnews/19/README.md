@@ -1,26 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共冠狀病毒正在損害全球經濟，川普的家族生意也無倖免
-`2020-03-22 02:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/148543/)
+## 不能忘記、也不會忘記的香港戰友們！
+`2020-03-22 02:46 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148479/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021611/D10287E4-F081-4469-8C9D-64419F4D24AE-scaled.jpeg)
-白宮在周六舉行了中共冠狀病毒工作組簡報會。截至週六，中共冠狀病毒疫情大流行已使近20,000名美國人患病，並迫使美國各地的企業關閉。
+[https://spark.adobe.com/page/IMFgiWGlY76qK/](https://spark.adobe.com/page/IMFgiWGlY76qK/)
 
-有記者問川普總統有關他的家族企業有否正受到該病毒不利影響。川普告訴記者：“當你決定關閉酒店和企業時，我不會說生意很興旺。我的所有生意都沒有槓桿，所以都很好。但生意受到傷害嗎？ 是的，受的傷害了。疫情也傷害了希爾頓，也傷害了世界各地的所有大型連鎖酒店。”
+*作者：玄天生*
 
-川普指出，儘管疫情爆發，沃爾瑪等一些企業仍然表現良好，但指出蓬勃發展的企業數量很少。當被問及他或政府中的任何人是否已與川普的企業就中共冠狀病毒的潛在影響進行了交談時，川普表示，他僅與兒子交談，但“沒有把企業當作是自己的那樣去談。”
+*校對：Julia Win、👼Jane 簡愛👼*
 
-川普於2017年初上任前就已經移交了企業的控制權。該企業經營著許多房地產，高爾夫俱樂部和酒店。有報導說，在中共冠狀病毒爆發期間，至少有四家川普的企業的房產被關閉，冠狀病毒疫情大流行導致三家酒店裁員。
+**簡評：**
 
-中共冠狀病毒對酒店業產生了特別嚴峻的影響。特朗普週一敦促美國人避免酒吧和飯店以及不必要的旅行。幾個地區的州和地方官員已下令關閉餐館和酒吧，加利福尼亞，伊利諾伊州和紐約的官員已告訴居民在家隔離。
+**清明節快到，借用清明杜牧(唐‧七言絕句)的詩以抒心懷。**
 
-川普週六表示，他沒有計劃去佛羅里達州棕櫚灘的Mar-a-Lago海灘俱樂部（他稱之為“南部白宮”的房產），並表示他懷疑該俱樂部已經關閉。佛羅里達州州長Ron Desantis （R）已下令關閉該州的所有餐館和酒吧。
+**清明時節雨紛紛，路上行人欲斷魂。借問酒家何處有，牧童遙指杏花村。**
 
-川普說，他不知道疫情爆發後他的公司是否會尋求政府援助。川普政府官員目前正在就經濟刺激方案與國會領導人進行談判，以幫助受該病毒疫情影響的美國工人，小型企業和特定行業。
+今年的清明節相信大家都會在CCP-VIRUS的疫情影響下，帶着沉重的心情去拜祭先人。或許，在另一個地方，新增73具遺體，無名、無姓、死因無可疑的手足們被安置在沙嶺公墓。
 
-[原文鏈接](https://thehill.com/homenews/administration/488813-trump-acknowledges-coronavirus-is-hurting-his-family-business)
 
-翻譯報導：匿名
+[!\[\](https://spark.adobe.com/page/IMFgiWGlY76qK/images/9315256d-2c45-459b-b579-230ab64a2ea6.jpg?asset_id=8bf7110c-20a5-4531-9e36-c83565809ee9&amp;img_etag=8fa3b7f067666ebdf2a77e1a43521a51&amp;size=1024)](https://spark.adobe.com/page/IMFgiWGlY76qK/images/9315256d-2c45-459b-b579-230ab64a2ea6.jpg?asset_id=8bf7110c-20a5-4531-9e36-c83565809ee9&amp;img_etag=8fa3b7f067666ebdf2a77e1a43521a51&amp;size=1024)
+[推特來源鏈結](https://twitter.com/Michael36447763/status/1239550909203378178?s=20)
+
+根據過往的程序，在殮房存放一個月後，若無人認領的屍體，就會被移送到沙頭角沙嶺墓安葬。
+
+沙嶺墳場（英語：Sandy Ridge Cemetery），又稱沙嶺公墓，是香港政府專為無人認領屍體而設的墳場，位於新界沙嶺，即文錦渡附近，羅湖管制站旁邊；所有墓碑均無姓名，只有編號。(參考資料)
+[!\[\](https://spark.adobe.com/page/IMFgiWGlY76qK/images/5c65015f-63a1-4de2-8aae-c90c3a3b1c38.jpg?asset_id=ab627d31-3f67-4a29-9164-e67a8e964bb7&amp;img_etag=dab42a31664890336624a41441d0a3e8&amp;size=1024)](https://spark.adobe.com/page/IMFgiWGlY76qK/images/5c65015f-63a1-4de2-8aae-c90c3a3b1c38.jpg?asset_id=ab627d31-3f67-4a29-9164-e67a8e964bb7&amp;img_etag=dab42a31664890336624a41441d0a3e8&amp;size=1024) Cupid Producer 丘品創作圖片 
+
+[!\[\](https://spark.adobe.com/page/IMFgiWGlY76qK/images/d8f69f3f-124e-4035-af6c-b4d6236e3b4c.jpg?asset_id=6220aa69-1133-4668-91c4-48564fe84752&amp;img_etag=b84559498d92dd33717c0e622206b998&amp;size=1024)](https://spark.adobe.com/page/IMFgiWGlY76qK/images/d8f69f3f-124e-4035-af6c-b4d6236e3b4c.jpg?asset_id=6220aa69-1133-4668-91c4-48564fe84752&amp;img_etag=b84559498d92dd33717c0e622206b998&amp;size=1024) Cupid Producer 丘品創作圖片 
+[推特來源鏈結](https://twitter.com/Samhon852/status/1240226356127862785?s=20)
+
+面對一場反送中運動，從共警、黑警的裝備及所作所爲看來，說是戰爭更為恰當，那些被消失、被自殺的戰友們，一句死因無可疑就被結案。在面對港共極權、黑警治港的社會環境下，法理何在？！天理何在？！
+
+香港人爭取的，不過是人類與生俱來應有的普世價值，民主、法治、人權……，這也是中共當年從港英政府手中收回香港時，在世人面前對香港人的承諾：一國兩制，五十年不變！。然而，二十三年後的今天，香港，昔日的明珠，自由港，已面目全非！港共政府毀撞了當年的契約，將香港帶入了極權、人治·……的深淵！這就是邪魔、撒旦中共、以騙治國、以假治國、以警治國、以黑治國！一個魔鬼的體制！
+[!\[\](https://spark.adobe.com/page/IMFgiWGlY76qK/images/694BABB3-4D22-4F37-9996-EB4A091BA7C6.jpg?asset_id=1685E40A-EEC7-4D2A-989E-B13C3CD57789&amp;size=3625)](https://spark.adobe.com/page/IMFgiWGlY76qK/images/694BABB3-4D22-4F37-9996-EB4A091BA7C6.jpg?asset_id=1685E40A-EEC7-4D2A-989E-B13C3CD57789&amp;size=1024) 網絡圖片 
+香港人在這次反抗中，真正表現出，中共集權和極權統治下，70年來缺失的精神，對極權的不妥協、對不公義的事當面指責、無私無畏的貢獻、智慧的反抗、團結的力量、勇氣的表現……，香港人向世界展示了華夏民族真正的精神！我們這民族並不是被中共洗腦的小粉紅、為利益出賣自己的靈魂、貪婪權力的，卑鄙的、自私的奴才！香港人，是我們未來重建之一的新中國的明燈！
+
+在這裡，我們必須向香港人致敬，也要向世界大聲的喊話，這是中共病毒，中共殘害世界全人類，是中共需要道歉，中國人、華人是受害人，中共對世界所犯下的惡行，它们残害西藏人、牆內的人民和天下百姓。所以我們必須向世界傳播香港真相、武漢疫情的真相和揭露紅龍赤共是如何利用CCP-VIRUS來對世界發動一場生化攻擊的真相，讓世界和香港獲得公義，重回世界正軌。
+
+嗚謝圖片來源[unsplash](https://unsplash.com/)、[pixabay](https://pixabay.com/) 、Cupid Producer 丘品創作圖片
+
+**編輯 【喜馬拉雅戰鷹團】**
 
 0

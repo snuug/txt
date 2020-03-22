@@ -1,14 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特、油管舉報教程！一起動手舉報維姦！
-`2020-03-22 02:55 GM30` [轉載自GNews](https://gnews.org/zh-hant/148496/)
+## 推特不應該是中共宣傳洗白的平台:美議員呼籲推特公司禁止中共使用
+`2020-03-22 04:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/148550/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22023625/IMG_9759.jpg)
-[**Report\_in\_Twitter.pdf**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22024434/Report_in_Twitter.pdf-1.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22024434/Report_in_Twitter.pdf-1.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22044932/5C38848E-D7A4-46BB-A3BE-297801372739.jpeg)
+就在本週五，兩名頗有影響力的共和黨議員致信給推特公司CEO 傑克.道斯（Jack Dorse）敦促其禁止中國共產黨使用推特平台來傳播掩蓋中共病毒事實的宣傳和洗白信息。
 
-**請點擊下載按鈕，下載文檔觀看！**
+參議院議員本.塞斯(Ben Sasse)和國會議員邁克. 蓋來格爾(Mike Gallagher)在信中寫道：“在全球疫情大爆發正嚴重影響每一個家庭，政府和市場的時候，中國共產黨卻在發起一場巨大的宣傳運動試圖改寫中共冠狀病毒的歷史，洗白他們對自己人民和世界說過的謊言。”
 
-**圖文製作：戰友之家**
+中共官員在推特上大肆宣傳和使用與他們拒絕本國公民使用國外社交媒體平台形成鮮明的反差。兩位議員形容這就像中共讓自己的人民籠罩在黑暗裡一樣。他們通過在推特發起輿論宣傳，正在向全世界編織謊言。這場由中共官員發起的宏大運動正在推特上如火如荼地進行，這些官員的賬號應該被刪除。
+
+議員塞斯還特別強調，這非常清楚地表明，中共官員正在利用推特平台肆意宣傳洗腦，使許多推特用戶對病毒源頭感到迷惑，並可能讓各國在控制疫情方面所做的努力付之東流。這種惡劣的行徑足以支持刪除他們賬戶的舉措。而且，從對等的角度看，那些不讓自己國民在互聯網自由公開發聲的國家，也不應該被允許其官員們在任何社交媒體上發聲。
+
+評論： 推特等大量西方社交媒體應用在中共國被禁止使用，而那些享有特權的中共大外宣機構卻肆意妄為利用西方民主社會言論自由的漏洞，製造假新聞，擾亂視聽，給不明真相的善良而天真的各國民眾傳播假象，掩蓋罪惡。美國完全有必要放下身段，以牙還牙，取締這些大外宣，不給他們任何向世界撒謊的機會，同時按對等原則應宣布所有中共國控制的社交媒體如微信，抖音等在美國禁止使用。
+
+[新聞鏈接](https://www.thehindu.com/news/international/us-senators-urge-twitter-to-ban-chinese-communist-party-from-platform/article31125568.ece)
+
+翻譯報導：人間四月
 
 0
