@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/275703](https://www.guo.media/posts/275703) `2020-03-22T03:55:29`
 ##
 
+**milesguo** 中共“清零”造假，隐瞒和复阳都会导致二次感染<br>https://gnews.org/zh-hans/148169/
+
+[https://www.guo.media/posts/275702](https://www.guo.media/posts/275702) `2020-03-22T04:41:19`
+##
+
 **milesguo** 《武汉肺炎》伊朗也破2万例！新增966确诊、123死亡<br>https://gnews.org/zh-hans/148165/
 
 [https://www.guo.media/posts/275701](https://www.guo.media/posts/275701) `2020-03-22T03:55:31`
@@ -39,6 +44,11 @@
 **milesguo** 香港黑警抓捕手无寸铁的同胞<br>https://gnews.org/zh-hans/147963/
 
 [https://www.guo.media/posts/275695](https://www.guo.media/posts/275695) `2020-03-22T03:55:36`
+##
+
+**milesguo** 警方無差別向人群噴胡椒噴霧<br>https://gnews.org/zh-hans/147856/
+
+[https://www.guo.media/posts/275694](https://www.guo.media/posts/275694) `2020-03-22T04:41:21`
 ##
 
 **milesguo** 谁在不思悔改，反耻为荣？<br>https://gnews.org/zh-hans/147157/
