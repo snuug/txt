@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/275664](https://www.guo.media/posts/275664) `2020-03-22T00:10:16`
 ##
 
+**milesguo** 美国国土安全部主任沃夫：美国针对中共冠状病毒疫情对边境入境加强管制<br>https://gnews.org/zh-hans/147613/
+
+[https://www.guo.media/posts/275663](https://www.guo.media/posts/275663) `2020-03-22T01:10:14`
+##
+
 **milesguo** 再谈火烧连营<br>https://gnews.org/zh-hans/146964/
 
 [https://www.guo.media/posts/275662](https://www.guo.media/posts/275662) `2020-03-22T00:10:18`
@@ -39,6 +44,11 @@
 **milesguo** 中共病毒与庚子赔款<br>https://gnews.org/zh-hans/146888/
 
 [https://www.guo.media/posts/275661](https://www.guo.media/posts/275661) `2020-03-22T00:10:20`
+##
+
+**milesguo** ANA约5000乘务员因新型冠状病毒临时停工<br>https://gnews.org/zh-hans/147594/
+
+[https://www.guo.media/posts/275660](https://www.guo.media/posts/275660) `2020-03-22T01:10:15`
 ##
 
 **milesguo** 2020年3月4日灭共者说中文字幕合集<br>https://gnews.org/zh-hans/147584/
