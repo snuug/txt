@@ -51,6 +51,11 @@
 [https://www.guo.media/posts/275656](https://www.guo.media/posts/275656) `2020-03-21T23:40:29`
 ##
 
+**milesguo** 川普总统：通过这次中共冠状病毒的劫难只会让美国更加强大<br>https://gnews.org/zh-hans/147548/
+
+[https://www.guo.media/posts/275655](https://www.guo.media/posts/275655) `2020-03-22T00:25:19`
+##
+
 **milesguo** 中共虚假宣传瞒天过海误导西方媒体<br>https://gnews.org/zh-hans/147540/
 
 [https://www.guo.media/posts/275654](https://www.guo.media/posts/275654) `2020-03-21T23:40:31`
