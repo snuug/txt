@@ -11,6 +11,41 @@
 
 
 
+**milesguo** 大火面前，领导先走 中共冠状病毒面前，学生先行<br>https://gnews.org/zh-hans/148198/
+
+[https://www.guo.media/posts/275705](https://www.guo.media/posts/275705) `2020-03-22T03:55:27`
+##
+
+**milesguo** 美军B-52、F-15 联合航母舰队南海军演 震慑中共党卫军!小粉红都惊呆了!<br>https://gnews.org/zh-hans/148191/
+
+[https://www.guo.media/posts/275703](https://www.guo.media/posts/275703) `2020-03-22T03:55:29`
+##
+
+**milesguo** 《武汉肺炎》伊朗也破2万例！新增966确诊、123死亡<br>https://gnews.org/zh-hans/148165/
+
+[https://www.guo.media/posts/275701](https://www.guo.media/posts/275701) `2020-03-22T03:55:31`
+##
+
+**milesguo** 欧洲你该醒醒了不加入灭共大军解体只是时间问题<br>https://gnews.org/zh-hans/148136/
+
+[https://www.guo.media/posts/275700](https://www.guo.media/posts/275700) `2020-03-22T03:55:33`
+##
+
+**milesguo** 谈最近一次新疆东突厥斯坦共和国分裂新疆、大规模屠杀汉族人事件，以及新疆独立的一种可能情况的推演<br>https://gnews.org/zh-hans/148138/
+
+[https://www.guo.media/posts/275698](https://www.guo.media/posts/275698) `2020-03-22T03:55:35`
+##
+
+**milesguo** 香港黑警抓捕手无寸铁的同胞<br>https://gnews.org/zh-hans/147963/
+
+[https://www.guo.media/posts/275695](https://www.guo.media/posts/275695) `2020-03-22T03:55:36`
+##
+
+**milesguo** 谁在不思悔改，反耻为荣？<br>https://gnews.org/zh-hans/147157/
+
+[https://www.guo.media/posts/275693](https://www.guo.media/posts/275693) `2020-03-22T03:55:38`
+##
+
 **milesguo** 3月21号：这位华盛顿邮报的记者JOSH ．https://www.washingtonpost.com/opinions/global-opinions/dont-blame-china-for-the-coronavirus--blame-the-chinese-communist-party/2020/03/19/343153ac-6a12-11ea-abef-020f086a3fab\_story.html．就是去年6月4号文贵邀请一起在华盛顿宣布这是最后一个六四纪念日，2020年6月4号将是没有共产党的新中国诞生的纪念日的那一顿晚餐其中一个反共战友……包括火鸡龚这个畜生也在场那一次……这是一个灭共的的好朋友，他正式的呼吁必须叫共产党CCP病毒🦠不能叫中国病毒🦠也不能叫中国人病毒🦠我们一定会让全世界统一认识14亿中国人是病毒的最严重的受害者，全世界人民都要找中国C C P共产党算账，这是个绝对的原则．绝对的真理．绝对不可妥协，💪我们不能让种族大屠杀在全世界再次上演……那是共产党最希望的．那是恐怖分子最希望的．受害者就是无辜的孩子和女人👩不能让新疆七五事件，在全世界重新灾难性的重演，未来几天，你们会看到爆料革命法制基金和法治社会努力的结果！莘县阳谷县搭县！一切靠结果说了算！一切都已经开始。
 
 [https://www.guo.media/posts/275670](https://www.guo.media/posts/275670) `2020-03-22T00:55:11`
