@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/275670](https://www.guo.media/posts/275670) `2020-03-22T00:55:11`
 ##
 
+**milesguo** 川普总统宣布采取更多行动以应对全球大流行病<br>https://gnews.org/zh-hans/147755/
+
+[https://www.guo.media/posts/275667](https://www.guo.media/posts/275667) `2020-03-22T02:25:14`
+##
+
 **milesguo** 最新消息：600名法国医护人员联名起诉法国总理和前卫生部长，“国家谎言”罪！责任直指总统马克龙！<br>https://gnews.org/zh-hans/147776/
 
 [https://www.guo.media/posts/275666](https://www.guo.media/posts/275666) `2020-03-22T00:10:14`
