@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/275693](https://www.guo.media/posts/275693) `2020-03-22T03:55:38`
 ##
 
+**milesguo** 中共政府不能代表中国人，请称呼新冠状病毒为中共病毒！<br>https://gnews.org/zh-hans/147013/
+
+[https://www.guo.media/posts/275692](https://www.guo.media/posts/275692) `2020-03-22T04:10:38`
+##
+
 **milesguo** 3月21号：这位华盛顿邮报的记者JOSH ．https://www.washingtonpost.com/opinions/global-opinions/dont-blame-china-for-the-coronavirus--blame-the-chinese-communist-party/2020/03/19/343153ac-6a12-11ea-abef-020f086a3fab\_story.html．就是去年6月4号文贵邀请一起在华盛顿宣布这是最后一个六四纪念日，2020年6月4号将是没有共产党的新中国诞生的纪念日的那一顿晚餐其中一个反共战友……包括火鸡龚这个畜生也在场那一次……这是一个灭共的的好朋友，他正式的呼吁必须叫共产党CCP病毒🦠不能叫中国病毒🦠也不能叫中国人病毒🦠我们一定会让全世界统一认识14亿中国人是病毒的最严重的受害者，全世界人民都要找中国C C P共产党算账，这是个绝对的原则．绝对的真理．绝对不可妥协，💪我们不能让种族大屠杀在全世界再次上演……那是共产党最希望的．那是恐怖分子最希望的．受害者就是无辜的孩子和女人👩不能让新疆七五事件，在全世界重新灾难性的重演，未来几天，你们会看到爆料革命法制基金和法治社会努力的结果！莘县阳谷县搭县！一切靠结果说了算！一切都已经开始。
 
 [https://www.guo.media/posts/275670](https://www.guo.media/posts/275670) `2020-03-22T00:55:11`
