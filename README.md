@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 武汉已经正式复工，这些汹涌而至的人群，他们真得不知道他们将要面对的是什么<br>https://gnews.org/zh-hans/148663/
+
+[https://www.guo.media/posts/275774](https://www.guo.media/posts/275774) `2020-03-22T16:55:12`
+##
+
+**milesguo** 地方政府以隔离的名义，行政垄断谋财抢劫老百姓！<br>https://gnews.org/zh-hans/148607/
+
+[https://www.guo.media/posts/275772](https://www.guo.media/posts/275772) `2020-03-22T16:55:14`
+##
+
 **milesguo** 推特、油管举报教程！一起动手举报维奸！<br>https://gnews.org/zh-hans/148481/
 
 [https://www.guo.media/posts/275725](https://www.guo.media/posts/275725) `2020-03-22T08:40:13`
