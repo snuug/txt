@@ -11,6 +11,41 @@
 
 
 
+**milesguo** 最新消息：600名法国医护人员联名起诉法国总理和前卫生部长，“国家谎言”罪！责任直指总统马克龙！<br>https://gnews.org/zh-hans/147776/
+
+[https://www.guo.media/posts/275666](https://www.guo.media/posts/275666) `2020-03-22T00:10:14`
+##
+
+**milesguo** 中国官方声称的尿液粪便传播 真要吃屎喝尿才能传播吗？<br>https://gnews.org/zh-hans/147669/
+
+[https://www.guo.media/posts/275665](https://www.guo.media/posts/275665) `2020-03-22T00:10:15`
+##
+
+**milesguo** 【武漢肺炎真相】共产党制造病毒\3月21日视频合集<br>https://gnews.org/zh-hans/147644/
+
+[https://www.guo.media/posts/275664](https://www.guo.media/posts/275664) `2020-03-22T00:10:16`
+##
+
+**milesguo** 再谈火烧连营<br>https://gnews.org/zh-hans/146964/
+
+[https://www.guo.media/posts/275662](https://www.guo.media/posts/275662) `2020-03-22T00:10:18`
+##
+
+**milesguo** 中共病毒与庚子赔款<br>https://gnews.org/zh-hans/146888/
+
+[https://www.guo.media/posts/275661](https://www.guo.media/posts/275661) `2020-03-22T00:10:20`
+##
+
+**milesguo** 多语言CCP冠状病毒真相第2期<br>https://gnews.org/zh-hans/147573/
+
+[https://www.guo.media/posts/275658](https://www.guo.media/posts/275658) `2020-03-22T00:10:22`
+##
+
+**milesguo** 郭文贵先生：中共冠状病毒和中国人没关系<br>https://gnews.org/zh-hans/147565/
+
+[https://www.guo.media/posts/275657](https://www.guo.media/posts/275657) `2020-03-22T00:10:23`
+##
+
 **milesguo** Warroom 59：美国政府表示与中共国的战争已经升级<br>https://gnews.org/zh-hans/147556/
 
 [https://www.guo.media/posts/275656](https://www.guo.media/posts/275656) `2020-03-21T23:40:29`
