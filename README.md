@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月21号：这位华盛顿邮报的记者JOSH ．https://www.washingtonpost.com/opinions/global-opinions/dont-blame-china-for-the-coronavirus--blame-the-chinese-communist-party/2020/03/19/343153ac-6a12-11ea-abef-020f086a3fab\_story.html．就是去年6月4号文贵邀请一起在华盛顿宣布这是最后一个六四纪念日，2020年6月4号将是没有共产党的新中国诞生的纪念日的那一顿晚餐其中一个反共战友……包括火鸡龚这个畜生也在场那一次……这是一个灭共的的好朋友，他正式的呼吁必须叫共产党CCP病毒🦠不能叫中国病毒🦠也不能叫中国人病毒🦠我们一定会让全世界统一认识14亿中国人是病毒的最严重的受害者，全世界人民都要找中国C C P共产党算账，这是个绝对的原则．绝对的真理．绝对不可妥协，💪我们不能让种族大屠杀在全世界再次上演……那是共产党最希望的．那是恐怖分子最希望的．受害者就是无辜的孩子和女人👩不能让新疆七五事件，在全世界重新灾难性的重演，未来几天，你们会看到爆料革命法制基金和法治社会努力的结果！莘县阳谷县搭县！一切靠结果说了算！一切都已经开始。
+
+[https://www.guo.media/posts/275670](https://www.guo.media/posts/275670) `2020-03-22T00:55:11`
+##
+
 **milesguo** 最新消息：600名法国医护人员联名起诉法国总理和前卫生部长，“国家谎言”罪！责任直指总统马克龙！<br>https://gnews.org/zh-hans/147776/
 
 [https://www.guo.media/posts/275666](https://www.guo.media/posts/275666) `2020-03-22T00:10:14`
@@ -36,6 +41,11 @@
 [https://www.guo.media/posts/275661](https://www.guo.media/posts/275661) `2020-03-22T00:10:20`
 ##
 
+**milesguo** 2020年3月4日灭共者说中文字幕合集<br>https://gnews.org/zh-hans/147584/
+
+[https://www.guo.media/posts/275659](https://www.guo.media/posts/275659) `2020-03-22T00:55:14`
+##
+
 **milesguo** 多语言CCP冠状病毒真相第2期<br>https://gnews.org/zh-hans/147573/
 
 [https://www.guo.media/posts/275658](https://www.guo.media/posts/275658) `2020-03-22T00:10:22`
@@ -59,6 +69,11 @@
 **milesguo** 中共虚假宣传瞒天过海误导西方媒体<br>https://gnews.org/zh-hans/147540/
 
 [https://www.guo.media/posts/275654](https://www.guo.media/posts/275654) `2020-03-21T23:40:31`
+##
+
+**milesguo** 八角棒槌： 中共病毒的罪，姑娘你可知？<br>https://gnews.org/zh-hans/147514/
+
+[https://www.guo.media/posts/275653](https://www.guo.media/posts/275653) `2020-03-22T00:55:15`
 ##
 
 **milesguo** 中国的脱贫标准 都不如共产党官员家庭饲养一条狗的费用！<br>https://gnews.org/zh-hans/147301/
