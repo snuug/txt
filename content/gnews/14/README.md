@@ -1,51 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港黑警抓捕手无寸铁的同胞
-`2020-03-21 14:26 GM02` [轉載自GNews](https://gnews.org/zh-hant/147878/)
+## 美國律師對中共提起集體訴訟！
+`2020-03-21 19:03 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148077/)
 
-当地时间2020年3月21日晚 香港黑警抓捕手无寸铁的同胞请战友们传播出去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141609/IMG_20200322_020026_790.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141555/IMG_20200322_020027_612.jpg)
-2216 #尖沙咀 赫德道發利大廈 1名男子被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141545/IMG_20200322_020043_454.jpg)
-2055 #油塘 鯉魚門道1號公廁外
-1男被捕上咗 #AM6306，其餘大約13人全部上哂手扣
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141618/857422702_355001.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141708/857422990_356762.jpg)
-1552 #元朗 黨鐵站拉咗個街坊 班狗查完身份證話佢係被通緝人士
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141727/IMG_20200322_020215_616.jpg)
-2140 #元朗 又新街 2男被捕，
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141843/IMG_20200322_020232_630.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141825/IMG_20200322_020234_127.jpg)
-2105 #銅鑼灣 時代廣場 1男1女被捕。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141905/857420307_356722.jpg)
-2131 #銅鑼灣 時代廣場 圖中男子被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141929/500001700626_110484.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142041/500001800339_110954.jpg)
-2300 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142052/500001500748_110581.jpg)
-2259 #元朗 鳳翔路 一男被捕
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142127/IMG_20200322_020441_274.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142112/IMG_20200322_020442_865.jpg)
-2312 #荃灣 荃新天地 一白衫男被捕 上左 #AM7388 沿沙咀道駛去
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142208/857415647_356478.jpg)
-2335 #荃灣 荃新天地大河道沙咀道交介 上左 #AM7475 沿大河道駛去
+【中英對照翻譯】 [https://spark.adobe.com/page/uzHneF88p37H0/](https://spark.adobe.com/page/uzHneF88p37H0/)
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142920/IMG_20200322_020513_060.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142907/IMG_20200322_020514_700.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142852/IMG_20200322_020515_896.jpg)
+*新聞來源: WFLX FOX 29*
+
+*翻譯: CharlesS*
+
+*前言/PR:TCC*
+
+**前言**： 3月12日, 美國佛羅里達州邁阿密聯邦法院受理了一起因冠狀病毒而針對中共政府及武漢市的起訴。律師在起訴書中指出, 中共政府明知其病毒的嚴重性, 卻因故意或為其自身經濟利益考量而將資訊隱瞞而導致今日全球大流行。 訴書中將中共的罪行逐一列舉。 其實中國大陸人民尤其是武漢市民也是被害者, 他們也有權站出來向中國共產黨提出訴訟，爭取賠償。 讓中共政府以及在海外賣國賊的子孫們負責這中共病毒帶來的傷害。幾位來自南佛羅里達州的受害人共同委託伯曼法律集團（The Berman Law Group）對中華人民共和國政府、衛生部、民政部、應急管理部、湖北省政府、武漢市政府提出控告。
 
 
-2234 #元朗 建業街 帶上am9877 #YLN25 [7] 齊蔭女：任xx 已有律師 #YLN26 [6] 啡色袋長髮女 #YLN27 [8] 銀白短髮女：黃xx #YLN28 [9] 白衫女 #YLN29 [10] 藍衫女 [4] 胡xx 已有律師 [8a] 黑帽男：譚xx
 
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142832/IMG_20200322_020538_797.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142817/IMG_20200322_020539_546.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142801/IMG_20200322_020553_628.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142746/IMG_20200322_020554_849.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142730/IMG_20200322_020555_804.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142721/IMG_20200322_020557_614.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142710/IMG_20200322_020558_136.jpg)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142654/IMG_20200322_020559_979.jpg)
+## **美國因冠狀病毒對中共政府提起的集體訴訟**
 
+2020年3月13日
 
-0045 #元朗 合益路 建業街 9位被押上
+針對中國政府”因冠狀病毒大流行而遭受的損失”，聯邦政府提起了集體訴訟。
 
-0
+總部設在博卡拉頓的伯曼法律集團週四向邁阿密聯邦法院提起了訴訟。
+[!\[\](https://spark.adobe.com/page/uzHneF88p37H0/images/0d96481c-a3a5-4b8e-a8fc-bb09ca2f3203.jpg?asset_id=b18af572-632c-4d12-98ba-0fc37191e29a&amp;img_etag=d29cd3b7b9ed7aaf34a266044f7025e7&amp;size=3200)](https://spark.adobe.com/page/uzHneF88p37H0/images/0d96481c-a3a5-4b8e-a8fc-bb09ca2f3203.jpg?asset_id=b18af572-632c-4d12-98ba-0fc37191e29a&amp;img_etag=d29cd3b7b9ed7aaf34a266044f7025e7&amp;size=1024) 伯曼法律集團是佛羅里達州一間大型法律事務所。（圖／取自伯曼法律集團臉書） 
+根據起訴書，中華人民共和國和爆發疫情的武漢市在訴訟中被列為被告。
+
+律師馬修·摩爾在訴狀中寫道:”中華人民共和國政府和其他被告明知中共武漢病毒是危險的,足以引起大流行病,但仍然行動緩慢 , 這種鴕鳥心態或是為了自身經濟利益以試圖掩蓋一切。 “
+
+兩名邁阿密戴德縣居民和兩名棕櫚灘縣居民列為該訴訟的原告。
+
+根據訴訟,”指定原告與造成他們傷害的過失行為的關係非常接近。 “
+
+摩爾在宣佈訴訟的新聞稿中說,”中共官員在1月3日已經知道中共武漢病毒可在人與人之間傳播, 而且患者在幾天后開始死亡。 ” 然而, 他們一直告訴武漢和全世界人民一切都很好, 甚至於1月18日在武漢為4萬多家庭舉行了公開晚宴。 “
+
+該訴訟要求被告賠償因中共未能遏制冠狀病毒而導致個人傷亡、非自然死亡、財產損失和其他連帶損害的數十億美元的賠償。
+
+該公司聯合創始人拉塞爾·伯曼說:”這是一個挑戰世界超級大國的行動,””中共在世界上引發了一場大流行病, 其所造成的傷害每天都在美國、佛羅里達州成倍增加。 “
+
+[彼得·伯克對中共集體訴訟英文原文訴狀瀏覽及下載地址](https://www.scribd.com/document/451594535/Class-Action-Lawsuit-Against-China)[英文原文鏈接](https://www.wflx.com/2020/03/13/class-action-lawsuit-blames-china-coronavirus/)
+
+**編輯：【喜馬拉雅戰鷹團】**
+
+1+
