@@ -1,21 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統批評造假新聞的媒體
-`2020-03-21 13:42 GM31` [轉載自GNews](https://gnews.org/zh-hant/147838/)
+## 香港黑警抓捕手无寸铁的同胞
+`2020-03-21 14:26 GM02` [轉載自GNews](https://gnews.org/zh-hant/147878/)
 
-川普總統在3月19日的CCP武漢冠狀病毒疫情[每日通報會](https://youtu.be/tWxW0edricU)上對編寫假新聞（Fake News）報導的媒體做了批評。
+当地时间2020年3月21日晚 香港黑警抓捕手无寸铁的同胞请战友们传播出去
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141609/IMG_20200322_020026_790.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141555/IMG_20200322_020027_612.jpg)
+2216 #尖沙咀 赫德道發利大廈 1名男子被捕，
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141545/IMG_20200322_020043_454.jpg)
+2055 #油塘 鯉魚門道1號公廁外
+1男被捕上咗 #AM6306，其餘大約13人全部上哂手扣
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141618/857422702_355001.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141708/857422990_356762.jpg)
+1552 #元朗 黨鐵站拉咗個街坊 班狗查完身份證話佢係被通緝人士
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141727/IMG_20200322_020215_616.jpg)
+2140 #元朗 又新街 2男被捕，
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141843/IMG_20200322_020232_630.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141825/IMG_20200322_020234_127.jpg)
+2105 #銅鑼灣 時代廣場 1男1女被捕。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141905/857420307_356722.jpg)
+2131 #銅鑼灣 時代廣場 圖中男子被捕
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21141929/500001700626_110484.jpg)
+2259 #元朗 鳳翔路 一男被捕
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142041/500001800339_110954.jpg)
+2300 #元朗 鳳翔路 一男被捕
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142052/500001500748_110581.jpg)
+2259 #元朗 鳳翔路 一男被捕
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142127/IMG_20200322_020441_274.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142112/IMG_20200322_020442_865.jpg)
+2312 #荃灣 荃新天地 一白衫男被捕 上左 #AM7388 沿沙咀道駛去
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142208/857415647_356478.jpg)
+2335 #荃灣 荃新天地大河道沙咀道交介 上左 #AM7475 沿大河道駛去
 
-當記者提到：“ ***主要的左翼新聞媒體，即使在這個房間裡，也與中共的語調保持一致。他們聲稱你是種族主義者，因為你說了這些有關中國病毒的話…*** ”
-
-川普總統說：“當我閱讀這些東西時，我感到很驚訝；當我閱讀《華爾街日報》時，我感到驚訝，它總是那麼消極；當我閱讀《紐約時報》時，我感到驚訝，我幾乎不看它，我們不再在白宮分發它，也不再分發《華盛頓郵報》。”
-
-他進一步指出：“
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142920/IMG_20200322_020513_060.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142907/IMG_20200322_020514_700.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142852/IMG_20200322_020515_896.jpg)
 
 
-> 這些都是非常不誠實的媒體，他們非常不誠實，本屆政府做的很出色，但是媒體非常不誠實。我的意思是說，他們與中共國沆瀣一氣，他們正在做他們不應該做的事……但是如果我們這個國家擁有了誠實的媒體，那麼我們的國家將變得更加偉大。
+2234 #元朗 建業街 帶上am9877 #YLN25 [7] 齊蔭女：任xx 已有律師 #YLN26 [6] 啡色袋長髮女 #YLN27 [8] 銀白短髮女：黃xx #YLN28 [9] 白衫女 #YLN29 [10] 藍衫女 [4] 胡xx 已有律師 [8a] 黑帽男：譚xx
+
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142832/IMG_20200322_020538_797.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142817/IMG_20200322_020539_546.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142801/IMG_20200322_020553_628.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142746/IMG_20200322_020554_849.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142730/IMG_20200322_020555_804.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142721/IMG_20200322_020557_614.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142710/IMG_20200322_020558_136.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21142654/IMG_20200322_020559_979.jpg)
 
 
-*翻譯：【Anni】 校對:【GM31】 字幕:【GM38】*
+0045 #元朗 合益路 建業街 9位被押上
 
 0
