@@ -1,105 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒爆發和掩蓋的時間軸
-`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
+## 中共冠狀病毒在英國大爆發，24小時內新增死亡創新高，最年輕死者僅18歲
+`2020-03-23 01:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149301/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
+[!\[\](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23005837/71C2CC79-3D1C-46AD-8067-6E52A4DAD557.png)](https://www.thesun.co.uk/news/11176662/coronavirus-live-uk-update-death-toll-mcdonalds/) [圖片來源](https://www.thesun.co.uk/news/11176662/coronavirus-live-uk-update-death-toll-mcdonalds/) 
+一位18歲的少年剛剛因中共新冠病毒去世，他成為了英國最年輕的中共冠狀病毒（CCP Virus）受害者。他是過去24小時內新增的48名因CCP Virus死亡的患者之一。目前英國因CCP Virus而死亡的總數已達281人。而感染人數更是猛增665人，至5,683人。
 
-*作者: Bethany Allen-Ebrahimian*
+英國首相鮑里斯·約翰遜（Boris Johnson）警告說，很多在中共冠狀病毒爆發期間未遵循社會疏離建議的人，正在“使其他人的生命處於危險之中”，他暗示，如果公眾不能在公園等公共場所，相互之間保持6英尺（約2米）的距離，政府可能會禁止所有英國人離開家門。
 
-*新聞來源: axios.com*
+來自考文垂的一名18歲青年死於中共病毒，標誌著他成為了英國最年輕的、因感染中共冠狀病毒而死亡的患者。此外，昨天還有47名新增死者，將英國整體的新冠死亡人數推高至281人。
 
-*翻譯 / 簡評：海闊天空*
+目前英國的冠狀病毒病例總數已到達5683例，英國首相今天警告英國公眾，他們將有24小時時間來認真採取社會疏離措施。否則，即便是在數千人繼續反抗之後，他也將實施意大利式的全面封鎖 -以此來應對中共冠狀病毒。
 
-**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
+首相在他的每日新聞發布會上警告說，“毫無疑問”，如果人們繼續他們的愚蠢行為，他將會立即採取行動，關閉露天場所、並限制房屋外的一切活動。
 
+早些時候，首相在給國家的一封信中警告說，英國疫情的爆發僅僅比意大利延後“兩到三週”。而意大利的死亡人數目前已上升至4,000人以上，我們必須意識到，此次疫情是世界上最嚴重的一次。
 
+他說，除非英國能夠通過社會隔離來控制病毒的傳播，否則我們將與意大利的醫療體系一樣，NHS（National Health Service 英國國家衛生體系）將“不堪重負”。
 
-## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
+約翰遜在今天下午在唐寧街向公眾發出了告誡：“即使您認為自己身體素質非常好，也可能會感染很多人。儘管英國政府對冠狀病毒的流行提出了社會疏離的建議，但英國各地的英國人還是蜂擁而至，與親人一起在全國各地的海灘和公園散步，場面令人震驚。”
 
-Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
+約翰遜敦促家人之間從物理上進行隔離，通過Skype等其他遠程通信來慶祝母親節，但這一天病毒卻爆發了。首相今天下午在唐寧街向公眾發出了嚴厲的警告，他說，雖然他了解開放空間對身心有益，他仍將採取嚴厲措施保護公眾健康。
 
-為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
+英國國家臨床主任傑森·利奇（Jason Leitch）與第一部長尼古拉·斯特金（Nicola Sturgeon）表示，在CCP 病毒爆發期間，保持營業的酒吧正在危及公眾生命。
 
-我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
+里奇教授說：“公眾現在真的還沒有意識到這一點。“為了保護個人和社會的弱勢群體，我們需要做出非常嚴厲的社會疏離措施。 ”
 
-**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
+這位醫學專家繼續說：“英格蘭的首席科學顧問認為，如果整個英國如果只有20,000人死亡，那可能是個比較幸運的結果。 ‘在蘇格蘭，我認為大約是2,000人，但最壞的情況遠甚於此。人們因此需要非常認真地接受社會疏離的建議。” 他補充說，聽從政府的建議，除非有必要，否則不要外出。遠離他人可能是 “成千上萬人死亡，或只有約2,000的死亡之間的差”。認真對待這個建議至關重要。 ”
 
-**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
+儘管最近幾天許多政治家，醫學和科學專家不斷建議，但全英國各地的情況仍然令人擔憂。
 
-**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
+在多塞特郡，許多人漫步在沙灘上，而其他人則絲毫沒有在意，今天下午繼續在海裡游泳。
 
-**12月30日:**
+蘇格蘭政府今天批評遊客的“不負責任的行為”，因為許多遊客躲進帳篷車，試圖躲避冠狀病毒。
 
-- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
-- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
-- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
+在倫敦，人們仍然四處走動，市長薩迪克·汗（Sadiq Khan）批評說倫敦人應該待在家裡，保護大家的生命。
 
+坎布里亞郡警察說，儘管政府為避免不必要的旅行提出了建議，但英國的湖區和其他旅遊熱點遇到了遊客的“湧入”。
 
-**12月31日:**
+目前英國的狀況讓唐寧街感受到了巨大的壓力。英國可能會與其他國家一樣，採取進一步嚴厲的隔離措施，甚至是極端的封鎖。
 
-- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
-- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
+[原文鏈接](https://www.dailymail.co.uk/news/article-8140313/UK-coronavirus-death-toll-rises-48-ONE-day-Boris-Johnson-threatens-shut-UK-parks.html%20/h)
 
-[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
-**1月1日:**
-
-- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
-- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
-
-
-**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
-
-**1月7日:**習近平回應了冠狀病毒的相關事項。
-
-**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
-
-**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
-
-**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
-
-**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
-
-**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
-
-**1月18日:**
-
-- 武漢市衛生健康委員會公佈了4例新病例。
-- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
-
-
-**1月19日:**北京派流行病學家到武漢。
-
-**1月20日:**
-
-- **韓國宣佈了首例病例。**
-- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
-
-
-**1月21日:**
-
-- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
-- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
-- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
-
-
-**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
-
-**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
-
-**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
-
-**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
-
-引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
-
-編者注:這篇報導將隨著更多資訊的報導而更新。
-
-[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
-
-*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
-
-**編輯：【喜馬拉雅戰鷹團】**
+翻譯報導： Charles7
 
 0

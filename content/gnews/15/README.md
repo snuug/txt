@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安倍首次表態：如奧運會無法圓滿舉辦，可接受延期
-`2020-03-23 02:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149367/)
+## 《軍情動態》美艦在菲律賓海軍演 發射標準二型飛彈
+`2020-03-23 02:59 GM15` [轉載自GNews](https://gnews.org/zh-hant/149385/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23022105/FE860E36-8996-4D83-A565-89451A0B26E4.jpeg)
-23日，安倍總理表示：因新冠病毒疫情擴大國際奧委會決定將東京奧運會延期的話，可以接受。這是安倍總理第一次表態接受延期。安倍同時稱：停辦奧運會不在選項中。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025756/Noname-20.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025429/phpIYZpbW.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025410/phpiLki9Y.jpg)
+> The forward-deployed guided-missile cruiser [#USSShiloh](https://twitter.com/hashtag/USSShiloh?src=hash&amp;ref_src=twsrc%5Etfw) launches a Standard Missile [#SM2](https://twitter.com/hashtag/SM2?src=hash&amp;ref_src=twsrc%5Etfw) during a live-fire exercise in the Philippine Sea this week. [#CG67](https://twitter.com/hashtag/CG67?src=hash&amp;ref_src=twsrc%5Etfw) [#NavyReadiness](https://twitter.com/hashtag/NavyReadiness?src=hash&amp;ref_src=twsrc%5Etfw) [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) [@SurfaceWarriors](https://twitter.com/SurfaceWarriors?ref_src=twsrc%5Etfw) [pic.twitter.com/e7xEk7L4zS](https://t.co/e7xEk7L4zS)
+> — U.S. Pacific Fleet (@USPacificFleet) [March 21, 2020](https://twitter.com/USPacificFleet/status/1241468582006910977?ref_src=twsrc%5Etfw)
 
-國際奧委會在22日召開臨時理事會，包括延期舉辦就東京奧運會進行了探討。會議決定在接下來的四周內給出最終結論。安倍總理在23日上午的參議員預算委員會上，針對國際奧委會的決定表示：這個決定符合我所說的奧運會必須圓滿舉辦的方針。而且，假如無法圓滿舉辦，以運動員優先為前提延期也是無奈之舉。
+美國提康德羅加級巡洋艦夏洛號（USS Shiloh），在菲律賓海進行實彈演習，過程中發射標準二型飛彈（SM-2），場面相當震撼。
 
-安倍在22日晚，通過東京奧運會籌委會會長的森喜朗原總理向國際奧委會主席巴赫傳達了：我本人希望早些做出決定，但是國際奧委會的判斷也要考慮東京都的立場。
+從[美國海軍太平洋艦隊推特](https://twitter.com/USPacificFleet/status/1241468582006910977)發布的照片可以看到，標準二型飛彈從夏洛號垂直發射升空，震懾美軍在菲律賓海所屬的太平洋地區假想敵軍中國。
 
-菅義偉官房長官在23日的記者招待會上表示：最終決定權在國際奧委會。日本籌委會和東京都等相關方面將緊密、積極配合做出適宜的應對。
+標準二型飛彈是美國海軍主力中長程防空飛彈，巡洋艦以上的軍艦都有配備，並衍生出多種型號，最遠射程達166公里，除了防空之外也能做為反艦飛彈使用。
 
-橋本聖子奧運會擔當大臣對記者團表示：希望國際奧委會早日做出適宜的判斷。關於聖火傳遞，橋本稱：將於26日起在福島縣按原計劃實施。很快應該會進行磋商（決定下一步）。
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3108490)
 
-背景：
-
-國際奧委會在22日召開的臨時理事會上，首次表示東京奧運會可能延期。但不會取消。此前，巴赫主席始終堅持在7月24日如期舉辦。
-
-[原文鏈接](https://www.jiji.com/jc/article?k=2020032300249&amp;g=pol)
-
-翻譯報導：村長
+GM15
 
 0

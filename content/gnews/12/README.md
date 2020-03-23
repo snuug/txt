@@ -1,21 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《軍情動態》美艦在菲律賓海軍演 發射標準二型飛彈
-`2020-03-23 02:59 GM15` [轉載自GNews](https://gnews.org/zh-hant/149385/)
+## 戰時總統嚴陣以待國民警衛隊進駐美國三州
+`2020-03-23 06:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149468/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025756/Noname-20.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025429/phpIYZpbW.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025410/phpiLki9Y.jpg)
-> The forward-deployed guided-missile cruiser [#USSShiloh](https://twitter.com/hashtag/USSShiloh?src=hash&amp;ref_src=twsrc%5Etfw) launches a Standard Missile [#SM2](https://twitter.com/hashtag/SM2?src=hash&amp;ref_src=twsrc%5Etfw) during a live-fire exercise in the Philippine Sea this week. [#CG67](https://twitter.com/hashtag/CG67?src=hash&amp;ref_src=twsrc%5Etfw) [#NavyReadiness](https://twitter.com/hashtag/NavyReadiness?src=hash&amp;ref_src=twsrc%5Etfw) [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) [@SurfaceWarriors](https://twitter.com/SurfaceWarriors?ref_src=twsrc%5Etfw) [pic.twitter.com/e7xEk7L4zS](https://t.co/e7xEk7L4zS)
-> — U.S. Pacific Fleet (@USPacificFleet) [March 21, 2020](https://twitter.com/USPacificFleet/status/1241468582006910977?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23061733/7F59D78E-3970-4FA6-8500-7298EFCAB3A3.jpeg)
+美國總統川普週日宣布啟用國民警衛隊前往加州，華盛頓州和紐約州，以應對快速蔓延的疫情。但政府強調這不是戒嚴令。各州政府保留對國民警衛隊的指揮權，但聯邦應急管理局會承擔應對疫情的所有開削。
 
-美國提康德羅加級巡洋艦夏洛號（USS Shiloh），在菲律賓海進行實彈演習，過程中發射標準二型飛彈（SM-2），場面相當震撼。
+總統在白宮新聞發布會上還說：“我們也在幫助其他州，目前這三個州情況最嚴重。”在本次發布會上，川普用了戰爭口吻，以回應紐約州州長和紐約市市長之前對他的表現不夠有強制力的批評。紐約州目前是中共冠狀病毒確診和死亡病例最多的地方。
 
-從[美國海軍太平洋艦隊推特](https://twitter.com/USPacificFleet/status/1241468582006910977)發布的照片可以看到，標準二型飛彈從夏洛號垂直發射升空，震懾美軍在菲律賓海所屬的太平洋地區假想敵軍中國。
+川普總統還說：“我現在是一個戰時總統，這是一場戰爭，一場我們從未經歷過的戰爭。”
 
-標準二型飛彈是美國海軍主力中長程防空飛彈，巡洋艦以上的軍艦都有配備，並衍生出多種型號，最遠射程達166公里，除了防空之外也能做為反艦飛彈使用。
+截至週日早晨，至少7300名國民警衛隊官兵已經被部署到全美包括50個州，華盛頓特區和波多黎哥進行抗戰。聯邦政府從國家庫存發放了近百頓物資幫助各州應對疫情。醫療物資包括手套，病床，N95口罩和防護服等會在未來幾天派送出去。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3108490)
+加州，華盛頓州和紐約州在過去一周感染情況升級，是全美疫情的重災區。紐約州已經有超過15000名的確診感染病例，較週六增加了4000多例，其次是華盛頓州增加了1700例，加州增加了1500例。
 
-GM15
+本月初的時候，紐約州州長安德魯.庫奧默(Andrew Cuomo)就已經啟用了國民警衛隊到新羅徹勒，紐約市的郊區，一個中共冠狀病毒集中爆發點進行支援。庫奧默還敦促聯邦政府靈活調動軍事力量應對疫情。
+
+根據約翰霍普金斯大學的數據，全球感染病例已超過30萬，死亡超過13000。
+
+評論：中共國的感染和死亡數字嚴重造假，據郭文貴先生僅中國國內成百萬人感染，死亡更是達50萬甚至更多。
+
+[新聞鏈接](https://www.cnbc.com/2020/03/22/trump-activates-national-guard-in-california-new-york-and-washington-state-to-fight-coronavirus-outbreak.html)
+
+翻譯報導：人間四月
 
 0
