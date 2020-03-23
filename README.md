@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/275798](https://www.guo.media/posts/275798) `2020-03-23T00:55:26`
 ##
 
+**milesguo** 每一个极端分子都是全人类的敌人<br>https://gnews.org/zh-hans/148878/
+
+[https://www.guo.media/posts/275797](https://www.guo.media/posts/275797) `2020-03-23T03:10:21`
+##
+
 **milesguo** 郭文贵先生：对新疆人最坏的人是维奸<br>https://gnews.org/zh-hans/148789/
 
 [https://www.guo.media/posts/275796](https://www.guo.media/posts/275796) `2020-03-23T00:55:28`
