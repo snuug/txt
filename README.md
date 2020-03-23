@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Special Ep 64, 65- War Room: Pandemic, CCP Coronavirus<br>https://gnews.org/149852/
+
+[https://www.guo.media/posts/275901](https://www.guo.media/posts/275901) `2020-03-23T23:25:13`
+##
+
 **milesguo** 3月23日：距离美国和西方世界把武汉发生的．共产党投放的生物武器的病毒……定义为C C P病毒🦠还有一步之遥……亲爱的兄弟姐妹们．这是不可能完成的任务，但我们必须完成，😇😇😇希望所有的战友们．兄弟姐妹们，全力以赴．到所有的美国政府官员的推特下面．和所有社交媒体上，去呼吁．为所有的黄皮肤人……和所有的黄皮肤人·的后人孩子的生命与安全呼吁纳喊……这是大菩萨道．大善之行……重于一切……拜托了亲爱的战友们……🙏🙏🙏🙏🙏🙏🙏🙏🙏一切都已经开始！
 
 [https://www.guo.media/posts/275897](https://www.guo.media/posts/275897) `2020-03-23T21:25:14`
