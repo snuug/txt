@@ -1,105 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒爆發和掩蓋的時間軸
-`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
+## 反共不能反華！中國人本質是勤勞，善良，無私，勇敢的！
+`2020-03-22 17:57 GM30` [轉載自GNews](https://gnews.org/zh-hant/148252/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
+這兩天看Inty這個披著羊皮（反共）的狼（反華反人類）陰謀的暴露，特別是聽了郭先生對他批評，和許多戰友草根，卡麗熙，劉先生，DT等對這個事件進行揭漏，使我猛然警醒，我也轉過他的一些推特，回頭看確實是名義上反共，實際上在引導宣揚仇恨。
 
-*作者: Bethany Allen-Ebrahimian*
+我想我之所以能夠被他帶了風向，主要還是我自己內心有一種對於中國人的厭惡，這種厭惡來自於多年黨媒的宣傳，我認為是一種餘毒在外在行為上的表現，共產黨多年認了個馬克思這個外國人當爹之後，洋大人就從來高人一等，連別我們還窮的非洲人來了，我們也要把老婆女兒送上去伺候著。為使我們心甘情願這麼做，認命自己是下等人，就大肆宣傳國內人在海外拉屎撒尿的視頻。讓你覺得自己素質低，本質就是壞，就是需要管教，世界上排華也是應該的。慢慢的就討厭自己的同胞了，失去了自信，崇洋媚外也就開始了。
 
-*新聞來源: axios.com*
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22002619/image0-207.jpg)
 
-*翻譯 / 簡評：海闊天空*
+**勤勞** —–我記得小時候我們村子，每個人都是天不亮就是種地，日出而作，日落而息，大人也是經常教育我們，勤勞致富，勤能補拙，上學時候是，書山有路勤為徑，天道酬勤什麼的，慢慢的發現好像不是那麼回事，村里那些不務正業的人拐賣人口的，投機倒把的，有關係的卻越來越富，也想跟著學，可是卻掉進了傳銷，詐騙，P2P的陷阱，老老實實打工十幾年掙的錢還不夠治療職業病，更難以養育下一代。像我自己打工將近二十年，沒有請過一天假，加班的機會總是用到極致，最後什麼也沒有落下。也許只有頭頂稀薄的頭髮和幾十年的房貸會永遠陪著我吧。當要發誓要做過江的猛龍，衣錦還鄉成為人上人的夢想就像一個笑話。
 
-**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
+**善良** —-記得98年我剛出來的時候，碰見一個朋友說生病了，我趕緊把僅有的生活費的存摺和密碼給他，說你用吧，結果就是三四年都聯繫不上了，後來在一個群裡面我說了這個事情，他才把錢給我。連句感謝都沒有，還說我敗壞的他的名聲。賣保健品的，弄一瓶水就能賣出天價。就像路德說的腦白金到現場發廣告可以讓這個企業成為名牌。隨著一次一次的上當。慢慢的大家發現騙子搖身一變成了人大代表，於是就誰也不相信了，人情越來越冷漠。在我幾個月出國之前的一天帶孩子在北京的一個路邊玩，一個瘦瘦情侶，從衣服看很容易看出來在附近工地工作的人，聽口音可能是南方一帶，然後過來問路，說附近哪裡能買到衣服，我帶著警惕的給他指了路，沒想到他從剛從超市出來的購物袋中，拿出一個蘋果給我孩子，推脫再三，因為蘋果並不便宜，孩子又想吃，我就接過來了。我說送他們去吧，他說不用。這事情讓我非常的意外。所以我相信我們本質上是善良的，只是環境和這個政治體制在隨時懲罰我們善良的行為，沒有百萬身價誰敢去扶摔倒在地的老人呢。慢慢的所有人都把自己罩在厚厚的殼子裡面。
 
+**無私** —-我覺得我們這一代很少為自己活過，小時候為了讓父母，老師誇獎，做個乖孩子，努力學習，按照父母的要求活著，很少有人去做逆子，學渣，不敢表達自己真正的想法，慢慢的也就沒有自己的想法了，一直隨波逐流，直到戀愛還是遵從門當戶對，聽從父母安排，在大學碰見喜歡的人最後也大多迫於現實走散了。即使有努力為了自己拼一把也被烏煙瘴氣的社會現實玷污了。空有一腔熱血，努力遠走他國碰見一堆親民賊，以為可以痛痛快快和這個人吃人的共產製度來個決斷把。沒想到被大外宣忽悠了，身上所有的錢被騙光之後，落的人間消失，或者到那個餐館洗盤子下場。想想還是自私一點好，不至於被騙的太徹底。
 
+**勇敢** —–一下子我就想起了，張扣扣，楊改蘭等被逼上絕路的所迸發的勇氣，以及最近香港年輕人持守空拳和全是武裝的警察在街頭的對峙。他們就在我們身邊，已經冒著生命危險爆料的戰友，路德，SARA，走上台前挺郭的人。更不要提郭先生拿出那麼多錢，冒著親戚朋友家人被害的危險第一個喊出滅共的決心。
 
-## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
+反共不能反華，我們自己能做的太微不足道，不要被仇恨蒙蔽了眼睛，更不能變成討厭中國人的轉貼行為，從女兒出國幾個月的表現看，能夠把把學校發個他的兩個巧克力留一個給弟弟了，能把討厭學習的英語慢慢的有些樂趣了。我也敢給的陌生人一些幫助了。我相信民主法制的新中國之後，華夏民族一定能夠迸發無限的活力的。就像郭先生的盤古大廈，中華文化作為魂魄設計，西方文化作為實用設計。勤勞，善良，無私，勇敢的中國人不會就此沒落，幸運的星光照耀著我們這個古老的民族，趕走共產黨這個惡魔之後，我們一定能創造輝煌。
 
-Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
-
-為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
-
-我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
-
-**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
-
-**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
-
-**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
-
-**12月30日:**
-
-- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
-- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
-- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
-
-
-**12月31日:**
-
-- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
-- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
-
-[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
-**1月1日:**
-
-- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
-- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
-
-
-**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
-
-**1月7日:**習近平回應了冠狀病毒的相關事項。
-
-**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
-
-**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
-
-**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
-
-**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
-
-**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
-
-**1月18日:**
-
-- 武漢市衛生健康委員會公佈了4例新病例。
-- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
-
-
-**1月19日:**北京派流行病學家到武漢。
-
-**1月20日:**
-
-- **韓國宣佈了首例病例。**
-- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
-
-
-**1月21日:**
-
-- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
-- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
-- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
-
-
-**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
-
-**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
-
-**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
-
-**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
-
-引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
-
-編者注:這篇報導將隨著更多資訊的報導而更新。
-
-[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
-
-*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
-
-**編輯：【喜馬拉雅戰鷹團】**
+（文章內容僅代表作者觀點）
 
 0
