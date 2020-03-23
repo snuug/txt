@@ -11,9 +11,19 @@
 
 
 
+**milesguo** 复工之后又复阳，可怜百姓再遭殃！<br>https://gnews.org/zh-hans/148406/
+
+[https://www.guo.media/posts/275801](https://www.guo.media/posts/275801) `2020-03-23T01:10:41`
+##
+
 **milesguo** 马来西亚封城的缘由<br>https://gnews.org/zh-hans/148281/
 
 [https://www.guo.media/posts/275800](https://www.guo.media/posts/275800) `2020-03-23T00:55:24`
+##
+
+**milesguo** 反共不能反华！中国人本质是勤劳，善良，无私，勇敢的！<br>https://gnews.org/zh-hans/148234/
+
+[https://www.guo.media/posts/275799](https://www.guo.media/posts/275799) `2020-03-23T01:10:44`
 ##
 
 **milesguo** 每一个极端分子都是全人类的敌人<br>https://gnews.org/zh-hans/148878/
@@ -24,6 +34,11 @@
 **milesguo** 郭文贵先生：对新疆人最坏的人是维奸<br>https://gnews.org/zh-hans/148789/
 
 [https://www.guo.media/posts/275796](https://www.guo.media/posts/275796) `2020-03-23T00:55:28`
+##
+
+**milesguo** “武汉病毒”是中共CCP制造!<br>https://gnews.org/zh-hans/148777/
+
+[https://www.guo.media/posts/275795](https://www.guo.media/posts/275795) `2020-03-23T01:10:46`
 ##
 
 **milesguo** 川普总统：中国政府的保密导致美国失去了3到4个月的时间来准备应对措施<br>https://gnews.org/zh-hans/148780/
