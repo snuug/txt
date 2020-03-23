@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 疫情期间中共民生、医疗没有保障的现状<br>https://gnews.org/zh-hans/149037/
+
+[https://www.guo.media/posts/275810](https://www.guo.media/posts/275810) `2020-03-23T03:55:25`
+##
+
+**milesguo** 文字版2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起<br>https://gnews.org/zh-hans/148983/
+
+[https://www.guo.media/posts/275808](https://www.guo.media/posts/275808) `2020-03-23T03:55:27`
+##
+
 **milesguo** 复工之后又复阳，可怜百姓再遭殃！<br>https://gnews.org/zh-hans/148406/
 
 [https://www.guo.media/posts/275801](https://www.guo.media/posts/275801) `2020-03-23T01:10:41`
