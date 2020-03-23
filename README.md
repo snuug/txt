@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 回观历史疫疾对人类的影响<br>https://gnews.org/zh-hans/148980/
+
+[https://www.guo.media/posts/275884](https://www.guo.media/posts/275884) `2020-03-23T18:41:10`
+##
+
 **milesguo** 谈谈我眼中的新疆:兼听则明，有别于部分“墙外”的声音<br>https://gnews.org/zh-hans/149535/
 
 [https://www.guo.media/posts/275878](https://www.guo.media/posts/275878) `2020-03-23T17:40:50`
