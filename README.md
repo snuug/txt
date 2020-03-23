@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 2020年3月22日武汉冠状病毒大流行第58集<br>https://gnews.org/zh-hans/149199/
+
+[https://www.guo.media/posts/275814](https://www.guo.media/posts/275814) `2020-03-23T04:10:14`
+##
+
+**milesguo** 疾呼：拉响全球危急警报—比新冠病毒可怕更隐匿的“CCP病毒”<br>https://gnews.org/zh-hans/149076/
+
+[https://www.guo.media/posts/275812](https://www.guo.media/posts/275812) `2020-03-23T04:10:15`
+##
+
 **milesguo** 疫情期间中共民生、医疗没有保障的现状<br>https://gnews.org/zh-hans/149037/
 
 [https://www.guo.media/posts/275810](https://www.guo.media/posts/275810) `2020-03-23T03:55:25`
