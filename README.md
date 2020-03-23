@@ -11,6 +11,36 @@
 
 
 
+**milesguo** Miles Guo: war on CCP starts today!<br>https://gnews.org/149747/
+
+[https://www.guo.media/posts/275896](https://www.guo.media/posts/275896) `2020-03-23T19:55:48`
+##
+
+**milesguo** Hong Kong bans foreign visitors; blames imported coronavirus cases<br>https://gnews.org/149721/
+
+[https://www.guo.media/posts/275895](https://www.guo.media/posts/275895) `2020-03-23T19:55:50`
+##
+
+**milesguo** Hong Kong bans foreign visitors; blames imported coronavirus cases<br>Hong Kong bans foreign visitors; blames imported coronavirus cases
+
+[https://www.guo.media/posts/275894](https://www.guo.media/posts/275894) `2020-03-23T19:55:51`
+##
+
+**milesguo** President Trump Rebukes Washington Post<br>https://gnews.org/149432/
+
+[https://www.guo.media/posts/275893](https://www.guo.media/posts/275893) `2020-03-23T19:56:43`
+##
+
+**milesguo** MilesGuo: Xenophobia against Chinese will hurt all Asians<br>https://gnews.org/149619/
+
+[https://www.guo.media/posts/275892](https://www.guo.media/posts/275892) `2020-03-23T19:56:44`
+##
+
+**milesguo** First Lady Melania Trump on CCP Virus<br>https://gnews.org/149524/
+
+[https://www.guo.media/posts/275891](https://www.guo.media/posts/275891) `2020-03-23T19:56:45`
+##
+
 **milesguo** HK Police Arrest District Councilor Lam Kin-Cheung and his assistant<br>https://gnews.org/148786/
 
 [https://www.guo.media/posts/275890](https://www.guo.media/posts/275890) `2020-03-23T19:41:12`
