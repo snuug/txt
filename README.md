@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/275812](https://www.guo.media/posts/275812) `2020-03-23T04:10:15`
 ##
 
+**milesguo** 班农先生首次正式称呼CCP-Virus<br>https://gnews.org/zh-hans/149079/
+
+[https://www.guo.media/posts/275811](https://www.guo.media/posts/275811) `2020-03-23T07:10:22`
+##
+
 **milesguo** 疫情期间中共民生、医疗没有保障的现状<br>https://gnews.org/zh-hans/149037/
 
 [https://www.guo.media/posts/275810](https://www.guo.media/posts/275810) `2020-03-23T03:55:25`
