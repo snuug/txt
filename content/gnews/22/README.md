@@ -1,26 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《中共肺炎》西班牙中共肺炎疫情失控 醫生淚訴拔長輩呼吸器影片瘋傳
-`2020-03-23 02:28 GM15` [轉載自GNews](https://gnews.org/zh-hant/149340/)
+## 安倍首次表態：如奧運會無法圓滿舉辦，可接受延期
+`2020-03-23 02:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149367/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23022629/Noname-19.jpg)
-> [#Spain](https://twitter.com/hashtag/Spain?src=hash&amp;ref_src=twsrc%5Etfw) "Doctors in [#España](https://twitter.com/hashtag/Espa%C3%B1a?src=hash&amp;ref_src=twsrc%5Etfw)🇪🇸 with tears in their eyes tell how people over 65 must have their respirators removed to give it to the younger people suffering . Seniors are sedated so they don't suffer. " [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVirusUpdates](https://twitter.com/hashtag/CoronaVirusUpdates?src=hash&amp;ref_src=twsrc%5Etfw) 
->  [pic.twitter.com/rClbMGD353](https://t.co/rClbMGD353)
-> — Michael Welling (@WellingMichael) [March 21, 2020](https://twitter.com/WellingMichael/status/1241491706677284870?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23022105/FE860E36-8996-4D83-A565-89451A0B26E4.jpeg)
+23日，安倍總理表示：因新冠病毒疫情擴大國際奧委會決定將東京奧運會延期的話，可以接受。這是安倍總理第一次表態接受延期。安倍同時稱：停辦奧運會不在選項中。
 
-中共肺炎疫情全球爆發，西班牙近日確診人數暴增近3萬人，超越德國成歐洲第二大疫區。確診人數短期內迅速增長使西班牙的醫療資源嚴重匱乏，公衛系統面臨即將崩潰的絕境。
+國際奧委會在22日召開臨時理事會，包括延期舉辦就東京奧運會進行了探討。會議決定在接下來的四周內給出最終結論。安倍總理在23日上午的參議員預算委員會上，針對國際奧委會的決定表示：這個決定符合我所說的奧運會必須圓滿舉辦的方針。而且，假如無法圓滿舉辦，以運動員優先為前提延期也是無奈之舉。
 
-同時，醫生們也蒙受肉體和精神上的龐大壓力，多位醫生表示有衛生組織私下建議醫生須優先救治「較有存活價值」的病患。
+安倍在22日晚，通過東京奧運會籌委會會長的森喜朗原總理向國際奧委會主席巴赫傳達了：我本人希望早些做出決定，但是國際奧委會的判斷也要考慮東京都的立場。
 
-Twitter上昨日瘋傳一段醫生淚訴自己被迫從長者臉上摘下呼吸器，以救治其他呼吸困難的年輕患者，因他們「更有活著的價值」。
+菅義偉官房長官在23日的記者招待會上表示：最終決定權在國際奧委會。日本籌委會和東京都等相關方面將緊密、積極配合做出適宜的應對。
 
-一位西班牙醫生強忍淚水，對著鏡頭訴說，因為醫療資源不足，自己必須摘下年長者的呼吸器，以救治其他呼吸困難的年輕患者，而他也只能為被摘下呼吸器的長者注射鎮靜劑，減低他們的痛苦。
+橋本聖子奧運會擔當大臣對記者團表示：希望國際奧委會早日做出適宜的判斷。關於聖火傳遞，橋本稱：將於26日起在福島縣按原計劃實施。很快應該會進行磋商（決定下一步）。
 
-底下不少醫護人員留言表示，65歲以上的民眾通常是被放棄救治的對象，必須為生命的價值排順序，這件事讓他們覺得自己像個「死神」，看著生命在自己面前逐漸消逝，但卻無能為力，甚至不能救他，因為要把珍貴的資源留給「更有價值的人」；也有人抨擊仍未正視疫情嚴重性的年輕人，對他們怒吼「請開始長大，考慮其他人」，使不少網友鼻酸。
+背景：
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3109330)
+國際奧委會在22日召開的臨時理事會上，首次表示東京奧運會可能延期。但不會取消。此前，巴赫主席始終堅持在7月24日如期舉辦。
 
-GM15
+[原文鏈接](https://www.jiji.com/jc/article?k=2020032300249&amp;g=pol)
+
+翻譯報導：村長
 
 0
