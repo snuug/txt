@@ -1,98 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 死亡名單的秘密
-`2020-03-22 21:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148981/)
+## 中共冠狀病毒在英國大爆發，24小時內新增死亡創新高，最年輕死者僅18歲
+`2020-03-23 01:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149301/)
 
-[https://spark.adobe.com/page/l91pEwnGjdSh2/](https://spark.adobe.com/page/l91pEwnGjdSh2/)
+[!\[\](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23005837/71C2CC79-3D1C-46AD-8067-6E52A4DAD557.png)](https://www.thesun.co.uk/news/11176662/coronavirus-live-uk-update-death-toll-mcdonalds/) [圖片來源](https://www.thesun.co.uk/news/11176662/coronavirus-live-uk-update-death-toll-mcdonalds/) 
+一位18歲的少年剛剛因中共新冠病毒去世，他成為了英國最年輕的中共冠狀病毒（CCP Virus）受害者。他是過去24小時內新增的48名因CCP Virus死亡的患者之一。目前英國因CCP Virus而死亡的總數已達281人。而感染人數更是猛增665人，至5,683人。
 
-##  **大衛用數據分析中共對死亡人數造假**
+英國首相鮑里斯·約翰遜（Boris Johnson）警告說，很多在中共冠狀病毒爆發期間未遵循社會疏離建議的人，正在“使其他人的生命處於危險之中”，他暗示，如果公眾不能在公園等公共場所，相互之間保持6英尺（約2米）的距離，政府可能會禁止所有英國人離開家門。
 
-*作者： Patrick*
+來自考文垂的一名18歲青年死於中共病毒，標誌著他成為了英國最年輕的、因感染中共冠狀病毒而死亡的患者。此外，昨天還有47名新增死者，將英國整體的新冠死亡人數推高至281人。
 
+目前英國的冠狀病毒病例總數已到達5683例，英國首相今天警告英國公眾，他們將有24小時時間來認真採取社會疏離措施。否則，即便是在數千人繼續反抗之後，他也將實施意大利式的全面封鎖 -以此來應對中共冠狀病毒。
 
+首相在他的每日新聞發布會上警告說，“毫無疑問”，如果人們繼續他們的愚蠢行為，他將會立即採取行動，關閉露天場所、並限制房屋外的一切活動。
 
-[點擊觀看大衛2020年3月19日直播，用數據分析告訴你死亡名單背後的真相](https://www.youtube.com/watch?v=lV7CBGkRxtU)
+早些時候，首相在給國家的一封信中警告說，英國疫情的爆發僅僅比意大利延後“兩到三週”。而意大利的死亡人數目前已上升至4,000人以上，我們必須意識到，此次疫情是世界上最嚴重的一次。
 
-這個名單反映出來的并不簡單的是死亡人的職業、年齡，讓我們來用數學模型分析中共宣稱的感染率、死亡率以及目前中共宣稱的0增長之間的内在關係。讓我們用科學的分析來打破中共的謊言。
+他說，除非英國能夠通過社會隔離來控制病毒的傳播，否則我們將與意大利的醫療體系一樣，NHS（National Health Service 英國國家衛生體系）將“不堪重負”。
 
-文貴先生得到的死亡明細裏面的死亡人數為254人，我們僅以這個數字作爲參考坐標，反向推導真實的感染人數以及覆蓋範圍。職業：公檢法、公安、輔警、公職人員、事業單位、醫務人員。
+約翰遜在今天下午在唐寧街向公眾發出了告誡：“即使您認為自己身體素質非常好，也可能會感染很多人。儘管英國政府對冠狀病毒的流行提出了社會疏離的建議，但英國各地的英國人還是蜂擁而至，與親人一起在全國各地的海灘和公園散步，場面令人震驚。”
 
-### ***1. 郭文貴先生提供的名單截圖:***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)
-表格内列舉的死亡人數為254 名，團體/地點不明包含姓名，性別，省縣市，職業，黨籍，死亡年紀，日期，原因
+約翰遜敦促家人之間從物理上進行隔離，通過Skype等其他遠程通信來慶祝母親節，但這一天病毒卻爆發了。首相今天下午在唐寧街向公眾發出了嚴厲的警告，他說，雖然他了解開放空間對身心有益，他仍將採取嚴厲措施保護公眾健康。
 
-### ***2. 戰友們在excel表格中重新整理的名單截圖 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)
-為便於對表格的數據進行分析，圖片上的名單輸入Excel表格 / Converted to Excel for analysis
+英國國家臨床主任傑森·利奇（Jason Leitch）與第一部長尼古拉·斯特金（Nicola Sturgeon）表示，在CCP 病毒爆發期間，保持營業的酒吧正在危及公眾生命。
 
-### **3. 性別分析**:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)
-對表格中性別分析表明死亡者以男性為主
+里奇教授說：“公眾現在真的還沒有意識到這一點。“為了保護個人和社會的弱勢群體，我們需要做出非常嚴厲的社會疏離措施。 ”
 
-### **4. 年齡分析**:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)
-死亡者年歲從18嵗到77嵗，平均死亡者年齡為49嵗。分析表明病毒不只攻擊老年人，年輕人也有相當的死亡率。
+這位醫學專家繼續說：“英格蘭的首席科學顧問認為，如果整個英國如果只有20,000人死亡，那可能是個比較幸運的結果。 ‘在蘇格蘭，我認為大約是2,000人，但最壞的情況遠甚於此。人們因此需要非常認真地接受社會疏離的建議。” 他補充說，聽從政府的建議，除非有必要，否則不要外出。遠離他人可能是 “成千上萬人死亡，或只有約2,000的死亡之間的差”。認真對待這個建議至關重要。 ”
 
-最有力的佐證證明該病毒不只對老年人造成危害的例證就是李文亮醫生。李醫生屬於年富力强的中青年人，雖然他是醫生，工作在最前綫，和李醫生一樣被感染的年輕醫生死亡的人數就太多了。從上圖可以看到這個表格上死亡者年齡的數量最多的是40-60嵗區間的人群。所以年齡絕對不是中共宣傳的那樣只對老年人造成傷害。
+儘管最近幾天許多政治家，醫學和科學專家不斷建議，但全英國各地的情況仍然令人擔憂。
 
-誰最早出來和中國老百姓以及歐洲說老人、慢性病患者最容易受感染？是中共的衛生防疫組、武漢官媒。習打電話給Trump說天氣轉暖病毒就會消失。中共每天都在撒謊、輸送假信息在誤導西方，因此中共對全球病毒的大爆發負有重大責任。
+在多塞特郡，許多人漫步在沙灘上，而其他人則絲毫沒有在意，今天下午繼續在海裡游泳。
 
-### ***5. 死亡原因分析***:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)
-表格中列出的死亡原因：77.4%過勞死！，9.7%車禍，9.3%肺炎。 一個月的統計竟然有四分之三的過勞死亡率是不可想像的。這裏不排除這份表格中填寫的死亡原因有造假成份，以掩蓋由於疫情導致的死亡率。
+蘇格蘭政府今天批評遊客的“不負責任的行為”，因為許多遊客躲進帳篷車，試圖躲避冠狀病毒。
 
-### ***6. 省份分佈分析 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)
-各個人數分佈地點：不能確認表格內寫出來的省市是指死亡者的籍貫還是死亡地點，但是標註湖北的人數最多。
+在倫敦，人們仍然四處走動，市長薩迪克·汗（Sadiq Khan）批評說倫敦人應該待在家裡，保護大家的生命。
 
-### ***7. 死亡時間段分析 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)
-一月底到三月初之閒每日死亡人數。這個時間段正好符合疫情爆發的時間。
+坎布里亞郡警察說，儘管政府為避免不必要的旅行提出了建議，但英國的湖區和其他旅遊熱點遇到了遊客的“湧入”。
 
-### ***8. 政黨屬性分析****:*
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=2560)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=1024)
-超過三分之二為黨員，這裏明顯看出來這些都是被中共利用的基層幹部，這裏的黨員可沒有那些書記、沒有中南坑裏的黨員。這些基層幹部也都是老百姓，被盜國賊利用的工具。
+目前英國的狀況讓唐寧街感受到了巨大的壓力。英國可能會與其他國家一樣，採取進一步嚴厲的隔離措施，甚至是極端的封鎖。
 
-### ***9. 職務分析:***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)
-職業組成：農民2%，志願者 8.3%，警察17.3%，醫生15.7%，公務員 22.8%，輔警7.9%，村幹部4.7%，工人2.8%，村書記0.8%，城鎮官員14.6%。
+[原文鏈接](https://www.dailymail.co.uk/news/article-8140313/UK-coronavirus-death-toll-rises-48-ONE-day-Boris-Johnson-threatens-shut-UK-parks.html%20/h)
 
-### **結論 1 – 估算總感染人數：**
-
-三個假設參數：
-
-1. 假設從感染到死亡的天數為二十天 （我們按照李文亮醫生從感染到去世的時間為坐標）
-2. 死亡率為2.5%。（中共報告的死亡率為2.1%, 有的地區報道到4%，我們姑且這些數據是真實的，在這裏取一個中間值。）
-3. 在這二十天中，被感染人數每天增加20% （根據死亡者名單上給出的死亡日期計算出每日增加的死亡人數）
-
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)
-假設二十天後，康復的病人不再有傳染性。以這個死亡人數的數據來看，前期感染數量快速增加，峰值達到七萬人。使用不同的參數，峰值可能達到數萬到數十萬的大範圍。
-
-我們看一下可汗學院提供的簡單模型：
-
-
-
-郭文貴先生在直播時說過，全國死亡人數保守的數目在50萬人以上。
-
-### **結論 2 – 目前全球及中國數字比較**: 
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024) 中共提供的感染者上升曲綫為平穩式小步上升，與國際其它國家提供的突然急劇上升的曲綫形成鮮明對比。（最後更新：2020年3月22日） 
-
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)
-簡單數學模型的前期增長曲線和全球（除中國）感染曲線相似，中國大陸的曲線極不正常，在這麼大的人口之下，即使考慮其嚴格封城隔離措施，也極不可能這麼快達到零成長。
-
-[請參考Hopkins大學全球疫情實時更新數據圖](https://coronavirus.jhu.edu/map.html)
-
-### **亡者想告訴我們什麼？**
-
-#### 從某地約六週254 名官方死亡名單可以看出：
-
-- 不正常的死亡原因及增長曲線顯示中共隱瞞事實的真實性
-- 死亡率與年紀關係不大
-- 此名單大部分是公務人員，黨員，一般民眾死亡人數應遠遠超過這個數字
-- 利用簡單數學模擬倒推，與此254人相關連的感染數可能以數萬甚至數十萬計
-
-
-**編輯：【喜馬拉雅戰鷹團】**
+翻譯報導： Charles7
 
 0
