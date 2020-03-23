@@ -41,6 +41,11 @@
 [https://www.guo.media/posts/275808](https://www.guo.media/posts/275808) `2020-03-23T03:55:27`
 ##
 
+**milesguo** 3月22號：尊敬的戰友你好，明天23號上午9:30左右，http://livestream.com/accounts/27235681．文貴直播亂聊……自從文貴直播了烤火爐之後的這一期節目後！中共範圍內有七次大火，連我心愛的五台山都著火了……五台山曾經讓我付出很多的時間和心血，看著滾滾的濃煙真的是很心痛。五台山上的道家朋友給我發信息，不要在直播有火的事情了，不要在火爐邊直播了……這當然是在與我開玩笑😝了……其實這都是中共製造的業障，天怒人怨，一切都已经开始！
+
+[https://www.guo.media/posts/275807](https://www.guo.media/posts/275807) `2020-03-23T05:10:25`
+##
+
 **milesguo** 复工之后又复阳，可怜百姓再遭殃！<br>https://gnews.org/zh-hans/148406/
 
 [https://www.guo.media/posts/275801](https://www.guo.media/posts/275801) `2020-03-23T01:10:41`
