@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 谈谈我眼中的新疆:兼听则明，有别于部分“墙外”的声音<br>https://gnews.org/zh-hans/149535/
+
+[https://www.guo.media/posts/275878](https://www.guo.media/posts/275878) `2020-03-23T17:40:50`
+##
+
 **milesguo** 2020年3月14日灭共者说中文字幕合集（上）<br>https://gnews.org/zh-hans/149492/
 
 [https://www.guo.media/posts/275874](https://www.guo.media/posts/275874) `2020-03-23T16:55:49`
