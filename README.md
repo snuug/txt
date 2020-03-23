@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 日本医生：轻症患者会迅速恶化<br>https://gnews.org/zh-hans/149632/
+
+[https://www.guo.media/posts/275904](https://www.guo.media/posts/275904) `2020-03-23T23:55:51`
+##
+
 **milesguo** 真的是蒙吗？郭文贵先生在2019年10月12日直播跟战友说“美国产业链撤出时间是2020年4月份”<br>https://gnews.org/zh-hans/149872/
 
 [https://www.guo.media/posts/275902](https://www.guo.media/posts/275902) `2020-03-23T23:40:21`
