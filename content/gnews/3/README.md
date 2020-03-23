@@ -1,47 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疾呼：拉響全球危急警報—比新冠病毒可怕更隱匿的“CCP病毒”
-`2020-03-22 20:37 GM06` [轉載自GNews](https://gnews.org/zh-hant/149119/)
+## 死亡名單的秘密
+`2020-03-22 21:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148981/)
 
-作者： 陽之戰
+[https://spark.adobe.com/page/l91pEwnGjdSh2/](https://spark.adobe.com/page/l91pEwnGjdSh2/)
 
-3月21日中共恨之入骨的郭文貴在直播中說“中共花在大外宣上的錢有幾千億”其實這點錢對財大氣粗的中共來說算不了什麼，但非常可怕的是世界上很少很少有人知道他們一直生活在中共的彌天大謊之中，並且正在對世界造成的傷害和後果是無法挽回和彌補的。
+##  **大衛用數據分析中共對死亡人數造假**
 
-早在2019年12月份就有新冠病毒的信息在中國網路上小範圍內傳播，隨即包括李文亮在內的8名醫生被逮捕羈押訓誡，後來又被包括央視在內的許多國內的官方和非官方媒體進行通報批評為造謠者，實際上這個國家所有的媒體就等同於“宣傳”，都是他們的輿論管控和宣傳的工具，由中宣部管理，在這種非傳播真實信息為目的以宣傳為目的的欺騙之下，造成這次疫情初期在世界各國沒有得到足夠的重視，近3個月後疫情勢如破竹在世界各地傳播，人們才明白新冠肺炎的可怕，然後宣傳部又開足馬力的在宣傳“社會主義大國治疫的優越性”說中國零新增病例，所有的新增病例都是國外流入的，可笑的是世界人民又上當了，在世界對這次病毒的來源提出質疑的時候，他們撒謊說這次病毒來自於美國，直到到此時，更為可怕，更加可惡的是，世界人民仍沒看出他們這麼說的目的。
+*作者： Patrick*
 
-如果你關注新聞媒體，你會發現，許多世界媒體國際媒體在報導這樣一個概念“中美媒體輿論大戰” 看下圖：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202312/1-1-46.jpg)
-“疫情幾個月前來自於什麼地方？”這不是什麼媒體戰，這是最起碼的真相與混淆視聽的大戰。
 
-事實上，許多國際媒體都以被CCP操控控制，讀下去你將更加明白這點，世界人民又上當了，又一次遭到了欺騙，一輪又一輪的針對世界欺騙都正在進行中，但中國真實的疫情信息在最嚴格的管控之下，在層層的越來越加強的管控之下，還是有很少很少的信息傳到了國際的社交媒體中。世界媒體，國際媒體，根本沒告訴人們CCP 的本質，在CCP 統治下強力扭曲下的中國的真相，世界上絕大多數的人遠遠不知CCP這個組織對世界的滲透，他們伸出的觸手有多麼長？遠遠不知CCP 的形狀長什麼是樣子？ CCP的本質是什麼？他們不僅對國際媒體進行控制，還有巨量的五毛水軍偽裝的網絡大V 混淆視聽，操控輿論，下面我將拿出新聞截圖進行評論揭露他們對國際媒體的控制。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202252/2-4-27.jpg)
-紐約時報的這篇報導說“疫情信息被壓制,中國公民記者反擊”，並舉了三個例子，實際在中共極權的控制之下中國是不可能有什麼公民記者的，看下圖：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202507/3-57.jpg)
-中國是沒有《新聞法》的，在這種情況下《中國新聞工作者職業道德準則》明確指出，中國新聞事業是CCP 重要組成部分，第一條就是忠於黨，然後提出了宣傳正能量，以及各種傳播手法，寫作方法，以及具有輿論引導和輿論監督的功能，明顯可知中國新聞工作者是黨的工具，所以這篇新聞報導看似客觀實則不是真實的中國。所以這篇報導和所列舉的三個國內新聞報導的例子，只能說明是黨內的內部鬥爭，把這新聞事件引到國際上來，恐怕是為中共政權垮塌後提前埋下的伏筆，而且許多國際媒體都有關於“中國公民記者”的報導,也許你會說“這不一定代表國際新聞媒體被操作了”，那麼看看下面的截圖你就會明白。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202436/4-1-11.jpg)
-所謂陳秋實失聯白宮請願活動逾7萬人簽署，等等各種關於陳秋實的報導，實際上很多中國人發起白宮請願投票超過都10萬了，世界各媒體確沒任何信息報導，看下圖：
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202556/5-2-9.jpg)
-這些投票許多都是關於香港人訴求的請願，包括把CCP 定為恐怖主義，而且在黑客不斷攻擊的情況下，超過10萬的，但卻沒任何國際的新聞對此信息進行報導。下面我將展示更多新聞截圖揭露他們對世界謊言欺騙。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202623/6-3-8.jpg)
-滑之大稽，《鐘南山談李文亮落淚：醫生以後講真話不再受到懲罰》這是在說中共通過這件事正在發生改變？但，這是道歉嗎？ “鐘南山竟然摘下口罩與新冠肺炎重症患者交談”，這戲演砸了吧！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202723/7-2-9.png)
-把香港人“五大訴求”說成“香港人身份認同危機”
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202746/8-2-3.jpg)
+[點擊觀看大衛2020年3月19日直播，用數據分析告訴你死亡名單背後的真相](https://www.youtube.com/watch?v=lV7CBGkRxtU)
 
-把新冠肺炎病毒來源問題說成了“中美口水戰”現在更是在把新冠肺炎病毒引向“種族歧視”在一些操控的輿論配合之下，更是加劇了海外排華趨勢的抬頭。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22202920/9-4.jpg)
-這一篇又一篇的新聞報導，告訴世界的都是假象，一次又一次的在欺騙著世界人民，讓邪惡的勢利可以籠罩世界，他們愚弄著世界人們，使人們變得愚昧無知，這些僅僅是他們對世界媒體的滲透，他們的邪惡正在大踏步前行，正如郭文貴在2017年10月5日在華盛頓發布會說“世界的黑暗即將來臨，來自中國盜國賊的黑暗將瀰漫整個世界，和整個西方文明，我們每個人都將遭遇”。世界的災難正在醞釀，在世界危急時刻我們還在被他們蒙在蠱裡的話，帶來的只有更巨大的邪惡和更大的災難。
+這個名單反映出來的并不簡單的是死亡人的職業、年齡，讓我們來用數學模型分析中共宣稱的感染率、死亡率以及目前中共宣稱的0增長之間的内在關係。讓我們用科學的分析來打破中共的謊言。
 
-*文章補充延伸鏈接：* [*〘圖揭真相〙圖扇國際媒體耳光* *,* *他們有關中國報導都是假象* *—CCP* *的* *“* *非人主義* *”*](https://gnews.org/zh-hans/145530/)
+文貴先生得到的死亡明細裏面的死亡人數為254人，我們僅以這個數字作爲參考坐標，反向推導真實的感染人數以及覆蓋範圍。職業：公檢法、公安、輔警、公職人員、事業單位、醫務人員。
 
-*：* [*在中共統治下給* *14* *億人民帶來的最大損失究竟是什麼？*](https://gnews.org/zh-hans/143251/)
+### ***1. 郭文貴先生提供的名單截圖:***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)
+表格内列舉的死亡人數為254 名，團體/地點不明包含姓名，性別，省縣市，職業，黨籍，死亡年紀，日期，原因
 
-*：* [*〘圖揭大國真相〙從被逼迫的明星們看中共對* *“* *民眾排外意識* *”* *的植入手法*](https://gnews.org/zh-hans/141503/)
+### ***2. 戰友們在excel表格中重新整理的名單截圖 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)
+為便於對表格的數據進行分析，圖片上的名單輸入Excel表格 / Converted to Excel for analysis
 
-*：* [*推特不應該是中共宣傳洗白的平台:美議員呼籲推特公司禁止中共使用*](https://gnews.org/zh-hans/148545/)
+### **3. 性別分析**:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)
+對表格中性別分析表明死亡者以男性為主
 
-（文章內容僅代表作者觀點）
+### **4. 年齡分析**:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)
+死亡者年歲從18嵗到77嵗，平均死亡者年齡為49嵗。分析表明病毒不只攻擊老年人，年輕人也有相當的死亡率。
+
+最有力的佐證證明該病毒不只對老年人造成危害的例證就是李文亮醫生。李醫生屬於年富力强的中青年人，雖然他是醫生，工作在最前綫，和李醫生一樣被感染的年輕醫生死亡的人數就太多了。從上圖可以看到這個表格上死亡者年齡的數量最多的是40-60嵗區間的人群。所以年齡絕對不是中共宣傳的那樣只對老年人造成傷害。
+
+誰最早出來和中國老百姓以及歐洲說老人、慢性病患者最容易受感染？是中共的衛生防疫組、武漢官媒。習打電話給Trump說天氣轉暖病毒就會消失。中共每天都在撒謊、輸送假信息在誤導西方，因此中共對全球病毒的大爆發負有重大責任。
+
+### ***5. 死亡原因分析***:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)
+表格中列出的死亡原因：77.4%過勞死！，9.7%車禍，9.3%肺炎。 一個月的統計竟然有四分之三的過勞死亡率是不可想像的。這裏不排除這份表格中填寫的死亡原因有造假成份，以掩蓋由於疫情導致的死亡率。
+
+### ***6. 省份分佈分析 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)
+各個人數分佈地點：不能確認表格內寫出來的省市是指死亡者的籍貫還是死亡地點，但是標註湖北的人數最多。
+
+### ***7. 死亡時間段分析 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)
+一月底到三月初之閒每日死亡人數。這個時間段正好符合疫情爆發的時間。
+
+### ***8. 政黨屬性分析****:*
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=2560)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=1024)
+超過三分之二為黨員，這裏明顯看出來這些都是被中共利用的基層幹部，這裏的黨員可沒有那些書記、沒有中南坑裏的黨員。這些基層幹部也都是老百姓，被盜國賊利用的工具。
+
+### ***9. 職務分析:***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)
+職業組成：農民2%，志願者 8.3%，警察17.3%，醫生15.7%，公務員 22.8%，輔警7.9%，村幹部4.7%，工人2.8%，村書記0.8%，城鎮官員14.6%。
+
+### **結論 1 – 估算總感染人數：**
+
+三個假設參數：
+
+1. 假設從感染到死亡的天數為二十天 （我們按照李文亮醫生從感染到去世的時間為坐標）
+2. 死亡率為2.5%。（中共報告的死亡率為2.1%, 有的地區報道到4%，我們姑且這些數據是真實的，在這裏取一個中間值。）
+3. 在這二十天中，被感染人數每天增加20% （根據死亡者名單上給出的死亡日期計算出每日增加的死亡人數）
+
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)
+假設二十天後，康復的病人不再有傳染性。以這個死亡人數的數據來看，前期感染數量快速增加，峰值達到七萬人。使用不同的參數，峰值可能達到數萬到數十萬的大範圍。
+
+我們看一下可汗學院提供的簡單模型：
+
+
+
+郭文貴先生在直播時說過，全國死亡人數保守的數目在50萬人以上。
+
+### **結論 2 – 目前全球及中國數字比較**: 
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024) 中共提供的感染者上升曲綫為平穩式小步上升，與國際其它國家提供的突然急劇上升的曲綫形成鮮明對比。（最後更新：2020年3月22日） 
+
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)
+簡單數學模型的前期增長曲線和全球（除中國）感染曲線相似，中國大陸的曲線極不正常，在這麼大的人口之下，即使考慮其嚴格封城隔離措施，也極不可能這麼快達到零成長。
+
+[請參考Hopkins大學全球疫情實時更新數據圖](https://coronavirus.jhu.edu/map.html)
+
+### **亡者想告訴我們什麼？**
+
+#### 從某地約六週254 名官方死亡名單可以看出：
+
+- 不正常的死亡原因及增長曲線顯示中共隱瞞事實的真實性
+- 死亡率與年紀關係不大
+- 此名單大部分是公務人員，黨員，一般民眾死亡人數應遠遠超過這個數字
+- 利用簡單數學模擬倒推，與此254人相關連的感染數可能以數萬甚至數十萬計
+
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0

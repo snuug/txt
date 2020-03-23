@@ -1,105 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒爆發和掩蓋的時間軸
-`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
+## CCP病毒大流行, 誰之過？
+`2020-03-22 18:40 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148959/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
+【中英對照翻譯】 [https://spark.adobe.com/page/xrMAjyb2cizTV/](https://spark.adobe.com/page/xrMAjyb2cizTV/)
 
-*作者: Bethany Allen-Ebrahimian*
+*消息來源：thehill.com*
 
-*新聞來源: axios.com*
+*作者：專欄評論員 BRADLEY A. THAYER和LIANCHAO HAN*
 
-*翻譯 / 簡評：海闊天空*
+*翻譯 / 簡評：TCC*
 
-**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
+*簡評* **：**
 
+這篇文章是在四天前出刊的。就在這短短的四、五天中，確診人數加倍成３０萬例，且死亡人數也增加兩倍以上。在這個ＣＣＰ病毒肆虐全球、人們在生與死爭扎、在經濟停頓萎縮的陰影下苟延殘喘的時刻，我們不禁要問誰應該對此負責？
 
+在３／１２，美國佛州律師向法院提起集體訴訟，向中共政府索賠。這是基於中共政府知情未告，延誤了流行病防治的＂黃金時期＂的事實。身為世界主要經濟體的中共國故意掩蓋事實，或為了自身利益延遲通報國際其嚴重度，這種罔顧道義的作法應該要為這事負起責任的。
 
-## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
+世衛組織，一個身為聯合國負責世界衛生的重責大任的單位，對這次疫情應該為其失職公開向國際道歉。這篇文章揭露了譚德塞、埃塞俄比亞與中共之間的複雜利益關係。。譚德塞這個中共劊子手的哈巴狗，是這次ＣＣＰ病毒迅速擴大的幫兇，而其所作所為完全是由中共指使的。譚德塞應該引咎辭職，並被追究法律責任及賠償。
 
-Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
+其他幫兇，如參與延緩報導疫情真相及粉飾報導疫情嚴重度的西方各大媒體，也應為這次疫情的損失，包括給各國民衆造成的生命、精神與財務的損失，承擔責任並被提出賠償。
 
-為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
+## **中共國和世衛組織負責人應對全球CCP病毒大流行負責**
 
-我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
+評論人： BRADLEY A. THAYER和LIANCHAO HAN 
+美國東部時間 2020年3月17日02:00 PM
+[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/1cb62f01-4ade-48c6-bd76-54184183939a.jpg?asset_id=add3b57c-ff24-4e72-999b-711d7d8c7059&amp;img_etag=338d4b4b282e7c1920869f6c624de94f&amp;size=2560)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/1cb62f01-4ade-48c6-bd76-54184183939a.jpg?asset_id=add3b57c-ff24-4e72-999b-711d7d8c7059&amp;img_etag=338d4b4b282e7c1920869f6c624de94f&amp;size=1024) 譚德塞 
+世界衛生組織（WHO）上週終於宣布，來自中共國的冠狀病毒迅速在世界範圍內傳播，為大流行病。現在，全球有超過15萬例確診病例，有5700多例死亡（譯者按：３／２１：確診將近３０萬例；死亡將近１萬３千例），問題是為什麼世衛組織要花這麼長時間才能認識到許多衛生官員和政府在很早以前就已經確定了的訊息？
 
-**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
+我們認為，該組織的總幹事譚德塞（Tedros Adhanom Ghebreyesus）與中共國家主席習近平一樣，應該為不計後果地處理這一致命的大流行病負責。在1月份與習近平會面之後的譚德塞，顯然對武漢和中共國其他地區所發生的事情視而不見，並幫助中國淡化了這中共病毒疫情爆發的嚴重性、普遍性和範圍。
+[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/31d25141-2c62-431c-a6f6-bbc96955e50c.jpg?asset_id=0e20b7b4-256a-4030-b029-e9b851e2cd7f&amp;img_etag=689ad3aaeab8365c33857664cd1c9ca4&amp;size=2560)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/31d25141-2c62-431c-a6f6-bbc96955e50c.jpg?asset_id=0e20b7b4-256a-4030-b029-e9b851e2cd7f&amp;img_etag=689ad3aaeab8365c33857664cd1c9ca4&amp;size=1024)
+譚德塞從一開始就為中共辯護，儘管它對這種高度傳染性疾病的管理不善。隨著病例數和死亡人數的猛增，即使它已經達到了人與人之間的傳播，高死亡率和世界範圍傳播的標準，世界衛生組織還花了幾個月的時間才宣布ＣＣＰ武漢病毒爆發的疫情為大流行病。
 
-**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
+川普總統在1月31日發布旅行禁令，採取關鍵步驟來停止冠狀病毒入侵美國邊境時，譚德塞還表示，無需廣泛的旅行禁令和限制措施即可阻止疫情爆發，並且“可能會增加恐懼感和污名化，幾乎沒有公共衛生效益。”他警告說，干擾運輸和貿易可能會損害解決危機的努力，並建議其他國家不要效仿美國。
 
-**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
+當譚德塞本來應該專注於全球打擊大流行的努力時，他反而將危機政治化，並幫助習近平推卸了應對疫情的一系列不法行為的責任。譚德塞使用WHO平台來對中共國政府嚴重侵犯人權的行為脫罪。例如，從11月發現的第一例病例到武漢的封鎖，直到今天，中共一直對冠狀病毒的起源和流行不誠實。試圖揭發它的人卻被拘留或失踪，他們的在線報告和帖子被刪除。中國誤傳及誤導了世界，譚德塞加入了這一舉動，還公開稱讚中共在與疾病蔓延戰鬥方面的“透明度”。
 
-**12月30日:**
+當習近平命令中國衛生官員通過使用“中草藥和西藥相結合”來加快藥物開發時，世衛組織的官方出版物《冠狀病毒問與答》做出了些微的改變。中國網民發現，針對CＣＰ病毒無效的一系列措施的中文和英文版本之間存在差異。英文版列出了四個項目-吸煙，多戴個口罩，服用抗生素和傳統草藥。第四項未包含在中文版本中。 （今天英文版也刪除了該項目。）
 
-- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
-- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
-- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
+中共國最近承諾提供2000萬美元，幫助世衛組織抗擊CＣＰ病毒疫情，譚德塞對此表示感謝。但是我們注意到，中共國與特德羅斯的埃塞俄比亞故鄉有聯繫，埃塞俄比亞現在被稱為東非的“小中國”，因為它已成為中共國影響非洲的橋頭堡以及中國倡議“一帶一路”的關鍵。確實，中共國在埃塞俄比亞進行了大量投資。
+[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/7eb8b291-98f0-4fe0-8875-c4af013383fe.jpg?asset_id=4fbc52f5-b801-4518-85d7-e92fe534c163&amp;img_etag=90818816cbb0236d3c72812bfd4843c0&amp;size=1024)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/7eb8b291-98f0-4fe0-8875-c4af013383fe.jpg?asset_id=4fbc52f5-b801-4518-85d7-e92fe534c163&amp;img_etag=90818816cbb0236d3c72812bfd4843c0&amp;size=1024)
+儘管特譚德塞沒有接受過醫學培訓，也沒有全球健康管理經驗，但他還是於2017年被選為世衛組織的現職。譚德塞是埃塞俄比亞的前衛生部長和外交部長，是提格里人民解放陣線（TPLF）政黨的執行成員，該黨在1991年的鬥爭中上台，並被列為全球恐怖主義數據庫的肇事者。在他成為世衛組織負責人後，批評人士質疑譚德塞試圖任命當時的津巴布韋獨裁者羅伯特·穆加貝（Robert Mugabe）為世衛組織親善大使。
 
+冠狀病毒大流行表明，譚德塞不適合領導世界衛生組織。由於他的領導，世界可能錯過了遏止這個流行病或減輕其毒力的關鍵窗口。目前，世界正在與不斷增加的感染作戰鬥，許多國家已施加了限制。作為世界衛生組織的負責人，譚德塞在控制病毒傳播的管理不善上應該要的負責。
 
-**12月31日:**
+[英文原文鏈接](https://thehill.com/opinion/international/487851-china-and-the-whos-chief-hold-them-both-accountable-for-pandemic)
 
-- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
-- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
-
-[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
-**1月1日:**
-
-- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
-- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
-
-
-**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
-
-**1月7日:**習近平回應了冠狀病毒的相關事項。
-
-**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
-
-**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
-
-**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
-
-**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
-
-**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
-
-**1月18日:**
-
-- 武漢市衛生健康委員會公佈了4例新病例。
-- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
-
-
-**1月19日:**北京派流行病學家到武漢。
-
-**1月20日:**
-
-- **韓國宣佈了首例病例。**
-- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
-
-
-**1月21日:**
-
-- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
-- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
-- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
-
-
-**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
-
-**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
-
-**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
-
-**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
-
-引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
-
-編者注:這篇報導將隨著更多資訊的報導而更新。
-
-[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
-
-*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
-
-**編輯：【喜馬拉雅戰鷹團】**
+編輯：【喜馬拉雅戰鷹團】
 
 0
