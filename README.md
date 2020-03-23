@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/275810](https://www.guo.media/posts/275810) `2020-03-23T03:55:25`
 ##
 
+**milesguo** 聪明的北向资金净流出1000亿A股还能支撑多久<br>https://gnews.org/zh-hans/149012/
+
+[https://www.guo.media/posts/275809](https://www.guo.media/posts/275809) `2020-03-23T04:25:14`
+##
+
 **milesguo** 文字版2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起<br>https://gnews.org/zh-hans/148983/
 
 [https://www.guo.media/posts/275808](https://www.guo.media/posts/275808) `2020-03-23T03:55:27`
