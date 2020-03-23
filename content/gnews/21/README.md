@@ -1,19 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《中共肺炎》沙烏地阿拉伯下令21天宵禁 阿聯酋航空暫停所有航班
-`2020-03-23 02:38 GM15` [轉載自GNews](https://gnews.org/zh-hant/149366/)
+## 《軍情動態》美艦在菲律賓海軍演 發射標準二型飛彈
+`2020-03-23 02:59 GM15` [轉載自GNews](https://gnews.org/zh-hant/149385/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23023619/phpE0VXad.jpg)
-中共肺炎疫情在全球快速擴散，沙烏地阿拉伯宣布，自明日（23）晚間起實施為期21天的宵禁；另外，阿拉伯聯合大公國宣布，將暫時所有客機及過境航班。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025756/Noname-20.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025429/phpIYZpbW.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23025410/phpiLki9Y.jpg)
+> The forward-deployed guided-missile cruiser [#USSShiloh](https://twitter.com/hashtag/USSShiloh?src=hash&amp;ref_src=twsrc%5Etfw) launches a Standard Missile [#SM2](https://twitter.com/hashtag/SM2?src=hash&amp;ref_src=twsrc%5Etfw) during a live-fire exercise in the Philippine Sea this week. [#CG67](https://twitter.com/hashtag/CG67?src=hash&amp;ref_src=twsrc%5Etfw) [#NavyReadiness](https://twitter.com/hashtag/NavyReadiness?src=hash&amp;ref_src=twsrc%5Etfw) [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) [@SurfaceWarriors](https://twitter.com/SurfaceWarriors?ref_src=twsrc%5Etfw) [pic.twitter.com/e7xEk7L4zS](https://t.co/e7xEk7L4zS)
+> — U.S. Pacific Fleet (@USPacificFleet) [March 21, 2020](https://twitter.com/USPacificFleet/status/1241468582006910977?ref_src=twsrc%5Etfw)
 
-綜合外媒報導，**沙烏地國王沙爾曼（Salman）22日發布命令，全國於明晚開始實施宵禁，時間從晚上7點至隔天早上6點，共21天。**
+美國提康德羅加級巡洋艦夏洛號（USS Shiloh），在菲律賓海進行實彈演習，過程中發射標準二型飛彈（SM-2），場面相當震撼。
 
-此命令發布前，沙烏地衛生部同天宣布最新疫情，該國暴增119例確診病例，累計511例。
+從[美國海軍太平洋艦隊推特](https://twitter.com/USPacificFleet/status/1241468582006910977)發布的照片可以看到，標準二型飛彈從夏洛號垂直發射升空，震懾美軍在菲律賓海所屬的太平洋地區假想敵軍中國。
 
-阿拉伯聯合大公國23日宣布，將暫時所有出境、入境客機及轉機乘客2週，作為預防疫情擴散措施的一部分，該命令將在48小時內生效，並在2週後再次審核。此外，貨機和緊急疏散用班機是例外。阿拉伯聯合大公國目前確診達153例。
+標準二型飛彈是美國海軍主力中長程防空飛彈，巡洋艦以上的軍艦都有配備，並衍生出多種型號，最遠射程達166公里，除了防空之外也能做為反艦飛彈使用。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3109115)
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3108490)
 
 GM15
 
