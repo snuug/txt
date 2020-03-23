@@ -1,67 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 為什麼叫中共病毒？
-`2020-03-22 23:48 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/149248/)
+## 中共病毒爆發和掩蓋的時間軸
+`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
 
-**【中英對照翻譯】**[https://spark.adobe.com/page/9gQK2jI4PKWZu/](https://spark.adobe.com/page/9gQK2jI4PKWZu/)
+【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
 
-*聞來源： The Washington Post, 20 MAR 2020*
+*作者: Bethany Allen-Ebrahimian*
 
-***作者：Josh Rogin***
+*新聞來源: axios.com*
 
-*翻譯、引言：TCC*
+*翻譯 / 簡評：海闊天空*
 
-**引言：**
+**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
 
-川普總統在最近的新聞會上經常反覆的使用＂中國的病毒＂來稱這次引起全球恐慌的罪魁禍首。雖然他一再強調“這不是種族主義者＂的說法，但是他忽略了一些事實關鍵點。
 
-美國人對於種族主義是相當敏感的。那些曾經發生在美國對亞裔、華裔與亞裔美國人的種族歧視事件是不可抹滅的。所以使用任何標示一個種族或族群的字眼，一定要十分慎重。事實上，自疫情爆發以來，美國針對亞裔及亞裔美國人的種族主義事件確實是在增加。
 
-用政治，族群和種族來分化、弱化我們是中共的一貫伎倆。中共經常使用種族主義的指控，來反駁任何對其政權的批評。所以如果使用這種有種族色彩的字眼，正中了中共挑起種族仇恨的陰謀。
+## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
 
-同時，這也中了中共用指責美國的種族主義來轉移了中共自己對這次疫情隱瞞所造成無法彌補的錯誤。這次疫情會快速蔓延全球是因為中共將病毒疫情隱瞞了數週，使醫生無法發聲警告，囚禁新聞從業人員並關閉了公開發布了首個冠狀病毒基因組序列的上海實驗室。這些令人髮指的舉動使全球失去了控制疫情的黃金時間！
+Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
 
-冤有頭債有主。中國人民是這事件的英雄，也是受害者。中國醫生，研究人員和新聞記者冒著生命危險，甚至在與該病毒戰鬥並警告世界時喪生。所以稱＂中國的＂或＂中國人＂的是不公平的。
+為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
 
-如何稱呼此病毒已經超出了是否＂政治正確＂的考量。這應該是關於認識到一個專制政權如何利用我們對種族主義的敏感性來對付我們。我們的問題不是中國人而是中共政權。我們絕不能幫助和姑息中共正為我們帶來的內部分歧和散佈虛假信息。
+我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
 
-有一種很好的方式可以尊重有關病毒的真相，並可追究應該負責任的人，那就是叫它“中共病毒”或“CCP病毒”。
+**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
 
-### **不要為冠狀病毒疫情責怪“中國”，而應責怪中國共產黨**
-[!\[\](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/5463c596-a7fa-4170-afd8-4ae5d71788fb.jpg?asset_id=5766bc59-6d32-460a-b713-c690d4532a29&amp;img_etag=b3703097b28ff69fbfd8abd873e51b01&amp;size=1024)](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/5463c596-a7fa-4170-afd8-4ae5d71788fb.jpg?asset_id=5766bc59-6d32-460a-b713-c690d4532a29&amp;img_etag=b3703097b28ff69fbfd8abd873e51b01&amp;size=1024) （圖）在星期二離開新冠病毒爆發中心之前，來自武漢以外地區的醫務人員在武漢火車站用中共國旗擺姿勢拍照。 
-美國起來反對中共政府改寫冠狀病毒大流行的歷史，這對我們的健康和安全至關重要。同樣重要的是，我們在這樣做時不要助長種族主義或對中國人或華裔美國人施加侮辱。實現這兩個目標最關鍵的是將我們談論中國人的方式與談論北京統治者的方式區分開來。
+**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
 
-川普總統堅持稱冠狀病毒為“中國的病毒”。他這樣做的理由是簡單，也從技術上講是準確的：中國的官員故意傳播有關這病毒可能起源於美國的謊言，目的是規避自己早期的失敗的責任。特朗普週三說， “這根本不是種族主義者，一點也不是。它來自中國，這就是原因。我要說得準確點。”
+**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
 
-正如許多人指出的那樣，準確性並不是總統應該考慮的唯一因素。川普忽視了美國針對亞裔和亞裔美國人的種族歧視歷史，並忽略了至關重要的背景：自（疫情）危機爆發以來，美國針對亞裔人的美國人的種族主義事件確實是在增加。
+**12月30日:**
 
-一名亞裔美國人記者說，白宮官員在場時使用了“功夫－感冒”一詞。這是不可接受的。根據世界衛生組織的指導方針，亞裔美國人新聞工作者協會要求新聞機構不要使用“武漢病毒”一詞，並警告說，以疾病的地理起源為名會給當地人民帶來羞辱。
-[!\[\](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/0bd0c2d8-5959-41a9-bb47-dacaecc735ba.png?asset_id=4f06dc4b-9171-4d64-9b21-21f9a97cb0ba&amp;img_etag=58721ac742f41d89bdaa9f7e4e94ebd6&amp;size=3119)](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/0bd0c2d8-5959-41a9-bb47-dacaecc735ba.png?asset_id=4f06dc4b-9171-4d64-9b21-21f9a97cb0ba&amp;img_etag=58721ac742f41d89bdaa9f7e4e94ebd6&amp;size=1024)
-當然，許多使用“中國的病毒”或“武漢病毒”的人都不是種族主義者。當然，有些是的。對於那些＂接收端＂的人來說，是沒有區別的。但是，有一種很好的方式可以尊重有關病毒的真相，並不造成不當攻擊的情況下追究該負責任的人。
+- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
+- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
+- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
 
-我們都必須具體指責中國共產黨的行動。是中共將病毒疫情隱瞞了數週之久，使醫生無法發聲警告，囚禁新聞記者並挫敗了科學-最著名的是關閉了上海實驗室，該實驗室公開發布了首個冠狀病毒基因組序列。
 
-中國人民是這個故事的英雄。中國醫生，研究人員和新聞記者冒著生命危險，甚至在與該病毒戰鬥並警告世界時喪生。隨著我們自身情況的惡化，中國公眾的社區團結為我們提供了教訓。中國人也是中共政府嚴厲措施的受害者，這些措施造成了巨大的額外苦難。
+**12月31日:**
 
-“重要的是要記住，中國人民在中共政府採取的措施中缺乏有意義的發言權，”國家民主基金會研究與分析副總裁克里斯托弗·沃克說， “在如今來自北京的專制信息策劃和虛假信息迷霧籠罩的情況下，我們不能忽視全球流行病起源地的大規模專制治理失敗。”
+- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
+- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
 
-這不僅僅與冠狀病毒有關，這是我們對待中共國的整體處理方法的一個關鍵點。我們的問題不是中國人而是中共－中共內部的壓制，外部的侵略以及在自由和開放社會中的有害影響。
+[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
+**1月1日:**
 
-中共戰略的一部分是用政治，族群和種族來分化我們。中共官員經常使用種族主義指控，以反駁對其政府的批評。他們還指責美國的種族主義來轉移了中共自己可怕的種族主義政策，例如基於族群隔離了新疆數以百萬計的無辜人民。
-[!\[\](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/27b04a41-5c8a-4742-8dac-52876a7be1ea.jpg?asset_id=77e6608c-7785-4f63-a9cb-7c8972fea848&amp;img_etag=3e0abbacc6fda16c3cca9983323ac885&amp;size=2560)](https://spark.adobe.com/page/9gQK2jI4PKWZu/images/27b04a41-5c8a-4742-8dac-52876a7be1ea.jpg?asset_id=77e6608c-7785-4f63-a9cb-7c8972fea848&amp;img_etag=3e0abbacc6fda16c3cca9983323ac885&amp;size=1024)
-在美國，大多數人並不適應現在這種動態。在澳大利亞，政治階層多年來一直在爭論中共對其運作的影響力。澳大利亞戰略政策研究所發布的一份報告就如何避免中共陷阱提出了一些明確的指導方針。報告指出，我們應該避免一概而論，明確的區分中國政府和中國人民，並注意不要在國內疏遠華裔澳洲人。反過來，我們也必須注意不要將種族主義動機（除非有正當理由）歸咎於批評中共當局的人。
+- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
+- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
 
-約翰·菲茨杰拉德（John Fitzgerald）在報告中寫道：“首先，中共參與了尖銳的政治活動，破壞了有關中共國政府在澳大利亞境內政策和行為的合法公開辯論。”這在美國也如是發生了。
 
-這已經不再只是關於政治正確的考量了。這應該是關於認識到一個專制政權利用我們對種族主義的敏感性來對付我們。除非有證據支持，否則我們必須避免對中國的政府提出指控。我們必須繼續敦促北京提高透明度和真象，這對於遏止擴散至關重要。
+**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
 
-我們沒有從2016年俄羅斯的干預選舉中學到任何東西嗎？我們絕不能幫助和姑息中共努力帶來的內部分歧和散佈虛假信息。我們沒有從9/11之後把穆斯林教妖魔化學到一點東西嗎？在這場危機中，華裔和華裔美國人需要我們的支持，他們也為我們的應對工作上提供了強大的力量。
+**1月7日:**習近平回應了冠狀病毒的相關事項。
 
-讓我們不要再說“中國的病毒”了-不是因為每個使用它的人都是種族主義者，而是因為它不必要地參與了中國共產黨試圖分化我們並轉移我們對中共不良行為的注意力。讓我們稱之為“ CCP病毒”吧。這樣更準確，並只會冒犯那些罪有應得的人。
+**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
 
-[新聞來源](https://www.washingtonpost.com/opinions/global-opinions/dont-blame-china-for-the-coronavirus--blame-the-chinese-communist-party/2020/03/19/343153ac-6a12-11ea-abef-020f086a3fab_story.html)
+**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
 
-**編輯 【喜馬拉雅戰鷹團】**
+**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
+
+**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
+
+**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
+
+**1月18日:**
+
+- 武漢市衛生健康委員會公佈了4例新病例。
+- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
+
+
+**1月19日:**北京派流行病學家到武漢。
+
+**1月20日:**
+
+- **韓國宣佈了首例病例。**
+- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
+
+
+**1月21日:**
+
+- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
+- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
+- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
+
+
+**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
+
+**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
+
+**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
+
+**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
+
+引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
+
+編者注:這篇報導將隨著更多資訊的報導而更新。
+
+[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
+
+*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0

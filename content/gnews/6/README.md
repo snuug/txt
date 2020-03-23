@@ -1,98 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 死亡名單的秘密
-`2020-03-22 21:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148981/)
+## 加拿大CCP冠狀病毒病例快速上升，渥太華市可能有多達4,000例
+`2020-03-23 01:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149318/)
 
-[https://spark.adobe.com/page/l91pEwnGjdSh2/](https://spark.adobe.com/page/l91pEwnGjdSh2/)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/23014748/A3D43C5C-B9E4-48F3-BC34-E5603B273467.png)
+截至週日，加拿大已確認1,302例CCP冠狀病毒感染病例。死亡患者19例，其中卑詩省10例，魁北克5例，安大略省3例，艾伯塔省1例。
 
-##  **大衛用數據分析中共對死亡人數造假**
+渥太華衛生官員維拉·埃切斯（Vera Etches）博士周日宣布，渥太華公共衛生部門現在已經對CCP冠狀病毒在醫療社區內傳播這一事實進行了實驗室確認，估計渥太華目前可能有4,000例病例。埃切斯碩“我們看到的翻倍時間有時會縮短到三天……因此，到下週的這個時候，可能是16,000。 除非我們竭盡全力減慢速度，否則這就是令人擔憂的情況。 ”。在渥太華的27例確診或不確定的CCP冠狀病毒病例中，有5例沒有旅行史或者接觸過其他 病人。其中，渥太華至今最新確診的病例是一名 20多歲的一名女士，這使首都的官方診斷總數達到21。有關她如何感染新型冠狀病毒的信息沒有提供。她現在正在自我隔離。
 
-*作者： Patrick*
+週日上午在安大略省東部證實了另一例新的病例，是一名30多歲的男士，正在自我隔離。截至週日傍晚，安大略省報告了兩起新的與CCP冠狀病毒相關的死亡事件：一名是約克區70多歲的女士，另一名是居住在多倫多的70多歲男子，他前段時間有去過英國。安大略全省確診病例總數增加到424例，前一天週六確診377例。有8個病例已經痊癒，這意味著該患者不再具有傳染性。在過去的兩周中，這個數字沒有太大變化。
 
+安大略省東部衛生局（EOHU）表示，渥太華醫院的一名醫護人員的CCP冠狀病毒測試呈陽性。這個人是30歲左右，來自普雷斯科特-羅素（Prescott-Russell），沒有任何外出旅行經歷。 EOHU在周日的一份聲明中說：“渥太華公共衛生部和渥太華醫院正在積極調查和追踪可能在醫院與該醫務人員有過密切接觸的個人或患者。渥太華醫院在其網站上的一份聲明中表示，“與該人直接互動的所有員工和患者都已被告知，而且也告知他們必須採取的公共衛生措施。 ”
 
+埃切斯說：“我們開始看到病毒在醫護人員中傳播和確診的病例。由於大多數病例是輕度且未被發現的，我想強調每個人都要避免與他人互動，視之為病毒潛在來源的重要性。” 她要求渥太華的每個人盡最大可能地保持社交距離。在某些情況下，即使是家庭成員也要避免密切接觸。 “這還意味著避免不必要的外出（不包括在外面可以與他人保持至少兩米距離的時間）。現在人們應避免光顧非去不可的營業場所，包括但不限於服裝店，美髮沙龍，紋身店，健身房，健身設施，汽車經銷店，維修設施，宴會廳，會議中心。”
 
-[點擊觀看大衛2020年3月19日直播，用數據分析告訴你死亡名單背後的真相](https://www.youtube.com/watch?v=lV7CBGkRxtU)
+談到確保那些被要求自我隔離的人確實這樣做時，埃切斯說：“也許我們需要採取更強有力的措施，加強執法。 我與渥太華的警察局保持聯繫，以了解他們如何遵守省級緊急聲明下的命令。這些都是我們正在監視的事情，如果我們沒有看到人們採取能夠保護他人的行動，我們將不得不考慮其他選擇。”
 
-這個名單反映出來的并不簡單的是死亡人的職業、年齡，讓我們來用數學模型分析中共宣稱的感染率、死亡率以及目前中共宣稱的0增長之間的内在關係。讓我們用科學的分析來打破中共的謊言。
+渥太華的一些人投訴說CCP冠狀病毒測試結果要等四、五天才有。埃切斯說，部分原因是目前正在實施兩次測試程序來確認病例，並且正在考慮更改該方法。她還指出，該地區的一個新實驗室將於週一上線，“這樣可以減輕一些壓力。” 需要社區支持的任何人都可以撥打211。
 
-文貴先生得到的死亡明細裏面的死亡人數為254人，我們僅以這個數字作爲參考坐標，反向推導真實的感染人數以及覆蓋範圍。職業：公檢法、公安、輔警、公職人員、事業單位、醫務人員。
+聯邦眾議院已被召回，並將於週二中午開會，“以商討與CCP冠狀病毒大流行有關的措施，”議長辦公室星期天宣布。眾議院上次休會期間的召回是1992年9月8日。
 
-### ***1. 郭文貴先生提供的名單截圖:***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)
-表格内列舉的死亡人數為254 名，團體/地點不明包含姓名，性別，省縣市，職業，黨籍，死亡年紀，日期，原因
+在省一級，安大略省副總理兼衛生部長克里斯蒂娜·埃利奧特（Christine Elliott）星期天宣布，某些兒童保育中心將免於強制性關閉令，以保證在CCP冠狀病毒爆發期間繼續為醫療保健和一線工人提供支持。埃利奧特在一份新聞稿中說：“我們需要幫助我們的護士，醫生和一線護理人員專注於保護所有安大略人的健康。通過允許精選的托兒中心在這些艱難的時刻敞開大門，我省勇敢的一線醫護人員可以放心，知道家人也在得到照顧。” 目前沒有關於中心的確切數目或位置的消息，這些中心或中心必須遵循現有的健康和安全要求，並製定計劃，以防任何工作人員，兒童或父母接觸該病毒。
 
-### ***2. 戰友們在excel表格中重新整理的名單截圖 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)
-為便於對表格的數據進行分析，圖片上的名單輸入Excel表格 / Converted to Excel for analysis
-
-### **3. 性別分析**:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)
-對表格中性別分析表明死亡者以男性為主
-
-### **4. 年齡分析**:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)
-死亡者年歲從18嵗到77嵗，平均死亡者年齡為49嵗。分析表明病毒不只攻擊老年人，年輕人也有相當的死亡率。
-
-最有力的佐證證明該病毒不只對老年人造成危害的例證就是李文亮醫生。李醫生屬於年富力强的中青年人，雖然他是醫生，工作在最前綫，和李醫生一樣被感染的年輕醫生死亡的人數就太多了。從上圖可以看到這個表格上死亡者年齡的數量最多的是40-60嵗區間的人群。所以年齡絕對不是中共宣傳的那樣只對老年人造成傷害。
-
-誰最早出來和中國老百姓以及歐洲說老人、慢性病患者最容易受感染？是中共的衛生防疫組、武漢官媒。習打電話給Trump說天氣轉暖病毒就會消失。中共每天都在撒謊、輸送假信息在誤導西方，因此中共對全球病毒的大爆發負有重大責任。
-
-### ***5. 死亡原因分析***:
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)
-表格中列出的死亡原因：77.4%過勞死！，9.7%車禍，9.3%肺炎。 一個月的統計竟然有四分之三的過勞死亡率是不可想像的。這裏不排除這份表格中填寫的死亡原因有造假成份，以掩蓋由於疫情導致的死亡率。
-
-### ***6. 省份分佈分析 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)
-各個人數分佈地點：不能確認表格內寫出來的省市是指死亡者的籍貫還是死亡地點，但是標註湖北的人數最多。
-
-### ***7. 死亡時間段分析 :***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)
-一月底到三月初之閒每日死亡人數。這個時間段正好符合疫情爆發的時間。
-
-### ***8. 政黨屬性分析****:*
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=2560)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=1024)
-超過三分之二為黨員，這裏明顯看出來這些都是被中共利用的基層幹部，這裏的黨員可沒有那些書記、沒有中南坑裏的黨員。這些基層幹部也都是老百姓，被盜國賊利用的工具。
-
-### ***9. 職務分析:***
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)
-職業組成：農民2%，志願者 8.3%，警察17.3%，醫生15.7%，公務員 22.8%，輔警7.9%，村幹部4.7%，工人2.8%，村書記0.8%，城鎮官員14.6%。
-
-### **結論 1 – 估算總感染人數：**
-
-三個假設參數：
-
-1. 假設從感染到死亡的天數為二十天 （我們按照李文亮醫生從感染到去世的時間為坐標）
-2. 死亡率為2.5%。（中共報告的死亡率為2.1%, 有的地區報道到4%，我們姑且這些數據是真實的，在這裏取一個中間值。）
-3. 在這二十天中，被感染人數每天增加20% （根據死亡者名單上給出的死亡日期計算出每日增加的死亡人數）
-
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)
-假設二十天後，康復的病人不再有傳染性。以這個死亡人數的數據來看，前期感染數量快速增加，峰值達到七萬人。使用不同的參數，峰值可能達到數萬到數十萬的大範圍。
-
-我們看一下可汗學院提供的簡單模型：
-
-
-
-郭文貴先生在直播時說過，全國死亡人數保守的數目在50萬人以上。
-
-### **結論 2 – 目前全球及中國數字比較**: 
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024) 中共提供的感染者上升曲綫為平穩式小步上升，與國際其它國家提供的突然急劇上升的曲綫形成鮮明對比。（最後更新：2020年3月22日） 
-
-[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)
-簡單數學模型的前期增長曲線和全球（除中國）感染曲線相似，中國大陸的曲線極不正常，在這麼大的人口之下，即使考慮其嚴格封城隔離措施，也極不可能這麼快達到零成長。
-
-[請參考Hopkins大學全球疫情實時更新數據圖](https://coronavirus.jhu.edu/map.html)
-
-### **亡者想告訴我們什麼？**
-
-#### 從某地約六週254 名官方死亡名單可以看出：
-
-- 不正常的死亡原因及增長曲線顯示中共隱瞞事實的真實性
-- 死亡率與年紀關係不大
-- 此名單大部分是公務人員，黨員，一般民眾死亡人數應遠遠超過這個數字
-- 利用簡單數學模擬倒推，與此254人相關連的感染數可能以數萬甚至數十萬計
-
-
-**編輯：【喜馬拉雅戰鷹團】**
+[原文鏈接](https://ottawacitizen.com/news/local-news/covid-19-a-woman-in-her-20s-is-ottawas-newest-case) 
+翻譯報導：匿名
 
 0

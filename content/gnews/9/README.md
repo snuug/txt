@@ -1,52 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒大流行, 誰之過？
-`2020-03-22 18:40 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148959/)
+## 死亡名單的秘密
+`2020-03-22 21:49 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148981/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/xrMAjyb2cizTV/](https://spark.adobe.com/page/xrMAjyb2cizTV/)
+[https://spark.adobe.com/page/l91pEwnGjdSh2/](https://spark.adobe.com/page/l91pEwnGjdSh2/)
 
-*消息來源：thehill.com*
+##  **大衛用數據分析中共對死亡人數造假**
 
-*作者：專欄評論員 BRADLEY A. THAYER和LIANCHAO HAN*
+*作者： Patrick*
 
-*翻譯 / 簡評：TCC*
 
-*簡評* **：**
 
-這篇文章是在四天前出刊的。就在這短短的四、五天中，確診人數加倍成３０萬例，且死亡人數也增加兩倍以上。在這個ＣＣＰ病毒肆虐全球、人們在生與死爭扎、在經濟停頓萎縮的陰影下苟延殘喘的時刻，我們不禁要問誰應該對此負責？
+[點擊觀看大衛2020年3月19日直播，用數據分析告訴你死亡名單背後的真相](https://www.youtube.com/watch?v=lV7CBGkRxtU)
 
-在３／１２，美國佛州律師向法院提起集體訴訟，向中共政府索賠。這是基於中共政府知情未告，延誤了流行病防治的＂黃金時期＂的事實。身為世界主要經濟體的中共國故意掩蓋事實，或為了自身利益延遲通報國際其嚴重度，這種罔顧道義的作法應該要為這事負起責任的。
+這個名單反映出來的并不簡單的是死亡人的職業、年齡，讓我們來用數學模型分析中共宣稱的感染率、死亡率以及目前中共宣稱的0增長之間的内在關係。讓我們用科學的分析來打破中共的謊言。
 
-世衛組織，一個身為聯合國負責世界衛生的重責大任的單位，對這次疫情應該為其失職公開向國際道歉。這篇文章揭露了譚德塞、埃塞俄比亞與中共之間的複雜利益關係。。譚德塞這個中共劊子手的哈巴狗，是這次ＣＣＰ病毒迅速擴大的幫兇，而其所作所為完全是由中共指使的。譚德塞應該引咎辭職，並被追究法律責任及賠償。
+文貴先生得到的死亡明細裏面的死亡人數為254人，我們僅以這個數字作爲參考坐標，反向推導真實的感染人數以及覆蓋範圍。職業：公檢法、公安、輔警、公職人員、事業單位、醫務人員。
 
-其他幫兇，如參與延緩報導疫情真相及粉飾報導疫情嚴重度的西方各大媒體，也應為這次疫情的損失，包括給各國民衆造成的生命、精神與財務的損失，承擔責任並被提出賠償。
+### ***1. 郭文貴先生提供的名單截圖:***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/63e697ec-214f-4540-9e99-1e5eecc6770c.jpg?asset_id=25855f82-78fe-4607-966f-24a88aa4b6f8&amp;img_etag=9c788b1d855fa8dbe4e81d6301c76730&amp;size=1024)
+表格内列舉的死亡人數為254 名，團體/地點不明包含姓名，性別，省縣市，職業，黨籍，死亡年紀，日期，原因
 
-## **中共國和世衛組織負責人應對全球CCP病毒大流行負責**
+### ***2. 戰友們在excel表格中重新整理的名單截圖 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/d5262759-3014-448d-809a-823694b723d9.jpg?asset_id=f648f3cd-1f66-4207-8aef-60d7aae757ad&amp;img_etag=eae8d2aa5acf2408be890bc7df237856&amp;size=1024)
+為便於對表格的數據進行分析，圖片上的名單輸入Excel表格 / Converted to Excel for analysis
 
-評論人： BRADLEY A. THAYER和LIANCHAO HAN 
-美國東部時間 2020年3月17日02:00 PM
-[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/1cb62f01-4ade-48c6-bd76-54184183939a.jpg?asset_id=add3b57c-ff24-4e72-999b-711d7d8c7059&amp;img_etag=338d4b4b282e7c1920869f6c624de94f&amp;size=2560)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/1cb62f01-4ade-48c6-bd76-54184183939a.jpg?asset_id=add3b57c-ff24-4e72-999b-711d7d8c7059&amp;img_etag=338d4b4b282e7c1920869f6c624de94f&amp;size=1024) 譚德塞 
-世界衛生組織（WHO）上週終於宣布，來自中共國的冠狀病毒迅速在世界範圍內傳播，為大流行病。現在，全球有超過15萬例確診病例，有5700多例死亡（譯者按：３／２１：確診將近３０萬例；死亡將近１萬３千例），問題是為什麼世衛組織要花這麼長時間才能認識到許多衛生官員和政府在很早以前就已經確定了的訊息？
+### **3. 性別分析**:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1060a443-2868-4edb-9256-e4e4bcefb92c.jpg?asset_id=a9404b57-d18a-4f56-ba5b-1ac219292338&amp;img_etag=ca25ed3b3e2f61f2da1a35ab07389797&amp;size=1024)
+對表格中性別分析表明死亡者以男性為主
 
-我們認為，該組織的總幹事譚德塞（Tedros Adhanom Ghebreyesus）與中共國家主席習近平一樣，應該為不計後果地處理這一致命的大流行病負責。在1月份與習近平會面之後的譚德塞，顯然對武漢和中共國其他地區所發生的事情視而不見，並幫助中國淡化了這中共病毒疫情爆發的嚴重性、普遍性和範圍。
-[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/31d25141-2c62-431c-a6f6-bbc96955e50c.jpg?asset_id=0e20b7b4-256a-4030-b029-e9b851e2cd7f&amp;img_etag=689ad3aaeab8365c33857664cd1c9ca4&amp;size=2560)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/31d25141-2c62-431c-a6f6-bbc96955e50c.jpg?asset_id=0e20b7b4-256a-4030-b029-e9b851e2cd7f&amp;img_etag=689ad3aaeab8365c33857664cd1c9ca4&amp;size=1024)
-譚德塞從一開始就為中共辯護，儘管它對這種高度傳染性疾病的管理不善。隨著病例數和死亡人數的猛增，即使它已經達到了人與人之間的傳播，高死亡率和世界範圍傳播的標準，世界衛生組織還花了幾個月的時間才宣布ＣＣＰ武漢病毒爆發的疫情為大流行病。
+### **4. 年齡分析**:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/4c7b84cb-8896-4556-91a5-572924557f99.jpg?asset_id=d85ba58c-3d14-4034-a2ed-6458ff345850&amp;img_etag=631f7304b48538a07af0b33c1e725c7e&amp;size=1024)
+死亡者年歲從18嵗到77嵗，平均死亡者年齡為49嵗。分析表明病毒不只攻擊老年人，年輕人也有相當的死亡率。
 
-川普總統在1月31日發布旅行禁令，採取關鍵步驟來停止冠狀病毒入侵美國邊境時，譚德塞還表示，無需廣泛的旅行禁令和限制措施即可阻止疫情爆發，並且“可能會增加恐懼感和污名化，幾乎沒有公共衛生效益。”他警告說，干擾運輸和貿易可能會損害解決危機的努力，並建議其他國家不要效仿美國。
+最有力的佐證證明該病毒不只對老年人造成危害的例證就是李文亮醫生。李醫生屬於年富力强的中青年人，雖然他是醫生，工作在最前綫，和李醫生一樣被感染的年輕醫生死亡的人數就太多了。從上圖可以看到這個表格上死亡者年齡的數量最多的是40-60嵗區間的人群。所以年齡絕對不是中共宣傳的那樣只對老年人造成傷害。
 
-當譚德塞本來應該專注於全球打擊大流行的努力時，他反而將危機政治化，並幫助習近平推卸了應對疫情的一系列不法行為的責任。譚德塞使用WHO平台來對中共國政府嚴重侵犯人權的行為脫罪。例如，從11月發現的第一例病例到武漢的封鎖，直到今天，中共一直對冠狀病毒的起源和流行不誠實。試圖揭發它的人卻被拘留或失踪，他們的在線報告和帖子被刪除。中國誤傳及誤導了世界，譚德塞加入了這一舉動，還公開稱讚中共在與疾病蔓延戰鬥方面的“透明度”。
+誰最早出來和中國老百姓以及歐洲說老人、慢性病患者最容易受感染？是中共的衛生防疫組、武漢官媒。習打電話給Trump說天氣轉暖病毒就會消失。中共每天都在撒謊、輸送假信息在誤導西方，因此中共對全球病毒的大爆發負有重大責任。
 
-當習近平命令中國衛生官員通過使用“中草藥和西藥相結合”來加快藥物開發時，世衛組織的官方出版物《冠狀病毒問與答》做出了些微的改變。中國網民發現，針對CＣＰ病毒無效的一系列措施的中文和英文版本之間存在差異。英文版列出了四個項目-吸煙，多戴個口罩，服用抗生素和傳統草藥。第四項未包含在中文版本中。 （今天英文版也刪除了該項目。）
+### ***5. 死亡原因分析***:
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/47dadd5d-8c09-4898-9848-b5aea693fb9c.jpg?asset_id=0396e2c9-9a66-436a-b5d0-65b63eddad97&amp;img_etag=a6c811abfb527b6b71d87fdee0037616&amp;size=1024)
+表格中列出的死亡原因：77.4%過勞死！，9.7%車禍，9.3%肺炎。 一個月的統計竟然有四分之三的過勞死亡率是不可想像的。這裏不排除這份表格中填寫的死亡原因有造假成份，以掩蓋由於疫情導致的死亡率。
 
-中共國最近承諾提供2000萬美元，幫助世衛組織抗擊CＣＰ病毒疫情，譚德塞對此表示感謝。但是我們注意到，中共國與特德羅斯的埃塞俄比亞故鄉有聯繫，埃塞俄比亞現在被稱為東非的“小中國”，因為它已成為中共國影響非洲的橋頭堡以及中國倡議“一帶一路”的關鍵。確實，中共國在埃塞俄比亞進行了大量投資。
-[!\[\](https://spark.adobe.com/page/xrMAjyb2cizTV/images/7eb8b291-98f0-4fe0-8875-c4af013383fe.jpg?asset_id=4fbc52f5-b801-4518-85d7-e92fe534c163&amp;img_etag=90818816cbb0236d3c72812bfd4843c0&amp;size=1024)](https://spark.adobe.com/page/xrMAjyb2cizTV/images/7eb8b291-98f0-4fe0-8875-c4af013383fe.jpg?asset_id=4fbc52f5-b801-4518-85d7-e92fe534c163&amp;img_etag=90818816cbb0236d3c72812bfd4843c0&amp;size=1024)
-儘管特譚德塞沒有接受過醫學培訓，也沒有全球健康管理經驗，但他還是於2017年被選為世衛組織的現職。譚德塞是埃塞俄比亞的前衛生部長和外交部長，是提格里人民解放陣線（TPLF）政黨的執行成員，該黨在1991年的鬥爭中上台，並被列為全球恐怖主義數據庫的肇事者。在他成為世衛組織負責人後，批評人士質疑譚德塞試圖任命當時的津巴布韋獨裁者羅伯特·穆加貝（Robert Mugabe）為世衛組織親善大使。
+### ***6. 省份分佈分析 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/3723b600-1d2a-48f8-b764-f0e00fd26be3.jpg?asset_id=f853c9ef-c2a3-42d6-b35e-1d21d93dcb1f&amp;img_etag=d210c50c2cceda35966a478f7499e996&amp;size=1024)
+各個人數分佈地點：不能確認表格內寫出來的省市是指死亡者的籍貫還是死亡地點，但是標註湖北的人數最多。
 
-冠狀病毒大流行表明，譚德塞不適合領導世界衛生組織。由於他的領導，世界可能錯過了遏止這個流行病或減輕其毒力的關鍵窗口。目前，世界正在與不斷增加的感染作戰鬥，許多國家已施加了限制。作為世界衛生組織的負責人，譚德塞在控制病毒傳播的管理不善上應該要的負責。
+### ***7. 死亡時間段分析 :***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/babe8274-10b3-4557-b90b-ce16cd65450b.jpg?asset_id=5353148e-b70d-4582-a9ea-570113a913cd&amp;img_etag=94f5daf524cba9dc18394e34529f6576&amp;size=1024)
+一月底到三月初之閒每日死亡人數。這個時間段正好符合疫情爆發的時間。
 
-[英文原文鏈接](https://thehill.com/opinion/international/487851-china-and-the-whos-chief-hold-them-both-accountable-for-pandemic)
+### ***8. 政黨屬性分析****:*
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=2560)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/db3716bd-cc93-416d-92d1-b92dbd60c678.png?asset_id=01b363f4-88fc-494c-865b-2f5f0aa182dd&amp;img_etag=803e9603f207be3d8d8c10971ace0aeb&amp;size=1024)
+超過三分之二為黨員，這裏明顯看出來這些都是被中共利用的基層幹部，這裏的黨員可沒有那些書記、沒有中南坑裏的黨員。這些基層幹部也都是老百姓，被盜國賊利用的工具。
 
-編輯：【喜馬拉雅戰鷹團】
+### ***9. 職務分析:***
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/0c2c690f-1cce-4078-824d-d8d6da557092.jpg?asset_id=02180bbb-ff29-4791-8339-b3ff230f1043&amp;img_etag=7d5edb898bc41ecad95acbb9aad69a1a&amp;size=1024)
+職業組成：農民2%，志願者 8.3%，警察17.3%，醫生15.7%，公務員 22.8%，輔警7.9%，村幹部4.7%，工人2.8%，村書記0.8%，城鎮官員14.6%。
+
+### **結論 1 – 估算總感染人數：**
+
+三個假設參數：
+
+1. 假設從感染到死亡的天數為二十天 （我們按照李文亮醫生從感染到去世的時間為坐標）
+2. 死亡率為2.5%。（中共報告的死亡率為2.1%, 有的地區報道到4%，我們姑且這些數據是真實的，在這裏取一個中間值。）
+3. 在這二十天中，被感染人數每天增加20% （根據死亡者名單上給出的死亡日期計算出每日增加的死亡人數）
+
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/2387532d-af85-4e3f-9c97-ccf24d5d53ea.jpg?asset_id=cd1b5bc3-29b8-4c08-ade4-c5dfa649942e&amp;img_etag=6c9a38cebeaf57c6b9336faaa14be58a&amp;size=1024)[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/decd9ca8-f9aa-45c1-a976-b4ec9defdbfe.jpg?asset_id=130bf554-7c37-409a-8f44-d576639e91b4&amp;img_etag=25f9c2c1bcddeb5010048c98cfc90ba5&amp;size=1024)
+假設二十天後，康復的病人不再有傳染性。以這個死亡人數的數據來看，前期感染數量快速增加，峰值達到七萬人。使用不同的參數，峰值可能達到數萬到數十萬的大範圍。
+
+我們看一下可汗學院提供的簡單模型：
+
+
+
+郭文貴先生在直播時說過，全國死亡人數保守的數目在50萬人以上。
+
+### **結論 2 – 目前全球及中國數字比較**: 
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/04ee76c4-cfa5-4be8-a391-2fdfa210e8df.png?asset_id=ea7f07cc-cedc-4808-a77e-7d44c33c1745&amp;img_etag=355f601101b15299a07822cf7eb15b44&amp;size=1024) 中共提供的感染者上升曲綫為平穩式小步上升，與國際其它國家提供的突然急劇上升的曲綫形成鮮明對比。（最後更新：2020年3月22日） 
+
+[!\[\](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)](https://spark.adobe.com/page/l91pEwnGjdSh2/images/1e6f0af0-8fe8-4264-8447-11b8372ed0dd.jpg?asset_id=b95655e4-d032-40b4-9dfe-3ed7a54a2091&amp;img_etag=d806fdfea6dd9230c88b79541e31b39e&amp;size=1024)
+簡單數學模型的前期增長曲線和全球（除中國）感染曲線相似，中國大陸的曲線極不正常，在這麼大的人口之下，即使考慮其嚴格封城隔離措施，也極不可能這麼快達到零成長。
+
+[請參考Hopkins大學全球疫情實時更新數據圖](https://coronavirus.jhu.edu/map.html)
+
+### **亡者想告訴我們什麼？**
+
+#### 從某地約六週254 名官方死亡名單可以看出：
+
+- 不正常的死亡原因及增長曲線顯示中共隱瞞事實的真實性
+- 死亡率與年紀關係不大
+- 此名單大部分是公務人員，黨員，一般民眾死亡人數應遠遠超過這個數字
+- 利用簡單數學模擬倒推，與此254人相關連的感染數可能以數萬甚至數十萬計
+
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
