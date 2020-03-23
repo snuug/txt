@@ -1,10 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農先生首次正式稱呼CCP-Virus
-`2020-03-22 20:15 GM37` [轉載自GNews](https://gnews.org/zh-hant/149057/)
+## 第一夫人梅拉尼婭教你怎樣應對CCPVirus
+`2020-03-22 21:12 GM37` [轉載自GNews](https://gnews.org/zh-hant/149139/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22201017/IMG_2937.mov)
-班農先生接受Fox電台專訪，討論新冠病毒對美國經濟的影響。這是首次公開在正式場合稱呼武漢新冠病毒為CCP-Virus。
+我敦促您通過視頻聊天電話、社交媒體和其他安全方式與家人和親人保持聯繫。請確保遵循CDC以及其他信息和資源的指南，這些指南可在coronavirus.gov或cdc.gov上找到，保持安全並記住，雖然我們很多人都暫時分開了，但讓我們一起面對。
 
 0
