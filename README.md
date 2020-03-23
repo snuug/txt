@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/275814](https://www.guo.media/posts/275814) `2020-03-23T04:10:14`
 ##
 
+**milesguo** 第一夫人梅拉尼娅教你怎样应对CCPVirus<br>https://gnews.org/zh-hans/149124/
+
+[https://www.guo.media/posts/275813](https://www.guo.media/posts/275813) `2020-03-23T04:40:25`
+##
+
 **milesguo** 疾呼：拉响全球危急警报—比新冠病毒可怕更隐匿的“CCP病毒”<br>https://gnews.org/zh-hans/149076/
 
 [https://www.guo.media/posts/275812](https://www.guo.media/posts/275812) `2020-03-23T04:10:15`

@@ -1,41 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “中國病毒”這個鍋，你背不起啊！
-`2020-03-22 23:05 GM30` [轉載自GNews](https://gnews.org/zh-hant/148535/)
+## 中共病毒爆發和掩蓋的時間軸
+`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
 
-**作者：緣布施**
+【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
 
-人有三個基本錯誤不能犯：一是德薄而位尊，二是智小而謀大，三是力小而任重。語本出自《周易·繫辭下》，原為孔子所說。
+*作者: Bethany Allen-Ebrahimian*
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22034434/%E9%98%BF%E6%96%AF%E5%A4%A7%E6%B3%95.jpg)
+*新聞來源: axios.com*
 
-**第一錯：德薄而位尊**
+*翻譯 / 簡評：海闊天空*
 
-“修養淺薄卻身居高位”，“德薄”，不一定是缺德。也可能他個人修養不錯——溫良恭儉讓樣樣俱全，只是缺乏與職位所匹配的品質。
+**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
 
-最近有個新疆小伙子做白宮發布會的民間自媒體實時翻譯，流量巨大！我當時就覺得以後必然出禍事，因為這個缺口有太多的文章可以做。美國白宮發布會實時翻譯；這本是一個功德無量的事情，讓更多的華人了解美國的政策。但是翻譯要有三個原則，信，要真正的信實，規規矩矩，一句話，一個詞都不能變叫信。達，要使你明白通達。還要雅，很有文學藝術的價值。
 
-這個新疆小孩翻譯時情緒及其高漲，激情四射，摻雜著太多的個人意見與情緒，我看了都害怕，這個缺口如果讓中共補缺，後果是及其嚴重的。我們不對個人做判定。從制度上來說這個事情是有漏的。川普說“中國病毒“本意是病毒的發源地是中國，等待事情發酵後就會改為“中共病毒”。這裡面有極高的政治智慧。即便不改中國人也不能認啊，這是中共造的孽啊！而這個新疆的孩子拿了雞毛當令箭，狐假虎威，當時翻譯到中國病毒這個詞時；他像是打了雞血，不斷的重複，重複，挑撥，興奮的唯恐天下不亂。大家譴責的是他的發心，他表示很冤枉，我只是翻譯了川普總統的話，何罪之有啊！一臉的不服氣，不知道他的粉絲是為了去看白宮的信息，而不是他。
 
-德薄而位尊”這句話的意思是，自己的道德與學問不夠，但位置很高。等於我們做生意，找個笨蛋來當總經理，尤其現在人做生意，叫自己的太太當懂事長，支票由太太出名，出了事太太去坐牢。太太們又不懂“德薄而位尊”的道理，自己分明是在家裡做飯的人，現在掛上了董事長名銜，當然非倒楣不可。
+## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
 
-**第二錯：智小而謀大**
+Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
 
-中共對新疆人犯了太多的罪行，要是把這個民族主義與中華民族綁在一起，實在是冤枉。希望這個孩子能明白過來，沒有人嫉妒他的粉絲多。只是美國人向茅坑里扔了一個小石頭，此時此刻大家也能理解，美國虧了這麼多錢，這麼大的災難，誰都有情緒，而這個孩子又把這個石頭撿起來向糞坑里又扔了幾十次，濺起了公憤（糞）。他覺得凡是反對他的都是敵人，他的智慧不到，已經到了敵我不分，是非不分，正義不分。
+為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
 
-亡羊補牢，要把壞事邊好事，明白人要趕緊把這個缺口補上，再讓這個新疆小伙子搞下去，後果及其嚴重。古人云；德不配位，必遭殃禍，這個禍不光殃及他，還有中華民族。歷史上很多重大的事件都是小人物挑起的，正所謂：千里之堤毀於蟻穴。
+我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
 
-“智小而謀大”，自己又沒有智慧，做事想越大越好，生意賺錢越多越好，還想藉刀殺人自己當國王，自己智慧又不夠，計劃倒是大得很，人小鬼大。
+**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
 
-**第三錯：力小而任重**
+**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
 
-“能力不足卻承擔大任”，美國總統發布會的華人橋樑讓這個小伙子給莫名其妙的頂替了，為了幾個碎銀子，做了中共的槍手，中共有70年的間諜與暗戰經驗，殺人如麻，厚黑無底。這個孩子在中共眼裡不過就像逗一隻小狗小貓。現在中共已拿出了倚強凌弱的戰術，引導海外輿論打擊爆料革命。中共已經到了最後的瘋狂，利用一切矛盾欺騙，而偽裝是中共的看家本領。
+**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
 
-如果海外沒有領頭人，六四之後反共三十年都沒有建樹，就是因為群羊無首。在民族大義之前能擱置自己的情緒，即便你想做新疆的國王，也要一起滅共，只有滅共後新疆人才有選票，才能自己決定自己的未來，沒有什麼大一統之說；只有那片土地上的人民幸福不幸福才是最重要的事情。
+**12月30日:**
 
-人世間“名”與“利”兩件事不宜貪求以免招災禍。很多人都在那裡拓展自己的“知名度”。要知道“名”是社會的公器，孟子亦說：“有天爵者，有人爵者。”“天爵”就是名氣。仔細研究起來，不管任何一種名，如果太高了，不符實際，對於此人的人生與福祉，就會發生非常大的障礙，如“譽滿天下，謗亦隨之”，就是這個道理。
+- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
+- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
+- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
 
-（文章內容僅代表作者觀點）
+
+**12月31日:**
+
+- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
+- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
+
+[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
+**1月1日:**
+
+- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
+- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
+
+
+**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
+
+**1月7日:**習近平回應了冠狀病毒的相關事項。
+
+**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
+
+**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
+
+**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
+
+**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
+
+**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
+
+**1月18日:**
+
+- 武漢市衛生健康委員會公佈了4例新病例。
+- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
+
+
+**1月19日:**北京派流行病學家到武漢。
+
+**1月20日:**
+
+- **韓國宣佈了首例病例。**
+- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
+
+
+**1月21日:**
+
+- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
+- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
+- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
+
+
+**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
+
+**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
+
+**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
+
+**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
+
+引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
+
+編者注:這篇報導將隨著更多資訊的報導而更新。
+
+[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
+
+*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0

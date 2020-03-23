@@ -1,105 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒爆發和掩蓋的時間軸
-`2020-03-22 17:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148929/)
+## 復工之後又復陽，可憐百姓再遭殃！
+`2020-03-22 17:57 GM30` [轉載自GNews](https://gnews.org/zh-hant/148439/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/bhLXufudOCFHP/](https://spark.adobe.com/page/bhLXufudOCFHP/)
+**作者：玉米地大姐**
 
-*作者: Bethany Allen-Ebrahimian*
+一家三口全部复陽專家解讀：可能存在“假治愈”情況！
 
-*新聞來源: axios.com*
+“我在門診遇到了一家三口新冠肺炎治愈患者全部’复陽’的病例，且這一家三口中的一位70歲的老人病情較之前反而更加嚴重了。”來自武漢的一位一線醫生向人民日報健康客戶端記者反映。复陽也即治癒的患者，出現了病情反复的情況。
 
-*翻譯 / 簡評：海闊天空*
+該醫生介紹，“這一家三口之前的病情並不嚴重，在定點醫院治療後符合出院標准後隨即出院，但是出院後又出現症狀，來我們醫院門診複查，檢查結果為陽性，已全部入院治療，其中的一位老人病情較之前更為嚴重，還進行了搶救。”
 
-**簡評： Axios整理的這個時間表清清楚楚地揭示了中共在疫情早期瞞報、謊報，向中國人民、向世界人民隱瞞疫情真相的證據。 鐵證如山，不容中共抵賴！ 正是這寶貴的三周時間，讓多少中國人無辜枉死，讓世界多少人民親受生離死別！ 筆筆血債，樁樁悲劇，一定要讓中共償還！**
+浙江第一批援鄂醫療隊醫療總組長、浙江大學醫學院附屬第一醫院感染科主任醫師喻成波也告訴人民日報健康客戶端記者，他也遇見過一些治愈出院後又“复陽”的病例。
 
+“在3月初的時候，有一位68歲的男性來到我們醫院就診，他告訴我們之前就感染了新冠肺炎，在武漢市肺科醫院治療22天，達到了出院標准後出院，但是8天后又出現了發燒的現象。”喻成波介紹，經過之前治療結合患者本身的情況，我們分析該患者可能是因為其本身有高血壓和糖尿病等一些基礎性疾病，所以容易存在一些混合感染的情況，目前該患者已經再次治愈出院，後續觀察一直穩定。
 
+為什麼會有“复陽”患者?
 
-## **時間軸: 中國冠狀病毒爆發和掩蓋的早期時段**
+“’复陽’和病情輕重不存在正比的關係，复陽後病情較之前加重應該是個例。”喻成波告訴人民日報健康客戶端記者，所謂的“复陽”更有可能是，該患者雖然符合了出院標準，但是其體內尤其下呼吸道依然存在病毒，繼而造成了病情有些反复。
 
-Axios編製了中共國爆發冠狀病毒最早幾周的時間軸,強調了中共國掩蓋冠狀病毒開始和結束的時間,並展示了在此期間病毒如何開始在世界各地傳播,包括美國。
+從目前的臨床經驗來看，這部分患者可能是因為病毒沒有完全清除，從而導致的病情反复。喻成波介紹，按照多數病毒的感染規律來說，如果徹底在體內清除的話，近期一般是不會“复陽”的，所以目前所謂“复陽”的病人應該是沒有真正的臨床治愈，因為病毒在下呼吸道可能還存在，但是本身核酸檢測取樣時可能有偏差，會存在取樣差異的情況。
 
-為什麼這件事情如此重要:今年3月發表的一項研究表明,如果中國當局早三周[採取行動](https://www.southampton.ac.uk/news/2020/03/covid-19-china.page),冠狀病毒病例數量可能會減少95%,其地理傳播範圍也會受到限制。
+出現“复陽”患者怎麼辦?
 
-我們編製的這條時間軸是根據《[華爾街日報](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)》(the [Wall Street Journal](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932))、《華盛頓郵報》(the [Washington Post](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/))、《南華早報》(South China Morning Post)等媒體報導的資訊編織的。 這條時間軸顯示,中共隱瞞和遏制該病毒重要措施的拖延持續了大約三周。
+“根據目前的臨床經驗來看，’复陽’病人主要存在兩種情況，一種是所謂’复陽’之後多數症狀並不嚴重，經過救治及病情觀察能再次治愈出院。但也確實存在部分患者’复陽’後病情反而比之前更嚴重的情況。”喻成波介紹，如果出現病毒“复陽”且病情加重的情況，可能是因為該患者本身也存在一些基礎性疾病，從而導致了病情的反复。
 
-**12月10日:**已知最早的冠狀病毒患者之一[魏桂先](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)開始感到不適。
+“我們都知道，前期武漢治愈出院中具備居家隔離的患者允許回家隔離，但是後期就變成集中隔離，並且隔離點都設有醫護人員，因為的確存在出院後再次發生病情變化。”一直奮戰在武漢一線的一位醫護人員告訴人民日報健康客戶端記者，但從目前的臨床經驗來看，有少部分患者可能是因為病毒沒有完全清除，檢驗方法有限，從而導致的病情反复。
 
-**12月16日,**武漢中心醫院收治[雙肺感染](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)、抗流感藥物無效的患者。 工作人員後來瞭解到,他在一個野生動物市場工作,與此次疫情有關。
+“目前臨床上遇到的’复陽’病人本身俱有較強的防範意識，因為有過上次感染及在醫院治療的經歷，一旦出現不適的症狀不會拖很長的時間，而且目前武漢市相關部門面對複陽病例的重視程度都會更高，會很快收治排查及治療。”喻成波提醒，面對目前出現的少部分’复陽’病人，不必驚慌，但還是建議所有治愈出院的患者，在一個月之後來醫院進行一次病毒抗體檢測後續隨訪。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021430/1-1-40.jpg)
+筆者搬來這篇報導，讓讀者看清盜國賊掌控的宣傳媒體，針對出院後復陽病例，是如何自圓其謊的。
 
-**12月27日:**武漢衛生官員[被告知](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/),一種新的冠狀病毒引起了這場疾病。
+該文標題很搞笑頗有郭德綱相聲範，什麼叫假治愈？治愈就是治愈，何來真假之分？假治愈就是沒治愈，玩文字遊戲，將讀者當傻叉對待。如果是假治愈，每天發布的治愈數字公信力何在？零增長是怎麼統計出來的？复陽再住院是算新的確診病例還是不在確診統計數字之內？
 
-**12月30日:**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021403/2-4-24.jpg)
 
-- 武漢中心醫院的高級主任艾芬在微信上發佈了關於這種新病毒的[資訊](https://www.theguardian.com/world/2020/mar/11/coronavirus-wuhan-doctor-ai-fen-speaks-out-against-authorities)。 她因此受到譴責,並被告知不要傳播相關信息。
-- 武漢醫生李文亮也在微信上分享了關於這種新型非典病毒的資訊。 不久之後,他被叫去接受審問。
-- 武漢市衛生健康委員會通報醫院「不明原因肺炎」,並要求醫院上報相關[信息](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
+就算复陽是個例，請問這一家三口出院後是否具備傳染性，是否已經傳染他人？明知核酸檢測取樣會出現偏差，怎麼還繼續用它來檢測患者？
 
+眾所周知，目前針對冠狀病毒沒有特效藥，那麼每天公佈的治愈人數是怎麼治癒的？是中藥、西藥，還是靠患者自身抵抗力？為什麼不向公眾詳細說明？
 
-**12月31日:**
+复陽後再去醫院檢查，請問這筆醫療費該由誰來承擔？患者先前花了那麼多錢就是為了治愈，而不是成為個案的假自愈。既然核酸檢測取樣有偏差、取樣有差異，那麼複查者就不該承擔複查費用和以後的治療費用。
 
-- 武漢衛生官員證實了27起病例,並關閉了一個他們認為與病毒傳播有關的市場。
-- 中共國向世界衛生組織中國辦公室[通報](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)了一種未知疾病的病例。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021451/3-54.jpg)
 
-[!\[\](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)](https://spark.adobe.com/page/bhLXufudOCFHP/images/4e878028-6e9e-4e9b-b340-b3f2d2e8f1cc.png?asset_id=da3d82c9-4c00-40c4-8bf9-8cf3941e78cf&amp;img_etag=f33363ce78811d5871a945e176d738eb&amp;size=1024)
-**1月1日:**
+天天嘲笑歐美防疫措施不給力，你們怎麼不說人家政府對患者救助全部免費，還給全體國民發送美金和各種優待。你們吹噓的社會主義制度優越性體現在哪裡？
 
-- 武漢市公安局對8名在微信上發佈病情信息的醫生[進行訊問](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)。
-- 湖北省衛生健康委員會的一名官員命令[實驗室](https://www.straitstimes.com/asia/east-asia/how-early-signs-of-the-coronavirus-were-spotted-spread-and-throttled-in-china)停止檢測樣本,並銷毀現有樣本。 該實驗室已經確定,這種新型病毒與非典相似。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021511/4-1-9.jpg)
 
+核酸檢測準確率只有50%，就敢拿出來用，無異於草菅人命，居然好意思厚著臉皮向全世界吹什麼“30分出結果”這樣的狼蛋。
 
-**1月2日:**中共國的研究人員繪製了新型冠狀病毒的完整遺傳資訊[圖譜](https://www.wsj.com/articles/how-it-all-started-chinas-early-coronavirus-missteps-11583508932)。 這一資訊直到1月9日才公佈。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22021629/5-2-8.jpg)
 
-**1月7日:**習近平回應了冠狀病毒的相關事項。
+從這篇報導我們看得出來，無論是採訪的記者還是專家、醫護人員，大家都在小心翼翼地繞彎子兜圈子不說實質問題，以免觸碰盜國賊為續命復工所硬性規定的零增長紅線。
 
-**1月9日:**中國[宣布](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)已經繪製了冠狀病毒基因組圖譜。
+正是因為有這個零增長的紅線，才有這樣似是而非、漏洞百出經不起半點推敲的報導出來圓謊、企圖欲蓋彌彰矇騙公眾，其文字背後掩藏的是無數個複陽個案。
 
-**1月11-17日:**重要的中國共產黨會議在武漢召開(湖北省兩會)。 在此期間,武漢衛生健康委員會[堅稱](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)沒有新病例。
+盜國賊的所作所為，應驗了其老乾爹斯大林的那句話：“死一個人是悲劇，死一百萬人是個統計數字。”
 
-**1月13日:**泰國報告了首例冠狀病毒感染病例,這是中共國境外發現的首例冠狀病毒感染病例。
-
-**1月14日:**[世界衛生組織宣佈](https://twitter.com/WHO/status/1217043229427761152?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fworld%2Fworld-health-organization-january-tweet-china-human-transmission-coronavirus),中共國當局”沒有發現這種新型冠狀病毒人傳人的明確證據”。
-
-**1月15日:**後來成為美國首例確診病例的患者離開武漢,[抵達美國](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html),攜帶冠狀病毒。
-
-**1月18日:**
-
-- 武漢市衛生健康委員會公佈了4例新病例。
-- 一年一度的武漢農曆新年宴會, [成千上萬](https://www.thestar.com.my/news/regional/2020/02/06/wuhan-neighbourhood-sees-infections-after-40000-families-gather-for-potluck)的人在一起聚餐。
-
-
-**1月19日:**北京派流行病學家到武漢。
-
-**1月20日:**
-
-- **韓國宣佈了首例病例。**
-- 鍾南山,説明中共國政府進行冠狀病毒輿論宣傳的中共國頂級醫生,宣佈這種病毒可以在人與人之間傳播。
-
-
-**1月21日:**
-
-- **美國疾病控制與預防中心證實了[美國首例冠狀病毒](https://www.cdc.gov/media/releases/2020/p0121-novel-coronavirus-travel-case.html)感染病例。**
-- 共產黨旗艦報紙《人民日報》首次提到了[冠狀病毒的流行](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)和習近平採取的行動。
-- 中共國負責法律和秩序的中共國政法委[警告](https://www.scmp.com/news/china/politics/article/3046984/china-warns-cadres-cover-spread-virus-and-be-nailed-pillar)稱,”任何出於自身利益而故意拖延和瞞報病毒)者,都將永遠被釘在恥辱柱上。 “
-
-
-**1月23日:**武漢和其他三個城市被封鎖。 此時,大約有500萬人離開了這個城市,沒有接受疾病檢測。
-
-**1月24日至30日:**中國慶祝農曆新年。 數以億計的人在全國各地過境探親。
-
-**1月24日:**中共國將[封城](https://www.chicagotribune.com/nation-world/ct-nw-china-coronavirus-wuhan-china-20200124-cqweccz5tzhxzdg3rse25puxqa-story.html)范圍擴大到3600萬人,並開始在武漢迅速修建一所新醫院。 從這一點開始,中共在全國範圍內繼續採取非常嚴格的措施對抗除武漢之外的流行病。
-
-**結論:** 中國現在試圖編造一個故事,告訴世人它是如何處理這場危機的,而事實上,正是其早期行動導致了病毒在全球蔓延。
-
-引伸文章：[國會議員指，中共的掩蓋冠狀病毒真相的惡行是前無古人的！](https://www.axios.com/china-coronavirus-cover-up-wuhan-pandemic-fa894bb8-998d-494b-8e7a-e834f86d2ea9.html)
-
-編者注:這篇報導將隨著更多資訊的報導而更新。
-
-[英文原文鏈接](https://www.axios.com/timeline-the-early-days-of-chinas-coronavirus-outbreak-and-cover-up-ee65211a-afb6-4641-97b8-353718a5faab.html?utm)
-
-*題圖來源：Photo Illustration: Sarah Grillo/Axios Photos: Stringer/Getty Images, Feature China/Barcroft Media via Getty Images, Peng/Xinhua via Getty via Getty Images*
-
-**編輯：【喜馬拉雅戰鷹團】**
+（文章內容僅代表作者觀點）
 
 0
