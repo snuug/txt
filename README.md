@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 马来西亚封城的缘由<br>https://gnews.org/zh-hans/148281/
+
+[https://www.guo.media/posts/275800](https://www.guo.media/posts/275800) `2020-03-23T00:55:24`
+##
+
+**milesguo** 每一个极端分子都是全人类的敌人<br>https://gnews.org/zh-hans/148878/
+
+[https://www.guo.media/posts/275798](https://www.guo.media/posts/275798) `2020-03-23T00:55:26`
+##
+
+**milesguo** 郭文贵先生：对新疆人最坏的人是维奸<br>https://gnews.org/zh-hans/148789/
+
+[https://www.guo.media/posts/275796](https://www.guo.media/posts/275796) `2020-03-23T00:55:28`
+##
+
+**milesguo** 川普总统：中国政府的保密导致美国失去了3到4个月的时间来准备应对措施<br>https://gnews.org/zh-hans/148780/
+
+[https://www.guo.media/posts/275794](https://www.guo.media/posts/275794) `2020-03-23T00:55:30`
+##
+
+**milesguo** Warroom 63：羟氯喹是目前为止发现防止病毒复制的有效药物<br>https://gnews.org/zh-hans/148770/
+
+[https://www.guo.media/posts/275793](https://www.guo.media/posts/275793) `2020-03-23T00:55:31`
+##
+
 **milesguo** 2020年3月21日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/148702/
 
 [https://www.guo.media/posts/275775](https://www.guo.media/posts/275775) `2020-03-22T18:25:21`
