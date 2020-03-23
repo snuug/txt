@@ -1,15 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月22日中共新冠病毒疫情要聞快報
-`2020-03-22 20:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/149059/)
+## 班農先生首次正式稱呼CCP-Virus
+`2020-03-22 20:15 GM37` [轉載自GNews](https://gnews.org/zh-hant/149057/)
 
-沒有中國病毒，只有CCP病毒。總結了CCP病毒的六個特徵；中國許多地方經常發生火災。
-
-
-
-製作：【上天造·滅疫組】
-
-
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22201017/IMG_2937.mov)
+班農先生接受Fox電台專訪，討論新冠病毒對美國經濟的影響。這是首次公開在正式場合稱呼武漢新冠病毒為CCP-Virus。
 
 0
