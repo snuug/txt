@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨病毒3月24日視頻合集
-`2020-03-24 07:55 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/150784/)
+## 中共利用美國媒體，混淆中共冠狀病毒的真相
+`2020-03-24 08:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/150842/)
 
-**全國各地偷偷建造方倉醫院、湖北人民上街抗議、兩個16歲少女一起跳河自盡、離奇醫護人員殺人案件、保了保持0增長醫院不接收！男子表示強烈反抗，與工作人員發生衝突！**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/24083233/Picture-1-63.png)
+今天福克斯新聞網站以一篇標題為“中共利用美國媒體繼續推動中美關於病毒的來源口水戰宣傳”的文章。撰稿人指出，此事升級來自於中國外交部發言人趙立堅的一則十分挑釁的推文，他稱：“美國疾病預防控制中心曾承認，在2019年流感季節，有＃COVID19患者被誤診為流感。3400萬感染者和20,000例死亡。如果COVID19於去年9月開始，而美國一直缺乏檢測能力，那麼會有多少人被感染嗎？美國應該找出解決遏制疫情的途徑。”(推文截圖如上)
 
+這位中共官員趙立堅還轉推了《紐約時報》，《華盛頓郵報》和哥倫比亞廣播公司(CBS) 新聞的報導，這些報導都報導了美國對全球危機的反應以及川普總統堅持認為這次疫情是中共政府的錯誤的內容。 
+編者認為，在相對美國政府為應對疫情蔓延正努力尋找一種有效的方法來遏制，中共卻在重新定位自己，試圖成為全球領導者的地位，中國兩國政府之間的口水戰愈演愈烈。
 
+川普和其政府官員認為北京封鎖了中共冠狀病毒的新聞達數月之久，禁止知情醫生和反對者說出真相。這樣的後果錯過早期警報直接導致付出數千人的生命。因此，進一步抨擊了這個由共產黨掌管的國家。例如，中共政府公開聲稱，中國是唯一準備向其他受災嚴重的國家提供人道主義救濟的國家等。美國川普政府指出它試圖操縱輿論並搶占全球焦點。
 
-武漢肺炎真相3月24日[https://youtu.be/Z5TlJS8Jg0c](https://youtu.be/Z5TlJS8Jg0c) 
-武漢肺炎真相3月23日[https://youtu.be/-V275pBkRkY](https://youtu.be/-V275pBkRkY) 
-武漢肺炎真相3月22日[https://youtu.be/MppPpcs7ouo](https://youtu.be/MppPpcs7ouo) 
-武漢肺炎真相3月21日[https://youtu.be/\_VquBUU1oek](https://youtu.be/_VquBUU1oek) 
-武漢肺炎真相3月20日[https://youtu.be/PNtcBgLkYpQ](https://youtu.be/PNtcBgLkYpQ) 
-武漢肺炎真相3月19日[https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw) 
-武漢肺炎真相3月18日[https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw) 
-武漢肺炎真相3月17日[https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4) 
-武漢肺炎真相3月16日[https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
+點評：早在一月份，郭文貴先生就指出，在中國地區非自然產生的病毒疫情爆發，是中共高層內部統治者，用千千萬萬百姓的生命代價繼進行政治力量的較量廝殺。現在，中共又成功地一方面把疫情推向全球讓全世界民眾面臨滅頂之災，經濟崩潰，一方面在各種輿論造勢，故意高調宣布大陸零感染，讓不知真相的國內包括相當多的國外民眾認為中共政府的能力。特別在海外花大量的錢財籠絡媒體，利用各種如推特等社交平台，混淆視聽，顛倒黑白，打造病毒來自美國軍方的消息。現在作為中共官員趙立堅公開叫囂，中共冠狀病毒最初來源於美國流感的誤診等等，試圖在輿論上進一步打擊川普政府和美國利益。
+
+[原文鏈接](https://www.foxnews.com/world/china-coronavirus-america-media-propaganda-war)
+
+翻譯報導：匿名
 
 0
