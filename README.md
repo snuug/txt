@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/276003](https://www.guo.media/posts/276003) `2020-03-24T17:55:16`
 ##
 
+**milesguo** 参议员卢比奥：中共政府是导致中共病毒扩散的罪魁祸首<br>https://gnews.org/zh-hans/150141/
+
+[https://www.guo.media/posts/276002](https://www.guo.media/posts/276002) `2020-03-24T18:12:57`
+##
+
 **milesguo** 2020年3月14日灭共者说中文字幕合集（下）<br>https://gnews.org/zh-hans/150127/
 
 [https://www.guo.media/posts/276001](https://www.guo.media/posts/276001) `2020-03-24T17:57:00`
