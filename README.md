@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 今年中国经济货币需求降低，大量资金进入股市<br>https://gnews.org/zh-hans/150322/
+
+[https://www.guo.media/posts/276010](https://www.guo.media/posts/276010) `2020-03-24T18:40:19`
+##
+
 **milesguo** 把CHINESE VIRUS改成CCP VIRUS意味着什么？能不能做到<br>https://gnews.org/zh-hans/150247/
 
 [https://www.guo.media/posts/276007](https://www.guo.media/posts/276007) `2020-03-24T17:55:10`
