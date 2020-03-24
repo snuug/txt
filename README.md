@@ -11,6 +11,36 @@
 
 
 
+**milesguo** 把CHINESE VIRUS改成CCP VIRUS意味着什么？能不能做到<br>https://gnews.org/zh-hans/150247/
+
+[https://www.guo.media/posts/276007](https://www.guo.media/posts/276007) `2020-03-24T17:55:10`
+##
+
+**milesguo** 供销社死灰复燃！早在2018年乡村覆盖率就已经悄悄覆盖95%！<br>https://gnews.org/zh-hans/150189/
+
+[https://www.guo.media/posts/276006](https://www.guo.media/posts/276006) `2020-03-24T17:55:12`
+##
+
+**milesguo** 灭掉中国共产党的最简单方法<br>https://gnews.org/zh-hans/150233/
+
+[https://www.guo.media/posts/276005](https://www.guo.media/posts/276005) `2020-03-24T17:55:13`
+##
+
+**milesguo** 《中共肺炎》中共肺炎疫苗去年9月就在研发？财经作家汪浩爆中国疫苗两大疑点!<br>https://gnews.org/zh-hans/150168/
+
+[https://www.guo.media/posts/276004](https://www.guo.media/posts/276004) `2020-03-24T17:55:14`
+##
+
+**milesguo** 2020年3月23日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/150211/
+
+[https://www.guo.media/posts/276003](https://www.guo.media/posts/276003) `2020-03-24T17:55:16`
+##
+
+**milesguo** 2020年3月14日灭共者说中文字幕合集（下）<br>https://gnews.org/zh-hans/150127/
+
+[https://www.guo.media/posts/276001](https://www.guo.media/posts/276001) `2020-03-24T17:57:00`
+##
+
 **milesguo** 郭文贵先生：美国已经统一目标只有一个共同的敌人就是中共<br>https://gnews.org/zh-hans/150108/
 
 [https://www.guo.media/posts/275966](https://www.guo.media/posts/275966) `2020-03-24T07:55:31`
