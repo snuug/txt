@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年3月23日CCP冠狀病毒大流行第59集
-`2020-03-23 23:08 GM33` [轉載自GNews](https://gnews.org/zh-hant/150004/)
+## 雅典娜的希望！草根平民的希望！ “共渡難關，武漢疫情每日熱線”
+`2020-03-24 00:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/150096/)
 
-武漢為複工做準備；CCP全球甩鍋，借用俄媒誣陷美國；供銷社回歸，文革2.0全面開啟；班農戰斗室：中共利用白痴搞信息戰，我們在未來的幾天和幾週將期待什麼
+**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
 
-1+
+0
