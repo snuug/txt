@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/276029](https://www.guo.media/posts/276029) `2020-03-24T22:41:32`
 ##
 
+**milesguo** 21 世纪以黑治国的案例每天都在中国上演<br>https://gnews.org/zh-hans/151794/
+
+[https://www.guo.media/posts/276028](https://www.guo.media/posts/276028) `2020-03-24T22:56:11`
+##
+
 **milesguo** 是什么促使川普总统来关照亚裔美国<br>https://gnews.org/zh-hans/150825/
 
 [https://www.guo.media/posts/276027](https://www.guo.media/posts/276027) `2020-03-24T22:26:07`
