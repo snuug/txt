@@ -11,6 +11,26 @@
 
 
 
+**milesguo** Warroom 67：新冠病毒与中国人无关，那是中共病毒<br>https://gnews.org/zh-hans/149959/
+
+[https://www.guo.media/posts/275930](https://www.guo.media/posts/275930) `2020-03-24T04:26:41`
+##
+
+**milesguo** 历数中共“二十一宗罪”<br>https://gnews.org/zh-hans/149890/
+
+[https://www.guo.media/posts/275929](https://www.guo.media/posts/275929) `2020-03-24T04:26:42`
+##
+
+**milesguo** 2020年3月22日上午十点十分左右美国已经正式宣布和共产党开战、全面开战<br>https://gnews.org/zh-hans/149926/
+
+[https://www.guo.media/posts/275927](https://www.guo.media/posts/275927) `2020-03-24T04:26:45`
+##
+
+**milesguo** 中共病毒攻击下的一线曙光，意大利确诊人数已呈下降趋势<br>https://gnews.org/zh-hans/149896/
+
+[https://www.guo.media/posts/275926](https://www.guo.media/posts/275926) `2020-03-24T04:26:46`
+##
+
 **milesguo** 中共病毒攻击下的一线曙光，意大利确诊人数已呈下降趋势<br>https://gnews.org/zh-hans/149896/
 
 [https://www.guo.media/posts/275916](https://www.guo.media/posts/275916) `2020-03-24T03:42:37`
