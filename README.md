@@ -11,6 +11,21 @@
 
 
 
+**milesguo** <br>随着经济的溃烂，极权中共正在走向纳粹式的战争之路<br>https://gnews.org/zh-hans/151878/
+
+[https://www.guo.media/posts/276031](https://www.guo.media/posts/276031) `2020-03-24T22:41:28`
+##
+
+**milesguo** CCP病毒爆发至今底层现代服务业的悲伤<br>https://gnews.org/zh-hans/151861/
+
+[https://www.guo.media/posts/276030](https://www.guo.media/posts/276030) `2020-03-24T22:41:30`
+##
+
+**milesguo** 孙子兵法第37计<br>https://gnews.org/zh-hans/151828/
+
+[https://www.guo.media/posts/276029](https://www.guo.media/posts/276029) `2020-03-24T22:41:32`
+##
+
 **milesguo** 是什么促使川普总统来关照亚裔美国<br>https://gnews.org/zh-hans/150825/
 
 [https://www.guo.media/posts/276027](https://www.guo.media/posts/276027) `2020-03-24T22:26:07`
