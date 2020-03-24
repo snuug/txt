@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 是什么促使川普总统来关照亚裔美国<br>https://gnews.org/zh-hans/150825/
+
+[https://www.guo.media/posts/276027](https://www.guo.media/posts/276027) `2020-03-24T22:26:07`
+##
+
+**milesguo** 中共媒体耍流氓，嫁祸美国搞栽赃！<br>https://gnews.org/zh-hans/150262/
+
+[https://www.guo.media/posts/276026](https://www.guo.media/posts/276026) `2020-03-24T22:26:10`
+##
+
+**milesguo** 川普总统签发行政令禁止哄抬物价<br>https://gnews.org/zh-hans/151393/
+
+[https://www.guo.media/posts/276025](https://www.guo.media/posts/276025) `2020-03-24T22:26:12`
+##
+
+**milesguo** CDC：中共病毒可在各种表面存活17天<br>https://gnews.org/zh-hans/151238/
+
+[https://www.guo.media/posts/276024](https://www.guo.media/posts/276024) `2020-03-24T22:26:14`
+##
+
+**milesguo** 英提的中国病毒说的危害在哪里？接下来等待英提们的将是什么<br>https://gnews.org/zh-hans/151195/
+
+[https://www.guo.media/posts/276023](https://www.guo.media/posts/276023) `2020-03-24T22:26:18`
+##
+
 **milesguo** 萨游吶喇，2020东京夏季奥运会<br>https://gnews.org/zh-hans/151203/
 
 [https://www.guo.media/posts/276017](https://www.guo.media/posts/276017) `2020-03-24T19:55:14`
