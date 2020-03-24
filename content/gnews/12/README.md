@@ -1,18 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《中共肺炎》疫情持續擴大！ 伊朗累計24811例確診1934死
-`2020-03-24 07:55 GM15` [轉載自GNews](https://gnews.org/zh-hant/150721/)
+## 【武漢肺炎真相】共產黨病毒3月24日視頻合集
+`2020-03-24 07:55 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/150784/)
 
-![伊朗總統羅哈尼（Hassan Rouhani）表示，為了防止疫情擴大，伊朗約有一半的政府職員都留在家裡，而扼止疫情爆發的另一項措施則是將囚犯暫時釋放，直到4月18日為止。（法新社）](https://img.ltn.com.tw/Upload/news/600/2020/03/24/phpc5I3jI.jpg)
-武漢肺炎疫情延燒，伊朗今（24）日又新增1762例確診病例、122人死亡，目前累計24811例、1934人死亡。
+**全國各地偷偷建造方倉醫院、湖北人民上街抗議、兩個16歲少女一起跳河自盡、離奇醫護人員殺人案件、保了保持0增長醫院不接收！男子表示強烈反抗，與工作人員發生衝突！**
 
-綜合外媒報導，伊朗衛生部發言人賈漢普爾（Kianush Jahanpur）今（24）日指出，在過去的24小時內，新增1762例確診病例、122人死亡，另有8913人康復，目前累計24811例、1934人死亡。
 
-伊朗總統羅哈尼（Hassan Rouhani）則表示，為了防止疫情擴大，伊朗約有一半的政府職員都留在家裡，而扼止疫情爆發的另一項措施則是將囚犯暫時釋放，直到4月18日為止。
 
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3111163)
-
-GM15
+武漢肺炎真相3月24日[https://youtu.be/Z5TlJS8Jg0c](https://youtu.be/Z5TlJS8Jg0c) 
+武漢肺炎真相3月23日[https://youtu.be/-V275pBkRkY](https://youtu.be/-V275pBkRkY) 
+武漢肺炎真相3月22日[https://youtu.be/MppPpcs7ouo](https://youtu.be/MppPpcs7ouo) 
+武漢肺炎真相3月21日[https://youtu.be/\_VquBUU1oek](https://youtu.be/_VquBUU1oek) 
+武漢肺炎真相3月20日[https://youtu.be/PNtcBgLkYpQ](https://youtu.be/PNtcBgLkYpQ) 
+武漢肺炎真相3月19日[https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw) 
+武漢肺炎真相3月18日[https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw) 
+武漢肺炎真相3月17日[https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4) 
+武漢肺炎真相3月16日[https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
 
 0
