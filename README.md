@@ -11,6 +11,51 @@
 
 
 
+**milesguo** 郭文贵先生：美国已经统一目标只有一个共同的敌人就是中共<br>https://gnews.org/zh-hans/150108/
+
+[https://www.guo.media/posts/275966](https://www.guo.media/posts/275966) `2020-03-24T07:55:31`
+##
+
+**milesguo** Swagger：再谈人民币兑美元汇率<br>https://gnews.org/zh-hans/150069/
+
+[https://www.guo.media/posts/275965](https://www.guo.media/posts/275965) `2020-03-24T07:55:32`
+##
+
+**milesguo** 广播:2020/3/23 郭文贵先生直播警示好好活着，一年后再想着上班赚钱<br>https://gnews.org/zh-hans/150107/
+
+[https://www.guo.media/posts/275964](https://www.guo.media/posts/275964) `2020-03-24T07:55:33`
+##
+
+**milesguo** 雅典娜的希望！草根平民的希望！“共渡难关，武汉疫情每日热线”<br>https://gnews.org/zh-hans/150055/
+
+[https://www.guo.media/posts/275963](https://www.guo.media/posts/275963) `2020-03-24T07:55:34`
+##
+
+**milesguo** 彭斯：9/10的受检美国人没有感染<br>https://gnews.org/zh-hans/149702/
+
+[https://www.guo.media/posts/275962](https://www.guo.media/posts/275962) `2020-03-24T07:55:36`
+##
+
+**milesguo** 墙内的中国人和海外华人在美国和共产党全面开战的情况下需要做好哪五条<br>https://gnews.org/zh-hans/150034/
+
+[https://www.guo.media/posts/275961](https://www.guo.media/posts/275961) `2020-03-24T07:55:37`
+##
+
+**milesguo** 《中共肺炎》武汉「0确诊」破功 竟是医师中镖！中媒：不排除院内感染<br>https://gnews.org/zh-hans/150049/
+
+[https://www.guo.media/posts/275960](https://www.guo.media/posts/275960) `2020-03-24T07:55:38`
+##
+
+**milesguo** 《军情动态》美红旗军演 赫见F-15E战斗机挂载新型核弹!<br>https://gnews.org/zh-hans/150033/
+
+[https://www.guo.media/posts/275959](https://www.guo.media/posts/275959) `2020-03-24T07:56:20`
+##
+
+**milesguo** 川普总统谈将中共国拒之门外的原因<br>https://gnews.org/zh-hans/149649/
+
+[https://www.guo.media/posts/275958](https://www.guo.media/posts/275958) `2020-03-24T07:56:21`
+##
+
 **milesguo** 2020年3月23日CCP冠状病毒大流行第59集<br>https://gnews.org/zh-hans/149998/
 
 [https://www.guo.media/posts/275937](https://www.guo.media/posts/275937) `2020-03-24T04:40:22`
