@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/275915](https://www.guo.media/posts/275915) `2020-03-24T03:42:39`
 ##
 
+**milesguo** 川普总统痛斥《华盛顿邮报》的不实报道<br>https://gnews.org/zh-hans/149400/
+
+[https://www.guo.media/posts/275913](https://www.guo.media/posts/275913) `2020-03-24T03:56:53`
+##
+
 **milesguo** 印度、日本、美国会结成准军事联盟，一起胖揍中共<br>https://gnews.org/zh-hans/149681/
 
 [https://www.guo.media/posts/275911](https://www.guo.media/posts/275911) `2020-03-24T03:43:40`
