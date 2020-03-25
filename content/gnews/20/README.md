@@ -1,21 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【武漢肺炎真相】共產黨病毒3月24日視頻合集
-`2020-03-24 07:55 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/150784/)
+## 史蒂夫·班農疾呼：美政府需封城全力抗擊中共病毒
+`2020-03-24 08:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/150854/)
 
-**全國各地偷偷建造方倉醫院、湖北人民上街抗議、兩個16歲少女一起跳河自盡、離奇醫護人員殺人案件、保了保持0增長醫院不接收！男子表示強烈反抗，與工作人員發生衝突！**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/24084243/Picture-1-64.png)
+昨天白宮前首席戰略家史蒂夫·班農（Steve Bannon）在福克斯新聞頻道（Fox News )中，就關於聯邦政府如何應對冠狀病毒大流行的探討中，甚為擔憂地疾呼：美國聯邦政府應該盡快做出全面停工封城，全力以赴抗擊中共病毒疫情的進一步蔓延。他明確指出，面對CCP病毒大流行疫情及其引發的經濟危機，必須全力以赴速戰速決解決危機。
 
+班農說：“如果你看看我們所處的局勢，就必須分為三塊。首先是疫情大流行；其次是疫情引發的經濟危機，包括供應鏈上的短期和深層次問題；然後是世界上所有資產類別中每個金融市場之上的金融危機。”
 
+“我認為我們沒有數月的時間來應對危機。我的建議是全力出擊，不要去緩解病毒疫情，不要去降低傳播速度，而是立刻阻止病毒的傳播。現在就徹底封城全力抗擊該病毒，並利用刺激措施來彌合經濟危機。這樣做法可能需要2萬億美元，也可能需要3萬億美元。讓現金注入到小企業，幫助低收入家庭。“
 
-武漢肺炎真相3月24日[https://youtu.be/Z5TlJS8Jg0c](https://youtu.be/Z5TlJS8Jg0c) 
-武漢肺炎真相3月23日[https://youtu.be/-V275pBkRkY](https://youtu.be/-V275pBkRkY) 
-武漢肺炎真相3月22日[https://youtu.be/MppPpcs7ouo](https://youtu.be/MppPpcs7ouo) 
-武漢肺炎真相3月21日[https://youtu.be/\_VquBUU1oek](https://youtu.be/_VquBUU1oek) 
-武漢肺炎真相3月20日[https://youtu.be/PNtcBgLkYpQ](https://youtu.be/PNtcBgLkYpQ) 
-武漢肺炎真相3月19日[https://youtu.be/kY1GCJ0N1Bw](https://youtu.be/kY1GCJ0N1Bw) 
-武漢肺炎真相3月18日[https://youtu.be/mKzq3ZEKryw](https://youtu.be/mKzq3ZEKryw) 
-武漢肺炎真相3月17日[https://youtu.be/D2NjrDaMEa4](https://youtu.be/D2NjrDaMEa4) 
-武漢肺炎真相3月16日[https://youtu.be/fH75TXlijA8](https://youtu.be/fH75TXlijA8)
+最後，他進一步強調：“無論是要花兩個星期還是四個星期，我們要很艱難但是一定要快馬加鞭地度過這場危機。”
+
+譯評：不容置疑，所有支持爆料革命的人們心目中，班農先生可以說是我們華人的英雄。相信歷史會進一步驗證。當然，班農先生更是熱愛美國，希望美國再一次偉大的政治家。在此次的中共疫情肆略全人類的危機之時，班農先生對此事的擔憂，提出的解決方案，的確讓人意識到，此中共疫情危害之大，之廣令人細思恐極🙏🙏🙏。
+
+[原文鏈接](https://www.realclearpolitics.com/video/2020/03/22/steve_bannon_we_need_a_full_shutdown_right_now_go_full_hammer_on_the_virus.html)
+
+翻譯報導：匿名
 
 0
