@@ -1,177 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共早期的失誤和掩蓋又被起底
-`2020-03-25 14:16 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/152778/)
+## 國防生產法案—美國反擊的集結號
+`2020-03-25 15:36 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/152665/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/lIbdlvc5FLzqu/](https://spark.adobe.com/page/lIbdlvc5FLzqu/)
+**【中英对照翻译】** [https://spark.adobe.com/page/t2ugv8tcEQmdL/](https://spark.adobe.com/page/t2ugv8tcEQmdL/)
 
-*新聞來源:華盛頓郵報，* 2020年2月1日
+*BY BRIG. GEN. ROBERT S. SPALDING*
 
-*作者：Gerry Shih, Emily Rauhala and Lena H. Sun*
+*罗伯特·s·斯伯丁准将著*
 
-*翻譯: freedust*
+*翻译：freedust*
 
-*PR/簡評:海闊天空*
+*简评：freedust*
 
-簡評：破除謊言最有力的工具是真相。 西方媒體已經開始行動了，開始去探究武漢疫情的來龍去脈。 雖然中共大內宣、大外宣、沉默力量一起出動，混淆視聽、轉移焦點，但真相就在那裡。
+*PR： 海阔天空*
 
-每一次探究，都會接近真相。 每一次探究，都會做實中共的罪行。
+**斯伯丁将军准确地定义了国防生产法案在美国应对疫情和美国安全战略调整及革新中的重要作用。在全球化过程中，制造业的外流正是这次中共病毒疫情爆发，让美国处处限于被动的根本原因。而美国经济的脱实向虚，过分注重于金融衍生品和IT娱乐产品的国策， 也正是酿成现在史无前例的金融海啸的原因之一。这次疫情已经让美国警醒了，通过国防生产法案可以有效的修补美国断裂的产业链，并再次开动美国实体经济的发动机，这无疑会减少美国社会中下层的债务危机、增加就业率，并对美国整个社会财富进行重新平衡。从长远来看，这对美国具有重要的历史意义。**
 
-### **中共早期的失誤和政府掩蓋很可能使冠狀病毒的傳播更為廣泛迅速**
+**现代战争的方式已经彻底从船坚炮利的时代走出来了，由数字驱动并关联的新型战争模式将代替原有的立体战争模式。而数字安全，无论从现在中共发动的超限战来看，还是在常规，抑或核战中都将起到决定性作用，斯伯丁将军已经敏锐的注意到了这一点。**
 
-北京—大致是在中國農曆新年吧，潘春濤(音譯)感受到了節日的氣氛。 他知道有一份與他所在城市武漢有關的出現病毒的新聞。 但是本地官方強烈要求大家保持冷靜。 他們說並沒有證據顯示(病毒)可以人傳人。 官方說多日沒有出現相關病例。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/f6dc06ae-7d31-4f83-ba7a-f8d54b9ca12b.png?asset_id=ac2a0a45-ab6a-44da-ab92-97658a90a909&amp;img_etag=108f3c29d21eb6b11cc8b9fb95c6ec7a&amp;size=1024)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/f6dc06ae-7d31-4f83-ba7a-f8d54b9ca12b.png?asset_id=ac2a0a45-ab6a-44da-ab92-97658a90a909&amp;img_etag=108f3c29d21eb6b11cc8b9fb95c6ec7a&amp;size=1024)
-在1月16日，76歲的老人離開他兩居室的公寓去參加一個政府組織的集會。
+**新时代来了，未来的5G、海量数据时代将重新定义这个世界，虽然这个序幕并不太好，但前景是光明的。一个国家的先进技术究竟用于正面、光明的、造福民众的方向，还是负面、阴暗的、奴役民众的方向，直接会定义这个政权选择的性质。美国现在所要进行的，和中国已经在执行的正好印证了这两点。**
 
-“我們告訴他別去，因為我們在微信上看到一些流言說有醫生被感染了，”潘的女婿張思強(音譯)說。 “但是他堅持要去。 他說政府說沒有問題，沒有新增病例。 ”
+**只有把更多的资源和权利赋予这个国家动能最强、创造力最强、也是数量最庞大的中下层公民，才会使这个国家稳定并焕发出无与伦比的让人赞叹的文明光芒，而那些杀鸡取卵，涸泽而渔的政权将必然走向颠覆和灭亡。**
 
-潘先生和他女兒可能已經變成新增的感染新型冠狀病毒的14300例患者之一了，這次疫情爆發在當時已經造成至少304人死亡，而後傳遍多過20個國家，造成全球經濟崩潰，致使史無前例的中國湖北省內5500萬人被禁閉家中。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/d2d0be55-352b-418a-93e7-639752eb99d2.png?asset_id=3903ace9-1b64-4687-875f-d71efa91e189&amp;img_etag=ce89145b3a3c8d8e5e9ede0e3c297d0a&amp;size=2859)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/d2d0be55-352b-418a-93e7-639752eb99d2.png?asset_id=3903ace9-1b64-4687-875f-d71efa91e189&amp;img_etag=ce89145b3a3c8d8e5e9ede0e3c297d0a&amp;size=1024)
-在12月中至1月中這段關鍵時期內，中國人有數以百萬計的人匯成人流,旅遊出行並以此為生活常態，潘先生就是其中之一。
+## 冠状病毒暴露了美国真正的国家安全漏洞
 
-正是在這段時間，中國官方開始著手應對一種在武漢發生的新型傳染病的威脅，但是他們讓公眾知之甚少——即便是在農曆新年前數以億計的中國人假期出行的這段時間內。
+从中国加入世贸组织开始，美国本土制造业向海外的迁移就对美国的安全造成了伤害。当前，冠状病毒的爆发和它迅速扩散中断了全球产业链，并使我们警醒，工业能力是任何国家安全的组成部分。
 
-關於(疫情)最初幾周的一份分析報告——由來自於官方報告，中國醫護專業人員的賬戶洩露，發佈的新的科學數據和對公共衛生官員、傳染病學專家的採訪彙集而成——揭露了負擔過重的中共衛生官員可能犯下的錯誤。
+美国绝大多数药品供应都依赖于中国的非市场经济。中国禁止了所有医疗专业人员用来保护自己免遭疫情侵袭的口罩的出口。除此之外，美国军方还需要从中国采购大量零部件和供应品，这些零部件和供应品都容易受到供应链中断的影响。
+[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)
 
-這也突出了以政治維穩壓倒一切為首要任務的官僚文化如何大大的增加了病毒傳播的速度和廣度。
 
-“很明顯，一個更為強壯的健康體系可以拯救很多中國人的性命和財產,”前美國疾病控制與防疫中心主任，湯姆·弗里登（Tom Frieden）說。
+尽管如此，冠状病毒引起的中断提供了一个修复我们国家安全明显弱点的机会，同时可以为我们的经济提供急需的动力。
 
-出聲示警的醫療專業人員被員警拘捕。 官方主要媒體數周內對疫情爆發隻字未提。 黨員幹部致力於維穩和奉迎黨魁習近平，而(疫情)危機已經惡化。
+Rather than quantitative easing — which has been the main policy option in recent financial crises — it’s time to dust off fiscal stimulus to help kick-start economic growth in the coronavirus aftermath.
 
-“中國的公共醫療系統已經現代化了，但是中國的政治系統卻沒有。 ”華盛頓戰略與國際研究中心（Center for Strategic and International studies）中國研究主管裘蒂·布蘭切特（Jude Blanchette）說。 “如果發生什麼事,就會出現倒退。 ”
+该放弃量化宽松了——这个在近来金融危机中用到的主要政策选项——在冠状病毒事件之后，是时候重新启动财政刺激来帮助启动经济增长了。
 
-**零號病人**
+The Defense Production Act (DPA) and DPA Title III program give the Department of Defense (DOD) broad authority to conduct industrial policy in support of national security. These authorities and a portion of the DOD budget could be used to stimulate the reshoring of critical manufacturing capabilities such as pharmaceutical supply, semiconductors and microelectronics.
 
-在12月中，武漢的病人開始會出現一種發冷的癥狀：高燒，呼吸困難和咳嗽。
+国防生产法案和国防生产法案第三条赋予了国防部广泛的权利来实施工业政策以支持国家安全。这些授权和国防预算的一部分可以用于刺激关键制造能力的回流，如药品供应、半导体产品和微电子产品。
 
-這看起來像病毒性肺炎。 但是這個有位於中國正中的1100萬人口的城市的醫生無法精準定位(病毒的)來源。 神秘病毒的流言開始在中國的社交媒體傳開，尤其在醫療工作者間。
+Throughout its history, the U.S. government has seized railroads, coal mines, even department stores. While today’s challenges do not require such drastic measures, the DPA authorities are broad: “There are three core authorities granted to the president: Title I, priorities and allocations, in which persons and businesses could be required to prioritize national defense when accepting contracts for materials and services; Title III, expansions of productive capacity and supply, production of goods and materials vital to national security (that) can be incentivized (loans, guarantees, privatized industrial facilities); Title VII, general provisions, ability to establish, block agreements both domestic and foreign that threaten national security, and establish a core group of volunteers from industry that can be called upon to serve.”
 
-這些現在都明晰了，中共官方(那時)很快就知道有事不對頭。
+纵观历史，美国政府曾经回收了铁路，煤矿，甚至百货公司的控制权。尽管今天的挑战不需要采取如此严厉的措施，但DPA的权利是广泛的：“他授予总统三项核心权力：第一条，优先事项和分配，其中个人和企业在接受材料和服务合同时可以被要求优先考虑国防；第三条，扩大生产能力和供应，对国家安全的至关重要的产品和材料可以进行鼓励（贷款，担保，私有化的工业设施）；第七部分，总则，建立和阻止国内外威胁国家安全的协议的能力，并建立一个核心团队，由来自行业的志愿者组成，他们可以被要求服务。”
 
-一名自稱在醫院承包的實驗室工作的匿名實驗室技術人員周四在中國多個新聞網站上發表的一篇文章稱，他的公司已經收到了來自武漢的樣本，早在12月26日上午就得出了一個驚人的結論。 這些樣本中含有一種新的冠狀病毒，與SARS(嚴重急性呼吸系統綜合症)有87%的相似性。
+During the Cold War, President Eisenhower used his understanding of the power of infrastructure to advocate for the National Highway System. While the primary motivation for the infrastructure program was not national security, the emergency evacuation of cities in the event of nuclear attack was cited as a purpose for the project.
 
-該技術員寫道，一天后，實驗室負責人召開緊急會議向武漢衛生官員和醫院管理層回報情況。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/5174ec48-8371-4461-9d00-224843fe1e2e.png?asset_id=dd41c715-7a50-4e39-b965-4138e21db5bf&amp;img_etag=44c9cb24efcf30bf4cc846629532372b&amp;size=1024)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/5174ec48-8371-4461-9d00-224843fe1e2e.png?asset_id=dd41c715-7a50-4e39-b965-4138e21db5bf&amp;img_etag=44c9cb24efcf30bf4cc846629532372b&amp;size=1024) 一位女性在1月12日離開武漢一家醫療中心,此時冠狀病毒病例數開始上升 
-華盛頓郵報無法獨立核實這名技術人員的帳戶,其中包括大量的檢測結果圖像和技術人員當時發送的資訊。 中國以外的科學家後來證實，這一基因序列與非典的基因序列驚人地相似。
+在冷战期间，艾森豪威尔总统利用对基建力量的理解来倡导建设国家高速公路系统。虽然，基建项目的主要动机不是国家安全，而该项目的其中一个目地是在核打击事件中紧急疏散城市居民。
 
-至12月30日夜，消息開始傳開。
+To provide a near-term boost to the economy, the executive branch could order federal departments and agencies to fast-track infrastructure projects currently stalled — such as additions to the U.S. electrical grid and the construction of high-speed rail. These projects have hundreds of billions of dollars in private investment waiting. The projects languish in agencies including the Department of Transportation, while bureaucrats hold U.S. economic growth and national security hostage.
 
-在下午5:43，李文亮，武漢中心醫院的一名眼科專家，在一次私人聊天中，他告訴他醫學院的校友，有7人感染了他認為是SARS的病毒，而且他的醫院已有一人在隔離中。
+为了短期提振经济，行政部门可以命令联盟部门和机构快速推进目前停滞不前的基础设施项目—比如国家电网的扩建和高速铁路的建设。这些项目正等待着数千亿美元的私人投资。这些项目在包括运输部在内的各个机构中日渐被冷落，而官僚们把美国的经济增长和国家安全作为人质。
 
-他和其他人後來在網上分享的聊天記錄顯示，他發佈了一段RNA片段，發現患者的呼吸道中存在“SARS冠狀病毒”和大量細菌菌落。
+Research and development funding — which is at the lowest point since the Cold War — and STEM (science, technology, engineering, math) education grants would be another good investment for DOD dollars. The latest Defense Innovation Unit (DIU) report noted that the Chinese government “is executing a multi-decade plan to transfer technology to increase the size and value-add of its economy, currently the world’s 2nd largest. By 2050, China may be 150 percent the size of the U.S. and decrease U.S. relevance globally.”
 
-同一天晚上，武漢公共衛生管理部門採取了行動。
+研究和发展资金——现在已经降至冷战后的最低点，而STEM(科学，技术，工程学，数学)，教育补助金将是国防部的另一项良好投资去向。国防创新小组最新的报告显示中共政府正在执行一个多年的计划，通过技术转让来扩大经济的体量和增加其附加值，当前其体量为世界第二。至2050年，中国可能达到美国经济体量的1.5倍，并降低美国的全球影响力。
+[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)
+Boosting investment dollars for high-tech innovation would help America retain the lead in technology superiority and provide fodder for private-sector economic growth.
 
-衛生委員會向所有醫院發出緊急通知,告知存在不明原因的肺炎，但未提及SARS或冠狀病毒，並命令所有部門立即收集有關已知病例的資訊，並向其上級彙報。
+提高高科技创新的投资将有助于美国保持技术优势的领先地位，并为私营经济增长提供动力。
 
-**27個病例**
+Finally, investing in a nationwide, secure 5G network, like that called for in the National Security Strategy, would protect American data and prevent the outflow of an estimated $300 billion to $600 billion of intellectual property lost each year to Chinese theft.
 
-武漢神秘疫情的第一份官方報導來自12月30日，彼時，中國當局證實他們正在調查27例病毒性肺炎病例。 武漢衛生官員將這次的疫情與華南海鮮批發市場聯繫起來，並迅速將其關閉，該市場是商家購買各種活體動物的地方。
+最后，像《国家安全战略》(National Security Strategy)中所要求的那样，投资建设一个全国性的安全5G网络，将保护美国的数据，并防止每年因中国的盗窃行为而损失的大约3000亿至6000亿美元的知识产权流失。
 
-中國官方開始尋找其他可能被感染的人，但是他們把焦點集中在那些得肺炎或者與海鮮和動物市場有關的人身上。 他們沒在意那些有其他呼吸道疾病的病人。 後來，專家和官員們才懷疑還有很多其他的感染者。 專家們談到,那些人病的很輕，接受一些治療后就出院了，而這讓病毒進一步傳播。
+While the 20th century equated national security with bombs, bullets and geography, national security in the 21st century is focused on 1s and 0s — the basis of our digital world — and dollars and cents. Reprioritizing spending away from weapons and towards maintaining U.S. economic, scientific and technological superiority will put us on the Eisenhower path. The investment in the U.S. during the Eisenhower years resulted in economic growth and prosperity.
 
-在新冠疫情日益嚴重的時候，中國人開始爭搶著去囤積口罩和其他物質，商店常常一搶而空。
+在20世纪，国家安全等同于炸弹、子弹和地理，而在21世纪，国家安全则集中在数字世界的基础的0和1，以及美元与美分上。重新把开支的优先次序从武器转向维持美国的经济、科学和技术优势，将使我们走上艾森豪威尔的道路。艾森豪威尔时代对美国的投资带来了经济增长和繁荣。
 
-根據周三發表在《新英格蘭醫學雜誌》(New England Journal of Medicine)上的一項研究，中國科學家後來證實，許多輕微感染的存在顯然對控制疫情構成了挑戰。
+With economic aftershocks caused by coronavirus, this fiscal policy for national security will reorient the U.S. toward industrial capability and economic growth.
 
-在12月31日，中國政府通知了世界衛生組織駐中國辦公室關於武漢神秘肺炎病例的事項。 世衛組織官員發給北京當局一系列關於疫情的問題並提供了支援。
+由于冠状病毒造成的经济余震，这项国家安全的财政政策将使美国重新定位于工业能力和经济增长。
 
-正當科學家和公共衛生專家努力去收集更多信息的時候，中國安全部門卻試圖掩蓋這一切。
+[新聞來源](https://thehill.com/opinion/national-security/487769-coronavirus-unmasks-americas-real-national-security-vulnerabilities)
 
-在1月1日，武漢公安局以發佈和傳播關於武漢醫院收治類似SARS病例為由，傳喚了8個人，新聞聯播對這次拘留進行了報導，這是一個數千萬人收看的新聞節目。
-
-警方隨後在國有媒體新華社上發佈了一個令人心寒的警告。
-
-“警方號召所有的線民不要編造謠言，傳播謠言，不要相信謠言，”武漢當局說，並補充道，他們鼓勵線民“一起營造一個和諧，乾淨和正能量的網路空間。 ”
-
-那天拘捕的8個人全部是醫生，包括武漢的眼科專家，李文亮醫生。
-
-中國東部的外科醫生和科普作家王光寶（Wang Guangbao）後來表示，有關SARS樣病毒的猜測在1月1日左右在醫學界盛行，但拘留事件使許多人，包括他本人，都沒有公開談論它。
-
-他說：“這8个人被拘捕讓我們所有醫生都感到身處危險中。 ”
-
-**59個病例**
-
-在全球的注視下，中國科學家爭分奪秒的去解密病毒。 在1月9日，已有59例病例登記在冊，中國宣佈已經分離並掌握了新型冠狀病毒的基因序列，證實了這一神秘疾病與SARS和中東呼吸綜合征（MERS）有關的傳言。 他們將其發佈在一個可公開存取的基因資料儲存庫中，使科學家能夠快速開發出診斷和確認人類感染的測試劑。 他們的工作得到了全球科學家和公共衛生專家的讚賞——但是其本身存在資訊缺失。
-
-流行病學專家需要知道患者的細節信息，他們的癥狀，和其他人口學特徵，比如年齡、性別和基本醫療條件，這些都可能會增加他們患呼吸道疾病的風險。
-
-這些資訊是疾病偵探在疫情爆發的早期階段進行評估的最佳方法，以確定病毒傳播的快慢以及潛在的致命程度。
-
-流行病學家、約翰霍普金斯大學健康安全中心（Johns Hopkins Center for Health Security）高級學者詹妮弗·努佐（Jennifer Nuzzo）說，我們需要知道每個病例的首次發病時間，這樣才能判斷疫情何時發生。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/927a22df-9b1c-48cb-93b7-a858f10884d8.png?asset_id=95022793-8abe-43c2-8f79-1e3f45f28725&amp;img_etag=f7af598ccc3f59dba440c322d3726f98&amp;size=1024)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/927a22df-9b1c-48cb-93b7-a858f10884d8.png?asset_id=95022793-8abe-43c2-8f79-1e3f45f28725&amp;img_etag=f7af598ccc3f59dba440c322d3726f98&amp;size=1024) 1月17日,醫務人員將武漢的患者轉移到金銀潭醫院。 
-
-
-科學家和研究人員說，有關誰患病以及何時患病的關鍵資訊直到幾周後才公開發佈。
-
-《新英格蘭醫學雜誌》（The New England Journal of Medicine）週三發表的一項研究報告顯示，去年12月10日至今年1月4日期間在武漢發病的第一批425名患者中，有很多人被延誤入院治療。 由中國疾病預防控制中心的研究人員領導的這項研究表明，這些延誤表明要儘早發現和分離出病情是多麼困難。 人與人之間的傳播最早於12月中旬發生，每7天病例數增加一倍。
-
-然而在武漢，地方幹部把焦點放在計劃好的，於1月11日至1月17日舉行的，每天時長一天的共產黨會議上。 在此期間，武漢市衛生委員會每天聲稱沒有新的感染或死亡。 1月18日午夜過後10分鐘，這個委員會宣佈有4個新感染病例。 官員們仍然低估了人與人之間傳播的風險。
-
-即使是在泰國和韓國出現類似病例之後，武漢的官方還是組織了像潘先生參加的那樣的節日購物活動。 他們在市中心舉辦了一個有4萬個家庭參加的聚餐活動。 他們向當地景點分發了數十萬張門票。
-
-芝加哥大學（University of Chicago）研究中國治理體系的知名學者楊大力（Dali Yang）說，一切都歸咎於不收集案例，不讓公眾知道。 他們還推動事情發展,想要裝門面。
-
-因為政府不發佈警告，人們依然保持出行的狀態——不管是在中國國內，還是國外。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/cfeb0726-3bba-4a00-a7a7-b30a00187a31.png?asset_id=f97c1f2d-d3d8-4e5d-a55b-cf2c0e2fcd68&amp;img_etag=97b7f9fa6bb9ae11f18df32d1ec80856&amp;size=2890)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/cfeb0726-3bba-4a00-a7a7-b30a00187a31.png?asset_id=f97c1f2d-d3d8-4e5d-a55b-cf2c0e2fcd68&amp;img_etag=97b7f9fa6bb9ae11f18df32d1ec80856&amp;size=1024) 全球確診病例 
-1月6日，光伏設備行業知名銷售高管楊軍前往武漢參加一個會議，一周后乘火車經上海返回北京。
-
-據北京一所學校晚些時候發佈的一份聲明稱，在他住進醫院的前一天，他和女兒一起參加了一個學校活動，並和數百名其他家長一起坐在一個演講廳里。 該聲明要求所有家長自我隔離。
-
-楊先生於本周病故。
-
-1月20日，當超過4億中國人準備回家過年時，氛圍變了。
-
-**221個病例**
-
-當天上午，武漢公共衛生部門的官員首次改變了他們的日常聲明的措辭，刪除了之前提到的有限的人際傳播。
-
-當天晚些時候，83歲的著名肺科醫生、非典(SARS)危機的老將、民族英雄鍾南山出現在官方媒體上，宣佈該病毒實際上是可以在人與人之間傳播的。 北京當局似乎終於做出了反應。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/0ba3cb86-bd30-4892-9277-e34060c87da3.png?asset_id=9b09aefd-bdb0-4858-b48d-992e1ce693f8&amp;img_etag=d20a49bdf0b33b07c47f60ca47075e48&amp;size=1024)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/0ba3cb86-bd30-4892-9277-e34060c87da3.png?asset_id=9b09aefd-bdb0-4858-b48d-992e1ce693f8&amp;img_etag=d20a49bdf0b33b07c47f60ca47075e48&amp;size=1024) 11.1月11日,一輛急救車離開已關閉的華南海鮮批發市場 
-幾周以來，共產黨的官方報紙《人民日報》一直廣泛報導習近平2020年議程，包括他全面的扶貧工作。 1月21日，該報紙在第2頁的一個欄目中首次提到了流行病和習近平的反應。
-
-習近平向幹部們發出了“重要指示”，“首先要把人民的健康和安全放在首位”，該報告指出，此時全國已經有224例病例，同時這種疾病已經傳播到泰國，日本和韓國。
-
-同一天，共產黨最高政法委在評論中警告說，任何掩蓋這種流行病的官僚都會“被釘在永恆恥辱的支柱上”。
-
-突然間，這個政府似乎注意到了這次疫情危機的不斷迫近。
-
-幾天之內，整個武漢和附近幾個城市——面積與華盛頓州相當，人口超過5000萬——都將被封鎖，這是一項前所未有的遏制傳播的嘗試。
-
-《華盛頓郵報》在中國武漢對兩人進行了採訪，當時武漢處於封鎖狀態，有關部門正在努力控制致命的冠狀病毒爆發。
-
-武漢附近至少有三家急救醫院破土動工。 全國範圍內的城際巴士停運。 許多城市延長了新年假期，推遲了春季學期,並鼓勵居民不要急著回去工作。 全國各地的醫院都派出志願醫療隊到隔離區來加強醫療力量。
-
-隨著報告的病例數量達到4500例，武漢及周邊地區的官員開始公開接受指責。
-
-1月27日，武漢市市長周顯旺在接受官方媒體採訪時說，他的上級沒有授權他提前披露疫情。 上週五，級別高於市長的武漢市委書記承認，他有責任未能早些時候採取嚴格的預防措施。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/6a9b27ce-6085-4e29-a3d4-00663068efa9.png?asset_id=536d022f-943e-4b30-aec2-acacaca677f5&amp;img_etag=9a9c1915052846d91a3c5ed51fef05f6&amp;size=1024)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/6a9b27ce-6085-4e29-a3d4-00663068efa9.png?asset_id=536d022f-943e-4b30-aec2-acacaca677f5&amp;img_etag=9a9c1915052846d91a3c5ed51fef05f6&amp;size=1024) 東京的官員在一個健康檢查站里為從武漢出發的乘客提供服務。 
-馬國強在接受官方媒體採訪時對中國表示：“我處於負罪，羞愧和自責狀態中。 “
-
-最高人民法院還發表了一份不同尋常的聲明，對武漢警方拘留8名科學家做出警告。
-
-高等法院表示，如果當時的社會相信這些『謠言』，戴上口罩，使用消毒劑，避免像SARS爆發那樣去野生動物市場，也許這就意味著我們今天可以更好地控制冠狀病毒。 謠言止於公開透明。
-
-1月3日，被拘留的眼科醫生李在簽署了一份承認其違法行為的檔后，被武漢警方釋放。 他趕忙回去看病人，但自己卻被冠狀病毒感染了。 今天，他仍然在他的工作場所——武漢中心醫院接受重症監護。
-
-**12000例且還在增長**
-
-在隔離區內，醫院在社交媒體上公開請求捐贈口罩和防護服等基本設備。 武漢居民普遍反映檢測設備嚴重短缺，這使得實際病例數量可能遠遠大於官方公佈的確診數位。
-
-在城市醫院擠滿了尋求冠狀病毒檢測的患者后，地方當局本周宣布，醫院將只對那些表現出嚴重癥狀的患者進行檢測並只從較小的社區診所轉診病人。
-[!\[\](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/144ec21d-0d0a-4db3-9cbd-bfc2db6686e9.png?asset_id=23f3aa57-303b-4c97-a54e-7e60afef4d0c&amp;img_etag=4746727fad08854101bb80b031bcd768&amp;size=3889)](https://spark.adobe.com/page/lIbdlvc5FLzqu/images/144ec21d-0d0a-4db3-9cbd-bfc2db6686e9.png?asset_id=23f3aa57-303b-4c97-a54e-7e60afef4d0c&amp;img_etag=4746727fad08854101bb80b031bcd768&amp;size=1024)
-入院的病人被擠進醫院的病房，病床被擠進擁擠的走廊。 中國知名視頻博主陳秋實（音）說，一些病人死在等候區。 他一直在武漢的醫院裡漫遊和拍攝。 潘春濤(音)從集市上回來,六天後就發燒了。 張思強(音)說，他的女兒潘霞(音)第二天就病倒了，她的咳嗽越來越嚴重。 張思強認為他的岳父不應該在1月16日出門。
-
-在過去的一周中，張把他的岳父和他的妻子隔離在兩間不同的臥室里，而他和虛弱的岳母則睡在客廳里。 他們每天把一日三餐放在臥室門口。
-
-每天早晨，張先生都冒險到武漢的第七醫院的空蕩蕩的街道上排隊，終於在週六收到了病毒檢測試劑盒。 他說：“我可以肯定地說，早期的誤導性信息導致了我們的處境。 這不僅傷害了我的家人，也傷害了許多其他人。”
-
-蘿哈拉和孫從華盛頓報導。 北京的王源，李詠儀和劉洋對此報告做出了貢獻。
-
-[英文原文鏈接](https://www.washingtonpost.com/world/2020/02/01/early-missteps-state-secrecy-china-likely-allowed-coronavirus-spread-farther-faster/)
-
-**編輯：【喜馬拉雅戰鷹團】**
+编辑 【喜马拉雅战鹰团】
 
 0
