@@ -11,6 +11,26 @@
 
 
 
+**milesguo** 从人工智能革命角度分析共产党为什么不在乎中国死上亿人口<br>https://gnews.org/zh-hans/152039/
+
+[https://www.guo.media/posts/276046](https://www.guo.media/posts/276046) `2020-03-25T04:56:36`
+##
+
+**milesguo** Warroom70：中共最终要为本次瘟疫买单<br>https://gnews.org/zh-hans/152019/
+
+[https://www.guo.media/posts/276045](https://www.guo.media/posts/276045) `2020-03-25T04:56:38`
+##
+
+**milesguo** 台湾每周供美10万口罩 中国国台办气炸：和「祖国大陆」对抗<br>https://gnews.org/zh-hans/152030/
+
+[https://www.guo.media/posts/276044](https://www.guo.media/posts/276044) `2020-03-25T04:56:39`
+##
+
+**milesguo** 外贸出口企业与龙头车企比亚迪相继裁员， 中共国大面积的离失业潮还远吗<br>https://gnews.org/zh-hans/151935/
+
+[https://www.guo.media/posts/276043](https://www.guo.media/posts/276043) `2020-03-25T04:57:39`
+##
+
 **milesguo** 3月24号：👉．http://livestream.com/accounts/27235681．尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机的真相了吗？明天3月25号．上午9:30到10:00间，文贵乱聊直播，一切都已经开始！
 
 [https://www.guo.media/posts/276037](https://www.guo.media/posts/276037) `2020-03-25T02:11:16`
