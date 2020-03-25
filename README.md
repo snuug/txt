@@ -11,6 +11,26 @@
 
 
 
+**milesguo** Graffiti at Sheung Tak Carpark Reminds Hongkongers to Stand Up Against Injustice and State Violence<br>https://gnews.org/149500/
+
+[https://www.guo.media/posts/276116](https://www.guo.media/posts/276116) `2020-03-25T20:40:24`
+##
+
+**milesguo** Pro-democracy District Councillor Janet Ng Was Attacked By Pro-Beijing Group<br>https://gnews.org/150781/
+
+[https://www.guo.media/posts/276115](https://www.guo.media/posts/276115) `2020-03-25T20:40:25`
+##
+
+**milesguo** TNT Daily : CCP media says that Italy fully accept all recommendation (to combat coronavirus) from CCP<br>https://gnews.org/150236/
+
+[https://www.guo.media/posts/276114](https://www.guo.media/posts/276114) `2020-03-25T20:40:27`
+##
+
+**milesguo** President Trump：Why I closed out China<br>https://gnews.org/149669/
+
+[https://www.guo.media/posts/276113](https://www.guo.media/posts/276113) `2020-03-25T20:40:28`
+##
+
 **milesguo** 川普总统希望能在复活节重新开放美国<br>https://gnews.org/zh-hans/152346/
 
 [https://www.guo.media/posts/276109](https://www.guo.media/posts/276109) `2020-03-25T17:10:25`
