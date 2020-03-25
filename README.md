@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 随着经济的溃烂，极权中共正在走向纳粹式的战争之路<br>https://gnews.org/zh-hans/151878/
+
+[https://www.guo.media/posts/276035](https://www.guo.media/posts/276035) `2020-03-25T00:10:11`
+##
+
+**milesguo** CCP病毒爆发至今底层现代服务业的悲伤<br>https://gnews.org/zh-hans/151861/
+
+[https://www.guo.media/posts/276034](https://www.guo.media/posts/276034) `2020-03-25T00:10:13`
+##
+
 **milesguo** <br>随着经济的溃烂，极权中共正在走向纳粹式的战争之路<br>https://gnews.org/zh-hans/151878/
 
 [https://www.guo.media/posts/276031](https://www.guo.media/posts/276031) `2020-03-24T22:41:28`
