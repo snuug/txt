@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 沪深300指数出现下跌信号，韭菜们快来为国接盘<br>https://gnews.org/zh-hans/152292/
+
+[https://www.guo.media/posts/276086](https://www.guo.media/posts/276086) `2020-03-25T14:40:20`
+##
+
+**milesguo** 中国官方媒体 仇恨舆论引导下：沈阳杨妈妈粥店打出横幅咒日嘲美<br>https://gnews.org/zh-hans/152251/
+
+[https://www.guo.media/posts/276085](https://www.guo.media/posts/276085) `2020-03-25T14:40:22`
+##
+
 **milesguo** 2020年3月24日CCP冠状病毒大流行第60集<br>https://gnews.org/zh-hans/152238/
 
 [https://www.guo.media/posts/276058](https://www.guo.media/posts/276058) `2020-03-25T07:40:59`
