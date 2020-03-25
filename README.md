@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 疫情下不要有侥幸心理，猫在家多健身！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/152155/
+
+[https://www.guo.media/posts/276048](https://www.guo.media/posts/276048) `2020-03-25T05:25:22`
+##
+
+**milesguo** 捷克：中国核酸检测盒80%错误率<br>https://gnews.org/zh-hans/152106/
+
+[https://www.guo.media/posts/276047](https://www.guo.media/posts/276047) `2020-03-25T05:25:24`
+##
+
 **milesguo** 从人工智能革命角度分析共产党为什么不在乎中国死上亿人口<br>https://gnews.org/zh-hans/152039/
 
 [https://www.guo.media/posts/276046](https://www.guo.media/posts/276046) `2020-03-25T04:56:36`
@@ -29,6 +39,16 @@
 **milesguo** 外贸出口企业与龙头车企比亚迪相继裁员， 中共国大面积的离失业潮还远吗<br>https://gnews.org/zh-hans/151935/
 
 [https://www.guo.media/posts/276043](https://www.guo.media/posts/276043) `2020-03-25T04:57:39`
+##
+
+**milesguo** 渗透与勾兑？中共在北海道策划“居留区”<br>https://gnews.org/zh-hans/152007/
+
+[https://www.guo.media/posts/276042](https://www.guo.media/posts/276042) `2020-03-25T05:26:15`
+##
+
+**milesguo** 中共踏在中国人民和世界之乱上的表演<br>https://gnews.org/zh-hans/151907/
+
+[https://www.guo.media/posts/276041](https://www.guo.media/posts/276041) `2020-03-25T05:26:16`
 ##
 
 **milesguo** 3月24号：👉．http://livestream.com/accounts/27235681．尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机的真相了吗？明天3月25号．上午9:30到10:00间，文贵乱聊直播，一切都已经开始！
