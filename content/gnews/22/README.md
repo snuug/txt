@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情下不要有僥倖心理，貓在家多健身！ “共渡難關，中共病毒疫情每日熱線”
-`2020-03-25 00:50 GM30` [轉載自GNews](https://gnews.org/zh-hant/152175/)
+## 2020年3月24日CCP冠狀病毒大流行第60集
+`2020-03-25 02:41 GM33` [轉載自GNews](https://gnews.org/zh-hant/152252/)
 
-**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
+一鍋甩到外太空；企業難以生存，老百姓就業困難；來自軍方新冠病毒的第二階段研究結果；美國及歐洲各國紛紛要求CCP為病毒負責
 
 0

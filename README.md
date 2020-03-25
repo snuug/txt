@@ -11,6 +11,11 @@
 
 
 
+**milesguo** GNEWS独家报道：中共武汉市政府发布公告市民自费承担CCP病毒治疗费用，引发中国网络海啸<br>https://gnews.org/zh-hans/152421/
+
+[https://www.guo.media/posts/276094](https://www.guo.media/posts/276094) `2020-03-25T15:10:39`
+##
+
 **milesguo** 与中共统战组织关系密切 芬兰华裔女市议员遭免职!<br>https://gnews.org/zh-hans/152419/
 
 [https://www.guo.media/posts/276093](https://www.guo.media/posts/276093) `2020-03-25T14:56:16`
