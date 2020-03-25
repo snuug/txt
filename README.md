@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 2020年3月24日CCP冠状病毒大流行第60集<br>https://gnews.org/zh-hans/152238/
+
+[https://www.guo.media/posts/276058](https://www.guo.media/posts/276058) `2020-03-25T07:40:59`
+##
+
+**milesguo** 文字版2020年2月23日文贵警示好好活着，一年后再想着上班赚钱<br>https://gnews.org/zh-hans/152224/
+
+[https://www.guo.media/posts/276057](https://www.guo.media/posts/276057) `2020-03-25T07:41:01`
+##
+
+**milesguo** 世界快清醒！魔鬼在敲门！<br>https://gnews.org/zh-hans/152069/
+
+[https://www.guo.media/posts/276056](https://www.guo.media/posts/276056) `2020-03-25T07:41:02`
+##
+
 **milesguo** 疫情下不要有侥幸心理，猫在家多健身！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/152155/
 
 [https://www.guo.media/posts/276048](https://www.guo.media/posts/276048) `2020-03-25T05:25:22`
