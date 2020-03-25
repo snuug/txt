@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 川普总统希望能在复活节重新开放美国<br>https://gnews.org/zh-hans/152346/
+
+[https://www.guo.media/posts/276109](https://www.guo.media/posts/276109) `2020-03-25T17:10:25`
+##
+
 **milesguo** 郭先生谈海外华人面临的三个选择<br>https://gnews.org/zh-hans/152544/
 
 [https://www.guo.media/posts/276108](https://www.guo.media/posts/276108) `2020-03-25T16:57:38`
