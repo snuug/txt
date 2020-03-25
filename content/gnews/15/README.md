@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 與中共統戰組織關係密切 芬蘭華裔女市議員遭免職!
-`2020-03-25 07:00 GM15` [轉載自GNews](https://gnews.org/zh-hant/152388/)
+## 【武漢肺炎真相】共產黨病毒3月25日視頻合集
+`2020-03-25 07:49 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/152500/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25062538/phpjEdpbb.jpg)
-芬蘭萬塔市（Vantaa）一名華裔市議員，因與中共支持的統戰組織關係密切，遭所屬政黨投票通過後，免除其市議員資格。
+**一架從意大利到喀麥隆非洲的客機被發現機上乘客全部感染一下車就倒地而死據傳有乘客逃離警察開槍射擊、伊朗馬什哈德市的停屍房已爆滿中共肺炎死者已無處停放、巴基斯坦病毒感染者痛不欲生·····**
 
-根據[《芬蘭廣播公司》](https://yle.fi/uutiset/osasto/news/ncp_vantaa_council_group_expels_councillor_linked_to_chinese_influence_network/11272763)報導，隸屬全國聯盟黨（NCP）的萬塔市女議員詹妮·陳葉（Jenni Chen-Ye），近日遭黨內的萬塔市議會小組免職，理由是她參與違反該黨價值的活動。小組主席洛卡寧（Sakari Rokkana）表示，「此決定是無異議的。」
 
-據悉，陳葉在親中的統戰組織「芬蘭促進中國和平統一協會」（FAPPRC）相當活躍，並且擔任副主席職位，該組織旨在促進中國與台灣的統一。陳葉除了是FAPPRC的創始成員外，還曾跟其他成員到過菲律賓和巴拿馬，出席中國政府籌劃的國際會議。去年8月，陳葉參加了反對香港示威者的活動。
 
-報導表示，全球各地大約還有200個如同FAPPRC的組織，它們是中共擴大海外影響力的打手之一。團體內成員在國外鼓吹中國利益，以及壓制反對北京的聲音。
-
-爭議爆發後，陳葉已辭去FAPPRC職位。另外，據《芬蘭廣播公司》調查顯示，右翼的正統芬蘭人黨（Finns Party）內有些激進分子也與北京支持的組織有聯繫。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3112265)
-
-GM15
+武漢肺炎真相3月25日[https://youtu.be/\_wGhZDLgOho](https://youtu.be/_wGhZDLgOho) 
+武漢肺炎真相3月24日[https://youtu.be/Z5TlJS8Jg0c](https://youtu.be/Z5TlJS8Jg0c) 
+武漢肺炎真相3月23日[https://youtu.be/-V275pBkRkY](https://youtu.be/-V275pBkRkY)
 
 0
