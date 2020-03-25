@@ -1,24 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國雲南返工包車1工人染漢他病毒死亡 全車29人急送隔離
-`2020-03-24 21:32 GM15` [轉載自GNews](https://gnews.org/zh-hant/152038/)
+## [你們健身了嗎, 明天3月25號．上午9]
+`2020-03-24 21:59 GM17` [轉載自GNews](https://gnews.org/zh-hant/152109/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/24210940/phppBVZ6A.jpg)
-武漢肺炎疫情還在肆虐，中國疑有新病毒入侵，本月23日凌晨，中國一部載了33人的復工巴士，從雲南接工後一路要返回山東，在途經陝西安康市時，其中1人突然發熱不適，一共有4人送醫，但3小時後，這名工人即死亡，被確診是感染漢他病毒死亡，另3人正在採檢中，全車另29人全部就地隔離。
-
-綜合媒體報導，這部復工巴士是山東一家水產食品公司租賃的客運大巴士，車上一共有共有2名司機、1名醫務人員、30名準備復工人員，不過，在23日凌晨4時左右，車上隨車醫務人員發現有1人不適，隨即將與他接近的3人，一起送醫，到上午7點左右，醫院即通報死亡，且證實是是感染漢他毒出血熱死亡，同車其他人員正在採集送樣。
-
-通報稱，23日上午7時許，田姓乘客救治無效死亡。經安康市疾控中心對死者及2名發燒人員和1名陪同人員首次新冠肺炎病毒核酸檢測為陰性，而死者對漢他病毒（出血熱）核酸檢測為陽性，其他同車人員的核酸檢測正在採集送樣。
-
-雲南省臨滄市衛生健康委員會24日通報，已針對上述漢他病毒疫情迅速進行疾病監測排查和流行病學調查，安撫、穩定家屬情緒，對村民展開疏導，消除民眾恐慌心理。
-
-漢他病毒出血熱為人畜共通傳染病，由感染漢他病毒引起，在自然界的傳播宿主為囓齒類動物，尤其是環境中常見的老鼠。人類吸入或接觸遭老鼠糞尿污染帶有漢他病毒飛揚的塵土、物體，或被帶病毒的齧齒類動物咬傷，就有感染風險。
-
-漢他病毒（Hantavirus）又稱流行性出血熱病毒，感染會引發漢他病毒症候群（Hantavirus syndrome），屬於人畜共通傳染性疾病。主要透過帶有漢他病毒齧齒類動物（如：鼠類）傳染給人類，其病症可分「漢他病毒出血熱」及「漢他病毒肺症候群」兩種；發病時，會伴隨著發熱、出血、腎損害三大臨床表現。出血熱有流行廣、病情危急以及病死率高的特點，危害極大。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3111593)
-
-GM15
-
-0
+3月24號：👉．[http://livestream.com/accounts/27235681．尊敬的戰友們好，你們健身了嗎？你們傳播C](https://livestream.com/accounts/27235681．尊敬的戰友們好，你們健身了嗎？你們傳播C) C P病毒．香港危機的真相了嗎？明天3月25號．上午9:30到10:00間，文貴亂聊直播，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_66901.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_90954.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_23399.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_73763.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_10505.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_6578.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101320_76220.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585101493_10218.(null))
+1+
