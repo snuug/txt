@@ -1,55 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年3月25日郭文貴先生直播摘要
-`2020-03-25 15:20 GM10` [轉載自GNews](https://gnews.org/zh-hant/152807/)
+## 國防生產法案—美國反擊的集結號
+`2020-03-25 15:36 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/152665/)
 
-**戰友之家/摘要組/文徐**
+**【中英对照翻译】** [https://spark.adobe.com/page/t2ugv8tcEQmdL/](https://spark.adobe.com/page/t2ugv8tcEQmdL/)
 
-00:00 今天放的是兒童歌曲，文貴很感慨人生無常，面對疫情成年人要為自己人生和家族的判斷負責。
+*BY BRIG. GEN. ROBERT S. SPALDING*
 
-06:10 剛剛德國總理默克爾確診了，加拿大總理隔離了。查爾斯王子是文貴見過最惜命三個人之一，還是不幸中標。其他兩個人最惜命的是曾慶紅和北京原市長王安順，曾慶紅生活習慣極為健康。這三個都是要謀求大位的人。調侃薄熙來和周永康都不是謀大位的人。
+*罗伯特·s·斯伯丁准将著*
 
- 09:40 昨天鄭州國貿說要下周開業，文貴的三不建議：不同意，不允許，不希望。文貴警告疫情還沒真的開始。文貴有極大的信息和情報，作出的判斷也是最為真實合理的。
+*翻译：freedust*
 
- 16:00 文貴遺憾英國王子被感染，各個總理、總統感染，規勸大家活著最總要。另外澄清GTV的視頻信息都是公共媒體搜集的，為了保護戰友的安全，戰友發給文貴的一個都沒有公開。方艙那邊出來後沒有幾個健康的，一生基本毀了。大家做好一到兩年的準備吧。疫情一切都是剛剛開始。
+*简评：freedust*
 
- 19:40 文貴回顧自己說過歐洲諸國疫情的預測，西班牙，歐洲完了。文貴預測的紐約疫情已經被證實。現在全人類就兩個事，就是生和死。
+*PR： 海阔天空*
 
- 22:40 文貴講亞洲美國股市的劇烈起伏。警告大家不要去投機，不要去賭博。看看巴菲特多慘，他也逃不出去。大家努力呆在家裏，不要想著發財了。
+**斯伯丁将军准确地定义了国防生产法案在美国应对疫情和美国安全战略调整及革新中的重要作用。在全球化过程中，制造业的外流正是这次中共病毒疫情爆发，让美国处处限于被动的根本原因。而美国经济的脱实向虚，过分注重于金融衍生品和IT娱乐产品的国策， 也正是酿成现在史无前例的金融海啸的原因之一。这次疫情已经让美国警醒了，通过国防生产法案可以有效的修补美国断裂的产业链，并再次开动美国实体经济的发动机，这无疑会减少美国社会中下层的债务危机、增加就业率，并对美国整个社会财富进行重新平衡。从长远来看，这对美国具有重要的历史意义。**
 
- 28:00文貴講解美國撤回供應鏈難度極大。任何東西生產都有一個周期。全產業鏈要撤回周期很長。美國人被中毒了，所以投鼠忌器。文貴認為現在沒有一家政府想清楚形勢的。不要神話文貴，文貴建議也不是誰都可以給的，文貴已經盡力了。大家不要站著說話不腰疼。類似於每個人看球都想指揮專業球員，但是其實自己去的話就意識到沒有那麼簡單。
+**现代战争的方式已经彻底从船坚炮利的时代走出来了，由数字驱动并关联的新型战争模式将代替原有的立体战争模式。而数字安全，无论从现在中共发动的超限战来看，还是在常规，抑或核战中都将起到决定性作用，斯伯丁将军已经敏锐的注意到了这一点。**
 
- 35:00 不要隨意批評別人，文貴感慨過去病毒定義這個大風暴。這個事情過去了沒有幾個人能夠意識到這幾周發生的事情走向的轉變有多麼不容易。如果定義了中國人病毒就是對中華民族的災難。Inty那個是嚴重種族主義、反華主義。文貴對他已經仁至義盡了，直到這個事發生我們才無法容忍了，他內心太歹毒了。他的移民信息都是假的，受人操控太危險了。
+**新时代来了，未来的5G、海量数据时代将重新定义这个世界，虽然这个序幕并不太好，但前景是光明的。一个国家的先进技术究竟用于正面、光明的、造福民众的方向，还是负面、阴暗的、奴役民众的方向，直接会定义这个政权选择的性质。美国现在所要进行的，和中国已经在执行的正好印证了这两点。**
 
-48:00 過去兩周有大量排華苗頭，過去幾篇文章和接下來幾篇重要文章都會稱為CCP病毒，華盛頓郵報一個反川普報紙寫出這樣報道何其難得。作者Josh和我們極有淵源，關鍵時刻為中國人撇清責任，班農先生可以說CCP病毒得到了福克斯老板同意，川普也改口了，因為文貴跟他講了這樣會造成種族大屠殺。文貴滿意我們對這個事情的運作，堪比球星精彩進球。背後的付出大家看不到，只看到一個進球罷了，其實後面有太多默默的戰友，文貴真是到處求人發聲逆轉這個事。文貴跟英國多個政客要求必須出手，必須否認中國人病毒，文貴跟德國政客，日本政客都作出了極大溝通努力並獲得一致支持。
+**只有把更多的资源和权利赋予这个国家动能最强、创造力最强、也是数量最庞大的中下层公民，才会使这个国家稳定并焕发出无与伦比的让人赞叹的文明光芒，而那些杀鸡取卵，涸泽而渔的政权将必然走向颠覆和灭亡。**
 
- 54:00 文貴順便說了一個日本戰友曾幫助這個戰友一家申請日本護照，現在他已經不是我們戰友了。全日本官員都警告不許談中國人病毒。然後奧運會要推遲。俄羅斯的幾個朋友也被說服不可以說中國人病毒，否則俄羅斯的中國人極為危險。還有很多人沒有意識到這個事的重要性。
+## 冠状病毒暴露了美国真正的国家安全漏洞
 
- 56:20 爆料革命戰友和媒體都對這個事關中國人的大事作出貢獻，背後的五大組織、七大機構都作出了努力，文貴很感動。大家都要感恩我們大概可以幸免發生一次大規模排華事件。
+从中国加入世贸组织开始，美国本土制造业向海外的迁移就对美国的安全造成了伤害。当前，冠状病毒的爆发和它迅速扩散中断了全球产业链，并使我们警醒，工业能力是任何国家安全的组成部分。
 
- 58:30 文貴勸解那些動不動罵別人的家人的人，世事輪回報應不爽。勸解戰友李倍喜和卡麗熙戰友不要去攻擊別人。尤其是卡麗熙最近轉的烏龍事件攻擊了美國總統差點給我們帶來無可估量的損失。太多人打著爆料革命的旗幟做私活，還有大量戰友被一波流帶走。大家太缺乏判斷了。
-
- 1：04：20 莊烈宏和喜馬拉雅監聽事件沒關系，文貴也不知道他為啥離開，希望戰友不要去無證據的去砸別人。我們要唯真不破，留口德。不管過去的是誰，文貴願意慷慨解囊自願給設備，但是要求的東西，想交易的東西，文貴都拒絕了。
-
-1:12:20 文貴調侃吳征可以回去領錢了，但是最近的較量他們輸慘了。聽說高層都罵娘了，他們多次保證很快滅掉爆料革命，戰役拉到國際，轉嫁美國這些都被滅了。他們讓全世界害怕，掙紮而自己是零增長，全世界看到中共造假多荒唐，第三經濟上讓西方倒下，自己繼續生產，這些都是表面的，你們輸大了。國內強迫復工的，這回都不是打嗎啡救命了，這次打得是敵敵畏，這次復工死人將是幾千萬。
-
- 1:16:00共黨感染死亡人數造假都被看透了。下次爆發會有上億人感染，餐飲業大量倒閉，外貿大量倒閉，娛樂物流大量倒閉，這些都是剛剛開始。接下來共黨的各種妄想都不會實現，包括控制諸國，代替美國。根據2025計劃就可以推斷病毒一定是他們放的。下一波爆發即將開始，他們的戰略部署一定輸得一塌糊塗。有爆料革命在他們一定要輸，西方已經覺醒，西方糾正能力雖然慢，但是有法治，一旦發生就力量無比。美國宣傳系統建國以來首次和大外宣交鋒，類似於當年的打伊拉克。香港事件已經是抓住共黨的關鍵點，美國在香港上很快有行動。
-
- 1:21:35 所有跟中共勾兌的政客都會變成過街老鼠，共黨在世界上很快就是萬夫所指。共黨絕對會回到1989年前。這是報應。
-
- 1:23:00所有共產黨員會遇到以下幾個問題：1你的工資發放會有極大問題，2發了也是兌水的，買不到東西， 共黨要用死你、累死你、病死你。3大量講黨性、奉獻、紀律。他們的孩子都在國外。新西蘭最起碼三百政治局委員家人。所有ICU病房都是醫生護士、共產黨員。4共黨員將成為第一個犧牲品。復興藥業集團產的氯喹就是控制你們的人屍丸。你們還得感恩戴德他們給你藥。共產黨員將成為最後一塊被燒掉的肉。你們都倒下了才是世界大戰。
-
- 1:28:00 二戰時候納粹黨員家屬備受歧視就是你們的下場。共黨將成為最大恐怖組織，所以你們只有一個選擇，推翻共黨解放全國全世界。大家問文貴的東西，在昨天GTV文貴已經給你們答案了。昨天那個電影就是答案，最後的膠卷就是那個關鍵。你們在那個什麼上看到了，哈。
-
- 1:30:00 莊烈宏和細絲的家人本來感激該是受過教育的，為啥會讓他們作出這些事，這麼瘋狂，讓文貴很傷心。共產黨員家人如果有明白人可以拯救全家。文貴介紹了這次疫情期間自己周圍發生的一些感人的事情。文貴家人和戰友如何對代王雁平如親人。還有其他幾個合作過的人如何冷漠。
-
- 1:43:00 人性的偉大令人感動，希望戰友正確的無私的提出好的建議，不要因為一人的無知貪婪毀了全家。你是成年人就是要有決策能力，對決策承擔責任。文貴勉勵大家活著就是贏家，國內和西方病情會大反轉。短期內解決問題可能性不大。一切都已經開始，不要忘記香港，她是我們的耶路撒冷、聖地。香港人令人肅然起敬，你是我們的聖城，文貴為此永遠奮鬥。
-
- 1:49:50 今天黑客很厲害，GTV很快推出。接下來大家會看到一堆行動，法律行動，媒體行動。戰友力量太大了。文貴去“單修了”。
-
-更多詳情請關註GTV： https://livestream.com/accounts/27235681/events/8197481/videos/203500368
+美国绝大多数药品供应都依赖于中国的非市场经济。中国禁止了所有医疗专业人员用来保护自己免遭疫情侵袭的口罩的出口。除此之外，美国军方还需要从中国采购大量零部件和供应品，这些零部件和供应品都容易受到供应链中断的影响。
+[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)
 
 
+尽管如此，冠状病毒引起的中断提供了一个修复我们国家安全明显弱点的机会，同时可以为我们的经济提供急需的动力。
+
+Rather than quantitative easing — which has been the main policy option in recent financial crises — it’s time to dust off fiscal stimulus to help kick-start economic growth in the coronavirus aftermath.
+
+该放弃量化宽松了——这个在近来金融危机中用到的主要政策选项——在冠状病毒事件之后，是时候重新启动财政刺激来帮助启动经济增长了。
+
+The Defense Production Act (DPA) and DPA Title III program give the Department of Defense (DOD) broad authority to conduct industrial policy in support of national security. These authorities and a portion of the DOD budget could be used to stimulate the reshoring of critical manufacturing capabilities such as pharmaceutical supply, semiconductors and microelectronics.
+
+国防生产法案和国防生产法案第三条赋予了国防部广泛的权利来实施工业政策以支持国家安全。这些授权和国防预算的一部分可以用于刺激关键制造能力的回流，如药品供应、半导体产品和微电子产品。
+
+Throughout its history, the U.S. government has seized railroads, coal mines, even department stores. While today’s challenges do not require such drastic measures, the DPA authorities are broad: “There are three core authorities granted to the president: Title I, priorities and allocations, in which persons and businesses could be required to prioritize national defense when accepting contracts for materials and services; Title III, expansions of productive capacity and supply, production of goods and materials vital to national security (that) can be incentivized (loans, guarantees, privatized industrial facilities); Title VII, general provisions, ability to establish, block agreements both domestic and foreign that threaten national security, and establish a core group of volunteers from industry that can be called upon to serve.”
+
+纵观历史，美国政府曾经回收了铁路，煤矿，甚至百货公司的控制权。尽管今天的挑战不需要采取如此严厉的措施，但DPA的权利是广泛的：“他授予总统三项核心权力：第一条，优先事项和分配，其中个人和企业在接受材料和服务合同时可以被要求优先考虑国防；第三条，扩大生产能力和供应，对国家安全的至关重要的产品和材料可以进行鼓励（贷款，担保，私有化的工业设施）；第七部分，总则，建立和阻止国内外威胁国家安全的协议的能力，并建立一个核心团队，由来自行业的志愿者组成，他们可以被要求服务。”
+
+During the Cold War, President Eisenhower used his understanding of the power of infrastructure to advocate for the National Highway System. While the primary motivation for the infrastructure program was not national security, the emergency evacuation of cities in the event of nuclear attack was cited as a purpose for the project.
+
+在冷战期间，艾森豪威尔总统利用对基建力量的理解来倡导建设国家高速公路系统。虽然，基建项目的主要动机不是国家安全，而该项目的其中一个目地是在核打击事件中紧急疏散城市居民。
+
+To provide a near-term boost to the economy, the executive branch could order federal departments and agencies to fast-track infrastructure projects currently stalled — such as additions to the U.S. electrical grid and the construction of high-speed rail. These projects have hundreds of billions of dollars in private investment waiting. The projects languish in agencies including the Department of Transportation, while bureaucrats hold U.S. economic growth and national security hostage.
+
+为了短期提振经济，行政部门可以命令联盟部门和机构快速推进目前停滞不前的基础设施项目—比如国家电网的扩建和高速铁路的建设。这些项目正等待着数千亿美元的私人投资。这些项目在包括运输部在内的各个机构中日渐被冷落，而官僚们把美国的经济增长和国家安全作为人质。
+
+Research and development funding — which is at the lowest point since the Cold War — and STEM (science, technology, engineering, math) education grants would be another good investment for DOD dollars. The latest Defense Innovation Unit (DIU) report noted that the Chinese government “is executing a multi-decade plan to transfer technology to increase the size and value-add of its economy, currently the world’s 2nd largest. By 2050, China may be 150 percent the size of the U.S. and decrease U.S. relevance globally.”
+
+研究和发展资金——现在已经降至冷战后的最低点，而STEM(科学，技术，工程学，数学)，教育补助金将是国防部的另一项良好投资去向。国防创新小组最新的报告显示中共政府正在执行一个多年的计划，通过技术转让来扩大经济的体量和增加其附加值，当前其体量为世界第二。至2050年，中国可能达到美国经济体量的1.5倍，并降低美国的全球影响力。
+[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)
+Boosting investment dollars for high-tech innovation would help America retain the lead in technology superiority and provide fodder for private-sector economic growth.
+
+提高高科技创新的投资将有助于美国保持技术优势的领先地位，并为私营经济增长提供动力。
+
+Finally, investing in a nationwide, secure 5G network, like that called for in the National Security Strategy, would protect American data and prevent the outflow of an estimated $300 billion to $600 billion of intellectual property lost each year to Chinese theft.
+
+最后，像《国家安全战略》(National Security Strategy)中所要求的那样，投资建设一个全国性的安全5G网络，将保护美国的数据，并防止每年因中国的盗窃行为而损失的大约3000亿至6000亿美元的知识产权流失。
+
+While the 20th century equated national security with bombs, bullets and geography, national security in the 21st century is focused on 1s and 0s — the basis of our digital world — and dollars and cents. Reprioritizing spending away from weapons and towards maintaining U.S. economic, scientific and technological superiority will put us on the Eisenhower path. The investment in the U.S. during the Eisenhower years resulted in economic growth and prosperity.
+
+在20世纪，国家安全等同于炸弹、子弹和地理，而在21世纪，国家安全则集中在数字世界的基础的0和1，以及美元与美分上。重新把开支的优先次序从武器转向维持美国的经济、科学和技术优势，将使我们走上艾森豪威尔的道路。艾森豪威尔时代对美国的投资带来了经济增长和繁荣。
+
+With economic aftershocks caused by coronavirus, this fiscal policy for national security will reorient the U.S. toward industrial capability and economic growth.
+
+由于冠状病毒造成的经济余震，这项国家安全的财政政策将使美国重新定位于工业能力和经济增长。
+
+[新聞來源](https://thehill.com/opinion/national-security/487769-coronavirus-unmasks-americas-real-national-security-vulnerabilities)
+
+编辑 【喜马拉雅战鹰团】
 
 0

@@ -1,23 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 應如何辨識新聞的嚴謹性—例如證明“CCP在給全世界人洗腦”
-`2020-03-25 16:48 GM06` [轉載自GNews](https://gnews.org/zh-hant/152905/)
+## [也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件]
+`2020-03-25 17:10 GM17` [轉載自GNews](https://gnews.org/zh-hant/152908/)
 
-作者：陽之戰
-
-有時候我們明明白白的知道誰是騙子惡人，但我們卻很難拿出證據去證實，新聞調查找出證據是要花很大的成本的，而且有許多的新聞和媒體是在傳遞誤導信息的，他們的目的是騙你，所以後果不會對你有任何好處，因為他們“為惡”,所以“唯真不破”的新聞媒體是的非常難得的，gnews 上有許多許多新聞是非常難得的。而且就算有證據有結果，從不同的角度去寫一個結果，其導致觀眾認識的“結果”也是不一樣的，譬如，川普總統說病毒來源於中國，中國外交官和中國媒體說病毒來源於美國，而許多媒體在報導“中美打媒體戰”，表面上看講的是事實，但其實是罔顧事實的，其險惡用心是可想而知的，因為中國的媒體是CCP 的工具，而美國的媒體不是，這是起碼的認知，可悲的是“媒體戰”這個說法大多數人還都相信了。
-
-馬克思新聞觀第一條是“1、要根據事實來描寫事實，不能根據希望來描寫事實”，許多新聞媒體都標榜自己中立客觀沒有立場，許多人都非常的相信這一點，這也恰恰是他們騙人的地方，事實上有信息就會有結果結論，有結果結論就會有立場，信息和立場是共生共存一體的，都是夾雜在一起的，表面的事實是要通過理解和一些正確的認識和思考才得以理解其成因結果和發展的。人也只有去世了主觀才會隨之消失，“立場”才不會存在，而根據所謂事實來描寫事實但沒有結論觀點立場的新聞信息是是騙人的，是不存在的，所以這樣標榜自己的新聞媒體往往都是欺騙人的，是偽裝的，是欺騙自己的，對事實認真負責謹慎的做法應該是用邏輯去推敲出看法，用證據去驗證看法……。所以馬克思的新聞觀是不能進行嚴謹的推敲的。
-
-新聞是有目的性的，1 新聞媒體需要有不斷產出新聞信息，這是它的職責所在，2 因為一些目的，為惡，或者為善，揭露事實是“為善” 的新聞較為重要的一點，扭曲事實是“為惡” 的新聞核心的一點。 “為惡”會對世界造成“惡果”，其害人不淺，“為善”會有益於世界，而有的人喜歡吃“惡果”還喜歡上了製造“惡果”的人，說明他們的DNA 都以深受其害。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25164741/666.jpg)
-
-
-那麼一篇好的新聞應如何證實一件事情的呢？文稿畢竟篇幅有限，還不能跑題，比如gnews的這篇文章“ [疾呼：拉響全球危急警報—比新冠病毒可怕更隱匿的“CCP病毒”](https://gnews.org/zh-hans/149076/) ”為了證明CCP對全球的危險性，因篇幅有限選擇了從證明“CCP 在給全世界人洗腦”的角度出發，用絕對的邏輯得出一個論點，每個論點都拋出實證，最後形成證據鏈，用的是發散式邏輯將觀點進行對比，因為單一線性的邏輯容易將人引入誤區，且沒有拋出證據或拋出的是假證據的情況下，其真實性完全不可信服的，發散式邏輯考慮的點和麵比較多，所以作者寫這篇文稿是非常嚴謹的，最後作者又添加的文章的補充延伸鏈接，這樣做也是非常的重要的，這樣添加的點和麵就更多了，使文章論證不僅看到了局部，也看到了一些輪廓，從而使觀眾認知的更清楚，添加的點和麵越多則更加能證實其文章的真實性。
-
-最後還要說一句，歡迎大家多多通過評論交流，發表觀點想法！
-
-（文章內容僅代表作者觀點）
-
+3月25日：這就是爆料革命的力量……無處不在……爆料革命沒有力量不能到達的死角……沒有天花板，只有目標．只有目的．只有成功！爆料革命用行動用結果來回報所有戰友的付出，任何人都不要試圖和共產黨一起來再繼續綁架14億中國人民，也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件，只要爆料革命在……中國人將永遠的安全……受到世界尊重！一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170648_65236.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_54225.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_17619.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_1112.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_19829.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_5797.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_24702.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_18266.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_25937.(null))
 0
