@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 【中共病毒】是中共毁灭信仰后的次生灾难！<br>https://gnews.org/zh-hans/152210/
+
+[https://www.guo.media/posts/276167](https://www.guo.media/posts/276167) `2020-03-26T07:25:29`
+##
+
+**milesguo** 世卫组织号召学习中共抗疫模式，各国该学吗？<br>https://gnews.org/zh-hans/152227/
+
+[https://www.guo.media/posts/276166](https://www.guo.media/posts/276166) `2020-03-26T07:25:30`
+##
+
+**milesguo** 德: 已有年轻人死亡 大流行病仅仅开始<br>https://gnews.org/zh-hans/153039/
+
+[https://www.guo.media/posts/276164](https://www.guo.media/posts/276164) `2020-03-26T07:25:32`
+##
+
 **milesguo** 日本东京 “感染出现重大爆发”<br>https://gnews.org/zh-hans/153025/
 
 [https://www.guo.media/posts/276163](https://www.guo.media/posts/276163) `2020-03-26T07:10:51`
