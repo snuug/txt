@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 日本东京 “感染出现重大爆发”<br>https://gnews.org/zh-hans/153025/
+
+[https://www.guo.media/posts/276163](https://www.guo.media/posts/276163) `2020-03-26T07:10:51`
+##
+
 **milesguo** 2020年3月25日CCP冠状病毒大流行第61集<br>https://gnews.org/zh-hans/152996/
 
 [https://www.guo.media/posts/276159](https://www.guo.media/posts/276159) `2020-03-26T05:56:22`
