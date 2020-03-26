@@ -1,9 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件]
-`2020-03-25 17:10 GM17` [轉載自GNews](https://gnews.org/zh-hant/152908/)
+## 川普總統停用“中國病毒”，並呼籲全面保護亞裔
+`2020-03-25 21:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/152961/)
 
-3月25日：這就是爆料革命的力量……無處不在……爆料革命沒有力量不能到達的死角……沒有天花板，只有目標．只有目的．只有成功！爆料革命用行動用結果來回報所有戰友的付出，任何人都不要試圖和共產黨一起來再繼續綁架14億中國人民，也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件，只要爆料革命在……中國人將永遠的安全……受到世界尊重！一切都已經開始！
-![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170648_65236.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_54225.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_17619.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_1112.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_19829.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_5797.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_24702.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_18266.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_25937.(null))
+川普總統在近期的發布會上明確的聲明他不會繼續稱冠狀病毒為”中國病毒”，他表示不想因為強調這個（稱呼）而造成更多傷害。他說：“我覺得我們不需要再強調這個（名稱）了。”
+
+川普總統也表明之前的說法只是為了回應中共外交發言人-趙立堅所說的病毒是美國士兵傳播出來的言論。
+
+川普表示美國大眾應該明白他的意思而不是把責任加於美國的亞裔群體。他還表示他“絕對不會允許這類事情發生“ 在美國的亞裔群體上。
+
+在周一，川普還在推特上補充到
+
+*“*我們必須全面保護所有在美國乃至全世界的亞裔美國人，這是至關重要的。”
+
+– 川普總統推特
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25213130/702ADE75-2132-4311-B7B8-8BCB4D18256E.jpeg)
+川普總統還沒有在這一個推特上停止， 他還繼續補充到：
+
+*“*他們是很棒的人，而病毒的傳播絕不是他們在任何方面，形式或形式上的過錯。他們正在與我們緊密合作以消除它。我們將一起贏！ *”*
+
+-川普總統推特
+
+評：這是爆料革命在關健時刻來之不易的成果，讓全世界避免了一場可能的種族大屠殺！感恩所有為取消“中國病毒”名稱而努力的偉大戰友們，美國及西方朋友們！
+
+[原文鏈接](https://www.washingtonexaminer.com/news/trump-on-shifting-away-from-chinese-virus-i-decided-we-shouldnt-make-any-more-of-a-big-deal-out-of-it)
+
+翻譯報導：匿名
+
 0
