@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 《中共肺炎》俄罗斯一夜暴增163例 莫斯科市长坦承疫情恶化<br>https://gnews.org/zh-hans/152661/
+
+[https://www.guo.media/posts/276150](https://www.guo.media/posts/276150) `2020-03-26T04:55:25`
+##
+
+**milesguo** 土地财政是肥肉，各级政府吃不够<br>https://gnews.org/zh-hans/152180/
+
+[https://www.guo.media/posts/276148](https://www.guo.media/posts/276148) `2020-03-26T04:55:27`
+##
+
 **milesguo** 从武汉长江大桥的造价看新基建投资的放卫星<br>https://gnews.org/zh-hans/152087/
 
 [https://www.guo.media/posts/276147](https://www.guo.media/posts/276147) `2020-03-26T04:40:19`
