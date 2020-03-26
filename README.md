@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 九千万共产党员，为了拯救你和家人，请务必留下证据<br>https://gnews.org/zh-hans/153098/
+
+[https://www.guo.media/posts/276170](https://www.guo.media/posts/276170) `2020-03-26T07:40:12`
+##
+
+**milesguo** 谨防中共病毒二次爆发，切勿侥幸！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/153073/
+
+[https://www.guo.media/posts/276168](https://www.guo.media/posts/276168) `2020-03-26T07:40:13`
+##
+
 **milesguo** 【中共病毒】是中共毁灭信仰后的次生灾难！<br>https://gnews.org/zh-hans/152210/
 
 [https://www.guo.media/posts/276167](https://www.guo.media/posts/276167) `2020-03-26T07:25:29`
