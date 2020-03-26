@@ -1,34 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 產業鏈轉移、變相收費、強調維穩，復工抵擋不住中共經濟下滑趨勢
-`2020-03-25 16:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/152891/)
+## [也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件]
+`2020-03-25 17:10 GM17` [轉載自GNews](https://gnews.org/zh-hant/152908/)
 
-作者：立武
-
-中共掩蓋疫情真相，官方通報多日湖北、武漢確診為零或左右，3月25日解封湖北，通報4月8日解除離漢利鄂管控，這在於中共口徑是打贏抗疫之戰的一大勝利，事實上，這只是中共為複工而虛假製造的勝利。
-
-中共在2月下旬以來，各地複工復產，一是短暫撐住中共的經濟，二製造資本避險的環境的假象，三是留住外資外貿，中共對外貿易依存度約為30%，其中出口佔18%，對美出口又佔1/3，隨著疫情在各國的蔓延，國際訂單的減少，特別是美國啟動國防生產法之後，產業鏈的轉移，中共進出口將大幅下降，其中2月份PMI比一月份下降14.3百分點，其中新訂單指數下降22.1個百分點，1、2月份進出口總值同比下降9.6%。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25163454/11-21.png)
-
-中共將數據的下滑歸咎於春節因素和疫情影響，聲稱隨著復工的有序進行，可以“穩外貿”，然而這是不現實的，即使復工能夠短暫維持住主要的外貿項，這也是以老百姓的安全為代價。何況受國際疫情影響，進口勢必因為國際物資的急需而下降，出口也會因為防控需要和產業鏈轉移而帶來訂單減少。
-
-**去年十月份，郭文貴先生講到，美國產業鏈撤出中國的時間在今年** **4** **月份；由於疫情因素，這個時間只會提前；而且，這涉及到的上下游企業非常多，因此中共不再可能依賴外貿來維持外彙和經濟基本面。**
-
-**在外貿萎縮的同時，隨著家庭債務的增加（** **2018** **年末住戶部門槓桿率為** **60.4%** **，表外可能更大）和** **CPI** **的增加，居民的消費能力會大幅下滑，中共開始轉向尋求** **5G** **和衛生基建來促進三架馬車中剩下的投資，然而** **1** **月份有** **9** **個已公佈的省市財政收入不增反減，山西在一月份的一般公共預算收入更是同比下降** **19.8%** **，全國地方政府債務餘額超過** **20** **萬億人民幣（** **2** **月末達** **225302** **億），隱性債務可達** **30** **萬億人民幣。**
-
-**三架馬車將有全面失速之勢，各地開始顯現降租遊行、休假停工，甚至青煙裊裊。**
-
-中共人社部為此下發《意見》，重點強調穩就業，第一大舉措就是複工復產，然而這是以犧牲中國人民為代價的；除此之外，還有減稅降費。但是，由於地方政府債務激增，以及中共虛假作風和地方利益之間的糾葛，到了地方不是成一紙空文，就是尋求其他手段搜刮民脂。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25163633/12-2-4.jpg)
-當然中共第一時間又出來闢謠，但是實際情況可能依然需要收費。中共承諾給安保的補助一千，結果到手二百五，給環衛工人一天五百，到手一百；正因為中共這樣的上欺下騙，才有了這些站出來抗議政府剋扣補貼，要求政府公開透明的示威遊行。而正是為了應對這樣開始出現的抗議現象，中共在24日的政法系統電視電話會議上專門強調了維穩的工作。
-
-> [pic.twitter.com/3L7aAEIATm](https://t.co/3L7aAEIATm)
-> — Ray Lau (@fiteray) [March 23, 2020](https://twitter.com/fiteray/status/1242052260080713728?ref_src=twsrc%5Etfw)
-
-復工，老百姓有安全風險；經濟下滑，老百姓失業、沒錢維持生計；中共盜國賊是始作俑者，掩蓋疫情真相，盜取國家財富；對比之下，西方各國對於民眾落到實處的補貼和免稅，這是民主國家將人民放在第一位的表現。由於中共的經濟撐不了多久，在外貿和內需雙重萎靡之下，中共可能重走國家管控經濟的路徑，由國家統計收購和分配，在這樣的情況下，現金流和必備的物資是應有的保障。
-
-（文章內容僅代表作者個人觀點）
-
+3月25日：這就是爆料革命的力量……無處不在……爆料革命沒有力量不能到達的死角……沒有天花板，只有目標．只有目的．只有成功！爆料革命用行動用結果來回報所有戰友的付出，任何人都不要試圖和共產黨一起來再繼續綁架14億中國人民，也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件，只要爆料革命在……中國人將永遠的安全……受到世界尊重！一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170648_65236.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_54225.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_17619.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_1112.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_19829.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_5797.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_24702.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_18266.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_25937.(null))
 0
