@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 2020年3月25日CCP冠状病毒大流行第61集<br>https://gnews.org/zh-hans/152996/
+
+[https://www.guo.media/posts/276159](https://www.guo.media/posts/276159) `2020-03-26T05:56:22`
+##
+
+**milesguo** [只要爆料革命在……中国人将永远的安全……受到世界尊重]<br>https://gnews.org/zh-hans/152907/
+
+[https://www.guo.media/posts/276158](https://www.guo.media/posts/276158) `2020-03-26T05:56:24`
+##
+
+**milesguo** 新闻的严谨性—例如证明“CCP在给全世界人洗脑”<br>https://gnews.org/zh-hans/152894/
+
+[https://www.guo.media/posts/276157](https://www.guo.media/posts/276157) `2020-03-26T05:56:25`
+##
+
+**milesguo** 产业链转移、变相收费、强调维稳，复工抵挡不住中共经济下滑趋势<br>https://gnews.org/zh-hans/152879/
+
+[https://www.guo.media/posts/276156](https://www.guo.media/posts/276156) `2020-03-26T05:56:27`
+##
+
+**milesguo** 房地产即将崩盘的信号吹响了灭共的集结号<br>https://gnews.org/zh-hans/152829/
+
+[https://www.guo.media/posts/276155](https://www.guo.media/posts/276155) `2020-03-26T05:56:28`
+##
+
 **milesguo** 2020年3月25日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/152797/
 
 [https://www.guo.media/posts/276154](https://www.guo.media/posts/276154) `2020-03-26T05:40:20`

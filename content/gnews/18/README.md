@@ -1,56 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 房地產即將崩盤的信號吹響了滅共的集結號
-`2020-03-25 16:27 GM06` [轉載自GNews](https://gnews.org/zh-hant/152875/)
+## [也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件]
+`2020-03-25 17:10 GM17` [轉載自GNews](https://gnews.org/zh-hant/152908/)
 
-作者：文茗
-
-3月22日，中共紀委國家監委官網公佈《中共國家電網有限公司黨組關於十九屆中央第三輪巡視整改進展情況的通報》。該通報提內提及的國家電網退出傳統製造業和房地產業務，一時引發了很多評論個人媒體和主流媒體的關注和猜想。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161423/1-126.png)
-
-國家電網涉及房地產業務主要是由子公司魯能集團來運作。魯能集團的核心產業為地產與能源，累計開發建築面積為1300萬平方米，為30萬戶業主提供服務。從90年代初期，海南房地產危機之後眾多房企紛紛撤離倒閉。但魯能集團利用手裡豐富的資源和資金在海口及三亞投資修建了大量城市道路、市政及文化工程，並開發了多個地產項目，獲取了大量的商業用地。時至今日魯能集團涉足的房地產項目幾乎遍佈了主要的一二先城市個個角落。
-
-而這次國家電網退出房地產行業著實讓人很意外，但也在預料之中。中共國房地產從18年見頂步入下跌軌道之後，直到這次CCP病毒引爆世界經濟危機，直接摧毀了中共國的經濟基礎，房地產的崩盤已經是無法避免。而國家電網這種信息資源絕對領先的央企退出房地產行業那就是肯定的了。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161931/2-90.png)
-
-2020年1月和2月，全國房地產投資累積10115.42億元，同比下跌16.3%；建築工程投資6394.4億元，同比下降16.3%；安裝工程投資462.89億元，同比下降37.7%；土地購置費用2639.6億元，同比下降9.3%。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161643/4-42.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25162100/5-38.png)
-
-
-各地區房地產開發投資情況最差的是青海，房地產開發投資完成額只有0.13億元同比下降了82.2%；其次是湖北，房地產開發投資完成額是127.39億元同比下降69.8%。房地產投資快速萎縮已成定局。
-
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161856/5-37.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161840/6-35.png)
-- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161815/7-2-11.png)
-
-
-從房地產投資絕對額度來看前三下降最多的是，湖北下降294億元、廣東下降251億元、重慶下降190億元。
-
-前兩個月，房地產開發企業房屋施工面積694241萬平方米，同比增長2.9%，較2019年末的8.7%收窄5.8個百分點。其中，住宅施工面積487654萬平方米，增長4.6%，較2019年末的10.1%收窄5.5個百分點。
-
-而對於房地產非常重要的新房開工面積各省地區均下滑，下滑程度遠遠大於房地產投資額的下滑幅度。
-
-前兩個月，房屋新開工面積10370萬平方米，下降44.9%。其中，住宅新開工面積7559萬平方米，下降44.4%。房屋竣工面積9636萬平方米，下降22.9%。其中，住宅竣工面積6761萬平方米，下降24.3%。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161824/8-20.png)
-
-前兩個月房地產銷售，商品房銷售面積8475萬平方米，同比下降39.9%，住宅銷售面積下降39.2%。商品房銷售額8203億元，下降35.9%，住宅銷售額下降34.7%。
-
-2020年2月，百強房企單月全口徑銷售金額環比降低43.8%，同比降低37.9%。一二線城市成交量同比下降77%，廣州、寧波、重慶、西安、南寧、大連、武漢等城市單月成交量的同比跌幅均大於90%。幾乎所有數據都在快速下跌的同時卻有一個數據非常亮眼，那就是支撐各位財政和拉高房價最關鍵的“土地出讓金”。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25161914/9-1-6.png)
-
-
-從這一點就能看出共產黨根本就沒打算讓房價下跌，減輕現在老百姓在如此惡劣的營商環境下的生存壓力。
-
-所有的數據的統計已經可以肯定的說中共國房地產崩盤已經開始了。背後根本原因就是支撐房地產這個怪胎的製造業已經崩塌，消費者沒有了足夠的資金可以繼續維持它的現狀。在這個大浪淘沙的歲月裡，請遠離房地產，它的崩潰必然會帶走一大群為之瘋狂人。
-
-房地產這個讓共產黨苟延殘喘10多年的怪獸終將埋葬共產黨。希望中華大地上每一個普通百姓遠離房地產，不要做邪魔覆滅的犧牲品。
-
-（文章內容僅代表作者個人觀點）
-
+3月25日：這就是爆料革命的力量……無處不在……爆料革命沒有力量不能到達的死角……沒有天花板，只有目標．只有目的．只有成功！爆料革命用行動用結果來回報所有戰友的付出，任何人都不要試圖和共產黨一起來再繼續綁架14億中國人民，也絕不允許任何人．再把中國人民的未來和安全作爲交易的條件，只要爆料革命在……中國人將永遠的安全……受到世界尊重！一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170648_65236.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_54225.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_17619.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_1112.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_19829.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_5797.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_24702.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_18266.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585170649_25937.(null))
 0
