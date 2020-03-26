@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 从武汉长江大桥的造价看新基建投资的放卫星<br>https://gnews.org/zh-hans/152087/
+
+[https://www.guo.media/posts/276147](https://www.guo.media/posts/276147) `2020-03-26T04:40:19`
+##
+
+**milesguo** 《中共肺炎》证实防疫物资外销 耿爽卖超爽：至少17国签约采购<br>https://gnews.org/zh-hans/152709/
+
+[https://www.guo.media/posts/276146](https://www.guo.media/posts/276146) `2020-03-26T04:40:20`
+##
+
 **milesguo** 3月25日：这就是爆料革命的力量……无处不在……爆料革命没有力量不能到达的死角……没有天花板，只有目标．只有目的．只有成功！爆料革命用行动用结果来回报所有战友的付出，任何人都不要试图和共产党一起来再继续绑架14亿中国人民，也绝不允许任何人．再把中国人民的未来和安全作为交易的条件，只要爆料革命在……中国人将永远的安全……受到世界尊重！一切都已经开始！
 
 [https://www.guo.media/posts/276124](https://www.guo.media/posts/276124) `2020-03-25T21:25:18`
