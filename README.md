@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 共产党营造复工潮！不料 如今演变失业潮！<br>https://gnews.org/zh-hans/153228/
+
+[https://www.guo.media/posts/276172](https://www.guo.media/posts/276172) `2020-03-26T07:55:24`
+##
+
+**milesguo** 共产党营造复工潮！不料 如今演变失业潮！<br>https://gnews.org/zh-hans/153228/
+
+[https://www.guo.media/posts/276171](https://www.guo.media/posts/276171) `2020-03-26T07:55:26`
+##
+
 **milesguo** 九千万共产党员，为了拯救你和家人，请务必留下证据<br>https://gnews.org/zh-hans/153098/
 
 [https://www.guo.media/posts/276170](https://www.guo.media/posts/276170) `2020-03-26T07:40:12`
