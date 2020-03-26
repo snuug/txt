@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 2020年3月25日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/152797/
+
+[https://www.guo.media/posts/276154](https://www.guo.media/posts/276154) `2020-03-26T05:40:20`
+##
+
+**milesguo** 《中共肺炎》斥资千万大买中国快筛 准确率比丢铜板决定还不如! 捷克官媒：错误率80％<br>https://gnews.org/zh-hans/152744/
+
+[https://www.guo.media/posts/276153](https://www.guo.media/posts/276153) `2020-03-26T05:40:22`
+##
+
+**milesguo** 《军情动态》美军EP-3侦察机监控共军 今在高雄外海空域兜圈圈<br>https://gnews.org/zh-hans/152726/
+
+[https://www.guo.media/posts/276152](https://www.guo.media/posts/276152) `2020-03-26T05:40:24`
+##
+
 **milesguo** 《中共肺炎》俄罗斯一夜暴增163例 莫斯科市长坦承疫情恶化<br>https://gnews.org/zh-hans/152661/
 
 [https://www.guo.media/posts/276150](https://www.guo.media/posts/276150) `2020-03-26T04:55:25`
