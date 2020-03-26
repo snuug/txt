@@ -1,81 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國防生產法案—美國反擊的集結號
-`2020-03-25 15:36 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/152665/)
+## 產業鏈轉移、變相收費、強調維穩，復工抵擋不住中共經濟下滑趨勢
+`2020-03-25 16:39 GM06` [轉載自GNews](https://gnews.org/zh-hant/152891/)
 
-**【中英对照翻译】** [https://spark.adobe.com/page/t2ugv8tcEQmdL/](https://spark.adobe.com/page/t2ugv8tcEQmdL/)
+作者：立武
 
-*BY BRIG. GEN. ROBERT S. SPALDING*
+中共掩蓋疫情真相，官方通報多日湖北、武漢確診為零或左右，3月25日解封湖北，通報4月8日解除離漢利鄂管控，這在於中共口徑是打贏抗疫之戰的一大勝利，事實上，這只是中共為複工而虛假製造的勝利。
 
-*罗伯特·s·斯伯丁准将著*
+中共在2月下旬以來，各地複工復產，一是短暫撐住中共的經濟，二製造資本避險的環境的假象，三是留住外資外貿，中共對外貿易依存度約為30%，其中出口佔18%，對美出口又佔1/3，隨著疫情在各國的蔓延，國際訂單的減少，特別是美國啟動國防生產法之後，產業鏈的轉移，中共進出口將大幅下降，其中2月份PMI比一月份下降14.3百分點，其中新訂單指數下降22.1個百分點，1、2月份進出口總值同比下降9.6%。
 
-*翻译：freedust*
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25163454/11-21.png)
 
-*简评：freedust*
+中共將數據的下滑歸咎於春節因素和疫情影響，聲稱隨著復工的有序進行，可以“穩外貿”，然而這是不現實的，即使復工能夠短暫維持住主要的外貿項，這也是以老百姓的安全為代價。何況受國際疫情影響，進口勢必因為國際物資的急需而下降，出口也會因為防控需要和產業鏈轉移而帶來訂單減少。
 
-*PR： 海阔天空*
+**去年十月份，郭文貴先生講到，美國產業鏈撤出中國的時間在今年** **4** **月份；由於疫情因素，這個時間只會提前；而且，這涉及到的上下游企業非常多，因此中共不再可能依賴外貿來維持外彙和經濟基本面。**
 
-**斯伯丁将军准确地定义了国防生产法案在美国应对疫情和美国安全战略调整及革新中的重要作用。在全球化过程中，制造业的外流正是这次中共病毒疫情爆发，让美国处处限于被动的根本原因。而美国经济的脱实向虚，过分注重于金融衍生品和IT娱乐产品的国策， 也正是酿成现在史无前例的金融海啸的原因之一。这次疫情已经让美国警醒了，通过国防生产法案可以有效的修补美国断裂的产业链，并再次开动美国实体经济的发动机，这无疑会减少美国社会中下层的债务危机、增加就业率，并对美国整个社会财富进行重新平衡。从长远来看，这对美国具有重要的历史意义。**
+**在外貿萎縮的同時，隨著家庭債務的增加（** **2018** **年末住戶部門槓桿率為** **60.4%** **，表外可能更大）和** **CPI** **的增加，居民的消費能力會大幅下滑，中共開始轉向尋求** **5G** **和衛生基建來促進三架馬車中剩下的投資，然而** **1** **月份有** **9** **個已公佈的省市財政收入不增反減，山西在一月份的一般公共預算收入更是同比下降** **19.8%** **，全國地方政府債務餘額超過** **20** **萬億人民幣（** **2** **月末達** **225302** **億），隱性債務可達** **30** **萬億人民幣。**
 
-**现代战争的方式已经彻底从船坚炮利的时代走出来了，由数字驱动并关联的新型战争模式将代替原有的立体战争模式。而数字安全，无论从现在中共发动的超限战来看，还是在常规，抑或核战中都将起到决定性作用，斯伯丁将军已经敏锐的注意到了这一点。**
+**三架馬車將有全面失速之勢，各地開始顯現降租遊行、休假停工，甚至青煙裊裊。**
 
-**新时代来了，未来的5G、海量数据时代将重新定义这个世界，虽然这个序幕并不太好，但前景是光明的。一个国家的先进技术究竟用于正面、光明的、造福民众的方向，还是负面、阴暗的、奴役民众的方向，直接会定义这个政权选择的性质。美国现在所要进行的，和中国已经在执行的正好印证了这两点。**
+中共人社部為此下發《意見》，重點強調穩就業，第一大舉措就是複工復產，然而這是以犧牲中國人民為代價的；除此之外，還有減稅降費。但是，由於地方政府債務激增，以及中共虛假作風和地方利益之間的糾葛，到了地方不是成一紙空文，就是尋求其他手段搜刮民脂。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/25163633/12-2-4.jpg)
+當然中共第一時間又出來闢謠，但是實際情況可能依然需要收費。中共承諾給安保的補助一千，結果到手二百五，給環衛工人一天五百，到手一百；正因為中共這樣的上欺下騙，才有了這些站出來抗議政府剋扣補貼，要求政府公開透明的示威遊行。而正是為了應對這樣開始出現的抗議現象，中共在24日的政法系統電視電話會議上專門強調了維穩的工作。
 
-**只有把更多的资源和权利赋予这个国家动能最强、创造力最强、也是数量最庞大的中下层公民，才会使这个国家稳定并焕发出无与伦比的让人赞叹的文明光芒，而那些杀鸡取卵，涸泽而渔的政权将必然走向颠覆和灭亡。**
+> [pic.twitter.com/3L7aAEIATm](https://t.co/3L7aAEIATm)
+> — Ray Lau (@fiteray) [March 23, 2020](https://twitter.com/fiteray/status/1242052260080713728?ref_src=twsrc%5Etfw)
 
-## 冠状病毒暴露了美国真正的国家安全漏洞
+復工，老百姓有安全風險；經濟下滑，老百姓失業、沒錢維持生計；中共盜國賊是始作俑者，掩蓋疫情真相，盜取國家財富；對比之下，西方各國對於民眾落到實處的補貼和免稅，這是民主國家將人民放在第一位的表現。由於中共的經濟撐不了多久，在外貿和內需雙重萎靡之下，中共可能重走國家管控經濟的路徑，由國家統計收購和分配，在這樣的情況下，現金流和必備的物資是應有的保障。
 
-从中国加入世贸组织开始，美国本土制造业向海外的迁移就对美国的安全造成了伤害。当前，冠状病毒的爆发和它迅速扩散中断了全球产业链，并使我们警醒，工业能力是任何国家安全的组成部分。
-
-美国绝大多数药品供应都依赖于中国的非市场经济。中国禁止了所有医疗专业人员用来保护自己免遭疫情侵袭的口罩的出口。除此之外，美国军方还需要从中国采购大量零部件和供应品，这些零部件和供应品都容易受到供应链中断的影响。
-[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/3480a1a9-040b-4f99-83bb-bad1d34a6722.jpg?asset_id=3a385652-3412-4434-99d1-e1f247e4cb3c&amp;img_etag=c229708c78c1c620af1987b8704d98de&amp;size=1024)
-
-
-尽管如此，冠状病毒引起的中断提供了一个修复我们国家安全明显弱点的机会，同时可以为我们的经济提供急需的动力。
-
-Rather than quantitative easing — which has been the main policy option in recent financial crises — it’s time to dust off fiscal stimulus to help kick-start economic growth in the coronavirus aftermath.
-
-该放弃量化宽松了——这个在近来金融危机中用到的主要政策选项——在冠状病毒事件之后，是时候重新启动财政刺激来帮助启动经济增长了。
-
-The Defense Production Act (DPA) and DPA Title III program give the Department of Defense (DOD) broad authority to conduct industrial policy in support of national security. These authorities and a portion of the DOD budget could be used to stimulate the reshoring of critical manufacturing capabilities such as pharmaceutical supply, semiconductors and microelectronics.
-
-国防生产法案和国防生产法案第三条赋予了国防部广泛的权利来实施工业政策以支持国家安全。这些授权和国防预算的一部分可以用于刺激关键制造能力的回流，如药品供应、半导体产品和微电子产品。
-
-Throughout its history, the U.S. government has seized railroads, coal mines, even department stores. While today’s challenges do not require such drastic measures, the DPA authorities are broad: “There are three core authorities granted to the president: Title I, priorities and allocations, in which persons and businesses could be required to prioritize national defense when accepting contracts for materials and services; Title III, expansions of productive capacity and supply, production of goods and materials vital to national security (that) can be incentivized (loans, guarantees, privatized industrial facilities); Title VII, general provisions, ability to establish, block agreements both domestic and foreign that threaten national security, and establish a core group of volunteers from industry that can be called upon to serve.”
-
-纵观历史，美国政府曾经回收了铁路，煤矿，甚至百货公司的控制权。尽管今天的挑战不需要采取如此严厉的措施，但DPA的权利是广泛的：“他授予总统三项核心权力：第一条，优先事项和分配，其中个人和企业在接受材料和服务合同时可以被要求优先考虑国防；第三条，扩大生产能力和供应，对国家安全的至关重要的产品和材料可以进行鼓励（贷款，担保，私有化的工业设施）；第七部分，总则，建立和阻止国内外威胁国家安全的协议的能力，并建立一个核心团队，由来自行业的志愿者组成，他们可以被要求服务。”
-
-During the Cold War, President Eisenhower used his understanding of the power of infrastructure to advocate for the National Highway System. While the primary motivation for the infrastructure program was not national security, the emergency evacuation of cities in the event of nuclear attack was cited as a purpose for the project.
-
-在冷战期间，艾森豪威尔总统利用对基建力量的理解来倡导建设国家高速公路系统。虽然，基建项目的主要动机不是国家安全，而该项目的其中一个目地是在核打击事件中紧急疏散城市居民。
-
-To provide a near-term boost to the economy, the executive branch could order federal departments and agencies to fast-track infrastructure projects currently stalled — such as additions to the U.S. electrical grid and the construction of high-speed rail. These projects have hundreds of billions of dollars in private investment waiting. The projects languish in agencies including the Department of Transportation, while bureaucrats hold U.S. economic growth and national security hostage.
-
-为了短期提振经济，行政部门可以命令联盟部门和机构快速推进目前停滞不前的基础设施项目—比如国家电网的扩建和高速铁路的建设。这些项目正等待着数千亿美元的私人投资。这些项目在包括运输部在内的各个机构中日渐被冷落，而官僚们把美国的经济增长和国家安全作为人质。
-
-Research and development funding — which is at the lowest point since the Cold War — and STEM (science, technology, engineering, math) education grants would be another good investment for DOD dollars. The latest Defense Innovation Unit (DIU) report noted that the Chinese government “is executing a multi-decade plan to transfer technology to increase the size and value-add of its economy, currently the world’s 2nd largest. By 2050, China may be 150 percent the size of the U.S. and decrease U.S. relevance globally.”
-
-研究和发展资金——现在已经降至冷战后的最低点，而STEM(科学，技术，工程学，数学)，教育补助金将是国防部的另一项良好投资去向。国防创新小组最新的报告显示中共政府正在执行一个多年的计划，通过技术转让来扩大经济的体量和增加其附加值，当前其体量为世界第二。至2050年，中国可能达到美国经济体量的1.5倍，并降低美国的全球影响力。
-[!\[\](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)](https://spark.adobe.com/page/t2ugv8tcEQmdL/images/a323a156-bfe8-40d3-8708-8b8e416fac29.jpg?asset_id=2c577037-cdfa-4b61-9007-79f85fa07876&amp;img_etag=00b48a279d52b4b7547e349bf2e8125a&amp;size=1024)
-Boosting investment dollars for high-tech innovation would help America retain the lead in technology superiority and provide fodder for private-sector economic growth.
-
-提高高科技创新的投资将有助于美国保持技术优势的领先地位，并为私营经济增长提供动力。
-
-Finally, investing in a nationwide, secure 5G network, like that called for in the National Security Strategy, would protect American data and prevent the outflow of an estimated $300 billion to $600 billion of intellectual property lost each year to Chinese theft.
-
-最后，像《国家安全战略》(National Security Strategy)中所要求的那样，投资建设一个全国性的安全5G网络，将保护美国的数据，并防止每年因中国的盗窃行为而损失的大约3000亿至6000亿美元的知识产权流失。
-
-While the 20th century equated national security with bombs, bullets and geography, national security in the 21st century is focused on 1s and 0s — the basis of our digital world — and dollars and cents. Reprioritizing spending away from weapons and towards maintaining U.S. economic, scientific and technological superiority will put us on the Eisenhower path. The investment in the U.S. during the Eisenhower years resulted in economic growth and prosperity.
-
-在20世纪，国家安全等同于炸弹、子弹和地理，而在21世纪，国家安全则集中在数字世界的基础的0和1，以及美元与美分上。重新把开支的优先次序从武器转向维持美国的经济、科学和技术优势，将使我们走上艾森豪威尔的道路。艾森豪威尔时代对美国的投资带来了经济增长和繁荣。
-
-With economic aftershocks caused by coronavirus, this fiscal policy for national security will reorient the U.S. toward industrial capability and economic growth.
-
-由于冠状病毒造成的经济余震，这项国家安全的财政政策将使美国重新定位于工业能力和经济增长。
-
-[新聞來源](https://thehill.com/opinion/national-security/487769-coronavirus-unmasks-americas-real-national-security-vulnerabilities)
-
-编辑 【喜马拉雅战鹰团】
+（文章內容僅代表作者個人觀點）
 
 0
