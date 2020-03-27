@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄羅斯徹底關閉國際航空運輸
-`2020-03-26 21:37 GM09` [轉載自GNews](https://gnews.org/zh-hant/153835/)
+## 意大利前總理Salvini：如果中共政府隱瞞了疫情真相，將坐實反人類罪！
+`2020-03-26 22:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/153866/)
 
-作者：VOG多國語言組
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26220422/salvini_mascherina_senato_fb.jpg)
 
-承運方只能通過出境航班將乘客送回。該禁令不適用於貨運，郵政，衛生和人道主義運輸
+據意媒Adnkronos3月26日報導：“我不想惹起爭議，但想說，我們必須追查到底是誰掀起了這場疫情，並隱瞞了真相？以致讓我們浪費了幾週的寶貴時間來應對！如果中共政府本已知情，卻沒有如實公佈並採取防保措施，將坐實反人類罪。”
 
-從3月27日起，俄羅斯將完全關閉其常規和包機的國際航空服務，承運方只能通過出境航班將旅客送回。
+意大利同盟參議員兼領導人，前總理Matteo Salvini在Madama宮的會議中，於總理孔特作完匯報後，發表如是看法：“我們堅決不可以把那些感染了全世界的人當成救世主！”
 
-該決議是由俄聯邦政府的協調理事會主席團作出的。
+新聞來源： [https://www.adnkronos.com/fatti/politica/2020/03/26/coronavirus-salvini-cina-sapeva-crimine-contro-umanita\_FGXtiR1tB3yPv9LIy313SJ.html?refresh\_ce](https://www.adnkronos.com/fatti/politica/2020/03/26/coronavirus-salvini-cina-sapeva-crimine-contro-umanita_FGXtiR1tB3yPv9LIy313SJ.html?refresh_ce)
 
-完全關閉空中交通的需求與世界衛生組織（世衛組織）宣布的新型冠狀病毒感染大流行及其在包括俄羅斯在內的170個國家的迅速傳播有關。
-
-從俄羅斯出發的國際航班從2月1日開始逐漸下降。
-
-這些限制措施分為幾個階段進行：首先限制了飛往中國、韓國和其他幾個國家的航班，後來限制飛往西班牙，意大利，德國，法國，幾天后又擴展至整個歐洲。
-
-最廣泛的限制措施是3月23日開始實施的。
-
-隨後，飛行禁令擴展到了95個國家。
-
-來源：https://yandex.ru/turbo?text=https%3A%2F%2Ftass.ru%2Fobschestvo%2F8092553
+編譯：山河大地
 
 0
