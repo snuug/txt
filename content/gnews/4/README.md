@@ -1,75 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 首發：喜馬拉雅戰鷹團戰歌《喜馬拉雅》
-`2020-03-22 14:06 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/148827/)
+## CCP搬起石頭消滅了自己的民營出口企業
+`2020-03-26 18:37 GM06` [轉載自GNews](https://gnews.org/zh-hant/153693/)
 
-改編自: Moby Extreme Ways （Jason Bourne Soundtrack） 
-歌詞改編： 心如飛鳥，Demos 迪陌思 
-戰鷹團樂隊： 心如飛鳥，Demos 迪陌思，AQUA 
-戰鷹團混音： K77
+作者：文茗
 
-##  **戰鷹樂團隆重推出滅共新歌 《喜馬拉雅》**
+中共海關總署公佈2020年前兩個月的進出口數據，數據顯示前兩個月貿易進出口總值4.12萬億元人民幣，外貿進出口累積下降9.6%，其中出口下跌15.9%，進口下跌2.4 %。
 
-**戰鷹團樂隊專輯Band Of H.H.S 现在有三首歌曲， 歡迎大家转发和下载：** 
-[https://youtube.com/playlist?list=PLk4Bcn2e6jjveKYnPtlRUUSrvDBWqW9Pt](https://t.co/K0bb32GFIK?amp=1)
+中共國和東盟之間的貿易總額為5941.1億元，同比增長2%；和歐盟貿易總額為5574.2億元，下跌14.2%；和美國貿易總值為4225億元，下跌19.6%。
 
+民營企業前兩個月進出口總額為1.73萬億，下降6.6%，小於整體降幅3個百分點，佔中共外貿總額的41.9%，比去年同期非民營企業比重提升1.3%。
 
+前兩個月紡織服裝品出口2084.9億元，下降18.7%，其中紡織品出口962.3億元，服裝出口1122.6億元，均下跌18.7%
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26182651/1-138.png)
+2020年中國光伏組件出口量連續兩月出現下跌，1月份出口量較同期減少了1.59吉瓦, 同比下跌26%;2月減少了0.83吉瓦，同比下跌22.6%。 2月份出口量僅為2.83吉瓦左右，與1月份相比下降了57.2%。
 
-我們就要到喜⻢拉雅
-你快完了就會騙我和你一起進攻 
-世界已經讓你弄的混亂千瘡百孔 
-所有人的面孔你說監控就監控 
-人們受的苦和覺醒不會讓你得逞
- 自由的人就會突然靈光一現 
- 把解決問題的方法擺在我們眼前 
- 這才叫人⺠的力量和你宣傳的不同
- 突然間全世界不再敢配合你洗錢 
- 武漢病毒傳染撕爛了華爾街的嘴臉 
- 別說我們不清楚是誰發動了這場病毒戰 
- 中共內亂不斷 快要完蛋
- 武漢人的嘶吼和反抗已經一呼百應 
- 推翻中共人們才能擁抱美好自由世界 
- 欺騙威脅殘害我們的陰謀不再應驗 
- 爆料革命的出現 本是上蒼之劍
- 你做過的的壞事只能造成惶恐 
- 對延緩你的滅亡根本不起作用 
- 聽你說話的也只有那些粉紅 
- 看著他們回國“避難”我只好說不送
- 你茍延饞喘的時候就會發動戰爭
- 對面的同胞也早就眾誌成城
- 到時候妳就知道我們是同文同種
- 革命就在眼前 舉起拳要明天
- Everybody，wake up now,
- Fight for a paradise, a new paradise 
- 全世界 fight back now 
- 我們在呼喊 在呼喊
- 我們就要到喜⻢拉雅
- 那裏有神聖的雪山和酥油茶
- They say what goes around comes around
- It’s a circle you get what you deserve 
- No matter how you battle evils fall to hell
- Good ones go to heaven
- All the best movies said the same thing
- In your pipe dreams, you want to live forever
- By taking lives and blood of the younger generation
- You know the longer you live
- The worse comes your judgement
- Everybody，wake up now,
- Fight for a paradise, a new paradise 
- 全世界 fight back now 
- 我們在呼喊 在呼喊
- 我們就要到喜⻢拉雅
- 那裏有神聖的雪山和酥油茶
- ⻜翔的雄鷹和奔跑的駿⻢
- 微笑的人們還可以遇⻅他
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22140212/ETrN19DX0AAZS1k.jpg)
-## **震撼登場，爆料革命，第一樂團，**
+這些出口數據已經可以很明顯的看出CCP病毒對出口私人企業的傷害究竟有多可怕，一些實例更是讓人無奈可憐。
 
-## **點燃希望，唱出未來！**
+紹興柯橋納旭紡織品有限公司是當地比較知名的外貿企業，公司產品主要出口美國、意大利、英國等10多個國家和地區，現在隨著歐洲疫情持續發酵，很多訂單已經被取消，相關生產只好暫停。
 
-## **滅共吶喊，刻不容緩！就等你來！**
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26183242/2-97.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26183204/3-2-25.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26183000/4-46.png)
 
 
+3月18日，東莞大型玩具工廠、現有員工1200多人的東莞汎達玩具有限公司（簡稱“汎達玩具”）因歐美客戶取消訂單、供應商催款、資金鍊條斷裂，無奈宣布倒閉。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26183147/6-3-10.jpg)
+3月21日，一張“東莞精度表業有限公司”的公告在網上備受關注。公告稱，當前新冠肺炎疫情肆虐全球，歐美地區尤為嚴重，因最大客戶美國寶利“FOSSIL”取消訂單，公司面臨隨時關停的風險，不得不宣告放假三個月，公司接受全體員工（不分職級、崗位）辭職，急辭即走不扣除代通知金。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26183225/7-15.jpg)
+
+如此多的出口訂單的的取消，必然導致大量出口企業的倒閉。這些企業廠區土地租賃費用，貸款利息一點沒降低，如果工人被召回沒有訂單養活這些人的支出等等。敢問那個私人企業家有能力財力可以維持到疫情結束的那一天。
+
+很多消息都表面中共國國內90%以上的外貿訂單都已經被取消。富士康、比亞迪、啟悅這些被我們耳熟能詳的企業都都爆出了縮減停止招工的消息，那麼那些我們不熟悉的企業呢，結果可想而知。
+
+中國私人企業吸納了至少70%以上的就業，貢獻50%以上的賦稅。以眼下訂單的消失，企業主存量資金的消耗殆盡，那就只有一種可能性，民營企業出口企業從中共國這片土地徹底消失。企業倒閉必然會導致大量就業人口的失業，就算共產黨新的48萬億基建又能解決多少就業，以可預見的失業潮來看，也只是杯水車薪。這些人沒有了收入還拿什麼來維持現有貸款和生活。
+
+這個民族經歷了太多次的苦難，共產黨放鬆權利和管制的那麼短短的30年時間裡，中華民族就已經蹦發出瞭如此的光芒四射。我們真該反思是什麼壓制了我們的能量？那就是集2000年極權之惡於一身的共產黨。這70年來每一次的傷痛都是共產黨一手製造的。為了我們自己的今天，也為了我們子孫的明天，我們一定要推翻東歐傳來的邪教共產黨，重建中華，還我華夏大好河山。
+
+（文章內容僅代表作者觀點）
 
 0
