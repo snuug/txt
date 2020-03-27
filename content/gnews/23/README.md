@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月25日德國簡訊
-`2020-03-26 08:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/153440/)
+## 為應對CCP冠狀病毒威脅五角大樓提高全球美國基地安全措施
+`2020-03-26 09:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/153462/)
 
-## 德國感染中共病毒人數逼近四萬
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26085911/Picture-1-75.png)
+據今日國會山報導， 國防部長馬克·埃斯珀（Mark Esper）週三宣布將軍方全球所有國防部設施的健康保護水平提高到了第二高水平。原因是感染CCP冠狀病毒的服役人員數量持續增加。截至週三早上，已有227名現役人員的CCP冠狀病毒檢測呈陽性反應（較前一天增加了53例。
 
-## 奇蹟: 汽車配件廠四天轉型生產口罩
+五角大樓女發言人法拉（Alyssa Farah）宣布將“健康保護條件”（HPCON）升格為“查理”級別：包括增加遠程辦公的人數，取消大規模聚會並要求在軍事設施的某些建築物的入口處進行體溫測量。措施會因設施不同而有差異。查理（Charlie）同時意味著與疾病控制和預防中心（Centers of Disease Control and Prevention）對某些國家的3級警告一致。儘管川普總統當天表示，他將盡快放鬆美國某些地區的措施。
 
+川普曾希望經濟活動在4月12日復活節之前重新開放，儘管公共衛生專家預期美國到那時還沒有達到疫情爆發的頂峰。但是美兩黨和各州州長以及地方官員都反對這一想法，警告說過早結束嚴格的社會隔離做法可能使數百萬生命面臨危險。
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26085015/d5b429f5e72be7a1050ae44a0cd3af72.jpg)图片来源：維基百科圖片
-根據時代在線[ZeitOnline]網站的統計，截止2020年3月25日22時53分，德國確診人數為37949人，死亡187人，治癒1508人。（[新闻来源](https://www.zeit.de/wissen/gesundheit/2020-03/coronavirus-deutschland-infektionen-faelle-verbreitung-epidemie-karte)）
+面對記者空軍準將、聯合參謀部外科醫生保羅·弗里德里希斯（Paul Friedrichs）強調，需要暫時減少接觸，“隨著情況的變化，我們將重新評估並做出適當的決定“。他同時承認，病毒在軍隊中傳播的“傳染曲線尚未平坦下來。這就是我們今天將健康保護條件（HPCON ）定為“查理”（Charlie）的原因，措施包括對大型聚會的限制，還有額外的社交距離。”
 
-**歐盟委員会出招避免本成员国企業被收购**
+當被問及是否有任何醫學數據支持復活節取消人員距離限制的舉動時，弗里德里希斯（Friedrichs）只是說：“軍方的這種行動是’平衡行動’，最終，我們必須平衡服役人員的健康保護與我們對國家擔負的責任，以繼續保家衛國”。
 
-歐盟委員會有意更好地保護歐洲企業免於被收購。歐盟委員會主席馮．德萊恩周三表示，許多企業因病毒危機暫時弱化，「因此我們必須知道，哪些歐洲以外的投資者要收購陷入困境的企業，他們的目的是什麼。」歐盟必須保護重要的科技和大公司。因此，委員會為成員國出具了指導方針，為了「審查國外的直接投資」。馮．德萊恩還要求沒有相應規定的歐盟國家迅速通過保護公司的方法。如果歐洲以外的投資者損害歐盟的安全和公共秩序，成員國可以限制資本流動。（[新闻来源](https://www.faz.net/aktuell/wirtschaft/eu-kommission-will-unternehmen-vor-uebernahmen-schuetzen-16696840.html)）
+評：由於多名美軍服役人員感染了CCP病毒，其性質相當於美軍已受到了生化武器的攻擊。這導緻美國防部已經採取的全球安全措施。這一發展下去，一旦美國認定中共有意為之，那麼中共將面臨的是致命的嚴重後果。
 
-**德國聯邦議會通過了1560億歐元救企业**
+[原文鏈接](https://thehill.com/policy/defense/489520-pentagon-raises-base-security-globally-over-coronavirus)
 
-聯邦議會通過了高達1560億歐元的追加預算，以及6000億歐元的經濟穩定基金。在救助傘保護下，國家將為大型企業提供大規模擔保，必要時可將重要企業全部或部分國有化，當危機結束以後，企業應該再次私有化。並不是所有企業都可以從中受益，只有收入高的企業和擁有250名員工以上的企業可以獲益，小型公司只有在個別情況下才能享受救助傘的保護，如果他們對基礎設施非常重要的話。此外，聯邦議會以明顯多數通過了債務剎車暫停，議會允許聯邦政府採用新增債務的方式抗擊冠狀病毒危機。456名議員投了贊成票，3票反對，55票棄權。（[新闻来源](https://www.welt.de/politik/deutschland/article206794957/Corona-Deutschland-Bundestag-gibt-156-Milliarden-Euro-frei.html)）
-
-**奇迹: 汽車配件廠四天轉型生產口罩**
-
-德國大型汽車製造商接連暫停生產，如巴伐利亞州汽車配件廠Zettl的一條新生產線卻剛剛啟動之际。此时總經理Matthias Zettl在登記短時工之前將公司迅速轉型成調整生產口罩，轉型只花了四天時間。
-
-宣布:「因為我們服務於研發和樣車製造領域，通常必須按照客戶的需求一再重新調整，有時要在幾天或幾小時內完成配件的生產。」在製作口罩剪裁樣本時，衛生規定必須更加嚴格。由於生產的自動化，目前Zettl已將口罩的產量提高到每天超過1萬個。（[新闻来源](https://www.handelsblatt.com/unternehmen/industrie/coronakrise-desinfektionsmittel-statt-schnaps-wie-die-deutsche-industrie-ihre-produktion-umstellt/25676638.html)）
-
-
+翻譯報導：匿名
 
 0
