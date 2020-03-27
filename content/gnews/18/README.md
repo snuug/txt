@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利前總理Salvini：如果中共政府隱瞞了疫情真相，將坐實反人類罪！
-`2020-03-26 22:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/153866/)
+## 拒絕「CCP病毒」不被傳染有解藥！
+`2020-03-27 00:04 GM10` [轉載自GNews](https://gnews.org/zh-hant/153948/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26220422/salvini_mascherina_senato_fb.jpg)
+作者：聞喜
 
-據意媒Adnkronos3月26日報導：“我不想惹起爭議，但想說，我們必須追查到底是誰掀起了這場疫情，並隱瞞了真相？以致讓我們浪費了幾週的寶貴時間來應對！如果中共政府本已知情，卻沒有如實公佈並採取防保措施，將坐實反人類罪。”
+要想不被傳染首先心態好，少造業，每個人生來和死去只隨身攜帶兩個無形資產：1福德、2業力。
 
-意大利同盟參議員兼領導人，前總理Matteo Salvini在Madama宮的會議中，於總理孔特作完匯報後，發表如是看法：“我們堅決不可以把那些感染了全世界的人當成救世主！”
+有人會說這是迷信，早在民國時候蔣中正的日記里己有記錄!最能體現」萬物皆有靈性」這句話當屬日本的水分子實驗https://youtu.be/ITYAYxKHL7U
 
-新聞來源： [https://www.adnkronos.com/fatti/politica/2020/03/26/coronavirus-salvini-cina-sapeva-crimine-contro-umanita\_FGXtiR1tB3yPv9LIy313SJ.html?refresh\_ce](https://www.adnkronos.com/fatti/politica/2020/03/26/coronavirus-salvini-cina-sapeva-crimine-contro-umanita_FGXtiR1tB3yPv9LIy313SJ.html?refresh_ce)
+日本水分子實驗，上善若水，每個人的起心動念天地都知，這是事實!所以人算不如天算，欺已容易,欺天難!
 
-編譯：山河大地
+「武漢病毒」實際上是中共CCP的生物武器，中國人受害者首當其衝，而且中共魔鬼面目昭身上若揭。事實勝於雄辯，魔鬼已經出現怎麼才能不受病毒傷害具體方法：1每天起床在睜開眼前，心裡(最好喊出來)默念摧毀中共CCP，中午吃飯前禱告一下上天：早點結束中共CCP，晚上睡覺前(最好喊出來)再默念摧毀中共CCP! 念念不忘，必有回響，必出誠意!人在做，天在看，每天如此，自身的業力場也會在減小，宣揚真相還可轉化功德!看看對中共做惡小罵大幫忙的國家和個人有幾個能逃脫這次災難，默大媽，英王子，加拿大總理夫人，伊朗副總統，哪個生活衛生環境不是一流，還是那句話：天滅中共，無人可擋!懺悔過去-切錯，遠離中共莫再做!1949前中國人的見面禮多有遠見講究：見面「抱拳拱手」會在今後成為時尚～回歸文明!少摸錢💰杜絕傳染源，這可能是上天告誡人們應該反省什麼是信仰了！此文拋磚引玉,別無他意!https://youtu.be/aozxVN8Ut\_c聯合國水分子實驗!
 
 0

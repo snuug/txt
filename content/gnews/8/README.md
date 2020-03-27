@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法國疫情嚴重，高鐵成為轉移中共病毒患者的移動急診室
-`2020-03-27 01:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/154055/)
+## 《軍情動態》神盾艦才剛過台海 美軍2架B-52在台灣東方空域演訓
+`2020-03-27 02:14 GM15` [轉載自GNews](https://gnews.org/zh-hant/154050/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/27013801/0756A0B6-1D8C-45B9-9EF7-C2C88BCA7720.png)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/27014334/phprANVee.jpg)
+美軍近日頻繁在台海附近演訓，繼神盾艦穿越台海、EP-3電偵機連2日接近台灣南部之後，2架B-52H轟炸機26日抵近東海防空識別區戰術偵察飛行，並在途中由KC-135「同溫層加油機」（Stratotanker）進行空中加油。
 
-這是第一次在歐洲使用移動急診室在高鐵上轉移重症中共冠狀病毒患者。
+專門追蹤飛機動向的「飛機守望」（Aircraft Spots）在推特上表示，2架B-52H轟炸機從關島安德森空軍基地（Andersen Air Force Base）出發，抵近東海防空識別區戰術偵察飛行，地點非常接近台灣，並由KC-135「同溫層加油機」進行空中加油。
 
-由於法國東部地區（感染嚴重區）醫院人滿為患，中共冠狀病毒患者由東區轉移到醫療設備尚有空位，位於西部地區的盧瓦爾河谷。
+美軍伯克級神盾驅逐艦麥坎貝爾號（USS McCampbell，DDG 85）25日通過台灣海峽，美軍EP-3E電偵機25、26日連續2天接近台灣南部外圍空域繞行。
 
-週四有電視新聞報導表明，病人被擔架抬上法國高鐵TGV之一，他們的床被平綁在乘客座椅頂部。
+> MAR 26: USAF B-52Hs MOCHA01 & 02 executed a flight to the East China Sea (near Taiwan) from Andersen AFB, Guam.
+> 
+> USAF KC-135Rs TALL11 & 12 provided tanker support. [pic.twitter.com/HZ6o1LRvH7](https://t.co/HZ6o1LRvH7)
+> — Aircraft Spots (@AircraftSpots) [March 26, 2020](https://twitter.com/AircraftSpots/status/1243271386124058624?ref_src=twsrc%5Etfw)
 
-每輛有車廂可容納四名患者，配備急救室設施，其中包括呼吸機和氧氣，並由六名醫護人員陪同。
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3114275)
 
-負責與法國鐵路運營商SNCF的Lionel Lamhaut博士在接受2個電視台採訪時說：“東部地區現在正處於感染頂峰。” “每個地區在接下來的幾週內，遇到相似的情況。轉移患者的想法是利用地區之間的疫情爆發的差異時間，從重災區轉移到下一個輕災區。”
-
-到現在為止，中共冠狀病毒在法國已有超過25,000確診病例，且奪走了1,300多人的生命。幾乎有一半的人死亡病例發生在斯特拉斯堡，蘭斯和梅斯等城市的大三角洲東部地區。
-
-法國鐵路系統的TGV火車擁有平穩乘感，當高鐵到達185英里時，乘客只會感到輕微不適。 Lamhaut博士表示，乘感較直升機更為平穩，這是快速轉移重症患者的另一種選擇。他說，病人在允許醫療人員在火車上進行緊急護理的保障下保持病情平穩。
-
-儘管它不會以最快的速度行駛，但能夠在五個小時內從距德國邊界附近的斯特拉斯堡到昂熱。
-
-Lamhaut博士說，為騰出重症監護病床給新患者，預計星期四後會有更多利用相同方式轉移的病患到達西部地區。
-
-他說：“如果必要，這將使我們在法國各地甚至歐洲各地轉移患者。”
-
-[新聞鏈接](https://www.npr.org/sections/coronavirus-live-updates/2020/03/26/821870173/france-transfers-coronavirus-patients-on-high-speed-train-with-mobile-emergency)
-
-翻譯報導：明澈
-
-
+GM15
 
 0
