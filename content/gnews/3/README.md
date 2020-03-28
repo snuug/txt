@@ -1,34 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利自由黨宣布發起運動稱“中共病毒” 不是中國病毒
-`2020-03-27 19:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/154666/)
+## [你們健身了嗎]
+`2020-03-27 20:36 GM17` [轉載自GNews](https://gnews.org/zh-hant/154673/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/27194912/Picture-1-92.png)
-昨天意大利自由黨報頭版頭條– 稱“中共病毒”不是中國（人）病毒—為醒目標題，發出對中國共產黨有史以來最強硬的指責！本黨宣布發起運動：稱為“中共病毒”，這樣才能避免傷及無辜，才能把矛頭準確對準了該受譴責的對象。
-
-**明確停止中國病毒之說，應該清晰稱中共病毒**
-
-全文道出整個中國目前正飽受中共極權專制體制的凌辱：縱觀在中國發生的一系列事件，包括非法逮捕、刑訊逼供甚至殺害等嚴重違反人權、壓制言論自由、迫害宗教人士和少數民族群體等罪惡行為。而讓中國處在這樣的水深火熱之中，造成這一切的罪魁禍首，不是中國人，而是中國共產黨。肆虐全球的病毒不應該叫“中國病毒”，我們應該停止這種說法，更準確更清晰地說是“中國共產黨病毒”。
-
-**中國共產黨的體係是一個謊言製造機蒙蔽全世界**
-
-中共的對內政策極端專職，高壓維穩。他們利用高科技手段，如面部識別、監控攝像頭、基因圖譜、指紋收集等方式監控中國人，覆蓋了中國所有的地區。中共通過這些恐怖手段，壓制言論自由，鎮壓民主運動，迫害宗教人士。在中國，所有的宗教群體無一倖免，宗教活動均遭到暴力干涉和鎮壓。比如在新疆，中共集中營關押了至少100萬人（根據獨立研究員的統計超過300萬），除了維吾爾族，還有哈薩克族、吉爾吉斯族、烏茲別克族等等其他少數民族。同樣西藏也遭遇政權的高壓統治和鎮壓。所幸世界上還有各種組織和機構致力於揭穿這些謊言。
-
-**中共此邪惡體制是全球病毒爆發的原因**
-
-文字指出因為中共體制充滿謊言和對真想的掩蓋，造成了信息的遲滯，延誤了全球各國的行動。不僅如此，中共還以疫情來掩蓋他們對中國人人權的侵犯，最重要的是試圖掩蓋武漢P4實驗室的真相。我們有極大的理由懷疑武漢P4實驗室是這次疫情的起點，其研究內容和病毒相關。
-
-儘管譴責無用，陰謀論無用，但是一定要查清武漢兩個病毒實驗室的事實真相。 2月中旬，兩名中國研究員，華南理工大學的肖伯濤和武漢科技大學的肖磊曾發布論文提到武漢的兩個病毒研究所，但是這篇文章隨後從國際學術搜索引擎Research Gate上消失了。個中原因尚不明確，但CCP肯定不願意看到這樣的文章。如果病毒實驗室沒有問題的話，為什麼CCP公開解釋清楚呢？上面兩位學者的論文為什麼會被撤下呢？
-
-**中共企圖在抗擊疫情中樹立“中國模範”威逼利誘其他國家**
-
-現在，意大利成了飽受“中共病毒”折磨最嚴重的國家，然而中共卻以“捐贈口罩”為籌碼誘使意大利購買其生產的呼吸機。如今，中共還歪曲事實，將病毒肆虐的責任推給意大利和美國。中共/中共國必須為其給全世界造成的損失進行賠償。
-
-根據上述對中共體制的描述，我們不應該繼續稱新冠病毒為“中國病毒”了，而是“中共病毒” (CCP Virus)。如華盛頓時報所言，“要區分開中國人民和在北京的統治者，我們必須明確的譴責中國共產黨的行為。是中共隱瞞了疫情，讓醫生閉嘴，抓捕記者和控制科學家，甚至明目張膽的關閉了發布第一個病毒基因序列的上海實驗室。這次事件中，中國人是英雄。問題不在中國人而是中共，它的對內高壓和對外侵略，對自由開放社會的惡劣影響”。
-
-[原文鏈接](http://www.reteliberale.it/dettagli.asp?id=243&amp;var=2)
-
-翻譯報導：JOJO
-
+3月27號：GTV’．👉．http://livestream.com/accounts/27235681 ．尊敬的戰友們好，你們健身了嗎？你們傳播C C P病毒香港危機真相了嗎？明天28號上午9:30文貴亂聊直播，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_97115.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_30694.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_95730.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_99123.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_65338.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_22942.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_29928.(null))
 0
