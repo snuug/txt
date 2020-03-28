@@ -1,40 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多國開始囤積糧食直接危及全球貿易
-`2020-03-27 19:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/154657/)
+## [你們健身了嗎]
+`2020-03-27 20:36 GM17` [轉載自GNews](https://gnews.org/zh-hant/154673/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/27193836/Foods-to-Hoard.jpg)圖片來源： [Homestead Wishing](https://homesteadwishing.com/foods-to-hoard/) 
-“如果各國政府不通過集體和合作來確保全球供應，如果他們只是把自己的國家放在首位，那麼最終情況可能會變得更糟。沒有糧食供應，社會就完全崩潰了。”–英國皇家戰略研究所查塔姆.本頓
-
-據美彭博社最新報導，目前包括中國在內的多國政府正在實施各種徵糧進口措施，和對食品限量出售出口的極端措施。這些政府在應付中共冠狀病毒疫情期間採取的極端行動以確保本國食品供應，將擾亂全球供應鍊和貿易流危及全球正常貿易。
-
-政府實施所謂的“糧食民族主義”行動危機全球貿易
-
-許多政府已經採取了極端措施，對人群甚至為獲取必需品而竭盡全力的人們實行宵禁和限制。英國皇家戰略研究所查塔姆.本頓擔憂：“如果各國政府不通過集體和合作來確保全球供應，如果他們只是把自己的國家放在首位，那麼最終情況可能會變得更糟。”
-
-1. 作為世界上最大的小麥粉輸出國之一哈薩克斯坦，禁止與其他產品一起出口該產品，包括胡蘿蔔，糖和土豆。
-2. 越南暫時中止了新的大米出口合同。
-3. 塞爾維亞已經停止了其葵花籽油和其他商品的流通。
-4. 俄羅斯則為取消禁令敞開了大門進口（糧食）並將每週評估調整。
-5. 中國正在增加其戰略儲備。中國是最大的水稻生產國和消費國，儘管政府已經儲備了大量的稻米和小麥，足以用於一年的消費，但中國承諾從國內收成中購買比以往任何時候都多的穀物。
-6. 包括阿爾及利亞和土耳其在內的主要小麥進口國也已經發布了新的招標書，摩洛哥表示，小麥進口關稅的暫停將持續到6月中旬。
-
-
-綜上所述，對於某些商品，原來世出口量供應的少數國家大量減少出口。這些貨物的中斷供應將對全球產生重大影響。以俄羅斯為例，俄羅斯已成為世界上最大的小麥出口國和北非的主要供應國。越南是第三大米出口國。
-
-全球民眾恐慌儲備食品帶來的經濟惡化才剛剛開始。
-
-查塔姆.本頓補充指出，“瘋狂的購物加上貿易保護主義政策最終可能導致食品價格上漲，而這種循環最終可能會延續下去。”
-
-1. 英國食品雜貨店購買並批量在線防範病毒用品：3月18日，在倫敦的冰島食品商店，購物者在街上等待商店的全面開業，這段時間留給社區中的老年人和弱勢群體購物。
-2. 如果堆積高額的雜貨店賬單，其可能會產生對市場的重大影響。例如麵包成本和價格的巨大波動具有引發動盪和政治動蕩的悠久歷史。例如在2011年和2008年食品價格暴漲期間，非洲，亞洲和中東的30多個國家發生了食物危機暴動。 ”如果您在市場上為明年的收成感到恐慌，那麼價格就會上漲，而隨著價格上漲，政策制定者會更加恐慌，”
-
-
-評：在中共冠狀病毒的進一步在全球擴散，沒有一個國家，民族或地區會倖免於此疫情帶來的影響和破壞。人類生命和文明將面臨前所未有的的威脅。政府國家該如何應對？每一個個體該如何求得生存？這可能是人們在未來較長時間所處的痛苦掙扎的困境。而徹底解決此危機的唯一途徑：尋找真相懲罰始作俑者重塑世界規則坦然面對未來。
-
-[原文鏈接](https://www.bloomberg.com/news/articles/2020-03-24/countries-are-starting-to-hoard-food-threatening-global-trade)
-
-翻譯報導：匿名
-
+3月27號：GTV’．👉．http://livestream.com/accounts/27235681 ．尊敬的戰友們好，你們健身了嗎？你們傳播C C P病毒香港危機真相了嗎？明天28號上午9:30文貴亂聊直播，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_97115.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_30694.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_95730.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_99123.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_65338.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_22942.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585355777_29928.(null))
 0
