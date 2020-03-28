@@ -12,6 +12,8 @@
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
+
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/2020/03/20200325-7072048714867304434.md)
@@ -59,8 +61,6 @@
 [文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
 
 [文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
-
-[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
 
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
