@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：美國人民很棒,美國會在困境中變得更強大！
-`2020-03-28 11:46 GM31` [轉載自GNews](https://gnews.org/zh-hant/155179/)
+## [爲戰友們準備的口罩, 一切都已經開始]
+`2020-03-28 13:47 GM17` [轉載自GNews](https://gnews.org/zh-hant/155205/)
 
-在川普總統簽署了美國史上最大規模救助法案後，他於3月27日的白宮每日媒體[通報會](https://www.youtube.com/watch?v=gFaCmT0gllw)上表示：
-
-“美國人民太讓我感到敬畏和受到鼓舞了,比其他任何事，任何人都強。各行各業的美國人都遵守著該準則,他們表現出無與倫比的同情心,並且為同胞做出巨大犧牲,我想讓每一個美國人知道，他們的無私和英勇無畏拯救了很多生命。 ”
-
-*翻譯：【不吃豆的豆豆】 校對：【GM31】 字幕：【1ia$】*
-
+3月28日：應戰友們的要求……發幾張今天隨手拍的照片……剛剛又到了兩車，爲戰友們準備的口罩，還有消毒用品。一切都已經開始。
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417536_64458.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417536_72279.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417537_14107.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417537_2940.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417537_6094.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417537_82502.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417538_39163.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417616_73106.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585417616_36628.(null))
 0
