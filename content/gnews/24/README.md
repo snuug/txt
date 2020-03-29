@@ -1,14 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德國採納韓國模式抵制中共病毒
-`2020-03-28 22:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/155555/)
+## 從美國司法部關於中共病毒的備忘錄，看此次中共隱瞞掩蓋疫情的嚴重性
+`2020-03-28 23:39 GM10` [轉載自GNews](https://gnews.org/zh-hant/155644/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/28224800/%E5%BE%B7%E5%9B%BD%E9%87%87%E7%BA%B3%E9%9F%A9%E5%9B%BD%E6%A8%A1%E5%BC%8F%E6%8A%B5%E5%88%B6%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92.jpg)
-根據德國內政部的戰略文件透露，必須要改變現在的測試方法從而更準確地確定中共病毒疫情狀況，到目前為止德國祇對被懷疑受感染者進行測試。韓國的測試方法是最佳模式，與中共國不同，韓國採納了廣泛的測試方式，在數百個測試中心和“駛入式“站中進行測試。韓國沒有對中共病毒實行宵禁措施和其他很嚴格的規定，新感染的中共病毒數量大大減少。德國專家呼籲政府迅速採取控制行動，擴大測試能力，讓中共病毒大流行延遲到達德國。為了使測試更快，更有效，長期使用大數據和位置跟踪至關重要。根據科學家的計算，如果遵循這種模式，德國將有大約100萬人感染，但是只有1萬2千人死亡。嚴格的措施必須維持兩個月，但是因為在兩個月之後可能只有很少的人不受中共病毒傳染，因此應該繼續保持高度警惕，避免對健康，經濟和社會造成不良後果。德國要想戰勝中共病毒還需要創新的解決方案，例如，為了保護醫護人員，市民應該自己進行必要的咽拭子測試，建立“駛入式“和電話亭測試站，所有測試陽性的人在家里或在隔離區隔離。只有通過廣泛測試，追踪感染者與其他人的接觸及進行有效的隔離才能控制感染。為了能夠更準確地評估中共病毒大流行的狀況，高密度測試是必不可少的。
+作者：W先生
 
-[原文鏈接](https://www.focus.de/politik/deutschland/hammer-and-dance-szenario-angestrebt-internes-papier-deutschland-steuert-im-kampf-gegen-corona-auf-suedkorea-strategie-zu_id_11819262.html)
+搜索關鍵詞「Report: DOJ memo advises on “terrorism-related
 
-翻譯報導： 文儀
+statutes” in coronavirus」 原文如下：
+
+Because Coronavirus appears to meet the statutory definition of a ‘biological agent’… such acts potentially could implicate the Nation’s terrorism-related statutes,」
+
+appears to 在法律術語中是正式指控某人的意思
+
+meet the statutory definition 滿足法定定義
+
+biological agent 美國刑法18卷10章「關於禁止生物武器」，使用biological agent表示生物武器的一種類型。178節1小節明確給出了biological agent的定義：
+
+微生物（包括但不限於細菌、病毒、真菌、立克次氏體、原生動物），或傳染性物質，或任何自然發生/生物工程/合成成分的微生物感染性物質，可以造成：
+
+A 人類、動物、植物或者任何生命體死亡、疾病、生物功能失常
+
+B 惡化食物、水、器材設備、任何物資供應，或者
+
+C 對環境造成有害改變
+
+根據美國刑法18卷10章175節，開發、生產、囤積、轉運、獲取、保留、持有生物戰劑，或者武器用途的投送系統，或者故意幫助任何外國任何組織實行以上行為，或者是試圖、威脅、合謀以上行為均構成犯罪。按此卷法條罰款或終身或任何期限的監禁，或兩者並行。域外聯邦管轄權適用於由美國國民犯下或針對美國國民犯下的本條規定的罪行。
+
+不管是中共製造病毒，偷盜病毒研究相關設備器材技術，還是故意掩蓋疫情，或者語言上煽動對美國投毒，均可構成生物武器犯罪。可見「中共病毒」、「CCP病毒」的定義一旦明確，意味著CCP等於恐怖組織，美軍可以直接跨境管轄，消滅拒捕的恐怖組織頭目。美國宣佈CCP病毒的那一天，就是CCP的死亡日。
+
+以上內容僅供讀者大致瞭解美國法律。作者沒有故意歪曲內容，但不保證準確性，不構成法律咨詢建議或者決策依據。
 
 0
