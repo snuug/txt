@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3月28日中共病毒疫情要聞快報
-`2020-03-28 10:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/155164/)
+## 納瓦羅解釋了國防生產法案為何重要
+`2020-03-28 12:07 GM31` [轉載自GNews](https://gnews.org/zh-hant/155196/)
 
-中共病毒次生災難國外頻發；多國停止出口糧食；鐘南山稱不會出現第二次爆發，你信麼？網傳中共病毒太流氓，如同艾滋無法根治。
+在3月27日於白宮舉行的**彼得·納瓦羅** （**Peter Navarro）** [每日簡報中](https://www.youtube.com/watch?v=ZIjVjdxMpUQ&amp;t=2s) ，以國防生產法的重要性為例，解釋了生產通用呼吸機的重要性。
 
-
-
-製作：【上天造·滅疫組】
+*翻譯和字幕：[Freela]*
 
 0
