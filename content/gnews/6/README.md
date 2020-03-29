@@ -1,11 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [CCP Coronavirus]
-`2020-03-28 19:42 GM17` [轉載自GNews](https://gnews.org/zh-hant/155380/)
+## 中共病毒讓亞平寧不再寧靜
+`2020-03-28 20:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/155393/)
 
-Special Ep 80- War Room: Pandemic, CCP Coronavirus
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/28202447/6CAACCF2-4AFE-4AD1-A95A-ED700F86E440.jpeg)
+星期五意大利創下本次中共病毒疫情開始以來最高的單日死亡紀錄，根據官方公佈的數字，當日總計有919人死於中共病毒。目前意大利共計有86498人確認感染，超過9000人死亡。目前意大利官方公佈的死亡數字已經超過中國，也是美國死亡人數的兩倍，儘管美國的確診病例比意大利的多很多。意大利專家認為他們的峰值並沒有到來，更談不上過去，只是增幅有所下降而已。
 
-Special Ep 80- War Room: Pandemic, CCP Coronavirus
+意大利北部以米蘭為中心的倫巴第地區，是意大利受災最嚴重的地區，確診案例和死亡人數分別佔總人數的43%和59%。意大利是西方國家中第一個實施封鎖城市政策的國家，目前已經禁止所有非必要的活動。學校已經於3月5日全境關閉。意大利目前的封鎖政策原定計劃4月3日解除，按照目前來看封鎖有可能繼續維持。
+
+評：意大利在人們心中曾經是美麗、激情的代名詞，是文藝復興的誕生地，而現在的意大利整個街道空無一人，到處充滿了死亡的氣息。意大利人醒過來了麼？知道在這從天堂到地獄的背後一直是誰在推著你走麼？你還能像舊日羅馬角斗士一樣勇敢站起來，用手上的刀劍刺想你真正的敵人麼？
+
+[原文鏈接](https://www.reuters.com/article/us-health-coronavirus-italy/italy-tops-9000-coronavirus-deaths-overtakes-china-in-cases-idUSKBN21E2DJ)
+
+翻譯報導：索馬里海草
 
 0
