@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/276536](https://www.guo.media/posts/276536) `2020-03-30T08:10:18`
 ##
 
+**milesguo** 史蒂夫·班农：中共必须解释清楚所有关于中共病毒的问题，否则不会有下一阶段的贸易协议<br>https://gnews.org/zh-hans/156281/
+
+[https://www.guo.media/posts/276535](https://www.guo.media/posts/276535) `2020-03-30T08:40:13`
+##
+
 **milesguo** <br>CCP早有预谋，五年前军事学院教授讲解生化武器<br>https://gnews.org/zh-hans/156285/
 
 [https://www.guo.media/posts/276534](https://www.guo.media/posts/276534) `2020-03-30T08:10:19`
@@ -41,9 +46,19 @@
 [https://www.guo.media/posts/276533](https://www.guo.media/posts/276533) `2020-03-30T07:56:08`
 ##
 
+**milesguo** 郭文贵先生：香港将成为新中国的耶路撒冷<br>https://gnews.org/zh-hans/156257/
+
+[https://www.guo.media/posts/276531](https://www.guo.media/posts/276531) `2020-03-30T08:40:15`
+##
+
 **milesguo** 3月29 日 尊敬的战友们好，下面是我们对庄烈宏采取的法律行动，请大家高度关注。请战友们要永远相信我们的爆料革命唯真不破，从不会放过一个伤害我们的人，也不会忘掉一个帮助过我们的恩人，这就是爆料革命的原则。任何伤害爆料革命和战友的，无论我们给你多少机会，当你越过了红线的时候，我们在美国，一定用美国的法律系统捍卫我们战友的尊严和战友家人的安全和尊严，捍卫爆料革命的信用。为此，我们永远会在不抛弃，不放弃，不背弃战友的原则上，捍卫郭七条！<br>一切都已经开始！
 
 [https://www.guo.media/posts/276523](https://www.guo.media/posts/276523) `2020-03-30T07:56:11`
+##
+
+**milesguo** Miles Guo: Need to hoard gold? (Part II)<br>https://gnews.org/155512/
+
+[https://www.guo.media/posts/276475](https://www.guo.media/posts/276475) `2020-03-30T08:40:17`
 ##
 
 **milesguo** CCP Coronavirus Pandemic Episode 64, March 28, 2020<br>https://gnews.org/155484/
@@ -81,6 +96,11 @@
 [https://www.guo.media/posts/276430](https://www.guo.media/posts/276430) `2020-03-30T08:10:24`
 ##
 
+**milesguo** Fauci reveales when the coronavirus vaccine will be available<br>https://gnews.org/154521/
+
+[https://www.guo.media/posts/276429](https://www.guo.media/posts/276429) `2020-03-30T08:40:19`
+##
+
 **milesguo** CCP’s busy diplomatic agenda amidst global chaos<br>https://gnews.org/153719/
 
 [https://www.guo.media/posts/276428](https://www.guo.media/posts/276428) `2020-03-30T07:56:22`
@@ -111,6 +131,11 @@
 [https://www.guo.media/posts/276413](https://www.guo.media/posts/276413) `2020-03-30T07:56:27`
 ##
 
+**milesguo** 中共病毒迫使美国海军一艘航空母舰返回港口<br>https://gnews.org/zh-hans/154921/
+
+[https://www.guo.media/posts/276412](https://www.guo.media/posts/276412) `2020-03-30T08:40:20`
+##
+
 **milesguo** 郭文贵先生：西方已经觉醒，绝对会是力量无比<br>https://gnews.org/zh-hans/154909/
 
 [https://www.guo.media/posts/276411](https://www.guo.media/posts/276411) `2020-03-30T07:56:28`
@@ -124,6 +149,11 @@
 **milesguo** 2020年3月27日CCP冠状病毒大流行第63集<br>https://gnews.org/zh-hans/155000/
 
 [https://www.guo.media/posts/276400](https://www.guo.media/posts/276400) `2020-03-30T08:10:32`
+##
+
+**milesguo** 北京颐和园昆明湖为何第四次涨潮？毛泽东死前预兆再现北京！<br>https://gnews.org/zh-hans/154407/
+
+[https://www.guo.media/posts/276399](https://www.guo.media/posts/276399) `2020-03-30T08:40:22`
 ##
 
 **milesguo** 文字版2020年3月25日警示九千万党员不要成为皇帝死前的陪葬<br>https://gnews.org/zh-hans/154645/
@@ -156,9 +186,19 @@
 [https://www.guo.media/posts/276360](https://www.guo.media/posts/276360) `2020-03-30T07:56:35`
 ##
 
+**milesguo** 川普签署《台北法案》中共国第一时间“我反对你们在一起！”<br>https://gnews.org/zh-hans/154509/
+
+[https://www.guo.media/posts/276359](https://www.guo.media/posts/276359) `2020-03-30T08:40:23`
+##
+
 **milesguo** 《中共肺炎》英国首相强森推特自爆确诊自我隔离中! 达尔文游戏首相也出局?<br>https://gnews.org/zh-hans/154382/
 
 [https://www.guo.media/posts/276356](https://www.guo.media/posts/276356) `2020-03-30T07:56:37`
+##
+
+**milesguo** 今日突发事件！江西与湖北公安大打出手！<br>https://gnews.org/zh-hans/154312/
+
+[https://www.guo.media/posts/276355](https://www.guo.media/posts/276355) `2020-03-30T08:40:25`
 ##
 
 **milesguo** 中共反人类集团将被以什么样的罪名被起诉<br>https://gnews.org/zh-hans/154254/
@@ -169,6 +209,11 @@
 **milesguo** 【武汉肺炎真相】共产党病毒3月27日视频合集<br>https://gnews.org/zh-hans/154211/
 
 [https://www.guo.media/posts/276352](https://www.guo.media/posts/276352) `2020-03-30T07:56:40`
+##
+
+**milesguo** 川普总统签署「台北法案」正式生效 法案3大重点深化台美关系!<br>https://gnews.org/zh-hans/154103/
+
+[https://www.guo.media/posts/276351](https://www.guo.media/posts/276351) `2020-03-30T08:40:27`
 ##
 
 **milesguo** 匆忙开学，后果堪忧：贵州一中学209名学生出现发热症状<br>https://gnews.org/zh-hans/154011/
@@ -196,6 +241,11 @@
 [https://www.guo.media/posts/276239](https://www.guo.media/posts/276239) `2020-03-30T07:56:46`
 ##
 
+**milesguo** 美军0号病人炮制者被起底<br>https://gnews.org/zh-hans/153767/
+
+[https://www.guo.media/posts/276238](https://www.guo.media/posts/276238) `2020-03-30T08:40:29`
+##
+
 **milesguo** War Room76：我可以保证，中共必将完蛋！<br>https://gnews.org/zh-hans/153751/
 
 [https://www.guo.media/posts/276237](https://www.guo.media/posts/276237) `2020-03-30T07:56:48`
@@ -209,6 +259,11 @@
 **milesguo** 中共党员“千里投毒”曝光<br>https://gnews.org/zh-hans/153732/
 
 [https://www.guo.media/posts/276235](https://www.guo.media/posts/276235) `2020-03-30T07:56:49`
+##
+
+**milesguo** 美司法部拟起诉委国总统马杜罗 祭4.5亿赏金逮人<br>https://gnews.org/zh-hans/153740/
+
+[https://www.guo.media/posts/276234](https://www.guo.media/posts/276234) `2020-03-30T08:40:30`
 ##
 
 **milesguo** 《中共肺炎》中东疫情延烧 阿拉伯联合大公国宣布宵禁4天全国消毒<br>https://gnews.org/zh-hans/153725/
@@ -244,6 +299,11 @@
 **milesguo** 温州火葬场不买骨灰盒不炼人<br>https://gnews.org/zh-hans/153422/
 
 [https://www.guo.media/posts/276214](https://www.guo.media/posts/276214) `2020-03-30T07:56:55`
+##
+
+**milesguo** 郭文贵先生：九千万中共党员面临的四个大问题<br>https://gnews.org/zh-hans/153414/
+
+[https://www.guo.media/posts/276213](https://www.guo.media/posts/276213) `2020-03-30T08:40:32`
 ##
 
 **milesguo** 中美之间因病毒来源问题导致摩擦升级<br>https://gnews.org/zh-hans/153405/
