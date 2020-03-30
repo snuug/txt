@@ -176,6 +176,11 @@
 [https://www.guo.media/posts/276410](https://www.guo.media/posts/276410) `2020-03-30T08:10:30`
 ##
 
+**milesguo** War Room78/79：你无法想象他们在武汉做了什么<br>https://gnews.org/zh-hans/154682/
+
+[https://www.guo.media/posts/276401](https://www.guo.media/posts/276401) `2020-03-30T09:25:20`
+##
+
 **milesguo** 2020年3月27日CCP冠状病毒大流行第63集<br>https://gnews.org/zh-hans/155000/
 
 [https://www.guo.media/posts/276400](https://www.guo.media/posts/276400) `2020-03-30T08:10:32`
@@ -264,6 +269,11 @@
 **milesguo** 匆忙开学，后果堪忧：贵州一中学209名学生出现发热症状<br>https://gnews.org/zh-hans/154011/
 
 [https://www.guo.media/posts/276350](https://www.guo.media/posts/276350) `2020-03-30T07:56:42`
+##
+
+**milesguo** 3月27号：GTV'．👉．http://livestream.com/accounts/27235681．尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？明天28号上午9:30文贵乱聊直播，一切都已经开始！
+
+[https://www.guo.media/posts/276343](https://www.guo.media/posts/276343) `2020-03-30T09:25:22`
 ##
 
 **milesguo** 班农先生承诺将用余生对中共领导人进行追责<br>https://gnews.org/zh-hans/153911/
