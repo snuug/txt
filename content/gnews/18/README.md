@@ -1,49 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文革從未遠離
-`2020-03-29 12:29 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/156341/)
+## 不用立法，也能有惡法！
+`2020-03-29 12:54 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/156359/)
 
-[https://spark.adobe.com/page/CmWbHc3B2lKdA/](https://spark.adobe.com/page/CmWbHc3B2lKdA/)
+[https://spark.adobe.com/page/o1Deu8Hgf02mm/](https://spark.adobe.com/page/o1Deu8Hgf02mm/)
 
-*作者：Giselle*
+**簡評：惡法23條還未出台，港共政府卻已經停不下來它的瘋狂。上帝要讓誰滅亡，必先使其瘋狂。不滅邪魔中共，惡法早晚將會波及到世界人民。沉默的代價，就是助長惡魔的催生。以為不關已事的，也許下一個分分鐘就是你。只有推翻惡法、惡政、惡權，人們有權力監督、有言論自由，媒體能自由的肩負起責任、指出不公、監督政府，才能使權利服務於民！**
 
-*校對:Julia Win*
+元朗事件發生前，大家是否忘，是誰在所謂的「守護香港集會」公開的媒體上曾說：「教仔要用藤條及水喉通」。最後元朗事件發生，到現在依然沒有獨立調查，更別說將犯法之人，繩之於法。
+[!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/dd6093b2-466a-44dd-b9fc-51fb473d83db.jpg?asset_id=bab238b0-20d6-4f62-b80d-715d846d0e17&amp;img_etag=bc611112ecc1ee78049839083be00531&amp;size=1024)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/dd6093b2-466a-44dd-b9fc-51fb473d83db.jpg?asset_id=bab238b0-20d6-4f62-b80d-715d846d0e17&amp;img_etag=bc611112ecc1ee78049839083be00531&amp;size=1024) 獨立媒體圖片 ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/29125143/image-65.png) 網絡圖片 
+再來看今天，中西區議會主席鄭麗琼，遭警察深夜上門，因為被指轉發涉及警員資料。被拘捕的原因竟然是「煽動意圖」，其實就是「煽動條例」。「煽動」罪（”sedition”）來自 1938 年 9 月 1 日通過的《煽動條例》Sedition Ordinance，曾多次修改。在2002年9月，特區政府著手進行基本法第 23 條立法，立法會曾邀請英國大律師公會發表意見。公會的意見涵蓋「叛國」等「七宗罪」，其中有關 sedition 部分，表明「煽動」罪是政治罪，早已過時，並無實際作用，特別因其對良心自由及言論自由有寒蟬效應。 ([新聞來源](https://www.thestandnews.com/politics/%E8%A2%AB%E6%8C%87%E6%9B%BE%E8%BD%89%E7%99%BC%E8%B5%B7%E5%BA%95%E8%AD%A6%E5%93%A1%E8%B3%87%E6%96%99-%E6%B0%91%E4%B8%BB%E9%BB%A8%E9%84%AD%E9%BA%97%E7%90%BC%E9%81%AD%E8%AD%A6%E5%85%A5%E5%B1%8B%E6%90%9C%E6%9F%A5%E6%8B%98%E6%8D%95/))
+[!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/811fe25e-8fd2-48ed-9a8e-e1a83699c3bb.jpg?asset_id=3cc487eb-2599-4c03-93b6-267be8b90cf6&amp;img_etag=18feebbfee599f3f3384b4035d334ed1&amp;size=3148)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/811fe25e-8fd2-48ed-9a8e-e1a83699c3bb.jpg?asset_id=3cc487eb-2599-4c03-93b6-267be8b90cf6&amp;img_etag=18feebbfee599f3f3384b4035d334ed1&amp;size=1024) RTHK 圖片 
 
-**引言：文革從未遠離，它只是像病毒那樣潛伏起來了，伺機而動。**
+[!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/7abf5d26-d621-4a7b-adb3-c143ec51dbab.jpg?asset_id=b6f16c1c-bec6-467e-90cb-2dc1391d3afd&amp;img_etag=924caf5107fe4978c557c68acf387f4b&amp;size=1024)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/7abf5d26-d621-4a7b-adb3-c143ec51dbab.jpg?asset_id=b6f16c1c-bec6-467e-90cb-2dc1391d3afd&amp;img_etag=924caf5107fe4978c557c68acf387f4b&amp;size=1024) 100毛媒體圖片 [!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/270a188c-48dc-46ce-b059-4d3933d2b7a0.jpg?asset_id=e26c15b6-fa33-4ce2-b235-cd05c0898e08&amp;img_etag=46849d12812135e2b89ad10f34e4f5e5&amp;size=3475)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/270a188c-48dc-46ce-b059-4d3933d2b7a0.jpg?asset_id=e26c15b6-fa33-4ce2-b235-cd05c0898e08&amp;img_etag=46849d12812135e2b89ad10f34e4f5e5&amp;size=1024) 推特網絡圖片 [!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/9ed75343-40be-4ee7-a917-36e3fbc3fc6b.jpg?asset_id=9411ecf0-3f33-4d8f-8afc-1bfaf4b196c9&amp;img_etag=99616adb46dc8ba476a87020e8482cf9&amp;size=2560)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/9ed75343-40be-4ee7-a917-36e3fbc3fc6b.jpg?asset_id=9411ecf0-3f33-4d8f-8afc-1bfaf4b196c9&amp;img_etag=99616adb46dc8ba476a87020e8482cf9&amp;size=1024) 蘋果日報圖片 
 
-近日，中共宣布了一系列政策，包括：啟用供銷社，實施內循環計劃經濟，關閉國門，禁止海外人士入境等。這些舉措接連出台，不禁令人感嘆：文革又要捲土重來了！
 
-20年前當我還在牆內時，偶爾也會和朋友私底下聊起這些“禁忌”話題。我當時說，文革從來就沒有結束過，我們一直活在“後文革時代”。我們以為文革結束了，是因為文革就像CCP病毒一樣潛伏起來了。在所謂的後文革時代發生的嚴打、天安門廣場大屠殺、對新疆、西藏的殘酷鎮壓、重慶唱紅打黑、對法輪功的迫害、 香港大屠殺等等，造成的數億人喪生，以及共匪對言論和新聞自由的長期高壓控制，對基本人權的肆意踐踏等，均似CCP病毒的複陽、爆發。
-[!\[\](https://spark.adobe.com/page/CmWbHc3B2lKdA/images/8ffc04ec-3fe1-4dac-bf00-b74ecf6fdbfb.jpg?asset_id=742779a6-0de0-402e-8ba3-d90fd1cec589&amp;img_etag=0eb39791e0361e55045a68d9d6b4636a&amp;size=1024)](https://spark.adobe.com/page/CmWbHc3B2lKdA/images/8ffc04ec-3fe1-4dac-bf00-b74ecf6fdbfb.jpg?asset_id=742779a6-0de0-402e-8ba3-d90fd1cec589&amp;img_etag=0eb39791e0361e55045a68d9d6b4636a&amp;size=1024)
-**愚民弱民，鞏固獨裁**
+除此之外，民主黨由於要保釋中西區議會主席鄭麗琼，本來警方要求是5000元保釋金，但後來改口要加到一萬，民主黨人當場交錢，卻被人造謠，可見手法與邪魔中共如出一轍。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/29125447/image-66.png) 推特 FIGHT FOR FREEDOM FREE HK 圖片 
+據新聞報導，在小西灣山頭龍躍徑一間小屋內發現有棍、懷疑子彈及易燃物品，並拘捕3名20多歲男子，涉嫌藏有攻擊性武器、藏有工具可作非法用途，以及無牌藏有彈藥。警方封鎖現場山頭，並出動爆炸品處理課到場處理。
 
-“文革”是一場殘酷的政治運動，為實現共匪⻓治久安的極權統治提供服務。坊間一般認為，文革是1966年毛澤東發動三面紅旗挫敗，並造成數千萬人死亡後，以“反蘇修、反美帝”為口號， 以革命名義攻擊“走資派”，並重回黨核心的嘗試。但這也許只是表面目的，其真實意圖是要鞏固共匪的獨裁統治，愚民弱民，把所有的中國人，馴化成一個個沉浸在“社會主義接班人”美夢中的奴隸。毛匪有句非常無恥的名言：知識越多，越反動。他非常清楚，有獨立思考能力的人，是極權統治最大的敵人，所以最好的辦法就是把這些敵人通通消滅。他們瘋狂殘害、羞辱知識分子，無恥地吹捧白卷英雄，篡改歷史教科書，實施愚民第一步。
+數名東區區議員到場了解，區議員陳榮泰在facebook引述東區區議會主席黎志強指出，向警方了解後，得知警方在山上發現危險品，包括汽油彈及弓箭等，有數人被捕。當然事實真相只能等到有公義的社會制度下才能還完真相，在香港每天發生的，依然在發生。法治已死([新聞來源](https://news.mingpao.com/ins/%E6%B8%AF%E8%81%9E/article/20200326/s00001/1585232708087/%E8%AD%A6%E5%B0%8F%E8%A5%BF%E7%81%A3%E5%B1%B1%E9%A0%AD%E6%AA%A2%E6%87%B7%E7%96%91%E5%AD%90%E5%BD%88%E6%8B%983%E7%94%B7-%E7%88%86%E7%82%B8%E5%93%81%E8%99%95%E7%90%86%E8%AA%B2%E5%88%B0%E5%A0%B4))
+[!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/f97a1a7c-2279-41db-8d7a-be7f7e2b71ad.jpg?asset_id=2b67e917-ab0c-4814-90c2-25c67e724159&amp;img_etag=ad06166fa9e0dfdc0d2cdacd4ab77bd8&amp;size=2560)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/f97a1a7c-2279-41db-8d7a-be7f7e2b71ad.jpg?asset_id=2b67e917-ab0c-4814-90c2-25c67e724159&amp;img_etag=ad06166fa9e0dfdc0d2cdacd4ab77bd8&amp;size=1024) 明報新聞 
+在香港，港共政府已經不是是否作了惡，而是有多瘋狂的問題！不斷的有抗爭者們被消失，被死亡。相反，黑警的暴力、目無法紀，卻沒有約束，甚至被慫恿，不就是背後有一個邪魔中共嗎！沒有法治、沒有自由、沒有人權、沒有信仰的體制，衍生出的只能是邪惡的體制，也就是中共體制。
 
-然而愚民是一項長久的工作。在後文革時代，共匪從來沒有放棄過對民眾的洗腦，牢牢把握筆桿子的話語權，高築防火牆，不敢讓民主社會的真相滲透進來。因為它們害怕開啟民智，害怕老百姓覺悟，害怕老百姓有獨立思考能力後起來推翻他們。
+也許黑警們得意洋洋的以為，他們這樣做惡，如此助紂為虐，不會受到法律的制裁，不會有報應。因為他們的短視，他們被中共利用，喪失了做人的良知，他們注定要為今天的行為負出沉重代價。至於港共政府的官員們，等待他們的只有地獄和法律的審判。與魔鬼同行，不就是自討苦食嗎？以為有點所謂的權利，把自己靈魂出賣給魔鬼，魔鬼也會被他們所用，為他們背書。然而，哪一個是主，哪一個是被利用，自己還不清楚嗎﹖對於他們所犯下的惡，注定了得用一生來償還！
 
-**搞階級鬥爭，假新聞洗腦**
+香港人對惡魔中共和助紂為虐者正義的審判，終將會到來！香港人請保護好自己，時刻注意周圍的動向，小心被黑警跟蹤；也要注意消毒防護，不要低估CCP VIRUS 肺炎。雖然目前在香港沒有像世界爆發一樣。但是，中共製造，引來的二次、甚至三次爆發正在來臨。也請牆內同胞們，宅在家裡，不要外出，不要相信魔鬼中共給你的任何“甜點”，那是要你寶貴生命的人屍丸！
+[!\[\](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/a3d03782-1c8c-4375-aa9c-988ee6fc9428.jpg?asset_id=b5356f88-4253-4175-8a2b-d85cb1446519&amp;img_etag=e42f1a5547f58aa121f5367e50f5c2d1&amp;size=1024)](https://spark.adobe.com/page/o1Deu8Hgf02mm/images/a3d03782-1c8c-4375-aa9c-988ee6fc9428.jpg?asset_id=b5356f88-4253-4175-8a2b-d85cb1446519&amp;img_etag=e42f1a5547f58aa121f5367e50f5c2d1&amp;size=1024) 推特 FIGHT FOR FREEDOM FREE HK 圖片 
+文章內容僅代表作者個人觀點
 
-毛匪最擅長玩發動群眾鬥群眾的鬥爭遊戲。它的另一句名言是：與天鬥，與地鬥，與人鬥，其樂無窮。何等的狂妄和囂張！在十年文革當中，全國非正常死亡人數占到了2000萬，諸多地區發生了群眾鬥群眾，最後失去理智的瘋狂大屠殺，包括廣西大屠殺、內蒙古人黨事件、雲南文革大屠殺、道縣大屠殺等等。同時也造成了世界上最大的人為技術災難，比如河南75.8潰壩等等。
+嗚謝圖片來源unsplash 、pixabay、推特 FIGHT FOR FREEDOM FREE HK
 
-文革期間的武鬥、官方大字報批鬥、抄家、告密等過激行為，使中國傳統文化與道德淪亡。眾多“走資派”遭到批鬥和迫害，而半文盲農⺠陳永貴卻晉升為國務院副總理。
-
-這一波殘酷的屠殺，目的就是要打斷中華民族的脊梁，逆向淘汰良知與道德，讓所有的中國人，都變成沒有脊梁⻣的無脊椎奴隸。提倡告密，其目的是為了不讓民眾團結；大字報批鬥羞辱知識分子，倡導白卷英雄，就是為了讓民眾遠離知識，失去獨立思考的能力。
-
-在後文革時代，民眾表面上看起來擁有了學習文化知識的機會，可是，我們的歷史書是假的，新聞是假的，一切都是假的！失去獨立思考能力的中國人，只是這具獨裁政權上的一顆顆螺絲釘，它們只是需要你維護政權的穩定，僅此而已。
-[!\[\](https://spark.adobe.com/page/CmWbHc3B2lKdA/images/8e366a73-3a97-4335-9537-4dcdefdb40d4.jpg?asset_id=7df5f76c-81d0-4266-975f-cec5263e2508&amp;img_etag=fb5c650cf123ef3998f7c8c1e228d94f&amp;size=3741)](https://spark.adobe.com/page/CmWbHc3B2lKdA/images/8e366a73-3a97-4335-9537-4dcdefdb40d4.jpg?asset_id=7df5f76c-81d0-4266-975f-cec5263e2508&amp;img_etag=fb5c650cf123ef3998f7c8c1e228d94f&amp;size=1024)
-**邪惡的“仇恨教育”**
-
-共匪靠欺騙美國人、欺騙全世界，竊國建政。在文革時期當中，毛匪公然提出“打倒美帝國主義”的鬥爭口號，將其獨裁的醜惡嘴臉，在全世界面前暴露無遺。
-
-毛非常清楚地知道獨裁政權的不穩定性，清楚民主與法治是獨裁的頭號天敵。所以在文革中，毛匪公然煽動民族仇恨，對在戰爭期間無私幫助過他們的美國，進行了持續的醜化、污衊。 1971年3月11日的《人民日報》就能反映當時的反美情緒。當天的一個版面刊登了，《美帝國主義一天天爛下去》等6篇假新聞，肆意抹黑美國的民主與法治。
-
-在後文革時代，共匪絲毫沒有放棄繼續對美國潑髒水、玩陰謀。他們更加清楚地知道，民主與法治才是獨裁最大的敵人。他們一方面繼續煽動民族仇恨，利用在全球中文媒體，繼續散播假新聞，醜化美國，醜化西方自由世界，其目的就是為了讓中國民眾以為美國很亂，民主制度很糟糕，還是獨裁最適合中國人，中國人不適合民主，一搞民主就會亂。
-
-這樣的假新聞不但荼毒了無數中國民眾，海外的華人也深受其害，失去了獨立思考能力，還在做獨裁的幫兇，幫魔鬼唱讚歌。
-
-寫到這裡，真是令我欷歔不已，為我們中華民族的苦難，為那些慘死的同胞，為無數還沒有覺醒的中國人！文革這個題材太沉重了，希望將來有更多的專家學者研究這個課題，提醒中國民眾以史為鑑，好好珍惜來之不易的民主與法治。
-
-**編輯【喜馬拉雅戰鷹團】**
+編輯 【喜馬拉雅戰鷹團】
 
 0
