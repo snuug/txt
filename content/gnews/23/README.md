@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：FDA快速批准了幾個新藥的試驗，期待結果
-`2020-03-30 06:19 GM31` [轉載自GNews](https://gnews.org/zh-hant/157068/)
+## 法國前部長 染中共病毒離世
+`2020-03-30 06:30 GM09` [轉載自GNews](https://gnews.org/zh-hant/157084/)
 
-川普總統於3月28日的每日白宮疫情[通報會](https://www.youtube.com/watch?v=eeLj1sV2ZR0&amp;t=2606s)上透露，FDA已經批准了幾種新藥實驗。
+作者：VOG多國語言組
 
-*翻譯：【Michelle】*  *字幕:【liao$】*
+3月28日至29日間，法國前部長帕特里克•德沃健因中共病毒去世
 
+週四這位前部長，上塞納省議會主席發推稱自己染上中共冠狀病毒，不幸於3月28日至29日間去世，享年75歲。
 
+多名政治人物表示悼念，包括前總統薩科齊。
 
+來源：https://www.youtube.com/watch?v=NDTHY4-guQ4
+ 
 0

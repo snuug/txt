@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 3月30号：尊敬的战友们好，GTV's http://livestream.com/accounts/27235681．明天3月31号上午9:30左右，文贵乱聊直播！衷心的感谢．这位伟大战友给郭媒体汇来的10,000,000美元！一千万美元．……你对G媒体的要求⋯和对G-TV的希望，我们都已经明白了！我们的目标是一致的！我们将全力以赴去实现我们的共同目标，另外你要支付的四千万美元，请你一定要在我们一起和G-TV，GNEWS 等有一定的成就以后．再来支持我们．莘县阳谷县搭县我们会用结果给你看！！！！！！一切都已经开始！
+
+[https://www.guo.media/posts/276635](https://www.guo.media/posts/276635) `2020-03-30T23:11:22`
+##
+
 **milesguo** 〘实证与图〙最早的呼喊：“疫情很危险，千万不要信CCP 和WHO”<br>https://gnews.org/zh-hans/156632/
 
 [https://www.guo.media/posts/276555](https://www.guo.media/posts/276555) `2020-03-30T07:56:04`
