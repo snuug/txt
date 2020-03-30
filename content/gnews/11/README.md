@@ -1,11 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [任何傷害爆料革命和戰友的]
-`2020-03-29 22:13 GM17` [轉載自GNews](https://gnews.org/zh-hant/156701/)
+## 如何讓中共國賠償世界的損失
+`2020-03-29 23:26 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/156756/)
 
-3月29 日 尊敬的戰友們好，下面是我們對莊烈宏採取的法律行動，請大家高度關注。請戰友們要永遠相信我們的爆料革命唯真不破，從不會放過一個傷害我們的人，也不會忘掉一個幫助過我們的恩人，這就是爆料革命的原則。任何傷害爆料革命和戰友的，無論我們給你多少機會，當你越過了紅線的時候，我們在美國，一定用美國的法律系統捍衛我們戰友的尊嚴和戰友家人的安全和尊嚴，捍衛爆料革命的信用。爲此，我們永遠會在不拋棄，不放棄，不背棄戰友的原則上，捍衛郭七條！
+[https://spark.adobe.com/page/K9ENTEUtYailX/](https://spark.adobe.com/page/K9ENTEUtYailX/)
 
-一切都已經開始！
-![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_40149.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_74418.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_8304.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_82458.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_4006.(null))
+###  **德國《圖片報》新聞摘要**
+
+*新聞來源：德國《圖片報》（Bild) 2020年3月29日*
+
+*評論：Maosheng*
+
+*文章摘要：拱卒*
+
+**評論：**
+
+德國發行量最大的《圖片報》以《中共國必為所有受害國賠償》為題做了報導。 它說是中國對新冠狀病毒的各種資料隱瞞導致了世界各國的損失。
+
+共產黨病毒肆虐全世界，德國也不例外，幾乎大部分企業處於停業狀態，大到航空公司，汽車製造，小到餐飲業，理髮等。 除了食品超市外的所有商店停止營業，損失每天都在發生，不斷積累。 整個世界經濟無不如此，損失慘重，誰來賠償？
+
+德國柏林的一家公司， 靠從中國進口紙杯向歐洲各國銷售為生，從春節到現在中國停產再沒有紙杯可進口可賣，每月損失10玩歐元。
+
+全球股市低迷，有多少富人資本家家破人亡。 文貴先生說，這將會引起1927年以來從未有過的一次最大的經濟危機。 未來我們的世界將不可能再有今天這一刻這麼好的生活。
+
+CCP共匪用生化武器犯下的反人類罪很快會昭然若揭，他們離被消滅的日子不遠了。 但世界各國各個行業的損失它能賠償得起嗎？
+
+很多國家無論政客還是普通民眾都沒有警醒，等他們夢醒時，才會知道自己過去近三十年縱容共匪現在付出的代價竟然是幾十年的好日子不復存在。
+[!\[\](https://spark.adobe.com/page/K9ENTEUtYailX/images/740d744d-cfa3-4683-92a5-a9d182667817.png?asset_id=f96cd3fc-5ecf-43af-82bb-538ce55f90f8&amp;img_etag=05e9c7f3fab590e55a040c3a4b99b9fc&amp;size=2560)](https://spark.adobe.com/page/K9ENTEUtYailX/images/740d744d-cfa3-4683-92a5-a9d182667817.png?asset_id=f96cd3fc-5ecf-43af-82bb-538ce55f90f8&amp;img_etag=05e9c7f3fab590e55a040c3a4b99b9fc&amp;size=1024)
+#### **中共國必須賠償損失嗎？**
+
+在美國海軍戰爭學院（U.S. Naval War College）任教的克拉斯卡認為，中國違反了其國際義務，特別是世界衛生組織（WHO）的《世界衛生條例》。2007年WHO更新了條例，部分原因是中國在2003年非典大流行期間未能履行其對世衛組織的通告義務，並通過審查措施掩蓋了疫情的真實程度。
+
+時隔17年中共國再一次重蹈覆轍，隱瞞、瞞報疫情，導致今年的疫情再一次世界範圍大流行。
+
+因此，根據國家責任原則，有關國家可以就中共國這一不作為的行為向國際法院提起訴訟，以賠償這一損失，因爲中共國違反了《國際法》。
+
+#### **追究賠償現實嗎？**
+
+中共國很顯然是違反了對世衛組織成員的義務。如果海牙國際法庭進行審判，中共國是否會成為那裡的被告國還不好説。即使國際法庭證明中共國違反了國際衛生法規，比如李文良醫生的案件 — 他想提請人們注意冠狀病毒的危險，卻遭到當局打壓迫害，– 但不能確定會判中共國必須支付賠償。
+
+#### **世界主權缺失**
+
+一方面，即使國際法庭判中共國要賠償損失，但國際法庭并沒有一個負責强制執行的機構來監督支付賠償款。另個一方面，國際法53章規定，如果錯誤的行爲立即改正，那麽就不會繼續追究責任。根據這一條，中共國完全會以已經改錯爲由而逃脫懲罰。
+
+#### **個人起訴有用嗎？**
+
+鑒於司法管轄權的限制，在德國個人無法起訴他國。但是在美國的情況卻完全不同。一周前已經有美國公民以個人身份起訴中共國並提出賠償要求。如果原告勝訴，而中共國政府未能遵守裁決，中共國在美資產可能會在美國被凍結，甚至被沒收。但是，美國政府可能會辯稱，這將危及美國的國家安全，從而推翻法院的裁決。（譯者：這個情況在川普政府執政期間是絕對不可能發生的。）
+
+[德文原文鏈接](https://www.bild.de/bild-plus/politik/ausland/politik-ausland/wegen-corona-verschleierung-muss-china-schadensersatz-zahlen-69621602.bild.html)
+
+**編輯：【喜馬拉雅戰鷹團】**
+
 0

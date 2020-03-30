@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年3月29日CCP冠狀病毒大流行第65集
-`2020-03-29 21:41 GM33` [轉載自GNews](https://gnews.org/zh-hant/156684/)
+## [任何傷害爆料革命和戰友的]
+`2020-03-29 22:13 GM17` [轉載自GNews](https://gnews.org/zh-hant/156701/)
 
-CCP過河拆橋，參加抗議的助理護士不納入補助範圍；沒有健康碼不能買菜；對自己人說要挨餓，卻給非洲捐糧食；美國政要：CCP隱瞞疫情而導致的全球病毒蔓延，CCP將為此付出代價
+3月29 日 尊敬的戰友們好，下面是我們對莊烈宏採取的法律行動，請大家高度關注。請戰友們要永遠相信我們的爆料革命唯真不破，從不會放過一個傷害我們的人，也不會忘掉一個幫助過我們的恩人，這就是爆料革命的原則。任何傷害爆料革命和戰友的，無論我們給你多少機會，當你越過了紅線的時候，我們在美國，一定用美國的法律系統捍衛我們戰友的尊嚴和戰友家人的安全和尊嚴，捍衛爆料革命的信用。爲此，我們永遠會在不拋棄，不放棄，不背棄戰友的原則上，捍衛郭七條！
 
+一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_40149.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_74418.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_8304.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_82458.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585534409_4006.(null))
 0

@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/276542](https://www.guo.media/posts/276542) `2020-03-30T08:55:12`
 ##
 
+**milesguo** 孤独的经济全球化被中共病毒意外一击<br>https://gnews.org/zh-hans/155482/
+
+[https://www.guo.media/posts/276541](https://www.guo.media/posts/276541) `2020-03-30T09:40:26`
+##
+
 **milesguo** 中共“假汉坦病毒”的阴谋？<br>https://gnews.org/zh-hans/156550/
 
 [https://www.guo.media/posts/276540](https://www.guo.media/posts/276540) `2020-03-30T08:10:14`
@@ -89,6 +94,11 @@
 **milesguo** UK experts: six mild symptoms of coronavirus infections<br>https://gnews.org/155351/
 
 [https://www.guo.media/posts/276473](https://www.guo.media/posts/276473) `2020-03-30T07:56:14`
+##
+
+**milesguo** President Trump’s remarks at USNS Comfort send-off<br>https://gnews.org/155327/
+
+[https://www.guo.media/posts/276472](https://www.guo.media/posts/276472) `2020-03-30T09:40:28`
 ##
 
 **milesguo** Miles Guo: Many of Britain’s bigwigs were infected. Three critical mistakes made by the UK (Part I)<br>https://gnews.org/155318/
@@ -234,6 +244,11 @@
 **milesguo** 从武汉汉口殡仪馆 取骨灰盒人数 推算共产党病毒真实死亡人数！<br>https://gnews.org/zh-hans/154431/
 
 [https://www.guo.media/posts/276358](https://www.guo.media/posts/276358) `2020-03-30T08:55:22`
+##
+
+**milesguo** <br>川普宣布安排美国海军Comfort号医疗船支援纽约<br>https://gnews.org/zh-hans/154425/
+
+[https://www.guo.media/posts/276357](https://www.guo.media/posts/276357) `2020-03-30T09:40:30`
 ##
 
 **milesguo** 《中共肺炎》英国首相强森推特自爆确诊自我隔离中! 达尔文游戏首相也出局?<br>https://gnews.org/zh-hans/154382/
