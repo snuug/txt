@@ -111,6 +111,11 @@
 [https://www.guo.media/posts/276432](https://www.guo.media/posts/276432) `2020-03-30T07:56:20`
 ##
 
+**milesguo** Wuhan Citizens: Whether the official figure is accurate or not, this is a political treatment, not medical treatment<br>https://gnews.org/153834/
+
+[https://www.guo.media/posts/276431](https://www.guo.media/posts/276431) `2020-03-30T09:10:13`
+##
+
 **milesguo** Trump: Why the number of virus cases surpasses China<br>https://gnews.org/155043/
 
 [https://www.guo.media/posts/276430](https://www.guo.media/posts/276430) `2020-03-30T08:10:24`
@@ -134,6 +139,11 @@
 **milesguo** 3月28日：应战友们的要求……发几张今天随手拍的照片……刚刚又到了两车，为战友们准备的口罩，还有消毒用品。一切都已经开始。
 
 [https://www.guo.media/posts/276417](https://www.guo.media/posts/276417) `2020-03-30T07:56:24`
+##
+
+**milesguo** 马来西亚限制外出 逮捕坚持慢跑的人<br>https://gnews.org/zh-hans/154979/
+
+[https://www.guo.media/posts/276416](https://www.guo.media/posts/276416) `2020-03-30T09:10:15`
 ##
 
 **milesguo** 微信爆料：方舱出院患者感染爆料人亲属，导致其迅速死亡<br>https://gnews.org/zh-hans/154955/
