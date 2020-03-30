@@ -16,14 +16,29 @@
 [https://www.guo.media/posts/276555](https://www.guo.media/posts/276555) `2020-03-30T07:56:04`
 ##
 
+**milesguo** 2020年3月29日CCP冠状病毒大流行第65集<br>https://gnews.org/zh-hans/156637/
+
+[https://www.guo.media/posts/276542](https://www.guo.media/posts/276542) `2020-03-30T08:55:12`
+##
+
 **milesguo** 中共“假汉坦病毒”的阴谋？<br>https://gnews.org/zh-hans/156550/
 
 [https://www.guo.media/posts/276540](https://www.guo.media/posts/276540) `2020-03-30T08:10:14`
 ##
 
+**milesguo** 复课在即，年轻人真的不容易感染吗<br>https://gnews.org/zh-hans/156516/
+
+[https://www.guo.media/posts/276539](https://www.guo.media/posts/276539) `2020-03-30T08:55:14`
+##
+
 **milesguo** 共产党的铁哥们俄罗斯给共产党的伤口上撒了把盐<br>https://gnews.org/zh-hans/156497/
 
 [https://www.guo.media/posts/276538](https://www.guo.media/posts/276538) `2020-03-30T08:10:16`
+##
+
+**milesguo** 共产党在武汉实施的离奇检测实验！检测结果更让人匪夷所思！<br>https://gnews.org/zh-hans/156419/
+
+[https://www.guo.media/posts/276537](https://www.guo.media/posts/276537) `2020-03-30T08:55:16`
 ##
 
 **milesguo** 2020年3月18日灭共者说中文字幕合集（上）<br>https://gnews.org/zh-hans/156309/
@@ -54,6 +69,11 @@
 **milesguo** 3月29 日 尊敬的战友们好，下面是我们对庄烈宏采取的法律行动，请大家高度关注。请战友们要永远相信我们的爆料革命唯真不破，从不会放过一个伤害我们的人，也不会忘掉一个帮助过我们的恩人，这就是爆料革命的原则。任何伤害爆料革命和战友的，无论我们给你多少机会，当你越过了红线的时候，我们在美国，一定用美国的法律系统捍卫我们战友的尊严和战友家人的安全和尊严，捍卫爆料革命的信用。为此，我们永远会在不抛弃，不放弃，不背弃战友的原则上，捍卫郭七条！<br>一切都已经开始！
 
 [https://www.guo.media/posts/276523](https://www.guo.media/posts/276523) `2020-03-30T07:56:11`
+##
+
+**milesguo** TNT Daily : Zhang Wenhong discussed the asymptomatic carriers<br>https://gnews.org/155595/
+
+[https://www.guo.media/posts/276476](https://www.guo.media/posts/276476) `2020-03-30T08:55:17`
 ##
 
 **milesguo** Miles Guo: Need to hoard gold? (Part II)<br>https://gnews.org/155512/
@@ -171,6 +191,11 @@
 [https://www.guo.media/posts/276388](https://www.guo.media/posts/276388) `2020-03-30T07:56:32`
 ##
 
+**milesguo** CCP病毒肆虐，曼哈顿大街上空无一人，法治基金工作人员依然在给战友寄送口罩物资！<br>https://gnews.org/zh-hans/154744/
+
+[https://www.guo.media/posts/276366](https://www.guo.media/posts/276366) `2020-03-30T08:55:20`
+##
+
 **milesguo** 中共一手制造的危机彻底把汽车行业拉入寒冬腊月<br>https://gnews.org/zh-hans/154600/
 
 [https://www.guo.media/posts/276362](https://www.guo.media/posts/276362) `2020-03-30T07:56:34`
@@ -191,6 +216,11 @@
 [https://www.guo.media/posts/276359](https://www.guo.media/posts/276359) `2020-03-30T08:40:23`
 ##
 
+**milesguo** 从武汉汉口殡仪馆 取骨灰盒人数 推算共产党病毒真实死亡人数！<br>https://gnews.org/zh-hans/154431/
+
+[https://www.guo.media/posts/276358](https://www.guo.media/posts/276358) `2020-03-30T08:55:22`
+##
+
 **milesguo** 《中共肺炎》英国首相强森推特自爆确诊自我隔离中! 达尔文游戏首相也出局?<br>https://gnews.org/zh-hans/154382/
 
 [https://www.guo.media/posts/276356](https://www.guo.media/posts/276356) `2020-03-30T07:56:37`
@@ -204,6 +234,11 @@
 **milesguo** 中共反人类集团将被以什么样的罪名被起诉<br>https://gnews.org/zh-hans/154254/
 
 [https://www.guo.media/posts/276354](https://www.guo.media/posts/276354) `2020-03-30T07:56:38`
+##
+
+**milesguo** 不断更改中共病毒确诊患者的定义就是数据造假<br>https://gnews.org/zh-hans/154138/
+
+[https://www.guo.media/posts/276353](https://www.guo.media/posts/276353) `2020-03-30T08:55:23`
 ##
 
 **milesguo** 【武汉肺炎真相】共产党病毒3月27日视频合集<br>https://gnews.org/zh-hans/154211/
@@ -224,6 +259,11 @@
 **milesguo** 班农先生承诺将用余生对中共领导人进行追责<br>https://gnews.org/zh-hans/153911/
 
 [https://www.guo.media/posts/276330](https://www.guo.media/posts/276330) `2020-03-30T07:56:43`
+##
+
+**milesguo** 2020年3月26日CCP冠状病毒大流行第62集<br>https://gnews.org/zh-hans/153850/
+
+[https://www.guo.media/posts/276255](https://www.guo.media/posts/276255) `2020-03-30T08:55:24`
 ##
 
 **milesguo** 2020年3月26日直播同声翻译美国白宫新闻发布会（Viola,文绮）<br>https://gnews.org/zh-hans/153830/
