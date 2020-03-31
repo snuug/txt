@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 郭文贵先生：爆料革命成功化解两场人类大危机<br>https://gnews.org/zh-hans/158233/
+
+[https://www.guo.media/posts/276728](https://www.guo.media/posts/276728) `2020-03-31T17:25:12`
+##
+
+**milesguo** 美俄讨论中共病毒和石油市场<br>https://gnews.org/zh-hans/158224/
+
+[https://www.guo.media/posts/276726](https://www.guo.media/posts/276726) `2020-03-31T17:25:13`
+##
+
+**milesguo** 3月31号：今天上午的直播．在两个平台在线观看4万多VPN．和2300的新GTV的VPN．仅仅老GTV周内．<br>一两百万的阅读量！<br>这还不包括我们的youTben 和新的末上线的GTV的真正的观看数据，我们几千万次的观看流量．每次的几亿国内的观看数据，才是共产党最恐惧的．在看有多少人是转发的……铁的事实和数据，是最好的证据！这最起码的常识．这些共产党养着痔疮帮．和鸡腿帮．大驴脸．们都撒谎．他们真把战友和观众当傻子，这种与共产党一样的无知傲慢一定会在美国的法律系统面前，让他们付出他们无法承受的代价，一切都已经开始！
+
+[https://www.guo.media/posts/276724](https://www.guo.media/posts/276724) `2020-03-31T17:25:14`
+##
+
+**milesguo** <br>上海解封后的景点再次关闭<br>https://gnews.org/zh-hans/158201/
+
+[https://www.guo.media/posts/276723](https://www.guo.media/posts/276723) `2020-03-31T17:25:16`
+##
+
+**milesguo** 什么是毒丸计划？围绕着毒丸计划都发生了哪些事儿<br>https://gnews.org/zh-hans/158002/
+
+[https://www.guo.media/posts/276719](https://www.guo.media/posts/276719) `2020-03-31T17:25:17`
+##
+
 **milesguo** 《军情动态》岛风号护卫舰损伤! 日护卫舰岛风号遭中国渔船撞击 幸无人伤亡<br>https://gnews.org/zh-hans/157993/
 
 [https://www.guo.media/posts/276718](https://www.guo.media/posts/276718) `2020-03-31T16:40:26`
@@ -19,6 +44,11 @@
 **milesguo** 用口罩绑架美国？ FDA将中共的口罩除名<br>https://gnews.org/zh-hans/157969/
 
 [https://www.guo.media/posts/276717](https://www.guo.media/posts/276717) `2020-03-31T16:40:28`
+##
+
+**milesguo** 中共国债规模和负载已经达到极限<br>https://gnews.org/zh-hans/157639/
+
+[https://www.guo.media/posts/276716](https://www.guo.media/posts/276716) `2020-03-31T17:25:18`
 ##
 
 **milesguo** 文字版2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！<br>https://gnews.org/zh-hans/157870/
