@@ -41,6 +41,11 @@
 [https://www.guo.media/posts/276749](https://www.guo.media/posts/276749) `2020-03-31T21:25:17`
 ##
 
+**milesguo** Trump: Incredable Hospital in Javits Center and Abbott Labs‘ quick Testing Method<br>https://gnews.org/157097/
+
+[https://www.guo.media/posts/276748](https://www.guo.media/posts/276748) `2020-03-31T22:55:11`
+##
+
 **milesguo** Trump: FDA has approved new promising theapies<br>https://gnews.org/157050/
 
 [https://www.guo.media/posts/276747](https://www.guo.media/posts/276747) `2020-03-31T21:25:19`
@@ -59,6 +64,11 @@
 **milesguo** Reporters Without Borders: free press could have stopped pandemic<br>https://gnews.org/156438/
 
 [https://www.guo.media/posts/276743](https://www.guo.media/posts/276743) `2020-03-31T21:25:21`
+##
+
+**milesguo** Top WHO doctor Bruce Aylward avoids question about Taiwan<br>https://gnews.org/156408/
+
+[https://www.guo.media/posts/276742](https://www.guo.media/posts/276742) `2020-03-31T22:55:13`
 ##
 
 **milesguo** Miles Guo taking legal action to defend his reputation and the innocents of China from YouTuber’s hatred rhetoric<br>https://gnews.org/155523/
