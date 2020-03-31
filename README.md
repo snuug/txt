@@ -11,14 +11,29 @@
 
 
 
+**milesguo** CCP Coronavirus Pandemic Episode 66, March 30, 2020<br>https://gnews.org/157957/
+
+[https://www.guo.media/posts/276754](https://www.guo.media/posts/276754) `2020-03-31T22:25:13`
+##
+
 **milesguo** TNT Daily : Some countries claim that medical supplies purchased from China have serious quality issues<br>https://gnews.org/157739/
 
 [https://www.guo.media/posts/276753](https://www.guo.media/posts/276753) `2020-03-31T21:25:14`
 ##
 
+**milesguo** HK$216 billion provisional funds for police expansion approved without Democrats’ support<br>https://gnews.org/156540/
+
+[https://www.guo.media/posts/276752](https://www.guo.media/posts/276752) `2020-03-31T22:25:15`
+##
+
 **milesguo** Trump calls for quick FDA approval for the sterilization of masks<br>https://gnews.org/157245/
 
 [https://www.guo.media/posts/276751](https://www.guo.media/posts/276751) `2020-03-31T21:25:16`
+##
+
+**milesguo** HongKong chronicles: What had happened in Hong Kong on the 27th in the past 9 months?<br>https://gnews.org/155310/
+
+[https://www.guo.media/posts/276750](https://www.guo.media/posts/276750) `2020-03-31T22:25:16`
 ##
 
 **milesguo** Trump: Incredable Hospital in Javits Center and Abbott Labs‘ quick Testing Method<br>https://gnews.org/157097/
@@ -29,6 +44,11 @@
 **milesguo** Trump: FDA has approved new promising theapies<br>https://gnews.org/157050/
 
 [https://www.guo.media/posts/276747](https://www.guo.media/posts/276747) `2020-03-31T21:25:19`
+##
+
+**milesguo** President Trump remarks at the Ceremony for Sending off USNS Comfort<br>https://gnews.org/156252/
+
+[https://www.guo.media/posts/276746](https://www.guo.media/posts/276746) `2020-03-31T22:25:18`
 ##
 
 **milesguo** TNT Daily : Deng Feng central hospital could not give out benefits to its staffs<br>https://gnews.org/156780/
@@ -46,6 +66,11 @@
 [https://www.guo.media/posts/276741](https://www.guo.media/posts/276741) `2020-03-31T21:25:23`
 ##
 
+**milesguo** After arresting district councillors, Police Head: District council is being “too political”<br>https://gnews.org/155299/
+
+[https://www.guo.media/posts/276740](https://www.guo.media/posts/276740) `2020-03-31T22:25:20`
+##
+
 **milesguo** Police Arrest District Council Chairlady and Democratic Party Member<br>https://gnews.org/154593/
 
 [https://www.guo.media/posts/276739](https://www.guo.media/posts/276739) `2020-03-31T21:25:25`
@@ -54,6 +79,11 @@
 **milesguo** CCP: U.S. bites off its own head by signing “TAIPEI Act”<br>https://gnews.org/156043/
 
 [https://www.guo.media/posts/276738](https://www.guo.media/posts/276738) `2020-03-31T21:25:27`
+##
+
+**milesguo** Iceland: HALF OF CORONAVIRUS CARRIERS SHOW NO SYMPTOMS<br>https://gnews.org/156035/
+
+[https://www.guo.media/posts/276737](https://www.guo.media/posts/276737) `2020-03-31T22:25:21`
 ##
 
 **milesguo** 郭文贵先生：爆料革命成功化解两场人类大危机<br>https://gnews.org/zh-hans/158233/
