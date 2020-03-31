@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/276684](https://www.guo.media/posts/276684) `2020-03-31T08:40:27`
 ##
 
+**milesguo** 中国四川西昌市森林大火 救火人员又丧命 消防队与向导19死3伤<br>https://gnews.org/zh-hans/157861/
+
+[https://www.guo.media/posts/276683](https://www.guo.media/posts/276683) `2020-03-31T09:25:25`
+##
+
 **milesguo** 川普: 美国大众应该是决定者<br>https://gnews.org/zh-hans/157856/
 
 [https://www.guo.media/posts/276682](https://www.guo.media/posts/276682) `2020-03-31T08:40:29`
