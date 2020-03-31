@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你願意做韭菜還是真正的人民？ ！
-`2020-03-30 12:18 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/157380/)
+## 武漢CCP病毒和中國非洲豬瘟有什麼關聯
+`2020-03-30 17:51 GM06` [轉載自GNews](https://gnews.org/zh-hant/157482/)
 
-[https://spark.adobe.com/page/gXwjeJ6BC3ZI8/](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/)
+作者：壽張縣令
 
-*作者：Giselle*
+彭偑奧國務卿3-20號嚴厲的反擊了中國發言人趙立堅對美國軍人的污衊後，
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174054/1-155.png)
+網上流傳了央視2018年4月6號的一段視頻是讚揚關於武漢病毒研究所石正麗研究員2017年對於豬感染蝙蝠新型冠狀病毒的研究成果。
 
-*校對：👼Jane簡愛👼*
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174016/2-109.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174039/3-2-32.png)
 
-受CCP病毒影響，全球各國政府都在積極盡力籌款，補貼受災國民與企業。其中，美國向年收入7.5萬美元或以下的個人發放1200美元；加拿大宣布向無收入員工每月提供2000加元援助；英國個體戶每月可申請2萬英鎊補貼。
-[!\[\](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/5A515AEE-02D5-443F-99B7-E255BDFE46AC.jpg?asset_id=E59010DF-3D05-4319-AE2C-314FAC61D189&amp;size=3572)](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/5A515AEE-02D5-443F-99B7-E255BDFE46AC.jpg?asset_id=E59010DF-3D05-4319-AE2C-314FAC61D189&amp;size=1024)
-就連越南、緬甸等小國，也在給國民發錢補貼民生。只有中共政府不但不發錢，還強行要求民眾捐款，不願捐的則被中共政府直接從工資里克扣。
 
-據中共喉舌央視新聞報導：截至3月26日，全國已有7901萬多名黨員自願捐款82.6億元。對此，網友David在網上留言說：讓窮人給有錢人捐款，還要加上“自願”二字，實在是無恥之極！
-[!\[\](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/878A3154-3B21-480F-9F74-08FC3420865B.jpg?asset_id=E90DF3B0-D340-4F70-9B28-48C57BF78AD8&amp;size=1024)](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/878A3154-3B21-480F-9F74-08FC3420865B.jpg?asset_id=E90DF3B0-D340-4F70-9B28-48C57BF78AD8&amp;size=1024)
-網友黑色喵說，別說發錢了，他們連一線醫護人員的補貼都扣。昨天一線科室補貼800 元，拿到手50元。
+（視頻）稱其為來源於菊頭蝠冠狀病毒，並將其命名為豬急性腹瀉綜合冠狀病毒。石正麗團隊憑此研究成果2018年1月8號獲得了中國2018年度國家自然科學獎二等獎。
 
-甘肅省蘭州市西固區人民醫院在配合領導演完戲之後，竟然要求醫護人員退回疫情補貼。有醫生說自己一直在接觸發燒病人，現在沒有任何理由退回。但醫院領導說發和退都是按照規定的，但沒說什麼規定。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174339/5-45.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174306/34-2.png)
 
-3月29日，一位來自寧波的海外華人朋友C告訴筆者，她持有的寧波的房產最近價格暴漲。她的房產所在區域每平方米上漲了5000元。 C去年就把這套房產賣了，合約已經簽好，就差最後付款。新一輪的漲幅令她的房產少賺了60萬元人民幣。
-[!\[\](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/9AADE436-866D-47E9-9739-6218A42398F5.jpg?asset_id=5D42F81E-36AE-43B9-94E0-715206B0D8DC&amp;size=3452)](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/9AADE436-866D-47E9-9739-6218A42398F5.jpg?asset_id=5D42F81E-36AE-43B9-94E0-715206B0D8DC&amp;size=1024)
-C的家人都勸她毀約，說已經有現成的客戶要買她的房子。 C說，她當時有那麼一點心動，但，從良心上講，做不到去毀約。現在全球經濟形勢這麼糟糕，中共政府居然還如此瘋狂搜刮民脂民膏。而這種瘋狂的漲價還能持續多久呢？又有多少人會去接盤埋下禍根呢？
 
-C說，這是“上帝對她的考驗”。目前全球經濟都陷入了困境，中共獨裁政府卻逆天行事，強行把房價拉升，欺騙民眾接盤，對受災民眾照樣收割不誤，真是泯滅人性、殘暴至極。
+這一視頻把CCP病毒的傳播聚焦在了石正麗身上。然而她的獲獎團隊成員中有兩位沒太引起人們注意的病毒專家，他們來自中國軍事科學院！一位是軍科院醫學研究院微生物流行病研究所病原微生物安全國家重點實驗室助理研究員範航，他的頭銜現在已經是教授了。另一位就是所謂“對基因序列數據庫中的2019-nCoV序列進行了進化樹分析推算”的軍事醫學科學院理學博士、教授童貽鋼。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174250/6-41.png)
+他認為CCP新型冠狀病毒演化成現在的樣子，應該發生在大約2019年10月1號。這個推論剛好是武漢世界軍運會開幕的前夕，為抹黑美國政府和軍人放毒做了理論鋪墊。 (見美軍是來源的視頻和資料）
 
-目前，中共病毒仍然肆虐全球，給全球經濟帶來無法估量的損失。疫情也令國內許多小企業、小商舖紛紛倒閉。各地政府為了數據好看、維穩，避免因疫情帶來的社會恐慌，不但強行要求百姓復工，還要求商舖強行開店。陝西省西安市政府因為恐懼大量商舖在疫情期間被出租轉讓，居然派警察挨家挨戶撕商舖外面貼的出租告示，不許商舖出售、出租和轉讓，堵死小商戶的最後生路。
-[!\[\](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/22AE2182-2524-4782-BCDC-D0927C7582CE.jpg?asset_id=AEA05981-3976-47E3-A4A6-7DDF39B489E3&amp;size=3566)](https://spark.adobe.com/page/gXwjeJ6BC3ZI8/images/22AE2182-2524-4782-BCDC-D0927C7582CE.jpg?asset_id=AEA05981-3976-47E3-A4A6-7DDF39B489E3&amp;size=1024)
-中共政府自知由於釋放生化武器令全球生靈塗炭，已經成為人類公敵，時日無多，呈末日瘋狂之相。這一輪變本加厲的割韭菜運動，勢必令飽受CCPvirus侵害的中國老百姓更加苦不堪言、雪上加霜。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174329/7-2-16.png)
 
-親愛的同胞們，面對積極補貼民眾的政府和變本加厲收割韭菜的政府，你們願意選擇什麼樣的政府？你願意做韭菜還是願意做真正的人民？ ！民主、自由、法治從來不是從天而降，更不是靠統治者的恩賜，而是靠我們每個人去奮力爭取而來的！同胞們，讓我們團結一致跟隨七哥引領的這場爆料革命共同努力奮鬥吧！唯有此，我們才能成為真正的人民！也唯有此，我們才能享受到本應該屬於人民的尊嚴和待遇！
+再看看表彰大會後2018年接下來發生了什麼！ 2018年8月3號上午十一點在中國確診了首例“非洲豬瘟”地點是瀋陽沈北新區。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174502/8-24.png)
+然而經農業農村部確認養豬場最後引豬在2018年3月24號。來源為吉林市船營區，計100頭。 2018年4月份出現豬群死亡。在8月3號確診了首例非洲豬瘟後，屠殺了全部疫點的913頭生豬，然而在短短幾個月時間全國全部各省還是都淪陷。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174521/9-8.jpg)
+巧的是軍事醫學科學院軍事獸醫研究所就座落在距離船營區100多公里處。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174718/11-24.png)
+這個研究所是以研究動物病毒為主。疫病跨境傳播、跨物種傳播和跨種到人傳播是這個研究所的主要研究任務。換句話說動物身上的病毒傳播到人的跨物種傳播也是這個硏究所的研究範圍。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174704/12-12.png)
+“非洲豬瘟”的傳播和這次武漢CCP病毒暴發有很多驚人相似之處；一、疫病原發點附近都有一個有軍事背景研究病毒的研究所。石正麗的P4病毒研究所就在CCP冠狀病毒源頭武漢海鮮市場附近三十多公里處。二、傳播速度之快很難控制。中國非洲豬瘟在短短幾個月已經傳遍了中國各省，而武漢CCP病毒也是在短短幾個月已經傳遍了全世界。三、傳染力超強。四、幾乎無藥可治。五、非洲豬瘟潛伏期為4-19天，有的生豬感染可能3週內不出症狀這和武漢CCP病毒潛伏期基本一致。六、至今無法確定0號源頭在哪裡。
 
-**編輯：【喜馬拉雅戰鷹團】**
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174807/13-2.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174749/14-3.jpg)
+
+
+CCP在這兩個疫情暴發之後一直掩蓋病源體來源真相。中國非洲豬瘟源頭CCP本想找俄羅斯背鍋，被俄羅斯斷然拒絕了。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/30174834/56.png)
+後又有野豬說，之後推給了豬肉走私。這次武漢CCP病毒先說是動物、後抹黑參加武漢世界軍人運動會的美軍運動員、現在又開始放風意大利冠狀病毒暴發早於武漢。
+
+綜上所述，中國非洲豬瘟的暴發並不那麼單純，很可能是CCP進行的一次生物戰爭的實時演習。而當中國非洲豬瘟剛剛消聲匿蹟之後不久，武漢CCP病毒就被CCP引向世界。
+
+現在CCP拒絕提供武漢CCP病毒序列阻礙世界各國防疫控疫的進程。利用一切宣傳手段傳播假消息、利用藍金黃手段讓自己的代理人在世界上發聲欺騙世界以掩蓋其反人類罪的事實！這實際上就是這個專制極權組織想統治世界向自由民主世界的正式開戰！
+
+（文章內容僅代表作者觀點）
 
 0
