@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 八角棒槌：活在中共的图画里，你愿意吗？<br>https://gnews.org/zh-hans/157630/
+
+[https://www.guo.media/posts/276672](https://www.guo.media/posts/276672) `2020-03-31T06:25:31`
+##
+
 **milesguo** War Room86：药品供应不能被中共这样的黑帮控制<br>https://gnews.org/zh-hans/157626/
 
 [https://www.guo.media/posts/276671](https://www.guo.media/posts/276671) `2020-03-31T05:10:15`
@@ -24,6 +29,11 @@
 **milesguo** 粮食危机距离中国真的还远吗<br>https://gnews.org/zh-hans/157485/
 
 [https://www.guo.media/posts/276668](https://www.guo.media/posts/276668) `2020-03-31T04:55:16`
+##
+
+**milesguo** 武汉CCP病毒和中国非洲猪瘟有什么关联<br>https://gnews.org/zh-hans/157430/
+
+[https://www.guo.media/posts/276667](https://www.guo.media/posts/276667) `2020-03-31T06:25:33`
 ##
 
 **milesguo** 中共军事野心面对的是什么？<br>https://gnews.org/zh-hans/156606/
@@ -44,6 +54,11 @@
 **milesguo** 美国Abbott 实验室发明快速检测新型中共冠状病毒机器<br>https://gnews.org/zh-hans/157193/
 
 [https://www.guo.media/posts/276663](https://www.guo.media/posts/276663) `2020-03-31T05:10:22`
+##
+
+**milesguo** 中共正在利用宣传机器把中共冠状病毒嫁祸给中国人<br>https://gnews.org/zh-hans/157187/
+
+[https://www.guo.media/posts/276662](https://www.guo.media/posts/276662) `2020-03-31T06:25:34`
 ##
 
 **milesguo** 史蒂夫·班农：中共必须为中共冠状病毒造成的麻烦负责<br>https://gnews.org/zh-hans/157134/
