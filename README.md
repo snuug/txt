@@ -11,6 +11,36 @@
 
 
 
+**milesguo** 1400万用户消失的背后…<br>https://gnews.org/zh-hans/157745/
+
+[https://www.guo.media/posts/276681](https://www.guo.media/posts/276681) `2020-03-31T07:25:27`
+##
+
+**milesguo** 川普：美国死亡人数控制在10万就很好了<br>https://gnews.org/zh-hans/157808/
+
+[https://www.guo.media/posts/276679](https://www.guo.media/posts/276679) `2020-03-31T07:25:29`
+##
+
+**milesguo** 揭秘共产党玩转试剂盒 控制确诊率 欺骗全世界国家政府！<br>https://gnews.org/zh-hans/157776/
+
+[https://www.guo.media/posts/276678](https://www.guo.media/posts/276678) `2020-03-31T07:25:30`
+##
+
+**milesguo** 贵州锦屏中学复学发生学生集体发烧、腹痛腹泻 ——是因自建备用水源总大肠菌群、大肠埃希氏菌超标吗？<br>https://gnews.org/zh-hans/156687/
+
+[https://www.guo.media/posts/276677](https://www.guo.media/posts/276677) `2020-03-31T07:25:31`
+##
+
+**milesguo** 盗国贼扣在美国头上的三顶大帽子<br>https://gnews.org/zh-hans/156861/
+
+[https://www.guo.media/posts/276676](https://www.guo.media/posts/276676) `2020-03-31T07:25:33`
+##
+
+**milesguo** 一个远离武汉的县城疫情真实记录（五）<br>https://gnews.org/zh-hans/156888/
+
+[https://www.guo.media/posts/276675](https://www.guo.media/posts/276675) `2020-03-31T07:25:34`
+##
+
 **milesguo** 八角棒槌：活在中共的图画里，你愿意吗？<br>https://gnews.org/zh-hans/157630/
 
 [https://www.guo.media/posts/276672](https://www.guo.media/posts/276672) `2020-03-31T06:25:31`
