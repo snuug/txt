@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/276665](https://www.guo.media/posts/276665) `2020-03-31T05:10:21`
 ##
 
+**milesguo** 【武汉肺炎真相】共产党病毒3月30日视频合集<br>https://gnews.org/zh-hans/157214/
+
+[https://www.guo.media/posts/276664](https://www.guo.media/posts/276664) `2020-03-31T05:25:27`
+##
+
 **milesguo** 美国Abbott 实验室发明快速检测新型中共冠状病毒机器<br>https://gnews.org/zh-hans/157193/
 
 [https://www.guo.media/posts/276663](https://www.guo.media/posts/276663) `2020-03-31T05:10:22`
