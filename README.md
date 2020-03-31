@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 警惕中共的“无症状感染者”<br>https://gnews.org/zh-hans/157511/
+
+[https://www.guo.media/posts/276670](https://www.guo.media/posts/276670) `2020-03-31T04:55:14`
+##
+
+**milesguo** 粮食危机距离中国真的还远吗<br>https://gnews.org/zh-hans/157485/
+
+[https://www.guo.media/posts/276668](https://www.guo.media/posts/276668) `2020-03-31T04:55:16`
+##
+
+**milesguo** 参议员汤姆·沃顿：中共国一直在中共冠状病毒疫情上撒谎<br>https://gnews.org/zh-hans/157126/
+
+[https://www.guo.media/posts/276659](https://www.guo.media/posts/276659) `2020-03-31T04:55:20`
+##
+
 **milesguo** 郭文贵先生：爆料革命和香港人在勇敢的反抗中共<br>https://gnews.org/zh-hans/157118/
 
 [https://www.guo.media/posts/276658](https://www.guo.media/posts/276658) `2020-03-31T04:25:18`
