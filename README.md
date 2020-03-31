@@ -11,6 +11,41 @@
 
 
 
+**milesguo** 郭文贵先生：爆料革命和香港人在勇敢的反抗中共<br>https://gnews.org/zh-hans/157118/
+
+[https://www.guo.media/posts/276658](https://www.guo.media/posts/276658) `2020-03-31T04:25:18`
+##
+
+**milesguo** 2020年3月18日灭共者说中文字幕合集（下）<br>https://gnews.org/zh-hans/157108/
+
+[https://www.guo.media/posts/276657](https://www.guo.media/posts/276657) `2020-03-31T04:25:20`
+##
+
+**milesguo** 川普总统介绍雅培新检测手段和改造Javits中心为医院<br>https://gnews.org/zh-hans/157086/
+
+[https://www.guo.media/posts/276656](https://www.guo.media/posts/276656) `2020-03-31T04:25:22`
+##
+
+**milesguo** 法国前部长 染中共病毒离世<br>https://gnews.org/zh-hans/157071/
+
+[https://www.guo.media/posts/276655](https://www.guo.media/posts/276655) `2020-03-31T04:25:23`
+##
+
+**milesguo** 川普：FDA快速批准了几个新药的试验，期待结果<br>https://gnews.org/zh-hans/157065/
+
+[https://www.guo.media/posts/276654](https://www.guo.media/posts/276654) `2020-03-31T04:25:25`
+##
+
+**milesguo** 莫斯科及近郊强制居家隔离<br>https://gnews.org/zh-hans/157049/
+
+[https://www.guo.media/posts/276653](https://www.guo.media/posts/276653) `2020-03-31T04:25:26`
+##
+
+**milesguo** 一线医生：纽约医疗系统可能崩溃<br>https://gnews.org/zh-hans/157021/
+
+[https://www.guo.media/posts/276651](https://www.guo.media/posts/276651) `2020-03-31T04:25:27`
+##
+
 **milesguo** 3月30号：尊敬的战友们好，GTV's http://livestream.com/accounts/27235681．明天3月31号上午9:30左右，文贵乱聊直播！衷心的感谢．这位伟大战友给郭媒体汇来的10,000,000美元！一千万美元．……你对G媒体的要求⋯和对G-TV的希望，我们都已经明白了！我们的目标是一致的！我们将全力以赴去实现我们的共同目标，另外你要支付的四千万美元，请你一定要在我们一起和G-TV，GNEWS 等有一定的成就以后．再来支持我们．莘县阳谷县搭县我们会用结果给你看！！！！！！一切都已经开始！
 
 [https://www.guo.media/posts/276635](https://www.guo.media/posts/276635) `2020-03-30T23:11:22`
