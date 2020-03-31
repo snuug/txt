@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 《军情动态》岛风号护卫舰损伤! 日护卫舰岛风号遭中国渔船撞击 幸无人伤亡<br>https://gnews.org/zh-hans/157993/
+
+[https://www.guo.media/posts/276718](https://www.guo.media/posts/276718) `2020-03-31T16:40:26`
+##
+
+**milesguo** 用口罩绑架美国？ FDA将中共的口罩除名<br>https://gnews.org/zh-hans/157969/
+
+[https://www.guo.media/posts/276717](https://www.guo.media/posts/276717) `2020-03-31T16:40:28`
+##
+
+**milesguo** 文字版2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！<br>https://gnews.org/zh-hans/157870/
+
+[https://www.guo.media/posts/276715](https://www.guo.media/posts/276715) `2020-03-31T16:40:29`
+##
+
 **milesguo** 2020年3月30日CCP冠状病毒大流行第66集<br>https://gnews.org/zh-hans/157947/
 
 [https://www.guo.media/posts/276685](https://www.guo.media/posts/276685) `2020-03-31T08:55:21`
