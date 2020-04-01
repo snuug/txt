@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 嗆「要做假貨害美國」 中國廠商狡辯稱：出於愛國情懷
-`2020-03-31 12:37 GM15` [轉載自GNews](https://gnews.org/zh-hant/158293/)
+## [我們幾千萬次的觀看流量．每次的幾億國內的觀看數據]
+`2020-03-31 12:50 GM17` [轉載自GNews](https://gnews.org/zh-hant/158304/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/31123340/php3l8h7m.jpg)
-武漢肺炎殃及全球，中國政府近日被多國爆出，醫療物資的品質出現嚴重問題，「中國製造」掀起國際高度質疑，沒想到在中國網路也瘋傳「做假貨」的消息，廣東省東莞有一位老闆揚言「要做假測溫槍賣給美國」，事發後受訪辯稱，他只是出於「愛國情懷」，一時衝動開玩笑。
-
-中國媒體日前爆料，有一家位在廣東省東莞市的顥峰電子科技有限公司，老闆張懸東近日在微信向其他廠商建議，做假測溫槍賣給美國，「讓他們39度測出36.5度，讓他們越搞越多，看他們美國還有多少人去別國傷人」。
-
-根據[《自由亞洲電台》](https://www.rfa.org/cantonese/news/cn-fake-03302020093609.html)報導，張懸東的「愛國心態」鬧出製造假貨的新聞，但在武漢肺炎疫情之下，中國內部還有很多亂象，不僅出現醫療物資缺貨、哄抬、騙錢等現象，還有許多來路不明的「三無產品」在市場上橫流。
-
-曾在中國清華大學擔任政治學講師的獨立學者吳強指出，中國人愛國仇外的心態是從小培養，民族主義已經成為防疫的一部份，民族主義所引起的「張懸東事件」，雖說是開玩笑，但連同病毒源頭未明、中國近期屢次出現防疫用品的質量等問題，已加劇全球對中國的不信任與懷疑，從某種程度而言，這是一個自食其果的產物。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3119185)
-
-GM15
-
-0
+3月31號：今天上午的直播．在兩個平臺在線觀看4萬多VPN．和2300的新GTV的VPN．僅僅老GTV周內．
+<br>一兩百萬的閱讀量！
+<br>這還不包括我們的youTben 和新的末上線的GTV的真正的觀看數據，我們幾千萬次的觀看流量．每次的幾億國內的觀看數據，纔是共產黨最恐懼的．在看有多少人是轉發的……鐵的事實和數據，是最好的證據！這最起碼的常識．這些共產黨養着痔瘡幫．和雞腿幫．大驢臉．們都撒謊．他們真把戰友和觀衆當傻子，這種與共產黨一樣的無知傲慢一定會在美國的法律系統面前，讓他們付出他們無法承受的代價，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_91360.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_17465.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_37352.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_82780.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_87072.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_4647.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_15382.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_39845.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_79011.(null))
+1+
