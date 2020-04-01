@@ -1,19 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 直播重點 中共對世界的三重傷害
-`2020-04-01 01:07 GM09` [轉載自GNews](https://gnews.org/zh-hant/158722/)
+## 《軍情動態》罕見！ 美軍昨分派2軍機巡弋南海丶東海及黃海
+`2020-04-01 01:29 GM15` [轉載自GNews](https://gnews.org/zh-hant/158740/)
 
-摘要：老薑
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012649/phpH2707N.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012658/phpJXbHwF.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012709/phpqGQnQt.jpg)
+追蹤軍事航空器的推特「飛機守望」（Aircraft spot）昨日披露消息指出，美軍一架P-3C反潛機昨天通過巴士海峽，往南海飛行；另外，一架EP-3E型電偵機則是在同日飛臨黃海及東海，美國軍機在一天內同時進入南海、東海和黃海上空的情況實屬罕見。
 
-經過這兩周全球CCP病毒的大流行，世界各國已徹底看清了CCP給人類生存和安全帶來的3次嚴重傷害。
+而根據「飛機守望」推特公布的訊息，美國軍機自3月25日至3月31日這段期間曾四度接近我國外圍空域，一架EP-3E電偵機於3月25日在我國西南方外圍空域來回繞飛；3月26日時則有一架EP-3E電偵機穿越巴士海峽；3月27日則有兩架B-52轟炸機接近我國東部空域，一架EP-3E電偵機與一架RC-135U電偵機通過巴士海峽。
 
-第一次，製造和傳播病毒，企圖以此壓製香港抗議活動，結果病毒失控，禍害全中國無辜人民。中共隨即通過與各國的便利交通，刻意向全球傳播病毒，以掩蓋其罪惡。
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3119539)
 
-第二次、疫情發生後，刻意隱瞞疫情和誤導世界各國領袖、媒體，控制WHO，收買個別醫療專家為其說謊，結果致使世界各國陷入醫療、經濟和社會崩潰的邊緣。
+GM15
 
-第三次、全球疫情期間，還向世界出口劣質口罩、防護服，假病毒測試儀、體溫儀等設備。從上週起，以美國為領導，英國、德國、意大利、西班牙、捷克、荷蘭、比利時等國的政客、媒體也在開始公開指責CCP的口罩外交。而即使在這種情況下，CCP還在把病毒來源指向美國、意大利等國。
-
-CCP不除，世界永無安寧之日。
- 
 0
