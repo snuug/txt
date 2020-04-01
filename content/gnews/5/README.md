@@ -1,38 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 股市和黃金最近走勢分析2
-`2020-04-01 09:05 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/159135/)
+## [給戰友們寄送口罩和消毒用品]
+`2020-04-01 09:24 GM17` [轉載自GNews](https://gnews.org/zh-hant/159161/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01090240/stock-market4.jpg)
-2020年4月的第一周為大家帶來股市黃金的分析和見解。
-
-最近有些戰友有在問，為什麼英國那麼多人感染，連王室和首相都染病了，英鎊卻一直在漲？
-
-不要著急，我會在這里為大家帶來一點個人思路和見解。
-
-本分析僅代表個人觀點，不構成投資意見，投資有風險。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01090227/stock-market-1-scaled.jpg)
-這裡我先道歉，上期的文章寫的股市是標普但是卻沒有明確標出來，這裡給大家道歉了。
-
-先看這張黃金和標準普爾的4H對比圖。可以看出標準普爾在第一輪大跌的過程中，由於全球美元流動性緊張，黃金作為可以換美金的資產也被賣出。美元流動性的緊張帶動了美元指數的飆升，美聯儲的接連放水沒有解渴，直到股市觸底後，黃金，英鎊等非美迎來了一輪轉機。
-
-在上次分析中，我提到了黃金很可能會達到上升趨勢線後進行上沖，對應著股指上沖第一個紫色的強阻力區域。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01085532/stock-market2-scaled.jpg)
-從市場最後給出的結果來看，股市在經典的50%回撤位和下降趨勢線附近變得非常弱勢，形態上看為雙頂的形成就差跌破頸線位。所以黃金非常決絕的跌破了上升支撐，接下來隨著美元流動性的緊張，預計黃金還會進一步下跌。但是國內拿著人民幣的黃金如果買價不是在國際金價1600USD/盎司以上建議持有，因為人民幣會超級貶值甚至會變成廢紙。保財保命。
-
-標準普爾500指數
-
-如圖所示
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01085642/stock-market3-scaled.jpg)
-目標按照從第一輪跌勢的量能到本輪迴調後的頂部作為頂點的比例1：1來算，本輪三浪的目標應該為1680左右。我在東京時間3月31日晚，於2590附近加倉進場做空，加上之前的2960的空單，目標為1680-1720附近。
-
-說到這里大家應該能明白了為什麼英國情況那麼差英鎊還暴漲，股市跌的那麼厲害黃金也跌。沒錯，就是因為美元流動性。當美金流動性釋放的時候，之前被過度拋售的貨幣和商品就會被買入，這可以被稱為超跌反彈或者說是回調。根據郭叔的指點和目前疫情的狀況，技術上來看英鎊如果無法突破1.254-6一線，英鎊將會重新進入跌勢。
-
-就像之前的黃金在1600-1620附近震盪一樣，市場都到了一個觀望期，如果股市繼續回調，黃金就會如上回分析一樣，沖向1710再進行回調。同時英鎊也會上沖去測試1.30一線。可惜股指太弱，目前上行力量衰竭，等待破位後打開更大空間。
-
-祝大家疫情期間多多保重，保命保財。一切已經開始。
-
-撰稿：水清草綠
-
+4月1日：昨天3月31日，王豔萍和法治基金．法治社會的同事們．又是工作了十幾個小時，向紐約的各個機構，送口罩．消毒用品．和手套，給戰友們寄送口罩和消毒用品，紐約現在是ccp役情最危險的時候，可是他們卻一整天的冒着生命危險……辛苦的的工作着．這是爲華人爭光．爲爆料革命爭光。人在做天在看．幾個小毛賊．inty……雞腿潘……等．竟然要發動舉報沒收我們的戰友們……捐款給美國公益事業……給全世界的戰友們救命公益物資！欲圖毀滅……唯一在曼哈頓爲中國人爭取未來……安全這的機會……人心險惡到如此的境地，還有人爲他們捐款點贊喊好……天理何在？人性．善良都去了哪裏？
+<br>一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_58918.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_9219.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_85733.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_91773.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_11036.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_63759.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_1834.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_35456.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585747451_45743.(null))
 0
