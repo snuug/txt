@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [你們健身了嗎, 尊敬的戰友們好]
-`2020-04-01 08:40 GM17` [轉載自GNews](https://gnews.org/zh-hant/159092/)
+## 美國互聯網和電信業做出了巨大努力
+`2020-04-01 09:09 GM31` [轉載自GNews](https://gnews.org/zh-hant/159124/)
 
-4月1號：尊敬的戰友們好，你們健身了嗎？你們傳播C C P病毒．香港危機真相了嗎？一切都已經開始。
-![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744786_62288.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_52729.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_51896.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_37749.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_49059.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_95302.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_70328.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_48068.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_12546.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_96982.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_31811.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_41004.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_7938.(null))
+在白宮3月31日的[每日疫情會](https://www.youtube.com/watch?v=zpbEyfl3vpg)上，川普總統讚揚了美國的聯網和電信龍頭企業，為保持在疫情當中的通訊暢通，所作出的巨大努力。
+
+川普總統像以往的發布會一樣，不忘記提及任何一個為疫情做出貢獻的公司和公司領袖，這又一次凸顯了他的感恩和謙卑的品格（儘管大多主流媒體和反對黨政客往往看到與事實不符的另一面）。川普總統還談到了美國互聯網和通訊業在疫情當中，業績節節升高和創紀錄式的業績增長。
+
+*翻譯：【Michelle】視頻：【mg南】*
+
 0
