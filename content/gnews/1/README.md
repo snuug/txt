@@ -1,16 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《軍情動態》罕見！ 美軍昨分派2軍機巡弋南海丶東海及黃海
-`2020-04-01 01:29 GM15` [轉載自GNews](https://gnews.org/zh-hant/158740/)
+## 蓬佩奧國務卿表示無論如何都會接美國人回家並支援世界共同抗疫
+`2020-04-01 01:53 GM77` [轉載自GNews](https://gnews.org/zh-hant/158785/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012649/phpH2707N.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012658/phpJXbHwF.jpg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01012709/phpqGQnQt.jpg)
-追蹤軍事航空器的推特「飛機守望」（Aircraft spot）昨日披露消息指出，美軍一架P-3C反潛機昨天通過巴士海峽，往南海飛行；另外，一架EP-3E型電偵機則是在同日飛臨黃海及東海，美國軍機在一天內同時進入南海、東海和黃海上空的情況實屬罕見。
-
-而根據「飛機守望」推特公布的訊息，美國軍機自3月25日至3月31日這段期間曾四度接近我國外圍空域，一架EP-3E電偵機於3月25日在我國西南方外圍空域來回繞飛；3月26日時則有一架EP-3E電偵機穿越巴士海峽；3月27日則有兩架B-52轟炸機接近我國東部空域，一架EP-3E電偵機與一架RC-135U電偵機通過巴士海峽。
-
-引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3119539)
-
-GM15
+•美國國務卿蓬佩奧表示：在從武漢接美國人回家過程中，醫療人員發現處在中共冠狀病毒起源地的中國還在一片歲月靜好之中。
+•美國政府將盡力接現在仍在海外的美國公民回家。
+•美國社會各界竭盡全力對世界上受中共冠狀病毒侵害的國家進行物資上的支援。
+•某些國家在制造大規模殺傷性武器時，卻聲稱無法保證本國民生，這實在是可悲的一件事情。
 
 0

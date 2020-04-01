@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 数字不会撒谎：寻找中共疫情造假的证据<br>https://gnews.org/zh-hans/157705/
+
+[https://www.guo.media/posts/276769](https://www.guo.media/posts/276769) `2020-04-01T05:55:32`
+##
+
 **milesguo** “天堂与地狱”其实都在人间<br>https://gnews.org/zh-hans/158334/
 
 [https://www.guo.media/posts/276767](https://www.guo.media/posts/276767) `2020-04-01T04:40:23`
@@ -34,6 +39,11 @@
 **milesguo** 武汉人不相信中共谎报的死亡人数<br>https://gnews.org/zh-hans/158249/
 
 [https://www.guo.media/posts/276762](https://www.guo.media/posts/276762) `2020-04-01T04:40:29`
+##
+
+**milesguo** 极权主义政权都在撒谎<br>https://gnews.org/zh-hans/158241/
+
+[https://www.guo.media/posts/276760](https://www.guo.media/posts/276760) `2020-04-01T05:55:34`
 ##
 
 **milesguo** CCP Coronavirus Pandemic Episode 66, March 30, 2020<br>https://gnews.org/157957/
