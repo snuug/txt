@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年3月31日CCP冠状病毒大流行第67集<br>https://gnews.org/zh-hans/158653/
+
+[https://www.guo.media/posts/276779](https://www.guo.media/posts/276779) `2020-04-01T09:25:21`
+##
+
 **milesguo** 数字不会撒谎：寻找中共疫情造假的证据<br>https://gnews.org/zh-hans/157705/
 
 [https://www.guo.media/posts/276769](https://www.guo.media/posts/276769) `2020-04-01T05:55:32`
