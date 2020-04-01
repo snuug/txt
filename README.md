@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/276769](https://www.guo.media/posts/276769) `2020-04-01T05:55:32`
 ##
 
+**milesguo** 四谈火烧连营 ——火烧印钞厂<br>https://gnews.org/zh-hans/157663/
+
+[https://www.guo.media/posts/276768](https://www.guo.media/posts/276768) `2020-04-01T09:10:16`
+##
+
 **milesguo** “天堂与地狱”其实都在人间<br>https://gnews.org/zh-hans/158334/
 
 [https://www.guo.media/posts/276767](https://www.guo.media/posts/276767) `2020-04-01T04:40:23`
