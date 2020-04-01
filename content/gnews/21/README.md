@@ -1,39 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《中共肺炎》中國製快篩試劑準確率比丟銅板還不如 國際上目前被坑爹的國家有那些?
-`2020-03-31 12:26 GM15` [轉載自GNews](https://gnews.org/zh-hant/158286/)
+## [我們幾千萬次的觀看流量．每次的幾億國內的觀看數據]
+`2020-03-31 12:50 GM17` [轉載自GNews](https://gnews.org/zh-hant/158304/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/31122509/158525925589483_P7652595.jpg)
-中共肺炎病例在全球激增，不少國家向中國購買了檢測⼯具，期望可以快篩出確診病患，但有多國在使⽤中國制快篩⼯具之時，卻發現其準確性過低。
-菲律賓衛⽣部在28⽇指稱，中國給他們的第⼀批測試⼯具，準確率只有40%，因此決定放棄使⽤。菲律賓衛⽣部官員更表⽰，這些劣質的快篩⼯具，不應該⽤於我們⼈⺠的⾝上。
-根據報導指出，中國產製的快篩⼯具可說問題連連，先前捷克、西班⽛、⼟⽿其等國也都先後反映中國的測試⼯具準確率太低了。
-
-**捷克：⼤陸快篩錯誤率80%**
-
-捷克電台（Czech Radio）旗下新聞網站iRozhlas 23⽇報導，在東北部奧斯特拉⽡（Ostrava）⼤學任教的衛⽣專家斯伏⾟諾娃（Pavla Svrčinová）表⽰，21⽇在⼤學醫院測試這批2019年冠狀病毒疾病（COVID-19，武漢肺炎）快篩試劑，結果發現錯誤率約80%，檢測結果呈現偽陽性或偽陰性反應。斯伏⾟諾娃表⽰，他們將受檢樣本再進⾏傳統檢測，證實快篩試劑的錯誤率；雖然快篩試劑是⽤來檢測結束隔離期的⼈，衛⽣專家仍會先確認檢測的可靠性。
-
-**西班⽛：中國快篩的準確率僅有30%**
-
-據西班⽛⼤報《國家報（El País）》網站的⾸⾴頭版報導指出，西班⽛政府為了快速檢測⺠眾是否遭病毒感染，已向中國購買34萬份快篩；當局在上週三⼜宣布訂購了550萬份的中國快篩，可是不知道是否是來⾃於同⼀家廠商。報導稱，此批快篩的準確率，理應要超過80%，但經實際使⽤之後卻發現，檢驗正確率竟然僅有30%⽽已。有⼀名參與檢驗該批快篩的微⽣物學專家就痛批，從如此的結果來看，使⽤這些快篩根本就無任何意義。
-
-西班⽛主流媒體《 El País 》也於26 ⽇刊出《從中國購買的新冠病毒快篩效果不佳》的消息，西班⽛多家醫院的實驗室發現，使⽤來⾃中國⼤陸廠商的快篩試劑後，其準確率僅有 30% ，意即出錯率⾼達 70% ，⼀微⽣物學家更表明「以這種表現，使⽤這些試劑沒有任何意義」。西班⽛衛⽣局發現其快篩試劑失誤率太⾼，建議各地先不要使⽤快篩試劑，繼續以原本的核酸檢測（PCR ）為主，將召回這些快篩試劑，要求中國⼤陸深圳的原製造商更換
-
-專家們最後的結論是，他們不得不再繼續使⽤西班⽛原本的PCR核酸檢測，且暫停使⽤該批中國制造的快篩。
-
-**⼟⽿其：快篩準確率僅30％**
-
-據《中東之眼》（Middle East Eye）報導，⼟⽿其衛⽣部官員已經證實，⼟⽿其當局發現中國制的快篩試劑準確率只有30%⾄35%。「我們從那家公司收到了⼀些樣品，我們卻發現那些快篩試劑組根本就不能使⽤，⽽後從另⼀家中國公司訂購別種的檢驗試劑組。」這位官員並未透露他們使⽤了多少樣品來進⾏測試，但強調這些試劑還沒有對廣⼤的⺠眾使⽤。
-
-**菲律賓：中國快篩⼯具準確率只有40%**
-
-據菲國媒體ABS-CBN報導，⾺尼拉衛⽣部在28⽇指出，在世界衛⽣組織(WHO)的標準下，中國第⼀批送達的快篩⼯具準確率只有40%，由於準確度實在太低了，因此決定將此批測試⼯具先擺在⼀旁。
-衛⽣部說，衛⽣官員除了使⽤中國的快篩之外，也使⽤了其他國家的快篩⼯具來進⾏相同的測試，⽽在WHO的標準下，其他國家的快篩⼯具所測試出來的結果是準確的。
-
-對此，菲律賓衛⽣部助理部⻑瑪麗亞（Maria Rosario Vergeire）強調，在使⽤他們「鄰居」所提供的快篩⼯具之前，會先確保這些的快篩⼯具品質。我們向國⼈保證，在使⽤捐贈的這些檢驗試劑組之前，我們會先進⾏檢測它們，就會知道哪些試劑組品質低劣，不會讓這些使⽤在我們國⼈⾝上。
-
-引自 [https://ibmi.taiwan-healthcare.org/news\_detail.php?REFDOCTYPID=&REFDOCID=0q7zg0em3vejra35](https://ibmi.taiwan-healthcare.org/news_detail.php?REFDOCTYPID=&amp;REFDOCID=0q7zg0em3vejra35)
-
-GM15
-
-0
+3月31號：今天上午的直播．在兩個平臺在線觀看4萬多VPN．和2300的新GTV的VPN．僅僅老GTV周內．
+<br>一兩百萬的閱讀量！
+<br>這還不包括我們的youTben 和新的末上線的GTV的真正的觀看數據，我們幾千萬次的觀看流量．每次的幾億國內的觀看數據，纔是共產黨最恐懼的．在看有多少人是轉發的……鐵的事實和數據，是最好的證據！這最起碼的常識．這些共產黨養着痔瘡幫．和雞腿幫．大驢臉．們都撒謊．他們真把戰友和觀衆當傻子，這種與共產黨一樣的無知傲慢一定會在美國的法律系統面前，讓他們付出他們無法承受的代價，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_91360.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_17465.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_37352.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_82780.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_87072.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672738_4647.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_15382.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_39845.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/03/img_1585672739_79011.(null))
+1+
