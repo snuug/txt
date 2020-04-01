@@ -61,6 +61,11 @@
 [https://www.guo.media/posts/276745](https://www.guo.media/posts/276745) `2020-03-31T21:25:20`
 ##
 
+**milesguo** Masks can curb CCP-virus as 86% infections are “undocumented”<br>https://gnews.org/156475/
+
+[https://www.guo.media/posts/276744](https://www.guo.media/posts/276744) `2020-04-01T01:40:13`
+##
+
 **milesguo** Reporters Without Borders: free press could have stopped pandemic<br>https://gnews.org/156438/
 
 [https://www.guo.media/posts/276743](https://www.guo.media/posts/276743) `2020-03-31T21:25:21`
