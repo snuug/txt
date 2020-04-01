@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/276792](https://www.guo.media/posts/276792) `2020-04-01T13:40:12`
 ##
 
+**milesguo** 4月1号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机真相了吗？一切都已经开始。
+
+[https://www.guo.media/posts/276785](https://www.guo.media/posts/276785) `2020-04-01T13:55:19`
+##
+
 **milesguo** 2020年3月31日CCP冠状病毒大流行第67集<br>https://gnews.org/zh-hans/158653/
 
 [https://www.guo.media/posts/276779](https://www.guo.media/posts/276779) `2020-04-01T09:25:21`
