@@ -1,24 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12岁比利時女孩成為歐洲最年輕的中共冠狀病毒受害者
-`2020-04-01 08:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/159054/)
+## [你們健身了嗎, 尊敬的戰友們好]
+`2020-04-01 08:40 GM17` [轉載自GNews](https://gnews.org/zh-hant/159092/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01081144/Screen-Shot-2020-04-01-at-10.11.22-pm.png)圖片來源：exchange-nl.com
-據《大紀元時報》3月31日報導，布魯塞爾衛生部發言人於周二公布，一名12歲比利時女孩死於中共冠状病毒，是歐洲最年輕的受害者。
-
-病毒學家埃曼紐埃爾·安德烈（Emmanuel Andre）在比利時官方的每日新聞發布會上說：“這很罕見，但中共冠狀病毒正在無聲的殺死我們。
-
-歐盟機構歐洲疾病預防控制中心（ECDC）也記錄有西班牙10-19歲年齡段的死亡病例，但未提供詳細信息。
-
-比利時官員表示，雖然由中共冠狀病毒引起的呼吸道疾病對老年人的影響更大，但發燒三天后這名12歲女孩的病情惡化了。官員們沒有提供任何有關該女孩健康狀況的細節。
-
-截至週二，比利時的死亡人數增加了98人，總數達到705人。病毒確診人數新增876例，使總確診人數達到12,775例。其中大約4,920人住院治療。這也意味著中共冠狀病毒佔用了比利時大約一半的醫療服務系統。
-
-比利時預計該病毒的傳播將在未來幾天和幾週內達到頂峰。
-
-[原文鏈接](https://www.theepochtimes.com/belgian-girl-becomes-europes-youngest-covid-19-victim-media_3292288.html)
-
-翻譯報導：明澈
-
+4月1號：尊敬的戰友們好，你們健身了嗎？你們傳播C C P病毒．香港危機真相了嗎？一切都已經開始。
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744786_62288.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_52729.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_51896.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744787_37749.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_49059.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_95302.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_70328.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_48068.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744788_12546.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_96982.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_31811.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_41004.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585744842_7938.(null))
 0
