@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 【共产党病毒真相】4月2日视频合集<br>https://gnews.org/zh-hans/160064/
+
+[https://www.guo.media/posts/276906](https://www.guo.media/posts/276906) `2020-04-02T18:10:11`
+##
+
+**milesguo** 美国计划减少对中国药品的依赖<br>https://gnews.org/zh-hans/160049/
+
+[https://www.guo.media/posts/276904](https://www.guo.media/posts/276904) `2020-04-02T18:10:13`
+##
+
+**milesguo** 《中共肺炎》吃拉面感觉味道变淡 日本年轻男性警觉自己出现味觉与嗅觉异常筛检确诊染疫!<br>https://gnews.org/zh-hans/160015/
+
+[https://www.guo.media/posts/276900](https://www.guo.media/posts/276900) `2020-04-02T18:10:14`
+##
+
 **milesguo** 「我能挺过二战就能挺过肺炎」 坚强求生意志! 美国95岁老兵染病后奇迹康复!<br>https://gnews.org/zh-hans/160008/
 
 [https://www.guo.media/posts/276899](https://www.guo.media/posts/276899) `2020-04-02T17:25:20`
@@ -19,6 +34,21 @@
 **milesguo** 欧美各国收到来自台湾的「礼物」 欧盟主席首度公开感谢 欧洲各国驻台代表纷纷表示感谢之意!<br>https://gnews.org/zh-hans/159996/
 
 [https://www.guo.media/posts/276898](https://www.guo.media/posts/276898) `2020-04-02T17:25:21`
+##
+
+**milesguo** 《中共肺炎》部分患者出现脑损伤医界警告病毒可能直攻脑部!<br>https://gnews.org/zh-hans/159975/
+
+[https://www.guo.media/posts/276897](https://www.guo.media/posts/276897) `2020-04-02T18:10:15`
+##
+
+**milesguo** 郭文贵先生诉阿里巴巴的案子将在五、六月份出现什么结果<br>https://gnews.org/zh-hans/159955/
+
+[https://www.guo.media/posts/276896](https://www.guo.media/posts/276896) `2020-04-02T18:10:16`
+##
+
+**milesguo** 台湾捐美口罩AIT：台湾是真正的朋友!<br>https://gnews.org/zh-hans/159929/
+
+[https://www.guo.media/posts/276894](https://www.guo.media/posts/276894) `2020-04-02T18:10:18`
 ##
 
 **milesguo** 川普总统的抗役行动<br>https://gnews.org/zh-hans/159827/
