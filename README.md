@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 共产党 领导带头下馆子！不仅要钱还要命！<br>https://gnews.org/zh-hans/159176/
+
+[https://www.guo.media/posts/276838](https://www.guo.media/posts/276838) `2020-04-02T04:40:15`
+##
+
+**milesguo** 愚人节的“愚人庄”离监狱就一步之遥—– 新四丑类之“传奇”<br>https://gnews.org/zh-hans/159096/
+
+[https://www.guo.media/posts/276837](https://www.guo.media/posts/276837) `2020-04-02T04:40:16`
+##
+
 **milesguo** 2020年4月1日CCP冠状病毒大流行第68集<br>https://gnews.org/zh-hans/159614/
 
 [https://www.guo.media/posts/276833](https://www.guo.media/posts/276833) `2020-04-02T03:55:14`
@@ -39,6 +49,11 @@
 **milesguo** 粮食危机和失业潮，中共是罪魁祸首<br>https://gnews.org/zh-hans/158627/
 
 [https://www.guo.media/posts/276828](https://www.guo.media/posts/276828) `2020-04-02T03:55:17`
+##
+
+**milesguo** 中共病毒疫情下，美国社会诠释了“以人为本”的行动力！<br>https://gnews.org/zh-hans/159472/
+
+[https://www.guo.media/posts/276827](https://www.guo.media/posts/276827) `2020-04-02T04:40:18`
 ##
 
 **milesguo** 经过这次疫情，中共国制造被彻底搞臭<br>https://gnews.org/zh-hans/159492/
