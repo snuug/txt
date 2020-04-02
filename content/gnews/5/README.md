@@ -1,81 +1,115 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國再次強大
-`2020-04-01 23:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/159689/)
+## 冠狀病毒正成為中國的一場公關災難
+`2020-04-02 00:07 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/159722/)
 
-[https://spark.adobe.com/page/lXt2uENSdIIY6/](https://spark.adobe.com/page/lXt2uENSdIIY6/)
+【中英對照翻譯】 [https://spark.adobe.com/page/3PFiU807WWWip/](https://spark.adobe.com/page/3PFiU807WWWip/)
 
-*作者：玄天生*
+*消息來源：福布斯新聞網*
 
-*校對：Julia Win*
+*作者：Kenneth Rapoza Senior Contributor 肯尼斯·拉波扎資深撰稿人*
 
-**引言：文明強大的國家不在於他們的政府如何強大，而是在災難面前，人民是大難臨頭各自飛，還是努力、團結一致解決問題；人民是擁有高素質的修養、願意分享和無私的心境，還是開始混亂、搶奪；人民是心中擁有信仰、希望，還是醜態百出，自私、自利。**
+*翻譯/簡評: freedust*
 
-面對因邪魔中共製造的中共生化武器的病毒(CCP-VIRUS中共肺炎)，世界各國均已處於停擺狀態。現今，由經濟主導一切的社會，因此次生化攻擊，將會顯示出各國在這次危機中重新發展的國力。
+*PR: 海闊天空*
 
-由於中共提供給世界的虛假信息，加之WHO （實質上已是CHO）為中共站台的那一刻起，世界已經失去了防禦的先機。美國在北京時間4月1 日的確診數字是164,406。數字的增加當然是不樂觀，但它反應一個事實就是，美國提供的數字比中共更可靠，證明CCP-VIRUS的病毒不是普通的病毒，更證明了美國的測試準確率很高，也因此才能不斷反應確診數字的提升。目前的病患的死亡數字，美國是3,172，而意大利已經到了11,591。
+**簡評:**
 
-面對邪魔中共製造的人為災難，前期爆發時，各國都還未意識到它對世界、對人類是一個危險的存在。直到各國大爆發，部份國家政要自己也感染時，才逐漸正視這一切的罪魁禍首，就是邪魔中共和為中共站台的幫兇CHO (WHO)！
-[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/4feba39e-e82e-4970-adeb-62696a2a33f8.jpg?asset_id=c26dc733-1e62-4275-95e6-1bdcdecd54f0&amp;img_etag=bbdedae60957bc636e85122ba765d7cd&amp;size=2560)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/4feba39e-e82e-4970-adeb-62696a2a33f8.jpg?asset_id=c26dc733-1e62-4275-95e6-1bdcdecd54f0&amp;img_etag=bbdedae60957bc636e85122ba765d7cd&amp;size=1024)
-**所謂沒有對比，就沒有傷害嗎？**
-
-其實不然，沒有對比，你就無法知道，誰才是真正的大國風範，無法知道，哪個政府才是為人民謀取福利，服務於人民的政府。沒有對比，你就不會有進步，不會奮發進取，不會想着讓人民有信仰，更文明，更自由，更富足，更有能力創造一切。下面我們來做個比較。
-
-**美國政府方面**
-
-首先，美國在邪魔中共CCP-VIRUS攻擊下，雖然沒有準備，無法第一時間作出有效的應對，但是美國並沒有進入很長的混亂期，而是很快重整節奏。在美國股市瘋狂跳水式下趺，政府推出2萬億美金來救市，這次救市，可不像前任總統樣，為華爾街和中共所做的惡來買單，讓美國人民來買他們的爛攤子。而這次救市，受益者是美國人民，是為美國普通民眾，減少邪魔中共CCP-VIRUS所帶來的影響。
-
-- 5,000億美元／向大部分成年人派發1,200美元、向兒童派發500美元；6星期後，若國家仍在緊急狀態，將以相同方式派發第二次
-- 5,000億美元／向受疫情重創企業貸款
-- 3,500億美元／向小型企業貸款；若企業不對薪資作任何調整，企業可不用償還相關貸款
-- 2,500億美元／大幅提高失業保險金等失業保障，允許正在休假而未被解僱的工人，獲得最多4個月的工資
-- 1,500億美元／向醫院及醫療系統撥款
-- 1,500億美元／支援州及地方政府抗疫
+中共正在走入為自己挖的謊言墳墓中。 隨著越來越多的國家被拖入疫情,中共大外宣所宣傳的零增長，與全球各國家面臨的日益嚴重的現實，產生了巨大的反差,越來越多的國家在冷冰冰的死亡數字面前，會對中共的一切產生懷疑, 這將使中共的國際外交關係處於被動。而向西方捐贈的大量次品假貨,又會在這鮮血淋漓的傷口上撒鹽。 接下來,中共需要面對的是,被撕下偽裝后,國內疫情的再次爆發,無疑會使全球的產業鏈從中共國遷出,大量的投資會撤走。 外交宣傳和貿易出口,是中共的生命線。 中共一向弄虛作假,搬起它的石頭砸它自己的腳。 中共此次愚蠢的虛假宣傳，對其打擊是致命的,它已經無可避免地，走入自己早已為自己掘好的墳墓中。
 
 
-參考資料：[新聞鏈結](https://inews.hket.com/article/2600410/%E3%80%90%E7%BE%8E%E5%9C%8B%E7%96%AB%E6%83%85%E3%80%912%E8%90%AC%E5%84%84%E7%BE%8E%E5%85%83%E6%95%91%E5%B8%82%E6%96%B9%E6%A1%88%201-4%E8%B3%87%E9%87%91%E6%94%AF%E6%8F%B4%E5%8F%97%E9%87%8D%E5%89%B5%E4%BC%81%E6%A5%AD)
 
-面對CCP-VIRUS疫情，川普總統建議了羥氯奎、瑞德西韋、阿奇霉素等藥物來治療(最好在醫師指引下服要，不要亂服用)，而且親自推薦了「雅培快速測試盒」，5分鐘可知陽性結果。其實川普總統也是非常冒險，且有巨大壓力的，因為公開去代表和發佈，有著巨大的法律風險。但是，為了民眾，為了盡快控制疫情，總統在做，企業在做，民眾在配合。由此可見美國的速度之快，這就是大國的表現。
+## **冠狀病毒正成為中國的一場公關災難**
+[!\[\](https://spark.adobe.com/page/3PFiU807WWWip/images/20b635cc-7003-4fa8-a562-2ab2ea1ac76b.jpg?asset_id=4a29882a-4019-4182-b7aa-c337939206dd&amp;img_etag=821d5faa318c5e40ca6dbc4b90c8a2ef&amp;size=1024)](https://spark.adobe.com/page/3PFiU807WWWip/images/20b635cc-7003-4fa8-a562-2ab2ea1ac76b.jpg?asset_id=4a29882a-4019-4182-b7aa-c337939206dd&amp;img_etag=821d5faa318c5e40ca6dbc4b90c8a2ef&amp;size=1024) 中共早前就預測新SARS冠狀病毒的蔓延 
+冠狀病毒大流行開始顯示西方與中共關係的破裂只是時間問題。 如今,市場已初步顯示出”脫鉤”的可能性在增加。
 
-參考資料：[新聞鏈結1](https://www.commonhealth.com.tw/article/article.action?nid=81279)、[新聞鏈結2](https://news.now.com/home/finance/player?newsId=386264)
+今天,英國廣播公司(BBC)的兩篇報導提供了證據,其中鮑里斯·詹森(Boris Johnson)領導的英國政府(現在他已經感染了covid19)表示,如果中國不分享他們是如何阻止病毒傳播的,將承擔後果。 其中一種懲罰是，在他們的5G專案中剔除華為。
 
-反觀，中共卻優先為當權者提供更安全、更有保障的防衛措施。醫療前線防護設備短缺，官員們卻戴的N95醫用口罩。所謂親自視察醫院，原來是在一個不相關的地方擺拍。出的一本大國戰「疫」？？可以說「疑惑的尼克，問號、問號」
-[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/01f81509-cbf2-4e9b-a3b9-99a7bce146b2.jpg?asset_id=76bce2f6-fa04-4766-93cf-47fdcf8560db&amp;img_etag=b20def68ab30ff7eb68bda435e3e38bd&amp;size=2560)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/01f81509-cbf2-4e9b-a3b9-99a7bce146b2.jpg?asset_id=76bce2f6-fa04-4766-93cf-47fdcf8560db&amp;img_etag=b20def68ab30ff7eb68bda435e3e38bd&amp;size=1024)
-**州長如何應對疫情**
+上週末,英國《每日郵報》報導稱,詹森的研究小組懷疑中國的SARS-CoV-2感染人數,稱他們可能有40倍的偏差。 中國的SARS-CoV-2感染總數約為8.1萬。
 
-美國各州州長是民選的，州長於總統不是上下關係，更可以說是競爭關係。看到美國總統在為人民服務時，州長更不會被比下去。而是你做的好，我要比你做的更好。這樣的良性競爭，受益者就是人民。
+這種疾病在整個歐洲的廣泛傳播,正讓那些幾個月前還對北京方面感覺良好的領導人，對中國敬而遠之,並認為美國與中國的貿易戰只是川普在自行其是。 三年前,達沃斯·曼(Davos Man)邀請習近平參加世界經濟論壇,宣佈他是自由貿易世界的新領導人。
 
-看看紐約州洲長是如何應對：
+今天的另一個信號來自新聞報導,西班牙、土耳其和荷蘭對他們的中國合作夥伴感到憤怒,原因是他們稱，用於抗擊covid19疫情的醫療設備有問題。
 
-1. – 紐約州州長科莫（Andrew Cuomo）再次呼籲民眾留在家中。他又說，疫情最初在中國出現時，抗疫工作已經落後，要戰勝疫情須加倍努力，估計距離疫情頂峰仍有一至三星期。
-2. – 除了醫療物資短缺外，醫護人手不足也是問題，但在他呼籲下，各州已有7萬8千名退休醫護人員表示可以重返工作崗位，支援紐約。
+COVID-19是由新型SARS冠狀病毒引起的疾病,其於12月下旬首次在中國湖北省境內曝出。
+[!\[\](https://spark.adobe.com/page/3PFiU807WWWip/images/efaa69db-155a-4af8-8a8f-a219fde0f097.jpg?asset_id=b2c3b7d5-887c-4724-9a8c-d9a611f97764&amp;img_etag=e5bc5f29e38afee1700101d1e1ac79a2&amp;size=1024)](https://spark.adobe.com/page/3PFiU807WWWip/images/efaa69db-155a-4af8-8a8f-a219fde0f097.jpg?asset_id=b2c3b7d5-887c-4724-9a8c-d9a611f97764&amp;img_etag=e5bc5f29e38afee1700101d1e1ac79a2&amp;size=1024) 英國首相感染了中共病毒后非常憤怒 
+荷蘭衛生部宣佈召回60萬個中國製造的口罩。 這些器材是前線醫療隊使用的。 據英國廣播公司(BBC)週一報導,荷蘭官員表示,口罩戴得不合適,過濾器也沒有按照預期起到作用。
 
+聲明說,其餘的貨物立即被擱置,至今沒有分發。 現在已經決定不再使用這批貨物。
 
-參考資料：[文章資料1](https://inews.hket.com/article/2606767)、[文章資料2](https://coronavirus.health.ny.gov/home)
+周日,美國參議員湯姆·科頓(Tom Cotton)在推特上發佈了《南華早報》的故事,內容講述了中共國電影院在重新開放一周后如何關閉。
 
-回看中共治下的中國，各地方不是瞞報，就是動用自己在當地的權力，為了個人私利，搶奪口罩等防疫物資。
+科頓指出,「中共國在全國電影院重新開放後就關閉了它們。 對你來說,這聽起來像他們控制住了流行病嗎?我也不相信他們說的。 中共仍在撒謊。 」
 
-美國的臨時醫院（方艙醫院）
+科頓一直在抨擊中共,但他發表這番言論之際,義大利和美國感染病患總數遠遠已超過中國。 西班牙在這個週末後,現在已有超過85000個病例。 義大利有11591人死亡,幾乎是中國的四倍。
 
-紐約已經完成了紐約臨時醫院，首批的1000個床位已完成，將在3月30日開放使用。美國海軍，備有1000張床位的醫療艦舒適號(USNS Comfort)，也已抵達紐約。最重要的是這個臨時醫院不是為了收治CCP-VIRUS(中共肺炎) 確診病患而用，而是轉移部份其他病患，到臨時醫院和海軍醫療艦舒適號，分擔該城市因為疫情升溫，而超負荷的醫療緊張狀況，增加醫療資源，避免CCP-VIRUS(中共肺炎) 病患交叉感染，而導致病毒變異。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01232435/image-1.png)[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/66bc5e0b-f949-4d11-93bf-221267f4797d.png?asset_id=c0722c2d-ac4a-41e0-80cb-66d7168e81d1&amp;img_etag=fd0b0be465a3eefd6ab7a05a794189ca&amp;size=1024)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/66bc5e0b-f949-4d11-93bf-221267f4797d.png?asset_id=c0722c2d-ac4a-41e0-80cb-66d7168e81d1&amp;img_etag=fd0b0be465a3eefd6ab7a05a794189ca&amp;size=1024)[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/C517BBFE-8022-4179-AB9A-E434C5DD8865.jpg?asset_id=D13CC87F-AC57-4763-9522-6D6B1B3551CA&amp;size=2601)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/C517BBFE-8022-4179-AB9A-E434C5DD8865.jpg?asset_id=D13CC87F-AC57-4763-9522-6D6B1B3551CA&amp;size=705)
-參考資料：[新聞來源鏈結](http://www.ntdtv.com.tw/b5/20200328/video/267291.html)
+西方世界看起來像是《活寶三人組》裡的三個笨蛋。
 
-再看中共所謂的方艙醫院，用來收治中共肺炎確診、疑似患者，有的，沒的、放在一起，最終結果可想而知。這哪裡是醫院，分明是集中營，是讓牆內老百姓去送死！可怕的中共政權，他們眼裡沒有百姓，沒有常識、沒有能力，有的只是不尊重生命，造假，期滿民眾，期滿世界！
-[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/a262d5c1-e253-4f39-803e-afadafa5fa5b.jpg?asset_id=9f88ddd5-2a56-44a3-b369-df9b6d2f3d0c&amp;img_etag=a9cfde7fc809e4d973513df0ec1e2f30&amp;size=1024)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/a262d5c1-e253-4f39-803e-afadafa5fa5b.jpg?asset_id=9f88ddd5-2a56-44a3-b369-df9b6d2f3d0c&amp;img_etag=a9cfde7fc809e4d973513df0ec1e2f30&amp;size=1024)
-**人民的素養**
+人們正在撓頭,試圖梳理一個時間表，來預知疫情何時結束,但已無法完全信任中國。 畢竟,他們疑惑,疫情爆發的中心是如何設法僅有81,000個病例而不再新增的,此時義大利卻疫情依然在迅猛發展,而美國的一些州才剛剛開始爆發。
 
-由於美國擁有自由、法治、信仰。人民有非常高的素質，很難有瘋搶的行為。這也是因為政府的行動能令人民安心，也是人民在一個文明社會的表現。街上井井有條，人民無私的分享與貢獻。企業、精英們動用他們的力量，讓酒店轉變成醫護們的隔離區，讓醫護們得到最好的待遇和休息。因為醫護人員全力治療受疫情影響的病患，不能回家去感染家人。這就是民間的力量，是人民的力量、智慧和他們知識的凝聚。這就是文明社會人們的境界！
-[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/dd95fb82-b4ef-4b86-9501-b96ac4efde41.jpg?asset_id=5b547da2-651f-4810-8759-e762fba50d21&amp;img_etag=93327278eaeba1174bd3a601cd4c08d8&amp;size=2560)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/dd95fb82-b4ef-4b86-9501-b96ac4efde41.jpg?asset_id=5b547da2-651f-4810-8759-e762fba50d21&amp;img_etag=93327278eaeba1174bd3a601cd4c08d8&amp;size=1024)
-看着人民無私、勇敢、智慧的、有素質的表現，讓我想起香港，正在抗爭著惡政、惡權的邪魔港共政府的香港人。孩子們勇敢和智慧的反抗。素不相識的人為他們提供免費的食宿。當他們被困，香港人一齊上，開着自己的車去接載他們，讓他們不被黑警濫捕、暴力的對待。當前方的抗爭者需要時，為他們開路，支援他們。黃店為他們提供價廉物美的食物，甚至免費。想想7月1日他們在立法大樓，無人監督下，也要把錢放在飲料櫃上。在反送中運動中，也沒有過打、砸、搶的現象出現。看着無私的孩子們，他們追求的是一個正常的政府，要的是像美國一樣的國家。看着他們揮着美國的國旗，他們要的僅僅是美國的關注！希望美國完全醒來，敵人中共正在你家門口放火呢！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01232539/image-2.png)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01232615/image-3.png)[!\[\](https://spark.adobe.com/page/lXt2uENSdIIY6/images/5474d648-2df6-4551-9eab-197d228aedf6.jpg?asset_id=65cb3d47-5e80-4d09-bd3b-1658276c2367&amp;img_etag=4712ee3a5440d4b55c72ddc056ef49cc&amp;size=2560)](https://spark.adobe.com/page/lXt2uENSdIIY6/images/5474d648-2df6-4551-9eab-197d228aedf6.jpg?asset_id=65cb3d47-5e80-4d09-bd3b-1658276c2367&amp;img_etag=4712ee3a5440d4b55c72ddc056ef49cc&amp;size=1024)
-最後，我們都知道，一個國家是由人民來組成的，沒有國民就沒有國家。美國，是前輩們用他們的鮮血而建立起來，就像香港抗爭者們一樣，正在做美國前輩們在做的事。若這個國家不是為民眾服務，不是改善和提升民眾的合理需求。所謂良禽擇木而棲，賢臣擇主而事。一個國家，有良好的生活社區，是公平競爭的社會，有良好教育環境、法律的體系、自由的空氣，人才自然而然會聚集而來。人們在這裡得到更多尊重，更有歸屬感，就會自覺為這個國家做貢獻。若這個國家政府，像邪魔中共一樣，人民就有權利推翻它！就像6-4的中國人、現在的香港人、台灣人以及默默的爆料革命的戰友們一樣，反抗、推翻他們！
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01232748/image-4.png)
-文章內容僅代表作者個人觀點
+可以肯定的是,中共國會先從冠狀病毒疫情中恢復過來,然後才能從它的西方大投資人那拾回顏面。 這場瘟疫在美國和歐洲肆虐的越久,這對中共國政府來說就越會變成一場公關災難。
 
-嗚謝圖片來源unsplash 、pixabay、蘋果新聞圖片、立場新聞圖片、看中國圖片、港古圖片。
+他們的經濟處於封閉和自由落體狀態。
 
-**編輯 【喜馬拉雅戰鷹團】**
+那個曾經在2020年歐洲經濟復甦的故事,現在變成了一個經濟萎縮的故事,尤其是在義大利。
+
+根據巴克萊資本(Barclays Capital)的經濟預測,美國經濟年底也將出現赤字。 每一周,對經濟的預測都變得越來越糟。
+
+具有諷刺意味的是,歐洲和美國的資本主義民主，一直在生命線上掙扎,這種形式要求政府投入大量資金，以使人們有收入,而他們實際上是在家觀看Netflix。 在義大利,他們甚至不能出去在米蘭慢跑。 在巴西,里約熱內盧的海灘被關閉。 在美國,象徵美國生活的迪士尼世界已關閉。 中央公園是美國最重要的城市的心臟地帶,現已改建陸軍流動外科醫院。
+
+隨著人們對此的關注,北京當局對冠狀病毒的反應，越來越遭到質疑,甚至是政府間的憤怒。 他們認為中國毫髮無損,而事實上，中國今天仍然在很大程度上忍受著疫情的侵襲。
+
+有缺陷的檢測工具和醫療設備的報告加劇了現有的擔憂。 中共國的時代精神有點令人沮喪。
+
+在《商業內幕》昨天的一篇報導中,記者亞當·佩恩(Adam Payne)匿名引用了一位英國官員的話說,當這一切結束時,必須要有一個清算。 怒火直衝雲霄。
+
+可以肯定的是,習近平主席要面對很多問題,這是新澤西州一家宏觀投資研究公司，布雷頓森林研究公司的負責人，弗拉基米爾·西諾雷利說的。 他說:「修復中共國的全球信任可能是有代價的。 」 他說:「我們預計中國人，將更願意在與美國進行的貿易談判中讓步,因為這完全取決於數量和市場份額。 他們不想再在供應鏈中失去市場份額,而因為這次災難他們將別無選擇。 」
+
+在中國經營的美國跨國公司可能會對中國市場有更長遠的看法,尤其是如果中國是他們的內銷市場,或者是他們進軍東南亞的跳板。
+
+但以劉溫迪(Wendy Liu)為首的瑞銀(UBS)駐香港策略師，在一份日期為3月27日的客戶報告中寫道,如果covid-19嚴重損害了本土市場,那麼外國公司進入中國市場的雄心就會降低。
+[!\[\](https://spark.adobe.com/page/3PFiU807WWWip/images/ff279758-0eda-43b8-9881-78ec4b3079e6.jpg?asset_id=b0a706fd-746b-450d-9503-ecc2400ff13b&amp;img_etag=eff5faa7c1387a391ad6e1f082c8b146&amp;size=1024)](https://spark.adobe.com/page/3PFiU807WWWip/images/ff279758-0eda-43b8-9881-78ec4b3079e6.jpg?asset_id=b0a706fd-746b-450d-9503-ecc2400ff13b&amp;img_etag=eff5faa7c1387a391ad6e1f082c8b146&amp;size=1024) 3月3日，在中央公園成立了一所緊急野戰醫院，以應對中共病毒大流行。 
+如果中國子公司沒有盈利,而且仍然難以扭轉局面,那麼就可以做出出售或退出的決定。 她說:「美國在中國的中小企業供應商，在恢復工作方面比大公司晚了大約兩周,我們認為它們比大公司更有可能離開中國。 」
+
+像星巴克和特斯拉這樣的大公司，很可能會像承諾的那樣增加在中國的投資,但這與當地市場有關。 這不是一個離岸外包的故事。
+
+同時,就中國的冠狀病毒數量而言,其他曾在2003年患有SARS經驗的亞洲國家迅速限制出行,要求在公共場所戴口罩,並採取保持社交距離措施和其他措施來阻止擴散。 香港,新加坡,台灣，他們一直是控制此事的專家。
+
+如果美國不能信任中國的引導,那麼他們就不需要尋找一個值得效仿的組織。
+
+就這部分而言,湖北被封鎖起來,人們被要求留在家中。 超市關閉。 政府指定一些人，為滯留在家中的數千萬人進行購物和送貨。
+
+Unlike South Korea, China did not test vast amounts of people so those who may have died and not tested for COVID-19 were unlikely to be counted in the official tally.
+
+與韓國不同的是,中國沒有對大量的人進行檢測,因此那些可能已經死亡且沒有進行COVID-19檢測的人，不太可能被計入官方統計。
+
+“The hardest thing for me was that people died in Wuhan because we didn’t have the ICU beds… especially in the early stages of the outbreak,” says Doctor Peng Zhiyong, Dir of Critical Care at Wuhan’s Zhonghan Hospital in Hubei.
+
+「對我來說,最艱難的事情是,在武漢,因為我們沒有重症監護室的床位,很多人都死了…… 尤其是在疫情爆發的初期。」湖北武漢中南醫院重症監護室主任彭志勇醫生說。
+
+He said that of the patients that needed ICU during the one month period of February 8 to March 7, 25% to 30% of them died. “Asymptomatic patients were probably main source of transmission,” he says, despite some in China saying there is still no evidence of asymptomatic transmission to this day.
+
+他說,2月8日至3月7日一個月期間需要重症監護的患者中,他們中有25%至30%死亡。 他說「無癥狀患者可能是主要的傳播源,」儘管中國一些人說至今仍沒有無癥狀傳播的證據。
+
+Information on how to contain, treat and kill COVID-19 are all over the place.
+
+關於如何控制、處理和殺死COVID-19的資訊四處流傳。
+[!\[\](https://spark.adobe.com/page/3PFiU807WWWip/images/2cd8bda4-dc4d-4f44-a235-dc7203cd5d3c.jpg?asset_id=e96a6167-b73c-4d59-aac6-94bb703176aa&amp;img_etag=0949a08000c3d07b98c84fcb65e4b6bd&amp;size=1024)](https://spark.adobe.com/page/3PFiU807WWWip/images/2cd8bda4-dc4d-4f44-a235-dc7203cd5d3c.jpg?asset_id=e96a6167-b73c-4d59-aac6-94bb703176aa&amp;img_etag=0949a08000c3d07b98c84fcb65e4b6bd&amp;size=1024) 作為美國零售的象徵，梅西百貨因為冠狀病毒而裁員超過10萬人。…[+]美聯社 
+美國政府曾經草率地考慮過封鎖紐約、新澤西和康州這三個州,變成美國的”湖北省”,但是後來退縮了。
+
+這種緩解可能正導致疾病蔓延至新奧爾良和底特律,因為紐約人正在尋求離開曼哈頓。
+
+特朗普總統本週末將建議的隔離措施延長至4月底。
+
+相比之下,湖北在疫情中被封鎖了兩個月。
+
+一些基金經理沒有意識到這一點。
+
+曼哈頓50億美元資產管理公司 Levin Easterly Partners 的聯席基金經理亨德爾 (Sam Hendel) 說,「是的,我認為我們甚至可以持續一個月以上。」 他現在在康涅狄格州韋斯特波特的家中工作。 這將需要更長的時間,因為這個國家的一些地區才剛剛開始。 春假又回來了,他們生病了,他們的家人也要生病了,這讓我很擔心,他警告說:「預測底部並利用中國來把握時機是愚蠢的。」
+
+[英文原文鏈接](https://www.forbes.com/sites/kenrapoza/2020/03/30/the-coronavirus-is-becoming-a-public-relations-disaster-for-china/#16c8eebd43f2)
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
