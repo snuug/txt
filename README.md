@@ -11,9 +11,19 @@
 
 
 
+**milesguo** 必须掐灭Inty混淆概念的邪恶之火<br>https://gnews.org/zh-hans/159444/
+
+[https://www.guo.media/posts/276857](https://www.guo.media/posts/276857) `2020-04-02T06:40:14`
+##
+
 **milesguo** 继哈佛大学校长夫妇后Google高层沦陷 76岁网路之父塞夫确诊<br>https://gnews.org/zh-hans/159394/
 
 [https://www.guo.media/posts/276854](https://www.guo.media/posts/276854) `2020-04-02T06:25:13`
+##
+
+**milesguo** 八角棒槌：伪类被二次利用，最受害的是不明真相的人<br>https://gnews.org/zh-hans/159375/
+
+[https://www.guo.media/posts/276853](https://www.guo.media/posts/276853) `2020-04-02T06:40:17`
 ##
 
 **milesguo** 2020年4月1日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/159320/
