@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 不可思议的新型试剂<br>https://gnews.org/zh-hans/159737/
+
+[https://www.guo.media/posts/276869](https://www.guo.media/posts/276869) `2020-04-02T08:25:12`
+##
+
+**milesguo** 川普: 我们的状态将会非常好<br>https://gnews.org/zh-hans/159651/
+
+[https://www.guo.media/posts/276867](https://www.guo.media/posts/276867) `2020-04-02T08:25:13`
+##
+
+**milesguo** 川普总统：接下来的两周会非常艰难<br>https://gnews.org/zh-hans/159627/
+
+[https://www.guo.media/posts/276865](https://www.guo.media/posts/276865) `2020-04-02T08:25:15`
+##
+
+**milesguo** War Room92：中共可以数据造假但是无法欺骗失去亲人的民众<br>https://gnews.org/zh-hans/159595/
+
+[https://www.guo.media/posts/276863](https://www.guo.media/posts/276863) `2020-04-02T08:25:17`
+##
+
+**milesguo** 中共病毒疫情下，美国社会诠释了“以人为本”的行动力！<br>https://gnews.org/zh-hans/159472/
+
+[https://www.guo.media/posts/276861](https://www.guo.media/posts/276861) `2020-04-02T08:25:18`
+##
+
 **milesguo** 经过这次疫情，中共国制造被彻底搞臭<br>https://gnews.org/zh-hans/159492/
 
 [https://www.guo.media/posts/276858](https://www.guo.media/posts/276858) `2020-04-02T07:55:13`
