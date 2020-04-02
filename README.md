@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/276896](https://www.guo.media/posts/276896) `2020-04-02T18:10:16`
 ##
 
+**milesguo** 《中共肺炎》求助全球被已读不回！ 帛琉大使：只有台湾愿意帮忙<br>https://gnews.org/zh-hans/159940/
+
+[https://www.guo.media/posts/276895](https://www.guo.media/posts/276895) `2020-04-02T18:25:12`
+##
+
 **milesguo** 台湾捐美口罩AIT：台湾是真正的朋友!<br>https://gnews.org/zh-hans/159929/
 
 [https://www.guo.media/posts/276894](https://www.guo.media/posts/276894) `2020-04-02T18:10:18`
