@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 经过这次疫情，中共国制造被彻底搞臭<br>https://gnews.org/zh-hans/159492/
+
+[https://www.guo.media/posts/276858](https://www.guo.media/posts/276858) `2020-04-02T07:55:13`
+##
+
 **milesguo** 必须掐灭Inty混淆概念的邪恶之火<br>https://gnews.org/zh-hans/159444/
 
 [https://www.guo.media/posts/276857](https://www.guo.media/posts/276857) `2020-04-02T06:40:14`
