@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/276857](https://www.guo.media/posts/276857) `2020-04-02T06:40:14`
 ##
 
+**milesguo** 第六次科技革命生物科技CCP你这破车能赶上吗<br>https://gnews.org/zh-hans/159402/
+
+[https://www.guo.media/posts/276855](https://www.guo.media/posts/276855) `2020-04-02T07:10:26`
+##
+
 **milesguo** 继哈佛大学校长夫妇后Google高层沦陷 76岁网路之父塞夫确诊<br>https://gnews.org/zh-hans/159394/
 
 [https://www.guo.media/posts/276854](https://www.guo.media/posts/276854) `2020-04-02T06:25:13`
