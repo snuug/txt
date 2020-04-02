@@ -1,9 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 勇敢發聲！滅共，滅毒！ “共渡難關，中共病毒疫情每日熱線”
-`2020-04-01 08:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/159061/)
+## 12岁比利時女孩成為歐洲最年輕的中共冠狀病毒受害者
+`2020-04-01 08:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/159054/)
 
-**歡迎加入Discord戰友之家： [http://vog.media/](http://vog.media/)**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01081144/Screen-Shot-2020-04-01-at-10.11.22-pm.png)圖片來源：exchange-nl.com
+據《大紀元時報》3月31日報導，布魯塞爾衛生部發言人於周二公布，一名12歲比利時女孩死於中共冠状病毒，是歐洲最年輕的受害者。
+
+病毒學家埃曼紐埃爾·安德烈（Emmanuel Andre）在比利時官方的每日新聞發布會上說：“這很罕見，但中共冠狀病毒正在無聲的殺死我們。
+
+歐盟機構歐洲疾病預防控制中心（ECDC）也記錄有西班牙10-19歲年齡段的死亡病例，但未提供詳細信息。
+
+比利時官員表示，雖然由中共冠狀病毒引起的呼吸道疾病對老年人的影響更大，但發燒三天后這名12歲女孩的病情惡化了。官員們沒有提供任何有關該女孩健康狀況的細節。
+
+截至週二，比利時的死亡人數增加了98人，總數達到705人。病毒確診人數新增876例，使總確診人數達到12,775例。其中大約4,920人住院治療。這也意味著中共冠狀病毒佔用了比利時大約一半的醫療服務系統。
+
+比利時預計該病毒的傳播將在未來幾天和幾週內達到頂峰。
+
+[原文鏈接](https://www.theepochtimes.com/belgian-girl-becomes-europes-youngest-covid-19-victim-media_3292288.html)
+
+翻譯報導：明澈
 
 0
