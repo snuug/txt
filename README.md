@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/276830](https://www.guo.media/posts/276830) `2020-04-02T02:55:15`
 ##
 
+**milesguo** 你怎么看待中国假疫苗事件？答：习惯就好！<br>https://gnews.org/zh-hans/159539/
+
+[https://www.guo.media/posts/276829](https://www.guo.media/posts/276829) `2020-04-02T04:10:24`
+##
+
 **milesguo** 粮食危机和失业潮，中共是罪魁祸首<br>https://gnews.org/zh-hans/158627/
 
 [https://www.guo.media/posts/276828](https://www.guo.media/posts/276828) `2020-04-02T03:55:17`
@@ -34,6 +39,11 @@
 **milesguo** 经过这次疫情，中共国制造被彻底搞臭<br>https://gnews.org/zh-hans/159492/
 
 [https://www.guo.media/posts/276825](https://www.guo.media/posts/276825) `2020-04-02T03:55:18`
+##
+
+**milesguo** 共产党已经准备好 下次爆发的背锅侠：无症状感染者！<br>https://gnews.org/zh-hans/158502/
+
+[https://www.guo.media/posts/276824](https://www.guo.media/posts/276824) `2020-04-02T04:10:26`
 ##
 
 **milesguo** 必须掐灭Inty混淆概念的邪恶之火<br>https://gnews.org/zh-hans/159444/
@@ -49,6 +59,11 @@
 **milesguo** GTV！改变中国的第一媒体力量！<br>https://gnews.org/zh-hans/159442/
 
 [https://www.guo.media/posts/276821](https://www.guo.media/posts/276821) `2020-04-02T03:55:21`
+##
+
+**milesguo** 湖北江西两政府带头互殴！说好的弃鄂保京海呢？<br>https://gnews.org/zh-hans/158473/
+
+[https://www.guo.media/posts/276820](https://www.guo.media/posts/276820) `2020-04-02T04:10:27`
 ##
 
 **milesguo** 4月1日：昨天3月31日，王艳萍和法治基金．法治社会的同事们．又是工作了十几个小时，向纽约的各个机构，送口罩．消毒用品．和手套，给战友们寄送口罩和消毒用品，纽约现在是ccp役情最危险的时候，可是他们却一整天的冒着生命危险……辛苦的的工作着．这是为华人争光．为爆料革命争光。人在做天在看．几个小毛贼．inty……鸡腿潘……等．竟然要发动举报没收我们的战友们……捐款给美国公益事业……给全世界的战友们救命公益物资！欲图毁灭……唯一在曼哈顿为中国人争取未来……安全这的机会……人心险恶到如此的境地，还有人为他们捐款点赞喊好……天理何在？人性．善良都去了哪里？<br>一切都已经开始！
