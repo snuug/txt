@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/276857](https://www.guo.media/posts/276857) `2020-04-02T06:40:14`
 ##
 
+**milesguo** GTV！改变中国的第一媒体力量！<br>https://gnews.org/zh-hans/159442/
+
+[https://www.guo.media/posts/276856](https://www.guo.media/posts/276856) `2020-04-02T07:25:27`
+##
+
 **milesguo** 第六次科技革命生物科技CCP你这破车能赶上吗<br>https://gnews.org/zh-hans/159402/
 
 [https://www.guo.media/posts/276855](https://www.guo.media/posts/276855) `2020-04-02T07:10:26`
