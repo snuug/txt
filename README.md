@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 中共党式救火 甩不了的锅 就让他感动中国！<br>https://gnews.org/zh-hans/160219/
+
+[https://www.guo.media/posts/276911](https://www.guo.media/posts/276911) `2020-04-02T18:55:11`
+##
+
+**milesguo** 川普：美国按原计划收取中国关税<br>https://gnews.org/zh-hans/160193/
+
+[https://www.guo.media/posts/276910](https://www.guo.media/posts/276910) `2020-04-02T18:55:12`
+##
+
+**milesguo** 瑞幸咖啡股价蒸发80% 成为第一个倒下的中国概念<br>https://gnews.org/zh-hans/160164/
+
+[https://www.guo.media/posts/276909](https://www.guo.media/posts/276909) `2020-04-02T18:55:13`
+##
+
 **milesguo** 30岁以下感染者占四成 东京“谨慎外出”<br>https://gnews.org/zh-hans/160103/
 
 [https://www.guo.media/posts/276908](https://www.guo.media/posts/276908) `2020-04-02T18:40:13`
