@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國在面臨抗擊CCP病毒醫療物資告急時，俄羅斯雪中送炭，同時期待回報
-`2020-04-02 05:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/159931/)
+## 《中共肺炎》求助全球被已讀不回！ 帛琉大使：只有台灣願意幫忙
+`2020-04-02 05:14 GM15` [轉載自GNews](https://gnews.org/zh-hant/159934/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02050622/46B7127A-10E0-4E59-891E-D96A90A03805.jpeg)
-據美國福克斯新聞報導，川普總統與俄羅斯總統普京在周一通了電話討論了中共冠狀病毒疫情危機之後，俄羅斯派遣大飛機運載醫療設備送往美國以幫助抗擊疫情。飛機於美東時間週三下午抵達紐約肯尼迪國際機場。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02051202/phpBwPCz5.jpg)
+> Palau has been asking the global community for help and NO one responded except Taiwan! Thank you so much. Friends indeed! When ALL the experts says, test, test, test! BUT no one to help…Thank you Taiwan. You know who your friends are! [pic.twitter.com/4sTyoCpph6](https://t.co/4sTyoCpph6)
+> — Ngedikes Olai Uludong (@nuludong) [April 1, 2020](https://twitter.com/nuludong/status/1245499762075467777?ref_src=twsrc%5Etfw)
 
-俄羅斯大使館週二在社交媒體頻道（Channel）上發表聲明說：“俄羅斯一架裝有醫療設備和防護裝備的飛機可能在周二飛往美國。” 路透社隨後報導說，俄羅斯國家電視台稱該航班已於週三清晨起飛。
+中共肺炎蔓延全球，許多國家的醫療物資短缺，台灣邦交國之一的帛琉受到台灣援助，帛琉駐聯合國常任代表鄔露彤大使（Ngedikes Olai Uludong）說，帛琉向全世界求助，卻沒有國家回應，只有台灣願意援助。
 
-川普總統在周一下午的中共冠狀病毒工作隊簡報會上簡要提及俄羅斯要提供某種醫療援助之後，沒有提供更多的背景信息。他說：“我不得不說，我們與許多國家都有著良好的關係。中國給我們送了一些很棒的東西。俄羅斯也要用很大的飛機給我們送來非常好的的東西，醫療設備，非常好。”
+鄔露彤今天在推特上表示，帛琉一直在向國際社會尋求援助，但除了台灣之外，沒有任何國家回應，當所有專家強調檢測、檢測、檢測，卻沒有國家願意義幫助。鄔露彤說，「非常感謝（台灣），患難見真情。謝謝台灣，你知道你的朋友是誰。」
 
-截至週三，中共冠狀病毒在美國造成的死亡人數超過4000，“超過”中共官方數字。
+總統蔡英文昨宣布，基於人道考量，台灣將捐贈一千萬片口罩支援疫情嚴重國家的醫療人員，後續會視產能給予國際社會更多支持。外交部說，首波捐贈內容為美國200萬片，歐洲700萬片，包括義大利、西班牙、德國、法國、比利時、荷蘭、盧森堡、捷克、波蘭、英國和瑞士，以及邦交國100萬片口罩、國產熱像體溫顯示儀和額溫槍等防疫物資。
 
-俄羅斯大使館的推特賬戶週二表示，在談及向美國提供援助以幫助遏制其因中共冠狀病毒死亡人數。白宮預計死亡人數可能在100,000到240,000之間。如果今年晚些時候中共冠狀病毒大流行在俄羅斯變得更加嚴重，俄羅斯希望能得到美國的幫助。他說：“重要的是，在向美國提供幫助時，普京總統基於以下考慮：當美國的醫療設備製造商獲得足夠生產能力後，當俄羅斯在需要時能給予回報。”
+蔡總統曾在上月10日表示，帛琉是少數沒有出現確診的國家，台灣是防疫合作的夥伴，有意願也有能力，跟國際社會合作，一起對抗疫情。
 
-評：人與人之間交往禮尚往來互相幫助，國與國之間亦然。俄羅斯總統考慮到自己的國家晚些時候可能會面臨CCP冠狀病毒疫情大爆發，到時候有實力伸出援手的是自己一直以來的對手美國。俄羅斯總統基於這樣的利益考量，在美國最困難的時刻給予幫助。以誠相待投李報桃互惠互利乃君子之道。中共的假、騙、黑連傳統“盟友”俄羅斯都看不下去。網上熱傳：相信共產黨，跑步進入火葬場。 CCP無論怎樣折騰，也快要完蛋了。
+引自[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3121110)
 
-[原文鏈接](https://www.foxnews.com/politics/russia-sending-plane-filled-with-medical-equipment-to-u-s-amid-coronavirus-pandemic) 
-翻譯報導：匿名
+GM15
 
 0
