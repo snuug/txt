@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 部分地区出现粮食抢购，做好准备，做好隔绝！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/159867/
+
+[https://www.guo.media/posts/276870](https://www.guo.media/posts/276870) `2020-04-02T10:10:28`
+##
+
 **milesguo** 不可思议的新型试剂<br>https://gnews.org/zh-hans/159737/
 
 [https://www.guo.media/posts/276869](https://www.guo.media/posts/276869) `2020-04-02T08:25:12`
