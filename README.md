@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 加议员呼吁对中共及港府 启用马格尼斯基法案<br>https://gnews.org/zh-hans/159207/
+
+[https://www.guo.media/posts/276851](https://www.guo.media/posts/276851) `2020-04-02T06:10:26`
+##
+
 **milesguo** 共产党 领导带头下馆子！不仅要钱还要命！<br>https://gnews.org/zh-hans/159176/
 
 [https://www.guo.media/posts/276838](https://www.guo.media/posts/276838) `2020-04-02T04:40:15`
