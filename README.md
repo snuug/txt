@@ -11,9 +11,19 @@
 
 
 
+**milesguo** 30岁以下感染者占四成 东京“谨慎外出”<br>https://gnews.org/zh-hans/160103/
+
+[https://www.guo.media/posts/276908](https://www.guo.media/posts/276908) `2020-04-02T18:40:13`
+##
+
 **milesguo** 【共产党病毒真相】4月2日视频合集<br>https://gnews.org/zh-hans/160064/
 
 [https://www.guo.media/posts/276906](https://www.guo.media/posts/276906) `2020-04-02T18:10:11`
+##
+
+**milesguo** 中共全球抢购医疗防护器材<br>https://gnews.org/zh-hans/160052/
+
+[https://www.guo.media/posts/276905](https://www.guo.media/posts/276905) `2020-04-02T18:40:14`
 ##
 
 **milesguo** 美国计划减少对中国药品的依赖<br>https://gnews.org/zh-hans/160049/
