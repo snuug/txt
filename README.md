@@ -11,14 +11,44 @@
 
 
 
+**milesguo** 2020年4月1日CCP冠状病毒大流行第68集<br>https://gnews.org/zh-hans/159614/
+
+[https://www.guo.media/posts/276833](https://www.guo.media/posts/276833) `2020-04-02T03:55:14`
+##
+
+**milesguo** 病毒是否会在秋季回归？<br>https://gnews.org/zh-hans/158707/
+
+[https://www.guo.media/posts/276831](https://www.guo.media/posts/276831) `2020-04-02T03:55:15`
+##
+
 **milesguo** 看看就知道，这样的国不造假几乎不可能<br>https://gnews.org/zh-hans/158644/
 
 [https://www.guo.media/posts/276830](https://www.guo.media/posts/276830) `2020-04-02T02:55:15`
 ##
 
+**milesguo** 粮食危机和失业潮，中共是罪魁祸首<br>https://gnews.org/zh-hans/158627/
+
+[https://www.guo.media/posts/276828](https://www.guo.media/posts/276828) `2020-04-02T03:55:17`
+##
+
+**milesguo** 经过这次疫情，中共国制造被彻底搞臭<br>https://gnews.org/zh-hans/159492/
+
+[https://www.guo.media/posts/276825](https://www.guo.media/posts/276825) `2020-04-02T03:55:18`
+##
+
 **milesguo** 必须掐灭Inty混淆概念的邪恶之火<br>https://gnews.org/zh-hans/159444/
 
 [https://www.guo.media/posts/276823](https://www.guo.media/posts/276823) `2020-04-02T02:55:18`
+##
+
+**milesguo** War Room88：揭示中共关于新冠病毒的更多疑点<br>https://gnews.org/zh-hans/158496/
+
+[https://www.guo.media/posts/276822](https://www.guo.media/posts/276822) `2020-04-02T03:55:20`
+##
+
+**milesguo** GTV！改变中国的第一媒体力量！<br>https://gnews.org/zh-hans/159442/
+
+[https://www.guo.media/posts/276821](https://www.guo.media/posts/276821) `2020-04-02T03:55:21`
 ##
 
 **milesguo** 4月1日：昨天3月31日，王艳萍和法治基金．法治社会的同事们．又是工作了十几个小时，向纽约的各个机构，送口罩．消毒用品．和手套，给战友们寄送口罩和消毒用品，纽约现在是ccp役情最危险的时候，可是他们却一整天的冒着生命危险……辛苦的的工作着．这是为华人争光．为爆料革命争光。人在做天在看．几个小毛贼．inty……鸡腿潘……等．竟然要发动举报没收我们的战友们……捐款给美国公益事业……给全世界的战友们救命公益物资！欲图毁灭……唯一在曼哈顿为中国人争取未来……安全这的机会……人心险恶到如此的境地，还有人为他们捐款点赞喊好……天理何在？人性．善良都去了哪里？<br>一切都已经开始！
