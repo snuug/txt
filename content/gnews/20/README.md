@@ -1,7 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV在內測中，很快就會推出！ GTV使用手冊先來過過癮！
-`2020-04-02 01:59 GM33` [轉載自GNews](https://gnews.org/zh-hant/159817/)
+## 川普總統的抗役行動
+`2020-04-02 02:56 GM31` [轉載自GNews](https://gnews.org/zh-hant/159833/)
+
+*翻譯：【Michelle】【不吃豆的豆豆】 視頻：【不吃豆的豆豆】*
 
 0
