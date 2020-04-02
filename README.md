@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 福克斯：世界卫生组织掩盖中共病毒的真相<br>https://gnews.org/zh-hans/159780/
+
+[https://www.guo.media/posts/276889](https://www.guo.media/posts/276889) `2020-04-02T16:40:14`
+##
+
 **milesguo** 部分地区出现粮食抢购，做好准备，做好隔绝！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/159867/
 
 [https://www.guo.media/posts/276870](https://www.guo.media/posts/276870) `2020-04-02T10:10:28`
