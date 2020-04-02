@@ -1,22 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台灣捐美口罩 AIT：台灣是真正的朋友!
-`2020-04-02 05:06 GM15` [轉載自GNews](https://gnews.org/zh-hant/159916/)
+## 《中共肺炎》求助全球被已讀不回！ 帛琉大使：只有台灣願意幫忙
+`2020-04-02 05:14 GM15` [轉載自GNews](https://gnews.org/zh-hant/159934/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02050349/960x640_318024782475.jpg)
-台灣將捐助美國200萬片口罩，美國在台協會（AIT）今天在臉書公布處長酈英傑拜訪中央流行疫情指揮中心照片，並以「台灣的的確確是真正的朋友」，表達感謝之意。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02051202/phpBwPCz5.jpg)
+> Palau has been asking the global community for help and NO one responded except Taiwan! Thank you so much. Friends indeed! When ALL the experts says, test, test, test! BUT no one to help…Thank you Taiwan. You know who your friends are! [pic.twitter.com/4sTyoCpph6](https://t.co/4sTyoCpph6)
+> — Ngedikes Olai Uludong (@nuludong) [April 1, 2020](https://twitter.com/nuludong/status/1245499762075467777?ref_src=twsrc%5Etfw)
 
-酈英傑（Brent Christensen）今天下午拜訪中央流行疫情指揮中心，並和指揮官、衛福部長陳時中合照。AIT指出，酈英傑親自感謝陳時中及指揮中心團隊過去幾個月的辛勤付出，並特別感謝總統蔡英文宣布台灣將慷慨捐助口罩，這些急需的口罩將捐給全美各地第一線的醫療人員。
+中共肺炎蔓延全球，許多國家的醫療物資短缺，台灣邦交國之一的帛琉受到台灣援助，帛琉駐聯合國常任代表鄔露彤大使（Ngedikes Olai Uludong）說，帛琉向全世界求助，卻沒有國家回應，只有台灣願意援助。
 
-「台灣的的確確是真正的朋友！台灣防疫團隊，加油。」貼文並標記「真朋友真進展」（#RealFriendsRealProgress） 、「台美作伙防疫」。
+鄔露彤今天在推特上表示，帛琉一直在向國際社會尋求援助，但除了台灣之外，沒有任何國家回應，當所有專家強調檢測、檢測、檢測，卻沒有國家願意義幫助。鄔露彤說，「非常感謝（台灣），患難見真情。謝謝台灣，你知道你的朋友是誰。」
 
-武漢肺炎（2019冠狀病毒疾病，COVID-19）全球疫情持續擴大，外交部今天表示，將進行第一波國際人道援助，援贈美國200萬片、部分疫情嚴重歐洲國家700萬片、以及友邦100萬片，總計1000萬片口罩，以支援相關國家的醫護防疫人員；未來經評估後，擬擴大援贈對象，包括新南向國家。
+總統蔡英文昨宣布，基於人道考量，台灣將捐贈一千萬片口罩支援疫情嚴重國家的醫療人員，後續會視產能給予國際社會更多支持。外交部說，首波捐贈內容為美國200萬片，歐洲700萬片，包括義大利、西班牙、德國、法國、比利時、荷蘭、盧森堡、捷克、波蘭、英國和瑞士，以及邦交國100萬片口罩、國產熱像體溫顯示儀和額溫槍等防疫物資。
 
-> AIT處長酈英傑短暫拜訪了台灣中央流行疫情指揮中心，並親自感謝衛福部陳部長以及指揮中心團隊在過去幾個月的辛勤付出。處長也特別想要感謝蔡英文總統宣布台灣將慷慨捐助口罩，這些急需的口罩將捐給全美各地第一線的醫療人員。台灣的的確確是真正的朋友！台…
-> [美國在台協會 AIT](https://www.facebook.com/AIT.Social.Media/)さんの投稿 [2020年4月1日水曜日](https://www.facebook.com/AIT.Social.Media/posts/10158036830633490)
+蔡總統曾在上月10日表示，帛琉是少數沒有出現確診的國家，台灣是防疫合作的夥伴，有意願也有能力，跟國際社會合作，一起對抗疫情。
 
-引自[中央社](https://www.cna.com.tw/news/aipl/202004010395.aspx)
+引自[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3121110)
 
 GM15
 
