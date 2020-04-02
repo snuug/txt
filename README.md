@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 继哈佛大学校长夫妇后Google高层沦陷 76岁网路之父塞夫确诊<br>https://gnews.org/zh-hans/159394/
+
+[https://www.guo.media/posts/276854](https://www.guo.media/posts/276854) `2020-04-02T06:25:13`
+##
+
+**milesguo** 2020年4月1日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/159320/
+
+[https://www.guo.media/posts/276852](https://www.guo.media/posts/276852) `2020-04-02T06:25:14`
+##
+
 **milesguo** 加议员呼吁对中共及港府 启用马格尼斯基法案<br>https://gnews.org/zh-hans/159207/
 
 [https://www.guo.media/posts/276851](https://www.guo.media/posts/276851) `2020-04-02T06:10:26`
