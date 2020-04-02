@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/276863](https://www.guo.media/posts/276863) `2020-04-02T08:25:17`
 ##
 
+**milesguo** 你怎么看待中国假疫苗事件？答：习惯就好！<br>https://gnews.org/zh-hans/159539/
+
+[https://www.guo.media/posts/276862](https://www.guo.media/posts/276862) `2020-04-02T10:40:16`
+##
+
 **milesguo** 中共病毒疫情下，美国社会诠释了“以人为本”的行动力！<br>https://gnews.org/zh-hans/159472/
 
 [https://www.guo.media/posts/276861](https://www.guo.media/posts/276861) `2020-04-02T08:25:18`
