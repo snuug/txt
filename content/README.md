@@ -12,6 +12,8 @@
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/content/2020/04/20200402-257449982049081995.md)
+
 [文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
 
 [文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
@@ -59,8 +61,6 @@
 [文字版:2020年2月21日文贵再次提醒同胞们2月29日是分水岭，呆家里莫出门！](/content/2020/02/20200221-2173657397153903143.md)
 
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
-
-[文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/2020/02/20200220-6957915304895832685.md)
 
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
