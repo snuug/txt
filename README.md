@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 「我能挺过二战就能挺过肺炎」 坚强求生意志! 美国95岁老兵染病后奇迹康复!<br>https://gnews.org/zh-hans/160008/
+
+[https://www.guo.media/posts/276899](https://www.guo.media/posts/276899) `2020-04-02T17:25:20`
+##
+
+**milesguo** 欧美各国收到来自台湾的「礼物」 欧盟主席首度公开感谢 欧洲各国驻台代表纷纷表示感谢之意!<br>https://gnews.org/zh-hans/159996/
+
+[https://www.guo.media/posts/276898](https://www.guo.media/posts/276898) `2020-04-02T17:25:21`
+##
+
+**milesguo** 川普总统的抗役行动<br>https://gnews.org/zh-hans/159827/
+
+[https://www.guo.media/posts/276893](https://www.guo.media/posts/276893) `2020-04-02T17:25:24`
+##
+
+**milesguo** 川普总统的抗役行动<br>https://gnews.org/zh-hans/159827/
+
+[https://www.guo.media/posts/276891](https://www.guo.media/posts/276891) `2020-04-02T17:25:25`
+##
+
+**milesguo** GTV在内测中，很快就会推出！GTV使用手册先来过过瘾！<br>https://gnews.org/zh-hans/159688/
+
+[https://www.guo.media/posts/276890](https://www.guo.media/posts/276890) `2020-04-02T17:25:26`
+##
+
 **milesguo** 福克斯：世界卫生组织掩盖中共病毒的真相<br>https://gnews.org/zh-hans/159780/
 
 [https://www.guo.media/posts/276889](https://www.guo.media/posts/276889) `2020-04-02T16:40:14`
