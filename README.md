@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/276833](https://www.guo.media/posts/276833) `2020-04-02T03:55:14`
 ##
 
+**milesguo** War Room92：中共可以数据造假但是无法欺骗失去亲人的民众<br>https://gnews.org/zh-hans/159595/
+
+[https://www.guo.media/posts/276832](https://www.guo.media/posts/276832) `2020-04-02T04:25:14`
+##
+
 **milesguo** 病毒是否会在秋季回归？<br>https://gnews.org/zh-hans/158707/
 
 [https://www.guo.media/posts/276831](https://www.guo.media/posts/276831) `2020-04-02T03:55:15`
