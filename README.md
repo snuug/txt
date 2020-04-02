@@ -16,9 +16,19 @@
 [https://www.guo.media/posts/276869](https://www.guo.media/posts/276869) `2020-04-02T08:25:12`
 ##
 
+**milesguo** 中共牌口罩！请三思后再决定是否接受或使用<br>https://gnews.org/zh-hans/159665/
+
+[https://www.guo.media/posts/276868](https://www.guo.media/posts/276868) `2020-04-02T08:55:13`
+##
+
 **milesguo** 川普: 我们的状态将会非常好<br>https://gnews.org/zh-hans/159651/
 
 [https://www.guo.media/posts/276867](https://www.guo.media/posts/276867) `2020-04-02T08:25:13`
+##
+
+**milesguo** 郭文贵先生：这次疫情让人看到美国的伟大之处<br>https://gnews.org/zh-hans/159630/
+
+[https://www.guo.media/posts/276866](https://www.guo.media/posts/276866) `2020-04-02T08:55:15`
 ##
 
 **milesguo** 川普总统：接下来的两周会非常艰难<br>https://gnews.org/zh-hans/159627/
