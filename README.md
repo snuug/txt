@@ -43,6 +43,11 @@
 
 **milesguo** War Room92：中共可以数据造假但是无法欺骗失去亲人的民众<br>https://gnews.org/zh-hans/159595/
 
+[https://www.guo.media/posts/276864](https://www.guo.media/posts/276864) `2020-04-02T10:55:24`
+##
+
+**milesguo** War Room92：中共可以数据造假但是无法欺骗失去亲人的民众<br>https://gnews.org/zh-hans/159595/
+
 [https://www.guo.media/posts/276863](https://www.guo.media/posts/276863) `2020-04-02T08:25:17`
 ##
 
