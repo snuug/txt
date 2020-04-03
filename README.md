@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 2020年4月2日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/160461/
+
+[https://www.guo.media/posts/276955](https://www.guo.media/posts/276955) `2020-04-03T05:10:11`
+##
+
+**milesguo** 清明时节禁“哭声”，中共末日正发疯！<br>https://gnews.org/zh-hans/159550/
+
+[https://www.guo.media/posts/276954](https://www.guo.media/posts/276954) `2020-04-03T05:10:13`
+##
+
+**milesguo** 美国的大国战役<br>https://gnews.org/zh-hans/160438/
+
+[https://www.guo.media/posts/276948](https://www.guo.media/posts/276948) `2020-04-03T05:10:14`
+##
+
 **milesguo** 外资“金融开放”——盗国贼与华尔街的分赃游戏<br>https://gnews.org/zh-hans/160412/
 
 [https://www.guo.media/posts/276947](https://www.guo.media/posts/276947) `2020-04-03T04:55:11`
