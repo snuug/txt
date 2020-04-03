@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 清明時節禁“哭聲”，中共末日正發瘋！
-`2020-04-02 21:57 GM30` [轉載自GNews](https://gnews.org/zh-hant/159590/)
+## 2020年4月2日世界多種語言CCP病毒疫情文字每日播報
+`2020-04-02 22:08 GM33` [轉載自GNews](https://gnews.org/zh-hant/160492/)
 
-**作者：玉米地大姐**
+請戰友們下載PGF 傳播
 
-清明將至， 武漢宣布：今年清明節禁止掃墓有人表示武漢市政官員答應給死者家屬補助，以換取他們的保持沉默。武漢居民陳耀輝說：“過去幾天裡舉行了很多葬禮，當局向那些在清明前安葬親人的家庭發放了3千元人民幣的禁哭費。”
+[英語0402\_English-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220403/0402_English-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220403/0402_English-CCP_Virus_Updates.pdf)
 
-這是為了阻止他們在傳統意義上表達悲傷；而在清明節過後，更不許任何人去哀悼。經歷2個多月的封鎖後，武漢宣布4月8日解封，不過當局表示今年清明節期間禁止祭祖，至少持續到4月30日。 （美聯社報導）
+[法語4.2-French-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220430/4.2-French-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220430/4.2-French-CCP_Virus_Updates.pdf)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01214740/1-12.jpg)
+[德語4.2\_German-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220453/4.2_German-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220453/4.2_German-CCP_Virus_Updates.pdf)
 
-上管天下管地，中間管空氣的中共，為了掩蓋病毒真相什麼都不顧了，禁止清明掃墓、發放禁哭費，源於他們深深的恐懼感。知道自己作惡多端，害怕哭聲引起更大的天怒人怨。
+[日語4.2\_Japanese-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220522/4.2_Japanese-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220522/4.2_Japanese-CCP_Virus_Updates.pdf)
 
-中共的這套手段，古已有之。侯寶林的相聲《改行》說的是遇到皇帝駕崩，禁止民間一切娛樂，逼得藝人們不得不改行，唱花臉的改行買西瓜，一句哇呀呀嚇走買瓜人。唱老旦的改行走街串巷的小販吆喝賣黃瓜，好不容易遇到一個想買黃瓜的老太太。這位放下擔子，摸摸酸痛的肩膀，一句唱腔道白“苦啊！”老太太誤解以為黃瓜是苦的不買了。
+[俄語4.2\_Russian-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220542/4.2_Russian-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220542/4.2_Russian-CCP_Virus_Updates.pdf)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01214842/2-7.jpg)
-
-還有民間流傳孟姜女哭倒長城八百里的故事，雖為虛構反映的卻是民間面對統治者的憤怒，用戲劇的形式表達反抗。如果說相聲《改行》展現的是皇權統治下藝人們的苦中作樂，那麼孟姜女哭倒的不是長城，而是動搖了統治者的根基。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01214936/3-5.jpg)
-
-孟姜女雕像
-
-生在中共國的老百姓真是悲哀，哭笑由不得自己都被盜國賊掌控，不許你哭的時候，掉一滴眼淚就是罪過。強迫你哭的時候，笑一聲會有牢獄之災。筆者聽過毛魔頭追悼會發生的一出鬧劇。
-
-某村組織全體村民舉行追悼會，正當書記說向偉大領袖毛主席一鞠躬之際，人群中有人放了一個響屁，大家憋不住笑出聲來。這事一下變成對偉大領袖不敬之罪，挨個盤問是誰放的屁。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01215023/4-2.jpg)
-
-查了一遍都說不是自己放的，書記火了，喝令查不出來誰都別回家吃飯。有村民堅持不住，說出是是站在他前面一個姓林的十歲小學生放的屁。小學生的父母嚇壞了，向書記解釋，孩子早晨吃了炒黃豆又喝了涼水，鞠躬撅屁股沒忍住，不是故意放的屁。
-
-書記先讓一家三口向偉大領袖畫像磕頭請罪，後打電話叫了叫來公安帶走了一家老小。經過三天審查，林家三代都是臉朝黃土背朝天的貧雇農，實在沒什麼可審查的。最後取消了這個小學生日後加入紅小兵的資格，搞得一家人在村里抬不起頭來。
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/01215101/5.jpg)
-
-從昨天的強迫讓你哭，到今天的不准哭，中共一脈相承的邪惡只有你想不到沒有它做不到。其目的要強行抹去民眾對疫情災難的記憶，用錢買無聲，最後得到的一定是憤怒的吶喊聲。不滅掉共產黨，我們的子孫後代，還會生活在沒有自我選擇的哭笑之間。
-
-杜牧《清明》新改： 
-清明時節雨紛紛，路上行人欲斷魂。 
-借問病毒何處有？中共禍害地球村。
-
-（文章內容僅代表作者觀點）
+[西班牙語4.2\_Spanish-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220601/4.2_Spanish-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220601/4.2_Spanish-CCP_Virus_Updates.pdf)
 
 0
