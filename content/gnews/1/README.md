@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒感染或常表現為嗅覺與味覺喪失
-`2020-04-03 07:16 GM09` [轉載自GNews](https://gnews.org/zh-hant/160841/)
+## 疫情下的溫情
+`2020-04-03 10:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/160932/)
 
-作者：多國語言組
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03095702/%E6%B8%A9%E6%83%851.jpg)
+**在這種世紀災難面前，每個人都面臨困難和壓力，仍能像平時一樣給與友愛並不容易；但是全世界的人民卻在災難面前團結起來，互相照顧。人們用金錢、食物等傳遞友情和溫暖。**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03095818/%E6%B8%A9%E6%83%852.jpg)
+**我爸的個人演唱會–我姥姥的小區被封鎖了；當我去給姥姥送東西的時候，發現我爸正在樓下開演唱會。姥姥和她的朋友都出來聽啦。**
 
-依據一項新的研究，中共病毒感染的症狀或常常表現為嗅覺與味覺喪失。 比利時的科學家對417名中共病毒感染輕症患者進行了研究，發現，86%的患者表現出嗅覺障礙，其中的大部分甚至什麼都聞不到；同研究中88%的患者表現出味覺缺損。
 
-此前並無耳鼻喉病史的患者竟表現出部分或全部的嗅覺與味覺喪失，這和中共病毒絕「不無瓜葛」，科研項目負責人Jérôme Lechien和Sven Saussez如是寫道。 作為預防措施，表現出此類症狀的病人均應被視為「中共病毒潛在感染者，並應被隔離至少七天」，包括那些即使沒有表現出其他典型症狀的。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03095935/%E6%B8%A9%E6%83%853.jpg)
+**免** **費** **食物** **–** **今天在** **Roanoke** **發現** **了人** **間** **的** **美好：** **由於知道有些人因** **為** **各種原因無法去超市，人** **們志願放了一些瓶裝水和食品在街邊。 （美國弗吉尼亞）**
 
-該研究另一個驚人發現是，女性遠比男性更易為此罹患嗅覺損失。 44%的患者在兩週後恢復了嗅覺。但是，研究者們表示，也不排除該恢復需要花上一年時間。
+評：耶穌說：“愛人如己”。在中共大外宣的媒體中，美國被描述成一個個體主義、資本主義社會，眼中只有自己、只有錢；但是真實的美國在疫情下的表現讓中共大跌眼鏡。人們自願的分享而不是囤積、護士自願地奔赴紐約而不是遵守政府命令。一個人民內心充滿陽光、充滿愛、有信仰的社會才有真正溫情和希望。
 
-原文來源 [https://www.gmx.net/magazine/news/coronavirus/coronavirus-news-live-ticker-zahl-arbeitslose-usa-6-millionen-34468484](https://www.gmx.net/magazine/news/coronavirus/coronavirus-news-live-ticker-zahl-arbeitslose-usa-6-millionen-34468484)
+[相關鏈接](https://www.theactivetimes.com/coronavirus-stories-of-kindness/slide-2)
+
+索馬里海草
 
 0
