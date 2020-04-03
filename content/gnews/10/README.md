@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 外資“金融開放”——盜國賊與華爾街的分贓遊戲
-`2020-04-02 21:44 GM06` [轉載自GNews](https://gnews.org/zh-hant/160434/)
+## 2020年4月2日世界多種語言CCP病毒疫情文字每日播報
+`2020-04-02 22:08 GM33` [轉載自GNews](https://gnews.org/zh-hant/160492/)
 
-作者：立武
+請戰友們下載PGF 傳播
 
-4月1日，中共取消保險服務、證券、基金管理、期貨服務等領域的外資股比限制，號稱“金融大開放”，聲稱WTO以來是過渡期，並非不想履行協議，與美國的貿易談判是促進金融市場的開放，然而中共真的在履行協議嗎？開放金融對中共和中國又有什麼影響呢？
+[英語0402\_English-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220403/0402_English-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220403/0402_English-CCP_Virus_Updates.pdf)
 
-首先，我們知道，在這以前，外資會以合資形式進入中國，但有一定股比限制，中共認為是保護自己的金融穩定，現在開放限制，即理論上允許100%的收購，也意味著中共的金融要和這些外資進行市場競爭。 **但事實上，中共即使開放股比限制，相對市場化，也不意味著外資有平等的市場環境進行競爭。**
+[法語4.2-French-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220430/4.2-French-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220430/4.2-French-CCP_Virus_Updates.pdf)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02214050/7.jpg)
+[德語4.2\_German-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220453/4.2_German-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220453/4.2_German-CCP_Virus_Updates.pdf)
 
-只要在中共統治的中國，就必須遵守中共制定的遊戲規則，就是中共既要當裁判也要當球員。核心問題是中國沒有法治，即使市場化，也沒有平等的市場競爭環境。中共開放證券業的股比限制，外資依然要遵守中共的證券法。 **在郭文貴先生完全按照中共制定的法律框架下，仍然被完全沒有法治地定上強迫交易罪的罪名併罰款** **600** **億美元。**
+[日語4.2\_Japanese-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220522/4.2_Japanese-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220522/4.2_Japanese-CCP_Virus_Updates.pdf)
 
-**另外，募集資金來投資中共控制的股市就是竹籃打水，一直以來，外資以陸股通或QFII通道來買A股，開放股比擴大資金池最多就是往中共的錢袋子裡多投點錢，並不會改變中共操縱股市，利用股市盜取財富洗錢的事實。**即使上市，也需要遵從中共的監管規定，IPO價格不是為了最大市場化，而是要接受特色社會主義的核准。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02214124/8.png)
-**市場化操作的情報收集和調研能力方面，中共的《密碼法》和《網絡安全法》都“合理”地要求開放信息的後門，這就好比和一個能看到你的底牌的莊家賭博。**像評級機構標普全球去年1月進入中國，可從來就沒有對中共的垃圾國債做出準確的信用評級，即使全資進入中共控制的中國，也很難做出對盜國賊資產不利的評價，甚至在財務造假、賬目造假成堆的環境下，也不可能對所有債券做出準確的評級，畢竟只是一個評級機構，而非司法機構。
+[俄語4.2\_Russian-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220542/4.2_Russian-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220542/4.2_Russian-CCP_Virus_Updates.pdf)
 
-**此外，此次開放股比限制，沒有涉及銀行業，只要超發貨幣、濫發票據和壞賬高企的銀行系統不開放，中共就依然壟斷存款，壟斷融資。決定利息在中共手裡，看似市場化的LPR其實一點都不市場化，因為銀行是中共壟斷的。**而且，隨著外資進入中國，中共的人民幣升值，中共又可以開閘放水，放水後繼續支撐樓市，繼續為中共即將崩塌的經濟續命。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02214205/9.png)
-**同樣沒有開放的是資本賬戶，中共的變相強制結匯，不允許自由兌換，即使外資進入中國，也不能隨時變現成真正的美元資產，賺到的錢要么在國內使用，要么繼續持有人民幣在國際市場上使用，最終就是實現中共想要的人民幣國際化，看似中共開發金融市場，實質上利用外資通道實現人民幣的國際化，這才是中共想要的。中共所謂的貿易合作夥伴，最終是希望靠低成本的製成品換取人民幣結算約定，最終壟斷大宗產品的定價權，因為中國市場大。**
-
-總之，遊戲規則的定義者是中共，在這場遊戲裡即使在自由也跳不出中共特色社會主義的圈圈，沒有根本的法治環境，沒有平等的遊戲規則，再多的資金流入最終都是盜國賊和華爾街的分贓罷了。
-
-（文章內容僅代表作者個人觀點）
+[西班牙語4.2\_Spanish-CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220601/4.2_Spanish-CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02220601/4.2_Spanish-CCP_Virus_Updates.pdf)
 
 0
