@@ -1,20 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Inty為何是“爆料革命最危險的敵人”？
-`2020-04-03 10:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/160962/)
+## 中共疫苗大躍進
+`2020-04-03 11:07 GM30` [轉載自GNews](https://gnews.org/zh-hant/160586/)
 
-**作者：白居易**
+**作者：玉米地大姐**
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03103008/image0-17.jpg)
+中共通過健康碼大發隔離費國難財，又開始把黑手伸向疫苗。 3月31日，中共各大門戶網站紛紛轉載一篇新聞《首位新冠疫苗試驗女生結束觀察，CT結果出了》
 
-[**Inty為何是“爆料革命最危險的敵人”？ （1）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102032/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%881%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102032/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%881%EF%BC%89.pdf)
+首批接種重組新型冠狀病毒疫苗（腺病毒載體）的志願者已滿14天醫學觀察期。 4月1日下午，這4位志願者中唯一的女性、試驗編號004的靳官萍告訴南都記者，目前她一切正常，已經結束觀察療養，回歸到日常工作與生活。
 
-[**Inty為何是“爆料革命最危險的敵人”？ （2）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102250/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%882%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102250/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%882%EF%BC%89.pdf)
+1月28日，川普總統宣布美國科學家將在12週內，也就是兩三個月的時間內研製出新冠疫苗。中共軍方科專家陳薇當時接受媒體採訪誇下海口，中國科研人員的速度不會亞於美國。
 
-[**Inty為何是“爆料革命最危險的敵人”？ （3）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102543/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%883%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102543/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%883%EF%BC%89.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02232331/1-16.jpg)
 
-**請點擊下載按鈕，下載文檔觀看！**
+官方媒體配合宣傳，聲稱重組新冠疫苗科研實力強大，此次重組新冠疫苗團隊可謂科研與臨床實力強大，2016年研製的埃博拉疫苗已取得多項世界首創，領先歐美。
+
+中共媒體一向好大喜功，能把芝麻粒大小的事情吹成西瓜一樣大。我們先看看被吹成神乎其神的埃博拉病毒是怎麼領先歐美的。
+
+據科學網2016年12月28日報導，“中國人民解放軍軍事醫學科學院28日宣布，由該院生物工程研究所陳薇研究員團隊研發的重組埃博拉疫苗（rAd5-EBOV），在非洲塞拉利昂開展的Ⅱ期500例臨床試驗取得成功。”
+
+“值得一提的是，康希諾公司參與研製的重組埃博拉病毒病疫苗、重組肺炎球菌蛋白疫苗及重組結核病疫苗皆為全球創新疫苗。”
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02232410/2-12.jpg)
+
+埃博拉病毒
+
+搞笑的是兩年時間過去了，WHO官網發布一條消息。首款可用在人體的疫苗Ervebo(rVSV-ZEBOV)由默沙東公司研發，先後於2019年11月13日獲得歐洲藥品管理局建議歐盟委員會批准有條件上市]，於2019年12月19日獲得美國食品藥品監督管理局批准上市。
+
+中共新華網.也做出相應報導：首款埃博拉疫苗在歐盟獲批上市（ 2019-11-13） 美藥管局批准一款埃博拉疫苗（2019-12-21）
+
+讀者朋友感覺到哪裡不對嗎？陳薇團隊不是首創埃博拉疫苗嗎，不是領先歐美嗎，首款埃博拉疫苗怎麼成了沙默克公司所研發？ WHO譚德塞不是黨的人嗎，怎麼提都不提陳薔團隊？
+
+時間見證了中共假大空的邪惡本質，當初去非洲搞臨床試驗，本意是先送人情再賺大錢，誰知吹出來的疫苗不給力，經過兩年左右的時間，沒有獲得WHO和歐美的認可，非洲窮國也不敢像中共那樣視人民如草芥，貿然使用中共提供的疫苗。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02232625/3-11.jpg)
+
+這次研製冠狀病毒疫苗，陳薇團隊信誓旦旦欲與美國爭高低。上次的埃博拉病毒因為在非洲，遠水解不了近渴，只能眼巴巴看著疫苗被國外公司搶走市場。這次他們勢在必得搶在美國前面開發出疫苗。
+
+這次的市場在國內，中共可隨時宣布新冠疫苗大量生產，就像利用健康碼一樣，強制民眾付費打疫苗。官媒已經報導陳薇團隊又與天津康希諾生物公司合作。該公司2019年3月18日，在港交所上市，是內地在港交所上市的第一隻疫苗股。錢袋口已經打開，就等著收錢了。
+
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02232701/4-6.jpg)
+
+在非洲圈錢未成，在國內以防止病毒的名義盤剝民眾，可謂螞蟻開膛刮層油。至於疫苗是否有效，這個不是盜國賊所考慮的問題，先前的兒童疫苗造假時事件，老百姓只是哼哼幾聲，很快就被維穩，屆時誰敢說疫苗無效就抓誰。
+
+筆者猜測，憑中共一貫的操行，會搶在美國前面宣布新冠狀病毒疫苗研發成功全民注射，到時候又可吹牛什麼大國速度，世界首創、領先歐美了，老百姓再次成為被割的韭菜。
 
 （文章內容僅代表作者觀點）
 
