@@ -12,6 +12,8 @@
 
 ## 頁面 3/25 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [25](/content/README-25.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/2020/01/20200122-2341307363254649322.md)
+
 [文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/2020/01/20200121-9098198645527028408.md)
 
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
@@ -59,8 +61,6 @@
 [文字版：2019年12月27日文贵报平安录播](/content/2019/12/20191231-7426238118380743813.md)
 
 [文字版：2019年12月26日文贵报平安谈:中共经济正在崩溃，习王之战正在展开](/content/2019/12/20191228-6979826398362851059.md)
-
-[文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/2019/12/20191228-7349804487258741094.md)
 
 
 ## 頁面 3/25 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [25](/content/README-25.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

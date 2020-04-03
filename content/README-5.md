@@ -12,6 +12,8 @@
 
 ## 頁面 5/25 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [25](/content/README-25.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
+
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
 
 [文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
@@ -59,8 +61,6 @@
 [文字版：2019年11月2日郭文贵先生在中央公园直播](/content/2019/11/20191104-8519209542622441736.md)
 
 [文字版：2019年11月2日文贵谈共产党即将倒台的三大因素](/content/2019/11/20191104-6514911663487933356.md)
-
-[文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
 
 
 ## 頁面 5/25 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [25](/content/README-25.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
