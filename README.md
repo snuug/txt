@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 飞鸟尽 良弓藏 狡兔死 走狗烹 ——火神山医院和雷神山医院建设工人的命运？<br>https://gnews.org/zh-hans/160284/
+
+[https://www.guo.media/posts/276928](https://www.guo.media/posts/276928) `2020-04-03T00:25:22`
+##
+
+**milesguo** 美情报部门报告：中共瞒报新冠感染和死亡人数<br>https://gnews.org/zh-hans/160259/
+
+[https://www.guo.media/posts/276927](https://www.guo.media/posts/276927) `2020-04-03T00:25:23`
+##
+
 **milesguo** 俄罗斯继续全民放假隔离 到4月30日<br>https://gnews.org/zh-hans/160258/
 
 [https://www.guo.media/posts/276925](https://www.guo.media/posts/276925) `2020-04-03T00:10:24`
