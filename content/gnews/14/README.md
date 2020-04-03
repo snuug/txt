@@ -1,24 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞幸咖啡股價蒸發80% 成為第一個倒下的中國概念
-`2020-04-02 11:50 GM09` [轉載自GNews](https://gnews.org/zh-hant/160172/)
+## [任何人再挑起曹長青先生的矛盾的人都是我們的敵人]
+`2020-04-02 15:38 GM17` [轉載自GNews](https://gnews.org/zh-hant/160247/)
 
-翻譯：功夫熊貓
-
-Luckin Coffee，假洋品牌，又一個中概股套路公司，銷售額造假，股價蒸發了80%。根據CNBC報導：
-
-- Luckin Coffee透露，一項內部調查發現其首席運營官捏造了2019年的銷售額。
-- 監管文件發布後，該股在盤前交易中下跌超過80％，（現已觸發超過5次熔斷）。
-- Muddy Waters Research（渾水研究）在1月份表示，鑑於它所說的欺詐行為和“根本性的業務中斷”，對該股押注做空。
-
-
-[Luckin Coffee](https://www.cnbc.com/quotes/?symbol=LK) 4月2日披露，一項內部調查發現，其首席運營官捏造了2019年銷售額約22億元人民幣(3.1億美元)。監管文件發布後，該股在盤前交易中下跌超過80％。
-
-調查發現，Luckin的首席運營官兼董事長劉劍和向他報告的幾名員工從事了不正當行為，包括捏造虛假的交易。劉劍涉嫌不當行為的員工已被停職，Luckin表示將對肇事者採取法律行動。
-
-編者按：瑞幸賊喊捉賊，在中國，騙子好使，在美國，中國的騙子以前好使，現在開始不好使了，下一個倒下的中共公司會是哪家？
-
-新聞來源： https://twitter.com/rottenbanana101/status/1245715732484231175
- 
+4月2日：看到了很多戰友．在曹長青先生髮了一個推文之後，對她的不滿，甚至是攻擊，親愛的兄弟姐妹們只要是真戰友的一定不能攻擊，曹長青先生，他是堅定的反共，滅共的好戰友，任何人再挑起曹長青先生的矛盾的人都是我們的敵人，或者是爲綠帽子吳徵來報仇的。潛伏在我們內部．以戰友之名來製造矛盾的，這絕對是吳徵這個綠帽子王……對我們戰友又一次發起的挑撥離間的攻擊．大家務必小心一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_49531.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_44122.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_63475.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_96923.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_18897.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_4045.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_79234.(null))
 0

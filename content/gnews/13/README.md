@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：美國按原計劃收取中國關稅
-`2020-04-02 12:56 GM31` [轉載自GNews](https://gnews.org/zh-hant/160200/)
+## 革命宣言——僅以此書獻給所有為自由而戰的人！
+`2020-04-02 19:30 GM30` [轉載自GNews](https://gnews.org/zh-hant/160256/)
 
-近日，在白宮疫情小組每日發佈會上，來自華爾街日報的記者多次向川普總統提問，有關於「是否決定取消或延遲收取中國進口商品關稅」的問題。
+**作者：木子**
 
-川普總統明確表示，從未同意取消或延遲收取中國進口商品關稅，一切按照原計劃進行，並對華爾街日報多次報導假新聞表示不可思議。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192754/image0-10.jpg)
 
-川普總統直言「這就是假新聞，轉告華爾街日報，華爾街日報寫了好多假新聞了，太神奇了」
+[**革命宣言**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192417/%E9%9D%A9%E5%91%BD%E5%AE%A3%E8%A8%80.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192417/%E9%9D%A9%E5%91%BD%E5%AE%A3%E8%A8%80.pdf)
 
-*資料來源： [3月27日](https://www.youtube.com/watch?v=ESRi5j8PceY)和[3月31日](https://www.youtube.com/watch?v=zpbEyfl3vpg)的白宮疫情通報會*
+**請點擊下載按鈕，下載文檔觀看！**
 
-*翻譯：【不吃豆的豆豆】 字幕：【mg南】 后期：【不吃豆的豆豆】*
+（文章內容僅代表作者觀點）
 
 0
