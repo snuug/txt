@@ -1,18 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Inty為何是“爆料革命最危險的敵人”？
-`2020-04-03 10:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/160962/)
+## CCP病毒疫情國內眾生相
+`2020-04-03 11:06 GM30` [轉載自GNews](https://gnews.org/zh-hant/160338/)
 
-**作者：白居易**
+**作者：飛天豬**
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03103008/image0-17.jpg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02202706/image0-13.jpg)
 
-[**Inty為何是“爆料革命最危險的敵人”？ （1）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102032/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%881%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102032/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%881%EF%BC%89.pdf)
-
-[**Inty為何是“爆料革命最危險的敵人”？ （2）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102250/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%882%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102250/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%882%EF%BC%89.pdf)
-
-[**Inty為何是“爆料革命最危險的敵人”？ （3）**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102543/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%883%EF%BC%89.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03102543/Inty%E4%B8%BA%E4%BD%95%E6%98%AF%E2%80%9C%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD%E6%9C%80%E5%8D%B1%E9%99%A9%E7%9A%84%E6%95%8C%E4%BA%BA%E2%80%9D%EF%BC%9F%EF%BC%883%EF%BC%89.pdf)
+[**CCP病毒疫情國內眾生相**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02201712/CCP%E7%97%85%E6%AF%92%E7%96%AB%E6%83%85%E4%B8%AD%E5%9B%BD%E4%BC%97%E7%94%9F%E7%9B%B8.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02201712/CCP%E7%97%85%E6%AF%92%E7%96%AB%E6%83%85%E4%B8%AD%E5%9B%BD%E4%BC%97%E7%94%9F%E7%9B%B8.pdf)
 
 **請點擊下載按鈕，下載文檔觀看！**
 
