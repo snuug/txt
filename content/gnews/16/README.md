@@ -1,9 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [任何人再挑起曹長青先生的矛盾的人都是我們的敵人]
-`2020-04-02 15:38 GM17` [轉載自GNews](https://gnews.org/zh-hant/160247/)
+## 俄羅斯繼續全民放假 隔離到4月30日
+`2020-04-02 19:44 GM09` [轉載自GNews](https://gnews.org/zh-hant/160281/)
 
-4月2日：看到了很多戰友．在曹長青先生髮了一個推文之後，對她的不滿，甚至是攻擊，親愛的兄弟姐妹們只要是真戰友的一定不能攻擊，曹長青先生，他是堅定的反共，滅共的好戰友，任何人再挑起曹長青先生的矛盾的人都是我們的敵人，或者是爲綠帽子吳徵來報仇的。潛伏在我們內部．以戰友之名來製造矛盾的，這絕對是吳徵這個綠帽子王……對我們戰友又一次發起的挑撥離間的攻擊．大家務必小心一切都已經開始！
-![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_49531.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_44122.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_63475.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_96923.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_18897.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_4045.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585856293_79234.(null))
+作者：VOG多國語言組
+
+將隔離期延長至4月30日，俄羅斯總統弗拉基米爾-普京在對公民發表講話時稱，因冠狀病毒假期將持續到2020年4月30日。
+
+據"俄羅斯24電視頻道"報導，國家元首在第二次對俄羅斯人發表電視講話時，向公眾通報了此事。總統宣布，由于冠狀病毒疫情高峰期尚未過去，他決定將俄羅斯的非工作日延長至月底。也就是說，到4月30日。保留所有工人工資。他說，非工作週讓國家有時間積極主動地採取行動防治冠狀病毒疫情，當局動員一切以增加衛生系統的資源。
+
+編者按：俄羅斯人的生命在普京那裡，比中國人的生命在王公公眼裡要珍貴。 
+來源： [https://vestinn.ru/news/society/147671/](https://vestinn.ru/news/society/147671/)
+ 
 0
