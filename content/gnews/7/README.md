@@ -1,17 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 革命宣言——僅以此書獻給所有為自由而戰的人！
-`2020-04-02 19:30 GM30` [轉載自GNews](https://gnews.org/zh-hant/160256/)
+## 俄羅斯繼續全民放假 隔離到4月30日
+`2020-04-02 19:44 GM09` [轉載自GNews](https://gnews.org/zh-hant/160281/)
 
-**作者：木子**
+作者：VOG多國語言組
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192754/image0-10.jpg)
+將隔離期延長至4月30日，俄羅斯總統弗拉基米爾-普京在對公民發表講話時稱，因冠狀病毒假期將持續到2020年4月30日。
 
-[**革命宣言**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192417/%E9%9D%A9%E5%91%BD%E5%AE%A3%E8%A8%80.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/02192417/%E9%9D%A9%E5%91%BD%E5%AE%A3%E8%A8%80.pdf)
+據"俄羅斯24電視頻道"報導，國家元首在第二次對俄羅斯人發表電視講話時，向公眾通報了此事。總統宣布，由于冠狀病毒疫情高峰期尚未過去，他決定將俄羅斯的非工作日延長至月底。也就是說，到4月30日。保留所有工人工資。他說，非工作週讓國家有時間積極主動地採取行動防治冠狀病毒疫情，當局動員一切以增加衛生系統的資源。
 
-**請點擊下載按鈕，下載文檔觀看！**
-
-（文章內容僅代表作者觀點）
-
+編者按：俄羅斯人的生命在普京那裡，比中國人的生命在王公公眼裡要珍貴。 
+來源： [https://vestinn.ru/news/society/147671/](https://vestinn.ru/news/society/147671/)
+ 
 0
