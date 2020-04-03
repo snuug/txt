@@ -1,19 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月3日世界多種語言CCP病毒疫情文字每日播報
-`2020-04-03 19:23 GM33` [轉載自GNews](https://gnews.org/zh-hant/161355/)
+## 中共國流動性問題突顯調低存款利率你敢嗎
+`2020-04-03 19:40 GM06` [轉載自GNews](https://gnews.org/zh-hant/161382/)
 
-[英語：-0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191824/%E8%8B%B1%E8%AF%AD%EF%BC%9A-0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191824/%E8%8B%B1%E8%AF%AD%EF%BC%9A-0403_CCP_Virus_Updates.pdf)
+作者：文茗
 
-[俄語：-Russian0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191836/%E4%BF%84%E8%AF%AD%EF%BC%9A-Russian0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191836/%E4%BF%84%E8%AF%AD%EF%BC%9A-Russian0403_CCP_Virus_Updates.pdf)
+中共國務院聯防聯控機制4月3日舉行新聞發布會，財政部副部長許宏才、央行副行長劉國強、銀保監會副主席周亮介紹增加地方政府專項債規模和強化對中小微企業普惠性金融支持有關情況。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03193423/3-14.jpg)
+中共人民銀行副行長劉國強在回答記者央行是否考慮降低存款基準利率的問題時，他表示，對於存款利率，它是利率體系裡的一個“壓艙石“，當然作為一個工具，是可以使用的，但是這個工具比較特殊，所以實行起來要考慮得更多。
 
-[德語：-German0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191856/%E5%BE%B7%E8%AF%AD%EF%BC%9A-German0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191856/%E5%BE%B7%E8%AF%AD%EF%BC%9A-German0403_CCP_Virus_Updates.pdf)
+這一點其實擊中要害，中國目前經濟下行壓力巨大，疫情導致大量出口企業倒閉，經濟增長沒有動力，尤其是官方公佈的CPI5.3%（實際應該是25%以上）現行一年期存款利率是1.5%，如果調低存款利率，第一個受到衝擊的就是通脹。通脹對於普通民眾生活甚至生存都是最直接的影響，一旦放開存款利率甚至到達負利率，目前中國人民幣存款餘額大概是197萬億，一旦降低存款利率通脹必然會山風海嘯一般引爆通貨膨脹。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03193523/4.png)
+3月31日，中共國務院常務會議確定，增加中小銀行再貸款再貼現額度1萬億元，進一步實施對中小銀行定向降準，引導中小銀行將獲得的全部資金以優惠利率向中小微企業貸款，擴大涉農、外貿和受疫情影響較重產業的信貸投放。支持金融機構發行3000億元小微金融債券用於發放小微貸款。引導公司信用類債券淨融資比上年多增1萬億元。促進中小微企業全年應收賬款融資8000億元。
 
-[日語：-Japanese0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191913/%E6%97%A5%E8%AF%AD%EF%BC%9A-Japanese0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191913/%E6%97%A5%E8%AF%AD%EF%BC%9A-Japanese0403_CCP_Virus_Updates.pdf)
+4月3日，中國人民銀行決定對農村信用社、農村商業銀行、農村合作銀行、村鎮銀行和僅在省級行政區域內經營的城市商業銀行定向下調存款準備金率1個百分點，於4月15日和5月15日分兩次實施到位，每次下調0.5個百分點，共釋放長期資金約4000億元。中國人民銀行決定自4月7日起將金融機構在央行超額存款準備金利率從0.72%下調至0.35%。
 
-[法語：-French0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191930/%E6%B3%95%E8%AF%AD%EF%BC%9A-French0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191930/%E6%B3%95%E8%AF%AD%EF%BC%9A-French0403_CCP_Virus_Updates.pdf)
+中國共有4000多家中小微銀行，佔據了銀行資金額的¼。目前大量的依賴中小銀行的私人中小企業，尤其是出口企業大量的失去有訂單，對貸款需求快速減弱，無法償還貸款的風險陡增，中小銀行風險快速累加倒閉風險已經顯露，在中小銀行存款的普通民眾資金安全陷入不可預估的風險中。共產黨顯然已經意識到中小銀行風險向大型國有銀行的傳導不可避免，這次定向降準就是標準的頭疼醫頭，腳疼醫腳的典型醫療方案。
 
-[西班牙語：-Spanish0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191948/%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%EF%BC%9A-Spanish0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191948/%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%EF%BC%9A-Spanish0403_CCP_Virus_Updates.pdf)
+共產黨從這一系列的動作已經可以看出是在防範流動性風險，通過金融工具降低準備金率釋放存量資金拉低銀行間拆借利率和銀行間市場回購利率，不至於銀行發生資金短缺引發擠兌潮。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03193624/5-1.png)
+2019年城投債全年共計發行了4098只，發行規模達到33906億元，目前累積已超越10萬億以上。近年房地產市場的低迷地方融資受阻，城投債風險已經迫在眉睫。
+
+出口和商業、服務業因疫情急速萎縮，地方財政稅收吃緊，土地出讓對於地方財政就顯得尤為重要。
+
+共產黨地方專項債原來主要用於交通、能源、農林水利、冷鏈、市政、產業園區等領域，今年增加了城鎮老舊小區改造，還允許地方投向應急醫療救治、公共衛生、供熱供水等，還加快5G網絡、人工智能、物聯網等新型基礎設施。
+
+城鎮老舊小區改造對於地方政府財政是非常有利的，棚戶房大多處於城市較核心地段，相對郊區房屋具有更多優勢。這其實是在變相鬆綁房地產，緩解地方政府財政壓力。
+
+仔細觀察共產黨此次的調整，定向是核心，為了不至於所謂的大水滿貫，為了防止惡性通脹的發生只是很有限的對一些目前最危險的資產進行調整，但現在核心問題其實是出口萎縮和外匯儲備銳減帶來的系統性風險。
+
+失業率繼續增高和企業倒閉必然結果就是即使共產黨釋放流動性，但企業融資慾望急速減弱資金並沒有有效的向下游流通，共產黨的48萬億新基建並不可能彌補大量企業倒閉留下的經濟黑洞，以及吸收社會中底層勞動力。
+
+這樣的結果必然是社會斷層明顯，貧富急速分化，中底層勞動者反貧赤貧化明顯。
+
+共產黨在流動性急速惡化的今天，只是降準來維持現在的流動性，不去改善營商環境和給企業實質減稅減負，那就只剩降低存款利率這一條來刺激消費和釋放流動性，但降低存款利率之後惡性通脹的風險誰也難以預料。當共產黨此次深耕細作式的經濟調整計劃效果消失之後不降存款利率還有什麼可選，我們拭目以待。
+
+（文章內容僅代表作者個人觀點）
 
 0
