@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 俄罗斯继续全民放假隔离 到4月30日<br>https://gnews.org/zh-hans/160258/
+
+[https://www.guo.media/posts/276925](https://www.guo.media/posts/276925) `2020-04-03T00:10:24`
+##
+
+**milesguo** 革命宣言——仅以此书献给所有为自由而战的人！<br>https://gnews.org/zh-hans/160248/
+
+[https://www.guo.media/posts/276924](https://www.guo.media/posts/276924) `2020-04-03T00:10:26`
+##
+
 **milesguo** 4月2日：看到了很多战友．在曹长青先生发了一个推文之后，对她的不满，甚至是攻击，亲爱的兄弟姐妹们只要是真战友的一定不能攻击，曹长青先生，他是坚定的反共，灭共的好战友，任何人再挑起曹长青先生的矛盾的人都是我们的敌人，或者是为绿帽子吴征来报仇的。潜伏在我们内部．以战友之名来制造矛盾的，这绝对是吴征这个绿帽子王……对我们战友又一次发起的挑拨离间的攻击．大家务必小心一切都已经开始！
 
 [https://www.guo.media/posts/276918](https://www.guo.media/posts/276918) `2020-04-02T19:40:27`
