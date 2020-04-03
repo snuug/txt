@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 外资“金融开放”——盗国贼与华尔街的分赃游戏<br>https://gnews.org/zh-hans/160412/
+
+[https://www.guo.media/posts/276947](https://www.guo.media/posts/276947) `2020-04-03T04:55:11`
+##
+
+**milesguo** 港股银行股集体下跌是国际资本狙击开始了吗<br>https://gnews.org/zh-hans/160383/
+
+[https://www.guo.media/posts/276946](https://www.guo.media/posts/276946) `2020-04-03T04:55:13`
+##
+
+**milesguo** 谁是真英雄–美国的全民对抗中共病毒<br>https://gnews.org/zh-hans/160349/
+
+[https://www.guo.media/posts/276945](https://www.guo.media/posts/276945) `2020-04-03T04:55:14`
+##
+
+**milesguo** 美国旅游局再发回国警告 现在！<br>https://gnews.org/zh-hans/160311/
+
+[https://www.guo.media/posts/276944](https://www.guo.media/posts/276944) `2020-04-03T04:55:15`
+##
+
+**milesguo** 美情报部门报告：中共瞒报新冠感染和死亡人数<br>https://gnews.org/zh-hans/160259/
+
+[https://www.guo.media/posts/276943](https://www.guo.media/posts/276943) `2020-04-03T04:55:17`
+##
+
 **milesguo** 飞鸟尽 良弓藏 狡兔死 走狗烹 ——火神山医院和雷神山医院建设工人的命运？<br>https://gnews.org/zh-hans/160284/
 
 [https://www.guo.media/posts/276928](https://www.guo.media/posts/276928) `2020-04-03T00:25:22`
