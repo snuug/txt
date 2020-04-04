@@ -1,55 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港這週時事！
-`2020-04-03 22:36 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/161528/)
+## 中共只有一樣是真的，就是謊言
+`2020-04-03 23:46 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/161563/)
 
-[https://spark.adobe.com/page/ihC6lRbvbhm4L/](https://spark.adobe.com/page/ihC6lRbvbhm4L/)
+【中英对照翻译】[https://spark.adobe.com/page/mirLOixKjxS9r/](https://spark.adobe.com/page/mirLOixKjxS9r/)
 
-*作者：玄天生*
+*作者： David Gilbert 大卫·吉尔伯特*
 
-**引言：天將降大任於斯人也，必先苦其心志，勞其筋骨，餓其體膚，空乏其身，行拂亂其所為，所以動心忍性，增益其所不能。他們勇於面對世界不敢面對的敵人—邪魔中共。香港這一代年青人，智慧和勇敢，擁有善良和決心。光復香港——他們將讓香港這顆東方明珠，再次光耀世界！**
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/d4d58ad8-8373-406d-a36b-8806eefbf165.jpg?asset_id=01eeaf64-ca06-48bc-a615-c4604c6be7ab&amp;img_etag=0775a17808ed9fe94f2df4f57ea61140&amp;size=1024)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/d4d58ad8-8373-406d-a36b-8806eefbf165.jpg?asset_id=01eeaf64-ca06-48bc-a615-c4604c6be7ab&amp;img_etag=0775a17808ed9fe94f2df4f57ea61140&amp;size=1024)
-律政司表示，根據保安局提供的資料，自去年6月9日至今年2月29日，警方於反修例示威中，共拘捕7613人。其中1235人已經完成或正在進行司法程序的人士當中，78人須承擔法律後果，涉及最多的控罪為暴動、藏有攻擊性武器及非法集結。律政司回覆立法會特別財委會的議員查詢時指，已經完成或正在進行司法程序的個案中，52人被定罪、25人簽保守行為，1人被判照顧或保護令，19人獲撤銷控罪，其餘人士的司法程序仍在進行中。另外6人經警誡後獲釋，512人獲無條件釋放。還有5860人的案件仍在調查中，包括保釋候查和拒絕保釋後被釋放候查，即俗稱「踢保」。律政司表示，刑事檢控科目前有超過200名檢控人員，並一直設有一隊檢控人員，專責處理有關公眾秩序活動的案件。最近有關公眾秩序活動的案件增加，律政司亦安排了曾於專責隊伍工作過的人員，並調派更多人手，協助參與檢控決定的相關工作。[新聞來源](https://news.rthk.hk/rthk/ch/component/k2/1518652-20200403.htm)
+*新闻来源： Vice 异视异色, Mar 31 2020*
 
-抗爭者們除了面臨漫長的法律訴訟外，還要面對他們對前途的擔憂和疫情危機，港共政府的打手黑警，利用他們手中無限權力，任意執法。那些被消失、被自殺、被失蹤……的手足，還有牆內那些被中共政府欺騙、誤導的百姓，何嘗不是生命如螻蟻。
+*翻译：CharlesS*
 
-**限聚令明起或發告票，特務警察加入執勤**
+*简评: CharlesS*
 
-由於香港疫情關係，港共政府禁止公眾多於4人聚集的《預防及控制疾病條例599G章》（限聚令），沒有特殊原因，超過4人都有可能被發2000元的定額罰款告票。[新聞鏈結](https://news.mingpao.com/pns/%e8%a6%81%e8%81%9e/article/20200403/s00001/1585853110219/%e9%99%90%e8%81%9a%e4%bb%a4%e6%98%8e%e8%b5%b7%e6%88%96%e7%99%bc%e5%91%8a%e7%a5%a8-%e7%89%b9%e5%8b%99%e8%ad%a6%e5%af%9f%e5%8a%a0%e5%85%a5%e5%9f%b7%e5%8b%a4)
+PR：freedust
 
-**被捕者揭警署內幕：須戴廿粒鐘「紙口罩」、禁聚令下多人同處一倉**
+**简评：**
 
-3月31的，「太子8·31事件」七週月晚上，警方於旺角及太子一帶圍捕共54人，並把他們送往旺角及紅磡警署。被捕者及家屬揭露，警方不但沒收被捕者的口罩作「呈堂證據」，更向他們派發紙口罩，又阻撓支援律師提供口罩。有被捕者轟此舉「隨時搞出人命」，又慨嘆政府一邊推行「禁聚令」，一邊任由警方無視規例：「一個倉要裝7至8個人，有啲仲無戴口罩」。油尖旺區議員、社區前進林兆彬，要求警方儘快交代上述問題，提供合適口罩予被捕者，並將於區議會會議中追究此事。[新聞鏈結](https://www.inmediahk.net/node/1072138)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/d57cf38e-2ba2-4f12-a389-d7efe514b54b.jpg?asset_id=d20e8cdd-56f7-44ed-a92b-6f875b205d5b&amp;img_etag=7ae927c083afa8b3095f2eba90d2dc34&amp;size=2560)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/d57cf38e-2ba2-4f12-a389-d7efe514b54b.jpg?asset_id=d20e8cdd-56f7-44ed-a92b-6f875b205d5b&amp;img_etag=7ae927c083afa8b3095f2eba90d2dc34&amp;size=1024)
-可見，港共政府出台任何政策，黑警都可以選擇性執法，可以說一箭雙鵰，打壓抗爭人士，又可說是因為疫情關係。反正「龍門任我擺，飄移境界」。
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7215fd08-401f-4de8-b1df-d0e057380653.jpg?asset_id=19fed6d4-d43d-4331-a25d-9d85b4c67da3&amp;img_etag=8338d793205bd96760f05890c5256856&amp;size=1024)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7215fd08-401f-4de8-b1df-d0e057380653.jpg?asset_id=19fed6d4-d43d-4331-a25d-9d85b4c67da3&amp;img_etag=8338d793205bd96760f05890c5256856&amp;size=1024)
-**聯國60日限期港共未回覆**
+中共政府在中共武汉肺炎瘟疫上的所作所为引发了全世界的愤怒。VICE新闻，一个面向年轻人的媒体，昨天为中共“带风向”的手段列了篇时间线。
 
-看下促港交代催淚彈（TG）成分用法，聯合國60日限期未獲覆。想想中共能藍金黃任何西方議員、科學家、WHO(CHO)……港共政府連回覆也不用。可見目中無人、我懶的回覆，因為我有黑社會老大，中共撐腰，你們不就是中共的馬仔嗎﹖[新聞鏈結](https://news.mingpao.com/pns/%E6%B8%AF%E8%81%9E/article/20200403/s00002/1585853113511/%E4%BF%83%E6%B8%AF%E4%BA%A4%E4%BB%A3%E5%82%AC%E6%B7%9A%E5%8A%91%E6%88%90%E5%88%86%E7%94%A8%E6%B3%95-%E8%81%AF%E5%9C%8B60%E6%97%A5%E9%99%90%E6%9C%9F%E6%9C%AA%E7%8D%B2%E8%A6%86)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/0a335581-75f8-4465-bc49-2feb37325a56.jpg?asset_id=ae1ae9ba-dfca-461e-9635-d029b9c30034&amp;img_etag=5ef250a3f7b7409050b69ea8123df1e6&amp;size=2560)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/0a335581-75f8-4465-bc49-2feb37325a56.jpg?asset_id=ae1ae9ba-dfca-461e-9635-d029b9c30034&amp;img_etag=5ef250a3f7b7409050b69ea8123df1e6&amp;size=1024)
-**警喬裝速遞員拘捕鋼珠及發射器收件人**
+想要欺骗外部世界已不可能；想用医疗器械绑架，不料问题层出；想抹黑栽赃，只会让大家更确信心虚的中共CCP就是罪魁祸首。
 
-海關早前截查藏有投射器及金屬彈珠的包裹並通知警方，警方隨後派員喬裝 UPS 速遞員，聯絡收件人，在交收時將人拘捕。一名 24 歲男文員被控一項「企圖管有攻擊性武器」罪，今（11日）在粉嶺裁判法院提訊，暫毋須答辯。案件押後至明年 1 月 22 日再訊，期間男文員獲准保釋，但須宵禁、不得離港。辯方透露男文員從未簽收包裹。
+很高兴看到，这个年轻的新闻媒体十分明白这是政府行为，他区分了党国和人民——中国人民没有言论自由，中国人也没有自由的消息来源。中共政府一面打压国内异议声音，一面向国内外输出虚假与恐惧。
 
-看到這一則新聞，不用驚訝，因為黑警的無恥與中共黑社會一樣，如何下三流手段都用的出，好在戰友們都有危機感，但不知有多少人中招被起訴呢﹖[新聞鏈結](https://www.thestandnews.com/politics/%E8%AD%A6%E5%96%AC%E8%A3%9D%E9%80%9F%E9%81%9E%E5%93%A1%E6%8B%98%E6%8D%95%E9%8B%BC%E7%8F%A0%E5%8F%8A%E7%99%BC%E5%B0%84%E5%99%A8%E6%94%B6%E4%BB%B6%E4%BA%BA-24%E6%AD%B2%E7%94%B7%E6%96%87%E5%93%A1%E6%9C%AA%E7%B0%BD%E6%94%B6%E5%8C%85%E8%A3%B9%E4%BB%8D%E8%A2%AB%E6%8E%A7/)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/71fa9646-9b29-4688-b53c-c301829accfa.jpg?asset_id=0feab619-79f4-424c-8380-6f6812d4db73&amp;img_etag=fade716b16206dfaf226ef489735d91b&amp;size=2560)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/71fa9646-9b29-4688-b53c-c301829accfa.jpg?asset_id=0feab619-79f4-424c-8380-6f6812d4db73&amp;img_etag=fade716b16206dfaf226ef489735d91b&amp;size=1024)
-**無搜令不能查被捕者手機，警上訴得須按條件，法庭重申禁警逼供手機密碼**
+但让人忧虑的是，英文世界对潜在的危险仍没有警觉，他们认为中共的宣传仅仅是“可耻的和不负责任的”。孔子学生子贡曾说：忧在内者攻其强。现在国内的仇恨似乎很明显的带到了美国人身上，这是要干什么？共产党在国内面临着害怕被老百姓知道真相后的清算和党内派别激烈斗争等这些重大危机，无论是决策者想要转移矛盾，或者非当权派的怂恿，这都隐藏着对外热战的巨大可能。看一下诬陷美军带毒事件的反复，这是在往更危险道路上的激烈震荡。
 
-這綜新聞說的是，一開始被捕者法律訴訟，警方不能沒有無搜令就強行查被捕者手機。當然警方上訴成功，這不是最終結果，被捕者還可以上訴到終審法院才能知道最後結果。不過對於黑警，他們不會理會這些法律內容和條例，他們沒有法律認知，也不會遵守法律。接下來，只要看到不順眼的，必會強制被查人士打開他們的手機。[新聞鏈結](https://news.mingpao.com/ins/%e6%b8%af%e8%81%9e/article/20200402/s00001/1585801137452/%e7%84%a1%e6%90%9c%e4%bb%a4%e4%b8%8d%e8%83%bd%e6%9f%a5%e8%a2%ab%e6%8d%95%e8%80%85%e6%89%8b%e6%a9%9f-%e8%ad%a6%e4%b8%8a%e8%a8%b4%e5%be%97%e7%9b%b4%e9%a0%88%e6%8c%89%e6%a2%9d%e4%bb%b6-%e6%b3%95%e5%ba%ad%e9%87%8d%e7%94%b3%e7%a6%81%e8%ad%a6%e9%80%bc%e4%be%9b%e6%89%8b%e6%a9%9f%e5%af%86%e7%a2%bc)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7a2c2bf0-ff23-4302-970a-9f446066669a.jpg?asset_id=75af7f19-ef46-4ac4-838e-dc5a1aa37ac4&amp;img_etag=924433caebe78cf71fa1677149071d4f&amp;size=1024)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7a2c2bf0-ff23-4302-970a-9f446066669a.jpg?asset_id=75af7f19-ef46-4ac4-838e-dc5a1aa37ac4&amp;img_etag=924433caebe78cf71fa1677149071d4f&amp;size=1024)
-**香港警察，毀屍滅跡又一鐵證！**
+## **Here’s How China Is Rewriting the History of the Coronavirus Pandemic to Make Itself the Hero**
 
-去年，政府銷毀檔案份量達到 149 棟 IFC 之多，香港政府拖足十多年不推行《檔案法》，令有心人能夠「無後顧之憂」銷毀檔案。過往政府表示檔案均是合法銷毀、沒有參考價值的檔案，例如報稅表等，但又有幾多檔案是「不小心」、「未經授權銷毀」的呢？是已經意識到世界正在行動，所以才要銷毀檔案呢﹖這可是耐人尋味的舉動。[新聞來源](https://www.thestandnews.com/politics/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F-%E6%AF%80%E5%B1%8D%E6%BB%85%E8%B7%A1-%E5%8F%88%E4%B8%80%E9%90%B5%E8%AD%89/)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/a708b25b-21af-4aed-9f19-445767dfa04e.png?asset_id=485b87c0-2975-4c1b-9378-b7e3d06709bf&amp;img_etag=8872610d858ea7e1c5c0f82fd856d2b0&amp;size=1024)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/a708b25b-21af-4aed-9f19-445767dfa04e.png?asset_id=485b87c0-2975-4c1b-9378-b7e3d06709bf&amp;img_etag=8872610d858ea7e1c5c0f82fd856d2b0&amp;size=1024)
-清明節快到，不少市民提前去掃墓，而油尖旺北區區議員，及北區連線成員到沙嶺掃墓，其中油尖旺區議員將昨晚於太子站外所收集的鮮花送上。
+### **这就是中国如何重写中共冠状病毒大流行的历史以使其成为英雄**
 
-但願犧牲止於此，但願花落之處，都是樂土。[FB鏈結](https://www.facebook.com/112467260231947/posts/154603986018274/?d=n)
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/759a7974-022e-4b9a-9a61-04cee39eba9c.jpg?asset_id=ecf948c4-86cd-47b2-b348-fe47118c077b&amp;img_etag=a3c7823b552d2379e3e25d2d94ea74ff&amp;size=2560)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/759a7974-022e-4b9a-9a61-04cee39eba9c.jpg?asset_id=ecf948c4-86cd-47b2-b348-fe47118c077b&amp;img_etag=a3c7823b552d2379e3e25d2d94ea74ff&amp;size=1024)[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/1730d835-8f4f-4ed3-8ca8-b2166537f906.jpg?asset_id=dbfe0c84-f232-4e27-b0ec-48160fc6d84d&amp;img_etag=05b07f7aeab552d02fcafe06decd0b33&amp;size=1024)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/1730d835-8f4f-4ed3-8ca8-b2166537f906.jpg?asset_id=dbfe0c84-f232-4e27-b0ec-48160fc6d84d&amp;img_etag=05b07f7aeab552d02fcafe06decd0b33&amp;size=1024)
-最後，我依然要表達的是：沒有暴民，只有暴政；不放棄，不拋棄；五大訴口，缺一不可！光復香港，時代革命！滅中共，復中華！
-[!\[\](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7ed182ba-bf12-44bf-a23c-d14b413f6cf6.jpg?asset_id=5a925837-3e9b-4617-9fab-81d1b6a82fff&amp;img_etag=af6a779a385b7bed76aa89a2ace76f54&amp;size=2560)](https://spark.adobe.com/page/ihC6lRbvbhm4L/images/7ed182ba-bf12-44bf-a23c-d14b413f6cf6.jpg?asset_id=5a925837-3e9b-4617-9fab-81d1b6a82fff&amp;img_etag=af6a779a385b7bed76aa89a2ace76f54&amp;size=1024) 文章內容僅代表作者個人觀點 
-嗚謝圖片來源unsplash 、pixabay、FB：Flash Media Hong Kong圖片、推特：FIGHT FOR FREEDOM FREE HK、蘋果新聞圖片、獨立媒體新聞圖片、國際文宣組
 
-**編輯 【喜馬拉雅戰鷹團】**
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/A223BF10-FCB8-4E34-A09C-3A7F5039FFE6.jpg?asset_id=2A1CAC2C-1056-452A-BCD0-3E3FBD1452A7&amp;size=1024)](https://spark.adobe.com/page/mirLOixKjxS9r/images/A223BF10-FCB8-4E34-A09C-3A7F5039FFE6.jpg?asset_id=2A1CAC2C-1056-452A-BCD0-3E3FBD1452A7&amp;size=1024)
+中国政府发动了长达数月的虚假宣传运动。它既试图将病毒隐藏数月之久，却又将自己伪装成打败它的国家。
 
+周五午夜零时，中国为了阻止中共冠状病毒再爆发，关闭了与世界其他地区的边境。
+
+此举是中国政府为期数月的公关和虚假宣传活动的高潮，该活动旨在改写大流行病的历史。这个大流行病已蔓延到地球的每个角落，杀死了34,000多人，并感染了近75万人。
+
+中国一开始无视12月初在武汉首次爆发的疫情，让试图发出警报的医生禁声，然后最终实施了一项严厉的限制性封锁，影响了5000万人。
+
+但是，中国共产党现在正试图将自己描绘描绘成已经战胜了这种病毒并准备拯救世界的国家，而不是那个让中共冠状病毒连续数周不受限制传播的国家。
+
+为此，中国政府采用了独特的策略组合，包括虚假信息，软实力，阴谋论，甚至出了一本书，讲述中国战胜中共冠状病毒的英勇故事。所有这些都是为了重塑有关病毒的叙述，以及北京一开始就让病毒失控这个角色。
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/95980B27-D36D-48C9-A22C-E24199C5D877.jpg?asset_id=7DA70074-612E-4622-84A9-8B5450D7EE61&amp;size=2560)](https://spark.adobe.com/page/mirLOixKjxS9r/images/95980B27-D36D-48C9-A22C-E24199C5D877.jpg?asset_id=7DA70074-612E-4622-84A9-8B5450D7EE61&amp;size=678)
+“在过去的几周中，中共加大了宣传力度，以在中国国内外塑造有关中共武汉肺炎（COVID-19）的故事。” 澳大利亚研究机构中国政策中心主任亚当·倪向VICE新闻表示。
+
+“从本质上讲，该党希望在可怕的局势中发挥最大作用，并通过推卸责备，对党的罪责首提出质疑，煽动民族主义并强调中国党国的优越性，从而使这一故事对党有利。 ”
+
+**这是中国的剧本**：
+
+让异议的声音沉默：武汉的暴发最早被前线工作的医生注意到。 他们试图通过在微信上与朋友共享消息来发出警报，这些消息在社交媒体上分享并传播开来。 但是警察拘留了医生，并告诉他们保持沉默——其中一些人后来死于冠状病毒。
+
+封锁信息：湖北省一旦被封锁，中国政府就不希望任何负面信息传出去。 为此，它采取了一系列策略。 其中一种是让那些在武汉市内开始发布录像以暴露出危机严重程度的公民记者消失。 另外它还大大提高了对社交媒体平台的审查力度，这意味着即使只是对中共冠状病毒的丝毫提及或政府的回应也被删除了。
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/812383D8-87A8-4A41-8320-9A9EDEA74E7F.png?asset_id=0537E384-5991-466A-978C-A143E11F67B4&amp;size=1024)](https://spark.adobe.com/page/mirLOixKjxS9r/images/812383D8-87A8-4A41-8320-9A9EDEA74E7F.png?asset_id=0537E384-5991-466A-978C-A143E11F67B4&amp;size=1024)
+加速国有媒体的发展：随着医院不堪重负和死亡人数不断上升的故事在世界各地蔓延，北京将其庞大的媒体操作进入了全面战斗模式，它的中英文媒体都对政府为应对疫情而开展工作的“英勇事迹”进行了积极报道。媒体宣传包括社交媒体上的帖子，新闻报道以及由国有媒体记者撰写，但在其他媒体上悄悄发表的文章。 北京也正在利用与非洲的深厚媒体联系来促进自己的宣传进程。
+
+散布虚假信息：本月早些时候，中国外交部发言人华春莹在Twitter上发布了一段视频，该视频显示意大利人一齐鼓掌，并大喊“谢谢中国”，以感谢北京向该国提供的援助。唯一的问题是该视频是伪造的：掌声实际上是对意大利医务人员的英勇工作鼓掌。
+
+宣传阴谋论：本月初，中国外交部副发言人赵立坚在推特上暗示，中共冠状病毒是在美国军事实验室制造的，并由美国陆军带到武汉，他们曾在去年十月派出300名服务人员参加了2019年的世界军事运动会。 这种毫无根据的说法随后却被中国官方媒体给予了更多的支持。
+
+写书：中国已经出版了一本有关中共冠状病毒大流行的书。 《大国战疫：2020》是中国官方媒体的文章汇编，讲述了习近平主席的英勇领导以及共产党在抵抗病毒爆发中的重要作用。 该书已被翻译成英文，法文，西班牙文，俄文和阿拉伯文，以后可能会更多。
+
+部署Twitter军队：ProPublica的一项调查发现，由中国政府领导的Twitter军队由假冒和被盗帐户组成-过去曾被用来散布有关香港抗议活动的虚假信息-已成为“政府的啦啦队，呼吁并要求公民团结起来，为抗击这一流行病的努力提供支持，并敦促他们“消除网上谣言”。
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/D64B339A-91B1-484D-8146-7D780AD14E00.jpg?asset_id=16C00969-1284-4B0A-826A-4411310D6713&amp;size=2560)](https://spark.adobe.com/page/mirLOixKjxS9r/images/D64B339A-91B1-484D-8146-7D780AD14E00.jpg?asset_id=16C00969-1284-4B0A-826A-4411310D6713&amp;size=678)
+提出更多的阴谋论：上周，中国官方媒体暗示该病毒可能起源于意大利，此前米兰马里奥·内格里药物研究所的主任朱塞佩·雷姆齐告诉NPR，那里的医生已经注意到“非常奇怪的肺炎”。 早在去年11月雷姆齐就澄清说，他的意思是说该病毒可能比我们想象的更早地传播到欧洲，但是中国官方媒体没有提及这些评论。
+
+开始捐赠东西：中国改变世界如何看待其在中共冠状病毒爆发中的作用的努力关键之一是向世界各地捐赠了测试包，口罩和其他必需品。 领导这项工作的是阿里巴巴创始人马云，其基金会已向伊朗，欧洲，非洲乃至美国发送了物资。
+
+没有任何阴谋论比这个更疯狂：中国最新的说法是，美国军事运动队成员之一的美国自行车手是中共冠状病毒零号病人。这一说法索赔的来源？ 一位美国阴谋理论家，他试图利用这一流行病来提高其社交媒体形象。
+
+但是，这有效吗？
+
+“我想说这在中国国内已经非常成功。 由于审查制度和缺乏独立的新闻来源，许多中国人已经接受了这种病毒是由美国带到中国的理论。”人权观察组织中国研究员王亚秋对VICE新闻说， “它帮助公众对中国政府最初掩盖事实的愤怒转移到“很好找”的外部敌人—美国政府身上。”
+
+而且，在世界各地的前线医护人员大声疾呼寻求防护装备的时候，中国的捐赠将大大提高其在国外的形象。
+
+“在过去的几周中，中国通过其政府援助以及马云大量捐赠的口罩和其他医疗用品，在非洲以及欧洲获得的软实力红利绝对是巨大的，” 无党派中国非洲项目总编辑埃里克·奥兰德对VICE新闻说。
+
+但是，并非所有来自中国的医疗用品都受到欢迎。 越来越多的国家因缺陷而拒绝中国的测试盒和其他供应品。
+
+尽管阴谋论可能会很好地吸引中国的家庭听众，但在中国之外，人们通常可以获得更多有关发生的事情的信息，而北京的荒谬理论却是空洞的，实际上可能会进一步损害该国的声誉。
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/BEA729B9-4973-45FF-B4F7-D914CD4CC05A.jpg?asset_id=A1D865E8-487A-4AE3-B3D6-D714FB51ADC1&amp;size=1024)](https://spark.adobe.com/page/mirLOixKjxS9r/images/BEA729B9-4973-45FF-B4F7-D914CD4CC05A.jpg?asset_id=A1D865E8-487A-4AE3-B3D6-D714FB51ADC1&amp;size=720)
+王说：“我认为中国的宣传运动恰恰适得其反。因为许多人认为这对中国政府传播这些阴谋理论是可耻的，也是不负责任的。”
+
+封面：这张由巴基斯坦新闻资讯部于2020年3月28日拍摄并发布的宣传照片中，中国医生抵达了伊斯兰堡的伊斯兰堡国际机场。 （图片来源：//新闻部/法新社，盖蒂图片社）
+
+[新闻链接](https://www.vice.com/en_us/article/8843dz/heres-how-china-is-rewriting-the-history-of-the-coronavirus-pandemic-to-make-itself-the-hero)
+
+**编辑：【喜马拉雅战鹰团】**
+[!\[\](https://spark.adobe.com/page/mirLOixKjxS9r/images/5E3C2900-F509-4C31-888F-131D2E9132A3.jpg?asset_id=D3FAB702-D717-4BF3-B030-D6872B3307CB&amp;size=1024)](https://spark.adobe.com/page/mirLOixKjxS9r/images/5E3C2900-F509-4C31-888F-131D2E9132A3.jpg?asset_id=D3FAB702-D717-4BF3-B030-D6872B3307CB&amp;size=1024)
 0
