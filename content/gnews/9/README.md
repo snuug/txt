@@ -1,24 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高盛預測：中共冠狀病毒將造成第二季度股市暴跌123%
-`2020-04-04 02:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/161650/)
+## 川普的盟友呼籲對CCP病毒處理情況展開國際調查
+`2020-04-04 03:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/161661/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04024901/1-12.png)
-高盛（Goldman）預測，由於中共冠狀病毒的爆發，使得收入銳減，企業利潤增長（歷來是股價上漲的最大推動力）將連續三個季度出現嚴重收縮。
+![Josh Hawley &amp; Twitter: Missouri Senator Calls for Third-Party ...](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04031046/1-13.png)
+英國獨立報報導：共和黨參議員喬什·霍利（Josh Hawley）呼籲對中共在處理CCP病毒问题上展开國際調查。他把疫情歸咎於中共，表示中共政府應為該病毒造成的損失賠償。
 
-該投資銀行預計，由於能源表現不佳，消費者可自由支配以及工業公司的表現不佳，該指數在2020年將使標準普爾500（S&P 500）指數的每股收益下降33％。分析師團隊表示，年初利潤率接近創紀錄的高位，將降至8.7％，這是2010年以來的最低水平。
+霍利先生寫道：“毫无疑问，中共应该對CCP病毒負責。 這就是為什麼北京一直進行宣傳攻勢，試圖到处转嫁责任的原因。我們需要確切地掌握一些证据：比如中共知道什麼，什麼時候知道的，以及該黨是如何努力隱藏病毒传播的情况妨碍了美國和其他國家早做防护准备的。
 
-第二季度的收入將會承受最大打擊，屆時會有大規模失業，企業倒閉，受病毒影響又將會使需求降至前所未有的低位。由萊恩·哈蒙德（Ryan Hammond）領導的團隊在給客戶的一份報告中稱，標準普爾500指數三個月期間預計將虧損每股10美元，這將意味著同比下降123％。
+如果北京真像它说的那样透明，又何必遮遮掩掩呢。如果它拒絕合作，那麼全世界就會知道它確實隱瞞了什麼，那就讓它為此次瘟疫的傳播負責。”
 
-據銀行說，消費必需品，醫療保健和公用事業領域為投資者提供了避開市場週期性波動的避風港。分析師說，鑑於一些最大的股票經常性收入的高份額，科技行業也將經受住大部分的經濟風暴。
+霍利先生並不是第一位將疫情歸咎於中國的共和黨代表。霍利是川普總統的擁護者，川普總統稱他為“彈劾案鬧劇中最大的支持者”，並稱讚他“前途無量”。
 
-在利潤增長反彈之前，經濟需要穩定。高盛週二下調了季度GDP預估，稱美國經濟在第二季度因中共冠狀病毒引發的低谷而萎縮34％。該銀行表示，要等到第三季度GDP增長19％才能實現復甦。
+[原文鏈接](https://www.independent.co.uk/news/world/americas/coronavirus-china-trump-us-senator-international-investigation-josh-hawley-a9436876.html)
 
-第四季度的收入增長將出現類似的逆轉，並在此期間增長27％。該行預計，到2021年，標準普爾500指數的每股收益將增長55％，明年將延續反彈趨勢。高盛（Goldman）估計，“鑑於CCP Virus對社會造成的前所未有的破壞，這樣的前瞻性估計仍然是“非同尋常的挑戰”。
-
-[原文鏈接](https://markets.businessinsider.com/news/stocks/stock-market-earnings-projections-slide-coronavirus-shutdown-recession-goldman-sachs-2020-4-1029063649)
-
-翻譯整理：匿名
+翻譯報道：匿名
 
 0
