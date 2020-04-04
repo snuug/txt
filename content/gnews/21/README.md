@@ -1,9 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room98：中共什麼時候知道疫情的？
-`2020-04-03 21:40 GM37` [轉載自GNews](https://gnews.org/zh-hant/161504/)
+## [//livestream.com/accounts/27235681 ．明天4月4號上午9]
+`2020-04-03 23:55 GM17` [轉載自GNews](https://gnews.org/zh-hant/161579/)
 
-這就是為什麼我們要問中共問習近平什麼時候知道這一點的，為什麼他不公佈實情。我的意思是，如果中國是一個正常國家，那她應該有責任，如果她是一個正常的負責任的大國，那麼中國應該分享信息而不是隱瞞信息。
-
-0
+4月3號：尊敬的的戰友們好：Take a look at GTV’s events on Livestream．
+<br>http://livestream.com/accounts/27235681 ．明天4月4號上午9:30文貴亂聊直播，一切都已經開始！
+![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_59965.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_62297.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_43760.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_2782.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_96127.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_40130.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_86257.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_60626.(null))![](https://d57iplyuvntm7.cloudfront.net/uploads/https://d57iplyuvntm7.cloudfront.net/uploads/photos/2020/04/img_1585972511_81341.(null))
+1+

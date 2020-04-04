@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 悲慘一幕：英13歲男孩感染中共病毒過世，親人因隔離無法參加葬禮
-`2020-04-04 07:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/161833/)
+## 香港政府訓誡記者向WHO提台灣問題
+`2020-04-04 08:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/161934/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04065302/26775738-8183767-Ismail_was_lowered_into_the_ground_without_his_family_present_as-a-2_1585928431206.jpg)圖片來源*（PA）* ： [www.dailymail.co.uk](https://www.dailymail.co.uk/news/article-8183767/Family-boy-13-died-Covid-19-t-attend-funeral-symptoms.html) 
-據英國《鏡報》4月3日報導，來自倫敦南部布里克斯頓的僅13歲的伊斯梅爾·穆罕默德·阿卜杜勒瓦哈卜（Ismail Mohamed Abdulwahab）因感染中共病毒去世。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04083136/1-14.png)
+香港一名記者在近日採訪中向世界衛生組織（WHO）的一名高級顧問詢問了有關台灣的問題後，香港政府指責一家媒體組織“違反了一個中國原則”。
 
-然而，在男孩的葬禮上，他的家人卻因需要隔離而無法參加，這場面太讓人心痛。他的兄妹已經被確診並且已經有了症狀，他有六個兄妹和他的母親正在布里克斯頓的家裡進行隔離。
+香港電台的Yvonne Tong問世衛組織顧問布魯斯·艾爾沃德（Bruce Aylward）“該組織是否會重新考慮台灣的加入。”艾爾沃德似乎沒聽見唐的聲音，然後打斷了她。
 
-他被全身防護的工作人員埋葬在奇斯爾赫斯特Kemnal Park公墓的永恆花園穆斯林墓地。
+台灣在遏制病毒方面的努力被認為是全球最好的，但迫於中共的壓力，台灣卻被排除在世界衛生大會和世衛組織之外。
 
-在葬禮之前，男孩家朋友在Gofundme上發出捐款請求，稱男孩的兄弟姐妹已經出現了包括發熱和失去味覺的症狀。他呼籲捐款希望可以實現向他的母親和兄弟姐妹實時直播葬禮現場，這樣可以讓他們遠程參加該儀式，不管怎樣，他們因為無法親自參加葬禮極其悲痛。
+週四，香港商務及經濟發展局局長邱騰華指責香港電台違反基本法的義務，其中包括對“一國兩制”概念的理解。 ” “局長認為，在上述節目的那一集節目中，違反了一個中國原則。 “親北京的立法會議員何君堯將湯的問題貼上“危險”的標籤。
 
-每一位參與者都極其傷心，但是他們也因收到大量暖心鼓勵和支持信息所感動。
+香港電台的顧問團成員費米·黃（Fermi Wong）稱邱的言論為“一派胡言”，並表示這可能是在外交部或中共施加壓力的結果。黃說：“我真的不明白為什麼當記者問與健康有關的問題時，還必須記住’一國兩制’……必須與​​ 中共政府保持一致。”
 
-伊斯梅爾生前並沒有健康問題，他在上週五進入英國國王學院醫院後就被確診了中共病毒。接著，在周一凌晨三點死亡，死亡之前他經歷了肺衰竭和心臟驟停。
+週四，香港警察被剝奪了更多的權力，如果警官認為有必要進行進行調查，則無需搜查令即可搜查被捕者的電話內容。
 
-[原文鏈接](https://www.mirror.co.uk/news/uk-news/heartbreaking-pictures-show-lonely-funeral-21809116)
+另外，香港政府尚未確認是否將允許被大陸驅逐的美國記者來港工作，據說北京方面已宣布不能這樣做。
 
-翻譯報導：Longwood
+[原文鏈接](https://www.theguardian.com/world/2020/apr/03/hong-kong-official-reprimands-tv-station-over-who-interview-that-mentioned-taiwan)
+
+匿名
 
 0
