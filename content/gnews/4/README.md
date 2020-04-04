@@ -1,19 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月3日世界多種語言CCP病毒疫情文字每日播報
-`2020-04-03 19:23 GM33` [轉載自GNews](https://gnews.org/zh-hant/161355/)
+## Swagger：莊烈宏：無賴無恥之徒
+`2020-04-03 19:30 GM06` [轉載自GNews](https://gnews.org/zh-hant/161364/)
 
-[英語：-0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191824/%E8%8B%B1%E8%AF%AD%EF%BC%9A-0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191824/%E8%8B%B1%E8%AF%AD%EF%BC%9A-0403_CCP_Virus_Updates.pdf)
+作者：Swagger
 
-[俄語：-Russian0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191836/%E4%BF%84%E8%AF%AD%EF%BC%9A-Russian0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191836/%E4%BF%84%E8%AF%AD%EF%BC%9A-Russian0403_CCP_Virus_Updates.pdf)
+繼Inty之後，相繼又有幾個潛伏的小鬼揭下了畫皮，鬧得最歡的就屬莊烈宏了。其實筆者一直沒有太關注他，做的直播質量太差，實在不忍卒讀。所以對莊烈宏的印像還停留在他和雞腿潘一起在喜馬拉雅大使館做直播的時候，其貌不揚，操著一口極其普通的普通話，“郭先seng，凱琳女si”，連中文都念不準，更別指望他能口吐蓮花了。在他跳出來“砸郭”之後，筆者特意去回看了一下他在3月31日的youtube直播，將近兩個半小時的視頻，看了不到一個小時就不忍心再看下去了，內心五味雜陳。先是好笑與心酸，再是惱怒與憤懣：天下竟有如此厚顏無恥之人！
 
-[德語：-German0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191856/%E5%BE%B7%E8%AF%AD%EF%BC%9A-German0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191856/%E5%BE%B7%E8%AF%AD%EF%BC%9A-German0403_CCP_Virus_Updates.pdf)
+## 無賴齷齪：長不大的巨嬰
 
-[日語：-Japanese0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191913/%E6%97%A5%E8%AF%AD%EF%BC%9A-Japanese0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191913/%E6%97%A5%E8%AF%AD%EF%BC%9A-Japanese0403_CCP_Virus_Updates.pdf)
+平心而論，莊烈宏3月31日的直播，是筆者近兩年來，除了郭德綱以外，聽過的最搞笑的單口相聲了。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03192137/1-11.png)
+直播標題總共10個字，裡面居然有兩個錯別字。 “戳破”？ “謠言”？
 
-[法語：-French0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191930/%E6%B3%95%E8%AF%AD%EF%BC%9A-French0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191930/%E6%B3%95%E8%AF%AD%EF%BC%9A-French0403_CCP_Virus_Updates.pdf)
+話不多說，接下來一起賞析一下莊烈宏在3月31日直播時的一些金言金句。
 
-[西班牙語：-Spanish0403\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191948/%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%EF%BC%9A-Spanish0403_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03191948/%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%EF%BC%9A-Spanish0403_CCP_Virus_Updates.pdf)
+10分20秒“（法制基金）我這個住地下室的都捐了300塊！這300塊對我的資本的比例佔很大一部分的！你捐過莊烈宏錢了嗎？你給過莊烈宏錢了嗎？”
+
+聽到這裡的時候，筆者心中居然有一絲感動，生活都已經到這種程度了，還在給法制基金捐款。另外，法制基金和法制社會的主席不是班農先生和凱爾巴斯先生嗎？你想要錢，是不是也得找主席啊？自願捐的款，還有往回要的嗎？
+
+11分57秒，“在此之前我自己有工作，在街邊要飯，在街邊開Uber，比你讓我留下來工作的工資高兩倍“。 ”一個月沒有八千，沒有一萬，你在紐約開Uber就是在混日子“。
+
+34分13秒起開始高能，“說我非法住地下室，娶了個妓女老婆，我倆加一起，都不夠路德一腳踹”，“我怎麼就非法住地下室了，你懂個X啊，懂個X啊”，“被你逼得沒辦法買房”
+
+聽到這裡，筆者一時語塞，不知道此人到底是可憐還是可恨。七哥怎麼就能逼得你沒辦法買房了？是像中共那樣搞了個P2P金融詐騙把你買房子的錢都騙沒了？原來是因為讓他到喜馬拉雅大使館工作，比他開Uber的工資低，讓他錢賺少了。紐約房價是什麼水平啊？就差這幾千美金就能買房了？暫且不說他是在碰瓷，大家都是成年人了，你自己買不了房，實在不應該怪別人吧？這只能說明你的人格不夠獨立。
+
+再往後就真的聽不下去了。就播音水平而言，嘴巴里就像拌了蒜似的，中文講得中國人聽著都費勁。前後表述毫無邏輯，能搶你飯碗的，恐怕不止路德一個人吧？
+
+另外，從莊烈宏放出的Whatsapp語音來看，七哥確實是把莊烈宏當作一個小兄弟，循循善誘，希望他可以在反共滅共的路上做出一番自己的事業。但後來的事情也證明了，莊烈宏的個人能力和道德品質，實在是硬傷。
+
+## 無恥之尤：背信棄義的畜生
+
+3月31日的那段直播中，莊烈宏各種詆毀爆料革命的戰友，為自己開脫，尚且屬於好壞之分。但隨後污衊香港運動，甚至爆出香港運動中學生動源召集人的個人信息，就徹底是人畜之別了。
+
+莊烈宏這個畜生居然說在香港動用卡車封路的行為是搞動亂？一個事件被定義為動亂的前提，是這個地區還有法治。當時的香港已經佈滿了中共的解放軍和警察，法治早已蕩然無存，何談動亂之說？更何況，用卡車封路的目的是為了阻止中共進香港殺人，分明就是一樁義舉。就事實而言，中共才是香港真正的動亂之源！
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/03192502/2-18.jpg)
+更為可恨的是，莊烈宏居然洩露了自己還身為一個人類的時候，在爆料革命內部獲得的重要信息，直接導致了香港的戰友被逮捕。莊烈宏的行為已經讓他完全站在了民族的對立面，將來就是秦檜的下場，要跪在香港千年。
+
+最後，筆者只想說，反共滅共這扇大旗的力量實在是太大了，只要戴上這頂帽子，雞犬都能升天。對於莊烈宏這樣的人來說，爆料革命本能成為他實現人生價值，完成自我救贖的絕佳機會，但是他卻在六道輪迴裡選擇了畜牲道，而其本人也必將自嘗苦果。
+
+（文章內容僅代表作者個人觀點）
 
 0
