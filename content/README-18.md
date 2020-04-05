@@ -12,6 +12,10 @@
 
 ## 頁面 18/25 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [25](/content/README-25.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180602-4228988724633844641.md)
+
+[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/05/20180531-5466761042269971935.md)
+
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180529-639277482984082138.md)
 
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
@@ -57,10 +61,6 @@
 [文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/2018/04/20180418-500002948561788779.md)
 
 [文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/content/2018/04/20180418-67355639840191064.md)
-
-[文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
-
-[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
 
 
 ## 頁面 18/25 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [25](/content/README-25.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
