@@ -61,6 +61,11 @@
 [https://www.guo.media/posts/277140](https://www.guo.media/posts/277140) `2020-04-05T03:40:29`
 ##
 
+**milesguo** 美国政府对伊朗核武器及冠状病毒疫情态度<br>https://gnews.org/zh-hans/161730/
+
+[https://www.guo.media/posts/277138](https://www.guo.media/posts/277138) `2020-04-05T03:55:25`
+##
+
 **milesguo** 假口罩防不了病毒，复工领不到工资！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/161690/
 
 [https://www.guo.media/posts/277136](https://www.guo.media/posts/277136) `2020-04-05T03:40:30`
@@ -146,6 +151,11 @@
 [https://www.guo.media/posts/277060](https://www.guo.media/posts/277060) `2020-04-05T03:25:33`
 ##
 
+**milesguo** 4.4中共全国性哀悼日 利用无数条死去的亡魂 来赞扬党的伟大！<br>https://gnews.org/zh-hans/161172/
+
+[https://www.guo.media/posts/277059](https://www.guo.media/posts/277059) `2020-04-05T03:55:27`
+##
+
 **milesguo** 弥天大谎是如何出炉的——必须摧毁全球美生物实验室！百余名医生致信6国元首：请马上行动<br>https://gnews.org/zh-hans/161091/
 
 [https://www.guo.media/posts/277057](https://www.guo.media/posts/277057) `2020-04-05T03:25:35`
@@ -164,6 +174,11 @@
 **milesguo** 《中共肺炎》英国新增684死 英国女王陛下5日将发表演说!<br>https://gnews.org/zh-hans/161025/
 
 [https://www.guo.media/posts/277054](https://www.guo.media/posts/277054) `2020-04-05T03:25:37`
+##
+
+**milesguo** 盘古大观之精、气、神<br>https://gnews.org/zh-hans/161006/
+
+[https://www.guo.media/posts/277053](https://www.guo.media/posts/277053) `2020-04-05T03:55:28`
 ##
 
 **milesguo** 日本乡下离岛涌入避难人潮 地方首长拜托没事别来<br>https://gnews.org/zh-hans/161002/
@@ -201,9 +216,24 @@
 [https://www.guo.media/posts/277036](https://www.guo.media/posts/277036) `2020-04-05T03:40:50`
 ##
 
+**milesguo** 川普二次化验结果显示对冠状病毒呈阴性<br>https://gnews.org/zh-hans/160889/
+
+[https://www.guo.media/posts/277035](https://www.guo.media/posts/277035) `2020-04-05T03:55:30`
+##
+
 **milesguo** 中共病毒感染或常表现为嗅觉与味觉丧失<br>https://gnews.org/zh-hans/160846/
 
 [https://www.guo.media/posts/277034](https://www.guo.media/posts/277034) `2020-04-05T03:25:44`
+##
+
+**milesguo** 【共产党病毒真相】4月3日视频合集<br>https://gnews.org/zh-hans/160808/
+
+[https://www.guo.media/posts/277032](https://www.guo.media/posts/277032) `2020-04-05T03:55:32`
+##
+
+**milesguo** 爆料革命已经公开地成为了中美之间的第三方力量<br>https://gnews.org/zh-hans/160773/
+
+[https://www.guo.media/posts/277030](https://www.guo.media/posts/277030) `2020-04-05T03:55:33`
 ##
 
 **milesguo** Pangu: an icon for Exposé Revolution, a symbol of freedom<br>https://gnews.org/161211/
@@ -219,6 +249,11 @@
 **milesguo** Hong Kong Government Fails to Update List of Household Quarantine Cases Since March 16<br>https://gnews.org/160819/
 
 [https://www.guo.media/posts/277022](https://www.guo.media/posts/277022) `2020-04-05T03:25:49`
+##
+
+**milesguo** District Councilor: Police are Abusing Anti-Crowding Laws to Arrest Citizens and Impose Political Pressure<br>https://gnews.org/160039/
+
+[https://www.guo.media/posts/277021](https://www.guo.media/posts/277021) `2020-04-05T03:55:35`
 ##
 
 **milesguo** Pittsburgh: UPMC doctors developed a coronavirus vaccine<br>https://gnews.org/160745/
@@ -249,6 +284,11 @@
 **milesguo** The Farm: U.S. Military COVID-19 Response (Mar, 31 2020)<br>https://gnews.org/160074/
 
 [https://www.guo.media/posts/277011](https://www.guo.media/posts/277011) `2020-04-05T03:25:54`
+##
+
+**milesguo** Third HK Police Officer Infected with Coronavirus; Public Hospitals Under Pressure<br>https://gnews.org/158105/
+
+[https://www.guo.media/posts/277010](https://www.guo.media/posts/277010) `2020-04-05T03:55:36`
 ##
 
 **milesguo** Fox: WHO covers for CCP<br>https://gnews.org/159791/
