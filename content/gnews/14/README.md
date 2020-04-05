@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度覺醒 訴中國政府製造生化武器
-`2020-04-05 03:29 GM09` [轉載自GNews](https://gnews.org/zh-hant/162538/)
+## 2020年4月4日世界多種語言CCP病毒疫情文字每日播報
+`2020-04-05 03:35 GM33` [轉載自GNews](https://gnews.org/zh-hant/162583/)
 
-作者：翻譯組拆毀有時建造有時
+CCP生產的假口罩；害死人不償命; CCP病毒死難者家屬口述真實境遇;美國號召全民戴口罩；新證據發現零號病人，請下載PDF 傳播
 
-印度國際司法協會（ICJ）及全印度 律師協會（AIBA）正式向聯合國人權理事會提出訴狀，訴中國政府暗中製造大規模殺傷性生化武器。
+[English0404\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033310/English0404_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033310/English0404_CCP_Virus_Updates.pdf)
 
-過去12小時內，印度共黨病毒確認案例增加302例，總數達到3,374例。與此同時 艾迪思·阿格瓦拉，印度司法協會會長，現任印度哈里亞納邦和旁遮普邦政府高級法律顧問正式向聯合國提交訴訟。”我們衷心的希望聯合國人權理事會能問責中國研發大規模殺傷性生化武器並要求中國對國際社會和理事國進行合理賠償，特別是對印度。”
+[French0404\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033320/French0404_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033320/French0404_CCP_Virus_Updates.pdf)
 
-艾迪思特別強調中國政府應該對造成世界各國公民的毀滅性的身心傷害，財務損失進行賠償。並提出對病毒來源的質疑，”為何中國病情沒有傳遍中國而病毒卻波及世界全部國家。這樣的推測只會增加新冠病毒是一個被精心組裝的一個生化武器的可能，旨在打擊世界多國經濟從而讓中國作收漁翁之利。”
+[French0404\_CCP\_Virus\_Updates-1](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033328/French0404_CCP_Virus_Updates-1.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033328/French0404_CCP_Virus_Updates-1.pdf)
 
-澳洲美國相繼有議員提出讓中國賠償的議案，俄羅斯總統普京也表示要追查真兇。追原、追責、已是各國不可避免的議題。我們拭目以待。
+[German0404\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033337/German0404_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033337/German0404_CCP_Virus_Updates.pdf)
 
-编者按：估計到時候連聯合國人權理事會一起審判了。
+[Japanese0404\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033350/Japanese0404_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033350/Japanese0404_CCP_Virus_Updates.pdf)
 
-来源：[https://gnews.org/162019/](https://gnews.org/162019/)
+[Spanish0404\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033403/Spanish0404_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05033403/Spanish0404_CCP_Virus_Updates.pdf)
 
 0
