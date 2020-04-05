@@ -1,37 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 無症狀感染者、復工與健康綠碼的關係——揭露中共的以假治國
-`2020-04-04 22:13 GM06` [轉載自GNews](https://gnews.org/zh-hant/162259/)
+## 【多語言圖文版】4月2日中共病毒疫情要聞快報
+`2020-04-04 23:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/162371/)
 
-作者:立武
+[**4.2每日要點-英文版-English**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231441/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231441/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-4月，中共開始公佈無症狀感染者的情況，在此之前，截至3月30日24時，中共報告的接受醫學觀察的無症狀感染者1541例，也就是這一部分患者此前不計入確診或疑似，存留在中共的秘密檔案裡，直到4月1日起，這類被中共單獨列出來的病例才開始報告。
+[**4.2每日要點-德語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231630/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231630/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)
 
-**4** **月** **1** **日，鐘南山稱，無法證實無症狀感染者是否有很高的傳染性，同時又明確表示，不會引起大爆發，這顯然是前後矛盾的地方。**在次日的一場新聞發布會上，中共疾控中心專家引用中華流行病學雜誌預印版的一篇文章，裡面提到無症狀傳染者的傳播效率是確診病例的三分之一，同時他指出這只是一個局部的研究。
+[**4.2每日要點-西班牙語-español**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231743/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231743/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-儘管該流行病學研究是局部的一個研究，仍然證明中共在局部展開過流行病學調查，同時該專家也提到在南方某省正在展開規模更大的研究。 **這種流行病學如果樣本太少，研究結論偏差太大無意義；如果樣本足夠大，則說明中共隱瞞了大量的無症狀感染者。事實上，從下面視頻裡某無症狀感染者稱** **100** **人裡出現** **6** **名無症狀感染者可以大致推斷，無症狀感染者的傳播性是不容小覷的。**
+[**4.2每日要點-韓語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232020/4.2%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232020/4.2%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88.pdf)
 
-> 无症状感染者，两边都是黄陂口音。
-> 感染着说，自己本来不晓得的，是之前复工体检查出来的。 [pic.twitter.com/jOuvtIt0a1](https://t.co/jOuvtIt0a1)
-> — Ray Lau (@fiteray) [April 4, 2020](https://twitter.com/fiteray/status/1246375758018129920?ref_src=twsrc%5Etfw)
+[**4.2每日要點-俄語版2-апреля.-Обновления-пандемии-вируса-КПК**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232149/2-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.-%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232149/2-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.-%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-而該專家提到的南方某省大概率是廣東。自從2月26日，中共開始推行健康碼，這樣的標識逐漸成為中國各地認證的一項標準，但隨著中共通報無症狀感染者，這種健康碼的意義僅僅在於排除確診病人。 **3** **月** **20** **日，中共允許湖北非武漢地區持有健康綠碼人員復工後，大量的湖北地區工人開始逐漸跨省返崗，特別是廣東地區。**
-
-根據3月26日中共的匯報（此時中共還未開始通報無症狀感染者），出現一名沒有明顯症狀的感染者，其核酸檢查和隨後的CT檢測均顯示陽性。該匯報還稱一共排查了接觸者70人，均有效隔離。
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04220655/70.png)
-姑且認為這接觸的70人確實排查並有效隔離，但接觸的是否僅僅是70人卻需要打一個問號。事實上，根據該匯報稱該無症狀感染者曾在1月23日接觸過確診病人，自那以後， **接觸的人員顯然不僅僅是** **70** **人** 。即使也不能確定一定是23日那天感染，從26日開始排查接觸人員顯然是縮小了接觸人員的數目。
-
-**問題在於，該感染者持有健康綠碼，而健康綠碼的發放並未考慮到無症狀感染者，甚至也未經過核酸、** **CT** **等檢測排查就放行出湖北，因為之前的標準是測量體溫，也就是出現發熱症狀，這些無症狀感染者已默認沒有感染而裝備有健康綠碼。**
-
-**此時，我們可以知道，中共在復工之前如果公佈無症狀感染者的情況，標準一改變，很可能導致許多人無法復工，無法替中共維持經濟，這也是中共一直等到4月才開始公佈無症狀感染者的原因，但中共卻“巧妙”地置換成“即使復工，中共也要保證人民的安全，也重視檢測排查”，而實際上，是“本來這些無症狀感染者早就應該排查，應該不復工”。**
-
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04221027/8.jpg)
-
-這是某全國性大型綜合類證券公司的複工通知，“優先安排業績落後人員現場辦公”的措辭先不論是否有歧視性，這句話的前提是，一定有不達到可以完全復工的條件使得需要優先區別對待。
-
-健康綠碼的標準隨著無症狀感染者的出現應該提升，但在已經大規模復工和出現該類患者很久的情況下，在不知道傳染性強弱的情況下，可能有大量的人已經是無症狀感染者，而這都應該歸咎於中共掩蓋疫情的真相。
-
-(文章內容僅代表作者個人觀點)
+[**4.2每日要點-芬蘭語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232529/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232529/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
 0
