@@ -11,6 +11,151 @@
 
 
 
+**milesguo** 《中共肺炎》中共肺炎解药大突破！ 澳洲科学家发现高剂量「伊维菌素」可杀死病毒将进行人体实验<br>https://gnews.org/zh-hans/162045/
+
+[https://www.guo.media/posts/277172](https://www.guo.media/posts/277172) `2020-04-05T03:25:12`
+##
+
+**milesguo** McCarthy议员谈小企业援助计划的启动<br>https://gnews.org/zh-hans/161935/
+
+[https://www.guo.media/posts/277171](https://www.guo.media/posts/277171) `2020-04-05T03:25:14`
+##
+
+**milesguo** 俄罗斯暂缓其国外公民回国<br>https://gnews.org/zh-hans/161970/
+
+[https://www.guo.media/posts/277170](https://www.guo.media/posts/277170) `2020-04-05T03:25:15`
+##
+
+**milesguo** 加德纳议员撰文称疫情是因为中共的无能和欺骗<br>https://gnews.org/zh-hans/161852/
+
+[https://www.guo.media/posts/277168](https://www.guo.media/posts/277168) `2020-04-05T03:25:17`
+##
+
+**milesguo** 中共借债还息频率已经开始接近“每日一借”<br>https://gnews.org/zh-hans/161871/
+
+[https://www.guo.media/posts/277147](https://www.guo.media/posts/277147) `2020-04-05T03:25:19`
+##
+
+**milesguo** 即红黄蓝事件后 中共上海青浦实验幼儿园男幼师竟让女童【舔棒子】！<br>https://gnews.org/zh-hans/161792/
+
+[https://www.guo.media/posts/277142](https://www.guo.media/posts/277142) `2020-04-05T03:25:20`
+##
+
+**milesguo** 一个假口罩可能毁灭一个家庭<br>https://gnews.org/zh-hans/161642/
+
+[https://www.guo.media/posts/277131](https://www.guo.media/posts/277131) `2020-04-05T03:25:23`
+##
+
+**milesguo** 文字版2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人<br>https://gnews.org/zh-hans/161588/
+
+[https://www.guo.media/posts/277088](https://www.guo.media/posts/277088) `2020-04-05T03:25:25`
+##
+
+**milesguo** War Room98：中共什么时候知道疫情的？<br>https://gnews.org/zh-hans/161485/
+
+[https://www.guo.media/posts/277075](https://www.guo.media/posts/277075) `2020-04-05T03:25:27`
+##
+
+**milesguo** 六谈火烧连营 ——也谈清明时节的上坟烧纸<br>https://gnews.org/zh-hans/161428/
+
+[https://www.guo.media/posts/277071](https://www.guo.media/posts/277071) `2020-04-05T03:25:28`
+##
+
+**milesguo** 纽约州长出4亿巨资从中共病毒国购买1.7万台呼吸机为哪般？<br>https://gnews.org/zh-hans/161377/
+
+[https://www.guo.media/posts/277065](https://www.guo.media/posts/277065) `2020-04-05T03:25:30`
+##
+
+**milesguo** Swagger：庄烈宏：无赖无耻之徒<br>https://gnews.org/zh-hans/161344/
+
+[https://www.guo.media/posts/277063](https://www.guo.media/posts/277063) `2020-04-05T03:25:32`
+##
+
+**milesguo** 无症状感染者是否会成为中共下一轮CCP冠状病毒暴发的背锅侠<br>https://gnews.org/zh-hans/161190/
+
+[https://www.guo.media/posts/277060](https://www.guo.media/posts/277060) `2020-04-05T03:25:33`
+##
+
+**milesguo** 弥天大谎是如何出炉的——必须摧毁全球美生物实验室！百余名医生致信6国元首：请马上行动<br>https://gnews.org/zh-hans/161091/
+
+[https://www.guo.media/posts/277057](https://www.guo.media/posts/277057) `2020-04-05T03:25:35`
+##
+
+**milesguo** 《中共肺炎》救救义大利！ 奉献半世纪义籍老神父泪求台湾人救家乡 台湾报恩！ 3天涌进善款600万<br>https://gnews.org/zh-hans/161071/
+
+[https://www.guo.media/posts/277056](https://www.guo.media/posts/277056) `2020-04-05T03:25:36`
+##
+
+**milesguo** 《中共肺炎》英国新增684死 英国女王陛下5日将发表演说!<br>https://gnews.org/zh-hans/161025/
+
+[https://www.guo.media/posts/277054](https://www.guo.media/posts/277054) `2020-04-05T03:25:37`
+##
+
+**milesguo** 日本乡下离岛涌入避难人潮 地方首长拜托没事别来<br>https://gnews.org/zh-hans/161002/
+
+[https://www.guo.media/posts/277052](https://www.guo.media/posts/277052) `2020-04-05T03:25:39`
+##
+
+**milesguo** 4月3号：尊敬的的战友们好：Take a look at GTV's events on Livestream．<br>http://livestream.com/accounts/27235681．明天4月4号上午9:30文贵乱聊直播，一切都已经开始！
+
+[https://www.guo.media/posts/277050](https://www.guo.media/posts/277050) `2020-04-05T03:25:41`
+##
+
+**milesguo** <br>Inty为何是“爆料革命最危险的敌人”？<br>https://gnews.org/zh-hans/160948/
+
+[https://www.guo.media/posts/277039](https://www.guo.media/posts/277039) `2020-04-05T03:25:42`
+##
+
+**milesguo** 中共病毒感染或常表现为嗅觉与味觉丧失<br>https://gnews.org/zh-hans/160846/
+
+[https://www.guo.media/posts/277034](https://www.guo.media/posts/277034) `2020-04-05T03:25:44`
+##
+
+**milesguo** Pangu: an icon for Exposé Revolution, a symbol of freedom<br>https://gnews.org/161211/
+
+[https://www.guo.media/posts/277025](https://www.guo.media/posts/277025) `2020-04-05T03:25:47`
+##
+
+**milesguo** Hong Kong Government Fails to Update List of Household Quarantine Cases Since March 16<br>https://gnews.org/160819/
+
+[https://www.guo.media/posts/277022](https://www.guo.media/posts/277022) `2020-04-05T03:25:49`
+##
+
+**milesguo** Pittsburgh: UPMC doctors developed a coronavirus vaccine<br>https://gnews.org/160745/
+
+[https://www.guo.media/posts/277020](https://www.guo.media/posts/277020) `2020-04-05T03:25:50`
+##
+
+**milesguo** CCP-virus cover-up? “promession” to dispose of dead bodies in Wuhan<br>https://gnews.org/160574/
+
+[https://www.guo.media/posts/277015](https://www.guo.media/posts/277015) `2020-04-05T03:25:52`
+##
+
+**milesguo** Trump: U.S. collects import tariffs from China as planned<br>https://gnews.org/160199/
+
+[https://www.guo.media/posts/277013](https://www.guo.media/posts/277013) `2020-04-05T03:25:53`
+##
+
+**milesguo** The Farm: U.S. Military COVID-19 Response (Mar, 31 2020)<br>https://gnews.org/160074/
+
+[https://www.guo.media/posts/277011](https://www.guo.media/posts/277011) `2020-04-05T03:25:54`
+##
+
+**milesguo** New Fantastic Tests<br>https://gnews.org/159714/
+
+[https://www.guo.media/posts/277008](https://www.guo.media/posts/277008) `2020-04-05T03:25:56`
+##
+
+**milesguo** Error rate of Chinese Rapid test kits for COVID-19 is 80%, Chinese Foreign Ministry blames Czech for improper use<br>https://gnews.org/158356/
+
+[https://www.guo.media/posts/277006](https://www.guo.media/posts/277006) `2020-04-05T03:25:57`
+##
+
+**milesguo** Charge of Seditious Intention Has political meaning: Might trigger a time bomb for HK government<br>https://gnews.org/157565/
+
+[https://www.guo.media/posts/277004](https://www.guo.media/posts/277004) `2020-04-05T03:25:59`
+##
+
 **milesguo** 2020年4月2日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/160461/
 
 [https://www.guo.media/posts/276955](https://www.guo.media/posts/276955) `2020-04-03T05:10:11`
@@ -684,70 +829,5 @@
 **milesguo** 3月30号：尊敬的战友们好，GTV's http://livestream.com/accounts/27235681．明天3月31号上午9:30左右，文贵乱聊直播！衷心的感谢．这位伟大战友给郭媒体汇来的10,000,000美元！一千万美元．……你对G媒体的要求⋯和对G-TV的希望，我们都已经明白了！我们的目标是一致的！我们将全力以赴去实现我们的共同目标，另外你要支付的四千万美元，请你一定要在我们一起和G-TV，GNEWS 等有一定的成就以后．再来支持我们．莘县阳谷县搭县我们会用结果给你看！！！！！！一切都已经开始！
 
 [https://www.guo.media/posts/276635](https://www.guo.media/posts/276635) `2020-03-30T23:11:22`
-##
-
-**milesguo** 〘实证与图〙最早的呼喊：“疫情很危险，千万不要信CCP 和WHO”<br>https://gnews.org/zh-hans/156632/
-
-[https://www.guo.media/posts/276555](https://www.guo.media/posts/276555) `2020-03-30T07:56:04`
-##
-
-**milesguo** 2020年3月29日CCP冠状病毒大流行第65集<br>https://gnews.org/zh-hans/156637/
-
-[https://www.guo.media/posts/276542](https://www.guo.media/posts/276542) `2020-03-30T08:55:12`
-##
-
-**milesguo** 孤独的经济全球化被中共病毒意外一击<br>https://gnews.org/zh-hans/155482/
-
-[https://www.guo.media/posts/276541](https://www.guo.media/posts/276541) `2020-03-30T09:40:26`
-##
-
-**milesguo** 中共“假汉坦病毒”的阴谋？<br>https://gnews.org/zh-hans/156550/
-
-[https://www.guo.media/posts/276540](https://www.guo.media/posts/276540) `2020-03-30T08:10:14`
-##
-
-**milesguo** 复课在即，年轻人真的不容易感染吗<br>https://gnews.org/zh-hans/156516/
-
-[https://www.guo.media/posts/276539](https://www.guo.media/posts/276539) `2020-03-30T08:55:14`
-##
-
-**milesguo** 共产党的铁哥们俄罗斯给共产党的伤口上撒了把盐<br>https://gnews.org/zh-hans/156497/
-
-[https://www.guo.media/posts/276538](https://www.guo.media/posts/276538) `2020-03-30T08:10:16`
-##
-
-**milesguo** 共产党在武汉实施的离奇检测实验！检测结果更让人匪夷所思！<br>https://gnews.org/zh-hans/156419/
-
-[https://www.guo.media/posts/276537](https://www.guo.media/posts/276537) `2020-03-30T08:55:16`
-##
-
-**milesguo** 2020年3月18日灭共者说中文字幕合集（上）<br>https://gnews.org/zh-hans/156309/
-
-[https://www.guo.media/posts/276536](https://www.guo.media/posts/276536) `2020-03-30T08:10:18`
-##
-
-**milesguo** 史蒂夫·班农：中共必须解释清楚所有关于中共病毒的问题，否则不会有下一阶段的贸易协议<br>https://gnews.org/zh-hans/156281/
-
-[https://www.guo.media/posts/276535](https://www.guo.media/posts/276535) `2020-03-30T08:40:13`
-##
-
-**milesguo** <br>CCP早有预谋，五年前军事学院教授讲解生化武器<br>https://gnews.org/zh-hans/156285/
-
-[https://www.guo.media/posts/276534](https://www.guo.media/posts/276534) `2020-03-30T08:10:19`
-##
-
-**milesguo** 川普总统：美国海军 Comfort 号出发前往纽约<br>https://gnews.org/zh-hans/156273/
-
-[https://www.guo.media/posts/276533](https://www.guo.media/posts/276533) `2020-03-30T07:56:08`
-##
-
-**milesguo** 郭文贵先生：香港将成为新中国的耶路撒冷<br>https://gnews.org/zh-hans/156257/
-
-[https://www.guo.media/posts/276531](https://www.guo.media/posts/276531) `2020-03-30T08:40:15`
-##
-
-**milesguo** 3月29 日 尊敬的战友们好，下面是我们对庄烈宏采取的法律行动，请大家高度关注。请战友们要永远相信我们的爆料革命唯真不破，从不会放过一个伤害我们的人，也不会忘掉一个帮助过我们的恩人，这就是爆料革命的原则。任何伤害爆料革命和战友的，无论我们给你多少机会，当你越过了红线的时候，我们在美国，一定用美国的法律系统捍卫我们战友的尊严和战友家人的安全和尊严，捍卫爆料革命的信用。为此，我们永远会在不抛弃，不放弃，不背弃战友的原则上，捍卫郭七条！<br>一切都已经开始！
-
-[https://www.guo.media/posts/276523](https://www.guo.media/posts/276523) `2020-03-30T07:56:11`
 ##
 
