@@ -11,6 +11,26 @@
 
 
 
+**milesguo** 小谈如何识别中共假医用口罩<br>https://gnews.org/zh-hans/162266/
+
+[https://www.guo.media/posts/277188](https://www.guo.media/posts/277188) `2020-04-05T05:25:15`
+##
+
+**milesguo** 无症状感染者、复工与健康绿码的关系——揭露中共的以假治国<br>https://gnews.org/zh-hans/162243/
+
+[https://www.guo.media/posts/277187](https://www.guo.media/posts/277187) `2020-04-05T05:25:16`
+##
+
+**milesguo** 真正的大国战疫！——美国纽约抗疫实情<br>https://gnews.org/zh-hans/162194/
+
+[https://www.guo.media/posts/277186](https://www.guo.media/posts/277186) `2020-04-05T05:25:17`
+##
+
+**milesguo** War Room101：比尔·格茨揭底中共病毒的起源<br>https://gnews.org/zh-hans/162230/
+
+[https://www.guo.media/posts/277184](https://www.guo.media/posts/277184) `2020-04-05T05:25:19`
+##
+
 **milesguo** 《中共肺炎》中共肺炎解药大突破！ 澳洲科学家发现高剂量「伊维菌素」可杀死病毒将进行人体实验<br>https://gnews.org/zh-hans/162045/
 
 [https://www.guo.media/posts/277172](https://www.guo.media/posts/277172) `2020-04-05T03:25:12`
@@ -129,6 +149,11 @@
 **milesguo** 纽约州长出4亿巨资从中共病毒国购买1.7万台呼吸机为哪般？<br>https://gnews.org/zh-hans/161377/
 
 [https://www.guo.media/posts/277065](https://www.guo.media/posts/277065) `2020-04-05T03:25:30`
+##
+
+**milesguo** 中共国流动性问题突显调低存款利率你敢吗<br>https://gnews.org/zh-hans/161367/
+
+[https://www.guo.media/posts/277064](https://www.guo.media/posts/277064) `2020-04-05T05:25:21`
 ##
 
 **milesguo** Swagger：庄烈宏：无赖无耻之徒<br>https://gnews.org/zh-hans/161344/
