@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/277186](https://www.guo.media/posts/277186) `2020-04-05T05:25:17`
 ##
 
+**milesguo** 中共3F计划的假口罩外交<br>https://gnews.org/zh-hans/162213/
+
+[https://www.guo.media/posts/277185](https://www.guo.media/posts/277185) `2020-04-05T05:55:14`
+##
+
 **milesguo** War Room101：比尔·格茨揭底中共病毒的起源<br>https://gnews.org/zh-hans/162230/
 
 [https://www.guo.media/posts/277184](https://www.guo.media/posts/277184) `2020-04-05T05:25:19`
