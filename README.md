@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 菩萨心肠 霹雳手段 有感郭文贵先生对一众伪类的拯救与惩戒<br>https://gnews.org/zh-hans/162513/
+
+[https://www.guo.media/posts/277229](https://www.guo.media/posts/277229) `2020-04-05T17:10:14`
+##
+
+**milesguo** 《中共肺炎》女医生超速被拦下盘查 警看证件不罚还给5个N95口罩!<br>https://gnews.org/zh-hans/162522/
+
+[https://www.guo.media/posts/277228](https://www.guo.media/posts/277228) `2020-04-05T17:10:15`
+##
+
+**milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
+
+[https://www.guo.media/posts/277223](https://www.guo.media/posts/277223) `2020-04-05T17:10:17`
+##
+
 **milesguo** 八角棒槌：做一枚灭共的硬柿子，谁也捏不动<br>https://gnews.org/zh-hans/162313/
 
 [https://www.guo.media/posts/277221](https://www.guo.media/posts/277221) `2020-04-05T16:40:14`
