@@ -296,6 +296,11 @@
 [https://www.guo.media/posts/277013](https://www.guo.media/posts/277013) `2020-04-05T03:25:53`
 ##
 
+**milesguo** CCP slanders Bannon is “political virus”<br>https://gnews.org/160159/
+
+[https://www.guo.media/posts/277012](https://www.guo.media/posts/277012) `2020-04-05T04:25:23`
+##
+
 **milesguo** The Farm: U.S. Military COVID-19 Response (Mar, 31 2020)<br>https://gnews.org/160074/
 
 [https://www.guo.media/posts/277011](https://www.guo.media/posts/277011) `2020-04-05T03:25:54`
