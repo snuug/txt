@@ -1,24 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FDA應用了緊急使用授權批准首個冠狀病毒抗體測試套件
-`2020-04-04 11:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/162027/)
+## 《中共肺炎》中共肺炎解藥大突破！澳洲科學家發現高劑量「伊維菌素」可殺死病毒將進行人體實驗
+`2020-04-04 12:09 GM15` [轉載自GNews](https://gnews.org/zh-hant/162040/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04114130/FDA%E6%89%B9%E5%87%86%E9%A6%96%E4%B8%AA%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E6%8A%97%E4%BD%93%E6%B5%8B%E8%AF%95%E5%A5%97%E4%BB%B6.jpg)
-據華盛頓時報-2020年4月3日報導，FDA批准了Cellex公司的中共冠狀病毒抗體測試套件，人們可以通過快速驗血檢查自己是否感染過病毒而且產生了抗體。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04120536/phpKWS6QL.jpg)
+武漢肺炎疫情全球爆發，全球感染人數逼近110萬，死亡人數直逼6萬大關，各地努力研究解藥和疫苗。根據《雪梨晨驅報》報導，由莫納什生物醫學研究所（Monash Biomedicine Discovery Institute）和彼得多哈堤傳染及免疫研究所（ Peter Doherty Institute of Infection and Immunity）聯合研究發現，傳統用於對付頭蝨等寄生蟲的伊維菌素（ivermectin）在使用高劑量的情況下，可有效阻止中共肺炎病毒在細胞培養皿中生長。
 
-美國食品藥品監督管理局（US Food and Drug Administration）第一次應用了緊急使用授權，批准了用於快速血液檢查的測試套件以檢測針對中共冠狀病毒的抗體，該抗體是由新型冠狀病毒引起的，從該疾病中康復的人們的血液中可以檢測到。
+根據《[雪梨晨驅報](https://www.smh.com.au/national/australian-scientists-discover-head-lice-drug-kills-coronavirus-in-lab-20200404-p54h15.html)》報導，澳洲莫納什大學領導的一項研究顯示，傳統用來殺死寄生蟲的伊維菌素（ivermectin）在高劑量的使用下，可於48小時內殺死武漢肺炎病毒。雖然過往經驗顯示實驗室結果和實際應用在人體上的效果相差甚遠。但莫納什生物醫學研究所的瓦格斯塔夫（Kylie Wagstaff）博士表示，伊維菌素在世界衛生組織的基本藥物清單中，已被廣泛使用許久，目前為止被認為對人體威脅性低。
 
-識別與新型冠狀病毒相關的抗體，對幫助公共衛生官員確定病毒的傳播範圍，確定誰產生了免疫反應以及幫助科學家製造疫苗非常重要。 FDA緊急使用授權是應生物技術公司Cellex的要求而進行的，Cellex在中國設有兩個辦事處，其美國總部位於北卡羅來納州的Research Triangle Park。
+雖然目前尚不清楚伊維菌素如何對抗武漢肺炎病毒，但這種藥物似乎能夠有效地阻斷漢肺炎病毒自身的防禦，讓病毒無法抑制塑主自身免疫系統對他的攻擊。該結論已發表在《抗病毒研究》（Antiviral Research）雜誌上。下一步，科學家們將確定合適人體使用的劑量。據科學家們初步預計，至少還需1個月才能進行人體試驗。瓦格斯塔夫（Kylie Wagstaff）博士說這需要資金進行臨床前測試和臨床試驗。
 
-該測試只能在授權實驗室中進行分析，目的是檢測兩種與新型冠狀病毒反應產生的抗體-免疫球蛋白M [IgM]和免疫球蛋白G [IgG]。可在開始測試後15-20分鐘確定結果。 FDA指出，雖然IgM抗體“在初次感染後數天即可檢測到，但IgG抗體”在感染一段時間後才可檢測到”。
+而新聞報導一出，維多利亞州衛生部長米卡科斯（Jenny Mikakos）也呼籲大眾，伊維菌素仍是「處方用藥」，千萬不要私自使用，她表示坊間的伊維菌素主要是用於治療頭蝨，劑量也不足以殺死武漢肺炎病毒，使用不當反將導致嚴重後果。
 
-該測試與用於確定患者是否患有中共冠狀病毒活躍病例的測試是不同的。中國和新加坡等國家已經在進行抗體測試。據《Telluride Daily Planet》報導，在科羅拉多州的聖米格爾縣，該鎮已提議使用ELISA血液測試對任何居民進行冠狀病毒抗體測試。
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3122759)
 
-彼得·安特維（Peter Antevy）博士星期四在Twitter上發布他自身的第一個測試結果為陽性。表明他已經感染過中共冠狀病毒而且身體產生了抗體。他曾在一月份患“流感樣疾病”。
-
-[原文鏈接](https://www.washingtontimes.com/news/2020/apr/3/fda-gives-emergency-authorization-first-coronaviru/)
-
-翻譯報導：佚名
+GM15
 
 0

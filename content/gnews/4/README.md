@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月2日中共病毒疫情要聞快報
-`2020-04-04 23:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/162371/)
+## 八角棒槌：做一枚滅共的硬柿子，誰也捏不動
+`2020-04-04 23:44 GM06` [轉載自GNews](https://gnews.org/zh-hant/162378/)
 
-[**4.2每日要點-英文版-English**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231441/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231441/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+作者：八角棒槌
 
-[**4.2每日要點-德語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231630/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231630/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)
+四月四日的GTV直播中，文貴先生對後續全球滅共的形勢給出了判斷。八十國聯軍，以及對中共的斬首行動並非危言聳聽，對這兩件即將發生的事，我想緊跟爆料革命的堅定戰友們都深信不疑。在滅共的信心上，我老覺得我們是硬柿子，儘管數目眾多，卻混在了為數更多的不夠硬或軟綿的柿子堆中。我們擁有足以引以為豪的優勢，不信大可隨便找誰來捏上一捏，可是這樣的豪言軟柿子也能說：看到沒，美國不行呀，最後還得靠中共國。
 
-[**4.2每日要點-西班牙語-español**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231743/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04231743/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
+由於地理位置或關係紐帶的緣故，不少堅定戰友的身邊，父母也好，七大姑八大姨也罷，因顧惜之情仔細斟酌一番後，一句話或一個電話過去，換回的往往是幾分鐘後的氣憤不已，以及最後無奈地兩手一攤，完全沒轍。直播裡，文貴先生談到了他的同學，不免讓我意識到，當前每一枚硬柿子所處的環境恐怕都差不多。至於那些聽似自信的豪言，好比被爹媽胖揍了一頓的熊孩兒，事後因爹媽溫柔的撫摸正在幸福著。可是一旦你進到孩子的角色裡，馬上就會察覺到，連是被誰揍了自己都不知情，所以這個比方並不恰當，因為現實顯然更為不幸。
 
-[**4.2每日要點-韓語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232020/4.2%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232020/4.2%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88.pdf)
+大多數人正在跟著中共盲目向前衝。過程中他們個個溫軟如玉，哪個部位被官老爺輕輕一捏，哪個部位便會順從地凹陷，從此再也無力彈起。此景的重點不在於象徵著什麼，而在於它的本來已存在的現實意義。這層意義導致盲奔者們的身段產生了劇烈變形，倘若官老爺們沒那麼多，抑或他們能提前看到終點的懸崖，也不至於落後至此境地。這就是說他們需要的是幫助——當務之急是推倒防火牆——，而不是鼓勵。然而，當我只執著於自己的立場時，就永遠發現不了我也是他們幫助的目標。就因為我先是停了下來，並咬著牙堅持站立，進而掉轉頭大反其道而行，相信起點那裡才有活路，才有我苦苦追尋的真理。而他們始終認為我需要幫助只是因為他們人多，人多才是真理，才能活命。
 
-[**4.2每日要點-俄語版2-апреля.-Обновления-пандемии-вируса-КПК**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232149/2-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.-%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232149/2-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.-%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04233411/1-36.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04233422/2-22.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04233433/3-18.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04233443/4-15.jpg)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04233453/5-5.jpg)
 
-[**4.2每日要點-芬蘭語版**](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232529/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/04232529/4.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
+
+他們在付諸於口頭上的幫助時，不僅收穫了存在，還滿足了他們的得意。從此以後，這份晴朗的心情將持續伴隨其疲憊的身子，直到衝進滑鐵盧之溝。人啊，只記住廣袤卻忘了思想的屬性，就再也不能集中註意力，於是便求助於迷信。如此一來，共產黨的倒台就有了一定的象徵性，因為主體正是每位盲奔者自己。等中共在他們眼皮子底下掛掉，我很難保證他們敢於面對自己受騙的事實，因此與其說胡塗，不如說是不敢面對自己。假如此推斷無誤，那麼像Inty、肛裂紅、曾宏、雞腿潘等一眾偽類們，其危害勢必就會產生一種很壞的副作用，導致一些不夠硬的戰友最終因負自己的氣而離隊。
+
+另外在直播中，文貴先生提到了一些現象，雖然沒有說出來，但表達的意思大致可總結成三點。其一是提醒在滅共的征程中，不把時間流變的因素考慮進去，忽略了事態的動變過程，這幾乎等同於迷信。給一個確定的時間點，並為一件事在此時間點會不會發生而負責，然後全部人坐在板凳上，邊吃瓜邊巴望著奇蹟的發生。如果爆料革命整成這樣，我看就不止是中共邪惡，而且我們也有病。所以文貴先生才會說我沒有承諾，我只是正在做，強調了行動的重要性。對我自己而言，雖然遠遠不及一天十幾個小時的工作量，一倒在計算機前就能睡著，但起碼還懂得先正名後做事有悖處世之道。
+
+因此一有想法我就寫，沒想法時絕不會先向大家宣布，說我將有個想法，並將會寫。昨天看到一個材料，標題一口氣不大能念下來：武漢市人民政府辦公廳關於印發武漢市人民政府消費券投放工作方案的通知，剛好映證了文貴先生談到的供銷社和消費券。其種類涉及到四個領域，其中餐飲消費券1.5億，商場消費券1.7億，超市（便利店）0.6億，文體旅遊消費券1.2億，共計5億元人民幣。同時阿里巴巴、美團和騰訊等三家電商共同配比投放18億元平台和商戶消費券。在我看來，這是個要錢還是要命的選擇題，可是再仔細一想，才發現並不是，而是一道命令：既要你的錢還要你的命，同時還得要你跪在地上，高喊我主聖明。
+
+（文章內容僅代表作者個人觀點）
 
 0
