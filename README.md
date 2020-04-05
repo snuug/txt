@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/277226](https://www.guo.media/posts/277226) `2020-04-05T17:25:23`
 ##
 
+**milesguo** <br>高考真的比你的生命更重要吗？<br>https://gnews.org/zh-hans/162479/
+
+[https://www.guo.media/posts/277225](https://www.guo.media/posts/277225) `2020-04-05T18:10:13`
+##
+
 **milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
 
 [https://www.guo.media/posts/277224](https://www.guo.media/posts/277224) `2020-04-05T17:25:25`
