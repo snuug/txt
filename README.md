@@ -211,6 +211,11 @@
 [https://www.guo.media/posts/277038](https://www.guo.media/posts/277038) `2020-04-05T03:40:49`
 ##
 
+**milesguo** 川普总统：美国情报界透露，中共病毒数据都是假的<br>https://gnews.org/zh-hans/160923/
+
+[https://www.guo.media/posts/277037](https://www.guo.media/posts/277037) `2020-04-05T04:10:15`
+##
+
 **milesguo** 郭文贵先生：帝国快要没落的时候就是考验战友信仰、意志的时候<br>https://gnews.org/zh-hans/160905/
 
 [https://www.guo.media/posts/277036](https://www.guo.media/posts/277036) `2020-04-05T03:40:50`
@@ -226,9 +231,19 @@
 [https://www.guo.media/posts/277034](https://www.guo.media/posts/277034) `2020-04-05T03:25:44`
 ##
 
+**milesguo** 日本14个都道府县26处发生 聚集性感染<br>https://gnews.org/zh-hans/160831/
+
+[https://www.guo.media/posts/277033](https://www.guo.media/posts/277033) `2020-04-05T04:10:16`
+##
+
 **milesguo** 【共产党病毒真相】4月3日视频合集<br>https://gnews.org/zh-hans/160808/
 
 [https://www.guo.media/posts/277032](https://www.guo.media/posts/277032) `2020-04-05T03:55:32`
+##
+
+**milesguo** 工厂为什么会产劣质口罩？还有人回收口罩？“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/160800/
+
+[https://www.guo.media/posts/277031](https://www.guo.media/posts/277031) `2020-04-05T04:10:19`
 ##
 
 **milesguo** 爆料革命已经公开地成为了中美之间的第三方力量<br>https://gnews.org/zh-hans/160773/
@@ -299,6 +314,11 @@
 **milesguo** New Fantastic Tests<br>https://gnews.org/159714/
 
 [https://www.guo.media/posts/277008](https://www.guo.media/posts/277008) `2020-04-05T03:25:56`
+##
+
+**milesguo** Internet & Phone Companies doing a tremendous job<br>https://gnews.org/159150/
+
+[https://www.guo.media/posts/277007](https://www.guo.media/posts/277007) `2020-04-05T04:10:21`
 ##
 
 **milesguo** Error rate of Chinese Rapid test kits for COVID-19 is 80%, Chinese Foreign Ministry blames Czech for improper use<br>https://gnews.org/158356/
