@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/277184](https://www.guo.media/posts/277184) `2020-04-05T05:25:19`
 ##
 
+**milesguo** 世界粮食供需平衡摇摇欲坠共产党你怕不怕<br>https://gnews.org/zh-hans/162165/
+
+[https://www.guo.media/posts/277183](https://www.guo.media/posts/277183) `2020-04-05T06:25:12`
+##
+
 **milesguo** 《中共肺炎》中共肺炎解药大突破！ 澳洲科学家发现高剂量「伊维菌素」可杀死病毒将进行人体实验<br>https://gnews.org/zh-hans/162045/
 
 [https://www.guo.media/posts/277172](https://www.guo.media/posts/277172) `2020-04-05T03:25:12`
