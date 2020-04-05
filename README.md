@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 八角棒槌：做一枚灭共的硬柿子，谁也捏不动<br>https://gnews.org/zh-hans/162313/
+
+[https://www.guo.media/posts/277221](https://www.guo.media/posts/277221) `2020-04-05T16:40:14`
+##
+
 **milesguo** 小谈如何识别中共假医用口罩<br>https://gnews.org/zh-hans/162266/
 
 [https://www.guo.media/posts/277188](https://www.guo.media/posts/277188) `2020-04-05T05:25:15`
