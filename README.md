@@ -21,9 +21,24 @@
 [https://www.guo.media/posts/277228](https://www.guo.media/posts/277228) `2020-04-05T17:10:15`
 ##
 
+**milesguo** 2020年4月4日CCP冠状病毒大流行第71集<br>https://gnews.org/zh-hans/162470/
+
+[https://www.guo.media/posts/277226](https://www.guo.media/posts/277226) `2020-04-05T17:25:23`
+##
+
+**milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
+
+[https://www.guo.media/posts/277224](https://www.guo.media/posts/277224) `2020-04-05T17:25:25`
+##
+
 **milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
 
 [https://www.guo.media/posts/277223](https://www.guo.media/posts/277223) `2020-04-05T17:10:17`
+##
+
+**milesguo** 硫酸羟氯奎将改变整个“游戏”<br>https://gnews.org/zh-hans/162407/
+
+[https://www.guo.media/posts/277222](https://www.guo.media/posts/277222) `2020-04-05T17:25:27`
 ##
 
 **milesguo** 八角棒槌：做一枚灭共的硬柿子，谁也捏不动<br>https://gnews.org/zh-hans/162313/
