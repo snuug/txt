@@ -1,23 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月3日中共病毒疫情要聞快報
-`2020-04-06 01:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163419/)
+## 共產黨利用死去的亡靈！歌頌共黨永遠的偉光正！
+`2020-04-06 01:34 灭共日记` [轉載自GNews](https://gnews.org/zh-hant/163440/)
 
-[4.3-每日要點-英語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004801/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004801/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
+作者：滅共日記
 
-[4.3-每日要點-日語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004851/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004851/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+昨天是404，是共產黨為新冠肺炎疫情鬥爭犧牲烈士和逝世同胞舉行的全國性哀悼活動！昨天一早我打開手機就發現抖音不能刷了，遊戲停服了，就連我媽願意玩的消消樂都無法登錄了，各大網站瀏覽器界面統一換成灰色，QQ空間和朋友圈被深切哀悼抗疫烈士和逝世同胞的言論配圖刷屏了。微博知乎404話題也上了熱搜，佔據榜首。手機輸入法和日曆都自動提醒這個重要的日子。這個全民哀悼，到底是要幹嘛呢？
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06013255/1-40.jpg)
+共產黨真的很喜歡搞這種帶有國家與民族主義色彩的集體儀式。也是共產黨愚民的一種方法，可以讓你受教育，可以讓你有想法，但是必須是黨說的算的教育，必須是黨給你的想法，必須與黨保持一致。就像昨天的全國哀悼日，就是黨讓你哭，你必須哭，黨讓你笑，你也必須笑，禁止一切娛樂，強迫老百姓統一去哀悼。很多人會在集體默哀中被打動，然後被催化出真實的情緒。我不反對，人一生是需要一些形式，需要一些儀式感。但是悼念這個事不需要表演。悼念，應該是發自於內心，尊重也應該發自內心。如果我想哭，那我會哭。你給我定個時間讓我去難過，我絕對不接受。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06013304/2-26.jpg)
+而在我看來，昨天的404哀悼日絕對是來搞笑的，貓哭耗子，李文亮和紅十字會，老百姓這麼快就忘了？想想當初的吹哨人李文亮，在微信群發布“冠狀病毒感染確定了，正在進行病毒分型”，1月3日，直接被公安訓誡處罰，直到最後死的不明不白。如果中共當時不對這件事情進行輿論控制，不隱瞞真相，現在全世界也就不可能死這麼多人，如果當時老百姓聽李文亮說的話，事情就不會發展到今天這個地步。再看看昨天朋友圈，滿滿的都是正能量，發些什麼醫生辛苦了，什麼默哀三分鐘感覺快哭出來了，黨和政府永遠光偉正，感謝政府為我們撐起了一片天空等等。我就納悶了，我們應該感謝的不應該是那些吹哨人嗎？而不是黨和政府吧！別忘記病毒到底是誰研製的？當初是誰說，那些說實話的人造謠的？是誰瞞報真實死亡數據誤導全世界的？
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06013314/3-20.jpg)
+最搞笑的是所有人都傻里巴嘰的跟風轉發和點贊，人的緬懷與苦痛確實需要一些形式把它表現出來，但是有多少人是上午還沉浸其中，晚上就翹首以待的等待12點的過去？與其讓全國人民陪著一起做這些有的沒的的表面文章，能不能來點實際的？別老弄些墳頭蹦迪，骨灰拌飯，棺板衝浪，喪宴烤屍，病房搖滾，靈堂拍片這些對於中共來說家常便飯的事情！說是哀悼日不如說是跪舔日，所有媒體都是在舔黨舔政府。我看了都想笑，共產黨把所有網站弄的像靈堂一樣全網都是黑白屏，就連黃色的小網站都變成灰色的了，藉著哀悼日全屏鋪滿洗腦新聞，今天我看各大視頻網站上昨天的新聞還是頭版，這是權力一步步擴張的一個過程，估計接下來就是常態化，過不了幾天就是全屏洗腦新聞，正常的內容全面被刪了。
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06013324/4-17.jpg)
+共產黨這就是人活著的時候你們不好好救治，人死了你弄個這樣的哀悼日，你這是做給人看，還是做給鬼看？明明是共產黨害死那些人，如果不是中共製造病毒，一直打壓消息和疫情，那些人怎麼會死？現在又貓哭耗子假慈悲的搞什麼哀悼日。這就像一個殺人犯，自己殺完人還讓其他人和他一起哀悼，假裝不是自己殺的一樣。噁心就噁心在還有很多小粉紅認為默哀是對的，相信共產黨公佈的死亡數據，真不知道這些人的腦子裡裝的是不是屎，共產黨不公開死亡數字，就是在利用死去的亡靈粉飾太平，就是對死者的利用和侮辱。最後導致那些真正的英雄，成為了中共政治作秀的犧牲品！全國的鳴笛，都不如當初李文亮的一聲哨聲！
 
-[4.3-每日要點-法語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004918/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004918/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)
-
-[4.3-每日要點-俄語版-3-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004942/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-3-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004942/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-3-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
-
-[4.3-每日要點-芬蘭語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005005/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005005/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
-
-[4.3-每日要點-西班牙語-español.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005027/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005027/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf.pdf)
-
-[4.3-每日要點-韓語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005050/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E9%9F%A9%E8%AF%AD%E7%89%88.pdf)[Download](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005050/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E9%9F%A9%E8%AF%AD%E7%89%88.pdf)
-
-
+GNEWS之前文章： 
+高考真的比你的生命更重要嗎？ [https://gnews.org/zh-hans/162479/](https://gnews.org/zh-hans/162479/) 
+ 4.4中共全國性哀悼日[https://gnews.org/zh-hans/161172/](https://gnews.org/zh-hans/161172/) 
+共產黨闢謠說口糧絕對充足[https://gnews.org/zh-hans/160601/](https://gnews.org/zh-hans/160601/) 
+中共黨式救火[https://gnews.org/zh-hans/160219/](https://gnews.org/zh-hans/160219/) 
+你怎麼看待中國假疫苗事件？ [https://gnews.org/zh-hans/159539/](https://gnews.org/zh-hans/159539/)
 
 0
