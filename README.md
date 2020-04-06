@@ -11,6 +11,16 @@
 
 
 
+**milesguo** 俄罗斯一定会拉上美国一起减产石油<br>https://gnews.org/zh-hans/163266/
+
+[https://www.guo.media/posts/277270](https://www.guo.media/posts/277270) `2020-04-06T06:40:13`
+##
+
+**milesguo** CCP病毒时间线<br>https://gnews.org/zh-hans/163253/
+
+[https://www.guo.media/posts/277269](https://www.guo.media/posts/277269) `2020-04-06T06:40:16`
+##
+
 **milesguo** War Room101：要对这些家伙进行纽伦堡式的审判<br>https://gnews.org/zh-hans/163233/
 
 [https://www.guo.media/posts/277268](https://www.guo.media/posts/277268) `2020-04-06T05:55:30`
