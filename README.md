@@ -11,6 +11,41 @@
 
 
 
+**milesguo** War Room101：要对这些家伙进行纽伦堡式的审判<br>https://gnews.org/zh-hans/163233/
+
+[https://www.guo.media/posts/277268](https://www.guo.media/posts/277268) `2020-04-06T05:55:30`
+##
+
+**milesguo** 美国政要推文精选 0404<br>https://gnews.org/zh-hans/163175/
+
+[https://www.guo.media/posts/277267](https://www.guo.media/posts/277267) `2020-04-06T05:55:32`
+##
+
+**milesguo** 听郭文贵先生讲中共制造的三次大跃进有感<br>https://gnews.org/zh-hans/163103/
+
+[https://www.guo.media/posts/277266](https://www.guo.media/posts/277266) `2020-04-06T05:55:33`
+##
+
+**milesguo** 斯蒂夫.班农先生周日做客foxnews: 再谈中共必须对当下全球肆虐的CCPvirus负责！<br>https://gnews.org/zh-hans/163083/
+
+[https://www.guo.media/posts/277265](https://www.guo.media/posts/277265) `2020-04-06T05:55:34`
+##
+
+**milesguo** 美国情报官员怀疑中共在中共冠状病毒疫情死亡人数上造假<br>https://gnews.org/zh-hans/162913/
+
+[https://www.guo.media/posts/277264](https://www.guo.media/posts/277264) `2020-04-06T05:55:36`
+##
+
+**milesguo** 前美国司法部长表示是时候解决因中共的撒谎导致全世界灾难的问题了<br>https://gnews.org/zh-hans/162904/
+
+[https://www.guo.media/posts/277263](https://www.guo.media/posts/277263) `2020-04-06T05:55:37`
+##
+
+**milesguo** 2020年4月5日郭文贵先生与Sara连线直播摘要<br>https://gnews.org/zh-hans/162848/
+
+[https://www.guo.media/posts/277259](https://www.guo.media/posts/277259) `2020-04-06T05:55:38`
+##
+
 **milesguo** 时尚面罩（fashion face covering）做起来<br>https://gnews.org/zh-hans/162806/
 
 [https://www.guo.media/posts/277258](https://www.guo.media/posts/277258) `2020-04-06T04:55:21`
