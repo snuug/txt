@@ -2,7 +2,7 @@
 ---
 
 ## 2020年4月5日郭先生直播摘要
-`2020-04-06 05:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/163725/)
+`2020-04-06 05:48 GM10` [轉載自GNews](https://gnews.org/zh-hant/163740/)
 
 戰友之家•摘要組
 
@@ -65,5 +65,7 @@
 60:43–為全世界人民祈福。請戰友們不要忘記香港，請香港同胞提供香港公民受到不人道遭遇的證據提供給Sara女士，木蘭女士，還有路德先生。
 
 更多詳情請點擊：https://www.youtube.com/watch?v=CdNLch2IdI4&feature=share
+
+
 
 0
