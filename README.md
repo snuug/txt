@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/277299](https://www.guo.media/posts/277299) `2020-04-06T17:55:25`
 ##
 
+**milesguo** 我们会先检查一下！<br>https://gnews.org/zh-hans/163828/
+
+[https://www.guo.media/posts/277298](https://www.guo.media/posts/277298) `2020-04-06T18:10:16`
+##
+
 **milesguo** 中共表面做文章，收容教育与禁娼！<br>https://gnews.org/zh-hans/163581/
 
 [https://www.guo.media/posts/277297](https://www.guo.media/posts/277297) `2020-04-06T17:55:27`
@@ -29,6 +34,11 @@
 **milesguo** 中共的重要愚民手段：娱乐圈<br>https://gnews.org/zh-hans/163495/
 
 [https://www.guo.media/posts/277295](https://www.guo.media/posts/277295) `2020-04-06T17:55:28`
+##
+
+**milesguo** 2020年4月5日世界多种语言CCP病毒疫情图文每日播报<br>https://gnews.org/zh-hans/163499/
+
+[https://www.guo.media/posts/277294](https://www.guo.media/posts/277294) `2020-04-06T18:10:17`
 ##
 
 **milesguo** 醒世病毒 让世人看清中共本质<br>https://gnews.org/zh-hans/163477/
