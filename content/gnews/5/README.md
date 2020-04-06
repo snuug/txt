@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月4日中共病毒疫情要聞快報
-`2020-04-06 03:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163633/)
+## 布朗克斯動物園一老虎中招CCP病毒
+`2020-04-06 03:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163651/)
 
-[4.4-每日要點-英語版English](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06031950/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06031950/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06034236/1-24.png)
 
-[4.4-每日要點-日語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032043/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032043/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+根據美國農業部和野生動物保護協會的聲明，紐約布朗克斯動物園的一隻馬來亞虎的中共冠狀病毒檢測呈陽性。這是美國首例感染中共病毒的動物。據信這隻老虎是從無症狀的動物園管理員那裡感染了中共病毒。
 
-[4.4-每日要點-德語版-Deutsch](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032118/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032118/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)
+“布朗克斯動物園（Bronx Zoo）的4歲母馬來亞虎（Nadia）的測試呈陽性。她的姐姐阿祖爾（Azul），和三隻非洲獅已經開始咳嗽，預計他們都會康復。
 
-[4.4-每日要點-法語版-français.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032138/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032138/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf.pdf)
+美國農業部位於愛荷華州埃姆斯市的國家獸醫服務實驗室證實了對老虎的陽性測試。
 
-[4.4-每日要點-西班牙語版-español.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032228/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%E7%89%88-espan%CC%83ol.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032228/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%E7%89%88-espan%CC%83ol.pdf.pdf)
+我們出於謹慎的考慮對這隻老虎進行了測試，並將確保我們獲得的有關中共病毒的任何知識將有助於全世界對這種病毒的持續了解。 ”
 
-[4.4-每日要點-俄語版-4-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032255/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-4-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032255/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-4-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
+布朗克斯動物園於3月中旬已對公眾關閉，測試呈陽性的老虎於3月27日開始出現症狀。美國農業部和疾病控制與預防中心都在監測情況，並表示將努力支持動物園和其工作者。
 
+美國農業部強調這是“同類中的首例”，“需要進一步研究以了解不同動物是否會以及是如何受到中共病毒影響的”。該機構表示，“患中共病毒的任何人在生病期間都應限制與動物的接觸，包括寵物在內。”
 
+[原文鏈接](https://www.axios.com/tiger-coronavirus-bronx-zoo-4582f9db-9c71-45b5-a7b8-df9886b4256e.html)
+
+匿名
 
 0
