@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 时尚面罩（fashion face covering）做起来<br>https://gnews.org/zh-hans/162806/
+
+[https://www.guo.media/posts/277258](https://www.guo.media/posts/277258) `2020-04-06T04:55:21`
+##
+
+**milesguo** 印尼华人无法回国 航班被共党取消<br>https://gnews.org/zh-hans/162683/
+
+[https://www.guo.media/posts/277255](https://www.guo.media/posts/277255) `2020-04-06T04:55:23`
+##
+
+**milesguo** 东京感染‘中共病毒’新增 单日破百<br>https://gnews.org/zh-hans/162652/
+
+[https://www.guo.media/posts/277253](https://www.guo.media/posts/277253) `2020-04-06T04:55:24`
+##
+
+**milesguo** 【共产党病毒真相】4月5日视频合集<br>https://gnews.org/zh-hans/162624/
+
+[https://www.guo.media/posts/277251](https://www.guo.media/posts/277251) `2020-04-06T04:55:26`
+##
+
+**milesguo** 2020年4月4日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/162552/
+
+[https://www.guo.media/posts/277249](https://www.guo.media/posts/277249) `2020-04-06T04:55:28`
+##
+
 **milesguo** 菩萨心肠 霹雳手段 有感郭文贵先生对一众伪类的拯救与惩戒<br>https://gnews.org/zh-hans/162513/
 
 [https://www.guo.media/posts/277229](https://www.guo.media/posts/277229) `2020-04-05T17:10:14`
