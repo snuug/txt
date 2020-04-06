@@ -1,21 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月5日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-06 02:17 GM33` [轉載自GNews](https://gnews.org/zh-hant/163548/)
+## 為醫生護士和所有戰鬥的人禱告
+`2020-04-06 02:56 GM31` [轉載自GNews](https://gnews.org/zh-hant/163576/)
 
-又有人昏倒在地下；CCP的糧食儲備量的數據撒謊；班農福克斯訪談；郭先生談中國的三次大躍進
+在[4月5日](https://www.youtube.com/watch?v=XJyCc8QbWAE&amp;feature=youtu.be) ，星期天的白宮疫情通報會上，川普總統希望美國民眾都來為醫生、護士、卡車司機、商店服務人員和每個參加戰鬥的人禱告，還請求為那些失去親人的家庭禱告，求主安慰他們。
 
-[English0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021450/English0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021450/English0405_CCP_Virus_Updates.pdf)
-
-[French0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021459/French0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021459/French0405_CCP_Virus_Updates.pdf)
-
-[German0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021509/German0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021509/German0405_CCP_Virus_Updates.pdf)
-
-[Japanese0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021523/Japanese0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021523/Japanese0405_CCP_Virus_Updates.pdf)
-
-[Russia0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021542/Russia0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021542/Russia0405_CCP_Virus_Updates.pdf)
-
-[Spanish0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021551/Spanish0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021551/Spanish0405_CCP_Virus_Updates.pdf)
+*翻譯：【Michelle】字幕：【1ia $】*
 
 0
