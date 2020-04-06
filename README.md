@@ -16,9 +16,19 @@
 [https://www.guo.media/posts/277258](https://www.guo.media/posts/277258) `2020-04-06T04:55:21`
 ##
 
+**milesguo** 中共开动媒体辟谣的CCP冠状病毒的零号病人黄燕玲到底在哪里<br>https://gnews.org/zh-hans/162754/
+
+[https://www.guo.media/posts/277257](https://www.guo.media/posts/277257) `2020-04-06T05:40:28`
+##
+
 **milesguo** 印尼华人无法回国 航班被共党取消<br>https://gnews.org/zh-hans/162683/
 
 [https://www.guo.media/posts/277255](https://www.guo.media/posts/277255) `2020-04-06T04:55:23`
+##
+
+**milesguo** 英国科学家发明检测共产党病毒的新方法：在出现症状之前就可以确认是否被感染<br>https://gnews.org/zh-hans/162678/
+
+[https://www.guo.media/posts/277254](https://www.guo.media/posts/277254) `2020-04-06T05:40:30`
 ##
 
 **milesguo** 东京感染‘中共病毒’新增 单日破百<br>https://gnews.org/zh-hans/162652/
@@ -29,6 +39,11 @@
 **milesguo** 【共产党病毒真相】4月5日视频合集<br>https://gnews.org/zh-hans/162624/
 
 [https://www.guo.media/posts/277251](https://www.guo.media/posts/277251) `2020-04-06T04:55:26`
+##
+
+**milesguo** 最坏时刻还没到来，做好防范勿松懈！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/162604/
+
+[https://www.guo.media/posts/277250](https://www.guo.media/posts/277250) `2020-04-06T05:40:31`
 ##
 
 **milesguo** 2020年4月4日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/162552/
