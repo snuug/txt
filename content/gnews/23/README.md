@@ -1,21 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月4日中共病毒疫情要聞快報
-`2020-04-06 03:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163633/)
+## 美國將迎來最艱難的一周，這是全國性的911，珍珠港時刻
+`2020-04-06 03:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163642/)
 
-[4.4-每日要點-英語版English](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06031950/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06031950/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032855/RTS35K8B-1200x800.jpg)圖片來源：REUTERS/Jonathan Ernst – RC2BHF9SKVSJ 
+據《福布斯》4月5日報導，美高級衛生官員正在為即將到來的中共病毒爆發最嚴重的一周做準備，預計新確診病例數和死亡人數將在全國各城市和州達到頂峰。
 
-[4.4-每日要點-日語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032043/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032043/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+報導稱：
 
-[4.4-每日要點-德語版-Deutsch](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032118/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032118/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)
+- 幾個月以來，病毒學家和衛生官員一直在警告我們，要為持續數週的大爆發做和準備，這期間感染人數會激增，數千人會死亡，醫院將會被推到極限。
+- 種種跡象顯示，美國將在本週進入這最艱難時期，科研模型預測美國一些人口最多的城市，例如紐約，新奧爾良和底特律，都將在未來幾天達到頂峰。
+- 美國醫務總長杰羅姆·亞當斯（Jerome Adams）中將周日在《福克斯新聞》上說：“坦率地說，這將是大多數美國人一生中最艱難，最悲傷的一周，這將是我們的珍珠港時刻，我們的9/11時刻，只是不是在某一個地方， 而是在全國范圍內發生。 ”
+- 有跡象表明，全國各州和地方立法者採取的社區隔離措施正在奏效，但要證明在減少新增感染人數方面是否產生了實質性影響尚需時日。
+- 美國國家過敏和傳染病研究所所長安東尼·富奇（Anthony Fauci）博士周日在哥倫比亞廣播公司的《面對國家》中說：“下週將變得糟糕，因為我們仍然不在頂峰。”
+- 美外科醫生亞當斯（Adams）週日表示：“儘管本週將十分艱難，但如果在接下來的30天內每個人都儘自己的一份努力，那麼隧道盡頭將是一片曙光。”
 
-[4.4-每日要點-法語版-français.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032138/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032138/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf.pdf)
 
-[4.4-每日要點-西班牙語版-español.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032228/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%E7%89%88-espan%CC%83ol.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032228/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD%E7%89%88-espan%CC%83ol.pdf.pdf)
+然而，這絕不意味著一旦受感染的人數達到頂峰，美國就會馬上走出困境。因目前不確定確切的爆發時間和地點，正如Axios指出的那樣，疫情將在全國各地不同時間達到頂峰。
 
-[4.4-每日要點-俄語版-4-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032255/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-4-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06032255/4.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-4-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
+特朗普總統在周六也預測稱，這將是自中共病毒爆發以來美國“最艱難的一周”。
 
+**評：摘自郭文貴先生2020年[3月14日直播](https://www.youtube.com/watch?v=l4nS-Jthjlo)**
 
+美國還沒有實施什麼？曼哈頓還沒有Lock down，洛杉磯沒有Lock down，各州還沒有一個州申請《108法案》。美國的軍隊和國民衛隊直接合法的“你必須引用此法案” ，到各州實施緊急狀態。
+
+到那時候的美國不是你想像的今天的樣子。有些話我現在還不能說。那我要告訴大家，跟爆料革命現在有什麼關係呢？我告訴大家，如果美國走到那個狀態的時候，美國感染只要超過十萬人，就會接近那個狀態，有（的）州就會來宣布《108緊急法案》。
+
+然後如果超過百萬人，美國一定會實施《國家戒嚴法》和《戰爭狀態準備法》。大家記住這就真可能是第三次世界大戰了。
+
+[原文鏈接](https://www.forbes.com/sites/jackbrewster/2020/04/05/heres-why-top-officials-are-saying-this-week-will-as-bad-as-911/#3162b39361a5)
+
+翻譯報導：Longwood
 
 0
