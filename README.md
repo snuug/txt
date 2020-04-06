@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 【共产党病毒真相】4月6日视频合集<br>https://gnews.org/zh-hans/163744/
+
+[https://www.guo.media/posts/277301](https://www.guo.media/posts/277301) `2020-04-06T17:55:23`
+##
+
+**milesguo** Zoom资安疑虑 爆加密讯​息传输中国<br>https://gnews.org/zh-hans/163663/
+
+[https://www.guo.media/posts/277299](https://www.guo.media/posts/277299) `2020-04-06T17:55:25`
+##
+
+**milesguo** 中共表面做文章，收容教育与禁娼！<br>https://gnews.org/zh-hans/163581/
+
+[https://www.guo.media/posts/277297](https://www.guo.media/posts/277297) `2020-04-06T17:55:27`
+##
+
+**milesguo** 中共的重要愚民手段：娱乐圈<br>https://gnews.org/zh-hans/163495/
+
+[https://www.guo.media/posts/277295](https://www.guo.media/posts/277295) `2020-04-06T17:55:28`
+##
+
+**milesguo** 醒世病毒 让世人看清中共本质<br>https://gnews.org/zh-hans/163477/
+
+[https://www.guo.media/posts/277293](https://www.guo.media/posts/277293) `2020-04-06T17:55:30`
+##
+
 **milesguo** 共产党利用死去的亡灵！歌颂共党永远的伟 光 正！<br>https://gnews.org/zh-hans/163423/
 
 [https://www.guo.media/posts/277292](https://www.guo.media/posts/277292) `2020-04-06T16:40:21`
