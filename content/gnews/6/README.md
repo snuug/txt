@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 基於DPA購買“美國製品” ——詳解DPA
-`2020-04-06 00:57 GM31` [轉載自GNews](https://gnews.org/zh-hant/163390/)
+## 【多語言圖文版】4月3日中共病毒疫情要聞快報
+`2020-04-06 01:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/163419/)
 
-在[4月2日](https://www.youtube.com/watch?v=Xosr3hpAfF8)的白宮每日通報會上，川普總統及疫情項目組成員對《國防生產法》（DPA）做了詳細闡述。
+[4.3-每日要點-英語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004801/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004801/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
 
-美國集結政府跟私營企業全力是國防生產法的核心, 白宮貿易顧問彼得·納瓦羅（Peter Navarro）回應了川普總統提出的“購買美國製品，安全的邊界和強大的製造基地”的理念，並指出《國防生產法》的使用範圍包含三點：
+[4.3-每日要點-日語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004851/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004851/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-1. 動員工業基地
-2. 資源分配
-3. 囤積重要的或受威脅的材料
+[4.3-每日要點-法語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004918/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004918/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)
 
+[4.3-每日要點-俄語版-3-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004942/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-3-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06004942/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-3-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
 
-此外，海軍上將Polowczyk解釋了在DPA法案執行下,”購買美國製品”的通路與供應鏈如何運作。
+[4.3-每日要點-芬蘭語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005005/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005005/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
-*名詞解釋:* 
- *DPA :國防生產法*
-*PPE:個人防護設備*
-*VA :退伍軍人事務*
-*DOD:美國國防部*
-*HHS:美國衛生與公共服務部*
+[4.3-每日要點-西班牙語-español.pdf](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005027/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005027/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf.pdf)
 
-***翻譯：【Freela】 校對：【nevernever2020】【GM31】 字幕：【Freela】***
+[4.3-每日要點-韓語版](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005050/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E9%9F%A9%E8%AF%AD%E7%89%88.pdf)[Download](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06005050/4.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E9%9F%A9%E8%AF%AD%E7%89%88.pdf)
 
 
 
-1+
+0
