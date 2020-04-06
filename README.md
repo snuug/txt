@@ -11,6 +11,36 @@
 
 
 
+**milesguo** 共产党利用死去的亡灵！歌颂共党永远的伟 光 正！<br>https://gnews.org/zh-hans/163423/
+
+[https://www.guo.media/posts/277292](https://www.guo.media/posts/277292) `2020-04-06T16:40:21`
+##
+
+**milesguo** 文字版2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决<br>https://gnews.org/zh-hans/163414/
+
+[https://www.guo.media/posts/277291](https://www.guo.media/posts/277291) `2020-04-06T16:40:22`
+##
+
+**milesguo** 基于DPA购买“美国制品” ——详解DPA<br>https://gnews.org/zh-hans/163364/
+
+[https://www.guo.media/posts/277290](https://www.guo.media/posts/277290) `2020-04-06T16:40:24`
+##
+
+**milesguo** 乐观面对将要到来的爆发艰难期！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/163344/
+
+[https://www.guo.media/posts/277289](https://www.guo.media/posts/277289) `2020-04-06T16:40:25`
+##
+
+**milesguo** 文字版2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想<br>https://gnews.org/zh-hans/163353/
+
+[https://www.guo.media/posts/277288](https://www.guo.media/posts/277288) `2020-04-06T16:40:26`
+##
+
+**milesguo** 钟南山院士团队为追责和赔偿提供数学模型<br>https://gnews.org/zh-hans/163313/
+
+[https://www.guo.media/posts/277287](https://www.guo.media/posts/277287) `2020-04-06T16:40:27`
+##
+
 **milesguo** “灭共者”郭文贵认定中共当下的疯狂和野心，不过是重演升级版的“大跃进”<br>https://gnews.org/zh-hans/162873/
 
 [https://www.guo.media/posts/277273](https://www.guo.media/posts/277273) `2020-04-06T06:55:13`
