@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/277272](https://www.guo.media/posts/277272) `2020-04-06T06:55:15`
 ##
 
+**milesguo** 香港，香港：我以我血荐轩辕！<br>https://gnews.org/zh-hans/163271/
+
+[https://www.guo.media/posts/277271](https://www.guo.media/posts/277271) `2020-04-06T07:55:29`
+##
+
 **milesguo** 俄罗斯一定会拉上美国一起减产石油<br>https://gnews.org/zh-hans/163266/
 
 [https://www.guo.media/posts/277270](https://www.guo.media/posts/277270) `2020-04-06T06:40:13`
