@@ -1,21 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月5日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-06 02:17 GM33` [轉載自GNews](https://gnews.org/zh-hant/163548/)
+## 中共的重要愚民手段：娛樂圈
+`2020-04-06 02:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/163541/)
 
-又有人昏倒在地下；CCP的糧食儲備量的數據撒謊；班農福克斯訪談；郭先生談中國的三次大躍進
+**作者：山河大地**
 
-[English0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021450/English0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021450/English0405_CCP_Virus_Updates.pdf)
+有個現象即便牆內網民也能嗅出不對勁兒，以微博為例，國內無論出現怎樣的天災人禍，死了多少號人，新聞最熱點依然被某某小鮮肉或小花無關痛癢的一些小是非所佔據，有時甚至連是非都沒有，沒焦點也硬擠些焦點：如某明星又出了新機場照，又穿了哪款潮服，換了哪種顏色口紅——長年累月，向來如此。久而久之，在這種毫無營養的失智性推送下，幾代網民無需在課堂或工作中接受洗腦教育，隨便上上網，理智辨斷及深度思索的能力也慢慢被葬送了。
 
-[French0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021459/French0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021459/French0405_CCP_Virus_Updates.pdf)
+也曾疑惑，哪怕為遮掩種種社會不公亂象，製造些更具內涵和藝術性的文娛話題來搶人眼球也並非難事吧？平心而論，中華大地人才濟濟，文化淵遠流長，文學，曲藝，戲劇等各領域若無人為箝制與破壞，能開出異常豐碩的果實。可惜到了土匪出身的中共手裡，什麼都得變味兒，都被遭踏得不成樣子。無論何等絕色美女一旦披上共匪強送的嫁衣，一眨眼就成了土頭土腦的蠢媳婦。
 
-[German0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021509/German0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021509/German0405_CCP_Virus_Updates.pdf)
+在文貴先生揭露了王岐山等盜國賊推崇商鞅之馭民五術後，更清醒地認清了共匪的面目，為了維穩其政權，中共統治下的老百姓注定好不了，生活上沒出路，頭腦上也給你剝奪掉清醒的機會。可眼下畢竟不似幾十年前，幾張人民日報就成功日了人民。網絡時代信息繁雜，大家接收訊息的渠道太便捷。共匪未學北朝鮮更徹底地封殺網絡，絕非出於仁慈，而是不敢把獠牙利爪露得過於明顯，反到驚醒了多少比北朝鮮人更開智些的韭菜們。
 
-[Japanese0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021523/Japanese0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021523/Japanese0405_CCP_Virus_Updates.pdf)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021951/image0-32.jpg)
 
-[Russia0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021542/Russia0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021542/Russia0405_CCP_Virus_Updates.pdf)
+既然不能全面堵塞訊息渠道，最好的方法就是製造無盡的垃圾訊息來填充你的耳目，讓垃圾毒素薰染你的大腦，讓你一絲尚存的理智也逐步喪失，淪落為與黨共舞的殭屍。
 
-[Spanish0405\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021551/Spanish0405_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/06021551/Spanish0405_CCP_Virus_Updates.pdf)
+也正因被以假治國的共匪左右著，中國娛樂圈中那些真正有藝術功底，有骨氣，堪稱藝術家的群體要么鬱鬱不得志，消失在人海，要么早已磨平了骨子裡的志氣，隨波逐流，混碗“名人”飯吃。在國外，往往越有年紀和資歷的演藝人員越吃香，“成熟美”絕非一句空話，這些人也確能做到令皺紋飽含美感，以智慧和人生閱歷來豐富氣場。在我國女星不顧事實如何，一味追求“少女感”的審美同時，不少西方女星卻對雜誌擅自使用PS修改了她們的魚尾紋，法令紋而提出抗議——為年齡而自豪，人家真有這個自信。
+
+而在中國，霸占娛樂行業最前列的所謂“明星們”，越來越趨向低齡化不說，除一張微整過的臉和“爭出位”心機，很多孩子幾乎沒什麼能傍身的真實才藝。傍的到底是什麼呢？背後的金主而已！
+
+在如此急功近利的演藝環境下，哪還談得上什麼優質作品，更扯不上“藝術”二字了。雖然不能一棍子都打死，能頂住巨大壓力，在牆縫裡也散發出蓬勃生機的個例仍存在，但打開電腦電視，點擊排行榜中的作品，有幾個經久不衰，堪稱經典的？
+
+當然所謂的火爆節目確也不少，每年都有些節目獲得粉絲無數，賺得盆滿缽盈。但不要說電視劇素材，僅就綜藝而言，按說此類節目無需特別嚴密的邏輯和精巧的劇情構思，不至於太難創新，但坐享其成慣了就難再勤懇耕耘， 中共國的娛樂圈也深得中共“以假治國”精髓，盜版氾濫，抄襲成癮！在抄襲惡行被大眾默許，沒有足夠的法律約束，同時清高者丟飯碗，笑貧不笑娼的大環境下，有幾個還能堅持立場，多動動腦子？ 2018年就出現韓媒抗議，並點名批評了中國歷年來剽竊的各檔綜藝節目，竟高達34檔之多。新聞來源： [https://www.guancha.cn/Celebrity/2018\_10\_09\_474747.shtml](https://www.guancha.cn/Celebrity/2018_10_09_474747.shtml)這還不算抄襲其他國家的節目**，足見中共國的文藝工作者狀態如何？在這樣的“文藝”薰陶下，中國人的後代又將如何？**
+
+中國十四億人，從中共角度考慮下，洗腦這麼多韭菜也是項大工程。因此國內的大小明星尤其多，一茬又一茬，通過大小選秀節目或其他莫名其妙的方式出道，高速更新換代，比莊稼成熟期還快。筆者在西方生活多年，打開電視卻總見到那幾個熟面孔，凡有新人必都經過了重重經練，本事夠硬才可能保住一定“出鏡率”，即使是周末黃金時段的幾個節目，從主持人，嘉賓到助演明星，也多為演藝圈內成名幾十年的“中老階層”，當然想看年輕美女的機會也極多，可人家擺出的名頭叫“Show girl” , 職業就為大大方方在鏡頭前展現美好青春的形像，可沒掛著羊頭賣狗肉。
+
+眼下最揪心的事就是中共病毒的全球擴散，隨著各國確診數大幅遞增，中共國和西方民主國家的新聞透明度也愈發形成鮮明對比。尤其在“名人”的確診上，西方國家紛紛曝出國家最高領導層，皇室人員和明星們的確診消息，而奇怪的是，戰友們都知道在中國境內的真實感染情況特別驚人，至少是其所出假數據的百倍以上，而國內卻極少有名人確診消息的曝光。中共政府掩蓋領導人（基層幹部不算）的信息也就算了，還有一點，在人數巨量的演藝圈內，似乎也沒曝出什麼確診事例（除了湖北某導演等名轉經不轉的人物）。
+
+奇怪的是，國內疫情從一月份就已邁入事實上的緊急狀態（不管宣布與否），尤其在最開始，中共為維持一個和平假象，還特別強調文藝匯演等維穩手段不能停。大小晚會及其他綜藝節目都動轍需要海量群演，後台往往密密麻麻人擠人，哪怕一二線明星可能也沒多大空間吃飯—- 可如今牆內網絡頻頻報導西方名人明星感染了中共病毒的消息，國內大小明星則安然無詳，照樣歌舞昇平，引導著一眾粉絲繼續迷醉於淺薄虛飄的幻夢，成功轉移廣大韭菜們的視線，進而由著中共天天吹牛逼，給西方國家潑黑水，假話連篇無人刺穿，對於真正要關注的事態眼不見心不煩。
+
+相對而言，國外沒那麼多大型晚會，球員等集訓場地也極為空闊，可僅意大利甲級球員感染數就多達14人，包括AC米蘭的傳奇人物馬爾蒂尼和他的兒子。筆者在網上粗略翻了翻，關於國外明星（非政治名人）的感染情況簡直不勝枚舉。由此不得不嘆服中國名人，到底是何等體質，在中共病毒如此猖狂之時依然能集體躲過，毫髮未傷？
+
+當然全世界一個人都別感染才好，具體誰感染不是我們要詳查的—–需要反思的是：事出反常必有妖，中共到底又在施什麼招？
+
+（文章內容僅代表作者觀點）
 
 0
