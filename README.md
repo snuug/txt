@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/277297](https://www.guo.media/posts/277297) `2020-04-06T17:55:27`
 ##
 
+**milesguo** 为医生护士和所有战斗的人祷告<br>https://gnews.org/zh-hans/163571/
+
+[https://www.guo.media/posts/277296](https://www.guo.media/posts/277296) `2020-04-06T18:25:14`
+##
+
 **milesguo** 中共的重要愚民手段：娱乐圈<br>https://gnews.org/zh-hans/163495/
 
 [https://www.guo.media/posts/277295](https://www.guo.media/posts/277295) `2020-04-06T17:55:28`
