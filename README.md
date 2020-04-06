@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/277301](https://www.guo.media/posts/277301) `2020-04-06T17:55:23`
 ##
 
+**milesguo** 2020年4月5日郭先生直播摘要<br>https://gnews.org/zh-hans/163715/
+
+[https://www.guo.media/posts/277300](https://www.guo.media/posts/277300) `2020-04-06T18:55:12`
+##
+
 **milesguo** Zoom资安疑虑 爆加密讯​息传输中国<br>https://gnews.org/zh-hans/163663/
 
 [https://www.guo.media/posts/277299](https://www.guo.media/posts/277299) `2020-04-06T17:55:25`
