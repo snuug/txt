@@ -1,35 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共違法國際法，七國集團要求索賠數万億，等待中共的將是世紀大審判
-`2020-04-05 08:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/162739/)
+## 中共开动媒体辟谣的CCP冠状病毒的零号病人黄燕玲到底在哪里
+`2020-04-05 08:36 Diago` [轉載自GNews](https://gnews.org/zh-hant/162793/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05080412/CB898953-3FA7-4F69-B338-5652785091D8.jpeg)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083003/2020-02-20_172919-600x400.jpg)
+作者：Diago
 
-據倫敦的一份新的報告說，由於中共冠狀病毒已經造成超過60,000人死亡和數万億美元的經濟損失，應根據國際法對中共國在掩蓋中共冠狀病毒大流行這個問題上進行訴訟，要求賠償其數万億美元，該報告稱，因為各國政府迫使其公民留在家中，以便能夠遏制中國病毒的蔓延，七國集團成員國為支撐各國經濟而花費了至少3.2萬億英鎊（6.5萬億美元）。
+在GNEWS2020-04-05 03:01发布的[CCP生产的口罩，害死人不偿命;CCP病毒死难者家属口述真实境遇;美国号召全民戴口罩；所有美国人都应该戴口罩；班农作战室：新证据指向零号病人16:00](https://youtu.be/XYqclcmPH-s?t=960)<br>时间点，班农先生的作战室引出了对比尔.戈茨先生的专访，在该专访中，比尔.戈茨先生提到：
 
-與其呼應的是，澳洲總理斯科特•莫里森（Scott Morrison）認為，澳洲政府對工人和企業提供了前所未有的1300億澳元支持，稱澳大利亞人也應由中共賠償欠這筆錢。
+【比尔.戈茨：是的，这周我有个重要发现，中国发现了2000种病毒，包括致命的蝙蝠病毒，今天刚风发布在《华盛顿时报》网站上的那篇文章有一些新资讯，这些资讯可能会发现零号患者，这是揭开该病毒起源的真正钥匙，故事的起因是美国政府和研究界正积极努力发现该病毒的来源，必须这样做才能研制出疫苗，真正解决所有这些问题，但是从第一天起，中共方面就百般阻挠，他们破坏了证据，他们最初向美国政府承诺提供样品给实验室，然后予以否认，但是新出现的证据实际上，是中国的一个博客作者发现的，该博客作者进行了一些开源研究，发现一名患者就是武汉生物研究所的，一位年轻研究员感染了该病毒，这是感染该病毒而染病的第一个病例而且死了，正是在她的葬礼上，这种疾病开始了人与人之间的传播
 
-包括中國外交部發言人趙立堅在內的中國高層人物表示這種指控沒有根據，並稱該病毒是由美國軍方帶到武漢的，而不是在華南海鮮批發市場上出現的。
+班农：这一切发生的日期是什么时候？
 
-據報導，針對中共冠狀病毒的賠償問題， 保守的倫敦智庫亨利·傑克遜學會（Henry Jackson Society）表示可能會以10種法律途徑對中國提起訴訟，其中包括《國際衛生條例》，這是在SARS爆發後增加的，當時中國也試圖掩蓋這種情況。
+比尔.戈茨：是十二月，所以12月初是第一例，先不必太准确，确切的日期我要补充一下，武汉生物研究所否认了这个女人是零号病人，但是中国很多人都想找出她在哪里，她在武汉研究所网站上发布的照片和传记不见了，因此有充分的迹象表明，这可能是这次全球瘟疫的起点，今天另外一个关键点是白宫在2月份要求美国国家科学院组建专家以找到病毒起源，同一天也就是2月6日寄出了这封信，他们让科学院回信说我们需要获得中国的样本、病毒样本以及那些被怀疑是传播源头的海鲜市场的动物，当然在能进行科学考察之前，中共已经关闭了市场并开始清除一切痕迹】
 
-報告說，如果中國在早期就提供了準確的信息，“這種傳染就不會離開中國。”
+比尔.戈茨先生所说的华盛顿时报网站的文章是[Coronavirus<br>may have originated in lab linked to China’s biowarfare program](https://www.washingtontimes.com/news/2020/jan/26/coronavirus-link-to-china-biowarfare-program-possi/)（By [Bill Gertz](https://www.washingtontimes.com/staff/bill-gertz/) – The Washington Times – Sunday,<br>January 26, 2020） 提到：
 
-中國直到12月31日才向世衛組織報告了該病，並表示沒有人與人之間傳播的證據。
+【Chinese authorities<br>said they do not know the origin of the coronavirus, which has killed at least<br>80 and infected thousands.Gao Fu, director of the Chinese Center for Disease<br>Control and Prevention, told state-controlled media that initial signs<br>indicated the virus originated from wild animals sold at a seafood market in<br>Wuhan.】（笔者注：大意是——中共当局他们不了解已经至少使80人死亡数千人感染的冠状病毒的来源，中共疾控中心主任高福对中共党媒说最初迹象显示病毒来自于武汉海鲜市场售卖的野生动物）
 
-然而，包括李文亮在內的醫生因發出提醒信息而受到譴責。一些人確信該病毒在此日期之前已經在人與人之間傳播。 《南華早報》的報導引用過中國政府的文件，表明在12月27日已查明近200例中共病毒病例。 《國際衛生條例》說，各國必須監視和共享可能在國際上傳播的任何病原體的信息，包括嚴重程度和傳播有關的數據。
+在比尔.戈茨先生在班农作战室的专访中提到的“武汉生物研究所否认了这个女人是零号病人”，在网上关于武汉生物研究所零号病人之一是：
 
-亨利·傑克遜學會（Henry Jackson Society）說，中國採取了相反的做法，掩蓋了數據並懲罰了試圖說實話的醫生。該學會敦促一個國家聯盟發起聯合行動，報告說：“採取行動既需要勇氣，也需要全球團結。”“武漢和湖北在早期的應對方式違反了《國際衛生條例》……責任是該條例的重中之重。”報告說：“中國共產黨對冠狀病毒的應對方式很有可能違反了國際法。”
+[武汉病毒所已逝“零号病人”？当事人：我还健在](http://finance.sina.com.cn/china/gncj/2020-02-16/doc-iimxyqvz3279280.shtml)（2020年02月16日 12:25 [新京报](https://www.thepaper.cn/newsDetail_forward_6016936)），在这篇文章中提到：
+![http://n.sinaimg.cn/spider2020216/484/w750h1334/20200216/990a-iprtayy4226603.jpg](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083151/WhatsApp-Image-2020-04-05-at-8.02.52-PM.jpeg)
+【网络流传的截图显示，武汉（新冠）病毒肺炎的零号病人是黄燕玲，系武汉病毒所科研人员，2012年考入武汉病毒所的硕士研究生。
 
-該報告稱，儘管根據《國際衛生條例》來解決爭端的要求是前所未有的，但在世界衛生組織的架構中存在一個提起此類訴訟的初步框架。其他選擇可能涉及使用國際法院和常設仲裁法院，世界貿易組織，雙邊投資條約，甚至是《聯合國海洋法公約》。報告說，各國的本國法院和中國法院也是可能的途徑。
+而根据武汉病毒所发布于2011年11月4日的《2012年度推荐免试硕士研究生拟录取名单公示》显示，黄燕玲系西南交大推荐的学术性硕士。】
+![http://n.sinaimg.cn/spider2020216/194/w1080h1514/20200216/fee5-iprtayy4226605.jpg](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083216/WhatsApp-Image-2020-04-05-at-8.04.37-PM.jpeg)
+【就此事件，今日（2月16日），《每日经济新闻》记者注意到，危宏平朋友圈发文回应。其称“我近2天接到许多电话或邮件，咨询曾在本组学习过的黄燕玲同学近况，我是她导师，黄燕玲同学2015年7月硕士顺利毕业后，一直在外地城市工作。经与她本人电话确认，目前黄燕玲同学身体健康，一切安好！”
 
-報告的共同作者馬修·亨德森（Matthew Henderson）說，中國人民也是其政府失職疏忽的受害者。他說：“他們和我們其他人一樣，都是無辜的受害者。這是中共的錯。”“中國共產黨從非典疫情的失敗中沒有汲取任何教訓。”“從中共冠狀病毒疫情開始以來，他們反复犯下的錯誤，謊言和虛假信息已經造成了更加致命的後果。”“通過計算對發達經濟體造成破壞的成本，並通過組合一系列可能的法律程序，以規則為基礎可以訴諸法律，我們提供了一種設想，即自由世界將如何為中共造成的慘重損害尋求補償。”他說。
+危宏平还称“网上与此不一致的传言皆为谣言。因抗疫工作繁忙，怒（注：原文如此）不再一一解释！”】
+![http://n.sinaimg.cn/spider2020216/330/w633h497/20200216/7b21-iprtayy4226695.jpg](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083233/WhatsApp-Image-2020-04-05-at-8.04.50-PM.jpeg)![http://n.sinaimg.cn/spider2020216/167/w394h573/20200216/db8d-iprtayy4226694.jpg](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083247/WhatsApp-Image-2020-04-05-at-8.04.57-PM.jpeg)
+在网上搜索所有的关于黄燕玲的消息都是辟谣的，最贴近的“辟谣”就是[迈克生物相关负责人回应：公司有叫“黄燕玲”的员工，她最近压力很大](http://www.thecover.cn/news/3601614)（2020-02-16 16:04）提到的：
 
-評論：戰友們，別忘了蒐集各種證據，包括被迫復工和疫情給自己及家人帶來的任何損失，未來都是向中共和相關部門索賠的依據。
+【记者了解到，迈克生物是成都市高新区上市生物医药企业，专注体外诊断产品的研发、生产及销售服务。15日下午，封面新闻记者联系上四川迈克生物相关负责人。该负责人告诉记者，“公司的确有叫‘黄燕玲’的员工，但不确定就是大家要找的黄燕玲。最近，她的压力很大”。该负责人还表示，他注意到目前网上流传的截图中，黄燕玲和她导师已经做了回应。】
 
-[原文鏈接](https://www.smh.com.au/world/europe/china-should-be-sued-for-6-5-trillion-for-coronavirus-damages-says-top-uk-think-tank-20200405-p54h5b.html)
+我们知道当初包括李文亮医生在内的“武汉八谣”被公安训诫的消息能够迅速在所有的官媒上进行转发，说明中共对“武汉八谣”非常在乎，否则何以开动全部宣传机器进行报道呢？
+![最高法发声后，武汉警方回应“8人传谣被拘”](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083315/WhatsApp-Image-2020-04-05-at-8.05.05-PM.jpeg)
+再看看官媒对黄燕玲的铺天盖地的“辟谣”画面：
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083326/WhatsApp-Image-2020-04-05-at-8.05.11-PM.jpeg)![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083333/WhatsApp-Image-2020-04-05-at-8.05.19-PM.jpeg)
+作为号称的“黄燕玲”本人却压力很大，截止目前所有关于“黄燕玲”的辟谣都不是她本人发出的，她本人为什么会压力很大呢？只是出来公开证明一下自己活着并且没有感染CCP冠状病毒不是比一万个间接“辟谣”更有力量吗？
 
-翻譯報導：人間四月
+黄燕玲，你在哪里？
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083349/timg.jpg)
+（文章内容仅代表作者个人观点）
 
 0
