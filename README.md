@@ -11,6 +11,16 @@
 
 
 
+**milesguo** “灭共者”郭文贵认定中共当下的疯狂和野心，不过是重演升级版的“大跃进”<br>https://gnews.org/zh-hans/162873/
+
+[https://www.guo.media/posts/277273](https://www.guo.media/posts/277273) `2020-04-06T06:55:13`
+##
+
+**milesguo** 2020年4月5日CCP冠状病毒大流行第72集<br>https://gnews.org/zh-hans/163296/
+
+[https://www.guo.media/posts/277272](https://www.guo.media/posts/277272) `2020-04-06T06:55:15`
+##
+
 **milesguo** 俄罗斯一定会拉上美国一起减产石油<br>https://gnews.org/zh-hans/163266/
 
 [https://www.guo.media/posts/277270](https://www.guo.media/posts/277270) `2020-04-06T06:40:13`
@@ -79,6 +89,11 @@
 **milesguo** 东京感染‘中共病毒’新增 单日破百<br>https://gnews.org/zh-hans/162652/
 
 [https://www.guo.media/posts/277253](https://www.guo.media/posts/277253) `2020-04-06T04:55:24`
+##
+
+**milesguo** 美国正式成立康复者血浆项目<br>https://gnews.org/zh-hans/162632/
+
+[https://www.guo.media/posts/277252](https://www.guo.media/posts/277252) `2020-04-06T06:55:17`
 ##
 
 **milesguo** 【共产党病毒真相】4月5日视频合集<br>https://gnews.org/zh-hans/162624/
