@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 痛心:CCP病毒死亡者的遺體停放在厄瓜多爾的街道
-`2020-04-05 08:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/162803/)
+## 時尚面罩（fashion face covering）做起來
+`2020-04-05 09:02 GM30` [轉載自GNews](https://gnews.org/zh-hant/162840/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05083709/1-38.jpg)
+**作者：AL**
 
-截至週五，厄瓜多爾國家風險和應急管理局報告全國3368例確診冠狀病毒病例和145例死亡病例，其中102屬於瓜亞基爾所在的瓜亞斯省。專家預計僅瓜亞斯的死亡人數在未來幾個月內就會達到2500至3500人。
+川普總統2020年4月3日宣布，美國疾病控制與預防中心（Centers for Disease Control and Prevention – CDC）建議民眾在公共場合使用布製面罩，以減緩冠狀病毒的傳播（ [https://www. foxnews.com/politics/trump-cdc-recommending-face-covering-voluntary](https://www.foxnews.com/politics/trump-cdc-recommending-face-covering-voluntary) ）。 **此最新指南基於無症狀感染者也可傳播病毒的事實，建議人們在公共場所佩戴簡單布製面罩遮住嘴和鼻子，而將重要的防護用品，如手術口罩或N-95防毒面具，留給醫護人員和其他醫療急救人員。** CDC在其網站還發布了面罩製作流程（ [https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/diy-cloth-face-coverings.html](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/diy-cloth-face-coverings.html) ）。其所選布料基本就是兩層棉布， 或棉布加過濾紙。以下介紹另外一種棉布面罩縫製方法，簡單易學，時尚隱蔽，一巾多用。此棉布面罩適合以下人群：（1）各種理由不喜歡戴口罩；（2）健身或跑步時，戴口罩影響呼吸；（3）喜歡廢物再生，節能環保，改造舊衣服。
 
-美國有線電視新聞網(CNN)4月3日報導，厄瓜多爾西部城市瓜亞基爾的街道上空無一人，只能看到幾具屍體淒涼地停放在街邊。
+**所需材料：** （1）彈性棉布（stretch cotton fabric）：寬22英寸x長30英寸。一定要在橫向（寬）有些彈性，這樣才能從頭部套下來，很多居家服裝都由彈性棉布製作。個人認為只要是有彈性無靜電皮膚感覺舒適的面料都可以。 （2）尺子，剪刀，針線（或縫紉機）等。
 
-CCP病毒的爆發，使該國人口最多的城市的公共服務負擔過重，已經到了崩潰的邊緣。醫院已經沒有床位來接收病人了，停屍房、墓地和殯館也不堪重負。由於沒有地方安置他們，一些居民說，他們別無選擇，只能把他們安置在外面。
+**布料準備：** （1）從中間剪開睡褲，再從內測剪開褲筒，去掉鎖邊部分及鬆緊帶（圖1）。 （2）大部分人的頭圍（head circumference）尺寸是22英寸，考慮到布料的彈性和縫合，原料寬22英寸基本就夠了，太鬆在臉上掛不住，太緊無法從頭部套下，最佳感覺是布料彈性足夠好，做成後從頭頂拽下有些吃力。長度不是很苛刻，這裡用28英寸，喜歡保暖就再做長些。將一條褲筒依布料裁成最大長方形，如不夠，再接另一條布料，最終尺寸是長28英寸x 寬22英寸（圖2，注意：圖中所用長方形布料不是一整塊，翻過來會看到接縫）。
 
-在路透社3月30日獲得的一段視頻中，費爾南多·埃斯帕納（Fernando Espana）說：“我們已經等了五天了，”當局很難找到他家接走遺體。他把相機從窗口移出來，顯示房間裡有兩個風扇吹著一個用黑色塑料包裹著的遺體。 “我們已經厭倦了拔打911，唯一能做的事只有等待。”
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085010/1-19-scaled.png)
 
-4月2日，瓜亞基爾的一個家庭公寓樓外，一具棺材裡躺著一位可能死於CCP病毒的人，屍體被塑料包裹，上面覆蓋著硬紙板。 “屍體發出的氣味太難聞了，實在令人難以忍受”，格倫達·拉雷亞·維拉（Glenda Larrea Vera）在視頻中說道，她站在街對面，戴著口罩，“可誰家都有老邁的鄰居。我有一個80歲的母親，她也有呼吸問題。”
+**縫製步驟：** （1）正面向內對折，縫合長邊，在大約1/3處留一小口不縫合（圖3）。如有鎖邊機和彈性線最好，如沒有以之字形（zig-zag stitch）縫合可增加拉伸度。 （2）下一步按圖示90°折疊再折疊（圖4，5）。 （3）在折疊的上部交匯處共有4層布（圖6），將中間兩層向裡塞，外面兩層正面相對縫合，如此轉一圈直到全部縫合（圖7）。 （4）從圖3預留的小口處外翻（圖8），最後將圖9的開口以藏針法（invisible stitch）縫合。完成！圖10 是面罩和圍巾，圖11是帽子。
 
-國家數據顯示，厄瓜多爾當局在3月23日至30日期間從該市私人住宅中收集了300多具遺體。根據中央情報局的資料，該市有299萬居民。這座城市位於瓜亞斯河畔，是該國的主要港口和最重要的經濟城市。 CNN上週獲得的視頻監控顯示，一名摩托車手將一具屍體遺放在大街上。幾個小時後，被一群穿著特殊防化服的人看到，他們撿起死者，然後開車離開。
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085116/2-6-scaled.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085322/3-6-scaled.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085441/4-2-scaled.png)
+- ![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085648/5-5-scaled.png)
 
-厄瓜多爾的CCP病毒在過去的三天裡已經從“每天帶走30名死者增加到150人”。瓜亞基爾市長辛西婭·維特麗(Cynthia Vieri)裡上週在她的推特賬戶上絕望地請求國家政府的幫助。 “他們不是從房子裡把死人帶走，而是把他們留在街道上，人們倒在醫院前面，沒人願意把他們撿起來”，由於醫院無法提供醫療服務，一些人在等待治療時死亡。一名瓜亞基爾婦女在醫院的輪椅上死亡，醫院沒有床位，她的屍體近四個小時之後才被帶走。
 
-一些公民擔心，經證實的陽性感染病例比厄瓜多爾政府報告的要高，他們要求採取行動，減少類似其他國家出現的那種由於拖延和缺乏檢測而導致失望的情況。列寧·莫雷諾總統星期四在向全國發表講話時，呼籲各級政府在危機造成的人數方面保持透明。莫雷諾說：“說實話是很重要的。”他還說，“無論是病例數量還是死亡人數，記錄都沒有實際的多。”
+**一巾多用：**
 
-[原文鏈接](https://www.cnn.com/2020/04/03/americas/guayaquil-ecuador-overwhelmed-coronavirus-intl/index.html)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/05085545/6.png)
 
-翻譯報導: 意翎
+**獨一無二：**
+
+加入你自己的設計元素，比如在圖9的開口處加一個小兜儿放鑰匙和零錢，拼接不同顏色的布料使面罩更加變幻。如果萬一做鬆了，不用擔心，可以在面罩後面加一個同色按扣。非常時期，戰友保重，既要抗疫，也要時尚。
+
+（文章內容僅代表作者觀點）
 
 0
