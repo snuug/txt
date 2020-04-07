@@ -71,6 +71,11 @@
 [https://www.guo.media/posts/277325](https://www.guo.media/posts/277325) `2020-04-07T05:10:28`
 ##
 
+**milesguo** The US Stood Up a Formal Convalescent Plasma Program<br>https://gnews.org/162644/
+
+[https://www.guo.media/posts/277324](https://www.guo.media/posts/277324) `2020-04-07T06:40:13`
+##
+
 **milesguo** Daily broadcast of the world multilingual CCP virus epidemic text on April 4, 2020<br>https://gnews.org/162592/
 
 [https://www.guo.media/posts/277323](https://www.guo.media/posts/277323) `2020-04-07T05:10:30`
