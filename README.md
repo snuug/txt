@@ -11,6 +11,31 @@
 
 
 
+**milesguo** Trump: Our energy is now independent<br>https://gnews.org/163856/
+
+[https://www.guo.media/posts/277336](https://www.guo.media/posts/277336) `2020-04-07T04:55:14`
+##
+
+**milesguo** We check it out first!<br>https://gnews.org/163805/
+
+[https://www.guo.media/posts/277335](https://www.guo.media/posts/277335) `2020-04-07T04:55:16`
+##
+
+**milesguo** Pray for doctors, nurses and everyone<br>https://gnews.org/163566/
+
+[https://www.guo.media/posts/277333](https://www.guo.media/posts/277333) `2020-04-07T04:55:18`
+##
+
+**milesguo** TNT Daily : CCP says that there are still cases treated in hospitals and cases coming back from abroad<br>https://gnews.org/163334/
+
+[https://www.guo.media/posts/277330](https://www.guo.media/posts/277330) `2020-04-07T04:55:19`
+##
+
+**milesguo** CCP Coronavirus Pandemic Episode 72, April 5, 2020<br>https://gnews.org/163305/
+
+[https://www.guo.media/posts/277329](https://www.guo.media/posts/277329) `2020-04-07T04:55:21`
+##
+
 **milesguo** 【共产党病毒真相】4月6日视频合集<br>https://gnews.org/zh-hans/163744/
 
 [https://www.guo.media/posts/277301](https://www.guo.media/posts/277301) `2020-04-06T17:55:23`
