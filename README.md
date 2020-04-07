@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/277333](https://www.guo.media/posts/277333) `2020-04-07T04:55:18`
 ##
 
+**milesguo** “Buy American” based on DPA<br>https://gnews.org/162900/
+
+[https://www.guo.media/posts/277331](https://www.guo.media/posts/277331) `2020-04-07T05:55:14`
+##
+
 **milesguo** TNT Daily : CCP says that there are still cases treated in hospitals and cases coming back from abroad<br>https://gnews.org/163334/
 
 [https://www.guo.media/posts/277330](https://www.guo.media/posts/277330) `2020-04-07T04:55:19`
