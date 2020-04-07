@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室：中國人是如何被中共綁架的
-`2020-04-06 19:34 GM09` [轉載自GNews](https://gnews.org/zh-hant/164235/)
+## 日本東京連續兩天 新增破百
+`2020-04-06 19:47 GM09` [轉載自GNews](https://gnews.org/zh-hant/164243/)
 
-字幕：維納斯
+作者：多國語言組
 
-節選自[War Room Pandemic 101](https://www.youtube.com/watch?v=Ezf7hFnRafY)
+中共病毒的東京感染者突破1000人，新確診143人，年輕人突出。
 
+東京於5日發表，確診新增感染新冠人數143人。更新了1天內感染數的最高紀錄。連續兩天超過100人，東京市內感染者累計超過1033人。包含懷疑是在永壽綜合醫院（台東區）裡感染的4名住院患者在內，死亡7人，東京市內死者共計30人。
+
+來源：https://www.jiji.com/jc/article?k=2020040500174&g=soc
+ 
 0
