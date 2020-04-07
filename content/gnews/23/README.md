@@ -1,44 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共必須為冠狀病毒危機承擔責任
-`2020-04-07 02:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/164584/)
+## 2020年4月6日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-07 02:55 GM33` [轉載自GNews](https://gnews.org/zh-hant/164709/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07024310/1-28.png)
-隨著中共病毒席捲全球，一個事實越來越清楚：是中國共產黨引發了這場危機，由此證明，共產主義對全世界都是嚴重的威脅。如果當時中共北京政府誠實的話，這種全球肆虐的狀況本是可以被預防的。
+山東濱州學院有人高燒40度被拉走；武漢疫情依舊嚴重，只是政府掩蓋不報；國內糧食漲價；班農：中共犯有蓄意謀殺罪
 
-從中共病毒在中國中部出現的那一刻起，北京採取措施就使病毒全球肆虐成為可能。它掩藏了武漢發生的一切。它使試圖警告世界的吹哨人靜默無聲。儘管中共一再聲稱中共病毒沒什麼大不了，但它還是從其他國家偷走了醫療用品。
+[English0406\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)
 
-在防疫的每個階段，中國共產黨都撒了謊​。現在已造成至少有50,000人死亡。而且這個數字正在逐分鐘增加。其罪魁禍首就是是中共政府，現在的狀況是其壓迫的結果-這就是“中國特色社會主義”。阻止疾病蔓延的唯一方法是快速傳播準確真實的信息，這樣才能為人民和國家提供預防疾病流行的事實和時間。中共的專制統治使這成為不可能。從12月開始，共產黨當局鎮壓了所有談論中共病毒的言論。
+[French4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)
 
-當一位勇敢的醫生在網上告誡其他人時，他在半夜被警察傳喚，並被迫寫下“自我批評”，強迫他承認犯罪是一種典型的共產主義者壓制異議者所使用的方法。當中國記者撰寫有關疾病的報導時，他們的工作受到了審查。當普通市民上社交媒體分享事實時被限制了言論自由。北京竭盡全力阻止外界弄清中國的實際情況。
+[German-4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)
 
-中國境外人們幾乎不知道國內可怕的真實情況。美國情報機構得出的結論是，中國系統化地隱藏了實際的感染人數和死亡人數。可以肯定的是，在一月中旬，北京仍然聲稱只有幾十人感染了冠狀病毒。由於我們已經收到許多中國內部持不同意見者的聲音，因此我們相信實際感染人數和死亡人數可能要高得多。
+[Japanese4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)
 
-中共的謊言使世界陷入一種虛假的安全感。中國通過掩飾中共病毒對其的危害程度，使其他國家認為情況已經得到控制，或者誤以為他們自己有更多的準備時間。白宮一位高級官員指出，中國的數據使美國醫學界認為“比所有人預期的都要小……最終我們丟失了大量可靠數據。”
+[Russia\_4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)
 
-最終，中國的不完整數據導致其他國家的準備不足。中共謊言不僅僅包括受感染人數。他們還掩藏了中共病毒本身的性質。中共這樣的行為違反了曾經簽署的包括《國際衛生條例（2005）》在內的國際條約義務。
-
-中共直到1月20日還在否認人傳人。但是與此同時，中國官員和國有公司卻緊急從澳大利亞，歐洲和世界各地購買大量醫療用品，尤其是口罩和手套等個人醫療防護用品。簡而言之，中共囤積了全世界的醫療防護資源，卻對外謊稱人們的生命沒有受到威脅。中共的這種行為降低了其他國家的疾控能力。或許在某些國家這種疾病可能其境內爆發，但他們並未意識到因為中共對這種疾病的蔓延撒了謊。中共病毒全球肆虐只是時間問題。
-
-現在，全世界正面臨著自二戰以來前所未有動盪。所有國家都實行了封鎖，關閉邊境，且面臨著即將到來的經濟崩潰。政府正在動員人民做長期抗疫的打算。數十億人處於恐懼之中。
-
-但是，如果當時中國共產黨選擇說實話，所有這些都是可以預防的。
-
-如果中共允許中國的醫生發聲並允許言論自由，那麼該病毒現在可能已經被遏止了。
-
-如果中共對傳播方式說實話，那麼從紐約到新德里的人們就可以做好相應的準備。
-
-我們的觀點：中共病毒導致呼吸機的供應下降，就像缺乏測試盒一樣。
-
-如果中共提供真實的感染人數和死亡人數，那麼其他國家將意識到危險，並採取必要的措施。
-
-但是中共並不誠實。現在導致全球超過一百萬人感染中共病毒，數百萬人可能今年走向死亡。
-
-中共病毒肆虐全球的狀況，中國共產黨手上沾滿了無辜人們鮮血的最好證明。
-
-[原文鏈接](https://www.usatoday.com/story/opinion/2020/04/05/blame-chinese-communist-party-coronavirus-crisis-column/2940486001/)
-
-翻譯報導：明澈
+[Spanish4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)
 
 0
