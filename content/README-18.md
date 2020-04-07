@@ -12,6 +12,10 @@
 
 ## 頁面 18/25 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [25](/content/README-25.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180607-8000393637108456093.md)
+
+[文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/content/2018/06/20180605-3544664024044691633.md)
+
 [文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180602-4228988724633844641.md)
 
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/05/20180531-5466761042269971935.md)
@@ -57,10 +61,6 @@
 [文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
 
 [文字版4月14号文贵报平安视频：文贵乱谈美国及盟国导袭叙利亚！是否是中国的第二次战略机会！还是盗国贼盗国的最大机会！我们应该怎么看！一切都是刚刚开始！](/content/2018/04/20180418-263041945712607182.md)
-
-[文字版2018年4月13日文贵为什么要爆杨洁篪的料！](/content/2018/04/20180418-500002948561788779.md)
-
-[文字版2018年4月12日在华盛顿的两天行程夏夜良会不会在自己的家庭旅馆里按 像头！内涵段子是中国民主法治自由的新纪元！](/content/2018/04/20180418-67355639840191064.md)
 
 
 ## 頁面 18/25 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [25](/content/README-25.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
