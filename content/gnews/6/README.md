@@ -1,21 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月6日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-07 02:55 GM33` [轉載自GNews](https://gnews.org/zh-hant/164709/)
+## 班農怒懟CCP、基辛格及其“達沃斯”幫兇
+`2020-04-07 03:15 GM31` [轉載自GNews](https://gnews.org/zh-hant/164613/)
 
-山東濱州學院有人高燒40度被拉走；武漢疫情依舊嚴重，只是政府掩蓋不報；國內糧食漲價；班農：中共犯有蓄意謀殺罪
+白宮前首席戰略師史蒂夫·班農（Steve Bannon）在[4月6日](https://youtu.be/jMGeVX4fClw)的War Room節目中怒懟中共、基辛格（Kissinger）以及中共幫兇。
 
-[English0406\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)
-
-[French4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)
-
-[German-4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)
-
-[Japanese4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)
-
-[Russia\_4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)
-
-[Spanish4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)
+*聽寫：【Dollaram】翻譯：【不吃豆的豆豆】* *校對：【不吃豆的豆豆】【GM31】字幕：【不吃豆的豆豆】*
 
 0
