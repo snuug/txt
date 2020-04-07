@@ -36,6 +36,21 @@
 [https://www.guo.media/posts/277329](https://www.guo.media/posts/277329) `2020-04-07T04:55:21`
 ##
 
+**milesguo** Further Erosion of Rights: Hong Kong Police Obtain Power of Search of Mobile Phones without Warrant<br>https://gnews.org/160859/
+
+[https://www.guo.media/posts/277325](https://www.guo.media/posts/277325) `2020-04-07T05:10:28`
+##
+
+**milesguo** Daily broadcast of the world multilingual CCP virus epidemic text on April 4, 2020<br>https://gnews.org/162592/
+
+[https://www.guo.media/posts/277323](https://www.guo.media/posts/277323) `2020-04-07T05:10:30`
+##
+
+**milesguo** Banned audio from China: CCP Virus=SARS+AIDS; no cure or vaccine<br>https://gnews.org/162385/
+
+[https://www.guo.media/posts/277322](https://www.guo.media/posts/277322) `2020-04-07T05:10:31`
+##
+
 **milesguo** 【共产党病毒真相】4月6日视频合集<br>https://gnews.org/zh-hans/163744/
 
 [https://www.guo.media/posts/277301](https://www.guo.media/posts/277301) `2020-04-06T17:55:23`
