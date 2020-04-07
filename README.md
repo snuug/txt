@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Trump remarks about infrastructure<br>https://gnews.org/163906/
+
+[https://www.guo.media/posts/277337](https://www.guo.media/posts/277337) `2020-04-07T05:40:14`
+##
+
 **milesguo** Trump: Our energy is now independent<br>https://gnews.org/163856/
 
 [https://www.guo.media/posts/277336](https://www.guo.media/posts/277336) `2020-04-07T04:55:14`
@@ -44,6 +49,11 @@
 **milesguo** CCP Refused Indonesia Chinese to Enter China<br>https://gnews.org/163206/
 
 [https://www.guo.media/posts/277328](https://www.guo.media/posts/277328) `2020-04-07T05:25:14`
+##
+
+**milesguo** Miles Guo: Three lunatic Great Leaps Forward in China<br>https://gnews.org/163026/
+
+[https://www.guo.media/posts/277327](https://www.guo.media/posts/277327) `2020-04-07T05:40:16`
 ##
 
 **milesguo** British Scientists developed early warning test for CCP Virus before symptoms appear.<br>https://gnews.org/162669/
