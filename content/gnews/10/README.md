@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 忘恩負義！中共政府強迫意大利購買的醫療物資卻是幾週前意大利捐給中共國的
-`2020-04-07 02:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/164596/)
+## 2020年4月6日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-07 02:55 GM33` [轉載自GNews](https://gnews.org/zh-hant/164709/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07023803/39CF93A0-AD9F-453A-B609-13660249CFFE.jpeg)
-美國福克斯新聞網6號報導，中共政府正在積極的向全世界兜售口罩等醫療物資，以重新塑造自己在全球人道主義救援的領導地位，這也顯示了北京積極活動背後的真是意圖。
+山東濱州學院有人高燒40度被拉走；武漢疫情依舊嚴重，只是政府掩蓋不報；國內糧食漲價；班農：中共犯有蓄意謀殺罪
 
-隨州歐洲和美國確診的感染患者增多和繼續上升，隨之而來的是大量醫療物資的需求，更加突顯了許多國家對中共國供應鏈的依賴。據一份報告顯示，中共在宣布將向意大利捐贈口罩和病毒測試盒之後，又悄悄地給地中海國家出售了大量的醫療物資。更令人糟心的是，中國強迫意大利購買的個人防護裝備實際上是幾週前中共病毒大爆發時意大利向中共國捐贈的醫療物資。
+[English0406\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)
 
-美國政府一位高級官員說，“在病毒侵襲歐洲之前，意大利曾向中共國政府捐贈了數噸醫療物資，幫助中國人民抗擊疫情。然而，幾週後，中共國政府又將意大利捐贈的物資賣回到意大利，而且還只是一部分…”。
+[French4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)
 
-除此之外，中共國政府向歐洲許多國家出售的醫療物資不是達不到標準就是有缺陷。西班牙返還了5萬套測試工具盒給中共國政府；荷蘭拒絕接受中共國政府提供的任何醫療物資；土耳其、格魯吉亞、捷克等國也表示從中共國政府手裡購買的病毒檢測盒存在質量問題。然而，中共國政府非但沒有解決問題，更是指責購買者的錯誤使用。
+[German-4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)
 
-“中共國政府很卑鄙，他們現在說他們是幫助全世界和意大利的國家，但事實上，他們才是傳染給世界病毒的源頭，而且還沒有真實的信息給全世界其他國家做準備，他們當然有義務幫助其他國家。”這位政府高級官員說到。
+[Japanese4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)
 
-誠然，中共國政府對真實數據的掩蓋，使得全世界的情況變得更加糟糕，讓世界陷入了危機。美國副總統彭斯週四表示，如果中共國政府對病毒能透明的報導，世界將會作更好的準備應對這種可怕的病毒，全球也不會死這麼多人。毫無疑問，中國政府對世界的坦誠態度影響了世界的應對方式。
+[Russia\_4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)
 
-實際上，由於在疫情爆發前期中共國政府刻意淡化病毒的危害，導致可能大量攜帶病毒的中國旅客進入美國。 “我們落後了一個多月，因為中共政府沒有公開真實的信息，到現在他們發布的信息都是虛假的、難以接受的。這些虛假的信息正在削弱全世界的反應…”這位政府官員說。
-
-[相關鏈接](https://www.foxnews.com/world/china-italy-coronavirus-supplies-buy-back)
-
-翻譯報導：投
+[Spanish4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)
 
 0
