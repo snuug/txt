@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多項經濟救助計劃正式啟動運行
-`2020-04-07 02:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/164565/)
+## 2020年4月6日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-07 02:55 GM33` [轉載自GNews](https://gnews.org/zh-hant/164709/)
 
-在[4月2日](https://youtu.be/HqnHa9jRRlU)白宮疫情小組舉行的新聞發布會上，川普總統、財長姆努欽和小企業管理局局長喬維塔，宣布社會保障計劃和工資保障計劃啟動並運行，隨後詳細闡述了關於兩項計劃的申請、發放流程，以及這兩項計劃給人們帶來的好處。
+山東濱州學院有人高燒40度被拉走；武漢疫情依舊嚴重，只是政府掩蓋不報；國內糧食漲價；班農：中共犯有蓄意謀殺罪
 
-*翻譯：【不吃豆的豆豆】校對：【Winston Jackson】【GM31】【雪菜】字幕：【mg南】*
+[English0406\_CCP\_Virus\_Updates](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025314/English0406_CCP_Virus_Updates.pdf)
+
+[French4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025322/French4.6.pdf)
+
+[German-4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025332/German-4.6.pdf)
+
+[Japanese4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025341/Japanese4.6.pdf)
+
+[Russia\_4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025355/Russia_4.6.pdf)
+
+[Spanish4.6](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)[下載](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07025403/Spanish4.6.pdf)
 
 0
