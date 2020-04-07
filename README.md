@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/277335](https://www.guo.media/posts/277335) `2020-04-07T04:55:16`
 ##
 
+**milesguo** Coronavirus could survive on masks for 7 days; Ambient temperature affects the virus<br>https://gnews.org/162258/
+
+[https://www.guo.media/posts/277334](https://www.guo.media/posts/277334) `2020-04-07T05:25:12`
+##
+
 **milesguo** Pray for doctors, nurses and everyone<br>https://gnews.org/163566/
 
 [https://www.guo.media/posts/277333](https://www.guo.media/posts/277333) `2020-04-07T04:55:18`
@@ -34,6 +39,16 @@
 **milesguo** CCP Coronavirus Pandemic Episode 72, April 5, 2020<br>https://gnews.org/163305/
 
 [https://www.guo.media/posts/277329](https://www.guo.media/posts/277329) `2020-04-07T04:55:21`
+##
+
+**milesguo** CCP Refused Indonesia Chinese to Enter China<br>https://gnews.org/163206/
+
+[https://www.guo.media/posts/277328](https://www.guo.media/posts/277328) `2020-04-07T05:25:14`
+##
+
+**milesguo** British Scientists developed early warning test for CCP Virus before symptoms appear.<br>https://gnews.org/162669/
+
+[https://www.guo.media/posts/277326](https://www.guo.media/posts/277326) `2020-04-07T05:25:15`
 ##
 
 **milesguo** Further Erosion of Rights: Hong Kong Police Obtain Power of Search of Mobile Phones without Warrant<br>https://gnews.org/160859/
