@@ -1,85 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 關於Zoom威脅的30個真正的核心問題
-`2020-04-08 02:50 GM30` [轉載自GNews](https://gnews.org/zh-hant/165822/)
+## 【多語言圖文版】4月5日中共病毒疫情要聞快報
+`2020-04-08 09:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/166197/)
 
-**作者：Mr. J**
+[4.5-每日要點-英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090710/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090710/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88.pdf)
 
-自Zoom於2020年3月下旬被發現其將用戶隱私數據發送給Facebook開始，十余天來陸續被曝光了諸如偽裝和偽稱端對端加密、客戶端本地漏洞等等。然而，目前所有的媒體評論和質疑全部都沒有觸及到Zoom事件的核心。為了真正的指出Zoom問題和Zoom威脅的核心所在，專門列出了關於Zoom威脅的最核心的30個問題，供參考。
+[4.5-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090754/4.5-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090754/4.5-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08024841/image0-52.jpg)
+[4.5-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090829/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090829/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-Zoom核心問題30問——
+[4.5-每日要點-法語版-français](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090910/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090910/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)
 
-Q1 Zoom有沒有遵守中共的計算機安全法規設置後門？
+[4.5-每日要點-韓語版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090936/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090936/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
 
-Q2 Zoom有沒有在服務器端或客戶端內置後門或第三方後門？
+[4.5-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091045/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091045/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-Q3 Zoom有沒有在為中共軍方、國安、公安等軍事、安全、政法部門提供特殊接口？
+[4.5-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091111/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091111/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-Q4 Zoom有沒有為中共的軍事、安全、政法部門提供專門的辦公場所和辦公條件？
+[4.5-每日要點-俄語版5-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091123/5-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091123/5-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-Q5 Zoom有沒有為中共的軍事、安全、政法部門人員在前往他國時提供身份掩護？
 
-Q6 Zoom有沒有直接或間接接入“阿里內容安全”系統？
-
-Q7 Zoom有沒有直接或間接接入中共聲紋識別系統或數據庫？
-
-Q8 Zoom有沒有收集用戶設備指紋如設備型號、操作系統版本、硬件唯一編碼等？
-
-Q9 Zoom有沒有對第三方SDK收集到的數據進行備份、使用、分享？
-
-Q10 Zoom有沒有用某種或多種方式識別用戶？
-
-Q11 Zoom有沒有收集和持有中共主權及司法管轄權以外國家和地區的用戶的個人數據？
-
-Q12 Zoom有沒有將用戶數據實時或定期發送給中共軍事、安全、政法等部門？
-
-Q13 Zoom有沒有向中共提供中共需要的深度用戶數據？
-
-Q14 Zoom有沒有向中共提供中共需要的他國用戶數據？
-
-Q15 Zoom有沒有同大外宣進行工作銜接？
-
-Q16 Zoom有沒有為中共海外情報工作提供支持？
-
-Q17 Zoom有沒有對國內和海外中國人中的反共人士和異議進行專門識別和跟踪？
-
-Q18 Zoom有沒有對中共指定的人員建立檔案或幫助建立檔案？
-
-Q19 Zoom有沒有識別和跟踪香港“反送中”抗議運動人員？
-
-Q20 Zoom有沒有為中共識別、跟踪、抓捕香港抗議人員提供幫助？
-
-Q21 Zoom有沒有為中共識別、跟踪、抓捕爆料革命成員提供幫助？
-
-Q22 Zoom有沒有為中共對郭文貴先生設置陷阱提供幫助？ （特別說明：陷阱部分已有證據。）
-
-Q23 Zoom有沒有對美國政府、議會、軍事部門、安全部門、司法部門進行數據、情報收集和分享？
-
-Q24 Zoom有沒有對涉及美國國家安全的人員、企業、組織進行數據、情報收集和分享？
-
-Q25 Zoom有沒有為中共計算機入侵、滲透美國人員、企業、組織提供幫助或跳板？
-
-Q26 Zoom有沒有為中共安全部門提供特殊版本或加密強度更高的會議系統？
-
-Q27 Zoom有沒有為美國政府、企業專門提供弱加密的或已知可利用漏洞的會議系統？
-
-Q28 Zoom有沒有在企業內部壓制和隱瞞有關漏洞的發現、上報、修補？
-
-Q29 Zoom有沒有獲取中共的直接或間接投資與各種補貼？
-
-Q30 Zoom有沒有接受中共派駐人員進入公司的董事會、管理層、安全部門、技術部門？
-
-備註：
-
-作為爆料革命戰友，我們幾個戰友自2019年7、8月份起開始阻止戰友們被拉去登錄和使用Zoom，阻止了很多香港、台灣的孩子被拉去登錄和使用Zoom。自2019年9月起，一些戰友正式的展開了反Zoom活動，努力傳播反Zoom信息，直到今天我們的“反Zoom”工作仍在進行之中。就在兩三週前，我們還發現了針對郭先生的Zoom陷阱（已報法治基金），可見Zoom對爆料革命威脅之大之久。受Covid-19中共病毒疫情的影響，Zoom用戶規模在3個月內增長了20倍達到2億用戶，其中大部分新增用戶來自美國，至此我們（全球）開始面臨同樣的威脅。
-
-希望更多的戰友參與傳播Zoom威脅和危害真相！希望早日啟動對Zoom的安全和司法調查！
-
-一切都已經開始。
-
-（文章內容僅代表作者觀點）
 
 0
