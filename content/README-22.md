@@ -12,6 +12,8 @@
 
 ## 頁面 22/25 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
+
 [2017.11.21 文贵Instagram健身直播 ](/content/2018/04/20180418-7655939134164928883.md)
 
 [文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
@@ -59,8 +61,6 @@
 [翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/2018/04/20180418-732290735735777378.md)
 
 [翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/2018/04/20180418-1943689665396012735.md)
-
-[文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
 
 
 ## 頁面 22/25 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

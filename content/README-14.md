@@ -12,6 +12,8 @@
 
 ## 頁面 14/25 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [25](/content/README-25.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/2019/01/20190107-8663591932172573911.md)
+
 [文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190102-5930616806834548247.md)
 
 [文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2018/12/20181231-1701485310206179392.md)
@@ -59,8 +61,6 @@
 [文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/content/2018/11/20181117-9134684520600037722.md)
 
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/content/2018/11/20181117-5688974428760501004.md)
-
-[文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/content/2018/11/20181116-2341303954846594943.md)
 
 
 ## 頁面 14/25 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [25](/content/README-25.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
