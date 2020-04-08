@@ -11,6 +11,21 @@
 
 
 
+**milesguo** 这不叫旅游 这叫组团共攀新坟头<br>https://gnews.org/zh-hans/165351/
+
+[https://www.guo.media/posts/277387](https://www.guo.media/posts/277387) `2020-04-08T04:40:13`
+##
+
+**milesguo** 2020年4月7日CCP冠状病毒大流行第74集<br>https://gnews.org/zh-hans/165383/
+
+[https://www.guo.media/posts/277386](https://www.guo.media/posts/277386) `2020-04-08T04:40:14`
+##
+
+**milesguo** 这不叫旅游 这叫组团共攀新坟头<br>https://gnews.org/zh-hans/165351/
+
+[https://www.guo.media/posts/277384](https://www.guo.media/posts/277384) `2020-04-08T04:40:15`
+##
+
 **milesguo** 中共检测手段和检测试剂盒给世界埋下的隐患<br>https://gnews.org/zh-hans/165335/
 
 [https://www.guo.media/posts/277383](https://www.guo.media/posts/277383) `2020-04-08T04:25:11`
