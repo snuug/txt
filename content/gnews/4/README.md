@@ -1,40 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是什麼資訊使英國政府24小時內改變中共病毒來源立場的
-`2020-04-08 02:31 Diago` [轉載自GNews](https://gnews.org/zh-hant/165776/)
+## 我經歷的七五事件
+`2020-04-08 02:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/165798/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020023/8e55a5ea647aa20414ec5b26217960fa-4.png)
-作者：Diago
+**作者：烏魯木齊小市民**
 
-在[2020年4月7日CCP冠狀病毒大流行第74集：廣東疫情大爆發；黑龍江綏芬河市方艙醫院正式開張運營；美國將告中共一級謀殺13:47時間點](https://youtu.be/4zWKdwGKKLg?t=827)班農先生與Jeremiah O’keeffe先生連線中爆出了重磅——英國政府根據Jeremiah O’keeffe先生提供的資訊改變了中共CCP冠狀病毒來源的立場——承認病毒有可能來自武漢的病毒實驗室，而不是中共編造的#海鮮市場。一位首席教授于2月5日在網上公佈了這份檔之後消失了!按圖索驥，我們先看一下War room Pandemic的相關推文——
+二零零九年七月五日，那是我第一次體會到我的家園就要失去了。十年過去了，當時的情景還是記憶猶新。
 
-[O’Keeffe與戰斗室連線推文連結](https://twitter.com/WarRoomPandemic/status/1247575002813267970)：O’Keeffe: In last 24 hours, the UK gov’t has acknowledged and is now open to the possibility that the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) came out of one of two [#Wuhan](https://twitter.com/hashtag/Wuhan?src=hashtag_click) labs, not the “wet market” [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#30DaysToSaveAmerica](https://twitter.com/hashtag/30DaysToSaveAmerica?src=hashtag_click) [http://warroom.org/podcast](https://t.co/HuZDFNTwiv?amp=1)（筆者注：中文大意——在過去的24小時內，英國政府認識到並且對病毒來自武漢實驗室而不是來自於海鮮市場持開放態度）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020150/WhatsApp-Image-2020-04-08-at-1.02.43-PM-1.jpeg)
-[O’Keeffe與戰斗室連線推文連結二](https://twitter.com/WarRoomPandemic/status/1247575178260987908)：O’Keeffe: Paper by 2 PhDs from S. China U of Tech concludes that “staff people at one of the institutes” were exposed to the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) through horseshoe bat Both authors now missing [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#30DaysToSaveAmerica](https://twitter.com/hashtag/30DaysToSaveAmerica?src=hashtag_click)   http://warroom.org/podcast（筆者注：中文大意——華南理工大學的兩位博士得出的武漢兩個實驗室之一的暴露於馬頭蝠冠狀病毒的作者已經失蹤）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020532/WhatsApp-Image-2020-04-08-at-1.02.56-PM-1.jpeg)
-由於筆者英文不是太好，為不丟失關鍵資訊，請[War Room: Pandemic EP 106 – The CCP Mafia 54:28時間點](https://youtu.be/S2_HOo7bUck?t=3268)觀看Jeremiah O’keeffe的詳細論述：
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020651/WhatsApp-Image-2020-04-08-at-1.03.26-PM-1.jpeg)
-那麼這兩位博士是誰？他們發表的文章是什麼內容？經過拉網式搜索，在[The Trail Leading Back to the Wuhan Labs](https://www.nationalreview.com/2020/04/coronavirus-china-trail-leading-back-to-wuhan-labs/)（By [Jim Geraghty](https://www.nationalreview.com/author/jim-geraghty/) April 3, 2020 1:20 PM）這篇文章裡找到了源頭：
+七月五日。那是一個暑假的下午。我去友好書店去找音樂碟片。友好附近並沒有任何異常，下午到六點多一點才回家。新聞聯播開始的那個時間，家裡的電話開始響個不停。 “維族人在南門，人民廣場、二道橋那塊鬧事了，這兩天別出門了，尤其別去那些地方。親朋好友這樣告訴我們。
 
-【At some point in February, Botao Xiao posted a research paper onto ResearchGate.net, “[The Possible Origins of 2019-nCoV coronavirus.”](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus) He is listed as one author, along with Lei Xiao from Tian You Hospital, which is [affiliated with the Wuhan University of Science and Technology](https://www.wheto.gov.hk/filemanager/content/pdf/contact_information_public_private_hospitals_e.pdf). The paper was removed a short time after it was posted, but archived images of its pages can be found [here](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus) and [here](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan).
+南門、人民廣場、二道橋這些地方相對都是在烏魯木齊的南面。我當時住在烏魯木齊北面。在烏魯木齊，住在烏魯木齊南邊的維吾爾人相對集中、也多於北面。 （以烏魯木齊城內南北門為界線，南門以南為南面，北門以北為北面）自己剛從友好回來也並沒有什麼異樣。
 
-（中文大意——在2月的某個時候，Xiao Botao在ResearchGate.net上發佈了一篇研究論文，“ 2019-nCoV冠狀病毒的可能起源”。 他與武漢科技大學附屬天佑醫院的雷霄一起被列為作者。 論文在發佈後不久被移除，但是可以在[這裡](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus)和[這裡](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan)找到其頁面的存檔圖像。）
+我特別想知道到底發生了什麼事情，於是到電視新聞上尋找答案。當天晚上所有的媒體基本沒有報導相關的新聞。街上的人相比以前是少很多而且沒有一輛巡邏的車，到晚上九點半（烏魯木齊日照時間長，夏天通常九點半以後天黑，完全黑大概在晚上十點半左右）以後，天黑以後才聽見兩輛警車開過。那也是那天晚上僅有的兩輛警車。也就是說當天晚上，在我所居住的地方是沒有任何人來保護我們的。第二天早起還和家人聊天，要注意安全，但是昨晚看起來警車沒有多少，應該也沒有發生多大的事情。家人就出門了。我趕緊打開電視看看到底發生了什麼事情。當時就在想維吾爾人為什麼要在烏魯木齊做這樣的事情？這裡不是他們的“老家”嗎？他們又到底做了什麼？他們這次“鬧事”又會持續多久？為什麼官方的定性還沒下來我周圍的人都自然而然的叫這次暴亂“維吾爾人鬧事”？在這之前我聽說過烏魯木齊52路公共車爆炸案，當時是怎麼定性的？當時又是怎麼回事，為什麼會有“維族人鬧事”這種概念的存在？
 
-The first conclusion of Botao Xiao’s paper is that the bats suspected of carrying the virus are extremely unlikely to be found naturally in the city, and despite the stories of “bat soup,” they conclude that bats were not sold at the market and were unlikely to be deliberately ingested.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08023119/image0-50.jpg)
 
-（中文大意——Xiao Botao論文的第一個結論是，懷疑攜帶這種病毒的蝙蝠極不可能在城市中自然發現，儘管有“蝙蝠湯”的故事，他們得出的結論是，蝙蝠並未在市場上出售，因此不太可能被故意攝取。
+剛開始我試圖從自己的經驗裡找到這些問題的答案。小時候我和維吾爾人在同一個幼兒園、小學上學，雖然不在一個班級裡面上課，體育課的時候所有的小朋友都在一個操場上嬉笑打鬧，週一升國旗，整個操場是同時可以聽到維吾爾語和普通話的國歌，並沒有感到什麼不和諧的地方。平時去維吾爾人那裡買馕、拉條子、烤肉等等，他們也都是很友好的。不過仔細想想自己其實並沒有什麼維吾爾族的朋友，除了一些生活習慣上常識性的了解以外，他們的語言、文化、還有伊斯蘭教文化對於我來說都是非常陌生的。即便是這樣，仇恨在我們之間是肯定不存在的。那麼他們為什麼要在烏魯木齊做這樣的事情？
 
-The bats carrying CoV ZC45 were originally found in Yunnan or Zhejiang province, both of which were more than 900 kilometers away from the seafood market. Bats were normally found to live in caves and trees. But the seafood market is in a densely-populated district of Wuhan, a metropolitan [area] of ~15 million people. The probability was very low for the bats to fly to the market. According to municipal reports and the testimonies of 31 residents and 28 visitors, the bat was never a food source in the city, and no bat was traded in the market.】
+坐在電視跟前一邊想著一邊看電視想看看外面到底發生了什麼， “官方”又怎麼說？中央電視台首先發布了這個“暴亂”的消息，畫面出現的是在人民廣場，場面很混亂，兩個身上帶血的女士站在那裡互相安慰。
 
-（中文大意——帶有CoV ZC45的蝙蝠最初是在雲南或浙江省發現的，兩者均距海鮮市場900多公里。 蝙蝠通常被發現是生活在洞穴和樹木中的。 但是海鮮市場是在武漢一個人口稠密的地區，這個大都市（地區）有1500萬人。 蝙蝠飛向市場的可能性非常低。 根據市政報告和31名居民和28位遊客的證詞，蝙蝠從來不是城市的食物來源，市場上也沒有蝙蝠交易。】
+隨後又播了南門、大灣其他“暴亂”地方的畫面。我才知道原來南面的情況是這樣的。和我們這里基本沒有人在街上的情況完全不一樣。與我和家人預想的“沒什麼大事”完全不同。一直到7月6日的中午，除了收到那條被電話公司和新聞後來特意提起的釣魚詐騙短信—–讓我們自己團結起來一起對付“三股勢力”。沒有任何警察和其他的官方的人給我們提供有效的保護措施和辦法。家屬院裡的長輩都商量著，這樣大規模“暴亂”沒人保護我們，得自己保護自己，然後開始收集類似鐵鍬的工具，保安把家屬院的大門鎖起來。 7月6日的下午，家人下班到家屬院裡面的小超市買了一些應急的食品。去的時候貨架上的掛麵方便麵已經基本空了。一直到這時候除了電視上的新聞以外，官方還是沒有提供給我們任何保護措施，沒有人巡邏，沒有人來告訴我們到底怎麼回事，接下來會發生什麼。也沒有人告訴我們該怎麼保護自己。鄰居們在院子裡都非常生氣，議論著某某學校的家長明天要去人民廣場靜坐請願，尋求政府的保護。 7月7日在烏魯木齊頻道看到，有很多的學生家長在人民廣場靜坐，電視畫面上，當時的市長栗智坐著裝甲車，用擴音器不痛不癢的說了幾句官話。結果被靜坐的市民給圍的水洩不通。到了下午，家屬院的保安突然拿著好多鐵絲網，磚頭在院子邊門砌磚牆，把鐵絲網纏在大門的頂部，還帶來了一些狼牙棒。奇怪的是鄰居們前一天才專門問過保安有沒有工具可以保護我們，他們回答是沒有。七五事件後，有針扎事件。人心惶惶的夏天過去了。烏魯木齊也就此開始了以年計的封網的生活。到九月份時不時的有人去人民廣場靜坐請願，和平遊行。請求政府給與我們有效的保護，並且公開七五事件的原委。有一天正在上課，老師通知後面的課不上了，外面在遊行，我和同學一起出去的時候，路上的公交車已經基本停運了，於是我從五公里外的學校走回了家。再後來的一年半的時間，很少在大街上看見維吾爾人。
 
-經搜索發現這一張圖片與視頻中Jeremiah O’keeffe先生手中所拿的紙張高度相似：
-![Chinese wetenschappers: laboratoriumoorsprong van SARS-COV-2 ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020729/Botao-Xiao-1.png)
-請大家務必認真看[The Trail Leading Back to the Wuhan Labs](https://www.nationalreview.com/2020/04/coronavirus-china-trail-leading-back-to-wuhan-labs/)文章中提到的兩處關於Xiao Botao論文的超連結——[這裡](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus)和[這裡](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan)，是這些關鍵資訊使英國政府改變了立場。
+十多年過去了，官方給出了的是由熱比婭為首的“三股勢力”有計劃的、有組織的打砸搶燒嚴重暴力犯罪事件這個定義。既然說是有組織的，那麼他們到底是怎麼組織的？又是組織了誰？能在烏魯木齊搞這麼大規模的破壞？既然說是有計劃的，那麼請告訴我們官方調查的結果，他們分裂分子計劃了什麼？
 
-另外我們要高度關注Xiao Botao和Xiao Lei兩位作者，他們被消失了，他們在哪裡？
+到現在中共政府也沒有給老百姓任何說法。
 
-（文章內容僅代表作者個人觀點）
+七五事件的發生除了讓我感到家園的失去。還有一種被迷霧遮蓋的感受。
+
+心裡面有很多個“為什麼”一直到今天還沒有被解答。
+
+第一個“為什麼”
+
+七五事件前烏魯木齊為什麼突然多了很多外省來的人和南疆來的維吾爾人？當時在飯館，超市和那些外省人隨意的聊起來，他們並不想，也沒有說他們是乾嘛來的。同時，還有許多南疆的維吾爾人，烏魯木齊的維吾爾人在九十年代末的時候基本都換成了和漢人一樣的“普通”著裝。但是當時很多南疆的維吾爾人還穿著民族特徵明顯的維吾爾日常服裝。無意間從他們身邊經過聽他們說維吾爾語的口音和烏魯木齊的也不太一樣。
+
+第二個“為什麼”
+
+七五事件發生的當時，我住的地方在前兩天為什麼是基本沒有任何警察保護的？難道我們那裡的人不需要保護？那麼多的警察集中在人民廣場、二道橋、烏魯木齊的南面。怎麼就知道那裡會一直是“分裂勢力”攻擊的重點？僅僅是因為那里之前被他們攻擊過？這可以被當作理由？
+
+第三個“為什麼”
+
+七五事件發生的當時沙依巴克區的人為什麼不能知道天山區的情況，水磨溝區的人為什麼不能知道天山區的情況？媒體一直公佈的信息為什麼都是重複、無效的？消息如此的被封鎖也是為了保護市民嗎？
+
+第四個“為什麼”
+
+既然說是“三股勢力”有計劃的、有組織的打砸搶燒嚴重暴力犯罪事件。那為什麼在7月18日國家電視台（CCTV）放出來為數不多的提到七五事件發生過程的節目《新聞調查》( [http://tv.cntv.cn/video/C10435/6dde5f6ece2c4af48a41dfaf145bdbfa](http://tv.cntv.cn/video/C10435/6dde5f6ece2c4af48a41dfaf145bdbfa) )
+
+裡面採訪的對象除了漢族人以外全是維吾爾族人？
+
+第五個“為什麼”
+
+七五事件發生後，街上的武警、警察為什麼比發生當時還要多？ “分裂份子”不是都已經被審判了嘛？
+
+老百姓在經歷自己的家園遭遇重創的時候選擇相信政府，依賴政府。把審判的權利和自我保護的權利都交給中共政府，得來的就是無盡的等待、欺騙和殺戮。
+
+後來一個很偶然的機會知道了新疆集中營的事，2018年休假回到烏魯木齊，和以往很不同的是，半個月我只星星兩兩的看到幾個維吾爾人，數量少到連過去的十分之一都不到。 2019年秋天在烏魯木齊街上的維吾爾人比18年的時候數量多，可是烏魯木齊的街道前所未有的空，過去熙熙攘攘的大、小十字，大小西門（烏魯木齊商業區）變得空空蕩盪。就連七五事件發生的當年都沒有這樣的情況。
+
+我真實的經歷過的這個奇怪的現象，毫不誇張的說全網只有文貴先生一個人說到。
+
+可是在文貴先生爆“維姦”之後，卻出現了大量的“幫集中營說話”的人開始“砸郭”了？ ！
+
+他們真的在為集中營裡的同胞發聲嗎？偽善的面具終於戴不下去了。
+
+我想我說的這些親身經歷不過是爆料裡面的邊角料。不過我們每個人把真實的“邊角料”都說出來。那信息量並不小吧！
+
+（文章內容僅代表作者觀點）
 
 0
