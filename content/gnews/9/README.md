@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共理論戰場（⼀）————論戰馬克思主義
-`2020-04-08 08:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/165880/)
+## 世衛已成中共玩偶美出狠招欲停撥款
+`2020-04-08 09:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/166152/)
 
-**作者：XH**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090044/EVEh4xHUYAArGdU.jpeg)
+據華盛頓郵報近日報導，特朗普總統週二表示，美國將重新嚴肅考慮是否繼續向世界衛生組織提供撥款。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08032516/ghjk-3.jpg)
+特朗普總統先前指責中國未能發出警報，同時近幾天他將目光轉向了世界衛生組織他稱其世衛組織在中共冠狀病毒蔓延之初反應滯後，其發言和決策基調均帶有濃重的“以中共為中心”的色彩。
 
-[**滅共理論戰場**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08031954/%E5%88%9D%E7%A8%BF3.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08031954/%E5%88%9D%E7%A8%BF3.pdf)
+總統說：“他們（世衛組織）本可以提早做出正確的決定（即時通知全世界）。然而他們一再犯錯。” 一直以來美國向聯合國公共衛生部門支付了不成比例的款項，因此現在是時候衡量一下這筆錢是否花的值得。即便在目前病毒全球大流行的情形之下對世衛組織撤資可能會引來各界廣泛的批評。總統還是會考慮此舉措。
 
-**請點擊下載按鈕，下載文檔觀看！**
+評：爆料革命戰友評論特朗普總統是位太極高手，果然如此。他把輿論交鋒的熱點暫時從中共引開，這樣能獲取更多時間來做大戰之前的各種準備。文貴先生教導過我們說，不要看政客說什麼，要看他做什麼。目前政客們的迂迴正說明這是世界級衝突升級之前的角力和勾兌。爆料革命的戰友們一定要保護好自己，同時對我們所愛的人傳播真相，一起登上這個保護中華兒女的諾亞方舟。
 
-（文章內容僅代表作者觀點）
+[原文鏈接](https://www.washingtontimes.com/news/2020/apr/7/donald-trump-us-withhold-who-funding/)
+
+翻譯報導：匿名
 
 0

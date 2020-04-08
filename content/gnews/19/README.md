@@ -1,182 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月7日 美國政要推文精選
-`2020-04-08 01:25 GM65` [轉載自GNews](https://gnews.org/zh-hant/165562/)
+## 保全世界，須與中共全面脫鉤，包括社會，經濟和政治
+`2020-04-08 06:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/165988/)
 
-> The W.H.O. really blew it. For some reason, funded largely by the United States, yet very China centric. We will be giving that a good look. Fortunately I rejected their advice on keeping our borders open to China early on. Why did they give us such a faulty recommendation?
-> — Donald J. Trump (@realDonaldTrump) [April 7, 2020](https://twitter.com/realDonaldTrump/status/1247540701291638787?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08064148/Picture-1-100.png)
+奧帕斯卡爾（Cleo Paskal）是民主政治防禦基金會印度太平洋非居民高級研究員，她在周日衛報發表文章犀利指出，只有從多方面與中共進行脫鉤才能得以讓世界獲得安全。她認為是時候從社會以及經濟和政治上遠離CCP病毒的“零號病人”—中國共產黨了。因為這場全球性災難源於中共的了。
 
-> The WHO is controlled by China’s government. They have a lot of questions to answer if they ever want to be taken seriously again. US funding should be In question right now. I don’t want my tax dollars going into a corrupt institution. [#WHO](https://twitter.com/hashtag/WHO?src=hash&amp;ref_src=twsrc%5Etfw) [@DrTedros](https://twitter.com/DrTedros?ref_src=twsrc%5Etfw) [https://t.co/4f5850FQnw](https://t.co/4f5850FQnw)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 7, 2020](https://twitter.com/Jkylebass/status/1247558773054595078?ref_src=twsrc%5Etfw)
+撰稿人直言不諱：自中共執政成立以來，中共的專製本質和所採取的政策已導致數以千萬計的中國人因飢餓，河流污染，計劃生育，或是出於政治動機的監禁等等而喪生，這樣的例子不勝枚舉，而因這些原因死亡的數字至今還依然持續在上升。這次中共病毒的全球危機再次證明此中共政黨之可怕。
 
-川普總統：世衛組織搞砸了。出於某種原因，（世衛組織）由美國資助，卻以中國為中心。我們得好好查查這事。幸運的是，我早先拒絕了他們關於對中國保持邊境開放的建議。他們為什麼給我們這樣錯誤的建議？
+**中共是疫情全球肆虐的始作俑**
 
-卡爾巴斯先生回复：世衛組織被中國政府控制著。如果他們還想受人重視，就得對很多問題作出答复。應該立刻就美國（對他們）的資助進行討論。我不想我納稅的錢給一個腐敗的機構。
+奧帕斯卡爾認為,無論如何，從疫情開始都應歸咎於中共的執政。這類市場，除了違反無數的衛生法規，而且經常非法出售受瀕臨滅絕和受保護的動物外，很可能同時是其他疾病爆發的源頭，包括2003年的SARS本不應該發生。可以看出，中共故意忽略了一些非法的，被認為是危險的操作，並任其發展。無論哪種方式，都歸於執政的失敗。同樣，如果實驗室涉及其中，情況是更糟糕的。
 
-> 🛑China officially reported no new deaths from the Wuhan Virus today…but come to think of it, China hasn't officially reported any deaths from the Tiananmen Square incident as of yet. Maybe it's just a lag in reporting? [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 7, 2020](https://twitter.com/Jkylebass/status/1247600908025901068?ref_src=twsrc%5Etfw)
+當12月初疫情發生時，中共並沒有在所謂病毒發源地的市場上使用執法手段，而將其執法手段殘酷的控制和壓制包括李文亮醫生等試圖了解病人為何生病和死亡的醫療專業人員。 12月初，李文亮醫生向同事詢問了新呼吸道感染疾病的情況，但他很快被警察帶走盤問，並被迫簽署聲明說他在病毒感染問題上撒謊，後來卻因病毒感染殺死了這位醫生。同時，在中共的命令下，病毒的危害被淡化。武漢約有500萬居民離開本市，將其傳播到中國各地，甚至是其他的地區。濫用武力，公開撒謊，指責受害者，無視中國（或任何其他國家）公民的安全。
 
-卡爾·巴斯先生：中國官方今天報告了武漢病毒零新增感染…但是想想吧，中國到現在也沒有任何關於“天安門事件”死亡人數的報導。難不成只是新聞報導的滯後性？
+**中共瘋狂是全球人道經濟危機的根源**
 
-> "They're always on the side of China, but we fund it." Trump said. "They blew it by failing to sound the alarm." Tedros is a member of the Maoist Party of Ethiopia and is owned by the Chinese govt. The US should defund the WHO or have Tedros resign and replaced. [#TedrosResign](https://twitter.com/hashtag/TedrosResign?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/AMV8pJ1YJH](https://t.co/AMV8pJ1YJH)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 7, 2020](https://twitter.com/Jkylebass/status/1247659622372184064?ref_src=twsrc%5Etfw)
+當下，中共關於病毒的利己政策不僅在殺害自己的人民，而且正在殺害全世界成千上萬的人，並使全球經濟陷入停滯。現在是時候將這種致命的全球性傳染病的根源—— 中國共產黨，孤立起來了。在當下這個非常時期，從防守角度看，各國家正在做著從沒未想像過的事情：進入封鎖狀態，提供經濟支持注入數万億美元，採取戰時措施等等。現在到了開始行動的時刻，我們可以先制定一些政策，這些政策可能對確保我們不會再很快處被動的情況有很大幫助。有三種方式與中共進行整體上的脫離。
 
-卡爾·巴斯先生連推：川普說：“他們總是跟中國站在一起，但我們資助了他們。他們沒能發出預警，把事情搞砸了。”譚德賽是埃塞俄比亞“毛派主義政黨”（此處指埃塞俄比亞工人黨，編者按）成員，且從屬於中國政府。美國應該撤銷對世衛組織的資助，或者讓譚德賽辭職，換人。一些美國醫生曾反對他在世衛組織中的提名，認為他在兩次隱瞞霍亂疫情爆發事件上負有責任。醫生們在2017年9月11日寫到：“你對蘇丹每天明顯遭受霍亂大規模流行一事保持沉默，這更應該受到譴責。”
+**與中共社會** **(** **媒體** **)** **脫鉤**
 
-（埃塞俄比亞工人黨，成立於1984年9月12日，現已解散，前身是埃塞俄比亞勞動人民黨組織委員會，曾宣稱信仰共產主義和馬克思列寧主義，埃新政府成立後，取締埃塞俄比亞工人黨，並將該黨的大部分領導人逮捕入獄，清算他們在該黨執政期間犯下的罪行。——維基百科）
+中共正在發動一場關於病毒的非常具有侵略性輿論戰。到目前為止，與政府相關的消息來源都試圖說它起源於美國和意大利，責怪受害者。它還繼續混淆其有關感染，傳播和死亡的數據，這些數據可以挽救生命，包括在中國。
 
-> It’s bad enough that the mainstream media tries to censor conservative American outlets, but now it is actively providing a platform for Chinese state run propaganda. 
-> 
-> Why does the Communist Party have a seat in the briefing room while [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw) is banned?[https://t.co/9RQcirwnAv](https://t.co/9RQcirwnAv)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247498224103043073?ref_src=twsrc%5Etfw)
+全球媒體充斥著為中共辯護的人，他們用“其他政府也撒謊”來做出不實的類比，以喊出這樣的觀點以達到自己的目的。當然，其他政府也會撒謊，但至少在民主國家，存在製衡機制。
 
-參議員Marsha Blackburn：主流媒體試圖對美國保守派媒體加以審查，這已經夠糟糕了，現在又積極地為中國國家大外宣提供平台。為什麼中共能在新聞發布室有一席之地，而同一個美國新聞網卻被禁了？
+而現在中共如此熱衷於使自己看起來已經控制了這種病毒，是為了確保自己不會丟面子，同樣重要的是對內的經濟投資，以至於有他們必須故意製造一種“無大礙”的環境。而這樣的假象，會導致更多的人死去。
 
-（同一個美國新聞網，One America News Network，簡稱OANN，美國一家右翼付費新聞頻道，總部位於加州聖地亞哥。——維基百科）
+頭條新聞宣稱美國是死亡人數最多的國家，只有那些故意或無意相信中國的統計數據的媒體才如此認為。奧帕斯卡爾舉例，想像一下，您有一個鄰居，他總是再所有事情上對您撒謊，比如：欺騙您領地所在的你還能相信這位鄰居說的話嗎？還是你會盡量保持社與其打交道的距離。
 
-福克斯新聞：中國“準官方”新聞機構獲得渠道進入（白宮）冠狀病毒疫情新聞發布會宣傳北京，美國共和黨對此發出警報。
+**與中共經濟上的脫鉤**
 
-> .[@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) I agree, “China committed a crime against the world, and somehow it must pay.” [https://t.co/qaE3E9Tq3q](https://t.co/qaE3E9Tq3q)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247535763052347398?ref_src=twsrc%5Etfw)
+奧帕斯卡爾女士指出，通過這次的大流行病毒看到，中共的企業為賺錢會不惜一切代價，包括出售不合格的醫療設備和病毒檢測物品。這並不奇怪。例如尼日利亞政府發現在中國生產的假藥標著“印度製造”進行銷售嗎？中共說：“哦，不是我們，那是私營部門”。這說明中共不在意中共公司正在用他們的產品殺人。同時用這種方式，重複用在臭名昭著的知識產權盜竊，對外國投資者的恐嚇，以及嚴重腐敗的製度中， 以及貿易戰不斷惡化相結合，僅僅只是中斷供應鏈而解除與中共之間的鏈接是不夠的，是時候了開始尋找其他國家做投資了。一些國家已經再試探性的鼓勵本國的企業這樣做了。
 
-參議員Marsha Blackburn：@章家敦我同意：“中國對世界犯下了罪行，它必須以某種方式贖罪。”
+**與中共政治上的脫鉤**
 
-《國家利益》雜誌：中國應該為它的冠狀病毒謊言付出經濟代價
+奧帕斯卡爾進一步寫到，如果我們認識到中共撒謊，那麼為什麼允許中共有權在諸如世界衛生組織等機構制定規矩呢？當中共在就該病毒的傳染性撒謊時，是非世衛組織成員的台灣試圖警告了世界“人與人之間的傳播是存在的”。
 
-> China must pay for damages caused by the coronavirus. It’s standing within international organizations should also be re-examined.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247547962701615115?ref_src=twsrc%5Etfw)
+這在製定應對病毒措施時必須知道的真相，這一事實也是台灣迄今為止有效的應對病毒制定國內政策時的關鍵組成部分，讓台灣成為了少數幾個沒有完全引起病毒恐慌的國家之一。如果台灣是世界衛生組織的成員，那麼可能不會有如此多生命逝去。全球經濟可能不會自由落體。中共也同樣污染了其他的國際組織，因為他們試圖利用這些組織謀取狹隘的，具有潛在危險的利益。不是要把把中共從這樣的論壇上驅逐出去。
 
-參議員Marsha Blackburn：中國必須賠償冠狀病毒造成的損失。它在國際組織中的地位也應該受到重新審視。
+奧帕斯卡爾最後呼籲，只有從社會，經濟和政治的與中共全面脫鉤，人們才可以遏制因與中共的密切接觸而引發的不可避免地危險蔓延。如果這樣的話，那麼當下一次危機爆發時，我們才可能做好應對的準備。
 
-> We should root out and prosecute every single Chinese Communist spy who dares to infiltrate our universities and businesses in a quest to steal American technology. [https://t.co/kob4SqHcf0](https://t.co/kob4SqHcf0)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247561002037755905?ref_src=twsrc%5Etfw)
+評： 李文亮醫生的事件已成為當下世界各國的縮影。因為中共對疫情的隱瞞，撒謊才導致全球死亡無數。當然，在獨裁維權制度下的中共國，沒有人敢為李文亮發聲討回公道。但是，在人權至上的各個民主國家一定會聯合起來為自己無辜喪生的公民討回公道。
 
-參議員Marsha Blackburn 連推：我們應該根除並起訴每一個敢於滲透到我們的大學和企業來竊取美國技術的中共間諜。很多院校還開設了孔子學院，這是中共對我們的學生施加影響的特洛伊木馬。我的《孔子學院透明法案》要求中國遵守我們的規則。
+[原文鏈接](https://www.sundayguardianlive.com/opinion/time-practice-social-distancing-ccp)
 
-Politico網：美國司法部在全美範圍內對抗中國（間諜活動）的努力之內情
-
-> While China was spreading propaganda, Taiwan was responding to COVID-19.
->  
-> While China sells [#PPE](https://twitter.com/hashtag/PPE?src=hash&amp;ref_src=twsrc%5Etfw), Taiwan gives it away for free.
->  
-> While [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw), Taiwan has been transparent.[https://t.co/30wZlWbF1c](https://t.co/30wZlWbF1c)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247606099714494464?ref_src=twsrc%5Etfw)
-
-參議員Marsha Blackburn：當中國散佈大外宣時，台灣卻在應對冠狀病毒疫情。當中國兜售個人防護設備（PPE）時，台灣免費贈送。當中國撒謊（導致）人們死去的時候，台灣保持著公開透明。
-
-福克斯新聞：台灣向災情嚴重的國家運送拯救生命的抗病毒物資，打臉中國
-
-> It is disgusting that Communist China, which CURRENTLY has citizens in forced labor camps, has been appointed to the [@UNHumanRights](https://twitter.com/UNHumanRights?ref_src=twsrc%5Etfw) Council. It’s almost as if no one [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw) has a brain. They clearly are they not interested in unbiased justice. [pic.twitter.com/AveW1Kte5J](https://t.co/AveW1Kte5J)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2020](https://twitter.com/MarshaBlackburn/status/1247626720037011458?ref_src=twsrc%5Etfw)
-
-參議員Marsha Blackburn 連推：中共國到現在還把公民關在勞役集中營裡，而他們被任命為聯合國人權理事會成員，這讓人感到噁心。聯合國沒幾個人有腦子。他們顯然對公正的司法不感興趣。我與參議員John Cornyn，參議員Marco Rubio，參議員Jim Inhofe，參議員Martha McSally，參議員Ted Cruz和參議員Kevin Cramer一起，向聯合國秘書長古特雷斯表達了我們的憤怒。
-
-> Communist China destroyed early COVID-19 test kits, silenced doctors and lied about the outbreak.
->  
-> It prevented other nations from knowing the true extent of Communism’s virus and has resulted in over 78,000 dead.
->  [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/6uAYeRbQXG](https://t.co/6uAYeRbQXG)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 8, 2020](https://twitter.com/MarshaBlackburn/status/1247684578158010368?ref_src=twsrc%5Etfw)
-
-參議員Marsha Blackburn：中共國銷毀了早期的冠狀病毒測試劑，讓醫生保持沉默，而且在疫情爆發的事情上撒了謊。它阻礙了其他國家獲知中共病毒的真實程度，導致超過七萬八千人死亡。
-
-（動態圖片：中國手上沾染了七萬八千多人的鮮血）
-
-> Well done to the [@IL\_Natl\_Guard](https://twitter.com/IL_Natl_Guard?ref_src=twsrc%5Etfw) and [@USACEHQ](https://twitter.com/USACEHQ?ref_src=twsrc%5Etfw) for rapidly turning Chicago’s McCormick Place convention center into a 500-bed [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) facility. I know you will keep pushing towards 3,000 beds by the end of the month. [pic.twitter.com/IRslCSIX3w](https://t.co/IRslCSIX3w)
-> — @EsperDoD (@EsperDoD) [April 7, 2020](https://twitter.com/EsperDoD/status/1247515325354119168?ref_src=twsrc%5Etfw)
-
-美國國防部長埃斯珀：伊利諾伊州陸軍空軍國民衛隊和美國陸軍工程兵團幹得漂亮，迅速將芝加哥麥考密克展覽中心建成了容納500張床位的應對冠狀病毒設施。我知道你們將繼續推進，在本月底之前建成3000個床位。
-
-> Using manpower and technology from across the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) to meet the immediate demand for masks and other vital [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) supplies. [https://t.co/5KnLg9yeiP](https://t.co/5KnLg9yeiP)
-> — @EsperDoD (@EsperDoD) [April 7, 2020](https://twitter.com/EsperDoD/status/1247568880110841856?ref_src=twsrc%5Etfw)
-
-美國國防部長奧斯珀：運用來自國防部的人力和科技滿足對口罩和其他重要抗疫物資的迫切需求。
-
-美國空軍：在位於得克薩斯州Goodfellow空軍基地的Louis F Garland國防部消防學院，一台3D打印機打造出一個N95口罩的樣品。照片由美國空軍一等兵Robyn Hunsinger拍攝。
-
-> .[@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) reports the Russian Imperial Movement and three of its leaders were labeled specially designated global terrorists by the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw), which is designed to freeze funding, limit travel and impose other restrictions on the group. [#TWTFrontPage](https://twitter.com/hashtag/TWTFrontPage?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/bIdaGwDv4u](https://t.co/bIdaGwDv4u)
-> — The Washington Times (@WashTimes) [April 7, 2020](https://twitter.com/WashTimes/status/1247511968120012801?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生轉推：
-
-《華盛頓時報》：比爾·格茨報導，美國國務院將俄羅斯帝國運動及其三個首領定義為“特別認定的全球恐怖分子”，旨在凍結其資產，限制其出行和施加其他限制措施。
-
-《華盛頓郵報》：美國國務院矛頭指向與美國白人民族主義有關聯俄羅斯組織
-
-> Video on origin of Wuhan coronavirus by [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [https://t.co/7gRyFcuPWZ](https://t.co/7gRyFcuPWZ)
-> — Bill Gertz (@BillGertz) [April 8, 2020](https://twitter.com/BillGertz/status/1247688308890710020?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：《大紀元》製作的關於武漢冠狀病毒源頭的視頻
-
-> USAF RC-135U 64-14847 HONDA67 operating over the South China Sea [pic.twitter.com/81AvLbmZqu](https://t.co/81AvLbmZqu)
-> — Aircraft Spots (@AircraftSpots) [April 8, 2020](https://twitter.com/AircraftSpots/status/1247694225493254146?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生轉推：
-
-Aircraft Spots（監測空軍行動）：美國空軍RC-135U偵察機64-14847 HONDA67 在南中國海執行任務
-
-> Our involvement in Iraq and Afghanistan is currently taking a backseat to the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) crisis, but let’s remember, the only way we are going to be able to focus on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) and counter Beijing’s plans for domination is to end the forever wars. Can’t have it both ways [https://t.co/82ccHMhmTJ](https://t.co/82ccHMhmTJ)
-> — Josh Hawley (@HawleyMO) [April 7, 2020](https://twitter.com/HawleyMO/status/1247538445943066626?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley：我們在伊拉克和阿富汗的參與行動目前要給冠狀病毒危機讓位，但請記住，我們能夠專注於中國並應對北京的主宰（世界）計劃的唯一途徑是結束這無休止的戰爭。無法兩頭兼顧。
-
-參議員Josh Hawley：中共向世界釋放了冠狀病毒，把它當作爭取全球實力的新機會。我們必須集中精力阻止中國的主宰企圖。五角大樓需要相應地調整我們的軍事部署。
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) needs to pay damages to the USA and others for the lives lost and jobs lost. The cost is staggering. That’s why I’ve introduced resolution to form a commission to investigate and levy damages [https://t.co/bXLxJe9TdZ](https://t.co/bXLxJe9TdZ)
-> — Josh Hawley (@HawleyMO) [April 7, 2020](https://twitter.com/HawleyMO/status/1247545071869865984?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley：中國應該對美國和其他國家失去的生命和工作做出賠償。這代價是驚人的。因此我發起一項決議，成立一個委員會來調查和徵收損失賠償。
-
-> The [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) has designated the Russian Imperial Movement as Specially Designated Global Terrorists. As President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) has said, “In one voice, our nation must condemn racism, bigotry, and white supremacy.”
-> — Secretary Pompeo (@SecPompeo) [April 7, 2020](https://twitter.com/SecPompeo/status/1247545230439612417?ref_src=twsrc%5Etfw)
-
-美國國務卿蓬佩奧：美國國務院將俄羅斯帝國運動定義為“特別認定的全球恐怖分子”。正如川普總統所說：“我們國家必須一致譴責種族主義、偏執狂和白人至上。”
-
-> We should not be relying on Communist China for any of our vital resources, especially prescription drugs and protective gear.
->  
-> China is not our friend; they’re our adversary. It’s crazy to rely on our enemies for vital needs. [https://t.co/UEe8A4BQue](https://t.co/UEe8A4BQue)
-> — Rick Scott (@SenRickScott) [April 7, 2020](https://twitter.com/SenRickScott/status/1247527517637885953?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：我們不應該依賴中共國生產任何重要物資，尤其是處方藥和防護裝備。中國不是我們的朋友；他們是我們的對手。依靠敵人給我們提供所需的重要物資是瘋狂的。
-
-《國家評論》雜誌：不應是中國為我們生產藥品
-
-> I’m glad [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) agrees with my call for an investigation into the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw)! American taxpayers should not be footing the bill for an organization that helps Communist China lie about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> China lied, the WHO helped them and thousands of people died. [https://t.co/gfCRNQp2DC](https://t.co/gfCRNQp2DC)
-> — Rick Scott (@SenRickScott) [April 7, 2020](https://twitter.com/SenRickScott/status/1247553351258198016?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：很高興川普總統同意了我對世衛組織進行調查的呼籲！美國納稅人不應為替中共國在冠狀病毒疫情一事上撒謊的組織買單。
-
-> Communist China lied about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) and the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) helped them. 
-> 
-> We shouldn't be spending taxpayer $$ on an organization that helps China cover up their failures. Congress will investigate and we will hold the WHO accountable. [pic.twitter.com/3oFvarXozP](https://t.co/3oFvarXozP)
-> — Rick Scott (@SenRickScott) [April 7, 2020](https://twitter.com/SenRickScott/status/1247610849696649217?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：中共國在冠狀病毒疫情上撒了謊，而世衛組織幫了他們。我們不能將納稅人的錢花在一個幫助中國掩蓋失敗的組織上。國會將對此進行調查，我們將讓世衛組織對此負責。
-
-> 加油 [https://t.co/VdCmMErOXZ](https://t.co/VdCmMErOXZ)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [April 7, 2020](https://twitter.com/robert_spalding/status/1247488567032647683?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：
-
-> NO! I work for CCP! [https://t.co/HsXr3NkEfF](https://t.co/HsXr3NkEfF)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [April 7, 2020](https://twitter.com/robert_spalding/status/1247490566121807873?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：不對！為中共工作！
-
-Acyn Torabi：“你為誰工作？中國嗎？”
-
-> 中共病毒、活摘器官與防疫追劇指南│老外看中國│郝毅博 Ben Hedges│新唐人電視台 [https://t.co/btDOTOC8v5](https://t.co/btDOTOC8v5) via [@YouTube](https://twitter.com/YouTube?ref_src=twsrc%5Etfw)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [April 7, 2020](https://twitter.com/robert_spalding/status/1247533914752561155?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：
-
-> UK Gov needs to step in now! [https://t.co/ckwpCZC3Jw](https://t.co/ckwpCZC3Jw) via [@CityAM](https://twitter.com/CityAM?ref_src=twsrc%5Etfw)
-> — Gen (Ret) Rob Spalding (@robert\_spalding) [April 7, 2020](https://twitter.com/robert_spalding/status/1247537776251121664?ref_src=twsrc%5Etfw)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08012537/06_30.png)
-斯伯丁將軍：英國政府現在需要介入了！
-
-英國《金融城早報》：Imagination Technologies公司老闆準備辭職，以抗議中國國新公司惡意購買公司股權
+翻譯報導：Hakunamatata
 
 0

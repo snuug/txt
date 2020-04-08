@@ -1,11 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room103：中共的罪行將在武漢進行審判
-`2020-04-08 08:56 GM37` [轉載自GNews](https://gnews.org/zh-hant/166143/)
+## 【挖掘機團隊出品】中共武漢病毒研究所的外籍軍團！
+`2020-04-08 10:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/166238/)
 
-中共犯有蓄意謀殺罪，這並非無稽之談，那些事實會浮出水面，會得到證實並且最終會證實。
+**作者：DT挖掘機團隊**
 
-我們將進行紐倫堡式的審判！它將在武漢進行，中共領導人將被起訴，代表人類的陪審團將是武漢的普通公民，他們將對這些惡魔做出判決。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08103822/2345%E6%88%AA%E5%9B%BE20200408223730-1.png)
+
+[**中共武漢病毒研究所的外籍軍團**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08103446/%E4%B8%AD%E5%85%B1%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80%E7%9A%84%E5%A4%96%E7%B1%8D%E5%86%9B%E5%9B%A2-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08103446/%E4%B8%AD%E5%85%B1%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80%E7%9A%84%E5%A4%96%E7%B1%8D%E5%86%9B%E5%9B%A2-1.pdf)
+
+**請點擊下載按鈕，下載文檔觀看！**
+
+（文章內容僅代表作者觀點）
 
 0
