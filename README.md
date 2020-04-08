@@ -21,6 +21,11 @@
 [https://www.guo.media/posts/277386](https://www.guo.media/posts/277386) `2020-04-08T04:40:14`
 ##
 
+**milesguo** 中共检测手段和检测试剂盒给世界埋下的隐患<br>https://gnews.org/zh-hans/165335/
+
+[https://www.guo.media/posts/277385](https://www.guo.media/posts/277385) `2020-04-08T05:10:14`
+##
+
 **milesguo** 这不叫旅游 这叫组团共攀新坟头<br>https://gnews.org/zh-hans/165351/
 
 [https://www.guo.media/posts/277384](https://www.guo.media/posts/277384) `2020-04-08T04:40:15`
@@ -34,6 +39,11 @@
 **milesguo** 道指收涨1600点距离危机之后的美国大收购还远吗<br>https://gnews.org/zh-hans/165278/
 
 [https://www.guo.media/posts/277381](https://www.guo.media/posts/277381) `2020-04-08T04:25:13`
+##
+
+**milesguo** 班农战斗室104：中共病毒攻击类似于911和珍珠港<br>https://gnews.org/zh-hans/
+
+[https://www.guo.media/posts/277380](https://www.guo.media/posts/277380) `2020-04-08T05:10:16`
 ##
 
 **milesguo** 瑞幸咖啡的爆仓开启了绞杀共产党美国融资的大门<br>https://gnews.org/zh-hans/165256/
