@@ -11,6 +11,36 @@
 
 
 
+**milesguo** 中共末日疯狂，西路又放厥词， 污蔑美国放毒，人神共愤灭之<br>https://gnews.org/zh-hans/165144/
+
+[https://www.guo.media/posts/277377](https://www.guo.media/posts/277377) `2020-04-08T04:10:12`
+##
+
+**milesguo** 香港凤凰电台：”一家私营企业”<br>https://gnews.org/zh-hans/165013/
+
+[https://www.guo.media/posts/277376](https://www.guo.media/posts/277376) `2020-04-08T04:10:13`
+##
+
+**milesguo** 广播：2020/4/7 郭文贵先生直播 我们已经身处第三次世界大战<br>https://gnews.org/zh-hans/165108/
+
+[https://www.guo.media/posts/277375](https://www.guo.media/posts/277375) `2020-04-08T04:10:14`
+##
+
+**milesguo** 【中共病毒真相】4月7日视频合集<br>https://gnews.org/zh-hans/165103/
+
+[https://www.guo.media/posts/277374](https://www.guo.media/posts/277374) `2020-04-08T04:10:15`
+##
+
+**milesguo** CCP利用病毒对美实施全方位、多维度超限战！<br>https://gnews.org/zh-hans/164664/
+
+[https://www.guo.media/posts/277373](https://www.guo.media/posts/277373) `2020-04-08T04:10:17`
+##
+
+**milesguo** 众人联名发声明，彰显中共之恶行！<br>https://gnews.org/zh-hans/164357/
+
+[https://www.guo.media/posts/277372](https://www.guo.media/posts/277372) `2020-04-08T04:10:18`
+##
+
 **milesguo** War Room: Pandemic EP 102 & 103 – Pearl Harbor Week? (w/Chris Hurn) & Bannon Unloads on Kissinger, CCP<br>https://gnews.org/164188/
 
 [https://www.guo.media/posts/277338](https://www.guo.media/posts/277338) `2020-04-07T07:10:27`
