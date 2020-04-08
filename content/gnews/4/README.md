@@ -1,41 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 這不叫旅遊 這叫組團共攀新墳頭
-`2020-04-07 21:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/165356/)
+## 是什麼資訊使英國政府24小時內改變中共病毒來源立場的
+`2020-04-08 02:31 Diago` [轉載自GNews](https://gnews.org/zh-hant/165776/)
 
-**作者：山河大地**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020023/8e55a5ea647aa20414ec5b26217960fa-4.png)
+作者：Diago
 
-隨著人間四月春曖花開，好了傷疤忘了痛的牆內百姓架不住黨媽一套又一套的假話連篇，再次選擇了相信謊言，已惦記如何舒動筋骨，遊山玩水，瀟灑人生了。哪管你湖北百姓排長隊領骨灰，無數家庭已絕戶，只要沒輪到自家死人，就流年笑擲，未來可期！至此，“娛樂至死”已不限於一種諷刺，無數韭菜是真真正正在邁入一條“至死”之路。
+在[2020年4月7日CCP冠狀病毒大流行第74集：廣東疫情大爆發；黑龍江綏芬河市方艙醫院正式開張運營；美國將告中共一級謀殺13:47時間點](https://youtu.be/4zWKdwGKKLg?t=827)班農先生與Jeremiah O’keeffe先生連線中爆出了重磅——英國政府根據Jeremiah O’keeffe先生提供的資訊改變了中共CCP冠狀病毒來源的立場——承認病毒有可能來自武漢的病毒實驗室，而不是中共編造的#海鮮市場。一位首席教授于2月5日在網上公佈了這份檔之後消失了!按圖索驥，我們先看一下War room Pandemic的相關推文——
 
-連續遇上這麼幾屆“可防可控”的百姓，也難怪中共能長期盤踞中南坑。無論推出多荒唐的政策，也少有人疑惑；無論胡言亂語到何種程度，也少有人反駁——當然，更重要的是中共的維穩手段太深太狠，長期以來，民眾已養成一種慣性聽話思維，但凡對黨媽宣傳起疑心，潛意識內先伸出一隻小手掐住自己的咽喉，豎起食指說：“噓！小心啦！惹了黨媽可不是鬧著玩的！”
+[O’Keeffe與戰斗室連線推文連結](https://twitter.com/WarRoomPandemic/status/1247575002813267970)：O’Keeffe: In last 24 hours, the UK gov’t has acknowledged and is now open to the possibility that the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) came out of one of two [#Wuhan](https://twitter.com/hashtag/Wuhan?src=hashtag_click) labs, not the “wet market” [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#30DaysToSaveAmerica](https://twitter.com/hashtag/30DaysToSaveAmerica?src=hashtag_click) [http://warroom.org/podcast](https://t.co/HuZDFNTwiv?amp=1)（筆者注：中文大意——在過去的24小時內，英國政府認識到並且對病毒來自武漢實驗室而不是來自於海鮮市場持開放態度）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020150/WhatsApp-Image-2020-04-08-at-1.02.43-PM-1.jpeg)
+[O’Keeffe與戰斗室連線推文連結二](https://twitter.com/WarRoomPandemic/status/1247575178260987908)：O’Keeffe: Paper by 2 PhDs from S. China U of Tech concludes that “staff people at one of the institutes” were exposed to the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) through horseshoe bat Both authors now missing [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#30DaysToSaveAmerica](https://twitter.com/hashtag/30DaysToSaveAmerica?src=hashtag_click)   http://warroom.org/podcast（筆者注：中文大意——華南理工大學的兩位博士得出的武漢兩個實驗室之一的暴露於馬頭蝠冠狀病毒的作者已經失蹤）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020532/WhatsApp-Image-2020-04-08-at-1.02.56-PM-1.jpeg)
+由於筆者英文不是太好，為不丟失關鍵資訊，請[War Room: Pandemic EP 106 – The CCP Mafia 54:28時間點](https://youtu.be/S2_HOo7bUck?t=3268)觀看Jeremiah O’keeffe的詳細論述：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020651/WhatsApp-Image-2020-04-08-at-1.03.26-PM-1.jpeg)
+那麼這兩位博士是誰？他們發表的文章是什麼內容？經過拉網式搜索，在[The Trail Leading Back to the Wuhan Labs](https://www.nationalreview.com/2020/04/coronavirus-china-trail-leading-back-to-wuhan-labs/)（By [Jim Geraghty](https://www.nationalreview.com/author/jim-geraghty/) April 3, 2020 1:20 PM）這篇文章裡找到了源頭：
 
-在歐美國家最初通過武漢疫情已有所警覺和一定準備，卻依然紛紛淪落為重災區的情況下，在無症狀攜帶者的謎底還未被揭開並控制住的今天，看看中共近期在忙叨什麼？不但全面開放了旅遊業，為催動老百姓多出門以形成人山人海，不惜搞各種大力宣傳及免費贈票等活動，無疑似一道道催命符，正把躲過了第一輪疫情的百姓往下一批墳頭送。
+【At some point in February, Botao Xiao posted a research paper onto ResearchGate.net, “[The Possible Origins of 2019-nCoV coronavirus.”](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus) He is listed as one author, along with Lei Xiao from Tian You Hospital, which is [affiliated with the Wuhan University of Science and Technology](https://www.wheto.gov.hk/filemanager/content/pdf/contact_information_public_private_hospitals_e.pdf). The paper was removed a short time after it was posted, but archived images of its pages can be found [here](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus) and [here](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan).
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/04/07210920/image0-43.jpg)
+（中文大意——在2月的某個時候，Xiao Botao在ResearchGate.net上發佈了一篇研究論文，“ 2019-nCoV冠狀病毒的可能起源”。 他與武漢科技大學附屬天佑醫院的雷霄一起被列為作者。 論文在發佈後不久被移除，但是可以在[這裡](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus)和[這裡](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan)找到其頁面的存檔圖像。）
 
-僅四川一省，四月初就有如下相關新聞報導：
+The first conclusion of Botao Xiao’s paper is that the bats suspected of carrying the virus are extremely unlikely to be found naturally in the city, and despite the stories of “bat soup,” they conclude that bats were not sold at the market and were unlikely to be deliberately ingested.
 
-“3月31日，2020“春回天府·安逸四川”文旅季活動在四川博物院啟動。這是由文化和旅遊廳主辦、全省21市（州）聯動的文旅大動作。未來兩個月內，四川省第十一屆（春季）鄉村文化旅遊節等290項線上線下重點文旅活動將陸續舉行。
+（中文大意——Xiao Botao論文的第一個結論是，懷疑攜帶這種病毒的蝙蝠極不可能在城市中自然發現，儘管有“蝙蝠湯”的故事，他們得出的結論是，蝙蝠並未在市場上出售，因此不太可能被故意攝取。
 
-290項重點文旅活動覆蓋全省183個區（市、縣），其中包含大型節會活動80項、文化藝術類活動78項、民族民俗類活動34項、賞花踏青類活動60項、農事採摘體驗類活動26項，以及其他特色主題類活動12項。四川省第十一屆（春季）鄉村文化旅遊節、第二十六屆自貢國際恐龍燈會、第五屆峨眉山音樂節等重點活動尤其值得期待。
+The bats carrying CoV ZC45 were originally found in Yunnan or Zhejiang province, both of which were more than 900 kilometers away from the seafood market. Bats were normally found to live in caves and trees. But the seafood market is in a densely-populated district of Wuhan, a metropolitan [area] of ~15 million people. The probability was very low for the bats to fly to the market. According to municipal reports and the testimonies of 31 residents and 28 visitors, the bat was never a food source in the city, and no bat was traded in the market.】
 
-啟動儀式上還發布了一大波景區優惠政策和文化惠民措施，包括對四川援助湖北醫療隊隊員及其親屬免收景區門票和停車費，免費參觀博物館、觀看文藝演出等。都江堰等省內112家景區將對所有遊客實行4月免票優惠。全省207個文化館、204個圖書館還將推出群眾文藝作品展覽展示等近千場惠民活動。全省還將發行文旅消費補貼基金和文旅消費券、優惠券、打折卡，進一步激發文旅消費潛力。 ”新聞來源： [http://www.sc.gov.cn/10462/14721/14724/14745/2020/4/1/5eb1692d94354702a37e28fd52779581.shtml](http://www.sc.gov.cn/10462/14721/14724/14745/2020/4/1/5eb1692d94354702a37e28fd52779581.shtml)
+（中文大意——帶有CoV ZC45的蝙蝠最初是在雲南或浙江省發現的，兩者均距海鮮市場900多公里。 蝙蝠通常被發現是生活在洞穴和樹木中的。 但是海鮮市場是在武漢一個人口稠密的地區，這個大都市（地區）有1500萬人。 蝙蝠飛向市場的可能性非常低。 根據市政報告和31名居民和28位遊客的證詞，蝙蝠從來不是城市的食物來源，市場上也沒有蝙蝠交易。】
 
-看看其中的數據：“290項重點文旅活動”——所以非重點的還有多少？ ；“覆蓋全省183個區”—-這是生怕哪個地方能幸運躲過疫情再次爆發？ ；“207個文化館、204個圖書館還將推出群眾文藝作品展覽展示等近千場惠民活動”—-在生化危機中首當其衝的重災國，這到底在惠民還是坑民,害民?！
+經搜索發現這一張圖片與視頻中Jeremiah O’keeffe先生手中所拿的紙張高度相似：
+![Chinese wetenschappers: laboratoriumoorsprong van SARS-COV-2 ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08020729/Botao-Xiao-1.png)
+請大家務必認真看[The Trail Leading Back to the Wuhan Labs](https://www.nationalreview.com/2020/04/coronavirus-china-trail-leading-back-to-wuhan-labs/)文章中提到的兩處關於Xiao Botao論文的超連結——[這裡](https://web.archive.org/web/20200214144447/https:/www.researchgate.net/publication/339070128_The_possible_origins_of_2019-nCoV_coronavirus)和[這裡](https://www.zerohedge.com/health/smoking-gun-chinese-scientist-finds-killer-coronavirus-probably-originated-laboratory-wuhan)，是這些關鍵資訊使英國政府改變了立場。
 
-一個省是這樣，更不用說全國的旅遊宣傳，中國新聞網4月7日洋洋得意地報導，清明小長假全國鐵路發送旅客1136萬人次—–真奇了怪了，我們在海外日夜為國內擔心，國內的人就已忘了短短幾週前大家仍需膽顫心驚上網查詢哪個車次或航班有中共病毒確診患者同行嗎？除了鐵路運輸，全國一個清明假期中旅遊人員總數多達4325.4萬！按照病毒擴散的形式和速度，“如果這其中有病毒攜帶者”這樣的假設可以說不存在，這裡面是肯定有病毒攜帶者的，接下來將是何等後果？沒法兒想！
+另外我們要高度關注Xiao Botao和Xiao Lei兩位作者，他們被消失了，他們在哪裡？
 
-更有甚者，連悲愴的武漢城被撣了撣骨灰後，也被中共拿出來當工具使，又是“解封”，又是“煙火氣”，還搞了個吃貨想念選項— –吃什麼？恐怕又是濃重的二氧化硫。
-
-文貴先生早在兩個月前就一再提醒無論當時湖北疫情多嚴重，真正可怕的是全國的二次疫情爆發，三次爆發。現在看疫情的再次爆發已不是出現苗頭的問題，而是板上釘釘，甚至已在沉默地進行中了。
-
-試想武漢疫情爆發前最令人印象深刻的“聚集事件”也無非百步亭的萬家宴，當時畢竟是寒冬，又正處年節時分，與其外出遊玩，多數人更傾向在家裡準備過年，大面積聚集的機會遠不如現在多，而且當時的中共病毒攜帶者及病毒本身的異變程度也遠沒有現在多——-無需數學多好，大家稍加思索即可想到下輪疫情的程度，不寒而栗！
-
-中南坑里那幾號人物生怕自己進了焚屍爐，卻擔心為勞苦百姓訂的海量焚屍爐閒置起來，想方設法要把邪魔鬼火燒旺，再燒出一爐又一爐的萬家灰。
-
-又何止牆內，牆外民眾也正被中共陰招頻出的社會主義鐵拳揍得鼻青臉中，叫苦連天。西方親共舔共的政客，你們若不洗心革面，下場將比躺在ICU病床上的英國首相Boris還不如，畢竟人家在病床上有呼吸機等先進設備及醫療人員的救助照料，想想國際法庭的莊嚴審判和人民如潮水般的憤怒嘶吼吧，到時你們將再無退路。
-
-（文章內容僅代表作者觀點）
+（文章內容僅代表作者個人觀點）
 
 0
