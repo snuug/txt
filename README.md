@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/277383](https://www.guo.media/posts/277383) `2020-04-08T04:25:11`
 ##
 
+**milesguo** 立武出品：被中共故意忽略的初期检测率<br>https://gnews.org/zh-hans/165288/
+
+[https://www.guo.media/posts/277382](https://www.guo.media/posts/277382) `2020-04-08T05:25:12`
+##
+
 **milesguo** 道指收涨1600点距离危机之后的美国大收购还远吗<br>https://gnews.org/zh-hans/165278/
 
 [https://www.guo.media/posts/277381](https://www.guo.media/posts/277381) `2020-04-08T04:25:13`
@@ -49,6 +54,11 @@
 **milesguo** 瑞幸咖啡的爆仓开启了绞杀共产党美国融资的大门<br>https://gnews.org/zh-hans/165256/
 
 [https://www.guo.media/posts/277379](https://www.guo.media/posts/277379) `2020-04-08T04:25:15`
+##
+
+**milesguo** 关于中共的信息战<br>https://gnews.org/zh-hans/165240/
+
+[https://www.guo.media/posts/277378](https://www.guo.media/posts/277378) `2020-04-08T05:25:14`
 ##
 
 **milesguo** 中共末日疯狂，西路又放厥词， 污蔑美国放毒，人神共愤灭之<br>https://gnews.org/zh-hans/165144/
