@@ -11,6 +11,31 @@
 
 
 
+**milesguo** War Room: Pandemic EP 108 & 109 – Show Me the Models (w/Tom Fitton)& It’s All Gonna Come Out<br>https://gnews.org/166335/
+
+[https://www.guo.media/posts/277483](https://www.guo.media/posts/277483) `2020-04-09T21:25:11`
+##
+
+**milesguo** Taser gun not necessary: HK Police uses excessive force and violates the international code of weapon use<br>https://gnews.org/163791/
+
+[https://www.guo.media/posts/277482](https://www.guo.media/posts/277482) `2020-04-09T21:25:13`
+##
+
+**milesguo** MilesGuo: Investigate whether CCP Intentionally Released Virus<br>https://gnews.org/166013/
+
+[https://www.guo.media/posts/277481](https://www.guo.media/posts/277481) `2020-04-09T21:25:14`
+##
+
+**milesguo** TNT MEME: Masks, Mint Unemployment<br>https://gnews.org/165482/
+
+[https://www.guo.media/posts/277479](https://www.guo.media/posts/277479) `2020-04-09T21:25:16`
+##
+
+**milesguo** MilesGuo April 7: The World is in a War with CCP<br>https://gnews.org/165474/
+
+[https://www.guo.media/posts/277478](https://www.guo.media/posts/277478) `2020-04-09T21:25:17`
+##
+
 **milesguo** 2020年4月8日CCP冠状病毒大流行第75集<br>https://gnews.org/zh-hans/166883/
 
 [https://www.guo.media/posts/277447](https://www.guo.media/posts/277447) `2020-04-09T10:10:13`
