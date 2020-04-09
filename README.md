@@ -11,6 +11,11 @@
 
 
 
+**milesguo** The CCP uses “Hong Kong” as white gloves<br>https://gnews.org/166484/
+
+[https://www.guo.media/posts/277492](https://www.guo.media/posts/277492) `2020-04-09T23:55:14`
+##
+
 **milesguo** TNT Daily : the Chinese government recently rolled out new economic police<br>https://gnews.org/166832/
 
 [https://www.guo.media/posts/277489](https://www.guo.media/posts/277489) `2020-04-09T23:10:15`
