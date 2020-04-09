@@ -1,32 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「疫情威脅下的真情」 台灣捐贈歐洲首批口罩運抵荷蘭!
-`2020-04-09 04:11 GM15` [轉載自GNews](https://gnews.org/zh-hant/166935/)
+## 口罩中間商爆料：中共口罩廠家大部分都沒有達到衛生和質量標準
+`2020-04-09 07:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/167116/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040529/3128065_1_1.jpg)
-台灣捐贈歐洲的第一批60萬片口罩於當地時間7日抵達荷蘭；荷蘭駐台辦事處今表示由衷感謝，「疫情威脅下的真情將成為一線醫療人員最暖心防護」。英國在台辦事處今天也透過鼓掌影片，向台灣所有醫護人員的努力不懈獻上感謝。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09072235/Picture-1-115.png)
+據《大紀元時報》4月7日報導，一位中間商透露，中共許多生產口罩廠家的工人在處理這些產品時不戴口罩或手套，這引發了人們對全球短缺期間中共醫療用品質量的進一步質疑。
 
-我國啟動國際援助行動，首波共千萬片口罩近日陸續寄出，援贈荷蘭的60萬片愛心已於當地時間7日抵達阿姆斯特丹，由我駐荷蘭代表陳欣新交給荷蘭政府代表、商好來運物流鹿特丹總部主管米德勒布爾格。
+一名從事中共口罩出口的中間商陳國華(化名）給《中國科技新聞網》爆料說，中共有60%的工廠都沒有無菌工作環境。他回憶說，他參觀了一家滿是灰塵的工廠，工人們徒手和沒有戴口罩在生產線上處理口罩。
 
-荷蘭駐台貿易暨投資辦事處今天分享相關照片，並表示這些口罩將成為荷蘭第一線醫療人員最暖心的防護，「疫情威脅下的真情」，從物資分享、經驗交換到技術合作，相信我們未來會見證更多台荷之間的交流。
+“誰敢使用這種環境製造出來的的口罩？誰敢戴上外出？”陳國華問到。在各國爭相向衛生工作者和公民提供防護裝備時候，有報導稱劣質醫療用品均來自中共。 4月4日海關官員金海(化名）向《法新社》透露，自3月1日以來，中共共出口了38.6億隻口罩、3750萬件個人防護設備、1.6萬台呼吸機和284萬個檢測包。但荷蘭、土耳其和西班牙等國家都抱怨一些中共製造的醫療用品不符合質量標準。
 
-外交部發言人歐江安今說明，其他歐洲國家口罩也分別於8日、9日先後啟運，將送往義大利、西班牙、法國、德國、波蘭、捷克、比利時、盧森堡 英國、瑞士和教廷。
+荷蘭於3月28日表示，已召回一家中共製造商運送的約60萬個口罩。荷蘭衛生官員說，這些口罩要么與臉型不匹配要么過濾器有缺陷。
 
-另外，英國在台辦事處今天也在臉書上傳影片，英國駐台代表唐凱琳和代表處人員用掌聲向台灣所有的醫護人員獻上感謝，「感謝你們從疫情爆發以來一直努力不懈，以確保我們每個在台灣的人的健康安全」。
+據英國《每日電訊報》報導，英國政府表示在一項科學研究發現這些病毒抗體檢測試劑盒返回不准確結果後，英國政府將要求從中共訂購的數百萬個病毒抗體檢測試劑盒的全部退款。
 
-影片一開始是英國喬治王子、夏綠蒂公主和路易王子三人拍手的影片，接著是唐凱琳、辦事處副代表畢騰安和辦事處人員一同鼓掌，全部的人都戴口罩，影片最後是白金漢宮的衛兵娃娃戴著口罩，落實室內無法保持1.5公尺的社交距離要戴口罩的規定。
+在此之前陳國華還一直做電子商務賣家，由於中共病毒疫情在中共境外大規模爆發，他收到了許多海外客戶的訂單，後來他轉而經營出口口罩。他指出，中共大多數生產口罩的工廠最初是紡織廠或電子工廠，這些工廠迅速轉移生產口罩以滿足激增的需求，因此他們的設備和技術往往不符合標準。
 
-辦事處在臉書表示，英國最近幾個星期以來，包括年輕的皇室成員喬治王子、夏綠蒂公主以及路易王子，都加入了為醫護人員鼓掌致意的活動，向所有醫生、護士、看護者、藥劑師、志工和國民保健署工作人員不眠不休地幫助受到新冠肺炎疫情影響的人民，表達全英國由衷的感謝。
+據報導，1月23日至3月11日不到3個月的時間裡，中共境內就有近5500家新成立的口罩製造商。陳國華補充說，一些工廠會通過不法渠道花錢購買製作口罩所需的政府認證。
 
-辦事處表示，英國在台辦事處除了表達對英國醫護人員的感謝之外，同時遵守中央流行疫情指揮中心保持社交距離的建議，我們也用掌聲向台灣所有的醫護人員獻上大大的感謝，「感謝你們自新冠肺炎疫情爆發以來一直努力不懈，以確保我們每個在台灣的人之健康安全。謝謝你們！」
+[原文鏈接](http://www.theepochtimes.com%20/many-mask-factories-in-china-dont-meet-sanitation-quality-standards-chinese-broker_3302425.html)
 
-> [British Office – CLAPPING FOR CARERS: THANK YOU TAIWAN!](https://www.facebook.com/britishofficetaipei/videos/822180254934061/)
-> 為所有醫護人員鼓掌：謝謝台灣！在英國最近幾個星期以來，包括年輕的皇室成員喬治王子、夏綠蒂公主以及路易王子，都加入了為醫護人員鼓掌致意的活動，向所有醫生，護士，看護者，藥劑師，志工和國民保健署 (NHS) 工作人員不眠不休地幫助受到 #COVID19UK 疫情影響的人民，表達全英國由衷的感謝。英國在台辦事處除了表達對英國醫護人員的感謝之外，同時遵守中央流行疫情指揮中心保持社交距離的建議，我們也用掌聲向台灣所有的醫護人員獻上大大的感謝，感謝你們自 #COVID19 疫情爆發以來一直努力不懈，以確保我們每個在台灣的人之健康安全。謝謝你們！CLAPPING FOR CARERS: THANK YOU TAIWAN!Over recent weeks people in the UK, including the young royals George, Charlotte and Louis, have shown their appreciation to all the doctors, nurses, carers, pharmacists, volunteers and National Health Service staff working tirelessly to help those affected by #COVID19UK through joining nationwide applause.Here at the British Office in Taipei, in addition to being grateful to those carers in the UK, and while observing CECC social distancing recommendations, we want to say a huge thank you to all those in Taiwan who have been working tirelessly since the first outbreak to keep everyone safe during the #COVID19 crisis. THANK YOU!!#ClapForOurCarers The Royal Family video source: Kensington Palace social media accounts
-> Posted by [British Office Taipei 英國在台辦事處](https://www.facebook.com/britishofficetaipei/) on Wednesday, April 8, 2020
-
-引自[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3128065)
-
-GM15
+翻譯報導：TON 618
 
 0

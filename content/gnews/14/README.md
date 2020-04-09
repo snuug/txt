@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 呼籲：盡快將CCP 和WHO “狼狽之合”的反人類罪行進行國際審判
-`2020-04-09 01:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/166797/)
+## 2020年4月8日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-09 04:04 GM33` [轉載自GNews](https://gnews.org/zh-hant/166934/)
 
-**作者：匿名**
+黑龍江佳木斯病例暴增；CCP新警察法；美國將取消對WTO的資助
 
-台灣是第一個採取措施和拉響警報的國家。可是卻被CCP和WHO 排斥，他們利用他們的公信力和對疫情信息的控制及攪亂是非，主導了主流媒體的輿論，導致沒人聽台灣當局和GNEWS最早發出的警報。
+[English0408\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040115/English0408_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040115/English0408_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09013119/1-62.jpg)
+[French0408\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040123/French0408_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040123/French0408_CCP_Virus_Updates.pdf)
 
-在CCP承認冠狀病毒在人與人之間傳播之前，台灣國家衛生指揮中心在12月下旬已經開始命令排查來自武漢的乘客。到1月底，儘管世衛組織提出反對，台灣仍暫停了從中國出發的航班。斯坦福大學政策成果與預防中心主任王智弘說，政府還充分利用了大數據，將國家健康保險數據與移民和海關信息整合在一起，以追踪潛在病例。疫情期間發現有疫情的鑽石公主號郵輪停靠過台灣，台灣島上的每部手機都收到了短信，其中列出了船上乘客在離岸期間曾去過的每一個餐館、旅遊景點和目的地。
+[Germany0408\_Deutsch\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040134/Germany0408_Deutsch_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040134/Germany0408_Deutsch_-_Kopie.pdf)
 
-而WHO助理總幹事布魯斯·艾爾沃德在3月28日接受香港媒體訪問，被問及世衛是否重新考慮接納台灣時，艾爾沃德停先是稱“聽不到問題”，又表示： “問別的問題吧！”在記者追問台灣問題後，連線又突然中斷。重新接通後，記者再次提問能否評論台灣抗疫情況，艾爾沃德並未直接回應，僅誇讚中國防疫做得很好，他說：“我們已談過中國了，若你看中國各個地區，其實都做得很好”，在媒體上公然的上演了“掩耳盜鈴”的這一幕。
+[Japanese0408\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040148/Japanese0408_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040148/Japanese0408_CCP_Virus_Updates.pdf)
 
-其實GNEWS 《武漢冠狀病毒每日更新》早在1月26日的視頻顯示了武漢有大量市民當街倒地死亡（ [當日視頻連接](https://youtu.be/c46qrSQlUCM) ），說明之前武漢疫情就已經到了不可控的地步，12月份中國的8名放哨人WHO 隻字未提，而CCP 的國家衛健委高級別專家鐘南山在1月28日接受新華社採訪時還在說不認為會出現像SARS 一樣的大爆發，現在疫情已經全球大爆發了，對台灣的疫情防控的優異成績仍然選擇無視(已經很長一段時間了，到目前為止台灣把疫情數字控制在了三百多例)。從CCP 的“不傳人”到“可防可控”到“傳染力沒有SARS 強”在到CCP 的“大國治疫”的宣傳，世界衛生組織(WHO) 都做出了許多“優異”的配合，這背後造成了多少鮮活的生命死亡、多少家庭的支離破碎？從本質來講，故意殺人的罪惡和恐怖主義的罪惡也沒有他們罪惡嚴重。
+[Russia\_0408\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040201/Russia_0408_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040201/Russia_0408_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09013207/2-47.jpg)
-
-“爆料革命”的媒體們則一直在[疾呼疫情很危急不要相信CCP和WHO](https://gnews.org/zh-hans/156632/)如果當初世界各國不聽信CCP以及WHO配合著釋放的信息製造出的假象，而是相信台灣當局和“爆料革命”媒體們發出的警報，世界還會是現在這個樣子嗎？現在又發現CCP 早已進行著防疫物資的壟斷和囤積的行動。
-
-奈何世界人們聽信了他們控制的信息，造成了假信號在世界媒體鋪天蓋地的宣傳，其對全球的造成的傷害早已超過了核武器，當全世界的絕對主流聲音是CCP 和WHO 的假聲音的時候，造成了許多國家的民眾在疫情初期甚至於認為這只是一種感冒，這遲早會到來的疫情警報的潛伏期和這次新型冠狀病毒遲早會病發的一樣，都會帶來致命的可怕危險性，暫且不論是不是CCP 製造的生化武器，單單從這兩種極具危險的“潛伏期”來看，稱其為“CCP病毒”毫不為過。
-
-（文章內容僅代表作者觀點）
+[Spanish0408\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040211/Spanish0408_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09040211/Spanish0408_CCP_Virus_Updates.pdf)
 
 0
