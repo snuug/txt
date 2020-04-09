@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Miles Guo: The outbreak in China is by no means over!<br>https://gnews.org/166449/
+
+[https://www.guo.media/posts/277486](https://www.guo.media/posts/277486) `2020-04-09T22:25:20`
+##
+
 **milesguo** The United States imposes new rules for CCP state media<br>https://gnews.org/166350/
 
 [https://www.guo.media/posts/277484](https://www.guo.media/posts/277484) `2020-04-09T22:10:11`
@@ -44,6 +49,11 @@
 **milesguo** MilesGuo April 7: The World is in a War with CCP<br>https://gnews.org/165474/
 
 [https://www.guo.media/posts/277478](https://www.guo.media/posts/277478) `2020-04-09T21:25:17`
+##
+
+**milesguo** TNT Daily : New CCP virus cases from Chinese citizens increased substantially in Heilongjiang<br>https://gnews.org/165426/
+
+[https://www.guo.media/posts/277477](https://www.guo.media/posts/277477) `2020-04-09T22:25:22`
 ##
 
 **milesguo** 2020年4月8日CCP冠状病毒大流行第75集<br>https://gnews.org/zh-hans/166883/
