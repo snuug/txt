@@ -11,6 +11,11 @@
 
 
 
+**milesguo** The United States imposes new rules for CCP state media<br>https://gnews.org/166350/
+
+[https://www.guo.media/posts/277484](https://www.guo.media/posts/277484) `2020-04-09T22:10:11`
+##
+
 **milesguo** War Room: Pandemic EP 108 & 109 – Show Me the Models (w/Tom Fitton)& It’s All Gonna Come Out<br>https://gnews.org/166335/
 
 [https://www.guo.media/posts/277483](https://www.guo.media/posts/277483) `2020-04-09T21:25:11`
@@ -24,6 +29,11 @@
 **milesguo** MilesGuo: Investigate whether CCP Intentionally Released Virus<br>https://gnews.org/166013/
 
 [https://www.guo.media/posts/277481](https://www.guo.media/posts/277481) `2020-04-09T21:25:14`
+##
+
+**milesguo** The first documentary movie on the origin of CCP virus(Coronavirus)<br>https://gnews.org/165772/
+
+[https://www.guo.media/posts/277480](https://www.guo.media/posts/277480) `2020-04-09T22:10:12`
 ##
 
 **milesguo** TNT MEME: Masks, Mint Unemployment<br>https://gnews.org/165482/
