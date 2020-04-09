@@ -11,6 +11,11 @@
 
 
 
+**milesguo** TNT Daily : the Chinese government recently rolled out new economic police<br>https://gnews.org/166832/
+
+[https://www.guo.media/posts/277489](https://www.guo.media/posts/277489) `2020-04-09T23:10:15`
+##
+
 **milesguo** A Message from First Lady Melania Trump to Frontline Responders<br>https://gnews.org/166656/
 
 [https://www.guo.media/posts/277487](https://www.guo.media/posts/277487) `2020-04-09T22:55:10`
