@@ -11,9 +11,19 @@
 
 
 
+**milesguo** A Message from First Lady Melania Trump to Frontline Responders<br>https://gnews.org/166656/
+
+[https://www.guo.media/posts/277487](https://www.guo.media/posts/277487) `2020-04-09T22:55:10`
+##
+
 **milesguo** Miles Guo: The outbreak in China is by no means over!<br>https://gnews.org/166449/
 
 [https://www.guo.media/posts/277486](https://www.guo.media/posts/277486) `2020-04-09T22:25:20`
+##
+
+**milesguo** Biblical Passover holiday in 2020 similar to the original one in Egypt<br>https://gnews.org/166364/
+
+[https://www.guo.media/posts/277485](https://www.guo.media/posts/277485) `2020-04-09T22:55:12`
 ##
 
 **milesguo** The United States imposes new rules for CCP state media<br>https://gnews.org/166350/
