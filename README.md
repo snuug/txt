@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月8日CCP冠状病毒大流行第75集<br>https://gnews.org/zh-hans/166883/
+
+[https://www.guo.media/posts/277447](https://www.guo.media/posts/277447) `2020-04-09T10:10:13`
+##
+
 **milesguo** 这不叫旅游 这叫组团共攀新坟头<br>https://gnews.org/zh-hans/165351/
 
 [https://www.guo.media/posts/277387](https://www.guo.media/posts/277387) `2020-04-08T04:40:13`
