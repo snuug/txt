@@ -1,17 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共理論戰場（⼀）————論戰馬克思主義
-`2020-04-08 08:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/165880/)
+## War Room106：英國政府對中共病毒來源的最新看法
+`2020-04-08 09:24 GM37` [轉載自GNews](https://gnews.org/zh-hant/166211/)
 
-**作者：XH**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08032516/ghjk-3.jpg)
-
-[**滅共理論戰場**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08031954/%E5%88%9D%E7%A8%BF3.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08031954/%E5%88%9D%E7%A8%BF3.pdf)
-
-**請點擊下載按鈕，下載文檔觀看！**
-
-（文章內容僅代表作者觀點）
+英國政府已經承認，他們現在不懷疑這種病毒是從武漢的實驗室而不是從海鮮市場出來的這種可能性。中國政府一直在胡說八道。我在這裡有一份文件，是英國政府手裡的，是兩個博士撰寫的，與華南理工大學有關。英國人現在有了這個文件，他們在最近24小時內改變了立場，認為這種病毒可能來自武漢的兩個實驗室之一。
 
 0

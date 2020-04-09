@@ -1,55 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 關於鼓勵對空間資源回收和利用的國際支持行政令
-`2020-04-08 08:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/166091/)
+## 【多語言圖文版】4月5日中共病毒疫情要聞快報
+`2020-04-08 09:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/166197/)
 
-##  **行政令** 
+[4.5-每日要點-英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090710/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090710/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E6%96%87%E7%89%88.pdf)
 
-###  **關於鼓勵對空間資源回收和利用的國際支持行政令** 
+[4.5-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090754/4.5-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090754/4.5-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
-####  **2020** **年** **4** **月** **6** **日頒布** 
+[4.5-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090829/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090829/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-**依據美利堅合眾國憲法和法律，包括《美國商業空間發射競爭力法》第** **4** **篇（公法** **114-90** **）賦予我作為總統的權力，特此命令如下：**
+[4.5-每日要點-法語版-français](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090910/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090910/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)
 
-**第一部分政策**
+[4.5-每日要點-韓語版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090936/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08090936/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
 
-**2017** **年** **12** **月** **11** **日頒布的《太空政策指令》** **(** **重振美國的人類太空探索計劃** **)** **規定商業夥伴能夠參與美國主導的“創新和可持續的計劃”以帶領人類返回月球進行長期探索和利用，以及隨後的人類到火星和其他目的地的使命。對月球，火星和其他星體的成功長期探索和科學發現將需要與商業夥伴合作以開發和利用資源，包括外太空的水和某些礦物。**
+[4.5-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091045/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091045/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-**然而，關於回收利用空間資源權，包括擴展月球資源的商業回收利用權的不確定性，已經挫傷了商業實體對此領域的參與積極性。有關是否** **1979** **年《治理在月球和其他天體活動的協定》（月球協定）為各國回收利用空間資源建立了法律框架的問題更強化了這種不確定性，特別是因為美國還未簽署或認可月球協定。實際上，只有** **18** **個國家認可月球協定，其中** **17** **個國家是擁有** **95** **個成員的聯合國和平利用外層空間委員會的成員國。** **此外，《月球協定》與1967年美國與其他108個國家已經加入的《關於治理國家在探索和利用外太空包括月球和其他星體中的活動原則條約》之間的差異也增加了對回收利用空間資源權的不確定性。**
+[4.5-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091111/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091111/4.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-**根據有關法律，美國人必須享有從事外層空間資源的商業開發，回收，以及利用的權力。** **外層空間在法律層面和物理層面上都是人類活動的獨特領域** **，美國不認為它具有全球普遍性。就此而言，根據有關法律，這應該是美國的政策來鼓勵國際上對外層空間資源公共和私有回收及利用的支持。**
+[4.5-每日要點-俄語版5-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091123/5-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/08091123/5-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-**第二部分** **月球協定**
 
-**美國並未簽署月球協定。此外，就如何指導各國加強月球、火星和其他星體的長期探索和科學發現與利用領域的商業參與來說，美國不認為月球協定是一個有效或必要的工具。相應的，美國國務卿應該反對其他任何國家或國際組織將月球協定視為國際慣例的企圖。**
-
-**第三部分鼓勵對空間資源回收和利用的國際支持**
-
-**在諮詢商務部長，運輸部長，國家航空航天局局長以及其他國務卿認為合適的行政部門或機構後，依據此令第一部分政策規定，美國國務卿應該採取適當行動以鼓勵公共和私人對外層空間資源回收和利用的國際支持。為了執行此部分規定，國務卿必須與其他國家商議有關公共和私人對外層空間資源回收和利用安全和持續運作方式的聯合聲明和雙邊以及多邊合約。**
-
-**第四部分有關針對鼓勵對空間資源回收和利用的國際支持所作努力的報告**
-
-**在此令發布之日起** **180** **天內，國務卿必須通過國家太空理事會主席和總統的國家安全事務助理向總統做出此令第三部分規定之活動的報告。**
-
-**第五部分**    **總則**
-
-**(a)** **此行政令不應被解釋為損害或妨礙**
-
-**(i)** **法律賦予給行政部門或機構，或其主管的權力，或**
-
-**(ii)** **管理和預算局局長有關預算，行政，或立法提案的職能**
-
-**(b)** **此令必須依據有關法律，按照可用撥款予以執行**
-
-**(c)**   **此令不意在** **，** **也不會為任何一方** **，** **包括它們的部門、機構或他們的實體** **，** **或它們的官員、員工或其他任何人在在實質上** **，** **程序上** **，** **法律和平衡法的可強制執行上** **，** **創造違反美國國家的權益。**
-
-**唐納德**    **J.** **川普**
-
-**白宮**
-
-*出處： [Executive Order on Encouraging International Support for the Recovery and Use of Space Resources](https://www.whitehouse.gov/presidential-actions/executive-order-encouraging-international-support-recovery-use-space-resources/)*
-
-*翻譯：【Sarathecat】校對：【Winston Jackson】*
 
 0
