@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 2020年4月9日CCP冠状病毒大流行第76集<br>https://gnews.org/zh-hans/168247/
+
+[https://www.guo.media/posts/277532](https://www.guo.media/posts/277532) `2020-04-10T09:10:11`
+##
+
+**milesguo** 以史为鉴之可怕的经济大萧条，无人可逃！<br>https://gnews.org/zh-hans/167600/
+
+[https://www.guo.media/posts/277530](https://www.guo.media/posts/277530) `2020-04-10T09:10:13`
+##
+
+**milesguo** 灭共联军正在形成，共产党你完了！<br>https://gnews.org/zh-hans/167569/
+
+[https://www.guo.media/posts/277529](https://www.guo.media/posts/277529) `2020-04-10T09:10:15`
+##
+
+**milesguo** <br>银行挤兑才刚刚开始，存款保险并非保障<br>https://gnews.org/zh-hans/167498/
+
+[https://www.guo.media/posts/277527](https://www.guo.media/posts/277527) `2020-04-10T09:10:16`
+##
+
+**milesguo** 首次汇算清缴个人所得税启用共产党你是穷疯了吗<br>https://gnews.org/zh-hans/167448/
+
+[https://www.guo.media/posts/277525](https://www.guo.media/posts/277525) `2020-04-10T09:10:18`
+##
+
 **milesguo** GTV投资火爆！正义的凝聚力！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/167952/
 
 [https://www.guo.media/posts/277519](https://www.guo.media/posts/277519) `2020-04-10T05:10:10`
