@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 華爾街基辛格主義和中共獨裁政權埋下的惡果
-`2020-04-09 18:34 GM06` [轉載自GNews](https://gnews.org/zh-hant/167492/)
+## 【多語言圖文版】4月6日中共病毒疫情要聞快報
+`2020-04-10 00:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/167991/)
 
-作者：立武
+[4.6-每日要點-英語版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001748/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001748/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
 
-4月5日，中共海關總署表示，從3月1日到4月4日，中共總共出口口罩約38.6億隻，防護服3752萬件，紅外測溫儀241萬件，呼吸機1.6萬台，檢測試劑盒284萬盒，護目鏡841萬副。
+[4.6-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002248/4.6-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002248/4.6-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
-中共工信部亦公佈數據稱，中國8家具有出口歐盟市場的有創呼吸機資質的廠商，週產能為2200台，約佔全球總產能的五分之一；同時，已經簽訂出口呼吸機訂單2萬台。
+[4.6-每日要點-俄語版-6-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001930/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-6-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001930/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-6-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
 
-面對如此龐大的產能和出口，我們應該清晰的認識到中共目前仍然能夠控制大部分的產業鏈，這同時也是中國人民和國際社會的一個實在的威脅。一方面，不管中共刻意為之還是中共製造本身的缺陷，質量的問題可能導致疫情加重和排華情緒高漲；另一方面，中共隨時可以以此為籌碼進行利益要挾。在一月份，中共曾禁止口罩製造商3M、Honeywell出口他們在華製造的防護物資。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09183014/12-1.jpg)
-這必須歸咎於一直以來華爾街基辛格主義和中共獨裁政權以廉價勞動力壟斷部分產業鏈，這導致在面對全人類的威脅CCP病毒的時候，許多政府不得不採取妥協讓利地態度向中共採購物資，而一方面又不得不擔心中共製造的質量安全問題。同時，中共在疫情當頭又趁機發了多筆橫財。
+[4.6-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002019/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002019/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)
 
-3月31日，美國紐約州州長庫莫在新聞發布會上表示，紐約州已經從中共訂購了1.7萬台呼吸機，但預計該州只能得到2500台，原因在於加州、伊利諾伊州以及聯邦政府都訂購了同樣的呼吸機。庫莫職責這種互相競爭購買推高了呼吸機的價格，每台呼吸機平均售價2.5萬美元，總計4.25億美元，折合人民幣30億元左右。
+[4.6-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002040/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002040/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-另外，根據國內呼吸機經銷商的陳述，從兩週前開始，呼吸機的價格就開始跳漲，漲幅在30%-80%之間，價格在10萬到50萬元不等。而根據中共海關總署報告，就目前出口的1.6萬台呼吸機總價值約3.1億元，平均每台1.9萬元，也遠遠低於10萬元的價格。可見中共遠遠瞞報或者低估了呼吸機的價格，也隱瞞了高昂的利潤，顯然中共有意展現出不趁機哄抬物價的形象，要么就是呼吸機質量不合格。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09183109/13-3.png)
-同時，由於呼吸機需求的上漲，上游企業同樣也受益於此，中鼎股份3月31日的公告表示，公司成為美國通用呼吸機項目精密橡膠密封產品的批量供應商，該訂單總配套20萬套，預計收入總金額約六千萬元。
+[4.6-每日要點-法語版-français](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002121/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002121/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)
 
-但目前來看，中共的呼吸機製造商仍然是中游本體製造企業，上游核心部件大都依靠進口，原材料的短缺仍然是限制中共呼吸機產能的主要原因。同時，意大利呼吸機製造商SiareEngineerin目前正與法拉利和菲亞特克萊斯勒汽車公司以及零部件供應商馬瑞利洽談，希望這些公司能夠幫忙生產一些呼吸機零部件。而且，特斯拉利用很多Model 3上的汽車部件來製造呼吸機，盡量不使用醫療器械的部件，也很快能進行量產投入使用。
+[4.6-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002222/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002222/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf)
 
-我們應該認識到，如果不是特朗普政府一再呼籲撤回產業鏈，啟動《國防生產法案》，現在情況可能更糟。一直以來的華爾街基辛格主義和中共綁架十四億中國人民壟斷部分產業鏈，可能在這次疫情中要讓很多西方國家吃到苦頭，這是一直以來縱容甚至配合中共綁架十四億中國人民的惡果。隨著產業鏈的轉移，這種痛苦可能會慢慢減少，但郭文貴先生曾爆料，產業鏈的轉移大概需要花十個月到十二個月，這段時間那些一直與中共勾結的政府可能需要付出不小的代價。
+[4.6-每日要聞-韓文版- 매 일 – 주 요 뉴 스](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002234/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EB%A7%A4%EC%9D%BC-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002234/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EB%A7%A4%EC%9D%BC-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4.pdf)
 
-（文章內容僅代表作者觀點）
+
 
 0

@@ -1,33 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 銀行擠兌才剛剛開始，存款保險並非保障
-`2020-04-09 18:48 GM06` [轉載自GNews](https://gnews.org/zh-hant/167515/)
+## 4月9日美國政要推文選譯
+`2020-04-10 00:52 GM65` [轉載自GNews](https://gnews.org/zh-hant/168016/)
 
-作者：立武
+> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pushed misinformation from China and refused to acknowledge the severity of communism’s virus — which benefited Beijing at the expense of the world.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2020](https://twitter.com/MarshaBlackburn/status/1248317269421232130?ref_src=twsrc%5Etfw)
 
-4月1日，甘肅銀行H股暴跌四成，成為首只銀行股仙股，隨後甘肅銀行的個別網點陸續出現排隊取現的擠兌現象。 4月6日，中共發布通告稱，是由於辦理過程較慢，同時警告“不傳謠”。 **在通告中，我們可以知道，甘肅銀行是一家國有的商業銀行，也是甘肅省規模最大的省屬金融機構，同時我們了解到，甘肅銀行在“2019年中國銀行業100強榜單”中排名第48位，是西北第一家上市銀行。**如果這家銀行出現擠兌現象的話，接下來，至少中共的中小銀行必定會因為各種原因出現擠兌。
+參議員Marsha Blackburn：世衛組織推廣了來自中國的錯誤信息，並且拒絕承認共產主義病毒的嚴重性——這讓世界付出代價而北京從中獲益。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09184326/9-1.jpg)
+> Ted Cruz: ‘Disgraceful‘ Phoenix TV Allowed into the White House [https://t.co/GIs4m4BPCt](https://t.co/GIs4m4BPCt) via [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw)
+> — Senator Ted Cruz (@SenTedCruz) [April 9, 2020](https://twitter.com/SenTedCruz/status/1248317626599772160?ref_src=twsrc%5Etfw)
 
-事實上，在2019年12月，這家銀行的不良貸款規模就高達9.854億元，其中個人經營貸款不良率就高達14.08%，在加上疫情帶來的內需衝擊和外貿出口的驟降，個人經營不良貸款必定增加。但歸根結底，是中共一直以來的債務累積、壞賬增多導致的結果。去年，該銀行營業收入同比下降18.5%，淨利潤同比下降85.20%。
+參議員Ted Cruz：“不光彩的”鳳凰衛視被准許進入了白宮（文章來源：Breitbart新聞網）
 
-對於股價大跌，甘肅銀行的公告表示，是由於若干股東出於融資目的將持有的H股進行質押，後被強制出售。不管是質押爆倉還是被做空，中共中小銀行已經是一塊壞骨頭，要么自己丟掉，要么被人丟掉。
+> USA should do the same [#AllinonAmerica](https://twitter.com/hashtag/AllinonAmerica?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/s9z88MBh5H](https://t.co/s9z88MBh5H)
+> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248244759514058752?ref_src=twsrc%5Etfw)
 
-值得注意的是，2018年底，寶塔石化資金問題全面爆發，無法兌付票據，其應付票據高達164億元，而2018年3月份時，寶塔石化授信額度最高的就是甘肅銀行，其次是錦州銀行，也即在去年年報難產被工商銀行接盤的錦州銀行。
+參議員Josh Hawley：美國也應該這麼做
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09184449/10-2.jpg)
+《南華早報》：日本著手資助其製造商撤出中國
 
-事實上，在去年10月，河南洛陽伊川農商行就曾出現“儲戶集中提款”的事件，次日該銀行原黨委書記、董事長被通報調查，根據知情人士稱，該銀行作為一個縣級農商行，票據類業務做得全國都排上了名。而且，該行貸款集中度高且以擔保貸款為主，經常是互相擔保、聯合擔保，不管有沒有償還能力**。**同樣，在去年11月，遼寧營口沿海銀行也遭受“儲戶集中提款”事件。
+> Good! Does this mean you consent to an international investigation to determine [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party culpability for [#COVID19Pandemic](https://twitter.com/hashtag/COVID19Pandemic?src=hash&amp;ref_src=twsrc%5Etfw) and to assess damages? [https://t.co/XrJ17M1HH3](https://t.co/XrJ17M1HH3)
+> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248273020646539272?ref_src=twsrc%5Etfw)
 
-郭文貴先生曾經爆料，中共銀行的暴雷就是從金融票據開始，一個南京商行票據就高達一萬億。而到2018年末中共存款保險基金專戶餘額僅為821.2億元。對於存保基金的運轉，2015年3月，周小川曾表示“只投資政府債券、中央銀行票據、信用等級較高的金融債券”。而今年3月，存保基金以27.5%的持股比例位列“新包商銀行”的單一第一大股東。而“前包商銀行”在去年5月份因出現嚴重信用風險被央行接管。
+參議員Josh Hawley：很好！這是不是說你同意接受國際調查，以判定中共導致冠狀病毒全球大爆發的罪行，並評估損失？
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09184541/11-3.jpg)
+華春瑩：歡迎隨時到中國來，與大街上的任何人交談，享受這種自由。順便問一句，克勞齊艦長寫信挽救幾千人的生命和（幫助）因議論工作條件而被解僱的醫護人員，他因此被撤職，那時候自由和透明又在哪兒呢？
 
-在去年中共審計署發布的第1號公告中，有42家商業銀行貸款不良率超過5%的警戒線，其中超過20%的有12家**。**一些商業銀行聯合資金中介以“貼息存款”進行高息攬儲，特別是以“非陽光貼息”的方式利用高達10%的利息利誘儲戶存款，後將存款挪用，偽造存單進行質押騙貸。
+截圖內容：Morgan Ortagus（美國務院發言人）：美國歡迎中國聯合抗擊冠狀病毒疫情的呼籲。我們敦促北京分享所有病毒數據，讓國際團隊調查疫情如何在中國爆發，並且允許其公民言論自由。真正的合作需要透明和切實行動，不是華麗的說辭。
 
-同樣，有不少民營銀行聯合信託機構推出“智能存款”實現所謂的“高流動性加高收益”，實際上，在流動性危機的時候，往往這些信託機構最容易受到衝擊。而且，高收益的背後是這些中小銀行聯合金融科技公司開發消費信貸業務，最後因為被互聯網金融擠占存款的民營機構做上了互聯網金融的業務。而這些都是中共體制下不健康的金融體系導致的逆淘汰機制的結果，最大的欺詐集團是中共，老百姓辛辛苦苦賺的錢最終將一無所有，還要背上中共留下的債務，寄希望於50萬的存款保險就如同寄希望於中共能夠還給中國人民的血汗錢一樣癡人說夢。
+> China (precisely ccp) has been fed by irresponsible globalism, at the expense of their people's freedom and the world's safety. Other countries should think long-term and take action! [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw) [@robert\_spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) [#manufacturing](https://twitter.com/hashtag/manufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [#production](https://twitter.com/hashtag/production?src=hash&amp;ref_src=twsrc%5Etfw) [#sovereignty](https://twitter.com/hashtag/sovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2KLVUIi4Aj](https://t.co/2KLVUIi4Aj)
+> — Nicolas Carvajal (@NicolasPCG) [April 9, 2020](https://twitter.com/NicolasPCG/status/1248226545375870977?ref_src=twsrc%5Etfw)
 
-（文章內容僅代表作者觀點）
+斯伯丁將軍轉推：
 
+Nicolas Carvajal：不負責任的全球化讓中國（確切的說是中共）得到了壯大，代價是其人民的自由和世界安全。其他國家應該做長遠打算並採取行動！
+
+彭博社：日本為其創紀錄的經濟刺激計劃撥款22億美元，幫助本國製造商將生產撤出中國。
+
+> NO MORE SPECIAL RELATIONSHIP!!! [https://t.co/ghRFM20Odu](https://t.co/ghRFM20Odu)
+> — General Spalding (@robert\_spalding) [April 9, 2020](https://twitter.com/robert_spalding/status/1248274648854417409?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：結束（與香港的）特殊（貿易）關係！ ！ ！
+
+Jan Jekielek：推薦觀看！正值冠狀病毒疫情時期，我們不要忘記香港人持續的困境和不斷的抗爭。這遠未結束，可以肯定，中共將試圖利用世界對CCP病毒的關注來藉機加強它對香港的控制。
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Executive Branch agencies just unanimously recommended the FCC revoke and terminate China Telecom’s Services in the US 
+> 
+> China Telecom is the U.S. subsidiary of a People’s Republic of China (PRC) state-owned telecommunications company. – Per DOJ
+> — Bowen Xiao (@BowenXiao\_) [April 9, 2020](https://twitter.com/BowenXiao_/status/1248329631977144324?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+Bowen Xiao：重磅：剛剛，各個行政分支機構（美國政府各行政部門，編者按）一致建議聯邦通信委員會（FCC）吊銷並終止中國電信在美國的各項服務。中國電信是中國國有電信公司在美國的子公司——據美國司法部
+
+> I fought this while at the White House. It's a fact. "Today, however, VOA too often speaks for America’s adversaries—not its citizens." [https://t.co/6YuP9wsArb](https://t.co/6YuP9wsArb)
+> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248415960140107776?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：我在白宮時曾為之爭取。這是事實。 “然而現在，美國之音太多次地不顧本國公民，為美國的對手說話。”（資料來源：白宮官網每日新聞事件匯總）
+
+> "If you truly wish the Chinese people well, you should fulfil your duty of promoting democracy and rule of law and telling the truth….That will be ten thousand times better than this insincere New Year’s greeting!” [https://t.co/CmxmeCiEc8](https://t.co/CmxmeCiEc8)
+> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248420043982925824?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“如果你們真的希望中國人民幸福，就應該完成你們的任務，推廣民主和法治…那比這種虛偽的拜年好過一萬倍！”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005207/image0.png-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005019/ccpvirus.png)
 0

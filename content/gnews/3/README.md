@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從第一天我們就對伊朗提供人道主義援助
-`2020-04-10 03:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/168170/)
+## 第一夫人講口罩的重要性
+`2020-04-10 05:36 GM31` [轉載自GNews](https://gnews.org/zh-hant/168388/)
 
-在[4月8日](https://www.youtube.com/watch?v=QG7SGb4vQsY)的白宮每日疫情通報會上，川普總統與白宮團隊強調說: “關於我們對伊朗的援助，我們自第一天知道該病毒襲擊了伊朗人民以來，就提供了人道主義援助。 我很遺憾他們選擇不接受。 我聽說有人在談論制裁，世界應該知道，沒有任何制裁措施可以阻止人道主義援助，醫療用品和藥品運往伊朗，我們向他們提供了美國人的援助。”
+出處： [Melania Trump](https://twitter.com/flotus/status/1248249626949562368?s=21)
 
-*翻譯* *&* *字幕：【* *Freela* *】*    *校對：【* *Winston Jackson* *】*
+*翻譯&字幕：【mg南】*
 
 0

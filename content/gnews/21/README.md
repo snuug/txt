@@ -1,62 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多家中概股被做空共產黨的造假本性終得報應
-`2020-04-09 19:09 GM06` [轉載自GNews](https://gnews.org/zh-hant/167558/)
+## 【多語言圖文版】4月7日中共病毒疫情要聞快報
+`2020-04-10 01:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168061/)
 
-作者：文茗
+[4.7-今日要點-英語版English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)
 
-今日截止收盤美股三大股指大幅收漲，道指漲3.44%，納指漲2.58%，標普500漲3.41%。科技股普遍上漲，其中，蘋果漲2.56%，微軟漲1.00%，亞馬遜漲1.56%，谷歌漲2.00%，Facebook漲3.23%，特斯拉漲0.62%。
+[4.7-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-中概股普跌，其中，阿里巴巴跌1.02%，京東跌1.95%，拼多多跌2.26%，網易跌0.50%，百度跌4.38%，愛奇藝跌4.57%，好未來跌6.74%，跟誰學跌6.10%。
+[4.7-每日要點-韓文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09185544/67-1.png)
+[4.7-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-繼渾水做空瑞幸之後，同樣是因自曝財務造假被做空的教育龍頭企業好未來。好未來股價盤後一度急跌超28％，隨後跌幅不斷收窄，截止收盤下跌6.74%。
+[4.7-每日要點-法語版-français.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)
 
-好未來市值超2000億堪稱教育界的龍頭，當日市值蒸發了近22億美元。
+[4.7-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09185635/68-1.png)
+[4.7 -每日要點-俄語版7-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-早在4月7日美股盤後，好未來教育發佈公告稱，在例行的內部審計過程中發現了某些員工存在“不當行為”，好未來立即向當地警察報告，該僱員已被當地警察拘留。
-
-公告表示表示，根據公司的常規內部審核，公司懷疑有問題的員工與外部供應商合謀，偽造合同等文件，錯誤誇大“輕量級（Light Class）”的銷售數據。在截止至2020年2月29日結束的2020財年中，“Light Class”銷售占公司2020財年總收入的3%到4%。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09185721/69.png)
-同樣還是財務造假問題的跟誰學股價一度暴跌近7.5%，最終收盤下跌6.10%。
-
-早前跟誰學在2月18日美股盤後時間公佈其2019財年四季報及全年財報。截至2019年12月31日，跟誰學全年淨收入為21.149億元人民幣，同比增長432.3%。非美國通用會計準則淨利潤從去年同期的2,557萬元人民幣增至2.869億元人民幣，同比增長1,020.7%。其中總付費人次達到2,743,000，同比增長257.6%。
-
-財務報表公佈之後截至美東時間2月19日16時收盤其市值已從27億美元漲到了超100億美元，增長4倍。
-
-2020年2月25日，做空機構Grizzly曾發布報告直指跟誰學存在財務造假、誇大淨利潤、刷單等幾宗罪。報告還指出，跟誰學利用了關聯方操縱財務。
-
-而跟誰學CEO陳向東反駁強調：誠信是自己核心價值觀之一，時間是最好的朋友。財務造假引發誠信危機是直接引爆跟誰學股價下跌的直接導火索。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09185915/65.png)
-
-這次中概股普遍下跌最值得注意的其實是愛奇藝。 4月7日，美國做空機構Wolfpack研究發布針對愛奇藝的37頁做空報告，直指愛奇藝存在誇大用戶數量、營收，虛增成本等諸多問題。做空機構渾水亦表示參與了Wolfpack對愛奇藝的調查。
-
-根據愛奇藝最新向美國SEC遞交20-F文件顯示，百度擁有92.7%的投票權，佔愛奇藝總股本的比例為56.1%；高瓴資本佔總股本的比例約為6.34%，擁有1.1 %的投票權；愛奇藝創始人、CEO龔宇佔總股本1.93%。從文件股權結構可以看出百度是真正愛奇藝的老闆，正因此百度股價也應聲下跌4.38%。
-
-通過爆料革命的學習獲知百度背後有中共安全部門的背景，他實際應該說是共產黨海外上市企業核心資產之一。百度在美股總市值337億美元，於此類似的阿里巴巴、京東等這些共產黨海外融資巨頭都相應的開始出現下跌，已經很明顯的告訴我們這次狙擊已經在向共產黨核心融資渠道開火了，而瑞幸等只是一個開始。
-
-有關報導稱目前機構至少削減逾20%中概股頭寸。通過瑞幸、跟誰學等可以看出做空公司首先狙擊的是那些缺乏營收利潤支撐且一直處於燒錢開擴規模階段的熱門中概股；不光是從中概股財務報表裡尋問題，直接派遣大量人員或高科技公司進行實地調研考察，收集直接證據證明企業財務造假；通過估空報告，促使審計機構對中概股從嚴審計，從而證實對中概股財務造假的判斷。
-
-中共國上市公司中財務報告造假舞弊現像是廣泛存在的，就1994 年至2000 年，中共證監會披露了346 項證券違規行為，其中會計信息作假大約佔19.1%。
-
-儘管現在因造假而遭受證監會處罰的案件絕對數量並不大，但考慮到上市公司中普遍存在的利潤操縱現象；涉嫌造假而正被調查上市公司的數量；相當數量的雖進行了造假但仍未被發現的上市公司。我認為，中共國范圍以內幾乎沒有不造假的企業，像郭先生的公司在中國這片土地幾乎是鳳毛麟角。
-
-俗話說的好“蒼蠅不盯無縫的蛋”，我認為不能怪華爾街狙擊中概股，我們應該從自身去找原因。其實歸根結底這一切根源就是共產黨統治教育的結果。共產黨從誕生的那一天起就是通過謊言立國，尤其是共黨的祖宗毛臘肉還沒有建立中共國之前欺騙美國欺騙人民。結果誰都知道是什麼，中國人付出了多少代價。
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09190208/63-1.jpg)
+[4.7-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/09190213/64-1.jpg)
-
-毒奶粉、 毒麵粉、毒大米、毒水餃、毒饅頭；毒果脯、頭髮醬油、假雞蛋、假鹽、蘇丹紅雞蛋；毒比目魚、大便臭豆腐、注水肉、羊尿鴨肉、人造豬牛肉、藥水豆芽、塑料紫菜、水果膨大劑、地溝油、舊皮鞋果凍等等，這一切的一切都是共產黨統治下人性徹底淪喪的結果。
-
-股票財務造假這種歐美民主國家嗤之以鼻的行為在中國企業已經變成一種習慣甚至被讚揚。這回共產黨造的孽終到了報應的時候，這次美國自上而下的同仇敵害，就從你財務造假開始一步步剿滅共產黨在海外的錢袋子，沒了錢共產黨你就真完了。
-
-（文章內容僅代表作者觀點）
 
 0

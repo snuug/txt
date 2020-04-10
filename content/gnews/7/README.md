@@ -1,25 +1,213 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月7日中共病毒疫情要聞快報
-`2020-04-10 01:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168061/)
+## 我要的並不多
+`2020-04-10 04:46 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/168330/)
 
-[4.7-今日要點-英語版English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)
+改編歌曲推薦：小甜甜
 
-[4.7-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+改編自：Demons （樂隊：Imagine Dragons）
 
-[4.7-每日要點-韓文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
+歌曲推薦：小甜甜
 
-[4.7-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
+歌詞改編：心如飛鳥& Demos
 
-[4.7-每日要點-法語版-français.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)
+演唱：Demos & 心如飛鳥& AQUA
 
-[4.7-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
+小提琴：巴洛克
 
-[4.7 -每日要點-俄語版7-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
+**引言：Giselle Z**
 
-[4.7-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
+我想要的並不多，只是一個普通人，文明有尊嚴的生活……
+
+舒緩的音樂娓娓鋪展，淡淡的哀傷，掩飾不住的憤怒在積蓄，在噴薄。
+
+觸目驚心的鏡頭下，是貧窮無助的孩子卑賤如螻蟻般的生活；全副武裝的黑警正在圍毆手無寸鐵的市民；如花似玉的女孩們在絕望中慘死……
+
+我很想知道，那個被警察圍毆的穿紅衣服的年輕男子，他怎麼樣了，他還活著嗎？他的家人會是何等的絕望和哀傷？
+
+勇敢的香港，被暴力凌虐的香港，被盜國賊們欺壓的香港！還給我！都還給我！還給我作為一個普通人的文明有尊嚴的生活！
+
+黑壓壓的人群中，那輛緩緩前行的救護車，就像摩西分開了紅海，象徵著光明，帶來了救贖。
 
 
+
+###  **《我要的並不多》** 
+
+不能有信仰還有
+
+想要的生活然後
+
+反駁的權利永遠
+
+有塊土地的自由
+
+稅我都交了不夠
+
+換我的健康擔憂
+
+變老的父母發愁
+
+下一代也要忍受
+
+我要的並不多
+
+都是我掙到的
+
+承諾的沒給過
+
+把他趕走就行了
+
+你和我的選擇
+
+喊出來別吝嗇
+
+自己不替自己說
+
+這輩子就過了
+
+我想要世界安靜
+
+不要被綁架熱情
+
+就像其他的文明
+
+自由獨立有個性
+
+我要再看到星星
+
+山川河水的干淨
+
+姑娘真摯的愛情
+
+沒有看低的表情
+
+真誠是對的還有
+
+沉默是錯的然後
+
+公平會來的永遠
+
+驕傲的抬著頭
+
+天藍的不會不夠
+
+說話也不再擔憂
+
+不會為呼吸發愁
+
+我不會再忍受
+
+我要的並不多
+
+都是我掙到的
+
+承諾的沒給過
+
+把他趕走就行了
+
+你和我的選擇
+
+喊出來別吝嗇
+
+自己不替自己說
+
+這輩子就過了
+
+我想要世界安靜
+
+不要被綁架熱情
+
+就像其他的文明
+
+自由獨立有個性
+
+我要再看到星星
+
+山川河水的干淨
+
+姑娘真摯的愛情
+
+沒有看低的表情
+
+They say it’s up to fate
+
+I say it’s what we make
+
+It’s simple in my soul
+
+I need to see them go
+
+Your eyes, they shine so bright
+
+I want to save their light
+
+I will fight for this now
+
+Let’s fight for this now
+
+我想要世界安靜
+
+不要被綁架熱情
+
+就像其他的文明
+
+自由獨立有個性
+
+我要再看到星星
+
+山川河水的干淨
+
+姑娘真摯的愛情
+
+沒有看低的表情
+
+不能有信仰還有
+
+想要的生活然後
+
+反駁的權利永遠
+
+有塊土地的自由
+
+稅我都交了不夠
+
+換我的健康擔憂
+
+變老的父母發愁
+
+下一代也要忍受
+
+我要的並不多
+
+都是我掙到的
+
+承諾的沒給過
+
+把他趕走就行了
+
+你和我的選擇
+
+喊出來別吝嗇
+
+自己不替自己說
+
+這輩子就過了
+
+我想要世界安靜
+
+不要被綁架熱情
+
+就像其他的文明
+
+自由獨立有個性
+
+我要再看到星星
+
+山川河水的干淨
+
+姑娘真摯的愛情
+
+沒有看低的表情
 
 0
