@@ -1,25 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月6日中共病毒疫情要聞快報
-`2020-04-10 00:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/167991/)
+## 美研究表示：可通過範圍性廢水分析來評估社區中共病毒感染情況
+`2020-04-10 04:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168283/)
 
-[4.6-每日要點-英語版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001748/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001748/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10041835/Picture-1-135.png)
+據《新聞周刊》4月9日報導，研究人員在美國馬薩諸塞州的廢水中檢測出中共病毒，並根據痕跡追踪技術發現數量超出了該地區確診病例的預期數量。
 
-[4.6-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002248/4.6-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002248/4.6-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
+科學家以前曾使用這種廢水分析技術來追踪其他傳染病以及人口藥物濫用情況。現在，世界各地的多個研究小組已開始使用這種方法追踪中共病毒，以此來評估社區中有多少人被感染。研究人員希望這種技術可以作為傳統檢測病毒的一種補充。
 
-[4.6-每日要點-俄語版-6-апреля.-Обновления-пандемии-вируса-КПК.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001930/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-6-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10001930/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E8%AF%AD%E7%89%88-6-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.pdf.pdf)
+3月18日，一個由新興公司Biobot Analytics，麻省理工學院（MIT），哈佛大學（Harvard）以及布里格姆婦女醫院的科學家組成的團隊對馬薩諸塞州大部分地區的主要城市廢水處理設施中進行了檢測。根據最新的研究結果，在3月18至25號之間的測試中，研究人員發現中共病毒含量比預期更高。
 
-[4.6-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002019/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002019/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E5%BE%B7%E8%AF%AD%E7%89%88-Deutsch.pdf)
+該研究的作者之一埃里克·阿爾姆（Eric Alm）告訴《新聞周刊》：“在Biobot公司，我們一直在使用基於廢水的流行病學來評估美國阿片類藥物濫用的數據。在麻省理工學院以及新加坡的學術實驗室，我們一直在開發基於廢水的流行病學以估計尼泊爾傷寒和新加坡登革熱的患病率。”
 
-[4.6-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002040/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002040/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+阿爾姆還補充說：“我們意識到，我們可以將Biobot的運營模式與MIT在分子生物學方面的專業知識相結合，以幫助補充有限的中共病毒測試能力。通過尋找中共病毒的遺傳指紋，可以檢測出該病毒。“
 
-[4.6-每日要點-法語版-français](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002121/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002121/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%B3%95%E8%AF%AD%E7%89%88-franc%CC%A7ais.pdf)
+廢水中的病毒顆粒被大大稀釋，因此研究人員在提取遺傳物質之前，需要通過特殊的化學過程和高速離心機對其進行了富聚。然後，他們使用定量PCR估算廢水中的病毒數量，從而推斷出社區中可能被感染的人數。慶幸的是，廢水中的這些病毒顆粒不再具有活性，其無法感染人類。
 
-[4.6-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002222/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002222/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%AD-espan%CC%83ol.pdf)
+在研究期間，在廢水處理設施所服務的區域中，有近450例確診的中共病毒病例，但最新結果表明，這一數字可能被低估了。他們估計該數字可能在2300至115,000之間，遠高於兩種情況的官方數字。
 
-[4.6-每日要聞-韓文版- 매 일 – 주 요 뉴 스](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002234/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EB%A7%A4%EC%9D%BC-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10002234/4.6-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EB%A7%A4%EC%9D%BC-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4.pdf)
+對廢水進行相同的測試，可以提供成千上萬的信息。儘管廢水分析不能代替對個人的測試，但它可以非常經濟，快速，大規模地提供有用的數據。 ”
 
+阿爾姆認為，在對中共病毒的傳播以及未來的疫情進行建模時，廢水測試可以幫助提供更準確的信息。該研究的另一位作者，麻省理工學院的Fuqing Wu補充說，由於中共病毒的臨床症狀通常比病毒的發作晚，因此這種數據可以在確診病例出現前幾天甚至幾週提醒人們有關這一流行病的信息。
 
+Fuqing Wu表示：“到目前為止，現有的研究還沒有達到完全信任的科學嚴謹性。” “不過，國際研究界正在努力迅速填補這些空白。測試技術是該國乃至世界各地成千上萬個實驗室所通用的。因此，一旦驗證了檢測方法並投入運行，檢測就可以迅速鋪開。”
+
+[原文鏈接](https://www.newsweek.com/coronavirus-traces-massachusetts-wastewater-levels-higher-expected-1497141)
+
+翻譯報導：Longwood
 
 0

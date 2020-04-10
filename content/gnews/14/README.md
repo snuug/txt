@@ -1,28 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大自媒體人呼籲：全面反對中共滲透
-`2020-04-10 03:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168207/)
+## 第一夫人講口罩的重要性
+`2020-04-10 05:36 GM31` [轉載自GNews](https://gnews.org/zh-hant/168388/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10033815/1-80.jpg)
-圖片來源： [https://thegreenfund.com/4-canadian-cannabis-retail-pioneers-to-keep-your-eye-on](https://thegreenfund.com/4-canadian-cannabis-retail-pioneers-to-keep-your-eye-on)
+出處： [Melania Trump](https://twitter.com/flotus/status/1248249626949562368?s=21)
 
-據資深評論家斯潘塞·費爾南多（SPENCER FERNANDO）4月9日報導，在進行大規模調查之前，我們不能相信我們的領導人是站在加拿大民眾這一邊的。
-
-中共冠狀病毒危機暴露了許多加拿大政治人物，特別是在聯邦自由黨內部的政治人物，他們願意替中國共產黨說謊並充當大外宣。像世界衛生組織一樣，加拿大許多政府官員已經接受了中共直接或間接的“藍金黃”，利益使他們成為為外國勢力而非加拿大人民的代言人。現在的問題是，這些政客是否能意識到這點。
-
-目前，加拿大需要了解的是，究竟我們有多少政客和政府官員正在成為事實上的中共間諜、大外宣喉舌和隱形的滲透者，從事積極的“賣國”行為，這些行為顯然是對我們國家的不忠。
-
-在自由黨佔多數時，這樣的事情是不可能發生的，但是現在他們是少數，那麼佔多數的保守黨必須推動加拿大有史以來最深入的調查。我們認為反對這項調查的人至少在意識形態上是站在加拿大國家利益的對立面，即中共立場的。
-
-許多人指出，加拿大越來越像中共的殖民地，我們的官員表現的不可思議，特別不願意批評中共或對中共採取行動，但卻樂意批評和妖魔化我們最親密的民主盟國們。
-
-我們必須立刻調查因中共謊言造成的巨大死亡和經濟破壞，揭露和驅逐用加拿大人的錢為外國政權服務的政府官員。每一個熱愛加拿大的公民都應該呼籲對CCP的滲透甚至顛覆我們國家的行為進行全面調查。否則，我們的國家將被盜走，而我們自己的“領導人”將會成為盜國犯罪的共犯。
-
-評：越來越多的國家醒過來並呼籲與中國共產黨割席，調查內部的“藍金黃”問題和對共產黨病毒的清算。引用2020年2月8日郭文貴先生直播中說的話——“誰來承擔責任？習近平、王岐山、孟建柱、楊潔篪、孫力軍……所有的共產黨的、中南海的，一個都不能少！怎麼辦？國際審判，滅掉共產黨！”
-
-[原文鏈接](https://www.spencerfernando.com/2020/04/09/canada-needs-a-relentless-thorough-extensive-investigation-into-ccp-infiltration-of-our-political-system-politicians/)
-
-匿名
+*翻譯&字幕：【mg南】*
 
 0

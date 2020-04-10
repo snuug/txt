@@ -1,68 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月9日美國政要推文選譯
-`2020-04-10 00:52 GM65` [轉載自GNews](https://gnews.org/zh-hant/168016/)
+## 中共企圖利用疫情彎道超車
+`2020-04-10 04:20 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/168226/)
 
-> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pushed misinformation from China and refused to acknowledge the severity of communism’s virus — which benefited Beijing at the expense of the world.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2020](https://twitter.com/MarshaBlackburn/status/1248317269421232130?ref_src=twsrc%5Etfw)
+## **世界與中共戰鬥的結果將決定人類今後一百年的命運**
 
-參議員Marsha Blackburn：世衛組織推廣了來自中國的錯誤信息，並且拒絕承認共產主義病毒的嚴重性——這讓世界付出代價而北京從中獲益。
+撰稿：Giselle
 
-> Ted Cruz: ‘Disgraceful‘ Phoenix TV Allowed into the White House [https://t.co/GIs4m4BPCt](https://t.co/GIs4m4BPCt) via [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw)
-> — Senator Ted Cruz (@SenTedCruz) [April 9, 2020](https://twitter.com/SenTedCruz/status/1248317626599772160?ref_src=twsrc%5Etfw)
+## **班農作戰室 PANDEMIC EP-101 精選**
 
-參議員Ted Cruz：“不光彩的”鳳凰衛視被准許進入了白宮（文章來源：Breitbart新聞網）
+《世界网报》撰稿人 Curtis Ellis在接受班农先生采访时说：“與共產主義中國的對抗，是我們幾代人的使命。這場戰鬥的結果將決定人類今後一百年的命運。”
 
-> USA should do the same [#AllinonAmerica](https://twitter.com/hashtag/AllinonAmerica?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/s9z88MBh5H](https://t.co/s9z88MBh5H)
-> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248244759514058752?ref_src=twsrc%5Etfw)
+中共試圖利用瘟疫大流行的混亂局面，導致世界關閉。在隨後的混亂中，中共希望超越西方，完成其百年馬拉松。 這個百年馬拉松的目標是讓中國、共產主義中國、中國共產黨成為現在的全球霸主。
 
-參議員Josh Hawley：美國也應該這麼做
+“中國有一句諺語叫彎道超車，技術大變革的時代也是超越的时候。但你不應直接從內燃機車转向電動汽車。所以，我們目前就處於這種混亂之中，中共想在彎道超車，超越西方。”
 
-《南華早報》：日本著手資助其製造商撤出中國
+Curtis Ellis说，《華爾街日報》发表了一篇很棒的超級全球主義者亨利·基辛格（Henry Kissinger）寫的文章，標題是“苦差事”。 文章认为，我們必須為下一個時代做好準備。這是一個“後民族時代”。 我們必須擺脫民族國家的想法。非常有趣的是，中國共產黨一直利用全球主義和全球化作為特洛伊木馬，就像布谷鳥一樣證明其在世界上的領先地位。 中共大罵西方，利用世界貿易組織、世界衛生組織和所有全球主義的政府來推動自己的議程。美國精英們宣誓效忠全球主義和全球化，被中共一手玩弄，同时落入中共超越世界的計劃。
 
-> Good! Does this mean you consent to an international investigation to determine [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party culpability for [#COVID19Pandemic](https://twitter.com/hashtag/COVID19Pandemic?src=hash&amp;ref_src=twsrc%5Etfw) and to assess damages? [https://t.co/XrJ17M1HH3](https://t.co/XrJ17M1HH3)
-> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248273020646539272?ref_src=twsrc%5Etfw)
+Curtis Ellis補充说, 由於我們現在都在家工作,使用ZOOM媒體及ZOOM會議。但ZOOM却把我們工業技術机密及大部分公司机密，從ZOOM“後端”洩漏給了中共國。這是個惡意軟件。他們從我們的數據中，通過Al和大數據收穫我們的成果，他們將學到比他們通過黑客攻擊學到的還要多。
 
-參議員Josh Hawley：很好！這是不是說你同意接受國際調查，以判定中共導致冠狀病毒全球大爆發的罪行，並評估損失？
 
-華春瑩：歡迎隨時到中國來，與大街上的任何人交談，享受這種自由。順便問一句，克勞齊艦長寫信挽救幾千人的生命和（幫助）因議論工作條件而被解僱的醫護人員，他因此被撤職，那時候自由和透明又在哪兒呢？
 
-截圖內容：Morgan Ortagus（美國務院發言人）：美國歡迎中國聯合抗擊冠狀病毒疫情的呼籲。我們敦促北京分享所有病毒數據，讓國際團隊調查疫情如何在中國爆發，並且允許其公民言論自由。真正的合作需要透明和切實行動，不是華麗的說辭。
+## **中共幹掉美國的策略：超限戰**
 
-> China (precisely ccp) has been fed by irresponsible globalism, at the expense of their people's freedom and the world's safety. Other countries should think long-term and take action! [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw) [@robert\_spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) [#manufacturing](https://twitter.com/hashtag/manufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [#production](https://twitter.com/hashtag/production?src=hash&amp;ref_src=twsrc%5Etfw) [#sovereignty](https://twitter.com/hashtag/sovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2KLVUIi4Aj](https://t.co/2KLVUIi4Aj)
-> — Nicolas Carvajal (@NicolasPCG) [April 9, 2020](https://twitter.com/NicolasPCG/status/1248226545375870977?ref_src=twsrc%5Etfw)
+班农先生采访Jack Posobiec时问：“中共幹掉美國的策略是什麼？”
 
-斯伯丁將軍轉推：
+Jack Posobiec回答：1999年，兩個CCP人民解放軍上校，寫了一本叫做《超限戰》的書。這本書正好對應了中國的崛起和在世界舞台上的突破。評估了世界秩序，特別是西方國家，尤其是美國，他們認為美國是所謂的世界秩序之首。他們估計，由於美國具有更先進的技術，在軍事和軍事裝備方面的絕對優勢，他們不可能在軍事上與美國抗衡。
 
-Nicolas Carvajal：不負責任的全球化讓中國（確切的說是中共）得到了壯大，代價是其人民的自由和世界安全。其他國家應該做長遠打算並採取行動！
+然而，他們注意到美國有兩項弱點：第一個是經濟方面；第二個是國際組織方面。他們有目的地針對這兩方面，這是那兩個上校所設計的，特別是從美國內部瓦解，動搖美國的經濟基礎。
 
-彭博社：日本為其創紀錄的經濟刺激計劃撥款22億美元，幫助本國製造商將生產撤出中國。
+他們的計畫是移走我們的基礎生產和供應鏈，通過法律方法顛覆和針對國際組織。“牽著美國的鼻子”把美國牢牢拴在與某些組織簽訂的條約上，尤其是一些不利於美國，只利於他們的協定上。
 
-> NO MORE SPECIAL RELATIONSHIP!!! [https://t.co/ghRFM20Odu](https://t.co/ghRFM20Odu)
-> — General Spalding (@robert\_spalding) [April 9, 2020](https://twitter.com/robert_spalding/status/1248274648854417409?ref_src=twsrc%5Etfw)
 
-斯伯丁將軍：結束（與香港的）特殊（貿易）關係！ ！ ！
 
-Jan Jekielek：推薦觀看！正值冠狀病毒疫情時期，我們不要忘記香港人持續的困境和不斷的抗爭。這遠未結束，可以肯定，中共將試圖利用世界對CCP病毒的關注來藉機加強它對香港的控制。
+## **中共對美国政界的渗透**
 
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Executive Branch agencies just unanimously recommended the FCC revoke and terminate China Telecom’s Services in the US 
-> 
-> China Telecom is the U.S. subsidiary of a People’s Republic of China (PRC) state-owned telecommunications company. – Per DOJ
-> — Bowen Xiao (@BowenXiao\_) [April 9, 2020](https://twitter.com/BowenXiao_/status/1248329631977144324?ref_src=twsrc%5Etfw)
+班农先生：作為前海軍情報官，你會說中文，你在這一領域裡非常敏銳，可以明辨是非。你会怎樣讓美國人開始關注中共是如何對美國構成威脅的？
 
-斯伯丁將軍轉推：
+Jack Posobiec ：我想你們已經說出了重點。一位美國州長说中共政府是值得讚美的，並感謝他們的捐贈，感謝他們送來的物資。
 
-Bowen Xiao：重磅：剛剛，各個行政分支機構（美國政府各行政部門，編者按）一致建議聯邦通信委員會（FCC）吊銷並終止中國電信在美國的各項服務。中國電信是中國國有電信公司在美國的子公司——據美國司法部
+但我們必須明白，中共才是第一個需要為這整個事件負責的人。因為他們的瀆職，因為他們錯誤的處理，因為他們禁言了吹哨人，因為他們不讓世界醫學專家和美國的醫學專家在早期涉入搞清楚當時發生的事情。現在我們知道，他們早在去年11月就知道他們有問題。
 
-> I fought this while at the White House. It's a fact. "Today, however, VOA too often speaks for America’s adversaries—not its citizens." [https://t.co/6YuP9wsArb](https://t.co/6YuP9wsArb)
-> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248415960140107776?ref_src=twsrc%5Etfw)
+他們不讓人們介入，壓制了整個事件。然後現在他們掉過頭來讓我們美國的政治領袖們感谢，那幾個我們都很熟悉的人，每天晚上都能看到他們在感謝ＣＣＰ，說ＣＣＰ是值得讚美的。這就是目前在美国上演的真實故事。
 
-斯伯丁將軍：我在白宮時曾為之爭取。這是事實。 “然而現在，美國之音太多次地不顧本國公民，為美國的對手說話。”（資料來源：白宮官網每日新聞事件匯總）
+我們用“軟實力”這個詞，我不知道“軟實力”這個詞夠不夠份量，因為這是他們的主要力量，就是影響，中共對我們領導人的影響。
 
-> "If you truly wish the Chinese people well, you should fulfil your duty of promoting democracy and rule of law and telling the truth….That will be ten thousand times better than this insincere New Year’s greeting!” [https://t.co/CmxmeCiEc8](https://t.co/CmxmeCiEc8)
-> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248420043982925824?ref_src=twsrc%5Etfw)
+## **靠入党控制精英**
 
-斯伯丁將軍：“如果你們真的希望中國人民幸福，就應該完成你們的任務，推廣民主和法治…那比這種虛偽的拜年好過一萬倍！”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005207/image0.png-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005019/ccpvirus.png)
+班农：我知道你研究中共的組織結構。絕大多數人沒有意識到14億中國人中，只有9000萬中共黨員。其中只有5000到10000人是作決策的，最核心的大概只有500 人。獨裁中共是如何實現他們對中國人民壓迫的？
+
+Jack Posobiec：這個才是最根本的問題。假如你是被認為有天賦的，或者有做生意的頭腦，或者在學術方面有造詣，中共會來找你。他們會說，如果你想成功，不管你想在做生意方面、學術方面、軍事方面，還是想從政，你必須入黨。你入了黨，就上了快車道。
+
+任何人不同意或者拒絕，就会被推到一邊，靠邊站。不允許你發聲，不會有你的一席之地。在中国只能有一個聲音，就是黨的聲音。
+
+
+
+## **零号病人可能是武汉研究员**
+
+Bill Gertz在接受班农先生的采访时说：這週我有一個大故事，關於中共國發現了2000種病毒，包括致命的蝙蝠病毒。今天剛剛發佈在《華盛頓時報》網站上的那篇文章有一些新信息，這些信息可能會識別0號患者。當然，這是揭開該病毒起源的真正關鍵。
+
+這個故事的開始是美國政府和研究委員會正在積極致力於發現該病毒的起源。這是必須的，以便能夠找到疫苗並緩解所有相關的問題。中共從第一天開始就已經屏蔽了信息，並銷毀了證據。他們最初答應將樣品給美國政府的研究實驗室，然後予以否認。但是，新的證據實際上是由中國的一個博客族所提供的，該作者進行了一些開放源資料研究，發現一名患者，武漢病毒學研究所的一名年輕研究員，感染了該病毒，是第一位感染該病毒的患者，最終死了，就在她的葬禮上病毒開始散播出來。
+
+Bill Gertz说，武汉病毒研究所否認這名婦女是第一個患者，中共國的每個人都在尋找她，而她卻無處可尋。她在武汉病毒研究所網站上的照片和個人簡介也消失了。這就是有力證據，這可能是全球大流行的起始點。
+
+
+
+編輯：【喜馬拉雅戰鷹團】
+
 0
