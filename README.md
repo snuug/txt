@@ -31,6 +31,11 @@
 [https://www.guo.media/posts/277529](https://www.guo.media/posts/277529) `2020-04-10T09:10:15`
 ##
 
+**milesguo** 多家中概股被做空共产党的造假本性终得报应<br>https://gnews.org/zh-hans/167522/
+
+[https://www.guo.media/posts/277528](https://www.guo.media/posts/277528) `2020-04-10T14:25:12`
+##
+
 **milesguo** <br>银行挤兑才刚刚开始，存款保险并非保障<br>https://gnews.org/zh-hans/167498/
 
 [https://www.guo.media/posts/277527](https://www.guo.media/posts/277527) `2020-04-10T09:10:16`
