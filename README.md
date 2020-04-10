@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/277532](https://www.guo.media/posts/277532) `2020-04-10T09:10:11`
 ##
 
+**milesguo** War Room111：国际社会需要正式调查病毒起源<br>https://gnews.org/zh-hans/167633/
+
+[https://www.guo.media/posts/277531](https://www.guo.media/posts/277531) `2020-04-10T09:25:30`
+##
+
 **milesguo** 以史为鉴之可怕的经济大萧条，无人可逃！<br>https://gnews.org/zh-hans/167600/
 
 [https://www.guo.media/posts/277530](https://www.guo.media/posts/277530) `2020-04-10T09:10:13`
