@@ -46,6 +46,11 @@
 [https://www.guo.media/posts/277511](https://www.guo.media/posts/277511) `2020-04-10T04:55:16`
 ##
 
+**milesguo** 2020年4月9日郭文贵先生直播摘要<br>https://gnews.org/zh-hans/167759/
+
+[https://www.guo.media/posts/277510](https://www.guo.media/posts/277510) `2020-04-10T06:25:15`
+##
+
 **milesguo** War Room111：国际社会需要正式调查病毒起源<br>https://gnews.org/zh-hans/167633/
 
 [https://www.guo.media/posts/277509](https://www.guo.media/posts/277509) `2020-04-10T05:10:14`
