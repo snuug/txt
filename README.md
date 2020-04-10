@@ -11,6 +11,11 @@
 
 
 
+**milesguo** GTV投资火爆！正义的凝聚力！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/167952/
+
+[https://www.guo.media/posts/277519](https://www.guo.media/posts/277519) `2020-04-10T05:10:10`
+##
+
 **milesguo** 人类正在用生命品尝“记心格”名牌血酒!<br>https://gnews.org/zh-hans/167951/
 
 [https://www.guo.media/posts/277516](https://www.guo.media/posts/277516) `2020-04-10T04:55:11`
@@ -21,6 +26,11 @@
 [https://www.guo.media/posts/277515](https://www.guo.media/posts/277515) `2020-04-10T04:55:13`
 ##
 
+**milesguo** 论中共“精神病毒”对世界的危害<br>https://gnews.org/zh-hans/167923/
+
+[https://www.guo.media/posts/277514](https://www.guo.media/posts/277514) `2020-04-10T05:10:12`
+##
+
 **milesguo** <br>班农战斗室110：恢复商业吗？<br>https://gnews.org/zh-hans/167926/
 
 [https://www.guo.media/posts/277513](https://www.guo.media/posts/277513) `2020-04-10T04:55:15`
@@ -29,6 +39,16 @@
 **milesguo** 美国之音花纳税人的钱为专制政权代言<br>https://gnews.org/zh-hans/167840/
 
 [https://www.guo.media/posts/277511](https://www.guo.media/posts/277511) `2020-04-10T04:55:16`
+##
+
+**milesguo** War Room111：国际社会需要正式调查病毒起源<br>https://gnews.org/zh-hans/167633/
+
+[https://www.guo.media/posts/277509](https://www.guo.media/posts/277509) `2020-04-10T05:10:14`
+##
+
+**milesguo** 广播：2020/4/9 郭文贵先生GTV直播 爆料革命要让战友们过上体面的生活！<br>https://gnews.org/zh-hans/167368/
+
+[https://www.guo.media/posts/277507](https://www.guo.media/posts/277507) `2020-04-10T05:10:16`
 ##
 
 **milesguo** 美国超级大国的力量 – 30 天拯救美国<br>https://gnews.org/zh-hans/167345/
