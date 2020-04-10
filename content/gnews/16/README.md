@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德‘中共病毒’死亡例 最小26歲
-`2020-04-10 08:58 GM09` [轉載自GNews](https://gnews.org/zh-hant/168483/)
+## 中共病毒影響 日本首個航站樓關閉
+`2020-04-10 09:16 GM09` [轉載自GNews](https://gnews.org/zh-hant/168499/)
 
-作者：多國語言組
+作者：多國語言組沖繩·下地島機場所有航班停運【下地島=宮古島】受新冠感染擴大影響，下地島機場於9日發表聲明，從本月10日開始至5月6日3條航線將全部停運。伴隨著停運，“宮島下地島航站樓”也暫時關閉。國土交通省介紹，受中共病毒（AKA新冠）影響全路線停運，日本國內首個關閉的機場航站樓。
 
-據德媒引用羅伯特科赫研究所RKI的報導，研究了死者年齡分佈。其中中共病毒最年輕的受害者為26歲，最年長的105歲。
-
-人群中致死率如果按性別劃分，則女性為61%，男性為39%。（感染率則是女性49%，男性51%，近乎相當。）截止4月9日刊文，德國已有2107人死於中共病毒。其中有年齡數據的：60歲以下102人，60至69歲185人，70至79歲508人，80至89歲968人，90歲及以上340人。
-
-原文來源 [https://www.deutschlandfunk.de/covid-19-rki-corona-tote-in-deutschland-derzeit-im.1939.de.html?drn:news\_id=1119254](https://www.deutschlandfunk.de/covid-19-rki-corona-tote-in-deutschland-derzeit-im.1939.de.html?drn:news_id=1119254)
-
+來源： [https://www.okinawatimes.co.jp/articles/-/558412](https://www.okinawatimes.co.jp/articles/-/558412)
+ 
 0
