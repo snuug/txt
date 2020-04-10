@@ -71,6 +71,11 @@
 [https://www.guo.media/posts/277503](https://www.guo.media/posts/277503) `2020-04-10T04:25:18`
 ##
 
+**milesguo** 郭文贵先生：武汉因疫情死的人是天文数字<br>https://gnews.org/zh-hans/167246/
+
+[https://www.guo.media/posts/277502](https://www.guo.media/posts/277502) `2020-04-10T05:25:13`
+##
+
 **milesguo** 白宫：我们正在重新评估对世卫组织的资助<br>https://gnews.org/zh-hans/167261/
 
 [https://www.guo.media/posts/277501](https://www.guo.media/posts/277501) `2020-04-10T04:25:20`
