@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/277527](https://www.guo.media/posts/277527) `2020-04-10T09:10:16`
 ##
 
+**milesguo** 华尔街基辛格主义和中共独裁政权埋下的恶果<br>https://gnews.org/zh-hans/167481/
+
+[https://www.guo.media/posts/277526](https://www.guo.media/posts/277526) `2020-04-10T10:10:11`
+##
+
 **milesguo** 首次汇算清缴个人所得税启用共产党你是穷疯了吗<br>https://gnews.org/zh-hans/167448/
 
 [https://www.guo.media/posts/277525](https://www.guo.media/posts/277525) `2020-04-10T09:10:18`
