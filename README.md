@@ -36,6 +36,11 @@
 [https://www.guo.media/posts/277513](https://www.guo.media/posts/277513) `2020-04-10T04:55:15`
 ##
 
+**milesguo** 中共屠戮 阴啼补刀 冷漠不死 光明不到<br>https://gnews.org/zh-hans/167897/
+
+[https://www.guo.media/posts/277512](https://www.guo.media/posts/277512) `2020-04-10T05:40:12`
+##
+
 **milesguo** 美国之音花纳税人的钱为专制政权代言<br>https://gnews.org/zh-hans/167840/
 
 [https://www.guo.media/posts/277511](https://www.guo.media/posts/277511) `2020-04-10T04:55:16`
@@ -44,6 +49,11 @@
 **milesguo** War Room111：国际社会需要正式调查病毒起源<br>https://gnews.org/zh-hans/167633/
 
 [https://www.guo.media/posts/277509](https://www.guo.media/posts/277509) `2020-04-10T05:10:14`
+##
+
+**milesguo** 以史为鉴之可怕的经济大萧条，无人可逃！<br>https://gnews.org/zh-hans/167600/
+
+[https://www.guo.media/posts/277508](https://www.guo.media/posts/277508) `2020-04-10T05:40:14`
 ##
 
 **milesguo** 广播：2020/4/9 郭文贵先生GTV直播 爆料革命要让战友们过上体面的生活！<br>https://gnews.org/zh-hans/167368/
