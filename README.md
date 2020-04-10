@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Where are the 13-million masks produced on public funds? Hong Kong Government Refuses to Answer<br>https://gnews.org/166479/
+
+[https://www.guo.media/posts/277494](https://www.guo.media/posts/277494) `2020-04-10T01:40:22`
+##
+
 **milesguo** The CCP uses “Hong Kong” as white gloves<br>https://gnews.org/166484/
 
 [https://www.guo.media/posts/277492](https://www.guo.media/posts/277492) `2020-04-09T23:55:14`
