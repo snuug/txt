@@ -11,6 +11,11 @@
 
 
 
+**milesguo** Images of China-Pakistan naval exercise in January<br>https://gnews.org/167167/
+
+[https://www.guo.media/posts/277495](https://www.guo.media/posts/277495) `2020-04-10T02:25:12`
+##
+
 **milesguo** Where are the 13-million masks produced on public funds? Hong Kong Government Refuses to Answer<br>https://gnews.org/166479/
 
 [https://www.guo.media/posts/277494](https://www.guo.media/posts/277494) `2020-04-10T01:40:22`
