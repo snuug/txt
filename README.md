@@ -11,6 +11,31 @@
 
 
 
+**milesguo** 美国超级大国的力量 – 30 天拯救美国<br>https://gnews.org/zh-hans/167345/
+
+[https://www.guo.media/posts/277506](https://www.guo.media/posts/277506) `2020-04-10T04:25:15`
+##
+
+**milesguo** 今天，经历受难周的世界<br>https://gnews.org/zh-hans/167316/
+
+[https://www.guo.media/posts/277504](https://www.guo.media/posts/277504) `2020-04-10T04:25:16`
+##
+
+**milesguo** 中共在疫情上从来没有说过真话<br>https://gnews.org/zh-hans/167272/
+
+[https://www.guo.media/posts/277503](https://www.guo.media/posts/277503) `2020-04-10T04:25:18`
+##
+
+**milesguo** 白宫：我们正在重新评估对世卫组织的资助<br>https://gnews.org/zh-hans/167261/
+
+[https://www.guo.media/posts/277501](https://www.guo.media/posts/277501) `2020-04-10T04:25:20`
+##
+
+**milesguo** 美国政府对中共在疫情中的表现感到十分愤怒<br>https://gnews.org/zh-hans/167205/
+
+[https://www.guo.media/posts/277499](https://www.guo.media/posts/277499) `2020-04-10T04:25:21`
+##
+
 **milesguo** Images of China-Pakistan naval exercise in January<br>https://gnews.org/167167/
 
 [https://www.guo.media/posts/277495](https://www.guo.media/posts/277495) `2020-04-10T02:25:12`
