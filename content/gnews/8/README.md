@@ -1,41 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月9日郭文貴先生直播摘要
-`2020-04-09 22:30 GM10` [轉載自GNews](https://gnews.org/zh-hant/167789/)
+## 4月9日美國政要推文選譯
+`2020-04-10 00:52 GM65` [轉載自GNews](https://gnews.org/zh-hant/168016/)
 
-戰友之家•摘要組
+> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pushed misinformation from China and refused to acknowledge the severity of communism’s virus — which benefited Beijing at the expense of the world.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 9, 2020](https://twitter.com/MarshaBlackburn/status/1248317269421232130?ref_src=twsrc%5Etfw)
 
-01:30-GTV測試，電腦版看GTV穩定。今天把一張照片（臨死之人讓家人給他看習近平的介紹書籍）發到了華盛頓爆料革命作戰中心，歐洲，迅速地作出反應的是歐洲和華盛頓作戰中心。西方國家看不懂照片的意思，是老人臨死之前讓孩子給他看一下習主席的中國夢，窮人擺攤後面掛著的也是中國夢。
+參議員Marsha Blackburn：世衛組織推廣了來自中國的錯誤信息，並且拒絕承認共產主義病毒的嚴重性——這讓世界付出代價而北京從中獲益。
 
-08:02-整個中國在宣傳美國農民把糧食、牛奶倒掉，跟1927、25、26年一樣，美國出現大蕭條的時候，沒人買了牛奶倒河裡了，把蓋房子的梁都當火燒了，原因就是沒人花錢了，銀行貸不出去。越貸不了錢越沒人貸，滯脹，通漲。美國現在又開始燒糧食了，原因是不賣給中國人，讓中國人餓死。他們就是這樣來拉仇恨的，說這都是川普總統乾的，美國人太壞了
+> Ted Cruz: ‘Disgraceful‘ Phoenix TV Allowed into the White House [https://t.co/GIs4m4BPCt](https://t.co/GIs4m4BPCt) via [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw)
+> — Senator Ted Cruz (@SenTedCruz) [April 9, 2020](https://twitter.com/SenTedCruz/status/1248317626599772160?ref_src=twsrc%5Etfw)
 
-09:22-華盛頓作戰中心有人問，吳徵來美國乾啥來了？文貴先生解釋吳徵、馬雲來美國幫助滅疫，大家竪中指做了個手勢，文貴先生告訴他們這些小子是乾啥的，大家立馬明白。
+參議員Ted Cruz：“不光彩的”鳳凰衛視被准許進入了白宮（文章來源：Breitbart新聞網）
 
-09:52-大家問文貴誰是美國人的叛徒給共產黨通風報信？那太多啦
+> USA should do the same [#AllinonAmerica](https://twitter.com/hashtag/AllinonAmerica?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/s9z88MBh5H](https://t.co/s9z88MBh5H)
+> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248244759514058752?ref_src=twsrc%5Etfw)
 
-在視頻時，歐洲的特別是德國的很激動，要求視頻。
+參議員Josh Hawley：美國也應該這麼做
 
-10:32-第二次世界大戰，當年希特勒要乾掉共產主義，共產主義是猶太人家，所以他要乾掉猶太人，乾掉共產主義就是為乾掉猶太人，馬克思、恩格斯、列寧等都是猶太人，結果殺了幾百萬猶太人。現在共產黨要利用共產主義殺掉美國毀掉世界，中國夢成了世界的惡夢！
+《南華早報》：日本著手資助其製造商撤出中國
 
-11:18-三個代表
+> Good! Does this mean you consent to an international investigation to determine [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party culpability for [#COVID19Pandemic](https://twitter.com/hashtag/COVID19Pandemic?src=hash&amp;ref_src=twsrc%5Etfw) and to assess damages? [https://t.co/XrJ17M1HH3](https://t.co/XrJ17M1HH3)
+> — Josh Hawley (@HawleyMO) [April 9, 2020](https://twitter.com/HawleyMO/status/1248273020646539272?ref_src=twsrc%5Etfw)
 
-1，第一個代表：武漢P4研究所代表了我們的軍事力量，它叫做CCP Virus，（中共病毒）
+參議員Josh Hawley：很好！這是不是說你同意接受國際調查，以判定中共導致冠狀病毒全球大爆發的罪行，並評估損失？
 
-2，第二個代表：made in china masks（中國製造的口罩）代表了我們的實力
+華春瑩：歡迎隨時到中國來，與大街上的任何人交談，享受這種自由。順便問一句，克勞齊艦長寫信挽救幾千人的生命和（幫助）因議論工作條件而被解僱的醫護人員，他因此被撤職，那時候自由和透明又在哪兒呢？
 
-3，第三個代表：made in china RMB就是CCP RMB，就是黨幣。共產黨以共產主義綁架14億中國人民，然後消滅全世界。
+截圖內容：Morgan Ortagus（美國務院發言人）：美國歡迎中國聯合抗擊冠狀病毒疫情的呼籲。我們敦促北京分享所有病毒數據，讓國際團隊調查疫情如何在中國爆發，並且允許其公民言論自由。真正的合作需要透明和切實行動，不是華麗的說辭。
 
-12:00–德國人通信為啥沒有5G。德國多個政府高官被感染了，沒有報道。昨天文貴給紐約醫院捐贈物資，他們問文貴現在最危險的是什麼。文貴提醒：1·很多死亡可能是病毒致死的，但是沒有檢測，處理屍體的人很危險；2·小心無病症帶病者，及寵物帶病毒者，以及有意在公共場合傳播者。這些很可能就是共黨的人有意做的，如Bruno Wu和Jack Ma，還有法拉盛的人，他們家人在國內被威脅。
+> China (precisely ccp) has been fed by irresponsible globalism, at the expense of their people's freedom and the world's safety. Other countries should think long-term and take action! [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw) [@robert\_spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) [#manufacturing](https://twitter.com/hashtag/manufacturing?src=hash&amp;ref_src=twsrc%5Etfw) [#production](https://twitter.com/hashtag/production?src=hash&amp;ref_src=twsrc%5Etfw) [#sovereignty](https://twitter.com/hashtag/sovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2KLVUIi4Aj](https://t.co/2KLVUIi4Aj)
+> — Nicolas Carvajal (@NicolasPCG) [April 9, 2020](https://twitter.com/NicolasPCG/status/1248226545375870977?ref_src=twsrc%5Etfw)
 
-14:40–中國人快死了還要學習中國夢，宣傳是美國投毒，還宣傳美國把糧食銷毀等來激起中國人仇恨美國。這些和德國二戰時候宣傳如出一轍。
+斯伯丁將軍轉推：
 
-16:30–共產主義準備跟美國開戰，在和這個人聯繫前，兩個香港警察要求和文貴上節目，文貴擔心他們的安危，而且香港人付出太多代價。他們稱不是警察乾的，他們威脅警察家人，還要用完後毀掉他們。共黨用完必然滅掉他們，包括林鄭月娥。警察都看文貴爆料革命，他們偷偷放了多個戰友。文貴罵英國人自私懦弱，不要臉出賣香港，現在受到懲罰了，文貴三年提供大量證據，英鎊堅挺是香港人支持的，要不早垮了。支持香港就是拯救自己。香港醫學超過英國，為啥你們英國不去幫香港人？
+Nicolas Carvajal：不負責任的全球化讓中國（確切的說是中共）得到了壯大，代價是其人民的自由和世界安全。其他國家應該做長遠打算並採取行動！
 
-20:35–文貴兩年前就給十幾個國家出了一本書，2018年5月出的。文貴告訴他們如果國家想強大，出台政策無條件相信接收香港人。巴西如果願意接收香港人三年就可以到達發達國家。英國也一樣，如果接收香港人GDP可以達到7-8萬億美元。現在他們都來找文貴說你說的太對了，但是晚了。
+彭博社：日本為其創紀錄的經濟刺激計劃撥款22億美元，幫助本國製造商將生產撤出中國。
 
-更多詳情請點擊：https://youtu.be/a9Q6r\_HMDL0
+> NO MORE SPECIAL RELATIONSHIP!!! [https://t.co/ghRFM20Odu](https://t.co/ghRFM20Odu)
+> — General Spalding (@robert\_spalding) [April 9, 2020](https://twitter.com/robert_spalding/status/1248274648854417409?ref_src=twsrc%5Etfw)
 
+斯伯丁將軍：結束（與香港的）特殊（貿易）關係！ ！ ！
 
+Jan Jekielek：推薦觀看！正值冠狀病毒疫情時期，我們不要忘記香港人持續的困境和不斷的抗爭。這遠未結束，可以肯定，中共將試圖利用世界對CCP病毒的關注來藉機加強它對香港的控制。
 
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Executive Branch agencies just unanimously recommended the FCC revoke and terminate China Telecom’s Services in the US 
+> 
+> China Telecom is the U.S. subsidiary of a People’s Republic of China (PRC) state-owned telecommunications company. – Per DOJ
+> — Bowen Xiao (@BowenXiao\_) [April 9, 2020](https://twitter.com/BowenXiao_/status/1248329631977144324?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+Bowen Xiao：重磅：剛剛，各個行政分支機構（美國政府各行政部門，編者按）一致建議聯邦通信委員會（FCC）吊銷並終止中國電信在美國的各項服務。中國電信是中國國有電信公司在美國的子公司——據美國司法部
+
+> I fought this while at the White House. It's a fact. "Today, however, VOA too often speaks for America’s adversaries—not its citizens." [https://t.co/6YuP9wsArb](https://t.co/6YuP9wsArb)
+> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248415960140107776?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：我在白宮時曾為之爭取。這是事實。 “然而現在，美國之音太多次地不顧本國公民，為美國的對手說話。”（資料來源：白宮官網每日新聞事件匯總）
+
+> "If you truly wish the Chinese people well, you should fulfil your duty of promoting democracy and rule of law and telling the truth….That will be ten thousand times better than this insincere New Year’s greeting!” [https://t.co/CmxmeCiEc8](https://t.co/CmxmeCiEc8)
+> — General Spalding (@robert\_spalding) [April 10, 2020](https://twitter.com/robert_spalding/status/1248420043982925824?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“如果你們真的希望中國人民幸福，就應該完成你們的任務，推廣民主和法治…那比這種虛偽的拜年好過一萬倍！”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005207/image0.png-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005019/ccpvirus.png)
 0

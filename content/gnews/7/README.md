@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國之音花納稅人的錢為專制政權代言
-`2020-04-09 23:17 GM31` [轉載自GNews](https://gnews.org/zh-hant/167890/)
+## 【多語言圖文版】4月7日中共病毒疫情要聞快報
+`2020-04-10 01:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168061/)
 
-美國之音是一家由美國納稅人出資的全球新聞網絡。該媒體每年花費大約2億美元，致力於向全世界人民“講述美國的故事”和“清晰而有效地展示美國的政策”。
+[4.7-今日要點-英語版English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10005855/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88English.pdf)
 
-然而，如今的美國之音卻常常為美國的敵對方發聲，而不是美國公民。
+[4.7-每日要點-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011117/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E7%82%B9-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-冠狀病毒大流行也不例外，中國共產黨的隱瞞導致這種致命毒再全世界傳播。
+[4.7-每日要點-韓文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011136/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
 
-記者應本著如實報導的原則，但美國之音刻意放大了北京的宣傳。本週，美國之音聲稱中國對武漢的封鎖是一個成功的“樣板”，被世界上許多國家效仿。隨後更是在推特上傳播共產黨政府慶祝結束隔離的燈光秀表演的視頻。
+[4.7-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011154/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-更糟糕的是，當下美國眾多媒體為中國發聲，美國之音更甚：它以共產黨政府的統計為依據，將中國冠狀病毒的死亡人數與美國進行比較。正如情報專家所指出的，根本沒有辦法核實中國數據的準確性。
+[4.7-每日要點-法語版-français.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011223/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E6%B3%95%E8%AA%9E%E7%89%88-franc%CC%A7ais.pdf.pdf)
 
-有關冠狀病毒的宣傳只是類似事件中的一個例子。去年，美國之音助力伊朗外長扎里夫宣傳威脅美國的言論，並轉發扎里夫發布的俄羅斯反美言論的視頻。
+[4.7-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011347/4.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-美國之音在其使命中寫道：“美國之音將代表美國”。美國之音成立自二戰期間，多年來一直致力於在全球範圍為渴望自由和民主的聽眾推行自由和民主。
+[4.7 -每日要點-俄語版7-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10011344/7-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-如今，美國之音使用著你們的稅金，以代表美國之名，行宣傳喉舌之實。
+[4.7-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10012606/4.7-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf)
 
-*翻譯：【不吃豆的豆豆* 】
 
-出處： [Voice of America spends your money to speak for authoritarian regimes](https://www.whitehouse.gov/1600daily/)
 
 0
