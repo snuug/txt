@@ -11,9 +11,34 @@
 
 
 
+**milesguo** 人类正在用生命品尝“记心格”名牌血酒!<br>https://gnews.org/zh-hans/167951/
+
+[https://www.guo.media/posts/277516](https://www.guo.media/posts/277516) `2020-04-10T04:55:11`
+##
+
+**milesguo** 中共通过病毒“强奸”全世界！<br>https://gnews.org/zh-hans/167724/
+
+[https://www.guo.media/posts/277515](https://www.guo.media/posts/277515) `2020-04-10T04:55:13`
+##
+
+**milesguo** <br>班农战斗室110：恢复商业吗？<br>https://gnews.org/zh-hans/167926/
+
+[https://www.guo.media/posts/277513](https://www.guo.media/posts/277513) `2020-04-10T04:55:15`
+##
+
+**milesguo** 美国之音花纳税人的钱为专制政权代言<br>https://gnews.org/zh-hans/167840/
+
+[https://www.guo.media/posts/277511](https://www.guo.media/posts/277511) `2020-04-10T04:55:16`
+##
+
 **milesguo** 美国超级大国的力量 – 30 天拯救美国<br>https://gnews.org/zh-hans/167345/
 
 [https://www.guo.media/posts/277506](https://www.guo.media/posts/277506) `2020-04-10T04:25:15`
+##
+
+**milesguo** 关于氯喹药物的信息整理和分析<br>https://gnews.org/zh-hans/167328/
+
+[https://www.guo.media/posts/277505](https://www.guo.media/posts/277505) `2020-04-10T04:55:20`
 ##
 
 **milesguo** 今天，经历受难周的世界<br>https://gnews.org/zh-hans/167316/
@@ -29,6 +54,11 @@
 **milesguo** 白宫：我们正在重新评估对世卫组织的资助<br>https://gnews.org/zh-hans/167261/
 
 [https://www.guo.media/posts/277501](https://www.guo.media/posts/277501) `2020-04-10T04:25:20`
+##
+
+**milesguo** 中共只许州官囤粮，不许百姓买米啊！<br>https://gnews.org/zh-hans/167202/
+
+[https://www.guo.media/posts/277500](https://www.guo.media/posts/277500) `2020-04-10T04:55:21`
 ##
 
 **milesguo** 美国政府对中共在疫情中的表现感到十分愤怒<br>https://gnews.org/zh-hans/167205/
