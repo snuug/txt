@@ -11,6 +11,51 @@
 
 
 
+**milesguo** A Los Alamos study shows the R0 value is 6, not between 2 and 3！<br>https://gnews.org/169141/
+
+[https://www.guo.media/posts/277586](https://www.guo.media/posts/277586) `2020-04-11T07:25:12`
+##
+
+**milesguo** US bars Google’s high-speed internet link to Hong Kong<br>https://gnews.org/168708/
+
+[https://www.guo.media/posts/277584](https://www.guo.media/posts/277584) `2020-04-11T07:25:14`
+##
+
+**milesguo** Miles: We offered EU a win-win solution to save HKers, BUT<br>Miles: We offered EU a win-win solution to save HKers, BUT
+
+[https://www.guo.media/posts/277582](https://www.guo.media/posts/277582) `2020-04-11T07:25:16`
+##
+
+**milesguo** War Room: Pandemic Ep 110&111 – Open for Business? & The Viral Origin<br>https://gnews.org/168249/
+
+[https://www.guo.media/posts/277580](https://www.guo.media/posts/277580) `2020-04-11T07:25:18`
+##
+
+**milesguo** TNT Daily : CCP exploits Chinese people after they are turned into ashes<br>https://gnews.org/168114/
+
+[https://www.guo.media/posts/277578](https://www.guo.media/posts/277578) `2020-04-11T07:25:20`
+##
+
+**milesguo** 中共病毒次生灾害发生中，党竟劝大家不要买米！2020/4/10<br>https://gnews.org/zh-hans/169083/
+
+[https://www.guo.media/posts/277576](https://www.guo.media/posts/277576) `2020-04-11T07:25:21`
+##
+
+**milesguo** 4月10日 美国政要推文选译<br>https://gnews.org/zh-hans/169018/
+
+[https://www.guo.media/posts/277574](https://www.guo.media/posts/277574) `2020-04-11T07:25:24`
+##
+
+**milesguo** 拉斯阿莫斯实验室研究表明R0值是6，而不是2到3 !<br>https://gnews.org/zh-hans/168589/
+
+[https://www.guo.media/posts/277573](https://www.guo.media/posts/277573) `2020-04-11T07:25:25`
+##
+
+**milesguo** 疫情下复课！中共赤裸裸的“谋杀”！<br>https://gnews.org/zh-hans/168865/
+
+[https://www.guo.media/posts/277570](https://www.guo.media/posts/277570) `2020-04-11T07:25:26`
+##
+
 **milesguo** 文字版2020年4月8日郭先生GTV直播谈国内疫情<br>https://gnews.org/zh-hans/168793/
 
 [https://www.guo.media/posts/277569](https://www.guo.media/posts/277569) `2020-04-11T05:10:11`
