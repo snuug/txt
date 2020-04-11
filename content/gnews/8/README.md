@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前共產主義國家如何走出傳統能源匱乏的困境，是否對未來中國具有參考價值？
-`2020-04-10 16:27 GM33` [轉載自GNews](https://gnews.org/zh-hant/168745/)
+## 拉斯阿莫斯實驗室研究表明R0值是6，而不是2到3 !
+`2020-04-10 23:12 GM31` [轉載自GNews](https://gnews.org/zh-hant/169017/)
 
-簡介：本片在“石油頂峰”（又稱哈伯特頂點）這一現像中，以蘇聯解體後的古巴作為藍本，從能源依賴共產主義老大哥到整個社會經歷陣痛，走向能源自主從而實現國家主權的真正獨立。本片從教育醫療、運輸，住房、替代能源、食品生產等五大方面講述了前共產主義國家如何走出傳統能源匱乏的困境，對未來中國極具參考價值。中國人必將與爆料革命一起，克服任何困難建立新的中國。
+在[4月9日](https://www.youtube.com/watch?v=oqrvv47d1DY)的白宮每日疫情通報會上，一位記者提到[拉斯阿莫斯國家實驗室的最新研究結果](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)。標誌著病毒傳染力的R0值接近6，而不是此前報導的2到3。這就意味著在無干預的情況下，一個人能感染周圍6個人。 Fauci醫生回答道R0值最大的敵人是隔離，是美國人民的偉大力量和推遲疫情的舉措使R0值從6降低到這麼低。
 
-（由戰友之家譯製）
+延申閱讀：[High Contagiousness and Rapid Spread of Severe Acute Respiratory Syndrome Coronavirus 2](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)
 
+*翻譯：【Michelle】 字幕：【1ia$】*
 
-
-0
+1

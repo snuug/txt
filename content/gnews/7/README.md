@@ -1,53 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共產黨再次啟動房地產基建為經濟核心增長點不作死就不會死
-`2020-04-10 17:13 GM06` [轉載自GNews](https://gnews.org/zh-hant/168772/)
+## 4月10日美國政要推文選譯
+`2020-04-10 23:22 GM65` [轉載自GNews](https://gnews.org/zh-hant/169032/)
 
-作者：文茗
+> If Communist China has banned its citizens from using American social media platforms, why does the regime continue exploiting our platforms to push Chinese propaganda? During the coronavirus pandemic, state-run accounts posted over 3,300 times a day, triple their normal rate.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2020](https://twitter.com/MarshaBlackburn/status/1248654787022856193?ref_src=twsrc%5Etfw)
 
-共產黨政府官網4月9日晚間，發布了《中共中央、國務院關於構建更加完善的要素市場化配置體制機制的意見》（一下統稱意見），表面來看這是中央第一份關於要素市場化配置的文件，實則就是再次以房地產為綱的全國宣言書。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10170405/1-49.png)
-整篇意見通讀放在第一位的就是推進土地要素市場化配置。
+參議員Marsha Blackburn：如果中共國禁止其國民使用美國社交媒體平台，那為什麼該政權一直利用我們的平台推廣中國大外宣？新冠疫情期間，（中共）國有賬號每天發帖超過3300次，是他們平時的三倍多。
 
-1 建立健全城鄉統一的建設用地市場。加快修改完善土地管理法實施條例，完善相關配套制度，制定出台農村集體經營性建設用地入市指導意見。全面推開農村土地徵收制度改革，擴大國有土地有償使用範圍。建立公平合理的集體經營性建設用地入市增值收益分配製度。建立公共利益徵地的相關製度規定。
+《華爾街日報》：中國放出大量有關病毒的消息，來塑造有關冠狀病毒的表述
 
-2 深化產業用地市場化配置改革。健全長期租賃、先租後讓、彈性年期供應、作價出資（入股）等工業用地市場供應體系。在符合國土空間規劃和用途管制要求前提下，調整完善產業用地政策，創新使用方式，推動不同產業用地類型合理轉換，探索增加混合產業用地供給。
+> Allowing Chinese firms to access our telecom network is a threat to Americans’ ability to communicate freely and securely. 
+> 
+> I urge the FCC to heed the recommendation of six U.S. agencies that China Telecom be banned from operating in the United States.
+> 
+>  [https://t.co/DDixbPiiYU](https://t.co/DDixbPiiYU)
+> — Tom Cotton (@SenTomCotton) [April 10, 2020](https://twitter.com/SenTomCotton/status/1248614377839706112?ref_src=twsrc%5Etfw)
 
-3 鼓勵盤活存量建設用地。充分運用市場機制盤活存量土地和低效用地，研究完善促進盤活存量建設用地的稅費制度。以多種方式推進國有企業存量用地盤活利用。深化農村宅基地制度改革試點，深入推進建設用地整理，完善城鄉建設用地增減掛鉤政策，為鄉村振興和城鄉融合發展提供土地要素保障。
+參議員Tom Cotton：允許中國公司訪問我們的電信網絡是對美國人自由和安全通信的威脅。我敦促聯邦通信委員會（FCC）聽從六大美國機構的建議，禁止中國電信在美國運營。
 
-這三條被放在整篇意見的前三條，根據共產黨發文的習慣這就是整篇意見最為重要也是被重視的核心。
+> Look closely. See the man with white hair? That's the head of the Syrian Armed Forces 1st Corps, Luau Ali Ahmad Assad. He's visiting Hezbollah positions in [#Syria](https://twitter.com/hashtag/Syria?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> Our message: We see you. Consider this a warning.
+> 
+> We won't allow Hezbollah to entrench itself militarily in Syria. [pic.twitter.com/vmPtZe1VuC](https://t.co/vmPtZe1VuC)
+> — Israel Defense Forces (@IDF) [April 10, 2020](https://twitter.com/IDF/status/1248558394497282049?ref_src=twsrc%5Etfw)
 
-建設用地說來說去其實都是房地產開髮用地，去年12月23日共產黨的全國人大常委會審議的土地管理法、城市房地產管理法修正案草案，就已刪去了現行土地管理法中關於從事非農業建設使用土地的，必須使用國有土地或徵為國有的原集體土地的規定。還有對土地利用總體規劃確定為工業、商業等經營性用途，並經依法登記的集體建設用地，經營性用途和集體建設用地兩個關鍵詞結合起來，意思就是集體經營性建設用地的使用權將可以轉讓和出租。此次的意見可以說把去年定調的土地改革徹底付諸於實施。
+比爾·格茨先生轉推：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10170526/2-60.jpg)
+以色列國防軍：仔細瞧。看到那個白頭髮的人了嗎？那是敘利亞武裝部隊第一軍首領Luau Ali Ahmad Assad。他正在訪問真主黨位於敘利亞的陣地。我們要傳達的信息：我們看著你呢。把這當做一個警告吧。我們不允許真主黨在敘利亞加強軍事力量。
 
-目前農村的集體建設用地分為宅基地、公益性公共設施用地和集體經營性建設用地。而意見的發布就表示，集體經營性建設用地出讓、租賃、入股，將和國有土地同等入市、同價同權，與此同時農村債基地的改革試點也在如火如荼的進行之中。中共從攻陷大陸之後歷次改革最後被犧牲的全都是我們的農民同胞，這一次改革再次打起了農民的主意。
+> TMW 10AM ET: Steve Bannon hosts a [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) special "Descent Into Hell: Life Under the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)" with:
+> 
+> ▶️Gen. [@Robert\_Spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) 
+> ▶️[@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw)
+> ▶️[@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
+> ▶️[@SimoneGao](https://twitter.com/SimoneGao?ref_src=twsrc%5Etfw)
+> ▶️[@realKyleOlbert](https://twitter.com/realKyleOlbert?ref_src=twsrc%5Etfw) 
+> ▶️Dr. Lin Xiaoxu
+> ▶️[@HKMarkSimon](https://twitter.com/HKMarkSimon?ref_src=twsrc%5Etfw)
+> 
+> Also on [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/AUokEMwJIL](https://t.co/AUokEMwJIL)
+> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 10, 2020](https://twitter.com/WarRoomPandemic/status/1248756477101330432?ref_src=twsrc%5Etfw)
 
-截止19年初，全國共有33個市縣區實施整地1275宗18萬畝；集體經營性建設用地入市地塊1萬余宗，面積9萬餘畝，總價越257億元，收取調節金28.6億元，辦理集體經營性建設用地抵押貸款228宗、338.6億元；騰退出零星閒置宅基地約14萬戶，8.4萬畝，辦理農房抵押貸款5.8萬宗、111億元，入市收益178.1億元。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10170629/3-46.jpg)
-這次意見共產黨目的很明確，通過入市廉價的收購大量的農村集體經營性建設用地，政府拿到了地出售給開發商賺取差價，各級政府財政赤字得到緩解。表面農民也獲得了收益實際土地的失去獲得的補償根本沒有辦法抗擊通脹帶來的衝擊，農民獲得的資金往往又會成為這些入市土地開發樓盤的購買資金。一來一回農民失去了土地，變成了房子，政府拿走了其中70%的土地出讓金和流轉資金。
+比爾·格茨先生轉推：
 
-產業用地是相對產業類型劃分而言的，有第一、二、三產業用地之分，具體還有產業內部結構不同而導致的產業用地差異。中國尤其是以長三角和珠三角地區產業用地供給短缺，尤其是第二產業用地短缺嚴重。
+疫情戰斗室：美東時間明天早上10點：史蒂夫·班農主持疫情戰斗室特別節目“墮入地獄：中共治下的生活”，嘉賓：斯伯丁將軍，Jack Posibiec，比爾·格茨，蕭茗，Ky Olbert，林曉旭博士（音譯Dr. Lin Xiaoxu），Mark Simon。 《大紀元》同步播出。
 
-表面此次產業用地核心談及的是推動不同產業用地類型合理轉換惠及中小企業，實際核心還是盤活企業倒閉後閒置產業用地，尤其是對於新48萬億新基建產業用地保駕護航。
+> “They did this in January but they continue to do it all the way through March & that may be the even more despicable part of it.”—[@thejeremyalters](https://twitter.com/thejeremyalters?ref_src=twsrc%5Etfw), [@BermanLawGroup](https://twitter.com/BermanLawGroup?ref_src=twsrc%5Etfw) spokesperson 
+> 
+> US healthcare workers want [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) held accountable for PPE hoarding. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/n6qdwOcQ22](https://t.co/n6qdwOcQ22)
+> — Jan Jekielek 😷 (@JanJekielek) [April 10, 2020](https://twitter.com/JanJekielek/status/1248586856989589504?ref_src=twsrc%5Etfw)
 
-意見第二部分主要談及的是深化戶籍制度改革。推動超大、特大城市調整完善積分落戶政策，探索推動在長三角、珠三角等城市群率先實現戶籍准入年限同城化累計互認。放開放寬除個別超大城市外的城市落戶限制，試行以經常居住地登記戶口制度和加大人才引進力度。
+斯伯丁將軍轉推：
 
-一個城市的潛力不論房地產、虛擬經濟、製造業和人口是有直接關係的，眼下對於共產黨來說製造業出口幾乎停滯，只剩下房地產這一個還可以維持經濟繼續發展的引擎。
+Jan Jekielek：伯曼律師事務所發言人Jeremy Alters說：“他們一月份這麼做的，一直到三月份還在繼續，這可能是更加卑鄙的行為。”美國醫護工作者要求中共對囤積個人防護設備行為負責。
 
-房地產作為人們居住或工作的場所，最終是與人密切相關的，因此，人口往往是決定一國或地區房地產市場規模及結構的重要因素。人口的增長模式、年齡結構和地域結構等都分別影響著房地產市場的規模和房價的走勢。
-
-共產黨在意見中尤其提出推動放寬長三角、珠三角等城市群率先實現戶籍准入標準，這兩個地區的製造業還有上海、廣州、深圳的房地產對於共產黨來說都是最重要的，這三個地區的衰退對於共產黨來說是致命的。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10170820/4-35.jpg)
-
-共產黨針對這三個地區戶籍政策放寬，目的已經很明確就是要通過新增人口拉動經濟，尤其是房地產的繼續發展。
-
-同樣這次意見中談到加大人才引進力度，不免讓人想起幾年前的各地的搶人大戰，每個城市為了吸引新增的人口保房地產，有些城市把人才標準降低到了中專學歷這個標準。
-
-中國經濟經歷這次CCP病毒洗禮之後，可以準確的說，出口和製造業徹底完蛋了，面對如今這個局面，共產黨不得已又一次拿出了房地產這個“殺手鐧”，放開土地政策，放開人口落戶標準，全部都是為了房地產繼續發展做出的政策調整，當一個國家沒有了實體經濟，只剩房地產這個虛擬經濟的時候，就好比大樓的地基被拆除，倒塌近在眼前。
-
-（文章內容僅代表作者觀點）
-
-0
+大紀元：美國醫療工作者起訴北京在全球囤積醫療資源
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232208/image0.png-2.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232217/WhatsApp_Image_2020-04-10_at_19.32.13-2.jpeg)
+1
