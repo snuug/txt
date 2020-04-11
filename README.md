@@ -41,6 +41,11 @@
 [https://www.guo.media/posts/277582](https://www.guo.media/posts/277582) `2020-04-11T07:25:16`
 ##
 
+**milesguo** SeaMoon: CCP’s Thirdhand News targeting Mr. Trump<br>SeaMoon: CCP’s Thirdhand News targeting Mr. Trump
+
+[https://www.guo.media/posts/277581](https://www.guo.media/posts/277581) `2020-04-11T12:10:12`
+##
+
 **milesguo** War Room: Pandemic Ep 110&111 – Open for Business? & The Viral Origin<br>https://gnews.org/168249/
 
 [https://www.guo.media/posts/277580](https://www.guo.media/posts/277580) `2020-04-11T07:25:18`
