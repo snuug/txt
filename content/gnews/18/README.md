@@ -1,30 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 為什麼德國感染中共病毒的死亡人數相對較低
-`2020-04-10 15:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/168726/)
+## 4月10日美國政要推文選譯
+`2020-04-10 23:22 GM65` [轉載自GNews](https://gnews.org/zh-hant/169032/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10154221/%E4%B8%BA%E4%BB%80%E4%B9%88%E5%BE%B7%E5%9B%BD%E6%84%9F%E6%9F%93%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E7%9A%84%E6%AD%BB%E4%BA%A1%E4%BA%BA%E6%95%B0%E7%9B%B8%E5%AF%B9%E7%9A%84%E8%BE%83%E4%BD%8E.jpg)
-德國有10萬多人感染中共病毒，死亡人數僅約2000人。意大利有13.5萬人感染，死亡17,000人。西班牙有14.6萬人感染，死亡14,000。荷蘭的死亡人數卻與德國大致相同，但是那裡只有大約2萬人被感染，德國的感染人數是荷蘭的五倍。為什麼德國的死亡率如此之低, 且現況相對較好? 有分析給出瞭如下三種解釋:
+> If Communist China has banned its citizens from using American social media platforms, why does the regime continue exploiting our platforms to push Chinese propaganda? During the coronavirus pandemic, state-run accounts posted over 3,300 times a day, triple their normal rate.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2020](https://twitter.com/MarshaBlackburn/status/1248654787022856193?ref_src=twsrc%5Etfw)
 
-1. 在德國被感染者的平均年齡很低
+參議員Marsha Blackburn：如果中共國禁止其國民使用美國社交媒體平台，那為什麼該政權一直利用我們的平台推廣中國大外宣？新冠疫情期間，（中共）國有賬號每天發帖超過3300次，是他們平時的三倍多。
 
-德國感染者的平均年齡低於意大利或西班牙等國，70%的病例年齡在15歲至59歲之間。根據一份國家日報報導，意大利受感染者中有36%的年齡超過70歲，該國的人口老齡化非常嚴重。
+《華爾街日報》：中國放出大量有關病毒的消息，來塑造有關冠狀病毒的表述
 
-2. 德國擁有更好的疾病防治措施
+> Allowing Chinese firms to access our telecom network is a threat to Americans’ ability to communicate freely and securely. 
+> 
+> I urge the FCC to heed the recommendation of six U.S. agencies that China Telecom be banned from operating in the United States.
+> 
+>  [https://t.co/DDixbPiiYU](https://t.co/DDixbPiiYU)
+> — Tom Cotton (@SenTomCotton) [April 10, 2020](https://twitter.com/SenTomCotton/status/1248614377839706112?ref_src=twsrc%5Etfw)
 
-幾個星期以來大量的中共病毒患者使意大利和西班牙的衛生健康系統不堪重負，醫生必須決定讓哪些患者連接呼吸機，讓哪些患者死亡。造成災難性後果的罪責不僅僅是病毒，還因為多年的財政消減讓西班牙的衛生系統正處於瀕臨崩潰的邊緣。實際上西班牙的衛生系統享有良好聲譽，自從2008年的金融危機以來衛生系統變薄弱了，從那時起西班牙已經失去了11%的病床。
+參議員Tom Cotton：允許中國公司訪問我們的電信網絡是對美國人自由和安全通信的威脅。我敦促聯邦通信委員會（FCC）聽從六大美國機構的建議，禁止中國電信在美國運營。
 
-根據歐洲統計局的最新數據，西班牙2008年每10萬居民中有320張病床，2017年僅有297張，20年前甚至有365張。西班牙在歐盟排名中遠遠落後於最前邊的德國，德國擁有800張病床。 2017年西班牙人均醫療保健支出2371歐元，比歐盟平均水平低15%，比德國少將近2000歐元。意大利也因為金融危機進行了縮減開支措施，當時衛生系統降低開支進行了大規模的裁員。 2008年金融危機爆發前，意大利大約有6000萬居民，擁有5000張重症監護病床，之後重症病床又增加了。英國有6600萬居民，擁有4100張重症監護病床。德國有大約8200萬居民，目前有4萬張重症監護病床。中共病毒在意大利開始擴散之時，德國就對各個診所提前製定了緊急計劃，增加了工作人員，推遲了不必要的手術，為中共病毒患者清空床位，不可否認德國贏得了時間。
+> Look closely. See the man with white hair? That's the head of the Syrian Armed Forces 1st Corps, Luau Ali Ahmad Assad. He's visiting Hezbollah positions in [#Syria](https://twitter.com/hashtag/Syria?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> Our message: We see you. Consider this a warning.
+> 
+> We won't allow Hezbollah to entrench itself militarily in Syria. [pic.twitter.com/vmPtZe1VuC](https://t.co/vmPtZe1VuC)
+> — Israel Defense Forces (@IDF) [April 10, 2020](https://twitter.com/IDF/status/1248558394497282049?ref_src=twsrc%5Etfw)
 
-3. 德國有更多的人接受測試
+比爾·格茨先生轉推：
 
-低死亡率與更多接受測試的人數有關，這意味著更多的有輕微症狀或者沒有症狀的感染者要接受測試，這增加了已知病例的數據，通過隔離措施避免造成死亡人數的增加。通常情況下，老年人是被年輕人傳染的，因為年輕人有太多的社交活動很容易被傳染，大多數人感染中共病毒後是無症狀攜帶者。如果有更多的意大利年輕人接受測試，感染的總人數就會增加，病死率也許就不會那麼高了。
+以色列國防軍：仔細瞧。看到那個白頭髮的人了嗎？那是敘利亞武裝部隊第一軍首領Luau Ali Ahmad Assad。他正在訪問真主黨位於敘利亞的陣地。我們要傳達的信息：我們看著你呢。把這當做一個警告吧。我們不允許真主黨在敘利亞加強軍事力量。
 
-最後附加一個解釋，在德國還不完全清楚中共病毒死亡的統計數據，沒有明確的規定用以區分死者是因為中共病毒感染而死還是死於其它疾病且攜帶中共病毒，這主要是因為德國的傳染病和非傳染性疾病研究所建議不屍檢。德國病理學和法醫專業協會迫切需要屍檢，他們認為通過屍檢可以了解中共病毒感染對內臟器官的影響程度以及在進一步檢查中哪些危險因素起作用。德國法律醫師專業協會堅持認為，只有通過屍檢才能明朗化，知道更多的老年人死於中共病毒。意大利，西班牙和法國也在做死後測試中共病毒。意大利反法西斯主義兄弟會的歐洲議會議員喬治•梅洛尼質疑德國的中共病毒死亡率，向歐盟委員會了解“德國是首次發現中共病毒的國家，那裡的人好像對中共病毒造成的後果是免疫的嗎？“梅洛尼要求歐盟進行統一的中共病毒測試標準，呼籲所有27個歐盟國家引入統一標準和協議。
+> TMW 10AM ET: Steve Bannon hosts a [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) special "Descent Into Hell: Life Under the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)" with:
+> 
+> ▶️Gen. [@Robert\_Spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) 
+> ▶️[@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw)
+> ▶️[@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
+> ▶️[@SimoneGao](https://twitter.com/SimoneGao?ref_src=twsrc%5Etfw)
+> ▶️[@realKyleOlbert](https://twitter.com/realKyleOlbert?ref_src=twsrc%5Etfw) 
+> ▶️Dr. Lin Xiaoxu
+> ▶️[@HKMarkSimon](https://twitter.com/HKMarkSimon?ref_src=twsrc%5Etfw)
+> 
+> Also on [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/AUokEMwJIL](https://t.co/AUokEMwJIL)
+> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 10, 2020](https://twitter.com/WarRoomPandemic/status/1248756477101330432?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://www.tagesspiegel.de/wissen/drei-erklaerungsversuche-fuer-erstaunliche-corona-zahlen-warum-die-zahl-der-toten-in-deutschland-vergleichsweise-niedrig-ist/25726578.html)
+比爾·格茨先生轉推：
 
-翻譯報道：文儀
+疫情戰斗室：美東時間明天早上10點：史蒂夫·班農主持疫情戰斗室特別節目“墮入地獄：中共治下的生活”，嘉賓：斯伯丁將軍，Jack Posibiec，比爾·格茨，蕭茗，Ky Olbert，林曉旭博士（音譯Dr. Lin Xiaoxu），Mark Simon。 《大紀元》同步播出。
 
-0
+> “They did this in January but they continue to do it all the way through March & that may be the even more despicable part of it.”—[@thejeremyalters](https://twitter.com/thejeremyalters?ref_src=twsrc%5Etfw), [@BermanLawGroup](https://twitter.com/BermanLawGroup?ref_src=twsrc%5Etfw) spokesperson 
+> 
+> US healthcare workers want [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) held accountable for PPE hoarding. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/n6qdwOcQ22](https://t.co/n6qdwOcQ22)
+> — Jan Jekielek 😷 (@JanJekielek) [April 10, 2020](https://twitter.com/JanJekielek/status/1248586856989589504?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍轉推：
+
+Jan Jekielek：伯曼律師事務所發言人Jeremy Alters說：“他們一月份這麼做的，一直到三月份還在繼續，這可能是更加卑鄙的行為。”美國醫護工作者要求中共對囤積個人防護設備行為負責。
+
+大紀元：美國醫療工作者起訴北京在全球囤積醫療資源
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232208/image0.png-2.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232217/WhatsApp_Image_2020-04-10_at_19.32.13-2.jpeg)
+1

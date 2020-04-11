@@ -1,62 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月10日美國政要推文選譯
-`2020-04-10 23:22 GM65` [轉載自GNews](https://gnews.org/zh-hant/169032/)
+## 登錄Zoom後的補救辦法
+`2020-04-11 11:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/169219/)
 
-> If Communist China has banned its citizens from using American social media platforms, why does the regime continue exploiting our platforms to push Chinese propaganda? During the coronavirus pandemic, state-run accounts posted over 3,300 times a day, triple their normal rate.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2020](https://twitter.com/MarshaBlackburn/status/1248654787022856193?ref_src=twsrc%5Etfw)
+**作者：Mr. J**
 
-參議員Marsha Blackburn：如果中共國禁止其國民使用美國社交媒體平台，那為什麼該政權一直利用我們的平台推廣中國大外宣？新冠疫情期間，（中共）國有賬號每天發帖超過3300次，是他們平時的三倍多。
+很多戰友已經受騙登錄過Zoom，遇到這種情況怎麼處理？現在給出相應的補救辦法。
 
-《華爾街日報》：中國放出大量有關病毒的消息，來塑造有關冠狀病毒的表述
+1 對已經登錄過Zoom的移動設備（手機、平板電腦）的處理辦法： 
+ 1.1 優先選擇棄用，即銷毀、拋棄或封存。 
+ 1.2 如果確認訪問Zoom時無人知道你的真實身份或網絡身份，可以保留設備，但是不能再使用該設備訪問國內網站、海外大外宣網站、推特、臉書、谷歌系服務等，不能再在該設備上安裝微信、支付寶、抖音等中國大型企業的應用，不能攜帶該設備入境中國。 
+ 1.3 如果你是對中共採取過實質性傷害的戰友，請務必選擇棄用！
 
-> Allowing Chinese firms to access our telecom network is a threat to Americans’ ability to communicate freely and securely. 
-> 
-> I urge the FCC to heed the recommendation of six U.S. agencies that China Telecom be banned from operating in the United States.
-> 
->  [https://t.co/DDixbPiiYU](https://t.co/DDixbPiiYU)
-> — Tom Cotton (@SenTomCotton) [April 10, 2020](https://twitter.com/SenTomCotton/status/1248614377839706112?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11112105/image0-83.jpg)
 
-參議員Tom Cotton：允許中國公司訪問我們的電信網絡是對美國人自由和安全通信的威脅。我敦促聯邦通信委員會（FCC）聽從六大美國機構的建議，禁止中國電信在美國運營。
+2 對已經登錄過Zoom的桌面設備（台式機、筆記本電腦）的處理辦法： 
+ 2.1 改變部分硬件，如更換新的硬盤或內存。 
+ 2.2 如果訪問Zoom時使用的瀏覽器是Firefox，可以使用安全組件改變瀏覽器指紋。如果當時使用的是其它瀏覽器，直接棄用，今後改用更安全的Firefox瀏覽器或Brave瀏覽器。一定要避免使用Chrome瀏覽器及同內核的衍生瀏覽器。 
+ 2.3 基於安全防護、阻止跟踪、改變瀏覽器指紋而必須安裝的Firefox安全組件包括且不限於——
 
-> Look closely. See the man with white hair? That's the head of the Syrian Armed Forces 1st Corps, Luau Ali Ahmad Assad. He's visiting Hezbollah positions in [#Syria](https://twitter.com/hashtag/Syria?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> Our message: We see you. Consider this a warning.
-> 
-> We won't allow Hezbollah to entrench itself militarily in Syria. [pic.twitter.com/vmPtZe1VuC](https://t.co/vmPtZe1VuC)
-> — Israel Defense Forces (@IDF) [April 10, 2020](https://twitter.com/IDF/status/1248558394497282049?ref_src=twsrc%5Etfw)
+- Decentraleyes – 阻止來自CDN的跟踪
+- Privacy Badger – 阻止cookie跟踪和跨站調用（需認真配置）
+- User-Agent Switcher – 阻止瀏覽器指紋識別和跟踪（時常變更）
+- uBlock Origin – 多種防護
 
-比爾·格茨先生轉推：
 
-以色列國防軍：仔細瞧。看到那個白頭髮的人了嗎？那是敘利亞武裝部隊第一軍首領Luau Ali Ahmad Assad。他正在訪問真主黨位於敘利亞的陣地。我們要傳達的信息：我們看著你呢。把這當做一個警告吧。我們不允許真主黨在敘利亞加強軍事力量。
+3 海外戰友在滅共實現之前請勿回國！
 
-> TMW 10AM ET: Steve Bannon hosts a [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) special "Descent Into Hell: Life Under the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)" with:
-> 
-> ▶️Gen. [@Robert\_Spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) 
-> ▶️[@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw)
-> ▶️[@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
-> ▶️[@SimoneGao](https://twitter.com/SimoneGao?ref_src=twsrc%5Etfw)
-> ▶️[@realKyleOlbert](https://twitter.com/realKyleOlbert?ref_src=twsrc%5Etfw) 
-> ▶️Dr. Lin Xiaoxu
-> ▶️[@HKMarkSimon](https://twitter.com/HKMarkSimon?ref_src=twsrc%5Etfw)
-> 
-> Also on [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/AUokEMwJIL](https://t.co/AUokEMwJIL)
-> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 10, 2020](https://twitter.com/WarRoomPandemic/status/1248756477101330432?ref_src=twsrc%5Etfw)
+在2020年2月以前，因為訪問Zoom而暴露身份的最大受害群體是爆料革命戰友，儘管目前尚無具體人員損失數字，相信實際人數一定會非常的讓人震驚和傷痛。戰友們一定要互相提醒，不能訪問Zoom！任何拉你去Zoom的人都可以直接視為敵人。請戰友們用最廣泛的傳播來轉告和提醒所有能夠接觸到的戰友以及香港、台灣青年，絕對不可以訪問Zoom，絕對不能相信用各種理由或藉口拉你去Zoom的人！
 
-比爾·格茨先生轉推：
+注：本辦法首次發佈於2020年1月16日，後錄入《戰友信息安全事項》V5.0[JA-20200119]“第八章警報——不能訪問Zoom [JA8-20200119]”之中。
 
-疫情戰斗室：美東時間明天早上10點：史蒂夫·班農主持疫情戰斗室特別節目“墮入地獄：中共治下的生活”，嘉賓：斯伯丁將軍，Jack Posibiec，比爾·格茨，蕭茗，Ky Olbert，林曉旭博士（音譯Dr. Lin Xiaoxu），Mark Simon。 《大紀元》同步播出。
+一切都已經開始！
 
-> “They did this in January but they continue to do it all the way through March & that may be the even more despicable part of it.”—[@thejeremyalters](https://twitter.com/thejeremyalters?ref_src=twsrc%5Etfw), [@BermanLawGroup](https://twitter.com/BermanLawGroup?ref_src=twsrc%5Etfw) spokesperson 
-> 
-> US healthcare workers want [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) held accountable for PPE hoarding. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/n6qdwOcQ22](https://t.co/n6qdwOcQ22)
-> — Jan Jekielek 😷 (@JanJekielek) [April 10, 2020](https://twitter.com/JanJekielek/status/1248586856989589504?ref_src=twsrc%5Etfw)
+（文章內容僅代表作者觀點）
 
-斯伯丁將軍轉推：
-
-Jan Jekielek：伯曼律師事務所發言人Jeremy Alters說：“他們一月份這麼做的，一直到三月份還在繼續，這可能是更加卑鄙的行為。”美國醫護工作者要求中共對囤積個人防護設備行為負責。
-
-大紀元：美國醫療工作者起訴北京在全球囤積醫療資源
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232208/image0.png-2.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232217/WhatsApp_Image_2020-04-10_at_19.32.13-2.jpeg)
-1
+0

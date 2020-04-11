@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拉斯阿莫斯實驗室研究表明R0值是6，而不是2到3 !
-`2020-04-10 23:12 GM31` [轉載自GNews](https://gnews.org/zh-hant/169017/)
+## 川普總統和亨利傑克遜主教的復活節祝福
+`2020-04-11 11:12 GM31` [轉載自GNews](https://gnews.org/zh-hant/169175/)
 
-在[4月9日](https://www.youtube.com/watch?v=oqrvv47d1DY)的白宮每日疫情通報會上，一位記者提到[拉斯阿莫斯國家實驗室的最新研究結果](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)。標誌著病毒傳染力的R0值接近6，而不是此前報導的2到3。這就意味著在無干預的情況下，一個人能感染周圍6個人。 Fauci醫生回答道R0值最大的敵人是隔離，是美國人民的偉大力量和推遲疫情的舉措使R0值從6降低到這麼低。
+在[四月十日](https://www.youtube.com/watch?v=5ooC3v9j27o)週五的耶穌受難日，川普總統在白宮參加了來自馬里蘭州的Harry Jackson主教的禱告會，祝福美國和世界上一共184個國家正在和隱形的敵人征戰的人們。
 
-延申閱讀：[High Contagiousness and Rapid Spread of Severe Acute Respiratory Syndrome Coronavirus 2](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)
+大約3千年以前，先知以賽亞寫過以下的文字:”黑暗籠罩了大地…但是我主從你們之中升起,祂的榮耀要現在你身上…因為我主是你永遠的光”。當我們和這個隱形的敵人征戰的時候，我們重申美國人民信奉禱告的力量，我們感謝偉大的造物主，感謝他賜給我們可得永生的禮物，把我們的信任交到全能的神手裡。我祝每個人都過一個愉快的復活節，我們會歡度那個非常非常特殊的日子，希望那將會是一個美好和充實的週末。
 
-*翻譯：【Michelle】 字幕：【1ia$】*
+*翻译：【Michelle】   校对：【GM31】 字幕：【1ia$】*
 
-1
+0
