@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月10日CCP冠状病毒大流行第77集<br>https://gnews.org/zh-hans/169136/
+
+[https://www.guo.media/posts/277595](https://www.guo.media/posts/277595) `2020-04-11T15:10:12`
+##
+
 **milesguo** CCP Coronavirus Pandemic Episode 77, April 10, 2020<br>https://gnews.org/169150/
 
 [https://www.guo.media/posts/277587](https://www.guo.media/posts/277587) `2020-04-11T11:10:09`
