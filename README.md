@@ -81,6 +81,11 @@
 [https://www.guo.media/posts/277573](https://www.guo.media/posts/277573) `2020-04-11T07:25:25`
 ##
 
+**milesguo** 意大利疫情封锁令延期到5月3日<br>https://gnews.org/zh-hans/168955/
+
+[https://www.guo.media/posts/277572](https://www.guo.media/posts/277572) `2020-04-11T11:55:10`
+##
+
 **milesguo** 疫情下复课！中共赤裸裸的“谋杀”！<br>https://gnews.org/zh-hans/168865/
 
 [https://www.guo.media/posts/277570](https://www.guo.media/posts/277570) `2020-04-11T07:25:26`
@@ -569,150 +574,5 @@
 **milesguo** 钟南山院士团队为追责和赔偿提供数学模型<br>https://gnews.org/zh-hans/163313/
 
 [https://www.guo.media/posts/277287](https://www.guo.media/posts/277287) `2020-04-06T16:40:27`
-##
-
-**milesguo** “灭共者”郭文贵认定中共当下的疯狂和野心，不过是重演升级版的“大跃进”<br>https://gnews.org/zh-hans/162873/
-
-[https://www.guo.media/posts/277273](https://www.guo.media/posts/277273) `2020-04-06T06:55:13`
-##
-
-**milesguo** 2020年4月5日CCP冠状病毒大流行第72集<br>https://gnews.org/zh-hans/163296/
-
-[https://www.guo.media/posts/277272](https://www.guo.media/posts/277272) `2020-04-06T06:55:15`
-##
-
-**milesguo** 香港，香港：我以我血荐轩辕！<br>https://gnews.org/zh-hans/163271/
-
-[https://www.guo.media/posts/277271](https://www.guo.media/posts/277271) `2020-04-06T07:55:29`
-##
-
-**milesguo** 俄罗斯一定会拉上美国一起减产石油<br>https://gnews.org/zh-hans/163266/
-
-[https://www.guo.media/posts/277270](https://www.guo.media/posts/277270) `2020-04-06T06:40:13`
-##
-
-**milesguo** CCP病毒时间线<br>https://gnews.org/zh-hans/163253/
-
-[https://www.guo.media/posts/277269](https://www.guo.media/posts/277269) `2020-04-06T06:40:16`
-##
-
-**milesguo** War Room101：要对这些家伙进行纽伦堡式的审判<br>https://gnews.org/zh-hans/163233/
-
-[https://www.guo.media/posts/277268](https://www.guo.media/posts/277268) `2020-04-06T05:55:30`
-##
-
-**milesguo** 美国政要推文精选 0404<br>https://gnews.org/zh-hans/163175/
-
-[https://www.guo.media/posts/277267](https://www.guo.media/posts/277267) `2020-04-06T05:55:32`
-##
-
-**milesguo** 听郭文贵先生讲中共制造的三次大跃进有感<br>https://gnews.org/zh-hans/163103/
-
-[https://www.guo.media/posts/277266](https://www.guo.media/posts/277266) `2020-04-06T05:55:33`
-##
-
-**milesguo** 斯蒂夫.班农先生周日做客foxnews: 再谈中共必须对当下全球肆虐的CCPvirus负责！<br>https://gnews.org/zh-hans/163083/
-
-[https://www.guo.media/posts/277265](https://www.guo.media/posts/277265) `2020-04-06T05:55:34`
-##
-
-**milesguo** 美国情报官员怀疑中共在中共冠状病毒疫情死亡人数上造假<br>https://gnews.org/zh-hans/162913/
-
-[https://www.guo.media/posts/277264](https://www.guo.media/posts/277264) `2020-04-06T05:55:36`
-##
-
-**milesguo** 前美国司法部长表示是时候解决因中共的撒谎导致全世界灾难的问题了<br>https://gnews.org/zh-hans/162904/
-
-[https://www.guo.media/posts/277263](https://www.guo.media/posts/277263) `2020-04-06T05:55:37`
-##
-
-**milesguo** 2020年4月5日郭文贵先生与Sara连线直播摘要<br>https://gnews.org/zh-hans/162848/
-
-[https://www.guo.media/posts/277259](https://www.guo.media/posts/277259) `2020-04-06T05:55:38`
-##
-
-**milesguo** 时尚面罩（fashion face covering）做起来<br>https://gnews.org/zh-hans/162806/
-
-[https://www.guo.media/posts/277258](https://www.guo.media/posts/277258) `2020-04-06T04:55:21`
-##
-
-**milesguo** 中共开动媒体辟谣的CCP冠状病毒的零号病人黄燕玲到底在哪里<br>https://gnews.org/zh-hans/162754/
-
-[https://www.guo.media/posts/277257](https://www.guo.media/posts/277257) `2020-04-06T05:40:28`
-##
-
-**milesguo** 印尼华人无法回国 航班被共党取消<br>https://gnews.org/zh-hans/162683/
-
-[https://www.guo.media/posts/277255](https://www.guo.media/posts/277255) `2020-04-06T04:55:23`
-##
-
-**milesguo** 英国科学家发明检测共产党病毒的新方法：在出现症状之前就可以确认是否被感染<br>https://gnews.org/zh-hans/162678/
-
-[https://www.guo.media/posts/277254](https://www.guo.media/posts/277254) `2020-04-06T05:40:30`
-##
-
-**milesguo** 东京感染‘中共病毒’新增 单日破百<br>https://gnews.org/zh-hans/162652/
-
-[https://www.guo.media/posts/277253](https://www.guo.media/posts/277253) `2020-04-06T04:55:24`
-##
-
-**milesguo** 美国正式成立康复者血浆项目<br>https://gnews.org/zh-hans/162632/
-
-[https://www.guo.media/posts/277252](https://www.guo.media/posts/277252) `2020-04-06T06:55:17`
-##
-
-**milesguo** 【共产党病毒真相】4月5日视频合集<br>https://gnews.org/zh-hans/162624/
-
-[https://www.guo.media/posts/277251](https://www.guo.media/posts/277251) `2020-04-06T04:55:26`
-##
-
-**milesguo** 最坏时刻还没到来，做好防范勿松懈！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/162604/
-
-[https://www.guo.media/posts/277250](https://www.guo.media/posts/277250) `2020-04-06T05:40:31`
-##
-
-**milesguo** 2020年4月4日世界多种语言CCP病毒疫情文字每日播报<br>https://gnews.org/zh-hans/162552/
-
-[https://www.guo.media/posts/277249](https://www.guo.media/posts/277249) `2020-04-06T04:55:28`
-##
-
-**milesguo** 菩萨心肠 霹雳手段 有感郭文贵先生对一众伪类的拯救与惩戒<br>https://gnews.org/zh-hans/162513/
-
-[https://www.guo.media/posts/277229](https://www.guo.media/posts/277229) `2020-04-05T17:10:14`
-##
-
-**milesguo** 《中共肺炎》女医生超速被拦下盘查 警看证件不罚还给5个N95口罩!<br>https://gnews.org/zh-hans/162522/
-
-[https://www.guo.media/posts/277228](https://www.guo.media/posts/277228) `2020-04-05T17:10:15`
-##
-
-**milesguo** 2020年4月4日CCP冠状病毒大流行第71集<br>https://gnews.org/zh-hans/162470/
-
-[https://www.guo.media/posts/277226](https://www.guo.media/posts/277226) `2020-04-05T17:25:23`
-##
-
-**milesguo** <br>高考真的比你的生命更重要吗？<br>https://gnews.org/zh-hans/162479/
-
-[https://www.guo.media/posts/277225](https://www.guo.media/posts/277225) `2020-04-05T18:10:13`
-##
-
-**milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
-
-[https://www.guo.media/posts/277224](https://www.guo.media/posts/277224) `2020-04-05T17:25:25`
-##
-
-**milesguo** 假口罩泛滥！CCP造假祸害全球<br>https://gnews.org/zh-hans/162288/
-
-[https://www.guo.media/posts/277223](https://www.guo.media/posts/277223) `2020-04-05T17:10:17`
-##
-
-**milesguo** 硫酸羟氯奎将改变整个“游戏”<br>https://gnews.org/zh-hans/162407/
-
-[https://www.guo.media/posts/277222](https://www.guo.media/posts/277222) `2020-04-05T17:25:27`
-##
-
-**milesguo** 八角棒槌：做一枚灭共的硬柿子，谁也捏不动<br>https://gnews.org/zh-hans/162313/
-
-[https://www.guo.media/posts/277221](https://www.guo.media/posts/277221) `2020-04-05T16:40:14`
 ##
 
