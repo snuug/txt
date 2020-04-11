@@ -66,6 +66,11 @@
 [https://www.guo.media/posts/277576](https://www.guo.media/posts/277576) `2020-04-11T07:25:21`
 ##
 
+**milesguo** 揭穿中共全民小康骗局！当今社会竟有母亲贩卖亲生女儿【只为生存】！<br>https://gnews.org/zh-hans/169055/
+
+[https://www.guo.media/posts/277575](https://www.guo.media/posts/277575) `2020-04-11T11:25:10`
+##
+
 **milesguo** 4月10日 美国政要推文选译<br>https://gnews.org/zh-hans/169018/
 
 [https://www.guo.media/posts/277574](https://www.guo.media/posts/277574) `2020-04-11T07:25:24`
