@@ -11,6 +11,11 @@
 
 
 
+**milesguo** CCP Coronavirus Pandemic Episode 77, April 10, 2020<br>https://gnews.org/169150/
+
+[https://www.guo.media/posts/277587](https://www.guo.media/posts/277587) `2020-04-11T11:10:09`
+##
+
 **milesguo** A Los Alamos study shows the R0 value is 6, not between 2 and 3！<br>https://gnews.org/169141/
 
 [https://www.guo.media/posts/277586](https://www.guo.media/posts/277586) `2020-04-11T07:25:12`
@@ -24,6 +29,11 @@
 **milesguo** US bars Google’s high-speed internet link to Hong Kong<br>https://gnews.org/168708/
 
 [https://www.guo.media/posts/277584](https://www.guo.media/posts/277584) `2020-04-11T07:25:14`
+##
+
+**milesguo** The Farm: [EXPOSED] United Nations infiltrated by PLA Navy<br>https://gnews.org/168682/
+
+[https://www.guo.media/posts/277583](https://www.guo.media/posts/277583) `2020-04-11T11:10:10`
 ##
 
 **milesguo** Miles: We offered EU a win-win solution to save HKers, BUT<br>Miles: We offered EU a win-win solution to save HKers, BUT
@@ -44,6 +54,11 @@
 **milesguo** TNT Daily : CCP exploits Chinese people after they are turned into ashes<br>https://gnews.org/168114/
 
 [https://www.guo.media/posts/277578](https://www.guo.media/posts/277578) `2020-04-11T07:25:20`
+##
+
+**milesguo** 中共假药多，抗疫药物谨慎识别！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/169092/
+
+[https://www.guo.media/posts/277577](https://www.guo.media/posts/277577) `2020-04-11T11:10:13`
 ##
 
 **milesguo** 中共病毒次生灾害发生中，党竟劝大家不要买米！2020/4/10<br>https://gnews.org/zh-hans/169083/
