@@ -11,9 +11,19 @@
 
 
 
+**milesguo** 文字版2020年4月8日郭先生GTV直播谈国内疫情<br>https://gnews.org/zh-hans/168793/
+
+[https://www.guo.media/posts/277569](https://www.guo.media/posts/277569) `2020-04-11T05:10:11`
+##
+
 **milesguo** 彭培奥国务卿呼吁世界分享真实数据，透明公开<br>https://gnews.org/zh-hans/168554/
 
 [https://www.guo.media/posts/277567](https://www.guo.media/posts/277567) `2020-04-11T04:40:11`
+##
+
+**milesguo** 中共病毒影响 日本首个航站楼关闭<br>https://gnews.org/zh-hans/168490/
+
+[https://www.guo.media/posts/277566](https://www.guo.media/posts/277566) `2020-04-11T05:10:13`
 ##
 
 **milesguo** 德'中共病毒'死亡例 最小26岁<br>https://gnews.org/zh-hans/168488/
