@@ -1,62 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月10日美國政要推文選譯
-`2020-04-10 23:22 GM65` [轉載自GNews](https://gnews.org/zh-hant/169032/)
+## 譚德塞與“鵝肉”
+`2020-04-11 11:11 GM30` [轉載自GNews](https://gnews.org/zh-hant/169015/)
 
-> If Communist China has banned its citizens from using American social media platforms, why does the regime continue exploiting our platforms to push Chinese propaganda? During the coronavirus pandemic, state-run accounts posted over 3,300 times a day, triple their normal rate.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 10, 2020](https://twitter.com/MarshaBlackburn/status/1248654787022856193?ref_src=twsrc%5Etfw)
+**作者：玉米地大姐**
 
-參議員Marsha Blackburn：如果中共國禁止其國民使用美國社交媒體平台，那為什麼該政權一直利用我們的平台推廣中國大外宣？新冠疫情期間，（中共）國有賬號每天發帖超過3300次，是他們平時的三倍多。
+WTO總幹事譚德塞這兩天處於輿論的風口浪尖，將近百萬人聯名要求譚德塞下台滾犢子，川普總統與譚德塞隔空互懟，他警告川普要想裹屍袋少，不要把病毒政治化。
 
-《華爾街日報》：中國放出大量有關病毒的消息，來塑造有關冠狀病毒的表述
+譚德塞的這句話說得夠狠夠冷血且透著一絲嘲弄。作為WTO的頭頭，說這樣的話往好了說是過分，往壞了說是和中共一樣的狂妄與愚蠢。這句話不僅刺激了川普總統，也讓各國看清了此人與中共同為一丘之貉。
 
-> Allowing Chinese firms to access our telecom network is a threat to Americans’ ability to communicate freely and securely. 
-> 
-> I urge the FCC to heed the recommendation of six U.S. agencies that China Telecom be banned from operating in the United States.
-> 
->  [https://t.co/DDixbPiiYU](https://t.co/DDixbPiiYU)
-> — Tom Cotton (@SenTomCotton) [April 10, 2020](https://twitter.com/SenTomCotton/status/1248614377839706112?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10225305/2-64.jpg)
 
-參議員Tom Cotton：允許中國公司訪問我們的電信網絡是對美國人自由和安全通信的威脅。我敦促聯邦通信委員會（FCC）聽從六大美國機構的建議，禁止中國電信在美國運營。
+疫情發生以來，譚德塞領導下的世衛組織已成中共海外黨支部，總幹事另一個不掛名的頭銜是中共派到WTO的黨委書記。可以說譚書記就是中共利用病毒禍害全世界的一個毒餌。如果不是譚德塞在CCP病毒爆發之初，配合中共向各國放風病毒可控不人傳人，無須旅遊禁令,疫情不至於發展到如此地步。
 
-> Look closely. See the man with white hair? That's the head of the Syrian Armed Forces 1st Corps, Luau Ali Ahmad Assad. He's visiting Hezbollah positions in [#Syria](https://twitter.com/hashtag/Syria?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> Our message: We see you. Consider this a warning.
-> 
-> We won't allow Hezbollah to entrench itself militarily in Syria. [pic.twitter.com/vmPtZe1VuC](https://t.co/vmPtZe1VuC)
-> — Israel Defense Forces (@IDF) [April 10, 2020](https://twitter.com/IDF/status/1248558394497282049?ref_src=twsrc%5Etfw)
+在譚德塞總為中共幹事之前，世衛還像個世衛的樣子。 2003年的SARS疫情造成全球700多人死亡，世衛組織公開批評中共隱瞞疫情。為了躲避世衛專家看到實際病例，中共官員下令將SARS患者抬上救護車離開醫院在外面兜風。
 
-比爾·格茨先生轉推：
+2004年2月，廣東再次出現薩斯病例。 BBC報導， 世界衛生組織強烈批評中共當局處理今冬第四宗薩斯病例的方式，力促對傳染源進行更多的研究。世界衛生組織在一份聲明中說：“這宗病例引起了人們對查明、治療、報告此病例的方式的許多擔憂。”
 
-以色列國防軍：仔細瞧。看到那個白頭髮的人了嗎？那是敘利亞武裝部隊第一軍首領Luau Ali Ahmad Assad。他正在訪問真主黨位於敘利亞的陣地。我們要傳達的信息：我們看著你呢。把這當做一個警告吧。我們不允許真主黨在敘利亞加強軍事力量。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10225338/3-50.jpg)
 
-> TMW 10AM ET: Steve Bannon hosts a [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) special "Descent Into Hell: Life Under the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)" with:
-> 
-> ▶️Gen. [@Robert\_Spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw) 
-> ▶️[@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw)
-> ▶️[@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
-> ▶️[@SimoneGao](https://twitter.com/SimoneGao?ref_src=twsrc%5Etfw)
-> ▶️[@realKyleOlbert](https://twitter.com/realKyleOlbert?ref_src=twsrc%5Etfw) 
-> ▶️Dr. Lin Xiaoxu
-> ▶️[@HKMarkSimon](https://twitter.com/HKMarkSimon?ref_src=twsrc%5Etfw)
-> 
-> Also on [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/AUokEMwJIL](https://t.co/AUokEMwJIL)
-> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 10, 2020](https://twitter.com/WarRoomPandemic/status/1248756477101330432?ref_src=twsrc%5Etfw)
+或許是因為疫情，世衛不給中共留面子，促使盜國賊下決心搞定世衛組織，像世衛這樣無第三方監督的公益組織，每年的預算高達600億美元，貪污腐敗是肯定的。中共正是看清了這一點，通過各種見不得光的藍金黃，精心栽培譚德塞成為世衛總幹事。為日後的化學戰提前佈置一顆安插在聯合國的一枚棋子。
 
-比爾·格茨先生轉推：
+這枚棋子終於在2020年派上大用場，譚書記成功地將中共病毒通過他的風向標擴散到全世界。如果說中共是疫情的母病毒的話，譚書記就是它的子病毒。美國從經濟調查入手，看譚德塞那副狗急跳牆的樣子，說明他真的害怕了。
 
-疫情戰斗室：美東時間明天早上10點：史蒂夫·班農主持疫情戰斗室特別節目“墮入地獄：中共治下的生活”，嘉賓：斯伯丁將軍，Jack Posibiec，比爾·格茨，蕭茗，Ky Olbert，林曉旭博士（音譯Dr. Lin Xiaoxu），Mark Simon。 《大紀元》同步播出。
+就算譚德塞現在後悔也晚了，中共已經將他牢牢捆綁脫身不得，人民日報、外交部發言人公開力挺譚德塞，夯實了譚書記就是中共的海外馬仔。中共這招等於給川普提供了譚德塞將病毒政治化的證據。
 
-> “They did this in January but they continue to do it all the way through March & that may be the even more despicable part of it.”—[@thejeremyalters](https://twitter.com/thejeremyalters?ref_src=twsrc%5Etfw), [@BermanLawGroup](https://twitter.com/BermanLawGroup?ref_src=twsrc%5Etfw) spokesperson 
-> 
-> US healthcare workers want [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) held accountable for PPE hoarding. [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/n6qdwOcQ22](https://t.co/n6qdwOcQ22)
-> — Jan Jekielek 😷 (@JanJekielek) [April 10, 2020](https://twitter.com/JanJekielek/status/1248586856989589504?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10225440/4-39.jpg)
 
-斯伯丁將軍轉推：
+中共力挺譚書記有兩層含義，一是給譚德塞撐腰打氣不要被美國嚇唬住。二是警告譚德塞，你小子別耍什麼鬼心眼，咱們是一條線上的螞蚱，想甩鍋沒門！
 
-Jan Jekielek：伯曼律師事務所發言人Jeremy Alters說：“他們一月份這麼做的，一直到三月份還在繼續，這可能是更加卑鄙的行為。”美國醫護工作者要求中共對囤積個人防護設備行為負責。
+譚書記目前的狀況，頗像明朝開國元勳徐達。民間傳說，徐達常年征戰後背長有膿瘡，郎中囑咐他忌食鵝肉，否則必死無疑。朱元璋做了皇帝得了妄想症，害怕徐達領兵造反，想除掉這位昔日的戰友，又苦於無藉口，於是送給徐達一塊鵝肉。
 
-大紀元：美國醫療工作者起訴北京在全球囤積醫療資源
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232208/image0.png-2.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10232217/WhatsApp_Image_2020-04-10_at_19.32.13-2.jpeg)
-1
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10225520/5-21.jpg)
+
+別說是鵝肉，就算是朱元璋的一泡屎，徐達也得吃下，否則就是抗旨不遵，殺頭之罪。徐達吃鵝肉背瘡發作，一代名將嗚呼哀哉。
+
+中共知道譚書記有“背瘡”特意送來一塊“鵝肉”，不想吃就得頂住來自美國的調查與中共共存亡。若吃下這快“鵝肉”，說出自己被中共收買協助隱瞞疫情真相，美國不會放過他，中共不會饒了他。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10225608/1-88.jpg)
+
+譚書記內心一定很掙扎，吃不吃“鵝肉”都會“死”的很難看，真可謂早知今日何必當初？上賊船容易下賊船難。譚書記就是一面活生生的例子：相信共產黨、沒有好下場！
+
+（文章內容僅代表作者觀點）
+
+0

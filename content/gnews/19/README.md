@@ -1,13 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拉斯阿莫斯實驗室研究表明R0值是6，而不是2到3 !
-`2020-04-10 23:12 GM31` [轉載自GNews](https://gnews.org/zh-hant/169017/)
+## 肆虐全球的中共痛毒可能會導致南美一些偏遠部落的滅絕
+`2020-04-11 11:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/169197/)
 
-在[4月9日](https://www.youtube.com/watch?v=oqrvv47d1DY)的白宮每日疫情通報會上，一位記者提到[拉斯阿莫斯國家實驗室的最新研究結果](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)。標誌著病毒傳染力的R0值接近6，而不是此前報導的2到3。這就意味著在無干預的情況下，一個人能感染周圍6個人。 Fauci醫生回答道R0值最大的敵人是隔離，是美國人民的偉大力量和推遲疫情的舉措使R0值從6降低到這麼低。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11110614/%E8%82%86%E8%99%90%E5%85%A8%E7%90%83%E7%9A%84%E4%B8%AD%E5%85%B1%E7%97%9B%E6%AF%92%E5%8F%AF%E8%83%BD%E4%BC%9A%E5%AF%BC%E8%87%B4%E5%8D%97%E7%BE%8E%E4%B8%80%E4%BA%9B%E5%81%8F%E8%BF%9C%E9%83%A8%E8%90%BD%E7%9A%84%E7%81%AD%E7%BB%9D.jpg)
+美國哥倫比亞廣播公司4月10日援引路透社消息，據巴西健康官員透露，一位名叫阿維尼·辛瑞扎那（ Alvanei Xirizana）的少年於週四因中共病毒離世。他屬於亞馬遜偏遠的亞諾瑪米部落（Yanomami tribe）。據國際人權組織“國際拯救（Survivial Internationals)” 解釋，該部落有3萬八千人，生活在巴西北部和委內瑞拉南部的偏僻雨林地區。
 
-延申閱讀：[High Contagiousness and Rapid Spread of Severe Acute Respiratory Syndrome Coronavirus 2](https://wwwnc.cdc.gov/eid/article/26/7/20-0282_article?deliveryName=USCDC_333-DM25287#suggestedcitation)
+到目前為止，還有兩名原住民死於中共病毒：帕拉（Para）的一位87歲的女性和摩那斯（Manaus）的一位男性。巴西已有19600位中國病毒確診患者，超過1000例死亡。
 
-*翻譯：【Michelle】 字幕：【1ia$】*
+亞馬遜觀察是一個致力於保護亞馬遜雨林和原住民權力的組織，它在巴西的項目負責任人保拉·瓦格絲（Paula Vargas）說，中國病毒給巴西85萬的原住民帶來了巨大的威脅。保拉在周五接受美國廣哥倫比亞廣播公司採訪時說，巴西總統博索那羅對雨林的開發政策給原住民地區生帶來了很多外來人口，比如說礦工和伐木工。 ＂我們可以在家辦公，進行社會隔離以躲避中共痛毒。但是這在原住民部落是無法實現的，政府不能進入部落來驅逐外來者。礦工和伐木者沒法在家辦公，他們散佈在原住民區的各個角落。＂
 
-1
+儘管許多部落已經開始意識到中共病毒的巨大威脅，開始自我隔離，取消大型活動。但是這給他們的經濟帶來了災難性打擊，甚至面臨飢餓的風險。原住民需要外界的幫助來提供衛生的水和食物。
+
+[原文鏈接](https://www.cbsnews.com/news/amazon-yanomami-tribe-15-year-old-boy-dies-coronavirus-covid-19/)
+
+翻譯報導：佚名
+
+0
