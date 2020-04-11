@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/277586](https://www.guo.media/posts/277586) `2020-04-11T07:25:12`
 ##
 
+**milesguo** Unrestricted warfare: VOA speaks for foreign totalitarians<br>https://gnews.org/168713/
+
+[https://www.guo.media/posts/277585](https://www.guo.media/posts/277585) `2020-04-11T09:10:10`
+##
+
 **milesguo** US bars Google’s high-speed internet link to Hong Kong<br>https://gnews.org/168708/
 
 [https://www.guo.media/posts/277584](https://www.guo.media/posts/277584) `2020-04-11T07:25:14`
@@ -29,6 +34,11 @@
 **milesguo** War Room: Pandemic Ep 110&111 – Open for Business? & The Viral Origin<br>https://gnews.org/168249/
 
 [https://www.guo.media/posts/277580](https://www.guo.media/posts/277580) `2020-04-11T07:25:18`
+##
+
+**milesguo** Threat of asymptomatic CCPVirus infections<br>https://gnews.org/168202/
+
+[https://www.guo.media/posts/277579](https://www.guo.media/posts/277579) `2020-04-11T09:10:12`
 ##
 
 **milesguo** TNT Daily : CCP exploits Chinese people after they are turned into ashes<br>https://gnews.org/168114/
@@ -59,6 +69,11 @@
 **milesguo** 文字版2020年4月8日郭先生GTV直播谈国内疫情<br>https://gnews.org/zh-hans/168793/
 
 [https://www.guo.media/posts/277569](https://www.guo.media/posts/277569) `2020-04-11T05:10:11`
+##
+
+**milesguo** 前共产主义国家如何走出传统能源匮乏的困境，是否对未来中国具有参考价值？<br>https://gnews.org/zh-hans/168733/
+
+[https://www.guo.media/posts/277568](https://www.guo.media/posts/277568) `2020-04-11T09:10:16`
 ##
 
 **milesguo** 彭培奥国务卿呼吁世界分享真实数据，透明公开<br>https://gnews.org/zh-hans/168554/
