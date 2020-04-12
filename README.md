@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 莫当牺牲品！千万不要让孩子复课！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/169951/
+
+[https://www.guo.media/posts/277623](https://www.guo.media/posts/277623) `2020-04-12T08:25:10`
+##
+
 **milesguo** 班农战斗室114: 中共治下 中国人之地狱堕落 （上）<br>https://gnews.org/zh-hans/169850/
 
 [https://www.guo.media/posts/277612](https://www.guo.media/posts/277612) `2020-04-12T07:40:11`
