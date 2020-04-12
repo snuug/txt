@@ -1,39 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月11日美國政要推文選譯
-`2020-04-12 00:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/169957/)
+## 科學解釋為何現在遠沒到復工——文甜譯評 紐約時報
+`2020-04-12 01:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/170008/)
 
-> So now the Fake News [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) is tracing the CoronaVirus origins back to Europe, NOT China. This is a first! I wonder what the Failing New York Times got for this one? Are there any NAMED sources? They were recently thrown out of China like dogs, and obviously want back in. Sad!
-> — Donald J. Trump (@realDonaldTrump) [April 11, 2020](https://twitter.com/realDonaldTrump/status/1249118778404765696?ref_src=twsrc%5Etfw)
+**作者：Sweeeettyy文甜**
 
-川普總統：所以現在《紐約時報》假新聞追踪冠狀病毒的起源到了歐洲，不是中國。這還是頭一回！我很好奇落敗的《紐約時報》這一次又搞到了什麼？有署名的消息來源嗎？他們最近才像狗一樣被趕出中國，（現在）顯然想再回去。可悲！
+**導讀：**
 
-> “this global crisis is as good a time as any to set ourselves the goal of recalibrating our relationship with this murderous autocracy that has brought the world such misery.” [#ChinaLiedAndPeopleDied](https://twitter.com/hashtag/ChinaLiedAndPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wYggrJNiQs](https://t.co/wYggrJNiQs)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 11, 2020](https://twitter.com/Jkylebass/status/1248952130699960321?ref_src=twsrc%5Etfw)
+本期譯評將先編譯紐約時報4月10日文Will an Antibody Test Allow Us to Go Back to School or Work?選自The New York Times [https://www.nytimes.com/2020/04/10/health /coronavirus-antibody-test.html](https://www.nytimes.com/2020/04/10/health/coronavirus-antibody-test.html) 。之後，作者將比較**美國所設想的未來復工標準** ，和**中共國現行的出院和解除隔離的標準** ，論證為何中共國的全面大爆發是不可避免的。作者呼籲， **所有戰友，應該保護好自己，在家躲避疫情。現階段，任何復工復產都是極其危險的。**
 
-卡爾·巴斯先生：“與任何一次全球危機一樣，此次危機為我們設定一個目標，要重新調整與這種給世界帶來如此痛苦的殺人獨裁政權的關係。”
+**編譯文（引自紐約時報）：**
 
-美國《新聞周刊》：奈傑爾·法拉奇（Nigel Farage，英國脫歐黨黨魁，維基百科）：病毒是重新審視西方與中國關係的另一個原因｜觀點
+CDC（疾病控制與預防中心）最近宣布，他們將開始使用抗新冠病毒的抗體檢測，來研究人口中感染新冠病毒的比例。這週五，NIH（美國國立衛生研究院）宣布將對全國一萬名健康志願者進行新冠病毒的抗體檢測篩查。 “我們將在未來的一周左右，進行大量新冠抗體檢測，”美國傳染病專家福西（Anthony S. Fauci）博士在周五上午在CNN上說。他說，白宮應對新冠病毒特別工作組（the White House coronavirus task force）正在討論“免疫證明”（certificates of immunity）的想法。這種’免疫證明’可以發給以前被感染的，現在恢復，並獲得免疫，具有效抗體的人。
 
-> Beijing claims a small Vietnamese fishing boat rammed one of its coast-guard ships in the South China Sea, rather than the other way around. It’s hard to imagine a more ludicrous story. The U.S. stands with Vietnam as it defends its citizens and sovereignty from CCP aggression.
-> — Tom Cotton (@SenTomCotton) [April 11, 2020](https://twitter.com/SenTomCotton/status/1249019607484112901?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/12013153/image0-94.jpg)
 
-參議員Tom Cotton：北京聲稱南海地區一艘越南小型漁船撞上了其海岸警衛隊的船隻，而不是他們撞了小漁船。再也想不出更可笑的故事了。美國支持越南保衛其本國公民和主權不受中共侵犯。
+**（一）血液檢測（血清學檢測）到底是什麼？**
 
-> The Chinese government aggressively covered up the [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) and tried to silence medical experts who sounded the alarm. Had the Chinese government acted responsibly, we could have stopped this pandemic and averted the enormous cost in lives and jobs worldwide. [https://t.co/MtoHY5byEK](https://t.co/MtoHY5byEK) [pic.twitter.com/57vKperWM3](https://t.co/57vKperWM3)
-> — Senator Ted Cruz (@SenTedCruz) [April 11, 2020](https://twitter.com/SenTedCruz/status/1249075228560539652?ref_src=twsrc%5Etfw)
+血清學檢測是檢測對新冠病毒的免疫反應。當身體遇到病毒時，需要一段時間才能識別出病毒，並開始激發擴大免疫反應。其中抗體這種免疫分子就是構成免疫反應的關鍵部分。
 
-參議員Ted Cruz：中國政府極力地掩蓋了冠狀病毒爆發的事情，並讓發出預警的醫學專家保持沉默。假如中國政府當初採取了負責任的行動，我們就可能阻止全球大爆發，並避免全球範圍內巨大的生命和工作的代價。
+當身體遇到感染時，出現的第一種類型的抗體稱為IgM。 IgM是通用型抗體。為了特異性地消滅一種特定的病毒（比如CCP新冠病毒），人體需要具有特異性的第二種抗體，即IgG。第三類的抗體，稱為IgA，它存在於粘膜組織中，例如肺內壁。
 
-> The CCP uses the claim of racism to deflect from its repressive behavior. Let's make sure we seperate the Chinese people from the CCP. If you support the CCP, you are harming American interests. That's a fact. [https://t.co/y3FTXRTfzh](https://t.co/y3FTXRTfzh)
-> — General Spalding (@robert\_spalding) [April 11, 2020](https://twitter.com/robert_spalding/status/1248840641330765824?ref_src=twsrc%5Etfw)
+現在正在開發的許多檢測手段是在測試這三種抗體的水平。也有些只檢測IgM和IgG，還有些只檢測其中一種。
 
-斯伯丁將軍：中共利用種族主義的說辭來轉移它的壓迫行徑（的本質）。我們先把中國人和中共區分開。如果支持中共，那麼你就是在損害美國人的利益。這是事實。
+**（二）**    **這些測試能告訴我們什麼？**
 
-> HUGE EXCLUSIVE: Chinese Doctor Shi Zhengli Ran Coronavirus Research in Wuhan After US Project Was Shut Down by DHS in 2014 for Being Too Risky — PRIOR LEAK KILLED RESEARCHER [https://t.co/cuuyb8bqRH](https://t.co/cuuyb8bqRH)
-> — General Spalding (@robert\_spalding) [April 11, 2020](https://twitter.com/robert_spalding/status/1249029437967958016?ref_src=twsrc%5Etfw)
+因為新冠病毒感染後，抗體很遲才出現，因此這些測試對新冠病毒的早期診斷沒有用處。
 
-斯伯丁將軍：重磅獨家：中國醫生石正麗繼美國項目因風險性太高於2014年被美國國土安全部（DHS）叫停後，（轉而）在武漢主導冠狀病毒研究——先前的洩漏曾導致研究院死亡（文章來源：The Gateway Pundit新聞網）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/12001804/image0.png-3.jpeg)
+這些測試在檢測大量人群中是否存在抗新冠病毒的抗體方面更為有效。這不僅可以判定誰對新冠病毒具有免疫力，還可以確定病毒在人群中的傳播程度。
+
+**我們已經知道，25％至50％的新冠病毒感染者** ，可能從來沒有出現症狀。而有些人可能只是輕度症狀。還有人只是知道他們可能染上冠狀病毒，但無法接受診斷。血液測試將能夠識別出這些人，並幫助科學家更好地估計由新冠病毒引起的真實死亡率。 **目前，我們並沒有一個確切的受感染人數的數字，因為比起實際感染人數，接受檢測的數量實在太少了。**
+
+全世界的政府也希望從血液檢測中告訴人們，哪些人是具有免疫力的，有抗體的，從而可以避免二次感染。
+
+**（三）**    **我已經確定感染了冠狀病毒。我可以做這樣一個檢測並重新上班嗎？**
+
+**答案是：還不行。**
+
+因為大多數這些還正在開發的測試，只能測出誰是否具有抗體，以及誰是否曾接觸過病毒。然而僅僅具有抗體**還不意味著就確保具有免疫力** 。具有免疫力的意思是，如果你接觸了新冠病毒，免疫系統會在病毒再次大規模感染身體前，有效地清除病毒。
+
+有些人，比如他們屬於輕症或無症狀感染，可能已經有一些抗體。 **但是這些抗體太弱，無法防止二次感染。**反而，有些人的IgG抗體水平很低，卻可以免於二次感染。
+
+這是因為抗體只是免疫反應中，一個比較容易理解的部分。免疫細胞比如T細胞，可能也是參與的。
+
+**（四）**      **這种血液抗體檢測何時投入大面積使用？還有哪些問題？**
+
+其中有一些已經可用並且正在使用了，只是還處於初期，而且尚不清楚它們有多有效。上週，美國食品藥物管理局（FDA）批准了一項此類檢測的緊急使用授權。但是其他的類似檢測還在實驗室和醫院的研究階段。
+
+但是， **這些血清學檢測還是有很多問題的** 。
+
+例如，在英國，這些測試存在某些假陰性（沒有檢測到已經存在的抗體）和假陽性（錯誤測到有抗體而實際上沒有抗體存在）。有些測試可能對新冠病毒沒有足夠的特異性。即可能會錯誤檢測到由於其他冠狀病毒感染（比如引起普通感冒的冠狀病毒）而產生的抗體。
+
+其中假陽性是尤其危險的，因為這會誤導人們相信自己具有免疫力，而實際上並沒有。這反而使他們容易感染新冠病毒。
+
+**（五）**      **如果某人對病毒具有免疫力，免疫力將持續多久？**
+
+**沒有人知道。**
+
+CCP病毒是一種全新的病毒。最好的猜測是研究新冠病毒的近親——普通感冒冠狀病毒，以及更危險的引起SARS和MERS的冠狀病毒。身體對這些冠狀病毒的免疫力一般持續一到八年。
+
+**評述：**
+
+相比起中共國上來就說可防可治，美國的科學態度才是值得戰友們關注。鐘南山院士等喉舌人物，並非科學水平不過關，而是肩負著維護社會穩定的重任。
+
+我認為**美國對人群具有抗新冠病毒抗體的普查是未來社會生活正常化的必要手段和必經之路。而中共目前還遠遠沒有這個打算。**
+
+正如上文所報導，即使是在美國，也**遠遠沒到可以考慮復工復產的時候** 。
+
+美國所謂的“免疫證明”的設想，背後是有科學的支撐。而提出綠碼，黃碼，紅碼的中共國是考啥支撐的呢？ **下面就來扒一扒CCP的出院標準** 。為什麼復工復產的CCP國，將迎來**巨大的社會災難** 。
+
+援引CCP現行的《新型冠狀病毒肺炎診療方案（試行第七版）》出院標準：
+
+- 出院標準。
+
+
+第1條：體溫恢復正常3天以上
+
+第2條：呼吸道症狀明顯好轉
+
+第3條：肺部影像學顯示急性滲出性病變明顯改善
+
+第4條：連續兩次痰、鼻咽拭子等呼吸道標本核酸檢測陰性（採樣時間至少間隔24小時）
+
+滿足以上條件者可出院。 （請注意，第4條是3月3日的第七版新增的。2月18日的第六版並無核酸檢測要求，僅僅憑前三條出院！）
+
+- 出院後注意事項。
+
+
+1.定點醫院需要做好與患者居住地基層醫療衛生機構間的聯繫，共享病歷資料，及時將出院患者信息推送至轄區或居住地居委會和基層醫療衛生機構。
+
+2.患者出院後，繼續進行14天的隔離管理和健康狀況監測，佩戴口罩，有條件的居住在通風良好的單人房間，減少與家人的近距離密切接觸，分餐飲食，做好手衛生，避免外出活動。
+
+3.建議在出院後第2周和第4週要及時到定點醫院隨訪、複診。
+
+戰友們可以自行對比中美標準。你們還相信那些出院的所謂“康復者”是真的康復者嗎？至於真正的康復者去了哪裡，請移步文甜君的下一篇文章**《康復者的血，難道就是CCP少數人的解藥？ 》**
+
+最後，我還要強調。 CCP國並非沒有抗體技術。由於CCP國疫情爆發較早。這項技術反而開發更早，成型更早。
+
+根據CCP媒體報導，如新華社天津3月19日消息：“博奧賽斯（天津）生物科技有限公司自主研發的新型冠狀病毒（COVID-19）IgM／IgG膠體金免疫層析法、化學發光法、酶聯免疫法等7個新冠抗體檢測試劑盒獲得歐盟CE認證，正式獲得進入歐盟市場資質。”；新京報3月18日題為《新冠病毒檢測試劑出海潮：十多家上市公司佈局搶灘歐盟》報導“近日先後應急審批通過南京諾唯贊醫療科技有限公司和珠海麗珠試劑有限公司2個新型冠狀病毒（2019-nCoV）IgM/IgG抗體檢測試劑盒（膠體金法）。。。 ”等可以得知，國內的抗體血清學檢測已經頗有成效，在“搶灘歐盟”悶聲大發財。
+
+CCP沒有把這些資源用在**出院標準裡** ，更別提在人群中進行篩查。其中的原因到底是什麼？還需要等待知情的戰友爆料。
+
+（文章內容僅代表作者觀點）
+
 0

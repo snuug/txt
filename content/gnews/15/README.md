@@ -1,27 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 八角棒槌：UGC，中共的天敵
-`2020-04-11 18:51 GM06` [轉載自GNews](https://gnews.org/zh-hant/169504/)
+## 2020年4月9日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-11 21:53 GM33` [轉載自GNews](https://gnews.org/zh-hant/169831/)
 
-作者： **八角棒槌**
+[English0409\_CCP\_Virus\_Updates\_RUS](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)
 
-今天早上剛一醒，人還在床上迷迷糊糊躺著，手便伸到床頭櫃去摸手機。放在以前，我早上能醒，那基本屬於奇蹟，然而，這並不意味著我愛睡懶覺，作為一隻久肝成習的夜貓子，實際上我早適應了清晨入睡的作息。好在這僅僅是以前，自從開始隔三差五拿筆捅中共的菊花後，我現在很能克制自己：抱著秉燭夜讀的決心，通宵肝遊戲。換言之，爆料革命不但給了我寫字的機會，還改掉了我自製力的毛病。
+[French0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)
 
-如今我很少再碰遊戲，頂多只看看相關新聞。總體而論，牆內的遊戲類新聞大體分為兩類，要么是什麼新遊即將要賣，要么便是中共不讓什麼新遊賣。前者經常吊足玩家胃口，後者每每叫人萬分想吐，很不幸，今早一打開手機，我就想吐。
+[German0409\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11184850/1-53.png)
+[Japanese0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)
 
-據我所知，牆內玩家們常以人畜無害自居，可惜這種一廂情願式的自我正名，並不能抵擋中共的屠戮。從1999年中共對電子遊戲的一紙禁令開始，類似的慘劇便沒完沒了。久而久之，本該生龍活虎的玩家們，在年適韶華的黃金時代，全變成了坐等挨劈的木頭。每次挨完劈，都不忘來一句：“我們不談政治，只談遊戲！”經過幾十年不懈的努力，這句曾略帶幽怨的囈語，已成功蛻變為劃破長空的怒號，然而伴隨心氣付出的代價，曾經的精純旺盛如今奄奄一息。
+[Russia\_0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)
 
-同樣奄奄一息的也包括遊戲自身，尤其是進口遊戲，進中共國前胳膊是胳膊腿是腿，一進來就缺胳膊少腿。這還算運氣好的，運氣稍稍一背，甚至心臟都會被摘除。說起《動物森友會》的心臟，玩過的人該清楚，良田美池的田園生活搭配上全球服務器的架構，令玩家恍如置身於返璞歸真的地球村。無論是誰，來自哪裡，遊戲裡都是一家人。沒事串串門，一起聊聊天釣釣魚，獨處時還可以吟詩作畫一番，那種安閒自適的韻味簡直就是當前現實的剋星。面對中共病毒的全球肆虐，牆內牆外的玩家急需消磨時光的玩意兒，這是《動物森友會》火爆的原因。同時也正是這個原因，基於全球同服和UGC交流的屬性，讓它在中共國送了命。
-
-《動物森友會》遭劈後，我看到有業內人士寫出了大碗米的字數，分析來分析去，到頭的結論不是由於沒過審，就是遊戲卡帶的走私。假若走私的結論成立，那麼蘋果手機也早該被禁。至於過審一說，Steam上成坨的遊戲都沒過審，可為啥中共不但不干掉，反讓它在牆內活得挺好？當然了，好僅僅是指平台（渠道分發）的收益，為此收益付出的代價，只能是在平台方的肉麻諂媚下，拱手交出UGC（用戶原創內容，即Steam的創意工坊），讓中共屏蔽。
-
-Steam之所以風靡，關鍵就在它的UGC。作為Steam的心臟，沒有來自全球無數玩家自創的那些mod， Steam連個屁都不是。說到這大家就明白，經中共的手術後，牆內的Steam不過是一具缺心的皮囊。正常情況下，牆內玩家們大可發揮無限創意，比方說給自己鍾愛的角色披上“光復香港，時代革命”的外衣，或者高舉爆料革命的旗。可笑的是，光這些衣服和旗幟的mod便足以令中共嚇破膽，不過話又說回來，嚇破中共的膽並非UGC的目的，因為它本不是中共的天敵，只是擁有成為天敵的潛能。假如游戲平台的腰桿夠硬，這股潛能便會一直存在，正由於會一直存在，遊戲平台的腰桿就不夠硬。
-
-嚴格意義上講，GTV的核心價值也是UGC。沒有戰友們的紛紛參與，GTV不過一殼子而已，即便腰桿再硬，充其量只算得上硬殼子。我的意思是，關注文貴先生在排頭髮力的同時，也不可忽略後面戰友的重要性。正是兩者間的緊密相生，才促成我們的內容脫離了潛能範疇，被賦予了全新的意義：為滅共而生！
-
-（文章內容僅代表作者觀點）
+[Spanish0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)
 
 0
