@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月11日CCP冠状病毒大流行第78集<br>https://gnews.org/zh-hans/170100/
+
+[https://www.guo.media/posts/277624](https://www.guo.media/posts/277624) `2020-04-12T09:25:10`
+##
+
 **milesguo** 莫当牺牲品！千万不要让孩子复课！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/169951/
 
 [https://www.guo.media/posts/277623](https://www.guo.media/posts/277623) `2020-04-12T08:25:10`
