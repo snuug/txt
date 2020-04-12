@@ -11,6 +11,16 @@
 
 
 
+**milesguo** War Room113：让基辛格的修昔底德陷阱理论见鬼去吧<br>https://gnews.org/zh-hans/169571/
+
+[https://www.guo.media/posts/277604](https://www.guo.media/posts/277604) `2020-04-12T04:27:18`
+##
+
+**milesguo** 八角棒槌：UGC，中共的天敌<br>https://gnews.org/zh-hans/169493/
+
+[https://www.guo.media/posts/277602](https://www.guo.media/posts/277602) `2020-04-12T04:27:20`
+##
+
 **milesguo** 2020年4月10日CCP冠状病毒大流行第77集<br>https://gnews.org/zh-hans/169136/
 
 [https://www.guo.media/posts/277595](https://www.guo.media/posts/277595) `2020-04-11T15:10:12`
