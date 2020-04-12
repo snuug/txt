@@ -1,26 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統以身試法，羥氯喹的有效性又一次得到驗證
-`2020-04-11 18:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/169416/)
+## 2020年4月9日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-11 21:53 GM33` [轉載自GNews](https://gnews.org/zh-hant/169831/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11175948/%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E4%BB%A5%E8%BA%AB%E8%AF%95%E6%B3%95%EF%BC%8C%E7%BE%9F%E6%B0%AF%E5%96%B9%E7%9A%84%E6%9C%89%E6%95%88%E6%80%A7%E5%8F%88%E4%B8%80%E6%AC%A1%E5%BE%97%E5%88%B0%E9%AA%8C%E8%AF%81.jpg)
-來自4月10日的報導，法國對包括老年人在內的1000多名CCP病毒患者的治療研究表明，羥氯喹結合阿奇黴素進行治療的方案成功率達98％。
+[English0409\_CCP\_Virus\_Updates\_RUS](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)
 
-這是繼美國總統川普早前推特告知羥氯喹和阿奇黴兩種藥物的結合對治療CCP病毒顯著療效的又一個有力證明。另外，因感染CCP病毒住進ICU病房的美國布魯克林醫院的醫生在使用羥氯喹和阿奇黴素後也取得了積極的治療效果。 （可見Gnews文章[https://gnews.org/zh-hans/162924/](https://gnews.org/zh-hans/162924/) ）
+[French0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)
 
-美國相繼出台了相關政策禁止羥氯喹出口，將此藥品作為戰略資源。川普總統也在幾週前向記者表明，他要求醫生開了一些羥氯喹，會按建議計量服用以達到預防感染CCP病毒的目的。這些事實都證明了羥氯喹和阿奇黴素對感染CCP病毒治療的的有效性！
+[German0409\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)
 
-就在三月下旬，FOX新聞主持人勞拉ｷ英格拉漢姆（Laura Ingraham）報導了由著名的流行病學家迪迪埃ｷ拉烏爾特（Didier Raoult）醫生領導的法國CCP病毒研究小組的最新研究，證實了之前的結論：羥氯喹對對抗CCP病毒療效顯著。拉烏爾特醫生這次對80名患者進行治療，除了一名病重的86歲患者嚴重感染CCP病毒，其餘的每一個患者在服用了羥氯喹和阿奇黴素之後，病情都得到了有效改善。
+[Japanese0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)
 
-對於這樣的事實驗證，原本是很好的消息。但不幸的是，在這位法國醫生證明了此方案對全球社會有幫助並同時驗證了川普總統的推薦後，依然有很多的媒體要么忽視，要么攻擊和嘲諷這個研究成果，堅決不承認治療反應出來的事實，這是多麼邪惡的做法。
+[Russia\_0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)
 
-拉烏爾特醫生在推特上發布了他的研究結果：對於發表的兩篇文章有助於證實，1. 從80名患者的治療結果得出：羥氯喹和阿奇黴素作為治療CCP病毒的有效性。 2 感謝在P3密閉實驗室中進行的研究，表明了羥氯喹和阿奇黴素的組合具有的相關性。
+[Spanish0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)
 
-評： 當下CCP病毒蔓延全球，為了人類的未來和福祉，任何一個正常人都會選擇使用最有效的方法拯救生命。無良媒體對行之有效的方法的有意遮蔽，不僅令人失望，而且是在變相地害命！在川普總統帶領下的美國以及各國的正義力量一定能聯手成功抗疫。中共殘害全球之日，也是他們的滅亡之時。
-
-Hakunamatata
-
-[原文鏈接](https://www.thegatewaypundit.com/2020/04/trumps-miracle-drug-french-study-1000-patients-including-seniors-see-98-success-rate-hydroxychloroquine-azithromycin-regimen/)
-
-1
+0

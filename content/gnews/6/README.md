@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共九千萬黨員需面對的【四個核心問題】正在逐一出現中
-`2020-04-11 22:07 GM30` [轉載自GNews](https://gnews.org/zh-hant/169759/)
+## 4月11日美國政要推文選譯
+`2020-04-12 00:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/169957/)
 
-**作者：麓山之蜂**
+> So now the Fake News [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) is tracing the CoronaVirus origins back to Europe, NOT China. This is a first! I wonder what the Failing New York Times got for this one? Are there any NAMED sources? They were recently thrown out of China like dogs, and obviously want back in. Sad!
+> — Donald J. Trump (@realDonaldTrump) [April 11, 2020](https://twitter.com/realDonaldTrump/status/1249118778404765696?ref_src=twsrc%5Etfw)
 
-[郭文貴先生在2020年3月25日直播中\[完整版\]1:23:00時間點提到](https://www.youtube.com/watch?v=t23HN5tYoFo) ：所有共產黨的九千萬黨員，你們會遇到以下四個核心問題：
+川普總統：所以現在《紐約時報》假新聞追踪冠狀病毒的起源到了歐洲，不是中國。這還是頭一回！我很好奇落敗的《紐約時報》這一次又搞到了什麼？有署名的消息來源嗎？他們最近才像狗一樣被趕出中國，（現在）顯然想再回去。可悲！
 
-第一個問題，你的工資能不能發出來會是個大問題。
+> “this global crisis is as good a time as any to set ourselves the goal of recalibrating our relationship with this murderous autocracy that has brought the world such misery.” [#ChinaLiedAndPeopleDied](https://twitter.com/hashtag/ChinaLiedAndPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wYggrJNiQs](https://t.co/wYggrJNiQs)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 11, 2020](https://twitter.com/Jkylebass/status/1248952130699960321?ref_src=twsrc%5Etfw)
 
-第二發了工資，你的錢已經被通脹了、兌水了。一條魚放到鍋裡，放三勺水燉出的魚湯。一條魚放到鍋裡邊，我再給你大一點魚，放100勺水的時候，燉的不叫魚湯，那就是叫水湯，那叫泔水，你還喝的了嗎？
+卡爾·巴斯先生：“與任何一次全球危機一樣，此次危機為我們設定一個目標，要重新調整與這種給世界帶來如此痛苦的殺人獨裁政權的關係。”
 
-共產黨給你發的工資，你在大街買雞蛋、買土豆、買芹菜，買2量肉，你都買不起。過去買肉你是論塊買，跟回到35年前論量買。我那時候，我娘一買就是叫我爹，買二量肉回來，買肥的。為什麼？把那二量肉買回來，烙烙鍋、沾點油，把油撈出炒點菜，油汁了還可以做菜，論量賣。現在又要回到去論量賣了。
+美國《新聞周刊》：奈傑爾·法拉奇（Nigel Farage，英國脫歐黨黨魁，維基百科）：病毒是重新審視西方與中國關係的另一個原因｜觀點
 
-第三個，共產黨員你要記住。從現在開始起，共產黨用死你、累死你、病死你。然後讓你全家都、都是這樣。為什麼？他大量的講黨性、奉獻、組織紀律，就把9千萬黨員當成了什麼？各個皇帝死之前，上弔之前或被殺之前，在紫禁城外邊擋住自己的衛隊“去、去、殺呀！殺呀！衝啊！”你們就是那9千萬黨員，就那傻叉。
+> Beijing claims a small Vietnamese fishing boat rammed one of its coast-guard ships in the South China Sea, rather than the other way around. It’s hard to imagine a more ludicrous story. The U.S. stands with Vietnam as it defends its citizens and sovereignty from CCP aggression.
+> — Tom Cotton (@SenTomCotton) [April 11, 2020](https://twitter.com/SenTomCotton/status/1249019607484112901?ref_src=twsrc%5Etfw)
 
-給你講紀律，現在給你講紀律了。他的孩子在哪呢？所有的中南坑的孩子、政治局的孩子全在國外呢！大量的、新西蘭很多人告訴我說，他們現在調查新西蘭最起碼300個共產黨的中央委員、政治局委員家人全在新西蘭。我跟美國很多官員都已經確認過，他們說可能比這還多，都去新西蘭還有加拿大。
+參議員Tom Cotton：北京聲稱南海地區一艘越南小型漁船撞上了其海岸警衛隊的船隻，而不是他們撞了小漁船。再也想不出更可笑的故事了。美國支持越南保衛其本國公民和主權不受中共侵犯。
 
-所以這黨員們，讓你家人上、讓你講紀律、讓你衝上去，讓你到前線去。現在感染最多是什麼？所有在ICU病房，所有醫院裡邊躺著的，我告訴你就兩種人，醫生、護士，警察和共產黨員，報應快不快呀！不到40天就來了。大家現在記住我說的話，現在共產黨的病房裡ICU裡躺著最多的是傻護士、傻醫生和傻共產黨員、傻警察，走著看。
+> The Chinese government aggressively covered up the [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) and tried to silence medical experts who sounded the alarm. Had the Chinese government acted responsibly, we could have stopped this pandemic and averted the enormous cost in lives and jobs worldwide. [https://t.co/MtoHY5byEK](https://t.co/MtoHY5byEK) [pic.twitter.com/57vKperWM3](https://t.co/57vKperWM3)
+> — Senator Ted Cruz (@SenTedCruz) [April 11, 2020](https://twitter.com/SenTedCruz/status/1249075228560539652?ref_src=twsrc%5Etfw)
 
-最後一條，第四條，戰友們，共產黨員你將成為第一個犧牲品！包括你家人。接下來復興郭廣昌生產的氯喹，給你藥吃。我頭兩天給戰友發動，誰能買到藥，很多人“啪啪啪”給回复。好多人都買了，一百盒、一千盒、五千盒、一萬盒。我們得到了一個準確的信息，這是有計劃、有組織的。這個氯喹就是那個“人屍丸”。讓你共產黨員都染上病。遼寧檢察院的，瀋陽檢察院的還有這個什麼北京法院的，公安上的人，都讓你染上，給你忽悠你都染上。你染上以後，你求誰呀？你找不著藥啊！這藥哪來呀！氯喹啊！是吧！共產黨組織給你，你吃了，只要你染上病，吃了藥救你過來，感謝組織、感謝黨、感謝王岐山、感謝你的“擀麵杖子”、感謝孟建柱、感謝孫力軍，感謝完以後怎麼著？感謝完怎麼著？還、你活著吃藥，吃藥什麼？奉獻。 “人屍丸”這個詞，文貴說出以後，現在在中國百分之百的正在上演。
+參議員Ted Cruz：中國政府極力地掩蓋了冠狀病毒爆發的事情，並讓發出預警的醫學專家保持沉默。假如中國政府當初採取了負責任的行動，我們就可能阻止全球大爆發，並避免全球範圍內巨大的生命和工作的代價。
 
-而最近牆內盛傳湖南懷化從教師工資中扣取促進消費款，而且要在5月5日前消費完畢，過期後果未知。該通知的扣除標準為：績效工資是2600元的扣2000,2350元的扣1500元，2140元的扣1000元，其他扣500；提示：可能充不了燃氣物業費，但懷化各區縣都能消費、吃飯、加油、商超、小賣部、充話費\*\*\*\*\*\*。
+> The CCP uses the claim of racism to deflect from its repressive behavior. Let's make sure we seperate the Chinese people from the CCP. If you support the CCP, you are harming American interests. That's a fact. [https://t.co/y3FTXRTfzh](https://t.co/y3FTXRTfzh)
+> — General Spalding (@robert\_spalding) [April 11, 2020](https://twitter.com/robert_spalding/status/1248840641330765824?ref_src=twsrc%5Etfw)
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11220046/1-98.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11220057/2-74.jpg)
+斯伯丁將軍：中共利用種族主義的說辭來轉移它的壓迫行徑（的本質）。我們先把中國人和中共區分開。如果支持中共，那麼你就是在損害美國人的利益。這是事實。
 
+> HUGE EXCLUSIVE: Chinese Doctor Shi Zhengli Ran Coronavirus Research in Wuhan After US Project Was Shut Down by DHS in 2014 for Being Too Risky — PRIOR LEAK KILLED RESEARCHER [https://t.co/cuuyb8bqRH](https://t.co/cuuyb8bqRH)
+> — General Spalding (@robert\_spalding) [April 11, 2020](https://twitter.com/robert_spalding/status/1249029437967958016?ref_src=twsrc%5Etfw)
 
-不過官方的回復是： **不光教師扣，幹部也要扣。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11220154/3-58.jpg)
-
-由於因該文件下發引發爭議，所以湖南懷化又下發了一個文件說： **廳級幹部直接扣，處級和科級幹部自願扣，不做強制要求。**
-
-無獨有偶，湖南省總工會要求未發的節日慰問費以和包券形式發放。據雨花區教師反饋：本年度端午、中秋、國慶三個節日慰問費共900元，另外預發今年績效2000元，均以和包券形式發放。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11220236/4-46.jpg)
-
-這僅僅是被爆出來了的，那些沒有爆出來的又有多少個地方政府採取了這種方式，扣除了中共體制內工作人員的工資呢？中共政府一邊是宣傳由政府發放消費券，一邊又是想盡一切方法從公務員、教師的工資中扣錢，中南坑以及各地政府真是好話說盡，壞事做不絕。為什麼在宣傳中是由政府出資發放消費券，而實際又是在公務員、教師的工資中扣錢呢？這足以說明中共國的各級政府的財政已經存在不同程度的枯竭了，說白了就是沒錢了。而這也驗證了郭文貴先生說到的，九千萬黨員的工資發放已經成了大問題。
-
-再加上最近日本、美國陸續出台政策，由政府出資以幫助從中共國撤離工廠，而隨之撤離的不僅僅是外資企業，還有那些給外資企業做配套的公司。這無疑是對中共國的錢袋子予以致命一擊。而現在對九千萬黨員的工資還只是想盡辦法扣除一部分，那接下來工資發不出的情況還會遠嗎？
-
-如果九千萬黨員還不覺醒，繼續助紂為虐。那郭文貴先生提到的九千萬黨員必鬚麵對的四個核心問題一定會得到驗證，那時也將是你們的末日時刻。不信，那咱們就走著瞧！
-
-（文章內容僅代表作者觀點）
-
+斯伯丁將軍：重磅獨家：中國醫生石正麗繼美國項目因風險性太高於2014年被美國國土安全部（DHS）叫停後，（轉而）在武漢主導冠狀病毒研究——先前的洩漏曾導致研究院死亡（文章來源：The Gateway Pundit新聞網）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/12001804/image0.png-3.jpeg)
 0
