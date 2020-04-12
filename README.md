@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 班农战斗室114: 中共治下 中国人之地狱堕落 （上）<br>https://gnews.org/zh-hans/169850/
+
+[https://www.guo.media/posts/277612](https://www.guo.media/posts/277612) `2020-04-12T07:40:11`
+##
+
 **milesguo** <br>一位银行信用卡催收员告诉你<br>https://gnews.org/zh-hans/169778/
 
 [https://www.guo.media/posts/277611](https://www.guo.media/posts/277611) `2020-04-12T05:25:25`
