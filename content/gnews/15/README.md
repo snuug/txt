@@ -1,19 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月9日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-11 21:53 GM33` [轉載自GNews](https://gnews.org/zh-hant/169831/)
+## 一位銀行信用卡催收員告訴你
+`2020-04-11 22:33 GM30` [轉載自GNews](https://gnews.org/zh-hant/169789/)
 
-[English0409\_CCP\_Virus\_Updates\_RUS](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)
+**作者：miaofude**
 
-[French0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)
+我曾經是一名銀行信用卡催收員，並做到了主管位置，現在早已離職。今天我把銀行如何催收及如何擺脫催收的方法教給大家，安紅女士在一期節目中說自己也被瘋狂的催收過，近期我給曾經培養出來的主管打電話，詢問近期工作是否好做，他告訴我近期非常難回款，公司加大了催收力度。我深知被催收者對催收電話非常恐懼，沒錢還，天天接到短信和電話的騷擾，自己不接電話，催收電話就會打到親戚朋友那裡，真的很痛苦，尤其是來自親人朋友的壓力，最可恨的是他們一遍遍的打給父母。我教給大家的方法，不是百分百管用，但是應對一般的催收綽綽有餘，僅供大家參考，靈活運用。
 
-[German0409\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11223112/image0-89.jpg)
 
-[Japanese0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)
+信用卡的催收工作銀行都是委託給外包機構，比較大的催收外包機構有：華拓，天源，銀信，博岳，華道，中嘉這五家機構。當接到催收電話時大家先問他們是不是銀行外包機構的，若他們回答是，你就問他是哪家外包機構的，當你問他們是哪家外包機構的，催收員就知道你是內行，他們和你的談話就不會太過分，你若是有能力還就告訴他們一個還款時間，並告知在此期間不要打給自己的家人和朋友，若是沒有能力還就打銀行客服說明情況，因為疫情的原因造成自己沒能力還款需要申請延期還款。這次疫情是屬於不可抗拒力，每個人有理由和權力申請延期。他們若是不同意延期，仍然打很多催收電話，你就嚴厲的告訴催收員要投訴他們，投訴到銀監會，銀監會不給解決就在網上把銀行的這種催收行徑曝光，大家一定記得要通話錄音，並告知催收你的人你在全程錄音。戰友們，要學會保護自己，他們就欺負不懂法律的，用共匪自己制定的法律來應對他們。他們要是出現威脅和辱罵，你只要有錄音投訴他們，他們會百分百按你的要求進行賠償，戰友們不要怕那些催收的，理直氣壯的和他們說話。
 
-[Russia\_0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)
+戰友們，他們現在加大催收的力度，因為每個銀行都著急資金回籠，信用卡的借款比例一般都是一比十，就是欠3萬還3千，銀行現在很謹慎再放出去錢，所以近期看到很多人信用卡莫名奇妙的就被降額了，打客服問也問不出原因。戰友們，我們的再堅持一個多月，共匪就消失了，銀行也破產的破產清算的清算，你們也接不到催收的電話啦，堅持，把手機設置一下拒絕陌生電話，急死那些催收的。若是發現有催收人員用私人手機號打給你，你立馬告訴催收員，你要把他的這種行為向銀行舉報，對於銀行將個人信息進行洩露的行為起訴，並表示起訴到中國銀監會。
 
-[Spanish0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)
+介紹一下信用卡逾期的幾個階段，信用卡預期分幾個級別M0階段（逾期3-30天）這個階段就開始接到催收電話了，這時候的催收比較溫和。 M1階段（31-60天）這時候電話開始瘋狂起來，M2階段（61-90天），這個階段威脅更直白了，你接到的手機打來的電話多了，M3階段（90天以上）這個階段就會收到更多的短信，微信其他的方式的騷擾。共匪建立的徵信系統，純碎是監控和控制中國的邪惡系統，你的家庭住址和單位都在徵信系統裡能夠顯示，不要以為你更換了手機號他們就找不到你，在中國手機都是實名制，你換了手機號，共匪的徵信系統一查就查到新更換的手機號，包括你手機的通訊錄。他們可以通過徵信系統查到你有多少貸款和房產，家庭住址當然也可已查的到。大家是不是覺得他們太邪惡了！
+
+外包催收機構撥打電話的技術多數是思科系統（英語：Cisco Systems, Inc.）思科公司絕對是一個助紂為孽的企業，維基百科查了一下這家公司，思科被批評參與了[中華人民共和國互聯網審查](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E4%BA%92%E8%81%94%E7%BD%91%E5%AE%A1%E6%9F%A5)機制。美國作家Ethan Gutmann說，思科和一些其他通信設備**供應商向** [**中華人民共和國政府**](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E6%94%BF%E5%BA%9C) **提供了具有流量監控和過濾功能的互聯網設備，用來封堵網站和追踪網上一些活躍的** [**民運人士**](https://zh.wikipedia.org/wiki/%E6%B0%91%E9%81%8B%E4%BA%BA%E5%A3%AB) **。** 2006年2月， [美國國會](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E4%BC%9A)為此召開[聽證會](https://zh.wikipedia.org/wiki/%E8%81%BD%E8%AD%89%E6%9C%83) ，向思科、微軟、雅虎、Google四家公司提出質詢。美國中國信息中心的亨利·吳（Henry Wu，China Information Center）指責，思科不斷主動地與中國中央及各省國家安全部門聯繫，向其提供最新技術，包括警車間的即時通訊和指揮系統、以及聲音識別技術和指紋鑑別技術。記者Sarah Lai Stirland在[Wired News](https://zh.wikipedia.org/w/index.php?title=Wired_News&amp;action=edit&amp;redlink=1)發表了一篇文章，並公佈了一份洩漏的思科機密[PPT](https://zh.wikipedia.org/wiki/PPT)文檔。該文檔詳細描述了思科和中國政府在[金盾工程](https://zh.wikipedia.org/wiki/%E9%87%91%E7%9B%BE%E5%B7%A5%E7%A8%8B)上具有商業性質的合作。她還在文章中指責，思科在[市場營銷](https://zh.wikipedia.org/wiki/%E5%B8%82%E5%9C%BA%E8%90%A5%E9%94%80)中將這些技術明確劃分為“鎮壓工具（A Tool of Repression）”。思科的辯護者聲稱，實際上，在中國大陸現行的內容過濾系統中，路由器只是作為底層執行設備對人為指定的目的地址進行屏蔽，這是任何一台商用路由器都必須提供的基本功能，思科並沒有向中國政府提供特別開發和定制的互聯網設備。
+
+2013年6月中旬，思科被曝出參與美國的[棱鏡計劃](https://zh.wikipedia.org/wiki/%E6%A3%B1%E9%95%9C%E8%AE%A1%E5%88%92) 。 [愛德華·斯諾登](https://zh.wikipedia.org/wiki/%E6%84%9B%E5%BE%B7%E8%8F%AF%C2%B7%E5%8F%B2%E8%AB%BE%E7%99%BB)揭露， [美國國家安全局](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E5%B1%80)通過思科路由器監控[中華人民共和國](https://zh.wikipedia.org/wiki/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9C%8B)網絡和電腦。
+
+2019年當地時間5月16日，德國《每日鏡報》刊文指出，從2013年開始至今， [英國政府](https://zh.wikipedia.org/wiki/%E8%8B%B1%E5%9C%8B%E6%94%BF%E5%BA%9C) 、 [德國聯邦信息安全辦公室](https://zh.wikipedia.org/w/index.php?title=%E5%BE%B7%E5%9B%BD%E8%81%94%E9%82%A6%E4%BF%A1%E6%81%AF%E5%AE%89%E5%85%A8%E5%8A%9E%E5%85%AC%E5%AE%A4&amp;action=edit&amp;redlink=1)及[歐盟委員會](https://zh.wikipedia.org/wiki/%E6%AC%A7%E6%B4%B2%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9A)等機構總共發現了10起[後門](https://zh.wikipedia.org/wiki/%E8%BB%9F%E9%AB%94%E5%BE%8C%E9%96%80)事件。
+
+我們防火牆的建設及被監聽，思科絕對脫不了乾系。我相信他們一定也會受到審判和追責，只要跟共匪合作殘害人們，都不會有好下場！共匪，你完了，徹底的完了！思科，你還能走多遠？我們走著瞧！
+
+（文章內容僅代表作者觀點）
 
 0

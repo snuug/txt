@@ -1,33 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣州、武漢、四川，中共掩蓋疫情真相無處不在
-`2020-04-11 19:32 GM30` [轉載自GNews](https://gnews.org/zh-hant/169617/)
+## 2020年4月9日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-11 21:53 GM33` [轉載自GNews](https://gnews.org/zh-hant/169831/)
 
-**作者：立武**
+[English0409\_CCP\_Virus\_Updates\_RUS](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214720/English0409_CCP_Virus_Updates_RUS.pptx)
 
-4月10日，中共官方通報新增本土確診4例，其中3例為廣東廣州病例，廣東通報這3例皆為境外輸入關聯病例，其中2例是密切接觸者隔離排查，1例是醫療機構發熱門診排查。即使中共通報的假數字病例數非常少，我們依然可以看到，本土病例的來源排查一個是在隔離點，一個是在發熱門診。 **問題在於，即使是** **3** **例，這背後的關聯人數可能是非常大的，就單單是發熱門診，也不排除交叉感染的存在。**
+[French0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214627/French0409_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11192556/1-57.png)
+[German0409\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214644/German0409_CCP_Virus_Updates_-_Kopie.pdf)
 
-**同時，在4月5日，廣東有四個區疫情風險升級，其中有兩個區是在廣州，這表明風險升級的背後是確診人數的上升，絕非中共通報的假數字。而且，廣州作為外來人口非常多的城市，在無症狀感染者激增的情況下，交叉感染的風險是非常高的。**其中一個區越秀區被爆出黑人區暴雷的情況，儘管中共“闢謠”稱該區外國人口僅僅為三千多人，而且大部分還是以美國為主。
+[Japanese0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214655/Japanese0409_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11192624/2-70.jpg)
+[Russia\_0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214704/Russia_0409_CCP_Virus_Updates.pdf)
 
-事實上，中共可以把該區的部分黑人歸為其他區的人口而減少數目。 **在** **2017** **年中共的官方報導中，中共政協委員潘慶林在一份提案中介紹各方面統計廣東省有** **50** **萬的“黑人口”，其中合法入境的** **2** **萬人與中共公安官方通報的數字差距不大，而其餘的非法入境或過期居留的還在以每年** **30%-40%** **增長。**
-
-不管情況如何，黑人區爆發的風險顯然與中共利用金錢招黑人留學生和勞工有關係，和中共藍金黃非洲有很大的關係。同時，我們也可以知道，廣州的疫情風險在日益增加，可能爆發二次感染的情況。但是，中共一蓋的掩蓋疫情真相，只會讓爆發的風險加大。
-
-**武漢大學中南醫院呼吸與危重症醫學科首席專家稱，從三天的普查數據看，武漢的無症狀感染者大約有一兩萬，但截至4月9日，中共通報的數據表明湖北全省尚在醫學觀察的無症狀感染者是675例。**一種情況，中共認為其餘的一萬多無症狀感染者不需要進行“醫學觀察”，要么中共掩蓋了大量的數據，而且這還僅僅是武漢。近日，在武漢有數位網友拍到有人倒地，在武漢站在大智路，中共甚至闢謠稱是“飲酒過量”。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11192732/3-26.png)
-
-另外，根據中共官方通報，截至4月9日，四川省尚在醫學隔離治療或觀察的全部感染者是320例。然而在4月4日的一份緊急通知中，四川下達增設的集中隔離場所數額總共為52000間。 **即使，該通知可能是為了響應四川3月27日發布的《通知》中要求的新入境人員全部採取集中隔離措施，包括核酸陰性的。一方面，可以看出，中共對自己檢測的準確度是知根知底的；另一方面，4月4日的通知更可能是為了應對4月8日武漢的“解封”，這可以看出各地對於出武漢的人實際上是抱有戒備心理的，這實際上是中共對於自己政策的不信任。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11192808/4-44.jpg)
-
-從廣州、武漢到四川，中共掩蓋疫情真相和欺騙中國人民的影子無處不在， **後果是中國人甚麼時候死了因為什麼死的，都不知道，隨時可能因為感染上病毒而去世，卻不明不白，就像上面圖中拍的，晚上被人偷偷拖走。**感染上這個病毒，不管是被無症狀和有症狀感染上的，都可能有生命危險。中共不公佈疫情真相，將會導致更大的人道災難，不去複工，堅持做好防護，活著才是最大的希望。
-
-（文章內容僅代表作者觀點）
+[Spanish0409\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/11214715/Spanish0409_CCP_Virus_Updates.pdf)
 
 0
