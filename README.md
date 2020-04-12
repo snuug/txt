@@ -11,14 +11,29 @@
 
 
 
+**milesguo** 广播：2020/4/11 郭文贵先生GTV直播 中共上海会议开了啥？<br>https://gnews.org/zh-hans/169669/
+
+[https://www.guo.media/posts/277606](https://www.guo.media/posts/277606) `2020-04-12T04:40:13`
+##
+
 **milesguo** War Room113：让基辛格的修昔底德陷阱理论见鬼去吧<br>https://gnews.org/zh-hans/169571/
 
 [https://www.guo.media/posts/277604](https://www.guo.media/posts/277604) `2020-04-12T04:27:18`
 ##
 
+**milesguo** 共产党统治的日子里悲伤的故事一直都不曾远离<br>https://gnews.org/zh-hans/169506/
+
+[https://www.guo.media/posts/277603](https://www.guo.media/posts/277603) `2020-04-12T04:40:15`
+##
+
 **milesguo** 八角棒槌：UGC，中共的天敌<br>https://gnews.org/zh-hans/169493/
 
 [https://www.guo.media/posts/277602](https://www.guo.media/posts/277602) `2020-04-12T04:27:20`
+##
+
+**milesguo** Swagger: 中共病毒之下美元，美股，人民币和灭共的关系<br>https://gnews.org/zh-hans/169378/
+
+[https://www.guo.media/posts/277601](https://www.guo.media/posts/277601) `2020-04-12T04:40:16`
 ##
 
 **milesguo** 2020年4月10日CCP冠状病毒大流行第77集<br>https://gnews.org/zh-hans/169136/
