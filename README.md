@@ -16,9 +16,19 @@
 [https://www.guo.media/posts/277611](https://www.guo.media/posts/277611) `2020-04-12T05:25:25`
 ##
 
+**milesguo** 川普需要神指引的重大决定将会是什么<br>https://gnews.org/zh-hans/169761/
+
+[https://www.guo.media/posts/277610](https://www.guo.media/posts/277610) `2020-04-12T05:55:11`
+##
+
 **milesguo** 中共九千万党员需面对的【四个核心问题】正在逐一出现中<br>https://gnews.org/zh-hans/169721/
 
 [https://www.guo.media/posts/277609](https://www.guo.media/posts/277609) `2020-04-12T05:25:26`
+##
+
+**milesguo** 立武出品：万恶资本主义国家 发放疫情补贴一览表<br>https://gnews.org/zh-hans/169685/
+
+[https://www.guo.media/posts/277607](https://www.guo.media/posts/277607) `2020-04-12T05:55:13`
 ##
 
 **milesguo** 广播：2020/4/11 郭文贵先生GTV直播 中共上海会议开了啥？<br>https://gnews.org/zh-hans/169669/
