@@ -26,6 +26,11 @@
 [https://www.guo.media/posts/277609](https://www.guo.media/posts/277609) `2020-04-12T05:25:26`
 ##
 
+**milesguo** 2020年4月9日世界多种语言CCP病毒疫情图文每日播报<br>https://gnews.org/zh-hans/169686/
+
+[https://www.guo.media/posts/277608](https://www.guo.media/posts/277608) `2020-04-12T06:10:10`
+##
+
 **milesguo** 立武出品：万恶资本主义国家 发放疫情补贴一览表<br>https://gnews.org/zh-hans/169685/
 
 [https://www.guo.media/posts/277607](https://www.guo.media/posts/277607) `2020-04-12T05:55:13`
