@@ -11,9 +11,24 @@
 
 
 
+**milesguo** <br>一位银行信用卡催收员告诉你<br>https://gnews.org/zh-hans/169778/
+
+[https://www.guo.media/posts/277611](https://www.guo.media/posts/277611) `2020-04-12T05:25:25`
+##
+
+**milesguo** 中共九千万党员需面对的【四个核心问题】正在逐一出现中<br>https://gnews.org/zh-hans/169721/
+
+[https://www.guo.media/posts/277609](https://www.guo.media/posts/277609) `2020-04-12T05:25:26`
+##
+
 **milesguo** 广播：2020/4/11 郭文贵先生GTV直播 中共上海会议开了啥？<br>https://gnews.org/zh-hans/169669/
 
 [https://www.guo.media/posts/277606](https://www.guo.media/posts/277606) `2020-04-12T04:40:13`
+##
+
+**milesguo** 一张图看中共国官方外汇储备资产中美元含量<br>https://gnews.org/zh-hans/169619/
+
+[https://www.guo.media/posts/277605](https://www.guo.media/posts/277605) `2020-04-12T05:25:28`
 ##
 
 **milesguo** War Room113：让基辛格的修昔底德陷阱理论见鬼去吧<br>https://gnews.org/zh-hans/169571/
