@@ -11,6 +11,11 @@
 
 
 
+**milesguo** TNT Daily : CCP media tells Chinese peope that New York is overwhelmed by the number of unemployed resident<br>https://gnews.org/171151/
+
+[https://www.guo.media/posts/277645](https://www.guo.media/posts/277645) `2020-04-13T18:40:11`
+##
+
 **milesguo** The Farm: Miles Guo hints at CCP’s “AI virus”<br>https://gnews.org/171538/
 
 [https://www.guo.media/posts/277644](https://www.guo.media/posts/277644) `2020-04-13T17:10:13`
