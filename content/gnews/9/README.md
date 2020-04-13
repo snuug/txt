@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月11-12日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-13 07:21 GM33` [轉載自GNews](https://gnews.org/zh-hant/171369/)
+## 權力強姦科學——中共限制發表有關病毒來源的學術論文
+`2020-04-13 08:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/171437/)
 
-[French0411\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033310/French0411_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033310/French0411_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13082842/1-117.jpg)
+美國有限電視新聞網(CNN)4月13日在香港報導，根據中共當局發布的一項指令和兩所大學發布的在線公告，中共國限制了關於目前肆虐全球的CCP病毒起源的學術研究論文的發表，這些研究報告已經從網絡上刪除。根據現已刪除的禁令內容，有關病毒來源的研究將受到額外的審查，必須得到中央政府官員的批准。 CNN已經就此消息聯繫中共外交部並請其置評。
 
-[French04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033326/French04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033326/French04012_CCP_Virus_Updates.pdf)
+自去年12月CCP病毒在武漢市首次爆發以來，導致的瘟疫已經奪去了超過10萬人的生命，並使全球170萬人患病。
 
-[German\_0411\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033347/German_0411_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033347/German_0411_CCP_Virus_Updates_-_Kopie.pdf)
+1月下旬以來，中國的研究人員在有影響力的國際醫學期刊上發表了一系列的“ CCP病毒研究”，發布了關於早期冠狀病毒病例的一些研究結果，只是首次報告人傳人病例。這引發了了，對官方關於疫情爆發的描述產生質疑，並在社交媒體上引發了爭議。而現在，中共利益似乎正在加強對CCP病毒研究發表的控制。
 
-[German\_04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033357/German_04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033357/German_04012_CCP_Virus_Updates.pdf)
+一名因害怕報復而匿名接受采訪的中國研究人員說，當局這一舉動令人擔憂，可能會阻礙重要的科學研究發現。 “我認為這是政府為了控制引導輿論而採取的協調行動，並且把它描繪成好像疫情並不是起源於武漢，”該研究人員告訴CNN，這份通知是幾天前發布的，並且只有CCP病毒的研究需要接受額外的審查。
 
-[Japanese0411\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033410/Japanese0411_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033410/Japanese0411_CCP_Virus_Updates.pdf)
+這位要求匿名的研究人員說，“我不認為他們真的會容忍任何客觀的研究來調查這種疾病的起源”，在新的限制下，任何與官方聲明相違背的冠狀病毒研究都可能會胎死腹中不見天日。
 
-[Japanese04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033420/Japanese04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033420/Japanese04012_CCP_Virus_Updates.pdf)
+“我認為重要的是，國際科學界必須認識到，任何一篇來自中國研究機構的期刊或手稿已經被政府反複檢查過了”，研究員說，“讓世界知道在獨立的科學研究和最終發表之間有額外的步驟是非常重要的。”
 
-[Russia\_04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033602/Russia_04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033602/Russia_04012_CCP_Virus_Updates.pdf)
+根據中共教育部科技司的指示，“必須加倍嚴格地把關追踪病毒來源的學術論文”。該指令從大學的學術委員會開始，對這些論文進行層層審批，再送交教育部科技司，然後由其轉交給國務院下屬的一個工作組審查，只有在大學收到特別工作組的回復後，論文才能提交給期刊。其他關於CCP病毒的論文則由大學學術委員會根據研究的“學術價值”以及“出版時間”是否正確等條件進行審查。
 
-[Russia\_0411\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033438/Russia_0411_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033438/Russia_0411_CCP_Virus_Updates_.pdf)
+該指令是基於3月25日國務院預防和控制CCP病毒工作組召開的會議上發布的指示。該文件於週五上午首次發佈在上海復旦大學的網站上，復旦大學是中國一流的最高學府之一。 CNN記者拔通了通知的末尾的聯繫電話，教育部科技司的一名工作人員證實他們已經發布了這一指令。這位拒絕透露姓名的人士說：“這份文件不應該公開，它是一份內部文件。”幾個小時後，復旦大學的網頁被撤下。在武漢的中國地質大學也在其網站上發布了一份類似的通知，要求對CCP病毒論文進行額外審查。該網頁已被刪除，但被刪除的版本仍可訪問。
 
-[Spanish0411\_CCP\_Virus\_Updates\_ES](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033504/Spanish0411_CCP_Virus_Updates_ES.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033504/Spanish0411_CCP_Virus_Updates_ES.pdf)
+根據新政策，中共國內所有有關病毒的學術論文在提交發表前，均須經過額外審核。據一家醫學雜誌的編輯介紹，在中國，關于冠狀病毒的研究論文在交到醫師雜誌之前，要經過層層審查。中國《流行病學雜誌》編輯部主任王蘭說，CCP病毒的所有論文在提交給她的期刊後，都必須經過“重大課題”的審批程序。 “一直都是這樣，”她告訴CNN：“這些必須得到三級組織的批准。這是一個漫長的過程。”
 
-[Spanish04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033514/Spanish04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033514/Spanish04012_CCP_Virus_Updates.pdf)
+然而，中國部分社交媒體甚至當局似乎已經發起了一場運動來轉移關注病毒起源的視線。中共官員和官方媒體一再指出，目前還沒有關於病毒替代來源的選擇。上個月，中共外交部介入趙立堅在推特上宣揚了一個陰謀論，即該病毒起源於美國，並被美國軍方帶到中國。
 
-[English04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033612/English04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033612/English04012_CCP_Virus_Updates.pdf)
+華盛頓外交關係委員會全球健康高級官員黃嚴忠（Yanzhong Huang）表示， CCP 病毒的起源已經成為一個政治敏感的話題。研究結果不會挑戰其在病毒起源和政府應對危機方面的說辭。 ”他說。
+
+[原文鏈接](https://www.cnn.com/2020/04/12/asia/china-coronavirus-research-restrictions-intl-hnk/index.html)
+
+翻譯報導：意翎
 
 0
