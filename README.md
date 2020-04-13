@@ -11,6 +11,11 @@
 
 
 
+**milesguo** The Farm: Miles Guo hints at CCP’s “AI virus”<br>https://gnews.org/171538/
+
+[https://www.guo.media/posts/277644](https://www.guo.media/posts/277644) `2020-04-13T17:10:13`
+##
+
 **milesguo** 2020年4月12日CCP冠状病毒大流行第79集<br>https://gnews.org/zh-hans/171167/
 
 [https://www.guo.media/posts/277640](https://www.guo.media/posts/277640) `2020-04-13T10:10:33`
