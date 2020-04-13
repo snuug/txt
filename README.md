@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月12日CCP冠状病毒大流行第79集<br>https://gnews.org/zh-hans/171167/
+
+[https://www.guo.media/posts/277640](https://www.guo.media/posts/277640) `2020-04-13T10:10:33`
+##
+
 **milesguo** 2020年4月11日CCP冠状病毒大流行第78集<br>https://gnews.org/zh-hans/170100/
 
 [https://www.guo.media/posts/277624](https://www.guo.media/posts/277624) `2020-04-12T09:25:10`
