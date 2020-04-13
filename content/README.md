@@ -12,6 +12,8 @@
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
+
 [文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
 
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/2020/04/20200410-1671828290392113200.md)
@@ -59,8 +61,6 @@
 [文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
 
 [文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
-
-[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
 
 
 ## 頁面 1/25 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [25](/content/README-25.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
