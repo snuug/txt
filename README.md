@@ -431,8 +431,3 @@
 [https://www.guo.media/posts/277477](https://www.guo.media/posts/277477) `2020-04-09T22:25:22`
 ##
 
-**milesguo** 2020年4月8日CCP冠状病毒大流行第75集<br>https://gnews.org/zh-hans/166883/
-
-[https://www.guo.media/posts/277447](https://www.guo.media/posts/277447) `2020-04-09T10:10:13`
-##
-
