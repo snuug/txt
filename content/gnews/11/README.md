@@ -1,29 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月11-12日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-13 07:21 GM33` [轉載自GNews](https://gnews.org/zh-hant/171369/)
+## 歐美政府出錢將企業撤離中共國，全球經濟脫鉤，留給我們的時間不多了
+`2020-04-13 09:52 GM30` [轉載自GNews](https://gnews.org/zh-hant/171529/)
 
-[French0411\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033310/French0411_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033310/French0411_CCP_Virus_Updates.pdf)
+**作者：文小明**
 
-[French04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033326/French04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033326/French04012_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13093628/2345%E6%88%AA%E5%9B%BE20200413213530-1.png)
 
-[German\_0411\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033347/German_0411_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033347/German_0411_CCP_Virus_Updates_-_Kopie.pdf)
+為了重啟經濟，各國的政府都開始猛給自己打雞湯了，這裡面就包括把在華的企業搬回自己的國家。當初、美國、日本等企業為什麼要來中國開廠？ **很簡單，有錢賺！**如今，為什麼要搬回去？也很簡單， **供應鏈掌握在別人手裡，拿著錢都未必能救命，**比如在新冠疫情下，口罩、手套、呼吸機等都成了比黃金還保值的東西。搬回去既能給本國提供就業機會，也能不再受制於人。 “去中國製造”似乎越來越明顯了，留給我們的時間還有多少？
 
-[German\_04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033357/German_04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033357/German_04012_CCP_Virus_Updates.pdf)
+4月6日，日本公佈了一項近1萬億美元的經濟刺激計劃，其中**有大約22億美元是用於幫助日企將生產線搬回國內** （20億美元）或者東南亞、非洲（2億美元）。
 
-[Japanese0411\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033410/Japanese0411_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033410/Japanese0411_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13093649/1-68.png)
 
-[Japanese04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033420/Japanese04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033420/Japanese04012_CCP_Virus_Updates.pdf)
+日本已經開始動作了，而美國也沒閒著。
 
-[Russia\_04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033602/Russia_04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033602/Russia_04012_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13093741/2-39.png)
 
-[Russia\_0411\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033438/Russia_0411_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033438/Russia_0411_CCP_Virus_Updates_.pdf)
+4月9日，美國白宮首席經濟顧問庫德洛表態：美國聯邦政府為想要離開中國的美國企業負擔包括廠房、設備、IP、結構、翻新等所有費用，也就是說**美國企業從中國搬回美國的所有支出，美國政府全部買單。**美日幾乎一起動作，“去中國製造”已經箭在弦上。實際上，很多國家一直想擺脫供應鏈過分依賴中國的境況，只是新冠疫情加速了它的到來。
 
-[Spanish0411\_CCP\_Virus\_Updates\_ES](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033504/Spanish0411_CCP_Virus_Updates_ES.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033504/Spanish0411_CCP_Virus_Updates_ES.pdf)
+美國《華爾街日報》2月23日報導稱，2003年爆發SARS疫情時，全球經濟相對未受影響，因為彼此依賴程度不是很高。如今，近20年過去了， **全球供應鏈越來越依賴中國市場，新冠疫情的衝擊已經讓整個世界被波及。**因為， **中國製造一旦停滯，世界供應鏈就斷了，全球經濟脫鉤不得不提速了。**
 
-[Spanish04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033514/Spanish04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033514/Spanish04012_CCP_Virus_Updates.pdf)
+比如，美國對華信、華為、瑞賢咖啡、阿里巴巴等的連續制裁，使得美國逐步建立自己的供應鏈，歐美等過供應鏈越來越少，這就是硬件去中國化的成功。同理，全球很多國家依賴中國的工廠生產許多中間產品和製成品，世界各地的製造商都離不開中國。在新冠疫情衝擊下，經濟受挫，失業人員大增，供應鏈停滯，使得全球的國家看到了過度依賴一個關鍵市場的後果。
 
-[English04012\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033612/English04012_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13033612/English04012_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13093848/4-53.jpg)
+
+2018年， **中國的製造業增加值超過了4萬億美元，約為全球所有國家和地區的製造業增加值總和的27%。**而美國的製造業增加值剛剛超過2.3萬億美元（全球佔比15.55%），日本的製造業增加值約為1.01萬億美元（全球佔比超過6.8%），德國的製造業增加值超過了8300億美元（全球佔比5.6%），美**國、日本、德國三國加起來才和中國製造業份額差不多。**這不得不讓全球各國都考慮在未來數十年如何保持自己的經濟高速增長，如何過好自家的生活。 **那就是建立自己的工業和製造體系，全球經濟逐步脫鉤，**而這個動作已經持續好幾年了，只是新冠疫情加速了這種趨勢，現在愈發明顯了。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13093933/5-25.png)
+
+在中國疫情爆發的時候時，美國商務部長羅斯的表示， **這次疫情，有助於製造業回歸美國。即使有些製造業搬不回美國，那最好也離開中國。最終**疫情在美國爆發。 **在全球疫情爆發的情況下，中國政府非但沒有控制疫情，而且要求全民複工復產，在經濟停擺的2個月內，全球供應鏈已經快崩潰了。**全球生產的原料藥有2000多種，中國生產的原料藥就超過了1500種，佔了世界的3/4。不僅有抗生素，更有各類維生素，以及胰島素、止痛藥及、抗抑鬱藥、艾滋病等藥物。甚至連特朗普要求從印度進口藥物，印度也不給，理由是原料都是中國來的，自己也沒儲備藥物了。其它的大到高科技產品、小到日常家電百貨，服裝、消費品，中國停工，全球幾乎都陷入了停擺。對此，各國都意識到： **必須加速全球經濟脫鉤，建立自己的供應鏈體系。甚至**法國盟友馬克龍都要求到5月底之前，法國徹底擺脫對中國口罩和醫療物資的依賴。我們的老鐵巴基斯坦從發現中國造的假口罩開始，軍火的訂購都轉向了歐洲。 CCP，你的信用體系真的徹底崩塌了！
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13094058/6-16.png)
+
+最近，特朗普就表態，要把製造業搬回美國， **未來美國將獨立於全球供應鏈之外，成為一個自給自足的國家。**如今，甚至做出了100%全包的承諾，這個優惠力度有點大。
+
+緊隨其後的是日本，日經中文網4月10日報導，日本貿易振興機構（JETRO）發布2019年度“日本企業海外事業展開相關問卷調查（JETRO海外經濟調查）”顯示，對9,975家企業進行了問卷調查， **有半數日本企業今後選擇本土和越南的比例逐步加大。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13094142/7-13.jpg)
+
+雖然，日本政府提供22億美元來把企業撤離中國，這點錢對於轉移產業鏈當然是杯水車薪，一家企業資產可能都可能比這個多，但是背後體現的日本政府的動機和計劃就讓人擔憂了。
+
+**那就是疫情已經使得全球化出現逆轉，各國都意識到實體經濟、製造業的重要性。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13094239/2345%E6%88%AA%E5%9B%BE20200413214223-1.png)
+
+**美國、日本這樣公開宣傳了，韓國、歐盟等國家還有多少國家會陸續效仿？**
+
+全國自動滅共的步伐越來越一致，一切都已經開始。
+
+CCP，你完了！
+
+（文章內容僅代表作者觀點）
 
 0
