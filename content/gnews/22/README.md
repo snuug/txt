@@ -1,101 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月13日美國政要推文選譯
-`2020-04-13 21:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/171956/)
+## 別的國家想盡辦法補貼老百姓，中共連一個口罩都沒給過我！
+`2020-04-14 01:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/172134/)
 
-> The Chinese Communist Party denies people basic human rights, intentionally compromises global supply chains, and allowed a deadly virus to spread beyond China's borders.
-> 
-> China is part of the new axis of evil. [pic.twitter.com/3gm1OfR84o](https://t.co/3gm1OfR84o)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 13, 2020](https://twitter.com/MarshaBlackburn/status/1249756074644668416?ref_src=twsrc%5Etfw)
+**作者：滅共日記**
 
-參議員Marsha Blackburn：中共否定人民的基本權利，蓄意損害全球供應鏈，並聽任致命病毒擴散到中國境外。中國是新邪惡軸心的一員。
+由於中共病毒，全世界多個國家紛紛封城、減少聚集、在家隔離等措施。這也意味著這些老百姓將處於“手停腳停”的過程，各國政府為了保障居民的基本生活，紛紛出台各種舉措。各國發錢的發錢，免生活費的免生活費。
 
-（編者註：需要更多的戰友行動起來，讓美國政府官員知道中國人也是反對中國政府的，中國人≠中共/中共國。）
+**1** **加拿大**
 
-> Communist China is trying to rewrite history and hide its massive failure in handling the pandemic. But the world will not forget. This is China’s fault. [https://t.co/DTLuk2KiCq](https://t.co/DTLuk2KiCq)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 13, 2020](https://twitter.com/MarshaBlackburn/status/1249811353944145924?ref_src=twsrc%5Etfw)
+加拿大以福利出名，此次疫情期的福利也相當給力。加拿大政府撥款**820億加元(4137381415.44人民幣）**資金，幫助民眾渡過疫情時期。所有因疫情失去收入的加拿大人，都可以獲得每月**2000加元（10091.17人民幣）**的加拿大緊急救助金，並可以持續領取4個月，合計最高**8000加元(40364.70人民幣)。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014056/1-123.jpg)
+**2** **美國**
 
-參議員Marsha Blackburn：中共國試圖改寫歷史並掩蓋其應對疫情爆發中巨大的失敗。然而世界不會忘記。這是中國的錯。
+特朗普和財政部長姆努欽宣布將推出一項超過**1.2萬億美元**的經濟刺激計劃。這其中**3000億美元**用於小企業貸款， **2000億美元**作為穩定基金， **2500億美元**用於給民眾發放現金。而發錢的標準為成人**1000美元(7054.60人民幣）** ，兒童**500美元（3527.30人民幣)** ，一家四口六週內可以拿到**6000美元（42327.60人民幣）** ！
 
-福克斯新聞：分析師稱，中國壓制冠狀病毒研究明顯是要控制言論
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014124/2-93.jpg)
 
-> Chinese government trolls run rampant on Twitter and this? [https://t.co/z8YBxi8BTb](https://t.co/z8YBxi8BTb)
-> — Bill Gertz (@BillGertz) [April 13, 2020](https://twitter.com/BillGertz/status/1249717617830625280?ref_src=twsrc%5Etfw)
+**3** **英國**
 
-比爾·格茨先生：推特上中國政府的網絡噴子們愈加猖獗，這是？
+政府將為全國所有因為疫情而不能工作的人支付80%的薪水，金額最高達每月每人**2500** **英鎊** **(22049.94** **人民幣）** ，一直到疫情結束；同時給公司12個月無息貸款；疫情期間所有繳納不起房租的住戶免房租，房東的損失有政府補；銀行房屋貸款三個月免付；全英學校關閉，但學校繼續負責照看8 類特殊家庭的孩子【包括醫務人員，教育和社會工作人員，基礎設施人員，政府工作人員，食物和必要服務人員，公共和國家安全人員，交通相關人員】；
 
-Raheem Kassam：推特無理由地凍結了班農的“疫情戰斗室”賬號
+**4** **愛爾蘭**
 
-> BREAKING: Twitter has reinstated our [@WarRoomPandemic](https://twitter.com/WarRoomPandemic?ref_src=twsrc%5Etfw) account. 
-> 
-> Though our follower count has magically gone from 22,060 to just 64. [pic.twitter.com/eXYTbpR1Ca](https://t.co/eXYTbpR1Ca)
-> — Raheem Kassam 😷 (@RaheemKassam) [April 13, 2020](https://twitter.com/RaheemKassam/status/1249736804372115456?ref_src=twsrc%5Etfw)
+愛爾蘭政府撥款24億歐元，用於應對新冠肺炎疫情。
 
-比爾·格茨先生轉推：突發新聞：推特已恢復我們的@疫情戰斗室賬號。不過我們的關注量神奇地從22060降到了僅64.
+**5** **德國**
 
-（編者註：請關注班農先生的[疫情戰斗室](https://twitter.com/WarRoomPandemic)推特賬號和[班農戰斗室中文版](https://web.gtv1.org/web/#/UserInfo?id=5e8cf14849080f0e9c6ae5b8) GTV賬號）
+德國出一項用於救助小企業和自由職業者的民生政策，計劃總預算為500億歐元。方案包括，小企業主（1至5人就業的公司）個體戶如藝術家、職業攝影師、護理員等，每月可得到**9000** **歐元（** **69301.18** **人民幣）**的補貼，為期三個月；5人至10人的公司可獲**15000** **歐元** **(115501.97** **人民幣）**的補貼，為期三個月。
 
-> Chinese government imposed new restrictions on publishing scientific studies on the origin of Wuhan virus in latest sign Beijing is hiding info on the source of the outbreak [https://t.co/B18I82jNuj](https://t.co/B18I82jNuj)
-> — Bill Gertz (@BillGertz) [April 14, 2020](https://twitter.com/BillGertz/status/1249861194825060353?ref_src=twsrc%5Etfw)
+**6** **法國**
 
-比爾·格茨先生：中國政府對有關武漢病毒來源科研文章的發表施加新的限制，這是北京正在隱瞞疫情爆發源頭的最新跡象。
+法國政府準備拿出3000億歐元打贏這場抗疫之戰，不讓任何一家法國企業倒閉，為法國居民減免生活費用，房租、電費、稅費、燃氣費都不用交了，稅也不用交了，全免費。
 
-《華盛頓時報》：因新報告駁斥中國官方報導的死亡人數，中國嚴厲打擊冠狀病毒數據（研究）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014201/3-73.jpg)
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) again trying to suppress the truth about the origins of this disease in Wuhan. This is why we need an international commission to report the facts to the world AND to assess damages [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party must pay [https://t.co/uAZgx1Cx4P](https://t.co/uAZgx1Cx4P)
-> — Josh Hawley (@HawleyMO) [April 13, 2020](https://twitter.com/HawleyMO/status/1249728208074870786?ref_src=twsrc%5Etfw)
+**7** **意大利**
 
-參議員Josh Hawley：中國又試圖壓制在武漢的這個疾病源頭的真相。所以我們需要一個國際任務組向世界報告真相並評估中共必須做出的損害賠償。
+意大利政府撥款250億歐元用於抗擊新冠疫情，對於被迫停工在家的家長，父母將獲得15天的補助，每天的補助金額為父母日薪的一半。對於在崗員工發放**100** **歐元** **(770.01** **人民幣）**津貼，對於受疫情影響嚴重的自由職業者、季節性臨時工人，以及旅遊業、農業、文化娛樂場所等工作人員，一次性發放**500** **歐元（** **3850.07** **人民幣）**津貼。此外，意大利政府將用退稅的方式，把店鋪3月租金的60%退還給商家。
 
-CNN新聞：中國限制對冠狀病毒源頭的研究
+**8** **西班牙**
 
-> Communist China is once again trying to hide the truth about the origins of the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
->  
-> China is responsible for this outbreak and the world deserves to know more. This censorship needs to stop. [https://t.co/FKJwq6MUcV](https://t.co/FKJwq6MUcV)
-> — Rick Scott (@SenRickScott) [April 13, 2020](https://twitter.com/SenRickScott/status/1249737106039222272?ref_src=twsrc%5Etfw)
+西班牙政府將調動2000億歐元以應對疫情對公司、個體戶和工人的巨大影響，以減輕中小企業主的負擔。
 
-參議員Rick Scott：中共國再一次試圖掩藏冠狀病毒來源的真相。中國在疫情爆發上負有責任，全世界應該了解更多（相關信息）。這種審查屏蔽行為必須停止。
+**9** **葡萄牙**
 
-CNN新聞：根據（中共國）中央政府的指示和兩所中國大學在網上公佈的通知，中國限制了對新冠病毒來源的學術研究文章的發表。學術論文隨即被從網上刪除。
+葡萄牙政府宣布拿出92億作為補償金，幫助葡萄牙企業和人民渡過難關。
 
-> [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) pandemic, a wakening call to understand the Chinese Communist party's vision, mission and activities. Since 2008 Israel is not permitting its citizens to get organs in China becasue they orginate from harvesting political & religious prisoners [https://t.co/fBmzXBqq87](https://t.co/fBmzXBqq87) [pic.twitter.com/oQv9rwOsWe](https://t.co/oQv9rwOsWe)
-> — Adam Milstein (@AdamMilstein) [April 12, 2020](https://twitter.com/AdamMilstein/status/1249479408068395008?ref_src=twsrc%5Etfw)
+**10** **希臘**
 
-斯伯丁將軍轉推：
+希臘政府疫情期間補助每人**800** **歐元** **(6160.10** **人民幣）** ，希臘政府將動用4億歐元來支付補償金，覆蓋人數約50萬。
 
-Adam Milstein：冠狀病毒疫情大爆發，警醒人們如何理解中共的企圖、任務和行動。自2008年，以色列就禁止其公民從中國獲取人體器官，因為這些器官活摘自政治犯和宗教犯。
+**11** **丹麥**
 
-> And they just closed the nation’s largest pork producing plant indefinitely [https://t.co/DJiPF64jiP](https://t.co/DJiPF64jiP)
-> — General Spalding (@robert\_spalding) [April 13, 2020](https://twitter.com/robert_spalding/status/1249667956541460482?ref_src=twsrc%5Etfw)
+受疫情影響的企業要裁員或破產時，政府支付75%工資補償（最高限額23000克朗），企業支付25%。
 
-斯伯丁將軍：而他們剛剛無限期關閉了這家全國最大的豬肉加工廠。
+**12** **澳大利亞**
 
-KSolo（Min）：過去由美國人擁有的Smithfield農場現在由中國所有。中共一直在系統地收購美國公司，以增強他們的世界實力，目前美國有3000萬英畝農田歸外國所有。美國人應該擁有自己的土地，養活自己的家人。
+每人**750澳元(3366.45元人民幣)** ，給留學生**1500-7500澳元(6732.90人民幣–33664.49元人民幣)一次性補貼。**
 
-> When is a promise meaningless… [https://t.co/godH42NJVU](https://t.co/godH42NJVU)
-> — General Spalding (@robert\_spalding) [April 13, 2020](https://twitter.com/robert_spalding/status/1249673435531431938?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014337/4-56.jpg)
 
-斯伯丁將軍：當承諾變得毫無意義…
+**13** **新西蘭**
 
-Frank Luntz：一年前，富士康堅稱它在威斯康星州的廠房沒有空置。今天，他們在威斯康星州的廠房看上去依舊如此：
+疫情期間新西蘭政府為了挽救疫情帶來的經濟下滑，狂砸120億紐幣，相當於新西蘭GDP的4%。一次性發過冬電費**1400** **紐幣** **(6005.52** **人民幣）**每對夫妻。另外還拿出35億補貼拿低保的貧困家庭，每個家庭每月增加**100** **紐幣** **(428.97** **人民幣）**的低保補助。
 
-> "In the U.K., a conservative think tank estimated that Group of Seven nations alone could sue China for 3.2 trillion pounds ($3.9 trillion) in damages, over breaches of international health regulations."[https://t.co/f10jCUV2uP](https://t.co/f10jCUV2uP)
-> — General Spalding (@robert\_spalding) [April 13, 2020](https://twitter.com/robert_spalding/status/1249724000542097414?ref_src=twsrc%5Etfw)
+**14** **新加坡**
 
-斯伯丁將軍：“在英國，一個保守派智庫預測，僅G7國家就可以因中國違反國際衛生條例而起訴他們，索賠3.2萬億英鎊（3.9萬億美元）損失費。”
+新加坡的財政預算案將撥出額外8億新幣支持前線抗疫工作，並推出總值56億新幣的關懷與援助配套和經濟穩定與支援配套。所有在今年滿21歲或以上的新加坡人將可獲得300新幣、200新幣或100新幣的現金。新加坡一戶年輕家庭將能在關懷與援助配套下享有最多**1300** **新幣** **(6478.23** **人民幣）**的補助，一戶三代同堂的家庭將能享有高達**1800** **新幣（** **8969.85** **人民幣）**的補助。
 
-日本經濟新聞·亞洲：冠狀病毒為台灣在歐洲敲開了外交之門
+**15** **日本**
 
-> China-Africa relations rocked by alleged racism over Covid-19 [https://t.co/rr8U4aIOyD](https://t.co/rr8U4aIOyD) via [@financialtimes](https://twitter.com/FinancialTimes?ref_src=twsrc%5Etfw)
-> — General Spalding (@robert\_spalding) [April 13, 2020](https://twitter.com/robert_spalding/status/1249737088255197185?ref_src=twsrc%5Etfw)
+日本政府向每家每戶發放三個口罩，一直發兩個星期。可申請一個月高達16000人民幣一個月的補助。
 
-斯伯丁將軍：中非關係因冠狀病毒帶來的所謂種族主義而動搖（文章來源《金融時報》）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014421/5-30.jpg)
 
-[Tweets by robert\_spalding](https://twitter.com/robert_spalding?ref_src=twsrc%5Etfw)
+**16** **韓國**
 
-斯伯丁將軍：關於21世紀競爭的精彩文章
+韓國撥款3271億韓元向居民提供財政補貼，擁有兩個家庭成員的家庭將獲得**30** **萬韓元（** **1737.91** **人民幣）** ，而擁有五個家庭成員的家庭將獲得**50** **萬韓元（** **2896.52** **人民幣）。**
 
-《國家利益》雜誌：新世界構建地緣政治力量的新指標
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13214359/06_54.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/13214241/1-4-1.png)
-1
+在說說中國，4月10日國務院聯防聯控機制召開的新聞發布會，為困難群眾發放價格臨時補貼。截至目前，全國共為6155.3萬人次的困難群眾發放補貼18.8億元，其中低保對象5446萬人次，特困對象639萬人次，低收入家庭等其他困難群眾70.3萬人次， **月人均獲得補貼47元。**其中，湖北省為370萬人次發放了價格臨時補貼4.4億元， **人均獲得補貼120元** 。按今天匯率算，中國受疫情影響的困難群眾，每人可以拿不到7美元的補助。 7美元對美國的1200美元，真不知道，厲害了我的國，這個牛逼中國還怎麼吹？好多國家是全民補貼，一直宣稱是強國的中國卻只補貼6000多萬人。況且特困人口不是在2020年就已經清零了嗎？這每個月的47元老百姓真的能拿到手嗎？既然是困難群眾一個月47元，你是讓他們活還是死啊？每天平均下來一個人就1.56元，連一袋鹽都買不起怎麼活？有些粉紅說國情不一樣，中國人口多，收稅的時候怎麼沒看見中共嫌人口多呢？全世界比較，共產黨發錢最少，遠比發給壓榨人民的紅袖章少。既然向14億人納稅，為什麼只給部分“困難戶”發錢？而且這些困難戶當中有多少是中共內定的？這錢最終的去向還是在共產黨手裡。既然向14億人納稅，就該給14億人發錢！現在的做法明顯是收錢的時候用關公的大刀，救濟老百姓用掏耳勺啊！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14014507/6-20.jpg)
+有人會反駁說中國之前還有免費試劑盒，有免費治療，有免費隔離。我想說，全世界80%的國家醫療基本都是免費的，免費的醫療明明是一個國家政府應該給老百姓承擔的，怎麼到現在倒成了給老百姓的福利了呢？這錢都是這麼多年中共盜國賊瓜分百姓的錢，都是我們自己的錢啊。再說說免費試劑盒和免費隔離，前段時間土耳其，西班牙，捷克購買的中國試劑盒準確率只有30%，出口的產品質量都能差到這樣，那給中國老百姓用的質量可能準確率完全會低於30%，也就說70%的人可能錯檢。那這樣的免費試劑盒還是不用的好。免費隔離就更不存在了，老百姓看到的免費隔離，都是中共讓你看到的，有多少老百姓因為一個月的強制隔離費用傾家蕩產。
+
+大家一定記住，中共不可能像歐美那麼發錢的，因為在中共眼里中國人就是奴隸，你看過給奴隸可分配物資的嗎？疫情補助47元，真大方啊，這就相當於往長江里打了個雞蛋，讓全國人民都吃上了蛋花湯！我最後還想說一句，我生活的省會城市，到現在TMD連一個免費口罩中共都沒發過！
+
+GNEWS之前文章：
+
+中共病毒的潘多拉盒子已然打開！ [https](https://gnews.org/zh-hans/170257/) [://](https://gnews.org/zh-hans/170257/) [gnews](https://gnews.org/zh-hans/170257/) [.](https://gnews.org/zh-hans/170257/) [org](https://gnews.org/zh-hans/170257/) [/](https://gnews.org/zh-hans/170257/) [zh](https://gnews.org/zh-hans/170257/) [–](https://gnews.org/zh-hans/170257/) [hans](https://gnews.org/zh-hans/170257/) [/170257/](https://gnews.org/zh-hans/170257/)
+
+中共前中興通訊獨立董事鮑毓明[https](https://gnews.org/zh-hans/169984/) [://](https://gnews.org/zh-hans/169984/) [gnews](https://gnews.org/zh-hans/169984/) [.](https://gnews.org/zh-hans/169984/) [org](https://gnews.org/zh-hans/169984/) [/](https://gnews.org/zh-hans/169984/) [zh](https://gnews.org/zh-hans/169984/) [–](https://gnews.org/zh-hans/169984/) [hans](https://gnews.org/zh-hans/169984/) [/169984/](https://gnews.org/zh-hans/169984/)
+
+當今社會竟有母親販賣親生女兒[https://gnews.org/zh-hans/169055/](https://gnews.org/zh-hans/169055/)
+
+（文章內容僅代表作者觀點）
+
+0
