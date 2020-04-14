@@ -1,19 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄媒：蓬佩奧稱一定要找出病毒的禍首
-`2020-04-14 07:32 GM09` [轉載自GNews](https://gnews.org/zh-hant/172514/)
+## 新加坡學者稱 70%無症狀傳播
+`2020-04-14 09:34 GM09` [轉載自GNews](https://gnews.org/zh-hant/172604/)
 
 作者：多國語言組
 
-美國國務卿蓬佩奧在接受德國《Bild》雜誌社的採訪時再次指責中共國"掩蓋問題"，沒有及時提供疫情數據，並表示今後將認真調查疫情原因，找到罪魁禍首。 "遺憾的是，這次在中共國武漢開始流行的疫情，其病毒並沒有迅速被人們所熟知。
+新加坡學者認為，無症狀的病毒攜帶者比例高達70%，他們可以在不知情的情況下感染他人。
 
-蓬佩奧說："中共政府和中共沒有及時提供這一信息。 並且他稱，疫情結束的時候，需要確定中共國的罪責，也會有關於罪魁禍首的討論。
+"研究表明，50%至70%已經感染了冠狀病毒的人沒有任何症狀，在這種情況下，他們可以保持長達4週的時間傳播病毒。"俄羅斯傳染病專家里昂·諾特說道。
 
-"必須了解病毒是如何開始的以及在哪裡開始的….. 問責禍首的時刻即將來臨，我們必須把注意力放在當前的工作上，重啟美國經濟然後是世界經濟。在這之後就到了審判的時候了。"蓬佩奧說道。
+同時，他認為，即使病毒感染者不發病，最終也會產生免疫力，然而這可能需要幾年的時間。而新加坡國家傳染病中心執行主任劉亦欣（音譯）則認為，無症狀病毒攜帶者的病毒傳播是主要問題之一。因為沒有症狀，因此他們可以繼續自己的日常生活並自由地傳染病毒。
 
-編者按：俄羅斯開始切割中共？
-
-來源： [https://www.pravda.ru/amp/news/world/1488533-pompeo\_poobeshchal/?\_\_twitter\_impression=true](https://www.pravda.ru/amp/news/world/1488533-pompeo_poobeshchal/?__twitter_impression=true)
+俄消費者權益監督局負責人安娜.波波娃此前曾說，在俄羅斯的冠狀病毒患者中有40%以上是無症狀感染者。 
+來源： [https://yandex.ru/turbo?utm\_source=turbo\_turbo&text=https%3A%2F%2Fiz.ru%2F999518%2F2020-04-14%2Fuchenye-singapura-zaiavili-o-bessimptomnoi-peredache-virusa-v- 70-sluchaev](https://yandex.ru/turbo?utm_source=turbo_turbo&amp;text=https%3A%2F%2Fiz.ru%2F999518%2F2020-04-14%2Fuchenye-singapura-zaiavili-o-bessimptomnoi-peredache-virusa-v-70-sluchaev)
  
 0

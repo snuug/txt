@@ -1,18 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麥當勞廣州店因歧視黑人遭暫停營業
-`2020-04-14 07:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/172476/)
+## War Room: Pandemic推特賬戶被封
+`2020-04-14 08:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/172551/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14064112/Picture-1-195.png)
-據《香港自由新聞》4月13日報導，因中共病毒肆虐，許多中共國南方城市的非洲人口都遭到強制驅逐，隔離和大規模檢測。在尼日利亞社區感染爆發後，非裔群體更是成為眾矢之的，一些人被迫流落街頭，不允許進入餐廳和市場。
+在4月13日的[第116期](https://www.youtube.com/watch?v=L7KjJBH7diA)節目中，班農先生指出[War Room: Pandemic推特賬戶](https://www.twitter.com/warroom2020)被封，而這一切就發生在“墜入地獄，中國人民被CCP統治的生活”節目之後。他進一步指出：“美國精英不但出賣美國人民還出賣中國人民……並且，我們正在與CCP的戰爭中，信息戰和經濟戰。”
 
-Black Livity China上週日於推特[分享了一個視頻](https://twitter.com/BlackLivityCN/status/1249011762638266374) ，視頻顯示廣州某家麥當勞在門口貼出告示，拒絕黑人顧客入內，並敦促非裔人士自覺隔離，並建議其通知當地警方。
+今天迫於各方壓力，推特公司重新恢復了班農先生的War Room:Pandemice 推特賬號。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14075215/twitter-2-1.jpg)
+延伸閱讀：[Twitter Suspends Bannon’s ‘War Room: Pandemic’](https://gnews.org/171556/)
 
-週一，麥當勞公司發言人聲明，此舉從未得到公司授權，也不符合公司的包容性價值觀，並已勒令分店撤銷告示，暫停營業。在停業期間，公司將加強對經歷與員工的價值觀教育，其中包括為社區內的所有成員提供平等的服務。
-
-[原文鏈接](https://hongkongfp.com/2020/04/13/coronavirus-mcdonalds-temporarily-closes-chinese-branch-which-banned-black-people/)
-
-翻譯報導：文天
+*速記：【DDM】 翻譯：【JasonZZZ(小林)】 校對：【GM31】 字幕：【小南】*
 
 0

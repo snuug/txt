@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月13日CCP冠状病毒大流行第80集<br>https://gnews.org/zh-hans/172058/
+
+[https://www.guo.media/posts/277654](https://www.guo.media/posts/277654) `2020-04-14T16:40:20`
+##
+
 **milesguo** TNT Daily : CCP media tells Chinese peope that New York is overwhelmed by the number of unemployed resident<br>https://gnews.org/171151/
 
 [https://www.guo.media/posts/277645](https://www.guo.media/posts/277645) `2020-04-13T18:40:11`
