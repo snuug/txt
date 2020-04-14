@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重啟美國
-`2020-04-14 09:54 GM31` [轉載自GNews](https://gnews.org/zh-hant/172623/)
+## 班農：中共想要美國下跪磕頭
+`2020-04-14 11:18 GM31` [轉載自GNews](https://gnews.org/zh-hant/172642/)
 
-在[4月8日](https://youtu.be/QG7SGb4vQsY) ， [9日](https://youtu.be/oqrvv47d1DY)和[10日](https://youtu.be/BjNuiJXEw00)的白宮疫情通報會上，川普總統與白宮團隊陳述了美國重新開放的條件，以及白宮第二個任務團隊誕生——“開放我們的國家團隊”。川普總統與彭斯副總統都堅持: “當我們能夠負責任地這樣做時，我們將開放它，將美國的健康放在首位並重新開啟美國，並且持續地開啟，並保持開放的美國。 ”
+在[第117期](https://www.youtube.com/watch?v=s16Hi3ksZEg)的War Room Pandemic節目中，班農先生和塞耶博士認為是美國的利益集團將中共培植成了世界工廠，並使其反而擁有了在各領域脅迫美國的能力。不僅如此，中共日益膨脹的野心也促使中共想要美國在其面前屈服。
 
-*翻譯&字幕：【Freela】 校對：【Winston Jackson】*
+*翻譯：【Winston Jackson】 校對：【GM31】 字幕：【1ia$】*
 
 0

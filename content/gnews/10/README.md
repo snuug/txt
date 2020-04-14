@@ -1,15 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room: Pandemic推特賬戶被封
-`2020-04-14 08:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/172551/)
+## 新加坡學者稱 70%無症狀傳播
+`2020-04-14 09:34 GM09` [轉載自GNews](https://gnews.org/zh-hant/172604/)
 
-在4月13日的[第116期](https://www.youtube.com/watch?v=L7KjJBH7diA)節目中，班農先生指出[War Room: Pandemic推特賬戶](https://www.twitter.com/warroom2020)被封，而這一切就發生在“墜入地獄，中國人民被CCP統治的生活”節目之後。他進一步指出：“美國精英不但出賣美國人民還出賣中國人民……並且，我們正在與CCP的戰爭中，信息戰和經濟戰。”
+作者：多國語言組
 
-今天迫於各方壓力，推特公司重新恢復了班農先生的War Room:Pandemice 推特賬號。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14075215/twitter-2-1.jpg)
-延伸閱讀：[Twitter Suspends Bannon’s ‘War Room: Pandemic’](https://gnews.org/171556/)
+新加坡學者認為，無症狀的病毒攜帶者比例高達70%，他們可以在不知情的情況下感染他人。
 
-*速記：【DDM】 翻譯：【JasonZZZ(小林)】 校對：【GM31】 字幕：【小南】*
+"研究表明，50%至70%已經感染了冠狀病毒的人沒有任何症狀，在這種情況下，他們可以保持長達4週的時間傳播病毒。"俄羅斯傳染病專家里昂·諾特說道。
 
+同時，他認為，即使病毒感染者不發病，最終也會產生免疫力，然而這可能需要幾年的時間。而新加坡國家傳染病中心執行主任劉亦欣（音譯）則認為，無症狀病毒攜帶者的病毒傳播是主要問題之一。因為沒有症狀，因此他們可以繼續自己的日常生活並自由地傳染病毒。
+
+俄消費者權益監督局負責人安娜.波波娃此前曾說，在俄羅斯的冠狀病毒患者中有40%以上是無症狀感染者。 
+來源： [https://yandex.ru/turbo?utm\_source=turbo\_turbo&text=https%3A%2F%2Fiz.ru%2F999518%2F2020-04-14%2Fuchenye-singapura-zaiavili-o-bessimptomnoi-peredache-virusa-v- 70-sluchaev](https://yandex.ru/turbo?utm_source=turbo_turbo&amp;text=https%3A%2F%2Fiz.ru%2F999518%2F2020-04-14%2Fuchenye-singapura-zaiavili-o-bessimptomnoi-peredache-virusa-v-70-sluchaev)
+ 
 0
