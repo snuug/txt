@@ -1,49 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共自我打臉，叫停兩家防疫用品出口公司！
-`2020-04-15 01:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/173157/)
+## 2020年4月13-14日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-15 05:07 GM33` [轉載自GNews](https://gnews.org/zh-hant/173542/)
 
-**作者：玉米地大姐**
+[English\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050041/English_0413_CCP_Virus_Updates.pdf)
 
-中共出口的假冒偽劣防疫用品遭到各國聲討和退貨，中共的反應是煮熟的鴨子嘴硬，找出各種理由搪塞抵賴。針對中國出口到歐洲的醫療物資有質量問題，商務部新聞發言人高峰4月9日回應稱，這些報導“與實際情況並不相符”。
+[English\_0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050056/English_0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050056/English_0414_CCP_Virus_Updates.pdf)
 
-“出現所謂的問題，主要是因為中歐在生產標準、產品適用環境方面存在差異，有些歐洲用戶對產品的使用不夠熟悉，甚至出現失誤。”
+[French\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050117/French_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050117/French_0413_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14205845/1-134.jpg)
+[French0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050135/French0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050135/French0414_CCP_Virus_Updates.pdf)
 
-這位發言人的回答是典型的中共外交流氓式回答。記者問的是質量問題，他用生產標準和操作失誤來偷換概念，等於變相把責任轉嫁給對方。比這位發言人更甚的是駐荷蘭大使的回答，讓人聽了恨不得上前抽他幾個大嘴巴子。
+[German\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050156/German_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050156/German_0413_CCP_Virus_Updates.pdf)
 
-問：3月28日荷蘭一些媒體報導稱，荷蘭從中國購買的60餘萬隻口罩存在質量問題，被衛生部全部召回。請問您對此有何評論？
+[German\_0414CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050214/German_0414CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050214/German_0414CCP_Virus_Updates_-.pdf)
 
-徐宏：新冠肺炎疫情暴發以來，中荷雙方一直就共同抗擊疫情保持密切溝通和良好合作。近一個多月來，隨著荷蘭疫情形勢發展，中方致力於向荷方提供力所能及的幫助。對於3月28日媒體有關荷蘭從中國購買的一批口罩存在質量問題的報導，大使館高度關注，並在當晚第一時間與荷蘭外交部、衛生部聯繫，了解核實有關情況。
+[Japanese0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050237/Japanese0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050237/Japanese0413_CCP_Virus_Updates.pdf)
 
-29日，我本人應約與荷蘭醫療護理大臣範萊恩通話。範萊恩大臣表示，真誠感謝中方為荷蘭抗擊疫情所提供的大力支持和幫助；關於荷方從中國採購的部分口罩不適宜重症病房醫護人員佩戴的問題，荷方正在進一步釐清有關情況，俟有結果，將第一時間向中方通報。希望這一孤立事件不會影響兩國在抗擊疫情領域的友好合作。我對范萊恩大臣通報上述情況表示感謝。
+[Japanese0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050246/Japanese0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050246/Japanese0414_CCP_Virus_Updates.pdf)
 
-藉此機會，我要再次強調，病毒無國界，國際社會唯有加強團結互助，才能戰勝疫情。中國支持包括荷蘭在內的各國抗疫的目的非常簡單，就是要努力挽救更多的生命，不存在某些人所說的“地緣政治考慮”。合作過程中即使出現一些問題也是正常的，可以實事求是地加以解決，而不應作政治化解讀。
+[Russia\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050256/Russia_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050256/Russia_0413_CCP_Virus_Updates.pdf)
 
-我們期待荷方關於口罩質量問題的進一步調查結果，如有需要，中方將本著客觀公正的原則依法協助開展調查。中方將繼續全力支持荷方的抗疫努力，攜手戰勝病毒這一共同的敵人。
+[Russia\_0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050307/Russia_0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050307/Russia_0414_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14205935/2-97.jpg)
+[Spanish0413\_CCP\_Virus\_Updates2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050320/Spanish0413_CCP_Virus_Updates2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050320/Spanish0413_CCP_Virus_Updates2.pdf)
 
-這位大使的回答和鳳凰衛視女記者提問川普總統是一個套路，看似提問、回復問題，實則是為中共臉上貼金，趁機給對方挖坑下套甩黑鍋，陰險下作之極，與偽劣產品相輔相成、天生絕配。
-
-中共知道自家的產品是什麼貨色，提前準備了預案，以便日後堵住輿情之口。南方都市報4月5日報導：國務院聯防聯控機制就加強醫療物資質量管理和規範市場秩序工作情況舉行發布會。商務部外貿司一級巡視員江帆在會上表示，將嚴格查處醫療物資出口中出現的質量問題，切實維護中國製造的形象。
-
-“據了解，商務部會同海關總署、藥監局於3月31日發布了關於有序開展醫療物資出口的公告，要求出口的檢測試劑、醫用口罩、醫用防護服、呼吸機、還有紅外體溫計等五類產品，必須取得我國醫療器械產品註冊證書，符合進口國和進口地區的質量標準要求。”
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14210104/3-78.jpg)
-
-對外一直聲稱防疫用品沒毛病，對內為什麼還要發文嚴格查處醫療物資出口中出現的質量問題？這不是此地無銀三百兩嗎？更搞笑的是，商業部發出的消息前後自相矛盾、自我打臉。 4月9日對外說與實際情況不符，不承認有質量問題，14日叫停了兩家出口防疫用品的公司。商業部是被德云社收編了？
-
-“在開展防疫用品出口過程中，有的企業因產品質量問題被外方退貨，擾亂防疫用品出口秩序，嚴重影響國家形象。現停止北京啟迪區塊鏈科技發展有限公司、愛寶達科技（深圳）有限公司防疫用品出口。”
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14210204/4-64.jpg)
-
-估計轉載這篇叫停報導的小編也看不下去了，將另外三個報導鏈接放在叫停報導的下面，以供讀者哂之。俗話說賬多了不愁，蝨子多了不咬。中共的國際笑話多了，他們不以為恥，反倒恥笑他人少見多怪、雞蛋裡面挑骨頭。
-
-狂妄就像毒品一樣，讓盜國賊產生幻覺，拿別人當傻瓜，就他們聰明絕頂是主宰世界的老大。隱瞞疫情真相將病毒散播到全世界，還嫌作惡不夠，出口偽劣防疫用品再次禍害全世界。共產黨不滅亡，天理何在！
-
-（文章內容僅代表作者觀點）
+[Spanish0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050329/Spanish0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050329/Spanish0414_CCP_Virus_Updates.pdf)
 
 0
