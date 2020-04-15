@@ -1,11 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國的接觸者追踪方案
-`2020-04-14 12:46 GM31` [轉載自GNews](https://gnews.org/zh-hant/172700/)
-
-在[4月13日](https://www.youtube.com/watch?v=_XBmxj2mKjM)的白宮每日疫情通報會上，川普總統與白宮團隊解釋說:有關疫情上聯繫追踪方式,需要解決憲法問題，而不僅僅是機械性問題，但是會對此做出決策。
-
-*翻譯&字幕：【Freela】 校對：【Winston Jackson】*
+## 廣播：2020/4/14 郭文貴先生： 爆料革命拯救的同胞留言徹底感動文貴！
+`2020-04-14 20:02 GM07` [轉載自GNews](https://gnews.org/zh-hant/173005/)
 
 0

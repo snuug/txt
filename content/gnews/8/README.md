@@ -1,36 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員提出法案，剝奪中共國家“主權豁免權”,凍結中共資產,向中共政府索賠
-`2020-04-14 19:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/172994/)
+## 想像力科技的老闆以辭職抗議中共掠奪
+`2020-04-15 00:02 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/173038/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14194404/IMG_1726.jpg) Josh Hawley. Photo: Chip Somodevilla/Getty Images 
-美國參議員喬什 .霍利（Josh Hawley）於4月14日提出《中共冠狀病毒受害人正義法案》（Justice for Victims of COVID-19 Act），讓中共為國際疫情大爆發承擔應有責任。
+【中英對照翻譯】[https://spark.adobe.com/page/4MdjXRnRr8EY7/](https://spark.adobe.com/page/4MdjXRnRr8EY7/)
 
-這一法案將剝奪中共的“主權豁免權”（Sovereign Immunity），為個人起訴中共禁言和隱瞞信息等做法創造法律基礎。同時，這一法案將促成美國國務院設立“中共冠狀病毒受害人正義工作小組”，對北京在病毒爆發期間的處置方法展開國際調查，並向中共政府索賠。
+*翻譯/簡評: freedust*
 
-霍利參議員表示：“有充分證據表明, 中共欺瞞矇騙世界、行為惡劣，造成中共病毒從區域性醫療問題爆發為世界性傳染疫情。我們需要啟動國際調查，全面了解中共對世界造成的破壞，讓美國和其他國家受害人尋求賠償。中共釋放了這次病毒，他們必須對受害者負責。”
+*校對：Julia Win*
 
-霍利參議員是議會首個提議調查中共隱瞞病毒傳播真相的議員，並與參議員湯姆.科頓（Tom Cotton）一同提出了《李文亮全球公共衛生責任法案》，制裁在國際公共健康危機中箝制言論和歪曲信息的外國官員。
+**簡評**
 
-《中共冠狀病毒受害人正義法案》包括以下內容：
+Imagination Technologies是一家總部位於英國的科技公司，專注於半導體及相關知識產權的授權。 它銷售PowerVR移動圖形處理器、網路路由器（基於MIPS cpu）、和純消費電子產品部門。 它還提供無線電基帶處理、網路、數位訊號處理器、視頻和音訊硬體、IP語音軟體、雲端運算和矽以及系統設計服務。 該公司曾在倫敦證券交易所（London Stock Exchange）上市，直到2017年11月被私人股本公司富時集團（fu）旗下的峽谷橋（Canyon Bridge）收購。
 
-通過以下方式，讓中共政府在美國承擔民事訴訟責任：
+有別於安卓的開放式系統，蘋果系統的封閉性正是其未被中共全面滲透的原因之一，而目前可以確定的是，蘋果將可以使用Imagination Technologies的智慧財產權，並可以確認蘋果的GPU及通信協定將沿用Imagination Technologies的設計，如果中共的企業中國國新控股完成對它的控制，將會獲得大量蘋果設備上資訊的訪問權，完善自己情報收集版圖上重要的一塊。
 
-o 為個人在美起訴中共創造法律基礎，主要針對中共政府隱瞞實情、禁止醫生髮言而造成美國疫情等行為；
+西方社會必須對此引起足夠重視，這不是一次商業收購，而是一次中共和西方的情報戰、信息戰。 失去Imagination Technologies將使整個西方在情報收集、資訊控制和戰略決策方面處處掣肘，陷於被動。
 
-o 剝奪中共政府主權豁免權，以便法院接受此類訴訟；
+## **因為中共國新的掠奪行為Imagination科技老闆準備辭職**
 
-o 允許法院凍結中共政府資產，以便受害人申請賠償。
+**據報導，由於一家中國國有企業試圖控制董事會，想像力科技的老闆即將辭職。**
+[!\[\](https://spark.adobe.com/page/4MdjXRnRr8EY7/images/b8f139ea-c3d7-448c-9d2c-f4f525e8ffed.png?asset_id=732e31ef-203a-442f-a12c-5ccacf50ffdc&amp;img_etag=652c56be62434510226dffe87ba75d62&amp;size=2560)](https://spark.adobe.com/page/4MdjXRnRr8EY7/images/b8f139ea-c3d7-448c-9d2c-f4f525e8ffed.png?asset_id=732e31ef-203a-442f-a12c-5ccacf50ffdc&amp;img_etag=652c56be62434510226dffe87ba75d62&amp;size=1024)
+據《天空新聞》報導，自2018年12月以來一直執掌該公司的首席執行官羅恩·布萊克(Ron Black)表示，他打算辭職，以抗議中共國委任四名新董事的決定。
 
-在美國國務院設立“中共冠狀病毒受害人正義工作小組”，以便:
+這家晶片設計公司的最大客戶包括蘋果（Apple）和三星（Samsung）。 該公司被私人股本公司Canyon Bridge Capital Partners以5.5億美元收購。 Canyon的主要投資者是國有的中國國新控股有限公司。
 
-o 展開國際調查，了解北京如何通過歪曲和隱藏信息將病毒傳向全球，重點關注宣傳中共謊言的世界衛生組織（WHO）；
+《天空新聞》台消息人士稱，如果董事會變動被迫通過，布萊克和其他幾位想像力公司高管最早可能於本周辭職。
 
-o 開展國際協作，向中共提出賠償要求，如北京拒絕將採取強制措施。
+上周有消息稱，中國國新控股希望獲得想像力技術公司的控股權。 這家國有企業表示，它將利用這一控制權將總部位於赫特福德郡的公司及其知識產權資產遷至中國。
 
-[原文鏈接](https://www.hawley.senate.gov/senator-hawley-announces-bill-hold-chinese-communist-party-responsible-covid-19-pandemic)
+前英國脫歐大臣大衛·大衛斯（David Davis）呼籲政府對此舉進行調查。 他敦促部長們調查中國革新控股的行動，並要求文化部長奧利弗·道登（Oliver Dowden）進行干預，以確保這種控制權的改變不會發生。
 
-翻譯報導：Jeremiah
+四個下議院委員會的主席也致函總理，要求總理以對國家安全的潛在風險為由進行干預。
+
+據天空新聞稱，政府通訊總部和國家網路安全中心也已獲悉有關進展。
+
+[英文原文鏈接](https://www.cityam.com/imagination-technologies-boss-poised-to-quit-over-china-reform-raid/)
+
+**編輯：【喜馬拉雅戰鷹團】**
 
 0
