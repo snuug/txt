@@ -1,93 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月14日美國政要推文選譯
-`2020-04-15 00:22 GM65` [轉載自GNews](https://gnews.org/zh-hant/173275/)
+## 美國國務院2018年就曾多次發出警告，武漢病毒研究所正在研究蝙蝠冠狀病毒
+`2020-04-15 03:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/173437/)
 
-> Australia and the University of Queensland [@UQ\_News](https://twitter.com/UQ_News?ref_src=twsrc%5Etfw) SHOULD BE ASHAMED OF THEMSELVES. How is it possible for a university professor and member of the Chinese communist party to condone violence against a student at an Australian university?We stand with you [@DrewPavlou](https://twitter.com/DrewPavlou?ref_src=twsrc%5Etfw) . [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/DFiCqB1eQG](https://t.co/DFiCqB1eQG)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 14, 2020](https://twitter.com/Jkylebass/status/1250084888516141056?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15033321/1-79.png)
+據華盛頓郵報（The Washington Post）報導，2018年，美國大使館官員曾多次訪問中國武漢市的一個研究機構，武漢病毒實驗室（WIV，即P4實驗室）。並向華盛頓發出兩次官方警告，稱該實驗室正在對蝙蝠傳播的冠狀病毒進行危險性研究，並存在嚴重的安全隱患。
 
-卡爾·巴斯先生：澳大利亞和昆士蘭大學應該為他們自己感到羞愧。在澳洲的大學，一名是中共黨員的大學教授縱容針對學生的暴力行為，這是怎麼回事？我們支持你，Drew Pavlou。 #CCPVirus
+消息引發了美國政府內部的爭論，即，這個實驗室是中共冠狀病毒的源頭呢還是其它武漢實驗室是。
 
-Drew Pavlou：大家好，我心情沉重地告訴各位昆士蘭大學將在召開秘密聽證會前，於四月27日考慮將我開除，理由是我發布批評大學與中共勾結以及我支持香港的帖子。
+2018年1月，美國駐北京大使館曾將美國科學外交官送往武漢病毒學研究所（WIV）進行學術交流。該實驗室於2015年成為中國第一個達到最高國際生物研究安全水平的實驗室（稱為BSL-4，也稱P4實驗室）。
 
-> Clearly, the WHO should fire Tedros the Maoist and replace him with someone who won’t bow to the whims of the crooked Communists in China’s government. If it were up to me, I would have the Gates Foundation handle it all. [https://t.co/zWWLqCGp1n](https://t.co/zWWLqCGp1n) [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) [https://t.co/Vw7mEweerh](https://t.co/Vw7mEweerh)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 14, 2020](https://twitter.com/Jkylebass/status/1250203398965809160?ref_src=twsrc%5Etfw)
+2018年3月27日，美國代表團正式參觀該實驗室，由駐武漢總領事賈米森•富斯（Jamison Fouss）和大使館環境、科學、技術與健康顧問瑞克•斯威策（Rick Switzer）率領，WIV以英語對本次參觀作了報導。而就在上週，WIV從其官方網站上刪除了這篇報導，但從互聯網上仍然可以搜索到相關信息。 
+ 2018年1月19日，美國大使館環境、科學和衛生部門的兩名官員起草了一份電報，電報稱，“在與WIV 實驗室的科學家交流過程中，他們注意到，新實驗室嚴重缺乏安全操作這個高標準實驗室所需的、經過適當培訓的技術人員和調查人員”。
 
-卡爾·巴斯先生：顯然，世衛組織應該解僱“毛主義的”譚德賽，讓一個不會向中共政府裡那些滿腦子幻想的騙子共產黨員屈服的人來代替他。要是由我做決定，我就讓蓋茨基金會來全權處理此事。
+其中一份電報提醒說，實驗室研究蝙蝠冠狀病毒及其潛在的人類傳播方面，存在著新的類似於SARS的大流行的風險。針對這些電報，美國政府沒有向這些實驗室提供額外的援助。在過去的兩個月裡，這些電報開始在政府內部再次流傳，當時政府官員們正在討論這個實驗室是否是這場中共病毒大流行病的起源，以及這對美國應對大流行病以及與中國關係的影響。
 
-> Communist China is an expert at spreading disinformation and propaganda. According to recent research by Taiwan’s Ministry of Justice Investigation Bureau, 70% of fake social media posts about the COVID-19 pandemic originated in China.[https://t.co/FwdAPdec2H](https://t.co/FwdAPdec2H)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 14, 2020](https://twitter.com/MarshaBlackburn/status/1250128840099352576?ref_src=twsrc%5Etfw)
+WIV的中共國研究人員正在接受德克薩斯大學醫學分部加爾維斯頓國家實驗室（ the Galveston National Laboratory at the University of Texas Medical Branch）和其他美國組織的援助，但中共國研究人員請求額外的幫助。這些電報認為，美國應該給予武漢實驗室進一步的關注，主要是因為它對蝙蝠冠狀病毒的研究很重要，但也很危險。
 
-參議員Marsha Blackburn：中共國擅長散步誤導信息和大外宣。根據台灣司法部調查局的最新研究，70%有關冠狀病毒大爆發的虛假社交媒體帖子都來自中國。 （文章來源：聚焦台灣）
+這些美國官員會見了研究項目的負責人石正麗，她多年來發表了許多關於蝙蝠冠狀病毒的研究成果。 2017年11月，就在美國官員訪問之前，石的團隊發表的研究聲稱，他們從雲南省的一個洞穴中收集到的馬蹄蝠（ horseshoe bats ）很可能與2003年產生SARS冠狀病毒的蝙蝠種群相同。
 
-> Communist China has lied to the world about COVID-19 since day one and is now responsible for over 100,000 deaths.
->  
-> Thank you [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) for moderating a virtual panel with myself & [@RepJimBanks](https://twitter.com/RepJimBanks?ref_src=twsrc%5Etfw) to discuss holding the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) accountable for creating a global pandemic. [pic.twitter.com/hS6v7lrU2O](https://t.co/hS6v7lrU2O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 14, 2020](https://twitter.com/MarshaBlackburn/status/1250158734179000322?ref_src=twsrc%5Etfw)
+該研究是為了通過預測來預防可能出現的下一次類似SARS的病毒大流行。早在2015年，其他科學家就曾質疑石正麗的團隊是否過於冒險。 2014年10月，美國政府宣布，暫停資助對所有任何更致命、或更具傳染性病毒的研究。
 
-參議員Marsha Blackburn：中共國從第一天起就在冠狀病毒的事情上對世界撒謊，現在已造成超過10萬人死亡。感謝章家敦先生主持了有我和參議員Jim Banks參與的網上座談小組，討論了追究中共製造全球疫情爆發的責任。
+加州大學伯克利分校科學家肖強說，沒有直接證據並不意味著它不是來自實驗室，正是該實驗室花費數年時間在動物身上測試蝙蝠冠狀病毒。附近的武漢疾病控制與預防中心實驗室也存在類似的問題，該實驗室的生物安全等級為2級。這一事實之所以重要，是因為中共國政府仍然拒絕回答有關這種新型冠狀病毒來源的基本問題，同時壓制任何試圖調查其中任何一個實驗室是否參與的嘗試。大使館官員呼籲美國更多地關注這個實驗室，並為其提供更多的支持，以幫助它解決安全問題。
 
-> The lack of security in the Wuhan biochemical labs should concern us all. We need more information to determine if Chinese coronavirus research projects played a role in the COVID-19 outbreak. [pic.twitter.com/3n5xLpLW2y](https://t.co/3n5xLpLW2y)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 14, 2020](https://twitter.com/MarshaBlackburn/status/1250182039866757122?ref_src=twsrc%5Etfw)
+在川普政府內部，許多國家安全官員長期以來一直懷疑WIV 或武漢疾病預防控制中心(Wuhan Center for Disease Control and Prevention)實驗室是新型冠狀病毒爆發的源頭，這些電報提供了又一個證據來證實這場流行病可能是武漢實驗室的洩露事故。
 
-參議員Marsha Blackburn：武漢生化實驗室安全措施的缺失應引起我們所有人的關注。我們需要更多信息來確定中國的冠狀病毒研究項目是否與2019冠狀病毒大爆發有關。
+根據中國政府最初的說法：病毒源自武漢的一個海鮮市場。這顯然並不可靠。今年1月發表在《柳葉刀》(Lancet)上的中國專家的研究顯示，12月1日確診的第一例已知病例與華南海鮮市場沒有關係，第一個大型病例群中超過三分之一的病例也沒有關係。而且，該市場上也沒有出售蝙蝠。
 
-> Chinese Foreign Ministry Spokesperson [@zlj517](https://twitter.com/zlj517?ref_src=twsrc%5Etfw) blocked me on Twitter. [@ChineseEmbinUS](https://twitter.com/ChineseEmbinUS?ref_src=twsrc%5Etfw) sent me a letter complaining about my comments opposing the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). 
->  
-> The CCP must be delusional. 
-> 
-> Nothing they say will prevent me from speaking the truth. [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ocr2U8W6X8](https://t.co/ocr2U8W6X8)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 15, 2020](https://twitter.com/MarshaBlackburn/status/1250216013825785857?ref_src=twsrc%5Etfw)
+石正麗和WIV 的其他研究人員斷然否認這個實驗室是新型冠狀病毒的起源。 2月3日，她的團隊首次公開報告稱，這種被稱為2019-nCoV 的病毒是一種蝙蝠源冠狀病毒。
 
-參議員Marsha Blackburn 連推：中國外交部發言人趙立堅在推特上將我拉黑。中國大使崔天凱寫信給我，投訴我反共的評論。中共一定是有錯覺了。不管他們說什麼都不能阻止我講真話。
+與此同時，中國政府已經完全封鎖了與病毒起源有關的信息。北京尚未向美國專家提供從最早的病例中收集到的新型冠狀病毒樣本。 1月11日公佈新型冠狀病毒基因組的上海實驗室很快以進行“整頓”為由被當局關閉，早些時候報導疫情蔓延的一些醫生和記者已經失踪。
 
-> I think I’ve heard something like this before 🤔 [https://t.co/OcqoW72pxJ](https://t.co/OcqoW72pxJ)
-> — Tom Cotton (@SenTomCotton) [April 14, 2020](https://twitter.com/SenTomCotton/status/1250208715841699847?ref_src=twsrc%5Etfw)
+2月14日，中共呼籲加快制定新的生物安全法。週三，CNN 報導說，中共政府已經對任何研究機構公佈任何關於這種新型冠狀病毒來源的信息進行了嚴格的限制，要求獲得批准。
 
-參議員Tom Cotton：我想我以前聽說過這些事情。
+追索起源不僅僅是為了追責。了解新型冠狀病毒的流行是如何開始的至關重要，因為這告訴我們如何防止下一次的流行。中共政府必須保持透明，回答有關武漢實驗室的問題，因為它們對我們科學理解病毒至關重要。
 
-Josh Rogin（《華盛頓郵報》專欄作家）連推：獨家：國務院曾發出電報警告武漢研究蝙蝠冠狀病毒實驗室的安全問題。 2018年，美國大使館官員曾多次訪問武漢病毒研究所，並向華盛頓發出兩個關於實驗室安全性不足的官方警告，該實驗室正在對蝙蝠冠狀病毒進行有風險的研究。 “儘管尚需確切證據，這些電報已引髮美國政府內部關於病毒源是這所實驗室還是另一所武漢實驗室的討論。”2018年1月19日的電報寫道：“在與（武漢）實驗室的科學家進行互動時，他們注意到新實驗室嚴重缺乏受過培訓的技術人員，以及能夠安全操作這個高感染風險實驗室的研究人員。”“我獲得了第一封電報，上面警告說實驗室對多種蝙蝠冠狀病毒的研究和潛在的人傳人意味著新的類似非典的大爆發的風險。”
+“我不認為這是一個陰謀論。 我認為這是一個需要調查和回答的合理問題……準確理解這種現像是如何產生的，是防止未來再次發生的關鍵信息。”
 
-> In a message to China, North Korea and maybe Russia, U.S. Air Force puts B-52 bombers, tankers and drones on runway in Guam [pic.twitter.com/R2zsOZy2ur](https://t.co/R2zsOZy2ur)
-> — Lucas Tomlinson (@LucasFoxNews) [April 14, 2020](https://twitter.com/LucasFoxNews/status/1250118919278526464?ref_src=twsrc%5Etfw)
 
-比爾·格茨先生轉推：
 
-Lucas Tomlinson（福克斯新聞特派五角大樓記者）：給中國、朝鮮以及可能還有俄羅斯的信兒，美國空軍在關島跑道上佈置了B-52轟炸機、加油機和無人機。
+[原文鏈接](https://www.washingtonpost.com/opinions/2020/04/14/state-department-cables-warned-safety-issues-wuhan-lab-studying-bat-coronaviruses/翻译整理：匿名)
 
-> Breaking: US intelligence is investigating whether coronavirus leaked from China lab, JCS chairman says [https://t.co/4L91umR819](https://t.co/4L91umR819)
-> — Bill Gertz (@BillGertz) [April 15, 2020](https://twitter.com/BillGertz/status/1250225898856624128?ref_src=twsrc%5Etfw)
+[翻譯整理：匿名](https://www.washingtonpost.com/opinions/2020/04/14/state-department-cables-warned-safety-issues-wuhan-lab-studying-bat-coronaviruses/翻译整理：匿名)
 
-比爾·格茨先生：突發新聞：美軍參謀長聯席會議主席說，美國情報機構正在調查冠狀病毒是否從中國實驗室洩漏出。
-
-> This is why we need an international commission to get all the facts, publish them to the world, and hold [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party accountable for its lies & suppression that have cost so many lives [https://t.co/0rprw0c2b0](https://t.co/0rprw0c2b0)
-> — Josh Hawley (@HawleyMO) [April 14, 2020](https://twitter.com/HawleyMO/status/1250056573596114951?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley：這就是為什麼我們需要一個國際調查組來獲得所有事實，將其公佈於世，並讓中共為其導致眾多人喪命的謊言和壓迫行為負責。
-
-> Today I’m announcing legislation to hold [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) accountable. My bill would strip China of its immunity in US courts and create a private right of action against the Chinese Communist Party for silencing whistleblowers & withholding critical information about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Josh Hawley (@HawleyMO) [April 14, 2020](https://twitter.com/HawleyMO/status/1250094012247269379?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley 連推：我今天宣布一項追究中國責任的立法。我的法案將剝奪中國在美國法庭上的豁免權，並發起針對中共禁言吹哨人和隱瞞冠狀病毒關鍵信息行為的私人訴訟。詳情請見： [法案原文](https://www.hawley.senate.gov/senator-hawley-announces-bill-hold-chinese-communist-party-responsible-covid-19-pandemic) 。就在此時，中共以一個由政府製作的滿是謊言的視頻為由要求我辭職。這麼害怕真相是為什麼呢？
-
-> Communist China continues to lie, hide information and deflect blame. The Chinese Communist Party must be held accountable for its actions that led to the death of many innocent people across the globe. [https://t.co/gIwycvWngF](https://t.co/gIwycvWngF)
-> — Rick Scott (@SenRickScott) [April 14, 2020](https://twitter.com/SenRickScott/status/1250081569517248513?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：中共國一直在撒謊，隱藏信息和逃避責任。中共必須對它導致全球失去眾多無辜生命的行為負責。
-
-> Glad to see [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) halt funding to the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw). We need to review their role in helping Communist China lie about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw), before any more taxpayer money is spent. 
-> 
-> This was the right move and I look forward to a full Congressional investigation into the WHO. [https://t.co/FmyQ3C5yHW](https://t.co/FmyQ3C5yHW)
-> — Rick Scott (@SenRickScott) [April 14, 2020](https://twitter.com/SenRickScott/status/1250191926650863616?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：很高興看到川普總統停止向世衛組織提供資金。我們必須在投入更多納稅人的錢之前，對他們在幫助中共國在冠狀病毒疫情事情上撒謊起到的作用進行審查。這是正確的舉措，我期待整個國會對世衛組織的調查。
-
-> “If the Chinese are stating that they were not contributing to the drought, the data does not support that position,”[https://t.co/HCcVMvlLHh](https://t.co/HCcVMvlLHh)
-> — General Spalding (@robert\_spalding) [April 14, 2020](https://twitter.com/robert_spalding/status/1250072339280269319?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“如果中國人說他們沒有加劇乾旱災情，那這些數據得出的觀點就不成立。”
-
-路透社：研究發現，乾旱期間，中國水壩截斷了湄公河水流
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15002224/06_58.png)
 0

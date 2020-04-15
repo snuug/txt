@@ -1,31 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月13-14日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-15 05:07 GM33` [轉載自GNews](https://gnews.org/zh-hant/173542/)
+## 中共駐法大使因冠狀病毒言論被傳喚
+`2020-04-15 10:00 GM09` [轉載自GNews](https://gnews.org/zh-hant/173719/)
 
-[English\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050041/English_0413_CCP_Virus_Updates.pdf)
+作者：多國語言組
 
-[English\_0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050056/English_0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050056/English_0414_CCP_Virus_Updates.pdf)
+盧沙葉本週二被讓-伊夫-勒德里亞恩傳喚，他表示"不贊成大使在冠狀病毒危機上的某些言論"。
 
-[French\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050117/French_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050117/French_0413_CCP_Virus_Updates.pdf)
+法國外交部長讓-伊夫-勒德里安14日週二召見中國駐法大使，他在一份新聞稿中宣布，他對"最近與新的冠狀病毒有關的某些言論"表示"不贊成"。
 
-[French0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050135/French0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050135/French0414_CCP_Virus_Updates.pdf)
+"我在4月14日(星期二(即周二)上午傳喚中國駐法大使到歐洲和外交部時，明確表示不贊成最近的某些言論。"法國外交負責人說。 ”中國駐法使館代表最近發表的一些公開聲明不符合兩國雙邊關係的性質“, 這位部長痛惜地表示，指的是該使館開展的不加掩飾的宣傳活動，讚揚中國政府抗擊冠狀病毒的"勝利"，批評西方國家對這一疫情的管理。
 
-[German\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050156/German_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050156/German_0413_CCP_Virus_Updates.pdf)
-
-[German\_0414CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050214/German_0414CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050214/German_0414CCP_Virus_Updates_-.pdf)
-
-[Japanese0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050237/Japanese0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050237/Japanese0413_CCP_Virus_Updates.pdf)
-
-[Japanese0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050246/Japanese0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050246/Japanese0414_CCP_Virus_Updates.pdf)
-
-[Russia\_0413\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050256/Russia_0413_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050256/Russia_0413_CCP_Virus_Updates.pdf)
-
-[Russia\_0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050307/Russia_0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050307/Russia_0414_CCP_Virus_Updates.pdf)
-
-[Spanish0413\_CCP\_Virus\_Updates2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050320/Spanish0413_CCP_Virus_Updates2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050320/Spanish0413_CCP_Virus_Updates2.pdf)
-
-[Spanish0414\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050329/Spanish0414_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15050329/Spanish0414_CCP_Virus_Updates.pdf)
-
+來源： [https://www.huffingtonpost.fr/entry/coronavirus-ambassadeur-chine-france-convoque\_fr\_5e9605e8c5b6519fcf026f4e](https://www.huffingtonpost.fr/entry/coronavirus-ambassadeur-chine-france-convoque_fr_5e9605e8c5b6519fcf026f4e)
+ 
 0
