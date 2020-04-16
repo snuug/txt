@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/277700](https://www.guo.media/posts/277700) `2020-04-16T20:40:09`
 ##
 
+**milesguo** 班农战情室120: 美切断WHO资金支持 呼吁北京冬奥会取消<br>https://gnews.org/zh-hans/174247/
+
+[https://www.guo.media/posts/277699](https://www.guo.media/posts/277699) `2020-04-16T21:55:11`
+##
+
 **milesguo** 勿忘香港，全民抗疫！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/174184/
 
 [https://www.guo.media/posts/277697](https://www.guo.media/posts/277697) `2020-04-16T20:55:10`
