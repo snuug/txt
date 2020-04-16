@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 班农战情室120: 美切断WHO资金支持 呼吁北京冬奥会取消<br>https://gnews.org/zh-hans/174247/
+
+[https://www.guo.media/posts/277700](https://www.guo.media/posts/277700) `2020-04-16T20:40:09`
+##
+
 **milesguo** 2020年4月14日CCP冠状病毒大流行第81集<br>https://gnews.org/zh-hans/173330/
 
 [https://www.guo.media/posts/277668](https://www.guo.media/posts/277668) `2020-04-15T08:55:14`
