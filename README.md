@@ -16,6 +16,11 @@
 [https://www.guo.media/posts/277700](https://www.guo.media/posts/277700) `2020-04-16T20:40:09`
 ##
 
+**milesguo** 勿忘香港，全民抗疫！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/174184/
+
+[https://www.guo.media/posts/277697](https://www.guo.media/posts/277697) `2020-04-16T20:55:10`
+##
+
 **milesguo** 2020年4月14日CCP冠状病毒大流行第81集<br>https://gnews.org/zh-hans/173330/
 
 [https://www.guo.media/posts/277668](https://www.guo.media/posts/277668) `2020-04-15T08:55:14`
