@@ -1,79 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共星期二，美國重拳頻出
-`2020-04-15 18:36 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/173957/)
+## 4月15日美國政要推文選譯
+`2020-04-15 22:58 GM65` [轉載自GNews](https://gnews.org/zh-hant/174152/)
 
-【中英對照翻譯】 [https://spark.adobe.com/page/H4PNtm3DnYRnd/](https://spark.adobe.com/page/H4PNtm3DnYRnd/)
+> With Carrie Lam(b) talking like this, HKers need to prepare for a FULL ARTICLE 23 implementation. This with Luo Huining’s (Butcher of Tibet) comments posted to the ministry’s website last weekend tell me Beijing is about to flatten HK. [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#butcherofTibet](https://twitter.com/hashtag/butcherofTibet?src=hash&amp;ref_src=twsrc%5Etfw) [#chinazi](https://twitter.com/hashtag/chinazi?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/GxIfx1Gzrd](https://t.co/GxIfx1Gzrd)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 15, 2020](https://twitter.com/Jkylebass/status/1250322262894370822?ref_src=twsrc%5Etfw)
 
-*者：Bill Gertz*
+卡爾·巴斯先生：當林鄭月娥這樣講話時，香港人就要為《香港基本法》第23條的全面實施做好心理準備了。加上駱惠寧（屠殺西藏之人）上週末在中聯辦網站發表的評論，這些告訴我北京即將踏平香港。
 
-*新聞來源：The Washington Times*
+香港電台英語新聞：香港特首林鄭月娥警告說，香港安全現在面臨從“類似恐怖主義的極端行動”到“冷血的和仇恨言論”等多重威脅。
 
-*翻譯/簡評:：InAHurry*
+> Once Beijing secretly determined a pandemic was developing, they continued to stay silent. The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) barred medical staff from reporting new cases & punished doctors for warning about the virus. Almost everything the Chinese Governmet told the world about COVID-19 has been a lie. [https://t.co/TfBpVhRDSv](https://t.co/TfBpVhRDSv)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 15, 2020](https://twitter.com/MarshaBlackburn/status/1250468891618422789?ref_src=twsrc%5Etfw)
 
-*校對：Julia Win*
+參議員Marsha Blackburn：當北京秘密確定疫情全球大爆發正在蔓延時，他們仍在保持沉默。中共禁止醫療工作者匯報新感染病例並懲罰了發出病毒預警的醫生。中國政府告訴世界的有關2019冠狀病毒的所有內容幾乎都是謊言。
 
-**簡評：**
+美聯社：中國衛生部領導秘密下令全國范圍為疫情大爆發做準備。文件顯示他們六天之後才警告民眾。
 
-我們的戰友比爾·戈茲（Bill Gertz）先生，在今天晚間發表了題為《美國參謀長聯席會議主席：美國情報機構正在調查新冠病毒是否從武漢實驗室洩漏》的重磅文章。這是美國軍方第一次公開承認，美國的情報部門其實一直在追踪中共病毒的源頭。這更是美國官方第一次把病毒源頭和中共武漢實驗室放在了一起評論。
+> American taxpayers should not be forced to pay trillions of dollars because the Chinese government lied to the world about COVID-19.[https://t.co/c9SIZGwulz](https://t.co/c9SIZGwulz)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 15, 2020](https://twitter.com/MarshaBlackburn/status/1250499581374324745?ref_src=twsrc%5Etfw)
 
-雖然美國軍方最高領導人麥利上將表示就病毒的源頭還不能下定論，但是美國軍方作為此調查的“發言人”出現，其意義極為重大。一方面，這似乎是在回應前兩天，關於聯合國安全理事會應該帶頭調查病毒起源的新聞。另一方面，這更像是在告訴人們，美國正處在戰爭中這個事實。如果一旦證實病毒起源於中共實驗室，並且病毒洩漏並非“意外釋放”，這意味著新冠病毒在全球的大流行，是中共發起的一場生物戰爭。那麼等待中共的只能是紐倫堡審判。
+參議員Marsha Blackburn：不能因為中國政府就2019冠狀病毒疫情向全世界撒了謊而讓美國納稅人為此支付數万億美元。
 
-除此之外，今天早些時候，美國的立法部門和行政部門也都公佈了有關中共病毒的重大新聞。
+每日通話（The Daily Caller）新聞網站：田納西州參議員Marsha Blackburn說，中國應取消美國債務，為處理冠狀病毒爆發不力做出“賠償”
 
-首先是美國參議員喬什·霍利（Josh Hawley）提交了一項重要法案：《COVID19受害者司法程序》。該法案一旦通過，中共的主權豁免權就會被剝奪，那麼美國民間對中共提起的法律訴訟，將不會再有法律執行的問題。不難想像，針對中共的集體訴訟將像火山爆發一樣的湧現出來。
+> Regulators have found serious problems with Chinese batches of thyroid medication, muscle relaxers and antibiotics. In 2018, the FDA recalled blood pressure medications produced in China because they found cancer-causing toxins.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 15, 2020](https://twitter.com/MarshaBlackburn/status/1250514726062305281?ref_src=twsrc%5Etfw)
 
-最後就是川普總統在白宮每日的疫情通告中宣布，美國暫停向世界衛生組織提供資金。這表明美國對世衛組織和中共串通，偏袒中共，與中共一同矇騙全世界將徹查到底並追究責任。
+參議員Marsha Blackburn 連推：監管機構發現中國批次的甲狀腺藥物、肌肉鬆弛藥物和抗生素存在嚴重問題。 2018年，美國食品藥品監督管理局發現中國產血壓藥含有致癌毒素，將藥物召回。隨著抗擊2019冠狀病毒戰爭的推進，我們必須充分利用美國醫藥生產創新力，應對對我們的供應鏈造成的威脅。請看我在《時間自由報》（Time Free Press）發表的社論對頁版文章（由報社編輯以外的作者或名人以署名方式所撰寫的時事評析，編者按），內容關於我在將醫藥物資生產帶回美國方面所做的努力。
 
-2020年4月14日是個重要的星期二，美國立法，行政，軍方三部門同時向中共發出重擊，使中共朝著法律的審判台又走近了一步。
+> The Chinese Communist Party’s lack of transparency caused this pandemic, and now they’re holding important medical supplies hostage to extort praise. 
+> 
+> Criminal. [https://t.co/4GxD1L7z3u](https://t.co/4GxD1L7z3u)
+> — Tom Cotton (@SenTomCotton) [April 15, 2020](https://twitter.com/SenTomCotton/status/1250411248199622657?ref_src=twsrc%5Etfw)
 
-####  **美國參謀長聯席會議主席：美國情報機構正在調查新冠病毒是否從武漢實驗室洩漏** 
-[!\[\](https://spark.adobe.com/page/H4PNtm3DnYRnd/images/2e213a44-91a9-4bea-ac0d-708e6eb1b770.jpg?asset_id=6f3c171c-db8a-4ef7-89cf-814dad97c2b3&amp;img_etag=2fa0462f540e2aa69bedc50bf880c6ff&amp;size=2560)](https://spark.adobe.com/page/H4PNtm3DnYRnd/images/2e213a44-91a9-4bea-ac0d-708e6eb1b770.jpg?asset_id=6f3c171c-db8a-4ef7-89cf-814dad97c2b3&amp;img_etag=2fa0462f540e2aa69bedc50bf880c6ff&amp;size=1024)參謀長聯席會議主席馬克·麥利上將2020年4月1日，週三，在白宮的詹姆斯·布雷迪新聞發布室裡談到新冠病毒。 
-美國參謀聯席會議主席4月14日，週二說，美國情報機構正在調查冠狀病毒是否可能從武漢的中共實驗室洩漏。
+參議員Tom Cotton：中共信息不透明導致了這場疫情大流行，而他們現在又以重要醫療物資為要挾來勒索（人們對它的）讚譽。
 
-陸軍上將馬克·麥利（Mark A. Milley）是美軍最高級軍官，他在五角大樓對記者說，初步評估表明，引起全球大流行的冠狀病毒似乎是由動物向人類傳播的“自然”事件。但是，他指出，有已發表的報告指出病毒的源頭，可能是從研究實驗室洩露的結果。
+《紐約時報》：中國的“捐贈外交”致使與美國關係緊張
 
-麥利上將說：“我們一直都對此（病毒源頭）很感興趣，而且我們有很多的情報（部門）正在認真的研究它，這應該不足為奇。我能說的是，儘管證據顯示更偏向於（病毒源頭）自然發生，但目前尚無定論。我們還不能完全確定。
+> China is a pariah state. [https://t.co/cJSK24eCex](https://t.co/cJSK24eCex)
+> — Tom Cotton (@SenTomCotton) [April 15, 2020](https://twitter.com/SenTomCotton/status/1250569296272637952?ref_src=twsrc%5Etfw)
 
-四星上將（對病毒）的評論，是美國高級政府官員第一次公開提出病毒來自中共實驗室的可能性。
+參議員Tom Cotton：中共政權已經成了被排斥的國家。
 
-和麥利上將一起出席（發布會）的國防部長馬克·埃斯佩爾（Mark Esper），當被問及將來是否應該在中共國實驗室派駐國際調查員時，他說，他們將會把它當作大流行的”經驗教訓“的一部分來考慮這個問題。
+福克斯新聞：有消息認為源於武漢實驗室的冠狀病毒是中國企圖與美國競爭的一部分
 
-疫情的爆發開始於去年12 月1日，在武漢有很多的首批受害人，但不是全部的首批受害人，曾與該市的野生動物市場有過關聯。
+> China’s censorship & suppression are now not only a threat to human rights in China & around the world, they are also a direct threat to US national security & our economy. Chinese officials responsible for covering up [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) must be held accountable.
+> 👉[https://t.co/KiUI9Jamsk](https://t.co/KiUI9Jamsk)
+> — Senator Ted Cruz (@SenTedCruz) [April 15, 2020](https://twitter.com/SenTedCruz/status/1250441712297598976?ref_src=twsrc%5Etfw)
 
-該市場與中共官方媒體報導稱深度參與蝙蝠冠狀病毒研究的武漢疾病預防控制中心，相距不到3英里。這個開展蝙蝠病毒研究的武漢疫病預防控制中心的實驗室，只有2級安全措施，通常不具備處理致命病原體的能力。
+參議員Ted Cruz：如今，中國的審查制度和壓迫行為不僅威脅中國和全世界的人權，還直接威脅到美國的國家安全和經濟。中國官員對掩蓋冠狀病毒負有責任，應該被追究責任。
 
-第二個實驗室是在武漢病毒研究所內。那個實驗室裡有一個可以安全處理致命病毒的4級實驗室。而且這個實驗室也曾參與了蝙蝠冠狀病毒的研究。
+> My in-depth interview on the CCP’s virus cover up [https://t.co/vIJXmxX8Iv](https://t.co/vIJXmxX8Iv)
+> — Bill Gertz (@BillGertz) [April 15, 2020](https://twitter.com/BillGertz/status/1250466510398722058?ref_src=twsrc%5Etfw)
 
-石正麗，武漢病毒研究所的高級研究員，因為她在冠狀病毒領域的研究，人稱“蝙蝠女俠”。她一直堅持新冠病毒與她的實驗室無關。
+比爾·格茨先生：我的關於中共掩蓋病毒（真相）的深度訪談節目
 
-“2019新冠病毒是大自然給人類不文明生活習慣的懲罰，”石女士上個月在微信中這樣寫道，“我石正麗用我的生命擔保，與實驗室沒有關係。“
+美國思想領袖—大紀元：美東時間晚8點首播——“如果這場可怕的疫情大流行還有一線希望…那就是它正在喚醒世界看清中共的本質。”《華盛頓時報》比爾·格茨先生談論CCP病毒的來源和與中共的“新冷戰”。
 
-麥利上將的評論，也同時挑戰了一些科學家和新聞媒體的評論， 他們之前將任何關於病毒從中共實驗室洩漏的討論定性為陰謀論。
+> We should change the law to allow [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) victims to sue [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party [https://t.co/IDRYvcu3G4](https://t.co/IDRYvcu3G4)
+> — Josh Hawley (@HawleyMO) [April 15, 2020](https://twitter.com/HawleyMO/status/1250459966617632768?ref_src=twsrc%5Etfw)
 
-《華盛頓郵報》週二報導了，國務院在2018年曾就武漢病毒研究所的安全隱患提出過警告的消息。此外，邁克·蓬佩奧週二表示，中共在繼續阻礙病毒以及其所引起疾病的相關信息的公佈。
+參議員Josh Hawley：我們應該修改法律，讓冠狀病毒受害者們起訴中共。
 
-蓬佩奧先生說：“我們仍然需要來自全世界的可靠的數據。而且我們需要每個國家，包括中國共產黨，與大家分享數據，做到信息透明。這些數據能挽救生命。”
+福克斯新聞：參議員Hawley：讓冠狀病毒受害者起訴中共
 
-麥利上將沒有具體展開說明美國情報機構對冠狀病毒起源的調查。
+> Spoke with Director Yang Jiechi about U.S.-China aid and international cooperation on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). I stressed the importance of full transparency and information sharing in this fight. We'll continue to work together to defeat this pandemic and restore global health and prosperity.
+> — Secretary Pompeo (@SecPompeo) [April 15, 2020](https://twitter.com/SecPompeo/status/1250471566716084225?ref_src=twsrc%5Etfw)
 
-中共當局曾經提出意見說，這種與馬蹄蝠身上至少一種冠狀病毒相似度超過90%的病毒，可能是通過動物宿主在“濕貨市場”（中國的野生動物集市）傳播到人類身上的。
+美國國務卿蓬佩奧：就美中援助和疫情國際合作與楊潔篪主任進行了通話。我強調了在此次抗疫鬥爭中完全透明和共享信息的重要性。我們將繼續合作，戰勝這一疫病大流行並重建全球健康和繁榮。
 
-意外釋放病毒的可能性包括，有人在實驗室研究病毒時被感染，或者感染病毒的動物從實驗室洩露，或被員工從實驗室帶了出來。
+> Thanks CCP – "The project has increased Montenegro’s public debt to 80 per cent of its gross domestic product (GDP)." “The payoff that China is getting is not economic or commercial, it’s political,”[https://t.co/xGpcXd86Y9](https://t.co/xGpcXd86Y9)
+> — General Spalding (@robert\_spalding) [April 15, 2020](https://twitter.com/robert_spalding/status/1250394863729815552?ref_src=twsrc%5Etfw)
 
-一組研究了這個新病毒的科學家，上個月在《自然醫學》雜誌上報告說，不能排除中共研究人員意外釋放了這個病毒的可能性。
+斯伯丁將軍：謝謝中共—“該項目使黑山共和國的公共債務增加到其國民生產總值的80%。”“中國獲得的回報不是經濟或商業的，是政治的，”
 
-中共政府最初聲稱，新冠病毒爆發貌似開始於武漢野生動物市場之後，已經推翻了這一理論。
-
-中共外交部發言人說確定病毒來源的工作必須由科研人員來做。但是在最初同意提供病毒樣本供研究後，官方後來拒絕向美國研究人員提供病毒樣本。
-
-在疫情爆發的初期，中共在1月的大部分時間還曾經阻止美國和國際病毒專家實地訪問武漢以調查病毒的起源。而且之後，又將向國際科研人員公佈病毒基因組序列的時間，推遲了大約一個月左右。
-
-野生動物市場也已經被關閉，而且野生動物都已經被轉移，這限制了調查人員尋找病毒來源的能力。這個市場現在已經再次開放，這讓人擔心是否會有另一種病毒爆發。
-
-[英文原文鏈接](https://www.washingtontimes.com/news/2020/apr/14/mark-milley-us-intelligence-investigating-whether-/)
-
-###  **編輯：【喜馬拉雅戰鷹團】** 
-
+《南華早報》：冠狀病毒無情地打擊了負債累累的“一帶一路”項目
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/15225808/06_62.png)
 0
