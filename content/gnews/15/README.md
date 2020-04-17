@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰情室122: 美國解封的指標
-`2020-04-17 09:30 GM09` [轉載自GNews](https://gnews.org/zh-hant/175343/)
+## 2020年4月15-16日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-17 12:28 GM33` [轉載自GNews](https://gnews.org/zh-hant/175829/)
 
-總結：椰子哦耶
+[English0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120517/English0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120517/English0415_CCP_Virus_Updates-1.pdf)
 
-##  **內容摘要** 
+[English0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120525/English0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120525/English0416_CCP_Virus_Updates-1.pdf)
 
-1. **美國政府已收到多方情報表示CCP病毒來自武漢實驗室**
-2. **班農連線Joseph Norman博士討論美國防疫措施及重新美國解封應注意的基準。**
-3. **作戰室週六會有第二期關於中國的特別節目。班農屆時會連線來自武漢的市民，美國的華裔愛國者和牆內的人士。請戰友們關注。**
+[French0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120736/French0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120736/French0416_CCP_Virus_Updates-1.pdf)
 
+[French0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120543/French0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120543/French0415_CCP_Virus_Updates-1.pdf)
 
-福克斯記者John Roberts在採訪中稱福克斯收到多渠道信息表明美國政府現在有充足的信心證明CCP病毒來自在武漢病毒實驗室。由於缺少安全管理，一名實習生被感染，而後又感染了男友，病毒之後被帶到海鮮市場從而引起大爆發。他提問川普總統這是否與總統收到的情報一致。川普總統稱他不能直接評論，但他們從多方信息來源，越來越多地聽到這個故事，也正在進行全面分析。 John進一步提問川普，是否與習主席討論過對北京大使館匯報的關於武漢實驗室安全隱患的擔憂。川普總統表示，他不會談論與習主席的討論內容，這不合適。班農評價，當總統提到多方信息來源，這就證實此說法的真實性。班農先生指出，美國主流媒體忽視了最近這些大新聞，如美聯社的報告，Josh Rogin和此次川普總統的回答，他們並沒有積極報導，為民眾探求真相。
+[German\_0415\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120609/German_0415_CCP_Virus_Updates_-1-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120609/German_0415_CCP_Virus_Updates_-1-1.pdf)
 
-Jason Miller提到，中國對病毒來源掩蓋了數月，在此期間各種信息都劍指CCP，而主流媒體卻稱病毒來自武漢實驗室為陰謀論，並嘲笑持此觀點的人。 Raheem Kassam補充，零對沖正是因2個月前在推特上報導病毒來自武漢實驗室而被推特封號至今。班農認為，中共明知病毒洩露卻沒有採取任何補救措施。反而嫁禍於中國百姓，放出吃蝙蝠的視頻想讓世界相信是中國人不文明的飲食習慣導致的病毒，他們製造了大量的這樣的宣傳。班農先生提到，來自中國的情報稱，如果這次要以五千萬人的生命為代價搞垮西方，中共也會選擇這樣做。
+[German0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120621/German0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120621/German0416_CCP_Virus_Updates-1.pdf)
 
-班農之後連線來自新英格蘭復雜系統研究所的Joseph Norman博士, 討論了美國現行的防疫措施效果及重新開放美國應注意的基準。 Joseph 認為，在一些方面美國反應過慢，遲到的措施效果明顯下降。如果我們早些封閉的話，可以提前避免傳播。正因為我們封城過晚，才使紐約出現大爆發。當我們回過頭來看，當初川普總統停止中國的航班時，應該同時停止所有的國際航班，這對公共健康和經濟都是有益的。二月份我們所做的只是在暫停或延緩，而沒有採取任何措施控制國內疫情發展。尤其缺少限制國內交通，使狀況惡化。班農就不同學者基於不同假設所建立的不同模型對政府政策制定者所提供的指導幫助的可靠性上，尋問了Norman博士的看法。 Norman博士表示，我們應該開放政策決定所依靠的所有模型的所有信息，細緻地做假設，同時質疑假設的缺陷，觀測多個模型來進行政策建議指導。
+[Japanese0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120821/Japanese0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120821/Japanese0415_CCP_Virus_Updates-1.pdf)
 
-在何時美國能解除封鎖問題上，Norman博士認為，可以採取空間戰略，按感染嚴重程度給每個縣或區域評級，首先開放輕度感染區，讓商業回復運營，並嚴格禁止不同地區之間的人員流動，從小區域逐漸開放到全國。 Norman博士指出，人們之前嚴重忽視了帶口罩的重要性，如在超市這樣人員流動的公共區域，戴口罩可以有效的防護。如果大家都可以戴口罩出行，會幫助經濟在更大規模上恢復。
+[Japanese0416\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120835/Japanese0416_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120835/Japanese0416_CCP_Virus_Updates-2.pdf)
 
-Norman博士認為，美國一大優勢就是權力下放的政治結構。州長可根據該州的實際狀況做調整。但所面臨的問題是，如果不隔離來自州外的入境人員或不限制州際旅行，在全國范圍內就不會同步。若想去中心化治理疫情，地方必須有足夠的行政權來減緩或禁止州外入境。所以有兩種方案，全國封鎖，或在縣郡一級逐漸解封並實施普遍限製或隔離來有效地控制疫情。 Norman博士表示，大量檢測是必要的，但問題是誰在什麼時間要被檢測？如果在之前討論的空間戰略下，應該在爆發停止後，對沒有疫情的區域進行大量檢測來監控。
+[Russia\_0415\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120852/Russia_0415_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120852/Russia_0415_CCP_Virus_Updates-2.pdf)
 
-Jason Miller問及是否有量化的指標可控參考來解封時。 Norman稱未來充滿不確定性，通過邏輯判斷保持社交距離和戴口罩可以有效減少傳播，而不是一個量化的數字。
+[German0416\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120904/German0416_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120904/German0416_CCP_Virus_Updates-2.pdf)
 
-班農先生認為，需要專業技術來隔離高發病率的小群體或人口密集區。
+[Spanish0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120927/Spanish0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120927/Spanish0415_CCP_Virus_Updates-1.pdf)
 
-作者認為，面對人類前所未見的CCP病毒，世界科學家也懵圈了。在存在著大量變量的環境裡，提供一個統一的量化指標來指導人們日常行為著實困難。我們只有緊隨爆料革命，在家且隔離且珍惜鑑證這偉大的歷史進程。平安健康的等到喜馬拉雅實現那一天！
- 
+[Spanish0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120937/Spanish0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120937/Spanish0416_CCP_Virus_Updates-1.pdf)
+
 0

@@ -1,27 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月12日中共病毒疫情要聞快報
-`2020-04-17 10:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175414/)
+## 中共港澳辦公然干預香港事務一國兩制名存實亡
+`2020-04-17 10:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175477/)
 
-[4.12-今日要點-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095536/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095536/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102014/Picture-1-231.png)
+近期，港澳辦主任駱惠寧公開對香港下命令。
 
-[4.12-今日要點-土耳其語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17100510/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%9C%9F%E8%80%B3%E5%85%B6%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17100510/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%9C%9F%E8%80%B3%E5%85%B6%E8%AA%9E%E7%89%88.pdf)
+內容具體如下：
 
-[4.12-今日要點-芬蘭語版.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17100535/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17100535/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88.pdf.pdf)
-
-[4.12-每日要聞韓文版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095730/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095730/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
-
-[4.12-每日要聞-日本語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095754/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095754/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)
-
-[4.12-每日要聞-德語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095815/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095815/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)
-
-[4.12-每日要聞-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095810/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095810/4.12-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
-
-[4.12-每日要聞-法語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095852/4.12-%E6%B3%95%E8%AF%AD.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095852/4.12-%E6%B3%95%E8%AF%AD.pdf)
-
-[4.12-今日要點－俄語版－Русский.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095846/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17095846/4.12-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
+1. 維護國家安全需要良好的製度環境。
+2. 維護國家安全需要良好的法治環境。
+3. 維護國家安全需要良好的社會環境。
 
 
+上述3點表面上都是在說國家安全，實質背後意思就是指示和控製香港政府。本人解讀為：
+
+1. 盡快推出23條法案，這樣才有所謂的製度環境
+2. 盡快更換中共指定的大法官以便維護中共所謂的法治環境。
+3. 盡快消滅社會上反政府反中共的人，這樣才有中共所謂的良好的社會環境。
+
+
+中共從2002年開始就一直都想在香港立所謂的國家安全23條法案，但遭市民強烈反彈，以至2003年七一遊行有五十萬人上街。 7月9號政府提交立法會恢復二讀辯論前夕，行政會議成員田北俊辭職，香港政府最後暫停立法，至今無再提交。
+
+香港終審法庭大法官一共22名， 全部都是香港或者外國身份雙重國籍例如澳洲英國等。他們盡其所能在維持了香港目前僅有的法治獨立， 但中共想方設法的去破壞和乾預，今年終審首席大法官馬道立終於辭職了。他頂不住中共派來的所謂大法官通過側面來干預每件案件， 天天給馬大法官上中共政治思想課。
+
+據郭文貴先生直播指出，中共原想通過來中共疫情蔓延香港遊行示威的民眾和學生， 但弄巧成拙的把病毒帶到了全世界，到今天為止感染人數已經超過2百萬，死亡人數已經超過14萬，從一月底到現在只是2個多月，病毒的兇猛和中共的狠毒震驚全球， 中共知道以美國為首的西方國家絕對不會放過真兇。
+
+目前，中共希望盡快的全面控製香港，除了可以控製香港金融中心的外資必要時還可以控制生活在香港超過百萬人的外國公民作為人質， 所有在中國投資的外國公司99%的都在香港設立辦公室和銀行帳戶，因為港幣和美金是連繫匯率，基本沒有匯率風險，人民幣和港幣在香港也是可以互換， 但兌換外幣在中國國內卻是被中共牢牢的卡死了，為什麼只准進不准出？我以為無須問為什麼， 因為中共就是一個有國際公認執照的土匪。中共沒有做不了的壞事，只要善良的世人想不到而已。
+
+作者：Kent 澳洲袋鼠
 
 0

@@ -1,27 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月14日中共病毒疫情要聞快報
-`2020-04-17 10:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175546/)
+## GDP下去了還會回來嗎
+`2020-04-17 18:50 GM06` [轉載自GNews](https://gnews.org/zh-hant/176675/)
 
-[4.14-每日要聞-英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)
+作者：立武
 
-[4.14-每日要聞-芬蘭語Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)
+4月17日，中共公佈一季度GDP同比下降6.8%。市場預期下降4.6%。 IMF預計中國今年GDP增長率為1.2%，在4月3日的新聞發布會上，彭博新聞社記者提問中國人民銀行副行長和銀保監會副主席時，稱預計中國今年GDP增速為3.1 %，對此兩位中共高官並沒有否認。
 
-[4.14-每日要聞-土耳其語Turkish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)
+2019年，中國人民銀行發布的金融穩定報告中提到，在GDP增速小於4.1%的時候，17家大銀行沒有通過壓力測試，同時180多家大銀行的流動性測試也失效了。 GDP增速的急劇下滑將給金融體系、銀行體係將帶來雪崩效應。儘管中共一再強調受疫情影響，在國際供應鏈轉移或撤回、貿易萎縮、訂單驟減的情況下，中共的經濟將長期受到衝擊，並且越來越差。
 
-[4.14-每日要聞-德語版German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)
+> 郑州富士康停止招聘！ [pic.twitter.com/DXyeJz6zPk](https://t.co/DXyeJz6zPk)
+> — 财经真相 (@caijingxiang) [April 17, 2020](https://twitter.com/caijingxiang/status/1251081500532985861?ref_src=twsrc%5Etfw)
 
-[4.14-每日要聞-韓文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)
+最受衝擊的當然是第二產業，其中第一季度，規模以上工業增加值同比下降8.4%。 4月14日，根據東風汽車發布的公告，雷諾擬將其持有的東風雷諾50%股權轉讓給東風汽車，意味著雷諾品牌將全面退出在華燃油乘用車市場。即使雷諾可能轉戰電動領域，但這樣的產業鏈轉移很難在短時間內逆轉，一部分是因為資金成本問題，另一部分原因則是大環境的變化。
 
-[4.14-每日要聞-法語版French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)
+從與中共勾兌進入中國市場到脫鉤，即使中共以獨裁者的身份坐擁十四億中國人民的市場，如果沒有法治環境，沒有健康的金融體系，單靠廉價的勞動力和龐大的消費市場，很難再維持住往日的“中美蜜月期”。
 
-[4.14-每日要聞-日語版Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)
+一季度，社會消費品零售總額同比下降了19.0%，居民消費價格同比上漲4.9%，扣除價格因素實際人均可支配收入下降3.9%，內需動力的不足、物價的上漲、收入的放緩都相輔相成，正在逐步走向滯漲。
 
-[4.14-每日要聞-西班牙語版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17184628/1-96.png)
 
-[4.14-每日要聞－俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
+同時，公佈的還有截至一季度末的外匯儲備餘額，為30606億美元，較年初下降1.5%，同時一季度境外投資這減持境內股票約100億美元，3月份銀行代客涉外收付款呈現逆差，主要是證券投資項下跨境人民幣淨流出增多。儘管中共一再鼓吹是避險情緒和外部流動性趨緊導致的暫時逆差，目前的情況看，中共無法解決國內經濟下行的問題，不要說外來資本流入，中共的貝勒爺們就是第一個奪路而跑的避險家。
 
-[4.14每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)
+去年年末外債餘額就達到20573億美元，比2014年曆史高點還高出2774億美元，再加上核心的外貿急劇萎縮的情況下，外匯儲備和以往以此為錨的人民幣的超發都將加劇經濟危機帶來的影響。
+
+這還只是中共發布的數據。
+
+郭文貴先生在去年爆料，實際的外匯儲備不超過1萬8千億，對外外債實際上將近3萬億，在國際上大量地通過上市公司、通過港幣來借外債。香港作為中共內外洗錢的通道，如果香港自貿區地位取消、美國對香港實施制裁，香港轉口、金融中心不再，對於中共經濟金融的打擊將是致命的。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17184731/2-57.png)
+
+不論是中共經濟基本面，還是外部環境，都在惡化，這與中共一直以來坑蒙拐騙的掠奪經濟形式以及盜國賊不斷往外藏匿財富有關。 4月17日，中共央行發布2020年第2號工作論文《系統性金融風險溢出效應研究》，指出銀行業與證券業之間是主要的風險傳染渠道。儘管中共聲稱該論文是學術交流，不代表人民銀行，但是能夠釋放出這個信號足以說明一切。當問題發生時，中共又可以解釋：不要說我沒提醒你們。
+
+**中共的經濟已經逐步潰爛，從外貿行業到金融行業，最終都會波及每個人，這也是文貴先生一直說的，如果不儘早滅共，給中國人民帶來的苦難將會更多。**
+
+（文章內容僅代表作者觀點）
 
 0
