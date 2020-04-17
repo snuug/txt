@@ -1,73 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國醫療工作者起訴北京非法囤積全球醫療用品
-`2020-04-16 18:12 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/174707/)
+## 【多語言圖文版】4月9日中共病毒疫情要聞快報
+`2020-04-17 01:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175048/)
 
-**【中英對照翻譯】** [https://spark.adobe.com/page/c28dDHaTuNReb/](https://spark.adobe.com/page/c28dDHaTuNReb/)
+[4.9-今日要點-英語版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021505/4.9-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021505/4.9-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
 
-*作者：Janita Kan*
+[4.9-每日要點-韓語版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021648/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021648/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
 
-*新聞來源：The Epoch Times*
+[4.9-每日要點-意大利語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021700/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021700/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD%E7%89%88.pdf)
 
-*翻譯/簡評:：InAHurry*
+[4.9-每日要點-日語版.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021758/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021758/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf.pdf)
 
-*PR：freedust*
+[4.9-每日要點-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021825/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021825/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-**簡評：中共再次在美被起訴**
+[4.9-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021852/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021852/4.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-上週三，弗羅里達的伯曼律師事務所再次把中共推上了被告席。這次原告方是美國的7名醫務工作者，其中有2名已經很不幸地感染了中共病毒。這次對中共的控訴主要是針對中共慫恿其海外力量蓄意買空當地醫療物資並將其運送回中共國大量囤積的違法行為。疫情在美國爆發後，美國才如夢初醒，發現本國的醫療物資短缺到連一線醫護人員的安全都無法保證。這使得一線醫護人員在超負荷工作的同時還要時刻受到病毒的死亡威脅。
+[4.9-今日要點－俄語版－Русский.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021845/4.9-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14021845/4.9-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
-文貴先生說過，在疫情中，醫護人員是我們最珍貴的資產，是我們的英雄。令人不齒的是，中共趁人不備，買斷了全世界的醫療物資，但卻沒有把物資用在中國一線醫務人員身上，甚至有的還被轉手高價出售。可憐中國的一線醫護人員，一方面要超強度工作，另一方面更要忍受醫療物質匱乏帶來的死亡威脅！中共在國內可以封鎖消息蒙混過關，如有東窗事發，就掉幾滴鱷魚的眼淚以平民憤。但在美國，中共會直接面對法律，為其罪行負責。這次的7名醫護人員只是集體訴訟的代表。這個集體訴訟已經有超過100名美國的醫護人員簽名。中共必將在美國法庭接受法律制裁。
 
-值得一提的是，這是中共因新冠病毒第n次在美國成為被告。伯曼律師事務所還有另外一個集體訴訟的案件控訴中共在疫情早期故意欺瞞真相，導致疫情在全世界的大爆發。三月中，更有美國有名的保守派律師拉里·克萊曼（Larry Klayman）及其組織“自由觀察”（Freedom Watch）向得克薩斯州聯邦法院提起訴訟，控訴中共將新冠病毒發展成為一種非法的生物武器向全世界釋放並要求中國政府提供至少20萬億美元的賠償。
-
-**正文：**
-
-##  **美國醫療工作者起訴北京非法囤積全球醫療用品** 
-[!\[\](https://spark.adobe.com/page/c28dDHaTuNReb/images/d34fe4bd-090b-46b9-8644-4e1a35aafc1e.jpg?asset_id=112fdcd7-779b-4ba0-85d9-d9b2f072037b&amp;img_etag=eab6a94aca5898647c2c28dfeb0fb629&amp;size=2560)](https://spark.adobe.com/page/c28dDHaTuNReb/images/d34fe4bd-090b-46b9-8644-4e1a35aafc1e.jpg?asset_id=112fdcd7-779b-4ba0-85d9-d9b2f072037b&amp;img_etag=eab6a94aca5898647c2c28dfeb0fb629&amp;size=1024)在美國的一線醫護人員與中共病毒作戰之際，一組醫務工作者正在尋求以法律手段讓中國共產黨為非法囤積個人防護裝備而負責。 
-醫護人員周三通過在弗羅里達的伯曼律師事務所向中共政權提起訴訟。該官司的控訴主要是指控中共在故意囤積醫療級防護口罩，面罩，眼罩和其他防護設備，同時禁止這些物品的出口， 以便以更高的價格出售。
-
-根據起訴書，被指控的囤積行為發生在疫情爆發的初期，中共政府意識到疫情的嚴重性和傳播性。起訴書中還指控中共壓制了疫情信息， 審查了疫情報告，並提供了不實信息導致了病毒的傳播。
-
-訴狀中寫道：其（中共的行為）的結果是美國一線醫護人員因物資短缺，難以找到個人防護用品（PPE）來保護他們自己而面臨死亡，感染和其他傷害的嚴重風險。
-
-伯曼法律（Berman Law Group）的首席策略師兼非律師發言人傑里米·阿爾特斯（Jeremy Alters）表示：“ 他們從1月份就開始這麼做了，但是（中共惡意囤積的行為）一直持續到3月份，這可能是卑鄙的部分。你知道，他們（中共）沒有給我們700架帶有口罩和防毒面具貨機或採取行動來解決這個他們造成的問題。相反，我們的醫護人員正在受病毒影響而且因此而死亡。
-[!\[\](https://spark.adobe.com/page/c28dDHaTuNReb/images/d2730729-28ca-40dd-93f2-7d36ede62a13.jpg?asset_id=f1ca73e2-572b-4d3f-85c8-a9b6626cf6da&amp;img_etag=90c92d9a9850845b8a744924f7e2b76c&amp;size=1024)](https://spark.adobe.com/page/c28dDHaTuNReb/images/d2730729-28ca-40dd-93f2-7d36ede62a13.jpg?asset_id=f1ca73e2-572b-4d3f-85c8-a9b6626cf6da&amp;img_etag=90c92d9a9850845b8a744924f7e2b76c&amp;size=1024) 2020年2月4日，工作人員和志願者在中國武漢會展中心的倉庫中運送醫療用品
-根據中共海關的最近數據，在1月24日至2月29日期間，中共國進口了24.6億箱流行病預防用品，價值82.1億人民幣（11.58億美元）。其中防護口罩有20.2億個，防護服有2千5百38套。
-
-在那段時間裡，中共當局，中共政府的外交部，中共駐世界各地的大使館全都試圖動員海外僑民幫助從世界各地購買醫療物資。
-
-其中一個例子，中國共產黨的統戰部門是一個致力於在國內外散步傳播中共方針的機構， 它鼓勵所有在海外的中國人買空所有的醫療物資然後把它們寄回國內。
-
-同樣的，中共的國有企業，政府為主要股東的公司和私營企業也在1月份開始採購醫療物資然後把它們寄回國內。
-
-目前不清楚中共政權是如何使用他積攢的物資的。
-
-與此同時，中共政府貌似為了應對疫情開始控制個人防護用品（PPE）的出口。在3月9號的外交部日常記者招待會上， 一位記者就曾提問中共政府是否會禁止所有醫用口罩和用於製做醫用口罩的原材料的出口。
-
-外交部發言人耿爽回答說：“中共國仍需要大量的口罩而且口罩供不應求。在現階段，那些想要從中共國購買口罩的國家會遇到困難。”但耿否認政府在強制性要求商家停止出口醫用物資。
-[!\[\](https://spark.adobe.com/page/c28dDHaTuNReb/images/77dbcfb6-399c-4592-9df3-bec7c09f98ce.jpg?asset_id=c832fee1-bedc-4ae9-9807-7dd5013fac39&amp;img_etag=a06f896960d2aceda34dacd6a01dc70a&amp;size=1024)](https://spark.adobe.com/page/c28dDHaTuNReb/images/77dbcfb6-399c-4592-9df3-bec7c09f98ce.jpg?asset_id=c832fee1-bedc-4ae9-9807-7dd5013fac39&amp;img_etag=a06f896960d2aceda34dacd6a01dc70a&amp;size=1024)
-這些被指控的囤積也引起了美國官方的注意。白宮經濟顧問彼得·納瓦羅（Peter Navarro）在最近的《福克斯新聞》（Fox News）採訪中對這種行為表示了擔憂。
-
-納瓦羅說中共國試圖“壟斷世界個人防護用品市場。… 他們趁全世界還在對這個病毒的危害沉睡時從世界各地購買了大量的口罩，手套， 眼罩，防毒面具。”
-
-控訴中提到的醫護人員包括兩名醫生和兩名護士和一名外科技術人員。其中兩位原告已測試新冠病毒呈陽性，這是中共病毒引起的疾病。其他的原告還在等待測試結果。阿爾特斯說在控訴中列出的這些原告是集體訴訟的代表。公司（律師事務所）已經有超過100名醫生，護士和醫務工作者簽名加入集體訴訟。
-[!\[\](https://spark.adobe.com/page/c28dDHaTuNReb/images/a6e406ec-aefa-429a-9609-ba3b6f387146.jpg?asset_id=20b11d63-b9b9-4012-b52c-e41ca1cdd5d5&amp;img_etag=d16e96de8e0cdac09082d46b45a9f735&amp;size=1024)](https://spark.adobe.com/page/c28dDHaTuNReb/images/a6e406ec-aefa-429a-9609-ba3b6f387146.jpg?asset_id=20b11d63-b9b9-4012-b52c-e41ca1cdd5d5&amp;img_etag=d16e96de8e0cdac09082d46b45a9f735&amp;size=1024)員工於2020年2月4日在中國中部湖北省武漢市的一家展覽中心倉庫中轉移醫療用品。該醫院已改建成臨時醫院。 
-這不是伯曼律師事務所的第一起對中共政府提起的集體訴訟。上個月， 這家律師事務所在弗羅里達州提起訴訟，指控北京在疫情初期的掩蓋行為導致了全球瘟疫大流行。
-
-這個控訴指控中國共產黨知道新冠病毒的危險性以及它能引起大流行。但他卻延遲採取行動。眾所周知的，他們假裝疫情不存在，並/或為了他們的經濟利益掩蓋了疫情。
-
-中共早在去年12月中旬就知道疫情的存在，但他們在控制疫情上全軍覆沒。在控制疫情獲得慘敗的同時，他們把病毒釋放到了全世界。如果中共早在1月份就告訴世界衛生提供者，相關問題的負責人或可以為之提供幫助的人的話，很大程度上說，這個疫情原本可以得到控制。
-
-根據約翰·霍普金斯大學（Johns Hopkins University）彙編的數據，截止週二晚，美國一共有45萬4千例確診病例和1萬6千2百人死於中共病毒。
-
-阿爾特斯說：“ 我們不會讓中國共產黨和中華人民共和國在傷害我們的醫務工作者後逃脫法律制裁。我們的醫務工作者是我們的英雄。“
-
-*尼珂·郝也為本報告作出貢獻。*
-
-[原文鏈接](https://www.theepochtimes.com/us-health-workers-sue-beijing-for-hoarding-global-medical-supplies_3305523.html)
-
-###  **編輯【喜馬拉雅戰鷹團】** 
 
 0
