@@ -11,6 +11,11 @@
 
 
 
+**milesguo** 2020年4月16日CCP冠状病毒大流行第83集<br>https://gnews.org/zh-hans/175180/
+
+[https://www.guo.media/posts/277711](https://www.guo.media/posts/277711) `2020-04-17T18:10:11`
+##
+
 **milesguo** 班农战情室120: 美切断WHO资金支持 呼吁北京冬奥会取消<br>https://gnews.org/zh-hans/174247/
 
 [https://www.guo.media/posts/277700](https://www.guo.media/posts/277700) `2020-04-16T20:40:09`
