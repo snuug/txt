@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 食品加工行業存在隱患中共病毒無孔不入
-`2020-04-17 04:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175162/)
+## 【多語言圖文版】4月11日中共病毒疫情要聞快報
+`2020-04-17 09:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175365/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17040136/1-91.png)
-據《每日郵報》報導，史密斯菲爾德（Smithfield）公司於週三宣布關閉在威斯康星州庫達（Cudahy）和密蘇里州馬丁市（Martin City）的包裝廠，這發生在其南達科他州蘇福爾斯工廠無限期關閉後幾天。
+[4.11-今日要點-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092017/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092017/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
 
-該公司位於蘇福爾斯（Sioux Falls）的工廠擁有約3,700名工人，是一個龐大的食品加工中心，每週為美國人提供近1.3億份食物，即每天約1800萬份食物。該工廠處理了美國豬肉供應量的大約5％。史密斯菲爾德（Smithfield）總部位於弗吉尼亞州，於2013年被中國肉類加工巨頭萬洲國際集團（WH Group）以47.2億美元的價格收購。
+[4.11-今日要點-芬蘭語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17093619/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17093619/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E8%8A%AC%E5%85%B0%E8%AF%AD%E7%89%88.pdf.pdf)
 
-蘇福爾斯（Sioux Falls）工廠目前有518名員工及其120名家庭成員的中共冠狀病毒檢測呈陽性，現在是美國最大的單一病例來源，疾病控制與預防中心已派出了一支重要的應急隊伍。
+[4.11-今日要點-土耳其語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17093623/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%9C%9F%E8%80%B3%E5%85%B6%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17093623/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%9C%9F%E8%80%B3%E5%85%B6%E8%AA%9E%E7%89%88.pdf)
 
-史密斯菲爾德公司在一份聲明中說，在Cudahy和Martin City工廠的“少量員工”都在中共病毒測試中呈陽性。加工乾香腸和培根的Cudahy工廠將關閉兩週，在此期間將繼續向員工支付薪水，並將重複進行嚴格的深層清潔和消毒。
+[4.11-每日要點-韓文版ᄌ ᅮ ᄋ ᅭ ᄂ ᅲ ᄉ ᅳ – ᄒ ᅡ ᆫ ᄀ ᅮ ᆨ ᄋ ᅥ](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092250/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092250/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
 
-史密斯菲爾德總裁兼首席執行官肯尼思•沙利文（Kenneth M. Sullivan）在一份聲明中說：“關閉馬丁市工廠可能會引發我們行業的多米諾骨牌效應……為了國家安全，我不能低估對我們行業持續經營的重要性。”
+[4.11-每日要點-德語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092306/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092306/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88.pdf)
 
-沙利文說，史密斯菲爾德公司已經實施了嚴格的協議，試圖保護工人，使用熱掃描儀，個人防護設備和物理屏障，該公司還告訴所有感到不適的員工可以請帶薪病假。
+[4.11-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092303/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092303/4.11-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
-由於工作場所爆發中共冠狀病毒，史密斯菲爾德並未關閉工廠的唯一肉類加工商。上週，泰森食品（Tyson Foods）被迫中止在愛荷華州哥倫布章克申（哥倫布交界處）一家豬肉加工廠的泰森首席執行官諾爾。懷特（Noel White）在4月6日的一份聲明中說：“為了最大程度地減少對我們整體生產的影響，我們將原定交付的牲畜轉移到了其他一些豬肉工廠。”
+[4.11-今日要點－俄語版－Русский.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092322/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17092322/4.11-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
-同時，另一家主要的肉類加工商美國JBS公司由於員工生病而停止了其在賓夕法尼亞州Souderton的牛肉工廠的運營。該工廠計劃在兩週後重新開放。嘉吉公司也暫停了其位於賓夕法尼亞州哈茲爾頓的蛋白質工廠的生產，該工廠通常有900人在這里工作。
 
-評論： 萬洲國際就是大家熟知的雙匯，目前是全球最大的豬肉食品企業。該企業不被CCP控制不會走到今天，在傳播中共病毒，尤其在美國本土，這家公司到底做了多大“貢獻”，我們目前沒有具體證據，但這足以敲響警鐘，連美國的食品加工行業都逃不掉CCP的陰影，不但是國防安全，網絡安全，醫藥安全，連食品安全都可能受到威脅。可見，中共對美國和世界的安全威脅是全方位的，中共不滅，全方位的脫鉤就勢在必行，而且迫在眉睫。
-
-[新聞鏈接](http://https：//www.dailymail.co.uk/news/article-8223423/Chinese-owned-Smithfield-Foods-shutters-two-meat-processing-plants-Missouri-Wisconsin.html)
-
-翻譯報導：人間四月
 
 0

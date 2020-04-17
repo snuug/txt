@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國一季度經濟數據出爐預期全年增速文革以來最低
-`2020-04-17 08:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175275/)
+## 【多語言圖文版】4月13日中共病毒疫情要聞快報
+`2020-04-17 10:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175497/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17074112/Picture-1-230.png)
-據英國衛報報導，2020年第一季度，僅根據中共數據，中共國經濟就萎縮了6.8％，這是有記錄以來的首次萎縮，是中共冠狀病毒大流行對經濟產生影響的鮮明標誌。
+[4.13-每日要聞-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101531/4.13-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101531/4.13-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
 
-海外需求低迷也進一步打擊中共經濟。中共的第一季度萎縮是在2019年下滑之後的。中共經濟以近30年來最慢的速度增長，這是由消費放緩，債務推動的增長回落以及曠日持久的貿易戰共同作用的結果。路透社的分析師估計，中共國2020年增長率將從去年的6.1％放緩至2.5％，這是自“文化大革命”以來的最低增速。
+[4.13-今日要聞-芬蘭語-Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102416/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102416/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf.pdf)
 
-消息一經傳出，中共內部就立馬修改了武漢市的死亡人數，武漢是受災最嚴重的城市，也是該病毒首次出現的地方，從2579例上升了50％至3869例。該市病毒預防和控制工作組的藉口是，在到達醫院之前在家中死亡的患者人數以及報告的及時性都存在不准確的地方。
+[4.13-今日要聞-土耳其語-Turkish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102446/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102446/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)
 
-如今，中共面臨多國的指責。因中共冠狀病毒早期於12月在湖北中部出現時，由於中共在疫情最初階段壓制了有關疫情爆發的重要信息，導致該病毒蔓延全球並感染了超過200萬人，14萬人也因其死亡。
+[4.13-每日要聞-德語版German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101709/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101709/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german.pdf)
 
-同時，美國官員還指責中共掩蓋了實際的病毒感染和死亡人數。華盛頓表示，美國正在調查中共冠狀病毒的起源，包括它是否從武漢病毒實驗室洩露出去的。
+[4.13-每日要聞-韓語版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101749/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101749/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
 
-評論：
+[4.13-每日要聞-日本語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101804/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101804/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)
 
-中共數據造假已經是眾所周知，真實的感染和死亡人數，還有經濟萎縮的數據遠遠不僅於此。據郭文貴先生爆料，中共國全國感染人數500萬以上，全國死亡人數大概50萬，就湖北地區死亡人數就起碼有20萬；中共城鎮失業人口其實已超5000萬，如果算上返鄉農民工，實際失業人口已上億。
+[4.13-每日要聞-法語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101833/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101833/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)
 
-即便如此，統計局都給出了中共國建國以來最大的經濟萎縮，可想而知國內的經濟情況有多糟糕，這也更加說明中共讓老百姓復工有多麼的迫切，老百姓是否感染或死去他們根本不在乎，這是他們垂死的掙扎。因此戰友們一定要耐心勸說家人不要去複工，想盡一切辦法熬到6月4日那一天！
+[4.13-每日要聞-西班牙語-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101811/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101811/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
 
-[原文鏈接](https://www.theguardian.com/world/2020/apr/17/china-economy-shrinks-record-wuhan-covid-19-death-toll-rises-50-percent)
+[4.13-每日要聞－俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101839/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101839/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
-翻譯報導：人間四月
+[4.13每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101822/4.13%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101822/4.13%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)
+
+
 
 0
