@@ -1,13 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室：繼續扒皮Fauci
-`2020-04-16 07:25 GM31` [轉載自GNews](https://gnews.org/zh-hant/174372/)
+## 前軍情六處局長：中共隱瞞了病毒還試圖嫁禍於人
+`2020-04-16 07:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/174426/)
 
-在[第118期](https://youtu.be/s16Hi3ksZEg)的War Room: Pandemic中，Fauci在採訪中承認，他說話有時用詞是不夠嚴謹，而這是昨天[第116期](https://gnews.org/zh-hans/173689/)戰爭室節目中不停抨擊Fauci的一個原因。班農先生說：“我不想讓他成為我的醫生，他每次都使我困惑, 我說的只是我，我不挑剔那個傢伙，但他永遠都太不精確了。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16075027/sawers_2726763b.jpg)秘密情報局前局長約翰·索爾斯爵士（Sir John Sawers）照片來源：AP 
+據英國《每日郵報》4月15日報導，前軍情六處局長約翰·索爾斯爵士（Sir John Sawers）日前接受采訪表示中共對西方隱瞞了中共病毒的情況，並還試圖嫁禍於人。而世界衛生組織在疫情中的作用也要接受嚴厲的質疑。
 
-延伸閱讀： [班農戰斗室：Fauci博士是川普總統身邊的無恥騙子](https://gnews.org/zh-hans/173689/)
+索爾斯採訪中表示，我們現在已經無法不與中共合作了，而中共和西方顯示出越來越大的不可調和的矛盾。在談到世界衛生組織時，索爾斯認為，與其質疑世衛組織還不如讓中共去承擔它應有的責任。
 
-*翻譯：【Ying202064】校對：【nevernever2020】字幕：【小南】*
+此前，前外交大臣威廉·黑格勳爵（Lord William Hague）也警告稱，從這次疫情來看，中共明顯是個不遵守國際準則的國家，英國在技術方面不能依賴亞洲超級大國。議會議員們也強烈要求英國不能再使用中共的5G技術。在政策交流智囊團的一次辯論中，黑格表示，西方對華政策完全是“既不連貫一致又很無能”，而目前英國進入了既不能依靠中共也無法不與他們合作的兩難境地。
+
+黑格還表示對中共病毒進行國際調查的要求幾乎沒有希望，“中共能同意進行國際調查嗎？ 我認為這是不太可能的，中共在社交媒體上已經大肆散佈疫情完全是別人的錯的想法，甚至說是美國的錯。”
+
+曾任美國國家安全顧問的中將赫伯特·雷蒙德·麥克馬斯特（Lieutenant General HR McMaster）稱，現在是“我們結束對中國共產黨的自欺欺人的時候了”，並承認西方以前對華關係的做法是“錯誤的”。 “中共離自由的治理形式越來越遠，中共在內部不斷完善這個奧威爾式的監視警察國家（來自[著作《1984》](https://zh.wikipedia.org/wiki/%E4%B8%80%E4%B9%9D%E5%85%AB%E5%9B%9B) ），而對外則變得越來越激進。”
+
+[原文鏈接](https://www.dailymail.co.uk/news/article-8220887/China-concealed-coronavirus-trying-evade-blame-says-ex-MI6-chief-John-Sawers.html?ito=rss-flipboard)
+
+翻譯報導：Sonya
 
 0
