@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今天，你領消費券了嗎？之中國政府發放50億消費券
-`2020-04-16 20:27 GM30` [轉載自GNews](https://gnews.org/zh-hant/174765/)
+## 【多語言圖文版】4月8日中共病毒疫情要聞快報
+`2020-04-17 01:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175029/)
 
-**作者：文小明**
+[4.8-今日要聞-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020225/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020225/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
 
-最近各個地區紛紛開啟促進消費模式，為了刺激國內消費者的消費慾望。各個地區紛紛使出渾身解數，就連沉寂已久的“消費券”都重出江湖了……
+[4.8-今日要聞-韓語版-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020351/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020351/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16201923/1-145.jpg)
+[4.8-每日要聞-意大利語](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020406/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020406/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD.pdf)
 
-隨著疫情的影響在全球範圍內不斷擴大，全球多個國家都已經提出了應對措施。為了刺激本國的經濟發展，美國提出“直升機撒錢”政策，直接給居民撒錢促進整體的消費。而德國，也在疫情期間做出了經濟應對措施。
+[4.8-每日要聞-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020416/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020416/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
 
-疫情之下，德國的中小企業以及個體戶都受到了比較大的影響，德國很顯然也清楚的認識到了這一事實。德國財政部在此前發布官方消息，面對所有的小企業業主以及個體戶們，對於這些職業的從事者，每個月都可以得到9000歐元的補助，為期三個月。
+[4.8-每日要聞-俄語版8-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020620/8-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020620/8-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
 
-與此同時，CCP的疫情防控工作已經接近“ **尾聲** ”，為了加快復工復產，國家也開始在促進消費方面“ **下手** ”。自從進入3月份，全國各地紛紛開啟“ **拉攏式消費** ”。
+[4.8-每日要聞-法語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013802/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013802/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-1.pdf)
 
-3月以來，廣西、南京、合肥、浙江等地區政府，紛紛通過支付寶發放消費券，是的，你沒有看錯，正是沉寂已久的消費券重出江湖了。為了刺激消費者的消費慾望，激活被疫情遏制的消費需求，國家開始“出大招”了。
+[4.8-每日要聞-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013844/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013844/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16202000/2-108.jpg)
-
-3月，杭州向全體在杭州人員發放了16.8億元的消費券，而南京也向本地市民發放了3.18億元的消費券。隨後浙江嘉興跟進2億元。
-
-4月份，鄭州宣布向社會發放4億元消費券，注意，鄭州發放的群體是面向整個社會哦。受到這幾個城市的氣氛感染，廣東、深圳、珠海、江門等地區相繼跟進發放消費券。短短一個月的時間內，全國已經有30多個地區共計發放了50多億元的消費券。
-
-面對國內發放的消費券，也有不少人提出了疑惑，國外多個國家紛紛發放現金，國內為何不效仿國外的做法呢?很顯然，國情不同，所製定的策略也不同，直接發放現金的方式，在中國促進消費的作用顯然並不大。
-
-眾所周知中國民眾有儲蓄的習慣，如果我們直接發放現金，這些錢很有可能不會被用來消費，而是被居民當作存款存起來。如果選擇直接發放現金，很難達到拉動消費的目的。那怎麼辦呢，怎麼樣既能發放消費券又能讓它們達到快速消費流動的效果呢，或者最終流向金融市場、房地產市場等非消費領域。那麼絕招來了，縮短消費券的有效消費時間。對，就是十天之內或者幾天之內不花掉就一分錢也值了。
-
-那麼久有人說了，我不領這個消費券行不行啊，可以啊，CCP直接把工資給你換算成多少多少的消費券，你愛拿不拿，拿了就得花。
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16202217/3-87.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16202230/4-68.jpg)
+[4.8-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013934/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013934/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
 
 
-按照七哥的話來講，這是個多麼流氓的政府啊。
-
-今年年初，央行發布了一份金融數據報告，報告顯示我國的居民部門負債率已經達到了60%，創下了歷史新高點。就目前債務水平來看，不僅絕對債務水平高，增長的速度也是全球第一。 1996年槓桿率為3%，2008年為18%，但是到2019年已經飆升到60%，短短十年時間走完發達國家40年的發展時間。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16202326/5-37.jpg)
-
-根據中國社科院人口數據統計，我國人口已經超過14億。龐大的人口數群帶來了巨大的消費動力，但是經過這麼多年的發展，中國的消費水平依舊不高。有專家表示，實際上中國真正有消費能力的人只有2億（估計都是CCP的子子孫孫和那些碩鼠），剩下12億人口都屬於消費能力低靡，甚至沒有消費能力的群體。
-
-我國人均負債17萬元
-
-中國向來都是弘揚“勤儉節約”優良文化傳統的國家。在過去中國普遍都有很好的儲蓄習慣，但是隨著時代的發展，也漸漸的從“全民儲蓄”變成了“全民負債”。數據表示，我國人均負債金額已經達到了17萬元。同時作為社會頂樑柱的90後，負債金額也高達13萬。
-
-今天的疫情情況下的全國已經有30多個城市都發放了消費券，而且後續還有不少城市正在跟進，今天你領到消費券了嗎?
-
-（文章內容僅代表作者觀點）
 
 0

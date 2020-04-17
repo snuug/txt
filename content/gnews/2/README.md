@@ -1,148 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月16日美國政要推文選譯
-`2020-04-17 00:05 GM65` [轉載自GNews](https://gnews.org/zh-hant/174922/)
+## 撤出企業表明美國對CCP的全面切割 進入最後準備階段
+`2020-04-17 02:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/174818/)
 
-> The Chinese Government has never been honest. That the virus may have originated in a lab is the least bit surprising. [https://t.co/L5Djhwm1aP](https://t.co/L5Djhwm1aP)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 16, 2020](https://twitter.com/MarshaBlackburn/status/1250595999929831425?ref_src=twsrc%5Etfw)
+**作者：喜馬拉雅的微塵**
 
-參議員Marsha Blackburn：中國政府從來都不誠實。病毒可能來源於實驗室這事兒一點也不令人驚訝。
+繼日本政府決定撥出約22億美元幫助日企從中國大陸遷回日本後，4月9日，美國白宮首席經濟顧問庫德洛（ [Larry Kudlow](https://twitter.com/larry_kudlow) ）在福克斯電台公開表示： “美國政府對於企業從中國遷回美國的所有支出給予100%直接報銷，包括廠房、設備、知識產權、基建、裝修等所有費用”。他還進一步強調：“換句話說，實際上相當於我們為美國企業從中國遷回美國的全部成本買單”。
 
-蘋果·新聞：有消息認為源於武漢實驗室的冠狀病毒是中國企圖與美國競爭的一部分
+此次庫德洛代表官方的公開表態，所傳遞的信息和內涵非常豐富，意義非常重大，既向全世界亮明了美國堅決與CCP脫鉤的決心，同時又表明美國對CCP的全面反擊清算進入了最後準備階段。
 
-> Tennessee Sen. Marsha Blackburn sharing how she's holding China accountable for COVID-19.. [https://t.co/pbG0ttoCRX](https://t.co/pbG0ttoCRX)
-> — WTVC NewsChannel 9 (@newschannelnine) [April 16, 2020](https://twitter.com/newschannelnine/status/1250791053285830658?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16210256/image0-126.jpg)
 
-參議員Marsha Blackburn 轉推：
+**一、庫德洛表態的內涵和意義**
 
-WTVC新聞頻道9：田納西州參議員Marsha Blackburn分享她將如何追究中國關於2019冠狀病毒的責任。
+**（一）亮明美國和CCP脫鉤的決心** 。至少包含三層意思： **一是與CCP脫鉤民意和民心所向** 。美國政府是民選政府，每一項決定都是經過對民意和利益的綜合考量而作出的。從中國撤離企業是重大的國家戰略行動，影響面非常廣、投入非常大，此次庫德洛代表官方的表態就是美國兩黨和廣大民眾的共識。 **二是做好了承受與CCP脫鉤損失和陣痛的準備** 。俗話說，兩害相權取其輕。對美國而言，是否與CCP脫鉤就是抉擇要錢還是要命的問題。經過幾十年的發展，美國和中國在經濟和產業方面融合度很深，與CCP脫鉤，必將給美國帶來巨大的經濟損失和產業陣痛，其中經濟損失既有直接由於企業廠房、設備等搬遷和重建產生的費用之外，還包括放棄現有的中國市場收益，重建和重構供應鍊等的間接費用；產業陣痛，主要是由於沃爾瑪、蘋果等諸多美國企業的供應鏈佈局在中國，返回美國本土重建產業鏈必將對企業經營發展和整個產業帶來巨大影響。此次庫德洛的公開表態的“百分百報銷”政策，其力度和決心之大，在美國歷史上也是前所未有，這已經表明美國已經做好了“刮骨療毒”和“斷臂求生”的準備。 **三是解決了相關企業的後顧之憂。**對企業而言，搬遷撤離費時費力，是一項大工程，資金、人力和物力等投入巨大。美國政府出台“百分百報銷”政策最大限度地解決了撤離企業的後顧之憂。
 
-> .[@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) & I are introducing the Stop COVID Act to make China liable for unleashing COVID-19 on our country. Americans victimized by Chinese Communist Party lies & deceit deserve the opportunity to take China to court in the U.S. & demand compensation. [@LanceGooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 16, 2020](https://twitter.com/MarshaBlackburn/status/1250878212743278592?ref_src=twsrc%5Etfw)
+**（二）預警在中國的其他外資企業** 。 **目的是確保盡量減少在中國其他外資企業的損失，同時盡量減小對在美國本土重建和恢復產業鏈的影響** 。當前，在中國的外資企業主要來自美國、日本、歐洲（德、法和英國等）、韓國、台灣和香港（基於目前形勢，港企基本撤離無望），可以說都是美國的“盟友”，與美國在經濟和產業方面彼此協作、深度融合，甚至一榮俱榮、一損俱損。從中國撤企，除影響美資企業和美國自身之外，必將波及和影響日、歐、韓、台等企業，因此，不管從道義上還是美國經濟和產業的自身實際考慮都必須對其他國家的企業進行預警，確保把影響降到最低。以德國博世公司（BOSCH）為例，博世公司在中國設有多個工廠，博世（中國）是其德國本土以外規模最大的機構，它也是通用、福特等汽車企業的主要零部件配套企業，如果其接受此次美國政府的預警將中國工廠搬遷至美國本土即能減小損失，同時也有助於通用、福特等汽車企業的快速恢復產業鏈。
 
-參議員Marsha Blackburn：我和參議員Martha McSally正在發起一項《制止冠狀病毒法案》，讓中國為在我們國家釋放病毒承擔責任。被中共的謊言和欺騙傷害的美國人應該得到機會把中國告上美國法庭並要求賠償。
+**（三）通告CCP和中國人民** 。美國政府的行事風格歷來是“明人不做暗事”，即先告知再行動，把事情做在明處。撤離企業是件大事情，既牽涉CCP及其各級政府、國有企業，又涉及和影響廣大的中國民企和普通民眾，正式通告CCP和中國人民，至少有幾層意義： **一是遏制CCP及其各級政府對美資企業出“陰招”** 。 CCP對於外資歷來採取“關門打狗”的態度，即進來投資容易，撤離就萬般刁難折騰。這在近年來CCP對付日企和韓企從中國撤離時表現得淋漓盡致，如2019年，精工公司（SEIKO）等多家日企撤離中國時遭到中國政府的各種阻撓刁難，最終日本政府專門派官員進行協調仍舊效果不明顯。此次庫德洛的公開表態，也是在向CCP喊話，暗含的意思是——美國企業從中國撤離不是企業的自主行為而是美國的國家行動，若阻撓撤離即視為與美國公開對抗，最後將一併“算總賬”。由此，盡量減少CCP及其各級政府對美資企業的傷害和折騰。 **二是減少傷害對中國普通企業和民眾的傷害** 。此次庫德洛的公開表態，同時也是提前通告中國廣大的普通企業和民眾美企撤離已經不可逆轉，早打算早準備能最大限度減小因打擊CCP而給廣大普通企業和民眾帶來的附加傷害。
 
-> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) is one of the biggest offenders of posting misinformation.
->  
-> They ignored information that the coronavirus could be spread from person to person.
->  
-> They lashed out at [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) for restricting travel.
->  
-> They pushed [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda about China’s COVID-19 case count.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 16, 2020](https://twitter.com/MarshaBlackburn/status/1250891418769461249?ref_src=twsrc%5Etfw)
+**二、庫德洛表態對於CCP和中國的影響**
 
-參議員Marsha Blackburn 連推：世衛組織是發布虛假信息的罪魁禍首之一。他們無視冠狀病毒可以人傳人的信息。他們抨擊川普總統的旅行限制決策。他們推動中共的中國感染病例數的大外宣言論。 Facebook將本已看到很多冠狀病毒錯誤信息的用戶引導到世衛組織的賬號是不負責任和不合邏輯的做法。這只能導致更多誤會並幫助散佈中國大外宣。
+俗話說，語言的力量不遜於千軍萬馬，在此拿來形容此次庫德洛表態對CCP和中國的影響再合適不過了。雖然美企撤離的實際行動尚未完全展開，但此消息卻猶如“中共病毒”（CCPVirus）一樣在中國全社會快速蔓延和發酵，引爆了各界輿論，其影響之深遠，特別是對CCP和民眾的心理和預期的打擊不啻於撤企實際行動本身。此次疫情對中國的經濟打擊巨大，企業倒閉潮、失業潮、債務違約潮已經形成，雖然CCP強行複工復產，仍舊無法提振經濟和信心，國內經濟全面倒退。如，根據CCP官媒報導，2020年第一季度全國倒閉46萬家公司，包括營業執照被取消的公司，以及自我停營的公司，還包括26000家從事出口的企業。此次庫德洛的表態，對於尚未從疫情影響中緩解過來的中國經濟和驚魂未定的廣大民眾而言，無異於“晴天霹靂、雪上加霜”。
 
-NBC新聞：Facebook將向與冠狀病毒錯誤信息互動的用戶推送世衛組織賬號
+**（一）進一步加速中國經濟崩潰** 。可以預見，此次庫德洛表態所釋放的強烈信號，將使在中國的外企聞風而動，快速行動、競相撤離，從而加速形成以美企為首的外資外企撤離潮，中國經濟將被“釜底抽薪”。 **一是外企“擠兌式”撤離必將造成中國經濟和產業“塌方”** 。對CCP而言，外資和外企給中國帶來資金、技術和產業鏈，同時也給CCP創造了巨額的外匯，可以說，外資和外企就是中國經濟和產業的“四梁八柱”，甚至可以說，沒有外資和外企，中國就沒有今日的經濟體量和產業格局。可以預見，外資外企撤出帶走資金、技術和產業鏈，中國經濟和產業必將使其轟然崩塌。如，中國製造業“大而不強”，外企撤離後中國將面臨連圓珠都造不出來的局面（筆芯特種鋼100%依靠從日本和德國進口），更不用說了手機了。再如，外企撤離必將導致中國出口消亡，由於中國的出口結構比例約為民企45%、外資40%、國企15%，但從今年疫情對出口企業的影響就可見一斑了。 **二是外企撤離必將導致中國金融和外匯崩盤** 。中國外匯儲備經過近年來“盜國賊”的鯨吞轉移和CCP 全球“大撒幣”的浪費糟蹋，已經無法兌付外企撤離的外匯金額，其外匯必將崩盤。另一方面，外企撤離對於中國金融是噩耗式的利空消息，可以預見，CCP股市崩盤、銀行等金融機構全面暴雷、企業債務違約潮為其不遠。正所謂，CCP“手指頭再硬”再能改數據，也撐不住全民信心的崩潰。
 
-> The Chinese Communist Party's decision to cover up the virus led to thousands of needless deaths and untold economic harm. 
-> 
-> It’s only appropriate that we hold the Chinese government accountable for the damage it has caused. [https://t.co/vVhT3uksqF](https://t.co/vVhT3uksqF)
-> — Tom Cotton (@SenTomCotton) [April 16, 2020](https://twitter.com/SenTomCotton/status/1250832269192945671?ref_src=twsrc%5Etfw)
+**（二）進一步加劇中國社會的分化和撕裂** 。此次庫德洛的表態更是在社會引起了兩種截然不同的表現，即**有人“興奮高潮”、有人“搥胸頓足”** ，進一步加劇中國社會在思維觀念方面的兩極分化。 **一是民眾自我覺醒與CCP強力洗腦之間的爭奪戰加劇** 。由於CCP長期宣傳洗腦和反智教育，特別是近年來的“黨媒姓黨”式的強力宣傳加上對網絡的審查管控，導致社會不斷分化和對立。此次新冠疫情，一方面將CCP的無能無情和虛假殘酷暴露無遺，使得越來越多民眾開始質疑和反感CCP的虛假宣傳，從而開啟了自我覺醒之路；另一方面，為掩蓋真相和謊言，CCP更是在國內開足了宣傳機器的馬力，很多民眾甚至大量的海外華人都深受蠱惑，甚至還贏得了一些“死忠粉”，他們對CCP自己宣傳的抗疫成就、制度優勢等深信不疑，這就進一步加劇了社會的撕裂和對立，如近期山西作家周宗奇公開拉黑作家王東滿事件就是一個典型的例子。同樣，對於此次庫德洛關於美企撤離表態，“興奮高潮的人”由於缺乏基本常識和邏輯，認為這是中國取得的又一次勝利；而“搥胸頓足的人”則看到了真相及其背後的巨大危機。 **二是讓越來越多民眾相信和追隨爆料革命** 。此次庫德洛公開表態也就表明美國撤離企業的目的是為即將對CCP進行的全面清算做最後準備。早在2017年，文貴先生就提出了“依法滅共、以美滅共，全球聯合滅共、全球自動滅共”的目標，目標雖高遠，但一路走來步步為營、逐步實現，截至今時的美國宣布從中國撤企，爆料革命聲勢不斷壯大，滅共節奏不斷加快，以美國為首的滅共聯盟已經給CCP脖子上套上了絞繩，“萬箭齊發”即將開始。特別是，GTV推出以來國內戰友有了安全發聲和交流的平台，不斷喚醒“身邊人”，越來越多國內普通民眾加入戰友行列。
 
-參議員Tom Cotton：中共做出掩蓋病毒（真相）的決定導致成千上萬無謂的死亡和無以言表的經濟損失。一定要追究中共政府導致損失的責任才行。
+**（三）進一步倒逼和催化CCP的政治潰敗** 。對爆料革命和美國而言，多種滅共手段中數“以共滅共”的代價最小，要達到該目標就必須加劇CCP的內鬥。 “八九六四”後，CCP的執政思路是一手抓經濟，一手抓維穩，可以說沒錢CCP就沒有執政的基礎和合法性。因此，此次庫德洛的表態，讓CCP內部認識到了形勢的嚴峻性，在政治上將起到加劇CCP內鬥的作用，特別是進一步催化CCP救亡圖存的路線之爭。 **一是加劇“保皇派”和“改良派”的鬥爭** 。 “保皇派”即習王勢力，“改良派”即CCP內部“倒習”“換人”的力量。新冠疫情以來，這兩派的鬥爭隨著世界疫情和滅共形勢不斷升級發展。當然，這兩派的鬥爭實質是CCP內部的溫和路線和極左路線之爭，目的都是為了給CCP保命保權，區別在於“保皇派”是極端死硬派，其鐵了心要與世界對抗到底，甚至不惜玉石俱焚；而“改良派”則希望通過佯裝妥協讓步甚至賠款“出血”讓美國為首的“復仇者聯盟”放棄徹底清算。從任志強2月份公開的“倒習”信（《習近平就像一個被剝光了衣服也要堅持當皇帝的小丑》），到近期在國內微信廣為流傳的“換人”文章，再到習近平在4月8日的CCP常委會講話，可以看出CCP內部“倒習”的力量很強大，最終鹿死誰手尚未確定。 **二是有利於CCP內部的戰友挺身而出實現滅共目標** 。俗話講，鷸蚌相爭漁翁得利。基於當前CCP和中國政治現實，“以美滅共”與“以共滅共”這兩者相輔相成，即“以美滅共”為“以共滅共”創造有利的外部條件，而“以共滅共”為“以美滅共”創造有利的時機。當前，外部“以美滅共”及其為龍頭的“全球聯合滅共、全球自動滅共”格局已經基本形成，而CCP內部及廣大中國人民人心思變，天時地利人和具備，內鬥加劇有利於CCP內部的戰友以最小的代價實現爆料革命“喜馬拉雅”的目標。
 
-參議員Cotton官網：參議員Cotton和眾議員Crenshaw的法案將允許美國人起訴中國賠償病毒造成的損失
+（文章內容僅代表作者觀點）
 
-> Even its most reliable partners are turning their backs on China. [https://t.co/GemAU7axpB](https://t.co/GemAU7axpB)
-> — Tom Cotton (@SenTomCotton) [April 16, 2020](https://twitter.com/SenTomCotton/status/1250918874687692800?ref_src=twsrc%5Etfw)
-
-參議員Tom Cotton：連中國最可靠的合作夥伴都放棄他們了
-
-Politico網：冠狀病毒結束了中國在非洲的蜜月期
-
-> Cruz slams China as 'a threat to national security and global health' [https://t.co/N483kqIKhy](https://t.co/N483kqIKhy)
-> — Senator Ted Cruz (@SenTedCruz) [April 16, 2020](https://twitter.com/SenTedCruz/status/1250775787369893888?ref_src=twsrc%5Etfw)
-
-參議員Ted Cruz：Cruz抨擊中國是“國家安全和全球健康的威脅”（福克斯新聞）
-
-> No surprise here. The Chinese Communist Party continues to use the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) to spread misinformation as a part of its [#CoronavirusCoverUp](https://twitter.com/hashtag/CoronavirusCoverUp?src=hash&amp;ref_src=twsrc%5Etfw) campaign. [https://t.co/GGkqG83Gxa](https://t.co/GGkqG83Gxa)
-> — Senator Ted Cruz (@SenTedCruz) [April 16, 2020](https://twitter.com/SenTedCruz/status/1250841829051977730?ref_src=twsrc%5Etfw)
-
-參議員Ted Cruz：不出所料。作為掩蓋冠狀病毒真相操作的一部分，中共繼續利用世衛組織散佈假消息。
-
-路透社：中國說，世衛組織說過沒有證據顯示冠狀病毒是實驗室製造
-
-> ICYMI on [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) with [@marthamaccallum](https://twitter.com/marthamaccallum?ref_src=twsrc%5Etfw): I’m introducing legislation to hold China accountable for hiding and suppressing public health information about the [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) that has endangered the lives of millions across the globe. [pic.twitter.com/VOek2aYnJV](https://t.co/VOek2aYnJV)
-> — Senator Ted Cruz (@SenTedCruz) [April 16, 2020](https://twitter.com/SenTedCruz/status/1250883256314183680?ref_src=twsrc%5Etfw)
-
-參議員Ted Cruz：提醒大家我接受福克斯新聞Martha MacCallum採訪內容：我將提起立法議案，追究中共隱瞞和壓制與冠狀病毒有關的公眾健康信息導致全球幾百萬人生命受到威脅的責任。
-
-> Our dependence on China for life-saving medications and treatments is deeply dangerous. That’s why I’m working with [@ChrisCoons](https://twitter.com/ChrisCoons?ref_src=twsrc%5Etfw) on a bipartisan initiative to expand medical partnerships with Israel – an ally & global leader in medicine – to lessen that dependence. [https://t.co/ppP9VKpB7k](https://t.co/ppP9VKpB7k) [pic.twitter.com/vXYzMXsopU](https://t.co/vXYzMXsopU)
-> — Senator Ted Cruz (@SenTedCruz) [April 17, 2020](https://twitter.com/SenTedCruz/status/1250937642100961281?ref_src=twsrc%5Etfw)
-
-參議員Ted Cruz：我們依賴中國生產救命藥物和治療物資的做法是非常危險的。所以，我正與參議員Chris Coons合作發起一項兩黨共同倡議，擴大在醫藥方面與以色列的合作以減少這種依賴，以色列是我們盟友，在醫藥方面世界領先。
-
-> Retirement funds for federal, military retirees may soon be investing in China defense firms. Outstanding investigative piece by my colleague Christine Dolan. [https://t.co/GB6m5hg6he](https://t.co/GB6m5hg6he)
-> — John Solomon (@jsolomonReports) [April 16, 2020](https://twitter.com/jsolomonReports/status/1250792408629088257?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生轉推：
-
-John Solomon：聯邦和軍隊退休人員的退休基金可能將被投資到中國國防工廠。 （這是）我的同事Christine Dolan寫的一篇很好的調查文章。 （文章來源：Just The News網）
-
-> This week’s Inside the Ring column in [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Statistics bolster Trump claim of quick response to virus outbreak; Chinese racism against Africans; Bomber ‘Elephant Walk’ on Guam a message to China [https://t.co/3YJekDHju4](https://t.co/3YJekDHju4)
-> — Bill Gertz (@BillGertz) [April 16, 2020](https://twitter.com/BillGertz/status/1250922595400253440?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：本週《華盛頓時報》“Inside the Ring”專欄：統計數據支持川普所說的對病毒爆發作出的快速反應；中國對非洲人的種族主義；關島的轟炸機“大象漫步”向中國發出信號（大象漫步（Elephant walk）是美國空軍使用的術語，特指空軍飛機在起飛前，在滑行道或跑道集結，形成互相靠近的隊形。通常伴隨著最小間隔起飛。— —維基百科）
-
-> I asked [@SecArmy](https://twitter.com/SecArmy?ref_src=twsrc%5Etfw) to address absurd [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) propaganda accusing [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) of bringing [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) to [#Wuhan](https://twitter.com/hashtag/Wuhan?src=hash&amp;ref_src=twsrc%5Etfw). His reply: “There is no logical response to such an irrational accusation.” Exactly right. But there are logical steps US should take now: make Beijing pay damages
-> — Josh Hawley (@HawleyMO) [April 16, 2020](https://twitter.com/HawleyMO/status/1250825512823463936?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley：我要求美國陸軍部長對中國大外宣指責美國陸軍將冠狀病毒帶入武漢的荒謬言論提出抗議。他回復到：“對這種無理指控沒有合乎邏輯的回應。”確實是這樣。但是美國現在應該採取合乎邏輯的步驟：讓北京賠償損失。
-
-> Getting dedicated Pentagon funding for our forces in the Indo-Pacific region is critical to standing up to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). US military can’t be the world’s policeman, so we must prioritize, prioritize, prioritize. And stopping Chinese domination is #1 priority [https://t.co/uhxoeTHGLa](https://t.co/uhxoeTHGLa)
-> — Josh Hawley (@HawleyMO) [April 16, 2020](https://twitter.com/HawleyMO/status/1250882611775496193?ref_src=twsrc%5Etfw)
-
-參議員Josh Hawley：為我們部署在印度太平洋地區的部隊獲得五角大樓專項資金在積極防禦中國方面至關重要。美國軍隊不應成為世界警察，所以我們必須做出優先選擇。而阻止中國的控制企圖是第一要務。
-
-《華爾街日報》：（國會）推動五角大樓將資源部署轉向亞洲
-
-> The damage to the international reputation of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s Communist Party is irreparable [pic.twitter.com/3f9zJmWNYV](https://t.co/3f9zJmWNYV)
-> — Marco Rubio (@marcorubio) [April 17, 2020](https://twitter.com/marcorubio/status/1250945461239910402?ref_src=twsrc%5Etfw)
-
-參議員Marco Rubio：中共的國際聲譽毀了，已是無法彌補。
-
-> The end of Hong Kong [https://t.co/iV4IBaEiJ3](https://t.co/iV4IBaEiJ3)
-> — General Spalding (@robert\_spalding) [April 16, 2020](https://twitter.com/robert_spalding/status/1250622734360608769?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：香港結束了。
-
-《衛報》：中國駐港最高官員力推國家安全法例
-
-> "There is no evidence for this." Except – "researchers have created a novel virus that “grows remarkably well” in human cells. “If the virus escaped, nobody could predict the trajectory,” [https://t.co/F7KNQczaMl](https://t.co/F7KNQczaMl) [https://t.co/70DScOLhl1](https://t.co/70DScOLhl1)
-> — General Spalding (@robert\_spalding) [April 16, 2020](https://twitter.com/robert_spalding/status/1250633483669684229?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“沒有證據表明這一點。”除了——“研究人員製造了一種在人體細胞內’長勢極好’的新型病毒。如果該病毒逃脫，沒人能夠預測（蔓延）軌跡。 ”
-
-《衛報》：在每日簡報會上，川普支持者煽動中國實驗室冠狀病毒理論
-
-> So they own the supply chain here as well – “Last year, amid a hog fever outbreak in China, Smithfield shifted production in at least one U.S. plant to accommodate the Chinese market. The move could create a shortage in the United States in 2020.” [https://t.co/FjqiwQsaNo](https://t.co/FjqiwQsaNo)
-> — General Spalding (@robert\_spalding) [April 16, 2020](https://twitter.com/robert_spalding/status/1250738785840750592?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：也就是說他們也控制了這裡的供應鏈——“去年，中國爆發豬瘟期間，史密斯菲爾德食品公司將至少一間美國工廠轉產，以適應中國市場。這一舉動可能造成2020年美國供應短缺。”
-
-《大紀元》：中共訪問了位於南達科他州疫情中心的豬肉加工廠
-
-> With behavior like this, the Chinese are practically begging US companies to pull their factories out of China. [https://t.co/r78aSbylvC](https://t.co/r78aSbylvC)
-> — Michael Schuman (@MichaelSchuman) [April 16, 2020](https://twitter.com/MichaelSchuman/status/1250741812542599169?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍轉推：
-
-Michael Schuman：做出這種事，中國實際上是在求著美國公司撤出中國。
-
-華爾街日報新聞獨家：國務院說，中國的出口限制擱置了美國抗擊病毒所需的醫療商品
-
-> Great! [https://t.co/n4l2LZpTlc](https://t.co/n4l2LZpTlc)
-> — General Spalding (@robert\_spalding) [April 16, 2020](https://twitter.com/robert_spalding/status/1250799551050649603?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：很好！
-
-《衛報》：《每日電訊報》停止出版中國付款的內容
-
-> Nice job CCP – "The French foreign office on Tuesday summoned the Chinese ambassador, Lu Shaye, to express its deep disapproval about Chinese diplomats’ claims that France had left its older citizens to die." [https://t.co/vEm9SBaJsc](https://t.co/vEm9SBaJsc)
-> — General Spalding (@robert\_spalding) [April 16, 2020](https://twitter.com/robert_spalding/status/1250835886092300290?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中共你幹得漂亮——“週四，法國外事辦公室召見了中國大使盧沙野，表達了對中國外交官員聲稱法國任由老年人死亡的極度不滿。”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17000538/06_66.png)
 0
