@@ -1,24 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月8日中共病毒疫情要聞快報
-`2020-04-17 01:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175029/)
+## 問責中共繼續發酵又一參議員加入聲討
+`2020-04-17 03:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175141/)
 
-[4.8-今日要聞-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020225/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020225/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17034458/1-90.png)
+參議員特德•克魯茲（Ted Cruz）週三對福克斯新聞的主持人瑪莎•麥卡勒姆（Martha MacCallum）表示，中共國把試圖警告全世界有關中共冠狀病毒爆發的吹哨人禁聲， “他們必需負責。 當然當務之急是我們必須先戰勝這場危機，”克魯茲說。 “但是此後，我們需要對共產黨政府在中國的責任進行認真的問責，關於他們掩蓋事實和壓制人民的事情，我們都知道，也包括共產黨政府是否在疫情本身中玩忽執守。”
 
-[4.8-今日要聞-韓語版-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020351/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020351/4.8-%E4%BB%8A%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-%E1%84%8C%E1%85%AE%E1%84%8B%E1%85%AD%E1%84%82%E1%85%B2%E1%84%89%E1%85%B3-%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5.pdf)
+“關於引用的兩條美國國務院電報最早描述武漢的兩個實驗室，在疫情爆發地數英里內，正在研究蝙蝠冠狀病毒，而中國政府不想回答有關他們是否正在研究蝙蝠冠狀病毒的問題，也不想回答這個病毒是否是從他們自己的實驗室意外瀉漏出去的，”克魯茲繼續說道。
 
-[4.8-每日要聞-意大利語](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020406/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020406/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%84%8F%E5%A4%A7%E5%88%A9%E8%AF%AD.pdf)
+“必須要有真正的責任制，因為國務院擔心可能在中國疫情爆發之前這些實驗室就已經對人類造成了威脅。 這可能是中共政府極力想掩蓋的一部分，他們不想回答最基本的問題。”克魯茲補充說：“我認為美國和國際社會必須堅持問責制，要求中共國承擔後果。”
 
-[4.8-每日要聞-日語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020416/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020416/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88.pdf)
+評論：福克斯新聞已經成了聲討中共的前延陣地，克魯茲的發言背後必然代表了更多美國和國際社會的聲音，一但問責的呼聲全美髮酵，對中共的法律制裁和審判也就水到渠成了。到了這個時候，中共對待公開P4實驗室真相仍然王顧左右而言他，甚至災贓陷害美國，這種愚蠢狂妄的做法讓美國和國際社會包括親共人士都會徹底放棄幻想，一切已經開始！
 
-[4.8-每日要聞-俄語版8-апреля.-Обновления-пандемии-вируса-КПК](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020620/8-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14020620/8-%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F.-%D0%9E%D0%B1%D0%BD%D0%BE%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F-%D0%BF%D0%B0%D0%BD%D0%B4%D0%B5%D0%BC%D0%B8%D0%B8-%D0%B2%D0%B8%D1%80%D1%83%D1%81%D0%B0-%D0%9A%D0%9F%D0%9A.%E4%BF%84%E8%AF%AD%E7%89%88.pdf.pdf)
+[原文鏈接](https://www.dailywire.com/news/ted-cruz-must-be-consequences-for-chinas-silencing-of-whistleblowers-coverup/)
 
-[4.8-每日要聞-法語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013802/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013802/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-1.pdf)
-
-[4.8-每日要聞-德語版-Deutsch](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013844/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013844/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E5%BE%B7%E8%AA%9E%E7%89%88-Deutsch.pdf)
-
-[4.8-每日要點-西班牙語-español](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013934/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17013934/4.8-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-espan%CC%83ol.pdf)
+翻譯報導：人間四月
 
 
 

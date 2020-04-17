@@ -1,28 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奢侈的表演：中共記者因在白宮發布會上撒謊，現面臨高達1.6萬美元的罰款
-`2020-04-17 01:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175015/)
+## 英代理首相：疫情過後須徹查病毒來源，之前的英中“正常貿易”關係已不復存在
+`2020-04-17 02:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175094/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17012317/trump-and-reporter.jpg)圖片來源： [台灣英語新聞](https://taiwanenglishnews.com/china-based-taiwanese-white-house-reporter-to-be-investigated-by-taiwan-authorities/) 
-據美國《國家脈動》4月18日報導，中共記者張敬一(Ching-Yi Chang)因在川普總統舉行的新聞發布會上撒謊，現有可能被處以高達16,000美元的罰款。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17022048/methode_times_prod_web_bin_6f461b52-7d9b-11ea-af15-2abf27a967e9.jpg)圖片來源： [thetimes](https://www.thetimes.co.uk/article/huawei-boss-warns-uk-against-halting-5g-rollout-during-the-coronavirus-crisis-rmtlcqz65) (YUI MOK/PA) 
+據報導，英國代理首相多米尼克.拉布（Dominic Raab）週四在倫敦舉行的新聞發布會上表示，中共冠狀疫情結束後，英國不會再和中共有正常商業往來。這是英國近期隨著疫情危機惡化，對中共發出的強硬表態。
 
-這名記者在之前的白宮新聞發布會上被川普總統問及他來自哪時稱自己來自台灣。然而，之後就被《國家脈動》雜誌挖出他其實是《東方衛視》的員工。 《東方衛視》是中共最大的國有傳媒集團上海文化廣播影視集團(Shanghai Media Group) 的一個子公司。
+拉布還稱：“疫情結束後，我們絕對有必要進行深入調查和反省，尤其針對病毒爆發的原因，絕不能含糊。英中兩國在從武漢撤僑和運送醫療物資等方面進行了合作，但在病毒來源這一重大問題上，還有待考證。但毫無疑問，疫情結束後，我們無法再與中共從事正常的商業往來。對於疫情如何產生、為何沒能及時制止這類問題， 我們必須要知道答案。”
 
-據台灣《自由時報》記者威廉楊(William Yang)的報導，張敬一的這一答復同時惹怒了台灣和中共政府。雙方都譴責他有意誤導公眾和川普總統。
+同樣，美國共和黨內越來越多的資深人士，因中共處理疫情不當，呼籲重置對中共的關係。
 
-台灣當局更是決定對張的行為進行處罰。台灣負責涉中事務的官方機構大陸委員會(簡稱陸委會) 指出，張敬一的行為觸犯了台灣管制定的台中關係相關法律。身為台灣公民，他是禁止被任何中共控制的企業所僱傭的。陸委會將對張處以10萬到50萬新台幣的罰款，也就是說最高罰款額高達16,000美元。
+英國保守黨前領導人、上議院議員兼外交大臣威廉·黑格（William Hague）週三表示：“英國不能再依賴中共，因為它不遵守我們的規則”。英國議會外交事務委員會也警告說，在這場疫情鬥爭中，中共精心策劃的虛假宣傳，奪走了眾多英國人民的生命。英國議員還表示，中共在疫情初期本應發揮關鍵作用，收集病毒傳播數據，但結果卻在掩蓋真相。
 
-這是繼鳳凰衛視記者王悠悠(Youyou Wang)在川普新聞發布會上謊稱鳳凰衛視是私人公司之後的第二起類似的事件。
+法國總理馬克龍在周四接受《金融時報》採訪時說，中共在處理冠狀病毒爆發問題上存在灰色地帶，他們沒有處理好這件事情。可以確定的是，目前為止，還沒有人知道疫情發生的真相。
 
-鳳凰衛視的控制人是劉長樂(擁有37.1%的股份)。他是前中共人民解放軍宣傳口的一位官員，曾任中央人民廣播電台編輯，與中共高層有密不可分的聯繫。鳳凰衛視另外的20%的股權被一個名為Extra Step Investments Limited的公司持有。中共的通信巨頭中國移動通過旗下控制的中國移動香港分公司掌握著Extra Step Investments Limited的控制權。此外，鳳凰衛視8%的股權又被中國銀行控制的中威國際投資有限公司所持有。由此可見，中共政府至少持有鳳凰衛視65%的股權。
+[原文鏈接](https://www.scmp.com/news/world/europe/article/3080304/coronavirus-no-business-usual-china-after-pandemic-britain-says)
 
-評：
-
-從川普在新聞發布會上對中共記者的質疑和“不友好，到對這些中共走狗的被處以實際的懲罰，世界正給一切與CCP沾邊的企業和個人裝上監聽器和測謊儀，準備好手銬和腳鐐。今天台灣能對叛變記者進行處罰，明天美國就可能翻翻這些美國上市的中概股的報表，就可能給華為在美國的辦公室貼上封條，甚至把盜國賊銀行里的巨額存款進行查封。一切都已經開始！
-
-[原文鏈接](https://thenationalpulse.com/editor/ccp-journo-who-lied-to-trump-could-face-16000-fine/)
-
-翻譯報導：大姨麻麻
+翻譯報導：Jeremiah
 
 0
