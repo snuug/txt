@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 馬杜羅結局，適用於中共
-`2020-04-17 08:32 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/175261/)
+## 【多語言圖文版】4月13日中共病毒疫情要聞快報
+`2020-04-17 10:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175497/)
 
-[https://spark.adobe.com/page/oYNrOMAAJ9nls/](https://spark.adobe.com/page/oYNrOMAAJ9nls/)
+[4.13-每日要聞-英語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101531/4.13-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101531/4.13-%E8%8B%B1%E8%AF%AD%E7%89%88.pdf)
 
-*作者：Giselle*
+[4.13-今日要聞-芬蘭語-Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102416/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102416/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf.pdf)
 
-*校對：Julia Win*
+[4.13-今日要聞-土耳其語-Turkish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102446/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17102446/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)
 
-如果時光倒流，中共不會抓捕李文亮醫生，不會那麼巧合地讓李文亮染病、死亡。因為，美國參議院霍利4月15日正式宣布，將對中共追究責任，針對中共對吹哨人的抓捕以及隱瞞疫情真相，提議美國立法允許凍結中共在海外的資產。
+[4.13-每日要聞-德語版German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101709/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101709/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german.pdf)
 
-是的，立法。可以預見，美國很快就會宣布中共為恐怖組織，並對此次肆虐全球的病毒大屠殺負全責，萬眾期待的無人機斬首行動，指日可待。
+[4.13-每日要聞-韓語版- 주 요 뉴 스 – 한 국 어](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101749/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101749/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-%EC%A3%BC%EC%9A%94%EB%89%B4%EC%8A%A4-%ED%95%9C%EA%B5%AD%EC%96%B4.pdf)
 
-在中共的邪惡史中，謀殺一個敢說真話的醫生，壓制一個活著的英雄帶來的號召力，只不過是它無數邪惡中最微不足道的一件。然而，就是這一件在它們看來最不值一提的事情，卻成了壓垮中共邪惡政權的最後一根稻草。
+[4.13-每日要聞-日本語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101804/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101804/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E6%9C%AC%E8%AA%9E%E7%89%88.pdf)
 
-其實，如果時光倒流，李文亮醫生還是會被抓捕，就像它們在謀殺了李文亮醫生之後，即便引起了全世界嘩然，它們還是又抓捕了另外一個吹哨人艾芬。所以，不要指望它們會反省、會改良。中共70年的邪惡歷史已經證明了，它們不會變好，只會變得更壞，更邪惡！
+[4.13-每日要聞-法語版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101833/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101833/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88.pdf)
 
-肆虐全球的病毒戰如今已徹底戳破了中共的謊言，提醒著人們與魔鬼做交易需要付出的慘痛代價。在病毒帶來的死亡面前，意大利總理痛苦流淚了。然而在中共輸出獨裁價值觀的一帶一路項目中，意大利是七國集團中第一個與魔鬼做交易的人，也是疫情爆發時，死傷最慘重的歐洲國家。目前，病毒還在肆無忌憚地荼毒全人類，之前與中共關係親近的國家無一倖免。
+[4.13-每日要聞-西班牙語-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101811/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101811/4.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
 
-災難面前，政客們終於開始反省中共鼓吹的全球化帶來的災難；終於想起了鐫刻在美國馬薩諸塞州波士頓的，新英格蘭猶太人大屠殺紀念碑上的那首詩，德國著名神學家、信義宗牧師馬丁·尼莫拉的《我沒有說話》；終於想起了虛假的繁榮之後中共設置的特洛伊木馬；也終於想起了數億中共暴政下絕望慘死的中國百姓。
+[4.13-每日要聞－俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101839/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101839/4.13-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
-亡羊補牢，為時未晚。美國今天終於提出法案，剝奪中共國家主權豁免權，凍結中共海外資產，向中共政府索賠。
+[4.13每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101822/4.13%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17101822/4.13%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)
 
-[!\[\](https://spark.adobe.com/page/oYNrOMAAJ9nls/images/46e0d4c0-8a7f-4d98-be9f-c2f3bffc2593.jpg?asset_id=9e54cf85-01ae-4c26-99f5-9ebc7a147ff1&amp;img_etag=386d09408620ed80b6d077075e381e06&amp;size=2560)](https://spark.adobe.com/page/oYNrOMAAJ9nls/images/46e0d4c0-8a7f-4d98-be9f-c2f3bffc2593.jpg?asset_id=9e54cf85-01ae-4c26-99f5-9ebc7a147ff1&amp;img_etag=386d09408620ed80b6d077075e381e06&amp;size=1024)
 
-國家主權豁免權是一種司法慣例，即君主或國家不可能犯上法律上的過失，以及免於受到民事與刑事起訴的權力。泛指一國不接受他國立法、司法和行政管轄的特權。如今美國直接提出法案，剝奪中共的豁免權，這個指徵就非常明顯了，等於直接從立法層面，斷絕了中共利用國家主權豁免法，逃避審判的後路。
-
-我們可以參考一下委內瑞拉獨裁者馬杜羅的最後時光，或許從中可以觀察到中共的末日時刻。
-
-2019年8月5日，美國總統川普簽署行政令，凍結委內瑞拉政府在美國的所有資產和孳息，禁止美國企業和個人與委內瑞拉總統尼古拉斯·馬杜羅所領導的政府發生商業往來，他國企業如果維持與馬杜羅政府的商業往來，它們在美資產同樣可能遭凍結。
-
-馬杜羅2018年5月贏得連任，1月就職，但反對派不予承認。反對派要員、全國代表大會主席瓜伊多1月23日宣布自任“臨時總統”。為逼迫馬杜羅下台，美國以經濟制裁、外交孤立和軍事威脅等手段施加壓力。迄今，美國已把馬杜羅以及與其政府關聯的超過100名委內瑞拉人列入了製裁名單。
-
-2020年3月26日，美國指控，委內瑞拉馬杜羅總統和他的幾名主要助手，與哥倫比亞叛亂分子涉“毒品恐怖主義”，密謀“向美國大量輸入可卡因”。美國國務院懸賞1500萬美元現金緝拿馬杜羅，最高1000萬美元現金緝捕他的同夥。
-
-由於自2001年以來，美國在處理伊拉克、敘利亞、阿富汗等地的衝突中，耗費了5.9萬億美元。不但時間跨度長，而且耗資巨大。因此，在接下來的對馬杜羅的反毒品恐怖主義中，美國並沒有重蹈覆轍，而是經濟制裁+全球通緝，採取了一種更加快捷、簡單、有效的模式。
-
-從美國之前對中共發起的貿易戰、金融戰，以及如今的凍結中共海外資產等手段，我們可以預見，對付馬杜羅政府的手段，同樣適用於中共。只不過，由於病毒的催化作用，這一步會來得更快、更早！
-
-讓我們站穩了，拭目以待！
-
-編輯【喜馬拉雅戰鷹團】
 
 0

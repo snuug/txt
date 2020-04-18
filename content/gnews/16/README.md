@@ -1,53 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共外貿數據預示經濟崩潰
-`2020-04-17 11:54 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/175655/)
+## 2020年4月15-16日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-17 12:28 GM33` [轉載自GNews](https://gnews.org/zh-hant/175829/)
 
-[https://spark.adobe.com/page/MnrDUqOj2t07z/](https://spark.adobe.com/page/MnrDUqOj2t07z/)
+[English0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120517/English0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120517/English0415_CCP_Virus_Updates-1.pdf)
 
-*作者：leftgun*
+[English0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120525/English0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120525/English0416_CCP_Virus_Updates-1.pdf)
 
-*校對：Julia Win*
+[French0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120736/French0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120736/French0416_CCP_Virus_Updates-1.pdf)
 
-中國國務院新聞辦於4月14日就中國2020年一季度進出口情況舉行了發布會。
+[French0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120543/French0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120543/French0415_CCP_Virus_Updates-1.pdf)
 
-其主要信息為：中國貨物貿易在今年第一季度的進出口總值為6.57萬億元人民幣，比去年同期下降6.4%。其中，出口3.33萬億元，下降11.4%；進口3.24萬億元，下降0.7%；貿易順差983.3億元，減少80.6%。
+[German\_0415\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120609/German_0415_CCP_Virus_Updates_-1-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120609/German_0415_CCP_Virus_Updates_-1-1.pdf)
 
-一季度進出口呈現以下六個特點：
+[German0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120621/German0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120621/German0416_CCP_Virus_Updates-1.pdf)
 
-1. 3月當月進出口出現回升。
-2. 東盟超過歐盟成為中國第一大貿易夥伴。
-3. 民營企業進出口降幅較小、比重提升。
-4. 一般貿易進出口比重達到6成。
-5. 機電產品和勞動密集型產品為主要出口商品。
-6. 鐵礦砂、原油、煤等大宗商品和肉類等重點民生消費品進口較快增加。
+[Japanese0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120821/Japanese0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120821/Japanese0415_CCP_Virus_Updates-1.pdf)
 
+[Japanese0416\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120835/Japanese0416_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120835/Japanese0416_CCP_Virus_Updates-2.pdf)
 
-*“今年一季度，面對突如其來的新冠肺炎疫情，在以習近平同志為核心的黨中央堅強領導下，我國統籌推進疫情防控和經濟社會發展，防控階段性成效進一步鞏固，穩外貿措施持續推進，外貿企業復工復產取得重要進展。”*
+[Russia\_0415\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120852/Russia_0415_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120852/Russia_0415_CCP_Virus_Updates-2.pdf)
 
-眾所周知，中共國公佈的數據往往充滿水分，並不可靠。發布會上公佈的數字，顯然跟你我在這一段時間內自身感受到的嚴峻經濟情況對不上號。
+[German0416\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120904/German0416_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120904/German0416_CCP_Virus_Updates-2.pdf)
 
-首先，進出口總值只比去年同期下降6.4%，乍看好像不那麼嚇人。但其實出口總值是大跌了11.4%， 只不過整體情況被進口總值支撐著而已。更重要的是， 疫情所引起的世界貿易和經濟停擺的巨大影響，絕對沒來得及在第一季度的數字顯示出來。當這些滯後的影響和進一步惡化的進出口貿易在第2季度顯示出來的時候，出口總量百分比可能翻倍的掉下去。中共國出口不能掉下去，如果出口總值真的掉了二、三十個百分點，中共國經濟會很麻煩，後果會很嚴重！因為中共國的GDP是靠一輛3頭馬車來拉動的。也就是靠出口，內需，和內外投資來支持的，而出口是最大頭！出口減少等於少賺美刀，等於沒有那麼多外匯去進口， 內需減少，老闆沒錢賺，你我沒工資，外商逃跑，出口進一步減少……, 如此惡性循環！
-[!\[\](https://spark.adobe.com/page/MnrDUqOj2t07z/images/92a29a59-8004-4750-8956-3790a00acbed.jpg?asset_id=31552ba5-799f-40ae-8d89-fc9ed0cec013&amp;img_etag=f64c695014d71d6e1fbf0e1eff50ea46&amp;size=2560)](https://spark.adobe.com/page/MnrDUqOj2t07z/images/92a29a59-8004-4750-8956-3790a00acbed.jpg?asset_id=31552ba5-799f-40ae-8d89-fc9ed0cec013&amp;img_etag=f64c695014d71d6e1fbf0e1eff50ea46&amp;size=1024)
-還有，進出口總值是以人民幣計算的。人民幣兌美元歐元等外幣，比去年都貶值了4-6%。也就是說，出口其實少賺了11.4%+5%=16.4%的外匯， 而進口其實多花了5%的外匯。這一來一回就少了1177億美元了！再想想大幅減少的外商投資， 和中共國對外的大撒幣， 大國引以為傲的外匯儲備快要進ICU了！
-[!\[\](https://spark.adobe.com/page/MnrDUqOj2t07z/images/b8234ccc-4f0c-47a2-967e-1f4bd13fc5de.jpg?asset_id=ec3721dd-33fb-4d87-a332-a7d828b06898&amp;img_etag=58a37886c2c0daf58456bd0068a061ec&amp;size=2560)](https://spark.adobe.com/page/MnrDUqOj2t07z/images/b8234ccc-4f0c-47a2-967e-1f4bd13fc5de.jpg?asset_id=ec3721dd-33fb-4d87-a332-a7d828b06898&amp;img_etag=58a37886c2c0daf58456bd0068a061ec&amp;size=1024)
-發布會上總結的六個特點都有一些隱藏信息沒有被提及：
+[Spanish0415\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120927/Spanish0415_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120927/Spanish0415_CCP_Virus_Updates-1.pdf)
 
-1. 3月當月進出口出現回升這說法是有點兒誤導。 3月是比1-2月的平均值高， 但應該是季節性的增長做成的。 3月對比去年還是降了0.8%， 而其中出口是掉了3.5%，只是靠進口支撐著而已，所以3月的情況沒有好轉。
-
-2. 東盟超過歐盟，成為中共國第一大貿易夥伴並不是好事。東盟的進出口增幅只是6.1%， 但排第2，3，4位的歐盟，美國，日本的降幅分別為10.4%， 18.3%， 和8.1%。這是撿了芝麻丟西瓜！而其中與美國的進出口結構有很大改變。機電產品出口美國大幅下降61.61%，而進口美國農產品卻增加了1.1倍！這都是要命的買賣。想想那外匯流失！
-
-3. 民營企業進出口降幅較小，比重提升。這裡隱藏了兩個重要信息：第一，進出口總的減少2%，但出口是降了7.3%而進口升了7.9%。這顯示民企可能正在失去其國際競爭力，畢竟出口量和價格都在下降， 民企也只能通過加大進口業務來維持業績。第二， 外商投資企業進出口總額僅次於民營企業，但其降幅遠超於民企的2%。這表示外商撤離中共國市場正在加速，也是中共國經濟一重大風險所在。在下季度和今年內其不良影響將會變得更為明顯。
-
-4. 一般貿易進出口比重達到6成，這也不是什麼好信息，與上面第三點帶出的信息是一致的，只不過它是從進出口的性質來分析而已。總的掉了5.7%，但出口下降了11.3%，而進口上升了0.5%。又是出口出現嚴重問題！另外，僅次於一般貿易而佔總進出口28%的加工貿易，卻下降了12.4%，這也是一個顯示中共國國際貿易競爭力下降的信號。
-
-5. 鐵礦砂、原油、煤等大宗商品和肉類等，重點民生消費品進口較快增加。這一點最吸引眼球的是，豬肉和牛肉的進口量大增了170%和64.9%！明顯就是一個糧食短缺的信號！怪不得政府不斷出來闢謠說國家糧食充足。這是欲蓋彌彰啊！
-
-總的來說，這季度的數據，顯示出中共國的出口和賺取外彙的能力在快速下降，而外國投資和外企的動力在衰退。中共國經濟能否讓內需獨力支持下去？這又能支撐多久？當下一季度的數據出來的時候，以上提到的各種隱藏信息就會變得更加明顯了。
-
-[原文鏈接](http://www.gov.cn/xinwen/2020-04/14/content_5502183.htm)
-
-###  **編輯【喜馬拉雅戰鷹團】** 
+[Spanish0416\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120937/Spanish0416_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17120937/Spanish0416_CCP_Virus_Updates-1.pdf)
 
 0
