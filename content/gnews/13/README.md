@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 維護國家食品安全至關重要!
-`2020-04-18 01:08 GM31` [轉載自GNews](https://gnews.org/zh-hant/176893/)
+## 2020年4月17日CCP冠狀病毒大流行第84集
+`2020-04-18 04:06 GM33` [轉載自GNews](https://gnews.org/zh-hant/177128/)
 
-在[4月15日](https://www.youtube.com/watch?v=wQ5ZTQXD46o)的白宮每日疫情通報會上，川普總統與白宮團隊詳述關於全美重要員工健康和安全的事情，在遵守CDC的指導方案，全美一心，我們有能力且最終會度過難關，盡最大努力執行以保證所有員工的健康和安全是十分關鍵的。
+請戰友們關注GTV 戰友之家VOG，以後我們的視頻都會發到GTV啦！
 
-*翻譯: 【DDM】 校对&字幕：【Freela】*
+出現聚集性疫情反彈；哈爾冰疫情防控指揮部被約談；盧比奧：中共已經在全世界臭名昭注了
+
+[https://gtv.org//?videoid=5e9ab3ffac66dd0bcdab67c0](https://gtv.org//?videoid=5e9ab3ffac66dd0bcdab67c0)
 
 0
