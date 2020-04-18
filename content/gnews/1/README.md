@@ -1,60 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統美國時間2020年4月17日已經明確表示病毒就來源於中國
-`2020-04-18 14:28 Diago` [轉載自GNews](https://gnews.org/zh-hant/177429/)
+## 借《瑯琊榜》，看中共最後之日
+`2020-04-18 16:55 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/177496/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18142126/index.jpg)
-作者：Diago
+[https://spark.adobe.com/page/K3maaT5VqC00F/](https://spark.adobe.com/page/K3maaT5VqC00F/)
 
-在路德的轉推的[喜馬拉雅工作站的推特](https://twitter.com/GlobalHimalaya/status/1251464238650077186)中提到：
+*作者：玄天生*
 
-“4/17最新白宮發佈會，川普語出驚人： 「對於中國，我很不高興」”I’M NOT HAPPY”川普說，擁有全世界最多[#冠狀病毒](https://twitter.com/hashtag/冠狀病毒?src=hashtag_click)死亡人數的國家，一定是中國他還表示病毒來自蝙蝠一說，疑點重重但可以肯定的是，病毒來自中國答記者問時，川普意味深長地說： 因為某國的原因，184個國家正遭受病毒災難，悲哀。 ”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18142240/WhatsApp-Image-2020-04-19-at-2.20.19-AM.jpeg)
-直覺告訴我這是個重磅，於是習慣性去看一下[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020](https://factba.se/transcript/donald-trump-press-conference-coronavirus-briefing-april-17-2020)記者招待會的英文紀要，該紀要內容有部分缺失，現以加黑部分標明，以區別於引用內容：
+*校閱：Julia Win*
 
-Q:China now says its coronavirus death toll in Wuhan is 50 percent higher.
+**引言：華夏大地，依然存在。朝卻不斷更迭變換。“天下之大莫非王土⋯⋯。” “****廟堂之上，朽木為官，殿陛之間，禽獸食祿”。都是因為，當權者傲慢、視人民為奴，人民沒有選票，更沒有監督當權者的權力，致使他們權力無限大。而且那些當權者，迷失在他們的權力和利益中，失去了當初社稷之事，本廟堂之責。**
 
-（中文大意：中國現在說它的武漢冠狀病毒死亡人數要高出百分之五十）
+這幾天美國不斷傳來滅共的好消息，讓我們看到滅共時間已近，也從中看到，文貴先生這3年來的不容易，而且爆料革命真正的戰友也追隨文貴先生一步步走來。如果拿一部電視劇來比喻，那我想到的是「琅琊榜」，這也純屬是私以為，當然有看過這一部電視劇或是小說會比較好代入。
 
-A：Yep.
+「琅琊榜」這部劇，它是由一部同名小說改編，是南梁時代虛構的架空世界。其實也表示每個中國歷史朝代一樣，用以來說明中共的腐敗、昏庸無道和極其邪惡很貼切。
+[!\[\](https://spark.adobe.com/page/K3maaT5VqC00F/images/876f0d98-c39f-44a9-b6a2-ab2b431876f9.jpg?asset_id=7a40336b-a1a0-4b1b-b191-e22e3c6f0168&amp;img_etag=4a5437275b20c4545c18193c1bd4516a&amp;size=1024)](https://spark.adobe.com/page/K3maaT5VqC00F/images/876f0d98-c39f-44a9-b6a2-ab2b431876f9.jpg?asset_id=7a40336b-a1a0-4b1b-b191-e22e3c6f0168&amp;img_etag=4a5437275b20c4545c18193c1bd4516a&amp;size=1024)
+**麒麟才子、江左梅郎：文貴先生**
 
-（是的）
+劇中的梅長蘇，可以說如文貴先生一樣。當然文貴先生所做的用言語無法形容。梅長蘇因謝玉與夏江之陰謀導致赤焰軍在梅嶺一役全軍覆沒，失去至親。雖僥倖存活，卻身中天下奇毒之首–「火寒奇毒」，拔毒後面貌大改，內力武功盡失，體弱多病，而且時常寒疾復發。後以梅長蘇之名重現於世人面前，為瑯琊才子榜榜首，人稱麒麟才子、江左梅郎，手執天下第一大幫「江左盟」。不為名、不為利，目的只有一個，為洗刷冤屈而回京成為靖王謀士。再來看看文貴先生，非常了解中共這一邪惡體制，深明牆內老百姓如何活在水深火熱中，不為名利，為了滅共做了30年準備，並且實際在做。他發的郭7條、把戰場拉到國際、以美滅共、世界自動滅共、以共滅共等一步步走到今天，加上目前中共生化武器的病毒播散，而使全球驚醒，自動滅共已如箭在弦。
 
-Q:It went up to about 4,000. Does that sound like a credible number to you?
+**「江左盟」：爆料革命**
 
-（中文大意：中方的數字上升到大約4,000。 對您來說，這聽起來像一個可信的數字嗎？）
+集結了倖存的赤焰舊部與有緣志士、化身為天下第一大幫「江左盟」。就如跟隨文貴先生的爆料革命一樣，世界各地默默而努力的戰友、牆內前線不為人知的戰友、真正支持文貴先生的堅定戰友，給文貴先生傳遞真實、準確的情報，讓文貴先生對中共準確打擊，使美國政界、商界的戰友，通過文貴先生了解到真相。
 
-A:Well, you know, when I listen to the press every night saying we have the most, we don’t have the most in the world — deaths. The most in the world has to be China. It’s a massive country. It’s gone through a tremendous problem with this. A tremendous problem. And they must have the most. So, today, I saw they announced that, essentially, they’re doubling up on the numbers. And that’s only in Wuhan; they’re not talking about outside of Wuhan. So it is what it is, Steve. It is what it is. What a sad — what a sad state of affairs.
+**南梁朝代：中共**
 
-（中文大意：哦，你知道，當我每天晚上聽新聞界說我們有最多時，我們卻沒有擁有世界上最多的-死亡。 世界上最多死亡的國家一定是中國。 這是一個龐大的國家，它因此經歷了一個巨大的問題。 一個巨大的問題。 他們一定是死亡最多的國家。 因此，今天，我看到他們宣布，從本質上講，他們的死亡人數增加了一倍。 而那還只是在武漢；武漢之外的數字不在他們公佈之列。因此，情況就是這樣，史蒂夫，情況就是這樣——一個多麼可悲的國家事件。
+大梁皇族朝代，就如中共體制，人民依然享受不到任何自由、民主、法制。蕭景桓譽王、蕭景宣皇四子(太子)可比做習王二人。
 
-Q:The investigation into whether the virus escaped from this lab in Wuhan, how active is that? And when do expect to hear [inaudible]?
+**赤焰軍：64的英魂們、疫情下的醫護們、香港反送中被死去的英魂們**
 
-（中文大意：關於病毒是否從武漢實驗室洩漏的調查，進展如何？ 結果什麼時候可以公佈？）
+祁王、七萬赤焰軍，就如當年8964，亦如香港反送中運動中被消失、被失蹤、被死亡、被跳樓、7-21、8-31等那些含冤而死的英魂。他們用鮮血和生命成就了香港，成為打開滅共第一道大門的地方！正如文貴先生所說：“香港，是我們的耶路撒冷！”
 
-A:Well, we’re looking at that. A lot of people are looking at it. It seems to make sense. They talk about a certain kind of bat, but that bat wasn’t in that area. If you can believe this , that’s what they’re down to now, is bats. But that bat is not in that area. That bat wasn’t sold at that wet zone. It wasn’t sold there. That bat is 40 miles away. So a lot of strange things are happening, but there is a lot of investigation going on and we’re going to find out. All I can say is, wherever it came from — it came from China — in whatever form, 184 countries now are suffering because of it. And it’s too bad, isn’t it? And it could have been solved very easily.
+**火寒毒：香港反抗者被強姦、被自殺、被消失的小孩**
 
-（中文大意：哦，我們正在調查。很多人在調查。（現有的調查）似乎是有道理的。他們（中國）談論的是某種蝙蝠，但是那種蝙蝠不在那個區域。 如果您能相信這一點，那就是他們到目前為止所面臨的就是蝙蝠。但是那種蝙蝠不在那個區域，那種蝙蝠不在海鮮市場賣，那裡沒有賣這種蝙蝠的。那種蝙蝠在40英里外。 因此，發生了很多奇怪的事情，但是正在進行大量調查，我們將找出答案。 我只能說，病毒來自哪裡？-來自中國；病毒是什麼形式？-現在有184個國家正因此而受遭受苦難。 而且太糟糕了，不是嗎？ 而且它本可以很容易地解決。）
+林殊全身燒傷，滴水成冰的天氣將火毒封存於體內，火毒攻心，本已無生機，但恰巧跌入雪窩之中，被寒蚧蟲咬噬全身。此蟲只有梅嶺附近才有，它們專食焦肉，同時吐出毒素，以冰寒之氣扼住了火毒，從而形成一種新的奇毒，那便是火寒之毒。解毒方法其中之一，就是削皮挫骨，過程非常痛苦。將火毒寒毒碎骨重塑而出，之後至少臥床一年，用於骨肌再生。此種解法的好處是，解毒後的容顏與常人無異，舌苔恢復柔軟，可以正常說話，不過樣貌與以前是大不一樣了。靜妃通過把脈得知梅長蘇身中火寒毒後也不禁失聲痛哭，由此也可以明白靜妃娘娘為何會心疼欲裂。
 
-**I want to see what’s happening with China ,I want to see how they are doing on it. Are they fulfilling the deal? The transaction ?We have lots of discussions going on with China ,let me just put it this way , I am NOT HAPPY . OK ? I AM NOT HAPPY .When I spoke to them ,and this could have been shut down a long time ago .They knew it ,we are all in the situation that was caused that should have been solved long ago ,probably very easily. Look ,it is a tough enemy ,but probably very easily ,a certain country did what they have done ,**
+一個少年，忍受這般痛苦，為的就是要活着，要有正常的身體來為7萬赤焰軍洗脫冤案。想想，在香港抗爭中的年輕人，為了心中的正義；為了守護香港自由、民主、法治不被中共侵蝕；為了自己以及後代子孫，他們被捉捕、被判刑、被凌虐、被失蹤、被自殺，犧牲寶貴的生命，而活著的人甚至以犧牲前途為代價。港共政府用黑警和黑社會，強姦、侮辱、暴力來對待他們以及被捕者。做為有孩子的你們，如何能忍受這般虐待。每看到香港青年們在街頭如此被黑警暴力對待，都心如刀割！
+[!\[\](https://spark.adobe.com/page/K3maaT5VqC00F/images/cee74b00-13f2-435b-9fc1-6e4ddd92c230.jpg?asset_id=a219d0d8-422a-495b-ab7f-d014a9131217&amp;img_etag=b5b3d33393e540645f44f6ccdcc53222&amp;size=2560)](https://spark.adobe.com/page/K3maaT5VqC00F/images/cee74b00-13f2-435b-9fc1-6e4ddd92c230.jpg?asset_id=a219d0d8-422a-495b-ab7f-d014a9131217&amp;img_etag=b5b3d33393e540645f44f6ccdcc53222&amp;size=1024)
+面對邪魔中共，劣質體制下的官員們已經是屍位素餐，都努力在為自己手中的權力尋找更大的名利，也不全是因為他們天生如此，更大原因是邪魔中共腐敗的體制造就。人民沒有手中的權利來監督當權者、當官者們的所做所為。法律被當權者玩於股掌，任意篡改，以服從他們的需要。人民成為被割的韭菜。在電視劇中有一幕是五個州連遭旱災和蝗災，顆粒無收。以前，太子、譽王爭當賑災主事人，到手後就瓜分救濟款，真正分到災民手中的不足十分之三。他倆「賑災」之後，餓殍遍野，暴民四起。他們要終止這情況，就以暴民為口，鎮暴為名。看看現在，因為中共病毒下的牆內人民，有多少人能得到良好救助，多少因被封在家中而活活餓死！前線醫護人員努力救治病人，卻因防疫物資缺乏而獻出生命。中共對他們的援助和醫療支援是零！再看香港，多少年青人被冠以「暴動份子」。現在港共政府還想利用聯合國之名，將他們冠以「恐怖份子」！中共治下的「以暴治亂」永遠都是人民的錯，沒有當權者失職和不當。這與太子、譽王鎮暴如出一轍！
 
-**（中文大意：我想看看中國正在發生什麼事情，我想看看他們正在做什麼，他們正在履行協議嗎？（他們正在履行達成的）交易嗎？我們正在與中國進行很多討論，這樣說吧，我不悅悅。明白嗎？我不悅悅。我跟他們談過，這本該很久之前就關閉的。他們知道，我們都面臨同樣的形勢，而這本該很久之前就解決的。你看，這是一個強敵，但可能很容易，某些國家做了他們本該做的）**
+近日，美國參議員霍利宣布了「**要求中共對COVID-19大流行負責**」法案，這也說明了美國的覺醒，令人鼓舞和欣慰。但我認為中共在末路上，為了最後一搏幾近瘋狂(最近的核測試和台海問題、香港等一系例暴法正在發動)，就如譽王謀反。當然如習能像前蘇聯一樣，和平解體中共，對世界以及任何牆內人民、官員們都是一件好事。更相信文貴先生已做好了多種準備。也相信，使中南坑「青煙裊裊」的志士們能完成任務！但不知中共會否在絶路上以攻打台灣、讓更多香港反抗者作為陪葬的結局來結束呢﹖
 
-When it was just starting, it could have been solved really very easily.
+就如劇中最後一部份，要求梁帝在位時，親自來重審和面對自己犯下的罪行，讓歷史真正記載這一部分。就如8964死去的同胞們和香港被死去的英魂們，相信大家更想的是清算他們。像劇中最後部分樣為死去的英魂平反，還他們名聲也是很重要的一步。從法律上，讓中共、港共政府(林妖和PK鄧)等參與殺害英魂們的罪魁，親自承擔他們的罪責，使真相大白於天下，以洗清對死去英魂的污名，還他們一個公道！
 
-（中文大意：當病毒剛剛開始出現的時候，它本應該很容易被解決的。）
+另外，對於幫助中共的官員們，港共的高官們，請你們好好想想，中共會為了你讓他們的罪證暴露於外嗎﹖相信死人才是中共最放心、最能保守他們反人類罪證的秘密！所以，請保留好手中的證據，不要再為中共的惡來買單吧！就如劇中，沈追重資歷，蔡荃重能力，沈追認為重建新景氣，不能殺盡官員，讓有心改過的官員用他們的經驗來幫助靖王。而蔡荃認為，任何人生下來不是什麼都會，需要給磨練機會，而屍位素餐的人太多了。二者觀點都對，如何做的更好，供讓大家思考，討論吧。
 
-關於這一段刪除的紀要內容在視頻的[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020時間點：1:22:44](https://youtu.be/Bx08ic673Vo?t=4964)至[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020時間點1:24:19](https://youtu.be/Bx08ic673Vo?t=5059)部分，在這部分的視頻中關於川普總統不悅悅的那一段也去掉了，這是為什麼呢？莫非美國也有宣傳部？這不在本文討論之列。
+最後，我依然選擇相信，在中共這邪魔體制下，牆內還有很多有良心的官員和明事非的老百姓，他們只是無法反抗而已。我們也不要因為越來越多滅共好消息而僅顧過份開心，放鬆對疫情的防範。也要防範中共末日來臨之時，魚死網破的更瘋狂的行動。中共可是統治牆內70年，不會甘於滅亡，會用盡一切辦法、手段為自己續命！
 
-我們重點看一下川普總統在記者會中已經確認的內容——關於病毒來源的問題，它就來源於中國。 “ **All I can say is, wherever it came from — it came from China。** ”。
+做大家能做的事，傳播真相、說真話、做實事。一切已經開始！
+[!\[\](https://spark.adobe.com/page/K3maaT5VqC00F/images/ccfb46b7-7168-4a11-bda6-a2ccaaae2251.jpg?asset_id=a05e2117-f624-4250-abda-f0bffd774b93&amp;img_etag=65b491dfb321087742e25142349d6054&amp;size=1024)](https://spark.adobe.com/page/K3maaT5VqC00F/images/ccfb46b7-7168-4a11-bda6-a2ccaaae2251.jpg?asset_id=a05e2117-f624-4250-abda-f0bffd774b93&amp;img_etag=65b491dfb321087742e25142349d6054&amp;size=1024)
+[文字劇情參考鏈結](https://sister5748.pixnet.net/blog/post/37437957-%E9%99%B8%E5%8A%87%E3%80%90%E7%91%AF%E7%90%8A%E6%A6%9C%E3%80%91%E5%88%86%E9%9B%86%E5%8A%87%E6%83%85%E4%BB%8B%E7%B4%B9%28%E5%85%A854%E9%9B%86%29)[《琅琊榜》外真實的赤焰軍冤案](https://kknews.cc/zh-hk/history/6koakrv.html)[火寒毒究竟是什麼](https://kknews.cc/zh-hk/entertainment/j46lo2p.html)
 
-對於來源於中國的病毒，他們本可以很容易就解決的，但是到今天變成了這個樣子，而且由於他們誤導信息，他們應該是世界上死亡人數最多的國家，他們把這起事件變成了一起他們的國難！由於他們誤導信息，世界上184個國家都因此而遭受苦難！ ；
+文章內容僅代表作者個人觀點
 
-川普總統正在看著中國正在發生的事情和中共正在做得事情，川普總統很不悅悅！
+嗚謝圖片來源unsplash 、pixabay。
 
-中共正在做得事情有沒有履行貿易協議和中美之間已經達成的交易嗎？川普總統正在看著他們！下一步會不會懲罰性關稅？會不會雷霆萬鈞？我也不知道，但是川普總統不悅悅！
-
-（文章內容僅代表作者個人觀點）
+### **編輯 【喜馬拉雅戰鷹團】**
 
 0

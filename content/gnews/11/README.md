@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 烏克蘭法院駁回中共公司在航天領域的上訴
-`2020-04-18 04:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177155/)
+## 澳前外交部長要求中共對新冠病毒來源公開透明
+`2020-04-18 06:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177273/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18045639/562454_9207624_tns.jpg)圖片來源： [thenews](https://www.thenews.com.pk/tns/detail/562454-trial-military-courts) 
-據路透社4月17日報導，烏克蘭基輔法院已駁回了中共投資者關於解凍烏克蘭飛機發動機製造商股票的上訴，這對這家試圖以美國反對的方式收購烏克蘭公司造成重挫。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18064509/%E6%BE%B3%E5%89%8D%E5%A4%96%E4%BA%A4%E9%83%A8%E9%95%BF%E8%A6%81%E6%B1%82%E4%B8%AD%E5%85%B1%E5%AF%B9%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9D%A5%E6%BA%90%E5%85%AC%E5%BC%80%E9%80%8F%E6%98%8E.jpg)
+ [*https://www.youtube.com/watch?v=N\_agWuQr2ww*](https://www.youtube.com/watch?v=N_agWuQr2ww) 
+澳洲前任外交部長唐納（Alexander Downer）表示，中共必須在疫情上公開透明，否則它將“激起世界的憤怒”。
 
-**背景**
+唐納說，關於這種病毒究竟是從蝙蝠直接傳播到人類；是從在海鮮市場還是從病毒實驗室傳播開來，仍存在疑問。在周五一次網絡研討會上他告知澳-英國商會，大流行之後，世界將要求中國提供答案。
 
-中共的Skyrizon飛機控股有限公司購買了飛機發動機製造商Motor Sich的多數股權，但這些股份於2017年被凍結並正等待烏克蘭安全部門（SBU）的調查。美國政府表示反對這場交易。
+“對中共來說，這是一個緩慢的過程。到目前為止，中國向其他國家發送了口罩和測試套件，其中一些顯然效果不佳。中國告訴世界它在提供幫助。
 
-自2014年俄羅斯吞併烏克蘭克里米亞半島（Crimea）後，美國和中國一直在爭奪烏克蘭的影響力。
+唐納表示，由於中國在處理冠狀病毒信息及數據的不透明，使病毒擴散到180多個國家，世界將開始抵制其全球的影響力。並且隨著各國開始審查原材料和重要產品的供應鏈，中共的出口商可能會遭受損失。
 
-**影響**
+同時他還認為，世界各國將削弱對中國藥品和鋰等稀土金屬的依賴，尤其是澳大利亞和英國。
 
-烏克蘭法院在裁決中裁定該公司的股票凍結，理由是出售Motor Sich意味著允許外國人使用敏感技術，這對國家安全造成威脅。
+曾任雅培（Coalition Abbott和特恩布爾（Turnbull））兩屆政府外交部長的朱莉·畢曉普（Julie Bishop）表示，澳大利亞正在重新審查與中國的關係。
 
-克里米亞半島被吞併後，Motor Sich與最大的客戶俄羅斯斷絕了聯繫。關於其未來的爭論已經推動著尋找新市場的努力，而快速解決方案的支持者說，它目前的運營能力還不到一半。
+近日她對天空新聞說：“我認為，在經歷了這種瘟疫大流行後，我們將看到一個不同的世界。” “ 我相信，許多國家將尋求多樣化，或許會將更多的注意力放在國內供應鏈上。”
 
-**後續**
+同時內政部長彼得·達頓（Peter Dutton）也要求中國對冠狀病毒的起源公開透明。他表示，死於中共病毒的澳大利亞人的家人有權就疫情的起源得到答案。
 
-一位工業工會主席，前總理阿納托利·基納赫（Anatoliy Kinakh）告訴路透社：“Motor Sich已經成為地緣政治局勢的人質。”
+唐納呼籲中國和世界衛生組織進行調查，但表示必須讓包括西方在內的國際社會的科學家參與。他認為：“必須對這種情況如何發生，來自何處進行適當的調查，我認為中共必須同意這項調查。”
 
-該州反壟斷委員會已經展開了自己的調查，並表示正在等待收到更多文件，然後再決定是否批准銷售。
+[原文鏈接](https://www.sbs.com.au/news/former-australian-foreign-ministers-weigh-in-on-china-s-coronavirus-outbreak-handling)
 
-總統沃洛德米爾·澤倫斯基（Volodymyr Zelenskiy）不得不在中共和美國之間取得平衡。烏克蘭政府既想要加強與中共的聯繫，又需要保持烏克蘭最大軍事援助國美國的關係。最近，中共和美國政府都向烏克蘭提供了抗擊中共冠狀病毒的援助。
-
-“當中美兩國擁有世界上最大的力量並且利益在烏克蘭發生衝突時，這是一個艱鉅的任務。” 烏克蘭前高級安全官員奧萊克森德爾·丹利丘克（Oleksandr Danylyuk）告訴路透社。
-
-[原文鏈接](https://uk.reuters.com/article/us-ukraine-motorsich/ukraine-court-rejects-chinese-appeal-in-aerospace-deal-opposed-by-washington-idUKKBN21Z1AY)
-
-翻譯報導：Sharon
+翻譯報導：匿名
 
 0
