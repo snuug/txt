@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月14日中共病毒疫情要聞快報
-`2020-04-17 10:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175546/)
+## 李文亮醫生的哨音台灣聽到了! 不同於中共 台灣民主自由的政府迅速做出正確反應!
+`2020-04-17 18:31 GM15` [轉載自GNews](https://gnews.org/zh-hant/176543/)
 
-[4.14-每日要聞-英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)
+中共肺炎疫情席捲全球，台灣雖然毗鄰疫情發源地——中國，但在這場防疫戰中，有效控制疫情在台灣蔓延，備受國際稱讚和各國借鑑。有中華民國官員15日披露，台灣之所以防疫措施成功，武漢吹哨人李文亮醫生幫了大忙。
 
-[4.14-每日要聞-芬蘭語Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)
+台灣在去年12月底就已經提醒世界衛生組織，武漢的不明肺炎有「人傳人」的可能，而且台灣政府馬上採取檢疫措施。這種超前部署被認為是台灣抗擊疫情成功的重要原因之一。
 
-[4.14-每日要聞-土耳其語Turkish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)
+那麼，台灣怎麼那麼早就知道中共肺炎可以「人傳人」呢？據自由亞洲報導，4月15日，台灣中央流行疫情指揮中心發言人、疾管署副署長莊人祥，在疫情例行記者會上說，當時是一名疾管署防疫醫師在PTT(學生電子布告欄)上發現。
 
-[4.14-每日要聞-德語版German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)
+他說，當時有網友轉貼武漢市衛健委緊急通知，而請醫院針對不明原因肺炎患者加強診療收案。一名醫師隨即把訊息傳至疾管署內討論群組。當時擔任發言人的副署長羅一鈞睡不着覺，一看到訊息，便立即上PTT查詢，了解情況並匯報至工作群組。
 
-[4.14-每日要聞-韓文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)
+清晨五點多，莊人祥就把這個消息傳到群組，那天他們就在為防疫做準備。當天中午就寄信到中共CDC、世界衛生組織，問他們有沒有什麼訊息可以再提供。下午6點他們也開了記者會，針對武漢的班機做登機檢疫。
 
-[4.14-每日要聞-法語版French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)
+根據台灣疾管署在12月31日發布的新聞稿，因應武漢市之肺炎流行疫情，為防範病例自境外移入，台灣加強入境旅客之發燒篩檢、落實疑似病例之旅遊史、職業別、接觸史、群聚情形等詢問。
 
-[4.14-每日要聞-日語版Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)
+## 反觀同一時間 中共迫害吹哨人李文亮醫生 簽悔過書訓誡禁聲
 
-[4.14-每日要聞-西班牙語版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
+**李文亮（1985年10月12日－2020年2月7日），滿族，遼寧北鎮人，武漢市中心醫院眼科醫生，中國共產黨黨員。李文亮醫生於2019年12月30日在自己微信與同行交流，認為出現SARS提醒同行注意保護。 因而成為中共病毒病疫情中率先向外界披露疫情的醫療人員之一，而被稱為「疫情吹哨人」，2020年1月3日轄區派出所因其「在網際網路上發布不實言論」提出警示和訓誡。事件後他仍持續在第一線工作，於1月10日左右出現症狀，因為病情嚴重進入加護病房觀察，1月31日確診感染中共肺炎（2月1日通過其微博公布）。2月7日官方通報李文亮於凌晨2時58分病逝，年僅34歲。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17181307/84638499_2530661750509201_5888464432706617344_n.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17181651/20200319005722.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17182438/220px-Li_Wenliang.jpg)
+引自[鏡周刊](https://www.mirrormedia.mg/story/20200416soc002/)
 
-[4.14-每日要聞－俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
+GM15
 
-[4.14每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)
-
-0
+1

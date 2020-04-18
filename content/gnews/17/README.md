@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 境外輸入關聯確診病例的真相
-`2020-04-17 18:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/176645/)
+## 郭文貴：感染的人應該是中共設計的用以將病毒專門傳播到西方的手段
+`2020-04-18 00:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/176901/)
 
-作者：立武
+4月17日郭文貴在GTV上發出如下兩條蓋特短文，向美國情報機構發出如下警告：
 
-根據中共官方報導，4月9日，黑龍江省新增本土1例和無症狀3例，號稱“打破該省29天本土無新增的紀錄”，截至4月16日18時，中共聲稱該傳染鏈已導致哈爾濱市36人感染，包括23例確診和13例無症狀。
+“親愛的情報局長：
 
-對此，中共羅列了一系列的傳染關係，概括來講，就是這位來自美國的傳染者先傳播樓棟人員，樓棟人員再進一步聚餐傳播，聚餐傳播再導致院內感染，截至4月11日下午3時，哈爾濱已排查追踪到密切接觸者456人，之後開始封閉管控、推遲開學，然後是免職處理，問責18人。
+我認為美國的病毒感染情況可能會更加嚴重。僅是隔離措施無法保障生命！根據許多情報，包括我們的專家提供的情報，在美國和歐洲的病毒有來源。通常，第一次感染病毒後並沒有感覺明顯症狀。三次傳播之後病毒強度會有所遞減。然而在美國，情況剛好相反，病人從最初的感染開始症狀就十分嚴重，特別是那些被無症狀感染者傳染的病人。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17182625/7-16.png)
+我認為感染的人應該是中共設計的用以將病毒專門傳播到西方的手段。他們稱呼這些人為超級傳播者。他們可能在美國，在歐洲，繼續傳播冠狀病毒，且來無影去無踪。他們是最根本的病毒來源。不可能找到解藥。美國和西方世界也會因此付出巨大代價。只有迫使中共公開所有信息，說出整個事實真相，屠殺世界的病毒才能被制止。我希望美國這次會重視情報。不要再出現自殺式的失誤。這才是最根本的解決之道。
 
-看起來順理成章，爆發是因為地方政府政策失職，沒有警惕做好防控導致大面積傳播，這似乎回到了一月的武漢。
+以上文字僅代表文貴本人。 ”
 
-但問題是：
+***附英文原文：***
 
-1. **這是在黑龍江，其他省份足夠警惕、足夠做好防控嗎？**
-2. **如果真的1人傳播36人，這麼強的傳染性，黑龍江、其他省、全國都會有多少呢？**
-3. **武漢被問責，地方還敢在違背中央指示情況下做出行動嗎？地方被問責，難道中央沒有責任，中央的複工、復學難道沒有責任？**
-4. **聚餐、聚集這些難道不是CCTV天天造謠洗腦的結果？中共謊話連篇不用承擔責任嗎？**
+4月17日【Dear intelligence chief: I think the coronavirus situation in the United States may be worse. Quarantine measures. Can not control live! According to various information. And the information given by our experts. Viruses in the United States and Europe appear to have originated. The symptoms of the virus did not feel after virus 1 infection. And the diminishing effect after three infections occurs. In American patients. On the contrary, the symptoms of the condition are terrible symptoms starting with the initial coronavirus infection. Especially for asymptomatic infected people, I think the infected people, it should be a method designed by CCP to specifically spread to the West. They call them super infectors. This shows that someone may be in the United States. Europe. Continue to release the coronavirus, in short, not found. The fundamental source of the virus. It is impossible to find an antidote. The United States and the Western world will also pay a huge price. Only by letting the CCP surrender all the information and telling the whole thing can the massacre of the world ‘s major viruses be stopped. I hope the United States will be on intelligence this time. Don’t make suicidal mistakes anymore, this is the fundamental solution. This is Wengui’s words that only represent me.】
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17182727/6-22.png)
-這個事件有個核心點是這位從美國來的傳染者是居家隔離，正好是在哈爾濱出台集中隔離政策前一天，中共還搬出疾控中心專家的不主張境外人員居家隔離來推卸中央責任：中央不是沒有放話，而是地方不聽。事實上，這一貫是中共的伎倆，搬出所謂專家，用時代表中央，不用時代表個人，與中央無關。
-
-但還有一個問題，儘管中共不斷通報全國境外輸入，且聲稱做好集中隔離，但仍然有境外輸入關聯病例，這難道不是矛盾嗎？既然做好集中隔離，這些人怎麼會跑出去感染別人呢？要么隔離措施有問題，要么這些就是本土確診的病例。
-
-就4月15日廣東新增的境外輸入關聯確診病例看，這些確診病例多次來往於餐廳、酒館、商貿城，還聲稱是“外國籍”感染者的密切接觸者，但中共沒有說明這名“外國籍”感染者是怎麼來的。境外來的沒有隔離？境內又是誰感染？密切接觸者在集中醫學觀察期間還多次出入人群聚集場所？中共所謂的環境樣本檢測陰性就能確保環境沒有殘留病毒嗎？
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17182832/1-94.png)
-再者4月15日北京新增的3例境外輸入關聯確診病例是某境外輸入病例患者在集中隔離14天檢測陰性後回家與其接觸的3個親人。既然能夠接觸家人，又有多少非親人的接觸者，隔離沒有效果是病毒潛伏期太長還是檢測試劑有問題？前者隔離14天還有沒有效果，後者在全國又會造成多少誤診？
-
-不管是隔離不到位還是檢測不到位，就單單一個月來，復工、復產、復學會造成多少攜帶病毒的潛在或確診病例，會爆發怎樣的二次感染都是不可知的，不過可以肯定，爆發一定會到來，確診會越來越多。中共難道沒有任何責任？從掩蓋疫情真相，到混亂的聲音和政策，到亂隔離亂檢測，中共從開始到現在，做了什麼有效措施能夠抑制傳播？還是加劇傳播？現在中共一口咬定是美國來的1傳36，是境外的和地方的責任，中央“高度重視”、果斷免職，難道這就是真相？問題的根源是中共掩蓋疫情真相，現在疫情在廣東、黑龍江二次爆發的可能性越來越大，不相信中共，不復工，居家防護也許是最好的選擇。
-
-（文章內容僅代表作者觀點）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003127/WhatsApp-Image-2020-04-18-at-2.25.05-PM.jpeg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003320/WhatsApp-Image-2020-04-18-at-2.25.06-PM.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003346/WhatsApp-Image-2020-04-18-at-2.25.06-PM-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003432/WhatsApp-Image-2020-04-18-at-2.25.07-PM.jpeg)
+翻譯報導：匿名
 
 0

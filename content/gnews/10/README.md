@@ -1,23 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陽之戰三連發(一)我們未有認知極權
-`2020-04-17 18:58 GM06` [轉載自GNews](https://gnews.org/zh-hant/176690/)
+## 川普總統開啟抗疫戰鬥下一階段新篇章：重啟美國的指導方針
+`2020-04-18 00:08 GM31` [轉載自GNews](https://gnews.org/zh-hant/176858/)
 
-作者：陽之戰
+####  **President Donald J. Trump Is Beginning the Next Phase In Our Fight Against Coronavirus: Guidelines for Opening Up America Again** 
 
-**認知極權**
+####  **川普總統開啟抗疫戰鬥下一階段新篇章：重啟美國的指導方針** 
 
-中國人不知道自己生活在地獄中，世界人們仍在未清醒中，一個政府，一個黨，可以把一個國家的人，一個民族變成現在這個樣子。歷史上中國常常出現飢荒，飢不擇食，現在這個國家出現的是對金錢的飢荒，飢不擇食，很難想像的，年輕時，房子貸、車子貸、只不過為了面子, 中年時，房子車子是為了孩子，因為沒車、沒房、沒財禮錢、便沒人嫁你，另外他們病不起，患了大病往往資不抵債，往往是三種結局，錢也花光,命也搭了，家也破產，放棄不了家人，沒辦法，就會是這結局，還有一種，患了病了，為了家庭，犧牲自己，拯救全家，還有一種，患了病了，把病治好了，但背上了巨額債務，將會把自己人生的大好光陰的時間用來還債。他們終其一生，為了生存、生活而掙扎奔命，傾盡所有，獻祭一切。
+[HEALTHCARE](https://www.whitehouse.gov/issues/healthcare/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17185620/2-116.jpg)
+衛生保健
 
-這就是一個偉大了的國、厲害了的國、他們每個人都愛著的國，吳花燕24歲因為吃不到好的飯菜，體重不到23公斤，身高135厘米，在醫院臨死之前還在電視鏡頭前表述自己愛國，她說她有一個夢想，是做一位作家寫寫文章。
+Issued on: April 16, 2020
 
-世界人們聽說過極權但不知道極權意味著什麼，意味著，土地都是國家的，礦產資源是國家的，房屋沒有產權，雖然這個偉大的國號稱70年產權，但不管多少年，國家要拆，隨時強拆，電是國家的，油是國家的，世界最密集的高速路收費站也是國家的，互聯網是國家的，許多人會說淘寶不是國家的，華為不是國家的，騰訊不是國家的……不是國家的，我想他們的老闆那一位不是可以輕輕鬆鬆的被罷職，被抓捕？只要他們沒做好為國家服務的工作，敢不聽國家，膽敢政治不正確，他們只是一條狗，他們膽戰心驚、顫顫巍巍，他們只是國家的白手套，實際上我不知道國家是誰的？他們說國家是人民的，但人民啥都沒有，國家是誰的？什麼是政治不正確？什麼是國家規定？國家規定可以限制一切，控制一切資源，所以人民要鑽空子，找官系，走後門。有人賣假藥、有人造假貨、有人賣假疫苗、假奶粉、毒食品、都可以不犯法，因為打點好了官系，什麼發明、創造、創新，比不過抄襲、查你、滅你、偷你，對人民來說官系最重要，對當官的來說領導最重要，剛才我說“世界人們聽說過極權，但不知道極權意味著什麼”讀到這裡我相信大家大概知道了一些，但我深信大家對極權的認識還很少，遠遠的不知道它對社會的傷害，對每個人的傷害，對每個家庭的傷害有多嚴重，對每個人身心的深度的迫害和對人性的扭曲有多嚴重，他們的宣傳無恥到了什麼程度？他們的欺騙無恥到了什麼程度？他們對人性的糟踐，不是用惡魔或者魔鬼這個詞就可以拿來比喻的，“惡魔”或者”魔鬼”作為比喻在極權面前顯得太過於天真和單純。
+2020年4月16日發布
 
-而且他們在偽裝著、帶著面具的在入侵著世界，他們用貪婪、利益、欺詐、腐敗、…侵蝕著世界的各種國際機構和法律，這是使他們得以活下去的專業技能，掠奪、佔有、盜取、欺詐、腐敗，控制一切，偽裝，這是他們習以為常，得以生存、存在下去的唯一方式。他們對世界的腐蝕入侵是在力求使世界的規則變成上面的方式，他們要變成規則，腐蝕一切，控制一切，這是極權的生存方式。請看下篇《肺炎搖晃著世界，呼叫著“世界你醒醒! ”》
+### 
 
-（文章內容僅代表作者觀點）
+**“All of American society is engaged and mobilized in the war against the invisible enemy. While we must remain vigilant, it is clear that our aggressive strategy is working.”**
 
-0
+**President Donald J. Trump**
+
+***“*** ***美國各界所有民眾都被調集動員起來參與到這場抵禦無形敵人的戰鬥中。我們必須保持警醒的同時，我們的積極進取的策略也明顯起著作用。” –唐納德.川普總統***
+
+**BEGINNING THE NEXT PHASE IN THE FIGHT: President Donald J. Trump is continuing the fight against the coronavirus by beginning to reopen the country in a smart and safe way** .
+
+**開始戰鬥的下一階段：唐納德.川普總統要以一種明智和安全的方式開啟美國來繼續對抗冠狀病毒**
+
+- The Trump Administration is issuing new guidelines to enable individual States to reopen in phases using a deliberate, data-driven approach.
+- 川普政府將公佈新的指導方針以使各州可以通過在嚴謹討論和數據分析基礎上判斷各自處於重新開放不同階段的哪一步
+    - Under these guidelines, States will reopen one step at a time, rather than all at once.
+
+
+    - 在這些方針的指導下，各州政府將逐步重新開放，而不是所有州一起全面開放
+- The guidelines will empower Governors to tailor the phased reopening to address the situation in their State.
+- 這些指導方針將賦予各州州長根據本州的情況量身定制分階段重新開放
+    - Governors can begin phased openings at the Statewide or county-by-county level.
+
+
+    - 各州州長可以在全州範圍內或是以郡為單位開始分階段開放
+- These guidelines were developed by the top medical experts from across the Government and are based on verifiable metrics regarding the situation on the ground.
+- 這些指導方針是基於有關實際情況得出得可驗證指標，由來自政府的頂級醫學專家所製定
+- The guidelines set clear benchmarks on new cases, testing, and hospital resources for States to meet to proceed toward a phased reopening.
+- 這些指導方針在新案例，檢測，和醫院資源方面為各州制定了符合進入分階段重新開放得清晰準則
+    - Criteria include a downward trajectory in cases presenting coronavirus-like symptoms or a downward trajectory in positive tests.
+
+
+    - 準則中包括類似冠狀病毒症狀病例呈下降軌跡或陽性檢測呈下降軌跡
+
+
+    - The criteria also included hospitals having the resources to treat all patients without crisis care and a robust testing program for healthcare workers.
+
+
+    - 準則中還包括有資源救治所有無需危機護理患者的醫院以及對醫護人員的強大檢測系統
+
+
+**CONTINUING TO PROTECT AMERICANS: These new guidelines represent the next phase in President Trump’s data-based approach to protect the health and wellbeing of Americans.**
+
+**繼續保護美國人民：這些指導方針代表了川普總統下階段依靠數據制定措施的方式來保護美國人民的健康和福祉**
+
+- Thanks to the commitment and sacrifices of Americans across the country, we have seen critical progress in flattening the curve.
+- 非常感謝全美國人民所做的承諾和吸收，我們已經看到在平滑曲線的努力中取得的重要進步
+    - A long-term nationwide shutdown is not sustainable and would inflict wide-ranging harm on the health and wellbeing of our citizens.
+
+
+    - 長期全國性的封閉是不可持續的，會對所有美國公民的健康和福祉造成廣泛的傷害
+- The President’s data-based approach will protect the health and safety of Americans while laying the groundwork for economic growth.
+- 總統依靠數據制定措施的方式將保護所有美國人的健康和安全，同時為經濟增長奠定基礎
+- These guidelines will allow healthy Americans to safely return to work as conditions allow while protecting seniors and other vulnerable Americans.
+- 這些指導方針將在保護老年人和其他易感染的美國人的同時，使健康的美國人在條件允許的情況下安全地返回工作崗位。
+
+
+**LEADING A HISTORIC MOBILIZATION: President Trump has led a historic mobilization to rapidly ramp up testing and the distribution of medical supplies.**
+
+**領導歷史性的動員：川普總統領導了一次歷史性的總動員以迅速增強擴大測試以及醫療用品的分配**
+
+- President Trump mobilized the full resources of the Government and the private sector to increase the production and distribution of supplies like masks and ventilators.
+- 川普總統調集所有政府和私營部門資源來增加如口罩和呼吸機等用品的生產和分配。
+    - President Trump utilized the Defense Production Act, and the private sector responded, with numerous companies stepping up to shift production to make medical supplies.
+
+
+    - 川普總統利用《國防生產法》，私營部門做出了回應，一大批公司加緊將生產轉移到製造醫療用品上
+
+
+    - The Administration launched Project Airbridge to airlift supplies to the United States from around the world.
+
+
+    - 政府啟動了“空中橋樑計劃“，從世界各地將物資空運到美國
+- The President surged resources and personnel to assist healthcare providers on the frontlines.
+- 總統增加了資源和人力以幫助一線醫療工作者
+    - At the President’s direction, the military and FEMA stood up emergency medical sites around the country, and two naval ships were deployed to assist hospitals.
+
+
+    - 在總統的指示下，軍方和聯邦緊急事務管理局在全國各地設立了緊急醫療救助點，並部署了兩艘海軍艦船來協助醫院
+- President Trump has led an unprecedented effort to ramp up testing across the country.
+- 川普總統以前所未有的努力加大全國范圍內的檢測力度
+    - The Administration has provided emergency use authority for dozens of new commercial tests.
+
+
+    - 政府已為數十個新的商業測試賦予了緊急使用授權
+
+
+    - The United States has now conducted more than 3.5 million tests – far more than any other country in the world.
+
+
+    - 美國目前已經進行了超過3.5百萬的檢測– 遠遠超過世界上任何其他國家
+
+
+    - The Food and Drug Administration continues to authorize new antibody tests that will be critical as we move toward the next phase.
+
+
+    - 美國食品藥品監督管理局繼續授權新的抗體檢測試劑，這些檢測試劑對於我們進入下一階段來說至關重要。
+- Because of President Trump’s decisive early action, we have been able to get needed medical supplies to our healthcare workers on the frontlines and avoid deadly shortfalls.
+- 由於川普總統的果斷的早期行動，我們能夠為一線醫護人員提供所需的醫療用品，並避免了致命的物資短缺。
+    - No American who has needed a ventilator has gone without one.
+
+
+    - 沒有一個美國人是因為沒有呼吸機而離世。
+
+
+    - States like New York, California, Washington, and Oregon have even been able to send extra ventilators to other areas that need them.
+
+
+    - 一些如紐約州，加利福尼亞州，華盛頓州和俄勒岡州等州甚至能夠將額外的呼吸機運到其他需要的地方。
+
+
+出處： [白宮](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-beginning-next-phase-fight-coronavirus-guidelines-opening-america/)
+
+*翻譯：【Sarathecat】*
+
+1
