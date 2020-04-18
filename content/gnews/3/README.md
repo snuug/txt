@@ -1,31 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳前外交部長要求中共對新冠病毒來源公開透明
-`2020-04-18 06:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177273/)
+## 德國外長馬斯怒批中共國
+`2020-04-18 07:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177289/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18064509/%E6%BE%B3%E5%89%8D%E5%A4%96%E4%BA%A4%E9%83%A8%E9%95%BF%E8%A6%81%E6%B1%82%E4%B8%AD%E5%85%B1%E5%AF%B9%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9D%A5%E6%BA%90%E5%85%AC%E5%BC%80%E9%80%8F%E6%98%8E.jpg)
- [*https://www.youtube.com/watch?v=N\_agWuQr2ww*](https://www.youtube.com/watch?v=N_agWuQr2ww) 
-澳洲前任外交部長唐納（Alexander Downer）表示，中共必須在疫情上公開透明，否則它將“激起世界的憤怒”。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18073454/%E5%BE%B7%E5%9B%BD%E5%A4%96%E9%95%BF%E9%A9%AC%E6%96%AF%E6%80%92%E6%89%B9%E4%B8%AD%E5%85%B1%E5%9B%BD.jpg)
+繼4月17日川普總統主持了西方七國工業首腦視頻會議後，對於川普總統提出的讓中共國對中共病毒的世界大流行負責一說一直保持沉默的德國政府終於發聲批評了中共領導層的執行能力。
 
-唐納說，關於這種病毒究竟是從蝙蝠直接傳播到人類；是從在海鮮市場還是從病毒實驗室傳播開來，仍存在疑問。在周五一次網絡研討會上他告知澳-英國商會，大流行之後，世界將要求中國提供答案。
+德國外長馬斯說，中共國必須回答為什麼修改中共病毒感染者和死亡者的數據，更重要的是必須追究中共病毒的來源以及如何產生。他還警告說“中共國領導人在未來幾週必須保證其信息的公開透明化以證明其想對抗此病毒的誠意。“
 
-“對中共來說，這是一個緩慢的過程。到目前為止，中國向其他國家發送了口罩和測試套件，其中一些顯然效果不佳。中國告訴世界它在提供幫助。
+[原文鏈接](https://www.bild.de/politik/inland/politik-inland/maas-kritik-an-china-minister-kann-oeffnung-der-wildtiermaerkte-nicht-verstehen-70096940.bild.html)
 
-唐納表示，由於中國在處理冠狀病毒信息及數據的不透明，使病毒擴散到180多個國家，世界將開始抵制其全球的影響力。並且隨著各國開始審查原材料和重要產品的供應鏈，中共的出口商可能會遭受損失。
-
-同時他還認為，世界各國將削弱對中國藥品和鋰等稀土金屬的依賴，尤其是澳大利亞和英國。
-
-曾任雅培（Coalition Abbott和特恩布爾（Turnbull））兩屆政府外交部長的朱莉·畢曉普（Julie Bishop）表示，澳大利亞正在重新審查與中國的關係。
-
-近日她對天空新聞說：“我認為，在經歷了這種瘟疫大流行後，我們將看到一個不同的世界。” “ 我相信，許多國家將尋求多樣化，或許會將更多的注意力放在國內供應鏈上。”
-
-同時內政部長彼得·達頓（Peter Dutton）也要求中國對冠狀病毒的起源公開透明。他表示，死於中共病毒的澳大利亞人的家人有權就疫情的起源得到答案。
-
-唐納呼籲中國和世界衛生組織進行調查，但表示必須讓包括西方在內的國際社會的科學家參與。他認為：“必須對這種情況如何發生，來自何處進行適當的調查，我認為中共必須同意這項調查。”
-
-[原文鏈接](https://www.sbs.com.au/news/former-australian-foreign-ministers-weigh-in-on-china-s-coronavirus-outbreak-handling)
-
-翻譯報導：匿名
+翻譯文儀
 
 0
