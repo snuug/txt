@@ -12,6 +12,8 @@
 
 ## 頁面 13/26 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [26](/content/README-26.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
+
 [文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
 
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
@@ -59,8 +61,6 @@
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/content/2019/01/20190122-8638350325848352117.md)
 
 [文字版2019年1月17 日直播（上，下）](/content/2019/01/20190122-1312642857829852488.md)
-
-[文字版：2019年1月16日郭先生报平安视频（上，下）](/content/2019/01/20190118-5239795096969232686.md)
 
 
 ## 頁面 13/26 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [26](/content/README-26.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

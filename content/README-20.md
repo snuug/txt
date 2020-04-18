@@ -12,6 +12,8 @@
 
 ## 頁面 20/26 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/content/2018/04/20180418-6803153181379823520.md)
+
 [文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/2018/04/20180418-7259055052246962788.md)
 
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
@@ -59,8 +61,6 @@
 [文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
 
 [文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
-
-[文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
 
 
 ## 頁面 20/26 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
