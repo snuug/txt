@@ -12,6 +12,8 @@
 
 ## 頁面 6/26 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [26](/content/README-26.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/2019/11/20191113-7768308991130879569.md)
+
 [文字版：2019年11月11日文贵班农谈](/content/2019/11/20191113-3588929521846219666.md)
 
 [文字版：2019年11月10日文贵报平安直播](/content/2019/11/20191112-8738069601493230135.md)
@@ -59,8 +61,6 @@
 [文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/2019/10/20191022-2968214834265730245.md)
 
 [文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
-
-[文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/2019/10/20191021-396418607512158731.md)
 
 
 ## 頁面 6/26 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [26](/content/README-26.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

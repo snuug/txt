@@ -12,6 +12,8 @@
 
 ## 頁面 18/26 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [26](/content/README-26.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
+
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
@@ -59,8 +61,6 @@
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/2018/04/20180426-4217728045032280574.md)
 
 [郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180425-6089618542439587251.md)
-
-[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/2018/04/20180425-1035788071787459036.md)
 
 
 ## 頁面 18/26 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [26](/content/README-26.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

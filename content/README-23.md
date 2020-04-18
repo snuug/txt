@@ -12,6 +12,8 @@
 
 ## 頁面 23/26 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[11月8日文贵twitter再次被封7天后的报平安视频](/content/2018/04/20180418-7262790199483543364.md)
+
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/content/2018/04/20180418-3724438328570964289.md)
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/2018/04/20180418-5547948456904349057.md)
@@ -59,8 +61,6 @@
 [CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/2018/04/20180418-3704285633140806842.md)
 
 [华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
-
-[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
 
 
 ## 頁面 23/26 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
