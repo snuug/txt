@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共文章惹事端，意淫哈薩克斯坦！
-`2020-04-17 10:25 GM30` [轉載自GNews](https://gnews.org/zh-hant/174841/)
+## 【多語言圖文版】4月14日中共病毒疫情要聞快報
+`2020-04-17 10:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/175546/)
 
-**作者：玉米地大姐**
+[4.14-每日要聞-英文版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103511/4.14-%E8%8B%B1%E6%96%87%E7%89%88.pdf)
 
-哈通社4月14日報導，哈薩克斯坦外交部召見中國駐哈薩克斯坦大使張霄。哈方就中國網站搜狐上的一篇文章《“哈薩克斯坦”為何渴望回歸中國？ 》表達了不滿。哈方表示，該文內容與中哈兩國於2019年9月11日簽署的聯合聲明中，提到的全面戰略夥伴關係的精神不符。
+[4.14-每日要聞-芬蘭語Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103545/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Finnish.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16212230/1-148.jpg)
+[4.14-每日要聞-土耳其語Turkish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103827/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-Turkish.pdf)
 
-對於中方回應，報導含糊其辭用“中哈雙方同意在大眾媒體和信息傳播領域加強合作”一筆帶過。哈薩克斯坦還通過其駐華大使館，就這篇文章向中國外交部遞交了外交照會。
+[4.14-每日要聞-德語版German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103655/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E5%BE%B7%E8%AF%AD%E7%89%88german.pdf)
 
-搜狐網上已經找不到該文，好在其他網站有轉載，大致內容是，稱哈薩克自古以來屬於中國領土的一部分。例證是哈國一個小鎮，村民們堅持說自己是李白的後裔，還有一部分人說自己是漢族後裔。這些人一心想回到中國。
+[4.14-每日要聞-韓文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103737/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)
 
-這是一篇典型的意淫文章，作者為中共的一帶一路尋找歷史依據。按理說這麼一篇胡扯、毫無事實依據的爛文，不至於引發外交事件。哈國為何這麼敏感？又是召見大使又是外交照會？
+[4.14-每日要聞-法語版French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103817/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)
 
-“哈薩克斯坦承認，中國在南亞的影響力還是非常大的。在南亞，華裔的數量無論是百多是少，都對當地國家有深遠的影響，他們都身居要職，在政界擔任職務，在政壇上影響力十分深遠。”
+[4.14-每日要聞-日語版Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103811/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf.pdf)
 
-“目前，中國對哈薩克斯坦的援助很大，對哈薩克斯坦的投資超過二百三十億美元。在鋼鐵等重要領域，很多大型項目建設，都對哈薩克斯坦提供援助，還在哈薩克斯坦大力投資。此外，在哈薩克斯坦的一個小鎮上，村民們堅持說自己是李白的後裔，還有一部分人說自己是漢族後裔，躲避戰亂來到這個地方，與當地人民融合，但他們一心想回到中國。”
+[4.14-每日要聞-西班牙語版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103759/4.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
 
-不清楚是不是上述兩段文字引來哈國的不滿，作者這麼寫等於說哈國是中共的傀儡政權。從另一個角度講，這事要是換作平常時期，哈國也許就忍了，畢竟是一帶一路的“受益者“，因為一篇爛文搞出外交事件得不償失。
+[4.14-每日要聞－俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103815/4.14-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
-現在不同了，哈國也是中共病毒的受害者，據哈國衛生部秘書長扎克謝列科娃表示，預計哈國疫情將在最近1-2周達到峰值。請看下面這張哈國疫情走勢圖。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16212317/2-112.jpg)
-
-中共現在聲名狼藉，哪個國家也不想沾上這攤臭狗屎，躲還躲不過來呢，憑空冒出這麼一篇文章，強行把哈國綁上中共戰車，這誰受得了？不抗議等於默認被中共擺佈，將來怎麼參與國際聯合向中共索要疫情賠償。
-
-中共的意淫文章可謂歷史悠久，毛時期什麼“敵人一天一天爛下去，我們一天天好起來”、“一切反動派都是自紙老虎”等等，一直意淫到毛魔頭成了臘肉才有所收斂。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/16212354/3-92.jpg)
-
-炮製這篇文章的作者心態，是盜國賊野心膨脹、欲霸世界的一個縮影，只是運氣不好，沒個眼了見，也不看看現在是什麼時候。揣摩上意、拍馬屁用力過猛惹出外交事件，投機不成反倒惹出外交麻煩來，估計就此被“封筆”再也不能為主子唱讚歌了。
-
-**正是： 
-一篇爛文惹事端， 
-意淫哈斯克斯坦。 
-後裔回歸為哪般？ 
-中共外交成笑談。**
-
-（文章內容僅代表作者觀點）
+[4.14每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17103757/4.14%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBItalian.pdf)
 
 0

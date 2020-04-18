@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 陽之戰三連發(一)我們未有認知極權
-`2020-04-17 18:58 GM06` [轉載自GNews](https://gnews.org/zh-hant/176690/)
+## 郭文貴：感染的人應該是中共設計的用以將病毒專門傳播到西方的手段
+`2020-04-18 00:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/176901/)
 
-作者：陽之戰
+4月17日郭文貴在GTV上發出如下兩條蓋特短文，向美國情報機構發出如下警告：
 
-**認知極權**
+“親愛的情報局長：
 
-中國人不知道自己生活在地獄中，世界人們仍在未清醒中，一個政府，一個黨，可以把一個國家的人，一個民族變成現在這個樣子。歷史上中國常常出現飢荒，飢不擇食，現在這個國家出現的是對金錢的飢荒，飢不擇食，很難想像的，年輕時，房子貸、車子貸、只不過為了面子, 中年時，房子車子是為了孩子，因為沒車、沒房、沒財禮錢、便沒人嫁你，另外他們病不起，患了大病往往資不抵債，往往是三種結局，錢也花光,命也搭了，家也破產，放棄不了家人，沒辦法，就會是這結局，還有一種，患了病了，為了家庭，犧牲自己，拯救全家，還有一種，患了病了，把病治好了，但背上了巨額債務，將會把自己人生的大好光陰的時間用來還債。他們終其一生，為了生存、生活而掙扎奔命，傾盡所有，獻祭一切。
+我認為美國的病毒感染情況可能會更加嚴重。僅是隔離措施無法保障生命！根據許多情報，包括我們的專家提供的情報，在美國和歐洲的病毒有來源。通常，第一次感染病毒後並沒有感覺明顯症狀。三次傳播之後病毒強度會有所遞減。然而在美國，情況剛好相反，病人從最初的感染開始症狀就十分嚴重，特別是那些被無症狀感染者傳染的病人。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/17185620/2-116.jpg)
+我認為感染的人應該是中共設計的用以將病毒專門傳播到西方的手段。他們稱呼這些人為超級傳播者。他們可能在美國，在歐洲，繼續傳播冠狀病毒，且來無影去無踪。他們是最根本的病毒來源。不可能找到解藥。美國和西方世界也會因此付出巨大代價。只有迫使中共公開所有信息，說出整個事實真相，屠殺世界的病毒才能被制止。我希望美國這次會重視情報。不要再出現自殺式的失誤。這才是最根本的解決之道。
 
-這就是一個偉大了的國、厲害了的國、他們每個人都愛著的國，吳花燕24歲因為吃不到好的飯菜，體重不到23公斤，身高135厘米，在醫院臨死之前還在電視鏡頭前表述自己愛國，她說她有一個夢想，是做一位作家寫寫文章。
+以上文字僅代表文貴本人。 ”
 
-世界人們聽說過極權但不知道極權意味著什麼，意味著，土地都是國家的，礦產資源是國家的，房屋沒有產權，雖然這個偉大的國號稱70年產權，但不管多少年，國家要拆，隨時強拆，電是國家的，油是國家的，世界最密集的高速路收費站也是國家的，互聯網是國家的，許多人會說淘寶不是國家的，華為不是國家的，騰訊不是國家的……不是國家的，我想他們的老闆那一位不是可以輕輕鬆鬆的被罷職，被抓捕？只要他們沒做好為國家服務的工作，敢不聽國家，膽敢政治不正確，他們只是一條狗，他們膽戰心驚、顫顫巍巍，他們只是國家的白手套，實際上我不知道國家是誰的？他們說國家是人民的，但人民啥都沒有，國家是誰的？什麼是政治不正確？什麼是國家規定？國家規定可以限制一切，控制一切資源，所以人民要鑽空子，找官系，走後門。有人賣假藥、有人造假貨、有人賣假疫苗、假奶粉、毒食品、都可以不犯法，因為打點好了官系，什麼發明、創造、創新，比不過抄襲、查你、滅你、偷你，對人民來說官系最重要，對當官的來說領導最重要，剛才我說“世界人們聽說過極權，但不知道極權意味著什麼”讀到這裡我相信大家大概知道了一些，但我深信大家對極權的認識還很少，遠遠的不知道它對社會的傷害，對每個人的傷害，對每個家庭的傷害有多嚴重，對每個人身心的深度的迫害和對人性的扭曲有多嚴重，他們的宣傳無恥到了什麼程度？他們的欺騙無恥到了什麼程度？他們對人性的糟踐，不是用惡魔或者魔鬼這個詞就可以拿來比喻的，“惡魔”或者”魔鬼”作為比喻在極權面前顯得太過於天真和單純。
+***附英文原文：***
 
-而且他們在偽裝著、帶著面具的在入侵著世界，他們用貪婪、利益、欺詐、腐敗、…侵蝕著世界的各種國際機構和法律，這是使他們得以活下去的專業技能，掠奪、佔有、盜取、欺詐、腐敗，控制一切，偽裝，這是他們習以為常，得以生存、存在下去的唯一方式。他們對世界的腐蝕入侵是在力求使世界的規則變成上面的方式，他們要變成規則，腐蝕一切，控制一切，這是極權的生存方式。請看下篇《肺炎搖晃著世界，呼叫著“世界你醒醒! ”》
+4月17日【Dear intelligence chief: I think the coronavirus situation in the United States may be worse. Quarantine measures. Can not control live! According to various information. And the information given by our experts. Viruses in the United States and Europe appear to have originated. The symptoms of the virus did not feel after virus 1 infection. And the diminishing effect after three infections occurs. In American patients. On the contrary, the symptoms of the condition are terrible symptoms starting with the initial coronavirus infection. Especially for asymptomatic infected people, I think the infected people, it should be a method designed by CCP to specifically spread to the West. They call them super infectors. This shows that someone may be in the United States. Europe. Continue to release the coronavirus, in short, not found. The fundamental source of the virus. It is impossible to find an antidote. The United States and the Western world will also pay a huge price. Only by letting the CCP surrender all the information and telling the whole thing can the massacre of the world ‘s major viruses be stopped. I hope the United States will be on intelligence this time. Don’t make suicidal mistakes anymore, this is the fundamental solution. This is Wengui’s words that only represent me.】
 
-（文章內容僅代表作者觀點）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003127/WhatsApp-Image-2020-04-18-at-2.25.05-PM.jpeg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003320/WhatsApp-Image-2020-04-18-at-2.25.06-PM.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003346/WhatsApp-Image-2020-04-18-at-2.25.06-PM-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18003432/WhatsApp-Image-2020-04-18-at-2.25.07-PM.jpeg)
+翻譯報導：匿名
 
 0
