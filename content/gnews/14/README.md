@@ -1,18 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新加坡週六新增942確診病例創單日新高外籍勞工宿舍頻發聚集性感染
-`2020-04-19 00:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177916/)
+## 2020年4月17-18日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-19 04:14 GM33` [轉載自GNews](https://gnews.org/zh-hant/178146/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19004212/Picture-1-238.png)圖片來源: [kaolanews](https://www.kaolanews.com/ueditor/php/upload/image/20200225/1582608533423506.jpeg) 
-據路透社報導，新加坡衛生部周六發布最新疫情數據，新增中共冠狀病毒確診人數942例，創單日新高。截至4月18日，新加坡累計確診感染人數5992例，累計死亡人數11例。
+[English0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)
 
-報導指出，目前新增病例多為外籍勞工，週六的感染人數中新加坡公民及永久居民單日確診人數僅14名，本地社區病例持續減少。
+[English\_418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)
 
-近日，新加坡外籍勞工確診人數激增，外籍勞工宿舍頻發聚集性感染給新加坡防疫帶來新的挑戰。為此，新加坡政府加大排查力度，盡全力控制外籍勞工宿舍疫情的繼續擴散。
+[French0417\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)
 
-[原文鏈接](https://www.reuters.com/article/us-health-coronavirus-singapore-idUSKBN2200B7)
+[French\_0418\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)
 
-翻譯報導：HUH
+[german\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)
+
+[German\_0418\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)
+
+[Japanese0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)
+
+[Janpanese\_0418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)
+
+[Russia\_0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)
+
+[Russia\_0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)
+
+[Spanish0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)
+
+[Spanish0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)
 
 0
