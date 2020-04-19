@@ -1,30 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 嘯天、博博士、艾麗接受班農戰斗室訪談意味著什麼
-`2020-04-19 01:14 Diago` [轉載自GNews](https://gnews.org/zh-hant/177957/)
+## 2020年4月17-18日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-19 04:14 GM33` [轉載自GNews](https://gnews.org/zh-hant/178146/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19011148/WhatsApp-Image-2020-04-19-at-1.06.20-PM.jpeg)
-作者：Diago
+[English0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)
 
-為什麼默克爾總理作為二戰戰敗國會與其他戰勝國領導一起參加慶祝反法西斯勝利的慶典？因為德國人民也反法西斯聯盟的一員，因為德國納粹不僅是世界的敵人，也是德國人民的敵人；
+[English\_418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)
 
-為什麼嘯天、博博士和艾麗接受班農戰斗室接受采訪？
+[French0417\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)
 
-因為嘯天、博博士和艾麗與所有中國人民一起與世界人民一起，都在與包括中國人民在內的世界人民一起，共同與全人類的敵人——中國共產黨進行戰鬥！他們用世界能夠聽得懂的話告訴世界——
+[French\_0418\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)
 
-我們都是戰士——We are warriors;
+[german\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)
 
-我們忠於我們的國家——Our allegiances are to our country;
+[German\_0418\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)
 
-長期以來我們看到曾宏、夏業良、郭寶勝之流在自由亞洲、在美國之音侃侃而談，我們以為那就是中國人的代表，我們以為那就是自由的聲音，隨著爆料革命的發起和走向世界，我們知道美國之音不是美國的聲音——VOA is not the voice of America，美國之音是中共的聲音——VOA is the voice of CCP；我們知道曾宏們所說的不是中國人的聲音，他們是中共的走狗——They are the running dogs of CCP。
+[Japanese0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)
 
-嘯天、博士和艾麗接受戰斗室訪談讓我們看到了美國的聲音——America’s voice，讓我們聽到了我們中國人自己的聲音，我們都是脫胎於舊中國人的新中國人，他們用世界能夠聽得懂的語言告訴了世界——我們與他們不一樣，我們不是CCP，他們替我們所有不能用流利英語的中國人向世界出了一口惡氣，是的，我們不但可以說話，而且我們的聲音不可以永遠被壓制；
+[Janpanese\_0418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)
 
-所以我們要衷心感謝班農戰斗室，因為這才是真正的America’s Voice，這個世界不是所有的媒體都可以被收買，這個世界不是所有的聲音都可以永遠被壓制。
+[Russia\_0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)
 
-嘯天、博博士、艾麗發出的聲音就是我們的聲音，這聲音被壓制得太久，我們需要告訴世界，我們不一樣！我們要站在一起，與全人類共同的敵人——CCP戰鬥！
+[Russia\_0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)
 
-（文章內容僅代表作者個人觀點）
+[Spanish0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)
+
+[Spanish0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)
 
 0
