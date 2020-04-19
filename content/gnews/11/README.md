@@ -1,25 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】4月15日中共病毒疫情要聞快報
-`2020-04-18 23:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177841/)
+## 嘯天、博博士、艾麗接受班農戰斗室訪談意味著什麼
+`2020-04-19 01:14 Diago` [轉載自GNews](https://gnews.org/zh-hant/177957/)
 
-[4.15-每日要聞-英語版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231458/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231458/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19011148/WhatsApp-Image-2020-04-19-at-1.06.20-PM.jpeg)
+作者：Diago
 
-[4.15-每日要聞-芬蘭語版-Finnish-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231534/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231534/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish-.pdf)
+為什麼默克爾總理作為二戰戰敗國會與其他戰勝國領導一起參加慶祝反法西斯勝利的慶典？因為德國人民也反法西斯聯盟的一員，因為德國納粹不僅是世界的敵人，也是德國人民的敵人；
 
-[4.15-每日要聞-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231553/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231553/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german-.pdf)
+為什麼嘯天、博博士和艾麗接受班農戰斗室接受采訪？
 
-[4.15-每日要聞-韓文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231853/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231853/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)
+因為嘯天、博博士和艾麗與所有中國人民一起與世界人民一起，都在與包括中國人民在內的世界人民一起，共同與全人類的敵人——中國共產黨進行戰鬥！他們用世界能夠聽得懂的話告訴世界——
 
-[4.15-每日要聞-法語版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233710/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233710/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)
+我們都是戰士——We are warriors;
 
-[4.15-每日要聞-日語版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233730/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233730/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf)
+我們忠於我們的國家——Our allegiances are to our country;
 
-[4.15-每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233728/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233728/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)
+長期以來我們看到曾宏、夏業良、郭寶勝之流在自由亞洲、在美國之音侃侃而談，我們以為那就是中國人的代表，我們以為那就是自由的聲音，隨著爆料革命的發起和走向世界，我們知道美國之音不是美國的聲音——VOA is not the voice of America，美國之音是中共的聲音——VOA is the voice of CCP；我們知道曾宏們所說的不是中國人的聲音，他們是中共的走狗——They are the running dogs of CCP。
 
-[4.15-每日要聞-西班牙語版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233740/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233740/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
+嘯天、博士和艾麗接受戰斗室訪談讓我們看到了美國的聲音——America’s voice，讓我們聽到了我們中國人自己的聲音，我們都是脫胎於舊中國人的新中國人，他們用世界能夠聽得懂的語言告訴了世界——我們與他們不一樣，我們不是CCP，他們替我們所有不能用流利英語的中國人向世界出了一口惡氣，是的，我們不但可以說話，而且我們的聲音不可以永遠被壓制；
 
-[4.15-每日要聞-俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18234448/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18234448/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
+所以我們要衷心感謝班農戰斗室，因為這才是真正的America’s Voice，這個世界不是所有的媒體都可以被收買，這個世界不是所有的聲音都可以永遠被壓制。
+
+嘯天、博博士、艾麗發出的聲音就是我們的聲音，這聲音被壓制得太久，我們需要告訴世界，我們不一樣！我們要站在一起，與全人類共同的敵人——CCP戰鬥！
+
+（文章內容僅代表作者個人觀點）
 
 0

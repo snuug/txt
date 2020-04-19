@@ -1,99 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月18日美國政要推文選譯
-`2020-04-18 23:27 GM65` [轉載自GNews](https://gnews.org/zh-hant/177805/)
+## 班農戰情室126：郭先生連線 這是針對美國的生化戰
+`2020-04-19 00:34 GM09` [轉載自GNews](https://gnews.org/zh-hant/177875/)
 
-> Cut him off now! [https://t.co/kdGybEFeOI](https://t.co/kdGybEFeOI)
-> — Donald J. Trump (@realDonaldTrump) [April 18, 2020](https://twitter.com/realDonaldTrump/status/1251354896651223041?ref_src=twsrc%5Etfw)
+作者：StarWar，椰子哦耶
 
-川普總統：不要讓他再來了！
+## 內容摘要
 
-Charlie Kirk：中共的代理人是怎麼做到能夠一再地參與白宮簡報會的？這位“記者”對總統撒了謊，說他來自台灣，其實他為上海文化廣播影視集團有限公司工作，一個中共的大外宣分支。如果你認為他應該被抓捕並驅逐出境，請轉推。
+– 郭文貴連線，提醒美國這是生化武器
 
-> China wants Sleepy Joe sooo badly. They want all of those billions of dollars that they have been paying to the U.S. back, and much more. Joe is an easy mark, their DREAM CANDIDATE! [https://t.co/vmvCr4SkQq](https://t.co/vmvCr4SkQq)
-> — Donald J. Trump (@realDonaldTrump) [April 18, 2020](https://twitter.com/realDonaldTrump/status/1251589681428520960?ref_src=twsrc%5Etfw)
+-班農連線比爾格茨，分析了CCP病毒來自武漢病毒實驗室的依據
 
-川普總統：中國特別希望Joe（當選）。他們想把付給美國的所有數十億美元再弄回去，還有其它更多。 Joe是個很容易上鉤的人，他們理想的候選人！
+-狼群研究創始人Dan David分享了武漢疫情的真實情況和當地百姓的生活狀況
 
-BDW：…這意味著十一月的大選有關乎我們性命的重要性。如果拜登贏，則美國就輸了。拜登不斷否定中國構成的威脅，加之他的家族與北京的腐敗瓜葛（例如，Hunter在2013年收到的15億美元），這些將他自己置於危險境地。
+## 詳細內容
 
-> Chinese Communist Party is arresting the pro-democracy lawmakers during home quarantine to eliminate any opposition to a full Article 23 implementation. HK’s autonomy is completely lost and China isn’t wasting any time. [#HKPoliceState](https://twitter.com/hashtag/HKPoliceState?src=hash&amp;ref_src=twsrc%5Etfw) [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaMustPay](https://twitter.com/hashtag/ChinaMustPay?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/7PHOzPzc7W](https://t.co/7PHOzPzc7W)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 18, 2020](https://twitter.com/Jkylebass/status/1251389260051210240?ref_src=twsrc%5Etfw)
+班農介紹，這是特輯系列“墜入地獄”的第二集，這個系列是介紹在CCP鐵蹄統治下的中國人民的真實生活。同時向西方聽眾喊話，如果你因為這次疫情丟掉工作，沒有薪水，養老金損失，你的親人或朋友過世……這些都是因為CCP，他們掩蓋疫情的事實，造成了現在的大瘟疫。這個系列主要是向大家介紹中國普通人的真實狀況，因為如果不去了解這些真相，有一天我們可能就會這樣。
 
-卡爾·巴斯先生：正值居家隔離期間，中共抓捕民主派立法委員，以清除反對全面實施第23條的異見人士。香港自治已經喪失殆盡，中國不再耗時間。
+今天特殊嘉賓：郭文貴先生，嘯天，博博士，艾莉女士。這些都是中國人，也是川普總統的支持者，今天是（中國的）老百姓和（美國的）被拋棄的普通人的對話。
 
-香港民主委員會（HKDC）：我們對香港抓捕民主派領導的做法感到極為憤慨——黎智英，李柱銘，李卓人以及其他人。這不僅僅是政治迫害，在疫情期間將他們帶走（李柱銘，81歲，黎智英，71歲）直接對他們的生命造成威脅。我們會盡可能更新報導。
+班農特別介紹郭先生，是他見過的最大的謊言戳穿者，這個星期美國之音鬧出的所有事情，Amanda（VOA主管)這個對於中共來說“有用的白痴”在2017年就對郭先生進行了採訪，郭先生面對強權說了真話，在直播中揭露海航是洗錢、干涉西方政治的中共的工具，特別是副總理王岐山，賄賂西方。它是由美國註冊一個兩人控制的非營利組織控制。後來我們發現郭先生說的都是真的。
 
-> China predictably spewing BS propaganda with its tabloids just before it smacks down HK with a full Article 23 implementation. HK to become another failed city within China 27 years earlier than the Sino-British Joint Declaration stipulated. China reneging on another signed deal. [https://t.co/jx2BPT4xZL](https://t.co/jx2BPT4xZL)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 18, 2020](https://twitter.com/Jkylebass/status/1251523036571983872?ref_src=twsrc%5Etfw)
+包括我們做大瘟疫的節目，也是我在1月中去紐約，和郭先生一起辦春節的節目，他們談論的都是武漢疫情的事。郭先生事實上第一次直播武漢疫情是去年12月31日，同一天台灣的CDC通知的WHO武漢的病毒人傳人的事實。所以Miles（郭先生），感謝你來參加節目“墜入地獄——習主席對武漢的死亡宣判。”
 
-卡爾·巴斯先生：就在中國要通過全面實施第23條擊垮香港之前，它不出所料地利用各種小報大量散佈胡扯的大外宣。比《中英聯合聲明》規定的時間提前27年，香港已經成了中國境內另一個敗落的城市。中國不願再簽署另一項協議。
+郭先生說：“早上好美國，史蒂夫還有大家，非常榮幸參加戰斗室的節目。衷心感謝你給美國聽眾詳細的真實的信息。我非常非常擔心美國現在在疫情中的處境，非常的危險。美國和世界正處於災難當中，很多政府採用隔離，讓人呆在家，這解決不了大瘟疫。我們需要做的事情，第一重要的就是要求CCP回答質疑，和美國分享所有的關於疫情病毒的信息。只有這樣我們才能找到解藥，知道真相，解決現在的大災難。而且我不認為美國掌握了所有CCP的情報和信息，這是我的擔憂。”
 
-《環球時報》：繼最近媒體報導發現美國通過派遣學者滲透到香港的人文教育和高等教育，煽動反大陸情緒並引發騷亂，（所以）國家安全法例的通過備受期待。
+“（班農）先生你知道我們去年12月31日直播討論這個疫情，但是在那15天前就和你討論過。（今年）1月份，我直播說這個病毒是PLA的人造病毒，這是生化武器，人傳人。之後我每天和你說。1月23日法制基金董事會路德也在說。當時直播我就說這很危險，會傳到美國。很壞的情況是，幾小時後習近平就封鎖了湖北。美國一周後才禁止通航，這有很大幫助，但是壞情況還是發生了。後來我們就說紐約情況會很糟，這也不幸發生了。因為我們有內部的機密情報，這些是我們在PLA和CCP內部高層的情報，這不是傳聞。爆料革命說的都發生了，還有1月15日路德youtube，包括今天來你節目的人都在說，這是生化武器。現在我們知道很多事情，從2016年開始，CCP的PLA就有講話，我們有力量，用很少的代價就可以擊垮美國。我們準備好了生化戰爭，打敗美國。2016年CCTV第七套軍事台。”
 
-> [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw)
->  
-> China cost the USA trillions of dollars in damages and wrecked our economy.
->  
-> Now, they must pay the price.
->  
-> I introduced the Stop COVID-19 Act to allow Americans to sue Communist China and seek justice in US courts. [@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) [@Lancegooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 18, 2020](https://twitter.com/MarshaBlackburn/status/1251631561876869120?ref_src=twsrc%5Etfw)
+“還有，在武漢，在PLA，在CCP中央，有很多人給我們非常多的情報，真實的情況。所以這是我們為什麼告訴美國，這是生化武器，非常危險。我非常震驚，看到現在還有人說這是實驗室的，但是洩漏出來的。這不是，這是生化武器，他們要用來打敗美國，讓美國向習近平、王岐山叩頭。我們不是說大話，我們有內部的人給我們情報，我們內部的高層人員給了我們2000張照片，2000張。我們所有的談話信息都是從這中間來的。先生，你看過這個材料。1月12日NIH的基因庫派了兩個人去武漢做病毒的基因排序，1月14日他們收回更改，1月17日他們又更改，三次！美國政府CIA和FBI很容易，可以去NIH的基因庫網站上查到這個。三次是不一樣的。他們為什麼要反復修改？”（班農打斷，進入廣告）
 
-參議員Marsha Blackburn：中國給美國造成了數万億美元的損失，並破壞了我們的經濟。現在，他們必須付出代價。我發起了《制止COVID-19法案》，讓美國人在美國的法庭起訴中共國尋求正義。
+班農：我們一開始就說，CCP一開始就隱瞞信息，還有WHO也隱瞞人傳人的信息。等一下比爾·格茨先生要講武漢P4實驗室的情況，披露真實情況的責任完全在他們。還有Josh之前的報導提到的北京和武漢的美國領事館的秘密電報，提到過武漢實驗室可能存在的危險。為什麼當時奧巴馬政府沒有去關注這件事。還有所有美國的親供者，這些信息都會曝光，這會早於在武漢對CCP的“紐倫堡式”大審判。 Miles講的是在另一個層次的問題，他說美國人太天真了，這是CCP的武器計劃。情報部門知道中共有生化武器項目，圈內的人都知道，地球上唯一一個有這種計劃的國家。這是公開的秘密。
 
-> These latest arrests only underscore the point: [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) has lost a sufficient level of freedom & autonomy to be treated differently from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> I urge [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) to suspend [#HK](https://twitter.com/hashtag/HK?src=hash&amp;ref_src=twsrc%5Etfw)’s “Special Status” via Executive Order, per 22 USC §5722.
-> 
-> Starve [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw) of money. [https://t.co/nJY6CCworJ](https://t.co/nJY6CCworJ)
-> — Ky Olbert 🇺🇸 (@realKyleOlbert) [April 18, 2020](https://twitter.com/realKyleOlbert/status/1251451607675527168?ref_src=twsrc%5Etfw)
+班農再次強調，12月31日Miles就提醒大家武漢的這個病毒，人傳人。台灣也給WHO同樣的信息。我們應該認識到，我們真正的敵人，人類的敵人是CCP。 Miles，他們（CCP）如果12月31日就知道了真相，為什麼要掩蓋信息，不告訴世界，不去解救？
 
-比爾·格茨先生轉推：
+郭先生說：“謝謝，很好的問題。大家知道我們中國內部出來的，是CCP在外面的頭號敵人。因為我知道中央常委的秘密，他們擔心我告訴美國，告訴世界。三年前在DC我告訴世界，美國和世界要準備好，黑暗即將來臨。我知道他們內部有計劃，3F計劃。搞弱美國，搞垮美國，搞死美國。看看這三年發生的，他們的一帶一路，世界到處建軍事基地，見了100多個，還有針對美國的遠程導彈。這是為什麼這次武漢病毒，他們買了所有口罩，我和你有一個觀點不同，他們不是擔心感染。他們要用這個CCP病毒，打垮美國。他們害怕你們有口罩，所以在大家知道人傳人之前，買了所有東西（防護品），放在中國。他們想讓美國人死去，不想讓你們解決疫情。”
 
-Ky Olbert：近期的抓捕行動只不過強調了一點：香港已經失去了相當程度的、令其與中國區別對待的自由和自治。我勸總統根據美國法典第22卷第5722章（22 USC §5722），通過行政令中止香港的“特殊地位”。讓北京資金枯竭。
+“但是我非常震驚，如果CCP買了所有防護用品，美國政府怎麼沒有調查是誰買了這些口罩？這不是我買的，不是你買的，是PLA情報部門買的！他們怎麼知道的？2019年10月到12月，他們買了所有N95口罩，PPE，放在中國PLA控制區域，不是普通人去的區域。為什麼沒有人問這個問題？他們（CCP）一直說，病毒是天然的，蝙蝠來的；即便如此，為什麼PLA和CCP去買所有的口罩和防護用品？他們要殺害美國人，二次謀殺。這才是真相。所以12月31日我們要直播，告訴你，這是戰爭。你記得嗎，在中美貿易協議之前，他們說給我三個月，給我半年。他們只想拖延，準備好這個生化武器。把你的經濟打垮，實力打垮，沒有人有能力和他們談貿易協議。他們是有計劃的，現在都發生了。”
 
-Hong Kong Free Press：據黨派消息，8名香港民主人士在近期的警方圍捕中被捕。
+“現在，一個月以前，更危險的事情。（這個信息）我負全部責任。他們成為不帶症狀的'超級傳播者'。我不認為這是天然的，這是CCP控制的，在人身上放了病毒，去紐約，洛杉磯，他們想再次傳播病毒。他們要保持美國的高傳播，讓美國經濟崩潰。他們要讓美國向習和王叩頭，聽他們的。美國要知道真相。沒有辦法能解決美國的疫情，口罩和PPE解決不了。只有知道真相，找到解藥，這才能解決目前的災難。美國，現在甚至比一個月以前更危險，史蒂夫，記住我說的，比一個月之前更危險。”
 
-> China falsely telling Arab world U.S. behind coronavirus – [https://t.co/RV1HNpxVht](https://t.co/RV1HNpxVht) – [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw)
-> — Rowan Scarborough (@RoScarborough) [April 18, 2020](https://twitter.com/RoScarborough/status/1251604237206913025?ref_src=twsrc%5Etfw)
+班農感謝郭先生的信息，感謝郭先生參加節目。
 
-比爾·格茨先生轉推：
+班農表示，之前發生的事實都驗證了郭文貴所談過的大事件的真實性，如華為和海航。台灣在2019年12月31日就告知WHO武漢有SARS類的人傳人病毒，當天郭先生也在直播上提到同樣的事情。如果腐敗的WHO當時就做出反應，會拯救成千上萬的人命。中共和WHO手上沾滿了鮮血，真相一定會被揭露。
 
-Rowan Scarborough：中國錯誤地告訴阿拉伯世界美國是冠狀病毒背後的人—（文章來源：《華盛頓時報》）
+班農表示，比爾格茨今年1月在第一次參加作戰室就提到中共有責任公開武漢的疾病控制中心實驗室，P2和P4病毒實驗的信息。郭文貴稱這些實驗室的作用根本不是為了研究SARS的疫苗，而是中共生化武器項目的一部分。中共和解放軍幾十年撒謊成性，在情報界已是公開的事實。格茨先生表示贊同。在年度國務院合規報告裡的未分類執行摘要中提到，中國在1984年簽署了《生物武器公約》，但情報部門卻發現中國從未放棄開展生物武器的計劃。這些武漢的實驗室不僅進行民用的疫苗研究，還隱秘地開展生物武器項目。這在未來對中共向世界傳播疫情的調查中都需要報導出來。在2020年1月26日，格茨先生首次報導瞭如今在世界肆虐的CCP病毒來自武漢的實驗室，而後被無情的攻擊，還被Facebook定性成假新聞。格茨當時的看法是，我們必須調查這些病毒實驗室。問題是美國科學協會很多頂尖的病毒專家與中共科學家同流合污。中共在過去發表的論文裡揭示過他們在進行非常危險的病毒研究，包括製造新型蝙蝠病毒。這些研究應被公之於眾。今年3月，中共嚴厲禁止發表任何關於新冠病毒起因的學術論文，因為最新的論文揭露中共秘密研究致命的蝙蝠病原體。格茨提到，川普昨天第一次就病毒發表評論，稱病毒一定是來自蝙蝠，但武漢沒有這種蝙蝠，這就證明它一定來自實驗室。格茨指出，情報分析裡有兩種說法，都指向病毒來自實驗室。一種說法是病毒首先感染了在海鮮市場裡出售的某種中間宿主動物再傳染給人，造成擴散。但真實情況是，在格茨先生幾週前的報導裡提到，一位博主爆料，武漢病毒實驗室的一位研究員在實驗室意外感染病毒致死，病毒在其葬禮擴散，造成爆發。他們認定此人為零號病人，但實驗室出面否認了這個說法。而這位研究員的照片卻從武漢病毒實驗室的網站上神秘消失。 Jack Maxey補充，《科學美國人》雜誌在今年3月11日引述，去年12月31日石正立被請到武漢中心醫院去鑑定新發現的新型冠狀病毒時，她的第一反應是“天吶，不會來自我們實驗室吧”？班農稱，ABC有報導稱國家醫學情報部門在去年12月就有對病毒來源的評估報告。班農就此提問格茨的看法。格茨認為這些報告這週還沒有上新聞是因為消息來源的問題。我們需要官方的公開聲明，比如國會發布一些關鍵情報信息。格茨認為11月的時間線說法是虛假的。去年10月在武漢召開了世界軍人運動會，中共試圖將武漢疫情開始的時間點從12月轉為11月來嫁禍美國軍方以掩蓋他們對全人類犯下的罪行。格茨最後提到，美國主流媒體與中共大外宣狼狽為奸，把病毒來源先說成海鮮市場，再嫁禍美國政府，現在又說要進行科學的調查。中共從來就沒有進行過任何科學調查，只是在掩蓋真相。有消息稱美國政府通知紐約時報來報導病毒來源，但紐約時報還未行動。如果已收到情報他們就應該報導，不然他們就是還想繼續與中共勾結，幻想著把辦公室遷去中國。
 
-> Arrests of pro-democracy activists in Hong Kong are deeply concerning – politicized law enforcement is inconsistent with universal values of freedom of expression, association, and peaceful assembly.
-> — Secretary Pompeo (@SecPompeo) [April 18, 2020](https://twitter.com/SecPompeo/status/1251622578478886912?ref_src=twsrc%5Etfw)
+班農先生提到，華南早報最近的一篇文章打著民族主義旗號煽動中國人民仇外，稱美國要對中國人開戰。他重申，這就是班農作戰室的意義，向中國百姓傳播真相，美國和中國人民站在一起，為深受中共流氓壓迫的中國普通民眾的自由而戰。就在4小時前，15名香港的自由鬥士領袖在香港被中共逮捕。中共對世界的超限戰早已全面開始。
 
-美國國務卿蓬佩奧：對香港民主人士的抓捕行動令人深感擔憂——政治化的執法行為與言論自由、結社自由和和平集會自由的普世價值不符。
-
-> Even in the midst of a pandemic Communist China continues to target pro-democracy leaders in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> This is unacceptable. The people of [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) are simply fighting for their basic human rights! [https://t.co/cNF3IxTvvk](https://t.co/cNF3IxTvvk)
-> — Rick Scott (@SenRickScott) [April 18, 2020](https://twitter.com/SenRickScott/status/1251513436627972097?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：即使在疫情期間，中共國仍不斷地將矛頭指向香港民主人士。這讓人無法接受。香港人民只是在為他們的基本人權抗爭！
-
-> Think about this for a second. This virus originated in Communist China and the Chinese Communist Party’s lies helped it spread around the world. 
-> 
-> Now we’re using drones made by a Chinese company and backed by the CCP to enforce social distancing. This is crazy! [https://t.co/pJDGoviRis](https://t.co/pJDGoviRis)
-> — Rick Scott (@SenRickScott) [April 18, 2020](https://twitter.com/SenRickScott/status/1251588905348075520?ref_src=twsrc%5Etfw)
-
-參議員Rick Scott：想想吧。這個病毒來源於中共國，而且中共的謊言使得它在全世界擴散。現在我們要用中國公司生產、中共支持的無人機來強化保持社交距離。這太瘋狂了！
-
-Elizabeth Harrington（共和黨全國委員會發言人）：“大疆科技公司捐贈的無人機分佈到了22個州的43個機構，都用於加強保持社交距離。”美國用中國的無人機來監控和教育美國人（防範）一種由中共國導致的病毒。哦對了，大疆科技公司“可能把數據傳給中國”。 “美國官員說，無人機製造商大疆科技可能將數據發給中國。”我們認為大疆科技正在“向中國政府提供美國關鍵基礎設施和執法數據。”而現在，各地執法機構正在用他們應對中共病毒。 （文章來源：《紐約時報》）
-
-> Cheatin’ CCP [https://t.co/ylWz6zgpIk](https://t.co/ylWz6zgpIk)
-> — General Spalding (@robert\_spalding) [April 18, 2020](https://twitter.com/robert_spalding/status/1251543474140217345?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：騙人的中共
-
-《今日美國》報：越南說，中國在產品上貼假標籤，假冒越南產，來逃避美國關稅
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): The Chinese Government needs to come clean. It needs to be accountable. It needs to explain what happened and why it is the case that that information wasn’t made more broadly available. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ixN3lSbrnF](https://t.co/ixN3lSbrnF)
-> — Department of State (@StateDept) [April 18, 2020](https://twitter.com/StateDept/status/1251659209256599556?ref_src=twsrc%5Etfw)
-
-美國國務院：國務卿蓬佩奧：中國政府必須說出全部真相。它需要擔負起責任。它需要解釋發生了什麽，並且為什麽那些信息沒有完全公開。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18232704/image0.png-5.jpeg)
+最後班農連線了研究中國企業的狼群研究所創始人和《中國騙局》的支持者Dan David，討論了武漢疫情現狀。 Dan表示，武漢情況有所好轉，但在大爆發時，武漢猶如人間煉獄。人們受被逮捕的威脅而不能離開家。中共在武漢死亡人數的報導上完全造假。保守的死亡數字是4萬到5萬，但當地人認為更可能是8萬。焚屍爐24小時作業，而骨灰盒在外面堆積如山，因為室內已沒有任何存放空間。很多全家感染，全家人都沒了。人們在指定的取菜的時間以外不能外出。社區給居民送食品，而人們只能吃到被分到的食物。在藥物方面，Dan的秘密調查團隊發現，人們除了得到不知是否有效的傳統中藥外，得不到抗生素或病毒藥物的治療。更沒有人聽說過使用過羥氯喹。如果感染，你只有死路一條。
+ 
 0
