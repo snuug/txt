@@ -1,60 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統美國時間2020年4月17日已經明確表示病毒就來源於中國
-`2020-04-18 14:28 Diago` [轉載自GNews](https://gnews.org/zh-hant/177429/)
+## 中共承認中共冠狀病毒數據造假嗎？訂正又意欲何為呢？
+`2020-04-18 19:20 GM30` [轉載自GNews](https://gnews.org/zh-hant/177617/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18142126/index.jpg)
-作者：Diago
+**作者：麓山之蜂**
 
-在路德的轉推的[喜馬拉雅工作站的推特](https://twitter.com/GlobalHimalaya/status/1251464238650077186)中提到：
+中共國武漢市中共冠狀病毒疫情防控指揮部於2020年4月17日，舉行了對中共冠狀病毒確診病例數、確診病例死亡數訂正情況答記者問，中共國的各個喉舌媒體也紛紛對中共這種可恥行為進行了符合CCP利益與政治宣傳的正面報導。
 
-“4/17最新白宮發佈會，川普語出驚人： 「對於中國，我很不高興」”I’M NOT HAPPY”川普說，擁有全世界最多[#冠狀病毒](https://twitter.com/hashtag/冠狀病毒?src=hashtag_click)死亡人數的國家，一定是中國他還表示病毒來自蝙蝠一說，疑點重重但可以肯定的是，病毒來自中國答記者問時，川普意味深長地說： 因為某國的原因，184個國家正遭受病毒災難，悲哀。 ”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18142240/WhatsApp-Image-2020-04-19-at-2.20.19-AM.jpeg)
-直覺告訴我這是個重磅，於是習慣性去看一下[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020](https://factba.se/transcript/donald-trump-press-conference-coronavirus-briefing-april-17-2020)記者招待會的英文紀要，該紀要內容有部分缺失，現以加黑部分標明，以區別於引用內容：
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18191041/1-158.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18191051/2-121.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18191059/3-99.jpg)
 
-Q:China now says its coronavirus death toll in Wuhan is 50 percent higher.
 
-（中文大意：中國現在說它的武漢冠狀病毒死亡人數要高出百分之五十）
+首先讓我們來了解一下，訂正的詳細解釋。訂正謂校訂、改正文字或計算中的謬誤。
 
-A：Yep.
+從中共黨媒央視新聞發表的報導中可以找到許多荒繆的觀點，而這些觀點、意見與中共冠狀病毒在湖北武漢出現初期，中共各級政府的發言完全是前後矛盾，用牛頭不對馬嘴來形容都是只有過之而無不及。以下是對這次答記者問的解讀：
 
-（是的）
+“中共冠狀病毒在我國發生的傳播速度最快、感染範圍最廣、防控難度最大的一次重大突發衛生事件”。大家是否還記得2020年1月8日，到武漢的高級專家王廣發說中共冠狀病毒**不會人傳人、可防可控**呢？大家是否還記得以李文亮醫生為代表的武漢中共冠狀病毒吹哨“8君子”呢？當初這8位醫生對中共冠狀病毒的情況通過微信群等途徑告知身邊人的時候，充當中共打手的警察卻對這8位醫生進行了訓誡。如果不是由於輿論壓力的話，這8位醫生可能都會面臨牢獄之災。從前後中共的行為與官方發言，都不免可以得出一個結論：中共在中共冠狀病毒出現初期存在刻意隱瞞中共病毒疫情，刻意讓中共冠狀病毒進行大範圍的傳播與感染。
 
-Q:It went up to about 4,000. Does that sound like a credible number to you?
+“武漢市作為全國疫情防控決戰決勝……採取最全面、最嚴格、最徹底的防控措施，目前疫情傳播已基本阻斷，離漢通道已解除管控，為全面詳細開展疫情數據核查訂正工作創造了有利條件”。這段話中的形容詞真的是被土共給糟蹋了，替這些優美的詞彙感到悲傷。決勝：目前中共國的中共冠狀病毒疫情得到了控制嗎？中共大外宣一直強調：實踐是檢驗真理的唯一標準。讓中南坑7常委再加一個王73，你們不帶口罩、不搞表演式視察，去武漢、黃岡、廣州、黑龍江這幾個地方的基層醫院去轉轉啦；最有力度的證明就是，立馬召開兩會，從中共中央到地方，各級兩會立馬召開。
 
-（中文大意：中方的數字上升到大約4,000。 對您來說，這聽起來像一個可信的數字嗎？）
+“市疫情防控指揮部高度重視新冠肺炎確診病例數、確診病例死亡數的訂正工作，本著對歷史負責、對人民負責、對逝者負責的原則，堅持實事求是，主動進行訂正”。大家是否還記得一個流行的網絡詞語：喪事喜辦；用中共冠狀病毒要了您的命後，還要讓您感恩CCP。這是中共宣傳的最核心目的，而在這裡也體現的淋漓盡致。
 
-A:Well, you know, when I listen to the press every night saying we have the most, we don’t have the most in the world — deaths. The most in the world has to be China. It’s a massive country. It’s gone through a tremendous problem with this. A tremendous problem. And they must have the most. So, today, I saw they announced that, essentially, they’re doubling up on the numbers. And that’s only in Wuhan; they’re not talking about outside of Wuhan. So it is what it is, Steve. It is what it is. What a sad — what a sad state of affairs.
+“疫情早期，由於收治能力不足、少數醫療機構未能及時與疾病預防控制信息系統對接，醫院超負荷運轉，醫務人員忙於救治，客觀上存在遲報、漏報、誤報現象”。這明顯可以看出CCP在為數據造假、瞞報、漏報找替罪羊，不讓真實數據公佈出來，沒有中共高層的命令，請問哪一個醫院的醫務人員敢這麼做呢？但是土共通過偷換概念，輕輕鬆松甩鍋給基層醫務人員。如果國際社會對中共國瞞報、漏報以及數據造假進行追責的時候，到時候中南坑就把基層醫務人員拿出來當作擋箭牌，這就是典型的司馬昭之心路人皆知。
 
-（中文大意：哦，你知道，當我每天晚上聽新聞界說我們有最多時，我們卻沒有擁有世界上最多的-死亡。 世界上最多死亡的國家一定是中國。 這是一個龐大的國家，它因此經歷了一個巨大的問題。 一個巨大的問題。 他們一定是死亡最多的國家。 因此，今天，我看到他們宣布，從本質上講，他們的死亡人數增加了一倍。 而那還只是在武漢；武漢之外的數字不在他們公佈之列。因此，情況就是這樣，史蒂夫，情況就是這樣——一個多麼可悲的國家事件。
+“根據《中華人民共和國傳染病防治法》第三十八條第四款“公佈傳染病疫情信息應當及時、準確”，……《人口死亡信息登記管理規範（試行）》第十四條“醫療衛生機構應當建立數據訂正制度”、第十五條“醫療衛生機構應當建立數據比對校核與補報製度”等規定，須對全市新冠肺炎確診病例數、確診病例死亡數予以訂正”。這就是中共最厲害之處，CCP將自己的造假合法化、合理化，給所有看這個報導的讀者製造一個假象：造假有理、造假有法可依！
 
-Q:The investigation into whether the virus escaped from this lab in Wuhan, how active is that? And when do expect to hear [inaudible]?
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18191301/4-72.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18191316/5-31.png)
 
-（中文大意：關於病毒是否從武漢實驗室洩漏的調查，進展如何？ 結果什麼時候可以公佈？）
 
-A:Well, we’re looking at that. A lot of people are looking at it. It seems to make sense. They talk about a certain kind of bat, but that bat wasn’t in that area. If you can believe this , that’s what they’re down to now, is bats. But that bat is not in that area. That bat wasn’t sold at that wet zone. It wasn’t sold there. That bat is 40 miles away. So a lot of strange things are happening, but there is a lot of investigation going on and we’re going to find out. All I can say is, wherever it came from — it came from China — in whatever form, 184 countries now are suffering because of it. And it’s too bad, isn’t it? And it could have been solved very easily.
+土共舉辦這麼一次十分滑稽的答記者問，對武漢中共冠狀病毒感染數據的訂正又意欲何為呢？筆者認為主要有以下幾點：
 
-（中文大意：哦，我們正在調查。很多人在調查。（現有的調查）似乎是有道理的。他們（中國）談論的是某種蝙蝠，但是那種蝙蝠不在那個區域。 如果您能相信這一點，那就是他們到目前為止所面臨的就是蝙蝠。但是那種蝙蝠不在那個區域，那種蝙蝠不在海鮮市場賣，那裡沒有賣這種蝙蝠的。那種蝙蝠在40英里外。 因此，發生了很多奇怪的事情，但是正在進行大量調查，我們將找出答案。 我只能說，病毒來自哪裡？-來自中國；病毒是什麼形式？-現在有184個國家正因此而受遭受苦難。 而且太糟糕了，不是嗎？ 而且它本可以很容易地解決。）
+1. 、中共看到其他國家的中共冠狀病毒感染人數在短時內呈現指數式增長，而中共給出的數據都是看似漂亮，其實與真實數據變化相距甚遠，為了向公眾展示一個中共數據的可信的假象，在作假實在無法進行下去的情況下，進行了一次滑稽的、可笑的數據修改。
+2. 、為隱瞞真實數據、瞞報、漏報找理由、找法律依據，對法律適應性偷換概念，從而營造一種輕鬆的、情有可原的輿論氛圍。這更加突出了中共在中共冠狀病毒數據上的造假是有理可說的、有法可依的。
+3. 、變相的告訴牆內的老百姓，中共是多麼多麼重視人民的生命的，從而營造一種偉光正的輿論氛圍，消除老百姓尋找病毒真相的追尋。
+4. 、為國際社會揭露中共這種造假行為找墊背的，中南坑中的人心裡十分清楚，國際調查團隊遲早要進來調查，而這個造假的鍋也是遲早要被掀開的。為了推卸責任，找背鍋俠。從中共喉舌媒體的報導中就可以看得十分清晰，背鍋俠就是基層的醫務人員。
 
-**I want to see what’s happening with China ,I want to see how they are doing on it. Are they fulfilling the deal? The transaction ?We have lots of discussions going on with China ,let me just put it this way , I am NOT HAPPY . OK ? I AM NOT HAPPY .When I spoke to them ,and this could have been shut down a long time ago .They knew it ,we are all in the situation that was caused that should have been solved long ago ,probably very easily. Look ,it is a tough enemy ,but probably very easily ,a certain country did what they have done ,**
 
-**（中文大意：我想看看中國正在發生什麼事情，我想看看他們正在做什麼，他們正在履行協議嗎？（他們正在履行達成的）交易嗎？我們正在與中國進行很多討論，這樣說吧，我不悅悅。明白嗎？我不悅悅。我跟他們談過，這本該很久之前就關閉的。他們知道，我們都面臨同樣的形勢，而這本該很久之前就解決的。你看，這是一個強敵，但可能很容易，某些國家做了他們本該做的）**
+……
 
-When it was just starting, it could have been solved really very easily.
+其實從這個報導中就可以十分清晰地看出，中共已經深陷塔西佗陷阱，可以說已經到了十八層地獄的第十七層半，完全無法自拔。中共的邪惡已經徹底暴露出來，如果還讓這種邪惡繼續的話，那人類還會有明天嗎？
 
-（中文大意：當病毒剛剛開始出現的時候，它本應該很容易被解決的。）
-
-關於這一段刪除的紀要內容在視頻的[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020時間點：1:22:44](https://youtu.be/Bx08ic673Vo?t=4964)至[Press Conference: Donald Trump Holds the Daily Coronavirus Pandemic Briefing – April 17, 2020時間點1:24:19](https://youtu.be/Bx08ic673Vo?t=5059)部分，在這部分的視頻中關於川普總統不悅悅的那一段也去掉了，這是為什麼呢？莫非美國也有宣傳部？這不在本文討論之列。
-
-我們重點看一下川普總統在記者會中已經確認的內容——關於病毒來源的問題，它就來源於中國。 “ **All I can say is, wherever it came from — it came from China。** ”。
-
-對於來源於中國的病毒，他們本可以很容易就解決的，但是到今天變成了這個樣子，而且由於他們誤導信息，他們應該是世界上死亡人數最多的國家，他們把這起事件變成了一起他們的國難！由於他們誤導信息，世界上184個國家都因此而遭受苦難！ ；
-
-川普總統正在看著中國正在發生的事情和中共正在做得事情，川普總統很不悅悅！
-
-中共正在做得事情有沒有履行貿易協議和中美之間已經達成的交易嗎？川普總統正在看著他們！下一步會不會懲罰性關稅？會不會雷霆萬鈞？我也不知道，但是川普總統不悅悅！
-
-（文章內容僅代表作者個人觀點）
+（文章內容僅代表作者觀點）
 
 0

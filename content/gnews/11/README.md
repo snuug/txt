@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “一帶一路”間接導致世衛組織蛻變為中共病毒的幫兇
-`2020-04-18 16:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177485/)
+## 【多語言圖文版】4月15日中共病毒疫情要聞快報
+`2020-04-18 23:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/177841/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18163533/WHOTWO-2.jpg)
-華盛頓時報4月17日報導，世界衛生組織有可能在這場危及世界的重大瘟疫中起到了一些負面作用，引起了人們的普通擔憂。
+[4.15-每日要聞-英語版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231458/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231458/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
 
-世衛總幹事譚塞德先生是一名微生物學家，曾先後擔任埃塞俄比亞政府擔任衛生部長和外交部長。譚塞德在2017年5月戰勝了前法國衛生部長等5位候選人，成為來自非洲的第一位世界衛生組織總幹事。他上任的第一件事就是訪問北京，建立世界衛生組織與中國的“戰略夥伴關係”。 2017年8月18日至19日，當選世衛組織總幹事不久的譚德賽即率領世衛代表團到北京參加”一帶一路”會議。
+[4.15-每日要聞-芬蘭語版-Finnish-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231534/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231534/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish-.pdf)
 
-“一帶一路”是中共力推的國際戰略項目，旨在以經濟合作與投資為幌子，以金元賄賂並對腐敗政客投其所好為手段，達到其對世界經濟格局乃至政治格局進行隱形操控的目的。在譚德賽的影響下，中國利用’一帶一路’的名義，向埃國註入大量資金進行基建，並大量行賄埃塞俄比亞的政府官員，成為了埃塞俄比亞的最大債權國，債務金額高達150億美元。埃塞俄比亞最重要的工程，如復興大壩、亞吉鐵路都被中共牢牢掌握，中共政權也對譚德賽先生的仕途發展寄予厚望。
+[4.15-每日要聞-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231553/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231553/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-german-.pdf)
 
-譚得賽在這次中共新冠病毒大流行中的表現沒有讓中共政權失望。 2020年1月22日，世界衛生組織召開了緊急會議，會後，譚德塞宣布暫不定義疫情為世界突發公共衛生事件。在之後1月27日的報告中，仍未宣布中國疫情已形成全球緊急狀態。對於中國政府來說，譚德塞是讓人放心滿意的，他從不批評中國任何做法，大部分都是感謝中共政府分享疫情信息，讚賞中共政府的疫情防控措施。
+[4.15-每日要聞-韓文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231853/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18231853/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E8%81%9E-%E9%9F%93%E6%96%87%E7%89%88-Korean.pdf)
 
-很明顯，世衛組織沒有即時公佈真實信息以起到預警作用造成了中共病毒肆虐全球，尤其是總幹事譚德賽，不惜犧牲全世界人民健康和生命，而向中共示好獻媚。
+[4.15-每日要聞-法語版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233710/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233710/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-French.pdf)
 
-參議院情報特別委員會(Select Committee on Intelligence)成員科頓指責中共政府和世衛組織總幹事譚德賽掩蓋事實並相互包庇的行為，指責譚德賽是中共的”傀儡”，直接採納了中共1月份對冠狀病毒的虛假評估，比如說沒有發現病毒在人與人之間傳播，而事實上它正在傳播。譚德賽還呼籲各國不要對中國進行旅遊和貿易的限制，直接造成了中共新冠病毒在全球範圍內的傳播。
+[4.15-每日要聞-日語版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233730/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233730/4.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-Japanese.pdf)
 
-目前，川普總統已經下令切斷了世衛組織的資金，並啟動調查世衛組織從2019年12月至今，對在武漢發生的疫情的處理方式，病毒又是通過何種渠道傳播到了美國和歐洲的。
+[4.15-每日要聞-意大利語版-Italian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233728/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233728/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BBitalian.pdf)
 
-評論：
+[4.15-每日要聞-西班牙語版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233740/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18233740/4.15%E6%AF%8F%E6%97%A5%E8%A6%81%E9%BB%9E-%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AA%9E-Spanish.pdf)
 
-目前的世界衛生組織在譚德賽的領導下，已經被證明無法履行其基本指責和作用。在中國事實上已經成為疫區，世衛組織也在1月30日宣布中國疫情成為國際關注的突發公共衛生事件後，譚德塞卻建議各國不要對中國的旅行和貿易進行限制。另外，在1月30日世界衛生組織舉行的緊急會議中，美國、歐盟、日本、加拿大等重要國家，曾要求將台灣納入國際防疫資訊體系，也遭到了世界衛生組織的反對；台灣防疫專家提出的各項建議，也被世界衛生組織統統拒絕。作為世衛組織總幹事，譚德塞一直在讚揚中共政府的各種舉措，應該是考慮到了政治、外交和經濟等因素，卻唯獨沒有考慮到世界人民的健康和安全。
-
-川普總統已經切斷了對世衛組織的資金支持，但他同時也表示，美國願意重新考慮這一問題，並允許美國民間的資金來幫助世衛運行，畢竟這樣有助於世界各國協同對抗疫情，但前提條件是這個組織要回歸其原有職能，不要參與玩弄政治，並成為某個政府的代言人而。譚德賽先生的各種做法，已經讓各國政府和人民明白，他不是一個合格的人選。
-
-[文章鏈接](https://www.washingtontimes.com/news/2020/apr/17/belt-and-road-and-bribes-cotton-says-china-paid-ho/)
-
-翻譯報導：佚名
+[4.15-每日要聞-俄語版－Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18234448/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18234448/4.15-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9%EF%BC%8D%E4%BF%84%E8%AF%AD%E7%89%88%EF%BC%8D%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf.pdf)
 
 0
