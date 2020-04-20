@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “真正”的內憂外患，中國共產黨還能撐多久？
-`2020-04-19 02:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/177660/)
+## 2020年4月17-18日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-19 04:14 GM33` [轉載自GNews](https://gnews.org/zh-hant/178146/)
 
-**作者：Future**
+[English0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)
 
-美國總統特朗普再次在記者會上劍指中國共產黨，在記者問及：“現在很多國家都出現了要’剝奪中國2022奧運會主辦權’的聲音，你怎麼看？”特朗普總統繼續提及中國共產黨在中國國內疫情爆發的前期對疫情的隱瞞並對此表達十分地不滿，而且更是提到了跟中國簽訂的貿易協議，這些協議的內容還沒有兌現，雖然並沒有對記者的提問直接表態但是可以嗅出美國總統對這一問題態度的端倪。
+[English\_418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18193502/1-103.png)
+[French0417\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)
 
-自4月14日美國總統在早晨宣布暫停對世界衛生組織的出資並且大力譴責世界衛生組織對中國共產黨的偏袒、對疫情的隱瞞和對中國共產黨的包庇之後，國際上討伐世界衛生組織和中國共產黨的聲音越加強烈。中國在早期如何隱瞞國內疫情爆發的真相細節不斷被挖出，對世界衛生組織的指控也越來越具體，這一切的行動都逐漸地將一直欺騙國民和國際的中國共產黨逼到暗影的角落那一點光明下，並要求中國共產黨對國際上因為ccp肺炎病毒而發生的一切後果負責。
+[French\_0418\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)
 
-國際上的聲音不斷給中國共產黨施加負擔，與此同時，國內的危機也不斷加深。
+[german\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)
 
-中國共產黨的以假治國、以騙治國、以黑治國以警治國註定了中國是一個脆弱的、不團結的、猶如脆化了的海綿一碰都徹底破碎的國家，在中國共產黨的治理下，中國國內的經濟狀況早已被那些有些長景視野的專家警告過，如今經受了CCP肺炎病毒的打擊，中國國內湧現出失業潮，而因為國內消息的封鎖，無法真正地獲取關於國內失業數據的統計，但是中國共產黨在肺炎病毒肆虐下強制讓人們復工，又把許多人逼到了失業的境地，更是完全沒有出台任何可行的扶持政策，最為標誌性的事件就是：武漢解封後，武漢商家維權被警察追著打。
+[German\_0418\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18193700/3-44.png)
+[Japanese0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)
 
-中國共產黨在中國經濟遭受ccp肺炎病毒猛烈打擊下，首先想到的不是中國人民的利益，首先想到的是自己的利益，首先想到的不是怎麼保全中國人民的性命，首先想到的是怎麼維持自己驕奢淫逸，中國人民在中國共產黨的統治下豬狗不如，被洗腦、被侮辱。
+[Janpanese\_0418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)
 
-就在西方各國，日本與美國都直接給自己的國民銀行賬戶打錢（都是千元美元）的時候，中國共產黨竟然想到了發放什麼消費券，而這些消費券只能在實體店使用並且還有門檻限制，比如滿387減十塊之類的完全就不是補助而是引誘你消費，而且就像是在河南鄭州發放的每人五十塊消費券，短短一百多秒就被搶空。在國外，負責人的政府直接給國民賬戶打錢，而在國內，無數企業和小商戶面對著毀滅的危機，他們眼看著統治自己的魔鬼政府還想趁機再撈一筆。
+[Russia\_0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18193823/4-28.png)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/18193833/5-32.png)
+[Russia\_0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)
 
+[Spanish0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)
 
-中國共產黨發放的消費券不會對即將消亡的企業和商戶有任何實質的作用，也不會有人對此真正心懷感激，尤其說是障眼法，不如說是“脫了褲子跳舞”，讓能得到國外真實消息的中國人民越來越看到中國共產黨惡魔面孔的醜陋。在國際上，英國外交大臣宣布中國共產黨必須交代ccp肺炎病毒的真實情況，並且說明就算在瘟疫過後也不會跟中國政府向之前一般來往，對中國共產黨批判的聲音越發激烈，越來越多的人要中國共產黨為因ccp肺炎病毒死去的性命負責，在國內，絕望的人越來越多，不滿的聲音一個接一個湧現，中國共產黨不顧疫情危機營造一切都在控制之下的虛假環境讓人們去複工，只能在國內釀造一個更大的、更無法應對化解的危機。
-
-在這真正的內憂外患下，中國共產黨，你還能苟延殘喘多久？
-
-讓我們一同祈願，屬於所有中國人民的，自由與民主的光明儘早到來！
-
-（文章內容僅代表作者觀點）
+[Spanish0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)
 
 0

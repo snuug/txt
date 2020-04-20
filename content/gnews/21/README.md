@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月17-18日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-19 04:14 GM33` [轉載自GNews](https://gnews.org/zh-hant/178146/)
+## 國軍試射「台版薩德」天弓三型 中共官媒崩潰「以武拒統」
+`2020-04-19 04:28 GM15` [轉載自GNews](https://gnews.org/zh-hant/178171/)
 
-[English0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19042415/phpgm1LHl.jpg)
+日前在台東縣成功鎮三仙台進行導彈試射，據稱是進行中科院「強弓專案」的「天弓三型防空飛彈增程版本」試射測試；對此有中共官媒稱台我國發展「台版薩德以武拒統」，叫囂解放軍「必將不惜一戰，必將不惜一切代價，堅決維護祖國統一」
 
-[English\_418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)
+綜合媒體報導，軍方在4月9日至4月14日間於台東三仙台進行試射，有相關人士透露，天弓三型正在進行量產計畫，攔截敵方飛彈的高度可達45公里，中科院依此基礎進行增程的性能提升計畫，代號即為「強弓專案」，希望能將攔截高度提高到70公里，希望達到「台版薩德飛彈」，在更高的空域就能攔截摧毀來襲飛彈的作用；目前研發階段已結束，正在進行各個項目的實彈與系統測試。
 
-[French0417\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)
+近日面對中國的軍事挑釁，我國與美國也頻頻以行動來反制，近期中國解放軍航空母艦遼寧號編隊繞經台灣東海時，我國軍方也出動IDF、F-16等戰機，以及168艦隊基隆級驅逐艦因應；美軍也出動伯克級驅逐艦貝瑞號、偵察機反制。
 
-[French\_0418\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)
+對此，中國官媒《中國台灣網》在一篇報導中稱，美台聯手在台海地區對抗中國「以武懾獨」已形成常態化機制，並稱「台版薩德、以武拒統」，最後老調重彈，叫囂「解放軍別無選擇，必將不惜一戰，必將不惜一切代價，堅決維護祖國統一」
 
-[german\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)
+引自[自由時報](https://news.ltn.com.tw/news/world/breakingnews/3138279)
 
-[German\_0418\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)
-
-[Japanese0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)
-
-[Janpanese\_0418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)
-
-[Russia\_0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)
-
-[Russia\_0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)
-
-[Spanish0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)
-
-[Spanish0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)
+GM15
 
 0
