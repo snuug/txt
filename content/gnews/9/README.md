@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共邪惡輸出全球！中共要對疫情負責和賠償！“共渡難關，中共病毒疫情每日熱線”
-`2020-04-20 01:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/178878/)
+## 三分鐘學會使用GTV直播，使用蓋特發布蓋文
+`2020-04-20 03:31 GM33` [轉載自GNews](https://gnews.org/zh-hant/178944/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+GM41制作
 
 0
