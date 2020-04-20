@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共病毒真相】4月20日視頻合集
-`2020-04-20 09:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/179198/)
+## 楊瀾比董卿強？董卿兒子美國籍？
+`2020-04-20 10:41 GM09` [轉載自GNews](https://gnews.org/zh-hant/179376/)
 
-**作者：滅共日記**
-
-上街抗議、警察標准教科書執法展示、春耕種瓜得瓜種魚得？共産黨交警自己說不懂交通法、出租車收廢品、建築工地民間風俗蓋房子要順利必須活埋小孩、哈爾濱封城 解封 再封城…
-
-
-
+孫力軍被抓後，國內媒體開始攻擊董卿。這就是跟著盜國賊做壞事的下場。。。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20102305/Screen-Shot-2020-04-20-at-11.16.22-PM.png)這網易孟建柱書記也是這麼想的![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20102322/Screen-Shot-2020-04-20-at-11.19.52-PM.png)說得好像董卿說這話不是黨讓說的壹樣，網易小編昧良心吶![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20102338/Screen-Shot-2020-04-20-at-11.19.59-PM.png)網易截圖
 0

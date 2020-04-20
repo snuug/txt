@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4·19三周年：記住三年前的今天
-`2020-04-20 03:30 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/178943/)
+## 美國CDC報告詳細解讀了3月31日— 4月7日期間美國新冠病毒的地域差異
+`2020-04-20 03:56 GM31` [轉載自GNews](https://gnews.org/zh-hant/178969/)
 
-【中英對照】[https://spark.adobe.com/page/0oI509g7LiSdX/](https://spark.adobe.com/page/0oI509g7LiSdX/)
+發表於美國疾病防控中心（CDC）4月17日週刊（[MMWR 69:15](https://www.cdc.gov/mmwr/index2020.html)）的一篇報告（[69(15);465–471](https://www.cdc.gov/mmwr/volumes/69/wr/mm6915e4.htm?s_cid=mm6915e4_w#T1_down)）解讀了美國在3月31日— 4月7日期間，新冠病毒病例、死亡、發病率和發病率變化的地域差異。監測各州的差異對於理解各地病毒傳播風險和做出相關決策至關重要。
 
-*作者：Patrick*
+報告顯示，在3月31日— 4月7日期間，新冠病毒的累積發病率在美國各州之間差異很大：從最低的每10萬人20.6例的明尼蘇達州到最高915.3例的紐約市；累計發病率的絕對變化值，從最低的明尼蘇達州每10萬人增加8.3例到最高的紐約市的418.0例。新冠病毒病例、死亡人數、累計發病率和發病率變化的地域差異，可能反映了各州在一下幾個方面的差異：1）病毒輸入時間；2）人口密度；3） 感染新冠病毒患者的年齡分佈和的基礎疾病患病率; 4）社區緩解措施的時機和力度；5）診斷檢測能力；6）公共衛生報告慣例。
 
-*校對：Julia Win*
+完整報告下載：
 
-#### 記住三年前的今天2017年4月19日
+[CDC\_mm6915e4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20034303/CDC_mm6915e4-edited.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20034303/CDC_mm6915e4-edited.pdf)
 
-美國之音對郭文貴先生進行了三小時的現場直播專訪。但是當他一提起王岐山的名字時，主持人立刻中止了節目，創了美國之音首次開天窗的紀錄。
-
-之後郭文貴先生開始了他的爆料革命，爆出中共令人難以置信的貪腐，乃至稱霸奴役世界的野心。三年來已經喚醒了許多國家，認識了這個人類歷史上最貪腐，最黑暗的黑幫政權。
-
-節目的主持人龔小夏，多年來自稱是民運人士活躍於華府華人界。但同時能在中共國家的出版機關出書！在此斷播門事件也以受害者身份，加入郭文貴先生發起的革命。但是去年終於露出真面目，原來她是替中共在海外工作的。這類假民運人士，六四之後俯拾即是，都被收買了。小罵中共大幫忙，三十年以來從沒成氣候，倒是騙了不少錢，也從沒給中共造成任何威脅，反而把真的民主運動分裂了。
-
-想像一下，能把美國之音現場節目拔麥克風開天窗，中共的滲透到了怎样的地步？還有多少人已經被收買，在中共需要的時候就會出來？這個邪惡勢力不滅，被奴役的將不只是十四億中國人，全世界都將被侵佔。
-[!\[\](https://spark.adobe.com/page/0oI509g7LiSdX/images/0d9dba85-f8b5-42d3-b8d7-6175cc9d5015.jpg?asset_id=8e60d77f-192d-41b7-a408-53bdecf3dcb2&amp;img_etag=feda22bbc2f24e6d6f69d892ba82188c&amp;size=1024)](https://spark.adobe.com/page/0oI509g7LiSdX/images/0d9dba85-f8b5-42d3-b8d7-6175cc9d5015.jpg?asset_id=8e60d77f-192d-41b7-a408-53bdecf3dcb2&amp;img_etag=feda22bbc2f24e6d6f69d892ba82188c&amp;size=1024)
-### **編輯：【喜馬拉雅戰鷹團】**
+*翻譯:【John】校對:【Michelle】*
 
 0
