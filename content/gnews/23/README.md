@@ -1,31 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月17-18日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-19 04:14 GM33` [轉載自GNews](https://gnews.org/zh-hant/178146/)
+## 川普總統質疑中共國真實的死亡人數
+`2020-04-19 05:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/178209/)
 
-[English0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035543/English0417_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19053914/1-162.jpg)
+據川普總統說，關于中共病毒的起源“有很多令人質疑的地方”，並聲稱中國的死亡人數遠遠超中共報導的數字。
 
-[English\_418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035559/English_418_CCP_Virus_Updates1.pdf)
+川普對中共官方報導的死亡人數表示懷疑，該數字已於上週五修正。中共承認武漢市死于中共病毒的1300人（佔總數的一半）未被計算在內，但否決了對中共掩蓋事實的指控。
 
-[French0417\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19035608/French0417_CCP_Virus.pdf)
+周五美国总统说，中国的实际死亡人数肯定比美国要多。据报导美国目前是中共病毒感染的中心，也是中共病毒死亡人数最多的国家。
 
-[French\_0418\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19040859/French_0418_CCP_Virus_Updates_-_Copie.pdf)
+對此川普總統回答說“世界上中共病毒死亡人數最多的應該是中國。”
 
-[german\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041127/german_CCP_Virus_Updates_-_Kopie.pdf)
+中共報告說，在其境內已有4,632人死於中共病毒。據約翰•霍普金斯大學（Johns Hopkins University）統計，上週五美國死于中共病毒的人已超過38,800。
 
-[German\_0418\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041145/German_0418_CCP_Virus_Updates_-.pdf)
+福克斯新闻周三声明，中共病毒起源于武汉的一个实验室。
 
-[Japanese0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041200/Japanese0417_CCP_Virus_Updates.pdf)
+川普總統表示，美國政府正在尋找確實的證據來肯定這種病毒是否來自中共的實驗室。他在白宮說：“發生了許多令人質疑的事，我們正在進行大量調查並且最終會將它找出來。”
 
-[Janpanese\_0418\_CCP\_Virus\_Updates1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041220/Janpanese_0418_CCP_Virus_Updates1.pdf)
+[原文鏈接](https://www.telegraph.co.uk/news/2020/04/18/donald-trump-questions-origin-coronavirus-chinas-death-toll/)
 
-[Russia\_0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041231/Russia_0417_CCP_Virus_Updates.pdf)
-
-[Russia\_0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041241/Russia_0418_CCP_Virus_Updates.pdf)
-
-[Spanish0417\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041252/Spanish0417_CCP_Virus_Updates.pdf)
-
-[Spanish0418\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/19041303/Spanish0418_CCP_Virus_Updates.pdf)
+翻译报导：明澈
 
 0
