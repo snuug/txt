@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月20日CCP冠狀病毒大流行第87集
-`2020-04-21 02:01 GM33` [轉載自GNews](https://gnews.org/zh-hant/179934/)
+## 特朗普對美國原油價格下跌的回應
+`2020-04-21 05:41 GM31` [轉載自GNews](https://gnews.org/zh-hant/180072/)
 
-哈爾濱疫情嚴重，再度封城；黨媒造謠抹黑美國疫情救濟金；各國紛紛質疑中國在疫情的數據上造假
+川普總統在[4月20日](https://www.youtube.com/watch?v=MdT6GPSIki8)的白宮病毒疫情發佈會上，一開場就講到了美國原油期貨價格降至負數的爆炸性新聞，並提到這可能是由有些國家的財政緊縮造成的。他還反復地提到這是一個把美國國家石油戰略儲備提高到最大限度的最佳時機，因為你不僅不用付錢就能買到石油而且還能被倒貼錢。
 
-[https://gtv.org//?videoid=5e9e7c910dbf207957df0234](https://gtv.org//?videoid=5e9e7c910dbf207957df0234)
+*翻譯【Michelle】校對【文緣】字幕【小南】*
 
 0
