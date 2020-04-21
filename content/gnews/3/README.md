@@ -1,83 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國決不依賴中共的慈悲來挽救性命
-`2020-04-20 17:00 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/179534/)
+## 4月20日 美國政要推文選譯
+`2020-04-20 23:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/179790/)
 
-【中英对照翻译】[https://spark.adobe.com/page/7A3NTrxvK275m/](https://spark.adobe.com/page/7A3NTrxvK275m/)
+> No way the ⁦[@USOCC](https://twitter.com/USOCC?ref_src=twsrc%5Etfw)⁩ can agree to host the Olympics in a country that is committing the most Heinous Crimes Against Humanity in the 21st century. It impossible to square the circle of the murderous chinese communist party. [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/dWPkMYzq0L](https://t.co/dWPkMYzq0L)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252075880983269380?ref_src=twsrc%5Etfw)
 
-文章來源：Yahoo Finance, April 18, 2020
+卡爾·巴斯先生 連推：美國奧委會絕不可能同意奧運會在壹個犯下21世紀最令人發指的反人類罪行的國家舉行。不可能改變中共謀殺（的本質）。對於那些還不了解中共是如何從宗教犯身上活摘器官人們…這是英國由傑弗裏·尼斯爵士率領的法庭，尼斯爵士曾負責監督審判斯洛博丹·米洛舍維奇的海牙戰爭罪法庭。
 
-作者：Ben Werschkul (本·威施庫爾)
+真清晰政治網（Real Clear Politics，美國政治新聞與民調數據聚合網站）：蓬佩奧談到取消在北京舉辦2020冬奧會：“我們需要認真考慮壹下。”
 
-翻譯/簡評：freedust
+> Our embrace of China was naive and cynical – now is the time to hold Beijing Responsible for the Misery the CCP Knowingly Exported to the Rest of the World [https://t.co/JCbbB6JtKB](https://t.co/JCbbB6JtKB)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252188567109013504?ref_src=twsrc%5Etfw)
 
-PR：海闊天空
+卡爾·巴斯先生：我們接受了中國，這種做法很幼稚而且顯得見利忘義——中共向全世界輸出痛苦，現在是讓北京為此承擔責任的時候了（文章來源：英國《電訊報》）
 
-簡評：
+> Under the dark of the Wuhan Virus, the Chinese government is stealing the basic freedoms of the good people of HK. It’s time for the US remove the gloves and implement the HKHRDA. HK is just another failed city in china. [#onecountryonesystem](https://twitter.com/hashtag/onecountryonesystem?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaMustPay](https://twitter.com/hashtag/ChinaMustPay?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/99938A0mAe](https://t.co/99938A0mAe)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252195284576342017?ref_src=twsrc%5Etfw)
 
-就像郭文貴先生所說，滅共現在已經是一塊大蛋糕了，不僅商界大佬們像鯊魚一樣盯著這塊肉，同樣在政界，無論是出於對自己政治前途的考量，還是一個公民的正直良知，都會聚攏在滅共這桿大旗下。中共已經是砧板上的肉了，將處於全球的政治、經濟、外交甚至軍事壓力之下。
+卡爾·巴斯先生：在武漢病毒陰霾的籠罩下，中國政府正在奪走善良的香港人民的基本自由。現在，美國應該態度強硬起來，實施《香港人權與民主法案》。香港只不過成了中國又壹個敗落的城市。
 
-感謝郭文貴先生，能一直不懈的去努力分清中共和中國人民，他一直站在蕓蕓草根中間，為他們發聲，為他們爭取一個更好的明天！這將是一個劃時代的改變，我們有義務跟隨文貴先生去實現為中國帶來民主、自由、法治的理想，我們也有義務去建設一個開明、民主、自由、法治的新中國，這將對我們自己，對這個世界都有巨大的、積極的意義。感恩文貴先生！感恩香港一直在戰鬥的勇士！感恩任何一個有良知的中國人所作的點點滴滴！
+> My Stop COVID-19 Act will make China legally and financially liable for unleashing the COVID-19 infection on our country. [@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) [@Lancegooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw)
+>  [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 20, 2020](https://twitter.com/MarshaBlackburn/status/1252244425889255430?ref_src=twsrc%5Etfw)
 
-**原文：**
+參議員 Marsha Blackburn：我的《阻止19冠狀病毒法案》將讓中國為在我們國家釋放病毒負法律和經濟責任。
 
-### **冠狀病毒應對:特德·克魯茲如何想要“從根本上”改變我們與中共國的關系**
+> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) director-general [@DrTedros](https://twitter.com/DrTedros?ref_src=twsrc%5Etfw) is accused of covering up three health epidemics in Ethiopia.
+>  [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) helped Beijing cover up the Chinese coronavirus pandemic.
+>  
+> What else is the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) hiding?
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 21, 2020](https://twitter.com/MarshaBlackburn/status/1252399421209276418?ref_src=twsrc%5Etfw)
 
-對中共國就其處理冠狀病毒的批評已經持續了數周之久。
+參議員 Marsha Blackburn：世衛組織總幹事譚德賽被指控在埃塞俄比亞掩蓋了三次流行病事件。世衛組織幫助北京掩蓋了中國的冠狀病毒疫情大爆發。世衛組織還隱藏了什麽？
 
-在接受雅虎財經采訪時，有影響力的得克薩斯州參議員特德·克魯茲（Ted Cruz）推動了壹系列調查，著眼於懲罰中共國。爭論的焦點在於它（中共）是如何處理瘟疫大流行的，該疾病目前已感染了全球超過200萬人。
+> From their handling of the Wuhan virus to arresting Hong Kong’s pro-democracy leaders, the Chinese Communist Party remains—and should be treated as—a threat to free people everywhere.[https://t.co/mHrV2Uc4jT](https://t.co/mHrV2Uc4jT)
+> — Tom Cotton (@SenTomCotton) [April 20, 2020](https://twitter.com/SenTomCotton/status/1252238676031086592?ref_src=twsrc%5Etfw)
 
-這位前總統競選人說，“在這場危機之後的數月和數年內”，美國將“重新評估並從根本上改變美國與中共國的關系。
+參議員 Tom Cotton：從處理武漢病毒到抓捕香港民主領袖，中共壹直是——同時應該被視為——對世界各地自由人民的威脅。
 
-科魯茲發表此番言論之前，有消息稱，武漢市新增的冠狀病毒死亡人數增加了50%。這次突然的轉變幾乎肯定會讓世界各地的中共國批評人士更加大膽。
+《華爾街日報》：觀點｜中國的香港圍捕
 
-‘病毒可能是意外釋放出來的’
+> The [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) backlash begins in earnest, and about time. Beijing has lied to the world over, and over, and over … [https://t.co/4h9GWtW2dh](https://t.co/4h9GWtW2dh)
+> — Josh Hawley (@HawleyMO) [April 20, 2020](https://twitter.com/HawleyMO/status/1252269196806930432?ref_src=twsrc%5Etfw)
 
-也許采訪中最有爭議的壹點是克魯茲提出這種病毒可能來自於中共國政府實驗室的想法。
+參議員 Josh Hawley：冠狀病毒對中國的反作用以更猛烈的程度開始了，也該開始了。北京壹次次地對世界撒謊…
 
-“我並不是說這是有意釋放的，但可能是他們在政府實驗室研究的病毒的意外釋放。” 如果這是事實的話，克魯茲補充說：“ 如果中共國政府對於病毒起源有直接責任，就必須承擔（這次事件）的實際責任”。
-[!\[\](https://spark.adobe.com/page/7A3NTrxvK275m/images/2b21734f-9346-43ad-a925-d8b846c535d3.png?asset_id=5c211261-5b5b-4a1a-8bb6-55f3847e5dcb&amp;img_etag=cfdec60645a870092e96b325919e489d&amp;size=1024)](https://spark.adobe.com/page/7A3NTrxvK275m/images/2b21734f-9346-43ad-a925-d8b846c535d3.png?asset_id=5c211261-5b5b-4a1a-8bb6-55f3847e5dcb&amp;img_etag=cfdec60645a870092e96b325919e489d&amp;size=1024)
-為了證明這壹點，克魯茲引用了國務院電報的報道，該電報是在危機開始前兩年寫的，該報導就武漢實驗室的安全問題發出了警告。其中壹篇報道提到了實驗室正在對蝙蝠攜帶的冠狀病毒進行研究，同時也提到了（該病毒）的人際間傳播的可能性。
+《紐約郵報》：英國取消華為作為5G供應商資格，以中國疫情透明度為例（說明原因）
 
-尚未有證據證明該病毒實際上是從這些實驗室中泄露的，或者目前正在感染世界的冠狀病毒株是由人類制造的。
+> "So, do we want, if possible, to go back to the world before Trump? … the answer is probably no, because having a poorly implemented but fundamentally correct strategy is better than having a well-implemented but ambiguous strategy." [https://t.co/0I8nhGbFR4](https://t.co/0I8nhGbFR4)
+> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252253358624313346?ref_src=twsrc%5Etfw)
 
-一些對該病毒的學術研究發現，據他們所說，有證據表明該病毒很可能是自然產生的。
+斯伯丁將軍：“那麽，如果可能，我們想回到川普執政之前的世界嗎？…答案很可能是否定的，因為壹項實施不力但本質正確的政策比實施到位但模棱兩可的政策要好。”
 
-克魯茲承認，目前這只是“間接證據”，他說，他只是想尋求該實驗室正在研究哪些病毒這類問題的答案。 他說：“目前，中共國政府正在躲閃推搪，不想回答任何問題。”
+《美國利益》雜誌：對抗性中國政策的優點
 
-從政府官員到川普總統都非常想找到這個問題的答案。
+> Smart kid! [https://t.co/J9bTdzMm1D](https://t.co/J9bTdzMm1D)
+> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252271622117101571?ref_src=twsrc%5Etfw)
 
-據報道，情報官員已開始調查，川普在周三被問及了該事件進程。 “我會告訴妳的，越來越多（的事），我們正在了解這個故事（的來龍去脈）。” 他說：“我們正在對發生的這種可怕情況進行非常徹底的調查。”
+斯伯丁將軍：聰明的孩子！
 
-阿肯色州參議員湯姆·科頓（Tom Cotton）也提出了這種病毒起源於武漢實驗室的可能性。
+梁允信：實際上，臺灣就像那個被校園惡霸無辜地踢出教室的孩子，但他依舊努力學習，完成所有作業，並在考試中名列前茅。
 
-克魯茲還想對中共國進行調查，以搞清楚該國在危機爆發後掩蓋真相時的所作所為是否如他所想。 他說：“當它（疫情）在12月開始爆發時，他們秘而不宣，他們掩蓋了真相。”
+> "The Beijing-based company offers education services and products to address the needs of partnering schools and students."[https://t.co/vDcnktsDNN](https://t.co/vDcnktsDNN)
+> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252351590171684864?ref_src=twsrc%5Etfw)
 
-克魯茲（Cruz）已經提出立法，制裁被證實參與了審查疫情爆發信息的中共國官員。 他認為，如果沒有進行掩蓋，病毒本可以被控制為壹場地區性的疫情，而不是目前的全球大流行。
+> Hard to believe the NASDAQ is going to IPO a Chinese company in the midst of a lock down due to a pandemic caused by the CCP. [https://t.co/iLTI9Ni4Aw](https://t.co/iLTI9Ni4Aw)
+> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252354980977102851?ref_src=twsrc%5Etfw)
 
-另一個關註領域:中共國和供應鏈
+斯伯丁將軍：“這家總部位於北京的公司提供教育類服務和產品，以滿足合作學校和學生的需求。”
 
-克魯茲還希望對中共國進行反制，並將其從許多醫療產品供應鏈的起始端中移除。
+資本觀察網（從中共國到華爾街的投資資訊網站）：中國人文教育著眼於在納斯達克7百萬美元首次公開募股
 
-他說這是一個國家安全問題，理由是有報道稱中共國政府威脅要切斷向美國的藥品供應。
-[!\[\](https://spark.adobe.com/page/7A3NTrxvK275m/images/678af133-51e2-477d-905d-656ddaf617ef.png?asset_id=2d09187b-8453-47ca-8d89-971bdf6ba7ca&amp;img_etag=5aa4bc183144c4df4a9e2377e16c0a73&amp;size=1024)](https://spark.adobe.com/page/7A3NTrxvK275m/images/678af133-51e2-477d-905d-656ddaf617ef.png?asset_id=2d09187b-8453-47ca-8d89-971bdf6ba7ca&amp;img_etag=5aa4bc183144c4df4a9e2377e16c0a73&amp;size=1024)
-“如果中共國有意這樣做，那不只是經濟戰，而是實際上（對美）宣戰，通過拒絕給美國人他們賴以救命的藥物的方式。”他說。
+斯伯丁將軍：很難想象，現在正是因中共冠狀病毒封鎖期間，納斯達克要為壹家中國公司首次公開募股。
 
-克魯茲引用了壹位撰稿人撰寫的文章，該文章由中共國國家新聞社新華社發表。事情進展到壹半時，該文章提出了中共國應禁止藥品出口的想法，並表示，如果這樣做，“美國將沈入新型冠狀病毒流行的地獄”，據《紐約時報》翻譯。
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We really need the Chinese Government to open up. One of the best ways they could find to cooperate would be to let the world in, to let the world’s scientists know exactly how this came to be, exactly how this virus began to spread. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/SVgMy3fLon](https://t.co/SVgMy3fLon)
+> — Department of State (@StateDept) [April 20, 2020](https://twitter.com/StateDept/status/1252261995392299011?ref_src=twsrc%5Etfw)
 
-川普方面曾談到有必要將供應鏈從中國轉移到其他地方，但是卻低估了它們控制向美國出口藥品的可能。“我壹點也不明白，”當被問及藥品的供應鏈斷裂情況時，“我認為中共國基於任何理由都需要保證這件事妥善處理。”
-
-克魯茲最近宣布與特拉華民主黨參議員克裏斯·庫恩斯（Chris Coons）共同努力，擴大與以色列的醫療夥伴關系，這是第四階段刺激計劃的壹部分。
-
-他還正在與參議員科頓壹起推動壹項法案，鼓勵在美國建造新的制藥廠，以“利用聯邦政府的購買力將部分供應鏈移回去。”
-
-克魯茲說，目前尚不清楚聯邦政府的行動能改變多少根深蒂固的私人供應鏈，但“我們不能指望中共國共產黨政府的慈悲來挽救生命。”
-
-本·威施庫爾是位於華盛頓特區的雅虎財經的制作人。
-
-[文章链结](https://finance.yahoo.com/news/coronavirus-response-how-ted-cruz-wants-to-fundamentally-change-our-relationship-with-china-172049865.html?soc_src=social-sh&amp;soc_trk=tw&amp;guccounter=1&amp;guce_referrer=aHR0cHM6Ly90LmNvL2xYNnliS0o3Zmc_YW1wPTE&amp;guce_referrer_sig=AQAAAIZwDKkXyMYBr27gHhNeoNb8Xa_ZbkFNRW1SMBYKn6nJJlOiy6hvngyxufEuCKqx6wcJ-GTV5btYKQ0HYl5BfrYBVSQr5V5DcFL7P_5KnGiLxvMYyRf5Abb7icUbPNqIMZR5gOPgiwVA_H6RWGgbLkd4YDjXoA8J00DmkEEFtBn1)
-
-### **編輯 【喜馬拉雅戰鷹團】**
-
+美國國務院：國務卿蓬佩奧：我們非常需要中國政府公開化。他們能夠尋求的最好的合作方式之壹是讓世界參與，讓國際的科學家確切地了解這到底是如何發生的，這種病毒是如何開始擴散的。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20231608/06_82.png)
 0
