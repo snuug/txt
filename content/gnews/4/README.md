@@ -1,13 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Dr. Hahn呼籲捐助血漿
-`2020-04-20 23:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/179796/)
+## 不傳謠不信謠：金三胖腦死亡
+`2020-04-21 00:51 GM09` [轉載自GNews](https://gnews.org/zh-hant/179895/)
 
-Hahn醫生號召康復者捐血漿:”如果您曾從covid-19中康復，則可以通過捐贈血漿來幫助他人，一次捐贈最多可以幫助四個人。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/21004453/Screen-Shot-2020-04-21-at-1.39.19-PM.png)
+美國司法部長發推表示：爆炸新聞，北朝鮮最高領袖金正恩據說已經腦死亡，享年36.
 
-出處：[白宮](https://youtu.be/pkHYQQolZu8)
-
-*翻譯：【OnePunchD】 校對：【DDM】 字幕：【Freela】*
-
+編者按：鋼琴彈奏，小仙女
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/21005533/Screen-Shot-2020-04-21-at-1.53.54-PM.png)
 0
