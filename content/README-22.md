@@ -12,6 +12,8 @@
 
 ## 頁面 22/26 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
+
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
 
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/2018/04/20180418-1652882263538149002.md)
@@ -59,8 +61,6 @@
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/2018/04/20180418-1176717369305738792.md)
 
 [Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/2018/04/20180418-7095490617264238723.md)
-
-[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/2018/04/20180418-2982915845250551148.md)
 
 
 ## 頁面 22/26 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
