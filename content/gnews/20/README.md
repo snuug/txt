@@ -1,83 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月20日 美國政要推文選譯
-`2020-04-20 23:18 GM65` [轉載自GNews](https://gnews.org/zh-hant/179790/)
+## 面對有良知的科學家，田薇們開始血口噴人了
+`2020-04-24 00:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/183047/)
 
-> No way the ⁦[@USOCC](https://twitter.com/USOCC?ref_src=twsrc%5Etfw)⁩ can agree to host the Olympics in a country that is committing the most Heinous Crimes Against Humanity in the 21st century. It impossible to square the circle of the murderous chinese communist party. [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/dWPkMYzq0L](https://t.co/dWPkMYzq0L)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252075880983269380?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24002854/e1fe9925bc315c6026f2f0ffc0144515485477e2.jpeg)
+作者：Diago
 
-卡爾·巴斯先生 連推：美國奧委會絕不可能同意奧運會在壹個犯下21世紀最令人發指的反人類罪行的國家舉行。不可能改變中共謀殺（的本質）。對於那些還不了解中共是如何從宗教犯身上活摘器官人們…這是英國由傑弗裏·尼斯爵士率領的法庭，尼斯爵士曾負責監督審判斯洛博丹·米洛舍維奇的海牙戰爭罪法庭。
+路德先生在[4/23/2020 路德時評（路博艾談）：疾控中心主任高福發表揭露中共隱瞞疫情的論文被質疑；金正恩健康狀況的消息真假分辨；中共國3月份進口小麥107%；](https://www.youtube.com/watch?v=-dvpWnyesuE)時間點[00:09:09](https://www.youtube.com/watch?v=-dvpWnyesuE&amp;t=549s)提到“ 1，此前路德社通過三篇論文（兩篇發表在《新英格蘭醫學雜誌》一篇發表在《柳葉刀》中，都為高福團隊發表）揭露了中gong官方隱瞞資料的資訊。此前劉欣採訪了武漢醫生張繼先，說第一例在12月27日，但三篇論文顯示12月1日已經有案例出現，論文引用的資料顯示1月11日前有227例且病毒人傳人，但1月16日中gong官方資料還是17例，不是人傳人。2，高福不想成為歷史的罪人，之前中宣部無法控制高福發論文，後來才用行政手段禁止牆內專家私自發表涉疫情和病毒相關的論文。3，4月23日，中央電視臺主持人田薇通過其個人微博帳號@田薇\_TianWei發佈了一條採訪中國疾控中心主任高福的視頻。視頻中，高福主任說明了疫情之初在國際醫學期刊發表文章的原因。4，情況類似文革，想讓高福電視認罪。這個採訪本來想讓高福自認造假誇大資料，但高福堅持不認。5，我們如果不做節目保護他，高福肯定很快出事兒。高福團隊裡的人很可能馬上會跳出來，揭露高福裡通外國、故意隱瞞數字等。6，《新英格蘭醫學雜誌》歷史上也曾出現過論文造假事件，現在CCP希望讓高福方面自己改口承認造假，好讓海外被藍金黃的專家、媒體反過來咬高福。 ”
 
-真清晰政治網（Real Clear Politics，美國政治新聞與民調數據聚合網站）：蓬佩奧談到取消在北京舉辦2020冬奧會：“我們需要認真考慮壹下。”
+對於路德先生提到的論文之一是筆者在GNEWS 2020-01-31 17:48發表的[財新網2020年1月31日三篇關聯文章中提到的論文到底是啥情況](https://gnews.org/zh-hans/98667/)中曾經對[Early Transmission Dynamics in Wuhan, China, of Novel Coronavirus–Infected Pneumonia](https://www.nejm.org/doi/full/10.1056/NEJMoa2001316)（新型冠狀病毒感染肺炎在中國武漢的初期傳播動力學）進行了挖掘，當時並沒有注意到作者中還有高福，現在讓我們把作者列明如下：Qun Li, M.Med.、Xuhua Guan, Ph.D.、Peng Wu, Ph.D.,、Xiaoye Wang, M.P.H.,、Lei Zhou, M.Med.,、Yeqing Tong, Ph.D.,、Ruiqi Ren, M.Med.,、Kathy S.M. Leung, Ph.D.,、Eric H.Y. Lau, Ph.D.,、Jessica Y. Wong, Ph.D.,、Xuesen Xing, Ph.D.,、Nijuan Xiang, M.Med.,、Yang Wu, M.Sc.,、Chao Li, M.P.H.,、Qi Chen, M.Sc.,、Dan Li, M.P.H.,、Tian Liu, B.Med.,、Jing Zhao, M.Sc.,、Man Liu, M.Sc.,、Wenxiao Tu, M.Med.,、Chuding Chen, M.Sc.,、Lianmei Jin, M.Med.,、Rui Yang, M.Med.,、Qi Wang, M.P.H.,、Suhua Zhou, M.Med.,、Rui Wang, M.D.,、Hui Liu, M.Med.,、Yinbo Luo, M.Sc.,、Yuan Liu, M.Med.,、Ge Shao, B.Med.,、Huan Li, M.P.H.,、Zhongfa Tao, M.P.H.,、Yang Yang, M.Med.,、Zhiqiang Deng, M.Med.,、Boxi Liu, M.P.H.,、Zhitao Ma, M.Med.,、Yanping Zhang, M.Med.,、Guoqing Shi, M.P.H.,、Tommy T.Y. Lam, Ph.D.,、Joseph T. Wu, Ph.D.,、George F. Gao, D.Phil.,、Benjamin J. Cowling, Ph.D.,、Bo Yang, M.Sc.,、Gabriel M. Leung, M.D.,、and Zijian Feng, M.Med.。
 
-> Our embrace of China was naive and cynical – now is the time to hold Beijing Responsible for the Misery the CCP Knowingly Exported to the Rest of the World [https://t.co/JCbbB6JtKB](https://t.co/JCbbB6JtKB)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252188567109013504?ref_src=twsrc%5Etfw)
+我們為什麼一定要看一下所有的作者名字，因為這些人把最真實的情況發出來，而且這些作者中在牆內的科學家要發表這篇論文還要署上名字，要面對的危險是自由世界的科學家們所無法理解的。
 
-卡爾·巴斯先生：我們接受了中國，這種做法很幼稚而且顯得見利忘義——中共向全世界輸出痛苦，現在是讓北京為此承擔責任的時候了（文章來源：英國《電訊報》）
+由於這篇論文是科學論文，本文不作通讀，只是把其中關於人傳人和傳染指數的相關段落摘出來，看看這些文字是如何戳痛中共、如何戳穿中共謊言的——
 
-> Under the dark of the Wuhan Virus, the Chinese government is stealing the basic freedoms of the good people of HK. It’s time for the US remove the gloves and implement the HKHRDA. HK is just another failed city in china. [#onecountryonesystem](https://twitter.com/hashtag/onecountryonesystem?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaMustPay](https://twitter.com/hashtag/ChinaMustPay?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/99938A0mAe](https://t.co/99938A0mAe)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 20, 2020](https://twitter.com/Jkylebass/status/1252195284576342017?ref_src=twsrc%5Etfw)
+根據該論文的中文版[新型冠狀病毒感染肺炎在中國武漢的初期傳播動力學](https://nejmqianyan.cn/article/YXQYoa2001316?sg=AbW1NGsHw3NxPd6F)【方法：我們收集了截至2020年1月22日已報告的，經實驗室確診的NCIP病例的人口統計學特徵、暴露史和疾病時間線的資訊。我們描述了病例特徵，並估計了關鍵流行病學延遲時間分佈情況。在呈指數增長的初期，我們估計了傳染病倍增時間和基本再生數。
 
-卡爾·巴斯先生：在武漢病毒陰霾的籠罩下，中國政府正在奪走善良的香港人民的基本自由。現在，美國應該態度強硬起來，實施《香港人權與民主法案》。香港只不過成了中國又壹個敗落的城市。
+結果：在最早的425例NCIP確診患者中，中位年齡為59歲，56%為男性。在2020年1月1日前發病的病例中，大部分（55%）與華南海鮮批發市場相關，而在此後發病的病例中，僅8.6%與華南海鮮批發市場相關。平均潛伏期為5.2日（95%置信區間[*CI*]，4.1～7.0），潛伏期分佈情況的第95百分位元數為12.5日。在初期，倍增時間為7.4日。由一人傳至另一人的平均間隔時間（serial interval）為7.5日（95% *CI*，5.3～19），基本再生數估計為2.2（95% *CI*，1.4～3.9）。】 這篇論文只所以踩到了中共的狗尾巴，是因為中國的科學家通過們2020年1月30日在《新英格蘭醫學雜誌》（NEJM）發表的——[Early Transmission Dynamics in Wuhan, China, of Novel Coronavirus–Infected Pneumonia](https://www.nejm.org/doi/full/10.1056/NEJMoa2001316)（新型冠狀病毒感染肺炎在中國武漢的初期傳播動力學）戳穿了中共的早期所謂的沒有明顯人傳人證據的謊言，由於在[財新網2020年1月31日三篇關聯文章中提到的論文到底是啥情況](https://gnews.org/zh-hans/98667/)一文中已經做了揭露，本文不再贅述，我們要重點關注的是作為王歧山打手的財新雜誌早在2020年1月31日就開始了對發表的這篇論文開始了打壓，而根據路德先生的節目，中共的狗腿子們對於高福和其他科學家的打壓現在還在進行中，路德先生節目中提到的央視採訪的相關資訊在[高福回應“疫情之初在國際期刊發論文”](https://baijiahao.baidu.com/s?id=1664765384856489174&amp;wfr=spider&amp;for=pc)一文中可見端倪：【4月23日，中央電視臺主持人田薇通過其個人微博帳號@田薇\_TianWei發佈了一條採訪中國疾控中心主任高福的視頻。視頻中，高福主任說明了疫情之初在國際醫學期刊發表文章的原因。】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24002950/e1fe9925bc315c6026f2f0ffc0144515485477e2_%E5%89%AF%E6%9C%AC2.jpg)
+田薇的問題是“疫情之初，為什麼要在國際學術期刊發文章？”，高福先生因為身在牆內又面對的是中共的打手田薇，所以高福先生只能婉轉回答田薇的問題，在此筆者冒昧替高福先生回答一下田薇——科學家不管什麼時候都可以在學術期刊發表文章，科學家在發表文章的時候不必揣摩聖意。
 
-> My Stop COVID-19 Act will make China legally and financially liable for unleashing the COVID-19 infection on our country. [@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) [@Lancegooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw)
->  [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 20, 2020](https://twitter.com/MarshaBlackburn/status/1252244425889255430?ref_src=twsrc%5Etfw)
+倒是田薇們和中共的其他打手們在出賣肉體和靈魂給中共的時候，請記住自己的模樣。下面是田薇的網路照片，我們想寄語田薇們：你們嘴除了用來吃飯、接吻、說話之外，還是可以奉主子之命用來噴人的，你們的嘴長得和別人不一樣，那上邊沾滿了被中共打壓的良知人士的鮮血。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24003006/%E7%94%B0%E8%96%87.jpg)
+（（文章內容僅代表作者個人觀點）
 
-參議員 Marsha Blackburn：我的《阻止19冠狀病毒法案》將讓中國為在我們國家釋放病毒負法律和經濟責任。
-
-> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) director-general [@DrTedros](https://twitter.com/DrTedros?ref_src=twsrc%5Etfw) is accused of covering up three health epidemics in Ethiopia.
->  [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) helped Beijing cover up the Chinese coronavirus pandemic.
->  
-> What else is the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) hiding?
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 21, 2020](https://twitter.com/MarshaBlackburn/status/1252399421209276418?ref_src=twsrc%5Etfw)
-
-參議員 Marsha Blackburn：世衛組織總幹事譚德賽被指控在埃塞俄比亞掩蓋了三次流行病事件。世衛組織幫助北京掩蓋了中國的冠狀病毒疫情大爆發。世衛組織還隱藏了什麽？
-
-> From their handling of the Wuhan virus to arresting Hong Kong’s pro-democracy leaders, the Chinese Communist Party remains—and should be treated as—a threat to free people everywhere.[https://t.co/mHrV2Uc4jT](https://t.co/mHrV2Uc4jT)
-> — Tom Cotton (@SenTomCotton) [April 20, 2020](https://twitter.com/SenTomCotton/status/1252238676031086592?ref_src=twsrc%5Etfw)
-
-參議員 Tom Cotton：從處理武漢病毒到抓捕香港民主領袖，中共壹直是——同時應該被視為——對世界各地自由人民的威脅。
-
-《華爾街日報》：觀點｜中國的香港圍捕
-
-> The [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) backlash begins in earnest, and about time. Beijing has lied to the world over, and over, and over … [https://t.co/4h9GWtW2dh](https://t.co/4h9GWtW2dh)
-> — Josh Hawley (@HawleyMO) [April 20, 2020](https://twitter.com/HawleyMO/status/1252269196806930432?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：冠狀病毒對中國的反作用以更猛烈的程度開始了，也該開始了。北京壹次次地對世界撒謊…
-
-《紐約郵報》：英國取消華為作為5G供應商資格，以中國疫情透明度為例（說明原因）
-
-> "So, do we want, if possible, to go back to the world before Trump? … the answer is probably no, because having a poorly implemented but fundamentally correct strategy is better than having a well-implemented but ambiguous strategy." [https://t.co/0I8nhGbFR4](https://t.co/0I8nhGbFR4)
-> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252253358624313346?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“那麽，如果可能，我們想回到川普執政之前的世界嗎？…答案很可能是否定的，因為壹項實施不力但本質正確的政策比實施到位但模棱兩可的政策要好。”
-
-《美國利益》雜誌：對抗性中國政策的優點
-
-> Smart kid! [https://t.co/J9bTdzMm1D](https://t.co/J9bTdzMm1D)
-> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252271622117101571?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：聰明的孩子！
-
-梁允信：實際上，臺灣就像那個被校園惡霸無辜地踢出教室的孩子，但他依舊努力學習，完成所有作業，並在考試中名列前茅。
-
-> "The Beijing-based company offers education services and products to address the needs of partnering schools and students."[https://t.co/vDcnktsDNN](https://t.co/vDcnktsDNN)
-> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252351590171684864?ref_src=twsrc%5Etfw)
-
-> Hard to believe the NASDAQ is going to IPO a Chinese company in the midst of a lock down due to a pandemic caused by the CCP. [https://t.co/iLTI9Ni4Aw](https://t.co/iLTI9Ni4Aw)
-> — General Spalding (@robert\_spalding) [April 20, 2020](https://twitter.com/robert_spalding/status/1252354980977102851?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“這家總部位於北京的公司提供教育類服務和產品，以滿足合作學校和學生的需求。”
-
-資本觀察網（從中共國到華爾街的投資資訊網站）：中國人文教育著眼於在納斯達克7百萬美元首次公開募股
-
-斯伯丁將軍：很難想象，現在正是因中共冠狀病毒封鎖期間，納斯達克要為壹家中國公司首次公開募股。
-
-> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): We really need the Chinese Government to open up. One of the best ways they could find to cooperate would be to let the world in, to let the world’s scientists know exactly how this came to be, exactly how this virus began to spread. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/SVgMy3fLon](https://t.co/SVgMy3fLon)
-> — Department of State (@StateDept) [April 20, 2020](https://twitter.com/StateDept/status/1252261995392299011?ref_src=twsrc%5Etfw)
-
-美國國務院：國務卿蓬佩奧：我們非常需要中國政府公開化。他們能夠尋求的最好的合作方式之壹是讓世界參與，讓國際的科學家確切地了解這到底是如何發生的，這種病毒是如何開始擴散的。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/20231608/06_82.png)
-0
+2
