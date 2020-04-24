@@ -12,6 +12,8 @@
 
 ## 頁面 10/26 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [26](/content/README-26.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
+
 [文字版：2019年7月8日：文贵车上谈王健之死](/content/2019/07/20190710-5360676795961744736.md)
 
 [文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
@@ -59,8 +61,6 @@
 [文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/content/2019/06/20190613-2844499569524374811.md)
 
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/2019/06/20190611-3204594728389036788.md)
-
-[文字版：2019年6月8日文貴直播](/content/2019/06/20190608-7050696263727200895.md)
 
 
 ## 頁面 10/26 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [26](/content/README-26.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

@@ -12,6 +12,8 @@
 
 ## 頁面 26/26 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [查看全部](/content/README-all.md)
 
+[郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
+
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
 
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)

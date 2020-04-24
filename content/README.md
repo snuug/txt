@@ -12,6 +12,8 @@
 
 ## 頁面 1/26 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [26](/content/README-26.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年4月22郭文贵先生GTV直播](/content/2020/04/20200424-2443423908182231640.md)
+
 [文字版：2020年4月19日郭先生GTV直播](/content/2020/04/20200423-2216881106964005874.md)
 
 [文字版:2020年04月18日郭先生GTV 直播](/content/2020/04/20200421-4424351447189958963.md)
@@ -59,8 +61,6 @@
 [文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/2020/03/20200323-7421159796736318134.md)
 
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/2020/03/20200321-732520138033685407.md)
-
-[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/2020/03/20200319-5480491388779340708.md)
 
 
 ## 頁面 1/26 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [26](/content/README-26.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
