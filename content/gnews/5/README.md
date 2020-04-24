@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共病毒真相】4月24日視頻合集
-`2020-04-24 09:59 GM30` [轉載自GNews](https://gnews.org/zh-hant/183420/)
+## 美參議員要求中共國支付合計2.81萬億美金的中共病毒的救濟資金
+`2020-04-24 11:46 GM30` [轉載自GNews](https://gnews.org/zh-hant/183551/)
 
-**作者：滅共日記**
+**文：C-S**
 
-中行原油投資者 調解、做假口罩做成了土豪、遼甯省確診醫院、貴州保利鳳凰灣房地産開發公司欺騙業主、 牡丹江集中隔離俄國歸來人員集體抗議、曾經武漢的故事 現在哈爾濱上演…
+詹姆斯·愛德華·班克斯（James Edward Banks）是美國退伍軍人和政治家，是印第安納州第三國會區的美國代表。 他是共和黨人，此前曾擔任印第安納州參議院議員。
 
+班克斯先生在于4月23日Twitter上留言表示，他將分4期要求中共國支付合計2.81萬億美金的中共病毒的救濟資金。支付最後期限是7/31/2020。
 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24113740/IMG-3374-1.jpg)
+
+來源：[https://twitter.com/RepJimBanks](https://twitter.com/RepJimBanks)
 
 0
