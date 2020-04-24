@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普慶祝地球日周年、國家公園周和植樹節
-`2020-04-24 03:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/183193/)
+## 彭斯福總統感謝通用電氣醫療公司的工作人員
+`2020-04-24 03:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/183223/)
 
-四月二十二日，白宮南草坪上，川普總統和第一夫人、彭斯副總統和夫人以及多位官員，用植樹的行動來慶祝地球日周年、國家公園周和植樹節。川普總統並宣佈了國家公園將會開放以供美國民眾享用。
+彭斯副總統在兼顧冠狀病毒行動小組的繁忙工作之時，參觀了位於威斯康辛麥迪森的通用電氣醫療公司。他感謝了通用電氣醫療公司的工作人員，讚揚他們日以繼夜地工作生產美國人民急需的呼吸機。他們工作將使冠狀病毒疫情成為過去。
 
-出處： 
-[President Trump and First Lady Melania Trump Participate in Earth Day Celebration](https://youtu.be/rekx3XlWje4)
-[President Trump and First Lady Participates in a Tree Planting Ceremony](https://youtu.be/Jbu5VAPi3SE)
+出處：[Vice President Pence Visits GE Healthcare](https://youtu.be/XBxM2l-pHaw)
 
-*翻譯【Michelle】 字幕【1ia$】*
+翻譯：【Michelle】 字幕：【1ia$】
 
 1
