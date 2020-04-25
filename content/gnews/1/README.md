@@ -1,30 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員克魯茲欲立法關閉中共在美的宣傳機器
-`2020-04-25 09:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184195/)
+## 美國政要推文選譯0425
+`2020-04-25 12:28 GM09` [轉載自GNews](https://gnews.org/zh-hant/184362/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/25085237/1-218.jpg)
-根據華盛頓《自由燈塔》記者所獲得的立法文本，德克薩斯州參議員特德•克魯茲（Ted Cruz）即將宣布一項立法，該法案將阻止中共利用美國法律中的漏洞，使中國共產黨能夠通過與國家控制的新聞機構連接的廣播電台向美國進行宣傳 。
+作者：x
 
-中共的鳳凰衛視現正在利用該廣播電台在墨西哥的廣播塔，避開美國的法律，用中文向美國境內進行共產主義宣傳，這家墨西哥電台是一家中共背景的投資集團於2018年購買的。鳳凰衛視今年早些時候，它的一位記者在白宮舉行的關於冠狀病毒大流行的簡報會上，與特朗普總統面對面的對峙，引起了共和黨議員和其他人士的憤怒。由於其在有關冠狀病毒的起源和傳播而欺騙全世界而導致電台被關閉。這僅僅是國會目前與中共宣傳進行較量的一部分， 其它方面的立法還要求中共病毒造成的經濟損失賠償。
+> “The Chinese are already threatening with reactions if the report comes out,” Lutz Güllner, a European Union diplomat from Germany, wrote to colleagues on Tuesday in an email seen by The Times. Europeans need to know who their patsy is – the NYT found him [https://t.co/8X4JTSrBmg](https://t.co/8X4JTSrBmg)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254011201916469248?ref_src=twsrc%5Etfw)
 
-克魯茲的法案將禁止聯邦通信委員會向打算購買電台後改變其播放語種的任何人頒發許可證，從而彌補了美國法律中現有的漏洞。 就鳳凰衛視而言，該電視台的分支機構申請了FCC許可證，然後在控制了位於蒂華納附近的墨西哥無線電塔以後，開始用中文進行宣傳。
+凱爾·巴斯先生轉推：”對於即將出臺的有關報告，中共已經付諸實際的威脅。” 來至德國的歐盟外交官員Lutz Güllner，在周二寫給泰晤士報同仁的郵件中說道。歐洲人必須知道誰是他們的替罪羊-紐約時報找到了答案。
 
-儘管FCC尚未授予許可證，但該電台仍繼續以臨時許可證運行著。 在最初控制了該電台之後，新主人將其從西班牙語節目切換為中文節目。 現在整個南加州都可以聽到。
+> What?! [https://t.co/7oA7lYYMor](https://t.co/7oA7lYYMor)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1253975910342148096?ref_src=twsrc%5Etfw)
 
-如果獲得批准，克魯茲的法案將確保FCC不會授予該電台牌照，從而有效關閉鳳凰衛視在美國的廣播。 「中共不應該在墨西哥設點，覆蓋式地在美國進行宣傳。中國共產黨每年花費數十億美元購買新聞媒體，發動信息戰，以擴大其宣傳範圍，並極力為集權政府醜陋不堪的政治塗脂抹粉」 ，克魯茲告訴《自由燈塔》記者。
+斯伯丁將軍對於凱爾·巴斯先生發的推文感到震驚。
 
-克魯茲說： 「我期待重返國會並彌補FCC漏洞，使中共不能從墨西哥邊境發動信息戰，我將提出這項立法。」
+凱爾·巴斯先生推文：許多來之中共國的航班在美國阿拉斯加的安克拉治市降落後，許多旅客在此搭乘美國國內的航班飛往各地。這必須停止。為什麽我們對於中共持續的將潛在病毒不斷輸入和傳播到我們國家卻依然是社交距離中！
 
-鳳凰衛視一直利用FCC的漏洞，允許其在國內製作的內容通過位於美國境外更強大的廣播塔將內容播回到美國。 總部位於加利福尼亞州的鳳凰衛視在國內製作好內容後，利用功能強大的墨西哥電視台，可以確保其節目讓遠在加利福尼亞的美國人都能聽到。
+> .[@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) Seeks to Shut Down Chinese Propaganda Station Phoenix TV, via [@Kredo0](https://twitter.com/Kredo0?ref_src=twsrc%5Etfw)[https://t.co/P6hK3ihV8z](https://t.co/P6hK3ihV8z)
+> — Free Beacon (@FreeBeacon) [April 24, 2020](https://twitter.com/FreeBeacon/status/1253811064514449416?ref_src=twsrc%5Etfw)
 
-當新的電台業主試圖改變他們購買的電視台播放語言時，克魯茲的法案將禁止FCC向墨西哥邊境的廣播授予許可，除非FCC可以保證不受外國政府的影響。該法案還將適用於那些意圖在加拿大購買無線電塔面向美國廣播的人。
+華盛頓自由燈塔推文：參議員Ted Cruz正在致力於關閉中共大外宣鳳凰衛視。
 
-2018年，克魯茲向FCC提出了對H＆H Capital購買和控制墨西哥XEWW AM 690電台的擔憂，議員稱這是與鳳凰衛視和中共共同的投資集團。 他呼籲FCC不要給它頒發運營許可證。H＆H在很大程度上由Vivian Huo擁有，他是美國公民，北京人，他曾在多家中國媒體機構工作。克魯茲在2018年寫道：「據報道，這筆交易的真正受益人是鳳凰衛視。」
+> Wuhan pneumonia should be called SARS-2 after severe acute respiratory syndrome, the Chinese-originated pandrmic in 2003. But the Chinese Communist Party forced WHO to call it Covid-19 to avoid Beijing complicity. Tell the truth about CCP
+> — Bill Gertz (@BillGertz) [April 25, 2020](https://twitter.com/BillGertz/status/1253888643195973632?ref_src=twsrc%5Etfw)
 
-[原文链接](https://freebeacon.com/national-security/cruz-seeks-to-shut-down-chinese-propaganda-station-phoenix-tv/)
+比爾·格茨先生：武漢肺炎應該改名為Sars-2 ，即2003年起源於中共國的非典。但是中共卻迫使世界衛生組織稱之為Covid-19，以便為其洗地。
 
-翻譯報道：匿名
+> The Communist Party’s rule by fear endangers Chinese citizens—and the world [https://t.co/f3SeSBHzw9](https://t.co/f3SeSBHzw9)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1254045252232654849?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍推文：共產黨以威脅恐嚇的方式政治統治中國人民乃至全世界。
+
+> Today, [@SenRonJohnson](https://twitter.com/SenRonJohnson?ref_src=twsrc%5Etfw), [@SenThomTillis](https://twitter.com/SenThomTillis?ref_src=twsrc%5Etfw), [@SteveDaines](https://twitter.com/SteveDaines?ref_src=twsrc%5Etfw), [@SenKevinCramer](https://twitter.com/SenKevinCramer?ref_src=twsrc%5Etfw) & I requested that the Senate Appropriations Committee hold any funding for the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pending a Congressional investigation into their role in helping Communist China cover up info about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
+> Read ⬇️ [pic.twitter.com/t802jOr1TX](https://t.co/t802jOr1TX)
+> — Rick Scott (@SenRickScott) [April 24, 2020](https://twitter.com/SenRickScott/status/1253764161336684544?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott, Ron Johnson, Thom Tillis, Steve Daines以及Kevin Cramer聯名就有關中共對於ccp病毒相關事實信息的掩蓋，以及世衛組織在此所扮演的角色，要求參議院撥款委員會在國會對其調查期間停止任何對世衛組織的資金援助。
+
+> Aha! Just wait until the Chinese Wuhan Flu Virus 🦠 (CWFV) collides with the African horse sickness (AHS). How is the WHO to rename this fine fellow? [#Chinavirus](https://twitter.com/hashtag/Chinavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleaDied](https://twitter.com/hashtag/ChinaLiedPeopleaDied?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [https://t.co/ZHY3otvDhE](https://t.co/ZHY3otvDhE)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1253842443260375040?ref_src=twsrc%5Etfw)
+
+凱爾·巴斯先生推文: 哈哈！假如中共武漢流感與非洲馬瘟結合的新病毒🦠，世衛組織又該如何為其命名呢？！
+
+> Bannon: 95% of all deaths and economic carnage could have been avoided, had the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) told the truth
+> 
+> If [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) had simply come from a wet market, the CCP wouldn't have hid it[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> 👉 [https://t.co/6epKW1mS1H](https://t.co/6epKW1mS1H) [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [@AVoiceNews](https://twitter.com/AVoiceNews?ref_src=twsrc%5Etfw)
+> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 25, 2020](https://twitter.com/WarRoomPandemic/status/1254069024977272834?ref_src=twsrc%5Etfw)
+
+@疫情戰鬥室推文：班農說95%的死亡和經濟損失是完全可以避免，如果中共及時告訴了真相。如果病毒真是起源海鮮市場，中共完全沒有必要隱瞞。
 
 0
