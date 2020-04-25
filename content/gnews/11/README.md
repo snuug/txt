@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月24日CCP冠狀病毒大流行第90集
-`2020-04-24 15:02 GM33` [轉載自GNews](https://gnews.org/zh-hant/183706/)
+## 4月24日中共病毒疫情要聞快報
+`2020-04-25 00:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/183883/)
 
-[https://gtv.org//?videoid=5ea334fe3ce45778bc3fabbb](https://gtv.org//?videoid=5ea334fe3ce45778bc3fabbb)
+澳總理炮轟中共是「病毒」；紐約感染者或超人口總數14%；中共3000萬美金續命WHO ；原油寶暴跌受害者投訴無門！各地復學，學生集體感染頻發。
+
+
+
+製作：【上天造 滅疫組】
 
 0
