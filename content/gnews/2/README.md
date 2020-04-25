@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沒有共產黨的新中國藍圖：還給人民屬於自己的財富，權利，安全，真相！
-`2020-04-24 23:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/183879/)
+## 疫情當前，中共伸手要錢又要命，畸形醫療體制殘害百姓！“共渡難關，中共病毒疫情每日熱線”
+`2020-04-25 02:39 GM30` [轉載自GNews](https://gnews.org/zh-hant/183938/)
 
-製作：【上天造 滅疫組】
-
-
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
