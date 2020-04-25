@@ -1,259 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “大米”儲備簡明計算
-`2020-04-24 10:45 GM30` [轉載自GNews](https://gnews.org/zh-hant/183485/)
+## GTV和GNEWS平台四大鮮明特徵： 唯一性、去中心化、自我理想孵化器與正道主義守護神
+`2020-04-24 12:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/183631/)
 
-**作者：pvv**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24121405/WhatsApp-Image-2020-04-25-at-1.34.59-AM-1.jpeg)
 
-A.便捷計算數據
+作為爆料革命的核心人物郭文貴先生多次談到：GTV和GNEWS媒體平台對於華人和世界追求正義人士自由發聲與追求真相具有獨特的價值與意義。我從自己在GNEWS平台從事新聞翻譯報道的經驗出發，結合文貴先生相關直播與語音談話內容，總結出GTV和GNEWS的四大鮮明特徵：唯一性、 去中心化、 自我理想孵化器與正道主義守護神。
 
-成年男性每月耗米量估值爲 14.625 kg
+**不做第一但求唯一**
 
-成年女性每月耗米量估值爲 12.26 kg
+GTV及GNEWS媒體平台不以第一為目標，但求唯一為歸旨。唯一不是數量上的單一和壟斷，而是品質上的獨特個性與卓越永恆。對GTV和GNEWS來說，唯一也不是一種口號的喧囂與鼓噪，而是綜合條件與實力內涵的自然流露與顯現。具體而言，GTV和GNEWS平台是我們海內外華人唯一信賴的自由發聲與夢想實現平台。在這裡，西方世界能夠獲得真實的中國信息，國內同胞能看到海外世界的真實信息。GTV平台的唯一性是由她特殊的產生背景、經營理念、平台根基與人口受眾決定的。
 
-B.設定及可能性估算
+不同於一般的社交媒體，GTV平台產生的背景是郭文貴先生髮起的滅共爆料革命。這註定了GTV是在時刻與中共盜國賊控制的國家黑客與黨政軍、公檢法黑暗腐敗力量的廝殺戰鬥中，在運用科技、智慧、實力與不屈的堅強意志中成長起來的。GTV的經營理念高擎唯真不破與利他共生兩面旗幟。以真善狠碾壓中共盜國賊的假惡丑。以利他之向善與相攜，對戰友不拋棄、不放棄、不背離。 優於一般新聞和社交媒體的另一個顯著特點是，GTV與GNEWS有着深厚的平台投資與創業根基。在GTV平台，有投資、創業、時尚、數字支付、網絡會議與網上商店等強大的商業創新與交易功能。而且就受眾而言，GTV將創造包含14億同胞在內遍布世界各地的國際化、跨文化、多樣性且有良好信譽的超級流量受眾。
 
-1.設定值
+**去中心化**
 
-1千卡=4.184千焦，
+GTV平台的去中心化定位體現出郭文貴先生對當今時代科技與精神狀況本質的智慧洞見。對當今時代科技狀況的把握大致可以分為兩種。一種是中共盜國賊這個內賊與被藍金黃的華爾街及海外大佬名人為代表的外賊，把科技進步和發展作為鉗制、壓迫和剝奪他人自由、民主與權益以滿足無限膨脹而變態私慾的工具。這種思路的科技越發展，人民受壓迫與鐐銬的程度就越深。相反，爆料革命把先進科技進步作為破除中共網絡防火牆、數字監控和虛假信息的解碼利器。而且先進科技使天南海北、世界各地的戰友能夠無距離地感通彼此、相互交流並迅速集結。所以文貴先生說， “只要任何人懂一點道理，科技時代，科技時代到來的時候，媒體開放的時候，是全人類的智慧大迸發的時候。就是平台，在平台上迸發，就是去中心化。誰當中心誰就被去掉了。就這麼簡單，誰想死誰就當中心。” （郭先生4.19 語音）
 
-成年男性每日能量攝入= 2500千卡 = 10500千焦，
+除了科技時代平台功能的去中心化，人類的時代精神狀況與實踐智慧也要求去中心化。禪宗講“佛是自性作，莫向身（外）求。自性迷，佛即是眾生；自性悟，眾生即是佛。”一個人思想與生命覺悟的明了，好比一片森林裡的一株樹找到自己的位置。這顆樹找到自己的位置不體現在它多麼的依附和攀比林中最大的樹，而是它是否把自己的根深深扎向大地，在天地與風雨的大坐標與大際緣中展現獨特的秉性與姿彩。儘管當今西方政治與媒體敘事依然奉行推崇各樣各樣的領導力話語，作為爆料革命真正的修行人自會明白這其中有多少的痴幻迷失與欺騙狹隘。真正的領導是先找到自我，並讓他人也找到自我，在各美其美、美人之美、美美與共的生命時空里協奏出一首首美妙的生命交響樂。
 
-成年女性每日能量攝入= 2100千卡 = 8800千焦，
+**自我理想實現的孵化器**
 
-大米平均能量= 1400千焦/百克= 14000千焦/千克，
+前面的去中心化必然要求，每一個爆料革命戰友把GTV平台當成我們共同的家園，在這個家園裡每個人找到自己的位置，覺曉自己的使命，發揮各自的天賦，修行各自的善果。文貴先生頭腦很清醒地說，“任何一個平台開始的時候，一定有領頭的，一定有大智慧的，一定有一幫人，但是他自己離開這個中心越快，這個平台就越長大，他自己也越偉大。就這麼簡單，這道理搞不明白，就是捉死的嘛。”（4.19 Whatsup語音）這種領頭與領導人物的去中心化是為了讓每一個戰友在我們共同的平台上發揮最大的潛能。在遵守和捍衛GTV平台的唯真不破與向善利他之理念前提下，每個人都找到撬動宇宙奧妙與廣闊天地的自我支點。
 
-大米占每日能量來源比例= 50%-65%，取65%計，
+具體而言，怎麼能更好地找到自我、實現自我理想呢？郭文貴先生在4.19與“霹靂小皮匠”的直播連線及其它直播中就如何做好直播節目時談到，在堅持滅共、唯真不破，無我無私、正道主義的核心原則下，當每個人講自己親身經歷的、真實的經驗時，就會更加的流暢和有吸引力。這裡涉及到一個重要的實現自我理想的秘訣，就是不要盲從所謂的專家權威與熱點亮點等“高大上”話題，而是從自身出發挖掘自己所擅長的、所經驗到的、能夠最大化調動自己官能、積極性和天賦能力的那些視角與領域做起。
 
-1月=30日，
+**正道主義守護神**
 
-在能量計算上，蛋白質等價于碳水化合物，爲1克=4千卡 (1 g=4 kcal/Cal) ；脂肪爲1克=9千卡 (1 g=9 kcal/Cal) (來源：[https://www.nal.usda.gov/fnic/how-many-calories-are-one-gram-fat-carbohydrate-or-protein](https://www.nal.usda.gov/fnic/how-many-calories-are-one-gram-fat-carbohydrate-or-protein) )
+正道主義不僅是爆料革命與中華民族喜馬拉雅進程的價值目標，而且也是貫徹於其現實形成過程的鮮明價值立場與價值標準。正道主義是在批判吸收世界文明與中華文明各自優缺點的基礎上，在爆料革命進程中由郭文貴先生提出的，富有民族與時代特色，尊重法治、信仰、民主和正義，珍視家庭觀念、情理並重與重義守德，秉持弱勢、平民和草根立場的價值理念。面對國內與世界範圍內媒體傳媒領域正道主義被侵蝕與踐踏的現實空場，我們的GTV與GNEWS平台有實現正道主義的智慧自覺，更有實現正道主義的強大實力與有力手段。
 
-2.計算方法
+國內媒體早已經淪為黨國的意識形態喉舌、打手和盜國賊的殺人工具。尤其明顯的面對這次中共病毒首先在國內肆虐的悲慘現實，國內沒有一家能發聲報道疫情真相的媒體。只有一個民間的女作家記錄的《方方日記》，作者現在還遭受着國家級的羞辱與撻伐。世界範圍內西方國家知名的傳統與社交媒體也在這一次震顫人類歷史的爆料革命進程中露出了華麗表象下頹廢與陽痿的尷尬現實。面對世界範圍內媒體無冕之王信譽的污損與屈從於背後利益集團、漠視平民與草根、扭曲真相與正義的集體淪喪，我們GTV和GNEWS平台從不打着所謂的中立與客觀立場卻從事着與資本和權貴進行蠅營狗苟的骯髒和出賣靈魂的交易活動。相反，我們旗幟鮮明地表明我們的平民與草根立場，大膽而自由地對真相與事實發聲，勇敢而無畏地揭露國內與國外盜國賊的假惡丑，守護和高舉人類文明賴以延續和光大的深厚品德、法治、正義、信仰、民主與人權等價值理念。
 
-成年男性每月耗米量估值 (M) = 30·(10500·65%)/14000 = 30·0.4875 = 14.625 kg
+為何GTV和GNEWS平台對正道主義有這麼強烈的意識自覺和果敢行動？因為我們在與最醜陋的中共盜國賊們的戰鬥中打造出了強大而卓越的精神與實踐品格，而這種唯一性的精神與實踐品格會迅速地佔據因為世界範圍內主流媒體的品格墮落而留下的巨大人心、經濟與輿論市場空缺。而且GTV與GNEWS不只是一個新聞和媒體平台，而且還提供了保障和弘揚正道主義立場與宗旨的強大的投資、創業、數字支付與時尚產業的資本與財富生成根基。秉持強大而創生性的資本與財富平台與對真相與正義自由發聲的媒體平台這兩把正道主義之利劍，我們就能實現品德與福報、善因與善果、懲惡與揚善之間的永續正循環。
 
-成年女性每月耗米量估值 (F) = 30·(8800·65%)/14000 = 30·0.4086 = 12.26 kg
-
-3.可能性估算
-
-以下爲一男一女
-
-3-1.無配給，即每日能量來源全部來自儲備食品，65%能量源自大米，以安紅女士的“9個月到一年半”的建議來儲備：
-
-算例3-1（9個月）= (M+F)·9 = (14.625+12.26)·9 = 241.9 kg
-
-算例3-1（一年半）= (M+F)·18 = (14.625+12.26)·18 = 484 kg
-
-（“9個月到一年半” 來源：4/1/2020 路德時評（路安談）視頻00:09:27處，[https://www.youtube.com/watch?v=b6AEDIJAxQA](https://www.youtube.com/watch?v=b6AEDIJAxQA)）
-
-3-2.最低限度的政府配給，參考二戰後日本最低實際配給：775千卡/人/日（3243千焦），與設定值之差額全部由儲備食品補足，其中65%能量源自大米：
-
-成年男性每月耗米量估值 (M2) = (30·(10500-3243)·65%)/14000 = 10.11 kg
-
-成年女性每月耗米量估值 (F2) = (30·(8800-3243)·65%)/14000 = 7.74 kg
-
-算例3-2（9個月）= (M2+F2)·9 = 160.7 kg
-
-算例3-2（一年半）= (M2+F2)·18 = 321.3 kg
-
-3-3.一般配給標准，參考二戰同盟國駐日最高司令官總司令部，輕體力勞動下每日能量攝入標准爲1800千卡（7532千焦），與設定值之差額全部由儲備食品補足，其中65%能量源自大米：
-
-成年男性每月耗米量估值（M3）= (30·(10500-7532)·65%)/14000 = 4.14 kg
-
-成年女性每月耗米量估值（F3）= (30·(8800-7532)·65%)/14000 = 1.77 kg
-
-算例3-3（9個月）= (M3+F3)·9 = 53.2 kg
-
-算例3-3（一年半）= (M3+F3)·18 = 106.4 kg
-
-3-4.最樂觀的配給，參考2019年10月發布的《中國的糧食安全》白皮書，“中國居民平均每標准人日能量攝入量2172千卡”（9088千焦），與設定值之差額全部由儲備食品補足，其中65%能量源自大米：
-
-成年男性每月耗米量估值（M4）= (30·(10500-9088)·65%)/14000 = 1.97 kg
-
-成年女性每月耗米量估值（F4）= (30·(8800-9088)·65%)/14000 = -0.4 kg
-
-算例3-4（9個月）= (M4+F4)·9 = 14.2 kg
-
-算例3-4（一年半）= (M4+F4)·18 = 28.3 kg
-
-C.補充信息
-
-1.設定值說明
-
-大米占每日能量來源比例取65%計，是按相對糟糕的情況來計算。大米蛋白質含量約7%，碳水化合物含量約76%，即（比例取65%時）約有59%的每日總能量由（大米的）碳水化合物提供。
-
-若實際飲食中，大米提供的能量占比小（例如部分能量來源于午餐肉、牛奶中含有的碳水化合物和脂肪等），則以65%計算的估值，相當于增加維持時日（相應的其他食物的儲備需求量增加）。
-
-例如，若實際大米作爲能量來源占比50%，則，算例3-1的9個月耗米量可維持=241.9/(11.25+9.43) = 11.7 月
-
-((30·10500·50%)/14000 = 11.25 kg； (30·8800·50%)/14000 = 9.43 kg）
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24103625/5-61.jpg)
-
-2.男女日耗能量標准設定參考
-
-綜合以下信息，設定爲男性2500千卡/人/日，女性2100千卡/人/日（懷孕後期女性2400千卡/人/日，方便計算可取男性數值），基本覆蓋各年齡區間的中度體力活動水平以下的日能量需求。
-
-2-1.歐美信息
-
-2-1-1. “Recommended daily calorie intakes in the US are around 2,500 for men and 2,000 for women. ” 每日能量攝入美國推薦量爲男性約2500千卡，女性約2000千卡。
-
-(來源：https://www.medicalnewstoday.com/articles/245588#recommended-intake)
-
-2-1-2. 2015-2020 Dietary Guidelines for Americans. 具體能量攝入估計值見其附表2。
-
-(來源：https://health.gov/our-work/food-nutrition/2015-2020-dietary-guidelines/guidelines/appendix-2/)
-
-2-1-3. “Estimated energy expenditure was determined to be approximately 3,600 kcal per day (15.1 MJ/d) for normal operations and 4,900 kcal per day (20.5 MJ/d) for combat operations. “
-
-“Normal” operations were considered missions comparable to urban police and peace keeping, firefighting or construction work, while “Combat”operations represented missions involving sustained, dismounted light-infantry or Special Forces operations.
-
-北約2009年頒布的《推薦的營養素攝入量》，普通任務分級適用于警察、治安維護、消防及建築工作，其日能量消耗估計值爲3600千卡；戰鬥任務的日能量消耗估計值爲4900千卡。
-
-(來源：Nutrition Science and Food Standards for Military Operations，TR-HFM-154 )
-
-2-1-4. “individual operational rations be distributed such that dietary carbohydrate contributes 45-65%… therefore the lower limit for protein content of the general purpose, individual ration would be 118 g or 13% of a 3,600 kcal (15.1MJ) ration… no more than 35% of the total ration energy content should be derived from fat.”
-
-北約標准，2019年版《軍用單兵作戰食品定量需求》每日飲食能量占比，能量源于碳水化合物45-65%，源于蛋白質不低于13%，源于脂肪不應超過35%.
-
-(來源：AMedP-1.11\_EDB\_V1\_E\_2937, APRIL 2019 )
-
-2-1-5. “For dietary protein content, a reasonable estimate of the lower limit for content can be calculated using the midpoint for the range recommended for athletes which is 1.5 g/kg body weight.”
-
-飲食中獲取蛋白質，合理的估算爲每日每千克體重1.5克蛋白質。
-
-(來源：AMedP-1.11\_EDB\_V1\_E\_2937, APRIL 2019.
-
-Position of the Academy of Nutrition and Dietetics, Dietitians of Canada, and the American College of Sports Medicine: Nutrition and Athletic Performance. J. Am. Diet. Assoc. 111(3):501-28; 2016)
-
-2-1-6. “For most normal-weight pregnant women, the right amount of calories is: About 1,800 calories per day during the first trimester. About 2,200 calories per day during the second trimester. About 2,400 calories per day during the third trimester.”
-
-孕期女性于前中後期的能量需求
-
-(來源：https://medlineplus.gov/ency/patientinstructions/000584.htm )
-
-2-2.中文信息
-
-2-2-1. “中國居民平均每標准人日能量攝入量2172千卡，蛋白質65克，脂肪80克，碳水化合物301克”
-
-(來源：http://m.xinhuanet.com/2019-10/14/c\_1125103730.htm，《中國的糧食安全》白皮書 )
-
-2-2-2. 陸勤人員輕度勞動每日膳食能量：2600千卡-3000千卡
-
-(來源：《GJB823B－2016&lt;軍人營養素供給量&gt;的修訂》，解放軍預防醫學雜志2017年1月 第35卷 第1期 )
-
-2-2-3. “其中蛋白質供能比均符合軍標（12%-15%）規定，而脂肪供能比均超過軍標（20%-30%）規定，碳水化合物供能比低于軍標（55%-65%）規定。”
-
-(來源：《飲食營養關乎戰鬥力》，解放軍報，2018年12月16日 )
-
-3.可能性估算的信息參考
-
-3-1. Chrissie Tate Reilly. Food Fight: Eating and Identity in Japan during the Second World War. International Journal of Arts and Sciences 3(8): 188 – 209 (2010)
-
-二戰中各種因素共同塑造了日本民衆對大米的（這個由戰時日本政府推廣的）文化認同。
-
-二戰前日本飲食能量標准：2300千卡/人/日 ；最低營養標准：2165千卡/人/日，包括76g蛋白質。
-
-二戰臨終日本實際能量攝入：1782千卡/人/日
-
-3-2. Solt, George. The Untold History of Ramen. (University of California Press: Berkeley, California. 2014). Chapter. 2. p. 70.
-
-“The same report states that the average Tokyo resident received 70 percent of the official ration, or roughly 775 calories per day between March and June of 1946. “
-
-二戰後日本實際最低配給（東京居民于1946年3月至6月）：775千卡/人/日
-
-3-3. Aaron Goh. An Investigation into the Nature of Nutrition in Post-War Occupied Japan. The Quarterly of East Asian Studies. Vol. 1. 2014
-
-戰後盟軍占領時期（1945-1952）日本營養狀況調查，作者認爲盟軍占領時期日本並沒有發生大面積饑荒，而是營養不良。
-
-占領時期日本人均實際能量攝入 = 2000千卡/人/日
-
-同盟國駐日最高司令官總司令部，輕體力勞動下的能量攝入標准 = 1800千卡/人/日
-
-同盟國駐日最高司令官總司令部，日本成年人最低生存的能量攝入標准 = 1280千卡/人/日（ “1280 calories that was defined as the bare minimum for a Japanese adult” ；此爲當時西方標准的80%，即西方標准 = 1280/80%=1600千卡/人/日）
-
-D.其他實用信息
-
-聲明：本文作者只是普通囤糧者。本文作者與食品行業無任何利益相關。文章僅代表個人觀點。在此感謝友人們提供的信息。
-
-1.品牌大米的能量值比較
-
-部分大米營養成分表調查，籼米在能量上具有0%-7%的微弱儲備優勢。
-
-同時，籼米的蛋白質含量較粳米高約2%.
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24103132/1-142.png)
-
-2.同體積下，相比脫脂牛奶，全脂牛奶在能量上具有明顯儲備優勢，多出約80%或更高。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24103253/2-85.png)
-
-（來源：[https://www.dairycouncil.co.uk/consumers/faqs/what-is-the-calorie-content-of-milk](https://www.dairycouncil.co.uk/consumers/faqs/what-is-the-calorie-content-of-milk)）
-
-3.部分蛋白質來源
-
-3-1.鲮魚罐頭，金槍魚罐頭，午餐肉罐頭等。
-
-當需要消耗罐頭食品時，先吃鲮魚罐頭，再吃金槍魚罐頭，最後吃午餐肉罐頭；午餐肉罐頭正常儲存3-5年不影響其食品質量，在合理儲存情況下可達10年。
-
-3-2.煉奶（煉乳）
-
-相比不加糖煉奶，加糖煉奶在保質期及能量上具有儲備優勢。
-
-罐裝煉奶的儲存壽命可達其保質期後的一年。”While still in the can, condensed milk will have a shelf life of about a year past the printed expiration date.”
-
-（來源：[https://www.canitgobad.net/can-condensed-milk-go-bad/](https://www.canitgobad.net/can-condensed-milk-go-bad/) ）
-
-加入煉奶的麥片粥，是簡單有效的能量補充，此爲本文作者個人經驗。
-
-3-3.奶粉
-
-未開袋開罐使用過的奶粉，很可能在其最佳食用日期後的2-10年仍可食用。
-
-“An unopened package is probably still usable for 2 to 10 years after the printed “best by” date. “
-
-注意，32攝氏度儲存約2年，或21攝氏度儲存約4年，奶粉會有難喝的味道。
-
-（來源：[https://www.thespruceeats.com/does-powdered-milk-go-bad-1388298](https://www.thespruceeats.com/does-powdered-milk-go-bad-1388298) ）
-
-4.脫水蔬菜、凍幹蔬菜水果
-
-脫水蔬菜類似于方便面裏的脫水蔬菜包，現在可以買到大包裝的。但質量存疑。
-
-5.料理包（軟罐頭）
-
-例如好侍牌味嘟嘟咖喱，保質期24個月。料理包生産商很多，質量良莠不齊，保質期一般爲12個月左右。
-
-6.方便面，方便粉絲
-
-方便面保質期一般爲6個月，方便粉絲10-12個月。
-
-7.膳食纖維
-
-麥片、土豆、菌類、堅果、蔬菜水果富含膳食纖維；市面有售膳食纖維（纖維素）保健品。
-
-攝入膳食纖維可預防及緩解便秘。推薦攝入量爲每日25-30克。
-
-每日應從食品（而非保健品）中攝入25-30克膳食纖維。”Total dietary fiber intake should be 25 to 30 grams a day from food, not supplements.”
-
-（來源：[https://www.ucsfhealth.org/education/increasing-fiber-intake](https://www.ucsfhealth.org/education/increasing-fiber-intake) ）
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24103449/3-67.png)
-
-此表爲美國建議標准，美國現狀是成年人每日人均10-15克。 “On average, American adults eat 10 to 15 grams of total fiber per day”
-
-（來源：[https://www.health.harvard.edu/blog/should-i-be-eating-more-fiber-2019022115927](https://www.health.harvard.edu/blog/should-i-be-eating-more-fiber-2019022115927)）
-
-未開封快煮麥片儲存壽命約2-3年。（來源：[https://www.eatbydate.com/grains/cereal/how-long-does-oatmeal-last-shelf-life-expiration-date-storage/](https://www.eatbydate.com/grains/cereal/how-long-does-oatmeal-last-shelf-life-expiration-date-storage/)）
-
-密封罐體儲存麥片，可在20年甚至更長時間後仍可食用。
-
-結語
-
-亡羊補牢猶未晚，願您做最壞准備最好希望（Hope for best, but prepare for the worst. ）；理性購買和儲備食品，讓自己活也讓別人活。
-
-（文章內容僅代表作者觀點）
+作者：心聲
 
 0
