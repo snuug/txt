@@ -1,52 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港時事(4.13-24)
-`2020-04-25 10:56 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/184283/)
+## 聯邦通信委員會有意禁止三家在美經營的中共國有電信公司
+`2020-04-25 11:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184319/)
 
-[https://spark.adobe.com/page/16pzbOjRdV3CR/](https://spark.adobe.com/page/16pzbOjRdV3CR/)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/25112043/%E8%81%94%E9%82%A6%E9%80%9A%E4%BF%A1%E5%A7%94%E5%91%98%E4%BC%9A%E6%9C%89%E6%84%8F%E7%A6%81%E6%AD%A2%E4%B8%89%E5%AE%B6%E5%9C%A8%E7%BE%8E%E7%BB%8F%E8%90%A5%E7%9A%84%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%9C%89%E7%94%B5%E4%BF%A1%E5%85%AC%E5%8F%B8.jpg)
+據路透社報道，聯邦通信委員會（FCC）有意強制禁止三家中共國有電信公司在美國運營，除非他們可證明公司不受中共政權控制。通信委員會於4月24日向“中國電信美洲”，“中國聯通美洲”，“太平洋網絡公司”及其全資子公司“信通電話（美國）”，分別發出了“理由陳述令”，要求他們自證清白，否則將撤銷其在美國經營的授權。
 
-*作者：玄天生*
+此舉是美國聯邦通信委員會的最新舉措，為擊破中共電信公司所造成的美國國家安全隱患。委員會主席阿吉特·派（Ajit Pai）在聲明中表示，這份命令反映了聯邦機構對這些公司的深層顧慮，考慮到它們是中共國有的實體子公司，必然極易受到中共利用、影響和控制。委員會還表示，太平洋網絡公司以批發商的形式向美國運營商轉售國際語音服務及數據，而信通電話公司則提供國際終端服務，全球SIM卡服務，國際電話卡服務和轉接服務。
 
-*校閱：Julia Win*
+中國電信美洲是中共國有電信公司在美國的子公司。該公司發言人當被問及陳述令時，未立刻作出回應。而陳述令中提到的其他幾家公司也沒有回應。
 
-**引言：不要放棄，就算前路艱難，可以小休，但不要輕生，世界已經覺醒，曙光正在來臨，香港還需要你們來重建。**
+本月初，美國司法部和其他聯邦機構建議聯邦通信委員會撤銷中國電信在美國的運營授權，理由是該公司會帶來“重大而難以接受的國家安全隱患和執法風險”，該公司在美國的業務性質是為背後有中共政府支援的黑客提供機會從事間諜活動和破壞美國通信。對此，中國電信否認了以上指控。中國電信此前已因多次將海外互聯網數據流量轉向中國而受到審查，被轉向的資料或已被中共政權獲取。
 
-中共對香港的控制已經徹底放棄偽善的面具，直接霸王硬上弓。最明顯的是基本法第二十二條，解釋法律權力在中共，執行法律是港共、監督權力在中共，那錯的肯定是百姓了。我們真的活在一個不同維度的世界。一國兩制明擺着就是一個騙局，一場無法兌現的空頭支票。真是「龍門任我擺，飄移境界」。當權力完全掌握在中共邪魔體制下，沒有監督、不用問責，那麼老百姓只能是待宰的羔羊。大家還記得，中聯辦新主任–駱惠宁，在見記者時雙腿抖動的情節，還有調任到公務員事務局局長聶德權在見記時，雙手抖震。不知是身體問題、還是心虛見記者緊張呢﹖([新聞鏈接](https://www.thestandnews.com/politics/%E6%99%A4%E5%82%B3%E5%AA%92%E6%99%82%E5%9A%B4%E9%87%8D%E6%89%8B%E9%9C%87-%E4%B8%A6%E9%9D%9E%E9%A6%96%E6%AC%A1-%E8%81%B6%E5%BE%B7%E6%AC%8A%E5%81%A5%E5%BA%B7%E5%8F%97%E9%97%9C%E6%B3%A8/))
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/3720841d-80d7-4330-9df1-b0e2be5f0416.png?asset_id=cbf047e2-ec84-49f1-b8f2-08c9d269b13f&amp;img_etag=f7932b802bb94d88d47c06b917d69b7f&amp;size=1024)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/3720841d-80d7-4330-9df1-b0e2be5f0416.png?asset_id=cbf047e2-ec84-49f1-b8f2-08c9d269b13f&amp;img_etag=f7932b802bb94d88d47c06b917d69b7f&amp;size=1024)立場新聞圖片
-再看，疫情下，港共政府宣佈限聚令延遲到5月7日，而且接下來的日子更是中共不想提、也避諱的時間，6月4日和香港6月9日。由於「敏感日子」將到來，警方開始動用手中的權力打壓市民，更有人拍到，本不超過4人卻任意多捉人來充當人數。由此可見，法律不僅不能約束到他們，反而成為他們打壓市民的工具。就算日後社會回復正常，若沒有合法對施暴者的審判，等來的就是私仇的報復。
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/4afff188-e658-4fbf-8a2e-ab4b4a9d6c30.png?asset_id=7237ee77-68a2-401b-a170-6d47c619100b&amp;img_etag=c50cbe165e1557ca3dc1d891123764b8&amp;size=1024)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/4afff188-e658-4fbf-8a2e-ab4b4a9d6c30.png?asset_id=7237ee77-68a2-401b-a170-6d47c619100b&amp;img_etag=c50cbe165e1557ca3dc1d891123764b8&amp;size=1024)Free HK Media ree HK Media 片段截圖
-- [事發片段22/04/2020 尚德停車場截查行動](https://twitter.com/pigson0127/status/1253191319846969344?s=20)(推特)
-- [港警濫用限聚令打壓人權？ 「敏感日子」告票量激增](https://hk.aboluowang.com/2020/0424/1441205.html) (阿波羅新聞)
-- [網媒指警稱「擸多個過嚟咪夠囉」](https://www.thestandnews.com/politics/%E7%9D%87%E7%89%87-%E9%99%B3%E5%BD%A5%E9%9C%96%E9%80%9D%E4%B8%96%E4%B8%83%E5%80%8B%E6%9C%88-%E8%AD%A6%E5%80%9F-%E9%99%90%E8%81%9A%E4%BB%A4-%E6%9F%A5%E8%A8%98%E8%80%85%E5%B8%82%E6%B0%91-%E7%B6%B2%E5%AA%92%E6%8C%87%E8%AD%A6%E7%A8%B1-%E6%93%B8%E5%A4%9A%E5%80%8B%E9%81%8E%E5%9A%9F%E5%92%AA%E5%A4%A0%E5%9B%89/?fbclid=IwAR0POz2PJfNPb8InJrAuYY9YdO74Vo0b9y190W-DA9yeCM21a_2xwji0spw)(立場新聞)
+通信委員會專員傑弗里·斯塔克斯（Geoffrey Starks）對委員會的決定表示歡迎，尤其是在疫情期間網絡使用量激增的情況下，更需要確保網絡通信安全，因此也更需要格外仔細審視與美國通信網絡互連的對象。
 
+參議員湯姆·科頓（Tom Cotton）也支持通信委員會的舉措，並在聲明中表示，無論這些中共國有的電信公司如何叫屈，也不能改變他們確為共產黨服務的本質，只要它們持續在美國運營，就會對網絡安全構成威脅。
 
-另一則是警方在FB社交媒體下發文，20歲大專生被激化仇警，製造遙控引爆炸彈。然而事實是怎樣呢？請見下圖。
+去年五月，聯邦通信委員會一致投票否決了另一家中共國有電信公司中國移動（China Mobile）在美營業的權力，理由是中共政府可能會利用機會針對美國政府進行間諜活動。
 
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/e4ac51ff-b4e5-4cc3-9a07-89f1e9a1a109.jpg?asset_id=4c15ddc1-840b-4ee0-947a-539def71a4ac&amp;img_etag=bfff663d42fd877bfa9986c4e7983f20&amp;size=2560)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/e4ac51ff-b4e5-4cc3-9a07-89f1e9a1a109.jpg?asset_id=4c15ddc1-840b-4ee0-947a-539def71a4ac&amp;img_etag=bfff663d42fd877bfa9986c4e7983f20&amp;size=1024) 推友HoSaiLei圖片鏈接EOD
+通信委員會專員布倫丹·卡爾（Brendan Carr）最近在接受《大紀元》採訪時表示，委員會正在從上至下地審查目前參與美國電信網絡的可能為中共所掌控的所有公司。
 
-由此可見，任何工具，只要警方需要，就可以拿來充當你的犯罪證據，尤其你是年輕人。當然許多不合理事，在香港依然每天發生，也見證當權力無法被監督時，法律自然也會成為當權者的工具。
-
-- [【 拘捕20歲大專生 • 製造遙控引爆炸彈】](https://www.facebook.com/HongKongPoliceForce/photos/pb.960526577368640.-2207520000../3123343054420304)(警方FB)
-- [【EOD】今次仆街了 以為上緊STEM堂 點知原來係整緊遙控炸彈](https://twitter.com/hkbhkese/status/1253193791533531142?s=20)(推特)
-- [警方高調話人整炸彈時，可唔可以拎啲Juicy啲嘅証據？](https://medium.com/@it9gamelog/popo-insist-20yo-student-making-bomb-48ac8b6339c9)(I.T. 9 遊戲日誌)
-- [Interesting. #HongKongPolice tweeted out the electronics in their supposed bomb plot (spoiler: they found no explosives).](https://twitter.com/HKGTranslator/status/1253243501225050118?s=20)(推特)
-
-
-筆者在此呼籲，香港年輕人請保護好自己！深明面對這種極權你們心中的無奈和無助，但也請不要輕生。勝利的曙光正在到來，香港還需要你們來重建、榮耀。外界也有許多正義的力量，以各種方式支持我們這場運動。請你們珍惜生命！
-
-- [“Lunch with you” flash mob protest in #IFC, #Central](https://twitter.com/nikki_miumiu/status/1253562524374454273?s=20)(推特)
-- [東區手足 黃大仙手足](https://twitter.com/fai3cing1/status/1253660108371841029?s=20)(推特)
-
-
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/02610b05-4061-418f-9bb4-f44d8095cd1c.jpg?asset_id=c72318bf-39ec-433b-8e76-ca6f74264613&amp;img_etag=5b90397c3d4dd976a9c91814294f009f&amp;size=2560)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/02610b05-4061-418f-9bb4-f44d8095cd1c.jpg?asset_id=c72318bf-39ec-433b-8e76-ca6f74264613&amp;img_etag=5b90397c3d4dd976a9c91814294f009f&amp;size=1024)
-
-香港文宣、來源：[Averageguy](https://www.facebook.com/101884464535694/posts/244995736891232/?d=n)[香港文宣鏈結](https://www.collaction.hk/lab/extradition_gallery?fbclid=IwAR05uR6Cm6fapAxqM_qo2_7QaNJxQ9vWSZTAOCD93DknChvmgKwImuW9o4U)
-
-文章內容僅代表作者個人觀點
-
-嗚謝圖片來源，立場新聞、香港文宣、推特友圖片、Free HK Media ree HK Media 圖片、unsplash 、pixabay。
-
-**編輯 【喜馬拉雅戰鷹團】**
+[原文鏈接](https://www.theepochtimes.com/fcc-threatens-to-bar-three-chinese-state-controlled-telecom-firms-from-operating-in-us_3325842.html)
+翻譯報道：文天
 
 0
