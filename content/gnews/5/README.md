@@ -1,27 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 聯邦通信委員會有意禁止三家在美經營的中共國有電信公司
-`2020-04-25 11:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184319/)
+## 美國政要推文選譯0425
+`2020-04-25 12:28 GM09` [轉載自GNews](https://gnews.org/zh-hant/184362/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/25112043/%E8%81%94%E9%82%A6%E9%80%9A%E4%BF%A1%E5%A7%94%E5%91%98%E4%BC%9A%E6%9C%89%E6%84%8F%E7%A6%81%E6%AD%A2%E4%B8%89%E5%AE%B6%E5%9C%A8%E7%BE%8E%E7%BB%8F%E8%90%A5%E7%9A%84%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%9C%89%E7%94%B5%E4%BF%A1%E5%85%AC%E5%8F%B8.jpg)
-據路透社報道，聯邦通信委員會（FCC）有意強制禁止三家中共國有電信公司在美國運營，除非他們可證明公司不受中共政權控制。通信委員會於4月24日向“中國電信美洲”，“中國聯通美洲”，“太平洋網絡公司”及其全資子公司“信通電話（美國）”，分別發出了“理由陳述令”，要求他們自證清白，否則將撤銷其在美國經營的授權。
+作者：x
 
-此舉是美國聯邦通信委員會的最新舉措，為擊破中共電信公司所造成的美國國家安全隱患。委員會主席阿吉特·派（Ajit Pai）在聲明中表示，這份命令反映了聯邦機構對這些公司的深層顧慮，考慮到它們是中共國有的實體子公司，必然極易受到中共利用、影響和控制。委員會還表示，太平洋網絡公司以批發商的形式向美國運營商轉售國際語音服務及數據，而信通電話公司則提供國際終端服務，全球SIM卡服務，國際電話卡服務和轉接服務。
+> “The Chinese are already threatening with reactions if the report comes out,” Lutz Güllner, a European Union diplomat from Germany, wrote to colleagues on Tuesday in an email seen by The Times. Europeans need to know who their patsy is – the NYT found him [https://t.co/8X4JTSrBmg](https://t.co/8X4JTSrBmg)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254011201916469248?ref_src=twsrc%5Etfw)
 
-中國電信美洲是中共國有電信公司在美國的子公司。該公司發言人當被問及陳述令時，未立刻作出回應。而陳述令中提到的其他幾家公司也沒有回應。
+凱爾·巴斯先生轉推：”對於即將出臺的有關報告，中共已經付諸實際的威脅。” 來至德國的歐盟外交官員Lutz Güllner，在周二寫給泰晤士報同仁的郵件中說道。歐洲人必須知道誰是他們的替罪羊-紐約時報找到了答案。
 
-本月初，美國司法部和其他聯邦機構建議聯邦通信委員會撤銷中國電信在美國的運營授權，理由是該公司會帶來“重大而難以接受的國家安全隱患和執法風險”，該公司在美國的業務性質是為背後有中共政府支援的黑客提供機會從事間諜活動和破壞美國通信。對此，中國電信否認了以上指控。中國電信此前已因多次將海外互聯網數據流量轉向中國而受到審查，被轉向的資料或已被中共政權獲取。
+> What?! [https://t.co/7oA7lYYMor](https://t.co/7oA7lYYMor)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1253975910342148096?ref_src=twsrc%5Etfw)
 
-通信委員會專員傑弗里·斯塔克斯（Geoffrey Starks）對委員會的決定表示歡迎，尤其是在疫情期間網絡使用量激增的情況下，更需要確保網絡通信安全，因此也更需要格外仔細審視與美國通信網絡互連的對象。
+斯伯丁將軍對於凱爾·巴斯先生發的推文感到震驚。
 
-參議員湯姆·科頓（Tom Cotton）也支持通信委員會的舉措，並在聲明中表示，無論這些中共國有的電信公司如何叫屈，也不能改變他們確為共產黨服務的本質，只要它們持續在美國運營，就會對網絡安全構成威脅。
+凱爾·巴斯先生推文：許多來之中共國的航班在美國阿拉斯加的安克拉治市降落後，許多旅客在此搭乘美國國內的航班飛往各地。這必須停止。為什麽我們對於中共持續的將潛在病毒不斷輸入和傳播到我們國家卻依然是社交距離中！
 
-去年五月，聯邦通信委員會一致投票否決了另一家中共國有電信公司中國移動（China Mobile）在美營業的權力，理由是中共政府可能會利用機會針對美國政府進行間諜活動。
+> .[@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) Seeks to Shut Down Chinese Propaganda Station Phoenix TV, via [@Kredo0](https://twitter.com/Kredo0?ref_src=twsrc%5Etfw)[https://t.co/P6hK3ihV8z](https://t.co/P6hK3ihV8z)
+> — Free Beacon (@FreeBeacon) [April 24, 2020](https://twitter.com/FreeBeacon/status/1253811064514449416?ref_src=twsrc%5Etfw)
 
-通信委員會專員布倫丹·卡爾（Brendan Carr）最近在接受《大紀元》採訪時表示，委員會正在從上至下地審查目前參與美國電信網絡的可能為中共所掌控的所有公司。
+華盛頓自由燈塔推文：參議員Ted Cruz正在致力於關閉中共大外宣鳳凰衛視。
 
-[原文鏈接](https://www.theepochtimes.com/fcc-threatens-to-bar-three-chinese-state-controlled-telecom-firms-from-operating-in-us_3325842.html)
-翻譯報道：文天
+> Wuhan pneumonia should be called SARS-2 after severe acute respiratory syndrome, the Chinese-originated pandrmic in 2003. But the Chinese Communist Party forced WHO to call it Covid-19 to avoid Beijing complicity. Tell the truth about CCP
+> — Bill Gertz (@BillGertz) [April 25, 2020](https://twitter.com/BillGertz/status/1253888643195973632?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：武漢肺炎應該改名為Sars-2 ，即2003年起源於中共國的非典。但是中共卻迫使世界衛生組織稱之為Covid-19，以便為其洗地。
+
+> The Communist Party’s rule by fear endangers Chinese citizens—and the world [https://t.co/f3SeSBHzw9](https://t.co/f3SeSBHzw9)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1254045252232654849?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍推文：共產黨以威脅恐嚇的方式政治統治中國人民乃至全世界。
+
+> Today, [@SenRonJohnson](https://twitter.com/SenRonJohnson?ref_src=twsrc%5Etfw), [@SenThomTillis](https://twitter.com/SenThomTillis?ref_src=twsrc%5Etfw), [@SteveDaines](https://twitter.com/SteveDaines?ref_src=twsrc%5Etfw), [@SenKevinCramer](https://twitter.com/SenKevinCramer?ref_src=twsrc%5Etfw) & I requested that the Senate Appropriations Committee hold any funding for the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pending a Congressional investigation into their role in helping Communist China cover up info about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
+> Read ⬇️ [pic.twitter.com/t802jOr1TX](https://t.co/t802jOr1TX)
+> — Rick Scott (@SenRickScott) [April 24, 2020](https://twitter.com/SenRickScott/status/1253764161336684544?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott, Ron Johnson, Thom Tillis, Steve Daines以及Kevin Cramer聯名就有關中共對於ccp病毒相關事實信息的掩蓋，以及世衛組織在此所扮演的角色，要求參議院撥款委員會在國會對其調查期間停止任何對世衛組織的資金援助。
+
+> Aha! Just wait until the Chinese Wuhan Flu Virus 🦠 (CWFV) collides with the African horse sickness (AHS). How is the WHO to rename this fine fellow? [#Chinavirus](https://twitter.com/hashtag/Chinavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleaDied](https://twitter.com/hashtag/ChinaLiedPeopleaDied?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [https://t.co/ZHY3otvDhE](https://t.co/ZHY3otvDhE)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1253842443260375040?ref_src=twsrc%5Etfw)
+
+凱爾·巴斯先生推文: 哈哈！假如中共武漢流感與非洲馬瘟結合的新病毒🦠，世衛組織又該如何為其命名呢？！
+
+> Bannon: 95% of all deaths and economic carnage could have been avoided, had the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) told the truth
+> 
+> If [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) had simply come from a wet market, the CCP wouldn't have hid it[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> 👉 [https://t.co/6epKW1mS1H](https://t.co/6epKW1mS1H) [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [@AVoiceNews](https://twitter.com/AVoiceNews?ref_src=twsrc%5Etfw)
+> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 25, 2020](https://twitter.com/WarRoomPandemic/status/1254069024977272834?ref_src=twsrc%5Etfw)
+
+@疫情戰鬥室推文：班農說95%的死亡和經濟損失是完全可以避免，如果中共及時告訴了真相。如果病毒真是起源海鮮市場，中共完全沒有必要隱瞞。
 
 0
