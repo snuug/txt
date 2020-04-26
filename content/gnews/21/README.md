@@ -1,30 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共假借抗疫之名 為增強其全球影響力 砸巨資繼續藍金黃世衛組織
-`2020-04-25 04:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184016/)
+## 美國政要推文選譯0425
+`2020-04-25 12:28 GM09` [轉載自GNews](https://gnews.org/zh-hant/184362/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/14140756/fullsizeoutput_2b72.jpeg)圖片來源：Fox News
-據美國商業內幕網（Business Insider）近日報導，隨著美國削減資金，中共向世衛組織（WHO）注資數千萬美元。專家稱此舉是一項政治舉動，中共表面是“抗擊中共冠狀病毒”大流行，實則是想伺機“提高其膚淺信譽“，打擊美國的全球影響力。
+作者：x
 
-上個月，中共已經向該世衛組織認捐了2000萬美元。中共外交部發言人耿爽在這週四的新聞發布會上表示，中共將向該組織額外注資3000萬美元。
+> “The Chinese are already threatening with reactions if the report comes out,” Lutz Güllner, a European Union diplomat from Germany, wrote to colleagues on Tuesday in an email seen by The Times. Europeans need to know who their patsy is – the NYT found him [https://t.co/8X4JTSrBmg](https://t.co/8X4JTSrBmg)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254011201916469248?ref_src=twsrc%5Etfw)
 
-在美國宣布凍結對世衛組織的4億美元付款的計劃一周之後，中共就進行了現金注入。在此之前，美國是該組織最大的財政捐助國。根據公開數據，截至2019年底，中共向世衛組織捐款8600萬美元，包括分攤會費7580萬美元和自願捐款1020萬美元；而美國的捐款則高達8.93億美元，分攤會費2.36億美元，自願捐款6.56億美元。
+凱爾·巴斯先生轉推：”對於即將出臺的有關報告，中共已經付諸實際的威脅。” 來至德國的歐盟外交官員Lutz Güllner，在周二寫給泰晤士報同仁的郵件中說道。歐洲人必須知道誰是他們的替罪羊-紐約時報找到了答案。
 
-目前尚不清楚美國是否會削減評定會費或自願捐款。其他非政府組織，例如比爾和梅琳達·蓋茨基金會，在2019年向世衛組織提供了5.31億美元的自願捐款。
+> What?! [https://t.co/7oA7lYYMor](https://t.co/7oA7lYYMor)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1253975910342148096?ref_src=twsrc%5Etfw)
 
-川普總統上週在一份中共冠狀病毒新聞發布會上說，該組織“未能以及時，透明的方式充分獲取和共享信息”。川普指責世衛組織協助中共隱瞞和壓制有關疫情信息。川普政府特別批評了世衛組織在一月中旬聲稱並未得知病毒有人傳人的說法​​。同時，日本副首相兼財務大臣麻生太郎上個月也稱世衛組織為“中共衛生組織”，指其與中共關係密切。
+斯伯丁將軍對於凱爾·巴斯先生發的推文感到震驚。
 
-專家認為中共對世衛組織的貢獻並不是善意的舉動，而是一系列旨在增強其全球形象的政治力量。
+凱爾·巴斯先生推文：許多來之中共國的航班在美國阿拉斯加的安克拉治市降落後，許多旅客在此搭乘美國國內的航班飛往各地。這必須停止。為什麽我們對於中共持續的將潛在病毒不斷輸入和傳播到我們國家卻依然是社交距離中！
 
-曾在1016年至2018年擔任澳大利亞外交部國家安全顧問，現任悉尼美國研究中心，華盛頓特區的哈德森學院高級研究員約翰·李（John Lee）在採訪時說：“在美國決定停止向世衛組織提供資金之後，中共有機會提高其作為全球大流行病表象的機會”。
+> .[@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) Seeks to Shut Down Chinese Propaganda Station Phoenix TV, via [@Kredo0](https://twitter.com/Kredo0?ref_src=twsrc%5Etfw)[https://t.co/P6hK3ihV8z](https://t.co/P6hK3ihV8z)
+> — Free Beacon (@FreeBeacon) [April 24, 2020](https://twitter.com/FreeBeacon/status/1253811064514449416?ref_src=twsrc%5Etfw)
 
-約翰表示，中共採取的措施，包括向疫情嚴重的國家派遣醫療隊和防護物資，其目的旨在使中共在全球舞台上加強其政治影響力。約翰還補充說，世衛組織的領導層已“被中共俘虜”，從而使其信譽備受質疑和考驗。 “當世衛組織領導層被要求做出與當前大流行有關的全球衛生問題的決策時，此類決策往往受到政治而非健康優先事項的過度影響。”
+華盛頓自由燈塔推文：參議員Ted Cruz正在致力於關閉中共大外宣鳳凰衛視。
 
-人權觀察組織中共區負責人蘇菲·理查森（Sophie Richardson）表示，中共正在努力塑造自己的形象，使其成為抗疫的全球領導者，而不是該病毒的起源國。
+> Wuhan pneumonia should be called SARS-2 after severe acute respiratory syndrome, the Chinese-originated pandrmic in 2003. But the Chinese Communist Party forced WHO to call it Covid-19 to avoid Beijing complicity. Tell the truth about CCP
+> — Bill Gertz (@BillGertz) [April 25, 2020](https://twitter.com/BillGertz/status/1253888643195973632?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://www.businessinsider.com/china-who-multimillion-dollar-contribution-political-power-move-2020-4)
+比爾·格茨先生：武漢肺炎應該改名為Sars-2 ，即2003年起源於中共國的非典。但是中共卻迫使世界衛生組織稱之為Covid-19，以便為其洗地。
 
-翻譯報導：匿名
+> The Communist Party’s rule by fear endangers Chinese citizens—and the world [https://t.co/f3SeSBHzw9](https://t.co/f3SeSBHzw9)
+> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1254045252232654849?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍推文：共產黨以威脅恐嚇的方式政治統治中國人民乃至全世界。
+
+> Today, [@SenRonJohnson](https://twitter.com/SenRonJohnson?ref_src=twsrc%5Etfw), [@SenThomTillis](https://twitter.com/SenThomTillis?ref_src=twsrc%5Etfw), [@SteveDaines](https://twitter.com/SteveDaines?ref_src=twsrc%5Etfw), [@SenKevinCramer](https://twitter.com/SenKevinCramer?ref_src=twsrc%5Etfw) & I requested that the Senate Appropriations Committee hold any funding for the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pending a Congressional investigation into their role in helping Communist China cover up info about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
+> Read ⬇️ [pic.twitter.com/t802jOr1TX](https://t.co/t802jOr1TX)
+> — Rick Scott (@SenRickScott) [April 24, 2020](https://twitter.com/SenRickScott/status/1253764161336684544?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott, Ron Johnson, Thom Tillis, Steve Daines以及Kevin Cramer聯名就有關中共對於ccp病毒相關事實信息的掩蓋，以及世衛組織在此所扮演的角色，要求參議院撥款委員會在國會對其調查期間停止任何對世衛組織的資金援助。
+
+> Aha! Just wait until the Chinese Wuhan Flu Virus 🦠 (CWFV) collides with the African horse sickness (AHS). How is the WHO to rename this fine fellow? [#Chinavirus](https://twitter.com/hashtag/Chinavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleaDied](https://twitter.com/hashtag/ChinaLiedPeopleaDied?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [https://t.co/ZHY3otvDhE](https://t.co/ZHY3otvDhE)
+> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1253842443260375040?ref_src=twsrc%5Etfw)
+
+凱爾·巴斯先生推文: 哈哈！假如中共武漢流感與非洲馬瘟結合的新病毒🦠，世衛組織又該如何為其命名呢？！
+
+> Bannon: 95% of all deaths and economic carnage could have been avoided, had the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) told the truth
+> 
+> If [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) had simply come from a wet market, the CCP wouldn't have hid it[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> 👉 [https://t.co/6epKW1mS1H](https://t.co/6epKW1mS1H) [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [@AVoiceNews](https://twitter.com/AVoiceNews?ref_src=twsrc%5Etfw)
+> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 25, 2020](https://twitter.com/WarRoomPandemic/status/1254069024977272834?ref_src=twsrc%5Etfw)
+
+@疫情戰鬥室推文：班農說95%的死亡和經濟損失是完全可以避免，如果中共及時告訴了真相。如果病毒真是起源海鮮市場，中共完全沒有必要隱瞞。
 
 0
