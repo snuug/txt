@@ -1,56 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯0425
-`2020-04-25 12:28 GM09` [轉載自GNews](https://gnews.org/zh-hant/184362/)
+## 英國情報機構警告政府議會：須棄用Zoom，以防中共竊聽
+`2020-04-25 21:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184509/)
 
-作者：x
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10173718/ZOOM.jpg)
+據昨日英國衛報重磅文章，英國政府和議會上週被情報機構警告，鑑於Zoom很可能被中共監控所用，不要再使用它進行機密業務。這次悄然的警告源於三月底，內閣使用Zoom召開了一次廣而告之的會議之後，國家網絡安全中心諫言國會，Zoom應僅限於公共業務，而不應使用於機密商務，尤其是“不要使用它談論損害中共利益的話題”。但此次警告僅面向視頻會議的直接與會者，並未廣泛分享給國會議員，包括有意對中共相關問題進行調查的外事委員會和其他專責委員會成員。
 
-> “The Chinese are already threatening with reactions if the report comes out,” Lutz Güllner, a European Union diplomat from Germany, wrote to colleagues on Tuesday in an email seen by The Times. Europeans need to know who their patsy is – the NYT found him [https://t.co/8X4JTSrBmg](https://t.co/8X4JTSrBmg)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254011201916469248?ref_src=twsrc%5Etfw)
+國會高級官員同時也被告知，Zoom可以安全地用於公開事務，例如之前它即被用於下議院議事程序，包括總理的提問。
 
-凱爾·巴斯先生轉推：”對於即將出臺的有關報告，中共已經付諸實際的威脅。” 來至德國的歐盟外交官員Lutz Güllner，在周二寫給泰晤士報同仁的郵件中說道。歐洲人必須知道誰是他們的替罪羊-紐約時報找到了答案。
+Zoom 悄然成為中共海外活動平台
 
-> What?! [https://t.co/7oA7lYYMor](https://t.co/7oA7lYYMor)
-> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1253975910342148096?ref_src=twsrc%5Etfw)
+在疫情封鎖期間，Zoom作為社交和商業通訊工具迅速走紅，現在每天在全球範圍內擁有3億活躍用戶。該公司的一躍成名也迫使業內的競爭對手們迅速追擊。 Facebook就於週五宣布旗下的Messenger已加入最多允許50人同時視頻聊天的新功能。
 
-斯伯丁將軍對於凱爾·巴斯先生發的推文感到震驚。
+英國政府發言人表示，Zoom目前仍被用於非保密通信，但其他服務將替代Zoom傳遞更敏感的信息。而且由於疫情期間，公務員不得不遠程作業，對更加安全的信息工具的需求也越來越大。
 
-凱爾·巴斯先生推文：許多來之中共國的航班在美國阿拉斯加的安克拉治市降落後，許多旅客在此搭乘美國國內的航班飛往各地。這必須停止。為什麽我們對於中共持續的將潛在病毒不斷輸入和傳播到我們國家卻依然是社交距離中！
+一位政府的消息人士指出，政府部門內廣為流傳有關Zoom的安全隱患警告，並要求他將警告傳遞給更多半官方組織或國家。而與此同時，台灣就在本月上旬宣布，將禁止Zoom等有潛在安全隱患的產品。
 
-> .[@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) Seeks to Shut Down Chinese Propaganda Station Phoenix TV, via [@Kredo0](https://twitter.com/Kredo0?ref_src=twsrc%5Etfw)[https://t.co/P6hK3ihV8z](https://t.co/P6hK3ihV8z)
-> — Free Beacon (@FreeBeacon) [April 24, 2020](https://twitter.com/FreeBeacon/status/1253811064514449416?ref_src=twsrc%5Etfw)
+加拿大專業機構查出中共服務器貓膩
 
-華盛頓自由燈塔推文：參議員Ted Cruz正在致力於關閉中共大外宣鳳凰衛視。
+多倫多大學的公民實驗室在4月初就提出了Zoom潛在安全風險的警告，稱Zoom的安全密鑰本應加密對話，然而“在某些情況下，視頻會議中的對話是經由中國的服務器再傳給收信方。”對此，Zoom方回應，表示，軟件目前被全球許多銀行，大學與政府機構所使用，而信息路線的問題完全是由於Zoom暫時無法實現地理圍欄而引起的無心之過，打過補丁之後，Zoom的付費用戶可以自行定制流量的路線。
 
-> Wuhan pneumonia should be called SARS-2 after severe acute respiratory syndrome, the Chinese-originated pandrmic in 2003. But the Chinese Communist Party forced WHO to call it Covid-19 to avoid Beijing complicity. Tell the truth about CCP
-> — Bill Gertz (@BillGertz) [April 25, 2020](https://twitter.com/BillGertz/status/1253888643195973632?ref_src=twsrc%5Etfw)
+公民實驗室稱，Zoom的廣泛普及將令它成為多國政府的優先目標，並成為信號情報收集和定向入侵操作的高度優先突破口。 Zoom位於加利福尼亞的矽谷，但在中國還擁有三家替它開發軟件的公司，這種公司結構降低了開發成本，但同時也令它受控於來自中共當局的壓力。對此，Zoom承諾會增強安全性，並發布了擁有更強的加密措施和隱私控制功能的第五版更新，以防止網絡會議被駭客。 Zoom還表示，公司在中國境內僱用的軟件工程師只是分包商，經過美國的工程團隊的嚴格管理，並無權涉足Zoom在美國的開發環境。
 
-比爾·格茨先生：武漢肺炎應該改名為Sars-2 ，即2003年起源於中共國的非典。但是中共卻迫使世界衛生組織稱之為Covid-19，以便為其洗地。
+諷刺的是，本報導同時指出，公民實驗室在4月8日的第二份報告再次指出，Zoom或許改善了安全性，但鑑於政府對其仍抱有間諜隱患的顧慮，不建議用戶在需要嚴格保密和有隱私顧慮的事務上使用Zoom。
 
-> The Communist Party’s rule by fear endangers Chinese citizens—and the world [https://t.co/f3SeSBHzw9](https://t.co/f3SeSBHzw9)
-> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1254045252232654849?ref_src=twsrc%5Etfw)
+評：文貴先生曾提到加拿大中共藍金黃重災區，從上述報告中的改口可窺視一般。
 
-斯伯丁將軍推文：共產黨以威脅恐嚇的方式政治統治中國人民乃至全世界。
+[原文鏈接](https://www.theguardian.com/uk-news/2020/apr/24/uk-government-told-not-to-use-zoom-because-of-china-fears)
 
-> Today, [@SenRonJohnson](https://twitter.com/SenRonJohnson?ref_src=twsrc%5Etfw), [@SenThomTillis](https://twitter.com/SenThomTillis?ref_src=twsrc%5Etfw), [@SteveDaines](https://twitter.com/SteveDaines?ref_src=twsrc%5Etfw), [@SenKevinCramer](https://twitter.com/SenKevinCramer?ref_src=twsrc%5Etfw) & I requested that the Senate Appropriations Committee hold any funding for the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pending a Congressional investigation into their role in helping Communist China cover up info about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
-> Read ⬇️ [pic.twitter.com/t802jOr1TX](https://t.co/t802jOr1TX)
-> — Rick Scott (@SenRickScott) [April 24, 2020](https://twitter.com/SenRickScott/status/1253764161336684544?ref_src=twsrc%5Etfw)
+翻譯報導：文天
 
-參議員 Rick Scott, Ron Johnson, Thom Tillis, Steve Daines以及Kevin Cramer聯名就有關中共對於ccp病毒相關事實信息的掩蓋，以及世衛組織在此所扮演的角色，要求參議院撥款委員會在國會對其調查期間停止任何對世衛組織的資金援助。
-
-> Aha! Just wait until the Chinese Wuhan Flu Virus 🦠 (CWFV) collides with the African horse sickness (AHS). How is the WHO to rename this fine fellow? [#Chinavirus](https://twitter.com/hashtag/Chinavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleaDied](https://twitter.com/hashtag/ChinaLiedPeopleaDied?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [https://t.co/ZHY3otvDhE](https://t.co/ZHY3otvDhE)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1253842443260375040?ref_src=twsrc%5Etfw)
-
-凱爾·巴斯先生推文: 哈哈！假如中共武漢流感與非洲馬瘟結合的新病毒🦠，世衛組織又該如何為其命名呢？！
-
-> Bannon: 95% of all deaths and economic carnage could have been avoided, had the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) told the truth
-> 
-> If [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) had simply come from a wet market, the CCP wouldn't have hid it[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> 👉 [https://t.co/6epKW1mS1H](https://t.co/6epKW1mS1H) [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [@AVoiceNews](https://twitter.com/AVoiceNews?ref_src=twsrc%5Etfw)
-> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 25, 2020](https://twitter.com/WarRoomPandemic/status/1254069024977272834?ref_src=twsrc%5Etfw)
-
-@疫情戰鬥室推文：班農說95%的死亡和經濟損失是完全可以避免，如果中共及時告訴了真相。如果病毒真是起源海鮮市場，中共完全沒有必要隱瞞。
-
-0
+1
