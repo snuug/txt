@@ -1,56 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯0425
-`2020-04-25 12:28 GM09` [轉載自GNews](https://gnews.org/zh-hant/184362/)
+## 對于G系列，郭先生只說出了一半
+`2020-04-25 21:59 GM30` [轉載自GNews](https://gnews.org/zh-hant/184558/)
 
-作者：x
+**作者：Gwiki**
 
-> “The Chinese are already threatening with reactions if the report comes out,” Lutz Güllner, a European Union diplomat from Germany, wrote to colleagues on Tuesday in an email seen by The Times. Europeans need to know who their patsy is – the NYT found him [https://t.co/8X4JTSrBmg](https://t.co/8X4JTSrBmg)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254011201916469248?ref_src=twsrc%5Etfw)
+一、G系列不僅是中國人的言論自由平台，她更是世界的
 
-凱爾·巴斯先生轉推：”對於即將出臺的有關報告，中共已經付諸實際的威脅。” 來至德國的歐盟外交官員Lutz Güllner，在周二寫給泰晤士報同仁的郵件中說道。歐洲人必須知道誰是他們的替罪羊-紐約時報找到了答案。
+郭先生一直在強調：G-tv是中國人自己發聲的一個平台，是中國人和世界溝通的橋梁，是世界了解中國真相的一個窗口。我覺得，郭先生只說出了一半。
 
-> What?! [https://t.co/7oA7lYYMor](https://t.co/7oA7lYYMor)
-> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1253975910342148096?ref_src=twsrc%5Etfw)
+郭先生沒有說透的另一半就是：
 
-斯伯丁將軍對於凱爾·巴斯先生發的推文感到震驚。
+1，G-tv將是世界上任何一個國家的“李文貴”“劉文貴”來爆料的一個平台；
 
-凱爾·巴斯先生推文：許多來之中共國的航班在美國阿拉斯加的安克拉治市降落後，許多旅客在此搭乘美國國內的航班飛往各地。這必須停止。為什麽我們對於中共持續的將潛在病毒不斷輸入和傳播到我們國家卻依然是社交距離中！
+2，G-news將會是任何一個擔心遭受言論迫害的記者想發聲的平台。G系列將會是任何一個想揭露真相，保護隱私的人的一個最佳選擇。
 
-> .[@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) Seeks to Shut Down Chinese Propaganda Station Phoenix TV, via [@Kredo0](https://twitter.com/Kredo0?ref_src=twsrc%5Etfw)[https://t.co/P6hK3ihV8z](https://t.co/P6hK3ihV8z)
-> — Free Beacon (@FreeBeacon) [April 24, 2020](https://twitter.com/FreeBeacon/status/1253811064514449416?ref_src=twsrc%5Etfw)
+3，G系列不僅是告訴中國人真相的平台，他們也是美國人獲取真相的平台。到目前爲止，我們在最強大的美國，唯一能相信的大媒體就是Fox，但是，由于政治的複雜性，Fox有時候表達觀點也都是遮遮掩掩，有時候也會搞政治正確。更別提什麽CNN、紐約時報，那些根本不值得我們爆料革命談。沒有爆料革命，美國的疫情現在不知道會糟糕到什麽程度。
 
-華盛頓自由燈塔推文：參議員Ted Cruz正在致力於關閉中共大外宣鳳凰衛視。
+4，G系列必將會是全世界言論自由的保險箱。我們做的事情全世界沒有任何媒體敢做，沒有人敢如此公開挑戰共産黨。“而且我郭文貴從來沒有出賣過一個給我爆料的戰友。（郭語錄）”
 
-> Wuhan pneumonia should be called SARS-2 after severe acute respiratory syndrome, the Chinese-originated pandrmic in 2003. But the Chinese Communist Party forced WHO to call it Covid-19 to avoid Beijing complicity. Tell the truth about CCP
-> — Bill Gertz (@BillGertz) [April 25, 2020](https://twitter.com/BillGertz/status/1253888643195973632?ref_src=twsrc%5Etfw)
+二，History will make us be best（曆史將會把我們變成最好）
 
-比爾·格茨先生：武漢肺炎應該改名為Sars-2 ，即2003年起源於中共國的非典。但是中共卻迫使世界衛生組織稱之為Covid-19，以便為其洗地。
+郭先生常說G系列追求的是We only do unique, not best. 這個他早就做到了，根本不用追求。G系列的發展肯定會出乎我們的意料，將會在很多方面成爲BEST。
 
-> The Communist Party’s rule by fear endangers Chinese citizens—and the world [https://t.co/f3SeSBHzw9](https://t.co/f3SeSBHzw9)
-> — General Spalding (@robert\_spalding) [April 25, 2020](https://twitter.com/robert_spalding/status/1254045252232654849?ref_src=twsrc%5Etfw)
+1，郭先生其實是一個具有互聯網自由精神的極客
 
-斯伯丁將軍推文：共產黨以威脅恐嚇的方式政治統治中國人民乃至全世界。
+說郭先生是一個極客，會讓人笑掉大牙。郭先生一行代碼都不懂，怎麽會是極客呢？
 
-> Today, [@SenRonJohnson](https://twitter.com/SenRonJohnson?ref_src=twsrc%5Etfw), [@SenThomTillis](https://twitter.com/SenThomTillis?ref_src=twsrc%5Etfw), [@SteveDaines](https://twitter.com/SteveDaines?ref_src=twsrc%5Etfw), [@SenKevinCramer](https://twitter.com/SenKevinCramer?ref_src=twsrc%5Etfw) & I requested that the Senate Appropriations Committee hold any funding for the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) pending a Congressional investigation into their role in helping Communist China cover up info about the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw).
-> Read ⬇️ [pic.twitter.com/t802jOr1TX](https://t.co/t802jOr1TX)
-> — Rick Scott (@SenRickScott) [April 24, 2020](https://twitter.com/SenRickScott/status/1253764161336684544?ref_src=twsrc%5Etfw)
+那誰是極客呢？是阿桑奇，還是維基百科的創始人？是喬布斯，還是比爾蓋茨？
 
-參議員 Rick Scott, Ron Johnson, Thom Tillis, Steve Daines以及Kevin Cramer聯名就有關中共對於ccp病毒相關事實信息的掩蓋，以及世衛組織在此所扮演的角色，要求參議院撥款委員會在國會對其調查期間停止任何對世衛組織的資金援助。
+只要把賺錢放在第一位的就不可能是極客。
 
-> Aha! Just wait until the Chinese Wuhan Flu Virus 🦠 (CWFV) collides with the African horse sickness (AHS). How is the WHO to rename this fine fellow? [#Chinavirus](https://twitter.com/hashtag/Chinavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaLiedPeopleaDied](https://twitter.com/hashtag/ChinaLiedPeopleaDied?src=hash&amp;ref_src=twsrc%5Etfw) [#WuhanVirus](https://twitter.com/hashtag/WuhanVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [https://t.co/ZHY3otvDhE](https://t.co/ZHY3otvDhE)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1253842443260375040?ref_src=twsrc%5Etfw)
+郭先生說我們要做UNIQUE（唯一）的意思是：我們不去跟蘋果、谷歌、微軟一般德性，爲了金錢甯肯出賣良知；只追求技術牛逼，不去追求正義；爲了幾鬥米，跪下去舔共。
 
-凱爾·巴斯先生推文: 哈哈！假如中共武漢流感與非洲馬瘟結合的新病毒🦠，世衛組織又該如何為其命名呢？！
+微軟、谷歌、蘋果的創立，哪一個不是八九十年代自由互聯網時代的副産品？他們站在了互聯網自由精神的巨人肩膀上，但忘記了這個托起他們的巨人是誰，忘記了這個巨人的最本質的競爭力是從何而來。
 
-> Bannon: 95% of all deaths and economic carnage could have been avoided, had the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) told the truth
-> 
-> If [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) had simply come from a wet market, the CCP wouldn't have hid it[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> 👉 [https://t.co/6epKW1mS1H](https://t.co/6epKW1mS1H) [@EpochTimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw) [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [@AVoiceNews](https://twitter.com/AVoiceNews?ref_src=twsrc%5Etfw)
-> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 25, 2020](https://twitter.com/WarRoomPandemic/status/1254069024977272834?ref_src=twsrc%5Etfw)
+如果有礙自由，一個真正具備極客精神的人是不會願爲高額的工資所羁絆，也不會被大公司的舒適的工作環境所圈養；也不會爲了魔鬼的犒賞，去修改路德以及衆多戰友社交媒體平台的數據。
 
-@疫情戰鬥室推文：班農說95%的死亡和經濟損失是完全可以避免，如果中共及時告訴了真相。如果病毒真是起源海鮮市場，中共完全沒有必要隱瞞。
+蘋果、谷歌、微軟在創立之初的極客因素，在他們成爲帝國之後，已經消失殆盡。而我們G系列從不缺錢，我們現在就已經是帝國的規模了；但我們還保留著滅掉羅馬帝國的北方蠻族的自由精神。並且在互聯網世界創造了屬于自由民的聖地。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/25215430/image0-168.jpg)
+
+2，G-tv和G-news會回歸互聯網的本質——共享、去中心化，而這將會孵化出無數個成功個體
+
+谷歌、微軟和蘋果變成帝國之後的基本模式就是不斷的用大量的金錢去收購一些技術上做得極致的小公司，然後將之招在麾下。在建立龐大帝國的過程中，他們這些招數屢試不爽。然後，他們就天真地以爲這樣可以萬古長青了。哈哈！豈不知，“全世界最大的病毒—中共—在滅亡之前，每一個人都不是安全的，尤其是那些與中共勾結的人。（郭語錄）”一場股災，讓他們元氣大傷。接下來還會有更精彩的，那就是美國法律的懲處。
+
+共享、去中心化，一開始就是爆料革命的精神。爆料革命是以郭先生爲代表的一系列戰友的集合。因爲“沒有戰友，郭文貴什麽都不是。（郭語錄）”。爆料革命三年多經曆的無數的燦烈的戰役，都是背後和台面上無數的無私的戰友的無私的奉獻，沒有他們，我們不會一次次地完勝。爆料革命從一開始就是去中心化的，有誰說郭先生強迫你挺郭了，“你不願意挺了，你就走，但是你不能打著爆料革命的名義去謀私。（郭語錄）”G系列是無數戰友一起創造的。我們創造了無數的奇迹：路德訪談、戰友之家、秘密翻譯組、上天造滅疫組、香港運動、新疆西藏台灣法案等等。尤其是在這次疫情中。我們的核心戰友的重要情報，都是無償分享給美國和全世界。
+
+G-tv和G-news以及未來的G-fashion等等，就是黃埔軍校，不，是西點軍校！他們會孵化出無數個郭文貴班農凱爾巴斯一樣的人物。因爲在這些平台裏，我們無私分享，我們擁有自由精神、自由言論、法治精神、有堅定信仰！
+
+G-tv和G-news就是極權專制的天生敵人。他們將永遠與自由爲伴。G-fashion將永遠與假貨爲敵，他將聚集全世界最熱愛自由、最熱愛真善美的品牌和用戶群體。
+
+雖然G系列目前還沒有在代碼屆有開源項目，但我相信這只是時間問題。因爲G-tv會有某些方面最好的技術。
+
+3，但是，郭先生並沒有說我們不會變成BEST（最好）
+
+中共會逼著G-tv提升技術
+
+舉一個簡單的例子，由于黑客的攻擊，G-tv每天要處理的流量，大致相當于淘寶’雙十一’購物節的流量，甚至更高。雙十一剛開搶的最開始的60秒是流量最好，也是點擊最卡頓的，而郭先生直播時候的每一分鍾，都相當于這淘寶前60秒的流量。你在看郭先生直播的每一秒，就相當于在淘寶雙十一的前60秒購物。所以，戰友們，只要G-tv的卡頓每稍稍有所緩解，都將是自身技術上的極大進步。G-tv在技術上的每一分鍾，都在創造曆史。
+
+爲什麽國內淘寶和微信的工程師都搶著來G-tv？那就是這裏不僅有錢，不僅可以追隨爆料革命實現自由民主法治的夢想，這裏還是世界上最好的錘煉技術的地方。檢驗阿裏技術巅峰的最佳試驗場，就是雙十一開始的前60秒，而這60秒一年之中只有一次。舍不得給員工發工資的接客馬，是不可能花這麽多錢爲員工創造這樣的模擬環境的。而在G-tv，郭先生直播的每一分鍾，都會給你這樣的試驗場。剛才列舉的，只是其中的一個例子，還有安全方面等。
+
+G-tv的技術不變牛，還有天理嗎！G-tv在技術上的進步，我們要感謝中共。什麽叫隔空取錢？這就是我們用中共偷來的老百姓的錢，爲G-tv提升了技術實力，反過來造福億萬同胞。
+
+去中心化的共享精神會讓G系列在某些方面擁有意想不到的最牛的技術
+
+郭先生說我們只做唯一的另一個含義就是：我們要在某些方面一定要是世界最牛。我們要在捍衛言論自由方面世界最牛，我們要在揭露真相面前做到極致，我們要在時尚方面引領世界潮流。。。
+
+這樣看來，G系列好像只是郭先生和他的技術團隊“設計而成”的。但是，郭先生還說過一句話“戰友們，G-tv是所有戰友的，有些話我不能多數。”郭先生這句意味深長的話是什麽意思？
+
+依我個人的理解，郭先生的真實目的是：他和工程師只是爲我們搭建了一個平台。但是，這個平台未來怎麽發展，郭先生還要引進區中心化的共享模式。也就是三個臭皮匠頂個諸葛亮的模式。以操作系統的發展爲例，蘋果的操作系統當之無愧是在商業化最成功的操作系統。蘋果操作系統是在開源的Unix系統的基礎上，在喬布斯的帶領下達到巅峰，現在不如吃老本的階段。喬布斯可遇不可求。郭先生打造G系列的目的，就是要把去中心化和商業化合二爲一。當多少年後郭先生凱爾巴斯班農先生不在的時候，G系列並不能保證萬古長青。唯一的解決方案就是，在喬布斯還健在的時候，創造一個集體化的喬布斯。那那就是去中心化的共享生産模式。
+
+而這個生産模式，會保證G系列會成爲千萬個臭皮匠頂上這幾個諸葛亮。而這才是G系列萬古長青的秘訣。郭先生准備這麽多錢來開發G系列，乍看之下有中殺雞用牛刀的感覺。可是這就是郭先生最擔心的地方，一旦G系列被大資本控制之後，他會變成一心只看錢的逐利絞肉機。也就是說要保證G系列的去中心化、共享就必須把集中的權力結構打散，必須要用“聯邦制”而不是“中央集權制”。
+
+什麽是讓郭先生的G系列發展成爲讓每個人貢獻智慧，同時又能讓每個人得利的另一個關鍵點呢？答案是G幣。
+
+G幣將會是帶領一幫平民主義者的幾位最有天分和良知的金融家、政治家對全球腐敗的政治權力和腐敗金融體系的回應
+
+自從金本位結束之後，主權貨幣都存在一個兌水的問題，即使是最有節制的美聯儲也不能例外。極高的借貸成本，讓中心化的銀行賺得盤滿盤滿缽豐。現存的數字貨幣往往不能同時解決去中心化和穩定這兩個問題。要麽去中心化不穩定，要麽穩定不去中心化。而G幣就是要就解決這個問題。
+
+（文章內容僅代表作者觀點）
 
 0

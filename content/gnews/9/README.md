@@ -1,52 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港時事(4.13-24)
-`2020-04-25 10:56 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/184283/)
+## 英國情報機構警告政府議會：須棄用Zoom，以防中共竊聽
+`2020-04-25 21:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184509/)
 
-[https://spark.adobe.com/page/16pzbOjRdV3CR/](https://spark.adobe.com/page/16pzbOjRdV3CR/)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/10173718/ZOOM.jpg)
+據昨日英國衛報重磅文章，英國政府和議會上週被情報機構警告，鑑於Zoom很可能被中共監控所用，不要再使用它進行機密業務。這次悄然的警告源於三月底，內閣使用Zoom召開了一次廣而告之的會議之後，國家網絡安全中心諫言國會，Zoom應僅限於公共業務，而不應使用於機密商務，尤其是“不要使用它談論損害中共利益的話題”。但此次警告僅面向視頻會議的直接與會者，並未廣泛分享給國會議員，包括有意對中共相關問題進行調查的外事委員會和其他專責委員會成員。
 
-*作者：玄天生*
+國會高級官員同時也被告知，Zoom可以安全地用於公開事務，例如之前它即被用於下議院議事程序，包括總理的提問。
 
-*校閱：Julia Win*
+Zoom 悄然成為中共海外活動平台
 
-**引言：不要放棄，就算前路艱難，可以小休，但不要輕生，世界已經覺醒，曙光正在來臨，香港還需要你們來重建。**
+在疫情封鎖期間，Zoom作為社交和商業通訊工具迅速走紅，現在每天在全球範圍內擁有3億活躍用戶。該公司的一躍成名也迫使業內的競爭對手們迅速追擊。 Facebook就於週五宣布旗下的Messenger已加入最多允許50人同時視頻聊天的新功能。
 
-中共對香港的控制已經徹底放棄偽善的面具，直接霸王硬上弓。最明顯的是基本法第二十二條，解釋法律權力在中共，執行法律是港共、監督權力在中共，那錯的肯定是百姓了。我們真的活在一個不同維度的世界。一國兩制明擺着就是一個騙局，一場無法兌現的空頭支票。真是「龍門任我擺，飄移境界」。當權力完全掌握在中共邪魔體制下，沒有監督、不用問責，那麼老百姓只能是待宰的羔羊。大家還記得，中聯辦新主任–駱惠宁，在見記者時雙腿抖動的情節，還有調任到公務員事務局局長聶德權在見記時，雙手抖震。不知是身體問題、還是心虛見記者緊張呢﹖([新聞鏈接](https://www.thestandnews.com/politics/%E6%99%A4%E5%82%B3%E5%AA%92%E6%99%82%E5%9A%B4%E9%87%8D%E6%89%8B%E9%9C%87-%E4%B8%A6%E9%9D%9E%E9%A6%96%E6%AC%A1-%E8%81%B6%E5%BE%B7%E6%AC%8A%E5%81%A5%E5%BA%B7%E5%8F%97%E9%97%9C%E6%B3%A8/))
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/3720841d-80d7-4330-9df1-b0e2be5f0416.png?asset_id=cbf047e2-ec84-49f1-b8f2-08c9d269b13f&amp;img_etag=f7932b802bb94d88d47c06b917d69b7f&amp;size=1024)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/3720841d-80d7-4330-9df1-b0e2be5f0416.png?asset_id=cbf047e2-ec84-49f1-b8f2-08c9d269b13f&amp;img_etag=f7932b802bb94d88d47c06b917d69b7f&amp;size=1024)立場新聞圖片
-再看，疫情下，港共政府宣佈限聚令延遲到5月7日，而且接下來的日子更是中共不想提、也避諱的時間，6月4日和香港6月9日。由於「敏感日子」將到來，警方開始動用手中的權力打壓市民，更有人拍到，本不超過4人卻任意多捉人來充當人數。由此可見，法律不僅不能約束到他們，反而成為他們打壓市民的工具。就算日後社會回復正常，若沒有合法對施暴者的審判，等來的就是私仇的報復。
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/4afff188-e658-4fbf-8a2e-ab4b4a9d6c30.png?asset_id=7237ee77-68a2-401b-a170-6d47c619100b&amp;img_etag=c50cbe165e1557ca3dc1d891123764b8&amp;size=1024)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/4afff188-e658-4fbf-8a2e-ab4b4a9d6c30.png?asset_id=7237ee77-68a2-401b-a170-6d47c619100b&amp;img_etag=c50cbe165e1557ca3dc1d891123764b8&amp;size=1024)Free HK Media ree HK Media 片段截圖
-- [事發片段22/04/2020 尚德停車場截查行動](https://twitter.com/pigson0127/status/1253191319846969344?s=20)(推特)
-- [港警濫用限聚令打壓人權？ 「敏感日子」告票量激增](https://hk.aboluowang.com/2020/0424/1441205.html) (阿波羅新聞)
-- [網媒指警稱「擸多個過嚟咪夠囉」](https://www.thestandnews.com/politics/%E7%9D%87%E7%89%87-%E9%99%B3%E5%BD%A5%E9%9C%96%E9%80%9D%E4%B8%96%E4%B8%83%E5%80%8B%E6%9C%88-%E8%AD%A6%E5%80%9F-%E9%99%90%E8%81%9A%E4%BB%A4-%E6%9F%A5%E8%A8%98%E8%80%85%E5%B8%82%E6%B0%91-%E7%B6%B2%E5%AA%92%E6%8C%87%E8%AD%A6%E7%A8%B1-%E6%93%B8%E5%A4%9A%E5%80%8B%E9%81%8E%E5%9A%9F%E5%92%AA%E5%A4%A0%E5%9B%89/?fbclid=IwAR0POz2PJfNPb8InJrAuYY9YdO74Vo0b9y190W-DA9yeCM21a_2xwji0spw)(立場新聞)
+英國政府發言人表示，Zoom目前仍被用於非保密通信，但其他服務將替代Zoom傳遞更敏感的信息。而且由於疫情期間，公務員不得不遠程作業，對更加安全的信息工具的需求也越來越大。
 
+一位政府的消息人士指出，政府部門內廣為流傳有關Zoom的安全隱患警告，並要求他將警告傳遞給更多半官方組織或國家。而與此同時，台灣就在本月上旬宣布，將禁止Zoom等有潛在安全隱患的產品。
 
-另一則是警方在FB社交媒體下發文，20歲大專生被激化仇警，製造遙控引爆炸彈。然而事實是怎樣呢？請見下圖。
+加拿大專業機構查出中共服務器貓膩
 
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/e4ac51ff-b4e5-4cc3-9a07-89f1e9a1a109.jpg?asset_id=4c15ddc1-840b-4ee0-947a-539def71a4ac&amp;img_etag=bfff663d42fd877bfa9986c4e7983f20&amp;size=2560)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/e4ac51ff-b4e5-4cc3-9a07-89f1e9a1a109.jpg?asset_id=4c15ddc1-840b-4ee0-947a-539def71a4ac&amp;img_etag=bfff663d42fd877bfa9986c4e7983f20&amp;size=1024) 推友HoSaiLei圖片鏈接EOD
+多倫多大學的公民實驗室在4月初就提出了Zoom潛在安全風險的警告，稱Zoom的安全密鑰本應加密對話，然而“在某些情況下，視頻會議中的對話是經由中國的服務器再傳給收信方。”對此，Zoom方回應，表示，軟件目前被全球許多銀行，大學與政府機構所使用，而信息路線的問題完全是由於Zoom暫時無法實現地理圍欄而引起的無心之過，打過補丁之後，Zoom的付費用戶可以自行定制流量的路線。
 
-由此可見，任何工具，只要警方需要，就可以拿來充當你的犯罪證據，尤其你是年輕人。當然許多不合理事，在香港依然每天發生，也見證當權力無法被監督時，法律自然也會成為當權者的工具。
+公民實驗室稱，Zoom的廣泛普及將令它成為多國政府的優先目標，並成為信號情報收集和定向入侵操作的高度優先突破口。 Zoom位於加利福尼亞的矽谷，但在中國還擁有三家替它開發軟件的公司，這種公司結構降低了開發成本，但同時也令它受控於來自中共當局的壓力。對此，Zoom承諾會增強安全性，並發布了擁有更強的加密措施和隱私控制功能的第五版更新，以防止網絡會議被駭客。 Zoom還表示，公司在中國境內僱用的軟件工程師只是分包商，經過美國的工程團隊的嚴格管理，並無權涉足Zoom在美國的開發環境。
 
-- [【 拘捕20歲大專生 • 製造遙控引爆炸彈】](https://www.facebook.com/HongKongPoliceForce/photos/pb.960526577368640.-2207520000../3123343054420304)(警方FB)
-- [【EOD】今次仆街了 以為上緊STEM堂 點知原來係整緊遙控炸彈](https://twitter.com/hkbhkese/status/1253193791533531142?s=20)(推特)
-- [警方高調話人整炸彈時，可唔可以拎啲Juicy啲嘅証據？](https://medium.com/@it9gamelog/popo-insist-20yo-student-making-bomb-48ac8b6339c9)(I.T. 9 遊戲日誌)
-- [Interesting. #HongKongPolice tweeted out the electronics in their supposed bomb plot (spoiler: they found no explosives).](https://twitter.com/HKGTranslator/status/1253243501225050118?s=20)(推特)
+諷刺的是，本報導同時指出，公民實驗室在4月8日的第二份報告再次指出，Zoom或許改善了安全性，但鑑於政府對其仍抱有間諜隱患的顧慮，不建議用戶在需要嚴格保密和有隱私顧慮的事務上使用Zoom。
 
+評：文貴先生曾提到加拿大中共藍金黃重災區，從上述報告中的改口可窺視一般。
 
-筆者在此呼籲，香港年輕人請保護好自己！深明面對這種極權你們心中的無奈和無助，但也請不要輕生。勝利的曙光正在到來，香港還需要你們來重建、榮耀。外界也有許多正義的力量，以各種方式支持我們這場運動。請你們珍惜生命！
+[原文鏈接](https://www.theguardian.com/uk-news/2020/apr/24/uk-government-told-not-to-use-zoom-because-of-china-fears)
 
-- [“Lunch with you” flash mob protest in #IFC, #Central](https://twitter.com/nikki_miumiu/status/1253562524374454273?s=20)(推特)
-- [東區手足 黃大仙手足](https://twitter.com/fai3cing1/status/1253660108371841029?s=20)(推特)
+翻譯報導：文天
 
-
-[!\[\](https://spark.adobe.com/page/16pzbOjRdV3CR/images/02610b05-4061-418f-9bb4-f44d8095cd1c.jpg?asset_id=c72318bf-39ec-433b-8e76-ca6f74264613&amp;img_etag=5b90397c3d4dd976a9c91814294f009f&amp;size=2560)](https://spark.adobe.com/page/16pzbOjRdV3CR/images/02610b05-4061-418f-9bb4-f44d8095cd1c.jpg?asset_id=c72318bf-39ec-433b-8e76-ca6f74264613&amp;img_etag=5b90397c3d4dd976a9c91814294f009f&amp;size=1024)
-
-香港文宣、來源：[Averageguy](https://www.facebook.com/101884464535694/posts/244995736891232/?d=n)[香港文宣鏈結](https://www.collaction.hk/lab/extradition_gallery?fbclid=IwAR05uR6Cm6fapAxqM_qo2_7QaNJxQ9vWSZTAOCD93DknChvmgKwImuW9o4U)
-
-文章內容僅代表作者個人觀點
-
-嗚謝圖片來源，立場新聞、香港文宣、推特友圖片、Free HK Media ree HK Media 圖片、unsplash 、pixabay。
-
-**編輯 【喜馬拉雅戰鷹團】**
-
-0
+1
