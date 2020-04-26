@@ -1,40 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯0426
-`2020-04-26 01:41 GM09` [轉載自GNews](https://gnews.org/zh-hant/184810/)
+## CCP病毒導致2020年的全球經濟繼續萎縮
+`2020-04-26 05:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/184974/)
 
-作者：小綿羊
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26052402/1-229.jpg)
 
-> FCC Signals Likely Revocation of Four Chinese Telecom Firms’ Licenses – Bravo to Team Telecom in beginning to protect US National Security. Responses from the Chinese companies will be Oscar worthy. Get your popcorn 🍿 ready! Huawei and ZTE…you’re NEXT [https://t.co/xaFOBvgKfX](https://t.co/xaFOBvgKfX)
-> — 😷Kyle Bass😷 (@Jkylebass) [April 25, 2020](https://twitter.com/Jkylebass/status/1254020711041110016?ref_src=twsrc%5Etfw)
+據美國廣播財經頻道（CNBC）報道：為了有效控制CCP病毒的傳播，世界各國政府採取了封鎖措施，導致全球經濟活動停滯。
 
-凱爾·巴斯先生推文：“美國聯邦通信委員會(FCC)表示可能吊銷四家中國電信公司的牌照，為妳們開始保護美國國家安全喝彩。中國公司的回應值得關註，準備好爆米花開始看戲吧！華為和中興……妳們是下壹個”
+據約翰霍普金斯大學彙編的數據顯示，CCP病毒自去年年底在中國武漢出現以來，這種CCP病毒疾病已經蔓延到185個國家和地區， 270多萬人感染，到目前為止，全球範圍內已造成19萬多人死亡。為了阻止病毒的進一步傳播，世界各地的有關部門採取了不同程度的措施，封鎖了一些國家和城市，包括關閉邊境，關閉學校和工作場所，以及限制大型集會。各國的對抗CCP病毒行動，被國際貨幣基金組織 (International Monetary Fund) 稱為「大封鎖「(Great Lockdown)的預防措施，導致全球很多經濟活動陷入停頓，嚴重損害了企業的利益，並導致無數的人們失去了工作。
 
-> Bingo [https://t.co/9c73GRiE7a](https://t.co/9c73GRiE7a)
-> — General Spalding (@robert\_spalding) [April 26, 2020](https://twitter.com/robert_spalding/status/1254209095466471425?ref_src=twsrc%5Etfw)
+有很多經濟學家警告說，世界各地的抗疫情封鎖措施將加速失業，一些經濟體的失業數字已經反映了這一點。本月初，IMF首席經濟學家吉塔•戈皮納斯 (Gita Gopinath) 在他的博客中寫道：「這是一場真正的全球危機，因為CCP病毒的影響導致沒有一個國家能倖免。」美國作為世界最大的經濟體，在過去五周內失去了2600多萬個工作崗位。根據美國勞工統計局(Bureau of Labor Statistics)的數據，美國3月份的失業率為4.4%，是2017年8月以來的最高值。然而，不斷上升的失業率並非只在美國發生，澳大利亞和韓國也面臨這樣的困境，一些經濟學家警告稱，這樣的情況將變得更糟。
 
-斯伯丁將軍非常贊同推友One Second的言論。
+服務業遭受重創
 
-One Second：“就像及時封鎖我們的國家避免病毒的傳播，也需要及時重開以恢復經濟。 美國被中共用病毒扼住了脖子。這就是壹場戰爭。”
+服務業是許多國家增長和就業的主要來源，美國和中共國這兩個世界上最大的經濟體和消費市場，由於CCP病毒的侵襲，這兩個國家的零售額都出現了大幅下降，因為在CCP病毒散播全球期間採取的封鎖措施迫使許多商店關閉，並讓消費者呆在家裡。亞馬遜 (Amazon) 等零售商在線銷售激增，也未能阻止整體經濟的下滑。
 
-> Steve Bannon tells [@JesseBWatters](https://twitter.com/JesseBWatters?ref_src=twsrc%5Etfw): The fight for freedom against the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is this generation’s call to destiny[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [@WattersWorld](https://twitter.com/WattersWorld?ref_src=twsrc%5Etfw)
-> 
-> WATCH 👇 [pic.twitter.com/RczVbDXHGP](https://t.co/RczVbDXHGP)
-> — War Room: Pandemic ☣️ (@WarRoomPandemic) [April 26, 2020](https://twitter.com/WarRoomPandemic/status/1254218211190435840?ref_src=twsrc%5Etfw)
+一些經濟學家警告說，即使解除了鎖定措施，消費者也不可能在短時間內恢復消費，牛津經濟研究院(Oxford Economics) 的分析師表示，即便是在中共國允許企業逐步恢復營業之後，「緩慢改善」在中國零售銷售的中得到了明顯體現。IHS Markit數據顯示，全球服務業受到的衝擊是廣泛的，例如：交通、房地產、和旅遊等行業出現了迄今為止最大幅度的下滑。
 
-@疫情戰鬥室推文：Steve Bannon在FOX電視臺WattersWorld節目上表示：爭取自由對抗中共，是這壹代人必須完成的使命。
+製造業受到的衝擊
 
-> No sign of any unusual broadcasts on North Korean state television today.
-> 
-> Some schedule details for Sunday: [pic.twitter.com/kIuKFqgIfi](https://t.co/kIuKFqgIfi)
-> — NK NEWS (@nknewsorg) [April 26, 2020](https://twitter.com/nknewsorg/status/1254237541332475904?ref_src=twsrc%5Etfw)
+製造商也受到了衝擊，今年世界貿易額可能再次暴跌。
+美國製造商已經隨著CCP病毒的衝擊被拖累，由於美中貿易戰，美國製造商已經在過去的兩年，以及這一次CCP病毒的擴散再次面臨壓力。CCP病毒的大流行首先打擊了中共國以外的製造商，這些製造商依賴中共國工廠生產原材料和零部件——也被稱為「中間產品」來用於完成於生產自己的產品。但中共國工廠停產的時間長於預期停產時間，這很大的限制了美國進行一部分產業的產量。
 
-比爾·格茨先生轉推朝鮮新聞帳號NK News消息：“朝鮮國家電視臺今天沒有任何異常廣播的跡象。以下是周日的壹些詳細節目表。”
+隨著越來越多的國家實施封鎖措施，越來越多的製造企業受到衝擊。一些工廠被迫暫時關閉，而那些仍然開放的工廠在獲得中間產品和材料供應方面面臨限制。最重要的是，商品需求的減少加劇了製造商面臨的挑戰。因此，從美國到歐洲和亞洲的工廠都有報告體現出過去一個月產出下降。
 
-> Support Surges in House for Bringing Back Supply Chains From China, via [@CharlesFLehman](https://twitter.com/CharlesFLehman?ref_src=twsrc%5Etfw) [https://t.co/OO6pMUslsr](https://t.co/OO6pMUslsr)
-> — Free Beacon (@FreeBeacon) [April 25, 2020](https://twitter.com/FreeBeacon/status/1254190704051568640?ref_src=twsrc%5Etfw)
+全球經濟將在2020年萎縮
 
-華盛頓自由燈塔推文：把供應鏈撤出中國的提案在眾議院的支持率激增
+全球貿易在2019年已經放緩，預計今年將由於CCP病毒的影響進一步受到拖累。世界貿易組織在本月的最新預測中提到：取決於全球經濟的發展軌跡，今年全球貿易額可能下降12.9%或31.9%。到2020年，所有地區的進出口都將出現兩位數的下降。CCP病毒對全球的影響，對經濟發展的打擊導致許多機構大幅下調了對全球經濟的預測。
+
+國際貨幣基金組織 （IMF） 對全球經濟的評估受到廣泛關注，該組織預計今年全球經濟將萎縮3%，全球只有少數的幾個經濟體，例如中共國和印度預計將在2020年實現經濟增長。儘管IMF預測明年經濟增長將反彈5.8%，但它表示關於經濟復甦只是部分的，因為經濟增長的水平預計仍將低於CCP病毒襲擊前我們預測的2021年水平。
+
+國際貨幣基金組織首席經濟學家戈皮納特寫道：「在2020年與2021年期間，全球國內生產總值(GDP)因流行病危機而累計損失約9萬億美元，超過日本和德國經濟的總和。」
+
+評： 中共國故意隱瞞病毒真相和疫情真相將病毒擴散到世界所帶來的全球危機，大到生命的消亡，全球經濟的低迷，小到失業，家庭生活嚴重受到，這些損失是數以萬計的，甚至是根本無法用數字和金錢估量的。共產主義在世界上的存在就是製造悲劇，中共卻為了維持這樣的邪惡統治，不惜犧牲中國人的生命，也將中國人所遭受的悲痛通過CCP病毒帶到了世界的每個角落，讓人們在和平的年代再一次面臨恐懼與不安，讓無數的人失去至親，失去工作。只有中共的滅亡，才能讓人類的生活回歸自由與平靜，世界才能再一次重生。
+
+[原文鏈接](https://www.cnbc.com/2020/04/24/coronavirus-pandemics-impact-on-the-global-economy-in-7-charts.html)
+
+翻譯報道：Hakunamatata
+
+
 
 0
