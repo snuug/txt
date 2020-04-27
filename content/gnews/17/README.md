@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月25日CCP冠狀病毒大流行第92集
-`2020-04-26 23:53 GM33` [轉載自GNews](https://gnews.org/zh-hant/186315/)
+## 班農戰斗室：西方民眾如何能夠幫助中國人民獲取自由
+`2020-04-27 01:23 GM31` [轉載自GNews](https://gnews.org/zh-hant/186437/)
 
-[https://gtv.org//?videoid=5ea4e82de538910ad4b9fee6](https://gtv.org//?videoid=5ea4e82de538910ad4b9fee6)
+在4月25日早上的[第139期](https://www.youtube.com/watch?v=6J0fq6HbS9M)War Room: Pandemic 節目中，來自VOG的郭嘯天先生接受了班農先生的採訪。
+
+當被問及“美國人民能做什麼來幫助中國的兄弟姐妹獲取自由？”時，郭嘯天指出：“我想從最簡單的事情開始，就是不要相信任何來自CCP的宣傳，不論是來自國內或者海外，他們就是純粹的謊言。西方的民眾需要問一個簡單的問題，如果CCP獨裁政權對待自己的人民毫無尊重與人性基本的尊嚴，為什麼西方的民眾期待他們能獲得不同的待遇呢？”
+
+*翻譯：【JasonZZZ（正坤小哥）】【不吃豆的豆豆】 校對：【GM31】 字幕：【不吃豆的豆豆】*
 
 0

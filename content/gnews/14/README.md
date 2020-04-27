@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從2020年4月26日起所有武漢的冠狀病毒患者和死者都只有一個數字——零
-`2020-04-27 00:25 Diago` [轉載自GNews](https://gnews.org/zh-hant/186394/)
+## 2020年4月24-25日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-27 02:05 GM33` [轉載自GNews](https://gnews.org/zh-hant/186363/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27001922/5ea62328e4b0df86e38e11a1.jpeg)
-作者：Diago
+[English\_0424\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)
 
-據[武漢保衛戰值得銘記的“零時刻”：在院新冠肺炎患者清零](https://baijiahao.baidu.com/s?id=1665080690759872431&amp;wfr=spider&amp;for=pc)（發佈時間：04-27日07:39環球網官方帳號）【武漢市衛生健康委員會26日下午發佈消息稱，武漢市肺科醫院77歲的新冠肺炎患者丁某第二次核酸檢測結果為陰性，臨床症狀解除，達到出院標準。至此，武漢市在院新冠肺炎患者清零。這場全民動員的“武漢保衛戰”迎來載入史冊的“零時刻”。】
+[English\_0425\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)
 
-2020年4月26日是個特殊的日子，因為全人類都看到了用謊言製造的這個時刻，我們看看謊言製造的一個一個時刻——
+[French0424\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)
 
-【從1月20日鐘南山院士宣佈新冠肺炎“人傳人”，到3月18日，武漢首次出現確診和疑似病例雙雙零新增】
+[French0425\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)
 
-【1月23日淩晨，武漢市疫情防控指揮部發出1號通告宣佈關閉出城通道。與此同時，檢測機構“擴面提速”，新增確診病例急速攀升。1月27日，武漢新增確診病例829例，首次突破三位數。一周後，2月2日，新增病例再上高峰，首次突破四位數，1033例。】
+[German\_0424\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)
 
-【2月1日，王辰院士隨中日友好醫院醫療隊趕赴武漢，實地走訪後提出建設“方艙醫院”收治輕症患者和疑似患者，解決病毒的傳播和擴散問題。2月3日起，方艙醫院陸續開建，至2月28日，共建設16家方艙醫院，開放床位13000多張。】
+[German\_0425\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)
 
-【從2月19日武漢新增病例回落到三位數，到3月11日，武漢新增確診病例降至個位數，武漢度過了最吃勁的“決戰時刻”。】
+[Japanese0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)
 
-【3月13日，武漢首次出現疑似病例零新增！】
+[Janpanese\_0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)
 
-【3月18日，武漢首次出現確診和疑似病例雙雙零新增！】
+[Russia\_0424\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)
 
-【4月23日，武漢危重症病例全部實現清零！】
+[Russia\_0425\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)
 
-【4月24日，武漢重症病例全部實現清零！】 與“載入史冊的‘零時刻’”同步的是清除武漢志願者的記憶和記錄——
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27002108/6198.png)
-我們再看一看人民日報的官微發佈的消息——
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27002417/timg-1.jpg)
-從這一點上，人民日報的這個微博應該算是說了實話的，其實武漢在院新冠肺炎患者清零，靠的不是武漢人民不得病，靠的不是CCP冠狀病毒離開武漢，這個清零靠的是武漢和全國援鄂醫務人員的共同努力，換言之，只要不給你確診，不管有沒有新增病例，只要我說不是就不是，只要我說清零就肯定是清零了，於是，全人類都應該記住這個日子——2020年4月26日。因為它意味著從此以後，在武漢感染CCP冠狀病毒的新增及復發患者及死亡患者，他們都有一個共同的數字——零！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27002117/zero_web.jpg)
-（（文章內容僅代表作者個人觀點）
+[Spanish0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)
+
+[Spanish0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)
 
 0
