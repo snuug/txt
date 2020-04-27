@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 稀土金屬——中共控制全球戰略之一
-`2020-04-27 10:14 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/186821/)
+## 【世界多語言圖文】2020年4月25日CCP病毒每日疫情直播簡報
+`2020-04-27 12:21 GM10` [轉載自GNews](https://gnews.org/zh-hant/186989/)
 
-中美洲鎳業董事會成員戴維•威爾科克斯(David Wilcox)告訴《大紀元》，由於中共對於地球稀土資源的控制和行業滲透，全球許多科技產業受制於中共政權。「鉺是發展光纜的關鍵，光纜是發展5G網路的關鍵」，他說，如果我們一開始就意識到中共通過佔有稀土資源操控世界的野心，「華為就可能會輸掉這場戰爭，但目前中共贏了，因為中國對鉺市場擁有百分之百的控制權。」
+[English\_0425\_CCP\_Virus\_Updates-4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121839/English_0425_CCP_Virus_Updates-4.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121839/English_0425_CCP_Virus_Updates-4.pdf)
 
-2018年，中共國生產了世界70%的稀土金屬。近年來，中共國在這一領域的主導地位受到了密切關注，一些國家開始謹慎審查中共在稀土項目上的投資擴張，因為中共明顯已經在使用其市場權力來獲取地緣政治利益。
+[French0425\_CCP\_Virus\_-\_Copie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121859/French0425_CCP_Virus_-_Copie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121859/French0425_CCP_Virus_-_Copie-3.pdf)
 
-2010年，在尖閣列島爭端之後，中共政府切斷了對日本的稀土出口。
+[German\_0425\_CCP\_Virus\_Updates\_-\_Kopie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121914/German_0425_CCP_Virus_Updates_-_Kopie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121914/German_0425_CCP_Virus_Updates_-_Kopie-3.pdf)
 
-美中貿易戰期間，中共官方媒體《人民日報》在2019年5月發表社論：「稀土會成為中國反擊美國無緣無故施加壓力的武器嗎？答案並不神秘。」
+[Russia\_0425\_CCP\_Virus\_Updates\_1-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121934/Russia_0425_CCP_Virus_Updates_1-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121934/Russia_0425_CCP_Virus_Updates_1-3.pdf)
 
-在病毒爆發期間，兩家中共國企業已被阻止向澳大利亞寶貴的稀土礦業部門投資。 最近，澳洲聯邦政府出台收緊外國投資規定，並與美國的持續夥伴關係保持一致，以確保稀土供應鏈的安全，而不是由中共國主導。
+[Spanish0425\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121955/Spanish0425_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27121955/Spanish0425_CCP_Virus_Updates-3.pdf)
 
-月20日澳大利亞財長(Frydenberg)阻止了包鋼集團投資2000萬澳元(1280萬美元)在澳洲北部礦山的投標。包鋼集團位於中國內蒙古白雲鄂博礦區——世界上最大的稀土礦床，這家中國共產制度國有集團的子公司在西澳大利亞州經營著一個主要的稀土項目。
-
-澳洲北部礦產公司負責實施布朗斯山脈項目，該項目復蓋了東金伯利地區跨越西澳大利亞州和北領土邊界的廣大3595平方公里（1388平方英里）。該礦富含稀土，特別是鏑——一種最強磁性化合物里的稀土元素，主要用於電動汽車和風力渦輪機。該公司的網站宣告布朗斯山脈將成為唯一的稀土金屬鏑的非中國製造商。
-
-4月24日，宜賓天益鋰業也被迫撤回了一項在澳洲投資計劃，原因是澳政府建議拒絕該投資項目。宜賓天益的支持者之一是中國最大的鋰離子電池製造商當代新能源科技，天益計劃向在剛果民主共和國經營馬諾諾項目的AVZ礦產公司投資1410萬美元(900萬美元)，而這個項目將是稀士金屬鋰在全球的主要生產商。根據AVZ礦產公司的一份聲明，聯邦政府告知宜賓，天益的投資「違背澳洲國家利益」，也有悖於「澳洲關鍵礦產部門」的增長，因此取消與天益的合作計劃。宜賓和AVZ目前正在尋找其他的合作方式。
-
-去年年底，澳大利亞和美國政府正式達成一項協議，開始就每個國家的資源潛力交換信息，並為供應安排制定路徑。為了應對未來中共操控世界的風險，「澳聯邦政府一直在積極發展稀土行業，現在正在抓住機會成為關鍵礦物和稀土生產的動力，」資源和北澳大利亞部長馬特•卡納萬(Matt Canavan)說。
-
-[原文鏈接](https://www.theepochtimes.com/two-chinese-firms-blocked-from-australias-rare-earth-sector_3327267.html)
-
-翻譯報道: 意翎
+[Janpanese\_0425\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27122023/Janpanese_0425_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27122023/Janpanese_0425_CCP_Virus_Updates-3.pdf)
 
 0
