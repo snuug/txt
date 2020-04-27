@@ -1,87 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 任正非先發生了什麽事？3天時間談話巨變！
-`2020-04-26 11:55 GM30` [轉載自GNews](https://gnews.org/zh-hant/185532/)
+## 2020年4月21-23日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-26 19:29 GM33` [轉載自GNews](https://gnews.org/zh-hant/186163/)
 
-**作者：趙王勾**
+[English\_0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)
 
-內容要點：
+[English\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)
 
-1、任正非先生被某種程度上限制了人身自由。
+[English\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)
 
-2、孟晚舟女士某種程度上被限制了通訊自由。
+[French\_0421\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)
 
-3、任正非先生和孟晚舟女士已經對CCP失去了利用的價值，被完全抛棄。
+[French\_0422\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)
 
-4月26日一早，華爲操作系統想超蘋果和安卓不用300年的消息開始刷屏。不用300年在各社交媒體吸引各種吐糟。
+[French0423\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26112806/1-238.jpg)
+[German\_0421CCP\_Virus\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26113008/2-98.png)
+[German\_0422\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-我趕快上度娘搜索看下是什麽情況：
+[German\_0423\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26113104/3-80.png)
+[Japanese0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)
 
-但是裏面居然也有任正非先生4月20日的采訪，已預裝操作系統，不需要向美國妥協！而且采訪任正非先生的不是別人，正是我們熟悉的《華爾街日報》中文版（相信大家對這家媒體的德性和立場都很清楚了）。
+[Japanese\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26113435/5-42.png)
+[Janpanese\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)
 
-神奇的是，在3天後任正非先生接受了一個叫《龍》雜志采訪，而且放出不會超過300年這個消息，是要給華爲和所有的粉紅們潑盆冷水？還是想表達什麽隱含的意思？我相信大多數人和我一樣是第一次聽說這本雜志吧，因爲中國各類官辦的媒體雜志也是非常多的，但是就是這個名不見經傳的《龍》雜志總編竟然完成了對任正非先生的獨家專訪！注意了，是獨家專訪！！！重要的事情說三遍，獨家專訪！獨家專訪！！獨家專訪！！！
+[Russia\_0421\_\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)
 
-有幾家媒體能有這個的殊榮呢？看看過往任正非先生接受過專訪的媒體身份就知道了。都是國際媒體和中央級媒體，一般媒體有對任正非先生進行集體采訪的待遇就不錯了。
+[Russia\_0422\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)
 
-《龍》雜志是誰？任正非先生爲什麽要通過這麽一個普通的不能再普通的媒體卻放出要300年才能超越的消息？
+[Russia\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26113717/6-31.png)
+[Spanish0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)
 
-這是我在百度上能到僅有的《龍》雜志消息，也可以得知，是由甘肅省宣傳部主管、甘肅龍文化研究院和甘肅省社會科學院主辦的內刊！
+[Spanish0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)
 
-一本內刊，一個遠在甘肅的雜志，獨家專訪了所謂中國最頂級的科技公司的創始人！這本身應該是一個新聞了。我馬上想通過截圖中的陸軍刊報簡介找到《龍》雜志更多的消息，結果是：
+[Spanish0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26113847/7-26.png)
 
-3天時間，從不需要向美國妥協到超越需要300年！任正非先生怎麽了？在任正非先生身上發生了什麽事讓他要通過一個極少人知道的雜志放出消息？
-
-這更引起我的極大好奇，我決定想找到更多的資料：
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26114021/8-16.png)
-
-法廣華語報道孟晚舟要在4月27日加拿大卑詩省最高法院將再次開庭審理孟晚舟引渡案！
-
-再看下國內最新消息：
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26114123/9-12.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26114220/10-6.png)
-
-因爲孟晚舟即將開庭，所以3天時間任正非先生談話語氣由激昂變理性？這應該是一個理由吧，畢竟孟晚舟是任正非先生的血親骨肉，如果這個時間不刺激美國及世界也是人之常情。
-
-我們現在把事件再梳理一遍，仍然會發現很多不解之處！
-
-比如：
-
-1、孟晚舟要4月27日開庭，她居然不告訴自己的父親？還是孟晚舟女士已經被限制與家人通話？
-
-2、孟晚舟女士開庭是很多媒體都關心的國際事件，難道溫哥華總領館也不知會下她的家人？以前總領館可是對孟晚舟女士噓寒問暖無微不止的關心呀。
-
-3、任正非先生的身份及影響力，而且華爲在全球那麽多的機構，難道就是沒有一個人告訴下他，自己女兒27日要開庭？
-
-那麽來推斷下：
-
-1、任正非先生被某種程度上限制了人身自由。
-
-2、孟晚舟女士某種程度上被限制了通訊自由。
-
-3、任正非先生應該是在21日得知愛女開庭的消息，只能通過一個沒有太多人關注的《龍》雜志發聲音。
-
-4、任正非先生和孟晚舟女士已經對CCP失去了利用的價值，被完全抛棄。
-
-正如文貴先生多次提及的，爲CCP這個邪惡組織賣命的人，從來都不會有好結局。
-
-一切已經開始！
-
-（文章內容僅代表作者觀點）
 
 0
