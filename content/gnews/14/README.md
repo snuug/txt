@@ -1,31 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月24-25日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-27 02:05 GM33` [轉載自GNews](https://gnews.org/zh-hant/186363/)
+## 是該向“病毒”說不了
+`2020-04-27 02:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/186541/)
 
-[English\_0424\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)
+**作者：文石堅**
 
-[English\_0425\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)
+當2020年1月19日自媒體路德社向全世界發布了關于中國武漢大面積爆發COv-2019病毒引發的武漢肺炎的信息的第二天，中共中央電視台也發布了病毒傳播的信息，只不過它說這個病毒傳播“可防可控”而且毒性並不大，到今天已經整整4個多月，在這4個月中發生了太多的足以改變世界格局甚至影響人類未來的大事，從最早的中國武漢封城到後來的中國幾乎全國封國，到2月開始向世界擴散，三月世界幾乎全部封閉。病毒完成了今天的大洪水，世界各國成爲一個個孤島。而聯接世界的信息渠道也與病毒一樣不斷變異，中共“防火牆”幾乎隔絕了中國與世界的信息交換，讓中國在自我制制造與複制的信息中扭曲地看待病毒與世界，而西方世界則在病毒面前完全亂了方寸，他們在生命與自由之間陷入了空前的迷茫，政府也在長期的政治正確選票政治的洗滌中漸漸地失去了應有的擔當本能而陷于選票恐懼之中。
 
-[French0424\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)
+病毒，今天我們說的是包括COv-2019在內的人類所面臨的兩種病毒，即人類思想中的病毒，即CCP病毒。我們該向這些病毒說不了。
 
-[French0425\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)
+COv-2019病毒已經證明是一種基于舟山蝙蝠攜帶的冠狀病毒人工引導變異而成的一種新型超級病毒，其不僅具有冠狀病毒的原有毒性，還穿插了HIV和埃博拉病毒，已經發展成爲具有超級傳染性超級致病性的一種生化武器。而CCP病毒則是基于儒表法裏的傳統虛假文化嫁接了馬克思列甯主義中最有毒害性的革命理論而成爲人類史上最具蠱惑性最具僞裝性最毀滅人性最邪惡的一種思想，這種思想病毒具有超強的傳染性，遠比當初的納粹思想更具傳染力，具有更強的迷惑性。它們借助神秘的東方文化特點來包裝自己而欺騙西方世界。這層東方文化神秘特點對于西方人來說很難識破其危害性，西方人很容易識別納粹的危害，但對這種包裹了所謂東方智慧的醜陋文化卻幾乎沒有識別能力。它們具有超強的毀滅人性的思想，它們在中國這七十年的實踐中已經以各種方式殘殺了數億人的生命，其中三年人類史上和平時期的空前大饑荒餓死了多達超過三千萬人的生命[i]，在文化大革命年代，又使數千萬人失去生命[ii]，通過這十年，它們完全消滅了中國任何獨立思想存在的任何空間[iii]，消滅了文化[iv]與科學技術[v]，幾乎消滅了人間一切物質與精神財富。它們控制了十四億人的思想[vi]，限制了十四億人的自由[vii]，它們可以隨意剝奪生命，計劃生育政策導致至少四億胎兒被強制引産，導致無數産婦因野蠻引産而死亡，無數家庭因被強制執行計劃生育政策而家破人亡。它們借所謂的改革公然強取人民財産，它們利用雙軌制向少數官宦子弟直接輸送大量利益，它們利用證券市場大量盜劫金錢，它們利用所謂的國企改革將三十余年殘酷的剪刀差積累的一點點財富拱手送給官僚集團，它們利用所謂的金融改革公然濫發貨幣，它們利用所謂的市場經濟公然地將子孫後代的財産變賣，它們賣光了礦山與森林，它們賣光了土地與空間，它們賣光了空氣與河水，一切的一切，都被它們轉化爲官僚集團的私有財産，給人民留下了巨額負債與虛弱的身體，汙染的空氣、土地與河流。它們不僅掠奪自己的國民，還收買西方的利益集團，騙取西方金錢。
 
-[German\_0424\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)
+今天，COV-2019病毒已經導致了近十萬人喪生，數十萬億美元的財富損失。而CCP病毒給中國與世界造成了遠遠超過數百倍的生命損失，遠超過這數十萬億美元的損失。不僅如此，CCP病毒更帶來了社會的腐敗與墮落，不僅在中國，與COv-2019病毒一樣，根本不受國界的限制，傳播向了全世界。
 
-[German\_0425\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27024431/hjkl-3.jpg)
 
-[Japanese0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)
+今天的中國，已經腐敗到了每個細胞，整個官僚集團必須依賴腐敗才能存在。它們還向世界輸出腐敗，WHO在COv-2019病毒面前的醜惡表現已經向全世界證明了，一個全世界衛生的民間組織已經受到了何等深刻的腐敗侵蝕，不僅WHO，幾乎所有的世界性質的民間組織幾乎都被腐敗所控制。世界人權組織，本來應該保護世界人民的人權不受侵犯，他們卻公然忽視十四億中國人生活在完全沒有人權保障的現代奴隸社會，居然還爲它們唱贊歌；他們完全不顧新疆正在發生的納粹集中營般的慘劇，從來不爲西藏佛教受到打壓而發聲，看不到法輪功成員受到的非人的遭遇，更不管在中國基督徒和穆斯林長期受到的打壓。這些都是被CCP腐蝕的世界性組織機構。它們不僅腐蝕這些民間機構，也深入官方商業機構，如世界銀行等，一個個事實都已經證明CCP病毒對于人類社會的毒害。即使以現代文明自居的西方民主社會也受到深度腐蝕，美國的主流新聞媒體幾乎全體淪陷。本來代表美國意志爲美國發聲的VOA居然發生了令美國蒙羞的2017年4月19日的斷播門事件，創下了美國新聞自由史上的最大醜聞。
 
-[Janpanese\_0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)
+這些變化都在陽光之下悄悄地進行，正如這次COv-2019病毒的傳播已經超出人們的想像力一樣。這些CCP病毒不僅腐蝕人們的器官，更侵入人們的血液。華爾街的金融大佬們幾乎與CCP沆瀣一氣，他們不僅翻手爲去覆手爲雨地捉弄著金融市場衝擊著實體經濟的正常運行抽幹著實體經濟的血液，而且定期地制造市場危機以攫取他們更大的利益。他們與CCP具有一個共同的性質，就是不斷制造神話，並且讓神話成爲不可破産的怪胎，迫使美國政府一次次地在這些神話面前落敗。
 
-[Russia\_0424\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)
+是該向這些病毒說不了！
 
-[Russia\_0425\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)
+因爲我們有了現代科技，人們不會再像中世紀那樣對病毒無能爲力，我們已經擁有治療染毒感染發病的良藥，我們擁有現代衛生系統，我們擁有現代信息發布系統，我們還將很快擁有針對COv-2019病毒的疫苗。戰勝COv-2019指日可待。
 
-[Spanish0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)
+同樣我們有了現代文明與普世價值，有了堅定的自由理念與民主方法，並且今天我們有了戰勝CCP病毒的王牌-TRUMP，我們即將推倒CCP所建立的將中國與世界隔離的防火牆，將很快徹底打倒CCP這個人世間人類曆史上曾經出現過的最邪惡的組織。
 
-[Spanish0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)
+當然，病毒的消滅並不意味著一切的結束。COv-2019可能化身爲新型流感而在以後侵擾著人們，而CCP則可能化身爲其他形態而繼續蠱惑著人們。同時另一種思想也可能出現，現在我們必須指出，才有可能提前防範。或許今天的指出會讓一些人非常不舒服，但思想的尖銳就是因爲不舒服才具有意義。COv-2019病毒的出現，讓人類失去了很多自由，政府管制已經成爲曆史上最嚴厲的階段。任何重大安全事件對于社會的變化最有可能的就是公民失去一定的自由權，人們曾經對911事件做過反思，今天我們決不能等這些事件發生後再去做反思。自由的人民，必須時候爲自由而戰，哪怕病毒可能感染我的身體，甚至奪去我的生命，爲了自由，一切都值得。
+
+由于CCP對曆史審判的恐懼而銷毀了幾乎所有資料，從而無法得到准確的因饑餓而死亡的人類。著名學者楊繼繩在《墓碑》中說到，他根據能查到的資料而統計的非正常死亡數據約爲3650萬。在四人幫集團粉碎後，楊尚昆曾經在一次會議上說死亡人數大概超過八千萬。而一位四川學者在辭去公職後自行調查研究的結果大約爲9000萬到一億之間。本人根據《中國人口年鑒》和《中國經濟年鑒》資料，做了個數學模型，計算結果約爲7000萬，誤差在500萬。
+文化大革命初期，中國陷入內戰與深度內亂，這場內戰，大家所宣傳的理念是一致的，保護對象一致的，但內戰卻在這一致的口號下幾乎漫延到全國各地。內戰死亡人數無法統計。後來的各種運動迫害數百萬人悲慘地死去。
+
+他們把所有有思想的人通通或者殺掉，或者讓其陷入極度屈辱的生活之中，從而或者消滅有思想的人，或者讓他們失去思想的能力。他們那時在全國各地修建了大量的關押這些有思想人的黑房子，他們稱之爲牛棚。
+當時的文化活動，只有唱贊歌，跳忠字舞與八個樣板戲。
+當時的科學家已經成爲領袖精神的做注解人。錢學森的萬斤糧已經成爲科學恥辱。
+那時的思想只有一本紅寶書，和一套《毛澤東選集》，被稱爲“毛澤東思想”。
+當時中國人失去了所有自由，甚至生命的自由都沒有，可以隨意地被剝奪。
+
+（文章內容僅代表作者觀點）
 
 0
