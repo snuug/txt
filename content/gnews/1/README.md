@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月21-23日世界多種語言CCP病毒疫情圖文每日播報
-`2020-04-26 19:29 GM33` [轉載自GNews](https://gnews.org/zh-hant/186163/)
+## 台灣應向中共索賠一兆元台幣
+`2020-04-26 22:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/186301/)
 
-[English\_0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)
+**作者：LMD**
 
-[English\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)
+正當世界各國向中共索賠之際，台灣也應加入以美國爲首的行列，以告慰這次新冠肺炎的受害者：因感染而死、住院、身體、精神受到損害、財産遭到損失、失去工作、遭到隔離等等的那些台灣人。
 
-[English\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)
+自從中共病毒爆發以來至今，失業逐漸浮現。根據主計總處的統計，3月失業率較2月增加0.02％，3月工時未達35小時就業人數較2月大增3.5萬人；此外，很多行業受到極大影響：估計上半年有超過500間旅行社面臨停業，至少1500家旅行社放無薪假；另外，航空業哀鴻遍野，光是二到四月，華航損失近50億元，長榮損失近百億元；能源業的虧損：第一季中油稅前大虧175億元，台塑化虧損逾99億元；文創業方面，今年上半年畫廊的合並損失至少10余億元；服裝産業損失逾30億元。觀光業的損失，政府估計約1800億元，而全國商業總會理事長賴正镒在2月下旬的估計是，預估2到4月，商業、服務業營收將因此損失新台幣5千億元以上，他還預估，「最晚應該3月底大概可以全部恢複正常」，但現在已經四月底了，全球疫情並沒有得到控制。此外，疫情期間，口罩不可少、酒精、個人防護用品不可少，這些支出，都必須向中共索賠。單單口罩，截至4月11日，政府已經征用6億6873萬片，以一片5元計算，就花掉33億元。這筆錢也必須由中共買單。
 
-[French\_0421\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26220926/hjkl.jpg)
 
-[French\_0422\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)
+爲了因應這次疫情，我政府至今提出2100億元的纾困方案，還可能追加，這些錢都是因爲有了中共病毒才支出的，這些開支都應該算進去我們不該得的損失，因此，必須向中共索賠。至今，台灣已有6人因爲中共病毒而過世，那麽一條人命值多少錢呢？就算1000萬元好了？此外，至今已有429名確診，根據陳時中部長的計算，「一個確診者會花掉社會成本，間接的都先不算，直接成本就要 210 萬」，因此光是直接的醫療成本，至今已經花掉9億元。
 
-[French0423\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)
+受到疫情的打擊，台灣的經濟因此下行。根據國際貨幣基金組織的估算，2019年台灣人均所得24827美元，而我國央行在去年12月19日預測2020年的經濟成長率爲2.57%，如今中共病毒影響，台灣會有多少經濟損失呢？若按照國際貨幣基金組織的預估，台灣今年委縮4%，那麽，我們每一個台灣人應該向中共索賠1631美元。如果按照央行自己的估計，也就是全年GDP的小幅下修爲正1.92%。究竟國際貨幣基金組織的預測比較可靠還是央行的數字呢？考慮到台灣對中國市場的出口依賴度高達40％，且台灣對外投資七到八成都集中在中國，而新冠肺炎疫情至今未見消退，因此，我認爲，央行的預測過于樂觀。相反的，台灣經濟研究院預測2020年全年經濟成長率爲1.03%，應該比較可靠。在這種情況下，每個台灣人應該向中共索賠382美元，以台灣2300萬人計算，那麽，這一部份，中共要賠償2635.8億元。因此，全部加起來，台灣人可以向中共求償至少1.0041兆元。
 
-[German\_0421CCP\_Virus\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)
+那麽，中共能拒絕索賠嗎？不能。原因是就算中共病毒不是人造而是出于意外，在這種情況下，中共依然負有責任，那就是隱瞞、誤導、非法囤積醫療物資。何況，諸多迹象都顯示，病毒來自于武漢病毒研究所的實驗室，而非華南海鮮市場。
 
-[German\_0422\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)
+中共如何隱瞞？根據南華早報，中國的第一例武漢肺炎確診病例可以追溯到去年11月17日，一名湖北省的55歲居民，但是否就是「0號病人」，則仍未確定。但遲至12月31日，中共才向世界衛生組織報告病例。今年1月3日，武漢中心醫院醫師李文亮等八人因揭發疫情，反而被中共認定造謠並因此遭到訓誡。而且，一直到1月20日，中共中央電視台才播出“抗疫”專家鍾南山指新冠肺炎「肯定有人傳人」。換言之，中共至少隱瞞了63天，才對外承認新冠肺炎能人傳人。那麽，爲什麽隱瞞63天呢？一種可靠的解釋是，想辦法讓病毒在不被防備的情況之下快速散播開來，尤其是隨著飛機、輪船、郵輪散播到國外。
 
-[German\_0423\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)
+接下來，中共是如何誤導？中共一開始說這種病毒「可防、可控、不會人傳人」，而事實上剛好相反。中共還利用WHO作爲它的傳聲筒，一再建議人們不用戴口罩。即使WHO自己在3月12日都已經宣布「新冠肺炎是全球大流行疾病，並預期將進一步擴散」的情況之下， WHO官員在3月30日仍建議民衆沒事不用戴口罩。爲什麽他們要說新冠病毒可防可控不會人傳人，爲什麽WHO的官員要建議世界各國的民衆不要戴口罩，一種合理的解釋是，只有不戴口罩，中共病毒的傳播才能快速，一旦人們戴起口罩，那麽，病毒要傳播就會變得很困難，這是台灣防疫成功的一個很重要原因。換言之，「可防、可控、不會人傳人」、「不用戴口罩」是用來誤導的，目的是讓病毒傳播的更快更遠，進而使更多人感染，這是爲什麽很多國家短短時間內感染人數暴增的主因，例如美國3月1日的感染人數才65人，到了4月24日，感染人數達到88萬，且有5萬人死亡，那就是讓人以爲「可防、可控、不會人傳人」、「不用戴口罩」，不用防備，這就是WHO以他的權威建議民衆不戴口罩的原因。
 
-[Japanese0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)
+怎麽說中共非法囤積防疫物資？一開始，很多國家都是抱著善意捐助中共醫療物資，沒想到這時候的中共反而在全世界搜刮防疫物資。以至于當世界各國發生大面積感染的時候，發現自己國家裏的防疫物資已經全被中共給買光了，這是爲什麽歐美國家出現高感染率，高死亡率的主要原因之一：因爲缺少個人防護設備。根據中共海關的公開資料，1月24日-2月29日，中共海關共驗放疫情防控物資24.6億件。其中，防護用品共24億件，主要包括口罩20.2億個，防護服2538萬件，基本上把全世界同類庫存都掏空了。
 
-[Japanese\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)
+總之，中共的一系列做法無異于對中國人民、世界人民、也是對台灣人民的蓄意謀殺，我們怎能不爲那些失去生命、親人、朋友的台灣人求償，我認爲，政府責無旁貸。
 
-[Janpanese\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)
-
-[Russia\_0421\_\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)
-
-[Russia\_0422\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)
-
-[Russia\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)
-
-[Spanish0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)
-
-[Spanish0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)
-
-[Spanish0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)
-
-
+（文章內容僅代表作者觀點）
 
 0

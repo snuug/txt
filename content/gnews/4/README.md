@@ -1,26 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 歐盟 拿什麼拯救你？
-`2020-04-26 11:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/185467/)
+## 2020年4月21-23日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-26 19:29 GM33` [轉載自GNews](https://gnews.org/zh-hant/186163/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26110757/Picture-1-339.png)
-據相關媒體報導，近期歐盟反虛假信息小組的定期更新的一個報告中提及中共如何動用國家力量來散佈虛假新聞。然而此報告從初稿到定稿，中間充滿了政治力量的較量。外交消息人士稱，歐盟最終不得不淡化了有關中共國家支持虛假信息的報告的一部分，因為它擔心中共將通過扣留醫療用品進行報復。
+[English\_0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192603/English_0421_CCP_Virus_Updates-1.pdf)
 
-文章指出，歐盟反虛假信息小組隸屬於歐盟外交部門下屬的歐洲外部行動服務部（EEAS）。該小組最初成立是用來監視可疑的、來自的俄羅斯的虛假信息和宣傳，從去年開始將其職權擴大到中共。其在4月1日發布的最新報告中說，中共國家媒體和其政府官員正在宣傳有關中共冠狀病毒起源不明論，中共同時著重宣傳歐洲領導人對其醫療援助表示感謝。
+[English\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192610/English_0422_CCP_Virus_Updates-1.pdf)
 
-此文引用路透社報導，中共外交部歐洲司參贊楊曉光專門就此報告在北京會見了歐盟的外交官，目前尚不清楚他如何在報告發表之前獲悉報告內容。歐盟駐北京的外交官隨後將中共官員的話轉達給了他們在布魯塞爾歐盟總部的同事。同時撰稿人指出《紐約時報》報導說，歐盟外交部門負責人約瑟夫·博雷爾（Josep Borrell）的通訊顧問埃絲特·奧索里奧(Esther Osorio)隨後親自乾預，推遲了初稿的發布。據報導，她不顧其他團隊成員的發對，堅持要求分析人員修改報告，以避免對中國和俄羅斯的指責。
+[English\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192615/English_0423_CCP_Virus_Updates-1.pdf)
 
-報導中補充歐洲外部行動服務部否認它屈服於中共的壓力。歐盟委員會外交事務發言人維妮妮·巴圖·亨里克森（Virginie Battu-Henriksson）說：“我們從未屈服於任何所謂的外部政治壓力。” 她補充說，該報告展示了“來自包括俄羅斯和中共在內的各種官方和受國家支持的虛假信息和陰謀論斷”。
+[French\_0421\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192628/French_0421_CCP_Virus_Updates_-_Copie-1.pdf)
 
-據此文章指出，原始報告說，歐洲分析家發現“源源不斷和相互配合的來自中共官方的消息巧妙地推卸了對中共的任何責備。” 但更新後的版本說：我們觀察到有很多持續的、相互配合的力量在“演出”以達到推卸指責的目的，這種力量包含來自中共的資源。最初版本中所涵蓋的關於中共正在開展全球虛假宣傳運動，以轉移對中共冠狀病毒爆發原因的指控的部分被最後刪除。
+[French\_0422\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192638/French_0422_CCP_Virus_-_Copie-1.pdf)
 
-然而，中國駐歐盟大使張明仍然對報告的精簡版有所抱怨。他在歐洲之友智囊團於星期五組織的一次在線活動中說：“虛假信息是我們所有人的敵人。從一開始，中國就遭受了很多虛假信息的困擾。我們現在最好先忘記政治。”
+[French0423\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192651/French0423_CCP_Virus_Updates_-_Copie-1.pdf)
 
-評：中共潛藏在歐盟中也有很多沉默的力量，以至於歐盟的報告在未發表之前就被中共得知，且被施加影響而做出修改。然而也可以看到，歐盟裡面追求正義的力量正在與這些沉默的力量交鋒。隨著中共冠狀病毒真相在美國被逐漸揭露，更多的政客和媒體加入到聲討、問責中共的過程中，相信歐盟會很快意識到他們正在犯的錯誤。歐盟應該學習澳大利亞，緊跟美國，需要從根本上明白只有滅掉中共才能從根本上結束中共病毒在歐洲肆虐的悲劇。
+[German\_0421CCP\_Virus\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192700/German_0421CCP_Virus_-_Kopie-1.pdf)
 
-[原文鏈接](https://www.scmp.com/news/china/diplomacy/article/3081564/eu-toned-down-report-chinese-disinformation-after-beijing)
+[German\_0422\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192710/German_0422_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-翻譯報導：匿名
+[German\_0423\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192724/German_0423_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-1
+[Japanese0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192739/Japanese0421_CCP_Virus_Updates-1.pdf)
+
+[Japanese\_0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192800/Japanese_0422_CCP_Virus_Updates-1.pdf)
+
+[Janpanese\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192811/Janpanese_0423_CCP_Virus_Updates-1.pdf)
+
+[Russia\_0421\_\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192824/Russia_0421__CCP_Virus_Updates-1.pdf)
+
+[Russia\_0422\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192833/Russia_0422_CCP_Virus_Updates_1-1.pdf)
+
+[Russia\_0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192845/Russia_0423_CCP_Virus_Updates-1.pdf)
+
+[Spanish0421\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192856/Spanish0421_CCP_Virus_Updates-1.pdf)
+
+[Spanish0422\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192906/Spanish0422_CCP_Virus_Updates-1.pdf)
+
+[Spanish0423\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26192916/Spanish0423_CCP_Virus_Updates-1.pdf)
+
+
+
+0
