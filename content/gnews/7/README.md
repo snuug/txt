@@ -1,13 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室：西方民眾如何能夠幫助中國人民獲取自由
-`2020-04-27 01:23 GM31` [轉載自GNews](https://gnews.org/zh-hant/186437/)
+## 2020年4月24-25日世界多種語言CCP病毒疫情圖文每日播報
+`2020-04-27 02:05 GM33` [轉載自GNews](https://gnews.org/zh-hant/186363/)
 
-在4月25日早上的[第139期](https://www.youtube.com/watch?v=6J0fq6HbS9M)War Room: Pandemic 節目中，來自VOG的郭嘯天先生接受了班農先生的採訪。
+[English\_0424\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000639/English_0424_CCP_Virus_Updates-1.pdf)
 
-當被問及“美國人民能做什麼來幫助中國的兄弟姐妹獲取自由？”時，郭嘯天指出：“我想從最簡單的事情開始，就是不要相信任何來自CCP的宣傳，不論是來自國內或者海外，他們就是純粹的謊言。西方的民眾需要問一個簡單的問題，如果CCP獨裁政權對待自己的人民毫無尊重與人性基本的尊嚴，為什麼西方的民眾期待他們能獲得不同的待遇呢？”
+[English\_0425\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27000655/English_0425_CCP_Virus_Updates-1.pdf)
 
-*翻譯：【JasonZZZ（正坤小哥）】【不吃豆的豆豆】 校對：【GM31】 字幕：【不吃豆的豆豆】*
+[French0424\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235704/French0424_CCP_Virus_-_Copie.pdf)
+
+[French0425\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235712/French0425_CCP_Virus_-_Copie.pdf)
+
+[German\_0424\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235722/German_0424_CCP_Virus_Updates_-_Kopie.pdf)
+
+[German\_0425\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235733/German_0425_CCP_Virus_Updates_-_Kopie.pdf)
+
+[Japanese0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235746/Japanese0424_CCP_Virus_Updates.pdf)
+
+[Janpanese\_0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235810/Janpanese_0425_CCP_Virus_Updates.pdf)
+
+[Russia\_0424\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235828/Russia_0424_CCP_Virus_Updates_1.pdf)
+
+[Russia\_0425\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235843/Russia_0425_CCP_Virus_Updates_1.pdf)
+
+[Spanish0424\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235902/Spanish0424_CCP_Virus_Updates.pdf)
+
+[Spanish0425\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/26235912/Spanish0425_CCP_Virus_Updates.pdf)
 
 0

@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共理財産品是大坑，守住口袋，度過寒冬！“共渡難關，中共病毒疫情每日熱線”
-`2020-04-27 01:32 GM30` [轉載自GNews](https://gnews.org/zh-hant/186462/)
+## 【日文字幕】班農：郭文貴為美國敲響了警鐘！
+`2020-04-27 02:14 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/186505/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+バノン氏：郭文貴さんが我々に警鐘を鳴らしていた！
+
+
+
+製作：【上天造 滅疫組】
 
 0
