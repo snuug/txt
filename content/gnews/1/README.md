@@ -1,21 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020年4月26日CCP病毒每日疫情直播簡報
-`2020-04-27 12:34 GM10` [轉載自GNews](https://gnews.org/zh-hant/187016/)
+## 黨媒拉仇恨攻擊共和黨
+`2020-04-27 18:23 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/187083/)
 
-**战友之家**
+[https://spark.adobe.com/page/ufdIlAHYzOmwQ/](https://spark.adobe.com/page/ufdIlAHYzOmwQ/)
 
-[English0426\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123120/English0426_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123120/English0426_CCP_Virus_Updates.pdf)
+### **「神助攻」或許加速共和黨上台**
 
-[French\_0426\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123134/French_0426_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123134/French_0426_CCP_Virus_-_Copie.pdf)
+作者：*Giselle*
 
-[German\_0426\_\_CCP\_Virus\_Updates\_2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123143/German_0426__CCP_Virus_Updates_2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123143/German_0426__CCP_Virus_Updates_2.pdf)
+校閱：*Julia Win*
 
-[Japanese0426\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123155/Japanese0426_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123155/Japanese0426_CCP_Virus_Updates.pdf)
+4月27日，一則美國媒體《政治報》曝光一份共和黨內部備忘錄，敦促共和黨政治競選人抹黑和批判中國的消息，在國內主流媒體廣泛流傳。新華網評論稱，該文件為共和黨謀求「政治加分」，煞費苦心為他們提供「攻略」，「手把手」教人作惡。
 
-[Russia\_0426\_CCP\_Virus\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123214/Russia_0426_CCP_Virus_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123214/Russia_0426_CCP_Virus_-_Copie.pdf)
+這一備忘錄標注日期為2020年4月17日，長57頁，給出三大攻擊路線：一是批評中國掩蓋疫情等；二是指責民主黨對手對華立場軟弱；三是強調自己會找中國討說法等。其中，備忘錄建議，當被問到「這難道不是總統川普的錯？」的問題時，不要為川普辯護，把矛頭指向中國。
 
-[Spanish\_0426\_CCP\_Virus\_Updates\_ES](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123234/Spanish_0426_CCP_Virus_Updates_ES.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/27123234/Spanish_0426_CCP_Virus_Updates_ES.pdf)
+對此，中共官媒央視、海外黨媒《環球時報》、觀察者網，紛紛轉載並評論，火力全開，矛頭直指美國共和黨整個黨派。
+
+《中國日報》發表評論文章稱，通過打「中國牌」，川普與共和黨試圖給對手、民主黨總統競選人拜登打上「軟弱」的標籤，因為拜登曾攻擊川普針對中國的旅行禁令，也曾批評川普使用「中國病毒」一詞，並表示中國不是美國的「競爭對手」。川普不會輕易放過拜登在競選過程中的任何「弱點」。但是，以犧牲中美雙邊關係為代價來謀求大選勝利，無疑將因小失大。
+
+該評論還認為，一些國會共和黨議員仍在呼籲，削減在美國的中共國媒體工作人員和孔子學院數量，這種短視的做法只會破壞中美關係的民意根基，加劇兩國民眾之間的誤解。
+
+![](https://spark.adobe.com/page/ufdIlAHYzOmwQ/images/1D3DE506-A3E3-49B6-AFB0-86A6FA98FEFE.jpg?asset_id=24D3D535-CB62-4B96-A08B-A1FC188F4C68&amp;size=2560)
+
+黨媒的這一波神操作，實在是令人無語。我們都知道，在過往的歷史當中，黨媒如果攻擊誰，誰就會當選。去年中共黨媒也曾聯合起來攻擊台灣蔡英文總統，試圖破壞蔡英文連任，扶持親共的民粹主義者韓國瑜上台。結果黨媒罵得越凶，蔡英文民意越是高漲，最後蔡英文以超過817萬票的成績成功連任，創下台灣總統選舉史上最高得票數。
+
+目前川普和拜登都在指責對方親中，民主黨甚至不惜耗費巨資，拍攝長視頻放出川普與習近平哥倆好的助選廣告，以顯示自己才是真的反共立場。而一些有中共背景的大外宣也配合此輪攻擊，在推特等社交媒體污蔑川普與中共勾結，抹黑川普的支持者，打擊支持川普的力量。
+
+由於中共釋放CCP病毒令美國生靈塗炭、經濟停擺，因此，2020年美國兩黨競選中，滅共主題是收買民意最重要的一張牌。美國共和黨、民主黨都想打好這一張牌，以證明對方與中共勾結，自己才是真的想滅共。而中共黨媒這一波神操作，可能會導致適得其反的效果。
+
+4月25日，爆料革命發起人、踐行者郭文貴，接受美國前國家安全顧問班農先生採訪，在節目中，郭先生披露了中共對美國實施的藍金黃和3F計劃，並表示中共很早就嘗試用很小的代價來對付美國。節目播放出來之後，引起了中共的恐慌。一些有中共背景的大外宣，在推特上瘋狂攻擊川普總統，指責川普與中共勾兌，利用在中共國註冊商標，大發品牌財。
+
+對此，推友KELLY駁斥道：川普競選總統前10年就在中共國申請註冊商標，一直未獲批准。川普競選成功之後，中共趕緊通過了所有的申請。而為了避嫌，川普上任幾個月後，他的女兒伊萬卡就關閉了所有在中國的業務。由此我們可以看出，川普過去、現在、未來都不會與中共勾兌。如果川普在過去與中共曾有過勾兌，那中共也不會刁難川普長達10年之久。
+
+黨媒的這一波操作，實在是令人費解。由此我們也可以看出，面對堅定的、強大的滅共力量，中共已經黔驢技窮、無計可施了。這一波的輿論宣傳，很可能就是造給國內民眾看的，目的還是煽動民意，製造仇恨，把美國推向敵對面。
+
+資料來源
+
+1，[誰是美國共和黨這份57頁「抹黑中國劇本」幕後推手？](https://baijiahao.baidu.com/s?id=1665033083934263522&amp;wfr=spider&amp;for=pc)
+
+2，[中國日報網評：主打「中國牌」，美國共和黨恐怕打錯了算盤](http://cn.chinadaily.com.cn/a/202004/27/WS5ea63b26a310eec9c72b581b.html)
+
+#### **編輯：【喜馬拉雅戰鷹團】**
+
+
 
 0
