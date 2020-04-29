@@ -1,16 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員：中共領導層故意把病毒傳播到全世界
-`2020-04-28 05:40 GM09` [轉載自GNews](https://gnews.org/zh-hant/187531/)
+## 中共病毒在少數兒童中也會引發危險症狀
+`2020-04-28 09:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/187673/)
 
-字幕：小南，LilyW，Vinzo，翻譯：ZionChung
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28084436/Picture-1-352.png)
+據英國廣播公司4月27日報導，英國國民保健署（NHS）發出緊急警報稱，倫敦和英國其他地區的重症監護室發現，在近幾天收治的一些兒童身上出現不尋常的危險症狀。其中包括多系統炎症和類似流感的症狀，有些已被確診感染了中共病毒。
 
-編者按：主持人中途改口稱‘中共’而不是中國，Tom Cotton強調是‘中共領導層’‘故意’把病毒傳播到世界。壹切都已經開始
+現在還不清楚到底有多少兒童曾經有過這些症狀，但是數量應該比較少。 NHS英格蘭醫學總監史蒂文·帕危斯（Stephen Powis）表示：＂我們已請專家緊急研究這個問題。＂
 
-來源：
+這些兒童患者年齡不一，但是病情都非常嚴重，發病症狀類似非典型川崎病（Kawasaki Disease）和中毒性休克綜合徵，其中包括高燒、低血壓、皮疹和呼吸困難。一些兒童也有胃腸道症狀，例如腹痛、嘔吐、腹瀉。此外，還有心肌炎及血液檢測異常等症狀。專家認為這些都是免疫系統在對抗感染中衰竭的表現，應及時就診。
 
-> The Chinese Communist leadership did not want to see their relative power and standing in the world decline because this virus was contained within China so they deliberately hid it from the world. MORE: [https://t.co/GGLdmJaFT6](https://t.co/GGLdmJaFT6)
-> — Tom Cotton (@SenTomCotton) [April 26, 2020](https://twitter.com/SenTomCotton/status/1254428850911576069?ref_src=twsrc%5Etfw)
+專業強調，根據世界各國的證據表明，兒童是受中共病毒影響最小的群體，只有很少一部分有嚴重症狀。
+
+皇家兒科保健學院（RCPCH）建議，家長們不必恐慌，但是在孩子出現以下症狀時應及時聯繫NHS，家庭醫生以尋求緊急建議，或者在緊急情況下也可以致電999求助或去急診中心：
+
+- 臉色蒼白，斑駁，體溫冰涼
+- 出現呼吸暫停、呼吸不規律、或發出呼嚕狀的聲音
+- 嚴重呼吸困難，變得煩躁或無反應
+- 嘴唇發藍
+- 癲癇
+- 變得極度痛苦（無法停止大哭），迷茫，昏睡（很難喚醒）或反應遲鈍
+- 出皮疹，按壓時也不能消失（”玻璃測試”）
+- 睾丸痛，尤其是十來歲的男孩子
+
+
+[原文鏈接](https://www.bbc.com/news/health-52439005)
+
+翻譯報導：匿名
 
 1

@@ -1,22 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新疫情：英國因中共冠狀病毒死亡人數破2萬
-`2020-04-28 08:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/187656/)
+## 黑鏡下的中共黑天鵝舞
+`2020-04-28 12:04 GM30` [轉載自GNews](https://gnews.org/zh-hant/187823/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28083246/UK-Election-parliament-politics-2019-011-580x358-1.jpg)圖片來源：[investmentweek](https://www.investmentweek.co.uk/opinion/4008003/2019-election-wall-cash-waiting-election-outcome)
-據BBC近日報導，英國官方統計數據顯示因中共冠狀病毒死亡的人數已經超過20,000人，這是一個令人難以想像的巨大數字。
+**作者：文知**
 
-就在2020年3月17號下午，當時因感染中共冠狀病毒而亡的人數還停留在71人。更嚴厲的對抗中共冠狀病毒的措施才剛剛開始推行。在威斯敏斯特委員會的會議室裡，英國首席科學家帕特里克.瓦朗斯先生（Patrick Vallance）告訴這些議員，如果英國最終因病毒感染死亡的人數控制在20,000人之內的話，那將是“一個好的結果”。但是在那個規模上統計出來的數字仍然是“可怕的”。那意為著大量的死亡。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28115909/image0-202.jpg)
 
-11天后，因病毒死亡人數就已到1,091人。英國NHS醫療主任斯蒂芬.波維斯（Stephen Powis）重複了帕特里克的觀點。他在唐寧街每日媒體簡報上說：“如果我們能將死亡數字控制在20,000以下，將意味著我們做得非常好。”
+[**黑镜下的中共黑天鹅舞**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28120242/%E9%BB%91%E9%95%9C%E4%B8%8B%E7%9A%84%E4%B8%AD%E5%85%B1%E9%BB%91%E5%A4%A9%E9%B9%85%E8%88%9EGnewa%E7%89%88-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28120242/%E9%BB%91%E9%95%9C%E4%B8%8B%E7%9A%84%E4%B8%AD%E5%85%B1%E9%BB%91%E5%A4%A9%E9%B9%85%E8%88%9EGnewa%E7%89%88-1.pdf)
 
-然而，就在兩人發表講話後的幾週內，英國因病毒而死亡的人數就已經超過20,000人。沒有人可以預知在疫情結束後死亡數據將達到多少，也沒有人知道最終什麼樣的數字將被認為是個好的結果。儘管如此，20,000仍然是個突出分界點，超過這個數字將會引起嚴峻的共鳴。
+**請點擊下載按鈕，下載文檔觀看！**
 
-當然，政府只統計了在醫院裡因中共冠狀病毒死亡的數據。醫院外的死亡數據還沒有包含在內。劍橋大學大衛.斯皮格哈特教授（David Spiegelhalter）表示：“每日的官方死亡數據只呈現了病毒實際影響的非常有限的一部分，如果將醫院外死亡數據算進去的話，可能一周前因感染病毒死亡的人數就已經超過20,000人。”
-
-[原文鏈接](https://www.bbc.com/news/stories-52419218)
-
-翻譯報導：喜馬拉雅
+（文章內容僅代表作者觀點）
 
 1

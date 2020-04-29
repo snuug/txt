@@ -1,126 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月28日 美國政要推文選譯
-`2020-04-28 22:17 GM65` [轉載自GNews](https://gnews.org/zh-hant/188155/)
+## 川普總統2020年4月27日的玫瑰園講話真正開啟了以美滅共、以法滅共的大門
+`2020-04-29 02:58 Diago` [轉載自GNews](https://gnews.org/zh-hant/188240/)
 
-> China has cost the US trillions in economics damages, caused millions of Americans to lose their jobs, ripped families apart, and forced loved ones to die alone. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) is right to seek damages from the Communist regime. [https://t.co/s8xbfl3zaP](https://t.co/s8xbfl3zaP)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 28, 2020](https://twitter.com/MarshaBlackburn/status/1255152814256533504?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/29030728/images-1-4.jpg)
+作者：Diago
 
-參議員 Marsha Blackburn：中國給美國造成了數萬億美元的經濟損失，導致數百萬美國人失業，讓家庭無法團聚，並使被愛的人孤獨地死去。川普總統讓中共政權賠償損失的做法是對的。（消息來源：法新社）
+郭文貴先生在“2020年4月28日的直播：川普總統的玫瑰園講話開啟了真正的以美滅共、以法滅共、全面查封CCP海外資產的真正的全面開始”34:20秒時間點提到——
 
-> China has launched an all-out campaign to deflect from their atrocious coronavirus response. We should commend EU partners like Germany who are transparent about Chinese efforts and reject their strong-arm tactics, while encouraging nations like France to resist [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 28, 2020](https://twitter.com/MarshaBlackburn/status/1255190066567184384?ref_src=twsrc%5Etfw)
+【今天直播的核心的一個問題，我要講啥，戰友們，我希望大家聽清楚了，這些天我雖然在幹那個事兒，跟大家這兒回復資訊，但重要的事情是什麼？我們等待著這一刻，嚴格講應該是三月份發生，結果晚了一個月，就我們啥事兒，爆料革命都往前整，川普總統的玫瑰園講話，大家一定要記住，這個玫瑰園講話的根本，，，，，川普總統什麼講話？玫瑰園的講話，最核心的他明確地表示要向中共索賠，這次冠狀病毒，就是CCP病毒給美國人造成的死亡及傷害，戰友們，這可是大事兒啊！這可是大事兒啊！爆料革命我們最盼望的是什麼？美國官方滅共，官方滅共是咱以美滅共的所有的核心目的，以美滅共啊！他這個宣佈意味著什麼？我要你索賠，你賠不賠？你不賠？你不賠，我是不是走法律程式？是。我走法律程式我在美國我有什麼權力呀？你在美國包括沒收你的投資美國國債的資產，唉？光投資你美國國債資產？王歧山家的錢、加州的房子、三藩市的房子、洛杉磯的房子、紐約的房子算不算哪？他是不是共產黨員啊？唉？這些銀行在美國、中國城，什麼梁冠軍這個孫子、還有那個什麼周綺（但願這倆人還活著、這冠狀病毒）幹得這些事兒，這些錢、代持的，算不算哪？在瑞士銀行上萬億美元的現金算不算哪？這就關鍵了！美國人從歷史到現在幾百年，想幹掉哪個政權的還從來沒有一個不幹成的，都幹成了，經濟懲罰還沒見哪個國家它的經濟再好的，大家都明白的，這個官方的宣傳，川普總統想再回去是不可能的，不可逆轉的開啟了美國國家對中共CCP病毒的索賠，索賠第一步：法律、查封、沒收、追責，我再告訴一遍國內的戰友們，你們要是有錢，你還不往外移，那真的是就你自己了，自己是完了，我們喊了三年了，人民幣會成為垃圾、冥紙，港幣不會再存在，接下來我再告訴香港的朋友們，你記住郭文貴一秒鐘、一分鐘沒忘掉香港，很多香港戰友給我發資訊：“文貴，我現在、我要幹給你錢、我要幹這個事兒的原因就是因為你支持香港”，我很不開心，你不要因為這個，香港她本身就偉大，她就是我的恩港，她是我從看守所出來第一筆錢給我的地方，是我、讓我郭文貴有今天的關鍵的地方，我的宗教信仰文化來自於臺灣，包括有些錢來自臺灣，所以香港和臺灣是我的真正的第二個、第二個、終生要（就是生父母是中國）、養父母是香港和臺灣，我感激偉大的美國，因為美國給了我很多，包括投資、包括一切我的安全，第二次生命嚴格講也是美國（給的）。什麼叫祖國？祖國還有你的母國，別搞錯了，這不是一回事兒，能讓我安全、能讓我生存的，這就是我的國家，給我未來的、給我尊嚴的，生我養我的地方，生我的地方是母國，就是中國，但不是共產黨的國，我從不承認共產黨的國，有戰友給我發資訊：“文貴，我第一次看你直播，我愛國愛的不是共產黨的國，我就開始相信你”，這個戰友都是認真地、真實地支持爆料革命，我要告訴你，這個時候，你要看到川普總統這個，大家要記住，香港的保護法案、包括臺灣保護法案，從去年到現在，我們所有人的努力、可不是爆料革命的，所有人的努力，它是開啟了先河，但是它沒有行動，繼玫瑰園講話之後，我告訴大家，香港同胞，我再告訴香港同胞，第一個行動的就是香港，然後就是臺灣，我今天可以向你們保證地說，玫瑰園講話給美國官方不可逆轉的跟共產黨成了對立的關係，玫瑰園講話開啟了美國以法查封共產黨及盜國賊財富的、不可逆轉、對立的矛盾，真正的是官方確認了以美滅共、以法滅共的真正開始，真正的開始了我們爆料革命和法治基金、喜馬拉雅在六月四號以前絕對性的革命時刻，兩周前，他們說總統要開始講話了啊，等好消息，說實在話，說實在話，我不能說，我得捫住、得LOW住，這就是偉大的時刻，戰友們，你們偷著樂去吧，我們要成為世界主權國家之外的金融系統發行的G幣，我們也叫喜馬拉雅幣，嚴格講從玫瑰園講話那一刻起，就徹底的改變，剛才中美婚姻的一位非常非常高素養的一位我們中國同胞說，我晚上睡不著覺，我沒有睡不著覺的時候，但是我睡不著覺，我覺得你不但拯救中國人，你還拯救美國、世界，未來的喜馬拉雅幣、G幣能讓中國、美國在中國企業，多少人把錢給轉出來，我說你真聰明，但是呢，這取決於一個人的智商和你的因緣、你的德性和你的造化。】
 
-參議員 Marsha Blackburn：中國發起了壹場全面運動，目的是讓（公眾焦點）偏離對他們應對冠狀病毒惡劣行徑的關註。我們應該稱贊像德國這樣的歐盟夥伴，他們對中國的做法保持透明並拒絕其強硬手段，同時，還應鼓勵像法國這樣的國家抵制中共大外宣。
+我們來看一下[Donald Trump Coronavirus Press Conference Transcript April 27](https://www.rev.com/blog/transcripts/donald-trump-coronavirus-press-conference-transcript-april-27)川普總統的玫瑰園講話關於中國的部分都說了啥——
 
-> Communist China destroyed early COVID-19 testing samples, silenced doctors, and expelled American journalists. 
-> 
-> My Stop COVID Act will empower Americans to sue China in US courts for the costs of the virus. [pic.twitter.com/7QrBo610kT](https://t.co/7QrBo610kT)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 28, 2020](https://twitter.com/MarshaBlackburn/status/1255211898028646401?ref_src=twsrc%5Etfw)
+【Speaker 6: ([43:20](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2600.92))
+Following up on Charlie’s question on making China, holding them responsible. Germany sent a bill to China for 130 billion Euros for the damages caused by the coronavirus. Would your administration look at doing the same?】
 
-參議員 Marsha Blackburn：中共國銷毀了早期的冠狀病毒測試樣本，讓醫生們沈默，並驅逐了美國記者。我的《阻止冠狀病毒法案》將授權美國人在美國法院起訴中國，賠償病毒造成的損失。
+中文大意，Speaker 6: ([43:20](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2600.92))
 
-> JUST PUBLISHED&gt; The Case for Suing the Chinese Communist Party [https://t.co/D2hIGeuFFS](https://t.co/D2hIGeuFFS) via [@epochtimes](https://twitter.com/EpochTimes?ref_src=twsrc%5Etfw). [@rogerlsimon](https://twitter.com/rogerlsimon?ref_src=twsrc%5Etfw)
-> — Roger Simon (@rogerlsimon) [April 28, 2020](https://twitter.com/rogerlsimon/status/1255248682292850688?ref_src=twsrc%5Etfw)
+“接著查理（Charlie）提出的使中國負有責任的話題，德國向中國提出了一項1300億歐元的索賠，要求賠償冠狀病毒造成的損失。您的行政要支是不是也會做同樣的事情？”
 
-參議員 Marsha blackburn 轉推：
+【Donald Trump: ([43:36](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2616.66))
+Well, we can do something much easier than that. We have ways of doing things a lot easier than that. But Germany’s looking at things and we’re looking at things. And we’re talking about a lot more money than Germany’s talking about. Yeah.】
 
-Roger Simon（大紀元）：最新發表&gt;起訴中共之我見
+中文大意，Donald Trump: ([43:36](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2616.66))
 
-> The CCP’s Military-Civil Fusion strategy blurs the distinction between Chinese military & civilian end-users. I commend the Administration for tightening U.S. export-control regs to prevent American technology from being diverted to the Chinese military. [https://t.co/L4U4YehdRp](https://t.co/L4U4YehdRp)
-> — Tom Cotton (@SenTomCotton) [April 28, 2020](https://twitter.com/SenTomCotton/status/1255125942026076160?ref_src=twsrc%5Etfw)
+“嗯，我們可以做得比那個要容易得多，我們有很多途徑採取很多比德國的方式容易得多的措施，但德國正在觀看態勢，我們也在觀看態勢。我們正在討論比德國更多的金額，是的。”
 
-參議員 Tom Cotton：中共的軍民融合策略讓中國軍方和民間用戶之間的區別變得模糊不清。我贊成政府加強限制美國出口的做法，防止美國技術被中國軍方挪用。
+【Donald Trump: ([43:47](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2627.87))
+Please, go ahead. We haven’t determined the final amount yet. It’s very substantial. If you look at the world, I mean, this is worldwide damage. This is damage to the US, but this is damaged to the world. Yeah, please.】
 
-> Scoop: Cruz set to introduce a bill barring DOD from working with film studios that censor movies for China [https://t.co/sIYzINSpN6](https://t.co/sIYzINSpN6)
-> — Betsy Woodruff Swan (@woodruffbets) [April 28, 2020](https://twitter.com/woodruffbets/status/1255252887195828225?ref_src=twsrc%5Etfw)
+中文大意，Donald Trump: ([43:47](https://www.rev.com/transcript-editor/shared/CGFavv8kQi9EwFTtKUluTzljh3b5g40dXoXc-pobYU9EczpbpQPJ0UIABlCSKlE1dcE8lFEKaxT5vTyufVKM0iuWRGY?loadFrom=PastedDeeplink&amp;ts=2627.87))
 
-參議員 Ted Cruz 轉推：
+“請繼續，我們還沒有定下最終的賠償額度，這是很重的賠償。如果你看看這個世界，我的意思是，這是一個全球性的損失。這是美國的損失，但這更是全世界的損失。是的，請”
 
-Betsy Woodruff Swan：獨家新聞：Cruz著手發起壹項法案，禁止國防部與替中國進行電影審查的制作公司合作。（消息來源：Politico網站）
+滅共已經不可逆轉，能夠聽懂文貴先生、能夠聽得懂川普總統的每一個戰友和每一個共產黨員，此刻能夠做出對自己、對家人、對國家有利的抉擇，就是自己的因緣和福份。
 
-> Excellent piece by [@michaelsobolik](https://twitter.com/michaelsobolik?ref_src=twsrc%5Etfw) on how Chinese Communist Party’s censorship allowed the [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) to spread into a global pandemic and endanger lives, and why the U.S. must hold CCP officials accountable for suppressing medical information.[https://t.co/I3ibezgpzd](https://t.co/I3ibezgpzd)
-> — Senator Ted Cruz (@SenTedCruz) [April 28, 2020](https://twitter.com/SenTedCruz/status/1255275960716402688?ref_src=twsrc%5Etfw)
+（文章內容僅代表作者個人觀點）
 
-參議員 Ted Cruz：Michael Sobolik所著精彩文章，內容關於中共的審查制度致使冠狀病毒疫情擴散成全球大爆發，危及生命，以及為什麽美國必須追究中共官員壓制醫療信息的責任。
-
-美國《外交家》雜誌：若要追究中國應對冠狀病毒行動滯後之責，目標須對準“防火墻”
-
-> ATTENTION
-> 
-> To anybody saying we should trust the science coming from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s [#Wuhan](https://twitter.com/hashtag/Wuhan?src=hash&amp;ref_src=twsrc%5Etfw) Institute of Virology:
-> 
-> Here are photos from inside the P4 lab showing Dep. Dir. Xiao Gengfu leading a Communist Party meeting. Note hammer & sickle.
-> 
-> Their goal is geo-political, not scientific. [pic.twitter.com/nQUnwx5DWQ](https://t.co/nQUnwx5DWQ)
-> — Ky Olbert 🇺🇸 (@KyleOlbert) [April 28, 2020](https://twitter.com/KyleOlbert/status/1254976906505654273?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生 轉推：
-
-Ky Olbert：註意：那些認為我們應該相信來自中國武漢病毒研究所的科學研究的人：這是P4實驗室內部的照片，顯示了副所長肖庚富主持黨員大會。註意看那鐮刀斧頭。他們的目的是地緣政治，不是科學。
-
-> Breaking: Wuhan research laboratory ‘most likely’ origin of coronavirus, according to a U.S. government report obtained by [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) [https://t.co/ecsjpc2s5q](https://t.co/ecsjpc2s5q)
-> — Bill Gertz (@BillGertz) [April 29, 2020](https://twitter.com/BillGertz/status/1255293254364467207?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：突發新聞：據《華盛頓時報》獲得的美國政府報告，武漢研究實驗室“最可能”是冠狀病毒的源頭。（新聞來源：《華盛頓時報》）
-
-> [#CoronaVirus](https://twitter.com/hashtag/CoronaVirus?src=hash&amp;ref_src=twsrc%5Etfw) could have been contained early on.
-> 
-> But the decision of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s Communist Party to actively prevent information about the virus from getting out early on not only cost an unknown number of people in China their lives,it allowed virus to spread throughout the world [pic.twitter.com/1kFmSWFZWU](https://t.co/1kFmSWFZWU)
-> — Marco Rubio (@marcorubio) [April 28, 2020](https://twitter.com/marcorubio/status/1255147317750935555?ref_src=twsrc%5Etfw)
-
-參議員 Marco Rubio：冠狀病毒本可以在早期被控制住。但中共決意從壹開始就主動阻止病毒信息傳出，不但致使數目不詳的中國人喪生，而且讓病毒擴散到了全世界。
-
-> Sen. Rubio and [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw) urged [@SecretarySonny](https://twitter.com/SecretarySonny?ref_src=twsrc%5Etfw) to reverse his department's recent decision to allow the importation of five varieties of citrus fruits from China.
-> 
-> Read more🔽[https://t.co/p1SwZLTW7o](https://t.co/p1SwZLTW7o)
-> — Senator Rubio Press (@SenRubioPress) [April 28, 2020](https://twitter.com/SenRubioPress/status/1255257621587730435?ref_src=twsrc%5Etfw)
-
-參議員 Rubio 新聞發布：Rubio參議員和Scott參議員敦促美國農業部長Sonny Purdue撤銷其最近作出的允許從中國進口五種柑橘類水果的決定。
-
-> Communist China has been stealing our jobs and our technology, and now their actions have led to this global pandemic.
->  
-> We need to hold Communist China accountable and that can start by simply buying American and supporting American businesses. [pic.twitter.com/8QT5ObPFLd](https://t.co/8QT5ObPFLd)
-> — Rick Scott (@SenRickScott) [April 28, 2020](https://twitter.com/SenRickScott/status/1255197384973393925?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：中共國壹直在竊取我們的工作機會和技術，現在他們的行為導致了全球疫情大爆發。我們必須追究中共國的責任，就從簡單的買美國制造的產品和支持美國企業開始。
-
-> As discussions begin on phase 4 of [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) relief, I have 2 priorities:
-> 
-> 1. We must hold China accountable for hiding info & lying about the virus.
-> 2. We must protect the poorest families by stopping any fraud, waste & abuse of taxpayer $$.
-> Read more: [https://t.co/qJG83Jg7tU](https://t.co/qJG83Jg7tU)
-> — Rick Scott (@SenRickScott) [April 28, 2020](https://twitter.com/SenRickScott/status/1255234987869290498?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：隨著第四階段冠狀病毒救濟方案討論的展開，我有兩個優先事項：1. 我們必須追究中國隱藏信息和撒謊的責任。2. 我們必須保護最困難的家庭，停止任何欺詐、浪費和濫用納稅人錢的行為。
-
-> Welcome to the 5G world. Wouldn’t you rather have SECURE 5G? Shouldn’t our newest computing platform protect your privacy? Why is ATT and the like deploying a data vacuum in your neighborhood with Chinese patented technology? [https://t.co/udYxi3Xc7o](https://t.co/udYxi3Xc7o)
-> — General Spalding (@robert\_spalding) [April 28, 2020](https://twitter.com/robert_spalding/status/1255087963194744833?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：歡迎來到5G世界。妳難道不想有安全的5G嗎？我們最新的電腦平臺難道不應該保護妳的隱私嗎？為什麽AT&T等公司要用中國專利的技術在妳家周圍布置壹個數據“吸塵器”？
-
-CNN新聞：中國正在人們的家門外安轉監控攝像頭…有時安裝在他們家裏
-
-> 🧐”‘China did a lot of things right at the beginning, like any country where a virus first shows up,' the Microsoft co-founder told CNN on Sunday.” [https://t.co/WPulJM10k2](https://t.co/WPulJM10k2)
-> — General Spalding (@robert\_spalding) [April 28, 2020](https://twitter.com/robert_spalding/status/1255033200214188037?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：微軟聯合創始人周日告訴CNN：“跟任何出現病毒的國家壹樣，中國壹開始就做了很多事情。”
-
-英國《每日郵報》：比爾·蓋茨為中國應對冠狀病毒的做法辯護
-
-> Good question. Why are so many of the establishment silent on this issue? One day they will have to own up to their silence. [https://t.co/95csnqrIaQ](https://t.co/95csnqrIaQ)
-> — General Spalding (@robert\_spalding) [April 28, 2020](https://twitter.com/robert_spalding/status/1255096456341585920?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：好問題。為什麽那麽多機構組織對此事保持沈默？總有壹天他們會為他們的沈默追悔不已。
-
-Tony Brunt：蓋茨先生有沒有稱贊過中國最大的健康問題，壹種可防的致死原因？國家組織的每年殺死10萬無辜人的器官“活摘”？
-
-> "Many reports point out that China has chosen this time to crack down on the democratic opposition in Hong Kong and tighten its grip because the West, particularly the United States, is preoccupied with the global coronavirus crisis" [https://t.co/S6sXp5eZbP](https://t.co/S6sXp5eZbP)
-> — General Spalding (@robert\_spalding) [April 28, 2020](https://twitter.com/robert_spalding/status/1255193041725534209?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“許多報道指出，中國選擇在這個時候鎮壓香港民主異見人士並加強控制，是因為，西方，特別是美國，正忙於應付全球性冠狀病毒危機。”
-
-美國《外交家》雜誌：隨著新冷戰的不斷發酵，香港自治將迎來什麽？
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28221624/07_26.png)
 0
