@@ -12,6 +12,8 @@
 
 ## 頁面 25/26 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[逃离中国的亿万富翁发出警告说中国政府正在企图摧毁美国](/content/2018/04/20180418-745923463937073308.md)
+
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/2018/04/20180418-893371473063503687.md)
 
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/2018/04/20180418-8782315684152609597.md)
@@ -59,8 +61,6 @@
 [文贵9月13日直播：姚依林王岐山孟建柱孙力军傅政华的生殖器治国首篇！姚依林与姚明瑞．刘呈杰．刘新扬的乱伦！刘呈杰的法人爹是谁？](/content/2018/04/20180418-4709479553029497905.md)
 
 [翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/content/2018/04/20180418-3813308793717217976.md)
-
-[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
 
 
 ## 頁面 25/26 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
