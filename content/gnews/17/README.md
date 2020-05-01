@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑鏡下的中共黑天鵝舞
-`2020-04-28 12:04 GM30` [轉載自GNews](https://gnews.org/zh-hant/187823/)
+## 【世界多語言圖文】27/04/2020 CCP病毒每日疫情直播簡報
+`2020-04-30 23:01 GM10` [轉載自GNews](https://gnews.org/zh-hant/190557/)
 
-**作者：文知**
+[English\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28115909/image0-202.jpg)
+[French\_0427\_CCP\_Virus\_Updates\_-\_Copie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)
 
-[**黑镜下的中共黑天鹅舞**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28120242/%E9%BB%91%E9%95%9C%E4%B8%8B%E7%9A%84%E4%B8%AD%E5%85%B1%E9%BB%91%E5%A4%A9%E9%B9%85%E8%88%9EGnewa%E7%89%88-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/28120242/%E9%BB%91%E9%95%9C%E4%B8%8B%E7%9A%84%E4%B8%AD%E5%85%B1%E9%BB%91%E5%A4%A9%E9%B9%85%E8%88%9EGnewa%E7%89%88-1.pdf)
+[German\_0427\_CCP\_Virus\_Updates\_-\_Kopie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)
 
-**請點擊下載按鈕，下載文檔觀看！**
+[Japanese\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)
 
-（文章內容僅代表作者觀點）
+[Russian\_0427\_CCP\_Virus\_Updates\_1-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)
 
-1
+[Spanish0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)
+
+0
