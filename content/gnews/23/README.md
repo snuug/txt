@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不出遊，不複學，不複工！ “共渡難關，中共病毒疫情每日熱線”
-`2020-05-01 02:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/190839/)
+## 川普：中共國不想讓我連任
+`2020-05-01 03:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/190857/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01024826/image0-4.jpg)
+在[4月30日](https://www.youtube.com/watch?v=YIL2JjGuemc)的白宮疫情發佈會上，川普聲稱中共會全力干預今年大選，而且會阻止他連任。川普似乎是美國多屆總統以來唯一對中國採取強硬態度的人選。而此次民主黨候選人，喬·拜登，似乎不太可能採取同樣的態度，因為他的兒子與中國有千絲萬縷的聯繫。
 
-**請點擊GTV鏈接觀看！**[https://gtv.org//?videoid=5eab9f2d733f5e4a40436f72](https://gtv.org//?videoid=5eab9f2d733f5e4a40436f72)
+川普同樣提到貿易協定已經不再是頭等大事——因為這個病毒。這是否意味著第二階段的貿易協定協商已經變得遙遙無期？
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+*翻譯：【不吃豆的豆】 校對：【ddm】 字幕：【1ia$】*
 
 0
