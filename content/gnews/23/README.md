@@ -1,41 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年4月30日郭文貴先生直播摘要
-`2020-04-30 14:27 GM10` [轉載自GNews](https://gnews.org/zh-hant/190253/)
+## 【世界多語言圖文】29/04/2020 CCP病毒每日疫情直播簡報
+`2020-04-30 23:20 GM10` [轉載自GNews](https://gnews.org/zh-hant/190600/)
 
-**戰友之家•摘要組**
+[English0429\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30231939/English0429_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30231939/English0429_CCP_Virus_Updates-1.pdf)
 
-00：00 文貴早餐吃播。湯是法國羅宋湯。文貴吃飯前會稍微祈禱一下。今天直播是給看直播的共產黨看的。
+[French0429\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30231952/French0429_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30231952/French0429_CCP_Virus_-_Copie-1.pdf)
 
-3：30 所有滅爆小組以及中共中央緊急事件處理小組你們知道自己已經輸了，你們贏不了。歷史很快會給我們答案。未來三周讓你知道會死多慘。你們弄到這些人家人哭聲一片，還要威脅他們去暗殺班農，文貴，包括把某些人定為神經病，這麼大美國就能被你們騙了？共黨你們Low到家了。
+[German\_0429\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232002/German_0429_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232002/German_0429_CCP_Virus_Updates_1-1.pdf)
 
-5：30 文貴跟美國三天前就跟美國說，這位先生到達美國的時候，共黨會讓他的家人出來說這位是神經病。共黨真是太不要臉了，除了撒慌，騙之外啥都不會。文貴前幾天把共黨可能的行動方案都說了一遍，現在無出其外的招。
+[Japanese0429\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232023/Japanese0429_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232023/Japanese0429_CCP_Virus_Updates-1.pdf)
 
-9：35 共黨馬上給某些人提頭銜，還威脅班農先生，搞自殺式炸彈，你慌了吧~ 你拿個鞋底試試？共黨是有史以來最欺負老實人的王八蛋，就知道欺負同胞，你們連老鼠都不如。你們會看到在美國要低於一百人上路德訪談，上文貴平台，你拿文貴怎麼著都行。你能擋住試試，你能把十四億人都抓了試試？當監獄里的人多於外面的，犯人就不是犯人了，獄警就是犯人，所以共黨你們還能幹點啥。
+[Russian\_0429\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232025/Russian_0429_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232025/Russian_0429_CCP_Virus_Updates_1-1.pdf)
 
-13：30 共黨的醜陋嘴臉大家都看明白了，戰場拉向美國文貴太高興了。你們把斯里蘭卡的哥們都弄來。還想挑戰美利堅，放馬過來。我們可以在任何地方拯救任何戰友，不服來乾。
-
-17：40 我們的平台和G幣把共黨嚇死了，常委內部開會要求必須嚴肅認真對待。他們說可能打壓已經無法壓制，他們要打算滲透進來。錢和美女我們都來者不拒呀，哈哈。他們知道這是美國企業，受美國法律保護，不過是花錢買低我們關注度。
-
-20：26 南華早報登出川普總統嚴肅認真的說法，共黨就在寄希望於川普總統輸掉今年大選。這個無容置疑。川普總統要求追責這個事有意思。現在CNBC也開始說話了，美國反應慢，但是一旦上來火很難滅。
-
-23：00 共黨的火是火柴，一點就著，很快就滅。共黨優越政策拯救了全世界，武漢隔離還沒解決，習近平就是滅病毒英雄，雕像都出來了。共黨要拯救全人類，火還沒著他們都準備救火了。王陽明致良知，良知呢？前面是什麼呢？私營企業家必須退出，然後一帶一路，2025，2035，2049太快了，都是兔子打拳一溜小動作。共黨的滕文生和王滬寧都是啥都不會，只知道意淫，稱為國師。如果你連內褲都買不起，聲稱自己頭腦裝著全世界，怎麼可能？
-
-27：00 共黨敢說，畝產萬斤糧，一窩豬100多個崽。文貴調侃金二金三去看雞場。大煉鋼是全人類少有的悲劇。2025，2035，2045也是現代版大躍進，在互聯網時代還把十四億圈在牆內。中共出來的精英都是指豬為鹿。真相只能有一個，現在這個世界荒唐到什麼程度。香港街上天天殺人，過去三十年非正常死亡不到八百，過去一年不到死亡將近一萬人，無一例懷疑，居然感覺正常。把黎志英這樣的大政治家，愛國人士說成是漢奸？難道出王岐山，孟建柱，孫力軍？
-
-31：30 昨天滅爆組的跑一個戰友北京家裡說文貴是美國一手培養的，新疆運動，香港運動都是郭文貴搞的，還要把我們中國人變成美國奴隸。文貴太生氣了，更可憐的是戰友家人居然信了。這就是文革一樣。
-
-33：52 現在還有人相信香港死人正常，還要把香港議長換了，可以看看共黨流氓到什麼程度了。這就是中國人幾十年的悲劇啊。
-
-35：23 告訴你們人已經到美國了，你弄不回去了，讓家人說他是神經病，看美國人信誰。還有超過一百人比他還牛的人來美國。還要陷害班農，拿自殺炸彈炸死班農和文貴。安全部告訴你妻子說接近文貴、班農，乾掉了就是國家民族英雄。他都錄音了，共黨有種就在公開出來和這些人對話，武漢實驗室秘密你還能瞞得住嗎？世界還會相信嗎？所有這些人很快就會在國會山秘密聽證，你擋得住嗎？文貴三年前就說我下定決心在國內救的人你一個都擋不住。另外沒有一個美國政府參與此事，歷史會說明。美國太慢了，歷史會給你答案。
-
-39：13文貴不接受美國支持就是因為我們有能力做到，如果我們仰仗他們就一定會死。從第一天起文貴就絕不參與合作任何美國機構，因為所有機構都有壞人。這就是為什麼我們可以把人救出來。在多個城市五十個人以上，我們可以把他們弄到美國歐洲，如果想讓人去日本，你也擋不住。你知道過去三年多少人去了台灣。如果爆料革命哪天發現文貴有任何協議，我們就是騙子。這就是政治去中心化。這樣的政治才是民心所向。
-
-44：02 文貴都吃完了，接下來腥風血雨。滅爆小組，專案組你們要小心，別以為我們怎麼不了你。如果繼續對他們家人怎麼樣，我們大赦的時候可能就輪不到你了。開始祈福。
-
-更多詳情請關注GTV：https://gtv.org//?videoid=5eaad7cc733f5e4a401f4cd7
-
-
+[Spanish0429\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232042/Spanish0429_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30232042/Spanish0429_CCP_Virus_Updates-1.pdf)
 
 1

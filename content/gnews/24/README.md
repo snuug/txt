@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞典加入全球滅共陣營
-`2020-04-30 13:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/190233/)
+## 【世界多語言圖文】27/04/2020 CCP病毒每日疫情直播簡報
+`2020-04-30 23:01 GM10` [轉載自GNews](https://gnews.org/zh-hant/190557/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30133917/%E7%91%9E%E5%85%B8%E5%8A%A0%E5%85%A5%E5%85%A8%E7%90%83%E7%81%AD%E5%85%B1%E9%98%B5%E8%90%A5-1.jpg)
-據南華早報報道，瑞典正計劃要求歐盟調查中共冠狀病毒大流行的根源。此前，美國，澳大利亞和德國領導人也發表了類似的言論。而中共一直強詞狡辯說這項調查任務應留給給科學家，而不是政客。
+[English\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)
 
-瑞典衛生部長哈倫格倫(Lena Hallengren)周三給國會的報告中寫道：“如今中共冠狀病毒的蔓延在全球暫時得到控制的情形下，對病毒的起源及傳播進行國際獨立調查的要求既合理又重要。特別是需要對包括世界衛生組織在內的國際機構在中共冠狀病毒大流行的處理方式進行調查。瑞典樂意在歐盟合作的框架內提出這個問題。”
+[French\_0427\_CCP\_Virus\_Updates\_-\_Copie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)
 
-然而瑞典外交大臣安·林德（Ann Linde）則建議在大流行結束後對才應對世界衛生組織（WHO）展開調查。星期三林德在智庫大西洋理事會主辦的網絡研討會上說：“我們認為世衛組織現在的工作很重要，因此不是問責制的時候。然而這並不意味着瑞典對世衛的工作感到滿意。” 林德補充說：“ 目前有一種趨勢，用瘟疫的大流行來為專制政府站台來抵抗民主、法治與新聞自由。歐洲一定要與美國堅定地站在一起來對抗這種趨勢。近期有許多泛濫的虛假信息，試圖將歐洲描繪成一個零散的、破碎的區域，使人認為歐洲各國政府沒有承擔其應付的責任。製造虛假信息符合其政治利益，因為疫情造成了一種威權政府比民主政府更容易解決諸多問題的假象。”
+[German\_0427\_CCP\_Virus\_Updates\_-\_Kopie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)
 
-在中共冠狀病毒爆發之前，瑞典與中共國的關係已經很緊張。斯德哥爾摩一再要求中共釋放瑞典人桂敏海，其曾在香港經營出版業務。桂敏海於今年二月被中共國法院判處10年徒刑，官方同時聲明桂不會上訴。瑞典國際事務研究所亞洲項目負責人比約恩·傑登（BjörnJerdén）認為歐盟中瑞典與中國的關係在疫情爆發後恐怕是最糟糕的。到目前為止，不僅沒有修復的跡象，相反，重要的分歧問題不僅仍然存在，瑞典國內的辯論聲浪也在不斷加強。
+[Japanese\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)
 
-目前儘管尚不清楚其他歐盟國家是否會效仿瑞典的呼籲開展調查，但是中歐之間的普遍敵意正在加劇。
+[Russian\_0427\_CCP\_Virus\_Updates\_1-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)
 
-評：透明國際組織於2019將瑞典評為全球第四位的有效反對腐敗的國家，這可能也是瑞典敢於率先在歐盟開啟問責中共的模式的原因。隨着美國對中共問責法案和各項措施的出台，越來越多的西方民主國家會選擇於美國站在一起反對中共對世界民主、法治、人權和新聞自由的摧毀。全球自動滅共已經開始了。
+[Spanish0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)
 
-[原文鏈接](https://www.scmp.com/news/china/politics/article/3082227/sweden-plans-ask-european-union-investigate-origin-covid-19)
-翻譯：SugarPuppy
-
-1
+0
