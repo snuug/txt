@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】27/04/2020 CCP病毒每日疫情直播簡報
-`2020-04-30 23:01 GM10` [轉載自GNews](https://gnews.org/zh-hant/190557/)
+## 大蕭條重演？全球車企陷入冰封！
+`2020-05-01 01:02 GM30` [轉載自GNews](https://gnews.org/zh-hant/190719/)
 
-[English\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230009/English_0427_CCP_Virus_Updates-3.pdf)
+**作者：滅共日記**
 
-[French\_0427\_CCP\_Virus\_Updates\_-\_Copie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230020/French_0427_CCP_Virus_Updates_-_Copie-3.pdf)
+在過去，中國是各大車企的必爭之地，衆多廠商也向中國市場投入巨大精力，加速産品的導入速度以及國産化進程。但是從2019年開始，國內汽車銷量下滑明顯，根據中汽協發布的數據顯示，2019年國內汽車産銷分別完成2572.1萬輛和2576.9萬輛，同比分別下降7.5%和8.2%。而2018年，國內汽車産銷分別完成2780.9萬輛和2808.1萬輛，但産銷量比上年同期分別下降4.2%和2.8%。連續兩年的銷量下滑，讓國內車市一片寒冷，不少車企都認爲熬過了最困難的2019年，2020年就會變得更好。但是，由于中共疫情，一些車企在降薪，一些在裁員，還有一些更狠，既降薪又裁員。
 
-[German\_0427\_CCP\_Virus\_Updates\_-\_Kopie-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230030/German_0427_CCP_Virus_Updates_-_Kopie-3.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01005544/1.jpg)
 
-[Japanese\_0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230045/Japanese_0427_CCP_Virus_Updates-3.pdf)
+中國汽車業的雇員人數是全球最多的。電動汽車初創公司蔚來汽車9月底宣布裁員約20%，即超過2000個崗位。之前有消息傳出，幾個汽車廠商經營困難，甚至陷入破産可能，有的公司還賣房求生，裁員降成本也已經成爲了普遍做法。尤其是一些外企公司都紛紛選擇撤離中國，行業不景氣，再加上疫情的疊加影響，讓原本生存艱難的車企雪上加霜。近期，全球範圍內各主要汽車廠商陸續宣布裁員計劃，彙總各方數據顯示，未來幾年，全球汽車行業裁員規模將超過8萬人，這當中包括通用汽車、FCA、捷豹路虎、特斯拉、本田、福特、日産、奧迪。全球汽車行業的新一輪裁員潮已經到來。僅僅在過去一周，德國兩大汽車巨頭戴姆勒和奧迪宣布的裁員總量就接近2萬。這些裁員主要集中在德國、美國和英國，但增長較快的經濟體也沒有完全幸免，主要汽車生産商們也在縮減當地的業務規模。4月14日，東風集團發布公告稱，雷諾擬將其持有的東風雷諾50%股權轉讓給東風，東風雷諾也將停止雷諾品牌相關的業務活動。由于中共疫情，各國下達的封鎖令，讓供應鏈根本轉不起來，全球汽車行業陷入冰封，超過150座工廠停工停産，超過1400萬名車企員工正在面臨就業難題。
 
-[Russian\_0427\_CCP\_Virus\_Updates\_1-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230058/Russian_0427_CCP_Virus_Updates_1-3.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01005611/2-1.jpg)
 
-[Spanish0427\_CCP\_Virus\_Updates-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/30230111/Spanish0427_CCP_Virus_Updates-3.pdf)
+我有一個朋友就是在車企上班，他們是生産汽車天窗的，之前雖然掙的不多，但是養家糊口沒有問題，自從進了2020年，由于中共疫情公司連續3個月沒有上班，但是他有孩子要養，每個月有房貸要還，現在這樣的情景讓他徹底慌了，和他聊天隔著屏幕都能感覺到他爆棚的焦慮。我相信我朋友的故事不是個案，只是億萬謀生活的老百姓的縮影。中國現在應該有很多普通老百姓面臨這樣的問題，有多少人才因爲無法償承擔大城市高成本生活的壓力，放棄了“機會”選擇了回家謀生；有多少畢業生、研究生爲了一個基礎崗位“打的頭破血流”。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01005631/3.jpg)
+
+這背後的罪魁禍首就是中國共産黨，是中共制造了二戰以來最大人員死傷與二十世紀初以來最大經濟危機的中共病毒，是中共爲了防止真相傳播，甯可成千上萬的老百姓病死！這就是中共，是個十惡不赦的政黨，他們和自由民主背道而馳。
+
+GNEWS之前文章：
+在中共國遭受虐待的孩子[https://gnews.org/zh-hans/189558/](https://gnews.org/zh-hans/189558/)
+【WHO】還是中共黨支部？[https://gnews.org/zh-hans/182373/](https://gnews.org/zh-hans/182373/)
+你還在害怕你的房貸 [https://gnews.org/zh-hans/188390/](https://gnews.org/zh-hans/188390/)
+
+（文章內容僅代表作者觀點）
 
 0

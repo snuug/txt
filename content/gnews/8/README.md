@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：確定武漢病毒研究所就是起源
-`2020-05-01 02:03 GM31` [轉載自GNews](https://gnews.org/zh-hant/190770/)
+## 不出遊，不複學，不複工！ “共渡難關，中共病毒疫情每日熱線”
+`2020-05-01 02:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/190839/)
 
-在[4月30日](https://www.youtube.com/watch?v=YIL2JjGuemc)的白宮每日疫情通報會上，當有記者問：“我想問的是，截止此刻，您是否看到了任何可信的資料，使您高度相信武漢病毒研究所就是病毒起源地？”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01024826/image0-4.jpg)
 
-川普總統確認：“是的，我有。是的，我看到了。我認為世界衛生組織應該為他們自己感到羞恥, 因為他們整個就像中共國的公共喉舌機構一樣……我們有專門的人員進行非常深入的調查,科學家，情報人員還有其他人。我們會把資訊匯總在一起，我認為最終我們會給出一個非常好的答案，中共國甚至會有可能告訴我們病毒來源。
+**請點擊GTV鏈接觀看！**[https://gtv.org//?videoid=5eab9f2d733f5e4a40436f72](https://gtv.org//?videoid=5eab9f2d733f5e4a40436f72)
 
-*翻譯：【不吃豆的豆】 校對：【DDM】 字幕：【1ia$ 】  編輯：【GM31】*
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

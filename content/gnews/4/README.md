@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：中共國不想讓我連任
-`2020-05-01 03:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/190857/)
+## 大量證據證明CCP與WHO制造假象進行公然“謀殺”！
+`2020-05-01 07:18 GM30` [轉載自GNews](https://gnews.org/zh-hant/190977/)
 
-在[4月30日](https://www.youtube.com/watch?v=YIL2JjGuemc)的白宮疫情發佈會上，川普聲稱中共會全力干預今年大選，而且會阻止他連任。川普似乎是美國多屆總統以來唯一對中國採取強硬態度的人選。而此次民主黨候選人，喬·拜登，似乎不太可能採取同樣的態度，因為他的兒子與中國有千絲萬縷的聯繫。
+**作者：陽之戰**
 
-川普同樣提到貿易協定已經不再是頭等大事——因為這個病毒。這是否意味著第二階段的貿易協定協商已經變得遙遙無期？
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01071208/image0-8.jpg)
 
-*翻譯：【不吃豆的豆】 校對：【ddm】 字幕：【1ia$】*
+[**CCP與WHO制造假象**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01071714/CCP%E8%88%87WHO%E5%88%B6%E9%80%A0%E5%81%87%E8%B1%A1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01071714/CCP%E8%88%87WHO%E5%88%B6%E9%80%A0%E5%81%87%E8%B1%A1.pdf)
+
+**請點擊下載按鈕，下載文檔觀看！**
+
+（文章內容僅代表作者觀點）
 
 0

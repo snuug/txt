@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【實錘】川普總統：我看了文件 病毒來自武漢實驗室！
-`2020-05-01 00:59 GM09` [轉載自GNews](https://gnews.org/zh-hant/190717/)
+## 中共國際暗殺恐怖主義活動的“除障”與“滅口”
+`2020-05-01 01:56 GM30` [轉載自GNews](https://gnews.org/zh-hant/190761/)
 
-听写+翻译：玫瑰园发布会小队，heydoudou
+**作者：Mr. J**
 
-John: (56:30)And my question is, have you seen anything at this point that
+近日媒體上曝出新聞，捷克參議院議長柯佳洛（Jaroslav Kubera）于2020年1月20日心肌梗塞猝死，其在去世之前曾經計劃于2月訪問台灣參加台灣總統大選慶典，而真實死因很可能是中共的暗殺。
 
-记者：我想问的是，截止此刻，
+柯佳洛的遺孀薇拉（Vera Kubera）和女兒溫杜拉（Vendula Vinsova）在整理遺物的時候發現了兩封分別來自捷克總統府和中共大使館的恐嚇信，阻止他訪問台灣，並威脅他的家人的安全。柯佳洛在死亡前于2020年1月17日受邀進入中國駐捷克大使館參加晚宴，期間同中共駐捷克大使張建敏單獨交談了二十分鍾，中共大使激烈阻止他的台灣之行，柯佳洛在離開中共大使館後提醒家人不要食用中共使館提供的餐飲。一國大使暗殺另一國民選政要，舉世震驚。
 
-gives you a high degree of confidence that the Wuhan Institute of Virology was the origin of this virus?
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01015154/image0-2.jpg)
 
-**您是否看到了任何可信的资料，使您高度相信武汉病毒研究所就是病毒起源地？**
+中共官媒《光明日報》曾經在2019年9月25日刊登了一篇題爲《捷克政要批評暴力亂港行徑》的新聞報導（當期報紙第12版）。報導中說，捷克衆議院第一副主席沃伊捷赫·菲利普在接受《光明日報》記者采訪時表示，“香港近一段時間發生的暴力示威活動踐踏法制，損害社會秩序，侵犯國家主權，違反‘一國兩制’。”他說，“他完全認同‘美國民主基金會是全球顔色革命的組織者’這一說法，是此次香港亂象的幕後黑手之一。”他還說，“美國民主基金會在中東歐地區對人權、市場改革和親美政黨也大肆施加影響，比如捷克TOP09、市場聯盟和海盜黨等政黨，也正是這些黨派一直在明裏暗裏破壞捷中關系。”
 
-Donald Trump: (56:41)Yes, I have. Yes, I have.
+捷克參議院議長柯佳洛對中共來說屬于“除障目標”，他的被暗殺，既符合中共阻止國際支持、支援台灣爭取合法國際地位大趨勢的戰略需要，又符合幫助其在捷克的邪惡夥伴掃清“障礙”的戰術目標。柯佳洛的訪台計劃在捷克政壇有人支持也有人反對，反對者中甚至包括了捷克總統澤曼。
 
-**川普总统：是的，我有。是的，我看到了**
+捷克是中共“一帶一路”上的最重要戰略節點之一，捷克也是中共盜國賊在歐洲的最重要洗錢巢穴之一。中共通過捷信集團等財團和機構對捷克的藍金黃長達近二十年，在全球反共的大潮裏，捷克很可能是目前親共、反共兩種力量鏖戰最激烈的國家。那些被中共藍金黃的捷克政客和商人非常清楚一旦中共倒台後自己的醜事被曝光的後果，他們非常清楚捷克人民是絕不會放過他們的，這些腐敗政要的反撲非常的極端和凶殘。
 
-And I think that the World Health Organization should be ashamed
+那麽，中共暗殺柯佳洛的案件是不是孤案呢？捷克參議院議長柯佳洛被暗殺的案件當然不是第一起，也肯定不會是最後一起。甚至，中共的暗殺對象不會只限于中共的敵人，暗殺的理由也不會只限于中共的“阻礙”，可能是對“隱患”的“滅口”。前有華爲首席科學家，後有加拿大生物實驗室負責人，不都是中共下的毒手嗎？搞暗殺、搞恐嚇，這是赤裸裸的恐怖主義行徑，中共的這種罪行只會更加堅定全球滅共的決心。
 
-我认为世界卫生组织应该为他们自己感到羞耻
+說到這裏，我們可以把目光投向世界衛生組織現任總幹事譚德塞先生，想來非常符合中共暗殺活動“滅口目標”的譚德塞先生早已經是命懸一線了吧？下一個被中共暗殺的人會不會是他？
 
-of themselves because they’re like the public relations agency for China.
+（文章內容僅代表作者觀點）
 
-因为他们整个就像中共国的公共喉舌机构一样
-
-And this country pays them almost $500 million a year
-
-这个国家每年要资助他们近5亿美元 and China pays them $38 million a year.
-
-而中共国每年只资助他们3800万美元
-
-And whether it’s a lot or more, doesn’t matter.
-
-无论是不是更多一些，都无所谓了
-
-> Wow… President Trump confirmed that he has seen the specific P&C documents which proved the virus came from P4 lab in WuHan . WHO should shame on themselves!
-> Everything has begun ✌️ [pic.twitter.com/xUpYjvTgOy](https://t.co/xUpYjvTgOy)
-> — Diana Yu (@DianaYu99790322) [May 1, 2020](https://twitter.com/DianaYu99790322/status/1256078308015435778?ref_src=twsrc%5Etfw)
-
-0
+1
