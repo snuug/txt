@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒為管控還是蓄意傳播？
-`2020-05-01 10:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/191177/)
+## 攻略篇！換外彙，買G幣，捐助法治基金！
+`2020-05-01 22:03 GM30` [轉載自GNews](https://gnews.org/zh-hant/191493/)
 
-在[4月30日](https://www.youtube.com/watch?v=YIL2JjGuemc&amp;t=2986s)的白宮疫情發佈會上，川普總統指出：“他們可以阻止病毒的，無論在科學還是其他方面，他們都是個非常聰明的國家，就算是管理不嚴，他們也是可以控制的，但是他們沒有阻止住病毒，他們沒做，然後他們阻止了前往中共國的飛機，卻沒有阻止飛機從中共國前往世界其他地區，這又該怎麼解釋呢，Jim？”
+**作者：Gwiki**
 
-*翻譯：【不吃豆的豆】   校對：【ddm】  字幕：【小南】*
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01215227/2-2.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/01215239/3-3.png)
+
+
+（文章內容僅代表作者觀點）
 
 0
