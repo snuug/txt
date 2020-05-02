@@ -1,30 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 勤勞背後的貧窮 是一場接著一場的災難 最終無奈 選擇輕生 ！
-`2020-05-02 01:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/191683/)
+## 5月1日 美國政要推文選譯
+`2020-05-02 02:10 GM65` [轉載自GNews](https://gnews.org/zh-hant/191747/)
 
-**作者：滅共日記**
+> The speed at which Hong Kong became a failed state was breathtaking. ‘Twas only Feb 2019 when China decided an extradition law was to be enacted via new legislation. 14 months later, we have a failed [#PoliceState](https://twitter.com/hashtag/PoliceState?src=hash&amp;ref_src=twsrc%5Etfw) [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#MakeChinaPay](https://twitter.com/hashtag/MakeChinaPay?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/9UAYSQImEg](https://t.co/9UAYSQImEg)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 1, 2020](https://twitter.com/Jkylebass/status/1256179133559779329?ref_src=twsrc%5Etfw)
 
-4月16日清晨，四川隆昌人民醫院住院大樓，一名小夥從7樓墜下身亡。小夥來自雲南，4月14日晚騎車時將一名老人撞傷，然後在醫院照顧老人第三天時，從住院大樓7樓墜亡。小夥到醫院後交了1000元醫藥費，因爲是老人，當時有護工問他是否需要請護工時，小夥稱自己家裏窮，沒什麽錢，所以由他自行照顧。在小夥出事前，小夥都陪在病房裏照顧老人，偶爾出一趟病房，幾乎沒看到他吃飯。誰料到，4月16日淩晨，因爲拿不出1萬元的醫療費，他選擇了從醫院大樓跳下，結束了自己的生命。
+卡爾·巴斯先生：香港淪落為廢城的速度快得讓人倒吸壹口冷氣。2019年2月中國決定新制定的《遣返法》生效，僅僅過了14個月，人們就看到了壹個警察橫行的廢城。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02012503/1-11.png)
+Kong Tsung-gan/江松澗：繼警方禁止了5月1日的遊行，香港各大工會在超過60個車站設置了抗議點。多人報告遭警察恐嚇。在旺角朗豪坊，壹百多名警察包圍了車站，威脅抓捕行人，並向記者噴胡椒水。
 
-到底是什麽原因讓這個年輕的小夥子用這樣決絕的方式結束自己的生命？27歲，是多少人回不去的年紀，卻爲了一萬元選擇了輕生，一萬元，對于富裕的家庭來說並不是多大的數額，但是對于這個年輕的小夥子，要拿出這筆錢也許就是難以登天的事。那麽讓他走上絕望的究竟是什麽？什麽人對他說了什麽話？或者他背後受到了什麽樣的對待？看過他跳樓地方的照片，是一扇被限位鎖定的窗戶，普通人要想在不打碎窗戶的情況下從這裏跳下去，就只有一只手掌寬度的縫隙，但他選擇了條不可思議的自殺路徑，也許他不想死的轟轟烈烈，只想悄悄的離開世界。就是這樣一個沈默到死都不想給世界添麻煩的人，撞傷老人後，主動送對方到醫院，還因爲請不起義工就自己盡力照顧老人，我實在不知道怎麽譴責他“一死了之”的“逃避行爲”，也許是責任、擔當、藥費、貧窮、焦慮……所有的因素摻雜在一起，導致了他的精神崩潰；也許是疫情剛剛過去，小夥子已山窮水盡，大多數人心裏應該明白，他只是一個被壓垮的年輕人。
+> We know what China’s communist government has done. The timeline of facts is hard for their propagandists to twist around.I hope the rumors of Shi Zhengli’s defection to France prove to be correct.Then will we get the truth out of the criminals. [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/2riURnorq3](https://t.co/2riURnorq3)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 2, 2020](https://twitter.com/Jkylebass/status/1256405915047202822?ref_src=twsrc%5Etfw)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02012840/2-6.png)
+卡爾·巴斯先生：我們知道中共政府都做了什麼。事實鏈明擺著，他們的大外宣無法隨意歪曲。我倒希望石正麗叛逃法國的謠言是真的，那樣我們就能弄清那些罪犯的真相了。
 
-這一代年輕人的艱難，你在抖音上根本看不到，雖然所有人都在嘲笑美國的失業率是3.7%，但是沒人知道，二月份國家統計局數據，中共國的失業率是6.2%，這還是在春節期間，大部分人沒有返工，而且近千萬高校畢業生沒有湧入社會情況下的數據，現在你知道又有多少人失業嗎?你知道有多少人三個月沒有工資是怎麽生活的嗎？你知道各大招聘網站發布招聘崗位比去年同期減少四成嗎？由于中共疫情中國經濟第一季度國內生産總值同比下降6.8%，城市被按下暫停鍵的背後，是部分企業倒閉員工失業。而如果這個時候，再有意外的衝擊，底層的老百姓會不堪重負，甚至就像新聞中的小夥子，甯可選擇去結束這個看不到希望的生命。
+美國國務院：蓬佩奧國務卿（[點擊觀看視頻+中文字幕](https://gnews.org/zh-hans/191730/)）
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02012853/3-4.png)
+> The circumstantial evidence about the virus all points to a breach at the Wuhan labs. China covers up or destroys any direct evidence. Asking intelligence agencies to collect more information is exactly what should be done, not the scandal suggested here. [https://t.co/3hyGK6GHgJ](https://t.co/3hyGK6GHgJ)
+> — Tom Cotton (@SenTomCotton) [April 30, 2020](https://twitter.com/SenTomCotton/status/1255922172851355649?ref_src=twsrc%5Etfw)
 
-在中共國，因爲貧窮而自殺的案例不計其數，在中共統治下的中國，就是一個非你即我的社會，一個弱肉強食的社會，大部分的底層窮人天生注定就是韭菜，而這些有多少是被隱瞞的，你能看到的只是每天晚7點的新聞聯播那裏充滿的正能量，這也是給國內小粉紅活下去的信心，只有在這個國家才會因爲撞壞一個老人搭上自己一條命。不是他不願意賠錢，是他真的窮。在中共國，貧窮，真的是一場災難。
+參議員 Tom Cotton 連推：所有有關病毒的間接證據都指向了武漢實驗室的違規操作。中國掩蓋或銷毀直接證據。讓情報機關收集更多信息正是我們應該做的，不是文章中所謂的搬弄是非。與此同時，《紐約時報》這則報道照搬了中國大外宣的說法。川普總統批評中國，《紐約時報》群起為中國辯護。幹得漂亮，紐時——延續著沃爾特·杜蘭蒂(Walter Duranty)的優良傳統。（編者按：沃爾特·杜蘭蒂(Walter Duranty)，1932年寫文章否認蘇聯大饑荒並作出虛假報道的《紐約時報》記者）
 
-GNEWS之前文章：
-大蕭條重演？全球車企陷入冰封！ [https://gnews.org/zh-hans/190688/](https://gnews.org/zh-hans/190688/)
-黑龍江女童遭生父繼母虐打進ICU！[https://gnews.org/zh-hans/189558/](https://gnews.org/zh-hans/189558/)
-【WHO】還是中共黨支部？[https://gnews.org/zh-hans/182373/](https://gnews.org/zh-hans/182373/)
+《紐約時報》：據說川普政府官員要求媒體探子尋找未經證實的病毒和武漢實驗室之間的聯系
 
-（文章內容僅代表作者觀點）
+> Yet another article by the [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) that claims there’s “no evidence” China virus came from a lab in Wuhan.[https://t.co/7pp54ZtWVx](https://t.co/7pp54ZtWVx)
+> — Tom Cotton (@SenTomCotton) [May 1, 2020](https://twitter.com/SenTomCotton/status/1256296367070248963?ref_src=twsrc%5Etfw)
 
+參議員 Tom Cotton 連推（部分）：1. 這不《華盛頓郵報》也發了壹篇文章聲稱“沒有證據”表明病毒來自武漢實驗室。2. 這篇文章對越來越多指向武漢實驗室的證據輕描淡寫，還只字不提那些報道此事最好的文章，那些優秀文章不是別人的，正是《華盛頓郵報》自己人寫的。3. 這篇文章試圖質疑實驗室說法，但證明其他理論的證據更是少之又少。我們知道這個病毒不是來自海鮮市場。正如壹位專家說的：“病毒是先進入市場，然後才從市場流出的。” 4. 該文章還以那些曾在武漢病毒實驗室與研究員密切合作過的美國科學家的溢美之詞為依據，好像這就能洗清他們的嫌疑似的。
+
+所引文章列表：1.《華盛頓郵報》：中國實驗室進行了致命蝙蝠病毒深入研究，但未有證據顯示是意外釋放 2. 《華盛頓郵報》：觀點｜國務院電報曾警告武漢研究蝙蝠冠狀病毒實驗室存在安全問題 3. 《柳葉刀》發文《中國武漢感染2019新冠病毒病人的臨床表現》
+
+> APR 30: USAF B-1Bs HYPER31 & 32 executed a 32 hour round-trip flight from Ellsworth AFB to conduct operations over the South China Sea [pic.twitter.com/Fb3qTnFHSU](https://t.co/Fb3qTnFHSU)
+> — Aircraft Spots (@AircraftSpots) [May 1, 2020](https://twitter.com/AircraftSpots/status/1256095910162862082?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生 轉推：
+
+Aircraft Spots（報道美國空軍動態推特號）：4月30日：美國空軍B-1B轟炸機（HYPER31 和 32）從埃爾斯沃斯（Ellsworth）空軍基地起飛，在南中國海上空執行了32小時往返任務。
+
+> US Navy EP-3E 157318 callsign MT923 operating over the South China Sea [pic.twitter.com/qNRtqzZYna](https://t.co/qNRtqzZYna)
+> — Aircraft Spots (@AircraftSpots) [May 2, 2020](https://twitter.com/AircraftSpots/status/1256388175116681216?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生 轉推：
+
+Aircraft Spots：美國海軍EP-3E偵察機（157318）呼號MT923 在南中國海上空執行任務
+
+> Communist China’s lack of transparency led to this devastating pandemic. They need to be held accountable.
+>  
+> The best way we can do it is to stop buying products from Communist China. It’s time we bring our jobs back to the US. [pic.twitter.com/KVgIfi59fv](https://t.co/KVgIfi59fv)
+> — Rick Scott (@SenRickScott) [May 1, 2020](https://twitter.com/SenRickScott/status/1256220485651779585?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：中共國的信息不透明導致了這場毀滅性的疫情大流行。必須追究他們的責任。最好的方式是停止購買中共國的產品。現在應該讓我們的就業機會回到美國。
+
+> Thank you [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) for taking these necessary measures.
+>  
+> It is imperative to protect our critical infrastructure from the security risks brought on by Communist China and Russia. [https://t.co/ghkjUOmzwz](https://t.co/ghkjUOmzwz)
+> — Rick Scott (@SenRickScott) [May 1, 2020](https://twitter.com/SenRickScott/status/1256349226331705344?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：感謝總統先生采取這些必要措施。保護我們的關鍵基礎設施安全不受中共和俄羅斯威脅勢在必行。
+
+《華爾街日報》政治版：美國打算給予供電系統支持，解決其因過分依賴外國產零部件而造成的潛在易受攻擊的弱點。
+
+《華爾街日報》：美國開始禁止使用某些外國產電力設備
+
+> Sec Pompeo has brought back American principles to US diplomacy. Human rights, civil liberties, rule of law – everything the CCP hates. The State Department is forging a new “democratic” consensus. [https://t.co/cJsZDNUPBW](https://t.co/cJsZDNUPBW)
+> — General Spalding (@robert\_spalding) [May 1, 2020](https://twitter.com/robert_spalding/status/1256200639081852929?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：蓬佩奧國務卿讓美國的外交恢復了原則性。人權、公民自由、法制——所有中共痛恨的東西。國務院正在建立新的“民主”共識。
+
+Anna Fifield（《華盛頓郵報》北京分社負責人）：本周，中國官媒說，蓬佩奧是“人類公敵”…(此處翻譯略，參見中共官媒）
+
+> "Rule by law" is the norm in China – "Thus, in so many words, a leading CCP law professor acknowledges that the law does indeed oblige citizens to spy on one another — the only question is at what point in the process the spying can legally begin."[https://t.co/1367jPbtPz](https://t.co/1367jPbtPz)
+> — General Spalding (@robert\_spalding) [May 1, 2020](https://twitter.com/robert_spalding/status/1256300835174301699?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“依法治國”在中國是常態——“因此，中共壹位著名法學教授婉轉地承認，法律確實迫使公民們相互監視——唯壹的問題是在這個過程中，什麼時候開始這樣做是合法的。”
+
+《外交家》：中國《國家情報法》的真正危害
+
+> "China’s Communist dictators have been waging economic warfare against us for decades, launching missiles from their mines, mills, and factories in an attack that has destroyed our industries as effectively as any precision-guided munitions."[https://t.co/vt41UAVE9m](https://t.co/vt41UAVE9m)
+> — General Spalding (@robert\_spalding) [May 1, 2020](https://twitter.com/robert_spalding/status/1256302382310457347?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“幾十年來，中共獨裁者壹直在對我們發動經濟戰，從他們的礦山、車間和工廠發出的導彈，跟精確制導的彈藥壹樣，有效地摧毀了我們的工業。”
+
+American Greatness網站：現在應該抵制中國
+
+> “Cirlig is speaking with Forbes after discovering that his Redmi Note 8 smartphone was watching much of what he was doing on the phone. That data was then being sent to remote servers hosted by another Chinese tech giant, Alibaba, rented by Xiaomi.” [https://t.co/tsqn2EZhh0](https://t.co/tsqn2EZhh0)
+> — General Spalding (@robert\_spalding) [May 1, 2020](https://twitter.com/robert_spalding/status/1256305275776180224?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“Cirlig發現他的Redmi Note 8智能手機正在監測他使用手機所做的事，之後，他跟《福布斯》進行了交談。這些數據被傳送到由小米租借、阿裏巴巴（另壹家中國科技巨頭）運營的遠程服務器裏。”（編者按：Gabriel Cirlig，網絡安全產品提供商White Ops公司研究員。）
+
+《福布斯》：獨家：有人警告，中國手機巨頭小米公司紀錄幾百萬人的“私人”網絡和電話使用數據
+
+> “While the news itself was noteworthy, so were the extremely short waiting times for the organs: Dr Chen Jingyu, managed to acquire compatible lungs from a healthy donor in Guizhou Province within five days of the patient being transferred to his hospital” [https://t.co/ROz0JVXud9](https://t.co/ROz0JVXud9)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256385272931127297?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“…消息本身值得關註，而極短的等待器官的時間也非常值得註意：陳靜瑜醫生能夠在病人轉到他的醫院後5天內，就在貴州找到配對成功的健康捐獻者的肺”
+
+The Jamestown Foundation（總部位於華盛頓的壹家研究機構）文章：[審視中國的器官移植系統：連接安保、醫藥和捕獵/第壹部分：2000年後中國器官移植系統的發展](https://jamestown.org/program/examining-chinas-organ-transplantation-system-the-nexus-of-security-medicine-and-predation-part-1-the-growth-of-chinas-transplantation-system-since-2000/)
+
+> “On the China business, it's up in the air. They are going to be held accountable for it. [https://t.co/okPO1tzhMt](https://t.co/okPO1tzhMt)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256387705656795136?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“中國的事兒，還沒完。（我們）將為此追究他們的責任。
+
+CNBC新聞：白宮經濟顧問庫德洛說，會為冠狀病毒壹事追究中國責任
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02020912/07_38.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02020924/image0.png-2.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02020928/WhatsApp_Image_2020-05-02_at_02.09.02-1.jpeg)
 0
