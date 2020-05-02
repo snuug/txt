@@ -12,6 +12,12 @@
 
 ## 頁面 18/26 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [26](/content/README-26.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/2018/07/20180722-7878722502564769859.md)
+
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/2018/07/20180719-6182147046946865202.md)
+
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
+
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/2018/07/20180719-5443469418694785796.md)
 
 [文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/2018/07/20180711-4817682308462486547.md)
@@ -55,12 +61,6 @@
 [文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
 
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
-
-[文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
-
-[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
-
-[文字版郭先生2018年5月2日 ins直播](/content/2018/05/20180504-824140605329420568.md)
 
 
 ## 頁面 18/26 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [26](/content/README-26.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

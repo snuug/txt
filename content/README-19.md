@@ -12,6 +12,12 @@
 
 ## 頁面 19/26 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [26](/content/README-26.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
+
+[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
+
+[文字版郭先生2018年5月2日 ins直播](/content/2018/05/20180504-824140605329420568.md)
+
 [文字版：4月28日金正恩是我们学习的坏榜样！ ](/content/2018/04/20180429-1799430545409667372.md)
 
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/2018/04/20180426-3820645061800034569.md)
@@ -55,12 +61,6 @@
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
 
 [文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
-
-[文字版郭友访谈 | 郭先生与小蚂蚁亲密接触（2018年3月31日）](/content/2018/04/20180418-5802151698966349959.md)
-
-[文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/2018/04/20180418-2853950060193549328.md)
-
-[文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/2018/04/20180418-5862976291239032790.md)
 
 
 ## 頁面 19/26 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [26](/content/README-26.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
