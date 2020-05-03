@@ -1,13 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友之家主播大分享！“中共病毒疫情，每日熱線”
-`2020-05-03 04:01 GM30` [轉載自GNews](https://gnews.org/zh-hant/192542/)
+## 美国重启之际，一日内死亡人数创新高
+`2020-05-03 06:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/192656/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03035805/image0-27.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03055809/1-18.png)
+《國會山報》報導，正當幾個州部分重啟經濟之時，美國經受了自疫情開始以來最高的一日內死亡人數。根據世衛組織的數據，本周四，美國境內一天之內2909名公民死亡，打破了4月23日所報導的2471人的記錄。
 
-**GTV鏈接：**[https://gtv.org//?videoid=5eae4200a5a52740f33a5a33](https://gtv.org//?videoid=5eae4200a5a52740f33a5a33)
+然而，一边是险峻疫情，另一边美国人群也愈加厌倦了居家隔离，甚至对经济停摆导致企业倒闭百万人失业的担心。州，新泽西州，新墨西哥州，纽约州，田纳西州和华盛，均出现示威抗议，民众要求重启经济，重返工作职位，称居家隔离侵犯了自己的宪法权利与自由。
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+在某些州府，如德克薩斯，喬治亞和南卡羅來納，則已經重新開放了部分企業。其他州也推出了重啟指南，詳細羅列了重啟的時間點和方法。
+
+根據美國疾控中心網站公布的數據，5月1日一天內有2349人死亡。疾控中心發言人凱特•格魯希奇（Kate Grusich）接受CNBC採訪時表示，由於多種原因，疾控中心在此次疫情的病例，住院，和死亡數字上尚不清晰，直到2021年才會有更準確的死亡人數。
+
+約翰•霍普金斯大學的數據指出，截止周六晚上，美國有超過120萬感染病例，66000多人死亡。
+
+[原文鏈接](https://thehill.com/policy/healthcare/495826-us-endures-worst-one-day-death-toll-yet-as-states-reopen)
+
+文天
 
 0
