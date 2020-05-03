@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友之家主播大分享！“中共病毒疫情，每日熱線”
-`2020-05-03 04:01 GM30` [轉載自GNews](https://gnews.org/zh-hant/192542/)
+## 巴菲特抛售 所有航空股票
+`2020-05-03 06:29 GM09` [轉載自GNews](https://gnews.org/zh-hant/192703/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03035805/image0-27.jpg)
+作者：多國語言組
 
-**GTV鏈接：**[https://gtv.org//?videoid=5eae4200a5a52740f33a5a33](https://gtv.org//?videoid=5eae4200a5a52740f33a5a33)
+著名投資家沃倫·巴菲特創建的美國伯克希爾·哈撒韋於2日召開公司年度股東大會。巴菲特因中共病毒感染擴大而認為“世界將改變”，將持有的美國航空股票全部拋售。數次克服危機的“投資之神”相信美國仍有美好未來，開始著手布局準備沒有中共病毒的世界。
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+來源：https://www.nikkei.com/article/DGXMZO58768990T00C20A5I00000/
 
 0
