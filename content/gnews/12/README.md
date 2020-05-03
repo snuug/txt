@@ -1,89 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國內手持美元——勸說親友小貼士
-`2020-05-02 12:34 GM30` [轉載自GNews](https://gnews.org/zh-hant/192111/)
+## 5月2日 美國政要推文選譯
+`2020-05-02 20:27 GM65` [轉載自GNews](https://gnews.org/zh-hant/192297/)
 
-**作者：Tequila**
+> How much is China paying you? [https://t.co/zl7UoEgsHl](https://t.co/zl7UoEgsHl)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 2, 2020](https://twitter.com/MarshaBlackburn/status/1256643789843824645?ref_src=twsrc%5Etfw)
 
-近期經濟形勢和國際政治局勢動蕩，以前我們能不關心政治，歲月靜好。但是，如今的時刻，已經到了你不關心政治，政治已經來關心我們每一個人了。政治已大步的走進了我們生活的方方面面，關心你的投資、你的存款儲蓄、甚至是你的生命安全。所以不能只顧低頭拉車，請擡頭看路。多加留意我們身邊發生的事，留意政治經濟、國際局勢，做出及時的判斷，不要成爲國際局勢走勢下曆史的炮灰。具體：
+參議員 Marsha Blackburn：中國給了妳多少錢？
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02125310/0-1.jpg)
+譚德賽：我是世衛組織成員，我自豪！
 
-一、中行原油寶
+> This week [@crampell](https://twitter.com/crampell?ref_src=twsrc%5Etfw) used her [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) column to naively attack comments I made about the potential national-security risk posed by some Chinese nationals studying in the U.S. Today, I responded: [https://t.co/6UpMd0shli](https://t.co/6UpMd0shli)
+> — Tom Cotton (@SenTomCotton) [May 2, 2020](https://twitter.com/SenTomCotton/status/1256610394296238081?ref_src=twsrc%5Etfw)
 
-中國銀行是國有四大銀行，原油寶作爲中國銀行推出的理財産品，居然能夠出現在本金賠光後，還要倒欠銀行更多的債，簡直比P2P還邪惡。（具體查尋網絡上的聊天和信息截圖）
+參議員 Tom Cotton：我就某些中國公民在美國學習給美國帶來潛在國家安全風險壹事發表過評論。本周，Catherine Rampell（《華盛頓郵報》專欄作家，CNN評論員）在她的《華盛頓郵報》專欄裏幼稚地抨擊我的這些評論。今天，我做出回應如下：
 
-發生背景及原因：國際金融形勢劇烈動蕩
+《華盛頓郵報》：觀點｜揭發中國試圖盜取我方機密的做法不是“排外主義”
 
-1. 原油期貨倒挂（曆史從未有過）
-2. 黃金劇烈波動近期暴漲（戰爭預警）
-3. 政治派系鬥爭過于激烈：中國銀行屬于老王家。
+> America's allies are starting to rally behind President Trump's call to investigate and hold China accountable for the coronavirus pandemic.[https://t.co/yLjmQH5m77](https://t.co/yLjmQH5m77)
+> — newtgingrich (@newtgingrich) [May 2, 2020](https://twitter.com/newtgingrich/status/1256632910804893698?ref_src=twsrc%5Etfw)
 
+美國眾議院前議長 金裏奇：美國的盟友開始聯合起來支持川普總統，響應他的對冠狀病毒疫情進行調查並追究中國責任的號召。
 
-官方金融系統已經嚴重紊亂，盡量說服親友賣掉理財産品，因爲理財産品如出現虧損，並不屬于銀行倒閉賠付的50萬元之內。請各位親友回家查看已購買的理財産品合同，理財産品的售出方是單獨成立的不同于銀行的理財公司，銀行只是作爲賬戶開戶行，並非理財産品的承銷方，所以投資者在法律上無法受到保護。
+《華盛頓觀察家報》：美國盟友向川普靠攏，不顧中國威脅，要求就冠狀病毒進行調查
 
-二、大量私企破産倒閉，制造業、外貿業、餐飲業、娛樂業等
+> .⁦[@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw)⁩ and I propose new bill to ban federal workers from using [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) tech [https://t.co/5b895qBOLQ](https://t.co/5b895qBOLQ)
+> — Josh Hawley (@HawleyMO) [May 2, 2020](https://twitter.com/HawleyMO/status/1256638628190736384?ref_src=twsrc%5Etfw)
 
-1.老板欠債成爲老賴，甚至跑路、跳樓
+參議員 Josh Hawley：我和克魯茲參議員提議新法案，禁止聯邦雇員使用中國科技產品（文章來源：《大紀元》）
 
-2.大量工人失業
+> More evidence for what some of us have been saying for months. 
+> 
+> Communist China tried to cover up and hide the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world. The consequences have been devastating. Communist China must be held responsible for their deceit. [https://t.co/QdufquCNSB](https://t.co/QdufquCNSB)
+> — Rick Scott (@SenRickScott) [May 2, 2020](https://twitter.com/SenRickScott/status/1256581228691587079?ref_src=twsrc%5Etfw)
 
-可舉例南方某老板投資口罩廠，購買數台價值十幾萬的設備建廠後，原材料熔噴布劇烈漲價，且無源頭進貨，導致虧損。現在疫情這麽嚴重的情況下，口罩廠在投資生産流通環節中居然能虧損，可見經濟形勢的停滯性通脹程度何其劇烈，更多的私企投資後，將面臨血本無歸境地。
+參議員 Rick Scott：更多證據證實我們幾個月以來壹直說的。中共國試圖掩蓋和掩藏冠狀病毒（真相）。其後果是災難性的。中共國必須對其欺騙行為負責。
 
-三、國企虧損
+福克斯新聞：壹份西方國家情報部門卷宗流出，揭露中國如何在冠狀病毒壹事上欺騙世界
 
-1. 央企國企大型上市公司降薪、裁員。企業的運行全靠上市的假A股市場撐住，欺騙散戶接盤，實際上大部分國企年終報表都是虧損。
-2. 中概股在美上市企業業績造假嚴重，面臨被告、賠償甚至退市的風險。國內各企業做過財務的人員都明白，造假情況是多麽普遍和嚴重。以前因爲在美上市的公司主體是國企，享受了主權國家的豁免權，具體財務數據可不提供，但是，現在美國撤銷了該豁免權，意味著擋箭牌的消失，必須要依法進行查處賠償。美國關于上市公司造假的罰單和索賠是天價。舉例：2002年，美國安然公司財務造假案，證券交易委員會開出近5億美元的罰單，美國安然公司向投資者進行的賠付共計71.4億美元。
+> Is that illegal now in Hong Kong? [https://t.co/E6ZhjJSSyZ](https://t.co/E6ZhjJSSyZ)
+> — Sari Arho Havrén (@SariArhoHavren) [May 2, 2020](https://twitter.com/SariArhoHavren/status/1256550130968190976?ref_src=twsrc%5Etfw)
 
+斯伯丁將軍 轉推：
 
-四、銀行壞賬率
+Sari Arho Havrén：如今，這在香港是違法的嗎？
 
-1.對公業務
+Studio Incendo：香港警察在欺負壹個手持美國國旗的人。不知他最後是否被捕。
 
-國企虧損，上市公司經營不善導致大量還款逾期，甚至各種金融票據無法貼現兌付，造成了銀行的大量壞賬。
+> This is what was happening in Shanghai when I lived there 2002-2004. I felt terrible for the workers who could not organize to protect themselves. [https://t.co/BRWtNRO9Vj](https://t.co/BRWtNRO9Vj)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256669646100533250?ref_src=twsrc%5Etfw)
 
-2.個人業務
+斯伯丁將軍：我2002年到2004年住在上海時，就看到過這種事情。這些工人無法組織起來保護自己，我為他們感到難過。
 
-工人失業或投資失敗造成房貸車貸逾期，大量個人貸款無法償還，斷供甚至最後只能將資産進行拍賣。
+free zhu：在尼日利亞的中國公司欠中國員工工資，雇用了壹些當地人毆打中國工人，而且讓當地人拿槍威脅中國員工…
 
-五、貨幣超發
+> “U.S. officials believe the Chinese government misled the rest of the world about the contagiousness of COVID-19, while taking action to collect medical supplies needed for its own battle against the virus, ABC News reported Saturday.” [https://t.co/R7oy3F91gP](https://t.co/R7oy3F91gP)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256692670673674246?ref_src=twsrc%5Etfw)
 
-今年內銀行數次降息降准，狂發MLF 、SLF，人民幣的貨幣供應量，也就是M2爲天量，已經超過了美國和歐洲發達國家的總和。在國內具體表現爲通貨膨脹，物價加幅上漲。
+斯伯丁將軍：“周六，ABC新聞報道，美國官員認為，中國政府在冠狀病毒傳染性問題上誤導了世界，卻同時采取行動為其自己抗疫搜集醫療物資。”
 
-以上造成了國內的社會問題劇增，解決方式：
-
-一． 爲轉移社會矛盾，大肆宣揚民族主義，樹立地區對立
-
-1. 中美關系惡化：恨美
-2. 台灣問題
-3. 香港問題
-
-
-二． 發行數字貨幣
-
-對內：
-
-1.消化大量債務
-
-2.解決通貨膨脹
-
-3.作爲一種監控維穩手段，發薪、發糧票布票等，重回計劃經濟。
-
-4.今後可管控官員腐敗
-
-5.更方便的剝奪企業和富商財富，可實現直接轉移或清零
-
-6.控制外彙流出，限制資本外流。
-
-對外：
-
-1. 脫離美元長臂管轄權，在國際上進行洗錢，交易
-2. 與美元抗衡，甚至期望取代美元，在一帶一路區域內流通，控制亞非拉小兄弟， 掌握在聯合國的話語權。
-
-
-這就是我們目前的政治經濟形勢。如果繼續選擇漠不關心，那麽我們存在銀行裏的人民幣，將會劇烈貶值。到時候一輩子的儲蓄、血汗錢將嚴重縮水，甚至成爲數字貨幣。國家直接控制流通，一輩子的儲蓄就變成了一串賬上的數字，想花也花不出去了。如果可以，請將手上的人民幣盡快兌換爲美元。目前來看，這恐怕是如今形勢下，能夠選擇的保值措施，也是一條最簡單的出路。
-
-（文章內容僅代表作者觀點）
-
+23ABC新聞：美國認為中國可能壹面掩蓋了病毒的嚴重性，壹面大量儲存物資
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202717/07_42.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202723/G1-1.jpg)
 0
