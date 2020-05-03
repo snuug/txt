@@ -1,65 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月2日 美國政要推文選譯
-`2020-05-02 20:27 GM65` [轉載自GNews](https://gnews.org/zh-hant/192297/)
+## 評人民日報——追責索賠鬧劇是文明之恥（鐘聲）——造謠中傷“中國抗疫”有悖國際正義（三）
+`2020-05-03 00:37 Diago` [轉載自GNews](https://gnews.org/zh-hant/192413/)
 
-> How much is China paying you? [https://t.co/zl7UoEgsHl](https://t.co/zl7UoEgsHl)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 2, 2020](https://twitter.com/MarshaBlackburn/status/1256643789843824645?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03003334/image0-22.jpg)
+作者：Diago
 
-參議員 Marsha Blackburn：中國給了妳多少錢？
+人民網2020年05月03日05:30發表了[追責索賠鬧劇是文明之恥（鐘聲）——造謠中傷“中國抗疫”有悖國際正義（三）](http://world.people.com.cn/n1/2020/0503/c1002-31696248.html)的文章，狗急跳牆之下的連番狂吠讓人煩不勝煩，對於中南坑、對於代表中南坑的“鐘聲”，只要狂吠一日不止，則棒喝一日不會止，以下對該文進行逐一駁斥——
 
-譚德賽：我是世衛組織成員，我自豪！
+1、所謂【美國一些人的政治操弄，既滑出了道義的底線，也偏離了人性的軌道。公然以霸權踐踏他國主權、破壞國際法治，完全踐踏了全世界公認的國際道義】，當流氓和紳士都穿著正裝對陣的時候，流氓的正裝和紳士的正裝並無差異，對於中南坑來說，你們文章裡流淌出來的所謂“道義底線、人性軌道、他國主權、國際法治、國際道義”這些詞彙就是你們這些流氓的正裝，但是套上正裝之後的流氓依然是流氓，美國和其他正義國家對於你們的追責就是在捍衛道義的底線、保持人性的軌道、保護每個獨立國家的主權、匡扶國際道義。對於你們這些慫貨，無論用多華麗的詞彙都不能阻止全人類對你們的清算；
 
-> This week [@crampell](https://twitter.com/crampell?ref_src=twsrc%5Etfw) used her [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) column to naively attack comments I made about the potential national-security risk posed by some Chinese nationals studying in the U.S. Today, I responded: [https://t.co/6UpMd0shli](https://t.co/6UpMd0shli)
-> — Tom Cotton (@SenTomCotton) [May 2, 2020](https://twitter.com/SenTomCotton/status/1256610394296238081?ref_src=twsrc%5Etfw)
+2、所謂【美國一些政客把抗擊新冠肺炎疫情的戰場當作政治秀場，先有喋喋不休的疫情政治化、汙名化論調，再有追責索賠的濫訴。】、【轉移焦點，良心何在？破壞合作，天理不容！】，如果不是你們妄圖用疫情逼迫美國和其他國家跪下並重新建立貴坑為主導的國際秩序的本質，如果不是你們在疫情之初的訓誡和把病毒來源引向美國，這個世界不會知道原來疫情可以用來政治化，這個世界不會知道原來疫情可以用來汙名化，美國和正義國家的追責索賠已經打到了貴坑的痛處，所以會有貴坑連番的狂吠；
 
-參議員 Tom Cotton：我就某些中國公民在美國學習給美國帶來潛在國家安全風險壹事發表過評論。本周，Catherine Rampell（《華盛頓郵報》專欄作家，CNN評論員）在她的《華盛頓郵報》專欄裏幼稚地抨擊我的這些評論。今天，我做出回應如下：
+3、所謂【美方曾公開表示“非常欣賞中方的努力和透明度”“中方分享的資料有助於美方抗擊疫情”。】、【國際社會普遍稱讚中國以自身付出的巨大犧牲為全球作出巨大貢獻，美國一些政客卻熱衷於拉幫結夥、敲詐勒索。】，美國政府對於貴坑的謬贊或出於戰鬥的策略或基於曾經被貴坑的誤導，這些誤導也包括貴坑曾經許諾給中國人民的“民主”、“自由”，包括貴坑曾經許諾的南海非軍事化，當美國和世界被喚醒之後，追責和賠償不可避免，這不是拉幫結夥，這也不是敲詐勒索，這就是正義的追責，這就是對你們做惡的以眼還眼和血債血還！
 
-《華盛頓郵報》：觀點｜揭發中國試圖盜取我方機密的做法不是“排外主義”
+4、所謂【這是對國際法理的公然挑戰。國際法中國家主權豁免的法則明確規定，國家的行為和財產不受他國立法、司法、行政的管轄。】，國家主權豁免不會豁免綁架並且套上主權馬甲的你們，貴坑和貴坑所在的那個黨不屬於國家主權，這也是冠狀病毒不能是中國病毒或者中國人病毒而必須是CCP冠狀病毒的原因，包括中國人民在內的全人類都不會放棄對你們的追責，因為這與國家主權豁免無關，不徹底清除共產邪魔，則國際法理的基石會受到侵襲；不徹底清除共產邪魔，則世界永無寧日；
 
-> America's allies are starting to rally behind President Trump's call to investigate and hold China accountable for the coronavirus pandemic.[https://t.co/yLjmQH5m77](https://t.co/yLjmQH5m77)
-> — newtgingrich (@newtgingrich) [May 2, 2020](https://twitter.com/newtgingrich/status/1256632910804893698?ref_src=twsrc%5Etfw)
+5、所謂【中國首先報告疫情，並不等於新冠病毒就源自中國。病毒源頭是嚴肅的科學問題，只能交給科學家和醫學專家研究，豈能由美國一些政客以自己瘋狂的想像力下結論。】，據2020年01月24日 17:57[財新網](http://www.caixin.com/)發表的[解碼新型冠狀病毒：SARS的“近親” 自然宿主或為蝙蝠](http://www.caixin.com/2020-01-24/101508132.html)提到的“一種新型冠狀病毒nCoV-2019在武漢引起了急性呼吸綜合征的流行。該疫情始於2019年12月12日”是筆者通過公開資料看到的最早關於新型冠狀病毒出現的時間點，對於始於2019年12月12日的這次疫情貴坑為何從來不提？財新的這篇文章也已經設置了限制閱讀，在這個世界上沒有不透風的牆，在香港和武漢的冠狀病毒專家已經來到美國和歐洲，並把你們一手主導的這次生化危機的秘密大白於天下之際，所謂“中國首先報告疫情，並不等於新冠病毒就源自中國”的說辭已經不攻自破，只是請不要再言必稱中國，因為你們代表不了中國，你們每一次提到中國就是對中國赤裸裸的侮辱；
 
-美國眾議院前議長 金裏奇：美國的盟友開始聯合起來支持川普總統，響應他的對冠狀病毒疫情進行調查並追究中國責任的號召。
+6、所謂【美國媒體報導，白宮國家安全委員會曾制定談話要點，唆使美國官員將疫情責任推到中國身上；美國共和黨競選部門專門撰寫長達57頁的“謊話紅皮書”，手把手教該黨競選人就疫情問題抹黑中國。】云云，請不必再用走夜路吹口哨的方式引用所謂美國媒體和其他國際媒體為你們壯膽，樹未倒，猢猻還沒有全散，你們控制的大外宣的任何言論都不會轉移正義力量對你們的追責和制裁，你們引用的任何的類似媒體唯一的作用就是讓世人知道還有哪些媒體是你們的大外宣和你們的馬甲，雖然輿論可以部分被你們操弄，但是對於你們的制裁絕對不會止步，正義永遠不會缺席！；
 
-《華盛頓觀察家報》：美國盟友向川普靠攏，不顧中國威脅，要求就冠狀病毒進行調查
+7、所謂【美國喬治城大學法學教授大衛·斯圖爾特深感憂心：“所有那些起訴中國的人都應該反思，‘等等，我們會被起訴嗎？’】，請你們明白，這些起訴不是針對中國人的，而是針對你們所屬的那個組織——中國共產黨，你們不敢正視對你們的追責，動輒以中國和中國人為你們背書，這種遊戲結束了！到于貴坑提到的金融危機，它是否始於華爾街我不知道，但我知道的是，那場金融危機不是美國政府操控的，而目前的這場冠狀病毒生化危機就是你們一手製造的，對於你們的追責與中國和中國人民無關，中國和中國人民都是這場生化危機的受害者，如果你們僥倖逃脫制裁，那將是全人類的悲哀；
 
-> .⁦[@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw)⁩ and I propose new bill to ban federal workers from using [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) tech [https://t.co/5b895qBOLQ](https://t.co/5b895qBOLQ)
-> — Josh Hawley (@HawleyMO) [May 2, 2020](https://twitter.com/HawleyMO/status/1256638628190736384?ref_src=twsrc%5Etfw)
+8、所謂貴坑提到的【2019年8月暴發“電子煙肺炎”】、【美國德特立克堡軍事基地究竟發生了什麼？】，請把你們的證據亮出來，有這麼好的反擊機會而不去反擊，除了說明這是謊言之外，實在看不出它還有什麼意義；除了說明這是你們低級的甩鍋之外，實在看不出它還有什麼意義；
 
-參議員 Josh Hawley：我和克魯茲參議員提議新法案，禁止聯邦雇員使用中國科技產品（文章來源：《大紀元》）
+9、所謂【世衛組織總幹事譚德塞警告，用疫情來謀取政治得分】，對於同屬國際共產主義聯盟的這條狗和陳馮富珍、馬瑞克、Dr. Peng這幾個敗類將與你們一起接受全人類的審判，對於這一點我堅信不疑。
 
-> More evidence for what some of us have been saying for months. 
-> 
-> Communist China tried to cover up and hide the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world. The consequences have been devastating. Communist China must be held responsible for their deceit. [https://t.co/QdufquCNSB](https://t.co/QdufquCNSB)
-> — Rick Scott (@SenRickScott) [May 2, 2020](https://twitter.com/SenRickScott/status/1256581228691587079?ref_src=twsrc%5Etfw)
+文尾寄語代表中南坑的“鐘聲”：全世界對於已經是落水狗的中共的痛打不會停止，因為在這個世界上，烏雲遮不住太陽，邪惡也壓不住正義。
 
-參議員 Rick Scott：更多證據證實我們幾個月以來壹直說的。中共國試圖掩蓋和掩藏冠狀病毒（真相）。其後果是災難性的。中共國必須對其欺騙行為負責。
+你們已經完蛋了！該謝幕了！
 
-福克斯新聞：壹份西方國家情報部門卷宗流出，揭露中國如何在冠狀病毒壹事上欺騙世界
+（文章內容僅代表作者個人觀點）
 
-> Is that illegal now in Hong Kong? [https://t.co/E6ZhjJSSyZ](https://t.co/E6ZhjJSSyZ)
-> — Sari Arho Havrén (@SariArhoHavren) [May 2, 2020](https://twitter.com/SariArhoHavren/status/1256550130968190976?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推：
-
-Sari Arho Havrén：如今，這在香港是違法的嗎？
-
-Studio Incendo：香港警察在欺負壹個手持美國國旗的人。不知他最後是否被捕。
-
-> This is what was happening in Shanghai when I lived there 2002-2004. I felt terrible for the workers who could not organize to protect themselves. [https://t.co/BRWtNRO9Vj](https://t.co/BRWtNRO9Vj)
-> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256669646100533250?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：我2002年到2004年住在上海時，就看到過這種事情。這些工人無法組織起來保護自己，我為他們感到難過。
-
-free zhu：在尼日利亞的中國公司欠中國員工工資，雇用了壹些當地人毆打中國工人，而且讓當地人拿槍威脅中國員工…
-
-> “U.S. officials believe the Chinese government misled the rest of the world about the contagiousness of COVID-19, while taking action to collect medical supplies needed for its own battle against the virus, ABC News reported Saturday.” [https://t.co/R7oy3F91gP](https://t.co/R7oy3F91gP)
-> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256692670673674246?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“周六，ABC新聞報道，美國官員認為，中國政府在冠狀病毒傳染性問題上誤導了世界，卻同時采取行動為其自己抗疫搜集醫療物資。”
-
-23ABC新聞：美國認為中國可能壹面掩蓋了病毒的嚴重性，壹面大量儲存物資
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202717/07_42.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202723/G1-1.jpg)
 0

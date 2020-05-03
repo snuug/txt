@@ -1,13 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴菲特抛售 所有航空股票
-`2020-05-03 06:29 GM09` [轉載自GNews](https://gnews.org/zh-hant/192703/)
+## FBI曾試圖誘導弗林說謊
+`2020-05-03 12:06 GM31` [轉載自GNews](https://gnews.org/zh-hant/192938/)
 
-作者：多國語言組
+據川普總統和白宮新聞秘書Secretary Kayleigh近日對邁克爾·弗林將軍問題的回應，弗林將軍正在被證明無罪。一份聯邦調查局的手寫筆記，揭示了他們的探員，從一開始就試圖故意誘導弗林撒謊，好讓他被解雇：“我們需要讓他（指弗林）撒謊 … 讓他被解雇掉”。
 
-著名投資家沃倫·巴菲特創建的美國伯克希爾·哈撒韋於2日召開公司年度股東大會。巴菲特因中共病毒感染擴大而認為“世界將改變”，將持有的美國航空股票全部拋售。數次克服危機的“投資之神”相信美國仍有美好未來，開始著手布局準備沒有中共病毒的世界。
+出處：
+[President Trump Meets with the Governor of New Jersey](https://www.youtube.com/watch?v=mnEod7gOYPo)
+[President Trump Delivers Remarks on Protecting America’s Seniors](https://www.youtube.com/watch?v=YIL2JjGuemc&amp;t=2986s)
+[Press Secretary Kayleigh McEnany Holds a Briefing](https://www.youtube.com/watch?v=d1DD1FMnv-I)
 
-來源：https://www.nikkei.com/article/DGXMZO58768990T00C20A5I00000/
+*翻譯：【Michelle】   校對：【Winston Jackson】  字幕：【J4us】*
 
 0
