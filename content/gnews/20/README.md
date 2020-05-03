@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國以後會怎樣對付中共？ “中共病毒疫情，每日熱線”
-`2020-05-02 02:38 GM30` [轉載自GNews](https://gnews.org/zh-hant/191794/)
+## 2020年5月1日CCP冠狀病毒大流行第98集
+`2020-05-02 04:32 GM33` [轉載自GNews](https://gnews.org/zh-hant/191825/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02023425/image0-14.jpg)
+昌碩公司三天內辭退兩萬人，去晚了不退工作押金；陜西40名抗疫醫護突然被裁；俄羅斯總理感染病毒；川普：中共最怕川普連任，希望拜登當選
 
-**GTV鏈接：**[https://gtv.org//?videoid=5eacf126a5a52740f315295c](https://gtv.org//?videoid=5eacf126a5a52740f315295c)
-
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+[https://gtv.org//?videoid=5ead2e66a5a52740f31c1747](https://gtv.org//?videoid=5ead2e66a5a52740f31c1747)
 
 0

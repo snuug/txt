@@ -1,75 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統很可能要用行政指令為TSP緊急煞車
-`2020-05-02 16:25 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/192195/)
+## 5月2日 美國政要推文選譯
+`2020-05-02 20:27 GM65` [轉載自GNews](https://gnews.org/zh-hant/192297/)
 
-【中英對照翻譯】[https://spark.adobe.com/page/Y8BGkylEkhc5S/](https://spark.adobe.com/page/Y8BGkylEkhc5S/)
+> How much is China paying you? [https://t.co/zl7UoEgsHl](https://t.co/zl7UoEgsHl)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 2, 2020](https://twitter.com/MarshaBlackburn/status/1256643789843824645?ref_src=twsrc%5Etfw)
 
-*作者：JAMES ROSEN*
+參議員 Marsha Blackburn：中國給了妳多少錢？
 
-*消息來源：foxillinois.com 2020年4月 30日*
+譚德賽：我是世衛組織成員，我自豪！
 
-*翻譯／引言：TCC*
+> This week [@crampell](https://twitter.com/crampell?ref_src=twsrc%5Etfw) used her [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) column to naively attack comments I made about the potential national-security risk posed by some Chinese nationals studying in the U.S. Today, I responded: [https://t.co/6UpMd0shli](https://t.co/6UpMd0shli)
+> — Tom Cotton (@SenTomCotton) [May 2, 2020](https://twitter.com/SenTomCotton/status/1256610394296238081?ref_src=twsrc%5Etfw)
 
-*校對：Julia Win*
+參議員 Tom Cotton：我就某些中國公民在美國學習給美國帶來潛在國家安全風險壹事發表過評論。本周，Catherine Rampell（《華盛頓郵報》專欄作家，CNN評論員）在她的《華盛頓郵報》專欄裏幼稚地抨擊我的這些評論。今天，我做出回應如下：
 
-**引言：**
+《華盛頓郵報》：觀點｜揭發中國試圖盜取我方機密的做法不是“排外主義”
 
-繼四月十四日，11位退休將領和前官員，給現任參謀長及三軍司令和川普總統的一封聯名信，表示關於養老基金管理機構聯邦退休儲蓄投資委員會（FRTIB），將投資轉到以中共實體為主的公司指數的擔憂時，當委會寫了一篇“[這是一個觀念：讓我們‘酬庸’中共為他所造成的大瘟疫](https://gnews.org/zh-hant/177513/)”，白宮做了反應。
+> America's allies are starting to rally behind President Trump's call to investigate and hold China accountable for the coronavirus pandemic.[https://t.co/yLjmQH5m77](https://t.co/yLjmQH5m77)
+> — newtgingrich (@newtgingrich) [May 2, 2020](https://twitter.com/newtgingrich/status/1256632910804893698?ref_src=twsrc%5Etfw)
 
-**文中指出川普總統很可能要用行政指令為TSP緊急煞車！**
+美國眾議院前議長 金裏奇：美國的盟友開始聯合起來支持川普總統，響應他的對冠狀病毒疫情進行調查並追究中國責任的號召。
 
-## **獨家：白宮將阻止聯邦養老基金擴大在中共國的投資（SBG）**
+《華盛頓觀察家報》：美國盟友向川普靠攏，不顧中國威脅，要求就冠狀病毒進行調查
 
-華盛頓（SBG）-消息人士稱，川普總統已指示高級助手在聯邦養老基金增加投資組合之前迅速控制，在今年晚些時候，將包括那些美國官員認為直接與中共國軍方，與其全球間諜有聯繫的中共控股實體。
+> .⁦[@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw)⁩ and I propose new bill to ban federal workers from using [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) tech [https://t.co/5b895qBOLQ](https://t.co/5b895qBOLQ)
+> — Josh Hawley (@HawleyMO) [May 2, 2020](https://twitter.com/HawleyMO/status/1256638628190736384?ref_src=twsrc%5Etfw)
 
-一位直接與川普總統討論過此事的消息人士稱，他對美國軍人當看到他們的薪水被扣除，來資助中共軍方這種迫在眉睫的前景感到無法相信。消息人士援引川普先生的話說：“我們不能允許這種情況繼續發展。” “這需要停止。”
+參議員 Josh Hawley：我和克魯茲參議員提議新法案，禁止聯邦雇員使用中國科技產品（文章來源：《大紀元》）
 
-[!\[\](https://spark.adobe.com/page/Y8BGkylEkhc5S/images/29b3d4a4-f54d-468b-8bfe-5347673d5df8.jpg?asset_id=7e1b5418-5625-4b0d-97e8-af532cd820d5&amp;img_etag=1605d22eb43f7c614ce05b698467d7fa&amp;size=1024)](https://spark.adobe.com/page/Y8BGkylEkhc5S/images/29b3d4a4-f54d-468b-8bfe-5347673d5df8.jpg?asset_id=7e1b5418-5625-4b0d-97e8-af532cd820d5&amp;img_etag=1605d22eb43f7c614ce05b698467d7fa&amp;size=1024)
+> More evidence for what some of us have been saying for months. 
+> 
+> Communist China tried to cover up and hide the [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world. The consequences have been devastating. Communist China must be held responsible for their deceit. [https://t.co/QdufquCNSB](https://t.co/QdufquCNSB)
+> — Rick Scott (@SenRickScott) [May 2, 2020](https://twitter.com/SenRickScott/status/1256581228691587079?ref_src=twsrc%5Etfw)
 
-[VIDEO: Will the coronavirus mean a reckoning for China?](https://foxillinois.com/news/nation-world/exclusive-white-house-to-block-federal-pension-fund-from-expanding-china-investments?jwsource=cl)
+參議員 Rick Scott：更多證據證實我們幾個月以來壹直說的。中共國試圖掩蓋和掩藏冠狀病毒（真相）。其後果是災難性的。中共國必須對其欺騙行為負責。
 
-白宮資深官員告訴辛克萊，正在緊急進行這項任務，這是因為人們對中共國在處理冠狀病毒方面的不當行為再次感到擔憂，而且還因為養老基金正在採取行動。該基金正式被稱為“節儉儲蓄計劃”(TSP)，控制著7,000億美元的資產，這些資產從聯邦政府的550萬僱員中提取。這些雇員從執行部門官員和國會議員，到武裝部隊和國民警衛隊的成員。
+福克斯新聞：壹份西方國家情報部門卷宗流出，揭露中國如何在冠狀病毒壹事上欺騙世界
 
-TSP的一位女發言人本周承認，那裡的官員已經開始提交必要的文件，以擴大該基金在中共國“新興市場”的投資。
+> Is that illegal now in Hong Kong? [https://t.co/E6ZhjJSSyZ](https://t.co/E6ZhjJSSyZ)
+> — Sari Arho Havrén (@SariArhoHavren) [May 2, 2020](https://twitter.com/SariArhoHavren/status/1256550130968190976?ref_src=twsrc%5Etfw)
 
-一位白宮高級官員說：“總統要求我們的團隊研究選擇方案，以停止將TSP基金投資於中共國股票。”
-[!\[\](https://spark.adobe.com/page/Y8BGkylEkhc5S/images/25aa899b-90f2-4f71-bdab-56bb0f180462.jpg?asset_id=9ece522c-92a8-4eff-b043-ccf1075c00d7&amp;img_etag=84abc7acfb15ee1f687e8a4a59e37197&amp;size=1024)](https://spark.adobe.com/page/Y8BGkylEkhc5S/images/25aa899b-90f2-4f71-bdab-56bb0f180462.jpg?asset_id=9ece522c-92a8-4eff-b043-ccf1075c00d7&amp;img_etag=84abc7acfb15ee1f687e8a4a59e37197&amp;size=1024)國際股指I基金也表現強勁,自3月份以來上漲20.29%,4月份回報率為6.42%
-儘管行政官員不會透露所審查行動的確切性質，但觀察家一致認為，白宮立即採取行動的最可能路線，是川普總統針對這一問題的行政命令-儘管行政官員承認由於TSP是獨立機構管理，這樣的命令可能無法承受向法院提出質疑。
+斯伯丁將軍 轉推：
 
-眾議員邁克·沃爾茨（佛羅里達州眾議員）是第一位＂綠扁帽＂（美國陸軍特種部隊），也是國民警衛隊出身的國會議員，在本週提出了一項立法，禁止TSP投資於公司，未接受公共公司會計監督委員會審核的國外市場。這（公共公司會計監督委員會）是由國會創建的私營部門非營利組織，旨在幫助規範上市公司的會計操作。參議院也採取了類似的措施。
+Sari Arho Havrén：如今，這在香港是違法的嗎？
 
-這週三，沃爾茨對辛克萊說：“我正在等行政命令。” “我將把它交給白宮，來按照確切的策略進行工作，但是他們理解緊迫性……這需要在未來幾週內實現。”
+Studio Incendo：香港警察在欺負壹個手持美國國旗的人。不知他最後是否被捕。
 
-養老基金管理機構，聯邦退休儲蓄投資委員會（FRTIB），於11月13日發布了一項裁決，TSP決定將其轉移到其他中共國投資市場。根據該裁定，TSP的國際投資工具或“ I”基金（價值約500億美元）會將其用作基準的國外市場指數，從MSCI Europe，Australasia和Far East Index轉換為MSCI All Country World Ex-美國可投資市場指數。
+> This is what was happening in Shanghai when I lived there 2002-2004. I felt terrible for the workers who could not organize to protect themselves. [https://t.co/BRWtNRO9Vj](https://t.co/BRWtNRO9Vj)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256669646100533250?ref_src=twsrc%5Etfw)
 
-沃爾茲說：“這實際上將為中共國證券交易所帶來數百億美元的收入，並幫助那些直接參與中共國防工業和間諜活動的公司。”
+斯伯丁將軍：我2002年到2004年住在上海時，就看到過這種事情。這些工人無法組織起來保護自己，我為他們感到難過。
 
-[VIDEO: What the president’s halt of funding to WHO will mean for the battle against the coronavirus — and for China](https://twitter.com/JamesRosenTV/status/1250511300746149890)
+free zhu：在尼日利亞的中國公司欠中國員工工資，雇用了壹些當地人毆打中國工人，而且讓當地人拿槍威脅中國員工…
 
-FRTIB的所有五名成員，即節儉儲蓄計劃投資策略的個人，均由奧巴馬總統任命。每位成員的任期，均在2015年至2018年之間失效。但是，根據現行法律，董事會成員可以任期屆滿，直到總統提名並由參議院確認其繼任者為止。川普政府從未提交過任何關於FRTIB成員資格的提名-消息人士稱是人員配置失誤，政府在執行行政命令發布後的某個時間，可能會採取補救措施。
+> “U.S. officials believe the Chinese government misled the rest of the world about the contagiousness of COVID-19, while taking action to collect medical supplies needed for its own battle against the virus, ABC News reported Saturday.” [https://t.co/R7oy3F91gP](https://t.co/R7oy3F91gP)
+> — General Spalding (@robert\_spalding) [May 2, 2020](https://twitter.com/robert_spalding/status/1256692670673674246?ref_src=twsrc%5Etfw)
 
-FRTIB主席邁克爾·肯尼迪（Michael Kennedy），　也是一位亞特蘭大的玉米／渡輪國際公司（一個攬才中心）的總裁，拒絕接受辛克萊的報導采訪。在一份聲明中，肯尼迪為TSP擴大“ I”基金投資來包括更多中共國股市產品做辯護。肯尼迪說：“董事會的主要重點是提供選擇方案，使我們的參與者能夠儲蓄以確保退休。” “我和我的其他董事會成員都是受託人，在法律上有義務’僅為[TSP]參與者和受益人的利益行事。”
+斯伯丁將軍：“周六，ABC新聞報道，美國官員認為，中國政府在冠狀病毒傳染性問題上誤導了世界，卻同時采取行動為其自己抗疫搜集醫療物資。”
 
-他爭辯說，直到FRTIB在11月決定改變TSP的外國投資策略之前，該國的聯邦僱員和軍方人員沒有與平民退休基金一起享有“公平競爭環境”。
-
-肯尼迪的聲明說：“所有十家最大的美國上市公司，十家頂級聯邦承包商，十大公共（州僱員）計劃，以及六家最大目標日期基金提供者中的全部六家，都可以進入新興市場。” 。
-
-肯尼迪認為，如果聯邦政府擔心聯邦僱員的退休金，可能會濫用於對任務敏感的外國實體的投資，美國官員可以嘗試通過財政部的外國資產控制辦公室（OFAC）來制止此類投資。肯尼迪總結說：“如果OFAC禁止某個國家或公司，它將從指數中刪除。”
-
-沃爾茲說：“我是一個從早到晚都在崇尚自由市場，支持增長的人。但是，這不是以犧牲國家安全為代價的。” “我們最不應該有的事是我們的軍事人員，他們在前線，從薪水中扣除一部份來執行401k退休金計劃，卻被用來為他們的對手提供資金。我的意思是，這真是-令人難以置信。”
-
-FRTIB的女發言人金·韋弗（Kim Weaver）週四表示，向更廣泛的外國指數的轉換已經在進行中，可能需要幾個月的時間才能完成，但該機構預計該轉換將在年底之前完成。
-
-韋弗在接受采訪時說：“我們正在往［更廣泛，全球性的（美國除外）] MSCI ACWI開立託管賬戶，但不在[更有限] MSCI EAFE [指數]。” 韋弗在星期四發送給辛克萊的電子郵件。 “有許多因素在起作用，特別是流動性以促進交易。”她補充說：“每個國家處理文書工作的要求和時間差異很大，因此我沒有具體日期向您提供過渡開始或結束的時間。”
-
-國會和白宮努力限制TSP的投資擴張之際，該機構正準備頒布另一項規則變更：到10月份，聯邦僱員向養老基金提供的自動薪金供款-聯邦政府通常會與之匹配-將從3％增加到5％。
-
-[原文鏈接](https://foxillinois.com/news/nation-world/exclusive-white-house-to-block-federal-pension-fund-from-expanding-china-investments)
-
-#### 編輯：【喜馬拉雅戰鷹團】
-
-
-
+23ABC新聞：美國認為中國可能壹面掩蓋了病毒的嚴重性，壹面大量儲存物資
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202717/07_42.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/02202723/G1-1.jpg)
 0
