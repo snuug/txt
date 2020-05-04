@@ -12,6 +12,10 @@
 
 ## 頁面 9/26 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [26](/content/README-26.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：8月18日文贵吃饱了直播](/content/2019/08/20190822-8029195555016463956.md)
+
+[2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/2019/08/20190819-5676820155081817041.md)
+
 [文字版：郭文貴先生8月16日文貴直播](/content/2019/08/20190819-2341336785643764547.md)
 
 [文字版：郭文貴先生2019年8月15日報平安直播](/content/2019/08/20190819-7582253714688026419.md)
@@ -57,10 +61,6 @@
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
 
 [文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
-
-[文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
-
-[文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
 
 
 ## 頁面 9/26 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [26](/content/README-26.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

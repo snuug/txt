@@ -12,6 +12,10 @@
 
 ## 頁面 20/26 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
+
+[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
+
 [文字版郭友访谈 | 郭先生与小蚂蚁亲密接触（2018年3月31日）](/content/2018/04/20180418-5802151698966349959.md)
 
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/2018/04/20180418-2853950060193549328.md)
@@ -57,10 +61,6 @@
 [文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/content/2018/04/20180418-456944924800011468.md)
 
 [文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/2018/04/20180418-9206841940282105316.md)
-
-[文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
-
-[文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
 
 
 ## 頁面 20/26 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

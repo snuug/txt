@@ -12,6 +12,10 @@
 
 ## 頁面 4/26 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [26](/content/README-26.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/2020/01/20200119-3958906328707892329.md)
+
+[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/content/2020/01/20200117-3671117697820424397.md)
+
 [文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/content/2020/01/20200117-6409722284040678861.md)
 
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/content/2020/01/20200117-6983690269092492510.md)
@@ -57,10 +61,6 @@
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/content/2019/12/20191228-6154119938253081684.md)
 
 [文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/content/2019/12/20191224-7733122154135213265.md)
-
-[ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
-
-[文字版：2019年12月8号文贵报平安直播](/content/2019/12/20191220-6902125038601635282.md)
 
 
 ## 頁面 4/26 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [26](/content/README-26.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
