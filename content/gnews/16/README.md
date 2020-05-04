@@ -1,19 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】30/04/2020 CCP病毒每日疫情直播簡報
-`2020-05-03 20:18 GM10` [轉載自GNews](https://gnews.org/zh-hant/193220/)
+## BBC曝光中共通過社交媒體發布假信息，詆毀郭文貴先生及爆料革命
+`2020-05-03 22:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/193360/)
 
-[English\_0430\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201735/English_0430_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201735/English_0430_CCP_Virus_Updates-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03215701/Picture-1-36.png)
+郭文貴先生髮起的“爆料革命”對中共冠狀病毒真相的及時揭露讓美國和全世界人民避免了更大的災難。
 
-[French\_0430\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201739/French_0430_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201739/French_0430_CCP_Virus_-_Copie-1.pdf)
+至今為止這個疫情對人類傷害的深度和廣度前所未有，據約翰霍普金斯大學網站的數據，截至美東時間5月1日下午6時，全球累計確診中共冠狀病毒病例333.44萬例，累計死亡23.79萬例。其中，美國累計確診逼近110萬例，達1,098,565例，累計死亡64,577例。
 
-[German\_0430\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201743/German_0430_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201743/German_0430_CCP_Virus_Updates-1.pdf)
+與此同時，針對郭文貴先生和他發起的“爆料革命”的虛假宣傳也被揭露。這些虛假造勢是通過Twitter和Facebook發起的，利用一系列虛假賬戶、機器人賬戶在網絡上針對在美國的郭文貴先生展開攻擊和詆毀行為。
 
-[Japanese0430\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201747/Japanese0430_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201747/Japanese0430_CCP_Virus_Updates-1.pdf)
+英國廣播公司（BBC）開源調查員本傑明·斯特里克（Benjamin Strick）發現了很多虛假帳戶，裡面貼滿了批評郭先生的圖像和文字。然後，大型的機器人賬號在社交媒體上會使用#GuoWengui和 #郭文貴標籤寫推文，並對帖子進行評論，使其變得流行起來。
+ 
+這些機器人賬戶使用了偽造的個人資料圖片，甚至許多是在同一天創建的，唯一目的就是要擴大造勢的影響範圍。例如在4月27日至29日之間，Twitter上創建了200多個新帳戶，專門在媒體上傳播各種批評郭先生及對中共國應對武漢冠狀病毒的觀點和疫情死亡人數的看法。
 
-[Russian\_0430\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201756/Russian_0430_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201756/Russian_0430_CCP_Virus_Updates-1.pdf)
+這不是第一次針對郭先生髮起的運動。澳大利亞戰略政策研究所的研究認為，自2017年以來，郭先生一直是中共主導的虛假信息宣傳活動的攻擊目標。
 
-[Spanish0430\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201808/Spanish0430_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03201808/Spanish0430_CCP_Virus_Updates-1.pdf)
+最近的發現還顯示，推特出現了大量多語種賬戶，這些賬戶偽裝成俄羅斯人，並使用偽造的個人資料照片。這些賬戶似乎是自動生成的，帶風向帶節奏地傳播許多親中共的議題和其它話題。推特現在已暫停了這些賬戶。
+
+郭先生5月3號在G-TV發蓋文：“這BBC寫出這樣的文章看來是要立功贖罪改過自新了。共產黨這幾年的醜陋的造謠抹黑文貴，就是對文貴和爆料革命的最大的逆增上緣……真相逐漸地揭開共產黨的滅亡前……一切的過去的抹黑都成了我們的正資產！一切都已經開始！”
+
+[原文鏈接](https://www.bbc.com/news/52487960)
+
+翻譯報導：匿名
 
 0

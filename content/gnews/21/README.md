@@ -1,28 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 龐培奧說大量證據表明冠狀病毒來自武漢實驗室
-`2020-05-03 15:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/193045/)
+## 【世界多語言圖文】01/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-03 20:31 GM10` [轉載自GNews](https://gnews.org/zh-hant/193241/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03145650/%E5%BA%9E%E5%9F%B9%E5%A5%A5%E8%AF%B4%E5%A4%A7%E9%87%8F%E8%AF%81%E6%8D%AE%E8%A1%A8%E6%98%8E%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92%E6%9D%A5%E8%87%AA%E6%AD%A6%E6%B1%89%E5%AE%9E%E9%AA%8C%E5%AE%A4.jpg)
-彭博社5月3日報道
-美國國務卿龐培奧（Michael Pompeo）說，“大量證據”表明，這種新型冠狀病毒的爆發始於中共國武漢的一家實驗室，但並未提供任何佐證。
+**戰友之家圖文摘要組及小語種組**
 
-龐培奧在美國廣播公司的&lt;本周&gt;採訪節目上說：“我可以告訴你，有大量證據表明病毒來自武漢的實驗室。這不是第一次世界因為中共實驗室失職而遭受病毒侵害了”
+[English\_0501\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202250/English_0501_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202250/English_0501_CCP_Virus_Updates.pdf)
 
-該病毒的起源已成為疫情大流行的激烈爭執焦點，加劇了中美之間的緊張關係。 眼看美國大流行死亡人數超過66,000人，川普總統已加大努力將責任歸咎於中共。
+[French\_0501\_CCP\_Virus\_Updates\_-\_Kopie\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202924/French_0501_CCP_Virus_Updates_-_Kopie_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202924/French_0501_CCP_Virus_Updates_-_Kopie_1.pdf)
 
-龐培奧說：“我已經看到情報界說了什麼。我沒有理由懷疑他們錯了。” 龐培奧拒絕透露中共方面是否有意釋放這種病毒。 他說：“我對此無話可說。”
+[German\_0501\_CCP\_Virus\_Updates\_-\_Kopie\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202936/German_0501_CCP_Virus_Updates_-_Kopie_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202936/German_0501_CCP_Virus_Updates_-_Kopie_1.pdf)
 
-川普對北京的批評越發尖銳，要求就該病毒的起源做出徹查。總統周五在推特上說，某些美國電視網絡是“中國的木偶”，而他的超級政治行動委員會則發布了反華廣告。 川普5月1號發推原文：康卡斯特集團公司的（@NBCNews）和假新聞媒體@CNN正在竭力推崇有關中國的種種成就。為了在中國做生意，他們成為了中國的提線木偶。 他們利用美國的傳媒來幫助中國。 你們是人民的敵人！
+[Japanese\_0501\_CCP\_Virus\_Updates\_-\_Kopie\_2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202947/Japanese_0501_CCP_Virus_Updates_-_Kopie_2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202947/Japanese_0501_CCP_Virus_Updates_-_Kopie_2.pdf)
 
-龐培奧在美國廣播公司（ABC）上說：“中國種種舉動就像專制政權所為，試圖掩蓋、掩藏和混淆真相。他們還把世界衛生組織作為工具同樣的幫他們掩蓋混淆真相。”
+[Korean\_0501\_CCP\_Virus\_Updates\_-\_Kopie\_3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202958/Korean_0501_CCP_Virus_Updates_-_Kopie_3.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03202958/Korean_0501_CCP_Virus_Updates_-_Kopie_3.pdf)
 
-龐培奧說中國仍在繼續阻止世界衛生組織的衛生專家以及美國科學家獲取研究所需的病毒樣本。
+[Russian\_0501\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03203007/Russian_0501_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03203007/Russian_0501_CCP_Virus_Updates_1-1.pdf)
 
-龐培奧說：“這是一個持續的威脅，是一個進行中的疫情大流行。中國共產黨繼續阻止西方世界、世界上最好的科學家進入中國以便查找真相。”
-
-[原文鏈接](https://www.bloomberg.com/news/articles/2020-05-03/pompeo-says-enormous-evidence-links-virus-to-wuhan-laboratory)
-翻譯：佚名
+[Spanish\_0501\_CCP\_Virus\_Updates\_-\_Kopie\_4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03203016/Spanish_0501_CCP_Virus_Updates_-_Kopie_4.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03203016/Spanish_0501_CCP_Virus_Updates_-_Kopie_4.pdf)
 
 0

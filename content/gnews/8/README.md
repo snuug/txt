@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月3日中共病毒疫情要聞快報
-`2020-05-03 23:29 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/193441/)
+## 2020年5月3日CCP冠狀病毒大流行第100集
+`2020-05-04 00:07 GM33` [轉載自GNews](https://gnews.org/zh-hant/193506/)
 
-五眼聯盟認為中共掩蓋疫情；美參議員克魯茲發起議案制裁中共高官；中共繼續在民間宣傳“美國肺炎”；疫情期間中共打壓宗教自由。
+病毒依然肆虐，CCP卻要孩子們復課；CCP網上調查–如果戰爭開始了，妳願意為國捐軀嗎？美國務卿彭培奧：病毒來源所有證據已充分
 
-
-
-製作：【上天造 滅疫組】
+[https://gtv.org//?videoid=5eaf8ffa0abe341b38c21579](https://gtv.org//?videoid=5eaf8ffa0abe341b38c21579)
 
 0
