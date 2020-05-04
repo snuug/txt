@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】02/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-03 20:42 GM10` [轉載自GNews](https://gnews.org/zh-hant/193317/)
+## 十權一統：看中共的極權統治
+`2020-05-03 23:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/193473/)
 
-**战友之家图文摘要组及小语种组**
+**作者：三票先生**
 
-[English\_0502\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204016/English_0502_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204016/English_0502_CCP_Virus_Updates-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233340/image0-34.jpg)
 
-[French\_0502\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204027/French_0502_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204027/French_0502_CCP_Virus_-_Copie-1.pdf)
+[**十權一統：看中共的極權統治**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233914/%E5%8D%81%E6%AC%8A%E4%B8%80%E7%B5%B1%EF%BC%9A%E7%9C%8B%E4%B8%AD%E5%85%B1%E7%9A%84%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233914/%E5%8D%81%E6%AC%8A%E4%B8%80%E7%B5%B1%EF%BC%9A%E7%9C%8B%E4%B8%AD%E5%85%B1%E7%9A%84%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB.pdf)
 
-[German\_0502\_\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204036/German_0502__CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204036/German_0502__CCP_Virus_Updates_-_Kopie-1.pdf)
+**請點擊下載按鈕，下載文檔觀看！**
 
-[Japanese0502\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204044/Japanese0502_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204044/Japanese0502_CCP_Virus_Updates-1.pdf)
-
-[Russian\_0502\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204106/Russian_0502_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204106/Russian_0502_CCP_Virus_-_Copie-1.pdf)
-
-[Spanish0502\_CCP\_Virus\_Updates\_ES-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204117/Spanish0502_CCP_Virus_Updates_ES-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204117/Spanish0502_CCP_Virus_Updates_ES-1.pdf)
+（文章內容僅代表作者觀點）
 
 0

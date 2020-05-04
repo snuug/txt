@@ -1,33 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 支持香港反修例示威運動的“黃色經濟圈” 興興向隆
-`2020-05-03 14:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/193038/)
+## 【世界多語言圖文】02/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-03 20:42 GM10` [轉載自GNews](https://gnews.org/zh-hant/193317/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03144956/%E6%94%AF%E6%8C%81%E9%A6%99%E6%B8%AF%E5%8F%8D%E4%BF%AE%E4%BE%8B%E7%A4%BA%E5%A8%81%E8%BF%90%E5%8A%A8%E7%9A%84%E2%80%9C%E9%BB%84%E8%89%B2%E7%BB%8F%E6%B5%8E%E5%9C%88%E2%80%9D.jpg)
-明報在2020年元旦遊行中進行的調查，93.6%受訪者表示會參與黃色經濟圈
+**战友之家图文摘要组及小语种组**
 
-據周五香港（路透社）署名為Jessie Pang報道：眾多反香港政府示威者公開在-支持民主運動的商鋪-外面排隊，表示對受冠狀病毒危機和數月示威遊行雙重影響的-屬於“黃色經濟圈”-的餐館和咖啡館等支持。此舉為五月“黃色”促銷活動：在傳統上中國大陸居民蜂擁而至香港購物的同一時期舉辦的 目的是為支持民主運動的黃色零售商提供經濟上的支援。
+[English\_0502\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204016/English_0502_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204016/English_0502_CCP_Virus_Updates-1.pdf)
 
-黃色經濟圈的涵義
-• 【黃色經濟圈（英語：Yellow Economic Circle[1]），是指香港反修例運動支持者所構建的“經濟圈”，以政治取態作區分概念[，包括在消費時優先光顧與他們抱有相似的政見及理念的食肆或商家（俗稱“黃店”，再次註：此處不是指色情場所）
-• 同時不支持反修例運動、或以支持香港警察作賣點的食肆或商家（俗稱“藍店”）。有中共背景的商家機構（俗稱“紅店”）。
-• 此舉希望藉此獲得資金支持運動，包括為運動支持者創造職位，進行專業培訓和職業配對等。同時打破親共財團壟斷。亦有評論指經濟圈目的或許是在2020年香港立法會選舉中鞏固飲食界和零售界民主派的票源。根據明報在2020年元旦遊行中進行的調查，93.6%受訪者表示會參與黃色經濟圈，或稱黃色企業，形式包括光顧“黃店”或抵制“藍店”——以上摘自維基百科】
-示威者回饋黃色經濟圈企業的支持
-撰稿人指出，香港是租金水平居世界前列的城市，小生意首當其衝地受到經濟下滑的衝擊，而民主運動人士們回饋支持反修例的黃色生意店，為這些勇敢的商家提供了生存下去的機會。讓人欣慰的是：名為“香港人的5.1黃金周”的在線運動呼籲, 人們在“五一勞動節”長周末光顧黃色企業，因此許多餐館和咖啡館門前排起了長龍, 一直延伸到好幾條街上。
-報道引用現年25歲的教育界人士Miki Chan說：“本周是我們進一步加強黃色經濟圈的巨大推動力。即使鎮壓越來越加劇，我們也必須保持抵抗。”還有採訪了25歲的瑪麗·馬（Mary Ma）在Mainichi的餐廳用餐，那裡貼滿了對運動的支持的彩色便條紙，她認為這是保持支持的好方法。她補充說，“由於大流行，我們可能無法每天出門抗議，但在我們的日常生活中支持黃色商店是每個人都可以做的。這是一種改變我們日常生活的方式.
-港警驅散人群
-活動人士說，他們為捍衛保證香港自1997年回歸中國以來的廣泛自由的“一國兩制”, 而針對破壞這種管理方式行為進行鬥爭。 中央政府拒不接受對北京一步步侵蝕香港自由的批評。星期五晚些時候，防暴警察使用胡椒噴霧驅散了聚集在購物中心進行“一起抗議”的大約200名示威者。 香港正在逐步放鬆封城措施，一些公務員將從星期一開始工作。
-五月“黃色”促銷活動組織者和支持民運的商家同心協力
-組織者說，包括零售商，飯店和婚禮商店在內的黃色經濟圈中2300多家企業參加了此次行動，並向民主抗議者提供了折扣。在去年時有發生的暴力抗議中產生的一場經濟運動中，移動應用程序和商店標語曾經將消費者引導到了全市的黃色企業。 與“藍色”企業或被認為是親政府的企業形成對比的“黃色經濟圈”已被視為人們通過和平手段支持抗議運動的一種方式.
-旺角工人階級繁華地帶的Mainichi餐廳，自從冠狀病毒爆發以來，銷售額下降了70％，但由於黃圈促銷，本周生意興隆。Mainichi的老闆Chong今年35歲， 他在附近的黃色商店組成了一個名為“小旺角聯盟”的組織，他為顧客提供了一張黃色的折扣卡，可以在會員的商店購物。Chong 說: “我已經看到很多年輕人出來為香港的未來做出犧牲。我的餐廳也是社會的一部分，我想利用它來滿足學生的需求。他們的要求也是我的要求”。現年21歲的卡永（Ka Yung）是一家名為Freeland的精品店的共同所有人，同時也是該聯盟的成員。她表示，她希望通過與其他黃色商店結成聯盟來加強這一圈子。“沒有人可以自己賺所有的錢。我寧願讓具有相似政治觀點的商店分享市場，也不願讓藍色商店賺錢。 ”
+[French\_0502\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204027/French_0502_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204027/French_0502_CCP_Virus_-_Copie-1.pdf)
 
-翻譯報道：佚名
+[German\_0502\_\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204036/German_0502__CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204036/German_0502__CCP_Virus_Updates_-_Kopie-1.pdf)
 
-[原文連接1](https://www.reuters.com/article/us-hongkong-protests-mayday-idUSKBN22D577)
-[原文連接2](https://zh.wikipedia.org/wiki/%E9%BB%83%E8%89%B2%E7%B6%93%E6%BF%9F%E5%9C%88)
-[原文連接3](https://www.thestandnews.com/politics/%E9%BB%83%E8%89%B2%E7%B6%93%E6%BF%9F%E5%9C%88%E4%B8%80%E9%BB%9E%E4%B9%9F%E4%B8%8D%E7%B6%93%E6%BF%9F%E4%BD%86%E6%9C%89%E6%94%BF%E6%B2%BB%E5%8A%9F%E6%95%88-%E6%96%BD%E6%B0%B8%E9%9D%92/)
+[Japanese0502\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204044/Japanese0502_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204044/Japanese0502_CCP_Virus_Updates-1.pdf)
 
+[Russian\_0502\_CCP\_Virus\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204106/Russian_0502_CCP_Virus_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204106/Russian_0502_CCP_Virus_-_Copie-1.pdf)
 
+[Spanish0502\_CCP\_Virus\_Updates\_ES-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204117/Spanish0502_CCP_Virus_Updates_ES-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03204117/Spanish0502_CCP_Virus_Updates_ES-1.pdf)
 
 0
