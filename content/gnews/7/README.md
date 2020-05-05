@@ -1,21 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 八角棒槌：來自林肯紀念堂滅共的戰歌
-`2020-05-04 20:42 GM09` [轉載自GNews](https://gnews.org/zh-hant/194067/)
+## 5月4日 美國政要推文選譯
+`2020-05-04 23:14 GM65` [轉載自GNews](https://gnews.org/zh-hant/194181/)
 
-路德的直播還沒結束，就收到戰友的信息，就川普總統在林肯紀念堂正式宣布病毒來源中共實驗室的消息，建議我寫一則快評。和路德先生一樣，聽到這個好消息時，我也熱淚盈眶，隨即在客廳又叫又跳，導致躺在沙發上正在看劇的老婆驚掉了下巴，看著我如此瘋癲的舉動，以為她老公吃錯了什麼藥。說真的，等這一天等得太久了，等終於等來時怎能不激動？可激動歸激動，過後必須得強迫自己平復下來，否則根本沒辦法動筆。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04204113/Screen-Shot-2020-05-05-at-9.38.50-AM.png)
-聽完路德的節目，所有內容在腦海裡快速回顧一遍後，我認為有三個關鍵詞值得注意。林肯紀念堂，為何川普總統選在這裡宣布，路安墨精詳的分析令我受益良多。想必很多人都看過《西部世界》，有人覺得中共再不滅，整個中共國將淪為片子的翻版。我很贊同這一觀點背後的危機意識，但針對觀點本身，我的看法不僅相反，甚至認為那虛構世界的驚悚度，撐死只抵得上中共國的毛皮而已。
+> MSDNC and FAKE NEWS CNN are going wild trying to protect China!
+> — Donald J. Trump (@realDonaldTrump) [May 4, 2020](https://twitter.com/realDonaldTrump/status/1257438733240094726?ref_src=twsrc%5Etfw)
 
-十四億奴隸遍布華夏大地，而在這片多災多難的土地上，不但看不到反叛，反倒處處都瀰漫著荒誕的愛。對比當下共產奴隸的現狀，一百多年前美國，梅森-迪克遜線以南的狀況顯然要好得多。當年維繫主奴間的關係雖然也曾有愛，可起碼不至於今天這般荒誕。爆料革命以前，在基辛格主義的模型之下，全球都沉浸在伊壁鳩魯式的瘋狂享樂中。為了給少數人提供更為優質的享樂服務，十四億人因“愛”正任勞任怨著。奇怪的是明明感到活著的痛苦，卻還一味感激著“上帝”給他們的分工。然而，隨著爆料革命的不斷壯大和深入，今天，川普總統站在了林肯紀念堂，怀揣守護美國公民的初衷，準備循著先賢的足跡，為解放共產奴隸而戰！
+川普總統：MSNBC新聞頻道和“假新聞”CNN現在撒了歡兒地要維護中國。
 
-作為反烏托邦的變種，賽博朋克題材正風靡全球。正如王小波先生所說，六七十年代，中國處於非性的時代，在非性的時代裡，性才會成為生活的主題。我覺得這個道理可視作為一條規律，能很好的解釋賽博朋克火爆的原因：在缺乏反叛精神的時代裡，反叛便成了生活的主題。如今朋克精神幾乎成了奢侈品，而這份缺失恰恰就是自我身份認同的表現。由於受中共集權的長期壓制，人們一度喪失了自我，就算被重新賦予自由，相信要掙脫行屍走肉，找回認同仍得靠每個人自己。
+> Mr. [@jimcramer](https://twitter.com/jimcramer?ref_src=twsrc%5Etfw) , the US Secretary of State has seen all classified information (gathered by the best intelligence network in the world) on the origin of the virus, the lies, the coverup, the hoarding, and the disinformation campaign of the chinese communists. 1/2
+> — 😷Kyle Bass😷 (@Jkylebass) [May 4, 2020](https://twitter.com/Jkylebass/status/1257301301693763586?ref_src=twsrc%5Etfw)
 
-路德提到的第二個關鍵詞是“無名氏”。有關無名氏的話題，我剛寫過一篇文章，標題叫《[無面者一出，中共瞬間斃命》](https://gnews.org/zh-hans/191637/)，強調了在滅共過程中其不可取代的作用。而這裡我想說的是，無名氏並非身份，而是道，准确说，是一種超越了自我，上升至“毂所以能统三十辐者，无也”的精神境界。在自我認知的層面上，無名氏屬於從有到無的結果，也就是說，人在連自己都不知道是誰時，無名氏也就無從談起。更何況選擇走上這條苦修之路，多多少少存在著因緣際會的成分，而長久處於非人困境的我們，在自由之門開啟之際，每個人是否該考慮考慮自己，與其沉湎於空羨，不如先弄清“我是誰”？
+卡爾·巴斯先生 連推：吉姆·克萊默先生（Jim Cramer），美國國務卿已經看過了所有有關中共病毒來源、謊言、掩蓋、囤貨和虛假宣傳的機密信息（由世界上最優秀的情報網收集）。認為蓬佩奧國務卿“想針對中國人立案”是不負責任的說法。我們國務卿的職責是弄清事件的真相。如果中共明知故犯在封鎖本地後，卻繼續讓國際航班從武漢起飛，那麽全世界就應該起訴他們。
 
-在我看來，最弄不清自己是誰的當屬中共，因此你就好理解他們為何如此狂妄至極。而第三個關鍵詞——終極制裁——便是對中共最好的回饋。何為終極制裁，路德在節目裡已有闡釋，只要一想起蘇萊曼尼那灘烤肉，包括中共自己在內，誰都會很清楚“斬首行動”意味著什麼。
+> China unleashed this plague in the first place, but don’t expect the media to hold it accountable. It’s too busy repackaging CCP propaganda.[https://t.co/zL9DbJLBQe](https://t.co/zL9DbJLBQe)
+> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257437610533949449?ref_src=twsrc%5Etfw)
 
-來自林肯紀念堂滅共的戰歌已然唱響。今天，我在第一條蓋特裡寫道：一顆老妖樹拼命張牙舞爪，實則正在不斷皴裂、分解，那是中共必然的宿命；而爆料革命彷若一昂揚的勇士，又如多姿的少女，不斷吸引著眾戰友鳳棲梧，蝶戀花般紛紛降至。中共已然時日無多，在這最為動魄驚心的時刻，希望我們都能挺住，以便在這最為糟糕的時代裡，共同歡慶最偉大的勝利！
+參議員Tom Cotton：中國先放出這場瘟疫，然後又不希望媒體追究它的責任。重新打造大外宣真是太忙了。
 
+Politico網：“不是世界老大”：中國社交媒體在美國堆積如山
+
+> The United States must prepare for competition with Communist China as fierce as our contest with the Soviet Union. We’ll need strategic investment and private enterprise to win, just as we did in the past. My essay for [@AmerCompass](https://twitter.com/AmerCompass?ref_src=twsrc%5Etfw):[https://t.co/3LIS0Bts3X](https://t.co/3LIS0Bts3X)
+> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257456184346509319?ref_src=twsrc%5Etfw)
+
+參議員 Tom Cotton：美國必須準備好跟中共進行壹場前蘇聯式的激烈的較量。像過去壹樣，要贏得競爭，我們需要有戰略投資和私營企業。我在美國指南針網站（American Compass）發表的論文：《前言：論安全性》
+
+
+
+參議員 Tom Cotton：中國人民是此次疫情中和過去七十多年，中共治下首當其沖，最悲慘的受害者。溫馨提示：今晚早些時候我接受了Martha MacCallum的采訪：
+
+> US intel officials have confirmed the CCP “intentionally concealed the severity” of [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world while stockpiling their own medical supplies. The people responsible for this deadly coverup must be held accountable. I’m introducing legislation to do just that. [https://t.co/bmCSvqPznG](https://t.co/bmCSvqPznG)
+> — Senator Ted Cruz (@SenTedCruz) [May 4, 2020](https://twitter.com/SenTedCruz/status/1257424676013441031?ref_src=twsrc%5Etfw)
+
+參議員 Ted Cruz：美國情報部門官員已經確認中共“故意向世界隱瞞冠狀病毒的嚴重性”，卻同時為自己囤積了醫療物資。必須追究此次致命掩蓋行為相關人員的責任。我提出法律議案就是為了這壹點。
+
+> Trump at Fox News town hall suggests China’s leaders deliberately allowed global travel so China would not suffer alone from virus. I agree. We’re talking here of a crime against humanity by CCP
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257115398975229953?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：川普在福克斯新聞市政廳采訪中表示，中國領導人故意放任國際航班，這樣中國就不會獨自遭受病毒的折磨。我們這裏說的是中共的反人類罪。
+
+> Big bot and troll night on Twitter. Bring it on. [pic.twitter.com/erdulFPtrF](https://t.co/erdulFPtrF)
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257133556662493184?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：晚間推特上大量機器人刷屏和網絡噴子。放馬過來。
+
+> My latest: Trump says he believes CCP could have deliberately allowed coronavirus-infected travelers to leave China in bid to spread disease and weaken US [https://t.co/Vg285e0tpW](https://t.co/Vg285e0tpW)
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257360793487781888?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：我最新發表：川普說他相信中共可能故意讓感染冠狀病毒的遊客離開中國，目的是擴散疾病並削弱美國。
+
+《華盛頓時報》：川普暗示中國故意讓病毒擴散
+
+> Red Storm Rising: [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) and [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) say the U.S. should leave any world organization created by China or create new ones that work with democratic countries. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hohzenmytN](https://t.co/hohzenmytN)
+> — Lou Dobbs (@LouDobbs) [May 4, 2020](https://twitter.com/LouDobbs/status/1257433366539968513?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生 轉推：
+
+Lou Dobbs（福克斯新聞）：紅色風暴更猛烈：章家敦和比爾·格次說，美國應該脫離所有中國發起的國際組織，或成立新的與民主國家合作的組織。
+
+> Earlier I wrote to the SEC about protecting American investors & businesses from the threat of Communist China.
+> 
+> Glad to hear from Chairman Clayton that they'll be holding a roundtable to discuss these issues & address China's complete lack of cooperation. [https://t.co/NPX4wfasEL](https://t.co/NPX4wfasEL)
+> — Rick Scott (@SenRickScott) [May 4, 2020](https://twitter.com/SenRickScott/status/1257421937174892553?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：早先，我致信美國證券交易委員會，提出應該保護美國投資者和企業不受中共國威脅。很高興從委員會主席Clayton處得知，他們將舉行圓桌會議，討論這些議題並解決中國完全缺乏合作的問題。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04231435/07_51.png)
 0

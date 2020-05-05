@@ -1,69 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月4日 美國政要推文選譯
-`2020-05-04 23:14 GM65` [轉載自GNews](https://gnews.org/zh-hant/194181/)
+## 班農戰情室157: 川普總統家族三人感染中共病毒逝世
+`2020-05-05 01:35 GM09` [轉載自GNews](https://gnews.org/zh-hant/194283/)
 
-> MSDNC and FAKE NEWS CNN are going wild trying to protect China!
-> — Donald J. Trump (@realDonaldTrump) [May 4, 2020](https://twitter.com/realDonaldTrump/status/1257438733240094726?ref_src=twsrc%5Etfw)
+總結：雪菜
 
-川普總統：MSNBC新聞頻道和“假新聞”CNN現在撒了歡兒地要維護中國。
+## 班農歸來首先提及國債
 
-> Mr. [@jimcramer](https://twitter.com/jimcramer?ref_src=twsrc%5Etfw) , the US Secretary of State has seen all classified information (gathered by the best intelligence network in the world) on the origin of the virus, the lies, the coverup, the hoarding, and the disinformation campaign of the chinese communists. 1/2
-> — 😷Kyle Bass😷 (@Jkylebass) [May 4, 2020](https://twitter.com/Jkylebass/status/1257301301693763586?ref_src=twsrc%5Etfw)
+在執行特殊任務後，班農先生回到了戰情室，談到的第壹個話題居然是美國持有大量中國國債的事情，相信很多中國人都不知道有這個事情，班農先生解釋道：在1908-1912年間，慈禧太後的清王朝剛剛倒臺後，當時孫中山做爲大總統在中國大陸建政，當時孫中山的民國政府向英國和美國發售了大量的債券，用以在中國啓動基礎建設工程。1938年二戰爆發，中國進入對日抗戰階段，中方就停止了債券的償還。而在中共篡政之後，立即奪取了政府義務，但唯獨對欠下的債券避而不談，之後中英談判，英國的撒切爾夫人則以債券換取了香港。但美國所持有的中國國債，至今還在美國人的手裏，中共政府至今尚未償還。
 
-卡爾·巴斯先生 連推：吉姆·克萊默先生（Jim Cramer），美國國務卿已經看過了所有有關中共病毒來源、謊言、掩蓋、囤貨和虛假宣傳的機密信息（由世界上最優秀的情報網收集）。認為蓬佩奧國務卿“想針對中國人立案”是不負責任的說法。我們國務卿的職責是弄清事件的真相。如果中共明知故犯在封鎖本地後，卻繼續讓國際航班從武漢起飛，那麽全世界就應該起訴他們。
+## 美國各州在執行聯邦政府重啓政策中有不協調
 
-> China unleashed this plague in the first place, but don’t expect the media to hold it accountable. It’s too busy repackaging CCP propaganda.[https://t.co/zL9DbJLBQe](https://t.co/zL9DbJLBQe)
-> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257437610533949449?ref_src=twsrc%5Etfw)
+目前美國絕大多數州還處於管控狀態下，聯邦政府已經啓動重啓計劃，但是在執行過程中各不相同，主要是體現在民主黨所在的州，與共和黨所執政的州之間，重啓的程度和產業各不相同，然而重啓的意義就在於要讓資金流動起來，戰情室呼籲州長能很好地執行白宮的命令，以應對日益增多的失業壓力，受中共病毒所害，預計本月底將有4000萬美國人失業，由此帶來的社會壓力也將會增加。
 
-參議員Tom Cotton：中國先放出這場瘟疫，然後又不希望媒體追究它的責任。重新打造大外宣真是太忙了。
+## 川普總統家族有三人感染中共病毒逝世
 
-Politico網：“不是世界老大”：中國社交媒體在美國堆積如山
+在戰情室談到病毒重創了美國的經濟和造成68000人死亡的情況時，班農補充說道川普總統的3名家族成員因感染中共病毒逝世，並直言家族成員的去世對川普總統打擊很大。
 
-> The United States must prepare for competition with Communist China as fierce as our contest with the Soviet Union. We’ll need strategic investment and private enterprise to win, just as we did in the past. My essay for [@AmerCompass](https://twitter.com/AmerCompass?ref_src=twsrc%5Etfw):[https://t.co/3LIS0Bts3X](https://t.co/3LIS0Bts3X)
-> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257456184346509319?ref_src=twsrc%5Etfw)
+## 川普2020年大選咨詢委員會的成員Boris Epshteyn接受采訪
 
-參議員 Tom Cotton：美國必須準備好跟中共進行壹場前蘇聯式的激烈的較量。像過去壹樣，要贏得競爭，我們需要有戰略投資和私營企業。我在美國指南針網站（American Compass）發表的論文：《前言：論安全性》
+Boris Epshteyn是川普2020年大選咨詢委員會的成員，他在接受戰情室采訪中共提到幾個問題：
+1.川普總統昨天在市政廳的演説非常精彩，清楚地説明了美國當前面臨的挑戰和亟須重啓美國經濟的必要。
+2.當前美國的死亡人數雖然已經超過了6萬人，但是按照人口比例來説，美國的死亡率是極低的，不必因此引起恐慌。
+3.三個月後，可能會有比較有效的藥品會首先投入市場，關於疫苗，大概在今年年底能夠問世。
+4.美國很快會有30個州重新開放，這是振興美國經濟的必要舉措，但是仍需謹慎小心，按部就班地壹點點開放，而不應該采取繼續封閉的模式，那樣對美國和美國人來說都不利。
+5.談到中國威脅的問題時，Boris認爲必須解決中美問題，最好的方案就是徹底解決中共，中共長期對美國進行影響，已經威脅到了美國的健康，而此次的病毒，也有可能是中共這樣集權共產主義另壹個版本的生物切爾諾貝利事件，非但如此，中共甚至繼續隱藏真相，他們不會承認自己的錯誤，並賠償世界各國的損失。
+
+## 班農論及疫苗以及呼籲美國民衆醒來
+
+前衆議員麥克羅根談到中共的強硬態度時指出，中共是擅長僞裝的，他們將真實目的隱藏於華麗的外表之下，而且壓制公衆輿論，當前中共的各種伎倆被壹壹揭開時，中共開始歇斯底裏了。班農呼籲美國民衆醒來，對面中共這樣壹個邪惡的組織，而且告誡美國人不要輕易下相信中共所謂的疫苗，需要認真思考，如果中共拿出了疫苗，那麽在這其中是否隱藏著什麽不可告人的秘密呢？!
 
 
 
-參議員 Tom Cotton：中國人民是此次疫情中和過去七十多年，中共治下首當其沖，最悲慘的受害者。溫馨提示：今晚早些時候我接受了Martha MacCallum的采訪：
-
-> US intel officials have confirmed the CCP “intentionally concealed the severity” of [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world while stockpiling their own medical supplies. The people responsible for this deadly coverup must be held accountable. I’m introducing legislation to do just that. [https://t.co/bmCSvqPznG](https://t.co/bmCSvqPznG)
-> — Senator Ted Cruz (@SenTedCruz) [May 4, 2020](https://twitter.com/SenTedCruz/status/1257424676013441031?ref_src=twsrc%5Etfw)
-
-參議員 Ted Cruz：美國情報部門官員已經確認中共“故意向世界隱瞞冠狀病毒的嚴重性”，卻同時為自己囤積了醫療物資。必須追究此次致命掩蓋行為相關人員的責任。我提出法律議案就是為了這壹點。
-
-> Trump at Fox News town hall suggests China’s leaders deliberately allowed global travel so China would not suffer alone from virus. I agree. We’re talking here of a crime against humanity by CCP
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257115398975229953?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：川普在福克斯新聞市政廳采訪中表示，中國領導人故意放任國際航班，這樣中國就不會獨自遭受病毒的折磨。我們這裏說的是中共的反人類罪。
-
-> Big bot and troll night on Twitter. Bring it on. [pic.twitter.com/erdulFPtrF](https://t.co/erdulFPtrF)
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257133556662493184?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：晚間推特上大量機器人刷屏和網絡噴子。放馬過來。
-
-> My latest: Trump says he believes CCP could have deliberately allowed coronavirus-infected travelers to leave China in bid to spread disease and weaken US [https://t.co/Vg285e0tpW](https://t.co/Vg285e0tpW)
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257360793487781888?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：我最新發表：川普說他相信中共可能故意讓感染冠狀病毒的遊客離開中國，目的是擴散疾病並削弱美國。
-
-《華盛頓時報》：川普暗示中國故意讓病毒擴散
-
-> Red Storm Rising: [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) and [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) say the U.S. should leave any world organization created by China or create new ones that work with democratic countries. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hohzenmytN](https://t.co/hohzenmytN)
-> — Lou Dobbs (@LouDobbs) [May 4, 2020](https://twitter.com/LouDobbs/status/1257433366539968513?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生 轉推：
-
-Lou Dobbs（福克斯新聞）：紅色風暴更猛烈：章家敦和比爾·格次說，美國應該脫離所有中國發起的國際組織，或成立新的與民主國家合作的組織。
-
-> Earlier I wrote to the SEC about protecting American investors & businesses from the threat of Communist China.
-> 
-> Glad to hear from Chairman Clayton that they'll be holding a roundtable to discuss these issues & address China's complete lack of cooperation. [https://t.co/NPX4wfasEL](https://t.co/NPX4wfasEL)
-> — Rick Scott (@SenRickScott) [May 4, 2020](https://twitter.com/SenRickScott/status/1257421937174892553?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：早先，我致信美國證券交易委員會，提出應該保護美國投資者和企業不受中共國威脅。很高興從委員會主席Clayton處得知，他們將舉行圓桌會議，討論這些議題並解決中國完全缺乏合作的問題。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04231435/07_51.png)
-0
+1
