@@ -1,83 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共以複學之名，行謀財害命之實！
-`2020-05-04 13:06 GM30` [轉載自GNews](https://gnews.org/zh-hant/193905/)
+## 5月4日 美國政要推文選譯
+`2020-05-04 23:14 GM65` [轉載自GNews](https://gnews.org/zh-hant/194181/)
 
-**作者： 麓山之蜂**
+> MSDNC and FAKE NEWS CNN are going wild trying to protect China!
+> — Donald J. Trump (@realDonaldTrump) [May 4, 2020](https://twitter.com/realDonaldTrump/status/1257438733240094726?ref_src=twsrc%5Etfw)
 
-中南坑不顧中共冠狀病毒仍在肆掠，在還沒有找到針對中共冠狀病毒治癒的特效藥，沒有研發出能有效預防的疫苗的情況下，中共國的各級政府強行推動學校複學。第一批復學的屬於初三年級、高三年級的畢業生，在陸續複學的過程中，許多地方都爆出學生出現了集體發熱、無症狀確診者。筆者曾著文：[匆忙開學，後果堪憂：貴州一中學209名學生出現發熱症狀](https://gnews.org/zh-hans/154011/)；[開學絡繹不絕，發熱接二連三！](https://gnews.org/zh-hans/173070/)兩篇文章對中共國已公佈的、未公佈的學生集體發熱、無症狀確診者進行瞭解讀。
+川普總統：MSNBC新聞頻道和“假新聞”CNN現在撒了歡兒地要維護中國。
 
-中共國的各級政府不但不吸取教訓，在已經開學的中、小學生中陸續出現了學生集體發熱、被確診為無症狀感染者等情況下。中共國的各級政府不但沒有停止如此荒繆、滅絕人性的惡政。還變本加厲，各個省、直轄市陸續出臺了高等院校的開學計畫。
+> Mr. [@jimcramer](https://twitter.com/jimcramer?ref_src=twsrc%5Etfw) , the US Secretary of State has seen all classified information (gathered by the best intelligence network in the world) on the origin of the virus, the lies, the coverup, the hoarding, and the disinformation campaign of the chinese communists. 1/2
+> — 😷Kyle Bass😷 (@Jkylebass) [May 4, 2020](https://twitter.com/Jkylebass/status/1257301301693763586?ref_src=twsrc%5Etfw)
 
+卡爾·巴斯先生 連推：吉姆·克萊默先生（Jim Cramer），美國國務卿已經看過了所有有關中共病毒來源、謊言、掩蓋、囤貨和虛假宣傳的機密信息（由世界上最優秀的情報網收集）。認為蓬佩奧國務卿“想針對中國人立案”是不負責任的說法。我們國務卿的職責是弄清事件的真相。如果中共明知故犯在封鎖本地後，卻繼續讓國際航班從武漢起飛，那麽全世界就應該起訴他們。
 
-| 省份 | 開學時間 |
-| --- | --- |
-| 安徽 | 5月6日起，符合要求的高校研究生和畢業年級學生返校；<br>第一批學生返校後1-2周，由高校根據首批學生返校情況，自行評估確定其他年級學生返校日期。 |
-| 上海 | 4月27日起，高校畢業年級學生返校；<br>根據自身防疫防控情況，學校確定其他年級於5月6日起分批次返校。 |
-| 河南 | 4月25日起為全省高校返校複學起始時間，達到條件的高校畢業年級和有重要科研任務的研究生優先返校；<br>其他年級自5月6日起陸續有序返校。 |
-| 廣東 | 5月11日後，具備條件的大專院校可安排畢業班學生返校；<br>5月18日後，大專院校其他年級等可根據生源特點、疫情防控情況、防控物資準備情況，安排學生分期、<br>分批、錯峰返校。 |
-| 貴州 | 4月21日後，本科高校(含研究生)、高職、中職學校畢業年級分批開學；<br>本科高校(含研究生)和高職院校非畢業年級，5月中旬後視情況在確定開學時間。 |
-| 江西 | 4月23日起，高校畢業年級學生和有重要科研任務的研究生開學。<br>其他年級學生從5月7日起分期分批錯峰返校。 |
-| 浙江 | 全省高校從4月26日起至5月10日陸續開學。 |
-| 陝西 | 4月27日起，各高校畢業年級(含高職和本、碩、博)、醫學專業、醫學類院校和有科研任務的學生錯時錯峰返校<br>5月6日後，畢業年級以外的其他年級(含高職和本、碩、博)學生錯峰返校。 |
-| 雲南 | 5月6日起畢業年級可以開學，5月11日起非畢業年級可以開學；達不到開學要求的，暫緩開學。 |
-| 寧夏 | 4月20日前，普通本科學校畢業年級有序返校。 |
-| 廣西 | 4月14日起高校醫學專業和醫學類院校、高校畢業年級有序開學；4月21日起高校其他年級有序開學。 |
-| 山西 | 4月10日 全省高校本碩博畢業年級開學。 |
-| 江蘇 | 高校擬4月13日開學起始時間準備開學，具體開學時間經批准後由學校發佈。 |
-| 天津 | 5月上旬或中旬，全市高等院校(含高職院校)畢業年級分專業、分批次有序複課開學；非畢業年級開學時間另行安排。 |
-| 甘肅 | 高校畢業年級可安排4月13日返校，整體開學可按4月20日準備。 |
-| 新疆 | 區屬高校4月8日開始分批錯峰陸續開學。 |
-| 青海 | 省內12所本科高校和高職院校4月1日起按照”一校一策”原則，以學生所在省份、院系、年級為主要參考指標，分學校、分生源地、分專業、分年級組織學生錯時錯峰有序返校 |
-| 山東 | 5月6日起，對高校進行開學條件驗收，檢驗工作在5月15日之前結束。很有可能5月18日部分高校開學，<br>個別高校可能會推遲，具體等官方公佈。 |
-| 河北 | 高等院校開學時間，視疫情另行安排。 |
-| 遼寧 | 5月8日起，遼寧各高校將陸續返校複學。 |
-| 福建 | 5月6日起高職院校、本科高校、研究生畢業年級和其他有重要科研任務的學生錯峰錯時複學，畢業實習(頂崗實習)；<br>5月20日起高職院校、本科高校和研究生非畢業年級錯峰錯時複學，分批錯時返校。 |
+> China unleashed this plague in the first place, but don’t expect the media to hold it accountable. It’s too busy repackaging CCP propaganda.[https://t.co/zL9DbJLBQe](https://t.co/zL9DbJLBQe)
+> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257437610533949449?ref_src=twsrc%5Etfw)
+
+參議員Tom Cotton：中國先放出這場瘟疫，然後又不希望媒體追究它的責任。重新打造大外宣真是太忙了。
+
+Politico網：“不是世界老大”：中國社交媒體在美國堆積如山
+
+> The United States must prepare for competition with Communist China as fierce as our contest with the Soviet Union. We’ll need strategic investment and private enterprise to win, just as we did in the past. My essay for [@AmerCompass](https://twitter.com/AmerCompass?ref_src=twsrc%5Etfw):[https://t.co/3LIS0Bts3X](https://t.co/3LIS0Bts3X)
+> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257456184346509319?ref_src=twsrc%5Etfw)
+
+參議員 Tom Cotton：美國必須準備好跟中共進行壹場前蘇聯式的激烈的較量。像過去壹樣，要贏得競爭，我們需要有戰略投資和私營企業。我在美國指南針網站（American Compass）發表的論文：《前言：論安全性》
 
 
-*（以上是中共國部分省市高等院校開學計畫）*
 
-4月30日，位於重慶市的西南大學返校學生中發現了一起新冠肺炎無症狀感染病例。這是在中共政府對疫情的真實資訊的重重封鎖下被爆出的，那有多少又是被中共國各級政府隱瞞了的呢？而這名學生在返校途中又近距離接觸了多少人呢？又有多少人被這位無症狀感染者所感染呢？這一切的一切都讓人毛骨悚然。
+參議員 Tom Cotton：中國人民是此次疫情中和過去七十多年，中共治下首當其沖，最悲慘的受害者。溫馨提示：今晚早些時候我接受了Martha MacCallum的采訪：
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04125336/3-9.png)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04125346/2-14.png)
+> US intel officials have confirmed the CCP “intentionally concealed the severity” of [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world while stockpiling their own medical supplies. The people responsible for this deadly coverup must be held accountable. I’m introducing legislation to do just that. [https://t.co/bmCSvqPznG](https://t.co/bmCSvqPznG)
+> — Senator Ted Cruz (@SenTedCruz) [May 4, 2020](https://twitter.com/SenTedCruz/status/1257424676013441031?ref_src=twsrc%5Etfw)
 
+參議員 Ted Cruz：美國情報部門官員已經確認中共“故意向世界隱瞞冠狀病毒的嚴重性”，卻同時為自己囤積了醫療物資。必須追究此次致命掩蓋行為相關人員的責任。我提出法律議案就是為了這壹點。
 
-從各地返校複學的綜合情況下，可以清晰地看出中共國的各級政府在返校複學過程中沒有做到也無法做到以下三個確保：
+> Trump at Fox News town hall suggests China’s leaders deliberately allowed global travel so China would not suffer alone from virus. I agree. We’re talking here of a crime against humanity by CCP
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257115398975229953?ref_src=twsrc%5Etfw)
 
-1. 無法確保返校上課的學生沒有被中共冠狀病毒所感染；
-2. 無法確保學生在返校途中不被中共病毒所感染；
-3. 無法確保學生在校期間不被中共冠狀病毒所感染。
+比爾·格茨先生：川普在福克斯新聞市政廳采訪中表示，中國領導人故意放任國際航班，這樣中國就不會獨自遭受病毒的折磨。我們這裏說的是中共的反人類罪。
 
+> Big bot and troll night on Twitter. Bring it on. [pic.twitter.com/erdulFPtrF](https://t.co/erdulFPtrF)
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257133556662493184?ref_src=twsrc%5Etfw)
 
-在這種情況下中南坑強行推動學生返校複課，這難道不是在主動擴散病毒傳播嗎？這與借毒殺人有何區別呢？又有多少學生是聽信了中共喉舌媒體的大外宣，選擇了相信CCP的這種洗腦宣傳。在返校途中或者是在校期間被中共冠狀病毒所感染呢？又有多少學生因此失去了寶貴的生命呢？又有多少個家庭因此家破人亡，還無法知道事情的真相呢？由於中共對疫情的真實資料的隱瞞、造假，這一切都不得而知。
+比爾·格茨先生：晚間推特上大量機器人刷屏和網絡噴子。放馬過來。
 
-難道中南坑就只是簡簡單單地搞個大謀殺這麼簡單嗎？難道中共盜國賊不會在老百姓臨死之前將最後一滴血榨幹嗎？
+> My latest: Trump says he believes CCP could have deliberately allowed coronavirus-infected travelers to leave China in bid to spread disease and weaken US [https://t.co/Vg285e0tpW](https://t.co/Vg285e0tpW)
+> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257360793487781888?ref_src=twsrc%5Etfw)
 
-中共國統計局於2020年2月28日，發佈了2019年國民經濟和社會發展統計公報數據：
+比爾·格茨先生：我最新發表：川普說他相信中共可能故意讓感染冠狀病毒的遊客離開中國，目的是擴散疾病並削弱美國。
 
+《華盛頓時報》：川普暗示中國故意讓病毒擴散
 
-|   | 招生人數(萬人) | 在校人數(萬人) | 畢業生人數(萬人) |
-| --- | --- | --- | --- |
-| 研究生 | 91.7 | 286.4 | 64 |
-| 普通本專科 | 914.9 | 3031.5 | 758.5 |
-| 中等職業教育 | 600.4 | 1576.5 | 493.4 |
-| 普通高中 | 839.5 | 2414.3 | 789.2 |
-| 初中生 | 1638.8 | 4827.1 | 1454.1 |
-| 普通小學 | 1869 | 10561.2 | 1647.9 |
-| 特殊教育 | 14.4 | 79.5 | 9.8 |
-| 學前教育在園幼兒：4713.9萬人 |
+> Red Storm Rising: [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) and [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) say the U.S. should leave any world organization created by China or create new ones that work with democratic countries. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hohzenmytN](https://t.co/hohzenmytN)
+> — Lou Dobbs (@LouDobbs) [May 4, 2020](https://twitter.com/LouDobbs/status/1257433366539968513?ref_src=twsrc%5Etfw)
 
+比爾·格茨先生 轉推：
 
-這麼龐大的學生群體，估計連做夢都想不到，也會成為中共盜國賊被割的韭菜。在此僅以研究生、普通本專科、中等職業教育、普通高中的在校生來算一筆賬：以每個學生每一日消費40.00RMB(早餐5.00RMB，中餐15.00RMB，晚餐15.00RMB，其他消費5.00RMB)為基準，那麼在學研究生一日總消費為286.4萬![]()40.00=11456.00萬RMB；普通本專科在校生一日總消費為：3031.5萬![]()40.00=121260.00萬RMB；普通高中在校生一日總消費為：10561.2萬![]()40.00=422448.00萬RMB。在學研究生、普通本專科在校生、普通高中在校生一日總消費額：11456.00萬+121260.00萬+422448.00萬=555164.00萬RMB。
+Lou Dobbs（福克斯新聞）：紅色風暴更猛烈：章家敦和比爾·格次說，美國應該脫離所有中國發起的國際組織，或成立新的與民主國家合作的組織。
 
-這還僅僅是普通消費額，還沒有算上各年級學生的學費、雜費等雜七雜八的各類費用，而這麼龐大的學生隊伍對學校周邊的經濟發展的帶動效應也是巨大的。
+> Earlier I wrote to the SEC about protecting American investors & businesses from the threat of Communist China.
+> 
+> Glad to hear from Chairman Clayton that they'll be holding a roundtable to discuss these issues & address China's complete lack of cooperation. [https://t.co/NPX4wfasEL](https://t.co/NPX4wfasEL)
+> — Rick Scott (@SenRickScott) [May 4, 2020](https://twitter.com/SenRickScott/status/1257421937174892553?ref_src=twsrc%5Etfw)
 
-中南坑在三駕馬車崩塌之際，開始玩起了學生經濟，通過學生來進一步榨幹老百姓手中僅有的那點血汗錢。而可憐巴巴的學生、無知的家長們還在為共匪這種謀財害命的行為唱讚歌啊！可悲否！可哀否！
-
-中共這種無法保證學生、教師安全的盲目複學行為，與謀財害命有什麼區別呢？各位牆內的同胞，不管您是學生、還是學生的家長，在中共這種魔鬼般政策面前，一定要主動說不啊！
-
-（文章内容仅代表作者观点）
-
+參議員 Rick Scott：早先，我致信美國證券交易委員會，提出應該保護美國投資者和企業不受中共國威脅。很高興從委員會主席Clayton處得知，他們將舉行圓桌會議，討論這些議題並解決中國完全缺乏合作的問題。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04231435/07_51.png)
 0

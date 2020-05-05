@@ -1,69 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月4日 美國政要推文選譯
-`2020-05-04 23:14 GM65` [轉載自GNews](https://gnews.org/zh-hant/194181/)
+## 披著“儒家”畫皮，愚弄天下百姓！
+`2020-05-05 01:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/194288/)
 
-> MSDNC and FAKE NEWS CNN are going wild trying to protect China!
-> — Donald J. Trump (@realDonaldTrump) [May 4, 2020](https://twitter.com/realDonaldTrump/status/1257438733240094726?ref_src=twsrc%5Etfw)
+**作者：MB**
 
-川普總統：MSNBC新聞頻道和“假新聞”CNN現在撒了歡兒地要維護中國。
+中共及曆屆中國獨裁者都口口聲聲推崇儒教文化 ，我們來扒開所謂“儒教文化”的畫皮 ，看看中共是如何披著這張畫皮，玩弄中國人民上百年，進而要玩弄世界人民，建立“人類命運共同體”。
 
-> Mr. [@jimcramer](https://twitter.com/jimcramer?ref_src=twsrc%5Etfw) , the US Secretary of State has seen all classified information (gathered by the best intelligence network in the world) on the origin of the virus, the lies, the coverup, the hoarding, and the disinformation campaign of the chinese communists. 1/2
-> — 😷Kyle Bass😷 (@Jkylebass) [May 4, 2020](https://twitter.com/Jkylebass/status/1257301301693763586?ref_src=twsrc%5Etfw)
+CCP獨裁者爲什麽獨鍾“儒家文化”，拒絕世界普適價值，不斷借由“孔子學院”向世界輸出“儒家文化”？
 
-卡爾·巴斯先生 連推：吉姆·克萊默先生（Jim Cramer），美國國務卿已經看過了所有有關中共病毒來源、謊言、掩蓋、囤貨和虛假宣傳的機密信息（由世界上最優秀的情報網收集）。認為蓬佩奧國務卿“想針對中國人立案”是不負責任的說法。我們國務卿的職責是弄清事件的真相。如果中共明知故犯在封鎖本地後，卻繼續讓國際航班從武漢起飛，那麽全世界就應該起訴他們。
+“儒家文化”暗藏著什麽秘密？世界人民不能夠再被CCP的文化余毒戕害了，在新聯邦成立以後更要防止它們陰魂不散，借屍還魂！
 
-> China unleashed this plague in the first place, but don’t expect the media to hold it accountable. It’s too busy repackaging CCP propaganda.[https://t.co/zL9DbJLBQe](https://t.co/zL9DbJLBQe)
-> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257437610533949449?ref_src=twsrc%5Etfw)
+儒家思想主要包括以下五部分：
 
-參議員Tom Cotton：中國先放出這場瘟疫，然後又不希望媒體追究它的責任。重新打造大外宣真是太忙了。
+“仁”：仁愛。孔子思想體系的理論核心。它是孔子社會政治、倫理道德的最高理想和標准，也反映他的哲學觀點，對後世影響亦甚深遠。“‘仁以處人，有序和諧’是孔子思想的原發點，是儒家思想核心之核心。”（陳志歲《載敬堂集》）。“仁”體現在政治上是強調”德治”，德治的基本精神實質是泛愛衆和博施濟衆，孔子把“仁”引入“禮”中，變傳統”禮治”爲”德治”。
 
-Politico網：“不是世界老大”：中國社交媒體在美國堆積如山
+義：原指”宜”，即行爲適合于”禮”。孔子以”義”作爲評判人們的思想、行爲的道德原則。
 
-> The United States must prepare for competition with Communist China as fierce as our contest with the Soviet Union. We’ll need strategic investment and private enterprise to win, just as we did in the past. My essay for [@AmerCompass](https://twitter.com/AmerCompass?ref_src=twsrc%5Etfw):[https://t.co/3LIS0Bts3X](https://t.co/3LIS0Bts3X)
-> — Tom Cotton (@SenTomCotton) [May 4, 2020](https://twitter.com/SenTomCotton/status/1257456184346509319?ref_src=twsrc%5Etfw)
+禮：孔子及儒家的政治與倫理範疇。在長期的曆史發展中，”禮”作爲中國封建社會的道德規範和生活准則，對中華民族精神素質的培養起了重要作用，但隨著社會的變革和發展，特別是封建社會後期，它越來越成爲束縛人們思想、行爲的繩索，影響了社會的進步和發展；尤其甚者，被統治階級用來加強其統治的重要手段，爲形成皇本位、官本位營造出合法、合理性的人文環境。
 
-參議員 Tom Cotton：美國必須準備好跟中共進行壹場前蘇聯式的激烈的較量。像過去壹樣，要贏得競爭，我們需要有戰略投資和私營企業。我在美國指南針網站（American Compass）發表的論文：《前言：論安全性》
+智：同”知”，孔子的認識論和倫理學的基本範疇。指知道、了解、見解、知識、聰明、智慧等。內涵主要涉及知的性質、知的來源、知的內容、知的效果等幾方面。關于知的性質，孔子認爲，知是一個道德範疇，是一種人的行爲規範知識。
 
+信：指待人處事的誠實無欺，言行一致的態度。爲儒家的”五常”之一。孔子將”信”作爲”仁”的重要體現，是賢者必備的品德，凡在言論和行爲上做到真實無枉，便能取得他人的信任，當權者講信用，百姓也會以真情相待而無欺上 。
 
+長期受到CCP的洗腦，人們沒有獨立思考力，辨別力，對于上面所說的五大儒家思想從來就是沒有思考的接受，甚至頂禮膜拜，以爲有了儒家思想，中國就和諧民主了，就是理想國了，當然理論和實踐都扇了我們響亮的耳光。
 
-參議員 Tom Cotton：中國人民是此次疫情中和過去七十多年，中共治下首當其沖，最悲慘的受害者。溫馨提示：今晚早些時候我接受了Martha MacCallum的采訪：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05012857/1-25.jpg)
 
-> US intel officials have confirmed the CCP “intentionally concealed the severity” of [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) from the world while stockpiling their own medical supplies. The people responsible for this deadly coverup must be held accountable. I’m introducing legislation to do just that. [https://t.co/bmCSvqPznG](https://t.co/bmCSvqPznG)
-> — Senator Ted Cruz (@SenTedCruz) [May 4, 2020](https://twitter.com/SenTedCruz/status/1257424676013441031?ref_src=twsrc%5Etfw)
+第一騙：”仁”之騙。儒家認爲“仁”是社會思想的核心。“仁”是倡導的一種社會理想和社會標准。《大學》提出修身、齊家、治國、平天下的次序。儒家也反對專制暴政，主張仁政，正是這個貌似人性化的理論，從提出一開始就具有極大的欺騙性。
 
-參議員 Ted Cruz：美國情報部門官員已經確認中共“故意向世界隱瞞冠狀病毒的嚴重性”，卻同時為自己囤積了醫療物資。必須追究此次致命掩蓋行為相關人員的責任。我提出法律議案就是為了這壹點。
+首先，儒家認爲，國是家的擴大，統治者應該向“父母”一樣關懷子民福祉。事實上，在儒家思想中，一開始，百姓和執政者之間關系就是不平等的，認知上就把當權者的權勢認爲是天賦的，猶如父母關系是天成的一樣，百姓怎麽可能有民權？ “仁政”的權威高于百姓，一旦實行起來就“不仁不義”了。自古以來，每個當權者無不強調自己實行的就是“仁政”，而怎樣執行？執行得怎樣？執行和監督權都在官僚皇權獨裁階層（因爲他們是你的“父母”），他們永遠是你的“父母官”，這是一個多麽荒唐而“理所當然”的儒家思想！機制的缺失，讓理想國不可能實現，而獨裁階層津津樂道儒家“仁”經，並要百姓深信其實行的就是“仁政”，除了彌天謊言就是暴力，用這兩把刀子，將“仁”玩于統治者的股掌之間，強奸民意，“和諧”社會。有歌訣歎之：
 
-> Trump at Fox News town hall suggests China’s leaders deliberately allowed global travel so China would not suffer alone from virus. I agree. We’re talking here of a crime against humanity by CCP
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257115398975229953?ref_src=twsrc%5Etfw)
+你跟他講道理，他跟你耍流氓；
 
-比爾·格茨先生：川普在福克斯新聞市政廳采訪中表示，中國領導人故意放任國際航班，這樣中國就不會獨自遭受病毒的折磨。我們這裏說的是中共的反人類罪。
+你跟他耍流氓，他跟你講法制；
 
-> Big bot and troll night on Twitter. Bring it on. [pic.twitter.com/erdulFPtrF](https://t.co/erdulFPtrF)
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257133556662493184?ref_src=twsrc%5Etfw)
+你跟他講法制，他跟你講政治(黨性、原則)；
 
-比爾·格茨先生：晚間推特上大量機器人刷屏和網絡噴子。放馬過來。
+你跟他講政治，他跟你講國情；
 
-> My latest: Trump says he believes CCP could have deliberately allowed coronavirus-infected travelers to leave China in bid to spread disease and weaken US [https://t.co/Vg285e0tpW](https://t.co/Vg285e0tpW)
-> — Bill Gertz (@BillGertz) [May 4, 2020](https://twitter.com/BillGertz/status/1257360793487781888?ref_src=twsrc%5Etfw)
+你跟他講國情，他跟你講接軌；
 
-比爾·格茨先生：我最新發表：川普說他相信中共可能故意讓感染冠狀病毒的遊客離開中國，目的是擴散疾病並削弱美國。
+你跟他講接軌，他跟你講文化（民族特色）；
 
-《華盛頓時報》：川普暗示中國故意讓病毒擴散
+你跟他講文化，他跟你講老子；
 
-> Red Storm Rising: [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) and [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) say the U.S. should leave any world organization created by China or create new ones that work with democratic countries. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/hohzenmytN](https://t.co/hohzenmytN)
-> — Lou Dobbs (@LouDobbs) [May 4, 2020](https://twitter.com/LouDobbs/status/1257433366539968513?ref_src=twsrc%5Etfw)
+你跟他講老子，他跟你裝孫子！
 
-比爾·格茨先生 轉推：
+你跟他裝孫子，他跟你講道理；
 
-Lou Dobbs（福克斯新聞）：紅色風暴更猛烈：章家敦和比爾·格次說，美國應該脫離所有中國發起的國際組織，或成立新的與民主國家合作的組織。
+你跟他講你在耍渾，他說“解析權歸xx部門”。
 
-> Earlier I wrote to the SEC about protecting American investors & businesses from the threat of Communist China.
-> 
-> Glad to hear from Chairman Clayton that they'll be holding a roundtable to discuss these issues & address China's complete lack of cooperation. [https://t.co/NPX4wfasEL](https://t.co/NPX4wfasEL)
-> — Rick Scott (@SenRickScott) [May 4, 2020](https://twitter.com/SenRickScott/status/1257421937174892553?ref_src=twsrc%5Etfw)
+沒有監督和認證的機制，“解釋權歸黨所有”。 “仁”是他們對你的要求，你必須對他們“仁”，他們可以對你實行暴政，你絕無還手之理。
 
-參議員 Rick Scott：早先，我致信美國證券交易委員會，提出應該保護美國投資者和企業不受中共國威脅。很高興從委員會主席Clayton處得知，他們將舉行圓桌會議，討論這些議題並解決中國完全缺乏合作的問題。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/04231435/07_51.png)
+其次：儒家再三強調“克己複禮”，提出“修身、齊家、治國、平天下”的次序。這是確保參與“治國”之人，乃是必須由統治階級選拔出來的人參與，必須首先達到他們的所謂“紅”“德”，必須是“黨”家人，“根正苗紅”。你必須按修身、齊家、治國、平天下次序來走，按照統治階級給你定的等級標准和要求，不可越雷池一步，“說你行，你就行，不行也行；說你不行就不行，行也不行”，不到資格勿論參政議政，讓“中國人多、素質低，不適合民主制” 甚囂塵上，用 “一屋不掃何以掃天下”的思想滅殺百姓個性意識，形成全民“走正步”，個個成“木偶”，人人變“奴才”。
+
+第二騙：”禮”之騙。“禮”被儒家作爲中國封建社會的道德規範和生活准則，成爲獨裁專制政權特別善用的手段。披上“仁”之外衣，操著“禮”的棍棒，將世世代代的中國人，禁锢在統治階級的牢籠裏，其實質就是利用“等級分明”的禮教文化，培養並固化全民的奴性，強化皇權獨裁統治的“獨大尊貴”，“神聖”不可侵犯，形成中國獨特的官僚文化，對上：阿谀奉承，溜須拍馬，欺上瞞下，極盡跪舔之能事；對下：頤指氣使，飛揚跋扈，不可一世，肆意踐踏，極盡“皇權在手，天下任走”之豪取強奪、共産共妻、胡作非爲之所爲！
+
+靠著孔子把“仁”引入“禮”中，獨裁者及其統治階級拽著“仁”“禮”（或者叫“德禮”）之儒家套裝的神秘索套，將活生生的中國人民脫胎換骨，閹割成世界奇觀、中國獨有的“跪”“舔”一族！所有的逃脫閹割的人只有監獄或“流放國外”這條生路！
+
+靠著“藍金黃”（系由世界“爆料革命”的引領者郭文貴先生率先爆出的，中共虜獲世界各國首腦、各級組織、各色人群、各類大佬的三種經典手段的簡稱， “藍”代表科技手段、“金”指金錢力量、“黃”指色情引誘），靠著這三手段，套上《仁禮》之華麗 “畫皮”，中共幾近拿下整個世界，掌握“話語權”，制定國際社會新秩序。從這個意義上，毫不誇張地說：“沒有“爆料革命”，沒有郭文貴，全世界將陷入萬劫不複的黑暗世紀”。
+
+“仁禮”套裝是統治階層獨享的神秘武器，實現長治久安的法寶，自然深受有獨裁欲望的統治者親睐。這就不難理解CCP不惜在世界各地重金投資“孔子學院”了，不是單純的一個大外宣那麽簡單哦，因爲《仁禮》套裝要“從娃娃抓起”。
+
+第三騙：“智”（知）之騙。此智非彼智，儒家之智主指“四書、五經”，學之即爲德。“關于知的性質，孔子認爲，知是一個道德範疇，是一種人的行爲規範知識”（引百度百科）。現今中共的“德”就是學習掌握中共黨要求的政治洗腦理論，滿口中共要求的八股官調，張口就是“中國特色社會主義核心價值觀”，只有符合中共統治階級的“德”要求，你才算達到了他們要求的“智”。至于“外行領導內行”，“糧食畝産萬斤”都是必然産物。“幹的不如看的，看的不如圍著轉的，轉的不如同過炕的”就是政治正確的寫實，深入理解和掌握上級的思想，並靈活運用就是“智”。萬千才華橫溢的華夏之子，無門報效祖國，就是因爲缺了中共要的“德”“智”。
+
+對于儒家的“智”，CCP運用得如火純青，不讓大家學習《邏輯學》，不會運用世界先進知識獨立思考，不允許獨立分析，訓練出一批批都是他們需要的旗手、吹鼓手，並重用這些只會死記硬背他們指定的洗腦教材的“機器人”或稱爲奴才。
+
+對于儒家思想中的“三騙”，我們不能夠輕視的原因，是因爲長期的洗腦文化，已經讓我們覺得中共的思想理所當然，在實際的社會生活中，不由自主地受到影響，比如見到上級領導，正如文貴先生所說，立馬就低頭哈腰，卑躬屈膝，保持不了獨立人格和自尊。
+
+另一方面，我們也要看到，儒家文化中也有可以借鑒的文化元素，需要在未來的新聯邦文化中揚棄之。文化信仰是民族的靈魂，建立信仰是迫不及待的任務，我們期待新聯邦將是一個“兼愛非攻”的有信仰的民族。
+
+（文章內容僅代表作者觀點）
+
 0
