@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 十權一統：看中共的極權統治
-`2020-05-03 23:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/193473/)
+## 蓬佩奧：海量證據表明這是來自武漢實驗室的人造病毒
+`2020-05-04 03:16 GM31` [轉載自GNews](https://gnews.org/zh-hant/193612/)
 
-**作者：三票先生**
+5月3日，美國現任國務卿蓬佩奧接受[ABC新聞專訪](https://www.youtube.com/watch?v=fRea4yIE7_8)，關於對冠狀病毒的調查結果，回答記者提問。蓬佩奧說，目前仍然在調查取證階段，但已有大量證據表明冠狀病毒來自中國武漢病毒實驗室，同時已有大量證據表明冠狀病毒是人造的。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233340/image0-34.jpg)
+蓬佩奧還說，中國共產黨的做法是典型的獨裁政權的做法，他們造假、隱瞞，使全世界陷入巨大災難之中。目前澳大利亞已與美國達成共識，很快大家會聽到歐洲和美國達到共識，隨後全世界都會達到共識，共同對中共追責。
 
-[**十權一統：看中共的極權統治**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233914/%E5%8D%81%E6%AC%8A%E4%B8%80%E7%B5%B1%EF%BC%9A%E7%9C%8B%E4%B8%AD%E5%85%B1%E7%9A%84%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/03233914/%E5%8D%81%E6%AC%8A%E4%B8%80%E7%B5%B1%EF%BC%9A%E7%9C%8B%E4%B8%AD%E5%85%B1%E7%9A%84%E6%A5%B5%E6%AC%8A%E7%B5%B1%E6%B2%BB.pdf)
-
-**請點擊下載按鈕，下載文檔觀看！**
-
-（文章內容僅代表作者觀點）
+*翻譯 & 字幕：【不吃豆的豆】 校對：【Kim（文素）】*
 
 0
