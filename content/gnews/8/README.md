@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧：大量證據表明冠狀病毒來自武漢實驗室
-`2020-05-05 10:30 GM65` [轉載自GNews](https://gnews.org/zh-hant/194612/)
+## 美國國家安全副顧問博明發出靈魂質問 ：“五四”的民主願望還會等到下一世紀嗎？
+`2020-05-05 10:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/194631/)
 
-翻譯：Lily，GM65 字幕：麥子
+製作：【上天造 滅疫組】
 
 0
