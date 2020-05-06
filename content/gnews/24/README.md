@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】03/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-05 20:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/195029/)
+## 川普：美國不能再被中共國綁架
+`2020-05-05 22:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/195144/)
 
-**戰友之家圖文摘要組及小語種組**
+川普總統在5月3日福克斯新聞中答美國人問時表示，他正在考慮新的關稅，用以懲罰中共在冠狀病毒上的表現。
 
-[English\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)
+當主持人問到：“您是否正在考慮對中國徵收新的關稅以作為對他們處理病毒的一種懲罰？” 川普總統透露說：“好吧，我告訴你，這是最終的懲罰，我不想…”
 
-[French\_0503\_CCP\_Virus\_Updates\_-\_Copie-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)
+出處：[America Together – Returning to Work Town Hall with President Trump](https://youtu.be/6HDUYiyF_DQ)
 
-[German\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)
-
-[Japanese\_0503\_CCP\_Virus\_Updates1-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)
-
-[Spanish0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)
+*翻譯:【Michelle】【不吃豆的豆】【Winston Jackson】 校對:【紅鬍子】【Ying202064】 字幕：【不吃豆的豆】編輯:【GM31】*
 
 0

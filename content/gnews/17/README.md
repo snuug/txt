@@ -1,93 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯
-`2020-05-06 00:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/195190/)
+## 英國緊跟美國腳步 “馬格尼茨基式的製裁”箭在弦上
+`2020-05-06 01:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195236/)
 
-> Bring our drug production back to 🇺🇸 for National Security. [@Rosemary100](https://twitter.com/Rosemary100?ref_src=twsrc%5Etfw) thank you for your steadfast work on this vital supply chain move out of china. Our country owes you a debt of gratitude. [#gratitude](https://twitter.com/hashtag/gratitude?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/OgsPMPcE2T](https://t.co/OgsPMPcE2T)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 5, 2020](https://twitter.com/Jkylebass/status/1257514583452983298?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06012034/Picture-1-61.png)
+奧爾頓勳爵在《香港自由新聞》發表署名文章指出，英國外交大臣多米尼克·拉布（Dominic Raab）最近重申了一項重要承諾。他在致44名議員的信中說，政府在新的全球人權制度中要引入“馬格尼茨基式的製裁”。這項重要的法案將在數月後的議會裡完成立法。此類製裁將使英國能夠對那些在世界範圍內嚴重侵犯人權的個人施加限制。
 
-卡爾·巴斯先生：為了國家安全將藥品生產搬回美國。Rosemary，謝謝妳這麽堅定地致力於將重要物資供應鏈移出中國的工作。我們的國家應該向妳表示感謝。
+“馬格尼茨基式的製裁”將授予英國凍結資產和禁止旅行的權力，從而記錄和阻止在世界上任何地方嚴重侵犯人權的行為。不僅如此，這些制裁還應允許英國針對那些從侵犯人權中獲得經濟利益的人，包括法人和自然人。在這些隱蔽的侵權行為中，證明獲利者和他們的犯罪事實之間的直接聯繫往往是有困難的。但是，從人的苦難中獲利與犯罪本身一樣，在道義上是腐敗的。
 
-Rosemary Gibson（《中國處方：揭露美國醫藥依賴中國的風險》作者，獨立生物倫理研究中心、智庫海斯汀中心高級顧問）：好消息！皮特·納瓦羅：美國衛生及公共服務部（HHS）、國防部（DoD）和聯邦緊急事務管理署（FEMA）將很快發布美國制造產品規定
+這些制裁是向積極捍衛人權的方向邁出的可喜一步。只有得到全世界的尊重和遵守，制裁才能生效。其中，中共侵犯人權的記錄包括：對法輪功人員的強摘器官；把數百萬穆斯林維吾爾人監禁；逮捕政治異見人士並對其進行審判；以及打壓言論自由和結社自由等。這僅僅是幾個例子。
 
-> Congratulations [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw) on your Pulitzer Prize. Your incredible photographs unveiled the Chinese government's brutality and rallied the world in support of Hong Kong's freedom fighters. [https://t.co/LQx7Ng2pdJ](https://t.co/LQx7Ng2pdJ)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 5, 2020](https://twitter.com/MarshaBlackburn/status/1257690142317428738?ref_src=twsrc%5Etfw)
+一年多來，嚴重侵犯人權的行為已經吞沒了香港這個具有法律自主權的城市。其中大部分的命令是中共政府為了其政治利益而下達的。英國必須採取行動，對香港警察和行政人員實施制裁，以捍衛香港。警察無恥地綁架，非法逮捕和虐待了很多人。這些人包括了醫務工作者，新聞工作者和香港公民。
 
-參議員 Marsha Blackburn：祝賀路透社獲得普利策獎。妳們超贊的照片揭露了中共政府的殘暴，並聯合了世界支持香港自由鬥士。
+從2019年7月開始的短短六個月內，香港警察發射了16,000發催淚瓦斯，10,000發橡皮子彈，2,000發布袋彈和2,000發海綿子彈。經常是近距離射擊。警察不當使用警棍，實施肉體控制和恐嚇手段。他們製造恐懼而使公民服從，這是不可接受的。英國必須採取更多措施，以保護香港人的權利和安全以及其人民的自治和自由。
 
-> Everyone knows the Chinese Internet is censored and unrepresentative of the Chinese people—but the media can’t pass up an opportunity to “roast” the president, even if it means publishing CCP propaganda. Shameful. [https://t.co/19ce4KUYcY](https://t.co/19ce4KUYcY)
-> — Tom Cotton (@SenTomCotton) [May 5, 2020](https://twitter.com/SenTomCotton/status/1257729544162861058?ref_src=twsrc%5Etfw)
+從歷史上看，香港警務人員被認為是該地區廉潔行善的典範。可悲的是，這種聲譽已經被侮辱殆盡。
 
-參議員 Tom Cotton：眾所周知中國的互聯網有防火墻，並不體現中國民意——但媒體就是不放過任何機會“烤”總統，哪怕這是替中共做宣傳。可恥。
+儘管（這些侵犯人權的）個人應受到英國的製裁，但是，我們需要弄清楚他們正在執行誰的命令。這正是那些無視香港《基本法》的政客。香港律政司司長（鄭若驊）近日（4月27日）聲稱，《基本法》第二十二條的約束不適用於中聯辦。這項條款是保證大陸部門不干涉（香港）當地事務。現在整個城市的自治受到了威脅。香港人越來越容易遭到因政治而進行的各種迫害。 t政治家，默許發生侵犯人權惡行的執政者和犯下暴力罪行的執行人一樣有罪。他們全都應受到相應的製裁。
 
-> Arkansans are grateful for the donation of 100k medical masks from the people of Taiwan, a true friend of the United States. Thank you! [https://t.co/sEsPBYZwRS](https://t.co/sEsPBYZwRS)
-> — Tom Cotton (@SenTomCotton) [May 6, 2020](https://twitter.com/SenTomCotton/status/1257828505888448518?ref_src=twsrc%5Etfw)
+外交大臣在信中最後宣稱，集體實施國際制裁才是最有效的。 “ 他是對的，” 奧爾頓勳爵表示，他很高興聽到外交部正在與其他實施類似制裁的國家緊密合作。其中包括美國，加拿大和歐盟（正在建立自己的人權制裁制度）。
 
-參議員 Tom Cotton：阿肯色人感謝臺灣人民捐贈的10萬醫用口罩，他們是美國真正的朋友。謝謝！
+如果 “馬格尼茨基式的製裁” 得到國際社會的統一支持和投入，那麼這種力量將得到全然的體現。美國已經對在港發生的侵犯人權行為採取措施。他們正在使用這些法案。因此英國也需要全力跟上。
 
-> NSC Deputy National Security Adviser Matt Pottinger gives an important speech in Chinese on the hero doctors of Wuhan who sounded the alarm on the virus [https://t.co/Mh08aYl5sx](https://t.co/Mh08aYl5sx)
-> — Bill Gertz (@BillGertz) [May 5, 2020](https://twitter.com/BillGertz/status/1257688445411037193?ref_src=twsrc%5Etfw)
+原文作者：大衛·奧爾頓（David Alton），系 “利物浦的奧爾頓勳爵”。他曾在上議院的國際關係選擇委員會任職。
 
-比爾·格茨先生：國家安全委員會副國家安全顧問博明用中文發表關於發出病毒預警的武漢英雄醫生重要演講。
+馬格尼茨基式的製裁 （Magnitsky-style sanctions ）： 源自於《全球馬格尼茨基人權問責法》。該法授權美國政府對違反人權及顯著腐敗人士實施制裁。
 
-《華盛頓時報》：白宮罕見地用中文演講，向揭露冠狀病毒的醫生致敬
+《基本法》第二十二條（Article 22 of the Basic Law）：即《中華人民共和國香港特別行政區基本法》中《第二章 中央和香港特別行政區的關係》的 第二十二條：
 
-> U.S. intelligence not involved or aware of allies' "Five Eyes" China report disclosed in Aussie newspaper.[https://t.co/BaUcdEjhE0](https://t.co/BaUcdEjhE0)
-> — Rowan Scarborough (@RoScarborough) [May 5, 2020](https://twitter.com/RoScarborough/status/1257716433028612096?ref_src=twsrc%5Etfw)
+- 中央人民政府所屬各部門、各省、自治區、直轄市均不得乾預香港特別行政區根據本法自行管理的事務。
+- 中央各部門、各省、自治區、直轄市如需在香港特別行政區設立機構，須徵得香港特別行政區政府同意並經中央人民政府批准。
+- 中央各部門、各省、自治區、直轄市在香港特別行政區設立的一切機構及其人員均須遵守香港特別行政區的法律。
+- 中國其他地區的人進入香港特別行政區須辦理批准手續，其中進入香港特別行政區定居的人數由中央人民政府主管部門徵求香港特別行政區政府的意見後確定。
+- 香港特別行政區可在北京設立辦事機構。
 
-比爾·格茨先生 轉推：
 
-Rowan Scarborough：美國情報機構沒有參與或不知道澳洲報紙披露的“五眼聯盟”中國報告。
+[原文鏈接](https://hongkongfp.com/2020/05/05/lord-alton-uk-must-impose-sanctions-on-hong-kong-officials-for-human-rights-violations/)
 
-《華盛頓時報》：報告顯示，中國故意銷毀實驗室證據，讓“吹哨人”消失
+翻譯報導：Sweeeettyy文甜
 
-> In a post-[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) world, lots of things will change. One of them should be this: the WTO should be abolished. The global economy needs reform top to bottom to stop [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & secure the needs of American families & workers [https://t.co/ozWcomm54q](https://t.co/ozWcomm54q)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257635105192980480?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：當世界爆發冠狀病毒疫情後，很多事情都要改變。其中壹個應該是：世貿組織應該被廢除。全球經濟需要徹頭徹尾的改革才能制止中國經濟帝國主義，並保障美國家庭和工人的需要。
-
-《紐約時報》：觀點｜世貿組織應該被廢除
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) not happy about my call to confront their economic imperialism by ending the WTO & replacing it with system that’s good for American workers. I love being insulted by [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state-run press [https://t.co/z7Y887ztvf](https://t.co/z7Y887ztvf)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257669494312443905?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：我呼籲終結世貿組織並用對美國工人有利的系統代替它，以此對抗中國的經濟帝國主義，中國對此不高興了。我很享受被中國國營媒體詬病的感覺。
-
-陳偉華：有時好奇為什麽《紐約時報》會發表無知政客寫的這種評論文章。就因為他是參議員？
-
-> I called for [@potus](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to replace those responsible for the decision to invest federal retirement savings in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> Yesterday, he did so. 
-> 
-> New board members should make reversing this shortsighted move their first priority. [https://t.co/jnBkQrdRYx](https://t.co/jnBkQrdRYx)
-> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1257853161236242432?ref_src=twsrc%5Etfw)
-
-參議員 Marco Rubio：我呼籲總統先生撤換那些決定將聯邦退休基金投入中國的責任人。昨天他這樣做了。新的董事會成員應該將扭轉這壹短視決定作為其首要任務。
-
-路透社：白宮新的人事任命可能影響退休基金投資中國的決定
-
-> Communist China is determined to increase their control over as much of the world as they can, even if it means using a devastating pandemic as an opportunity to do so.
->  
-> We can’t turn a blind eye to Communist China. [https://t.co/wjdQrC9FX7](https://t.co/wjdQrC9FX7)
-> — Rick Scott (@SenRickScott) [May 5, 2020](https://twitter.com/SenRickScott/status/1257687888273309697?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：中共國決意要竭盡所能地擴大它對世界的掌控，即使這意味著利用壹種毀滅性的疾病大流行來達到目的。我們不能再對中共國熟視無睹了。
-
-Britbart新聞：美國國防部長埃斯珀表示，俄羅斯和中國將歐盟冠狀病毒緊急狀況視作擴大兩國利益的機會
-
-> ”Economic destruction and the U.S. coronavirus death toll are driving a government-wide push to move U.S. production and supply chain dependency away from China,” [https://t.co/7yE3dAvZF9](https://t.co/7yE3dAvZF9)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257873841612820480?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“經濟重創和美國冠狀病毒死亡人數正帶動整個政府推進讓美國生產和供應鏈擺脫對中國的依賴。”
-
-Dailywire網：川普加速推動將中國從全球供應鏈中移除，並建立新的集團
-
-> There’s no such thing as privately held in China. The CCP controls all. [https://t.co/FtJFGrYh85](https://t.co/FtJFGrYh85)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257880166732357633?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中國沒有所謂的私有公司。中共控制著壹切。
-
-《經濟學家》雜誌：中國有206家市值十億美元或更多的私有公司，比其他任何國家都多。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000751/07_55.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000756/image0-2-2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000804/image0-6-2.jpg)
 0

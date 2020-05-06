@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普提案要求WHO將台灣納入世界衛生組織
-`2020-05-06 07:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195397/)
+## 端點星的抗爭&#8211;更多人被中共噤聲
+`2020-05-06 11:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195659/)
 
-![Donald Trump Angers China With Call to Taiwan President | Time](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06070203/1-36.png)
-據報導指出:川普領導的美國政府正在向世界衛生組織(WHO)提案，要求將台灣納入其組織。根據美國的表示，目前的WHO由於過度親共的緣故已經淪為共產衛生組織CHO (Communism Health Organization)。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06113313/%E7%AB%AF%E7%82%B9%E6%98%9F%E7%9A%84%E6%8A%97%E4%BA%89-%E6%9B%B4%E5%A4%9A%E4%BA%BA%E8%A2%AB%E4%B8%AD%E5%85%B1%E5%99%A4%E5%A3%B0.jpg)圖片來源：SRIPFOTO/SHUTTERSTOCK
+註：端點星計劃（Terminus2049）是在 GitHub 開放平台搭建的站點，以去中心化的方式備份微信、微博等平台被刪除的文章。端點星是離銀河中心最遠的行星。
+據紐約時報最新報道，多位尋求起訴中共政府的武漢疫情受害人被中共威脅噤聲。令人唏噓的是他們中有已為人母，有的是子孫滿堂的公公，有病人在被多家醫院拒診後因中共病毒離世，也有在隔離期去世。
 
-隨著川普總統加大對中共在處理中共病毒上的抨擊力道，福克斯新聞於本周一引述內府消息人士的資訊表示：美國政府正在推行一項能讓台灣重獲WHA觀察員身分的草案。根據多方媒體消息，目前澳洲已表態支持該項提案，而美國政府目前正尋德法英等國的支持。而白宮也將此提案描述為 “懲罰WHO過度親中的舉動”。
+報道指出中共為了掩飾疫情不斷對人民施壓：律師被警告不可以起訴政府；警察審訊因中共病毒逝去親人而在網絡上尋求慰藉的平民；為對抗審查制度而保留疫情報道的志願者們則失蹤了。其中引用逃離中共在紐約生活的活動家楊占青所說：“（中共）擔心的是，如果允許人民捍衛自己的包括輿論自由的權利，國際社會將有機會掌握武漢和武漢人的真實情況。”
 
-周日（5月3日）的福克斯新聞中，川普總統表示他正在認真考慮停止捐助資金到WHO，因為WHO在面對這次中共病毒疫情時的處置是毫無作為的，且該組織作出的最大貢獻是極力的配合中共掩飾太平。美國國務院同時還發起了#TweetForTaiwan活動，呼籲台灣能夠加入世界衛生組織理事機構世界衛生大會（WHA）。
+文章寫到，中共的鎮壓行動恰恰凸顯了他們的害怕，問責官員將破壞他們中共獨裁製度才是拯救世界於水火的宣傳。中共為了激發愛國熱情，將人民的死亡描繪稱烈士而不是受害者。同時中共嚴厲的審查刪除了很多報道官員掩蓋真相的中文新聞。現在國內的批評又被中共引導為受境外勢力的煽動。例如近日，湖北宜昌市公務員譚軍向武漢中級人民法院公開起訴湖北省政府隱瞞疫情，導致人民財產損失。起訴書中指出在疫情爆發的一月中旬武漢仍組織“萬家宴”。譚軍由於其公務員的身份拒絕了紐約時報的採訪請求。社交媒體中已經出現譚軍被言論審查的文章。
+此次報道闡述了中共一直以來都非常擔心民眾的公開悼念可能對其統治帶來的危險。例如，08年汶川地震，政府給失去子女的父母封口費；11年溫州動車事故，官員禁止親屬靠近出事地點；每年六四北京當局噤聲當年親人在天安門廣場死去的示威者的家屬。
+文章特別提到今年三位參與端點星計劃的志願者在北京上個月失蹤，據推測已被拘留。【註：端點星計劃（Terminus2049）是在 GitHub 開放平台搭建的一個站點，以去中心化的方式備份微信、微博等平台被刪除的文章。端點星是離銀河中心最遠的行星。】其中一位志願者陳玫的哥哥陳坤（Chen Kun，音譯）告訴紐約時報說：“我當時已經提醒過他了：‘你們做這個恐怕要面臨一些風險’，但是我不知道風險到底有多大。我當時說可能他會被叫到警局問話，他們可能會要求下架網站。但是我沒想到會這麼的嚴重。”陳坤對陳玫的消失毫無任何音訊，只是從同樣被逮捕的另一個志願者蔡偉的家屬那打聽到他們被抓的理由是“尋釁滋事”。後來蔡偉和他的女友一起被抓了。
+報道進一步補充：類似的網絡計劃一直受到審查，很多志願者互相警告彼此刪除電腦內的敏感信息。其他公共評論也受到大力打壓：湖北警方最近逮捕了一名計劃抗議蔬菜漲價的女性；一位武漢醫院的領導關於中醫對中共肺炎無用的言論被刪除。
 
-而在上周六，美國國際組織事務局的Twitter帳戶也發起呼籲世界支持台灣加入即將舉行的世界衛生大會，期許台灣能夠將“令人難以置信的專業知識用於打擊COVID-19”。並且聲明提到，世界在抗擊該疾病方面需要台灣的幫助，並呼籲世界衛生組織：“現在是時候讓台灣的聲音被聽到。”
+[原文鏈接](https://www.nytimes.com/2020/05/04/world/asia/china-coronavirus-answers.html)
+[端點星網站–被中共刪除的文章鏈接](https://terminus2049.github.io/)
 
-美國駐聯合國代表團（USUN）也在推特上表示支持台灣，並表示禁止台灣進入聯合國是“不僅對自豪的台灣人民的侮辱，而且是對聯合國原則的侮辱”。多位美國官員和國會議員隨即也跟進發佈推文表態支持，包含了美國國際開發署（USAID）執行官約翰·巴爾薩（John Barsa），參議員馬可·魯比奧（Marco Rubio）和國會議員邁克爾·麥考爾（Michael McCaul）等人。
-
-而台灣外交部（MOFA）也隨即回應了USUN的推文，指出聯合國成立的本意是為了保護所有國家，無論大小；將台灣排除在聯合國及其機構之外是“自欺欺人，只會削弱國際大家庭”。
-
-**翻譯報導:****Baiyßaisdar**
-
-**相關聯結:**
-
-川普提案要求WHO將台灣納入世界衛生組織
-
-[https://www.taiwannews.com.tw/en/news/3928271](https://www.taiwannews.com.tw/en/news/3928271)
-
-川普政府推動台灣加入WHA
-
-[https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/](https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/)
-
-#TweetForTaiwan
-
-> Join us to [#TweetforTaiwan](https://twitter.com/hashtag/TweetforTaiwan?src=hash&amp;ref_src=twsrc%5Etfw)'s inclusion at the upcoming World Health Assembly so [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) can bring its incredible expertise to the fight against [#Covid19](https://twitter.com/hashtag/Covid19?src=hash&amp;ref_src=twsrc%5Etfw). The world needs Taiwan in this fight! Tell [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) that it is time for Taiwan to be heard.
-> — IO Bureau @ State (@State\_IO) [May 1, 2020](https://twitter.com/State_IO/status/1256283538481086466?ref_src=twsrc%5Etfw)
+翻譯報道：Sonya
 
 0
