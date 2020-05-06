@@ -1,51 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯里兰卡的裴伟士和他的同事潘烈文
-`2020-05-05 18:38 GM06` [轉載自GNews](https://gnews.org/zh-hant/194873/)
+## 【世界多語言圖文】03/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-05 20:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/195029/)
 
-作者:立武
+**戰友之家圖文摘要組及小語種組**
 
-5月2日，郭文贵先生提到了香港的P3实验室和一个叫Malik的人物。
+[English\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)
 
-**Malik Peiris****（中文名：裴伟士）是一名斯里兰卡的微生物学家、病理学家，他被誉为第一位分离出****SARS****病毒的人。**他担任过或在担任香港大学巴斯德研究中心的联席总监、香港大学世卫H5参考实验室的联席总监以及香港大学公共卫生学院的病毒学系主任等等。
+[French\_0503\_CCP\_Virus\_Updates\_-\_Copie-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)
 
-世卫于2004年成立H5参考实验室网络以应对H5N1带来的挑战，港大H5参考实验室是其创始成员之一，**时任WHO总干事陈冯富珍以及Malik参加了揭幕仪式。**
+[German\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05183245/1-30.jpg)
+[Japanese\_0503\_CCP\_Virus\_Updates1-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)
 
-Malik之前也曾是WHO的免疫专家战略咨询专家组的一员，在WHO多个委员会中服务，并代表WHO调查在中国大陆的H7N9甲型流感和在韩国以及沙特的MERS。
-
-**他研究涵盖流感病毒的发病机制、先天免疫应答、传播模式、流行病学等等。**
-
-他同时也是美国国立卫生研究院NIAID流感监测与研究中心（CEIRS）计划的研究员，该计划旨在应对流感大流行的威胁。**NIAID****现在的主管是臭名昭著的****Fauci****博士。**
-
-**他还是《柳叶刀传染病》的编委。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05183325/2-27.jpg)
-1981年，他在英国获得D.Phil学位，他的学位论文的一个主要方面就是，**抗体可能在促进而不是阻止病毒进入巨噬细胞中发挥了自相矛盾的作用。**
-
-1995年，他在香港大学下属的玛丽医院建立了临床和公共卫生病毒学的实验室。
-
-1997年，香港首次爆发人类H5N1禽流感病毒，**Peiris****教授的实验室研究关注到了“细胞因子风暴”，它被认为是禽流感病毒发病机理的主要机制。**
-
-2003年，他的实验室分离出了SARS的病原体，6月份，他的实验室及其合作者已经使用实时PCR来诊断SARS。
-
-2020年，他声称一只博美犬被新冠病毒感染。
-
-郭文贵先生提到的另一位poon博士可能是香港大学公共卫生学院的Leo Poon（潘烈文）博士，他是研究从动物到人类传播的病毒性疾病全球领先的科学家之一，**而前面提到的****Malik Peiris****则是他学术和科学事业中具有影响力的导师、同事和合作者，他们一起在《自然科学》杂志上发表了关于新冠病毒的研究论文。**
-
-他是多个国际组织的病毒学专家、WHO流感病毒分子诊断工作小组的专家之一等等。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05183406/3-22.jpg)
-
-他同样也以首席研究员的身份获得过美国国立卫生研究院资助的研究项目。
-
-2003年，Poon博士是最先破解首个非典型肺炎冠状病毒序列的人，**他甚至扩展研究范围，在野生动物身上寻找新的病毒品种，最后在蝙蝠身上发现有关的冠状病毒。**
-
-2009年，他在参与对抗H1N1的工作中，**发现新****H1N1****病毒首次在猪只身上重排。**
-
-2020年，他和Malik博士在柳叶刀上发布通讯，阐述了对新冠病毒在不同材料表面上存活时间的研究。**从上面两个人的相关资料可以看出：他们的研究方向是和新冠病毒的特性紧密相连的，包括抗体促进作用、细胞因子风暴、动物体内重组等等，他们的研究项目也常常受到一些组织的资助，包括WHO、NIH等等，这就将中共与此次疫情关键的组织联系起来。Malik博士和Poon博士在SARS期间异于常人的表现使得他们受到关注，也因此在学术圈确立了地位，但事情可能不仅仅局限于学术领域。郭文贵先生在直播中同时还透露这几个香港实验室的前三号人物都来自斯里兰卡，全是共产主义绝对的极端主义者。**
-
-(文章内容仅代表作者观点)
+[Spanish0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)
 
 0

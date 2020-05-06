@@ -1,45 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統在Honeywell亞利桑那的口罩生產廠的講話概要（2020.5.4）
-`2020-05-05 23:39 GM31` [轉載自GNews](https://gnews.org/zh-hant/195151/)
+## 美國政要推文選譯
+`2020-05-06 00:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/195190/)
 
-1. 川普總統的講話在Lee Greenwood的《God Bless the USA》 歌聲中開始，他首先表達了對亞利桑那州的喜愛。聽眾熱情歡呼。
+> Bring our drug production back to 🇺🇸 for National Security. [@Rosemary100](https://twitter.com/Rosemary100?ref_src=twsrc%5Etfw) thank you for your steadfast work on this vital supply chain move out of china. Our country owes you a debt of gratitude. [#gratitude](https://twitter.com/hashtag/gratitude?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/OgsPMPcE2T](https://t.co/OgsPMPcE2T)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 5, 2020](https://twitter.com/Jkylebass/status/1257514583452983298?ref_src=twsrc%5Etfw)
 
-2. 謝謝你們生產的高質量N95口罩。這裡生產的口罩不像有些其他國家生產的劣質口罩。口罩能保護我們的醫護人員和看不見的敵人戰鬥。
+卡爾·巴斯先生：為了國家安全將藥品生產搬回美國。Rosemary，謝謝妳這麽堅定地致力於將重要物資供應鏈移出中國的工作。我們的國家應該向妳表示感謝。
 
-3. 謝謝Honeywell的人員一週工作6天。
+Rosemary Gibson（《中國處方：揭露美國醫藥依賴中國的風險》作者，獨立生物倫理研究中心、智庫海斯汀中心高級顧問）：好消息！皮特·納瓦羅：美國衛生及公共服務部（HHS）、國防部（DoD）和聯邦緊急事務管理署（FEMA）將很快發布美國制造產品規定
 
-4. 我們要對付的敵人是個惡毒的、聰明的敵人。這裡工作的愛國者們把自己的心血都放到生產的產品裡了，國家為你們驕傲。
+> Congratulations [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw) on your Pulitzer Prize. Your incredible photographs unveiled the Chinese government's brutality and rallied the world in support of Hong Kong's freedom fighters. [https://t.co/LQx7Ng2pdJ](https://t.co/LQx7Ng2pdJ)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 5, 2020](https://twitter.com/MarshaBlackburn/status/1257690142317428738?ref_src=twsrc%5Etfw)
 
-5. 提名感謝Honeywell的每個領導人員。
+參議員 Marsha Blackburn：祝賀路透社獲得普利策獎。妳們超贊的照片揭露了中共政府的殘暴，並聯合了世界支持香港自由鬥士。
 
-6. 通常用9個月才能建成這樣的工廠，但是Honeywell只用了5週就建成了。Honeywell在亞利桑那創造了500個新就業崗位，在羅德島有500個新崗位。很快這些新工廠就能每個月生產兩千多萬的N95口罩，這是奇蹟般的成就。
+> Everyone knows the Chinese Internet is censored and unrepresentative of the Chinese people—but the media can’t pass up an opportunity to “roast” the president, even if it means publishing CCP propaganda. Shameful. [https://t.co/19ce4KUYcY](https://t.co/19ce4KUYcY)
+> — Tom Cotton (@SenTomCotton) [May 5, 2020](https://twitter.com/SenTomCotton/status/1257729544162861058?ref_src=twsrc%5Etfw)
 
-7. 謝謝勞工部部長Eugene Scalia和州長Doug Ducey。州長已經贏得了競選勝利，所以我就不用太誇他了。他和我經常打電話，因為他是個幹實事的州長。
+參議員 Tom Cotton：眾所周知中國的互聯網有防火墻，並不體現中國民意——但媒體就是不放過任何機會“烤”總統，哪怕這是替中共做宣傳。可恥。
 
-8. 謝謝參議員Martha McSally (注：共和黨)是非常棒的人。她為了揭露中國問題（”China Situation“）和世衛組織（WHO）對疫情的處理中的問題，努力地抗爭，必須讓他們增加透明度和負責任。McSally議員給亞利桑那州的經濟做了很多貢獻，州長感激她，我也感激她。
+> Arkansans are grateful for the donation of 100k medical masks from the people of Taiwan, a true friend of the United States. Thank you! [https://t.co/sEsPBYZwRS](https://t.co/sEsPBYZwRS)
+> — Tom Cotton (@SenTomCotton) [May 6, 2020](https://twitter.com/SenTomCotton/status/1257828505888448518?ref_src=twsrc%5Etfw)
 
-9. 謝謝來自Sammy’s Mexican Grill in Catalina，要請他們上台講幾句。我在電視裡看見過他們，當時他們講疫情使他們很絕望，然後我在一個Tweet裡說他們是多麼好的一群人吶 （[https://twitter.com/realDonaldTrump/status/1234134094797295617](https://twitter.com/realDonaldTrump/status/1234134094797295617)），然後他們就發財了，因為排隊去買吃的人排長龍直到街角。
+參議員 Tom Cotton：阿肯色人感謝臺灣人民捐贈的10萬醫用口罩，他們是美國真正的朋友。謝謝！
 
-10. Sammy’s Mexican Grill in Catalina的一對男女上台分別用英語和西班牙語講話，說我們西語裔人喜歡你，我們所有西語裔都會選你。
+> NSC Deputy National Security Adviser Matt Pottinger gives an important speech in Chinese on the hero doctors of Wuhan who sounded the alarm on the virus [https://t.co/Mh08aYl5sx](https://t.co/Mh08aYl5sx)
+> — Bill Gertz (@BillGertz) [May 5, 2020](https://twitter.com/BillGertz/status/1257688445411037193?ref_src=twsrc%5Etfw)
 
-11. 為了應對這個疫情，我們用了國家戰時生產法案，生產了特別多的呼吸機。我們現在可以用多餘的呼吸機援助其他國家。我們自二次世界大戰以來沒有做過這樣的事情。我們在醫藥研究上也有巨大進展。Johnson&Johnson的研究也進展很好。
+比爾·格茨先生：國家安全委員會副國家安全顧問博明用中文發表關於發出病毒預警的武漢英雄醫生重要演講。
 
-12. FAMA和HHS給我們的前線人員送了大量物資。Honeywell為此做了很大貢獻。布魯諾從波音來到Honeywell工作，他上來說兩句。布魯諾講話。
+《華盛頓時報》：白宮罕見地用中文演講，向揭露冠狀病毒的醫生致敬
 
-13. 空軍退伍軍人、阿富汗、伊拉克戰爭服過役的Ursula Warner上台講話。空軍服役了20多年後退休，然後就發生了疫情，決定到Honeywell工作為國家繼續工作。
+> U.S. intelligence not involved or aware of allies' "Five Eyes" China report disclosed in Aussie newspaper.[https://t.co/BaUcdEjhE0](https://t.co/BaUcdEjhE0)
+> — Rowan Scarborough (@RoScarborough) [May 5, 2020](https://twitter.com/RoScarborough/status/1257716433028612096?ref_src=twsrc%5Etfw)
 
-14. 海軍陸戰隊退伍老兵Eric Parks，也是Honeywell的經理，上台講話。媽媽和家裡很多人都是護士或軍人，家族傳統是為國家服務。
+比爾·格茨先生 轉推：
 
-15. 總統：這個可怕的瘟疫給我們人民帶來了巨大的艱難困苦，我們要為死難者哀悼，我們要一起肩負重擔，團結得像一家人。謝謝我們偉大的人民使疫情得到延緩。我們現在要重啓美國。
+Rowan Scarborough：美國情報機構沒有參與或不知道澳洲報紙披露的“五眼聯盟”中國報告。
 
-16. 回憶疫情前的經濟輝煌，然後疫情突如其來，就必須關門了，這是為了救人命必須做的，我們的第四季度和明年經濟會特別輝煌。
+《華盛頓時報》：報告顯示，中國故意銷毀實驗室證據，讓“吹哨人”消失
 
-17. 這次疫情向我們證明了，自己國家自己生產產品的重要性。美國大約250年前就宣布獨立了，但是前幾十年的華盛頓政治家們卻把我們的獨立性喪失了，都挪到了海外。我們現在就把它挪回來了。我們要使醫藥和重要物資都在美國生產（Made in old good USA)。我這屆政府有兩個基本原則：買美國東西、雇美國人（Buy American, Hire American）。
+> In a post-[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) world, lots of things will change. One of them should be this: the WTO should be abolished. The global economy needs reform top to bottom to stop [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & secure the needs of American families & workers [https://t.co/ozWcomm54q](https://t.co/ozWcomm54q)
+> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257635105192980480?ref_src=twsrc%5Etfw)
 
-18. Honeywell的工人在20世紀使美國成為最偉大的生產型大國，現在21世紀你們從新找回了偉大的傳統、譜寫了新時代的篇章。你們有偉大的州長和參議員領導你們。是Honeywell的工匠精神使Charles Lindbergh飛越了大西洋，使Amelia Earhart打破天空的界限。是Honeywell生產的潜望镜、自動駕駛等技術使我們打敗暴政，取得二次世界大戰的勝利。是我們Honeywell這裡不可戰勝的工人幫助我們勇敢的宇航員把美國國旗插到了月球上。我們很快會以月球為支點飛向火星。現在又一次我們Honeywell的工人生產 “兵器” 和 “鎧甲” 給我們的勇士來戰勝這個看不見的強硬和“聰明”的敵人。但是沒有什麼敵人比我們更加強硬和更加聰明。我們國家的勇士們，有你們的幫助，我們能消滅病毒、重建偉大和輝煌，用美國的心、美國的手、美國的驕傲和美國的靈魂。謝謝你們偉大的工作和亞利桑那的偉大人民和領袖，我們不會忘記你們做的事情。
+參議員 Josh Hawley：當世界爆發冠狀病毒疫情後，很多事情都要改變。其中壹個應該是：世貿組織應該被廢除。全球經濟需要徹頭徹尾的改革才能制止中國經濟帝國主義，並保障美國家庭和工人的需要。
 
-翻譯總結:【Michelle】
+《紐約時報》：觀點｜世貿組織應該被廢除
 
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) not happy about my call to confront their economic imperialism by ending the WTO & replacing it with system that’s good for American workers. I love being insulted by [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state-run press [https://t.co/z7Y887ztvf](https://t.co/z7Y887ztvf)
+> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257669494312443905?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：我呼籲終結世貿組織並用對美國工人有利的系統代替它，以此對抗中國的經濟帝國主義，中國對此不高興了。我很享受被中國國營媒體詬病的感覺。
+
+陳偉華：有時好奇為什麽《紐約時報》會發表無知政客寫的這種評論文章。就因為他是參議員？
+
+> I called for [@potus](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to replace those responsible for the decision to invest federal retirement savings in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). 
+> 
+> Yesterday, he did so. 
+> 
+> New board members should make reversing this shortsighted move their first priority. [https://t.co/jnBkQrdRYx](https://t.co/jnBkQrdRYx)
+> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1257853161236242432?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：我呼籲總統先生撤換那些決定將聯邦退休基金投入中國的責任人。昨天他這樣做了。新的董事會成員應該將扭轉這壹短視決定作為其首要任務。
+
+路透社：白宮新的人事任命可能影響退休基金投資中國的決定
+
+> Communist China is determined to increase their control over as much of the world as they can, even if it means using a devastating pandemic as an opportunity to do so.
+>  
+> We can’t turn a blind eye to Communist China. [https://t.co/wjdQrC9FX7](https://t.co/wjdQrC9FX7)
+> — Rick Scott (@SenRickScott) [May 5, 2020](https://twitter.com/SenRickScott/status/1257687888273309697?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：中共國決意要竭盡所能地擴大它對世界的掌控，即使這意味著利用壹種毀滅性的疾病大流行來達到目的。我們不能再對中共國熟視無睹了。
+
+Britbart新聞：美國國防部長埃斯珀表示，俄羅斯和中國將歐盟冠狀病毒緊急狀況視作擴大兩國利益的機會
+
+> ”Economic destruction and the U.S. coronavirus death toll are driving a government-wide push to move U.S. production and supply chain dependency away from China,” [https://t.co/7yE3dAvZF9](https://t.co/7yE3dAvZF9)
+> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257873841612820480?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“經濟重創和美國冠狀病毒死亡人數正帶動整個政府推進讓美國生產和供應鏈擺脫對中國的依賴。”
+
+Dailywire網：川普加速推動將中國從全球供應鏈中移除，並建立新的集團
+
+> There’s no such thing as privately held in China. The CCP controls all. [https://t.co/FtJFGrYh85](https://t.co/FtJFGrYh85)
+> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257880166732357633?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中國沒有所謂的私有公司。中共控制著壹切。
+
+《經濟學家》雜誌：中國有206家市值十億美元或更多的私有公司，比其他任何國家都多。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000751/07_55.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000756/image0-2-2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000804/image0-6-2.jpg)
 0

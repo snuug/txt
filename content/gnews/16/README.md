@@ -1,93 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯
-`2020-05-06 00:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/195190/)
+## 世衛助理總幹事艾爾沃德博士欠加拿大人一個解釋
+`2020-05-06 00:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195210/)
 
-> Bring our drug production back to 🇺🇸 for National Security. [@Rosemary100](https://twitter.com/Rosemary100?ref_src=twsrc%5Etfw) thank you for your steadfast work on this vital supply chain move out of china. Our country owes you a debt of gratitude. [#gratitude](https://twitter.com/hashtag/gratitude?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/OgsPMPcE2T](https://t.co/OgsPMPcE2T)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 5, 2020](https://twitter.com/Jkylebass/status/1257514583452983298?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05234512/Picture-1-60.png)
+據加拿大國家郵報近日報導，參與共同領導世衛組織此次CCP病毒任務組的布魯斯·艾爾沃德博士(Dr. Bruce Aylward)，應該認真面對’加拿大議會健康委員會'(Canadian Parliamentary Health Committee ) 提出的讓他出席聽證會的強烈要求。
 
-卡爾·巴斯先生：為了國家安全將藥品生產搬回美國。Rosemary，謝謝妳這麽堅定地致力於將重要物資供應鏈移出中國的工作。我們的國家應該向妳表示感謝。
+首先艾爾沃德是加拿大人，而目前為止已經有四千多個加拿大人死於CCP 病毒。其次，艾爾沃德毫無疑問是加拿大人中，最了解世衛組織是如何處理這次疫情的。再來，艾爾沃德自1992年加入世衛以來已經晉升到了頂級管理層職位，但他的首要責任是為他的祖國加拿大負責，而非他的雇主或他自己的偏好。
 
-Rosemary Gibson（《中國處方：揭露美國醫藥依賴中國的風險》作者，獨立生物倫理研究中心、智庫海斯汀中心高級顧問）：好消息！皮特·納瓦羅：美國衛生及公共服務部（HHS）、國防部（DoD）和聯邦緊急事務管理署（FEMA）將很快發布美國制造產品規定
+越來越多的證據表明世衛組織非常不情願讓艾爾沃德參加加拿大渥太華的聽證會，哪怕是反复要求的一個小時的會議時間，都被世衛百般阻撓。這已經完全不能用排期不當或者太忙碌來搪塞了，而是在玩政治遊戲。事實上艾爾沃德在四月初就應該接受質詢，但最後被他取消了。健康委員會接著發出了第二次邀請，而世衛的律師稱他還是不會參加。世衛告訴健康委員會可以用書面形式遞交要問的問題，然後世衛會選擇回答覺得合適的問題。
 
-> Congratulations [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw) on your Pulitzer Prize. Your incredible photographs unveiled the Chinese government's brutality and rallied the world in support of Hong Kong's freedom fighters. [https://t.co/LQx7Ng2pdJ](https://t.co/LQx7Ng2pdJ)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 5, 2020](https://twitter.com/MarshaBlackburn/status/1257690142317428738?ref_src=twsrc%5Etfw)
+這種不負責任的態度讓一向彬彬有禮的加拿大人都覺得太過分了，因此在上個星期，委員會罕見地一致同意要求‘傳喚’艾爾沃德回到加拿大出席聽證。加拿大新民主黨議員唐·戴維斯 (Don Davies) 稱，加拿大是世界衛生組織的一員，我認為世衛的運作應對其成員負責和透明。請注意加拿大在處理此問題上採取的明智及謹慎的舉動，與世衛對於讓艾爾沃德開口發聲的恐懼形成了鮮明的對比，我們有理由相信這背後有中共的做賊心虛並暗中操控。
 
-參議員 Marsha Blackburn：祝賀路透社獲得普利策獎。妳們超贊的照片揭露了中共政府的殘暴，並聯合了世界支持香港自由鬥士。
+報導還指出，作為世衛團隊的負責人，艾爾沃德曾經帶隊前往中共國調查CCP病毒爆發的起因，所以他應該有自己獨到且有價值的見解。艾爾沃德曾經接受過媒體專訪，居然讚揚了中共在病毒爆發時採取的措施，但在回應台灣問題時卻回答得無技巧可言。大家都知道由於政治原因，中共拒絕接受台灣作為世界衛生組織的成員。
 
-> Everyone knows the Chinese Internet is censored and unrepresentative of the Chinese people—but the media can’t pass up an opportunity to “roast” the president, even if it means publishing CCP propaganda. Shameful. [https://t.co/19ce4KUYcY](https://t.co/19ce4KUYcY)
-> — Tom Cotton (@SenTomCotton) [May 5, 2020](https://twitter.com/SenTomCotton/status/1257729544162861058?ref_src=twsrc%5Etfw)
+新民主黨議員戴維斯表示：“對於我而言這無關政治，也沒興趣鑽研世衛的政治問題， 我只單純地關心與這個病毒相關的信息還有他們是如何應對這場危機的。”世衛讓艾爾沃德保持沉默說明其在很大程度上有轉移目標的嫌疑。世衛的律師在拒絕委員會第二次邀請的時候提到“世衛的專家通常不參加其成員國的聽證，也不參與他們提出來的調查”。但是這不是一次尋常的衛生狀況，民主政府面對的是生死攸關的現實。
 
-參議員 Tom Cotton：眾所周知中國的互聯網有防火墻，並不體現中國民意——但媒體就是不放過任何機會“烤”總統，哪怕這是替中共做宣傳。可恥。
+評：
 
-> Arkansans are grateful for the donation of 100k medical masks from the people of Taiwan, a true friend of the United States. Thank you! [https://t.co/sEsPBYZwRS](https://t.co/sEsPBYZwRS)
-> — Tom Cotton (@SenTomCotton) [May 6, 2020](https://twitter.com/SenTomCotton/status/1257828505888448518?ref_src=twsrc%5Etfw)
+自CCP 病毒爆發後，外界對世衛的處理方式和中共隱瞞疫情的質疑越來越強烈。加拿大國會衛生委員會的邀請僅僅是希望說明疫情問題，艾爾沃德卻兩度缺席。這足已以證明中共已經完全操控世衛，世衛自疫情以來的跪舔中共行為有目共睹。世衛已不再是一個獨立的國際組織，加拿大應該和美國，澳洲還有其他盟國一起聯合譴責中共嚴重違反國際秩序，隱瞞疫情，導致病毒擴散全球。
 
-參議員 Tom Cotton：阿肯色人感謝臺灣人民捐贈的10萬醫用口罩，他們是美國真正的朋友。謝謝！
+[原文鏈接](https://nationalpost.com/opinion/kelly-mcparland-the-who-and-dr-aylward-owe-canadians-honest-answers)
 
-> NSC Deputy National Security Adviser Matt Pottinger gives an important speech in Chinese on the hero doctors of Wuhan who sounded the alarm on the virus [https://t.co/Mh08aYl5sx](https://t.co/Mh08aYl5sx)
-> — Bill Gertz (@BillGertz) [May 5, 2020](https://twitter.com/BillGertz/status/1257688445411037193?ref_src=twsrc%5Etfw)
+翻譯報導：理查德
 
-比爾·格茨先生：國家安全委員會副國家安全顧問博明用中文發表關於發出病毒預警的武漢英雄醫生重要演講。
-
-《華盛頓時報》：白宮罕見地用中文演講，向揭露冠狀病毒的醫生致敬
-
-> U.S. intelligence not involved or aware of allies' "Five Eyes" China report disclosed in Aussie newspaper.[https://t.co/BaUcdEjhE0](https://t.co/BaUcdEjhE0)
-> — Rowan Scarborough (@RoScarborough) [May 5, 2020](https://twitter.com/RoScarborough/status/1257716433028612096?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生 轉推：
-
-Rowan Scarborough：美國情報機構沒有參與或不知道澳洲報紙披露的“五眼聯盟”中國報告。
-
-《華盛頓時報》：報告顯示，中國故意銷毀實驗室證據，讓“吹哨人”消失
-
-> In a post-[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) world, lots of things will change. One of them should be this: the WTO should be abolished. The global economy needs reform top to bottom to stop [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & secure the needs of American families & workers [https://t.co/ozWcomm54q](https://t.co/ozWcomm54q)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257635105192980480?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：當世界爆發冠狀病毒疫情後，很多事情都要改變。其中壹個應該是：世貿組織應該被廢除。全球經濟需要徹頭徹尾的改革才能制止中國經濟帝國主義，並保障美國家庭和工人的需要。
-
-《紐約時報》：觀點｜世貿組織應該被廢除
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) not happy about my call to confront their economic imperialism by ending the WTO & replacing it with system that’s good for American workers. I love being insulted by [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state-run press [https://t.co/z7Y887ztvf](https://t.co/z7Y887ztvf)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257669494312443905?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：我呼籲終結世貿組織並用對美國工人有利的系統代替它，以此對抗中國的經濟帝國主義，中國對此不高興了。我很享受被中國國營媒體詬病的感覺。
-
-陳偉華：有時好奇為什麽《紐約時報》會發表無知政客寫的這種評論文章。就因為他是參議員？
-
-> I called for [@potus](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to replace those responsible for the decision to invest federal retirement savings in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> Yesterday, he did so. 
-> 
-> New board members should make reversing this shortsighted move their first priority. [https://t.co/jnBkQrdRYx](https://t.co/jnBkQrdRYx)
-> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1257853161236242432?ref_src=twsrc%5Etfw)
-
-參議員 Marco Rubio：我呼籲總統先生撤換那些決定將聯邦退休基金投入中國的責任人。昨天他這樣做了。新的董事會成員應該將扭轉這壹短視決定作為其首要任務。
-
-路透社：白宮新的人事任命可能影響退休基金投資中國的決定
-
-> Communist China is determined to increase their control over as much of the world as they can, even if it means using a devastating pandemic as an opportunity to do so.
->  
-> We can’t turn a blind eye to Communist China. [https://t.co/wjdQrC9FX7](https://t.co/wjdQrC9FX7)
-> — Rick Scott (@SenRickScott) [May 5, 2020](https://twitter.com/SenRickScott/status/1257687888273309697?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：中共國決意要竭盡所能地擴大它對世界的掌控，即使這意味著利用壹種毀滅性的疾病大流行來達到目的。我們不能再對中共國熟視無睹了。
-
-Britbart新聞：美國國防部長埃斯珀表示，俄羅斯和中國將歐盟冠狀病毒緊急狀況視作擴大兩國利益的機會
-
-> ”Economic destruction and the U.S. coronavirus death toll are driving a government-wide push to move U.S. production and supply chain dependency away from China,” [https://t.co/7yE3dAvZF9](https://t.co/7yE3dAvZF9)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257873841612820480?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“經濟重創和美國冠狀病毒死亡人數正帶動整個政府推進讓美國生產和供應鏈擺脫對中國的依賴。”
-
-Dailywire網：川普加速推動將中國從全球供應鏈中移除，並建立新的集團
-
-> There’s no such thing as privately held in China. The CCP controls all. [https://t.co/FtJFGrYh85](https://t.co/FtJFGrYh85)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257880166732357633?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中國沒有所謂的私有公司。中共控制著壹切。
-
-《經濟學家》雜誌：中國有206家市值十億美元或更多的私有公司，比其他任何國家都多。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000751/07_55.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000756/image0-2-2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000804/image0-6-2.jpg)
-0
+1

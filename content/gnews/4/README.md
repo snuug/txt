@@ -1,37 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普提案要求WHO將台灣納入世界衛生組織
-`2020-05-06 07:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195397/)
+## 中共病毒會懷孕，生仔，變異
+`2020-05-06 07:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195439/)
 
-![Donald Trump Angers China With Call to Taiwan President | Time](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06070203/1-36.png)
-據報導指出:川普領導的美國政府正在向世界衛生組織(WHO)提案，要求將台灣納入其組織。根據美國的表示，目前的WHO由於過度親共的緣故已經淪為共產衛生組織CHO (Communism Health Organization)。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06071848/1-34.jpg)
+據零對沖報道，來自洛斯阿拉莫斯國家實驗室的一項新研究顯示現在最流行的一種中共病毒是全新的，該菌株更具傳染性。 同時，美國的醫生想知道受災最重的東海岸是否受到與西海岸的中共病毒是否一樣。
 
-隨著川普總統加大對中共在處理中共病毒上的抨擊力道，福克斯新聞於本周一引述內府消息人士的資訊表示：美國政府正在推行一項能讓台灣重獲WHA觀察員身分的草案。根據多方媒體消息，目前澳洲已表態支持該項提案，而美國政府目前正尋德法英等國的支持。而白宮也將此提案描述為 “懲罰WHO過度親中的舉動”。
+新菌株於2月初出現，從歐洲傳輸到美國東海岸，從3月中旬開始成為全球的主要菌株。 無論新菌株出現在何處，其感染人數都比中國武漢市出現的早期菌株要多許多。 僅在數周內，它成為某些國家中最流行的中共病毒。
 
-周日（5月3日）的福克斯新聞中，川普總統表示他正在認真考慮停止捐助資金到WHO，因為WHO在面對這次中共病毒疫情時的處置是毫無作為的，且該組織作出的最大貢獻是極力的配合中共掩飾太平。美國國務院同時還發起了#TweetForTaiwan活動，呼籲台灣能夠加入世界衛生組織理事機構世界衛生大會（WHA）。
+該研究報告警告，該版本菌株除了傳播得更快以外，它還可能使人們在第一次感染該疾病後容易受到第二次感染。
 
-而在上周六，美國國際組織事務局的Twitter帳戶也發起呼籲世界支持台灣加入即將舉行的世界衛生大會，期許台灣能夠將“令人難以置信的專業知識用於打擊COVID-19”。並且聲明提到，世界在抗擊該疾病方面需要台灣的幫助，並呼籲世界衛生組織：“現在是時候讓台灣的聲音被聽到。”
+該報告基於對來自德國的全球共享所有感染數據全球倡議所收集的6,000多個冠狀病毒樣本的計算分析。洛斯阿拉莫斯計算生物學家貝特•科伯說：「這個事情令人擔憂，因為我們看到這種病毒的突變形式正在迅速出現，並在三月份成為主要的大流行形式。具有這種突變的病毒進入人群後，它們會迅速開始佔領當地的感染者，因此更易於傳播。」
 
-美國駐聯合國代表團（USUN）也在推特上表示支持台灣，並表示禁止台灣進入聯合國是“不僅對自豪的台灣人民的侮辱，而且是對聯合國原則的侮辱”。多位美國官員和國會議員隨即也跟進發佈推文表態支持，包含了美國國際開發署（USAID）執行官約翰·巴爾薩（John Barsa），參議員馬可·魯比奧（Marco Rubio）和國會議員邁克爾·麥考爾（Michael McCaul）等人。
+據報道，新菌株首次在義大利出現，幾乎與原始武漢菌株同時出現。 到3月15日，突變株已佔主導。 在紐約也看到了同樣的情況，該病毒在3月15日左右感染者為原始武漢菌株，但幾天之內就被新病毒所覆蓋。作者還警告說，如果大流行在夏季沒有像大多數病毒一樣緩解，那麼，大流行可能會發生進一步的突變。
+即使新的毒株不再比其他毒株更危險，它仍會使控制大流行的努力複雜化。 如果這種突變使病毒與以前的病毒株大不相同，以至於對它們具有免疫力的人無法免疫新病毒，那將是一個問題。
 
-而台灣外交部（MOFA）也隨即回應了USUN的推文，指出聯合國成立的本意是為了保護所有國家，無論大小；將台灣排除在聯合國及其機構之外是“自欺欺人，只會削弱國際大家庭”。
 
-**翻譯報導:****Baiyßaisdar**
 
-**相關聯結:**
+[原文鏈接](https://www.zerohedge.com/health/coronavirus-mutates-now-dominant-more-contagious-form-doctors-ponder-east-coast-vs-west)
 
-川普提案要求WHO將台灣納入世界衛生組織
+評：摘自2020年04月22郭文貴先生GTV直播
+這咱們12月底、一月初就告訴你了，那不是我郭文貴預測，我不是先知。我和你們一模一樣，我比你們很多人笨得多，我不是謙虛。原因很簡單，就是因為咱有內部戰友的情報，還有文貴幾十年對共產黨的了解。還有無數個戰友給的情報。我們煙台的老鄉，我們的大校，能舍一家性命，能告訴我們香港要戒嚴，他救了多少人！那不是文貴能蒙出來的，那時候我就說對香港要採取准化學式武器，那也不是我能蒙出來的。包括大家都忘掉了一個最核心的幾個重要的點，其中我們講到，共產黨常委會上說，務必保持美國在五六月份疫情的高峰期，這是常委會的絕密，國家安全委員會的絕密。
 
-[https://www.taiwannews.com.tw/en/news/3928271](https://www.taiwannews.com.tw/en/news/3928271)
+為什麼它能保持美國疫情高峰期，讓美國回來跪在地下求中共。他如果不能控制病毒他就沒能力控制你高峰和低峰。這是個基本的常識，也不是我猜的、也不是我蒙的，我也蒙不了，蒙要付多大責任呢？包括買口罩，大家記得我戴的那黑口罩了嗎？我告訴大家，我說這是戰略儲備口罩，因為我們最早了解買口罩的全是共產黨最核心的部門和國家的核心機構以及幾個所謂的白手套買走的。他告訴你人不傳人，他幹嘛把你口罩全買走？他告訴你你家不會著火，但是他卻把你家所有消防滅火器全拿走了，結果你家著火了。你說他是想殺你呢還是他想倒賣滅火器呢？當然不是倒賣滅火器，這是個基本的常識。
 
-川普政府推動台灣加入WHA
+署名：Longwood
 
-[https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/](https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/)
 
-#TweetForTaiwan
-
-> Join us to [#TweetforTaiwan](https://twitter.com/hashtag/TweetforTaiwan?src=hash&amp;ref_src=twsrc%5Etfw)'s inclusion at the upcoming World Health Assembly so [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) can bring its incredible expertise to the fight against [#Covid19](https://twitter.com/hashtag/Covid19?src=hash&amp;ref_src=twsrc%5Etfw). The world needs Taiwan in this fight! Tell [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) that it is time for Taiwan to be heard.
-> — IO Bureau @ State (@State\_IO) [May 1, 2020](https://twitter.com/State_IO/status/1256283538481086466?ref_src=twsrc%5Etfw)
 
 0
