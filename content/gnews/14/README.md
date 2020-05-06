@@ -1,57 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 论气候的骤变和共产党必然灭亡
-`2020-05-05 18:22 GM06` [轉載自GNews](https://gnews.org/zh-hant/194808/)
+## 【世界多語言圖文】03/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-05 20:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/195029/)
 
-作者：文茗
+**戰友之家圖文摘要組及小語種組**
 
-5月4日，黑龙江气温剧降，立夏前一天哈尔滨竟下起了雪。
+[English\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204445/English_0503_CCP_Virus_Updates-2.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05180645/1-28.jpg)
+[French\_0503\_CCP\_Virus\_Updates\_-\_Copie-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204457/French_0503_CCP_Virus_Updates_-_Copie-2.pdf)
 
-也只是相隔10多天前的4月20日黑龙江刚经历了暴雪，很多市民大门被积雪堵住，只能翻窗爬出。同时还有吉林省白城市、齐齐哈尔同时也下起了鹅毛大雪。
+[German\_0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204508/German_0503_CCP_Virus_Updates-2.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05180727/2-19.png)
+[Japanese\_0503\_CCP\_Virus\_Updates1-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204518/Japanese_0503_CCP_Virus_Updates1-2.pdf)
 
-这样的气候不免让人摸不着头脑，联系去年澳大利亚的森林火灾、巴基斯坦等国出现的蝗灾等等一系列极端现象。可以肯定地球进入了新的一个小冰河期。
-
-根据美国国家航空航天局（NASA）的预测，到2020年，太阳将达到近200年活动最低迷的时期。英国诺森比亚大学的Valentina Zharkova表示，太阳正接近冬眠期，太阳表面形成的太阳这标志着太阳活动达到一个极小值，预计全球平均气温将下降高达1秒钟。黑子将减少，因此太阳向地球发射的能量和辐射将大大减少。这些科学家论证已经可以肯定经历了2019到2020年的拉妮娜气候期的极端天气形态之后地球在正在进入一个新的小冰河期。
-
-小冰河期将导致地球气温大幅度下降，使全球粮食大幅度减产，由此引发社会剧烈动荡，人口锐减。小冰河期的另一特色是天气变异相当大，亦即极端天气发生的频率较高。中英格兰的气象资料显示，在1659-1979年之间，最冷及最热的冬天与夏天多发生在小冰河期。伦敦的泰晤士河河面在1664-1665到1813-1814之间结冻20-22次，伦敦市民甚至在冰冻的河面上举办舞会等活动。此段期间，荷兰的运河也经常结冰。冰雪覆盖的地貌成为常态，也因之成为画家笔下常见的景色。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05180838/3-20.jpg)
-四次小冰河期在中国历史上都引发了大规模的社会动乱和变迁。
-
-1。 殷商末期到西周初年是第一次小冰河期，经历了温暖周期的仰韶文化时期（仰韶暖期）之后进入商末的小冰河期，气候的变化导致的直接结果就是殷商的灭亡。
-
-2    “秦汉暖期”可以说孕育了华夏民族最辉煌的历史时段之一，“汉族”这个名字也来自于这个伟大的时代。温润的气候和丰沛的雨量，让中原地区农业、水利蓬勃发展，粮食的丰收导致国家仓库丰盈。
-
-司马迁在《史记·货殖列传》中记载，汉朝的温暖时期，“黄河流域可以生长桔、竹、漆和桑等亚热带经济作物”。这些农作物，已无法适应今天黄河流域的气候条件。
-
-正是凭借“秦汉暖期”的气候，汉朝的政治、经济、文化，达到了中国封建社会的第一个高峰，文景之治相伴而来。
-
-而从汉朝开始的北方游牧民族大量南侵和气候转冷有直接关系，公元前68年，匈奴遭遇了史无前例的雪灾，人畜损失十之六七。这也就是东汉末年、三国、魏晋南北朝冷期经历五、六百年的第二次小冰河期，汉人和北方少数民族连年战争的根本原因之一。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05180937/4-8.jpg)
-
-3   经历了连年的战乱之后中华进入了第三个暖期“隋唐暖期”，这段辉煌的历史深深的烙印在了每一个华夏儿女的内心。
-
-唐朝的温暖环境，经济和国力得到了前所未有的大发展，短短几十年，唐朝就打败了东突厥、吐谷浑、薛延陀、党项、西突厥等一票强人。
-
-而到了唐末、五代、北宋初进入了第三次小冰河期，连年的战乱和寒冷气候引发的蒙古的南侵西征给中华民族造成了无法磨灭的伤痛，每当读到“崖山之后，再无中国。”这段历史我都会蓦然的神伤。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05181029/4-9.jpg)
-4    明末清初是第四次小冰河期。当时气温剧降，造成北方干旱，粮食大量减产，形成几十年的社会剧烈动荡和战乱，长期的饥荒是造成战乱无限制扩大的根本原因。
-
-经历的这几次“小冰河期”中国人口锐减超过五分之四，明末最后一次人口只锐减一半是得益于美洲传来的抗旱高产作物土豆、玉米和红薯救的命。殷商末年和周初的人口变动缺乏史料记载。东汉末，汉族人口是六千万，几十年饥荒和大战乱后到西晋一统时汉族人口仅剩七百七十万。随后又是八王之乱、五胡乱华，中国南北汉族人口仅存四百万。当时人口锐减是相当惊人的。唐末汉族人口也是六千万，至北宋初期只剩两千万。明末汉族人口一亿二千万，至清初社会安定时剩五千多万。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05181122/5-7.jpg)
-
-而今天的中华大地又要经历一次“小冰河期”的折磨，气候极端变化给全球范围的粮食减产奠定了扎实的基础，伴随而来的就是中国北方大面积土地无法耕种，当中国人民连最基本的吃都无法保障的时候就是共产党从这片土地彻底消失之时。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05181200/6-4.jpg)
-川普在林肯纪念堂载入历史的时刻
-
-今天的CCP病毒全球的肆虐，已经彻底警醒了世界，美国已经正式吹响了灭共号角，醒来吧华夏的子民，灭掉共产党，和世界上其他善良的人们共同度过小冰河期的难关。
-
-（文章内容仅代表作者观点）
+[Spanish0503\_CCP\_Virus\_Updates-2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204529/Spanish0503_CCP_Virus_Updates-2.pdf)
 
 0

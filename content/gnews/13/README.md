@@ -1,45 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 子弹上膛-川普总统华盛顿林肯纪念堂宣布“终极制裁”
-`2020-05-05 18:27 GM06` [轉載自GNews](https://gnews.org/zh-hant/194827/)
+## 【世界多語言圖文】04/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-05 20:51 GM10` [轉載自GNews](https://gnews.org/zh-hant/195048/)
 
-作者：背靠背
+戰**友之家圖文摘要組及小語種組**
 
-2020年5月3日，川普总统在华盛顿林肯纪念堂参加福克斯新闻频道主办的市民大会中说到中共犯下可怕的错误（言外之意，蓄意释放病毒，对付香港人），并试图加以掩盖（压制毁灭中共病毒人传人的证据，打压消灭吹哨人李文亮医生等八位医生、自媒体以及网络上关于中共病毒真相言论和声音，开动内外宣传机器疯狂制造虚假信息，混淆视听）。
+[English\_0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204900/English_0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204900/English_0504_CCP_Virus_Updates.pdf)
 
-**中共病毒来源，川普总统中共病毒确定来自武汉实验室，报告很快就发布。**
+[French\_0504\_CCP\_Virus\_Updates\_-\_Copie1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204912/French_0504_CCP_Virus_Updates_-_Copie1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204912/French_0504_CCP_Virus_Updates_-_Copie1.pdf)
 
-福克斯男主持人问川普总统：“您是您建国证据证明中共病毒来自武汉实验室，或许不在哪制造的，但来自那里。您能给我们更详细的说明吗？”
+[German\_0504\_\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204926/German_0504__CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204926/German_0504__CCP_Virus_Updates_-_Kopie.pdf)
 
-川普总统回答：“我们会发布一个报告来说明我们认为发生了什么，我认为将会是非常确凿的。”
+[Japanese0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204936/Japanese0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204936/Japanese0504_CCP_Virus_Updates.pdf)
 
-**在确凿的证据支持下，川普总统认为中共病毒是故意放出来的，中共犯下了可怕的错误，而且极力掩盖，更可怕是推卸给别人，为中共错误买单 – 祸水西移。**
+[Russian\_0504\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204951/Russian_0504_CCP_Virus_Updates_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204951/Russian_0504_CCP_Virus_Updates_-_Copie.pdf)
 
-福克斯女主持人问川普总统：“有什么可以说明这是故意的还是事故？”
-
-川普总统回答：“我认为他们（中共）犯了一个可怕的错误（horrible mistake）,他们（中共）不想承认，我们（美方专家团队）想进入，他们（中共）不同意。即使世卫组织想进入，他们（世卫组织）不是立即而是很晚后才被允许。我的观点（opnion）是，他们犯了一个错误，他们想掩盖，他们想像灭火一样把它扑灭，就像灭火一样，但是他们没成功。他们（中共）做的对世界真正坏的是，他们（中共）阻止人们进入中共国（stop people going in china），但是他们没有阻止人们进入美国和世界其他国家。你可以飞离疫情中心武汉，所有问题的发源地，特别是病毒实验室就在那。你可以从武汉飞往世界各地。但你不能飞往北京，你不能进入中共国其他地区，这是怎么回事？换句话说，他们知道问题，而且他们对问题很尴尬，非常尴尬。”
-
-**终极制裁，彻底、干净、完全、一劳永逸解决问题的制裁，而中共正是问题的根源。**
-
-福克斯男主持人问川普总统：“您对中共不当处理中共病毒的方式，会以征收关税的方式制裁他们（中共）吗？”。
-
-川普总统回答：“我现在就可以告诉你，那将是终极制裁！我不喜欢告诉你将会怎么做，我们都在玩着一个复杂的游戏，跟跳棋或纸牌，随便你管他叫什么，但我可以告诉你，绝不是跳棋游戏，我可以告诉你，绝不是跳棋游戏！”
-
-如果说4月27日星期一川普总统先生官方宣布灭共，那么5月3日川普总统在华盛顿林肯纪念堂的答记者问题，向中共发话，子弹上膛，目标明确-灭共。
-
-**在确凿的犯罪证据面前，中共恼羞成怒、穷凶极恶，撕下伪装的人皮，示出中共魔鬼最狰狞的本质。**
-
-2020年5月4日西陆网又叫嚣乎东西，威胁经济封锁，武统台湾。就像一个黑社会拎着刀，凶狠狠的站在老百姓家门口，威胁恐吓，从不从，不从把你家烧了。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05182522/6-6.jpg)
-
-据个人不完全统计，西陆网从3月26日和5月4日之间，发出威胁“武统”、“解放”、“收复”台湾的文章密集发布，数量达15篇，挥霍笔墨。
-
-中共国防部2020年4月30日发表威胁言论。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05182607/7-6.jpg)
-**一场全世界为自由而战的正邪较量开始了，祈祷上天最小的代价灭共。**
-
-（文章内容仅代表作者观点）
+[Spanish0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05205003/Spanish0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05205003/Spanish0504_CCP_Virus_Updates.pdf)
 
 0
