@@ -1,93 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要推文選譯
-`2020-05-06 00:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/195190/)
+## 美眾議院外交委員會披露證據，勢必追責中共和世衛共謀掩蓋中共病毒爆發
+`2020-05-06 01:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195215/)
 
-> Bring our drug production back to 🇺🇸 for National Security. [@Rosemary100](https://twitter.com/Rosemary100?ref_src=twsrc%5Etfw) thank you for your steadfast work on this vital supply chain move out of china. Our country owes you a debt of gratitude. [#gratitude](https://twitter.com/hashtag/gratitude?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/OgsPMPcE2T](https://t.co/OgsPMPcE2T)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 5, 2020](https://twitter.com/Jkylebass/status/1257514583452983298?ref_src=twsrc%5Etfw)
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26014836/09A05038-00EB-431A-9AE4-D89F8AFF2730.jpeg)“世界衛生組織”總幹事譚德賽1月28日媚顏屈膝會見中共領導人 圖片來源：CNBC
+據《真清晰政治》（Real Clear Politics)報導，眾議院外交事務委員會高級委員邁克·麥考爾（Mike McCaul）披露了更多中共和世界衛生組織（World Health Organization)在中共新冠病毒爆發初期嚴重違背世衛組織關於流行病防治規則與章程的證據。麥考爾表示，“必須追責中共和世衛總幹事特譚德賽（Tedros Adhanom），以防止中共病毒從中共或沿海城市進入美國再次爆發。”
 
-卡爾·巴斯先生：為了國家安全將藥品生產搬回美國。Rosemary，謝謝妳這麽堅定地致力於將重要物資供應鏈移出中國的工作。我們的國家應該向妳表示感謝。
+中共早期的隱瞞、拖延和不作為嚴重違背世衛組織規則
 
-Rosemary Gibson（《中國處方：揭露美國醫藥依賴中國的風險》作者，獨立生物倫理研究中心、智庫海斯汀中心高級顧問）：好消息！皮特·納瓦羅：美國衛生及公共服務部（HHS）、國防部（DoD）和聯邦緊急事務管理署（FEMA）將很快發布美國制造產品規定
+麥考爾在發給《真清晰政治》的一份聲明中說，中共未能汲取2003年薩斯（SARS)的教訓，按照國際衛生組織關於似薩斯流行病的規則與章程立即報告和實施措施來應對此次疫情的爆發。 2003年中共沒有及時預警國際社會造成了薩斯大流行之後，世衛組織評估和修訂了新的規則。 2005年中世衛組織採用了新規則，要求各國“以可能的最有效的溝通方式”向世衛組織通報其領土內任何可能的“國際關注突發公共衛生事件”及針對這些事件採取的任何衛生措施。
 
-> Congratulations [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw) on your Pulitzer Prize. Your incredible photographs unveiled the Chinese government's brutality and rallied the world in support of Hong Kong's freedom fighters. [https://t.co/LQx7Ng2pdJ](https://t.co/LQx7Ng2pdJ)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 5, 2020](https://twitter.com/MarshaBlackburn/status/1257690142317428738?ref_src=twsrc%5Etfw)
+該規則還要求受疫情影響國家的政府官員持續地與世衛組織溝通，提供“及時、準確和足夠詳細的公共衛生信息”。這些報告要求包括任何“病例定義、實驗結果、風險來源和類型、感染和死亡病例以及具體的疾病傳播與因應措施狀況”。新的世界衛生規則第6條依法規定，所有成員國都有義務在24小時內向世衛組織告知任何陽性的薩斯檢驗結果。
 
-參議員 Marsha Blackburn：祝賀路透社獲得普利策獎。妳們超贊的照片揭露了中共政府的殘暴，並聯合了世界支持香港自由鬥士。
+2019年12月27日，中國衛生部門官員知道武漢爆發的病毒與2003年薩斯病毒具有87％的相似性。該病毒與導致2003年大流行的病毒相似。 12月30日，武漢一家實驗室報告稱，有多名檢測為陽性的不明薩斯冠狀病毒患者。包括麥考爾在內的17位眾議院共和黨委員會認為，中共政府“最遲應該在12月31日向世衛組織報告。相反，中共向世衛組織說謊並報告為肺炎。”
 
-> Everyone knows the Chinese Internet is censored and unrepresentative of the Chinese people—but the media can’t pass up an opportunity to “roast” the president, even if it means publishing CCP propaganda. Shameful. [https://t.co/19ce4KUYcY](https://t.co/19ce4KUYcY)
-> — Tom Cotton (@SenTomCotton) [May 5, 2020](https://twitter.com/SenTomCotton/status/1257729544162861058?ref_src=twsrc%5Etfw)
+2020年1月2日，武漢病毒學研究所完成了武漢爆發的冠狀病毒基因測序圖譜。這個眾議院共和黨委員會發現，中國沒有及報告這一信息，擱置10天后，才將其發送給世衛組織，因為這時上海的研究人員在線發表了遺傳圖譜結果。中共政府隨後關閉了這家發布新冠病毒基因圖譜的上海公共衛生中心。
 
-參議員 Tom Cotton：眾所周知中國的互聯網有防火墻，並不體現中國民意——但媒體就是不放過任何機會“烤”總統，哪怕這是替中共做宣傳。可恥。
+世衛組織迎合中共留下聯合犯罪記錄
 
-> Arkansans are grateful for the donation of 100k medical masks from the people of Taiwan, a true friend of the United States. Thank you! [https://t.co/sEsPBYZwRS](https://t.co/sEsPBYZwRS)
-> — Tom Cotton (@SenTomCotton) [May 6, 2020](https://twitter.com/SenTomCotton/status/1257828505888448518?ref_src=twsrc%5Etfw)
+中共政府未能在12月底向世衛組織及時報告中共病毒狀況，與此同時，世衛組織先後無視台灣衛生官員和香港疾控中心研究員關於中共新冠病毒的人傳人警告。 12月31日台灣衛生官員向世衛組織通報了武漢出現的似薩斯病例信息。世衛組織未能按照台灣的報告採取後續行動，這違反了世衛組織規則第9條要求對薩斯非典的非官方報告進行調查的規則要求。
 
-參議員 Tom Cotton：阿肯色人感謝臺灣人民捐贈的10萬醫用口罩，他們是美國真正的朋友。謝謝！
+五天后，作為世衛組織合作成員的香港大學傳染病流行和控制中心公開警告，中共病毒人傳人已極大可能發生。這個眾議院共和黨委員會稱：“儘管被世衛組織指定為應對新病毒爆發的專家，但沒有證據表明世衛組織對其警告進行了調查。”相反，“世衛組織繼續兜售中共的謊言，說不會“人傳人”。直到1月29日中共官方確認“人與人”之後才告訴世界病毒確實已經“人傳人”。
 
-> NSC Deputy National Security Adviser Matt Pottinger gives an important speech in Chinese on the hero doctors of Wuhan who sounded the alarm on the virus [https://t.co/Mh08aYl5sx](https://t.co/Mh08aYl5sx)
-> — Bill Gertz (@BillGertz) [May 5, 2020](https://twitter.com/BillGertz/status/1257688445411037193?ref_src=twsrc%5Etfw)
+中共威脅要求國際聯合調查的其它國家
 
-比爾·格茨先生：國家安全委員會副國家安全顧問博明用中文發表關於發出病毒預警的武漢英雄醫生重要演講。
+最近，越來越多的美國盟友及世界各國開始加入川普政府要求就中共病毒源頭對中共及世衛組織進行調查的行列。上週五澳大利亞呼籲就中共病毒爆發以及世衛組織對這場危機的反應進行獨立的國際調查後，中共以嚴重經濟後果威脅澳大利亞官員。然而，澳大利亞官員拒絕退縮，同時呼籲台灣取代中共國加入世衛組織。瑞典、歐盟委員會主席均表示，有必要進行國際調查。德國和法國官員也要求中共提供更多信息。
 
-《華盛頓時報》：白宮罕見地用中文演講，向揭露冠狀病毒的醫生致敬
+《美國傳統基金會》資深研究員兼中國問題專家成斌（Dean Cheng)說，除了世衛組織有關的規則外，中共似乎還違背了它們自己在薩斯後建立的應對重大疾病爆發應急體系規則。一年前，中國衛生官員公開表示，他們先進的預警系統將防止2003年薩斯那樣的大爆發。但西方、香港與內地媒體所顯示出來的是，“高級官員選擇不激活該系統或主動壓制信息時，該系統就不起作用了。”
 
-> U.S. intelligence not involved or aware of allies' "Five Eyes" China report disclosed in Aussie newspaper.[https://t.co/BaUcdEjhE0](https://t.co/BaUcdEjhE0)
-> — Rowan Scarborough (@RoScarborough) [May 5, 2020](https://twitter.com/RoScarborough/status/1257716433028612096?ref_src=twsrc%5Etfw)
+馬克斯·普朗克比較公法和國際法研究所的高級研究員佩德羅·比利亞雷亞爾（Pedro Villarreal） 認為世衛組織的執行機制需要進行認真的改革。他在3月份的一篇文章中指出：“越來越多的人意識到，現有規則無法實現其目標，需要進行全面改革。”
 
-比爾·格茨先生 轉推：
+[原文鏈接](https://www.realclearpolitics.com/articles/2020/05/04/china_who_violated_post-sars_rules_gop_analysis_finds_143106.html)
 
-Rowan Scarborough：美國情報機構沒有參與或不知道澳洲報紙披露的“五眼聯盟”中國報告。
+翻譯報導：明澈
 
-《華盛頓時報》：報告顯示，中國故意銷毀實驗室證據，讓“吹哨人”消失
-
-> In a post-[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) world, lots of things will change. One of them should be this: the WTO should be abolished. The global economy needs reform top to bottom to stop [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & secure the needs of American families & workers [https://t.co/ozWcomm54q](https://t.co/ozWcomm54q)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257635105192980480?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：當世界爆發冠狀病毒疫情後，很多事情都要改變。其中壹個應該是：世貿組織應該被廢除。全球經濟需要徹頭徹尾的改革才能制止中國經濟帝國主義，並保障美國家庭和工人的需要。
-
-《紐約時報》：觀點｜世貿組織應該被廢除
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) not happy about my call to confront their economic imperialism by ending the WTO & replacing it with system that’s good for American workers. I love being insulted by [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state-run press [https://t.co/z7Y887ztvf](https://t.co/z7Y887ztvf)
-> — Josh Hawley (@HawleyMO) [May 5, 2020](https://twitter.com/HawleyMO/status/1257669494312443905?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：我呼籲終結世貿組織並用對美國工人有利的系統代替它，以此對抗中國的經濟帝國主義，中國對此不高興了。我很享受被中國國營媒體詬病的感覺。
-
-陳偉華：有時好奇為什麽《紐約時報》會發表無知政客寫的這種評論文章。就因為他是參議員？
-
-> I called for [@potus](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to replace those responsible for the decision to invest federal retirement savings in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> Yesterday, he did so. 
-> 
-> New board members should make reversing this shortsighted move their first priority. [https://t.co/jnBkQrdRYx](https://t.co/jnBkQrdRYx)
-> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1257853161236242432?ref_src=twsrc%5Etfw)
-
-參議員 Marco Rubio：我呼籲總統先生撤換那些決定將聯邦退休基金投入中國的責任人。昨天他這樣做了。新的董事會成員應該將扭轉這壹短視決定作為其首要任務。
-
-路透社：白宮新的人事任命可能影響退休基金投資中國的決定
-
-> Communist China is determined to increase their control over as much of the world as they can, even if it means using a devastating pandemic as an opportunity to do so.
->  
-> We can’t turn a blind eye to Communist China. [https://t.co/wjdQrC9FX7](https://t.co/wjdQrC9FX7)
-> — Rick Scott (@SenRickScott) [May 5, 2020](https://twitter.com/SenRickScott/status/1257687888273309697?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：中共國決意要竭盡所能地擴大它對世界的掌控，即使這意味著利用壹種毀滅性的疾病大流行來達到目的。我們不能再對中共國熟視無睹了。
-
-Britbart新聞：美國國防部長埃斯珀表示，俄羅斯和中國將歐盟冠狀病毒緊急狀況視作擴大兩國利益的機會
-
-> ”Economic destruction and the U.S. coronavirus death toll are driving a government-wide push to move U.S. production and supply chain dependency away from China,” [https://t.co/7yE3dAvZF9](https://t.co/7yE3dAvZF9)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257873841612820480?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“經濟重創和美國冠狀病毒死亡人數正帶動整個政府推進讓美國生產和供應鏈擺脫對中國的依賴。”
-
-Dailywire網：川普加速推動將中國從全球供應鏈中移除，並建立新的集團
-
-> There’s no such thing as privately held in China. The CCP controls all. [https://t.co/FtJFGrYh85](https://t.co/FtJFGrYh85)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1257880166732357633?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中國沒有所謂的私有公司。中共控制著壹切。
-
-《經濟學家》雜誌：中國有206家市值十億美元或更多的私有公司，比其他任何國家都多。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000751/07_55.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000756/image0-2-2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06000804/image0-6-2.jpg)
 0

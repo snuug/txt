@@ -1,51 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 原創歌曲《一切已經開始》
-`2020-05-05 20:06 GM30` [轉載自GNews](https://gnews.org/zh-hant/194949/)
+## 【世界多語言圖文】04/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-05 20:51 GM10` [轉載自GNews](https://gnews.org/zh-hant/195048/)
 
-**作者：家駒2020**
+戰**友之家圖文摘要組及小語種組**
 
-《一切已經開始》這首歌是三月12-14號三天時間完成，下面是這首原創歌曲的創作背景和歌詞含義的解讀：
+[English\_0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204900/English_0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204900/English_0504_CCP_Virus_Updates.pdf)
 
-“飛機停飛了，時間也熔斷了
+[French\_0504\_CCP\_Virus\_Updates\_-\_Copie1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204912/French_0504_CCP_Virus_Updates_-_Copie1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204912/French_0504_CCP_Virus_Updates_-_Copie1.pdf)
 
-世界生病了，花兒也哭泣了”
+[German\_0504\_\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204926/German_0504__CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204926/German_0504__CCP_Virus_Updates_-_Kopie.pdf)
 
-創作這首歌的時候，正處于疫情在全球大爆發之時，歐美各個國家紛紛禁止了國際航班，大部分飛機都停飛了。3月8號左右黃金暴漲，道瓊斯連續熔斷狂跌，大家在那段時間都處于深度不安之中，仿佛股市和時間在那段時間都熔斷了，時間在疫情期間走地是那麽慢，分分秒秒都會是生死別離。
+[Japanese0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204936/Japanese0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204936/Japanese0504_CCP_Virus_Updates.pdf)
 
-“未來的盡頭，是萬丈深淵還是春暖花開？
+[Russian\_0504\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204951/Russian_0504_CCP_Virus_Updates_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05204951/Russian_0504_CCP_Virus_Updates_-_Copie.pdf)
 
-人們在期待，是曆史輪回還是從頭再來？”
-
-那時候各種負面消息鋪天蓋地，意大利重度淪陷，歐洲各國損失慘重也紛紛自保，全球股市崩盤，美國紐約疫情爆發，美聯儲直升機撒錢，確診數字每天飙升，醫護人員急缺防護，人類到了一個生死十字路口，似乎末日審判正在來臨。中華兒女也在渴望，是曆史輪回還是從頭再來？
-
-”他從不放棄，每一個芸芸衆生的小螞蟻
-
-健身中的他，英俊卻難掩歲月的痕迹”
-
-而在這種恐慌氛圍之下，假消息滿天飛的情況下，文貴先生的爆料革命，路德先生和各位爆料革命的勇士在不斷的將真相告訴我們，千百遍地提醒我們一定要在家不要被感染，就像過去三年爆料革命所做的一點一滴，不放棄每一個芸芸衆生的小螞蟻。我們只是滄海一栗，我們的生死僅僅是一個數字，過去的幾十年也沒有像爆料革命一樣關心我們這樣的小螞蟻。
-
-“你是否學著和黑暗和解？你默默承受無窮無盡的痛苦，別忘了留下希望的雅典娜”
-
-潘多拉的盒子打開了，人類正在承受種種痛苦和恐慌，這時候文貴先生告訴我們，智慧女神雅典娜爲了挽救人類的命運，在魔盒的最底層放下了美好的希望，即使生活不斷折磨我們，魔鬼不斷攻擊我們，但是心中總有希望，這個希望就是爆料革命，希望是永垂不朽的。
-
-”希望你和我，都是洪水衝不走的那個人
-
-希望你和他，能登上喜馬拉雅看到光明
-
-你看那天邊飛來的和平鴿，嘴裏含著一片綠色的橄榄葉”
-
-文貴先生用三年時間爲我們樹立了喜馬拉雅的目標，也爲我們准備了gtv和未來g幣的諾亞方舟，爆料革命沒有空喊口號，而是一點一滴在行動，在積累，在期望和平鴿帶來的橄榄葉。
-
-“他從沒忘記，在夢中魂思夢牽的娘親
-
-視頻中的他，微笑卻難掩內心的傷心”
-
-最後，我們爲文貴先生和爆料革命的勇士祈福，他們受到的壓力和委屈是我們理解不了的，死亡威脅之下，也給我們一杯羹（ccp威脅殺敵文貴先生父母，文貴先生說，如果那樣，請分我一杯羹”。羹就是羔羊的美麗.
-
-歡迎大家去GTV欣賞《一切已經開始》這首原創歌曲。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05195713/lyrics-1-1.jpg)
+[Spanish0504\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05205003/Spanish0504_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/05205003/Spanish0504_CCP_Virus_Updates.pdf)
 
 0

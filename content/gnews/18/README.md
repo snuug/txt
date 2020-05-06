@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新聞：美國促臺灣世衛組織觀察員身份
-`2020-05-05 19:50 GM65` [轉載自GNews](https://gnews.org/zh-hant/194925/)
+## 惡人先告狀！中共竟然要求美國接收國際調查！想甩鍋美國實驗室？！
+`2020-05-05 20:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/194971/)
 
-翻譯：Halley 字幕：Vinzo
+製作：【上天造 滅疫組】
+
+
 
 0
