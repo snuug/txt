@@ -1,38 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美眾議院外交委員會披露證據，勢必追責中共和世衛共謀掩蓋中共病毒爆發
-`2020-05-06 01:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195215/)
+## “美国不拥有联合国”
+`2020-05-06 03:03 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/195288/)
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/26014836/09A05038-00EB-431A-9AE4-D89F8AFF2730.jpeg)“世界衛生組織”總幹事譚德賽1月28日媚顏屈膝會見中共領導人 圖片來源：CNBC
-據《真清晰政治》（Real Clear Politics)報導，眾議院外交事務委員會高級委員邁克·麥考爾（Mike McCaul）披露了更多中共和世界衛生組織（World Health Organization)在中共新冠病毒爆發初期嚴重違背世衛組織關於流行病防治規則與章程的證據。麥考爾表示，“必須追責中共和世衛總幹事特譚德賽（Tedros Adhanom），以防止中共病毒從中共或沿海城市進入美國再次爆發。”
+【中英对照翻译】[https://spark.adobe.com/page/2NRa1TGTIcwRV/](https://spark.adobe.com/page/2NRa1TGTIcwRV/)
 
-中共早期的隱瞞、拖延和不作為嚴重違背世衛組織規則
+*作者：泰勒·德登*
 
-麥考爾在發給《真清晰政治》的一份聲明中說，中共未能汲取2003年薩斯（SARS)的教訓，按照國際衛生組織關於似薩斯流行病的規則與章程立即報告和實施措施來應對此次疫情的爆發。 2003年中共沒有及時預警國際社會造成了薩斯大流行之後，世衛組織評估和修訂了新的規則。 2005年中世衛組織採用了新規則，要求各國“以可能的最有效的溝通方式”向世衛組織通報其領土內任何可能的“國際關注突發公共衛生事件”及針對這些事件採取的任何衛生措施。
+*翻译/简评：freedust*
 
-該規則還要求受疫情影響國家的政府官員持續地與世衛組織溝通，提供“及時、準確和足夠詳細的公共衛生信息”。這些報告要求包括任何“病例定義、實驗結果、風險來源和類型、感染和死亡病例以及具體的疾病傳播與因應措施狀況”。新的世界衛生規則第6條依法規定，所有成員國都有義務在24小時內向世衛組織告知任何陽性的薩斯檢驗結果。
+*校對：Julia Win*
 
-2019年12月27日，中國衛生部門官員知道武漢爆發的病毒與2003年薩斯病毒具有87％的相似性。該病毒與導致2003年大流行的病毒相似。 12月30日，武漢一家實驗室報告稱，有多名檢測為陽性的不明薩斯冠狀病毒患者。包括麥考爾在內的17位眾議院共和黨委員會認為，中共政府“最遲應該在12月31日向世衛組織報告。相反，中共向世衛組織說謊並報告為肺炎。”
+**简评**
 
-2020年1月2日，武漢病毒學研究所完成了武漢爆發的冠狀病毒基因測序圖譜。這個眾議院共和黨委員會發現，中國沒有及報告這一信息，擱置10天后，才將其發送給世衛組織，因為這時上海的研究人員在線發表了遺傳圖譜結果。中共政府隨後關閉了這家發布新冠病毒基因圖譜的上海公共衛生中心。
+台湾在此次疫情中出色的表现，不仅保护了台湾同胞的健康及生命，也在为世界应对疫情提供帮助的同时，扩大了自己的政治及外交影响，为自己重返全球政治舞台做好了铺垫。
 
-世衛組織迎合中共留下聯合犯罪記錄
+这也正是美国在帮助台湾获得联合国合法席位，打击邪恶中共的影响力及保护台湾合法政权地位的有力抓手。台湾无论在政治，还是军事的战略地位对美国来说都是至关重要的。中共也正在用这张牌来激化国际矛盾和转移国内矛盾。在外交的压制和军事的钳制双重逼迫下，我们除进一步目睹了中共的外强中干的本质之外，也需要提防中共狗急跳墙。庆幸的是，蔡英文总统领导的台湾政府在这方面的准备令人振奋。
 
-中共政府未能在12月底向世衛組織及時報告中共病毒狀況，與此同時，世衛組織先後無視台灣衛生官員和香港疾控中心研究員關於中共新冠病毒的人傳人警告。 12月31日台灣衛生官員向世衛組織通報了武漢出現的似薩斯病例信息。世衛組織未能按照台灣的報告採取後續行動，這違反了世衛組織規則第9條要求對薩斯非典的非官方報告進行調查的規則要求。
+中共灭亡在即，希望海峡两岸的同胞能共享自由、民主、法治的爆料革命成果。
 
-五天后，作為世衛組織合作成員的香港大學傳染病流行和控制中心公開警告，中共病毒人傳人已極大可能發生。這個眾議院共和黨委員會稱：“儘管被世衛組織指定為應對新病毒爆發的專家，但沒有證據表明世衛組織對其警告進行了調查。”相反，“世衛組織繼續兜售中共的謊言，說不會“人傳人”。直到1月29日中共官方確認“人與人”之後才告訴世界病毒確實已經“人傳人”。
+### “**美国不拥有联合国”——狂怒的北京将联合国驻台湾使团的推文斥为“政治操纵”**
 
-中共威脅要求國際聯合調查的其它國家
+川普总统全力以赴对抗中共国，将其作为2020年竞选策略的关键（因为很明显，他的大部分支持者和许多犹豫不决的选民，都指责中共国向世界释放了病毒，不管它是否来自实验室）。由于川普总统同意与习近平“合作”对抗这种病毒的协议是100％毫无意义的-美国周五晚间在推特上发布了其对台湾参与联合国的支持。
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/3acc1f48-3ecc-470f-88cc-d41597198733.jpg?asset_id=bf0d0d2e-e819-463a-9c7b-2cf9756082f9&amp;img_etag=ded03cd800c5e959158a0d878983cc76&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/3acc1f48-3ecc-470f-88cc-d41597198733.jpg?asset_id=bf0d0d2e-e819-463a-9c7b-2cf9756082f9&amp;img_etag=ded03cd800c5e959158a0d878983cc76&amp;size=1024)凯利·克拉夫特
+这条由美国驻联合国代表团发出的推文称，拥有193个成员国的联合国，应该为“所有声音”留出空间，并欢迎“各种观点和看法”来促进人权。“禁止台湾进入联合国，不仅是对自豪的台湾人民的侮辱，也是对联合国原则的侮辱。”这条推文被继妮基·黑利(Nikki Haley)之后出任美国驻联合国大使的美国大使，凯利·克拉夫特(Kelly Craft)转发。
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/408eead4-50d0-4fd9-997e-2e534c582cab.jpg?asset_id=535da679-016e-41e8-91f3-d9135f78122a&amp;img_etag=73ec6bbe4152c486eae7d734d3fa1c52&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/408eead4-50d0-4fd9-997e-2e534c582cab.jpg?asset_id=535da679-016e-41e8-91f3-d9135f78122a&amp;img_etag=73ec6bbe4152c486eae7d734d3fa1c52&amp;size=1024)
+@ UN成立之初是为了容纳所有人的声音，这是一个欢迎各种观点和看法并促进人类自由的论坛。 禁止台湾进入联合国，不仅是对骄傲的台湾人民的侮辱，也是对联合国原则的侮辱。 #TweetFor台湾
 
-最近，越來越多的美國盟友及世界各國開始加入川普政府要求就中共病毒源頭對中共及世衛組織進行調查的行列。上週五澳大利亞呼籲就中共病毒爆發以及世衛組織對這場危機的反應進行獨立的國際調查後，中共以嚴重經濟後果威脅澳大利亞官員。然而，澳大利亞官員拒絕退縮，同時呼籲台灣取代中共國加入世衛組織。瑞典、歐盟委員會主席均表示，有必要進行國際調查。德國和法國官員也要求中共提供更多信息。
+— 2020年5月1日，美国驻联合国代表团（@USUN）
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/6f9e8c0c-f741-4e44-a4fe-6a5795ed3f78.jpg?asset_id=9e96c071-3abf-4294-916c-abdc4f78bca4&amp;img_etag=ef589a43f8202f9a7a1556f3af430f76&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/6f9e8c0c-f741-4e44-a4fe-6a5795ed3f78.jpg?asset_id=9e96c071-3abf-4294-916c-abdc4f78bca4&amp;img_etag=ef589a43f8202f9a7a1556f3af430f76&amp;size=1024)
+当世界讨论＃COVID19和其他对全球健康的威胁时，美国坚信＃台湾应列席。 在2017年之前，北京不反对台湾以观察员身份加入世界卫生大会。是什么改变了这些？#TweetforTaiwan
 
-《美國傳統基金會》資深研究員兼中國問題專家成斌（Dean Cheng)說，除了世衛組織有關的規則外，中共似乎還違背了它們自己在薩斯後建立的應對重大疾病爆發應急體系規則。一年前，中國衛生官員公開表示，他們先進的預警系統將防止2003年薩斯那樣的大爆發。但西方、香港與內地媒體所顯示出來的是，“高級官員選擇不激活該系統或主動壓制信息時，該系統就不起作用了。”
+— IO Bureau @ State（@State\_IO）2020年5月1日
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/5e4fc2a9-725d-4de2-9489-0f1d12a39e1d.jpg?asset_id=264bd857-d75f-4773-b07d-942520bfd4ec&amp;img_etag=c97bf24bda13af966e4c356d5434d38c&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/5e4fc2a9-725d-4de2-9489-0f1d12a39e1d.jpg?asset_id=264bd857-d75f-4773-b07d-942520bfd4ec&amp;img_etag=c97bf24bda13af966e4c356d5434d38c&amp;size=1024)
+— IO Bureau @ State (@State\_IO) May 1, 2020
 
-馬克斯·普朗克比較公法和國際法研究所的高級研究員佩德羅·比利亞雷亞爾（Pedro Villarreal） 認為世衛組織的執行機制需要進行認真的改革。他在3月份的一篇文章中指出：“越來越多的人意識到，現有規則無法實現其目標，需要進行全面改革。”
+现在台湾2300万人的健康状况是否没有2017年之前重要呢？ 还是#PRC中共国在惩罚台湾选民自由选择了自己的领导人？ #TweetforTaiwan
 
-[原文鏈接](https://www.realclearpolitics.com/articles/2020/05/04/china_who_violated_post-sars_rules_gop_analysis_finds_143106.html)
+— IO Bureau @ State（@State\_IO）2020年5月1日
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/3b92457d-8a74-49d0-bedd-cee697ff21e2.jpg?asset_id=58af12c9-f45a-402a-bc79-3c04d86fc5fa&amp;img_etag=de63aa3b8822776801d283cf312e3de2&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/3b92457d-8a74-49d0-bedd-cee697ff21e2.jpg?asset_id=58af12c9-f45a-402a-bc79-3c04d86fc5fa&amp;img_etag=de63aa3b8822776801d283cf312e3de2&amp;size=1024)
+— IO Bureau @ State (@State\_IO) May 1, 2020
 
-翻譯報導：明澈
+众所周知，台湾长期以来一直致力于全球健康，并拥有世界上最好的健康和研究网络之一，而且台湾促进了科学合作和对#health健康威胁的透明性。 #TweetforTaiwan #TaiwanModel
+
+— IO Bureau @ State（@State\_IO）2020年5月1日
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/c9e542df-8268-40c1-a020-d5dafa646bf1.jpg?asset_id=16427cb2-a4a2-4f9d-963d-0afd700de2f7&amp;img_etag=9bdbf82990b3a12d09d72bf9562196fb&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/c9e542df-8268-40c1-a020-d5dafa646bf1.jpg?asset_id=16427cb2-a4a2-4f9d-963d-0afd700de2f7&amp;img_etag=9bdbf82990b3a12d09d72bf9562196fb&amp;size=1024)[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/35c85a7b-3d7c-4b57-83a3-c67520b4b8d0.jpg?asset_id=feaeaee7-f3a9-49ca-ac99-58127f5e0f4f&amp;img_etag=58c03419935b16aefa3303af3241a7f8&amp;size=2560)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/35c85a7b-3d7c-4b57-83a3-c67520b4b8d0.jpg?asset_id=feaeaee7-f3a9-49ca-ac99-58127f5e0f4f&amp;img_etag=58c03419935b16aefa3303af3241a7f8&amp;size=1024)
+— IO Bureau @ State（@State\_IO）2020年5月1日
+
+@ iingwen，与#PRC中共国的反差惊人。 中共国对＃COVID19新冠疫情的反应一直是掩盖事实，压制其科学家和审查言论。 #Taiwan台湾的回应一贯并将继续成为世界榜样。 #TweetforTaiwan #TaiwanModel https://t.co/KADqwnLsrr
+
+自从台湾很好地处理了冠状病毒爆发以来，对台湾的同情度一直很高。 当举报者揭露了世卫组织对台湾的偏见，甚至拒绝承认事实上的独立国家（在中共国法律上将其视为一个没有收复的省）时，这又给了他们另一个动力。
+
+从不讳言，习近平威胁要对任何敢于在主权之路上协助台湾的民族国家实施报复性暴力，川普在美国执政期间一直对这种角色持嘲讽态度。川普对中共国的整体鹰派态度-这是他政治诉求的重要组成部分-这就是为什么毫无疑问，中共国正在积极尝试破坏川普的当选机会（我们怀疑他们的情报表明乔·拜登的认知能力下降程度比大多数美国人意识到的要严重）。
+
+毫不奇怪，中共国作为联合国安理会常任理事国，享有巨大的影响力-中共国驻联合国代表团回应说，美国代表团有点出格了，应该他妈的保持冷静，不要把转发推特的手指变成扣动扳机的手指。
+
+*中共国驻联合国代表团的发言人称，美国驻联合国代表团的推文“严重违反”了联合国赋予中共国席位、中美三个联合公报以及中共国主权和领土完整的大会决议。*
+
+*这位不愿透露姓名的发言人说：“这严重干扰了中共国的内政，严重伤害了14亿中共国人民的感情。” “世界上只有一个中共国。中华人民共和国政府是代表整个中共国的唯一合法政府，台湾是中共国不可分割的一部分。”*
+
+*中共国常驻联合国代表团指责美国虚伪，称美国在多次利用其签发签证的权力，阻止或拖延联合国会员国和民间社会组织参加联合国活动的同时，还欢迎各国持不同观点。*
+
+*中共国强烈敦促美国，遵守一个中共国的原则、两国的三项联合公报和大会决议，“立即停止支持台湾地区，使问题政治化，破坏国际社会对这次全球疫情的努力”。*
+
+*中共国发言人说：“正当冠状病毒在世界范围内肆虐，各国人民都呼吁在国际上团结一致，共同对抗这种流行病。” “在最需要联合与团结一致的时候，美国对中共国核心利益问题的政治操纵，将毒害成员国的合作气氛。”*
+
+And the icing on the cake: Global Times editor Hu Xijin whining that the US “doesn’t own” the UN.
+
+添油加醋的是：《环球时报》编辑胡锡进抱怨说，联合国“不是美国自己的”。
+[!\[\](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/89e5b403-f29b-4b90-8ab0-8b1eae30b76b.jpg?asset_id=c529139b-8326-4257-996a-af1b4b21e8d6&amp;img_etag=c2aee34448df995bbd64b259f2b6acbd&amp;size=3333)](https://spark.adobe.com/page/2NRa1TGTIcwRV/images/89e5b403-f29b-4b90-8ab0-8b1eae30b76b.jpg?asset_id=c529139b-8326-4257-996a-af1b4b21e8d6&amp;img_etag=c2aee34448df995bbd64b259f2b6acbd&amp;size=1024)
+— Hu Xijin 胡锡进 (@HuXijin\_GT) May 2, 2020
+
+美国出于自己的议程，通常将五眼联盟和其他一些西方国家假扮成国际社会。 这只是一个小帮派，总人口比中共国或印度小得多。 联合国不是美国的控股公司。 pic.twitter.com/keHORO6v1p
+
+—胡锡进（@HuXijin\_GT）2020年5月2日
+
+现在，准备好在五角大楼，再次派遣美国航母打击力量穿越台湾海峡吧（当然，我们在开玩笑……但更重要的是……这不会遥不可及了）。
+
+[原文链接](https://www.zerohedge.com/geopolitical/us-doesnt-own-un-furious-beijing-slams-un-missions-taiwan-tweets-political)
+
+编辑：【喜马拉雅战鹰团】
 
 0
