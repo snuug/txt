@@ -1,44 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 史蒂夫·班農讓中共抓狂 大外宣瘋狂攻擊來勢洶洶
-`2020-05-06 21:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195867/)
+## 5月6日 美國政要推文選譯
+`2020-05-07 00:49 GM65` [轉載自GNews](https://gnews.org/zh-hant/196034/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06211540/%E5%8F%B2%E8%92%82%E5%A4%AB%C2%B7%E7%8F%AD%E5%86%9C%E8%AE%A9%E4%B8%AD%E5%85%B1%E6%8A%93%E7%8B%82-1.jpg)
-撰稿人Derek Dunn 5月5日在thenationalpulse.com發表文章：在地緣政治中很少有實體像中國共產黨那樣積極有效地進行輿論信息戰。中共已經擁有完整的媒體資源網絡，精心編造的故事充斥整個世界媒體。他們為了實現政治目標，不惜歪曲信息捏造謊言來掩蓋事實真相。。
+> The one primary thing the United States must do is to require all foreign securities registrants to adhere to US securities laws (like US companies). They need to submit to US audits and Chinese investors need to pay US capital gains taxes. [#levelthefield](https://twitter.com/hashtag/levelthefield?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/RxEYfvMwJ7](https://t.co/RxEYfvMwJ7)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1257880840794710016?ref_src=twsrc%5Etfw)
 
-中共不遺餘力誣衊攻擊班農
-文章指出中共是宣傳大師，他們現在找到了一個新目標，即前白宮首席戰略家、著名的反共鷹派人士史蒂芬·班農（Steve Bannon）。
+卡爾·巴斯先生 連推：美國的第壹要務是要求所有外國證券註冊人（跟美國公司壹樣）遵守美國證券法。他們必須接受美國審計，而中國投資者必須繳納美國資本利得稅（capital gains taxes)。這種不要求中國公司接受美國公眾公司會計監督委員會（PCAOB）審計其財務報表的做法是不合理的。令人更難以置信的是，在美國的中國、沙特、俄羅斯和委內瑞拉（以及其他國家）投資人不向美國支付資本利得稅。
 
-向班農開出第一炮的是刊登在中國全球電視網網站上的一篇文章，他們討論了班農如何成為一名“知名的極右翼民族主義者”，他總是對中國不屑一顧口出狂言，應該給予嚴正反駁。緊接着，該文章的作者聲稱，班農對中國口出狂言，是希望重新獲得一些政治資本謀取更大利益。
+《南華早報》：隨著病毒加速中美關系破裂，中國、美國處於“新冷戰”
 
-發起下一輪攻擊的評論文章刊登在新華網上。中共選擇的這個宣傳喉舌開門見山稱班農為“經過驗證的極右翼極端主義分子”。您是否察覺到端倪漸露？ 是不是聽起來好像很協調？新華社的文章空洞無物毫無意義。但這些都不重要，他們的目標是向熱門討論話題注入大量錯誤信息，導致人們無所適從、不知道該相信誰說的才好。美國左派媒體指責通俄門的宣傳比起中共的大外宣簡直弱爆了。
+> The Ukrainian “junk carrier” the CCP bought through a front company is now conducting “operations” in the SCS. The junk carrier can only launch 8 planes before the first plane has to land again! It’s quite a circus stunt..not a real fighting vessel. [https://t.co/kovrWfDslZ](https://t.co/kovrWfDslZ)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1257981040745988096?ref_src=twsrc%5Etfw)
 
-針對班農而發動的最新攻擊來自中央電視台的網站。在文章中，班農被貼上“超右派政治戰略家”的標籤，他“一向持侵略性極右派政治觀點，經常提倡種族主義和仇外排外”。
+卡爾·巴斯先生：中共通過幌子公司購買的烏克蘭“垃圾航母”現正在南中國海執行“任務”。這艘垃圾航母上，第壹架飛機再次降落前最多只能有8架飛機起飛！基本就是雜耍…不是真正的作戰船。
 
-中共的招數幾十年如一日保持不變，但是不斷地精進演化。他們不僅將班農視作“極右”、“右傾”甚至“超級右翼”，還升級到明擺着謊稱班農是種族主義者的佼佼者。記住，班農是宣稱種族主義者是“失敗者”的人，哪有這樣的種族主義者！
+《環球時報》：中國在南中國海進行海軍演練，以防疫情後美國軍方的挑釁
 
-中共一貫技倆用宣傳輿論愚弄洗腦民眾
-作者再一再強調，中共宣傳的目的不是講道理擺事實，是企圖對目標人物進行加油添醋捏造是非、極力抹黑，同時把自己描繪成委屈的受害者博取同情。
+> Chinese military targeting Belgian biological pathogen and vaccine experts in a spy ring for the last 15 years. As if the world needed another reason to distrust the Chinese government. [#chinaspies](https://twitter.com/hashtag/chinaspies?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/V6zTHLrVNH](https://t.co/V6zTHLrVNH)
+> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1258128130025426944?ref_src=twsrc%5Etfw)
 
-文章同時寫到，最近中共的攻勢來勢洶洶，但是如果不是鷹派的話，那可能是有效的。 尤其是在西方的社交媒體平台似乎不願撤下中國的宣傳時，整個“俄羅斯機器人賬戶”門的崩潰都沒有讓他們汲取任何教訓。
+卡爾·巴斯先生：過去15年來，中國軍方間諜網壹直瞄準比利時生物病原體和疫苗專家。世界已經不相信中國政府，不需要更多理由了。
 
-中共通過將班農貼上“最大右翼分子”的標籤，並用一堆可笑的衍生詞來形容，中共希望通過欺騙一些有用的白痴，以為中共正在與班農進行與美國左派一樣的政治戰爭，從而使美國的左派參與宣傳戰。事實大概如此。
+歐盟觀察新聞網：[調查]疑中國在“歐盟核心”進行生物間諜活動
 
-自從班農開始他的政治生涯以來，就對中共的聲譽主動發起了無情的攻擊。之所以這樣做，是因為中共是世界上一貫的人權侵犯者，也是世界歷史上最具破壞力的政治力量。
+> China lied to the world and failed to [#StopCOVID](https://twitter.com/hashtag/StopCOVID?src=hash&amp;ref_src=twsrc%5Etfw). 
+> 
+> Americans should be able to sue the Chinese Communist Party and its minions for the damage they’ve inflicted. [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 6, 2020](https://twitter.com/MarshaBlackburn/status/1258042867261587458?ref_src=twsrc%5Etfw)
 
-中共的惡行被媒體掩蓋、一直以來避開了美國人民的審視。但是，這一次冠狀病毒疫情中，中共的所作所為使世界陷入全球性瘟疫大流行。他們採取的種種惡意行動，讓美國人民目瞪口呆，看清了他們的邪惡本質。
+參議員 Marsha Blackburn：中共國向世界撒了謊且沒能阻止冠狀病毒擴散。美國人應該就中共和它的嘍啰們造成的損失起訴他們。
 
-中共瘋狂舉動說明班農的強大和中共的害怕
-中共的宣傳機器現在大力向班農開戰、打擊報復，暴露了他們的絕望。這三篇文章彼此相距短短數小時，它是協調作戰煙幕彈的那一部分。 美國最強大的外國對手正瘋狂地瞄準一位政治評論員窮追猛打，他們的抹黑攻擊無意中暴露了他們的動機。 他們攻擊班農無疑是搬起石頭砸自己的腳，他們默默地承認了美國的右翼已經轉變為一個強大的政治力量，能夠對世界上最具有壓迫性、最邪惡的政權造成巨大破壞。
+> The Chinese Government spent the early days of the COVID-19 outbreak destroying testing samples, intimidating doctors, and expelling journalists who refused to publish Communist Party propaganda.
+>  
+> They lied to everyone about how dangerous this virus is, & they did it on purpose. [pic.twitter.com/z1MRe5tnt9](https://t.co/z1MRe5tnt9)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 7, 2020](https://twitter.com/MarshaBlackburn/status/1258199019760861187?ref_src=twsrc%5Etfw)
 
-中共意識到，美國民族主義是最能喚醒國人並揭露中國共產主義政權邪惡的政治哲學。 他們的一名宣傳專家在某種程度上坦率地承認了這一事實：“美國面臨的最大威脅不是新冠病毒，而是右翼民粹主義者，他們打算為其政治病毒株而製造麻煩。” 這是宣傳專家投影展示的經典案例。
+參議員 Marsha Blackburn：冠狀病毒爆發的最初幾天，中國政府忙著銷毀測試樣本、恐嚇醫生和驅逐不願配合中共大外宣的記者。他們騙了所有人這種病毒有多危險，而且是故意的。
 
-“右翼民粹主義者”對美國不是威脅。 但是，這是自中共執政以來面臨的最大威脅。 最初僅是民粹主義運動採取對抗中國的剝削性貿易做法的想法，而現在已經變成美國各界人士在自己的政治議程中必須採用的政策。
+> China is the greatest geopolitical threat facing the U.S. and our allies. We need to act like it. [pic.twitter.com/0GiYKURkvh](https://t.co/0GiYKURkvh)
+> — Senator Ted Cruz (@SenTedCruz) [May 6, 2020](https://twitter.com/SenTedCruz/status/1258119517294792707?ref_src=twsrc%5Etfw)
 
-這項必要的政策恰好是朝着打擊邪惡中共的進程中邁出的重要第一步。 中共最近的宣傳打氣證明川普政府和班農政策正在讓中共疲於奔命、應接不暇。
+參議員 Ted Cruz：中國是美國及盟友面臨的最大地緣政治威脅。我們必須識時務。
 
-[原文鏈接](https://thenationalpulse.com/news/chinese-communist-party-targeting-steve-bannon/)
-翻譯報道：佚名
+> .[@TencentGlobal](https://twitter.com/TencentGlobal?ref_src=twsrc%5Etfw) and [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) are espionage operations for the Chinese Communist Party, masquerading as telecommunication companies. I'm introducing a bill to help stop China’s surveillance in the US by prohibiting federal employees from using these platforms for official business. [pic.twitter.com/Je4fh0sU6T](https://t.co/Je4fh0sU6T)
+> — Senator Ted Cruz (@SenTedCruz) [May 6, 2020](https://twitter.com/SenTedCruz/status/1258148026553688077?ref_src=twsrc%5Etfw)
 
+參議員 Ted Cruz：騰訊和華為是中共偽裝成電信公司的間諜行動。我將提出壹項法案，禁止聯邦雇員在公務中使用這些平臺，以阻止中國對美國的監視。
+
+> USAF B-1Bs RAMSY01 & 02 departed Andersen AFB, Guam and flew to the East China Sea to conduct operations
+> 
+> USAF KC-135R PARKA11 provided tanker support [pic.twitter.com/YdAYzR6XQI](https://t.co/YdAYzR6XQI)
+> — Aircraft Spots (@AircraftSpots) [May 6, 2020](https://twitter.com/AircraftSpots/status/1257939339972993024?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生 轉推：
+Aircraft Spots：美國空軍B-1B轟炸機RAMSY01 & 02從關島安德森空軍基地（Andersen AFB）起飛，到達東海執行任務。美國空軍KC-135R PARKA11空中加油機提供了支持。
+
+> Now on sale: My new ebook, How China’s Communist Party Made the World Sick. Already a best-seller. Buy it here: [https://t.co/iRDYT6q6ch](https://t.co/iRDYT6q6ch) [pic.twitter.com/Gv7WhMGgPd](https://t.co/Gv7WhMGgPd)
+> — Bill Gertz (@BillGertz) [May 6, 2020](https://twitter.com/BillGertz/status/1258063952539529248?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：現在特價：我的電子版新書《中共是如何讓世界病倒的》。已經是暢銷書。在此購買：
+
+> Secretary of State Pompeo, in his harshest criticism to date, demands China open up Wuhan labs and provide coronavirus samples and data. Also wants Taiwan at World Health Assembly [https://t.co/2yGFPzBhW8](https://t.co/2yGFPzBhW8)
+> — Bill Gertz (@BillGertz) [May 6, 2020](https://twitter.com/BillGertz/status/1258101759307808769?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：蓬佩奧國務卿，在他迄今為止最尖銳的批評中，要求中國開放武漢實驗室並提供冠狀病毒樣本和數據。同時希望臺灣參加世界衛生大會。
+
+《華盛頓時報》：蓬佩奧就掩蓋病毒來源壹事向中國施壓，臺灣
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party attempt to rewrite history continues. The US shouldn’t sit back and hope China behaves better. Need to exercise again the leadership we have shown for a century – overhaul global trade and economic rules to prioritize American workers & our security [https://t.co/o3u8sj2b0J](https://t.co/o3u8sj2b0J)
+> — Josh Hawley (@HawleyMO) [May 6, 2020](https://twitter.com/HawleyMO/status/1258134644186324992?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：中共從未停止改寫歷史的企圖。美國不能坐視不管並寄希望於中國改善作為。需要再次運用我們百年來所展現的領導力——徹底改變貿易和經濟法則，將美國工人和我們的安全放在第壹位。
+
+Josh Rogin：這篇聲明的驚人之處是歐盟承認中國政府要求他們審查社論對頁版文章，他們拒絕，但隨後放棄並任由其繼續。可怕。
+
+> A first step to confronting [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & reforming the global economy: abolish the WTO [https://t.co/jzgaUn8zYi](https://t.co/jzgaUn8zYi)
+> — Josh Hawley (@HawleyMO) [May 6, 2020](https://twitter.com/HawleyMO/status/1258136401528467457?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：對抗中國經濟帝國主義及改革全球經濟現狀的第壹步：廢除世貿組織（文章來源：Newsmax網）
+
+> The SEC should block IPOs for Chinese companies
+> 
+> Didn’t last month’s Luckin Coffee scandal show us why no new listings from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) should be allowed until US regulators can inspect the books of all firms who wish to be traded on our exchanges?[https://t.co/sRVEtoRsDt](https://t.co/sRVEtoRsDt)
+> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1258160255927812105?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：美國證券交易委員（SEC）會應該阻止中國公司IPO。在美國監管部門能夠查看所有希望在我們的交易所進行交易的公司賬目之前，不能讓任何中國公司上市。難道上個月的瑞幸咖啡醜聞還沒說明原因嗎？
+
+> ⁦Would be interesting if someone analyzed commercial telemetry data at & near Wuhan lab from Oct-Dec 2019
+> 
+> If it shows dramatic drop off in activity compared to previous 18 months it would be a strong indication of an incident at lab & of when it happened [https://t.co/7DQh8F6DXg](https://t.co/7DQh8F6DXg)
+> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1258036386826981377?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：如果有人將2019年10月至12月武漢實驗室及其周邊的商業活動遙測數據進行分析，應該會很有意思。如果與之前18個月相比，活動量急劇下降，則能夠強烈表明實驗室發生了什麽事件以及何時發生的。
+
+> “In February, the department announced it has uncovered $6.5 billion so far in undisclosed foreign funding from Saudi Arabia, Qatar, China and Russia. The investigation has since been expanded to include Harvard and Yale.” [https://t.co/c3IVlX4WEW](https://t.co/c3IVlX4WEW)
+> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1258000233658712066?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“二月份，教育部宣布，截至當時，發現了來自沙特、卡塔爾、中國和俄羅斯的65億美元未公開外國資金。此後，調查範圍擴大到哈佛和耶魯。”
+
+Zerohedge：共和黨：中國滲透到美國高等教育以阻礙冠狀病毒研究
+
+> This is probably a good idea. It’s time to accept that some of our allies may value their economic relationship with the CCP more than their security relationship with the US. That’s ok, because it’s better to have allies that share our principles. [https://t.co/Wn85tUWuKg](https://t.co/Wn85tUWuKg)
+> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1258002412050223104?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這是個好主意。現在該接受壹個現實，我們某些盟友可能更看重與中共的經濟關系，而非與美國的安全關系。就這樣吧，還是與有共同理念的國家結盟更好。
+
+Kevin R Hogan：因為英國允許華為建造其部分5G網絡，美國偵察機可能從英國撤出。據說白宮正在考慮是否基於安全擔憂要將情報設備撤出。英國使用華為可能使美英之間“特殊關系”復雜化。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07004823/image0.png-6.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07004829/image0-58.jpg)
 0
