@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普提案要求WHO將台灣納入世界衛生組織
-`2020-05-06 07:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195397/)
+## 日本政府出台補貼計劃 資助日企加速撤離中國
+`2020-05-06 12:05 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/195666/)
 
-![Donald Trump Angers China With Call to Taiwan President | Time](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06070203/1-36.png)
-據報導指出:川普領導的美國政府正在向世界衛生組織(WHO)提案，要求將台灣納入其組織。根據美國的表示，目前的WHO由於過度親共的緣故已經淪為共產衛生組織CHO (Communism Health Organization)。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/06115658/%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%87%BA%E5%8F%B0%E8%A1%A5%E8%B4%B4%E8%AE%A1%E5%88%92-%E8%B5%84%E5%8A%A9%E6%97%A5%E4%BC%81%E5%8A%A0%E9%80%9F%E6%92%A4%E7%A6%BB%E4%B8%AD%E5%9B%BD.jpg)
+《日本時報》最新報道，因為嚴重依賴中國製造，這次病毒大流行使日本的供應鏈受到重大破壞。財政部數據顯示，2019年日本所有進口中，來自中國的汽車零部件的進口佔了36.9%。來自東南亞其它國家的手機進口量佔了總體進口量的85.5%。因此政府出台了補貼計劃以幫助本土製造業將海外工廠從中國轉移到東南亞。
 
-隨著川普總統加大對中共在處理中共病毒上的抨擊力道，福克斯新聞於本周一引述內府消息人士的資訊表示：美國政府正在推行一項能讓台灣重獲WHA觀察員身分的草案。根據多方媒體消息，目前澳洲已表態支持該項提案，而美國政府目前正尋德法英等國的支持。而白宮也將此提案描述為 “懲罰WHO過度親中的舉動”。
+**補貼計劃針對拯救日企在海外的窘境**
 
-周日（5月3日）的福克斯新聞中，川普總統表示他正在認真考慮停止捐助資金到WHO，因為WHO在面對這次中共病毒疫情時的處置是毫無作為的，且該組織作出的最大貢獻是極力的配合中共掩飾太平。美國國務院同時還發起了#TweetForTaiwan活動，呼籲台灣能夠加入世界衛生組織理事機構世界衛生大會（WHA）。
+報道指出，日本政府為減輕疫情對本國經濟的打擊，推出了緊急刺激計劃。作為這個刺激計劃的一部分，這個2.2億美元的補貼計劃將從財務上幫助日本製造業在東南亞國家建立廠房，使他們的供應鏈更加多樣化，並且還將幫助他們進行製造業轉移東南亞國家的可行性研究。
+文章指出為增強本國供應鏈，日本政府還將拿出2200億日元幫助本土嚴重依賴外國進口的企業，從財務上幫助他們將海外工廠撤回日本本土。這個項目還將幫助一些生產日本人生命健康必不可少的物品的製造商，如疫情期間急需的口罩，酒精消毒劑等。如果他們在日本建設新工廠或者擴大本土現有生產規模，那麼政府會給予他們補貼。日本衛生用品工業協會表示，2018年日本80% 的口罩依靠進口，主要來自中國。疫情爆發依賴，口罩已經成為稀缺產品，這促使首相安倍晉三（Shinzo Abe）推出這個項目以增加口罩的供應
+文章具體闡述了 這項補貼計劃2/3的投資將用於主要企業以增加本土對於關鍵物品的生產。3/4的投資將被用於中小企業。兩項補貼計劃的支出已經包括在2020財年的25.69萬億日元的補充預算中。周四，國會通過審議，同意資助這個刺激計劃。
 
-而在上周六，美國國際組織事務局的Twitter帳戶也發起呼籲世界支持台灣加入即將舉行的世界衛生大會，期許台灣能夠將“令人難以置信的專業知識用於打擊COVID-19”。並且聲明提到，世界在抗擊該疾病方面需要台灣的幫助，並呼籲世界衛生組織：“現在是時候讓台灣的聲音被聽到。”
+**日政補貼企業的原因和背景：**
 
-美國駐聯合國代表團（USUN）也在推特上表示支持台灣，並表示禁止台灣進入聯合國是“不僅對自豪的台灣人民的侮辱，而且是對聯合國原則的侮辱”。多位美國官員和國會議員隨即也跟進發佈推文表態支持，包含了美國國際開發署（USAID）執行官約翰·巴爾薩（John Barsa），參議員馬可·魯比奧（Marco Rubio）和國會議員邁克爾·麥考爾（Michael McCaul）等人。
+促使這個項目推出的主要原因是去年年底武漢爆發疫情，導致日本一些汽車製造以及其它製造業面臨來自中國的零配件短缺的困境。一位經濟產業省官員說，疫情爆發前，日本製造業就已經有越來越多的需求將海外工廠轉移動東盟地區。這個補貼計劃還將幫助日本同東盟國家建立更好的關係。東盟包括文萊，柬埔寨，印度尼西亞，馬來西亞，緬甸，菲律賓，新加披，泰國和越南。為防止嚴重依賴中國製造的各種風險，例如抵制日貨運動，日趨高漲的用工成本，以及中國同美國的貿易戰，在“中國加一”的戰略下， 日本企業已經將東盟國家作為他們的替代方案。
+最後報道引用 東京經濟研究所的藤本孝宏教授（Takahiro Fujimoto）說，從長遠來看，這些補貼計劃是合理的，它將鼓勵日本製造企業在日本，中國和東南亞國家間更好的平衡生產。這個精通日本供應鏈的教授還指出，如果損害了日本製造業的成本優勢，那麼就不應該鼓勵供應鏈多樣化和本土化。“更重要的是讓他們的生產系統更加具有競爭力，更能適應災難。 ”
 
-而台灣外交部（MOFA）也隨即回應了USUN的推文，指出聯合國成立的本意是為了保護所有國家，無論大小；將台灣排除在聯合國及其機構之外是“自欺欺人，只會削弱國際大家庭”。
+[新聞來源](https://www.japantimes.co.jp/news/2020/05/05/business/japan-manufacturing-asean-china-coronavirus-supply-chains/)
 
-**翻譯報導:****Baiyßaisdar**
-
-**相關聯結:**
-
-川普提案要求WHO將台灣納入世界衛生組織
-
-[https://www.taiwannews.com.tw/en/news/3928271](https://www.taiwannews.com.tw/en/news/3928271)
-
-川普政府推動台灣加入WHA
-
-[https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/](https://tw.appledaily.com/international/20200505/FBBDPWM5ROJZEECE4O6LO4NX2I/)
-
-#TweetForTaiwan
-
-> Join us to [#TweetforTaiwan](https://twitter.com/hashtag/TweetforTaiwan?src=hash&amp;ref_src=twsrc%5Etfw)'s inclusion at the upcoming World Health Assembly so [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) can bring its incredible expertise to the fight against [#Covid19](https://twitter.com/hashtag/Covid19?src=hash&amp;ref_src=twsrc%5Etfw). The world needs Taiwan in this fight! Tell [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) that it is time for Taiwan to be heard.
-> — IO Bureau @ State (@State\_IO) [May 1, 2020](https://twitter.com/State_IO/status/1256283538481086466?ref_src=twsrc%5Etfw)
+翻譯報道：喜馬拉雅
 
 0
