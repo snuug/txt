@@ -1,13 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國內自來水能喝嗎？碰壁也要繼續傳播爆料！“中共病毒疫情每日熱線”
-`2020-05-07 03:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/196177/)
+## 如中美全面脫鉤，中共國無論從技術還是產業都將面臨嚴重打擊
+`2020-05-07 08:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/196283/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07031948/image0-59.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07070016/Picture-1-71.png)
+據媒體近日報導，中共正試圖在與美國激烈的貿易衝突和科技戰期間增強半導體技術的能力，一家中共國領先的芯片製造商正準備出售數十億美元的股票。此外，該公司近年來還向國際投資者出售了美元債券。
 
-GTV網頁版：[https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc](https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc)
+這家半導體製造國際公司，中芯國際（SMIC：Semiconductor Manufacturing International Corp.）此前在紐約證券交易所（New York Stock Exchange）交易了15年，於去年6月退市。
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+總部位於上海的中芯國際是一家芯片代工廠。最大股東中有幾家國有企業，市值超過100億美元。半導體是智能手機、計算機和許多其他高科技產品中必不可少的組件。中芯國際週二晚間在一份監管文件中表示，其董事會批准了一項計劃：擬在上海證券交易所（Shanghai Stock Exchange）的科技創新委員會(Science and Technology Innovation board)上市，出售高達16.9億股新股（約佔該公司約四分之一）的股份。
 
-1
+多年來，中共國一直試著振興半導體行業，使其能夠自給自足。同時，中共政府也在推出各種政策試圖縮小與美國的技術差距。
+
+然而，在美國以國家安全為由限制向中共國電信巨頭華為技術有限公司（Huawei Technologies Co.）出售芯片後過去的一年中，這項工作變得更加緊迫。上個月，美國商務部收緊了出口管制規定，進一步限制半導體向中共國出口。
+
+此外，在美國與中共國的貿易談判中，政府對科技行業（包括半導體行業）的支持一直是一個有爭議的話題。去年的經濟合作與發展組織（Organization for Economic Cooperation and Development）的一份報告稱，2014年至2018年，政府支持超過中芯國際總收入的30%。根據標準普爾全球市場情報公司（S P Global Market Intelligence）提供的數據，該公司過去幾年的年收入約為30億美元。
+
+伯恩斯坦公司（Bernstein Research）的分析師週三在一份報告中指出：“我們認為，隨著中美之間的緊張關係升級，中芯國際正逐漸切斷與美國資本市場的聯繫。” 他們還表示，鑑於美國加強了出口管制，該公司獲得美國技術和半導體製造設備的“難度將越來越大”。
+
+評：
+
+中共一直以偷盜科技技術來發展自己所謂的“創新”，一個制度如此殘破的無能政體，宣傳自己有“創新理念”可謂貽笑大方。制度體系既沒有相互的監督，也沒有法律的製衡，無論有多少資金投入到做科技研發，最後都會落到個人手中變為私用。美國已經醒來了，不會再讓中共有機會堂而皇之的偷竊技術去做破壞人權，蔑視自由的勾當。沒有了美國的技術支援，中共國里所謂的“科技”，“創新”都是笑話。中共利用半導體設備會用於推進民生嗎？不，他們會用此來進行任何有可能的監視或是監聽，以到達自己穩固政權，排除異己的目的。
+
+[原文鏈接](https://www.wsj.com/articles/chinese-chip-giant-prepares-to-build-its-war-chest-during-u-s-china-tech-battle-11588761507)
+
+翻譯報導：Hakunamatata
+
+0
