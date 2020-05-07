@@ -1,112 +1,347 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月6日 美國政要推文選譯
-`2020-05-07 00:49 GM65` [轉載自GNews](https://gnews.org/zh-hant/196034/)
+## 中共冠狀病毒的前世今生——它本不應該發生
+`2020-05-07 02:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/196164/)
 
-> The one primary thing the United States must do is to require all foreign securities registrants to adhere to US securities laws (like US companies). They need to submit to US audits and Chinese investors need to pay US capital gains taxes. [#levelthefield](https://twitter.com/hashtag/levelthefield?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/RxEYfvMwJ7](https://t.co/RxEYfvMwJ7)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1257880840794710016?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07020954/%E4%B8%8B%E8%BC%89-1-1.jpg)
+作者：Diago
 
-卡爾·巴斯先生 連推：美國的第壹要務是要求所有外國證券註冊人（跟美國公司壹樣）遵守美國證券法。他們必須接受美國審計，而中國投資者必須繳納美國資本利得稅（capital gains taxes)。這種不要求中國公司接受美國公眾公司會計監督委員會（PCAOB）審計其財務報表的做法是不合理的。令人更難以置信的是，在美國的中國、沙特、俄羅斯和委內瑞拉（以及其他國家）投資人不向美國支付資本利得稅。
+自2020年武漢肺炎危機席捲全球以來，一個原本非常生僻的詞彙——冠狀病毒，成了華文世界裡被頻繁提起的一個詞，隨著真相日益浮出水面，中共控制的媒體從最初的“可防可控”，到“沒有明顯證據人傳人”，到“可以人傳人”，到“美國製造病毒”、“歐洲製造病毒”，到中國“疫情歸零”，到歌頌中國“抗疫成績”，到最近的謾駡班農先生、蓬佩奧國務卿、諷刺川普總統，這種謾駡可以一次反擊、二次反擊，但是這種豪無理性的謾駡在沒有任何新意的重複之下，成了名符其實的潑婦駡街，對於時時刻刻可以看到防火牆外關於中共蓄意製造和釋放並導致全球陷於生化危機的真相的我們，自然不會被中共的媒體戰的論調所誤導，那麼圍繞著冠狀病毒這麼多年以來到底發生了什麼？本文試圖從中共的相關媒體記錄中尋找軌跡。
 
-《南華早報》：隨著病毒加速中美關系破裂，中國、美國處於“新冷戰”
+一、郭先生關於冠狀病毒的論述——[2020年2月21日郭先生參加班農戰斗室訪談](https://www.youtube.com/watch?v=fQ_MUbRUIWg&amp;t=1097s)
 
-> The Ukrainian “junk carrier” the CCP bought through a front company is now conducting “operations” in the SCS. The junk carrier can only launch 8 planes before the first plane has to land again! It’s quite a circus stunt..not a real fighting vessel. [https://t.co/kovrWfDslZ](https://t.co/kovrWfDslZ)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1257981040745988096?ref_src=twsrc%5Etfw)
+【**郭文貴先生：**是的，先生，**昨天我們****G-news****從俄羅斯政府網站，這是一份由專家給出的政府報告。這是一封官方信件，說中國的冠狀病毒是****100%****的人造的，不是天然的。**所以另一方面，先生，你需要知道，過去兩年，2018年和2019年在中共的中央電視臺及其軍事頻道，他們總是談論中共有能力製造冠狀病毒。是的，一樣的名字，冠狀病毒。他們說他們可以完全控制生化武器和冠狀病毒，他們是世界第一，擁有世界第一的能力。
 
-卡爾·巴斯先生：中共通過幌子公司購買的烏克蘭“垃圾航母”現正在南中國海執行“任務”。這艘垃圾航母上，第壹架飛機再次降落前最多只能有8架飛機起飛！基本就是雜耍…不是真正的作戰船。
+然後你知道，自2019年以來在12月，英雄李醫生是個爆料人，還有另外7名醫生說出真相。然後中共逮捕了他們，然後有些人死了，另外6人還有他們的家人現在被逮捕。還有一些領導在武漢說這種病毒來自動物，它來自海鮮市場。我們完全控制了局勢，沒有人傳人，只有動物傳動物，完全可控。2周後，武漢被隔離了，失控了，現在他們說這是人傳人。說這是從動物來的病毒，他們在中央電視臺製作了假視頻，原來的視頻帖子來自另一個國家帕勞。
 
-《環球時報》：中國在南中國海進行海軍演練，以防疫情後美國軍方的挑釁
+所以先生，你需要問這個問題：如果這是來自動物，來自海鮮市場，為什麼你要掩蓋真相？為什麼從2年前開始中國軍人在中央電視臺談論說我們有完全的能力幹倒美國？這是官方說法，不是我的話。你可以去Gnews看，Gnews不是觀點，是事實。你在那裡可以看到證據！】
 
-> Chinese military targeting Belgian biological pathogen and vaccine experts in a spy ring for the last 15 years. As if the world needed another reason to distrust the Chinese government. [#chinaspies](https://twitter.com/hashtag/chinaspies?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/V6zTHLrVNH](https://t.co/V6zTHLrVNH)
-> — 😷Kyle Bass😷 (@Jkylebass) [May 6, 2020](https://twitter.com/Jkylebass/status/1258128130025426944?ref_src=twsrc%5Etfw)
+二、在2019年下半年到疫情剛剛露出頭角，人民日報關於冠狀病毒相關文章的時間線，這個時間線以2019年12月12日為界，分為2019年12月12日以前和2019年12月12日以後兩部分，為什麼要以2019年12月12日為界呢？因為這個日期是我看到的公開報導冠狀病毒專家石正麗接觸到這一次生化危機的主角——冠狀病毒出場的日期，它就是2020年01月24日 17:57[財新網](http://www.caixin.com/)發表的[解碼新型冠狀病毒：SARS的“近親” 自然宿主或為蝙蝠](http://www.caixin.com/2020-01-24/101508132.html)提到的——【一種新型冠狀病毒nCoV-2019在武漢引起了急性呼吸綜合征的流行。該疫情始於2019年12月12日，在疫情早期，石正麗團隊從5名患者身上獲得了該病毒的全長基因組序列，它們基本上一致。研究發現，nCoV-2019與SARS-CoV的基因序列一致性達79.5%。】，現在這篇文章已經設置了許可權，無法全部讀取，但是這個日期已經深深刻在了我腦海裡，因為截止目前我再沒有看到過中共媒體和其他地區華文媒體提到的日期早於這個日期的：
 
-卡爾·巴斯先生：過去15年來，中國軍方間諜網壹直瞄準比利時生物病原體和疫苗專家。世界已經不相信中國政府，不需要更多理由了。
+1、2019年12月12日人民日報關於冠狀病毒報導的時間線（筆者注：為儘量減少篇幅，已經將搜索結果重複部分及不相關比如車輛保險優惠的相關部分去掉）
 
-歐盟觀察新聞網：[調查]疑中國在“歐盟核心”進行生物間諜活動
+【
 
-> China lied to the world and failed to [#StopCOVID](https://twitter.com/hashtag/StopCOVID?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> Americans should be able to sue the Chinese Communist Party and its minions for the damage they’ve inflicted. [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 6, 2020](https://twitter.com/MarshaBlackburn/status/1258042867261587458?ref_src=twsrc%5Etfw)
+- [**高福詳解病毒：與免疫系統的關係就像“貓鼠遊戲”**](http://jysh.people.cn/n1/2019/1119/c404390-31463267.html)
+- [狀病毒，這個病毒表面在電鏡下觀察，周圍就好像有一個皇冠，因此而得名。人類對冠狀病毒的認識還很膚淺。上個世紀，我們才開始認識冠狀病毒，截至目前發現的（已知的）冠狀病毒不過十種，根據報導，有的甚至只感染過]
+- [http://jysh.people.cn/n1/2019/1119/c404390-31463267.html](http://jysh.people.cn/n1/2019/1119/c404390-31463267.html)     2019-11-19 14:10:54
 
-參議員 Marsha Blackburn：中共國向世界撒了謊且沒能阻止冠狀病毒擴散。美國人應該就中共和它的嘍啰們造成的損失起訴他們。
 
-> The Chinese Government spent the early days of the COVID-19 outbreak destroying testing samples, intimidating doctors, and expelling journalists who refused to publish Communist Party propaganda.
->  
-> They lied to everyone about how dangerous this virus is, & they did it on purpose. [pic.twitter.com/z1MRe5tnt9](https://t.co/z1MRe5tnt9)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 7, 2020](https://twitter.com/MarshaBlackburn/status/1258199019760861187?ref_src=twsrc%5Etfw)
+- [**流感季來臨流感疫苗打還是不打？疾控專家來解答**](http://health.people.com.cn/n1/2019/1117/c14739-31459013.html)
+- [預防流感的有效手段，但是值得注意的一點是，接種流感疫苗只能預防流感感染，不能預防像鼻病毒、冠狀病毒、副流感病毒感染引起的一些類似症狀的普通感冒，也不能預防除流感病毒以外的其他病原體感染。 而且，流感]
+- [http://health.people.com.cn/n1/2019/1117/c14739-31459013.html](http://health.people.com.cn/n1/2019/1117/c14739-31459013.html)     2019-11-17 09:15:47
 
-參議員 Marsha Blackburn：冠狀病毒爆發的最初幾天，中國政府忙著銷毀測試樣本、恐嚇醫生和驅逐不願配合中共大外宣的記者。他們騙了所有人這種病毒有多危險，而且是故意的。
 
-> China is the greatest geopolitical threat facing the U.S. and our allies. We need to act like it. [pic.twitter.com/0GiYKURkvh](https://t.co/0GiYKURkvh)
-> — Senator Ted Cruz (@SenTedCruz) [May 6, 2020](https://twitter.com/SenTedCruz/status/1258119517294792707?ref_src=twsrc%5Etfw)
+- [**流感季節將至，接種疫苗是防控首選**](http://health.people.com.cn/n1/2019/1111/c14739-31447833.html)
+- [不同，學會區分很重要。 人們常說的感冒主要是在肌體淋雨、勞累、受涼等抵抗力低下的時候，來源於自己自身攜帶的病原，比如鼻病毒、冠狀病毒。感冒主要是局部症狀重，患者通常表現為鼻咽部的炎症，症狀有打噴嚏、]
+- [http://health.people.com.cn/n1/2019/1111/c14739-31447833.html](http://health.people.com.cn/n1/2019/1111/c14739-31447833.html)     2019-11-11 08:46:49
+- [**國家衛健委提示：****11****月中下旬流感活動將逐步增強**](http://health.people.com.cn/n1/2019/1110/c14739-31446884.html)
+- [進入流感流行季。 　　流感不是普通感冒 　　流感，不是普通感冒。普通感冒常由於受涼或鼻病毒、冠狀病毒、細菌等病原引起的呼吸道疾病，傳染性不強，症狀較輕，呈自限性。 　　流感是由流感病毒(甲型]
+- [http://health.people.com.cn/n1/2019/1110/c14739-31446884.html](http://health.people.com.cn/n1/2019/1110/c14739-31446884.html)     2019-11-10 10:45:11
+- [**秋冬流感季，你需要的都在這裡**](http://kjsh.people.cn/n1/2019/1101/c426323-31432422.html)
+- [ 你知道這些關於流感的小知識嗎？來聽中國疾控中心告訴你。 1.流感不是普通感冒 流感，不是普通感冒。普通感冒常由於受涼或鼻病毒、冠狀病毒、細菌等病原引起的呼吸道疾病，傳染性不強，症狀較輕，]
+- [http://kjsh.people.cn/n1/2019/1101/c426323-31432422.html](http://kjsh.people.cn/n1/2019/1101/c426323-31432422.html)     2019-11-01 08:40:31
+- [**國家衛健委：流感仍然威脅人民健康** **不宣導帶病工作**](http://politics.people.com.cn/n1/2019/1101/c1001-31431824.html)
+- [低下時發生，病原為患者自身攜帶的，比如鼻病毒、冠狀病毒；而流感不同，流感絕大多數和患者密切接觸周圍環境有關。” “老百姓說的感冒主要是局部症狀重，患者通常表現為鼻咽部的炎症，症狀有打噴嚏、流鼻涕、鼻]
+- [http://politics.people.com.cn/n1/2019/1101/c1001-31431824.html](http://politics.people.com.cn/n1/2019/1101/c1001-31431824.html)     2019-11-01 06:21:56
 
-參議員 Ted Cruz：中國是美國及盟友面臨的最大地緣政治威脅。我們必須識時務。
 
-> .[@TencentGlobal](https://twitter.com/TencentGlobal?ref_src=twsrc%5Etfw) and [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw) are espionage operations for the Chinese Communist Party, masquerading as telecommunication companies. I'm introducing a bill to help stop China’s surveillance in the US by prohibiting federal employees from using these platforms for official business. [pic.twitter.com/Je4fh0sU6T](https://t.co/Je4fh0sU6T)
-> — Senator Ted Cruz (@SenTedCruz) [May 6, 2020](https://twitter.com/SenTedCruz/status/1258148026553688077?ref_src=twsrc%5Etfw)
+- [**流感高發季又將來臨，打流感疫苗應該注意啥？**](http://health.people.com.cn/n1/2019/1025/c14739-31420012.html)
+- [老百姓就把流感和其他病原體引起的感冒混淆在一塊。 “流感疫苗只能預防流感病毒引起的疾病，不可能預防其他病原體，如呼吸道合胞病毒、腺病毒、冠狀病毒、細菌、支原體、衣原體等引起的呼吸道感染。”餘宏傑說。]
+- [http://health.people.com.cn/n1/2019/1025/c14739-31420012.html](http://health.people.com.cn/n1/2019/1025/c14739-31420012.html)     2019-10-25 08:52:24
+- [**鐘南山：科研與人生永不止步**](http://cpc.people.com.cn/n1/2019/1007/c64104-31385794.html)
+- [非典疫情突如其來，他不顧生命危險應對災難，夜以繼日地工作。在非典病因不明的情況下，他以客觀事實和臨床經驗為依據，最終證實非典是一種新型冠狀病毒，最終使廣東成為全球非典病人治癒率最高、死亡率最低的地區]
+- [http://cpc.people.com.cn/n1/2019/1007/c64104-31385794.html](http://cpc.people.com.cn/n1/2019/1007/c64104-31385794.html)     2019-10-07 09:09:20
 
-參議員 Ted Cruz：騰訊和華為是中共偽裝成電信公司的間諜行動。我將提出壹項法案，禁止聯邦雇員在公務中使用這些平臺，以阻止中國對美國的監視。
 
-> USAF B-1Bs RAMSY01 & 02 departed Andersen AFB, Guam and flew to the East China Sea to conduct operations
-> 
-> USAF KC-135R PARKA11 provided tanker support [pic.twitter.com/YdAYzR6XQI](https://t.co/YdAYzR6XQI)
-> — Aircraft Spots (@AircraftSpots) [May 6, 2020](https://twitter.com/AircraftSpots/status/1257939339972993024?ref_src=twsrc%5Etfw)
+- [**防病治病** **守護生命**](http://society.people.com.cn/n1/2019/0923/c1008-31366955.html)
+- [呼吸系統疾病臨床醫學研究中心主任鐘南山。 當時，非典病因不明，鐘南山堅持以事實為依據，力排眾議，最終證實非典是一種新型冠狀病毒。這一結果得到世界衛生組織的確認。在黨中央的堅強領導下，全國人民萬眾一心、]
+- [http://society.people.com.cn/n1/2019/0923/c1008-31366955.html](http://society.people.com.cn/n1/2019/0923/c1008-31366955.html)     2019-09-23 08:23:53】
 
-比爾·格茨先生 轉推：
-Aircraft Spots：美國空軍B-1B轟炸機RAMSY01 & 02從關島安德森空軍基地（Andersen AFB）起飛，到達東海執行任務。美國空軍KC-135R PARKA11空中加油機提供了支持。
 
-> Now on sale: My new ebook, How China’s Communist Party Made the World Sick. Already a best-seller. Buy it here: [https://t.co/iRDYT6q6ch](https://t.co/iRDYT6q6ch) [pic.twitter.com/Gv7WhMGgPd](https://t.co/Gv7WhMGgPd)
-> — Bill Gertz (@BillGertz) [May 6, 2020](https://twitter.com/BillGertz/status/1258063952539529248?ref_src=twsrc%5Etfw)
+以上為相關文章搜索結果摘錄，在這一部分的文章裡，我的疑問就是為什麼人民日報會這麼富有愛心地提醒要**接種疫苗、****11****月下旬將要流行流感、病毒與免疫系統的關係**？基於這樣的問題，我就進行了接下來本文第三部分的工作——查詢歷史上人民日報在2011年以前關於冠狀病毒的相關文章，先按下不表。
 
-比爾·格茨先生：現在特價：我的電子版新書《中共是如何讓世界病倒的》。已經是暢銷書。在此購買：
+2、2019年12月12日至2020年1月20日17:43:26秒，為什麼選這個時間段的文章摘錄呢？因為路德先生在2020年1月19日的這期節目“[1/19/2020路安艾時評：為什麼財新胡舒立要一再否認武漢SARS病毒和舟山蝙蝠病毒的關聯性？中共和該病毒有什麼關係？該病毒是否已經進化具備人傳人大爆發可能性？為什麼中共要不斷隱瞞確診案例？](https://www.youtube.com/watch?v=CLTjg03CPEs)”捅破了窗戶紙，而且在2020年1月20日17:43:26秒的這篇文章後面就是習近平主席、李克強總理、孫春蘭副總理紛紛登臺唱戲了。
 
-> Secretary of State Pompeo, in his harshest criticism to date, demands China open up Wuhan labs and provide coronavirus samples and data. Also wants Taiwan at World Health Assembly [https://t.co/2yGFPzBhW8](https://t.co/2yGFPzBhW8)
-> — Bill Gertz (@BillGertz) [May 6, 2020](https://twitter.com/BillGertz/status/1258101759307808769?ref_src=twsrc%5Etfw)
+另據[2020年2月22日文貴談CCP要與世界玉石俱焚](https://www.youtube.com/watch?v=ZlJTj1VXv6Y&amp;t=4228s)郭先生提到【另外一個，戰友們，北京我要告訴大家的，北京死的人和感染的人絕對是他所說的數字的倍數，倍數！當時咱們一位軍醫院的女戰友當時給我發來了一個資訊，我沒看明白，我說死了大概20還是25？我就用我們聯絡的方式給她發了，她給我發了“km2”。
 
-比爾·格茨先生：蓬佩奧國務卿，在他迄今為止最尖銳的批評中，要求中國開放武漢實驗室並提供冠狀病毒樣本和數據。同時希望臺灣參加世界衛生大會。
+親愛的兄弟姐妹們，這位戰友當km2，我沒搞明白。我說km2平方公里啊，啥意思啊。後來她跟我說，我告訴你，是他們說的數的N倍，所有處理以絕密的方式進行，隔離和寧可錯殺——就是我懷疑你可能感冒，你是感冒，但我懷疑你是，立馬隔離。北京是最嚴的！
 
-《華盛頓時報》：蓬佩奧就掩蓋病毒來源壹事向中國施壓，臺灣
+他說他和武漢湖北的同事們所聯繫的，因為這個軍事醫院，說採取措施最早的是湖北的軍方，採取最嚴厲的措施，以生化戰爭方式處理的，是北京。說整個這幾個他們軍醫院馬上接到命令，以防化武器、防化戰爭的方式準備的。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party attempt to rewrite history continues. The US shouldn’t sit back and hope China behaves better. Need to exercise again the leadership we have shown for a century – overhaul global trade and economic rules to prioritize American workers & our security [https://t.co/o3u8sj2b0J](https://t.co/o3u8sj2b0J)
-> — Josh Hawley (@HawleyMO) [May 6, 2020](https://twitter.com/HawleyMO/status/1258134644186324992?ref_src=twsrc%5Etfw)
+所以說，親愛的兄弟姐妹們，你去想想，我們從1月份、12月底就開始，隱隱約約爆料革命路德先生就開始講，1月份就開始說，開始爆料，到我們的預告……
 
-參議員 Josh Hawley：中共從未停止改寫歷史的企圖。美國不能坐視不管並寄希望於中國改善作為。需要再次運用我們百年來所展現的領導力——徹底改變貿易和經濟法則，將美國工人和我們的安全放在第壹位。
+**她說軍方當時下命令，把他們嚇壞了。一切是按戰爭準備的，防化的，而且馬上北京啟動了所謂預備役的方案。然後各個醫院周圍全佈置了截擊手啊，什麼各種防化設施啊，防化車啊全來了。**他們以為是一種預防，保領導、保政治。然後聽說301開會開到深夜，做出了決定，所有的醫院現在開始起進入什麼什麼狀態，她也以為是這樣。直到過了第二天才知道，北京死人啦，死了很多人，而且不准回家了，就要在崗了。
 
-Josh Rogin：這篇聲明的驚人之處是歐盟承認中國政府要求他們審查社論對頁版文章，他們拒絕，但隨後放棄並任由其繼續。可怕。
+但是她說出了一個最核心的消息：武漢實驗室的病毒是人工合成的，明確地說這個病毒不是來自自然，是人工合成的，等同于生化武器！是1月初，咱們整個爆料革命，路德訪談開始說的時候，內部已經決定。**所以****1****月****6****號、****1****月****7****號習主席的會議的批示，這都是亂扯的。你在沒批示的時候，你已經定義為這是生化武器，而且是人工的。**】，也就是說這場針對全世界的生化戰爭已經開戰了——
 
-> A first step to confronting [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) economic imperialism & reforming the global economy: abolish the WTO [https://t.co/jzgaUn8zYi](https://t.co/jzgaUn8zYi)
-> — Josh Hawley (@HawleyMO) [May 6, 2020](https://twitter.com/HawleyMO/status/1258136401528467457?ref_src=twsrc%5Etfw)
+【[**\[****外交部回應新型****冠狀病毒****感染肺炎疫情：將同各方保持密切溝通** **攜手應對疫情****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31557419.html)
 
-參議員 Josh Hawley：對抗中國經濟帝國主義及改革全球經濟現狀的第壹步：廢除世貿組織（文章來源：Newsmax網）
+- [ 人民網北京1月20日電 據人民日報20日於官方微博發佈的消息稱，在1月20日中國外交部舉行的例行記者會上，有外媒提問中方正在採取哪些措施應對新型冠狀病毒感染的肺炎疫情時，耿爽回應：中方一直在採取]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31557419.html](http://health.people.com.cn/n1/2020/0120/c14739-31557419.html)     2020-01-20 17:43:26
 
-> The SEC should block IPOs for Chinese companies
-> 
-> Didn’t last month’s Luckin Coffee scandal show us why no new listings from [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) should be allowed until US regulators can inspect the books of all firms who wish to be traded on our exchanges?[https://t.co/sRVEtoRsDt](https://t.co/sRVEtoRsDt)
-> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1258160255927812105?ref_src=twsrc%5Etfw)
 
-參議員 Marco Rubio：美國證券交易委員（SEC）會應該阻止中國公司IPO。在美國監管部門能夠查看所有希望在我們的交易所進行交易的公司賬目之前，不能讓任何中國公司上市。難道上個月的瑞幸咖啡醜聞還沒說明原因嗎？
+- [**\[****上海市對新型****冠狀病毒****感染肺炎可疑病例人員已採取防治措施****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31557418.html)
+- [ 人民網北京1月20日電 人民日報官方微信公眾號20日發佈消息稱，在當日舉行的上海市政府記者招待會上，上海市長應勇在回答有關新型冠狀病毒肺炎的提問時表示，上海高度重視國家有關方面要求，市委市政府]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31557418.html](http://health.people.com.cn/n1/2020/0120/c14739-31557418.html)     2020-01-20 17:42:23
 
-> ⁦Would be interesting if someone analyzed commercial telemetry data at & near Wuhan lab from Oct-Dec 2019
-> 
-> If it shows dramatic drop off in activity compared to previous 18 months it would be a strong indication of an incident at lab & of when it happened [https://t.co/7DQh8F6DXg](https://t.co/7DQh8F6DXg)
-> — Marco Rubio (@marcorubio) [May 6, 2020](https://twitter.com/marcorubio/status/1258036386826981377?ref_src=twsrc%5Etfw)
 
-參議員 Marco Rubio：如果有人將2019年10月至12月武漢實驗室及其周邊的商業活動遙測數據進行分析，應該會很有意思。如果與之前18個月相比，活動量急劇下降，則能夠強烈表明實驗室發生了什麽事件以及何時發生的。
+- [**\[****外交部回應新型****冠狀病毒****肺炎疫情處置情況****\]**](http://world.people.com.cn/n1/2020/0120/c1002-31557412.html)
+- [ 人民網北京1月20日電據外交部網站消息，外交部發言人耿爽今日主持例行記者會。 記者會實錄如下： 問：中國採取了哪些舉措應對新型冠狀病毒肺炎疫情？是否及如何與其他國家就此開展合作？]
+- [http://world.people.com.cn/n1/2020/0120/c1002-31557412.html](http://world.people.com.cn/n1/2020/0120/c1002-31557412.html)     2020-01-20 17:28:03
 
-> “In February, the department announced it has uncovered $6.5 billion so far in undisclosed foreign funding from Saudi Arabia, Qatar, China and Russia. The investigation has since been expanded to include Harvard and Yale.” [https://t.co/c3IVlX4WEW](https://t.co/c3IVlX4WEW)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1258000233658712066?ref_src=twsrc%5Etfw)
 
-斯伯丁將軍：“二月份，教育部宣布，截至當時，發現了來自沙特、卡塔爾、中國和俄羅斯的65億美元未公開外國資金。此後，調查範圍擴大到哈佛和耶魯。”
+- [**\[****外交部回應新型****冠狀病毒****肺炎疫情：中方將同各方攜手應對疫情****\]**](http://v.people.cn/n1/2020/0120/c431206-31557405.html)
+- [http://v.people.cn/n1/2020/0120/c431206-31557405.html](http://v.people.cn/n1/2020/0120/c431206-31557405.html)     2020-01-20 17:13:38
 
-Zerohedge：共和黨：中國滲透到美國高等教育以阻礙冠狀病毒研究
 
-> This is probably a good idea. It’s time to accept that some of our allies may value their economic relationship with the CCP more than their security relationship with the US. That’s ok, because it’s better to have allies that share our principles. [https://t.co/Wn85tUWuKg](https://t.co/Wn85tUWuKg)
-> — General Spalding (@robert\_spalding) [May 6, 2020](https://twitter.com/robert_spalding/status/1258002412050223104?ref_src=twsrc%5Etfw)
+- [**\[****韓國確診首例新型****冠狀病毒****感染肺炎病例****\]**](http://korea.people.com.cn/n1/2020/0120/c407864-31557401.html)
+- [ 　　人民網首爾1月20日電（夏雪）據韓國疾病管理本部20日消息，當天確診1例新型冠狀病毒感染肺炎病例，該患者從中國湖北省武漢市入境韓國。目前韓國衛生部門正在高度關注疫情動態，並加大防控防疫力度。]
+- [http://korea.people.com.cn/n1/2020/0120/c407864-31557401.html](http://korea.people.com.cn/n1/2020/0120/c407864-31557401.html)     2020-01-20 17:10:21
 
-斯伯丁將軍：這是個好主意。現在該接受壹個現實，我們某些盟友可能更看重與中共的經濟關系，而非與美國的安全關系。就這樣吧，還是與有共同理念的國家結盟更好。
 
-Kevin R Hogan：因為英國允許華為建造其部分5G網絡，美國偵察機可能從英國撤出。據說白宮正在考慮是否基於安全擔憂要將情報設備撤出。英國使用華為可能使美英之間“特殊關系”復雜化。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07004823/image0.png-6.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07004829/image0-58.jpg)
+- [**\[****韓國確診首例新型****冠狀病毒****感染肺炎病例****\]**](http://world.people.com.cn/n1/2020/0120/c1002-31557363.html)
+- [ 人民網首爾1月20日電（夏雪）據韓國疾病管理本部20日消息，當天確診1例新型冠狀病毒感染肺炎病例，該患者從中國湖北省武漢市入境韓國。目前衛生部門正在高度關注疫情動態，並加大防控防疫力度。]
+- [http://world.people.com.cn/n1/2020/0120/c1002-31557363.html](http://world.people.com.cn/n1/2020/0120/c1002-31557363.html)     2020-01-20 16:32:06
+
+
+- [**\[****一文瞭解新型****冠狀病毒** **教你做好“自我防護”****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31557153.html)
+- [新增確診新型冠狀病毒肺炎病例：廣東1例 北京2例 武漢136例 泰國2例 日本1例 韓國1例外交部回應新型冠狀病毒感染肺炎疫情：將同各方保持密切溝通 攜手應對疫情上海市對新型冠狀病毒感染肺炎可疑病例人員已採取防治措施 新型冠狀病毒感染的肺炎健康科普小知識 自2019年12月以來，湖北省武漢市發現多起不明原因的病毒性肺炎病例。國家衛健委立即派出國家工作組和專家組趕赴武漢，按照屬地管理原則，與湖北省、]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31557153.html](http://health.people.com.cn/n1/2020/0120/c14739-31557153.html)     2020-01-20 13:55:59
+- [**\[****北京開展新型****冠狀病毒****感染的肺炎防治工作****\]**](http://society.people.com.cn/n1/2020/0120/c1008-31557129.html)
+- [ 　　新華社北京1月20日電（記者俠克）記者20日從北京市衛生健康委員會獲悉，在武漢發生新型冠狀病毒感染的肺炎疫情後，北京市加強資訊收集和研判，有關部門通過排查發現2例武漢輸入性新型冠狀病毒感染的]
+- [http://society.people.com.cn/n1/2020/0120/c1008-31557129.html](http://society.people.com.cn/n1/2020/0120/c1008-31557129.html)     2020-01-20 13:35:11
+- [**\[****韓國出現一新型****冠狀病毒****肺炎確診病例****\]**](http://korea.people.com.cn/n1/2020/0120/c407864-31557125.html)
+- [ 　　人民網訊 據韓聯社援引韓國疾病管理本部20日消息，19日從中國武漢通過仁川國際機場入境的一名中國籍女性被確診感染所謂“武漢肺炎”的新型冠狀病毒肺炎。 　　該患者在仁川機場到達廳被發現有]
+- [http://korea.people.com.cn/n1/2020/0120/c407864-31557125.html](http://korea.people.com.cn/n1/2020/0120/c407864-31557125.html)     2020-01-20 13:32:06
+- [**\[****新增確診新型****冠狀病毒****感染肺炎病例：廣東****1****例、北京****2****例、武漢****136****例、泰國****2****例、日本****1****例、韓國****1****例****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31557091.html)
+- [ 人民網北京1月20日電 綜合浙江省衛健委官網、廣東省衛健委官網、北京市大興區衛健委官方微博和武漢市衛健委官網消息，截至1月20日下午15時，我國境內新增確診新型冠狀病毒感染肺炎病例具體情況為：]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31557091.html](http://health.people.com.cn/n1/2020/0120/c14739-31557091.html)     2020-01-20 11:41:22
+- [**\[****新型****冠狀病毒****感染的肺炎健康科普小知識****\]**](http://v.people.cn/n1/2020/0120/c358382-31557088.html) [http://v.people.cn/n1/2020/0120/c358382-31557088.html](http://v.people.cn/n1/2020/0120/c358382-31557088.html)     2020-01-20 11:32:56
+- [**\[****武漢新型****冠狀病毒****感染肺炎病例最新情況：治癒出院****4****例** **無死亡病例****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31556520.html)
+- [檢測試劑盒檢測出的新型冠狀病毒核酸陽性結果進行綜合研判，新認定新型冠狀病毒感染的肺炎病例17例。另外，17日0-24時，治癒出院4例，無死亡病例。 　　通報說，17例患者中，男性12例、女性5例；]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31556520.html](http://health.people.com.cn/n1/2020/0120/c14739-31556520.html)     2020-01-20 08:42:29
+- [**\[****國家衛健委****:****新型****冠狀病毒****疫情可防可控** **傳染來源尚未找到****\]**](http://yuqing.people.com.cn/n1/2020/0120/c209043-31556479.html)
+- [ 　　本報北京1月19日電（中青報·中青網記者 姜蕾）今天，國家衛生健康委員會發佈新型冠狀病毒疫情防控情況稱，專家研判認為，當前新型冠狀病毒疫情仍可防可控，但傳染來源尚未找到，疫情傳播途徑尚未完全]
+- [http://yuqing.people.com.cn/n1/2020/0120/c209043-31556479.html](http://yuqing.people.com.cn/n1/2020/0120/c209043-31556479.html)     2020-01-20 08:38:52
+- [**\[****國家衛健委：繼續加強新型****冠狀病毒****溯源和變異監測工作****\]**](http://health.people.com.cn/n1/2020/0120/c14739-31556449.html)
+- [健委還第一時間組織中國疾控中心、中國醫學科學院、中國科學院、軍事科學院軍事醫學研究院等單位對病例樣本進行實驗室平行檢測。2020年1月8日，初步確認了新型冠狀病毒為此次疫情的病原。隨即進一步加強部門]
+- [http://health.people.com.cn/n1/2020/0120/c14739-31556449.html](http://health.people.com.cn/n1/2020/0120/c14739-31556449.html)     2020-01-20 08:37:02
+- [**\[****武漢：新增新型****冠狀病毒****肺炎病例****136****例** **死亡****1****例****\]**](http://society.people.com.cn/n1/2020/0120/c1008-31555989.html)
+- [武漢市在不斷規範各級各類醫療機構預檢分診和發熱門診運行的基礎上，按照新修訂的新型冠狀病毒感染的肺炎診療方案，進一步加大了新型冠狀病毒感染的肺炎疑似病例篩查力度，同時進一步完善檢測方案，優化檢測流程，加快了]
+- [http://society.people.com.cn/n1/2020/0120/c1008-31555989.html](http://society.people.com.cn/n1/2020/0120/c1008-31555989.html)     2020-01-20 07:13:00
+- [**\[****北京大興區確診兩例新型****冠狀病毒****感染的肺炎病例****\]**](http://society.people.com.cn/n1/2020/0120/c1008-31555975.html)
+- [ 人民網北京1月20日電（記者 白宇）據北京市大興區衛生健康委員會官方微博消息，大興區確診兩例新型冠狀病毒感染的肺炎病例。大興區醫療機構接診的兩名有武漢旅行史的發熱患者，根據臨床症狀和流行病學調查]
+- [http://society.people.com.cn/n1/2020/0120/c1008-31555975.html](http://society.people.com.cn/n1/2020/0120/c1008-31555975.html)     2020-01-20 06:41:00
+- [**\[****上海加強對可疑病例篩查積極防控新型****冠狀病毒****感染肺炎****\]**](http://society.people.com.cn/n1/2020/0119/c1008-31555869.html)
+- [ 人民網北京1月19日電 據上海衛健委官方微博消息，上海高度重視新型冠狀病毒感染的肺炎防控工作，在國家衛生健康委公佈武漢不明原因肺炎疫情後，衛生健康部門迅速回應，成立專項工作組和專家組，及時制定]
+- [http://society.people.com.cn/n1/2020/0119/c1008-31555869.html](http://society.people.com.cn/n1/2020/0119/c1008-31555869.html)     2020-01-19 22:33:53
+- [**\[****國家衛健委：新型****冠狀病毒****肺炎疫情可控** **傳染源未找到****\]**](http://society.people.com.cn/n1/2020/0119/c1008-31555857.html)
+- [ 人民網北京1月19日電 據國家衛健委官方微信消息，湖北省武漢市發生不明原因肺炎疫情後，國家衛健委立即派出國家工作組和專家組趕赴武漢，專家研判認為，當前疫情仍可防可控。但新型冠狀病毒傳染來源尚未]
+- [http://society.people.com.cn/n1/2020/0119/c1008-31555857.html](http://society.people.com.cn/n1/2020/0119/c1008-31555857.html)     2020-01-19 20:13:05
+- [**\[****疫情可防可控——武漢市就新型****冠狀病毒****感染的肺炎綜合防控工作答記者問****\]**](http://society.people.com.cn/n1/2020/0119/c1008-31555519.html)
+- [ 新華社武漢1月19日電 題：疫情可防可控——武漢市就新型冠狀病毒感染的肺炎綜合防控工作答記者問 新華社記者廖君、樂文婉 19日，武漢市就新型冠狀病毒感染的肺炎綜合防控工作答記者問。受訪]
+- [http://society.people.com.cn/n1/2020/0119/c1008-31555519.html](http://society.people.com.cn/n1/2020/0119/c1008-31555519.html)     2020-01-19 13:23:54
+- [**\[****武漢市衛健委：新型****冠狀病毒****感染的肺炎病例新增****17****例** **治癒出院****4****例****\]**](http://health.people.com.cn/n1/2020/0119/c14739-31554757.html)
+- [ 人民網北京1月19日電（董童）據武漢市衛健委官網于19日淩晨發佈的《關於新型冠狀病毒感染的肺炎情況通報》（以下簡稱“通報”）顯示，2020年1月17日0—24時，治癒出院4例，新增病例17例，無]
+- [http://health.people.com.cn/n1/2020/0119/c14739-31554757.html](http://health.people.com.cn/n1/2020/0119/c14739-31554757.html)     2020-01-19 08:03:06
+- [**武漢衛健委最新通報****:****治癒出院****4****例****,****新增病例****17****例****,****無死亡病例**](http://society.people.com.cn/n1/2020/0119/c1008-31554630.html)
+- [ 武漢市衛健委官網截圖。 人民網北京1月19日電 （馮粒）據武漢市衛健委19日淩晨發佈的通報，2020年1月17日0—24時，新型冠狀病毒感染的肺炎病例中治癒出院4例，新增病例17例，無]
+- [http://society.people.com.cn/n1/2020/0119/c1008-31554630.html](http://society.people.com.cn/n1/2020/0119/c1008-31554630.html)     2020-01-19 07:18:53
+- [**\[****武漢市衛生健康委員會通報新型****冠狀病毒****感染的肺炎情況****:****新增****4****例****\]**](http://society.people.com.cn/n1/2020/0118/c1008-31554229.html)
+- [武漢市新增4例新型冠狀病毒感染的肺炎病例，目前，新增病例已安排轉院至武漢市金銀潭醫院救治，所有病例病情穩定，無危重症，病例發病時間集中在1月5日至8日，相關流行病學調查和密切接觸者搜尋工作正在開展中。]
+- [http://society.people.com.cn/n1/2020/0118/c1008-31554229.html](http://society.people.com.cn/n1/2020/0118/c1008-31554229.html)     2020-01-18 07:59:31
+- [**\[****世衛組織：日本出現一例新型****冠狀病毒****病例****\]**](http://world.people.com.cn/n1/2020/0117/c1002-31553747.html)
+- [ 　　新華社日內瓦1月16日電（記者劉曲）世界衛生組織16日發表聲明說，已收到日本確診一例新型冠狀病毒病例的報告。這是繼泰國確診一例新型冠狀病毒病例後，於中國境外發現的第二例。 　　世衛組織說]
+- [http://world.people.com.cn/n1/2020/0117/c1002-31553747.html](http://world.people.com.cn/n1/2020/0117/c1002-31553747.html)     2020-01-17 14:41:48
+- [**\[****武漢衛健委：新型****冠狀病毒****肺炎新增****1****例死亡病例****\]**](http://health.people.com.cn/n1/2020/0117/c14739-31553265.html)
+- [ 2020年1月17日電（王國菁）16日晚間，武漢市衛健委官網發佈通告稱，2020年1月15日0—24時，該市無新增新型冠狀病毒感染的肺炎病例，治癒出院5例，新增死亡病例1例。 死者熊某某，男]
+- [http://health.people.com.cn/n1/2020/0117/c14739-31553265.html](http://health.people.com.cn/n1/2020/0117/c14739-31553265.html)     2020-01-17 09:28:17
+- [**\[****武漢衛健委：新型****冠狀病毒****肺炎新增死亡病例****1****例****\]**](http://yuqing.people.com.cn/n1/2020/0117/c209043-31552560.html)
+- [ 人民網北京1月17日電 據武漢市衛生健康委員會網站消息，2020年1月15日0—24時，武漢市無新增新型冠狀病毒感染的肺炎病例，治癒出院5例，新增死亡病例1例。死者熊某某，男，69歲，2019年]
+- [http://yuqing.people.com.cn/n1/2020/0117/c209043-31552560.html](http://yuqing.people.com.cn/n1/2020/0117/c209043-31552560.html)     2020-01-17 07:59:32
+- [**\[****日本確診首例新型****冠狀病毒****病例** **患者已出院****\]**](http://world.people.com.cn/n1/2020/0116/c1002-31551967.html)
+- [ 　　新華社東京1月16日電（記者姜俏梅）日本厚生勞動省16日公佈，在神奈川縣居住的一名30多歲男子被確診為日本國內首例感染新型冠狀病毒的病例，這名患者已經在15日出院。 　　厚生勞動省當天]
+- [http://world.people.com.cn/n1/2020/0116/c1002-31551967.html](http://world.people.com.cn/n1/2020/0116/c1002-31551967.html)     2020-01-16 15:37:29
+- [**武漢衛健委：新型肺炎持續人傳人的風險較低**](http://health.people.com.cn/n1/2020/0115/c14739-31549271.html)
+- [ 人民網北京1月15日電（王國菁）15日淩晨，武漢市衛健委在官網發佈《新型冠狀病例感染的肺炎疫情知識問答》（以下簡稱“知識問答”）指出，1月13日，泰國報導1例來自武漢的新型冠狀病毒感染的肺炎病例]
+- [http://health.people.com.cn/n1/2020/0115/c14739-31549271.html](http://health.people.com.cn/n1/2020/0115/c14739-31549271.html)     2020-01-15 08:56:11
+- [**突發公共衛生事件的應急宣傳工作**](http://yuqing.people.com.cn/n1/2020/0114/c209043-31548037.html)
+- [出院。另據央視新聞1月9日報導，截至7日21時，專家組認為，本次不明原因的病毒性肺炎病例的病原體初步判定為新型冠狀病毒。 突發公共衛生事件是突發公共事件的典型類型之一，指突然發生，造成或者可能造成]
+- [http://yuqing.people.com.cn/n1/2020/0114/c209043-31548037.html](http://yuqing.people.com.cn/n1/2020/0114/c209043-31548037.html)     2020-01-14 14:17:01
+- [**\[****世衛組織：泰國發現****1****例新型****冠狀病毒****病例****\]**](http://world.people.com.cn/n1/2020/0114/c1002-31547875.html)
+- [ 　　新華社北京1月14日電 綜合新華社駐日內瓦記者劉曲、駐曼谷記者汪瑾報導：世界衛生組織13日發表一份聲明說，已收到在泰國確診一名中國旅客感染新型冠狀病毒的報告，並援引泰國官員的消息表示這名患者]
+- [http://world.people.com.cn/n1/2020/0114/c1002-31547875.html](http://world.people.com.cn/n1/2020/0114/c1002-31547875.html)     2020-01-14 11:23:16
+- [**武漢市衛健委：肺炎病例新治癒出院****1****例****687****人接受觀察**](http://society.people.com.cn/n1/2020/0113/c1008-31546539.html)
+- [ 人民網北京1月13日電 據武漢市衛生健康委員會網站消息，2020年1月12日0—24時，武漢市無新增新型冠狀病毒感染的肺炎病例，治癒出院1例，無新增死亡病例報告。 截至目前，武漢市累計報告]
+- [http://society.people.com.cn/n1/2020/0113/c1008-31546539.html](http://society.people.com.cn/n1/2020/0113/c1008-31546539.html)     2020-01-13 19:53:56
+- [**\[****武漢通報新型****冠狀病毒****感染肺炎：****717****人尚在接受觀察****\]**](http://yuqing.people.com.cn/n1/2020/0113/c209043-31544869.html)
+- [ 　　人民網北京1月12日電 據武漢市衛生健康委員會網站消息，2020年1月11日0—24時，武漢市無新增新型冠狀病毒感染的肺炎病例，治癒出院4例，無新增死亡病例報告。 　　截止目前，武漢市]
+- [http://yuqing.people.com.cn/n1/2020/0113/c209043-31544869.html](http://yuqing.people.com.cn/n1/2020/0113/c209043-31544869.html)     2020-01-13 08:02:08
+- [**\[****武漢通報新型****冠狀病毒****感染肺炎：****717****人尚在接受觀察****\]**](http://society.people.com.cn/n1/2020/0112/c1008-31544660.html)
+- [ 人民網北京1月12日電 據武漢市衛生健康委員會網站消息，2020年1月11日0—24時，武漢市無新增新型冠狀病毒感染的肺炎病例，治癒出院4例，無新增死亡病例報告。 截止目前，武漢市累計報告]
+- [http://society.people.com.cn/n1/2020/0112/c1008-31544660.html](http://society.people.com.cn/n1/2020/0112/c1008-31544660.html)     2020-01-12 20:54:49
+- [**感染新型冠狀病毒性肺炎****41****例確診病例中死亡****1****例**](http://health.people.com.cn/n1/2020/0112/c14739-31544411.html)
+- [ 　　武漢市衛生健康委11日晨發佈通報稱，在“不明原因的病毒性肺炎”病原體初步判定為新型冠狀病毒之後，武漢衛健委組織對現有患者標本進行檢測，截至1月10日24時，初步診斷有新型冠狀病毒感染的肺炎]
+- [http://health.people.com.cn/n1/2020/0112/c14739-31544411.html](http://health.people.com.cn/n1/2020/0112/c14739-31544411.html)     2020-01-12 08:54:36
+- [**專家稱不明原因病毒性肺炎可防可控**](http://health.people.com.cn/n1/2020/0112/c14739-31544376.html)
+- [ 　　綜合新華社電 武漢市衛生健康委11日晨發佈通報稱，在“不明原因的病毒性肺炎”病原體初步判定為新型冠狀病毒之後，武漢衛健委組織對現有患者標本進行檢測。截至1月10日24時，初步診斷有新型冠狀]
+- [http://health.people.com.cn/n1/2020/0112/c14739-31544376.html](http://health.people.com.cn/n1/2020/0112/c14739-31544376.html)     2020-01-12 08:24:23
+- [**\[****中國將與世界衛生組織分享新型****冠狀病毒****基因序列資訊****\]**](http://world.people.com.cn/n1/2020/0111/c1002-31544284.html)
+- [ 人民網北京1月11日電 據國家衛健委官方網站消息，武漢不明原因的病毒性肺炎疫情受到各界廣泛關注，為維護全球衛生安全，中國將與世界衛生組織分享武漢不明原因的病毒性肺炎病例中檢測到的新型冠狀病毒基因]
+- [http://world.people.com.cn/n1/2020/0111/c1002-31544284.html](http://world.people.com.cn/n1/2020/0111/c1002-31544284.html)     2020-01-11 20:58:27
+- [**武漢市衛生健康委關於不明原因的病毒性肺炎情況通報**](http://society.people.com.cn/n1/2020/0111/c1008-31543993.html)
+- [ 人民網北京1月11日電 據武漢衛健委網站消息，武漢衛健委11日通報不明原因的病毒性肺炎情況。截至1月10日24時，初步診斷有新型冠狀病毒感染的肺炎病例41例，其中已出院2例、重症7例、死亡1例，]
+- [http://society.people.com.cn/n1/2020/0111/c1008-31543993.html](http://society.people.com.cn/n1/2020/0111/c1008-31543993.html)     2020-01-11 07:35:14
+- [**專家稱，武漢不明原因病毒性肺炎患者病情多可得到控制**](http://society.people.com.cn/n1/2020/0110/c1008-31543385.html)
+- [初步評估專家組組長、中國工程院院士徐建國說，專家組認為，本次不明原因的病毒性肺炎病例的病原體初步判定為新型冠狀病毒。 　　胡克說，不明原因的病毒性肺炎患者的主要臨床表現多有發熱、乏力、咳嗽、少痰，]
+- [http://society.people.com.cn/n1/2020/0110/c1008-31543385.html](http://society.people.com.cn/n1/2020/0110/c1008-31543385.html)     2020-01-10 13:56:04
+- [**\[****專家初步判定為新型****冠狀病毒****\]**](http://health.people.com.cn/n1/2020/0110/c14739-31542952.html)
+- [ 就武漢不明原因的病毒性肺炎疫情病原學鑒定進展問題，中國婦女報·中國婦女網記者今天從病原檢測結果初步評估專家組瞭解到，截至2020年1月7日21時，實驗室檢出一種新型冠狀病毒，獲得該病毒的全基因組]
+- [http://health.people.com.cn/n1/2020/0110/c14739-31542952.html](http://health.people.com.cn/n1/2020/0110/c14739-31542952.html)     2020-01-10 09:12:12
+- [**排除****SARS****！韓媒：韓國首例“不明原因肺炎”疑似患者症狀好轉**](http://korea.people.com.cn/n1/2020/0110/c407864-31542889.html)
+- [ 　　資料圖：韓國不明原因肺炎患者入住的盆唐首爾醫院(來源：韓聯社) 　　報導稱，除SARS外，該患者的中東呼吸綜合征病毒(MERS)、流感病毒、副流感病毒、腺病毒等呼吸道感染九聯檢結果也均呈陰性。韓國疾病管理本部還對其進行了非典型肺炎冠狀病毒、支原體肺炎菌感染症等]
+- [http://korea.people.com.cn/n1/2020/0110/c407864-31542889.html](http://korea.people.com.cn/n1/2020/0110/c407864-31542889.html)     2020-01-10 08:57:10
+- [**\[****武漢肺炎病例初判為新型****冠狀病毒****\]**](http://health.people.com.cn/n1/2020/0110/c14739-31542882.html)
+- [ 1月9日，就武漢不明原因病毒性肺炎疫情病原學鑒定進展情況，記者從武漢病原檢測結果初步評估專家組獲悉，肺炎病例的病原體初步判定為新型冠狀病毒，下一步需結合病原學研究、流行病學調查和臨床表現進行研判]
+- [http://health.people.com.cn/n1/2020/0110/c14739-31542882.html](http://health.people.com.cn/n1/2020/0110/c14739-31542882.html)     2020-01-10 08:55:59
+- [**春運今日正式拉開大幕，預計全國旅客發送量約****30****億人次**](http://yuqing.people.com.cn/n1/2020/0110/c209043-31542633.html)
+- [ 　　本報北京1月9日電 今天，武漢不明原因肺炎病原體被專家初步確認為新型冠狀病毒。有公眾擔心，於1月10日開始的春運如何應對可能發生的疾病傳播，確保旅客安全、健康出行？對此，民航、鐵路等交通部門]
+- [http://yuqing.people.com.cn/n1/2020/0110/c209043-31542633.html](http://yuqing.people.com.cn/n1/2020/0110/c209043-31542633.html)     2020-01-10 08:29:12
+- [**電子客票基本覆蓋全國高鐵** **城際鐵路**](http://it.people.com.cn/n1/2020/0110/c1009-31542590.html)
+- [發現不明原因的病毒性肺炎病例，病原體初步判定為新型冠狀病毒。春運期間將如何做好防控工作？ 據交通運輸部總工程師汪洋介紹，該部已經進行了安排部署，重點做好旅客出行量大的區域，包括交通樞紐、客運站、貨源]
+- [http://it.people.com.cn/n1/2020/0110/c1009-31542590.html](http://it.people.com.cn/n1/2020/0110/c1009-31542590.html)     2020-01-10 08:25:17
+- [**\[****武漢****8****名肺炎患者病癒** **系新型****冠狀病毒****引起****\]**](http://yuqing.people.com.cn/n1/2020/0110/c209043-31542287.html)
+- [初步判定為新型冠狀病毒。此後，冠狀病毒究竟是什麼、可能會有哪些症狀等問題引發關注，1月9日下午，中國疾病預防控制中心官方微信發文介紹冠狀病毒的分類及臨床表現等。 文章介紹稱，迄今為止，除本次在武漢]
+- [http://yuqing.people.com.cn/n1/2020/0110/c209043-31542287.html](http://yuqing.people.com.cn/n1/2020/0110/c209043-31542287.html)     2020-01-10 07:55:58
+- [**\[8****名肺炎患者病癒** **系新型****冠狀病毒****引起****\]**](http://society.people.com.cn/n1/2020/0110/c1008-31542231.html)
+- [初步判定為新型冠狀病毒。此後，冠狀病毒究竟是什麼、可能會有哪些症狀等問題引發關注，1月9日下午，中國疾病預防控制中心官方微信發文介紹冠狀病毒的分類及臨床表現等。 文章介紹稱，迄今為止，除本次在武漢]
+- [http://society.people.com.cn/n1/2020/0110/c1008-31542231.html](http://society.people.com.cn/n1/2020/0110/c1008-31542231.html)     2020-01-10 07:40:42
+- [**\[8****名肺炎患者病癒** **系新型****冠狀病毒****引起****\]**](http://health.people.com.cn/n1/2020/0110/c14739-31542230.html)
+- [病原體初步判定為新型冠狀病毒。此後，冠狀病毒究竟是什麼、可能會有哪些症狀等問題引發關注，1月9日下午，中國疾病預防控制中心官方微信發文介紹冠狀病毒的分類及臨床表現等。 　　文章介紹稱，迄今為止，除本次]
+- [http://health.people.com.cn/n1/2020/0110/c14739-31542230.html](http://health.people.com.cn/n1/2020/0110/c14739-31542230.html)     2020-01-10 07:40:33
+
+
+- [**三部門聯合防疫保障****2020****年春運出行安全**](http://society.people.com.cn/n1/2020/0109/c1008-31541674.html)
+- [ 人民網北京1月9日電 1月10日，2020年春運將正式啟動，今天上午，國務院新聞辦召開新聞發佈會，通報2020年春運形勢和工作安排。在回答“有關武漢不明原因的肺炎已經判定成為一個新型的冠狀病毒，]
+- [http://society.people.com.cn/n1/2020/0109/c1008-31541674.html](http://society.people.com.cn/n1/2020/0109/c1008-31541674.html)     2020-01-09 13:38:45
+- [**流感“神藥”奧司他韋幾近賣斷貨** **專家提醒：奧司他韋對普通感冒沒治療效果**](http://health.people.com.cn/n1/2020/0109/c14739-31541523.html)
+- [普通感冒的鼻病毒、冠狀病毒、呼吸道合胞病毒都沒有神經氨酸酶，因此奧司他韋無法用於治療普通感冒。 “我國藥品實行處方藥和非處方藥分類管理。”沈顏紅說，處方藥是為了保證用藥安全，由國家藥品監督管理部門]
+- [http://health.people.com.cn/n1/2020/0109/c14739-31541523.html](http://health.people.com.cn/n1/2020/0109/c14739-31541523.html)     2020-01-09 10:53:30
+- [**\[****武漢不明肺炎病原體初步判定為新型****冠狀病毒****\]**](http://society.people.com.cn/n1/2020/0109/c1008-31541005.html)
+- [ 人民網北京1月9日電 據中央電視臺新聞中心官方微博消息，就武漢不明原因的病毒性肺炎疫情病原學鑒定進展問題，截至7日21時，專家組認為，本次不明原因的病毒性肺炎病例的病原體初步判定為新型冠狀病毒。]
+- [http://society.people.com.cn/n1/2020/0109/c1008-31541005.html](http://society.people.com.cn/n1/2020/0109/c1008-31541005.html)     2020-01-09 08:43:06
+- [**遇病毒性肺炎不用慌** **正確佩戴口罩** **講“咳嗽禮儀”很重要**](http://health.people.com.cn/n1/2020/0107/c14739-31537142.html)
+- [病毒，此外還有冠狀病毒，2003年流行的非典（SARS）的病原體就是冠狀病毒。 鑒於這些病毒以飛沫傳播為主，因此預防病毒性肺炎，正確佩戴醫用外科口罩是一個重要方法。李六億告訴記者，普通的醫用外科口罩]
+- [http://health.people.com.cn/n1/2020/0107/c14739-31537142.html](http://health.people.com.cn/n1/2020/0107/c14739-31537142.html)     2020-01-07 08:14:49
+- [**流感季來襲** **石四藥阿比多爾加入“抗流”主力軍**](http://health.people.com.cn/n1/2020/0106/c14739-31535687.html)
+- [，阿比多爾不僅對流感病毒具有抑制作用，對常見的呼吸道合胞病毒、鼻病毒、腺病毒、冠狀病毒等均有抑制作用。另有研究顯示，在慢性阻塞性肺疾病患者中，阿比多爾在流感和急性呼吸道病毒感染的易感季節中的預防性應用]
+- [http://health.people.com.cn/n1/2020/0106/c14739-31535687.html](http://health.people.com.cn/n1/2020/0106/c14739-31535687.html)     2020-01-06 08:39:20
+- [**武漢市衛健委關於華南海鮮城相關病例通報顯示：系病毒性肺炎** **未發現明顯人傳人現象**](http://health.people.com.cn/n1/2020/0101/c14739-31531045.html)
+- [、渾身酸痛、少部分有呼吸困難，肺部浸潤影。病毒性肺炎與病毒的毒力、感染途徑以及宿主的年齡、免疫狀態有關。引起病毒性肺炎的病毒以流行性感冒病毒為常見，其他為副流感病毒、巨細胞病毒、腺病毒、鼻病毒、冠狀]
+- [http://health.people.com.cn/n1/2020/0101/c14739-31531045.html](http://health.people.com.cn/n1/2020/0101/c14739-31531045.html)     2020-01-01 09:28:14
+- [**湖北省衛健委：武漢病毒性肺炎未發現明顯人傳人現象**](http://health.people.com.cn/n1/2019/1231/c14739-31530467.html)
+- [、巨細胞病毒、腺病毒、鼻病毒、冠狀病毒等。確診則有賴於病原學檢查，包括病毒分離、血清學檢查以及病毒抗原及核酸檢測。該病可防可控，預防上保持室內空氣流通，避免到封閉、空氣不流通的公眾場合和人多集中地方，]
+- [http://health.people.com.cn/n1/2019/1231/c14739-31530467.html](http://health.people.com.cn/n1/2019/1231/c14739-31530467.html)     2019-12-31 14:29:10
+- [**田波院士逝世**](http://cpc.people.com.cn/n1/2019/1216/c87393-31507722.html)
+- [愛滋病毒、SARS冠狀病毒等，首次從由乙肝病毒引起的肝癌癌組織中發現熱激蛋白GP96與病毒抗原肽複合物，為研發慢性乙肝和肝癌的治療藥物提供了新策略。 田波曾獲得眾多榮譽和獎勵，包括兩次國家自然科學與科技]
+- [http://cpc.people.com.cn/n1/2019/1216/c87393-31507722.html](http://cpc.people.com.cn/n1/2019/1216/c87393-31507722.html)     2019-12-16 09:26:43
+- [**有關感冒的****3****個問題：流感、流感樣病例和流感疫苗**](http://health.people.com.cn/n1/2019/1213/c14739-31504188.html)
+- [扁桃體炎）。其中，病毒性感冒多由鼻病毒、副流感病毒（與流感病毒不是同類）、呼吸道合胞病毒、埃可病毒、柯薩奇病毒、冠狀病毒、腺病毒等引起。臨床症狀表現為鼻塞、打噴嚏、流涕、發熱、咳嗽、頭痛等，多呈自限性。]
+- [http://health.people.com.cn/n1/2019/1213/c14739-31504188.html](http://health.people.com.cn/n1/2019/1213/c14739-31504188.html)     2019-12-13 08:22:25】
+
+
+在我們知道了這就是一場生化戰爭的概念下，我們就可以很清楚的分析出這場生化戰爭在開戰初期的情況——
+
+1）冠狀病毒的專家死的真不是時候，不敢我可不敢胡亂猜他的死與這次生化戰爭有關，我相信這是正常死亡，除非我錯了；
+
+2）“武漢八謠”已經被訓誡，《GNEWS獨家報導：武漢爆發SARS病毒 官方隱瞞資訊長達五天！（2019-12-31 02:10）》這篇文章對應的是北京時間2019年12月31日14:10分，如果我的時間推算準確的話，人民日報在GNEWS這篇文章發出後19分鐘發表了發出的這篇《[**湖北省衛健委：武漢病毒性肺炎未發現明顯人傳人現象**](http://health.people.com.cn/n1/2019/1231/c14739-31530467.html)》，我相信這真的是巧合，要不是巧合的話，我沒有辦法解釋，人民日報是撒謊撒慣了的，不管它怎麼回答，我都要懷疑；人民日報的這篇報導在生化戰爭初期就定性了沒有明顯人傳人，雖然中國的科學家們2020年1月30日在《新英格蘭醫學雜誌》（NEJM）發表的——[Early Transmission Dynamics in Wuhan, China, of Novel Coronavirus–Infected Pneumonia](https://www.nejm.org/doi/full/10.1056/NEJMoa2001316)（新型冠狀病毒感染肺炎在中國武漢的初期傳播動力學）戳穿了中共的早期所謂的沒有明顯人傳人證據的謊言，但是官方說反正說了未發現明顯人傳人；
+
+3）將武漢肺炎病毒定性為冠狀病毒；
+
+4）三部門聯合“防疫”之下，“春運今日（2020年1月10日）正式拉開大幕，預計全國旅客發送量約30億人次”，請注意！這是一場生化戰爭，30億人次的小白鼠實驗，這是史無前例的！
+
+5）韓國出現首例“不明原因肺炎”，注意，這是一場生化戰爭，就是春運開始以後發生的，我不敢說這是巧合了，這可能是公開報導的首起本次生化戰爭的境外“戰果”；
+
+6）中國專家說武漢肺炎是“可防可控”的，對於這一點我曾經用百度和谷歌分別查過，沒有準確定義，也就是說這不是一個專業詞彙，對於專家來說，用一個不專業的詞彙對這種不明肺炎進行定性，因為沒有科學定義，那麼我就按照我對於可防可控的理解來闡釋一下，在我看來可防，尤其是對於傳染病來說，“可防”就是可以切斷傳染病的傳播途徑、保護易感人群、控制傳染源，在官方已經知道這是冠狀病毒的前提下，在官方已經知道這是生化武器的情況下，他們要說可防就必須從這三面著手，但是它們沒有！“可控”，在我看來就是基於可防基礎上的對於已經感染病毒的人群進行可以控制的治療，這種控制包括不使病毒惡化和儘量不造成死亡，這是非傳染病學專家給“可防可控”的定義，當然啦，還得以專家的意見為主，那就是武漢肺炎“可防可控”！
+
+7）泰國發現一例新冠病例，這是公開可查的生化戰爭的第二例境外“戰果”；
+
+8）日本發現一例新冠病例，這是公開可查的生化戰爭的第三例境外“戰果”； 3、習近平主席、李克強總理、孫春蘭副總理依次上場，習近平主席的上場時間是不是在路德先生這個節目[1/19/2020路安艾時評：為什麼財新胡舒立要一再否認武漢SARS病毒和舟山蝙蝠病毒的關聯性？中共和該病毒有什麼關係？該病毒是否已經進化具備人傳人大爆發可能性？為什麼中共要不斷隱瞞確診案例？](https://www.youtube.com/watch?v=CLTjg03CPEs)是紐約東部時間2020年1月19日早晨8:21分開播的對應的北京時間應該是2020年1月19日20:21分，新華社始發“習近平對新型冠狀病毒感染的肺炎疫情作出重要指示 強調要把人民群眾生命安全和身體健康放在第一位 堅決遏制疫情蔓延勢頭 李克強作出批示”的時間是**2020-01-20 19:27:01，文章提到**【疫情發生後，黨中央、國務院高度重視。中共中央總書記、國家主席、中央軍委主席習近平作出重要指示，湖北武漢市等地近期陸續發生新型冠狀病毒感染的肺炎疫情，必須引起高度重視，全力做好防控工作。】，我不知道習主席的這個批示是不是與路德先生的這期捅天窗有關係，但是我知道郭先生在2020年4月15日郭先生G-TV直播中提到 【就過去那兩三天，各種遊說都讓我們放棄。就像在1月19號、20號，中共最高層直接給我打電話，讓我不要談武漢病毒一樣。】，從這個打電話的時間點來說，習近平主席是被路德先生給調動出臺了，但是這沒用的，因為[2020年2月22日文貴談CCP要與世界玉石俱焚](https://www.youtube.com/watch?v=ZlJTj1VXv6Y&amp;t=4228s)郭先生就提到【**所以****1月6號、1月7號習主席的會議的批示，這都是亂扯的。你在沒批示的時候，你已經定義為這是生化武器，而且是人工的。**】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07021625/WhatsApp-Image-2020-05-07-at-2.37.48-AM-4.jpeg)
+在爆料革命的捅破了天窗之後，人民日報開始了病毒嫁禍美國和歐洲、歌頌中國抗疫“有功”、疫情清零、罵蓬佩奧先生、罵班農先生、罵方方、罵所有說真話的作家和詩人，等等等等，由於這些都發生在近期，而且篇幅也已經很長了，因此不再贅述，下面進入下一部分——
+
+三、2019年之前，人民日報和其他媒體關於冠狀病毒的文章（按時間倒序進行——
+
+1、人民網：[我國科學家發現新型冠狀病毒 曾造成廣東2萬餘頭豬死亡 無證據顯示可跨種感染人](http://sn.people.com.cn/n2/2018/0407/c190197-31429777.html)2018年04月07日10:39  來源：[新民晚報](http://xmwb.xinmin.cn/html/2018-04/06/content_8_1.htm)
+
+【2016年造成廣東省四個養豬場24693頭豬死亡的“罪魁禍首”找到了！我國科學家發現，導致乳豬急性腹瀉症的致命疾病的病毒來源於蝙蝠。這項研究成果在昨天的《自然》雜誌上線上發表。中國科學院武漢病毒研究所研究員石正麗介紹，研究團隊在爆發疫情的豬場不遠處的一個山洞裡找到了疾病源頭——一種新發現的名為“SADS-CoV”的冠狀病毒。這種病毒由蝙蝠攜帶，研究團隊發現，該冠狀病毒的基因組與2016年從菊頭蝠中分離出來的冠狀病毒基因組的相似度達到98.48%。“這些豬場感覺是比較新的，旁邊就是一個小山丘，我們認為這個小山丘附近是有蝙蝠棲息地的。所以傳播途徑就是通過糞便污染豬場的環境，最後感染到豬。”石正麗表示，“根據對和病豬有密切接觸的豬場工作人員的血清學調查結果，目前還沒有證據顯示該冠狀病毒可進一步跨種感染人。”】
+
+石正麗的話哪怕豬信，我都不信了，我相信這是在豬身上對將在2019年實施的生化戰爭的預演，這次預演應該算是“可防可控”的，在此聲明，本結論沒有任何證據佐證，僅為推測，以下摘錄文章後的觀點均為推測。
+
+2、人民網[SARS冠狀病毒始作俑者找到了？](http://health.people.com.cn/n1/2017/1211/c14739-29698024.html)（2017年12月11日08:46 來源：[南方日報](http://epaper.southcn.com/nfdaily/html/2017-12/11/content_7688674.htm)）【中國科學院武漢病毒研究所石正麗研究團隊自2011年起對雲南省一處洞穴的菊頭蝠種群開展了SARS冠狀病毒的長期監測。結果表明，SARS冠狀病毒的全部基因組組分都可以在這個SARS冠狀病毒的天然基因庫中找到。】
+
+石正麗的話哪怕蝙蝠相信，我也不信，你能說這不是已經按照寫好的劇本在背臺詞？你能不能猜到這個時候中共的基因武器已經基本成型？請注意開篇提到的郭文貴先生直播中提到【2018年和2019年在中共的中央電視臺及其軍事頻道，他們總是談論中共有能力製造冠狀病毒。】
+
+3、人民網2016年01月28日08:10[阿聯酋一患新型冠狀病毒者死亡](http://world.people.com.cn/n1/2016/0128/c1002-28091021.html)，【人民網1月28日訊 阿聯酋政府宣佈，當地一患新型冠狀病毒者死亡，死者是今年發現的第一例該病毒感染者。】川普總統在近期的一次公開講話中提到，這不是中共第一次釋放病毒，2020年5月6日據[Remarks by President Trump at Signing of a Proclamation in Honor of National Nurses Day](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-signing-proclamation-honor-national-nurses-day/) 川普總統提到【**This is really the worst attack we’ve ever had.  This is worse than Pearl Harbor.  This is worse than the World Trade Center.  There’s never been an attack like this.  And it should have never happened.  It could have been stopped at the source.  It could have been stopped in China.  It should have been stopped right at the source, and it wasn’t.**】我認為阿聯酋的這次冠狀病毒死亡案例與中共難脫干係。
+
+4、人民網2015年12月18日16:50分表了[沙特駱駝同時流行三種冠狀病毒](http://world.people.com.cn/n1/2015/1218/c157278-27948113.html)提到【新華網華盛頓12月17日電（記者林小春）由中國香港大學領導的一個國際研究團隊17日說，在沙特單峰駝中，除引起中東呼吸綜合征（MERS）的新型冠狀病毒高度流行外，還同時流行另外兩種冠狀病毒。另一個研究團隊同日報告，一種給駱駝使用的試驗性MERS疫苗效果良好。兩項研究結果都發表在新一期美國《科學》雜誌上。在第一項研究中，研究人員在沙特西部和中部地區進行調查，結果發現約有6．9％的沙特單峰駝感染兩至三種冠狀病毒，超過一半以上（56．6％）攜帶MERS病毒的駱駝也同時感染一到兩種其他冠狀病毒。所以，“多種冠狀病毒同時感染同一頭駱駝的現象非常普遍”。】
+
+請記住，現在正在流行的武漢肺炎生化危機不是第一次；
+
+5、人民網2013年2月23日15:36分發表的[新型冠狀病毒致7死](http://scitech.people.com.cn/n/2013/0223/c1007-20577444.html)提到【據新華社日內瓦電 （記者吳陳、王昭）世界衛生組織21日發佈公告說，沙烏地阿拉伯衛生部向其通報了一例確診的新型冠狀病毒感染死亡病例。截至目前，世衛組織共收到全球通報新型冠狀病毒感染確診病例13例，其中7人死亡。】 ；
+
+人民網2013年5月16日04:45發表的[世衛組織確認出現新型冠狀病毒nCoV傳染病例](http://world.people.com.cn/n/2013/0516/c1002-21497660.html)提到【人民網巴黎5月15日電（記者邢雪）世界衛生組織5月15日晚發表聲明，確認兩名沙烏地阿拉伯人由於接觸病人而感染與類似SARS的新型冠狀病毒nCoV，這是第一次證實的該病毒人際傳染病例。兩個新增病例是在醫院工作護理人員，曾直接與已確診感染新型冠狀病毒的病人接觸。其中一位男性患者45歲，於5月2日發病，目前病情危重，另一位女性患者43歲，於5月8日發病，目前病情穩定。
+
+世衛組織聲明表示，這是第一次有護理人員由於直接接觸病人而受到感染，建議相關醫院應採取合理保護措施降低護理人員的感染風險。目前全球已有40例新型冠狀病毒nCoV的確診病例，分佈在法國、德國、約旦、卡塔爾、沙烏地阿拉伯和英國六個國家。】 ；
+
+人民網2014年05月16日07:30發表的[世界衛生組織稱 新型冠狀病毒疫情未進入緊急狀態](http://scitech.people.com.cn/n/2014/0516/c1007-25023848.html)提到【本報布魯塞爾5月15日電 （記者吳剛）日內瓦消息：世界衛生組織14日發表聲明稱，該機構針對中東呼吸系統綜合征冠狀病毒疫情召開了第五次緊急會議。委員們對目前掌握的資訊進行充分討論後認為，目前沒有證據顯示該病毒能在人際間持續傳播。因此，委員會認為，目前仍未構成“國際關注的公共衛生緊急事件”。】 ；
+
+人民網2013年09月01日01:18發表的[香港特區衛生署：繼續監察新型冠狀病毒最新發展](http://hm.people.com.cn/n/2013/0901/c42272-22762467.html)提到【人民網8月31日電 近日，中東國家沙烏地阿拉伯，向世界衛生組織通報新增的4宗新型冠狀病毒導致的嚴重呼吸系統疾病個案。對此，香港特區衛生署今天強調，香港至今沒有發現人類感染這類病毒的個案。香港衛生防護中心將向世界衛生組織和相關衛生部門跟進個案，並會保持警覺，繼續同世界衛生組織和海外衛生部門緊密合作，監察這類新型冠狀病毒的最新發展。】
+
+世衛組織登場了，香港的衛生專家登場了，多麼熟悉的味道，多麼熟悉的配方；
+
+6、下面的這一篇文章我們需要重點關注，因為這有當年中共為防止新型冠狀病毒“入侵”所採取的措施，據人民網2012年10月12日08:55分發表的[衛生部和疾控中心：嚴防新型冠狀病毒“入侵”](http://haiwai.people.com.cn/n/2012/1012/c232585-17573538-2.html)提到【中國疾控中心日前發出國際旅行和出入境健康提示，提醒擬赴阿拉伯半島國家及回國入境的公民，注意瞭解新型冠狀病毒疫情最新進展及有關預防方法。一、健康提示對象 赴阿拉伯半島國家（包括沙特、卡塔爾、約旦、葉門、阿曼、阿聯酋、科威特、伊拉克等）地區旅遊、經商、勞務輸出、求學以及朝覲的我國公民以及從阿拉伯半島國家回國入境的所有人員。二、健康提示內容 前往上述國家的人員在旅行期間應注意瞭解新型冠狀病毒疫情最新進展情況及有關預防方法。 出境前——首先，可適當準備一些預防及治療常見傳染病如呼吸道疾病的藥物，具體種類可諮詢醫務人員；其次，可適當準備一些防護用品，如口罩、消毒紙巾等；出發前如感到不適如出現發熱、咳嗽、咽痛、肌肉疼痛等，則暫不宜遠行，建議痊癒後再開始行程。 出境後——前往阿拉伯半島國家的人員，應儘量減少前往人群擁擠的場所並長時間停留；目前，新型冠狀病毒感染的傳染源等尚不清楚，不排除病毒通過動物感染人類的可能性。因此，前往上述國家的人員，應儘量避免前往動物飼養、屠宰、生肉製品交易場所以及野生動物棲息地；避免直接接觸動物及動物的排泄物；當出現呼吸道感染症狀時，應及時就醫，患病期間應儘量避免與其他人員密切接觸，近距離接觸他人時應戴口罩；參加團體旅行活動者出現以上症狀時，建議終止旅行或暫時脫離團隊，進行自我隔離休息，避免傳染給其他人，並密切觀察自身健康狀況。 入境及回國後——從阿拉伯半島回國人員應主動配合出入境檢驗檢疫部門做好入境檢疫工作，如實填寫健康申報卡；在入境時患傳染性疾病尤其是急性呼吸道疾病的人員，應主動將患病情況向出入境檢驗檢疫機構申報，並配合衛生檢疫部門開展調查及相應醫學檢查；回國10天內，如果出現急性呼吸道感染症狀，應及時就醫並主動向醫護人員告知近期赴阿拉伯半島地區的旅行史或在當地的動物接觸史等以及歸國後密切接觸人員情況等，積極配合醫生進行診斷、治療和流行病學調查。】
+
+對應于當年的措施，再看看這一次的“可防可控”，再看看它們組織的春運，再看看它們對世界撒了什麼樣的謊？而這一切本來不應該發生！川普總統是這樣說的——【**There’s never been an attack like this.  And it should have never happened.  It could have been stopped at the source.  It could have been stopped in China.  It should have been stopped right at the source, and it wasn’t.**】(中文大意：從來沒有發生過這樣的襲擊，它本不應該發生，它本應該在源頭上被終止，它本應該被中國停止，它本應該在一開始就被終止，但是它沒有】。
+
+寫到這裡，我的怒火無以復加，中共，你們這些王八蛋，是你們親手給自己套上了絞索，可是你們要在末路狂奔的時候，拉上全人類這麼多人為你陪葬，即使把你們吃了都不解恨！斬首行動正在路上！
+
+7、下面的這一篇文章是關於基因武器的問世時間，我非常想把這篇文章歸為垃圾，可是對應稍後中共軍方門戶網站關於基因武器的描述，都能在這篇文章中找到影子，那麼我們就一定要記住這一篇神預言——搜狐網2008年3月18日08:22分發表的[基因武器問世不會晚於2010年 20克能致死60億人](https://news.sohu.com/20080318/n255763164.shtml)提到【據英國《泰晤士報》日前報導，以色列科學家正在全力破譯猶太人與阿拉伯人之間的基因差異，以研製只攻擊阿拉伯人的“基因炸彈”。英國生物學家斷言，基因武器近年即將問世。20克超級基因武器就足可以使60億地球人死亡。目前，多個國家正研製基因武器。】，而作為御用尿壺的人民日報於2008年3月19日09:27分發表的[20克能致死60億人 基因武器威力超核彈 (2)](http://scitech.people.com.cn/GB/7017954.html)提到【基因武器可稱為第三代生物戰劑，可分為三類:致病或抗藥的微生物、攻擊人類的“動物兵”，以及種族基因武器。與核武器、化學武器相比，基因武器的威力更大，並有以下特點：一是成本低，殺傷力強，持續時間長。據測算，如果建造一個核武器庫需耗資50億美元，而要建造一個基因武器庫，僅需要5000萬美元，兩者對人的殺傷力旗鼓相當，有時基因武器的殺傷效果甚至還大於核武器。比如，將超級出血熱菌的基因武器投入敵方水系，能使整個流域的居民全部喪生。有消息稱，某國拼接出一種劇毒的“熱毒素”基因毒劑，僅用萬分之一毫克，就能毒死100只貓。倘用其20克，就足以使全球60億人死於一旦。二是使用方法簡便，施放手段多樣。基因武器是經過特殊處理，重組之後的細菌、病毒和致病基因組成的多種微生物，可以做成氣體、液體、顆粒等，用人工、普通火炮、飛機、艦船、氣球或導彈等多種工具進行投放。三是保密性強，難防難治。只有製造者才知道致病基因的遺傳密碼，別人很難在短時間內破密或控制它。此外，由於基因武器的殺傷作用過程是在秘密中進行的，就如同空氣中的塵埃鑽入人體內一樣，在毫無感覺的情況下給人以致命打擊。所以，基因武器一般不易被發現從而有效地進行防護，一旦感受到它的傷害，則為時已晚。四是傷人不壞物，作戰費效比低。比起原子武器，“經濟性”也更好。】、【基因武器所具備的其他武器不可比擬的特性，會對未來戰爭產生深刻的影響。首先，戰爭概念將發生變化。敵對雙方不再僅依靠使用大規模“硬殺傷”武器，進行流血拼殺來摧毀一支軍隊或一座城市，而是有可能在戰爭前就致使對方喪失戰鬥力，不費一槍一炮就征服對方。其次，將出現新型的軍隊組織結構形式。前線與後方的人員比例將形成“前輕後重”，戰鬥部隊將大為減少，擁有基因武器的小部隊，需要更多的後勤保障和救護部隊。再次，心理戰作用會更加突出。基因武器具有比原子武器和化學武器更強大的威懾力，甚至可以“不戰而屈人之兵”。最後，戰爭的進展將變得更加難以掌控。英國生物學家甚至斷言，基因武器的問世不會晚於2010年。】 ，這篇御用屎壺的姊妹篇[20克能致死60億人 基因武器威力超核彈–科技–人民網](http://scitech.people.com.cn/BIG5/7017950.html)已經打不開，但是在百度上和穀歌上都有搜索結果，原文已經404，但是我們要記住，人民日報這個御用屎壺發表過這樣罪惡的神預測，這樣的悲劇此時此刻正在我們的地球家園上演！
+
+最神奇的一篇文章，舉個例子，假設我在2007年就發出文字或者語音，說
+
+8、現在來到我們的壓軸文章——什麼是SARS？據[百度百科——SARS事件](https://baike.baidu.com/item/SARS%E4%BA%8B%E4%BB%B6/7702261?fr=aladdin)
+
+【**SARS****事件**是指[嚴重急性呼吸綜合征](https://baike.baidu.com/item/%E4%B8%A5%E9%87%8D%E6%80%A5%E6%80%A7%E5%91%BC%E5%90%B8%E7%BB%BC%E5%90%88%E5%BE%81)（英語：**SARS**）於2002年在中國廣東發生，並擴散至東南亞乃至全球，直至2003年中期疫情才被逐漸消滅的一次全球性傳染病疫潮。
+
+在此期間發生了一系列事件：引起社會恐慌，包括醫務人員在內的多名患者死亡，世界各國對該病的處理，疾病的命名，[病原微生物](https://baike.baidu.com/item/%E7%97%85%E5%8E%9F%E5%BE%AE%E7%94%9F%E7%89%A9/8020502)的發現及命名，[聯合國](https://baike.baidu.com/item/%E8%81%94%E5%90%88%E5%9B%BD/135426)、[世界衛生組織](https://baike.baidu.com/item/%E4%B8%96%E7%95%8C%E5%8D%AB%E7%94%9F%E7%BB%84%E7%BB%87/483426)及媒體的關注等等。
+
+截止2003年8月16日，中國內地累計報告非典型肺炎臨床診斷病例5327例，治癒出院4959例，死亡349例(另有19例死於其它疾病，未列入非典病例死亡人數中)。 [1]
+
+中國[香港](https://baike.baidu.com/item/%E9%A6%99%E6%B8%AF/128775)：1755例，死亡300人；中國[臺灣](https://baike.baidu.com/item/%E5%8F%B0%E6%B9%BE/122340)：665例，死亡180人；[加拿大](https://baike.baidu.com/item/%E5%8A%A0%E6%8B%BF%E5%A4%A7/145973)：251例，死亡41人；[新加坡](https://baike.baidu.com/item/%E6%96%B0%E5%8A%A0%E5%9D%A1/145065)：238例，死亡33人；[越南](https://baike.baidu.com/item/%E8%B6%8A%E5%8D%97/155278)：63例，死亡5人。】
+
+我們需要回答的問題是——SARS是不是象它們說得那樣果子狸是中間宿主？答案就在——[2020年2月19日文貴先生參加班農先生的作戰室第20期直播](https://www.youtube.com/watch?v=Dpztt7c66NY)： 【班農先生：**她(陳薇少將）是整個中國生化武器的創造者和專家？**
+![“陈薇少将”的图片搜索结果](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07021724/WhatsApp-Image-2020-05-07-at-2.11.54-PM.jpeg)
+郭文貴先生：**是的，這就是為什麼在****2003****年她解決了中國的****SARS****。**
+
+**班農先生：****她幫助解決了中國的****SARS****問題。】**
+
+再一次正告中南坑——斬首已經在路上！
+
+至此我們要提到FOX電臺在最近一次的採訪中主持人提到“It is all of a sudden, Communist is around of us.”是在突然之間，共匪把美國人民包圍了嗎？在看了郭先生“5月2日郭先生GTV直播爆料香港P3實驗室”直播中提到【**WHO****原來叫什麼？陳馮富珍當老大，後來交給了今天的譚書記譚德賽。譚德賽千萬別忘了，這倆人千萬別忘了啊，譚德賽、陳馮富珍，包括香港今天的****P3****實驗室，****Dr. Peng****還有****Marik****等****4****人，全部是國際共產聯盟的中心會員。**】、【**這幾個香港實驗室的老大、老二、老三全來自哪裡？****Sri Lanka****斯里蘭卡，全是共產主義絕對的極端主義者。他們只有一個目標、幹掉美國，幹掉白人！**】。 在聽到這些以後，我詳細核查了世界各國共產黨組織近年的活動，我可以非常肯定的說，共產主義在全世界從共產主義這個幽靈被釋放那一天到現在，它從來沒有被消滅，共產主義組織要推翻資本主義，實現社會主義乃至共產主義的目標從來沒有停止過，區別就在於它們是在臺上的中國共產黨，還是在台下的希臘共產黨！他們一直就在我們身邊！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07021801/WhatsApp-Image-2020-05-07-at-1.47.43-PM-1.jpeg)
+（文章內容僅代表作者個人觀點）
+
+[相关文章摘录](https://gnews.org/4b86bd48-ee9f-4d00-a275-5fc38259ce8b)[下载](https://gnews.org/4b86bd48-ee9f-4d00-a275-5fc38259ce8b)
+
+[人民日报至2020年1月31日文章摘录简版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022049/%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%87%B32020%E5%B9%B41%E6%9C%8831%E6%97%A5%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%AE%80%E7%89%88.docx)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022049/%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%87%B32020%E5%B9%B41%E6%9C%8831%E6%97%A5%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%AE%80%E7%89%88.docx)
+
+[相关文章摘录繁体版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022052/%E7%9B%B8%E5%85%B3%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%B9%81%E4%BD%93%E7%89%88.docx)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022052/%E7%9B%B8%E5%85%B3%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%B9%81%E4%BD%93%E7%89%88.docx)
+
+[人民日报至2020年1月31日文章摘录简版繁体版](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022109/%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%87%B32020%E5%B9%B41%E6%9C%8831%E6%97%A5%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%AE%80%E7%89%88%E7%B9%81%E4%BD%93%E7%89%88.docx)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07022109/%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%87%B32020%E5%B9%B41%E6%9C%8831%E6%97%A5%E6%96%87%E7%AB%A0%E6%91%98%E5%BD%95%E7%AE%80%E7%89%88%E7%B9%81%E4%BD%93%E7%89%88.docx)
+
+
+
 0

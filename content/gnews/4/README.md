@@ -1,26 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黎智英，李卓人，杨森法庭外呼吁港人抗争到底
-`2020-05-07 01:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/196075/)
+## 國內自來水能喝嗎？碰壁也要繼續傳播爆料！“中共病毒疫情每日熱線”
+`2020-05-07 03:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/196177/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07015046/1-40.png)
-畫面來自於蘋果動新聞視頻 – 黎智英、楊森、李卓人
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07031948/image0-59.jpg)
 
-香港自由新聞報道-壹傳媒（蘋果日報）創始人，工黨副主席李卓人，民主黨前主席楊森因涉嫌參與未經批准的去年8月31日反修例遊行，日前在西九龍裁判法院提堂。二月底，三人曾因此被捕而取保候審。
+GTV網頁版：[https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc](https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc)
 
-在提堂前，三人在法庭外接受了採訪。
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
-黎智英說：「各位市民，不要被他們嚇壞，我們繼續抗爭，抗爭到底。因為如果我們沒有法治、沒有自由，我們就什麼都沒有了。我們一定要抗爭到底，不要被他們嚇壞。他們就是想嚇壞我們，讓我們不要出來示威遊行。你們不要中計。多謝。」
-
-李卓人說：「出來行走，遲早要還…讓我痛心的是，我行了40多年，現在才要還（追求自由的債），但有些年輕人，為了我們全香港人的理想，他們行了一次就要還。可以看到香港是如何倒退、如何收緊。香港現在不是rule of law（法治）而是rule by law（法制）。不是法治，而是用法律來整治」
-
-杨森说：「一国两制的面纱，已被中共中央亲手撕破…我们什么都没有了，只剩下尊严。」杨森表示，希望选举后泛滥派派可以得到超过一般的席位来保证他们以阻挡其他恶法通过。
-
-黎智英目前被限制离港。
-
-[原文鏈接](https://hongkongfp.com/2020/05/06/pro-democracy-figures-tell-hongkongers-to-fight-on-as-they-appear-in-court-on-unlawful-assembly-charges/)
-
-翻譯：Sonya
-
-0
+1
