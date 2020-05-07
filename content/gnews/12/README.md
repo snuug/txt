@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年5月6日CCP冠狀病毒大流行第103集
-`2020-05-07 02:19 GM33` [轉載自GNews](https://gnews.org/zh-hant/196122/)
+## 國內自來水能喝嗎？碰壁也要繼續傳播爆料！“中共病毒疫情每日熱線”
+`2020-05-07 03:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/196177/)
 
-香港3英雄5日在西九龍法院開庭審理；CCP綁架老百姓威脅美國；美軍派遣B1B轟炸機進入南海
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07031948/image0-59.jpg)
 
-[https://gtv.org//?videoid=5eb3a46b38b27521ede9afd3](https://gtv.org//?videoid=5eb3a46b38b27521ede9afd3)
+GTV網頁版：[https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc](https://gtv.org//?videoid=5eb2d0fd82f37556730a24cc)
 
-0
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+1
