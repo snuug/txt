@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統 重磅訊息 中共病毒 有如敵襲！“中共病毒疫情每日熱線”
-`2020-05-07 22:49 GM30` [轉載自GNews](https://gnews.org/zh-hant/196969/)
+## 2020年5月7日CCP冠狀病毒大流行第104集
+`2020-05-08 02:08 GM33` [轉載自GNews](https://gnews.org/zh-hant/197126/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07224115/dfghj.jpg)
+崔天凱：不能任由少數人把中美關系拖入沖突對抗的境地；黑龍江疫情嚴重，老百姓叫苦連天；班農作戰室：軍方取消感染者入伍資格改；郭文貴先生：共產黨遇到了四個核心的問題
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5eb42309d8391473bc0b7952](https://web.gtv1.org/?videoid=5eb42309d8391473bc0b7952)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+[https://gtv.org//?videoid=5eb4dfd5d8391473bc1c566c](https://gtv.org//?videoid=5eb4dfd5d8391473bc1c566c)
 
 0

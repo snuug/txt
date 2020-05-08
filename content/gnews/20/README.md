@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 用醫學統計學知識分析 CCP 所謂大國抗疫“豐功偉績”
-`2020-05-07 13:59 GM30` [轉載自GNews](https://gnews.org/zh-hant/196432/)
+## 美國務卿蓬佩奧強硬回復德國批評: 任何決策應以生命第一而非政治態度
+`2020-05-07 15:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/196485/)
 
-**作者：Ben2020**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07154716/%E7%BE%8E%E5%9C%8B%E5%8B%99%E5%8D%BF%E8%93%AC%E4%BD%A9%E5%A5%A7%E5%BC%B7%E7%A1%AC%E5%9B%9E%E5%BE%A9%E5%BE%B7%E5%9B%BD%E6%89%B9%E8%AF%84.jpg)
+據《南德意志報Süddeutschen Zeitung》報導，四月中旬，德國外交部長海科．馬斯Heiko Maas曾呼籲美國國務卿蓬佩奧考慮停止向世衛組織付款帶來的後果，並在持續的危機中不要採取可能長期削弱聯合國組織相關機構的行動。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07135302/image0-60.jpg)
+《南德意志報》現獲得了一份蓬佩奧給馬斯的回復，強硬地回應了德國的批評。“我們把保護生命放在第一，而不是關注影響公眾的姿態和目光短淺的政治。”
 
-[**用醫學統計學知識分析CCP所謂大國抗疫“豐功偉績”**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07135721/%E7%94%A8%E9%86%AB%E5%AD%B8%E7%B5%B1%E8%A8%88%E5%AD%B8%E7%9F%A5%E8%AD%98%E5%88%86%E6%9E%90CCP%E6%89%80%E8%AC%82%E5%A4%A7%E5%9C%8B%E6%8A%97%E7%96%AB%E2%80%9C%E8%B1%90%E5%8A%9F%E5%81%89%E7%B8%BE%E2%80%9D.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07135721/%E7%94%A8%E9%86%AB%E5%AD%B8%E7%B5%B1%E8%A8%88%E5%AD%B8%E7%9F%A5%E8%AD%98%E5%88%86%E6%9E%90CCP%E6%89%80%E8%AC%82%E5%A4%A7%E5%9C%8B%E6%8A%97%E7%96%AB%E2%80%9C%E8%B1%90%E5%8A%9F%E5%81%89%E7%B8%BE%E2%80%9D.pdf)
+在這封給德國外交部長馬斯的回信中，蓬佩奧重申了對世衛組織的批評: “儘管這個組織“一連串的失敗行為”，美國人民數十年來卻還一直是他們最大的資助者。從Sars到H1N1，從埃博拉病毒到武漢病毒，世衛組織一再未能履行其核心使命，即幫助‘所有人民’實現盡可能高的衛生保健水準。作為世衛組織最大的資助國，美國對其運作、透明度和問責存在特別的質疑”。蓬佩奧表示，美國致力於世衛組織的改革，要對世衛組織宣布國際衛生緊急狀態的“時機”，“他們一邊對美國保護美國人民的努力提出的無理批評，一邊卻和對中共政權公開的屈服。這需要進行調查。”
 
-**請點擊下載按鈕，下載文檔觀看！**
+蓬佩奧寫到，我們需要“運作正常、可靠的全球機構，而不是以犧牲人的生命為代價，向無能的官僚機構中國共產黨低頭。最後蓬佩奧呼籲德外長海科一道進行這場為了自由的鬥爭。
 
-（文章內容僅代表作者觀點）
+[原文鏈接](https://www.sueddeutsche.de/politik/usa-deutschland-beziehungen-who-1.4899205)
+
+翻譯報道：佚名
 
 0
