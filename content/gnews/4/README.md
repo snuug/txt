@@ -1,140 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月7日 美國政要推文選譯
-`2020-05-08 01:02 GM65` [轉載自GNews](https://gnews.org/zh-hant/197074/)
+## 香港警察使用手機搜查令，正成為所有香港人的安全隱患
+`2020-05-08 07:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/197264/)
 
-> The coronavirus does not respect geographic borders. It is a global pandemic and therefore the effort to combat it must also be global. Yet China is focused on blocking Taiwan from attending the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) summit – all because Taiwan stands up to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/BnnpDcVfbG](https://t.co/BnnpDcVfbG)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 7, 2020](https://twitter.com/MarshaBlackburn/status/1258432593772544002?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08071807/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E6%89%8B%E6%9C%BA%E6%90%9C%E6%9F%A5%E4%BB%A4%EF%BC%8C%E6%AD%A3%E6%88%90%E4%B8%BA%E6%89%80%E6%9C%89%E9%A6%99%E6%B8%AF%E4%BA%BA%E7%9A%84%E5%AE%89%E5%85%A8%E9%9A%90%E6%82%A3.jpg)
+據美國《石英財經網》報道，從9月下旬到11月初，數百名警察共花了21個小時在香港商業區中心香港警察總部22樓的一個房間里，對香港民運人士黃之鋒的（Joshua Wong）的蘋果手機數據進行了導出檢查。這位23歲的民主運動人士幾個月後才得知，在當局2月份向他提供搜查令時，他的加鎖手機已被破解。去年夏天他被捕後，他的手機也被沒收，逮捕罪名是在香港針對有爭議的引渡法出現的大規模抗議活動中，煽動他人參加非法集會。
 
-參議員 Marsha Blackburn：冠狀病毒可不管什麽地緣國界。它是全球性的大爆發，因此，抗擊疫情也必須是全球共同的努力。然而中國眼睛只盯著把臺灣排除在世衛組織峰會之外——就因為臺灣反對中共。
+周婷（Agnes Chow），另一名香港民運人士，民主黨的創始成員。她與黃之峰一起被捕，黃之峰和周婷的司法審查記錄了這些細節。警方同時沒收了她的電話，法庭文件顯示，雖然警方設法侵入了黃之峰用四位數字密碼鎖定的手機，但他們並未設法使用警隊現有的數字取證工具獲取周婷的谷歌手機的內容。 周婷說她的電話仍在警察的掌握之中。根據香港安全部長的說法，去年6月至11月期間，警方共破解了 4000部屬於在押人員和嫌疑人的手機，黃之峰的手機只是其中之一，1月份提交的兩項司法審查詳細說明了措詞模糊的搜查令的濫用（基本上與向王和周所用的搜查令相同），使警察能夠廣泛有效且無限制地沒收因抗議活動而遭被捕人士的數字設備。就像針對黃之峰和周婷兩人的搜查令一樣，警察可以把沒收的手機帶到警隊總部的房間進行“所有內容信息”的訪問。換句話說，警察得到了表面上搜查的手令，實則是警察獲取了對個人手機中信息的訪問權限。
 
-《華爾街日報》：美國外交推動臺灣參加世衛組織峰會
+一位了解案件的香港律師說，香港警察含糊其辭的逮捕令被一些法律專家認為在法律上是有很大缺陷的，而最壞的一點就是濫用司法和法律。伯克曼克萊因研究中心的律師兼哈佛大學互聯網與社會研究員內森·凱澤（Nathan Kaiser）說：“很明顯，在我所知的司法管轄區（美國，瑞士，德國或《歐洲人權公約》所規定的司法管轄區），香港警察的行為和說辭是站不住腳的。”他解釋道，在搜查令中通常涉及兩個當事人：搜查方和被搜查方。 但是在這裡，搜查令是給警局總部的，這根本說不通。警局總部不屬於搜查方和被搜查方的任何一方。他將這種情況與乒乓球比賽進行了比較：同一方同時在乒乓球桌的兩邊玩，而手機被沒收調查的一方甚至不在乒乓球桌邊上。
 
-> If the Chinese Communist Party is confident about the origin of this virus then I'm sure they would welcome an investigation into those origins… [pic.twitter.com/ZEcKBy0dvH](https://t.co/ZEcKBy0dvH)
-> — Tom Cotton (@SenTomCotton) [May 7, 2020](https://twitter.com/SenTomCotton/status/1258354297705836552?ref_src=twsrc%5Etfw)
+使用這種含糊不清的搜查令可能會在更大範圍內威脅香港公民的隱私權，尤其是考慮到警察越來越頻繁地進行大規模逮捕，包括那些剛好在抗議現場走過但仍冒險的旁觀者，也被警察使用授權書檢查其數字設備。自去年6月抗議活動爆發以來，截至1月初，警方已逮捕了約7,000人。其中只有不到六分之一被起訴。
 
-參議員 Tom Cotton：如果中共自信病毒來源沒問題，那麽我相信他們會歡迎對病毒來源進行調查的…
+聊天群有危險
 
-> The CCP wants the world to forget Dr. Li Wenliang, who tried to warn his colleagues about the Wuhan virus. 
-> 
-> We can ensure his name is never forgotten by placing it permanently outside the embassy of the regime responsible for his persecution and death. [https://t.co/XtsXNlYNVv](https://t.co/XtsXNlYNVv)
-> — Tom Cotton (@SenTomCotton) [May 7, 2020](https://twitter.com/SenTomCotton/status/1258431139649380352?ref_src=twsrc%5Etfw)
+一位駐香港的網絡安全專家為香港警察的網絡安全和技術犯罪局提供了培訓，但因為這個問題“在政治上過於敏感”他不願透露姓名。他對警察有能力破解被鎖定的手機並不感到驚訝。他表示，即使由於不清晰授權的合法性受到質疑，最終在法庭上接受所收集的證據不能被採納，從手機中提取數據仍然可以幫助警方開展調查工作。這位專家以被香港示威者廣泛使用的電報（Telegram）聊天群為例，即使警察沒有提取特定的消息作為證據，他們也可以找出管理員和聊天組的其他成員是誰，並利用這些信息來進一步進行調查。他說：“除非他們需要在法庭上出示這些證據，否則沒人會知道他們如何得到這些信息的。”
 
-參議員 Tom Cotton：中共想讓世界忘了那位向同事發出武漢病毒預警的李文亮醫生。我們把他的名字永遠放置在將他迫害致死的那個政權的大使館外面，保證永遠不被忘記。
+紐約大學布倫南司法中心研究員邁克爾•德曼（Michael German）表示：“政府真正感興趣的是聯繫人。”他補充說，從聯繫人分析中收集到的信息通常比手機內容更完整。而且，當必須將這種情報作為證據提供給法庭時，調查人員會通過合法途徑以“平行建構”的方式重建信息。在政府的起訴團隊提交的法庭文件中，香港警察透露是使用以色列移動取證公司Cellebrite和瑞典移動取證公司MSAB的軟件從鎖定手機中提取數據的。
 
-參議員Cotton官網：Cotton法案將中國大使館街更名為“李文亮廣場”
+數字安全的受害用戶
 
-> Why is [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) allowing the Chinese Communist Party to publish its propaganda?
->  
-> We now have proof the CCP knew the [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) could lead to a global pandemic & spent weeks trying to cover it up. They have blood on their hands and they must be held accountable. [https://t.co/sUjgVPJ25S](https://t.co/sUjgVPJ25S)
-> — Senator Ted Cruz (@SenTedCruz) [May 7, 2020](https://twitter.com/SenTedCruz/status/1258474036306350082?ref_src=twsrc%5Etfw)
+黃之峰認為，香港警方專門針對逮捕國際知名反對派人士的一部分原因是，他們可以使用手機來收集情報，上個月逮捕了該市親民主運動的15名退伍軍人就證明了這一點。包括媒體大亨黎智英（Jimmy Lai），律師吳靄儀（Margaret Ng）和李柱銘（Martin Lee），以及前立法會議員何俊仁（Albert Ho）。黎氏媒體公司高級主管馬克·西蒙（Mark Simon）表示，黎先生的手機被沒收了，儘管他沒有具體說明是否提供了搜查令。何律師說，他的電話也被沒收，但他現階段不是特別擔心，因為他援引了法律專業特權，警察不會隨意查看他的手機。美國國務院發言人說：”香港當局出於政治目的而有選擇地使用執法手段，美國對此深表關切。”
 
-參議員 Ted Cruz：為什麽《華盛頓郵報》允許中共發表它的大外宣文章？我們現在有證據證明中共早就知道冠狀病毒爆發會導致全球疫情而且用了幾個星期的時間試圖掩蓋它。他們雙手沾滿了鮮血，必須對此負責。
+24歲的抗議組織者陳皓桓（Figo Chan）是上個月被捕的15個知名人物之一，他收到搜查令，警察可以自由搜索他所有的數字設備一個月。他說，他並不太擔心從設備中提取數據，因為他一直小心翼翼地保持電話機密通信，但確實擔心隱私權在香港日益受到威脅。 “我們的數據，我與朋友的交流會落入警察的手裡嗎？沒有人對此進行監督。”
 
-《華盛頓郵報》：中國大使在“觀點”專欄寫到：指責中國不會結束這場瘟疫大爆發
+評： 在香港司法日益受到中共破壞之時，在香港警方濫用司法迫害抗議人士時，所有追求自由，法制和人權的香港人都處在極度危險的境地里。手機作為現代人必不可少的隱私設備，警方可以毫不費吹灰之力就能調查到所有抗議者的信息，這是多麼邪惡和可怕的手段。從去年6月至今，導出手機信息成為助警方一臂之力抓捕香港民運人士的重要渠道之一，共產黨當下還依舊向世界各國推送5G技術和設備，可想而知一旦5G被各國所採用，那麼世界各國的安全信息將一覽無遺,5G成為中共控制世界的最有效渠道。最近世衛組織推出的immunity passport（免疫護照） 就橡給每個人裝了一個隨身監視芯片一樣，全球每個個體的信息都將掌握在中共手中。無論是CCP病毒， 新疆集中營監視，還是5G網絡等等這些科技資源，只要落在中共手裡，就是世界最大的災難。
 
-> Last night [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) carried Chinese Amb Cui’s Op-Ed because that’s what freedom of the press looks like. Also last night, Matt Pottinger’s speech on Weibo disappeared within 5 minutes because that’s what censorship looks like. [pic.twitter.com/PP2qdMdj53](https://t.co/PP2qdMdj53)
-> — EAP Bureau (@USAsiaPacific) [May 6, 2020](https://twitter.com/USAsiaPacific/status/1258177445993353217?ref_src=twsrc%5Etfw)
+```
+原文鏈接
+```
 
-比爾·格茨先生 轉推：
+翻譯報道：Hakunamatata
 
-美國國務院東亞和太平洋事務局：昨晚，《華盛頓郵報》刊發了中國崔大使的評論文章，因為這是言論自由。同樣在昨晚，博明的演講在微博上傳5分鐘就消失了，因為審查屏蔽就是這個德性。
-
-> USAF B-2As MISTY42 & 43 departed Whiteman AFB, Missouri on a round-trip mission to operate within a task area over the East Pacific
-> 
-> USAF KC-135Rs SPUR90 & 91 provided tanker support [pic.twitter.com/efF8F2cjqc](https://t.co/efF8F2cjqc)
-> — Aircraft Spots (@AircraftSpots) [May 7, 2020](https://twitter.com/AircraftSpots/status/1258352728159539201?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生 轉推：
-
-Aircraft Spots：美國空軍兩架B-2A轟炸機MISTY42 & 43從密蘇裏州懷特曼空軍基地（Whiteman AFB）起飛，往返東太平洋任務區內執行任務。美國空軍KC-135Rs SPUR90 & 91兩架空中加油機提供了支持。
-
-> Our country has neglected the warning signs from the Chinese Communist Party for far too long. So I am forming the China Task Force, led by [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw).
-> 
-> Democrats were set to join but bailed with no explanation. Our country simply cannot wait any longer.[https://t.co/T2GyqVli0B](https://t.co/T2GyqVli0B)
-> — Kevin McCarthy (@GOPLeader) [May 7, 2020](https://twitter.com/GOPLeader/status/1258464426849640448?ref_src=twsrc%5Etfw)
-
-眾議院少數黨領袖 麥卡錫：我們國家無視來自中共國的危險信號已經太久了。因此我成立了“中國工作組”，由眾議員McCaul負責。民主黨議員本來準備加入小組，但無故放棄了。我們的國家不能再等了。
-
-Medium網站（網上內容發布平臺）：中國工作組（由15名眾議院共和黨人組成）
-
-> .⁦[@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw)⁩ & Wess Mitchell argue that as it’s challenged, [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will only grow more assertive. US has to overhaul our economic & security policies to stop Beijing’s imperialism. Great piece [https://t.co/L5YlN30T1P](https://t.co/L5YlN30T1P)
-> — Josh Hawley (@HawleyMO) [May 8, 2020](https://twitter.com/HawleyMO/status/1258575548256858113?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：Elbridge Colby和Wess Mitchell認為，面對挑戰，中國只會變得更獨斷。美國必須徹底改變經濟和安全政策，以制止北京的帝國主義。好文章。
-
-《華爾街日報》觀點｜遏制中國會讓情況變得復雜
-
-> This pandemic originated in China. Its global spread was made worse by China’s unconscionable efforts to cover it up. Working closely with our allies and partners around the world, the U.S. will be asking tough questions about our relationship with the Chinese Communist Party.
-> — Leader McConnell (@senatemajldr) [May 7, 2020](https://twitter.com/senatemajldr/status/1258443524871278593?ref_src=twsrc%5Etfw)
-
-參議院多數黨領袖 麥康奈爾：此次疫情爆發始於中國。中國這種錯誤的掩蓋行為使得全球擴散變得更嚴重。美國正在與各國盟友及合作夥伴密切合作，將嚴肅地看待我們與中共的關系。
-
-> The Chinese Communist Party even used the pandemic as cover to arrest peaceful Hong Kong democracy activists, including my old friend Martin Lee. I suppose they thought the rest of the world might be too distracted to notice. They were mistaken.
-> — Leader McConnell (@senatemajldr) [May 7, 2020](https://twitter.com/senatemajldr/status/1258506186472607744?ref_src=twsrc%5Etfw)
-
-參議院多數黨領袖 麥康奈爾：中共甚至用疫情當幌子抓捕了香港和平民主人士，其中包括我的朋友李柱銘。我猜他們以為其他各國被（疫情）牽扯精力註意不到。他們錯了。
-
-> Taiwan is a trusted partner that tried to warn the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) of the coronavirus when Communist China was silencing Chinese doctors and suppressing information. 
-> 
-> Lines have been drawn between supporting freedom or authoritarian regimes. We will be watching where the world comes down. [https://t.co/tpYdLZaL6E](https://t.co/tpYdLZaL6E)
-> — Rick Scott (@SenRickScott) [May 8, 2020](https://twitter.com/SenRickScott/status/1258564948827017216?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：臺灣曾努力向世衛組織發出冠狀病毒預警，是值得信賴的夥伴，而中共國禁止中國醫生說話並壓制信息。支持自由還是專制政權，已劃清界限。我們將靜觀世界做何決定。
-
-《華爾街日報》：川普政府正在敦促歐洲盟國及其他世衛組織成員國越過中國的反對，支持臺灣參加五月峰會
-
-> This article by the LA Times fails to mention anything about the CCP's legal requirement to support intelligence collection. This law applies to every citizen and company.[https://t.co/8FrJyxWXyR](https://t.co/8FrJyxWXyR)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258376188554346500?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：《洛杉磯時報》的這篇文章沒能提及中共依法要求支持情報收集的事。該法律適用於所有公民和公司。
-
-《洛杉磯時報》：美中科技糾紛在矽谷引發疑慮
-
-> This is mandatory. Don’t leave out the WHO. [https://t.co/0SS88Bamr3](https://t.co/0SS88Bamr3)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258377897255088128?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：這是必須的。別漏了世衛組織。
-
-Iain Duncan Smith MP：鮑裏斯·約翰遜面臨要求他支持對中國境內冠狀病毒爆發進行調查的壓力—《太陽報》
-
-> Olympic athlete fell ill competing in Wuhan last October | News | The Times [https://t.co/FJ53EoO9Qw](https://t.co/FJ53EoO9Qw)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258382137314729985?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：奧運運動員去年十月份在武漢參加比賽時生了病｜新聞｜《泰晤士報》
-
-> Liu He – "cough, cough" [https://t.co/FqKXsChgV5](https://t.co/FqKXsChgV5)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258438786037547009?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：劉鶴—“咳，咳”
-
-> Good example of how American's help promote CCP propaganda. This happens within the federal government as well, because some officials have been coopted by the CCP's narrative.[https://t.co/ZFhXAXXko3](https://t.co/ZFhXAXXko3)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258464809219227649?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：美國人幫助中共大外宣的很好的實例。聯邦政府裏也有這種事情發生，因為某些官員已經被中共招募。
-
-安全政策中心網站：美國商人如何洗白中國政權大外宣的臺詞
-
-> “Given that China itself is one of the World Bank’s largest borrowers, with $16 billion in loans outstanding, the country is effectively borrowing cheap from the developed world and relending, through the BRI, at a significant markup,” [https://t.co/N82e4UMmAo](https://t.co/N82e4UMmAo)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258471009977610240?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“鑒於中國本身是世界銀行最大的借款人之壹，仍有160億美元尚未償還，該國實際上是從發達國家以低息貸款，然後通過“壹帶壹路”大幅提高利息貸出。
-
-《亞洲時報》：中國加緊向讓病毒打擊的國家償還債務
-
-> "A spate of cyberattacks originating from China could be preparations for an attempt to paralyze Taiwan’s key computer systems and public infrastructure to disrupt the inauguration of President Tsai (蔡英文) and vice president-elect William Lai on May 20" [https://t.co/6swGaRFlaU](https://t.co/6swGaRFlaU)
-> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258472743995047937?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“來自中國的壹大波網絡攻擊可能是為讓臺灣的核心電腦系統和公共基礎設施癱瘓做準備，以擾亂蔡英文總統和副總統當選人賴清德的就職典禮。
-
-《臺北時報》：網絡攻擊可能成為蔡就職典禮當天的考驗
-
-> That is a ridiculous sentiment and one the CCP has been pushing for decades. They created a pandemic in order to benefit. No more excuses. The CCP is entitled to nothing based on the past. They themselves through their own actions have earned our enmity. [https://t.co/repaavw3jv](https://t.co/repaavw3jv)
-> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258589467683758087?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：這個觀點很可笑，中共幾十年來壹直這麽宣揚。他們制造了疫情大爆發從中獲利。別再找借口了。根據其以往所作所為，中共沒有資格得到任何東西。是他們自己的用行動拉了與我們的仇恨。
-
-Grady McGregor：美國官員想讓中國賠償疫情損失。在中國，這些要求呼應了歷史上的外國帝國主義。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08010207/image0.png-7.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08010216/1-59-scaled.jpg)
 0

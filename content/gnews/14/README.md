@@ -1,75 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伊朗的土曼挂鈎中共國的冥幣
-`2020-05-07 21:05 GM30` [轉載自GNews](https://gnews.org/zh-hant/196741/)
+## 5月7日 美國政要推文選譯
+`2020-05-08 01:02 GM65` [轉載自GNews](https://gnews.org/zh-hant/197074/)
 
-**作者：文小明**
+> The coronavirus does not respect geographic borders. It is a global pandemic and therefore the effort to combat it must also be global. Yet China is focused on blocking Taiwan from attending the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) summit – all because Taiwan stands up to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/BnnpDcVfbG](https://t.co/BnnpDcVfbG)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 7, 2020](https://twitter.com/MarshaBlackburn/status/1258432593772544002?ref_src=twsrc%5Etfw)
 
-據伊朗多家媒體報道，2020年5月4日，伊朗議會投票通過《伊朗貨幣和銀行法》修正案，該修正案將官方貨幣“裏亞爾”（Rial）改爲“土曼”（Toman）。
+參議員 Marsha Blackburn：冠狀病毒可不管什麽地緣國界。它是全球性的大爆發，因此，抗擊疫情也必須是全球共同的努力。然而中國眼睛只盯著把臺灣排除在世衛組織峰會之外——就因為臺灣反對中共。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07205754/1-48.jpg)
+《華爾街日報》：美國外交推動臺灣參加世衛組織峰會
 
-法案要求伊朗央行在考慮貨幣儲備和對國際貨幣基金組織承諾的情況下，以“土曼”重新計算彙率。爲了支持“新幣兌換舊幣”的活動，該法案給了伊朗人和外國人兩年兌換時期，在這個時期內，10000裏亞爾可以兌換1土曼。
+> If the Chinese Communist Party is confident about the origin of this virus then I'm sure they would welcome an investigation into those origins… [pic.twitter.com/ZEcKBy0dvH](https://t.co/ZEcKBy0dvH)
+> — Tom Cotton (@SenTomCotton) [May 7, 2020](https://twitter.com/SenTomCotton/status/1258354297705836552?ref_src=twsrc%5Etfw)
 
-近年來，裏亞爾在貶值的道路上基本是沒有停下過腳步。
+參議員 Tom Cotton：如果中共自信病毒來源沒問題，那麽我相信他們會歡迎對病毒來源進行調查的…
 
-貶值的結果就是國家只能不斷地推出面額更大的鈔票，以緩解拿一兜子的錢去買一袋辣條情況。鈔票的面額不斷變大，鈔票上的“0”就越來越多。不斷增加貨幣面值注定不是一個長久的辦法，因爲總有一天“0”會塞不下的，所以還是要想其他的辦法。
+> The CCP wants the world to forget Dr. Li Wenliang, who tried to warn his colleagues about the Wuhan virus. 
+> 
+> We can ensure his name is never forgotten by placing it permanently outside the embassy of the regime responsible for his persecution and death. [https://t.co/XtsXNlYNVv](https://t.co/XtsXNlYNVv)
+> — Tom Cotton (@SenTomCotton) [May 7, 2020](https://twitter.com/SenTomCotton/status/1258431139649380352?ref_src=twsrc%5Etfw)
 
-早在官方宣布更換鈔票之前，土曼就作爲伊朗的非官方貨幣一直存在，只不過沒有現鈔，當時10裏亞爾等于1土曼。據了解，這次新的貨幣換算將變成10000裏亞爾兌換1土曼。新法案要求伊朗中央銀行在考慮貨幣儲備和對國際貨幣基金組織承諾的情況下，以“土曼”重新計算彙率。法律還明確規定，“裏亞爾”將與“土曼”一起保持兩年的信譽，在此期間，將逐步收集舊硬幣和鈔票，並用新硬幣和鈔票代替。
+參議員 Tom Cotton：中共想讓世界忘了那位向同事發出武漢病毒預警的李文亮醫生。我們把他的名字永遠放置在將他迫害致死的那個政權的大使館外面，保證永遠不被忘記。
 
-土曼是民間商業交易活動中約定俗成的貨幣計量單位，1土曼相當于10裏亞爾。有說法稱，伊朗政府改革貨幣的動機之一是簡化交易中的計算成本，減少居民出門購物需要攜帶大量現金的情況。當前伊朗市面上還有500裏亞爾、1000裏亞爾等小面額的貨幣，但由于這些年的通貨膨脹，這些小面額的零碎錢基本上買不到任何東西。
+參議員Cotton官網：Cotton法案將中國大使館街更名為“李文亮廣場”
 
-7、8年前，買一張伊朗人吃的馕要花1000裏亞爾，但現在一張馕的價格已經達到25000裏亞爾。
+> Why is [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) allowing the Chinese Communist Party to publish its propaganda?
+>  
+> We now have proof the CCP knew the [#CoronavirusOutbreak](https://twitter.com/hashtag/CoronavirusOutbreak?src=hash&amp;ref_src=twsrc%5Etfw) could lead to a global pandemic & spent weeks trying to cover it up. They have blood on their hands and they must be held accountable. [https://t.co/sUjgVPJ25S](https://t.co/sUjgVPJ25S)
+> — Senator Ted Cruz (@SenTedCruz) [May 7, 2020](https://twitter.com/SenTedCruz/status/1258474036306350082?ref_src=twsrc%5Etfw)
 
-在首都德黑蘭稍微上檔次的餐館吃個飯，動不動就得花10000000多裏亞爾。這麽多零，小明表示看的鬥雞眼了已經。
+參議員 Ted Cruz：為什麽《華盛頓郵報》允許中共發表它的大外宣文章？我們現在有證據證明中共早就知道冠狀病毒爆發會導致全球疫情而且用了幾個星期的時間試圖掩蓋它。他們雙手沾滿了鮮血，必須對此負責。
 
-這次貨幣改革，直接抹去了裏亞爾後面的4個0！
+《華盛頓郵報》：中國大使在“觀點”專欄寫到：指責中國不會結束這場瘟疫大爆發
 
-近年來，伊朗裏亞爾彙率不斷走低，黑市中美元對裏亞爾彙率達到約1比15萬。
+> Last night [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw) carried Chinese Amb Cui’s Op-Ed because that’s what freedom of the press looks like. Also last night, Matt Pottinger’s speech on Weibo disappeared within 5 minutes because that’s what censorship looks like. [pic.twitter.com/PP2qdMdj53](https://t.co/PP2qdMdj53)
+> — EAP Bureau (@USAsiaPacific) [May 6, 2020](https://twitter.com/USAsiaPacific/status/1258177445993353217?ref_src=twsrc%5Etfw)
 
-數據顯示，在2005年內賈德執政初期，美元兌換裏亞爾的彙率爲1萬，到了2013年這一彙率達到了3萬。
+比爾·格茨先生 轉推：
 
-自1971年以來，該國貨幣已貶值3500倍。
+美國國務院東亞和太平洋事務局：昨晚，《華盛頓郵報》刊發了中國崔大使的評論文章，因為這是言論自由。同樣在昨晚，博明的演講在微博上傳5分鐘就消失了，因為審查屏蔽就是這個德性。
 
-這個消息給人感覺，伊朗好像在實施“廢舊鈔令”。
+> USAF B-2As MISTY42 & 43 departed Whiteman AFB, Missouri on a round-trip mission to operate within a task area over the East Pacific
+> 
+> USAF KC-135Rs SPUR90 & 91 provided tanker support [pic.twitter.com/efF8F2cjqc](https://t.co/efF8F2cjqc)
+> — Aircraft Spots (@AircraftSpots) [May 7, 2020](https://twitter.com/AircraftSpots/status/1258352728159539201?ref_src=twsrc%5Etfw)
 
-小明個人認爲，新鈔換舊鈔，就是羊駝和草泥馬，西紅柿和番茄，區別就是沒有區別，少印幾個零並不能解決根本問題，甚至連緩兵之計都稱不上。
+比爾·格茨先生 轉推：
 
-貨幣貶值是一個錯綜複雜的問題，也是一個得上了就很難治好的病。
+Aircraft Spots：美國空軍兩架B-2A轟炸機MISTY42 & 43從密蘇裏州懷特曼空軍基地（Whiteman AFB）起飛，往返東太平洋任務區內執行任務。美國空軍KC-135Rs SPUR90 & 91兩架空中加油機提供了支持。
 
-第一像新冠肺炎這樣的突然襲擊打的伊朗手足無措。
+> Our country has neglected the warning signs from the Chinese Communist Party for far too long. So I am forming the China Task Force, led by [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw).
+> 
+> Democrats were set to join but bailed with no explanation. Our country simply cannot wait any longer.[https://t.co/T2GyqVli0B](https://t.co/T2GyqVli0B)
+> — Kevin McCarthy (@GOPLeader) [May 7, 2020](https://twitter.com/GOPLeader/status/1258464426849640448?ref_src=twsrc%5Etfw)
 
-第二國際大環境的原油暴跌讓伊朗倍受牽連。
+眾議院少數黨領袖 麥卡錫：我們國家無視來自中共國的危險信號已經太久了。因此我成立了“中國工作組”，由眾議員McCaul負責。民主黨議員本來準備加入小組，但無故放棄了。我們的國家不能再等了。
 
-第三債務過多，供求不平衡都會導致貨幣的貶值。
+Medium網站（網上內容發布平臺）：中國工作組（由15名眾議院共和黨人組成）
 
-要是單單的把貨幣翻新一下就能解決問題，那津巴布韋老大哥是不早換了。人家100兆津元兌換20美元，都沒想著換貨幣，你著什麽急。
+> .⁦[@ElbridgeColby](https://twitter.com/ElbridgeColby?ref_src=twsrc%5Etfw)⁩ & Wess Mitchell argue that as it’s challenged, [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will only grow more assertive. US has to overhaul our economic & security policies to stop Beijing’s imperialism. Great piece [https://t.co/L5YlN30T1P](https://t.co/L5YlN30T1P)
+> — Josh Hawley (@HawleyMO) [May 8, 2020](https://twitter.com/HawleyMO/status/1258575548256858113?ref_src=twsrc%5Etfw)
 
-印度此前爲了打擊僞造貨幣和腐敗行爲，就廢除了市面上流通的500和1000盧比的大額面值紙幣，結果導致印度大約2180億美元一夜間成爲了廢紙，也讓印度中小企業飽受打擊，造成大約150萬人失業，更讓印度政府深陷財政赤字和美元債務雙重危機中，這樣慘痛的教訓，令世界矚目，伊朗不可能不知道。
+參議員 Josh Hawley：Elbridge Colby和Wess Mitchell認為，面對挑戰，中國只會變得更獨斷。美國必須徹底改變經濟和安全政策，以制止北京的帝國主義。好文章。
 
-土曼本來就是伊朗民間使用的貨幣計價單位，經常出現在伊朗人的日常生活當中，盡管後來，伊朗官方將名字改爲了裏亞爾，但老百姓還是使用至今，只不過1土曼相當于10個裏亞爾。
+《華爾街日報》觀點｜遏制中國會讓情況變得復雜
 
-另外，伊朗央行作爲應對措施，希望通過多樣化的外彙儲備，還宣布正式用人民幣替代了原來美元的位置，使伊朗貨幣直接與人民幣挂鈎。
+> This pandemic originated in China. Its global spread was made worse by China’s unconscionable efforts to cover it up. Working closely with our allies and partners around the world, the U.S. will be asking tough questions about our relationship with the Chinese Communist Party.
+> — Leader McConnell (@senatemajldr) [May 7, 2020](https://twitter.com/senatemajldr/status/1258443524871278593?ref_src=twsrc%5Etfw)
 
-敢和冥幣挂鈎，真是中共國的好盟友啊，在巴基斯坦放棄使用中共國的醫療設備和軍事武器之後，伊朗算是至死效忠了，不求同年同月同日生，但求同年同月同日死。
+參議院多數黨領袖 麥康奈爾：此次疫情爆發始於中國。中國這種錯誤的掩蓋行為使得全球擴散變得更嚴重。美國正在與各國盟友及合作夥伴密切合作，將嚴肅地看待我們與中共的關系。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07205829/2-40.jpg)
+> The Chinese Communist Party even used the pandemic as cover to arrest peaceful Hong Kong democracy activists, including my old friend Martin Lee. I suppose they thought the rest of the world might be too distracted to notice. They were mistaken.
+> — Leader McConnell (@senatemajldr) [May 7, 2020](https://twitter.com/senatemajldr/status/1258506186472607744?ref_src=twsrc%5Etfw)
 
-拿十多年前津巴布韋換幣事件來佐證伊朗換幣，仍然會陷入飲鸩止渴的境地。前者在06年、08年曾兩度更換官方貨幣，津巴布韋每次更換的新貨幣在經曆短暫的穩定之後，又會陷入瘋狂的貶值中。
+參議院多數黨領袖 麥康奈爾：中共甚至用疫情當幌子抓捕了香港和平民主人士，其中包括我的朋友李柱銘。我猜他們以為其他各國被（疫情）牽扯精力註意不到。他們錯了。
 
-但伊朗與津巴布韋不同的是，伊朗擁有一個硬通貨——原油和天然氣，雖然當前由于美國的制裁，伊朗出口的石油份額在持續下降，但實際上伊朗通過各種手段，比如將原油低價賣給俄羅斯，然後原油貼上俄羅斯標簽進入需求市場，或是伊朗直接擴大對黑市的石油供應，這些都迫使伊朗擁有一定的穩定收入。但是依然改變不了跌向萬丈深淵的腳步。
+> Taiwan is a trusted partner that tried to warn the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) of the coronavirus when Communist China was silencing Chinese doctors and suppressing information. 
+> 
+> Lines have been drawn between supporting freedom or authoritarian regimes. We will be watching where the world comes down. [https://t.co/tpYdLZaL6E](https://t.co/tpYdLZaL6E)
+> — Rick Scott (@SenRickScott) [May 8, 2020](https://twitter.com/SenRickScott/status/1258564948827017216?ref_src=twsrc%5Etfw)
 
-還有委內瑞拉，如今的委內瑞拉民不聊生、慘不忍睹。小明也不想再啰嗦重複。
+參議員 Rick Scott：臺灣曾努力向世衛組織發出冠狀病毒預警，是值得信賴的夥伴，而中共國禁止中國醫生說話並壓制信息。支持自由還是專制政權，已劃清界限。我們將靜觀世界做何決定。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/07205919/3-12.png)
+《華爾街日報》：川普政府正在敦促歐洲盟國及其他世衛組織成員國越過中國的反對，支持臺灣參加五月峰會
 
-小明好像發現，不論是伊朗，還是津巴布韋，還是委內瑞拉，都是和中共國CCP深度合作的國家，這種鈔票的管理方法跟中共國國內一個模子磕出來的，小明甚至猜想，中共國對這些國家輸出了一批類似金融專家一樣的國師到這些國家去。不然爲什麽我看到的CCP的未來走勢和它們一模一樣呢？
+> This article by the LA Times fails to mention anything about the CCP's legal requirement to support intelligence collection. This law applies to every citizen and company.[https://t.co/8FrJyxWXyR](https://t.co/8FrJyxWXyR)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258376188554346500?ref_src=twsrc%5Etfw)
 
-中共國現在“零存款”人口數量據某度搜索顯示高達5.6億。達到6000人民幣繳稅資格的只有6500萬，占14億人口的4.6%，十八線城市的房價百萬人民幣左右，當地百姓工資竟然只有3000左右，即使是這樣，某部門還分析老百姓，平均出了一個317萬的人均財産，小明認爲，如果這個數字在一定程度反映了老百姓的人均負債水平還是多少有些靠譜的，尤其是在2020年春節前後，突發不可抗力來襲，很多人因爲缺少現金而陷入困局。
+斯伯丁將軍：《洛杉磯時報》的這篇文章沒能提及中共依法要求支持情報收集的事。該法律適用於所有公民和公司。
 
-小明憂思，真等到了上證崩塌、恒生爆破的時候，你的真實價值是貶值到幾千倍、還是貶值到幾萬倍、還是直接變冥幣青煙袅袅了？
+《洛杉磯時報》：美中科技糾紛在矽谷引發疑慮
 
-（文章內容僅代表作者觀點）
+> This is mandatory. Don’t leave out the WHO. [https://t.co/0SS88Bamr3](https://t.co/0SS88Bamr3)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258377897255088128?ref_src=twsrc%5Etfw)
 
+斯伯丁將軍：這是必須的。別漏了世衛組織。
+
+Iain Duncan Smith MP：鮑裏斯·約翰遜面臨要求他支持對中國境內冠狀病毒爆發進行調查的壓力—《太陽報》
+
+> Olympic athlete fell ill competing in Wuhan last October | News | The Times [https://t.co/FJ53EoO9Qw](https://t.co/FJ53EoO9Qw)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258382137314729985?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：奧運運動員去年十月份在武漢參加比賽時生了病｜新聞｜《泰晤士報》
+
+> Liu He – "cough, cough" [https://t.co/FqKXsChgV5](https://t.co/FqKXsChgV5)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258438786037547009?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：劉鶴—“咳，咳”
+
+> Good example of how American's help promote CCP propaganda. This happens within the federal government as well, because some officials have been coopted by the CCP's narrative.[https://t.co/ZFhXAXXko3](https://t.co/ZFhXAXXko3)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258464809219227649?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：美國人幫助中共大外宣的很好的實例。聯邦政府裏也有這種事情發生，因為某些官員已經被中共招募。
+
+安全政策中心網站：美國商人如何洗白中國政權大外宣的臺詞
+
+> “Given that China itself is one of the World Bank’s largest borrowers, with $16 billion in loans outstanding, the country is effectively borrowing cheap from the developed world and relending, through the BRI, at a significant markup,” [https://t.co/N82e4UMmAo](https://t.co/N82e4UMmAo)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258471009977610240?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“鑒於中國本身是世界銀行最大的借款人之壹，仍有160億美元尚未償還，該國實際上是從發達國家以低息貸款，然後通過“壹帶壹路”大幅提高利息貸出。
+
+《亞洲時報》：中國加緊向讓病毒打擊的國家償還債務
+
+> "A spate of cyberattacks originating from China could be preparations for an attempt to paralyze Taiwan’s key computer systems and public infrastructure to disrupt the inauguration of President Tsai (蔡英文) and vice president-elect William Lai on May 20" [https://t.co/6swGaRFlaU](https://t.co/6swGaRFlaU)
+> — General Spalding (@robert\_spalding) [May 7, 2020](https://twitter.com/robert_spalding/status/1258472743995047937?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“來自中國的壹大波網絡攻擊可能是為讓臺灣的核心電腦系統和公共基礎設施癱瘓做準備，以擾亂蔡英文總統和副總統當選人賴清德的就職典禮。
+
+《臺北時報》：網絡攻擊可能成為蔡就職典禮當天的考驗
+
+> That is a ridiculous sentiment and one the CCP has been pushing for decades. They created a pandemic in order to benefit. No more excuses. The CCP is entitled to nothing based on the past. They themselves through their own actions have earned our enmity. [https://t.co/repaavw3jv](https://t.co/repaavw3jv)
+> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258589467683758087?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這個觀點很可笑，中共幾十年來壹直這麽宣揚。他們制造了疫情大爆發從中獲利。別再找借口了。根據其以往所作所為，中共沒有資格得到任何東西。是他們自己的用行動拉了與我們的仇恨。
+
+Grady McGregor：美國官員想讓中國賠償疫情損失。在中國，這些要求呼應了歷史上的外國帝國主義。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08010207/image0.png-7.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08010216/1-59-scaled.jpg)
 0
