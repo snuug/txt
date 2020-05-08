@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧：新聞簡報談武漢疫情、香港、臺灣世衛組織觀察員身份
-`2020-05-08 10:15 GM65` [轉載自GNews](https://gnews.org/zh-hant/197451/)
+## 福克斯新聞：北京開啟打壓冠狀病毒疫情病人及家屬行動
+`2020-05-08 10:40 GM65` [轉載自GNews](https://gnews.org/zh-hant/197463/)
 
-翻譯：Laowu 字幕：Yi Wen
+翻譯：Halley 字幕：laowu
 
 0
