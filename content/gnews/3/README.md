@@ -1,21 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】06/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-09 11:30 GM10` [轉載自GNews](https://gnews.org/zh-hant/198555/)
+## 中共病毒全球爆發尋根究源：中共隱瞞疫情時間表
+`2020-05-09 11:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/198628/)
 
-**戰友之家圖文摘要組及小語種組**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09114634/%E4%B8%AD%E5%85%B1%E9%9A%90%E7%9E%92%E7%96%AB%E6%83%85%E6%97%B6%E9%97%B4%E8%A1%A8-1.jpg)
+英國廣播公司5月8日根據公開可核實信息整理了一份中共早期抗疫時間表（2019年12月至2020年1月）
+12月1日
+根據《柳葉刀》雜誌報道，癥狀首次出現。但是，據信該病毒於11月首次出現。
+12月27日
+湖北省中西醫結合醫院呼吸與重症醫學科主任張繼先向中共當局通報一種類非典的疾病的出現。此時，案例已在成倍增加。
+12月30日
+武漢市衛健委向當地醫院通報 “病因不明的肺炎”，並要求醫生報告過去一周的可疑病例和相關信息。武漢市中心醫院急診科主任艾芬，將一名疑似患者的檢查結果拍照並發送給該地區的另一位醫生。此後，這份檢測結果在武漢的醫學界中流傳。同時李文亮醫生將肺炎信息發送至一個醫生群，後被中共噤聲。此時，中國社交媒體微博上傳出 “神秘性肺炎” 的報道。
+12月31日
+中國官員承認他們正在調查27例病毒性肺炎病例，並派遣了專家小組。當局說有七個危重病人，但尚未發現人與人之間的傳播。當局向世界衛生組織（WHO）發警告。
+1月1日
+武漢一家醫院在微信公眾號稱他們正在 “與不明肺炎戰鬥” 。艾芬醫生說，醫院的紀委會譴責她 “散布謠言” 。央視《新聞聯播》報道武漢市公安局以散布病毒謠言為由拘留了八人（包括李文亮醫生）。
+世衛組織調整為緊急狀態以應對潛在的疫情
+中國當局關閉了聲稱是病毒源頭的華南海鮮批發市場
+1月3日
+各種關於病毒的說法在中國社交媒體上引起廣泛關注，例如當地衛生部門禁止醫院工作人員發表相關言論。（中共當局嚴格審查刪除了大量信息，英國廣播公司已無法獨立驗證。）
+武漢市衛生部門發布了關於該病的首個公共信息，稱該病並未在人與人之間傳播。
+1月7日
+在後來發出的官方文件中證實，政治局常務委員會在1月7日討論了疫情。這表明了他們早知道了這種病毒。
+1月8日
+派遣第二批專家調查疫情
+1月9日
+中國公開了冠狀病毒的基因組，科學家開始研發病毒測試
+1月11日至17日
+中共沒有報告任何新增案例，仍在湖北省舉辦了省內的兩會
+1月13日
+中國境外首次出現確診案例（1月8日泰國收治一名患者）
+1月14日
+世衛組織在推特上發帖說：“中共當局進行的初步調查沒有發現明顯的人際傳播證據。”
+1月15日
+美國出現首例（由中國輸入）
+1月20日
+中國國家衛生委員會的一組衛生專家首次承認中共病毒可在人與人之間傳播
+韓國出現首例
+1月20日至21日
+世界衛生組織派代表團到武漢進行實地研究。證據表明人與人之間傳播正在發生，但還需要更多分析。
+1月21日
+中國官媒《人民日報》首次提到冠狀病毒，以及抗疫進展。此前，官方媒體要麼忽略疫情，要麼輕描淡寫，大談春節安排。
+中國官方媒體確認了291例冠狀病毒病例
+在國際社會對瞞報疫情的施壓時，中共表示：“任何出於個人利益而故意拖延和隱瞞[病毒]案例的人，都會被永遠釘在的恥辱支柱。”
+世衛組織討論他們是否應宣布該疫情暴發是國際衛生緊急事件
+1月23日
+武漢（及附近城市）封城。
+世衛組織決定不宣布國際衛生緊急事件
+1月23日至25日
+中共開始建造雷神山、火神山醫院
+1月24日
+中國政府在全國範圍內禁止進行野生動植物貿易
+1月24日至30日
+中國春節，數百萬的人返家或出行
+1月25日
+中國官員要求所有出國的遊客出示健康狀況。
+1月28日
+世界衛生組織總幹事譚德塞（Tedros Ghebreyesus）與習近平會面，討論了疫情，並強調這是該機構的當務之急。
+1月30日
+世衛組織宣布中共病毒成為全球關注的突發公共衛生事件-這時在中國境外已經確認了82個病例。
 
-[English\_0506\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112918/English_0506_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112918/English_0506_CCP_Virus_Updates.pdf)
-
-[French\_0506\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112929/French_0506_CCP_Virus_Updates_-.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112929/French_0506_CCP_Virus_Updates_-.pdf)
-
-[German\_0506\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112940/German_0506_CCP_Virus_Updates_-.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112940/German_0506_CCP_Virus_Updates_-.pdf)
-
-[Japanese\_0506\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112951/Japanese_0506_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112951/Japanese_0506_CCP_Virus_Updates.pdf)
-
-[Russian\_0506\_CCP\_Virus\_Updates\_1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112959/Russian_0506_CCP_Virus_Updates_1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09112959/Russian_0506_CCP_Virus_Updates_1.pdf)
-
-[Russian\_0506\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09113010/Russian_0506_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09113010/Russian_0506_CCP_Virus_Updates_1-1.pdf)
+[原文鏈接](https://www.bbc.com/news/world-52573137)
+翻譯報道：佚名
 
 0
