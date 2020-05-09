@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：明年我們將取得令人難以置信的成就
-`2020-05-09 07:09 Freela` [轉載自GNews](https://gnews.org/zh-hant/198357/)
+## 【世界多語言圖文】05/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-09 11:18 GM10` [轉載自GNews](https://gnews.org/zh-hant/198532/)
 
-在五月八日的白宮，川普總統強調說，有關重啟經濟的問題，明年我們將取得令人難以置信的成就。在安全的指導方針下，包括所有與保持社會安全距離、洗手以及我們應該做的所有事情得到保證的前提下，我們的經濟會變得非常非常強大。
+戰友之家圖文摘要組及小語種組
 
-**出處：**
+[English\_0505\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111535/English_0505_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111535/English_0505_CCP_Virus_Updates-1.pdf)
 
-[President Trump on reopening the economy](https://www.youtube.com/watch?v=Ah7Lwp3n2I4&amp;feature=youtu.be)
+[French\_0505\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111559/French_0505_CCP_Virus_Updates_-1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111559/French_0505_CCP_Virus_Updates_-1-1.pdf)
 
-*翻譯：【Freela】校對：【Winston Jackson】字幕：【Freela】*
+[German\_0505\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111628/German_0505_CCP_Virus_Updates_-1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111628/German_0505_CCP_Virus_Updates_-1-1.pdf)
+
+[Japanese\_0505\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111648/Japanese_0505_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111648/Japanese_0505_CCP_Virus_Updates-1.pdf)
+
+[Russian\_0505\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111710/Russian_0505_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111710/Russian_0505_CCP_Virus_Updates_1-1.pdf)
 
 0
