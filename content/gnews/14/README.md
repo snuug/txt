@@ -1,89 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 為什麼中國共產黨要針對史蒂夫·班農？因為他是對的
-`2020-05-08 21:58 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/197811/)
+## 5月8日 美國政要推文選譯
+`2020-05-09 00:27 GM65` [轉載自GNews](https://gnews.org/zh-hant/197999/)
 
-【中英對照翻譯】[https://spark.adobe.com/page/YolgTjCPp3YIk/](https://spark.adobe.com/page/YolgTjCPp3YIk/)
+> Authoritarian regimes like China, Russia & Turkey have exploited COVID-19 to consolidate power & silence critics. [@SenMarkey](https://twitter.com/SenMarkey?ref_src=twsrc%5Etfw) & I introduced the [#ProtectingHumanRightsDuringPandemicAct](https://twitter.com/hashtag/ProtectingHumanRightsDuringPandemicAct?src=hash&amp;ref_src=twsrc%5Etfw) to ensure the United States is at the forefront of the fight to protect human rights.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2020](https://twitter.com/MarshaBlackburn/status/1258810394304446464?ref_src=twsrc%5Etfw)
 
-*新聞來源：The National Pulse*
+參議員 Marsha Blackburn：諸如中國、俄羅斯和土耳其這樣的專制政權利用冠狀病毒鞏固權力，讓批評人士沈默。我和Markey參議員提出了 #疫情期間保護人權法案，確保美國在保護人權的鬥爭中走在前面。
 
-*作者：Derek Dunn*
+> Blackburn and several fellow Republicans have introduced legislation to rename a street outside the Chinese embassy in Washington after Li Wenliang, a Wuhan-based doctor silenced by authorities for his public warnings about the new coronavirus' dangers.[https://t.co/VbGxGDt3dj](https://t.co/VbGxGDt3dj)
+> — Times Free Press (@TimesFreePress) [May 8, 2020](https://twitter.com/TimesFreePress/status/1258834058907398144?ref_src=twsrc%5Etfw)
 
-*翻譯/簡評：小明*
+參議員 Marsha Blackburn 轉推：
 
-*校對：海闊天空*
+《查塔努加時報》：布萊克本和幾位共和黨同事提起壹項法案將華盛頓中國大使館外的街道以李文亮的名字重新命名，武漢的李醫生因其曾經警告公眾冠狀病毒具有危險性而被政府噤聲。
 
-**簡評：**
+田納西州《查塔努加時報》：參議員布萊克本提出法案將中國大使館外街道以疫情“吹哨人”的名字重新命名
 
-作者用詼諧的口吻，清晰的邏輯，揭露了中共政權的狡詐和邪惡，把中共發動媒體戰，造謠污蔑美國政治人物，滲透美國政壇和社會，用不公平貿易手段剝削中美兩國人民，把大疫情引向全世界等一系列陰謀詭計扒了個體無完膚。作者沒有像中共喉舌那樣，用冠冕堂皇的辭藻來粉飾偉光正，而是以平民的視角，通俗的表達將繁復的政治語言翻譯成普通人的信念——消滅中共這個邪魔歪道！這正是美國社會真正覺醒的聲音。
+> With China’s censorship and government control, anything other than a top score would be shocking. [https://t.co/Vk0x13yjt5](https://t.co/Vk0x13yjt5)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 8, 2020](https://twitter.com/MarshaBlackburn/status/1258836824740544513?ref_src=twsrc%5Etfw)
 
-崛起的美國平民主義和爆料革命的精神一脈相承，都是反抗權力壟斷，主張每個小小的人物都有發言權，這兩者的結合便是中共最大的夢魘，這也是他們狗急跳牆、造謠惑眾的原因所在。班農先生是中國人民的英雄，他和郭文貴先生一起為了中國人的法治與自由而奮戰。班農先生對中國人民的熱愛溢於言表，他不厭其煩地在媒體上宣稱中國人民是世界上最勤勞體面的人民，而對中共政權則是大加撻伐，無情揭露。這一點中共沒有膽量去面對，只能繼續綁架中國人民對抗西方世界。但是，它的謊言已經被揭穿，它的喪鐘也即將敲響。
+參議員 Marsha Blackburn：在中國的審查制度和政府控制下，得分第壹壹點都不奇怪。
 
+CNBC新聞：在公民對政府應對冠狀病毒疫情措施的評價中，中國得分最高
 
+> The CCP wouldn’t need a PR campaign if they’d simply been transparent about this virus from the beginning. The only headline right now should be “China is a pariah state.” [https://t.co/z0yjm8zK3Q](https://t.co/z0yjm8zK3Q)
+> — Tom Cotton (@SenTomCotton) [May 8, 2020](https://twitter.com/SenTomCotton/status/1258717691084496896?ref_src=twsrc%5Etfw)
 
-## **為什麼中國共產黨要針對史蒂夫·班農？因為他是對的**
+參議員 Tom Cotton：假如中共從壹開始就做到病毒信息公開透明，就不需要公關運作。現在的標題只能是“中國是“被排斥的國家””（被排斥的國家或放逐國家，pariah state，指該國因其國際行為與國際規範脫軌，或在國際權力聯盟結構終缺乏穩定支持，而處於外交孤立或易受責難的國家，與國際法或國際規範脫軌的行為如支持恐怖主義或無視於國際法或外交規範、體制、或條約的國家行為。維基百科）
 
-縱觀世界，像中國共產黨一樣如此猛烈和密集地發動信息戰的組織少之又少。
+Axios：北京要求用“對北京的贊許”換取醫療物資
 
-為便於歪曲信息和扭曲真相，以達到政治目的，中共有一整套的傳媒體系，利用無線電波和其它各種媒介來散播其精心編纂的故事。
+> State Department Global Engagement Center identified a new Chinese bot network on Twitter backing PRC disinformation and propaganda in trying to hide Wuhan origins of coronavirus outbreak
+> — Bill Gertz (@BillGertz) [May 8, 2020](https://twitter.com/BillGertz/status/1258759845542494210?ref_src=twsrc%5Etfw)
 
-他們是政治宣傳的大師，而現在他們又找到了新的目標——前白宮首席策略師，著名的對中共的鷹派史蒂夫·班農。
+比爾·格茨先生：美國國務院全球接觸中心在推特上識別出中共的壹夥新的機器人網軍，它們支持中共國試圖掩蓋武漢冠狀病毒來源的虛假信息和大外宣。
 
-針對班農的第一波轟炸來自於這篇刊載在中國環球電視網絡網站上的文章。
-[!\[\](https://spark.adobe.com/page/YolgTjCPp3YIk/images/7ad75d93-fc01-453e-9890-d66fd90707d4.jpg?asset_id=3de600e7-7c3b-4352-b948-3207413ae654&amp;img_etag=c4c7c4e668ed6ffea14294ed1cdb79be&amp;size=2560)](https://spark.adobe.com/page/YolgTjCPp3YIk/images/7ad75d93-fc01-453e-9890-d66fd90707d4.jpg?asset_id=3de600e7-7c3b-4352-b948-3207413ae654&amp;img_etag=c4c7c4e668ed6ffea14294ed1cdb79be&amp;size=1024)
-這篇文章講到，班農是一個知名的極端右翼民族主義分子，他本就該被拋棄，因為他經常對中國進行謾罵攻擊。緊接著，這篇文章的作者聲稱班農只敢喊喊口炮，因為他想重新找回自己的地位。
+> My exclusive interview with Presidential Arms Control Encoy Marshall Billingslea who says New START treaty extension unlikely unless China joins arms talks [https://t.co/Yyz3BleOiE](https://t.co/Yyz3BleOiE)
+> — Bill Gertz (@BillGertz) [May 8, 2020](https://twitter.com/BillGertz/status/1258881599644610564?ref_src=twsrc%5Etfw)
 
-如果這樣的宣傳也值得相信的話，班農無異於是用損害自身影響力的行為來贏得關注。顯然，這不符合邏輯。而這也是宣傳口炮的通病，他們從不講究邏輯。
+比爾·格茨先生：我對美國總統軍備控制特使馬歇爾·比林斯利亞（Marshall Billingslea）的獨家專訪，他說除非中國加入軍備談判，否則《新削減戰略武器條約》可能無法延期。
 
-這次攻擊的另一波來自新華社，中共欽點的喉舌以「班農是一個受到公認的極端右翼分子」開篇撰文。發現這種宣傳的模式了嗎？這種一唱一和，不就是商量好了的嗎？
+《華盛頓時報》：馬歇爾·比林斯利亞說《新削減戰略武器條約》的命運取決於中國
 
-但是，這些中共的喇叭絲毫不提CNN的假新聞和他們對美國內政的干涉，下一次請講一下吧。
+> Unbelievable – how can democratically elected legislators be physically & brutally dragged out of the legislature by the Chinese Communist Party's thugs?
+> 
+> Yet another brutal assault on the few thin threads that remain of anything resembling democracy in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> Just outrageous [https://t.co/7Eg6Vf2ZEO](https://t.co/7Eg6Vf2ZEO)
+> — Benedict Rogers#StayHomeSaveLives (@benedictrogers) [May 8, 2020](https://twitter.com/benedictrogers/status/1258652833743802369?ref_src=twsrc%5Etfw)
 
-總的來說，新華社的文章毫無意義。而他們一貫不著邊際。
+斯伯丁將軍 轉推：
 
-他們的目的是讓虛假信息在社交媒體里泛濫，從而使人們無所適從，不知道相信什麼。那些左派對俄羅斯的指控，和中國共產黨大張旗鼓的政治宣傳相比，簡直微不足道，而且對於中共的行為有大量的證據加以佐證。
+Benedict Rogers：難以置信——怎能讓中共的暴徒粗暴地將民主選舉的立法委員強行拖出立法機關？這是對香港僅存的民主的又壹次打擊。
 
-最新一輪針對班農的攻擊來自於中國中央電視台。
+> It was a pleasure to discuss China’s vision for a new world order with [@cburton001](https://twitter.com/cburton001?ref_src=twsrc%5Etfw) and [@jbmllr](https://twitter.com/jbmllr?ref_src=twsrc%5Etfw). Thanks so much [@shuvmajumdar](https://twitter.com/shuvmajumdar?ref_src=twsrc%5Etfw) and [@MLInstitute](https://twitter.com/MLInstitute?ref_src=twsrc%5Etfw) for hosting! [https://t.co/xMDbyfCVaq](https://t.co/xMDbyfCVaq)
+> — Nadège Rolland (@RollandNadege) [May 8, 2020](https://twitter.com/RollandNadege/status/1258601243083235329?ref_src=twsrc%5Etfw)
 
-在中共央視的文章里，班農被貼上了「極右翼政治野心家」的標籤，文章還把他描述成一個「帶有侵略性的極端右派政治觀點的，而且時常鼓吹種族歧視以及排外主義」的人。
+斯伯丁將軍 轉推：
 
-這種宣傳的模式不僅延續了以往的風格，而且還有所升級。
+Nadège Rolland（《晚間財經報道》（NBR）節目高級成員）：就“中國對世界秩序的新構想”議題與Charles Burton和J. Berkshire Miller進行了愉快的交流。感謝Shuvaloy Majumdar和麥當諾-勞雷爾研究所（加拿大智庫）組織了這次討論。
 
-中共官媒不只是把班農污蔑成「極右翼」或「超級右翼「或者甚至「超級無敵極端右翼分子」，現在他們已經把這種污蔑升級為赤裸裸的謊言，竟然宣稱班農是種族歧視的代表。請不要忘記，班農是一個把種族民族主義者稱作「失敗者」 的人。他怎麼會有種族歧視呢？
+麥當諾-勞雷爾研究所：“中國模式”？北京推動的全球規則和標準替代品
 
-[!\[\](https://spark.adobe.com/page/YolgTjCPp3YIk/images/2204bf77-8d37-43dc-81c4-6f2c388d9089.jpg?asset_id=6678193d-7b6d-4183-b992-b21ad922c8c3&amp;img_etag=c91e844eaf5f089542c6716297f5f9ab&amp;size=2560)](https://spark.adobe.com/page/YolgTjCPp3YIk/images/2204bf77-8d37-43dc-81c4-6f2c388d9089.jpg?asset_id=6678193d-7b6d-4183-b992-b21ad922c8c3&amp;img_etag=c91e844eaf5f089542c6716297f5f9ab&amp;size=1024)
+> 1/4 Pause for a second and think about this – the CCP recalled and then abducted Meng Hongwei, head of Interpol. He has now been locked up without due process. Now think about LTG Flynn – he was charged and almost imprisoned via a very similar model. Text messages and hand…
+> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258742628079808514?ref_src=twsrc%5Etfw)
 
-中共的政治宣傳仍是一如既往的缺乏邏輯。
+斯伯丁將軍 連推：暫停下來思考壹下這個問題——中共召回並綁架了國際刑警組織負責人孟宏偉。未經正常手續將他關押。然後再想想陸軍中將弗林——在壹個很相似的模式下，他受到指控並差壹點被關進監獄。我們永遠看不到的簡訊和筆記說明了真相。民主消逝在黑暗中。如果妳是精英階層的壹員，妳很容易給“法治”的重要性打折扣。所以，勞動階級對於維護我們的共和體制至關重要。如果體制崩塌，他們首先是受害者。從本質上講，他們是“礦井中的金絲雀”（比喻最先感知危機的群體）。我們應該認真聽取他們的話。如果妳從政已經超過十年，很可能已經忘了這個事實。亦或妳從來就不知道這個道理。
 
-這種政治宣傳的目的是把令人反感的評論強加給觀眾，敗壞他們攻擊對象的名聲，同時把自己粉飾為蠻橫無禮的憤怒下的受害者。
+> Yes!! [https://t.co/tiUU2kXm5U](https://t.co/tiUU2kXm5U)
+> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258760608914300930?ref_src=twsrc%5Etfw)
 
-最近的這些攻擊似乎來勢洶洶，咄咄逼人，而如果不是鷹派人物的反擊，這波攻勢可能就得逞了。尤其是考慮到西方的社交媒體似乎並不情願擊垮中共的政治宣傳，這些社交媒體未能從俄羅斯網軍的侵襲中汲取教訓。
+斯伯丁將軍：是的！！
 
-通過給班農貼上「極右翼」的標籤以及一系列按照固定模式展開的滑稽表演，中國共產黨企圖引誘左派進入這場宣傳戰中，他們試圖欺騙那些有利用價值的蠢貨，讓這些白痴相信中共國正在和美國左派共同的敵人戰鬥。
+Josh Rogin：最新發表：疫情大爆發說明了為什麽臺灣是比中共國好得多的合作夥伴。我發表在《華盛頓郵報》觀點專欄的文章
 
-這基本上就是事情的真相了。
+> No, this is precisely the debate we need to have. As for the virus, while we don't know for certain the origin, we do know the pandemic's origin stems from the CCP's deliberate actions taken to accrue regime benefit. [https://t.co/StLPFrvUh4](https://t.co/StLPFrvUh4)
+> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258816436291633153?ref_src=twsrc%5Etfw)
 
-班農自從政治生涯開始就發動了對中國共產黨積極且持久的批判。他這麼做是因為中國共產黨一貫是世界上最大的侵犯人權的組織，而且是世界歷史上最具破壞性的政治力量。
+斯伯丁將軍：不，這恰恰是我們現在需要討論的。關於病毒，我們現在還不確定它的來源，但我們知道全球疫情大流行來自於中共為了政權利益而采取的故意行動。
 
-中共的邪惡一向鮮為人知，並且逃脫了美國人民的審查。但是，當他們蓄意讓世界陷入大疫情災難之後，美國人民終於醒悟過來。
+《亞洲時報》：這不是美國需要討論的中國議題（文中指美國大選中，哪位總統候選人的中國政策“更強硬”）
 
-中國共產黨對班農進行報復性攻擊，這種報復的力度顯示了他們的絕望。
-[!\[\](https://spark.adobe.com/page/YolgTjCPp3YIk/images/7b3d56f4-01f4-4c93-8f26-62999e6d9c21.jpg?asset_id=6d4b670d-d34c-48f2-8741-fe81bd88ad2e&amp;img_etag=628de9e083d8ad70006596c9b8a88436&amp;size=2560)](https://spark.adobe.com/page/YolgTjCPp3YIk/images/7b3d56f4-01f4-4c93-8f26-62999e6d9c21.jpg?asset_id=6d4b670d-d34c-48f2-8741-fe81bd88ad2e&amp;img_etag=628de9e083d8ad70006596c9b8a88436&amp;size=1024)
-上述三篇攻擊班農的文章在幾小時內陸續發表，這是有組織的攻擊中的一部分。美國最大的外部對手瘋狂的攻擊一個政治評論員。他們這種誹謗無意中暴露了其真正動機。當他們竭盡所有詞彙將班農描述為極右翼之時，卻默認了一個事實，那就是美國的右派已經轉變為一個政治實體，這股力量有能力給世界上最暴虐殘忍的政權給予沈重打擊。
+> Interesting[https://t.co/GGJvIubWiy](https://t.co/GGJvIubWiy)
+> — General Spalding (@robert\_spalding) [May 8, 2020](https://twitter.com/robert_spalding/status/1258821223481556996?ref_src=twsrc%5Etfw)
 
-中共意識到，美國的民族主義是喚醒整個國家並且揭露中國共產政權邪惡面目的政治力量。他們的某位喉舌在以下的這段話中含蓄地承認了這一點：「美國面對的最大危險並非是新型病毒，而是那些試圖用政治病毒來製造麻煩的右翼平民主義者。」
+斯伯丁將軍：有意思
 
-這就是政治宣傳喇叭慣用的技倆。
-
-「右翼平民主義者」並非美國的威脅。相反他們是中共國自從共產黨執政以來最大的威脅。正是平民主義者們最先開始挑戰中共國剝削性的貿易行為，而現在美國的其它力量也採納了這一必要的政策。
-
-這個必要的政策恰好也是從經濟上摧毀中國共產黨的第一步。而他們最近的跳腳咒罵也證明，這樣的政策正在讓中共惶恐不安。
-
-[新聞鏈接](https://thenationalpulse.com/news/chinese-communist-party-targeting-steve-bannon/)
-
-#### 編輯【喜馬拉雅戰鷹團】
-
-
-
+《環球時報》：中國需要將核彈頭數量增加到1000枚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09002622/image0.png-9.jpeg)
 0
