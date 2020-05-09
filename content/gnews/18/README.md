@@ -1,13 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普出席總統表彰會（全版）
-`2020-05-09 04:15 GM31` [轉載自GNews](https://gnews.org/zh-hant/198162/)
+## 美國第十五次飛近台灣邊境，中美關係降至冰點
+`2020-05-09 04:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/198199/)
 
-川普總統在5.1表彰會上指出：“最近幾周，我們的國家承受了巨大的苦難和損失。我們為每一個失去我們生命的人哀悼。在如此多的痛苦中，我們今天所頌揚的英雄們給了我們所有人鼓舞，你們真的是我們所有人的巨大鼓舞，整個國家都在注視著你們。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09045213/Picture-1-91.png)
+前有貿易戰，現有中共病毒，兩者依次加劇中美關係的惡化，到達幾十年來最低點。此刻更在軍事上延伸，尤其是在頗具主權爭議的東海地區的軍事活動。
 
-**出處：**[President Trump Participates in a Presidential Recognition Ceremony: Hard Work, Heroism, and Hope](https://www.youtube.com/watch?v=uZ9zueV3wVo)
+美軍軍事動作包括派出B-1B戰略轟炸機在東海附近頻繁活動以及發布了B-1B戰略轟炸機執行任務照片，其中包括高難度、高危科目空中加油。
 
-*翻譯：【Michelle】  校對：【文所未聞】【GM31】  字幕：【Freela】*
+此次以本月初以來第三次轟炸機飛越東海的行動最具爭議，航空監測站跟踪到兩架美國B-1B戰略轟炸機由關島飛至東海，在台灣東北部的海上邊界飛行。
+
+據台灣中央通訊社(CNA news)報導，這已是美國自4月初以來第15次靠近台灣邊境的飛行，飛行路線顯示，兩架轟炸機從關島安德森空軍基地(Anderson Air Force Base)起飛，飛向東海和台灣附近。
+
+美國亦有政府官員代表做出評價。川普政府的一名前貿易官員警告稱，中共冠狀病毒加劇了貿易戰以來的中美緊張局勢，中美關係降至冰點，標誌著新一輪冷戰的開始。而前白宮首席貿易談判代表克里特•威廉斯週二在美國全國廣播公司商業頻道的財經論談節目中也表示: “此時的情況是，目前美中之間的緊張關係正在顯著升級。”他說:“我知道人們會對這個術語感到不適，但是我確實認為，我們必須誠實面對這個問題，這是新冷戰的開始，如果我們不小心，情況可能會變得非常非常糟。”
+
+[原文鏈接](https://www.zerohedge.com/geopolitical/us-b-1b-bombers-again-fly-near-chinese-airspace-amid-new-cold-war-threat)
+
+翻譯報導：文素老妹兒
 
 0
