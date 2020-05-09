@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普出席總統表彰會（全版）
-`2020-05-09 04:15 GM31` [轉載自GNews](https://gnews.org/zh-hant/198162/)
+## 川普：明年我們將取得令人難以置信的成就
+`2020-05-09 07:09 Freela` [轉載自GNews](https://gnews.org/zh-hant/198357/)
 
-川普總統在5.1表彰會上指出：“最近幾周，我們的國家承受了巨大的苦難和損失。我們為每一個失去我們生命的人哀悼。在如此多的痛苦中，我們今天所頌揚的英雄們給了我們所有人鼓舞，你們真的是我們所有人的巨大鼓舞，整個國家都在注視著你們。”
+在五月八日的白宮，川普總統強調說，有關重啟經濟的問題，明年我們將取得令人難以置信的成就。在安全的指導方針下，包括所有與保持社會安全距離、洗手以及我們應該做的所有事情得到保證的前提下，我們的經濟會變得非常非常強大。
 
-**出處：**[President Trump Participates in a Presidential Recognition Ceremony: Hard Work, Heroism, and Hope](https://www.youtube.com/watch?v=uZ9zueV3wVo)
+**出處：**
 
-*翻譯：【Michelle】  校對：【文所未聞】【GM31】  字幕：【Freela】*
+[President Trump on reopening the economy](https://www.youtube.com/watch?v=Ah7Lwp3n2I4&amp;feature=youtu.be)
+
+*翻譯：【Freela】校對：【Winston Jackson】字幕：【Freela】*
 
 0
