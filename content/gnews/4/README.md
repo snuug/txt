@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【生日歌MV】祝親愛的郭文貴先生生日快樂！
-`2020-05-09 19:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/198816/)
+## 破産法！郭先生三段視頻討論 “中共病毒疫情每日熱線”
+`2020-05-09 21:50 GM30` [轉載自GNews](https://gnews.org/zh-hant/198878/)
 
-願平安健康永遠伴着您！願歡笑幸福永遠繞着您！願親情友情愛情永遠隨着您！願您夢想成真！一切已經開始！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09214720/image0-76.jpg)
 
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5eb6d2c179cccb4c58836940](https://web.gtv1.org/?videoid=5eb6d2c179cccb4c58836940)
 
-
-製作：【戰友同盟】
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

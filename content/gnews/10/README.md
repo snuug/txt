@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】07/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-09 12:01 GM10` [轉載自GNews](https://gnews.org/zh-hant/198630/)
+## 研究表明天氣變暖不會阻止病毒傳播
+`2020-05-09 17:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/198765/)
 
-**戰友之家圖文摘要組及小語種組**
+作者：Dogman
 
-[English\_0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09115955/English_0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09115955/English_0507_CCP_Virus_Updates-1.pdf)
+針對之前公眾對與氣溫是否能夠阻礙病毒傳播的疑問，多倫多大學與其合作夥伴在CMAJ上發表的研究給出的答案是：二者沒有關係。
 
-[French\_0507\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120005/French_0507_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120005/French_0507_CCP_Virus_Updates_-_Copie-1.pdf)
+這項研究涵蓋了全球144個區域，每個區域在03/30/2020之前都出現了至少10起確診案例。通過數學分析，這項研究最中作出結論：「病毒的傳播與增長與緯度和氣溫沒有聯繫」。這項研究還發現，「病毒的傳播可能與相對或者絕對濕度有著非常微弱的負相關聯繫」。
 
-[German\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120016/German_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120016/German_CCP_Virus_Updates_-_Kopie-1.pdf)
+與此形成鮮明對比的是「公眾衛生政策的行政干預對阻礙病毒傳播有非常大的作用」。
 
-[Japanese0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120029/Japanese0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120029/Japanese0507_CCP_Virus_Updates-1.pdf)
+通過這項研究我們能夠意識到維持社交距離的重要性。
 
-[Russian\_0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120044/Russian_0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120044/Russian_0507_CCP_Virus_Updates-1.pdf)
+一直追隨爆料革命的戰友和觀眾相信很早就知道天氣回暖不會影響病毒的繁殖與傳播的事實，而爆料革命發起人郭文貴先生一直跟戰友強調「呆在家裡不要出門」。隨著天氣變暖，以及經濟下滑對於復工的迫切要求，讀者需要對「錢與生命」之間進行權衡。
 
-[Spanish0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120052/Spanish0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120052/Spanish0507_CCP_Virus_Updates-1.pdf)
+研究報告鏈接：https://www.cmaj.ca/content/early/2020/05/08/cmaj.200920/tab-figures-data
+
+
 
 0
