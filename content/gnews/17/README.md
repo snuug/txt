@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美兩黨議員：提案將中共駐華盛頓大使館街道名改為“李文亮廣場”
-`2020-05-09 10:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/198448/)
+## 【世界多語言圖文】07/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-09 12:01 GM10` [轉載自GNews](https://gnews.org/zh-hant/198630/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09093135/Picture-1-94.png)
-據福克斯近日報導，參眾兩院的共和黨人本週提出立法，將位於中國駐華盛頓大使館前的街道改名為李文亮廣場，以紀念這位敲響中共冠狀病毒警鐘的醫生。
+**戰友之家圖文摘要組及小語種組**
 
-李文亮是武漢中心醫院的醫生，早在2019年12月底，他最早傳播了中共冠狀病毒的信息，並警告同事們不要受到病毒威脅。他被傳喚到公安局並被迫簽署並警告其”嚴重擾亂了社會秩序” ， 原因是他預警了病毒的危害。他於2月7日因病毒感染去世。
+[English\_0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09115955/English_0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09115955/English_0507_CCP_Virus_Updates-1.pdf)
 
-懷俄明州共和黨眾議員利茲·切尼（Liz Cheney）週四在一份聲明中提到：”中共政府試圖壓制李文亮醫生，他冒著極大的個人風險，對中共冠狀病毒的危險發出過預警· 。”
+[French\_0507\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120005/French_0507_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120005/French_0507_CCP_Virus_Updates_-_Copie-1.pdf)
 
-切尼還說：”我很榮幸能提出這項立法，以李醫生的名字命名中國大使館前的街道。這會不斷提醒世界和中共政府，真理和自由最終會獲勝。”
+[German\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120016/German_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120016/German_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-這項法案由14名共和黨眾議員和4名共和黨參議員共同發起。 4名共和黨參議員分別是阿肯色州的湯姆·科頓（Tom Cotton）、內布拉斯加州的本·薩塞（Ben Sasse）、佛羅里達州的馬可·魯比奧（Marco Rubio）和田納西州的瑪莎·布萊克本（Marsha Blackburn）。
+[Japanese0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120029/Japanese0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120029/Japanese0507_CCP_Virus_Updates-1.pdf)
 
-參議員魯比奧在法案提交參議院後發表聲明時表示：“重新命名中國大使館外的街道，確保李醫生永遠不會被遺忘，將有力地提醒中國共產黨，美國將與被壓迫者站在一起，而不是與壓迫者站在一起。”
+[Russian\_0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120044/Russian_0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120044/Russian_0507_CCP_Virus_Updates-1.pdf)
 
-此外，參議員布萊克本在周四的一份聲明中也表示： “即使李醫生本身感染了中共冠狀病毒，他還是繼續努力交流他對該病毒的了解和經驗。李醫生是一個英雄。”
-
-[原文鏈接](https://www.foxnews.com/politics/gop-lawmakers-propose-rename-chinese-embassy-street-honor-wuhan-whistleblower-doctor)
-
-翻譯報導：Sharon（文瘋）
+[Spanish0507\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120052/Spanish0507_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09120052/Spanish0507_CCP_Virus_Updates-1.pdf)
 
 0
