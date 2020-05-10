@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年5月8日CCP冠狀病毒大流行第105集
-`2020-05-09 04:52 GM33` [轉載自GNews](https://gnews.org/zh-hant/198191/)
+## 川普：明年我們將取得令人難以置信的成就
+`2020-05-09 07:09 Freela` [轉載自GNews](https://gnews.org/zh-hant/198357/)
 
-CCP需要在短時間內將核彈頭數量擴大到千枚；江西24名學生出現疑似發熱癥狀；內部文件顯示中共隱瞞疫情
+在五月八日的白宮，川普總統強調說，有關重啟經濟的問題，明年我們將取得令人難以置信的成就。在安全的指導方針下，包括所有與保持社會安全距離、洗手以及我們應該做的所有事情得到保證的前提下，我們的經濟會變得非常非常強大。
 
-[https://gtv.org//?videoid=5eb661bc79cccb4c587799ed](https://gtv.org//?videoid=5eb661bc79cccb4c587799ed)
+**出處：**
+
+[President Trump on reopening the economy](https://www.youtube.com/watch?v=Ah7Lwp3n2I4&amp;feature=youtu.be)
+
+*翻譯：【Freela】校對：【Winston Jackson】字幕：【Freela】*
 
 0
