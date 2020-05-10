@@ -12,6 +12,8 @@
 
 ## 頁面 5/26 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [26](/content/README-26.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月24日文贵在凤凰城报平安-中共大肆杀狗真相竟是因为迷信](/content/2019/12/20191228-7349804487258741094.md)
+
 [文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/content/2019/12/20191228-6154119938253081684.md)
 
 [文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/content/2019/12/20191224-7733122154135213265.md)
@@ -59,8 +61,6 @@
 [文字版：2019年11月27日郭文贵先生直播: 区选战只是开始！关注理工大学后续发展！](/content/2019/11/20191129-9084303791170558370.md)
 
 [文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
-
-[文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
 
 
 ## 頁面 5/26 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [26](/content/README-26.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
