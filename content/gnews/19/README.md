@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】05/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-09 11:18 GM10` [轉載自GNews](https://gnews.org/zh-hant/198532/)
+## 5月9日中共病毒疫情要聞快報
+`2020-05-09 21:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/198843/)
 
-戰友之家圖文摘要組及小語種組
+中共病毒逼近白宮！伊萬卡私人助理中招；美國十一月之前要破防火牆？胡錫進叫囂增加核彈被笑話；WHO稱中共病毒與海鮮市場有關想轉移視線？武漢多小區發現確診患者！
 
-[English\_0505\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111535/English_0505_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111535/English_0505_CCP_Virus_Updates-1.pdf)
 
-[French\_0505\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111559/French_0505_CCP_Virus_Updates_-1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111559/French_0505_CCP_Virus_Updates_-1-1.pdf)
 
-[German\_0505\_CCP\_Virus\_Updates\_-1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111628/German_0505_CCP_Virus_Updates_-1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111628/German_0505_CCP_Virus_Updates_-1-1.pdf)
-
-[Japanese\_0505\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111648/Japanese_0505_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111648/Japanese_0505_CCP_Virus_Updates-1.pdf)
-
-[Russian\_0505\_CCP\_Virus\_Updates\_1-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111710/Russian_0505_CCP_Virus_Updates_1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/09111710/Russian_0505_CCP_Virus_Updates_1-1.pdf)
+製作：【上天造 滅疫組】
 
 0
