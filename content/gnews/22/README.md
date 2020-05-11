@@ -1,22 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共已驅逐19名外籍記者 肆無忌憚讓大陸成為只有謊言的孤島
-`2020-05-10 11:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199445/)
+## 5月10日 美國政要推文選譯
+`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10112847/%E4%B8%AD%E5%85%B1%E5%B7%B2%E9%A9%B1%E9%80%9019%E5%90%8D%E5%A4%96%E7%B1%8D%E8%AE%B0%E8%80%85.jpg)
-據澳大利亞廣播公司（ABC）5月9日報道：中共目前通過不更新簽證的手段驅逐了19名外籍記者。
-儲白亮記者在黨國的採訪遭遇
-在紐約時報工作的澳大利亞籍記者儲百亮（Chirs Buckley)也是其中之一。儲百亮已經做中國相關報道24年了。報道講述儲百亮的經歷：他在中國的最後一天接受ABC的採訪時，至少有四個人跟蹤並拍攝了他。採訪地點在北京中部紐約時報辦公室的附近。當記者試圖與其中一人對話時，他躲到了一家咖啡店內。
-儲百亮冒着自己被感染的風險在武漢封城的第一天就啟程去病毒的發源地。儲百亮說，“當時的武漢是一個讓人非常沮喪，你看着隨着封鎖的開始事情戲劇化的發展。當這座城市開始克服中共病毒時，新聞報道卻被阻止了。”由於封城，儲百亮只能騎共享單車在空城中採訪。有一天他騎了24公里。
-驅逐記者的“強勢黨國”
-有人告訴儲百亮，等風頭過了他還是可以重新申請簽證。2012年，儲百亮曾被要求離開中國然後在香港待了三年。然而，他覺得這次中國的變化太大了，恐怕回來並不會那麼容易。儲百亮說：“在中國報道變得越來越困難。它被更嚴厲的控制、集中與專制。這種趨勢可能會保持很長時間。中國政府認為自己越來越強大，越來越自信。他已經不太可能因為外界的信息或壓力讓記者重返中國。”
-一名被驅逐的華爾街日報記者溫友正(Philip Wen)則是被官方正式驅逐。溫友正的驅逐是由於他寫了《中國是真正的“亞洲病夫”》的評論專欄文章。他被要求五天之內離開中國。除了驅逐外籍記者，中國外交部也迫使一些為美國媒體工作的中國員工辭職。
-黨發言人媒體人對儲百亮百般狡辯
-儲百亮被當作（新聞業的）黃金標桿，在業內廣受好評。去年十一月他曾報道了泄露的新疆文件。當華春瑩被問到儲百亮的簽證被拒問題時，她回答：“中方一向依法依規處理外國媒體及記者有關問題…儲百亮作為《紐約時報》駐京記者的申請不符合中方規定。不存在儲百亮簽證延期被拒，更不存在儲百亮被迫離開中國的問題…我注意到一些媒體最近的報道。可以看出，有些媒體還是帶着有色眼鏡看中國，用他們固有的思維邏輯報道。我希望他們能與時俱進，客觀公正地認識和報道中國。”
-黨媒環球時報總編胡錫進被問到儲百亮的離開時，他表示：“作為從業人員，我對於他不能在中國工作感到遺憾。但是我相信這不只是中國的問題。希望中美雙方能夠更加相互尊重，共同為彼此的記者創造更好的工作條件。”
+> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
+> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://www.abc.net.au/news/2020-05-09/china-kicks-out-foreign-journalists-during-coronavirus-crisis/12227782)
-翻譯報道：Sonya
+川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
 
-1
+> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
+> 
+> He's a student journalist, reporting on a singing protest in a shopping mall.
+> 
+> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
+> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
+
+> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：是的！反共就是支持中國
+
+Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
+
+亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
+
+> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
+> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
+
+> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
+
+Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
+0
