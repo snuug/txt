@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德情報機構證實: 中共隱瞞人傳人真相 強迫世衛撒謊 導致錯過控制疫情最佳期
-`2020-05-11 07:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199999/)
+## 【世界多語言圖文】08/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-11 08:14 GM10` [轉載自GNews](https://gnews.org/zh-hant/200057/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11071757/Picture-1-121.png)
-《國家脈動》是一家位於華盛頓的新型媒體。它近期就德國聯邦情報局的一份報導發表評論員文章說，中共強迫世界衛生組織對全世界撒謊，以至世界各國不能及時獲悉新型冠狀病毒人傳人的事實。這直接導致了全世界在對抗病毒的戰鬥中失去了最為重要的四到六週的時間。
+戰友之家圖文摘要組及小語種組
 
-德國聯邦情報局發布的這份報告證實了特朗普政府關於中共政府有意隱瞞關鍵信息的指控。報告顯示中國領導人在1月21日要求世衛組織負責人譚賽德隱瞞中共冠狀病毒人際傳播的信息，並讓其推遲發布大流行警告。從而世界各國對這個最危險的病毒的應對能力被大大降低了。
+[English\_0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)
 
-在世衛組織協助中共掩蓋病毒人傳人真相的一個星期後，譚賽德竟然還在世衛組織的聲明中稱讚了中共的“透明度”。他說“我們讚賞中共對這次疫情的重視程度，特別是高層領導給出的承諾，以及他們表現出的透明性。中共政府與世界共享了病毒的數據和基因序列。世衛組織正在與中共密切合作，採取措施來了解該病毒並限制其傳播。世衛組織將繼續與中國和所有其他國家並肩工作，以保護人民健康和確保人民安全。”
+[French0508\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)
 
-諷刺的是，譚賽德在掩蓋傳染病暴發方面經驗豐富。 《紐約時報》在2017披露他在擔任埃塞俄比亞衛生部長的時候掩蓋了當時發生的三起霍亂流行病。他的掩蓋疫情的能力是從師於中共 – 在2003年的頭幾個月來中共一直否認其南部城市爆發了致命的呼吸道疾病。該病毒最終被命名為SARS – 嚴重的急性呼吸系統綜合症，並傳播到包括加拿大在內的其他幾個國家。
+[German\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-世界許多大型機構媒體對德國情報局的這項調查都進行了報導，然而他們都一致故意選擇忽略上述具有重大意義的發現，而選擇放大報導情報中唯一與美國情報相抵觸的部分，即冠狀病毒是否起源於武漢實驗室。
+[Japanese0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)
 
-評:
+[Russian\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-德國情報部門選擇公佈世衛組織與中共勾兌的真相，用行動與川普總統站在一起。文貴先生最近一直說歐洲、澳大利亞、新西蘭會有行動。縱然西方沉默的力量還在操控大型的機構媒體，全球滅共卻已經是不可逆轉的趨勢。最近從武漢病毒實驗室逃出來的科學家已經是以共滅共的核武器。文貴先生一直呼籲中共黨內的有識之士站出來，加快以共滅共的步伐。只有從根本上滅掉中共毒瘤之後，中共病毒才能真正在地球上得到控制。
-
-[原文鏈接](https://thenationalpulse.com/coronavirus/who-hid-transmission/)
-
-翻譯報導：匿名
+[Spanish0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)
 
 0

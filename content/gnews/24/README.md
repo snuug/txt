@@ -1,46 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日 美國政要推文選譯
-`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
+## 川普重拳出擊：阻止聯邦退休基金投資 涉及中共軍方公司
+`2020-05-10 22:54 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199731/)
 
-> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
-> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10224238/Picture-1-116.png)
+據《Star and Strict》最新報導，川普總統緊鑼密鼓地與中共攤牌，激烈對決正在擴大到一個新的戰場：590萬聯邦僱員和美國軍人的退休基金投資組合。
 
-川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
+白宮官員已採取行動，控制了一個鮮為人知的董事會，該委員會負責為現役和退休的聯邦僱員和軍人管理5570億美元的聯邦退休基金，一些助手急切地希望阻止數十億美元的投資流入到一個指數基金。參與討論的兩位白宮官員和一名川普外部顧問表示，該指數基金包括一些中共國的公司。
 
-> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
-> 
-> He's a student journalist, reporting on a singing protest in a shopping mall.
-> 
-> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
-> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
+據知情人士透露，白宮正在以新的提名人採取步驟，阻止該投資計劃中的400億美元國際基金投資於一支中國股票占份額約11％的基金.這是世界上規模最大的定額供款基金，正當董事會準備將資產轉移到新基金之際，被緊急叫停，政府限制退休基金投資中共國。董事會已表示，他們正在遵循一項負責任的投資策略，該策略由外部顧問兩次建議，它將使基金會員從中共國不斷增長的經濟中獲得潛在收益。
 
-斯伯丁將軍 轉推：
+報導指出，2017年董事會聘請了外部顧問Aon Hewitt，該顧問建議將其投資轉移到包括新興市場公司股票的基金中。想法是使投資組合多樣化，並允許基金參與者獲得更高的回報。該委員會的成員都是經驗豐富的養老金計劃投資者，該委員會於當年10月投票決定擴大其國際基金的業務範圍，以更廣泛地代表國際股票市場。此後一直在進行轉換準備，預計將在未來幾個月內生效。但是，聯邦僱員工會表示，策略的逆轉限制其它401(K)型計劃中廣泛使用的投資組合會使數百萬僱員的退休儲蓄的收益受到傷害。
 
-2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
+“投資參與者想得到的是通過信託責任測試的投資選擇，無關政治。對國際股票基金的投資是自願的，投資者可以把錢投入其中，不一定要投入到其它一系列選擇中。”美國政府僱員聯合會（最大的聯邦僱員工會）政策主管杰奎琳·西蒙（Jacqueline Simon）說。
 
-> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
+在總統羅納德·裡根（Ronald Reagan）擔任國家安全委員會委員的羅傑·羅賓遜（Roger Robinson）表示，他去年夏天開始與白宮高級官員會面，提醒他們，節儉儲蓄計劃的新投資戰略相當於通過補貼參與其中的中共國公司而損害了美國安全。有些中共國公司涉及武器製造和從事其它對傷害美國利益的行為。羅賓遜現任布拉格安全研究所主席，致力於研究後共產主義國家的民主制，他說：“節儉儲蓄投資計劃問題是更廣泛問題的縮影，反映了我們在資本市場上受到美國製裁的中共國公司和其它公司的不良行為，以及北京不遵守聯邦證券法的情況。”
 
-斯伯丁將軍：是的！反共就是支持中國
+另一位政府官員說，貿易顧問彼得·納瓦羅（Peter Navarro）正在起草一項備用的行政命令，以阻止該計劃投資任何中共國基金。白宮法律顧問辦公室正在審查該命令，由於退休計劃由獨立委員會管理，因此該命令可能面臨法律障礙。白宮正在製定一項後備計劃以應付如果參議院不能迅速確認董事會提名人選的情形.
 
-Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
+川普上周宣布，他將限制在國內電網中使用與“外國對手”（指中國）的鏈接的電氣設備。在被問及他是否打算對中國征收關稅以作為懲罰或由於貿易違規，他說：“我現在不想談論這件事。我們正在處理一些非常大的事情。”
 
-亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
+[原文鏈接](https://www.stripes.com/news/us/trump-eyes-federal-retirement-plan-in-china-showdown-1.629079)
 
-> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
-> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
+翻譯報導：匿名
 
-斯伯丁將軍 轉推：
-
-Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
-
-> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
-
-Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
 0

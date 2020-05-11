@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】08/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-11 08:14 GM10` [轉載自GNews](https://gnews.org/zh-hant/200057/)
+## 【世界多語言圖文】09/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-11 08:23 GM10` [轉載自GNews](https://gnews.org/zh-hant/200080/)
 
 戰友之家圖文摘要組及小語種組
 
-[English\_0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)
+[English\_0509\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082032/English_0509_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082032/English_0509_CCP_Virus_Updates.pdf)
 
-[French0508\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)
+[French\_0509\_CCP\_Virus\_Updates\_-\_Copie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082047/French_0509_CCP_Virus_Updates_-_Copie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082047/French_0509_CCP_Virus_Updates_-_Copie.pdf)
 
-[German\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
+[German\_0509\_CCP\_Virus\_Updates\_-\_Kopie](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082103/German_0509_CCP_Virus_Updates_-_Kopie.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082103/German_0509_CCP_Virus_Updates_-_Kopie.pdf)
 
-[Japanese0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)
+[Japanese\_0509\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082119/Japanese_0509_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082119/Japanese_0509_CCP_Virus_Updates.pdf)
 
-[Russian\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
+[Korean\_0509\_CCPVirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082136/Korean_0509_CCPVirus.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082136/Korean_0509_CCPVirus.pdf)
 
-[Spanish0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)
+[Russian\_0509\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082149/Russian_0509_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082149/Russian_0509_CCP_Virus_Updates.pdf)
+
+[Spanish0509\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082206/Spanish0509_CCP_Virus_Updates.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11082206/Spanish0509_CCP_Virus_Updates.pdf)
 
 0
