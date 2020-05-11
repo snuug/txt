@@ -1,46 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日 美國政要推文選譯
-`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
+## 美國民調：超過七成民眾認為中共應為病毒死難者負責
+`2020-05-10 23:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199760/)
 
-> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
-> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10230239/Picture-1-118.png)
+美國《早間諮詢》(Morning Consult) 雜誌的最新追踪民調發現，73%的美國人認為中共國應當為美國的病毒死難者負責 (“負部分責任”或“負全責”)。這項民調的樣本是來自美國全國各地的2,200個成年人。
 
-川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
+在12個作為備選答案的群體或組織中，中共被共和黨選民選為第一罪魁禍首，而在民主黨選民的回答中排第四。
 
-> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
-> 
-> He's a student journalist, reporting on a singing protest in a shopping mall.
-> 
-> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
-> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
+同時，這個民調裡的一個意向測試表明，相對於美國在中國給世界足夠的警示之後無動於衷的說法，美國人更傾向於認為中共沒有向美國披露關於疫情的足夠信息是導緻美國對於中共冠狀病毒爆發準備不足的主要原因。 26%的人選擇了前者，而超出這兩倍的人 (56%) 選擇了後者。
 
-斯伯丁將軍 轉推：
+美國保守派的多個領導人一直在督促川普總統追究中共的責任。川普終於在上個月 (四月份) 表態：他的內閣正在對中共病毒的傳播進行 “嚴謹的調查” 。一旦查清和中共的干系，一定會對其追責。
 
-2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
+川普總統說：“我們有很對方法能追究中共的責任。你可能已經了解到我們正在進行非常徹底的調查。我們對中共國（的行為）非常不滿。我們對現在這個情形非常不滿，因為這個病毒本應在起源地就被遏制。它本應被很快的遏制，而不是傳遍了整個世界。我們認為這本就不該發生。” 他最後補充到：“我們會在合適的時候把結果公佈於眾，但現在我們正致力於非常嚴謹的調查。”
 
-> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
+[原文鏈接](https://www.breitbart.com/politics/2020/05/09/73-percent-of-u-s-adults-say-china-bears-responsibility-for-american-coronavirus-deaths/)
 
-斯伯丁將軍：是的！反共就是支持中國
+翻譯報導：匿名
 
-Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
-
-亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
-
-> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
-> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推：
-
-Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
-
-> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
-
-Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
 0
