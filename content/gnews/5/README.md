@@ -1,81 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## ZeroHedge網站各國疫情報導內容索引
-`2020-05-11 07:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199987/)
+## 【世界多語言圖文】08/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-11 08:14 GM10` [轉載自GNews](https://gnews.org/zh-hant/200057/)
 
-- **美國副總統彭斯檢測陰性，自我隔離14天**
-- **英國好轉但保持謹慎**
-- **意大利好轉並考慮重開經濟**
-- **中共國首次承認武漢市發現(4月3日以來)第一個新感染病例**
-- **紐約疫情繼續好轉**
-- **德國，伊朗，西班牙為複蘇經濟緩慢解除封鎖**
-- **方濟各呼籲歐洲各國合作應對疫情**
-- **迫於經濟崩潰壓力阿富汗宣布結束封鎖**
-- **亞洲菲律賓仍無好轉**
-- **土耳其放寬疫情封鎖**
-- **美國抗議集會者大量感染新冠病毒**
-- **英國宣布謹慎處理重新開放，並確認”行人追踪 “**
+戰友之家圖文摘要組及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11070217/Picture-1-120.png)
-**美國副總統彭斯檢測陰性，自我隔離14天**（美東時間17:50最新消息）
+[English\_0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)
 
-在彭斯副總統的幕僚凱蒂-米勒檢測出對COVID-19呈陽性後，彭斯決定自我隔離14天，儘管他目前檢測結果並未呈陽性。最近，特朗普、彭斯和伊万卡-特朗普的幾位助手都對冠狀病毒檢測呈陽性，而彭斯更是白宮冠狀病毒專案組的負責人。白宮表示，將進行可能接觸者追踪，進一步決定還有更多人員進行自我隔離。
+[French0508\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)
 
-**英國好轉但保持謹慎和警惕**（美東時間15:30消息）
+[German\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-週日英國新冠病毒病例稍有上升，但新增死亡人數繼續減少，首相鮑里斯公開講話，宣布了他關於逐步重啟英國經濟發展的計劃。鮑里斯稱讚國民的良好表現和素質，希望即使重啟經濟後，國民能繼續保持警惕心，因為一旦疫情傳播指數重回1（目前他認為已經降到0.5~0.9之間），英國將不得不恢復所有封鎖措施。鮑里斯告訴國民，一切開放措施必須謹慎。因此，他還要進一步討論公佈一切實施措施的細節，包含通過5個”警戒級別”來跟踪衡量動態情況。
+[Japanese0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)
 
-與此同時，加利福利亞州的疫情統計比周五的數字有回落。
+[Russian\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-**意大利好轉並考慮重開經濟**（美東部時間13:00消息）
-
-意大利全國的前一日疫情統計降至3月初以來的最低值，共出現802個新病例和165個新死亡病例。意總理孔特正在準備採取下一步措施，以放鬆全國封鎖：5月18日商店重新開張；在6月1日之前，酒吧、餐館和理髮店將被允許重新開業。
-
-**4月3日以來武漢市首次一個新病例**
-
-與此同時，中國也報告了4月3號以來武漢的唯一新增病例。
-
-**紐約疫情繼續好轉**
-
-美東部時間12:40消息，紐約連續第二天出現（自3月以來）單日最少感染病例和死亡病例，並且新冠肺炎的住院人數繼續下降。但隨著紐約養老院死亡人數的爆炸性增長，Cuomo要求所有相關的工作人員必須每週完成兩次COVID-19檢測，否則養老院將被吊銷執照。
-
-**德國，伊朗，西班牙為複蘇經濟緩慢解除封鎖**
-
-全球範圍內，新增疫情病例數連續第二天下降。但德國新增病例數進一步升高，原因是德國聯邦政府幾天前開始放寬了封鎖限制要求。
-
-然而，就在聯邦政府與各州領導人一致行動後，德國的新病例數量再次加速，在聯邦政府再次放寬限制後幾天，德國的新病例數量再次加速。如統計公報指出，截止週日德國新冠疫情的傳染指數R重新升至1.1，如果這種情況繼續下去，德國政府不得不放緩甚至中止經濟重啟政策。類似情況也發生在伊朗，西班牙等國家，這些國家不久前都宣布了放鬆疫情封鎖措施，但不幸的是，很快他們就發現病例數量出現回升。
-
-**方濟各呼籲歐洲各國合作應對疫情**
-
-教宗方濟在周日的祝福中指出，各國之間的相互信任合作是二戰後歐洲穩定繁榮的基礎。因此他呼籲歐盟各國領導人應該信任合作，攜手應對冠狀病毒大流行的社會和經濟後果。
-
-**迫於經濟崩潰壓力阿富汗宣布結束封鎖**
-
-與此同時，據紐約時報報導，阿富汗多個城市週日宣布結束持續多周的封鎖隔離措施，主要的原因是經濟情況快速惡化，政府不得不暫停疫情隔離；實際上，阿富汗疫情發展並未被控制下來。
-
-**亞洲菲律賓仍無好轉**
-
-菲律賓當日報告了184個新增病例，該國感染總數達10,794例。
-
-**土耳其放寬疫情封鎖**
-
-在中東穆斯林國家中，土耳其是遭受新冠疫情打擊最嚴重的。土耳其政府目前，正在緩慢開始放寬疫情封鎖，目前實行政策中一項是開始允許65歲以上的人每週日外出4個小時，之前七個星期內這些人員都被禁止出門。
-
-**美國抗議集會者大量感染新冠病毒**
-
-據有關媒體報導，在美國至少75名參加了威斯康星州反對疫情封鎖令的抗議者在參加集會後，檢測出對COVID-19病毒呈現陽性。
-
-**英國宣布謹慎處理重新開放，並確認使用對 “行人追踪 “的手機應用**
-
-在英國，住房大臣羅伯特-詹瑞克表示，英國解除疫情封鎖的步驟必須謹慎小心，經濟將緩慢而謹慎地重啟。政府對某一區域放寬封鎖的前提是該地區疫情感染率控制在較低水平，同時實行有效的手機定位跟踪。
-
-評論：
-
-新冠疫情的影響將超出大部分分析者的預料，因為它的產生是人為導致的，這場疫情會造成很多深遠，深刻並非常廣泛的經濟和社會變更；在一段時間內，很多宣稱找到疫苗解藥的人和組織會不斷出現，很多國家地區的領導人也希望盡快從危機內擺脫出來，然而很多情況下，這是很難做到的。同時，將會更多人和證據會浮出水面揭露事情真相，也將會有越來越多的組織和人站出來，對中共政府造成的嚴重後果索賠。
-
-[原文链接](https://www.zerohedge.com/geopolitical/germany-sees-another-troubling-spike-infections-great-reopening-continues-live-updates)
-
-翻译报道：匿名
+[Spanish0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)
 
 0

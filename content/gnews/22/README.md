@@ -1,46 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月10日 美國政要推文選譯
-`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
+## 美國國務院特使就中共在疫情大流行期間發布虛假信息的工作簡報
+`2020-05-10 23:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199749/)
 
-> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
-> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10225643/Picture-1-117.png)
+美國國務院特使兼全球參與中心（GEC）協調員利婭·加布里埃爾（Lea Gabrielle）近日就中共在疫情大流行期間發佈網絡虛假信息及開展的各種大外宣活動做了電話工作簡報，並回答了媒體提出的問題。
 
-川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
+加布里埃爾談到，中共和俄羅斯最近在關於中共病毒的對外表述上越發的一致和呼應。中共和俄羅斯的代理人反复散佈關於由美國資助的前蘇聯生物實驗室的虛假信息，這只是其中一個案例。在中共病毒危機之前，美國已推測出俄羅斯和中共之間在宣傳領域上有一定程度的勾兌，但是在這次疫情中，這兩國的合作明顯加速了。中俄變得更加務實，他們都出於各自的目的引導公眾對疫情大流行的理解。因此，這兩國大外宣的一致性更加佐證了中共越來越多地學習和使用俄羅斯一貫採用的宣傳手段。
 
-> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
-> 
-> He's a student journalist, reporting on a singing protest in a shopping mall.
-> 
-> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
-> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
+無黨派智庫德國馬歇爾基金會（Marshall Fund）表示，與中國大使館，領事館和大使相關的推特賬戶自3月份香港抗議活動開始以來已增加了250％以上。僅在2019年的9月到12月，中國的外交使團就創建了40多個新帳戶，這大約是2019年4月時的總數。同時可以看到越來越多的網絡機器人用於中共大外宣活動。以推特為例，推特在8月份確認了一個控制了200,000個賬戶的網絡，有可靠證據表明它由中共政府支持和控制，並試圖散播有關香港的假象，擾亂視聽。
 
-斯伯丁將軍 轉推：
+從2020年3月開始，這些賬戶每天新增的關注者數量從以前約30個的平均水平增加到每天超過720個，增長了22倍，其中大部分增加的關注者是新創建的帳戶。關注者的突然增加和許多此類的新建賬戶都表明了這是一個機器控制的虛假網絡在為中國外交官和其大外宣內容進行造勢，特別是在中共採用俄羅斯式的虛假信息技術後引起了更大的混亂，他們試圖引導網民，病毒並非起源於中國。從3月到5月，這種趨勢越發升級了。 GEC認為這是中共一手炮製的，從西陸網推廣陰謀論到使用推特機器人賬戶，再到在中共官方媒體上發布所謂以科學為基礎的虛假描述，這些激進的大外宣運動都圍繞一個目的：試圖操控有關病毒的全球輿論導向，讓世界誤以為中共國才是疫情應對最得力的全球領導者，而不是病毒的根源。
 
-2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
+但是中共所做的很多都事與願違。許多外國政府，學者和媒體對中共的虛假信息和宣傳表示深惡痛絕，並願意和美國一起對中共提出信息透明的要求。全球都在擔憂中共操縱真相所帶來的後果，美國需要對中共越來越多地使用虛假信息和俄羅斯式的宣傳策略作出防範，不能使之成為常態。
 
-> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
+加布里埃爾對媒體強調，中共官員和機構使用民主社會中才能使用的社交媒體，是為了向中共國以外的人群施加影響，但這種單向的喇叭，讓中共國內的人群聽不到外面的世界正在發生著什麼。
 
-斯伯丁將軍：是的！反共就是支持中國
+評論：
 
-Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
+中共在輿論宣傳方面向來極其重視，虛虛實實結合在一起，迷惑性極強。九層塔式的大外宣架構，恐怕沒幾個華人可以做到火眼金睛，更不用提單純的西方民眾。中共的邏輯是謊話說一千遍就成了真話，但郭先生的爆料革命戳破了他們的謊言，讓無數人警醒，意識到他們的邪惡。今天的網絡科技是把雙刃劍，突破防火牆，佔領網絡戰場的至高點是關鍵。郭先生髮起的G-TV,G-News就是一個聚集正義之聲，唯真不破的第三方平台。所有願意講真話，聽真話的人都會匯集到這裡，不用擔心政治迫害，沒有不正當的利益趨使。這才是未來世界的希望，一個充滿正道的人間。我們的華人形像也一定會在這裡被全世界得到尊重和認可！
 
-亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
+[原文鏈接](https://www.state.gov/briefing-with-special-envoy-lea-gabrielle-global-engagement-center-update-on-prc-efforts-to-push-disinformation-and-propaganda-around-covid/)
 
-> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
-> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
+翻譯報導：人間四月
 
-斯伯丁將軍 轉推：
-
-Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
-
-> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
-> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
-
-Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
 0

@@ -1,27 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 八角棒槌：由香港年輕人的話題展開
-`2020-05-10 21:12 GM09` [轉載自GNews](https://gnews.org/zh-hant/199662/)
+## 5月10日 美國政要推文選譯
+`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
 
-北京時間5月10日22:14分，就在我開始動筆時，黑警仍在香港瘋狂地抓人。從鐘樓到碼頭，又從商場到胡同，自下午一點多到現在，黑警病情發作已長達八九個小時，且絲毫看不出有任何緩解的跡象。我在母親節寫這篇東西，並不指望黑警們第二天能收到來自我對其老母的問候，因為我深信佢地既老母（中共）一定收得到，所以不能指望。
+> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
+> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
 
-為了盡快擺平香港，中共把5月10日定為最後期限。因此，昨晚我就做好了準備——翻出久已未用的TG和github的分屏，以便全程盯住現場。透過這兩隻眼睛，我見證過銘刻港人不屈的6.9、6.12、6.16……還有7.21、8.11、8.31……我不是香港人，可那些劇烈的傷痛，整個後半輩子過完，恐怕我都無法平復。寫中大保衛戰、理工大危機時，盯著現場實時發回的多屏畫面，憤怒揪心亢奮的情緒擰成一團，茶飯不思，可樂瓶裡的煙頭插得像刺猬……如今回想起來，往日彷如昨天。
+川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
 
-在這之後，循著中共病毒的踪跡，我的視線從香港到武漢，到全國，再到全世界。繞了一大圈後，得知黔驢技窮的中共要在香港上演最後的瘋狂，視線又回到了原點。
+> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
+> 
+> He's a student journalist, reporting on a singing protest in a shopping mall.
+> 
+> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
+> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
 
-今天路德節目中提到香港時，說這次九龍的大遊行，現場媒體反饋回的信息很缺。讓我感同身受的是，過去盯香港的現場，只要我有需要，github總能準時給出標準的九分屏。當然，在網速許可的前提下，高清的十二、十六分屏甚至都不在話下。也就是說現場媒體起碼不低於九家，然而，今天無論我怎麼改分屏數，一直到下午四點多，給過來的也只有兩個畫面。據我所見，現場的媒體其實並不少，結合路德先生所說，我推測很可能是出於中共的阻撓，到場的眾媒體不是被斷了信號，就是壓根沒信號。
+斯伯丁將軍 轉推：
 
-寫到這時，視頻裡正傳來議員鄺俊宇被抓的畫面。多名黑警闖進公園女廁，期後女廁裡傳出慘叫的聲音。一位媽媽的兩個女兒被抓，大的14歲，小的12歲。面對市民的職斥，現場一名黑警大叫：“我們犯法販毒又怎樣？你以為律政司會檢控我我們？法院敢判我們有罪？！”近來我鼻子一直不好，此時恨不得一噴嚏把黑警全噴死。對比中共的黑警，文學也好，電影也罷，一切描繪黑社會的作品都顯得浪漫；對比殘酷的現實，押井守的《人狼》裡手足和黑警的愛情幾近荒唐。
+2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
 
-在想像自己不了解的事時，人們往往就容易浪漫。此話若是衝著好意思而來，到我這便該有個終止：出於對中共黑警的認識，顯然我已徹底喪失了浪漫。如同不久前中共的《後浪》，無數青年在夢中獲得無限憧憬的同時，我的夢裡只有無限的憤怒。為此我決定乾脆不再做夢，可是做不做夢，決定權並不在我，眼睜睜看著夢與現實合二為一，我唯有忍著劇痛挺著。好在如今我已年逾不惑，也不用再為生計而拼搏。可當我掐指一算，才發現不拼搏只限三年，三年後就得靠老婆。在惑的期間，我靠著二十多年的拼搏，只換來了三年的不拼搏，雖然也很慘，可起碼有了做總結的資格：被中共洗腦的年輕人，瞎拼搏就是青春的全部。
+> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
 
-抱著本該所得的十分之一，一旦表示滿意，就不會去想十分之九去了哪裡。嚴格說，並非不會去想，而是壓根就意識不到還有十分之九。對這種持續不斷的狀態總該有個定義，我把它叫做被洗腦而付出的經濟代價，換作中共的立場，叫洗腦而獲得的經濟收益。我就曾着過此效應的魔，並一度自我感覺良好，由於這一點小小的疏忽，甚至把馬雲看成了偶像。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10205853/Screen-Shot-2020-05-11-at-9.58.38-AM.png)
-前兩天，“偶像”又上了知乎熱榜，追溯源頭仍是起於《後浪》。看來經過幾天發酵後，中共的雞湯非但沒灌暈這代年輕人，反倒被這代年輕人的清醒整得有點暈。考慮到中共素來喜歡躲在背後的尿性，馬雲出面就有了合理的解釋。在中共國，偶像個個都是花瓶，看上去很美，裡面盛滿了中共的屎尿。當然，我並不是諷刺偶像，而是想提醒後繼們，最好提前認識到中共為你精心安排的前程。馬雲的那席話，正是他那個花瓶裡屎尿的真實寫照，我不是花瓶，更不存在裝有中共的屎尿，所以才可以筆直地站著，並說出FUCK CCP的人話。
+斯伯丁將軍：是的！反共就是支持中國
 
-不過話說回來，若是時光倒回到我的著魔期，我簡直連正常人都不如。現在回想起來，我認為與其說着魔期，倒不如麻木期來得更貼切。此結論的根據在於我還清楚地記得，對當初的所得我並沒表示過滿意。因此，如果那時我看見視頻裡被扣電瓶車的姑娘，我的第一反應恐怕既不是恨中共，也不是同情，應該是觸碰到自己為活著而拼搏的痛點時，表露出對生活的認命。認完命後，才禮節性的表示同情。假如我自認為比她過得好，就會暗自慶幸命比她好，否則便會因同病相憐而悲傷。
+Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
 
-總而言之，無論何種情緒，最後都將轉瞬即逝。在冷漠的鍋爐裡，關愛和同情近似於自慰，短暫的高潮過後，據說便會癱軟如初。依然有人在寫歌，也有人在聽歌。然而，在中共一手鑄造的鍋爐中，寫歌的人很難不假正經，聽歌的人也很難不無情。基於我曾有過的親身經歷，我才不難斷定中招的人有多麼的神奇，神奇到一個個像丟了魂似的。不過想必也正因為曾有過親身經歷，才讓我對香港青年肅然起敬。老實說，每當自感出現了得瑟的苗頭，下一秒總會想起香港年輕人，然後便自我告誡：你算老幾啊？每次自問完後，看似沒啥明顯好處，可我自覺除了腦袋，起碼平常心還能保住，與我而言，這就夠了。
+亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
 
+> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
+> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
+
+> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
+
+Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
 0

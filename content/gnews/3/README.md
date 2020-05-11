@@ -1,21 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】08/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-11 08:14 GM10` [轉載自GNews](https://gnews.org/zh-hant/200057/)
+## 中共國撒謊，人民死亡
+`2020-05-11 08:51 Freela` [轉載自GNews](https://gnews.org/zh-hant/200147/)
 
-戰友之家圖文摘要組及小語種組
+在五月九日的白宮與共和黨議員會議上，川普總統回應說，有關COVID-19，它本應被消滅掉了。它應該被阻止在源頭，它來自中國。它本可以被容易且迅速地消滅。由於某種原因，他們無法做到這一點。我認為他們嘗試了，但是我猜-它脫離了他們的控制。但這是恥辱。但是，我們將重新建立國家，並且將快速建立國家。數個眾議員強調說，中共國在向我們提供資訊方面的延誤，即欺騙，使挑戰變得更加嚴峻。而且，事實上我們正在調查世界衛生組織，以及他們如何真正與中國共產黨密切合作，以及在早期掩蓋這種病毒，這一事實絕對是可恥的。一旦我們完成這個步驟，中共國就必須承擔責任。此外，我們都準備好上工了。
 
-[English\_0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)
+**出處：**[President Trump Meets with Republican Members of Congress](https://www.youtube.com/watch?v=aZiaqCejsrw)
 
-[French0508\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)
-
-[German\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
-
-[Japanese0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)
-
-[Russian\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
-
-[Spanish0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)
+*翻譯：【Freela】校對：【Winston Jackson】字幕：【Freela】*
 
 0
