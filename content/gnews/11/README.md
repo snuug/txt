@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統參加高級軍方將領和國安委成員會議（2020.05.09）
-`2020-05-10 08:03 Freela` [轉載自GNews](https://gnews.org/zh-hant/199276/)
+## 5月10日中共病毒疫情要聞快報
+`2020-05-10 09:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199346/)
 
-川普總統五月九日下午在白宮內閣室參加了由美軍高級將領和國安委成員參加的會議。此會議為閉門會議，全程無媒體在場，只在會議進行的中間，美國東部夏令時下午6:27，允許媒體進入拍照，並由川普總統對媒體進行了非常短暫的介紹，之後閉門會議繼續舉行。
+美國成立特別行動組，收集中共作惡材料；韓國夜店爆出聚集性傳播；吉林舒蘭成為疫情重災區；香港遊行黑警抓捕13歲學生記者。
 
-**出處：**[President Trump Participates in a Meeting with Senior Military Leadership and National Security Team](https://www.youtube.com/watch?v=Eqzb1J87HPI)
 
-*翻譯：【Michelle】校對：【LITTLE】字幕：【Freela】*
+
+製作：【上天造 滅疫組】
 
 0
