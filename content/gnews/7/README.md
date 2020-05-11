@@ -1,20 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韓國急報：梨泰院夜店確診中共病毒48人 濟州道在內的全國範圍擴散
-`2020-05-10 11:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199435/)
+## 5月10日 美國政要推文選譯
+`2020-05-10 22:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/199718/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10111233/%E9%9F%A9%E5%9B%BD%E6%80%A5%E6%8A%A5%E6%A2%A8%E6%B3%B0%E9%99%A2%E5%A4%9C%E5%BA%97%E7%A2%BA%E8%A8%BA%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%9248%E4%BA%BA.jpg)
-據韓國媒體最新報道：梨泰院夜店爆發聚集性感染ccp病毒案例，並且快速在全國擴散，綜合10日防疫當局和各地方自治團體公佈的結果，截至目前，梨泰院夜店相關的確診患者中，首爾28人，京畿道11人,，仁川5人,，釜山1人，忠北1人，濟州1人。 包括疑似患者的龍仁66號確診患者和同線但無交集的仁川101號確診患者在內，共有48人。
-京畿道防疫當局公佈的7名患者中，居住在南楊州的20多歲男性1名，居住在高陽市的20多歲男性和40多歲男性分別去了梨泰院夜店後被確診感染，城南市醫療院護士被確診後，他的母親和哥哥也相繼被確診，京畿道確診總數為11人。
-仁川當局表示，除了前一天在首爾被確診的富平區患者(反映在首爾市統計中)之外，還有5名梨泰院相關確診患者。 此外，居住在彌鄒忽區的30多歲男性也被確診。 加上龍仁66號確診患者和仁川101號確診患者，共有6人。
-在濟州島，一名30多歲的女性也被確診。 A某5日凌晨0點30分至上午6點在首爾龍山區梨泰院的”國王俱樂部”停留，第二天6日下午3點左右回到了濟州。
-報道中指出目前的問題是確診患者該可能會陸續增加。 二次感染人數不斷增多，梨泰院夜店的7000名訪客中，相當近70%的人無法取得聯繫。 在梨泰院夜店感染ccp病毒的京畿安養和楊平地區的確診患者的情況是，本月4日至5日訪問了同性戀者桑拿房——首爾新論峴站3號出口附近的”黑色睡眠房”，因此地區感染擴散的可能性增大。
-中央防疫對策本部副本部長權俊旭在前一天下午的例行新聞發佈會上表示:”如果各位國民中有一起或一起接觸過確診患者的移動路徑，請主動接受隔離和檢查，如果發現可疑症狀請報警。”
-譯評: 目前，韓政府已經緊急關閉夜店三千多家。梨泰院夜店的感染患者陸續出現，這其中甚至有韓國的國防軍士兵。這也是韓國時隔多天再次出現集體感染事件。在大邱的新世界教會大爆發後，韓國全國抗疫，好不容易從第二爆發國進入到了生活防疫階段，稍微放鬆警惕，現在又得全部推倒重來。就像郭文貴先生提到的，不滅掉ccp，這個病毒就不可能被完全消滅，就算這次平安渡過了，之後還是會有別的病毒。離六四隻剩二十多天了，ccp在最後的階段會使盡渾身解數瘋狂一把，儘可能拉更多的人陪葬。為了我們的家人和自己，請最好最穩妥的防護。
+> .[@CBS](https://twitter.com/CBS?ref_src=twsrc%5Etfw) and their show, [@60Minutes](https://twitter.com/60Minutes?ref_src=twsrc%5Etfw), are doing everything within their power, which is far less today than it was in the past, to defend China and the horrible Virus pandemic that was inflicted on the USA and the rest of the World. I guess they want to do business in China!
+> — Donald J. Trump (@realDonaldTrump) [May 10, 2020](https://twitter.com/realDonaldTrump/status/1259625738858303490?ref_src=twsrc%5Etfw)
 
-[原文鏈接1](http://naver.me/5sEOziCN)
-[原文鏈接2](http://naver.me/5KlaRp6C)
-翻譯報道:Mc.DA
+川普總統：CBS新聞和他們的《60分鐘》節目正傾盡其所有能力（已今非昔比） 維護中國和這場讓美國和世界遭受巨大痛苦的可怕疫情。我猜他們想跟中國做生意！
 
+> His t-shirt says 'Basketball is my girlfriend'. You can see a little baby fat on his 13 year old tummy. 
+> 
+> He's a student journalist, reporting on a singing protest in a shopping mall.
+> 
+> And he's just been arrested by Hong Kong police. [pic.twitter.com/tKfDFAn7l5](https://t.co/tKfDFAn7l5)
+> — 2cats (@2cats4) [May 10, 2020](https://twitter.com/2cats4/status/1259442100237553664?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+2cats：他的體恤衫上寫著“籃球是我女朋友”。妳能看到13歲的他肚子有點嬰兒肥。他是個學生記者，正在報道商場裏的歌聲抗議活動。而他剛剛被警察逮捕。
+
+> Yes! Anti-CCP is pro-China [https://t.co/8rB4KYTwi3](https://t.co/8rB4KYTwi3)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259449439116316672?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：是的！反共就是支持中國
+
+Perseus文光：中共意圖將對其政策的批評轉嫁到中國和中國人民的身上，我和Benedict Rogers（人權活動家）在亮藍智庫（英國自由保守主義獨立智庫）發表的品論文章中寫道，批評中共不等於反中國，相反，是支持中國。中共不等於中國或中國各族人民。
+
+亮藍智庫網：Benedict Rogers和Perseus文章：我們應該追究中國政權的責任，就因為我們支持中國
+
+> Riot police have fired pepper-balls at shoppers, bystanders & journalists during a dispersal operation in MOKO mall in Mong Kok. HK-wide there have been hundreds of stop & searches & fines issued tonight. This is how Mother's Day is celebrated in Hong Kong. Vid: STMHK/Telegram. [pic.twitter.com/unvX9Qr6Mb](https://t.co/unvX9Qr6Mb)
+> — Jack Hazlewood (@JackHHazlewood) [May 10, 2020](https://twitter.com/JackHHazlewood/status/1259421308783341570?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+Jack Hazlewood：暴警在旺角新世紀廣場的驅散行動中向購物者、路人和記者發射胡椒彈。今天晚上，整個香港都有“攔住檢查並罰款”的消息傳出。香港就是這樣慶祝母親節的。視頻：聯校新聞/Telegram
+
+> CCP and confirmation bias [https://t.co/o5nV9KBu77](https://t.co/o5nV9KBu77)
+> — General Spalding (@robert\_spalding) [May 10, 2020](https://twitter.com/robert_spalding/status/1259549847293698048?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中共和確認偏差（確認偏差，Confirmation bias）是個人選擇性地回憶、收集有利細節，忽略不利或矛盾的資訊，來支持自己已有的想法或假設的趨勢，維基百科）
+
+Zooming In（YouTube頻道）：誰是社交媒體上最張揚、最具欺騙性的影響者
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222406/WhatsApp_Image_2020-05-10_at_10.52.21.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222358/WhatsApp_Image_2020-05-10_at_02.38.29_1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10222416/HK_2-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/10223207/07_75.png)
 0
