@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国第二波疫情已爆发，病源可能来自无症状感染者
-`2020-05-11 06:59 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/199972/)
+## 【世界多語言圖文】08/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-11 08:14 GM10` [轉載自GNews](https://gnews.org/zh-hant/200057/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11065455/1-65.png)
-據路透社的報道，新一輪中共冠狀病毒疫情已開始在東北等地區爆發。
+戰友之家圖文摘要組及小語種組
 
-吉林省舒蘭市的感染風險等級被重新歸類為最高。早在5月7日，舒蘭市在一名婦女核酸檢測呈陽性後，當地將感染風險等級從低提升至中。5月9日，舒蘭市新增的11例新病例均接觸過這位患者或她的家人。吉林省政府稱，舒蘭市已採取了封鎖居民區，交通管制和關閉學校等一系列病毒防控措施。
+[English\_0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081210/English_0508_CCP_Virus_Updates-1.pdf)
 
-國家衛健委周日表示，5月9日全國新確診14例，創下自4月28日單日確診病例數的新高。這些新病例中包括病毒原發點武漢市一個多月以來的首例新增病例。
+[French0508\_CCP\_Virus\_Updates\_-\_Copie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081222/French0508_CCP_Virus_Updates_-_Copie-1.pdf)
 
-儘管上周四中共國已正式將全國範圍定為低危風險區，這14例新增確診較前一天報道的1例新增大幅增加。除了吉林的一起群體感染之外，黑龍江省哈爾濱市也新增1例確診病例。黑龍江省衛健委於周日稱，這名70歲的病人自4月9日以來已在醫院隔離，7次檢測結果均為陰性，但於5月9日轉為陽性。同日，一名於5月5日從吉林前往瀋陽的23歲青年也被檢測為陽性。
+[German\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081234/German_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-这些携带者没有表现出出发烧或咳嗽之类的临床感染可能性，而且大多是通过与密切接触者的排查而被发现出的。
+[Japanese0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081246/Japanese0508_CCP_Virus_Updates-1.pdf)
 
-周日，武漢東西湖區的感染風險等級被從低提升至中。該區新確診的89歲的男性為無癥狀患者。自1月下旬農曆新年以來，他沒有離開過他的住所。武漢市衛健委稱，該患者的妻子此前也是一位檢測結果為陽性的無癥狀感染者。該夫婦居住的小區前後共有20人確診，主要來源於先前發生的社區感染。發現新病例後，醫務人員隨即對該小區居民進行了核酸檢測，繼而又發現5例無癥狀感染者。由於無癥狀患者外表上並無病症，未來可能會出現更多因無症患者導致的群體感染。
+[Russian\_0508\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081259/Russian_0508_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-據中共國家衛健委報道，5月9日的新增無癥狀病例為20例，是5月1日以來的最高水平，而一天前為15例。
-
-[新闻链接](http://https：//www.reuters.com/article/us-health-coronavirus-china-idUSKBN22M00V)
-
-翻譯報道: Mauerfall
+[Spanish0508\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11081310/Spanish0508_CCP_Virus_Updates-1.pdf)
 
 0
