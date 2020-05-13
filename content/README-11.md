@@ -12,6 +12,10 @@
 
 ## 頁面 11/26 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [26](/content/README-26.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/2019/06/20190625-920777833882255491.md)
+
+[翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
+
 [文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/2019/06/20190623-2853766971834487830.md)
 
 [文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
@@ -57,10 +61,6 @@
 [文字版：2019年5月19日文貴船上直播](/content/2019/05/20190520-8156245383371433216.md)
 
 [文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/2019/05/20190519-4417640762564146374.md)
-
-[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
-
-[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 
 ## 頁面 11/26 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [26](/content/README-26.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

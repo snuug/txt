@@ -12,6 +12,10 @@
 
 ## 頁面 1/26 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [26](/content/README-26.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/2020/05/20200512-5842185723258318346.md)
+
+[文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
+
 [文字版:5月8日郭先生GTV直播连线战友文信](/content/2020/05/20200510-6481268913488602343.md)
 
 [文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
@@ -57,10 +61,6 @@
 [文字版：2020年4月5日郭先生与路德，Sara，木兰在GTV直播](/content/2020/04/20200410-1671828290392113200.md)
 
 [文字版：2020年4月5日郭先生和SARA直播谈香港自贸区取消](/content/2020/04/20200408-8436401289033941417.md)
-
-[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
-
-[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
 
 
 ## 頁面 1/26 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [26](/content/README-26.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
