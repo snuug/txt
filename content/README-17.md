@@ -12,6 +12,8 @@
 
 ## 頁面 17/26 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [26](/content/README-26.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[美国副总统迈克·彭斯 2018 年 10 月 4 日在哈德逊研 究所就美国政府对华政策发表的讲话 ](/content/2018/10/20181004-6010597625419921233.md)
+
 [文字版：郭文贵十月四日报平安短视频 未来一，二周每天都会有新闻](/content/2018/10/20181004-4197432532070823443.md)
 
 [文字版：9月28日文贵在会议结束后返回途中的飞机上和战友们汇报一下会议的初步概况一切都是刚刚开始！](/content/2018/09/20180929-7242138828289666043.md)
@@ -59,8 +61,6 @@
 [文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/2018/08/20180820-7217065400016406673.md)
 
 [文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/content/2018/08/20180818-8117868108357444047.md)
-
-[翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/content/2018/08/20180817-7104426966626506659.md)
 
 
 ## 頁面 17/26 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [26](/content/README-26.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
