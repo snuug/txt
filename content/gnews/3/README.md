@@ -1,122 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國CDC頒布的中共病毒致死細節
-`2020-05-11 21:38 GM09` [轉載自GNews](https://gnews.org/zh-hant/200614/)
+## 5月14日 美國政要推文選譯
+`2020-05-14 21:10 GM65` [轉載自GNews](https://gnews.org/zh-hant/203661/)
 
-翻譯：【John】校對和總結：【Michelle】
+> The Chinese communist government loves to play the victim when they get caught red-handed in lies, coverups, and bribes. China’s economic Potemkin village is being laid bare for the world to see with its closed capital account. 百年耻辱 is coming back to the CCP. [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) [https://t.co/D9XmZTqnIO](https://t.co/D9XmZTqnIO)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 14, 2020](https://twitter.com/Jkylebass/status/1260875444448038915?ref_src=twsrc%5Etfw)
 
-**確認新冠病毒（****COVID–19****）死因的指南**
+卡爾·巴斯先生 連推：當中共政府撒謊、掩蓋和賄賂被抓現行時，總喜歡打“以受害者自居”這張牌。中國的經濟“波特金村莊”被人扒了個底兒掉，連同它的“緊縮的資本賬戶”（closed capital acount指從中國向外匯款的限制，個人每年5萬美元，公司需政府批準，編者按）暴露在世人的目光之下。這些充滿敵意的中國小報已經失控。滋養腫瘤（中共）的血液（美元）被漸漸放幹，結果中國慌了。最後，中國只得變成西方讓它變成的樣子。（波特金村莊，Potemkin Village，在現代政治和經濟中，指專門用來給人虛假印象的建設和舉措。維基百科）
 
-**《生命統計報告指南》第****3****期，****2020****年****4****月**
+胡錫進：最近總有人問我：中美之間會爆發戰爭嗎？我的回答：兩國越來越不喜歡對方，各種沖突不斷上升，因此軍事沖突的風險也在上升。但同時，雙方都不希望發生戰爭。我說的對嗎？
 
-**翻譯自：**[**https://www.cdc.gov/nchs/data/nvss/vsrg/vsrg03-508.pdf**](https://www.cdc.gov/nchs/data/nvss/vsrg/vsrg03-508.pdf)
+> It’s unconscionable that US regulators don’t require the same audit standards and compliance for registered chinese securities. We should immediately require real audit compliance of all chinese securities (stocks/bonds) here in the 🇺🇸.[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@anthonygonzalez](https://twitter.com/anthonygonzalez?ref_src=twsrc%5Etfw) [https://t.co/2IGsFtyxxQ](https://t.co/2IGsFtyxxQ)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 14, 2020](https://twitter.com/Jkylebass/status/1260964249570082820?ref_src=twsrc%5Etfw)
 
-**簡介**
+卡爾·巴斯先生：美國監管機構不要求註冊後的中國證券公司使用相同的審計標準和規範的做法是不合理的。我們應該立即要求對所有在美國的中國證券公司（股票/債券）進行真實的合規審計。
 
-2019年12月，中國湖北省武漢市報道了與壹種新型冠狀病毒有關呼吸道疾病【1】。該病毒已在全球傳播， 世界衛生組織在2020年3月11日宣布新冠病毒（COVID-19）為大流行【2】。美國於2020年1月報道第壹例新冠病例【3】，於2020年2月報道首例死亡【4】，都發生在華盛頓州。從那以後， 在美國確診病例數量壹直增加， 並預計將繼續上升【5】。
+Maria Bartiromo（福克斯新聞主持人）：今天早上—川普總統告訴我他正在“查看”在紐交所和納斯達克交易的中國公司，他們不遵循美國會計準則。他已經將儲蓄基金的錢撤出了。
 
-在公共衛生緊急情況下，監測死亡率可提供在人口水平上的病毒傳播的關鍵信息， 並可指導公共衛生幹預措施的建立並評估其影響。監測與分析死亡率數據可以把關鍵信息公布給公眾和主要利益相關者。監測死亡率的壹個重要方法是通過監測死亡證書上填寫的死亡原因。在美國發生的每壹例死亡都進行了死亡證書登記，這就為繪制全國死亡率的全景提供了可能。死亡證書提供了有關死者的基本信息以及死亡原因和情況。恰當地填寫死亡證書可產生準確可靠的數據用於流行病學分析和公共衛生報告。 利用死亡證書進行公共衛生監測的壹個著名例子就是對肺炎和流感死亡的監測。準確及時的死亡證書數據是用來實時監測流感活動水平必不可少的工具（[https://www.cdc.gov/flu/weekly/index.htm](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.cdc.gov/flu/weekly/index.htm)）。
+> It’s an honor to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw), [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw), [@DanCrenshawTX](https://twitter.com/DanCrenshawTX?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), [@MarshaBlackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw), [@Lancegooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw) [@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) in a wrathful piece published in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s propaganda rag Global Times for wanting to hold China accountable for the pandemic.[https://t.co/oEewblKDu9](https://t.co/oEewblKDu9)
+> — Jim Banks (@RepJimBanks) [May 14, 2020](https://twitter.com/RepJimBanks/status/1260945946558464001?ref_src=twsrc%5Etfw)
 
-監測新冠病毒在美國的出現和指導公共衛生對策的制定也需要準確及時的死亡報告。本指南的目的是為簽發死亡證書的人，提供如何恰當地為確診或疑似新冠病毒感染導致死亡的患者填寫死因的指導。隨著新冠的臨床指導不斷發展，如有必要，本指南可能會更新。當新冠病毒被確定為死亡原因時，在死亡證書上報告此死亡原因是很重要，可以準確評估大流行的影響並適當地指導公共衛生對策。
+眾議員 Jim Banks：很榮幸與Josh Hawley參議員、Tom Cotton參議員、Dan Crenshaw眾議員、Rick Scott參議員、Marsha Blackburn參議員、Lance Gooden眾議員、Martha McSally參議員壹起，因為要求追究中國在疫情中的責任，而被其劣質大外宣《環球時報》發表的壹篇言辭激烈的文章點名。
 
-**死亡原因報告**
+《環球時報》：中國針對共和黨鷹派，美國公司，各州提起訴訟
 
-在死亡證書上報告死亡原因時，請填寫所有已知信息，例如病史、病歷、實驗室檢查、屍檢報告或其他相關信息。與許多其他診斷類似，死亡原因聲明是壹種醫學意見，但是必須基於臨床培訓和經驗，並對當前疾病狀態和本地趨勢有所了解的基礎之上的【6】。
+> NEW: A number of Senate Republicans explained how they will hold China accountable for reportedly delaying the release of critical information regarding its coronavirus outbreak, in exclusive comments to the [@DailyCaller](https://twitter.com/DailyCaller?ref_src=twsrc%5Etfw). More here: [https://t.co/DOiFnqEnYW](https://t.co/DOiFnqEnYW)
+> — Henry Rodgers (@henryrodgersdc) [May 14, 2020](https://twitter.com/henryrodgersdc/status/1261027124141588480?ref_src=twsrc%5Etfw)
 
-**第壹部分**
+參議員 Ted Cruz 轉推：
 
-死亡證書的第壹部分用於報告直接導致死亡的壹系列情況。應在行a上報告直接死亡原因，即死亡之前死者的疾病或狀況，這不壹定是死亡的根本原因（UCOD）。導致直接死亡原因的病情應當在下面的按時間和病因方面的順序報告。
+Henry Rodgers（Daily Caller新聞網站駐國會記者）：新消息：在Daily Caller獨家采訪中，多名參議院共和黨人解釋了他們將如何追究中國因延誤發布冠狀病毒疫情關鍵信息而應承擔的責任。更多內容：
 
-UCOD，即“（a）引發的疾病或傷害壹系列病態事件從而直接導致死亡；或（b）造成致命傷害的事故或暴力的情況”【7】，應在在第壹部分最後壹行報告。
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): China space warfare capabilities threaten US security; Data suggests Wuhan lab leak; Suspicious death of vaccine researcher [https://t.co/ayEnLyYm0q](https://t.co/ayEnLyYm0q)
+> — Bill Gertz (@BillGertz) [May 14, 2020](https://twitter.com/BillGertz/status/1260969407528022018?ref_src=twsrc%5Etfw)
 
-**從病發到死亡大概間隔時間**
+比爾·格茨先生：本周《華盛頓時報》“Inside the Ring”專欄：中國的太空作戰能力威脅美國安全；數據表明武漢實驗室泄漏；疫苗研究人員死亡疑雲
 
-對於第壹部分中報告的每種情況，應該報告從疾病發作到死亡的間隔時間，而不是從診斷到死亡的間隔。可以接受的近似間隔或使用壹般術語，例如小時，天，周或年。
+《華盛頓時報》：報告稱，中國正在為太空戰做準備
 
-**第二部分**
+> Pompeo denounces Chinese hacking of US vaccine research and demands Beijing halt tech-related cyber attacks [https://t.co/Rr7OxDlVKw](https://t.co/Rr7OxDlVKw)
+> — Bill Gertz (@BillGertz) [May 14, 2020](https://twitter.com/BillGertz/status/1261016962295123974?ref_src=twsrc%5Etfw)
 
-其他導致死亡的重要病情，但不是第壹部分序列的壹部分，應在死亡證書的第二部分報告。 並非所有死亡時的情況都必須報告 — 僅僅是那些實際導致死亡的病情。
+比爾·格茨先生：蓬佩奧譴責中國對美國疫苗研究發起黑客攻擊，要求北京停止技術有關的網絡攻擊（《華盛頓時報》）
 
-**確認因新冠病毒導致的死亡**
+> When planning to move our supply chain away from China, countries in the Middle East could facilitate a seamless production transition.[https://t.co/dSWey1PmnI](https://t.co/dSWey1PmnI)
+> — newtgingrich (@newtgingrich) [May 14, 2020](https://twitter.com/newtgingrich/status/1261065503700930560?ref_src=twsrc%5Etfw)
 
-如果新冠病毒在死亡中起作用，則這種情況應在死亡證書上註明。在很多情況下新冠病毒可能是UCOD，因為它可以導致各種危及生命的疾病，例如肺炎和急性呼吸道疾病窘迫綜合征（ARDS）。在這些情況下，新冠病毒應該在報告第壹部分的最後壹行填寫 ，並在上面的行中列出了它導致的病狀情況。
+眾議院前議長金裏奇：當計劃將我們的供應鏈移出中國時，中東各國可提供無縫生產過渡期。
 
-通常最好避免使用縮寫詞和首字母縮寫詞，但是新冠病毒是明確的，因此可以用在死亡證明。
+《新聞周刊》：觀點｜如何讓關鍵供應鏈與中國脫鉤
 
-在某些情況下，得新冠病毒後的存活可能因先前存在的慢性病而復雜化，​​尤其是那些導致肺活量降低，例如慢性阻塞性肺疾病（COPD）或哮喘。這些臨床病癥不導致新冠，但可能增加患呼吸道感染和死亡，因此這些情況應在第二部分而不是第壹部分中報告。
+> The Communist Party of China (CPC) must be held accountable. Yesterday, I along with my colleagues on the [@JudiciaryGOP](https://twitter.com/JudiciaryGOP?ref_src=twsrc%5Etfw) sent a letter to [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) and [@DHSgov](https://twitter.com/DHSgov?ref_src=twsrc%5Etfw) to investigate the use of Chinese-owned Da Jiang Innovations drones to spy on American citizens.
+> — Rep. Steve Chabot (@RepSteveChabot) [May 14, 2020](https://twitter.com/RepSteveChabot/status/1261008111059509254?ref_src=twsrc%5Etfw)
 
-在確定新冠病毒是否在死亡原因中起作用，請遵循疾病控制中心（CDC）臨床評估標準，並在可能的情況下，使用根據疾病預防控制中心或當地衛生部門提供的指南進行適當的實驗室檢測。有關CDC建議的更多信息涉及報告，檢測和標本收集，包括驗屍測試，可以從以下網址獲得：
+眾議院少數黨領袖Kevin McCarthy 轉推：
 
-https://www. cdc.gov/coronavirus/2019-nCoV/hcp/clinical-criteria.html 和https://www.cdc.gov/coronavirus/2019-ncov/hcp/guidance- postmortem-specimens.html。重要的是要記住：死亡證書填寫的應報告疾病可能不符合各種強制性要求；需要聯系當地衛生部門詢問針對特定轄區的法規。
+眾議員Steve Chabot：必須追究中共的責任。昨天，我和立法院共和黨同仁壹起致信美國司法部和國土安全部，要求就使用中國大疆創新無人機監控美國公民壹事進行調查。
 
-如果無法明確診斷新冠病毒，**但是疑似或可能（例如，在壹定的合理的程度內令人信服的情況下），將死亡證書上的新冠病毒報告為****“****可能****”****或****“****假定****”****是可以接受的**。在這種情況下，死亡證書填寫者應使用他們最好的臨床判斷來確定是否可能新冠病毒感染。但是，請註意盡可能進行新冠病毒的檢測。
+> If you still have any doubt of Communist China’s deliberate mishandling of COVID-19,  check out this article by [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw).
+> 
+> We must ⤵️
+> → Hold the CCP accountable
+> → Modernize the strategic national stockpile
+> → Bring pharma manufacturing back to the U.S.[https://t.co/97q0OezuAm](https://t.co/97q0OezuAm)
+> — Ron Wright (@RepRonWright) [May 14, 2020](https://twitter.com/RepRonWright/status/1261000426239021057?ref_src=twsrc%5Etfw)
 
-**常見問題**
+眾議院少數黨領袖Kevin McCarthy 轉推：
 
-死亡原因確認中的常見問題包括：
+眾議員Ron Wright：如果妳還不相信中共國在疫情方面故意誤導大眾，讀壹讀眾議院少數黨領袖的文章。我們必須：追究中共的責任；建設現代化國家戰略儲備；將制藥業帶回美國
 
-1. 將中間原因報告為UCOD（即第壹部分中使用的最低行），
+Medium網：打破中國醫藥供應壟斷。重建我們的。
 
-2. 缺乏特異性，以及
+> Now [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) threatening to sanction me personally. Badge of honor [https://t.co/qKcUVnqvly](https://t.co/qKcUVnqvly)
+> — Josh Hawley (@HawleyMO) [May 14, 2020](https://twitter.com/HawleyMO/status/1260936699749847047?ref_src=twsrc%5Etfw)
 
-3. 不合邏輯的順序。
+參議員 Josh Hawley：現在，中國威脅要制裁我個人。榮譽勛章。
 
-中間原因是那些通常具有多種可能病因，因此，UCOD必須在第壹部分的下面壹行中指定。例如，肺炎是中間的死亡原因，因為它可能是多種感染病原體或通過吸入液體或化學藥品造成的。肺炎很重要，要在死亡原因聲明中報告，但它通常不是UCOD。肺炎的原因，例如新冠病毒，需要在第壹部分最下面壹行上說明。
+《環球時報》：突發新聞：中國將制裁部分因疫情對中國濫訴的美國個人和公司。分析人員說，這不是象征性的舉動，而是懲罰性措施，將讓美國共和黨成員，如Josh Hawley等，感到痛苦。
 
-此外，報告的UCOD應該足夠具體，從而對公共衛生和研究有用。例如“病毒感染”可以是UCOD，但不是特異性的。更具體的UCOD可以是“ 新冠病毒”。
+> China, the country where the virus originated and the pandemic was allowed to spread, has refused to share information to help the world respond to the COVID-19 pandemic.
+> — Secretary Pompeo (@SecPompeo) [May 14, 2020](https://twitter.com/SecPompeo/status/1260973186532999170?ref_src=twsrc%5Etfw)
 
-第壹部分中報告的所有因果序列應存在時間和病理上的邏輯。例如，在第壹部分中報告因“慢性阻塞性肺疾病” 導致的“新冠病毒”是不合邏輯的序列，因為它不能導致感染，雖然它可能會增加對感染的敏感性或加劇感染。在這種情況下，新冠病毒將在第壹部分中報告為UCOD， COPD在第二部分報告。雖然有關導致特定死亡的序列在醫學觀點的存在合理差異，但應按邏輯順序報告死亡原因，並在從第a行的直接原因開始報告，在第壹部分中最後壹行報告UCOD。
+美國國務卿 蓬佩奧：中國，作為病毒來源和疫情擴散源，拒絕分享信息幫助全球抗擊COVID-19疫情。相反，隸屬中共國的某些參與者正試圖從美國盜取冠狀病毒相關研究。我們譴責這些企圖，並呼籲中共國停止這種惡意行為。（文章來源：美國國務院官網）
 
-**死亡方式**
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) 5G has been banned in the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw) [#Australia](https://twitter.com/hashtag/Australia?src=hash&amp;ref_src=twsrc%5Etfw) and [#NewZealand](https://twitter.com/hashtag/NewZealand?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> Now 78% of [#Canadians](https://twitter.com/hashtag/Canadians?src=hash&amp;ref_src=twsrc%5Etfw) want Huawei banned in [#Canada](https://twitter.com/hashtag/Canada?src=hash&amp;ref_src=twsrc%5Etfw) as well[#Trudeau](https://twitter.com/hashtag/Trudeau?src=hash&amp;ref_src=twsrc%5Etfw) must represent the will of his people
+> 
+> Let’s sign the petition and kick Huawei out of Canada! 🇺🇸🇯🇵🇦🇺🇳🇿🇨🇦[https://t.co/161IHxAAGL](https://t.co/161IHxAAGL)
+> — James Lee Proudfoot🎗 (@PhilosophyNook) [May 14, 2020](https://twitter.com/PhilosophyNook/status/1260771832640094208?ref_src=twsrc%5Etfw)
 
-死亡方式，有時也稱為死亡情況，也壹共在死亡證書報告。自然死亡主要是或幾乎完全是歸因於疾病或衰老【8】。如果因新冠病毒感染而死亡，死亡幾乎總是自然的。
+斯伯丁將軍 轉推：
 
-**什麽時候請驗屍官或死因裁判官**
+James Lee Proudfoot：美國、日本、澳洲和新西蘭已經禁止了中國華為5G。現在有78%的加拿大人希望加拿大人也禁止華為。杜魯多必須體現民意。我們來簽署請願書，把華為趕出加拿大！
 
-壹些司法管轄區對對於公共健康構成威脅的死亡有規定，需要請驗屍官或死因裁判官，所以填寫死亡證書者應遵從發生死亡的司法管轄區。通常，如果死亡涉及傷害，中毒或其並發癥，則案件應被轉介。應咨詢當地驗屍官或死因裁判官有關轉介要求的問題。
+change.org民意請願網站：[禁止加拿大使用華為5G電信網絡](https://www.change.org/p/prime-minister-trudeau-ban-huawei-from-canada-s-5g-telecom-networks-stop-telus-bell-and-others-from-partnerships-that-harm-our-national-security?recruiter=721102589&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_initial&amp;recruited_by_id=bc697d30-39a0-11e7-aaa0-fb120331ac9d)
 
-**結論**
+> "The Securities and Exchange Commission (SEC) must now take the moral, ethical, and legal decision to deregister and delist any Chinese company shares that fail to follow our accounting rules, disclosure requirements, and securities laws." [https://t.co/stCj3Prz5R](https://t.co/stCj3Prz5R)
+> — General Spalding (@robert\_spalding) [May 14, 2020](https://twitter.com/robert_spalding/status/1260965259042533377?ref_src=twsrc%5Etfw)
 
-準確計算因新冠病毒感染導致的死亡人數，在某種程度上取決於正確填寫死亡證書，這對於正在進行的公共衛生監測和響應至關重要。當因新冠病毒死亡時，它很可能是UCOD，所以應在死亡證書第壹部分最下面壹行進行報告。理想情況下，應對新冠病毒進行檢測，但在壹定的合理的程度內，令人信服的情況下，在死亡證書報告新冠死亡是可接受的。
+斯伯丁將軍：“證券交易委員會（SEC）現在必須做出道德、倫理和法律層面的決定，對任何不遵守我們的會計準則、披露要求和證券法的中國公司股票進行註銷和除名。”
 
-有關死亡原因報告的更多壹般指導和培訓，請參見名為“死因”的移動應用程序（Cause of Death mobile app）：https://www.cdc.gov/nchs/nvss/mobile-app.htm；改善死亡原因報告在線培訓模塊可從以下網址獲得：https://www.cdc.gov/nchs/nvss/improving\_ cause\_of\_death\_reporting.htm（可獲得免費的“繼續醫學教育”學分和“繼續護理教育”學分）。有關COVID-19爆發的最新信息，請訪問CDC網站： https://www.cdc.gov/coronavirus/2019- nCoV/index.html。
+文章：為什麽我們可能不得不將中共國股票從美國市場註銷（並除名）（作者Kevin D. Freeman）
 
-**參考文獻**
+> This is important for protecting US retirement funds. Have the Labor Secretary order retirement funds to invest in those companies that are actually audited.[https://t.co/l1tZdf89Vs](https://t.co/l1tZdf89Vs)
+> — General Spalding (@robert\_spalding) [May 14, 2020](https://twitter.com/robert_spalding/status/1261032877648687125?ref_src=twsrc%5Etfw)
 
-1. World Health Organization. Novel coronavirus—China.Geneva, Switzerland. 2020. Available from: https://www.who.int/csr/don/12-january-2020-novel-coronaviruschina/en/.
-2. World Health Organization. WHO Director-General’sopening remarks at the media briefing on COVID–19—11 March 2020. Geneva, Switzerland. 2020. Available from: https://www.who.int/dg/speeches/detail/who-directorgeneral-s-opening-remarks-at-the-media-briefing-oncovid-19—11-march-2020.
-3. Holshue ML, DeBolt C, Lindquist S, Lofy KH, Wiesman J, Bruce H, et al. First case of 2019 novel coronavirus in the United States. N Engl J Med. 382(10):929–36. 2020. Available from: https://www.nejm.org/doi/full/10.1056/NEJMoa2001191.
-4. Centers for Disease Control and Prevention. CDC, Washington state report first COVID–19 death [pressrelease]. 2020. Available from: https://www.cdc.gov/media/releases/2020/s0229-COVID-19-first-death.html.
-5. Centers for Disease Control and Prevention. CDC confirms possible instance of community spread of COVID–19 in U.S. [press release]. 2020. Available from: https://www.cdc.gov/media/releases/2020/s0226-Covid-19-spread.html.
-6. National Center for Health Statistics. Physician’s handbook on medical certification of death. Hyattsville, MD: National Center for Health Statistics. 2003.
-7. World Health Organization. International statistical classification of diseases and related health problems, 10th revision (ICD–10), Volume 2. 5th ed. Geneva, Switzerland. 2016.
-
-
-**附錄：確認新冠死亡的場景和案例**
-
-**場景****1****：壹位****77****歲的男性，有以下高血壓和慢性阻塞性肺疾病病史**
-
-壹名77歲的男性，有10年的高血壓病史，慢性阻塞性肺疾病（COPD）在當地急診部門就診時聲稱發燒4天，咳嗽，並呼吸急促加劇。他還聲稱最近接觸有流感樣癥狀的鄰居。他說他平時用的支氣管擴張劑沒有改善作用。經檢查，他發熱、缺氧，並且有中度呼吸窘迫。他的胸部X光顯示腫脹和他的動脈血氣心事嚴重呼吸性酸中毒癥狀。呼吸道標本檢測確診新冠病毒。他入院到重癥監護病房，盡管積極治療，他呼吸性酸中毒癥狀惡化並在入院第3天持續心臟驟停。
-
-**註：**在這個例子中，急性呼吸性酸中毒是死亡的直接原因，因此填在第a行。新冠病毒感染導致急性呼吸性酸中毒，所以填在下面的b行。在第壹部分中。COPD和高血壓是促成因素，但不是第壹部分的因果序列的壹部分，所以這些條件報告在第二部分。
-
-場景**1**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11213110/Screen-Shot-2020-05-12-at-10.29.31-AM.png)
-**場景****2****：壹名****34****歲女性，無明顯既往病史**
-
-壹名34歲的女性，無明顯既往病史，對她的主治醫生聲稱發燒6天、咳嗽和肌痛。她發燒，低血壓和低氧。她住進了醫院並進行了胸部CT掃描，結果發現彌漫性毛玻璃混濁，說明有病毒性肺炎。呼吸道標本被送去進行檢測和rRT-PCR確診新冠病毒。接下來的兩天她的病情惡化。出現急性呼吸窘迫綜合征（ARDS）。她被轉入重癥監護病房並開始使用呼吸機。盡管實施積極的心肺復蘇搶救，患者在醫院第4天過世。
-
-**註**：在這個例子中，直接的死亡原因是ARDS，因此填在a行中。肺炎是誘因，所以填在b行。根本死亡原因（UCOD）為新冠病毒，因此填在c行，第壹部分的最後壹行。
-
-場景**2**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11213105/Screen-Shot-2020-05-12-at-10.29.46-AM.png)
-**場景****3****：壹名****86****歲的女性未確診新冠病毒病例**
-
-壹名86歲的女性在家中去世。她的丈夫報告說她自3年前缺血性中風後無法行動。他說，在5天前，她在接觸壹個患病隨後被確診新冠的成員家庭後高燒和嚴重咳嗽。盡管有他的敦促，即使她的呼吸變得更加困難，體溫上升她還是拒絕去醫院。那天早上她沒有反應，丈夫給緊急醫療服務（EMS）打了電話。EMS到達後，患者無脈搏並呼吸暫停。她丈夫說他和他的妻子有先進前的約定，她不希望被心肺復蘇搶救。在咨詢醫療指揮部後，她被宣布死亡，並通知死因裁判官。
-
-**註**：盡管沒有做任何檢測，但死因裁判官確定為可能的UCOD原因是新冠病毒，因為患者的癥狀和有接觸受感染者的歷史。因此，在第壹部分中最下面壹行中報告了新冠病毒。她的缺血性中風被認為是促成了她的死亡，但不是直接因果關系序列的壹部分，因此填寫在第二部分。
-
-場景**3**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11213055/Screen-Shot-2020-05-12-at-10.29.58-AM.png)
+斯伯丁將軍：這對保護美國退休基金非常重要。要讓美國勞工部長命令那些退休基金投資做過真實審計的公司。（文章來源：《商業內參》市場內參版塊）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210826/07_91.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210434/513-1.jpg)
 0

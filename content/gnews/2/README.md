@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港失控防暴警箍頸攝記者Jessica致其失去知覺休克
-`2020-05-11 21:45 GM30` [轉載自GNews](https://gnews.org/zh-hant/200626/)
+## 【世界多語言圖文】13/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-14 21:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/203687/)
 
-**文：品行**
+戰友之家圖文摘要組及小語種組
 
-母親節，每個人都知道母親是最偉大的女性，當在中共魔鬼當道的香港，警察簡直就是真是被中共魔鬼附體，失去控制的對香港人的瘋狂打壓和亂捕，特別是在昨天在香港警察瘋狂抓人，普通市民兩百多位，最小的孩子他們都不放過，簡直就沒有人是行爲，很多記者他們也不放過，特別是一些女記者都成了被失控防暴警虐殺者，《蘋果日報》攝記者Jessica就經曆被瘋狂警察箍頸約20秒，防暴警松開手之際，Jessica已無法平衡身體倒地，而頭部更首先著地受傷，令她一度休克約3-4分鍾。
+[English\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)
 
-當回複知覺時，有警員要我們全部人坐下舉高雙手，叫我們不要照相攝影，那個時候我雙眼已經看不到東西，我也不知道自己部機的情況，警察就特意那樣近距離對住我個眼罩來噴。由于Jessica所用的是透氣護目鏡，胡椒劑射入眼罩內，令她雙目腫起灼痛。
+[German\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)
 
-Jessica在倒地之前，一名防暴警突然失控從後猛力向她箍頸，我清楚知道他防暴，我看到他的那個手袖，他好似想勒死我的那樣，我不明爲什麽要突然間這樣。我已經向後退。被失控防暴警箍後，Jessica開始感到失去知覺，又感到呼吸困難及作嘔，並曾呼叫救命。
+[French\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)
 
-《蘋果日報》總編輯羅偉光對有警員襲擊《蘋果》攝影記者作出嚴厲譴責，批評警察以暴力手段阻撓采訪，侵害新聞自由，促警隊管理層正視問題，待同事康複後，會投訴及追究，維護及保障采訪權利。
+[Japanese\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)
 
-香港記者協會聯同多個傳媒工會下午發表聯署聲明，斥責警方在旺角驅散人群期間，多番截查正在進行采訪工作的記者，瘋狂幹擾及襲擊新聞工作者，扼殺采訪權利，徹底違反《警察通例》中列明警方須「以互諒互讓的態度，盡量配合傳媒工作」的規定，現要求與警務處處長緊急會面，立即遏止警隊針對記者施襲的歪風，並將失控的警務人員停職調查。
+[Korean\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11210544/1-87.jpg)
+[Russian\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)
 
-另一案是發生在上個星期，消防處指上周四當日下午5時55分接獲該事件的救護召喚，9分鍾後救護車到達，救護員在警車內爲一名男子檢查，發現他當時沒有呼吸脈搏後進行急救，10分鍾後送抵醫院救治。
+[Spanish\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)
 
-警方事先張揚指事件中，警員當時以適當武力制服疑人，其實甚麽是適當武力，過去警方多次以涉及行動細節未有公開，武力與槍械的使用，指引爲人诟病。
 
-立法會議員郭家麒指事件是悲劇，疑犯被捕送院不足48小時死亡，相信會召開死因研訊。他認爲，在未調查、甚至調查結果出現前，警方便聲稱警員適當使用武力制服疑犯，令人懷疑警方未查已定論。他批評死因庭前年裁定的士司機陳輝旺非法被殺一案，警方沒有吸取教訓。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11210628/2-66.jpg)
-
-邝神（邝俊宇）非常活躍的多次組織者遭防暴膝蓋壓頭拘捕 受傷留醫。11日晚上獲警方無條件釋放。邝俊宇獲釋後表示，公道自在人心。
-
-好友報道：“昨天母親節的晚上香港通菜街，同樣有市民及記者被兩路包抄，防暴警曾向被包圍人群施放胡椒噴劑。本報3名攝影記者被包圍、當中兩人被噴中，另外多名記者亦被噴中，之後再被警員要求跪下，排隊等候警員檢查記者證及搜身，約20分鍾不准清洗，記者其後被搜身完畢才能離開。
-
-有記者獲釋後由義務急救員協助清洗，最少兩名記者需要由救護車送院治理。有一位記者被長時間的噴霧，使得雙肩膀紅腫。
-
-旺角10日爆發衝突，其間一批記者在山東街被警員包抄、施放胡椒噴霧、命令蹲下甚至禁止攝錄。香港記者協會主席楊健興11日出席記者會時表示，警察要求記者蹲下、向攝影機讀出名字及機構等方可離開是「好羞辱」，形容情況「極度惡劣」，質疑有否違反《私隱條例》。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/11210726/3-58.jpg)
-
-香港曾任法醫的港大病理學系副教授馬宣立指出，警員壓頸制服疑犯可致嚴重創傷，有機會致呼吸困難而窒息，或刺激大動脈影響心跳變慢，可致腦部血氧不足而暈眩，嚴重可致窒息死亡。
-
-但香港警察在整個反送中的，早已沒有了警察的職責，早已是在替中共賣命了，哪有職責可言。
-
-班農先生說：只有滅掉中共，世界才會有和平和繁榮！這是我們這代人命運的召喚，別無選擇。這是中國人的心聲，香港人的心聲，台灣人的心聲，香港人是不會退縮的，爲什麽香港在這次中共病毒中，瘟疫不是中共所需的那樣，是因爲香港人心裏想的天滅中共，光複香港。抛棄中共就是得救的良方。香港加油！
-
-來源：[立場新聞](https://www.thestandnews.com/politics/%E8%A2%AB%E9%98%B2%E6%9A%B4%E7%AE%8D%E9%A0%B820%E7%A7%92-%E7%95%99%E9%86%AB%E7%A5%9E%E7%B6%93%E5%A4%96%E7%A7%91-%E8%98%8B%E6%9E%9C-%E5%A5%B3%E6%94%9D%E8%A8%98-%E5%BF%85%E5%AE%9A%E8%BF%BD%E7%A9%B6%E5%88%B0%E5%BA%95/)
 
 0
