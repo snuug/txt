@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】13/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-14 21:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/203687/)
+## 有圖有真相之中共國深淵之路——維權
+`2020-05-15 02:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/203822/)
 
-戰友之家圖文摘要組及小語種組
+**作者：郭正義**
 
-[English\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)
+文中已知受害人數達1000人以上，實際受害人數比這還要多，文中有圖，有名有姓，有簽字，有手印。文章目的，揭露交通部門榨取百姓手段卑劣和無恥。政府無視百姓訴求，公安強制維穩，交通部門推诿扯皮，受害者維權視頻在騰訊視頻、優酷視頻不許發布，微信、微博多個發聲平台文章被刪掉，維權人被閉嘴。聯系當地多家媒體，提及此事均音信全無，無一家願意協助記錄采訪。中共國維權怎麽就這麽難？
 
-[German\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)
+維權，從古至今都是非死即殘的一條路，總有電視電影中片段，擊鼓鳴冤，爲了能見到皇上，需要挨棍棒，滾釘排，一路叩拜磕頭直到進入大堂見到皇上爲止，整個過程能活著的算是命大。雖說時代進步，推進了社會文明進步，如今中國維權之路仍是難上加難。
 
-[French\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)
+維權，首先我們應該符合邏輯，權利應該寫在法律裏，而法律由人民修訂和監督。問題就在這裏，在中共國，法律修訂、執行、監督，都是中共自己決定，中共國黨權淩駕于法律之上，導致人民手中權利成擺設，手中權利不複存在，更別提維權了。
 
-[Japanese\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)
+簡單說個實際例子，城郊推行城鄉一體，原養殖廠因爲涉及汙染被集體遷往更遠距離的郊區，後在政府引導下，重新建設養殖廠，因周邊樓盤開發政策變化，又說現廠址也涉及汙染，爲了保住廠子，老人家先後8年上訪，至今未果，現廠已被上報爲違建，面臨強拆。百姓前期投入20多萬元建廠費用將化爲烏有。8年上訪仍未果，圍追堵截成了他們慣用的手段，只能夜間偷偷溜走，避開他們的看管，即使到了北京，也會當地政府派人駐紮蹲守的人強制帶回。
 
-[Korean\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)
+再說第二個例子，也是文章開頭提到的交通部門肆意修改違章監控記錄設備，標志警示牌安裝不合法，導致至少1000名以上卡車司機在吉林松原位置被扣12分，12分違章意味著駕照由原來A型駕照降型爲B型駕照，也意味著，通過此路段司機被扣12司機，以後不再允許駕駛他們賴以生存的卡車。
 
-[Russian\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)
+我們一起分析一下，1個人2個人在此違章，可能是因爲這幾個人不遵守交通規則，但是幾千個人幾乎同一時間段在此違章，難道這幾千駕駛員都不懂交通規則？都看不懂道路交通指示牌？況且，這種長途挂車司機經驗豐富，都有一定的駕齡。A型駕照的駕駛員非常小心避免違章，因爲一旦被扣6後，再有一次違章，扣滿12分，可以說就丟掉生活來源。
 
-[Spanish\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)
+所以甯願花錢辦事（給交通部門托關系送錢，或者找到處理違章的花上幾千元），也不願意扣分的原因。
+
+而此次提到的幾千名卡車駕駛員均被扣12分，導致集會前往吉林省松原市前郭縣交警部門討回公道，多次前往未果，政府也沒有更好的解決，反而動用公安將組織者逮捕，集會不允許拉橫幅，不准喊口號，以違法名義關押組織者，訓誡後被閉嘴！時間發生無一家媒體正面報道，駕駛員維權受阻，只能甘願掏錢托人解決被扣分問題，每人花費5000—10000不等。初步計算。我們不討論這些錢最終被誰拿走，大家也心知肚明。我只想說這些卡車司機總共被罰500萬——2000萬的損失誰來承擔，他們是無辜的，在中國到底哪裏還有能說理的地方。
+
+在中共國維權之路真的如同啞巴吃了很多很多黃連，有苦說不出啊！
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15020451/IMG_0149.jpg)
+
+上千名卡車司機被違章路段的交通道路指示標牌（位置在吉林省松原市前郭縣）
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15020537/IMG_0150.jpg)
+
+法律規定正規的道路指示標志圖案，與實際路段的指示標牌完全就是兩種不同
+
+下面爲卡車司機簽名手印，每位司機都在上述路段都被扣12分
+
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15020621/IMG_0151.jpeg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15020643/IMG_0160.jpg)
 
 
+（文章內容僅代表作者觀點）
 
 0

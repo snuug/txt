@@ -1,30 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共謊言捂不住，從疫情“零增長”到突然“大爆發”！
-`2020-05-14 11:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/203460/)
+## 5月14日 美國政要推文選譯
+`2020-05-14 21:10 GM65` [轉載自GNews](https://gnews.org/zh-hant/203661/)
 
-**作者：滅共日記**
+> The Chinese communist government loves to play the victim when they get caught red-handed in lies, coverups, and bribes. China’s economic Potemkin village is being laid bare for the world to see with its closed capital account. 百年耻辱 is coming back to the CCP. [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) [https://t.co/D9XmZTqnIO](https://t.co/D9XmZTqnIO)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 14, 2020](https://twitter.com/Jkylebass/status/1260875444448038915?ref_src=twsrc%5Etfw)
 
-5月8日之前老百姓每天在國內媒體中看到的都是中共營造的一連串的本地清零的數據，無論本土病例還是境外輸入病例都控制的異常的好，導致老百姓對疫情的關注已經變淡或者說已經麻木了，你會發現外面的人變的多了，很多人也都提前摘下了口罩。可是從5月9日開始，中共病毒疫情來了個大反撲，本土新增病例突然之間大爆發了，吉林東北小城舒蘭突然告急，成爲了全國關注的新的傳染源。
+卡爾·巴斯先生 連推：當中共政府撒謊、掩蓋和賄賂被抓現行時，總喜歡打“以受害者自居”這張牌。中國的經濟“波特金村莊”被人扒了個底兒掉，連同它的“緊縮的資本賬戶”（closed capital acount指從中國向外匯款的限制，個人每年5萬美元，公司需政府批準，編者按）暴露在世人的目光之下。這些充滿敵意的中國小報已經失控。滋養腫瘤（中共）的血液（美元）被漸漸放幹，結果中國慌了。最後，中國只得變成西方讓它變成的樣子。（波特金村莊，Potemkin Village，在現代政治和經濟中，指專門用來給人虛假印象的建設和舉措。維基百科）
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14113412/1-107.jpg)
+胡錫進：最近總有人問我：中美之間會爆發戰爭嗎？我的回答：兩國越來越不喜歡對方，各種沖突不斷上升，因此軍事沖突的風險也在上升。但同時，雙方都不希望發生戰爭。我說的對嗎？
 
-這一輪超級傳染源的源頭到底在哪裏呢？5月7日吉林舒蘭出現的一例本土病例，結束了吉林省73天無本地新增確診病例記錄。該患者是舒蘭市公安局一名45歲的洗衣女工，隨後4天通過對密切接觸者主動篩查核酸檢測後發現，圍繞該患者，包括其丈夫、姐姐、姐夫、密切接觸者等14人確診。更可怕是該女工15天內沒有省外出活動史和返吉人員接觸史，她究竟是不是1號病人，其實我們也不得而知。那傳染源到底是什麽呢？傳染源會不會一直在吉林潛伏？舒蘭的這次疫情已經出現三傳，既人傳人傳人傳人，這種傳播方式很容易導致可怕的爆發性增長！
+> It’s unconscionable that US regulators don’t require the same audit standards and compliance for registered chinese securities. We should immediately require real audit compliance of all chinese securities (stocks/bonds) here in the 🇺🇸.[@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [@anthonygonzalez](https://twitter.com/anthonygonzalez?ref_src=twsrc%5Etfw) [https://t.co/2IGsFtyxxQ](https://t.co/2IGsFtyxxQ)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 14, 2020](https://twitter.com/Jkylebass/status/1260964249570082820?ref_src=twsrc%5Etfw)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14113451/2-84.jpg)
+卡爾·巴斯先生：美國監管機構不要求註冊後的中國證券公司使用相同的審計標準和規範的做法是不合理的。我們應該立即要求對所有在美國的中國證券公司（股票/債券）進行真實的合規審計。
 
-中共官方報道說該患者5天內沒有省外活動史和返吉人員接觸史，那她到底怎麽感染的？爲了刺激消費中共也首次試行五一小長假，再看看發現的日期正值五一小長假剛過，假期各地的人員流動也非常大，那麽舒蘭的這名患者有沒有可能是被路過舒蘭的新冠患者所傳染，這個患者可能是無症狀感染者也可能還在潛伏期未發病。雖然她沒有省外活動史，但不代表沒有省內活動史。要知道五一小長假，全國老百姓都在家裏困了那麽長時間，再加上中共一直宣傳疫情已經很好的控制了，多地零感染，老百姓怎麽可能放棄這次放飛自我的機會呢？加上景點都是人口密集的場所，很多城市的大型公園人員都爆滿，爬山的人也密密麻麻，廣場上有好多不帶口罩的老人聚衆唱歌表演，商場也辦起了漫展。有些地方的超市，商場已經放松警惕不在需要體溫檢測，就算登記也都是做做樣子！這些都是疫情二次爆發最佳的引爆點！
+Maria Bartiromo（福克斯新聞主持人）：今天早上—川普總統告訴我他正在“查看”在紐交所和納斯達克交易的中國公司，他們不遵循美國會計準則。他已經將儲蓄基金的錢撤出了。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14113758/3-78.jpg)
+> It’s an honor to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw), [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw), [@DanCrenshawTX](https://twitter.com/DanCrenshawTX?ref_src=twsrc%5Etfw), [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw), [@MarshaBlackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw), [@Lancegooden](https://twitter.com/Lancegooden?ref_src=twsrc%5Etfw) [@SenMcSallyAZ](https://twitter.com/SenMcSallyAZ?ref_src=twsrc%5Etfw) in a wrathful piece published in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s propaganda rag Global Times for wanting to hold China accountable for the pandemic.[https://t.co/oEewblKDu9](https://t.co/oEewblKDu9)
+> — Jim Banks (@RepJimBanks) [May 14, 2020](https://twitter.com/RepJimBanks/status/1260945946558464001?ref_src=twsrc%5Etfw)
 
-和當初的綏芬河一樣，這個在上半場一直本土零確診的安谧小城，在下半場突然失守，成爲疫情爆發的重災區。東北三省現在的情況已經完全呈現了幾何式感染的趨勢，從一開始的黑龍江，到吉林，到沈陽，現在連長春也開始告急，未來會不會從東三省出關，和武漢大本營的病毒進行會師呢？希望國內的同胞，千萬千萬不要放松警惕， 一切都還沒有結束，還沒有到回歸正常生活的時候，也許無症狀感染者就在你們的身邊，現在活著才是最重要的，命沒有了，就什麽都沒有了！
+眾議員 Jim Banks：很榮幸與Josh Hawley參議員、Tom Cotton參議員、Dan Crenshaw眾議員、Rick Scott參議員、Marsha Blackburn參議員、Lance Gooden眾議員、Martha McSally參議員壹起，因為要求追究中國在疫情中的責任，而被其劣質大外宣《環球時報》發表的壹篇言辭激烈的文章點名。
 
-GNEWS之前文章：
-各位國內的叔叔阿姨爺爺奶奶 [https://gnews.org/zh-hans/202427/](https://gnews.org/zh-hans/202427/)
-12年後的大頭娃娃“假奶粉”事件 [https://gnews.org/zh-hans/202372/](https://gnews.org/zh-hans/202372/)
-前有縱火焚全家 今有毛巾捂面殺 [https://gnews.org/zh-hans/201126/](https://gnews.org/zh-hans/201126/)
+《環球時報》：中國針對共和黨鷹派，美國公司，各州提起訴訟
 
-（文章內容僅代表作者觀點）
+> NEW: A number of Senate Republicans explained how they will hold China accountable for reportedly delaying the release of critical information regarding its coronavirus outbreak, in exclusive comments to the [@DailyCaller](https://twitter.com/DailyCaller?ref_src=twsrc%5Etfw). More here: [https://t.co/DOiFnqEnYW](https://t.co/DOiFnqEnYW)
+> — Henry Rodgers (@henryrodgersdc) [May 14, 2020](https://twitter.com/henryrodgersdc/status/1261027124141588480?ref_src=twsrc%5Etfw)
 
-1
+參議員 Ted Cruz 轉推：
+
+Henry Rodgers（Daily Caller新聞網站駐國會記者）：新消息：在Daily Caller獨家采訪中，多名參議院共和黨人解釋了他們將如何追究中國因延誤發布冠狀病毒疫情關鍵信息而應承擔的責任。更多內容：
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): China space warfare capabilities threaten US security; Data suggests Wuhan lab leak; Suspicious death of vaccine researcher [https://t.co/ayEnLyYm0q](https://t.co/ayEnLyYm0q)
+> — Bill Gertz (@BillGertz) [May 14, 2020](https://twitter.com/BillGertz/status/1260969407528022018?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：本周《華盛頓時報》“Inside the Ring”專欄：中國的太空作戰能力威脅美國安全；數據表明武漢實驗室泄漏；疫苗研究人員死亡疑雲
+
+《華盛頓時報》：報告稱，中國正在為太空戰做準備
+
+> Pompeo denounces Chinese hacking of US vaccine research and demands Beijing halt tech-related cyber attacks [https://t.co/Rr7OxDlVKw](https://t.co/Rr7OxDlVKw)
+> — Bill Gertz (@BillGertz) [May 14, 2020](https://twitter.com/BillGertz/status/1261016962295123974?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：蓬佩奧譴責中國對美國疫苗研究發起黑客攻擊，要求北京停止技術有關的網絡攻擊（《華盛頓時報》）
+
+> When planning to move our supply chain away from China, countries in the Middle East could facilitate a seamless production transition.[https://t.co/dSWey1PmnI](https://t.co/dSWey1PmnI)
+> — newtgingrich (@newtgingrich) [May 14, 2020](https://twitter.com/newtgingrich/status/1261065503700930560?ref_src=twsrc%5Etfw)
+
+眾議院前議長金裏奇：當計劃將我們的供應鏈移出中國時，中東各國可提供無縫生產過渡期。
+
+《新聞周刊》：觀點｜如何讓關鍵供應鏈與中國脫鉤
+
+> The Communist Party of China (CPC) must be held accountable. Yesterday, I along with my colleagues on the [@JudiciaryGOP](https://twitter.com/JudiciaryGOP?ref_src=twsrc%5Etfw) sent a letter to [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) and [@DHSgov](https://twitter.com/DHSgov?ref_src=twsrc%5Etfw) to investigate the use of Chinese-owned Da Jiang Innovations drones to spy on American citizens.
+> — Rep. Steve Chabot (@RepSteveChabot) [May 14, 2020](https://twitter.com/RepSteveChabot/status/1261008111059509254?ref_src=twsrc%5Etfw)
+
+眾議院少數黨領袖Kevin McCarthy 轉推：
+
+眾議員Steve Chabot：必須追究中共的責任。昨天，我和立法院共和黨同仁壹起致信美國司法部和國土安全部，要求就使用中國大疆創新無人機監控美國公民壹事進行調查。
+
+> If you still have any doubt of Communist China’s deliberate mishandling of COVID-19,  check out this article by [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw).
+> 
+> We must ⤵️
+> → Hold the CCP accountable
+> → Modernize the strategic national stockpile
+> → Bring pharma manufacturing back to the U.S.[https://t.co/97q0OezuAm](https://t.co/97q0OezuAm)
+> — Ron Wright (@RepRonWright) [May 14, 2020](https://twitter.com/RepRonWright/status/1261000426239021057?ref_src=twsrc%5Etfw)
+
+眾議院少數黨領袖Kevin McCarthy 轉推：
+
+眾議員Ron Wright：如果妳還不相信中共國在疫情方面故意誤導大眾，讀壹讀眾議院少數黨領袖的文章。我們必須：追究中共的責任；建設現代化國家戰略儲備；將制藥業帶回美國
+
+Medium網：打破中國醫藥供應壟斷。重建我們的。
+
+> Now [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) threatening to sanction me personally. Badge of honor [https://t.co/qKcUVnqvly](https://t.co/qKcUVnqvly)
+> — Josh Hawley (@HawleyMO) [May 14, 2020](https://twitter.com/HawleyMO/status/1260936699749847047?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：現在，中國威脅要制裁我個人。榮譽勛章。
+
+《環球時報》：突發新聞：中國將制裁部分因疫情對中國濫訴的美國個人和公司。分析人員說，這不是象征性的舉動，而是懲罰性措施，將讓美國共和黨成員，如Josh Hawley等，感到痛苦。
+
+> China, the country where the virus originated and the pandemic was allowed to spread, has refused to share information to help the world respond to the COVID-19 pandemic.
+> — Secretary Pompeo (@SecPompeo) [May 14, 2020](https://twitter.com/SecPompeo/status/1260973186532999170?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：中國，作為病毒來源和疫情擴散源，拒絕分享信息幫助全球抗擊COVID-19疫情。相反，隸屬中共國的某些參與者正試圖從美國盜取冠狀病毒相關研究。我們譴責這些企圖，並呼籲中共國停止這種惡意行為。（文章來源：美國國務院官網）
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s [#Huawei](https://twitter.com/hashtag/Huawei?src=hash&amp;ref_src=twsrc%5Etfw) 5G has been banned in the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) [#Japan](https://twitter.com/hashtag/Japan?src=hash&amp;ref_src=twsrc%5Etfw) [#Australia](https://twitter.com/hashtag/Australia?src=hash&amp;ref_src=twsrc%5Etfw) and [#NewZealand](https://twitter.com/hashtag/NewZealand?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> Now 78% of [#Canadians](https://twitter.com/hashtag/Canadians?src=hash&amp;ref_src=twsrc%5Etfw) want Huawei banned in [#Canada](https://twitter.com/hashtag/Canada?src=hash&amp;ref_src=twsrc%5Etfw) as well[#Trudeau](https://twitter.com/hashtag/Trudeau?src=hash&amp;ref_src=twsrc%5Etfw) must represent the will of his people
+> 
+> Let’s sign the petition and kick Huawei out of Canada! 🇺🇸🇯🇵🇦🇺🇳🇿🇨🇦[https://t.co/161IHxAAGL](https://t.co/161IHxAAGL)
+> — James Lee Proudfoot🎗 (@PhilosophyNook) [May 14, 2020](https://twitter.com/PhilosophyNook/status/1260771832640094208?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推：
+
+James Lee Proudfoot：美國、日本、澳洲和新西蘭已經禁止了中國華為5G。現在有78%的加拿大人希望加拿大人也禁止華為。杜魯多必須體現民意。我們來簽署請願書，把華為趕出加拿大！
+
+change.org民意請願網站：[禁止加拿大使用華為5G電信網絡](https://www.change.org/p/prime-minister-trudeau-ban-huawei-from-canada-s-5g-telecom-networks-stop-telus-bell-and-others-from-partnerships-that-harm-our-national-security?recruiter=721102589&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=psf_combo_share_initial&amp;recruited_by_id=bc697d30-39a0-11e7-aaa0-fb120331ac9d)
+
+> "The Securities and Exchange Commission (SEC) must now take the moral, ethical, and legal decision to deregister and delist any Chinese company shares that fail to follow our accounting rules, disclosure requirements, and securities laws." [https://t.co/stCj3Prz5R](https://t.co/stCj3Prz5R)
+> — General Spalding (@robert\_spalding) [May 14, 2020](https://twitter.com/robert_spalding/status/1260965259042533377?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“證券交易委員會（SEC）現在必須做出道德、倫理和法律層面的決定，對任何不遵守我們的會計準則、披露要求和證券法的中國公司股票進行註銷和除名。”
+
+文章：為什麽我們可能不得不將中共國股票從美國市場註銷（並除名）（作者Kevin D. Freeman）
+
+> This is important for protecting US retirement funds. Have the Labor Secretary order retirement funds to invest in those companies that are actually audited.[https://t.co/l1tZdf89Vs](https://t.co/l1tZdf89Vs)
+> — General Spalding (@robert\_spalding) [May 14, 2020](https://twitter.com/robert_spalding/status/1261032877648687125?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這對保護美國退休基金非常重要。要讓美國勞工部長命令那些退休基金投資做過真實審計的公司。（文章來源：《商業內參》市場內參版塊）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210826/07_91.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210434/513-1.jpg)
+0
