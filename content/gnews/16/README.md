@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 兩位美國教授因隱瞞參與中共「千人計劃」而被逮捕
-`2020-05-14 08:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/203212/)
+## 【世界多語言圖文】12/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-14 08:48 GM77` [轉載自GNews](https://gnews.org/zh-hant/203330/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14080343/1-88.png)
-據NTD報道，美國FBI發現多起中共滲透美國大學校園的案例。最近，美國兩位教授因為掩蓋其參與中共「千人計劃」而面臨法律的制裁。美國司法部形容中共「千人計劃」為「鼓勵偷竊知識產權」。
+**戰友之家圖文摘要組及小語種組**
 
-來自阿肯色大學的另一個教授洪思鐘被捕。司法部說，如果罪名成立，他將面臨最高20年的監禁。洪思鍾同中共過從甚密，在從NASA獲得巨額補助後仍未如實彙報他同中共的關係。據法庭文件顯示，他曾寫信要求另一個研究員對於他同中共的關係保密。他在2019年6月份的信中寫道「這裡很多人不知道我是『千人計劃』的一員，如果這事暴露了，我的工作會遇到很大的麻煩。」
+[English\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084700/English_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084700/English_0512_CCP_Virus_Updates.pdf)
 
-同一天，供職於亞特蘭大喬治亞埃默里大學的的李曉江教授被判1年緩刑，勒令返還3.5萬美金退稅。司法部說，李曉江從中共至少獲得了50萬美金的收入，但是從未申報。5月8日，李曉江承認虛假報稅。
+[French\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084706/French_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084706/French_0512_CCP_Virus_Updates.pdf)
 
-為什麼這些教授都試圖掩蓋他們參與中共 「千人計劃」呢？來自卡羅琳娜大學的Frank 田頡教授說，他不理解他們為什麼要掩蓋這些信息：「如果這件事完全合法，他們應該公開並且讓他們的上級知道。這是一件引以為豪的事，他們可以把這個寫在簡歷上炫耀。這是他們學術上取得的成就。
+[German\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084710/German_0512_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084710/German_0512_CCP_Virus_Updates_-.pdf)
 
-們一定是簽了什麼秘密協議，不讓他們向供職的研究機構彙報。」Frank 認為，「千人計劃」很可能是中共竊取美國機密信息的一個項目。他說，因為他來自中國，也曾遭遇類似的事，中共曾強迫他將美國的技術帶回中國。「我是普渡大學的化學博士。中共領事館過來鼓勵我們將技術帶回中國。他們甚至公開要求我們獲取技術信息並將它們帶回中國。所以，我們認為，對所有在美國的華人研究人員都應認真排查。」
+[Japnese\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084713/Japnese_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084713/Japnese_0512_CCP_Virus_Updates.pdf)
 
-土安全部的助理檢察長約翰.德墨斯（John Demers）說「司法部對於中共招募美國教授和研究人員的『千人計劃』十分警惕。」。
+[Korean\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084725/Korean_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084725/Korean_0512_CCP_Virus_Updates.pdf)
 
-[原文鏈接](https://www.ntd.com/2-us-professors-arrested-after-hiding-connection-to-ccp_465208.html)
+[Russian\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084722/Russian_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084722/Russian_0512_CCP_Virus_Updates.pdf)
 
-翻譯報道：喜馬拉雅
+[Spanish\_0512\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084728/Spanish_0512_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084728/Spanish_0512_CCP_Virus_Updates.pdf)
+
+
 
 0

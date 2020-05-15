@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】10/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-14 08:29 GM10` [轉載自GNews](https://gnews.org/zh-hant/203243/)
+## 山東低風險地區學校不再實行校園全封閉！千萬不要讓孩子複學！
+`2020-05-14 10:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/203385/)
 
-**戰友之家圖文摘要組及小語種組**
+**作者：James Lee**
 
-[English\_0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082814/English_0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082814/English_0510_CCP_Virus_Updates-1.pdf)
+兩個星期前寫過一篇文章，揭露了國內大學的學生返校預案中防護措施不足和盡可能減少責任的秘密。今天看到一篇報道，5月12日，山東省衛生健康委員會、山東省教育廳發布相關通知，其中提到低風險地區學校不再實行校園全封閉、小班化教學、四人一間宿舍住宿等管理模式，校園內學生不需要佩戴口罩。
 
-[French\_0510\_CCP\_Virus\_Updates\_2-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082823/French_0510_CCP_Virus_Updates_2-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082823/French_0510_CCP_Virus_Updates_2-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082931/798.jpg)
 
-[German\_0510\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082834/German_0510_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082834/German_0510_CCP_Virus_Updates_-_Kopie-1.pdf)
+從最近幾天的國內外新聞中可以看到武漢地區又出現了新的冠狀病毒感染病例，據說要進行大面積核酸檢測，當地街道辦領導也因爲多人感染被撤職。5月8日，吉林省衛建委通報了1例本土確診病例，5月9日，吉林省新增本地確診病例11例，吉林小城舒蘭成爲全國唯一一個疫情高風險地區並且封城。跟隨爆料革命，我們知道中國的疫情一直沒有結束，但是很早就已經實現了零增長，這種虛報瞞報與中共的問責制度有絕對的聯系，如果某地出現大量新增病例的事實出現在了新聞報道中，那麽意味著當地官員的烏紗帽已經保不住了，這也體現了中共魔鬼的一面，它激發出人性中惡的一面，當地政府官員爲了不被問責只能減少上報病例甚至不報，這也造成了舒蘭市1例確診就封城的奇葩現象。
 
-[Japanese0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082847/Japanese0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082847/Japanese0510_CCP_Virus_Updates-1.pdf)
+國內將不同地區劃分爲具有“高、中、低”三種不同風險等級是完全沒有依據和可信度的，因爲我們完全不知道一座城市是否會在第二天從低風險直接變爲高風險。在這種情況下，國內的中小學從一個多月前就已經陸續開學，並且出現了大量學生發高燒的案例，最終都以官方媒體出來辟謠沒有感染新冠病毒而收場。然而現在教育部門不僅要求學校開學，而且要放松安全防護措施甚至不讓學生戴口罩，這樣無疑大大增加了病毒傳染的風險。
 
-[Korean0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082857/Korean0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082857/Korean0510_CCP_Virus_Updates-1.pdf)
+最令我傷心的是家長們對于開學的反應。經過3個月的時間，孩子在家長們心目中的形象已經從“小皇帝”、“小公主”轉換爲“神獸”，從留言中我們看到一些家長都迫切的希望學校趕緊開學，一方面某些家長爲了生計需要上班沒有時間照顧孩子，看孩子已經成爲了他們的家庭負擔，另一方面他們擔心孩子在家無法高效的學習而影響了升學。我認爲中國的老百姓都聽信了中共的宣傳，減小了對病毒的恐懼，如果他們知道病毒可能伴隨孩子的一生甚至威脅生命，我相信他們不會輕易讓自己的孩子冒險複學。我們也要深度思考中國的家長和孩子之間的親子關系中存在的問題，大部分家長平時忙于工作，很少有大量時間陪孩子，因此疫情讓他們在一起的時間變長，也更容易産生矛盾。
 
-[Russian\_0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082908/Russian_0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082908/Russian_0510_CCP_Virus_Updates-1.pdf)
+現在大部分地區的中小學只開放了畢業年級的學生複學，恰巧說明了疫情沒有結束，因此我們的家長應該繼續讓孩子待在家裏，增加一些時間和耐心陪伴他們，給他們更多愛的呵護，而不是找理由讓孩子複學。人世間是沒有賣後悔藥的，不要因爲自己的工作和利益而拿孩子的生命做賭注，那樣會有很大的可能釀成具大的悲劇。
 
-[Spanish0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082917/Spanish0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082917/Spanish0510_CCP_Virus_Updates-1.pdf)
+（本文僅代表個人觀點）
 
 0

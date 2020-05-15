@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國際共產主義運動追蹤——國際共產主義青年團篇
-`2020-05-14 08:06 Diago` [轉載自GNews](https://gnews.org/zh-hant/203211/)
+## 【世界多語言圖文】11/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-14 08:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/203305/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14080237/v2-b0390e09456ce3cf3a85dc5f1d65027f_1200x500_%E5%89%AF%E6%9C%AC2.jpg)
-作者：Diago
+**戰友之家圖文摘要組及小語種組**
 
-據[36個共青團在俄舉行十月社會主義革命100周年紀念活動的聲明](https://zhuanlan.zhihu.com/p/30918626)，這些共青團發表的聲明節選是：
+[English\_0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084326/English_0511_CCP_Virus_Updates_-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084326/English_0511_CCP_Virus_Updates_-1.pdf)
 
-【我們紀念十月社會主義革命的100周年。我們向20世紀這一重大的世界歷史性事件致敬。它證明了資本主義不是永恆的和不可戰勝的，證明了人民可以用鬥爭推翻資本主義和建設更高級的社會——社會主義。】、【我們紀念這一事件。它證明了資本主義世界的年輕人所面臨的重大問題可以通過工人階級奪取政權來解決，可以用推翻資本主義的革命來解決，這些問題包括：帝國主義戰爭、佔領、難民潮、被迫移民、資本主義危機、剝削、失業、被破壞的工作權、對婦女的歧視以及教育、文化和體育的問題。過去，在建設了社會主義的國家，青年取得了重要的成就，他們可以享受到各種層次的教育、有保證的和穩定的工作、體育和文化活動。直到今天，這些仍被我們這些國家的青年視作遙遠的夢想。】【讓我們在這條道路上繼續前進，直到社會主義-共產主義的最終偉大勝利。】
+[French0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084400/French0511_CCP_Virus_Updates-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084400/French0511_CCP_Virus_Updates-1.pdf)
 
-據[36個共青團在俄舉行十月社會主義革命100周年紀念活動的聲明](https://zhuanlan.zhihu.com/p/30918626)，這36個共青團組織分別是——
+[German\_0511\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084339/German_0511__CCP_Virus_Updates-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084339/German_0511__CCP_Virus_Updates-1.pdf)
 
-【阿根廷共產主義青年聯盟、奧地利共產主義青年團、孟加拉青年聯盟、.孟加拉學生聯盟、巴西共產主義青年聯盟、加拿大青年共產主義聯盟、哥倫比亞共產主義青年團、克羅地亞青年社會主義者、賽普勒斯統一民主青年組織、捷克共和國共產主義青年聯盟、厄瓜多爾共產主義青年團、德國社會主義勞動青年團、英國青年共產主義聯盟、希臘共產主義青年團、瓜地馬拉共產主義青年團、全印度青年聯盟、印度民主青年聯盟、以色列青年共產主義聯盟、義大利共產主義青年陣線、約旦民主青年聯盟、墨西哥青年共產主義者聯盟、巴基斯坦民主學生聯盟、俄羅斯革命共產主義青年團（布爾什維克）、俄羅斯聯邦列寧共產主義青年聯盟、南斯拉夫青年共產主義聯盟、西班牙共產主義青年聯盟、西班牙共產主義青年集體、斯里蘭卡社會主義青年聯盟、斯里蘭卡社會主義學生聯盟、瑞典革命共產主義青年團、瑞士共產主義青年團、敘利亞共產主義青年聯盟- KhaledBakdash青年團、土耳其共產主義青年團、烏克蘭列寧共產主義青年聯盟、美國青年共產主義者聯盟、委內瑞拉共產主義青年團】和【沒有參加這一活動但簽署了這一聲明的共青團：丹麥共產主義青年團】
+[Japanese0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084403/Japanese0511_CCP_Virus_Updates_-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084403/Japanese0511_CCP_Virus_Updates_-1.pdf)
 
-通過這些共產主義青年團共同簽署的聲明，我們可以看出這些共產主義青年團心中的祖國是蘇聯，這些共產主義青年團心中的聖經就是馬列主義，他們的終極目的就是通過奪取政權實現社會主義乃至共產主義，在他們眼裡“這些問題包括：帝國主義戰爭、佔領、難民潮、被迫移民、資本主義危機、剝削、失業、被破壞的工作權、對婦女的歧視以及教育、文化和體育的問題”都可以通過所謂的“工人階級奪取政權來解決”，在這樣的情況下，對待這些共產主義青年團組織，我們有以下問題需要回答——
+[Korean0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084406/Korean0511_CCP_Virus_Updates-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084406/Korean0511_CCP_Virus_Updates-1.pdf)
 
-1、在對現有憲政體系徹底否認並以武裝奪權或階級鬥爭推翻現有憲政體制為己任的這種共產主義青年團，他們算不算極端組織？
+[Russian\_0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084410/Russian_0511_CCP_Virus_Updates_-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084410/Russian_0511_CCP_Virus_Updates_-1.pdf)
 
-2、在有些國家納粹和宣傳納粹都是非法的，但是對於共產主義思想，有多少國家明確通過立法的形式把它列為非法？有多少國家明確通過立法的形式把共產主義組織列為非法？我們一定要看一下參與簽名的這些共產主義青年團所在的國別，這些國家是：阿根廷、奧地利、孟加拉、巴西、加拿大、哥倫比亞、克羅地亞、賽普勒斯、捷克、厄瓜多爾、德國、英國、希臘、瓜地馬拉、印度、以色列、義大利、約旦、墨西哥、巴基斯坦、俄羅斯、南斯拉夫、西班牙、斯里蘭卡、瑞典、瑞士、敘利亞、土耳其、烏克蘭、美國、委內瑞拉、丹麥；
+[Spanish\_0511\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084413/Spanish_0511_CCP_Virus_Updates_ES-1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14084413/Spanish_0511_CCP_Virus_Updates_ES-1.pdf)
 
-3、我們知道共產主義在全球造成的非正常死亡的總人數應該過億（算上中共由於計劃生育及在中國歷次政治運動以及這一次CCP冠狀病毒在全球造成的死亡人數應該超過這個數字），而由於與共產黨國家的直接軍事對抗和非軍事對抗過程中犧牲的軍人覆蓋了所有的美國及其盟國，那麼在這些國家，他們的國民有沒有認識到他們的前輩為了捍衛他們自己的人權、自由、民主所付出的代價？如果僅是以言論自由來認識共產主義思想，那麼當包括這些國家在內的人類的青年被共產主義思想鼓動妄圖通過武裝奪權和階級鬥爭來實現社會主義乃至共產主義的時候，這些國家或者全人類為此所再次付出的代價如何對得起那些與共產主義鬥爭而犧牲的先輩？
 
-4、最終極的一個問題：人類到底應該如何看待和定位共產主義？它是一種基於言論自由的思想表達還是一種鼓動恐怖主義的極端思想？
-
-（文章內容僅代表作者個人觀點）
 
 0

@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 湖北宜昌醫生攜子跳樓，中共體制下活著有多難
-`2020-05-14 07:59 GM67` [轉載自GNews](https://gnews.org/zh-hant/203194/)
+## 【世界多語言圖文】10/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-14 08:29 GM10` [轉載自GNews](https://gnews.org/zh-hant/203243/)
 
-作者：立武
+**戰友之家圖文摘要組及小語種組**
 
-**5月12日，湖北宜昌一名醫生攜子跳樓自殺，當場死亡，中共聲稱是家庭矛盾導致的。**
+[English\_0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082814/English_0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082814/English_0510_CCP_Virus_Updates-1.pdf)
 
-據瞭解，該醫生是宜昌市中醫醫院重症醫學科的主治醫師，在疫情防控期間曾支援宜昌市第三人民醫院，在今年2月份還被當地媒體報導過，描述其不吃不喝連續工作6小時的狀態。
+[French\_0510\_CCP\_Virus\_Updates\_2-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082823/French_0510_CCP_Virus_Updates_2-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082823/French_0510_CCP_Virus_Updates_2-1.pdf)
 
-就是這樣一名樂於奉獻、前途美好的醫生，一名“口碑挺好”的醫生，攜帶自己的兒子自殺了，很難讓人相信僅僅是因為家庭矛盾。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14074527/16.jpg)
-這讓我們想起了殺父弑子的楊改蘭，由於中共獨裁體制的壓迫，生活壓力巨大的楊改蘭選擇了自殺這條路。但作為一名主治醫師，生活條件應該不錯，也受人尊敬，這樣的生活怎麼會逼迫一個醫生選擇自殺呢？
+[German\_0510\_CCP\_Virus\_Updates\_-\_Kopie-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082834/German_0510_CCP_Virus_Updates_-_Kopie-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082834/German_0510_CCP_Virus_Updates_-_Kopie-1.pdf)
 
-這意味著生活條件優不優越不是導致自殺的根本原因，在中共獨裁體制下，生活的壓力不僅僅來源於物質條件的匱乏，心理上的壓力也很容易導致自殺。**由於是疫情一線的醫生，除了身體上的辛勞，面對真相無法如實的面對，社會輿論的壓力和來自院方的壓力都會帶到家庭裡去，一旦在關鍵時刻沒有承受住，最終選擇了自殺。**然而，只要中共一直掩蓋真相，犧牲醫生為代價，這種事情將會愈演愈烈。
+[Japanese0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082847/Japanese0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082847/Japanese0510_CCP_Virus_Updates-1.pdf)
 
-這已經不是幾個月的唯一一起自殺事件。
+[Korean0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082857/Korean0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082857/Korean0510_CCP_Virus_Updates-1.pdf)
 
-在原國開行董事長胡懷邦被批捕兩個多月後，中共報導了其妻子跳樓身亡之事，不管是被自殺，還是為了維護某些人的利益而自殺，或是承受不住調查的壓力而自殺，這是中共體制下一個“正常”的現象。在去年，涉及胡懷邦案的原國開行山東分行行長鐘小龍被報導在家割腕自盡。**選擇自殺也許成了許多體制內出局者的最好的選擇，像王健那樣被自殺的至今依然死不瞑目。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14074552/17-1.jpg)
-**大到達官貴人，小到“奔湧後浪”，都沒法避免成為這個體制的犧牲者。**5月6日，寧波銀行支行一員工被報導跳樓死亡，中共稱是抑鬱自殺，據瞭解，由於其手上項目多，加上疫情的影響，和“逼到自我認知全部崩塌”，在上有老下有小的情況下，最終選擇了輕生這條路。很難想像，他到底經歷了什麼樣的事情，**但可以知道，在金融系統即將潰爛之際，很多銀行都面臨壓力大的處境，而這僅僅是整個社會經濟崩潰前的一個縮影。**
+[Russian\_0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082908/Russian_0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082908/Russian_0510_CCP_Virus_Updates-1.pdf)
 
-問題的根源依舊是中共獨裁的體制，作為底層的草根，永遠是被中共拋棄的稻草，楊改蘭不僅是過去式，在接下來中共經濟崩塌之際，將可能出現無數個楊改蘭，**沒有工作生活不起，找工作壓力大，工作也無法維持房貸、車貸，這是中共體制窮苦百姓的現狀，自殺了連個墓地都買不起。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14074613/18.jpg)
-不管是哪個階層，自殺和被自殺一直在中共的體制下不斷上演，這已經不僅僅是生活成本高的問題，這個絞肉機體制的犧牲品是每一個人，**當時孟建柱在趾高氣昂地聲稱東南亞百分百控制的時候，他也許永遠不會想到現在自己的家庭被整得這麼慘，**一切的根源在於這個邪惡的體制。（立武）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14074655/19.jpg)
+[Spanish0510\_CCP\_Virus\_Updates-1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082917/Spanish0510_CCP_Virus_Updates-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14082917/Spanish0510_CCP_Virus_Updates-1.pdf)
+
 0

@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】13/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-14 21:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/203687/)
+## “喜馬拉雅”的社會生態是怎樣的？會怎樣形成？
+`2020-05-15 02:56 GM30` [轉載自GNews](https://gnews.org/zh-hant/203892/)
 
-戰友之家圖文摘要組及小語種組
+**作者：陽之戰**
 
-[English\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210558/English_0513_CCP_Virus_Updates.pdf)
+爲了保護真與善而迸發的進攻性就是正義
 
-[German\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210605/German_0513_CCP_Virus_Updates_-.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15024703/1-111.jpg)
 
-[French\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210608/French_0513_CCP_Virus_Updates.pdf)
+一般善者不招惹是非，與人爲善，對人盡量寬容，包容，正因如此，惡人起來了，CCP起來了。CCP 起來了，事實證明，在現實世界中靠“真善美”不行，因爲善是寬容的，不具備保衛自己能力的進攻性，這樣“真善美”都無法得到保護。
 
-[Japanese\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210611/Japanese_0513_CCP_Virus_Updates.pdf)
+郭文貴先生也提出了另一個觀念 “真善狠”，無論真善美還是真善狠其中都把“真”放在了第一位，否則，善可以被濫用，轉化爲僞善 虛僞 虛榮 虛假，“真”變成了“假” ,然後“惡”就會隨之産生出來，“醜”也就自然而然形成。所以善應該具有攻擊力，爲了保護真與善會自然激發出的攻擊性實質上就是正義。而郭先生爲了保護真和善也很徹底的把“真善美”的“美”置換成了“狠”，我很贊同，在發現假醜惡的時候去選擇主動出擊，可以有多種多樣的攻擊方式，方法。對假和惡的寬容與包容就是自殘，因爲假的人就會絕地而起，惡人起來了 ccp起來了，就會把不具有攻擊力的“真善美”通通滅掉 。醜陋的意識形態，不假 的話它無法存在,不惡它無法存在，自然而然也會變成了醜惡的形態。你可以囂張可以跋扈，但你若有一點侵害到別人，對不起只有幹掉你。
 
-[Korean\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210614/Korean0513_CCP_Virus_Updates.pdf)
+“喜馬拉雅”的社會生態
 
-[Russian\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210617/Russian_0513_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15025124/image0-110.jpg)
 
-[Spanish\_0513\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/14210622/Spanish0513_CCP_Virus_Updates.pdf)
+社會之所以成爲社會，是因爲每個人都與他人有著相互之間的連系，社會之所以成爲社會因爲人們之間有相同的特質， 因爲有著連系所以相互影響著，所以喜馬拉雅只有重構人們之間的連系， 把“真”放在第一位，把虛假滅掉，把虛情假意去掉，更不能侵害他人。因此在CCP覆滅後我們可惜借著契機，讓全社會意識到曾經的罪惡和遭受是CCP 體制下造成的社會所造成的錯誤，我們每個人時刻都受到CCP “假醜惡”的社會生態的影響，造成著我們現在的生活，扭曲改變著我們的人性，讓全體人們重新認識到“真”的重要性，而自然達到了集體的共識，就會重構人們之間存在的連系，就會自然生成一種平等公平的社會規則，這會形成“喜馬拉雅”的社會生態。
 
+**我很早就認爲是什麽決定了一個人？決定了一個社會生態？主要取決于生存二字。人與人之間的主要關系是生存關系，因這種連系，所形成的相互之間的影響的關系，自然構成了社會的整體生態。而“真”成爲了社會的規則，社會的基石，在這種前提下所建立起來的人與人之間的生存關系，就會建立起新的社會生態，自此人類社會就會大步流星的前行，她最終要形成一個每個人都夠找到自己的與自由的社會生態。當我們逐步發現，維護“真”，維護公平與平等，就是維護的規則，維護我們的生存的時候，那時候我們會因爲生存的需要，而去維護“真”這個字，不會有半點後退，因爲那時候它成爲了我們生存在社會之中的基石和社會運轉的規則。當一個社會清澈明了、稜角清晰、有角有稜的時候，一個自由的社會生態就形成了！**
 
+（文章內容僅代表作者觀點）
 
 0
