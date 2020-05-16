@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吉林传染链扩展到日常活动区域，校园成为可能传染的区域
-`2020-05-15 17:48 GM06` [轉載自GNews](https://gnews.org/zh-hant/204366/)
+## 【世界多語言圖文】14/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-15 23:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/204553/)
 
-作者：立武
+戰友之家圖文摘要組及小語種組
 
-截至5月13日，吉林舒兰的传染链已经累计确诊扩展到25人，这是继黑龙江传染链之后又一中共公布的传染链，而问题的根源正是中共赌博式的开放社区复工复学导致的。
+[English\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230133/English_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230133/English_0514_CCP_Virus_Updates.pdf)
 
-吉林舒兰的传染链有以下四大特点，一是跨省，辽宁沈阳已经出现3例关联确诊，同时沈阳进行隔离观察的人数却比吉林要多，**这是因为沈阳不但对确诊的密切接触者进行隔离，同时对密切接触者的密切接触者，和密切接触者的密切接触者的密切接触者进行隔离，这意味着三代接触都可能会确诊**，而且显然三代接触已经不仅仅是中共隔离的几百人。
+[French\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230140/French_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230140/French_0514_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15173233/1-116.jpg)
+[German\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230144/German_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230144/German_0514_CCP_Virus_Updates.pdf)
 
-二是不仅仅是黑龙江传染链典型的楼栋和院内感染，吉林传染链扩展到日常活动场所，**包括追溯到****4****月****1****日的清华浴池，长达****36****天的倒查显然不可能将所有的一二代接触者全部查清。**另外活动场所还包括一场在蛟河市的婚礼和沈阳某单位的吸烟室等等。**值得注意的是，即使聚餐在通报中出现了****11****次，但中共疾控中心仍然在****5****月****13****日声称可以聚餐。**
+[Japanese\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230150/Japanese_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230150/Japanese_0514_CCP_Virus_Updates.pdf)
 
-三是紧急收紧的政策，包括学生的停课不开学、邮件快递服务时限可能的延长、吉林市火车站的暂停服务、小区全面封闭管理等等。
+[Korean\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230157/Korean_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230157/Korean_0514_CCP_Virus_Updates.pdf)
 
-四是也最重要的是源头不明，意味着传染链将继续延长，而且还可能不是当地源头，**截至目前，尚未发布传染源的地方除了舒兰市，还有武汉的东西湖区、广州市的增城区。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15173322/4-28.jpg)
-这四点的根源都是中共掩盖疫情真相的同时，赌博式地进行社区开放和复工复学，任何地方都是密切接触的地方，任何地方都可能是源头来源地，任何地方都可能再爆发出没有源头的传染链。**5****月****14****日，中共卫健委介绍，本土聚集性疫情密切接触者仍在增加，因为这是不可能查得清的一个数字，在****5****月****12****日短短的一天中共已经查出的密切接触者就直接增加了****77****人。**
+[Russian\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230159/Russian_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230159/Russian_0514_CCP_Virus_Updates.pdf)
 
-同时我们观察到在12日感染者中就有一名女童，在病毒面前没有年龄限制。吉林复学又停课回家，一来一回又会造成多少交叉感染。**不要忘了，4月中旬吉林开始高三复学，而清华浴池的追查的时间节点要早到1日，在此期间传染链就可能已经带进校园。**校园的单次核酸检测在长春10日发布公告要求舒兰来长人员需要核酸检测四次面前显得不具有说服力。至于高校，在7日吉林还在报道“激动”的高校复学，现在这些来自各地的高校学生却很难回家。
+[Spanish\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230203/Spanish_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230203/Spanish_0514_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15173415/3-87.jpg)
 
-5月13日，北京初三开学首日，就有125人发热，中共对此声称排除新冠肺炎。**北京既然已经连续28天实现“双零”增长，在其他地方存在确诊却依旧开学的情况下，北京直到5、6月份才返校，而且暑假不会推迟。**显然北京的特殊政策是作为政治中心，保守的政策也无可厚非，但其他地方罔顾仍然爆发疫情的情况复学，完全是有巨大的风险的，要知道，一旦感染上病毒，可能孩子一生都毁了。**从楼栋院内再到经常性的活动场所，传染链随时可能穿透到校园里，政策是由疫情严重性而改变的，不是低风险意味着无疫情，低风险随时可以变成中风险到高风险再到战时状态，然而中共文化和旅游部日前印发指南在低风险地区可以举办营业性演出活动，无疑是增加了感染的风险。**
-
-（文章内容仅代表作者观点）
 
 0

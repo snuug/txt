@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羅伯茨：川普總統對重啟貿易談判不感興趣
-`2020-05-15 20:54 GM65` [轉載自GNews](https://gnews.org/zh-hant/204465/)
+## 川普總統談邁克爾·弗林（Michael Flynn），奧巴馬政府和中國
+`2020-05-16 01:15 GM31` [轉載自GNews](https://gnews.org/zh-hant/204655/)
 
-翻譯：laowu 字幕：麥子
+5月14日，川普總統接受[福克斯商業](https://www.youtube.com/watch?v=U-7N8HAKWmc)瑪麗亞·巴蒂羅莫（Maria Bartiromo）採訪，就邁克爾·弗林（Michael Flynn），奧巴馬政府和中國等議題發表意見。
+
+*翻譯：【Ying】 校對 & 字幕：【文呈】*
 
 0

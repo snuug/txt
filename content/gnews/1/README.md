@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 華人的財富在6·4前將何去何從呢？
-`2020-05-15 21:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/204514/)
+## 在中國媒體關心美國的冷藏車的時候可曾記得被裝進同一個屍體袋的三個幼童
+`2020-05-16 01:38 Diago` [轉載自GNews](https://gnews.org/zh-hant/204685/)
 
-**作者：麓山之蜂**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16012957/cn-body-bag.jpg)
+作者：Diago
 
-在中共即將崩塌之前，大家最關心的莫過于自己以及家人的財富將何去何從，如何讓現有的財富不因中共的崩塌而變得一文不值；而郭文貴先生卻爲咱們打造了一艘財富的專屬諾亞方舟—-HIMALAYA RESERVE。而郭文貴先生在北京時間2020年5月14日錄播的短視頻中透漏了重磅中的重磅訊息，可以說是關系到每一個華人同胞，對牆國內同胞的重要性更是不言而喻了。
+[新浪新聞](https://weibo.com/sinapapers)[5月15日 19:16](https://weibo.com/2028810631/J248oBb3Y) 來自 [專業版微博平臺](https://app.weibo.com/t/feed/4WrlHq)【【[#美國卡車運新冠屍體消毒後運食品#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8D%A1%E8%BD%A6%E8%BF%90%E6%96%B0%E5%86%A0%E5%B0%B8%E4%BD%93%E6%B6%88%E6%AF%92%E5%90%8E%E8%BF%90%E9%A3%9F%E5%93%81%23&amp;from=default) FDA：有血液體液殘留也沒問題】美國當地時間5月13日，據《新聞週刊》報導，3月以來，紐約等疫情重災地區將冷藏卡車用於存放和運輸屍體。5月13日，美國食品藥品監管局（FDA）發佈指導手冊，明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。有網友評論“感到有點噁心！誰會用運屍車來存儲食物。”[@時間視頻](https://weibo.com/n/%E6%97%B6%E9%97%B4%E8%A7%86%E9%A2%91?from=feed&amp;loc=at)[L時間視頻的微博視頻](http://t.cn/A6AeLxjk)】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16013220/WhatsApp-Image-2020-05-16-at-1.31.33-PM.jpeg)
+据[Returning Refrigerated Transport Vehicles and Refrigerated Storage Units to Food Uses After Using Them to Preserve Human Remains During the COVID-19 Pandemic](https://www.fda.gov/media/137964/download#page=7&amp;zoom=100,82,220) （Guidance for Industry May 2020）【Refrigerated food transport vehicles and refrigerated food storage units used for the temporary preservation of human remains during the COVID-19 pandemic subsequently can be safely used for food transport and food storage under certain circumstances. It is important that food is protected during transport and storage to ensure food is safe for humans and animals and that conditions do not exist that may adulterate the food. Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected.】中文大意“在中共冠狀病毒大流行期間臨時用來運送人類遺體的冷藏食品運輸車輛和冷庫在某些情況下可以安全的用於食物運輸和食物存儲。在運輸和存儲過程中確保對人畜安全很重要，並應確保不存在可能會使食物摻假的環境因素。在恢復運輸或存儲人類或動物食品的服務之前，中共冠狀病毒大流行間用於運送遺體的冷藏食品運輸工具和冷庫應徹底清潔和消毒。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15214014/image0-119.jpg)
+另據[Refrigerated trucks used as morgues during coronavirus pandemic can transport food again, FDA says](https://www.usatoday.com/story/news/health/2020/05/15/coronavirus-temporary-morgues-trucks-can-haul-food-again-fda-says/5202538002/)（USA TODAY Published 8:08pm ET May 15 2020)
 
-從視頻中的00:34分開始：
+【The FDA addressed those questions in [non-binding recommendations issued May 12](https://www.fda.gov/media/137964/download). The document is considered a series  of recommendations rather than a legally enforceable order, the FDA says. The guidance notes other agencies may have relevant regulations.
 
-00:34【親愛的兄弟姐妹們，你們太厲害了，你們太厲害了。短短的，不到3天的時間，你們就把這個銀行給摧垮了。今天下午4點鍾，咱們買GDollar,G元的戰友們，這個曲線是這樣的(手勢表達)，你們恁把Stripe銀行賬戶給買垮了。現在下午4點暫時停，太多錢在在賬號裏了，他得等著把錢轉到這個賬戶裏了去，所以今天4點暫停。兄弟姐妹們，然後大概是明天或者後天恢複，但是所有用私人支票和商務支票和賬號對賬號付款的沒有停，一會我們會公布出來。】
+“Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected,” the document says.】
 
-金錢的走向是最能說明問題的，所有的金錢永遠遠離危險的地方，永遠走向最安全的、最能體現價值的地方的。雖然不知道通過Stripe系統的資金有多少是來源于牆內戰友，但是憑感覺，這個分量應該是不低的。因爲在牆內，通過visa信用卡、雙幣種借記卡、某寶上買禮品卡等等方式充值GDollar的方式是最有效率的，更是最安全的。而這更加能說明郭文貴先生在牆內的影響力；也充分說明了民心向郭，對中共這個體系表達出來徹底的厭惡與厭倦，已經徹底喪失了信心。各位戰友們，趕快行動吧！不要猶豫，機會就擺在您面前，是否能抓住，真的是在于您自己，而這也正是任何人無法幫助您的，選擇大于努力！
+中文大意：【FDA說，FDA在5月12日發佈的非約束性建議中解決了這些問題。該檔被視為一系列建議，而不是法律上可強制執行的命令。該指南指出其他機構可能有相關規定。該文件說：“在返回運輸或存儲人類或動物食品的服務之前，應徹底清洗和消毒用於保存COVID-19大流行期間用於保存人類遺體的冷藏食品運輸工具和冷藏食品存儲單元。”】
 
-01:42【但是戰友們，你們太厲害了太厲害了，這個牙簽有點太大哦，我這個還沒出手呢，這都是小玩意兒，這都是我准備的招當中，是吧！最簡單的招啦，最簡單的招啦，結果就這一招，你們就把銀行就給弄成這樣了，弄成這了，就把共産黨、共匪嚇成，嚇成那樣了。】
+【Special recommendations are given in cases where there is “evidence that interior surfaces were in direct contact with blood or bodily fluids.”】
 
-從此處能看出GDollar等對中共造成的恐懼有多大了。這也更能說明咱們草根，只要團結起來了，這力量絕對能讓共匪夜不能寐、茶飯不思的。
+中文大意：【如果“有證據表明內表面直接與血液或體液接觸”，則提出特別建議。】
 
-02:14【但是，兄弟姐妹們，真的是剛剛開始，我可以告訴大家，不會超過2周到3周，你們去看路德訪談節目去吧，路德訪談現在是喜馬拉雅、喜馬拉雅的CCTV，去看他吧，官方公布，官方公布。大家你們會看到關于錢，你們會知道你們這個投資啦，什麽啦，買GDollar啦！我可以告訴大家，一切都沒有開始，關于這個。雖然這三天震撼了世界，震撼了全世界所有的金融，所有的銀行。我們都是，在我們計劃當中的。接下來，好戲才剛剛上演。】
+防火牆存在的意義，在於它可以阻止牆外資訊的流入，還在於它可以肆無忌憚地隨便引用所謂“外媒”資訊，對於這條新浪微博提到的“明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。”，也許會是假外媒、真大外宣的蓄意誤導，但是就直覺來說，FDA不會也不敢“稱沒有必要讓公眾預先參與”，但是我們要看到的是隨著美國和其他國家相繼跟進要求查明病毒真相的壓力越來越大，隨著真相日益浮出水面，如何誤導國內民眾，讓更多民眾死心塌地被綁架到中共的戰車上，這是中共媒體一直在做的事情。
 
-03:05【親愛的兄弟姐妹們，Stripe暫時停止付款，銀行支票、賬號對賬號一切正常。但是這麽大的數字(注意手勢)，我可以告訴大家，小事。第一期我們要兩千億美元，兩千億少一個仔都不行。記住了嗎？還得(注意手勢)這樣的，陰陽乾坤，隔空取錢，誰都擋不住。接下來你們會看到關于全世界，特別是我們中國人的錢、亞洲人的錢，沒有任何地方想去，只能來喜馬拉雅。HIMALAYA RESERVE，買Dollar、買G幣，當然啦！還有那個那個，大家看著吧！】
+在這一起對於美國冷藏車及FDA的惡意炒作上，我們的同胞們會不會記起那三個幼童屍體被裝進同一個屍體袋的視頻——
 
-郭文貴先生在這裏就明確給所有華人、亞洲人指出了一條財富保值、增值的光明大道。也是提前告訴了所有看視頻的人，財富的專屬諾亞方舟已經建好，是否上船就在于您自己決定了。而這次買Dollar、買G幣是針對所有GTV用戶的，可能您沒有機會參與本次的GTV股權認購，但是您同樣可以通過購買Dollar、買G幣來實現財富的保值、增值。
 
-03:57【愛的,兄弟姐妹們，快到64啦！咱得讓共産黨知道知道，我們的爆料革命是幹啥的，讓他們清楚清楚。】
 
-該是爆料革命亮劍的時候啦！該是正義力量吹響滅共的進攻號角了！而距號角聲吹響的時間也只有不到2到3周了，經過查看黃曆，2到3周後，不正好是6·4嗎？這就是明擺著告訴所有牆內同胞、在中共國的所有投資者等冥幣持
+這樣的視頻絕對不會在中共的媒體上出現，或者即使在中共控制的社交媒體上即使出現了也是秒刪，但是我們不應該忘記，在我們生活的這個國度，每一個草根，病時難以得到有效的救治，在他們離去時，得不到有尊嚴和體面的對待，甚至他們的離去連一個數字都不會增加，更有甚者，為他們舉行的葬禮和悲泣都是不被允許的。
 
-有者們，抓緊想辦法處理所有以冥幣計價的資産吧！
+它們靠謊言和暴力阻斷真相、殘害生命，他們在唱著讚歌進行大規模的殺戮，隨著清算日的日益臨近，這樣的謊言還能持續多長時間？
 
-04:21【我恨之入骨，強奸、搶劫我們七十年，私人企業家拿著命賺點錢，你們想怎麽弄就怎麽弄，還要命，要錢，要全家的命。現在你們能把這錢擋住嗎？共産黨，你能把這錢擋住，你牛。】
-
-共匪對私人企業家所犯下的罪行、所造的孽，用罄竹難書來表達也只有過之而無不及。
-
-04:43【接下來你看看，爆料革命的霹雳行動怎麽把你們的錢全部給你們關起來，怎麽把你們的錢全部給你們留下來，你查封我多少資産，你沒收我多少錢，我讓你後面加一串零，一串零(手勢)，咱走著看。不相信爆料革命的，不投資GDollar的，可以呀！請看看我們拉！戰友們，你們將知道跟隨爆料革命的真正的好處、真正的經濟價值、信仰價值、安全價值和未來。今天你們去看看路德先生的訪談的節目吧，我就不多說啦！不多說啦！我還得繼續工作。64快到了，兄弟姐妹們，我今天就不多說了。】
-
-非常清晰的告訴共匪們，接下來對你們在海外資産的查封已經是板上釘釘的事了；而你們在海外的儲錢罐將會被徹底打破。同時也告訴所有人：共匪即將被消滅！共匪距離倒台的時間已經只有不到2至3周了，但共匪倒台所産生的這種衝擊波將是巨大的，爲了將這股衝擊波對所有人造成的損失程度降到最低，郭文貴先生已經將財富的專屬諾亞方舟打造好，而是否上船，就取決于您自己了啦！
-
-（文章內容僅代表作者觀點）
+（文章內容僅代表作者個人觀點）
 
 0
