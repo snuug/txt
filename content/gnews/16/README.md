@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】14/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-15 23:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/204553/)
+## 川普總統宣佈5月16日為美國武裝部隊日
+`2020-05-16 02:12 GM31` [轉載自GNews](https://gnews.org/zh-hant/204702/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16020821/%E5%B7%9D%E6%99%AE%E6%80%BB%E7%BB%9F%E5%AE%A3%E5%B8%835%E6%9C%8816%E6%97%A5%E4%B8%BA%E7%BE%8E%E5%9B%BD%E6%AD%A6%E8%A3%85%E9%83%A8%E9%98%9F%E6%97%A5.jpg)
+無論在戰爭還是和平時期，無論是在陸地、海上、天空、網路空間還是地球大氣層之外，我們國家武裝部隊的男女都榮耀地隨時準備著無私地捍衛我們的國家。 在武裝部隊日，我們向這些愛國者們致敬，他們的工作使我們的國家始終像世界的自由和希望燈塔一樣閃耀著。
 
-[English\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230133/English_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230133/English_0514_CCP_Virus_Updates.pdf)
+在整個國家的歷史上，我們的武裝部隊一直保護著我們的國家、我們的自由和我們的建國原則。本月初，我們紀念了歐洲勝利75周年，當時美國和盟軍從暴政和壓迫中解放了歐洲和北非。這些英雄們的勇敢行動將永遠成為我們國家最好的紀念碑。如今，我們許多的服役人員已被召喚，戰鬥在國內的前線上抗擊一個新型的敵人-冠狀病毒。我們的衛兵、工程師、後勤人員和醫療服務人員已為有需要的人迅速有效地提供了重要的救命治療、防護設備、設施和其他重要的服務和用品。 三月份，我作為總司令榮幸地向美國海軍醫療艦Comfort號上的英雄們致敬，送他們從維吉尼亞州諾福克海岸起航去紐約、新澤西州和康涅狄格州，為需要幫助的人們提供援助和安慰。正如他們在整個危機中所表現的那樣，為了減輕醫護人員和急救人員的負擔，我們的武裝部隊可以適應任何挑戰並能成功完成任何任務。
 
-[French\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230140/French_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230140/French_0514_CCP_Virus_Updates.pdf)
+我這任政府將始終致力於確保我們國家擁有世界上最強大和最先進的軍事力量。 我們要感謝我們的戰士，要確保我們能為他們提供必要的培訓和設備，以應對當前和未來的挑戰。 自從我上任以來，我們已經在美國軍事上投資了2.2萬億美元，這是歷史性的，用於購買了美國製造的最優質的飛機、導彈、火箭、艦船和其他軍事裝備。 此外，去年我很自豪地簽署了一項法律，該法律為我們的部隊提供了3.1％的加薪，這是我們的軍事人員十年來最大的加薪，用於認可他們無與倫比的職責、榮譽、勇氣和承諾。
 
-[German\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230144/German_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230144/German_0514_CCP_Virus_Updates.pdf)
+今年，我們還慶祝了美國太空部隊的創建，這是歷史性的，是自70多年前組建美國空軍以來成立的第一個新軍事部門。 我們認識到，為了應對21世紀世界不斷出現的新威脅，我們必須尋求最新的作戰領域並應對太空中的惡性活動。 美國在太空領域的領導地位無與倫比，而且隨著美國太空部隊的加入，我們現在可以更好地應對這一新興的技術、探索與發現中不斷出現的新威脅。 太空部隊已經配置了大約16,000名軍事和文職人員，他們的任務是組織、訓練和裝備這些新的戰鬥機，負責保護美國和盟國在廣大太空領域的利益。
 
-[Japanese\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230150/Japanese_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230150/Japanese_0514_CCP_Virus_Updates.pdf)
+在今天和每一天，我們重申對武裝部隊中數百萬美國愛國者的堅定支持。 我們永遠感謝每位士兵、水手、飛行員、海軍陸戰隊、海岸警衛隊和太空部隊的成員，我們深深感謝他們的親人為我們所做的犧牲。 作為一個國家，我們承諾將始終如一地尊重他們為我們偉大國家的服務和奉獻。
 
-[Korean\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230157/Korean_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230157/Korean_0514_CCP_Virus_Updates.pdf)
+因此，我，唐納德·J·川普，美利堅合眾國總統和美國武裝部隊總司令，繼續我前任總統的傳統，在此宣佈，每年五月的第三個星期六為武裝部隊日。
 
-[Russian\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230159/Russian_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230159/Russian_0514_CCP_Virus_Updates.pdf)
+我邀請各州和領地的州長以及其它受美國管轄的地區，每年以適當的方式在其管轄範圍，慶祝武裝部隊日以促進公眾對美國武裝部隊的瞭解和感謝。 我還邀請退伍軍人、公民和其它組織每年參加紀念武裝部隊日。
 
-[Spanish\_0514\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230203/Spanish_0514_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15230203/Spanish_0514_CCP_Virus_Updates.pdf)
+最後，我呼籲所有美國人在武裝部隊紀念日的那天，在家裡和公司懸掛美國國旗，並敦促公民通過參加當地當天的紀念活動來瞭解更多關於兵役的知識。
 
+此公告用以取代2019年5月17日第9892號公告。
 
+於我主2020年-即美利堅合眾國獨立第244周年的5月15日這天特此公告。
 
-0
+唐納德·J·川普
+
+Source： [President Trump Announces the US Armed Forces Day – May 16, 2020](https://www.whitehouse.gov/presidential-actions/proclamation-armed-forces-day-2020/)
+
+翻译：【Michelle】【清晨风景(晨景）】
+
+1

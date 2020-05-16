@@ -1,105 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日 美國政要推文選譯
-`2020-05-15 21:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/204498/)
+## 在中國媒體關心美國的冷藏車的時候可曾記得被裝進同一個屍體袋的三個幼童
+`2020-05-16 01:38 Diago` [轉載自GNews](https://gnews.org/zh-hant/204685/)
 
-> GOP Sen. Marsha Blackburn is calling on fellow lawmakers to refuse meetings with representatives from Chinese companies.[https://t.co/QSOCbFB6Y5](https://t.co/QSOCbFB6Y5)
-> — Axios (@axios) [May 14, 2020](https://twitter.com/axios/status/1261069782419247104?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16012957/cn-body-bag.jpg)
+作者：Diago
 
-參議員 Marsha Blackburn 轉推 Axios新聞：共和黨參議員Marsha Blackburn呼籲議員們拒絕會見中國公司代表。
+[新浪新聞](https://weibo.com/sinapapers)[5月15日 19:16](https://weibo.com/2028810631/J248oBb3Y) 來自 [專業版微博平臺](https://app.weibo.com/t/feed/4WrlHq)【【[#美國卡車運新冠屍體消毒後運食品#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8D%A1%E8%BD%A6%E8%BF%90%E6%96%B0%E5%86%A0%E5%B0%B8%E4%BD%93%E6%B6%88%E6%AF%92%E5%90%8E%E8%BF%90%E9%A3%9F%E5%93%81%23&amp;from=default) FDA：有血液體液殘留也沒問題】美國當地時間5月13日，據《新聞週刊》報導，3月以來，紐約等疫情重災地區將冷藏卡車用於存放和運輸屍體。5月13日，美國食品藥品監管局（FDA）發佈指導手冊，明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。有網友評論“感到有點噁心！誰會用運屍車來存儲食物。”[@時間視頻](https://weibo.com/n/%E6%97%B6%E9%97%B4%E8%A7%86%E9%A2%91?from=feed&amp;loc=at)[L時間視頻的微博視頻](http://t.cn/A6AeLxjk)】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16013220/WhatsApp-Image-2020-05-16-at-1.31.33-PM.jpeg)
+据[Returning Refrigerated Transport Vehicles and Refrigerated Storage Units to Food Uses After Using Them to Preserve Human Remains During the COVID-19 Pandemic](https://www.fda.gov/media/137964/download#page=7&amp;zoom=100,82,220) （Guidance for Industry May 2020）【Refrigerated food transport vehicles and refrigerated food storage units used for the temporary preservation of human remains during the COVID-19 pandemic subsequently can be safely used for food transport and food storage under certain circumstances. It is important that food is protected during transport and storage to ensure food is safe for humans and animals and that conditions do not exist that may adulterate the food. Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected.】中文大意“在中共冠狀病毒大流行期間臨時用來運送人類遺體的冷藏食品運輸車輛和冷庫在某些情況下可以安全的用於食物運輸和食物存儲。在運輸和存儲過程中確保對人畜安全很重要，並應確保不存在可能會使食物摻假的環境因素。在恢復運輸或存儲人類或動物食品的服務之前，中共冠狀病毒大流行間用於運送遺體的冷藏食品運輸工具和冷庫應徹底清潔和消毒。”
 
-> Brb. Finding a new communist country with gross human rights abuses to do business in. Bonus points if they unleashed a global pandemic on the world. [https://t.co/QJU5KKxhTC](https://t.co/QJU5KKxhTC)
-> — Tom Cotton (@SenTomCotton) [May 15, 2020](https://twitter.com/SenTomCotton/status/1261101582210478081?ref_src=twsrc%5Etfw)
+另據[Refrigerated trucks used as morgues during coronavirus pandemic can transport food again, FDA says](https://www.usatoday.com/story/news/health/2020/05/15/coronavirus-temporary-morgues-trucks-can-haul-food-again-fda-says/5202538002/)（USA TODAY Published 8:08pm ET May 15 2020)
 
-參議員 Tom Cotton：別走開，我馬上回來。我正在找新的嚴重侵犯人權的共產主義國家，去那兒做生意。如果他們還向全球釋放了壹場大瘟疫，可以加分。
+【The FDA addressed those questions in [non-binding recommendations issued May 12](https://www.fda.gov/media/137964/download). The document is considered a series  of recommendations rather than a legally enforceable order, the FDA says. The guidance notes other agencies may have relevant regulations.
 
-《美國新聞與世界報道》雜誌：中國威脅制裁美國政界人士，因他們發表與疫情相關的批評
+“Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected,” the document says.】
 
-> Chinese spy companies like Huawei undermine our export-control rules in order to access advanced computer chips made with American software and technology. I commend the administration for strengthening these rules. [https://t.co/v1riplWj93](https://t.co/v1riplWj93)
-> — Tom Cotton (@SenTomCotton) [May 15, 2020](https://twitter.com/SenTomCotton/status/1261331044147527680?ref_src=twsrc%5Etfw)
+中文大意：【FDA說，FDA在5月12日發佈的非約束性建議中解決了這些問題。該檔被視為一系列建議，而不是法律上可強制執行的命令。該指南指出其他機構可能有相關規定。該文件說：“在返回運輸或存儲人類或動物食品的服務之前，應徹底清洗和消毒用於保存COVID-19大流行期間用於保存人類遺體的冷藏食品運輸工具和冷藏食品存儲單元。”】
 
-參議員 Tom Cotton 連推：像華為這樣的中國間諜公司破壞我們的出口管制規定，以獲取用美國軟件和技術制造的先進計算機芯片。我對政府加強這些法規表示贊揚。美國政府和業內負責人必須采取強硬措施，切斷中共獲取這些技術的渠道，中共用這些技術在全球建造監控和鎮壓網絡。
+【Special recommendations are given in cases where there is “evidence that interior surfaces were in direct contact with blood or bodily fluids.”】
 
-美國商務部：商務部應對華為企圖破壞實體清單問題，限制出口以美國技術設計和生產的產品
+中文大意：【如果“有證據表明內表面直接與血液或體液接觸”，則提出特別建議。】
 
-> .[@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Cruz says he has 'every confidence' Trump will hold China accountable for coronavirus. [https://t.co/KHy9m24FLf](https://t.co/KHy9m24FLf)
-> — Senator Ted Cruz (@SenTedCruz) [May 15, 2020](https://twitter.com/SenTedCruz/status/1261291414186573825?ref_src=twsrc%5Etfw)
+防火牆存在的意義，在於它可以阻止牆外資訊的流入，還在於它可以肆無忌憚地隨便引用所謂“外媒”資訊，對於這條新浪微博提到的“明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。”，也許會是假外媒、真大外宣的蓄意誤導，但是就直覺來說，FDA不會也不敢“稱沒有必要讓公眾預先參與”，但是我們要看到的是隨著美國和其他國家相繼跟進要求查明病毒真相的壓力越來越大，隨著真相日益浮出水面，如何誤導國內民眾，讓更多民眾死心塌地被綁架到中共的戰車上，這是中共媒體一直在做的事情。
 
-參議員 Ted Cruz：《華盛頓時報》：Cruz說他“十分確信”川普將在冠狀病毒壹事上追究中國的責任。（《華盛頓時報》記者Jeff Mordock）
+在這一起對於美國冷藏車及FDA的惡意炒作上，我們的同胞們會不會記起那三個幼童屍體被裝進同一個屍體袋的視頻——
 
-> .[@Jerusalem\_Post](https://twitter.com/Jerusalem_Post?ref_src=twsrc%5Etfw): Cruz-Coons bipartisan legislation would expand [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) projects with Israel, lessen dependence on China for life-saving medical supplies and medications.[https://t.co/oI8IA8YMPR](https://t.co/oI8IA8YMPR)
-> — Senator Ted Cruz (@SenTedCruz) [May 15, 2020](https://twitter.com/SenTedCruz/status/1261368986421415938?ref_src=twsrc%5Etfw)
 
-參議員 Ted Cruz：《耶路撒冷郵報》：Cruz（共和黨參議員）和Coons（民主黨參議員）的兩黨聯合法案將擴大與以色列的應對冠狀病毒合作項目，減少在救命醫療物資和藥品方面對中國的依賴。
 
-> [#OperationWarpSpeed](https://twitter.com/hashtag/OperationWarpSpeed?src=hash&amp;ref_src=twsrc%5Etfw): the full weight of the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) will accelerate the development, manufacturing, and distribution of vaccines and therapeutics to [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw). [@DARPA](https://twitter.com/DARPA?ref_src=twsrc%5Etfw) [@DoD\_DHA](https://twitter.com/DoD_DHA?ref_src=twsrc%5Etfw) [pic.twitter.com/VNc4C3Vb4T](https://t.co/VNc4C3Vb4T)
-> — @EsperDoD (@EsperDoD) [May 15, 2020](https://twitter.com/EsperDoD/status/1261343086476754945?ref_src=twsrc%5Etfw)
+這樣的視頻絕對不會在中共的媒體上出現，或者即使在中共控制的社交媒體上即使出現了也是秒刪，但是我們不應該忘記，在我們生活的這個國度，每一個草根，病時難以得到有效的救治，在他們離去時，得不到有尊嚴和體面的對待，甚至他們的離去連一個數字都不會增加，更有甚者，為他們舉行的葬禮和悲泣都是不被允許的。
 
-美國國防部長 埃斯珀：#極速行動：美國國防部將全員致力於加速開發、生產和派送疫苗及治療藥物的工作。
+它們靠謊言和暴力阻斷真相、殘害生命，他們在唱著讚歌進行大規模的殺戮，隨著清算日的日益臨近，這樣的謊言還能持續多長時間？
 
-> Thank you for your leadership, Mr. President. We will get the job done. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) [https://t.co/2jzQhN6dkh](https://t.co/2jzQhN6dkh)
-> — @EsperDoD (@EsperDoD) [May 15, 2020](https://twitter.com/EsperDoD/status/1261371803466821633?ref_src=twsrc%5Etfw)
+（文章內容僅代表作者個人觀點）
 
-美國國防部長 埃斯珀：感謝總統先生的領導。我們壹定完成任務。
-
-白宮：國防部長埃斯珀：“我們將在年底之前大規模向美國人民和我們的國際盟友提供疫苗。”
-
-> China is secretly working on population-specific biological weapons and has conducted experiments targeting ethnic groups, according to current and former Trump administration officials, and Chinese military writings [https://t.co/cwY41Ll1pb](https://t.co/cwY41Ll1pb)
-> — Bill Gertz (@BillGertz) [May 15, 2020](https://twitter.com/BillGertz/status/1261247217815429121?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生：據現任和前任川普政府官員，以及中國軍方人士的著作，中國正秘密研發針對特定人群的生物武器，並且針對少數民族進行了實驗。
-
-《華盛頓時報》：中國的欺騙行為加劇了人們對種族生物武器“實驗”的擔憂
-
-> Chinese state media singling me out with threats – and threatening Missouri too. Beijing can bluster all it wants. I’m not backing down [https://t.co/nQJNC4ijg3](https://t.co/nQJNC4ijg3)
-> — Josh Hawley (@HawleyMO) [May 15, 2020](https://twitter.com/HawleyMO/status/1261090939365457920?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：中國官方媒體單挑我發出威脅—並且威脅了密蘇裏州。北京想嚇唬人盡管來。我是不會退縮的。
-
-福克斯新聞：中國官方媒體威脅共和黨國會議員，暗示會影響選舉
-
-> Great piece by [@JimDeMint](https://twitter.com/JimDeMint?ref_src=twsrc%5Etfw) explaining China’s cheating on trade, Beijing’s global ambitions, and why it has changed his mind on the WTO. Bottom line: time for something better for America & the free world [https://t.co/nN535OVhlg](https://t.co/nN535OVhlg)
-> — Josh Hawley (@HawleyMO) [May 15, 2020](https://twitter.com/HawleyMO/status/1261290367388917760?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：Jim DeMint的精彩文章，闡述了中國的貿易作弊行為，北京的全球野心，和為什麽這讓他改變了對世貿組織的看法。歸根結底：現在應該為美國和自由世界爭取更好的（貿易體系）
-
-> The U.S. welcomes TSMC’s intention to invest $12B in the most advanced 5-nanometer semiconductor fabrication foundry in the world. This deal bolsters U.S. national security at a time when China is trying to dominate cutting-edge tech and control critical industries.
-> — Secretary Pompeo (@SecPompeo) [May 15, 2020](https://twitter.com/SecPompeo/status/1261143980634509318?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：美國歡迎臺積電120億美元對全球最先進的5納米半導體制造廠的投資意向。在中國試圖主宰尖端技術並控制關鍵產業的時候，這項協議可以加強美國的國家安全。
-
-> Today the United States announced new, additional restrictions on exports to [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw). We are making it harder for the Chinese Communist Party to use our sensitive technology against us, our allies, and our partners.
-> — Secretary Pompeo (@SecPompeo) [May 15, 2020](https://twitter.com/SecPompeo/status/1261390307821748227?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：今天美國宣布了新的、附加的對華為出口限制。這使得中國想用我們的敏感技術對付美國、美國盟友及合作夥伴更難了。
-
-> Another good one from ⁦[@joshrogin](https://twitter.com/joshrogin?ref_src=twsrc%5Etfw)⁩ [https://t.co/DAgwIJE9lD](https://t.co/DAgwIJE9lD)
-> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261125693242576903?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：Josh Rogin的又壹篇佳作
-
-《華盛頓郵報》：觀點｜世界正逐漸認清中共的本質
-
-> Free nations need to offer safe haven to the people of Hong Kong. They are being beaten, arrested and their civil liberties destroyed. Help them leave before the door closes. [https://t.co/OqaPgYQZEY](https://t.co/OqaPgYQZEY)
-> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261136812665376769?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：自由國家應該為香港人民提供安全港灣。他們被毆打、抓捕，他們的民主自由遭到破壞。在大門關閉之前協助他們離開。
-
-Dan Harris：2019年8月，我曾預測香港作為國際商業中心的地位將結束，因為我知道中國永遠無法容忍它的自由。當有名的奧睿律師事務所宣布關閉其經營了15年的香港辦公室時，這個結局又近了壹些。
-
-> Coronavirus masks the quiet destruction of free Hong Kong [https://t.co/YsqbCvsPXV](https://t.co/YsqbCvsPXV)
-> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261240755387011072?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：冠狀病毒掩蓋下對香港的無聲毀滅
-
-Quartz：趁世界不註意，北京以驚人速度改寫了香港的規則
-
-> That’s going to make it harder for the CCP to steal technology. Oh well. [https://t.co/xPd9kyiNWF](https://t.co/xPd9kyiNWF)
-> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261288433454125057?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：這讓中共更難偷技術了。這可怎麽辦。
-
-胡錫進：據我所知，如果美國進壹步阻止向華為提供關鍵技術，中國將啟動“不可靠實體清單”，限制或調查美國高通、思科和蘋果等公司，並暫停購買波音飛機。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15211859/image0.png-11.jpeg)
 0
