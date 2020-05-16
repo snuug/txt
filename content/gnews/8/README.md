@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普在新聞發佈會上展示太空部隊旗幟
-`2020-05-16 08:16 GM31` [轉載自GNews](https://gnews.org/zh-hant/204912/)
+## 川普總統去大衛營前的講話
+`2020-05-16 09:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/204960/)
 
-在5月15日的新聞發佈會上，國防部長Mark Esper指出：“通過建立太空部隊和太空司令部，美國正在做必要的事情，從而在太空保護我們資產，並確保太空繼續不僅能保護美國人，而且還能維持經濟，維持商業能力，維持我們美國人生活方式。”
+5月15日，川普總統在大衛營前前對記者表示：“他們（中共國）在貿易協定上花費了很多錢，但是貿易協定已經無關緊要了，我已對此失去了興趣。”
 
-出處：[President Trump Participates in the Presentation of the United States Space Force Flag](https://youtu.be/_0S99FJ2at8)
+出處：[President Trump Delivers Remarks Upon Departure](https://youtu.be/-aXbUkNRZSs)
 
-*翻譯：【紅鬍子】 校對：【Naomi （文花開）】【GM31】 字幕：【Vinzo】*
+翻譯 & 字幕：【Jennifer】
 
 0
