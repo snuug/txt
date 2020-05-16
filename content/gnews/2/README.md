@@ -1,31 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共胆敢和美国打核战争我相信共产党撑不了一小时
-`2020-05-15 18:25 GM06` [轉載自GNews](https://gnews.org/zh-hant/204401/)
+## 5月15日 美國政要推文選譯
+`2020-05-15 21:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/204498/)
 
-作者：文茗
+> GOP Sen. Marsha Blackburn is calling on fellow lawmakers to refuse meetings with representatives from Chinese companies.[https://t.co/QSOCbFB6Y5](https://t.co/QSOCbFB6Y5)
+> — Axios (@axios) [May 14, 2020](https://twitter.com/axios/status/1261069782419247104?ref_src=twsrc%5Etfw)
 
-近来胡锡进代表中共发表的言论：“中国需要在较短的时间里将核弹头数量扩大到千枚的水平，包括至少要有100枚东风-41战略导弹。”引发了一波不小的风波。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15180827/8-6.png)
-以我的认识，我只能说胡锡进背后的共产党和“弱智”没有任何区别。共产党如果真敢和美国玩核战争，只怕是一小时内共产党的核反应力量和党卫军会彻底从地球消失。
+參議員 Marsha Blackburn 轉推 Axios新聞：共和黨參議員Marsha Blackburn呼籲議員們拒絕會見中國公司代表。
 
-直至今日中共的导弹技术只不过是在消费上世纪50-60年代苏联提供的技术的老本，还有90年代苏联解体之后从俄罗斯获得的一些技术而已。
+> Brb. Finding a new communist country with gross human rights abuses to do business in. Bonus points if they unleashed a global pandemic on the world. [https://t.co/QJU5KKxhTC](https://t.co/QJU5KKxhTC)
+> — Tom Cotton (@SenTomCotton) [May 15, 2020](https://twitter.com/SenTomCotton/status/1261101582210478081?ref_src=twsrc%5Etfw)
 
-而且最为关键的就是共产党还未能建立起陆海空三位一体的核打击能力，也不具备足够有效击中目标的核武库。可以肯定的就是一旦发生真正的核战争，中共面对美国连第一轮核打击都无法抗击。也就是说根据洲际导弹飞行时间计算，顶多用不了一小时，共产党所有的反击能力都被摧毁在发射平台之上，这就是最赤裸裸的现实。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15181151/1-96.png)
-中共的战略核力量迄今仍由相当简陋和笨重的液体洲际弹道导弹东风-5构成。而且共产党吹上天的东风-31型和东风-31-A型固体燃料机动导弹最大的问题就是射程有限，只能携带一个弹头，这使其核打击能力及突破美国反导系统的能力大打折扣。
+參議員 Tom Cotton：別走開，我馬上回來。我正在找新的嚴重侵犯人權的共產主義國家，去那兒做生意。如果他們還向全球釋放了壹場大瘟疫，可以加分。
 
-也就是说只有东风-5型洲际导弹能够打到美国大部分国土，能够对美国构成一定威胁，但它最大的缺点就是体量巨大且安全性极差的液体导弹，发射准备工作至少要两小时甚至是八小时。还有一种导弹东风-4型虽说不是真正意义上的洲际导弹，在升级改造后其射程可超过5500公里。它对美国本土构成不了任何威胁。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15182005/7-13.png)
-这要特别解释一下共产党的几类机动核导弹：东风-31机动导弹射程近8000公里，勉强能打到美国西海岸陆地上的一些城市。实际中共首个真正具有核遏制能力的导弹是东风-31-A。它是机动式的，射程近1.1万公里，也是单弹头。这是惟一有望经受住美国的首次核打击并摧毁美国太平洋海岸城市的导弹，比如洛杉矶等。但共这种导弹数量很有限，而美国这种导弹有近2000枚。中共实际全部洲际导弹也就数十枚，这些导弹是根本无法对美构成重大威胁。以上世纪90年代俄罗斯的技术为基础，中共开始研制东风-41重型固体燃料导弹的研制计划。其射程近1.4万公里，能携带10枚弹头。但目前来看该导弹至少要20、30年后才可能列入战斗值班，目前看到的所有信息，都没有传出东风是-41实际成军的任何消息。
+《美國新聞與世界報道》雜誌：中國威脅制裁美國政界人士，因他們發表與疫情相關的批評
 
-说完导弹接下来就是潜艇，中共目前只有一艘装备战略导弹的核潜艇，即092型“夏”级，其导弹射程总共只有1700公里。最让人不可思议的就是这惟一装有巨浪-2导弹的导弹潜艇，至今从未进入过战斗值班。原因很简单一是因为故障不断，二是因为噪音很大，推进器一启动，隔着太平洋彼岸的美国已经听到了它的声音。现在中共所谓的建造的新一代核潜艇094型潜艇，号称装备的有新型导弹射程超过了8000公里。但根据据五角大楼评估，其技术性能只相当于苏联70年代初的潜艇。噪音水平为第二代，美国实际水平早已到了第五代。毫不夸张的讲，美国潜艇不主动报告自己位置，共产党永远无法找到。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15182045/9-2.png)
-最后就要说一下航空核反击能力，这方面的情况是共产党最差的一项。实际构成军力的核武器运载工具目前只有一个团的军力，使用的还是苏联老旧的图-16型轰炸机。中国经过升级改造之后称作轰-6K。轰-6K最多只能携带巡航导弹，而共产党获得该飞机30年来一直未能为其研制出小型核弹头。原因很简单就是共产党这么多年一直无法研制出相应的专用的炸药生产技术。没有航空核打击能力的国家根本称不上是一个核大国。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15182133/6-13.png)
-共产党目前的技术来看对美国构成威胁的也只有路基核导弹，潜射和航空平台对美国的威胁几乎是零。而对于美国这样全方位一体的防空防御体系来说，共产党的核导弹想要打到美国本土的几率几乎是零。但美国是具备把你的核力量和党卫军销毁在营房这个水平的，我是真不知共产党哪里来的勇气和美国玩核对抗，不作不死。
+> Chinese spy companies like Huawei undermine our export-control rules in order to access advanced computer chips made with American software and technology. I commend the administration for strengthening these rules. [https://t.co/v1riplWj93](https://t.co/v1riplWj93)
+> — Tom Cotton (@SenTomCotton) [May 15, 2020](https://twitter.com/SenTomCotton/status/1261331044147527680?ref_src=twsrc%5Etfw)
 
-（文章内容仅代表作者观点）
+參議員 Tom Cotton 連推：像華為這樣的中國間諜公司破壞我們的出口管制規定，以獲取用美國軟件和技術制造的先進計算機芯片。我對政府加強這些法規表示贊揚。美國政府和業內負責人必須采取強硬措施，切斷中共獲取這些技術的渠道，中共用這些技術在全球建造監控和鎮壓網絡。
 
+美國商務部：商務部應對華為企圖破壞實體清單問題，限制出口以美國技術設計和生產的產品
+
+> .[@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Cruz says he has 'every confidence' Trump will hold China accountable for coronavirus. [https://t.co/KHy9m24FLf](https://t.co/KHy9m24FLf)
+> — Senator Ted Cruz (@SenTedCruz) [May 15, 2020](https://twitter.com/SenTedCruz/status/1261291414186573825?ref_src=twsrc%5Etfw)
+
+參議員 Ted Cruz：《華盛頓時報》：Cruz說他“十分確信”川普將在冠狀病毒壹事上追究中國的責任。（《華盛頓時報》記者Jeff Mordock）
+
+> .[@Jerusalem\_Post](https://twitter.com/Jerusalem_Post?ref_src=twsrc%5Etfw): Cruz-Coons bipartisan legislation would expand [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) projects with Israel, lessen dependence on China for life-saving medical supplies and medications.[https://t.co/oI8IA8YMPR](https://t.co/oI8IA8YMPR)
+> — Senator Ted Cruz (@SenTedCruz) [May 15, 2020](https://twitter.com/SenTedCruz/status/1261368986421415938?ref_src=twsrc%5Etfw)
+
+參議員 Ted Cruz：《耶路撒冷郵報》：Cruz（共和黨參議員）和Coons（民主黨參議員）的兩黨聯合法案將擴大與以色列的應對冠狀病毒合作項目，減少在救命醫療物資和藥品方面對中國的依賴。
+
+> [#OperationWarpSpeed](https://twitter.com/hashtag/OperationWarpSpeed?src=hash&amp;ref_src=twsrc%5Etfw): the full weight of the [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) will accelerate the development, manufacturing, and distribution of vaccines and therapeutics to [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw). [@DARPA](https://twitter.com/DARPA?ref_src=twsrc%5Etfw) [@DoD\_DHA](https://twitter.com/DoD_DHA?ref_src=twsrc%5Etfw) [pic.twitter.com/VNc4C3Vb4T](https://t.co/VNc4C3Vb4T)
+> — @EsperDoD (@EsperDoD) [May 15, 2020](https://twitter.com/EsperDoD/status/1261343086476754945?ref_src=twsrc%5Etfw)
+
+美國國防部長 埃斯珀：#極速行動：美國國防部將全員致力於加速開發、生產和派送疫苗及治療藥物的工作。
+
+> Thank you for your leadership, Mr. President. We will get the job done. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) [@WhiteHouse](https://twitter.com/WhiteHouse?ref_src=twsrc%5Etfw) [https://t.co/2jzQhN6dkh](https://t.co/2jzQhN6dkh)
+> — @EsperDoD (@EsperDoD) [May 15, 2020](https://twitter.com/EsperDoD/status/1261371803466821633?ref_src=twsrc%5Etfw)
+
+美國國防部長 埃斯珀：感謝總統先生的領導。我們壹定完成任務。
+
+白宮：國防部長埃斯珀：“我們將在年底之前大規模向美國人民和我們的國際盟友提供疫苗。”
+
+> China is secretly working on population-specific biological weapons and has conducted experiments targeting ethnic groups, according to current and former Trump administration officials, and Chinese military writings [https://t.co/cwY41Ll1pb](https://t.co/cwY41Ll1pb)
+> — Bill Gertz (@BillGertz) [May 15, 2020](https://twitter.com/BillGertz/status/1261247217815429121?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生：據現任和前任川普政府官員，以及中國軍方人士的著作，中國正秘密研發針對特定人群的生物武器，並且針對少數民族進行了實驗。
+
+《華盛頓時報》：中國的欺騙行為加劇了人們對種族生物武器“實驗”的擔憂
+
+> Chinese state media singling me out with threats – and threatening Missouri too. Beijing can bluster all it wants. I’m not backing down [https://t.co/nQJNC4ijg3](https://t.co/nQJNC4ijg3)
+> — Josh Hawley (@HawleyMO) [May 15, 2020](https://twitter.com/HawleyMO/status/1261090939365457920?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：中國官方媒體單挑我發出威脅—並且威脅了密蘇裏州。北京想嚇唬人盡管來。我是不會退縮的。
+
+福克斯新聞：中國官方媒體威脅共和黨國會議員，暗示會影響選舉
+
+> Great piece by [@JimDeMint](https://twitter.com/JimDeMint?ref_src=twsrc%5Etfw) explaining China’s cheating on trade, Beijing’s global ambitions, and why it has changed his mind on the WTO. Bottom line: time for something better for America & the free world [https://t.co/nN535OVhlg](https://t.co/nN535OVhlg)
+> — Josh Hawley (@HawleyMO) [May 15, 2020](https://twitter.com/HawleyMO/status/1261290367388917760?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：Jim DeMint的精彩文章，闡述了中國的貿易作弊行為，北京的全球野心，和為什麽這讓他改變了對世貿組織的看法。歸根結底：現在應該為美國和自由世界爭取更好的（貿易體系）
+
+> The U.S. welcomes TSMC’s intention to invest $12B in the most advanced 5-nanometer semiconductor fabrication foundry in the world. This deal bolsters U.S. national security at a time when China is trying to dominate cutting-edge tech and control critical industries.
+> — Secretary Pompeo (@SecPompeo) [May 15, 2020](https://twitter.com/SecPompeo/status/1261143980634509318?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：美國歡迎臺積電120億美元對全球最先進的5納米半導體制造廠的投資意向。在中國試圖主宰尖端技術並控制關鍵產業的時候，這項協議可以加強美國的國家安全。
+
+> Today the United States announced new, additional restrictions on exports to [@Huawei](https://twitter.com/Huawei?ref_src=twsrc%5Etfw). We are making it harder for the Chinese Communist Party to use our sensitive technology against us, our allies, and our partners.
+> — Secretary Pompeo (@SecPompeo) [May 15, 2020](https://twitter.com/SecPompeo/status/1261390307821748227?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：今天美國宣布了新的、附加的對華為出口限制。這使得中國想用我們的敏感技術對付美國、美國盟友及合作夥伴更難了。
+
+> Another good one from ⁦[@joshrogin](https://twitter.com/joshrogin?ref_src=twsrc%5Etfw)⁩ [https://t.co/DAgwIJE9lD](https://t.co/DAgwIJE9lD)
+> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261125693242576903?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：Josh Rogin的又壹篇佳作
+
+《華盛頓郵報》：觀點｜世界正逐漸認清中共的本質
+
+> Free nations need to offer safe haven to the people of Hong Kong. They are being beaten, arrested and their civil liberties destroyed. Help them leave before the door closes. [https://t.co/OqaPgYQZEY](https://t.co/OqaPgYQZEY)
+> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261136812665376769?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：自由國家應該為香港人民提供安全港灣。他們被毆打、抓捕，他們的民主自由遭到破壞。在大門關閉之前協助他們離開。
+
+Dan Harris：2019年8月，我曾預測香港作為國際商業中心的地位將結束，因為我知道中國永遠無法容忍它的自由。當有名的奧睿律師事務所宣布關閉其經營了15年的香港辦公室時，這個結局又近了壹些。
+
+> Coronavirus masks the quiet destruction of free Hong Kong [https://t.co/YsqbCvsPXV](https://t.co/YsqbCvsPXV)
+> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261240755387011072?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：冠狀病毒掩蓋下對香港的無聲毀滅
+
+Quartz：趁世界不註意，北京以驚人速度改寫了香港的規則
+
+> That’s going to make it harder for the CCP to steal technology. Oh well. [https://t.co/xPd9kyiNWF](https://t.co/xPd9kyiNWF)
+> — General Spalding (@robert\_spalding) [May 15, 2020](https://twitter.com/robert_spalding/status/1261288433454125057?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這讓中共更難偷技術了。這可怎麽辦。
+
+胡錫進：據我所知，如果美國進壹步阻止向華為提供關鍵技術，中國將啟動“不可靠實體清單”，限制或調查美國高通、思科和蘋果等公司，並暫停購買波音飛機。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/15211859/image0.png-11.jpeg)
 0
