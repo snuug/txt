@@ -1,38 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中國媒體關心美國的冷藏車的時候可曾記得被裝進同一個屍體袋的三個幼童
-`2020-05-16 01:38 Diago` [轉載自GNews](https://gnews.org/zh-hant/204685/)
+## 因反對和中共勾結，我被母校開除了！
+`2020-05-16 06:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/204802/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16012957/cn-body-bag.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16060314/1-99.png)
+據外交政策雜誌報道，美國和歐洲決策者和思想家都呼籲重新評估本國與中共的經濟和政治聯繫。
 
-[新浪新聞](https://weibo.com/sinapapers)[5月15日 19:16](https://weibo.com/2028810631/J248oBb3Y) 來自 [專業版微博平臺](https://app.weibo.com/t/feed/4WrlHq)【【[#美國卡車運新冠屍體消毒後運食品#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8D%A1%E8%BD%A6%E8%BF%90%E6%96%B0%E5%86%A0%E5%B0%B8%E4%BD%93%E6%B6%88%E6%AF%92%E5%90%8E%E8%BF%90%E9%A3%9F%E5%93%81%23&amp;from=default) FDA：有血液體液殘留也沒問題】美國當地時間5月13日，據《新聞週刊》報導，3月以來，紐約等疫情重災地區將冷藏卡車用於存放和運輸屍體。5月13日，美國食品藥品監管局（FDA）發佈指導手冊，明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。有網友評論“感到有點噁心！誰會用運屍車來存儲食物。”[@時間視頻](https://weibo.com/n/%E6%97%B6%E9%97%B4%E8%A7%86%E9%A2%91?from=feed&amp;loc=at)[L時間視頻的微博視頻](http://t.cn/A6AeLxjk)】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16013220/WhatsApp-Image-2020-05-16-at-1.31.33-PM.jpeg)
-据[Returning Refrigerated Transport Vehicles and Refrigerated Storage Units to Food Uses After Using Them to Preserve Human Remains During the COVID-19 Pandemic](https://www.fda.gov/media/137964/download#page=7&amp;zoom=100,82,220) （Guidance for Industry May 2020）【Refrigerated food transport vehicles and refrigerated food storage units used for the temporary preservation of human remains during the COVID-19 pandemic subsequently can be safely used for food transport and food storage under certain circumstances. It is important that food is protected during transport and storage to ensure food is safe for humans and animals and that conditions do not exist that may adulterate the food. Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected.】中文大意“在中共冠狀病毒大流行期間臨時用來運送人類遺體的冷藏食品運輸車輛和冷庫在某些情況下可以安全的用於食物運輸和食物存儲。在運輸和存儲過程中確保對人畜安全很重要，並應確保不存在可能會使食物摻假的環境因素。在恢復運輸或存儲人類或動物食品的服務之前，中共冠狀病毒大流行間用於運送遺體的冷藏食品運輸工具和冷庫應徹底清潔和消毒。”
+但澳洲發生的一件事表明，脫鉤絕非易事：昆士蘭大學（UQ）一名在校生因批評中共侵犯人權而被母校開除，理由是他因表達對香港民主抗議者的支持，而大學的聲譽「造成了損害」。
 
-另據[Refrigerated trucks used as morgues during coronavirus pandemic can transport food again, FDA says](https://www.usatoday.com/story/news/health/2020/05/15/coronavirus-temporary-morgues-trucks-can-haul-food-again-fda-says/5202538002/)（USA TODAY Published 8:08pm ET May 15 2020)
+由於昆士蘭州與中共之間特別緊密的關係，該學生正面臨前所未有的威脅。昆士蘭州的任何一所大學都與中共政府關係密切。除了資助校園的孔子學院外，中共還資助至少四門經認可的昆士蘭大學課程，向學生介紹經中共批准的中國歷史，掩蓋新疆，西藏，香港和內地的侵犯人權行為中國。
 
-【The FDA addressed those questions in [non-binding recommendations issued May 12](https://www.fda.gov/media/137964/download). The document is considered a series  of recommendations rather than a legally enforceable order, the FDA says. The guidance notes other agencies may have relevant regulations.
+除此之外，中共駐布里斯班總領事徐潔還擔任該大學的名譽教授。同時，副校長彼得•霍伊（Peter Hoj）是中共漢辦組織的高級顧問，該組織監督著全球的孔子學院，並因推進與中共的關係從大學獲得了20萬澳元（13萬美元）的獎金。2015年，時任副校長的霍伊因其「對UQ孔子學院和孔子學院全球網路的貢獻，而授予其中共漢辦「年度傑出人物獎」。 2018年12月，當他被告知必須根據澳大利亞《外國影響透明計劃》報備其活動後，才辭去其漢辦董事會職務。
 
-“Before returning to service to transport or store human or animal food, refrigerated food transport vehicles and refrigerated food storage units used to hold human remains during the COVID-19 pandemic should be thoroughly cleaned and disinfected,” the document says.】
+為什麼甚至在中共將超過一百萬以穆斯林為主的少數民族囚禁在集中營，派遣數十萬人從事強迫勞動，並持續嚴厲打擊言論和宗教自由時，昆士蘭大學還要增進與中共的聯繫呢？ 昆士蘭大學有近10,000名來自中國大陸的學生，每年收取至少1.5億美元的學費。 只要屈服於中共官員，該市場就能夠保持開放。 在2020年2月的UQ校董會上，董事會批准向霍伊支付六位數的秘密獎金，而他已經擁有令人垂涎的120萬澳元年薪。 當學生提出質疑時，得到的答案是，他滿足所有的KPI，其中一項指標就有促進「與中共的互動」。
 
-中文大意：【FDA說，FDA在5月12日發佈的非約束性建議中解決了這些問題。該檔被視為一系列建議，而不是法律上可強制執行的命令。該指南指出其他機構可能有相關規定。該文件說：“在返回運輸或存儲人類或動物食品的服務之前，應徹底清洗和消毒用於保存COVID-19大流行期間用於保存人類遺體的冷藏食品運輸工具和冷藏食品存儲單元。”】
+2019年7月，該學生髮起了一個呼籲昆士蘭州完全切斷與中共的聯繫，直到釋放藏人，關閉維吾爾族集中營，為香港人提供更多民主的和平校園靜坐活動。蒙面的小粉紅們襲擊了此次集會並且毆打了參與者。之後，該學生被布里斯班總領事兼昆士蘭大學徐教授定義為「分裂主義者」。在徐的聲明之後，該學生收到了數十條死亡威脅，其中一些卑鄙之徒還說要折磨其家人並強姦其母親。
 
-【Special recommendations are given in cases where there is “evidence that interior surfaces were in direct contact with blood or bodily fluids.”】
+即使徐某威脅過學生的安全，昆士蘭大學也從來沒有過解僱他，僅僅發表了一份聲明，肯定了該學生的「和平抗議」，但在幕後威脅說，如果再舉行一次集會，將取消學生的入學申請。昆士蘭州政府官員招募了一名支持中共的候選人，專門針對該學生競選學生會。支持CCP的候選人在中國社交媒體上公開抨擊該學生「反中國」，使得該學生在競選活動時遭到襲擊，校園裡張貼著用普通話威脅攻擊他的海報。
 
-中文大意：【如果“有證據表明內表面直接與血液或體液接觸”，則提出特別建議。】
+當該學生當選時，昆士蘭大學加大了騷擾。在他在網上針對孔子學院和中國政府關係發表諷刺文章之後，昆士蘭大學聘請了澳洲一流律師克萊頓•烏茨（Clayton Utz）恐嚇威脅該學生，聲稱如果不立即刪除該文章，昆士蘭大學保留「開始訴訟……以尋求包括賠償費用在內的費用」的權利。作為一個20歲的學生，該學生幾乎沒有能力向UQ等10億美元的機構支付「賠償費用」，但大家都知道，這只是威脅恐嚇而已。
 
-防火牆存在的意義，在於它可以阻止牆外資訊的流入，還在於它可以肆無忌憚地隨便引用所謂“外媒”資訊，對於這條新浪微博提到的“明確運屍卡車徹底清潔消毒後可運送食品。該指導意見並未事先徵求公眾意見，FDA稱沒有必要讓公眾預先參與。”，也許會是假外媒、真大外宣的蓄意誤導，但是就直覺來說，FDA不會也不敢“稱沒有必要讓公眾預先參與”，但是我們要看到的是隨著美國和其他國家相繼跟進要求查明病毒真相的壓力越來越大，隨著真相日益浮出水面，如何誤導國內民眾，讓更多民眾死心塌地被綁架到中共的戰車上，這是中共媒體一直在做的事情。
+儘管受到公眾和澳大利亞政府高層的譴責，還有32,000人簽名反對開除該學生的請願書，但昆士蘭大學一意孤行繼續這場政治鬧劇。該大學死後並不在乎即將發生的公共關係災難，因為他們真正的金主是中共。 4月，《環球時報》發表了一篇文章，呼籲開除該學生。
 
-在這一起對於美國冷藏車及FDA的惡意炒作上，我們的同胞們會不會記起那三個幼童屍體被裝進同一個屍體袋的視頻——
+這件事向全國各地的學生髮出一個可怕的信號。這是在威逼學生進行自我審查。如果學生敗訴，誰還敢發聲？
 
+小結：澳洲的戰友們，還等什麼呢？紅衛兵到了澳洲，毆打學生，這不就是個低配版的天安門事件么？抵制UQ，支持學生，讓他們有本事就一輩子只從中共手裡拿錢，絕不能讓該校拿到本地政府一分錢的資助，在推特，油管平台發聲支援學生合理合法的運動。學生的今天就是你們孩子的明天，積極發聲讓全澳洲聽見你們的聲音！
 
+[原文鏈接](https://foreignpolicy.com/2020/05/14/i-criticized-my-universitys-ties-to-the-chinese-government-now-i-face-expulsion/)
 
-這樣的視頻絕對不會在中共的媒體上出現，或者即使在中共控制的社交媒體上即使出現了也是秒刪，但是我們不應該忘記，在我們生活的這個國度，每一個草根，病時難以得到有效的救治，在他們離去時，得不到有尊嚴和體面的對待，甚至他們的離去連一個數字都不會增加，更有甚者，為他們舉行的葬禮和悲泣都是不被允許的。
-
-它們靠謊言和暴力阻斷真相、殘害生命，他們在唱著讚歌進行大規模的殺戮，隨著清算日的日益臨近，這樣的謊言還能持續多長時間？
-
-（文章內容僅代表作者個人觀點）
+匿名
 
 0
