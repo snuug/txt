@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月15日中共病毒疫情要聞快報
-`2020-05-16 06:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/204848/)
+## 川普總統去大衛營前的講話
+`2020-05-16 09:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/204960/)
 
-**重點內容：**
+5月15日，川普總統在大衛營前前對記者表示：“他們（中共國）在貿易協定上花費了很多錢，但是貿易協定已經無關緊要了，我已對此失去了興趣。”
 
-- 川普直言中美斷交可能性；
-- 中共病毒引起兒童川崎病；
-- 武漢全民檢測核酸引民憤；
-- 安徽小鎮千家口罩場倒閉八成。
+出處：[President Trump Delivers Remarks Upon Departure](https://youtu.be/-aXbUkNRZSs)
 
-
-
-
-製作：【上天造 滅疫組】
+翻譯 & 字幕：【Jennifer】
 
 0

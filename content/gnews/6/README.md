@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年5月15日CCP冠狀病毒大流行第112集
-`2020-05-16 13:38 GM30` [轉載自GNews](https://gnews.org/zh-hant/205108/)
+## 戰友之家“挺郭滅共，這三年！”演講（第4期）
+`2020-05-16 22:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/205373/)
 
-江蘇省丹陽市淩口發生爆炸，中共女警報複性創收搶奪電動車，吉林市舒蘭疫情嚴重四處都是醫務人員，恢複收費後過路費暴漲，中共經濟下滑各種次生災害…
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16222023/11-6.jpg)
 
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77](https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77)
 
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
