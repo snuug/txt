@@ -1,20 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月16日中共病毒疫情要聞快報
-`2020-05-16 21:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205345/)
+## 戰友之家“挺郭滅共，這三年！”演講（第4期）
+`2020-05-16 22:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/205373/)
 
-**重點內容：**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16222023/11-6.jpg)
 
-- 美國中共病毒疫苗有望年底問世；
-- 海外企業被禁止為華為供貨；
-- 疫情嚴峻，吉林465醫院全部清空變為定點醫院；
-- 蘋果生產線搬遷印度;
-- 鄭州富士康掀起離職潮。
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77](https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77)
 
-
-
-
-製作：【上天造 滅疫組】
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
