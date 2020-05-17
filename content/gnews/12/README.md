@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月16日 美國政要推文選譯
-`2020-05-16 19:42 GM65` [轉載自GNews](https://gnews.org/zh-hant/205240/)
+## 台灣對中共同意其參加世衛大會提出的條件說“不”
+`2020-05-17 08:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205554/)
 
-> Why is it that China, for decades, and with a population much bigger than ours, is paying a tiny fraction of $’s to The World Health Organization, The United Nations and, worst of all, The World Trade Organization, where they are considered a so-called “developing country” and…
-> — Donald J. Trump (@realDonaldTrump) [May 16, 2020](https://twitter.com/realDonaldTrump/status/1261793132020224005?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17080526/Picture-1-187.png)
+據路透社台北報導，週五，在台北的一個新聞發布會上，台灣衛生部長陳時中拒絕了中共提出的條件，即必須接受台灣是中共領土的一部分。
 
-川普總統 連推：為什麽幾十年來，人口比我們大得多的中國只向世衛組織、聯合國以及最過分的世貿組織繳納很少部分的會費，而他們被當作所謂的“發展中國家”，因而得到比美國和其他國家優惠得多的待遇？在瘟疫從中國傳過來之前，我們的經濟震撼了所有人，是有史以來最好的。我們很快會恢復。
+目前台灣正積極努力爭取以觀察員的身份參加下週舉行的世衛大會視頻會議。台灣認為中共冠狀病毒大流行使台灣加入世衛組織比以往變得更加迫切。中共對此表示強烈反對，並稱台灣參加世衛大會必須遵守“一個中國”的原則，包括必須接受它是中共領土的一部分。
 
-> Sen. Tom Cotton has been attacking China’s behavior amid the pandemic—and has a plan to take advantage of the crisis to roll back Chinese power [https://t.co/FkigULnAe7](https://t.co/FkigULnAe7)
-> — Tom Cotton (@SenTomCotton) [May 16, 2020](https://twitter.com/SenTomCotton/status/1261630031496982528?ref_src=twsrc%5Etfw)
+中共認為在世界舞台上他們可以代表台灣。然而，台灣外交部副部長謝凱莉（Kelly Hsieh）認為只有民選的政府才能代表台灣2300萬人民。
 
-參議員 Tom Cotton：Tom Cotton參議員壹直抨擊中國在疫情中的表現——並計劃借助這次危機來削減中國的力量。（《華爾街日報》）
+台灣衛生部長陳時中則表示：“我沒有辦法接受一個原本不存在的東西。” 他說台灣不會放棄努力加入世衛組織，儘管截至目前還未收到世衛組織的邀請。
 
-> What’s unreasonable is the CCP’s espionage, IP theft, suppression of human rights, and oh yah, causing a global pandemic. [https://t.co/dr4Y92eC2K](https://t.co/dr4Y92eC2K)
-> — Tom Cotton (@SenTomCotton) [May 16, 2020](https://twitter.com/SenTomCotton/status/1261659953183547393?ref_src=twsrc%5Etfw)
+台灣參加世衛大會具有廣泛的外交重要性，尤其是得到了美國和日本強有力的支持。在世衛組織所在地日內瓦，美國代表團在一份聲明中指出，台灣對於中共冠狀病毒成功的應對措施將使世界其它國家受益。此外，英國和德國駐台北大使館也各自發表了聲明並表示支持台灣參加世衛大會。
 
-參議員 Tom Cotton：令人不能接受的是中共的間諜活動、知識產權盜竊、壓制人權，啊對了，還有導致全球疫情大流行。
+[原文鏈接](https://www.reuters.com/article/us-health-coronavirus-taiwan/taiwan-rejects-chinas-main-condition-for-who-participation-idUSKBN22R0HM)
 
-路透社：中國要求美國停止對華為的“無理打壓”。
+翻譯報導：喜馬拉雅
 
-> A 9th Expeditionary Bomb Squadron B-1B Lancer flies over the East China Sea during a training mission. It is deployed to Andersen Air Force Base supporting [@PACAF](https://twitter.com/PACAF?ref_src=twsrc%5Etfw)’s missions & commitment to [@INDOPACOM](https://twitter.com/INDOPACOM?ref_src=twsrc%5Etfw). 
-> 
-> 📸 U.S. Air Force photo by Senior Airman River Bruce [#ReadyAF](https://twitter.com/hashtag/ReadyAF?src=hash&amp;ref_src=twsrc%5Etfw) [#AimHigh](https://twitter.com/hashtag/AimHigh?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/52vCeuFiHW](https://t.co/52vCeuFiHW)
-> — U.S. Air Force (@usairforce) [May 16, 2020](https://twitter.com/usairforce/status/1261468921774948356?ref_src=twsrc%5Etfw)
-
-比爾格茨先生轉推：美國空軍：壹架第九遠征轟炸中隊的B-1B槍騎兵轟炸機在訓練中飛越中國東海。已部署到安德森空軍基地，支援太平洋空軍，受美國印度洋-太平洋司令部調遣。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16194221/08_2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16194228/2-2-2.png)
 0

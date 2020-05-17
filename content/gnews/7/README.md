@@ -1,23 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-16 22:38 GM77` [轉載自GNews](https://gnews.org/zh-hant/205409/)
+## 人權組織：港警肆意拘捕、羞辱、 毒打和虐待對待被捕人士
+`2020-05-17 10:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205644/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17085244/Picture-1-188.png)圖片來源：VOG文宣組
+據《香港自由新聞》最新報導，人權組織的一份報告中援引45個證詞控訴港警對被拘留者實施酷刑。
 
-[English\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223308/English_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223308/English_0515_CCP_Virus_Updates.pdf)
+**控訴警察暴行**
 
-[French\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223314/French_0515_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223314/French_0515_CCP_Virus_Updates_.pdf)
+源起反送中法案遊行後來演變成一場，對香港日益減少的民主自由危機的抗爭。在抗議者與警察的街頭衝突中，無數人受傷，這引發了國際社會對香港缺乏問責制的批評。
 
-[German\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223316/German_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223316/German_0515_CCP_Virus_Updates.pdf)
+負責監視警察的當地組織民權觀察員周二表示，被拘留者在接受采訪時稱他們均有遭受到違反國際人權法和國內法規的虐待。其中包括有不人道或有辱人格的待遇或處罰，嚴重毆打，過度使用武力，性騷擾，言語羞辱，暴力威脅以及延遲獲得醫療或法律援助。
 
-[Japanese\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223321/Japanese0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223321/Japanese0515_CCP_Virus_Updates.pdf)
+據人權報告中指出，在受訪者中，有24人稱被警察言語羞辱，13人稱遭受暴力對待， 15人稱被拒絕立即就醫服務，16人稱被延誤了與律師的聯繫，還有13人稱遭到“嚴重暴力傷害”。
 
-[Korean\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223325/Korean0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223325/Korean0515_CCP_Virus_Updates.pdf)
+**殘酷的身體攻擊**
 
-[Russian\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223331/Russian_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223331/Russian_0515_CCP_Virus_Updates.pdf)
+民權觀察員還提供了7個控訴警察虐待行為的匿名證詞，其中兩個涉及嚴重的人身攻擊。
 
-[Spanish\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223334/Spanish_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223334/Spanish_0515_CCP_Virus_Updates.pdf)
+- 一名男子聲稱他被15名警察包圍，並用警棍毆打他的“手指關節，手臂，骨盆，大腿和頭部”。在拘留中，警察讓他吞食硬物，並要求他吞下所有嘔吐物。拘留期間，黑警在他的隨身物品中放入一塊磚，讓他蹲下，用頭貼進大腿約15分鐘，過程中反復向他吼叫。
+- 另一名男子說，在被制服時，警察掐住他的脖子長達15至50秒，直到他無法呼吸到干嘔。除此之外，警察還近距離向他的眼睛強光照明約15秒鐘，並告訴他：“這樣一分鐘，你就會失明。”
+
+
+此外，其他證詞中還詳細說明了警察襲擊拘留者生殖器，肆意違反準則搜身並強迫被拘留者解鎖手機的情況。
+
+監督機構還指出，不可能“完全確定”每個受訪者是抗議參與者還是社會工作者，觀察員，新聞工作者或急救人員。
+
+**聯合國專家對主要維權人士被捕表示擔憂**
+
+人權報告還補充說會把調查結果將與聯合國以及國際民間社會團體分享。該組織的聯合創始人伊卡洛斯·王（Icarus Wong）和安德魯·沉（Andrew Shum）呼籲當局應當立即調查警察的不當行為。並表示：“為懲戒肇事者，保護受害者，我們敦促香港政府建立一個完全獨立的警察投訴機制，以對酷刑或虐待行為進行調查。”
+
+與此同時，週三，三名聯合國特別報告員克萊門特·尼亞耶索索西·沃勒（Clement Nyaletsossi Voule），戴維·凱伊（David Kaye）和瑪麗·羅勒（Mary Lawlor）敦促香港當局放棄對15名主要民主運動人士的刑事起訴（他們於上個月因涉嫌“組織和參與非法活動”而被捕）。
+
+聯合國專家在一份聯合聲明中說：“即使抗議活動需要獲得授權，但任何人都不得因參加和平抗議而受到行政或刑事制裁。”
+
+[原文鏈接](https://hongkongfp.com/2020/05/14/hong-kong-police-tortured-detainees-says-rights-group-as-un-experts-voice-concern-over-leading-activists-arrests/)
+
+翻譯報導：明澈
 
 0
