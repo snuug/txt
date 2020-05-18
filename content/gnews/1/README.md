@@ -1,47 +1,115 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月17日 美國政要推文選譯
-`2020-05-17 17:51 GM65` [轉載自GNews](https://gnews.org/zh-hant/205841/)
+## 川普:我們有很多關於武漢實驗室的不好的消息
+`2020-05-17 23:07 GM31` [轉載自GNews](https://gnews.org/zh-hant/205992/)
 
-> Nature’s beauty at our place in East Texas this weekend. I send my congratulations and strength to President Tsai of Taiwan 🇹🇼 for her inauguration this week. Stay strong against the global tyrants in the CCP! ⁦[@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw)⁩ [#sovereignty](https://twitter.com/hashtag/sovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [#independence](https://twitter.com/hashtag/independence?src=hash&amp;ref_src=twsrc%5Etfw) [#Democracy](https://twitter.com/hashtag/Democracy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HnmQsPtgOr](https://t.co/HnmQsPtgOr)
-> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 17, 2020](https://twitter.com/Jkylebass/status/1261985438820163584?ref_src=twsrc%5Etfw)
+福克斯商業新聞在5月17日播放了星期日早間新聞主持人瑪麗亞對川普總統的採訪。他們談及的武漢病毒實驗室和中美關係現狀。川普總統說：“重要的是他們不應該讓這種事發生。我談成了一筆很大的貿易協定，但是現在我說：我感覺不一樣了。（貿易協定）墨水還沒幹，瘟疫就來了，我對貿易協定的感覺完全變了，你懂的。”
 
-卡爾·巴斯先生：周末，我們位於德州東部的家的自然美景。下周蔡英文總統即將舉行就職儀式，我向她表示祝賀和支持。堅決反對中共這個全球獨裁主義者。
 
-> Our Joint Letter to the SEC and PCAOB to Ensure China Complies With US Securities Laws and Regulations – just released.[#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@SEC\_Enforcement](https://twitter.com/SEC_Enforcement?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@CPDChina](https://twitter.com/CPDChina?ref_src=twsrc%5Etfw) [https://t.co/CCTT4jU7JY](https://t.co/CCTT4jU7JY)
-> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 17, 2020](https://twitter.com/Jkylebass/status/1262061708216086531?ref_src=twsrc%5Etfw)
 
-卡爾·巴斯先生：我們聯名致信美國證券交易委員會（SEC）和美國公眾公司會計監督委員會（PCAOB），以確保讓中國遵守美國證券法律法規——剛剛發布（網站：當前危機委員會：中國）
+瑪麗亞：
 
-> American journalists in Hong Kong are members of a free press, not propaganda cadres. Any action to interfere with their work and impinge on Hong Kong’s freedoms would impact our assessment of One Country, Two Systems and the territory’s status.
-> — Secretary Pompeo (@SecPompeo) [May 17, 2020](https://twitter.com/SecPompeo/status/1262109880200069120?ref_src=twsrc%5Etfw)
+突發新聞。今天上午，我們一直在關注克利夫蘭凱斯西儲大學(Case Western Reserve University)的一位教授，他因涉嫌與中國存在金融關係而被捕。就在幾天前，美國聯邦調查局(FBI)對中國試圖竊取冠狀病毒研究發出警告。上周，阿肯色大學(University of Arkansas)的一名教授因類似指控被捕。然後，在一月份，哈佛大學的化學主任也被指控沒有披露他的工資是由中國共產黨支付的。兩周前，參議員湯姆·科頓(Tom Cotton)告訴我們，CCP正試圖以多種方式竊取美國的醫療資料，以便在美國之前研製出一種新型冠狀病毒(COVID-19)疫苗。
 
-美國國務卿 蓬佩奧：美國駐香港的記者是自由媒體的成員，不是大外宣的人。任何幹預他們工作的行為和對香港自由造成的負面影響都會影響到我們對“壹國兩制”和香港地位的評估。
+我與川普總統的會談包括這一點。我們討論了智慧財產權盜竊和疫情對他與中國和中國國家主席習近平的關係的影響。
 
-> Coalition of 62 nations backs virus probe, including the 27 EU member states and Russia. [https://t.co/yjyKIqSjaf](https://t.co/yjyKIqSjaf)
-> — Sari Arho Havrén (@SariArhoHavren) [May 17, 2020](https://twitter.com/SariArhoHavren/status/1261926129121755136?ref_src=twsrc%5Etfw)
+瑪麗亞：
 
-斯伯丁將軍 轉推 Sari Arho Havrén：六十二個國家聯合支持對病毒進行調查，包括27個歐盟國家和俄羅斯。（《澳洲人報》）
+國務卿蓬佩奧表示，他有強有力的證據表明病毒確實來自病毒實驗室。順便說一句，我們從一開始就在每週日報導這個消息。你還說你看到了證據。你能告訴我們一些有關情報的事情嗎?
 
-> The Chinese gov't—through its propaganda organ the Global Times—has threatened me & a handful of U.S. lawmakers &officials seeking to legally empower COVID-19 victims to bring lawsuits in U.S. courts against the Chinese gov't.
-> Click🔗to read press release: [https://t.co/p3A1H4wHMU](https://t.co/p3A1H4wHMU)
-> — Rep. Chris Smith (@RepChrisSmith) [May 17, 2020](https://twitter.com/RepChrisSmith/status/1261828497162543104?ref_src=twsrc%5Etfw)
+川普總統：
 
-眾議員 Chris Smith：中國政府——通過它的大外宣機構《環球時報》——對我和其他多名議員和官員發出威脅，因為我們希望冠狀病毒受害者通過合法程序將中國政府告上美國法庭。
+不，不行。但我們掌握很多不好的資訊。但是，你知道，最糟糕的是，不管它是來自實驗室還是蝙蝠，都沒關係，都來自中國，他們應該阻止它。他們本可以在源頭阻止它，我叫它源頭，就在那裡，他們應該…
 
-> Europe should PERMANENTLY ban Chinese takeovers. Actually, the whole world should — and likely will. [https://t.co/1mquHKa1YX](https://t.co/1mquHKa1YX)
-> — Dan Harris (@danharris) [May 17, 2020](https://twitter.com/danharris/status/1261825681991757824?ref_src=twsrc%5Etfw)
+瑪麗亞：
 
-斯伯丁將軍 轉推 Dan Harris：歐洲應該永久禁止中國收購（歐洲公司）。事實上，全世界都該如此——也很可能這樣做。
+他們做了一個決定，允許病毒逃離中國邊境。
 
-路透社：歐洲人民黨議會領袖韋伯說，歐洲應該暫時禁止中國收購
+川普總統：
 
-> Bye bye DJI [https://t.co/ONeJfnjW0T](https://t.co/ONeJfnjW0T)
-> — General Spalding (@robert\_spalding) [May 17, 2020](https://twitter.com/robert_spalding/status/1261990955651084289?ref_src=twsrc%5Etfw)
+我不知道他們是否做了這個決定，但病毒失控了。我認為病毒更有可能是失控了。
 
-斯伯丁將軍：拜拜了，大疆科技。
+瑪麗亞：
 
-sUAS News（專業無人機信息網站）：美國世強法律事務所為道通公司（Autel）贏得了在美國國際貿易委員會與大疆科技公司（DJI）的專利糾紛案。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17174737/08_5.png)
+科頓參議員指出，他們（中共）不希望當中國經濟下滑20%時，世界其他地區只下滑2%。
+
+川普總統：
+
+所以，在這之前，我們把他們打得很慘。我們通過關稅和我們做的其他事情打敗了他們。我們的經濟在上升，而他們這一年過得很糟糕。這是他們56年來最糟糕的一年。
+
+瑪麗亞：
+
+…香港的抗議者走上街頭。
+
+川普總統：
+
+不僅如此 ，我們在此前真的很好。我非常確認這是他們的一個理念，就是他們不允許這整件事只發生在中國。他們不允許人們去中國，但是他們並讓他們的人飛到世界各地包括美國。這就是歐洲一團糟的原因。這就是為什麼看看這些國家，俄羅斯正在經歷一段艱難的時期，每個國家都在經歷一段艱難的時期。
+
+瑪麗亞：
+
+那麼，你認為這些國家的情況會變得更糟嗎?
+
+川普總統：
+
+對某些國家來說是的。一些國家剛剛開始這個過程。我們正在接近這個過程的終點。
+
+瑪麗亞：
+
+你知道，所以，他們淡化了疫情。他們對病毒輕描淡寫。與此同時，他們允許國際旅行。500萬人離開武漢，去了義大利，去了美國，然後他們開始加速生產防護設備，儘管中國已經是最大的生產商。
+
+川普總統：
+
+是的，有這種可能。這不是什麼大事，你看，重要的是他們不應該讓這種事發生。我談成了一筆很大的貿易協定，但是現在我說：我感覺不一樣了。（貿易協定）墨水還沒幹，瘟疫就來了，我對貿易協定的感覺完全變了，你懂的。
+
+瑪麗亞：
+
+他們會重談一次嗎? 他們不會買2500億美元的商品了，對吧?
+
+川普總統：
+
+他們將購買2500億美元。我有看到他們說，他們願意重新談判。我們不會重新談判的。你知道，我現在對任何與那個特定主題有關的事都不高興。
+
+瑪麗亞：
+
+你和習近平談過了嗎?
+
+川普總統：
+
+我和他的關係很好，但我現在，我不想和他們說話，我不想和他說話。
+
+瑪麗亞：
+
+因為，你知道，科頓參議員說: “也許我們應該限制發放給學生的簽證數量，對那些想要學習類似於量子計算的學生。”
+
+川普總統：
+
+有很多東西。我們可以做很多事情。我們可以做很多事情。我們可以斷絕這段關係。如果你這麼做了，會發生什麼? 如果你切斷這段關係，你可以節省5000億美元。你看，在某種程度上，我說了很多年，我也和其它國家說過。你知道，中國不是唯一一個占我們便宜我們的國家。在北約，我們免費保衛歐洲，補充一句，基本上免費，我能夠讓他們多支付幾千億美元。你知道我最大的粉絲是誰嗎?北約秘書長斯托爾滕貝格
+
+瑪麗亞：
+
+實際上他在節目裡跟我說過。
+
+川普總統：
+
+他說過，他在那裡已經很長時間了，他說從來沒有人站出來說，你知道，我們付的越來越多，他們付的越來越少。你必須看到他們的支付統計表。所以我們在保護歐洲，他們在貿易上占我們便宜。這都是過去的事了，一切都在好轉。
+
+瑪麗亞：
+
+你把錢拿回來了。你把錢從儲蓄基金裡拿回來來了。他們想把10%的儲蓄基金投入MSCI指數中的中國公司，500億美元。如果中國公司想在紐約證券交易所和NSADAC上市，你會進一步要求它們遵守會計規則嗎?
+
+川普總統：
+
+所以，我們在做強力調查，但是在儲蓄基金方面，你知道，它是由奧巴馬設立的，對吧?我們跟他們說了必須這樣做，我們很快就會知道他們是否會這樣做。如果他們不做，我們將很快把他們換掉。我們正在研究你問題的第二部分，我們正在調查。
+
+瑪麗亞：
+
+因為像阿裡巴巴這樣的中國公司，任何中國公司，他們在紐約證券交易所上市，他們不需要像美國公司那樣報告他們的收益?
+
+川普總統：
+
+很不可思議。但是，這裡有個問題，你知道，你看，我不想這麼說，但是假設我們這樣做，對吧，那麼他們會怎麼做？他們要把上市地點搬到倫敦或其它地方，明白嗎？假設你想變得強硬，你要，你知道，每個人都想成為一個強硬的人。看，我是最強硬的人，但是發生的是，所以我們說：“你要這樣做，你要遵循紐約證券交易所或NADAC的規則”。 他們會怎麼做? 他們說：“好吧，我們轉移到倫敦去，我們轉移到香港去。”
+
+*聽寫：【Michelle】 翻譯：【豆小豆】 校對：【Michelle】*
+
 0

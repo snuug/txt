@@ -1,48 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP公開在澳洲大學為香港黑警隊伍補血招聘“打手”？
-`2020-05-17 07:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205523/)
+## 美國CDC公佈：紐約市在2020年3月11日至5月2日期間的死亡人數超出同期正常年份2萬4千多人
+`2020-05-17 09:54 GM31` [轉載自GNews](https://gnews.org/zh-hant/205611/)
 
-- 招聘中的香港警衛職務包括 “維持治安、防止和調查罪案，以及處理緊急事故”。
+**總結**
 
-![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/09212224/%E9%A6%99%E6%B8%AF%E8%AD%A6%E5%AF%9F%E4%BD%BF%E7%94%A8%E8%83%A1%E6%A4%92%E5%99%B4%E9%9C%A7%E5%81%9C%E6%AD%A2%E5%B8%82%E6%B0%91%E6%8A%97%E8%AD%B05.jpg)圖片來源：[HKFP](https://hongkongfp.com/)
-據SBS新聞報導，在澳洲多所大學，赫然出現中共香港警署公開招聘警員信息。現大學在面臨當地民主運動團體的強烈抗議後，開始陸續撤除在其網站上招聘廣告。
+在CDC最新一期的刊物上發表了一篇關於紐約市截止到5月2日的新冠死亡人數的估算。 自3月11日在紐約市出現首例確診新冠病毒的死亡以來，至5月2日期間，紐約市記錄在案的所有死因的死亡總人數為32,107，這個數字超出正常年份同期死亡人數多達24,172人- 這就是所謂的“過量死亡”。這個數字高於新冠確診和疑似病例的總和，有可能反映了真實的由於冠狀病毒導致的直接或間接死亡的總人數。這種利用正常年份的死亡資料來估算過量死亡人數的方法，能提供一種比記錄實驗室確診病例和疑似病例更為靈敏的衡量冠狀病毒致死總人數的方法。從這個報告中的圖表中，我們還看到：紐約的死亡高峰出現在四月初，此後一直呈穩定下降趨勢。
 
-報導指出在過去一周，悉尼科技大學 University of Technology Sydney (UTS) ，新南威爾士大學 The University of NSW (UNSW) 和墨爾本大學 The University of Melbourne 的網站上，都出現了香港警察部隊職位的招聘廣告。
+**正文**
 
-民間組織 “澳港聯 “ （Australia-Hong Kong Link）隨後帶頭髮起了一場運動，向大學施壓。他們認為，學校不該與當下香港的警察部隊有任何關聯，因為這些黑警在過去一年裡對香港的民運示威活動 “屢下重手”。
+**2020****年****3****月****11****日至****5****月****2****日在紐約市發生****COVID-19****暴發期間的過量死亡人數的初步估計**
 
-澳港聯代表、大學生Dennis Chan （化名）告訴SBS新聞，現在的香港警察部隊是一個 “無道德倫理的雇主”，因為他們濫用武力，利用警察的權力倒行逆施。 “
+作者：紐約市衛生和心理衛生部（DOHMH）COVID-19回應小組
 
-悉尼科技大學以及新南威爾士大學網站上的招聘廣告已於本週四被刪除。然而墨爾本大學決定在線上保留該招聘公告。
+翻譯自：[https://www.cdc.gov/mmwr/volumes/69/wr/pdfs/mm6919e5-H.pdf](https://www.cdc.gov/mmwr/volumes/69/wr/pdfs/mm6919e5-H.pdf)
 
-“學生就業網站是雇主用來向墨爾本大學學生髮布的的招聘廣告。這其中就包括了像香港警察部隊發布的這則公告，這可能會吸引正在考慮完成學業後回國的國際學生的興趣。”大學發言人說。
+美國衛生與公共服務部（HHS）和疾控中心（CDC）《發病率和死亡率週報》（MMWR），第69卷19期 ，2020年5月15日
 
-招聘廣告中的職務包括 “維持治安、防止和調查罪案，以及處理緊急事故”。
+SARS-CoV-2是引起2019年冠狀病毒疾病的病毒（COVID-19，新冠病毒），於2019年12月在中國武漢首次發現，此後在全球傳播。2020年3月11日，世界衛生組織宣佈新冠病毒成為大流行病【1】。當天，在紐約市出現首例確診新冠病毒的死亡。新冠死亡定義為在實驗室確診的由於新冠病毒感染而發生的死亡。為了辨認新冠死亡病例，紐約市衛生和心理衛生部（DOHMH）於2020年3月13日開始每天對報告給DOHMH電子生命登記系統（eVital）的所有死亡【2】和實驗室確診的新冠死亡之間進行匹配。在死亡證明中將COVID-19、SARS-CoV-2或類似術語列為直接死因、潛在死因或貢獻死因，而沒有被實驗室確診的死亡定義為疑似死亡。 截止5月2日，紐約市總共記錄在案了13,831例經實驗室確診的新冠死亡病例和5,048例疑似新冠死亡病例【3】。然而，只統計確診和疑似死亡病例，可能會低估因新冠病毒大流行而造成的實際死亡人數，因為在確診和疑似死亡病例中可能不包括感染新冠病毒的死者中未接受診斷檢測的、檢測假陰性或在陰性後又感染的、在醫療機構之外死亡的、或者醫護人員未曾懷疑新冠為死亡原因的人數。確診和疑似新冠死亡的人數中也不包括與新冠感染沒有直接關聯的死亡病例。本報告的目的是提供在新冠病毒大面積社區傳播的情況下，在紐約發生的過量全因死亡人數的估算。“過量死亡”是指超過預期的季節性基準水準的死亡人數（包括所有死因）。對過量全因死亡人數的估計可用於對大流行病的嚴重程度和影響【4】和突發公共衛生事件【5】進行非特定性衡量。報告過量死亡人數可能提供更精確的大流行病影響度量。
 
-澳港聯稱，自香港抗議活動開始以來，應聘各級警隊的人數減少了一半。
+DOHMH已開發了一種電子生命統計報告系統，該系統幾乎可以完全統計紐約市發生的所有死亡事件【6】。在獲得完整的人口資料和國際疾病分類的死因編碼資訊（第十次修訂版；簡稱ICD-10）以前，使用此電子系統快速報告死亡事件，可以及時監控紐約市的所有死亡（即全因死亡率）。我們使用了季節性週期回歸模型來估算在新冠病毒大流行期間紐約市的過量死亡人數，該模型通常用於監測季節性流感的影響【7】。對2020年3月11日到5月2日期間的過量死亡的估計是利用2015年1月1日到2020年5月2日之間的死亡資料，並計算季節性預期基線數與報告的全因死亡數之差【7，8】。這種方法的一個局限性在於它未考慮到這些臨時資料的報告延遲或完整性方面的不確定性。
 
-而香港警方的監督機構週五為警員處理民運抗議活動開脫罪名，認為市民對警隊的憤怒是網上抹黑的結果，對警察施暴的指控已成為 “政治抗議的武器。”
+在2020年3月11日至5月2日期間，向DOHMH報告的死亡總人數為32,107，其中有24,172人（95％置信區間是 22,980–25,364）是超過了季節性預期基線的過量死亡。在24,172例死亡中，有13,831例（57％）為實驗室確診的死亡，有5,048例（21％）為疑似新冠死亡，還剩下5,293例（22％）的過量死亡不能歸類為確診或疑似新冠死亡病例（圖）。
 
-警方曾多次表示，面對高發的暴力事件，他們是被動的，也是克制的。
+圖： 紐約市2020年3月11日到5月2日之間實驗室確診\*和疑似†新冠死亡人數和估計的過量死亡總數§
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17095327/image-22.png)
+\* SARS-CoV-2 RNA實驗室檢測呈陽性的死亡人數。
 
-用中共的話說，“世界人民的眼睛是雪亮的。”事實上，不僅僅是抗議者，國際特赦組織聲稱，香港警方在抗議活動中“出現了一種’令人震驚的模式，即香港警方在抗議活動中使用了’魯莽和不分青紅皂白的戰術’，以及’對被拘留的民眾實施報復性的暴力，其中一些暴力相當於酷刑！’”
+†未通過SARS-CoV-2 RNA陽性檢測但在死亡證明中將COVID-19、SARS-CoV-2或相關術語列為直接死因、潛在死因或貢獻死因的死亡人數 。
 
-評：
+§過量全因死亡人數是用觀測到的死亡人數減去根據季節回歸模型預期的死亡人數（利用2015年1月1日至2020年5月2日期間的死亡數據）。
 
-香港數月來的大規模民主抗議活動屢遭黑警的迫害，這個曾經東土最璀璨的明珠，已然傷痕累累，但是絕不會黯然無光，因為有千萬勇敢智慧的香港同胞用自己的生命捍衛這片土地。
+5,293例未確認為確診或疑似新冠死亡的病例，或許可以直接或間接地歸因於大流行。過量死亡在SARS-CoV-2感染者或受大流行間接影響的人當中所占的百分比是未知的，需要進一步調查。
 
-一萬多名香港同胞為華民主自由犧牲了他們的生命，卻有更多的爺爺奶奶、叔叔阿姨、哥哥姐姐、弟弟妹妹們手牽著手走上大街。面對已經喪盡天良的黑警，他們仍然沉著、冷靜、無畏地做著他們認為必須做的事。
+在患有諸如心臟病和糖尿病的慢性病患者中，新冠病毒死亡率較高【9】，這些慢性病患者的死亡可能不被直接歸因於新冠病毒。此外，社交疏遠、對醫院和醫護工作者的需求、以及公眾對新冠病毒的擔憂，都可能會延誤民眾尋求或獲得能夠挽救生命的治療。因此，在大流行期間對全因死亡進行監測和對過量死亡的估算，能夠提供一種比統計實驗室確診或疑似新冠死亡人數更為靈敏的衡量死亡總人數的方法。
 
-因為香港人知道，他們別無選擇，正如同89年的六四一樣，即便中共現在暫時停手，未來它也不會放過每一個香港人。中共對內，魚肉百姓方面，最擅長的一招，就是秋後算賬。
+這種方法考慮了在時間上（而非因果關係）與SARS-CoV-2相關的可能會影響死亡率的因素，包括與之重疊的2019-20流感季節期間傳播的其它病原體。基於電子死亡報告系統的全因死亡率監測為衡量大流行病對死亡率的影響提供了比單純依靠國家新冠病毒報告機制更快和更具包容性的措施【10】。
 
-香港的經濟也許一落千丈，但她的人性之光，已照亮了整個世界，照醒了白宮，也刺瞎了中共的雙眼。她告訴我們，在這個世界上，竟然還存在著那麼一塊龐大的土地，在這片土地上，沒有人權、沒有法治、沒有人身財產安全、沒有人的尊嚴。香港，未來的華夏聯邦的耶路撒冷，不論它中共鷹犬如何張牙舞爪，她就是我們的自由女神，神聖不可玷污。
+**致謝**
 
-學府應該永遠的純粹、堅持正義。希望澳洲大學的戰友們，向老師、同學，向全社會傳播真相！
+生命統計局團隊，紐約市DOHMH事件指揮系統監測和流行病學科的工作人員。
 
-[原文鏈接](https://www.sbs.com.au/news/australian-universities-remove-job-listings-for-hong-kong-police-force-after-backlash)
+**參考文獻**
 
-翻譯報導：雲長
+1. World Health Organization. WHO Director-General’s opening remarks at the media briefing on COVID-19, March 2020. Geneva, Switzerland: World Health Organization; 2020. https://www.who.int/dg/speeches/detail/who-director-general-s-opening-remarks-at-the-media-briefing-on-covid-19—11-march-2020
+2. New York City Department of Health and Mental Hygiene. eVital. New York NY: City of New York; 2020. https://www1.nyc.gov/site/doh/providers/reporting-and-services/evital.page
+3. New York City Department of Health and Mental Hygiene. Covid-19: data. New York NY: City of New York; 2020. https://www1.nyc.gov/site/doh/covid/covid-19-data.page
+4. Simonsen L, Clarke MJ, Williamson GD, Stroup DF, Arden NH, Schonberger LB. The impact of influenza epidemics on mortality: introducing a severity index. Am J Public Health 1997;87:1944–50.
+5. Santos-Burgoa C, Sandberg J, Suárez E, et al. Differential and persistent risk of excess mortality from Hurricane Maria in Puerto Rico: a time-series analysis. Lancet Planet Health 2018;2:e478–88.
+6. Castro A, Li W, Huynh M, Van Wye G. Development of the mortality syndromic surveillance system (MortalSS)—New York City. In: American Public Health Association Annual Meeting & Expo, October 29–November 2; Denver, CO.
+7. CDC. Fluview. U.S. Influenza Surveillance System: purpose and methods. Atlanta, GA: US Department of Health and Human Services, CDC; 2020. https://www.cdc.gov/flu/weekly/overview.htm
+8. Pelat C, Boëlle PY, Cowling BJ, et al. Online detection and quantification of epidemics. BMC Med Inform Decis Mak 2007;7:29.
+9. Chow N, Fleming-Dutra K, Gierke R, et al.; CDC COVID-19 Response Team. COVID-19 Response Team. Preliminary estimates of the prevalence of selected underlying health conditions among patients with coronavirus disease 2019—United States, February 12–March 28, 2020. MMWR Morb Mortal Wkly Rep 2020;69:382–6.
+10. Bialek S, Bowen V, Chow N, et al.; CDC COVID-19 Response Team. COVID-19 Response Team. Geographic differences in COVID-19 cases, deaths, and incidence—United States, February 12–April 7, 2020. MMWR Morb Mortal Wkly Rep 2020;69:465–71.
 
-0
+
+翻譯【John】校對總結【Michelle】
+
+1
