@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：奧巴馬是個极其無能的總統
-`2020-05-18 00:13 GM31` [轉載自GNews](https://gnews.org/zh-hant/206022/)
+## 文革七十年
+`2020-05-18 02:14 GM30` [轉載自GNews](https://gnews.org/zh-hant/206120/)
 
-川普總統5月17日[從大衛營歸來](https://www.youtube.com/watch?v=oNupunhVVzw)，在白宮南草坪接受記者提問。他說這個週末他開了很多會議，在很多事情上取得了重大進展，包括解決瘟疫的解藥。他在回答一位記者的提問時說奧巴馬是個極其無能的總統。
+**作者：韭菜救國夢**
 
-美東夏令時下午1:07
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015957/image0-129.jpg)
 
-總統：
+[**《文革七十年》**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015406/%E3%80%8A%E6%96%87%E9%9D%A9%E4%B8%83%E5%8D%81%E5%B9%B4%E3%80%8B.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015406/%E3%80%8A%E6%96%87%E9%9D%A9%E4%B8%83%E5%8D%81%E5%B9%B4%E3%80%8B.pdf)
 
-所以我覺得我們度過了一個很棒的週末。我們開了很多很棒的會議。在很多前沿問題上取得重大進展，包括治療這個困擾著國家的可怕瘟疫的解藥。我認為很多事情都已經發生了，很好。那是個工作的週末，很棒的週末。發生了很多好事。
+**請點擊下載按鈕，下載文檔觀看！**
 
-記者：奧巴馬對您的評論，奧巴馬在參加一個畢業典禮上對您的評論？
+（文章內容僅代表作者觀點）
 
-總統：我聽不清。
-
-記者：他…兩遍…關於領導力。
-
-總統：瞧，他是個無能的總統，這是我全部想說的，及其無能。（Look, he was an incompetent President.  That’s all I can say.  Grossly incompetent.）謝謝！
-
-
-
-*翻譯：【Michelle】 字幕： 【Vinzo】*
-
-1
+0

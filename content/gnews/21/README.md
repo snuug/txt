@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP駐英大使否認CCP病毒來源，拒絕國際調查
-`2020-05-17 08:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205537/)
+## 文革七十年
+`2020-05-18 02:14 GM30` [轉載自GNews](https://gnews.org/zh-hant/206120/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16143938/corona_Verschwoerung.jpg)
-據太陽報(The Sun)報道,劉曉明（Liu Xiaoming）接受了天空新聞台（Sky News）的採訪。採訪中提到CCP病毒一系列的問題，然而劉曉明的回答卻遮遮掩掩，前後矛盾。
+**作者：韭菜救國夢**
 
-直至今日CCP病毒的源頭認識一個重要的問題，通過多方面的資料顯示，CCP病毒的來源都指向武漢P4 實驗室。但是CCP不僅矢口否認，還與世界玩起了甩鍋遊戲。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015957/image0-129.jpg)
 
-川普總統一再指責中國和世界衛生組織在疫情爆發初期隱瞞信息。
+[**《文革七十年》**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015406/%E3%80%8A%E6%96%87%E9%9D%A9%E4%B8%83%E5%8D%81%E5%B9%B4%E3%80%8B.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18015406/%E3%80%8A%E6%96%87%E9%9D%A9%E4%B8%83%E5%8D%81%E5%B9%B4%E3%80%8B.pdf)
 
-採訪中劉曉明否認CCP有所隱瞞，並說到：「你們不能怪中國，中國是受害者，中國不是這個病毒的罪魁禍首。」
+**請點擊下載按鈕，下載文檔觀看！**
 
-中國人確實是受害者，但是中國人不等於CCP，CCP是這件事的加害者。CCP病毒爆發時，武漢由於醫院床位不夠用，便讓患者封鎖在自己家中等死。到現在CCP還在故意遮掩著真實的死亡人數，混淆牆內人民的信息。
-
-劉曉明堅持說：「我們是開放的，我們是透明的，我們沒有什麼可隱藏的，我們沒有什麼可害怕的。「我們歡迎國際獨立審查，但它必須由世界衛生組織組織（WHO）。」
-
-然而上周有報道稱習近平主席親自要求世衛組織隱瞞冠狀病毒信息，並延遲向世界發出警告。這張照片已經隱射出CCP通過藍金黃，控制了世界衛生組織。
-CCP只允許「世界衛生組織」介入調查，但當被問及北京是否願意與「國際科學家」接觸時，劉曉明說：「在適合的時候會的，但不是現在。」
-
-看到劉曉明的這就話，再結合他自己前面所述。不做虧心事，不怕鬼敲門。前面說 CCP是開放透明的沒有隱瞞，那麼既然什麼也沒做，現在為什麼不允許國際科學家介入調查呢？
-
-[原文鏈接](https://www.thesun.co.uk/news/11628699/coronavirus-not-fault-china-victim-ambassador/)
-
-翻譯報道：Chris
+（文章內容僅代表作者觀點）
 
 0
