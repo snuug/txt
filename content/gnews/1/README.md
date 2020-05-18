@@ -1,18 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 為何世衛主席譚德賽“無知”“無低線地”繼續稱讚中共
-`2020-05-17 16:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/205800/)
+## 5月17日 美國政要推文選譯
+`2020-05-17 17:51 GM65` [轉載自GNews](https://gnews.org/zh-hant/205841/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17164856/%E4%B8%BA%E4%BD%95%E4%B8%96%E5%8D%AB%E4%B8%BB%E5%B8%AD%E8%B0%AD%E5%BE%B7%E8%B5%9B%E2%80%9C%E6%97%A0%E7%9F%A5%E2%80%9D%E2%80%9C%E6%97%A0%E4%BD%8E%E7%BA%BF%E5%9C%B0%E2%80%9D%E7%BB%A7%E7%BB%AD%E7%A7%B0%E8%B5%9E%E4%B8%AD%E5%85%B1.jpg)
-路透社周五報道，因為世衛組織沒能全力阻止在中國產生的冠狀病毒的傳播，美國政府凍結了給世衛組織的資金。世衛主席譚德賽對這一決定感到非常“震驚”。
-報道指出美國是WHO的頭號資金來源。但是美國認為中共對WHO更有影響力。川普政府指控中共對於疫情管理不善並在疫情初期在WHO幫助下隱瞞疫情爆發的規模。4月14日，川普總統宣布將停止對WHO的資助，並且將對這個受中共深度影響的機構應對疫情的措施展開為期60到90天的調查。路透社披露，今年到2021年底，美國納稅人將要為ＷＨＯ貢獻5.33億美元的資金。幾乎是同時期中國給WHO資金的三倍。路透社援引一個美國官員的話：美國已經支付了2020年的會員1.22億美元的一半。這個官員補充說，川普凍結給WHO的資金意為著白宮將把剩餘的會費6500萬美元和計劃中的3億美元撥款給其它國際機構。
-一個未透露名字的世衛組織官員說美國停止資助WHO，“給世衛組織以及譚德賽一個重重的打擊。”。談到譚德賽對中共應對疫情的讚揚，一個匿名的知情人士說：“我知道那看起來怎樣，他有時有點天真，還有點固執。”另一個匿名的知情人士告訴路透社，幾個世衛組織的顧問要求譚德賽淡化他對北京應對疫情的讚揚。因為越來越多的證據揭示了中共讓爆料者沉默並壓制疫情爆發的相關信息。路透社報道說，WHO顧問要求譚德賽注意外界對他的看法，對中國少用溢美之詞。但是譚德賽卻堅持己見，部分原因是他想確保中國在應對疫情方面的合作。
-澳大利亞總理斯科特.莫里森也呼籲對WHO應對疫情的措施開展獨立調查。據報道歐盟也起草了議案對WHO應對疫情的反應進行評估。中共對外界對於其應對疫情措施的批評予以了駁斥。
-１月譚德賽視察中國後大肆稱讚中共對於疫情的應對措施，而據約翰.霍普金斯大學追蹤的數據顯示中國武漢產生的病毒Covid-19已經令全球450萬人感染， 30萬4千人死亡。
-點評：為何貪德賽如此所謂的“天真，固執？是單純的天真固執嗎？相信這已經是公開的秘密：貪德賽為中共洗地的所言所行都是有所圖，有所貪的。
+> Nature’s beauty at our place in East Texas this weekend. I send my congratulations and strength to President Tsai of Taiwan 🇹🇼 for her inauguration this week. Stay strong against the global tyrants in the CCP! ⁦[@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw)⁩ [#sovereignty](https://twitter.com/hashtag/sovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [#independence](https://twitter.com/hashtag/independence?src=hash&amp;ref_src=twsrc%5Etfw) [#Democracy](https://twitter.com/hashtag/Democracy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HnmQsPtgOr](https://t.co/HnmQsPtgOr)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 17, 2020](https://twitter.com/Jkylebass/status/1261985438820163584?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://www.breitbart.com/politics/2020/05/15/reuters-report-naive-stubborn-director-tedros-adhanom-insisted-on-praising-china/)
-翻譯報道：喜馬拉雅
+卡爾·巴斯先生：周末，我們位於德州東部的家的自然美景。下周蔡英文總統即將舉行就職儀式，我向她表示祝賀和支持。堅決反對中共這個全球獨裁主義者。
 
+> Our Joint Letter to the SEC and PCAOB to Ensure China Complies With US Securities Laws and Regulations – just released.[#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [@SEC\_Enforcement](https://twitter.com/SEC_Enforcement?ref_src=twsrc%5Etfw) [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@CPDChina](https://twitter.com/CPDChina?ref_src=twsrc%5Etfw) [https://t.co/CCTT4jU7JY](https://t.co/CCTT4jU7JY)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 17, 2020](https://twitter.com/Jkylebass/status/1262061708216086531?ref_src=twsrc%5Etfw)
+
+卡爾·巴斯先生：我們聯名致信美國證券交易委員會（SEC）和美國公眾公司會計監督委員會（PCAOB），以確保讓中國遵守美國證券法律法規——剛剛發布（網站：當前危機委員會：中國）
+
+> American journalists in Hong Kong are members of a free press, not propaganda cadres. Any action to interfere with their work and impinge on Hong Kong’s freedoms would impact our assessment of One Country, Two Systems and the territory’s status.
+> — Secretary Pompeo (@SecPompeo) [May 17, 2020](https://twitter.com/SecPompeo/status/1262109880200069120?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：美國駐香港的記者是自由媒體的成員，不是大外宣的人。任何幹預他們工作的行為和對香港自由造成的負面影響都會影響到我們對“壹國兩制”和香港地位的評估。
+
+> Coalition of 62 nations backs virus probe, including the 27 EU member states and Russia. [https://t.co/yjyKIqSjaf](https://t.co/yjyKIqSjaf)
+> — Sari Arho Havrén (@SariArhoHavren) [May 17, 2020](https://twitter.com/SariArhoHavren/status/1261926129121755136?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Sari Arho Havrén：六十二個國家聯合支持對病毒進行調查，包括27個歐盟國家和俄羅斯。（《澳洲人報》）
+
+> The Chinese gov't—through its propaganda organ the Global Times—has threatened me & a handful of U.S. lawmakers &officials seeking to legally empower COVID-19 victims to bring lawsuits in U.S. courts against the Chinese gov't.
+> Click🔗to read press release: [https://t.co/p3A1H4wHMU](https://t.co/p3A1H4wHMU)
+> — Rep. Chris Smith (@RepChrisSmith) [May 17, 2020](https://twitter.com/RepChrisSmith/status/1261828497162543104?ref_src=twsrc%5Etfw)
+
+眾議員 Chris Smith：中國政府——通過它的大外宣機構《環球時報》——對我和其他多名議員和官員發出威脅，因為我們希望冠狀病毒受害者通過合法程序將中國政府告上美國法庭。
+
+> Europe should PERMANENTLY ban Chinese takeovers. Actually, the whole world should — and likely will. [https://t.co/1mquHKa1YX](https://t.co/1mquHKa1YX)
+> — Dan Harris (@danharris) [May 17, 2020](https://twitter.com/danharris/status/1261825681991757824?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Dan Harris：歐洲應該永久禁止中國收購（歐洲公司）。事實上，全世界都該如此——也很可能這樣做。
+
+路透社：歐洲人民黨議會領袖韋伯說，歐洲應該暫時禁止中國收購
+
+> Bye bye DJI [https://t.co/ONeJfnjW0T](https://t.co/ONeJfnjW0T)
+> — General Spalding (@robert\_spalding) [May 17, 2020](https://twitter.com/robert_spalding/status/1261990955651084289?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：拜拜了，大疆科技。
+
+sUAS News（專業無人機信息網站）：美國世強法律事務所為道通公司（Autel）贏得了在美國國際貿易委員會與大疆科技公司（DJI）的專利糾紛案。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/17174737/08_5.png)
 0

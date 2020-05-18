@@ -1,23 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-16 22:38 GM77` [轉載自GNews](https://gnews.org/zh-hant/205409/)
+## 【中文字幕】班農疫情作戰室177期
+`2020-05-16 23:32 GM10` [轉載自GNews](https://gnews.org/zh-hant/205324/)
 
-戰友之家圖文摘要組及小語種組
+**戰友之家 班農中文字幕組譯制**
+**撰稿：二丫**
 
-[English\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223308/English_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223308/English_0515_CCP_Virus_Updates.pdf)
 
-[French\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223314/French_0515_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223314/French_0515_CCP_Virus_Updates_.pdf)
 
-[German\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223316/German_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223316/German_0515_CCP_Virus_Updates.pdf)
-
-[Japanese\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223321/Japanese0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223321/Japanese0515_CCP_Virus_Updates.pdf)
-
-[Korean\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223325/Korean0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223325/Korean0515_CCP_Virus_Updates.pdf)
-
-[Russian\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223331/Russian_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223331/Russian_0515_CCP_Virus_Updates.pdf)
-
-[Spanish\_0515\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223334/Spanish_0515_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16223334/Spanish_0515_CCP_Virus_Updates.pdf)
+內容概要：
+中共政府已經向全世界暴露出來了反烏托邦的盜國賊本質，和美國開展了信息戰，網絡戰。現在推特上禁止任何質疑WHO，任何反對中共的言論。這就是中共沒有自由民主的起因，此舉已經滲透到了美國。這些大的社交媒體平臺正在向中共妥協，在剝奪美國人的言論自由的權利。現在呼籲美國和全世界各地的人民們，請寫信給你們的國會議員們，市長和代表們，向他們質疑推特的言論禁閉，質疑為什麽這些大的科技公司幫助中共建立防火墻對付中國人？讓他們采取行動為維護每一個人的權利作鬥爭。
+如今的美國已經從世界自由的模範變成了向中國青年學習如何抗爭得到自由，在經歷了種種戰爭之後，美國一直是為自由而戰的引領者，此次危機我們也會幫助中國人推到防火墻，像解放蘇聯人一樣讓中國人重獲自由。
 
 0

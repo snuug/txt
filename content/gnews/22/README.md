@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友之家“挺郭滅共，這三年！”演講（第4期）
-`2020-05-16 22:23 GM30` [轉載自GNews](https://gnews.org/zh-hant/205373/)
+## 郭文貴先生：現在沒有任何人可以阻擋中共滅亡
+`2020-05-16 23:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/205453/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/16222023/11-6.jpg)
+戰友之家視頻新聞組制作
+By GM64
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77](https://web.gtv1.org/?videoid=5ec006c6b8919f61b267ab77)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+•現在世界很多國家已經和爆料革命形成了戰略超級聯盟。現在我們爆料革命做的一切準備就是在中共滅亡前少犧牲中國人，少讓CCP榨取中國私人企業，少讓CCP對香港和臺灣造成傷害。絕不許軍閥割據、社會動亂、別的國家趁火打劫屬於中國人的海外和國內財富。希望所有的戰友和精英們迎接偉大的時刻，很有可能下一個小時共產黨就沒了。
+•現在中共活在全世界人民的恨意當中，無論做什麽好事都挽不回民心，都希望中共迅速滅亡。
 
 0
