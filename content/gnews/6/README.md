@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生：共產黨對港對臺的瘋狂計劃
-`2020-05-18 02:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/206169/)
+## 中共檢測疏失，害人害命！“中共病毒疫情每日熱線”
+`2020-05-18 05:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/206306/)
 
-戰友之家視頻新聞組制作
-By GM64
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18055034/image0-131.jpg)
 
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec2167682e098349fde4bfb](https://web.gtv1.org/?videoid=5ec2167682e098349fde4bfb)
 
-
-•中共接下來對香港手足和國內私人企業家會越來越糟糕，越來越壞，一旦有任何風吹草動，國際形勢的變化，中美關系惡化等沖突出現，第一個受傷害的絕對是臺灣。
-•郭先生警告中南坑的不要對臺灣香港動黑手，不要繼續傷害戰友們。如果中南坑的人不信守以上承諾，郭先生將每天開十個小時的直播，變成無數精神炸彈每分每秒的炸在中南坑人的身上。
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
