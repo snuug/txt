@@ -1,118 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月18日 美國政要推文選譯
-`2020-05-18 23:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/206825/)
+## 中共媒體已經將杜偉之死往蓬佩奧先生身上引風向了
+`2020-05-19 04:28 Diago` [轉載自GNews](https://gnews.org/zh-hant/207024/)
 
-> Great job Peter! [https://t.co/k9UuJr4JIM](https://t.co/k9UuJr4JIM)
-> — Donald J. Trump (@realDonaldTrump) [May 18, 2020](https://twitter.com/realDonaldTrump/status/1262183432383270913?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/19042203/WhatsApp-Image-2020-05-19-at-4.20.42-PM.jpeg)
+作者：Diago
 
-川普總統：皮特， 做得好！
+搜狐發表的兩篇關於蓬佩奧先生的文章引起了我的注意，這兩篇文章隱含了很重要的資訊，先看文章一——
 
-Nicholas Fondacaro：在ABC新聞的《本周》節目中，白宮貿易顧問皮特·納瓦羅在政府早期應對冠狀病毒疫情行動這件事上給George Stephanopoulos（ABC新聞主持人）上了壹課。
+搜狐網2020年5月17日20:10分發表的[蓬佩奧飛往以色列，剛下飛機攪黃15億招標，回國後遇到大麻煩](https://www.sohu.com/a/395815899_120098002?scm=1002.580041.1040132.PC_ARTICLE_FOCUS&amp;_f=index_pagefocus_2&amp;spm=smpc.content.fspic.3.1589871303339B3H7cJp)（2020-05-17 20:10）提到【蓬佩奧還試圖阻止亞洲企業參與“索裡克二期”的海水淡化工程。據瞭解此項以色列工程的合同標價值超出十五億美元，參與招標的就包含亞洲企業的和記黃埔水務公司，招標的最終結果將會於本月底揭開。此刻蓬佩奧抵達以色列首當其衝的目標，或就是攪黃兩國之間的海水淡化工程合同標。而美方給出的理由更讓人感到不可思議，以色列招標的海水淡化工廠附近，就有美方和以色列時常會聯合舉行演習的空軍基地，而美國還在其中建立了一個特殊核研究所。】，那麼和埔黃記公司是一家什麼樣的公司呢？
 
-> We are with them! [https://t.co/H7DRHXPJYb](https://t.co/H7DRHXPJYb)
-> — Donald J. Trump (@realDonaldTrump) [May 18, 2020](https://twitter.com/realDonaldTrump/status/1262392931962454020?ref_src=twsrc%5Etfw)
+據[2019年5月18日文貴郭媒體直播，爆料王健之死原視頻！李嘉誠與江家的關係！歐洲將有大行動••••••](https://youtu.be/K7imYwvUaqo)提到：
 
-川普總統：我們支持他們！
+【我認識了李嘉誠先生的一個核心人物，叫：馬仕民，英國人，英國特種兵，是長江的，和黃（和記黃埔）的原來CEO。因為和霍震霆兩個人掐架，結果他被fire掉了。他親身經歷了兩件事兒。一個是，親自經他手，直接從上市公司，拿走五千萬，給了江綿恒。先付錢啊，給了江綿恒以後，江綿恒要是能把這事兒說清楚，那老子的頭讓你殺一萬回。如果你，馬仕民、李嘉誠，還有你李澤巨，還有什麼你李嘉誠集團，誰敢說沒有這五千萬，你敢把那帳給刪了，老子頭讓你殺一萬回！
 
-澳洲SBS新聞：印度、日本、英國、加拿大、新西蘭、印度尼西亞、俄羅斯，以及27個歐盟成員國均支持澳大利亞推動對COVID-19大流行的調查。
+錢就是馬仕民，親手交給的江綿恒，五千萬。交給了五千萬以後，兩周後，抓了張子強。張子強當時，這個綁架了這個李嘉誠的孩子，還有這個郭炳湘，然後再讓郭炳湘拿著十幾億現金，在廣東珠海，買了三個國際高爾夫，買了這個三套別墅，其中這別墅，其中就是在我那兒買走的。就是我租他的，然後最後他給賣掉的。珠海國際高爾夫，是日本人開發的，是我的合夥人。這件事情，我花了很長時間去瞭解，讓我震驚！】，這家公司就是李嘉誠的企業，就是這家企業給江綿恒送了五千萬（人民幣還是美元呢？），買殺了張子強，這些證據都抹不掉，那麼作為江家控制的和記黃埔想要在美軍駐以色列的基地附近建水廠，那是不是別有用心呢？蓬佩奧先生這樣的作法不僅及時，而且有效，本來我們不知道蓬佩奧先生的使命，感謝搜狐讓我們知道了和記黃埔的鬼影。
 
-> Hong Kong no longer has a democratic process in their Legislative Council…it’s now dystopian joke of Chinese Communism infecting a process that lasted peacefully for 156 years. [@PLMattis](https://twitter.com/PLMattis?ref_src=twsrc%5Etfw) [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) [@anthonygonzalez](https://twitter.com/anthonygonzalez?ref_src=twsrc%5Etfw) [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#Chinazi](https://twitter.com/hashtag/Chinazi?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HcHEFAQAaM](https://t.co/HcHEFAQAaM)
-> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 18, 2020](https://twitter.com/Jkylebass/status/1262334046006390784?ref_src=twsrc%5Etfw)
+再看文章之二—— 搜狐2020年5月18日17:15分發表的[杜偉大使死亡原因？十問蓬佩奧](https://www.sohu.com/a/396040588_120044204?scm=1002.580041.1040132.PC_ARTICLE_FOCUS&amp;_f=index_pagefocus_1&amp;spm=smpc.content.fspic.2.1589871274163Ym4bPX1)提到：【杜偉於12日在《耶路撒冷時報》發表了一篇題為“相信中國、以色列韌性”的文章。蓬佩奧隨後於13日突然對以色列進行了閃電訪問。雖然只逗留了短短幾個小時，但這位政治瘟疫仍然見縫插針，指控中國瞞報疫情，並對中國投資以色列大放厥詞、蠻橫指責。對此，杜偉大使針鋒相對，於15日前後對蓬佩奧毫不留情地對進行了輿論反制和強烈譴責。兩天后，杜偉大使在家中離奇死亡！】、【我在最近的5篇文章當中6次提起蓬佩奧，這位不遺餘力詆毀中國的前中情局局長、美國版戴笠、特朗普走狗、國家恐怖主義代言人，不知這兩天睡得可否安好？出於好奇，我有十個問題，想請問蓬先生：一、你13日閃電突訪以色列，帶了多少人、都是什麼職務？二、你到以色列都見了哪些人？談了哪些事？達成了哪些共識？三、作為美國前中情局局長，你怎麼看特朗普下令暗殺蘇萊曼尼一事？四、你怎麼看待1999年5月7日中國駐南斯拉夫大使館被炸一事？五、之前你聲稱看到疫情來源證據，後又改口，你認為應該為此道歉嗎？六、疫情爆發以來，中國向美國捐贈了天量抗疫物資，對此你怎麼看？七、你對美國歷史上，總統和議員的遇刺率居高不下怎麼看？八、中國此前欲取回存放在美國的600噸黃金遭拒，美國這種行為是否可稱作耍流氓？九、美國欠中國的國債，你認為美國將在什麼時間、拿什麼還？十、你被美國媒體稱為特朗普的狗，對此你驕傲嗎？期待蓬先生的答覆！】，請注意，這不是一份街頭小報，這是中國的搜狐網發佈的消息，對應此類消息，部分中共其他媒體上的發表情況如下——
 
-卡爾·巴斯先生：香港立法會已經喪失了民主程序…現在中國共產主義的反烏托邦笑話汙染了已經和平延續156年的體系。
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/19042348/WhatsApp-Image-2020-05-19-at-4.04.26-PM.jpeg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/19042022/WhatsApp-Image-2020-05-19-at-4.04.37-PM.jpeg)
 
-Nicola Smith：人們甚至都不再假裝香港立法會是個民主機構了。這看上去像反烏托邦主題電影的場景。
 
-> China is stealing our intellectual property, hacking our companies and lying to the world.
-> 
-> Is this what the new Cold War looks like? [pic.twitter.com/vlIXdeWXJo](https://t.co/vlIXdeWXJo)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262192855956639744?ref_src=twsrc%5Etfw)
+由於把杜偉大使之死往蓬佩奧先生身上引導不是個別小微媒體的小眾語言，因此這樣的輿論引導背後必定是中共操控，據第一篇文章內容可以判斷蓬佩奧先生的以色列之行對於和記黃埔的中標可能將帶來非常負面的影響，而對於第二篇文章提出來的所謂十問，雖然沒有明確指責是不是蓬佩奧先生指揮和佈置了對杜偉大使的“暗殺”，但暗示意味十分明顯，在其他問題中，把斬首蘇萊曼尼定性為暗殺，引出南斯拉夫使館被炸問題，在筆者看來屬於胡攪蠻纏的問題，但是為什麼提出“你對美國歷史上，總統和議員的遇刺率居高不下怎麼看？”，它除了暗示中情局對這些歷史上的暗殺負責任之外，是不是引導風向為中共將要對美國的部分政要的暗殺引領風向？
 
-參議員 Marsha Blackburn：中國盜竊我們的知識產權，黑客我們的公司，並對世界撒謊。這是不是新冷戰？
+杜偉之死既然由中共以陰謀論匯出來，那杜偉何許人也？據[維琪百科——杜偉](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F)【2016年6月，接替[張喜雲](https://zh.wikipedia.org/wiki/%E5%BC%A0%E5%96%9C%E4%BA%91)任[中華人民共和國駐烏克蘭特命全權大使](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E9%A9%BB%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E4%BD%BF%E5%88%97%E8%A1%A8)[\[5\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-5)。2016年6月14日，杜偉向時任烏克蘭總統[彼得·波羅申科](https://zh.wikipedia.org/wiki/%E5%BD%BC%E5%BE%97%C2%B7%E6%B3%A2%E7%BD%97%E7%94%B3%E7%A7%91)遞交國書[\[6\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-6)。2019年12月離任。2019年，烏克蘭最大的專業生產飛機發動機的企業[馬達西奇](https://zh.wikipedia.org/wiki/%E9%A9%AC%E8%BE%BE%E8%A5%BF%E5%A5%87%E5%85%AC%E5%8F%B8)計畫出售其主要資產給中國大陸企業天驕航空（北京天驕航空產業投資有限公司）和[信威集團](https://zh.wikipedia.org/w/index.php?title=%E4%BF%A1%E5%A8%81%E9%9B%86%E5%9B%A2&amp;action=edit&amp;redlink=1)[\[7\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-7)。同年8月，[約翰·博爾頓](https://zh.wikipedia.org/wiki/%E7%BA%A6%E7%BF%B0%C2%B7%E5%8D%9A%E5%B0%94%E9%A1%BF)訪問烏克蘭[\[8\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-8)，期間美國向烏克蘭施加壓力[\[9\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-9)，以停止對烏克蘭援助為要脅阻礙此次交易[\[10\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-10)[\[11\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-11)。次月，隨著博爾頓被美國總統[川普](https://zh.wikipedia.org/wiki/%E5%94%90%E7%B4%8D%C2%B7%E5%B7%9D%E6%99%AE)罷免，中華人民共和國再次向烏克蘭提出繼續完成出售案[\[12\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-12)。杜偉大使對此稱收購案與[中美貿易戰](https://zh.wikipedia.org/wiki/%E4%B8%AD%E7%BE%8E%E8%B4%B8%E6%98%93%E6%88%98_%282018%E5%B9%B4%29)無關[\[13\]](https://zh.wikipedia.org/wiki/%E6%9D%9C%E4%BC%9F#cite_note-13)。2020年2月15日，杜偉抵達以色列，接替2019年12月27日離任的[詹永新](https://zh.wikipedia.org/wiki/%E8%A9%B9%E6%B0%B8%E6%96%B0)出任[中華人民共和國駐以色列大使](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E9%A9%BB%E4%BB%A5%E8%89%B2%E5%88%97%E5%A4%A7%E4%BD%BF%E5%88%97%E8%A1%A8)。】,杜偉在烏克蘭的離任是否與中企對涉及敏感技術的烏克蘭最大的專業生產飛機發動機的企業[馬達西奇](https://zh.wikipedia.org/wiki/%E9%A9%AC%E8%BE%BE%E8%A5%BF%E5%A5%87%E5%85%AC%E5%8F%B8)收購失敗有關呢？我們不得而知。再看看杜偉大使赴任以色列以後都做了哪些事兒，據中華人民共和國駐以色列使館消息：
 
-> The 73rd [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) World Health Assembly provides an opportunity for international cooperation during this global health emergency – and for the world to watch China’s actions closely.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262436801597366272?ref_src=twsrc%5Etfw)
+[杜偉大使拜會以中友好協會暨在華原居民聯合會負責人](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1754283.htm)(2020-03-10)
 
-參議員 Marsha Blackburn：世衛組織第73屆世界衛生大會為處在全球衛生緊急情況下的國際合作提供了機會——也使世界可以密切關註中國的行動。
+[杜偉大使拜會駐以色列外交團團長、烏克蘭大使納多連科](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1755181.htm)(2020-03-12)
 
-> Foreign governments do not have blanket immunity to victimize our citizens. Americans should be able to sue China for the trillions of dollars in damages and over 90,000 American deaths caused by the coronavirus.[https://t.co/Wjf2Fkz5AK](https://t.co/Wjf2Fkz5AK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262492204255379457?ref_src=twsrc%5Etfw)
+[杜偉大使與以色列中資企業視頻連線](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1760299.htm)(2020-03-24)
 
-參議員 Marsha Blackburn：把我們的人民當作犧牲品的外國政府不享受外交豁免權。美國人民應該起訴中國，賠償冠狀病毒造成的幾萬億美元損失和9萬多逝去的生命。
+[駐以色列大使杜偉在《今日以色列報》發表署名文章](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1765228.htm)(2020-04-02)
 
-《華爾街日報》：最高法院裁定，恐怖主義的受害者可以起訴國家，要求懲罰性賠償
+[駐以色列大使杜偉接受希伯來語媒體書面採訪](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1770715.htm)(2020-04-17)
 
-> New CEO, same [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), still stealing your data and tracking your kids. Will [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) change their spying ways? [https://t.co/9tjpWm2HwK](https://t.co/9tjpWm2HwK)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262510755225767943?ref_src=twsrc%5Etfw)
+[駐以色列大使杜偉接受《信念之柱》報書面採訪](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1776556.htm)(2020-05-06)
 
-參議員 Marsha Blackburn：新的CEO，原來的中共，仍在偷取妳的信息並跟蹤妳的孩子。抖音會改變他們的間諜行為嗎？
+在2020年5月14日13:35澎湃新聞發表了[以色列邀請蓬佩奧訪問，在約旦河西岸和伊朗問題上能如願嗎](https://baijiahao.baidu.com/s?id=1666643009246023614&amp;wfr=spider&amp;for=pc)，與這相對應的是中華人民共和國駐以色列大使館發佈了[駐以色列使館回應美國國務卿蓬佩奧訪以前後有關涉華言論](https://www.fmprc.gov.cn/ce/ceil/chn/sgxw/t1779468.htm)(2020-05-15)
 
-CNBC新聞：抖音挖走迪士尼流媒體公司老板擔任其新CEO
+杜偉在到達以色列以後就緊鑼密鼓地會見了以色列的在華原住民拉攏感情，同時會與在以色列的中國企業和留學生進行會面和溝通，同時也發動了在以色列媒體上對於中國“抗疫”的宣傳攻勢，在與中企的會面中有沒有涉及和記黃埔，受中共控制的中國企業在以色列究竟有什麼使命，這次要接受什麼樣的指示，以及受中共控制的在以色列的留學生接到什麼指令，這些不是公開資料可以得到的。但是從中共官方媒體中對蓬佩奧指責干涉投標來看，杜偉的使命與蓬佩奧先生訪問以色列的使命必定密不可分並且是針尖對麥芒，現在杜偉已經離去，他是自然死亡嗎？在以色列的警方還沒有提供正式結論的情況下，中共的媒體已經把風向引向了蓬佩奧先生，那麼杜偉先生真的是自然死亡嗎？他會不會是中共的苦肉計，既清除未能完成上峰任務的杜偉，又把杜偉之死嫁禍於蓬佩奧先生？中共是不是親手殺了杜偉，我們不知道，但是我們看到了中共明目張膽的嫁禍。願杜偉大使安息，並希望所有為中共賣命的幫兇認真考慮一下自己的安危。
 
-> The World Health Assembly convenes today, but Taiwan won’t be there. The world is worse off from the WHO’s cowardice, since Taiwan has many lessons to share from its successful response to the China virus pandemic.[https://t.co/cOJV6kCWed](https://t.co/cOJV6kCWed)
-> — Tom Cotton (@SenTomCotton) [May 18, 2020](https://twitter.com/SenTomCotton/status/1262474658076557312?ref_src=twsrc%5Etfw)
+（文章內容僅代表作者個人觀點）
 
-參議員 Tom Cotton：世界衛生大會今天召開，但臺灣將不參加。世衛組織的怯懦讓世界變得更糟糕，因為臺灣從它應對病毒爆發的成功做法中積累了很多可以分享的經驗。
+[以色列大使相关资料汇总](https://gnews.org/11790184-e355-4227-a7e9-ad47428bed40)[下载](https://gnews.org/11790184-e355-4227-a7e9-ad47428bed40)
 
-《新聞周刊》觀點：美國現在比以往任何時候都應該支持臺灣
+[以色列大使相关资料汇总繁体版](https://gnews.org/36c0fc6e-8b52-4916-928d-7e40e69d57c6)[下载](https://gnews.org/36c0fc6e-8b52-4916-928d-7e40e69d57c6)
 
-> .[@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) previously told me they couldn’t attend hearings and testify because executives were located in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). But this new executive lives in the USA. I look forward to hearing from him. Under oath. [https://t.co/XPfiVpo9Ta](https://t.co/XPfiVpo9Ta)
-> — Josh Hawley (@HawleyMO) [May 18, 2020](https://twitter.com/HawleyMO/status/1262498756555046913?ref_src=twsrc%5Etfw)
 
-參議員 Josh Hawley：之前抖音告訴我，因為他們的高管都在中國，所以無法參加聽證會並作證。而這位新高管住在美國。我期待聽到他的回復。宣誓之後的。
-
-《華爾街日報》：抖音請迪斯尼高管Kevin Mayer擔任新任CEO
-
-> Interesting! [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) tells [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) that it is not really a Chinese company because parent co [@BytedanceTalk](https://twitter.com/BytedanceTalk?ref_src=twsrc%5Etfw) incorporated in Caymans. I got it. So [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) & [@BytedanceTalk](https://twitter.com/BytedanceTalk?ref_src=twsrc%5Etfw) are based in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), do business in USA – and seek tax shelter in Caymans. Sounds TOTALLY legit
-> — Josh Hawley (@HawleyMO) [May 19, 2020](https://twitter.com/HawleyMO/status/1262540964121501696?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：有意思！抖音告訴《紐約時報》說，它其實不是個中國公司，因為它的母公司字節跳動有限公司在開曼群島。我明白了。也就是說抖音和字節跳動公司總部在中國，業務在美國，並在開曼群島尋求避稅。聽著相當合法
-
-> It’s been a quarter-century since PRC authorities abducted the Tibetan Panchen Lama, when he was only six. He is now 31. The Chinese government should make known his whereabouts and allow believers of all religions in China to freely practice their faith without interference.
-> — Secretary Pompeo (@SecPompeo) [May 18, 2020](https://twitter.com/SecPompeo/status/1262457925769011206?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：中共政府綁架西藏班禪喇嘛已經25年，當年他只有6歲。現在他已經31歲。中國政府應該公布他的下落，且不幹涉所有宗教信仰的信眾們自由信奉他們的宗教。
-
-> Taiwan’s meaningful participation in the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) is critical especially as we combat [#COVID\_19](https://twitter.com/hashtag/COVID_19?src=hash&amp;ref_src=twsrc%5Etfw). The U.S. stands w/ [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), a fellow democracy that shares our values and is an important security & economic partner in the Indo-Pacific [#TweetforTaiwan](https://twitter.com/hashtag/TweetforTaiwan?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ia76OHB7pN](https://t.co/ia76OHB7pN)
-> — Marco Rubio (@marcorubio) [May 18, 2020](https://twitter.com/marcorubio/status/1262497934916157443?ref_src=twsrc%5Etfw)
-
-參議員 Marco Rubio：臺灣實質性參與世衛組織至關重要，尤其當前我們處在在對抗冠狀病毒的時期。美國支持臺灣，他們是與我們有相同價值觀的民主政體，而且是印度太平洋地區重要的安全和經濟合作夥伴。
-
-美國國務院官網：關於臺灣被排除在世界衛生大會之外的聲明
-
-> The Chinese Communist Party continues to use this pandemic as an opportunity crack down on Hong Kongers fighting for their human rights and autonomy. 
-> 
-> Today’s developments reveal one thing: Beijing can feel that its control over the people of Hong Kong is slipping away. [https://t.co/malTVj5zDc](https://t.co/malTVj5zDc)
-> — Rick Scott (@SenRickScott) [May 18, 2020](https://twitter.com/SenRickScott/status/1262376665168203777?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：中共繼續利用疫情打擊香港人為人權和自治而抗爭的行動。今天的事態發展揭示出壹點：北京已經意識到它正逐漸失去對香港人民的控制。
-
-CNN國際新聞：周壹，香港立法委員為爭奪內務委員會關鍵席位在國會造成混亂。支持北京和支持民主的政界人士已經因內務委員會爭執數周，該委員會有權決定討論哪些法案。
-
-> “In fact, there is not a single Brazilian, Russian, Indian or South African company on the PCAOB’s list, all of China’s BRICS nation partners.” But not the CCP [https://t.co/nSi0xbalQM](https://t.co/nSi0xbalQM)
-> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262292342133972994?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“實際上，美國公眾公司會計監督委員會的名單上沒有壹家巴西、俄羅斯、印度或南非的公司，這些都是中國的“金磚五國”合作夥伴。”但不是中共
-
-《福布斯》：川普能把中國公司踢出紐交所、納斯達克嗎？
-
-> Time for us to acknowledge the truth. CCP must no longer be able to profit from its destruction of Hong Kong’s democracy. We must end the special privileges that power this brutal regime. Declare Hong Kong no longer autonomous. [https://t.co/Z8VvYeydk8](https://t.co/Z8VvYeydk8)
-> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262336302760034304?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：我們現在該認清現實了。不能讓中共繼續從破壞香港民主制度中獲利。我們必須終止這壹殘酷政權的特殊待遇。宣布香港已沒有自治。
-
-> This is a great picture. This is like tank man, and will go down in history. Great status symbol for the CCP. [https://t.co/Pr55FIkYyq](https://t.co/Pr55FIkYyq)
-> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262337514024710145?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：這張照片非常好。像坦克人照片壹樣，它會被載入史冊。展示中共地位象征的好圖。
-
-> My interview on chinese drones [https://t.co/ccC3ChIKCS](https://t.co/ccC3ChIKCS)
-> — General Spalding (@robert\_spalding) [May 19, 2020](https://twitter.com/robert_spalding/status/1262571616191623169?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：我評論中國無人機的訪談節目
-
-WJLA電視臺（ABC旗下）：美國將軍：中國公司捐贈給美國警方的無人機“將數據發回中國”。
 
 0
