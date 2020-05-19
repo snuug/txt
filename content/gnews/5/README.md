@@ -1,37 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 賀榮班師回朝，北京城誰將人頭落地？
-`2020-05-18 11:27 GM30` [轉載自GNews](https://gnews.org/zh-hant/206449/)
+## 5月18日 美國政要推文選譯
+`2020-05-18 23:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/206825/)
 
-**作者: free monkey**
+> Great job Peter! [https://t.co/k9UuJr4JIM](https://t.co/k9UuJr4JIM)
+> — Donald J. Trump (@realDonaldTrump) [May 18, 2020](https://twitter.com/realDonaldTrump/status/1262183432383270913?ref_src=twsrc%5Etfw)
 
-賀榮是誰？賀榮回北京爲什麽可能撼動北京官場，這是不是危言聳聽？很多人可能根本沒有聽說過賀榮，但是說到趙正永你就知道了。原陝西省委書記趙正永受賄 7 億落馬，查處趙正永貪汙案的就是有打虎女英雄之稱的賀榮。兩會之前，2020年4月，賀榮突然班師回朝，從陝西回到北京，擔任最高人民法院黨組副書記、常務副院長（正部長級）。那麽，賀榮回京是接受論功行賞，還是開始以陝西幾起大案爲線索，瞄准了背後的北京高層？今天給你們八卦一下賀榮的故事，你們權當說書而已，不要當真。
+川普總統：皮特， 做得好！
 
-多年前，有一本小說“天網”，敘述在山西一個縣城發生得一個普通案件，如何觸動了整個官場的關系網。受害人上訴到哪裏，對方的關系就可以連接到哪裏，猶如一張天羅地網，讓你無敵可循。如今，賀榮能夠破網而出嗎？
+Nicholas Fondacaro：在ABC新聞的《本周》節目中，白宮貿易顧問皮特·納瓦羅在政府早期應對冠狀病毒疫情行動這件事上給George Stephanopoulos（ABC新聞主持人）上了壹課。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/18112113/2345%E6%88%AA%E5%9B%BE20200518231113.png)
+> We are with them! [https://t.co/H7DRHXPJYb](https://t.co/H7DRHXPJYb)
+> — Donald J. Trump (@realDonaldTrump) [May 18, 2020](https://twitter.com/realDonaldTrump/status/1262392931962454020?ref_src=twsrc%5Etfw)
 
-賀榮于1962年出生于山東臨邑，中國政法大學訴訟法學專業畢業，中央黨校法學博士，一級大法官。賀榮于 1984 年 8 月參加工作，之前一直在北京法院工作，可以說默默無聞 ，曾任北京市高級人民法院研究室副主任、副處級審判員、正處級審判員、研究室主任，北京市高級人民法院副院長、北京市第二中級人民法院院長、北京市高級人民法院副院長、黨組副書記。
+川普總統：我們支持他們！
 
-賀榮在法院工作33年，從來沒有地方工作經驗，沒有在紀委工作過。但是，2017年3月，賀榮以巡撫大臣身份帶著密令出訪陝西，擔任陝西省委常委、省紀委書記。賀榮到任後，發現陝西官場官官勾結，腐敗嚴重，痛下殺手，第一批就撤職查辦 145 名廳局級幹部，要求這些人檢舉揭發，打開了陝西官場的天網。賀榮在陝西三年，查辦的大小貪官有1000多人，可以說是雷厲風行，所到之處人頭落地，毫不留情。其中，賀榮查辦的大案有陝西三號地鐵線大案，陝西千億礦産案，以及大家知道的最近中國第一貪，原陝西省委書記趙正永受賄案。
+澳洲SBS新聞：印度、日本、英國、加拿大、新西蘭、印度尼西亞、俄羅斯，以及27個歐盟成員國均支持澳大利亞推動對COVID-19大流行的調查。
 
-西安地鐵三號線大案是賀榮的第一案，此案涉及的人之多和關系之複雜可謂令人膽寒，賀榮作風之強悍也表現得淋漓盡致。西安地鐵三號線，全線所用電纜全部不合格，這可是人命關天的大事。更爲詭異的是，地鐵電纜驗收時，有關人員鑒定爲不合格。可是到了上報以後被
-改爲合格，連續幾次。賀榮查辦此案，第一個落網的是原西安市委第一書記魏民洲。魏民洲到案後，立即主動坦白，交代罪行退還所有贓款，而且主動揭發其他人。法院認爲，魏民洲認罪態度好並主動揭發專案組沒有掌握的證據，有立功表現，應該從輕處理。賀榮說，判處
-無期徒刑，沒收全部個人財産！
+> Hong Kong no longer has a democratic process in their Legislative Council…it’s now dystopian joke of Chinese Communism infecting a process that lasted peacefully for 156 years. [@PLMattis](https://twitter.com/PLMattis?ref_src=twsrc%5Etfw) [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) [@anthonygonzalez](https://twitter.com/anthonygonzalez?ref_src=twsrc%5Etfw) [@marcorubio](https://twitter.com/marcorubio?ref_src=twsrc%5Etfw) [#HKexit](https://twitter.com/hashtag/HKexit?src=hash&amp;ref_src=twsrc%5Etfw) [#Chinazi](https://twitter.com/hashtag/Chinazi?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HcHEFAQAaM](https://t.co/HcHEFAQAaM)
+> — 🇹🇼Kyle Bass🇹🇼 (@Jkylebass) [May 18, 2020](https://twitter.com/Jkylebass/status/1262334046006390784?ref_src=twsrc%5Etfw)
 
-那麽不合格電纜從何而來？賀榮查到，提供西安地鐵電纜的是一家名爲奧凱電纜的公司。奇怪的是，奧凱公司成立不過五年，從事電纜生意不過區區兩年，爲何可以拿到西安地鐵的合同？再查下去，奧凱電纜不僅在西安，而且在上海，成都，河北等地都有在用，這在中國沒有背景的一家小公司是如何做到的？後台是不是在北京？賀榮會查下去嗎？
+卡爾·巴斯先生：香港立法會已經喪失了民主程序…現在中國共產主義的反烏托邦笑話汙染了已經和平延續156年的體系。
 
-陝西千億礦産案可以列入中國現代拍案驚奇了。此案牽出了陝西省委書記趙正永，但是遠遠沒有結束，而且非常富有戲劇性。陝西有一個337 平方公裏的礦區，這個礦産的開發權賣給了一個名爲趙發啓的商人，當然趙發啓不會平白無故就拿到這麽大合同。詭異的是，趙發啓拿到開發權以後，投資了2000多億前期開發，陝西卻突然宣布這出礦産開發權賣給了一個香港商人！趙正啓當然不服氣，結果被拘留關押數月，厲害國的厲害可見一斑。
+Nicola Smith：人們甚至都不再假裝香港立法會是個民主機構了。這看上去像反烏托邦主題電影的場景。
 
-趙正啓出獄以後，知道在陝西打不贏這個官司，孤注一擲進京搞了禦狀。最高人民法院受理此案，主審是大法官王林清。審判之日，最高人民法院出現了令人意想不到的一幕：案卷被盜失蹤！工作人員進一步發現，所有監視器突然不工作了。天子腳下，最高人民法院，這樣的事情何以發生？在官場混了這麽多年，王林清當然知道這意味著什麽。爲了保命，王林清立即錄了一份自我陳述的錄像，表明自己跟案卷失蹤無關，不會畏罪自殺，然後托人交給了在中國的公衆人物崔永元。事情的發展可能是你永遠無法預料的：王林清被邀請做客中央電視台。在電視訪談節目中，王淋清突然當衆認罪，承認案卷是他偷的。這個就有意思了。先不論究竟是誰偷了案卷，什麽人有權利安排央視專門做一個采訪節目，讓王林清在電視上認罪？王林請爲什麽要盜取案卷？你不覺得這簡直莫名其妙？
+> China is stealing our intellectual property, hacking our companies and lying to the world.
+> 
+> Is this what the new Cold War looks like? [pic.twitter.com/vlIXdeWXJo](https://t.co/vlIXdeWXJo)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262192855956639744?ref_src=twsrc%5Etfw)
 
-是什麽人這麽大權勢，可以翻手爲雲覆手爲雨？趙正啓的礦權後來賣給了一個你沒有聽說過的人叫做劉娟。是的，不是李嘉誠，不是劉永，是名不見經的一個女人。熟悉厲害國國情的你一定會問，劉娟背後是誰？當然，有人傳言，劉娟是趙正永的情婦。趙發啓說不是，這個人比趙正永更高，此人在北京。
+參議員 Marsha Blackburn：中國盜竊我們的知識產權，黑客我們的公司，並對世界撒謊。這是不是新冷戰？
 
-有了這些前因後果，現在你大概不會覺得賀榮回京僅僅是班師回朝那麽簡單了。也許，陝西的三個大案都牽涉到更高層，必須從北京查起。最近，崔永元失蹤了，趙發啓也失蹤了，氣氛變得有點詭異。是賀榮准備在北京開刀了，還是這些案子牽涉太廣，無人敢再查下去？當年，朱镕基准備 100 口棺材，最後一口留給自己，遠華案最後還是查不下去。在他之前，蔣經國當年血氣方剛，國難之時赴上海，誓言只打老虎不打蒼蠅，結果也是黯然收場。現在的中國，即使包青天再生恐怕也無法清除官場的貪汙腐敗。不過，賀榮回到北京，這本身就可能震動北京，不少人會坐臥不安。究竟近期會發生什麽？
+> The 73rd [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) World Health Assembly provides an opportunity for international cooperation during this global health emergency – and for the world to watch China’s actions closely.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262436801597366272?ref_src=twsrc%5Etfw)
 
-想起文貴先生有說， 歧山已被軟禁，而且很快江家的公子們肯定會被抓! 此時此刻 ，中共內鬥的白熱化，有人開始登基稱帝，美國的軍事力量正在集結，國際形勢對中共的倒逼等等等，這都是偶然嗎？不，絕對是必然的! 我更加堅定的相信: 我們的黎明即將到來！！！
+參議員 Marsha Blackburn：世衛組織第73屆世界衛生大會為處在全球衛生緊急情況下的國際合作提供了機會——也使世界可以密切關註中國的行動。
 
-（文章內容僅代表作者觀點）
+> Foreign governments do not have blanket immunity to victimize our citizens. Americans should be able to sue China for the trillions of dollars in damages and over 90,000 American deaths caused by the coronavirus.[https://t.co/Wjf2Fkz5AK](https://t.co/Wjf2Fkz5AK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262492204255379457?ref_src=twsrc%5Etfw)
+
+參議員 Marsha Blackburn：把我們的人民當作犧牲品的外國政府不享受外交豁免權。美國人民應該起訴中國，賠償冠狀病毒造成的幾萬億美元損失和9萬多逝去的生命。
+
+《華爾街日報》：最高法院裁定，恐怖主義的受害者可以起訴國家，要求懲罰性賠償
+
+> New CEO, same [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), still stealing your data and tracking your kids. Will [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) change their spying ways? [https://t.co/9tjpWm2HwK](https://t.co/9tjpWm2HwK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 18, 2020](https://twitter.com/MarshaBlackburn/status/1262510755225767943?ref_src=twsrc%5Etfw)
+
+參議員 Marsha Blackburn：新的CEO，原來的中共，仍在偷取妳的信息並跟蹤妳的孩子。抖音會改變他們的間諜行為嗎？
+
+CNBC新聞：抖音挖走迪士尼流媒體公司老板擔任其新CEO
+
+> The World Health Assembly convenes today, but Taiwan won’t be there. The world is worse off from the WHO’s cowardice, since Taiwan has many lessons to share from its successful response to the China virus pandemic.[https://t.co/cOJV6kCWed](https://t.co/cOJV6kCWed)
+> — Tom Cotton (@SenTomCotton) [May 18, 2020](https://twitter.com/SenTomCotton/status/1262474658076557312?ref_src=twsrc%5Etfw)
+
+參議員 Tom Cotton：世界衛生大會今天召開，但臺灣將不參加。世衛組織的怯懦讓世界變得更糟糕，因為臺灣從它應對病毒爆發的成功做法中積累了很多可以分享的經驗。
+
+《新聞周刊》觀點：美國現在比以往任何時候都應該支持臺灣
+
+> .[@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) previously told me they couldn’t attend hearings and testify because executives were located in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). But this new executive lives in the USA. I look forward to hearing from him. Under oath. [https://t.co/XPfiVpo9Ta](https://t.co/XPfiVpo9Ta)
+> — Josh Hawley (@HawleyMO) [May 18, 2020](https://twitter.com/HawleyMO/status/1262498756555046913?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：之前抖音告訴我，因為他們的高管都在中國，所以無法參加聽證會並作證。而這位新高管住在美國。我期待聽到他的回復。宣誓之後的。
+
+《華爾街日報》：抖音請迪斯尼高管Kevin Mayer擔任新任CEO
+
+> Interesting! [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) tells [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) that it is not really a Chinese company because parent co [@BytedanceTalk](https://twitter.com/BytedanceTalk?ref_src=twsrc%5Etfw) incorporated in Caymans. I got it. So [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) & [@BytedanceTalk](https://twitter.com/BytedanceTalk?ref_src=twsrc%5Etfw) are based in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), do business in USA – and seek tax shelter in Caymans. Sounds TOTALLY legit
+> — Josh Hawley (@HawleyMO) [May 19, 2020](https://twitter.com/HawleyMO/status/1262540964121501696?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：有意思！抖音告訴《紐約時報》說，它其實不是個中國公司，因為它的母公司字節跳動有限公司在開曼群島。我明白了。也就是說抖音和字節跳動公司總部在中國，業務在美國，並在開曼群島尋求避稅。聽著相當合法
+
+> It’s been a quarter-century since PRC authorities abducted the Tibetan Panchen Lama, when he was only six. He is now 31. The Chinese government should make known his whereabouts and allow believers of all religions in China to freely practice their faith without interference.
+> — Secretary Pompeo (@SecPompeo) [May 18, 2020](https://twitter.com/SecPompeo/status/1262457925769011206?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：中共政府綁架西藏班禪喇嘛已經25年，當年他只有6歲。現在他已經31歲。中國政府應該公布他的下落，且不幹涉所有宗教信仰的信眾們自由信奉他們的宗教。
+
+> Taiwan’s meaningful participation in the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) is critical especially as we combat [#COVID\_19](https://twitter.com/hashtag/COVID_19?src=hash&amp;ref_src=twsrc%5Etfw). The U.S. stands w/ [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), a fellow democracy that shares our values and is an important security & economic partner in the Indo-Pacific [#TweetforTaiwan](https://twitter.com/hashtag/TweetforTaiwan?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/ia76OHB7pN](https://t.co/ia76OHB7pN)
+> — Marco Rubio (@marcorubio) [May 18, 2020](https://twitter.com/marcorubio/status/1262497934916157443?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：臺灣實質性參與世衛組織至關重要，尤其當前我們處在在對抗冠狀病毒的時期。美國支持臺灣，他們是與我們有相同價值觀的民主政體，而且是印度太平洋地區重要的安全和經濟合作夥伴。
+
+美國國務院官網：關於臺灣被排除在世界衛生大會之外的聲明
+
+> The Chinese Communist Party continues to use this pandemic as an opportunity crack down on Hong Kongers fighting for their human rights and autonomy. 
+> 
+> Today’s developments reveal one thing: Beijing can feel that its control over the people of Hong Kong is slipping away. [https://t.co/malTVj5zDc](https://t.co/malTVj5zDc)
+> — Rick Scott (@SenRickScott) [May 18, 2020](https://twitter.com/SenRickScott/status/1262376665168203777?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：中共繼續利用疫情打擊香港人為人權和自治而抗爭的行動。今天的事態發展揭示出壹點：北京已經意識到它正逐漸失去對香港人民的控制。
+
+CNN國際新聞：周壹，香港立法委員為爭奪內務委員會關鍵席位在國會造成混亂。支持北京和支持民主的政界人士已經因內務委員會爭執數周，該委員會有權決定討論哪些法案。
+
+> “In fact, there is not a single Brazilian, Russian, Indian or South African company on the PCAOB’s list, all of China’s BRICS nation partners.” But not the CCP [https://t.co/nSi0xbalQM](https://t.co/nSi0xbalQM)
+> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262292342133972994?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“實際上，美國公眾公司會計監督委員會的名單上沒有壹家巴西、俄羅斯、印度或南非的公司，這些都是中國的“金磚五國”合作夥伴。”但不是中共
+
+《福布斯》：川普能把中國公司踢出紐交所、納斯達克嗎？
+
+> Time for us to acknowledge the truth. CCP must no longer be able to profit from its destruction of Hong Kong’s democracy. We must end the special privileges that power this brutal regime. Declare Hong Kong no longer autonomous. [https://t.co/Z8VvYeydk8](https://t.co/Z8VvYeydk8)
+> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262336302760034304?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：我們現在該認清現實了。不能讓中共繼續從破壞香港民主制度中獲利。我們必須終止這壹殘酷政權的特殊待遇。宣布香港已沒有自治。
+
+> This is a great picture. This is like tank man, and will go down in history. Great status symbol for the CCP. [https://t.co/Pr55FIkYyq](https://t.co/Pr55FIkYyq)
+> — General Spalding (@robert\_spalding) [May 18, 2020](https://twitter.com/robert_spalding/status/1262337514024710145?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：這張照片非常好。像坦克人照片壹樣，它會被載入史冊。展示中共地位象征的好圖。
+
+> My interview on chinese drones [https://t.co/ccC3ChIKCS](https://t.co/ccC3ChIKCS)
+> — General Spalding (@robert\_spalding) [May 19, 2020](https://twitter.com/robert_spalding/status/1262571616191623169?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：我評論中國無人機的訪談節目
+
+WJLA電視臺（ABC旗下）：美國將軍：中國公司捐贈給美國警方的無人機“將數據發回中國”。
 
 0
