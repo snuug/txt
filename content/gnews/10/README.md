@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：世衛組織是中國的傀儡
-`2020-05-20 02:20 GM31` [轉載自GNews](https://gnews.org/zh-hant/207757/)
+## 香港戰友訪談，揭露香港真相！“中共病毒疫情每日熱線 ”
+`2020-05-20 04:05 GM30` [轉載自GNews](https://gnews.org/zh-hant/207878/)
 
-5月18日召開的世界衛生大會上，川普總統沒有發表聲明，針對記者的提問，川普總統表示：我們稍後會發表聲明，我只是選擇今天不發表聲明。川普總統再次重申：世界衛生組織是中國的傀儡。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20040249/image0-146-8.jpg)
 
-出處：[President Trump Participates in a Roundtable with Restaurant Executives and Industry Leaders](https://www.youtube.com/watch?v=gPsAcJEClSs)
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec3f69482e098349f3bb4b6](https://web.gtv1.org/?videoid=5ec3f69482e098349f3bb4b6)
 
-*翻譯：【豆小豆】 校對：【Ying202064】  字幕：【GM38】*
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
-1
+0
