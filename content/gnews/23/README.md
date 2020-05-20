@@ -1,76 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月19日 美國政要推文選譯
-`2020-05-19 21:50 GM65` [轉載自GNews](https://gnews.org/zh-hant/207490/)
+## 爆料革命成功了，就一定會塑造未來中國人的生存方式
+`2020-05-20 03:29 GM30` [轉載自GNews](https://gnews.org/zh-hant/207832/)
 
-> This is the letter sent to Dr. Tedros of the World Health Organization. It is self-explanatory! [pic.twitter.com/pF2kzPUpDv](https://t.co/pF2kzPUpDv)
-> — Donald J. Trump (@realDonaldTrump) [May 19, 2020](https://twitter.com/realDonaldTrump/status/1262577580718395393?ref_src=twsrc%5Etfw)
+**作者：陽之戰**
 
-川普總統：這是寫給世衛組織譚德賽醫生的信。內容不言而喻。
+單純常常形容一個人，不谙世事，人們會認爲他們的腦袋比較的空白，而不知爲何我發現這個世界上我所關注的偉大藝術家，都是單純的人，熊谷守一，一個可以把自己封閉在自己豐富的、畫都畫不完的，有花有草有鳥還有自己挖的小池塘的、以及還有自己伴妻的庭院中30年的人，而畫出了至美的單純，梵高一個善良的瘋子，vitas 紅了20多年很少接受采訪但毫不過氣而是關注的一直在關注，他是一位美好的幻想者，但他把他的幻想變成現實的一個人，可以暢遊在藝術的領域裏，做著自己最愛做的事唱歌和開演唱會，成爲全世界開演唱會最多的人。他們都是單純到把自己封閉起來的人，是倔強的走著自己選擇的道路的人，但他們的世界是常人無法比擬的豐富。
 
-> 恭喜蔡英文總統歷史性的勝選。您已證明自己是有能力並富同情心的領袖，總是將人民的需求置於政治的需要之上。我期待未來許多年美國與台灣間的強勁合作。
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 19, 2020](https://twitter.com/MarshaBlackburn/status/1262880258795200517?ref_src=twsrc%5Etfw)
+謀求生存無罪，對每個人來說都是第一重要的，Vitas 和熊谷守一則家庭美滿和睦，都有相濡以沫的另一伴，梵高則被自己洪荒之力的激情給燃燒了，他們都不是與世界兼容的人，他們爲什麽選擇不與世界兼容，也許因爲最美不過是他們的看到的世界，他們腦中的世界。我看到了這些單純的人了不起的一面，有的令人心隱隱痛的畫作，因爲這麽的單純在世間如何存活？又或豐富多彩的畫作，因爲世界太美，太精彩，所以永遠熱情，是永遠面朝著太陽的向日葵，又或把人帶入其中而沈浸在夢幻中的歌聲，他們與生俱來就注定了選擇做自己，走自己的路，因爲世界太好，太美，所以他們打開了一扇門走進了這個領域，這個領域之內他們既是創造者也是發現者，這扇門名字叫“愛之門”，情至濃才可稱爲愛。
 
-參議員 Marsha Blackburn：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20032515/1-131-1.jpg)
 
-> The Chinese Communist Party shipped us defective, even counterfeit, masks. 
-> 
-> Taiwan has donated millions of masks, included 100,000 to my home state, Arkansas. 
-> 
-> The difference couldn’t be more stark. We need to stand with Taiwan:[https://t.co/cOJV6kCWed](https://t.co/cOJV6kCWed)
-> — Tom Cotton (@SenTomCotton) [May 19, 2020](https://twitter.com/SenTomCotton/status/1262734846151057408?ref_src=twsrc%5Etfw)
+他們很想讓其他人看到這個領域，把他們帶入到這個領域，讓人們看到和知曉。正如我剛踏入社會就看到這個社會有太多不應該的事情一樣，我不明白這種互害，是我太笨還是他們太笨，他們可以有更好的選擇，本可以不互害，共創造更好的事情一樣，我也希望他們可以看到和知曉。所以他們是注定的開拓者，不是模仿者，不是屈服者，是發現世界，開拓世界的人，是根子上的叛逆者，是暗示世界有更好的一種生存方式的人，我們可以安穩的過著自己的小日子，這就是享受生活給我們的恩賜，我們可以永遠保持熱情，因爲世界太美，顧不得那麽多，進入他的歌聲我們也發現世界美的地方太多了，也許他們自己都沒意識到他們發掘發現了推動改變世界“原力”，這是一種包含有善意的動力，所以有人發現了這些人，孜孜不倦的推廣他們，使他們的意識的結晶留在世間永存，使其生根發芽和成長，從而使他們對世界持續産生著影響，也讓他們變成了藝術家。所以謀求生存無罪，但我們可以選擇我們的生存方式，選擇更好的生存方式，而不是去選擇體現著假醜惡和互害與冷漠的關系的生存方式。
 
-參議員 Tom Cotton：中共運給我們的是有缺陷，甚至假冒的口罩。臺灣捐贈了幾百萬個口罩，包括給我所在的阿肯色州的十萬個。差別再明顯不過了。我們必須支持臺灣。
+而爆料革命正走在摸索和改變未來中國人的生存方式和方法的道路上，是具體的實施和行動派，也只能通過建立以公平和人權爲基礎核心所形成了的一個社會的生態的方式獲得成功，期望可以達到每個人都可以做自己，不必在意那麽多，但有一個至關重要的前提條件，每個人做自己可以，但必須是善良的，不能對他人造成傷害，同時要記住“衡人衡己和衡己衡人”這樣才能達到平衡，萬不能只要求別人，不要求自己。
 
-> This is the right move by Nasdaq. Luckin coffee illustrates why we need better oversight of Chinese companies listed on the U.S. stock exchange. [https://t.co/f4XP1KeF3c](https://t.co/f4XP1KeF3c)
-> — Tom Cotton (@SenTomCotton) [May 19, 2020](https://twitter.com/SenTomCotton/status/1262818082604691459?ref_src=twsrc%5Etfw)
+這是一條走在危險峻峭的懸崖上的道路，因爲稍有不甚將會攜著這段進程的曆史一起摔進浩渺無盡無際的世界懸崖，我們追求的“本”也不會有任何駐足。會有混入其中懷著不良意念的人的出入，一個基本點，人們會爲了謀求利益而造假，覺得不關乎你自己的事會表現出冷漠，也沒有什麽事意味著你不去害人，別人就不害你了，這就會造成對他人不公平，或對你自己不公平，就會造成互害的社會生態。但，求得公平是人最基本的特質，依照這一特質就可以建立喜馬拉雅的社會生態，而不是打壓這一種特質。要求公平，你首先得對他人公平，要求公平是人最基本的人權，不應該被極權給扼殺，極權是綁架了人的生存權，迫使人失去自己，扭曲自己，迫使和驅使人往低劣的方向去塑造自己，改變自己，也更不會形成公平的社會生態。人人都值得尊重的基本前提是，這個人需要人權和尊重人權，要求對自己公平，對他人就也要公平，這是人的偉大品質，也是作爲一個人的最基本的品質。
 
-參議員 Tom Cotton：納斯達克這壹舉措是對的。瑞幸咖啡說明了為什麽我們需要更好地監管在美國證券交易所上市的中國公司。中國是唯壹壹個不遵守我們的規定的國家。所以參議員應該通過《公平法案》來解決這個問題，阻止不守規矩的人進入我們的交易市場。
+**公平與人權是未來喜馬拉雅社會生態的基礎構件，你若戴人不公平，怎麽可能追求的到公平的世界呢？一個人爲了自己的利益，坑人，騙人，都是不公平，制造著對他人的不公平。打破封建王朝造成的無人權和在CCP極權的影響下所形成的人與人之間的社會關系的規則，它是形成人的奴性和假醜惡的主要原因，從而導致了人的奴性和假醜惡對正義進行打壓和制約的結果，只是因爲中國人的生存權被他們綁架了，因爲中國人過去靠求得CCP 給下放的權限生存，而未來每個人都要靠公平，並且把握住我們的生存權、人權,而且必須要去，捍衛它、遵守它。**
 
-路透社：納斯達克通知中國瑞幸咖啡，它計劃讓該公司退市。
-
-> Clues of the PRC Bioweapon research prior to the virus. [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw) [@WashingtonTimes](https://twitter.com/washingtontimes?ref_src=twsrc%5Etfw) [https://t.co/iFgi18y88t](https://t.co/iFgi18y88t) via [@Audioboom](https://twitter.com/Audioboom?ref_src=twsrc%5Etfw)
-> — John Batchelor (@batchelorshow) [May 19, 2020](https://twitter.com/batchelorshow/status/1262795873425260545?ref_src=twsrc%5Etfw)
-
-比爾·格茨先生 轉推 John Batchelor：病毒爆發前中共生化武器研究的蛛絲馬跡
-
-> Hold on, the new [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) CEO will only be a figurehead? “Product will continue to be run out of Beijing,” per report below? But I thought [@tiktok\_us](https://twitter.com/tiktok_us?ref_src=twsrc%5Etfw) [@BytedanceTalk](https://twitter.com/BytedanceTalk?ref_src=twsrc%5Etfw) said they were not [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)-based companies [https://t.co/9DBCietd4W](https://t.co/9DBCietd4W)
-> — Josh Hawley (@HawleyMO) [May 19, 2020](https://twitter.com/HawleyMO/status/1262774535314644992?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：等壹下，新任抖音CEO只不過是個掛名高管？根據下列報道，“產品仍將繼續由北京負責”？可是我以為抖音和字節跳動說過他們不是基於中國的公司。
-
-Dylan Byers：Kevin Mayer，抖音CEO，將不會全面掌管抖音。他的任務是戰略和政策。壹位與字節跳動公司CEO就該職位的作用進行了交流的消息人士告訴我：“這其實就是個掛名的職務，是為了轉移接下來對中國/政策的全方位開火。”
-
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) has threatened to “sanction” me and punish Missouri for daring to stand up to them. News flash for Beijing: we are just getting started [pic.twitter.com/Yd27AOHzor](https://t.co/Yd27AOHzor)
-> — Josh Hawley (@HawleyMO) [May 20, 2020](https://twitter.com/HawleyMO/status/1262906936191827971?ref_src=twsrc%5Etfw)
-
-參議員 Josh Hawley：中國威脅“制裁”我並懲罰密蘇裏州，因為我們勇於反抗他們。這是給北京看的新聞快訊：我們壹切只是剛剛開始。
-
-> Congratulations to Dr. Tsai Ing-wen on the commencement of your second-term as Taiwan’s President. Taiwan’s vibrant democracy is an inspiration to the region and the world. With President Tsai at the helm, our partnership with Taiwan will continue to flourish.
-> — Secretary Pompeo (@SecPompeo) [May 19, 2020](https://twitter.com/SecPompeo/status/1262724419513966598?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：祝賀蔡英文博士開始了她的第二屆臺灣總統任期。臺灣充滿活力的民主制度對地區和世界都有啟發意義。在蔡總統的領導下，我們與臺灣的夥伴關系將繼續蓬勃發展。
-
-> China is one of the few countries that still welcomes Mahan Air, an airline used to ferry Iran’s arms and terrorists. Today’s designation of a China-based company exacts consequences for that decision. Anyone doing business with Mahan Air runs the risk of sanctions.
-> — Secretary Pompeo (@SecPompeo) [May 19, 2020](https://twitter.com/SecPompeo/status/1262781433560563717?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：馬漢航空是壹家被伊朗用來運送武器和恐怖分子的航空公司，中國是僅有的幾個歡迎該公司的國家之壹。今天對壹家中國公司的認定就是這樣做的後果。任何與馬漢航空做交易的人都給自己帶來被制裁的風險。
-
-> It’s good to see [@Nasdaq](https://twitter.com/Nasdaq?ref_src=twsrc%5Etfw) taking steps to restrict access for Chinese-owned companies. 
-> 
-> These companies consistently flout U.S. laws and regulations and are not transparent. [https://t.co/Fx4G4K3GJl](https://t.co/Fx4G4K3GJl)
-> — Rick Scott (@SenRickScott) [May 19, 2020](https://twitter.com/SenRickScott/status/1262768259407007745?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：很高興看到納斯達克采取措施限制中國公司入市。這些公司總是無視美國法律和法規，而且不透明。
-
-路透社：獨家：納斯達克收緊上市規定，限制中國IPO
-
-> Article 23 is the nail in the coffin for Hong Kong [https://t.co/I3jZcGqzF8](https://t.co/I3jZcGqzF8)
-> — General Spalding (@robert\_spalding) [May 19, 2020](https://twitter.com/robert_spalding/status/1262704133221552128?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：第23條就是香港棺材板上的那顆釘子
-
-Jack Hazlewood：極為令人擔憂：陳曼琪（Maggie Chan）；駐北京的全國人大香港代表將在本周向全國人大提出不通過立法會直接實施第23條（國家安全法）的建議。“壹國兩制”結束了，這毫無疑問。
+（文章內容僅代表作者觀點）
 
 0

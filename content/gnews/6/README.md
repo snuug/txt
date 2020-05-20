@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 參議員盧比奧、科頓、斯考特聯名敦促銀行委員會通過＂平等法案＂（Equitable Act）
-`2020-05-20 06:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/207931/)
+## 【世界多語言圖文】18/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 09:19 GM77` [轉載自GNews](https://gnews.org/zh-hant/208132/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/19103209/Picture-1-204.png)
-盧比奧參議員5月18日在自己網站上發文—美國參議員馬可•盧比奧（Marco Rubio 佛羅里達州共和黨），湯姆•科頓（Tom Cotton 阿肯色州共和黨）和里克•斯科特（Rick Scott 佛羅里達州共和黨）敦促參議院銀行、住房和城市事務委員會的主席邁克•克雷波（Mike Crapo 愛達荷州共和黨）和副主席謝羅德•布朗（Sherrod Brown 俄亥俄州民主黨），以權宜的方式，全面審議並向全體參議院提交跨黨跨院的《在美上市的外國公司的信息質量和透明度的保證法案》（英文首字母縮寫為EQUITABLE，意為＂平等法案＂）。這項立法將加強對在美國交易所上市的中國和其他外國公司的監督，並在三年內，勒令將不符合美國法規的公司的退市。盧比奧議員去年在《華爾街日報》上的一篇專欄文章中解釋了該法案。
+戰友之家圖文摘要組及小語種組
 
-參議員寫道：「目前，由於中共政府設置的各種障礙，在美上市的中國公司，包括國有企業，均不受美國金融監管機構（包括上市公司會計監督委員會（PCAOB））的有效監督。…美國投資者，尤其是日常的小型散戶投資者，在受到掠奪性中國公司的欺騙時幾乎沒有追索權。國會有責任確保所有的公司遵循法律規定，不論它屬於哪個國家。」
+[English\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085219/English_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085219/English_0518_CCP_Virus_Updates.pdf)
 
-信的全文如下。
+[French\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085630/French_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085630/French_0518_CCP_Virus_Updates.pdf)
 
-尊敬的克雷波主席和布朗副主席：
+[Japanese\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085901/Japanese0518_CCP_Virus.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085901/Japanese0518_CCP_Virus.pdf)
 
-我們謹請參議院銀行、住房和城市事務委員會權宜地考慮並報告S.1731《平等法案》 ，以確保將美國會計和監督法規平等地應用於在美上市的所有公司。目前，由於中共政府設置的各種障礙，在美國證券交易所上市的中國公司，包括國有企業，不受美國金融監管機構（包括上市公司會計監督委員會（PCAOB））的有效監督。
+[Korean\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090218/Korean0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090218/Korean0518_CCP_Virus_Updates.pdf)
 
-這種不可持續的狀況導致中國公司不公平地擁有了超越美國公司的優勢。中國公司可以逃避美國會計法的全面監督，但美國公司卻要接受PCAOB的徹底檢查。最近爆出的在美上市的中國公司的財務醜聞，例如瑞信咖啡，表明對中國公司有必要進行全面監管。同時也彰顯了這種區別對待對美國投資者和資本市場造成的持續傷害。中國公司可以無視美國法律進入全球容量最大，流動性最好的資本市場並從中受益。
+[Russian\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090411/Russian_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090411/Russian_0518_CCP_Virus_Updates.pdf)
 
-證券交易委員會（SEC）最近發表了聲明，著重強調了新興市場（包括在美上市的中國公司）所帶來的風險。儘管這些警示是一個進步，但卻不能解決問題。問題不在於市場沒有充分地考慮到中國公司報告不良信息的「風險」，而是中國公司與美國同類公司在完全不同的財務制度下運營。
+[Spanish\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090613/Spanish_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090613/Spanish_0518_CCP_Virus_Updates.pdf)
 
-美國投資者，尤其是日常的小型散戶投資者，在受到掠奪性中國公司的欺騙時幾乎沒有追索權。國會有責任確保所有的公司都遵循法律的規定，不論它屬於哪個國家。
 
-感謝您的考慮。我們希望以任何方式提供幫助，以確保這一重要問題得到充分解決。
-
-[原文鏈接](https://www.rubio.senate.gov/public/index.cfm/2020/5/rubio-cotton-scott-urge-banking-committee-to-take-up-equitable-act)
-
-翻譯：匿名
 
 0
