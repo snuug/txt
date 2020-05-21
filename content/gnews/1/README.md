@@ -1,13 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共把自己宗教化，造成的傷害巨大！“中共病毒疫情每日熱線 ”
-`2020-05-20 23:13 GM30` [轉載自GNews](https://gnews.org/zh-hant/208602/)
+## 塔克：中共對美國的滲透無處不在
+`2020-05-21 03:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/208694/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20231007/image0-146-9.jpg)
+戰友之家新聞譯制組
+By GM64
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec547d282e098349f77f379](https://web.gtv1.org/?videoid=5ec547d282e098349f77f379)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+•中共利用中共冠狀病毒造成的全世界經濟大蕭條，使其成為世界上唯一變得更強的國家。
+•中共政府對傀儡WHO的表現十分滿意，但在昨天晚上川普總統寫信警告WHO稱，如果不立即作出重大變革，和中共撇清關系，將會永久停止資助WHO。
+•中共的觸角已經覆蓋了美國的媒體、教育、娛樂、經濟、企業、政治等等。這一切都深刻改變每一個人的生活，沒有引起重視的原因是聽中共話的人都獲得了好處，成了很多美國人羨慕的對象。
 
 0

@@ -1,25 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
+## 郭文貴先生：共產黨越沒錢越瘋狂
+`2020-05-21 02:35 GM77` [轉載自GNews](https://gnews.org/zh-hant/208677/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
-
-[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
-
-[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
-
-[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
-
-[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
-
-[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
-
-[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+By GM64
 
 
+
+•現在中共國與西方國家關系惡化，它所依存用來生產廉價商品的生產鏈開始外移。
+•在經濟面臨崩潰的局面下，中南坑決定將征收僅有70年產權，把實際面積當建築面積賣，花了老百姓兩輩子積蓄買來的房子的房地產稅。
+•誰敢反抗就抓起來，把中國老百姓徹徹底底的變成了奴隸。
 
 0

@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰情室181：美國疫苗研發獲突破性進展
-`2020-05-20 07:52 GM67` [轉載自GNews](https://gnews.org/zh-hant/207948/)
+## 【世界多語言圖文】17/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 08:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/208064/)
 
-作者：VOG翻譯組 小綿羊        文字編輯：flasher
+戰友之家圖文摘要組及小語種組
 
-**內容摘要**
+[English\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)
 
-本期戰情室對WHO和美國CDC在整個疫情失控過程中的行為進行了回顧，談到主流媒體不顧事實，一邊倒批評川普總統，並表示這一現象是不合理的。
+[French\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)
 
-班農連線前川普總統特別助理，也是川普2020咨詢委員會成員的Boris Epshteyn，討論美國重啓的具體措施和建議。Boris對疫苗研發進度表示樂觀，同時他認為長期來看，能夠帶領美國走出困境的，不是政府而是美國的創新能力。
+[German\_0517\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)
 
-**詳細內容**
+[Japanese\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)
 
-對於習近平在世界衛生大會上承諾的未來2年對全球總計20億美元援助，戰情室嘉賓紛紛調侃。Jason認為中共是否會用測不准的試劑和無效的個人保護裝置抵扣，班農則調侃肯定不會用美元支付，而會以中共央行發行的區塊鏈。相比美國擁有的強勁的經濟結構，真不知道印度，巴西和意大利等這些國家要如何恢復經濟，美國的零售額僅下跌了16%，班農以為會有50%左右的下跌。Jason提到Moderna的第一期疫苗測試結果不錯，助推股價上升20%，希望他們的疫苗可以獲得成功。
+[Korean\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)
 
-班農回顧主流媒體對於川普總統報道是不真實的，比如總統表示當時他是在所有人都反對的情況下，力排眾議禁止了來自中國大陸的航班。但是在主流媒體的報道中，看到的卻都是不真實的，抹黑的信息。
+[Russia\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)
 
-對於美國CDC在本次疫情中令人失望的表現，Raheem表示美國政府怎麼淪落到需要依靠尼爾·弗格森教授（Neil Ferguson）和倫敦帝國理工學院（Imperial of London）來建立疫情模型呢？原本整個世界都指望的美國CDC怎麼消失了？
+[Spanish\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)
 
-班農連線Boris Epshteyn，探討美國重啓的進度，「Boris，請給我們分享一下現在美國重啓過程中的情況吧。」
 
-Boris: 我現在重點談喬治亞，德克薩斯和加州的情況。加州推遲了重啓的時間表（參考洛杉磯縣延遲3個月開放，灣區公司推特宣佈員工可永久在家辦公），德克薩斯和喬治亞州的新冠肺炎感染人數也有所上升。但是從全美來看，如果把紐約州和新澤西州北部去掉，美國已經完全準備好了，在做好社交距離這些指引下，已經具備了重新開放的條件。更重要的是，美國人民已經準備好了，我不認為我們能讓大家繼續待在家裡。
-
-班農：請展開談談你說的美國準備好了以及相關的數字指標。夏天到了，馬上就是「陣亡將士紀念日」，我們知道加州的激進左派已經在海灘上衝浪。你說你在德州和喬治亞州看到的一切讓你覺得美國已經準備好的指標到底是什麼？
-
-Boris: 德州的病例確認數字看起來是有所上升，但這是因為之前對肉製品工廠的員工做了集中檢測。喬治亞的數字已經穩定，佛羅里達的數字已經明顯下降，甚至紐約的數字也開始下降。要知道一個半月之前，我們被告知紐約的疫情會在其他大城市重新來一遍，我特別建議大家閱讀Propublica的文章 「兩個海岸，一種病毒，東岸紐約州的死亡人數是西岸加州的10倍」 （Two Coasts. One Virus. How New York Suffered Nearly 10 Times the Number of Deaths as California），其中提到了紐約州州長科莫和紐約市市長德布拉西奧有多麼的無能和不稱職。大家喜歡說川普總統做的不夠好，但是人們忽視了在我們這個國家 ，地方政府的州長和市長的權利某種程度上遠大於聯邦政府。這種災難發生後，我們需要重新審視這些官員的領導力。所以，總的來說我們看到了明顯的改進，包括華盛頓特區也沒有迎來所謂的大爆發，Moderna的第一期疫苗臨床試驗結果樂觀，帶動道瓊斯指數上升700點。美國的人民，市場和整個國家都期待重新啓動帶來的活力。
-
-Jason：這幾天的新聞似乎都是關於疫苗的，你覺得這個到底有多大幫助？
-
-Boris：長期來看，能夠帶領美國走出困境的，不是政府而是我們的創新能力。我們的私人企業，在創新上是全球領先的。
-
-班農：你認為美國CDC以及其他總統周圍的專家，能給出一個有效的數據框架，供總統做出正確的決策嘛？
-
-Boris: 我最大的擔心是總統周圍的，那些不熱愛我們的總統的人。你知道暗勢力是真實存在的，他們不僅僅存在於FBI或者情報機構中，也存在於各級政府中，在各種場合他們有意無意的會散布對總統不利的信息。
 
 0
