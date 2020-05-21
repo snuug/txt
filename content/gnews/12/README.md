@@ -1,23 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】18/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 09:19 GM77` [轉載自GNews](https://gnews.org/zh-hant/208132/)
+## 作戰室第183期間 – 勝利日
+`2020-05-20 11:35 GM67` [轉載自GNews](https://gnews.org/zh-hant/208220/)
 
-戰友之家圖文摘要組及小語種組
+作者：雪菜        文字編輯：flasher
 
-[English\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085219/English_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085219/English_0518_CCP_Virus_Updates.pdf)
+勝利日的好消息
 
-[French\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085630/French_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085630/French_0518_CCP_Virus_Updates.pdf)
-
-[Japanese\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085901/Japanese0518_CCP_Virus.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085901/Japanese0518_CCP_Virus.pdf)
-
-[Korean\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090218/Korean0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090218/Korean0518_CCP_Virus_Updates.pdf)
-
-[Russian\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090411/Russian_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090411/Russian_0518_CCP_Virus_Updates.pdf)
-
-[Spanish\_0518\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090613/Spanish_0518_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090613/Spanish_0518_CCP_Virus_Updates.pdf)
+- 硫酸羥氯喹成為勝利日的好消息
 
 
+班農先生指出當前全球經濟受到重挫，而疫苗仍在開發中，想要重啓經濟的一個關鍵要素就是要找到適合的治療方案。當前在全球有多個地區都在進行藥物的治療性測試，班農先生稱其為百花齊放，在最近關於第一階段的測試結果顯示：硫酸羥氯喹被證實在預防作用中是有效的。昨天川普總統也在回答記者採訪中聲稱他正在服用硫酸羥氯喹作為預防。
 
-0
+硫酸羥氯喹與鋅同時使用來作為預防方案，被證實是有效的，而主流媒體之前一直反對此藥，這一次主流媒體紛紛崩潰。因為川普總統提出過兩點：第一是提倡給學生提供學校午餐，第二就是硫酸羥氯喹作為預防用藥使用。因為主流媒體之前不認同硫酸羥氯喹作為預防用藥的可行性，所以他們崩潰。
+
+在之前的主流媒體報道中，總是過分強調硫酸羥氯喹有可能導致心律不齊，但是世界衛生組織對此做了長達47頁的重點研究，在非洲和世界其它地方數以億萬計的人服用氯喹作為抗瘧疾用藥，在這些服用藥品的人中，沒有證據能夠證明服用氯喹會使人因劇烈心律不齊而致死，世界衛生組織將此藥定義為預防瘧疾的安全用藥。
+
+美國CDC對於硫酸羥氯喹的描述中，陳述硫酸羥氯喹具有較好地耐藥性，最常見的副作用是胃痛、噁心、偶爾嘔吐和頭痛，而這些副作用在大多數藥品中是最常見的。通常可以通過與食物一起服用來減少副作用，羥氯喹另一個副作用也可能在某些人身上引起瘙癢、嘔吐或腹瀉，但通常不需要停止使用。
+
+Jack認為有的政客在主流媒體上發言，以硫酸羥氯喹的副作用來抵制川普總統，這是前所未有的，完全是出於對川普總統的仇恨。當前應當為全體美國人的身體健康考慮，在還沒有疫苗的情況下，將硫酸羥氯喹作為預防用藥和安全治療方案，這對美國重啓經濟來說就是另一種形式的勝利日！
+
+- 藥品產業供應鏈的回歸是勝利日的第二個好消息
+
+
+《紐約時報》報道川普總統在美國弗吉尼亞州成立新的制藥工廠生產與中共病毒相關藥品。Jason介紹說這是因為美國的另一位英雄人物羅斯瑪麗·吉布森（Rosemary Gibson），她在黑斯廷斯中心（Hastings Center）擔任高級顧問，是研究生醫學教育認證委員會的董事會成員，她長期致力於調查研究美國對中國醫藥製品依賴的危險性。
+
+班農先生補充說羅斯瑪麗·吉布森寫了一本叫《中國制藥》的書，書中主要講述美國長期依賴在中共國生產的各種處方或非處方藥品，以及這種產業上的依賴對美國的危害，這是川使得普總統將制藥產業鏈拉回美國的重要影響因素。班農先生對川普的這個決定非常贊同，並且因為新聞中提到藥廠建在自己的故鄉弗吉尼亞表示高興，班農先生對羅斯瑪麗·吉布森進行了採訪。
+
+羅斯瑪麗介紹說，起初她寫的《中國制藥》這本書並沒有引起關注，但是這次全球都受到中共病毒的衝擊，全球75個國家和地區都禁止了關鍵藥物的出口，此時美國藥物戰略儲備不足的缺陷就暴露出來了，美國人非常需要自己的制藥廠，這時成立一傢具有較大影響力的美國制藥公司可以解決這樣的問題，我們將使用高級的生產技術盡可能降低生產成本、減少環境破壞。她本人也成為無薪酬獨立董事，確保該實體符合公共利益，以及生產成本結構的透明。
+
+Jason提問在美國要建立如此龐大的一家醫藥工廠，如何解決美國本土原材料和原材料供應鏈來自中國和印度等國家的問題？羅斯瑪麗回答說美國具有巨大的化學和制藥工程，可以保證生產出的藥品（包括主要成分）只會比以前的更好，這會帶來大量的需求和合同，並促使原材料在美國能夠更安全的生產供應，這樣就解決了問題。關於治療冠狀病毒的藥物，還沒有被命名的具體的藥物。這樣的醫藥產業鏈將是龐大的，在美國本土生產抗生素、止疼藥、鎮靜劑、腎上腺素等產品，解決當前美國短缺的醫藥是第一要務。當美國解決自身藥品短缺問題後，也可以向與美國關係重要以及曾經打交道的國家提供藥品，還可以為以後的各種災害做更好的準備。利用高科技將主要成分配料存儲起來，可以在幾周內快速合成藥品，以後美國就再沒有後顧之憂了。關於班農先生提出什麼時候能有第一批藥品的問題，羅斯瑪麗說這個特別小組已經聚集在了一起，現在他們就有能力啓動並運行，大概九個月內就能擁有先進的製造能力以小規模的生產，明年就可以進行更大規模的作業了。
+
+- 福齊醫生與伯克斯醫生到底是不是聯合演戲？
+
+
+佈雷特·塞繆爾（Brett Samuels）是新聞媒體The Hill（國會山）的重要記者，他對美國CDC和白宮的所有新聞尤其是突發新聞都進行了最原始的詳實記錄。因為彼特·納瓦儸對於美國CDC的評價是CDC辜負了美國人民，這與川普總統以及副總統彭斯之前對CDC的表揚相悖。結合CDC在本次疫情爆發中的表現來看，CDC主任雷德菲爾德沒有定期舉行會議，沒有制定前瞻性的防控措施，所以看起來納瓦儸的批評是中肯的。而且納瓦儸說伯克斯醫生與福齊醫生聯合演戲，但是伯克斯醫生（Dr.Birx）曾經說過她再也不會相信任何來自於CDC的信息，這樣批評的言論具有針對性，看起來只是針對CDC這個機構而不是針對福齊醫生，因為看起來CDC關於數據的信息和疫情發展調查已經很落後了。根據鮑勃·雷德菲爾德在參議院的證詞，通過這次疫情，美國應該意識到需要改革公共基礎衛生設施了，人們已經也意識到了一些缺陷以及需要解決的問題了。
+
+1

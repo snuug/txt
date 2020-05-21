@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吉林传染链已失控，湖北对外输出感染者
-`2020-05-20 19:10 GM06` [轉載自GNews](https://gnews.org/zh-hant/208391/)
+## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
 
-作者：立武
+戰友之家圖文摘要組及小語種組
 
-截至19日1时，吉林传染链已经导致42人确诊，范围从舒兰不断扩大到吉林市的丰满区、船营区、昌邑区和高新区，同时出现跨省传播。**尽管中共采取了免职政府人员、发布严厉打击隐瞒疫情、对违反封城规定进行严厉处罚等措施，即使中共能够落到实处，之前已经复工复学的人口流动已经将潜在的感染风险无线扩大。**
+[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
 
-值得注意的是，5月7日传染链首例病例传染到5月18日的某一病例，**之间隔了5个人，意味着这条传染链可能确诊的病例将是呈现至少5倍的几何增长，**同时由于源头的不确定，这种倍数可能还会更高，而且，跨区跨省的流动反映出了传染链分布面积的扩大。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20183952/6-21-2.jpg)
-同时，间隔5个人依然能够确诊意味着病毒的毒性在传播6代后依然可以表现出症状，**而且相当一部分人是中共所谓的无症状感染者转确诊，意味着病毒的传染性非常强，**在中共所谓的无症状感染者和确诊患者上都是一样的。
+[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
 
-我们看到，中共依然在为自己掩盖疫情真相的罪责推脱，声称“疫情整体可控”，复旦大学公共卫生学院的原院长称，“尽管第一例没有发现，但是第二例、第三例被发现了，这也体现了现在新冠监测系统的敏感性”，**但是中共并不能保证传染链首例病例是第二或者第三例。**中共专家的背书的乐观情绪是建立在民众疾病痛苦的基础上的。
+[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
 
-像**“一人多次乘坐公交”、“新增病例在医院上班”、“一人曾为多个小区做保洁”、“5岁男童确诊”、“频繁聚餐”、“参加婚礼”、“千人隔离”**等等的字眼出现在传染链的报道上，意味着疫情已经不可控，确诊病例可能出现在医院、小区、公交、婚礼等任何地方，年龄也没有限制。
+[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20184215/8-9.png)
+[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
 
-一边是吉林不断增加的确诊病例，一边是武汉反反复复的疫情，18日，武汉新增一例无症状感染者转为确诊的病例，意味着现有的无症状感染者并非中共渲染的无关紧要。而且该转诊的患者是早在5月9日就被确定为无症状感染者，但由于CT没有出现病变没有被认定为确诊病例。**然而相隔****9****日，无症状感染者依然可以被认定为确诊病例，肺部也可能进一步出现病变，这都是无症状感染者不能够被忽视的原因。**
+[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
 
-同时，我们观察到，**在5月17日义乌新增的2例无症状感染者都来源于湖北武汉输入，同日浙江新增的2例无症状感染者也都来源于湖北武汉输入，同日上海确诊的一例病例来源于湖北潜江输入，5月18日福建莆田新增1例无症状感染者来源于湖北红安输入。**湖北特别是武汉到底存在多少无症状感染者是一个未知数，但可以确定中共一直复工复学，这种感染就只增不减。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20184319/8-9-2.png)
-**特别是上海和福建这两例病例核酸检测先阴后阳提示我们中共的一次性大规模核酸检测并不靠谱，**特别是在操作不规范、采样不规范的情况下，中共的“十天大会战”反而会增加人群的聚集，进一步加剧传染。**吉林传染链提示我们疫情随时爆发，武汉反复的确诊提示我们疫情不会消失，中共掩盖疫情真相和鼓动复工复学只会让疫情“不可防不可控”。**
+[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
 
-（文章内容仅代表作者观点）
+
 
 0

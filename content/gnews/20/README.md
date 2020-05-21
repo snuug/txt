@@ -1,18 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國家經濟委員會理事長 拉裏·庫德洛接受FOX采訪表示未來將推出更多措施規範在美上市的中國企業
-`2020-05-20 08:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/207946/)
+## 【世界多語言圖文】17/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 08:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/208064/)
 
-戰友之家視頻新聞組制作
-By GM64
+戰友之家圖文摘要組及小語種組
+
+[English\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)
+
+[French\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)
+
+[German\_0517\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)
+
+[Japanese\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)
+
+[Korean\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)
+
+[Russia\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)
+
+[Spanish\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)
 
 
-
-•川普總統在阻止美國的退休養老基金繼續投資中國的企業，未來將推進更多的措施規範中國的企業在紐交所和納斯達克上市。中國在美國上市的企業一直都不透明，涉及中國軍方，危及美國的安全。
-•川普總統寫給WHO的責難信中譴責中共和WHO勾結在一起掩蓋真相，這意味著中共很多企業潛在的各種法律官司，整體上的金融罰款。除非中國企業公開透明，處理好以上事物，不然沒人會有自信來投資中國。
-•透明度，開放度，匯集準則是美國正在調查中國企業的一些方向。在保護投資人的情況下，首先要從儲蓄基金開始入手調查。
-•美國國家經濟委員會理事長，拉裏庫德洛認為中國政府不會拋售美元債券，因為拋售美國債券中共將損失更多的錢。在正常的市場情況下，他認為這是不會發生的。
-•中國正確的解決方式是開放投資市場，按照規則辦事。
 
 0
