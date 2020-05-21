@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】16/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 08:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/207952/)
+## 巴西告急
+`2020-05-20 09:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/208114/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20090136/%E5%B7%B4%E8%A5%BF%E5%91%8A%E6%80%A5-1.jpg)
+據BBC的報導，巴西日前已經總共確診了25萬多例中共冠狀病毒感染病例，這使巴西已成為系美國與俄羅斯之後，世界上確診中共冠狀病毒感染數量第三高的國家。有專家表示，巴西的實際確診數字可能是其公布的15倍之多，因為目前的測試量嚴重不足。
 
-[English\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080529/English_0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080529/English_0516_CCP_Virus_Updates.pdf)
+目前，巴西已有超過16,000名中共冠狀病毒患者死亡，位居世界第六位。巴西最大的城市聖保羅市長布魯諾·科瓦斯（Bruno Covas）警告說，城市的衛生醫療系統可能會在兩周內崩潰。這座擁有1200萬人口的大城市目前有超過3千人死亡，這可能與大多數居民選擇忽略社交距離規則有一定關係。然而遭受重創的不僅局限於大型城市，截至周一，亞馬遜州已有近兩萬一千人感染。亞馬遜州首府的醫療服務系統已經不堪重負，人們正在使用萬人坑掩埋死者。
 
-[French\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080704/French0516_CCP_Virus_Updates_FR.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080704/French0516_CCP_Virus_Updates_FR.pdf)
+巴西的極右翼總統博爾索納羅（Bolsonaro）先生一直反對用封鎖措施來對抗疫情，他認為這些措施對經濟的破壞力太大了。他在三月份就發表講話，呼籲巴西的市長和州長們放寬隔離限制，說：“我們的生活必須繼續下去，人民必須保留工作。我們必須馬上恢復正常。”他將關閉企業、學校以及對公共交通的限制措施描述為“焦土”政策。
 
-[German\_0516\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080709/German0516__CCP_Virus_Updates_-_Kopie.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080709/German0516__CCP_Virus_Updates_-_Kopie.pdf)
+博爾索納羅總統認為人們對中共冠狀病毒不需要太過擔心。他說：“從我曾經是運動員的角度來看，如果我感染了這種病毒，我不會太擔心。因為最多只會有一點流感的感覺。” 總統對疫情的態度和處理態度直接造成了他與衛生部長納爾遜·泰希（Nelson Teich）的矛盾，衛生部長已於上周辭職。而這位剛辭職的衛生部長的前任部長路易斯·曼德塔（Luiz Mandetta）則也是因為與總統對於維持安全社交距離的理念持不同觀點，而被總統解僱。
 
-[Japanese\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080712/Japanese_0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080712/Japanese_0516_CCP_Virus_Updates.pdf)
+評：巴西作為經濟實力相對薄弱的國家，在應對這次中共冠狀病毒疫情的時候遭受到醫療體系崩潰與經濟體系崩潰的雙重威脅。巴西總統為保經濟而選擇忽視中共冠狀病毒對其國民的潛在危害。然而隨着全世界呼籲徹底調查中共冠狀病毒的起源的進一步發展，中共冠狀病毒來源於實驗室的真相將會很快被曝光。
 
-[Korean\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080718/Korean0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080718/Korean0516_CCP_Virus_Updates.pdf)
-
-[Russian\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080723/Russian0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080723/Russian0516_CCP_Virus_Updates.pdf)
-
-[Spanish0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080727/Spanish0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080727/Spanish0516_CCP_Virus_Updates.pdf)
-
-
+[原文鏈接](https://www.bbc.com/news/world-latin-america-52719391)
+翻譯報道：佚名
 
 0

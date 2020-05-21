@@ -1,16 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國CCP病毒患者呈現出新癥狀
-`2020-05-20 12:22 GM10` [轉載自GNews](https://gnews.org/zh-hant/208272/)
+## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
 
-***作者：Dogman***
+戰友之家圖文摘要組及小語種組
 
-中國北部位於邊境的舒蘭，吉林市和沈陽多地因為CCP病毒重新被封鎖。根據國家衛建委救治專家組成員邱海波所說，相比較武漢地區，這次北部地區的患者呈現出的癥狀有所不同。
-根據澎湃新聞報道，截止05/19/2020，吉林市確診病例攻擊40例，確診病例的密切接觸者一共1181人。
-邱海波在05/19/2020 的《新聞1+1》的采訪中說，黑龍江吉林兩省的確診病例的病程潛伏期較長，病人沒有癥狀，因此更容易造成一些家庭聚集性傳播。
-而且，這兩省的確診病例的臨床癥狀與之前武漢的確診病例癥狀不同。武漢的確診病例與之前紐約報道的病人癥狀類似，即全身器官都會受損，其中包括肺部，腎臟，腸道等多個器官。而這次在中國北部地區確診病例呈現出的癥狀多以單器官為主，非多器官模式。
-根據邱海波說，在確診治療之後，武漢的病人一般一周或兩周就會轉陰。但是此次中國北部確診患者的轉陰速度相比來說比較慢。
-由於此次中國北部疫情爆發，中共當局嚴格封鎖城市和消息傳遞，當地具體的情況外界還不得而知。之前，浙江大學的研究表明，病毒已經進化多大30多種。此次北部地區的確診癥狀與內地不同，是否病毒進化導致，目前醫療從業者和科學家還不得而知。
+[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
+
+[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
+
+[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
+
+[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
+
+[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
+
+[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
+
+[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
+
+
 
 0
