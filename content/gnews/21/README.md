@@ -1,25 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
+## 中共把自己宗教化，造成的傷害巨大！“中共病毒疫情每日熱線 ”
+`2020-05-20 23:13 GM30` [轉載自GNews](https://gnews.org/zh-hant/208602/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20231007/image0-146-9.jpg)
 
-[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec547d282e098349f77f379](https://web.gtv1.org/?videoid=5ec547d282e098349f77f379)
 
-[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
-
-[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
-
-[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
-
-[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
-
-[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
-
-[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
-
-
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共把自己宗教化，造成的傷害巨大！“中共病毒疫情每日熱線 ”
-`2020-05-20 23:13 GM30` [轉載自GNews](https://gnews.org/zh-hant/208602/)
+## 【中文字幕】美國國務卿彭培奧5月20日記者招待會完整版
+`2020-05-21 02:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/208652/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20231007/image0-146-9.jpg)
+戰友之家新聞譯制組
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5ec547d282e098349f77f379](https://web.gtv1.org/?videoid=5ec547d282e098349f77f379)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
