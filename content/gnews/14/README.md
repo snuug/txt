@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】17/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 08:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/208064/)
+## 德法聯合推出5000億歐元歐洲復興計劃
+`2020-05-20 08:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/208092/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20085331/%E5%BE%B7%E6%B3%95%E8%81%94%E5%90%88%E6%8E%A8%E5%87%BA5000%E4%BA%BF%E6%AC%A7%E5%85%83%E6%AC%A7%E6%B4%B2%E5%A4%8D%E5%85%B4%E8%AE%A1%E5%88%92-1.jpg)
+據《泰晤士報》報道，昨天，德國總理默克爾一改之前的反對態度，在同法國總統馬克龍的一個視頻會上聯手推出一個總預算5000億歐元的“歐洲復興計劃。”據了解馬克龍一直支持歐盟南部國家的一些資金上的請求，而默克爾早前屬於北歐陣營，因害怕最終將有北歐國家來支付這筆賬單而一直對此持反對態度。默克爾曾阻止法國和意大利推出的一項計劃，該計劃要求歐盟委員會籌資以度過這場危機。她一直強調復興計劃的資金應納入歐盟2021年至2027年的財政預算。
 
-[English\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20082053/English0517_CCP_Virus_Updates.pdf)
+通過這個復興計劃，歐盟將舉債5000億歐元，並將這些錢分配給像意大利倫巴第等受疫情影響嚴重的地區和國家，以及因為疫情而遭受重創的行業，例如旅遊業。馬克龍建議歐盟國家根據各自的經濟實力來償還這筆費用。在此條件下，德國將成為支付金額最高的國家。歐洲央行行長拉加德表示，“這個計劃非常大膽並且有針對性，我非常歡迎。”
 
-[French\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083218/French0517_CCP_Virus_Updates.pdf)
+德法共同推出的這項計劃旨在強化歐洲的一體化，減少疫情對歐盟造成的衝擊。雖然最終推出的資金總額達不到巴黎，馬德里和羅馬所期望的，它代表了德國在這個問題上的一個重大的讓步。德國一直是抵制歐盟將北歐富裕國家的資金用來補助這些地中海的窮夥伴對抗病毒的。德國總理默克爾認為這項復興計劃是歐盟歷史上一個有突破性的舉動。 她說：“我們需要付出巨大的努力戰勝病毒，而且我們終會成功。我們在走一條新的道路以對抗病毒，這是沒有先例的。”
 
-[German\_0517\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083356/German0517__CCP_Virus_Updates_-_Kopie.pdf)
+馬克龍堅持這筆資金將免費分配給需要的國家並且不需要償還。但是一些財政上比較謹慎的小國反對免費劃撥這筆資金，支持以貸款的形式分配給需要的國家使用。荷蘭總理官方發言人馬克.魯特（Mark Rutte）強調，德國和法國對資金如何使用沒有最終決定權。“歐盟委員會還沒有最終方案。”奧地利總理塞巴斯蒂安.庫爾茨（Sebastian Kurz）和魯特以及丹麥和瑞典的領導人進行了視頻通話。他說所有的國家都有否決權，他們反對無償劃撥這筆資金而不需要償還，同時不增加這些國家在歐盟的預算責任。他說，“我們的立場沒有改變， 我們願意以貸款的形式幫助那些受疫情影響嚴重的國家。”芬蘭和丹麥也很擔心最終他們要承擔這筆債務。
 
-[Japanese\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083518/Japanese0517_CCP_Virus_Updates.pdf)
+德法曾經主導歐盟一切事務， 但是當歐洲的小國陸續加入後，他們抵制的呼聲也越來越高。馬克龍承認在提交到成員國各領導人前，這個復興計劃會做一些修改。他認為這個復興計劃是一場深刻的變革，也是歐盟各國以及歐元區保持團結和和諧重要的一步。
 
-[Korean\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083644/Korean0517_CCP_Virus_Updates.pdf)
+[新聞來源](https://www.thetimes.co.uk/article/merkel-backs-500bn-recovery-fund-jv8plz2ln)
 
-[Russia\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083738/Russia0517_CCP_Virus_Updates.pdf)
-
-[Spanish\_0517\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20083816/Spanish0517_CCP_Virus_Updates.pdf)
-
-
+喜馬拉雅
 
 0

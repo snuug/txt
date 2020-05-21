@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】16/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 08:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/207952/)
+## 跳出空城，上諾亞方舟！
+`2020-05-20 08:12 GM67` [轉載自GNews](https://gnews.org/zh-hant/207958/)
 
-戰友之家圖文摘要組及小語種組
+By 八角棒槌
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080832/68.jpg)
+每次看到牆內媒體的報導，標題裡但凡出現“定了！”的字眼，總讓我有種得了痔瘡的感覺。即便我身體狀況一直不差，可在我的前半生中，關於那種撕裂般的疼痛，多少還是有幾次親身的體驗。為此我特意備了馬應龍軟膏，以防下次不幸的降臨。據說在防治病毒方面，這藥還跟雙黃連、潔爾陰有同等功效，此結論出自中共，因此我也沒打算試。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080835/69.jpg)
+此外出於習慣，每當行方便時，我都把門關得緊緊的。至於習慣的由來，也談不上有啥深刻的道理，除了少不更事的細路仔，上廁所關門，恐怕乃天經地義。因此，就算我也有過不幸，卻從不曾有中共的經歷：蹲馬桶上邊使勁，邊被觀眾們翹首期盼，等終於憋了出來，眾人立馬擊節歡慶，並高喊“定了！”。類似的場面，記得《赤壁》裡有過一回，不過跟中共比，萌萌顯然要文明得多。何況人家完事只在片刻間，之後草照吃路照跑，壓根勿需小喬因操碎心而害得兩三年時間裡，沒法跟夫君動如雷震。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080839/70.jpg)
+根據消息顯示，管理辦法早在2017年就有了，只是多少算大額，現在才總算有了界定。但以我過往的經驗，不管什麼領域，每次只要一“定了”，基本就沒了後續。按常理來說，鑽空子是不對的，故而量化指標一定得有；然而一旦量化完，卻更有利於鑽空子。這相當於做婊子不僅要立牌坊，立牌坊也更便於做婊子，拿吳思的觀點做底，就能得出一結論：有利於潛規則的規則也是潛規則。既然是潛，就一定要樹立潛的對立面，樹立的目的無它，除了假正經，僅僅是為了更好潛。
 
-[English\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080529/English_0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080529/English_0516_CCP_Virus_Updates.pdf)
+二十年前，作為一剛入世的小伙，《潛規則》被吾奉為圭臬，如今我已鬍髭扒叉，但每根都記載著出世時的連滾帶爬。樣子確實難看了些，卻對吳老的發現和總結，總算有了些自己的看法。
 
-[French\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080704/French0516_CCP_Virus_Updates_FR.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080704/French0516_CCP_Virus_Updates_FR.pdf)
+總體說來，無論企業也好，個人也罷，倘若民間資本仍富足，中共權可讓觀眾繼續翹首祈盼下去。五年十年不過家常便飯，運氣稍稍差點，直到蓋棺也沒個定論。當然，假如有人對中共愛割韭菜的本性予以否定，或許不僅不贊成我的觀點，甚至還會與我為敵。照目前情況看，民間資本顯然早已被榨乾，常態狀況下，如果說潛規則的目的是為自己牟利，那麼在特殊時期，只怕會變成不讓別人牟利。
 
-[German\_0516\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080709/German0516__CCP_Virus_Updates_-_Kopie.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080709/German0516__CCP_Virus_Updates_-_Kopie.pdf)
+據我多年的經驗，為了不讓百姓牟利，除了頒布規定，老實說，也沒看到中共有什麼高招。但話得說回來，沒看到不等於沒有，畢竟大數據在那擺著，你以為人家喝西北風？我的意思是，這其中存有阻遏其發揮高招的因素。如果我猜的沒錯，主要問題在於人手不足，另方面又因為我們人手太足，一旦群起而為之，規定便形同虛設。另外，雖然主子面前都裝著孫子，卻在平級面前都自認是爺，如此一來，部門間的協作也大有問題。除非上面親自抓，可上面人手不足啊，於是又滾回到第一個問題上面。
 
-[Japanese\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080712/Japanese_0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080712/Japanese_0516_CCP_Virus_Updates.pdf)
+據我多年的經驗，這兩點正是中共的死穴。它自己也再清楚不過，由此可以斷定，頒布規定只是為了嚇你，越嚴的規定，就越能證明這點。一個兩三年前的破規定，兩三年後又舊調新彈，只要你敢硬著腦袋幹，可以想像那大山臨盆，天為之崩，地為之裂，日月星辰，為之無光；房倒屋塌，煙塵滾滾，天下生靈，死傷無數……嚇唬完自己後，太陽照常升起。當然，倘若你是久經沙場的老師傅，連想像環節都可以直接跳過。
 
-[Korean\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080718/Korean0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080718/Korean0516_CCP_Virus_Updates.pdf)
+豪不自誇地說，這幾年來，我日夜醉裡挑燈看劍，早把那賤看穿，深知終有一天，它會來這麼一出。因此早在兩年前，我就註銷了自己名下的公司。回想起來，當初若沒覺悟，現在我就成了砧板上的魚，直挺挺躺在那，任由中共橫豎切割。雖說我那公司只是個殼，但光殼就能要我的命。比方說我一用個人賬戶置房置車，基於殼的作用，我就得面臨處罰的風險。偷漏稅是個白招子，實際偷沒偷漏，則得由中共定。有實業就更別提，講白了，牆內老闆都有罪，罪不在走個人賬戶，在頂有老闆的名頭。
 
-[Russian\_0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080723/Russian0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080723/Russian0516_CCP_Virus_Updates.pdf)
+不貴難得之貨，則民不偷，按老子的意思，則罪在中共。戰友發來消息時，我笑說這素材還挺應景。拋開文貴先生讓利的初衷，大家搶購G幣，本質等同於民間資本大逃亡，跟當初拖家攜款的國民黨相比，勢頭有過之無不及。此景一度令Sara姐激動，感嘆大家全都豁出去了。以前中共唱得成空城計，是因為咱們誤以為它無所不有，一旦清楚它一無所有時，管它娘的規定不規定，先上船再說。
 
-[Spanish0516\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080727/Spanish0516_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20080727/Spanish0516_CCP_Virus_Updates.pdf)
-
-
+此情此景下，相信多數人都能聯想到港口，以及那艘正停靠在岸，即將起航的大船。值得一提的是，此船並非太平輪，而是諾亞方舟，這就意味著，老天並沒拿我們開涮，相反，在上帝的庇佑下，我們正在抵達勝利的彼岸。
 
 0
