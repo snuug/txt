@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
+## 美國繼續制裁任何和伊朗合作的中國企業
+`2020-05-21 04:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/208702/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/21041249/Picture-1-205-1.png)
+據大紀元時報近日報導，美國財政部長姆努親（Mnuchin）週二表示，針對伊朗政權利用該航空公司支持委內瑞拉、敘利亞的非法恐怖活動和中共地區的恐怖代理組織，美國會毫不猶豫的製裁違反該國法律的企業。
 
-[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
+週二財政部製裁了一家與伊朗馬漢航空（Mahan Air）合作的中國企業。這家名為上海聖特（Saint） 物流有限公司的企業是馬漢航空在中國的代理商，而馬漢航空則是美國認定的恐怖組織伊斯蘭革命衛隊所控制的企業。
 
-[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
+這是自2018年以來的第七次製裁。具體的措施是凍結被制裁企業在美國的所有資產並將後續事宜移交至外國資產處理的相關部門。同時，與此事件相關的個人也會收到製裁。
 
-[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
+此前，美國務卿蓬佩奧已經呼籲各國停止和馬漢航空的聯繫。他說，該公司是伊朗國有，長期支持馬杜羅政權。在過去的數年，該航空幫助馬杜羅政權轉移了大量的非法財富並且在中東轉運武器。
 
-[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
+因此，各國應該終止這家航空公司在自己國家的運行，停止他們的航線申請。
 
-[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
+特朗普政府2018年以來一直採取一些列制裁與外交措施以驅逐委內瑞拉馬杜羅政府（Maduro），因為馬杜羅在2018年的選舉被認為大多數西方國家認為是作弊行為。
 
-[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.theepochtimes.com/us-sanctions-chinese-company-connected-to-iranian-airline_3356605.html)
 
-[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
-
-
+翻譯報導：匿名
 
 0

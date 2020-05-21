@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 納斯達克通知瑞興咖啡必須摘牌
-`2020-05-20 12:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/208258/)
+## 【世界多語言圖文】19/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-20 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/208572/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20120550/%E7%BA%B3%E6%96%AF%E8%BE%BE%E5%85%8B%E9%80%9A%E7%9F%A5%E7%91%9E%E8%88%88%E5%92%96%E5%95%A1%E5%BF%85%E9%A1%BB%E6%91%98%E7%89%8C.jpg)
-據《路透社》報導：瑞興咖啡(Luckin)周二表示，已收到納斯達克股票交易所的通知，一個月後將除牌該公司。
+戰友之家圖文摘要組及小語種組
 
-Luckin成立於2017年6月，是中國星巴克（SBUX.O）的競爭對手，去年在美國首次公開募股(IPO)最成功的中國公司之一，吸引了包括多頭基金和對沖基金在內的美國著名投資者的興趣。4月2日瑞興咖啡自曝其CEO及其下屬在2019年第2至第4季度虛增營業額22億元財務造假事件。根據機構經紀商預估系統路孚特(Refinitiv IBES data)的數據分析，其偽造營銷額相當於瑞興咖啡年銷售額的40％左右。
+[English\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221458/English_519_CCP_Virus_Updates.pdf)
 
-納斯達克給出退市通知的理由是瑞興虛假交易引起的公眾擔憂，以及瑞興咖啡未能公開披露重大信息。此舉凸顯了美國交易所對上市公司審計標準的重新關注和雷厲風行。據《路透社》周一報導，納斯達克股票交易所本周收緊了上市規則，以遏制那些由內部人士控制持有、並且會計核算不透明的中國公司首次公開發行股票。
+[French\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221558/French0519_CCP_Virus_Updates.pdf)
 
-5月12日瑞興咖啡已解僱了自2017年11月以來一直領導公司的首席執行官錢治亞和2018年5月成為首席運營官的劉劍。針對納斯達克交易所通知瑞興咖啡必須摘牌退市的消息，董事長陸正耀於20日發布聲明稱，納斯達克不等最終調查結果就要求公司退市，出乎意料，對此個人深感失望和遺憾。在聲明中，陸正耀對瑞興咖啡事件造成的惡劣影響，向投資人、全體瑞興員工和客戶道歉。瑞興咖啡計劃在納斯達克股票交易所聽證會前將一直保持上市狀態，直到最後結果。披露調查消息的當天，位於廈門的總部股價暴跌了80％以上。交易於4月7日停止。瑞興咖啡表示已與美國和中國的監管機構合作，配合調查。
+[German\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221711/German_0519__CCP_Virus_Updates.pdf)
 
-[新聞鏈接](https://www.reuters.com/article/us-luckin-coffee-investigation-nasdaq-idUSKBN22V1WD)
-翻譯報導：明澈
+[Japanese\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221830/Japanese_0519_CCP_Virus_Updates.pdf)
+
+[Korean\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20221953/Korean_0519_CCP_Virus_Updates.pdf)
+
+[Russian\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222022/Russian_0519_CCP_Virus_Updates.pdf)
+
+[Spanish\_0519\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/20222125/Spanish_0519_CCP_Virus_Updates.pdf)
+
+
 
 0
