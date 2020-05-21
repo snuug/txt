@@ -12,6 +12,8 @@
 
 ## 頁面 20/27 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [27](/content/README-27.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版4月19号文贵谈明镜](/content/2018/04/20180422-6701679411518433297.md)
+
 [文字版：4月21号文贵在此庄严地严肃地向中南坑里的某些：妖和怪们．致以衷心的道歉，文贵不会让你们失望的！](/content/2018/04/20180421-5848429127591941015.md)
 
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/2018/04/20180421-3038856326236637866.md)
@@ -59,8 +61,6 @@
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/content/2018/04/20180418-6369908428549122870.md)
 
 [文字版20183月21日江．曾．两家是如何以65%的利息放高利贷的！](/content/2018/04/20180418-6803153181379823520.md)
-
-[文字版：2018年3月20号今天我们完成了对．谣言．诽谤．威胁．文贵的陈军先生．袁健斌先生．林宇丹女士(美猴王)三个人的控告！我们绝不会忘掉一个帮助我文贵的任何一个恩人！也不会放过一个伤害我们的坏人！](/content/2018/04/20180418-7259055052246962788.md)
 
 
 ## 頁面 20/27 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [27](/content/README-27.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
