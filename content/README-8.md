@@ -12,6 +12,12 @@
 
 ## 頁面 8/27 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [27](/content/README-27.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
+
+[文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/2019/10/20191021-396418607512158731.md)
+
+[文字版：2019年10月15日郭文贵先生船上直播：天主教徒、基督教徒是香港的主力！别天真！远离伪民运！郭先生被共产党抢劫500亿现金！是中美贸易500亿的净利润的至少10倍！](/content/2019/10/20191019-5901855488500270018.md)
+
 [文字版：2019年10月14日游艇机舱报平安直播](/content/2019/10/20191015-2796579194021955341.md)
 
 [文字版：2019年10月13日郭文贵先生报平安直播：传播香港真相，反对暴力，中共启动大量沉默力量挑拨离间战友, 美国将严加製裁， 只有灭掉共产党人类才有未来 ](/content/2019/10/20191014-1580303253011226173.md)
@@ -55,12 +61,6 @@
 [文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
 
 [文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
-
-[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/content/2019/09/20190915-1829806510018363153.md)
-
-[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
-
-[文字版：2019年9月9日 路德访谈文贵，班农先生](/content/2019/09/20190911-4067565485172047887.md)
 
 
 ## 頁面 8/27 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [27](/content/README-27.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)

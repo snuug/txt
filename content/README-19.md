@@ -12,6 +12,12 @@
 
 ## 頁面 19/27 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [27](/content/README-27.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180707-180274757659338281.md)
+
+[翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
+
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
+
 [翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
@@ -55,12 +61,6 @@
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/2018/04/20180426-3820645061800034569.md)
 
 [翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/2018/04/20180426-4217728045032280574.md)
-
-[郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180425-6089618542439587251.md)
-
-[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/2018/04/20180425-1035788071787459036.md)
-
-[文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/2018/04/20180422-7434374756497601766.md)
 
 
 ## 頁面 19/27 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [27](/content/README-27.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

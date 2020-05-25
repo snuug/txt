@@ -12,6 +12,12 @@
 
 ## 頁面 25/27 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
+
+[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
+
+[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
+
 [金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
 
 [翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
@@ -55,12 +61,6 @@
 [CNBC ： 流亡中的中国亿万富豪抨击控制中国的盗国集团，警告说美国正在被间谍渗透，而他的祖国想方设法将他逮捕](/content/2018/04/20180418-893371473063503687.md)
 
 [NHK 世界新闻：中国亿万富翁批评中国政府的领导阶层](/content/2018/04/20180418-8782315684152609597.md)
-
-[2017年10月5日郭文贵先生美国首次记者招待会第二次发“不”会](/content/2018/04/20180418-1567783947311551796.md)
-
-[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
-
-[Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
 
 
 ## 頁面 25/27 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
