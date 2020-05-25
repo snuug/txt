@@ -1,25 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】22/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-24 03:42 GM77` [轉載自GNews](https://gnews.org/zh-hant/211101/)
+## 義大利區⻓要求中共就CCP病毒賠償200億歐元
+`2020-05-24 05:18 GM67` [轉載自GNews](https://gnews.org/zh-hant/211169/)
 
-戰友之家圖文摘要組及小語種組
+作者：VOG多国语言组
 
-[English\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)
-
-[French\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)
-
-[German\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)
-
-[Japanese\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)
-
-[Korean\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)
-
-[Russian\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)
-
-[Spanish\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)
-
-
-
+義大利倫巴第大區區⻓豐塔納:“要對由中共造成的損失要求賠償200億歐元?倫巴第大區將會對此進行評估” 義大利倫巴第大區將不遺餘力地支持每一位都居⺠，不會放棄對任何一個居⺠的支持，包括由在CCP病毒的荼毒後，我將推進向中共要求索賠200億美元的意願。 義大利《倫巴第大區委員會的要求:“ 我認為值得深究其原因，來進行徹底的研究，這樣至少可以瞭解到中共是否在這方面存在過失。”》 在這些黑暗的日子裡，《從來不害怕戰勝不了，雖然每天都有奇跡的發生，但看著康復床位在不段減少，真是令人沮喪。》
+義大利倫巴第的人⺠給我留下了深刻的印象，他們在遭受這樣痛苦的時刻表現出了很高的尊嚴， 他們非常尊重那些在限制人身自由時很難遵守的規則，我想說，他們甚至會堅定地表現出來一切 即將重新開始的希望»。
+豐塔納在原文視頻裡重申，至少這樣的追責和調查可以讓我們更清楚的認識到病毒到底來自哪 裡，所有被掩蓋的事實也終將會被揭露。
+作者短評:我要你CCP賠償巨額損失，你肯定不賠，那麼我就有強有力的理由要求你中共接受國 際上的公開調查!!
+注: 自CCP病毒以來，義大利受災最嚴重的地區就是倫巴第大區，占義大利總感染人數的40%左右。而倫巴第大區的 經濟在義大利又是舉足輕重的排在第一位，占全義大利GDP的30%左右。
+原文連結:https://www.ilmessaggero.it/video/politica/coronavirus\_fontana\_lombardia\_danni\_cina-5206033.html
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24051917/33-1.jpg)
 0
