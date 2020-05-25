@@ -1,23 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】22/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-25 01:00 GM77` [轉載自GNews](https://gnews.org/zh-hant/212023/)
+## 那些當初在獨立宣言上簽名的人後來都遭遇了什麼？
+`2020-05-25 02:36 Diago` [轉載自GNews](https://gnews.org/zh-hant/212093/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25023214/46d4ffa6bbf14be691405f346747d124.jpeg)
+作者：Diago
 
-[English\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004140/English_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004140/English_0523_CCP_Virus_Updates.pdf)
+郭文貴先生在GTV“5月23日的直播：文貴不會帶任何戰友參與做空港幣重新認識香港保護香港，是我們每個中國人起碼的道德底線”中提到：
 
-[French\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004209/French_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004209/French_0523_CCP_Virus_Updates.pdf)
+【我接著剛才說啊，大家剛才說本傑明，當時Franklin本傑明（[Benjamin Franklin](https://en.wikipedia.org/wiki/Benjamin_Franklin)）給所有的簽的人說了一句，開了玩笑說了一句話，說你們知道嗎？簽這個宣言意味著什麼？我想給今天所有參加爆料革命的戰友，六四那天的人，我說你們一定要出面，不出臉不允許參加這個，我要告訴所有戰友們，我不應該是事後說，我應該事前說，參與六四活動的人要明白，當年本傑明FRANK告訴他，所有的簽署這個宣言的、參與宣言的，你們要記住，我們必須終生團結在一起，直到實現我們的目標，也就是推翻英國的殖民地，我們要獨立、要成功，否則我們每個人都被拉出去挨個槍斃，記得這句話吧？戰友們。記住了吧？大家記得這句話吧？大家去查查，絕對有這句話。當年的人權獨立宣言實際就是人權宣言，後來是國家獨立日了，因為它成功了，不成功呢？那成啥日了？殺頭日了，是吧？本傑明（[Benjamin Franklin](https://en.wikipedia.org/wiki/Benjamin_Franklin)）我覺得比傑弗遜（[Thomas Jefferson](https://en.wikipedia.org/wiki/Thomas_Jefferson)）這個人還高，當然了漢密頓（Alexander *Hamilton*）這個人也是很了不起的，很多人真的是小人物，真的很了不起的！這是為什麼我說爆料革命，我們絕不能讓任何戰友給落下，誰做過的貢獻都應該被記住，我們現在都用的是語音、視頻，誰想落也落不了，那個時候沒人給你記著就忘啦，還好，大家記著傑裴遜、本傑明這樣的人啊，Frank，那麼今天，我們今天就要在做的事情，就是當年美國1776年7月4號，但是大家要記住，這是一個真正的信仰、理想、骨氣，你必須為此做出犧牲一切的準備，這可真不是做買賣呢，所以說戰友們要有勇氣，我今天告訴你們，今天晚上直播，所有參與者，我今天在視頻裡說的，記住本傑明說的那句話，Frank本傑明說“當你們簽署這個宣言的時候，除了我們能真正的實現目標，就是推翻殖民地、美國獨立，真正實現了人權、自由”，那是簡直不可思議的，實現了以人為本的人權、自由，也就是民天下，把家天下變成民天下，不是英王、英女王了，我們必須永遠團結在一起，否則每個人都會被拉出去槍斃，我今天告訴了所有的參與者啊。】
 
-[Japanese\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004247/Japanese_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004247/Japanese_0523_CCP_Virus_Updates.pdf)
+也許是我的英文不夠好，沒有查到郭先生提到的Benjamin Franklin先生的原話，但是我查到了[美國歷史系列（10）：《獨立宣言》及其簽名者的故事](https://share.america.gov/zh-hans/americanhistory10/)【在《獨立宣言》上簽名的一共有56人，其中律師 25人、商人15人、醫生4人、種植園及農場主10人、科學家1人、牧師1人。從這些人的職業看，他們在當時都屬於上流社會人士，受過良好的教育。他們原本可以過著舒適及富貴榮華的生活，不必為自己及家人擔憂，但這些人毅然在《獨立宣言》上簽名，將自己的身家性命置之度外，冒著叛國罪的巨大風險與當時的世界強國對抗，為的就是追求他們在《獨立宣言》中所說的自由、公正的生活。】 、【在《獨立宣言》上首先簽字的約翰·漢考克有意將自己的名字簽得十分醒目，在56個簽名中顯得很特別，據說他的目的就是要讓英國人一眼就看到自己的簽名。】、【在56名簽名者中，有5人後來被英軍抓獲，受盡折磨而死；9人受傷或因生活艱辛而在爭取獨立的戰爭中去世；12人的家園被洗劫或被燒毀；兩人的兒子因為參加獨立戰爭而犧牲、另外兩人的兒子被英軍俘虜。卡特·布拉克斯頓（Carter Braxton）原本是弗吉尼亞州的富裕農場主和貿易商，獨立戰爭期間他的船隻被英國海軍擊毀、好幾處種植園被英軍破壞，布拉克斯頓不得不賣掉他的物業以及家業以支付債務，並死於窮困。在約克敦戰役（Battle of Yorktown）中，小湯瑪斯·納爾遜（Thomas Nelson, Jr.）的家被英軍將領康沃利斯佔據作為臨時總部，納爾遜為了打贏這場戰爭，不顧自己家產有被摧毀的危險，敦促喬治·華盛頓將軍向他的家開炮，結果整棟家園被毀，納爾遜後來因此破產。1776年美國宣佈獨立時，北美殖民地的民眾幾乎沒有經過訓練的武裝可以與英國的正規軍及海軍對抗，雙方的實力相差很大，獨立的勝算很小。在《獨立宣言》上簽名，等於宣佈自己的死刑，但大陸會議的代表們就是憑著勇氣、憑著信念，義無反顧地走上爭取獨立自由之路。他們在《獨立宣言》上簽字，就是生命、命運和榮譽的神聖承諾。】
 
-[Koreanz\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004325/Korean0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004325/Korean0523_CCP_Virus_Updates.pdf)
+在這簽名的56個人中由於被俘折磨而死的有5人，9人因受傷或生活艱辛在爭取獨立的戰爭中死去，這14個人占總簽名人數的四分之一；12人財產被毀盡，占總簽名人數的五分之一多；另兩人或兒子在獨立戰爭中犧牲或兒子被英軍俘虜，占總簽名人數的百分之四弱；總計因簽署獨立宣言或犧牲或毀財或家人犧牲及被俘人數占總簽名人數比例為百分之五十。也就是說在後世為他們帶來榮譽並讓他們永載史冊的獨立宣言上的簽名，讓半數以上的人經歷了生死磨難、與親人的生死離別以及財產的損失。對照下來，有資格在接下來的六四宣言上簽字的人、在六四晚會上代表我們發聲的人，他們意識到了接下來的危險嗎？即使沒有意識到危險，爆料革命的發起人已經在視頻中做了清晰的表白，可是我們每一個即使沒有資格在那份宣言上簽字或在接下來的六四宣言日露臉的人，我們會害怕嗎？我們當然會，但是我們退無可退！
 
-[Russian\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004352/Russian_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004352/Russian_0523_CCP_Virus_Updates.pdf)
-
-[Spanish\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004512/Spanish0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004512/Spanish0523_CCP_Virus_Updates.pdf)
-
-
+（文章內容僅代表作者個人觀點）
 
 0
