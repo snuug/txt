@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】22/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-25 01:00 GM77` [轉載自GNews](https://gnews.org/zh-hant/212023/)
+## 印度因長相酷似中國人的185名護士無法忍受歧視集體辭職
+`2020-05-25 09:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/212229/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25090752/Picture-1-205-16.png)圖片來源：health.economictimes.indiatimes.com
+昨韓國媒體報導，與ccp病毒作鬥爭的印度185名護士集體辭職,，這令印度和中國都感到震驚。他們辭職的主要原因是因長相酷似中國人，而受到種族歧視。
 
-[English\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004140/English_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004140/English_0523_CCP_Virus_Updates.pdf)
+據印度媒體的報導，近日，在印度加爾各答多家大型醫院工作的185名護士集體提出辭職。他們都來自位於印度東北部的曼尼普爾邦，與緬甸接壤。大多數居民是美泰族,其次是藏裔的羅家族(25%)和緬甸裔的庫基族(15%)。
 
-[French\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004209/French_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004209/French_0523_CCP_Virus_Updates.pdf)
+報導引用來自曼尼普爾邦的護士克里斯蒂娜透露說:”上班路上，人們罵我’ccp病毒’，甚至向我吐口水。” 另外，由於工作的醫院環境非常惡劣，護士們患上ccp病毒的風險增大，這也是他們集體辭職的原因之一。克里斯蒂娜遺憾地說:”我也不想在這個時候離開醫院，但我們很難再堅持下去。”
 
-[Japanese\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004247/Japanese_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004247/Japanese_0523_CCP_Virus_Updates.pdf)
+此消息一出，不少印度網友留言同情他們的處境，認為”種族歧視應該停止”。曼尼普爾邦首席部長辛格氣憤地說，印度一直存在這種歧視，護士們的辭職是自願的，他希望護士們能回到家鄉工作。
 
-[Koreanz\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004325/Korean0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004325/Korean0523_CCP_Virus_Updates.pdf)
+評:
 
-[Russian\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004352/Russian_0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004352/Russian_0523_CCP_Virus_Updates.pdf)
+中共劣跡昭昭陽讓全世界的海外華人，甚至整個亞洲人種都陷入困境。很多人僅僅只是因為有著一張亞洲臉孔就受到了歧視。難以想像如果不是郭文貴先生及時糾正了ccp病毒的名稱，所有的海外華人和子孫未來將會遇到什麼樣的歧視，會面對怎樣的受排斥的境地。
 
-[Spanish\_0523\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004512/Spanish0523_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25004512/Spanish0523_CCP_Virus_Updates.pdf)
+[原文鏈接](http://naver.me/5KlrXkJK)
 
-
+翻譯報導：Mc.DA
 
 0
