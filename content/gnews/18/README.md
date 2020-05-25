@@ -1,25 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】22/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-24 03:42 GM77` [轉載自GNews](https://gnews.org/zh-hant/211101/)
+## 美國兩黨聯手推法案 保護新聞自由義不容辭
+`2020-05-24 06:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/211194/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24064556/1-113-27.png)
+圖片來源：Council of Europe
 
-[English\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)
+近日，負責監督人權與民主事務的參議院外交關係小組委員會主席和高級委員美國參議員馬可.盧比奧(Marco Rubio)和本.卡丁（Ben Cardin）分別介紹了《世界新聞自由保護和互惠法案》，旨在保護和促進全球新聞自由，並增強美國新聞和媒體的互惠性。
 
-[French\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)
+「世界各地的威權政權繼續使用複雜的工具來審查信息的自由流通，並使獨立媒體噤聲。 俄羅斯和中共國等國家利用開放社會搞輿論宣傳，」盧比奧說。 「我很自豪地介紹兩黨共同推出的《世界新聞自由保護和互惠法案》，那些以新聞工作者為目標並扼殺新聞自由的人，該法案將追究他們的責任。 該法案重申了美國致力於推進對民主國家健康至關重要的原則的承諾。」
 
-[German\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)
+「在全球範圍內，新聞記者都應成為不受懲罰的對象，但由於壓制人民的政權試圖掩蓋自己的腐敗，殘酷和無能，記者常常受到恐嚇和監禁。 我們看到，隨著中共冠狀病毒大流行，對新聞記者和媒體人員的攻擊不減反增，專制政權利用該疫情來打壓新聞自由，」《全球馬格尼茨基人權問責法案》的作者卡丹參議員說：「強大而獨立的媒體不受政治壓力和審查制度的影響，這對可持續和負責任的民主制度至關重要。 美國必須使用《全球馬格尼茨基法案》和所有可用工具，追究侵犯人權的人的責任，這些記者的人權在我們的開放社會中起著至關重要的作用。」
 
-[Japanese\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)
+以下是《世界新聞自由保護與互惠法案》的幾個要點：
 
-[Korean\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)
+（1）提供保護全世界新聞工作者的政策聲明；
 
-[Russian\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)
+（2）要求主管部門制定計劃，以協商在全球範圍內與美國新聞媒體組織及其僱員進行互惠訪問的計劃；
 
-[Spanish\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)
+（3）授權對負責拘留，殺害或折磨新聞工作者的外國人以及威脅美國新聞工作者和媒體人員安全的外國人實施制裁；
 
+（4）要求清楚標識由外國政府頒發的信息；
 
+（5）對新聞自由值得關注並接受美國安全援助的國家加強報道力度。
+
+[新聞鏈接](https://www.rubio.senate.gov/public/index.cfm/2020/5/rubio-and-cardin-introduce-world-press-freedom-protection-reciprocity-act)
+
+翻譯報道：人間四月
 
 0

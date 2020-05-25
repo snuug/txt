@@ -1,11 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普新聞發言人Kayleigh McEnany評論奧巴馬總統的犯罪行為
-`2020-05-23 22:25 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/210591/)
+## 紅色“米”續“華爲” &amp;“中興”之命
+`2020-05-23 23:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/210878/)
 
-在[川普總統5月22日的白宮新聞發布會](https://www.youtube.com/watch?v=tWOtrCeV0Lc)上，新聞秘書凱利·麥肯尼（Kayleigh McEnany）回應了媒體關於前總統奧巴馬非法竊聽川普大廈和非法監視美國公民等潛在犯罪行為的問題。麥肯尼女士說她已經和川普總統討論過，並緊接著給媒體工作者提出了一連串的關於媒體一貫忽略奧巴馬政府錯誤行為的尖銳問題：“為什麼弗林的身份被洩露的？… 為什麼詹姆士·克拉柏、約翰·布倫南和薩曼莎·鮑爾私下宣誓承認他們沒有川普通俄的證據，而在公開場合卻說了截然相反的話？”
+**作者：長笛**
 
-翻譯：【雷鳴（文鳴）】【木木】 校對總結：【Michelle】字幕：【Melody太陽的旋律】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/23234250/1234.jpg)
+
+[**紅色“米”續“華爲”-“中興”之命**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/23234100/%E7%BA%A2%E8%89%B2%E2%80%9C%E7%B1%B3%E2%80%9D%E7%BB%AD%E2%80%9C%E5%8D%8E%E4%B8%BA%E2%80%9D-%E2%80%9C%E4%B8%AD%E5%85%B4%E2%80%9D%E4%B9%8B%E5%91%BD.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/23234100/%E7%BA%A2%E8%89%B2%E2%80%9C%E7%B1%B3%E2%80%9D%E7%BB%AD%E2%80%9C%E5%8D%8E%E4%B8%BA%E2%80%9D-%E2%80%9C%E4%B8%AD%E5%85%B4%E2%80%9D%E4%B9%8B%E5%91%BD.pdf)
+
+**請點擊下載按鈕，下載文檔觀看！**
+
+（文章內容僅代表作者觀點）
 
 0
