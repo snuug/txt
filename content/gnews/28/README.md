@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】22/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-24 03:42 GM77` [轉載自GNews](https://gnews.org/zh-hant/211101/)
+## 古代的賣身救父，竟然發生在全民小康的今天……
+`2020-05-24 07:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/211222/)
 
-戰友之家圖文摘要組及小語種組
+**作者：滅共日記**
 
-[English\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032736/English_0522_CCP_Virus_Updates.pdf)
+“只要能有人幫我，救我爸爸，我願意嫁給他！”這是一個在中共國生活的95後女孩看著病床上的父親聲淚俱下說出來的話，因爲她不知道爸爸下一步的治療費用從哪裏來，即將因爲沒錢治療而失去父親的這種恐懼，遠遠大過自身對未來的生活考慮，所以她決定用賣自己這種方式爲父親拼一把。這個女孩只是想籌錢讓爸爸活下來！可是在中共國，如果窮人有病，活下來就是最奢侈的一件事。我看到很多人評論這個女孩說她是在作秀，是在博取大家的同情，更有人說這種情況誰敢接盤，以後可是一個無底洞；還說這個女孩怎麽不出來賣；真的不知道這些人的心是怎麽長的，爲什麽一點同情心都沒有呢？如果不是因爲貧窮，看不起病，誰會放下尊嚴，去祈求別人把自己買了，這需要多大的勇氣，這可是這個女孩一輩子的幸福啊？誰會拿自己的一輩子開玩笑？
 
-[French\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032751/French0522_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24070254/1-113-28.png)
 
-[German\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032810/German_0522_CCP_Virus_Updates.pdf)
+對于絕多數中共國的老百姓來說，這件事絕不是個案，目前很多人的工資水平還不夠醫療費用的支出呢？重大疾病的費用更是很多家庭無法承擔的，這就是爲什麽普通人一旦得大病，要麽賣房賣車，要麽到處借錢貸款，網上衆籌，然後還欠了一屁股債要還。即使有醫保的報銷，一天幾百幾千塊的醫藥費也不是一般家庭能付的起的，有的家庭會選擇放棄，只有那樣才能繼續維持家庭的生活。真不知道中共國的醫保到底能報什麽？總而言之，我認爲醫保的作用可能就是小病報銷，大病等死吧。畢竟在中共國任何社會服務的初衷都是爲富人服務的。而且中共國的醫保也存在著很多缺陷：
 
-[Japanese\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032829/Japanese0522_CCP_Virus_Updates.pdf)
+1 沒有全國統一的管理，如果老百姓不能固定在戶口所在地工作，享受醫保會大打折扣；
 
-[Korean\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032847/Korean0522_CCP_Virus_Updates.pdf)
+2 醫保作爲一種基本全國普及的強制保險，需要考慮窮人的支付能力，收取的保費不夠多，能給予的保障也不夠；
 
-[Russian\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032916/Russian_0522_CCP_Virus_Updates.pdf)
+3 許多不應該進醫保的也進了醫保，造成投保人搶保障的問題。既然是搶保障當然是有權有勢的搶得贏，沒錢沒勢的窮人，他們的應得的保障被搶了，自然就沒有了；
 
-[Spanish\_0522\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24032933/Spanish0522_CCP_Virus_Updates.pdf)
+4 異地就醫，報銷比例會大打折扣。一樣的手術，北京醫保和外地醫保的區別是自費8萬和自費40萬的區別；
 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/24070422/2-98-18.jpg)
 
+在中共國不同的人報銷的比例是不一樣的，不說別的，醫院就是這些窮苦老百姓錢包的屠宰場，這個一點都沒有錯的。並且中共國的醫保越是好的藥，越是進口藥，就越不給報。窮人就算有看病的權利，但交不起治療錢，也只能默默的回家，痛苦的等死……..殘酷的現實如此。有錢不一定能活，但沒錢，連治療的機會都沒有，只能等死。在中共國，貧窮，真的足以讓很多人失去生命。
+
+GNEWS之前文章：
+美國參議院立法《外國公司問責法》[https://gnews.org/zh-hans/210896/](https://gnews.org/zh-hans/210896/)
+中共的強行脫貧 暴力城市化 [https://gnews.org/zh-hans/210880/](https://gnews.org/zh-hans/210880/)
+香港【一國兩制】已死？[https://gnews.org/zh-hans/210817/](https://gnews.org/zh-hans/210817/)
+
+（文章內容僅代表作者觀點）
 
 0
