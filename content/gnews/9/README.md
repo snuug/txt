@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】24/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-26 00:16 GM77` [轉載自GNews](https://gnews.org/zh-hant/212866/)
+## 中共號稱在武漢一天完成了150萬的病毒檢測
+`2020-05-26 03:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/213024/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26032459/1-113-40.png)
+本月早些時候，中共又號稱要集中力量辦大事，宣布將大規模測試約1100萬武漢居民的中共病毒，引發了人們對病毒發源地第二波病情的擔憂。
 
-[English\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000826/English_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000826/English_0524_CCP_Virus_Updates.pdf)
+根據官方媒體的報道，中國衛生官員正朝著這一數字努力，但這絕非易事。 他們熱切地向全世界兜售他們的測試能力，可惜在爆發初期沒有見到中共這樣去做，當全球都指責他們造假時才做已經無法挽回對他們的信任了。
 
-[French\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000844/French_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000844/French_0524_CCP_Virus_Updates.pdf)
+路透社報道：當地衛生部門周六表示，在周五對該病毒進行了1,470,950次核酸檢測，而前一天的檢測為1,000,729次。
 
-[Japanese\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000904/Japanese_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000904/Japanese_0524_CCP_Virus_Updates.pdf)
+每天要進行上百萬次測試，與之前三個月在美國進行的測試總數基本相同。 似乎空前的，雄心勃勃的計劃實際上僅在10天內就可以測試1100萬人的中共病毒。
 
-[Korean\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000924/Korean_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000924/Korean_0524_CCP_Virus_Updates.pdf)
+它標誌著將在任何地方進行的大規模測試，全球科學家和政府一定會對它產生的數據感興趣，因為測試數據可能會掀起第二波「爆發」。
 
-[Russian\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000952/Russian_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000952/Russian_0524_CCP_Virus_Updates.pdf)
+武漢的數據可能會在短短几周或一個月內產生結果，這可能會引發更多的爭議。
 
-[Spanish\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26001010/Spanish_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26001010/Spanish_0524_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.zerohedge.com/health/china-touts-15-million-wuhan-residents-tested-covid-19-single-day)
+
+評：據網上泄露的資料，中共這次檢測完全屬於政治行為，數據沒有任何參考性，比如下圖現實每個醫護人員採集完一個人後手套都不換，然後造成更大面積的傳染。又據武漢市民透露，採集完他的測試盒後連名字和標記也不做，直接一起堆在桌子上，沒有人會知道自己的結果：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26032633/2-47-23.png)
+同一個武漢居民也拍攝到了採集人員把20個人的採集後的棉棒放在同一個盒子里：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26032725/4-30-13.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26032652/3-35-16.png)
+中共的假大空永遠不斷超出人類的底線。
+
+署名: Longwood
 
 
 
