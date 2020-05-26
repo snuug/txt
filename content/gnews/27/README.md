@@ -1,25 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人大代表提案政策立法為“國產奶粉”背書——凸顯了中國危牆之下的三個“不自信“
-`2020-05-25 22:31 GM67` [轉載自GNews](https://gnews.org/zh-hant/212692/)
+## 5月25日 美國政要推文選譯
+`2020-05-26 01:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/212936/)
 
-**By文荷**
+> China’s goal is global domination. 
+> 
+> We’re going to hold the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) accountable if they move forward and infringe on Hong Kong’s autonomy. 
+> 
+> I stand with Hong Kongers. [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/xDgP0LLIca](https://t.co/xDgP0LLIca)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 25, 2020](https://twitter.com/MarshaBlackburn/status/1264712580968439809?ref_src=twsrc%5Etfw)
 
-中國的人民代表大會制度，素來被稱中共統治的橡皮圖章。那些尸位素餐的所謂“人民代表”，向來在代表人民利益，傳遞人民呼聲上不求建樹，即便是在修改憲法這樣的關乎國家前途命運的大事面前也從未有徵詢過選民的意見，但在如何管控人民，維護利益階層的政策上，卻總能花樣百出，令人目不暇接。近日在北京召開的兩會上，一個用國家政策為“國產奶粉”背書，阻擊 “洋奶粉”流入中國的提案，再次刷新了人們的三觀。提案者來自伊利集團的質檢中心主任李翠枝建議，將“一生飲奶計畫”納入國家戰略，實現國家學生飲用奶從幼稚園到高中的全覆蓋。同時建議將跨境電商稅率與一般貿易稅率等同，將嬰幼兒配方奶粉從跨境電商清單中剔除。拋開這位人大代表借提案之名強求財政輸血，為本就壟斷暴利的國產奶企再割一輪“韭菜”的司馬昭之心不談，我們來分析一下，這個提案背後所凸顯的中國危牆之下的三個”不自信“。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25215732/1-131-37.jpg)
-**國人對國產品牌的不自信**
+參議員 Marsha Blackburn：中國的目的是統治全球。如果他們壹意孤行侵犯香港自治權，我們壹定追究中共的責任。我支持香港。
 
-這位人大代表的提案儘管普遍被人詬病，但其暗含了一個不爭的事實就是：中國人熱捧“洋品牌”，冷落“中國造”，尤其是在人命關天的嬰兒食品藥品上，如果能有選擇，大多數人都會用腳投票，哪怕冒著在淘寶上買到假貨的風險，也要海淘洋奶粉，這些人中也包括了那些信奉”愛國是生意，移民是生活“的權貴階層和整天高喊”三個自信“的小粉紅們。國產奶粉落到如此被人嫌棄的地步，李代表難道不知道原因何在? 共產黨統治中國70年，摧毀了人們對正義和良善的信仰，取而代之的是從上而下的“假大空”，滋生出市場中劣幣驅逐良幣的惡果，尤其改革開放以來，許多中國企業無論是國企還是私企，只要能追求利潤最大化，可以沒有道德底線，無視市場法則，偷騙造假、無序競爭，使”中國造“成為價低質劣的代名詞，而近年來不斷被爆出的“毒奶粉”，“毒大米”，“毒疫苗”事件，更是不僅毀掉了中國品牌在國際上的形象，也成為國人揮之不去的陰影。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25215749/2-98-29.jpg)
-**國人對監督追責機制的的不自信**
+> USAF B-1Bs BULLET01 & 02 departed Andersen AFB, Guam en route to the South China Sea 
+> 
+> USAF KC-135R PEARL11 provided tanker support [pic.twitter.com/KHDc9OKNY6](https://t.co/KHDc9OKNY6)
+> — Aircraft Spots (@AircraftSpots) [May 26, 2020](https://twitter.com/AircraftSpots/status/1265097212033286145?ref_src=twsrc%5Etfw)
 
-也許有人會說，全世界都有食品藥品安全問題，不能因為中國曾出現過食品藥品安全問題，就對國產品牌失去信心。的確，這就是為何監督追責機制是對重塑國人信心如此重要。國外產品雖然也有瑕疵，但有完善的法制和市場糾錯機制做保證。而中共的追責機制在強大的幕後黑手面前，尤其涉及到背後利益盤根錯節的壟斷行業和巨無霸企業，便形同虛設，完全失效。如果是小問題，用點錢就可以擺平，即便出現了人命關天的大問題，最多拿幾個小嘍嘍當替罪羊，而提出問題之人更會被各種威脅恐嚇最後不了了之。前有三聚氰胺奶粉事件中因堅持維權而被捕入獄的“結石寶寶”父親郭利；後有“毒疫苗”事件雖牽涉多家企業，但只有靠山不夠硬的長春長生生物科技被問責，而問題更大的武漢生物製品研究所卻因有央企國資背景和牽涉紅色家族利益而被輕輕放下的前車之鑒。這些鐵一樣的事實映照出中國食品藥品安全監督追責機制缺位的悲涼。與其說是國人對國產品牌的不信任是來自企業和產品本身，倒不如說是來自對中國監督制度的徹底失望。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25215810/3-94-40.jpg)
-**獨裁管理者對公民行為的不自信**
+比爾·格茨先生 轉推 Aircraft Spots：美國空軍B-1Bs BULLET01 & 02 從安德森空軍基地起飛，途徑關島，到達南中國海。美國空軍KC-135R PEARL11空中加油機提供支持。
 
-近年來，隨著爆料革命的深入，世界各國逐步看清了中共的邪惡本質，放棄了對其民主化的幻想，紛紛加速與其脫鉤，讓中共從獲得全世界輸血的黃粱一夢中醒來。由於獨裁者的權力沒有民意做基礎，隨著外部血管被切斷，經濟自信被摧毀，中共現在最怕的不是外部勢力干預，而是自己統治下即將過苦日子的老百姓的覺醒。這種不自信是如今中共在政治上加速左轉，進一步加強對人民管控，出臺各種奇葩政策，開歷史倒車的由來。從修改憲法取消任期制，到強推送中條例和香港國安法；從全民數位化貨幣，到人手一個健康碼，形成一張無處不在的大網將牆內的老百姓牢牢困住，而李代表之流也正是看到了這個風向，迎合的提出進一步限制老百姓的選擇自由乘勢做大做強國產奶企再割老百姓一把韭菜的提案也就不足為奇了。照這樣下去，管天管地管老百姓拉屎放屁的文革之風又將沉渣泛起，中國自絕於全世界而全面倒退回到公有制黨天下的那一天也就不遠了。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) again threatening today to sanction me after I called out China’s attempt to weaponize the global economy, take away America’s economic independence, and strip the rights of the people of [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Bb7nGhpkbx](https://t.co/Bb7nGhpkbx)
+> — Josh Hawley (@HawleyMO) [May 24, 2020](https://twitter.com/HawleyMO/status/1264562051768135680?ref_src=twsrc%5Etfw)
 
-一個連買奶粉的自由都要剝奪的政府，給老百姓 “四個自信”（道路自信、理論自信、制度自信、文化自信）也只會是一個連他自己的不相信的謊言。隨著文革2.0的到來，當全世界被新冠病毒引燃的怒火射向中共時，中共一定會把14億中國人綁在其千瘡百孔的戰車上去充當炮灰。危機時刻，是與連自己都不相信的中共一起下沉，被淹沒在全球不可逆轉的平民主義浪潮之中，還是與爆料革命站在一起，完成與中共的切割，重塑中國自信和中國人形象，這是擺在每個手中還沒有選票，卻可以用腳投票的國人面前生與死的選擇。這一點，香港人民給我們做出了最好的示範。
+參議員 Josh Hawley 連推：在我說出中國企圖利用世界經濟作為武器，剝奪美國的經濟獨立和香港人民的權利後，今天，中國再壹次威脅要制裁我。如果中國以為他們的威脅會嚇怕我或密蘇裏人民，那就大錯特錯了。振作起來，我們不會退縮。
 
+《華盛頓郵報》：中國要求美國停止將其帶到“新冷戰的邊緣”
+
+> Now [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Communist Party promoting anti-Semitic, anti-[#Israel](https://twitter.com/hashtag/Israel?src=hash&amp;ref_src=twsrc%5Etfw) tropes to distract from its crackdown in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) and its responsibility for [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw). And these [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) scumbags want to run the world [https://t.co/1Ztx6C99RK](https://t.co/1Ztx6C99RK)
+> — Josh Hawley (@HawleyMO) [May 26, 2020](https://twitter.com/HawleyMO/status/1265094341586010118?ref_src=twsrc%5Etfw)
+
+參議員 Josh Hawley：現在中共國推動反猶太、反以色列主題的隱喻作品來分散人們對其鎮壓香港和疫情責任的註意力。而中共這些卑鄙的人想管理全世界。
+
+Adam Kredo（《自由燈塔報》高級撰稿人）：剛剛：中國駐法國大使館發推又刪除了反猶太主義圖片——把美國描繪成死神，以色列是他的鐮刀。中國說它的賬號被人黑客了。
+
+> A people accustomed to liberty & democracy do not easily surrender it. 
+> 
+> As tens of thousands protest [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s plan to use [#NationalSecurityLegislation](https://twitter.com/hashtag/NationalSecurityLegislation?src=hash&amp;ref_src=twsrc%5Etfw) to crush the autonomy of [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) we will [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/W11ecziWBd](https://t.co/W11ecziWBd)
+> — Marco Rubio (@marcorubio) [May 24, 2020](https://twitter.com/marcorubio/status/1264597797724094469?ref_src=twsrc%5Etfw)
+
+參議員 Marco Rubio：適應了自由和民主的人民不會輕易放棄。成千上萬人抗議中國試圖用國家安全法摧毀香港自治。我們支持香港。
+
+HKFP：支持民主的抗議者聚集在銅鑼灣，高呼口號：“沒有暴徒，只有暴政。”現場和灣仔都有暴警。
+
+> Communist China is our adversary. PERIOD. 
+> 
+> ❌They steal our jobs.
+> ❌They steal our technology & data.
+> ❌They lied & hid the early spread of [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw)
+> ❌They’re imprisoning Uyghurs in camps for their religion 
+> 
+> It’s time we hold them accountable. [pic.twitter.com/3GqD5CV8WR](https://t.co/3GqD5CV8WR)
+> — Rick Scott (@SenRickScott) [May 25, 2020](https://twitter.com/SenRickScott/status/1264713896239169539?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：中共國是我們的敵人。無可爭議。—他們偷了我們的工作機會。—他們偷了我們的技術和數據。—他們在冠狀病毒剛擴散時就撒謊並掩蓋實情。現在應該追究他們的責任。
+
+> “The U.S. government will likely impose sanctions on China if Beijing implements national security law that would give it greater control over autonomous Hong Kong,” [https://t.co/Fnh3BGbA2k](https://t.co/Fnh3BGbA2k)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1265011767219978245?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“如果北京實施國家安全法，進壹步控制香港自治區，美國政府很可能要對中國采取制裁措施。”（來源：CNBC新聞）
+
+> “WUHAN CORONAVIRUS NUMBERS IN THE U.S. COMPARED TO EUROPE” [https://t.co/t5ZyXSto2W](https://t.co/t5ZyXSto2W)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264995299619151872?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“美國的武漢冠狀病毒統計數字與歐洲的對比”（powerlineblog網）
+
+> “WUHAN CORONAVIRUS NUMBERS IN THE U.S. COMPARED TO EUROPE” [https://t.co/t5ZyXSto2W](https://t.co/t5ZyXSto2W)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264995299619151872?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“我們需要壹個更強有力的策略應對中國，這也要求我們與其他亞洲的民主國家建立更好的關系。”
+
+Just The News網：歐盟高級外交官表示，以美國為主導的時代已經結束，現在應該采取更“強硬”的對中策略
+
+> The West must stand up to China as its ruthless regime flexes its muscles [https://t.co/4NjyIiEWit](https://t.co/4NjyIiEWit)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264959690863239169?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中國的殘暴政權頻頻秀肌肉，西方必須站出來反對中國了。（英國《電訊報》）
+
+> "China’s military buildup has already gone far beyond any scale that can be described as defensive."[https://t.co/w24Yo1ZX0d](https://t.co/w24Yo1ZX0d)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264957783272800258?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“中國的軍事力量已經遠遠超越了任何能被看作防禦性的規模。”
+
+《朝日新聞》：社論：中國的軍事力量只會危害到其自身的未來
+
+> UK draws up plans to restrict Chinese inward investment [https://t.co/X9mnEaoDdQ](https://t.co/X9mnEaoDdQ) via [@financialtimes](https://twitter.com/FinancialTimes?ref_src=twsrc%5Etfw)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264956370324992001?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：英國起草計劃限制中國對內投資（《金融時報》）
+
+> CCP orders 👉 it's us or them: "The Chinese government has warned Australia to "distance" itself from the United States amid growing tensions between the two countries, saying it would be "extremely dangerous" for Canberra to get involved." [https://t.co/ZGxYm8WrEM](https://t.co/ZGxYm8WrEM)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264955550753869836?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中共命令，要麽選我們，要麽選他們：“中國政府警告澳洲，在中美關系日趨緊張的時刻，要“遠離”美國，並說若堪培拉牽涉其中，情況將會變得“極為危險”。”
+
+《新西蘭先驅報》：“冷戰”：在對美國的貿易戰威脅之後，中國政府對澳洲發出警告
+
+> "There’s next to no chance we could say it’s safe enough to use in 5G. It changes the calculation completely."[https://t.co/r5iiiwvTQE](https://t.co/r5iiiwvTQE)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264955123165519873?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“絕不能認為在5G中使用它（華為）是安全的。它完全改變了危險評級。”（英國《每日郵報》）
+
+> Hong Kong is supposed to be independent. The world has an obligation to stand up for the people of Hong Kong. [https://t.co/clDoDaDZXw](https://t.co/clDoDaDZXw)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264954760635039747?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：香港應該獨立。全世界有義務捍衛香港人民。
+
+《人民日報》：香港事務是中國內政。。。
+
+> “Baucus has managed to keep one foot in government: He serves on the External Advisory Board to the U.S. Central Intelligence Agency.” [https://t.co/vXhiBtcwDc](https://t.co/vXhiBtcwDc)
+> — General Spalding (@robert\_spalding) [May 25, 2020](https://twitter.com/robert_spalding/status/1264886123488317442?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“Baucus設法壹只腳留在政府：他在美國CIA外部顧問委員會任職。”
+
+《國家評論》雜誌：已退休美國參議員和外交官為中國大外宣機器當托
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26012217/08_38.png)
 0

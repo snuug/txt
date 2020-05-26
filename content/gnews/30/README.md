@@ -1,49 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “誰能幹就讓誰幹”，中共想幹什麽？
-`2020-05-25 20:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/212630/)
+## 【世界多語言圖文】24/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-26 00:16 GM77` [轉載自GNews](https://gnews.org/zh-hant/212866/)
 
-**作者：玉米地大姐**
+戰友之家圖文摘要組及小語種組
 
-今年李克強政府報告：提高科技創新支撐能力。穩定支持基礎研究和應用基礎研究。加快建設國家實驗室，重組國家重點實驗室體系，發展社會研發機構。深化國際科技合作。加強知識産權保護。實行重點項目攻關“揭榜挂帥”，誰能幹就讓誰幹。
+[English\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000826/English_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000826/English_0524_CCP_Virus_Updates.pdf)
 
-這句“‘揭榜挂帥’，誰能幹就讓誰幹。”被官媒當作吸引眼球的標題大加報道。
+[French\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000844/French_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000844/French_0524_CCP_Virus_Updates.pdf)
 
-新華網：誰能幹就讓誰幹，一句平實的話語，背後卻蘊含著豐富的意義：把需要的關鍵核心技術項目張出榜來，英雄不論出身、資曆，只論實力、能力，創新領域的各類市場主體、大學機構，誰有本事完成目標，誰就來揭這個榜。
+[Japanese\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000904/Japanese_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000904/Japanese_0524_CCP_Virus_Updates.pdf)
 
-科技網：不必寄希望于每一項科技創新都有“高手在民間”，但“揭榜挂帥”無疑能更大範圍激發創新創造的活力，將更多創新主體的智慧、能力調動起來。
+[Korean\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000924/Korean_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000924/Korean_0524_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25200138/1-131-35.jpg)
+[Russian\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000952/Russian_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26000952/Russian_0524_CCP_Virus_Updates.pdf)
 
-每年兩會，中共媒體都要推出幾個關鍵詞加以解讀，意在宣傳洗腦給民衆畫餅充饑。疫情當下，中共爲什麽熱推這句粗鄙之極的誰能幹就讓誰幹？我們不妨從科技創新、懸賞機制兩個個層面上戳穿中共的陰謀詭計。
+[Spanish\_0524\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26001010/Spanish_0524_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26001010/Spanish_0524_CCP_Virus_Updates.pdf)
 
-一、科技創新與自主研發
 
-中共嘴裏的科技創新本身自相矛盾，科技本身意味著創新，加上創新純屬畫蛇添足，在盜國賊以假治國的大環境下，科技創新就是科技偷竊的代名詞，中共是科技偷竊的曆史慣犯，從毛時代偷竊蘇聯技術到改革開放偷竊美國技術無不如此，可謂駕輕就熟。
-
-當年被中共吹上天的兩彈一星，沒有來自蘇聯的技術根本造不出來。與科技創新配套的宣傳伎倆是自主研發。只要中共媒體宣稱什麽什麽自主研發，絕對是百分百偷竊而來的技術。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25200254/3-94-37.jpg)
-
-馬斯克怎麽不說自主研發火箭回收技術？喬布斯怎麽不說自主研發蘋果手機？蓋茨怎麽不說自主研發微軟操作系統？孩子要是自己的，沒必要告訴他人這孩子是我親生的。
-
-中共的自主研發，就像經常偷漢子的蕩婦，很怕別人說自己偷漢子，跑到大街上聲音高八度說自己從來不偷漢子，轉身就鑽進野漢子被窩一樣厚顔無恥。
-
-爆料革命驚醒美國，中共病毒讓西方社會看清共産黨的邪惡本質，中共再像以往一樣偷竊他國技術幾無可能。近日美國有議員推出法案，防止中共偷竊冠狀病毒疫苗技術，斬斷中共偷竊之手。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25200311/4-31-17.jpg)
-
-二、誰能幹就真的讓誰幹嗎？
-
-中共向來說一套做一套，誰能幹就讓誰幹暗藏玄機，這句話的關鍵在于“讓”，也就是說能幹者決定不了自己能不能幹，讓你能幹，你才能幹，“讓”等同于中共權力，套用繞口令句式：讓誰能幹，誰就能幹，不能幹也能幹，不讓誰能幹，誰能幹，也不能幹。
-
-總而言之，中共在兩會上公開懸賞誰能幹就讓誰幹，等于昭告天下，誰能偷竊到西方科技技術就讓誰幹，山寨老鄧的“不管黑貓白貓，抓住耗子就是好貓”理論。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/25200424/5-31-14.jpg)
-
-商鞅立木懸賞，強大的秦帝國還是灰飛煙滅，中共窮途末路抛出“揭榜挂帥”注定挽救不了滅亡的下場，2020年的兩會是他們最後的掙紮，天滅中共不可阻擋！
-
-（文章內容僅代表作者觀點）
 
 0
