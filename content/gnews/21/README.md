@@ -1,13 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港抗爭和平理性，共黨滅亡越快越好！“中共病毒疫情每日熱線”
-`2020-05-26 07:22 GM30` [轉載自GNews](https://gnews.org/zh-hant/213146/)
+## Warroom 比爾格茲：中共正向全球推進，向全世界各國強加其意誌
+`2020-05-26 11:14 GM77` [轉載自GNews](https://gnews.org/zh-hant/213322/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26071747/image0-146-37.jpg)
+戰友之家新聞譯制組
+By GM64
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5ecbdddb44ee8d39b38ee99d](https://web.gtv1.org/?videoid=5ecbdddb44ee8d39b38ee99d)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+•中共利用疫情趁美國之危，大秀肌肉。中共已經意識到香港的街頭上有了反抗的力量。
+•美國的國務卿發表了很強硬的講話，告訴中共不要強硬的在香港頒布新國家安全法，它侵犯了香港基本法和中共在1997年收回英屬殖民地做出的承諾，這是一國兩制結束的信號。
+•比爾格茲預計川普總統會對此的態度十分強硬，很可能通過取消香港貿易的特殊待遇。直到香港恢復到本來自治情況下，會再次恢復香港的自貿區地位。
+•在習近平統治下中共正在向全球推進，向世界各國強加他們的意誌。主要是利用經濟手段侵蝕發展中國家。
+•美國一定要為民主、自由、基本權利而戰，民主不會自己維持和傳播。
 
 0

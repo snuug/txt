@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員約翰·肯尼迪表示，多年來政客們一直對中共非常懦弱：脆弱引來了惡狼
-`2020-05-26 21:07 GM30` [轉載自GNews](https://gnews.org/zh-hant/213492/)
+## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
 
-**編譯：清風先生**
+戰友之家圖文摘要組及小語種組
 
-盡管針對由于不當處理冠狀病毒爆發而對中共國實施制裁的立法正在進行中，但參議員約翰·肯尼迪在周二談道，美國正面臨來自某個亞洲國家的威脅。
+[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
 
-肯尼迪對《美國新聞編輯室》說：“我還沒有看過那些草案，但我很可能會在上面簽字。”
+[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
 
-肯尼迪說，重要的是要區分中國人民和中國共産黨，也就是那些共産主義暴徒。肯尼迪補充到，其次，中國共産黨永遠不值得被信任。
+[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
 
-肯尼迪說：“即使中共這兩天就消亡，我也會轉身置之不理。”
+[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
 
-坦率地說，“中共的實力和中共的霸淩是由世界上最懦弱的人和那些政客們所造成的。二十年來，專家們和許多政客說要對中共有耐心，自由的貿易將改變他們。然而，他們改變了自由貿易。”
+[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
 
-國家安全顧問羅伯特·奧布賴恩（Robert O’Brien）于周日警告說，如果中共通過一項充滿爭議的國家安全法，可能會對香港的獨立性造成威脅，美國可能會實施相應的制裁。
+[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
 
-肯尼迪說，中國共産黨“完全理解脆弱引來了惡狼。”
+[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
 
-“我們必須有所行動，我們必須讓世界其他國家也加入我們，包括但不限于制裁。我們可能不得不撤銷香港的特殊貿易地位。香港人必須在這裏面對一個艱難的決定：他們可以離開，也可以戰鬥直到最後。但是，中國共産黨正在接管他們。”
 
-福克斯新聞的盧卡斯·曼弗雷迪（Lucas Manfredi）對此報告做出了貢獻。
-
-來源：[美國福克斯新聞網](https://www.foxnews.com/media/kennedy-world-leaders-weenies-with-china)
 
 0
