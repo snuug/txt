@@ -1,19 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美即將出台捍衛香港自治權法律
-`2020-05-27 07:05 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214177/)
+## 川普：本週結束前會有關於中國的重磅事情公佈
+`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27070337/%E7%BE%8E%E5%8D%B3%E5%B0%86%E5%87%BA%E5%8F%B0%E6%8D%8D%E5%8D%AB%E9%A6%99%E6%B8%AF%E8%87%AA%E6%B2%BB%E6%9D%83%E6%B3%95%E5%BE%8B-1.jpg)
-香港電台網站近期就兩名美國參議員所提議的一項旨在捍衛香港自治權的法案進行了報道。
+视频短标题：
+关于中国的重磅事情将要公布
 
-參議員帕特·圖密（Pat Toomey）和克里斯·范·霍倫（Chris Van Hollen）表示，中共正在加強對香港民主抗議活動的鎮壓，其剛通過的在香港實施國家安全立法的最新舉措旨在遏制民主抗爭。這兩位參議員提議通過一項《香港自治法》，該法案將對違反《中英聯合聲明》和《基本法》相關規定的經濟實體施行制裁。該法律還同時也會對與這些被制裁方有業務往來的銀行施加二級制裁。
+翻译【木木】总结/校对【Michelle】字幕【盘古开天】
 
-記者問范·霍倫參議員是否會對像華為這樣的公司進行制裁。他回答說：“這項立法的目標是讓那些決定剝奪香港自治權的人受到制裁。我們要把真正的重點放在那兒。”
+来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
 
-圖密參議員表示，希望該立法能夠被儘快通過，並補充說，這項法案將對中國產生重大影響：“在可預見的將來，中共將非常非常依賴美元交易，因此，我們提議的這些制裁在很長一段時間內會發揮非常非常強大的影響。”
+总结：
 
-[原文鏈接](https://news.rthk.hk/rthk/en/component/k2/1528508-20200527.htm)
-翻譯報道：佚名
+在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
+
+关键字：
+白宮，川普總統，香港
+
+简介：
+川普：本週結束前會有關於中國的重磅事情公佈
+
+Mr. President
+总统先生
+
+There is a bill in congress that would
+国会中有一项法案
+
+that’s related to the Uighurs
+将与维吾尔有关
+
+It passed the senate
+它在参议院通过了
+
+It’s gonna be up in the house
+它会提交到白宫
+
+Are you willing to sign that?
+您会签署吗？
+
+We’re taking a look at it very strongly
+我们正在认真研究它
+
+They are going to report it this afternoon
+将在今天下午进行报告
+
+…something special that you mentioned on China
+关于中国您提到的一些特别的事
+
+Do that include sanctions or the …
+是否包括制裁措施或…
+
+Something you are gonna to hear about
+您会听到一些有关此内容的信息
+
+over the next, before the end of the week
+在下周末之前
+
+Very powerfully, I think.
+我认为会非常重磅
 
 0

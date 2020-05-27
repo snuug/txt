@@ -1,24 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統將在接下來的幾天公佈對中共的非常強有力的措施
-`2020-05-27 07:19 Diago` [轉載自GNews](https://gnews.org/zh-hant/214195/)
+## 川普：本週結束前會有關於中國的重磅事情公佈
+`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27071715/unnamed-2.png)
-作者：Diago
+视频短标题：
+关于中国的重磅事情将要公布
 
-[據喜馬拉雅國際工作站@GlobalHimalaya](https://twitter.com/GlobalHimalaya) [6:20 PM • May 27, 2020•Twitter Media Studio推文](https://twitter.com/GlobalHimalaya/status/1265588594510569477)
+翻译【木木】总结/校对【Michelle】字幕【盘古开天】
 
-【針對中共的香港《國安法》 川普5/26說“本周結束前會有非常強有力的回應”！視頻來源: FOX（下附視頻為推文原視頻）】
+来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
 
-【記者：總統先生，你是否能告訴我們，針對中共對香港即將實施的打壓行徑，您打算如何制裁中共國？您是否也打算限制頒發F-J簽證給來美的中國留學生和研究學者？
+总结：
 
-川普總統：你的這個問題問得太早了，我們現在正在採取某些行動，保證你們知道後一定會感到耳目一新，但我今天不打算討論這個話題。我會在接下來的幾天內公佈，好吧？但你的問題非常重要。
+在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
 
-記者：你提到了一些針對中國的特殊行動，這包括制裁嗎？
+关键字：
+白宮，川普總統，香港
 
-川普總統：在這周結束前，你會聽到相關消息的，我認為將是非常強有力的行動。】
+简介：
+川普：本週結束前會有關於中國的重磅事情公佈
 
-（文章內容僅代表作者個人觀點）
+Mr. President
+总统先生
+
+There is a bill in congress that would
+国会中有一项法案
+
+that’s related to the Uighurs
+将与维吾尔有关
+
+It passed the senate
+它在参议院通过了
+
+It’s gonna be up in the house
+它会提交到白宫
+
+Are you willing to sign that?
+您会签署吗？
+
+We’re taking a look at it very strongly
+我们正在认真研究它
+
+They are going to report it this afternoon
+将在今天下午进行报告
+
+…something special that you mentioned on China
+关于中国您提到的一些特别的事
+
+Do that include sanctions or the …
+是否包括制裁措施或…
+
+Something you are gonna to hear about
+您会听到一些有关此内容的信息
+
+over the next, before the end of the week
+在下周末之前
+
+Very powerfully, I think.
+我认为会非常重磅
 
 0

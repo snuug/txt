@@ -1,45 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普對中國不滿，很難想像香港會繼續作一個金融中心
-`2020-05-27 06:14 GM67` [轉載自GNews](https://gnews.org/zh-hant/214109/)
+## 香港金融中心地位岌岌可危
+`2020-05-27 06:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214161/)
 
-翻译【木木】总结/校对【Michelle】字幕【小螺号】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27065209/%E9%A6%99%E6%B8%AF%E9%87%91%E8%9E%8D%E4%B8%AD%E5%BF%83%E5%9C%B0%E4%BD%8D%E5%B2%8C%E5%B2%8C%E5%8F%AF%E5%8D%B1.jpg)
+彭博社今天發表白宮新聞短訊，川普總統認為，如果中共政府通過新法律來遏制香港的抗議活動，香港將失去其作為亞洲金融中心的地位。
 
-**視頻短標題：**
+川普總統的新聞秘書凱莉麥肯尼（Kayleigh McEnany）在周二的新聞簡報會上對記者們說 “我直接去總統那裡得到了答案，他對我說，他對中國正在做的事情非常不滿，如果中共這樣接管香港，他很難看出這將如何維持香港現今國際金融中心的地位。” 她在簡報會上沒有進一步宣布美國將具體做何回應，因為這涉及到國家安全。
 
-很難想像香港會繼續作一個金融中心
-
-翻譯【木木】總結/校對【Michelle】字幕【小螺號】
-
-**總結：**
-
-At the White House Press Briefing on May 26, 2020, President Trump’s Press Secretary Kayleigh McEnany responded a question on President Trump’s response to China’s threat to crack down Hong Kong: “He said to me that he’s displeased with China’s efforts, and that it’s hard to see how Hong Kong can remain a financial hub if China takes over.”
-
-在5月26日的白宮媒體發布會上，川普總統的新聞發言人Kayleigh McEnany告訴了記者，川普總統對中國威脅鎮壓香港的反應如何：“他對我說，他對中國的做法不滿意，如果中國接管，很難想像香港會繼續作一個金融中心。”
-
-**簡介：**
-
-President Trump’s response to China’s threat to crack down Hong Kong: displeased with China’s efforts … it’s hard to see how Hong Kong can remain a financial hub if China takes over
-
-川普總統對中國威脅鎮壓香港的反應：對中國的做法不滿意，如果中國接管，很難想像香港會繼續作一個金融中心
-
-Source：Press Secretary Kayleigh McEnany Holds a Press Briefing ([https://www.youtube.com/watch?v=fNsPTnOSKw0](https://www.youtube.com/watch?v=fNsPTnOSKw0))
-
-Jon: China is making more…sending more overtures that it will crack down Hong Kong. What’s the message from the administration to the Chinese government about changing the special status of Hong Kong?
-
-約翰: 中國正在做出越來越多的表示要鎮壓香港，本屆政府對中國政府在改變香港特殊地位上有什麼資訊要傳達的麼？
-
-McEnany: Yeah, I know. Jen, you also emailed this question this morning, so I went directly to the President to get an answer on this, and he said to me that he’s displeased with China’s efforts, and that it’s hard to see how Hong Kong can remain a financial hub if China takes over. So, yes.
-
-麥肯尼：是，我知道。簡，你今早也發了郵件問了這個問題，所以我直接去找了總統請他解答。他對我說，他對中國的做法不滿意，如果中國接管，很難想像香港會繼續保持作為一個金融中心。所以，是的。
-
-Jon: Which means the United States will change the relationship with Hong Kong?
-
-簡：這意味著美國將改變與香港的關係麼？
-
-McEnany: So, I have no further announcements as to the precise action that the president will be taking, but he did want me to share with you this morning, this afternoon I should say.
-
-麥肯尼：在總統將採取什麼具體行動的問題上，我沒有進一步的聲明要宣佈。但是他的確希望我今天早晨，應該說是今天下午，把這些轉告你們。
+[原文鏈接](https://www.bloomberg.com/news/articles/2020-05-26/trump-says-hong-kong-will-lose-finance-industry-after-china-law)
+翻譯報道：佚名
 
 0

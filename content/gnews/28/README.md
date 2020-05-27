@@ -1,39 +1,179 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共銀行業下半年爆雷可能性激增
-`2020-05-27 02:15 GM06` [轉載自GNews](https://gnews.org/zh-hant/213817/)
+## NASA在大流行病期間邀請所有人5月27日線上觀看“美國啟動”計劃
+`2020-05-27 06:42 GM67` [轉載自GNews](https://gnews.org/zh-hant/214139/)
 
-作者：文茗
+怎樣線上觀看“美國啟動”計劃
 
-近日，安永同一天發佈了《中國36家上市銀行2020年一季度業績概覽》和《中國上市銀行2019年回顧及未來展望》報告。報告顯示，2019年度上市銀行全年實現淨利潤合計17483.6億元，增速7.32%；2020年一季度35家A股上市銀行以及1家披露季報的H股上市銀行淨利潤合計4959.87億元，同比增長5.03%，比2019年一季度增速下降了2.35個百分點。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27014834/1-131-42.jpg)
-回顧歷史，上市銀行在經歷了2018年度淨利潤下降後，增速有所回升。2017年度至2019年度，大型商業銀行和全國性股份制銀行的淨利潤增速呈持續上升趨勢，不過城商行和農商行的變動曲線呈現明顯的“V”字形狀。特別是城商行，近三年淨利潤增速分別為12.80%、-3.12%和11.41%，波動較大。
+YouTube：
 
-2018和2019年度的上市銀行營業收入增速明顯提升，其中受資管新規實施以及對實體經濟減費讓利等多重因素的影響，上市銀行手續費及傭金淨收入於2017年度僅增長0.28%，2018年度甚至下降了1.45%，2019年得益於上市銀行推進理財業務轉型、增加符合資管新規要求的淨值型理財產品發行規模，以及銀行卡業務的快速增長，手續費及傭金淨收入增速回升至9.66%。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27015025/2-98-32.jpg)
 
-從貸款減值損失計提來看，整體上市銀行近三年增速分別為7.27%、28.79%和11.12%，其中城商行近三年增速分別為0.92%、75.62%和12.70%，農商行近三年分別為-21.89%、103.04%和9.18%，波動尤為明顯。
+简介：
 
-波動性還體現在資產和負債規模增速上，近三年上市銀行資產規模增速分別為7.02%、6.53%和8.91%，其中全國性股份制銀行增速持續上升，城商行持續下降，而大型商業銀行和農商行則經歷了先降後升。
+本周@NASA 5月22日发布：如何线上参与“美国启动”活动。航天飞机计划结束九年以后，美国重返人类太空飞行的“美国启动”计划开启！
 
-2019年全年商業銀行累計實現淨利潤2.0萬億元,平均資本利潤率為10.96%。其中大型商業銀行的盈利能力超出其他所有銀行，淨利潤超過1萬億；股份制商業銀行實現淨利潤4233億；城商行、民營銀行和農村商業銀行實現的淨利潤分別為2509億、82億和2287億；外資銀行則實現淨利潤216億。
+本週@NASA 5月22日發布：如何線上參與“美國啟動”活動。 航天飛機計劃結束九年以後，美國重返人類太空飛行的“美國啟動”計劃開啟！
 
-六大國有銀行合計實現營業收入3.25萬億元，淨利潤合計達1.12萬億元。工商銀行、建設銀行、農業銀行、中國銀行、交通銀行、郵儲銀行實現歸屬于母公司股東淨利潤分別為3122.24億元、2667.33億元、2120.98億元、1874.05億元、772.81億元、609.33億元，分別同比增長4.9%、4.74%、4.6%、4.06%、4.96%、16.48%。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27015429/3-94-43.jpg)
-對於銀行業來說，今年是一個特殊之年，首先經歷了CCP病毒洗禮之後，即將迎來中美脫鉤的最強衝擊。受此影響2020年第一季度，商業銀行實現淨利潤6001億元，同比增長5%，增速比上年同期下降4.4個百分點。以及報告中35家A股上市銀行以及1家披露季報的H股上市銀行淨利潤合計人民幣4959.87億元，同比增長5.03%，比2019年一季度增速下降2.35個百分點。
+翻译：【JoyJoy】校对：【RD16】字幕：【】听写：【Michelle】
 
-相較去年，不論是五大國有銀行還是其他銀行，利潤仍在增加。而面對如此惡略的經濟環境下，可以說百業凋零，唯獨上市銀行業績仍實現正的增長，這是什麼原因。
+如何線上參與“美國啟動”？
 
-首先來說銀行利潤增長主要源自銀行業資產規模擴張。一季度上市銀行根據中共政府監管要求加大信貸投放力度，所謂的支援企業抗擊疫情復工複產，正是如此銀行相應利息淨收入就在不斷增長。
+彭斯副總統強調美國重返人類太空飛行。
 
-雖然今年中共的銀行利潤絕對量較大，但利潤增速總體趨緩，盈利能力有所下降。這裡面其實就隱含了有大量的企業出現倒閉，無法償還貸款和支付利息的原因所在。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27015523/4-31-22.jpg)
-中共國存在金融週期與經濟週期不完全同步的問題，不良貸款風險暴露存在一定滯後性，加之疫情以來銀行業對企業實施延期還本付息等政策，在資產品質承壓情況下，後期銀行恐面臨更大的不良貸款處置和資本消耗壓力。
+並表彰一位傳奇的天文學家。
 
-隨著中美脫鉤的深入，實體經濟衰退向金融領域傳導的滯後效應逐漸顯現。銀行後期不良貸款處置和資本消耗壓力會急速放大，銀行利潤增速可能隨之會消失乃至負增長，也就是說銀行業暴雷只是時間問題。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27015703/45-1-1.jpg)
-當香港自貿區被取消和中美脫鉤實現的那一刻，就是銀行業暴雷之時，新中國誕生的時刻。
+還有一些本週@NASA的故事。
+
+5月20日，宇航員鮑勃·貝肯和道格·赫利
+
+在NASA的SpaceX Demo-2國際空間站試飛飛行之前，抵達了弗里達的
+
+肯尼迪航天中心
+
+兩天后，在“飛行準備就緒評估“（規程）上，
+
+該使命被正式批准定為在5月27日試圖發射。該使命將
+
+從歷史意義深遠的肯尼迪39A號發射場啟動，它被給予“美國啟動”的美名。
+
+這標誌著 自（之前的）航天飛機時代結束以來美國首次進行人類太空飛行。
+
+【道格·赫利，NASA宇航員】：
+
+我碰巧是將近九年前在這裡降落的四名宇航員之一，我們
+
+乘T-38d 超音速教练机於2011年7月4日在這降落，繼而作為航天飛機計劃的終結
+
+因此能夠到這裡開啟這下一次的美國發射，真是令人不勝榮幸！
+
+（此處空白）
+
+【鮑勃·本肯， NASA 宇航員】：
+
+作為軍事 試驗飛行員學校的畢業生，假如有可能在未來的
+
+某一天可以實現的夢寐以求的工作中，你讓我們只能選一件事，
+
+那肯定會是得以登上一架新的宇宙飛船，
+
+在那架宇宙飛船上執行試驗飛行的使命。道格和我有幸得以重任。
+
+因此，我們很感謝有這次機會。
+
+出於 社交疏遠的顧慮，雖然這次的發射前和發射日活動無法向公眾開放，
+
+NASA邀請您線上參與這個歷史性的里程碑活動。
+
+除了在NASA電視台上會對從發射日到停靠日做持續報導之外，
+
+（我們還有）一些線上活動，包括“NASA社交“，以及
+
+在我們的社交媒體渠道上舉辦的活動，包括YouTube，Twitter，Facebook，
+
+Instagram和LinkedIn。有關如何線上參與的更多信息，
+
+請訪問網站nasa.gov/beourguest
+
+【麥克·彭斯副總統】：
+
+歡迎來到國家航天局的“美國啟動”的發布。
+
+在5月19日，副總統邁克·彭斯（Mike Pence）在華盛頓特區的總部召開了
+
+國家航天局的第七次會議
+
+我們的國家航天局行政長官Jim Bridenstine以及宇航員Bob Behnken和
+
+Doug Hurley通過實時網絡直播參加了此次活動，重點介紹了
+
+NASA的“SpaceX 演示第2版”  前往太空站的使命。
+
+在5月20日，我們宣佈了目前正在開發的广域红外测量望远镜
+
+已經為紀念已故的南希·格蕾絲·羅曼而命名。
+
+NASA’s first chief astronomer. The telescope is targeted for launch in
+
+她曾是NASA首位首席天文學家。該望遠鏡預期在
+
+2020年中期發射，用以 勘測由來已久的天文學之謎，
+
+並用以探尋在我們太陽係以外的遙遠星球。
+
+NASA獲得了四項2020年韋比獎和四項“人民之聲”獎(表彰互聯網卓越者)，
+
+突顯了該機構的多樣化在線產品。 我們今年獲得了創本機構紀錄的提名數，共
+
+獲得了12項提名。Webby獎是由
+
+國際數字藝術與科學研究院頒發的。
+
+日本航天探索局和三菱重工
+
+於5月20日發射了無人駕駛的HTV-9貨運飛船，裝載了
+
+四噸 以上的補給品送往國際空間站，其中包括
+
+最後一套新的鋰離子電池和轉接板，從而完成了
+
+太空站電源系統的多年升級(項目)。
+
+安妮·格倫是已故NASA宇航員，美國參議員約翰·格倫的妻子，於
+
+本週去世，享年100歲。NASA的一份聲明中讚揚安妮·格倫是
+
+在太空和軍事界社區中的忠誠堅強的成員，她對
+
+她具有傳奇色彩的丈夫的勇敢支持無與倫比。聲明還指出了
+
+她一生為兒童、年長者和殘障人士所做的公共服務。
+
+這就是本週@NASA的更新。
+
+有關這些故事和其他故事的更多信息，請在nasa.gov/twan上關注我們。
+
+翻譯自：
+
+How to Virtually Participate in ‘Launch America’ on This Week @NASA – May 22, 2020
+
+URL：[https://www.youtube.com/watch?v=13RDPimvD\_0](https://www.youtube.com/watch?v=13RDPimvD_0)
+
+英文全文：
+
+How to virtually participate in ‘Launch America’? Vice President Pence highlights the nation’s return to human spaceflight. And honoring a legendary astronomer.
+
+A few of the stories to tell you about This Week @ NASA.
+
+On May 20, astronauts Bob Behnken and Doug Hurley arrived at our Kennedy Space Center in Frida ahead of their launch on NASA’s SpaceX Demo-2 test flight to the international Space Station. Two days later, the mission got the formal go ahead for a May 27 launch attempt at a Flight Readiness Review. The mission, targeted for launch from Kennedy’s historic Launch Complex 39A, is being celebrated as ‘Launch America’, marking the first human spaceflight from the U.S. since the end of the space shuttle era.
+
+Doug Hurley, NSAS Astronaut:
+
+I happen to have been one of the four astronauts that landed here almost nine years ago in T-38d on the Fourth of July in 2011 to close out the Space Shuttle Program. So it’s in credibly humbling to be here to start out the next launch from the United States.
+
+Bob Behnken, NASA Astronaut:
+
+As graduates of military test pilot schools, if you gave us one thing that we could have put on our list of dream jobs that we would have gotten to have someday it would have been to be aboard a new spacecraft, be conducting a test mission aboard that spacecraft, and Doug and I get that chance to do it. So, we’re thankful for that opportunity.
+
+White pre-launch and launch day activities are not open the public due to social distancing concerns, NASA invites you to virtually participate in this historic milestone. In addition to continuous launch-day to docking-day coverage on NASA Television, virtual activities include a NASA Social, as well as activities across our social media channels including YouTube, Twitter, Facebook, Instagram and LinkedIn. For more about how to virtually participate go to [nasa.gov/beourguest](https://nasa.gov/beourguest).
+
+Mike Pence, Vice President:
+
+Welcome to the ‘Launch America’ edition of the National Space Council.
+
+On May 19, Vice President Mike Pence convened the 7the meeting of the National Space Council at our headquarters I Washington, D.C. Our Administrator, Jim Bridenstine, as well as astronauts Bob Behnken and Doug Hurley joined the event via live web streams, to highlight NASA’s SpaceX Demo-2 mission to the space station.
+
+On May 20, we announced that the Wide Field Infrared Survey Telescope currently under development has been named in honor of the late Nancy Grace Roman, NASA’s first chief astronomer. The telescope is targeted for launch in the mid-2020s to investigate long-standing astronomical mysteries and to search for distant planets beyond our solar system.
+
+NASA received four 2020 Webby awards, and four People’s Voice awards, highlighting the agency’s diverse online offerings. We received an agency record 12 nominations this year. The Webby Awards are presented by the International Academy of Digital Arts and Sciences.
+
+The Japan Aerospace Exploration Agency and Mitsubishi Heavy Industries launched an unpiloted HTV-9 cargo spacecraft on May 20, loaded with more than four tons of supplies for the International Space Station, including the final set of new lithium-ion batteries and adapter plates to complete a multi-year upgrade of the station’s power system.
+
+Annie Glenn, wife of late NASA astronaut and U.S. Senator John Glenn, dies this week at age 100. A NASA statement praised Annie Glenn as a stalwart member of the space and military communities, whose courageous support of her legendary husband was unmatched. The statement also noted her lifelong public service on behalf of children, the elderly, and the disabled.
+
+That’s what’s up this week @NASA.
+
+For more on these and other stories, follow us on the web at [nasa.gov/twan](https://nasa.gov/twan).
 
 0

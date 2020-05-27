@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港安全法提案引發香港人的強烈不滿和國際譴責
-`2020-05-27 01:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/213706/)
+## 【重磅】白宮重申美國對中華人民共和國的戰略方針 （2020.5.26）
+`2020-05-27 06:20 GM67` [轉載自GNews](https://gnews.org/zh-hant/214112/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27005608/1-113-50.png)
-北京官方上周證實，其橡皮圖章議會將繞過香港立法機關，推動國家安全法在香港的實施。該法律將禁止分裂國家，顛覆，恐怖主義和外國干涉，並不排除在香港設立情報機構的可能性。此舉引發了香港市民的強烈抗議，並引起了國際譴責。
+白宮英文全文：[https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/](https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26231531/WH_20200526_StrategicAction_photo_16_9.png)
+總結：
 
-白宮國家安全顧問羅伯特•奧布賴恩（Robert O’Brien）於5月24表示，日前中共政府提出的國家安全法草案可能會導致美國政府根據《 2019年香港人權與民主法》對香港作出相應的制裁。根據這項聯邦法律，美國國務卿必須有足夠的證據來證明香港特別行政區政府依然保有以獲得美國授予的貿易特權。除此以外, 這項立法還賦予了對在香港侵犯人權的中國和香港官員和其他相關人員進行制裁的權利。
+白宮5月26日發表聲明，重申5月20日發布的美國對中華人民共和國的戰略方針。中共對大流行病的反應迫使美國人比以往任何時候都更要認清北京政權的性質及其對美國經濟利益、安全和價值觀構成的威脅。
 
-奧布賴恩說，此舉還將危及香港作為國際金融中心的地位。眾多的投資者來到香港的原因之一是那裡有法治，有自由企業制度，有資本主義制度，有民主制度和地方立法選舉。如果所有這些事情都消失了，整個香港金融系統將會陷入一片混亂，香港乃至全球經濟將會一落千丈.
+【繁體中文版】
 
-如果中國政府一意孤行，實施這項國家安全法，從本質上接管香港，一國兩制的承諾將不復存在. 美國國務卿彭培奧將會無法證明香港依然保持高度自治的權利. 如果發生這種情況，美國政府會被迫對香港和中國實施相應的制裁。
+中共對大流行病的反應，迫使美國人比以往任何時候都更要認清北京政權的性質及其對美國經濟利益、安全和價值觀構成的威脅。 川普總統和美國政府致力於保護美國人民、家園和生活方式，免受中共惡性行動和政策的侵害。
 
-中國政府於5月25日警告說，如果美國政府採取行動破壞其在香港的利益，中國政府將採取反措施。中國外交部發言人趙立堅在簡報會上對記者表示，北京方面已就奧布萊恩有關香港安全法可能導致美國制裁的評論向華盛頓表示強烈不滿。中國外交大臣王毅也表示，中共政府不允許外界干預香港的任何政策，並引用2019年的民主抗議活動作為引入新法律的理由。中共政權一向指責在香港的大規模抗議活動是由「外國勢力」煽動，反對一項目前已被廢除的引渡法案. 該法案原本可以將香港人帶到大陸，由中共政府控制的法院進行審判。批評者說，引渡法案將允許中共政權以安全為借口來壓制不同意見, 從而導致香港人民失去言論自由。
+2020年5月20日，白宮根據2019財年《國防授權法》，《美國對中華人民共和國的戰略方針》發表了一份報告（[https://www.whitehouse.gov/wp-content/uploads/2020/05/U.S.-Strategic-Approach-to-The-Peoples-Republic-of-China-Report-5.20.20-1.pdf](https://www.whitehouse.gov/wp-content/uploads/2020/05/U.S.-Strategic-Approach-to-The-Peoples-Republic-of-China-Report-5.20.20-1.pdf)），詳細介紹了針對中華人民共和國的整體政府戰略。
 
-[新聞來源](https://www.theepochtimes.com/beijing-threatens-retaliation-if-us-pursues-sanctions-over-hong-kong-security-law_3364121.html)
+該報告由白宮編輯，並在美國行政部門進行了廣泛的協調。
 
-翻譯報道：匿名
+正如總統的《國家安全戰略》所說，現在是美國  “重新思考過去20年的政策——基於這樣一種假設，即與競爭對手接觸並將其納入國際機構和全球貿易將使它們成為善意的行為者和值得信賴的夥伴” 的時候了。 該報告說明瞭中國共產黨的政策和行動如何迫使美國採取，以回歸原則性現實主義為指導的競爭戰略。
+
+翻譯自： https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/
+
+翻譯：【JoyJoy】校對：【Michelle】
+
+延展閱讀：《美國對中華人民共和國的戰略方針》(全文翻譯)
+
+> [【重磅】白宫发布《美国对中华人民共和国的战略方针》(全文翻译)](https://gnews.org/zh-hant/209809/)
 
 0
