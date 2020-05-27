@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
+## 知情人士：香港國安法將禁止外籍法官審理國安案件
+`2020-05-27 06:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214149/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27064131/%E9%A6%99%E6%B8%AF%E5%9B%BD%E5%AE%89%E6%B3%95%E5%B0%86%E7%A6%81%E6%AD%A2%E5%A4%96%E7%B1%8D%E6%B3%95%E5%AE%98%E5%AE%A1%E7%90%86%E5%9B%BD%E5%AE%89%E6%A1%88%E4%BB%B6.jpg)
+據路透社北京報道，知情人士稱港版國安法將禁止外籍法官審理國安案件，這進一步加劇外界對香港司法獨立的擔憂。
 
-[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
-
-[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
-
-[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
-
-[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
-
-[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
-
-[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
-
-[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
-
-
+去年，香港市民進行了持續數月的反政府遊行示威活動。很多香港市民擔憂中共在其1997年承諾的“一國兩制”框架下侵蝕香港的自主權。中共譴責香港的遊行示威者是“麻煩製造者”，並接受不明外國勢力的援助。由於對香港未能自行通過國家安全法失去了耐心，中共於周四宣布將直接頒布法律以解決任何涉及分裂，顛覆國家， 恐怖主義，以及外國勢力在香港的干預行為。
+消息人士稱，該項立法可能還會修改，中共還將在香港設立中央和城市安全機構。香港國安法很可能會在9月份香港立法選舉前完成。截至目前，全國人大常務委員會立法事務委員會以及港澳事務辦公室未對此做出回應。
+路透社報道指出，香港擁有外籍法官，主要源於1997年香港回歸後， 為保證香港作為國際金融中心的地位才做此安排。香港終審法院有23個法官，其中15個是外籍，主要來自英國，加拿大和澳大利亞。這些外籍法官都不是常任法官，也就意味着他們是定期審理案件。在港版國安法下， 這些外籍法官將被禁止審理國安案件，但是民事，金融以及其它案件不受影響。
+儘管如此， 任何限制外籍法官的舉動都給香港的立法者和法官敲響了警鐘。他們原本就已經很擔心在中共的領導下香港的司法獨立地位受到威脅。香港大律師公會稱中共沒有經過公眾問詢和地方立法機構審查強推國安法，令地方和國際社會深感不安。
+[新聞來源](https://www.reuters.com/article/us-china-parliament-hongkong-security/chinas-hong-kong-law-set-to-bar-foreign-judges-from-national-security-cases-sources-idUSKBN2321CW)
+翻译报道：喜馬拉雅
 
 0

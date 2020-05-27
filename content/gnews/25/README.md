@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國正在考慮制裁中共官員和企業
-`2020-05-26 22:16 GM10` [轉載自GNews](https://gnews.org/zh-hant/213558/)
+## 【重磅】白宮重申美國對中華人民共和國的戰略方針 （2020.5.26）
+`2020-05-27 06:20 GM67` [轉載自GNews](https://gnews.org/zh-hant/214112/)
 
-**作者：Dogman**
+白宮英文全文：[https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/](https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26231531/WH_20200526_StrategicAction_photo_16_9.png)
+總結：
 
-美國正在考慮一系列的措施對壓制香港的中共官員和企業進行制裁。近期，中共近期針對香港提出實施國安法，此舉引起大面積對於香港自治的擔憂，而川普的內閣正在仔細衡量是否應該取消香港的特殊經濟地位。
+白宮5月26日發表聲明，重申5月20日發布的美國對中華人民共和國的戰略方針。中共對大流行病的反應迫使美國人比以往任何時候都更要認清北京政權的性質及其對美國經濟利益、安全和價值觀構成的威脅。
 
-根據彭博社的內部消息，美國財政部有可能會出臺限制甚至凍結中共官員和企業資產的措施，對中共即將實施的削弱香港人權和自由的《國安法》予以回擊。
+【繁體中文版】
 
-據匿名消息人士稱，具體的制裁措施和頒發還在討論之中，目前最終結論仍未定論。而川普總統在周二時透露，他的內閣正在商討所有可能的具體制裁措施，而本周末即將知道結果。川普總統說，‘在本周末之前結果即將揭曉’，並且強調懲罰措施將會“非常震撼”。
+中共對大流行病的反應，迫使美國人比以往任何時候都更要認清北京政權的性質及其對美國經濟利益、安全和價值觀構成的威脅。 川普總統和美國政府致力於保護美國人民、家園和生活方式，免受中共惡性行動和政策的侵害。
 
-5月22日，中國人大宣布將審議有關制定香港《國安法》的草案，此舉引發外界廣擔憂，很多人認為香港的自由從此終結。
-而爆料革命發起人郭文貴先生在此前的直播中，明確提到“美國一定會取消香港的特殊經濟地位”。將郭先生與美國現在正在考慮的懲罰措施結合，讀者不難想象，川普總統即將公之於眾的‘非常震撼’的措施可能會包括取消香港的特殊經濟地位。
+2020年5月20日，白宮根據2019財年《國防授權法》，《美國對中華人民共和國的戰略方針》發表了一份報告（[https://www.whitehouse.gov/wp-content/uploads/2020/05/U.S.-Strategic-Approach-to-The-Peoples-Republic-of-China-Report-5.20.20-1.pdf](https://www.whitehouse.gov/wp-content/uploads/2020/05/U.S.-Strategic-Approach-to-The-Peoples-Republic-of-China-Report-5.20.20-1.pdf)），詳細介紹了針對中華人民共和國的整體政府戰略。
 
-信息來源：[https://www.bloomberg.com/news/articles/2020-05-26/u-s-weighs-sanctions-on-chinese-officials-firms-over-hong-kong?sref=svRuTGzi](https://www.bloomberg.com/news/articles/2020-05-26/u-s-weighs-sanctions-on-chinese-officials-firms-over-hong-kong?sref=svRuTGzi)
+該報告由白宮編輯，並在美國行政部門進行了廣泛的協調。
 
+正如總統的《國家安全戰略》所說，現在是美國  “重新思考過去20年的政策——基於這樣一種假設，即與競爭對手接觸並將其納入國際機構和全球貿易將使它們成為善意的行為者和值得信賴的夥伴” 的時候了。 該報告說明瞭中國共產黨的政策和行動如何迫使美國採取，以回歸原則性現實主義為指導的競爭戰略。
 
+翻譯自： https://www.whitehouse.gov/articles/united-states-strategic-approach-to-the-peoples-republic-of-china/
+
+翻譯：【JoyJoy】校對：【Michelle】
+
+延展閱讀：《美國對中華人民共和國的戰略方針》(全文翻譯)
+
+> [【重磅】白宫发布《美国对中华人民共和国的战略方针》(全文翻译)](https://gnews.org/zh-hant/209809/)
 
 0
