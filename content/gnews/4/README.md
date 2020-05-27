@@ -1,22 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港安全法提案引發香港人的強烈不滿和國際譴責
-`2020-05-27 01:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/213706/)
+## 川普：本週結束前會有關於中國的重磅事情公佈
+`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27005608/1-113-50.png)
-北京官方上周證實，其橡皮圖章議會將繞過香港立法機關，推動國家安全法在香港的實施。該法律將禁止分裂國家，顛覆，恐怖主義和外國干涉，並不排除在香港設立情報機構的可能性。此舉引發了香港市民的強烈抗議，並引起了國際譴責。
+视频短标题：
+关于中国的重磅事情将要公布
 
-白宮國家安全顧問羅伯特•奧布賴恩（Robert O’Brien）於5月24表示，日前中共政府提出的國家安全法草案可能會導致美國政府根據《 2019年香港人權與民主法》對香港作出相應的制裁。根據這項聯邦法律，美國國務卿必須有足夠的證據來證明香港特別行政區政府依然保有以獲得美國授予的貿易特權。除此以外, 這項立法還賦予了對在香港侵犯人權的中國和香港官員和其他相關人員進行制裁的權利。
+翻译【木木】总结/校对【Michelle】字幕【盘古开天】
 
-奧布賴恩說，此舉還將危及香港作為國際金融中心的地位。眾多的投資者來到香港的原因之一是那裡有法治，有自由企業制度，有資本主義制度，有民主制度和地方立法選舉。如果所有這些事情都消失了，整個香港金融系統將會陷入一片混亂，香港乃至全球經濟將會一落千丈.
+来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
 
-如果中國政府一意孤行，實施這項國家安全法，從本質上接管香港，一國兩制的承諾將不復存在. 美國國務卿彭培奧將會無法證明香港依然保持高度自治的權利. 如果發生這種情況，美國政府會被迫對香港和中國實施相應的制裁。
+总结：
 
-中國政府於5月25日警告說，如果美國政府採取行動破壞其在香港的利益，中國政府將採取反措施。中國外交部發言人趙立堅在簡報會上對記者表示，北京方面已就奧布萊恩有關香港安全法可能導致美國制裁的評論向華盛頓表示強烈不滿。中國外交大臣王毅也表示，中共政府不允許外界干預香港的任何政策，並引用2019年的民主抗議活動作為引入新法律的理由。中共政權一向指責在香港的大規模抗議活動是由「外國勢力」煽動，反對一項目前已被廢除的引渡法案. 該法案原本可以將香港人帶到大陸，由中共政府控制的法院進行審判。批評者說，引渡法案將允許中共政權以安全為借口來壓制不同意見, 從而導致香港人民失去言論自由。
+在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
 
-[新聞來源](https://www.theepochtimes.com/beijing-threatens-retaliation-if-us-pursues-sanctions-over-hong-kong-security-law_3364121.html)
+关键字：
+白宮，川普總統，香港
 
-翻譯報道：匿名
+简介：
+川普：本週結束前會有關於中國的重磅事情公佈
+
+Mr. President
+总统先生
+
+There is a bill in congress that would
+国会中有一项法案
+
+that’s related to the Uighurs
+将与维吾尔有关
+
+It passed the senate
+它在参议院通过了
+
+It’s gonna be up in the house
+它会提交到白宫
+
+Are you willing to sign that?
+您会签署吗？
+
+We’re taking a look at it very strongly
+我们正在认真研究它
+
+They are going to report it this afternoon
+将在今天下午进行报告
+
+…something special that you mentioned on China
+关于中国您提到的一些特别的事
+
+Do that include sanctions or the …
+是否包括制裁措施或…
+
+Something you are gonna to hear about
+您会听到一些有关此内容的信息
+
+over the next, before the end of the week
+在下周末之前
+
+Very powerfully, I think.
+我认为会非常重磅
 
 0

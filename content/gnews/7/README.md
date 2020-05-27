@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
+## 世界站在香港一邊&#8211;前港督彭定康對港聲明超三十國聯署
+`2020-05-27 07:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214204/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27072500/%E4%B8%96%E7%95%8C%E7%AB%99%E5%9C%A8%E9%A6%99%E6%B8%AF%E4%B8%80%E8%BE%B9-%E5%89%8D%E6%B8%AF%E7%9D%A3%E5%BD%AD%E5%AE%9A%E5%BA%B7%E5%AF%B9%E6%B8%AF%E5%A3%B0%E6%98%8E%E8%B6%85%E4%B8%89%E5%8D%81%E5%9B%BD%E8%81%94%E7%BD%B2.jpg)
+前港督彭定康（Chris Patten）和英國前外相聶偉敬（Sir Malcolm Rifkind）日前就香港《國安法》發表了一份聯合聲明。已有超過32個國家的335位政要聯署。
 
-[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
+彭定康表示：“中共政府單方面在香港實施國家安全立法，國際上對此種行為的憤怒與日俱增。聲明在四大洲所有政黨中得到的廣泛支持既反映了情況的嚴重性，又反映了國際上對於一國兩制原則的持續支持。”
 
-[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
+聶偉敬則表示：“這是自1997年以來中共政府對香港人民最嚴重的威脅。香港人民需要也應該得到我們的支持。”
 
-[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
+參與聯署的美國參議員馬可·魯比奧（Marco Rubio） 說：“世界上許多民主國家的立法者通過這封信表達了對香港自治和香港人的支持。我們必須要踐行我們所說的話，我們的政府應保持警惕隨時準備對北京違反《中英聯合聲明》的行為作出回擊。”
 
-[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
+美參議院外交關係委員會高級委員羅伯特·曼南德茲（Robert Menendez）說：“所有支持和尊重國際法，支持香港人民在一國兩制下，其合法自治權、人權和民主自由的的人都有責任在今天站出來，讓北京明白他們的行為是不能被接受的。”
 
-[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
+聯合聲明全文
 
-[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
+我們，每一位聯署者，在此通過聲明表達我們對北京在香港單方面實行國家安全立法的嚴重關切。
 
-[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
+這是對香港自治、法治和基本自由的全面攻擊。 一國兩制已命懸一線。
 
+引發街頭抗議的是普通香港人的內心的真正不滿。 嚴厲的法律只會進一步加劇局勢，危害香港作為中國開放的國際城市的未來。
 
+如果國際社會不能相信北京對香港信守承諾，那麼今後人們也將不願意相信北京在其他事務上遵守諾言。 同情（香港的）的各個政府必須團結起來不能容忍這種公然違反《中英聯合聲明》的行為。
+
+評：參與聯署的名單中，不乏對中共國最先清醒的西方國家，如美國、英國、加拿大、澳大利亞，德國、瑞典也緊隨其後。立陶宛與斯洛伐克均出現超過十人以上的議員聯署，於此同時歐盟內部也出現大量議員聯署。亞洲方面，除日本外尚無議員聯署，可以想見中共國對周邊國家的壓力。世界正在覺醒，我們拭目以待
+
+[原文鏈接](https://www.hongkongwatch.org/all-posts/2020/5/23/patten-led-group-of-198-parliamentarians-from-23-countries-decry-flagrant-breach-of-the-sino-british-joint-declaration)
+翻譯整理：Sonya
 
 0

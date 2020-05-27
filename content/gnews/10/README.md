@@ -1,22 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國正在考慮制裁中共官員和企業
-`2020-05-26 22:16 GM10` [轉載自GNews](https://gnews.org/zh-hant/213558/)
+## “國歌法”二讀，香港的抗爭不會停息！“中共病毒疫情每日熱線”
+`2020-05-27 07:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/214170/)
 
-**作者：Dogman**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27065807/image0-146-42.jpg)
 
-美國正在考慮一系列的措施對壓制香港的中共官員和企業進行制裁。近期，中共近期針對香港提出實施國安法，此舉引起大面積對於香港自治的擔憂，而川普的內閣正在仔細衡量是否應該取消香港的特殊經濟地位。
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ecd2fa737378219a6f5d1ae](https://web.gtv1.org/?videoid=5ecd2fa737378219a6f5d1ae)
 
-根據彭博社的內部消息，美國財政部有可能會出臺限制甚至凍結中共官員和企業資產的措施，對中共即將實施的削弱香港人權和自由的《國安法》予以回擊。
-
-據匿名消息人士稱，具體的制裁措施和頒發還在討論之中，目前最終結論仍未定論。而川普總統在周二時透露，他的內閣正在商討所有可能的具體制裁措施，而本周末即將知道結果。川普總統說，‘在本周末之前結果即將揭曉’，並且強調懲罰措施將會“非常震撼”。
-
-5月22日，中國人大宣布將審議有關制定香港《國安法》的草案，此舉引發外界廣擔憂，很多人認為香港的自由從此終結。
-而爆料革命發起人郭文貴先生在此前的直播中，明確提到“美國一定會取消香港的特殊經濟地位”。將郭先生與美國現在正在考慮的懲罰措施結合，讀者不難想象，川普總統即將公之於眾的‘非常震撼’的措施可能會包括取消香港的特殊經濟地位。
-
-信息來源：[https://www.bloomberg.com/news/articles/2020-05-26/u-s-weighs-sanctions-on-chinese-officials-firms-over-hong-kong?sref=svRuTGzi](https://www.bloomberg.com/news/articles/2020-05-26/u-s-weighs-sanctions-on-chinese-officials-firms-over-hong-kong?sref=svRuTGzi)
-
-
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

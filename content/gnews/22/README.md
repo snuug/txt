@@ -1,18 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 比爾格茲：中共正向全球推進，向全世界各國強加其意誌
-`2020-05-26 11:14 GM77` [轉載自GNews](https://gnews.org/zh-hant/213322/)
+## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
 
-戰友之家新聞譯制組
-By GM64
+戰友之家圖文摘要組及小語種組
+
+[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
+
+[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
+
+[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
+
+[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
+
+[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
+
+[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
+
+[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
 
 
-
-•中共利用疫情趁美國之危，大秀肌肉。中共已經意識到香港的街頭上有了反抗的力量。
-•美國的國務卿發表了很強硬的講話，告訴中共不要強硬的在香港頒布新國家安全法，它侵犯了香港基本法和中共在1997年收回英屬殖民地做出的承諾，這是一國兩制結束的信號。
-•比爾格茲預計川普總統會對此的態度十分強硬，很可能通過取消香港貿易的特殊待遇。直到香港恢復到本來自治情況下，會再次恢復香港的自貿區地位。
-•在習近平統治下中共正在向全球推進，向世界各國強加他們的意誌。主要是利用經濟手段侵蝕發展中國家。
-•美國一定要為民主、自由、基本權利而戰，民主不會自己維持和傳播。
 
 0
