@@ -1,52 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的40億清網行動將如何展開
-`2020-05-26 22:35 GM10` [轉載自GNews](https://gnews.org/zh-hant/213571/)
+## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
 
-**作者：Dogman**
+戰友之家圖文摘要組及小語種組
 
-郭文貴先生在5月25日的直播中說到，中共將斥資40億美金對於爆料革命建立喜馬拉雅國的網絡直播行為進行“清網行動”，目的是將爆料革命的傳播範圍和影響力降到最低。40億美金，如此之大手筆，那麽中共將如何使用這筆錢呢？根據以往的經驗，中共將會在國內和國外對傳統媒體和新興社交媒體進行輿論管制和導控，而直接針對爆料革命，則可能會采取網絡黑客和直接威脅或經濟利誘爆料革命追隨者的方式，對64宣言直播活動進行360度無死角的打擊。
+[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
 
-**中共官媒的宣傳**
-中共傳聲筒，例如傳統報紙《人民日報》，《環球時報》等和每日一播的《中央新聞聯播》官方媒體， 是中共對內宣傳進行洗腦的主要工具。僅僅是《中央新聞聯播》觀眾數量就高達10億人之多，因此此類傳統媒介一定是對內進行虛假新聞傳送的主力戰場。
+[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
 
-**中共社交媒體**
-此外，人們獲取新聞的模式，很多已經從傳統媒介，轉移到了社交平臺。
-根據之前墨卡托中國研究所的一集播客節目中1，香港大學新聞及傳媒研究中心的傅景華副教授所說，中共對於全球行的信息傳播影響成為信息控制3.0版本。他說“中國政府對於信息的審查，已經演化到了不同的狀態。我不使用‘審查’這個字眼；我認為，（中共的）方式時360度的無死角信息控制。”
-傅景華教授從2011年開始致力於研究中共對於微博的信息審查模式。傅教授開展的研究項目名為“微博審查範圍”，從微博網站上讀取數據，追蹤被政府抹去的信息，以用來研究中共對於信息的審查模式。
-後續在2018年，他又開展了一項名為“微信審查範圍”的研究項目，試圖獲取更為全面的中共控制信息的目標和模式。
-通過他獲取的數據，傅教授認為中共控制信息的策略遠遠不是審查這麽簡單，而是操控輿論。 其中一個例子就是虛假的熱搜榜。此外，中共政府官員還開始了對與一些“軟問題”進行幹預，例如嘻哈風格，音樂和娛樂段子等，這些以前是沒有的，而是近期出現的。
-傅教授說“無論信息內容是什麽，他們都要對這些信息完全掌控。”
+[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
 
-**海外傳統電視和報紙媒體**
-通過媒體研究中心（Media Research Center）的研究報告2，從1月17日到3月13日，美國的傳統電視主流媒體在播放關於CCP病毒的634分鐘內，僅僅只有3分鐘14秒使用了責備中共的口吻。20%的報告引用了中共的數據，而其中超過97%的人沒有質疑過這些數據的真實性。在過去幾十年間中共對於大外宣重金投資，歷經此次全球瘟疫時，在傳統媒體傳播上似乎得到了回報。
-一些大型的報紙，例如華盛頓郵報（Washington Post）和金融時代（Financial Times）為中共刊登付費廣告。
-此前經過《每日提醒》（Daily Caller）的調查發現，位於英國倫敦的《每日郵報》（Daily Mail）從2015年就開始直接分享中共《人民日報》的信息，而這次中共主導的全球大瘟疫中，《每日郵報》也變成了中共的傳聲筒，為中共站臺。
-在臺灣地區，根據《臺灣新聞》報道3，中共在臺灣出自在五個新聞媒體上刊登宣傳中共正面形象的新聞。而此舉導致在2019年6月份，上萬臺灣人聚集示威，以表達對與親共“紅色媒體”的不滿。
+[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
 
-**海外社交平臺**
-自從CCP病毒在全球肆虐以來，中共就利用社交媒體對病毒的來源對美國進行抹黑。中共的外交部發言人趙立堅於2020年3月12日發推說“有可能是美國的軍人將病毒帶到了武漢市…”。此推文一出，引起社會的廣泛關註。
-守衛民主聯盟（Alliance for Securing Democracy）所使用工具“漢密爾頓2.0”對中國政府的推特賬戶以及推文進行匯總，收集的信息顯示，自四月份以來，中共利用200多個中共控制的推特賬戶發布了超過9萬條信息。
-根據守衛民主聯盟的研究員布萊特雪夫的調查，中共四月份的推特賬戶數量比一月份漲了3倍，社交媒體的總量漲了2倍，推特成為中共傳播虛假信息的新高地。
+[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
 
-中共利用社交媒體對世界，包括美國，進行信息戰，已經是擺在所有人面前的事實。中國政府公開招標的公告去年在網絡上均有流傳，其中政府斥資近123萬人民幣招標推特賬戶的推廣活動。
+[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
 
-在2019年3月份，網絡安全研究公司《記錄未來》（Recorded Future）發布一份調查報告4，將中共進行虛假新聞和大外宣活動進行了剖析。此項研究表明，“至少在現在，北京當局對與社交平臺施加影響，試圖將中共描繪稱為一個世界活動的積極參與者，並為中共進行正面宣傳以在例如貿易談判中獲取更大利益。”
-而針對爆料革命的社交賬戶，中共則通過利益輸送，或者使用社交平通的漏洞對反共的賬戶進行定點清除，例如經常曝光中共內部信息的DT挖掘機以及零對沖的賬戶。
-
-除此之外，針對爆料革命64宣言，中共將會使用黑客對與G-TV的直接網絡攻擊，這種情況在最近已經出現多次。此前，偽爆料革命支持者，張偉和“螃蟹”，利用G-TV後門，對平臺上的圖片進行修改，使查看錄播的觀眾看到巨大的反爆料革命的字樣。
-
-**總結**
-因此，中共在針對64宣言的“清網行動”，將會是所有以往措施的綜合體。對內，中共將會利用傳統媒介對中央新聞的觀眾進行洗腦喊話，而在社交媒體上，會360度無死角的審查和操控輿論，導致中國內地的人民無法收看關於爆料革命的信息，甚至對一些爆料革命的支持者進行抓鋪和恐嚇。而對外，中共將延續之前的策略，重金收買海外的傳統媒體，用於為中共發聲。而在海外社交媒體上，中共將會利用其培養的網絡代言人或者利用虛假機器人賬戶發聲，讓假信息充斥社交平臺； 對與一些特定的反共賬戶，中共可能會進行收買，恐嚇或者定點清除；對與G-TV則會進行直接黑客網絡攻擊。利用華盛頓的說客為其遊說也將是其中一環。除此之外，中共還會使用其他什麽方式呢？我們拭目以待。
-
-資料：
-
-1. https://www.poynter.org/reporting-editing/2019/what-do-we-really-know-about-the-chinese-misinformation-machine/
-2. https://www.newsbusters.org/blogs/nb/rich-noyes/2020/03/23/study-china-escapes-scrutiny-tvs-coronavirus-coverage
-3. https://www.taiwannews.com.tw/en/news/3761222
-4. https://www.recordedfuture.com/china-social-media-operations/
-
+[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
 
 
 

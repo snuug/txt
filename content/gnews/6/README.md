@@ -1,25 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-26 23:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/213644/)
+## 郭文貴先生：40億美元的維穩行動
+`2020-05-27 00:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/213663/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234125/English_0525_CCP_Virus_Updates.pdf)
-
-[French\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234131/French0525_CCP_Virus_Updates.pdf)
-
-[German\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234136/German_0525_CCP_Virus_Updates_.pdf)
-
-[Japanese\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234142/Japanese0525_CCP_Virus_Updates.pdf)
-
-[Korean\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234147/Korean0525_CCP_Virus_Updates.pdf)
-
-[Russian\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234154/Russian_0525_CCP_Virus_Updates.pdf)
-
-[Spanish\_0525\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/26234159/Spanish0525_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+By GM64
 
 
+
+中共以往每年的6月4日要花3億美元進行全國維穩，60年大慶或者70年大慶大概花5億美元海內外的維穩費用，最多是不會超過10億美元的。但是2020年的6月4日撥款40億美元進行海內外維穩，主要就是嚴防海內外在六四前後，趁中共病毒之危和國際上的反華勢力進行結合，並特別要防止在社交媒體上的情報錯判導致國內大動蕩。40億美元中一半用於海外，一半用於國內。其次要將香港、臺灣、美國紐約的爆料革命行動控制在一定範圍內，意思就是要阻撓戰友們在6月4號直播，想要直播的話要準備多個wifi。現在黑wifi的技術十分容易，戰友們做好多次斷播的準備。
 
 0
