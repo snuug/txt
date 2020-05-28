@@ -12,6 +12,12 @@
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版：5月25日郭先生GTV直播](/content/2020/05/20200528-6916942439704303274.md)
+
+[文字版:郭先生5月23日GTV第二次直播](/content/2020/05/20200528-1016481976863648605.md)
+
+[文字版:5月23日郭先生第一次GTV直播](/content/2020/05/20200528-4447173668011122398.md)
+
 [文字版:郭先生5月22日GTV直播](/content/2020/05/20200525-8248369863817556998.md)
 
 [文字版:郭先生5月21日GTV直播](/content/2020/05/20200525-8500785424702761303.md)
@@ -55,12 +61,6 @@
 [文字版:2020年4月28日郭先生GTV直播](/content/2020/05/20200502-1137245394833329218.md)
 
 [文字版：2020年4月27日郭先生GTV直播](/content/2020/05/20200502-6467348940863168493.md)
-
-[文字版：2020年4月23日郭先生GTV直播](/content/2020/04/20200427-7105885845281106075.md)
-
-[文字版:2020年4月22郭文贵先生GTV直播](/content/2020/04/20200424-2443423908182231640.md)
-
-[文字版：2020年4月19日郭先生GTV直播](/content/2020/04/20200423-2216881106964005874.md)
 
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
