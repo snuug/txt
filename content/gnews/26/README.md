@@ -1,63 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：本週結束前會有關於中國的重磅事情公佈
-`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
+## 在蓬佩奧稱會影響以美關系後，以色列拒絕了價值15億美元的中共國海水淡化廠項目
+`2020-05-27 11:32 GM30` [轉載自GNews](https://gnews.org/zh-hant/214459/)
 
-视频短标题：
-关于中国的重磅事情将要公布
+**編譯：清風先生**
 
-翻译【木木】总结/校对【Michelle】字幕【盘古开天】
+以色列政府于周二宣布，IDE科技公司（以色列海水淡化公司）已經獲得了價值15億美元的合同，用于建造世界上最大的海水淡化廠，擊敗了來自中共國的CK和記黃埔集團有限公司。據報道，在美國務卿邁克·蓬佩奧（Mike Pompeo）反對中共國參與以色列基礎設施建設的幾周後，以色列政府發布了該項公告。
 
-来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27112733/111.jpg)
 
-总结：
+蓬佩奧在5月中旬訪問以色列期間，于接受公共廣播電視頻道“Kan 11”節目的采訪時說：“我們不希望中國共産黨能夠使用以色列的基礎設施，以色列的通信系統以及其他任何東西，這將使以色列公民面臨風險，反過來，也使美國有能力與以色列一起在具有安全隱患的重要項目上進行合作。”
 
-在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
+蓬佩奧補充說：“我們認爲這些風險是真實存在的，因此我們與他們分享了有關信息，以便他們可以自己做出明智的決定。”
 
-关键字：
-白宮，川普總統，香港
+根據《南華早報》的報道，IDE科技公司將于2023年之前建成一個名爲“Sorek 2”的海水淡化廠，預計該海水淡化廠每年將轉換約2億立方米的可飲用水。
 
-简介：
-川普：本週結束前會有關於中國的重磅事情公佈
+海水淡化廠將位于特拉維夫以南，靠近索雷克核研究中心和帕拉姆奇空軍基地。
 
-Mr. President
-总统先生
+據報道，能源部長尤瓦爾·斯坦尼茨（Yuval Steinitz）淡化了美國對以色列不批准CK和記黃埔集團有限公司的決定所造成的影響，並告訴“Kan 11”節目：“在我看來，這家工廠沒有把美國的利益放在第一位。”
 
-There is a bill in congress that would
-国会中有一项法案
+他還說，這個報價爲以色列節省了最多的錢。
 
-that’s related to the Uighurs
-将与维吾尔有关
+據《耶路撒冷郵報》報道，IDE 科技公司的技術將比以色列目前的海水淡化價格便宜約每立方米0.65謝克爾（約19美分）。
 
-It passed the senate
-它在参议院通过了
+蓬佩奧說：“我認爲全世界已經看到了這一點，並看到了中國共産黨如何欺騙世界。”蓬佩奧在敘述中共國對冠狀病毒的最初反應時告訴“Kan 11”節目。
 
-It’s gonna be up in the house
-它会提交到白宫
+“並且你會看到……你會從獨裁政權中得到什麽樣的結果，這意味著世界上的民主國家（例如以色列和美國）有義務繼續保持密切合作。”
 
-Are you willing to sign that?
-您会签署吗？
-
-We’re taking a look at it very strongly
-我们正在认真研究它
-
-They are going to report it this afternoon
-将在今天下午进行报告
-
-…something special that you mentioned on China
-关于中国您提到的一些特别的事
-
-Do that include sanctions or the …
-是否包括制裁措施或…
-
-Something you are gonna to hear about
-您会听到一些有关此内容的信息
-
-over the next, before the end of the week
-在下周末之前
-
-Very powerfully, I think.
-我认为会非常重磅
+來源：[美國福克斯新聞網](https://www.foxnews.com/world/israel-rejects-chinese-water-plant-pompeo)
 
 0
