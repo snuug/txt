@@ -1,63 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：本週結束前會有關於中國的重磅事情公佈
-`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
+## 奧布萊恩：美國將率先研製出中共病毒疫苗
+`2020-05-27 08:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214243/)
 
-视频短标题：
-关于中国的重磅事情将要公布
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27081738/1-113-56.png)
+《大紀元》援引了5月25日CBC新聞「Face The Nation」的採訪，其中美國國家安全部顧問羅伯特.奧布萊恩（Robert O』Brien ）指出， 美國將領先於任何一個國家研製出對抗中共病毒的疫苗。他說：「我們在治療方案和疫苗研發方面進展非常迅速。我們將提供給美國人民使用。正如川普總統所說，如果我們有疫苗，我們也將分享給全世界。」他補充說，中共黑客一直試圖通過間諜行動竊取美國疫苗研究的關鍵信息，儘管如此，美國研究人員仍在加緊研發治療方案和疫苗。
 
-翻译【木木】总结/校对【Michelle】字幕【盘古开天】
+通常研發一種疫苗需要5到15年的時間。現在科學家們正與時間賽跑，希望在不到一年的時間裡研發出對抗中共病毒的疫苗。截至5月24日，已經有10種疫苗進入人體試驗，其中幾種是在美國進行。目前看來來自馬薩諸塞州的Moderna公司研發的以RNA為基礎的疫苗，以及由英國研究人員在普通感冒病毒弱化版本基礎上研製的名為AZD1222的疫苗有領先優勢。
 
-来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
+數十種其它的疫苗還處於研發的不同階段，包括在動物身上進行測試。作為美國政府「神速行動」（Operation Warp Speed）項目的一部分， 將有12種疫苗的研發獲得美國大力支持。該項目旨在加速候選疫苗的研發。
 
-总结：
+邦衛生官員最近與一家有生產AZD1222疫苗資質的公司達成一項交易。最早到10月份，將有數以百萬計的疫苗運送到美國。為此，美國政府將提供高達12億美元的資金來支持這個項目。
 
-在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
+新任命的「疫苗沙皇」 蒙塞夫.斯勞伊(Moncef Slaoui)博士說， Moderna疫苗的試驗取得了積極的成果，他有信心年底之前生產出數以百萬計的疫苗。川普總統也表達了對此目標的信心。
 
-关键字：
-白宮，川普總統，香港
+[新聞來源](https://www.theepochtimes.com/america-will-develop-a-ccp-virus-vaccine-first-top-us-official-says_3363604.html)
 
-简介：
-川普：本週結束前會有關於中國的重磅事情公佈
+翻譯報道： 喜馬拉雅
 
-Mr. President
-总统先生
 
-There is a bill in congress that would
-国会中有一项法案
-
-that’s related to the Uighurs
-将与维吾尔有关
-
-It passed the senate
-它在参议院通过了
-
-It’s gonna be up in the house
-它会提交到白宫
-
-Are you willing to sign that?
-您会签署吗？
-
-We’re taking a look at it very strongly
-我们正在认真研究它
-
-They are going to report it this afternoon
-将在今天下午进行报告
-
-…something special that you mentioned on China
-关于中国您提到的一些特别的事
-
-Do that include sanctions or the …
-是否包括制裁措施或…
-
-Something you are gonna to hear about
-您会听到一些有关此内容的信息
-
-over the next, before the end of the week
-在下周末之前
-
-Very powerfully, I think.
-我认为会非常重磅
 
 0

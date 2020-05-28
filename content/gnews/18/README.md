@@ -1,63 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：本週結束前會有關於中國的重磅事情公佈
-`2020-05-27 08:01 GM67` [轉載自GNews](https://gnews.org/zh-hant/214227/)
+## 黎智英：我選擇留下來戰鬥
+`2020-05-27 08:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214246/)
 
-视频短标题：
-关于中国的重磅事情将要公布
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27082910/1-113-57.png)圖片來源：Sin Chew Daily
+香港媒體大亨黎智英（Jimmy Lai）周二在福克斯商業頻道的《與瑪麗亞的早晨》節目中表示，中共提出的針對香港的國家安全法意味著「媒體將死」，並表示像他這樣的抗議者可能會被捕並送往中共國接受審判。
 
-翻译【木木】总结/校对【Michelle】字幕【盘古开天】
+黎智英強調，「人們有兩個選擇，要麼選擇移民，要麼選擇留下來戰鬥，而我將留下來戰鬥，這個時候我已經不考慮自己的安全。」 他認為 川普總統可以通過對中共採取強硬態度，並確保美國不向中共出售技術產品，來幫助香港保持自主權。
 
-来源: President Trump Delivers Remarks on Protecting Seniors with Diabetes (May 26, 2020)
+黎智英在節目里說， 「美國有很多方法可以給中共施加壓力，在美國和全球範圍凍結（中共）官員貪污的財產和賬號，要求他們做出改變。中共向來在自己的國家內為所欲為，但是當他們與外界打交道時，他們必須遵守規則。」
 
-总结：
+他說，現在是美國對中共進行對抗的「好時機」，中共經濟處於「過去三十年來最糟糕」的弱勢地位，美國可以通過「改變自己的技術」來領導整個國家。
+黎智英認為，中共試圖利用CCP病毒世界性大危機徹底掌控香港，他們夢想著在沒有其他國家反應的情況下這樣做。 川普總統已經說過，」如果中共對香港強制實施國家安全法，將產生嚴重後果。」
 
-在川普總統5月26日關於保護老年糖尿病人的演講之後，一位記者在問川普總統是否會給中國製裁。川普總統回答：本週結束前會有關於中國的重磅事情公佈。
+黎智英說：「我希望川普總統能做到他所說的，總統一直都在做他所說的話。」 「我非常有信心美國政府將採取某些措施使我們擺脫這場危機。」
 
-关键字：
-白宮，川普總統，香港
+[新聞來源](https://www.foxbusiness.com/business-leaders/jimmy-lai-trump-china-tech-sales)
 
-简介：
-川普：本週結束前會有關於中國的重磅事情公佈
-
-Mr. President
-总统先生
-
-There is a bill in congress that would
-国会中有一项法案
-
-that’s related to the Uighurs
-将与维吾尔有关
-
-It passed the senate
-它在参议院通过了
-
-It’s gonna be up in the house
-它会提交到白宫
-
-Are you willing to sign that?
-您会签署吗？
-
-We’re taking a look at it very strongly
-我们正在认真研究它
-
-They are going to report it this afternoon
-将在今天下午进行报告
-
-…something special that you mentioned on China
-关于中国您提到的一些特别的事
-
-Do that include sanctions or the …
-是否包括制裁措施或…
-
-Something you are gonna to hear about
-您会听到一些有关此内容的信息
-
-over the next, before the end of the week
-在下周末之前
-
-Very powerfully, I think.
-我认为会非常重磅
+翻譯報道：Eddy
 
 0

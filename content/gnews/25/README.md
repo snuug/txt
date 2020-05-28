@@ -1,13 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “國歌法”二讀，香港的抗爭不會停息！“中共病毒疫情每日熱線”
-`2020-05-27 07:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/214170/)
+## 美即將出台捍衛香港自治權法律
+`2020-05-27 07:05 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/214177/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27065807/image0-146-42.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27070337/%E7%BE%8E%E5%8D%B3%E5%B0%86%E5%87%BA%E5%8F%B0%E6%8D%8D%E5%8D%AB%E9%A6%99%E6%B8%AF%E8%87%AA%E6%B2%BB%E6%9D%83%E6%B3%95%E5%BE%8B-1.jpg)
+香港電台網站近期就兩名美國參議員所提議的一項旨在捍衛香港自治權的法案進行了報道。
 
-**GTV鏈接：**[https://web.gtv1.org/?videoid=5ecd2fa737378219a6f5d1ae](https://web.gtv1.org/?videoid=5ecd2fa737378219a6f5d1ae)
+參議員帕特·圖密（Pat Toomey）和克里斯·范·霍倫（Chris Van Hollen）表示，中共正在加強對香港民主抗議活動的鎮壓，其剛通過的在香港實施國家安全立法的最新舉措旨在遏制民主抗爭。這兩位參議員提議通過一項《香港自治法》，該法案將對違反《中英聯合聲明》和《基本法》相關規定的經濟實體施行制裁。該法律還同時也會對與這些被制裁方有業務往來的銀行施加二級制裁。
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+記者問范·霍倫參議員是否會對像華為這樣的公司進行制裁。他回答說：“這項立法的目標是讓那些決定剝奪香港自治權的人受到制裁。我們要把真正的重點放在那兒。”
+
+圖密參議員表示，希望該立法能夠被儘快通過，並補充說，這項法案將對中國產生重大影響：“在可預見的將來，中共將非常非常依賴美元交易，因此，我們提議的這些制裁在很長一段時間內會發揮非常非常強大的影響。”
+
+[原文鏈接](https://news.rthk.hk/rthk/en/component/k2/1528508-20200527.htm)
+翻譯報道：佚名
 
 0
