@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共願采取激進策略“奪回臺灣”
-`2020-05-27 23:41 GM77` [轉載自GNews](https://gnews.org/zh-hant/215065/)
+## 香港反國歌法抗爭，老人小孩全城出動！“中共病毒疫情每日熱線”
+`2020-05-28 04:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/215469/)
 
-戰友之家新聞譯制組
-By GM64
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28043751/image0-146-44.jpg)
 
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ece87cb3cce3e2a58b2b24f](https://web.gtv1.org/?videoid=5ece87cb3cce3e2a58b2b24f)
 
-
-•中共的全國人民代表大會，一改傳統，去掉了為臺灣的和平統一而作出工作的表述。這個信號意味著臺灣局勢很緊張。
-•和平統一臺灣和習近平的權威一樣是很敏感的政治問題，所以這不是偶然的決定，是有預謀的。
-•對“奪回臺灣”中共從來沒有放棄過使用武力，通過刪除和平的表述，來改變政策的重心。
-•中共從鎮壓香港受到反抗中學習到不能對臺灣使用同樣的手段。現在香港和臺灣人民對中共野蠻欺淩的行為，反應非常強烈。
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

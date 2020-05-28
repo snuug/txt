@@ -1,23 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】26/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-27 22:55 GM77` [轉載自GNews](https://gnews.org/zh-hant/214942/)
+## 美國主流媒體像CCP的全資子公司。香港亞洲金融中心地位若不保，取而代之的不會是上海
+`2020-05-27 23:54 GM67` [轉載自GNews](https://gnews.org/zh-hant/215125/)
 
-戰友之家圖文摘要組及小語種組
+作者：功夫熊貓🐼**^**文竹**^**🐼            文字編輯：**flasher**
 
-[English\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224914/English_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224914/English_0526_CCP_Virus_Updates.pdf)
+《**2017**年中國國家情報法》第**7**條，該條要求包括每個學生在內的所有人都要依法提供支援、協助和配合國家情報工作。
 
-[French\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224922/French_0526_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224922/French_0526_CCP_Virus_Updates_-.pdf)
+**Roger Kimball**：**“**除了極少數例外，美國的媒體真的為中共做了貢獻，主流媒體簡直就像**CCP**的全資子公司。
 
-[German\_0526\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224927/German_0526__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224927/German_0526__CCP_Virus_Updates.pdf)
+美國國家安全顧問**O’****Brien**：**“**很難想像如果中國接管香港，香港將如何繼續成為亞洲金融中心**”**
 
-[Japanese\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224930/Japanese_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224930/Japanese_0526_CCP_Virus_Updates.pdf)
+奧巴馬時期兩次民主代表大會的前任代表為受迫害的中國人民淚目
 
-[Korean\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224937/Korean_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224937/Korean_0526_CCP_Virus_Updates.pdf)
+Jack分享了War Room 一個長期聽眾對於節目的回饋，這位聽眾是奧巴馬時期兩次民主代表大會的前任代表，這位前代表聽了“墮入地獄”專輯中大陸的中國人因宗教信仰受到中國共產黨的迫害、文化大革命等這些後，他流淚了，發資訊給Jack說他現在甚至覺得左派右派都不重要了。
 
-[Russian\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224941/Russian_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224941/Russian_0526_CCP_Virus_Updates.pdf)
+**War room**談週末美國的媒體的糟糕表現**Roger**：美主流媒體是**CCP**全資子公司
 
-[Spanish\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224944/Spanish_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224944/Spanish_0526_CCP_Virus_Updates.pdf)
+班農：香港在週末的媒體報導中很少被提到，他們正在忙著擊敗特朗普總統，什麼失業、到處打高爾夫這些。你幾乎聽不到任何關於中國的事情，中國共產黨、特別是香港，對嗎？
+
+Jason: “這個週末，CNN 關於國情咨文沒有談到任何關於香港的內容, ABC、 Fox News、克裡斯，華萊士也都沒有, CBS採訪了 O’Brien，依然沒有提及香港。
+
+班農：“這太不可思議了，美國總統的國家安全顧問，也是頭號人物，整個採訪竟然毫無關於中國的內容。”
+
+Jason:我要告訴你現在美國國家媒體界有多糟糕，聽這段只有幾秒鐘長的視頻，他們是如何報導這個週末來自中國的事實新聞的。”
+
+播放錄音“相比之下，在中國，昨天的新病例為零……”
+
+Jack:“關於650萬人（武漢9天650萬人次檢測）的非常有趣的事情，他們做的是批量測試，可以整棟公寓大樓的人一起測，他們把所有的樣本放在一個測試中，如果得出一個陽性結果，然後他們隔離整棟樓再重新做測試， 所以這實際上不是650萬次個人測試，這是一個典型的共產主義式的忽悠，試圖讓中共病毒看起來好像已經被控制住了。
+
+班農：“靠近俄羅斯的中國東北像當時武漢一樣，資訊被隔離，CCP趕走了所有的記者，也已經控制了所有的記者，甚至是主流媒體的記者。這就是問題所在，這就是為什麼像Roger Kimball這樣的人必須寫一篇文章，寫著：主流媒體像CCP的全資子公司。”
+
+“羅傑·金博爾，我認為他是知識份子中最重要的思想領袖之一，他是《新準則》的編輯和出版者，以及《相逢》的出版者。羅傑，你的文章《讓我們追責中國》的副標題是主流媒體是他們在中國共產黨的全資子公司，你知道把中國共產黨從中國人民中分離出來，現在你能告訴人們是什麼促使你寫它，文章說了什麼嗎？
+
+Roger：“除了極少數例外，美國的媒體真的為中共做了貢獻，不僅僅是媒體，我們的政治家也是如此，我的意思是，我看到卡馬拉·哈裡斯提出了一項決議，禁止我們將CCP病毒稱為中國病毒，我們給流行病起過這些名字：德國麻疹，埃博拉，我們也談論了洛磯山熱，等等。”
+
+所以這太荒謬了，這是一種政治正確性，因為中國已經如此徹底地滲透了美國的許多機構，不僅是媒體，還有我們的教育機構。我們有近40萬來自中國的學生，在不同的系裡監視我們…
+
+我想知道你們的聽眾是否知道《**2017**年中國國家情報法》第**7**條，該條要求包括每個學生在內的所有人都要依法提供支援、協助和配合國家情報工作。這就解釋了為什麼**FBI**目前正在調查超過**1000**起中國盜竊美國智慧財產權的案件，根據**FBI**調查局局長的說法，這一千起案件不僅僅是與國防相關的事情，包括從專有的大米和玉米種子到風力渦輪機軟體到高端醫療設備的一切產品，他估計這些東西的價格在**3000**到**6000**億美元之間。
+
+班農和Raheem表示《2017年中國國家情報法》第7條鮮為報導，請Roger做更多的介紹。
+
+Roger：“這條可以直接引用的法律，用穀歌搜索就會立刻出現。每個人都有義務協助和配合國家情報工作。所以只要想想，假設你是一個中國學生，你在這裡讀哈佛的天體物理學，你被要求支持助理配合國家情報工作，我碰巧認識一些在這裡的中國大學生和高中生。每隔幾周，他們就要去見他們的看護人，他們會告訴他們的看護人什麼呢？
+
+我們必須清醒，極權主義政權總是為了他們自己的目的使用和濫用民主自由，所以中國的羅傑斯從來都不是可靠的經濟夥伴，他們從來不守約， 他們從來不尊重私有財產。事實上他們一開始就通過他們的全資子公司即世界衛生組織喉舌，傳播冠狀病毒不會大範圍傳播的消息給其他人。這是非同尋常的，他們知道這是為什麼，例如在一月中旬，他們命令他們的領事館購買所有這些保護設備，他們知道這將是一個大問題。
+
+**Peter Morici**博士——西方如何面對中共的挑戰
+
+班農請到了馬里蘭大學史密斯商學院的 Peter Morici博士，班農表示他是一個經常出現在電視上的人，認為他至少是這種民族經濟主義的知識份子的建築師之一，他在思考如何將製造業的工作帶回美國。Morici博士在《市場觀察》上發表了一篇非常有影響力的文章，這篇文章說的是西方可以如何面對CCP巨大的挑戰（原文連結[https://www.marketwatch.com/story/how-the-west-can-overcome-the-chinese-juggernaut-2020-05-26?mod=peter-morici](https://www.marketwatch.com/story/how-the-west-can-overcome-the-chinese-juggernaut-2020-05-26?mod=peter-morici)）。
+
+Peter Morici博士主要觀點：
+
+CCP通過朝鮮向美國施加壓力，如果朝鮮願意，他們可以從那裡獲得核武器。諸如此類國家的清單還在繼續變長中，不管是對香港的滲透，還是在東歐利用“一帶一路”倡議，從本質上創造“附属国”，我們只需要認識到這一點，作為一個整體，而不是零敲碎打地處理它們，施加全面的壓力，而要做到這一點，我們需要盟友，美國無法獨自做到這一點。Morici博士認為歐洲盟友面對現實吧（重視自由和美國的友誼，他們將無法再從與俄羅斯和中國的生意中獲利，不能為共同的防禦做得太少）。
+
+CCP樹立了提供多邊主義競爭模式的路線，而不是融入美國領導的自由世界秩序，並對言論和互聯網實施了更嚴格的控制（Morici博士文章）。
+
+CCP正在加強對香港的控制，並煽動國內種族主義和仇外心理。生活在中國的非洲人被視為社交媒體上的動物，即使沒有表現出感染COVID-19的跡象，也被圍捕隔離。瀋陽的一家餐館展示了一條標語：“慶祝美國流行，並希望冠狀病毒到日本旅行愉快”。 鑒於北京嚴格審查互聯網和公眾言論，其對腐敗行為的容忍可以被視為中共教條的一種反語表達（Morici博士文章）。
+
+美國國家安全顧問**O’****Brien**：**“**很難想像如果中共接管香港，香港將如何繼續成為亞洲金融中心**”**
+
+一旦香港自貿區地位、亞洲金融中心地位被取消——班農認為：如果香港作為世界第三大資本市場關閉，那肯定是一件大事，班農表示取而代之的也不會是上海，當下甚至像Morici博士這樣的人都在談論12個航母戰鬥群和諸如此類的事情，如果美國想要避免一場動態戰爭，就必須站出來面對這些，自由民主國家也要聯合起來。
+
+談到巴西，班農說“CCP把巴西視為他們的糧倉，他們也不會容忍美國人給他們施壓，他們會把目光投向巴西，巴西絕對這個地緣政治棋盤上的中心國家。”
+
+編者按：從鎮壓香港訴求、疫情非人道應對的大事件，到海外滯留民眾回國這些小事件都很能看清楚CCP的邪惡貪婪、狂妄自大以及黑社會制度模式，CCP多存在一天，就會給中國以及世界帶來多一天的災難，而許多正義善良的中國人被綁架、被CCP強制代表，進而無法與世界建立誠信關係，會漸漸遭受自由文明世界越來越多的排斥。只有這種政治怪胎的消亡才能給中國帶來法治自由的社會環境。
 
 0

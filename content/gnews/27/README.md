@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年5月27日郭文貴先生直播摘要
-`2020-05-27 12:31 GM10` [轉載自GNews](https://gnews.org/zh-hant/214530/)
+## 龐培奧關於‘香港國家安全法提案’的聲明【全文】
+`2020-05-27 21:15 GM09` [轉載自GNews](https://gnews.org/zh-hant/214810/)
 
-**戰友之家摘要組**
+翻譯： 滅共老美（文瀚）
 
-00：00 今天穿紅衣，耍了一趟三腳架，碳纖維的
+PRC National People’s Congress Proposal on Hong Kong National Security Legislation
 
-03：40 今天很多事，臨時直播。六四宣言時間重申。紐約曼哈頓六月三號下午7點預播，8點正式開始，“沒啥人，沒啥了不起的節目”，建議大家一定看，畢竟是歷史時刻，共黨打壓已經瘋狂了。原來文貴直播的livestream也會再次啟用，還有法治基金的油管頻道，然後被授權的戰友們自己的頻道都授權直播，沒有問題。還有大家可以用的自己戰友頻道全線上。班農先生在華盛頓連線，“沒有什麽重要人物，重量級事情，沒有任何節目”。大家要沐浴更衣，正裝出席。形式簡單，沒啥節目但一定是世界關註的歷史偉大的事。
+中共全國人民代表大會關於香港國家安全立法的提案
 
-09:56 當時買G幣是通過strip，停的時候賬上已經11位了，很多戰友錢被打回去了，98-99%打回去了，還有十幾位數的錢，還有很多戰友被威脅，毆打，要求把錢要回來，還要寫郭文貴是騙子之類。這個有意思了，根據美國法律如果銀行明知對方是受到政治迫害，明知這個是假的，他們會賠死。如果G幣升值了，你能告死他。所有國內被退回去的錢，被警察威脅毆打的錢，可能都改變你的人生。G幣能否升值幾個月大家就知道了。
+PRESS STATEMENT
 
-12:11 買G幣，G-dollar的錢，你要拿回來他們解釋為啥不許投資。如果沒有解釋，你去索賠這個錢很大。
+新聞聲明
 
-12:52 關於投資。所有投資者被退回去的錢，包括日本受到威脅後退回去的，他們都是犯罪的。我們各地都有戰友，大家快聯合起來，然後法治基金會出訴訟費的基礎啟動費，大家聯合告這幾個銀行，你們可以授權那些主要戰友去代理你訴訟。這是戰友一生中最可能做百億富豪的機會，這個機會太大了。爆料革命授權各區代表，國內戰友可以授權你任何熟悉的人，法治基金提供你啟動的錢，律師一般都不要律師費，但是贏了要分成。這個是大事，馬上啟動。最大的是華美銀行，他們至少退了幾十億美金。這個可以把他們墳都挖出來。任何匯款單，記錄消失，還要收你手續費。剛才美國金融界最大律師，他說文貴你告訴我的事一半真實的話，這些人都發大財了。他們都是百億富豪了，華美銀行股東是黑石，黑方的都是共產黨的企業，他馬上查了一下這些股東居然沒有買股東保險，索賠沒有上限，大家馬上行動。
+MICHAEL R. POMPEO, SECRETARY OF STATE
 
-18:08 華美銀行股東幾千億美元，以這個平臺投資升值為標準，這個在美國索賠是沒有盡頭的。投資兩天前26號已經結束了。付過錢簽過約的都結束了。希望各地區喜馬拉雅負責任以此為契機，所有這次訴訟掙來的錢50%歸當地喜馬拉雅農場作為建設基金集體使用，另外30-40%歸個人。然後最後10%捐給公益事業，你們可以自己制定標準，和當地戰友商量。聽說Sara那邊幾百億被退回去的，100%你會拿到錢，至少具體多少的問題。有些戰友錢都收了，七天打回去然後還收了手續費，這個100%他們會輸，任何給你退回去錢的你盡管告，你肯定贏。各區負責戰友一定行動，要為大家負責任，爭利益。文貴聽了非常高興，天大的機會。準備訴訟，馬上立案。
+邁克·龐培澳，國務卿
 
-22:25 包括在香港中國銀行多次把錢拒付，說GTV是高風險，詐騙賬戶他們絕對輸，支付權，在美國是人權，除非他們證明是詐騙賬戶，否則馬上拿錢。你一輩子都花不完那些錢，這就是我們爆料革命，一切無限可能。文貴要去開視頻會了，祈福。
+MAY 27, 2020
 
-更多詳情點擊：[https://gtv.org/web/#/VideoPlay\_UI](https://gtv.org/web/#/VideoPlay_UI)
+2020年5月27日
 
+Last week, the People’s Republic of China (PRC) National People’s Congress announced its intention to unilaterally and arbitrarily impose national security legislation on Hong Kong. Beijing’s disastrous decision is only the latest in a series of actions that fundamentally undermine Hong Kong’s autonomy and freedoms and China’s own promises to the Hong Kong people under the Sino-British Joint Declaration, a UN-filed international treaty.
 
+上週，中華人民共和國全國人民代表大會宣布，打算單方面和任意地對香港實施國家安全立法。 北京的災難性決定只是一系列行動中從根本上破壞香港的自治和自由以及中共國自己在聯合國提交的國際條約《中英聯合聲明》中所承諾香港人民的最新一項。
+
+The State Department is required by the Hong Kong Policy Act to assess the autonomy of the territory from China. After careful study of developments over the reporting period, I certified to Congress today that Hong Kong does not continue to warrant treatment under United States laws in the same manner as U.S. laws were applied to Hong Kong before July 1997. No reasonable person can assert today that Hong Kong maintains a high degree of autonomy from China, given facts on the ground.
+
+美国《香港政策法》要求國務院評估中國治下的区域自治權。在仔細研究報告所述期間的事態發展之後，我今天向國會證明，香港不再繼續按照美國法律享有1997年7月之前對其實行的按美國法律所規定的同样待遇。鑑於當地事實，今天沒有任何有理性的人可以斷言香港能从中共國保持高度自治。
+
+Hong Kong and its dynamic, enterprising, and free people have flourished for decades as a bastion of liberty, and this decision gives me no pleasure. But sound policy making requires a recognition of reality. While the United States once hoped that free and prosperous Hong Kong would provide a model for authoritarian China, it is now clear that China is modeling Hong Kong after itself.
+
+香港及其富有活力，進取心和自由的人們作為自由之堡壘已繁榮了幾十年，這一決定使我沒有任何樂趣。但是紮實的政策制定需要承認現實。儘管美國曾經希望自由和繁榮的香港為獨裁的中國提供榜樣，但現在很明顯中國正在让香港模仿自己。
+
+The United States stands with the people of Hong Kong as they struggle against the CCP’s increasing denial of the autonomy that they were promised.
+
+当香港人民与中共日益否认他们自己所承诺的自治作斗争时，美国与香港人民站在一起。
 
 0
