@@ -1,23 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】26/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-27 22:55 GM77` [轉載自GNews](https://gnews.org/zh-hant/214942/)
+## 美國FOXNews連線臺灣外長吳釗燮先生
+`2020-05-27 23:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/215057/)
 
-戰友之家圖文摘要組及小語種組
+戰友之家新聞譯制組
+By GM64
 
-[English\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224914/English_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224914/English_0526_CCP_Virus_Updates.pdf)
 
-[French\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224922/French_0526_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224922/French_0526_CCP_Virus_Updates_-.pdf)
 
-[German\_0526\_\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224927/German_0526__CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224927/German_0526__CCP_Virus_Updates.pdf)
-
-[Japanese\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224930/Japanese_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224930/Japanese_0526_CCP_Virus_Updates.pdf)
-
-[Korean\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224937/Korean_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224937/Korean_0526_CCP_Virus_Updates.pdf)
-
-[Russian\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224941/Russian_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224941/Russian_0526_CCP_Virus_Updates.pdf)
-
-[Spanish\_0526\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224944/Spanish_0526_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/27224944/Spanish_0526_CCP_Virus_Updates.pdf)
+•臺灣外長吳釗燮先生十分尊重美國為保護香港的自由民主對中共采取一系列的制裁手段。
+•臺灣方面也一直在告誡中共不要忘記三十年前的承諾。香港的自由與民主應得到尊重，臺灣會竭盡全力維護香港的和平與繁榮。
+•中共當局趁全世界都在疲於應對疫情時，試圖擴張勢力範圍。並在全球多個地區采取行動。例如在南中國海中共似乎在加速南中國海的軍事化行動；在東中國海區向臺灣施壓，尤其是限制西方世界國家與臺灣交往；當然還有中共用《新國安法》淩駕於香港立法之上的行為。
+•當前中共政府面臨來自內部的危機，認為臺灣是解除危機的完美替罪羊，但臺灣不希望中共當局認為臺灣很脆弱，是可以用軍事手段在短期內被征服的。因此現在臺灣正在尋求美國以及世界各國在外交領域的支持，並同時提高自己的防務能力，以震懾中共當局。
 
 0
