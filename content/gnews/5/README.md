@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年5月27日CCP冠狀病毒大流行第124集
-`2020-05-27 23:45 GM30` [轉載自GNews](https://gnews.org/zh-hant/215075/)
+## 香港反國歌法抗爭，老人小孩全城出動！“中共病毒疫情每日熱線”
+`2020-05-28 04:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/215469/)
 
-中共兩會奇葩提案；中共宣傳繼續在國內帶風向，暗指美國放毒；賣港賊支持“港區國安法”；請記住這些香港的英雄，香港一定會贏；懂得感恩，不要忘記爆料革命…
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28043751/image0-146-44.jpg)
 
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ece87cb3cce3e2a58b2b24f](https://web.gtv1.org/?videoid=5ece87cb3cce3e2a58b2b24f)
 
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
