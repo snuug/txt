@@ -1,30 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從【港版國安法】的通過評論來看中共教育的“邪惡培植”！
-`2020-05-28 22:47 GM30` [轉載自GNews](https://gnews.org/zh-hant/216152/)
+## 【重磅】美國、澳大利亞、加拿大和英國就香港問題發表聯合聲明
+`2020-05-29 03:30 GM31` [轉載自GNews](https://gnews.org/zh-hant/216347/)
 
-**作者：滅共日記**
+5月28日，美國政府在在國務院網站上發佈了由美國、澳大利亞、加拿大和英國對香港問題的聯合聲明，該聲明指出：
 
-5月28日，十三屆全國人大三次會議以高票表決通過《全國人民代表大會關于建立健全香港特別行政區維護國家安全的法律制度和執行機制的決定》。裏面一部分的內容是：決定明確規定維護國家主權、統一和領土完整是香港特別行政區的憲制責任；強調香港特別行政區應當盡早完成香港基本法規定的維護國家安全立法，香港特別行政區行政機關、立法機關、司法機關應當依據有關法律規定有效防範、制止和懲治危害國家安全的行爲和活動。決定明確規定香港特別行政區應當建立健全維護國家安全的機構和執行機制；中央人民政府維護國家安全的有關機關根據需要在香港特別行政區設立機構，依法履行維護國家安全相關職責。這就是要告訴香港同胞我們堅決支持一國兩制，港人治港，高度自治，治不了，中央來治！這法案完全體現出了中共的一黨專政、徹底鏟除言論自由和異見人士，絕對獨裁權以及對民主制度的仇恨。
+“中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28223513/1-131-59.jpg)
+聯合聲明全文如下：
 
-再看看牆內的網友對這件事情的評論，什麽法案通過了，我們要開香槟慶祝；下一個月，定台灣，統一中國，恢複中華；鏟除廢青，港獨；這一條條評論真是讓我無法理解，對于牆內大部分的年輕人來說偶爾越過防火牆應該不是一件特別難的事情，難道他們看不到中共是怎麽對待香港的同胞的嗎？在這樣的環境下，我很難想象爲什麽他們會對周遭的種種不合理比如中共在牆內聲稱民主國家實際卻是獨裁政體，比如中共說的一國兩制背後卻在殘害香港同胞，再比如這莫名其妙的防火牆的存在，難道這些也會感到理所應當嗎？爲什麽有些年輕人明明有能力接觸到一些未被粉飾過的信息，卻不願相信真相，並且依然擁護中共幫中共洗地呢？我身邊有太多的朋友只要我說出一些中共不好的話，馬上就會和我激烈的辯論，還有一些對西方民主制度的不信任，總是認爲我沒感到中國比別的國家差，再就是美帝國主義亡我之心不死的論調來爲中共洗地，並且是心甘情願的洗地。連聽真話，戳穿謊言的勇氣都沒有，這到底怎麽了？
+### **Joint Statement on Hong Kong 關於香港問題的聯合聲明**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28223611/2-98-43.jpg)
+The text of the following statement was released by the Governments of the United States of America, Australia, Canada, and the United Kingdom.
 
-我覺得這和中共的教育有不可分割的關系，在中共國所謂的教育只是高等培植，年輕人根本不具備批判性思維和獨立思考的能力，其實生活中有很多事情都是很荒謬的，可是大家都不以爲然，因爲在中共眼裏，他們並不需要有創新，會反思，能批判的年輕人，他們需要的只是解題工具而已。就是在這種長時間教育、文化等信息單一的環境中熏陶長大，導致這一代的年輕人思維習慣已潛移默化的被徹底洗腦，一旦聽到批評質疑的聲音，潛意識裏就會産生極度排斥、不適應、抗拒畏懼心理，爲了安慰自己，讓自己好受點，甯願選擇逃避自欺欺人，也不願意面對真相！
+以下聲明文本由美利堅合眾國、澳大利亞、加拿大和英國政府聯合發表。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28223641/3-94-58.jpg)
+Begin Text:
 
-中共的這套洗腦系統，不僅是灌輸內容，還有思維方式。而這早就滲透進了幼兒園、小學。政治教育伴隨孩子的整個成長過程，加上家人的親共態度，整個社會文化熔爐的浸染，可以毫不誇張的說，只要從小在中共國長大，就幾乎不可避免被洗腦。只有家人本身非常清醒，在孩子成長過程中有目標的教孩子分清是非，否則無一幸免。而這種家庭在中共國真的太少太少了。
+正文：
 
-GNEWS之前文章：
-爲何中共國頻發弑母案？ [https://gnews.org/zh-hans/215471/](https://gnews.org/zh-hans/215471/)
-孟晚舟即將迎來命運的關鍵審判！[https://gnews.org/zh-hans/214362/](https://gnews.org/zh-hans/214362/)
-今天你還在看抖音嗎？ [https://gnews.org/zh-hans/214336/](https://gnews.org/zh-hans/214336/)
+Signatories to this statement reiterate our deep concern regarding Beijing’s decision to impose a national security law in Hong Kong.
 
-（文章內容僅代表作者觀點）
+本聲明的簽署方重申我們對北京決定在香港實施國家安全法的深度關切。
+
+Hong Kong has flourished as a bastion of freedom. The international community has a significant and long-standing stake in Hong Kong’s prosperity and stability. Direct imposition of national security legislation on Hong Kong by the Beijing authorities, rather than through Hong Kong’s own institutions as provided for under Article 23 of the Basic Law, would curtail the Hong Kong people’s liberties, and in doing so, dramatically erode Hong Kong’s autonomy and the system that made it so prosperous.
+
+香港的繁榮昌盛源自于其為自由的堡壘。香港的繁榮穩定與國際社會的發展長期以來息息相關。北京當局在香港直接實施國家安全立法，而不是根據《基本法》的第二十三條，通過香港自己的機構來提供，將會限制香港人的自由，並在這一過程中，極大地侵蝕香港的高度自治和使其繁榮的系統。
+
+China’s decision to impose a new national security law on Hong Kong lies in direct conflict with its international obligations under the principles of the legally-binding, UN-registered Sino-British Joint Declaration. The proposed law would undermine the One Country, Two Systems framework. It also raises the prospect of prosecution in Hong Kong for political crimes, and undermines existing commitments to protect the rights of Hong Kong people – including those set out in the International Covenant on Civil and Political Rights and the International Covenant on Economic, Social and Cultural Rights.
+
+中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。
+
+We are also extremely concerned that this action will exacerbate the existing deep divisions in Hong Kong society; the law does nothing to build mutual understanding and foster reconciliation within Hong Kong. Rebuilding trust across Hong Kong society by allowing the people of Hong Kong to enjoy the rights and freedoms they were promised can be the only way back from the tensions and unrest that the territory has seen over the last year.
+
+我們也極度擔心這一法案將加劇香港社會已有的深層分歧；這項法律無助于增進香港內部的相互理解和促進和解。通過允許香港人民享受他們曾被許諾的權利和自由，來使整個香港社會重建信任，這可能是香港從過去一年的緊張和動盪中恢復的唯一途徑。
+
+The world’s focus on a global pandemic requires enhanced trust in governments and international cooperation. Beijing’s unprecedented move risks having the opposite effect.
+
+世界對全球大流行病的關注要求增強對政府的信任和國際間的合作，北京當局前所未有的舉措可能會產生相反的效果。
+
+As Hong Kong’s stability and prosperity are jeopardized by the new imposition, we call on the Government of China to work with the Hong Kong SAR Government and the people of Hong Kong to find a mutually acceptable accommodation that will honor China’s international obligations under the UN-filed Sino-British Joint Declaration.
+
+鑒於新法規的實施將危害香港的繁榮穩定，我們呼籲中國政府與香港特別行政區政府和香港人民共同努力，找到相互都能接受的空間，以便中國能在聯合國承認的《中英聯合聲明》的制約下履行其國際義務。
+
+出處： [Joint Statement on Hong Kong](https://www.state.gov/joint-statement-on-hong-kong/)
+
+*翻譯：【Michelle】【豆小豆】*
 
 0
