@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮新聞發言人列舉推特侵犯言論自由的事實
-`2020-05-28 21:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/216070/)
+## 【世界多語言圖文】27/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-28 23:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/216213/)
 
-在[5月28日的發布會](https://www.youtube.com/watch?v=_RYyO-mcPyc)上，白宮發言人Kayleigh McEnany悉數推特和其它社交媒體平台，利用自己的偏見，包庇想包庇的人，攻擊想攻擊的人，使美國人失去了真正的言論自由，並表示這是總統不能接受的。她講到：“他們為中共國共產黨創建了一個搜尋引擎，將搜索人權列入黑名單，並允許輕鬆監控臉書和推特都接受了有償廣告，散佈有關中共國大規模監禁宗教少數民族的虛假資訊，推特還允許中共國官員利用其平台傳播有關冠狀病毒、破壞香港支持民主的抗議活動，等更多錯誤信息。”
+戰友之家圖文摘要組及小語種組
 
-翻譯：【豆小豆】 校對：【Michelle】字幕：【豆小豆】
+[English\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)
+
+[French\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)
+
+[Japanese\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)
+
+[Korean\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)
+
+[Russian\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)
+
+[Spanish\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)
+
+
 
 0

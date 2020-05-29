@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】27/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-28 23:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/216213/)
+## 香港！香港！不是國安法，而是共安法！
+`2020-05-29 01:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/216310/)
 
-戰友之家圖文摘要組及小語種組
+**作者：LMD**
 
-[English\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)
+5月28日，中共全國人大以2878票同意，1票反對，通過港版國安法，該法的通過，宣告一國兩制從法律上終結，宣告中英聯合聲明的作廢。換言之，此後，中共將在香港可以爲所欲爲，要抓誰就能抓誰，要沒收誰的資産就可以沒收誰的資産，香港將從法治社會倒退爲1人治社會，一切都沒有保障，一切都是中共說了算，不要說香港人民沒有法律保障，連在香港的外資、16家台資銀行的香港分行、台商存放在香港的錢一樣會失去保障。
 
-[French\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)
+那麽，中共爲什麽要制定港版國安法？難道中共不怕美國的制裁嗎？這當中唯一的考慮就是中共政權的穩定。
 
-[Japanese\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29013829/image0-146-54.jpg)
 
-[Korean\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)
+首先，中共不允許香港産生燈塔效應。如果香港人有自由，那中國內地的人爲什麽沒有自由？一旦內地的中國人也想要有自由，那麽，中共的政權就危險了。因此，必須盡早剝奪香港人的自由，讓所有的中國人都沒有自由，這樣，中共就安全了。因此，所謂的「國安法」，其實不是國家安全法，而是共産黨安全保障法。之所以能稱爲國安法，只不過是因爲共産黨綁架了十四億中國人罷了。
 
-[Russian\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)
+其次，務必要讓香港人聽話。香港的人權、自由、民主、法治本身就是一面照妖鏡，照出中共的極權、殘暴和無恥。爲此，中共無時不刻不想毀掉這面照妖鏡，因此早在2002年中共就打算立基本法第23條，只是當時被擋下來。
 
-[Spanish\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)
+第三、爲洗腦提供法律依據：要讓香港人聽話，就必須給香港人洗腦。要能給香港人洗腦，首先就是要訂定國家安全法，訂了國家安全法之後，香港就沒有人敢再批評中共，如此一來，中共就安全了。而一旦洗腦成功之後，香港人就跟現在的中國內地人一樣可悲，成了可以任人擺布、隨時可以宰殺的羔羊，不僅不懂得反抗，還會自動自發的上前線，還說「我光榮」，這就是中共最厲害的洗腦術。
 
+第四、爲了搜刮香港人的財富。中共是實施共産主義的政權。既然是共産主義，那就沒有私人財産這個概念，那麽，香港人民的財富也就成了中共黨首的財富。在制定港版國安法之後，掠奪香港人的財富就變得更容易、更有法律依據了。根據瑞信的全球財富報告，香港是全世界人均第二富有的經濟體，2018年，香港總財富規模達到15兆美元，這些錢要是能沒收，就跟當初沒收中國地主的土地和財富一樣，那就是對目前阮囊羞澀的中共財政最好的禮物。
 
+在香港被中共並吞之後，接下來就是台灣了。因此，台灣外交部長吳钊燮說，「中共下一步可能對台動武」。這是八九不離十，我們一定要做好抵抗的准備。
+
+（文章內容僅代表作者觀點）
 
 0

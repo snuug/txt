@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柯林斯：將立法追查中共高官的資產
-`2020-05-28 17:42 GM65` [轉載自GNews](https://gnews.org/zh-hant/215912/)
+## 又紅又專李飛飛，推特怎能不“赤”化？
+`2020-05-28 21:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/216099/)
 
-翻譯：Athena 字幕：奔騰的長江
+製作：【上天造 滅疫組】
 
 0
