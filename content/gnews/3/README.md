@@ -1,51 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】美國、澳大利亞、加拿大和英國就香港問題發表聯合聲明
-`2020-05-29 03:30 GM31` [轉載自GNews](https://gnews.org/zh-hant/216347/)
+## 丹麥報紙揭露法國與中共國在病毒研究領域的合作過程和病毒大爆發前後的兩國關係變化
+`2020-05-29 08:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/216442/)
 
-5月28日，美國政府在在國務院網站上發佈了由美國、澳大利亞、加拿大和英國對香港問題的聯合聲明，該聲明指出：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29081114/%E6%B3%95%E5%9B%BD%E5%89%8D%E6%80%BB%E7%90%86%E8%AE%A9-%E7%9A%AE%E5%9F%83%E5%B0%94%C2%B7%E6%8B%89%E6%B3%95%E5%85%B0.jpg)
+丹麥最大報紙《日德蘭郵報》駐法國和俄羅斯資深記者約爾根·烏勒魯普（JØRGEN ULLERUP）在5月6號發表文章，深度揭露法國對中共國進行病毒實驗提供實驗室和技術支持的過程。
 
-“中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。”
+據該名記者的報道，在法國，中共病毒的起源是一個特別敏感的問題，因為法國公司將該技術提供給了世界上最先進的所謂的P4實驗室之一，法國與中共國的合作始於2004年SARS病毒爆發後，該病毒在亞洲造成800人死亡，這之後法國對中國生物學家進行培訓。 前總統雅克·希拉克（Jacques Chirac）及其親中國總理讓·皮埃爾·拉法林（Jean-Pierre Raffarin）背棄了美國和法國將軍的警告，同意向中國提供先進技術。其合作的理由是開發針對這些疾病的疫苗。
 
-聯合聲明全文如下：
+除了安全的存儲世界上最危險的病毒的P4實驗室外，根據協議，法國還應該提供四個移動性和複雜程度較低的P3實驗室。雙方同意兩國將分享所有研究成果。將有50名法國專家被派往武漢。武漢已經有許多法國分支機構，甚至武漢被認為是中國最法國化的城市。大約40％的法國投資流向武漢。在該城的100多家工廠及法國公司中，包括PSA，Eurocopter，歐萊雅和Pernod-Ricard。
+但是這個協議並未得到遵守，甚至自2017年2月以來，只有一位法國生物學家在實驗室工作。 評論家稱，中國擁有一個實驗室，該實驗室也可用於研發生物武器。法國一無所獲。法國國際關係學院（IFRI）中國專家馬克·朱利安（Marc Julienne）認為，這是典型的中國戰略。中共國承諾雙方將進行富有成效的雙贏合作，但隨後將合作夥伴趕出並接管。
 
-### **Joint Statement on Hong Kong 關於香港問題的聯合聲明**
+他告訴《日德蘭郵報》：“中共病毒將加劇長期以來對中共國的不信任和懷疑。我相信在未來法國以及整個歐洲可能都不願與中共國開展技術合作。”歐盟外交部長約瑟夫·博雷爾（Josep Borrell）承認我們對中國過於天真。
 
-The text of the following statement was released by the Governments of the United States of America, Australia, Canada, and the United Kingdom.
+法國記者安托萬·伊桑巴德（Antoine Izambard）在他的《中法，危險關係》一書中，描述了法國在武漢如何被騙。根據對140名外交官和研究人員的採訪，他發現法國在與中國在核能，高鐵，航空和生物領域的合作方面很少獲勝。
 
-以下聲明文本由美利堅合眾國、澳大利亞、加拿大和英國政府聯合發表。
+在中共病毒危機爆發之初，中國因其處理方式受到法國的稱讚。今年2月，法國向武漢提供了17噸醫療援助，其中包括56萬個口罩，一個月後，法國又提供了100萬歐元的援助物資。（但是隨後，美國眾議員馬克·格林在接受福克斯新聞採訪時爆料：習近平借馬克龍向他求救買口罩的時機竟然開出讓華為參與法國5G部署的條件以換取口罩-譯者備註）
 
-Begin Text:
+中國所謂的“戰狼”外交官通過針對西方的激進運動自毀形象。25年來的第一次，中國駐巴黎大使盧沙野竟然在幾條推文中聲稱，該病毒來自美國，法國衛生工作者逃離療養院，導致其老人死於飢餓和疾病。外交大臣馬克·朱利安（Marc Julienne）說，中共外交官的舉止“嚴重激怒了法國政客”。
 
-正文：
+法國目前在航空，衛星設備和生物技術方面與中國合作。一項使用乏核燃料建造核電站的大型項目耗時20年。 據批評家說，它也可以用于軍事目的。
 
-Signatories to this statement reiterate our deep concern regarding Beijing’s decision to impose a national security law in Hong Kong.
+[原文鏈接](https://jyllands-posten.dk/premium/international/ECE12120106/slap-coronavirussen-ud-af-et-fransk-laboratorium-i-wuhan/)
 
-本聲明的簽署方重申我們對北京決定在香港實施國家安全法的深度關切。
+譯者：Skagen
 
-Hong Kong has flourished as a bastion of freedom. The international community has a significant and long-standing stake in Hong Kong’s prosperity and stability. Direct imposition of national security legislation on Hong Kong by the Beijing authorities, rather than through Hong Kong’s own institutions as provided for under Article 23 of the Basic Law, would curtail the Hong Kong people’s liberties, and in doing so, dramatically erode Hong Kong’s autonomy and the system that made it so prosperous.
-
-香港的繁榮昌盛源自于其為自由的堡壘。香港的繁榮穩定與國際社會的發展長期以來息息相關。北京當局在香港直接實施國家安全立法，而不是根據《基本法》的第二十三條，通過香港自己的機構來提供，將會限制香港人的自由，並在這一過程中，極大地侵蝕香港的高度自治和使其繁榮的系統。
-
-China’s decision to impose a new national security law on Hong Kong lies in direct conflict with its international obligations under the principles of the legally-binding, UN-registered Sino-British Joint Declaration. The proposed law would undermine the One Country, Two Systems framework. It also raises the prospect of prosecution in Hong Kong for political crimes, and undermines existing commitments to protect the rights of Hong Kong people – including those set out in the International Covenant on Civil and Political Rights and the International Covenant on Economic, Social and Cultural Rights.
-
-中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。
-
-We are also extremely concerned that this action will exacerbate the existing deep divisions in Hong Kong society; the law does nothing to build mutual understanding and foster reconciliation within Hong Kong. Rebuilding trust across Hong Kong society by allowing the people of Hong Kong to enjoy the rights and freedoms they were promised can be the only way back from the tensions and unrest that the territory has seen over the last year.
-
-我們也極度擔心這一法案將加劇香港社會已有的深層分歧；這項法律無助于增進香港內部的相互理解和促進和解。通過允許香港人民享受他們曾被許諾的權利和自由，來使整個香港社會重建信任，這可能是香港從過去一年的緊張和動盪中恢復的唯一途徑。
-
-The world’s focus on a global pandemic requires enhanced trust in governments and international cooperation. Beijing’s unprecedented move risks having the opposite effect.
-
-世界對全球大流行病的關注要求增強對政府的信任和國際間的合作，北京當局前所未有的舉措可能會產生相反的效果。
-
-As Hong Kong’s stability and prosperity are jeopardized by the new imposition, we call on the Government of China to work with the Hong Kong SAR Government and the people of Hong Kong to find a mutually acceptable accommodation that will honor China’s international obligations under the UN-filed Sino-British Joint Declaration.
-
-鑒於新法規的實施將危害香港的繁榮穩定，我們呼籲中國政府與香港特別行政區政府和香港人民共同努力，找到相互都能接受的空間，以便中國能在聯合國承認的《中英聯合聲明》的制約下履行其國際義務。
-
-出處： [Joint Statement on Hong Kong](https://www.state.gov/joint-statement-on-hong-kong/)
-
-*翻譯：【Michelle】【豆小豆】*
+丹麥記者約爾根·烏勒魯普（JØRGEN ULLERUP）簡歷：
+2018．9-至今 《日德蘭郵報》駐法國和俄羅斯通訊記者
+2010．2-2018．7 《日德蘭郵報》駐美國通訊社社長
+1990．1-2010．2 《日德蘭郵報》駐布魯塞爾，柏林和巴黎通訊記者
 
 0

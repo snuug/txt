@@ -1,23 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】27/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-28 23:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/216213/)
+## 《柳葉刀》稱羥氯喹副作用大, 結果備受多方質疑
+`2020-05-29 07:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/216395/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29073128/Picture-1-205-29.png)
+據英國衛報發表文章，上週五，英國權威醫學期刊《柳葉刀》發表一項關於使用羥氯喹治療新冠病毒的研究結果。這項據稱由美國波士頓Brigham醫院和婦女高級心臟病中心牽頭的研究，對世界各地醫院近1.5萬名單獨使用或與抗生素聯合使用了羥氯喹的新冠病毒患者進行了數據分析，與8.1萬名沒有接受該藥的對照組進行了比較，結果顯示，使用羥氯喹治療新冠病毒的患者死亡率更高，並出現了更多的心臟相關併發症。
 
-[English\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)
+**澳大利亞傳染病研究人員對此研究表示質疑**
 
-[French\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)
+首先，澳大利亞聯邦衛生部門稱，該試驗所引用的澳大利亞病毒數據並未使用該國疾病監測系統所收集的數據，而是使用數據庫Surgisphere的數據，這兩個數據並不一致，包括入院人數和死亡人數。墨爾本的流行病學家和傳染病醫Allen Cheng博士表示，他從未聽說過這個數據庫，他所在的醫院也沒有人向Surgisphere提供過數據，澳大利亞兩個人口最多的洲的衛生部門也表示，未向研究人員提供過數據。
 
-[Japanese\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)
+其次，該論文的作者數量也受到質疑。Cheng博士稱，一個含數千名患者的大型研究，由於數據來源通常有多個，其論文作者會有很多人。而這篇論文只列了四位作者，這很不尋常。值得一提的是，Surgisphere數據庫的創始人Sapan Desai博士就是這四人之一。另外，該論文的統計模型也受到了來自美國哥倫比亞大學等大學的質疑。
 
-[Korean\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)
+目前，《柳葉刀》雜誌已經在要求該研究作者對這些質疑做出澄清。該研究主要作者Mandeep Mehra博士表示已經聯繫了Surgisphere數據庫，緊急對數據的差異進行核對。Surgisphere則堅持其所有來自醫院的數據的準確性，但拒絕進一步公開其數據。《柳葉刀》目前仍在等待研究作者的最終答復。
 
-[Russian\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)
+**巴西臨床故意濫用羥氯喹研目的政治鬥爭**
 
-[Spanish\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)
+氯喹副作用大的研究結果在巴西也受到了專家的質疑。受邀參加班農先生戰斗室最新第196期節目的巴西著名分子生物學教授Zanotto, 稱已經有很多真實病例足以證明羥氯喹藥對早期病情非常有效，但在巴西，有一些臨床實驗故意給病情很重的老年人服用過量的羥氯喹，以證明這個藥物沒有作用，這種行為無異於謀殺。比如巴西Manaus的醫生給病人服用1.2克的磷酸氯喹，磷酸氯喹比氯喹的藥性更強，因此這一劑量對體弱的老人來說是很高的。巴西聯邦檢察院已經介入調查Manaus的臨床研究，發現被調查的人大部分都是公開反對巴西爾索納總統的左派分子。而且該項研究的贊助者也是公開反對巴西聯邦政府的州長和參議員聯盟。Zanotto教授稱，由於政治鬥爭的瘋狂造成病人的無辜死亡是很可悲的，如果我們一早就用這藥物來治療和預防新冠肺炎，可能疫情早就被控制了。
 
+**世衛組織喊停羥氯喹臨床試驗受質疑**
 
+在本週一，鑒於《柳葉刀》研究提出的對羥氯喹療效和安全性的擔憂，世界衛生組織呼籲停止所有涉及羥氯喹治療新冠病毒的臨床試驗。世界各地的研究人員需要重新評估用該藥預防和治療新冠肺炎的藥物臨床試驗。
+
+但世衛組織的這一做法受到了質疑。Cheng博士表示，如果因為數據有問題而停止對該藥進行強有力的、設計良好的臨床試驗檢查是錯誤的。澳大利亞的首席科學家Alan Finkel博士也表示，對羥氯喹的研究結果和解釋應持謹慎態度。生物倫理學家、臨床醫生和科學家們均表示非常擔憂對新冠病毒的研究現狀，認為在這場關於新冠肺炎的醫學研究競賽中，科學的嚴謹性和同行審查已經被拋在了腦後。
+
+**印度仍堅持羥氯喹作為預防用藥的使用**
+
+同時據佈雷特巴特網站報道：印度在世衛組織喊停羥氯喹的臨床試驗的第二天，印度應對新冠病毒的最高生物醫學研究機構—印度醫學研究委員會（ICMR）卻表示將繼續支持使用羥氯喹來預防新冠病毒。印度的臨床研究中除了發現可能導致一些 “惡心、嘔吐和心悸 “的情況外，並未發現作為預防性藥物使用的羥氯喹有重大副作用。
+
+鑒於羥氯喹的潛在益處大於其可能的風險，ICMR還擴大了將羥氯喹作為預防冠狀病毒的藥物服用指南。之前是作為冠狀病毒的預防藥物允許 “只有照顧疑似或確診患者的無症狀醫護人員，或確診患者的家庭接觸者 “才可以服用該藥，而在上周ICMR宣佈，醫院的所有醫護人員和部分一線工作人員都可以在嚴格的醫療監督下，服用羥氯喹長達幾周的時間。
+
+原文鏈接：【[1](https://www.theguardian.com/science/2020/may/28/questions-raised-over-hydroxychloroquine-study-which-caused-who-to-halt-trials-for-covid-19)】【[2](https://www.breitbart.com/health/2020/05/28/india-defies-w-h-o-warning-backs-hydroxychloroquine-for-coronavirus/)】
+
+翻譯報導：緣特
 
 0
