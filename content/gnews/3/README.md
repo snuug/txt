@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮新聞發言人列舉推特侵犯言論自由的事實
-`2020-05-28 21:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/216070/)
+## 感謝美國國務卿蓬佩奧先生！“中共病毒疫情每日熱線”
+`2020-05-29 00:44 GM30` [轉載自GNews](https://gnews.org/zh-hant/216273/)
 
-在[5月28日的發布會](https://www.youtube.com/watch?v=_RYyO-mcPyc)上，白宮發言人Kayleigh McEnany悉數推特和其它社交媒體平台，利用自己的偏見，包庇想包庇的人，攻擊想攻擊的人，使美國人失去了真正的言論自由，並表示這是總統不能接受的。她講到：“他們為中共國共產黨創建了一個搜尋引擎，將搜索人權列入黑名單，並允許輕鬆監控臉書和推特都接受了有償廣告，散佈有關中共國大規模監禁宗教少數民族的虛假資訊，推特還允許中共國官員利用其平台傳播有關冠狀病毒、破壞香港支持民主的抗議活動，等更多錯誤信息。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29004315/image0-146-52.jpg)
 
-翻譯：【豆小豆】 校對：【Michelle】字幕：【豆小豆】
+**GTV鏈接：**[https://web.gtv1.org/?videoid=5ecfd5963cce3e2a58e273f6](https://web.gtv1.org/?videoid=5ecfd5963cce3e2a58e273f6)
+
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

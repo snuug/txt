@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港自貿區地位取消後果很嚴重
-`2020-05-28 17:44 GM06` [轉載自GNews](https://gnews.org/zh-hant/215913/)
+## 【世界多語言圖文】27/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-28 23:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/216213/)
 
-作者：文茗
+戰友之家圖文摘要組及小語種組
 
-中共人民被代表大會將於今日（5月28日）表決通過香港版的國家安全法。美國時間27日，美國國務卿蓬佩奧在國務院網站上發表聲明說：“上周，中共和國全國人民被代表大會宣佈，打算對香港單方面任意強加國家安全法。北京的災難性決定只是一系列從根本上破壞香港自治和自由的最新舉動，也破壞了中共自己在《中英聯合聲明》中對香港人民所作出的承諾。仔細研究最近這段期間事態發展後，任何理性的人都不會認為今日的香港可在中國維持高度自治。 ”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28173445/1-131-56.jpg)
-蓬配奧表示：香港將不再獲得美國自1997年7月以前依法所給予香港的待遇。香港作為自由的堡壘，港民充滿活力、進取與自由，香港已繁榮了數十年；美國一度希望自由繁榮的香港，可以作為專制中國的典範，但現在事實很清楚，中國大陸正在將香港打造成與中國大陸一般。當中共否決過去對香港自治的承諾，港民起身抗爭，美國將與香港人民站在一起。
+[English\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230558/English_0527_CCP_Virus_Updates.pdf)
 
-也就是昨晚蓬配奧發推說“根據目前的事實證明，香港已經不再自製，今天我已經通知國會。美國與香港人民站在一起。”
+[French\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230616/French_0527_CCP_Virus_Updates.pdf)
 
-蓬配奧一系列的聲明告訴我們什麼，香港特殊地位馬上取消，接下來就是取消自貿區。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28173547/2-47-40.png)
-香港的金融服務、旅遊、貿易及物流、專業服務及其他工商業支援服務是四大貢獻GDP的主要支柱。2018年，進出口貿易占GDP的17.2％，金融業占GDP的19.8％，專業服務及其他工商業支援服務占GDP的11.9％。
+[Japanese\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230632/Japanese_0527_CCP_Virus_Updates.pdf)
 
-根據香港政府統計處統計，2019年香港貨物進出口總額為10840.8億美元，較上年同期減少5.4%，其中出口額為5145.16億美元，同期減少4.1%；進口額為5695.65億美元，同期減少6.5%。
+[Korean\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230841/Korean_0527_CCP_Virus_Updates.pdf)
 
-香港出口包括港產品出口和轉口兩項。2019年，港產品出口額為61.59億美元，上升3.1%；轉口額5083.56億美元，減少4.2%。兩相對比，可知港產品出口僅為轉口的1.2%，幾乎到了可以忽略不計的程度。這意味著香港出口高度依賴轉口貿易。
+[Russian\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230845/Russian_0527_CCP_Virus_Updates.pdf)
 
-在2019年，中國有12％貨品是出口到或經香港出口到全世界，貿易戰幾乎卡死了共產黨所有的對美出口，僅剩香港這個“漏洞”可以避開美國的關稅，因此香港對於共產黨出口是十分重要的。
+[Spanish\_0527\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28230848/Spanish_0527_CCP_Virus_Updates.pdf)
 
-金融服務對於香港和共產黨都尤為重要，中共國的海外的融資和投資，有66.6%的增量是從香港進來的，也就是2/3從中國香港進來。54%的存量從香港過來。香港股市總市值達到了4.9萬億美元，其中上市公司50%來自於內地，市值中67.5%是中共國內地，交易量79.5%是中國內地。中共的銀行等國家機構在香港發債總計2.28萬億人民幣（3200億美元）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/28173618/33-1-1.jpg)
-香港是國際金融中心必然會受到衝擊
 
-香港特殊情況一旦被否認，美國可以限制某些企業來港或在港設立總部，美國聯邦政府也可以限制來港資金，進出香港的資金每一分錢都會被監管。
-
-目前香港可在美國出口管制下購買敏感技術，如果美國將香港與中國大陸看作一體，香港將無法在購買任何敏感高科技產品。同理共產黨通過香港進口購買被美國禁售的高科技產品將永不無可能。
-
-香港自貿區的取消，和在郭先生帶領下的爆料革命有密不可分的關係，沒有爆料革命就不會有今天自貿區取消的偉大時刻。香港自貿區的取消對共產黨的錢袋子來說是致命的一擊，沒了錢，共產黨將沒有存在的可能性，中華民族將會重生。
-
-(文章內容僅代表作者觀點)
 
 0
