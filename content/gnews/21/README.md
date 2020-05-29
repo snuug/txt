@@ -1,51 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】美國、澳大利亞、加拿大和英國就香港問題發表聯合聲明
-`2020-05-29 03:30 GM31` [轉載自GNews](https://gnews.org/zh-hant/216347/)
+## 川普總統美中新聞發布會在即 金融市場作何反應
+`2020-05-29 08:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/216423/)
 
-5月28日，美國政府在在國務院網站上發佈了由美國、澳大利亞、加拿大和英國對香港問題的聯合聲明，該聲明指出：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29081004/1-113-75.png)
+據CNBC報道，美股期貨在周四晚(2020年5月28日晚)集體下跌，其原因是川普總統(President Trump)在周四下午表示他將在周五(2020年5月29日)舉行美中關係新聞發布會。周四晚，道瓊斯指數期貨(Dow Jones Industrial Average futures)下跌107點(0.4％)，而標普500(S&P500)和納斯達克100(Nasdaq100)期貨也有小幅下跌。
 
-“中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。”
+報道指出，川普總統的周五美中關係新聞發布會，將是對中共當局批准香港國家安全法案的直接回應。專家指出，香港國家安全法案危害香港的「一國兩制」原則，該原則為香港人民提供了中國大陸居民享受不到的民主自由。由於川普總統批評中共對冠狀病毒爆發應對的問題，以及美國議員批評中共增加其在香港的控制問題，美中之間的緊張關係最近有所上升。
 
-聯合聲明全文如下：
+富國銀行(Wells Fargo)全球市場戰略負責人保羅•克里斯托弗(Paul Christopher)說，他希望美國對香港和中共發出更多富有成效和建設性的言論，並指出一旦市場完成對當前所有形勢的再定價，這將可能會成為市場的不利因素。
 
-### **Joint Statement on Hong Kong 關於香港問題的聯合聲明**
+道瓊斯指數周四收盤下跌近150點(0.6％)，標普500指數和納斯達克綜合指數分別下跌0.2％和0.5％。但是從目前每周的總體數據看，大部分指數仍保持穩步增長：道瓊斯指數和標普500指數每周上漲2.7％以上，而納斯達克指數每周上漲0.5％。這些增長源於投資者對成功重啟經濟的賭注。
 
-The text of the following statement was released by the Governments of the United States of America, Australia, Canada, and the United Kingdom.
+Seven Points Capital合伙人邁克•卡茨（Mike Katz）表示，目前金融市場已經迅速對中共冠狀病毒做出反應，並且已經「正確」預測了該病毒的峰值，也就是說，現在的標普500指數正在超過3000點的位置全力恢復。邁克•卡茨同時也指出，如果中共病毒的第二波衝擊以比人們想的更有害的方式出現的話，那麼現在的標普500指數的估值將不再正確。
 
-以下聲明文本由美利堅合眾國、澳大利亞、加拿大和英國政府聯合發表。
+[新聞來源](https://www.cnbc.com/2020/05/28/stock-market-futures-open-to-close-news.html)
 
-Begin Text:
-
-正文：
-
-Signatories to this statement reiterate our deep concern regarding Beijing’s decision to impose a national security law in Hong Kong.
-
-本聲明的簽署方重申我們對北京決定在香港實施國家安全法的深度關切。
-
-Hong Kong has flourished as a bastion of freedom. The international community has a significant and long-standing stake in Hong Kong’s prosperity and stability. Direct imposition of national security legislation on Hong Kong by the Beijing authorities, rather than through Hong Kong’s own institutions as provided for under Article 23 of the Basic Law, would curtail the Hong Kong people’s liberties, and in doing so, dramatically erode Hong Kong’s autonomy and the system that made it so prosperous.
-
-香港的繁榮昌盛源自于其為自由的堡壘。香港的繁榮穩定與國際社會的發展長期以來息息相關。北京當局在香港直接實施國家安全立法，而不是根據《基本法》的第二十三條，通過香港自己的機構來提供，將會限制香港人的自由，並在這一過程中，極大地侵蝕香港的高度自治和使其繁榮的系統。
-
-China’s decision to impose a new national security law on Hong Kong lies in direct conflict with its international obligations under the principles of the legally-binding, UN-registered Sino-British Joint Declaration. The proposed law would undermine the One Country, Two Systems framework. It also raises the prospect of prosecution in Hong Kong for political crimes, and undermines existing commitments to protect the rights of Hong Kong people – including those set out in the International Covenant on Civil and Political Rights and the International Covenant on Economic, Social and Cultural Rights.
-
-中國決定對香港實施新的國家安全法，直接違背了聯合國所認定的、具有法律約束力的《中英聯合聲明》原則所規定的其國際義務。擬議中的法律將破壞“一國兩制”框架，這也增加了在香港境內因政治罪行被起訴的可能性，並破壞了保護香港人民權利的現有承諾 — 包括《公民權利和政治權利國際公約》和《經濟、社會和文化權利國際公約》所羅列的承諾。
-
-We are also extremely concerned that this action will exacerbate the existing deep divisions in Hong Kong society; the law does nothing to build mutual understanding and foster reconciliation within Hong Kong. Rebuilding trust across Hong Kong society by allowing the people of Hong Kong to enjoy the rights and freedoms they were promised can be the only way back from the tensions and unrest that the territory has seen over the last year.
-
-我們也極度擔心這一法案將加劇香港社會已有的深層分歧；這項法律無助于增進香港內部的相互理解和促進和解。通過允許香港人民享受他們曾被許諾的權利和自由，來使整個香港社會重建信任，這可能是香港從過去一年的緊張和動盪中恢復的唯一途徑。
-
-The world’s focus on a global pandemic requires enhanced trust in governments and international cooperation. Beijing’s unprecedented move risks having the opposite effect.
-
-世界對全球大流行病的關注要求增強對政府的信任和國際間的合作，北京當局前所未有的舉措可能會產生相反的效果。
-
-As Hong Kong’s stability and prosperity are jeopardized by the new imposition, we call on the Government of China to work with the Hong Kong SAR Government and the people of Hong Kong to find a mutually acceptable accommodation that will honor China’s international obligations under the UN-filed Sino-British Joint Declaration.
-
-鑒於新法規的實施將危害香港的繁榮穩定，我們呼籲中國政府與香港特別行政區政府和香港人民共同努力，找到相互都能接受的空間，以便中國能在聯合國承認的《中英聯合聲明》的制約下履行其國際義務。
-
-出處： [Joint Statement on Hong Kong](https://www.state.gov/joint-statement-on-hong-kong/)
-
-*翻譯：【Michelle】【豆小豆】*
+翻譯報道：時晗
 
 0
