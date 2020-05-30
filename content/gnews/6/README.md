@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DT挖掘機團隊出品】 2020 共匪上海 統戰預算 大曝光
-`2020-05-30 02:49 GM30` [轉載自GNews](https://gnews.org/zh-hant/217481/)
+## 彭定康與多國聯手幫助香港反抗CCP
+`2020-05-30 03:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/217515/)
 
-**作者：DT挖掘機團隊**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30034847/1-113-81.png)
+近日CCP決定對香港頒布《國安法》，根據香港電台（RTHK）報道，香港最後一位殖民地省長克里斯•彭定康（Chris Patten）呼籲任命聯合國特使捍衛香港特區的人權。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30024226/image0-146-66.jpg)
+以彭定康為首，來自36個國家超過700多位議員加入了反對實施《國安法》的聯盟，他們呼籲各國政府團結一致反對CCP公然違反《中英聯合聲明》。這一舉動刺激到了CCP，它指責道，維持香港的穩定是需要法律的，香港已經進行了數月的反政府抗議活動，並認為有權強制實施。
+彭定康在英國非政府組織香港觀察團發表的聲明中說：「聯合國駐香港特使可以對監督香港人權，促進溝通與和解提供幫助」。聯合國中數位成員國支持該建設性的提案。
 
-[**2020 上海 統戰預算 大曝光 v0.1**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30024830/2020-%E4%B8%8A%E6%B5%B7-%E7%B5%B1%E6%88%B0%E9%A0%90%E7%AE%97-%E5%A4%A7%E6%9B%9D%E5%85%89v0.1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30024830/2020-%E4%B8%8A%E6%B5%B7-%E7%B5%B1%E6%88%B0%E9%A0%90%E7%AE%97-%E5%A4%A7%E6%9B%9D%E5%85%89v0.1.pdf)
+簡評：CCP強制實施《國安法》行為，嚴重侵害了香港的司法獨立，將承諾過的一國兩制撕得粉碎。從另一個角度講，CCP的惡行就是在自掘墳墓，CCP的言而無信，以及毫無人性的卑鄙手段，使全世界看清了CCP的醜惡嘴臉，香港事件在CCP滅亡的必然事件中起到了推進作用。我們應銘記香港同胞的付出。香港，我們的耶路撒冷！
 
-**請點擊下載按鈕，下載文檔觀看！**
+[原文鏈接](https://news.rthk.hk/rthk/en/component/k2/1529194-20200529.htm)
 
-（文章內容僅代表作者觀點）
+翻譯報道：Chris
 
 0

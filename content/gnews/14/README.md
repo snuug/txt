@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 李克強：6億人每月收入1000元！
-`2020-05-29 23:29 GM30` [轉載自GNews](https://gnews.org/zh-hant/217257/)
+## 【世界多語言圖文】28/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-30 00:07 GM77` [轉載自GNews](https://gnews.org/zh-hant/217325/)
 
-**作者：文萌**
+戰友之家圖文摘要組及小語種組
 
-十三屆全國人大三次會議閉幕後，中共國務院總理李克強在人民大會堂出席記者會並回答中外記者提問。李克強講到，中國是一個人口衆多的發展中國家，人均年收入是3萬元人民幣，但是有6億人每個月的收入也就1000元，1000元在一個中等城市可能租房都困難，現在又碰到疫情，疫情過後民生爲要。“6億人每月收入1000元”這組數字引發廣泛關注，它與人們通常在網絡報道得到的國民收入水平印象有較大的偏差。在網上，月入過萬似乎是很容易的事，月薪好幾萬還哭窮的帖子都經常出現。實際上中國人還不夠富裕，這是我們的基本國情。可是在很多人的認知中，不僅“6億人月入1000元”難以想象，就連“人均年收入3萬元”都顯得太低了。 爲何會出現這種認知的偏差？
+[English\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29232515/image0-146-63.jpg)
+[French\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)[Downloa](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)
 
-國家統計局網站2020年1月17發布2019年中共國民經濟運行情況各項數據，此次公布的數據顯示，剛剛過去的2019年，我國在GDP總量和人均GDP這兩個經濟關鍵指標上都取得了關鍵突破：據初步核算，2019年全年我國國內生産總值達990865億元。這也是中國GDP總量首次逼近100萬億元人民幣的高位，經濟總量繼續穩居世界第二。而在人均GDP方面，我國人均GDP也首次突破了10000美元， 達到10276美元，合計人民幣7萬多元，爲何與總理李克強的數據人均年收入是3萬元人民幣不一致呢？
+[German\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)
 
-主要原因是目前中國活躍的網民多數集中在東南沿海，華北中西部的幾個大城市，所以網絡上經常吹牛說美國歐洲城市是村之類的話。這些低收入人群絕大部分應該都是只在農村以種地爲生的農民以及在城市裏從事底層工作的農民工，中國有接近一億的殘疾人，有一億多農村老年人，這些人的收入都很低，甚至沒有收入，加起來有6億人還是有可能的。至所以大家印象裏現在工資都很高是因爲只有這些人才具備發表信息的能力，其他人根本沒有發布信息的能力。據2020年3月《中國互聯網絡發展狀況統計報告》，中國網民規模爲9.04億。這個數字固然已經很龐大，但還有近5億人沒有“觸網”，以農村地區人群爲主。在這個時代，一個群體不上網就難以發聲，他們的訴求、樣貌就難以被外界察覺。人們雖然知道低收入群體的存在，但不知道他們具體多大規模，不知道他們每日所思所想。他們大多時候是“沈默”的。
+[Japanese\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)
 
-同樣據《中國互聯網絡發展狀況統計報告》，月收入在5000元以上的網民群體占比僅爲27.6%。也就是說，大多數網民也沒有傳說中那麽富裕。中國基尼系數已經達到0.62，世界上還沒有一個出現過一個和平國家，基尼系數有0.6。貧富差距越來越大，階級已經開始固化，90後，00後有錢的那一部分人正在吃70後老一輩改革開放所掙取的紅利。沒有先富帶後富，因爲先富的人已經移民到國外了。40%人口月收入僅1000元，反映的是中國的貧富差距太大，貧富兩極化嚴重，而不是國窮，大多數錢財都集中到了極少數人手裏。權貴階層只會壓榨窮人資産，養更多的官僚以及他們的情人，私生子！扶貧扶貧,只是上層割韭菜的新說法。一二線房價都已經上天了, 已經沒辦法通過地産割韭菜. 搞出個扶貧, 把爪子伸向農村地區. 現在很多農民還沒脫貧爲什麽？因爲農村産權破碎，宅基地不能隨意轉賣，不能抵押，不能入股辦企業等垃圾政策導致的！習近平從上台以來，撒幣足迹遍及亞非拉，爲了搞所謂人類命運共同體，一次撒幣上百億美元很平常，再加上高維穩費用，導致了很多人仍然在貧困線以下。
+[Korean\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)
 
-按照中共國家統計局的人均GDP，中國在2019年的人均GDP排名在72，中亞的一些國家都比中國好，歐洲的落後國家希臘更是好很多。另外國家統計局網站和總理李克強的數據不一致可能與統計數據造假有關，當然是總理掌握的數據符合實際，因此拆掉防火牆，才能讓更多的人看清真相。
+[Russian\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)
 
-（文章內容僅代表作者觀點）
+[Spanish\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)
+
+
 
 0
