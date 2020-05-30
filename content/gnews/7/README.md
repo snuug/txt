@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】28/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-30 00:07 GM77` [轉載自GNews](https://gnews.org/zh-hant/217325/)
+## 標題：中共國對CCP病毒科研機構實施網路攻擊
+`2020-05-30 02:36 GM67` [轉載自GNews](https://gnews.org/zh-hant/217455/)
 
-戰友之家圖文摘要組及小語種組
+作者 多國語言組
 
-[English\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)
+https://www.bild.de/politik/ausland/politik-ausland/corona-forscher-im-visier-fbi-warnt-vor-chinesischen-cyber-attacken-70660092.bild.html
 
-[French\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)[Downloa](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)
+中共國公開瞄準研製抗ccp病毒藥物和疫苗的企業及機構！
 
-[German\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)
+美國聯邦調查局 FBI 和美國網路安全局 CISA 在一則新聞報導中稱，中國駭客試圖搜尋並竊取“彌足珍貴的智慧財產權和公共衛生資料”。
 
-[Japanese\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)
+網路攻擊的首要目標，是與ccp病毒及其治療方法和疫苗有關的資料。FBI 稱：“一旦這些資訊被竊取，必定會給更安全、更有效、更高效的治療手段造成威脅。”
 
-[Korean\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)
+因此，FBI 呼籲相關科研機構構建數位設施以應對這類攻擊，同時尋找系統漏洞並予以排除。此外，如果發現遭到非法訪問，或者發現異常行為，都應直接上報政府部門。
 
-[Russian\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)
-
-[Spanish\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)
-
-
+媒體對於正在研發抗ccp病毒藥物和疫苗的企業的重點關注，會使這些企業成為網路攻擊目標。
 
 0
