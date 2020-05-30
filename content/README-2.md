@@ -12,6 +12,8 @@
 
 ## 頁面 2/27 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [27](/content/README-27.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年4月27日郭先生GTV直播](/content/2020/05/20200502-6467348940863168493.md)
+
 [文字版：2020年4月23日郭先生GTV直播](/content/2020/04/20200427-7105885845281106075.md)
 
 [文字版:2020年4月22郭文贵先生GTV直播](/content/2020/04/20200424-2443423908182231640.md)
@@ -59,8 +61,6 @@
 [文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
 [文字版：2020年3月21日绝不允许维奸再次绑架新疆同胞](/content/2020/03/20200325-7072048714867304434.md)
-
-[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/2020/03/20200323-7421159796736318134.md)
 
 
 ## 頁面 2/27 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [27](/content/README-27.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

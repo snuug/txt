@@ -12,6 +12,8 @@
 
 ## 頁面 5/27 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [27](/content/README-27.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/content/2020/01/20200115-3214760195479457165.md)
+
 [文字版：2020年1月11日文贵直播谈台湾大选为什么会赢，为什么说蔡英文也可能会遗臭万年](/content/2020/01/20200113-2672985235705561306.md)
 
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/2020/01/20200112-3278403890679158483.md)
@@ -59,8 +61,6 @@
 [文字版：2019年12月17日文贵报平安直播](/content/2019/12/20191220-5572994760820034862.md)
 
 [文字版：2019年12月16号文贵报平安，维护海外华人形象，依法惩治海外的大小欺民贼](/content/2019/12/20191218-6370413042704455809.md)
-
-[文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/content/2019/12/20191218-3353927093351940100.md)
 
 
 ## 頁面 5/27 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [27](/content/README-27.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
