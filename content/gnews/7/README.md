@@ -1,11 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】川普總統就香港、中共國、世衛組織發表重要聲明
-`2020-05-29 20:55 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/217141/)
+## 【世界多語言圖文】28/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-30 00:07 GM77` [轉載自GNews](https://gnews.org/zh-hant/217325/)
 
-5月29日，川普總統在白宮舉行新聞發布會，並就與中國的關係發表了一系列聲明。他提到，他一直希望與中國達成互惠條約，但中國的行為威脅到航行自由和國際貿易，誤導世界衛生組織在世界範圍內造成超過一百萬人死亡，香港問題上不遵守自己的諾言。為了保護美國人、美國國家安全和國家利益，川普總統宣布美國今天將終止向世衛組織提供資金，尋找疫情的答案，並重新考慮與中國的關係以保護美國大學研究和美國金融體系。美國還將取消給予香港特殊待遇的政策豁免，包括與香港達成的所有協議。美國還將製裁參與了接或間接破壞香港自治權和公正性的中華人民共和國和香港的官員。
+戰友之家圖文摘要組及小語種組
 
-翻譯：【豆小豆】總結：【OnePunchD】校對：【Michelle】【OnePunchD】字幕：【豆小豆】
+[English\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235904/English_0528_CCP_Virus_Updates.pdf)
+
+[French\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)[Downloa](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235912/French_0528_CCP_Virus_Updates.pdf)
+
+[German\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235918/German_0528_CCP_Virus_Updates.pdf)
+
+[Japanese\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235923/Japanese0528_CCP_Virus_Updates.pdf)
+
+[Korean\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235931/Korean_0528_CCP_Virus_Updates.pdf)
+
+[Russian\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235945/Russian_0528_CCP_Virus_Updates.pdf)
+
+[Spanish\_0528\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/29235948/Spanish_0528_CCP_Virus_Updates.pdf)
+
+
 
 0
