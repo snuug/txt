@@ -1,35 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 13名學生集體發熱，6名來自同一寢室，疫情到底有多嚴重
-`2020-05-30 18:53 GM06` [轉載自GNews](https://gnews.org/zh-hant/218027/)
+## 5月29-30日 美國政要推文選譯
+`2020-05-30 23:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/218300/)
 
-作者：立武
+> After doing an extensive investigation into companies doing business with US sanctioned entities globally, Germany’s companies ranked #1.The quiet Diesel engines on all Chinese attack submarines ARE MADE IN GERMANY.We shouldn’t expect 🇩🇪 to fight the CCP. [@vtchakarova](https://twitter.com/vtchakarova?ref_src=twsrc%5Etfw) [@nglinsman](https://twitter.com/nglinsman?ref_src=twsrc%5Etfw) [https://t.co/QFreu7v383](https://t.co/QFreu7v383)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [May 30, 2020](https://twitter.com/Jkylebass/status/1266749666412113920?ref_src=twsrc%5Etfw)
 
-5月25日，馬鞍山市疾控中心發佈通知顯示，馬鞍山師範高等專科學校先後有13名學生出現發熱情況，**並且出現一個寢室裡有六名小學生集體出現發熱的情況，**對此，中共聲稱，該學校沒有做出具體說明，沒有及時上報出現的情況。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30184101/1-131-70.jpg)
-如果中共對疫情足夠重視的話，如果包括馬鞍山市政府在內的各級政府能夠認真嚴肅對待疫情的話，相信沒有任何一所學校敢在中共獨裁體制下還敢隱瞞疫情情況。設想一下，如果現在回到疫情高峰期的時刻，學校會如此不嚴肅地對待這件事情嗎？**真實的情況是，正是中共政府故意放鬆了疫情態勢，才導致各個層級對疫情把控不嚴。**
+卡爾·巴斯先生：在對全球與被美國制裁的實體有業務往來的公司進行廣泛調查之後發現，德國公司排名第壹。中國進攻型潛水艇上安裝的靜音柴油發動機全部是德國制造。我們別指望德國能夠反共了。
 
-而且，對待疫情，不應該像中共做的那樣，**先是隱瞞疫情，等待出現感染之後，再拿背鍋俠開刀**，不管是在疫情之初處理武漢市政府，還是之後對待黑龍江、吉林政府，中共永遠把責任推卸得一乾二淨。**問題在於，人已經感染了，追責也不能夠回到感染前。**
+Velina Tchakarova：“生意回來了”：德國高管返回中國。根據在中國的德國商會的壹項交易，德國公司的職員可以返回中國，這是德國絕對重要的貿易夥伴。
 
-**而且，根據該學校的學生陳述，學校並沒有落實聲稱的早中晚的體溫檢測工作。**
+> Carrie Lam is attempting to mislead Hong Kongers. Despite what she says, the national security legislation will NOT “only target a small minority of illegal and criminal acts and activities.”
+> 
+> It will change HK as we know it. [https://t.co/Yc245ITCpX](https://t.co/Yc245ITCpX)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266412747803299840?ref_src=twsrc%5Etfw)
 
-值得注意的是，在該通知中涉及到另外一所學校，即馬鞍山學院。在該學院的一名返校學生是確診病例密切接觸者的情況下，**該校沒有對這名學生進行具體的各項登記排查，也沒有做任何核酸試劑的檢測。**
+參議員 Marsha Blackburn：林鄭月娥正企圖誤導香港人民。不管她說什麽，這個國安法不會“單單針對壹小部分非法犯罪行為和活動。”我們知道它將改變香港。
 
-據瞭解，該學生11日乘坐G1722高鐵從湖北返校，該高鐵最後的終點站是上海。5月20日，乘坐11日同班高鐵的一名湖北籍人員在上海確診，**上海疾控中心通知，該學生是其密切接觸者。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30184155/2-47-47.png)
-除了這名學生，該通知還陳述了另外一名同為上海確診的密切接觸者，**到達安徽企業之後，也沒有做任何核酸檢測或健康排查的工作。**而且，兩人都是湖北人或者長期待在湖北，而上述的上海確診病例同樣也是湖北籍，可想而知，**現在湖北感染的人數到底有多嚴重。**
+《華爾街日報》：香港特首呼籲人民支持北京強加給香港的國安法
 
-我們可以看到，不管是在這兩所學校還是在這家企業，都沒有落實好中共聲稱的任何檢測，**那麼我們可以推測，這樣的情況在馬鞍山、在安徽、在全國又會發生多少呢？**儘管中共聲稱以上發熱的、密切接觸的，皆為核酸檢測陰性，但一所寢室存在全體發熱，**這種發熱顯然是帶有傳染性的，那又作何解釋呢？**
+> China sends student spies to infiltrate our universities and steal our secrets. Legislation I introduced with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) would ban Chinese nationals from obtaining post-graduate degrees in STEM fields. [https://t.co/WK5RYObitE](https://t.co/WK5RYObitE)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266388923720372225?ref_src=twsrc%5Etfw)
 
-而且，該學校在17日才開學，結果四天內13名學生發熱，其中六名是同一個寢室集體發熱，**不開學沒有問題，一開學就集體發熱，難道不應該高度懷疑這些學生被感染了中共病毒嗎？**如果感染了，中共沒檢測出來，這不就說明了中共檢測並不靠譜嗎？何況中共連檢測也沒檢測，從哪裡感染也不知道，這不更加說明了問題的嚴重性嗎？
+參議員 Marsha Blackburn：中國派學生間諜滲透到我們的大學裏，竊取我們的秘密。我和科頓參議員提起的立法議案將禁止中國公民獲得科學、技術、工程和數學領域的研究生學位。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30184238/4-30-23.png)
+Katie Pavlich：早就該如此了。美國將取消與中國軍校有聯系的數千名中國研究生的簽證
 
-很顯然，疫情仍然沒有過去，它可能隨時在一個地方爆發，不管是武漢、黑龍江還是吉林，中共一次又一次的撒謊矇騙，都導致了許多不必要的感染，即使對於複學復工基本的檢測，中共都落實不了，中共難道不該為疫情負責嗎？
+> In particular, I’m pleased the administration will be adopting policies similar to my PLA Visa Security Act. America’s soldiers, sailors, airmen, & Marines shouldn’t have to face Chinese weapons systems designed by individuals trained in the United States. [https://t.co/qfRLdyFdvT](https://t.co/qfRLdyFdvT)
+> — Tom Cotton (@SenTomCotton) [May 29, 2020](https://twitter.com/SenTomCotton/status/1266465666879631361?ref_src=twsrc%5Etfw)
 
-**吉林感染至今沒有找到感染源，是中共復工複學導致的；現在復工複學不檢測，同樣是中共政府掩蓋疫情導致的；結果中共大言不慚地在檔裡說“沒有充分認識到疫情防控工作的複雜性和嚴峻性”，這些不正是中共一手炮製的嗎？因此，我們更加不應該放鬆警惕，等待真正疫苗的出現。**
+參議員 Tom Cotton：特別讓我高興的是，政府將采用與我的《解放軍相關學生簽證安全法案》類似的政策。美國士兵、水手、飛行員和海軍陸戰隊員不應被迫面對美國培養的人為中國設計的武器系統。
 
-(文章內容僅代表作者觀點)
+> This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): NIH on funding Wuhan virus lab; China strategic approach rejects past engagement policy; Grenell tightened unmasking rules [https://t.co/GU72PSd1n7](https://t.co/GU72PSd1n7)
+> — Bill Gertz (@BillGertz) [May 29, 2020](https://twitter.com/BillGertz/status/1266450173611380741?ref_src=twsrc%5Etfw)
 
+比爾·格茨先生：本周《華盛頓時報》“Inside the Ring”專欄：美國國家衛生院談資助武漢病毒實驗室；對中戰略方針摒棄過去的（讓中國）參與政策；格林內爾收緊身份揭露規則
+
+> The Chinese Communist Party is crushing what made Hong Kong different from the rest of China. As a result, the President no longer believes it’s justified to treat Hong Kong the same as before. The U.S. will defend itself from the tyranny of the CCP. [pic.twitter.com/OJNoDoPvRJ](https://t.co/OJNoDoPvRJ)
+> — Secretary Pompeo (@SecPompeo) [May 30, 2020](https://twitter.com/SecPompeo/status/1266708471413641217?ref_src=twsrc%5Etfw)
+
+美國國務卿 蓬佩奧：中共正在摧毀令香港有別於中國其他地方的東西。所以，總統先生不再認為像以前壹樣對待香港是合理的。美國將捍衛本國不受中共暴政的侵害。
+
+> The CCP is preventing Chinese students from returning home from the US. Claiming they don’t want infection. Then they’re telling the students that the US is preventing them from leaving. Imagine what their parents are going through.
+> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266888416739934209?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：中共正阻止中國學生離美回國。聲稱他們怕被染病。然後他們告訴學生們，美國阻礙他們離開。想象壹下那些父母正在經歷著什麽。
+
+> Riots all throughout the US – “China has again warned that it will retaliate against the United States if Washington takes action over Hong Kong this week.”[https://t.co/KczZrcHP6o](https://t.co/KczZrcHP6o)
+> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266887205361983489?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：美國各地發生暴動——“中國再壹次警告說，如果本周華盛頓對香港采取行動，它將對美國進行報復。”
+
+《南華早報》：中國發誓要對美國幹預香港國安法的行為進行反擊
+
+> 40 percent of the discussion around coronavirus and COVID-19 is coming from bots. [https://t.co/iDEgMMKTTl](https://t.co/iDEgMMKTTl) [https://t.co/0uOhMh9Yze](https://t.co/0uOhMh9Yze)
+> — General Spalding (@robert\_spalding) [May 30, 2020](https://twitter.com/robert_spalding/status/1266708579249270784?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：關於冠狀病毒和疫情的討論，40%是機器人所為。
+
+> “People say…[#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) will become just another Chinese city—without freedoms, without the rule of law, independence of the judiciary, personal safety…”
+> 
+> HK "Iron Lady" [@EmilyLauWH](https://twitter.com/EmilyLauWH?ref_src=twsrc%5Etfw) discusses the [#NationalSecurityLaw](https://twitter.com/hashtag/NationalSecurityLaw?src=hash&amp;ref_src=twsrc%5Etfw) on [@AmThoughtLeader](https://twitter.com/AmThoughtLeader?ref_src=twsrc%5Etfw)
+> 
+> 🔴PREMIERE 8pm ET: [https://t.co/w5lSTYqKPz](https://t.co/w5lSTYqKPz) [pic.twitter.com/xvkivuKVP8](https://t.co/xvkivuKVP8)
+> — Jan Jekielek 😷 (@JanJekielek) [May 28, 2020](https://twitter.com/JanJekielek/status/1266141908553826304?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Jan Jekielek：“人們說…香港只不過將成為另壹個中國的城市——沒有自由，沒有法治、司法獨立和個人安全…”香港“鐵娘子”劉慧卿女士在“美國思想領袖”節目談香港國安法。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30234336/08_58.png)
 0
