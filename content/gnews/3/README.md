@@ -1,16 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 204史蒂夫·班農：香港的孩子們為自由、民主、幹掉中共而戰鬥
-`2020-05-31 13:15 GM77` [轉載自GNews](https://gnews.org/zh-hant/218802/)
+## 【快訊】NASA和SpaceX的Dragon Demo-2飛船成功與國際空間站對接
+`2020-05-31 16:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/218850/)
 
-戰友之家新聞譯制組
-By GM64
+2020年5月31日，NASA和SpaceX的Dragon demo-2飛船成功與國際空間站對接，並將兩名宇航員Douglas Hurley和 Robert Behnken送入國際太空站。
 
+*翻譯：【OnePunchD】 校對：【豆小豆】 字幕：【豆小豆】*
 
+[視頻來源 1](https://twitter.com/nasa/status/1267098121194090498?s=21)
 
-•香港街頭的高中生們在追求自由民主，為幹掉中共而抗爭著。同時在這個歷史時刻有些人視而不見，只關心自己口袋中的錢。
-•川普總統不會重復犯西方在1930年的錯誤，在當前的種種危機下，川普總統選擇勇敢的承擔責任，不去綏靖任何人。
-•香港上街爭取自由民主的孩子們深受馬克思革命思想的影響，並沒有受到美國教育框架的限制。
+[視頻來源 2](https://twitter.com/NASA/status/1267138237568606208?s=20)
+
+[視頻來源 3](https://twitter.com/nasa/status/1267144838153211905?s=21)
+
+[視頻來源 4](https://twitter.com/NASA/status/1267147006092419073?s=20)
+
+相關新聞：
+
+[【快訊】美國再次創造歷史，NASA和SpaceX成功將宇航員送入太空](https://gnews.org/zh-hant/217959/)
+
+[怎樣線上參與NASA的 “美國發射” 計劃](https://gnews.org/zh-hant/215643/)
+
+[【快訊】NASA和SpaceX發射SpaceX Demo-2進入倒計時，【更新】因為天气原因发射推迟至周六](https://gnews.org/zh-hant/214602/)
 
 0
