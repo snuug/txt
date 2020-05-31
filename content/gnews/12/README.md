@@ -1,61 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共GDP，就是一個屁！
-`2020-05-30 20:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/218135/)
+## 【世界多語言圖文】29/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-30 22:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/218241/)
 
-**作者：玉米地大姐**
+戰友之家圖文摘要組及小語種組
 
-29日網易刊登專欄作者盛松成文章，題爲《中國今年GDP增速可能達到3%左右》文章開篇引述政府工作報告什麽“六穩’“六保。”然後提出自己觀點：
+[English\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)
 
-雖然一季度我國經濟負增長，但我認爲，不能單純憑一季度GDP增速來推論全年的經濟增速。二季度開始，我國經濟會逐漸企穩向好，經濟受疫情的影響程度會逐季減少，而經濟發力會逐季增強。我們還應該看到，一至四季度占全年GDP的比重是不同的，今年全年GDP的占比更會呈現逐季提高的態勢。隨著我國堅定實施擴大內需戰略，及擴大有效投資，今年GDP增速可能達到3%左右。
+[French\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)
 
-“中國今年GDP增速可能達到3%左右，作者用 “可能”、“左右”這樣不確定用語，給自己留下伸縮空間，言外之意，到時候不增長不要怪我，我可沒說確定增長。
+[German\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30202356/2-98-54.jpg)
+[Japanese\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)
 
-國家統計局官方給出的2020年第一季度GDP統計表
+[Korean0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)
 
-該文洋洋灑灑五千余字，90%都在轉述《政府工作報告》這哪是分析GDP，分明是政府報告複讀機。也難爲作者了，疫情下的中共經濟死水一潭說什麽沒用，不得不說是因爲黨交給的作業必須完成。
+[Spanish\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)
 
-人民日報也摻乎進來，就“一季度經濟數據怎麽看”給出來自國家統計局的數據，引用國家統計局新聞發言人毛盛勇言論加以引申：
+[Russian\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)
 
-中國經濟長期向好的基本面沒有變：“風向標”向好，回升態勢有望延續；“米袋子”充足，手中有糧心中不慌；適應性強大，産業體系完備有韌性；基本面不變，中國經濟活力充沛潛力足
 
-3月主要經濟指標明顯改善，來之不易，得益于上下一心，統籌推進疫情防控和經濟社會發展，堅持疫情防控不松勁、經濟發展不動搖：防範風險有先手，宏觀調控亮高招；化危爲機顯能力，企業突圍拼智慧；脫貧攻堅不放松，全面小康有質量。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30202533/3-94-65.jpg)
-
-額滴個娘，這位發言人應該調到外交部工作，片湯排比句說得一套一套的，不知道還以爲表演相聲貫口。
-
-人日小編腦洞大開，歸納出三大看點、兩手抓，簡稱三看兩抓。
-
-全面看
-
-全面看待經濟數據，還應看到，全球經濟貿易大幅下降，中國很難獨善其身。目前，疫情在200多個國家和地區蔓延擴散，全球跨境投資、貨物貿易和人員往來大幅度減少。
-
-辯證看
-
-盡管一季度經濟出現負增長，但隨著疫情防控向好態勢進一步鞏固，複工複産正在逐步接近或達到正常水平，3月份主要經濟指標明顯改善。
-
-長遠看
-
-中國經濟長期向好的基本面沒有變。二季度經濟預計會明顯好于一季度，如果全球疫情控制較好，下半年會比上半年更好
-
-疫情是突發公共衛生事件，其對經濟的影響是短期的、總體可控的，中國經濟長期向好的基本面沒有改變。
-
-兩手抓
-
-統籌推進疫情防控和經濟社會發展，堅持疫情防控不松勁、經濟發展不動搖。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30202553/4-31-34.jpg)
-
-三看兩抓接下來就是變態的意淫了，本來挺嚴肅的事，活生生讓官員、專家們整成了娛樂小品。說明從上到下誰都沒拿GDP當真，那玩意不就是個數字嗎，升多少降多少敲敲鍵盤一切OK。
-
-共産黨盜國賊就是一個放大版的阿Q，不管到什麽時候總會振振有詞地給自己找借口，失敗不叫失敗，叫前進中的挫折，就像相聲諷刺的那樣，如今搶劫不叫搶劫，叫搶劫式理財，保護式拆遷，強奸式做愛。
-
-無論官方給出的GDP數字看上去有多美，不過是個屁而已。
-
-（文章內容僅代表作者觀點）
 
 0
