@@ -1,63 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “十天大會戰”戰完感染率反升，混撿模式還原真實感染率
-`2020-05-30 19:10 GM06` [轉載自GNews](https://gnews.org/zh-hant/218049/)
+## 【世界多語言圖文】29/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-30 22:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/218241/)
 
-作者：立武
+戰友之家圖文摘要組及小語種組
 
-武漢號稱“十天大會戰”的中共病毒檢測從14日開始，一直持續到23日一共十天。
+[English\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)
 
-14日，武漢市核酸檢測72791人次，新增無症狀感染者9例。
+[French\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)
 
-15日，武漢市核酸檢測113609人次，新增無症狀感染者9例。
+[German\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)
 
-16日，武漢市核酸檢測222675人次，新增無症狀感染者10例。
+[Japanese\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)
 
-17日，武漢市核酸檢測335887人次，新增無症狀感染者14例。
+[Korean0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)
 
-18日，武漢市核酸檢測467847人次，新增無症狀感染者16例。
+[Spanish\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)
 
-19日，武漢市核酸檢測856128人次，新增無症狀感染者13例。
+[Russian\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)
 
-20日，武漢市核酸檢測887321人次，新增無症狀感染者28例。
 
-21日，武漢市核酸檢測1000729人次，新增無症狀感染者35例。
-
-22日，武漢市核酸檢測1470950人次，新增無症狀感染者25例。
-
-23日，武漢市核酸檢測1146156人次，新增無症狀感染者30例。
-
-**以上是中共官方給出的資料，合計總共檢測人數6574093人次，總共新增無症狀感染者189例，感染率0.00287%，不到0.003%（萬分之0.3），看似感染率非常低。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30185726/1-113-85.png)
-
-24日，武漢市沒有給出核酸檢測的人數，**但根據中共自己的媒體《長江日報》****25****日報導披露，截至****24****日已為****900****多萬居民採樣，**24日新增無症狀感染者38例，十一天內總共新增227例無症狀感染者。如果姑且用900萬來與227例，合計感染率為比前一個感染率還低。事實上，這900多萬不僅僅是十一天內檢測的，還包括14日前檢測的。**因此，我們只用****0.00287%****來與後面的資料比較。**
-
-25日，新增無症狀感染者26例。
-
-26日，新增無症狀感染者22例。
-
-27日，新增無症狀感染者19例。
-
-28日，新增無症狀感染者2例。
-
-25日，新增無症狀感染者3例。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30185825/3-35-29.png)
-**即使在中共的所謂“十天大會戰”之後，仍然不斷有新增無症狀感染病例，**這後續五天合計無症狀感染者72例。截至2019年末，武漢常住人口1121.20萬人，中共報導死亡人數僅為3869人，也就是常住人口姑且算為1121萬人，排除去採樣的900萬人，剩下繼續採樣的最多221萬人。**如果用後續五天新增的感染病例去與****221****萬人比較的話，感染率為****0.00326%****，反而比之前的感染率要高了。**
-
-顯然這不太合理，按中共的說法，在24日“十天大會戰”收官階段，**剩下針對的是行動不便、不方便出門的一些特殊群體，這類群體一般感染機率也會比前面檢測的要小，那麼感染率怎麼會增加呢？有**一種假設是有一部分核酸檢測結果可能當天不能夠出來，但這顯然不太符合中共吹噓的單日檢測量，**因為結果不出來，並不能算進當日檢測量裡。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30185842/4-30-25.png)
-還有一個問題是，中共為了增加單日檢測量，實際上是用了“混檢”的方法。這種做法具體形式簡單來講就是把一堆樣本的病毒混合到一定量的洗脫液裡，顯然這種做法極大降低了檢出率。
-
-按照“不混檢”地方式，**武漢大概最多能夠做****6****萬次左右，對比****22****日的峰值****140****萬單日檢測量，差了有****23****倍左右，**如果採用“混檢”的方式，把23個樣本一起檢測，就可以達到6萬次檢出140萬個樣本的目標。**但同時病毒也被稀釋了****23****倍（不太可能經常性的****23****人裡有****2****人攜帶病毒，那樣的話感染率就太可怕了）。**
-
-同時，參照下面14日7萬多檢測量時感染率與逐漸加多的檢測量和不斷下降的感染率比較，一般來講，感染率並不會隨時樣本數量增加而改變太多，**一種解釋就是這種混檢的方式降低了檢出病毒的機率。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30190028/5-27-19.png)
-同時中共的核酸檢測準確率大概30%，也就是真實感染率的資料應該是**0.003%（取上述兩個感染率的中值）的3倍的23倍，也就是0.2%左右，**大概是萬分之二十（千分之二），而之前中共官媒《財經》的報導是萬分之五，這個數字可能還要低估了。
-
-**不管是中共“混檢”式的程式降低感染率，還是本身檢測試劑品質之差降低感染率，還是中共故意壓低資料，都造成了最終感染率嚴重被壓低，反看不斷在各地被檢測出的武漢、湖北感染者，離開武漢、湖北就被檢測出來，可想而知，湖北感染有多嚴重。**
-
-(文章內容僅代表作者觀點)
 
 0
