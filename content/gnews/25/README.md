@@ -1,95 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從香港到美國，制裁中共的藍圖
-`2020-05-30 21:57 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/218214/)
+## 5月29-30日 美國政要推文選譯
+`2020-05-30 23:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/218300/)
 
-翻譯：TCC
+> After doing an extensive investigation into companies doing business with US sanctioned entities globally, Germany’s companies ranked #1.The quiet Diesel engines on all Chinese attack submarines ARE MADE IN GERMANY.We shouldn’t expect 🇩🇪 to fight the CCP. [@vtchakarova](https://twitter.com/vtchakarova?ref_src=twsrc%5Etfw) [@nglinsman](https://twitter.com/nglinsman?ref_src=twsrc%5Etfw) [https://t.co/QFreu7v383](https://t.co/QFreu7v383)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [May 30, 2020](https://twitter.com/Jkylebass/status/1266749666412113920?ref_src=twsrc%5Etfw)
 
-（當委會特訊）　當委會在５月27日提出的十二項“捍衛香港自由”的聲明難道就是引導川普總統及其政府對中共偽政權一步步措施的藍圖。
+卡爾·巴斯先生：在對全球與被美國制裁的實體有業務往來的公司進行廣泛調查之後發現，德國公司排名第壹。中國進攻型潛水艇上安裝的靜音柴油發動機全部是德國制造。我們別指望德國能夠反共了。
 
-第一步就是國務卿彭佩奧宣布取消香港特區地位，這個我們已在同一天（5/27）國務院的公告看到了。大家也都看到5月29日川普總統及相關各部首長在白宮玫瑰花園的記者會。短短的十分多鐘，根本就是向中共國宣戰了！
+Velina Tchakarova：“生意回來了”：德國高管返回中國。根據在中國的德國商會的壹項交易，德國公司的職員可以返回中國，這是德國絕對重要的貿易夥伴。
 
-此文章包含當委會的引言，以及“捍衛香港人民爭自由”聲明。讓我們繼續看著美國使出一招招的連環拳，直到把中共這個以十四億人囗為人質的偽政權徹底打倒為止。
+> Carrie Lam is attempting to mislead Hong Kongers. Despite what she says, the national security legislation will NOT “only target a small minority of illegal and criminal acts and activities.”
+> 
+> It will change HK as we know it. [https://t.co/Yc245ITCpX](https://t.co/Yc245ITCpX)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266412747803299840?ref_src=twsrc%5Etfw)
 
-**新聞稿**
+參議員 Marsha Blackburn：林鄭月娥正企圖誤導香港人民。不管她說什麽，這個國安法不會“單單針對壹小部分非法犯罪行為和活動。”我們知道它將改變香港。
 
-## 當委會12項聲明
+《華爾街日報》：香港特首呼籲人民支持北京強加給香港的國安法
 
-## **當委會為懲罰中共偽政權壓迫香港人提供“計劃表”**
+> China sends student spies to infiltrate our universities and steal our secrets. Legislation I introduced with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) would ban Chinese nationals from obtaining post-graduate degrees in STEM fields. [https://t.co/WK5RYObitE](https://t.co/WK5RYObitE)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266388923720372225?ref_src=twsrc%5Etfw)
 
-\*\*\*新闻稿\*\*\*
+參議員 Marsha Blackburn：中國派學生間諜滲透到我們的大學裏，竊取我們的秘密。我和科頓參議員提起的立法議案將禁止中國公民獲得科學、技術、工程和數學領域的研究生學位。
 
-即時發布
+Katie Pavlich：早就該如此了。美國將取消與中國軍校有聯系的數千名中國研究生的簽證
 
-May 27, 2020
+> In particular, I’m pleased the administration will be adopting policies similar to my PLA Visa Security Act. America’s soldiers, sailors, airmen, & Marines shouldn’t have to face Chinese weapons systems designed by individuals trained in the United States. [https://t.co/qfRLdyFdvT](https://t.co/qfRLdyFdvT)
+> — Tom Cotton (@SenTomCotton) [May 29, 2020](https://twitter.com/SenTomCotton/status/1266465666879631361?ref_src=twsrc%5Etfw)
 
-2020年5月27日
+參議員 Tom Cotton：特別讓我高興的是，政府將采用與我的《解放軍相關學生簽證安全法案》類似的政策。美國士兵、水手、飛行員和海軍陸戰隊員不應被迫面對美國培養的人為中國設計的武器系統。
 
-**联系：**Hamilton Strategies，Media @ HamiltonStrategies.com，Patrick Benner，610.584.1096，内线。 104，或Deborah Hamilton，分机。 102
+> This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): NIH on funding Wuhan virus lab; China strategic approach rejects past engagement policy; Grenell tightened unmasking rules [https://t.co/GU72PSd1n7](https://t.co/GU72PSd1n7)
+> — Bill Gertz (@BillGertz) [May 29, 2020](https://twitter.com/BillGertz/status/1266450173611380741?ref_src=twsrc%5Etfw)
 
-**此聲明提供十二項“與自由同在”建議**
+比爾·格茨先生：本周《華盛頓時報》“Inside the Ring”專欄：美國國家衛生院談資助武漢病毒實驗室；對中戰略方針摒棄過去的（讓中國）參與政策；格林內爾收緊身份揭露規則
 
-華盛頓特區—當委會（CPDC）今天向川普政府和美國國會提供了十二項切實可行的措施，旨在表明我們國家對香港人民一致性的聲援，他們（香港人）的自由和自治遭到了中共的壓制，正面臨一個生死存亡的危險關頭。
+> The Chinese Communist Party is crushing what made Hong Kong different from the rest of China. As a result, the President no longer believes it’s justified to treat Hong Kong the same as before. The U.S. will defend itself from the tyranny of the CCP. [pic.twitter.com/OJNoDoPvRJ](https://t.co/OJNoDoPvRJ)
+> — Secretary Pompeo (@SecPompeo) [May 30, 2020](https://twitter.com/SecPompeo/status/1266708471413641217?ref_src=twsrc%5Etfw)
 
-基於行政和立法部門一致考慮對中共國即將實施的《國家安全法》應採取適當的對策，當委會特發此“捍衛香港人民爭自由”的聲明。這（《國家安全法》）將“禁止任何嚴重危害國家安全的活動”。正如當委會所指出：“實際上，《國家安全法》將有效地終止香港人民參與政治話語的能力，因為北京不可避免地將其視為“危害國家安全”。
+美國國務卿 蓬佩奧：中共正在摧毀令香港有別於中國其他地方的東西。所以，總統先生不再認為像以前壹樣對待香港是合理的。美國將捍衛本國不受中共暴政的侵害。
 
-當委會建議採取的行動應以實質性的方式懲罰中國共產黨。當（這些行動）表示出與其他地區愛好自由的朋友和盟國一致聲援香港的同時，還將為美國人民帶來利益。
+> The CCP is preventing Chinese students from returning home from the US. Claiming they don’t want infection. Then they’re telling the students that the US is preventing them from leaving. Imagine what their parents are going through.
+> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266888416739934209?ref_src=twsrc%5Etfw)
 
-在這十二項舉措中，有八項有助於防止美國資本市場進一步承保中共對本國和自由世界其他地區所構成的無數威脅。川普總統和他的高級下屬最近發現這種資金違背國家安全和我們的人權價值觀，並且對美國投資者構成危險。
+斯伯丁將軍：中共正阻止中國學生離美回國。聲稱他們怕被染病。然後他們告訴學生們，美國阻礙他們離開。想象壹下那些父母正在經歷著什麽。
 
-此外，當委會還建議採取以下舉措：打破所謂的“長城防火牆”，該防火牆禁止中國人民獲得未經其極權主義政權批准的信息；懲處侵犯人權者；阻止北京的工業級由非自願地從宗教和少數民族，政治犯等人身上摘取的器官“器官滅絕種族”行為；並捍衛台灣人民-顯然在北京瞄準的下一個目標。
+> Riots all throughout the US – “China has again warned that it will retaliate against the United States if Washington takes action over Hong Kong this week.”[https://t.co/KczZrcHP6o](https://t.co/KczZrcHP6o)
+> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266887205361983489?ref_src=twsrc%5Etfw)
 
-當委會聲明的結論是：“鑑於明顯地中共明知故犯和惡意地對美國，我們的人民和我們的生活方式發動了史無前例毀滅性的病毒襲擊，它的真本性和野心是不可以再被忽視了。當委會讚揚川普政府堅決支持中共，並呼籲川普政府和國會立即採取上述措施，與香港人民和其他美國盟友站在一起。”
+斯伯丁將軍：美國各地發生暴動——“中國再壹次警告說，如果本周華盛頓對香港采取行動，它將對美國進行報復。”
 
-**當委會聲明：“捍衛香港人民爭自由”**
+《南華早報》：中國發誓要對美國幹預香港國安法的行為進行反擊
 
-May 27, 2020
+> 40 percent of the discussion around coronavirus and COVID-19 is coming from bots. [https://t.co/iDEgMMKTTl](https://t.co/iDEgMMKTTl) [https://t.co/0uOhMh9Yze](https://t.co/0uOhMh9Yze)
+> — General Spalding (@robert\_spalding) [May 30, 2020](https://twitter.com/robert_spalding/status/1266708579249270784?ref_src=twsrc%5Etfw)
 
-2020年5月27日
+斯伯丁將軍：關於冠狀病毒和疫情的討論，40%是機器人所為。
 
-長期以來，香港和台灣人民一樣一直是個對世界有形和象徵性的實證，，證明中國人民，在民主機構引導下可以和平，繁榮與自由的生活。今天，中國共產黨（CCP）的目的是銷毀（香港）並以其自身的錯誤規則取而代之。
+> “People say…[#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) will become just another Chinese city—without freedoms, without the rule of law, independence of the judiciary, personal safety…”
+> 
+> HK "Iron Lady" [@EmilyLauWH](https://twitter.com/EmilyLauWH?ref_src=twsrc%5Etfw) discusses the [#NationalSecurityLaw](https://twitter.com/hashtag/NationalSecurityLaw?src=hash&amp;ref_src=twsrc%5Etfw) on [@AmThoughtLeader](https://twitter.com/AmThoughtLeader?ref_src=twsrc%5Etfw)
+> 
+> 🔴PREMIERE 8pm ET: [https://t.co/w5lSTYqKPz](https://t.co/w5lSTYqKPz) [pic.twitter.com/xvkivuKVP8](https://t.co/xvkivuKVP8)
+> — Jan Jekielek 😷 (@JanJekielek) [May 28, 2020](https://twitter.com/JanJekielek/status/1266141908553826304?ref_src=twsrc%5Etfw)
 
-中共已表示有意對香港的《基本法》做重大改變-特別是增加了“禁止任何嚴重危害國家安全的活動。”　實際上，《國家安全法》將有效地終止香港人參與政治話語的能力，因為北京不可避免地將這視為“危害國家安全。”
-
-北京頒布這樣的法規象徵著，中共將迫使香港立法會建立任何必要的法律，在他們的治理下否認承諾香港“高度自治”最後的痕跡。如果能允許中共這樣粉碎自由，我們必須知道中國的政權將會在其它地方膽大妄為。
-
-因此，當委會（CPDC）敦請川普總統及其政府和國會（視可適性）採取以下措施捍衛美國國家利益，在國內外保護我們的經濟利益並確保自由：
-
-1.　國務卿龐佩奧應在《 1992年美國和香港政策法》以及《 2019年香港人權與民主法》下行使其權力，以承認“除了國防和外交事務以外的所有事務”，香港已不再具有高度自治權。
-
-由於中共的干預，造成香港人民不能再享受他們維持現狀的“生活方式，法律，社會和經濟體系”，香港之“最惠國待遇”現在必須被撤銷。
-
-2.總統應該指示對香港和中共國實施制裁，立即停止使用SWIFT系統的財務結算。 SWIFT系統應保留給那些遵守法律的國家。正如對香港的鎮壓清楚的表明，中共領導下的中國顯然沒有（遵守法律）。
-
-3.川普政府應該立即發出通知，通知（中共）將於30天內終止於2013年5月由美國上市公司會計監督委員會和中共國的證券管理委員會簽署的備忘錄（MOU）。這個鮮為人知的備忘錄允許中共國公司不受《薩班斯－奧克斯利法案》等美國法律的約束接受會計準則和其他審計要求。這個由奧巴馬·拜登政府執行的備忘錄，以犧牲為美國投資者提供保護的美國證券法規和規章為代價，對中共國公司和國有企業差別待遇。因此，使中國實體尋求在美國市場籌集資金上比美國的公司更有利。
-
-4.一旦備忘錄不再生效，目前所有可在美國債務和股票市場籌集資金的中共國公司都應取消註冊。這樣的公司-除了商務部實體列表中的公司，美國政府制裁，或從事對國家安全或國家人權價值觀有害的公司–應該保持不能進行更新註冊執照，除非直到他們符合美國證券法律，法規和會計審計標準。
-
-5.未在美國資本市場註冊的中共國公司（所謂的“ A股”）不應再被允許包含在美國註冊的交易所交易基金（ETF）內。這些包括在ETF中的中共國公司，享有進入美國資本市場的利益，卻不必遵守美國證券法律，法規和審計標準，造成美國投資者和公司在資本競爭上的損失。因此，制裁應施加於香港和中共國金融界中根據法律協議進行此類交易的機構，也就是中共國¬－香港的“股票連接和債券連接”：中國證券存管結算公司及香港證券結算公司（包括所有三個獨立機構：中國中央證券存管結算公司，上海票據結算所公司及香港銀行同業結算公司）。
-
-6. 應採取制裁措施禁止購買和出售任何以中共國的充分信心和信譽為後盾的國債（包括但不限於國有企業）。
-
-7. 中共國有和附屬銀行不符合美國證券法，法規和審計標準，或不符合銀行業慣例的美國法規，而使美國投資者面臨嚴重的，未公開的重大風險和欺詐。他們不應通過主動或被動的投資工具在美國資本市場進行交易。
-
-8.美國勞工部應根據1974年（《僱員退休收入保障法》（ERISA）的標準來完善其對“受託人”的定義。大型美國養老金基金受ERISA的管轄，對計劃信託人，保薦人和投資經理使用較高的標準–也就是說，這些人需要遵守“受託人”標準。
-
-中共國拒絕遵守（美國）上市公司會計監督委員會審核就是違反了該標準。經修訂的勞工部指南應防止美國退休金持有中共公司投資組合中的股票。
-
-9. 應優先對滲透和擊敗中國共產黨為阻止中國人獲取不受（中共）政府審查或控制的信息的努力。中共所謂“長城防火牆”是中共用來加強其公民宣傳的工具，包括對美國的敵意可能助長未來敵對行動的信息。
-
-10. 根據《全球馬格尼茨基法案》規定的全面制裁應適用於懲罰對中共壓迫香港人民的個人和實體。特別是，應向中共提出警告，那些中共支持的當權者將要對那些被強行帶走行使合法抗議權的香港示威者的下落和安全負責。
-
-美國政府必須發出堅定的信號：如果天安門廣場的暴行重演，美國不會袖手旁觀。
-
-11.應在全國范圍內努力確定並採取行動，以阻止中共的器官種族滅絕–由殺害宗教和少數民族成員，政治犯和其他人的非自願捐贈的國際市場和器官移植。
-
-12. 應採取所有切實可行的步驟保護最有可能被中共列為下一個侵略目標的台灣人民。
-
-鑑於明顯地中共明知故犯和惡意地對美國，我們的人民和我們的生活方式發動了史無前例毀滅性的病毒襲擊，它的真本性和野心是不可以再被忽視了。當委會讚揚川普政府堅決支持中共，並呼籲川普政府和國會立即採取上述措施，與香港人民和其他美國盟友站在一起。
-
-[原新聞鏈接](https://presentdangerchina.org/2020/05/press-release-committee-offers-roadmap-for-punishing-the-c-c-p-for-oppressing-the-people-of-hong-kong/)
-
-[當委会12項聲明原文](http://presentdangerchina.org/wp-content/uploads/2020/05/CPDC-Stand-With-Freedom-for-Hong-Kong-Statement-527209.pdf)
-
+斯伯丁將軍 轉推 Jan Jekielek：“人們說…香港只不過將成為另壹個中國的城市——沒有自由，沒有法治、司法獨立和個人安全…”香港“鐵娘子”劉慧卿女士在“美國思想領袖”節目談香港國安法。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30234336/08_58.png)
 0

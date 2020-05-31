@@ -1,25 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】29/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-30 22:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/218241/)
+## Warroom 202 克裏斯談與中共控制的公司共事的感受，談好萊塢 Zoom 抖音
+`2020-05-30 23:50 GM77` [轉載自GNews](https://gnews.org/zh-hant/218314/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223130/English_0529_CCP_Virus_Updates.pdf)
-
-[French\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223136/French_0529_CCP_Virus_Updates.pdf)
-
-[German\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223141/German_0529_CCP_Virus_Updates.pdf)
-
-[Japanese\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223145/Japanese_0529_CCP_Virus_Updates.pdf)
-
-[Korean0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223151/Korean0529_CCP_Virus_Updates.pdf)
-
-[Spanish\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223201/Spanish0529_CCP_Virus_Updates.pdf)
-
-[Russian\_0529\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30223203/Russian_0529_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+By GM64
 
 
+
+•美國電影制作人克裏斯表示在和被中共控制的公司在打交道的過程中，認為他們都有一致的黨的說詞，在宣傳上非常統一。在目標上一致的是保持14億人剛好滿意不造反。
+•好萊塢像美國其他工業一樣現在很依賴來自中國的市場和資本。好萊塢是一把雙刃劍，一方面跨越中國邊境展示軟實力，另一方面我們作為一個國家團結在一起，用一些正確的方法支持一些公司不被ccp所影響。
+•中共從美蘇冷戰中學到不少，很善於利用軟實力。文化是升級版的政治，這就是中共和美國脫鉤的原因。
+•班農先生不擔心那些攻擊自己的小粉紅，擔心的是中共利用抖音，Zoom對年輕人的洗腦，認為美國是邪惡的帝國。
+•全世界的小孩子都在用抖音，但是抖音可以隨時隨地監控人的位置，安裝了抖音就等於安裝了間諜軟件。
 
 0
