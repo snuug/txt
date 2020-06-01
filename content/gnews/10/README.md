@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 深圳出現棄房斷供潮，房地產崩盤真的還遠嗎
-`2020-05-31 17:02 GM06` [轉載自GNews](https://gnews.org/zh-hant/218897/)
+## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
 
-作者:文茗
+戰友之家圖文摘要組及小語種組
 
-近日深圳的確發生了大量7折法拍房網上拋售的現象。很多國內共產黨宣傳機構，宣傳拍賣房源相比去年激增了222%，房地產暴漲在即等等鼓吹房地產的資訊。但事實上，資料都沒有錯，是法拍房增多。為什麼法拍房激增，原因很簡單就是經濟崩盤、失業高起導致棄房、斷供現象大量出現所致。
+[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165021/1-131-83.jpg)
+[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
 
-同時網上一篇深圳本地銀行帳號斷供的消息也印證了這一點：
+[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
 
-在銀行工作了18年的王先生說，2020開年以來，我們這個銀行網點每月就有一兩千個帳號斷供，以為就是這個樣子了。因為，深圳雖然受疫情影響，外貿企業關閉的比較多，但是整體支付水準還是比較強的。
+[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
 
-但是，沒有想到，到了五月，僅我們銀行的一個網點，斷供的帳號就達到了1.3萬個。其他銀行和其他網點的斷供情況怎麼樣，不清楚，估計也不會太樂觀。
+[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
 
-他說，全市斷供的帳號，如果統計出來，估計更大、更可怕。
+[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
 
-真是沒有想到斷供潮會來的這麼快，前兩天看到新聞說深圳及全國的法拍房達到了82萬套，我還持懷疑態度，半信半疑，因為法拍的原因大部分是因斷供引起的，現在看來，是真的了，沒想到，真沒想到，斷供潮真就來了。
+[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165052/2-98-61.jpg)
 
-一般斷供的根本原因就是這麼兩點：一種是個人破產沒錢還貸，；一種是房子價值大幅下跌，不願意還貸。
-
-最典型的破產導致斷供的事例就是，90年代前後的日本房地產危機。那時，日本經濟躍升到全球第二，實有趕超美國的趨勢。製造業衰退引發全民買房、全民炒房，像瘋了一般。1987年，日本房價增幅53%，1988年出現6200人搶1套房，1991年東京房價高達90萬一平，當時的名言“東京的地價可以買下整個美國”。此後的廣場協議，日本大幅升值，加上華爾街的集體做空、日本國內主動刺破泡沫，導致日本房價迅猛下跌。因而大批高杠杆買房的人資不抵債，斷供潮發生。這次房地產的瘋狂留給日本的是“失去的二十年”。
-
-房子價值下跌，不願意還貸，實例就發生在首都北京環京北三縣之一的燕郊。燕郊地區房價15年均價1萬，16年均價2萬，17年上半年接近3萬，大批買房人蜂擁而至。隨著限購政策的出臺，17年下半年價格出現下降，18年回到2萬一平，19年只剩1.8萬一平，2020年初1.5萬一平。兩年時間，房價“腰斬”。燕郊確實出現了大量“斷供現象”，也有很多人選擇拋售，比如今年4月新聞曾有報導的“燕郊有房東0元賣房”，只要有人能把銀行貸款接手，自己可以0元賣。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165145/3-35-34.png)
-
-資料顯示，今年從1月份到5月，二手房掛牌量進入高峰值，多數城市將創下歷史新高：北京約10.6萬套左右；上海約7.5萬套左右；廣州超過7.5萬套；深圳約4.6萬套左右；蘇州、杭州、南京、合肥、瀋陽、青島的二手房掛牌量，分別約為9.9萬套、7.1萬套、9.1萬套、7.4萬套、7.6萬套、11.5萬套左右。
-
-二手房數量的激增說明了大量購房者都在拋售房產，背後原因其實很簡單。
-
-首先是CCP病毒衝擊世界經濟，而尤其是以出口經濟為主的沿海城市，首先受到了衝擊，大量企業倒閉、人員失業出售手裡的不動產緩解財務壓力是在正常不過的方法。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165254/4-30-28.png)
-
-最為關鍵的一點其實是，共產黨為了它“保經濟”所謂的新基建計畫，必須抑制房價上漲，不能讓資金繼續進入房地產行業。以及房地產稅徵收的預期，都增加“先知先覺”的一部分房屋持有者逃離平倉的動力。
-
-追根溯源任何一個國家的房地產經濟，都必須建立在實體經濟這個基礎之上。從美國開始和中共脫鉤那一刻開始，已經註定了中共國房地產崩盤的結果。當實體經濟這個基礎崩塌之時，就是房地產崩盤之日，這個壯觀的“景色”距離越來越近了。
-
-(文章內容僅代表作者觀點)
 
 0
