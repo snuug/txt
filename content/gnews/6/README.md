@@ -1,16 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 204史蒂夫·班農：香港的孩子們為自由、民主、幹掉中共而戰鬥
-`2020-05-31 13:15 GM77` [轉載自GNews](https://gnews.org/zh-hant/218802/)
+## “我們正在目睹一場美中之間冷戰的開始嗎？”
+`2020-05-31 18:54 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/218923/)
 
-戰友之家新聞譯制組
-By GM64
+川普總統與企業界高管在[5月29日](https://www.youtube.com/watch?v=vzr8RmA4fBA)舉行重啟美國的圓桌會議上，被記者問到疫情和香港問題是否會導緻美中冷戰的開始。川普總統再次強調中共本應該在源頭上阻止病毒的傳播，卻任由病毒傳到全球186個甚至更多的國家。美國必須力查真相。
 
+*翻譯：【一花一世界】 校對：【奔腾的长江】字幕：【班班】*
 
-
-•香港街頭的高中生們在追求自由民主，為幹掉中共而抗爭著。同時在這個歷史時刻有些人視而不見，只關心自己口袋中的錢。
-•川普總統不會重復犯西方在1930年的錯誤，在當前的種種危機下，川普總統選擇勇敢的承擔責任，不去綏靖任何人。
-•香港上街爭取自由民主的孩子們深受馬克思革命思想的影響，並沒有受到美國教育框架的限制。
+[閱讀原文](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-roundtable-discussion-industry-executives-reopening/)
 
 0

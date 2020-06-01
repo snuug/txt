@@ -1,71 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月29-30日 美國政要推文選譯
-`2020-05-30 23:44 GM65` [轉載自GNews](https://gnews.org/zh-hant/218300/)
+## 牆內法治人士談CCP如何推行“假法治”，謀求“真獨裁”！
+`2020-05-31 02:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/218444/)
 
-> After doing an extensive investigation into companies doing business with US sanctioned entities globally, Germany’s companies ranked #1.The quiet Diesel engines on all Chinese attack submarines ARE MADE IN GERMANY.We shouldn’t expect 🇩🇪 to fight the CCP. [@vtchakarova](https://twitter.com/vtchakarova?ref_src=twsrc%5Etfw) [@nglinsman](https://twitter.com/nglinsman?ref_src=twsrc%5Etfw) [https://t.co/QFreu7v383](https://t.co/QFreu7v383)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [May 30, 2020](https://twitter.com/Jkylebass/status/1266749666412113920?ref_src=twsrc%5Etfw)
+**作者：懶洋洋**
 
-卡爾·巴斯先生：在對全球與被美國制裁的實體有業務往來的公司進行廣泛調查之後發現，德國公司排名第壹。中國進攻型潛水艇上安裝的靜音柴油發動機全部是德國制造。我們別指望德國能夠反共了。
+本人在中國大陸體制內，常年從事地區法治牽頭工作，對CCP“假法治”既深惡痛絕又無可奈何。可以說，CCP在設立全球最大防火牆（Firewall）基礎上，對內全面推行CCP特色“假法治”，讓“真獨裁”滲透到國家體制的每寸肌膚、每個毛孔。
 
-Velina Tchakarova：“生意回來了”：德國高管返回中國。根據在中國的德國商會的壹項交易，德國公司的職員可以返回中國，這是德國絕對重要的貿易夥伴。
+**一、CCP宣稱領導一切工作。**
 
-> Carrie Lam is attempting to mislead Hong Kongers. Despite what she says, the national security legislation will NOT “only target a small minority of illegal and criminal acts and activities.”
-> 
-> It will change HK as we know it. [https://t.co/Yc245ITCpX](https://t.co/Yc245ITCpX)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266412747803299840?ref_src=twsrc%5Etfw)
+1.CCP領導寫入憲法。2017年10月，中共十九大報告中指出：“堅持黨對一切工作的領導。黨政軍民學，東西南北中，黨是領導一切的”。2018年3月通過憲法修正案，增加規定：“中國共産黨領導是中國特色社會主義最本質的特征”。
 
-參議員 Marsha Blackburn：林鄭月娥正企圖誤導香港人民。不管她說什麽，這個國安法不會“單單針對壹小部分非法犯罪行為和活動。”我們知道它將改變香港。
+2.CCP控制國家重要權力。CCP體制存在“五套班子”，即黨委、人大、政府、政協、紀委，不論在中央和地方都是如此設置，當然黨委是最高領導組織。在黨內職務級別上，這五套班子的領導級別是最高的，特別是高于法院、檢察院領導。CCP下設衆多權力部門，例如組織部、宣傳部、統戰部、政法委等。其中組織部壟斷國家領導幹部的考察提拔；宣傳部成爲新聞媒體的領導單位；統戰部負責分化拉攏民主黨派無黨派人士、民主宗教人士、港澳台海外人士等；政法委則指導監督審判機關、檢察機關、公安機關、國家安全機關、司法行政機關等部門開展工作，維護社會穩定。這些權力都是來自百姓，本該由國家代爲行使，卻被CCP壟斷。
 
-《華爾街日報》：香港特首呼籲人民支持北京強加給香港的國安法
+3.民主黨派接受CCP的領導。中國境內有8個民主黨派，即中國國民黨革命委員會、中國民主同盟、中國民主建國會、中國民主促進會、中國農工民主黨、中國致公黨、九三學社和台灣民主自治同盟。民主黨派只能是參政黨，且要接受CCP的政治領導。1989年12月，中共中央《關于堅持和完善中國共産黨領導的多黨合作和政治協商制度的意見》進一步規範了黨對民主黨派政治領導的內涵，“中共對各民主黨派的領導是政治領導，即政治原則、政治方向和重大方針政策的領導”。設置政協的目的就是以相對不明顯的方式推行民主黨派接受CCP的領導。
 
-> China sends student spies to infiltrate our universities and steal our secrets. Legislation I introduced with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) would ban Chinese nationals from obtaining post-graduate degrees in STEM fields. [https://t.co/WK5RYObitE](https://t.co/WK5RYObitE)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 29, 2020](https://twitter.com/MarshaBlackburn/status/1266388923720372225?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31023519/image0-146-74.jpg)
 
-參議員 Marsha Blackburn：中國派學生間諜滲透到我們的大學裏，竊取我們的秘密。我和科頓參議員提起的立法議案將禁止中國公民獲得科學、技術、工程和數學領域的研究生學位。
+**二、千方百計防控“真法治”發生。**
 
-Katie Pavlich：早就該如此了。美國將取消與中國軍校有聯系的數千名中國研究生的簽證
+1.嚴控媒體討論“真法治”。媒體姓黨，不能自由討論多黨制、三權分立、司法獨立、言論出版自由、集會結社自由等，現在在微信等上發言，都會受到審查，如果越界就可能會被刪除發言、被封賬號，甚至被喝茶。同時，黨和政府明確提出不搞多黨制和權力制衡等。例如2009年3月9日，吳邦國作全國人大常委會工作報告，就明確提出：“要積極借鑒人類社會創造的文明成果包括政治文明的有益成果，但絕不能照搬西方的那一套，絕不搞多黨輪流執政，‘三權分立’、兩院制” 。
 
-> In particular, I’m pleased the administration will be adopting policies similar to my PLA Visa Security Act. America’s soldiers, sailors, airmen, & Marines shouldn’t have to face Chinese weapons systems designed by individuals trained in the United States. [https://t.co/qfRLdyFdvT](https://t.co/qfRLdyFdvT)
-> — Tom Cotton (@SenTomCotton) [May 29, 2020](https://twitter.com/SenTomCotton/status/1266465666879631361?ref_src=twsrc%5Etfw)
+2.各種改革不能推行“真法治”。長期以來推行的司法體制改革，不能觸及司法獨立。近幾年掀起的法治建設熱潮，避開“真法治”需求；法治建設不研究權力是否有效制衡，重點聚焦依法行政；法治建設怎麽建、怎麽考核，是CCP或政府自己牽頭確定，缺少百姓的真實需求和真實感受，大家可以看看習近平在第二次全面依法治國委員會會議上審議通過的《市縣法治政府建設示範指標體系》規定的約100條指標。
 
-參議員 Tom Cotton：特別讓我高興的是，政府將采用與我的《解放軍相關學生簽證安全法案》類似的政策。美國士兵、水手、飛行員和海軍陸戰隊員不應被迫面對美國培養的人為中國設計的武器系統。
+3.勞民苦民愚民政策讓百姓沒時間沒精力了解和推動“真法治”。中國民衆的住房、教育、醫療等非常缺乏保障，加上相當部分人收入不高，缺乏公正的投訴救濟渠道，缺乏民主法治真相的了解，因此活著已經不容易了，不用說追求民主法治了。在前幾天的全國兩會記著會上，李克強說中國“有6億中低收入及以下人群，他們平均每個月的收入也就1000元左右，1000元在一個中等城市可能租房都困難，現在又碰到疫情”，這還只是從經濟收入看。
 
-> This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): NIH on funding Wuhan virus lab; China strategic approach rejects past engagement policy; Grenell tightened unmasking rules [https://t.co/GU72PSd1n7](https://t.co/GU72PSd1n7)
-> — Bill Gertz (@BillGertz) [May 29, 2020](https://twitter.com/BillGertz/status/1266450173611380741?ref_src=twsrc%5Etfw)
+**三、媒體領域：成爲CCP宣傳洗腦“假法治”的工具。**
 
-比爾·格茨先生：本周《華盛頓時報》“Inside the Ring”專欄：美國國家衛生院談資助武漢病毒實驗室；對中戰略方針摒棄過去的（讓中國）參與政策；格林內爾收緊身份揭露規則
+1.CCP宣稱黨管媒體。人民日報在2016年03月21日《如果管不住新媒體 黨管媒體原則就會被架空》指出：“無論媒體的背景是什麽、同黨委和政府管理部門的關系是什麽，黨管媒體的原則和制度都不能變”。現在省領導、市領導對外的發言稿，還得事先經過CCP宣傳部門的審查。
 
-> The Chinese Communist Party is crushing what made Hong Kong different from the rest of China. As a result, the President no longer believes it’s justified to treat Hong Kong the same as before. The U.S. will defend itself from the tyranny of the CCP. [pic.twitter.com/OJNoDoPvRJ](https://t.co/OJNoDoPvRJ)
-> — Secretary Pompeo (@SecPompeo) [May 30, 2020](https://twitter.com/SecPompeo/status/1266708471413641217?ref_src=twsrc%5Etfw)
+2.鼓吹“CCP法治”的虛假優越性。大量媒體都在宣傳中國政治制度有集中力量辦大事的制度優勢，包括習近平也在說“我們最大的優勢是我國社會主義制度能夠集中力量辦大事”，但是爲什麽對于衆多百姓住不起房、得不到好教育、缺乏好醫療條件、極少重大科技創新等一系列關系百姓切身利益和國家重大利益的領域存在問題，反而沒能辦成大事？只能說，CCP剝奪了百姓這些權益拿去辦一些所謂的大事了。
 
-美國國務卿 蓬佩奧：中共正在摧毀令香港有別於中國其他地方的東西。所以，總統先生不再認為像以前壹樣對待香港是合理的。美國將捍衛本國不受中共暴政的侵害。
+3.片面宣傳“真法治”的負面影響。例如言論自由肯定有負面影響，可能造謠、誤傳不實信息，官媒對這方面宣傳非常積極，甚至加上一些陰謀論；但是沒有言論自由，將會助長獨裁體制和催生更多虛假，危機思想和生命自由，這些官媒就避而不談或避重就輕。《人民日報》2018年02月05日刊載《“言論自由”背後的商業驅動》，就說“有專家指出，網絡不良文化蔓延，不僅僅是網絡管理問題，所謂維護‘言論自由’的背後，也有著巨大的商業利益驅動。美國是當今世界網絡産業最發達的國家，掌握著全球最先進的網絡技術，全球主要互聯網科技公司大都來自美國，這對于維護其在網絡空間的“霸權地位”有著極其重要的意義”。
 
-> The CCP is preventing Chinese students from returning home from the US. Claiming they don’t want infection. Then they’re telling the students that the US is preventing them from leaving. Imagine what their parents are going through.
-> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266888416739934209?ref_src=twsrc%5Etfw)
+**四、立法決策領域：難以體現民意，缺乏程序保障。**
 
-斯伯丁將軍：中共正阻止中國學生離美回國。聲稱他們怕被染病。然後他們告訴學生們，美國阻礙他們離開。想象壹下那些父母正在經歷著什麽。
+1.人大作爲名義上的國家權力機關被CCP架空。有個非常形象的說法，即“黨委揮手，人大舉手，政府動手，政協拍手”，不是空穴來風。首先，人大也設CCP組織，也得服從CCP的領導。其次，人大代表産生過程就決定了其很難代表人民。省級和全國人大代表都是間接選舉産生，有多少人參加過選人大代表的投票，有多少人投票的時候對候選人大代表有了解，你可以隨便問問周圍的人。第三，人大代表絕大部分都是兼職的，本來就有自己的其他事業或崗位，沒有專門的時間和精力去調查民意、形成議案，何況很多都是基于CCP統戰需求才入選的。第四，人大代表投票權缺乏安全保障。人大代表對某個項目進行投票的時候，可以被查出投了反對權，可能因此被清算。
 
-> Riots all throughout the US – “China has again warned that it will retaliate against the United States if Washington takes action over Hong Kong this week.”[https://t.co/KczZrcHP6o](https://t.co/KczZrcHP6o)
-> — General Spalding (@robert\_spalding) [May 31, 2020](https://twitter.com/robert_spalding/status/1266887205361983489?ref_src=twsrc%5Etfw)
+2.立法內容缺乏民意、缺乏質量。立法項目的産生，主要來自CCP和政府的需求；立法項目征集到的社會意見只是作爲參考，領導如果有不同意見，那得聽領導的。很多領導缺乏法治意識，常常要求立法匆忙推出。所有，有很多的立法，缺乏足夠的調研探討和反複斟酌，常常出現立法內容繁雜、相互衝突又缺少操作性。
 
-斯伯丁將軍：美國各地發生暴動——“中國再壹次警告說，如果本周華盛頓對香港采取行動，它將對美國進行報復。”
+3.很多決策沒有上升爲立法，決策制定過程更加簡單。很多管理制度和管理要求是以大量的規範性文件或決策文件的形式發布。這些文件數量巨大，不少文件擔心社會爭議大就列爲涉密或敏感文件，並未認真落實征集公衆意見和合法性審查程序。文件質量問題比立法質量問題更多。特別是很多重要的決策都是以ccp文件形式出台，比政府文件影響更大，但實際上走的流程反而更簡單，更缺乏公衆意見征集。
 
-《南華早報》：中國發誓要對美國幹預香港國安法的行為進行反擊
+**五、執法領域：難以實現普遍公正。**
 
-> 40 percent of the discussion around coronavirus and COVID-19 is coming from bots. [https://t.co/iDEgMMKTTl](https://t.co/iDEgMMKTTl) [https://t.co/0uOhMh9Yze](https://t.co/0uOhMh9Yze)
-> — General Spalding (@robert\_spalding) [May 30, 2020](https://twitter.com/robert_spalding/status/1266708579249270784?ref_src=twsrc%5Etfw)
+1.很多執法依據缺乏操作性。立法過程常常沒有充分考慮研討，制定的立法內容操作性不強，也導致執法不順暢，不能實現普遍公平。例如執法裁量標准規定不科學不明確，各地執法就會不統一，同個執法單位也會出現前後不一。
 
-斯伯丁將軍：關於冠狀病毒和疫情的討論，40%是機器人所為。
+2.壓縮社會自治空間，執法力量變得不足。CCP強調大政府模式，本來市場能自己調節的也要管，相應的就出現執法力量嚴重不足，本該大力執法的領域難以保障執法力度。《人民網》2008年12月01日《1比20000，執法力量嚴重不足怎麽辦？》就提到：“東南亞國家勞動監察人員與從業人員的比例是1:8000至10000，而我國是1:20000。這樣懸殊的比例，讓勞動監察人員根本無暇顧及大多數用人單位是否嚴格守法。即使這些監察人員整天在外監察，也難免會出現監察不到的地方”。
 
-> “People say…[#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw) will become just another Chinese city—without freedoms, without the rule of law, independence of the judiciary, personal safety…”
-> 
-> HK "Iron Lady" [@EmilyLauWH](https://twitter.com/EmilyLauWH?ref_src=twsrc%5Etfw) discusses the [#NationalSecurityLaw](https://twitter.com/hashtag/NationalSecurityLaw?src=hash&amp;ref_src=twsrc%5Etfw) on [@AmThoughtLeader](https://twitter.com/AmThoughtLeader?ref_src=twsrc%5Etfw)
-> 
-> 🔴PREMIERE 8pm ET: [https://t.co/w5lSTYqKPz](https://t.co/w5lSTYqKPz) [pic.twitter.com/xvkivuKVP8](https://t.co/xvkivuKVP8)
-> — Jan Jekielek 😷 (@JanJekielek) [May 28, 2020](https://twitter.com/JanJekielek/status/1266141908553826304?ref_src=twsrc%5Etfw)
+3.經常存在運動式執法。有些領域日常執法效果不佳，容易積累産生大的問題，此時如果有領導發現提出要求，就會開展專門的運動式執法，此時執法還會經常要求加重處罰。例如在類似打黑除惡、掃黃打非以及整治安全生産等社會治安管理工作中，相關部門經常搞“大會戰”，實行專項治理、集中整治等等，在短期內收到較好的效果，但缺乏長久之效。
 
-斯伯丁將軍 轉推 Jan Jekielek：“人們說…香港只不過將成為另壹個中國的城市——沒有自由，沒有法治、司法獨立和個人安全…”香港“鐵娘子”劉慧卿女士在“美國思想領袖”節目談香港國安法。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/30234336/08_58.png)
+**六、司法領域：嚴重缺乏獨立性。**
+
+1.設立紀檢監察機構，嚴重侵蝕司法獨立性。紀委是CCP的黨內機構，規格高于CCP普通部門，是專司監督檢查查處CCP機構和CCP黨員的機關。監察委是專司監督檢查所有行使公權力（包括黨的機關和國家機關）的公職人員的機關。（2018年3月通過《監察法》，監察機構從原來的監察局上升爲監察委，監察局隸屬于政府，監察委獨立于政府。）紀委和監察委實行合署辦公，一套班子，兩塊牌子。
+
+紀委可以雙規當事人，監察委可以留置當事人，直接涉及人身自由。（“雙規”出于《中國共産黨紀律檢查機關案件檢查工作條例》中第二十八條第一款第三項，“要求有關人員在規定的時間、地點就案件所涉及的問題作出說明”。）
+
+實踐中，公職人員在有違法犯罪嫌疑的時候，基本上是由紀委監察委先來，然後才可能移交檢察院審查、提起公訴。關鍵是如果紀委、監察委不認爲有犯罪，不移送案件，檢察院哪能提起公訴。看4月19日對公安部副部長孫力軍的調查，是紀委監察委先發布消息“公安部黨委委員、副部長孫力軍涉嫌嚴重違紀違法，目前正接受中央紀委國家監委紀律審查和監察調查”。5月8日，人力資源和社會保障部發布消息，國務院免去孫力軍的公安部副部長職務。
+
+2.設立信訪機構，嚴重影響司法權威性。由于司法缺乏獨立性，大量的矛盾糾紛不能公正解決，因此CCP設立信訪機構這個怪胎，允許自然人或組織向各級行政機關提出訴求，就算是司法審判後的也可以提出，導致很多人“信‘訪’不信‘法’”。官大一級壓死人，上訪者往往希望更上級機關來壓下極機關，以維護自己合法或非法的利益，所以經常會看到他們“千方百計進京城”的壯觀場面。相應的，各級機關也千方百計防止他們越級上訪、進京上訪。
+
+3.法院檢察院沒有獨立性。法院檢察院系統的人事和財政管理都不獨立，受制于CCP、人大和政府，吃人嘴軟，法院檢察院不敢得罪給自己發工資的部門。因此，法院法官檢察院檢察官難以獨立辦案。
+
+**七、軍事領域：軍隊聽黨的。**
+
+CCP信仰“槍杆子裏出政權”，宣稱對軍隊的絕對領導。軍隊行動聽從CCP中共中央、中央軍委的指揮，而非國家權力機關。
+
+**結束語**
+
+CCP“假法治”的本質在于維護人數極少的盜國賊利益，70年來，國家財富不斷向人數極少的盜國賊集聚，貧富差距驚人，百姓住房、教育、醫療、言論自由、人身自由極度缺乏保障，有多少人爲生計疲于奔命、苦不堪言，有多少人被塑造成沒有信仰、無法遠慮、充滿仇恨的“行屍走肉”！
+
+感謝郭先生，感謝爆料革命，很感恩能夠跟隨您，我們一定會幹倒防火牆（firewall），幹倒CCP，一定會實現“真法治”，恢複中華的真善美，追求正義的力量和財富，造福自己，造福世界。
+
+（文章內容僅代表作者觀點）
+
 0
