@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DT挖掘機團隊出品】爲什麽說中共病毒不可能源于自然而必然産生于實驗室
-`2020-06-01 00:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/219239/)
+## 日本小學發生集體感染
+`2020-06-01 02:20 GM09` [轉載自GNews](https://gnews.org/zh-hant/219332/)
 
-**作者：DT挖掘機團隊**
+作者：多國語言組 （翻譯者：待命 校對者：yuyu）
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003601/image0-1.jpg)
+31日，北九州新增CCP病毒感染病例12人，已得到確認。
 
-[**爲什麽說中共病毒不可能源于自然而必然産生于實驗室**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003912/%E7%88%B2%E4%BB%80%E9%BA%BD%E8%AA%AA%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E4%B8%8D%E5%8F%AF%E8%83%BD%E6%BA%90%E4%BA%8E%E8%87%AA%E7%84%B6%E8%80%8C%E5%BF%85%E7%84%B6%E7%94%A3%E7%94%9F%E4%BA%8E%E5%AF%A6%E9%A9%97%E5%AE%A4.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003912/%E7%88%B2%E4%BB%80%E9%BA%BD%E8%AA%AA%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E4%B8%8D%E5%8F%AF%E8%83%BD%E6%BA%90%E4%BA%8E%E8%87%AA%E7%84%B6%E8%80%8C%E5%BF%85%E7%84%B6%E7%94%A3%E7%94%9F%E4%BA%8E%E5%AF%A6%E9%A9%97%E5%AE%A4.pdf)
+其中，4人是本月28日被確診感染的小學生的所在校，小倉南區的守恒小學校的孩子。 該學校被確診感染CCP病毒學生，共計5人。也就是說，北九州市的小學校發生了集體感染。
 
-**請點擊下載按鈕，下載文檔觀看！**
+評論：由於日本沒有真正的認識到CCP病毒的危害，而在沒有科學的認證的前提下，盲目的開放社會，引起學校在內的集體感染發生，並且綜合日本的報導，東京和北九州發生不明路徑感染者，意味著有無癥狀感染者的存在。務必請在日本戰友不要外出，務必不要染上CCP病毒。
 
-（文章內容僅代表作者觀點）
+來源：
+
+[https://www3.nhk.or.jp/news/html/20200531/k10012452781000.html](https://www3.nhk.or.jp/news/html/20200531/k10012452781000.html)
 
 0

@@ -1,47 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 深圳出現棄房斷供潮，房地產崩盤真的還遠嗎
-`2020-05-31 17:02 GM06` [轉載自GNews](https://gnews.org/zh-hant/218897/)
+## 美國和巴西聯邦共和國關於衛生合作的聯合聲明 (2020.05.31)
+`2020-05-31 20:35 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/218990/)
 
-作者:文茗
+*白宮於5月31日發布了《美國和巴西聯邦共和國關於健康合作的聯合聲明》。聲明說，美國和巴西人民在抗擊冠狀病毒方麵團結一致。美國向巴西交付了羥氯喹（HCQ）。兩國之間的聯合研究工作將包括隨機對照臨床試驗，以幫助進一步評估HCQ在冠狀病毒的預防和早期治療中的安全性和有效性。*
 
-近日深圳的確發生了大量7折法拍房網上拋售的現象。很多國內共產黨宣傳機構，宣傳拍賣房源相比去年激增了222%，房地產暴漲在即等等鼓吹房地產的資訊。但事實上，資料都沒有錯，是法拍房增多。為什麼法拍房激增，原因很簡單就是經濟崩盤、失業高起導致棄房、斷供現象大量出現所致。
+**Joint Statement From the United States of America and the Federative Republic of Brazil Regarding Health Cooperation**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165021/1-131-83.jpg)
+**美國和巴西聯邦共和國關於衛生合作的聯合聲明**
 
-同時網上一篇深圳本地銀行帳號斷供的消息也印證了這一點：
+Issued on: May 31, 2020
+發佈於：2020年5月31日
 
-在銀行工作了18年的王先生說，2020開年以來，我們這個銀行網點每月就有一兩千個帳號斷供，以為就是這個樣子了。因為，深圳雖然受疫情影響，外貿企業關閉的比較多，但是整體支付水準還是比較強的。
+The American and Brazilian people stand in solidarity in the fight against the coronavirus.  Today, as a demonstration of that solidarity, we are announcing the United States Government has delivered two million doses of hydroxychloroquine (HCQ) to the people of Brazil.  The United States will also soon be sending 1,000 ventilators to Brazil.
 
-但是，沒有想到，到了五月，僅我們銀行的一個網點，斷供的帳號就達到了1.3萬個。其他銀行和其他網點的斷供情況怎麼樣，不清楚，估計也不會太樂觀。
+美國和巴西人民團結一致抗擊冠狀病毒。今天，為了表明這種團結，我們宣布美國政府已交付了200萬劑羥氯喹（HCQ）給巴西人民。美國還即將賦予巴西1000台呼吸機。
 
-他說，全市斷供的帳號，如果統計出來，估計更大、更可怕。
+HCQ will be used as a prophylactic to help defend Brazil’s nurses, doctors, and healthcare professionals against the virus.  It will also be used as a therapeutic to treat Brazilians who become infected.
 
-真是沒有想到斷供潮會來的這麼快，前兩天看到新聞說深圳及全國的法拍房達到了82萬套，我還持懷疑態度，半信半疑，因為法拍的原因大部分是因斷供引起的，現在看來，是真的了，沒想到，真沒想到，斷供潮真就來了。
+羥氯喹將作為一種預防劑來幫助巴西的護士，醫生，和醫療保健專業人士抵抗禦病毒。羥氯氟烷也將作為一種治療法用於治療被感染的巴西人。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165052/2-98-61.jpg)
+Further, in continuation of the two countries’ longstanding collaboration on health issues, we are also announcing a joint United States-Brazilian research effort that will include randomized controlled clinical trials.  These trials will help further evaluate the safety and efficacy of HCQ for both prophylaxis and the early treatment of the coronavirus.
 
-一般斷供的根本原因就是這麼兩點：一種是個人破產沒錢還貸，；一種是房子價值大幅下跌，不願意還貸。
+此外，為繼續糾正在健康問題上的長期合作，我們還宣布一個美國-巴西聯合研究，該研究將包含隨機對照臨床試驗。這些試驗將幫助進一步評估羥氯噻吩在冠狀病毒的預防和早期治療中的安全性和有效性。
 
-最典型的破產導致斷供的事例就是，90年代前後的日本房地產危機。那時，日本經濟躍升到全球第二，實有趕超美國的趨勢。製造業衰退引發全民買房、全民炒房，像瘋了一般。1987年，日本房價增幅53%，1988年出現6200人搶1套房，1991年東京房價高達90萬一平，當時的名言“東京的地價可以買下整個美國”。此後的廣場協議，日本大幅升值，加上華爾街的集體做空、日本國內主動刺破泡沫，導致日本房價迅猛下跌。因而大批高杠杆買房的人資不抵債，斷供潮發生。這次房地產的瘋狂留給日本的是“失去的二十年”。
+Going forward, the United States and Brazil will remain in close coordination in the shared fight against the coronavirus pandemic and the ongoing regional response to safeguard public health, further limit the spread of the coronavirus, advance the early development of a vaccine, and save lives. With President Donald J. Trump and President Jair Bolsonaro having spoken twice since March, the two countries are well-positioned to continue their work together to address the coronavirus pandemic, in addition to other matters of strategic importance.
 
-房子價值下跌，不願意還貸，實例就發生在首都北京環京北三縣之一的燕郊。燕郊地區房價15年均價1萬，16年均價2萬，17年上半年接近3萬，大批買房人蜂擁而至。隨著限購政策的出臺，17年下半年價格出現下降，18年回到2萬一平，19年只剩1.8萬一平，2020年初1.5萬一平。兩年時間，房價“腰斬”。燕郊確實出現了大量“斷供現象”，也有很多人選擇拋售，比如今年4月新聞曾有報導的“燕郊有房東0元賣房”，只要有人能把銀行貸款接手，自己可以0元賣。
+在未來，美國和巴西將保持密切合作，共同應對冠狀病毒大流行病，繼續採取區域性應對措施，進一步限制冠狀病毒的傳播，推進疫苗的早期開發，以及挽救生命。川普總統和博爾索納羅總統自3個月以來已經兩次通話，除了其他具有戰略意義的事務外，一旦將充分有力地繼續合作解決冠狀病毒大流行病。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165145/3-35-34.png)
-
-資料顯示，今年從1月份到5月，二手房掛牌量進入高峰值，多數城市將創下歷史新高：北京約10.6萬套左右；上海約7.5萬套左右；廣州超過7.5萬套；深圳約4.6萬套左右；蘇州、杭州、南京、合肥、瀋陽、青島的二手房掛牌量，分別約為9.9萬套、7.1萬套、9.1萬套、7.4萬套、7.6萬套、11.5萬套左右。
-
-二手房數量的激增說明了大量購房者都在拋售房產，背後原因其實很簡單。
-
-首先是CCP病毒衝擊世界經濟，而尤其是以出口經濟為主的沿海城市，首先受到了衝擊，大量企業倒閉、人員失業出售手裡的不動產緩解財務壓力是在正常不過的方法。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31165254/4-30-28.png)
-
-最為關鍵的一點其實是，共產黨為了它“保經濟”所謂的新基建計畫，必須抑制房價上漲，不能讓資金繼續進入房地產行業。以及房地產稅徵收的預期，都增加“先知先覺”的一部分房屋持有者逃離平倉的動力。
-
-追根溯源任何一個國家的房地產經濟，都必須建立在實體經濟這個基礎之上。從美國開始和中共脫鉤那一刻開始，已經註定了中共國房地產崩盤的結果。當實體經濟這個基礎崩塌之時，就是房地產崩盤之日，這個壯觀的“景色”距離越來越近了。
-
-(文章內容僅代表作者觀點)
+*翻譯：【紅鬍子】 校對：【JoyJoy】*
 
 0

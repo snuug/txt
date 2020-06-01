@@ -1,25 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
+## 川普總統關於喬治·弗洛伊德事件第一時間的回應
+`2020-06-01 02:09 GM31` [轉載自GNews](https://gnews.org/zh-hant/219319/)
 
-戰友之家圖文摘要組及小語種組
+[5月29日](https://www.youtube.com/watch?v=vzr8RmA4fBA&amp;t=1636s)，在與各行業高管就經濟重啟問題的圓桌會議中，川普總統就喬治·弗洛伊德事件的發生表示非常悲痛。在其後的回答記者問題環節中，他就先前就明尼阿波利斯抗議事件發表的推文，回答了記者問話。表明推文只是闡述事實，沒有其他，不涉及種族歧視。同時，總統認為大多是美國警察一向是優秀的。但當地政府對於這次抗議事件的發生沒有做好有效的應對工作。
 
-[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
-
-[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
-
-[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
-
-[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
-
-[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
-
-[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
-
-[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
-
-
+*翻譯:【Jojo】校對：【Hart文雙】字幕：【Ahri（阿狸）】*
 
 0

@@ -1,34 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國和巴西聯邦共和國關於衛生合作的聯合聲明 (2020.05.31)
-`2020-05-31 20:35 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/218990/)
+## 從中共海軍種菜說起
+`2020-05-31 22:08 GM30` [轉載自GNews](https://gnews.org/zh-hant/219133/)
 
-*白宮於5月31日發布了《美國和巴西聯邦共和國關於健康合作的聯合聲明》。聲明說，美國和巴西人民在抗擊冠狀病毒方麵團結一致。美國向巴西交付了羥氯喹（HCQ）。兩國之間的聯合研究工作將包括隨機對照臨床試驗，以幫助進一步評估HCQ在冠狀病毒的預防和早期治療中的安全性和有效性。*
+**作者：玉米地大姐**
 
-**Joint Statement From the United States of America and the Federative Republic of Brazil Regarding Health Cooperation**
+中新網31日發布一條視頻，報道海軍在西沙海灘成功種菜。三沙市永興島海灘上一片“沙變土”試驗田喜獲豐收，半畝地收割蔬菜1500多斤，這標志著西沙海灘種植蔬菜首獲成功。如果將這一技術大面積推廣，有望解決駐島駐礁軍民吃青菜難題。
 
-**美國和巴西聯邦共和國關於衛生合作的聯合聲明**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31214018/2-98-67.jpg)
 
-Issued on: May 31, 2020
-發佈於：2020年5月31日
+衆所周知，中共軍隊除了走正步、疊被子以外，還有養豬、種地自己動手豐衣足食的優良傳統。這話聽起來悅耳，實則暴露了軍糧供應還停留在埋鍋造飯階段。
 
-The American and Brazilian people stand in solidarity in the fight against the coronavirus.  Today, as a demonstration of that solidarity, we are announcing the United States Government has delivered two million doses of hydroxychloroquine (HCQ) to the people of Brazil.  The United States will also soon be sending 1,000 ventilators to Brazil.
+朝鮮戰爭，毛太子要不是開火蛋炒飯，何至于引來美軍飛機投炸彈丟了小命，可見當時志願軍的後勤供應有多落後。
 
-美國和巴西人民團結一致抗擊冠狀病毒。今天，為了表明這種團結，我們宣布美國政府已交付了200萬劑羥氯喹（HCQ）給巴西人民。美國還即將賦予巴西1000台呼吸機。
+我們不妨和美軍軍糧比較一下，不和現在的美軍軍糧比，因爲沒有可比性，比比二戰時期美軍的戰時口糧吧。
 
-HCQ will be used as a prophylactic to help defend Brazil’s nurses, doctors, and healthcare professionals against the virus.  It will also be used as a therapeutic to treat Brazilians who become infected.
+美軍參戰同時把軍糧配給供應建成一套體系來運作，其特點是便于運輸、容易存放，打開即食，免去烹饪時間，以便軍人集中精力對敵作戰。其軍糧分爲B(B ration)、C (C ration)、K (K ration)及D(D ration)。
 
-羥氯喹將作為一種預防劑來幫助巴西的護士，醫生，和醫療保健專業人士抵抗禦病毒。羥氯氟烷也將作為一種治療法用於治療被感染的巴西人。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31214203/3-94-72.jpg)
 
-Further, in continuation of the two countries’ longstanding collaboration on health issues, we are also announcing a joint United States-Brazilian research effort that will include randomized controlled clinical trials.  These trials will help further evaluate the safety and efficacy of HCQ for both prophylaxis and the early treatment of the coronavirus.
+B口糧有5-in-1和 10-in-1兩個版本。5-in-1就是5名軍人1天口糧，包括：蔬菜、肉類、煉乳、果汁、麥片、速溶湯料、餅幹、硬糖果、鹽、白砂糖、衛生紙，提供3種不同的菜單搭配方式。
 
-此外，為繼續糾正在健康問題上的長期合作，我們還宣布一個美國-巴西聯合研究，該研究將包含隨機對照臨床試驗。這些試驗將幫助進一步評估羥氯噻吩在冠狀病毒的預防和早期治療中的安全性和有效性。
+“10-in-1”是10名軍人1天內的口糧，比5人版本增加了黃油、速溶咖啡、布丁、果醬、甜點、速溶飲料粉、香煙、火柴、肥皂、淨水藥片、開罐器、毛巾，菜單也由之前的3種增至5種。
 
-Going forward, the United States and Brazil will remain in close coordination in the shared fight against the coronavirus pandemic and the ongoing regional response to safeguard public health, further limit the spread of the coronavirus, advance the early development of a vaccine, and save lives. With President Donald J. Trump and President Jair Bolsonaro having spoken twice since March, the two countries are well-positioned to continue their work together to address the coronavirus pandemic, in addition to other matters of strategic importance.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215144/4-31-41.jpg)
 
-在未來，美國和巴西將保持密切合作，共同應對冠狀病毒大流行病，繼續採取區域性應對措施，進一步限制冠狀病毒的傳播，推進疫苗的早期開發，以及挽救生命。川普總統和博爾索納羅總統自3個月以來已經兩次通話，除了其他具有戰略意義的事務外，一旦將充分有力地繼續合作解決冠狀病毒大流行病。
+C口糧是單兵隨身口糧，可保證一日三餐。包括6個小罐頭，3個罐頭是肉類，另外3個罐頭是面包類。品種包括肉/豆類、肉/蔬菜、肉/通心面條、雞蛋/土豆、肉/米飯，香腸/豆類、火腿等品種。1944年初，C口糧中還添加了糖衣花生、葡萄幹、檸檬/橘子飲料粉、可可粉、焦糖、口香糖。
 
-*翻譯：【紅鬍子】 校對：【JoyJoy】*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215231/5-31-26.jpg)
+
+K口糧也叫空降兵口糧，一箱12人用量，有12份早餐、午餐、晚餐，品種有黃油、餅幹、奶酪、砂糖、果醬、速溶咖啡、巧克力、口香糖、火腿罐頭、午餐肉罐頭、開瓶器、餐勺、餐巾紙、火柴、香煙。彩色包裝盒，早餐爲棕色、午餐爲綠色、晚餐爲藍色。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215358/6-21-17.jpg)
+
+D口糧也叫巧克力棒，成分包括：可可脂、蔗糖、奶粉、燕麥粉、香精、維他命B1，可提供約600卡的熱量，可直接食用巧克力棒，還能其溶于水，當作飲料飲用。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215501/7-18-8.jpg)
+
+相信讀者看了上述介紹，都饞的咽口水，軍糧分類、營養搭配如此細致、科學，體現了美國對士兵的重視程度。
+
+反觀共軍的夥食，2019年10月份解放軍報發報道，題爲：“食”代變遷：回望軍營盤中餐
+
+文章先回顧抗美援朝志願軍戰士“一把炒面一把雪，一個蘋果輪著吃”，六十年代，開荒生産、養豬種菜自給自足。然後筆鋒一轉寫道：
+
+今天的軍營餐桌，“六菜一湯”已成標配，雞蛋、牛奶、水果天天見。隨著野戰給養單元、新型野戰快餐的推行，“軍字頭”飲食保障逐步向野戰飲食實戰訓練延伸。
+
+給養供應模式也在變革。近年來，隨著全軍後勤社會化保障模式的推進，旅隊全面取消營連農副業生産活動，昔日镌刻著老兵們“迷彩記憶”的菜地、豬圈，正在被一個又一個野外訓練場取而代之。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215527/8-10-4.jpg)
+
+不比不知道，一比嚇一跳，相信很多人和筆者一樣，甯願選擇美軍的二戰口糧，也不吃共軍的“六菜一湯。前者是科學的營養搭配，後者大鍋飯管飽。
+
+至于共軍配給的罐頭、壓縮餅之類的野戰口糧不說也罷，免得敗了大家的胃口。回到開篇海軍種菜，從2008年汶川地震，支援部隊就地搭竈台炒菜被國內外譏笑，到如今海軍基地種菜，表明中共依舊沒有建立起成熟的後勤保障體系。
+
+否則何勞士兵們種菜？功夫都用在種菜上了，海軍成了“菜鳥軍”還談什麽軍事訓練？吹狼蛋吧。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31215705/9-7-2.jpg)
+
+中共每年的國防預算開支節節升高，軍費層層克扣被谷俊山、徐才厚們收入囊中，將軍喝茅台如水，到了士兵嘴裏的只剩下菜湯了。
+
+從軍糧可以看出一個國家對待普通一兵的態度，一個盛産唱歌將軍、小品將軍、口炮將軍和貪腐將軍的軍隊，士兵就是混飯吃的准炮灰而已。這樣的軍隊能打勝仗，鬼才信！
+
+（文章內容僅代表作者觀點）
 
 0

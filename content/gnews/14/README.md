@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 六四獻言:呼喚教育的獨立和公平在喜馬拉雅後⋯
-`2020-05-31 20:38 Laojiang` [轉載自GNews](https://gnews.org/zh-hant/219027/)
+## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
 
-作者： 加拿大喜马拉雅农场 上进哥
+戰友之家圖文摘要組及小語種組
 
-作為一個自認為在教育領域工作了近十年的非體制老師,在二〇二〇六四這個非凡的日子,我想寫上自己關于喜馬拉雅後教育的八字建言:教育獨立 、教育公平 !
+[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
 
-沒有教育的獨立,我們的教育就會被政府全權操縱,甚至變為洗腦愚民的工具,我們的老師將不能在課堂上表達個人對于歷史,政府的看法,揭露這個社會的真相、腐朽與政府的黑暗!
+[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
 
-沒有教育的獨立,我們的教育將變成一個體制的固化劑,讓學校將孩子變成社會的一個個螺絲釘!
+[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
 
-沒有教育的獨立,我們的教育將不會認識到”孩子的天性與個性”,不會允許孩子盡情的發揮他們的所長,成為一個”獨一無二”的生命,去開創個人與眾不同的人生!
+[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
 
-沒有教育的獨立,我們的大學也不能自主招生,去發現和培育優秀的人才!
+[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
 
-我們既需要關注教育的獨立,也要創造一個普惠大眾的福利:教育公平!一個窮人家的孩子,他能上貴族學校嗎?當然不能!
+[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
 
-一個窮人家的孩子,他能在中共國和權貴子弟一樣,輕鬆考上大學和重點學府嗎?當然不能!一個窮人家的孩子,當城市的孩子在父母的百般呵護下,學著各種特長,愛好,從小就擁有眾多的童書和玩具,他能嗎?當然不能!
+[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
 
-一個窮人家的孩子,當父母被迫遠離故土,在城市裡干著苦力,他可以跟著父母,來到城市,就讀於城市的公立學校嗎?當然不能!
 
-當一個國家和政府,不能讓教育獲得獨立, 自由,教育的公平也很難實現,民辦、私立小眾的學校將受制於政府的法律文件,游離於艱辛的辦學理想中, 二十多年前的台灣如此, 十多年前開始的中共國”另類教育”也如此! 沒有多元的教育(學校)選擇,何來教育公平?
-
-想想自己, 年近不惑, 依舊艱辛的想完成二十年前的大學夢, 這在中共國, 可能完成嗎? 當然不能!而我們爆料革命, 喜馬拉雅理想發源地的美利堅共和國, 基礎的社區大學和私立大學卻早已遍地開花, 生根發芽, 白發蒼蒼的老者, 可以和年方十八的青年在同一個課堂, 這是怎樣的一個美好國度!
-
-好的教育難道不是只要你願意學, 學校之門永遠為你開嗎?
-
-好的教育難道不是無論你窮與富, 不會失去學習的機會嗎?
-
-所以簡言之: 教育的獨立和公平, 是人獲得自由, 幸福的前提和保證; 我深切的期盼著,教育的獨立和公平,在喜馬拉雅後…
 
 0
