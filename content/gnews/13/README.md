@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DT挖掘機團隊出品】爲什麽說中共病毒不可能源于自然而必然産生于實驗室
-`2020-06-01 00:40 GM30` [轉載自GNews](https://gnews.org/zh-hant/219239/)
+## 中共強推國安法，引來逃港潮
+`2020-06-01 02:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/219347/)
 
-**作者：DT挖掘機團隊**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01025450/1.jpg)
+彭博社報道，中共對香港強行推進國安法的行為引來了港人恐慌，大批港人湧向移民機構諮詢移民信息，希望儘快離開香港。有移民諮詢機構表示他們的諮詢量暴漲了20%。中共對香港自由的蠶食非一日之寒，上周的國安法是駱駝背上最後一根稻草。鑒於美國已經宣布取消香港特殊地位，許多人由於擔心以後前往美國會受到限制，因此加速了他們的移民步伐。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003601/image0-1.jpg)
+港人逃離香港的理由主要是擔心香港的未來，看不到希望。上一次香港經歷類似的人才大逃亡是在64之後，在1990到1994年之間，共有大約30萬港人移民。港人移民的目的地主要包括歐洲、英國、澳洲、台灣和馬來西亞。
 
-[**爲什麽說中共病毒不可能源于自然而必然産生于實驗室**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003912/%E7%88%B2%E4%BB%80%E9%BA%BD%E8%AA%AA%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E4%B8%8D%E5%8F%AF%E8%83%BD%E6%BA%90%E4%BA%8E%E8%87%AA%E7%84%B6%E8%80%8C%E5%BF%85%E7%84%B6%E7%94%A3%E7%94%9F%E4%BA%8E%E5%AF%A6%E9%A9%97%E5%AE%A4.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01003912/%E7%88%B2%E4%BB%80%E9%BA%BD%E8%AA%AA%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E4%B8%8D%E5%8F%AF%E8%83%BD%E6%BA%90%E4%BA%8E%E8%87%AA%E7%84%B6%E8%80%8C%E5%BF%85%E7%84%B6%E7%94%A3%E7%94%9F%E4%BA%8E%E5%AF%A6%E9%A9%97%E5%AE%A4.pdf)
+雖然香港的未來和中共的瘋狂讓人膽寒，但是仍有人不願意離開香港。有的人是因為父母年老，擔心移民之後遇到其他如種族問題的挑戰而選擇留在香港。但是在港人眼裡，香港的未來一片昏暗，甚至擔心香港會比大陸的審查還要嚴。
 
-**請點擊下載按鈕，下載文檔觀看！**
+在香港有300萬英國海外公民，目前英國內政部已經表示可以打開渠道讓英國海外居民身份持有者前往英國居住。
 
-（文章內容僅代表作者觀點）
+[原文鏈接](https://www.bloomberg.com/news/articles/2020-05-31/china-s-security-law-sends-hong-kong-residents-dashing-for-exit)
+
+翻譯報道：匿名
 
 0
