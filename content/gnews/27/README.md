@@ -1,13 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “我們正在目睹一場美中之間冷戰的開始嗎？”
-`2020-05-31 18:54 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/218923/)
+## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
+`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
 
-川普總統與企業界高管在[5月29日](https://www.youtube.com/watch?v=vzr8RmA4fBA)舉行重啟美國的圓桌會議上，被記者問到疫情和香港問題是否會導緻美中冷戰的開始。川普總統再次強調中共本應該在源頭上阻止病毒的傳播，卻任由病毒傳到全球186個甚至更多的國家。美國必須力查真相。
+戰友之家圖文摘要組及小語種組
 
-*翻譯：【一花一世界】 校對：【奔腾的长江】字幕：【班班】*
+[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
 
-[閱讀原文](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-roundtable-discussion-industry-executives-reopening/)
+[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
+
+[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
+
+[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
+
+[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
+
+[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
+
+[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
+
+
 
 0

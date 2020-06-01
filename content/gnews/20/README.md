@@ -1,25 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
+## 中共強推國安法，引來逃港潮
+`2020-06-01 02:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/219347/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01025450/1.jpg)
+彭博社報道，中共對香港強行推進國安法的行為引來了港人恐慌，大批港人湧向移民機構諮詢移民信息，希望儘快離開香港。有移民諮詢機構表示他們的諮詢量暴漲了20%。中共對香港自由的蠶食非一日之寒，上周的國安法是駱駝背上最後一根稻草。鑒於美國已經宣布取消香港特殊地位，許多人由於擔心以後前往美國會受到限制，因此加速了他們的移民步伐。
 
-[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
+港人逃離香港的理由主要是擔心香港的未來，看不到希望。上一次香港經歷類似的人才大逃亡是在64之後，在1990到1994年之間，共有大約30萬港人移民。港人移民的目的地主要包括歐洲、英國、澳洲、台灣和馬來西亞。
 
-[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
+雖然香港的未來和中共的瘋狂讓人膽寒，但是仍有人不願意離開香港。有的人是因為父母年老，擔心移民之後遇到其他如種族問題的挑戰而選擇留在香港。但是在港人眼裡，香港的未來一片昏暗，甚至擔心香港會比大陸的審查還要嚴。
 
-[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
+在香港有300萬英國海外公民，目前英國內政部已經表示可以打開渠道讓英國海外居民身份持有者前往英國居住。
 
-[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.bloomberg.com/news/articles/2020-05-31/china-s-security-law-sends-hong-kong-residents-dashing-for-exit)
 
-[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
-
-[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
-
-[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
-
-
+翻譯報道：匿名
 
 0
