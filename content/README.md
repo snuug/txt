@@ -12,6 +12,8 @@
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版:郭先生2020年5月29日GTV直播](/content/2020/06/20200601-3800927915915287668.md)
+
 [文字版:5月27日郭先生GTV直播](/content/2020/05/20200530-3579241706056800133.md)
 
 [文字版：5月25日郭先生GTV直播](/content/2020/05/20200528-6916942439704303274.md)
@@ -59,8 +61,6 @@
 [文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
 
 [文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
-
-[文字版:2020年4月28日郭先生GTV直播](/content/2020/05/20200502-1137245394833329218.md)
 
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
