@@ -1,24 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國際共產主義運動追蹤——美國有哪些共產主義組織
-`2020-05-31 05:24 Diago` [轉載自GNews](https://gnews.org/zh-hant/218540/)
+## 英國放寬香港人移民政策保守黨議員稱其為「道義之舉」
+`2020-05-31 06:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/218564/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31051403/%E4%B8%8B%E8%BC%89-3_%E5%89%AF%E6%9C%AC.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31063855/1-113-93.png)图片来自香港电台
+據英國《衛報》報道，英國內政部看起來已經對有資格申請英國國籍的香港公民極大放寬了數量，這意味著如果中共國推動在香港實施嚴厲的新國安法計劃，數百萬香港人將可以申請。
 
-篇首聲明：本文中列明的四個美國本土的共產主義組織作為筆者挖掘國際共產主義運動的一個小小的成果，在整理這份資料的時候我非常擔心這四個組織有名無實，在查閱了這四個共產主義組織的官網之後，我確信，我的查證結果無誤，具體情況如下：
+中共人大本周四通過了一項決議，為香港製定新的國家安全法開闢了道路。 這項決議遭到了數個西方政府的譴責，英美聯手在紐約聯合國安理會提出這一問題的努力被中俄兩國的反對而付之東流。英國內政大臣普里蒂•帕特爾（Priti Patel）表示，她對中共國的立法提案深表關注。帕特爾說：「如果中共國實施這項法律，我們將探索各種辦法，允許海外英國國民申請在英國停留的許可，包括獲得公民身份的途徑。」 她說，英國將繼續捍衛香港人民的權利和自由。 內政部在其網站上還表示，對於一些符合條件的申請者來說，十二個月的期限可以延長。
 
-1、美國共產黨人黨（Party of Communists USA），簡稱PCUSA，官網[https://partyofcommunistsusa.org/](https://partyofcommunistsusa.org/)：【我們在2014年建立了美國共產黨人黨（Party of Communists USA），正是因為我們看到了這種急切的需求——在美國建立不止步于和平問題的強大的共產主義運動。在和平問題上，我們需要的是代表工人階級的無畏聲音。這是每個共產黨人的職責所在。】（摘自：[美國共產黨人黨：十月革命是燈塔](https://zhuanlan.zhihu.com/p/29792443)）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31051712/%E4%B8%8B%E8%BC%89-1.png)
-2、爭取社會主義和解黨（Party for Socialism and Liberation）簡稱PSL，（官網：[https://www.pslweb.org/](https://www.pslweb.org/)）：【總部位於紐約州的“公正中心”（JusticeCenter）現在成為了這座城市裡草根階級的救災中心。“公正中心”也是“爭取社會主義和解放黨”、“行動起來阻止戰爭和結束種族主義聯盟”和其他進步社區組織的總部。】（摘自2017年12月25日發表的[特朗普激化了資本主義制度的內在矛盾 | 美國“爭取社會主義和解放黨”訪談](https://zhuanlan.zhihu.com/p/32342038)）【2004年6月18日至20日，美國爭取社會主義與解放黨（Party for Socialism and Liberation，PSL）召開了成立大會。】（摘自[美國爭取社會主義與解放党成立15周年：成長與學習](https://zhuanlan.zhihu.com/p/90141568)）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31052020/index.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31052039/DjSSkg4UcAARyTq.jpg)
-3、美國民主社會主義者（Democratic Socialists of America）簡稱 DSA，官網[https://www.dsausa.org/](https://www.dsausa.org/)：【2018年6月26日，在紐約第14國會選區的初選中，28歲的民主社會主義者亞歷山德里亞·奧凱西奧-科特茲（Alexandria Ocasio-Cortez），靠著不知疲倦的基層宣傳和雄心勃勃的議程，戰勝了企業資金支持的強大選舉機器，擊敗了民主黨眾議員喬·克勞利（Joe Crowley）。她的競選議程包括：全民醫療保險，將住房保障納入人權範疇，廢除歧視性移民法案以及移民和海關執法局。這一結果被認為是2018年最大的政治震動。
+英國政府的決定激怒了中共國政府，並可能冒著遭到有反移民傳統的保守黨選民強烈反對的危險。外交大臣多米尼克•拉布（Dominic Raab）本周四表示，如果中共繼續堅持對香港實施國家安全法的計劃，英國將向約35萬英國國民海外（BNO）護照持有人延長簽證權利。他說，簽證權利將從六個月延長至十二個月，因此為未來的公民身份提供了一條不言而喻的途徑。 但是，本周五內政部在官方博客中澄清說，該權利將涵蓋任何目前居住在香港的有資格申請BNO護照的香港公民，估計有290萬人。這其中的255萬人，大多數曾持有過BNO護照，但並未續簽。BNO護照是指那些簽發給在1997年領土被英國移交給中共國主權之前出生的香港居民。內政部官方博客還說，所有申請延期簽證的人都將適用英國普通移民法的規定，目前該法的定義範圍並未擴大。 博客會隨後添加更多詳細信息。
 
-奧凱西奧-科特茲是美國民主社會主義者（Democratic Socialists of America）的成員。她以57%對42%的優勢輕鬆戰勝了克勞利。】（摘自[美國民主社會主義者擊敗眾議員大佬](https://zhuanlan.zhihu.com/p/38944045)）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31052121/%E4%B8%8B%E8%BC%89-1-4-2.jpg)
-4、美國共產黨（Communist Party USA）簡稱：CPUSA，官網[http://www.cpusa.org/](http://www.cpusa.org/)（據[美國共產黨的發言 | 第19次共產黨和工人党國際會議](https://zhuanlan.zhihu.com/p/47016119)英文網址[19 IMCWP, Contribution of CP USA \[En\]](https://link.zhihu.com/?target=http%3A//legacy.solidnet.org/usa-communist-party-usa/19-imcwp-contribution-of-cp-usa-en)）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31052155/%E4%B8%8B%E8%BC%89-2-1.jpg)
-（文章內容僅代表作者個人觀點）
+目前尚不清楚保守黨議員是否準備好，在該黨為擺脫歐盟控制移民而進行的長期鬥爭後，讓成千上萬的香港公民來到英國。
+
+本周五，主要競選保守黨議員鮑勃•塞利（Bob Seeley）寫道：「從香港大規模逃離來英國的香港人受到庇護，這樣的可能情形十分罕見，但英國應該在道義上做出正確的選擇， 正如1972年烏干達的瘋狂獨裁者伊迪•阿明（Idi Amin）驅逐了烏干達的印第安人，他們被英國和其他國家接受的情形一樣。」
+
+中共國外交部表示，英國已同意護照持有人不應享有居留權，並且該提議違反了國際法，同時警告要予以報復。 外交部發言人趙立堅說：「中國保留採取必要措施的權利。」他補充說，中共認為在香港的中國居民是中國公民，無論他們持有哪種護照。 中共國擔心這個繁榮國際城市發生大規模移民，並認為英國這次放寬簽證的做法可能會破壞香港的經濟穩定。
+
+評：在香港人民的自治權利被中共不斷侵犯之際，在一國兩制已經名存實亡的時刻，英國這個新證策雖然不能直接打擊中共，但至少也是起到釜底抽薪的作用，為香港人民提供了一條後路；然而相信更多勇敢的香港人不會捨得離開他們的家鄉，他們會選擇繼續抗爭到底，中共也妄想將「留港不留人」的瘋狂計劃順利實施，香港將會在痛苦中重生，將會成為中華民族的精神聖地！香港加油！
+
+[链接新闻](https://www.theguardian.com/world/2020/may/29/three-million-hong-kong-residents-eligible-for-uk-citizenship)
+
+翻译报道：人间四月
+
+
 
 0
