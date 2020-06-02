@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中文字幕完整版】班農疫情作戰室第203-204期
-`2020-06-01 21:13 GM10` [轉載自GNews](https://gnews.org/zh-hant/219920/)
+## 【世界多語言圖文】31/05/2020 CCP病毒每日疫情直播簡報
+`2020-06-01 22:58 GM77` [轉載自GNews](https://gnews.org/zh-hant/220105/)
 
-**戰友之家新聞譯制組**
+戰友之家圖文摘要組及小語種組
 
-Ep203 墮入地獄7——香港危機（1）
+[English\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225123/English_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225123/English_0531_CCP_Virus_Updates.pdf)
+
+[French\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225127/French_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225127/French_0531_CCP_Virus_Updates.pdf)
+
+[German\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225132/German_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225132/German_0531_CCP_Virus_Updates.pdf)
+
+[Japanese\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225137/Japanese_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225137/Japanese_0531_CCP_Virus_Updates.pdf)
+
+[Korean\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225140/Korean_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225140/Korean_0531_CCP_Virus_Updates.pdf)
+
+[Russian\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225153/Russian0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225153/Russian0531_CCP_Virus_Updates.pdf)
+
+[Spanish\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225148/Spanish_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225148/Spanish_0531_CCP_Virus_Updates.pdf)
 
 
 
-EP204 墮入地獄7——香港危機（2）
-
-
-
-
-
-0
+1

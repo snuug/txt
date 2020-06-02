@@ -1,55 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共基層多黑暗，村民舉報被宣判！
-`2020-06-01 22:25 GM30` [轉載自GNews](https://gnews.org/zh-hant/220053/)
+## 總統在2020年“全球科普特日”上的致辭
+`2020-06-02 01:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/220310/)
 
-**作者：玉米地大姐**
+2020年6月1日發佈
 
-6月1日，紅星新聞記者從中國裁判文書網獲悉，此前引發輿論高度關注的“河南農民舉報鎮幹部工作日飲酒被判敲詐勒索罪”一案有了新進展：河南省商丘中院二審駁回了涉案農民盧繼華的上訴，維持原判。
+I send my best wishes for a peaceful and blessed celebration to the millions of Coptic Christians in the United States and around the world observing Global Coptic Day.
 
-據紅星新聞2019年11月5日報道，河南虞城縣張集鎮村民盧繼華舉報鎮幹部工作日飲酒等被紀委認定不實，並被訴尋釁滋事。除了尋釁滋事罪外，盧繼華還被指控犯敲詐勒索罪。
+我衷心祝願美國和世界各地數以百萬計的東正教徒們得以幸福祥和地慶祝全球科普特日。
 
-2019年10月25日，虞城縣法院作出一審判決，認定檢方指控的尋釁滋事罪不成立，但敲詐勒索罪成立，判處有期徒刑一年九個月，並處罰金1000元。盧繼華自2018年2月11日開始被羁押，2019年11月10日被取保候審。
+Last year marked the first annual Global Coptic Day— an opportunity for the world to mark the contributions, legacy, and ongoing challenges facing the largest Christian group in the Middle East. This year, as we celebrate the second annual Global Coptic Day, we recognize the vital role faith, prayer, and service have in our lives, especially as we continue to face the challenges posed by the novel coronavirus pandemic.  We join with people of faith from every corner of the world in asking God to place his healing hand on those fighting the virus and to comfort those who are mourning the loss of a friend or a loved one.
 
-紅星新聞記者此前獲取的虞城縣檢察院起訴書稱，2014年至2017年期間，被告人盧繼華無事生非，多次舉報張集鎮政府工作人員任聖義、王伸奎、劉開慶、劉富強、張秋蘭等人工作日不上班或工作日飲酒等，後經虞城縣紀委調查，其舉報均不屬實。
+去年誕生了第一個的“全球科普特日”，它給全世界一個機會去瞭解中東最大基督教團體的貢獻、傳承及其面臨的不斷挑戰。當今年我們慶祝第二個“全球科普特日”時，我們認識到信仰、祈禱和服務精神在我們生活中起著至關重要的作用，尤其是在我們繼續面對新型冠狀病毒大流行帶來挑戰之時。我們願與來自世界各個角落滿懷信仰的人們一道，祈求上帝將其醫治之手放在那些與病毒作鬥爭的人身上，並讓那些因失去親朋摯愛而悲痛之人得以慰藉。
 
-起訴書還稱，2014年，被告人盧繼華舉報張集鎮原土管所長馬景存工作日飲酒並在辦公室睡覺，後盧繼華以給錢才同意在網上將舉報帖子刪除並不再舉報爲由，敲詐馬景存現金6000元。
+Today is also a time for us to acknowledge the importance of religious freedom and reaffirm our commitment to promoting and defending this core tenet of a free society.  Tragically, far too many people the world over face persecution on account of their faith.  In September of 2019, during a speech at the United Nations, I called on world leaders to take action to put an end to all attacks by state and non-state actors against citizens for simply worshipping according to their beliefs.  I challenged them to work to prevent threats and acts of violence against our sacred places of worship.  No one should fear for their safety in a house of worship anywhere in the world.
 
-一審時，盧繼華辯護律師認爲，對國家工作人員言行進行監督，是法律賦予的權利，盧繼華不存在惡意舉報，“都是通過中紀委和國家信訪局網站，並未在網絡上形成傳播，沒有擾亂社會秩序，不應構成尋釁滋事犯罪。他舉報的都是親眼所見的事，不是蓄意捏造誣陷，就算紀委調查後認定不屬實，公民的正常程序舉報行爲也不應是犯罪行爲”。
+今天也是我們明確宗教自由重要性之時並再次重申，我們將致力於促進和捍衛自由社會這一核心宗旨。可悲的是，世界上有太多人因信仰而遭受迫害。 2019年9月，我在聯合國的一次演講中呼籲世界各國領導人採取行動，制止國家和非國家行為者對公民僅僅因其信仰崇拜而進行攻擊的行為。我向他們發出挑戰並採取行動，以阻止他們對我們神聖禮拜場所的一切威脅和暴力行為。任何人，都不應該在世界任何地方的禮拜堂中還需擔心他們自身的安全。
 
-盧繼華本人也在庭審時辯解，他進行舉報後，當地相關領導聯系他，讓他不要再進行舉報，他同意了，“沒有收過錢或物”。
+At my direction, the State Department convened its second Ministerial to Advance Religious Freedom last summer, where diplomats and stakeholders from government and civil society, as well as religious leaders, engaged and identified tangible and meaningful ways to eliminate religious persecution and discrimination around the world and secure greater respect for freedom of religion and belief for all.  We must ensure that we are using every tool at our disposal to ensure that every man, woman, and child feels safe and secure to worship according to their conscience and beliefs—no matter where they live.
 
-一審判決書內容顯示，法院未認定檢方對盧繼華尋釁滋事的指控，“國家紀委網站和國家信訪局網站，對反映人的反映事項內容不對社會公開，不足以證明盧繼華的舉報造成了社會秩序嚴重混亂，其行爲也不符合構成尋釁滋事罪的其他法定情形”。
+在我的指導下，國務院於去年夏天召開了第二屆部長級推進宗教自由的會議，來自政府和民間社會的外交官和利益攸關方及宗教領袖們，參與並確定了切實可行的方法來消除世界各地的宗教迫害和歧視，以便致力於保障尊重所有人的宗教信仰自由。我們必須全力以赴來確保每個人，不管男女老幼，無論身居何方，都可以依照自己的良心和信仰進行安全而有保障的崇拜活動。
 
-關于檢方指控的敲詐勒索罪名，盧繼華辯護律師認爲，對盧繼華敲詐勒索罪的指控沒有具體時間，地點存在矛盾，事實不清，證據不足。
+I hope today’s observance is filled with prayer and joy, and provides those celebrating with a renewed sense of purpose and faith.  May God bless each of you.
 
-虞城縣法院則認爲，經查，盧繼華敲詐勒索的犯罪事實，有被害人的陳述和證人的證言，因此認定“盧繼華以非法占有爲目的，要挾他人，索取錢財，數額較大，其行爲已構成敲詐勒索罪”。
+我希望今天的慶祝活動充滿祈禱和歡樂，並予以慶祝的人們有全新的使命感和信念。願上帝保佑你們每個人!
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01221754/2-7.jpg)
+出處： [Presidential Message on Global Coptic Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-global-coptic-day-2020/)
 
-“6000元”舉報案折射出中共舉報制度的凶險與詭異，明面上歡迎所有人舉報，可舉報的內容不對外公開，這就給權力尋租留下操作空間。
+*翻譯：【一花一世紀】 校對：【Melody太陽的旋律】【GM31】*
 
-如果被舉報者恰巧是要扳倒的政敵，正好借刀殺人。被舉報者若是自家人，倒黴的則是舉報者。路繼華很不幸成了後者。
-
-路繼華相信中共舉報制度引來牢獄之災，縣法院的判決有明顯的漏洞。“路繼華以給錢才同意在網上將舉報帖子刪除並不再舉報爲由，敲詐馬景存現金6000元。”
-
-如果馬景存沒做什麽違規之事，爲何輕易讓路繼華敲詐6000元？
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01221836/3-3.jpg)
-
-一個村民吃飽了沒事幹去敲詐鎮幹部，居然敲詐成功，簡直天方夜譚。對照路繼華的辯解“當地相關領導聯系他，讓他不要再進行舉報，他同意了，沒有收過錢或物”。
-
-就算路繼華撒謊，這位馬所長怎麽沒有路繼華索錢，收錢的現場錄音、照片或錄相視頻？明知道是敲詐，什麽證據都不留？還有那位證人，既然是證人，一定在案發現場吧，也什麽都不做，眼睜睜的看著敲詐發生？
-
-根據被舉報人陳述和證人證言，無有配套證據形成的完整證據鏈，就認定舉報人構成犯罪的事實依據。這不是黑箱操作是什麽？
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01221915/4-2.jpg)
-
-該案看似不大，反映的卻是中共基層幹部的窮凶極惡是多麽的肆無忌憚，一個鎮上的土管所長就可輕而易舉地將司法玩弄于股掌之間，中共所宣揚的法律面前人人平等就是一句騙人的鬼話。
-
-莫須有的6000元，讓路繼華獲刑一年零九個月，誰再相信中共的舉報制度，誰就是下一個路繼華！
-
-（文章內容僅代表作者觀點）
+*戰友之家玫瑰園小隊出品*
 
 0
