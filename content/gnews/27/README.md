@@ -1,43 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月1日 美國政要推文選譯
-`2020-06-02 00:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/220260/)
+## 總統在2020年“全球科普特日”上的致辭
+`2020-06-02 01:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/220310/)
 
-> Absolutely. I’ve long said that [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is the most significant geopolitical threat to the United States and our allies for the next century. We need to act like it. [https://t.co/uIx68NTUuS](https://t.co/uIx68NTUuS)
-> — Senator Ted Cruz (@SenTedCruz) [June 1, 2020](https://twitter.com/SenTedCruz/status/1267504760279752704?ref_src=twsrc%5Etfw)
+2020年6月1日發佈
 
-參議員 Ted Cruz：沒錯。我很早就說中國是美國和盟友最大的地緣政治威脅。我們應該相時而動。
+I send my best wishes for a peaceful and blessed celebration to the millions of Coptic Christians in the United States and around the world observing Global Coptic Day.
 
-Politico網：蓬佩奧說中國對西方構成持續威脅
+我衷心祝願美國和世界各地數以百萬計的東正教徒們得以幸福祥和地慶祝全球科普特日。
 
-> US suspends student and research visas for Chinese nationals linked to CCP and PLA [https://t.co/ItXwpVYBHV](https://t.co/ItXwpVYBHV)
-> — Bill Gertz (@BillGertz) [June 1, 2020](https://twitter.com/BillGertz/status/1267525385216024578?ref_src=twsrc%5Etfw)
+Last year marked the first annual Global Coptic Day— an opportunity for the world to mark the contributions, legacy, and ongoing challenges facing the largest Christian group in the Middle East. This year, as we celebrate the second annual Global Coptic Day, we recognize the vital role faith, prayer, and service have in our lives, especially as we continue to face the challenges posed by the novel coronavirus pandemic.  We join with people of faith from every corner of the world in asking God to place his healing hand on those fighting the virus and to comfort those who are mourning the loss of a friend or a loved one.
 
-比爾·格茨先生：美國暫停發放與中共和解放軍有關聯中國公民的學生和研究人員簽證。
+去年誕生了第一個的“全球科普特日”，它給全世界一個機會去瞭解中東最大基督教團體的貢獻、傳承及其面臨的不斷挑戰。當今年我們慶祝第二個“全球科普特日”時，我們認識到信仰、祈禱和服務精神在我們生活中起著至關重要的作用，尤其是在我們繼續面對新型冠狀病毒大流行帶來挑戰之時。我們願與來自世界各個角落滿懷信仰的人們一道，祈求上帝將其醫治之手放在那些與病毒作鬥爭的人身上，並讓那些因失去親朋摯愛而悲痛之人得以慰藉。
 
-《華盛頓時報》：美國國務院將限制與軍方有關聯的中國公民的簽證
+Today is also a time for us to acknowledge the importance of religious freedom and reaffirm our commitment to promoting and defending this core tenet of a free society.  Tragically, far too many people the world over face persecution on account of their faith.  In September of 2019, during a speech at the United Nations, I called on world leaders to take action to put an end to all attacks by state and non-state actors against citizens for simply worshipping according to their beliefs.  I challenged them to work to prevent threats and acts of violence against our sacred places of worship.  No one should fear for their safety in a house of worship anywhere in the world.
 
-> On Friday the President took action to help safeguard U.S. national security and limit the PRC’s ability to use nonimmigrant student and researcher visa programs to steal U.S. technology, intellectual property, and information in pursuit of military dominance.[#MilitaryCivilFusion](https://twitter.com/hashtag/MilitaryCivilFusion?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Pompeo (@SecPompeo) [June 1, 2020](https://twitter.com/SecPompeo/status/1267497183118573569?ref_src=twsrc%5Etfw)
+今天也是我們明確宗教自由重要性之時並再次重申，我們將致力於促進和捍衛自由社會這一核心宗旨。可悲的是，世界上有太多人因信仰而遭受迫害。 2019年9月，我在聯合國的一次演講中呼籲世界各國領導人採取行動，制止國家和非國家行為者對公民僅僅因其信仰崇拜而進行攻擊的行為。我向他們發出挑戰並採取行動，以阻止他們對我們神聖禮拜場所的一切威脅和暴力行為。任何人，都不應該在世界任何地方的禮拜堂中還需擔心他們自身的安全。
 
-美國國務卿 蓬佩奧：周五，總統先生采取行動捍衛美國國家安全，限制中共國利用非移民學生和研究人員簽證項目竊取美國技術、知識產權和信息，擴大其軍事優勢。
+At my direction, the State Department convened its second Ministerial to Advance Religious Freedom last summer, where diplomats and stakeholders from government and civil society, as well as religious leaders, engaged and identified tangible and meaningful ways to eliminate religious persecution and discrimination around the world and secure greater respect for freedom of religion and belief for all.  We must ensure that we are using every tool at our disposal to ensure that every man, woman, and child feels safe and secure to worship according to their conscience and beliefs—no matter where they live.
 
-> This is a Chinese Communist Party that has come to view itself as intent upon the destruction of Western ideas, Western democracies, and Western values. It puts Americans at risk, whether it’s stealing American intellectual property or destroying jobs here in the U.S. [pic.twitter.com/89JlUuARro](https://t.co/89JlUuARro)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267218821477261313?ref_src=twsrc%5Etfw)
+在我的指導下，國務院於去年夏天召開了第二屆部長級推進宗教自由的會議，來自政府和民間社會的外交官和利益攸關方及宗教領袖們，參與並確定了切實可行的方法來消除世界各地的宗教迫害和歧視，以便致力於保障尊重所有人的宗教信仰自由。我們必須全力以赴來確保每個人，不管男女老幼，無論身居何方，都可以依照自己的良心和信仰進行安全而有保障的崇拜活動。
 
-美國國務卿 蓬佩奧：中共是壹個打定主意要破壞西方觀念、西方民主和西方價值觀的政黨。無論是竊取美國知識產權還是毀掉美國本土就業機會，它讓美國人民面對危險。
+I hope today’s observance is filled with prayer and joy, and provides those celebrating with a renewed sense of purpose and faith.  May God bless each of you.
 
-> The Chinese Communist Party’s military advances are real. Our [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) is doing everything it can to make sure it understands this threat. President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will always keep us in a position where we can protect the American people. [pic.twitter.com/NPnLWAwm2b](https://t.co/NPnLWAwm2b)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267197424868765698?ref_src=twsrc%5Etfw)
+我希望今天的慶祝活動充滿祈禱和歡樂，並予以慶祝的人們有全新的使命感和信念。願上帝保佑你們每個人!
 
-美國國務卿 蓬佩奧：中共的軍事擴張是真實存在的。我們的國防部正盡其所能了解這種威脅。川普總統會確保我們有能力保護美國人民。
+出處： [Presidential Message on Global Coptic Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-global-coptic-day-2020/)
 
-> “America’s capital markets are the deepest and most resilient in the world because investors have confidence the rule of law exists here. Allowing China to continue to deceive them undermines America’s national security, economic security, and our values.” [https://t.co/Uql8oN0iXS](https://t.co/Uql8oN0iXS)
-> — General Spalding (@robert\_spalding) [June 1, 2020](https://twitter.com/robert_spalding/status/1267497176764203009?ref_src=twsrc%5Etfw)
+*翻譯：【一花一世紀】 校對：【Melody太陽的旋律】【GM31】*
 
-斯伯丁將軍：“美國資本市場是世界上最深和修復能力最強的，因為投資者對這裏的法治有信心。任由中國繼續欺騙他們會破壞美國國家安全、經濟安全和我們的價值觀。”
+*戰友之家玫瑰園小隊出品*
 
-Realclearpolitics網：華盛頓必須結束中國在我國市場中的欺詐行為
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02002258/08_66.png)
 0

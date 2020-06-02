@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年6月1日CCP冠狀病毒大流行第129集
-`2020-06-02 06:39 GM30` [轉載自GNews](https://gnews.org/zh-hant/220510/)
+## 疫情仍在持續，請勿大意！“中共病毒疫情每日熱線”
+`2020-06-02 06:55 GM30` [轉載自GNews](https://gnews.org/zh-hant/220526/)
 
-中共宣傳：擺地攤也要感恩戴德；河南安陽小麥減産嚴重，敏感百姓開始大量購糧；中共通過信息登記，監控與控制牆內百姓；中共兒童節洗腦下一代…
-
-
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
