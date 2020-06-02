@@ -1,35 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 總統在2020年“全球科普特日”上的致辭
-`2020-06-02 01:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/220310/)
+## 博彩業的發展背後是中共對菲律賓的控制
+`2020-06-02 04:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/220451/)
 
-2020年6月1日發佈
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02042644/1-8.png)
+6月1日，前菲律賓眾議員Mong Palatino 在 Diplomat網站發表文章揭露了中共通過賭博業對菲律賓經濟政治的影響，指出菲律賓離岸博彩運營商（POGOs）\*的迅速擴張與中共對羅德里戈•杜特爾特（Rodrigo Duterte）政府的影響力日益增強有關。
 
-I send my best wishes for a peaceful and blessed celebration to the millions of Coptic Christians in the United States and around the world observing Global Coptic Day.
+**菲律賓離岸博彩業現狀**
 
-我衷心祝願美國和世界各地數以百萬計的東正教徒們得以幸福祥和地慶祝全球科普特日。
+POGOs從事的是在線賭博。 由於在許多國家和地區禁止賭博，POGOs允許投注者通過互聯網進行下注和交易。根據菲律賓娛樂和博彩公司（PAGCOR）的說法，POGOs於2003年開始運營，但直到2016年杜特爾特上台後，政府才開始監管在線賭博中心。POGOs的大多數賭民是中共人，這也說明了為什麼從中共大陸招募工人來菲的原因。 據報道，估計有7萬名中共公民在馬尼拉的POGOs中工作。 但是這個數字可能更高，因為估計至少有200個運營中的POGOs是沒有許可證的。
 
-Last year marked the first annual Global Coptic Day— an opportunity for the world to mark the contributions, legacy, and ongoing challenges facing the largest Christian group in the Middle East. This year, as we celebrate the second annual Global Coptic Day, we recognize the vital role faith, prayer, and service have in our lives, especially as we continue to face the challenges posed by the novel coronavirus pandemic.  We join with people of faith from every corner of the world in asking God to place his healing hand on those fighting the virus and to comfort those who are mourning the loss of a friend or a loved one.
+**菲律賓離岸博彩業的負面影響**
 
-去年誕生了第一個的“全球科普特日”，它給全世界一個機會去瞭解中東最大基督教團體的貢獻、傳承及其面臨的不斷挑戰。當今年我們慶祝第二個“全球科普特日”時，我們認識到信仰、祈禱和服務精神在我們生活中起著至關重要的作用，尤其是在我們繼續面對新型冠狀病毒大流行帶來挑戰之時。我們願與來自世界各個角落滿懷信仰的人們一道，祈求上帝將其醫治之手放在那些與病毒作鬥爭的人身上，並讓那些因失去親朋摯愛而悲痛之人得以慰藉。
+今年早些時候，參議院舉行了一系列有關POGOs的聽證會，證實了過去四年來媒體有關POGOs問題的跟蹤報道，其中包括博彩運營商限制對菲律賓人的僱用，偷稅漏稅，對國內經濟的貢獻最小，涉及非法組織偷渡人工，辦理工作許可證中的貪污腐敗， 中共主導的博彩中心的泛濫給菲律賓帶來了安全隱患，並且大眾也公然，杜特爾特（Duterte）政府不惜犧牲其他行業為代價來推廣POGOs。
 
-Today is also a time for us to acknowledge the importance of religious freedom and reaffirm our commitment to promoting and defending this core tenet of a free society.  Tragically, far too many people the world over face persecution on account of their faith.  In September of 2019, during a speech at the United Nations, I called on world leaders to take action to put an end to all attacks by state and non-state actors against citizens for simply worshipping according to their beliefs.  I challenged them to work to prevent threats and acts of violence against our sacred places of worship.  No one should fear for their safety in a house of worship anywhere in the world.
+即使在COVID-19經濟資金停擺下，當PAGCOR積極推動恢復在線博彩運營時，POGOs的遊說力量變得更加顯著。 杜特爾特官員甚至辯稱，POGOs為經濟提供了「基本服務」，這種說法導致菲律賓資訊科技與業務流程協會發表聲明拒絕承認在線賭博運營商是其行業的一部分。
 
-今天也是我們明確宗教自由重要性之時並再次重申，我們將致力於促進和捍衛自由社會這一核心宗旨。可悲的是，世界上有太多人因信仰而遭受迫害。 2019年9月，我在聯合國的一次演講中呼籲世界各國領導人採取行動，制止國家和非國家行為者對公民僅僅因其信仰崇拜而進行攻擊的行為。我向他們發出挑戰並採取行動，以阻止他們對我們神聖禮拜場所的一切威脅和暴力行為。任何人，都不應該在世界任何地方的禮拜堂中還需擔心他們自身的安全。
+在參議院調查結束之後，POGOs的負面影響持續受到關注。環保主義者譴責了馬尼拉南部卡維特省的破壞紅樹林棲息地而改建為「 POGOs島」的行為；警方也指責POGOs牽涉到不斷增加的中共公民賣淫案；反洗錢委員會也報告稱他們監測到了從2017年至2019年間與POGOs活動相關的可疑交易。同時，在菲律賓努力對抗新冠疫情期間，媒體也報道出了一些專門為POGOs從業人員特設的診所和醫院。
 
-At my direction, the State Department convened its second Ministerial to Advance Religious Freedom last summer, where diplomats and stakeholders from government and civil society, as well as religious leaders, engaged and identified tangible and meaningful ways to eliminate religious persecution and discrimination around the world and secure greater respect for freedom of religion and belief for all.  We must ensure that we are using every tool at our disposal to ensure that every man, woman, and child feels safe and secure to worship according to their conscience and beliefs—no matter where they live.
+在受到多方批評的情況下，PAGCOR站出來回應了針對POGOs的批評， 它指出，政府將從POGOs業的額外收入中受益。 PAGCOR堅持認為POGOs會對經濟產生積極的連鎖反應，尤其是對房地產，運輸和零售業。
 
-在我的指導下，國務院於去年夏天召開了第二屆部長級推進宗教自由的會議，來自政府和民間社會的外交官和利益攸關方及宗教領袖們，參與並確定了切實可行的方法來消除世界各地的宗教迫害和歧視，以便致力於保障尊重所有人的宗教信仰自由。我們必須全力以赴來確保每個人，不管男女老幼，無論身居何方，都可以依照自己的良心和信仰進行安全而有保障的崇拜活動。
+**中共政府明修棧道，暗度陳倉**
 
-I hope today’s observance is filled with prayer and joy, and provides those celebrating with a renewed sense of purpose and faith.  May God bless each of you.
+這是一個頗有爭議和不光彩的話題。雖然中共政府表面上公開聲明拒絕POGOs在中共的運營，同時一直表示致力於「打擊跨境賭博活動」，中共駐馬尼拉大使館還稱，在線賭博破壞了其金融機構，加劇了中共的犯罪和社會問題，並威脅到了中共公民的生命安全 （值得注意的是，Mong在文章中描述中共公民在中共被當成 「現代奴隸」）， 菲律賓政府也否認其在博彩業給予中共公民優惠待遇，**但許多菲律賓人認為POGOs其實就代表著中共在菲律賓見不得光的投資**。
 
-我希望今天的慶祝活動充滿祈禱和歡樂，並予以慶祝的人們有全新的使命感和信念。願上帝保佑你們每個人!
+中共突然反對POGOs比較令人驚訝，當然，中共當局注意到了過去四年中不斷上升的中共移居菲律賓的人數。
 
-出處： [Presidential Message on Global Coptic Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-global-coptic-day-2020/)
+**菲杜特爾特政府通過支持POGOs向中共表忠心**
 
-*翻譯：【一花一世紀】 校對：【Melody太陽的旋律】【GM31】*
+杜特爾特政府繼續捍衛POGOs的運營，他要麼是在公開挑戰中共對賭博業的禁令，要麼就是在表現與中共建立更緊密經濟聯繫的決心。 菲律賓人越來越認同後一種觀點，他們將POGOs的興起等同於杜特爾特與中共政府的友好關係。
 
-*戰友之家玫瑰園小隊出品*
+如果說菲律賓的反華情緒激增，主要與公眾不滿中共在南中共海（當地人稱西菲律賓海）的侵略行為有關。 但是，POGOs的擴張加劇了菲律賓人對中共在菲經濟影響的敵意。這與僱用菲律賓人並受政府機構嚴格監管的其他中共投資和企業不一樣，POGOs頗具爭議，因為它們的運作方式不透明，而且是在杜特爾特政府的支持和特權下蓬勃發展。
+
+**多數菲律賓人對POGOs運營持反對觀點**
+
+自2017年以來一直在監獄服刑的總統批評家萊拉•德利馬參議員總結了許多菲律賓人對POGOs的看法和感受：「為什麼這些POGOs在菲律賓得到認可和吹捧，並被賦予合法企業的地位和特權 ？它們什麼時候在其發源國被取締？ 這一切的邏輯和道德在哪裡？ 這種法律和社會異常是不可接受的。」
+
+評：相信大多數菲律賓民眾對中共通過對POGOs支持的暗箱操作來影響菲國的政治經濟的企圖是清楚明白的
+
+\*菲律賓離岸博彩運營商（POGOs）– 是指在菲律賓註冊運營但客戶在菲律賓以外國家的在線賭博公司。（名詞解釋來源：Wikipedia）
+
+[原文鏈接](https://thediplomat.com/2020/06/chinas-clandestine-gamble-in-the-philippines/)
+
+翻譯報道：Sarathecat
+
+
 
 0
