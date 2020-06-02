@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】30/05/2020 CCP病毒每日疫情直播簡報
-`2020-05-31 22:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/219160/)
+## 美國已沒有理由給予香港特殊待遇
+`2020-06-01 03:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/219365/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01031046/1-1.jpg)
+美國國務卿彭佩奧（Michael Pompeo）周日表示，隨著北京方面通過一項限制香港自由的法案，美國現在沒有任何理由給香港比中國大陸更優惠的政策。
 
-[English\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220955/English_0530_CCP_Virus_Updates.pdf)
+彭佩奧還指出，中國領導人通過對香港實行更嚴格的控制，違反了維護香港自治的諾言。中國的橡皮圖章立法機構本周批准了一項提議，旨在通過懲罰顛覆，分裂國家，恐怖主義和外國干涉來平息動蕩的一系列新法律。 他說：「今天的中國共產黨已經不同於十年前。」該黨「有意破壞西方觀念，西方民主和西方價值觀」。
 
-[French\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31220958/French_0530_CCP_Virus_Updates.pdf)
+在彭佩奧領導下，過去一周，根據美國法律，美國取消了前英國殖民地-香港的自治區地位，這可能會導致嚴重的貿易後果。彭佩奧周日表示，唐納德•特朗普總統已下令審查香港所享有的一切優惠待遇，並予以取消。
 
-[German\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221002/German_0530_CCP_Virus_Updates.pdf)
+川普總統在周五的發言中稱，將對中國採取「強有力」和「有意義」的行動，但沒有提供具體細節。彭佩奧說：「如果中共國對待香港的方式與對待中國大陸的方式相同，那麼美國也就沒有了任何區別對待香港的依據。」香港政府表示：特朗普總統的行動是一種「威脅」，是「不合理的」。同時，中國共產黨的喉舌《人民日報》寫道，美國總統的講話「嚴重干涉了北京的事務，註定要失敗」。
 
-[Japanese\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221005/Japanese_0530_CCP_Virus_Updates.pdf)
+彭佩奧還重申了美國關於華為的立場，敦促歐洲各國政府停止與中國的華為技術有限公司（Huawei Technologies Co.）開展業務。雖然華為技術公司的先進技術和全球影響力使其在尋求建立快速5G網路的國家中很受歡迎，但因違反美國制裁禁令，華為和其他中國科技公司屢遭美國制裁，並被列入黑名單和被指責對美國安全構成威脅。彭佩奧談到華為時說，歐洲「需要將其從系統中刪除，並使用西方技術」。
 
-[Korean\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221012/Korean_0530_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.bloombergquint.com/politics/pompeo-says-u-s-now-has-no-basis-to-treat-hong-kong-specially)
 
-[Russian\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221016/Russian0530_CCP_Virus_Updates.pdf)
-
-[Spanish\_0530\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31221022/Spanish_0530_CCP_Virus_Updates.pdf)
-
-
+翻譯報道：匿名
 
 0

@@ -1,26 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄研發鼻腔注入式的病毒疫苗
-`2020-06-01 06:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/219417/)
+## 華盛頓斷網了嗎？——中共媒體開始了沉船前的再一次瘋狂抹黑
+`2020-06-01 10:19 Diago` [轉載自GNews](https://gnews.org/zh-hant/219581/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01063731/Picture-1.png)
-據韓國《國民日報》報導，俄羅斯正在研發一種可以取代傳統肌肉注射，轉從鼻腔注入人體的疫苗。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01100733/0455.jpg_wh860.jpg)
+作者：Diago
 
-俄羅斯塔斯社當地時間30日援引馬修托夫中心所長所說的話:”位於西伯利亞諾沃西維爾斯克的國立病毒與生命工學研究中心，正在開發鼻腔注入式的中共冠狀病毒疫苗。”
+隨著六四的日益臨近，以及GTV上郭先生的令人無限遐思的蓋特：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01100859/EZZsxbRU8AE7ztC.jpg)
+再加上路德先生最新的[6/1/2020 路德時評（路安墨談)：中共超限戰偷襲美國，各戰場全面交戰，六四新中國聯邦宣言之後，川普政府即將聯合曝料革命法治基金全面對抗中共！](https://www.youtube.com/watch?v=u6feQ7ka9So)開場欲說還休的對於六四的解讀，這些實際上已經開啟了中共滅亡的倒計時，在時鐘滴答滴答行走時，對於行將就木的中共來說，每一分每一秒都是心驚膽戰的煎熬，大勢已去之下，對於美國的新一輪的謠言和抹黑也新鮮出爐，華盛頓斷網的消息已經在微信和網路上瘋傳。
 
-馬修托夫所長解釋說:”疫苗不僅功能不同，在免疫化方法和方案上也存在差異，我們正在開發的疫苗之一不是傳統的肌肉內註射方式，而是使用滴入鼻腔的方式。 “
+據[**江望遠**](https://weibo.com/2727457564?refer_flag=1001030103_) [2020年6月1日21:00新浪微博](https://weibo.com/2727457564/J4F6vrgPM?refer_flag=1001030103_) 來自 [西西弗斯的iPhone X](https://weibo.com/)[#dcblackout#](https://s.weibo.com/weibo?q=%23dcblackout%23)
+華盛頓DC已經斷網7小時了，snapchat和Instagram這些似乎都不能用了。
+從9小時前的視頻來看抗議者幾乎是看見什麼燒什麼，大概就是美國昨天午夜時分的視頻。
+目前因為斷網了看不到最新情況，推特在瘋狂刪帖。 [L江望遠的微博視頻](http://t.cn/A62NN1tD) ​（視頻為原微博視頻）
 
-同時，他還表示，目前該疫苗的藥效和安全性都正在進行臨床前試驗，評估藥物的有效性和無害性。目前的觀察結果是，動物都經受住了考驗，沒有出現發熱等異常反應。
+[關於“華盛頓斷網”的相關網頁顯示結果](https://www.baidu.com/s?tn=99682755_hao_pg&amp;ie=utf-8&amp;sc=UWY4rHm3nWTdPNqCmyqxTAThIjYkPHbknjD3nWR3P1TsFhnqpA7EnHc1Fh7W5HnYnWD1nHfdP1c&amp;ssl_sample=normal&amp;srcqid=4250844465611735287&amp;H123Tmp=nunew7&amp;word=%E5%8D%8E%E7%9B%9B%E9%A1%BF%E6%96%AD%E7%BD%91)
 
-據悉，此疫苗僅僅是目前俄羅斯國內14家機構正在研製47種疫苗中的其中一個。
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01101147/WhatsApp-Image-2020-06-01-at-9.53.30-PM.jpeg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01101158/WhatsApp-Image-2020-06-01-at-9.53.47-PM-1.jpeg)
 
-評:
 
-俄羅斯應該是最了解中共的邪惡歷史的國家，這個本已經被國內經濟壓得喘不過氣的世界大國，經過這一次疫情的血洗，可謂是雪上加霜。我相信，當世界各國和人民覺醒，知道這一切都是中共邪黨的陰謀時，俄羅斯也一定會站在中共的對立面，一起聲討這個盤踞在這地球上的紅色惡魔。我們等待了三年的六四馬上就要到了，中共還能苟延殘喘多久？
+這些謠言會讓牆內的百姓狂歡嗎？我不知道；
 
-[原文鏈接](http://naver.me/5sE5x56R)
+這些謠言會讓中共晚死幾秒嗎？絕對不會；
 
-翻譯報導: Mc.DA
+關於中共什麼時候崩塌，我不知道，但是我知道雷霆萬鈞已經箭在弦上，我在聽時鐘的滴答聲，它是那麼的悅耳——因為秒鐘每走一下，中共在全人類的存續時間就又少了一秒。你聽——
+
+滴答！滴答！滴答！……….
+
+（文章內容僅代表作者個人觀點）
 
 0
