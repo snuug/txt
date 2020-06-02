@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 總統在2020年“全球科普特日”上的致辭
-`2020-06-02 01:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/220310/)
+## 中共計劃將東沙群島，西沙群島，南沙群島納入南中國海防控識別區
+`2020-06-02 06:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/220463/)
 
-2020年6月1日發佈
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02060251/1-9.png)
+據《南華早報》報道：中共軍事內部人士說，中共長期以來一直在籌備將世界最有爭議的水域納入航空管控。儘管已經在此區域建立了軍事設施，但是中共始終擔心宣布防空識別區會令美國和東南亞鄰國不安。
 
-I send my best wishes for a peaceful and blessed celebration to the millions of Coptic Christians in the United States and around the world observing Global Coptic Day.
+從2010年起，中共一直計劃在南中國海設立防空識別區，同年考慮在東中國海設立類似的防空識別區的行動，遭到了全世界的批評。
 
-我衷心祝願美國和世界各地數以百萬計的東正教徒們得以幸福祥和地慶祝全球科普特日。
+根據一名匿名的軍方人士提供，中共提出的防空識別區包括在爭議水域中的東沙群島，西沙群島和南沙群島島鏈。此計劃是在2010年與東中國海防空識別區同時起草，2013年提出。來源說中共當局只是在等待合適的時候就宣布。儘管中共在此話題上保持沉默，但是台灣國防部在5月4日說已經意識到了中共的計劃。
+防空識別區是指一般沒有爭議的陸地或水域上方的領空，監視和控制航空器在此領空的飛行符合（主權）國家的安全。有許多國家設立（防空識別區），但是，迄今為止還沒有任何國際協議和組織對其進行定義和規範。
 
-Last year marked the first annual Global Coptic Day— an opportunity for the world to mark the contributions, legacy, and ongoing challenges facing the largest Christian group in the Middle East. This year, as we celebrate the second annual Global Coptic Day, we recognize the vital role faith, prayer, and service have in our lives, especially as we continue to face the challenges posed by the novel coronavirus pandemic.  We join with people of faith from every corner of the world in asking God to place his healing hand on those fighting the virus and to comfort those who are mourning the loss of a friend or a loved one.
+軍事觀察家指出，中共宣布第二個防空識別區將會增加其與美國的緊張關係，並造成與東南亞鄰國之間不可彌補的傷害。
+前台灣高雄海軍學院的一位教員說，過去的幾年裡中共的人工島礁的建設和發展，尤其是在永暑礁，渚碧礁上建設跑道和雷達系統， 是其防空識別區計劃的一部分。
 
-去年誕生了第一個的“全球科普特日”，它給全世界一個機會去瞭解中東最大基督教團體的貢獻、傳承及其面臨的不斷挑戰。當今年我們慶祝第二個“全球科普特日”時，我們認識到信仰、祈禱和服務精神在我們生活中起著至關重要的作用，尤其是在我們繼續面對新型冠狀病毒大流行帶來挑戰之時。我們願與來自世界各個角落滿懷信仰的人們一道，祈求上帝將其醫治之手放在那些與病毒作鬥爭的人身上，並讓那些因失去親朋摯愛而悲痛之人得以慰藉。
+他說，從近期的衛星圖片可以看出中共軍隊在永暑礁部署了KJ-500預警和指揮控制飛機和KQ200反潛艇巡航飛機。他說的照片是由華盛頓智庫，戰略和國際研究中心（CSIS）的國際和亞洲海事透明倡議的以色列的衛星照片。
 
-Today is also a time for us to acknowledge the importance of religious freedom and reaffirm our commitment to promoting and defending this core tenet of a free society.  Tragically, far too many people the world over face persecution on account of their faith.  In September of 2019, during a speech at the United Nations, I called on world leaders to take action to put an end to all attacks by state and non-state actors against citizens for simply worshipping according to their beliefs.  I challenged them to work to prevent threats and acts of violence against our sacred places of worship.  No one should fear for their safety in a house of worship anywhere in the world.
+島礁上還建設了空調系統，說明戰鬥機也將被部署，因為它需要空調來抵抗當地的高溫，潮濕和鹽分。一旦中共的戰機到達，它可以聯合預警機和反潛機進行防空識別巡邏行動。
 
-今天也是我們明確宗教自由重要性之時並再次重申，我們將致力於促進和捍衛自由社會這一核心宗旨。可悲的是，世界上有太多人因信仰而遭受迫害。 2019年9月，我在聯合國的一次演講中呼籲世界各國領導人採取行動，制止國家和非國家行為者對公民僅僅因其信仰崇拜而進行攻擊的行為。我向他們發出挑戰並採取行動，以阻止他們對我們神聖禮拜場所的一切威脅和暴力行為。任何人，都不應該在世界任何地方的禮拜堂中還需擔心他們自身的安全。
+李傑，北京海軍專家和退伍的前解放軍上校說，一般一個國家只有擁有必要的偵測設備，打擊能力和其他相應的運營它的基礎設施的時候才會宣布設立防空識別區。但是如果時機成熟，中共可能提前宣布。北京在宣布東中國海防空識別區的時候並沒有探測，跟蹤和驅趕闖入的外國飛機的能力。
 
-At my direction, the State Department convened its second Ministerial to Advance Religious Freedom last summer, where diplomats and stakeholders from government and civil society, as well as religious leaders, engaged and identified tangible and meaningful ways to eliminate religious persecution and discrimination around the world and secure greater respect for freedom of religion and belief for all.  We must ensure that we are using every tool at our disposal to ensure that every man, woman, and child feels safe and secure to worship according to their conscience and beliefs—no matter where they live.
+外一個匿名的中共軍事來源談到，由於該事件的敏感性和戰備性，中共意識到南中國海比東中國海要大的多，巡邏需要耗費更多的資源。北京出於技術，政治和外交的考量，宣布南中國海的防空識別區也是猶豫再三。但是最大的操作性問題是，過去解放軍沒有能力在南中國海緊急起飛其戰機並驅趕闖入的外國戰機。南中國海比東中國海大幾倍，支持防空識別區的成本將是巨大的。
 
-在我的指導下，國務院於去年夏天召開了第二屆部長級推進宗教自由的會議，來自政府和民間社會的外交官和利益攸關方及宗教領袖們，參與並確定了切實可行的方法來消除世界各地的宗教迫害和歧視，以便致力於保障尊重所有人的宗教信仰自由。我們必須全力以赴來確保每個人，不管男女老幼，無論身居何方，都可以依照自己的良心和信仰進行安全而有保障的崇拜活動。
+中共當局在2010年告訴日本代表團，他們正在考慮設立東海防空識別區，因此計劃與日本的防空識別區有重疊，所以跟日本商量。此消息激怒了日本。
+日本也設立了自己相應的防空識別區，包括尖閣諸島-中文叫釣魚島-一片無人居住的島嶼，日本，中共，台灣都對它聲稱主權。2012年9月，日本從私人手中購買了尖閣諸島，造成東京和北京的緊張關係升級。促使中共在2013年11月宣布防空識別區。因為中共需要宣布對釣魚島的主權，所以中共比計劃提前宣布了第一個防空識別區。此舉曾引起強烈反對，日本和美國都對中共進行了譴責。
 
-I hope today’s observance is filled with prayer and joy, and provides those celebrating with a renewed sense of purpose and faith.  May God bless each of you.
+隨著近幾年日本和中共國的關係改善，北京和華盛頓的關係日趨緊張，雙方在貿易，科技，軍事和意識形態等多方面進行了交鋒。CCP病毒更導致兩邊關係的進一步惡化。上個月，美國軍用飛機，包括EP-3E 和 RC-35U偵察機，至少在南中國海上空出動了9架次的巡航行動。
 
-我希望今天的慶祝活動充滿祈禱和歡樂，並予以慶祝的人們有全新的使命感和信念。願上帝保佑你們每個人!
+中共宣稱幾乎所有的領海都是自己的主權領土，因此引發了與越南，菲律賓，台灣，馬來西亞和汶萊爭端。近幾年來，中共致力於與東南亞鄰國建立密切的關係。但是，一位來自新加坡國立大學的高級訪問研究員指出，如果中共宣布南中國海防空識別區，那就會對東南亞各國造成威脅。「這將嚴重影響中共與東南亞國家的關係。直到現在，這些國家在很大程度上默許了中共的獨斷和挑釁，包括填海和島嶼軍事化……但中共若宣布防空識別區，他們將會被迫進行選擇，不是在中美之間，而是在他們與中共的經濟利益和他們自己的主權之間。」他說。
 
-出處： [Presidential Message on Global Coptic Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-global-coptic-day-2020/)
+[新聞來源](https://www.scmp.com/news/china/military/article/3086679/beijings-plans-south-china-sea-air-defence-identification-zone)
 
-*翻譯：【一花一世紀】 校對：【Melody太陽的旋律】【GM31】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報道：花崗岩
 
 0

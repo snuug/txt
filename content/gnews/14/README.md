@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】31/05/2020 CCP病毒每日疫情直播簡報
-`2020-06-01 22:58 GM77` [轉載自GNews](https://gnews.org/zh-hant/220105/)
+## 重新起航的郵輪 與無法走出的噩夢
+`2020-06-02 03:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/220387/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02031128/1-7.png)
+據大紀元媒體6月1日報道，因中共冠狀病毒而被迫停靠在日本南部的巨型游輪「歌詩達大西洋」號已經在上周日啟航離開長崎港，駛往菲律賓了。
 
-[English\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225123/English_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225123/English_0531_CCP_Virus_Updates.pdf)
+這艘重達8.6萬噸的豪華郵輪於今年四月下旬停靠長崎例行維修，當時郵輪沒有搭載遊客，只有623名船員在郵輪上。隨後有149人被測試出感染了中共冠狀病毒，導致幾乎所有船員都被迫在船上進行隔離，一直到現在。這是繼「鑽石公主」號之後在日本發生的第二大郵輪感染事件。
 
-[French\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225127/French_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225127/French_0531_CCP_Virus_Updates.pdf)
+直到郵輪離開長崎的時候，還有6名船員在日本的醫院留院觀察。慶幸的是他們並沒有生命安全的擔憂。長崎縣官員告訴路透社，其餘船員目前測試的結果均為陰性。另外，有126名遊客已經登上該郵輪前往菲律賓馬尼拉。
 
-[German\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225132/German_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225132/German_0531_CCP_Virus_Updates.pdf)
+長崎政府官員還提到，應該開發一套信息系統來掌握船員的健康狀況，並且該系統能保證各國政府與郵輪公司之間的信息交流與共享。
 
-[Japanese\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225137/Japanese_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225137/Japanese_0531_CCP_Virus_Updates.pdf)
+文章中稱，路透社曾嘗試聯繫郵輪的運營商—「歌詩達」郵輪公司，但該公司尚未就此事發表評論。根據路透社對船上工作人員的採訪結果來看，船員和他們的家屬對郵輪未來的財務狀況普遍擔憂。他們說，中共冠狀病毒對他們的折磨目前看起來已經是過去的噩夢，然而即將來臨的經濟蕭條才是恐怖的真正開始。
 
-[Korean\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225140/Korean_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225140/Korean_0531_CCP_Virus_Updates.pdf)
+評論：中共冠狀病毒給全人類帶來的直接傷害已經讓全世界生靈塗炭，然而由此帶來的次生災難卻才剛剛開始。只有儘快滅掉中共這個邪惡組織，讓其對全世界交代製造病毒與投毒的所有秘密，這樣全世界才能群策群力尋找疫苗，挽救更多生命。
 
-[Russian\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225153/Russian0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225153/Russian0531_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.theepochtimes.com/ccp-virus-hit-cruise-liner-leaves-japan-after-month-long-quarantine_3372019.html)
 
-[Spanish\_0531\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225148/Spanish_0531_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/01225148/Spanish_0531_CCP_Virus_Updates.pdf)
+翻譯報道：匿名
 
-
-
-1
+0
