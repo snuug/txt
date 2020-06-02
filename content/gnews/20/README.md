@@ -1,43 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月1日 美國政要推文選譯
-`2020-06-02 00:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/220260/)
+## 國外疫情水深火熱，風景這邊獨好？千萬不要被中共忽悠！
+`2020-06-02 03:22 GM30` [轉載自GNews](https://gnews.org/zh-hant/220426/)
 
-> Absolutely. I’ve long said that [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is the most significant geopolitical threat to the United States and our allies for the next century. We need to act like it. [https://t.co/uIx68NTUuS](https://t.co/uIx68NTUuS)
-> — Senator Ted Cruz (@SenTedCruz) [June 1, 2020](https://twitter.com/SenTedCruz/status/1267504760279752704?ref_src=twsrc%5Etfw)
+**作者：WM**
 
-參議員 Ted Cruz：沒錯。我很早就說中國是美國和盟友最大的地緣政治威脅。我們應該相時而動。
+隨著天氣逐漸炎熱和中共宣傳機器營造出“國外疫情水深火熱，風景這邊獨好”的氛圍，走在國內大街上會驚奇的發現，戴口罩的只是極少的一部分人。各行各業複工複産，飯店恢複堂食，娛樂場所恢複營業，人們在閑暇時刻跳起了廣場舞，聚在一起熱烈討論美國確診數又創新高，紛紛感慨還是社會主義好。種種迹象表明，國內疫情好像已經完全結束了，這是真相嗎？
 
-Politico網：蓬佩奧說中國對西方構成持續威脅
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02030712/1-11.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02030727/2-11.jpg)
 
-> US suspends student and research visas for Chinese nationals linked to CCP and PLA [https://t.co/ItXwpVYBHV](https://t.co/ItXwpVYBHV)
-> — Bill Gertz (@BillGertz) [June 1, 2020](https://twitter.com/BillGertz/status/1267525385216024578?ref_src=twsrc%5Etfw)
 
-比爾·格茨先生：美國暫停發放與中共和解放軍有關聯中國公民的學生和研究人員簽證。
+追隨爆料革命的戰友都知道，文貴先生年初就說過，疫情最困難的時候根本沒有到來，還會有反複。路德先生在1月19日的節目中說過中共病毒具有強變異、人傳人的特點，會大爆發，之後的一系列節目也揭露的病毒的危害，中共的野心。中共一方面打壓國內關于疫情的言論，讓百姓複工複産；另一方面輸出病毒，擾亂全世界秩序，妄圖在國際上掌握話語權。按照中共確診病毒的標准，有症狀、核酸陽性、CT陽性才能算感染上中共病毒，因此國內無症狀感染人數一直是個謎，而且在不斷增加中。只要病毒不發作，自己不會知道有沒有染上病毒，有沒有傳染給家人朋友。一旦感染上病毒隨時可能發作，今天還是無症狀，明天可能進入火葬場，這才是最可怕的。
 
-《華盛頓時報》：美國國務院將限制與軍方有關聯的中國公民的簽證
+按照中共原計劃，病毒肆虐全球，自己手握“解藥”，號令天下，莫敢不從。就像金庸小說《笑傲江湖》裏面日月神教教主一樣，給神教教衆服用“三尺腦神丹”，平時毒性不會發作，若教衆沒有對教主表忠心，沒有緊密團結在以任我行爲核心的堅強領導下，每年不服用克制毒性的藥物，毒性發作時便會生不如死，甚至連死都是一種奢求。
 
-> On Friday the President took action to help safeguard U.S. national security and limit the PRC’s ability to use nonimmigrant student and researcher visa programs to steal U.S. technology, intellectual property, and information in pursuit of military dominance.[#MilitaryCivilFusion](https://twitter.com/hashtag/MilitaryCivilFusion?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Pompeo (@SecPompeo) [June 1, 2020](https://twitter.com/SecPompeo/status/1267497183118573569?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02030804/3-6.png)
 
-美國國務卿 蓬佩奧：周五，總統先生采取行動捍衛美國國家安全，限制中共國利用非移民學生和研究人員簽證項目竊取美國技術、知識產權和信息，擴大其軍事優勢。
+冥冥中自有天意，路德先生在1月29日的節目中轉述墨博士的觀點，硫酸羟氯喹對中共病毒有抑制作用。這期節目不僅挽救很多人的生命，也打亂了中共的邪惡計劃，所以國內的媒體對羟氯喹基本上都是負面態度，反而推薦雙黃連、蓮花清瘟等“神藥”。聽了路德節目後，我也買了一些硫酸羟氯喹片，有備無患。當然，有了抑制的藥並不意味這可以去人多的地方湊熱鬧，最好還是避免不必要的外出，不聚會、不訪友，別染上病毒。
 
-> This is a Chinese Communist Party that has come to view itself as intent upon the destruction of Western ideas, Western democracies, and Western values. It puts Americans at risk, whether it’s stealing American intellectual property or destroying jobs here in the U.S. [pic.twitter.com/89JlUuARro](https://t.co/89JlUuARro)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267218821477261313?ref_src=twsrc%5Etfw)
 
-美國國務卿 蓬佩奧：中共是壹個打定主意要破壞西方觀念、西方民主和西方價值觀的政黨。無論是竊取美國知識產權還是毀掉美國本土就業機會，它讓美國人民面對危險。
 
-> The Chinese Communist Party’s military advances are real. Our [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) is doing everything it can to make sure it understands this threat. President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will always keep us in a position where we can protect the American people. [pic.twitter.com/NPnLWAwm2b](https://t.co/NPnLWAwm2b)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267197424868765698?ref_src=twsrc%5Etfw)
+當我勸說家人出門戴上口罩，被嘲笑現在已經基本結束了，有什麽害怕的？當我建議家人買一些硫酸羟氯喹片時，家人諷刺說境外勢力的消息不可信。當我建議家人備一些糧食以防缺糧時，反而被安慰道：放心，缺糧了國家不會不管的，天要塌下來，有個兒高的頂著。但是我還是要堅持這麽做，因爲我可能是家族裏唯一堅信爆料革命的，我相信自己是有使命的，不僅要參與滅共，還要活得精彩，照顧好家人。對于家人，盡我自己的義務，爲他們准備好糧食和藥品，應對接下來中共滅亡帶來的衝擊。即使真的發生不幸，他們墜入深淵時我會毫不猶豫伸出手。如果在這個關鍵的時刻還要相信中共，相信新聞聯播，我也救不了不自救的人，就算是辛德勒也救不了所有猶太人。引用老江的一句話：都是成年人，自己爲自己的選擇負責。
 
-美國國務卿 蓬佩奧：中共的軍事擴張是真實存在的。我們的國防部正盡其所能了解這種威脅。川普總統會確保我們有能力保護美國人民。
+“六四”即將到來，爆料革命也到了開花結果的時候。在這個曆史的節點，我們仍然要做好病毒防護，堅持健身健心，盡力幫助周圍的人。中共滅亡後，我們一定會活得更精彩！
 
-> “America’s capital markets are the deepest and most resilient in the world because investors have confidence the rule of law exists here. Allowing China to continue to deceive them undermines America’s national security, economic security, and our values.” [https://t.co/Uql8oN0iXS](https://t.co/Uql8oN0iXS)
-> — General Spalding (@robert\_spalding) [June 1, 2020](https://twitter.com/robert_spalding/status/1267497176764203009?ref_src=twsrc%5Etfw)
+（文章內容僅代表作者觀點）
 
-斯伯丁將軍：“美國資本市場是世界上最深和修復能力最強的，因為投資者對這裏的法治有信心。任由中國繼續欺騙他們會破壞美國國家安全、經濟安全和我們的價值觀。”
-
-Realclearpolitics網：華盛頓必須結束中國在我國市場中的欺詐行為
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02002258/08_66.png)
 0
