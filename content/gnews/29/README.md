@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月1日 美國政要推文選譯
-`2020-06-02 00:23 GM65` [轉載自GNews](https://gnews.org/zh-hant/220260/)
+## 攤位暴漲！想擺攤先被宰一刀，中共國失業潮下的“地攤經濟”！
+`2020-06-02 02:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/220362/)
 
-> Absolutely. I’ve long said that [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is the most significant geopolitical threat to the United States and our allies for the next century. We need to act like it. [https://t.co/uIx68NTUuS](https://t.co/uIx68NTUuS)
-> — Senator Ted Cruz (@SenTedCruz) [June 1, 2020](https://twitter.com/SenTedCruz/status/1267504760279752704?ref_src=twsrc%5Etfw)
+**作者：滅共日記**
 
-參議員 Ted Cruz：沒錯。我很早就說中國是美國和盟友最大的地緣政治威脅。我們應該相時而動。
+最近，“擺地攤”一詞被刷屏，不僅在網絡渠道引發公衆熱議，連李克強都在“兩會”上給“擺地攤”點贊。6月1日，李克強考察山東煙台一處老舊小區。在小區對面，許多商戶在店門前擺起了攤位。李克強說，國家是人民組成的，人民好了，國家才能好。靠每個人的奮鬥，大家都好了，國家就更好！地攤經濟、小店經濟是就業崗位的重要來源，是人間的煙火，和“高大上”一樣，是中共國的生機。市場、企業、個體工商戶活起來，生存下去，再發展起來，國家才能更好！我們會給你們支持的。莫非這就是中共所宣傳的全面小康實現了，大家又都回去擺地攤買地攤貨了！
 
-Politico網：蓬佩奧說中國對西方構成持續威脅
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02024627/1-5.png)
 
-> US suspends student and research visas for Chinese nationals linked to CCP and PLA [https://t.co/ItXwpVYBHV](https://t.co/ItXwpVYBHV)
-> — Bill Gertz (@BillGertz) [June 1, 2020](https://twitter.com/BillGertz/status/1267525385216024578?ref_src=twsrc%5Etfw)
+說到擺地攤就不得不提到“城管”這個詞了，大家還記得城管野蠻執法的視頻滿天飛嗎？還記得城管一度處于社會輿論的風口浪尖，成爲口誅筆伐的對象嗎？還記得城管一度成爲戰鬥力可比賽亞人，收複台灣、釣魚島，只派出城管就可以馬到成功的笑話梗嗎？還記得電影裏面只要有人喊一聲“城管來了”，多少小攤小販或挑起擔子，或攏起包裹，或推起小車像遇到洪水猛獸一樣，衝進城中村裏四通八達的小巷子裏或四散奔逃嗎？20多年前地攤經濟消失，城管崛起，二十年後由于兩會提出的地攤經濟，比起以前小販的灰色地帶，現在不同了，可以光明正大的收費，美其名地攤經濟。城管說這裏違法就是違法，說是地攤經濟就是合法的，怎麽做都能找到依據。收費再不用偷偷摸摸了，明碼標價之下就是漲價了。就像我昨天看到的一個新聞，原來800元的攤位現在暴漲到3000元，有的地方甚至要押一付三。這就是告訴老百姓想擺攤，必須先砍一刀。現在中共是炒完了口罩，炒雙黃連，炒完了雙黃連炒頭盔，現在要炒攤位了，如果繼續這麽下去，不出兩個月地攤經濟也會幹不下去。地攤經濟對于老百姓有什麽好處，我沒看出來，但城管的權力和某些人的利益確實會得到極大的提高！
 
-比爾·格茨先生：美國暫停發放與中共和解放軍有關聯中國公民的學生和研究人員簽證。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02024711/2-9.jpg)
 
-《華盛頓時報》：美國國務院將限制與軍方有關聯的中國公民的簽證
+在中共國，擺地攤這事能在兩會提出來，其實就已經說明，中共國老百姓的就業問題已經非常嚴峻了，地攤經濟就是爲了下崗潮做准備，鼓勵擺地攤，和當初鼓勵大學生創業的道理是一樣的，只不過是因爲找不到工作的人越來越多了。說白了，就是政府不想出手救經濟，不發錢，不補助，不出救場政策，但又不想不作爲被罵，就用這樣的政策來轉移老百姓的注意力。說明中共的實體經濟已經徹底暴雷，放韭菜出去擺地攤，至少能讓這些人有事可做，爲了生存有事可煩。中共的這套玩法看來是讓那些實體店的店主也加入擺攤大軍了，這樣導致的後果就是整個城市的低端人口又會爲了搶地盤而鬥。這就是妥協的倒退，地攤經濟的恢複，看來中共的經濟真的要回到30年前了！
 
-> On Friday the President took action to help safeguard U.S. national security and limit the PRC’s ability to use nonimmigrant student and researcher visa programs to steal U.S. technology, intellectual property, and information in pursuit of military dominance.[#MilitaryCivilFusion](https://twitter.com/hashtag/MilitaryCivilFusion?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Pompeo (@SecPompeo) [June 1, 2020](https://twitter.com/SecPompeo/status/1267497183118573569?ref_src=twsrc%5Etfw)
+GNEWS之前文章：
+爲何中共國頻發弑母案？[https://gnews.org/zh-hans/215471/](https://gnews.org/zh-hans/215471/)
+中共教育的“邪惡培植”！[https://gnews.org/zh-hans/216128/](https://gnews.org/zh-hans/216128/)
+中共的暴力維穩已經伸向了小學生 [https://gnews.org/zh-hans/219529/](https://gnews.org/zh-hans/219529/)
 
-美國國務卿 蓬佩奧：周五，總統先生采取行動捍衛美國國家安全，限制中共國利用非移民學生和研究人員簽證項目竊取美國技術、知識產權和信息，擴大其軍事優勢。
+（文章內容僅代表作者觀點）
 
-> This is a Chinese Communist Party that has come to view itself as intent upon the destruction of Western ideas, Western democracies, and Western values. It puts Americans at risk, whether it’s stealing American intellectual property or destroying jobs here in the U.S. [pic.twitter.com/89JlUuARro](https://t.co/89JlUuARro)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267218821477261313?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：中共是壹個打定主意要破壞西方觀念、西方民主和西方價值觀的政黨。無論是竊取美國知識產權還是毀掉美國本土就業機會，它讓美國人民面對危險。
-
-> The Chinese Communist Party’s military advances are real. Our [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) is doing everything it can to make sure it understands this threat. President [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) will always keep us in a position where we can protect the American people. [pic.twitter.com/NPnLWAwm2b](https://t.co/NPnLWAwm2b)
-> — Secretary Pompeo (@SecPompeo) [May 31, 2020](https://twitter.com/SecPompeo/status/1267197424868765698?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：中共的軍事擴張是真實存在的。我們的國防部正盡其所能了解這種威脅。川普總統會確保我們有能力保護美國人民。
-
-> “America’s capital markets are the deepest and most resilient in the world because investors have confidence the rule of law exists here. Allowing China to continue to deceive them undermines America’s national security, economic security, and our values.” [https://t.co/Uql8oN0iXS](https://t.co/Uql8oN0iXS)
-> — General Spalding (@robert\_spalding) [June 1, 2020](https://twitter.com/robert_spalding/status/1267497176764203009?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“美國資本市場是世界上最深和修復能力最強的，因為投資者對這裏的法治有信心。任由中國繼續欺騙他們會破壞美國國家安全、經濟安全和我們的價值觀。”
-
-Realclearpolitics網：華盛頓必須結束中國在我國市場中的欺詐行為
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02002258/08_66.png)
 0
