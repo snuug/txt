@@ -1,21 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普團隊競選經理：推特的雙重標準
-`2020-06-02 18:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/221025/)
+## 6月2日 美國政要推文選譯
+`2020-06-02 21:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/221139/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02184821/%E5%B7%9D%E6%99%AE%E5%9B%A2%E9%98%9F%E7%AB%9E%E9%80%89%E7%BB%8F%E7%90%86%E6%8E%A8%E7%89%B9%E7%9A%84%E5%8F%8C%E9%87%8D%E6%A0%87%E5%87%86.jpg)
-來自川普2020年競選經理布萊德·帕斯卡爾(Brad Parscale)的文章：一直視川普總統為眼中釘的華盛頓的建制派及主流媒體聯盟，現在開始聯合硅谷竭盡全力剷除川普總統 。川普總統的敵對力量一直試圖讓他下台，並透過恐嚇和審查來打壓他的支持者。現在，新型社交媒體開始利用他們虛假的新聞信譽用所謂的“真相審核”暗地傳輸他們的政治主張。
+> It starts; so soon. For the first time in 30 years, Hong Kong authorities denied permission to hold the [#TiananmenVigil](https://twitter.com/hashtag/TiananmenVigil?src=hash&amp;ref_src=twsrc%5Etfw). If there is any doubt about Beijing’s intent, it is to deny Hong Kongers a voice and a choice, making them the same as mainlanders. So much for two systems.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267793562550353923?ref_src=twsrc%5Etfw)
 
-本周川普總統發布了推文表示郵寄選票將引發選舉系統中的新型欺詐。帕斯卡爾認為這是一個可以被證明的事實，然而推特卻將改推文貼上了“警告標籤”，並引用CNN和華盛頓郵報的“真相審核”說明川普總統的評論是虛假的。於此同時，推特卻允許喬·拜登（美國前副總統，民主黨總統競選人代表）和中國共產黨不斷的發布錯誤信息和政治宣傳。當初中共外交部發言人趙立堅錯誤指控美軍將冠狀病毒帶入武漢時，推特沒有採取任何行動。直到川普總統成為眾矢之的大聲疾呼之後，推特才在周三傍晚將趙立堅兩個月前之推文添加標籤。
+美國國務卿 蓬佩奧：壹切都已經開始；非常快。三十年來第壹次，香港當局拒絕批準“六四”燭光守夜活動。如果對北京的企圖有任何疑問，那就是剝奪了香港人的話語權和選擇權，讓他們淪為和大陸人壹樣的境地。“兩種制度”也就這樣了。
 
-像推特這樣的公司擁有不受限制的權力，可以審查、限制、編輯、隱藏和更改幾乎任何形式的公民交流。令人遺憾的是，硅谷和推特沒有透過誠實公開的辯論向總統提出質疑，取而代之的卻是訴諸恐嚇、欺凌的手段和審查制度。川普總統現在要求推特和其他社交媒體平台負責，保護美國人免於受到推特和其他大型科技公司的任意審查。
+> Great conversation with my Australian, Canadian, New Zealand, and UK counterparts. Together we are addressing the CCP’s erosion of Hong Kong’s autonomy and pushing for transparency on COVID-19. We remain focused on addressing Iran’s destabilizing behavior in Iraq and the region.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267840972781694976?ref_src=twsrc%5Etfw)
 
-川普總統在2016年用前所未有的方式，運用社交媒體平台，繞過了媒體機構，直接與美國人民對話。在社交媒體出現之前，新聞完全由幾個少數主流媒體控制。而現在，社交媒體卻也走上了傳統媒體的老路。
+美國國務卿 蓬佩奧：與澳洲、加拿大、新西蘭和英國的外長進行了很好的交談。我們共同致力於解決中共對香港自治的侵蝕行為，並推動冠狀病毒疫情的公開透明。我們繼續關註解決伊朗破壞伊拉克及該地區穩定的問題。
 
-推特的“網站良心負責人” 約爾·羅斯（Yoel Roth）參與了制定和執行推特審查規則。而約爾自己的推特卻布滿了充斥政治偏見的帖子，其中包括了許多對共和黨議員和對川普總統幼稚和私人的攻擊。約爾最有代表性的推文完整體現了自由派沿海精英對美國其他地區的看法。在2016年大選結果的第二天約爾發表：“我就是說說，我們從不在那些投了種族主義橘子（註：暗指川普總統的膚色）的州停留是有原因的。”到目前為止，該推文仍未被刪除。這些根深蒂固的華盛頓建制派、推特和硅谷的行為已經證明了他們願意不惜一切代價推翻川普總統，同時無視，甚至容忍中共的大外宣。
+> Today, the U.S. protests the PRC’s unlawful South China Sea maritime claims at the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). We reject these claims as unlawful and dangerous. Member States must unite to uphold international law and freedom of the seas. [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h6UCoBnnnb](https://t.co/h6UCoBnnnb)
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267861621965303809?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://dailycaller.com/2020/06/01/parscale-twitter-censors-president-trump-but-not-communist-china-something-doesnt-add-up/)
-翻譯報道：文心雕龍
+美國國務卿 蓬佩奧：今天，美國對中共國在聯合國提出的非法南中國海海域主張提出抗議。我們拒絕這些非法且危險的領土主張。各成員國必須團結壹致，維護國際法和海洋自由。
 
+> Now we know for sure that Communist China hid critical data that could have altered the global response to the pandemic.
+> 
+> And instead of exposing Communist China’s deceit, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) praised their response & was complicit in China’s cover-up. [https://t.co/0gSScqh0D0](https://t.co/0gSScqh0D0) [pic.twitter.com/aD0zKY1qDf](https://t.co/aD0zKY1qDf)
+> — Rick Scott (@SenRickScott) [June 2, 2020](https://twitter.com/SenRickScott/status/1267840172734939141?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：現在我們可以確定中共國隱瞞了本可以讓全球對疫情大爆發有不同應對措施的關鍵信息。而世衛組織不但沒有揭露中共國的欺瞞行為，反而稱贊他們並成為他們掩蓋行徑的同謀。
+
+> Difference between Hong Kong and America. [https://t.co/W7Q6QPFszU](https://t.co/W7Q6QPFszU)
+> — General Spalding (@robert\_spalding) [June 2, 2020](https://twitter.com/robert_spalding/status/1267871249436487682?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：香港與美國的不同之處
+
+ScottGordonNBC5：抗議者就在擴音器上對警察說，如果警官們單膝跪地，他們就回家。警官們這樣做了。抗議者上前與警察握手、擁抱。非常棒。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02213225/image0.png.jpeg)
 0

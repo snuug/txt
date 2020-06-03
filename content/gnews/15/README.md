@@ -1,61 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扒一扒《國家安全法》的底褲
-`2020-06-02 18:51 GM06` [轉載自GNews](https://gnews.org/zh-hant/221016/)
+## 川普總統促進國際宗教自由的行政命令（中英文對照全文）
+`2020-06-02 20:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/220934/)
 
-作者：文臣
+**Executive Order on Advancing International Religious Freedom**
 
-香港《國安法》馬上就要實施了， 在中共偽人大代表們豎起他們的中指，按下橫屍在他們桌面那一排滑稽的按鈕，表示贊成時，舉世譁然！
+Issued on: June 2, 2020
 
-《國安法》究竟是什麼東西，竟引起世界如此關注。今天，就讓我文臣來扒一扒這部法的底褲，讓大家看一看這個醜鄙東西的前世今生！
+**關於促進國際宗教自由的行政命令**
 
-香港《國安法》是草率出臺的一部法律，它精緻細膩的親大哥就是中共偽政權的《國家安全法》，而撕開中共偽政權的《國家安全法》的美麗畫皮，裡面竟然是臭名昭著，每個筆劃，每個標點符號都裹挾著華人累累白骨的毛魔時代的《懲治反革命條例》！
+頒布日期：2020年6月2日
 
-蘇俄曾於1927年頒佈《俄羅斯聯邦法典特別部分》，該法典第1章第58條規定，屬於“國事罪”中的第一類罪就是“反革命罪”，在蘇聯期間，成百上千萬的俄羅斯優秀兒女被這部血腥的法律奪去了他們盛開如鮮花一樣美麗的生命！
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
-毛魔時代的《懲治反革命條例》就是蘇俄在遠東的雜種！和中共一樣，蘇俄是它親爹，馬列是它親祖宗！
+根據美國憲法和美利堅合眾國法律賦予我的總統職權，現命令如下：
 
-在毛魔時代的中共國，反革命罪是處治最嚴厲的法律罪名，又是一頂最隨意、最氾濫、最令人恐懼的政治汙名。
+Section 1. Policy.
 
-1950年代初中國鎮壓反革命運動，共捕了262萬餘人，其中殺害反革命分子71.2萬余人。文革期間13.5萬餘人被以現行反革命罪判為死刑。
+第1節 政策
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02183502/8-2.png)
+(a) Religious freedom, America’s first freedom, is a moral and national security imperative. Religious freedom for all people worldwide is a foreign policy priority of the United States, and the United States will respect and vigorously promote this freedom. As stated in the 2017 National Security Strategy, our Founders understood religious freedom not as a creation of the state, but as a gift of God to every person and a right that is fundamental for the flourishing of our society.
 
-大家耳熟能詳的張志新烈士，就是文革期間，被毛澤東的侄子毛遠新冠以反革命的罪名，在東北的監獄中受盡淩辱和酷刑，最後被割喉而死。
+(a) 宗教自由是美國的第一大自由，是道義和國家安全的當務之急。全世界所有人的宗教自由是美國的外交政策的優先事項，美國將尊重並大力促進這一自由。正如《 2017年國家安全戰略》中所述，美國的開國者們認為，宗教自由不是國家的產物，而是上帝賜給每個人的禮物，並且是對我們社會蓬勃發展至關重要的一項權利。
 
-著名的北大才女，基督徒林昭女士，也是以反革命的罪名被中共槍斃，事後中共竟然還厚顏無恥的跑到林昭女士的母親那裡索要1毛錢的子彈費！
+(b) Religious communities and organizations, and other institutions of civil society, are vital partners in United States Government efforts to advance religious freedom around the world. It is the policy of the United States to engage robustly and continually with civil society organizations — including those in foreign countries — to inform United States Government policies, programs, and activities related to international religious freedom.
 
-毛魔時代的《懲治反革命條例》就是一個恐怖，卑劣，噁心的笑話！
+(b) 宗教社區和組織以及其它的民間社會機構，是美國政府為促進全世界宗教自由所做的努力的重要夥伴。美國的政策是與民間社會組織（包括在國外的民間社會組織）進行有力和持續的接觸，以幫助美國政府制定與國際宗教自由有關的政策、計劃和活動。
 
-毛魔的好基友，舔菊一輩子的中華人民共和國主席劉少奇，當時中共國名義上的最高元首，毫無尊嚴的死去的時候，他的一個罪名也是被他舔菊的好基友送給他的—-沒錯，反革命罪！
+Sec. 2. Prioritization of International Religious Freedom.
 
-最為搞笑的是：號稱我是主席的一條狗，讓我咬誰我咬誰的紅都女王，毛魔的妻子江青，在《懲治反革命條例》的始作俑者———毛魔剛一蹬腿兒咽氣，就以反革命罪被判處死刑，緩期兩年執行！
+Within 180 days of the date of this order, the Secretary of State (Secretary) shall, in consultation with the Administrator of the United States Agency for International Development (USAID), develop a plan to prioritize international religious freedom in the planning and implementation of United States foreign policy and in the foreign assistance programs of the Department of State and USAID.
 
-與《懲治反革命條例》相比，《國家安全法》只是名目改變而實質未變，就是精心畫了一張沉魚落雁的畫皮而已：
+第2節 優先考慮國際宗教自由
 
-原來列在“反革命罪”下各項罪名，均改列為“危害國家安全罪”，只是調整了各項具體罪名的秩序而已。原“反革命罪”項之下的各項罪名的順序是：背叛祖國罪、陰謀顛覆政府罪、陰謀分裂國家罪、策動投敵叛變罪、策動叛亂罪、投敵叛變罪、持械聚眾叛亂罪等。而“危害國家安全罪”的罪名實質順序（去除立法技術因素）是：背叛國家罪、分裂國家罪、武裝叛亂、暴亂罪、顛覆國家政權罪、資助危害國家安全犯罪活動罪等。背叛國家罪仍然放在首位，而顛覆國家政權罪由原來的第2位降至現在的第4位，分裂國家罪由原來的第3位升至現在的第2位，武裝叛亂罪由原來的第7位升至現在的第3位，投敵叛變罪等幾種犯罪的位序基本未變。
+在下達此命令之日起的180天內，國務卿應與美國國際開發署（USAID）署長協商，在規劃和執行美國外交政策和在國務院和美國國際開發署的對外援助計劃中，制定優先考慮國際宗教自由的計劃。
 
-扒開這部惡法的底褲，我們噁心的發現，裡面全是馬恩列斯毛！腥臊惡臭，鄙陋不堪！
+Sec. 3. Foreign Assistance Funding for International Religious Freedom.
 
-我們看一下最近這部披著畫皮的惡法都幹了什麼事：
+(a) The Secretary shall, in consultation with the Administrator of USAID, budget at least $50 million per fiscal year for programs that advance international religious freedom, to the extent feasible and permitted by law and subject to the availability of appropriations. Such programs shall include those intended to anticipate, prevent, and respond to attacks against individuals and groups on the basis of their religion, including programs designed to help ensure that such groups can persevere as distinct communities; to promote accountability for the perpetrators of such attacks; to ensure equal rights and legal protections for individuals and groups regardless of belief; to improve the safety and security of houses of worship and public spaces for all faiths; and to protect and preserve the cultural heritages of religious communities.
 
-浙江張建紅，在海外少數幾個中文網站上發表評論，以表述自己對時政的看法。被冠以“危害國家安全罪”被捕。
+第3節 國際宗教自由的對外援助資金
 
-湖南株洲顏頭生、顏喜成父子只是將10餘條申訴自己冤情的標語張貼在茶陵縣少數公共場所，傳播範圍極為狹窄，被冠以“危害國家安全罪”被捕。
+(a) 國務卿應在與美國國際開發署署長協商後，在法律允許和可行的範圍內，並在可獲撥款的前提下，每財政年度為促進國際宗教自由的方案設立至少5,000萬美元的預算。此類項目應包括那些旨在預測、預防和回應對個人和團體的宗教信仰襲擊的計劃，包括旨在確保此類群體能夠作為獨特的群體長期存續的項目；促進對此類襲擊的肇事者追責；確保無論何種信仰的個人和團體都享有平等的權利和法律保護；改善所有宗教敬拜場所和公共場所的安全保障；並保護和保存宗教社區的文化遺產。
 
-貴州省李元龍利用一些翻牆軟體上網流覽海外網站，被冠以“危害國家安全罪”被捕。
+(b)  Executive departments and agencies (agencies) that fund foreign assistance programs shall ensure that faith-based and religious entities, including eligible entities in foreign countries, are not discriminated against on the basis of religious identity or religious belief when competing for Federal funding, to the extent permitted by law.
 
-新疆巴敦打電話、寄信給美國之音、自由亞洲電臺，被冠以“危害國家安全罪”被捕。
+(b) 為外國援助計劃提供資金的執行部門和機構（機構），應確保在信仰和宗教實體，包括外國的合格實體，在法律允許的範圍內爭取聯邦資金時，不會因宗教身份或宗教信仰遭受歧視。
 
-上海律師鄭恩寵曾將上海益民食品一廠工人因強行拆遷而靜坐抗議一事的經過寫出發給了美國紐約的人權組織“中國人權”；被冠以“危害國家安全罪”被捕。
+Sec. 4. Integrating International Religious Freedom into United States Diplomacy.
 
-北京徐偉、楊子立、靳海科、張宏海等四位元在校大學生、研究生，只不過是聚集在一起討論時事政治而已，被冠以“危害國家安全罪”被捕——。
+(a) The Secretary shall direct Chiefs of Mission in countries of particular concern, countries on the Special Watch List, countries in which there are entities of particular concern, and any other countries that have engaged in or tolerated violations of religious freedom as noted in the Annual Report on International Religious Freedom required by section 102(b) of the International Religious Freedom Act of 1998 (Public Law 105-292), as amended (the “Act”), to develop comprehensive action plans to inform and support the efforts of the United States to advance international religious freedom and to encourage the host governments to make progress in eliminating violations of religious freedom.
 
-這部法律造成的令人髮指的冤案源源不斷，數不勝數！
+第4節 將國際宗教自由納入美國外交
 
-今天，這部從糞坑裡爬出來，邊蠕動邊散發著惡臭的惡法又要被中共強加給平靜安寧的香港人，大家想想，英勇的香港人民怎麼可能會答應！我們爆料革命的戰友們怎麼可能會答應！在中共的威逼下結成的世界正義聯盟怎麼可能會答應！
+(a) 國務卿應指導駐紮在那些特別關注國、特別觀察名單上的國家、存在特別關注實體的國家、以及根據修訂版的1998年《國際宗教自由法》（公共法第105-292號）第102(b)條所規定的《國際宗教自由年度報告》中所提到的，侵犯或容忍侵犯宗教自由的任何其它國家的外交使團長官，制定全面的行動計劃，以告知和支持美國促進國際宗教自由，並鼓勵東道國政府在消除侵犯宗教自由方面取得進展。
 
-(文章內容僅代表作者觀點)
+(b) In meetings with their counterparts in foreign governments, the heads of agencies shall, when appropriate and in coordination with the Secretary, raise concerns about international religious freedom and cases that involve individuals imprisoned because of their religion.
+
+(b) 美國的機構負責人在與外國政府對口機構舉行會議時，應酌情並在與國務卿的步調一致時，對國際宗教自由和涉及因宗教而被監禁的個人的案件表示關切。
+
+(c) The Secretary shall advocate for United States international religious freedom policy in both bilateral and multilateral fora, when appropriate, and shall direct the Administrator of USAID to do the same.
+
+(c) 國務卿應在適當時，在雙邊和多邊論壇上，倡導美國的國際宗教自由政策，並應指示美國國際開發署署長表明同樣的立場。
+
+Sec. 5.  Training for Federal Officials. 
+第五節 聯邦官員培訓
+
+(a)  The Secretary shall require all Department of State civil service employees in the Foreign Affairs Series to undertake training modeled on the international religious freedom training described in section 708(a) of the Foreign Service Act of 1980 (Public Law 96-465) , as amended by section 103(a)(1) of the Frank R. Wolf International Religious Freedom Act (Public Law 114-281).
+(a) 國務卿應要求所有國務院外事部門公務員系統的僱員接受以1980年《外交服務法》（公法第96-465號）第708(a)條所述的國際宗教自由培訓為藍本的培訓， 該條款經弗蘭克·R·沃爾夫國際宗教自由法（公共法第114-281號）第103(a)(1)條修正。
+
+(b)  Within 90 days of the date of this order, the heads of all agencies that assign personnel to positions overseas shall submit plans to the President, through the Assistant to the President for National Security Affairs, detailing how their agencies will incorporate the type of training described in subsection (a) of this section into the training required before the start of overseas assignments for all personnel who are to be stationed abroad, or who will deploy and remain abroad, in one location for 30 days or more.
+(b) 在命令發布之日起90天內，所有向海外派遣人員的機構的負責人應通過國家安全事務總統助理向總統提交計劃，詳細說明其機構將如何，對所有將要在一個地點停留30天或更長時間的外派人員，在開始執行海外任務或之前所需的培訓中，加入本節(a)中所述的培訓。
+
+(c)  All Federal employees subject to these requirements shall be required to complete international religious freedom training not less frequently than once every 3 years.
+(c) 所有必須遵守這些要求的聯邦僱員完成國際宗教自由培訓的頻率不得少於每3年一次。
+
+Sec. 6.  Economic Tools. 
+第六節 經濟手段
+
+(a)  The Secretary and the Secretary of the Treasury shall, in consultation with the Assistant to the President for National Security Affairs, and through the process described in National Security Presidential Memorandum-4 of April 4, 2017 (Organization of the National Security Council , the Homeland Security Council, and Subcommittees), develop recommendations to prioritize the appropriate use of economic tools to advance international religious freedom in countries of particular concern, countries on the Special Watch List, countries in which there are entities of particular concern, and any other countries that have engaged in or tolerated violations of religious freedom as noted in the report required by section 102(b) of the Act.  These economic tools may include, as appropriate and to the extent permitted by law, increasing religious freedom programming, realigning foreign assistance to better reflect country circumstances, or restricting the issuance of visas under section 604(a) of the Act.
+(a) 國務卿和財政部長應與國家安全事務總統助理協商，按照2017年4月4日的《國家安全總統備忘錄》第4號（國家安全委員會組織，國土安全委員會和小組委員會）所規定的程序，提出建議，對名列特別觀察名單上的特別關注國、 特別關注實體所在的國家、以及任何其它從事或容忍《國際宗教自由法》第102(b)條中指出的侵犯宗教自由的國家，優先考慮合理使用經濟手段，以促進國際宗教自由。這些經濟手段可酌情在法律允許的範圍內，加強宗教自由計劃，根據情況調整援助計劃，或根據《國際宗教自由法》第604(a)條限制簽證的發放。
+
+(b)  The Secretary of the Treasury, in consultation with the Secretary of State, may consider imposing sanctions under Executive Order 13818 of December 20, 2017 (Blocking the Property of Persons Involved in Serious Human Rights Abuse or Corruption), which, among other things, implements the Global Magnitsky Human Rights Accountability Act (Public Law 114-328)
+(b) 財政部長應與國務卿協商，考慮根據2017年12月20日第13818號行政命令（查封涉及嚴重侵犯人權或腐敗的人的財產）實施制裁，其中包括實施《馬格尼茨基全球人權問責法》（公共法第114-328號）。
+
+Sec. 7.  Definitions.  
+For purposes of this order:
+第七節 定義
+在此行政令中：
+
+(a)  “Country of particular concern” is defined as provided in section 402(b)(1)(A) of the Act;
+(a) 根據《國際宗教自由法》第402(b)(1)(A)條定義“特別關注國”；
+
+(b)  “Entity of particular concern” is defined as provided in section 301 of the Frank R. Wolf International Religious Freedom Act (Public Law 114-281);
+(b) 根據《弗蘭克·R·沃爾夫國際宗教自由法》（第114-281號公共法）第301條定義“特別關注實體”；
+
+(c)  “Special Watch List” is defined as provided in sections 3(15) and 402(b)(1)(A)(iii) of the Act; and
+(c) 根據《國際宗教自由法》第3(15) 和402(b)(1)(A)(iii) 條定義 “特別觀察名單”；
+
+(d)  “Violations of religious freedom” is defined as provided in section 3(16) of the Act.
+(d) 根據《國際宗教自由法》第3(16)條定義“違反宗教自由”。
+
+Sec. 8.  General Provisions. 
+第8 節 一般條款
+
+(a) Nothing in this order shall be construed to impair or otherwise affect:
+(a) 此行政令的任何內容均不得被用來損害或影響：
+
+(i)  the authority granted by law to an executive department or agency, or the head thereof; or
+(i) 法律授予行政部門或機構或其負責人的權力；或
+
+(ii) the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+(ii) 管理和預算辦公室主任與預算、行政或立法提案有關的職能。
+
+(b) This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+(b) 本命令的執行應符合適用的法律，並視有無撥款情況而定。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees , or agents, or any other person.
+(c) 本命令無意也不會產生任何實質性或程序性的權利或利益，任何一方可在法律或衡平法上對美國、其部門、機構或實體、其官員、僱員或代理人或任何其他人強制執行。
+
+DONALD J. TRUMP
+THE WHITE HOUSE, June 2, 2020.
+唐納德·川普白宮2020年6月2日。
+
+*翻譯&校對：【新生】【JoyJoy】【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
+
+[閱讀原文](https://www.whitehouse.gov/presidential-actions/executive-order-advancing-international-religious-freedom/)
 
 0

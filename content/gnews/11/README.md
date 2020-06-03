@@ -1,133 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統促進國際宗教自由的行政命令（中英文對照全文）
-`2020-06-02 20:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/220934/)
+## 即將登上6月4日CA818離開美國的中國留學生們，請記住這一刻
+`2020-06-03 01:13 Diago` [轉載自GNews](https://gnews.org/zh-hant/221504/)
 
-**Executive Order on Advancing International Religious Freedom**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010450/cn-ccnatinationalist-copy-jumbo-v2_%E5%89%AF%E6%9C%AC.jpg)
+作者：Diago
 
-Issued on: June 2, 2020
+據中共駐美國大使館2020年5月30日發佈的[關於搭乘6月4日國航CA818臨時航班有關事項的通知](http://www.china-embassy.org/chn/lszj/zytz/t1784239.htm)，【根據中國外交部部署，駐美國使館將安排符合條件的留學人員搭乘國航CA818華盛頓至深圳臨時航班，該航班將於美東時間6月4日16:05從杜勒斯國際機場起飛。現就搭乘航班有關事項提醒如下：
 
-**關於促進國際宗教自由的行政命令**
+一、國航將根據使館提供的名單，通過客服中心（來電顯示一般會包含861095583這個號碼）通知乘客購買機票，請留學人員注意接聽預留的電話，保持手機暢通。有關國航航班資訊請打開下方附件查看《關於中國國際航空公司華盛頓至深圳臨時航班的資訊通知》 。
 
-頒布日期：2020年6月2日
+二、請購票人員嚴格按照使館網站關於國際健康碼的通知及國航通知中深圳方面的有關要求，做好健康碼的填寫工作。健康碼異常將無法登機，虛假填報需承擔相應法律責任。
 
-By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
+三、近日，多名中國公民反映在出境時被美邊境海關執法人員長時間盤問並檢查隨身攜帶的手機、電腦等電子設備，部分人員的電子設備被執法人員暫扣以做進一步檢查。請搭乘航班人員注意瞭解美方出入境有關規定，提高自我保護意識，以免出境時對自己造成不便和損失。】
 
-根據美國憲法和美利堅合眾國法律賦予我的總統職權，現命令如下：
+這則通知印證了郭文貴先生在2020年5月29日直播中提到【親愛的兄弟姐妹們，如果你們有家人現在是在美國留學的孩子，一定要聽我這個直播視頻，一定要聽，而且希望這些孩子聽完以後認真對待，大難的日子真的是來了，我們爆料革命也不是神，我們盡了最大的努力，我剛剛就在昨天和前天還在努力的奮鬥中，我們爭取到了最好的結果，但是還會有很多孩子因此會受影響，今天是可能，在未來三天內，今天是很大可能，就會宣佈：凡是在美國有一些，聽說啊，我聽說的，我剛才都是道聼塗説的啊，很多媒體亂講的啊，你就當我胡說八道，道聼塗説啊，完全文貴做夢夢著的，這是聽說啊，美國對現在中國來的留學的孩子將進行嚴格的管理和遣返，兄弟姐妹們，這可是沒有辦法的，孩子們，你們一定要馬上認真對待，想想你的簽證，基本上你會看到個很溫柔的、很溫柔的一個公告和決定，但是我告訴你這個溫柔的決定幾乎是將只要是共產黨員、官員家人的孩子、只要是共產黨家人背景還有特別現在在當高官的孩子，基本上都得回去，不但回去，幾乎這一輩子你都來不了美國，一輩子，只有沒有共產黨的那一天你能來美國，我給大家今天說一下，大家務必小心做好一切安排】（據[2020年5月29日郭文貴先生提到的未來要發生的七件大事，海外留學生必看](https://gnews.org/zh-hans/216777/)）。
 
-Section 1. Policy.
+在郭先生發出了預警之後，美國出臺了什麼政策呢？據美國駐華大使館和領事館2020年6月1日發佈的[美國限制中國人民解放軍利用非移民簽證項目非法獲得美國技術和智慧財產權](https://china.usembassy-china.org.cn/zh/u-s-limits-the-plas-ability-to-use-visa-programs-to-illicitly-acquire-u-s-technologies-and-intellectual-property-zh/?utm_medium=referral&amp;utm_content=5ed60588389b9716f5d635fb&amp;utm_campaign=kawo&amp;utm_source=weibo.com)的通知【特朗普總統（President Trump）於5月29日發佈公告，限制中國人民解放軍濫用非移民學生和研究人員簽證專案的行為。特朗普政府（Trump Administration）堅持要求與中華人民共和國的關係實現公平和對等，同時繼續高度重視外國學生和研究人員做出的重大貢獻，其中包括來自中國的這類人員。但是本屆政府也堅定地要求保護我國的國家和經濟安全。我們不允許中華人民共和國為了達到中國的軍事目的試圖非法從我國學術機構和研究設施獲得美國的技術和智慧財產權。
 
-第1節 政策
+總統發佈的公告暫停中華人民共和國任何其學術或研究活動可能對中華人民共和國執行和支持中國共產黨“軍民融合”戰略的實體提供支援的國民持F或J簽證入境美國從事學習或研究，除從事本科學習的學生外。我們上星期五的行動是中華人民共和國政府採取有關戰略和政策的直接結果。這些戰略和政策利用中國某些最有才華的研究生和研究人員接觸某些目標領域的機會，從美國機構轉移和盜竊敏感技術和智慧財產權，不正當地利用我國開放與合作式的學術和研究環境達到利己的目的。這項行動將有助於保護美國的國家和經濟安全利益及美國研究事業的效益和安全。
 
-(a) Religious freedom, America’s first freedom, is a moral and national security imperative. Religious freedom for all people worldwide is a foreign policy priority of the United States, and the United States will respect and vigorously promote this freedom. As stated in the 2017 National Security Strategy, our Founders understood religious freedom not as a creation of the state, but as a gift of God to every person and a right that is fundamental for the flourishing of our society.
+我們關注的是中國共產黨及某些特定人員的惡意行為，不是中國人民。中華人民共和國政府為實現其軍事利益所選中、拉攏和利用的研究生和研究人員，在申請赴美簽證的中國學生和研究人員中占一小部分。我們期待新的簽證政策將有助於為美國和中國學者進行更有誠意的交往提供一個更有益的開放和透明的環境。與此同時，美國將繼續盡一切努力保護美國的技術和機構，保證我國的國家和經濟安全繼續得到保障，不受外國的干涉。】
 
-(a) 宗教自由是美國的第一大自由，是道義和國家安全的當務之急。全世界所有人的宗教自由是美國的外交政策的優先事項，美國將尊重並大力促進這一自由。正如《 2017年國家安全戰略》中所述，美國的開國者們認為，宗教自由不是國家的產物，而是上帝賜給每個人的禮物，並且是對我們社會蓬勃發展至關重要的一項權利。
+對於美國的這一政策中共外交部的回應是什麼呢？據[據外交部：美方限制中國學生人員赴美簽證是開歷史倒車](https://baijiahao.baidu.com/s?id=1668387522225508222&amp;wfr=spider&amp;for=pc)（金融界2020年6月2日19:28分發佈）【深圳衛視記者：美國務卿蓬佩奧6月1日發表聲明稱，特朗普政府重視包括中國在內國際學生和研究人員的重要貢獻，但不會容忍中國從美學術和研究機構非法獲取美技術和智慧財產權，並用於本國軍事目的。中方對此有何評論？
 
-(b) Religious communities and organizations, and other institutions of civil society, are vital partners in United States Government efforts to advance religious freedom around the world. It is the policy of the United States to engage robustly and continually with civil society organizations — including those in foreign countries — to inform United States Government policies, programs, and activities related to international religious freedom.
+趙立堅：和其他問題一樣，蓬佩奧慣於編造謊言為自己的錯誤行為找藉口。中國留學人員聰明勤奮，一向是中美科技教育交流和兩國人民友誼的重要橋樑。美方泛化國家安全概念，以莫須有的罪名出臺措施限制中國留學人員赴美簽證，嚴重侵犯中國留學人員正當權益，完全違背中美兩國人民包括青年一代開展友好交流的共同願望，這是開歷史倒車，只會損人害己。】
 
-(b) 宗教社區和組織以及其它的民間社會機構，是美國政府為促進全世界宗教自由所做的努力的重要夥伴。美國的政策是與民間社會組織（包括在國外的民間社會組織）進行有力和持續的接觸，以幫助美國政府制定與國際宗教自由有關的政策、計劃和活動。
+面對美國的“開歷史倒車”，中共駐美國使館組織了航班，並且溫馨的注明：
 
-Sec. 2. Prioritization of International Religious Freedom.
+1、“國航將根據使館提供的名單，通過客服中心（來電顯示一般會包含861095583這個號碼）通知乘客購買機票，請留學人員注意接聽預留的電話，保持手機暢通。”，這說明，這次能夠上這個航班的都是使館非常瞭解背景的留學生；
 
-Within 180 days of the date of this order, the Secretary of State (Secretary) shall, in consultation with the Administrator of the United States Agency for International Development (USAID), develop a plan to prioritize international religious freedom in the planning and implementation of United States foreign policy and in the foreign assistance programs of the Department of State and USAID.
+2、“近日，多名中國公民反映在出境時被美邊境海關執法人員長時間盤問並檢查隨身攜帶的手機、電腦等電子設備，部分人員的電子設備被執法人員暫扣以做進一步檢查。請搭乘航班人員注意瞭解美方出入境有關規定，提高自我保護意識，以免出境時對自己造成不便和損失。”，這說明，使館完全清楚這些留學生如果不銷毀自己手機和電腦裡的犯罪證據，將會面臨什麼樣的後果。
 
-第2節 優先考慮國際宗教自由
+什麼叫此地無銀三百兩？[關於搭乘6月4日國航CA818臨時航班有關事項的通知](http://www.china-embassy.org/chn/lszj/zytz/t1784239.htm)就是！什麼叫隔壁阿二不曾偷？[關於搭乘6月4日國航CA818臨時航班有關事項的通知](http://www.china-embassy.org/chn/lszj/zytz/t1784239.htm)就是！
 
-在下達此命令之日起的180天內，國務卿應與美國國際開發署（USAID）署長協商，在規劃和執行美國外交政策和在國務院和美國國際開發署的對外援助計劃中，制定優先考慮國際宗教自由的計劃。
+那麼中共駐美國使館只做了這些嗎？我們先看一個視頻，據
 
-Sec. 3. Foreign Assistance Funding for International Religious Freedom.
+[韓連潮@lianchaohan](https://twitter.com/lianchaohan)[Jun 2](https://twitter.com/lianchaohan/status/1267634775688388608)推文 【中共勢力參與白宮前的暴力打砸】這段視頻裡很清楚地聽到漢語普通話的指揮聲音，這是“境外勢力”插手煽動搞破壞的鐵證。】，視頻為推特原視頻——
 
-(a) The Secretary shall, in consultation with the Administrator of USAID, budget at least $50 million per fiscal year for programs that advance international religious freedom, to the extent feasible and permitted by law and subject to the availability of appropriations. Such programs shall include those intended to anticipate, prevent, and respond to attacks against individuals and groups on the basis of their religion, including programs designed to help ensure that such groups can persevere as distinct communities; to promote accountability for the perpetrators of such attacks; to ensure equal rights and legal protections for individuals and groups regardless of belief; to improve the safety and security of houses of worship and public spaces for all faiths; and to protect and preserve the cultural heritages of religious communities.
+請注意這個視頻結尾處的普通話“快走！走！走！走！”，以及與這個視頻非常關聯的下面內容：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010833/EZgNHafXgAEH3TB.jpg)
+在中共即將被定為非法政權之際，堂堂一國駐美國使館做出了這樣的下三濫，真是讓我們羞愧到無以復加，因為中共是全人類的敵人，所以它也是我們所有中國人的敵人，可是這個敵人與我們流淌著同樣的血，在它臨死前，它繼續在毀滅我們的形象，同時我們也要問一下，那些即將登上這個航班的留學生們：
 
-第3節 國際宗教自由的對外援助資金
+中共駐美國使館能夠組織你們上這一趟逃亡航班，那麼美國方面會不知道這些嗎？不管你們是否能夠順利離開美國，在將來你們回想這一刻和此前你們或受中共誤導或主動投靠之下而做出對人類文明和自由的侵害，你們是否會感到後悔？
 
-(a) 國務卿應在與美國國際開發署署長協商後，在法律允許和可行的範圍內，並在可獲撥款的前提下，每財政年度為促進國際宗教自由的方案設立至少5,000萬美元的預算。此類項目應包括那些旨在預測、預防和回應對個人和團體的宗教信仰襲擊的計劃，包括旨在確保此類群體能夠作為獨特的群體長期存續的項目；促進對此類襲擊的肇事者追責；確保無論何種信仰的個人和團體都享有平等的權利和法律保護；改善所有宗教敬拜場所和公共場所的安全保障；並保護和保存宗教社區的文化遺產。
+早知如此，何必當初！
 
-(b)  Executive departments and agencies (agencies) that fund foreign assistance programs shall ensure that faith-based and religious entities, including eligible entities in foreign countries, are not discriminated against on the basis of religious identity or religious belief when competing for Federal funding, to the extent permitted by law.
-
-(b) 為外國援助計劃提供資金的執行部門和機構（機構），應確保在信仰和宗教實體，包括外國的合格實體，在法律允許的範圍內爭取聯邦資金時，不會因宗教身份或宗教信仰遭受歧視。
-
-Sec. 4. Integrating International Religious Freedom into United States Diplomacy.
-
-(a) The Secretary shall direct Chiefs of Mission in countries of particular concern, countries on the Special Watch List, countries in which there are entities of particular concern, and any other countries that have engaged in or tolerated violations of religious freedom as noted in the Annual Report on International Religious Freedom required by section 102(b) of the International Religious Freedom Act of 1998 (Public Law 105-292), as amended (the “Act”), to develop comprehensive action plans to inform and support the efforts of the United States to advance international religious freedom and to encourage the host governments to make progress in eliminating violations of religious freedom.
-
-第4節 將國際宗教自由納入美國外交
-
-(a) 國務卿應指導駐紮在那些特別關注國、特別觀察名單上的國家、存在特別關注實體的國家、以及根據修訂版的1998年《國際宗教自由法》（公共法第105-292號）第102(b)條所規定的《國際宗教自由年度報告》中所提到的，侵犯或容忍侵犯宗教自由的任何其它國家的外交使團長官，制定全面的行動計劃，以告知和支持美國促進國際宗教自由，並鼓勵東道國政府在消除侵犯宗教自由方面取得進展。
-
-(b) In meetings with their counterparts in foreign governments, the heads of agencies shall, when appropriate and in coordination with the Secretary, raise concerns about international religious freedom and cases that involve individuals imprisoned because of their religion.
-
-(b) 美國的機構負責人在與外國政府對口機構舉行會議時，應酌情並在與國務卿的步調一致時，對國際宗教自由和涉及因宗教而被監禁的個人的案件表示關切。
-
-(c) The Secretary shall advocate for United States international religious freedom policy in both bilateral and multilateral fora, when appropriate, and shall direct the Administrator of USAID to do the same.
-
-(c) 國務卿應在適當時，在雙邊和多邊論壇上，倡導美國的國際宗教自由政策，並應指示美國國際開發署署長表明同樣的立場。
-
-Sec. 5.  Training for Federal Officials. 
-第五節 聯邦官員培訓
-
-(a)  The Secretary shall require all Department of State civil service employees in the Foreign Affairs Series to undertake training modeled on the international religious freedom training described in section 708(a) of the Foreign Service Act of 1980 (Public Law 96-465) , as amended by section 103(a)(1) of the Frank R. Wolf International Religious Freedom Act (Public Law 114-281).
-(a) 國務卿應要求所有國務院外事部門公務員系統的僱員接受以1980年《外交服務法》（公法第96-465號）第708(a)條所述的國際宗教自由培訓為藍本的培訓， 該條款經弗蘭克·R·沃爾夫國際宗教自由法（公共法第114-281號）第103(a)(1)條修正。
-
-(b)  Within 90 days of the date of this order, the heads of all agencies that assign personnel to positions overseas shall submit plans to the President, through the Assistant to the President for National Security Affairs, detailing how their agencies will incorporate the type of training described in subsection (a) of this section into the training required before the start of overseas assignments for all personnel who are to be stationed abroad, or who will deploy and remain abroad, in one location for 30 days or more.
-(b) 在命令發布之日起90天內，所有向海外派遣人員的機構的負責人應通過國家安全事務總統助理向總統提交計劃，詳細說明其機構將如何，對所有將要在一個地點停留30天或更長時間的外派人員，在開始執行海外任務或之前所需的培訓中，加入本節(a)中所述的培訓。
-
-(c)  All Federal employees subject to these requirements shall be required to complete international religious freedom training not less frequently than once every 3 years.
-(c) 所有必須遵守這些要求的聯邦僱員完成國際宗教自由培訓的頻率不得少於每3年一次。
-
-Sec. 6.  Economic Tools. 
-第六節 經濟手段
-
-(a)  The Secretary and the Secretary of the Treasury shall, in consultation with the Assistant to the President for National Security Affairs, and through the process described in National Security Presidential Memorandum-4 of April 4, 2017 (Organization of the National Security Council , the Homeland Security Council, and Subcommittees), develop recommendations to prioritize the appropriate use of economic tools to advance international religious freedom in countries of particular concern, countries on the Special Watch List, countries in which there are entities of particular concern, and any other countries that have engaged in or tolerated violations of religious freedom as noted in the report required by section 102(b) of the Act.  These economic tools may include, as appropriate and to the extent permitted by law, increasing religious freedom programming, realigning foreign assistance to better reflect country circumstances, or restricting the issuance of visas under section 604(a) of the Act.
-(a) 國務卿和財政部長應與國家安全事務總統助理協商，按照2017年4月4日的《國家安全總統備忘錄》第4號（國家安全委員會組織，國土安全委員會和小組委員會）所規定的程序，提出建議，對名列特別觀察名單上的特別關注國、 特別關注實體所在的國家、以及任何其它從事或容忍《國際宗教自由法》第102(b)條中指出的侵犯宗教自由的國家，優先考慮合理使用經濟手段，以促進國際宗教自由。這些經濟手段可酌情在法律允許的範圍內，加強宗教自由計劃，根據情況調整援助計劃，或根據《國際宗教自由法》第604(a)條限制簽證的發放。
-
-(b)  The Secretary of the Treasury, in consultation with the Secretary of State, may consider imposing sanctions under Executive Order 13818 of December 20, 2017 (Blocking the Property of Persons Involved in Serious Human Rights Abuse or Corruption), which, among other things, implements the Global Magnitsky Human Rights Accountability Act (Public Law 114-328)
-(b) 財政部長應與國務卿協商，考慮根據2017年12月20日第13818號行政命令（查封涉及嚴重侵犯人權或腐敗的人的財產）實施制裁，其中包括實施《馬格尼茨基全球人權問責法》（公共法第114-328號）。
-
-Sec. 7.  Definitions.  
-For purposes of this order:
-第七節 定義
-在此行政令中：
-
-(a)  “Country of particular concern” is defined as provided in section 402(b)(1)(A) of the Act;
-(a) 根據《國際宗教自由法》第402(b)(1)(A)條定義“特別關注國”；
-
-(b)  “Entity of particular concern” is defined as provided in section 301 of the Frank R. Wolf International Religious Freedom Act (Public Law 114-281);
-(b) 根據《弗蘭克·R·沃爾夫國際宗教自由法》（第114-281號公共法）第301條定義“特別關注實體”；
-
-(c)  “Special Watch List” is defined as provided in sections 3(15) and 402(b)(1)(A)(iii) of the Act; and
-(c) 根據《國際宗教自由法》第3(15) 和402(b)(1)(A)(iii) 條定義 “特別觀察名單”；
-
-(d)  “Violations of religious freedom” is defined as provided in section 3(16) of the Act.
-(d) 根據《國際宗教自由法》第3(16)條定義“違反宗教自由”。
-
-Sec. 8.  General Provisions. 
-第8 節 一般條款
-
-(a) Nothing in this order shall be construed to impair or otherwise affect:
-(a) 此行政令的任何內容均不得被用來損害或影響：
-
-(i)  the authority granted by law to an executive department or agency, or the head thereof; or
-(i) 法律授予行政部門或機構或其負責人的權力；或
-
-(ii) the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
-(ii) 管理和預算辦公室主任與預算、行政或立法提案有關的職能。
-
-(b) This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
-(b) 本命令的執行應符合適用的法律，並視有無撥款情況而定。
-
-(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees , or agents, or any other person.
-(c) 本命令無意也不會產生任何實質性或程序性的權利或利益，任何一方可在法律或衡平法上對美國、其部門、機構或實體、其官員、僱員或代理人或任何其他人強制執行。
-
-DONALD J. TRUMP
-THE WHITE HOUSE, June 2, 2020.
-唐納德·川普白宮2020年6月2日。
-
-*翻譯&校對：【新生】【JoyJoy】【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
-
-[閱讀原文](https://www.whitehouse.gov/presidential-actions/executive-order-advancing-international-religious-freedom/)
+（文章內容僅代表作者個人觀點）
 
 0

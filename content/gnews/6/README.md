@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】01/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-03 01:25 GM77` [轉載自GNews](https://gnews.org/zh-hant/221505/)
+## 中共的狡猾：窮則韜光養晦，達則戰狼外交
+`2020-06-03 03:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/221596/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03023829/Picture-1-6.png)
+來自華盛頓郵報專欄：近日，巴西議員馬丁斯洩露了一份中共在5月13日給巴西國會的信。信中要求巴西遵守一中政策並對台灣總統蔡英文的當選保持沉默。對此，巴西網民憤怒回應，在社交媒體上發起了“台灣萬歲”運動並指責中共對巴西主權的侵犯。
 
-[English\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010955/English_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010955/English_0601_CCP_Virus_Updates.pdf)
+過去，中共一直聲稱不干涉別國內政。在1955年萬隆會議上，周恩來強調求同存異。在鄧小平年代，提出韜光養晦，善於守拙，決不當頭的原則，並延續至胡錦濤時代。然而，本屆政府卻通過“一帶一路”大量投資全球，想讓自己“理所當然”的參與到其他國家的內政中。至今為止，“一帶一路”涉及超過六十個國家，從柬埔寨到安哥拉，從巴基斯坦到匈牙利。
 
-[French\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010958/French_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010958/French_0601_CCP_Virus_Updates.pdf)
+這些擴張昭示了中共不干涉別國內政原則的結束。
 
-[Japanese\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011004/Japanese_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011004/Japanese_0601_CCP_Virus_Updates.pdf)
+專欄還指出，自2014年，中共為了保住原油供應，插手了南蘇丹的衝突。而在2011年，中共卻不願涉及利比亞內戰。中共險些未能保護其經濟利益，最終撤離三萬五千在利比亞工作的中國人。自那以後，中共在非洲合作國家中不斷擴張其軍事能力。
 
-[Korean\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011008/Korean_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011008/Korean_0601_CCP_Virus_Updates.pdf)
+中共的干涉在2018年馬來西亞的選舉中愈演愈烈，對中持懷疑態度的馬哈蒂爾·穆罕默德（Mahathir Mohamad）出人意料地擊敗了對華友好的現任納吉·拉扎克（Najib Razak）。馬哈蒂爾上任後火速前往中國，重新商討納吉同意的“一帶一路”倡議，並警告中共在進行“新殖民主義”。幾個月後，中國駐柬埔寨大使出席了柬埔寨執政黨的活動，還出現了以柬埔寨領袖洪森（Hun Sen）為頭條的新聞，讚揚柬埔寨的“卓越”外交以及批評歐盟提議的人權相關的製裁。上個月，中共又插手尼泊爾的內政。這些都違背中共之前中共提倡的低調作風。
 
-[Russian\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011013/Russian_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011013/Russian_0601_CCP_Virus_Updates.pdf)
+此外，中共的干預還不止這些。中共與緬甸政府的合作日益深入，但其國有企業卻一直在武裝緬甸的反叛軍。究其原因是反叛軍承諾不打亂中共在皎漂深海港的政治利益。
 
-[Spanish\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011020/Spanish_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011020/Spanish_0601_CCP_Virus_Updates.pdf)
+除了外交政策的變化，中共境內也大力宣傳戰狼外交。
 
+事實已經證明只要有利益，中共並不關心別國主權的完整性。世界各國的領導人必須認清中共的面目。
 
+[原文鏈接](https://www.washingtonpost.com/opinions/2020/06/02/welcome-chinas-new-interventionist-foreign-policy/)
+
+翻譯報導：Sonya
 
 0
