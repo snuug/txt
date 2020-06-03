@@ -1,23 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】01/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-03 01:25 GM77` [轉載自GNews](https://gnews.org/zh-hant/221505/)
+## 中共媒體處心積慮地想要搞亂美國
+`2020-06-03 03:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/221605/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03032916/Picture-1-7.png)圖片來源：[大紀元時報](https://www.epochtimes.com/)
+據《嚴冬》（Bitter Winter）雜誌報導，最近中共國官媒《環球時報》大肆渲染一種觀點，即把最近美國Antifa組織的暴亂與香港民主運動做比較，形容這些行為就像是香港暴徒潛入美國這些城市一樣。
 
-[English\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010955/English_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010955/English_0601_CCP_Virus_Updates.pdf)
+文章做了詳細的比較分析。那些抗議美國喬治·弗洛伊德（George Floyd）之死的人，和抗議中共國攻擊香港民主運動的人有什麼共同點？首先，這兩場運動都是從抗議不公開始的，並得到了大多數民主國家和國際媒體的同情。在香港，儘管香港黑警過度使用武力，但很少有抗議者採取暴力行動。而在美國，很多人以合法抗議為藉口，砸碎窗戶，偷竊商品，洗劫商店。當然，對比中共控制的媒體對香港遊行抗議的報導，美國媒體對喬治·弗洛伊德之死抗議的反應，完全是不同的，甚至是相反的。大多數美國媒體拒絕接受這些抗議者的暴力行為，但同時也強烈批評那些利用弗洛伊德事件煽動種族主義仇視的行為。反觀中共媒體，它們譴責所有香港抗議者，污名化他們為分裂分子、“廢青”甚至“暴徒”，並美化警方的殘酷鎮壓，完全無視那些走上街頭的香港人提出的合理訴求。
 
-[French\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010958/French_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03010958/French_0601_CCP_Virus_Updates.pdf)
+不出所料，中共國國內和國際上的宣傳機器一直在不遺餘力的操縱美國此次抗議活動，一會兒批評美國警察暴力執法，一會又批評美國當局對暴亂者的過分寬容才導致了弗洛伊德事件的發酵。中共的宣傳喉舌《環球時報》說:“焚燒警察局、搗毀商店、堵塞道路、襲擊警察和破壞公共設施，所有這些行為就好像是香港暴徒潛入了美國城市。”
 
-[Japanese\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011004/Japanese_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011004/Japanese_0601_CCP_Virus_Updates.pdf)
+《環球時報》編輯胡錫進援引美國眾議院議長南希•佩洛西(Nancy Pelosi)對香港抗議運動的評價—“美麗的景象（beautiful sight）”，來評價美國此次抗議活動，並在其推特上大肆宣傳，稱美國政客定義的“美麗的景象”最終從香港延伸到了美國。胡錫進說到，“我就想問問你們：你們現在可以通過自己家裡的窗戶看到這一切。那中共是否應該也支持美國的抗議活動，就像你們支持香港的暴徒一樣呢?”。中共黨媒中央電視台(CCTV)評論說，“美國政客正在搬起石頭砸自己的腳，讓他們也嚐嚐鼓勵香港騷亂的苦果！”
 
-[Korean\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011008/Korean_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011008/Korean_0601_CCP_Virus_Updates.pdf)
+中共還試圖在非洲煽動反美情緒。外交部發言人趙立堅說:“針對美國的局勢，非洲聯盟和許多非洲國家的領導人呼籲為種族歧視伸張正義。他們的聲音代表了國際社會的共識，值得美方關注。中方支持非方的正義呼籲，將與非方一道堅決反對一切形式的種族歧視，包括煽動性的種族敵視和種族仇恨言論。”令人諷刺的是，在病毒爆發期間，中共就已經被指控對生活在中國的非洲人進行過種族歧視。
 
-[Russian\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011013/Russian_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011013/Russian_0601_CCP_Virus_Updates.pdf)
+雖然中共的宣傳規模很大，但邏輯十分混亂。一方面，中共將美國的抗議活動描繪成是對種族歧視的合法批評。但是，如果抗議是合法正當的，那麼為什麼香港抗議者就被剝奪了這種抗議的合法性呢？另一方面，中共又批評美國當局對抗議和騷亂的縱容是美國暴力事件頻發的根源，因此中共國的安全和監管體系才是更加優越的體系。
 
-[Spanish\_0601\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011020/Spanish_0601_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03011020/Spanish_0601_CCP_Virus_Updates.pdf)
+然而，中共的這個理論是極其錯誤的，因為極權主義從來沒有比民主制度更好。在民主國家，抗議活動時有發生，有時候也會演變成暴力。法院和公正的媒體能區分出合法的抗議和非法的暴力，這也證明了民主制度的優越性。然而極權者總會想法設法編織出一些所謂的“解決方案”，即鎮壓所有的抗議活動，把所有的抗議者抓起來。這就是中共為香港給出的所謂“解決方案”。它是基於一種“貌似合理”但錯誤的觀點，即“穩定”比自由更重要。然而，沒有自由的穩定只能是死亡的穩定和墓地的和平。
 
+評：
 
+中共（CCP）一直以來在對國內問題和國外問題的態度上都採取著雙重標準。它的宣傳口號往往是為了自己的政治目標服務。比如“穩定壓倒一切”，這一中共常常掛在嘴邊的政治口號，它表示：為了國家和社會表面的穩定，應該把各種社會矛盾“消滅”在萌芽階段，為了達到這個目的，不惜犧牲個人利益、自由、甚至生命。一方面，CCP把香港的反送中運動構陷為分裂或“支持香港獨立”運動；而另一方面，在美國Antifa暴亂問題上，它卻拋棄了自己的這一“穩定原則”，轉而支持Antifa暴徒，並聲稱暴徒們的打、砸、搶、燒行為是為了維護自己的合理的訴求。 CCP的這種觀點實在太過荒謬，這就如同為了打壓香港市民的和平抗爭運動，竟然聲稱1984年自己簽署的《中英聯合聲明》是一張過期廢紙，毫無信用可言。
+
+目前，美國各地的騷亂還在繼續，影響的範圍似乎還有擴大趨勢，美國人民因此還要被迫忍受著因CCP的虛假宣傳而被鼓動上街的暴力行為所帶來的陣痛。郭文貴先生曾在爆料革命中提到過，CCP有一個“3F計劃”：即，搞弱美國（Foment weakness）、搞亂美國（Foment Chaos）和搞死美國（Foment destruction），並表示這是CCP的核心目標，永遠不會變。現在根除頑疾的辦法只有一個，在美國在川普總統的領導下消滅CCP，徹底解決問題，不能再有絲毫猶豫。如果繼續遲疑，待“紅龍之爪”成熟之時，美國和世界將永無寧日。
+
+[原文鏈接](https://bitterwinter.org/ccp-propaganda-manipulates-protests-in-the-usa)
+
+翻譯報導：Charles7
 
 0

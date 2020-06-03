@@ -1,61 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扒一扒《國家安全法》的底褲
-`2020-06-02 18:51 GM06` [轉載自GNews](https://gnews.org/zh-hant/221016/)
+## 6月2日 美國政要推文選譯
+`2020-06-02 21:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/221139/)
 
-作者：文臣
+> It starts; so soon. For the first time in 30 years, Hong Kong authorities denied permission to hold the [#TiananmenVigil](https://twitter.com/hashtag/TiananmenVigil?src=hash&amp;ref_src=twsrc%5Etfw). If there is any doubt about Beijing’s intent, it is to deny Hong Kongers a voice and a choice, making them the same as mainlanders. So much for two systems.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267793562550353923?ref_src=twsrc%5Etfw)
 
-香港《國安法》馬上就要實施了， 在中共偽人大代表們豎起他們的中指，按下橫屍在他們桌面那一排滑稽的按鈕，表示贊成時，舉世譁然！
+美國國務卿 蓬佩奧：壹切都已經開始；非常快。三十年來第壹次，香港當局拒絕批準“六四”燭光守夜活動。如果對北京的企圖有任何疑問，那就是剝奪了香港人的話語權和選擇權，讓他們淪為和大陸人壹樣的境地。“兩種制度”也就這樣了。
 
-《國安法》究竟是什麼東西，竟引起世界如此關注。今天，就讓我文臣來扒一扒這部法的底褲，讓大家看一看這個醜鄙東西的前世今生！
+> Great conversation with my Australian, Canadian, New Zealand, and UK counterparts. Together we are addressing the CCP’s erosion of Hong Kong’s autonomy and pushing for transparency on COVID-19. We remain focused on addressing Iran’s destabilizing behavior in Iraq and the region.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267840972781694976?ref_src=twsrc%5Etfw)
 
-香港《國安法》是草率出臺的一部法律，它精緻細膩的親大哥就是中共偽政權的《國家安全法》，而撕開中共偽政權的《國家安全法》的美麗畫皮，裡面竟然是臭名昭著，每個筆劃，每個標點符號都裹挾著華人累累白骨的毛魔時代的《懲治反革命條例》！
+美國國務卿 蓬佩奧：與澳洲、加拿大、新西蘭和英國的外長進行了很好的交談。我們共同致力於解決中共對香港自治的侵蝕行為，並推動冠狀病毒疫情的公開透明。我們繼續關註解決伊朗破壞伊拉克及該地區穩定的問題。
 
-蘇俄曾於1927年頒佈《俄羅斯聯邦法典特別部分》，該法典第1章第58條規定，屬於“國事罪”中的第一類罪就是“反革命罪”，在蘇聯期間，成百上千萬的俄羅斯優秀兒女被這部血腥的法律奪去了他們盛開如鮮花一樣美麗的生命！
+> Today, the U.S. protests the PRC’s unlawful South China Sea maritime claims at the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). We reject these claims as unlawful and dangerous. Member States must unite to uphold international law and freedom of the seas. [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h6UCoBnnnb](https://t.co/h6UCoBnnnb)
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267861621965303809?ref_src=twsrc%5Etfw)
 
-毛魔時代的《懲治反革命條例》就是蘇俄在遠東的雜種！和中共一樣，蘇俄是它親爹，馬列是它親祖宗！
+美國國務卿 蓬佩奧：今天，美國對中共國在聯合國提出的非法南中國海海域主張提出抗議。我們拒絕這些非法且危險的領土主張。各成員國必須團結壹致，維護國際法和海洋自由。
 
-在毛魔時代的中共國，反革命罪是處治最嚴厲的法律罪名，又是一頂最隨意、最氾濫、最令人恐懼的政治汙名。
+> Now we know for sure that Communist China hid critical data that could have altered the global response to the pandemic.
+> 
+> And instead of exposing Communist China’s deceit, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) praised their response & was complicit in China’s cover-up. [https://t.co/0gSScqh0D0](https://t.co/0gSScqh0D0) [pic.twitter.com/aD0zKY1qDf](https://t.co/aD0zKY1qDf)
+> — Rick Scott (@SenRickScott) [June 2, 2020](https://twitter.com/SenRickScott/status/1267840172734939141?ref_src=twsrc%5Etfw)
 
-1950年代初中國鎮壓反革命運動，共捕了262萬餘人，其中殺害反革命分子71.2萬余人。文革期間13.5萬餘人被以現行反革命罪判為死刑。
+參議員 Rick Scott：現在我們可以確定中共國隱瞞了本可以讓全球對疫情大爆發有不同應對措施的關鍵信息。而世衛組織不但沒有揭露中共國的欺瞞行為，反而稱贊他們並成為他們掩蓋行徑的同謀。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02183502/8-2.png)
+> Difference between Hong Kong and America. [https://t.co/W7Q6QPFszU](https://t.co/W7Q6QPFszU)
+> — General Spalding (@robert\_spalding) [June 2, 2020](https://twitter.com/robert_spalding/status/1267871249436487682?ref_src=twsrc%5Etfw)
 
-大家耳熟能詳的張志新烈士，就是文革期間，被毛澤東的侄子毛遠新冠以反革命的罪名，在東北的監獄中受盡淩辱和酷刑，最後被割喉而死。
+斯伯丁將軍：香港與美國的不同之處
 
-著名的北大才女，基督徒林昭女士，也是以反革命的罪名被中共槍斃，事後中共竟然還厚顏無恥的跑到林昭女士的母親那裡索要1毛錢的子彈費！
-
-毛魔時代的《懲治反革命條例》就是一個恐怖，卑劣，噁心的笑話！
-
-毛魔的好基友，舔菊一輩子的中華人民共和國主席劉少奇，當時中共國名義上的最高元首，毫無尊嚴的死去的時候，他的一個罪名也是被他舔菊的好基友送給他的—-沒錯，反革命罪！
-
-最為搞笑的是：號稱我是主席的一條狗，讓我咬誰我咬誰的紅都女王，毛魔的妻子江青，在《懲治反革命條例》的始作俑者———毛魔剛一蹬腿兒咽氣，就以反革命罪被判處死刑，緩期兩年執行！
-
-與《懲治反革命條例》相比，《國家安全法》只是名目改變而實質未變，就是精心畫了一張沉魚落雁的畫皮而已：
-
-原來列在“反革命罪”下各項罪名，均改列為“危害國家安全罪”，只是調整了各項具體罪名的秩序而已。原“反革命罪”項之下的各項罪名的順序是：背叛祖國罪、陰謀顛覆政府罪、陰謀分裂國家罪、策動投敵叛變罪、策動叛亂罪、投敵叛變罪、持械聚眾叛亂罪等。而“危害國家安全罪”的罪名實質順序（去除立法技術因素）是：背叛國家罪、分裂國家罪、武裝叛亂、暴亂罪、顛覆國家政權罪、資助危害國家安全犯罪活動罪等。背叛國家罪仍然放在首位，而顛覆國家政權罪由原來的第2位降至現在的第4位，分裂國家罪由原來的第3位升至現在的第2位，武裝叛亂罪由原來的第7位升至現在的第3位，投敵叛變罪等幾種犯罪的位序基本未變。
-
-扒開這部惡法的底褲，我們噁心的發現，裡面全是馬恩列斯毛！腥臊惡臭，鄙陋不堪！
-
-我們看一下最近這部披著畫皮的惡法都幹了什麼事：
-
-浙江張建紅，在海外少數幾個中文網站上發表評論，以表述自己對時政的看法。被冠以“危害國家安全罪”被捕。
-
-湖南株洲顏頭生、顏喜成父子只是將10餘條申訴自己冤情的標語張貼在茶陵縣少數公共場所，傳播範圍極為狹窄，被冠以“危害國家安全罪”被捕。
-
-貴州省李元龍利用一些翻牆軟體上網流覽海外網站，被冠以“危害國家安全罪”被捕。
-
-新疆巴敦打電話、寄信給美國之音、自由亞洲電臺，被冠以“危害國家安全罪”被捕。
-
-上海律師鄭恩寵曾將上海益民食品一廠工人因強行拆遷而靜坐抗議一事的經過寫出發給了美國紐約的人權組織“中國人權”；被冠以“危害國家安全罪”被捕。
-
-北京徐偉、楊子立、靳海科、張宏海等四位元在校大學生、研究生，只不過是聚集在一起討論時事政治而已，被冠以“危害國家安全罪”被捕——。
-
-這部法律造成的令人髮指的冤案源源不斷，數不勝數！
-
-今天，這部從糞坑裡爬出來，邊蠕動邊散發著惡臭的惡法又要被中共強加給平靜安寧的香港人，大家想想，英勇的香港人民怎麼可能會答應！我們爆料革命的戰友們怎麼可能會答應！在中共的威逼下結成的世界正義聯盟怎麼可能會答應！
-
-(文章內容僅代表作者觀點)
-
+ScottGordonNBC5：抗議者就在擴音器上對警察說，如果警官們單膝跪地，他們就回家。警官們這樣做了。抗議者上前與警察握手、擁抱。非常棒。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02213225/image0.png.jpeg)
 0
