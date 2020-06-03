@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情仍在持續，請勿大意！“中共病毒疫情每日熱線”
-`2020-06-02 06:55 GM30` [轉載自GNews](https://gnews.org/zh-hant/220526/)
+## 庫德洛：中共犯了大錯，再談香港、貿易協定、美中關系
+`2020-06-02 08:47 GM65` [轉載自GNews](https://gnews.org/zh-hant/220636/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+翻譯：Halley 字幕：Vinzo
 
 0
