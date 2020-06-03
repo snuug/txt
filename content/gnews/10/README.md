@@ -1,29 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美駐港總領館出售房產預示了什麼
-`2020-06-02 18:23 GM06` [轉載自GNews](https://gnews.org/zh-hant/220988/)
+## 6月2日 美國政要推文選譯
+`2020-06-02 21:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/221139/)
 
-作者：文茗
+> It starts; so soon. For the first time in 30 years, Hong Kong authorities denied permission to hold the [#TiananmenVigil](https://twitter.com/hashtag/TiananmenVigil?src=hash&amp;ref_src=twsrc%5Etfw). If there is any doubt about Beijing’s intent, it is to deny Hong Kongers a voice and a choice, making them the same as mainlanders. So much for two systems.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267793562550353923?ref_src=twsrc%5Etfw)
 
-據香港媒體近日報導，美國出售南區壽臣山壽山村道37號，現址6幢三層高洋房，該房產美國政府已持有超過72年。多年來，該處一直作為美國駐港總領館高級職員宿舍。根據香港媒體獲得的標書顯示，物業建築面積約為47382平方英尺（約合4402平方米），實用面積為45082平方英尺（約合4188平方米）；地段為“全海景獨立屋地”，環境清幽、私隱度高；條件是出售後維持現狀或由美方租回，截標日期列出“To be confirmed”（有待決定）。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02181033/5-3.jpg)
-根據土地註冊處資料，地皮現在的業主為美國，美國1948年以31.5萬港元購入。美國駐港總領館發言人確認決定出售該物業，稱美國政府經常審視海外物業資產，本次屬於再投資計畫的一部分，同時會加強投資其他在港資產，包括位於中環花園道的美國駐港總領館，確保其在港資產設施維持長遠及最高水準。
+美國國務卿 蓬佩奧：壹切都已經開始；非常快。三十年來第壹次，香港當局拒絕批準“六四”燭光守夜活動。如果對北京的企圖有任何疑問，那就是剝奪了香港人的話語權和選擇權，讓他們淪為和大陸人壹樣的境地。“兩種制度”也就這樣了。
 
-根據資料獲知，美國政府在香港仍至少持有兩塊地皮，其中一塊為山頂白加道3號6萬平方英尺的地皮，其價值與壽山村道37號差不多；另外美國還持有中環花園道26號美國駐港總領館所在的地皮和建築物，地皮面積有6.17萬平方英尺。其中後者是美國自上世紀50年代開始向港英政府租用的，地契年期75年，到期後可再續75年。土地有出售限制，美國總領館若搬離或關閉，就要歸還給港府，但契約有一個特殊條款，即美政府可於契約期內行使選擇權購買用地的永久業權。1999年，美國與港府商討後，以4400萬港元購入該地皮，2018年估值達77億港元。報導同時提及，美國政府曾在1981年至1983年中英談判期間，接連放售5塊港島區的地皮及樓宇，套現總值1.2億港元。其中美國政府出售的山頂道1號物業由武俠小說家金庸1985年購入，曾入住11年，後輾轉由一名重慶商人買入。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02181158/6-2.png)
-美國總領館出售持有的房產，和美國對相關自貿區取消有直接關係。共產黨背信棄義的推出港版“國安法”,可以說對於香港的法制民主和經濟毀滅的一擊。
+> Great conversation with my Australian, Canadian, New Zealand, and UK counterparts. Together we are addressing the CCP’s erosion of Hong Kong’s autonomy and pushing for transparency on COVID-19. We remain focused on addressing Iran’s destabilizing behavior in Iraq and the region.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267840972781694976?ref_src=twsrc%5Etfw)
 
-國際投資銀行瑞信發表報告稱，美國提出制裁香港後，香港地產將承受到最大的損失，而長遠而言，香港的國際商業和金融中心地位也可能會被削弱。
+美國國務卿 蓬佩奧：與澳洲、加拿大、新西蘭和英國的外長進行了很好的交談。我們共同致力於解決中共對香港自治的侵蝕行為，並推動冠狀病毒疫情的公開透明。我們繼續關註解決伊朗破壞伊拉克及該地區穩定的問題。
 
-摩根大通的研究報告預測，一部分現居於香港的外國人將會離開，估計同時把4,785億港元調離香港，這令外匯儲備減少14%。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02181304/6-1.jpg)
-研究機構的擔憂在一般香港市民的行動上已經體現了出來。據香港《蘋果日報》報導，灣仔，尖沙咀，中環等熱門地區的兌換店，29日傍晚時分已經沒有美元，全部售出，有的兌換店一度在45分鐘換掉百萬美元。還有市民兌換英鎊，日圓，瑞士法郎等避險貨幣，甚至也可以兌換澳元，紐元等轉變穿透的風險貨幣。
+> Today, the U.S. protests the PRC’s unlawful South China Sea maritime claims at the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). We reject these claims as unlawful and dangerous. Member States must unite to uphold international law and freedom of the seas. [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h6UCoBnnnb](https://t.co/h6UCoBnnnb)
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267861621965303809?ref_src=twsrc%5Etfw)
 
-港人的避險舉措以及港人移民潮對於香港經濟來說是最致命的。不論是富人還是人才大量的出走，帶走的不光是創造財富的人，而且會有大量的資金逃離這個傷心之地。當人才和資金都離開此處之時，香港的經濟、金融、房地產都將化為烏有。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02181356/8-1.jpg)
-這樣也就不難理解美國大使館出售房產的原因了，這也是美國政府對於國家財富一種保護行為，而這個行為無意間也會有示範效應，帶領在港美國公司出售資產逃離此地。共產黨真可謂是：成于香港，敗於香港；天道輪回，終有報應。
+美國國務卿 蓬佩奧：今天，美國對中共國在聯合國提出的非法南中國海海域主張提出抗議。我們拒絕這些非法且危險的領土主張。各成員國必須團結壹致，維護國際法和海洋自由。
 
-(文章內容僅代表作者觀點)
+> Now we know for sure that Communist China hid critical data that could have altered the global response to the pandemic.
+> 
+> And instead of exposing Communist China’s deceit, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) praised their response & was complicit in China’s cover-up. [https://t.co/0gSScqh0D0](https://t.co/0gSScqh0D0) [pic.twitter.com/aD0zKY1qDf](https://t.co/aD0zKY1qDf)
+> — Rick Scott (@SenRickScott) [June 2, 2020](https://twitter.com/SenRickScott/status/1267840172734939141?ref_src=twsrc%5Etfw)
 
+參議員 Rick Scott：現在我們可以確定中共國隱瞞了本可以讓全球對疫情大爆發有不同應對措施的關鍵信息。而世衛組織不但沒有揭露中共國的欺瞞行為，反而稱贊他們並成為他們掩蓋行徑的同謀。
+
+> Difference between Hong Kong and America. [https://t.co/W7Q6QPFszU](https://t.co/W7Q6QPFszU)
+> — General Spalding (@robert\_spalding) [June 2, 2020](https://twitter.com/robert_spalding/status/1267871249436487682?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：香港與美國的不同之處
+
+ScottGordonNBC5：抗議者就在擴音器上對警察說，如果警官們單膝跪地，他們就回家。警官們這樣做了。抗議者上前與警察握手、擁抱。非常棒。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02213225/image0.png.jpeg)
 0
