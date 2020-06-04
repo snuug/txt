@@ -1,19 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】2020年6月4日新中國聯邦宣言
-`2020-06-03 20:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222085/)
+## 【新中國聯邦國歌】喜馬拉雅-自由之巔
+`2020-06-04 00:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222253/)
 
-**2020年6月4日新中國聯邦宣言世界多國語言文字版：**
+**《喜馬拉雅-自由之巔》**
 
-[【中文】新中国联邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
+曲：唐平
+詞：齊馥偉（舒文，唐平）
+演唱：空中唱響團隊
 
-[【English】Declaration of the New Federal State of China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)
-
-[【French】Déclaration de l’État Fédéral de Nouvelle Chine](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
-
-[【日本語】新中国連邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
-
-[【Spanish】Declaración del Estado Federal de Nueva China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)
+喜馬拉雅 是群峰之巔
+上天守護的家園
+無名英雄在此甦醒
+帶領人衝破黑暗
+公義吶喊從未停歇
+虔誠祈禱明天
+舉起盾牌肩並肩
+用真理鑄成劍
+斬邪惡與欺騙
+七千勇士保衛著母親尊嚴
+燃熱血祭青春
+讓生命成永恆
+華夏兒女得新生
+喜瑪拉雅是大愛之巔
+神賜美好家園
+捍衛自由信念
+喜瑪拉雅 永遠佇立在心間
+不懼洪水氾濫
+喜瑪拉雅 自由之巔
 
 0

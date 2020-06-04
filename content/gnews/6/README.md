@@ -1,7 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 偉大的新中國聯邦國旗
-`2020-06-04 01:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222311/)
+## 迎接新中國聯邦！“中共病毒疫情每日熱線”
+`2020-06-04 06:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/222442/)
+
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中國聯邦國歌】喜馬拉雅-自由之巔
-`2020-06-04 00:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222253/)
+## 【世界多語言圖文】02/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-04 02:26 GM77` [轉載自GNews](https://gnews.org/zh-hant/222364/)
 
-**《喜馬拉雅-自由之巔》**
+戰友之家圖文摘要組及小語種組
 
-曲：唐平
-詞：齊馥偉（舒文，唐平）
-演唱：空中唱響團隊
+[English\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021931/English_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021931/English_0602_CCP_Virus_Updates.pdf)
 
-喜馬拉雅 是群峰之巔
-上天守護的家園
-無名英雄在此甦醒
-帶領人衝破黑暗
-公義吶喊從未停歇
-虔誠祈禱明天
-舉起盾牌肩並肩
-用真理鑄成劍
-斬邪惡與欺騙
-七千勇士保衛著母親尊嚴
-燃熱血祭青春
-讓生命成永恆
-華夏兒女得新生
-喜瑪拉雅是大愛之巔
-神賜美好家園
-捍衛自由信念
-喜瑪拉雅 永遠佇立在心間
-不懼洪水氾濫
-喜瑪拉雅 自由之巔
+[French\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021934/French_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021934/French_0602_CCP_Virus_Updates.pdf)
+
+[German\_0602\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021938/German_0602_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021938/German_0602_CCP_Virus_Updates_.pdf)
+
+[Japanese\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021944/Japanese_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021944/Japanese_0602_CCP_Virus_Updates.pdf)
+
+[Korean\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021950/Korean_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021950/Korean_0602_CCP_Virus_Updates.pdf)
+
+[Russian\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021958/Russian_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021958/Russian_0602_CCP_Virus_Updates.pdf)
+
+[Spanish\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04022003/Spanish0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04022003/Spanish0602_CCP_Virus_Updates.pdf)
 
 0
