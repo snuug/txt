@@ -1,36 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月2日 美國政要推文選譯
-`2020-06-02 21:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/221139/)
+## 中共的狡猾：窮則韜光養晦，達則戰狼外交
+`2020-06-03 03:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/221596/)
 
-> It starts; so soon. For the first time in 30 years, Hong Kong authorities denied permission to hold the [#TiananmenVigil](https://twitter.com/hashtag/TiananmenVigil?src=hash&amp;ref_src=twsrc%5Etfw). If there is any doubt about Beijing’s intent, it is to deny Hong Kongers a voice and a choice, making them the same as mainlanders. So much for two systems.
-> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267793562550353923?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03023829/Picture-1-6.png)
+來自華盛頓郵報專欄：近日，巴西議員馬丁斯洩露了一份中共在5月13日給巴西國會的信。信中要求巴西遵守一中政策並對台灣總統蔡英文的當選保持沉默。對此，巴西網民憤怒回應，在社交媒體上發起了“台灣萬歲”運動並指責中共對巴西主權的侵犯。
 
-美國國務卿 蓬佩奧：壹切都已經開始；非常快。三十年來第壹次，香港當局拒絕批準“六四”燭光守夜活動。如果對北京的企圖有任何疑問，那就是剝奪了香港人的話語權和選擇權，讓他們淪為和大陸人壹樣的境地。“兩種制度”也就這樣了。
+過去，中共一直聲稱不干涉別國內政。在1955年萬隆會議上，周恩來強調求同存異。在鄧小平年代，提出韜光養晦，善於守拙，決不當頭的原則，並延續至胡錦濤時代。然而，本屆政府卻通過“一帶一路”大量投資全球，想讓自己“理所當然”的參與到其他國家的內政中。至今為止，“一帶一路”涉及超過六十個國家，從柬埔寨到安哥拉，從巴基斯坦到匈牙利。
 
-> Great conversation with my Australian, Canadian, New Zealand, and UK counterparts. Together we are addressing the CCP’s erosion of Hong Kong’s autonomy and pushing for transparency on COVID-19. We remain focused on addressing Iran’s destabilizing behavior in Iraq and the region.
-> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267840972781694976?ref_src=twsrc%5Etfw)
+這些擴張昭示了中共不干涉別國內政原則的結束。
 
-美國國務卿 蓬佩奧：與澳洲、加拿大、新西蘭和英國的外長進行了很好的交談。我們共同致力於解決中共對香港自治的侵蝕行為，並推動冠狀病毒疫情的公開透明。我們繼續關註解決伊朗破壞伊拉克及該地區穩定的問題。
+專欄還指出，自2014年，中共為了保住原油供應，插手了南蘇丹的衝突。而在2011年，中共卻不願涉及利比亞內戰。中共險些未能保護其經濟利益，最終撤離三萬五千在利比亞工作的中國人。自那以後，中共在非洲合作國家中不斷擴張其軍事能力。
 
-> Today, the U.S. protests the PRC’s unlawful South China Sea maritime claims at the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). We reject these claims as unlawful and dangerous. Member States must unite to uphold international law and freedom of the seas. [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h6UCoBnnnb](https://t.co/h6UCoBnnnb)
-> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267861621965303809?ref_src=twsrc%5Etfw)
+中共的干涉在2018年馬來西亞的選舉中愈演愈烈，對中持懷疑態度的馬哈蒂爾·穆罕默德（Mahathir Mohamad）出人意料地擊敗了對華友好的現任納吉·拉扎克（Najib Razak）。馬哈蒂爾上任後火速前往中國，重新商討納吉同意的“一帶一路”倡議，並警告中共在進行“新殖民主義”。幾個月後，中國駐柬埔寨大使出席了柬埔寨執政黨的活動，還出現了以柬埔寨領袖洪森（Hun Sen）為頭條的新聞，讚揚柬埔寨的“卓越”外交以及批評歐盟提議的人權相關的製裁。上個月，中共又插手尼泊爾的內政。這些都違背中共之前中共提倡的低調作風。
 
-美國國務卿 蓬佩奧：今天，美國對中共國在聯合國提出的非法南中國海海域主張提出抗議。我們拒絕這些非法且危險的領土主張。各成員國必須團結壹致，維護國際法和海洋自由。
+此外，中共的干預還不止這些。中共與緬甸政府的合作日益深入，但其國有企業卻一直在武裝緬甸的反叛軍。究其原因是反叛軍承諾不打亂中共在皎漂深海港的政治利益。
 
-> Now we know for sure that Communist China hid critical data that could have altered the global response to the pandemic.
-> 
-> And instead of exposing Communist China’s deceit, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) praised their response & was complicit in China’s cover-up. [https://t.co/0gSScqh0D0](https://t.co/0gSScqh0D0) [pic.twitter.com/aD0zKY1qDf](https://t.co/aD0zKY1qDf)
-> — Rick Scott (@SenRickScott) [June 2, 2020](https://twitter.com/SenRickScott/status/1267840172734939141?ref_src=twsrc%5Etfw)
+除了外交政策的變化，中共境內也大力宣傳戰狼外交。
 
-參議員 Rick Scott：現在我們可以確定中共國隱瞞了本可以讓全球對疫情大爆發有不同應對措施的關鍵信息。而世衛組織不但沒有揭露中共國的欺瞞行為，反而稱贊他們並成為他們掩蓋行徑的同謀。
+事實已經證明只要有利益，中共並不關心別國主權的完整性。世界各國的領導人必須認清中共的面目。
 
-> Difference between Hong Kong and America. [https://t.co/W7Q6QPFszU](https://t.co/W7Q6QPFszU)
-> — General Spalding (@robert\_spalding) [June 2, 2020](https://twitter.com/robert_spalding/status/1267871249436487682?ref_src=twsrc%5Etfw)
+[原文鏈接](https://www.washingtonpost.com/opinions/2020/06/02/welcome-chinas-new-interventionist-foreign-policy/)
 
-斯伯丁將軍：香港與美國的不同之處
+翻譯報導：Sonya
 
-ScottGordonNBC5：抗議者就在擴音器上對警察說，如果警官們單膝跪地，他們就回家。警官們這樣做了。抗議者上前與警察握手、擁抱。非常棒。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02213225/image0.png.jpeg)
 0

@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 號角在六四吹響
-`2020-06-03 09:21 GM30` [轉載自GNews](https://gnews.org/zh-hant/221774/)
+## 【世界多語言文字版】2020年6月4日新中國聯邦宣言
+`2020-06-03 20:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222085/)
 
-**作者：XQ**
+**2020年6月4日新中國聯邦宣言世界多國語言文字版：**
 
-2020年6月4日，注定是不平凡的日子。爆料革命在它的第三個年頭吹響了滅共進行時的號角，70年的苦難與欺騙，近百年來仁人志士的追求與理想，在世界進入2020年，拉開了帷幕。新中國聯邦的夢想噴湧而出。
+[【中文】新中国联邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-這是一場前所未有的革命。唯真不破，戳中了中共盜國集團毛屎坑政治的實質，戳破了中共用欺騙宣傳與虛假謊言編織70年的共産中國幻想，扒開皇帝的新裝底褲，用生殖器治國，假擀面杖在硬扛。爆料革命從爆料到革命，傳遞事實，看清真相，回歸常識，追求夢想，撼動人心，展現波瀾壯闊的力量。“中共竊國70年，它們都是盜國賊”、“財産公有化、權力私有化，實質就是我的是我的，你的也是我的，都是共産黨的，都是中南坑幾個家族的”、“共産主義就是烏托邦”、“中共不滅，中國有千千萬萬個楊改蘭”，“共産黨是管天、管地，還要管脫褲子放屁”一句句話，樸實接地氣，直擊事實的本相，剝開玄深理論教條的僞裝，言簡意赅，直達人心。人類曆史從未有過爆料成就一場革命，爆料革命的每一小步注定是前所未有的一大步。從傳播中共統治的真相到構建體系滅共的力量，深刻改變世界格局，影響人類未來的方向。
+[【English】Declaration of the New Federal State of China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03091841/image0-11.jpg)
+[【French】Déclaration de l’État Fédéral de Nouvelle Chine](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-這是一場挽救人類命運的革命。受中共病毒影響，疫情遍及各大洲各大洋，幾十萬人已失去生命，更多的人傳染上病毒，世界惶恐不安。病毒從何而來，病毒何從擴散？誰來負責，誰該負責？真相被掩蓋，顛倒黑白、混淆是非，從小偷小摸的竊賊到恬不知恥的強盜，中共醜惡的嘴臉曝光在世人面前，黑、惡、醜；假、吹、騙，卑鄙到寡廉鮮恥，下作到令人作嘔；資本主義華爾街的貪婪，中共獨裁專制的腐爛，資本與權力勾連，在紙醉金迷中把酒言歡，團團夥夥的烏煙瘴氣。當美國人占領華爾街，當百萬香港人走上街頭反送中，平民主義的思潮湧起，每個個體彰顯自己的力量，在正道主義的引領下，爭自由、捍人權。爆料革命用事實的真相，喚醒了沈睡中的國家與人民，民主共和與專制獨裁，從價值形態、經濟轉態到政治形式方方面面，兩種人類命運的較量，是光明，還是黑暗，關切到人類生存的未來。
+[【日本語】新中国連邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-這是一次開天辟地的革命。2020年6月4日，是最後一個六四紀念日。30年前，屠夫揮起屠刀，用鮮血與火焰解開共匪僞善面具下的猙獰，共産主義烏托邦的理論宣教，特色社會主義的狗屁信條，自圓其說的意識形態頃刻破産，法西斯就是惡棍，土匪就是無賴。在無奈、痛苦與麻木中，從三個代表到習思想，不要臉比著更不要臉，從制造謊言、假話到以假當真，假到自我陶醉，自信滿滿。三年來的爆料革命，撕掉了中共盜國賊僞裝的面具，把中共專制獨裁者拉下神壇，把滅共夢想逐步兌現爲現實，共匪政權大廈將傾的脆斷撕裂聲已在耳畔，虛假的終究是荒謬的，醜陋的本來就是肮髒的，邪惡的本質就是反動，推翻一個舊世界，建立一個新世界，從資本人心的彙集到監督體系平台的建立，從大陸到海洋，從高山到平地，喜馬拉雅的高度，聚集爆料革命戰友的力量，一次次挑戰極限，超越想象。
-
-疾風知勁草，板蕩識本心。特殊時間節點的六四，新中國聯邦的宣言昭告，吹響號角，中共喪鍾已經敲響，凝聚起正義磅礴力量，去除這邪魔惡鬼，新中國的曙光映在世界東方。
-
-（文章內容僅代表作者觀點）
+[【Spanish】Declaración del Estado Federal de Nueva China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)
 
 0

@@ -1,43 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共產黨停止購買美國農產品意在川普總統連任
-`2020-06-02 18:06 GM06` [轉載自GNews](https://gnews.org/zh-hant/220967/)
+## 6月2日 美國政要推文選譯
+`2020-06-02 21:36 GM65` [轉載自GNews](https://gnews.org/zh-hant/221139/)
 
-作者：文茗
+> It starts; so soon. For the first time in 30 years, Hong Kong authorities denied permission to hold the [#TiananmenVigil](https://twitter.com/hashtag/TiananmenVigil?src=hash&amp;ref_src=twsrc%5Etfw). If there is any doubt about Beijing’s intent, it is to deny Hong Kongers a voice and a choice, making them the same as mainlanders. So much for two systems.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267793562550353923?ref_src=twsrc%5Etfw)
 
-週一據海外媒體路透社報導，中共為了報復華盛頓準備取消香港的特殊貿易地位。要求國有企業暫停採購美國大豆、豬肉、玉米、棉花等農產品。
+美國國務卿 蓬佩奧：壹切都已經開始；非常快。三十年來第壹次，香港當局拒絕批準“六四”燭光守夜活動。如果對北京的企圖有任何疑問，那就是剝奪了香港人的話語權和選擇權，讓他們淪為和大陸人壹樣的境地。“兩種制度”也就這樣了。
 
-消息人士稱，如果美國針對香港問題採取進一步行動，中共國準備暫停進口更多美國農產品。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02174924/1-20.jpg)
-與此同三名瞭解交易情況的美國交易商稱，此次購買的總計至少18萬噸大豆，將在10月或11月付運。但與最近國有企業一次就購買總計100萬噸或更多的大豆相比，週一的大豆採購規模可謂是少至可憐。
+> Great conversation with my Australian, Canadian, New Zealand, and UK counterparts. Together we are addressing the CCP’s erosion of Hong Kong’s autonomy and pushing for transparency on COVID-19. We remain focused on addressing Iran’s destabilizing behavior in Iraq and the region.
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267840972781694976?ref_src=twsrc%5Etfw)
 
-很多人猜測共產黨為什麼宣佈停止的同時，還在購買美國農產品。這裡面共產黨的邏輯就是，威脅利誘川普總統。言下之意就是川普你別把我惹急了，惹急了我就不買你的農產品；我還進口一些，就是告訴川普總統，我還是會買的，你放我一馬咱們都好過。共產黨自作聰明的認為川普總統太在意連任，連任關鍵點就在於農業州的選票。這簡直就是把川普總統當小孩尋開心，共產黨這種邏輯不免太小看川普總統了。
+美國國務卿 蓬佩奧：與澳洲、加拿大、新西蘭和英國的外長進行了很好的交談。我們共同致力於解決中共對香港自治的侵蝕行為，並推動冠狀病毒疫情的公開透明。我們繼續關註解決伊朗破壞伊拉克及該地區穩定的問題。
 
-此前上週五川普總統表示，他將指示他的政府開始取消給予香港特殊的待遇的進程，以回應中國計畫在香港實施新的安全立法。正是在川普總統發表上述言論後，中共進口商已經取消了1萬到2萬噸美國豬肉的進口，相當於近幾個月來一周的訂單量。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02175010/2-14.jpg)
-另一位元熟悉政府計畫的消息人士稱，在最壞的情況下，如果川普總統繼續針對中國，北京將不得不放棄第一階段貿易協定。
+> Today, the U.S. protests the PRC’s unlawful South China Sea maritime claims at the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). We reject these claims as unlawful and dangerous. Member States must unite to uphold international law and freedom of the seas. [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h6UCoBnnnb](https://t.co/h6UCoBnnnb)
+> — Secretary Pompeo (@SecPompeo) [June 2, 2020](https://twitter.com/SecPompeo/status/1267861621965303809?ref_src=twsrc%5Etfw)
 
-其實很明顯這就是共產黨通過某些管道，釋放這種威脅川普總統的資訊，威逼川普總統就範，停止或者拖延制裁。
+美國國務卿 蓬佩奧：今天，美國對中共國在聯合國提出的非法南中國海海域主張提出抗議。我們拒絕這些非法且危險的領土主張。各成員國必須團結壹致，維護國際法和海洋自由。
 
-咱們不要只聽共產黨說的，要看他具體做的，根據兩國今年1月簽署的初步貿易協定，中共承諾在兩年內增加購買價值320億美元的美國農產品，而根據美國農業部報告稱，中國在2020年第一季度購買了價值10.28億美元的大豆和6.91億美元的豬肉。中國今年已從美國購買了玉米、小麥和豆油。這個數位離協定要求的其實相差還很遠。就連往年的進口量相比都少的可憐，而現實就是共產黨至今一直都在從巴西大量購買大豆。
+> Now we know for sure that Communist China hid critical data that could have altered the global response to the pandemic.
+> 
+> And instead of exposing Communist China’s deceit, the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) praised their response & was complicit in China’s cover-up. [https://t.co/0gSScqh0D0](https://t.co/0gSScqh0D0) [pic.twitter.com/aD0zKY1qDf](https://t.co/aD0zKY1qDf)
+> — Rick Scott (@SenRickScott) [June 2, 2020](https://twitter.com/SenRickScott/status/1267840172734939141?ref_src=twsrc%5Etfw)
 
-表面共產黨答應購買美國農產品，實際一直都在減少，川普總統說幾句威脅一下，進口一點，風波過去了還是一如既往，這就是共產黨尋開心川普總統的伎倆。
+參議員 Rick Scott：現在我們可以確定中共國隱瞞了本可以讓全球對疫情大爆發有不同應對措施的關鍵信息。而世衛組織不但沒有揭露中共國的欺瞞行為，反而稱贊他們並成為他們掩蓋行徑的同謀。
 
-為什麼共產黨一直都拿大豆來玩弄川普總統呢？那是因為大豆是美國第一大農產品出口品種，占美國農業出口接近20%。從美國大豆的出口情況來看，其中約有60%被出口至中共國。其中來自美國的進口量約占中共大豆總進口量的37%，另一大進口來源地巴西的占比約為41%。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02175116/3-9.jpg)
-大豆出口對美國經濟意義重大。2017年美國大豆出口量為5313萬噸，占其大豆總產量比例達44%，其中對華出口量3286萬噸，占美國大豆總出口量比例高達62%。大豆出口額占美國對華出口額比例為11%，占對華出口農產品金額比例為58%。
+> Difference between Hong Kong and America. [https://t.co/W7Q6QPFszU](https://t.co/W7Q6QPFszU)
+> — General Spalding (@robert\_spalding) [June 2, 2020](https://twitter.com/robert_spalding/status/1267871249436487682?ref_src=twsrc%5Etfw)
 
-大豆出口也對美國有重大的政治意義。美國大豆產量前10個州大豆生產占全美的95%，而其中有8大農業州都是川普總統的重要票倉地區。大豆對於川普總統的大選意義重大。
+斯伯丁將軍：香港與美國的不同之處
 
-共產黨其實就是抓住了這一點，它賭的是川普總統連任的期望。利用農產品進口牽扯主川普總統，達到共產黨的目的。
-
-共產黨從貿易戰之後，尤其是今年一月第一階段協議至今，共產黨就極為消極的進口美國農產品，他就是想打掉川普總統這8個農業州的票倉。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02175205/4-5.png)
-
-共產黨實在是太小看川普總統的智商了，川普總統這種深知中國哲學的成功人士，早就看破了共產黨的伎倆。你跟我打太極，那我就跟你一起打，共產黨每出一招，結果就受一次傷（內傷）。這幾輪下來，共產黨已是體無完膚，現在只需要川普總統下定決心，給共產黨最後致命一擊，共產黨必會煙消雲散。
-
-（文章内容仅代表作者观点）
-
+ScottGordonNBC5：抗議者就在擴音器上對警察說，如果警官們單膝跪地，他們就回家。警官們這樣做了。抗議者上前與警察握手、擁抱。非常棒。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/02213225/image0.png.jpeg)
 0
