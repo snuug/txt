@@ -1,24 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你發現了嗎？房産斷供潮已悄然來襲！
-`2020-06-03 09:09 GM30` [轉載自GNews](https://gnews.org/zh-hant/221756/)
+## 【世界多語言文字版】2020年6月4日新中國聯邦宣言
+`2020-06-03 20:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222085/)
 
-**作者：滅共日記**
+**2020年6月4日新中國聯邦宣言世界多國語言文字版：**
 
-這邊排隊離婚爲買房的人，還拿不到號，另一邊深圳樓市斷供的新聞在國內現在也是越來越火。我在網上看到一個帖子，帖子的內容是:深圳樓市斷供潮來得比預期來得更快、來得早，來得更猛。在銀行工作了18年的王先生說，2020年開年以來，所在銀行網點每月就有一兩千賬號斷供，後續深圳受疫情影響，外貿企業關閉較多，沒想到，到了5月，光一家銀行的一個網點斷供賬號就達到1.3萬個，其他銀行和網點斷供情況如果統計出來，估計更大，更可怕。沒想到斷供潮會來的這麽快，前兩天看到說深圳及全國的法拍房達到了82萬套，我還持懷疑態度，半信半疑，因爲法拍的原因大部分是因斷供引起的，現在看來，是真的了！這個帖子現在的轉載量非常的大！
+[【中文】新中国联邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03090022/1-24.jpg)
+[【English】Declaration of the New Federal State of China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)
 
-要知道深圳可是中共國樓市的風向標，如果深圳房産都出現斷供問題，可想全國其他地方的房産現在已經是非常危險了。就在這個帖子出現後，官方馬上發出辟謠新聞說：根據央行深圳中心支行數據，截至2019年末，深圳的銀行營業網點約1700個，若按每月一個網點斷供1000個賬戶，則每月斷供的量在170萬套。此前深圳住建局曾統計，深圳存量住房總量約1065.5萬套，其中，商品房181萬套占比17%，村民自建房503.5萬套，占比47.3%，其余爲保障房、工業區配套宿舍等。因此，上述深圳各大銀行若斷供量達到170萬套與現有數據相比明顯誇張。按照這個數據計算這個帖子可能有虛報的問題，但是並不意味著房子斷供問題就是不存在或是不嚴重。根據官方馬上出現辟謠的動作，可能越是證明，說明這個問題現在越來越嚴重，畢竟在中共國每條辟謠的背後，都一定有個真相！這就是爲什麽有那麽多人相信帖子裏敘述的內容，畢竟由于中共疫情會導致以公司名義購房的中小企業主因爲經濟問題實在扛不住了，又或者是工薪族公司倒閉失去了供房收入，都會導致了斷供情況的發生。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03090722/2-11.png)
-3月中旬，“阿裏司法拍賣”上就出現了82萬套房産。合肥市僅在5月第一周，就有300套斷供房抛售。“阿裏司法拍賣”的數據顯示，拍賣的合肥地區住宅用房有4000多套，價格比市場評估價低30萬左右。5月27日網易引述數據說，過去的一年裏，深圳的法拍房數量激增60%，未來棄房斷供的現象或許會更多。出現這樣的問題原因就是中共病毒對國內經濟的傷害超過金融危機和SARS，至今恐已導致2億人失業，被減薪的人數無法計算，僅今年第一季度就有近50萬家企業倒閉。很多老百姓複工沒多久就被公司裁員，還不起貸款就只能斷供。棄房斷供的另一個原因是房價下跌，業主不願意繼續還貸。這些足以看出房屋斷供的嚴重性已經不容小觑！現在的深圳房産，除了本地人的高杠杆之外，很大一部分也是外地人進來炒房炒起來的。看中共國房市崩不崩，就看北上廣深這些大城市。這些城市的房産斷供，房價暴跌那足以說明中共國的房市崩塌已經開始！
+[【French】Déclaration de l’État Fédéral de Nouvelle Chine](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-GNEWS之前文章：
-想擺攤先被宰一刀 [https://gnews.org/zh-hans/220298/](https://gnews.org/zh-hans/220298/)
-中共的暴力維穩已經伸向了小學生 [https://gnews.org/zh-hans/219529/](https://gnews.org/zh-hans/219529/)
-共有産權房到底是給老百姓創造福利 [https://gnews.org/zh-hans/218691/](https://gnews.org/zh-hans/218691/)
+[【日本語】新中国連邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-（文章內容僅代表作者觀點）
+[【Spanish】Declaración del Estado Federal de Nueva China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)
 
 0
