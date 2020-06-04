@@ -1,41 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院紀念天安門事件三十一周年聲明（中英文對照）
-`2020-06-04 08:58 GM31` [轉載自GNews](https://gnews.org/zh-hant/222529/)
+## 遏制中共，美商務部對中共貿易黑名單公司和機構的制裁加速于本周5日生效
+`2020-06-04 12:08 GM30` [轉載自GNews](https://gnews.org/zh-hant/222642/)
 
-### **31st Anniversary of  Tiananmen Square**
+**作者：文萌**
 
-### **天安門事件三十一周年**
+美国商务部3日以大规模杀伤性武器、与中国解放军有关、迫害新疆维吾尔族人权等理由指出，对于33家中共国公司和机构的新经济制裁，黑名单于当地时间週五（5日）起生效，商务部上月已宣布将把这33家企业列入经济制裁黑名单。在没得到美国政府许可下，禁止使用美国技术。商务部上月已宣布将把这33家企业列入经济制裁黑名单。
 
-PRESS STATEMENT
+这项最新行动代表川普政府打击可能为解放军采购所需物资的中国企业，以及惩罚北京当局打压以穆斯林为主的少数民族。根据美国商务部网站所列黑名单，被制裁的公司还包括东方网力，也就是中国最知名的人工智能公司，其子公司深网视界与监控新疆维吾尔族穆斯林行动有关。上榜单位包括研制超级电脑“天河二号”的北京计算科学研究中心、知名资安公司奇虎360，公安部物证鉴定中心、及知名脸部辨识开发商云从科技等。这些33家新增实体被加入实体清单后，与美国相关的物项的出口、再出口和国内转移都将受美国出口管制法案（EAR）监管，需要取得额外的许可或限制绝大多数许可例外才可以继续从事上述行为，从而加大在计算机、传感器、通信设备和推进装置领域加大对中共的控制。
 
-新聞聲明
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04115855/2-22.jpg)
 
-MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON
+下面是24家企業和機構名單（[https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc](https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc)）：
+Beijing Cloudmind Technology Co., Ltd.
+北京達闼科技
+Beijing Computational Science Research Center
+北京計算科學研究中心
+Beijing Jincheng Huanyu Electronics Co., Ltd.
+北京錦程環宇科貿有限公司
+Center for High Pressure Science and Technology Advanced Research
+北京高壓科學研究中心
+Chengdu Fine Optical Engineering Research Center
+成都精密光學工程研究中心
+China Jiuyuan Trading Corporation
+中國九源貿易公司
+Cloudminds (Hong Kong) Limited
+達闼科技 香港
+Cloudminds Inc.
+達闼科技
+Harbin Chuangyue Technology Co., Ltd.
+哈爾濱創越科技有限公司
+Harbin Engineering University
+哈爾濱工程大學
+Harbin Institute of Technology
+哈爾濱工業大學
+Harbin Yun Li Da Technology and Development Co., Ltd.
+哈爾濱蘊力達科技開發有限公司
+JCN (HK) Technology Co. Ltd.
+精納科技有限公司
+K Logistics (China) Limited
+快急送物流(中國)有限公司
+Kunhai (Yanjiao) Innovation Research institute
+昆海（燕郊）創新研究院
+Peac Institute of Multiscale Science
+頂峰多尺度科學研究所
+Qihoo 360 Technology Co., Ltd.
+奇虎360
+Shanghai Nova Instruments Co., Ltd.
+上海新星設備有限公司
+Sichuan Dingcheng Material Trade Co., Ltd.
+四川鼎澄物資貿易有限公司
+Sichuan Haitian New Technology Group Co. Ltd.
+四川海天新技術集團有限公司
+Sichuan Zhonghe Import and Export Trade Co., Ltd.
+四川中和進出口貿易有限公司
+Skyeye Laser Technology Limited
+天眼激光科技有限公司
+Zhu Jiejin
+朱傑進 複旦大學副教授
 
-國務院發言人MORGAN ORTAGUS
+**與人權相關的9個實體**
 
-JUNE 3, 2020
+美國工業和安全局（The Bureau of Industry and Security， BIS）宣布將中國公安部法醫學研究所和8家中國公司加入實體清單，以阻止這些實體獲得美國技術。BIS認爲，這9家實體共謀違反人權。
 
-2020年6月3日
-
-Today we honor the brave Chinese people whose peaceful calls for democracy, human rights, and a corruption-free society came to a violent end when the Chinese Communist Party (CCP) sent the People’s Liberation Army into Tiananmen Square on June 4, 1989, armed with tanks and guns. While the Tiananmen protests inspired the oppressed in the Soviet Union and Eastern Europe to demand and achieve democratic change, the Chinese communist government survived with oppressive control of information and sheer brutality.
-
-今天，我們向英勇的中國人民表示敬意，他們對民主、人權和沒有腐敗的社會發出了和平呼求。但在1989年6月4日，當中國共產黨派遣武裝了坦克和機槍的人民解放軍進入天安門廣場那一刻，這場和平的呼籲被殘暴地結束了；然而，天安門抗議活動激發了蘇聯和東歐的被壓迫者，他們要求並實現了民主變革，可中國共產黨政府卻通過實施資訊壓制和暴行而苟活了下來。
-
-Thirty-one years later, the total number of missing or dead Tiananmen protesters is still unknown. The United States continues to applaud their aspirations, and the American people stand with the families still grieving their lost loved ones, including the courageous Tiananmen Mothers who have never stopped seeking accountability for their children’s deaths, despite great personal hardship and risk. We reiterate our call for a full, public accounting of those killed or missing.
-
-三十一年後，天安門示威者裡失蹤或死亡的總人數仍不為世人所知，而美國一直以來為他們的抱負而喝彩。美國人民同那些仍因失去親人而悲慟的人們站在一起，包括勇敢的“天安門母親”，儘管她們冒著巨大的個人困難和風險，但她們不懈地尋求其子女死難原因並追責。我們再次呼籲對被殺或失蹤人士的原因進行公開全面的追責。
-
-We mourn the victims of June 4, 1989, and we stand with the people of China who continue to aspire to a government that protects human rights, fundamental freedoms, and basic human dignity.
-
-我們对1989年6月4日的遇難者表示哀悼並與中國人民站在一起，他們一直渴望能擁有一個可保障人權、基本自由和起碼人格尊嚴的政府。
-
-出處：[31st Anniversary of  Tiananmen Square](https://www.state.gov/31st-anniversary-of-tiananmen-square/)
-
-*翻譯：【**Michelle**】校對：【**GM31**】*
-
-*戰友之家玫瑰園小隊出品*
+Chinas Ministry of Public Securitys Institute of Forensic Science
+中國公安部法醫學研究所
+Aksu Huafu Textiles Co.
+阿克蘇華孚色紡有限公司
+CloudWalk Technology
+雲行科技集團股份有限公司
+FiberHome Technologies Group and the subsidiary Nanjing FiberHome Starrysky
+Communication Development Technologies Co., Ltd.
+烽火科技集團有限公司及其子公司南京烽火星空通信發展有限公司
+NetPosa and the subsidiary SenseNets Technology Ltd.
+東方網力科技股份有限公司及其子公司深圳市深網視界科技有限公司
+Intellifusion
+深圳雲天勵飛技術有限公司
+IS’Vision
+上海銀晨智能識別科技有限公司
 
 0
