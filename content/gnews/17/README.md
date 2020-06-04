@@ -1,39 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦
-`2020-06-03 13:57 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/221823/)
+## 【世界多語言文字版】2020年6月4日新中國聯邦宣言
+`2020-06-03 20:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/222085/)
 
-### *歷史時刻、歷史見證，2020.6.4*
+**2020年6月4日新中國聯邦宣言世界多國語言文字版：**
 
-*作者：玄天生*
+[【中文】新中国联邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195730/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-*校閱：Julia Win*
+[【English】Declaration of the New Federal State of China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03195945/%E3%80%90%E8%8B%B1%E6%96%87%E3%80%91Declaration-of-the-New-Federal-State-of-China.pdf)
 
-**引言：1989年6月4日，開啟了是中共國人勇於追求民主、自由、法治的時刻，雖然失敗於當時形勢，但這一螢火已被傳承。現在2020年，6月4日，重要時刻已經來臨——新中國聯邦就要成立了！這也向世人宣布了：中共政權是非法的偽政權！在地球****的東方、14億人民被中共邪魔政權統治的時代即將過去！**
+[【French】Déclaration de l’État Fédéral de Nouvelle Chine](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200101/%E3%80%90French%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-相信各位戰友也與我一樣，翹首祈盼這一天的到來！這是郭文貴先生以及引領、踐行的爆料革命3年來的努力和付出的結果。6月4日，不僅是具有重要歷史意義的時刻，更重要的是在之後前進的路上，有無法想像的廣闊的未來。
+[【日本語】新中国連邦宣言](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03201942/%E3%80%90Japanese%E3%80%91%E6%96%B0%E4%B8%AD%E5%9B%BD%E9%80%A3%E9%82%A6%E5%AE%A3%E8%A8%80.pdf)
 
-[!\[\](https://spark.adobe.com/page/jR9QUosEOPa06/images/4943a7fd-3894-4c92-bc37-725863e3f98f.jpg?asset_id=c4994e11-4d3a-4c31-abb7-49bf7ea1e3ca&amp;img_etag=%22692b6361903bbd67e0da7e3d7419dcea%22&amp;size=4551)](https://spark.adobe.com/page/jR9QUosEOPa06/images/4943a7fd-3894-4c92-bc37-725863e3f98f.jpg?asset_id=c4994e11-4d3a-4c31-abb7-49bf7ea1e3ca&amp;img_etag=%22692b6361903bbd67e0da7e3d7419dcea%22&amp;size=1024)
-
-6月4日北京時間七點開始18小時網絡直播，雖然無法親身現場體會，但也已無法掩飾激動與期待的心情，再多的文字也無法準確表達內心的一切。那我們就一同細心、認真、嚴肅的觀看七哥與戰友們準備的一切，目睹、見證這一偉大的歷史時刻！這是我們一生難忘的一刻！是建立我們自由、民主、法治聯邦新中國的一刻！是改變華夏兒女命運的一刻！是帶領14億人真正融入世界大家庭的一刻！
-
-正如七哥說的，6月4日新中國聯邦成立這只是剛剛開始，不單單是建國的意義，更重要的是未來的中國，要與地球的文明發展相同步、相融合。70年前中共的奪權，讓中華大地文明前進的歷史不單是停止，更是倒退到不堪的時代，並影響、滲透世界，將利益主義至上推進到一個頂端，世界可以說到了末日的地步，宇宙文明的接軌到現在更是無法實現。
-[!\[\](https://spark.adobe.com/page/jR9QUosEOPa06/images/1eb4df8a-31c1-455b-877b-d0a81a60844d.jpg?asset_id=ad134849-92e7-4c70-b2de-cf2719f07555&amp;img_etag=%2282414adf113bc8d8f2c93024f07968ef%22&amp;size=2560)](https://spark.adobe.com/page/jR9QUosEOPa06/images/1eb4df8a-31c1-455b-877b-d0a81a60844d.jpg?asset_id=ad134849-92e7-4c70-b2de-cf2719f07555&amp;img_etag=%2282414adf113bc8d8f2c93024f07968ef%22&amp;size=1024)
-現在，中共正在垂死掙扎，在這重要時刻也必定會做出更加瘋狂的事。接下來最關鍵的就是，世界各國聯合與我們新聯邦中國，共同抗滅中共這個世紀魔頭，直至它灰飛煙滅！
-
-最後，大家一同祝賀2020·6·4——新中國聯邦的成立，也祝賀戰友們一同到達喜馬拉雅的時代。
-
-兄弟爬山，各自努力。背靠背，各有形式但同有信念。
-
-你我相聚，煲底相見。手拉手，凝聚力量同為無私者。
-
-文章內容僅代表作者個人觀點
-
-嗚謝圖片來源，pixabay。
-
-#### 編輯 【喜馬拉雅戰鷹團】
-
-
+[【Spanish】Declaración del Estado Federal de Nueva China](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03200340/%E3%80%90%E8%A5%BF%E7%8F%AD%E7%89%99%E6%96%87%E3%80%91%E5%AE%A3%E8%A8%806.1%E9%87%8D%E6%8E%92.pdf)
 
 0
