@@ -1,37 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國白宮新聞秘書發表紀念天安門大屠殺三十一周年的聲明（中英文對照）
-`2020-06-04 20:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/222913/)
+## 台灣呼籲中共必須為天安門大屠殺做出賠償
+`2020-06-05 00:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/223033/)
 
-**Statement from the Press Secretary Commemorating**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05000610/1-23.png)
+根據台北時報 （Taipei Times）六月四日的報道, 台灣大陸事務委員會表示，自31年前的天安門廣場大屠殺以來，中共踐踏人權的記錄越來越糟糕，而中共還想繼續掩蓋「天安門廣場大屠殺」這一事實。中共通過利用科技手段入侵、監控甚至逮捕異見者，剝奪了中國民眾的基本人權，情況日益惡化。
 
-**the 31st Anniversary of the Tiananmen Square Massacre**
+此外，該委員會還呼籲中共傾聽中國人對民主的呼聲，並迅速改革其政治體制。中共的一黨專政體制使它與普世價值相悖，將新疆上百萬維吾爾族和其他少數民族同胞關進集中營、攻擊宗教團體和異見人士，違背對香港民主自治的承諾，等等諸如此類的事。
 
-FOREIGN POLICY
+5月20號，台灣總統蔡英文就職演講中提到，「和平、平等、民主和對話對兩岸的關係至關重要」。台灣當局喊話中共應該放棄對台灣的高壓政策，而應該提升兩岸人民的人權和民主保障，這才更有利於兩岸關係發展。該委員會還呼籲中國大陸釋放2017年被關押的台灣民運人士李明哲。
 
-Issued on: June 4, 2020
+背景： 1989年6月4日，北京用軍事力量鎮壓了一場要求中國民主改革的學生示威遊行，但中共仍然拒絕面對大屠殺的事實。
 
-**美國白宮新聞秘書紀念天安門大屠殺三十一周年的聲明**
+[原文鏈接](https://www.taipeitimes.com/News/taiwan/archives/2020/06/04/2003737606)
 
-外交政策
-
-頒布日期：2020年6月4日
-
-The American people reflect on the courage and optimism of the hundreds of thousands of Chinese citizens who gathered peacefully 31 years ago in Beijing and throughout China to protest widespread official corruption and demand a greater say in the governance of their country. The Chinese Communist Party’s slaughter of unarmed Chinese civilians was a tragedy that will not be forgotten. The United States calls on China to honor the memory of those who lost their lives and to provide a full accounting of those who were killed, detained, or remain missing in connection with the events surrounding the Tiananmen Square massacre on June 4, 1989.
-
-三十一年前，數十萬中國公民在北京以及整個中國和平集會，以抗議廣泛的官場腐敗，並要求在在國家的治理中擁有更大的發言權，美國人民敬佩他們的勇氣和樂觀精神。中國共產黨對手無寸鐵的中國平民的屠殺，是一個永遠不會被遺忘的悲劇事件。美國呼籲中國政府紀念並全面記錄那些在1989年6月4日天安門大屠殺及相關事件中被殺害、拘留或失踪的人員。
-
-On this day of remembrance, the people of the United States call upon the Chinese government to fulfill its commitments under the Universal Declaration of Human Rights and the Sino-British Joint Declaration, to uphold the rights and freedoms guaranteed to all Chinese citizens under China’s constitution , and to end the systematic persecution of millions of ethnic and religious minorities. The American people stand together with all Chinese citizens in their pursuit of fundamental rights, including the right to accountable and representative governance and freedom of speech, assembly, and religious belief.
-
-值此六四紀念日之際，美國人民呼籲中國政府履行《世界人權宣言》和《中英聯合宣言》中的承諾，維護中國憲法賦予所有中國公民的權利和自由，並結束對數百萬少數民族和宗教少數群體的系統性迫害。美國人民支持所有中國公民追求他們的基本權利，包括有權利要求負責任的和代表人民的政府治理模式以及言論、集會和宗教信仰自由。
-
-*翻譯：【新生】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
-
-[閱讀](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[原](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)
-
-相關新聞：[美國國務院紀念天安門事件三十一周年聲明（中英文對照）](https://gnews.org/zh-hant/222529/)
+翻譯報道：匿名
 
 0

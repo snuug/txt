@@ -1,41 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院紀念天安門事件三十一周年聲明（中英文對照）
-`2020-06-04 08:58 GM31` [轉載自GNews](https://gnews.org/zh-hant/222529/)
+## 班農先生在2020年6月4日的新中國聯邦建國日正告天下——喜馬拉雅是要對抗和最終打倒中共的
+`2020-06-04 10:43 Diago` [轉載自GNews](https://gnews.org/zh-hant/222605/)
 
-### **31st Anniversary of  Tiananmen Square**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04104039/WhatsApp-Image-2020-06-04-at-10.29.18-PM.jpeg)
+作者：Diago
 
-### **天安門事件三十一周年**
+班農先生在2020年6月4日的新中國聯邦建國日正告天下——喜馬拉雅是要對抗和最終打倒中共的：
 
-PRESS STATEMENT
-
-新聞聲明
-
-MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON
-
-國務院發言人MORGAN ORTAGUS
-
-JUNE 3, 2020
-
-2020年6月3日
-
-Today we honor the brave Chinese people whose peaceful calls for democracy, human rights, and a corruption-free society came to a violent end when the Chinese Communist Party (CCP) sent the People’s Liberation Army into Tiananmen Square on June 4, 1989, armed with tanks and guns. While the Tiananmen protests inspired the oppressed in the Soviet Union and Eastern Europe to demand and achieve democratic change, the Chinese communist government survived with oppressive control of information and sheer brutality.
-
-今天，我們向英勇的中國人民表示敬意，他們對民主、人權和沒有腐敗的社會發出了和平呼求。但在1989年6月4日，當中國共產黨派遣武裝了坦克和機槍的人民解放軍進入天安門廣場那一刻，這場和平的呼籲被殘暴地結束了；然而，天安門抗議活動激發了蘇聯和東歐的被壓迫者，他們要求並實現了民主變革，可中國共產黨政府卻通過實施資訊壓制和暴行而苟活了下來。
-
-Thirty-one years later, the total number of missing or dead Tiananmen protesters is still unknown. The United States continues to applaud their aspirations, and the American people stand with the families still grieving their lost loved ones, including the courageous Tiananmen Mothers who have never stopped seeking accountability for their children’s deaths, despite great personal hardship and risk. We reiterate our call for a full, public accounting of those killed or missing.
-
-三十一年後，天安門示威者裡失蹤或死亡的總人數仍不為世人所知，而美國一直以來為他們的抱負而喝彩。美國人民同那些仍因失去親人而悲慟的人們站在一起，包括勇敢的“天安門母親”，儘管她們冒著巨大的個人困難和風險，但她們不懈地尋求其子女死難原因並追責。我們再次呼籲對被殺或失蹤人士的原因進行公開全面的追責。
-
-We mourn the victims of June 4, 1989, and we stand with the people of China who continue to aspire to a government that protects human rights, fundamental freedoms, and basic human dignity.
-
-我們对1989年6月4日的遇難者表示哀悼並與中國人民站在一起，他們一直渴望能擁有一個可保障人權、基本自由和起碼人格尊嚴的政府。
-
-出處：[31st Anniversary of  Tiananmen Square](https://www.state.gov/31st-anniversary-of-tiananmen-square/)
-
-*翻譯：【**Michelle**】校對：【**GM31**】*
-
-*戰友之家玫瑰園小隊出品*
+【我們會通過直播，紀念天安門六四的光榮，從北京的晨曉開始，持續到北京的午夜，郭文貴先生、GMedia和GTV在全世界的工作人員，將會從日本、臺灣以及世界各地直播，我想感謝我們的觀眾，我作為法治社會的董事，非常的榮幸，在過去一二年裡，一直專注於爆料革命，為中國人民的自由工作，是很榮耀的，今天喜馬拉雅宣佈了新聯邦中國，喜馬拉雅是要對抗和最終打倒中共的，中共是一個流氓組織，他們不應該繼續奴役中國人，我想感謝全世界所有說英文的人，我在接下來的十八個小時，會在這兒，對所發生的事，給出分析評定和評述，我要感謝郭文貴先生以及所有與爆料革命相關的朋友們、所有支持法治社會的人們、所有為了解放中國人而每天工作的人們。 此時此刻，我們世界上最偉大的城市——紐約，今晚這個城市每個地方，都實行了8:00宵禁，而這一切都在展示，自由是非常艱難的，每天你都要為了自由而鬥爭，每天都要鬥爭，你要積極地擁抱自由的理想，我們美國人理解這一點，這就是為什麼，我們每天都在鬥爭，即使不完美，我們還在努力從各個方面做好，自由不是完美的，自由是不完美的，但即使如此，還是比獨裁要好，比如中國共產黨，今天我們非常榮幸地來紀念三十一年前天安門前死去的義士，因為中共不會有一秒鐘直播，來緬懷他們，所以我想向說英語的觀眾們表示感謝，我非常期待今晚與你們對話。】
 
 0

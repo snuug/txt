@@ -1,83 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 遏制中共，美商務部對中共貿易黑名單公司和機構的制裁加速于本周5日生效
-`2020-06-04 12:08 GM30` [轉載自GNews](https://gnews.org/zh-hant/222642/)
+## 忽如一夜運動來，千商萬販地攤擺！
+`2020-06-04 12:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/222716/)
 
-**作者：文萌**
+**作者：玉米地大姐**
 
-美国商务部3日以大规模杀伤性武器、与中国解放军有关、迫害新疆维吾尔族人权等理由指出，对于33家中共国公司和机构的新经济制裁，黑名单于当地时间週五（5日）起生效，商务部上月已宣布将把这33家企业列入经济制裁黑名单。在没得到美国政府许可下，禁止使用美国技术。商务部上月已宣布将把这33家企业列入经济制裁黑名单。
+城管喊你擺地攤，好比黃鼠狼叫雞去下蛋一樣荒唐，可這事就荒唐地發生了，請看澎湃新聞報道：
 
-这项最新行动代表川普政府打击可能为解放军采购所需物资的中国企业，以及惩罚北京当局打压以穆斯林为主的少数民族。根据美国商务部网站所列黑名单，被制裁的公司还包括东方网力，也就是中国最知名的人工智能公司，其子公司深网视界与监控新疆维吾尔族穆斯林行动有关。上榜单位包括研制超级电脑“天河二号”的北京计算科学研究中心、知名资安公司奇虎360，公安部物证鉴定中心、及知名脸部辨识开发商云从科技等。这些33家新增实体被加入实体清单后，与美国相关的物项的出口、再出口和国内转移都将受美国出口管制法案（EAR）监管，需要取得额外的许可或限制绝大多数许可例外才可以继续从事上述行为，从而加大在计算机、传感器、通信设备和推进装置领域加大对中共的控制。
+日前，江西九江瑞昌市不少小商販接到了城管隊員打來的電話，主動動員他們到指定地點擺攤經營。不少攤販主接到電話後非常驚訝，驚呼“還有這麽好的事啊，我要叫上其他人也來擺”。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04115855/2-22.jpg)
+據了解，爲釋放“地攤經濟”活力，讓城市更有煙火氣，江西九江瑞昌市城市管理局在城區設置了流動攤販臨時擺放點，爲市民提供靈活多樣化的便民服務。
 
-下面是24家企業和機構名單（[https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc](https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc)）：
-Beijing Cloudmind Technology Co., Ltd.
-北京達闼科技
-Beijing Computational Science Research Center
-北京計算科學研究中心
-Beijing Jincheng Huanyu Electronics Co., Ltd.
-北京錦程環宇科貿有限公司
-Center for High Pressure Science and Technology Advanced Research
-北京高壓科學研究中心
-Chengdu Fine Optical Engineering Research Center
-成都精密光學工程研究中心
-China Jiuyuan Trading Corporation
-中國九源貿易公司
-Cloudminds (Hong Kong) Limited
-達闼科技 香港
-Cloudminds Inc.
-達闼科技
-Harbin Chuangyue Technology Co., Ltd.
-哈爾濱創越科技有限公司
-Harbin Engineering University
-哈爾濱工程大學
-Harbin Institute of Technology
-哈爾濱工業大學
-Harbin Yun Li Da Technology and Development Co., Ltd.
-哈爾濱蘊力達科技開發有限公司
-JCN (HK) Technology Co. Ltd.
-精納科技有限公司
-K Logistics (China) Limited
-快急送物流(中國)有限公司
-Kunhai (Yanjiao) Innovation Research institute
-昆海（燕郊）創新研究院
-Peac Institute of Multiscale Science
-頂峰多尺度科學研究所
-Qihoo 360 Technology Co., Ltd.
-奇虎360
-Shanghai Nova Instruments Co., Ltd.
-上海新星設備有限公司
-Sichuan Dingcheng Material Trade Co., Ltd.
-四川鼎澄物資貿易有限公司
-Sichuan Haitian New Technology Group Co. Ltd.
-四川海天新技術集團有限公司
-Sichuan Zhonghe Import and Export Trade Co., Ltd.
-四川中和進出口貿易有限公司
-Skyeye Laser Technology Limited
-天眼激光科技有限公司
-Zhu Jiejin
-朱傑進 複旦大學副教授
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04123946/2-23.jpg)
 
-**與人權相關的9個實體**
+擺了地攤之後呢？當然是一地垃圾喽，澎湃新聞6月3日報道，大連一夜市“一片狼藉”
 
-美國工業和安全局（The Bureau of Industry and Security， BIS）宣布將中國公安部法醫學研究所和8家中國公司加入實體清單，以阻止這些實體獲得美國技術。BIS認爲，這9家實體共謀違反人權。
+“地攤經濟”讓越來越多的城市有了“煙火氣”。目前，濟南、鄭州、石家莊、西安等省會城市啓動了“地攤經濟”“夜市經濟”計劃。
 
-Chinas Ministry of Public Securitys Institute of Forensic Science
-中國公安部法醫學研究所
-Aksu Huafu Textiles Co.
-阿克蘇華孚色紡有限公司
-CloudWalk Technology
-雲行科技集團股份有限公司
-FiberHome Technologies Group and the subsidiary Nanjing FiberHome Starrysky
-Communication Development Technologies Co., Ltd.
-烽火科技集團有限公司及其子公司南京烽火星空通信發展有限公司
-NetPosa and the subsidiary SenseNets Technology Ltd.
-東方網力科技股份有限公司及其子公司深圳市深網視界科技有限公司
-Intellifusion
-深圳雲天勵飛技術有限公司
-IS’Vision
-上海銀晨智能識別科技有限公司
+6月2日，有網友稱，大連一夜市開放後，附近出現交通堵塞、衛生“一片狼藉”等情況。目前，該夜市被停業整改。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04124105/3-12.jpg)
+
+針對前述情況，6月3日，大連市商務局流通處一名工作人員稱，網友所反映的前述情況與“外展外擺”工作有關。相關工作詳情需咨詢大連市購物節組委會。
+
+3日下午，大連市購物節組委會辦公室的一名工作人員告訴澎湃新聞，該組委會是由大連市委宣傳部、商務局、城管局等部門及成員單位聯合組建。
+
+網友所反映的前述夜市系商販自發的擺攤行爲，缺少統一管理，對周邊環境以及交通造成了影響。目前，該夜市已暫停營業。
+
+前述工作人員介紹，目前，大連市政府正計劃開展“商業外展外擺”活動，由政府統一管理，劃定擺攤區域，制定經營規範。目前，該活動已經公布了第一批允許外展外擺地段，將于近日開放範圍內商家的經營活動。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04124138/1-29.jpg)
+
+中共兩會後，爲了刺激經濟，各地一哄而上擺地攤，各路官媒開足馬力高調宣傳什麽“地攤經濟帶動多只概念股持續大漲”，“讓城市多些煙火氣息”，“地攤經濟火爆，多地政府與企業密集出台地攤扶持政策。” 既然地攤經濟這麽大有“錢”途，爲什麽早不發展？要知道當初建立城管制度針對的就是擺地攤的小商小販，人爲制造了多少家庭悲劇，當年轟動全國的沈陽夏俊峰殺城管案就是血淋淋的證明。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04124205/4-10.jpg)
+
+中共這張嘴橫豎都有理，翻手爲雲覆手爲雨，昨天擺地攤違法，今天擺地攤就是振興經濟。問題是強扭的瓜不甜，這種由政府牽頭搞地攤運動注定昙花一現不會長久，皆因違背市場規律。
+
+我們知道，真正擺地攤者都是自發行爲，因爲有利可賺，何勞政府操心，政府不管就阿彌陀佛了。疫情當下有多少人願意冒著生命危險去逛地攤消費，中共心理也沒底，所以抓典型、搞促銷賣力吆喝。
+
+地攤經濟一是暴露了中共的險惡用心，爲了保住自家錢袋子，繼續隱瞞疫情不顧民衆死活，哄騙他們上街消費。
+
+二是死馬當活馬，因爲除了擺地攤，已經想不出什麽招術對付洶湧而來的失業大潮，可以看出中共從上到下亂了陣腳，想一出是一出。企圖靠地攤刺激經濟無異于飲鸠止渴，毫不誇張地說，擺地攤就是壓死中共經濟的最後一根稻草。除了一地垃圾，什麽也得不到。
+
+正是：
+忽如一夜運動來
+千商萬販地攤擺
+掩蓋失業拍腦袋
+中共經濟已歇菜
+
+（文章內容僅代表作者觀點）
 
 0
