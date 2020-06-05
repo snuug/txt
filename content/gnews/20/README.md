@@ -1,51 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 海南自由貿易港取代香港是癡人說夢
-`2020-06-04 17:57 GM06` [轉載自GNews](https://gnews.org/zh-hant/222804/)
+## 美國白宮新聞秘書發表紀念天安門大屠殺三十一周年的聲明（中英文對照）
+`2020-06-04 20:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/222913/)
 
-作者：文茗
+**Statement from the Press Secretary Commemorating**
 
-中共國務院最新公佈《海南自由貿易港建設總體方案》明確，率先在海南自由貿易港落實金融業擴大開放政策、構建多功能自由貿易帳戶體系，以貿易投資自由化便利化為重點，支援建設國際能源、航運、產權、股權等交易場所。
+**the 31st Anniversary of the Tiananmen Square Massacre**
 
-從全文來看，《海南自由貿易港總體方案》被總結為60個政策亮點，除了部分產品零關稅，在稅收優惠、人才吸引、通關便利、“極簡審批”、跨境服務、金融業開放等方面都做出明確規定。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174915/1-32.jpg)
-去除那些方案裡面大量的廢話，找出共產實際要表達最主要部分是：首先是“零關稅”，除了少數特殊商品外，海南實施大範圍的進口零關稅政策，且只要在海南對該商品進行30%的加工，則該商品進入中國大陸同樣維持零關稅；對鼓勵類企業按15%徵收所得稅，對高端緊缺人才按15%徵收個人所得稅；主要是資金自由在境內外流通以及對外開放電信服務，也就是嘗試拆除資金和網路的牆。
+FOREIGN POLICY
 
-整套方案說來說去，其實核心目的就是代替香港，成為新的共產黨可控的自由貿易港。
+Issued on: June 4, 2020
 
-共產黨想要代替香港成立自由貿易區，前前後後有18個之多，最有名的當屬上海自貿區。
+**美國白宮新聞秘書紀念天安門大屠殺三十一周年的聲明**
 
-上海自貿區起初口號（承諾）就是“貨幣自由流通，貿易便捷”的自由貿區，目的就是取代香港的金融中心地位。建立以來直至今日一直無法兌現當初的承諾。當開發商設立一個專用的銀行帳戶，受到中共嚴厲資本管制限制，資金完全被凍僵。每次交易前，必須先超過40個單位審核等等眾多問題。上海自貿區目前一共設有119家金融公司，但實際上，僅3家在外高橋保稅區設有公司地址。毫不客氣的講，上海自貿區完全以失敗告終，它的失敗完全可以歸結於共產黨可惡的金融管制。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174101/2-25.jpg)
-如今的海南自貿港的建立，其實要追溯到中美貿易戰初期的2018年。當時中共為了欺騙美國對貿易談判做出讓步，做出進一步開放市場、保護智慧財產權等承諾。中共於是出臺了海南將建自貿區、自貿港的政策。
+外交政策
 
-此前川普總統宣佈“取消香港作為中國一個單獨的海關和旅遊地區所享有的優惠待遇”。香港的獨立關稅地位即將被取消，美元與港幣、人民幣脫鉤在即。共產黨強推海南自貿港取代香港，海南真的能刊此重任嗎？
+頒布日期：2020年6月4日
 
-香港經濟素以自由貿易、低稅率和最少政府幹預見稱，連續23年被美國傳統基金會評為全球最自由的經濟體，該機構排名評估主要參考指標為：政府規模、法律結構和產權保護、貨幣穩定情況、國際貿易自由度以及信貸、勞工及商業法規等。香港還連續2年被瑞士洛桑國際管理發展學院評為“全球最具競爭力的經濟體”，被加拿大智庫菲沙研究所評為“最自由經濟體”。
+The American people reflect on the courage and optimism of the hundreds of thousands of Chinese citizens who gathered peacefully 31 years ago in Beijing and throughout China to protest widespread official corruption and demand a greater say in the governance of their country. The Chinese Communist Party’s slaughter of unarmed Chinese civilians was a tragedy that will not be forgotten. The United States calls on China to honor the memory of those who lost their lives and to provide a full accounting of those who were killed, detained, or remain missing in connection with the events surrounding the Tiananmen Square massacre on June 4, 1989.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174155/3-14.jpg)
+三十一年前，數十萬中國公民在北京以及整個中國和平集會，以抗議廣泛的官場腐敗，並要求在在國家的治理中擁有更大的發言權，美國人民敬佩他們的勇氣和樂觀精神。中國共產黨對手無寸鐵的中國平民的屠殺，是一個永遠不會被遺忘的悲劇事件。美國呼籲中國政府紀念並全面記錄那些在1989年6月4日天安門大屠殺及相關事件中被殺害、拘留或失踪的人員。
 
-曾經的香港自貿港之所以成功的因素：
+On this day of remembrance, the people of the United States call upon the Chinese government to fulfill its commitments under the Universal Declaration of Human Rights and the Sino-British Joint Declaration, to uphold the rights and freedoms guaranteed to all Chinese citizens under China’s constitution , and to end the systematic persecution of millions of ethnic and religious minorities. The American people stand together with all Chinese citizens in their pursuit of fundamental rights, including the right to accountable and representative governance and freedom of speech, assembly, and religious belief.
 
-一是重視經濟立法，為市場正常運行提供法律保障。在香港的成文法中，經濟法約占45%，它們制定了市場上完善的自由競爭規則，為實現真正的自由、公平競爭，保證市場的有序運行提供了保障。香港也為企業提供了一套堅實公正的法律制度，其產權制度完善，可有效保護私人財產權，且會計審檢制度、信用制度及資訊披露制度健全。商業糾紛可以在法庭外採用雙方協商、第三者調解以及仲裁等方法解決。在香港，仲裁是解決商業糾紛常用的方法。仲裁程式適用《仲裁條例》，該條例包含兩個明顯不同的制度，即本地制度以及國際制度。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174248/5-5.jpg)
-二是“小政府”運作管理經濟發展。香港有十幾個半官方貿易機構，其中香港貿易發展局負責統籌和策劃整個出口拓展工作，香港出口信用保險局也是貿易促進的重要機構，它為香港出口商提供出口信用保險服務。此外，香港有200多個工商團體，包括綜合性商會（如香港總商會、香港中華廠商聯合會）、行業商會（如香港制衣業總商會）和外商團體（如美國商會）等，這些工商團體起著聯絡同業、傳遞資訊的作用。
+值此六四紀念日之際，美國人民呼籲中國政府履行《世界人權宣言》和《中英聯合宣言》中的承諾，維護中國憲法賦予所有中國公民的權利和自由，並結束對數百萬少數民族和宗教少數群體的系統性迫害。美國人民支持所有中國公民追求他們的基本權利，包括有權利要求負責任的和代表人民的政府治理模式以及言論、集會和宗教信仰自由。
 
-三是香港實行簡單低稅率政策，稅種少，稅率低。香港對進口貨物不徵收關稅（特殊貨品除外），不設增值稅和營業稅，境外所得利潤也不納稅。公共財政收入主要來源有：差餉、地租、博彩稅、遺產稅、印花稅、利得稅、薪俸稅和物業稅。差餉是指預期物業全年可得的合理租值，當前的差餉徵收率為5%；地租是在新土地契約的批租年期內或無續期權的土地契約的續期年期內向政府繳納的租金；博彩稅是向賽馬博彩、合法足球博彩的投注所得毛利以及六合彩收益徵收的稅項；遺產稅是對身故者在香港遺下財產徵收的稅項，但自2006年2月11日開始，香港取消遺產稅，即在該天或之後去世的人士的遺產無須繳付遺產稅；印花稅指涉及不動產轉讓、租約及股份轉讓的各類檔須繳納的稅項；利得稅指向香港企業徵收經營所獲得利潤的稅項，稅率分別為16．5％（適用於有限公司）和15％（適用於非有限公司）；薪俸稅是指在香港產生的入息徵收的稅項，按累進的稅率計算；物業稅是向香港土地業權人及樓宇業主徵收的稅項。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174343/6-2.jpg)
-四是報關程式簡單便利。香港對進出口的一般商品不收關稅，沒有任何關稅限額或附加稅，也不設任何增值稅或一般服務費。但酒類、煙草、碳氫油類及甲醇等4類商品，無論進口或在本地生產，均須繳付消費稅，屬於進口的，要收進口關稅。香港僅有的少量貿易管制，是為了履行國際義務和保障本地居民的生活必需品。只有危害公共衛生或安全的商品、戰略物資、應納稅商品和受限制商品，以及對某些特定國家的進口或出口，需要領取出口許可證。
+*翻譯：【新生】校對：【Michelle】*
 
-香港的進出口貿易手續十分簡便，一般只要在貨物進出口14天內報關，向海關遞交一份資料正確及齊備的進口或出口報關表格，無須事先批准。進出口報關表主要由政府統計處用作編制貿易統計數字。
+*戰友之家玫瑰園小隊出品*
 
-五是吸引和培育人才。香港經濟的持續發展歸功於各行各業的高端精英人才。香港特區政府不僅制定了吸引金融、服務貿易、科技等領域的外來人才政策，還通過加大培訓資源和政策措施培育本地人才，特別是增加航空、海運、鐵路、金融、建造和城市管理等方面的培訓投入，為香港長遠高增值及多元化發展配對人才。
+[閱讀](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[原](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04174429/7-2.jpg)
-
-歸根結底，曾經的香港自由貿易港並不是如今海南自貿港所能取代的，不論是法治、民主、自由、人員素質、財富、基礎設施、國際認可度、與世界的聯繫等等一系列優勢，都不是共產黨統治下的海南所能媲美的。
-
-今天的香港，是經歷了近百年的沉澱、積累才有了今天的輝煌。海南在共產黨統治下即使再過一百年也不可能成為第二個香港，最有可能會是第二個雄安新區、第二個上海自貿區而已。
-
-（文章内容仅代表作者观点）
+相關新聞：[美國國務院紀念天安門事件三十一周年聲明（中英文對照）](https://gnews.org/zh-hant/222529/)
 
 0

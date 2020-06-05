@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國白宮新聞秘書發表紀念天安門大屠殺三十一周年的聲明（中英文對照）
-`2020-06-04 20:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/222913/)
+## 香港人堅決抗共 直至勝利到來
+`2020-06-05 01:24 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/223065/)
 
-**Statement from the Press Secretary Commemorating**
+*香港战友：文娜*
 
-**the 31st Anniversary of the Tiananmen Square Massacre**
+數百萬熱愛自由熱愛民主的香港人，從去年6月至今，展開轟轟烈烈的抵抗中共的「反送中運動」，成千上萬的香港大學生、中學生、甚至小學生，走上街頭反中共抗警暴，抗議中共侵犯及篡改基本法，香港人不屈不撓的抗共鬥志，雖然招來中共及港共政權的殘暴殺虐，但是，卻讓西方世界看到中共赤裸裸的醜惡嘴臉，香港人的流血和犧牲，香港學生抗暴的鬥志，獲得西方民主社會的普遍支持Stand With Hongkong。
 
-FOREIGN POLICY
+郭文貴先生的爆料革命團隊及直播平台，去年6月9日百萬港人和平遊行的當日，已經率先在Twitter 及Youtube 社交媒體上直播香港的抗爭運動，郭先生號召所有戰友關注香港，并每天為香港人民祈禱，郭先生及戰友們的支持，特別是為香港人在海外發聲，最早拉開海外的滅共戰場，及游說白宮展開對香港的制裁，都是令中共步步失據的雄才偉略。
 
-Issued on: June 4, 2020
+從「香港人加油」、「香港人反抗」、到「香港人報仇」，這一聲又一聲百萬人的怒吼，從香港孩子在街頭被捕、被虐打，到香港女孩被姦殺、香港人被自殺、香港女孩被子彈射盲眼晴、香港學生被真槍實彈近距離射殺，還有成百上千的香港年輕人被各種誣陷的罪名，拘禁在監獄等候不公平的審判，香港的孩子失去的不僅僅是自由，而是他們的前途他們的年輕生命。
 
-**美國白宮新聞秘書紀念天安門大屠殺三十一周年的聲明**
+許多香港學生小小年紀，便展開逃亡流亡海外的生活，這些，都拜港共政權的高壓統治所賜，香港人不會忘記在前線擋子彈擋催淚彈的勇士，不會忘記去年7.21、8.31、10.1，不會忘記中文大學的槍林彈雨、不會忘記理工大學全城救人的悲壯，不會忘記一天超過2000名手足落入魔爪的挫敗，不會忘記新屋嶺集中營。
 
-外交政策
+我們深信，只有推翻中共政權，香港人民、台灣人民、西藏人民和全中國人民，才能真正享受自由民主。
 
-頒布日期：2020年6月4日
+我們深信，在郭文貴先生爆料革命的滅共旗幟下，我們終於迎來了2020年6月4日新中國建國的這一天，雙手沾滿人民鮮血的偽中共政權，蹦達不了幾天。
 
-The American people reflect on the courage and optimism of the hundreds of thousands of Chinese citizens who gathered peacefully 31 years ago in Beijing and throughout China to protest widespread official corruption and demand a greater say in the governance of their country. The Chinese Communist Party’s slaughter of unarmed Chinese civilians was a tragedy that will not be forgotten. The United States calls on China to honor the memory of those who lost their lives and to provide a full accounting of those who were killed, detained, or remain missing in connection with the events surrounding the Tiananmen Square massacre on June 4, 1989.
+我們深信，戰鬥在前線的香港人民，注定會迎來勝利的這一天！正如文貴先生所言，香港人民最終一定會戰勝邪惡的中共，讓香港再次成為東方最閃耀的明珠。
 
-三十一年前，數十萬中國公民在北京以及整個中國和平集會，以抗議廣泛的官場腐敗，並要求在在國家的治理中擁有更大的發言權，美國人民敬佩他們的勇氣和樂觀精神。中國共產黨對手無寸鐵的中國平民的屠殺，是一個永遠不會被遺忘的悲劇事件。美國呼籲中國政府紀念並全面記錄那些在1989年6月4日天安門大屠殺及相關事件中被殺害、拘留或失踪的人員。
+2020.06.04
 
-On this day of remembrance, the people of the United States call upon the Chinese government to fulfill its commitments under the Universal Declaration of Human Rights and the Sino-British Joint Declaration, to uphold the rights and freedoms guaranteed to all Chinese citizens under China’s constitution , and to end the systematic persecution of millions of ethnic and religious minorities. The American people stand together with all Chinese citizens in their pursuit of fundamental rights, including the right to accountable and representative governance and freedom of speech, assembly, and religious belief.
-
-值此六四紀念日之際，美國人民呼籲中國政府履行《世界人權宣言》和《中英聯合宣言》中的承諾，維護中國憲法賦予所有中國公民的權利和自由，並結束對數百萬少數民族和宗教少數群體的系統性迫害。美國人民支持所有中國公民追求他們的基本權利，包括有權利要求負責任的和代表人民的政府治理模式以及言論、集會和宗教信仰自由。
-
-*翻譯：【新生】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
-
-[閱讀](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[原](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)
-
-相關新聞：[美國國務院紀念天安門事件三十一周年聲明（中英文對照）](https://gnews.org/zh-hant/222529/)
+### **[編輯 【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/2rZ7nXXRueuRU/)**
 
 0
