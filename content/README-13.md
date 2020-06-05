@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 13/27 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [27](/content/README-27.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/2019/05/20190510-3983721227880771175.md)
 
 [文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/2019/05/20190510-8107152999267349007.md)
 
@@ -59,8 +63,6 @@
 [文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/2019/04/20190407-6044925743176035036.md)
 
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
-
-[文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
 
 
 ## 頁面 13/27 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [27](/content/README-27.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

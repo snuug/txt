@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
+
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
 
 [文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
 
@@ -59,8 +63,6 @@
 [文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
 
 [文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
-
-[文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
 
 
 ## 頁面 1/27 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [27](/content/README-27.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

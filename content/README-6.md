@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 6/27 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [27](/content/README-27.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
 
 [文字版：2019年12月8号文贵报平安直播](/content/2019/12/20191220-6902125038601635282.md)
 
@@ -59,8 +63,6 @@
 [文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
 
 [文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
-
-[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
 
 
 ## 頁面 6/27 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [27](/content/README-27.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 11/27 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [27](/content/README-27.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
 
 [文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
 
@@ -59,8 +63,6 @@
 [文字版：6月18日文贵纽约时间晚上8点直播關於香港21日再次上街](/content/2019/06/20190620-2817897737957212509.md)
 
 [文字稿：香港時間2019年6月17日上午直播](/content/2019/06/20190618-7972608617443196420.md)
-
-[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
 
 
 ## 頁面 11/27 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [27](/content/README-27.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

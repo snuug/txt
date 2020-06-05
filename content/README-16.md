@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 16/27 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [27](/content/README-27.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+
+[文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/content/2018/12/20181218-4408266402406274127.md)
 
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/2018/12/20181218-3889821236277365249.md)
 
@@ -59,8 +63,6 @@
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/2018/11/20181102-7756356782375038893.md)
 
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/2018/11/20181102-2322680967443605626.md)
-
-[文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/2018/11/20181102-6608329269804536528.md)
 
 
 ## 頁面 16/27 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [27](/content/README-27.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

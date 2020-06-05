@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 22/27 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
+
+[文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
 
 [文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
 
@@ -59,8 +63,6 @@
 [2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/2018/04/20180418-619291156807124954.md)
 
 [郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
-
-[2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/2018/04/20180418-6993418396066281259.md)
 
 
 ## 頁面 22/27 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

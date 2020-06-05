@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 27/27 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [查看全部](/content/README-all.md)
+
+[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/2018/04/20180418-1721457250505894859.md)
 
 [2017年9月19日 明镜专访郭文贵第六期（5）：害死袁宝璟的是孟建柱](/content/2018/04/20180418-4181709165210679355.md)
 

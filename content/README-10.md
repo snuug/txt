@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 10/27 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [27](/content/README-27.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
+
+[文字版：8月18日文贵吃饱了直播](/content/2019/08/20190822-8029195555016463956.md)
 
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/2019/08/20190819-5676820155081817041.md)
 
@@ -59,8 +63,6 @@
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
 
 [文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
-
-[文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
 
 
 ## 頁面 10/27 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [27](/content/README-27.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)

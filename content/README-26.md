@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 26/27 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+
+[《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
 
@@ -59,8 +63,6 @@
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/content/2018/04/20180418-4084377282763556.md)
 
 [2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？](/content/2018/04/20180418-5167983296675509473.md)
-
-[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/2018/04/20180418-1721457250505894859.md)
 
 
 ## 頁面 26/27 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

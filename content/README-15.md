@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 15/27 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [27](/content/README-27.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月29日（上，下）郭文贵向北朝鲜领导人金正恩先生及金与正女士发出的警告视频，对北朝鲜国家安全和两位个人安全有重大爆料](/content/2019/01/20190131-8326021185101637411.md)
 
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/2019/01/20190131-1680667895953644784.md)
 
@@ -59,8 +63,6 @@
 [文字版：2018年12月19号和12月20号郭先生报平](/content/2018/12/20181220-3642429743012520927.md)
 
 [文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/content/2018/12/20181218-205233234738962001.md)
-
-[文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/content/2018/12/20181218-4408266402406274127.md)
 
 
 ## 頁面 15/27 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [27](/content/README-27.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 19/27 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [27](/content/README-27.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
+
+[文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180808-5918968027514942039.md)
 
 [文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/2018/07/20180725-7254204072739066791.md)
 
@@ -59,8 +63,6 @@
 [写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
 
 [文字版5月24日栗战书秘书因为董文彪曲龙王岐山被抓](/content/2018/05/20180525-5314910770568044153.md)
-
-[文字版郭文贵先生2018 05 17 Broadcast试播](/content/2018/05/20180520-991291288208648069.md)
 
 
 ## 頁面 19/27 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [27](/content/README-27.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)

@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -10,6 +12,8 @@
 [:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
+
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
 
 [文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
 

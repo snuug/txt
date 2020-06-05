@@ -3,6 +3,8 @@
 
 推薦文章:point_right:
 
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
+
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
@@ -11,6 +13,8 @@
 
 
 ## 頁面 7/27 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [27](/content/README-27.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
 
 [文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/2019/11/20191121-5294984680700709371.md)
 
@@ -59,8 +63,6 @@
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
 
 [文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
-
-[文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
 
 
 ## 頁面 7/27 [**<**](/content/README-6.md) [1](/content/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [27](/content/README-27.md) [**>**](/content/README-8.md) [查看全部](/content/README-all.md)
