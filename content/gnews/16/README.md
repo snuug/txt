@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】02/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-04 02:26 GM77` [轉載自GNews](https://gnews.org/zh-hant/222364/)
+## 班農先生在2020年6月4日的新中國聯邦建國日正告天下——喜馬拉雅是要對抗和最終打倒中共的
+`2020-06-04 10:43 Diago` [轉載自GNews](https://gnews.org/zh-hant/222605/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04104039/WhatsApp-Image-2020-06-04-at-10.29.18-PM.jpeg)
+作者：Diago
 
-[English\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021931/English_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021931/English_0602_CCP_Virus_Updates.pdf)
+班農先生在2020年6月4日的新中國聯邦建國日正告天下——喜馬拉雅是要對抗和最終打倒中共的：
 
-[French\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021934/French_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021934/French_0602_CCP_Virus_Updates.pdf)
-
-[German\_0602\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021938/German_0602_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021938/German_0602_CCP_Virus_Updates_.pdf)
-
-[Japanese\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021944/Japanese_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021944/Japanese_0602_CCP_Virus_Updates.pdf)
-
-[Korean\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021950/Korean_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021950/Korean_0602_CCP_Virus_Updates.pdf)
-
-[Russian\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021958/Russian_0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04021958/Russian_0602_CCP_Virus_Updates.pdf)
-
-[Spanish\_0602\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04022003/Spanish0602_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04022003/Spanish0602_CCP_Virus_Updates.pdf)
+【我們會通過直播，紀念天安門六四的光榮，從北京的晨曉開始，持續到北京的午夜，郭文貴先生、GMedia和GTV在全世界的工作人員，將會從日本、臺灣以及世界各地直播，我想感謝我們的觀眾，我作為法治社會的董事，非常的榮幸，在過去一二年裡，一直專注於爆料革命，為中國人民的自由工作，是很榮耀的，今天喜馬拉雅宣佈了新聯邦中國，喜馬拉雅是要對抗和最終打倒中共的，中共是一個流氓組織，他們不應該繼續奴役中國人，我想感謝全世界所有說英文的人，我在接下來的十八個小時，會在這兒，對所發生的事，給出分析評定和評述，我要感謝郭文貴先生以及所有與爆料革命相關的朋友們、所有支持法治社會的人們、所有為了解放中國人而每天工作的人們。 此時此刻，我們世界上最偉大的城市——紐約，今晚這個城市每個地方，都實行了8:00宵禁，而這一切都在展示，自由是非常艱難的，每天你都要為了自由而鬥爭，每天都要鬥爭，你要積極地擁抱自由的理想，我們美國人理解這一點，這就是為什麼，我們每天都在鬥爭，即使不完美，我們還在努力從各個方面做好，自由不是完美的，自由是不完美的，但即使如此，還是比獨裁要好，比如中國共產黨，今天我們非常榮幸地來紀念三十一年前天安門前死去的義士，因為中共不會有一秒鐘直播，來緬懷他們，所以我想向說英語的觀眾們表示感謝，我非常期待今晚與你們對話。】
 
 0

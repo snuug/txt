@@ -1,24 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命給我們帶來了什麼？
-`2020-06-04 01:55 Diago` [轉載自GNews](https://gnews.org/zh-hant/222328/)
+## 美國國務院紀念天安門事件三十一周年聲明（中英文對照）
+`2020-06-04 08:58 GM31` [轉載自GNews](https://gnews.org/zh-hant/222529/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04015237/WhatsApp_Image_2020-06-02_at_08.08.39.jpeg)
-作者：Diago
+### **31st Anniversary of  Tiananmen Square**
 
-爆料革命給我們帶來了什麼？現在每個有機會參與GTV投資和購買GDOLLAR的戰友，如果他們打款成功了，那麼他們有了成為富翁的機會，他們有了看著手中的GDOLLAR升值的喜悅；如果他們打款失敗了，那麼他們依然有了成為富翁的機會，他們依然有著可以得到GDOLLAR升值的收益的機會。也就是說不管是打款成功還是失敗，對於每個參與的戰友都是巨大的機會。
+### **天安門事件三十一周年**
 
-可是在三年前，當爆料革命發起人走上前臺的時候，我們看不到今天的這一幕，三年來，加入或早或晚，加入的形式或者是在牆內傳播爆料革命的視頻及文字，或者是在推特、臉書及其他社交媒體上與爆料革命站在一起，我們發出我們自己的聲音；三年來，我們看到了一個一個的曾經的戰友離開，看到了一個一個閃著六四光環的民運、叫囂著反共的民運，接二連三開始了砸郭和砸挺共戰友的轉變，我們知道原來這是穿著反共馬甲的民運偽類，也由於這些偽類的存在，我們翻出牆的戰友都或多或少的被誤導、或者受到財務上的損失；三年來，我們經歷過推特封號以及部分戰友的被喝茶、被刑拘、被恐嚇，他們失去自由，被家人和朋友另眼相看。
+PRESS STATEMENT
 
-自法治基金成立以來，自從我們有了捐款的管道以後，我們不知道這份捐款可以讓我們獲得今天的投資機會，我們或者捐一次或者捐多次或者替別人捐款，我們知道捐款會面臨的危險，因為在大資料時代，我們的所作所為無所藏匿，可是我們依然義務反顧或者雖然猶豫躊躇，但最終我們都用我們給法治基金的捐款表明了我們對於爆料革命的支援。
+新聞聲明
 
-在今天GTV私募成功的時候，在2020年6月4日六四宣言響徹我們耳鼓，讓我們淚目的時候，我們知道爆料革命會讓我們和我們後代不再生活在恐懼當中，可是這些在我們被喝茶、被刑拘的時候，在我們用各種方式給法治基金、法治社會捐款的時候，我們都不知道，我們不知道這一天什麼時候到來，我們不知道我們能走多遠。
+MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON
 
-那麼爆料革命給我們帶來了什麼？是選票嗎？是將來GTV和GDOLLAR豐厚的收益嗎？這些都是爆料革命帶給我們的，爆料革命在未來還會給我們帶來一人一票的、把我們的命運掌握在我們自己手裡的、代表我們作人的尊嚴的選票。可是，當初我們都不知道我們會得到這些，在我們不預知今天的收穫的時候，我們依然以自己的微薄之力、以各種形式去支持爆料革命，那是因為爆料革命一開始就給我們帶來了希望，因為這希望，我們知道在未來我們和我們的後代可以不再生活在恐懼中；因為這希望，在我們沒有選票的時候，我們用自己給法治基金、法治社會的捐款，告訴這個世界，我們的每一筆捐款就是我們的對我們未來的投票，我們對未來的投票讓爆料革命發起人的滅共之路不孤單，我們對未來的投票，也會讓我們在未來可以很自豪的把我們的捐款憑證展示給我們子孫，因為那是我們每一個不缺席這場偉大革命的在場證據！
+國務院發言人MORGAN ORTAGUS
 
-三年來，我們一直在場，今天我們也在場，但是我們不需要爆料革命發起人和戰友們的感謝，因為這是在為我們自己戰鬥，在這一場為我們自己的未來的戰鬥中，我們要感謝爆料革命、感謝爆料革命發起人、感謝班農先生、感謝凱爾巴斯先生、感謝所有支持爆料革命並在滅共戰場上與我們一起作戰的人。因為有了他們，我們不再絕望；因為有了他們，我們種下希望；因為有了他們，我們正在收穫未來。
+JUNE 3, 2020
 
-（文章內容僅代表作者個人觀點）
+2020年6月3日
+
+Today we honor the brave Chinese people whose peaceful calls for democracy, human rights, and a corruption-free society came to a violent end when the Chinese Communist Party (CCP) sent the People’s Liberation Army into Tiananmen Square on June 4, 1989, armed with tanks and guns. While the Tiananmen protests inspired the oppressed in the Soviet Union and Eastern Europe to demand and achieve democratic change, the Chinese communist government survived with oppressive control of information and sheer brutality.
+
+今天，我們向英勇的中國人民表示敬意，他們對民主、人權和沒有腐敗的社會發出了和平呼求。但在1989年6月4日，當中國共產黨派遣武裝了坦克和機槍的人民解放軍進入天安門廣場那一刻，這場和平的呼籲被殘暴地結束了；然而，天安門抗議活動激發了蘇聯和東歐的被壓迫者，他們要求並實現了民主變革，可中國共產黨政府卻通過實施資訊壓制和暴行而苟活了下來。
+
+Thirty-one years later, the total number of missing or dead Tiananmen protesters is still unknown. The United States continues to applaud their aspirations, and the American people stand with the families still grieving their lost loved ones, including the courageous Tiananmen Mothers who have never stopped seeking accountability for their children’s deaths, despite great personal hardship and risk. We reiterate our call for a full, public accounting of those killed or missing.
+
+三十一年後，天安門示威者裡失蹤或死亡的總人數仍不為世人所知，而美國一直以來為他們的抱負而喝彩。美國人民同那些仍因失去親人而悲慟的人們站在一起，包括勇敢的“天安門母親”，儘管她們冒著巨大的個人困難和風險，但她們不懈地尋求其子女死難原因並追責。我們再次呼籲對被殺或失蹤人士的原因進行公開全面的追責。
+
+We mourn the victims of June 4, 1989, and we stand with the people of China who continue to aspire to a government that protects human rights, fundamental freedoms, and basic human dignity.
+
+我們对1989年6月4日的遇難者表示哀悼並與中國人民站在一起，他們一直渴望能擁有一個可保障人權、基本自由和起碼人格尊嚴的政府。
+
+出處：[31st Anniversary of  Tiananmen Square](https://www.state.gov/31st-anniversary-of-tiananmen-square/)
+
+*翻譯：【**Michelle**】校對：【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

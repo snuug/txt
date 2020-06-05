@@ -1,83 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 遏制中共，美商務部對中共貿易黑名單公司和機構的制裁加速于本周5日生效
-`2020-06-04 12:08 GM30` [轉載自GNews](https://gnews.org/zh-hant/222642/)
+## “黑臉醫生”去世，緊急治療時中共還在傳遞“好消息”
+`2020-06-04 18:14 GM06` [轉載自GNews](https://gnews.org/zh-hant/222832/)
 
-**作者：文萌**
+作者：立武
 
-美国商务部3日以大规模杀伤性武器、与中国解放军有关、迫害新疆维吾尔族人权等理由指出，对于33家中共国公司和机构的新经济制裁，黑名单于当地时间週五（5日）起生效，商务部上月已宣布将把这33家企业列入经济制裁黑名单。在没得到美国政府许可下，禁止使用美国技术。商务部上月已宣布将把这33家企业列入经济制裁黑名单。
+**時間線**
 
-这项最新行动代表川普政府打击可能为解放军采购所需物资的中国企业，以及惩罚北京当局打压以穆斯林为主的少数民族。根据美国商务部网站所列黑名单，被制裁的公司还包括东方网力，也就是中国最知名的人工智能公司，其子公司深网视界与监控新疆维吾尔族穆斯林行动有关。上榜单位包括研制超级电脑“天河二号”的北京计算科学研究中心、知名资安公司奇虎360，公安部物证鉴定中心、及知名脸部辨识开发商云从科技等。这些33家新增实体被加入实体清单后，与美国相关的物项的出口、再出口和国内转移都将受美国出口管制法案（EAR）监管，需要取得额外的许可或限制绝大多数许可例外才可以继续从事上述行为，从而加大在计算机、传感器、通信设备和推进装置领域加大对中共的控制。
+**6****月****2****日，中共大力宣傳的“黑臉醫生”去世了。**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04115855/2-22.jpg)
+1月16日，“黑臉醫生”武漢中心醫院泌尿科副主任醫師胡衛鋒出現發燒、全身乏力等症狀。
 
-下面是24家企業和機構名單（[https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc](https://s3.amazonaws.com/public-inspection.federalregister.gov/2020-10869.pdf?fbclid=IwAR3YZlV6SiMOlBYBrYSmFgwsvN0JoAXsf-xZoQAJSZy0GbSmR6Eve-Qzqoc)）：
-Beijing Cloudmind Technology Co., Ltd.
-北京達闼科技
-Beijing Computational Science Research Center
-北京計算科學研究中心
-Beijing Jincheng Huanyu Electronics Co., Ltd.
-北京錦程環宇科貿有限公司
-Center for High Pressure Science and Technology Advanced Research
-北京高壓科學研究中心
-Chengdu Fine Optical Engineering Research Center
-成都精密光學工程研究中心
-China Jiuyuan Trading Corporation
-中國九源貿易公司
-Cloudminds (Hong Kong) Limited
-達闼科技 香港
-Cloudminds Inc.
-達闼科技
-Harbin Chuangyue Technology Co., Ltd.
-哈爾濱創越科技有限公司
-Harbin Engineering University
-哈爾濱工程大學
-Harbin Institute of Technology
-哈爾濱工業大學
-Harbin Yun Li Da Technology and Development Co., Ltd.
-哈爾濱蘊力達科技開發有限公司
-JCN (HK) Technology Co. Ltd.
-精納科技有限公司
-K Logistics (China) Limited
-快急送物流(中國)有限公司
-Kunhai (Yanjiao) Innovation Research institute
-昆海（燕郊）創新研究院
-Peac Institute of Multiscale Science
-頂峰多尺度科學研究所
-Qihoo 360 Technology Co., Ltd.
-奇虎360
-Shanghai Nova Instruments Co., Ltd.
-上海新星設備有限公司
-Sichuan Dingcheng Material Trade Co., Ltd.
-四川鼎澄物資貿易有限公司
-Sichuan Haitian New Technology Group Co. Ltd.
-四川海天新技術集團有限公司
-Sichuan Zhonghe Import and Export Trade Co., Ltd.
-四川中和進出口貿易有限公司
-Skyeye Laser Technology Limited
-天眼激光科技有限公司
-Zhu Jiejin
-朱傑進 複旦大學副教授
+1月17日，胡衛鋒被確診感染中共病毒，在武漢中心醫院南京路院區治療，隨後又轉到過漢口醫院、中心醫院後湖院區。
 
-**與人權相關的9個實體**
+**2****月****7****日，胡衛鋒轉入武漢市肺科醫院****ICU****病房，進行中共大力宣傳的“****ECMO****”治療。**
 
-美國工業和安全局（The Bureau of Industry and Security， BIS）宣布將中國公安部法醫學研究所和8家中國公司加入實體清單，以阻止這些實體獲得美國技術。BIS認爲，這9家實體共謀違反人權。
+3月3日，胡衛鋒轉入同濟醫院中法新城院區進行治療。
 
-Chinas Ministry of Public Securitys Institute of Forensic Science
-中國公安部法醫學研究所
-Aksu Huafu Textiles Co.
-阿克蘇華孚色紡有限公司
-CloudWalk Technology
-雲行科技集團股份有限公司
-FiberHome Technologies Group and the subsidiary Nanjing FiberHome Starrysky
-Communication Development Technologies Co., Ltd.
-烽火科技集團有限公司及其子公司南京烽火星空通信發展有限公司
-NetPosa and the subsidiary SenseNets Technology Ltd.
-東方網力科技股份有限公司及其子公司深圳市深網視界科技有限公司
-Intellifusion
-深圳雲天勵飛技術有限公司
-IS’Vision
-上海銀晨智能識別科技有限公司
+**3****月****14****日，中共報導其病情明顯好轉。**
+
+**3****月****22****日，撤下****ECMO****。**
+
+4月11日，中共報導胡衛鋒已經拔除了氣管切開套管，能夠正常講話。
+
+4月14日，轉入普通病房。
+
+4月20日，中共報導胡衛鋒在參加北京衛視新聞錄製時，**“努力想表達感激”，由於不能發聲，“只能緊緊握住詹醫生的手”，甚至還拿筆寫下“醫學史上的奇跡”，**詭異的是，在同一篇報導裡，寫道**“3月30日，胡衛鋒醫生已經可以正常交流”。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04180148/7-2.png)
+4月22日，**中共報導其“核酸雙陰”，只是需要繼續進行器官功能支援，**但晚上胡衛鋒出現腦出血狀況，進行緊急搶救，而後一個多月情況都不好，處於“神志不清”的狀態。
+
+**5月9日，中共還在報導“好消息！兩位元感染新冠病毒的武漢醫生易凡和胡衛鋒皮膚已變白”。而在當天中共舉行的聯防聯控機制新聞發佈會上，中共發言人聲稱“這兩位大夫經過我們的救治，病情好轉也很迅速，很快都在康復之中”**。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04180229/8-4.png)
+
+5月21日，再次出現腦出血。
+
+【**點評：在去世前，中共依然在進行大量的正面報導，罔顧胡衛鋒仍然在腦出血後急救的事實，似乎胡衛鋒已經病情好了。在不斷的好消息過後，則是一個噩耗，但是中共並沒有因此停止美化、失實報導，把醫生描繪得像一個聖人，身邊朋友和妻子都很惋惜，就是不對事情的根源追責，也對這個體制沒有抱怨，只是“感慨”孩子教育是問題，只是期盼想照一張全家福。這種洗腦式文章就是要轉移對中共掩蓋疫情導致這一切災難事實的視線。**】
+
+**逝去的醫生**
+
+**胡衛鋒是武漢中心醫院因為中共病毒去世的第六名醫生，另外還包括英雄醫生李文亮。**
+
+在胡衛鋒治療的期間，我們可以看到，由於中共病毒帶來的各種嚴重的二次傷害，**這種器官的受損基於中共病毒引起的細胞因數風暴，它是造成多器官衰竭的重要原因。**在整個治療過程，胡衛鋒醫生多次出現血管破裂、大出血，甚至還差點進行“肺移植”。同時，遺留了腎臟損害的問題，對此還間斷做過透析治療。至於“面容變黑”，中共認為是由於進行持續抗生素治療時導致色素沉積造成的。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04180313/9-1.png)
+感染上中共病毒對於一個能夠接受ECMO治療的醫生來說，仍然傷害巨大，最終也去世了，可以看出，中共病毒對人體的傷害實在太大了。**問題是，有成千上萬的人連治療都沒有就不明不白的去世了，這還要歸咎於中共對疫情真相的掩蓋。**
+
+悲劇的是，中共卻把這種悲劇描述成一種偉大的奉獻。
+
+**6****月****1****日，一名女嬰出生，沒有爸爸。**
+
+2月20日，她的爸爸，也就是參加抗疫的武漢市江夏區第一人民醫院的彭銀華醫生去世了。
+
+3月，中共追授其為先進個人。
+
+4月，中共定義其為首批烈士。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04180349/10-1.png)
+
+**【點評：中共製造了災難，犧牲了醫生，單方面定義烈士，烈士意味著為黨犧牲。“孩子，你的爸爸是一個英雄”似乎就能夠讓孩子健康成長，可真正的有哪位爸爸希望成為這樣的“英雄”，哪位孩子願意有這樣的“英雄”爸爸呢？】**
+
+（文章内容仅代表作者观点）
 
 0
