@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院紀念天安門事件三十一周年聲明（中英文對照）
-`2020-06-04 08:58 GM31` [轉載自GNews](https://gnews.org/zh-hant/222529/)
+## 美國兩黨兩院共同聲明：關於天安門大屠殺
+`2020-06-04 13:11 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/222721/)
 
-### **31st Anniversary of  Tiananmen Square**
+*消息來源：cecc.gov, 2020年6月3日*
 
-### **天安門事件三十一周年**
+*翻譯／引言：ＴＣＣ*
 
-PRESS STATEMENT
+（引言）這篇由兩黨和兩院的共同聲明，在這個非凡的日子里意義更加得重大。信中承認天安門大屠殺是用血淚寫出的一頁無法抹去的歷史。中共國應該公開承認並研究這段人們為追求自由與權利而犧牲的事件。希望真相早日到來，還給天安門母親們一個公道，也希望大陸神州能恢復自由民主，不再需要用生命來換取自由。
 
-新聞聲明
+#  
 
-MORGAN ORTAGUS, DEPARTMENT SPOKESPERSON
+# **關於暴力鎮壓天安門抗議活動31週年的聲明**
 
-國務院發言人MORGAN ORTAGUS
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04121129/64a96231-527c-41c9-ab2a-256860deb28b_cx0_cy5_cw0_w408_r1_s.jpg)
 
-JUNE 3, 2020
+（華盛頓）-兩黨和兩院的中共國國會執行委員會主席詹姆斯·麥戈文（-馬薩諸塞州民主黨眾議員）和副主席馬可·魯比奧（佛羅里達州共和黨參議員）發表了以下聲明紀念天安門抗議活動31週年及其暴力鎮壓。
 
-2020年6月3日
+「在這個日子里，我們記得學生，工人和其他人的勇氣和犧牲，他們在北京街頭和其他400多個城市中進行和平抗議，呼籲民主，人權和制止腐敗。可悲的是，中國共產黨在天安門廣場通過使用武力驅散了這些和平示威者，粉碎了他們對權利和改革的和平要求。直到今天，對所有抗議活動的紀念和討論以及對他們的暴力鎮壓都受到審查。受害者，包括勇敢的天安門（犧牲者）母親們，他們仍在冒著巨大的個人風險尋求真理和正義。
 
-Today we honor the brave Chinese people whose peaceful calls for democracy, human rights, and a corruption-free society came to a violent end when the Chinese Communist Party (CCP) sent the People’s Liberation Army into Tiananmen Square on June 4, 1989, armed with tanks and guns. While the Tiananmen protests inspired the oppressed in the Soviet Union and Eastern Europe to demand and achieve democratic change, the Chinese communist government survived with oppressive control of information and sheer brutality.
+我們呼籲中共國政府對被殺害和失蹤的人進行全面的公開計數，並允許就1989年6月4日前後發生的事件進行公開討論和研究。
 
-今天，我們向英勇的中國人民表示敬意，他們對民主、人權和沒有腐敗的社會發出了和平呼求。但在1989年6月4日，當中國共產黨派遣武裝了坦克和機槍的人民解放軍進入天安門廣場那一刻，這場和平的呼籲被殘暴地結束了；然而，天安門抗議活動激發了蘇聯和東歐的被壓迫者，他們要求並實現了民主變革，可中國共產黨政府卻通過實施資訊壓制和暴行而苟活了下來。
+在流血事件的三十一年後，中國人民為行使其基本自由而進行的努力常常繼續遭到殘酷的鎮壓。我們聲援所有良心犯，並呼籲無條件釋放他們。我們與藏族和維吾爾族站在一起，他們的宗教和文化被系統化地扼殺。我們與香港人民站在一起，在那裡，有系統地取消了對自由和自治的承諾。我們與追求正義的中國律師，尋求不受限制地進行禮拜的宗教團體，獨立工會和民間社會的組織者，以及僅僅尋求表達自己觀點的人們站在一起，這些人遭到過很多騷擾，懲罰，監禁，甚至遭受酷刑。
 
-Thirty-one years later, the total number of missing or dead Tiananmen protesters is still unknown. The United States continues to applaud their aspirations, and the American people stand with the families still grieving their lost loved ones, including the courageous Tiananmen Mothers who have never stopped seeking accountability for their children’s deaths, despite great personal hardship and risk. We reiterate our call for a full, public accounting of those killed or missing.
+我們知道，天安門的精神在香港依然活躍，在過去的三十年中，數十萬人聚集在維多利亞公園舉行燭光晚會。今年，香港警察首次禁止這種和平紀念活動，這清楚地表明香港的基本自由和人權受到威脅。
 
-三十一年後，天安門示威者裡失蹤或死亡的總人數仍不為世人所知，而美國一直以來為他們的抱負而喝彩。美國人民同那些仍因失去親人而悲慟的人們站在一起，包括勇敢的“天安門母親”，儘管她們冒著巨大的個人困難和風險，但她們不懈地尋求其子女死難原因並追責。我們再次呼籲對被殺或失蹤人士的原因進行公開全面的追責。
+我們以天安門母親的話作為結尾，重申我們將始終銘記這一悲慘的週年紀念，並致力於這一天當中國和世界各地終於瞭解天安門世代的英勇遺產。
 
-We mourn the victims of June 4, 1989, and we stand with the people of China who continue to aspire to a government that protects human rights, fundamental freedoms, and basic human dignity.
+「大屠殺的事實已刻入歷史。沒有人可以抹去；無論力量多麼強大，都無法改變它；不管怎麼說，任何語言或詞句都能否認之。」
 
-我們对1989年6月4日的遇難者表示哀悼並與中國人民站在一起，他們一直渴望能擁有一個可保障人權、基本自由和起碼人格尊嚴的政府。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04085141/64-1.png)
 
-出處：[31st Anniversary of  Tiananmen Square](https://www.state.gov/31st-anniversary-of-tiananmen-square/)
+[原新聞鏈接](https://www.cecc.gov/media-center/press-releases/statement-on-the-31st-anniversary-of-the-violent-repression-of-the)
 
-*翻譯：【**Michelle**】校對：【**GM31**】*
+### **編輯 【喜馬拉雅戰鷹團】**
 
-*戰友之家玫瑰園小隊出品*
+
 
 0
