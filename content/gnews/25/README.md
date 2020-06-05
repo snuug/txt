@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】03/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-05 08:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/223355/)
+## 對華政策跨國議會聯盟
+`2020-06-05 08:31 GM31` [轉載自GNews](https://gnews.org/zh-hant/223369/)
 
-戰友之家圖文摘要組及小語種組
+“對華政策跨國議會聯盟”（Inter-Parliamentary Alliance）是一個跨黨派的國際立法團體，致力於改革民主國家如何對待中國的方式。
 
-[English\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)
+該團體會由全球議員組成並由一群共同主席所領導，而這些共同主席都是來自世界主要政黨的資深政治家。
 
-[French\_0603\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)
-
-[German\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)
-
-[Japanese\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)
-
-[Korean\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)
-
-[Russian\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)
-
-[Spanish\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)
+出處：[IPAC](https://www.ipac.global/)
 
 0
