@@ -1,79 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情肆虐后的经济民生问题，将会把中共伪政权带往地狱！
-`2020-06-05 01:33 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/223066/)
+## 【世界多語言圖文】03/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-05 08:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/223355/)
 
-*作者：泰勒·德登（Tyler Durden）*
+戰友之家圖文摘要組及小語種組
 
-*消息來源：zerohedge 《零對衝》*，2020年5月31日
+[English\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)
 
-*翻譯/簡評：leftgun*
+[French\_0603\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)
 
-*PR:*海闊天空
+[German\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)
 
-**簡評：**
+[Japanese\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)
 
-中共偽政權不顧一切，強推復工，除了冒疫情再爆發的危險外， 還會帶來很大的供求脫節和隨之而來的經濟民生風險和代價。當然，共產黨不會在乎人民死活，其目的是要保持其偽政權的穩定。郭文貴先生說過，引起共產黨覆亡的最後一步就是糧食飢荒-老百姓吃不上飯了，就會把它推翻。
+[Korean\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)
 
-很多中國老百姓被奴役慣了，只要有口飽飯吃，中產和生意人只要還能撈錢，他們就甘於被共產黨圈養起來，儘管失去自由、人權、和信仰，也不敢、不會起來反抗。
+[Russian\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)
 
-共產黨知道不復工，老百勝會撐不下去，會沒工作，會沒飯吃。企業主沒生意，沒錢賺的時候，偽政權就變的非常危險。但在貿易和投資都停頓的時候，他們只有寄望於內需。但正如作者所分析，內需市場如今不再，也存在各種風險和問題，比如通縮和失業等。李克強想用基礎建設投資促進復蘇，只會適得其反。
-
-疫情後將凸顯共產黨無能和邪惡的一面，加上隨之而來的經濟困難，將會喚醒更多老百姓， 加速推翻偽政權的步伐。
-
-## **隨著中國採購經理人指數令人失望，另一個重大問題出現了**
-
-昨夜，中國國家統計局報告稱，製造業採購經理人指數顯示製造業活動持續復蘇，儘管增速低於4月份和預期值（從50.8下降至50.6，預期為51.0）。該調查中的分類指數表明出口訂單分類指數仍然疲軟，就業進一步惡化。
-[!\[\](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/67fac1b8-6944-4631-b928-30bda4b8d3c2.jpg?asset_id=f0ad5e11-aa96-4674-9444-601b1b2f35bb&amp;img_etag=%22b48f1dfcd75d9d212af65981e4b3d814%22&amp;size=1024)](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/67fac1b8-6944-4631-b928-30bda4b8d3c2.jpg?asset_id=f0ad5e11-aa96-4674-9444-601b1b2f35bb&amp;img_etag=%22b48f1dfcd75d9d212af65981e4b3d814%22&amp;size=1024)
-值得注意的是，製造業就業分類指數從50.2降至49.4，暗示勞動力市場持續惡化。另一方面，庫存指標顯示去庫存趨勢，原材料庫存從48.2下降至47.3，製成品庫存分類指數從4月份的49.3下降至47.3。
-
-然而，即使中國的工廠正逐漸復工，問題是，高管們現在擔心這反彈可能會因國內和尤其是國外的需求疲軟而步履蹣跚。正如我們以前提出的警告，中共國不惜一切代價的復工終將適得其反。
-
-總部位於浙江平湖，為美國零售商出售玩具踏板車的米家兒童用品公司的銷售經理賈斯汀·於（Justin Yu）是看到他們的訂單從冠狀病毒疫情封鎖後的低潮中改善起來的經理人之一，但定單量仍遠低於正常水平。
-
-彭博社援引於的話說：「隨著正常的旺季來臨，本月我們將看到更多訂單。」 「但是我們的訂單仍然比去年低40-50％。」工廠正以70％到80％的產能運行，而於只能根據訂單量安排生產，以避免庫存積壓。
-
-中共國正在恢復的生產與仍處於休眠狀態的需求脫節，這在庫存增加的數據中反應出來，但這再次與官方的PMI數據顯示庫存下降的情況互相矛盾。除了中共國的虛假數據問題外，令人憂慮的是，持續的生產過剩將使中國的工廠繼續削減價格，加劇全球通縮的不利因素並加劇貿易緊張局勢，直到他們最終削減產量和更多的就業崗位。
-
-法國興業銀行（Societe Generale SA）中國經濟師姚偉表示：「供應正常化已經高於需求復蘇的速度。」 「換句話說，到目前為止的復蘇是通貨緊縮的復蘇。」
-
-也就是說，它根本不是復蘇，而經濟仍處於封閉狀態的美國也沒幫上忙。
-[!\[\](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/0a79dd49-acad-48e9-b28a-43ff7f2e87ce.jpg?asset_id=d2baeecf-9363-42a0-9a94-874f5b63eed0&amp;img_etag=%22725c5ab2dcde8c47efd17bcec650a96c%22&amp;size=1024)](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/0a79dd49-acad-48e9-b28a-43ff7f2e87ce.jpg?asset_id=d2baeecf-9363-42a0-9a94-874f5b63eed0&amp;img_etag=%22725c5ab2dcde8c47efd17bcec650a96c%22&amp;size=1024)
-因此，據彭博社報道，鑒於出口前景不佳，福建海峽紡織技術有限公司等製造商正在改變其業務模式以瞄准國內市場。該公司已往將其產品的60％銷往了歐洲和美國，但管狀病毒疫情後這些銷售已消失殆盡。現在，該公司的副總裁劉棟正在國內尋找機會。
-
-他說：「我們的公司高管已經開始拜訪當地市場，以使更多的潛在客戶瞭解我們。」 「自5月26日以來，我們每天24小時都處於滿負荷生產狀態。所有庫存已售罄，我們正加緊生產商品。」
-
-可是，以國內為重點的戰略也有許多弊端：儘管隨著新增管狀病毒病例有所舒緩，中國的消費者在很大程度上也可以自由地恢復正常生活，但他們也沒有像過去那樣花錢（幾乎就像他們也沒有相信北京所說的一切都已恢復正常的莊嚴誓言）：4月份零售額下滑7.5％，超過預期的6％下降。餐飲收入在三月份暴跌46.8％之後，比去年同期下降了31.1％。
-
-彭博經濟分析師Chang Shu說：「儘管需求狀況在一定程度上有所改善，但仍需要很長的時間才能恢復到病毒危機之前的水平。投資正在回升，國內消費的改善以及外部需求的狀況比以前要好」。當然，問題是（復蘇需要）多少時間。
-
-在江蘇省鎮江市，一家LED汽車照明工廠的出口經理Melissa Shu說，儘管訂單在穩步增長，但她的客戶沒有緊迫感，前景仍然不確定。舒說：「我們只是在緩慢地生產商品。」 「我們擔心未來幾個月。」
-
-正如彭博社所推測的那樣，一些生產者可能希望現實中的薩伊定律得以實現，該經濟理論認為，只要價格和工資具有彈性，最終供給將產生自己的需求，儘管在中國，每個數據點都被操縱和偽造，沒有人真正知道當前的經濟狀況。各種實時指標繼續給人顯示不一致的情況。
-[!\[\](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/09230d1c-6f86-49d4-99cf-188daed442ee.jpg?asset_id=5ca8081a-fcb9-4dba-913e-a1885f8a55f9&amp;img_etag=%22887af039af47bdb9543ce4a87825f829%22&amp;size=3295)](https://spark.adobe.com/page/DLh2cZy3qbw5q/images/09230d1c-6f86-49d4-99cf-188daed442ee.jpg?asset_id=5ca8081a-fcb9-4dba-913e-a1885f8a55f9&amp;img_etag=%22887af039af47bdb9543ce4a87825f829%22&amp;size=1024)
-瑞銀（UBS）提出的另一種情景是，行業會自我糾正。該銀行首席中國經濟師王濤指出，即使需求疲弱，在冠狀病毒疫情封鎖期間，鋼鐵生產依然強勁。庫存增加意味著即使需求回升，鋼鐵產量也不會有太多回升。一旦生產者知道訂單下降，他們就會調整產量。
-
-她說：「我認為供應不會長期超過需求，一旦庫存增加或生產商知道訂單下降，產量也將下降。」
-
-如果失業率繼續上升，這可能會引發非常混亂的反饋循環。李克強總理在週四的新聞發佈會上強調，創造就業機會是政府的一項重要優先事項。創造就業機會的緊迫性可能意味著，國有大企業在重工業中動蕩的可能性更低，縱然這些重工業有促成生產過剩的往績。這也意味著可能還會出現更多的幽靈城市。
-
-數據點已經表明瞭這種脫節，例如，發電廠的煤炭消耗量增加，鋼廠的高爐開工率上升，與此同時，房地產和汽車銷售指標的增長速度卻較慢。花旗集團（Citigroup）的經濟師認為，這種組合將拖累中國未來幾個月的經濟增長。
-
-中國工業行業的問題在於，它確實需要強大的本地和全球需求。如果兩者都很薄弱，只有政府在「注入」支持，那將是一個可怕的前景。但是，如果本地需求恢復而全球需求沒有恢復，那麼仍然存在問題。
-
-麥格理大宗商品和全球市場亞洲戰略負責人維克多·史維茨（Viktor Shvets）總結了中國的「大問題」：「歸根結底，中國經濟是由需求驅動的，但目前完全沒有需求。」
-
-製造商原本專注於出口市場的生產能力被重新調整為國內市場生產的情景仍然會導致生產過剩。研究公司*TS Lombard*的中國首席經濟學家莊壯認為，供求不匹配最終將加劇通縮壓力，並給經濟增長帶來新的阻力。
-
-目前，中國的工廠主希望這不會發生，但他們的樂觀情緒正在迅速減弱。
-
-生產錘子和斧頭之類的工具的山東盤古實業有限公司的出口經理高斯（Grace Gao）說，它們有大約60％的產品銷往歐洲，而訂單隨著她的客戶重新運作而重現。但是，即使情況有所好轉，高仍不看為全面恢復。她說：「我們的客戶面臨前所未有的問題。很難估計需要多長時時我們才能重新站起來。」
-
-[原文鏈接](https://www.web.de/)
-
-#### 編輯：【喜馬拉雅戰鷹團】
-
-
+[Spanish\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)
 
 0

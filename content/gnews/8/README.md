@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】03/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-05 08:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/223355/)
+## 【慶祝新中國聯邦成立視頻系列三】郭先生精彩演說回顧
+`2020-06-05 10:54 GM77` [轉載自GNews](https://gnews.org/zh-hant/223558/)
 
-戰友之家圖文摘要組及小語種組
+撰稿：GM64
 
-[English\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080210/English_0603_CCP_Virus_Updates.pdf)
 
-[French\_0603\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080214/French_0603_CCP_Virus_Updates_-.pdf)
 
-[German\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080219/German_603_CCP_Virus_Updates.pdf)
-
-[Japanese\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080223/Japanese_0603_CCP_Virus_Updates.pdf)
-
-[Korean\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080229/Korean_0603_CCP_Virus_Updates.pdf)
-
-[Russian\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080234/Russian_0603_CCP_Virus_Updates.pdf)
-
-[Spanish\_0603\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05080239/Spanish_0603_CCP_Virus_Updates.pdf)
+•爆料革命三年來，郭文貴先生不斷的向全世界人民揭露中共假、黑、騙，不斷殘害善良勤勞的中國人。讓中共玩了幾十年的套路都萬倍、億倍的報應在中共自己身上。在郭文貴先生聯合國際友人的一次一次行動中，中共徹底完了。在滅掉中共的過程中少不了流血犧牲，滅共的起點在香港，冠狀病毒的起點也是在香港，一切的起點都是在香港。我們永遠不要忘記香港，不斷的向世界傳播香港的真相。
+•我們爆料革命為真不破，為中國人爭取一人一票的權利。
 
 0

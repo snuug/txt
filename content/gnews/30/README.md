@@ -1,37 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國白宮新聞秘書發表紀念天安門大屠殺三十一周年的聲明（中英文對照）
-`2020-06-04 20:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/222913/)
+## 迫害港人的國家安全法是推進中共滅亡的又一按鈕
+`2020-06-05 03:58 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/223206/)
 
-**Statement from the Press Secretary Commemorating**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05035059/Picture-1-9.png)
+美國共和黨議員霍利（Joseph Hawley）週四發表一封“公開信”，致信與中共國有業務往來的美國公司，呼籲他們公開譴責中共最近單方面頒布的、凌駕於香港法律之上的《國家安全法》。
 
-**the 31st Anniversary of the Tiananmen Square Massacre**
+在香港人舉行紀念天安門廣場屠殺事件31週年抗議之時，霍利警告“香港的命運懸而未決”，他說：“上個月中共國人大單方面通過的新法律意味著香港民主的死亡。”上個月，國務卿邁克彭培奧（Mike Pompeo）向國會表示，新法律意味著香港實際上不再是“自治”的體制了。
 
-FOREIGN POLICY
+霍利的信是在英國匯豐銀行支持中共的新安全措施之後發表的，這位密蘇里州共和黨人一直直言不諱，去年，他曾在港人支持民主的抗議期間訪問了該島。他暗指這家公司無原則地“尊重並支持任何穩定香港社會秩序的法律”，而不管這項法律是否損害公平與正義。
 
-Issued on: June 4, 2020
+霍利呼籲美國公司利用其市場力量來反制中共國的新立法，如果此法獲得了通過，建議與中共國有業務往來的美國企業退出中國市場。 “中共可能不在乎自由、民主或其他我們作為美國人長期為之奮鬥的任何普世價值，但這與您有關。”霍利解釋說：“中共知道他們未來的經濟命運仍與貴公司參與其市場有關。如果他們知道您可以鑑於對香港的鎮壓而撤出市場，那他們可能還會有所忌憚，這座城市興許還能瞥到一線殘存的自由之光。這，就是您所擁有的力量！ ”
 
-**美國白宮新聞秘書紀念天安門大屠殺三十一周年的聲明**
+他呼籲：“您首先是一家美國公司，您對自己的國家乃至世界上所有的自由國家負有責任——為正確的事情發聲，”霍利寫道：“您有義務將原則置於利益之上，以確保您的行為不會破壞他人的自由。香港——這是反對中共帝國威權主義的最前線。”
 
-外交政策
+評：
 
-頒布日期：2020年6月4日
+在利益和金錢之上還有良知與信仰。中當權者肆無忌憚的踐踏文明，迫害自由個體，這樣的製度下永遠不會有人類文明之信仰。中共社會主義體制絞肉機是時候該在人類文明進程中滅亡了。 “國家安全法”是進一步推進中共滅亡的又一按鈕，制裁香港中共官員及其經濟利益，全球滅共，勢在必得！
 
-The American people reflect on the courage and optimism of the hundreds of thousands of Chinese citizens who gathered peacefully 31 years ago in Beijing and throughout China to protest widespread official corruption and demand a greater say in the governance of their country. The Chinese Communist Party’s slaughter of unarmed Chinese civilians was a tragedy that will not be forgotten. The United States calls on China to honor the memory of those who lost their lives and to provide a full accounting of those who were killed, detained, or remain missing in connection with the events surrounding the Tiananmen Square massacre on June 4, 1989.
+[原文鏈接](https://www.nationalreview.com/news/hawley-calls-on-u-s-companies-with-chinese-interests-to-condemn-ccps-actions-in-hong-kong/)
 
-三十一年前，數十萬中國公民在北京以及整個中國和平集會，以抗議廣泛的官場腐敗，並要求在在國家的治理中擁有更大的發言權，美國人民敬佩他們的勇氣和樂觀精神。中國共產黨對手無寸鐵的中國平民的屠殺，是一個永遠不會被遺忘的悲劇事件。美國呼籲中國政府紀念並全面記錄那些在1989年6月4日天安門大屠殺及相關事件中被殺害、拘留或失踪的人員。
-
-On this day of remembrance, the people of the United States call upon the Chinese government to fulfill its commitments under the Universal Declaration of Human Rights and the Sino-British Joint Declaration, to uphold the rights and freedoms guaranteed to all Chinese citizens under China’s constitution , and to end the systematic persecution of millions of ethnic and religious minorities. The American people stand together with all Chinese citizens in their pursuit of fundamental rights, including the right to accountable and representative governance and freedom of speech, assembly, and religious belief.
-
-值此六四紀念日之際，美國人民呼籲中國政府履行《世界人權宣言》和《中英聯合宣言》中的承諾，維護中國憲法賦予所有中國公民的權利和自由，並結束對數百萬少數民族和宗教少數群體的系統性迫害。美國人民支持所有中國公民追求他們的基本權利，包括有權利要求負責任的和代表人民的政府治理模式以及言論、集會和宗教信仰自由。
-
-*翻譯：【新生】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
-
-[閱讀](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[原](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)[文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-commemorating-31st-anniversary-tiananmen-square-massacre/)
-
-相關新聞：[美國國務院紀念天安門事件三十一周年聲明（中英文對照）](https://gnews.org/zh-hant/222529/)
+翻譯報導：Hakunamatata
 
 0
