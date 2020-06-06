@@ -1,15 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## SpaceX公司再次發射了60顆Starlink衛星
-`2020-06-06 06:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224490/)
+## 2020年6月5日CCP冠狀病毒大流行第133集
+`2020-06-06 08:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/224584/)
 
-美國東部夏令時間（EDT）6月3日（星期三）下午9:25，即世界標準時間（UTC）6月4日1:25，[SpaceX](https://www.youtube.com/watch?v=y4xBFHjkUvw&amp;t=1297s)第八次發射Starlink衛星。 獵鷹9號從卡納維拉爾角空軍基地的40號航天發射場（SLC-40）起飛，成功部署了60顆Starlink衛星。
-
-*翻譯&總結：【OnePunchD】校對&字幕【豆小豆】*
-
-战友*之家玫瑰园小队出品*
-
-[SpaceX直播視頻鏈接](https://www.youtube.com/watch?v=y4xBFHjkUvw&amp;t=1297s)
+中共引導全民擺地攤，解決經濟崩潰；中共爲打擊爆料革命控制WHO，找人寫的文章如今撤回；中共外交部的流氓嘴臉；中共制造台海事端，安排漁民碰瓷…
 
 0
