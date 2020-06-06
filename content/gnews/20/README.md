@@ -1,21 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】04/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-05 23:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/224081/)
+## 台灣與英國加強合作，支持新冠病毒疫苗研發，支持香港人民的民主訴求
+`2020-06-06 01:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/224236/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06011734/Picture-1-12.png)
+據台灣英文新聞網最近報導，台灣總統蔡英文和副總統賴清德6月5日在台北分別會見英國駐台代表唐凱琳(Catherine Nettleton)，重申進一步促進兩國之間的雙邊關係，在新冠病毒疫苗研發領域交換了意見，台灣期待與英國在生物醫學領域開展更多合作。
 
-[English\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231541/English_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231541/English_0604_CCP_Virus_Updates.pdf)
+對於中國剛剛通過的有爭議的香港國安法，英國政府表達了嚴重關切，與美國、澳大利亞、和加拿大等國家發表聯合聲明，聲援香港人民的民主訴求。蔡英文說，台灣當局也會幫助香港的民主抗議者。
 
-[French\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231546/French_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231546/French_0604_CCP_Virus_Updates.pdf)
+蔡英文說：“民主，自由和人權是台灣和英國的共同價值觀。”她說：“我們期待與英國合作，以支持香港人民和支持基本價值觀。”
 
-[German\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231551/German_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231551/German_0604_CCP_Virus_Updates.pdf)
+賴清德在會面時指出，近年來兩國在技術和農業方面的合作進一步發展，高層官員之間的互訪已經更加頻繁，他期待著兩國關係的新篇章。
 
-[Japanese\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231556/Japanese0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231556/Japanese0604_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.taiwannews.com.tw/en/news/3945065)
 
-[Korean\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231601/Korean0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231601/Korean0604_CCP_Virus_Updates.pdf)
-
-[Spanish\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231612/Spanish0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231612/Spanish0604_CCP_Virus_Updates.pdf)
+翻譯報導：下里巴人
 
 0
