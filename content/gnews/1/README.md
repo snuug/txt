@@ -1,40 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年6月4日山東費縣梁邱一中食物中毒腹瀉的學生們怎麼樣了
-`2020-06-05 22:49 Diago` [轉載自GNews](https://gnews.org/zh-hant/224048/)
+## 郝海東、葉釗穎華人的脊梁
+`2020-06-06 01:56 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/224293/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05223057/6f1a84cd-ea85-4782-9bb3-6f8fed1854e2.jpg)
-作者：Diago
+*作者：玄天生*
 
-據[澎湃新聞](https://weibo.com/thepapernewsapp?refer_flag=1005055013_)[2020年6月5日 11:14](https://www.weibo.com/5044281310/J5cX1w4m6?from=page_1002065044281310_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博視頻](https://app.weibo.com/t/feed/19DcdW)
+*校閱：Julia Win*
 
-[#山東費縣多名學生疑似食物中毒#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E8%B4%B9%E5%8E%BF%E5%A4%9A%E5%90%8D%E5%AD%A6%E7%94%9F%E7%96%91%E4%BC%BC%E9%A3%9F%E7%89%A9%E4%B8%AD%E6%AF%92%23&amp;from=default)【費縣一中學多名學生疑食物中毒腹瀉，衛生院：醫院已擠不開】6月4日，山東臨沂。費縣梁邱鎮第一中學多名學生在校吃東西後腹瀉，疑似食物中毒。5日，梁邱中心衛生院稱，食物已送去檢驗，等待檢測結果，醫生已趕往學校進行治療。[°費縣一中學多名學生疑食物中毒腹瀉，衛生院：…](https://weibo.com/ttarticle/p/show?id=2309354512414283464849)[L澎湃新聞的微博視頻](https://video.weibo.com/show?fid=1034:4512414113136653)[收起全文d](void%280%29;)（下附視頻為微博原視頻）
+**引言：郝海東、葉釗穎夫婦二人於6月4日選擇了公開站出來，宣讀新中國聯邦建國宣言！在這中共末日瘋狂之際，朗讀宣言雖只需幾分鐘，但我們卻無法想象他們背後承受的壓力和付出的代價會是多麼巨大，也無法想象他們放棄了多少。面對著這難以想象的壓力，他們依然要站出來！選擇了放棄在中共的一切榮譽、富貴；選擇了無我，反抗中共；選擇了與郭文貴先生以及戰友們一起，建立新的、擁有自由、民主、法治、信仰的國家。中共是恐怖組織，它無視人權、摧毀人性；踐踏民主、沒有法治；撕毀合約、背信棄義；血洗香港、殺害藏民；輸出腐敗、危害全球！作為中國人，郝海東、葉釗穎是永遠不被壓垮的、華人的脊梁！戰友們，行動吧！**
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/01a078de-e3f7-4758-b545-8f8aea0671d3.png?asset_id=db0c34a8-a3ad-4046-b3c3-9e2be3e9dd06&amp;img_etag=%2247ba0162e0c116d1096d65a202e5d999%22&amp;size=2560)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/01a078de-e3f7-4758-b545-8f8aea0671d3.png?asset_id=db0c34a8-a3ad-4046-b3c3-9e2be3e9dd06&amp;img_etag=%2247ba0162e0c116d1096d65a202e5d999%22&amp;size=1024)
+立場新聞圖片
 
-醫院已經擠不開了，那就說明是大面積的出現中毒腹瀉，在新冠肺炎疫情肆虐的情況下，再出現這樣的大面積住院，對於每個學生和家長來說，這絕對是災難性事件了。
+昨天2020年6月4日，不僅是紀念當年89·64的天安門慘案、一個合法的、被世界廣泛接受的新中國聯邦建國的日子，更是向世界昭示：中共是奴役14億華夏子孫的偽政權，是一個非法政府！這不單是不忘記當年那些為追求民主、自由、法治而犧牲的先驅，更是建立新中國聯邦的歷史見證，開啓了華夏大地新的一頁。
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/4859cebc-af15-4cf4-98d0-0260044abe4d.jpg?asset_id=ce250f4f-3a83-4862-bfe8-143b65fb44d4&amp;img_etag=%2200bd0a835a948f1fc6dbfa57ef7030fa%22&amp;size=1024)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/4859cebc-af15-4cf4-98d0-0260044abe4d.jpg?asset_id=ce250f4f-3a83-4862-bfe8-143b65fb44d4&amp;img_etag=%2200bd0a835a948f1fc6dbfa57ef7030fa%22&amp;size=1024)
+6·4當天，郭文貴先生宣佈成立「新中國聯邦」的建國宣言英文版，由美國總統前顧問史蒂夫·班農先生(Steven Bannon)宣讀，而中文版則由前中國足球名將郝海東先生宣讀。陪在郝海東先生身邊、支持他的妻子、退役的前國家隊羽毛球運動員、世界冠軍葉釗穎一同見證。之後，中共就迫不及待的發動網絡封殺令，微博、百度等所有中共治下的網絡，有關6·4的被消失，郝海東的微博等被封殺……。中共可以把365天的6月4日這一天消失，可以把6·4這2個數字消失，可以把任何人的事跡消失，但消失不了人民的記憶、消失不了人的良心，消失不了一同站在民主、法治、自由、信仰的人類文明的決心！中共就是這樣一個邪惡的政府！這不單是中共共產極權與西方自由社會的對抗，更是邪惡與正義的較量。
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/202b6b48-fc35-4ac1-9610-f79c591829aa.jpg?asset_id=44036da8-7ea4-4492-8319-c43a05535a43&amp;img_etag=%229162308e45d0658866322397ad7c0b31%22&amp;size=1024)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/202b6b48-fc35-4ac1-9610-f79c591829aa.jpg?asset_id=44036da8-7ea4-4492-8319-c43a05535a43&amp;img_etag=%229162308e45d0658866322397ad7c0b31%22&amp;size=1024)
+這裡我們先來看郝海東、葉釗穎的事跡：
 
-從這一件事情在[澎湃新聞](https://weibo.com/thepapernewsapp?refer_flag=1005055013_)[2020年6月5日 11:14](https://www.weibo.com/5044281310/J5cX1w4m6?from=page_1002065044281310_profile&amp;wvr=6&amp;mod=weibotime)發佈了新浪微之後，關於這件事情的後續情況如何？
+**郝海東**
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/3c7a9b7f-f086-45af-be4e-464a9e5e9eab.jpg?asset_id=9d984548-08d9-41d1-bf4a-880a92e3a6a2&amp;img_etag=%22976fbd947d74fb71796729948318ccbb%22&amp;size=2560)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/3c7a9b7f-f086-45af-be4e-464a9e5e9eab.jpg?asset_id=9d984548-08d9-41d1-bf4a-880a92e3a6a2&amp;img_etag=%22976fbd947d74fb71796729948318ccbb%22&amp;size=1024)
+中國足球運動員，曾經効力於八一及大連實德兩家足球俱乐部，亦曾經多次入選中國國家男子足球隊，是活躍於1990年代至2000年代的中國著名職業足球選手。[維基參考](https://zh.wikipedia.org/zh-hk/%E9%83%9D%E6%B5%B7%E4%B8%9C)
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/e47c94b2-d8e8-43b4-be5e-36578316bfbc.png?asset_id=c19d1936-03f0-4437-9e5f-ccc07ce52728&amp;img_etag=%22f80cc401b89e65160b14efaa462c3a56%22&amp;size=4354)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/e47c94b2-d8e8-43b4-be5e-36578316bfbc.png?asset_id=c19d1936-03f0-4437-9e5f-ccc07ce52728&amp;img_etag=%22f80cc401b89e65160b14efaa462c3a56%22&amp;size=1024)
+**葉釗穎**
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/0e43dadb-471f-4169-be39-976530035a98.jpg?asset_id=a246f312-3875-4c84-9d02-bfd07b87298c&amp;img_etag=%229aee9008f40d3ef0b04734ff31adec12%22&amp;size=2926)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/0e43dadb-471f-4169-be39-976530035a98.jpg?asset_id=a246f312-3875-4c84-9d02-bfd07b87298c&amp;img_etag=%229aee9008f40d3ef0b04734ff31adec12%22&amp;size=1024)
+退役羽毛球運動員，長達十餘年國家隊生涯中，葉釗穎大部分時間是女單一號種子選手。1995、1996、1997、1998四年內8次位列國際羽聯女子單打最新世界排名第1位。其獨樹一幟的進攻性打法贏得了同時代運動員的尊重和球迷的青睞。[維基參考](https://zh.wikipedia.org/wiki/%E5%8F%B6%E9%92%8A%E9%A2%96)
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/0532dfe4-0eb5-4a76-91ed-5cb0361f97eb.png?asset_id=2f14ed5f-6c1f-4e29-8ade-42e769080691&amp;img_etag=%229b6018183acd04ba755d7991a17e1430%22&amp;size=6082)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/0532dfe4-0eb5-4a76-91ed-5cb0361f97eb.png?asset_id=2f14ed5f-6c1f-4e29-8ade-42e769080691&amp;img_etag=%229b6018183acd04ba755d7991a17e1430%22&amp;size=1024)
+請看以下路德對郝海東、葉釗穎在「新中國聯邦」的採訪！
 
-據[荔枝新聞](https://weibo.com/jstvjstv?refer_flag=1005055013_)[6月5日 14:08](https://www.weibo.com/1796087453/J5e5KnlGk?from=page_1002061796087453_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+郝海東、葉釗穎在中共國，可以說是名利都不缺的華人，是不會受到什麼迫害的人。但為什麼他們依然頂著巨大壓力，勇敢無畏的站到了爆料革命、建立聯邦新中國的前沿？因為他們不能容忍中共在不斷破壞體育的文明，他們也目睹了中共治下社會的黑暗……。中共國的體育圈，就是在中共治理下社會的縮影。也是人民如何被剝奪手中的權利和生存的縮影。當然，他們選擇了一條充滿荊棘、艱辛的道路，正如香港人正在浴血奮戰一樣，堅定、不屈、頑強地對抗中共。如今，他們不單要面臨中共的封殺，更要面對家人被邪惡中共控制與迫害。面對前球員的身份，他們要被切割，甚至被污名化。中共貫用的一切罪名相信會接踵而來，甚至被中共冠以不忠、不孝、賣國等，這都是他們所要面對的巨大精神壓力。當然在我眼中他們是真愛國、真戰友、真英雄！我們從來不會去愛黨、不愛中共這個殺人、邪惡、極權、獨裁的偽政權。
+[!\[\](https://spark.adobe.com/page/RWW2gOE6hxyje/images/5bf4bbf3-5516-401e-adac-211e1f5ae645.jpg?asset_id=13ab10e2-a43d-44e1-9085-280f96e14e6e&amp;img_etag=%2280de6b21cd2698492580ce9b1dad6b1b%22&amp;size=2560)](https://spark.adobe.com/page/RWW2gOE6hxyje/images/5bf4bbf3-5516-401e-adac-211e1f5ae645.jpg?asset_id=13ab10e2-a43d-44e1-9085-280f96e14e6e&amp;img_etag=%2280de6b21cd2698492580ce9b1dad6b1b%22&amp;size=1024)
+現在是時候了，戰友們行動吧！不能讓郝海東、葉釗穎-我們的戰友，獨自面對如此可怕的精神壓力，面對一個正在荼毒世界、一個破壞人類文明、一個殘害中華同胞、殺害香港人，甚至正在想武統台灣的共產邪惡、獨裁、極權、紅龍赤化的一個偽政權-中共。中共的末日已經來臨！在它末日瘋狂之際，我們更應堅持著不放棄、不拋棄、背靠背，兄弟爬山，齊上齊下，更要拉著戰友的手，不讓他們獨自面對我們共同的敵人！記着，戰友喜馬拉雅、手足煲底相見！
 
-【[#山東一中學多名學生在校用餐後腹瀉#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E4%B8%80%E4%B8%AD%E5%AD%A6%E5%A4%9A%E5%90%8D%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E7%94%A8%E9%A4%90%E5%90%8E%E8%85%B9%E6%B3%BB%23&amp;from=default) 疑似食物中毒】6月4日，山東臨沂費縣某中學的家長反映，自己的孩子在學校用餐後出現腹瀉頭暈發熱等症狀，疑似食物中毒。在費縣梁邱鎮衛生院就診的一名學生說，前一天下午在學校吃到有味的豆腐，還在饅頭裡吃出來一隻蚊子。有近百名同學出現集體腹瀉、發熱、噁心，輕微的打完針回家休息。5日，梁邱中心衛生院回應媒體稱，食物已送去檢驗，等待檢測結果。[LJSTV荔枝視頻的秒拍視頻](https://www.miaopai.com/show/xqJAIOsJuktn-o7vVwSQQ9872~t7klh523dR2Q__.htm)[收起全文d](void%280%29;)（下附視頻為微博原視頻）
+[明報新聞](https://news.mingpao.com/pns/%E8%A6%81%E8%81%9E/article/20200605/s00001/1591296615413/%E5%80%A1%E3%80%8C%E6%96%B0%E4%B8%AD%E5%9C%8B%E8%81%AF%E9%82%A6%E3%80%8D-%E5%89%8D%E5%9C%8B%E8%85%B3%E9%83%9D%E6%B5%B7%E6%9D%B1%E5%BE%AE%E5%8D%9A%E8%A2%AB%E5%B0%81)[立場新聞](https://www.thestandnews.com/international/%E4%B8%AD%E5%9C%8B%E9%80%80%E5%BD%B9%E8%B6%B3%E7%90%83%E5%90%8D%E5%B0%87%E9%83%9D%E6%B5%B7%E6%9D%B1-%E7%B6%B2%E4%B8%8A%E7%99%BC%E8%A8%80%E7%A8%B1-%E6%B6%88%E6%BB%85%E4%B8%AD%E5%85%B1-%E5%A4%AB%E5%A9%A6%E5%85%A9%E4%BA%BA%E9%81%AD%E7%B6%B2%E7%B5%A1%E5%B0%81%E6%AE%BA/)[蘋果日報](https://hk.appledaily.com/china/20200604/EC6DBSDV72X5V65LDEBGNW27LI/)[新唐人亞太台](https://www.ntdtv.com.tw/b5/20200605/video/272147.html)
 
-在各媒體紛紛報導和轉載後，臨沂宣傳終於粉墨登場了，據[臨沂宣傳](https://weibo.com/u/3215096700?refer_flag=1005055013_)[6月5日 19:13](https://weibo.com/3215096700/J5g5ntQ2E?from=page_1001063215096700_profile&amp;wvr=6&amp;mod=weibotime) 來自 [360安全流覽器](https://app.weibo.com/t/feed/1tqBja) 已編輯的新浪微博：
+文章內容僅代表作者個人觀點
 
-[#臨沂新聞#](https://s.weibo.com/weibo?q=%23%E4%B8%B4%E6%B2%82%E6%96%B0%E9%97%BB%23&amp;from=default) 【關於費縣梁邱一中部分學生出現腹瀉等症狀情況的通報】2020年6月4日，梁邱一中陸續有56名學生出現腹瀉、嘔吐等症狀，隨即被送醫治療，經初步治療症狀基本消失，部分學生陸續回家或返校。截至目前，尚有29名學生在醫院觀察治療，情況穩定。情況發生後，縣委、縣政府立即成立工作專班，組織教育、衛健、疾控、市場監管、公安和梁邱鎮開展治療、在校生健康情況摸排等工作。目前，縣疾控中心已對學生所吃飯菜及飲用水進行採樣檢測。待化驗結果出具後，將視情依法依規進行處理，結果向社會公佈。 （費縣融媒）[收起全文d](void%280%29;)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05223425/bfa27b7cly1gfhmkfh2gsj20eu08cq31.jpg)
-據[臨沂宣傳](https://weibo.com/u/3215096700)[2020年6月6日 07:20](https://weibo.com/3215096700/J5kQFgRs7?from=page_1001063215096700_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)發佈的新浪微博：
+嗚謝圖片來源，pixabay、立場新聞圖片、網路圖片。
 
-[#臨沂新聞#](https://s.weibo.com/weibo?q=%23%E4%B8%B4%E6%B2%82%E6%96%B0%E9%97%BB%23&amp;from=default) 【關於費縣梁邱一中部分學生出現腹瀉等症狀情況的續報】6月4日，費縣梁邱一中部分學生陸續出現腹瀉、嘔吐等症狀，隨即被送醫治療。截至6月5日16時48分，29名在醫院觀察治療學生，已有28名症狀基本消失，自願回家或返校；尚有1名學生住院觀察，目前情況穩定。（來源：費縣融媒）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05223421/WhatsApp-Image-2020-06-06-at-9.43.31-AM.jpeg)
-這個“權威發佈”在[澎湃新聞](https://weibo.com/thepapernewsapp?refer_flag=1005055013_)[2020年6月5日 11:14](https://www.weibo.com/5044281310/J5cX1w4m6?from=page_1002065044281310_profile&amp;wvr=6&amp;mod=weibotime)披露費縣梁邱一中學生擠滿梁邱中心衛生院的當時並沒有“權威發佈”，在事後進行了兩次“權威發佈”，在[臨沂宣傳](https://weibo.com/u/3215096700?refer_flag=1005055013_)[6月5日 19:13](https://weibo.com/3215096700/J5g5ntQ2E?from=page_1001063215096700_profile&amp;wvr=6&amp;mod=weibotime)關於此事的第一次“權威發佈”中提到“目前，縣疾控中心已對學生所吃飯菜及飲用水進行採樣檢測。待化驗結果出具後，將視情依法依規進行處理，結果向社會公佈。”；在[臨沂宣傳](https://weibo.com/u/3215096700)[2020年6月6日 07:20](https://weibo.com/3215096700/J5kQFgRs7?from=page_1001063215096700_profile&amp;wvr=6&amp;mod=weibotime)關於此事的第二次“權威發佈”中提到“6月4日，費縣梁邱一中部分學生陸續出現腹瀉、嘔吐等症狀，隨即被送醫治療。截至6月5日16時48分，29名在醫院觀察治療學生，已有28名症狀基本消失，自願回家或返校；尚有1名學生住院觀察，目前情況穩定。”
-
-我相信“權威發佈”的每一個字都是經過“權威”雕琢的，首先提到的是6月4日“部分學生陸續出現腹瀉、嘔吐等症狀”，這部分學生的數位是多少？我們不知道，但是我們知道收治這“部分學生”的梁邱中心衛生院都擠不開了；
-
-其次在臨沂宣傳的兩次“權威發佈”中，在6月5日19:13的發佈中他們不提“截至6月5日16時48分”的情況，在6月6日07:20分的發佈中他們才提“截至6月5日16時48分”的情況，這很耐人尋味；
-
-而“權威發佈”在6月6日07:20分的發佈提到的“29名在醫院觀察治療學生，已有28名症狀基本消失，自願回家或返校；尚有1名學生住院觀察，目前情況穩定。”，經強調的是“28名症狀基本消失，自願回家或返校”，這28名學生症狀是否基本消失，是不是經梁邱中心衛生院確認，我們不知道；這28名學生是否“自願”？我們不知道；對於“尚有1名學生住院觀察，目前情況穩定。” 我們看到了“目前情況穩定”，我們聞出了熟悉的味道，我們看到了熟悉的配方，這味道和配方就是“權威發佈”的味道和配方。 對於[臨沂宣傳](https://weibo.com/u/3215096700?refer_flag=1005055013_)[6月5日 19:13](https://weibo.com/3215096700/J5g5ntQ2E?from=page_1001063215096700_profile&amp;wvr=6&amp;mod=weibotime) 提到的“目前，縣疾控中心已對學生所吃飯菜及飲用水進行採樣檢測。待化驗結果出具後，將視情依法依規進行處理，結果向社會公佈。”，臨沂宣傳將視何情、依何法、依何規進行處理並於何時向社會公佈，我們也不知道！但我們知道這就是我們所熟悉的“權威發佈”的味道和配方！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05223518/338652676.jpg)
-（文章內容僅代表作者個人觀點）
+#### **編輯 【喜馬拉雅戰鷹團】**
 
 0
