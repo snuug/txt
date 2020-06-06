@@ -1,14 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國田納西州參議員瑪莎.布萊克本推特公開支持郝海東!
-`2020-06-06 04:01 GM15` [轉載自GNews](https://gnews.org/zh-hant/183695/)
+## 班農戰斗室的傑森·米勒受騁2020川普競選團隊
+`2020-06-06 05:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/224477/)
 
-美國田納西州參議員瑪莎.布萊克本的推特引用了華盛頓郵報關於郝海東報導,並表示:我同意，郝海東！“這個共產黨應該被趕出人類。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06033547/Picture-1-13.png)圖片來源：[Warroom.org](http://Warroom.org)
+據美國政治新聞網站Politico近日報導，川普總統的2020連任團隊聘請了前助手傑森·米勒（Jason Miller），再次擔任高級顧問一職。隨著競選活動走向危險的最後階段，這個有爭議的人物重新被召回白宮。
 
-> I agree, Hao Haidong! “This Communist Party should be kicked out of humanity.” [https://t.co/hzGfgkwA6Q](https://t.co/hzGfgkwA6Q)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2020](https://twitter.com/MarshaBlackburn/status/1269048973953765381?ref_src=twsrc%5Etfw)
+米勒曾擔任川普2016競選的高級顧問，之後因個人問題離職。川普總統稱他2016年競選活動的主力干將們為自己的忠實夥伴，並一直與他們保持著聯繫。與之前不同的是，這次，他將專注於整體戰略，以幫助競選與白宮之間的協調工作。兩名知情人士表示，米勒將為競選經理布拉德·帕斯卡爾（Brad Parscale）提供更多支持。
 
-GM15
+此外，川普首次總統競選的高級顧問比爾·斯蒂芬（Bill Stepien）最近被提升為競選副經理。川普的競選經理凱利安·康威（Kellyanne Conway）在他第一任總統任內一直擔任白宮顧問。另外兩名高級官員科里·萊萬多夫斯基（Corey Lewandowski）和大衛·博西（David Bossie）最近與川普總統會面，並對連任前景表示擔憂。另一位長期顧問賈斯汀·克拉克（Justin Clark）正在協助主導共和黨關於大選投票規則的法律鬥爭。
+
+米勒在一份聲明中說：“我每天都努力成為一個更好的丈夫，更好的父親和更好的人。對有機會再次為川普總統服務，我受寵若驚。”
+
+最近一系列的公開民意調查顯示，川普總統在關鍵戰場上落後於候選人喬·拜登，共和黨人也越來越擔心他在亞利桑那州和喬治亞州等傳統紅州的選情。米勒在此關鍵時刻強力回歸。幾週前，斯蒂芬剛剛被選拔為川普競選經理帕斯凱爾的副手。
+
+但據內情人士透露，臨近選舉階段擴充競選高層早在計劃之中。
+
+米勒在保守派政治體系中很有資歷，並曾為候選人提供諮詢服務，其中包括前肯塔基州州長馬特·貝文（Matt Bevin）和前堪薩斯州參議院候選人米爾頓·沃爾夫（ Milton Wolf）。在加入川普2016年競選活動之前，他是德州參議員泰德·克魯茲（Ted Cruz）在關鍵事務中的高級顧問。
+
+米勒曾是著名的共和黨諮詢公司Jamestown Associates的合夥人。該公司為川普2016年競選製作了廣告，並在他的連任競選中繼續發揮作用。
+
+米勒與川普總統的關係可以追溯到十年前。川普在考慮2012年參選時，曾與米勒商討過競選活動。米勒還曾在川普的私人律師和前紐約市市長魯迪·朱利安尼（Rudy Giuliani）的2008年總統大選中擔任高級職員。
+
+米勒被視為是川普總統直言不諱的忠實擁護者，並與前白宮首席戰略師史蒂芬·班農（Steve Bannon）一起主持播客*（注：[War Room 2020](https://warroom.org/)）*。
+
+[原文鏈接](https://www.politico.com/news/2020/06/05/trump-campaign-hires-jason-miller-303582)
+
+翻譯報導：匿名
 
 0
