@@ -1,57 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧將敦促全球證券交易所收緊對中共國企業的規定
-`2020-06-05 20:26 himalaya_hawk` [轉載自GNews](https://gnews.org/zh-hant/223792/)
+## 【世界多語言圖文】04/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-05 23:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/224081/)
 
-作者：*Humeyra Pamuk Jun 4, 2020 1:17PM EDT*
+戰友之家圖文摘要組及小語種組
 
-消息來源：*nasdaq*納斯達克
+[English\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231541/English_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231541/English_0604_CCP_Virus_Updates.pdf)
 
-翻譯*/*簡評：*johnwallis*
+[French\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231546/French_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231546/French_0604_CCP_Virus_Updates.pdf)
 
-*PR*：*Roberts*
+[German\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231551/German_0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231551/German_0604_CCP_Virus_Updates.pdf)
 
-**簡評**：
+[Japanese\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231556/Japanese0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231556/Japanese0604_CCP_Virus_Updates.pdf)
 
-本文報道了美國國務卿蓬佩奧警告美國投資者，反對中共國公司在美國上市撈錢時的 「欺詐性」會計行為，並建議納斯達克盡早收緊這類缺乏透明透公司的上市規則，這也表明華盛頓和北京之間關係一觸即發。
+[Korean\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231601/Korean0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231601/Korean0604_CCP_Virus_Updates.pdf)
 
-「真正的問題是缺乏透明度，沒有向美國投資者披露，」和「不應該允許任何國家對美國投資者撒謊，以製造不公平的優勢，」美國國務院副部長克拉奇表示政府內部正在推動讓美國投資者更加瞭解中共國不透明的會計行為。就連美國證監會負責人也警告投資者不要把錢投入到中共國公司，因為這些公司的信息披露存在問題。
-
-納斯達克作為世界上著名交易所之一，為世界的經濟活力提供了動力。但中共的公司利用不透明虛假的會計准則，成功地在美國上市，他們不但要割中國人民的「韭菜」，如今把觸角伸向了美國，還要割美國投資者的「韭菜」，為中共的經濟輸血。
-
-## **獨家-蓬佩奧將敦促全球證券交易所收緊對中共國企業的規則**
-
-華盛頓，6月4日（路透社）–美國國務卿蓬佩奧（Mike Pompeo）週四警告美國投資者，反對中共國公司的 「欺詐性」會計行為，並建議納斯達克最近盡快決定收緊此類公司的上市規則，這應該成為全球其他交易所的榜樣。
-
-他預計在週四晚些時候舉行的新聞發佈會上發表有關這一問題的講話，將由路透社審閱，這說明川普政府希望一些中共國公司在中國以外的交易所交易變得更加困難。
-
-[!\[\](https://spark.adobe.com/page/eaR8inlZkqlFL/images/f3577b24-255b-4489-92ef-632ef73aeb03.jpg?asset_id=7d0519c5-b2a9-4e76-9e98-5b8b14c7d255&amp;img_etag=%22d61b52cafddc608e382c24fcac646c2b%22&amp;size=2560)](https://spark.adobe.com/page/eaR8inlZkqlFL/images/f3577b24-255b-4489-92ef-632ef73aeb03.jpg?asset_id=7d0519c5-b2a9-4e76-9e98-5b8b14c7d255&amp;img_etag=%22d61b52cafddc608e382c24fcac646c2b%22&amp;size=1024)
-
-這也表明華盛頓和北京之間的關係一觸即發，世界上最大的兩個經濟體之間因貿易、冠狀病毒疫情的處理以及香港問題上的爭吵不斷升級。
-
-美國總統唐納德-川普（Donald Trump）週五表示，他的政府將開始取消美國對香港的特殊待遇，以懲罰中共國，稱北京實施新的國家安全法的舉動意味著香港不再需要美國的經濟特權。
-
-納斯達克（Nasdaq Inc NDAQ.O）上個月採取了行動，收緊上市規則，試圖遏制內部人士密切持有的、會計不透明的中共國公司首次公開發行的股票。
-
-2019年初在美國上市的中國連鎖咖啡店瑞幸咖啡（Luckin Coffee Inc LK.O），內部調查顯示其首席運營官和其他員工偽造銷售量後，收緊上市標準也隨之而來。
-
-「真正的問題是缺乏透明度，沒有向美國投資者披露，」美國國務院負責經濟增長、能源和環境的副部長基思·克拉奇（Keith Krach）週三告訴路透社。
-
-「不應該允許任何國家對美國投資者撒謊，以製造不公平的優勢，尤其還在美國市場上經營時，」克拉奇說，他補充道，政府內部正在推動讓美國投資者群體更加瞭解中共國不透明的會計行為。
-
-美國證券交易委員會（SEC）與中共國政府正在檢查於美國上市的中國公司的審計工作上，已經陷入了長達十年的鬥爭。監管機構的會計監督部門–上市公司會計監督委員會（PCAOB）表示，仍然無法獲得這些關鍵記錄。
-
-今年4月，美國證監會負責人傑伊-克萊頓(Jay Clayton)警告投資者不要把錢投入到中共國公司，因為這些公司的信息披露存在問題。
-
-一位美國高級官員表示，他希望美國證監會能夠審查2013年與中共國簽署的一份諒解備忘錄，該備忘錄允許中共國公司，如果在當地法律禁止分享信息的情況下，他們可以不分享信息。
-
-「在這個時候，可能應該對這一豁免條款進行審查，看看是否仍然合適，如果不合適就得取消，」他補充說，這個決定權取決於美國證監會。
-
-[原文鏈接](https://www.nasdaq.com/articles/exclusive-pompeo-to-urge-stock-exchanges-globally-to-tighten-rules-for-chinese-companies)
-
-#### [**編輯：【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/eaR8inlZkqlFL/)
-
-
+[Spanish\_0604\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231612/Spanish0604_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/05231612/Spanish0604_CCP_Virus_Updates.pdf)
 
 0
