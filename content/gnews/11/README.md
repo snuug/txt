@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郝海東葉釗穎夫婦宣讀 新中國聯邦宣言後遭中共封殺
-`2020-06-06 09:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/224624/)
+## 美國國務院發表《論中國共產黨的下作宣傳》
+`2020-06-06 15:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224781/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06092748/Picture-1-14.png)圖片來源：[https://www.ntdtv.com](https://www.ntdtv.com)
-據《每日郵報》報導中國足球巨星郝海東在公開譴責中共利用中共冠狀病毒發動生化戰並要求其結束“極端犯罪”的政權後，在中國互聯網上被連夜封殺。
+The Chinese Communist Party’s callous exploitation of the tragic death of George Floyd to justify its authoritarian denial of basic human dignity exposes its true colors yet again. As with dictatorships throughout history, no lie is too obscene, so long as it serves the Party’s lust for power. This laughable propaganda should not fool anyone.
 
-**郝海东公开称中共为恐怖组织**
+中國共產黨無情利用喬治·弗洛伊德（George Floyd）的死亡悲劇，證明了其專制主義對人類基本尊嚴的否認，再次暴露了其真實面目。與歷史上的獨裁政權一樣，只要是服務於黨權力慾望，謊言就不再猥瑣。這種可笑的宣傳愚弄不了任何人。
 
-他將中共稱為“恐怖組織”，並以“反人類暴行”統治中國。他敦促建立一個新的民主中國政府，以確保“人權，法治和宗教自由”。
+The contrast between the United States and the Chinese Communist Party (CCP) could not be more stark.
 
-YouTube視頻中郝海東先生將中國共產黨稱為“恐怖組織”，並控訴其以“極端反人類暴行”統治中國。他說：“中共由共產國際和一個推翻中國合法政府的恐怖組織資助，消滅中國共產黨是正義的需要”。 然後，他談到了中國一些最敏感的話題，包括敦促香港和西藏擁有真正的自治權，並呼籲結束政府腐敗。他還表達了對“新中國聯邦制”下的民主體制的希望。他要求建立新憲法，並建立以“一人一票”規則為基礎的三權分立政府。隨後他宣誓效忠“新中國聯邦制”。該視頻在中國受到封鎖。
+美國與中國共產黨（CCP）之間的對比再明顯不過了。
 
-**叶钊颖呼吁中国人不要再被中共践踏**
+In China, when a church burns, the attack was almost certainly directed by the CCP. In America, when a church burns, the arsonists are punished by the government, and it is the government that brings fire trucks, water, aid, and comfort to the faithful.
 
-郝海東的妻子葉钊穎女士在視頻中說：“我認為中國人民不應再被中國共產黨踐踏。應該把共產黨趕出人類社會。”葉釗穎女士，也是一位中國家喻戶曉的人物，曾獲得兩屆羽毛球世界冠軍。鑑於中國對異議人士的強硬立場，備受矚目的中國公民公開批評政府的情況極為罕見。在郝海東先生和葉釗穎女士公開批評中共後，在郝先生在微博上的賬戶被迅速刪除。知乎上有關他的所有條目也已刪除。
+在中國，當教堂被燒毀時，惡行幾乎肯定是由中共指揮的。在美國，當教堂被燒毀時，縱火犯受到政府的懲罰，正是政府將消防車，水，援助和安慰帶給了信徒們。
 
-**中共官媒封杀郝叶夫妇**
+In China, peaceful protesters from Hong Kong to Tiananmen Square are clubbed by armed militiamen for simply speaking out. Reporters writing of these indignities are sentenced to long terms in prison. In the United States, law enforcement – both state and federal – brings rogue officers to justice, welcomes peaceful protests while forcefully shutting down looting and violence, and exercises power pursuant to the Constitution to protect property and liberty for all. Our free press covers events wall to wall, for all the world to see.
 
-外交部發言人耿爽在接受新聞發布會中被問及“中國新聯邦”時說，“對於這些荒唐的言論，對於這場鬧劇，我沒有發表評論的興趣”。
+在中國，從香港到天安門廣場的和平示威者遭武裝民兵毒打，僅僅因為他們想要發聲。記錄這些惡行的記者被判處長期監禁。在美國，州和聯邦的執法機構將流氓官員繩之以法，歡迎和平抗議，同時強行制止搶劫和暴力活動，並根據《憲法》行使權力，保護所有人的財產和自由。我們的自由媒體新聞涵蓋各類事件，讓全世界都能看到。
 
-體育報紙《泰坦報》發表了一篇文章，譴責郝先生的“損害國家主權”，並發誓不再對他進行報導。體育論壇-虎撲（Hupu）發布了一項通知，禁止所有有關郝先生的討論。該通知也由於未知原因而消失了。
+In China, when doctors and journalists warn of the dangers of a new disease, the CCP silences and disappears them, and lies about death totals and the extent of the outbreak. In the United States, we value life and build transparent systems to treat, cure, and underwrite – more than any other nation – pandemic solutions for the globe.
 
-**郝海东的荣誉履历和一代中国足球代表**
+在中國，當醫生和新聞工作者對一種新疾病發出危險警告時，中共使其沈默並使其消失，並掩蓋死亡人數和疫情爆發程度。在美國，我們珍視生命並建立透明的系統為全球範圍大流行提供治療，治癒和承保解決方案，比任何其他國家都多。
 
-郝海東於1970年出生在東部城市青島，他10歲時就加入了中國軍隊，後來成為一名職業足球運動員。曾是中國國家隊的前鋒，還曾為軍方八一隊和國家冠軍大連實德隊效力。他於2005年短暫加入了英國謝菲爾德聯（Sheffield United）俱樂部。他從事這項運動已有十多年了，仍保持著國家得分紀錄，在100場中國比賽中打入41球，並且在中國聯賽歷史上進球最多的射手，進球96球。在2004年7月31日於北京對陣伊拉克的亞洲杯足球八分之一決賽中打進首個進球後，他被視為中國足球巨星。
+In China, when citizens hold opinions that diverge from CCP dogma, the Party imprisons them in re-education camps. And, when people – such as those in Hong Kong and Taiwan – with common roots in an awe-inspiring civilization that has endured for thousands of years embrace freedom, that freedom is crushed, and the people subordinated to Party dictates and demands. In the United States, in contrast, even amidst reckless rioting, we demonstrate our robust commitment to the rule of law, transparency, and unalienable human rights.
 
-在過去的幾周中，他對一個球隊因非法更改其車牌而解僱一名球員的決定提出質疑，並質疑官方足球協會關於不轉播中國隊世界杯熱身賽對陣當地俱樂部的決定。
+在中國，當公民持有與中共教條有分歧的觀點時，共產黨將他們囚禁在再教育集中營中。以及，當那些有著同根同源的令人敬畏的文明的人們（比如香港和台灣同胞），在忍受了數千年後擁抱自由時，自由被碾碎了，而服從於共產黨的人則可以支配和提出要求。相反，在美國，即使在魯莽暴亂中，我們依然表現出我們對法治，透明和不可被剝奪的人權的堅定承諾。
 
-[原文鏈接](https://www.dailymail.co.uk/news/article-8391687/Former-Chinese-football-superstar-Hao-Haidong-calls-end-ruling-Communist-Party.html)
+Beijing in recent days has showcased its continuing contempt for the truth and scorn for law. The CCP’s propaganda efforts – seeking to conflate the United States’ actions in the wake of the death of George Floyd with the CCP’s continued denial of basic human rights and freedom – should be seen for the fraud that they are.
 
-翻譯報導：明澈
+近日來，北京繼續蔑視事實真相，蔑視法律。中共的宣傳工作企圖將美國在喬治·弗洛伊德（George Floyd）死後行為與中共一如既往剝奪基本人權和自由混為一談——這應該被視為欺詐行為。
+
+During the best of times, the PRC ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
+
+在最好的時代，中共國殘酷地強施共產主義。在最艱巨的挑戰中，美國確保自由。
+
+閱讀原文：[On the Chinese Communist Party’s Obscene Propaganda](https://www.state.gov/on-the-chinese-communist-partys-obscene-propaganda/)
+
+*翻譯：【ddm】校對：【豆小豆】*
+
+*戰友之聲玫瑰園小隊出品*
 
 0

@@ -1,45 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院發表《論中國共產黨的下作宣傳》
-`2020-06-06 15:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224781/)
+## CCP發消費券（惠民券）真的惠民嗎？ 不發現金意欲何爲？
+`2020-06-06 21:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/225018/)
 
-The Chinese Communist Party’s callous exploitation of the tragic death of George Floyd to justify its authoritarian denial of basic human dignity exposes its true colors yet again. As with dictatorships throughout history, no lie is too obscene, so long as it serves the Party’s lust for power. This laughable propaganda should not fool anyone.
+**作者：桌子石**
 
-中國共產黨無情利用喬治·弗洛伊德（George Floyd）的死亡悲劇，證明了其專制主義對人類基本尊嚴的否認，再次暴露了其真實面目。與歷史上的獨裁政權一樣，只要是服務於黨權力慾望，謊言就不再猥瑣。這種可笑的宣傳愚弄不了任何人。
+當下，在疫情未解除、疫苗沒問世下，CCP各地政府爲保政治統治安全的經濟基礎（財源），紛紛出台“巨額”補貼政策啓動各種消費季活動，雷聲大雨點小的口惠實惡、名爲補貼實爲收割的刺激經濟把戲陸續在各地頻繁上演。
 
-The contrast between the United States and the Chinese Communist Party (CCP) could not be more stark.
+**一、大聲叫囂巨額消費紅包“補貼”的CCP城市有哪些：**
 
-美國與中國共產黨（CCP）之間的對比再明顯不過了。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204406/1-45.png)
 
-In China, when a church burns, the attack was almost certainly directed by the CCP. In America, when a church burns, the arsonists are punished by the government, and it is the government that brings fire trucks, water, aid, and comfort to the faithful.
+自3月開始，全國已超200城發放消費券，帝都北京宣傳最誇張，特意將122億數字寫全，乍一看紅包金額特別巨大，不搶不消費你會覺得肯定吃大虧。
 
-在中國，當教堂被燒毀時，惡行幾乎肯定是由中共指揮的。在美國，當教堂被燒毀時，縱火犯受到政府的懲罰，正是政府將消防車，水，援助和安慰帶給了信徒們。
+我們先詳細看看北京第一次補貼:
 
-In China, peaceful protesters from Hong Kong to Tiananmen Square are clubbed by armed militiamen for simply speaking out. Reporters writing of these indignities are sentenced to long terms in prison. In the United States, law enforcement – both state and federal – brings rogue officers to justice, welcomes peaceful protests while forcefully shutting down looting and violence, and exercises power pursuant to the Constitution to protect property and liberty for all. Our free press covers events wall to wall, for all the world to see.
+6月6日北京首次發放100萬張消費券，條件是滿2000才可用，每單補貼10%，最高每券補貼400元。就是說市民都買“愛瘋”手機，花費在4000元或者以上，才能享受400元頂置補貼。按所有搶到券的人都享受400元補貼，第一次發券北京政府才補4億元，相當于北京市每人補貼18.57元，而且不是補貼窮人，是誰買東西給誰補。你要想沾北京政府400元的光，要先買至少4000元的東西才行。假設所有能搶到消費券的人都獲得400元頂置補貼，那老百姓得總共花費40億元以上。
 
-在中國，從香港到天安門廣場的和平示威者遭武裝民兵毒打，僅僅因為他們想要發聲。記錄這些惡行的記者被判處長期監禁。在美國，州和聯邦的執法機構將流氓官員繩之以法，歡迎和平抗議，同時強行制止搶劫和暴力活動，並根據《憲法》行使權力，保護所有人的財產和自由。我們的自由媒體新聞涵蓋各類事件，讓全世界都能看到。
+看到這裏，好像有一點上當受騙的感覺，不是說好的“紅包”“惠民券”嗎？怎麽不對勁啊？不急，我們再看看外國怎樣救國民。
 
-In China, when doctors and journalists warn of the dangers of a new disease, the CCP silences and disappears them, and lies about death totals and the extent of the outbreak. In the United States, we value life and build transparent systems to treat, cure, and underwrite – more than any other nation – pandemic solutions for the globe.
+**二、國外怎樣救國民——發現金發食物**
 
-在中國，當醫生和新聞工作者對一種新疾病發出危險警告時，中共使其沈默並使其消失，並掩蓋死亡人數和疫情爆發程度。在美國，我們珍視生命並建立透明的系統為全球範圍大流行提供治療，治癒和承保解決方案，比任何其他國家都多。
+（CCP投毒全世界，人盡皆知，本文只談CCP消費券的實質）
 
-In China, when citizens hold opinions that diverge from CCP dogma, the Party imprisons them in re-education camps. And, when people – such as those in Hong Kong and Taiwan – with common roots in an awe-inspiring civilization that has endured for thousands of years embrace freedom, that freedom is crushed, and the people subordinated to Party dictates and demands. In the United States, in contrast, even amidst reckless rioting, we demonstrate our robust commitment to the rule of law, transparency, and unalienable human rights.
+疫情面前美國川普政府給每人每月1200元美金(小孩500美金)，直到疫情影響恢複後，還可以免費領到食物，讓人安心在家躲病毒。印度莫迪政府發錢發小麥，東南亞國家也在發錢救助國民……
 
-在中國，當公民持有與中共教條有分歧的觀點時，共產黨將他們囚禁在再教育集中營中。以及，當那些有著同根同源的令人敬畏的文明的人們（比如香港和台灣同胞），在忍受了數千年後擁抱自由時，自由被碾碎了，而服從於共產黨的人則可以支配和提出要求。相反，在美國，即使在魯莽暴亂中，我們依然表現出我們對法治，透明和不可被剝奪的人權的堅定承諾。
+爲什麽CCP口中整日欺壓百姓的“萬惡的資本主義”政府和CCP口中的窮國都發錢發食物救國民讓國民居家躲病毒，卻不發“消費券”“利民券”“惠民券”鼓勵出門花錢呢？難道發券就是新時代社會主義的優越性嗎？
 
-Beijing in recent days has showcased its continuing contempt for the truth and scorn for law. The CCP’s propaganda efforts – seeking to conflate the United States’ actions in the wake of the death of George Floyd with the CCP’s continued denial of basic human rights and freedom – should be seen for the fraud that they are.
+三、爲什麽CCP發消費券卻不發現金
 
-近日來，北京繼續蔑視事實真相，蔑視法律。中共的宣傳工作企圖將美國在喬治·弗洛伊德（George Floyd）死後行為與中共一如既往剝奪基本人權和自由混為一談——這應該被視為欺詐行為。
+要想弄明白CCP的發消費券的目的，得了解中共國的稅負情況（從中共國稅負看使用消費券的你沾光了嗎?）：
 
-During the best of times, the PRC ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
+（稅負：産品生産和消費過程中政府拿走的錢，不只是交的稅費，還有各種建設基金，禮金，招待，罰款，原料中含的稅費和交的員工保險等）
 
-在最好的時代，中共國殘酷地強施共產主義。在最艱巨的挑戰中，美國確保自由。
+中國商品價格中含有增值稅、消費稅、企業所得稅、資源稅、環境稅、教育費等各種稅費和各級政府各類基金等等名目繁多。在中國，每一件工業産品大約含有40%以上的稅費。各行業稅率有別，手機數碼類産品稅負普遍在50%以上，餐飲和生活用品也基本在30%以上，基本規律是生産鏈條越長，涉及行業越廣的産品，稅負越高。化妝品服裝首飾等愛美女士用品，件件都是殺豬刀，汽油白酒汽車手機等，樣樣都是抽血機。毫不誇張的說只要你買一件商品，基本上都會爲國家交納一半的稅費。如果用GDP來衡量，中共國每年老百姓負擔的稅費水平世界第一，約占GDP的45-50%。只是你不知道而已！
 
-閱讀原文：[On the Chinese Communist Party’s Obscene Propaganda](https://www.state.gov/on-the-chinese-communist-partys-obscene-propaganda/)
+這也是爲何國外商品價稅分開打印在發票上，國內只有一個價格（價和稅費在一起）的原因之一。普通老百姓很難弄明白。只要你想弄清真相，總會發現CCP在你探求真相的路上設了很多迷霧和路障。
 
-*翻譯：【ddm】校對：【豆小豆】*
+【請不要用商場即將過期的促銷商品價格含稅情況來反駁】
 
-*戰友之聲玫瑰園小隊出品*
+【娃哈哈老板宗慶後在2016年12月底接受浙江衛視經濟生活頻道專訪是說：“中國稅負確實太高了”，“亂七八糟的稅太多了，光我們就要交500多種費，今年（2016年）1到11月份，已經交了4000多萬了，這還算少的，有些國企還有其他的費。”隨後國家財政部和發改委有關負責人出來回應（也就是所謂政府“辟謠”）說沒有533項，是212項繳費：有21項政府性基金、22項行政事業性基金、1項國有資源有償使用收入、148項經營服務性收費和35項協會商會會費訂刊費等。而浙江省回應稱在浙江繳63項。這些大家可以上網搜查驗證】
+
+【爲三峽大壩建設設立的三峽工程建設基金到現在還仍然在你的每度電中收取】
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204505/2-22.png)
+
+由稅負可以看出你要想得到北京政府補貼的400元，要花銷4000元或更多，會被政府收割2000元以上的稅費；就算是稅負最低的餐飲與零售，你也會被收割商品總價的20%以上。自此你就明白了CCP的意圖，消費券不過是引誘你去花錢的胡蘿蔔和引誘你出窩（出門）的米粒！CCP設置的使用條件渠道和宣傳“拉動消費”“帶動消費”等詞就暴露了**它的真實目的，它不過就是要想法收稅維系政權統治而已！**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204853/3-18.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06205031/4-15.png)
+
+抛卻CCP有意投毒害人不講，在災難面前，百姓生活如此艱難，CCP不但不發錢救人民，反而用“紅包”“消費券”之名行收割人民之實，如同“舊城改造”“家電下鄉”“以舊換新”“充值送食用油”“商場促銷代金券”等套路一樣，只不過是CCP“空手套白狼”、“四兩撥千斤”、“借力打力牟利”或“制造災難利用災難收割韭菜”的騙人把戲，這是新時代特色社會主義的典型做法，是用電子化支付手段，利用人的貪欲，繼續收割！自1921年以來，它總是這樣打著最“偉光正”的名義，行燒殺搶掠騙之實，從未改變，它深谙此道，屢次上演，駕輕就熟，無恥至極！
+
+**國內戰友們千萬不要上當，在沒有疫苗問世之前，萬不可冒全家生命之險爲CCP送錢續命！在世界各國與CCP脫鈎、産能對外輸出遇阻之時，停止不必要的消費，換彙換黃金，就是滅共的子彈！**
+
+請珍惜並好好利用你手裏的滅共子彈——錢！
+
+附——CCP各類斂財騙術：
+
+“空手套白狼”：各類中共國保險金制度（CCP不拿一分錢，都是用人民的錢救人民）
+
+“四兩撥千斤”：消費券、各類政府投融資平台公司
+
+“借力打力牟利”：招商引進房地産公司拆城中村後政府再賣地給房地産公司牟利，各地政府拆遷房屋賣了地才會給你補地錢和房錢。
+
+“制造災難利用災難收割韭菜”：北川地震救災、救助吳花燕、紅十字會等。（這個就是文貴先生說得共産黨最高騙術——“多難興邦”術）
+
+（文章內容僅代表作者觀點）
 
 0
