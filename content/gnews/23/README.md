@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 老馬雲小馬雲，神馬都是浮雲！
-`2020-06-06 21:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/225063/)
+## 【世界多語言圖文】05/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-06 21:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/225120/)
 
-**作者：玉米地大姐**
+戰友之家圖文摘要組及小語種組
 
-五年前和馬雲撞臉的小馬雲一夜爆紅，進軍娛樂圈拍電影。這孩子本名叫範小勤，時年八歲，當年搜狐有篇文章寫道：
+[English\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)
 
-也會有人覺得，別這麽耽誤孩子的學業啦，放過他吧，畢竟馬雲的臉也不能保證他一輩子，但是小編覺得“小馬雲”的底細大家都是知道的，本身智力不是太高，真回去讀書不一定能混的比現在好，畢竟一旦過氣了你再想掙這份錢就難了。
+[French\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06210703/2-42.jpg)
+[German\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)
 
-如今的小馬雲怎麽樣了？今日頭條6月4日報道——5年前靠臉吃飯的小馬雲，熱度褪去後，曾經的全村希望成飯後談資。
+[Japanese\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)
 
-靠臉吃飯的範小勤已經擁有了優渥的生活條件，就這樣一天天長大了，本可以靠著外貌養家糊口的他，卻不想身體隨著年齡的增長，發生了巨大的變化。容貌在幾年的時間裏已經發生了根本性的轉變，此時的範小勤雖然還神似馬雲，但是已經很難從他身上看出馬雲的影子了。
+[Korean\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)
 
-多個和範小勤簽約的公司紛紛解雇了他，家鄉的人不像前幾年範小勤爆紅時那樣吹捧他了，從鄉親們口中傳出的更多是冷嘲熱諷的聲音。曾經全村的希望，成爲了家長裏短，茶余飯後的談資。
+[Russian\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)
 
-如今已經快五年了，範小勤的熱度早已經變得冰涼了，他現在已經回歸了農村，過著之前那樣貧寒的生活。不過馬雲倒是一直堅持著對他學業上的資助。曾經的夢已經灰飛煙滅了，我們不知道這個小男孩有沒有醒過來？
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06210748/3-21.jpg)
-
-當年範小勤家徒四壁，父母都是失去勞動能力的殘疾人，還有一位體弱多病、患有老年癡呆的老奶奶。全家靠政府低保救濟勉強過活，範小勤和兩個哥哥都沒有上學。
-
-據媒體報道，是範小勤的一位在外打工的同鄉回家，發現他長得像馬雲。于是將範小勤的照片發到了網上，範小勤走紅網絡，驚動了馬雲，微博寫道：“第一次看到這小子，以爲是自己小時候的照片，感覺自己在照鏡子一樣。”
-
-五年的時光，小馬雲從深谷躍上雲端，又從雲端跌下深谷，終點回到起點，不知道這孩子是否能承受如此打擊？
-
-盡管報道說馬雲持續資助學費，問題是經過大起大落的範小勤還能靜下心來上學？媒體也沒報道回村後的範小勤是否上學？我猜沒有。
-
-也許有讀者說，馬雲家財萬貫別說資助範小勤學費，就算包養範小勤一家老小不費吹灰之力。問題是這本是政府該做的事情，我們不能道德綁架馬雲，他沒有這個義務，能資助學費就不錯了，這和馬雲如何成爲盜國賊家族白手套、什麽人品沒有關系。
-
-五年前的馬雲如日中天被媒體吹捧成“神馬”，順便捧紅了小馬雲，今天的馬雲光環褪去成爲盜國賊的雞肋，小馬雲更是慘淡收場重歸于貧困。毫不誇張的說，這孩子已被“娛樂至死”了。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06210851/4-18.png)
-
-中共統治下，無論是馬雲這樣的富人還是範小勤那樣的窮人，兩者本質上都是共産黨的奴隸。只有像偉大的郝海東先生那般勇敢地站出來向共産黨說“不”，老馬雲小馬雲才能擺脫被奴役的命運，活出個人樣來。
-
-（文章內容僅代表作者觀點）
+[Spanish\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)
 
 0

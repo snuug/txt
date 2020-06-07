@@ -1,122 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5-6日 美國政要推文選譯
-`2020-06-06 19:00 GM65` [轉載自GNews](https://gnews.org/zh-hant/224944/)
+## CCP發消費券（惠民券）真的惠民嗎？ 不發現金意欲何爲？
+`2020-06-06 21:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/225018/)
 
-> British Prime Minister ‘No Choice’ But to Offer Citizenship to Almost 3 Million Hong Kong Citizens [https://t.co/CbPNsXxPOA](https://t.co/CbPNsXxPOA)
-> — Gregg Jarrett (@GreggJarrett) [June 5, 2020](https://twitter.com/GreggJarrett/status/1268891177811664896?ref_src=twsrc%5Etfw)
+**作者：桌子石**
 
-川普總統 轉推 Gregg Jarrett（福克斯新聞法律政治分析員）：英國首相“別無選擇”只能向近三百萬香港公民提供公民身份
+當下，在疫情未解除、疫苗沒問世下，CCP各地政府爲保政治統治安全的經濟基礎（財源），紛紛出台“巨額”補貼政策啓動各種消費季活動，雷聲大雨點小的口惠實惡、名爲補貼實爲收割的刺激經濟把戲陸續在各地頻繁上演。
 
-> It’s finally time. The playing field is about to be leveled..and China’s chicanery will be impaired. Memorandum on Protecting United States Investors from Significant Risks from Chinese Companies | The White House [#chinalies](https://twitter.com/hashtag/chinalies?src=hash&amp;ref_src=twsrc%5Etfw) [#ccp](https://twitter.com/hashtag/ccp?src=hash&amp;ref_src=twsrc%5Etfw) [#June4th](https://twitter.com/hashtag/June4th?src=hash&amp;ref_src=twsrc%5Etfw) [#LevelTheField](https://twitter.com/hashtag/LevelTheField?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Eft5JrJX9L](https://t.co/Eft5JrJX9L)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 5, 2020](https://twitter.com/Jkylebass/status/1268742512447041537?ref_src=twsrc%5Etfw)
+**一、大聲叫囂巨額消費紅包“補貼”的CCP城市有哪些：**
 
-卡爾·巴斯先生：終於等到了。比賽規則馬上就要變公平…中國的伎倆也要不管用了。《保護美國投資者免受中國公司重大風險影響備忘錄》|白宮
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204406/1-45.png)
 
-> China's All-time Leading Goal Scorer says: "The CCP Should Be Kicked Out of Humanity"⁦ [@XHNews](https://twitter.com/XHNews?ref_src=twsrc%5Etfw)⁩ ⁦[@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw)⁩ ⁦[@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing?ref_src=twsrc%5Etfw)⁩ ⁦[@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw)⁩ ⁦[@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)⁩ ⁦[@espn](https://twitter.com/espn?ref_src=twsrc%5Etfw)⁩ ⁦[@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw)⁩ ⁦[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw)⁩ [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yt5lh5jbcB](https://t.co/yt5lh5jbcB)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 6, 2020](https://twitter.com/Jkylebass/status/1269243095360692224?ref_src=twsrc%5Etfw)
+自3月開始，全國已超200城發放消費券，帝都北京宣傳最誇張，特意將122億數字寫全，乍一看紅包金額特別巨大，不搶不消費你會覺得肯定吃大虧。
 
-卡爾·巴斯先生：中國有史以來最優秀的足球得分手說：“中共應該被趕出人類。”（bitterwinter網站）
+我們先詳細看看北京第一次補貼:
 
-> I agree, Hao Haidong! “This Communist Party should be kicked out of humanity.” [https://t.co/hzGfgkwA6Q](https://t.co/hzGfgkwA6Q)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2020](https://twitter.com/MarshaBlackburn/status/1269048973953765381?ref_src=twsrc%5Etfw)
+6月6日北京首次發放100萬張消費券，條件是滿2000才可用，每單補貼10%，最高每券補貼400元。就是說市民都買“愛瘋”手機，花費在4000元或者以上，才能享受400元頂置補貼。按所有搶到券的人都享受400元補貼，第一次發券北京政府才補4億元，相當于北京市每人補貼18.57元，而且不是補貼窮人，是誰買東西給誰補。你要想沾北京政府400元的光，要先買至少4000元的東西才行。假設所有能搶到消費券的人都獲得400元頂置補貼，那老百姓得總共花費40億元以上。
 
-參議員 Marsha Blackburn：我贊同，郝海東！“中共應該被趕出人類。”
+看到這裏，好像有一點上當受騙的感覺，不是說好的“紅包”“惠民券”嗎？怎麽不對勁啊？不急，我們再看看外國怎樣救國民。
 
-> Courage is infectious! [#CCPkaput](https://twitter.com/hashtag/CCPkaput?src=hash&amp;ref_src=twsrc%5Etfw) [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Chinese soccer superstar calls for ouster of Communist Party, stunning nation [https://t.co/rWHeSQYjzJ](https://t.co/rWHeSQYjzJ)
-> — Jack Maxey (@JackMaxey1) [June 5, 2020](https://twitter.com/JackMaxey1/status/1268976478072590338?ref_src=twsrc%5Etfw)
+**二、國外怎樣救國民——發現金發食物**
 
-比爾·格茨先生 轉推 Jack Maxey：勇氣具有感染力！中國足球超級巨星呼籲驅逐共產黨，震驚國家。
+（CCP投毒全世界，人盡皆知，本文只談CCP消費券的實質）
 
-> 31 years after the massacre at Tiananmen Square, we call upon Beijing to grant its citizens the rights guaranteed under its own constitution and end the persecution of millions of ethnic and religious minorities.[https://t.co/xoYRfMHGgj](https://t.co/xoYRfMHGgj)
-> — NSC (@WHNSC) [June 5, 2020](https://twitter.com/WHNSC/status/1268908950046609408?ref_src=twsrc%5Etfw)
+疫情面前美國川普政府給每人每月1200元美金(小孩500美金)，直到疫情影響恢複後，還可以免費領到食物，讓人安心在家躲病毒。印度莫迪政府發錢發小麥，東南亞國家也在發錢救助國民……
 
-比爾·格茨先生 轉推 NSC：天安門大屠殺事件過了31年後，我們呼籲北京給予其公民由其本國憲法賦予的基本權利，並結束對數百萬少數民族和宗教群體的迫害。
+爲什麽CCP口中整日欺壓百姓的“萬惡的資本主義”政府和CCP口中的窮國都發錢發食物救國民讓國民居家躲病毒，卻不發“消費券”“利民券”“惠民券”鼓勵出門花錢呢？難道發券就是新時代社會主義的優越性嗎？
 
-> 🎥🔴【 [#美國思想領袖](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B%E6%80%9D%E6%83%B3%E9%A0%98%E8%A2%96?src=hash&amp;ref_src=twsrc%5Etfw) 】國家安全記者 比爾·戈茲：
-> 調查病毒起源與美中新冷戰！🦠為何了解病毒真正來源如此重要？🌍世界為何看不懂中共政權的真正性質？中共其實是比蘇聯更老練的對手！[#大紀元](https://twitter.com/hashtag/%E5%A4%A7%E7%B4%80%E5%85%83?src=hash&amp;ref_src=twsrc%5Etfw) [@JanJekielek](https://twitter.com/JanJekielek?ref_src=twsrc%5Etfw) [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
-> 
-> 觀看首播🌐 [https://t.co/cN4tg0i7En](https://t.co/cN4tg0i7En)
-> 歡迎訂閱💐 [https://t.co/8PwwuOmYXm](https://t.co/8PwwuOmYXm) [pic.twitter.com/QTjCg2rKiC](https://t.co/QTjCg2rKiC)
-> — 大纪元新闻网 (@dajiyuan) [June 6, 2020](https://twitter.com/dajiyuan/status/1269071510620250112?ref_src=twsrc%5Etfw)
+三、爲什麽CCP發消費券卻不發現金
 
-比爾·格茨先生：
+要想弄明白CCP的發消費券的目的，得了解中共國的稅負情況（從中共國稅負看使用消費券的你沾光了嗎?）：
 
-> Check out [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)'s ‘How China's Communist Party Made the World Sick’, the number three book on 'The Encounter Top Ten' for the truth about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Save an additional 10% with code ‘TOP10’ [https://t.co/bDHD7o27q5](https://t.co/bDHD7o27q5)
-> — Encounter Books (@EncounterBooks) [June 6, 2020](https://twitter.com/EncounterBooks/status/1269252953300447233?ref_src=twsrc%5Etfw)
+（稅負：産品生産和消費過程中政府拿走的錢，不只是交的稅費，還有各種建設基金，禮金，招待，罰款，原料中含的稅費和交的員工保險等）
 
-比爾·格茨先生 轉推 Encounter Books：比爾·格茨先生的著作《中共是如何讓世界病倒的》，關於冠狀病毒的真相，在“Encounter前十名”書單上排名第三。輸入“TOP10”另有10%優惠
+中國商品價格中含有增值稅、消費稅、企業所得稅、資源稅、環境稅、教育費等各種稅費和各級政府各類基金等等名目繁多。在中國，每一件工業産品大約含有40%以上的稅費。各行業稅率有別，手機數碼類産品稅負普遍在50%以上，餐飲和生活用品也基本在30%以上，基本規律是生産鏈條越長，涉及行業越廣的産品，稅負越高。化妝品服裝首飾等愛美女士用品，件件都是殺豬刀，汽油白酒汽車手機等，樣樣都是抽血機。毫不誇張的說只要你買一件商品，基本上都會爲國家交納一半的稅費。如果用GDP來衡量，中共國每年老百姓負擔的稅費水平世界第一，約占GDP的45-50%。只是你不知道而已！
 
-> Pompeo blasts “obscene” Chinese Communist propaganda targeting US riots [https://t.co/A9fG5NYaio](https://t.co/A9fG5NYaio)
-> — Bill Gertz (@BillGertz) [June 6, 2020](https://twitter.com/BillGertz/status/1269335022307344384?ref_src=twsrc%5Etfw)
+這也是爲何國外商品價稅分開打印在發票上，國內只有一個價格（價和稅費在一起）的原因之一。普通老百姓很難弄明白。只要你想弄清真相，總會發現CCP在你探求真相的路上設了很多迷霧和路障。
 
-比爾·格茨先生：蓬佩奧抨擊“齷齪”中共大外宣將美國暴動當作目標
+【請不要用商場即將過期的促銷商品價格含稅情況來反駁】
 
-> The Chinese Communist Party’s callous attempts to exploit George Floyd’s tragic death for its own political gain will fail. During the best of times, Beijing ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
-> — Secretary Pompeo (@SecPompeo) [June 6, 2020](https://twitter.com/SecPompeo/status/1269267220141670413?ref_src=twsrc%5Etfw)
+【娃哈哈老板宗慶後在2016年12月底接受浙江衛視經濟生活頻道專訪是說：“中國稅負確實太高了”，“亂七八糟的稅太多了，光我們就要交500多種費，今年（2016年）1到11月份，已經交了4000多萬了，這還算少的，有些國企還有其他的費。”隨後國家財政部和發改委有關負責人出來回應（也就是所謂政府“辟謠”）說沒有533項，是212項繳費：有21項政府性基金、22項行政事業性基金、1項國有資源有償使用收入、148項經營服務性收費和35項協會商會會費訂刊費等。而浙江省回應稱在浙江繳63項。這些大家可以上網搜查驗證】
 
-美國國務卿 蓬佩奧：中共試圖利用喬治·弗洛伊德（George Floyd）不幸去世為自己謀得政治利益的做法必將失敗。當處於最好的時代時，中共殘酷地推行共產主義。當面對最嚴峻的挑戰時，美國保護了自由。
+【爲三峽大壩建設設立的三峽工程建設基金到現在還仍然在你的每度電中收取】
 
-美國國務院官網：《評中國共產黨的齷齪大外宣》
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204505/2-22.png)
 
-> Retired soccer player Hao Haidong is speaking up to shine a light on the corruption & human rights abuses by Communist China. 
-> 
-> While the Chinese government has attempted to censor his message, it has been heard loud and clear. [https://t.co/CNzQpSfBHb](https://t.co/CNzQpSfBHb)
-> — Rick Scott (@SenRickScott) [June 6, 2020](https://twitter.com/SenRickScott/status/1269305273245749248?ref_src=twsrc%5Etfw)
+由稅負可以看出你要想得到北京政府補貼的400元，要花銷4000元或更多，會被政府收割2000元以上的稅費；就算是稅負最低的餐飲與零售，你也會被收割商品總價的20%以上。自此你就明白了CCP的意圖，消費券不過是引誘你去花錢的胡蘿蔔和引誘你出窩（出門）的米粒！CCP設置的使用條件渠道和宣傳“拉動消費”“帶動消費”等詞就暴露了**它的真實目的，它不過就是要想法收稅維系政權統治而已！**
 
-參議員 Rick Scott：退役足球運動員郝海東大聲說出了中共國的腐敗和侵犯人權行為，引發關註。盡管中國政府極力屏蔽他的信息，但人們已經響亮而清晰地聽到了。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06204853/3-18.png)
 
-> This month marks 1 year of pro-democracy protests in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). I applaud [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)' bold steps to hold Communist China accountable for its human rights violations & crackdown on HK’s autonomy.
-> 
-> I wrote to [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) for more info on the plan to support Hong Kongers seeking refuge. [pic.twitter.com/J2gr5lrBVZ](https://t.co/J2gr5lrBVZ)
-> — Rick Scott (@SenRickScott) [June 5, 2020](https://twitter.com/SenRickScott/status/1268986262947586048?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06205031/4-15.png)
 
-參議員 Rick Scott：本月標誌著香港民主抗議遊行壹周年。我贊賞總統先生采取的大力措施，追究中共國侵犯人權和破壞香港自治的責任。我致信蓬佩奧國務卿，詢問給予香港人難民協助的進壹步計劃。
+抛卻CCP有意投毒害人不講，在災難面前，百姓生活如此艱難，CCP不但不發錢救人民，反而用“紅包”“消費券”之名行收割人民之實，如同“舊城改造”“家電下鄉”“以舊換新”“充值送食用油”“商場促銷代金券”等套路一樣，只不過是CCP“空手套白狼”、“四兩撥千斤”、“借力打力牟利”或“制造災難利用災難收割韭菜”的騙人把戲，這是新時代特色社會主義的典型做法，是用電子化支付手段，利用人的貪欲，繼續收割！自1921年以來，它總是這樣打著最“偉光正”的名義，行燒殺搶掠騙之實，從未改變，它深谙此道，屢次上演，駕輕就熟，無恥至極！
 
-> God bless the people of Hong Kong. Showing us all how to be free. [https://t.co/yiSGXPT7VG](https://t.co/yiSGXPT7VG)
-> — General Spalding (@robert\_spalding) [June 5, 2020](https://twitter.com/robert_spalding/status/1268852883132481538?ref_src=twsrc%5Etfw)
+**國內戰友們千萬不要上當，在沒有疫苗問世之前，萬不可冒全家生命之險爲CCP送錢續命！在世界各國與CCP脫鈎、産能對外輸出遇阻之時，停止不必要的消費，換彙換黃金，就是滅共的子彈！**
 
-斯伯丁將軍：上帝保佑香港人民。向我們展示了如何捍衛自由。
+請珍惜並好好利用你手裏的滅共子彈——錢！
 
-蘋果日報：盡管有壓制和禁令，香港人仍然紀念這壹天。#六四
+附——CCP各類斂財騙術：
 
-> Tiananmen vigil in Hong Kong draws thousands despite coronavirus-related ban [https://t.co/CTKRkyosIz](https://t.co/CTKRkyosIz) via [@scmpnews](https://twitter.com/SCMPNews?ref_src=twsrc%5Etfw)
-> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269284495196332033?ref_src=twsrc%5Etfw)
+“空手套白狼”：各類中共國保險金制度（CCP不拿一分錢，都是用人民的錢救人民）
 
-斯伯丁將軍：盡管有疫情相關的禁令，香港的“為天安門守夜”活動仍吸引了數千人。
+“四兩撥千斤”：消費券、各類政府投融資平台公司
 
-> "International cooperation is needed to protect democratic values from an increasingly assertive communist China, a new group made up of lawmakers from eight countries and the EU parliament has said." [https://t.co/bA2LtWZH1I](https://t.co/bA2LtWZH1I)
-> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269240876812951562?ref_src=twsrc%5Etfw)
+“借力打力牟利”：招商引進房地産公司拆城中村後政府再賣地給房地産公司牟利，各地政府拆遷房屋賣了地才會給你補地錢和房錢。
 
-斯伯丁將軍：壹個由來自八個國家的議員和歐盟議會最新組成的小組表示，國際社會需要合作，來保護民主價值不受日益嚴重的來自中共國的侵害。”
+“制造災難利用災難收割韭菜”：北川地震救災、救助吳花燕、紅十字會等。（這個就是文貴先生說得共産黨最高騙術——“多難興邦”術）
 
-> "In China and Hong Kong, the only source of hope will be the stubborn refusal to forget, and the fierce clinging to the humane ideals of the peacerful protesters who filled Tiananmen Square in 1989." [https://t.co/3HZhEWqs88](https://t.co/3HZhEWqs88)
-> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269240638060531713?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：“在中國和香港，唯壹的希望將是固執地拒絕遺忘，和堅決地支持那些在1989年湧向天安門廣場的和平抗議者的理想。”
-
-《衛報》觀點：中國會打擊香港的政治異見，就像當初在天安門廣場那樣｜馬健（Ma Jian，音譯）
-
-> Beijing and U.S. businesses, once a strong team when it came to pressing Washington on trade issues, now go their separate ways. [https://t.co/BBok55JkUy](https://t.co/BBok55JkUy)
-> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269227376367599616?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：北京和美國的企業，曾經在貿易問題上結成團隊通力向華盛頓施壓，現在卻各奔東西了。
-
-《華爾街日報》：中國和美國企業界的浪漫愛情故事
-
-> What happens when you don’t follow through on your campaign promises [https://t.co/HxlDCBqul2](https://t.co/HxlDCBqul2)
-> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269211275940298752?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍：當競選諾言得不到兌現時發生的事
-
-Lev Nachman：突發：前臺灣總統候選人、現任高雄市長被正式罷免。超過57萬市民投了贊成罷免票，投票率超過40%。
-
-> China’s Leading Soccer Player: “The CCP Should Be Kicked Out of Humanity” [https://t.co/eidsZntlmx](https://t.co/eidsZntlmx)
-> — Michael Ron Bowling (@mrbcyber) [June 6, 2020](https://twitter.com/mrbcyber/status/1269104166426697732?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推 Michael Ron Bowling：中國最優秀的足球運動員：“應該把中共趕出人類。”
+（文章內容僅代表作者觀點）
 
 0

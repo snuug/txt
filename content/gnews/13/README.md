@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生講解新中國聯邦國旗的意義
-`2020-06-07 01:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/225250/)
+## 川普總統：5月就業數據不降反升，重大勝利！
+`2020-06-07 08:06 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/225387/)
 
-視頻來源：【[秘密翻譯組國際頻道](https://www.youtube.com/channel/UC6K3m7kzxk5GXCkaUEP96kQ)】
+[2020年6月5日川普總統在緬因州發表演講](https://www.youtube.com/watch?v=BNNxwHagmEc&amp;t=4s)，稱讚緬因州的人民和Puritan（普麗普萊）醫療用品公司生產了偉大的產品，對抗擊疫情和經濟重啟至關重要，同時他引用今早發布的最新就業數據，5月份就業數據沒有像原本預測的那樣減少900萬，而是增加了250萬工作崗位，聲稱這是美國歷史上最大的月度就業增幅，是難以置信的成就。
+
+*翻譯：【班班】 校對：【恆久忍耐】字幕：【班班】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
