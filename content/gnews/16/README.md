@@ -1,69 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国足球超级明星呼吁共产党下台，震惊寰宇
-`2020-06-06 17:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/224840/)
+## 6月5-6日 美國政要推文選譯
+`2020-06-06 19:00 GM65` [轉載自GNews](https://gnews.org/zh-hant/224944/)
 
-*作者：Gerry Shih*
+> British Prime Minister ‘No Choice’ But to Offer Citizenship to Almost 3 Million Hong Kong Citizens [https://t.co/CbPNsXxPOA](https://t.co/CbPNsXxPOA)
+> — Gregg Jarrett (@GreggJarrett) [June 5, 2020](https://twitter.com/GreggJarrett/status/1268891177811664896?ref_src=twsrc%5Etfw)
 
-*消息來源：The Washington Post 《華盛頓郵報》, June 5, 2020*
+川普總統 轉推 Gregg Jarrett（福克斯新聞法律政治分析員）：英國首相“別無選擇”只能向近三百萬香港公民提供公民身份
 
-*翻譯：ignoreme*
+> It’s finally time. The playing field is about to be leveled..and China’s chicanery will be impaired. Memorandum on Protecting United States Investors from Significant Risks from Chinese Companies | The White House [#chinalies](https://twitter.com/hashtag/chinalies?src=hash&amp;ref_src=twsrc%5Etfw) [#ccp](https://twitter.com/hashtag/ccp?src=hash&amp;ref_src=twsrc%5Etfw) [#June4th](https://twitter.com/hashtag/June4th?src=hash&amp;ref_src=twsrc%5Etfw) [#LevelTheField](https://twitter.com/hashtag/LevelTheField?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Eft5JrJX9L](https://t.co/Eft5JrJX9L)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 5, 2020](https://twitter.com/Jkylebass/status/1268742512447041537?ref_src=twsrc%5Etfw)
 
-*簡評：海闊天空 / ignorme*
+卡爾·巴斯先生：終於等到了。比賽規則馬上就要變公平…中國的伎倆也要不管用了。《保護美國投資者免受中國公司重大風險影響備忘錄》|白宮
 
-*PR*：*Roberts*
+> China's All-time Leading Goal Scorer says: "The CCP Should Be Kicked Out of Humanity"⁦ [@XHNews](https://twitter.com/XHNews?ref_src=twsrc%5Etfw)⁩ ⁦[@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw)⁩ ⁦[@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing?ref_src=twsrc%5Etfw)⁩ ⁦[@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw)⁩ ⁦[@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw)⁩ ⁦[@espn](https://twitter.com/espn?ref_src=twsrc%5Etfw)⁩ ⁦[@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw)⁩ ⁦[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw)⁩ [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yt5lh5jbcB](https://t.co/yt5lh5jbcB)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 6, 2020](https://twitter.com/Jkylebass/status/1269243095360692224?ref_src=twsrc%5Etfw)
 
-**簡評**：
+卡爾·巴斯先生：中國有史以來最優秀的足球得分手說：“中共應該被趕出人類。”（bitterwinter網站）
 
-郝海東先生在新中國聯邦建國日宣讀宣言，震驚寰宇。對於中共這個摸不得屁股的猴子，即使最輕微的批評，也會招致中共最瘋狂的報復。對於郝海東先生的這一驚天壯舉，中共徹底蒙圈，手足無措。但很快《體壇週刊》就發佈了歇斯底里、氣急敗壞的宣言：「郝海東發表的演講，顛覆政府，損害國家主權，利用冠狀病毒疫情抹黑中共政府，並散布香港謠言，我們對此強烈譴責。」之後是中共國慌不擇路、毫無新意的刪帖、封嘴、讓信息消失。但中共又啞巴吃黃連，完全無法告知公眾郝海東的具體言行是什麼，只能記起公眾更強烈的好奇心，微信搜索「郝海東」指數級增長，微博熱搜郝海東孤居第一。中共可能開始又想動用其毫無變化的歪招，抹黑、污蔑、編織罪名、網絡證據。可惜郝海東多年來出淤泥而不染，公眾形象極好，這給一向擅長醜化人的中共都出了難題。但郝海東先生的資產查封、學校查分，各種朋友、經紀人、商業夥伴的切割已是在所難免，各種株連、連坐式的懲罰會接踵而來，郝海東先生的兒子郝潤澤的微博也被全面封殺，郝潤澤旋即被西班牙球隊解聘。共產極權對郝海東先生進行了殘酷的打擊，而這殘酷打擊是對郝海東夫婦最大的褒獎！
+> I agree, Hao Haidong! “This Communist Party should be kicked out of humanity.” [https://t.co/hzGfgkwA6Q](https://t.co/hzGfgkwA6Q)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2020](https://twitter.com/MarshaBlackburn/status/1269048973953765381?ref_src=twsrc%5Etfw)
 
-郝海東夫婦是中國最頂級最優秀的運動員，他們直接表明決心，推翻中共暴政，給共產極權心裡狠狠扎了一把刀！郝海東夫婦代表著民心、代表著良知、代表著正義，他們是中華民族的脊梁，是我們民族的驕傲！向郝海東夫婦致以我們最崇高的敬意！
+參議員 Marsha Blackburn：我贊同，郝海東！“中共應該被趕出人類。”
 
-這裡要提一下，華盛頓郵報對於郭先生和爆料革命持保留態度，以展示其所謂媒體中立的態度。郭先生發起的爆料革命唯真不破，現在已經贏得了世界巨大的尊重，相信在不久的將來，世界上主流媒體都會對郭先生以及爆料革命發出崇高的致意，因為郭先生以及爆料革命千千萬萬戰友的努力不僅對中國人民的安全和未來，對世界人民的安全和未來也做出了巨大的貢獻！
+> Courage is infectious! [#CCPkaput](https://twitter.com/hashtag/CCPkaput?src=hash&amp;ref_src=twsrc%5Etfw) [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Chinese soccer superstar calls for ouster of Communist Party, stunning nation [https://t.co/rWHeSQYjzJ](https://t.co/rWHeSQYjzJ)
+> — Jack Maxey (@JackMaxey1) [June 5, 2020](https://twitter.com/JackMaxey1/status/1268976478072590338?ref_src=twsrc%5Etfw)
 
-## **中國足球超級明星呼籲共產黨下台，震驚寰宇**
+比爾·格茨先生 轉推 Jack Maxey：勇氣具有感染力！中國足球超級巨星呼籲驅逐共產黨，震驚國家。
 
-如果涉及到政治與權利，中國體育明星通常對政府都是表達感謝和一些陳詞濫調
+> 31 years after the massacre at Tiananmen Square, we call upon Beijing to grant its citizens the rights guaranteed under its own constitution and end the persecution of millions of ethnic and religious minorities.[https://t.co/xoYRfMHGgj](https://t.co/xoYRfMHGgj)
+> — NSC (@WHNSC) [June 5, 2020](https://twitter.com/WHNSC/status/1268908950046609408?ref_src=twsrc%5Etfw)
 
-但是除了郝海東！
-[!\[\](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/d99af03a-6487-4221-b151-cf49f0ca4e1a.jpg?asset_id=bbd74b24-1909-4e96-84e4-8891040a0be7&amp;img_etag=%226678b9cd52409d519b4cc537387453f8%22&amp;size=1024)](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/d99af03a-6487-4221-b151-cf49f0ca4e1a.jpg?asset_id=bbd74b24-1909-4e96-84e4-8891040a0be7&amp;img_etag=%226678b9cd52409d519b4cc537387453f8%22&amp;size=1024)*2004*年*7*月*30*日，在北京舉行的亞洲杯足球賽*1/4*決賽對陣伊拉克隊的比賽中，身穿白色球衣的郝海東。*(Wilson Chu/Reuters)*
+比爾·格茨先生 轉推 NSC：天安門大屠殺事件過了31年後，我們呼籲北京給予其公民由其本國憲法賦予的基本權利，並結束對數百萬少數民族和宗教群體的迫害。
 
+> 🎥🔴【 [#美國思想領袖](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B%E6%80%9D%E6%83%B3%E9%A0%98%E8%A2%96?src=hash&amp;ref_src=twsrc%5Etfw) 】國家安全記者 比爾·戈茲：
+> 調查病毒起源與美中新冷戰！🦠為何了解病毒真正來源如此重要？🌍世界為何看不懂中共政權的真正性質？中共其實是比蘇聯更老練的對手！[#大紀元](https://twitter.com/hashtag/%E5%A4%A7%E7%B4%80%E5%85%83?src=hash&amp;ref_src=twsrc%5Etfw) [@JanJekielek](https://twitter.com/JanJekielek?ref_src=twsrc%5Etfw) [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)
+> 
+> 觀看首播🌐 [https://t.co/cN4tg0i7En](https://t.co/cN4tg0i7En)
+> 歡迎訂閱💐 [https://t.co/8PwwuOmYXm](https://t.co/8PwwuOmYXm) [pic.twitter.com/QTjCg2rKiC](https://t.co/QTjCg2rKiC)
+> — 大纪元新闻网 (@dajiyuan) [June 6, 2020](https://twitter.com/dajiyuan/status/1269071510620250112?ref_src=twsrc%5Etfw)
 
-這位退役的足球健將—中國國家隊歷史最佳射手，90年代與2000年代的偶像，本週在他要求執政黨共產黨下台，並組建新政府之後，震驚了他的國家。
+比爾·格茨先生：
 
-他極不尋常在YouTube上的活動，是作為移居海外的郭文貴先生（中共最痛恨的反對者）發起的政治運動宣傳的一部分，郝海東先生宣讀了新中國聯邦的18點宣言。與妻子—羽毛球世界冠軍葉釗穎一起接受訪問，郝海東先生用了較長篇幅對中共政府對所有敏感問題的處理進行批駁，包括香港問題、西藏問題和冠狀病毒大爆發。
+> Check out [@BillGertz](https://twitter.com/BillGertz?ref_src=twsrc%5Etfw)'s ‘How China's Communist Party Made the World Sick’, the number three book on 'The Encounter Top Ten' for the truth about [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). Save an additional 10% with code ‘TOP10’ [https://t.co/bDHD7o27q5](https://t.co/bDHD7o27q5)
+> — Encounter Books (@EncounterBooks) [June 6, 2020](https://twitter.com/EncounterBooks/status/1269252953300447233?ref_src=twsrc%5Etfw)
 
-在這個政治敏感的1989天安門大屠殺紀念日，郝海東在週四的視頻中說「共產黨應該被剔除出人類」。來自一個國際運動員的評論都會招來中共政府的嚴厲批評。而來自中國足球傳奇人物的批評，中共是不可想象的，甚至有些迷惑。
+比爾·格茨先生 轉推 Encounter Books：比爾·格茨先生的著作《中共是如何讓世界病倒的》，關於冠狀病毒的真相，在“Encounter前十名”書單上排名第三。輸入“TOP10”另有10%優惠
 
-到週四下午，郝海東的視頻即使是在被中共屏蔽的YouTube發佈，也引起了國內巨大的轟動。這似乎讓網民和當局一樣困惑：視頻是偽造的嗎？應該譴責還是忽略？體壇週刊—當局運營的運動網站很快作出反應：「郝海東發表的演講，顛覆政府，損害國家主權，利用冠狀病毒疫情抹黑中共政府，並散布香港謠言，我們對此強烈譴責。」
+> Pompeo blasts “obscene” Chinese Communist propaganda targeting US riots [https://t.co/A9fG5NYaio](https://t.co/A9fG5NYaio)
+> — Bill Gertz (@BillGertz) [June 6, 2020](https://twitter.com/BillGertz/status/1269335022307344384?ref_src=twsrc%5Etfw)
 
-不久後，標題編輯了郝海東的名字，僅用字母H代替，因為他的名字已經成為敏感詞。幾小時後，中共政府徹底刪除了所有國內互聯網提到該事件的報道，就像它從未發生過。
-[!\[\](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/63e22267-a4c2-4e00-966d-516f56f8f1d8.jpg?asset_id=09cdfc14-0c7a-4272-99c0-abe5fb04fe50&amp;img_etag=%22bc05bf73f203e4cd29fd15ee40664558%22&amp;size=1024)](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/63e22267-a4c2-4e00-966d-516f56f8f1d8.jpg?asset_id=09cdfc14-0c7a-4272-99c0-abe5fb04fe50&amp;img_etag=%22bc05bf73f203e4cd29fd15ee40664558%22&amp;size=1024)5月28日，中国国家主席习近平（右）和国务院总理李克强在北京人民大会堂出席全国两会。(Nicolas Asfouri/AFP/Getty Images)
-郝海東的微博賬戶也被刪除，他有將近800萬的關注者。虎撲網，中共國體育愛好者在線交流社區，警告用戶避談郝海東的「有害言論」。然後警告也消失了。
+比爾·格茨先生：蓬佩奧抨擊“齷齪”中共大外宣將美國暴動當作目標
 
-24小時內，根據互聯網監控網站freeweibo.com的數據，郝海東的名字已經超過「6-4」成為微博上最敏感的詞彙，1989年6月4日天安門大屠殺事件是永久的敏感詞。
+> The Chinese Communist Party’s callous attempts to exploit George Floyd’s tragic death for its own political gain will fail. During the best of times, Beijing ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
+> — Secretary Pompeo (@SecPompeo) [June 6, 2020](https://twitter.com/SecPompeo/status/1269267220141670413?ref_src=twsrc%5Etfw)
 
-這週五，中共政府針對郝海東的視頻首次回應，駁斥他的言論是鬧劇。外交部發言人耿爽說：「我沒有任何評論」。
+美國國務卿 蓬佩奧：中共試圖利用喬治·弗洛伊德（George Floyd）不幸去世為自己謀得政治利益的做法必將失敗。當處於最好的時代時，中共殘酷地推行共產主義。當面對最嚴峻的挑戰時，美國保護了自由。
 
-郝海東先生被認為是中國最偉大的前鋒，退役後現在居住在西班牙，曾因為對中共足球管理部門的嚴厲批評而聞名，並沒有批判執政黨本身。但在此視頻中，他說，他對體育系統的腐敗徹底絕望演化成更深層次的不滿。他還嚴厲抨擊了普遍的欺詐行為和社會福利的缺乏。
+美國國務院官網：《評中國共產黨的齷齪大外宣》
 
-他對當局的炮轟可能不被視作大眾對該黨的看法的標準，但是郝海東可能是最具知名度的中共國公開強烈反對習近平執政下的政治領導的公民。
+> Retired soccer player Hao Haidong is speaking up to shine a light on the corruption & human rights abuses by Communist China. 
+> 
+> While the Chinese government has attempted to censor his message, it has been heard loud and clear. [https://t.co/CNzQpSfBHb](https://t.co/CNzQpSfBHb)
+> — Rick Scott (@SenRickScott) [June 6, 2020](https://twitter.com/SenRickScott/status/1269305273245749248?ref_src=twsrc%5Etfw)
 
-郝海東的視頻對於生活在紐約的郭先生來說是一個小型政變的宣傳，郭先生曾被中共當局試圖指控一系列的罪名，包括欺詐，勒索和賄賂。
+參議員 Rick Scott：退役足球運動員郝海東大聲說出了中共國的腐敗和侵犯人權行為，引發關註。盡管中國政府極力屏蔽他的信息，但人們已經響亮而清晰地聽到了。
 
-逃出中共國後，曾經與中共頂級情報官員合作的郭，在2017年成為反政府者，他想通過在YouTube頻道揭露中共的秘密，承諾要推翻共產黨。郭的很多爆料還沒有證實或是假的，且形象有所下降。
+> This month marks 1 year of pro-democracy protests in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). I applaud [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)' bold steps to hold Communist China accountable for its human rights violations & crackdown on HK’s autonomy.
+> 
+> I wrote to [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw) for more info on the plan to support Hong Kongers seeking refuge. [pic.twitter.com/J2gr5lrBVZ](https://t.co/J2gr5lrBVZ)
+> — Rick Scott (@SenRickScott) [June 5, 2020](https://twitter.com/SenRickScott/status/1268986262947586048?ref_src=twsrc%5Etfw)
 
-Axios曾稱，曾是房地產開發商的郭先生在2018年用幾百萬美元聘用史蒂夫K班農 – 前白宮首席戰略師和中共國批評者，來提升在美國的影響力。
+參議員 Rick Scott：本月標誌著香港民主抗議遊行壹周年。我贊賞總統先生采取的大力措施，追究中共國侵犯人權和破壞香港自治的責任。我致信蓬佩奧國務卿，詢問給予香港人難民協助的進壹步計劃。
 
-郭的YouTube頻道上本週播放了郝海東的視頻，還展示了郭和班農在紐約灣的一艘船上，在自由女神像前，班農宣讀英文版宣言，稱要建立新中國。
+> God bless the people of Hong Kong. Showing us all how to be free. [https://t.co/yiSGXPT7VG](https://t.co/yiSGXPT7VG)
+> — General Spalding (@robert\_spalding) [June 5, 2020](https://twitter.com/robert_spalding/status/1268852883132481538?ref_src=twsrc%5Etfw)
 
-[原文鏈接](https://www.washingtonpost.com/world/asia_pacific/chinese-soccer-superstar-hao-haidong-calls-for-ouster-of-communist-party-stunning-nation/2020/06/05/9ae91df2-a6ec-11ea-898e-b21b9a83f792_story.html)
+斯伯丁將軍：上帝保佑香港人民。向我們展示了如何捍衛自由。
 
-[中英對照翻譯](https://spark.adobe.com/page/OuZKQM5q7rGAw/)
+蘋果日報：盡管有壓制和禁令，香港人仍然紀念這壹天。#六四
 
-#### **編輯：【喜馬拉雅戰鷹團】**
+> Tiananmen vigil in Hong Kong draws thousands despite coronavirus-related ban [https://t.co/CTKRkyosIz](https://t.co/CTKRkyosIz) via [@scmpnews](https://twitter.com/SCMPNews?ref_src=twsrc%5Etfw)
+> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269284495196332033?ref_src=twsrc%5Etfw)
 
+斯伯丁將軍：盡管有疫情相關的禁令，香港的“為天安門守夜”活動仍吸引了數千人。
 
+> "International cooperation is needed to protect democratic values from an increasingly assertive communist China, a new group made up of lawmakers from eight countries and the EU parliament has said." [https://t.co/bA2LtWZH1I](https://t.co/bA2LtWZH1I)
+> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269240876812951562?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：壹個由來自八個國家的議員和歐盟議會最新組成的小組表示，國際社會需要合作，來保護民主價值不受日益嚴重的來自中共國的侵害。”
+
+> "In China and Hong Kong, the only source of hope will be the stubborn refusal to forget, and the fierce clinging to the humane ideals of the peacerful protesters who filled Tiananmen Square in 1989." [https://t.co/3HZhEWqs88](https://t.co/3HZhEWqs88)
+> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269240638060531713?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：“在中國和香港，唯壹的希望將是固執地拒絕遺忘，和堅決地支持那些在1989年湧向天安門廣場的和平抗議者的理想。”
+
+《衛報》觀點：中國會打擊香港的政治異見，就像當初在天安門廣場那樣｜馬健（Ma Jian，音譯）
+
+> Beijing and U.S. businesses, once a strong team when it came to pressing Washington on trade issues, now go their separate ways. [https://t.co/BBok55JkUy](https://t.co/BBok55JkUy)
+> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269227376367599616?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：北京和美國的企業，曾經在貿易問題上結成團隊通力向華盛頓施壓，現在卻各奔東西了。
+
+《華爾街日報》：中國和美國企業界的浪漫愛情故事
+
+> What happens when you don’t follow through on your campaign promises [https://t.co/HxlDCBqul2](https://t.co/HxlDCBqul2)
+> — General Spalding (@robert\_spalding) [June 6, 2020](https://twitter.com/robert_spalding/status/1269211275940298752?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：當競選諾言得不到兌現時發生的事
+
+Lev Nachman：突發：前臺灣總統候選人、現任高雄市長被正式罷免。超過57萬市民投了贊成罷免票，投票率超過40%。
+
+> China’s Leading Soccer Player: “The CCP Should Be Kicked Out of Humanity” [https://t.co/eidsZntlmx](https://t.co/eidsZntlmx)
+> — Michael Ron Bowling (@mrbcyber) [June 6, 2020](https://twitter.com/mrbcyber/status/1269104166426697732?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Michael Ron Bowling：中國最優秀的足球運動員：“應該把中共趕出人類。”
 
 0
