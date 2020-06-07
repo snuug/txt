@@ -1,45 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院發表《論中國共產黨的下作宣傳》
-`2020-06-06 15:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224781/)
+## 彭斯副總統與信仰和社區領袖座談
+`2020-06-06 20:33 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224968/)
 
-The Chinese Communist Party’s callous exploitation of the tragic death of George Floyd to justify its authoritarian denial of basic human dignity exposes its true colors yet again. As with dictatorships throughout history, no lie is too obscene, so long as it serves the Party’s lust for power. This laughable propaganda should not fool anyone.
+希望基督教會
+馬里蘭州貝爾茨維爾
 
-中國共產黨無情利用喬治·弗洛伊德（George Floyd）的死亡悲劇，證明了其專制主義對人類基本尊嚴的否認，再次暴露了其真實面目。與歷史上的獨裁政權一樣，只要是服務於黨權力慾望，謊言就不再猥瑣。這種可笑的宣傳愚弄不了任何人。
+美東時間下午12:38
 
-The contrast between the United States and the Chinese Communist Party (CCP) could not be more stark.
+副總統：好的，謝謝大家在這裡。我帶來唐納德·川普總統的問候。在我們國家的生命中遇到挑戰的時刻，我很高興您能抽出寶貴的時間與我們和我們的行政部門分享您的見解和建議。
 
-美國與中國共產黨（CCP）之間的對比再明顯不過了。
+我和斯科特·特納（Scott Turner）在一起，他在領導整個美國的“機會區”的發展。但是，傑克遜主教，我們真心感謝您的款待。在我們發表任何言論之前，我能不能拜託您帶領我們以禱告開始。
 
-In China, when a church burns, the attack was almost certainly directed by the CCP. In America, when a church burns, the arsonists are punished by the government, and it is the government that brings fire trucks, water, aid, and comfort to the faithful.
+我的禱告是，作為一個民族，我們有耳傾聽，互相聆聽，並敞開心我們的心。如果您帶領我們以禱告開始，我將不勝感激。
 
-在中國，當教堂被燒毀時，惡行幾乎肯定是由中共指揮的。在美國，當教堂被燒毀時，縱火犯受到政府的懲罰，正是政府將消防車，水，援助和安慰帶給了信徒們。
+傑克遜主教：謝謝彭斯副總統。
 
-In China, peaceful protesters from Hong Kong to Tiananmen Square are clubbed by armed militiamen for simply speaking out. Reporters writing of these indignities are sentenced to long terms in prison. In the United States, law enforcement – both state and federal – brings rogue officers to justice, welcomes peaceful protests while forcefully shutting down looting and violence, and exercises power pursuant to the Constitution to protect property and liberty for all. Our free press covers events wall to wall, for all the world to see.
+天父，我們請求您帶領我們。您說，如果我們哪怕只有兩個人同心，我們就能夠捆綁黑暗，釋放光明，並在這地上看到神的祝福。
 
-在中國，從香港到天安門廣場的和平示威者遭武裝民兵毒打，僅僅因為他們想要發聲。記錄這些惡行的記者被判處長期監禁。在美國，州和聯邦的執法機構將流氓官員繩之以法，歡迎和平抗議，同時強行制止搶劫和暴力活動，並根據《憲法》行使權力，保護所有人的財產和自由。我們的自由媒體新聞涵蓋各類事件，讓全世界都能看到。
+主啊，讓我們同心合意。讓我們一起思考，並給本屆政府以智慧，尤其是這位副總統、總統和斯科特·特納。我們非常感恩您所做的一切。請求您讓這段時間富有成果。阿們。
 
-In China, when doctors and journalists warn of the dangers of a new disease, the CCP silences and disappears them, and lies about death totals and the extent of the outbreak. In the United States, we value life and build transparent systems to treat, cure, and underwrite – more than any other nation – pandemic solutions for the globe.
+副總統：好的，謝謝。謝謝杰克遜主教。感謝您和希望基督教會的熱烈歡迎。我們在國家充滿挑戰的時刻聚在一起。但是正如川普總統今天早晨在玫瑰園中所說的那樣，這次，我們決心作為美國人勇往直前，再次致力於每個美國人的平等和機會均等，一起前進。
 
-在中國，當醫生和新聞工作者對一種新疾病發出危險警告時，中共使其沈默並使其消失，並掩蓋死亡人數和疫情爆發程度。在美國，我們珍視生命並建立透明的系統為全球範圍大流行提供治療，治癒和承保解決方案，比任何其他國家都多。
+此時，作為一個國家，我們同哀哭的人同哭，和悲傷的人同悲。看到了來自明尼阿波利斯街頭的視頻，美國人民的心碎了。喬治·弗洛伊德（George Floyd）的死是一場悲劇。
 
-In China, when citizens hold opinions that diverge from CCP dogma, the Party imprisons them in re-education camps. And, when people – such as those in Hong Kong and Taiwan – with common roots in an awe-inspiring civilization that has endured for thousands of years embrace freedom, that freedom is crushed, and the people subordinated to Party dictates and demands. In the United States, in contrast, even amidst reckless rioting, we demonstrate our robust commitment to the rule of law, transparency, and unalienable human rights.
+我們從一開始就已經說過，正義一定會得以伸張。我想向大家以及所有關注的人保證，我們已部啟用了司法部的全部資源，要完全依法地對肇事者進行起訴。
 
-在中國，當公民持有與中共教條有分歧的觀點時，共產黨將他們囚禁在再教育集中營中。以及，當那些有著同根同源的令人敬畏的文明的人們（比如香港和台灣同胞），在忍受了數千年後擁抱自由時，自由被碾碎了，而服從於共產黨的人則可以支配和提出要求。相反，在美國，即使在魯莽暴亂中，我們依然表現出我們對法治，透明和不可被剝奪的人權的堅定承諾。
+我還要說，很明顯，這些圖像震動了這個國家的良心。在這個國家，我們無法容忍任何針對個人的暴力行為、警察的野蠻行為、街頭的騷亂或搶劫行為，以及對財產的損壞或奪取無辜的生命，包括執法人員的生命。
 
-Beijing in recent days has showcased its continuing contempt for the truth and scorn for law. The CCP’s propaganda efforts – seeking to conflate the United States’ actions in the wake of the death of George Floyd with the CCP’s continued denial of basic human rights and freedom – should be seen for the fraud that they are.
+這就是總統本週早些時候採取有力行動，與州長們一起將資源和人員部署到我們街道上的原因之一。
 
-近日來，北京繼續蔑視事實真相，蔑視法律。中共的宣傳工作企圖將美國在喬治·弗洛伊德（George Floyd）死後行為與中共一如既往剝奪基本人權和自由混為一談——這應該被視為欺詐行為。
+我很高興地報告，在全國各地的城市中，我們平息了暴力，並為和平的抗議者留出了空間，讓他們繼續表達自己的聲音。我們將始終主張每個美國人都有進行和平抗議、尋求政府改進的權利。
 
-During the best of times, the PRC ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
+由於執法人員和其他人員的努力，我們已經結束了街頭所見的暴力。我們將繼續這樣做。
 
-在最好的時代，中共國殘酷地強施共產主義。在最艱巨的挑戰中，美國確保自由。
+但是我今天在這裡討論我們的前進方向。我說的將很簡短，因為我在這裡是要聆聽。我最敬重傑克遜主教。他從本屆政府一開始就知道，我們一直在努力工作，為包括非裔美國人在內的每個美國人提供更多機會。
 
-閱讀原文：[On the Chinese Communist Party’s Obscene Propaganda](https://www.state.gov/on-the-chinese-communist-partys-obscene-propaganda/)
+在大流行病爆發之前，我們實現了有史以來非洲裔美國人最低的失業率， 為此我​​們深受鼓舞。我們已在全國范圍內擴展了“機會區”，對經常被就業機會遺忘的內城區投資超過了1000億美元。我們通過了一項刑事司法改革，以糾正幾十年來我們司法系統中存在的不平等。
 
-*翻譯：【ddm】校對：【豆小豆】*
+在所有這些之中，我們一直在努力擴大教育機會，並允許父母選擇子女上學的地點。
 
-*戰友之聲玫瑰園小隊出品*
+所有這些，都是為了解決我們非洲裔美國人社區，以及我們內城的許多社區和家庭中，存在的歷史性的不平等現象。而且，我們國家經歷著當前的時刻，現在的重點是癒合復甦，是如何治愈美國。
+
+今天，我們收到了令人鼓舞的消息，您可能在早上的報紙上讀到了，我們的經濟正在顯示出強勁的複蘇跡象。但是，我們希望通過傾聽和學習並將其付諸實踐，來為每個美國人治愈我們的土地，實現為每個美國人擴大平等和機會。
+
+我認為來一個禮拜場所做這件事很合宜。不可否認，在這個國家爭取平等的長期鬥爭中，有信仰的人民發揮了決定性作用。結束奴隸制的追求源於這個國家的教會，當時的國家對民族的良知提出了挑戰。民權運動發生的時候， 我還是一個印第安納州哥倫布市的小男孩，我聽說那些參與其中的人被逐出了這個國家教會的長椅。
+
+傑克遜主教，10年前，我有幸帶我的妻子和孩子去阿拉巴馬州。我們和我的朋友約翰·劉易斯手拉著手走過埃德蒙·佩特斯橋（Edmund Pettus Bridge）。但是前一天，我們在馬丁·路德·金博士的教堂里呆了一會，在那裡，我們見到了許多與金博士一起游過行的人，他們說，在遊行之前，他們祈禱並唱歌，還有敬拜。
+
+而且我不禁感到，當我們國家在喬治·弗洛伊德悲劇中痛苦的時候，對話開始的地方就是在禮拜堂。這裡是我們國家力量的源泉，這是我們的民族的團結和朝著一個更完美的國家前進的源泉。
+
+因此，我要感謝您，特別是在這裡的宗教領袖。謝謝你們的事工。感謝你們願意加入我們的行列。我很想听你們對我們如何治愈我們的土地以及如何使美國人民團結在一起的的建議和想法。
+
+僅僅復甦經濟是不夠的。我們必須通過打破非裔美國人和任何被拋棄的美國人的機會壁壘，來消除分歧。因此，我渴望獲得你們的見解。我保證會把它們帶給唐納德·川普總統和我們整個政府。
+
+今天只是未來幾天我們將在這里和全國范圍內進行的眾多對話之一。但是，我絕對有信心，有了你們的忠告和領導和上帝的恩典，我們將順利度過這個充滿挑戰的時刻。我們將團結在一起，我知道我們將一如既往地推動我們的國家前進。
+
+非常感謝您。傑克遜主教，請您分享您的想法。
+
+結束
+美東時間下午12:48
+
+閱讀白宮英文全文：[Remarks by Vice President Pence in Listening Session with Faith and Community Leaders | Beltsville, MD](https://www.whitehouse.gov/briefings-statements/remarks-vice-president-pence-listening-session-faith-community-leaders-beltsville-md/)
+
+*翻譯：【JoyJoy】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊*
 
 0
