@@ -1,18 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 擔心爆發第二波疫情，韓國再次加強CCP病毒疫情防控
-`2020-06-06 21:37 GM65` [轉載自GNews](https://gnews.org/zh-hant/225089/)
+## 【世界多語言圖文】05/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-06 21:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/225120/)
 
-翻譯：深井冰 評論：深井冰 校對：夏天
+戰友之家圖文摘要組及小語種組
 
-目前，韓國新增ccp病毒確診人數居高不下，令人擔憂。鑒於此等情況，韓國政府決定廢除多項放松疫情管控措施，重新加強疫情防控。在首都首爾，之前開放的博物館和公園等公共場所重又關閉，政府還呼籲民眾盡量避免前往飯店和酒吧等場所。韓國保健福祉部部長樸淩厚稱，接下來兩周“非常關鍵”，如果新增確診人數未減少，政府將繼續執行嚴格的“保持社交距離”規定。
-出現大量新增確診病例，韓國重新加強疫情管控
-韓國政府周四通報稱，韓國 24 小時內新增 79 例確診病例。從四月初至今，這是韓國首次出現如此大規模的確診人數暴增情況。截至周四，韓國感染ccp病毒的總人數達到 11 344 人。
-在ccp病毒疫情爆發之初，韓國通過疫情快速追蹤和進行多項檢測等措施，有效遏制了新冠病毒的傳染勢頭——那時候，韓國是繼中國之後疫情最嚴重的國家。韓國的疫情應對方法也被很多地方視為典範。
+[English\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)
 
-評論：進入6月以來，世界各國對ccp病毒的防範都有所降低：德甲重新開賽，英超、意甲也緊隨其後；歐洲的餐飲、旅遊等各種經濟活動開始逐步“解封”，就連金融市場都對經濟復蘇持樂觀態度，以歐元為主的非美貨幣大漲。但韓國的情況不得不給我們敲響警鐘：ccp病毒並非遠離了我們；中共給世界帶來的傷害還遠遠未曾停止，大家絕對不能掉以輕心，仍然要少出門、少聚集，保護自己，保護家人。
+[French\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)
 
-[原文鏈接](https://www.fr.de/panorama/coronavirus-frankreichs-corona-warn-app-knackt-millionen-marke-zr-13754379.html)
+[German\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)
+
+[Japanese\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)
+
+[Korean\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)
+
+[Russian\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)
+
+[Spanish\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)
 
 0

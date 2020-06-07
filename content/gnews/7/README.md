@@ -1,7 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣播：2020/6/6 郭文貴先生： 新中國聯邦對世界和中國人民的三大影響
-`2020-06-06 23:16 GM07` [轉載自GNews](https://gnews.org/zh-hant/225189/)
+## 國際不斷追責中共和去中共化！“中共病毒疫情每日熱線”
+`2020-06-06 23:35 GM30` [轉載自GNews](https://gnews.org/zh-hant/225198/)
+
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0

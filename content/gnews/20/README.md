@@ -1,45 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院發表《論中國共產黨的下作宣傳》
-`2020-06-06 15:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/224781/)
+## 中国足球超级明星呼吁共产党下台，震惊寰宇
+`2020-06-06 17:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/224840/)
 
-The Chinese Communist Party’s callous exploitation of the tragic death of George Floyd to justify its authoritarian denial of basic human dignity exposes its true colors yet again. As with dictatorships throughout history, no lie is too obscene, so long as it serves the Party’s lust for power. This laughable propaganda should not fool anyone.
+*作者：Gerry Shih*
 
-中國共產黨無情利用喬治·弗洛伊德（George Floyd）的死亡悲劇，證明了其專制主義對人類基本尊嚴的否認，再次暴露了其真實面目。與歷史上的獨裁政權一樣，只要是服務於黨權力慾望，謊言就不再猥瑣。這種可笑的宣傳愚弄不了任何人。
+*消息來源：The Washington Post 《華盛頓郵報》, June 5, 2020*
 
-The contrast between the United States and the Chinese Communist Party (CCP) could not be more stark.
+*翻譯：ignoreme*
 
-美國與中國共產黨（CCP）之間的對比再明顯不過了。
+*簡評：海闊天空 / ignorme*
 
-In China, when a church burns, the attack was almost certainly directed by the CCP. In America, when a church burns, the arsonists are punished by the government, and it is the government that brings fire trucks, water, aid, and comfort to the faithful.
+*PR*：*Roberts*
 
-在中國，當教堂被燒毀時，惡行幾乎肯定是由中共指揮的。在美國，當教堂被燒毀時，縱火犯受到政府的懲罰，正是政府將消防車，水，援助和安慰帶給了信徒們。
+**簡評**：
 
-In China, peaceful protesters from Hong Kong to Tiananmen Square are clubbed by armed militiamen for simply speaking out. Reporters writing of these indignities are sentenced to long terms in prison. In the United States, law enforcement – both state and federal – brings rogue officers to justice, welcomes peaceful protests while forcefully shutting down looting and violence, and exercises power pursuant to the Constitution to protect property and liberty for all. Our free press covers events wall to wall, for all the world to see.
+郝海東先生在新中國聯邦建國日宣讀宣言，震驚寰宇。對於中共這個摸不得屁股的猴子，即使最輕微的批評，也會招致中共最瘋狂的報復。對於郝海東先生的這一驚天壯舉，中共徹底蒙圈，手足無措。但很快《體壇週刊》就發佈了歇斯底里、氣急敗壞的宣言：「郝海東發表的演講，顛覆政府，損害國家主權，利用冠狀病毒疫情抹黑中共政府，並散布香港謠言，我們對此強烈譴責。」之後是中共國慌不擇路、毫無新意的刪帖、封嘴、讓信息消失。但中共又啞巴吃黃連，完全無法告知公眾郝海東的具體言行是什麼，只能記起公眾更強烈的好奇心，微信搜索「郝海東」指數級增長，微博熱搜郝海東孤居第一。中共可能開始又想動用其毫無變化的歪招，抹黑、污蔑、編織罪名、網絡證據。可惜郝海東多年來出淤泥而不染，公眾形象極好，這給一向擅長醜化人的中共都出了難題。但郝海東先生的資產查封、學校查分，各種朋友、經紀人、商業夥伴的切割已是在所難免，各種株連、連坐式的懲罰會接踵而來，郝海東先生的兒子郝潤澤的微博也被全面封殺，郝潤澤旋即被西班牙球隊解聘。共產極權對郝海東先生進行了殘酷的打擊，而這殘酷打擊是對郝海東夫婦最大的褒獎！
 
-在中國，從香港到天安門廣場的和平示威者遭武裝民兵毒打，僅僅因為他們想要發聲。記錄這些惡行的記者被判處長期監禁。在美國，州和聯邦的執法機構將流氓官員繩之以法，歡迎和平抗議，同時強行制止搶劫和暴力活動，並根據《憲法》行使權力，保護所有人的財產和自由。我們的自由媒體新聞涵蓋各類事件，讓全世界都能看到。
+郝海東夫婦是中國最頂級最優秀的運動員，他們直接表明決心，推翻中共暴政，給共產極權心裡狠狠扎了一把刀！郝海東夫婦代表著民心、代表著良知、代表著正義，他們是中華民族的脊梁，是我們民族的驕傲！向郝海東夫婦致以我們最崇高的敬意！
 
-In China, when doctors and journalists warn of the dangers of a new disease, the CCP silences and disappears them, and lies about death totals and the extent of the outbreak. In the United States, we value life and build transparent systems to treat, cure, and underwrite – more than any other nation – pandemic solutions for the globe.
+這裡要提一下，華盛頓郵報對於郭先生和爆料革命持保留態度，以展示其所謂媒體中立的態度。郭先生發起的爆料革命唯真不破，現在已經贏得了世界巨大的尊重，相信在不久的將來，世界上主流媒體都會對郭先生以及爆料革命發出崇高的致意，因為郭先生以及爆料革命千千萬萬戰友的努力不僅對中國人民的安全和未來，對世界人民的安全和未來也做出了巨大的貢獻！
 
-在中國，當醫生和新聞工作者對一種新疾病發出危險警告時，中共使其沈默並使其消失，並掩蓋死亡人數和疫情爆發程度。在美國，我們珍視生命並建立透明的系統為全球範圍大流行提供治療，治癒和承保解決方案，比任何其他國家都多。
+## **中國足球超級明星呼籲共產黨下台，震驚寰宇**
 
-In China, when citizens hold opinions that diverge from CCP dogma, the Party imprisons them in re-education camps. And, when people – such as those in Hong Kong and Taiwan – with common roots in an awe-inspiring civilization that has endured for thousands of years embrace freedom, that freedom is crushed, and the people subordinated to Party dictates and demands. In the United States, in contrast, even amidst reckless rioting, we demonstrate our robust commitment to the rule of law, transparency, and unalienable human rights.
+如果涉及到政治與權利，中國體育明星通常對政府都是表達感謝和一些陳詞濫調
 
-在中國，當公民持有與中共教條有分歧的觀點時，共產黨將他們囚禁在再教育集中營中。以及，當那些有著同根同源的令人敬畏的文明的人們（比如香港和台灣同胞），在忍受了數千年後擁抱自由時，自由被碾碎了，而服從於共產黨的人則可以支配和提出要求。相反，在美國，即使在魯莽暴亂中，我們依然表現出我們對法治，透明和不可被剝奪的人權的堅定承諾。
+但是除了郝海東！
+[!\[\](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/d99af03a-6487-4221-b151-cf49f0ca4e1a.jpg?asset_id=bbd74b24-1909-4e96-84e4-8891040a0be7&amp;img_etag=%226678b9cd52409d519b4cc537387453f8%22&amp;size=1024)](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/d99af03a-6487-4221-b151-cf49f0ca4e1a.jpg?asset_id=bbd74b24-1909-4e96-84e4-8891040a0be7&amp;img_etag=%226678b9cd52409d519b4cc537387453f8%22&amp;size=1024)*2004*年*7*月*30*日，在北京舉行的亞洲杯足球賽*1/4*決賽對陣伊拉克隊的比賽中，身穿白色球衣的郝海東。*(Wilson Chu/Reuters)*
 
-Beijing in recent days has showcased its continuing contempt for the truth and scorn for law. The CCP’s propaganda efforts – seeking to conflate the United States’ actions in the wake of the death of George Floyd with the CCP’s continued denial of basic human rights and freedom – should be seen for the fraud that they are.
 
-近日來，北京繼續蔑視事實真相，蔑視法律。中共的宣傳工作企圖將美國在喬治·弗洛伊德（George Floyd）死後行為與中共一如既往剝奪基本人權和自由混為一談——這應該被視為欺詐行為。
+這位退役的足球健將—中國國家隊歷史最佳射手，90年代與2000年代的偶像，本週在他要求執政黨共產黨下台，並組建新政府之後，震驚了他的國家。
 
-During the best of times, the PRC ruthlessly imposes communism. Amid the most difficult challenges, the United States secures freedom.
+他極不尋常在YouTube上的活動，是作為移居海外的郭文貴先生（中共最痛恨的反對者）發起的政治運動宣傳的一部分，郝海東先生宣讀了新中國聯邦的18點宣言。與妻子—羽毛球世界冠軍葉釗穎一起接受訪問，郝海東先生用了較長篇幅對中共政府對所有敏感問題的處理進行批駁，包括香港問題、西藏問題和冠狀病毒大爆發。
 
-在最好的時代，中共國殘酷地強施共產主義。在最艱巨的挑戰中，美國確保自由。
+在這個政治敏感的1989天安門大屠殺紀念日，郝海東在週四的視頻中說「共產黨應該被剔除出人類」。來自一個國際運動員的評論都會招來中共政府的嚴厲批評。而來自中國足球傳奇人物的批評，中共是不可想象的，甚至有些迷惑。
 
-閱讀原文：[On the Chinese Communist Party’s Obscene Propaganda](https://www.state.gov/on-the-chinese-communist-partys-obscene-propaganda/)
+到週四下午，郝海東的視頻即使是在被中共屏蔽的YouTube發佈，也引起了國內巨大的轟動。這似乎讓網民和當局一樣困惑：視頻是偽造的嗎？應該譴責還是忽略？體壇週刊—當局運營的運動網站很快作出反應：「郝海東發表的演講，顛覆政府，損害國家主權，利用冠狀病毒疫情抹黑中共政府，並散布香港謠言，我們對此強烈譴責。」
 
-*翻譯：【ddm】校對：【豆小豆】*
+不久後，標題編輯了郝海東的名字，僅用字母H代替，因為他的名字已經成為敏感詞。幾小時後，中共政府徹底刪除了所有國內互聯網提到該事件的報道，就像它從未發生過。
+[!\[\](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/63e22267-a4c2-4e00-966d-516f56f8f1d8.jpg?asset_id=09cdfc14-0c7a-4272-99c0-abe5fb04fe50&amp;img_etag=%22bc05bf73f203e4cd29fd15ee40664558%22&amp;size=1024)](https://spark.adobe.com/page/OuZKQM5q7rGAw/images/63e22267-a4c2-4e00-966d-516f56f8f1d8.jpg?asset_id=09cdfc14-0c7a-4272-99c0-abe5fb04fe50&amp;img_etag=%22bc05bf73f203e4cd29fd15ee40664558%22&amp;size=1024)5月28日，中国国家主席习近平（右）和国务院总理李克强在北京人民大会堂出席全国两会。(Nicolas Asfouri/AFP/Getty Images)
+郝海東的微博賬戶也被刪除，他有將近800萬的關注者。虎撲網，中共國體育愛好者在線交流社區，警告用戶避談郝海東的「有害言論」。然後警告也消失了。
 
-*戰友之聲玫瑰園小隊出品*
+24小時內，根據互聯網監控網站freeweibo.com的數據，郝海東的名字已經超過「6-4」成為微博上最敏感的詞彙，1989年6月4日天安門大屠殺事件是永久的敏感詞。
+
+這週五，中共政府針對郝海東的視頻首次回應，駁斥他的言論是鬧劇。外交部發言人耿爽說：「我沒有任何評論」。
+
+郝海東先生被認為是中國最偉大的前鋒，退役後現在居住在西班牙，曾因為對中共足球管理部門的嚴厲批評而聞名，並沒有批判執政黨本身。但在此視頻中，他說，他對體育系統的腐敗徹底絕望演化成更深層次的不滿。他還嚴厲抨擊了普遍的欺詐行為和社會福利的缺乏。
+
+他對當局的炮轟可能不被視作大眾對該黨的看法的標準，但是郝海東可能是最具知名度的中共國公開強烈反對習近平執政下的政治領導的公民。
+
+郝海東的視頻對於生活在紐約的郭先生來說是一個小型政變的宣傳，郭先生曾被中共當局試圖指控一系列的罪名，包括欺詐，勒索和賄賂。
+
+逃出中共國後，曾經與中共頂級情報官員合作的郭，在2017年成為反政府者，他想通過在YouTube頻道揭露中共的秘密，承諾要推翻共產黨。郭的很多爆料還沒有證實或是假的，且形象有所下降。
+
+Axios曾稱，曾是房地產開發商的郭先生在2018年用幾百萬美元聘用史蒂夫K班農 – 前白宮首席戰略師和中共國批評者，來提升在美國的影響力。
+
+郭的YouTube頻道上本週播放了郝海東的視頻，還展示了郭和班農在紐約灣的一艘船上，在自由女神像前，班農宣讀英文版宣言，稱要建立新中國。
+
+[原文鏈接](https://www.washingtonpost.com/world/asia_pacific/chinese-soccer-superstar-hao-haidong-calls-for-ouster-of-communist-party-stunning-nation/2020/06/05/9ae91df2-a6ec-11ea-898e-b21b9a83f792_story.html)
+
+[中英對照翻譯](https://spark.adobe.com/page/OuZKQM5q7rGAw/)
+
+#### **編輯：【喜馬拉雅戰鷹團】**
+
+
 
 0
