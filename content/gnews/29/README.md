@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月6日中共病毒疫情要聞快報
-`2020-06-06 19:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/224952/)
+## 【世界多語言圖文】05/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-06 21:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/225120/)
 
-**重點內容：**
+戰友之家圖文摘要組及小語種組
 
-- 8國議員結成“滅共聯盟”，共商對華方針；
-- 美參議員力挺郝海東挺身滅共；
-- 地攤經濟將遭封殺？
-- 大學報告：近10億國人月收入不過2000元；
-- 山東淄博，化工廠氯氣洩漏。
+[English\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)
 
+[French\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)
 
+[German\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)
 
+[Japanese\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)
 
-製作：【上天造 滅疫組】
+[Korean\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)
+
+[Russian\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)
+
+[Spanish\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)
 
 0
