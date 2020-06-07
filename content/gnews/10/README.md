@@ -1,23 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】05/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-06 21:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/225120/)
+## 紐約上空出現 &#8220;慶祝新中國聯邦 &#8220;的神秘橫幅
+`2020-06-07 06:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/225333/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/07062434/1-51.png)
+在新型冠狀病毒感染爆發之際，黑人男子喬治・佛洛伊德之死再次引發紐約市的混亂：抗議、騷亂、搶劫，各種問題層出不窮。 在混亂之中， 6月3日晚間（中國時間4日凌晨）左右，8架掛著橫幅的螺旋槳飛機在曼哈頓以南和東部的布魯克林上空飛翔，橫幅上寫著 “祝賀新中國聯邦！”
 
-[English\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213824/English_0605_CCP_Virus_Updates.pdf)
+**Congratulations to Federal State of New China!**
 
-[French\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213830/French_0605_CCP_Virus_Updates.pdf)
+看到這一幕的人不明白怎麼回事，紛紛在社交媒體上問到：”這是什麼意思? “非營利組織 “人權觀察 “的亞洲宣傳主任西夫頓先生也是其中的目擊者之一。
+同時，紐約市時代廣場的數字標牌上也出現了類似的信息。
 
-[German\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213836/German_0605_CCP_Virus_Updates.pdf)
+根據後來當地媒體的報道，這是為了在天安門事件 31周年這一天宣布新中國聯邦成立而拉的橫幅。本次活動是前白宮首席戰略官、政治活動家史蒂夫-班農（SteveBannon）和2014年逃離中國商人郭文貴共同發起的。
 
-[Japanese\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213843/Japanese_0605_CCP_Virus_Updates.pdf)
+郭文貴當天在紐約港的一艘遊艇上，在可以望到自由女神像的地方，通過直播向該地區和全世界發表了宣言。宣言中說：”從今天起，中共政府不再是中國的合法政府。 我們得到了數百個國家的支持。 我們基於和平、法治和人道主義之上而向所有人宣告。”
 
-[Korean\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213848/Korean_0605_CCP_Virus_Updates.pdf)
+由於信息不明，很多人都認為這有些超乎想像。 但當人們知道了它的含義後，推特上也發來了許多祝賀的聲音。
 
-[Russian\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213855/Russian_0605_CCP_Virus_Updates.pdf)
+郭文貴過去經常批評中國政府。關於新型冠狀病毒的爆發，他也堅持認為病毒 “起源於武漢研究所 “。發表在班農和郭文貴共同創立的網路媒體Gnews上的一篇與新冠病毒相關的文章中，報道了 “中國政府準備承認該病毒發生在武漢病毒研究所P4實驗室。”
 
-[Spanish\_0605\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/06213900/Spanish_0605_CCP_Virus_Updates.pdf)
+另外，6月5日白宮新聞秘書辦公室定期推送的信息中，有關《天安門廣場大屠殺31周年聲明》部分內容如下：
+
+*今天，我們回顧31年前，中國各地數十萬中國公民在北京和平聚集的勇氣與樂觀主義精神。中共對手無寸鐵的平民的屠殺，是一場永遠不能忘記的悲劇。
+美方正敦促中國對已經死亡和仍在羈押和失蹤的人進行解釋。希望賦予人們在中國能夠追求作為公民的基本權利，包括言論、集會和宗教自由等權利。美國人民將繼續與中國人民站在一起。*
+
+[原文鏈接](https://news.yahoo.co.jp/byline/abekasumi/20200606-00182026/)
+
+翻譯報道：天天
 
 0
