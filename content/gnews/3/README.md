@@ -1,30 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國廠商被指控出口假冒劣質N95口罩到美國
-`2020-06-08 00:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/225986/)
+## 白宮2020年國家癌症倖存者日總統致辭
+`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08000720/1-54.jpg)
-新澤西區律師克雷格·卡朋尼托(Craig Carpenito) 和紐約東區律師理查德·董虎(Richard  Donoghue)今天宣布，一家中國生產商被指控在新冠肺炎暴發期間出口50萬假冒和劣質 N95口罩到美國。
+川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
 
-皇年包裝印刷公司(下面簡稱皇年公司)被指控違反三項聯邦食品藥物條例(FDCA)，包括,將冒牌和劣質口罩冒充為標準的N95醫用防護口罩在美國出售。原告還指控被告在美國食品藥品總署(FDA)的登記文件中提供虛假和誤導信息。這項犯罪指控在紐約布羅克林 (Brooklyn)聯邦法庭立案。
+Presidential Message on National Cancer Survivors Day, 2020
 
-卡朋尼托說，「這次指控立案證明了司法部及其同盟決心不放過任何出售假冒和劣質醫用防護用品的商家，不論這個商家是本地的還是國外的，我們將不遺餘力地調查和追究任何在我們與新冠病毒抗爭時,危害醫護人員和一線救援人員的商家.」   
-總檢察長威廉·巴爾(William Barr) 將這項工作的成效歸功於由卡朋尼爾律師領導的新冠病毒醫用防護用品囤積和抬價監督部，他們聯合反信託司和美國其它律師們一起調查任何有關醫用防護用品的違法行為。美國衛生與公共服務部秘書長發出通知，警告人們不要囤積和哄抬醫用品價格。 
- 
-紐約海關辦事處主任托尼·密勒(Tony Miller)說，美國海關能夠為執法部門提供專業協助和 參與調查而感到自豪，正是通過共同的合作和努力今天的控告才得以實現，我們要以此告 誡國外的商家其遵守美國衛生安全法的重要性。 
- 
-美國食品藥品管理局紐約分暑特別官員傑夫·愛博索(Jeffrey J Ebersole) 說，「美國食品藥品管理局正積極地監督市場上有關抗擊新冠病毒中出現的偽劣產品，我們將繼續與執法部 門合作對那些為圖謀利益而在疫情期間危害公眾健康的產家和商家繩之以法。今天的控告應該作為一個警示，我們會對那些企圖危害美國人民健康的個人或團體進行法律制裁。 
- 
-這次具體指控包括：  在2020年4月6日至2020年4月21期間皇年公司將49萬5千2百個劣質冒牌口罩冒充為標準 的N95醫用口罩出口到美國。他們在口罩印上”NIOSH” 和 “FDA” 的商標，並直接推薦給醫 護人員，而事實上這些口罩根本沒有得到 NIOSH 的認證，也沒有得到FDA 的認可和授權 ，這些口罩印有「N95」字樣，但根本沒有達到符合N95的最低標準。 
- 
- 
-  皇年公司的冒牌劣質口罩欺騙了消費者包括醫護人員和一線救援人員，讓醫護人員誤以為 這些口罩是合格的從而對醫護人員造成傷害。為了掩蓋他們產品的偽劣質量，皇年公司在 FDA 的登記認證文件上埴寫了假信息和假申明。上述每項指控的罰款可以是總損失額的2倍或總利潤的2倍，最高罰款額可高達每項50萬美元。 
- 
-如有發現醫用防護用品冒假，囤積或抬價的情況，請向國家災害和防假控制中心舉報，熱線電話(866)720—5721. email: [\[email protected\]](/cdn-cgi/l/email-protection)
+Issued on: June 7, 2020
 
-[原文鏈接](https://www.justice.gov/usao-nj/pr/chinese-manufacturer-charged-exporting-misbrand%20ed-and-defective-masks-falsely-purporting)
+### **白宮2020年國家癌症倖存者日總統致辭**
 
-翻譯報道：Amy Chian
+**發佈日期：2020年6月7日**
+
+Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
+
+今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
+
+Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
+
+儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
+
+Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
+
+展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
+
+The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
+
+第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
+
+閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
+
+*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
