@@ -1,25 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】06/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-08 07:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/226430/)
+## 新中國聯邦成立紀念八九六四天安門廣場上犧牲的勇士
+`2020-06-08 10:55 GM77` [轉載自GNews](https://gnews.org/zh-hant/226672/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)
-
-[French\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)
-
-[German\_0606\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)
-
-[Japanese\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)
-
-[Korean\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)
-
-[Russian\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)
-
-[Spanish\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+•班農先生十分榮幸的參與到爆料革命中，幫助中國人消滅中共，重新獲得自由和民主。
+•成立新中國聯邦直接和中共對抗，中共是一個流氓組織，他們不能繼續奴役中國人民了。
+•班農先生希望各位戰友每天都為自由而戰，盡管很艱難。我們活在一個不完美的世界，自由並不完美，但是比中共的集權好。
 
 0

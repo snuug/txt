@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港抗争手足眼中的《新中國聯邦六四建國宣言》
-`2020-06-07 20:52 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/225858/)
+## 白宮2020年國家癌症倖存者日總統致辭
+`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
 
-作者： Alan-喜马拉雅农场新西兰站
+川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/07204700/image0-43.jpg)
+Presidential Message on National Cancer Survivors Day, 2020
 
-由六四建國延伸到六四建國宣言，關於六四建國我相信支持爆料革命的戰友們並不陌生，從2017.01.26明鏡陳小平專訪郭先生第一次直播開始，作為由著滅共吹哨第一人的郭先生後續直播時曾多次講到2020.6.4之日就是中共滅亡之時、建國之日…
+Issued on: June 7, 2020
 
-然而 今年64因某些緣故中共並沒有如期i滅亡（我相信有一天郭先生會給大家一個滿意的答案，只是現在他不能講。沒關係，但我們能理解也還是堅定不移支持郭先生，支持爆料革命。）但在香港時間六四之日郭先生、班農在哈德遜河上宣佈成立新中國聯邦，美國紐約哈德遜河上以自由女神像為背景直播，共同發表建國宣言，宣佈成立「新中國聯邦」（New Federal State of China），誓言要推翻中共。
+### **白宮2020年國家癌症倖存者日總統致辭**
 
-隨著新中國的「國旗」在紐約上空飄揚這一刻開始，已正式向全世界宣告爆料革命「新中國聯邦」（New Federal State of China）的合法地位，同時也意味著中共政權的不合法性。中共對世界的滅絕人性的投毒已經讓全球陷入一場歷史性的災難，也引發了全球多國達成了一個共識：全球聯合滅共！只要團結剿滅共匪，中共滅亡不會是夢而是時間問題。
+**發佈日期：2020年6月7日**
 
-而對於我們香港支持爆料革命的抗爭手足們來講，「新中國聯邦」的成立，哪怕只是宣言，也讓我們多了一個希望，多了一個期待，也多了一份溫暖，至少世界各國如此懼怕中共的同時，還有郭先生關心著香港，支持香港，心系香港！也三年多堅定不移的滅共抗爭！
+Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
 
+今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
 
+Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/07204708/image0-85-1.jpg)
+儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
 
-香港是抗爭運動最前線，這場戰爭還並沒有結束，每天都會有人被捕、被死亡、被威脅、被強姦….. 面對中共軍政府獨裁強權，香港人 無路可退！只有兩個選擇，一是移民，二是繼續抗爭。‪對於我們來講，現在最逼切的，並非英國BNO的有效範圍，亦並非移民到歐美，若果CCP再放一個病毒美國英國真的安全嗎？？？CCP只要在地球一天，哪裡又有安全？？？
+Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
 
-所以 宣言對與我們來講多了一份期盼，我們還是會繼續誓死捍衛香港這片自由的土地，抗爭！香港是我們的家，我們哪裡也不會去，更不會移民！因為我們愛香港這個家。
+展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
 
-香港人 面對獨裁軍政府，我們無畏無懼！越打壓越頑強，會為自由 堅持到底，為民主 義無反顧；為公義 誓不低頭；抗爭到最後！
+The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
 
-#民主自由
+第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
 
-0
+閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
+
+*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

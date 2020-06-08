@@ -1,39 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮2020年國家癌症倖存者日總統致辭
-`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
+## 射向中共的精彩臨門一腳 郝海東葉釗穎伉儷之大義舉
+`2020-06-08 09:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/226566/)
 
-川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08093056/EZ4WyOtXsAAAfhV.jpeg)圖片來源：國際翻譯組
+北京時間 2020年六月四日, 喺新中國聯邦成立之日, 在鏡頭前面對十四亿華人及全世界的觀眾, 曾譽為 “中國足球先生” 嘅郝海东同世界羽墰女子冠軍的妻子叶钊颖女士共同亮相, 勇敢地向專制極權說: “不! “這舉動石破天驚, 震撼了中國體壇, 政壇, 全中國乃至全世界。 中共朝野上下一片嘩然。 一時間, 郝先生嘅幾百萬粉絲將偶像嘅消息散佈網路, 飛傳民間, 贏得一片片讚嘆敬佩之聲。
 
-Presidential Message on National Cancer Survivors Day, 2020
+幾十年來, 中共恐怖的高壓統治, 卑鄙地將個人的前途命運, 或父母妻子, 甚至親友嘅安危作為要挾, 逼迫打壓民眾, 使多數民眾在中共淫威下不得不低頭閉口, 苟且偸生。 一直以來, 不少有志之士, 不畏個人生死挺身對抗邪政, 但是隨之招來嘅慘絕人寰的迫害。 如同林昭遇, 罗克和张志新等先烈血淋淋嘅遭遇, 對於民眾形同無聲嘅恐嚇。
 
-Issued on: June 7, 2020
+在如此惡劣的人文環境下, 等同於槍口之下生活, 民眾人人自危。 無論為官為民, 為咗生存, 不得不學會帶埋虛偽嘅 “面具” 無法講真話講事實。 氷凍三尺非一日之寒。 七十年, 上至百官, 下至百姓, 早已不知中華民族千年傳承嘅誠信良知為何物。 人與人之間的交往, 爾虞我詐, 自欺欺人, 已經成為社會常態。 中共建政 70年, 壟斷資源, 壟斷輿論, 謊言治國將整個民族的生存目的推向喺金錢同欲望, 權力和名利中掙扎。 在人類社會一旦衝破了做人的底線, 必定會邪惡橫行, 社會道德良知嘅堤壩必然會轟然崩塌。 如今, 中國的現狀, 病入膏肓, 係去親下, 人人心知肚明。
 
-### **白宮2020年國家癌症倖存者日總統致辭**
+就在中共專制下民眾集體沉倫中苟且偸生緊之際, 郝海东同叶钊颖伉儷挺身而出, 作為爆料革命嘅戰友, 一針見血地指出: “一個民族一個國家一個社會連講真話都要干預了, 係呢個民族嘅悲哀係呢個國家嘅悲哀係呢個社會的悲哀, 更是我們每一個人的悲哀。 “
 
-**發佈日期：2020年6月7日**
+如果說中國的有識之士如人稱大炮的任志强, 清華教授许章润, 中央黨校教授蔡霞等人不畏強權, 在高壓下仍然夠膽發出脫光衣服都要當皇帝的小丑, 敦促撤換不願自動下台, 德不配位的戀權者等大膽言論, 是一種對極權專制的挑戰的話, 咁, 郝海东伉儷的義擧則是直搗黃龍的一劍封喉: 推翻共產黨, 建立新中國。
+郝海东代表億萬爆料革命戰友, 慷慨激昂宣讀 “新中國聯邦宣言”: “中共極權統治已經發展成為徹底的反人類暴行。 佢無視人權, 摧毀人性。 踐踏民主、違反法制、撕毀合約、血洗香港、殺害藏民、輸出腐敗、危害全球。 消滅中共, 係正義嘅需要。 “
 
-Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
+在面對億萬觀眾, 郝海东感慨地說: 自己踢咗一世波, 到50岁才發現自己踢錯了門, 真正要破嘅門係共產黨政權。 今日, 他之所以企出嚟, 就係要話畀中國人, 十四亿同胞唔可以再受共產黨的奴役了。 郝海东先生和叶钊颖女士面對驚濤駭浪挺身而出, 必將激勵全世界華人團結起來, 共同推翻邪惡專制的中共。
 
-今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
+壯哉! 當年的亞洲第一前鋒, 如今重披戰袍, 成為全球滅共嘅主力。 郝海东先生精彩的臨門一腳, 足以名垂青史! 在此, 僅向郝海东先生, 叶钊颖女士致以深深的敬意!
 
-Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
+（文章內容僅代表作者觀點）
 
-儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
-
-Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
-
-展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
-
-The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
-
-第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
-
-閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
-
-*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
-
-*戰友之家玫瑰園小隊出品*
+文章作者：文麗
+編輯校對：瑞安平
 
 0
