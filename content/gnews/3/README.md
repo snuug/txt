@@ -1,39 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮2020年國家癌症倖存者日總統致辭
-`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
+## 找漏洞 打補丁 滅共模式即將開啟
+`2020-06-08 06:23 GM67` [轉載自GNews](https://gnews.org/zh-hant/226337/)
 
-川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
+By文和
 
-Presidential Message on National Cancer Survivors Day, 2020
+2020-06-08
 
-Issued on: June 7, 2020
+自“爆料革命”不斷吹哨世界以來，西方民主社會對中共恐怖組織從漠不關心，毫不相信，到將信將疑，到幡然醒悟，到如今呼之欲出的全面對抗，其中經歷了痛苦的抉擇，也付出了昂貴的代價。尤其是，自香港和平抗議和中共病毒事件以來，全世界已逐步將目光聚焦在中共偽政權身上。中共與普世價值為敵的醜惡嘴臉，已徹底讓文明社會清醒。爆料革命的信譽逐步得到驗證，也預示著全世界圍剿中共之開始不遠矣。
 
-### **白宮2020年國家癌症倖存者日總統致辭**
+**敵人的厚禮**
 
-**發佈日期：2020年6月7日**
+在這場民主與專制，文明與野蠻，正義與邪惡，人性與獸性，良善與醜陋的戰爭中，中美雙方一暗一明，一攻一守。從某種角度講，最大的戰友不是川普總統，而是主動暴露的中共自己。
 
-Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
+2019年的中美貿易談判中，中共出爾反爾，只能算是其在流氓舞臺上的預熱。在香港反送中過程中，沒有中共自恃世界金主，吆三喝四，頤指氣使，霸道杠上正常自由表達NBA總裁，沒有中共下架“南方公園”，普通美國民眾哪裡知道自己正常的生活方式居然冒犯了“厲害了我的國”的中共——這個黑社會老大。再者，如果沒有中共的隱瞞疫情，沒有中共滿世界放毒，沒有中共甩鍋美軍，沒有中共的利用世界捐助的醫療物質坐地起價，沒有習近平用10億口罩威脅法國不准放棄華為5G等等反人類反人道行經，西方社會怎能理解爆料革命的意義。
 
-今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
+剛剛結束在央視對美國現任官員蓬佩奧個人的口誅筆伐之後，病毒未消，中共居然買通極左恐怖勢力Antifa，在美國各地人為製造混亂，並花錢雇請留學生直接參與暴亂，證據確鑿。更令中共得意的是，美國大街上居然出現了一群揮舞中共黨旗，用英文喊文革式口號的西方文化大革命隊伍！
 
-Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
+殊不知，美國連政府關門數月都能正常運轉的國家，在乎你這暫時的表演嗎？自己給別人遞刀都渾然不覺，哪裡能找到如此稱職的“隊友”？
 
-儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
+**民眾的覺醒**
 
-Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
+隨著中共港版國安法的推進，以及疫情調查的深化，世界對中共的面目已看得清清楚楚。除了那些僅為一兩百塊美元而出賣自己靈魂的癮君子，有基本正義良知的人誰願意和中共合作，誰不會在哨聲中驚醒？
 
-展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
+素有極左堡壘之稱的好萊塢和中共歷來勾勾搭搭，在川普上臺之際，諸多大佬紛紛嗆道：“如果川普上臺，自己就移民海外”。現如今，連安吉麗娜·朱莉的父親，著名演員Jon Voight公開月臺，為川普的政策鼓掌叫好，並贊其為林肯之後最偉大的總統！沒有中共的反面助攻，會有如此戲劇性的翻轉？！
 
-The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
+昨日，臺灣前親共總統候選人，高雄市市長韓國瑜，被93萬選票罷免市長，創下歷史。僅一年前，還呼聲極高有機會問鼎總統寶座的韓國瑜，因親共而被中共火箭般抬進本屬綠營票倉的高雄。如今成也蕭何敗也蕭何，不是中共在香港和世界的倒行逆施，兩年前，臺灣民眾能相信“爆料革命”的情報？
 
-第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
+美國民眾覺醒的例子單就這幾天就俯仰皆是。在這次中共操縱的暴亂中，許多巾幗英雄自發組織起來組成人牆隔開所謂抗議的隊伍，步槍協會成員自發用槍來保護社區，威懾暴徒，華盛頓特區周邊的退伍老兵整裝待發，威風凜凜，保護白宮保護川普總統，沒有認知的覺醒，能出現這些感人一幕幕？
 
-閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
+**政府的行動**
 
-*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
+正義只會遲到，絕不會缺席。房間髒了，亂了，會得到整理。世界也一樣，基於民意的民主政府也自然會聆聽選民的聲音，開始清理藏汙納垢的世界秩序。面對中共威脅，西方國家全面對抗的姿態明顯。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08061944/1-65.jpg)
+上月，澳洲提議對病毒源頭展開調查。這本是連包括中國人民在內世界人民都會拍掌稱快的提議，中共卻惱羞成怒，當即就對來自澳洲的大麥，葡萄酒和牛肉施以80%的徵稅。昨天上午，莫里森宣佈全面改革外國投資法案，所有“敏感”收購案都必須獲得審批。當晚，中共文化旅遊部就“提醒”中國遊客切勿去澳洲旅遊。可見，澳中之間的劍拔弩張，和澳洲政府死磕中共的堅定決心。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062010/2-49.jpg)
+上周，中共阻擋美國航空公司恢復中國航班，川普總統旋即威脅六月中旬禁止中國航班飛美國。不到24小時，中共服軟，允許95家國際航空公司每週有一班飛中國。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062026/3-27.jpg)
+近日，川普決定把七國集團峰會擴大，讓俄羅斯、印度、澳大利亞和韓國加入進來，明擺著要召集一些盟友和疫情的“受害國”一道向中共施壓，這是川普所進行的一種團結盟友，共同應對中共的開始。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062040/4-23.jpg)
+週五（6月5日），來自9個國家和地區的國會議員，分別是澳大利亞、加拿大、歐洲議會、德國、日本、挪威、瑞典、英國及美國組成“[對華政策跨國議會聯盟](https://www.ntdtv.com/gb/%E5%AF%B9%E5%8D%8E%E6%94%BF%E7%AD%96%E8%B7%A8%E5%9B%BD%E8%AE%AE%E4%BC%9A%E8%81%94%E7%9B%9F.htm)”宣佈啟動。意在促進民主國家國會議員加深合作，在中國相關問題上協調對策，制定出積極而有戰略性的應對方案。
 
-*戰友之家玫瑰園小隊出品*
+流氓向來都是恃強淩弱，柿子揀軟的捏，如你表現得像加拿大的小土豆，迎接的是讓你空載而歸的飛機。和流氓打交道，就得學習川普總統的“真善狠”。相信未來，套在中共脖子上繩索將會越來越緊。各國政府公開支持“新中國聯邦”的那一刻，一定讓中共膽顫心驚。
+
+**注：本文僅代表作者本人觀點**
 
 0

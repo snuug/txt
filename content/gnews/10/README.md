@@ -1,82 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七十年目睹之怪現狀
-`2020-06-08 01:50 GM30` [轉載自GNews](https://gnews.org/zh-hant/226053/)
+## 白宮2020年國家癌症倖存者日總統致辭
+`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
 
-**作者：豬邏輯公園**
+川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
 
-中華文明，源遠流長。然七十余年共産毒瘤之下，滿目瘡痍，整整兩三代國人，曆盡多少磨難困苦？
+Presidential Message on National Cancer Survivors Day, 2020
 
-從百家爭鳴，到引蛇出洞。
-從三反五反消滅精英打倒鄉紳，到三年人爲饑荒人吃人屍橫遍野。
-從毛賊大興土木行宮61座，到中南坑吃喝拉撒空氣特供。
-從資産階級走狗滿門抄家遊街示衆，到大筆一揮上山下鄉、與天地鬥。
-從文革湖南道縣、北京大興、廣西大屠殺砍頭活埋挖心，到重慶武鬥械鬥林昭子彈費張志新割喉。
-**——行盡皇權暴力，耍盡帝王權謀厚黑術，生靈塗炭。**
+Issued on: June 7, 2020
 
-從人多力量大鼓勵多生，到計劃生育強行墮胎。
-從大煉鋼鐵畝産萬斤，到引進俄羅斯豬瘟神操作。
-**——屁股一拍，決策一來。治國無方，無知愚昧。**
+### **白宮2020年國家癌症倖存者日總統致辭**
 
-從83年嚴打踐踏人權精神潔癖隨意強加流氓罪，到傻子瓜子“投機倒把”牟其中锒铛入獄。
-從袁氏兄弟慘遭迫害，到雷洋被作局嫖娼死。
-從因言獲罪因畫被禁，到微信建群封群封群建群封建社會。
-從打黑唱紅效忠紅黨，到以警治國以黑治國。
+**發佈日期：2020年6月7日**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08014305/1-57.jpg)
+Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
 
-從武漢大學生消失無名杳無音訊，到人體器官販賣活體標本。
-從打壓宗教信仰火燒基督教堂十字架，到抓捕律師學者告密老師。
-從坦克碾壓知識精英大學生，到香港黑警假警殘暴鎮壓年輕人……
-**——邪惡黑暗 罪大惡極。**
+今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
 
-到小悅悅街頭被碾壓無人問津，到貓狗怕人老人訛詐不敢扶。
-從中學生以強欺弱以富壓貧仗勢欺人，到下級見上級卑躬屈膝點頭哈腰奴相盡生。
-從狗血雞血戰狼電影抗日意淫劇，到歐美留學生家長會澳美加業主大會齊聚一堂。
-從和尚左摟右抱豪車駕送高唱共黨，到央視大妓院你睡我睡大家睡笑貧不笑娼。
-**——盛世末年世態炎涼亂象叢生冷漠無情。**
+Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
 
-從夏樹斌冤假錯案，到山西的煤窯黑奴工。
-從吐槽鴻毛藥酒被跨省抓捕，到汶川報道危房被控被抓。
-到黨衛隊清理低端人口永別帝都，到城管粗暴執法強拆警察肆意抓捕拘禁。
-**——蔑視生命，踐踏人權。**
+儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
 
-從天津居民區化工廠大爆炸，到青島輸油管道泄漏爆炸。
-到唐山大地震無需外援，到三峽大壩抗洪百年。
-從河南駐馬店水庫潰壩，到腦殘呆板的工程設計紙糊的樓房橋梁隧道。
-**——人命關天，事故不斷，危險連連。**
+Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
 
-從蘇丹紅瘦肉精催熟劑地溝油三聚氰胺福爾馬林，到極高牟利的大學、醫療、殡葬、過橋過路費。
-從濰坊高壓水泵地下水汙染遺禍百年，到造假疫苗有毒奶粉大頭嬰兒。
-從黃紅藍幼兒打針性侵家長封口，到幼兒小學聽黨話跟黨走。
-**——斷子絕孫喪盡天良。**
+展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
 
-從霧霾防激光漁網防潛艇到戴套不算強奸
-從房價由丈母娘推動，到與黑暗和解精神防霧霾。
-從歪叫部指鹿爲馬華蠢瑩無法呼吸，到新聞聯播瞪眼瞎話放狗屁
-從精神病國大內宣大外宣變態的疫情宣傳操弄輿論，到美帝日本搬起石頭砸自己的腳亂成一鍋。
-**——邏輯混亂，混淆視聽，愚民有術厚顔無恥，滑天下之大稽。**
+The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
 
-從老無所依生活無望侵占貧困戶低保費，到官員餐桌飽嘗山珍海味浪費無度。
-從公路三年兩頭修房子三年兩頭拆，到和諧社會代三個表悶聲發大財。
-從昨天偉大光榮正確不忘初心，到今天違法亂紀锒铛入獄悔不當初。
-從半壁江山養紅顔情人美人幾代包，到滿朝文武藏綠卡房多多票子多多。
-**——腐敗墮落，糜爛至極。**
+第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
 
-從醫療社保報銷目錄，到房産公攤、70年産權，劣質産品。
-從教師教授無心授課課後輔導，到股市裏刀光劍影割盡韭菜坑死散戶。
-從央企國企機關單位吃拿卡要做吃空饷，到百姓民企拼死拼活早九晚五不辭勞苦屢被盤剝。
-從P2P收割血汗錢無數百姓申訴上吊，到農民進京宿夜排隊幾公裏信訪訴苦無門。
-**——拜金向錢看，玩盡各種壓榨貓膩五花八樣。**
+閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
 
-從沙俄割土150萬平米屁聲不敢，到印尼排華屠華默不作聲。
-從大學男外留學生配女同學免費入學，到外籍考取清華北大易如反掌于國人。
-從凱子外交撒幣大帝援持亞非拉千萬億跪求俄爹高價石油，到花錢雇人自拍馬屁贊我大中華。
-——量盡我中華物力，結與國之歡心，撒幣奴才，賣國求榮。
+*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
 
-共産黃禍，千年浩劫，罪大惡極，必遭天譴。
-
-（文章內容僅代表作者觀點）
+*戰友之家玫瑰園小隊出品*
 
 0
