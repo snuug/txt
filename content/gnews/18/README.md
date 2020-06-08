@@ -1,41 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共剛剛通過張曉明之口發出對香港動手的必殺令
-`2020-06-08 08:57 Diago` [轉載自GNews](https://gnews.org/zh-hant/226521/)
+## 英國外交政策大變，加強與「五眼」聯盟的合作
+`2020-06-08 09:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/226533/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08085138/BxV1Y-FIMAM4qGP_%E5%89%AF%E6%9C%AC.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08091319/1-64.png)
+據英國《每日郵報》6月7日的報道，首相鮑里斯•約翰遜（Boris Johnson）上周在國家安全委員會的會議上宣布英國將採取行動結束對中共國的技術依賴。
 
-據[**大公報-大公網**](https://weibo.com/1895431523?refer_flag=1001030103_)[2020年6月8日19:58](https://weibo.com/1895431523/J5IFf5Ivp?from=page_1002061895431523_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)新浪微博
+英國這一外交政策重大變化的主旨就是與「五眼」情報聯盟夥伴建立更深厚的合作關係，共同在中國佔主導地位的技術領域進行大量投資。
 
-【基本法研討會金句回顧｜張曉明：“港區國安法”為香港裝上“殺毒軟體”】特區政府今日（8日）舉辦基本法頒佈三十周年網上研討會。國務院港澳辦副主任張曉明在致辭時指，“港區國安法”立法是香港回歸以來，中央處理香港事務最重大的舉措之一，是“一國兩制”實踐過程中，具有歷史意義的一件大事，也是基本法實施的一個里程碑。[O基本法研討會金句回顧｜張曉明：「港區國安法」為香港裝上「殺毒軟件」](http://t.cn/A62rjtYA)[L大公報-大公網的微博視頻](http://t.cn/A62rjfML)[收起全文d](void%280%29;)
+上周二，來自澳大利亞，加拿大，紐西蘭，美國，和英國的部長及情報首腦認真討論了如何在西方技術領域「縮小差距」的計劃，包括緊急尋求一種西方國家獨有的解決方案來促進5G技術發展，培養專業人才
 
-在視頻中張曉明殺氣騰騰地說——
+一月份訪問英國的美國官員提出了由西方的企業集團替代中共國技術巨頭華為的想法，但由於所需時間太長，因此被排除在外。然而，據內閣和白廳的消息人士證實，約翰遜先生已放棄這一立場，並希望英國要在結束西方對中共國的依賴方面扮演世界領先的角色。
 
-【這是香港回歸以來中央處理香港事務**最重大的舉措之一**，是一國兩制實踐過程中具有歷史意義的一件大事，也是《基本法》實施的一個里程碑，國家安全底線愈牢，一國兩制空間愈大，香港局勢的發展變化，**已經到了鄧小平先生所講的‘非中央出手不行’的地步**，**中央出手既是勢在必行，也是理所當然。**有不少朋友跟我說，他說這次中央出手是香港反對派和激進分離勢力逼出來的，我一定程度上認同這個說法，**他們把中央和特區政府的克制忍讓當作軟弱可欺，做得太過分了。**現在越來越多的人痛定思痛，意識到港獨是政治病毒，也是暴恐活動的溫床，**如果任由其傳播肆虐，成規模、成氣候，全社會都要付出慘痛代價。所以必須零容忍。**有了這部立法一國兩制在香港的實踐，就裝上了**殺毒軟體**，必定會運行的更安全、更順暢、更持久！】
+白廳一位資深消息人士表示，英國在科學和技術的許多主要市場失去了專業技術的主動性，因此陷入了目前的華為亂局。英國單打獨鬥是不現實的，這種現象也不是英國獨有，整個西方國家都感到了這一問題。因此，在這方面，英國將與其他合作夥伴協力填補目前正被中共國利用的空白。
 
-與此同時，國內的媒體紛紛轉發此類消息——
+在星期二的會議之前，中共政府就多次警告英國不要偏離目前的密切外交和貿易關係。但是，Covid-19疫情的爆發以及香港的局勢加強了唐寧街10號「重置和重新平衡」與中共國關係的決心。內政大臣帕蒂（Priti Patel），國防部長本•華萊士（Ben Wallace）和外交大臣多米尼克•拉布（Dominic Raab）也都要求對中共國關係採取更強硬的路線。
 
-[張曉明:國家安全底線愈牢 “一國兩制”空間愈大](https://www.baidu.com/link?url=p1v0vDQpzJAe4Dgm03Qx7CwnQ0kppDaHppaTAr6AswWjjNOz3seEdB4nlEWxBxASm8X1RvMxjtKDWJ0Nfstj0A8J9hrXJTzcZCZRhwA4SkW) 新浪新聞
-國務院港澳辦副主任張曉明通過視頻連線方式發表題為《國家安全底線愈牢 “一國兩制”空間愈大》主題演講。 針對日前全國人大通過涉港國安立法的決定…
+[原文鏈接](https://www.dailymail.co.uk/news/article-8395453/Boris-Johnson-plans-closer-pact-UKs-Five-Eyes-intelligence-partners.html)
 
-2小時前[張曉明:香港有人把中央克制忍讓當作軟弱可欺](https://www.baidu.com/link?url=fKAPZIEFWIL55dy6uG-6_QorfOd646aPPOXtY_mb-65uk2l9GN5gzWuAJEF35zt0rqVIxhIzcqE8yVMZHCO9pwSUM9HWIf4Ip4_F4XQIPCO) 新浪
-
-3小時前[張曉明萬字演講回答“誰人真心為香港?” 全文來了](https://www.baidu.com/link?url=p1v0vDQpzJAe4Dgm03Qx7CwnQ0kppDaHppaTAr6AswZWJS7qltCP_FBMAZM41nE8ouRxBY5bzo6rEXubKhecQ3gUm2Vn8hAJ6WeZCZcPAJy) 新浪新聞
-
-3小時前[國務院港澳辦張曉明:“港獨”是“政治病毒”,所以必…](https://www.baidu.com/link?url=5ovEvY5bLvNm4H4ccA_EX5bau7u5cP6jN7GaLC0tHn3wYAvW4XdCEMTvn9k5CwwRmkE-BKVs9DM_UxOvLCufdK) 網易
-
-3小時前[張曉明:香港局勢發展變化已到了“非中央干預不行”…](https://www.baidu.com/link?url=yuDsPRPbpHWHM0udOjnMueuMG0C5yYCLPIuMZcAzv8WKxil3KNZsoQ0-EYMsGOpV) 鳳凰網
-
-[張曉明:有人把中央克制忍讓當作軟弱可欺|基本法|一國兩制\_新浪新聞](https://www.baidu.com/link?url=0Hc_qKkBbDKjCpkyZiH_xGdCt7kKJQ699XJSkqWYNQbuaDrJ9zZ3jmI5FpRY8FUv-gewY2VDFxgDV-gUAkb_6e6cpB0ZRVwj5TvcBdCA8gS)
-
-4小時前 – 國務院港澳辦常務副主任張曉明出席研討會,並就《基本法》、“一國兩制”和國家安全課題發表主題演講。他表示,國家安全底線越牢,“一國兩制”空間越大…[新浪網](https://www.baidu.com/link?url=0Hc_qKkBbDKjCpkyZiH_xGdCt7kKJQ699XJSkqWYNQbuaDrJ9zZ3jmI5FpRY8FUv-gewY2VDFxgDV-gUAkb_6e6cpB0ZRVwj5TvcBdCA8gS)
-
-中共已經借張曉明之口向香港發出了必殺令，天佑香港！
-
-在此危機之刻，滅共晚一秒就意味著更多的流血和犧牲，天佑華夏！
-
-（文章內容僅代表作者個人觀點）
+翻譯整理：文旺
 
 0

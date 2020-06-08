@@ -1,43 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從美國、伊朗駐華使館的隔空對戰看背後的暗勢力助推
-`2020-06-08 08:11 Diago` [轉載自GNews](https://gnews.org/zh-hant/226471/)
+## 中共剛剛通過張曉明之口發出對香港動手的必殺令
+`2020-06-08 08:57 Diago` [轉載自GNews](https://gnews.org/zh-hant/226521/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08075224/220779910552263.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08085138/BxV1Y-FIMAM4qGP_%E5%89%AF%E6%9C%AC.jpg)
 作者：Diago
 
-據[美國駐華大使館](https://weibo.com/usembassy?refer_flag=1005055013_)[6月6日 15:21](https://weibo.com/1743951792/J5nZF4lAe?from=page_1001061743951792_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/PBP2P)的新浪微博：
+據[**大公報-大公網**](https://weibo.com/1895431523?refer_flag=1001030103_)[2020年6月8日19:58](https://weibo.com/1895431523/J5IFf5Ivp?from=page_1002061895431523_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)新浪微博
 
-【伊朗如此解決通貨膨脹：貨幣減少幾個零。伊朗政權拿出一項控制國家高達40%以上通貨膨脹率的新方案。然而，它不是要減少對在敘利亞、黎巴嫩、葉門等地的恐怖主義組織的億萬美元資助，而是將伊朗裡亞爾（rial）的幣值減去4個零，並在一兩年裡將貨幣的名稱改為土曼（toman）——好了，問題解決了！ [°伊朗如此解決通貨膨脹：貨幣減少幾個零](http://t.cn/A62nxhhR)[收起全文d](void%280%29;)】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08075640/67f297b0gy1gfh4kcvv3oj20rs0fm1kx.jpg)
-在美國駐華使館的這條博文發出去不到六個小時，伊朗駐華使館的回應來了——
+【基本法研討會金句回顧｜張曉明：“港區國安法”為香港裝上“殺毒軟體”】特區政府今日（8日）舉辦基本法頒佈三十周年網上研討會。國務院港澳辦副主任張曉明在致辭時指，“港區國安法”立法是香港回歸以來，中央處理香港事務最重大的舉措之一，是“一國兩制”實踐過程中，具有歷史意義的一件大事，也是基本法實施的一個里程碑。[O基本法研討會金句回顧｜張曉明：「港區國安法」為香港裝上「殺毒軟件」](http://t.cn/A62rjtYA)[L大公報-大公網的微博視頻](http://t.cn/A62rjfML)[收起全文d](void%280%29;)
 
-[伊朗駐華大使館](https://weibo.com/u/2312751365?refer_flag=1005055013_)[6月6日 21:15](https://weibo.com/2312751365/J5qjwaIk3?from=page_1001062312751365_profile&amp;wvr=6&amp;mod=weibotime)新浪微博：
+在視頻中張曉明殺氣騰騰地說——
 
-【——美國如此解決經濟危機：瘋狂印鈔。
-——美國如此解決新冠疫情：甩鍋退群。
-——美國如此解決種族問題：跪脖鎖喉。
-好了，所有的問題都解決了！不過，皇帝的新衣早已被揭穿，“自由民主燈塔”的戲還演得下去嗎？ [L伊朗駐華大使館的微博視頻](http://t.cn/A62my8Aw) 】​​​​
+【這是香港回歸以來中央處理香港事務**最重大的舉措之一**，是一國兩制實踐過程中具有歷史意義的一件大事，也是《基本法》實施的一個里程碑，國家安全底線愈牢，一國兩制空間愈大，香港局勢的發展變化，**已經到了鄧小平先生所講的‘非中央出手不行’的地步**，**中央出手既是勢在必行，也是理所當然。**有不少朋友跟我說，他說這次中央出手是香港反對派和激進分離勢力逼出來的，我一定程度上認同這個說法，**他們把中央和特區政府的克制忍讓當作軟弱可欺，做得太過分了。**現在越來越多的人痛定思痛，意識到港獨是政治病毒，也是暴恐活動的溫床，**如果任由其傳播肆虐，成規模、成氣候，全社會都要付出慘痛代價。所以必須零容忍。**有了這部立法一國兩制在香港的實踐，就裝上了**殺毒軟體**，必定會運行的更安全、更順暢、更持久！】
 
-其實流氓和紳士在一起辯論本來就是不講理的，那麼伊朗這個流氓和中共國內媒體廣為流傳的這個視頻到底有什麼故事呢？
+與此同時，國內的媒體紛紛轉發此類消息——
 
-[據Tiago \[email protected\]\_tiago](https://twitter.com/zhou_tiago)Replying to [@hjjohnson17](https://twitter.com/hjjohnson17)and [@Mandy42896722](https://twitter.com/Mandy42896722)·[12:25 PM • Jun 6, 2020](https://twitter.com/zhou_tiago/status/1269123322282938368)[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)的推文（注：因推文原視頻不能播放，該視頻與伊朗駐華使館新浪博文的視頻為同內容視頻）：
+[張曉明:國家安全底線愈牢 “一國兩制”空間愈大](https://www.baidu.com/link?url=p1v0vDQpzJAe4Dgm03Qx7CwnQ0kppDaHppaTAr6AswWjjNOz3seEdB4nlEWxBxASm8X1RvMxjtKDWJ0Nfstj0A8J9hrXJTzcZCZRhwA4SkW) 新浪新聞
+國務院港澳辦副主任張曉明通過視頻連線方式發表題為《國家安全底線愈牢 “一國兩制”空間愈大》主題演講。 針對日前全國人大通過涉港國安立法的決定…
 
-> 被推倒的白人老头所谓的流血是道具血包，后脑根本没有着地。白人老头走上去骚扰警察之前被拍到和NRP的记者在一起谈话。整个事情就是安排好了的一出戏。从而达到操控舆论的目的。 [pic.twitter.com/YO7FWxhEnX](https://t.co/YO7FWxhEnX)
-> — Tiago Zhou (@zhou\_tiago) [June 6, 2020](https://twitter.com/zhou_tiago/status/1269123322282938368?ref_src=twsrc%5Etfw)
+2小時前[張曉明:香港有人把中央克制忍讓當作軟弱可欺](https://www.baidu.com/link?url=fKAPZIEFWIL55dy6uG-6_QorfOd646aPPOXtY_mb-65uk2l9GN5gzWuAJEF35zt0rqVIxhIzcqE8yVMZHCO9pwSUM9HWIf4Ip4_F4XQIPCO) 新浪
 
-【被推倒的白人老頭所謂的流血是道具血包，後腦根本沒有著地。白人老頭走上去騷擾員警之前被拍到和NRP的記者在一起談話。整個事情就是安排好了的一齣戲。從而達到操控輿論的目的。】
+3小時前[張曉明萬字演講回答“誰人真心為香港?” 全文來了](https://www.baidu.com/link?url=p1v0vDQpzJAe4Dgm03Qx7CwnQ0kppDaHppaTAr6AswZWJS7qltCP_FBMAZM41nE8ouRxBY5bzo6rEXubKhecQ3gUm2Vn8hAJ6WeZCZcPAJy) 新浪新聞
 
-這條推文也是個人觀點，但是在詳細看了照片後，我得出的結論就是這個老人摔地流血有兩個蹊蹺點：
+3小時前[國務院港澳辦張曉明:“港獨”是“政治病毒”,所以必…](https://www.baidu.com/link?url=5ovEvY5bLvNm4H4ccA_EX5bau7u5cP6jN7GaLC0tHn3wYAvW4XdCEMTvn9k5CwwRmkE-BKVs9DM_UxOvLCufdK) 網易
 
-1、他在與員警發生所謂的“衝突”前與NPR記者Mike Desmond在一起；
+3小時前[張曉明:香港局勢發展變化已到了“非中央干預不行”…](https://www.baidu.com/link?url=yuDsPRPbpHWHM0udOjnMueuMG0C5yYCLPIuMZcAzv8WKxil3KNZsoQ0-EYMsGOpV) 鳳凰網
 
-2、他身上裝有特殊的機關可以偽造流血的場景；
+[張曉明:有人把中央克制忍讓當作軟弱可欺|基本法|一國兩制\_新浪新聞](https://www.baidu.com/link?url=0Hc_qKkBbDKjCpkyZiH_xGdCt7kKJQ699XJSkqWYNQbuaDrJ9zZ3jmI5FpRY8FUv-gewY2VDFxgDV-gUAkb_6e6cpB0ZRVwj5TvcBdCA8gS)
 
-在這兩個蹊蹺點之下，這個老人摔倒了，流血了，被拍下視頻了，被傳到中國和伊朗了，被中共媒體和伊朗駐華使館用來反擊美國駐華使館了，這麼多的巧合碰在一起，我都不想再多說了，不過好在這個世界總有一雙雙閃亮的眼睛在盯著每一個場景，這一雙雙眼睛讓魔鬼在作惡的時候，總會在不經意間漏出馬腳。
+4小時前 – 國務院港澳辦常務副主任張曉明出席研討會,並就《基本法》、“一國兩制”和國家安全課題發表主題演講。他表示,國家安全底線越牢,“一國兩制”空間越大…[新浪網](https://www.baidu.com/link?url=0Hc_qKkBbDKjCpkyZiH_xGdCt7kKJQ699XJSkqWYNQbuaDrJ9zZ3jmI5FpRY8FUv-gewY2VDFxgDV-gUAkb_6e6cpB0ZRVwj5TvcBdCA8gS)
 
-說到這裡我們再回到正題來，本來美國駐華使館的博文是說了一個事實，對於流氓的伊朗來說，要麼否認，要麼搬出美國的陰暗面來反駁，哪怕這個陰暗面的操縱痕跡是如此的明顯，但是伊朗駐華使館是不用擔心的，中共也是不用擔心的，因為它們除了具有流氓的本性之外，它們還有美國等文明國家所不具備的武器，那就是——防火牆。在這一面製造罪惡、掩蓋真相的防火牆籠罩之下，善良的人們未必會看到這種操控的陰謀，甚至在不經意間成了流氓的幫兇和打手，而這些防火牆的核心技術和部件也正是來自美國這樣的文明國家，也就是美國等西方文明國家在與中共和伊朗這樣的流氓鬥爭的時候，他們一方面要面對國內白左勢力與流氓的勾結，一方面還要面對用美國自己發明的技術武裝起來的流氓，這想必這也是這場隔空對戰一方的美國駐華使館所始料而未及的吧？
+中共已經借張曉明之口向香港發出了必殺令，天佑香港！
+
+在此危機之刻，滅共晚一秒就意味著更多的流血和犧牲，天佑華夏！
 
 （文章內容僅代表作者個人觀點）
 

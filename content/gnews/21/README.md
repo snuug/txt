@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】06/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-08 07:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/226430/)
+## 起底中共企圖犯台之海軍裝備
+`2020-06-08 08:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/226479/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08083228/Picture-1-22.png)圖片來源：[https://upload.wikimedia.org](https://upload.wikimedia.org/wikipedia/commons/6/62/Type_075.jpg)
+值此諾曼底登陸戰役76週年之際，福布斯（Forbes）新聞網於2020年6月7日詳細報導了中共海軍攻台的裝備和登陸部隊。自從1949年中共偽政權建立以來，台灣長期被共軍武力所威脅。台海局勢隨著蔡英文總統第二任期的開始而更加緊張，文章作者援引路透社5月28日的報導指出，中共中央軍委聯合參謀部部長李作成（Li Zoucheng）上將近期宣稱可武力攻台以阻止其獨立。
 
-[English\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)
+然而，中共的傳統強項是陸軍而非海軍，所以並不擅長海戰或登陸作戰。但這並不妨礙後者長期對台灣施以武統威脅。有趣的是，中共偽政權海軍攻台這件事在上世紀90年代被歐美軍事專家視為“百萬人游泳跨越海峽”的笑柄。然而，報導認為最近中共海軍在裝備上似乎得到了明顯的提升。
 
-[French\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)
+**現代化的中共海軍**
 
-[German\_0606\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)
+中共海軍和二十年前相比最大的變化是增加了兩艘航空母艦，並配備了號稱可以和美國海軍“宙斯盾級”戰艦媲美的防空驅逐艦。正是因為列裝了新型驅逐艦和護衛艦、以及世界上最大規模的潛艇艦隊，中共海軍增強了深海作戰的能力並且可以包圍整個台灣島。相比之下，台灣的海軍則難以對付中共的侵略。然而，中共海軍的航母編隊位置卻可以被商業衛星所捕捉到。
 
-[Japanese\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)
+除大規模艦艇以外，中共海軍還大規模升級了各種兩棲登陸艦艇以便於部隊登陸台灣島。首先，中共海軍的主力是071型“玉洲級”（中共自稱“崑崙山級”）多功能兩棲船塢登陸艦。該艦類似於美軍的“聖安東尼奧級” 船塢登陸艦，可以停留在在離海岸較遠的海面上通過氣墊船和直升機將士兵輸送到海灘進行登陸作戰。其次，中共海軍正在舾装類似於美軍“美國級”的075型兩棲攻擊艦，該艦有一個巨大而平坦的甲板，其外形很接近航空母艦。作者認為，共軍可能將使用該型號兩棲攻擊艦起降Z-20“山寨版黑鷹直升機”。
 
-[Korean\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)
+對於登陸部隊而言，中共的主力將是陸軍兩棲突擊旅而非海軍陸戰隊，而且這些部隊都裝備了兩棲坦克和運兵車。兩棲突擊旅旨在搶占灘頭以便讓登陸艦艇輸送更多的士兵上岸。這是因為中共很多的登陸艦艇都很老舊，必須運送到岸邊才能把士兵和車輛卸下來。不過，主戰坦克卻能很快加入先頭部隊，而且氣墊船也可以起到一定作用。比如，中共裝備的巨型“歐洲野牛級”氣墊登陸艇可以一次性裝載500名士兵。
 
-[Russian\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)
+**中共犯台為何會失敗？**
 
-[Spanish\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)
+報導還引述了知名兩棲作戰專家弗里德曼（B.A. Friedman）的觀點，他認為中共登陸台灣會遭到頑強抵抗。弗里德曼表示，攻占台灣將是歷史上最困難的兩棲作戰行動，台灣已經在過去的幾十年裡對每一個登陸點都做了完備的防禦計劃和準備。此外，台灣海軍也是一支非常現代化的部隊。不過，由於台灣被打壓從而難以採購外國武器裝備，所以缺乏足夠的現代化大型潛艇。
 
+然而，軍事行動的成功並不取決於裝備的優劣。弗里德曼的觀點是中共偽政權雖然有足夠的優良裝備來對台作戰，但問題是他們到底有沒有足夠的知識或者決心來用鮮血換取灘頭。另外中共軍隊缺乏戰鬥經驗，尤其是兩棲作戰的經驗。
 
+此外，報導還指出在過去的二十年內，隨著互聯網和信息技術的普及，社交媒體和商業衛星圖片可以提供足夠的開源情報（Open source intelligence，OSINT）。這樣一來，人們可以較容易地了解大部情況下中共艦艇所處的位置，於是，中共偽政權可能就不得不在全世界人民的眼皮底下侵犯台灣。如果戰爭開始，中共在台灣的頑強抵抗下損失越大，那麼國際社會出面乾預的可能性就會越大。
+
+以上的分析均未考慮任何第三方國家幫助台灣抵抗中共偽政權的侵略。如果美國介入這場戰爭，那麼戰爭的形勢可能會翻轉過來。雖然中共海軍已經越來越強大，但跟美國的水平比還是相距甚遠。美國海軍有更多的戰鬥經驗而且可以更持久地作戰，美軍的潛艇也具備擊沉中共航空母艦的能力。
+
+儘管如此，中共海軍正在擴軍備戰以應對大規模兩棲作戰的需要，而且已經超越了很多國家的海軍。
+
+評：
+
+中共軍隊總是給人一種堅不可摧、戰無不勝的虛假印象。但由於其體制落後僵化和由內到外的腐敗，不論其裝備了多少新式武器，中共軍隊本質上是一根假擀麵杖。
+
+台灣人民及其軍隊需要認清中共腐朽的本質和其軍隊不堪一戰的事實。一旦中共要攻台，台灣萬萬不能不戰而降，一定有信心和決心去抵抗共軍入侵。就像郭文貴先生多次在爆料視頻裡提到的那樣，只有台灣堅持抵抗和捍衛自己的土地和憲法所賦予的自由，以美國為首的自由世界力量才能出師有名，從而協助曾被共軍擊敗而退守台灣的國軍捍衛這片自由的土地，順便一雪前恥。此外，手無寸鐵的香港人已經給台灣人做出了抗擊中共的良好表率，並付出了巨大犧牲，希望台灣能和香港站在一起，堅守住這一片自由之土！
+
+對於中共黨內和軍內的人士，請你們一定要深刻地意識到，假的就是假的，軍隊這根假擀麵仗是沒有用的，一旦開戰就意味著數以萬計的年輕生命成為炮灰，就算是當年佔領歐洲的納粹軍隊有真擀麵杖，最後的結局也是兩線潰敗，幾百萬人喪生和被俘，納粹被徹底消滅。此外，正如郭文貴先生最近的視頻所說“這個世界只有外星人能打敗美國”，如果美國捲入台海戰爭，這只會加快中共盜國賊走向地獄的速度，甚至他們會帶著十四億老百姓和你們一起走向地獄。所以，希望你們能很快認清形勢，世界已開始聯合滅共，中共必滅，勢不可擋！請你們把槍口抬高一寸，停止垂死掙扎。
+
+[原文鏈接](https://www.forbes.com/sites/hisutton/2020/06/07/if-china-invades-taiwan-this-is-what-the-fleet-could-look-like/#1bf9d8d4a7b0)
+
+翻譯報導：七里香
+校對整理：人間四月
 
 0

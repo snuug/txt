@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 找漏洞 打補丁 滅共模式即將開啟
-`2020-06-08 06:23 GM67` [轉載自GNews](https://gnews.org/zh-hant/226337/)
+## 【世界多語言圖文】06/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-08 07:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/226430/)
 
-By文和
+戰友之家圖文摘要組及小語種組
 
-2020-06-08
+[English\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070713/English_0606_CCP_Virus_Updates.pdf)
 
-自“爆料革命”不斷吹哨世界以來，西方民主社會對中共恐怖組織從漠不關心，毫不相信，到將信將疑，到幡然醒悟，到如今呼之欲出的全面對抗，其中經歷了痛苦的抉擇，也付出了昂貴的代價。尤其是，自香港和平抗議和中共病毒事件以來，全世界已逐步將目光聚焦在中共偽政權身上。中共與普世價值為敵的醜惡嘴臉，已徹底讓文明社會清醒。爆料革命的信譽逐步得到驗證，也預示著全世界圍剿中共之開始不遠矣。
+[French\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070718/French_0606_CCP_Virus_Updates.pdf)
 
-**敵人的厚禮**
+[German\_0606\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070722/German_0606_CCP_Virus_Updates_-.pdf)
 
-在這場民主與專制，文明與野蠻，正義與邪惡，人性與獸性，良善與醜陋的戰爭中，中美雙方一暗一明，一攻一守。從某種角度講，最大的戰友不是川普總統，而是主動暴露的中共自己。
+[Japanese\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070727/Japanese_0606_CCP_Virus_Updates.pdf)
 
-2019年的中美貿易談判中，中共出爾反爾，只能算是其在流氓舞臺上的預熱。在香港反送中過程中，沒有中共自恃世界金主，吆三喝四，頤指氣使，霸道杠上正常自由表達NBA總裁，沒有中共下架“南方公園”，普通美國民眾哪裡知道自己正常的生活方式居然冒犯了“厲害了我的國”的中共——這個黑社會老大。再者，如果沒有中共的隱瞞疫情，沒有中共滿世界放毒，沒有中共甩鍋美軍，沒有中共的利用世界捐助的醫療物質坐地起價，沒有習近平用10億口罩威脅法國不准放棄華為5G等等反人類反人道行經，西方社會怎能理解爆料革命的意義。
+[Korean\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070812/Korean_0606_CCP_Virus_Updates.pdf)
 
-剛剛結束在央視對美國現任官員蓬佩奧個人的口誅筆伐之後，病毒未消，中共居然買通極左恐怖勢力Antifa，在美國各地人為製造混亂，並花錢雇請留學生直接參與暴亂，證據確鑿。更令中共得意的是，美國大街上居然出現了一群揮舞中共黨旗，用英文喊文革式口號的西方文化大革命隊伍！
+[Russian\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070729/Russian_0606_CCP_Virus_Updates.pdf)
 
-殊不知，美國連政府關門數月都能正常運轉的國家，在乎你這暫時的表演嗎？自己給別人遞刀都渾然不覺，哪裡能找到如此稱職的“隊友”？
+[Spanish\_0606\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08070752/Spanish_0606_CCP_Virus_Updates.pdf)
 
-**民眾的覺醒**
 
-隨著中共港版國安法的推進，以及疫情調查的深化，世界對中共的面目已看得清清楚楚。除了那些僅為一兩百塊美元而出賣自己靈魂的癮君子，有基本正義良知的人誰願意和中共合作，誰不會在哨聲中驚醒？
-
-素有極左堡壘之稱的好萊塢和中共歷來勾勾搭搭，在川普上臺之際，諸多大佬紛紛嗆道：“如果川普上臺，自己就移民海外”。現如今，連安吉麗娜·朱莉的父親，著名演員Jon Voight公開月臺，為川普的政策鼓掌叫好，並贊其為林肯之後最偉大的總統！沒有中共的反面助攻，會有如此戲劇性的翻轉？！
-
-昨日，臺灣前親共總統候選人，高雄市市長韓國瑜，被93萬選票罷免市長，創下歷史。僅一年前，還呼聲極高有機會問鼎總統寶座的韓國瑜，因親共而被中共火箭般抬進本屬綠營票倉的高雄。如今成也蕭何敗也蕭何，不是中共在香港和世界的倒行逆施，兩年前，臺灣民眾能相信“爆料革命”的情報？
-
-美國民眾覺醒的例子單就這幾天就俯仰皆是。在這次中共操縱的暴亂中，許多巾幗英雄自發組織起來組成人牆隔開所謂抗議的隊伍，步槍協會成員自發用槍來保護社區，威懾暴徒，華盛頓特區周邊的退伍老兵整裝待發，威風凜凜，保護白宮保護川普總統，沒有認知的覺醒，能出現這些感人一幕幕？
-
-**政府的行動**
-
-正義只會遲到，絕不會缺席。房間髒了，亂了，會得到整理。世界也一樣，基於民意的民主政府也自然會聆聽選民的聲音，開始清理藏汙納垢的世界秩序。面對中共威脅，西方國家全面對抗的姿態明顯。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08061944/1-65.jpg)
-上月，澳洲提議對病毒源頭展開調查。這本是連包括中國人民在內世界人民都會拍掌稱快的提議，中共卻惱羞成怒，當即就對來自澳洲的大麥，葡萄酒和牛肉施以80%的徵稅。昨天上午，莫里森宣佈全面改革外國投資法案，所有“敏感”收購案都必須獲得審批。當晚，中共文化旅遊部就“提醒”中國遊客切勿去澳洲旅遊。可見，澳中之間的劍拔弩張，和澳洲政府死磕中共的堅定決心。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062010/2-49.jpg)
-上周，中共阻擋美國航空公司恢復中國航班，川普總統旋即威脅六月中旬禁止中國航班飛美國。不到24小時，中共服軟，允許95家國際航空公司每週有一班飛中國。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062026/3-27.jpg)
-近日，川普決定把七國集團峰會擴大，讓俄羅斯、印度、澳大利亞和韓國加入進來，明擺著要召集一些盟友和疫情的“受害國”一道向中共施壓，這是川普所進行的一種團結盟友，共同應對中共的開始。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08062040/4-23.jpg)
-週五（6月5日），來自9個國家和地區的國會議員，分別是澳大利亞、加拿大、歐洲議會、德國、日本、挪威、瑞典、英國及美國組成“[對華政策跨國議會聯盟](https://www.ntdtv.com/gb/%E5%AF%B9%E5%8D%8E%E6%94%BF%E7%AD%96%E8%B7%A8%E5%9B%BD%E8%AE%AE%E4%BC%9A%E8%81%94%E7%9B%9F.htm)”宣佈啟動。意在促進民主國家國會議員加深合作，在中國相關問題上協調對策，制定出積極而有戰略性的應對方案。
-
-流氓向來都是恃強淩弱，柿子揀軟的捏，如你表現得像加拿大的小土豆，迎接的是讓你空載而歸的飛機。和流氓打交道，就得學習川普總統的“真善狠”。相信未來，套在中共脖子上繩索將會越來越緊。各國政府公開支持“新中國聯邦”的那一刻，一定讓中共膽顫心驚。
-
-**注：本文僅代表作者本人觀點**
 
 0
