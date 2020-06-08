@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮2020年國家癌症倖存者日總統致辭
-`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
+## 內蒙、雲南、吉林市多地發生蝗蟲災害！
+`2020-06-08 05:35 GM30` [轉載自GNews](https://gnews.org/zh-hant/226276/)
 
-川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
+**作者：文小明**
 
-Presidential Message on National Cancer Survivors Day, 2020
+在今年中共病毒疫情肆意地球上的任何一個角落，全人類都在奮力抵抗這種前所未有的致命危害。與此同時，聯合國發出警告：另一場災難可能就要來了！這場災害可能就是沙漠蝗災帶來的糧食短缺！這幾年，人類經曆了很多自然災害，有地震，有瘟疫，有洪水，有高溫，有火山爆發，有北極融化，但是，糧食危機似乎沒有引起足夠的重視。所以，當看到聯合國發出的預警時，我們應該有所警惕，並爲此獻上迫切祈禱！
 
-Issued on: June 7, 2020
+2020年6月5日，根據各病蟲測報點發布的蝗蟲發生信息，中共國吉林市農業農村局發布緊急通知，提醒農民朋友並積極組織各級農業部門，全力做好蝗蟲監測與防控工作。
 
-### **白宮2020年國家癌症倖存者日總統致辭**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08050841/1-62.png)
 
-**發佈日期：2020年6月7日**
+據蟲情調查，蛟河市、桦甸市、永吉縣、龍潭區、昌邑區、船營區等地的部分荒地、林地、崗地等處已發生蝗蟲爲害，呈點片發生。截至6月4日，全市蝗蟲發生面積約13.4公頃，平均發生密度10-20頭/平方米，密度高的可達50頭/平方米，爲害部位大都爲闊葉草本植物的嫩葉，危害狀爲缺刻狀，個別導致整片葉子被吃光。全市農田尚未發生蝗蟲爲害，目前蝗蟲處于蝗蝻階段。
 
-Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08052049/2-32.png)
 
-今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
+蝗蟲又叫土螞蚱，多數以卵在土中越冬，越冬卵約于5月中、下旬至6月上旬孵化。6月下旬至7月中旬以前多爲蝗蝻階段，多數爲3-4周齡。7月上中旬是成蟲發生盛期，也是爲害盛期。常見的有笨蝗、短星翅蝗、黑背蝗、尖翅蝗，形狀略似飛蝗，分布地區很廣，多生活在山區坡地以及平原低窪地區的高崗、堤田埂、地頭等處。除危害糧食作物外，還可危害果樹、蔬菜等，危害性比飛蝗小。蝗蝻多在樹邊、草叢、坡地上活動爲害，以後隨著蟲齡的增加，遷移力增強，逐漸向農田蔓延擴散，如不及時防治能把大片作物吃光，嚴重影響農業生産。
 
-Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08052345/3-21.png)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08052403/4-21.png)
 
-儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
 
-Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
+通常情況下，密度在20頭/平方米以下的爲中低密度發生區，20頭/平方米以上爲高密度發生區。那麽此次蝗蟲密度達到了50頭以上了，不可謂不嚴重了。
 
-展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
+回首看看整個中國雲南、內蒙多地近來蝗蟲災害亦是日趨嚴重。
 
-The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
+或許有人說，這場蝗災不會飛過來，我們不必擔心！但是，任何一次對災難的輕忽，往往會導致可怕的猝不及防！這樣的教訓，已足夠慘痛！沙漠蝗已從東非蔓延至印度和巴基斯坦，中國也面臨著沙漠蝗侵入的風險。據FAO（聯合國糧食及農業組織）判斷，此次始于非洲的沙漠蝗災，因初期控制不力，可能會延續到2020年6月甚至更長時間，屆時蝗群規模可能增長至當前的500倍。如果氣候條件適宜，此次發生的沙漠蝗存在從巴基斯坦和印度直接侵入西藏，或者經緬甸侵入雲南（但是實際上YouTube等網路上已經顯示的雲南蝗災很嚴重了），或者經哈薩克斯坦侵入新疆的風險。雲南、西藏、新疆等與印度、巴基斯坦、緬甸接壤的省區。
 
-第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
+現在，鋪天蓋地的蝗蟲正在肆無忌憚的肆虐非洲，然後飛過紅海，進入歐洲、亞洲，全世界都籠罩在鋪天蓋地的蝗蟲陰影之下。
 
-閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
+根據聯合國的數據，這些蝗蟲增長了6400萬倍，數量已經超過了千億只，一天就吞噬光3400萬人的糧食，令人擔心的是，蝗蟲還在快速增長，對于農作物的破壞還在加強，令人觸目驚心。
 
-*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
+關于糧食危機，這已經不是第一次發出預警！這兩年，歐洲的很多河流，都出現了饑餓石！饑餓石的出現，就預示著全球依然沒有擺脫糧食危機！
 
-*戰友之家玫瑰園小隊出品*
+饑餓石，就是以前以航運爲生的人們在河邊或者是河中心較高的石頭上雕刻水位的一些石頭。因爲當河水水位減少到某一刻度，這些以航運人的生計也就受到威脅，于是，這些刻有水位線的石頭便叫做饑餓石了。在歐洲，這些饑餓石的出現更是一種不祥的預兆。
+
+就像不斷出現的地震，就像不斷出現的高溫，就像不斷出現的洪水，就像不斷出現的火災，就像不斷出現的瘟疫，就像不斷出現的台風，這兩年，這些極端天氣和自然災害，已經像刮風下雨一樣，我們已經習以爲常！但是，我們沒想到的是，饑餓石的出現也是如此之頻繁，而背後，竟然是一場看不見的糧食危機正在靠近！
+
+親愛的戰友們，不能讓CCP的假大空宣傳的“可防、可控”蒙蔽了我們的雙眼。我們一定要堅信郭先生的話，手中有糧，心中不慌！
+
+（文章內容僅代表作者觀點）
 
 0

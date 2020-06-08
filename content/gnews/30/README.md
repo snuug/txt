@@ -1,79 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “新中國聯邦宣言”的發布敲響了CCP滅亡的喪鍾！
-`2020-06-08 02:19 GM30` [轉載自GNews](https://gnews.org/zh-hant/226150/)
+## 白宮2020年國家癌症倖存者日總統致辭
+`2020-06-08 03:27 GM31` [轉載自GNews](https://gnews.org/zh-hant/226172/)
 
-**作者：ling**
+川普總統在2020年國家癌症倖存者日致辭，表達了總統和第一夫人對在癌症診斷中倖存者們最良好的祝愿，並為他們祈禱。他指出要感謝美國人的創造力，在治療和檢測該疾病方面取得了令人矚目的醫學進步，並提醒美國人必須保持警惕，做各種努力以避免患癌症的風險。
 
-以信仰和正道主義、平民主義爲內核，以利益爲橋梁，法治基金、法治社會的護航，以及GTV、喜聯儲等打造的“滅共生態系統”，絕對遵守契約精神，將讓爆料革命至少促成4方共贏，並將實現中共國向新中國聯邦的平穩過渡。
+Presidential Message on National Cancer Survivors Day, 2020
 
-1，華盛頓。
+Issued on: June 7, 2020
 
-中共的根，在美國，在華盛頓。六四後，中共之所以繼續持有美國發給的“營業執照”，就是因爲擔心推翻中共後，找不到人接盤？這麽大的中國絕不能陷入無政府狀態，引發人道危機是華府任何人都無法承受的。現在，由于CCP釋放冠狀病毒，對全球犯下反人類罪，死亡的美國人已經超過10萬，華盛頓已經絕無可能與中共勾兌。基于契約精神，《新中國聯邦宣言》爲黨內實力派和美國力量之間搭建了溝通平台（路德透露，之前習與美國都是靠楊潔篪搭話）。未來，黨內實力派與喜馬拉雅監督機構達成的契約，將受到美國政府和國際社會的認可。美方避免天下大亂，黨內有了活路退路，符合雙方利益。
+### **白宮2020年國家癌症倖存者日總統致辭**
 
-2，美國和全球保守主義力量。
+**發佈日期：2020年6月7日**
 
-班農先生作爲美國保守主義力量的執牛耳者，能夠影響包括美國步槍協會、美國軍方在內的7000萬保守力量。在川普總統上任後，班農先生更促成了共和黨內部的空前團結。他昨天在ladymay戰艦上宣讀了新中國聯邦的英文版宣言，代表新中國聯邦已經獲得了共和黨的支持。
+Today we celebrate the remarkable men, women, and children who have earned the title of cancer survivor.  We rejoice with your loved ones and caregivers, who have walked with you every step of the way, and share the promise and potential of your future hopes and dreams.
 
-不要忘了班農先生此前還促成了英國脫歐成功。回溯班農先生近兩三年的旅行目的地可見，他對全球保守力量的影響力是超乎中共想象的。宣言中提到，新政府將與世界形成千年和平共處。而一個沒有共産黨的新中國，將是世界和平的穩定力量，符合全世界正常國家的根本利益。
+今天，我們為獲得癌症倖存者頭銜的傑出男女老少慶祝。我們與您的親人和照顧者一起慶，他們與你們一起走過的每一步，並分享你們對未來希望和夢想的承諾和潛力。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08021516/image0-46.jpg)
+Despite cancer remaining the second leading cause of death, there is reason for hope.  Significantly, the overall mortality rate from cancer has been in decline over the past 25 years.  Thanks to American ingenuity, we have achieved dramatic medical advances in the treatment and detection of this disease.  There are now almost 17 million cancer survivors, and that number is growing.  Greater awareness, better treatment, and early detection are providing millions of cancer fighters and their loved ones with increased hope and strength.
 
-3，華爾街資本大鳄。
+儘管癌症仍然是第二大死亡原因，但仍有理由希望。值得注意的是，過去25年中，癌症的總體死亡率一直在下降。感謝美國人的創造力，我們在治療和檢測該疾病方面取得了令人矚目的醫學進步。現在有將近1700萬癌症倖存者，而且這個數字還在增長。更高的意識，更好的治療方法以及及早發現，為數百萬的癌症戰鬥及其者及其親人帶來了更大的希望和力量。
 
-華爾街此前與中共權貴資本沆瀣一氣，因爲能掙大錢！14億低人權共産奴隸就是中共的“核心競爭力”。這種媾和，在美共全面脫鈎、700家中概股面臨審計風暴即將全面退市的大背景下，很快會終結。而香港自貿區地位的取消引發的港股危機，也堵住了中概股借屍還魂，以時間換空間的可能。
+Going forward, all Americans must remain vigilant in recognizing the most prevalent cancers and risks for their respective demographics.  While different cancers have varying risk factors, we can all make changes to our lifestyles, like exercising frequently, improving our diets, and avoiding known carcinogens, which can greatly reduce the risk of developing this terrible disease.  Regular screenings for certain cancers can also potentially lead to early detection and are especially important for common and treatable cancers such as colorectal cancer, breast cancer, and cervical cancer.  Furthermore, new ways to prevent, diagnose, and treat cancer are continually being studied in clinical trials by researchers around the country in institutes of higher education, the private sector, and the Federal Government.
 
-資本永遠逐利。GTV第一階段募資引來全球資本瘋狂進場，G幣、Gdollor在中共的瘋狂阻擋下，仍然創造了人類金融史上的諸多記錄。真金白銀不說謊！爆料革命的信用價值已不言自明，GTV投資升值前景，先生已說了，先來個萬億！當滅共比反共更掙錢，華爾街不僅會最快抛棄中共，還將靠做空中共掙錢。
+展望未來，所有美國人都必須保持警惕，以認識到各自人群中最普遍的癌症和風險。儘管不同的癌症具有不同的風險因素，但我們所有人都可以改變生活方式，例如經常運動，改善飲食習慣以及避免使用已知的致癌物質，這可以大大降低患上這種可怕疾病的風險。定期篩查某些癌症也可能導致早期發現，對於常見和可治療的癌症（例如大腸癌，乳腺癌和宮頸癌）尤其重要。此外，全國各地的高等教育機構，私營部門和聯邦政府的研究人員正在臨床試驗中繼續研究預防，診斷和治療癌症的新方法。
 
-4，盜國賊家族的生命安全。
+The First Lady and I send our best wishes to those who have survived a cancer diagnosis, and we send our prayers to those millions of Americans who are still fighting every day.  Your resilient spirit and courageous attitude inspire us and so many others.  You are not alone, and we are in this fight with you.
 
-CCP被打爲非法政府已箭在弦上，屆時西方將合法凍結其家族非法資産，並可能遣返相關人員，但這對他們來說可能還是最好結局。通常倒台前權力越大血債越多，下場會越慘。比較近的可參考孟建柱，錢當然被弄回來，私生女兒在民主國家日本都能被綁架回國，還遭遇殘酷輪奸和虐待。孟建柱再十惡不赦，他的家人孩子，只要沒有協同作惡，就是無辜的。宣言承諾會給予盜國賊公正的審判，絕不會族誅連坐滿門抄斬。對于沒有犯下刑事罪和反人類罪的盜國賊，新聯邦將予以大赦。若有犯罪，盜國賊可聘請律師爲自己辯護，若請不起律師，聯邦政府還必須給你指定律師，這是新聯邦的法治內核。
+第一夫人和我向在癌症診斷中倖存下來的人們致以最良好的祝願，並為每天仍在戰鬥的​​數百萬美國人祈禱。你們的韌性和勇氣的態度激勵著我們以及其他許多人。你們並不孤單，我們與你們一起在抗爭著。
 
-5，盜國賊家族的財産。
+閱讀原文：[Presidential Message on National Cancer Survivors Day, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-national-cancer-survivors-day-2020/)
 
-不義之財都將返還給新中國聯邦的老百姓，毋庸置疑。但若主動幫助中共國和新中國聯邦和平過度，盜國賊家族的合法財産也必將獲得新聯邦的法律保護。錢從何來？GTV打造的財富諾亞方舟。GTV是美國注冊的公司，投資GTV獲得的財富都是合法的，且受到新中國聯邦法律、美國法律保護。
+*翻譯：【**滅共老美**(**文瀚**)**】*   *校對：【木木**ANNA**】*
 
-6，軍隊。
-
-當下台海、南海、中印邊境，高擦槍走火風險。粉紅放嘴炮，但先變炮灰的正是軍人。軍人是和平過渡的最大受益者。中共把人民子弟兵綁架爲“黨衛軍”，宣言則要求軍隊國家化，並將保障退休軍人和家屬的保險、醫療、福利。現役不再爲惡，老兵不再維權，這才是恢複軍人真正愛國者身份的解綁、解放。
-
-7，體制內官員。
-
-若無刑事犯罪和犯下反人類罪，共産黨員不會被打爲納粹。宣言中明確承諾一概大赦。新中國聯邦的旗幟底色是海洋藍，代表生命與寬容，與中共血旗截然不同。所有中國人將獲得新生。9000萬黨員則將回歸公民身份。除需競選的公職外，公務員仍是政府雇員，生活仍將繼續。注意：不清算！
-
-8，馬雲、健林、強東等白手套。
-
-改開中一度站在潮頭的中國企業家們已紛紛折戟沈沙，馬雲們，就算去延安遵義表忠心，都沒能改變被中共瘋狂收割的命運。他們已經實現財富自由，只有滅共，才是最符合這一群體生命安全和利益的選擇。沒有了僞共政權的魔爪，華爲等企業將在新聯邦煥然一新，由內到外地重生！
-
-9，好萊塢與NBA體育界。
-
-路德節目多次提到，好萊塢是世界上不容忽視的力量級，爲了龐大中國市場，好萊塢不斷自我審查閹割，NBA迫于中共淫威，同樣下跪。CCP病毒讓電影院無限期停業，賽事全面停擺。爲了搞亂全球3F美國，CCP還將不斷釋放新病毒。滅共，是好萊塢和NBA的生存需要。白左明星們真要醒醒了！
-
-10，牆內。
-
-兩年貿易戰疊加疫情，中共國經濟已經廢了。地攤經濟反映失業率驚人，房貸大面積斷供，體制內“過苦日子”減薪，房産稅收割中産，數字貨幣繼續洗劫。投資、消費、出口，拉動經濟的三駕馬車同時失前蹄，香港的資本大逃亡已經開始。中共沒有任何創造繁榮的能力，只能輸出貧窮和混亂。
-
-誰能提振經濟？不滅共，無解。
-
-只有滅共後，以新身份回歸國際社會的中國，才能重新實現與世界的對等、互惠發展。這一過程中，房奴們的“中國夢”破碎是不可避免的，但比起血流成河，這已經是CCP倒塌可以付出的最小代價。而叫醒越多中國人，滅共成功的時間就會越早，中國人遭受的損害也會越小。
-
-沒有切實可行的操作手冊和執行方案，一切喊口號的“反共”都是自嗨意淫！欺民賊30年來太low了，對這條“滅共生態利益鏈”，連聽都沒聽過。搶雞腿的要飯幫們，你們永遠無法理解雄鷹翺翔天空的視野和格局！曾經挺郭，後又爲了蠅頭小利砸鍋的僞類們，你們真沒那個富貴命！
-
-當然，在這個過程中，及早覺醒，參與爆料革命的戰友不僅將保命保財，爆料革命的魅力在于，你投身了解放14億人的偉大事業，還可以賺到錢，過上體面的生活，並獲得全世界人的尊重！
-
-這就是我們的喜馬拉雅！
-
-新中國聯邦在2020年6月4日宣布，就是要走完六四先賢沒有走完的路。
-
-六月開始，一切會以霹雳速度推進！
-
-正義聯盟與邪共全球暗勢力的正面對決也將非常慘烈。無論以共滅共、以美滅共，還是全世界聯合滅共、自動滅共。滅共最核心的力量永遠是中國人，這也是所有華人的使命召喚。
-
-接下來，絕對是硬仗。
-
-但喜馬拉雅聯盟，終將成爲未來“新中國”的定海神針！
-
-（文章內容僅代表作者觀點）
+*戰友之家玫瑰園小隊出品*
 
 0
