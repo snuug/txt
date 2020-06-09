@@ -1,37 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突發吉林可能爆發蝗災糧食危機已無法避免
-`2020-06-08 16:43 GM06` [轉載自GNews](https://gnews.org/zh-hant/226806/)
+## 6月7-8日 美國政要推文選譯
+`2020-06-08 20:16 GM65` [轉載自GNews](https://gnews.org/zh-hant/227211/)
 
-作者:文茗
+> The UK 🇬🇧 and US 🇺🇸 governments should charge the CCP with RICO. Immediately freeze Huawei’s assets (and those of all Chinese banks). Then and only then could we have a “fair” negotiation. [#ScrewHSBC](https://twitter.com/hashtag/ScrewHSBC?src=hash&amp;ref_src=twsrc%5Etfw) [#RICO](https://twitter.com/hashtag/RICO?src=hash&amp;ref_src=twsrc%5Etfw) [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) ⁦⁦[@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing?ref_src=twsrc%5Etfw)⁩ [https://t.co/MXUHfLZhAX](https://t.co/MXUHfLZhAX)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 7, 2020](https://twitter.com/Jkylebass/status/1269453528705249281?ref_src=twsrc%5Etfw)
 
-近日，中共農業部門緊急通知！全力做好蝗蟲監測與防控。根據各病蟲測報點發佈的蝗蟲發生資訊，吉林市農業農村局發佈緊急通知，提醒農民朋友並積極組織各級農業部門，全力做好蝗蟲監測與防控工作。
+卡爾·巴斯先生：英國和美國政府應該用《RICO法案》（有組織犯罪控制法案）制裁中共。立刻凍結華為資產（以及所有中資銀行的）。這樣，也只有這樣，我們才可能進行“公平”談判。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08162957/1-70.jpg)
+KFGO電臺：英國《電訊報》報道，匯豐銀行警告，如果英國禁用華為設備，該銀行將可能面臨中國報復。
 
-據蟲情調查，蛟河市、樺甸市、永吉縣、龍潭區、昌邑區、船營區等地的部分荒地、林地、崗地等處已發生蝗蟲危害，呈點片發生。截至6月4日，全市蝗蟲發生面積約13.4公頃，平均發生密度10-20頭/平方米，密度高的可達50頭/平方米，危害部位大都為闊葉草本植物的嫩葉，危害狀為缺刻狀，個別導致整片葉子被吃光。全市農田尚未發生蝗蟲危害，目前蝗蟲處於蝗蝻階段。
+> Billionaires first move (every time) is to protect their billions. They will publicly kneel at the murderous feet of the CCP (think NBA team owners), and then will privately sell everything they can and move $ to jurisdictions with an English Rule of Law [https://t.co/NoFTM6pajT](https://t.co/NoFTM6pajT)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 7, 2020](https://twitter.com/Jkylebass/status/1269625959382212608?ref_src=twsrc%5Etfw)
 
-蝗蟲又叫土螞蚱，在吉林市一年發生一代，多數以卵在土中越冬，越冬卵約於5月中、下旬至6月上旬孵化。6月下旬至7月中旬以前多為蝗蝻階段，多數為3-4齡。7月上中旬是成蟲發生盛期，也是危害盛期。常見的有笨蝗、短星翅蝗、黑背蝗、尖翅蝗，形狀略似飛蝗，分佈地區很廣，多生活在山區坡地以及平原低窪地區的高崗、堤田埂、地頭等處。除危害糧食作物外，還可危害果樹、蔬菜等，危害性比飛蝗小。蝗蝻多在樹邊、草叢、坡地上活動為害，以後隨著蟲齡的增加，遷移力增強，逐漸向農田蔓延擴散，如不及時防治能把大片作物吃光，嚴重影響農業生產。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163121/2-50.jpg)
-為此，市農業農村局研究下發了《關於迅速開展蝗蟲等病蟲害調查監測和防治工作的緊急通知》，要求各級農業農村系統迅速開展蝗蟲監測防治工作，組織農技人員和農戶扎實開展蝗蟲等病蟲害的監測、調查和防控工作。
+卡爾·巴斯先生：億萬富翁們首先（每次）要做的事是保護他們的億萬資產。他們會當眾跪倒在殺人惡魔CCP的腳下（看看各個NBA球隊的老板們），然後再私下賣掉所有資產，並把錢轉移到英語世界有法治系統的司法管轄區。
 
-吉林市農業農村局植保專家提出防控措施建議。高度重視蝗蟲防控工作。各縣（市）區的農業農村局要組織植保技術人員加強對所轄區域的林地、荒地和周邊農田的調查監測，全面準確掌握草荒地、林地等區域蝗蟲發生動態，及時上報資訊，並組織農戶及時防治，控制擴散為害；如出現大面積、高密度發生情況，要及時組織開展統防統治、聯防聯治，確保農田免受蝗蟲為害。把握防治指標適期及發生密度指標。蝗蟲防治指標為5頭/平方米，防治適期為3-4齡盛期之前。密度在20頭/平方米以下的為中低密度發生區，20頭/平方米以上為高密度發生區。掌握防治方法。一是生物防治技術。在中低密度發生區、水源地、自然保護區等地，禁止或限制使用化學農藥，可適當降低防治指標，在3齡盛期前，使用苦參堿、印楝素等生物農藥防治，必要時建立隔離帶進行藥劑封鎖。二是化學藥劑防治。主要在高密度發生區採取化學應急防治。可選用馬拉硫磷、高氯.馬、阿維.三唑磷、吡蟲啉等化學藥劑。
+彭博社：因香港大佬支持安全法，1400億美元資產面臨風險
 
-以我對共產黨的瞭解，共產黨往往會把事件的嚴重性淡化很低。當它告訴你沒有危險，就是很危險了；共產黨如果說危險的時候，那就是告訴你“病入膏肓”。所以吉林地區蝗災的危險程度可想而知。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163159/3-28.jpg)
-與中國一山之隔的印度近日再次遭受蝗災，5月上旬以來，印度多地出現大量蝗蟲並造成農田損毀，部分城市區域也出現蝗蟲群。印度政府稱，這是印度近30年來遭受的最嚴重蝗災。
+> The Chinese Communist Party likely knew about the coronavirus beginning in October.
+>  
+> But the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) waited until December 31st to say a word. [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) 
+>  [https://t.co/UazzM8ahIb](https://t.co/UazzM8ahIb)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 8, 2020](https://twitter.com/MarshaBlackburn/status/1270098656633356289?ref_src=twsrc%5Etfw)
 
-2020年年初，沙漠蝗蟲在印度、巴基斯坦等地肆虐。隨著蝗蟲進入交配期，2月份，蝗災好不容易平息下來。沒想到，5月份上旬，第二輪蝗災又捲土重來，據統計，目前印度已經有約5萬公頃農田被毀，被認為是1993年以來最大規模的蝗災。
+參議員 Marsha Blackburn：中共很可能知道冠狀病毒在十月份就已經開始。但中共壹直等到12月31日才說出來。
 
-這次襲擊印度的沙漠蝗蟲是全球破壞性最大的遷徙害蟲，根據聯合國糧食組織的資料，1平方公里大小的沙漠蝗蟲群，大約有8000萬隻成年蝗蟲，一天所消耗掉的食物總量，可以滿足3.5萬人吃一頓。第二輪蝗災的猛烈程度，甚至超過了2月的第一輪蝗災，據瞭解，蝗蟲在3個月內能通過繁殖讓數量翻20倍，這意味著在未來適宜的雨季氣候下，印度等地的蝗蟲將繼續翻倍增長。誰敢保證這次印度蝗災不會進入中共國，如果進入西南、西北地方，後果不堪設想。
+ABC新聞：研究人員說，衛星數據顯示冠狀病毒在中國的爆發可能（比已知時間）更早。
 
-蝗災不論在國內還是鄰國的爆發，都對中華大地糧食安全構成了威脅。尤其是這次東北地區的蝗災，對中共國糧食安全的威脅是十分恐怖的。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163248/4-24.jpg)
-據中共國家統計局資料，2008年東北三省的糧食總產量達到1785億斤，約占全國糧食產量的16.9%；2018年，東北三省糧食總產量達到2666億斤，約占全國糧食總產量的20.3%。
+> "The Communist Party's totalitarian rule in China has caused horrific atrocities against humanity,” Hao Haidong.[@SpokespersonCHN](https://twitter.com/SpokespersonCHN?ref_src=twsrc%5Etfw) [@MFA\_China](https://twitter.com/MFA_China?ref_src=twsrc%5Etfw) are you going to continue censoring this story and pretend it doesn’t exist? [https://t.co/o3IGorjo9o](https://t.co/o3IGorjo9o)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 8, 2020](https://twitter.com/MarshaBlackburn/status/1270050562449367042?ref_src=twsrc%5Etfw)
 
-東北如果爆發蝗災，中共國必將失去20.3%的糧食，加之中美脫鉤甚至世界和共產黨脫鉤，共產黨無錢買糧，那將是數億人面臨饑荒的重大問題。
+參議員 Marsha Blackburn：郝海東說：“共產黨在中國的極權統治已經造成了反人類的恐怖暴行。” @華春瑩@外交部發言人辦公室 妳們是不是也要把這個屏蔽了，並假裝啥事沒有？
 
-(文章內容僅代表作者觀點)
+CNN：中國壹位傳奇足球運動員號召推翻共產黨
 
+> More propaganda. The Chinese Communist Party actively tried to hide [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from the world, and is directly responsible for endangering millions of lives [https://t.co/SmkWhDdgnE](https://t.co/SmkWhDdgnE) [pic.twitter.com/65ZG3l0nPM](https://t.co/65ZG3l0nPM)
+> — Senator Ted Cruz (@SenTedCruz) [June 8, 2020](https://twitter.com/SenTedCruz/status/1270031800631525378?ref_src=twsrc%5Etfw)
+
+參議員 Ted Cruz：還是大外宣。中共壹直積極試圖對全世界掩蓋冠狀病毒真相，且他們對幾百萬人的生命負有直接責任。
+
+ABC新聞 政治版：中國發布新報告為其冠狀病毒應對行為辯解
+
+> We’re ready. Large-scale exercises continue, despite [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)—here, in British airspace with [@usairforce](https://twitter.com/usairforce?ref_src=twsrc%5Etfw) F-15s and F-16s stationed in Italy, Germany, and England. [https://t.co/Zy5eTno27G](https://t.co/Zy5eTno27G)
+> — @EsperDoD (@EsperDoD) [June 8, 2020](https://twitter.com/EsperDoD/status/1270099589354356736?ref_src=twsrc%5Etfw)
+
+美國國防部長 埃斯珀：我們已經準備好了。盡管有疫情，大規模演習繼續進行——在英國空軍基地，與美國空軍駐紮在意大利、德國和英國的F-15和F-16戰鬥機群壹起。
+
+美國海軍：恢復行動！美國羅斯福號航母駛離關島任務準備就緒。
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLAAF](https://twitter.com/hashtag/PLAAF?src=hash&amp;ref_src=twsrc%5Etfw) [#Nuclear](https://twitter.com/hashtag/Nuclear?src=hash&amp;ref_src=twsrc%5Etfw) [#Dengzhou](https://twitter.com/hashtag/Dengzhou?src=hash&amp;ref_src=twsrc%5Etfw) [#Neixiang](https://twitter.com/hashtag/Neixiang?src=hash&amp;ref_src=twsrc%5Etfw) airbase renovated 7/2017 post [#Doklam](https://twitter.com/hashtag/Doklam?src=hash&amp;ref_src=twsrc%5Etfw) standoff with [#India](https://twitter.com/hashtag/India?src=hash&amp;ref_src=twsrc%5Etfw).
+> New [#PLARF](https://twitter.com/hashtag/PLARF?src=hash&amp;ref_src=twsrc%5Etfw) [#UGF](https://twitter.com/hashtag/UGF?src=hash&amp;ref_src=twsrc%5Etfw) with massive 4x60m wide entrances with possible hardened automated gates.
+> Four large drive through highbay garages with huge revetments.
+> Old UGFs retained.1/2 [pic.twitter.com/DDBySd4FLT](https://t.co/DDBySd4FLT)
+> — 卫纳夜格@Raj (@rajfortyseven) [June 8, 2020](https://twitter.com/rajfortyseven/status/1269870298054066177?ref_src=twsrc%5Etfw)
+
+比爾·格茨先生 轉推 衛納夜格 連推：#中國#解放軍空軍#核#鄧州#內鄉 空軍基地 重新裝修 2017年7月 發帖 #洞朗 與 #印度 對峙。新的 #解放軍空軍 #地下設施 帶大型4×60米寬入口 很可能有加固自動門。四個大型駕駛直通式高架車庫 帶大片護岸。保留了原有地下設施。大型75米x60米維修機庫+停機坪。20個45米x40米飛機掩體（2018）帶戰備平臺停機坪。指揮和管理區域+軍營。開發了170英畝面積。表明為核襲擊任務部署了#轟6K。
+
+> US senator says there is evidence China is attempting to "slow down or sabotage" development of Covid-19 vaccine [https://t.co/Ny7aFR0TJ9](https://t.co/Ny7aFR0TJ9)
+> — BBC News (World) (@BBCWorld) [June 7, 2020](https://twitter.com/BBCWorld/status/1269579876660543490?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott 轉推 BBC新聞（世界版）：美國參議員說，有證據表明中國試圖“拖延或破壞”Covid-19疫苗的研發
+
+> I applaud [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) for taking steps to protect American investors.
+>  
+> Last month, I urged the SEC to review their policies & end coordination with US-listed Chinese-based companies. We can't allow Communist China to get away with flouting our laws.[https://t.co/hwPQI276Ek](https://t.co/hwPQI276Ek)
+> — Rick Scott (@SenRickScott) [June 8, 2020](https://twitter.com/SenRickScott/status/1269996118949101569?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：我贊揚總統先生為保護美國投資人采取的措施。上個月，我敦促美國證券交易委員會（SEC）重審其政策，並終止與在美國上市的中國公司的協作。我們不允許中共國無視我們的法律。（文章：白宮備忘錄）
+
+> Communist China & its propaganda outlets like the Global Times are working overtime to try to hide their [#Coronavirus](https://twitter.com/hashtag/Coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) failures & their efforts to steal or sabotage vaccine research.
+> 
+> The world is wising up to China’s role as an adversary to freedom-loving people around the world. [https://t.co/21n8KSKzZk](https://t.co/21n8KSKzZk)
+> — Rick Scott (@SenRickScott) [June 8, 2020](https://twitter.com/SenRickScott/status/1270025974919434241?ref_src=twsrc%5Etfw)
+
+參議員 Rick Scott：中共國和它的大外宣機構，比如《環球時報》，正加班加點地工作，試圖掩蓋其應對疫情的失敗和竊取或破壞疫苗研究的行為。全世界已經逐漸意識到中國是全球熱愛自由的人民的敵人。
+
+> A new global crisis is looming in east Asia via [@FT](https://twitter.com/FT?ref_src=twsrc%5Etfw)
+>  [https://t.co/C1gyHOXqvb](https://t.co/C1gyHOXqvb)
+> — General Spalding (@robert\_spalding) [June 8, 2020](https://twitter.com/robert_spalding/status/1270124664354934785?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍：壹個新的全球危機似將在東亞地區發生｜《金融時報》
+
+> From China and Hong Kong, Harvard raked in nearly $200 million. [pic.twitter.com/Pc7GXzQ8vz](https://t.co/Pc7GXzQ8vz)
+> — Randal deJong (@randejong) [June 8, 2020](https://twitter.com/randejong/status/1270048830038462464?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Randal deJong：哈佛大學從中國和香港斂了2億美元
+
+> The Confucius Institute threw about $7 million into its University of Kentucky operation. [pic.twitter.com/D0HvdmPTqn](https://t.co/D0HvdmPTqn)
+> — Randal deJong (@randejong) [June 8, 2020](https://twitter.com/randejong/status/1270039620428988416?ref_src=twsrc%5Etfw)
+
+斯伯丁將軍 轉推 Randal deJong：孔子學院為其在肯塔基大學的運作豪擲7百萬美元。
+
+> The United States once hoped that free and prosperous Hong Kong would provide a model for authoritarian China; it is now clear that China is modeling Hong Kong after itself. [https://t.co/qgltgsCeIT](https://t.co/qgltgsCeIT) [pic.twitter.com/MhbYuuMNn2](https://t.co/MhbYuuMNn2)
+> — Department of State (@StateDept) [June 7, 2020](https://twitter.com/StateDept/status/1269736038936842242?ref_src=twsrc%5Etfw)
+
+美國國務院：美國曾經希望自由繁榮的香港能夠為獨裁中國提供壹個榜樣；現在很明顯，中國正把香港變成它的樣子。
+
+> I applaud [@Nasdaq](https://twitter.com/Nasdaq?ref_src=twsrc%5Etfw) for taking steps to ensure all U.S. businesses can operate on a level playing field. Fraudulent practices like those by China-based companies are unacceptable. No country should be able to deceive American investors. Other exchanges should follow suit. [pic.twitter.com/SQ3iCuQL83](https://t.co/SQ3iCuQL83)
+> — Under Secretary Keith Krach (@State\_E) [June 8, 2020](https://twitter.com/State_E/status/1270034937614344193?ref_src=twsrc%5Etfw)
+
+美國國務院 轉推 副國務卿Keith Krach（經濟發展、能源和環境）：我贊揚納斯達克采取行動確保所有美國企業可以在公平的環境下經營。像中國公司那樣的欺詐行為是不可接受的。任何國家都不能欺騙美國投資者。其他證券交易所也應效仿。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08201241/64-1.jpg)
 0
