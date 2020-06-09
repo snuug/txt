@@ -1,23 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】07/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-08 21:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/227317/)
+## 致美國的軟弱妥協人士
+`2020-06-09 00:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/227458/)
 
-戰友之家圖文摘要組及小語種組
+*原文由Jeff Nyquist发布| JRNyquist.Blog | 2020年6月5日*
 
-[English\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)
+*翻譯、引言: TCC*
 
-[French\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)
+*PR: 海阔天空*
 
-[German\_0607\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)
+**引言：**
 
-[Korean\_0607\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)
+當委會又一篇苦口婆心大作，希望能喚醒那些軟弱的舔共者! 在這個美國內憂外患的當兒，檢討美國為何落入這步田地，並明確地指出當前美國國內的暴動與白人種族主義無關，卻與中共國和俄羅斯對美國的戰爭準備息息相關。美國的左派人士（無論有意或無意）都已成了外國勢力的工具。本文並以法國大革命的例子，警醒那些出賣自己國家的懦夫們，以免落入自掘墳墓的悲慘下場。
 
-[Russian\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)
+**原文：**
 
-[Japanese\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)
+## **致美國的軟弱妥協人士**
+[!\[\](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/070059AE-CA8C-437F-8B56-89CE59CBC6C0.jpg?asset_id=F539ED5D-9777-4911-B61E-29BB4816B182&amp;size=2560)](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/070059AE-CA8C-437F-8B56-89CE59CBC6C0.jpg?asset_id=F539ED5D-9777-4911-B61E-29BB4816B182&amp;size=640)
+国王命令瑞士人立即放下武器，并退回到他们的兵营。
 
+1792年8月10日，路易十六，致他的瑞士卫队
 
+⚔️ 我們已接近共和制的盡頭。一場革命已經開始，尚未下達決定性的反革命行動。為什麼會這樣呢？因為我們在心理和語言上已經卸甲了。
 
-0
+例如：效忠聯邦官員的誓言是捍衛憲法，以對抗國內外的所有敵人；但是如果我們拒絕承認敵人的存在，如果我們不能說出敵人的名字，就不可能進行防禦。最重要的是，這是一件事：我們不允許說出敵人的名字。
+
+這是從語言和心理上卸甲的原始本質。除此之外，美國的敵人也已湧入了政府。現在，當暴民大規模部署暴力後，我們會發現自己並沒有做好準備，迷失方向並且毫無防備。
+
+**我們怎麼會走到這步田地？**
+
+左派分子逐漸控制了我們學校的課程。這些課程是從蘇聯設計中複製而來，供我們方便使用。 （請參閱Robin Eubanks”獲得資格已毀滅：如何以及為何使教育成為武器” 。）該課程破壞了頭腦能思考的能力。它使我們的孩子遠離愛國主義。它導致婦女反對男人，黑人反對白人，而美國人反對自己的國家。這是一個非常簡單的教條式灌輸過程，沒有人認真地懷疑挑戰過。我們以豐厚的資金支持了這一项叛國罪。結果，十年來，我們逐漸失去了對自己(教育)機構的控制。這就是為什麼我們終於來到了這個悲慘時刻。
+
+最能代表這一總體過程的短語是“從心理和語言上卸甲”。我們已經從思想上解除了武裝，現在這個過程已經從思想領域發展到街頭暴力。如果這一過程繼續下去，那麼當外國敵人用其導彈、軍隊和艦隊發動進攻時，所有種族和有信仰的美國人都會遭到屠殺。當前，我們的經濟在許多方面受到攻擊。法律和秩序正從我們身上被剝奪。首先，警察將不再被資助；第二，革命將使美國軍隊不被資助；第三，中共與蘇俄將轟炸並入侵我國。
+[!\[\](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/8F5A4ECF-0C8E-468E-842C-F910B9F3286F.jpg?asset_id=261DBF94-2213-472C-ABAE-88ACD0AFA82D&amp;size=2560)](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/8F5A4ECF-0C8E-468E-842C-F910B9F3286F.jpg?asset_id=261DBF94-2213-472C-ABAE-88ACD0AFA82D&amp;size=699)
+考慮以下情況；全國各地的警察跪在“抗議者”面前乞求寬恕。郊區的白人也向黑人屈膝。無能為力的中產階級之中充滿著姑息及卑恭屈膝的精神。這預示著即將進行的大規模徵用。也預示著暴行、殺戮、大屠殺、任意逮捕、暴民肆虐、外國入侵和軍事獨裁。
+
+在民主黨州，馬克思主義革命者正在用黑色憤怒來掩蓋對我國經濟的襲擊-佔領街道，燒毀和掠奪企業，恐嚇政府並制服平民。現在，他們的策略在發揮作用。如果政府不拿回街頭的主導權，停止(他們對)財產的破壞，那些革命者將開始主宰條件。在那種情況下，每一次談判都將不利於政府，直到革命者成為政府為止。
+
+目前，革命者要求清空監獄，並解散警察。這將確保他們無限期地控制街道。這將使他們能夠隨意使用武力，沒收財產並實施“法外”殺戮。革命者將組建自己的政府，以(法國革命的)羅伯斯庇爾公共安全委員會為榜樣。
+
+回應以上內容，有很多人會說我在誇大目前的麻煩。他們會說我的反共偏見使我對事件產生了扭曲的看法。他們將辯稱，這些抗議是“和平的”，根本不是關於馬克思主義的，而是與“白人特權”和“系統性的種族主義”有關。儘管許多示威者確實擔心警察的暴行和系統性種族主義，但他們只不過是小卒子-也是革命左派進行暴力襲擊的掩護。
+
+許多善良和慷慨的人相信愛與和平的左翼烏托邦。但是，他們的世界是一個顛倒的世界，在這個世界中，所有事實都可以通過意識形態不斷顛倒的眼光所看到的。可悲的是，他們不知道實際操縱它們的力量。他們的歷史和政治知識太有限，他們對於尚未完全理解的爭議是無法安全地參與地。弗拉基米爾·列寧（Vladimír Lenin）給於這些好人一個名字。他稱他們為“可利用的白痴”。
+
+當前的暴動與白人種族主義無關，與中共國和俄羅斯對美國的戰爭準備息息相關。(美國)這個國家的左派人士（無論有意或無意）都是外國勢力的工具。而沒有意識到這是一個衍生出的政治”孩子”。它代表著無知。
+
+“系統性的白色種族主義”之爭是我們敵人所提出的主題。這個主題一直得到北京和莫斯科的支持。因其戰略目的而獲支持，現在已成為焦點。無論我們的國內問題是什麼，屈膝於被共產黨員和外國敵人用來掩護的抗議活動之前，等於自殺。
+[!\[\](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/6930EC8E-7179-4041-B080-8246B5FFFDE1.jpg?asset_id=D9BB8BDE-1B2D-4DAB-94ED-4821A9203976&amp;size=2560)](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/6930EC8E-7179-4041-B080-8246B5FFFDE1.jpg?asset_id=D9BB8BDE-1B2D-4DAB-94ED-4821A9203976&amp;size=721)
+如果我們曲膝，那麼一切都不會再恢復正常了。有一段破壞者闖入一商業的視頻；裡面的人大喊：“我們站在你們這邊！我們是支持你們的！”但是破壞者並沒有停止。他們繼續粉碎出現在面前的一切。
+
+我們許多政治人物和軍事領導人都對“抗議者”表示同情。他們害怕用武力打擊到處猖狂的搶劫者和煽動者。因此，搶劫、焚燒和暴力將繼續。革命者的強化，主要是因為微弱的反應-這種反應讓人想起1792年法國君主制。
+
+捍衛軟弱的政府是一項危險的任務。這樣的政府從不堅定。他們準備姑息，甚至投降。警察宣誓要用生命來保護社會，但他們不會（反過來）得到軟弱的政治家的支持。他們將被犧牲。他們的一舉一動都將受到猜測。即使是現在，他們還是被視為種族歧視。
+
+明尼阿波利斯市議會正在（此時此刻）在考慮是否解散警察。在洛杉磯，已批准了一項措施，不再資助部分警察並將錢轉給黑人激進分子。
+
+想想法國大革命中發生的事情：國王路易十六看到一場正在準備中的起義，希望不取他的臣民的生命，所以將自己交給革命者的手中，並說：“先生們，我來這裡是為了避免重大罪行的發生;我認為我與你們在一起會更安全。”他放棄了宮殿，也放棄了瑞士衛隊對他的保護。
+
+將國王拘為人質的革命者命令瑞士衛隊放下武器並投降。警衛回答：“我們認為自己是不光彩的” “我們是瑞士人，瑞士人是寧死不屈。”
+
+宮殿及其周圍地區開始激烈戰鬥。瑞士人為自己抵抗。革命者被抵抗力量激怒了。路易十六聽說在戰鬥，就命令其警衛立即放下武器。他們試圖服從卻被屠殺了。在900名瑞士警衛中，有600名被立即殺害，另有200人死於傷口或後來被謀殺。
+[!\[\](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/11FD6DCE-ECFF-4CCB-A129-A36D7E54F93E.jpg?asset_id=EF243EB7-FB4A-424A-9F14-485B08F6CC98&amp;size=1024)](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/11FD6DCE-ECFF-4CCB-A129-A36D7E54F93E.jpg?asset_id=EF243EB7-FB4A-424A-9F14-485B08F6CC98&amp;size=1024)
+以下是整個過程的摘要：—為了避免流血，國王放棄了自己。他的警衛被宰了。後來，國王被革命者斬首（他們曾經保證過他的安全）。皇后，他的妻子也被斬首。他的孩子們被監禁。數千名無辜者被斬首。巴黎暴民統治了那幾年的政治，直到一位名叫拿破崙·波拿巴的年輕砲兵向巴黎暴民近距離發射了葡萄弹弹药並將其驅散。不再有暴民。猜猜誰是該國的下一任統治者？
+
+我們美軍中有沒有大膽、有能力的領導人？目前，陸軍領導層感到恐懼，因為武裝部隊內部的種族分裂會將陸軍分成相互敵對的陣營。他們說，動用軍隊制止左派革命分子的焚燒和掠奪是政治上的不明智之舉。
+
+因此，連陸軍將領都屈膝。當中共國軍隊到達時，也會讓他們下跪。中共國人會給他們鏟子，並命令他們挖。當洞挖得夠深時，會發出槍響。然後一個又一個的身體會掉進洞裡。解放軍將用鬆軟的泥土覆蓋掉入的洞中的屍體。
+
+對於那些在”政治上正確的”笨蛋們：你們應該感到羞恥-因為你們是一群非人的，愛哭的，令人作嘔的，毫無意義的行屍走肉。你們將在未來得到應得的命運。你們由於犯錯、軟弱及道德懦弱將屈膝而死。明天他們將燒毀郊區並使你們喪命。當你們為“好的”中共國士兵開掘墳墓時，我希望這些話被你們銘記在心：**你們背叛了國家三十多年的和平與繁榮。當你們的敵人接管學校時，你們不在乎。當商店裡的一切都是敵人製造時，你們喜歡低廉的價格。當你們的敵人競選國會和白宮時，你們投了贊成票。你們祝賀自己賢德，但是你們並不賢德。你們只是膽小鬼。**
+
+你們接受共產主義的謊言。你們為贏得冷戰而自以為是。你們假裝中共國是我們可以合作的國家。但是現在是時候讓你們受苦了。
+[!\[\](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/0D984A70-1B4B-4817-B8CE-B9868D0D5FD7.jpg?asset_id=8B49A162-E598-48CF-BA3E-C811F106AD6F&amp;size=2560)](https://spark.adobe.com/page/lfyjnnqQfhzKS/images/0D984A70-1B4B-4817-B8CE-B9868D0D5FD7.jpg?asset_id=8B49A162-E598-48CF-BA3E-C811F106AD6F&amp;size=853)
+標籤：中國，共產主義，ESSAY，法國革命，傑夫奈奎斯特，國路易十六，左派主義者，政治上正確的，俄羅斯，社會主義，瑞士衛隊，蘇聯
+
+[文章链接](https://presentdangerchina.org/2020/06/to-the-americans-who-are-on-their-knees/)
+
+### **编辑：【喜马拉雅战鹰团】**
+
+2
