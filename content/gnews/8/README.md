@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】07/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-08 21:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/227317/)
+## 英首相約翰遜加強“五眼聯盟”合作 旨在引領西方終結對中共技術的依賴
+`2020-06-09 03:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/227687/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09032150/Picture-1-24.png)图片来源：https://theconversation.com/
+**英國加強“五眼聯盟”（美，澳，加，新）建立更密切的合作關係**
 
-[English\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)
+據《每日郵報》報導英國將在中國占主導地位的領域（如技術和研究領域）進行大量投資，並與“五眼聯盟”建立更密切的合作關係。
 
-[French\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)
+英國首相鮑里斯·約翰遜（Boris Johnson）上週在國家安全委員會會議上宣布了旨在脫離對中共技術繼續依賴的外交政策。
 
-[German\_0607\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)
+上週二的部長和間諜首長會議上，圍繞澳大利亞，加拿大，新西蘭和美國等西方技能部門“縮小差距”的計劃受到了“熱烈的”辯論。
 
-[Korean\_0607\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)
+**首相提出了對西方曾被中共占主導地位的技能領域進行“填補空白”的計劃**
 
-[Russian\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)
+首相約翰遜（Boris Johnson）在國家安全委員會上宣布了旨在結束對北京繼續依賴的外交政策，表達了“重置和改革”關係的決心。鑑於中共對中共冠狀病毒大流行的處理，唐寧街人士警告說，中國政府將“採取行動”。
 
-[Japanese\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)
+《星期日郵報》了解到，在國家安全委員會上討論的計劃包括尋求缺乏5G技術專業知識的緊急解決方案。一月份訪問英國的美國官員提出了由西方支持的企業集團代替英國使用華為的想法，但由於建立時間過長，因而被排除在外。
 
+**首相約翰遜旨在英國對結束西方國家對中共技術依賴發揮領導作用**
 
+內閣和白廳的消息人士證實，英國首相約翰遜希望英國在脫離西方對中依賴方面扮演世界領先的角色。白宮的一位資深消息人士說：“我們在技術和科學等數十個主要市場上失去所長，為此我們陷入過於依賴華為技術的困境。這種情況並非只是英國存在的問題，整個西方世界各國都感同身受。因此，在這方面，英國不能單打獨鬥，我們將幫助我們的合作夥伴填補中方目前正在利用的空白。”
+
+星期二的會議之前，中共政府向英國多次發出敵對警告，不要脫離目前的密切外交和貿易關係。但是，中共冠狀病毒疫情的爆發以及中共對香港的高壓政策的局勢，使首相約翰遜堅定對中共“重置和重新平衡”關係的決心。據了解，內政大臣帕蒂（Priti Patel），國防部長本·華萊士（Ben Wallace）和外交大臣多米尼克·拉布（Dominic Raab）要求對中共採取更強硬的路線。
+
+中共國駐倫敦大使館對此反應：“我們希望英國繼續致力於自由貿易和開放，並繼續確保為中共國公司提供開放，公平和非歧視性的商業環境。”
+
+[原文鏈接](https://www.dailymail.co.uk/news/article-8395453/Boris-Johnson-plans-closer-pact-UKs-Five-Eyes-intelligence-partners.html)
+
+翻譯報導：明澈
+校對整理：瑞安平
 
 0
