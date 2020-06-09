@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年6月8日CCP冠狀病毒大流行第136集
-`2020-06-08 23:38 GM30` [轉載自GNews](https://gnews.org/zh-hant/227440/)
+## 中共發布“疫情白皮書”，修改疫情時間線！“中共病毒疫情每日熱線”
+`2020-06-09 03:17 GM30` [轉載自GNews](https://gnews.org/zh-hant/227657/)
 
-香港演藝界親共演員撐國安法；中共假宣傳，一切都是假的；香港反送中一周年，面對中共暴政，不屈服的香港人；王藏爲疫情發聲，被關押7天…
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
