@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】07/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-08 21:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/227317/)
+## 彭斯談解決收入不平等和經濟恢復問題
+`2020-06-09 03:05 GM31` [轉載自GNews](https://gnews.org/zh-hant/227453/)
 
-戰友之家圖文摘要組及小語種組
+副總統邁克·彭斯被[CNBC](https://www.youtube.com/watch?v=7iyZ4WsDmGA)電視台採訪，談解決收入不平等問題，以及為各州減免冠狀病毒帶來的經濟收入銳減、如何提高收入等問題。彭斯表示，三年半以來，在川普總統的全面減稅、取消管制、釋放美國能源等一系列的政策下，失業率連續破紀錄式地下降，收入增長，尤其是藍領工人的收入增長是最快的。因為疫情的影響，導致很多美國家庭和企業陷入困境，川普總統會出台一些有利於增長的政策。
 
-[English\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)
+*翻譯：【班班】 校對：【恆久忍耐】字幕：【Pamila文明】*
 
-[French\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)
-
-[German\_0607\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)
-
-[Korean\_0607\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)
-
-[Russian\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)
-
-[Japanese\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)
-
-
+*戰友之家玫瑰園小隊出品*
 
 0

@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突發吉林可能爆發蝗災糧食危機已無法避免
-`2020-06-08 16:43 GM06` [轉載自GNews](https://gnews.org/zh-hant/226806/)
+## 【世界多語言圖文】07/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-08 21:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/227317/)
 
-作者:文茗
+戰友之家圖文摘要組及小語種組
 
-近日，中共農業部門緊急通知！全力做好蝗蟲監測與防控。根據各病蟲測報點發佈的蝗蟲發生資訊，吉林市農業農村局發佈緊急通知，提醒農民朋友並積極組織各級農業部門，全力做好蝗蟲監測與防控工作。
+[English\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08162957/1-70.jpg)
+[French\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)
 
-據蟲情調查，蛟河市、樺甸市、永吉縣、龍潭區、昌邑區、船營區等地的部分荒地、林地、崗地等處已發生蝗蟲危害，呈點片發生。截至6月4日，全市蝗蟲發生面積約13.4公頃，平均發生密度10-20頭/平方米，密度高的可達50頭/平方米，危害部位大都為闊葉草本植物的嫩葉，危害狀為缺刻狀，個別導致整片葉子被吃光。全市農田尚未發生蝗蟲危害，目前蝗蟲處於蝗蝻階段。
+[German\_0607\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)
 
-蝗蟲又叫土螞蚱，在吉林市一年發生一代，多數以卵在土中越冬，越冬卵約於5月中、下旬至6月上旬孵化。6月下旬至7月中旬以前多為蝗蝻階段，多數為3-4齡。7月上中旬是成蟲發生盛期，也是危害盛期。常見的有笨蝗、短星翅蝗、黑背蝗、尖翅蝗，形狀略似飛蝗，分佈地區很廣，多生活在山區坡地以及平原低窪地區的高崗、堤田埂、地頭等處。除危害糧食作物外，還可危害果樹、蔬菜等，危害性比飛蝗小。蝗蝻多在樹邊、草叢、坡地上活動為害，以後隨著蟲齡的增加，遷移力增強，逐漸向農田蔓延擴散，如不及時防治能把大片作物吃光，嚴重影響農業生產。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163121/2-50.jpg)
-為此，市農業農村局研究下發了《關於迅速開展蝗蟲等病蟲害調查監測和防治工作的緊急通知》，要求各級農業農村系統迅速開展蝗蟲監測防治工作，組織農技人員和農戶扎實開展蝗蟲等病蟲害的監測、調查和防控工作。
+[Korean\_0607\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)
 
-吉林市農業農村局植保專家提出防控措施建議。高度重視蝗蟲防控工作。各縣（市）區的農業農村局要組織植保技術人員加強對所轄區域的林地、荒地和周邊農田的調查監測，全面準確掌握草荒地、林地等區域蝗蟲發生動態，及時上報資訊，並組織農戶及時防治，控制擴散為害；如出現大面積、高密度發生情況，要及時組織開展統防統治、聯防聯治，確保農田免受蝗蟲為害。把握防治指標適期及發生密度指標。蝗蟲防治指標為5頭/平方米，防治適期為3-4齡盛期之前。密度在20頭/平方米以下的為中低密度發生區，20頭/平方米以上為高密度發生區。掌握防治方法。一是生物防治技術。在中低密度發生區、水源地、自然保護區等地，禁止或限制使用化學農藥，可適當降低防治指標，在3齡盛期前，使用苦參堿、印楝素等生物農藥防治，必要時建立隔離帶進行藥劑封鎖。二是化學藥劑防治。主要在高密度發生區採取化學應急防治。可選用馬拉硫磷、高氯.馬、阿維.三唑磷、吡蟲啉等化學藥劑。
+[Russian\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)
 
-以我對共產黨的瞭解，共產黨往往會把事件的嚴重性淡化很低。當它告訴你沒有危險，就是很危險了；共產黨如果說危險的時候，那就是告訴你“病入膏肓”。所以吉林地區蝗災的危險程度可想而知。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163159/3-28.jpg)
-與中國一山之隔的印度近日再次遭受蝗災，5月上旬以來，印度多地出現大量蝗蟲並造成農田損毀，部分城市區域也出現蝗蟲群。印度政府稱，這是印度近30年來遭受的最嚴重蝗災。
+[Japanese\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)
 
-2020年年初，沙漠蝗蟲在印度、巴基斯坦等地肆虐。隨著蝗蟲進入交配期，2月份，蝗災好不容易平息下來。沒想到，5月份上旬，第二輪蝗災又捲土重來，據統計，目前印度已經有約5萬公頃農田被毀，被認為是1993年以來最大規模的蝗災。
 
-這次襲擊印度的沙漠蝗蟲是全球破壞性最大的遷徙害蟲，根據聯合國糧食組織的資料，1平方公里大小的沙漠蝗蟲群，大約有8000萬隻成年蝗蟲，一天所消耗掉的食物總量，可以滿足3.5萬人吃一頓。第二輪蝗災的猛烈程度，甚至超過了2月的第一輪蝗災，據瞭解，蝗蟲在3個月內能通過繁殖讓數量翻20倍，這意味著在未來適宜的雨季氣候下，印度等地的蝗蟲將繼續翻倍增長。誰敢保證這次印度蝗災不會進入中共國，如果進入西南、西北地方，後果不堪設想。
-
-蝗災不論在國內還是鄰國的爆發，都對中華大地糧食安全構成了威脅。尤其是這次東北地區的蝗災，對中共國糧食安全的威脅是十分恐怖的。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08163248/4-24.jpg)
-據中共國家統計局資料，2008年東北三省的糧食總產量達到1785億斤，約占全國糧食產量的16.9%；2018年，東北三省糧食總產量達到2666億斤，約占全國糧食總產量的20.3%。
-
-東北如果爆發蝗災，中共國必將失去20.3%的糧食，加之中美脫鉤甚至世界和共產黨脫鉤，共產黨無錢買糧，那將是數億人面臨饑荒的重大問題。
-
-(文章內容僅代表作者觀點)
 
 0
