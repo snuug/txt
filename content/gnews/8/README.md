@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月8日中共病毒疫情要聞快報
-`2020-06-08 19:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/227184/)
+## 【世界多語言圖文】07/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-08 21:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/227317/)
 
-**重點內容：**
+戰友之家圖文摘要組及小語種組
 
-- 挪威科學家證明中共病毒是實驗室產物；
-- 納瓦羅揭露中共妄圖控制美國；
-- 牡丹江疫情勢頭漸猛多個小區封閉；
-- “地攤經濟”映射中共高層內鬥。
+[English\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210350/English_0607_CCP_Virus_Updates.pdf)
+
+[French\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210408/French_0607_CCP_Virus_Updates.pdf)
+
+[German\_0607\_CCP\_Virus\_Updates\_-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210414/German_0607_CCP_Virus_Updates_-.pdf)
+
+[Korean\_0607\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210422/Korean_0607_CCP_Virus_Updates-.pdf)
+
+[Russian\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210427/Russian_0607_CCP_Virus_Updates.pdf)
+
+[Japanese\_0607\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/08210430/Japanese_0607_CCP_Virus_Updates.pdf)
 
 
-
-
-製作：【上天造 滅疫組】
 
 0
