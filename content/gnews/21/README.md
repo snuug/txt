@@ -1,91 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日 美國政要推文選譯
-`2020-06-09 22:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/228481/)
+## 前克格勃官員預言美國騷亂並開解藥
+`2020-06-10 01:26 GM09` [轉載自GNews](https://gnews.org/zh-hant/228638/)
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has used cheap goods, manufactured with stolen technology, to buy the West’s silence about its appalling aggression in Hong Kong, Xinjiang, Tibet and elsewhere. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [https://t.co/5zhmNfqjjm](https://t.co/5zhmNfqjjm)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270464313916940288?ref_src=twsrc%5Etfw)
+**(作者：Horus蓮花)**
 
-參議員 Marsha Blackburn：中共用偷來的技術制造廉價商品，再用這些廉價商品買通西方，讓他們在中共對香港、西藏以及其他地區的侵略上保持沈默。
+**導讀**
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+中共病毒大流行和喬治·弗洛伊德（George Floyd）被殺，對於壹直渴望在美國進行革命的人來說，是壹場“完美的風暴”。暴力和搶劫表明他們的意圖不是正義，而是混亂和危機。背後推動的力量尚待確定。但是，如前蘇聯叛逃者、克格勃官員尤裏·貝茲梅諾夫（Yuri Bezmenov）在1984年所揭示的：意識形態顛覆的種子是幾十年前就種下的。本文旨在揭示當今美國的危險：中共就是幾十年前的蘇聯。
 
-> China is waging a sophisticated online propaganda and deception campaign to challenge American leadership. Beijing has created hundreds of thousands of fake [@Twitter](https://twitter.com/Twitter?ref_src=twsrc%5Etfw) accounts to amplify its megaphone for Communist propaganda.
->  [https://t.co/94eGcxs5on](https://t.co/94eGcxs5on)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270433603898372097?ref_src=twsrc%5Etfw)
+以下的對話記錄來自G.愛德華·格裏芬對貝茲梅諾夫的驚人訪談：蘇聯對自由世界媒體的顛覆 （1984）。貝茲梅諾夫在訪談中揭示了克格勃針對西方社會的顛覆策略，也解釋了馬克思主義意識形態如何破壞經濟穩定，有意將美國推向若幹危機，以便在華盛頓實行“老大哥”式的暴政。
 
-參議員 Marsha Blackburn：中國正在開展壹場復雜的網絡宣傳和欺騙運作，以挑戰美國的領導階層。北京在推特上建了幾十萬個虛假賬號，來擴大其共產主義大外宣。
+貝茲梅諾夫1939年出生於莫斯科附近的梅季希（Mytishchi），是壹位蘇聯高級軍官的兒子。 17歲時，他進入了莫斯科國立大學下屬的東方語言學院，該學院直屬克格勃和共產黨中央委員會。除語言外，他還學習歷史，文學和音樂，並成為印度文化的專家。貝茲梅諾夫專長於馬克思列寧主義的宣傳和意識形態顛覆。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10012411/Screen-Shot-2020-06-10-at-2.20.09-PM.png)
+**訪談文本記錄（節選）**
 
-《紐約時報》：中國的推特運作背後，壹群居心叵測的隨聲附和
+**G.****愛德華****·****格裏芬（****E. Griffin****）**：您說過好幾次意識形態顛覆。恐怕有些美國人對此並不完全理解。當蘇聯使用意識形態顛覆壹詞時，這是什麽意思？
 
-> While the world is distracted by COVID-19, China is attempting to take control of the South China Sea. [https://t.co/jw1r5riRc4](https://t.co/jw1r5riRc4)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270405609158926336?ref_src=twsrc%5Etfw)
+**尤裏****·****貝茲梅諾夫（****Yuri Bezmenov****）**：意識形態顛覆是壹個過程，它是合法，公開和開放的。您可以用自己的眼睛看到它。所有您需要做的，所有美國大眾媒體所要做的，就是從耳朵上拔掉香蕉，睜開眼睛，他們就能看到它。意識形態顛覆沒有神秘感，也與間諜活動無關。我知道間諜情報收集看起來更加浪漫。它可能會銷售給出更多的受眾，賣出更多廣告。這就是為什麽好萊塢制片人對詹姆斯·邦德（007）式的驚慄片如此瘋狂的原因。但是實際上，根據我的意見，以及和我類似級別叛逃者的觀點，克格勃的主要重點根本不在情報領域。間諜活動僅花費約15％的時間、金錢和人力。另外85％是壹個緩慢的過程，我們稱之為意識形態顛覆或積極措施（或心理戰）。本質上，這是要改變每個美國人對現實的看法，以至於達到這樣的程度：盡管有大量的信息，但沒有人能夠為了捍衛自己、家人、社區、國家的利益而得出明智的結論。這是壹個強大的洗腦過程，過程非常緩慢。它分為四個基本階段。
 
-參議員 Marsha Blackburn：當全世界都被冠狀病毒牽扯精力時，中國卻試圖控制南中國海。
+第壹個階段是去道德化。使壹個國家去道德化要15到20年。為什麽這麽多年？因為這是在敵對的國家中用敵對的意識型態教育壹代學生所需的最短年限。換句話說，馬克思列寧主義意識形態被灌輸到至少三代美國學生的頭腦中，而不受美國主義、美國愛國主義的基本價值觀的挑戰或制衡。結果是，您可以看到大多數60年代畢業的、輟學的或半生半熟的知識分子的人現在在政府、公民服務、企業、大眾媒體和教育系統中占據著重要位置。您被他們困住了。您無法擺脫它們。他們已經被汙染了。他們被編程為以某種方式思考和對某些刺激做出反應。即使讓他們接觸真實信息，您也無法改變他們的主意。即使您證明白色是白色，而黑色是黑色，您仍然不能改變他們基本的看法和邏輯行為。換句話說，去道德化的過程已經完成且不可逆轉。要擺脫這些人，您還需要20或15年的時間來教育新壹代具有愛國心和常識的人，他們將為美國社會的利益服務。
 
-路透社：美國軍方指揮官說，中國打著冠狀病毒的幌子強推領土主張
+**格裏芬（****G. Edward Griffin****）**：正如您所說的那樣，這些人已經被“編程”處理了，他們熱衷於對蘇聯概念的開放。在這個國家這些人會被去除掉的。
 
-> In Feb, [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & I sent a letter to DOJ pointing out that [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda rag [@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw)'s FARA filings were incomplete. This month, the papers gave DOJ a specific, itemized advertising report for 1st time… $19 Million to US newspapers! Incl. $4.6 Mill to WaPo alone.
-> — Jim Banks (@RepJimBanks) [June 9, 2020](https://twitter.com/RepJimBanks/status/1270446071605534721?ref_src=twsrc%5Etfw)
+**貝茲梅諾夫（****Yuri Bezmenov****）**：他們中的大多數人，是的，僅僅是因為他們會在將來看到平等和正義的美麗社會在實踐中意味著什麽時的心理震撼。顯然，他們會起義。他們將是非常不快樂，沮喪的人。馬克思列寧主義政權不容忍這些人。他們會加入持不同政見者的圈子。與現在的美國不同，在未來的馬克思列寧主義的美國將沒有異議可生存的地方。在這裏，您可以看到丹尼爾·埃爾斯伯格（Daniel Ellsberg）和簡·方達（Jane Fonda）這樣受歡迎的人或者超級富豪，因為批評五角大樓，他們成為持異議者。將來，這些人將像蟑螂壹樣被壓扁。沒有人會為他們美麗的崇高平等觀念付出任何代價。他們不了解這壹點，這當然會是他們最大的震驚。在過去的25年中，美國的去道德化過程已經完成。實際上，這已經超額完成了，因為現在去道德化達到了甚至安德羅波夫和他的所有專家都夢想不到的如此巨大成功。由於缺乏道德標準，大多數情況下由美國人針對美國人完成。正如我之前提到的，接觸真實信息不再重要。去道德化的人無法評估真實信息，事實對他而言毫無用處。即使我向他提供信息、真實證據、文件、圖片，即使我強迫將他帶到蘇聯並向他展示集中營，他也不會相信，直到他被踢屁股。當軍靴使他崩潰時，他會理解，但在此之前不會。這是去道德化情景的悲劇。因此，基本而言，美國陷於去道德化的情景。即使您現在就從這壹刻開始，開始教育新壹代的美國人，您仍然需要15到20年的時間，才能將意識形態對現實的認識轉變為常態和愛國主義。
 
-眾議員 Jim Banks：在二月份，我和科頓參議員致信司法部，指出中共大外宣劣質《中國日報》在《外國代理人登記法》（FARA）登記的檔案不完整。本月，該報第壹次向司法部提交了壹份具體的、分項列出的廣告投放報告…在美國報紙上投放了1900萬美元！其中《華盛頓郵報》壹家得到460萬美元。
+下壹階段是去穩定。這時，顛覆者不在乎您的想法和消費方式，無論您吃的是垃圾食品還是發胖而松軟。這不再重要了。這段時間只需要兩到五年就能動搖壹個國家的穩定。重要的是這些基本要素：經濟、外交關系和國防系統。您可以很清楚地看到，在某些領域，例如國防和經濟等敏感領域，馬克思列寧主義思想在美國的影響是絕對驚人的。 14年前，當我抵達這個世界時，我簡直不敢相信，這個過程將會如此之快。
 
-> The pandemic has altered our relationship with China fundamentally, and our attitudes and policies must change.
-> 
-> Every day the Chinese Communist Party controls our access to essential medicine is a day that American patients are at risk.[https://t.co/tAEXsciPai](https://t.co/tAEXsciPai)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270362328626855937?ref_src=twsrc%5Etfw)
+下壹階段當然是危機。使壹個國家瀕臨危機可能只需要六周的時間。您現在可以在中美洲看到這種情況。
 
-參議員 Tom Cotton：全球疫情爆發從根本上改變了我們與中國的關系，我們的態度和政策必須做出改變。中共控制我們基本醫藥供應的每壹天都是把美國的病人置於風險之中。
+在危機中，隨著權力結構和經濟的劇烈變化，您進入了所謂的正常化時期。它可能無限期地持續下去。正常化是從蘇聯宣傳中借來的壹種憤世嫉俗的表達。蘇聯坦克於1968年進入捷克斯洛伐克時，勃列日涅夫同誌說，現在兄弟般的捷克斯洛伐克的局勢已經正常化了。如果您允許所有蠢材使整個國家陷入危機，向人們承諾各種好處以及人間天堂，只是為了擾亂您的經濟以消除自由市場競爭的原則，並在華盛頓特區成立了壹個“老大哥”般的政府，與沃爾特·蒙代爾（Walter Mondale）這樣的仁慈獨裁者壹道，他們將許諾很多事情，而不管他們是否能兌現諾言。他會去莫斯科親吻新壹代蘇聯刺客的屁股，並制造出錯誤的景象：那就是局勢已得到控制。局勢並沒有得到控制。局勢的無法控制讓人惡心。大多數美國政客、媒體和教育系統訓練的下壹代認為自己生活在和平時期。錯了。美國處於戰爭狀態，壹個對該制度的基本原則和基礎的不宣而戰狀態。當然，這場戰爭的發起者不是安德羅波夫同誌。這是系統所為。無論這聽起來多麽荒謬，聽起來是世界共產主義體系或者世界共產主義的陰謀，無論這是否讓人害怕與否，如果您不感到害怕，我不會有任何牢騷。到現在，沒有什麽可以嚇到您了。但是您不必對此感到恐慌。如今發生的實際情況是，在美國醒來之前，您還有數年的生存時間。但定時炸彈每秒都在滴答作響，災難越來越近。與我不同，除非您想叛逃到南極洲中，否則您無處可逃。就是這樣。這是最後壹個自由和可能性的國家。
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+**格裏芬（****G. Edward Griffin****）**：好吧，那我們該怎麽辦？您對美國人民有何建議？
 
-> We commend the actions of our allies to welcome Hong Kongers seeking to live outside of Beijing’s authoritarian rule. 
-> 
-> We strongly encourage the United States to follow suit and work with Australia and the U.K. to find a solution to this challenge.[https://t.co/i8GGK1Ter3](https://t.co/i8GGK1Ter3)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270467366376398858?ref_src=twsrc%5Etfw)
+**貝茲梅諾夫（****Yuri Bezmenov****）**：我想到的直截了當的事情當然是必須進行非常強烈的全國性努力，以真正的愛國主義精神教育人民。這是第壹。第二，向他們解釋社會主義或共產主義的真正危險，而不管福利國家老大哥政府如何。如果人們不能把握發展中的、迫在眉睫的危險，那麽什麽都不能幫助美國。您可以和自己的自由告別了，包括同性戀自由和囚犯自由。所有這些自由將在五秒鐘內消失，包括您的寶貴謊言。目前，至少有壹部分美國人確信這種危險是真實的。他們必須強迫自己的政府。我不是在談論寄信，簽署請願書以及所有這些美好的高尚活動。我說的是要迫使美國政府停止援助共產主義，因為沒有比停止蘇聯軍事工業聯合體破壞自由世界的任何東西更加迫切和緊要的問題。而且這很容易做到：不提供信貸，不停供技術，不提供錢，不停供政治或外交認可，當然也沒有像和蘇聯的谷物交易那樣的愚蠢行為。如果您停止援助壹群現在坐在克裏姆林宮的兇手，裏根總統還尊敬地稱他們為政府；那麽蘇聯人民，即兩億七千萬蘇維埃人，將永遠感激您。他們沒有統治任何事物，別說統治像蘇聯經濟那樣復雜的事物。因此，非常簡單。也許答案或解決方案過於簡單，但它們是唯壹的解決方案：教育自己並了解周圍的情況。您不是在和平時期生活；您處於戰爭狀態，您有很少的寶貴時間可以救自己。您沒有太多時間了，尤其是當您談論年輕壹代時，他們沒有太多時間可以對著美麗的迪斯科音樂抽搐和進行手淫了。如果我們談論的是資本家或富裕的商人，很快，他們就會消失了。我認為他們正在出售即將上吊的繩索。如果他們不停止這個生意，不能遏制對利益的無盡渴望，並且如果他們繼續與蘇聯共產主義這個怪物進行交易，他們將很快吊死。他們會祈禱被殺死，但不幸的是，他們可能會被送往阿拉斯加管理奴隸行業。這很簡單。我知道這聽起來不愉快。我知道美國人不喜歡聽令人不快的事情，但我叛逃到美國不是為了告訴您有關類似007式間諜活動這樣的愚蠢故事。這是垃圾。您不再需要任何間諜活動。我來是為了談生存：這個系統能否生存的問題。您可能會問我對我有什麽好處？生存。正如我所說，我現在在您的船上。如果我們壹起沈下去，我們將壹起美好地沈沒。這個星球上沒有別的地方可以叛逃了。
 
-參議員 Tom Cotton：我們贊揚盟國采取的行動，歡迎那些要擺脫北京權威統治的香港人。我們強烈建議美國效仿這種做法，與澳洲和英國合作，找到應對這壹挑戰的解決方案。
+**對今天的啟示**
 
-> Our arms control treaties should reflect geopolitical realities. What does Beijing have to hide? [https://t.co/59LYr1TFQe](https://t.co/59LYr1TFQe)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270505708803493888?ref_src=twsrc%5Etfw)
+幸運的是，1980年代後期的美國聽到了貝茲梅諾夫先生的警告。美國擊敗了蘇聯，消除了眼前的危險。但是，共產主義並沒有被消滅。它在中國幸存下來了。基於過去蘇聯在美國奠定的意識形態顛覆基礎，中國共產黨（CCP）現在參與了對美國的戰爭。如果用中共取代蘇聯，讓我們重復貝茲梅諾夫先生在36年前所說的話：
 
-參議員 Tom Cotton：我們的軍備控制條約應該反映出地緣政治現狀。北京有什麼不得不掩蓋的？
+我說的是要迫使美國政府停止援助共產主義，因為沒有比停止【中國共和黨】破壞自由世界的任何東西更加迫切和緊要的問題。而且這很容易做到：不提供信貸，不停供技術，不提供錢，不停供政治或外交認可，當然也沒有像和【中國共產黨】的谷物交易那樣的愚蠢行為。如果您停止援助壹群現在坐在【中南海】的兇手，【川普總統】還尊敬地稱他們為政府；那麽【中國人民，即*14*億中國人民】，將永遠感激您。
 
-美國軍備控制總統特使Marshall S. Billingslea：中國剛剛表示無意參加三方會談。它應該三思。擁有大國地位意味著承擔大國責任。不可以再掩蓋其核擴張行為了。在維也納的座位已為中國準備好了。
+您能看到歷史在重演嗎？這是關於生存的問題。問題是，中共或自由世界誰將生存下來？
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 1/2 [pic.twitter.com/7kmMZWL8vt](https://t.co/7kmMZWL8vt)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249357107838977?ref_src=twsrc%5Etfw)
+**參考文獻**
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 2/2 [pic.twitter.com/p4dULYh67r](https://t.co/p4dULYh67r)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249312065171456?ref_src=twsrc%5Etfw)
+觀看上述節選文本視頻: [https://www.youtube.com/watch?v=bX3EZCVj2XA&feature=youtu.be](https://www.youtube.com/watch?v=bX3EZCVj2XA&amp;feature=youtu.be)
 
-比爾·格茨先生 轉推 衛納夜格：#中國#解放軍#培訓中心#新疆#特殊任務旅 在分兩個推文中詳細介紹
+觀看完整的訪談: [https://www.youtube.com/watch?v=zgmg2VFX058](https://www.youtube.com/watch?v=zgmg2VFX058)
 
-> The United States stands with the United Kingdom against the Chinese Communist Party’s coercive bullying tactics. We stand ready to help our British friends build critical infrastructure. [https://t.co/mFNBfMlTBk](https://t.co/mFNBfMlTBk)
-> — Secretary Pompeo (@SecPompeo) [June 9, 2020](https://twitter.com/SecPompeo/status/1270459093086593025?ref_src=twsrc%5Etfw)
 
-美國國務卿 蓬佩奧：美國與英國壹道反對中國共產黨的脅迫性霸淩策略。我們隨時準備幫助我們的英國朋友建設關鍵基礎設施。
 
-美國國務院：談中國對英國的脅迫
-
-> I agree. 
-> 
-> For the safety of its citizens and allies, the UK is right to take measures to reduce Huawei’s role in it’s 5G network, & scaling down Communist China’s involvement in their infrastructure. Read more in my Op-Ed: [https://t.co/XwLpJ6ZxDO](https://t.co/XwLpJ6ZxDO) [https://t.co/vyg89gSY15](https://t.co/vyg89gSY15)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270496335565815808?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：我同意。為了其公民和盟國的安全，英國采取措施減少華為在5G網絡中的作用，並降低中共國在其基礎設施中的投資是正確的做法。更多信息請看我的評論文章
-
-> It’s been 1 year since hundreds of thousands of Hong Kongers took to the streets to make their voices heard in the fight for autonomy & human rights.
->  
-> While there have been many ups & downs, the fight continues and the US is proud to [#standwithHongKong](https://twitter.com/hashtag/standwithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) for as long as it takes. [https://t.co/nnXgs3EYYr](https://t.co/nnXgs3EYYr)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270473966138818560?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：千千萬萬香港人民走上街為自治和人權而抗爭已經壹年了。盡管經歷了許多起起伏伏，但鬥爭仍在繼續，美國會壹直支持香港並為此感到驕傲。（《紐約時報》）
-
-> China is a country of 1.4 billion hard working, entrepreneurial people with high regard for education and is a formidable force. Led by an evil force [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) it is a disaster for the world. Now it’s at its economic worst and the best time to force it to change thus save the world.
-> — Jimmy Lai (@JimmyLaiApple) [June 9, 2020](https://twitter.com/JimmyLaiApple/status/1270269903937736704?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推 黎智英先生：中國是有著14億辛勤工作、具有創業精神、高度重視教育和力量強大的人民的國家。被邪惡的中共統治著，對世界來說是壹場災難。現在它正處於經濟最糟糕的時期，也是迫使其改變從而拯救世界的最佳時機。
-
-0
+1

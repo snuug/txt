@@ -1,23 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】08/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-09 22:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/228524/)
+## 中共國的失獨父母，余生何處安放？
+`2020-06-10 02:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/228706/)
 
-戰友之家圖文摘要組及小語種組
+**作者：滅共日記**
 
-[English\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224103/English_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224103/English_0608_CCP_Virus_Updates.pdf)
+剛剛看到一個新聞59 歲東北失獨婦女自殺身亡，夫妻倆患多種疾病負債十幾萬，自稱「活不起」。主人公名叫孫玉華，2008年，孫玉華年僅23歲的女兒在一場車禍中被活活燒死，夫妻倆自此成爲“失獨者”。2018年，老伴林郁慶先後患上腦梗、癫痫，繼而腦瘤。從丹東到沈陽，再到北京，老伴病情危殆，一直拖到2019年7月在北京完成首次腦瘤手術。誰知，丈夫的手術還沒結束，孫玉華又得了腎結石、腦梗。回到丹東後11個半月裏，孫玉華陷入痛苦的絕境。丈夫耳聾，手術後成爲智障；孫玉華則一次次因腦梗發病，手術、醫藥、康複、養老院，花光了積蓄，並從兄弟姐妹那裏借債十幾萬。她賣掉了金首飾，還打算賣掉房子。高血壓、腦梗、膽囊炎的痛苦，丈夫的癡呆，讓她徹底失去了生的欲望。她一次次向人抱怨“活不起”，嘗試了種種辦法自殺。今年5月16日，第三次腦梗手術前夕，她服下了從養老院偷來的半瓶安眠藥。這件事讓“失獨者”這個詞語再次走近老百姓的視線！
 
-[French\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224110/French_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224110/French_0608_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10023502/1-88.jpg)
 
-[Japanese\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224116/Japanese_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224116/Japanese_0608_CCP_Virus_Updates.pdf)
+失獨這兩個字意味著什麽？意味著兩位白發人送黑發人。整件事情讓我們值得思考的並不只是女兒的去世，而是她看不起病，還不起債，這樣的生活就算女兒活著又能怎麽樣呢？無非是多了個人的悲劇而已。在中共國社會福利滯後，貧困才是最致命的。過去中共國經常宣傳只生一個好，國家來養老,現在看呢？我只想說中共國的醫療，真讓老百姓畏懼看病，真要查出來癌症之類的只能等死，就算把家底都賣幹淨，欠一屁股債都不夠看病。隨便一個大病或者意外都能徹底的要了老百姓的命。看看現在多少90後沒了結婚生子的欲望，難道他們不想嗎？實在是活著的成本太高太累了，不敢生病，甚至有時候只是想想這個問題就很無助，甚至你所努力奮鬥一輩子的積蓄可能不足以支撐在ICU多待幾個小時的。
 
-[Russian\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224124/Russian_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224124/Russian_0608_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10023618/2-59.jpg)
 
-[Spanish\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224128/Spanish_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224128/Spanish_0608_CCP_Virus_Updates.pdf)
+最近10多年來，中共國對“失獨”家庭的扶助雖然一直都有。例如：遼甯省的“失獨”扶助金從2017年的每人每月340元提高至500元，2019年再提至610元，即每年7320元。但是這點錢對于身患疾病的失獨者來說就是杯水車薪。中共政府一直在強調貧困戶解決問題，尤其是進入2020年中共更是提出要解決全國貧困問題，要全民一起奔小康。爲什麽總是聽到口號，沒有看到中共政府任何的實質行動呢？爲什麽中央電視台的新聞聯播老百姓能看到的總是致富的故事，但是現實中卻充滿了一幕幕這樣的悲劇？對于老百姓來說因病治貧真的太可悲了，在中共國這個社會，這樣的事情不計其數，試問現在有多少人敢生病，生病在中共國似乎已經成爲一種奢求，因爲老百姓知道一旦生病，尤其是大病，那就是深淵，就是無底洞，只要出現就會轟然倒塌，塌的連渣都不剩，是會把家人拖死的無底洞。現在的年輕人誰身上沒有背負著房貸，現在的農村人誰真正實現了脫貧致富，中共總是口號喊的亮，實際效果呢？
 
-[Korean\_0608\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224132/Korean_0608_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09224132/Korean_0608_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10023730/3-39.jpg)
 
+在中共國對于窮人來說真的是，生死有命，富貴在天。沒有經曆過一場疾病，就不會知道錢是怎麽沒的，人又是怎麽沒的。中共國老年人沒辦法有尊嚴地活著、有尊嚴地死去，這一切完全是因爲中共的獨裁統治，沒有給老百姓活下去的機會，所以說一個國家真正的強大，不是窮兵黩武到處裝逼，而是讓國內的弱勢群體有尊嚴有能力的活著！
 
+GNEWS之前文章：
+你的房産已經被中共割了70年的韭菜 [https://gnews.org/zh-hans/226226/](https://gnews.org/zh-hans/226226/)
+日本飛機往學校投病毒害死中國人[https://gnews.org/zh-hans/225343/](https://gnews.org/zh-hans/225343/)
+中共央行祭出貨幣政策新招 [https://gnews.org/zh-hans/223435/](https://gnews.org/zh-hans/223435/)
+
+（文章內容僅代表作者觀點）
 
 0
