@@ -1,72 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020.06.09反抗的一週年！
-`2020-06-09 12:50 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/228131/)
+## 美國務卿蓬佩奧：公開承諾幫助英國擺脫中共控制 號召西方盟友共同對抗中共威脅
+`2020-06-09 20:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/228456/)
 
-*作者：玄天生*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09201730/dfc79d04-b335-4f50-8db4-ff6c03ac39ee.jpg)圖片來源：[www.telegraph.co.uk](https://www.telegraph.co.uk/news/2018/05/08/pictures-day-8-may-2018/us-secretary-state-mike-pompeo-meets-british-foreign-secretary/)
+美國國務卿邁克爾·蓬佩奧今天最新聲明：將與西方盟友統一戰線來對抗CCP的脅迫性的欺凌手段。
 
-*校閱：Julia Win*
+國務卿蓬佩奧具體指出，中共揚言威脅英國，要求其允許華為在倫敦建造5G網絡，否則要懲罰英國匯豐銀行。同時中共居然公然宣布：可能不再幫助英國建造核電站以此要挾英國政府。眾所周知，總部位於深圳的華為公司實則為中國共產黨用來監視其他國家的海外延伸機構。
 
-**引言：今天(2020.06.09)是香港反送中運動一週年，是香港人反抗開始的日子。但對於香港這一代人來說它是一輩子，將會被載入史冊。香港人，只有戰勝中共，才能為逝去的英靈，為手足尋回被消失 (被失蹤、被死亡、被判刑、被性侵犯……) 的真相。**
+在聲明中，國務卿蓬佩奧提醒西方盟友：
 
-**香港口號從香港人反抗、香港人報仇。香港人已清醒地意識到，只共所謂的一國兩制就是一個騙局！中共殘殺人類，一步步迫使香港人無路可退，迫使世界覺醒！人們也逐步看到，中共其實就是一邪惡的集合體（列寧主義、共產聯盟、虛假的烏托邦，謊言的主體，赤納粹的手段，1984喬治歐威爾模式、撒旦的化身等等）。**
-[!\[\](https://spark.adobe.com/page/5RYYBrNJctXi7/images/CBE84A64-BAAF-4D25-AA3C-C0FF137B6CC8.jpg?asset_id=6E95F0D4-21F9-4883-BDE2-F710258A3D5D&amp;size=2560)](https://spark.adobe.com/page/5RYYBrNJctXi7/images/CBE84A64-BAAF-4D25-AA3C-C0FF137B6CC8.jpg?asset_id=6E95F0D4-21F9-4883-BDE2-F710258A3D5D&amp;size=1024)
-2019年6月9日是反送中大遊行(100萬人)開始的時刻，由此，香港進入最黑暗的時刻（97回歸後，香港社會逐漸變得黑暗，由原來的正常社會慢慢變得越來越不正常）。港共治下的黑警更加是無限警權，為了完成中共所定下的期望，他們不惜出賣自己靈魂，甚至成為中共及港共手中的工具，更甚者是避孕套.
+中共對匯豐銀行的粗暴行為應做為一個示警。事實上，就在上週，匯豐銀行亞太區行政總裁，中國人民政治協商會議成員Peter Wong 簽署了一份請願書支持北京摧毀香港自治權的立法決定，並在聯合國簽署的條約中毀約。國務卿蓬佩奧認為Peter Wong這一獻殷勤的舉動但並未阻止中共繼續利用匯豐銀行的生意作為政治手段來對抗倫敦。
 
-他們不單阻止記者行使新聞自由的權利，打壓記者，還毫無人性的暴力對待香港市民，用香港納稅人的錢，來打壓香港人、為自己增加OT(加班)的費用。反送中運動中，僅半年時間，警察就向和平示威的人群發射了16000枚催淚彈，這也僅是2019年12月9日的數據。這一年來，有一萬多手足，被抓捕、被消失、被性侵犯、被死亡等，這也已成為現在的日常。香港人的憤怒已無法用言語形容！香港人也已流下了無法估量的血和淚！
+國務卿蓬佩奧直言聲明：中共的種種攻擊態度威脅行為，已經說明包括美國，英國在內的國際社會不能在經濟上過度依賴中國。各國要守護自己國家的基礎設施免受CCP的吞噬。文章指出，澳大利亞，丹麥和其他自由國家近期都收到了來自CCP的經濟壓力，要他們臣服於中共統治世界的政治願望。
 
-中共偽政權，不僅以黑警、黑社會打壓香港人的反抗，甚至想利用中共病毒(武漢肺炎)達到終止遊行、並於失控後發動生化戰，以利與美國談判，最終統治世界的目的。當然中共計劃一步步落空，可以說黨運已完，天滅中共！中共國不斷發生的天災，由疫情失控到天氣異常，部份地區冬天長達到5個月，再加上暴雨，多區已超出警戒線遭水浸，還有蝗蟲，糧食失收等，國內經濟幾近崩潰。從擺地攤，到取消地攤，由上至下的指引混亂。雖然如此，中共對香港人還是不斷加強控制，更甚者要消滅香港人——留港不留人。出台了國安法，國歌法等。立法會、親共派強行奪取主席位置。國歌法當天黑警的重重佈局，接下來等待的只有封聲、洗腦。
+國務卿蓬佩奧大聲呼籲：美國已做好準備隨時協助英國盟友的所有需求，從建立國家安全到建立可靠的核電站，以開發可信賴並保護其公民隱私的5G網絡。他相信自由國家的往來建立在真正的友誼上，並渴望互相昌盛繁榮，而不是帶有政治意味卑躬屈膝的合作。
 
-我相信，黎明的曙光已經到來。國際上也已行動起來，各國開始接受香港人移民，台灣也接受香港人移民到台灣發展。國際對中共的經濟封鎖也會接踵而來，取消香港自由貿易區，制裁中共會一招接一招。中共病毒源於中共的定論也會很快形成。中共面對香港人才的流失、香港資金轉移，中共內部的政治、經濟，人民的生存將出現嚴重問題。造血已死，心臟停跳也正在倒計時，中共滅亡的那一天已經不遠了！
+[原文鏈接](https://www.state.gov/on-chinas-attempted-coercion-of-the-united-kingdom/)
 
-最後，用香港文宣谷的圖片來紀念反送中的第一天。希望明年是紀念的遊行，希望被消失的手足、還香港真相，還6.4的英靈們真相。時間上，這一天是週年，但對於香港人卻是一輩子的傷疤，是歷史的今天！願世界再次文明，願世界人民覺醒，願世界不再是你我相分，而是人類文明與宇宙文明的相接。
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123013/x1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123018/x2.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123040/a1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123044/a2.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123049/a3.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123054/a4.jpg)
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123332/c1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123337/c2.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123352/d1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123356/d2.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123545/e1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123549/e2.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123609/f1.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123614/f2.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123835/11-4.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123841/12-3.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123849/21.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123854/22.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123903/31.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123908/32.jpg)
-
-
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123919/41.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09123933/42.jpg)
-
-[!\[\](https://spark.adobe.com/page/5RYYBrNJctXi7/images/A5490CAB-B097-4FD4-918F-D5A43061B53E.jpg?asset_id=8D0B0F60-BCB0-4807-BABA-CCCFAD8E1088&amp;size=2560)](https://spark.adobe.com/page/5RYYBrNJctXi7/images/A5490CAB-B097-4FD4-918F-D5A43061B53E.jpg?asset_id=8D0B0F60-BCB0-4807-BABA-CCCFAD8E1088&amp;size=1024)
-文章內容僅代表作者個人觀點
-
-嗚謝圖片來源，pixabay、文宣谷、網絡圖片。
-
-#### 編輯 【喜馬拉雅戰鷹團】
+翻譯報導：瑞貝卡
+校對整理：瑞安平
 
 0

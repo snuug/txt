@@ -1,91 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日 美國政要推文選譯
-`2020-06-09 22:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/228481/)
+## 5元茶位費，莜面村的生死困局！
+`2020-06-10 00:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/228612/)
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has used cheap goods, manufactured with stolen technology, to buy the West’s silence about its appalling aggression in Hong Kong, Xinjiang, Tibet and elsewhere. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [https://t.co/5zhmNfqjjm](https://t.co/5zhmNfqjjm)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270464313916940288?ref_src=twsrc%5Etfw)
+**作者：玉米地大姐**
 
-參議員 Marsha Blackburn：中共用偷來的技術制造廉價商品，再用這些廉價商品買通西方，讓他們在中共對香港、西藏以及其他地區的侵略上保持沈默。
+網易財經6月9日訊 近日有網友在微博上反映，西貝莜面村深圳一門店強制收取5元的茶位費，深圳市市場監管局介入後，西貝通過官微在評論區致歉，並表示將退還收取的茶位費。深圳市市場監督管理局表示，已要求該門店全面自查整改。
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+網易財經了解到，5月28日，一名爲“張嬌嬌護士”的網友在微博發帖稱，其在餐飲品牌“西貝莜面村”華強北九方門店消費後，發現被收取了5元/位的苦荞茶費。
 
-> China is waging a sophisticated online propaganda and deception campaign to challenge American leadership. Beijing has created hundreds of thousands of fake [@Twitter](https://twitter.com/Twitter?ref_src=twsrc%5Etfw) accounts to amplify its megaphone for Communist propaganda.
->  [https://t.co/94eGcxs5on](https://t.co/94eGcxs5on)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270433603898372097?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09235949/2-57.jpg)
 
-參議員 Marsha Blackburn：中國正在開展壹場復雜的網絡宣傳和欺騙運作，以挑戰美國的領導階層。北京在推特上建了幾十萬個虛假賬號，來擴大其共產主義大外宣。
+微博貼出的賬單顯示，5人共計收取25元。上述消費者表示，在咨詢該店服務員後，對方回應稱“喝不喝都收費，賈總規定的。”
 
-《紐約時報》：中國的推特運作背後，壹群居心叵測的隨聲附和
+隨後，西貝莜面村官方微博在其微博下致歉回複稱“很抱歉讓您感受不好，請您私信小編聯系方式，我們會聯系門店爲您退還茶位費。”
 
-> While the world is distracted by COVID-19, China is attempting to take control of the South China Sea. [https://t.co/jw1r5riRc4](https://t.co/jw1r5riRc4)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270405609158926336?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10000046/3-36.jpg)
 
-參議員 Marsha Blackburn：當全世界都被冠狀病毒牽扯精力時，中國卻試圖控制南中國海。
+中共病毒重創餐飲業，曾經不差錢的西貝莜面村打起了5元茶位費的主意。雖說茶位費在廣州地區很普遍，消費者習以爲常。當初莜面村不收茶位費不外乎是吸引顧客來消費的一種促銷手段而已。
 
-路透社：美國軍方指揮官說，中國打著冠狀病毒的幌子強推領土主張
+時過境遷，區區五元已讓莜面村承受不起，一名護士在微博上吐槽莜面村，引來莜面村官微致歉退款，說明莜面村有些心虛，擔心因小失大造成大批消費者流失，才出面應對。
 
-> In Feb, [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & I sent a letter to DOJ pointing out that [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda rag [@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw)'s FARA filings were incomplete. This month, the papers gave DOJ a specific, itemized advertising report for 1st time… $19 Million to US newspapers! Incl. $4.6 Mill to WaPo alone.
-> — Jim Banks (@RepJimBanks) [June 9, 2020](https://twitter.com/RepJimBanks/status/1270446071605534721?ref_src=twsrc%5Etfw)
+問題是一個護士退款了，其他消費者怎麽辦？是全部退費還是按照監管部門要求整改？無論退費與整改，對莜面村來說都面臨著生死困局。
 
-眾議員 Jim Banks：在二月份，我和科頓參議員致信司法部，指出中共大外宣劣質《中國日報》在《外國代理人登記法》（FARA）登記的檔案不完整。本月，該報第壹次向司法部提交了壹份具體的、分項列出的廣告投放報告…在美國報紙上投放了1900萬美元！其中《華盛頓郵報》壹家得到460萬美元。
+有人給莜面村算了一筆賬，若每日接待顧客1000人，茶位費5元/人，一天額外淨收入爲5000元，一個月爲15萬元，一年便是180萬元，相當于普通門店1到2個月的淨利潤，收入相當可觀。
 
-> The pandemic has altered our relationship with China fundamentally, and our attitudes and policies must change.
-> 
-> Every day the Chinese Communist Party controls our access to essential medicine is a day that American patients are at risk.[https://t.co/tAEXsciPai](https://t.co/tAEXsciPai)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270362328626855937?ref_src=twsrc%5Etfw)
+據網易財經此前報道，疫情重創西貝莜面村。西貝董事長賈國龍曾公開表示：疫情導致2萬多員工待業，貸款發工資也只能撐3月。
 
-參議員 Tom Cotton：全球疫情爆發從根本上改變了我們與中國的關系，我們的態度和政策必須做出改變。中共控制我們基本醫藥供應的每壹天都是把美國的病人置於風險之中。
+也就是說莜面村每月發放大約1.5億元工資，2000萬元/天的營收直接歸零。雖說西貝餐飲搞到了浦發銀行4.3億元授信，只能解決一時之困，何況貸款是要連本帶利償還的，無疑讓莜面村背上一個沈重的包袱，除了漲價、裁員沒有別的辦法。
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+4月11日賈國龍在微博發文承認西貝漲價，並稱：“從今天開始，所有漲價的外賣、堂食菜品將挨個恢複到2020年1月26日門店停業前的標准。”隨後，西貝莜面村官方微博轉發並配文稱“對不起大家了”。
 
-> We commend the actions of our allies to welcome Hong Kongers seeking to live outside of Beijing’s authoritarian rule. 
-> 
-> We strongly encourage the United States to follow suit and work with Australia and the U.K. to find a solution to this challenge.[https://t.co/i8GGK1Ter3](https://t.co/i8GGK1Ter3)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270467366376398858?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10000120/5-13.png)
 
-參議員 Tom Cotton：我們贊揚盟國采取的行動，歡迎那些要擺脫北京權威統治的香港人。我們強烈建議美國效仿這種做法，與澳洲和英國合作，找到應對這壹挑戰的解決方案。
+廣東餐飲業服務行業搞了一次餐飲業在疫情期間的調查問卷，數據顯示堪憂。多數門店生存艱難，瀕臨倒閉邊緣。
 
-> Our arms control treaties should reflect geopolitical realities. What does Beijing have to hide? [https://t.co/59LYr1TFQe](https://t.co/59LYr1TFQe)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270505708803493888?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10000208/6-9.jpg)
 
-參議員 Tom Cotton：我們的軍備控制條約應該反映出地緣政治現狀。北京有什麼不得不掩蓋的？
+中共治下的餐飲業除了照顧消費者的感受，還要被迫擔負起政府維穩的責任。中共出于一己私利，打著穩定物價的幌子，強制餐飲企業不許漲價。
 
-美國軍備控制總統特使Marshall S. Billingslea：中國剛剛表示無意參加三方會談。它應該三思。擁有大國地位意味著承擔大國責任。不可以再掩蓋其核擴張行為了。在維也納的座位已為中國準備好了。
+問題是不漲價怎麽生存？本來受疫情影響消費者就少的可憐，漲價後誰還來消費？無論漲價或維持現狀，對餐飲企業來說都是生死困局。唯一能解決這個困局的中共政府就是不減免企業的各種稅收，還美其名曰延遲交稅。
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 1/2 [pic.twitter.com/7kmMZWL8vt](https://t.co/7kmMZWL8vt)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249357107838977?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10000245/7-8.jpg)
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 2/2 [pic.twitter.com/p4dULYh67r](https://t.co/p4dULYh67r)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249312065171456?ref_src=twsrc%5Etfw)
+回到莜面村的五元茶位費，政府應該做的不是派監管部門去督查強令整改，而是根據企業實際情況給予減稅或免稅，把這五元錢消解掉。既幫助了企業渡過難關，又惠顧了消費者的利益，何樂而不爲？
 
-比爾·格茨先生 轉推 衛納夜格：#中國#解放軍#培訓中心#新疆#特殊任務旅 在分兩個推文中詳細介紹
+蛇蠍心腸的中共連五元錢都不肯讓利于企業與消費者，其貪婪成性超出人類底線。五元錢生死困局，中共是始作俑者。不消滅共産黨，企業和消費者都沒有活路，在中共制造的人間煉獄中飽受摧殘與煎熬。
 
-> The United States stands with the United Kingdom against the Chinese Communist Party’s coercive bullying tactics. We stand ready to help our British friends build critical infrastructure. [https://t.co/mFNBfMlTBk](https://t.co/mFNBfMlTBk)
-> — Secretary Pompeo (@SecPompeo) [June 9, 2020](https://twitter.com/SecPompeo/status/1270459093086593025?ref_src=twsrc%5Etfw)
-
-美國國務卿 蓬佩奧：美國與英國壹道反對中國共產黨的脅迫性霸淩策略。我們隨時準備幫助我們的英國朋友建設關鍵基礎設施。
-
-美國國務院：談中國對英國的脅迫
-
-> I agree. 
-> 
-> For the safety of its citizens and allies, the UK is right to take measures to reduce Huawei’s role in it’s 5G network, & scaling down Communist China’s involvement in their infrastructure. Read more in my Op-Ed: [https://t.co/XwLpJ6ZxDO](https://t.co/XwLpJ6ZxDO) [https://t.co/vyg89gSY15](https://t.co/vyg89gSY15)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270496335565815808?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：我同意。為了其公民和盟國的安全，英國采取措施減少華為在5G網絡中的作用，並降低中共國在其基礎設施中的投資是正確的做法。更多信息請看我的評論文章
-
-> It’s been 1 year since hundreds of thousands of Hong Kongers took to the streets to make their voices heard in the fight for autonomy & human rights.
->  
-> While there have been many ups & downs, the fight continues and the US is proud to [#standwithHongKong](https://twitter.com/hashtag/standwithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) for as long as it takes. [https://t.co/nnXgs3EYYr](https://t.co/nnXgs3EYYr)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270473966138818560?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：千千萬萬香港人民走上街為自治和人權而抗爭已經壹年了。盡管經歷了許多起起伏伏，但鬥爭仍在繼續，美國會壹直支持香港並為此感到驕傲。（《紐約時報》）
-
-> China is a country of 1.4 billion hard working, entrepreneurial people with high regard for education and is a formidable force. Led by an evil force [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) it is a disaster for the world. Now it’s at its economic worst and the best time to force it to change thus save the world.
-> — Jimmy Lai (@JimmyLaiApple) [June 9, 2020](https://twitter.com/JimmyLaiApple/status/1270269903937736704?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推 黎智英先生：中國是有著14億辛勤工作、具有創業精神、高度重視教育和力量強大的人民的國家。被邪惡的中共統治著，對世界來說是壹場災難。現在它正處於經濟最糟糕的時期，也是迫使其改變從而拯救世界的最佳時機。
+（文章內容僅代表作者觀點）
 
 0
