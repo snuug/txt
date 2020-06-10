@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國務院6月9日推文：維護國際宗教信仰自由
-`2020-06-09 16:31 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/228250/)
+## 美國務卿蓬佩奧：公開承諾幫助英國擺脫中共控制 號召西方盟友共同對抗中共威脅
+`2020-06-09 20:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/228456/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09162109/DeptState_20200609_religious_freedom_twitter1.png)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09201730/dfc79d04-b335-4f50-8db4-ff6c03ac39ee.jpg)圖片來源：[www.telegraph.co.uk](https://www.telegraph.co.uk/news/2018/05/08/pictures-day-8-may-2018/us-secretary-state-mike-pompeo-meets-british-foreign-secretary/)
+美國國務卿邁克爾·蓬佩奧今天最新聲明：將與西方盟友統一戰線來對抗CCP的脅迫性的欺凌手段。
 
-美國國務院6月9日發[推文](https://twitter.com/StateDept/status/1270430863990366208)：川普總統發布的[行政命令](https://gnews.org/zh-hant/220934/)規定，美國將每年使用預算中至少5000萬美元用於促進國際宗教自由的計劃。
+國務卿蓬佩奧具體指出，中共揚言威脅英國，要求其允許華為在倫敦建造5G網絡，否則要懲罰英國匯豐銀行。同時中共居然公然宣布：可能不再幫助英國建造核電站以此要挾英國政府。眾所周知，總部位於深圳的華為公司實則為中國共產黨用來監視其他國家的海外延伸機構。
 
+在聲明中，國務卿蓬佩奧提醒西方盟友：
 
+中共對匯豐銀行的粗暴行為應做為一個示警。事實上，就在上週，匯豐銀行亞太區行政總裁，中國人民政治協商會議成員Peter Wong 簽署了一份請願書支持北京摧毀香港自治權的立法決定，並在聯合國簽署的條約中毀約。國務卿蓬佩奧認為Peter Wong這一獻殷勤的舉動但並未阻止中共繼續利用匯豐銀行的生意作為政治手段來對抗倫敦。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09162102/DeptState_20200609_religious_freedom_twitter2.png)
+國務卿蓬佩奧直言聲明：中共的種種攻擊態度威脅行為，已經說明包括美國，英國在內的國際社會不能在經濟上過度依賴中國。各國要守護自己國家的基礎設施免受CCP的吞噬。文章指出，澳大利亞，丹麥和其他自由國家近期都收到了來自CCP的經濟壓力，要他們臣服於中共統治世界的政治願望。
 
-[推文](https://twitter.com/StateDept/status/1270362528519000071)：維護宗教自由權利是道義和國家安全的當務之急。在缺乏宗教自由的地方，恐怖主義和暴力惡化。我們對國外宗教團體的擁護有助於確保美國人在家中得到保護和繁榮。
+國務卿蓬佩奧大聲呼籲：美國已做好準備隨時協助英國盟友的所有需求，從建立國家安全到建立可靠的核電站，以開發可信賴並保護其公民隱私的5G網絡。他相信自由國家的往來建立在真正的友誼上，並渴望互相昌盛繁榮，而不是帶有政治意味卑躬屈膝的合作。
 
-*翻譯：【JoyJoy】總結：【Michelle】*
+[原文鏈接](https://www.state.gov/on-chinas-attempted-coercion-of-the-united-kingdom/)
 
-*戰友之家玫瑰園小隊出品*
-
-相關新聞：[川普總統促進國際宗教自由的行政命令（中英文對照全文）](https://gnews.org/zh-hant/220934/)
+翻譯報導：瑞貝卡
+校對整理：瑞安平
 
 0
