@@ -1,91 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日 美國政要推文選譯
-`2020-06-09 22:08 GM65` [轉載自GNews](https://gnews.org/zh-hant/228481/)
+## 近百年來它們從未變過
+`2020-06-10 03:14 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/228725/)
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has used cheap goods, manufactured with stolen technology, to buy the West’s silence about its appalling aggression in Hong Kong, Xinjiang, Tibet and elsewhere. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [https://t.co/5zhmNfqjjm](https://t.co/5zhmNfqjjm)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270464313916940288?ref_src=twsrc%5Etfw)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10030459/1-90.jpg)
+**恐怖分子的基因從未變過**
 
-參議員 Marsha Blackburn：中共用偷來的技術制造廉價商品，再用這些廉價商品買通西方，讓他們在中共對香港、西藏以及其他地區的侵略上保持沈默。
+從5.4運動開始，它們就發動打砸搶燒等無數次暴動。從49年淪陷後一次次的恐怖運動，到支持拉登，塔利班等恐怖行動殘害無辜，再到如今在美國等西方國家背後組織的antifa騷亂，它們的恐怖基因與生俱來，根植於它們的每個細胞，它們是人類歷史上最大的恐怖組織！
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+**兇殘從未變過**
 
-> China is waging a sophisticated online propaganda and deception campaign to challenge American leadership. Beijing has created hundreds of thousands of fake [@Twitter](https://twitter.com/Twitter?ref_src=twsrc%5Etfw) accounts to amplify its megaphone for Communist propaganda.
->  [https://t.co/94eGcxs5on](https://t.co/94eGcxs5on)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270433603898372097?ref_src=twsrc%5Etfw)
+90多年前，周恩來領導的「特科」殘忍殺害了所謂叛徒，一家數十口甚至連三歲的娃娃都不放過；匪亂時期，AB團的內部屠殺，各級匪首被內鬥除掉一半以上，為了排除異己借刀殺人，把匪首張國燾部4萬無辜男女送上不歸路，幾乎全部被殺被俘，數千女性淪為戰利品；50年代，為了消滅國軍投誠部隊，毅然決然把近百萬國軍將領送朝鮮戰場赴死，大冬天不給棉衣棉被，百萬被蒙蔽的國軍投誠起義部隊消耗殆盡；50年代的三反五反，屠殺幾百萬所謂的反革命；為了所謂面子和乘低價囤積黃金，餓死幾千萬老百姓；文化大革命發動底層百姓互毆殘忍斗死成百上千萬；計劃生育扼殺上億即將到來的生靈；89.64殘忍屠殺萬名以上學生市民；今天，它們又在香港大開殺戒，姦殺成千上萬青年幼童！
 
-參議員 Marsha Blackburn：中國正在開展壹場復雜的網絡宣傳和欺騙運作，以挑戰美國的領導階層。北京在推特上建了幾十萬個虛假賬號，來擴大其共產主義大外宣。
+**流氓本質從未變過**
 
-《紐約時報》：中國的推特運作背後，壹群居心叵測的隨聲附和
+90多年前召集流氓地痞懶漢黑社會邊緣人物睡地主老婆，打家劫舍，到現在組織流氓黑社會強拆老百姓房子，做城管毆打無辜市民，在香港打人砍人殺人，它們從來就是土匪。
 
-> While the world is distracted by COVID-19, China is attempting to take control of the South China Sea. [https://t.co/jw1r5riRc4](https://t.co/jw1r5riRc4)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 9, 2020](https://twitter.com/MarshaBlackburn/status/1270405609158926336?ref_src=twsrc%5Etfw)
+**制毒販毒從未變過**
 
-參議員 Marsha Blackburn：當全世界都被冠狀病毒牽扯精力時，中國卻試圖控制南中國海。
+延安時期在南泥灣毀壞古老森林，種植製造鴉片禍害國民健康，到如今生產毒品控制暗網販賣芬太尼到美國乃至全世界禍害世界人民。
 
-路透社：美國軍方指揮官說，中國打著冠狀病毒的幌子強推領土主張
+**造假幣從未變過**
 
-> In Feb, [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & I sent a letter to DOJ pointing out that [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) propaganda rag [@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw)'s FARA filings were incomplete. This month, the papers gave DOJ a specific, itemized advertising report for 1st time… $19 Million to US newspapers! Incl. $4.6 Mill to WaPo alone.
-> — Jim Banks (@RepJimBanks) [June 9, 2020](https://twitter.com/RepJimBanks/status/1270446071605534721?ref_src=twsrc%5Etfw)
+它們從延安時期就製作偽邊區幣，製造假法定貨幣衝擊國統區經濟，搶劫國統區匪統區百姓財富，造成嚴重通貨膨脹，破壞國家經濟秩序，讓國統區百姓生活在水深火熱之中，致使國家經濟崩潰。今天，它們膽敢製造世界最具權威性的假美金，妄圖搞垮美國經濟，導致全球金融體系打亂。
 
-眾議員 Jim Banks：在二月份，我和科頓參議員致信司法部，指出中共大外宣劣質《中國日報》在《外國代理人登記法》（FARA）登記的檔案不完整。本月，該報第壹次向司法部提交了壹份具體的、分項列出的廣告投放報告…在美國報紙上投放了1900萬美元！其中《華盛頓郵報》壹家得到460萬美元。
+**藍金黃的卑劣手段從未變過**
 
-> The pandemic has altered our relationship with China fundamentally, and our attitudes and policies must change.
-> 
-> Every day the Chinese Communist Party controls our access to essential medicine is a day that American patients are at risk.[https://t.co/tAEXsciPai](https://t.co/tAEXsciPai)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270362328626855937?ref_src=twsrc%5Etfw)
+當年，它們利用國民政府的新聞自由，讓《新華日報》在全國妖言惑眾顛倒黑白，編造謊言攻擊抹黑合法政府。如今，它們再次利用西方新聞自由，花大把銀子在全世界撒謊，洗腦全世界民眾，製造全世界暴亂，製造族群撕裂，煽動社會對立，以便它們坐收漁翁之利。
+當年，藍金黃的鼻祖周恩來在重慶利用蘇聯給的顛覆政府活動經費、國民政府給八路軍的抗日軍餉，和用製造販賣禍害全國百姓健康毒品得到的毒資，藍金黃在渝的國際友人、國軍將領和中間人士，導致國民政府與美國關係受到影響，誘使國軍將領臨戰變節，蠱惑眾多民主人士為其搖旗吶喊，把好端端的一個國家剛從二戰洗禮的災害中又拖入死傷幾百萬的中華同胞的兄弟相殘生靈塗炭的戰火之中，致使民生凋零屍骨遍地，讓我華夏大地陷於戰火硝煙中達數年之久！
 
-參議員 Tom Cotton：全球疫情爆發從根本上改變了我們與中國的關系，我們的態度和政策必須做出改變。中共控制我們基本醫藥供應的每壹天都是把美國的病人置於風險之中。
+**勾結境外勢力從未變過**
 
-福克斯新聞：參議員科頓和參議員布萊克本：停止依賴中國——要消除這個威脅應該這樣做
+從早期一群漢奸從蘇聯歐洲歸來，甘做漢奸賣國賊，拿著蘇聯巨額錢財，甘做蘇聯走狗，建立蘇維埃中國分支，塗炭百姓，為了拖纏住日本以保衛蘇聯，慫恿東北軍不抵抗，放棄千萬平方公里的大好河山，置東北幾千萬民眾做亡國奴不顧。
+後又勾結日本人，周恩來藍金黃國軍將領，竊取出賣國軍情報，致使我抗日將士在抗日戰場處處被動處處挨打，血流成河潰不成軍，大片國土淪陷！最後又在內戰時期勾結蘇聯紅軍，美國人，北朝鮮人，日本人擊潰國軍，竊取了國家政權，致使我中華大地幾十年淪陷於紅魔統治之下，使百姓長期處於飢餓災荒內鬥六親不認的悲慘世界和白色恐怖之中！
 
-> We commend the actions of our allies to welcome Hong Kongers seeking to live outside of Beijing’s authoritarian rule. 
-> 
-> We strongly encourage the United States to follow suit and work with Australia and the U.K. to find a solution to this challenge.[https://t.co/i8GGK1Ter3](https://t.co/i8GGK1Ter3)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270467366376398858?ref_src=twsrc%5Etfw)
+**對待女性的態度從未變過**
 
-參議員 Tom Cotton：我們贊揚盟國采取的行動，歡迎那些要擺脫北京權威統治的香港人。我們強烈建議美國效仿這種做法，與澳洲和英國合作，找到應對這壹挑戰的解決方案。
+它們通過給年輕女性洗腦，把她們變成發泄性慾的玩物，從早期的集體淫亂，到不停換老婆，到如今情人小三無數，私生子女遍布全球，甚至讓情婦姘頭妓女稱王拜將治理國家。從早期利用女人做掩護顛覆國家、勾引日軍國軍政要，到如今把中國女人推到全世界勾引它們需要的有價值的外國人，甚至讓三個女大學生陪睡一個它們高價引進的黑人留學生！其利用中國女性向全世界提供性服務的禽獸行為令人髮指！！
 
-> Our arms control treaties should reflect geopolitical realities. What does Beijing have to hide? [https://t.co/59LYr1TFQe](https://t.co/59LYr1TFQe)
-> — Tom Cotton (@SenTomCotton) [June 9, 2020](https://twitter.com/SenTomCotton/status/1270505708803493888?ref_src=twsrc%5Etfw)
+**忘恩負義從未變過**
 
-參議員 Tom Cotton：我們的軍備控制條約應該反映出地緣政治現狀。北京有什麼不得不掩蓋的？
+當年，它們蒙蔽忽悠善良淳樸貧窮的湖南人，湖北人，江西人，安徽人，陝西人供它們吃喝，女人給它們做發泄工具，孩子為它們流血犧牲，打下江山進城的第一件事就是換女人。為了更好地利用人民，厚顏無恥地假意恭維農民是二哥、工人是老大哥，然而，這些地方至今還處於貧窮落後地區。
+今天，美國人、歐洲人、香港人、台灣人都在每次處於困境或經濟崩潰邊緣時給過它們慷慨無私的幫助，靠著種種見不得人的手段，稍稍有點人模狗樣就用藍金黃、病毒來禍害世界，甚至想稱霸世界。畜生尚且知道報恩，而它們連畜生都不如！
 
-美國軍備控制總統特使Marshall S. Billingslea：中國剛剛表示無意參加三方會談。它應該三思。擁有大國地位意味著承擔大國責任。不可以再掩蓋其核擴張行為了。在維也納的座位已為中國準備好了。
+**與中國人為敵的初心從未變過**
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 1/2 [pic.twitter.com/7kmMZWL8vt](https://t.co/7kmMZWL8vt)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249357107838977?ref_src=twsrc%5Etfw)
+無論是內戰還是抗戰時期，還是祖國49年淪陷後，它們為了它們一己私慾為了它們血染的江山永固，從來都是把億萬同胞當做唯一敵人，輕者打殘重者打死消失乃至屠殺滅種，血流成河！
+因為它們知道它們是外來的狗雜種，唯一能讓它們滾蛋的就是全體中國人。
+毛賊深讀歷史，它知道中華民族從來沒有被外夷真正統治過！它們對外割地賠款，對內換器官大屠殺肆意妄為！
 
-> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw) [#WCT](https://twitter.com/hashtag/WCT?src=hash&amp;ref_src=twsrc%5Etfw)[#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw) [#SpecialOperations](https://twitter.com/hashtag/SpecialOperations?src=hash&amp;ref_src=twsrc%5Etfw) Brigade detailed in two tweets. 2/2 [pic.twitter.com/p4dULYh67r](https://t.co/p4dULYh67r)
-> — 卫纳夜格@Raj (@rajfortyseven) [June 9, 2020](https://twitter.com/rajfortyseven/status/1270249312065171456?ref_src=twsrc%5Etfw)
+**對文化的毀滅從未變過**
 
-比爾·格茨先生 轉推 衛納夜格：#中國#解放軍#培訓中心#新疆#特殊任務旅 在分兩個推文中詳細介紹
+從49年我華夏淪陷伊始它們改我繁體漢字，到文革拆我廟宇毀我文物燒我古典辱我先人，打碎我先朝知識分子脊樑，讓他們不是被打成牛鬼蛇神接受勞動改造順從它們就是被打死折磨含冤而死，到全國學習初中畢業生毛賊打油詩和奇醜無比的毛筆字，到如今整天跪拜小學博士漢字都讀不周全的狗屁不通理論！毀我傳統美德，跪舔德國懶漢神經分裂症患者馬克思和死於梅毒的俄奸列寧，洗腦洗殘全體國民，褻瀆華夏文化、傳統！
 
-> The United States stands with the United Kingdom against the Chinese Communist Party’s coercive bullying tactics. We stand ready to help our British friends build critical infrastructure. [https://t.co/mFNBfMlTBk](https://t.co/mFNBfMlTBk)
-> — Secretary Pompeo (@SecPompeo) [June 9, 2020](https://twitter.com/SecPompeo/status/1270459093086593025?ref_src=twsrc%5Etfw)
+它們的邪惡，殘暴成性，謊言，流氓匪性，貪婪忘恩負義及所有人類最醜陋的陰暗奸詐無恥本性從來沒有變過，相反變本加厲！
 
-美國國務卿 蓬佩奧：美國與英國壹道反對中國共產黨的脅迫性霸淩策略。我們隨時準備幫助我們的英國朋友建設關鍵基礎設施。
+它們就是惡魔、它們就是撒旦、它們就是邪靈、它們就是這個世界幾千來唯一反華、辱華、仇華、滅華的外來狗雜種，陰魂不散的被西方唾棄的幽靈，而它們唯一賴以生存的法寶就是把它們偽裝隱藏混在我們老百姓中，只有滅了它們我們中華才會得以延續才不會被滅種！只有它們徹底被清除於人類，中國人乃至世界人才能安居樂業！
 
-美國國務院：談中國對英國的脅迫
-
-> I agree. 
-> 
-> For the safety of its citizens and allies, the UK is right to take measures to reduce Huawei’s role in it’s 5G network, & scaling down Communist China’s involvement in their infrastructure. Read more in my Op-Ed: [https://t.co/XwLpJ6ZxDO](https://t.co/XwLpJ6ZxDO) [https://t.co/vyg89gSY15](https://t.co/vyg89gSY15)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270496335565815808?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：我同意。為了其公民和盟國的安全，英國采取措施減少華為在5G網絡中的作用，並降低中共國在其基礎設施中的投資是正確的做法。更多信息請看我的評論文章
-
-> It’s been 1 year since hundreds of thousands of Hong Kongers took to the streets to make their voices heard in the fight for autonomy & human rights.
->  
-> While there have been many ups & downs, the fight continues and the US is proud to [#standwithHongKong](https://twitter.com/hashtag/standwithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) for as long as it takes. [https://t.co/nnXgs3EYYr](https://t.co/nnXgs3EYYr)
-> — Rick Scott (@SenRickScott) [June 9, 2020](https://twitter.com/SenRickScott/status/1270473966138818560?ref_src=twsrc%5Etfw)
-
-參議員 Rick Scott：千千萬萬香港人民走上街為自治和人權而抗爭已經壹年了。盡管經歷了許多起起伏伏，但鬥爭仍在繼續，美國會壹直支持香港並為此感到驕傲。（《紐約時報》）
-
-> China is a country of 1.4 billion hard working, entrepreneurial people with high regard for education and is a formidable force. Led by an evil force [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) it is a disaster for the world. Now it’s at its economic worst and the best time to force it to change thus save the world.
-> — Jimmy Lai (@JimmyLaiApple) [June 9, 2020](https://twitter.com/JimmyLaiApple/status/1270269903937736704?ref_src=twsrc%5Etfw)
-
-斯伯丁將軍 轉推 黎智英先生：中國是有著14億辛勤工作、具有創業精神、高度重視教育和力量強大的人民的國家。被邪惡的中共統治著，對世界來說是壹場災難。現在它正處於經濟最糟糕的時期，也是迫使其改變從而拯救世界的最佳時機。
+撰文：胡風
 
 0
