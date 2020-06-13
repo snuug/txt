@@ -1,76 +1,106 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 城市被燒毀，雕塑被塗鴉，但卻沒有人敢說這是共產暴動
-`2020-06-10 11:35 GM10` [轉載自GNews](https://gnews.org/zh-hant/229136/)
+## 美國CDC研究表明三分之一成人曾不當使用清潔消毒產品對付CCP病毒
+`2020-06-13 08:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/231853/)
 
-**作者：Dogman**
+[CDC於6月12日發表的一项互联网调查](https://www.cdc.gov/mmwr/volumes/69/wr/mm6923e2.htm?s_cid=mm6923e2_w)表明，新冠肺炎病毒爆发以来，虽然人们普遍增加了了家居清洁和消毒，但由于在清洁剂和消毒剂的安全准备、使用和储存方面的知识空白，错误使用清洁剂的致毒事件有所增加。本文展示了调查结果。
 
-美國黑人喬治弗洛伊德在警察執勤時死亡，引發了美國街頭抗議潮，絕大多數區域的抗議人群相對來說是比較平和的，而和平的自由集會和發言的權利受到美國憲法第一修正案的絕對保護。然而，在‘安提法（Antifa）’的牽頭和引領下，美國多地的抗議活動最終演變成為打砸搶，原本應該和平的集會最終以暴力收場，並導致多人因此喪生（鏈接1）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/12185230/CDC_20200612_Knowledge_figure0.jpg)
 
-與此同時，抗議從美國街頭，走向了世界的多個國家，從紐約到倫敦，再到巴黎；而抗議的口號從“黑人命貴（BlackLivesMatter）”，慢慢演變成為“拒絕資助警力（Defund the Police）”，並且成為了嚴重危害公共安全的緊急暴力事件，全世界各地的多處歷史先賢雕塑和文物古跡也慘遭破壞和塗鴉（鏈接2，3，4）。
+**關於安全家居清潔和消毒的知識和實踐以預防新型冠狀病毒肺炎病毒**
 
-當然，所有膚色的人種都應該受到平等的對待， 而喬治佛洛依德的死亡應當在法律的框架下進行徹底的調查。然而，美國短短幾天時間內發生多起暴力抗議活動顯示，在這些活動的現場甚至不同抗議之間的串聯，存在或多或少人為組織的痕跡。那麽，到底是誰站在‘安提法’的背後，而更為重要的是，這麽做是為了什麽？
+**ー美國，****2020****年****5****月（****CDC 2020****年****6****月****12****日）**
 
-5月21日，川普總統在推特上說“美國會將安提法定義為恐怖組織”。而司法部長威廉巴爾在6月4日的新聞發布會上提到，美國政府目前所掌握的證據表明，安提法和其他一些極端組織綁架了原本合法的抗議活動，並且煽動暴力。而且他還提到“外國勢力”借機火上澆油，以達到擾亂美國秩序的目的。那麽，除了安提法，巴爾部長所指的其他一些“極端組織”是誰？而“外國勢力”又是指向哪裏？
+作者：Radhika Gharpure, DVM1,2; Candis M. Hunter, PhD1; Amy H. Schnall, MPH3; Catherine E. Barrett, PhD1; Amy E. Kirby, PhD1; Jasen Kunz, MPH1; Kirsten Berling, MPH1; Jeffrey W. Mercante, PhD1; Jennifer L. Murphy, PhD1; Amanda G. Garcia-Williams, PhD1 ([查看作者關係](https://www.cdc.gov/mmwr/volumes/69/wr/mm6923e2.htm?s_cid=mm6923e2_w#contribAff))
 
-**安提法與美國的街頭暴力抗議**
+1,2; Candis m. Hunter，PhD1; Amy h. Schnall，phd3; Catherine e. Barrett，PhD1; Amy e. Kirby，PhD1; Jasen Kunz，ph1; Kirsten Berling，PhD1; Jeffrey w. Mercante，PhD1; Jennifer l. Murphy，PhD1; Amanda g. Garcia-Williams，PhD1
 
-根據維基百科的介紹（鏈接5），安提法是存在與西方社會的無組織架構的極左團體。其政治理念偏向於反資本主義，而傾向於社會主義；而安提法實現政治目的的手段往往通過“直接行為”來實現，例如網絡激進活動和暴力鬥爭方式，因此安提法組織出現的抗議活動中往往會出現建築物被毀壞，對人身實施暴力和侮辱等行為。
+美國衛生與公共服務部（HHS）和疾控中心（CDC）《發病率和死亡率週報》（MMWR）2020年6月12日
 
-即使安提法被貼有“無組織”標簽，但是很多的抗議現場的視頻均顯示，抗議現場受到了人為的操控 。例如，一名自由新聞人和安提法研究專家Andy Ngo在推特上發文指出，一位成功打入安提法的臥底揭示了玫瑰城市安提法（Rose City Antifa）招募成員的流程，並教授成員如何將他人永久致殘的方法（鏈接6）。而在美國俄亥俄州哥倫布市的抗議現場，馬丁維斯革博（Martin Weissgerber） 為特定的抗議人員發放獎金，並唆使這些抗議者燒毀附近的商店（鏈接7）。還有視頻顯示，不同的抗議地點，有人提前放置磚塊等物體，以誘導抗議者進行暴力行為。當眾多的證據慢慢浮出水面，我們慢慢意識到，這些暴力的抗議活動顯示出了組織協調的特征。那麽，是什麽組織在安踢法背後支持他們呢？
+**摘要**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/10112121/AntifaCommunistFlag2-1.jpg)Masked protesters displaying communist flag in Portland, Oregon on October 13, 2018. (Photo: Andy Ngo)
+**關於這個話題我們已經知道些什麼？**
 
-**“其他一些極端組織“— 美國社會主義組織**
+自從新型冠狀病毒肺炎大流行爆發以來，關於接觸清潔劑和消毒劑給毒物中心打電話的次數增加了。
 
-特雷弗勞頓在5月31日發表的文章中寫道（鏈接8），明尼納波利斯發生的暴亂“是共產主義暴動”，而非正常意義上的遊行，並且直接劍指美國民主社會主義組織（Democratic Socialists of America ，縮寫DSA）是安提法背後的支持力量。
-根據 DSA的官網（鏈接9），此組織是位於美國的社會主義團體，將推翻資本主義視為實現社會大同的最終手段。勞頓在6月5日發表的文章（鏈接10）中指出，DSA解決CCP病毒有三步，而最後一步是“顛覆現有政府”。DSA在2019年的全國大會通過決議，其中“第九號決議”明確指出“建立支持安提法的全國性組織”（鏈接11），其具體措施中最後一條為“協助安提法與現有組織進行實踐，並協同組織社區抵抗隊伍”。
+**這份報告增加了什麼內容？**
 
-特雷弗勞頓在文章中還提到（鏈接8），DSA一直以來都非常踴躍地支持暴力抗議， 並且與今年5月27日在社交媒體上號召追隨者為一個十字路口提供“原料”，以便用於清洗進入眼睛的催淚彈煙霧（鏈接13）。而當天晚上，這個十字路口上的汽車配件公司Auto Zone就被暴力抗議者放火燒為平地。 同樣的，亞特蘭大和西雅圖的DSA也參與組織了當地的暴力抗議活動。
+一項互聯網小組調查發現了在清潔劑和消毒劑的安全準備、使用和儲存方面的知識空白。 大約三分之一的調查答卷人從事不推薦的高風險做法，目的是防止 SARS-CoV-2傳播，包括在食品上使用漂白劑，在皮膚上使用家庭清潔和消毒產品，以及吸入或攝入清潔劑和消毒劑。
 
-DSA成員認為西方的警察系統是為了保護資本主義體系而存在的（鏈接13），因此‘停止資助警力’成為DSA成員努力廢除資本主義體系的其中一環，而這種思維方式正在成為安提法組織抗議活動中的主流口號。
+**對公共衛生實踐有什麼影響？**
 
-DSA的經濟分支TCDSA在5月28日的一則推特中號召追隨者提供幫助，‘以支持持續不斷的大規模工薪階層的造反活動’。
-因此安提法的背後，隱秘著共產主義的鬼魅身影。然而DSA對於其所倡導的理念毫無避諱，其暴力抗議的主張在其推特賬戶上隨處可見。
+公共資訊應繼續強調以證據為基礎的安全清潔和消毒做法，以防止 SARS-CoV-2在家庭中傳播，包括手部衛生以及清潔和消毒高接觸面。
 
-除此之外，美國還有其他的共產團體，例如美國共產黨（CPUSA），自由之路，社會主義變種，工人世界黨（Workers World Party，縮寫WWP），社會主義和自由主義黨等。其中，WWP在5月28日發表文章《叛亂是針對警察暴力和資本主義的合法途徑》（鏈接13），文中將明尼納波利斯的暴動者描繪成為“勇敢的”抗議者，而喬治弗洛伊德的死亡被其包裝成為被資本主義統治壓迫的結果，最終將暴力合理化。 而特雷弗勞頓在文章中指出（鏈接8），這些組織是“斯大林主義組織”，並且“支持共產極權，例如中共，北韓”等國家。
+最近的一份報告描述了自2019年冠狀病毒病(新型冠狀病毒肺炎)大流行以來，與接觸清潔劑和消毒劑有關的致毒中心的電話急劇增加。 然而，描述美國家庭環境中清潔和消毒做法的資料是有限的，特別是那些旨在防止 SARS-CoV-2傳播的做法，這種病毒會導致新型冠狀病毒肺炎。 2020年5月，一項針對502名美國成年人的互聯網調查小組對新型冠狀病毒肺炎流感大流行期間的家庭清潔和消毒方面的知識和做法進行了描述。 在幾個方面都發現了知識差距，包括清潔和消毒液的安全準備，在使用清潔劑和消毒劑時使用推薦的個人防護設備，以及安全儲存洗手液、清潔劑和消毒劑。 39% 的受訪者報告說，為了防止 SARS-CoV-2傳播，他們採取了不推薦的高風險做法，例如用漂白劑清洗食品，在裸露的皮膚上使用家庭清潔或消毒產品，以及故意吸入或攝入這些產品。 參與高風險行為的受訪者比沒有參與這些行為的受訪者更頻繁地報告說，他們認為使用清潔劑或消毒劑會對健康產生不利影響。 公眾資訊應繼續強調以證據為基礎的安全做法，例如手部衛生，並建議清潔和消毒高接觸面，以防止 SARS-CoV-2在家庭環境中傳播(2)。 資訊傳遞還應強調避免高風險做法，例如不安全地準備清潔和消毒液，在食品上使用漂白劑，在皮膚上使用家庭清潔和消毒產品，以及吸入或攝入清潔劑和消毒劑。
 
-這些歐美共產主義組織所呈現出統一的特點是提倡暴力革命，以達到推翻資本主義的目的，並且直接組織，參與並協助了我們所看到的世界範圍內的暴亂。此外，他們的治國理念還包括開放邊境和消除現有的選舉制度等極左思維。那麽，這些組織的資金從何而來？背後由誰來操控呢？
+調查問題由波特-諾維利公共服務和ENGINE Insights於2020年5月4日通過PN View: 360進行，\*一個快速周轉的調查，可用於深入瞭解目標受眾的知識和實踐。這項選入式互聯網小組調查使用Lucid平臺對502名年齡≥18歲的美國成年人進行了調查（3）；在前20波調查管理中未參加過調查的小組成員有資格參加。為了使小組成員在性別、年齡、地區、種族/民族和教育程度上代表美國人口，採用了配額抽樣和統計加權。受訪者被告知，他們的回答將被用於市場研究，並可在任何時候拒絕回答任何問題。提供給CDC的資料檔案中不包含任何個人身份資訊。
 
-**世界範圍內共產運動背後的中共縮影**
+調查問題問及有關使用家居清潔劑和消毒劑的一般知識、態度和習慣§，以及有關預防SARS-CoV-2傳播的清潔和消毒策略的具體資料。加權回應頻率是以 SAS 統計軟體（9.4 版；SAS Institute）計算。由於受訪者是從選擇性面板中招募的，而不是通過概率抽樣，因此沒有進行推斷性的統計測試。當發現被比較的任何估計值之間的差異≥5個百分點時，就會注意到差異。
 
-特雷弗勞頓在2018年的一篇文章中指出，美國共產黨CPUSA在中共的邀請下，出席了在深圳舉辦的慶祝卡爾馬克思200周年紀念活動。代表美國共產黨出席會議的巴赫特爾聲稱“只有社會主義才能重整社會與自然的和諧關系”，並且猛烈的抨擊了美國和川普總統。他將川普總統重建美國的理念描繪成為“樹立美國帝國主義理念的幻想”。根據巴爾特爾的邏輯，美國政府才是威脅世界和平的最大隱患，而中共則是維護世界和平的正義力量。因此，2010年在尼克普洛特克馬克思圖書館（Niebyl-Proctor Library），CPUSA公布的宣傳文件上曾經這樣說“美國政府正在挑釁中國的經濟和軍事，以及社會其他方面…如果這些挑釁大規模爆發，…將需要我們所有人傾註所有的能力去攻擊美國帝國主義。”而現在針對美國和西方世界所產生的暴力和打砸搶事件，難道不是對其聲明的直接驗證嗎？
+受訪者的年齡中位數為46歲（範圍為18-86歲），52%的受訪者為女性。總體而言，63%的受訪者為非西班牙裔白人，16%為西班牙裔（任何種族），12%為非西班牙裔黑人，8%為多種族或其他種族/族裔。受訪者代表了美國所有人口普查地區，\*\*其中38%來自南方，24%來自西部，21%來自中西部，18%來自東北部。
 
-而在2017年的一篇文章中（鏈接14），特雷弗勞頓指出，“自2017年開始，DSA加深了與穆斯林世界，拉丁美洲，亞洲和歐洲的極端社會主義和共產主義團體的聯系”。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13110153/CDC_20200612_Knowledge_Practices_Figure1_Traditional.png)
 
-更多的暴力抗議的現場視頻證明，中共在此次美國暴力遊行活動中可能有更為直接的參與。一則在推特上流傳的視頻顯示，5月31日在洛杉磯聖塔莫妮卡的抗議現場，有3位說中文的中國留學生因為制造騷亂被捕（鏈接15）。而這些中國留學生事後表示，他們接到了中國領事館官員的指示，被要求同黑人一起上街參與遊行活動並借機煽動抗議者進行打砸搶暴力活動，以“發揚愛國主義精神，為黨做出新的貢獻”。根據澳大利亞的爆料革命戰友對安紅所說，有華人提前多日接到了遊行的招募郵件（鏈接16）。而另一則推特上流傳甚廣的視頻顯示（鏈接17），在白宮門外發生的暴力抗議現場，有說中文的組織者說“快！走走走走！快走！”
-艾美獎獲得者亞當霍斯利（Adam Housley）在5月31日的推文中說（鏈接18），“按提法組織綁架了和平的示威，而他們絕對受到來自中共的大量網絡協助。”
+參與者對安全配製清潔和消毒溶液的知識有限（圖1）。總的來說，23%的受訪者回答說，只能用室溫的水來配製稀釋的漂白劑溶液，35%的受訪者說漂白劑不能與醋混合，58%的受訪者說漂白劑不能與氨水混合。相比之下，有較高比例的受訪者對使用推薦的個人防護用品有所瞭解。64%的受訪者表示，建議在使用某些清潔劑和消毒劑時佩戴護眼用具，71%的受訪者表示建議使用手套。同樣，68%的受訪者表示建議在使用清潔劑和消毒劑後洗手，73%的受訪者表示建議在使用這些產品時充分通風。關於清潔劑、消毒劑和洗手液的安全儲存問題，79%的受訪者表示清潔劑和消毒劑應放在兒童接觸不到的地方，54%表示洗手液應放在兒童接觸不到的地方。
 
-**結尾**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13110202/CDC_20200612_Knowledge_Practices_Figure2_Traditional.png)Figure 2 (Traditional Chinese version)
 
-中共在利用病毒肆虐全球的同時，面對來自世界自由力量的壓力時，沒有積極反思自己的失誤並進行有效改正，反而借機向世界輸出共產思維和制造暴亂，標榜“社會主義優越性”。根據爆料革命發起人郭文貴先生所說，中共斥資40億美金用於打壓爆料革命（鏈接19）。而對於此次世界範圍內暴動，郭先生直播說背後一定存在“國際共產主義”的力量，通過上文我們已經看到這個事實。而作為當今世界最大的共產主義組織，中國共產黨是否動用了其掌控的黑暗力量和世界範圍內所謂的精英團體，攪亂世界格局，以延緩甚至躲避自由世界對其的追責，相信真相已在路上。
+受訪者表示，在過去一個月，他們採取了一系列的措施，以防止SARS-CoV-2的傳播（圖2）。60%的受訪者表示，與前幾個月相比，他們更頻繁地進行家庭清潔或消毒。39%的受訪者表示曾刻意採取至少一種並非由疾控中心建議的預防 SARS-CoV-2 傳播的高風險措施(2)，包括在食物(例如水果和蔬菜)上使用漂白劑(19%)。(19%)；在手上或皮膚上使用家用清潔和消毒產品(18%)；用清潔或消毒噴霧劑噴灑身體(10%)；吸入家用清潔劑或消毒劑的蒸汽(6%)；以及飲用或漱口稀釋的漂白劑溶液、肥皂水和其他清潔和消毒溶液(各4%)。
 
-鏈接：
-1 [https://fox6now.com/2020/06/08/deadly-unrest-here-are-the-people-who-have-died-amid-george-floyd-protests-across-us/](https://fox6now.com/2020/06/08/deadly-unrest-here-are-the-people-who-have-died-amid-george-floyd-protests-across-us/)
-2 [https://heavy.com/news/2020/06/abraham-lincoln-statue-defaced-london-protests/](https://heavy.com/news/2020/06/abraham-lincoln-statue-defaced-london-protests/)
-3 [https://www.wusa9.com/article/news/local/dc/st-johns-church-washington-dc-george-floyd-protest/65-6dc44732-8560-4179-91ca-0ad56b96e0c9](https://www.wusa9.com/article/news/local/dc/st-johns-church-washington-dc-george-floyd-protest/65-6dc44732-8560-4179-91ca-0ad56b96e0c9)
-4 [https://www.businessinsider.com/all-the-protests-around-the-world-right-now](https://www.businessinsider.com/all-the-protests-around-the-world-right-now)
-5 [https://en.wikipedia.org/wiki/Antifa\_(United\_States)](https://en.wikipedia.org/wiki/Antifa_%28United_States%29)
-6 [https://twitter.com/MrAndyNgo/status/1268531890945851394?s=20](https://twitter.com/MrAndyNgo/status/1268531890945851394?s=20)
-7 [https://twitter.com/DamoPelham/status/1267623198054428673?s=20](https://twitter.com/DamoPelham/status/1267623198054428673?s=20)
-8 [https://www.theepochtimes.com/cities-burn-but-none-dare-call-it-communist-insurrection\_3371302.html](https://www.theepochtimes.com/cities-burn-but-none-dare-call-it-communist-insurrection_3371302.html)
-9 [https://www.dsausa.org/about-us/what-is-democratic-socialism/](https://www.dsausa.org/about-us/what-is-democratic-socialism/)
-10 [https://www.dsausa.org/democratic-left/covid-19-makes-reform-more-possible/](https://www.dsausa.org/democratic-left/covid-19-makes-reform-more-possible/)
-11 [https://www.dsausa.org/files/2019/06/2019-Resolutions-Approved.pdf](https://www.dsausa.org/files/2019/06/2019-Resolutions-Approved.pdf)
-12 [https://twitter.com/TwinCitiesDSA/status/1265799679444426752?s=20](https://twitter.com/TwinCitiesDSA/status/1265799679444426752?s=20)
-13 [https://www.workers.org/2020/05/49008/](https://www.workers.org/2020/05/49008/)
-14 [https://www.theepochtimes.com/dsa-conference-builds-closer-ties-to-international-communist-movement\_3051058.html](https://www.theepochtimes.com/dsa-conference-builds-closer-ties-to-international-communist-movement_3051058.html)
-15 [https://twitter.com/AWei3742/status/1267635184838590465?s=20](https://twitter.com/AWei3742/status/1267635184838590465?s=20)
-16 [https://twitter.com/ling52804443/status/1270267660169646080?s=20](https://twitter.com/ling52804443/status/1270267660169646080?s=20)
-17 [https://twitter.com/Rengongmeng/status/1267653018977255424?s=20](https://twitter.com/Rengongmeng/status/1267653018977255424?s=20)
-18 [https://twitter.com/adamhousley/status/1267243008027590657?s=20](https://twitter.com/adamhousley/status/1267243008027590657?s=20)
-19 [https://gnews.org/zh-hans/212633/](https://gnews.org/zh-hans/212633/)
-20 [https://www.youtube.com/watch?v=AvxrtMb3mYM](https://www.youtube.com/watch?v=AvxrtMb3mYM)
+四分之一(25%)的受訪者報告說，他們認為在過去的一個月裡，至少有一次不良健康影響是由於使用清潔劑或消毒劑造成的，包括鼻子或鼻竇刺激(11%)；皮膚刺激(8%)；眼睛刺激(8%)；頭暈、頭暈或頭痛(8%)；胃部不適或噁心(6%)；或呼吸問題(6%)。報稱從事至少一種高危行為的受訪者比未報稱從事此類行為的受訪者更經常報告對健康的不良影響（39%對16%）
+
+大約一半(51%)的受訪者強烈同意，31% 的人多少同意他們知道如何安全地清潔和消毒他們的家。 同樣，42% 的人強烈同意，35% 的人一定程度上同意他們知道如何清潔和消毒他們的家，以防止 SARS-CoV-2傳播。 當被問及他們最信任的 sars-cov-2相關的清潔和消毒資訊來源時，排名前三的回答是 CDC (65%) ，州或地方衛生部門(49%) ，以及醫生、護士或醫療提供者(48%)。
+
+**討論**
+
+這項調查發現，美國成年人在安全使用清潔劑和消毒劑方面存在重要的知識空白；最大的空白是在安全配製清潔和消毒劑溶液方面的知識，以及在兒童不能接觸到的手部消毒劑的儲存方面。 將漂白劑溶液與醋或氨水混合，以及加熱，可以產生氯和氯胺氣體，吸入後可能導致嚴重的肺組織損傷(4,5)。 此外，兒童接觸洗手液，特別是通過攝入，可能會引起粘膜刺激、胃腸道反應，嚴重時還會引起酒精中毒(6)。 不適當儲存的洗手液、清潔劑和消毒劑也可能對寵物造成攝食和隨之而來的毒性影響。
+
+根據目前對經常接觸的表面進行日常清潔和消毒的指導，大多數受訪者報告說家庭清潔的頻率增加了。 然而，約三分之一的受訪者報告從事高風險行為，例如用漂白劑清洗食品、對裸露的皮膚使用家庭清潔和消毒產品，以及故意吸入或攝入清潔劑或消毒劑。 這些做法構成嚴重組織損傷和腐蝕性損傷(8,9)的風險，應嚴格避免。 雖然答覆者報告的不良健康影響不能歸因於他們從事高風險做法，但這些高風險做法與報告的不良健康影響之間的聯繫表明，需要就安全和有效的清潔和消毒做法向公眾宣傳，以防止 SARS-CoV-2在家庭中傳播。
+
+新型冠狀病毒肺炎的預防資訊應繼續強調以證據為基礎的安全措施，例如經常洗手和經常清潔和消毒高接觸面(2)。 這些資訊應包括關於安全使用清潔劑和消毒劑的具體建議，包括閱讀和遵守標籤說明的重要性，在室溫下使用水稀釋(除非標籤上另有說明) ，避免混合化學產品，佩戴皮膚保護裝置，考慮防止潛在濺水危險的眼睛保護，確保充分通風，以及在兒童和寵物接觸不到的地方儲存和使用化學品和洗手液(10)。 儘管這項調查發現了一些知識空白和高風險做法，但大多數受訪者認為他們知道如何安全地清潔和消毒自己的家; 因此，預防資訊應該突出關於安全和有效做法的知識空白，並利用創新的溝通策略(如數位、社交媒體)提供有針對性的資訊。 這些關於清潔和消毒措施的資訊可以通過國家、州、地方公共衛生機構和醫療服務提供者等可信賴的資訊來源來協調和傳播，以預防新型冠狀病毒肺炎。
+
+本報告中的研究結果至少受到四個限制。 首先，儘管調查的回答被加權以代表美國的全國人口統計資料，但是這個選擇加入調查的樣本中的回答是否真正代表了美國廣大民眾的知識、態度和行為還很難確定。 第二，社會贊許偏差可能影響了反應，一些受訪者可能誇大了他們的知識或低報了參與高風險的做法，因此，這些發現可能低估了風險接觸。 第三，調查答覆中收集的跨部門資料無法將具體結果，如不利健康影響，直接歸因於具體的知識差距或做法。 最後，反應記錄在一個單一的時間點，可能不反映公眾意見的持續變化或清潔和消毒措施的公眾在整個國家新型冠狀病毒肺炎反應。
+
+目前正在努力逐步收集這些資料，並說明特定人口和地理群體之間的知識差距和做法。 這些資料將有助於發展和評估進一步的針對性資訊，以確保美國家庭在新型冠狀病毒肺炎流感大流行期間和之後的安全清潔和消毒措施。
+
+**鳴謝**
+
+調查對象: 美國疾病控制與預防中心傳播副主任辦公室 Fred Fridinger; Porter Novelli 公共服務部門的 Deanne Weber; 美國疾病控制與預防中心新型冠狀病毒肺炎反應小組的 Kayla Vanden Esschert。
+
+通訊作者: Radhika Gharpure，[\[email protected\]](/cdn-cgi/l/email-protection) gov，404-718-7213
+
+1COVID-19反應小組，疾病控制和預防中心; 2流行病情報服務，疾病控制和預防中心; 3環境衛生科學和實踐，國家環境衛生中心，疾病控制和預防中心。
+
+所有作者都填寫並提交了國際醫學期刊編輯委員會的表格，以便披露潛在的利益衝突。 沒有發現潛在的利益衝突。
+
+\* [http://styles.porternovelli.com/pn-view-panels/](http://styles.porternovelli.com/pn-view-panels/)
+
+† CDC通過訂閱許可從Porter Novelli Public Services獲得調查資料。Porter Novelli Public Services及其供應商不受CDC機構審查委員會的審查；他們遵守Insights協會規定的專業標準和行為準則。(https://www.insightsassociation.org/issues-policies/Insights-Association-code-standards-and-ethics-market-research-and-data-analytics-0)
+
+§關於洗手液的存放問題包括關於清潔劑和消毒劑的存放問題。
+
+¶  [https://www.aapor.org/AAPOR\_Main/media/MainSiteFiles/NPS\_TF\_Report\_Final\_7\_revised\_FNL\_6\_22\_13.pdf](https://www.aapor.org/AAPOR_Main/media/MainSiteFiles/NPS_TF_Report_Final_7_revised_FNL_6_22_13.pdf)
+
+\*\* [https://www2.census.gov/geo/pdfs/maps-data/maps/reference/us\_regdiv.pdf](https://www2.census.gov/geo/pdfs/maps-data/maps/reference/us_regdiv.pdf)
+
+**參考文獻**
+
+1. Chang A, Schnall AH, Law R, et al. Cleaning and disinfectant chemical exposures and temporal associations with COVID-19—National Poison Data System, United States, January 1, 2020–March 31, 2020. MMWR Morb Mortal Wkly Rep 2020;69:496–8. [CrossRef](https://dx.doi.org/10.15585/mmwr.mm6916e1) [PubMed](https://www.ncbi.nlm.nih.gov/pubmed/32324720)
+2. CDC. Coronavirus disease 2019 (COVID-19): how to protect yourself & others. Atlanta, GA: US Department of Health and Human Services, CDC; 2020. https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/prevention.html
+3. Coppock A, McClellan OA. Validating the demographic, political, psychological, and experimental results obtained from a new source of online survey respondents. Research & Politics 2019;6:1–14. [CrossRef](https://dx.doi.org/10.1177/2053168018822174)
+4. Mrvos R, Dean BS, Krenzelok EP. Home exposures to chlorine/chloramine gas: review of 216 cases. South Med J 1993;86:654–7. [CrossRef](https://dx.doi.org/10.1177/2053168018822174)  [PubMed](https://www.ncbi.nlm.nih.gov/pubmed/8506487)
+5. National Center for Biotechnology Information. Compound summary: sodium hypochlorite. Bethesda, MD: National Library of Medicine, National Center for Biotechnology Information; 2020. [https://pubchem.ncbi.nlm.nih.gov/compound/Sodium-hypochlorite](https://pubchem.ncbi.nlm.nih.gov/compound/Sodium-hypochlorite)
+6. Santos C, Kieszak S, Wang A, Law R, Schier J, Wolkin A. Reported adverse health effects in children from ingestion of alcohol-based hand sanitizers—United States, 2011–2014. MMWR Morb Mortal Wkly Rep 2017;66:223–6.[CrossRef](https://dx.doi.org/10.15585/mmwr.mm6608a5)[PubMed](https://www.ncbi.nlm.nih.gov/pubmed/28253227)
+7. Kore AM, Kiesche-Nesselrodt A. Toxicology of household cleaning products and disinfectants. Vet Clin North Am Small Anim Pract 1990;20:525–37. [CrossRef](https://dx.doi.org/10.1016/S0195-5616%2890%2950043-1)[PubMed](https://www.ncbi.nlm.nih.gov/pubmed/2180194)
+8. Slaughter RJ, Watts M, Vale JA, Grieve JR, Schep LJ. The clinical toxicology of sodium hypochlorite. Clin Toxicol (Phila) 2019;57:303–11. [CrossRef](https://dx.doi.org/10.1080/15563650.2018.1543889) [PubMed](https://www.ncbi.nlm.nih.gov/pubmed/30689457)
+9. Hall AH, Jacquemin D, Henny D, Mathieu L, Josset P, Meyer B. Corrosive substances ingestion: a review. Crit Rev Toxicol 2019;49:637–69. [CrossRef](https://dx.doi.org/10.1080/10408444.2019.1707773) [PubMed](https://www.ncbi.nlm.nih.gov/pubmed/32009535)
+10. CDC. Coronavirus disease 2019 (COVID-19): cleaning and disinfecting your home. Atlanta, GA: US Department of Health and Human Services, CDC; 2020; https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/disinfecting-your-home.html
+
+
+*翻譯：【Naomi (文花開)】校對：【 Michelle】
+戰友之家玫瑰園小隊出品*
+
+翻譯自：[https://www.cdc.gov/mmwr/volumes/69/wr/mm6923e2.htm?s\_cid=mm6923e2\_w](https://www.cdc.gov/mmwr/volumes/69/wr/mm6923e2.htm?s_cid=mm6923e2_w)
 
 0
