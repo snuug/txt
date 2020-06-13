@@ -14,6 +14,10 @@
 
 ## 頁面 24/27 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：文贵1118 Instagram 直播](/content/2018/04/20180418-6170218360988993353.md)
+
+[翻译：班农在第十二届族群青年领袖研习营演讲](/content/2018/04/20180418-291103909959910855.md)
+
 [颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
 
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
@@ -59,10 +63,6 @@
 [文字版：郭文贵11月1日报平安直播：谁抓判文贵家人？什么时候报下两个常委的料！](/content/2018/04/20180418-1878969109929374456.md)
 
 [文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
-
-[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
-
-[文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
 
 
 ## 頁面 24/27 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

@@ -14,6 +14,10 @@
 
 ## 頁面 22/27 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/content/2018/04/20180418-2308188631672576796.md)
+
+[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/2018/04/20180418-2511616355314092455.md)
+
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/content/2018/04/20180418-5411508062276363731.md)
 
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/2018/04/20180418-3356176592243296603.md)
@@ -59,10 +63,6 @@
 [郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
 
 [郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
-
-[翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
-
-[翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
 
 
 ## 頁面 22/27 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
