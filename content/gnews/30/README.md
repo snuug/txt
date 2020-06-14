@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮發布2020年國旗日和國旗周公告（中英文對照）
-`2020-06-12 23:57 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/232341/)
+## 班農戰情室221期:恐怖的中共大外宣支出
+`2020-06-13 04:55 GM67` [轉載自GNews](https://gnews.org/zh-hant/232592/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/12234650/WH_20200612_Flag_Day_OnePunchD_photo169.png)Flag Day
+作者：VOG翻译组 雪菜    编辑：VOG翻译组 flasher
 
-**Proclamation on Flag Day and National Flag Week, 2020**
 
-**2020年國旗日和國旗周公告**
 
-On Flag Day and throughout National Flag Week, we pay tribute to the American flag, the most recognizable symbol of the principles for which our Republic stands.  For more than 200 years, the Stars and Stripes has represented liberty, justice, and the rule of law.  Recently, as our Nation has come together to respond to the coronavirus pandemic, our flag has been a reminder of the courage, tenacity, and loyalty that define the indomitable American spirit.
+一．战情室采访《华尔街日报》记者鲍勃·戴维斯（Bob Davis）和Lingling Wei（魏玲霛）
 
-在國旗日和整個國旗週，我們向美國國旗致敬，美國國旗是我們共和國所代表的原則的最著名的象徵。 200多年來，星條旗一直代表著自由、正義和法治。最近，當我們的國家共同應對冠狀病毒疫情時，我們的國旗一直在提醒我們，勇氣、堅韌和忠誠是不屈不撓的美國精神。
+《华尔街日报》记者鲍勃·戴维斯（Bob Davis）和Lingling Wei（魏玲霛）合著了一本新书《超级大国对决：川普与习近平之间的战斗如何威胁新的冷战》（Superpower Showdown：How the Battle Between Trump and Xi threatens a New Cold War）。鲍勃在书中详细地记录了美国方方面面的细节，足见其作为记者的敏锐观察和记录准确性。首先鲍勃介绍了自己的家庭背景和写作初衷，鲍勃的父亲是布鲁克林服装业的制造商，是50-60年代最初发明西装的制衣商之一，当时鲍勃的父亲凭借敏锐地商业视角首先将目光锁定在亚洲人身上，从此与中国建立了关系。有关本书，鲍勃说他希望带给大家更多不同的角度，就中美两国的贸易战来看，鲍勃曾在白宫的美国贸易代表属（USTR）工作过，魏玲霛能够从中共高层得到第一手的最新消息，所以他们合作，互通消息，并能够看看这场在战争中中美彼此之间有什么不同，他们发现从2008年经济危机之后，中美之间的金融联系就减弱了，鲍勃认为川普总统祇是专注于将中国视为21世纪的重大挑战，而非认同中国并接受中国，鲍勃认为下一任美国总统甚至需要重新考虑中美关系。
 
-Our great flag causes us to reflect humbly on the immeasurable price that has been paid to keep it “so gallantly streaming.”  Throughout our Nation’s history, proud patriots have nobly answered the call of duty when our country needed them most.  The Star Spangled Banner serves as an everlasting remembrance of the sacrifices heroes of every generation have made in conflicts from the Revolutionary War to the wars in Iraq and Afghanistan.  Our flag ensures that we never forget the incredible sacrifices our men and women in uniform have made to defend our liberty and way of life.
+班农先生就本书的副标题提问鲍勃，班农先生想知道，在鲍勃看来，当前中美之间是处于冷战还是热战。鲍勃说当前没有像丘吉尔一样的人站出来说我们正处于冷战，但是如果今年11月美国大选川普连任，那么无疑会处于冷战之中了。当前两国之间的经济脱钩，使得中美关系改变了很多，而且还有很多非经济因素也影响着投资者，如香港的未来、新疆穆斯林问题以及整个中国的民主问题，这都在中美关系中扮演重要的角色。鲍勃认为中共最初的贸易协议是真实可靠的，是在贸易战中的休战，当然鲍勃也认为作为总统竞争者的拜登，会对中国采取更强硬的态度。
 
-我們偉大的國旗使我們謙遜地反思，為了保持它 “如此英勇地飄揚 “而付出的不可估量的代價。在我們國家的歷史上，驕傲的愛國者們在國家最需要他們的時候，高尚地響應了職責的召喚。星條旗是對從革命戰爭到伊拉克和阿富汗戰爭的衝突中每一代英雄做出的犧牲的永恆紀念。我們的旗幟確保我們永遠不會忘記身著軍裝的男女軍人們為捍衛我們的自由和生活方式所做出的不可思議的犧牲。
+魏玲霛是《华尔街日报》高级通讯员，她与鲍勃合作完成了本书，作为一名记者，她已经报道中国相关的内容近十年了，过去的几年中她开始和鲍勃试图弄清楚事情，想要摸清中美两国到底在想什么，于是他们合著了本书。
 
-This year, Old Glory has waved over millions of brave Americans fighting the invisible enemy, often at risk to their personal health and wellbeing.  Throughout the coronavirus pandemic, healthcare professionals have treated and cared for those sickened by the virus, and countless American patriots have provided critical goods and services to their fellow citizens in these uncertain times.  These dedicated individuals have risen to the challenge, meeting the virus on the frontlines with the same conviction and unwavering determination that has empowered our Nation to overcome previous trials.  Just as we prevailed in those struggles, we will emerge victorious against this new enemy and again raise our flag in triumph.
+魏玲霛是地道的中国人，谈及自己的家庭，她说她的爷爷曾经随毛泽东长征，是坚定地共产主义者，后来放弃留学苏联转而建设中国；她的父母都经历了文革，动荡的十年让父母谨小慎微，只求保命活着；魏玲霛说她自己是受益的一代，99年留学美国，在纽约学习新闻专业，毕业后进入《华尔街日报》实习，后获得了《华尔街日报》的工作，2011年起回到中国独立编写新闻。她说得益于自己中国人的身份，每次都能采访到政府官员，但也正因为《华尔街日报》非常高的新闻标准，她常常接到中共官员的电话说她的报导批评中国而且很过分。她认为起初中国有很多人支持川普总统，但自从美国开始对国宝华为进行封锁时起，中国人开始意识到，这是一场贸易战。关于中共内部由刘鹤领导的改组运动，她说中共内部没有不同派别的改革者，他们都坚定地支持习近平主席，他们都坚持习近平主席领导的中国梦的原则，要从经济上、军事上、科技上使中国成为一个统一的国家，他们从未如此接近目标，也许习近平主席会注入一些市场经济的力量来发展，但是他从未偏离党的核心。所以从过去几年来看，中国并未背离原来的轨道。
 
-今年，數百萬勇敢的美國人揮舞著美國的國旗，與看不見的敵人作戰，他們的個人健康和福祉都面臨風險。在冠狀病毒疫情的整個過程中，醫護人員為那些因病毒而患病的人提供治療和護理，在這個動蕩的時期，無數美國愛國者為他們的同胞提供了重要的物資和服務。這些有奉獻精神的人迎接了挑戰，以同樣的信念和堅定不移的決心在前線迎擊病毒，這種信念和決心使我們的國家有能力克服以往的考驗。正如我們在這些鬥爭中取得勝利一樣，我們將戰勝這個新的敵人，並再次升起我們勝利的旗幟。
+二．恐怖的宣传机器—中共大外宣
 
-The American flag represents the unity of our country and its people.  No matter what may divide us, Old Glory should be revered and cherished, as a symbol of all that makes America the greatest country in the world.  As we honor our beautiful flag on this day and throughout this week, let us vow never to forget the tremendous sacrifices made by patriots from generation to generation to ensure that the red, white, and blue continues to fly high and free.  Today, and every day, I am proud to join my fellow Americans in standing tall and saluting our great American flag.
+Raheem在战情室跟所有听众和观众谈了谈中共的大外宣，在此祇谈具体事实，请大家自行思考。
 
-美國國旗代表著我們國家和人民的團結。無論我們之間有什麼分歧，都應該敬畏和珍惜我們的國旗，因為它是使美國成為世界上最偉大國家的一切的象徵。當我們在今天和本周紀念我們美麗的國旗時，讓我們發誓永遠不要忘記一代又一代愛國者為確保紅白藍三色旗幟繼續自由地高高飄揚所做出的巨大犧牲。今天，以及每一天，我都很自豪地和我的美國同胞們一起，站在高處，向我們偉大的美國國旗致敬。
-
-To commemorate the adoption of our flag, the Congress, by joint resolution approved August 3, 1949, as amended (63 Stat. 492), designated June 14 of each year as “Flag Day” and requested that the President issue an annual proclamation calling for its observance and for the display of the flag of the United States on all Federal Government buildings.  The Congress requested, by joint resolution approved June 9, 1966, as amended (80 Stat. 194), that the President issue annually a proclamation designating the week in which June 14 occurs as “National Flag Week” and calling on all citizens of the United States to display the flag during that week.
-
-為了紀念我國國旗的通過，國會通過1949年8月3日的聯合決議，經修正後（63 Stat. 492），將每年的6月14日定為”國旗日”，並要求總統每年發佈公告，要求舉行國旗日活動，並在所有聯邦政府建築上展示美國國旗。國會通過1966年6月9日批准的聯合決議（80 Stat.194）要求總統每年發佈公告，指定6月14日所在的一周為 “國旗週”，並呼籲美國所有公民在該週內展示國旗。
-
-NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, do hereby proclaim June 14, 2020, as Flag Day, and the week starting June 14, 2020, as National Flag Week.  I direct the appropriate officials to display the flag on all Federal Government buildings during this week, and I urge all Americans to observe Flag Day and National Flag Week by displaying the flag.  I encourage the people of the United States to observe with pride and all due ceremony those days from Flag Day through Independence Day, set aside by the Congress (89 Stat. 211), as a time to honor America, to celebrate our heritage in public gatherings and activities, and to publicly recite the Pledge of Allegiance to the Flag of the United States of America.
-
-因此，現在，我，美利堅合眾國總統唐納德·J·川普，特此宣布2020年6月14日為國旗日，從2020年6月14日起的一周為國旗週。我指示有關官員在本週內在所有聯邦政府建築物上懸掛國旗，我敦促所有美國人通過懸掛國旗來紀念國旗日和國旗週。我鼓勵美國人民以自豪感和所有適當的儀式紀念國會(89 Stat. 211)規定的從國旗日到獨立日的這幾天，作為紀念美國的時間，在公共集會和活動中慶祝我們的歷史遺產，並公開宣讀對美利堅合眾國國旗的效忠誓言。
-
-IN WITNESS WHEREOF, I have hereunto set my hand this twelfth day of June, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fourth.
-
-我於主2000年6月12日和美利堅合眾國獨立224週年在此簽名，以昭信守。
-
-DONALD J. TRUMP
-
-唐納德·J·川普
-
-[白宮原文](https://www.whitehouse.gov/presidential-actions/proclamation-flag-day-national-flag-week-2020/)
-
-*翻譯: 【OnePunchD】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+《每日来电》的记者Chuck Ross经过调查向大众公布了一组非常恐怖的数字，有关于中共大外宣在美国进行宣传的数据，头条是《中国宣传机器已经向美国报纸支付了1900万美元作为广告费和印刷费》。如随处可以免费获得的《中国日报》，每走几分钟就有一个《中国日报》的投放站，任何人都可以免费拿到这个报纸，中共控制的《人民日报》也向《华盛顿邮报》提供460多万美元的支持，也向《华尔街日报》提供的600万美元，这些报社得到来自中共的资金支持，被称为中国视角。根据《每日来电》列出的清单，所有数据来自于美国司法部的文件，已知这些报社中的一部分已经完成了境外注册，Raheem认为这是被中共操控的社论以及编辑业务权力的滥用，《中国日报》在美国的主流报纸上花了1100万美元的广告费，在推特上花了27万美元的广告费。《洛杉矶时报》、《西雅图时报》、《亚特兰大宪法杂志》、《芝加哥论坛报》、《休斯顿纪事报》以及《波士顿环球报》全部把《中国日报》列为客户，《中国日报》支付给《洛杉矶时报》65万7523美元的印刷服务费。结合当前美国正在进行外国代理人的注册政策，这令人震惊！多年以前，德国纳粹最初也是在美国国内进行大量的宣传活动，但后来被甄别出来了。
 
 0
