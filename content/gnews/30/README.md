@@ -1,49 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拒絕中共，維護和平
-`2020-06-12 23:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/232307/)
+## 白宮發布2020年國旗日和國旗周公告（中英文對照）
+`2020-06-12 23:57 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/232341/)
 
-- **世衛內部文件顯示譚德塞與中共聯手拖延告知世界病毒嚴重性**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/12234650/WH_20200612_Flag_Day_OnePunchD_photo169.png)Flag Day
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/12231933/Untitled.png)
-大紀元2020年6月11日報導：今年1月，世界衛生組織秘書長譚德塞對中共及時和公開分享疫情數據的舉措大加讚揚。但是內部文件顯示，其他世衛官員私下抱怨中共延遲提交數據，並且沒有提供充足數據以評估病毒的傳染性。
+**Proclamation on Flag Day and National Flag Week, 2020**
 
-**世衛內部文件為什麼此時出現？**
+**2020年國旗日和國旗周公告**
 
-世衛組織病毒學專家瑪麗亞.凡.科爾克霍沃稱，中共給出的信息少之又少。即便如此，世衛被指責遮掩獲有極少信息的事實。譚德塞現正被國際社會際獨立調查他在這次公共衛生事件中故意拖延與世界透露疫情信息事件。世衛在此時透露這個內部文件信息，似乎想要推卸責任。
+On Flag Day and throughout National Flag Week, we pay tribute to the American flag, the most recognizable symbol of the principles for which our Republic stands.  For more than 200 years, the Stars and Stripes has represented liberty, justice, and the rule of law.  Recently, as our Nation has come together to respond to the coronavirus pandemic, our flag has been a reminder of the courage, tenacity, and loyalty that define the indomitable American spirit.
 
-文章引用中國視角雜誌陳主編說，世衛透露內部文件是想將他們和譚德塞的行為分開。他說此舉動可以理解。譚德塞的行為明顯沒有底線。陳主編猜測，他很可能從中共獲得利益，與中共一唱一和。
+在國旗日和整個國旗週，我們向美國國旗致敬，美國國旗是我們共和國所代表的原則的最著名的象徵。 200多年來，星條旗一直代表著自由、正義和法治。最近，當我們的國家共同應對冠狀病毒疫情時，我們的國旗一直在提醒我們，勇氣、堅韌和忠誠是不屈不撓的美國精神。
 
-**世衛內部文件“洩漏”哪些信息？**
+Our great flag causes us to reflect humbly on the immeasurable price that has been paid to keep it “so gallantly streaming.”  Throughout our Nation’s history, proud patriots have nobly answered the call of duty when our country needed them most.  The Star Spangled Banner serves as an everlasting remembrance of the sacrifices heroes of every generation have made in conflicts from the Revolutionary War to the wars in Iraq and Afghanistan.  Our flag ensures that we never forget the incredible sacrifices our men and women in uniform have made to defend our liberty and way of life.
 
-這個內部文件揭露中共故意延遲提交數據的行為。該行為導致疫情惡化200倍。武漢病毒研究所，中國疾控中心和中國醫學科學院在1月2到5日獲得病毒序列，但卻被中共制止公開。 1月11日上海醫學院著名病毒學專家張永振教授在virological.org上發表病毒序列，中共因此被迫向世衛提交序列。隨後張教授的實驗室卻以裝修的理由被迫關閉。中共延遲至少2個星期提交病毒基因序列。從1月2日中共實驗室獲得病毒基因序列，到1月30日世衛宣布新型冠狀病毒為世界公共事件，疫情惡化了100到200倍。隨後，美國總統川普決定停止對世衛資助。譚德塞拯救雙方關係，在6月4日卻讚揚美國在世界衛生事件中的突出貢獻。
+我們偉大的國旗使我們謙遜地反思，為了保持它 “如此英勇地飄揚 “而付出的不可估量的代價。在我們國家的歷史上，驕傲的愛國者們在國家最需要他們的時候，高尚地響應了職責的召喚。星條旗是對從革命戰爭到伊拉克和阿富汗戰爭的衝突中每一代英雄做出的犧牲的永恆紀念。我們的旗幟確保我們永遠不會忘記身著軍裝的男女軍人們為捍衛我們的自由和生活方式所做出的不可思議的犧牲。
 
-**1，武漢疫情實有內幕**
+This year, Old Glory has waved over millions of brave Americans fighting the invisible enemy, often at risk to their personal health and wellbeing.  Throughout the coronavirus pandemic, healthcare professionals have treated and cared for those sickened by the virus, and countless American patriots have provided critical goods and services to their fellow citizens in these uncertain times.  These dedicated individuals have risen to the challenge, meeting the virus on the frontlines with the same conviction and unwavering determination that has empowered our Nation to overcome previous trials.  Just as we prevailed in those struggles, we will emerge victorious against this new enemy and again raise our flag in triumph.
 
-從5月4日到6月1日在接受核酸檢測的九千九百萬武漢人民中，中共疾控及預防中心卻說沒有確診案例，而只有300例無症狀感染者。武漢居民對此深感懷疑，因為學校仍然處於關閉狀態。居民認為中共的做法只是出於政治目的。武漢在4月8日解封後檢測仍然非常嚴格。官員告知人們盡量少出門。中共的核酸檢測準確率極低，而且根本不對居民透露檢測結果。檢測結果都由中共官員決定。 80多家高等院校中只有7家院校告知學生入學時間安排。
+今年，數百萬勇敢的美國人揮舞著美國的國旗，與看不見的敵人作戰，他們的個人健康和福祉都面臨風險。在冠狀病毒疫情的整個過程中，醫護人員為那些因病毒而患病的人提供治療和護理，在這個動蕩的時期，無數美國愛國者為他們的同胞提供了重要的物資和服務。這些有奉獻精神的人迎接了挑戰，以同樣的信念和堅定不移的決心在前線迎擊病毒，這種信念和決心使我們的國家有能力克服以往的考驗。正如我們在這些鬥爭中取得勝利一樣，我們將戰勝這個新的敵人，並再次升起我們勝利的旗幟。
 
-**2，中共病毒宿主可能是人類軀體**
+The American flag represents the unity of our country and its people.  No matter what may divide us, Old Glory should be revered and cherished, as a symbol of all that makes America the greatest country in the world.  As we honor our beautiful flag on this day and throughout this week, let us vow never to forget the tremendous sacrifices made by patriots from generation to generation to ensure that the red, white, and blue continues to fly high and free.  Today, and every day, I am proud to join my fellow Americans in standing tall and saluting our great American flag.
 
-澳洲福林斯德大學尼古拉.彼得羅夫斯基教授發現，新型冠狀病毒比起動物細胞，例如普遍的動物宿主蝙蝠和穿山甲的細胞，更容易與人類細胞相結合。中共病毒的S蛋白極易與人類細胞ACE2結合。教授稱在研究中最為驚奇的發現，是該病毒在現階段已經在人群中展現如此強的傳播性。稱這個病毒一定是在之前被暴露在人體里而導致現有的在人群中如此嚴重的傳染性。
+美國國旗代表著我們國家和人民的團結。無論我們之間有什麼分歧，都應該敬畏和珍惜我們的國旗，因為它是使美國成為世界上最偉大國家的一切的象徵。當我們在今天和本周紀念我們美麗的國旗時，讓我們發誓永遠不要忘記一代又一代愛國者為確保紅白藍三色旗幟繼續自由地高高飄揚所做出的巨大犧牲。今天，以及每一天，我都很自豪地和我的美國同胞們一起，站在高處，向我們偉大的美國國旗致敬。
 
-教授解釋，如果一個病毒在某種動物身上存在數百上千年，那麼這種動物被稱為自然宿主。病毒因與宿主共同進化許多年，病毒自身隨著宿主的變化而改變自身的結構以適應變化。所以病毒和宿主的結合能力自然而然是最強的。如果我們在沒有任何其他信息的情況下研究該病毒，那我們可以推論，病毒的宿主是人類而非動物。因為他與人類細胞結合力最強。
+To commemorate the adoption of our flag, the Congress, by joint resolution approved August 3, 1949, as amended (63 Stat. 492), designated June 14 of each year as “Flag Day” and requested that the President issue an annual proclamation calling for its observance and for the display of the flag of the United States on all Federal Government buildings.  The Congress requested, by joint resolution approved June 9, 1966, as amended (80 Stat. 194), that the President issue annually a proclamation designating the week in which June 14 occurs as “National Flag Week” and calling on all citizens of the United States to display the flag during that week.
 
-教授也說，在人類歷史中，人類從不是病毒宿主。所以病毒的傳播幾乎都是一個從動物到人類的過程。如果有例外，那就是從實驗室洩漏出來的病原體。即使CCP病毒之前有可能與人類細胞結合，但是也很難被科學家們相信。因為病毒是在今年1月份才被得知和發現。
+為了紀念我國國旗的通過，國會通過1949年8月3日的聯合決議，經修正後（63 Stat. 492），將每年的6月14日定為”國旗日”，並要求總統每年發佈公告，要求舉行國旗日活動，並在所有聯邦政府建築上展示美國國旗。國會通過1966年6月9日批准的聯合決議（80 Stat.194）要求總統每年發佈公告，指定6月14日所在的一周為 “國旗週”，並呼籲美國所有公民在該週內展示國旗。
 
-**3，關於中共病毒黑龍江二次爆發信息**
+NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, do hereby proclaim June 14, 2020, as Flag Day, and the week starting June 14, 2020, as National Flag Week.  I direct the appropriate officials to display the flag on all Federal Government buildings during this week, and I urge all Americans to observe Flag Day and National Flag Week by displaying the flag.  I encourage the people of the United States to observe with pride and all due ceremony those days from Flag Day through Independence Day, set aside by the Congress (89 Stat. 211), as a time to honor America, to celebrate our heritage in public gatherings and activities, and to publicly recite the Pledge of Allegiance to the Flag of the United States of America.
 
-一個內部文件揭露在4月2日到6日3名人士於哈爾濱第二人民醫院裡感染中共病毒的信息。該3名人士期間本來沒有感染病毒，但由於帶同樣沒有感染病毒的家人治療與中共病毒無關的疾病而感染了中共病毒。一個病人的妻子4月10日在微信朋友圈被告知哈爾濱第二人民醫院因一例陳姓患者病例爆發了中共病毒大規模傳染。
+因此，現在，我，美利堅合眾國總統唐納德·J·川普，特此宣布2020年6月14日為國旗日，從2020年6月14日起的一周為國旗週。我指示有關官員在本週內在所有聯邦政府建築物上懸掛國旗，我敦促所有美國人通過懸掛國旗來紀念國旗日和國旗週。我鼓勵美國人民以自豪感和所有適當的儀式紀念國會(89 Stat. 211)規定的從國旗日到獨立日的這幾天，作為紀念美國的時間，在公共集會和活動中慶祝我們的歷史遺產，並公開宣讀對美利堅合眾國國旗的效忠誓言。
 
-大紀元報導最後指出，在歷史中，中國的改朝換代都伴隨著瘟疫的出現。與中共合作的國家，例如意大利，西班牙，德國，伊朗，日本，韓國都遭受病毒的嚴重衝擊。而台灣，香港受到的影響卻很少。在全球超過700萬人感染中共病毒後，中共仍試圖隱瞞疫情和真相。因此大紀元決定在世界範圍內推出“拒絕中共”請願書，要求世界對病毒來源的真相展開獨立調查，以此維護世界安全與和平。
+IN WITNESS WHEREOF, I have hereunto set my hand this twelfth day of June, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fourth.
 
-評：
+我於主2000年6月12日和美利堅合眾國獨立224週年在此簽名，以昭信守。
 
-中共病毒來於中共，卻帶著滅共使命，終將中共帶回潘多拉盒子，攜其惡爪葬於地獄之火。
+DONALD J. TRUMP
 
-[原文鏈接](https://www.theepochtimes.com/epoch-news-us-decoupling-from-china-accelerates-33-chinese-companies-added-to-list_3366926.html)
+唐納德·J·川普
 
-翻譯報導：Joyphie
-校對整理：瑞安平
+[白宮原文](https://www.whitehouse.gov/presidential-actions/proclamation-flag-day-national-flag-week-2020/)
+
+*翻譯: 【OnePunchD】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
