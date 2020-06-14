@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】12/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-13 23:16 GM77` [轉載自GNews](https://gnews.org/zh-hant/233232/)
+## 中共治下言論自由不斷惡化——蘋果商店下架2應用
+`2020-06-14 00:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/233352/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14001913/apple-1.jpeg)*圖片來源：Pixabay*
+據英國衛報報導，由於兩款博客應用程序Pocket Casts和Castro拒絕配合中共對中國相關內容進行審核，中共政府對蘋果商店強力施壓將這兩款應用從中國地區刪除。中共中央網絡安全和信息化委員會辦公室(CAC)曾通過蘋果公司對這兩家公司發出警告，稱他們違反了中共法律。
 
-[English\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230307/English_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230307/English_0612_CCP_Virus_Updates.pdf)
+報導引用對Pocket Casts公司的採訪，“我們明白這意味著我們的iOS應用（注：蘋果操作系統下的應用）不太可能在中共國使用。但我們認為播客之所以特別和有價值就是因為其珍視開放的傳播模式。拒絕審查是我們秉持這種信條的公司必須做的。” Castro公司則稱沒有人告知其應用被刪除的原因，他們認為可能與他們在“發現”欄中對香港的抗議活動的推廣有關。
 
-[French\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230325/French_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230325/French_0612_CCP_Virus_Updates.pdf)
+報導進一步闡明，與直播平台和社交網絡不同，播客使用的技術架構給中共審查帶來了新的難題。播客可以託管在任何公司的服務器上，下載新節目只需要使用一個名為RSS數據流的簡單文件。這種模式無中心，所以中共無法要求某一家公司遵紀守法。
 
-[Japanese\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230334/Japanese0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230334/Japanese0612_CCP_Virus_Updates.pdf)
+蘋果自己的播客仍可在中國使用，但是有嚴格的管制：過濾搜索結果，不可以按類別瀏覽。
 
-[German\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230347/German_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230347/German_0612_CCP_Virus_Updates.pdf)
+文章最後說到，蘋果與中共的親密關係屢遭批評，有些評論人認為這已超出了法律的必要性。
+10月蘋果刪除了一款香港抗議者內部協調溝通的應用，但卻無法說出其違反了什麼法律。
 
-[Korean\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230356/Korean_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230356/Korean_0612_CCP_Virus_Updates.pdf)
+衛報已聯絡蘋果公司對此評論。
 
-[Russian\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230359/Russian_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230359/Russian_0612_CCP_Virus_Updates.pdf)
+評：中共自始至終都對人權、自由和民主進行踐踏，對國內的老百姓管制也越發嚴厲。七十年的政權剝奪了牆內每個人對事件了解與認知的權利，通過大量的媒體宣傳控制著整個社會。如今，共產集權的爪牙逐漸滲透到全球的各個角落，霸占國際大型媒體、控制媒體自由言論、煽動種族情緒、編造假新聞，這些都是鐵證如山的事實。這次蘋果商店下架事件，就是最好的證明。世界正義的力量已經覺醒，媒體的真實性將成為世界人民共同討論的話題，是善是惡是真是假，相信所有人最終都會明白。
 
-[Spanish\_0612\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230403/Spanish_0612_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/13230403/Spanish_0612_CCP_Virus_Updates.pdf)
+翻譯報導：浩瀚DK
+校對整理：Sonya
+[原文鏈接](https://www.theguardian.com/technology/2020/jun/12/apple-removes-two-podcast-apps-from-china-store-after-censorship-demands)
 
 0
