@@ -1,43 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共顫抖，國際社會持續發酵的郝海東效應！
-`2020-06-15 12:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/235002/)
+## 2020年世界獻血者日川普總統致辭（中英文對照）
+`2020-06-15 15:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235022/)
 
-**作者：然小哥**
+**Presidential Message on World Blood Donor Day, 2020**
 
-如果說柏林牆倒塌，蘇聯解體，是人類社會20世紀的豐功，那麽推翻中共無疑將是21世紀人類曆史進步的偉績。
+Issued on: June 14, 2020
 
-2020年6月4日，“新中國聯邦”的成立就像奧林匹亞山上采摘的星星聖火，被一個人放在火炬裏，一炮瞬間點燃了整個世界，他就是亞洲足球的傳奇郝海東先生。
+**2020年世界獻血者日總統致辭**
 
-喜馬拉雅監督機構的法制基金和法治社會，在郭文貴先生和斯蒂夫班農先生的帶領下，讓國際政要或者金融大佬級別認清了中共的邪惡。而郝海東先生的這把火炬可算是點燃了世界億萬普通市民的心裏的燈。
+發布日期：2020年6月14日
 
-郝海東先生在接受采訪時表示，“我站出來讀這份宣言就是對中共體制最大聲音的說不，因爲我們曾經經曆過，我一直在說，應該管辦分離，黨政分開，司法獨立”。
+Every 2 seconds, someone in the United States is in need of a blood transfusion. On World Blood Donor Day, we thank those individuals who selflessly donate blood to help thousands of hospitals and medical care facilities meet the needs of their patients.
 
-![](https://gnews.org/wp-content/uploads/2020/06/image0-112.jpg)
+在美國，每兩秒鐘就有一個人需要輸血。今天（6月14日）是世界獻血日，我們感謝那些無私捐獻者們，他們幫助了成千上萬醫院和醫療機構滿足患者對血液的需求。
 
-對于足球運動員來說，最應該遵守的就是遊戲規則。如果不按照規則，再好的天才也難修成正果。而深受中共統治弊害的中共足球界，制定規則的是體制，執行的是體制，裁判還是體制。
+Over the past several months, the hardships of the coronavirus have lowered our country’s blood and platelet supply to critical levels, and the need to donate blood has never been more acute. With more than 30,000 blood drives canceled since mid-March, those battling severe illnesses or those involved in life-threatening accidents could be in particular danger of not being able to receive the vital care they need. Many of our Nation’s blood banks are operating with depleted stocks, and the majority of them rarely have on hand more than a single day’s supply of Type O blood, which is critical because it can be used to meet the blood needs of any patient. During this challenging time, let us commit to raising awareness of the lifesaving act of donating blood.
 
-在這樣的規則下，郝海東先生深深感悟到，“他們把國家，政府，政黨混爲一談，這尤其是對包括足球運動員在內的所有運動員以及體育人的摧殘和亵渎。”
+在過去的幾個月裡，在應對冠狀病毒的艱難抗疫中，我國的血液和血小板供應降低到了臨界水平，對獻血的需求也變得前所未有的迫切。自3月中旬以來，由於取消了30,000多個獻血動員活動，那些身患嚴重疾病的人或遭遇危及生命事故的人因無法獲得關鍵的救助，他們的生命變得岌岌可危。我國的許多血庫都是在庫存耗盡的情況中運作的，而大多數血庫中很少有超過一天的O型血供應，而O型血很關鍵，因為它可用於滿足任何患者的血液需求。在這個艱難時刻，讓我們承諾提高獻血這一救命行為的認識。
 
-點點滴滴親身經曆所受到的摧殘，才讓郝海東先生發自肺腑地說出，“人類文明發展到今天，共産黨的這種體制，必須要退出曆史舞台。這是對未來的老百姓，孩子的生活保障，人生保障，不能再讓被洗腦教育和綁架14億人的做法持續下去”。
+I urge all Americans who are healthy and willing to donate blood to do so at a local donation center. Organizations like the American Red Cross and other blood banks have implemented special protocols to protect donors from possible infection. Your blood donations can help minimize the harm inflicted by the coronavirus on our country.
 
-作爲曾經的前鋒，郝海東先生的看得角度，不僅僅是眼前的球門，更想到了身後的億萬百姓和屬于未來的孩子。這樣地胸懷和無我地境界，讓聽到郝海東先生說的每一個字的人，都會被其凝聚力和感召力所吸引。
+我熱切呼籲所有健康且自願鮮血的美國人去當​​地的捐贈中心獻血。像美國紅十字會這樣的機構和其他血庫等組織已經實施了特別的操作規範，以保護捐贈者免受可能的感染。您的獻血可以減少冠狀病毒對我們國家造成的傷害。
 
-世界媒體都在紛紛報道郝海東先生的發言和采訪，隨著時間的推移，慢慢地被越愛越多的人接受。
+Today, the First Lady and I send our sincerest gratitude to both blood donors and those countless individuals who help facilitate donations. These dedicated employees, extraordinary volunteers, and compassionate individuals represent the very best of the American spirit, and our Nation is grateful for your contributions to America’s health and well-being.
 
-在世界大媒體中，雖然還都有所顧及，但還是不能掩蓋震驚。比如，CNN表示，“在中國體育界成功的明星，如此批判中共，公然提出讓中共退出曆史舞台，前所未聞，極其罕見。”
+今天，第一夫人和我向所有獻血者和無數個幫助促進捐贈行為的人致以最誠摯的謝意。這些敬業的員工們，傑出的志願者們和每個富有同情心的人都代表著美國精神的精髓，我們國家感謝你們為美國的健康和福祉所作的貢獻。
 
-但是，網友給出的反應是最真實和直接的。
+閱讀白宮原文：[https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/](https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/)
 
-日本網友A：郝海東先生說得太好了。人類的敵人是共産黨和共産主義者。如果日本不注意被滲透，也會病入膏肓。
+*翻譯：【一花一世界】 校對：【班班】*
 
-網友B: 來自中國國內的抗議和通過政變改變體制或許是最和平的解決方式。壞的是共産黨，不是中國國民。如果發生戰爭的話，普通人遭受痛苦，所以請中國國民都像郝海東先生一樣站起來。世界各國應該大力支援高舉反旗的中國人民。
-
-網友C:爲了維護威權主義體制，中共絕對不會認可反政府言論。今後，國際社會必須關注這個超級巨星。
-
-跨過語言的障礙，國外網友完全理解了郝海東先生說的，而這些呼聲無疑和中國國內群衆的呼聲是等身大的。中共外交部發言人面對記者就郝海東先生的提問，連觸及都惶恐不安，避而不談，逃之夭夭。 因爲他們深知群衆的力量最大，伴隨這些群衆呼聲的高漲，中共俨然已經成了驚弓之鳥，噤若寒蟬！
-
-（文章內容僅代表作者觀點）
+*戰友之家玫瑰園小隊出品*
 
 0

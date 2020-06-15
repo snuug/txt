@@ -1,21 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP能否不宣而戰？
-`2020-06-15 11:21 GM10` [轉載自GNews](https://gnews.org/zh-hant/234948/)
+## FDA因阻礙人們獲取硫酸羥氯喹被告上法庭
+`2020-06-15 11:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/234983/)
 
-**作者：聞喜**
+**作者：Dogman**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15113112/aaps-v-fda-hydroxychloroquine-750x440-1.jpg)
+美國醫生和外科醫生協會（縮寫AAPS）與6月6日在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接1）。
 
-中共國CCP非常可能在不宣戰的情況下把核彈扔到美國，正因為CCP武器落後，它才下先手為強!在CCP黨魁的頭腦中已經根深地的從少年期間植入了一個魔鬼哲學，那就是一旦絕望那就多殺一個是一個，什麼宣戰，臉面對這些反人類恐怖分子一點價值都沒有，有吸引力的就是獲勝結果，中國歷史上的孫子兵法最以兵不厭詐為榮耀，以偷襲獲勝作為擺脫政治困境的僥幸心理根深蒂固。
+AAPS說，目前美國的疫情嚴重，超過10萬人因CCP病毒死亡，然而政府的倉庫中卻存有150萬劑硫酸羥氯喹。而由於FDA下屬分支緊急使用授權部門（EUA）明令禁止使用HCQ，導致美國絕大多數州下達禁令，以禁止醫生針對CCP病毒開放HCQ的處方。
 
-為此，這些紅大鬼，紅小鬼經常燒香使用巫術安慰它們脆弱的心態，它們腦海裏根本沒有過什麼叫大道，大愛。CCP也常把這些美好詞匯在公共場合制成化妝品不遺余力的塗在臉上和屁股上!人性的沖動大都是以僥幸為前提，日本偷襲美國珍珠港的僥幸也都來自孫子兵法!
+然而，AAPS強調，HCQ通過FDA安全性認證已經超過65年，是非常安全的。根據耶魯大學哈維瑞時醫生的調查研究，硫酸羥氯喹和阿奇美素被證明是治療CCP病毒非常有效的藥物組合，“應當廣泛使用和推薦給醫生”（鏈接2）。哥倫比亞大學的讓吉利也說HCQ是“非常，非常安全的藥物；而且已經使用超過75年了”（鏈接3）。 在一項針對6000名醫生的調查報告中（鏈接4），HCQ被認為在現有所有的治療藥物中最為有效。
 
-孫子兵法在歷史上共36計，但從“CCP病毒”開始又多了一計叫“送你口罩”。自此中共對歷史唯一的發明就是改寫了孫子兵法36計變成了37計。這些沒人性的中共CCP僅有的一項發明：孫子兵法37計，而且許多國家都中招，就是不看Gnews的結果。
-https://gnews.org/zh-hans/151828/
+AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
 
-我在紐約時間2020年1月30日在Gnews上說CCP病毒是戰爭不是事故，結果蒙對了，在4月16日說中共印制假美元搞亂美國經濟又蒙對了，這次說中共會用核偷襲方式讓川普下臺，可別在蒙對了，因為美國是滅共的唯一有效力量，傷不起!
+截止發稿時間2020年6月15日，根據Worldometers顯示，世界範圍內因為CCP病毒受到感染的人數為8028334人，死亡436279人；而美國現在最為嚴重，受感染人數為2162904，死亡117865。
 
-祝川普總統生日快樂!只要有中共的存在，人類就傷不起，為香港人民禱告：快點天滅中共!向美麗的香港人致敬，他們用自己的尊嚴和生命替全人類阻擋中共的邪惡!
+感謝關註Dogman，堅定的爆料戰友之一，努力為讀者提供關於CCP病毒等事件的真實信息。GTV賬戶為：狗狗警察
+
+鏈接：
+
+1. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/a)
+2. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
+3. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
+4. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
+
 
 
 
