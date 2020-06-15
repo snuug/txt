@@ -1,49 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府正在推進海洋勘探工作（中英文對照）
-`2020-06-14 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/233994/)
+## 美國網絡的威脅: 對中共國國有（通信）公司的疏忽
+`2020-06-14 23:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234246/)
 
-**The Trump Administration Is Advancing Ocean Exploration**
+*消息來源：present danger china 《當前危機委員會-中國》*
 
-**川普政府正在推進海洋勘探工作**
+*翻譯/簡評：TCC*
 
-America’s oceans, coastal waters, and Great Lakes are national treasures, providing beauty and recreation, along with valuable resources that enhance our health, security, and economic prosperity. America’s oceans and coastlines contribute greatly to America’s economy, supporting 154,000 ocean-dependent businesses, $373 billion of economic activity annually, 2.3 million jobs, and $162 billion in wages.
+前一陣子，美國網絡遭受攻擊，尤其在關於新冠病毒疫苗研究的機構與組織。這篇（6/10）當委會發的文章明白指出，今日中共能對美國網絡造成威脅，主要是最近20年來對中共國國有通信公司監督上的失職。原來所設置的監督小組是一個臨時性而非正式編制的小組，這表明完全不注重網路安全，才導致今日國家安全受到威脅。還好亡羊補牢，川普總統在4月發佈了一項行政命令，由司法部長領導的一個團隊，以嚴格的審查程序來取代。這新小組的任務是審查那些申請在美國運營的任何外國電信，並審查存在網絡安全或國家安全風險的任何現有許可證。希望在司法部與聯邦通訊委員會嚴格的監督下，能確保網絡安全。只有美國自身的網絡安全得以保障，才可以幫助盟國脫離中共華為5G的陰影。
 
-美國的海洋、沿海水域和五大湖是國家寶藏，這一切給予人們美麗景緻和娛樂場地，還提供了增進我們健康、安全和經濟繁榮的寶貴資源。美國的海洋和海岸線地區為美國經濟做出了巨大貢獻，支撐著15.4萬家以海洋為支柱的企業、年均3730億美元的經濟活動、以及總值達1620億美元薪金的230萬個工作崗位。
+#### **美國參議院**
 
-Advancing understanding of our oceans and coastlines has been a top priority for President Trump, particularly as it relates to further mapping the United States Exclusive Economic Zone (US EEZ) –an area surrounding the United States that is larger than the areas of all fifty states combined. The US EEZ contains a vast amount of natural resources, such as critical minerals, energy, and marine-derived pharmaceutical compounds, and is home to countless ecosystems on which the health and productivity of the oceans depend.
+### **美國網絡的威脅: 對中共國國有（通信）公司的疏忽**
 
-提高對海洋和海岸線地區的認知一直是川普總統的優先任務，特別是因為這與進一步繪製美國專屬經濟區（U.S. EEZ）有關。該區是個環繞美國，比所有50個州的面積加起來還要大的區域。美國專屬經濟區包含大量的自然資源，如緊要礦物、能源，和海洋衍生物類的藥品複合成分，也是海洋的自身健康和生產力所依賴的無數個生態系統的所在地。
+參議院小組說，美國電信業數十年來未能阻止中共國的間諜活動
 
-Only 40 percent of the EEZ has been mapped, and considerably less has been fully explored and studied to identify the natural resources that could benefit our Nation. The undiscovered potential is priceless. Knowledge of our oceans will support advancements in tourism and recreation, maritime commerce , healthy and sustainable fisheries, improved understanding of ocean characteristics and marine life, resilient coastal communities, and other national interests. Recognizing the importance of this critical resource, President Trump has taken bold action to dramatically increase our understanding of the marine environment to support the conservation, management, and balanced use of our extraordinary ocean resources.
+分析：參議院網絡安全202小組表示，美國電信業數十年來未能阻止中共國間諜活動
 
-只有40%的EEZ已被測繪，而只有比這還少之又少的區域才已被我們為了辨識何種自然資源可能造福於國家而充分勘探和研究，那些尚未被發現的潛力是無價的。我們對海洋的認知將有益於推進很多層面的發展，諸如旅遊和娛樂業、海洋商務貿易，健康和可持續型的漁業，對海洋特徵和海洋生物的更多了解，抗逆境適應力強的沿海社區，以及其他許多國家利益。因為認識到這一緊要資源的重要性，為大幅度增加我們對海洋環境 的認知，川普總統已經採取了有膽略的行動，用以支持對我們廣博海洋資源的保護、管理和平衡利用。
+華盛頓郵報|約瑟夫·馬克（Joseph Marks）和托尼亞·萊利2020年6月9日
+![This image has an empty alt attribute; its file name is 16d00a8a-6b9e-4f28-b778-f0db359f4ffb.png](https://spark.adobe.com/page/95CzJwJGmGFCN/images/16d00a8a-6b9e-4f28-b778-f0db359f4ffb.png?asset_id=5e4292e5-02d1-4366-ae1e-8b00acff3b5f&amp;img_etag=%228285837e07a336442b11c87287ebbf1f%22&amp;size=1024)
+參議院今天早上發佈的一份報告表示，聯邦政府在這將近二十年里未能適當地防範在美國營運的中共國國有電信公司所造成的網絡安全風險。
 
-In November of last year, President Trump signed a Presidential Memorandum directing the Federal government to develop a national strategy to map and explore the US EEZ, a strategy to map the coast of Alaska, and recommendations to facilitate permitting for ocean exploration and research. Today , as Co-Chairs of the Ocean Policy Committee, we are proud to release strategies and recommendations requested by the President that will guide the national ocean mapping and exploration enterprise, unleashing a new era of knowledge and innovation and ensuring continued US global leadership in ocean research.
+參議院國土安全委員會調查小組的報告顯示，這導致中共國最大的四家此類型電信公司能夠幾乎不受到監督地在這裡運營子公司。
 
-去年11月，川普總統簽署了一份總統備忘錄，指示聯邦政府研製一項繪製和勘探美國專屬經濟區的國家戰略，包含繪製阿拉斯加海岸地區，以及要求聯邦政府對促進海洋勘探和研究許可批准方面提出建議。今天，作為海洋政策委員會的共同主席，我們自豪地發布這些經總統要求所製定的戰略和建議。這將指導國家海洋測繪和勘探事業，開創認知和創新的新時代，並確保美國在海洋研究方面持續保持全球領先地位。
+報告發現，這可能允許他們（這些公司）經由電話和互聯網交流輸往中共國來幫助其政府監視來自美國公司的大量數據。
 
-The National Strategy for Ocean Mapping, Exploration, and Characterization provides a roadmap to coordinate Federal action and further our understanding of the US EEZ. This roadmap will advance key goals, including completing mapping the deep water by 2030 and the nearshore waters by 2040 and exploring and characterizing priority areas of the US EEZ. It also will aid in developing and maturing new and emerging science and technologies, and building public and private partnerships to support these activities.
+該報告是美國國會及其他部門進行的一系列審查中的最新報告，指出美國在對中共國崛起成為全球大國帶來的網絡安全威脅所做的準備是劣質且無組織性的。在2019年的一份報告中，由參議員羅伯·波特曼（俄亥俄州共和黨議員）和托馬斯·卡珀（特拉華州民主黨議員）領導的小組委員會抨擊包括Equifax和萬豪在內的美國公司未能自我保護免於受大量中共國數據盜竊者的侵害。
 
-“國家海洋測繪勘探和特徵歸類“戰略提供了一個協調聯邦層面的行動，並進一步了解美國專屬經濟區的路線圖。該路線圖將推動實現我們的關鍵目標，包括在2030年之前完成深海的測繪，在2040年之前完成近岸水域的測繪，以及對U.S. EEZ優先區域進行探索和特徵歸類。它還將對那些新的和新興科學技術，在開發和護助到成熟期方面給予幫助，並輔助建立公共和私人機構的合作關係用以支持這些行動。
+特別是在電信領域，美國公司在很大程度上放棄了構建可運行下一代超高速電信網絡（稱為5G）硬件的工作。結果，過去兩年來，美國官員一直在進行「後衛」行動來試圖阻止中共國的華為獨佔全球市場。
 
-The Alaska Coastal Mapping Strategy, developed by the National Oceanic and Atmospheric Administration, the Alaska Mapping Executive Committee, and the State of Alaska, advances the modernization of ocean and coastal maps. Because Alaska lacks current mapping data, this work is critical to a state that has a coastline longer than all other states’ coastlines combined. With an economy closely linked to coastal and ocean waters, accurate, up-to-date mapping will support economic growth, resource management, and the safety and security of Alaska’s coastal residents.
+![This image has an empty alt attribute; its file name is ed99dad0-2c8a-427c-9eae-d19fe292cb88.jpg](https://spark.adobe.com/page/95CzJwJGmGFCN/images/ed99dad0-2c8a-427c-9eae-d19fe292cb88.jpg?asset_id=3d5a8b83-82ae-47ba-b809-a8c082d1cb3e&amp;img_etag=%22dffa04833b8f400fd2d7f0bed597625d%22&amp;size=2560)
 
-“阿拉斯加沿海測繪戰略” 是由國家海洋和大氣管理局、阿拉斯加測繪執行委員會，以及阿拉斯加州聯合製定，它推進了海洋和沿海地圖的現代化。由於阿拉斯加缺乏即時最新的測繪數據，而這項工作對於一個海岸線比其他所有州的海岸線加起來還要長的州來說尤為重要。因為它的經濟與沿海和海洋水域緊密相關，準確而即時最新的測繪數據才能對經濟增長、資源管理以及阿拉斯加沿海居民的安全和安保 提供有效支持。
+這未能充分審查中共國電信帶來的國家安全風險的主要原因是（採取）「非正式」和「臨時性」的作法。
 
-Ocean and coastal exploration, mapping, and research activities frequently require multiple environmental reviews, consultations, permits, and other authorizations under Federal laws and regulations. In order to reduce duplication, increase coordination across Federal agencies, save taxpayer dollars, eliminate waste, and protect marine resources, President Trump directed the Ocean Policy Committee to recommend actions that increase the efficiency of the permitting process for ocean exploration activities. The Recommendations for Increasing the Efficiency of Permitting for Ocean Exploration, Mapping, and Research Activities identify opportunities to promote clarity and consistency in the Federal permitting processes, examine approaches to increase efficiency, and evaluate ways in which new and emerging science and technology can streamline the permitting process.
+這個過程由司法，國防和國土安全部的少數人負責，為聯邦通信委員會（FCC）提供建議。非正式小組被稱為「 電信小組」，通常進行長達數年的安全審查，聯邦通訊委員會專員將其描述為一個「無法解決的黑洞」。
 
-海洋和沿海勘探、測繪和研究活動頻繁地需要依照聯邦法律和法規，進行多種環境評估，諮詢，許可證獲取，以及其他授權。為了減少重複工作，加強聯邦機構之間的協調，節約納稅人的錢，消除浪費，保護海洋資源，川普總統指示海洋政策委員會要對提高海洋勘探活動的許可程序的效率提出建議。此《提高海洋勘探測繪和研究活動許可效率的建議》確認了以下需改進的機會，包括促進聯邦許可獲准程序的清晰度和一致性， 查驗可提高效率的途徑，並評估對新的和新興科學技術許可證獲准可以標準流程化方法。
+當評論完成後，這小組也很少進行跟進。例如，該組織制定了安全協議，以限制兩家中共國有電信公司在美國的業務（2007年的美國中國電信美洲公司和2009年的通信網）的風險，但並沒有確保兩家公司遵守這些協議。
 
-June is National Ocean Month, and under President Trump’s leadership, high priority is placed on advancing our knowledge of America’s unexplored oceans and coastlines. Through increased mapping, exploration, and efficient permitting, the United States is poised to harness cutting-edge science, new technologies, and partnerships that will benefit our economy, enhance national security, and promote conservation and stewardship of our oceans.
+該協議授權「 電信小組」對公司在美國的業務進行檢查，但是該組織在過去十多年中僅對每家公司進行了兩次此類檢查。這些檢查都在2017年之後進行的。
 
-6月是美國國家海洋月，在川普總統的領導下，我們對提高在美國的未開發海洋和海岸線區域的認知給予了優先級別。通過在測繪、勘探和許可獲准效率上的增進，美國已準備就緒，並駕馭著我們的尖端科學、新技術和各種合作關係，從而將增進我們的經濟，加強國家安保，並促進對海洋的保護和對海洋的管理盡職盡責。
+該報告指出，「 電信小組」從未與另一家中共國公司中國聯通美洲公司（China Unicom Americas）簽訂安全協議，因此「沒有監督機構來評估該公司在美國的業務」。
 
-[閱讀白宮原文](https://www.whitehouse.gov/articles/the-trump-administration-is-advancing-ocean-exploration/)
+該小組最後終於在2019年建議聯邦通訊委員會禁止另一家中共國主要電信公司中國移動美洲公司的運營。但這是在七年的調查後，「 電信小組」首次提出這樣的建議。
 
-*翻譯: 【OnePunchD】校對：【RD16】*
+專家小組在上個月同樣建議禁用中國電信，理由是擔心其（中共）國有的母公司會構成中共國間諜活動不可接受的風險。
 
-*戰友之家玫瑰園小隊出品*
+參議院的報告是在聯邦政府已經開始清理其內部後發佈的。
+
+川普總統在4月發佈了一項行政命令，以由司法部長領導更為嚴格的審查程序來取代這非正式的「 電信小組」系統。這新小組的任務是審查申請在美國運營的任何外國電信，並審查存在網絡安全或國家安全風險的任何現有許可證。
+
+美國聯邦通信委員會（FCC）還在4月致信中共國電信美洲公司，中國聯通美洲公司，通信網和另一家中共國公司Pacific Networks，要求他們解釋為什麼不應該因與中國移動相同的間諜問題為理由而被禁止。
+
+美國聯邦通信委員會主席拜仁（Ajit Pai）說，這封信反映了該委員會「對這些公司對中國政府的剝削，影響和控制的脆弱性的深切關注。」
+
+他說：「當涉及到網絡安全性時，我們不能冒任何風險，並聽天由命。」
+
+該份報告的建議主要側重於為新的審核流程提供支持，並確保審核迅速進行。
+
+該小組希望國會授權政府定期審查所有外國電信許可證。它還希望，如果許可證出於國家安全原因未通過要求，則會將其自動過期。現在是，除非聯邦通信委員會撤銷許可證，否則許可證將永遠有效地存在。
+
+儘管該報告未提供特定時間表，議員們還希望國會為審查的持續時間設定明確的截止日期。
+
+[原文鏈接](https://presentdangerchina.org/2020/06/senate-panel-says-u-s-telecoms-failed-for-decades-to-prevent-chinese-spying/)
+
+#### [**編輯：【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/95CzJwJGmGFCN/)
 
 0

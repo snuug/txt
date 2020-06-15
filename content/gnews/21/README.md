@@ -1,41 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統在美國陸軍245週年生日之際的致辭（中英文對照）
-`2020-06-14 19:23 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/234066/)
+## 突發：推特承認中共國使用近20萬個虛假賬號影響美國政治
+`2020-06-14 23:49 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234256/)
 
-**Presidential Message on the 245th Birthday of the United States Army**
+*作者：Natalie Winters June 11, 2020 2020年6月11日*
 
-**在美國陸軍245周年生日之際的總統致辭**
+*消息來源：The National Pulse 《國家脈動》*
 
-NATIONAL SECURITY & DEFENSE
+*翻譯/簡評：少小林*
 
-Issued on: June 14, 2020
+*PR*：*InAHurry*
 
-國家安全與國防
+**簡評：**
 
-發佈時間: 2020年6月14日
+我們正處在一個沒有硝煙的戰爭中，而主戰場之一就是媒體，我們能看到中共偽政權對於西方媒體滲透是早有預謀和鋪墊，通過媒體的滲透和操控來影響民眾的政治傾向，從而左右美國大選。而作為被中共滲透最嚴重的美國媒體社交平台之一的推特，這次對於中共水軍的披露，著實讓人很震驚也很振奮！一方面我們能從中感覺到越來越多的西方親共媒體已經看清了滅共大趨勢，紛紛選擇在這個關鍵時間權衡利弊，作出調轉的姿態; 另一方面，我們也能強烈的感覺到全世界越來越多的人意識到中共的邪惡本質，反共力量正以核當量的勢頭集結，每一個正義力量都在為滅共第三道大門的打開做積極全方位的準備。最後，我們也希望有越來越多的國際媒體能看清大趨勢，在關鍵的時間點作出唯一的最正確的選擇，否則未來所有以魔鬼為伍的人都必將跌入萬劫不復的深淵，必將受到全世界正義力量的大審判。
 
-On this day in 1775, the Second Continental Congress established the Continental Army to fight for our Nation’s independence. In the 245 years since, the United States Army has helped defend our freedom all over the world and has made countless contributions to our Nation’s security and the American way of life. Today, we recognize the United States Army for its many achievements and pay tribute to all those who have served in America’s oldest military branch.
+## **突發：推特承認中共國使用近20萬個虛假水軍賬號影響美國政治，比俄羅斯水軍多150倍**
 
-1775年的今天,第二屆大陸會議成立了大陸軍,為我們國家的獨立而戰。 在此後的245年裡,美國陸軍説明在世界各地捍衛了我們的自由，併為我國的安全和美國的生活方式作出了無數貢獻。 今天,我們表彰美國陸軍的諸多成就,並向所有在美國最古老的軍種中服役的人致敬。
+**中共在推特上武裝了將近20萬個水軍賬號，用來傳播「國家關聯」的宣傳。而相比之下，被美國左翼稱作為川普而干預美國大選的俄羅斯政府，其推特上的水軍賬號數卻還不到1200個。**
 
-This year marks the 75th anniversary of the conclusion of World War II—a monumental struggle between the forces of freedom and tyranny. In both the European and Pacific Theaters, the United States Army was critical to the success of the Allied Forces. The historic triumph came at a somber price, as the Army bore the brunt of the fighting—and human cost—of our Nation’s contribution to victory in the war. As we celebrate the United States Army’s incredible accomplishments, we also pause to remember those Soldiers who laid down their lives to defend our freedom and protect their fellow Americans.
+在Mediaite報道了爆炸性新聞：水軍假賬號騷擾川普總統推特上的粉絲之後，本週四下午推特這則新聞就被迅速報道出來了。
 
-今年是第二次世界大戰結束75周年。那是一場自由與暴政力量之間的不朽鬥爭。 在歐洲和太平洋戰場上，美國陸軍對盟軍的成功至關重要。 歷史性的勝利是以沉痛的代價換來的，因為陸軍承擔了我們國家為戰爭勝利所做貢獻的主要的戰鬥和人力成本。 在我們慶祝美國陸軍令人難以置信的成就的同時，我們也停下來紀念那些為捍衛我們的自由和保護美國同胞而獻出生命的士兵們。
+推特將這些信息作為這篇題為「揭露幾個已被我們刪除的與政府有關聯的信息操控網絡」的報道的一部分進行了公佈。
 
-As our Nation continues to face the threat of the coronavirus pandemic, we acknowledge the important role the Army has played in the all-of-America response effort. The United States Army, Army National Guard, and Army Reserve Soldiers helped mount a nationwide response to this crisis that truly embodies their motto of “This We’ll Defend.” In New York, the United States Army Corps of Engineers created and converted alternate care facilities, providing extra space for thousands of patients. In Washington State, Army healthcare professionals deployed to provide medical support against the emergent virus. And, in Maryland, researchers with the United States Army Medical Research and Development Command have worked tirelessly to develop coronavirus countermeasures. From coast to coast, the incredible support of our Soldiers reminds us that no fighting force rivals that of the United States of America.
+該報告歸納了中共如何用兩種手段來鎖定推特用戶，並對其進行中共國洗腦宣傳：
 
-當我們的國家繼續面臨冠狀病毒大流行的威脅時,我們感謝陸軍在全美國的應對努力中發揮了重要作用。 美國陸軍、陸軍國民警衛隊和陸軍後備役説明發動了全國範圍內的危機應對行動，真正體現了他們的座右銘 “我們將捍衛”。 在紐約,美國陸軍工程兵部隊建立並改造了備用護理設施，為數千名患者提供了額外的空間。 在華盛頓州,陸軍醫護人員被派去提供醫療支援，以對抗新出現的病毒。 而在馬里蘭州，美國陸軍醫學研究與發展司令部的研究人員為開發冠狀病毒對策而不懈努力。 從東海岸到西海岸，我們的士兵所提供的令人難以置信的支援提醒著我們，沒有任何一支戰鬥力可以與美利堅合眾國的相媲美。
+1. 網絡核心由23,750個帳戶組成，例如：在推特上活躍度非常高的核心網賬戶；
 
-This year, we celebrate our brave Soldiers—active, guard, and reserve, past and present—who are willing to put themselves in harm’s way and make the ultimate sacrifice for our country during times of both war and peace. As Commander in Chief, I join a grateful Nation in wishing the United States Army a happy 245th birthday.
+2. 大約有150,000個帳戶被設計用來強化推廣核心賬戶發表的內容，好比說：擴音器。基於我們之前披露信息研究人員給予的反饋是，我們需要更好地完善披露流程從而能夠有效率的調查上面這些核心賬戶的行動。因此我們尚未在公共檔案中納入150,000個類似於放大器功能的帳戶。
+![This image has an empty alt attribute; its file name is ef0ab3e3-8102-4124-bf1c-189153d625cf.jpg](https://spark.adobe.com/page/9haTgKkFLzNvB/images/ef0ab3e3-8102-4124-bf1c-189153d625cf.jpg?asset_id=e3689b63-b04c-43c3-947d-c44a2bd869e5&amp;img_etag=%22ca74216b787619fb1485a260d8f0ad81%22&amp;size=2560)
+推特把這些賬戶所從事的活動形容為：「參與一系列具有操縱性和配合性的活動」，同時「傳播對中共國有利的地緣政治言論，並與此同時對香港的政治運動持續做片面誤導。」
 
-今年,我們為我們勇敢的士兵們慶祝。無論是現役的、後備的和預備役的,過去的和現在的，他們在戰爭與和平時期都願意讓自己置身於危險之中,為我們的國家做出最大的犧牲。 作為總司令，我和全國人民一起祝願美國陸軍245歲生日快樂。
+2016年習近平對於中共宣傳部門工作指示是——「讀者在哪裡，受眾在哪裡，宣傳報道的觸角就要伸向哪裡。」—這一目標他們確實做到了。
 
-白宮原文：[Presidential Message on the 245th Birthday of the United States Army](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-army/)
+這個報道也打臉了2016年美國左翼的已被揭穿的關於指控俄羅斯利用機器人在社交媒體上散步信息，操控選民支持川普的這一不實言論。同時還證明瞭：美國民主共和兩黨的領導人因將注意力集中在俄羅斯而全然忽視中共國崛起所帶來的巨大威脅。
 
-*翻譯：【恆久忍耐】校對：【Michelle】*
+該報告指出，俄羅斯政府潛伏在推特上的賬戶總數被限制在1152個，而且相關媒體是用來「宣傳統一俄羅斯黨和攻擊打壓政治異見人士」
 
-*戰友之家玫瑰園小隊出品*
+換句話說，中共在推特上的水軍數量是被說成用於兜售親特朗普內容的俄羅斯水軍數量的150倍。
+
+今年3月，《國家脈動》獨家披露了中共國「5毛」或「 50美分」水軍的諸多細節。
+
+在那個時候，我們就揭露了以下信息：
+
+自北京當局就新冠病毒開始公關行動以來，中國的機器人水軍就第一時間一窩蜂的進入了推特。
+
+特別是在過去幾天中，很多機器人一樣的新賬戶如洪水一樣大量湧入推特，這些賬戶即沒有任何粉絲也沒有粉任何人，他們在推特上威脅攻擊美國和總統川普以及許多要求中共必須回答關於新冠病毒棘手問題的人士。
+
+推特最新披露的這個信息就驗證了3月份《國家脈動》獨家披露報道的準確性。然而，（即便這個事如此之大）你很可能不會聽到任何一家知名媒體會對此進行任何報道。
+
+這是為什麼呢？
+
+原因很簡單：中共與反對黨候選人喬·拜登有直接利益勾兌。
+
+[原文鏈接](https://thenationalpulse.com/news/twitter-ccp-200k-russia/)
+
+#### [**編輯：【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/9haTgKkFLzNvB/)
+
+
 
 0

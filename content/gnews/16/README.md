@@ -1,69 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國網絡的威脅: 對中共國國有（通信）公司的疏忽
-`2020-06-14 23:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234246/)
+## 中共黨媒高官威脅與安提法領袖舉行會議
+`2020-06-15 00:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234280/)
 
-*消息來源：present danger china 《當前危機委員會-中國》*
+*文章來源：The National Pulse.*
 
-*翻譯/簡評：TCC*
+*原文作者：娜塔莉·溫特斯 （Natalie Winters） 2020年6月9日*
 
-前一陣子，美國網絡遭受攻擊，尤其在關於新冠病毒疫苗研究的機構與組織。這篇（6/10）當委會發的文章明白指出，今日中共能對美國網絡造成威脅，主要是最近20年來對中共國國有通信公司監督上的失職。原來所設置的監督小組是一個臨時性而非正式編制的小組，這表明完全不注重網路安全，才導致今日國家安全受到威脅。還好亡羊補牢，川普總統在4月發佈了一項行政命令，由司法部長領導的一個團隊，以嚴格的審查程序來取代。這新小組的任務是審查那些申請在美國運營的任何外國電信，並審查存在網絡安全或國家安全風險的任何現有許可證。希望在司法部與聯邦通訊委員會嚴格的監督下，能確保網絡安全。只有美國自身的網絡安全得以保障，才可以幫助盟國脫離中共華為5G的陰影。
+*翻譯/簡評：1818*
 
-#### **美國參議院**
+*PR: left gun*
 
-### **美國網絡的威脅: 對中共國國有（通信）公司的疏忽**
+**簡評：**
 
-參議院小組說，美國電信業數十年來未能阻止中共國的間諜活動
+將香港和平抗議行動與美國現今的Antifa暴力及騷亂行動相提並論的人不是蠢就是壞。香港民眾一年多來始終以自發和平上街抗議的方式表達自己爭取自由的五大訴求，哪怕遇到中共黑警暴力鎮壓，付出慘痛的流血及生命代價，也未曾失去理智訴諸暴力抗爭。反觀從明尼蘇達州開始席捲美國，高舉Black Live Matter反歧視正義大旗的Antifa暴動，行的卻是打砸搶燒等犯罪之事，背後嚴密的組織運作，極具煽動性的宣傳及利誘手段無不體現與中共體制一致的假，騙，黑本質。
 
-分析：參議院網絡安全202小組表示，美國電信業數十年來未能阻止中共國間諜活動
+本文一陣見血地指出像陳衛華這類的中共黨媒大外宣及其附屬的偽民運人士一貫的宣傳伎倆，不外乎偷換概念，避重就輕，否認事實，顛倒邏輯，目的就在於混淆視聽，轉移重點，讓民眾分不清哪些是真哪些是假，在他們合力築起的外宣「九層妖塔」下迷失，從而更加順從地被蒙蔽，被欺騙，被利用，淪為被剝削的韭菜。香港抗議和美國暴動，再次給各國政府敲響警鐘：中共不除，人類將失去信仰，泯滅人性；中共不除，不論是香港，台灣，大陸還是美國，歐洲，世界上將不會再有安生淨土！如新聯邦中國的宣言中所說：滅共是人類正義的需要！
 
-華盛頓郵報|約瑟夫·馬克（Joseph Marks）和托尼亞·萊利2020年6月9日
-![This image has an empty alt attribute; its file name is 16d00a8a-6b9e-4f28-b778-f0db359f4ffb.png](https://spark.adobe.com/page/95CzJwJGmGFCN/images/16d00a8a-6b9e-4f28-b778-f0db359f4ffb.png?asset_id=5e4292e5-02d1-4366-ae1e-8b00acff3b5f&amp;img_etag=%228285837e07a336442b11c87287ebbf1f%22&amp;size=1024)
-參議院今天早上發佈的一份報告表示，聯邦政府在這將近二十年里未能適當地防範在美國營運的中共國國有電信公司所造成的網絡安全風險。
+## **中共黨媒高官威脅要與安提法（ANTIFA）和黑人的命也重要（BLM）的領袖舉行會議**
+![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
+中共國官方新聞機構《中國日報》歐洲分部部長提議，中國共產黨（CCP）領導人邀請導致全美騷亂和暴動的極左武裝組織”安提法”（Antifa）到北京召開會議，或駐美的中共官員在華盛頓會見該組織。
 
-參議院國土安全委員會調查小組的報告顯示，這導致中共國最大的四家此類型電信公司能夠幾乎不受到監督地在這裡運營子公司。
+以上評論來自川普的[長期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批評家陳衛華，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大學新聞學及[喬治·索羅斯資助](https://worldpressinstitute.org/about-us/sponsors/)的世界新聞研究所的研究員，同時他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不僅是因為他不斷地輸出[政權大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，還因為《中國日報》是中共自己[宣傳部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所擁有及經營的。
+![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
+對喬治·弗洛伊德之死的和平抗議，[在某些情況下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa組織的介入迅速演變為暴亂。該組織在2020年前採取有據可查的侵略性策略，促使川普總統[宣佈](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)將該組織定義為恐怖組織。安提法AntiFa是一個[國際性](https://thenationalpulse.com/commentary/22135/)和[嚴密的](https://intlantifadefence.wordpress.com/)組織，因其暴力行動和[意圖](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)從已被定義的伊斯蘭恐怖組織，包括ISIS和基地組織採購武器而被聯邦調查局所盯緊。AntiFa被稱為左翼無政府主義組織，但許多成員也同時與共產主義有[來往](https://time.com/5437204/antifa-history-comic/)，也就是中國共產黨（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意識形態。
+![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
+川普
 
-報告發現，這可能允許他們（這些公司）經由電話和互聯網交流輸往中共國來幫助其政府監視來自美國公司的大量數據。
+美國將把ANTIFA指定為恐怖主義組織。
 
-該報告是美國國會及其他部門進行的一系列審查中的最新報告，指出美國在對中共國崛起成為全球大國帶來的網絡安全威脅所做的準備是劣質且無組織性的。在2019年的一份報告中，由參議員羅伯·波特曼（俄亥俄州共和黨議員）和托馬斯·卡珀（特拉華州民主黨議員）領導的小組委員會抨擊包括Equifax和萬豪在內的美國公司未能自我保護免於受大量中共國數據盜竊者的侵害。
+中共官方媒體賬號——[包括陳衛華](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒體賬號——正在為該組織造成的混亂而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
 
-特別是在電信領域，美國公司在很大程度上放棄了構建可運行下一代超高速電信網絡（稱為5G）硬件的工作。結果，過去兩年來，美國官員一直在進行「後衛」行動來試圖阻止中共國的華為獨佔全球市場。
+陳衛華提出這一想法是為了回應他聲稱的一幅圖片，圖片中一位”美國駐香港外交官””被拍到正會見香港抗議領袖”，這與中共官方媒體和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，讓爭取自由的香港人的訴求失去合法性。
+![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
+陳衛華
 
-![This image has an empty alt attribute; its file name is ed99dad0-2c8a-427c-9eae-d19fe292cb88.jpg](https://spark.adobe.com/page/95CzJwJGmGFCN/images/ed99dad0-2c8a-427c-9eae-d19fe292cb88.jpg?asset_id=3d5a8b83-82ae-47ba-b809-a8c082d1cb3e&amp;img_etag=%22dffa04833b8f400fd2d7f0bed597625d%22&amp;size=2560)
+這真是尷尬。Julie Eadeh，美國駐港外交官員被拍到和香港抗議領袖見面。如果中共外交官和「佔據華爾街「，」黑人的命也重要「或者」川普下台「的抗議者會面的話，很難想象美國是什麼反應。
 
-這未能充分審查中共國電信帶來的國家安全風險的主要原因是（採取）「非正式」和「臨時性」的作法。
+Du Bois和Huey Newton這樣的黑人領袖曾在1950和1960年代末到訪中國。如果中國如今邀請Black Live Matter（黑人的命也是命）運動或者安提法Antifa領袖到北京，或者中共駐美官員在抗議進行中時在華盛頓特區會見他們，就像上圖美國官員所做的那樣。想象一下華盛頓（政府）會有什麼樣的反應。
 
-這個過程由司法，國防和國土安全部的少數人負責，為聯邦通信委員會（FCC）提供建議。非正式小組被稱為「 電信小組」，通常進行長達數年的安全審查，聯邦通訊委員會專員將其描述為一個「無法解決的黑洞」。
+他建議的行為不僅與川普總統明確否認該組織的行為相矛盾，而且還給一個即將成為[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖組織正名。
 
-當評論完成後，這小組也很少進行跟進。例如，該組織制定了安全協議，以限制兩家中共國有電信公司在美國的業務（2007年的美國中國電信美洲公司和2009年的通信網）的風險，但並沒有確保兩家公司遵守這些協議。
+- [About WordPress](https://gnews.org/wp-admin/about.php)
+- [Gnews](https://gnews.org/zh-hans/)
+- [8585 Comments in moderation](https://gnews.org/wp-admin/edit-comments.php)
+- [New](https://gnews.org/wp-admin/post-new.php)
+- [View Post](https://gnews.org/zh-hans/232261/)
+- SEOEnter a focus keyphrase to calculate the SEO score
+- ![](https://gnews.org/wp-content/uploads/flags/zh.png) 中文简体
+- [Howdy, 喜馬拉雅戰鷹團 Himalaya Hawk Squad](https://gnews.org/wp-admin/profile.php)
 
-該協議授權「 電信小組」對公司在美國的業務進行檢查，但是該組織在過去十多年中僅對每家公司進行了兩次此類檢查。這些檢查都在2017年之後進行的。
 
-該報告指出，「 電信小組」從未與另一家中共國公司中國聯通美洲公司（China Unicom Americas）簽訂安全協議，因此「沒有監督機構來評估該公司在美國的業務」。
+[Log Out](https://gnews.org/press_admin?action=logout&amp;_wpnonce=4492455ac2)
 
-該小組最後終於在2019年建議聯邦通訊委員會禁止另一家中共國主要電信公司中國移動美洲公司的運營。但這是在七年的調查後，「 電信小組」首次提出這樣的建議。
+# Edit Post
 
-專家小組在上個月同樣建議禁用中國電信，理由是擔心其（中共）國有的母公司會構成中共國間諜活動不可接受的風險。
+Switch to draft[Preview(opens in a new tab)](https://gnews.org/zh-hans/232261/?preview=true&amp;_thumbnail_id=232313)Update▲ Add title
 
-參議院的報告是在聯邦政府已經開始清理其內部後發佈的。
+*文章來源：The National Pulse.*
 
-川普總統在4月發佈了一項行政命令，以由司法部長領導更為嚴格的審查程序來取代這非正式的「 電信小組」系統。這新小組的任務是審查申請在美國運營的任何外國電信，並審查存在網絡安全或國家安全風險的任何現有許可證。
+*By Natalie Winters June 09, 2020*
 
-美國聯邦通信委員會（FCC）還在4月致信中共國電信美洲公司，中國聯通美洲公司，通信網和另一家中共國公司Pacific Networks，要求他們解釋為什麼不應該因與中國移動相同的間諜問題為理由而被禁止。
+*原文作者：娜塔莉·温特斯 2020年6月9日*
 
-美國聯邦通信委員會主席拜仁（Ajit Pai）說，這封信反映了該委員會「對這些公司對中國政府的剝削，影響和控制的脆弱性的深切關注。」
+*翻译/简评：1818*
 
-他說：「當涉及到網絡安全性時，我們不能冒任何風險，並聽天由命。」
+*PR: left gun*
 
-該份報告的建議主要側重於為新的審核流程提供支持，並確保審核迅速進行。
+**简评：**
 
-該小組希望國會授權政府定期審查所有外國電信許可證。它還希望，如果許可證出於國家安全原因未通過要求，則會將其自動過期。現在是，除非聯邦通信委員會撤銷許可證，否則許可證將永遠有效地存在。
+将香港和平抗议行动与美国现今的Antifa暴力及骚乱行动相提并论的人不是蠢就是坏。香港民众一年多来始终以自发和平上街抗议的方式表达自己争取自由的五大诉求，哪怕遇到中共黑警暴力镇压，付出惨痛的流血及生命代价，也未曾失去理智诉诸暴力抗争。反观从明尼苏达州开始席卷美国，高举Black Live Matter反歧视正义大旗的Antifa暴动，行的却是打砸抢烧等犯罪之事，背后严密的组织运作，极具煽动性的宣传及利诱手段无不体现与中共体制一致的假，骗，黑本质。
 
-儘管該報告未提供特定時間表，議員們還希望國會為審查的持續時間設定明確的截止日期。
+本文一阵见血地指出像陈卫华这类的中共党媒大外宣及其附属的伪民运人士一贯的宣传伎俩，不外乎偷换概念，避重就轻，否认事实，颠倒逻辑，目的就在于混淆视听，转移重点，让民众分不清哪些是真哪些是假，在他们合力筑起的外宣“九层妖塔”下迷失，从而更加顺从地被蒙蔽，被欺骗，被利用，沦为被剥削的韭菜。香港抗议和美国暴动，再次给各国政府敲响警钟：中共不除，人类将失去信仰，泯灭人性；中共不除，不论是香港，台湾，大陆还是美国，欧洲，世界上将不会再有安生净土！如新联邦中国的宣言中所说：灭共是人类正义的需要！
 
-[原文鏈接](https://presentdangerchina.org/2020/06/senate-panel-says-u-s-telecoms-failed-for-decades-to-prevent-chinese-spying/)
+**原文：**
 
-#### [**編輯：【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/95CzJwJGmGFCN/)
+### **中共党媒高官威胁要与安提法（ANTIFA）和黑人的命也重要（BLM）的领袖举行会议**
+![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
+中共国官方新闻机构《中国日报》欧洲分部部长提议，中国共产党（CCP）领导人邀请导致全美骚乱和暴动的极左武装组织”安提法”（Antifa）到北京召开会议，或驻美的中共官员在华盛顿会见该组织。
+
+以上评论来自川普的[长期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批评家陈卫华，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大学新闻学及[乔治·索罗斯资助](https://worldpressinstitute.org/about-us/sponsors/)的世界新闻研究所的研究员，同时他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不仅是因为他不断地输出[政权大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，还因为《中国日报》是中共自己[宣传部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所拥有及经营的。
+![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
+对乔治·弗洛伊德之死的和平抗议，[在某些情况下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa组织的介入迅速演变为暴乱。该组织在2020年前采取有据可查的侵略性策略，促使川普总统[宣布](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)将该组织定义为恐怖组织。安提法AntiFa是一个[国际性](https://thenationalpulse.com/commentary/22135/)和[严密的](https://intlantifadefence.wordpress.com/)组织，因其暴力行动和[意图](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)从已被定义的伊斯兰恐怖组织，包括ISIS和基地组织采购武器而被联邦调查局所盯紧。AntiFa被称为左翼无政府主义组织，但许多成员也同时与共产主义有[来往](https://time.com/5437204/antifa-history-comic/)，也就是中国共产党（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意识形态。
+![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
+川普
+
+美国将把ANTIFA指定为恐怖主义组织。
+
+中共官方媒体账号——[包括陈卫华](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒体账号——正在为该组织造成的混乱而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
+
+陈卫华提出这一想法是为了回应他声称的一幅图片，图片中一位”美国驻香港外交官””被拍到正会见香港抗议领袖”，这与中共官方媒体和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，让争取自由的香港人的诉求失去合法性。
+![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
+陈卫华
+
+这真是尴尬。Julie Eadeh，美国驻港外交官员被拍到和香港抗议领袖见面。如果中共外交官和“占据华尔街“，”黑人的命也重要“或者”川普下台“的抗议者会面的话，很难想象美国是什么反应。
+
+Du Bois和Huey Newton这样的黑人领袖曾在1950和1960年代末到访中国。如果中国如今邀请Black Live Matter（黑人的命也是命）运动或者安提法Antifa领袖到北京，或者中共驻美官员在抗议进行中时在华盛顿特区会见他们，就像上图美国官员所做的那样。想象一下华盛顿（政府）会有什么样的反应。
+
+他建议的行为不仅与川普总统明确否认该组织的行为相矛盾，而且还给一个即将成为[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖组织正名。
+![This image has an empty alt attribute; its file name is 5d067fd7-5c0f-48df-b73c-7a68fb76154a.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5d067fd7-5c0f-48df-b73c-7a68fb76154a.png?asset_id=857d73ba-4ea2-4e2e-958f-adf3d48460b4&amp;img_etag=%2263148ef78f89db1ab5ba3d215610dc5b%22&amp;size=2560)
+傑克·坡索比克
+
+引用陳衛華的推特：中共黨媒建議中共邀請安提法Antifa領袖去北京
+
+雖然安提法AntiFa表面上會批評中共的[種族主義](https://thediplomat.com/2020/04/racism-is-alive-and-well-in-china/)和[糟糕的](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html)人權現狀，但該組織在意圖搞垮美國這個問題上與中共政權是一丘之貉。
+
+[文章鏈接](https://thenationalpulse.com/news/antifa-ccp-beijing-meeting/)
+
+#### [**編輯****【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/ha56qwdUmq8Va/)
 
 0
