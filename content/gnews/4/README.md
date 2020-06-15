@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府正在推進海洋勘探工作（中英文對照）
-`2020-06-14 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/233994/)
+## 為什麼斯坦福報告對於滅共非常重要
+`2020-06-14 16:22 GM06` [轉載自GNews](https://gnews.org/zh-hant/234031/)
 
-**The Trump Administration Is Advancing Ocean Exploration**
+作者：立武
 
-**川普政府正在推進海洋勘探工作**
+近日，斯坦福發佈的一篇報告揭露中共在推特上利用大量的五毛水軍對目標話題進行攻擊的活動，這些目標話題主要包括**香港、郭文貴先生、中共病毒與臺灣，都與爆料革命有著非常緊密的關係。**
 
-America’s oceans, coastal waters, and Great Lakes are national treasures, providing beauty and recreation, along with valuable resources that enhance our health, security, and economic prosperity. America’s oceans and coastlines contribute greatly to America’s economy, supporting 154,000 ocean-dependent businesses, $373 billion of economic activity annually, 2.3 million jobs, and $162 billion in wages.
+可以看出，爆料革命是中共最為恐懼的力量之一，不惜干擾西方的言論自由，對爆料革命進行人身攻擊、抹黑與造謠，**通過與各個所謂的民運大****V****配合，製造虛假民意，影響沒有接觸或剛接觸爆料革命的翻牆者的價值判斷。**
 
-美國的海洋、沿海水域和五大湖是國家寶藏，這一切給予人們美麗景緻和娛樂場地，還提供了增進我們健康、安全和經濟繁榮的寶貴資源。美國的海洋和海岸線地區為美國經濟做出了巨大貢獻，支撐著15.4萬家以海洋為支柱的企業、年均3730億美元的經濟活動、以及總值達1620億美元薪金的230萬個工作崗位。
+在對這些中共五毛推特帳號的統計中，有大量帳號創建於2019年10月，每天創建的帳號可以高達300多個。當時正值香港民主抗爭運動的關鍵期，爆料革命以及各大自媒體不斷地進行第一時間的現場報導，**中共在忌憚對香港支持民意的形成的同時，也恐懼郭文貴先生與班農先生在香港議題上的合作對美國對共政策的影響，動用大量水軍對郭文貴先生、班農先生和爆料革命戰友進行人身攻擊。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161150/1-103.png)
+同樣在2020年1月3日，對郭文貴先生的話題攻擊到達峰值，**在****1****月****2****日郭文貴先生在直播中曾提到“非典（中共病毒）可能作為封港的藉口”，同時在連續幾天的直播也提到了臺灣墜機事件以及香港問題。**
 
-Advancing understanding of our oceans and coastlines has been a top priority for President Trump, particularly as it relates to further mapping the United States Exclusive Economic Zone (US EEZ) –an area surrounding the United States that is larger than the areas of all fifty states combined. The US EEZ contains a vast amount of natural resources, such as critical minerals, energy, and marine-derived pharmaceutical compounds, and is home to countless ecosystems on which the health and productivity of the oceans depend.
+同樣存在話題交叉的是在2020年中共病毒與郭文貴先生以及爆料革命在中共病毒上的爆料，**中共水軍大肆攻擊這些話題恰恰印證了爆料革命在中共病毒的揭露上的正確性，特別是在路德時評爆出中共病毒最有價值的真實資訊的時候，中共開始動用水軍攻擊路德先生。在此前，中共似乎為了淡化中共病毒的影響，降低了中共水軍在這一話題上的熱度。**
 
-提高對海洋和海岸線地區的認知一直是川普總統的優先任務，特別是因為這與進一步繪製美國專屬經濟區（U.S. EEZ）有關。該區是個環繞美國，比所有50個州的面積加起來還要大的區域。美國專屬經濟區包含大量的自然資源，如緊要礦物、能源，和海洋衍生物類的藥品複合成分，也是海洋的自身健康和生產力所依賴的無數個生態系統的所在地。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161221/2-58.png)
 
-Only 40 percent of the EEZ has been mapped, and considerably less has been fully explored and studied to identify the natural resources that could benefit our Nation. The undiscovered potential is priceless. Knowledge of our oceans will support advancements in tourism and recreation, maritime commerce , healthy and sustainable fisheries, improved understanding of ocean characteristics and marine life, resilient coastal communities, and other national interests. Recognizing the importance of this critical resource, President Trump has taken bold action to dramatically increase our understanding of the marine environment to support the conservation, management, and balanced use of our extraordinary ocean resources.
+隨後，在三月全球已經爆發中共病毒危機的情況下，中共轉而把話題轉向正面積極的一面，吹噓中共在控制疫情上的成就以及對中共病毒真實資訊的誤。
 
-只有40%的EEZ已被測繪，而只有比這還少之又少的區域才已被我們為了辨識何種自然資源可能造福於國家而充分勘探和研究，那些尚未被發現的潛力是無價的。我們對海洋的認知將有益於推進很多層面的發展，諸如旅遊和娛樂業、海洋商務貿易，健康和可持續型的漁業，對海洋特徵和海洋生物的更多了解，抗逆境適應力強的沿海社區，以及其他許多國家利益。因為認識到這一緊要資源的重要性，為大幅度增加我們對海洋環境 的認知，川普總統已經採取了有膽略的行動，用以支持對我們廣博海洋資源的保護、管理和平衡利用。
+不管是在香港話題上還是在中共病毒上，這些中共最為忌憚的話題在爆料革命報導出來後，遭受到了中共水軍的猛烈攻擊，**由此可以看出中共的最怕的正是爆料革命最為在意的，同時這也是美國與中共較量的抓手。**
 
-In November of last year, President Trump signed a Presidential Memorandum directing the Federal government to develop a national strategy to map and explore the US EEZ, a strategy to map the coast of Alaska, and recommendations to facilitate permitting for ocean exploration and research. Today , as Co-Chairs of the Ocean Policy Committee, we are proud to release strategies and recommendations requested by the President that will guide the national ocean mapping and exploration enterprise, unleashing a new era of knowledge and innovation and ensuring continued US global leadership in ocean research.
+在此前，推特關閉了大約17萬4千個中共五毛帳號，這些帳號包括2萬多個核心帳號，和點贊轉發這些帳號推文的非核心帳號。同時在3月趙立堅發佈中共病毒可能來自美軍的推文也引起了爭議。
 
-去年11月，川普總統簽署了一份總統備忘錄，指示聯邦政府研製一項繪製和勘探美國專屬經濟區的國家戰略，包含繪製阿拉斯加海岸地區，以及要求聯邦政府對促進海洋勘探和研究許可批准方面提出建議。今天，作為海洋政策委員會的共同主席，我們自豪地發布這些經總統要求所製定的戰略和建議。這將指導國家海洋測繪和勘探事業，開創認知和創新的新時代，並確保美國在海洋研究方面持續保持全球領先地位。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161315/3-38.png)
 
-The National Strategy for Ocean Mapping, Exploration, and Characterization provides a roadmap to coordinate Federal action and further our understanding of the US EEZ. This roadmap will advance key goals, including completing mapping the deep water by 2030 and the nearshore waters by 2040 and exploring and characterizing priority areas of the US EEZ. It also will aid in developing and maturing new and emerging science and technologies, and building public and private partnerships to support these activities.
+推特作為全球訪問量最大的十大網站之一，這些報告分析勢必引起西方社會的警覺和震動。此次斯坦福報告之所以重要且影響巨大，**是因為在特朗普入主白宮和執政期間，推特一直是備受爭議和處在特朗普總統與****FAKE NEWS****戰爭的漩渦中心，**包括之前所謂的俄羅斯干預美國大選、通俄門調查以及特朗普總統對推特在內的社交媒體以及FAKE NEWS的批評。
 
-“國家海洋測繪勘探和特徵歸類“戰略提供了一個協調聯邦層面的行動，並進一步了解美國專屬經濟區的路線圖。該路線圖將推動實現我們的關鍵目標，包括在2030年之前完成深海的測繪，在2040年之前完成近岸水域的測繪，以及對U.S. EEZ優先區域進行探索和特徵歸類。它還將對那些新的和新興科學技術，在開發和護助到成熟期方面給予幫助，並輔助建立公共和私人機構的合作關係用以支持這些行動。
+**這些問題的矛頭最終都會指向中共對於美國輿論的影響，再次證明****FAKE NEWS****的真實存在和美國最主要的敵人是中共而不是俄羅斯。**
 
-The Alaska Coastal Mapping Strategy, developed by the National Oceanic and Atmospheric Administration, the Alaska Mapping Executive Committee, and the State of Alaska, advances the modernization of ocean and coastal maps. Because Alaska lacks current mapping data, this work is critical to a state that has a coastline longer than all other states’ coastlines combined. With an economy closely linked to coastal and ocean waters, accurate, up-to-date mapping will support economic growth, resource management, and the safety and security of Alaska’s coastal residents.
+不只是斯坦福報告，**紐約時報、以色列資料公司NEXT DIM、網路分析公司GRAPHIKA、非盈利新聞編輯部PROPUBLICA、義大利行銷公司ALKEMY等等都對中共利用推特進行大外宣活動進行了分析。**
 
-“阿拉斯加沿海測繪戰略” 是由國家海洋和大氣管理局、阿拉斯加測繪執行委員會，以及阿拉斯加州聯合製定，它推進了海洋和沿海地圖的現代化。由於阿拉斯加缺乏即時最新的測繪數據，而這項工作對於一個海岸線比其他所有州的海岸線加起來還要長的州來說尤為重要。因為它的經濟與沿海和海洋水域緊密相關，準確而即時最新的測繪數據才能對經濟增長、資源管理以及阿拉斯加沿海居民的安全和安保 提供有效支持。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161358/4-34.png)
 
-Ocean and coastal exploration, mapping, and research activities frequently require multiple environmental reviews, consultations, permits, and other authorizations under Federal laws and regulations. In order to reduce duplication, increase coordination across Federal agencies, save taxpayer dollars, eliminate waste, and protect marine resources, President Trump directed the Ocean Policy Committee to recommend actions that increase the efficiency of the permitting process for ocean exploration activities. The Recommendations for Increasing the Efficiency of Permitting for Ocean Exploration, Mapping, and Research Activities identify opportunities to promote clarity and consistency in the Federal permitting processes, examine approaches to increase efficiency, and evaluate ways in which new and emerging science and technology can streamline the permitting process.
+之前的美國暴亂已經轉移了美國滅共的部分精力，隨著特朗普政府成員不斷地發聲、各國對於中共的聲討以及包括斯坦福報告的一系列事件，**都將再次把美國的注意力轉移到滅共上來。** 斯坦福報告再次印證了爆料革命的重要性和真實性，印證了中共對於香港話題和中共病毒話題的恐懼，也再次印證了特朗普總統對於FAKE NEWS的定義，**可以說，斯坦福報告成為了幫助川普總統滅共有力的一槍。**
 
-海洋和沿海勘探、測繪和研究活動頻繁地需要依照聯邦法律和法規，進行多種環境評估，諮詢，許可證獲取，以及其他授權。為了減少重複工作，加強聯邦機構之間的協調，節約納稅人的錢，消除浪費，保護海洋資源，川普總統指示海洋政策委員會要對提高海洋勘探活動的許可程序的效率提出建議。此《提高海洋勘探測繪和研究活動許可效率的建議》確認了以下需改進的機會，包括促進聯邦許可獲准程序的清晰度和一致性， 查驗可提高效率的途徑，並評估對新的和新興科學技術許可證獲准可以標準流程化方法。
-
-June is National Ocean Month, and under President Trump’s leadership, high priority is placed on advancing our knowledge of America’s unexplored oceans and coastlines. Through increased mapping, exploration, and efficient permitting, the United States is poised to harness cutting-edge science, new technologies, and partnerships that will benefit our economy, enhance national security, and promote conservation and stewardship of our oceans.
-
-6月是美國國家海洋月，在川普總統的領導下，我們對提高在美國的未開發海洋和海岸線區域的認知給予了優先級別。通過在測繪、勘探和許可獲准效率上的增進，美國已準備就緒，並駕馭著我們的尖端科學、新技術和各種合作關係，從而將增進我們的經濟，加強國家安保，並促進對海洋的保護和對海洋的管理盡職盡責。
-
-[閱讀白宮原文](https://www.whitehouse.gov/articles/the-trump-administration-is-advancing-ocean-exploration/)
-
-*翻譯: 【OnePunchD】校對：【RD16】*
-
-*戰友之家玫瑰園小隊出品*
+(文章內容僅代表作者觀點)
 
 0
