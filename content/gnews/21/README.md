@@ -1,113 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共黨媒高官威脅與安提法領袖舉行會議
-`2020-06-15 00:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234280/)
+## 華爾街巨頭為何對中共俯首帖耳
+`2020-06-15 00:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/234330/)
 
-*文章來源：The National Pulse.*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15003315/wallstreet.jpg)*圖片來源：*Getty Images/iStock
+來自悉尼先驅晨報的報導-2018年11月，曾密切參與特朗普總統與北京貿易戰的白宮貿易顧問彼得·納瓦羅（Peter Navarro）對他所稱的華爾街“全球主義億萬富翁”發起了猛烈抨擊。他說，華爾街那些銀行界和基金經理人自作主張和中共合作，給白宮施壓，破壞美國的貿易策略，屈服於北京方面的壓力。隨後，納瓦羅繼續指控那些北京控制的代理人們在華盛頓開展了一系列影響美國政治的活動。
 
-*原文作者：娜塔莉·溫特斯 （Natalie Winters） 2020年6月9日*
+這是很強力的控訴，那麼依據呢？
 
-*翻譯/簡評：1818*
+**中共和華爾街的利益勾兌**
 
-*PR: left gun*
+北京和華爾街勾兌是有歷史的。當中共還是朱鎔基當總理的時候，1999年他訪問了美國，住在紐約華爾道夫酒店，與當時的商界領袖開展了數日的秘密對話。朱鎔基對於美國的企業巨頭有著強烈的興趣。
 
-**簡評：**
+美國的這些巨頭多年來影響了美國的對華政策。不管是克林頓(Clinton)時期布什(Bush)還是奧巴馬(Obama)時期，只要白宮要在貿易上對中共的保護主義採取強硬的策略，對貨幣操縱反擊或者懲罰知識產權盜竊相關事宜，這些華爾街巨頭就跳出來唱反調。中共能加入世貿組織和這些巨頭的影響有很大的關係。紐約時報曾報導，華爾街的巨頭們已經徹底淪為了北京的代理人，繼續在美國幫中共效力。
 
-將香港和平抗議行動與美國現今的Antifa暴力及騷亂行動相提並論的人不是蠢就是壞。香港民眾一年多來始終以自發和平上街抗議的方式表達自己爭取自由的五大訴求，哪怕遇到中共黑警暴力鎮壓，付出慘痛的流血及生命代價，也未曾失去理智訴諸暴力抗爭。反觀從明尼蘇達州開始席捲美國，高舉Black Live Matter反歧視正義大旗的Antifa暴動，行的卻是打砸搶燒等犯罪之事，背後嚴密的組織運作，極具煽動性的宣傳及利誘手段無不體現與中共體制一致的假，騙，黑本質。
+金融領域包括大銀行，對沖基金和投資公司在美國都有巨大的社會影響。這些組織是中共滲透美國精英的通道。對於中共來說，這些巨頭目標巨大，容易用利益收買。北京表示可以將巨大的金融市場開放，隨後，中共給他們控制的企業提供資金和策略支持，讓他們定向收購美國企業。用白宮官員的話來說，中共很會談生意。北京打開了大門，但是華爾街和北京的利益並不會長期保持一致。北京的長久打算是將上海打造成世界金融中心，取代紐約和倫敦。正如CCP蘇維埃先祖列寧(Lenin)所說：“資本家會賣給我們繩子，讓我們絞死他們。”
 
-本文一陣見血地指出像陳衛華這類的中共黨媒大外宣及其附屬的偽民運人士一貫的宣傳伎倆，不外乎偷換概念，避重就輕，否認事實，顛倒邏輯，目的就在於混淆視聽，轉移重點，讓民眾分不清哪些是真哪些是假，在他們合力築起的外宣「九層妖塔」下迷失，從而更加順從地被蒙蔽，被欺騙，被利用，淪為被剝削的韭菜。香港抗議和美國暴動，再次給各國政府敲響警鐘：中共不除，人類將失去信仰，泯滅人性；中共不除，不論是香港，台灣，大陸還是美國，歐洲，世界上將不會再有安生淨土！如新聯邦中國的宣言中所說：滅共是人類正義的需要！
+到2003年的時候，高盛已經成為了協助中共國企在國際擴展的主要負責機構。2006年，高盛的享利·保爾森(Henry Paulson)去了布什政府當財政部長。他任職期間去過中共國17次，而且人脈廣泛。保爾森要求總統讓他全權負責對華貿易關係處理，總統答應了。但是保爾森搞砸了。如果他在任時期做的很好，那麼今天的貿易戰就不會出現。保爾森不去正面迎擊中共的侵略，而是開展了一個中美經濟對話論壇，這當然讓北京方面處於優勢。同時，保爾森還是王岐山的好友，這使得他可以更加接近中共統治的核心圈層，但是，中共一直在利用他，需要他在美國的影響力給中共鋪路。2009年保爾森離職以後還給王岐山打電話，讓他出手救投行貝爾斯登公司。這家公司就是保爾森基金會建立的，目標是讓美國和中共合作維持世界秩序。
 
-## **中共黨媒高官威脅要與安提法（ANTIFA）和黑人的命也重要（BLM）的領袖舉行會議**
-![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
-中共國官方新聞機構《中國日報》歐洲分部部長提議，中國共產黨（CCP）領導人邀請導致全美騷亂和暴動的極左武裝組織”安提法”（Antifa）到北京召開會議，或駐美的中共官員在華盛頓會見該組織。
+約翰·桑頓(John Thornton)是另一位出自高盛的大佬，他帶領高盛進入中共國。當2003年他退休之後，隨即成為了清華大學全球領袖計劃的負責人。桑頓非常支持清華的獎學金計劃，該計劃也是川普總統的朋友、著名投資人史蒂芬·舒爾茨(Stephen Schwarzman)資助的項目。2006年，桑頓又投資了布魯金斯機構，成為了董事。該機構也是非常的親共。2008年，中共授予桑頓中國人民的老朋友的稱號。
 
-以上評論來自川普的[長期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批評家陳衛華，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大學新聞學及[喬治·索羅斯資助](https://worldpressinstitute.org/about-us/sponsors/)的世界新聞研究所的研究員，同時他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不僅是因為他不斷地輸出[政權大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，還因為《中國日報》是中共自己[宣傳部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所擁有及經營的。
-![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
-對喬治·弗洛伊德之死的和平抗議，[在某些情況下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa組織的介入迅速演變為暴亂。該組織在2020年前採取有據可查的侵略性策略，促使川普總統[宣佈](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)將該組織定義為恐怖組織。安提法AntiFa是一個[國際性](https://thenationalpulse.com/commentary/22135/)和[嚴密的](https://intlantifadefence.wordpress.com/)組織，因其暴力行動和[意圖](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)從已被定義的伊斯蘭恐怖組織，包括ISIS和基地組織採購武器而被聯邦調查局所盯緊。AntiFa被稱為左翼無政府主義組織，但許多成員也同時與共產主義有[來往](https://time.com/5437204/antifa-history-comic/)，也就是中國共產黨（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意識形態。
-![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
-川普
+當然，說到華爾街親共，就不得不提黑石公司。世界最大的資產管理公司，管理超過6.5萬億美元的資產。2019年的時候，該機構的首席執行官，拉里·芬克(Larry Fink)告訴投資人，他已經準備好了，只要中共打開金融市場，他就會立即衝進去搶占市場份額，力求迅速成為首批在中共國籌資的外資管理公司之一。
 
-美國將把ANTIFA指定為恐怖主義組織。
+當華爾街繼續與中共勾兌的時候，美國的製造業企業則表現相反，他們受夠了中共無節制的知識產權盜竊行為。2017年開始，很多製造業企業逐漸退出中共國，表示不再相信北京能兌現其承諾，中共假裝許諾自由化中共國經濟，並為美國公司提供一個公平競爭的環境。美國的商會發布了一份報告指出美國的金融界和製造業界對中共國截然不同的態度。川普政府對北京當局的強硬態度很大程度上來自於製造業界的支持。
 
-中共官方媒體賬號——[包括陳衛華](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒體賬號——正在為該組織造成的混亂而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
+**華爾街及其他西方金融中心與中共太子黨們**
 
-陳衛華提出這一想法是為了回應他聲稱的一幅圖片，圖片中一位”美國駐香港外交官””被拍到正會見香港抗議領袖”，這與中共官方媒體和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，讓爭取自由的香港人的訴求失去合法性。
-![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
-陳衛華
+中共不僅僅滿足於依賴華爾街巨頭來滲透美國。另外一條渠道就是通過中共的太子黨——一幫由中共現任或退休官員子女構成的群體。中信集團就是太子黨控制的一個機構，另外還有武器製造商保利集團等。中共國的太子黨們控制了絕大多數的國有企業。
 
-這真是尷尬。Julie Eadeh，美國駐港外交官員被拍到和香港抗議領袖見面。如果中共外交官和「佔據華爾街「，」黑人的命也重要「或者」川普下台「的抗議者會面的話，很難想象美國是什麼反應。
+對於想要進入中共國的西方對沖基金、保險公司、養老基金和銀行而言，在新興的、利潤豐厚的中共國資本市場開展業務的先決條件是與控制的著最大公司並主導CCP領導層的家族建立關係網，一條常見的、搞好關係的渠道就是安排中共太子黨進入歐美的常春藤名校，這些掌握國家公權力的中共後代不一定是合格的或聰明的，重要的是他們的社會關係。之後，送去華爾街實習，最後進入一些大的金融機構熟悉下金融工作。
 
-Du Bois和Huey Newton這樣的黑人領袖曾在1950和1960年代末到訪中國。如果中國如今邀請Black Live Matter（黑人的命也是命）運動或者安提法Antifa領袖到北京，或者中共駐美官員在抗議進行中時在華盛頓特區會見他們，就像上圖美國官員所做的那樣。想象一下華盛頓（政府）會有什麼樣的反應。
+當然，有些在華爾街工作的中國人是憑藉真才實學進入的。但是在他們隨後的工作中，卻經常扮演著金融掮客的角色。主要就是把太子黨成員弄進華爾街金融機構，從而建立深厚的人際網絡關係。這是一種收集情報和施加影響的手段，將情報人員和代理人置於美國權力的中心。對於中共而言，第一時間就可知曉美國的金融動作，也可以通過這些安插的人員對美國施加影響。大量的美國金融領域關鍵的信息比如個人數據都是這樣洩露到中共手裡，中共掌握了美國金融企業運行的所有關鍵要素。
 
-他建議的行為不僅與川普總統明確否認該組織的行為相矛盾，而且還給一個即將成為[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖組織正名。
-
-- [About WordPress](https://gnews.org/wp-admin/about.php)
-- [Gnews](https://gnews.org/zh-hans/)
-- [8585 Comments in moderation](https://gnews.org/wp-admin/edit-comments.php)
-- [New](https://gnews.org/wp-admin/post-new.php)
-- [View Post](https://gnews.org/zh-hans/232261/)
-- SEOEnter a focus keyphrase to calculate the SEO score
-- ![](https://gnews.org/wp-content/uploads/flags/zh.png) 中文简体
-- [Howdy, 喜馬拉雅戰鷹團 Himalaya Hawk Squad](https://gnews.org/wp-admin/profile.php)
+- 2016年，摩根大通就因為僱傭太子黨被美國證券交易監管機構罰款了2.64億美元。該行為違反了美國的《反海外腐敗》法案。
+- 中共的商務部長高虎成的兒子高爵就是走後門進入華爾街機構做分析師的。雖然他能力不足，但依舊依靠父親的關係疏導，在裁員時期保住了工作，並且，還在多家華爾街機構任職。
+- 歐洲的金融機構也是積極地僱傭太子黨們。2000年的時候，德意志銀行就採用這種策略進入中共國。當然又是王岐山做了很多這方面的安排。具體可以見郭文貴先生的爆料。
+- 蘇黎世的瑞士信貸僱傭了溫家寶的女兒。在機構內部，他們統計過每一個太子黨能帶來多少資金。當然，這些太子黨們並沒有優秀的工作能力，但是作為彌補，他們的家族背景可以給金融機構帶來足夠多的利潤。
+- 2019年5月，倫敦金融城市長阻止了台灣機構參與市長游行。金融城的大企業負責人在兩個月以前就到訪中共國，參與一帶一路研討會。隨後，負責人又說他們也會慶祝中共的70年建政。總而言之，他們非常的親共。2019年的稍晚些時候，中共的媒體又進駐了金融城。
 
 
-[Log Out](https://gnews.org/press_admin?action=logout&amp;_wpnonce=4492455ac2)
+倫敦的情況有一些不一樣。倫敦的也是歐洲的金融中心，長期對英國政治具有深刻的影響力。英國脫歐以後，該中心是否能保持絕對的優勢是一個問題。當然，對於中共而言，這就是滲透的好機會。
 
-# Edit Post
+如果說中共想完全控制倫敦金融界是誇張的，那麼究竟多少機構已經被中共把持了呢？
 
-Switch to draft[Preview(opens in a new tab)](https://gnews.org/zh-hans/232261/?preview=true&amp;_thumbnail_id=232313)Update▲ Add title
+評論：中共自加入WTO以後，便加速了滲透歐美的節奏。金融機構首當其衝。文章梳理了中共的具體做法，中共用流珉手段侵蝕西方資本、敗壞文明軼序，業已引起白宮的高度警覺。
 
-*文章來源：The National Pulse.*
+[原文鏈接](https://www.smh.com.au/world/asia/bulls-in-a-china-shop-how-beijing-cultivated-wall-street-s-giants-20200610-p5514i.html)
 
-*By Natalie Winters June 09, 2020*
-
-*原文作者：娜塔莉·温特斯 2020年6月9日*
-
-*翻译/简评：1818*
-
-*PR: left gun*
-
-**简评：**
-
-将香港和平抗议行动与美国现今的Antifa暴力及骚乱行动相提并论的人不是蠢就是坏。香港民众一年多来始终以自发和平上街抗议的方式表达自己争取自由的五大诉求，哪怕遇到中共黑警暴力镇压，付出惨痛的流血及生命代价，也未曾失去理智诉诸暴力抗争。反观从明尼苏达州开始席卷美国，高举Black Live Matter反歧视正义大旗的Antifa暴动，行的却是打砸抢烧等犯罪之事，背后严密的组织运作，极具煽动性的宣传及利诱手段无不体现与中共体制一致的假，骗，黑本质。
-
-本文一阵见血地指出像陈卫华这类的中共党媒大外宣及其附属的伪民运人士一贯的宣传伎俩，不外乎偷换概念，避重就轻，否认事实，颠倒逻辑，目的就在于混淆视听，转移重点，让民众分不清哪些是真哪些是假，在他们合力筑起的外宣“九层妖塔”下迷失，从而更加顺从地被蒙蔽，被欺骗，被利用，沦为被剥削的韭菜。香港抗议和美国暴动，再次给各国政府敲响警钟：中共不除，人类将失去信仰，泯灭人性；中共不除，不论是香港，台湾，大陆还是美国，欧洲，世界上将不会再有安生净土！如新联邦中国的宣言中所说：灭共是人类正义的需要！
-
-**原文：**
-
-### **中共党媒高官威胁要与安提法（ANTIFA）和黑人的命也重要（BLM）的领袖举行会议**
-![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
-中共国官方新闻机构《中国日报》欧洲分部部长提议，中国共产党（CCP）领导人邀请导致全美骚乱和暴动的极左武装组织”安提法”（Antifa）到北京召开会议，或驻美的中共官员在华盛顿会见该组织。
-
-以上评论来自川普的[长期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批评家陈卫华，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大学新闻学及[乔治·索罗斯资助](https://worldpressinstitute.org/about-us/sponsors/)的世界新闻研究所的研究员，同时他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不仅是因为他不断地输出[政权大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，还因为《中国日报》是中共自己[宣传部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所拥有及经营的。
-![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
-对乔治·弗洛伊德之死的和平抗议，[在某些情况下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa组织的介入迅速演变为暴乱。该组织在2020年前采取有据可查的侵略性策略，促使川普总统[宣布](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)将该组织定义为恐怖组织。安提法AntiFa是一个[国际性](https://thenationalpulse.com/commentary/22135/)和[严密的](https://intlantifadefence.wordpress.com/)组织，因其暴力行动和[意图](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)从已被定义的伊斯兰恐怖组织，包括ISIS和基地组织采购武器而被联邦调查局所盯紧。AntiFa被称为左翼无政府主义组织，但许多成员也同时与共产主义有[来往](https://time.com/5437204/antifa-history-comic/)，也就是中国共产党（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意识形态。
-![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
-川普
-
-美国将把ANTIFA指定为恐怖主义组织。
-
-中共官方媒体账号——[包括陈卫华](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒体账号——正在为该组织造成的混乱而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
-
-陈卫华提出这一想法是为了回应他声称的一幅图片，图片中一位”美国驻香港外交官””被拍到正会见香港抗议领袖”，这与中共官方媒体和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，让争取自由的香港人的诉求失去合法性。
-![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
-陈卫华
-
-这真是尴尬。Julie Eadeh，美国驻港外交官员被拍到和香港抗议领袖见面。如果中共外交官和“占据华尔街“，”黑人的命也重要“或者”川普下台“的抗议者会面的话，很难想象美国是什么反应。
-
-Du Bois和Huey Newton这样的黑人领袖曾在1950和1960年代末到访中国。如果中国如今邀请Black Live Matter（黑人的命也是命）运动或者安提法Antifa领袖到北京，或者中共驻美官员在抗议进行中时在华盛顿特区会见他们，就像上图美国官员所做的那样。想象一下华盛顿（政府）会有什么样的反应。
-
-他建议的行为不仅与川普总统明确否认该组织的行为相矛盾，而且还给一个即将成为[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖组织正名。
-![This image has an empty alt attribute; its file name is 5d067fd7-5c0f-48df-b73c-7a68fb76154a.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5d067fd7-5c0f-48df-b73c-7a68fb76154a.png?asset_id=857d73ba-4ea2-4e2e-958f-adf3d48460b4&amp;img_etag=%2263148ef78f89db1ab5ba3d215610dc5b%22&amp;size=2560)
-傑克·坡索比克
-
-引用陳衛華的推特：中共黨媒建議中共邀請安提法Antifa領袖去北京
-
-雖然安提法AntiFa表面上會批評中共的[種族主義](https://thediplomat.com/2020/04/racism-is-alive-and-well-in-china/)和[糟糕的](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html)人權現狀，但該組織在意圖搞垮美國這個問題上與中共政權是一丘之貉。
-
-[文章鏈接](https://thenationalpulse.com/news/antifa-ccp-beijing-meeting/)
-
-#### [**編輯****【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/ha56qwdUmq8Va/)
+翻譯報導：匿名
+校對整理：意翎
 
 0
