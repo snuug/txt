@@ -1,41 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 為什麼斯坦福報告對於滅共非常重要
-`2020-06-14 16:22 GM06` [轉載自GNews](https://gnews.org/zh-hant/234031/)
+## 川普總統在美國陸軍245週年生日之際的致辭（中英文對照）
+`2020-06-14 19:23 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/234066/)
 
-作者：立武
+**Presidential Message on the 245th Birthday of the United States Army**
 
-近日，斯坦福發佈的一篇報告揭露中共在推特上利用大量的五毛水軍對目標話題進行攻擊的活動，這些目標話題主要包括**香港、郭文貴先生、中共病毒與臺灣，都與爆料革命有著非常緊密的關係。**
+**在美國陸軍245周年生日之際的總統致辭**
 
-可以看出，爆料革命是中共最為恐懼的力量之一，不惜干擾西方的言論自由，對爆料革命進行人身攻擊、抹黑與造謠，**通過與各個所謂的民運大****V****配合，製造虛假民意，影響沒有接觸或剛接觸爆料革命的翻牆者的價值判斷。**
+NATIONAL SECURITY & DEFENSE
 
-在對這些中共五毛推特帳號的統計中，有大量帳號創建於2019年10月，每天創建的帳號可以高達300多個。當時正值香港民主抗爭運動的關鍵期，爆料革命以及各大自媒體不斷地進行第一時間的現場報導，**中共在忌憚對香港支持民意的形成的同時，也恐懼郭文貴先生與班農先生在香港議題上的合作對美國對共政策的影響，動用大量水軍對郭文貴先生、班農先生和爆料革命戰友進行人身攻擊。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161150/1-103.png)
-同樣在2020年1月3日，對郭文貴先生的話題攻擊到達峰值，**在****1****月****2****日郭文貴先生在直播中曾提到“非典（中共病毒）可能作為封港的藉口”，同時在連續幾天的直播也提到了臺灣墜機事件以及香港問題。**
+Issued on: June 14, 2020
 
-同樣存在話題交叉的是在2020年中共病毒與郭文貴先生以及爆料革命在中共病毒上的爆料，**中共水軍大肆攻擊這些話題恰恰印證了爆料革命在中共病毒的揭露上的正確性，特別是在路德時評爆出中共病毒最有價值的真實資訊的時候，中共開始動用水軍攻擊路德先生。在此前，中共似乎為了淡化中共病毒的影響，降低了中共水軍在這一話題上的熱度。**
+國家安全與國防
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161221/2-58.png)
+發佈時間: 2020年6月14日
 
-隨後，在三月全球已經爆發中共病毒危機的情況下，中共轉而把話題轉向正面積極的一面，吹噓中共在控制疫情上的成就以及對中共病毒真實資訊的誤。
+On this day in 1775, the Second Continental Congress established the Continental Army to fight for our Nation’s independence. In the 245 years since, the United States Army has helped defend our freedom all over the world and has made countless contributions to our Nation’s security and the American way of life. Today, we recognize the United States Army for its many achievements and pay tribute to all those who have served in America’s oldest military branch.
 
-不管是在香港話題上還是在中共病毒上，這些中共最為忌憚的話題在爆料革命報導出來後，遭受到了中共水軍的猛烈攻擊，**由此可以看出中共的最怕的正是爆料革命最為在意的，同時這也是美國與中共較量的抓手。**
+1775年的今天,第二屆大陸會議成立了大陸軍,為我們國家的獨立而戰。 在此後的245年裡,美國陸軍説明在世界各地捍衛了我們的自由，併為我國的安全和美國的生活方式作出了無數貢獻。 今天,我們表彰美國陸軍的諸多成就,並向所有在美國最古老的軍種中服役的人致敬。
 
-在此前，推特關閉了大約17萬4千個中共五毛帳號，這些帳號包括2萬多個核心帳號，和點贊轉發這些帳號推文的非核心帳號。同時在3月趙立堅發佈中共病毒可能來自美軍的推文也引起了爭議。
+This year marks the 75th anniversary of the conclusion of World War II—a monumental struggle between the forces of freedom and tyranny. In both the European and Pacific Theaters, the United States Army was critical to the success of the Allied Forces. The historic triumph came at a somber price, as the Army bore the brunt of the fighting—and human cost—of our Nation’s contribution to victory in the war. As we celebrate the United States Army’s incredible accomplishments, we also pause to remember those Soldiers who laid down their lives to defend our freedom and protect their fellow Americans.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161315/3-38.png)
+今年是第二次世界大戰結束75周年。那是一場自由與暴政力量之間的不朽鬥爭。 在歐洲和太平洋戰場上，美國陸軍對盟軍的成功至關重要。 歷史性的勝利是以沉痛的代價換來的，因為陸軍承擔了我們國家為戰爭勝利所做貢獻的主要的戰鬥和人力成本。 在我們慶祝美國陸軍令人難以置信的成就的同時，我們也停下來紀念那些為捍衛我們的自由和保護美國同胞而獻出生命的士兵們。
 
-推特作為全球訪問量最大的十大網站之一，這些報告分析勢必引起西方社會的警覺和震動。此次斯坦福報告之所以重要且影響巨大，**是因為在特朗普入主白宮和執政期間，推特一直是備受爭議和處在特朗普總統與****FAKE NEWS****戰爭的漩渦中心，**包括之前所謂的俄羅斯干預美國大選、通俄門調查以及特朗普總統對推特在內的社交媒體以及FAKE NEWS的批評。
+As our Nation continues to face the threat of the coronavirus pandemic, we acknowledge the important role the Army has played in the all-of-America response effort. The United States Army, Army National Guard, and Army Reserve Soldiers helped mount a nationwide response to this crisis that truly embodies their motto of “This We’ll Defend.” In New York, the United States Army Corps of Engineers created and converted alternate care facilities, providing extra space for thousands of patients. In Washington State, Army healthcare professionals deployed to provide medical support against the emergent virus. And, in Maryland, researchers with the United States Army Medical Research and Development Command have worked tirelessly to develop coronavirus countermeasures. From coast to coast, the incredible support of our Soldiers reminds us that no fighting force rivals that of the United States of America.
 
-**這些問題的矛頭最終都會指向中共對於美國輿論的影響，再次證明****FAKE NEWS****的真實存在和美國最主要的敵人是中共而不是俄羅斯。**
+當我們的國家繼續面臨冠狀病毒大流行的威脅時,我們感謝陸軍在全美國的應對努力中發揮了重要作用。 美國陸軍、陸軍國民警衛隊和陸軍後備役説明發動了全國範圍內的危機應對行動，真正體現了他們的座右銘 “我們將捍衛”。 在紐約,美國陸軍工程兵部隊建立並改造了備用護理設施，為數千名患者提供了額外的空間。 在華盛頓州,陸軍醫護人員被派去提供醫療支援，以對抗新出現的病毒。 而在馬里蘭州，美國陸軍醫學研究與發展司令部的研究人員為開發冠狀病毒對策而不懈努力。 從東海岸到西海岸，我們的士兵所提供的令人難以置信的支援提醒著我們，沒有任何一支戰鬥力可以與美利堅合眾國的相媲美。
 
-不只是斯坦福報告，**紐約時報、以色列資料公司NEXT DIM、網路分析公司GRAPHIKA、非盈利新聞編輯部PROPUBLICA、義大利行銷公司ALKEMY等等都對中共利用推特進行大外宣活動進行了分析。**
+This year, we celebrate our brave Soldiers—active, guard, and reserve, past and present—who are willing to put themselves in harm’s way and make the ultimate sacrifice for our country during times of both war and peace. As Commander in Chief, I join a grateful Nation in wishing the United States Army a happy 245th birthday.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14161358/4-34.png)
+今年,我們為我們勇敢的士兵們慶祝。無論是現役的、後備的和預備役的,過去的和現在的，他們在戰爭與和平時期都願意讓自己置身於危險之中,為我們的國家做出最大的犧牲。 作為總司令，我和全國人民一起祝願美國陸軍245歲生日快樂。
 
-之前的美國暴亂已經轉移了美國滅共的部分精力，隨著特朗普政府成員不斷地發聲、各國對於中共的聲討以及包括斯坦福報告的一系列事件，**都將再次把美國的注意力轉移到滅共上來。** 斯坦福報告再次印證了爆料革命的重要性和真實性，印證了中共對於香港話題和中共病毒話題的恐懼，也再次印證了特朗普總統對於FAKE NEWS的定義，**可以說，斯坦福報告成為了幫助川普總統滅共有力的一槍。**
+白宮原文：[Presidential Message on the 245th Birthday of the United States Army](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-army/)
 
-(文章內容僅代表作者觀點)
+*翻譯：【恆久忍耐】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

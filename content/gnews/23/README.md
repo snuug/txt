@@ -1,135 +1,171 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和黨研究委員會詹森和威爾遜提出美國國家安全戰略
-`2020-06-14 03:09 GM31` [轉載自GNews](https://gnews.org/zh-hant/233462/)
+## 中共正通过其强大而隐秘的统战部从政界到商界多方渗透澳大利亚
+`2020-06-14 05:05 GM77` [轉載自GNews](https://gnews.org/zh-hant/233518/)
 
-WASHINGTON – Today, the Republican Study Committee (RSC) – the largest caucus of conservatives in the House of Representatives – released The RSC National Security Strategy: Strengthening America & Countering Global Threats ([click here to view the full proposal](https://rsc-johnson.house.gov/sites/republicanstudycommittee.house.gov/files/%5BFINAL%5D%20NSTF%20Report.pdf)). Spearheaded by RSC Chairman Mike Johnson (LA-04) and RSC National Security & Foreign Affairs Task Force Chairman Joe Wilson (SC-02), the proposal is a conservative, solutions-oriented plan for preserving American leadership around the globe and promoting a U.S. foreign policy that advances the interests of the American people at home and abroad.
+翻译：Chloe（文秀）
 
-今天，眾議院共和黨保守黨最大的核心小組，共和黨研究委員會（RSC）發佈了名為《RSC國家安全戰略報告：加強美國實力與應對全球威脅》的提案。該項保守的，以解決方案為導向的提案是由RSC主席Mike Johnson（LA-04）和RSC國家安全與外交事務工作組主席Joe Wilson（SC-02）牽頭，旨在維護美國在全球的領導地位並促進美國外交政策的發展，提升海內外美國人民利益。
+**一份令人震惊的报告显示，中共一个秘密部门正努力从各个方面（包括政界和商界）来影响澳大利亚人的生活。**
 
-The product of over 1.5 years of policy development, The RSC National Security Strategy offers over 130 solutions to counter America’s most aggressive global adversaries, including the TOUGHEST SANCTIONS EVER PROPOSED by Congress against the Chinese Communist Party, Russia and the Putin regime, and Iran. The proposal also includes commonsense, result-oriented reforms to counter authoritarian influence within the United Nations (U.N.), ensure U.S. foreign aid is working to promote American interests and values, and modernize U.S. diplomacy and the State Department.
+中共一个秘密部门的特工正奉命渗透和影响澳大利亚生活的方方面面，从政治、商业到媒体。
 
-歷經一年半的政策制定，**RSC國家安全戰略提供了超過130多種解決方案，以對抗美國最激進的全球對手，包括國會制定的史上最嚴厲的，針對中國共產黨，俄羅斯及普京政權和伊朗的制裁**。該提案還包括常識性的，以結果為導向的改革，旨在對抗聯合國內部遭受的獨裁影響，確保美國的外國援助促進美國的利益和價值，促進美國外交和國務院的現代化發展。
+这是最近出炉的一份报告中对中共特工及其下线的结论。 特工们的工作目标是在澳大利亚的商业、政治、社交和媒体圈中为中共取得优势地位，直至“全面接管”澳大利亚。
 
-To view a detailed summary of The RSC National Security, [click here](https://rsc-johnson.house.gov/sites/republicanstudycommittee.house.gov/files/NSTF%20Executive%20Summary.pdf) or scroll to the bottom of the page.
+澳大利亚战略政策研究所（下文ASPI）分析了曾被中国国家主席习近平称为“法宝”的中共统战部的运作，发现其触角已经遍布澳大利亚的大学、企业和议会。
 
-如需查看《RSC國家安全戰略》的詳細摘要，[請按一下此處](https://rsc-johnson.house.gov/sites/republicanstudycommittee.house.gov/files/NSTF%20Executive%20Summary.pdf)或滾動到頁面底部。
+这份澳大利亚战略政策研究所（下文ASPI）报告的作者约斯克说：“中共统战部在澳大利亚的工作涵盖很广，从间谍活动到外国干预，到影响和参与澳大利亚各个方面”。
 
-“With the release of the RSC National Security Strategy, conservatives are making crystal clear to both our allies and adversaries that we are committed to standing for America’s core principles of liberty, human rights, free markets and maintaining peace through strength, and against authoritarianism and aggression,” Johnson said. “It’s time for America to fully reclaim its role as the greatest force for good the world has ever known. Undoing the damage inflicted by eight years of failed policies under President Obama isn’t easy but it is straightforward. Congress must follow President Trump’s lead and advance a foreign policy that embraces the things that make us great – our leadership, and, most importantly, our values. With this plan, we have delivered a smart and effective blueprint for accomplishing those objectives.”
+中共试图干涉侨民社区，影响政治系统，秘密获得有价值和敏感的科技，这些都只会随着中共与世界各国关系日渐紧张而变本加厉。
 
-“隨著《RSC國家安全戰略》報告的發佈，保守派向我們的盟友和對手發出明確的信號，即我們致力於維護美國的核心價值觀：自由，人權和自由市場；我們通過實力維護和平；我們反對專制主義和侵略。”  詹森表示。 “美國曾經代表了世界上最偉大的正義力量，現在是時候重塑這個地位了。消除奧巴馬總統執政八年來失敗政策帶來的損害並不容易，但我們會堅定的做下去。國會必須遵從川普總統的領導，並推進我們的外交政策，一個可以體現美國領導力，更重要的是，體現美國價值觀的，讓美國變得更偉大的外交政策。通過該計畫，我們已為實現這些目標提供了一個明智而有效的藍圖。”
+**一只强大的怪物**
 
-“As Chairman of the Republican Study Committee National Security and Foreign Affairs Task Force, I have worked for over a year meeting with top experts on foreign affairs for focused conservative solutions to the frustrating foreign policy challenges in the world. I am grateful that this effort has led to our package of over 130 policy proposals for Congress, tackling many important issues,” Wilson said.  “President Donald Trump has restored American credibility in the world after eight years of weakness and withdrawal during the Obama Administration which coddled dictators and abandoned our allies. In the past year, I’ve visited with Prime Minister Narendra Modi in New Delhi, with Prime Minister Benjamin Netanyahu in Jerusalem, and with officials in London and Washington. I have seen firsthand appreciation of President Donald Trump’s success promoting our alliances. American leadership is needed now, more than ever. The U.S.-led order based in freedom, human rights, and rule of law is at risk from China, Russia, Iran, and others. This package of tough but targeted proposals would impose the toughest sanctions on the Chinese Communist Party, Russia, and Iran in history and reassert Congress’ role in foreign policy. I look forward to continuing to work to push these vital initiatives to support President Trump’s efforts to keep our country safe and strong.”
+位于北京的中共统一战线工作部（下文统战部）由习近平主席最亲密的盟友，政治局排名第四的汪洋主管。
 
-“作為RSC國家安全與外交事務工作組的主席，我與外交事務高級專家合作了一年有餘，面對當今世界令人沮喪的外交政策挑戰，聚焦提供謹慎的解決方案。我很感激我們的努力促成了這包含130多項政策的國會提案，以應對許多重要問題。”  威爾遜表示。“忍受了奧巴馬政府歷時八年的軟弱、退縮、對獨裁者的縱容和對我們同盟的拋棄，川普總統已經恢復了美國在國際社會的信譽。在過去的一年中，我到耶路撒冷拜訪了以色列總理內塔尼亞胡，到德里拜訪了印度總理莫迪，在倫敦和華盛頓拜訪了一些官員。我親眼目睹了川普總統在促進我們與盟友加強關係方面的成功。世界比以往任何時候都更需要美國的領導。以美國引導的基於自由，人權和法治的價值觀和國際秩序正受到來自中國、俄羅斯、伊朗等其他國家的威脅。這一系列強硬但有針對性的提案將對中國共產黨，俄羅斯和伊朗施加歷史上最嚴厲的制裁，並重申國會在外交政策中的作用。我期待與相關人員繼續合作，推進這些重要決議的執行，支援川普總統為保護國家的強大和安全所做出的努力。
+统战部已经以某种作用存在了几乎一个世纪，但中共对其定位在最近几十年中得到发展和扩展。
 
-SUMMARY
+统战部的力量也随之发展和扩展，无论在中共国内还是境外。
 
-The RSC National Security Strategy:
+习主席对统战部的支持也前所未有，他在五年前将统战部提高到了为实现中共目标至关重要的地位。
 
-Strengthening America & Countering Global Threats
+在2015年与统战部领导会议的一次讲话中，习主席赞扬了统战部在“加强党的执政地位”上所做的工作。
 
-### **摘要**
+他将统战部描述为“实现中华民族伟大复兴的中国梦的重要法宝”。
 
-### ***RSC國家安全戰略報告：***
+约斯克在分析中写道，统战部当前的工作范围在不断发展，这反映出中共日益增长的全球野心。
 
-### ***加強美國實力與應對全球威脅***
+“今天，统战部的海外功能包括增强中共的政治影响力，干预华侨社区，压制不同政见者的各种活动，为接管台湾创造一个宽容的国际环境，情报收集，鼓励海外在华投资，促进技术转移到中国”。
 
-Communist China: A New Strategy for Countering America’s Top Threat
+它通过资助指导和支持世界上数量庞大的社区，企业和学生组织来做到这一点，而这些团体很少公开他们与北京的紧密联系。
 
-**共產主義中國：應對美國最高威脅的新戰略**
+约斯克先生写道：“例如，中国和平统一促进会（至少在全球91个国家和地区设有分会）和中华海外联谊会均由统战部领导”。
 
-- Preserving American leadership: The strategy stands up to the Chinese Communist Party’s attempts to reorient today’s world order to one based in authoritarianism by standing strongly for American values of freedom, democracy, human rights, the rule of law, and open markets.
-- 維護美國的領導地位：該戰略用於應對中國共產黨基於獨裁統治的重塑世界秩序的企圖，堅決維護美國自由，民主，人權，法治和開放市場的價值觀
+如有需要，这些附属团体可以迅速地动员起来。
 
+他说，COVID-19全球大流行展示了统战部海外部门的运作，统战部位于澳大利亚的下属机构负责“从世界各地收集日益稀缺的医疗物资并将其运往中国”。
 
-- A tough but targeted approach to China: The strategy offers the toughest package of sanctions ever proposed by Congress on the Chinese Communist Party (CCP). It would specifically sanction the entire United Front Work Department and senior CCP leaders, including members of the Politburo for their malign influence campaigns, internment of Uyghurs, and assault on Hong Kong. The strategy proposes targeted measures rather than broad-based tariffs that may hurt the U.S. economy.
-- 強硬但有針對性的方法：該戰略提供了美國國會有史以來對中國共產黨（CCP）提出的最嚴厲的制裁方案。它將特別制裁所有的中共統戰部門和高層領導人，包括惡意影響香港運動、拘押維吾爾族人、攻擊香港的中共中央政治局成員。該戰略對特定人群採取特定措施，而沒有採用可能會損害美國經濟的加征關稅的方法。
+上月澳大利亚边防透露他们已拦截了大量的医疗用品，包括口罩和其他个人防护设备。
 
+**日渐增长的政治干预**
 
-- A multifaceted strategy to protect American innovation and ideas: The strategy would enhance U.S. laws safeguarding American intellectual property (IP), modernize the Foreign Asset Registration Act (FARA), block Chinese propaganda efforts, and ensure a whole-of-government effort to stop the transfer of critical technology to China.
-- 保護美國創新與理念的多層戰略：該戰略將增強立法保護美國智慧財產權（IP），使《外國資產註冊法》（FARA）更加現代化，阻止中國在美的鼓吹和宣傳，並確保整個政府通力協作，阻止關鍵技術向中國轉移。
+澳大利亚情报机构ASIO已经警告各级政府机构：中共统战部在澳大利亚日益占主导地位。
 
+前工党议员达斯达利向中共亿万富翁黄向墨示警，告知他正处于被监视中，这最终导致两人垮台。
 
-- Bold free trade expansion around the world: The strategy proposes bilateral free trade agreements with democratic partners facing increasing threat or malign influence from China, including Taiwan, Indonesia, the Philippines, India, Brazil, Kenya, and others.
-- 全球自由貿易的大膽擴張：該戰略提出與包括臺灣，印尼，菲律賓，印度，巴西，肯亞等國家在內的民主盟友簽訂雙邊自由貿易協定，以面對日益增加的來自中國的威脅和惡性影響。
+黄是澳大利亚税务局的调查目标，他在澳大利亚的永久居留权被移民局撤销。
 
+达斯达利在颜面扫地中远离政坛。
 
-Russia: Rolling Back Aggression Through a Strategy of Deterrence
+但此前不久黄在工党和自由党-国家党联盟中均已取得显著影响，曾面见工党总理陆克文和自由党总理腾保。
 
-**俄羅斯：通過威懾戰略來遏制侵略**
+黄向墨将给威尔士州工党的10万澳元捐款装在Aldi杂货店的购物袋里，放在工党的州立办公室。 现在这笔捐款是反腐败独立委员会的调查对象。
 
-- Stopping Putin’s aggression: The strategy offers the toughest package of sanctions on Russia ever proposed by Congress, including secondary sanctions on Russian oil and gas projects, sanctions on Russian sovereign debt, sanctions on Russian proxies in other countries, and designating Russia as a State Sponsor of Terrorism.
-- 制止普京的侵略：該戰略提供了美國國會有史以來對俄羅斯提出的最嚴厲的制裁措施，包括對俄羅斯石油和天然氣項目的二次制裁，對俄羅斯主權債務的制裁，對俄羅斯在其他國家代理人的制裁以及將俄羅斯劃定為支持恐怖主義國家。
+约斯克在分析中写道，统战部的工作“常常是秘密的”，与之互动的人“通常否认跟其有任何联系”。
 
+他写道：“例如，尽管澳大利亚华侨商人和政治捐助者周泽荣在讲话中曾提到统战部，而且也曾与统战部官员合影，他却声称从未听说过这一组织”。
 
-- Communicate with the Russian people: The strategy would call for the creation of a strategy to communicate directly to the Russian people and support their aspirations for democracy and human rights.
-- 與俄羅斯民眾溝通：該戰略要求制定與俄羅斯民眾直接交流，並支持他們追求民主和人權的策略。
+格拉迪斯·刘（经上次联邦大选进入议会的自由党国会议员）在与统战部关联组织有密切联系的消息曝光之后就深陷争议。
 
+刘女士曾担任中国海外交流协会理事，并曾担任澳洲中华总商联合会名誉会长。
 
-Advancing American Interests in the Middle East: Confronting Iran & the Jihadi Terrorist
+两者都与北京的统战部有着紧密的联系。
 
-**增強美國在中東的利益：對抗伊朗及聖戰恐怖分子**
+2018年9月，就在她获得维多利亚Chisholm选区众议员席位的前几个月，刘女士被任命为与统战部有联系的澳大利亚江门总商会的名誉会长。
 
-Movement
+刘女士最初称她不记得自己是中共海外交流协会的一员，后来改口说她参与该协会的活动只限于名誉性而且微不足道。
 
-**行動**
+她否认了解她所参与的其他组织与中共之间的关联，并坚称自己的参与纯粹是为了当地社区的利益。
 
-- Enhancing the President’s maximum pressure campaign on Iran: The strategy proposes the toughest sanctions on Iran ever proposed by Congress. It codifies many of the President’s successful efforts into law, blocks additional sectors of Iran’s economy, and sanctions Iran’s regional proxies, including its militias in Iraq, Syria, and Yemen, the Assad regime in Syria, as well as Hezbollah in Lebanon.
-- 持續增強總統對伊朗最大限度的施壓行動：該戰略提出了有史以來美國國會對伊朗實施的最嚴厲制裁。它將總統許多成功的努力編纂為法律，封鎖伊朗的其他經濟部門，並制裁伊朗的區域代理人，包括其在伊拉克、敘利亞和葉門的民兵，敘利亞的阿薩德政權以及黎巴嫩的真主党。
+目前尚不清楚统战部特工对澳大利亚进一步政治干预的程度，但约斯克指出与统战部关联的商业组织已试图在州及联邦一级建立政治关系网。
 
+统战部特工对澳大利亚华人社区的干预使得“真正独立的华人参与政治”极为困难。
 
-- Deplete the resources of Iranian proxies: The strategy would prevent U.S. taxpayer dollars from funding Iran’s proxies in Lebanon and Iraq by ending aid to the Lebanese Armed Forces and the Iraqi Ministry of Interior.
-- 耗盡伊朗代理人的資源：該策略將通過終止援助黎巴嫩武裝部隊和伊拉克內政部，阻止將美國納稅人的資金用於資助伊朗在黎巴嫩和伊朗的代理人。
+这也给那些不知不觉就与统战部有了联系的澳大利亚政治家带来风险。
 
+乔斯克写道：“在中共统战部工作已经相当成熟的国家例如澳大利亚，政治家们很难避免与统战部结盟，也很难避免自己不知情时就成了更广泛的中共社区的代表。”
 
-- A new clear authorization to pursue terrorist groups: The strategy pushes back against House Democrats’ efforts to limit the President’s war powers by offering for consideration a new AUMF that would allow the President to go after any State Department designated Foreign Terrorist Organizations.
-- 一項用於追捕恐怖組織的全新和明確授權：該戰略通過提供一個新的《軍事武力使用授權書》（AUMF）來允許總統對國務院指定的外國恐怖主義組織採取行動，從而抵制眾議院民主黨限制總統戰爭權力的行動。
+在上次联邦选举中，两个主要政党的候选人或者是统战部关联团体的成员，或者参加了由统战部赞助的中国之行。
 
+在2019年新南威尔士州争夺工党领导权决出胜负后，两个竞选者都参加了由统战部关联团体组织的活动。
 
-- Directly confronting the Salafi-jihadi ideological movement: The strategy would prevent the creation of Salafi-jihadi safe havens and cut off financing and state support for associated groups. It would codify President Trump’s efforts to deplete terrorist’s resources and designate additional terrorist organizations.
-- 直接對抗薩拉菲聖戰思想運動組織：該戰略將阻止薩拉菲聖戰組織建立安全港，並切斷對其相關組織的資金資助和國家支援。這將把川普總統為耗盡恐怖分子資源並劃定額外恐怖組織的努力編纂為法律。
+**在澳大利亚本土的中共间谍活动**
 
+统战部是中国情报机构在全球开展工作的关键一环。
 
-Maintaining an International Order Based on American Values
+约斯克先生写道：“统战部建立的网络，地位和关系及通过这些所得到的信息，都促进了中共情报活动”。
 
-**維護基於美國價值觀的國際秩序**
+约斯克说，中国国际友好联络会是一个统战单位，由中国人民解放军联络部管理，而联络部隶属于中国人民解放军政治工作部。
 
-- Elevating human rights and democracy: The strategy would elevate these values in American foreign policy by strengthening human rights sanctions and codifying the Ministerial on Religious Freedom. It would support Secretary Pompeo’s Commission on Unalienable Rights and reject attempts by international organizations to redefine human rights and curtail economic and religious liberties.
-- 提升人權與民主：該戰略將通過加強人權制裁和編纂部長級宗教自由法律來提升美國外交政策中的價值觀。這將支持國務卿蓬佩奧的不可剝奪權利委員會，並拒絕國際組織要求重新定義人權並削減經濟和宗教自由的企圖。
+中国国际友好联络会“寻求与外国团体和个人建立联系”。
 
+约斯克写道：“曾与之互动的包括澳大利亚矿业大亨，澳大利亚前驻华大使，日本的新时代宗教运动以及美国退休的将军和官僚”。
 
-- Competing to win at the U.N. and other multilateral organizations: The strategy would counter China and Russia’s efforts to control international bodies. It would also urge Congress to support President Trump’s efforts to withdraw from irreparable organizations and replace them with new mechanisms of multilateral cooperation with democratic countries.
-- 參與在聯合國及其他多邊國際組織中的競爭並取勝：該戰略旨在對抗中國和俄羅斯試圖控制國際機構的企圖。它還將敦促國會支援川普總統退出不可救藥的國際組織的努力，並採用與民主國家多邊合作的新的機制取代它們。
+再次强调，统战部协助的中共间谍活动的目标尚不清楚。
 
+但是，澳大利亚情报机构警告说，对澳大利亚企业，行业和政府的网络攻击将日趋严重。
 
-- Promoting accountability at the U.N.: The strategy would mandate that U.S. Ambassadors meet annually with their host governments to discuss that country’s voting record at the U.N. It would also audit the use of U.S. funding by the U.N. and condition funding to U.N. bodies on implementation of accountability reforms. The U.N. must cut off assistance to dictatorships such as humanitarian aid that is being diverted to the Assad regime in Syria.
-- 完善聯合國的問責制：該戰略將要求美國大使與東道國政府舉行年度會議，討論該國在聯合國的投票記錄。它還將審計聯合國對美國資金的使用情況，審計有條件資金在聯合國機構問責制改革中的使用情況。聯合國必須切斷對獨裁政權的援助，例如將人道主義援助轉移到敘利亞的阿薩德政權。
+位于堪培拉的澳大利亚国立大学在2019年的重大数据泄露与中共有关，对国会大厦的数码攻击也与中国有关。
 
+在科技方面，约斯克先生写道，统战部是中共合法及非法“技术转让企图”的“中心组成部分”。
 
-Results-Oriented Approach to Foreign Aid and International Diplomacy
+合法的途径上，统战部力图让中共从澳大利亚开发的技术和专业知识中分一杯羹。 非法途径上，中共过去曾被指控盗窃知识产权。
 
-**在外交援助和國際外交策略中採用結果為導向的方法**
+**渗透进大学**
 
-- Aligning U.S. foreign aid with U.S. foreign policy: The strategy would help assistance reach more people while better advancing our international interests. It supports replacing the Foreign Assistance Act with new legislation reducing legislative directives for foreign assistance, placing the U.S. Agency for International Development (USAID) inside the Department of State, and empowering Ambassadors to have a stronger role in administering foreign aid.
-- 促使美國的對外援助與美國的外交政策保持一致：該戰略在更好地提升美國國際利益的同時，將幫助和惠及更多民眾。它支持採用旨在減少外國援助立法指示的新的立法取代《外國援助法》，將美國國際開發署（USAID）置於國務院之內，並授權給大使，使其在管理外國援助方面發揮更大作用。
+约斯克写道，海外华人学生“长期以来一直是统战部目标”，无论他们身在国外还是返回家乡时。
 
+“2015年习近平将海外华人学生指定为‘统战部工作的新重点’时，重申了这一点”。
 
-- Modernizing the Department of State: The strategy would strengthen diplomacy by ensuring the State Department concentrates on its core competencies. It supports replacing the Foreign Service with a new diplomatic corps rooted in merit rather than tenure, as well as eliminating duplicative bureaus and programs, and elevating human rights, democracy, and multilateral affairs.
-- 促進國務院的現代化發展：該戰略將確保國務院專注於其核心競爭力的方式來加強外交實力。它支持用功績而非任期立足的新的外交使團取代國務院外事處，與此同時，剔除重複的機構和專案，並提升人權，民主性和多邊事務能力。
+中国学生学者联谊会（CSSA）遍布世界各地，为海外留学人员提供了帮助。
 
+但约斯克先生认为，CSSA是“统战部针对海外华人学生开展工作的主要平台……（而且）大多数CSSA是在中国大使馆和领事馆的指导下运作的”。
 
-- Strengthening public diplomacy, international broadcasting, and counter disinformation efforts: The strategy would reconstitute the U.S. Information Agency (USIA) and empower it with U.S. public diplomacy and counter disinformation efforts. The USIA’s mission would be to promote American ideals of democracy, human rights, and open markets, and undermine U.S. adversaries such as China, Russia, Iran, and others. The USIA would be able to contract with private entities to assist in counter-disinformation efforts.
-- 加強公共外交能力，加強在國際上的新聞傳播和制止虛假資訊傳播：該戰略將重構美國新聞署（USIA），並賦予它美國公共外交和制止虛假資訊傳播的權力。美國新聞署的使命在於宣揚美國的民主，人權和市場開放的思想，並削弱美國的對手，例如中國，俄羅斯，伊朗和其他國家。USIA將會與私人實體簽約以協助對抗虛假資訊傳播的工作。
+他写道：“ 2013年《人民日报》的一篇文章将澳大利亚的CSSA描述为‘在大使馆教育办公室的直接指导下完成了任务……’”。
 
+CSSA管理层的任务是组织集会和开展爱党活动，还负责监视持不同政见的中国学生。
 
-出處：[JOHNSON, WILSON UNVEIL RSC NATIONAL SECURITY STRATEGY](https://rsc-johnson.house.gov/news/press-releases/johnson-wilson-unveil-rsc-national-security-strategy)
+去年在昆士兰大学的一次支持香港的抗议活动遭到数百名亲北京学生的破坏。
 
+双方激烈对峙，一度演变为暴力行为，最终需要警方介入。
 
+亲香港集会的组织者（本意是在校园内和平静坐）称捣乱者由中共领事馆派来，而且大多数不是昆士兰大学的学生。
 
-*翻譯：【jamie(文胤)】校對：【恒久忍耐】*
+在世界各大学中建立的孔子学院已成为日益增长的争议之源，包括在澳大利亚的孔子学院。
 
-*戰友之家玫瑰園小隊出品*
+自誉为中国文化和历史的学术推动者，孔子学院被指控企图压制学术自由。
+
+约斯克先生称，孔子学院“由统战部大力参与并掌管”。
+
+**宣传机器**
+
+众所周知中共痴迷于自我宣传及控制中国境内的公众言论。
+
+媒体受到审查，外来信息受到监控，任何公开示威活动都被迅速扑灭。
+
+约斯克写道，统战部为北京提供了一条在海外进行直接宣传的途径。
+
+他说：“大使馆与当地统战部领导人举行会议，指导他们如何影响公众舆论，例如通过组织集会来支持中国政府的政策或来访官员”。
+
+去年，一艘中国海军舰艇未经通知就抵达悉尼港时，一群中国侨民在那里用专业制作的标语迎接它。这艘海军舰艇突然停靠悉尼港引发了激烈的外交事件。
+
+当时澳大利亚人包括政府官员，没人知道这艘船即将到来。
+
+习近平主席在先前的公开讲话中说，那些离开中国到国外去学习工作或生活的人仍然是中国未来繁荣和伟大复兴的组成部分。
+
+约斯克写道，在统战部“将中共影响牢牢插入华人社区与其所在社会中间，扩大中共对这些社区的代表和动员渠道的控制”的工作中，习主席的这一命令体现得淋漓尽致。
+
+约斯克说：“希望参加社区活动的华人可能毫不知情地就与统战部团体联系在一起”。
+
+约斯克认为，北京的统战部将大量资源用于针对包括澳洲大洋传媒在内的华侨社区的宣传工作。澳洲大洋传媒成立于1993年，是唯一一家向澳大利亚华人社区提供新闻，新闻报道和文学作品以及向整个多元文化社会提供广告服务方面具有独创性和独特性的中国新闻集团。
+
+他说，由9个位于世界各地的中共媒体组织运营的26个微信帐户已注册到中国新闻社一个子公司旗下，中国新闻社是中共最大的媒体。
+
+他还说：“这些微信账户运行于所有五眼国家，欧盟，俄罗斯，日本和巴西”。
+
+“其中包括已在…澳洲大洋传媒注册的帐户，这表明这些账户可能都属于统战部领导的公司”。
+
+“其中的许多帐户似乎拥有成千上万甚至数十万的追随者”。
+
+原文链接：[https://www.news.com.au/finance/economy/australian-economy/china-is-infiltrating-australia-on-multiple-fronts-from-politics-to-business-via-its-powerful-and-covert-united-front-agency/news-story/9318c7799e540164dd0b985b9e8969c2](https://www.news.com.au/finance/economy/australian-economy/china-is-infiltrating-australia-on-multiple-fronts-from-politics-to-business-via-its-powerful-and-covert-united-front-agency/news-story/9318c7799e540164dd0b985b9e8969c2)
 
 0
