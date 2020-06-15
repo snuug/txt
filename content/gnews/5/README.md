@@ -1,49 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府正在推進海洋勘探工作（中英文對照）
-`2020-06-14 15:45 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/233994/)
+## 中共國警告美國：「放棄核試驗計劃」
+`2020-06-15 00:51 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234325/)
 
-**The Trump Administration Is Advancing Ocean Exploration**
+*新聞來源：Zerohedge*
 
-**川普政府正在推進海洋勘探工作**
+*新聞作者：Tyler Durden*
 
-America’s oceans, coastal waters, and Great Lakes are national treasures, providing beauty and recreation, along with valuable resources that enhance our health, security, and economic prosperity. America’s oceans and coastlines contribute greatly to America’s economy, supporting 154,000 ocean-dependent businesses, $373 billion of economic activity annually, 2.3 million jobs, and $162 billion in wages.
+*翻譯、簡評：InAHurry*
 
-美國的海洋、沿海水域和五大湖是國家寶藏，這一切給予人們美麗景緻和娛樂場地，還提供了增進我們健康、安全和經濟繁榮的寶貴資源。美國的海洋和海岸線地區為美國經濟做出了巨大貢獻，支撐著15.4萬家以海洋為支柱的企業、年均3730億美元的經濟活動、以及總值達1620億美元薪金的230萬個工作崗位。
+*PR*：*Julia Win*
 
-Advancing understanding of our oceans and coastlines has been a top priority for President Trump, particularly as it relates to further mapping the United States Exclusive Economic Zone (US EEZ) –an area surrounding the United States that is larger than the areas of all fifty states combined. The US EEZ contains a vast amount of natural resources, such as critical minerals, energy, and marine-derived pharmaceutical compounds, and is home to countless ecosystems on which the health and productivity of the oceans depend.
+**簡評：**
 
-提高對海洋和海岸線地區的認知一直是川普總統的優先任務，特別是因為這與進一步繪製美國專屬經濟區（U.S. EEZ）有關。該區是個環繞美國，比所有50個州的面積加起來還要大的區域。美國專屬經濟區包含大量的自然資源，如緊要礦物、能源，和海洋衍生物類的藥品複合成分，也是海洋的自身健康和生產力所依賴的無數個生態系統的所在地。
+華盛頓郵報在兩周前披露了一個重要的軍事消息：川普政府在5月15日白宮舉行的國家安全高級官員副手會議上，就是否進行核試爆進行了認真討論。
 
-Only 40 percent of the EEZ has been mapped, and considerably less has been fully explored and studied to identify the natural resources that could benefit our Nation. The undiscovered potential is priceless. Knowledge of our oceans will support advancements in tourism and recreation, maritime commerce , healthy and sustainable fisheries, improved understanding of ocean characteristics and marine life, resilient coastal communities, and other national interests. Recognizing the importance of this critical resource, President Trump has taken bold action to dramatically increase our understanding of the marine environment to support the conservation, management, and balanced use of our extraordinary ocean resources.
+川普政府討論重啓核試驗的消息一出，大家都在等待來自莫斯科的反應。因為美國在1987年和前蘇聯簽署了《中程導彈條約》（儘管川普總統在條約到期的前一年，2018年就宣佈美國退出該條約），約定雙方不得再生產，試驗中程導彈和中短程導彈，並且美國自1992年從未再進行過核試驗。但沒想到卻在幾周後迎來了來自中共國外交部發言人華春瑩的警告。華在週一的新聞發佈會上嚴厲警告美國說「美國應該尊重國際約定，不然將有可能破壞全球穩定」。
+![This image has an empty alt attribute; its file name is E811B374-AAB1-4F65-93FB-D0EC93CA4963.jpg](https://spark.adobe.com/page/xE73d846DuKyL/images/E811B374-AAB1-4F65-93FB-D0EC93CA4963.jpg?asset_id=6D753CEE-6517-491D-9898-A0A54A92EC02&amp;size=2560)
+其實白宮5月15日對核試驗的討論很有可能是對5月8日《環球時報》總編胡錫進在微博中挑釁性的語言的回應。胡錫進在博文中提出：「中共國需要1000枚核彈和100枚東風41，以抑制美國的戰略野心「。雖然胡隨後在5月12日再次發文說他之前提到的核武器數量純屬「拍腦袋猜測」，中共國的核武器的主要目的是為了核威懾而不是與美國進行武器競爭等，企圖軟化他之前的強硬立場，但很顯然川普政府已開始對中共國的核野心採取行動了。事實上，川普總統一直對中共國的核武器十分重視。他之所以在2018年退出條約， 一方面是因為俄羅斯長期不遵守條約，另一方面就是因為中共國擁有大量中短程導彈，但卻不是條約簽署國。川普政府一直視中共國的覈實力為全球穩定的隱患，希望以美中俄三邊的核約定來取代美蘇的雙邊核約定。
 
-只有40%的EEZ已被測繪，而只有比這還少之又少的區域才已被我們為了辨識何種自然資源可能造福於國家而充分勘探和研究，那些尚未被發現的潛力是無價的。我們對海洋的認知將有益於推進很多層面的發展，諸如旅遊和娛樂業、海洋商務貿易，健康和可持續型的漁業，對海洋特徵和海洋生物的更多了解，抗逆境適應力強的沿海社區，以及其他許多國家利益。因為認識到這一緊要資源的重要性，為大幅度增加我們對海洋環境 的認知，川普總統已經採取了有膽略的行動，用以支持對我們廣博海洋資源的保護、管理和平衡利用。
+週一華春瑩信誓旦旦的警告，再次向全世界展現了中共國賊喊捉賊的無恥行為。中共一邊在全世界偷竊尖端軍事技術，發展核武器，以便隨時能在台海、南海等地區發起挑釁性熱戰，一邊卻用已經失效的國際條約壓制他國發展核武器。參照中共國對待國際公約的一貫態度，筆者認為，三邊核條約不是解決來自中共國核威脅的可行辦法。唯有把中共從地球上抹去才能重新建立國際秩序和全球穩定。
 
-In November of last year, President Trump signed a Presidential Memorandum directing the Federal government to develop a national strategy to map and explore the US EEZ, a strategy to map the coast of Alaska, and recommendations to facilitate permitting for ocean exploration and research. Today , as Co-Chairs of the Ocean Policy Committee, we are proud to release strategies and recommendations requested by the President that will guide the national ocean mapping and exploration enterprise, unleashing a new era of knowledge and innovation and ensuring continued US global leadership in ocean research.
+## **中共國警告美國：「放棄核試驗計劃」否則將「破壞全球穩定」**
 
-去年11月，川普總統簽署了一份總統備忘錄，指示聯邦政府研製一項繪製和勘探美國專屬經濟區的國家戰略，包含繪製阿拉斯加海岸地區，以及要求聯邦政府對促進海洋勘探和研究許可批准方面提出建議。今天，作為海洋政策委員會的共同主席，我們自豪地發布這些經總統要求所製定的戰略和建議。這將指導國家海洋測繪和勘探事業，開創認知和創新的新時代，並確保美國在海洋研究方面持續保持全球領先地位。
+僅兩周前，《華盛頓郵報》[披露](https://www.zerohedge.com/geopolitical/white-house-mulling-first-nuclear-test-28-years-message-russia-china)「川普政府已經就是否進行1992年以來美國首次核試爆而進行了討論。」
 
-The National Strategy for Ocean Mapping, Exploration, and Characterization provides a roadmap to coordinate Federal action and further our understanding of the US EEZ. This roadmap will advance key goals, including completing mapping the deep water by 2030 and the nearshore waters by 2040 and exploring and characterizing priority areas of the US EEZ. It also will aid in developing and maturing new and emerging science and technologies, and building public and private partnerships to support these activities.
+據稱，在5月15日白宮舉行的國家安全高級官員「副手會議」上就認真討論了這個議題。雖然目前看來這並不會有積極的跟進，但據一位高級行政官員稱，「**核試爆的可能仍是繼續受到關注的議題**。」
+![This image has an empty alt attribute; its file name is 1B056A14-EF70-47AE-8171-7B215B150C0E.png](https://spark.adobe.com/page/xE73d846DuKyL/images/1B056A14-EF70-47AE-8171-7B215B150C0E.png?asset_id=08618EA5-40D9-42DE-9E62-29FC0A598609&amp;size=2560)
+雖然最初所有的注意力都在俄羅斯的反饋上，**但中共國外交部卻發表了遲到的回應，在週一的新聞發佈會上向華盛頓發出了警告說**：華盛頓必須遵守其國際義務，放棄任何可能進行核試驗的計劃。
+![This image has an empty alt attribute; its file name is 76295F29-D4AE-41D3-BD55-B5A4340B303F.jpg](https://spark.adobe.com/page/xE73d846DuKyL/images/76295F29-D4AE-41D3-BD55-B5A4340B303F.jpg?asset_id=04DDF4B3-3FB7-4471-84B7-DD31C9F1459E&amp;size=1024)在北京軍事博物館展出的核導彈
+外交部發言人[華春瑩](https://tass.com/world/1165339)說：「我們堅持認為美國應該嚴格遵守停止核試驗的義務……，而且我們希望美國能聽取國際社會的意見。**美國必須放棄可能破壞全球穩定和戰略秩序的計劃。**」
 
-“國家海洋測繪勘探和特徵歸類“戰略提供了一個協調聯邦層面的行動，並進一步了解美國專屬經濟區的路線圖。該路線圖將推動實現我們的關鍵目標，包括在2030年之前完成深海的測繪，在2040年之前完成近岸水域的測繪，以及對U.S. EEZ優先區域進行探索和特徵歸類。它還將對那些新的和新興科學技術，在開發和護助到成熟期方面給予幫助，並輔助建立公共和私人機構的合作關係用以支持這些行動。
+這位（中共的）高級外交官員[強調](https://tass.com/world/1165339)，北京已多次敦促美國履行承諾，她還說：「美國需要為確保裁軍和不擴散大規模毀滅性武器的國際合作做出貢獻。」不過，鑒於美國政府最近一再指責中共國和俄羅斯「非法」進行低當量核試驗（而兩國都否認了進行核試驗），他（美國政府）肯定會對中共外交部的話置之不理並作出回擊。**就北京而言，美國政府相信中共軍方有能力在一個精心設計的地下實驗室中秘密進行這種挑釁性試驗**。
+![This image has an empty alt attribute; its file name is 2CC34396-8A95-4915-946A-A5919794A0A4.jpg](https://spark.adobe.com/page/xE73d846DuKyL/images/2CC34396-8A95-4915-946A-A5919794A0A4.jpg?asset_id=2CAF1062-613B-406D-BCB5-B6900E599FC2&amp;size=2560)
+自從1992年，冷戰結束之際和蘇聯解體的一年後，美國就未再進行過核試驗（至少官方公佈信息是這樣）。但有跡象表明，由於與莫斯科簽訂的，具有里程碑意義的武器條約正在迅速被拋棄，我們可能很快就會目睹一次新的挑釁性試驗。同時，川普，正如他在過去所說的那樣，可能會考慮將核試驗作為一個能帶來「達成更好協議」談判的強有力的「籌碼」。
+![This image has an empty alt attribute; its file name is FC818CC6-F115-4EC0-8DB0-C27937E4D96D.jpg](https://spark.adobe.com/page/xE73d846DuKyL/images/FC818CC6-F115-4EC0-8DB0-C27937E4D96D.jpg?asset_id=5BCD3EE8-3214-44F5-86BF-A4FAE3663032&amp;size=3362)
+川普期望一個三方核條約。中共卻另有打算
 
-The Alaska Coastal Mapping Strategy, developed by the National Oceanic and Atmospheric Administration, the Alaska Mapping Executive Committee, and the State of Alaska, advances the modernization of ocean and coastal maps. Because Alaska lacks current mapping data, this work is critical to a state that has a coastline longer than all other states’ coastlines combined. With an economy closely linked to coastal and ocean waters, accurate, up-to-date mapping will support economic growth, resource management, and the safety and security of Alaska’s coastal residents.
+[http://jtim.es/GDQh30qLSfw](http://jtim.es/GDQh30qLSfw)
 
-“阿拉斯加沿海測繪戰略” 是由國家海洋和大氣管理局、阿拉斯加測繪執行委員會，以及阿拉斯加州聯合製定，它推進了海洋和沿海地圖的現代化。由於阿拉斯加缺乏即時最新的測繪數據，而這項工作對於一個海岸線比其他所有州的海岸線加起來還要長的州來說尤為重要。因為它的經濟與沿海和海洋水域緊密相關，準確而即時最新的測繪數據才能對經濟增長、資源管理以及阿拉斯加沿海居民的安全和安保 提供有效支持。
+川普期望一個三方核條約。中共卻另有打算。 日本時報
 
-Ocean and coastal exploration, mapping, and research activities frequently require multiple environmental reviews, consultations, permits, and other authorizations under Federal laws and regulations. In order to reduce duplication, increase coordination across Federal agencies, save taxpayer dollars, eliminate waste, and protect marine resources, President Trump directed the Ocean Policy Committee to recommend actions that increase the efficiency of the permitting process for ocean exploration activities. The Recommendations for Increasing the Efficiency of Permitting for Ocean Exploration, Mapping, and Research Activities identify opportunities to promote clarity and consistency in the Federal permitting processes, examine approaches to increase efficiency, and evaluate ways in which new and emerging science and technology can streamline the permitting process.
+華盛頓瞄准北京的原子野心，川普政府發誓要打造「軍控新時代」
 
-海洋和沿海勘探、測繪和研究活動頻繁地需要依照聯邦法律和法規，進行多種環境評估，諮詢，許可證獲取，以及其他授權。為了減少重複工作，加強聯邦機構之間的協調，節約納稅人的錢，消除浪費，保護海洋資源，川普總統指示海洋政策委員會要對提高海洋勘探活動的許可程序的效率提出建議。此《提高海洋勘探測繪和研究活動許可效率的建議》確認了以下需改進的機會，包括促進聯邦許可獲准程序的清晰度和一致性， 查驗可提高效率的途徑，並評估對新的和新興科學技術許可證獲准可以標準流程化方法。
+所有這一切都給以核彈為中心的新一輪全球軍備競賽留下潛在的可能性，因為北京，莫斯科和華盛頓這一刻都已經在互相交換從核試驗邊緣退一步的警告
 
-June is National Ocean Month, and under President Trump’s leadership, high priority is placed on advancing our knowledge of America’s unexplored oceans and coastlines. Through increased mapping, exploration, and efficient permitting, the United States is poised to harness cutting-edge science, new technologies, and partnerships that will benefit our economy, enhance national security, and promote conservation and stewardship of our oceans.
+與此同時，北京對川普提出的，涉及中共國的新核武器條約的設想表現出了抵觸。川普之所以拋棄INF（《美利堅合眾國與蘇維埃社會主義共和國聯盟關於銷毀中程和中短程導彈之條約》），部分原因就是它沒有考慮到中共國導彈技術和能力的發展。
 
-6月是美國國家海洋月，在川普總統的領導下，我們對提高在美國的未開發海洋和海岸線區域的認知給予了優先級別。通過在測繪、勘探和許可獲准效率上的增進，美國已準備就緒，並駕馭著我們的尖端科學、新技術和各種合作關係，從而將增進我們的經濟，加強國家安保，並促進對海洋的保護和對海洋的管理盡職盡責。
+[新聞鏈接](https://www.zerohedge.com/geopolitical/china-warns-us-abandon-plans-nuclear-testing-which-will-undermine-global-stability)
 
-[閱讀白宮原文](https://www.whitehouse.gov/articles/the-trump-administration-is-advancing-ocean-exploration/)
-
-*翻譯: 【OnePunchD】校對：【RD16】*
-
-*戰友之家玫瑰園小隊出品*
+#### [**編輯：【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/xE73d846DuKyL/)
 
 0

@@ -1,26 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦即將招聘副總理、部長、電視臺人員、建基地、建學院啦
-`2020-06-14 05:51 Diago` [轉載自GNews](https://gnews.org/zh-hant/233672/)
+## 川普總統在美國陸軍245週年生日之際的致辭（中英文對照）
+`2020-06-14 19:23 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/234066/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/14054552/08-1.jpg)
-作者：Diago
+**Presidential Message on the 245th Birthday of the United States Army**
 
-郭文貴先生在2020年6月13日連線老江GTV直播中提到：
+**在美國陸軍245周年生日之際的總統致辭**
 
-【大家要記住，接下來新中國聯邦的事情是我們第一大、天大的事情，我們正在起草新中國聯邦聘用的五個部長和一個副總理，正在要公開聘請。
+NATIONAL SECURITY & DEFENSE
 
-我們新中國聯邦將在美國西部建立一個新的基地，主要是負責新中國聯邦系統的整個在海外運作的初期，包括新中國聯邦，馬上啊，大概在12萬到30萬美元之間的起點來招聘，男的、女的不限，年輕、長得形象好，必須是中英文，然後有長期的廣播經驗，就是主持人，建立新中國聯邦的英文、中文電視臺主持人，基地會在鳳凰城，還有在紐約，在紐約的康州，這兩個基地：紐約的康州還有鳳凰城，建立這兩個基地，這幾個電視臺會聘請主持人、電腦工程師，和專業直播和電視臺操作的工程師，戰友們到時候看啊，到時候我們會發出來公告，包括這幾位副總理、包括部長，部長一般是在30萬美元的薪水，要求中英文好，五個部長，新中國聯邦，要求一個副總理，200萬美元工資，當然啦，條件大家看公告。
+Issued on: June 14, 2020
 
-那麼這一系列的新中國聯邦的公告之後，我們會給更多戰友們帶來更多的發展的機會，希望國內的戰友，如果你覺得你具備這種能力，你也可能全力參與，這也是你能到達美國，我相信你能呆在美國、能獲得合法簽證最好的方式之一，當然這是需要你做出決定，所以接下來在美國鳳凰城，我們將有150個人到250個人的一個基地，主要是電腦工程師，新中國聯邦的電視臺的所有相關的工程技術人員，還有一個就是我們給建立的爆料革命受殘害的戰友支援會，這個基地會跟新中國聯邦在一起，也在鳳凰城落地，在那個地方願意當義工，願意去為爆料革命受殘害的戰友們做工作的，也可以到那裡去，到鳳凰城。
+國家安全與國防
 
-還有一個今天我要給戰友們今天要說的是什麼，新中國聯邦成立之後各國各地的城市跟我們聯絡的人特別多，希望我們，各地的政府啊，還有一些社會組織啊，願意站出來支持我們新中國聯邦、願意跟我們合作，那麼請戰友們記住，當和我們聯繫新中國聯邦的時候，一定要記住，新中國聯邦很慎重，不會跟任何人隨便結盟、合作的，我們不能走臺灣這種失敗的路，搞了幾十年花那麼多錢有個屁用啊，是不是啊？買一個虛無飄渺的所謂的承認的關係有用嗎？沒有一個戰略性的、互相幫助的這種實際上的功德的關係，或者說這個關係能配得上我們新中國聯邦的這種實際的關係，我們也不想參與。
+發佈時間: 2020年6月14日
 
-新中國聯邦我們會在世界上最起碼兩到三個地方買島、買地，我們買地的條件很清楚：低於兩百萬（平方）公里的不考慮，低於兩百萬公里的不考慮，大家要記住啊，那麼包括我們建立新中國聯邦的這些國家基地呢，我們希望和當地的這種所有的氣候、地理、人文、歷史、安全，還有人文文化確實能建立一個美麗的、富饒的新中國聯邦，這是關鍵的地方，為未來沒有共產黨的新中國再做好準備，海外永遠的、永恆的諾亞方舟，同時成為協力廠商力量，監督沒有共產黨的中國，真正地走向一個法治自由、信仰自由、以法治國與西方和世界可以創造千年和平的這麼一個關鍵的監督和推動的這麼一個機構，大家認真學習我們新中國聯邦當時的宣言。
+On this day in 1775, the Second Continental Congress established the Continental Army to fight for our Nation’s independence. In the 245 years since, the United States Army has helped defend our freedom all over the world and has made countless contributions to our Nation’s security and the American way of life. Today, we recognize the United States Army for its many achievements and pay tribute to all those who have served in America’s oldest military branch.
 
-說到這兒，我們在歐洲，我們會建立多個基地，現在全面運作中，我們會在義大利，有我們GFASHION的生產、設計中心，我們正在考慮把班農先生的那個班農學院的那個建築給拿過來，他已經答應了，我們要在米蘭要建立一個建築、藝術、服裝、文化大學，你看我們加拿大的文可女士，我們要讓她跑去組建這個去，這個地方就是把一整個義大利的設計，包括建築設計、服裝設計、首飾，各種設計，建築還有文化，包括飲食文化，包括現代的各種文化，然後我們會在裡邊有一個宗教大學，叫宗教的學院吧，會在那裡，愛的學院也好，還是宗教學院也好，因為義大利太有資格了（沒聽懂這個詞，不確認是這個詞），那麼在這個大學呢，在山頂上，非常之漂亮，很美，非常之棒，很獨特，我相信很多中國人會喜歡。
+1775年的今天,第二屆大陸會議成立了大陸軍,為我們國家的獨立而戰。 在此後的245年裡,美國陸軍説明在世界各地捍衛了我們的自由，併為我國的安全和美國的生活方式作出了無數貢獻。 今天,我們表彰美國陸軍的諸多成就,並向所有在美國最古老的軍種中服役的人致敬。
 
-接下來的大學會成立，那麼現在呢鳳凰城也找我們，希望在那兒建立大學，我們在考慮當中，包括現在的德國，我們最好的合作機構，未來你們會看到，共產黨會嚇傻的，德國有一個大學願意和我們新中國聯邦聯姻，在他的大學裡邊專門建一個新中國聯邦系。 所以說接下來呀，整個新中國聯邦需要大量的這種各樣的教育人才、藝術人才、工程技術人才，還有一個包括涉及到國防、安全、國際關係、外交，各方領域合作，特別是金融，我們這個金融這塊，接下來GDOLLAR、GCOIN會在歐洲建立兩個基地，會在日本建立一個基地，美國建立兩個基地，主要是負責，包括澳大利亞，澳大利亞肯定會建立一個基地，我們主要是把GCOIN、GDOLLAR跟這些國家全面的進行運作，現在得到了各國全面的支援，這真的是超出我們的想像，新中國聯邦成立到現在十多天的時間，大家都看到了，無論在哪個領域的影響，都超出了我們的想像，我們不想說太多，咱們往前走著看，這是非常重要的，這個金融機構，所以大家有這個區塊鏈、貨幣還有傳統金融、國際金融有瞭解的，也可以跟我們聯繫，大家記住這接下來一步一步所有的公告和招聘都會在蓋特上公佈出來。（以下略）】
+This year marks the 75th anniversary of the conclusion of World War II—a monumental struggle between the forces of freedom and tyranny. In both the European and Pacific Theaters, the United States Army was critical to the success of the Allied Forces. The historic triumph came at a somber price, as the Army bore the brunt of the fighting—and human cost—of our Nation’s contribution to victory in the war. As we celebrate the United States Army’s incredible accomplishments, we also pause to remember those Soldiers who laid down their lives to defend our freedom and protect their fellow Americans.
+
+今年是第二次世界大戰結束75周年。那是一場自由與暴政力量之間的不朽鬥爭。 在歐洲和太平洋戰場上，美國陸軍對盟軍的成功至關重要。 歷史性的勝利是以沉痛的代價換來的，因為陸軍承擔了我們國家為戰爭勝利所做貢獻的主要的戰鬥和人力成本。 在我們慶祝美國陸軍令人難以置信的成就的同時，我們也停下來紀念那些為捍衛我們的自由和保護美國同胞而獻出生命的士兵們。
+
+As our Nation continues to face the threat of the coronavirus pandemic, we acknowledge the important role the Army has played in the all-of-America response effort. The United States Army, Army National Guard, and Army Reserve Soldiers helped mount a nationwide response to this crisis that truly embodies their motto of “This We’ll Defend.” In New York, the United States Army Corps of Engineers created and converted alternate care facilities, providing extra space for thousands of patients. In Washington State, Army healthcare professionals deployed to provide medical support against the emergent virus. And, in Maryland, researchers with the United States Army Medical Research and Development Command have worked tirelessly to develop coronavirus countermeasures. From coast to coast, the incredible support of our Soldiers reminds us that no fighting force rivals that of the United States of America.
+
+當我們的國家繼續面臨冠狀病毒大流行的威脅時,我們感謝陸軍在全美國的應對努力中發揮了重要作用。 美國陸軍、陸軍國民警衛隊和陸軍後備役説明發動了全國範圍內的危機應對行動，真正體現了他們的座右銘 “我們將捍衛”。 在紐約,美國陸軍工程兵部隊建立並改造了備用護理設施，為數千名患者提供了額外的空間。 在華盛頓州,陸軍醫護人員被派去提供醫療支援，以對抗新出現的病毒。 而在馬里蘭州，美國陸軍醫學研究與發展司令部的研究人員為開發冠狀病毒對策而不懈努力。 從東海岸到西海岸，我們的士兵所提供的令人難以置信的支援提醒著我們，沒有任何一支戰鬥力可以與美利堅合眾國的相媲美。
+
+This year, we celebrate our brave Soldiers—active, guard, and reserve, past and present—who are willing to put themselves in harm’s way and make the ultimate sacrifice for our country during times of both war and peace. As Commander in Chief, I join a grateful Nation in wishing the United States Army a happy 245th birthday.
+
+今年,我們為我們勇敢的士兵們慶祝。無論是現役的、後備的和預備役的,過去的和現在的，他們在戰爭與和平時期都願意讓自己置身於危險之中,為我們的國家做出最大的犧牲。 作為總司令，我和全國人民一起祝願美國陸軍245歲生日快樂。
+
+白宮原文：[Presidential Message on the 245th Birthday of the United States Army](https://www.whitehouse.gov/briefings-statements/presidential-message-245th-birthday-united-states-army/)
+
+*翻譯：【恆久忍耐】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
