@@ -1,113 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共黨媒高官威脅與安提法領袖舉行會議
-`2020-06-15 00:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/234280/)
+## 廣西南湖警方百般呵護的涉強姦搶劫案民警韋*照究竟有什麼來頭
+`2020-06-15 01:01 Diago` [轉載自GNews](https://gnews.org/zh-hant/234391/)
 
-*文章來源：The National Pulse.*
+作者：Diago
 
-*原文作者：娜塔莉·溫特斯 （Natalie Winters） 2020年6月9日*
+據[南湖派出所：“線上線下”打造群防群治新模式，警民同心共建和諧社區](http://gaj.nanning.gov.cn/jmhd/gayw/t2992349.html)發佈時間：2019-08-16 09:36來源：南寧警方微信號——
 
-*翻譯/簡評：1818*
+【“發動和依靠群眾”是公安工作的根基，南寧市公安局南湖派出所堅持以群眾路線為出發點，深入學習“楓橋經驗”，積極創建“楓橋式公安派出所”。在派出所武裝巡防、社會面群防的基礎上，還通過組建社區聯合群防隊伍、建立聯合群防互聯網微信平臺，通過“線上”和“線下”緊密結合，依託轄區安防力量，形成大群防格局，有效開展警務工作，有效延伸基層治安防控觸角，消除治安盲點，為警民同心共建和諧社區，為轄區平安穩定提供優質警務服務。】
 
-*PR: left gun*
+在這篇文章發佈兩周後的2019年8月30日，南寧市公安局南湖派出所就對來自四川成都的章女士上門提供便衣“警務服務”了，據[女子自稱遭廣西一民警入室毆打強制猥褻！警方不予立案，檢方已介入](http://baijiahao.baidu.com/s?id=1669431400880342619&amp;wfr=newsapp) ：環球網發佈時間：06-1408:10環球網官方帳號——
 
-**簡評：**
+【2019年8月30日晚9時左右，來自四川的章女士租住在南寧市青秀區一公寓時，突遭一男子闖入，對她進行辱駡、毆打、強制猥褻後，還拿走其5000元現金……】，我們一定要看清楚這篇文章裡的每一個字和詞，在這裡我們看到“強制猥褻”和“拿走其5000元現金”；下面我們按時間順序把這篇文章敘述的事實進行回顧：
 
-將香港和平抗議行動與美國現今的Antifa暴力及騷亂行動相提並論的人不是蠢就是壞。香港民眾一年多來始終以自發和平上街抗議的方式表達自己爭取自由的五大訴求，哪怕遇到中共黑警暴力鎮壓，付出慘痛的流血及生命代價，也未曾失去理智訴諸暴力抗爭。反觀從明尼蘇達州開始席捲美國，高舉Black Live Matter反歧視正義大旗的Antifa暴動，行的卻是打砸搶燒等犯罪之事，背後嚴密的組織運作，極具煽動性的宣傳及利誘手段無不體現與中共體制一致的假，騙，黑本質。
+【章女士稱，她於去年8月30日入住該公寓，當晚8時30分左右，她點了外賣。9時許響起敲門聲，她以為是送餐小哥就開了門。沒想到，從門外沖進來一名男子。“他進來就對我辱駡，打我耳光。”章女士回憶，由於事發突然，她被嚇懵了。在打了她耳光後，男子還拉下褲子對其進行強制猥褻。】，文中未提到男子拉下的是他自己的褲子還是章女士的褲子，但是不管是拉下誰的褲子，不管是用什麼樣的方式，這絕對不是猥褻！也不是“強制猥褻”，如果非要用一個委婉的詞兒，就是“強制發生不正當行為”。
 
-本文一陣見血地指出像陳衛華這類的中共黨媒大外宣及其附屬的偽民運人士一貫的宣傳伎倆，不外乎偷換概念，避重就輕，否認事實，顛倒邏輯，目的就在於混淆視聽，轉移重點，讓民眾分不清哪些是真哪些是假，在他們合力築起的外宣「九層妖塔」下迷失，從而更加順從地被蒙蔽，被欺騙，被利用，淪為被剝削的韭菜。香港抗議和美國暴動，再次給各國政府敲響警鐘：中共不除，人類將失去信仰，泯滅人性；中共不除，不論是香港，台灣，大陸還是美國，歐洲，世界上將不會再有安生淨土！如新聯邦中國的宣言中所說：滅共是人類正義的需要！
+【男子施暴途中，章女士擔心對方繼續傷害自己，便數次主動提出給錢，要求男子離開。“我不斷求饒，答應給他5000元，他才住手。”章女士說，男子一直控制著她的手機和身份證。送餐小哥敲門，男子躲在門邊沒有說話，驚惶的她在門口取了餐，不敢呼救也不敢趁機逃走。】，這裡提到施暴，哪怕中間有快遞小哥送餐上門，男子依然控制著章女士的手機和身份證，而且等到【強制猥褻結束後，男子拿著她的手機和身份證，和她一起乘計程車趕到中國銀行南寧琅東支行，她取了5000元錢給男子後，男子才放過她。】，結合上文加上這裡“強制猥褻結束後”，我判斷是男的拉下自己的褲子，並與章女士發生了克林頓總統和萊溫斯基的那種行為，可是這到底算不算發生性關係呢？這個問題克林頓總統有克林頓總統的辯詞，在我們中文世界裡，我們用的詞是“猥褻”考慮到“猥褻”是基於一方強制另一方被迫，所以變成“強制猥褻”，而不是“強姦”！而男子隨後與章女士一起乘計程車， 在章女士“取了5000元錢給男子後，男子才放過她。”，這個過程到底是搶劫還是別的什麼罪名？【據南寧市南湖警方信訪部門出具的法律文書顯示：章女士的報警時間是2019年8月30日晚11時50分。事發第二天，章女士在朋友陪同下，先後在南湖派出所和南湖公安分局做筆錄。接受警方調查時，有民警拿出10多張黑白人像照片，讓章女士辨認。】 在章女士2019年8月30日晚11時50分報警和2019年8月31日先後在南湖派出所和南湖公安分局做完筆錄，並指認出“強制猥褻”和“拿走”章女士5000元錢的就是南湖派出所的警員韋\*照後，她接到了廣西南寧市公安局南湖分局《不予立案通知書（南公湖不立字（2019）00142號》，這份共匪的法律文書上寫著——
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15005731/EaYoXR8VAAUv6ie.jpg)
+【你（單位）於2019年8月31日提出控告的章\*\*被敲詐勒索案，我局經審查認為經查，嫌疑人確實是民警，目前該案紀檢部門已立案調查，案件正在調查中，根據《中華人民共和國刑事訴訟法》第一百一十二條之規定，決定不予立案。如不服本決定，可在收到本通知書之日起七日內向南湖分局申請覆議。】，請注意，這是共匪的法律文書：“我局經審查認為經查”，這是什麼屁話？共匪的法律文書確定是用規範中文書寫？不是外星文？；那麼根據《中華人民共和國刑事訴訟法》第一百一十二條是怎麼說的呢：【第一百一十二條 對立案材料的審查和處理　立案的條件人民法院、人民檢察院或者公安機關對於報案、控告、舉報和自首的材料，應當按照管轄範圍，迅速進行審查，認為有犯罪事實需要追究刑事責任的時候，應當立案；認為沒有犯罪事實，或者犯罪事實顯著輕微，不需要追究刑事責任的時候，不予立案，並且將不立案的原因通知控告人。控告人如果不服，可以申請覆議。】，也就是說韋某照在2019年8月30日晚對於章女士的“強制猥褻”和“拿走5000元錢”要麼“沒有犯罪事實”，要麼“犯罪事實顯著輕微”，故“不需要追究刑事責任”、“不予立案”。
 
-## **中共黨媒高官威脅要與安提法（ANTIFA）和黑人的命也重要（BLM）的領袖舉行會議**
-![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
-中共國官方新聞機構《中國日報》歐洲分部部長提議，中國共產黨（CCP）領導人邀請導致全美騷亂和暴動的極左武裝組織”安提法”（Antifa）到北京召開會議，或駐美的中共官員在華盛頓會見該組織。
+【事後，章女士曾向一位成都律師求助並講述了事發經過。該律師稱，受害人（即章女士）自稱此前確實不認識涉案男子，但她被該涉案男子懷疑有違法行為。男子進入房間後，辱駡並質疑她從事賣淫違法活動，並控制她的手機和身份證。涉案男子在受害人行李箱中，翻出10多個避孕套。受害人承認，在涉案男子進入房間前，有3名陌生男子先後出入過607號房間。】，這一段無非是暗示章女士的身份，可是哪怕章女士願意讓一百個異性進入她的房間，她的包裡放著一萬個避孕套，在違背她意願的情況下就可以發生疑似克林頓總統和萊溫斯基那樣的“猥褻”行為嗎？而且是“強制猥褻”！
 
-以上評論來自川普的[長期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批評家陳衛華，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大學新聞學及[喬治·索羅斯資助](https://worldpressinstitute.org/about-us/sponsors/)的世界新聞研究所的研究員，同時他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不僅是因為他不斷地輸出[政權大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，還因為《中國日報》是中共自己[宣傳部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所擁有及經營的。
-![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
-對喬治·弗洛伊德之死的和平抗議，[在某些情況下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa組織的介入迅速演變為暴亂。該組織在2020年前採取有據可查的侵略性策略，促使川普總統[宣佈](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)將該組織定義為恐怖組織。安提法AntiFa是一個[國際性](https://thenationalpulse.com/commentary/22135/)和[嚴密的](https://intlantifadefence.wordpress.com/)組織，因其暴力行動和[意圖](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)從已被定義的伊斯蘭恐怖組織，包括ISIS和基地組織採購武器而被聯邦調查局所盯緊。AntiFa被稱為左翼無政府主義組織，但許多成員也同時與共產主義有[來往](https://time.com/5437204/antifa-history-comic/)，也就是中國共產黨（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意識形態。
-![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
-川普
+【章女士稱，在警方做完筆錄後，有人將5000元現金退還給她，也有民警向她承諾會秉公處理。隨後章女士返回成都。】，至此，我得出結論，這個韋某照其實是沒有“規範執法”，他應該先亮明身份，然後把章女士帶到派出所，然後做好章女士賣淫的筆錄，然後罰款。可是這樣一來，那罰款可就歸派出所公貪了，他自己肯定得不到全額，而且在派出所裡進行“強制猥褻”似乎也不如直接在章女士房間裡方便。也就是說這個韋\*照把共匪搶劫的路子做得“過界”了，在匪警界，本來就是這樣辦案的，既“合法”搶了錢，還能增加匪警的辦案業績，為人民保了“平安”。 【“我報案是嫌疑人強制猥褻婦女和搶劫，他們給我的文書是敲詐勒索。”章女士不服，此後前往南湖公安分局信訪部門信訪要求立案。】，原來“強制猥褻”是章女士自己報案時的名詞，好吧，在章女士看來這是“強制猥褻”，可是我要問一下章女士，“猥褻”有沒有不強制的？有沒有自願被“猥褻”的，不過南湖公安機關不傻，所以他們不會告訴章女士，這不叫“猥褻”，更不叫“強制猥褻”，這就叫“《中華人民共和國刑事訴訟法》第一百一十二條”，我也不傻，這就叫“強姦”！那麼信訪是如何答覆的呢——
+![https://pics4.baidu.com/feed/203fb80e7bec54e7c658a1f38bcc4b564dc26aa6.jpeg?token=e64cbd82a299fc56c7e9324dcd1b12dd](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15005750/203fb80e7bec54e7c658a1f38bcc4b564dc26aa6.jpeg)
+據南寧市公安局南湖分局2020年4月26日出具的《不受理信訪事項告知書——南公湖（信）不受字【2020】25號》：【經審查，南湖分局已於2019年9月29日做出不予立案決定，根據《信訪條例》第二十一條第一款第一項《公安機關信訪工作規定》第二十二條一款的規定，該信訪事項屬於下列第3項情形：3、應按法定程式身青秀區人民檢察院提出，不予受理；】
 
-美國將把ANTIFA指定為恐怖主義組織。
+【據章女士介紹，此後她接到警方通知，又回了一趟南寧。這次，嫌疑人韋某照的家屬和她見面，提出可以私下補償她幾千元到一萬元左右，遭到章女士的拒絕。在朋友建議下，章向對方提出了20萬元的補償要求，但對方最終只肯拿出2.6萬元，雙方不歡而散。】，在章女士不依不饒之下，共匪官方不見鬆口之餘，匪兵甲開始私下要和解了，只是數目談不攏，是啊，本來是老子辦你，現在你辦老子，老子還要出20萬元？做夢吧！ 【章女士仍然不服，對《不予立案通知書》提出覆議。今年5月9日，廣西南寧市公安局南湖分局作出“南公湖刑複字（2020）00013號”《覆議決定書》，認為：該案紀檢部門已立案調查，案件正在調查中。因此決定維持原（不予立案）決定。】
+![https://pics0.baidu.com/feed/b8389b504fc2d562734e7766c9e540e974c66cf6.jpeg?token=1a8c0446a56967e5be0ef3d869501a8e](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15005810/b8389b504fc2d562734e7766c9e540e974c66cf6.jpeg)
+根據該份廣西南寧市公安局南湖分局《覆議決定書——南公湖刑複字（2020）00013號），【經審查，認為該案紀檢部門已立案調查，案件正在調查中。根據《公安機關辦理刑事覆議覆核案件程式規定》第一百一十二條之規定，決定維持原決定。】，這份覆議決定書，明白無誤的告訴我們，只要我們自己開始用家法查我們的家丁了，國法的追訴不再受理！那麼為什麼不能立案呢？按我的判斷，如果立案，那麼就必屬刑事案件，而一旦扯上刑事責任，那個匪警韋\*照的老虎皮就被扒了，匪警除了強制“為人民服務”還真不會幹別的，哦，不對，他還會“強制猥褻”和“拿人家5000塊錢”，不過這個本領不被匪警官方所認定，所以這條本領只代表作者個人觀點。
 
-中共官方媒體賬號——[包括陳衛華](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒體賬號——正在為該組織造成的混亂而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
+【章女士後來曾打電話到南湖警方瞭解情況，對方告訴她韋某照已經被公安機關開除。6月12日，南湖公安分局南湖派出所民警告訴記者：韋某照已不在南湖派出所，調到了南湖公安分局治安大隊。此後，南湖公安分局民警向記者證實，韋某照沒有被開除。】，這一點驗證了筆者的猜想，共匪一路的不予受理，必定是為了保住匪警韋\*照的老虎皮，這個韋\*照有來頭！ 那麼韋\*照究竟是哪一個呢？我們來看一下[南湖派出所：“線上線下”打造群防群治新模式，警民同心共建和諧社區](http://gaj.nanning.gov.cn/jmhd/gayw/t2992349.html)發佈時間：2019-08-16 09:36     來源：南寧警方微信號發佈文章裡配的匪警全家福，讓我們記住他們——
+![调整大小 微信图片_20190816091251.jpg](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15005826/W020190816346690428542.jpg)
+我相信韋\*照就在第一排之後，我更相信韋\*照的背景絕對在第一排之上!
 
-陳衛華提出這一想法是為了回應他聲稱的一幅圖片，圖片中一位”美國駐香港外交官””被拍到正會見香港抗議領袖”，這與中共官方媒體和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，讓爭取自由的香港人的訴求失去合法性。
-![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
-陳衛華
+注：篇首視頻來源——
 
-這真是尷尬。Julie Eadeh，美國駐港外交官員被拍到和香港抗議領袖見面。如果中共外交官和「佔據華爾街「，」黑人的命也重要「或者」川普下台「的抗議者會面的話，很難想象美國是什麼反應。
+[紅星視頻](https://weibo.com/1908194624?refer_flag=1001030103_)[紅星視頻](https://weibo.com/1908194624?refer_flag=1001030103_)[6月13日 18:30](https://www.weibo.com/1908194624/J6te4f5jD?from=page_1002061908194624_profile&amp;wvr=6&amp;mod=weibotime)   來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
 
-Du Bois和Huey Newton這樣的黑人領袖曾在1950和1960年代末到訪中國。如果中國如今邀請Black Live Matter（黑人的命也是命）運動或者安提法Antifa領袖到北京，或者中共駐美官員在抗議進行中時在華盛頓特區會見他們，就像上圖美國官員所做的那樣。想象一下華盛頓（政府）會有什麼樣的反應。
+【南寧一女子稱遭民警入室毆打強制猥褻 警方不予立案，檢方已介入】2019年8月30日晚9時左右，一名男子突然闖入章女士租住的廣西南寧市青秀區豐澤公寓607號房內，對她進行辱駡、毆打、強制猥褻後，還拿走其5000元現金。
+事發後，章女士前往事發地轄區南寧南湖警方報案，警方調查發現嫌疑人韋某照竟然是南湖派出所民警。章女士告訴紅星新聞記者，在警方做完筆錄後，有人將5000元現金退還給她，也有民警向她承諾會秉公處理。但章女士要求南湖警方立案未果，警方向她出具的《不予立案通知書》稱：“……我局經審查認為，經查，嫌疑人確實是民警。目前，該案紀檢部門已立案調查，案件正在調查中。根據《刑事訴訟法》第一百一十二條之規定，決定不予立案。”
+章女士告訴紅星新聞記者，後來她打電話到南湖警方瞭解情況，對方告訴她韋某照已經被公安機關開除。
+南湖公安分局一位知情民警稱，據她瞭解，韋某照確實沒有被開除，是事發後被（南寧）市（公安）局紀委撤銷了員警身份，“他不再是員警，但還是公務員，不過我也沒看到市局紀委的文件。”
+今年5月向南寧市青秀區人民檢察院遞交了《立案監督申請書》，請求該院監督南湖公安分局，對韋某照刑事立案。
+今年6月12日，紅星新聞記者從廣西南寧市青秀區人民檢察院瞭解到，目前檢察院已正式受理章女士提交的“立案監督申請”，此案件正在辦理之中。[L紅星視頻的秒拍視頻](http://t.cn/A6LABVRX) [收起全文d](void%280%29;)（引用視頻為此微博視頻）
 
-他建議的行為不僅與川普總統明確否認該組織的行為相矛盾，而且還給一個即將成為[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖組織正名。
-
-- [About WordPress](https://gnews.org/wp-admin/about.php)
-- [Gnews](https://gnews.org/zh-hans/)
-- [8585 Comments in moderation](https://gnews.org/wp-admin/edit-comments.php)
-- [New](https://gnews.org/wp-admin/post-new.php)
-- [View Post](https://gnews.org/zh-hans/232261/)
-- SEOEnter a focus keyphrase to calculate the SEO score
-- ![](https://gnews.org/wp-content/uploads/flags/zh.png) 中文简体
-- [Howdy, 喜馬拉雅戰鷹團 Himalaya Hawk Squad](https://gnews.org/wp-admin/profile.php)
-
-
-[Log Out](https://gnews.org/press_admin?action=logout&amp;_wpnonce=4492455ac2)
-
-# Edit Post
-
-Switch to draft[Preview(opens in a new tab)](https://gnews.org/zh-hans/232261/?preview=true&amp;_thumbnail_id=232313)Update▲ Add title
-
-*文章來源：The National Pulse.*
-
-*By Natalie Winters June 09, 2020*
-
-*原文作者：娜塔莉·温特斯 2020年6月9日*
-
-*翻译/简评：1818*
-
-*PR: left gun*
-
-**简评：**
-
-将香港和平抗议行动与美国现今的Antifa暴力及骚乱行动相提并论的人不是蠢就是坏。香港民众一年多来始终以自发和平上街抗议的方式表达自己争取自由的五大诉求，哪怕遇到中共黑警暴力镇压，付出惨痛的流血及生命代价，也未曾失去理智诉诸暴力抗争。反观从明尼苏达州开始席卷美国，高举Black Live Matter反歧视正义大旗的Antifa暴动，行的却是打砸抢烧等犯罪之事，背后严密的组织运作，极具煽动性的宣传及利诱手段无不体现与中共体制一致的假，骗，黑本质。
-
-本文一阵见血地指出像陈卫华这类的中共党媒大外宣及其附属的伪民运人士一贯的宣传伎俩，不外乎偷换概念，避重就轻，否认事实，颠倒逻辑，目的就在于混淆视听，转移重点，让民众分不清哪些是真哪些是假，在他们合力筑起的外宣“九层妖塔”下迷失，从而更加顺从地被蒙蔽，被欺骗，被利用，沦为被剥削的韭菜。香港抗议和美国暴动，再次给各国政府敲响警钟：中共不除，人类将失去信仰，泯灭人性；中共不除，不论是香港，台湾，大陆还是美国，欧洲，世界上将不会再有安生净土！如新联邦中国的宣言中所说：灭共是人类正义的需要！
-
-**原文：**
-
-### **中共党媒高官威胁要与安提法（ANTIFA）和黑人的命也重要（BLM）的领袖举行会议**
-![This image has an empty alt attribute; its file name is FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/FD8C2723-3146-4B90-AAC6-7808ED5074EB.jpg?asset_id=4B69690A-635D-44DB-8065-851D75DDF2A7&amp;size=2560)
-中共国官方新闻机构《中国日报》欧洲分部部长提议，中国共产党（CCP）领导人邀请导致全美骚乱和暴动的极左武装组织”安提法”（Antifa）到北京召开会议，或驻美的中共官员在华盛顿会见该组织。
-
-以上评论来自川普的[长期](https://news.yahoo.com/china-daily-bureau-chief-trump-214706765.html)批评家陈卫华，他也是[斯坦福](https://jsk.stanford.edu/fellows/class-of-2005/)大学新闻学及[乔治·索罗斯资助](https://worldpressinstitute.org/about-us/sponsors/)的世界新闻研究所的研究员，同时他是中共的外宣[喉舌](https://www.chinafile.com/contributors/chen-weihua)。不仅是因为他不断地输出[政权大外宣](http://www.chinadailyasia.com/article/131424#Divisive-letter-to-WHO-will-fail-like-other-US-evil-designs)，还因为《中国日报》是中共自己[宣传部](https://www.rickscott.senate.gov/sen-rick-scott-us-media-stop-collaborating-communist-chinese-publication-china-daily)所拥有及经营的。
-![This image has an empty alt attribute; its file name is 0e6edee4-409a-4e17-8eb6-bac62fb9d147.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/0e6edee4-409a-4e17-8eb6-bac62fb9d147.png?asset_id=e52a801c-656a-41af-9089-6616dca183a1&amp;img_etag=%22655858480dcea860eb4d77c4814d5767%22&amp;size=2560)
-对乔治·弗洛伊德之死的和平抗议，[在某些情况下](https://abcnews.go.com/Politics/ag-barr-evidence-antifa-foreign-actors-involved-sowing/story?id=71066996)，已因安提法Antifa组织的介入迅速演变为暴乱。该组织在2020年前采取有据可查的侵略性策略，促使川普总统[宣布](https://twitter.com/realDonaldTrump/status/1267129644228247552?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267129644228247552&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fnews%2Fcis-director-cuccinelli-antifa%2F)将该组织定义为恐怖组织。安提法AntiFa是一个[国际性](https://thenationalpulse.com/commentary/22135/)和[严密的](https://intlantifadefence.wordpress.com/)组织，因其暴力行动和[意图](https://thenationalpulse.com/news/cis-director-cuccinelli-antifa/)从已被定义的伊斯兰恐怖组织，包括ISIS和基地组织采购武器而被联邦调查局所盯紧。AntiFa被称为左翼无政府主义组织，但许多成员也同时与共产主义有[来往](https://time.com/5437204/antifa-history-comic/)，也就是中国共产党（CCP）的主流及[致命](https://www.wsj.com/articles/100-years-of-communismand-100-million-dead-1510011810)的意识形态。
-![This image has an empty alt attribute; its file name is A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg](https://spark.adobe.com/page/ha56qwdUmq8Va/images/A8B29F60-1130-437E-88BA-F3B8C12D4F97.jpg?asset_id=5C512194-1280-480A-A40B-BABDABCD2A89&amp;size=2560)
-川普
-
-美国将把ANTIFA指定为恐怖主义组织。
-
-中共官方媒体账号——[包括陈卫华](http://global.chinadaily.com.cn/a/202006/04/WS5ed8a8bfa310a8b24115aec6.html)的媒体账号——正在为该组织造成的混乱而[沾沾自喜](https://www.politico.com/news/2020/06/02/chinese-propagandists-seize-on-george-floyd-protests-295662)。
-
-陈卫华提出这一想法是为了回应他声称的一幅图片，图片中一位”美国驻香港外交官””被拍到正会见香港抗议领袖”，这与中共官方媒体和中共本身的大外宣[口徑](https://news.cgtn.com/news/2019-09-04/Who-are-really-organizing-the-events-in-Hong-Kong--JIiz9ysRKE/index.html)一致，让争取自由的香港人的诉求失去合法性。
-![This image has an empty alt attribute; its file name is 5231160e-5483-4702-8a0d-c16515bcf754.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5231160e-5483-4702-8a0d-c16515bcf754.png?asset_id=27db548e-b29a-4c3c-8386-fcbaa0c34efd&amp;img_etag=%228bb3f7e761294bff6d8a9ba947d5f874%22&amp;size=2626)![This image has an empty alt attribute; its file name is bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/bd229eda-fb60-4b0b-8eae-a7a79e01ddcd.png?asset_id=46f5fea6-9dee-448f-b9b7-f36fac184512&amp;img_etag=%2288913a1b346e24b2a12325400a55dd8f%22&amp;size=2560)
-陈卫华
-
-这真是尴尬。Julie Eadeh，美国驻港外交官员被拍到和香港抗议领袖见面。如果中共外交官和“占据华尔街“，”黑人的命也重要“或者”川普下台“的抗议者会面的话，很难想象美国是什么反应。
-
-Du Bois和Huey Newton这样的黑人领袖曾在1950和1960年代末到访中国。如果中国如今邀请Black Live Matter（黑人的命也是命）运动或者安提法Antifa领袖到北京，或者中共驻美官员在抗议进行中时在华盛顿特区会见他们，就像上图美国官员所做的那样。想象一下华盛顿（政府）会有什么样的反应。
-
-他建议的行为不仅与川普总统明确否认该组织的行为相矛盾，而且还给一个即将成为[暴力的](https://www.fox7austin.com/news/travis-county-da-three-members-of-antifa-arrested-for-looting-austin-target-store)恐怖组织正名。
-![This image has an empty alt attribute; its file name is 5d067fd7-5c0f-48df-b73c-7a68fb76154a.png](https://spark.adobe.com/page/ha56qwdUmq8Va/images/5d067fd7-5c0f-48df-b73c-7a68fb76154a.png?asset_id=857d73ba-4ea2-4e2e-958f-adf3d48460b4&amp;img_etag=%2263148ef78f89db1ab5ba3d215610dc5b%22&amp;size=2560)
-傑克·坡索比克
-
-引用陳衛華的推特：中共黨媒建議中共邀請安提法Antifa領袖去北京
-
-雖然安提法AntiFa表面上會批評中共的[種族主義](https://thediplomat.com/2020/04/racism-is-alive-and-well-in-china/)和[糟糕的](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html)人權現狀，但該組織在意圖搞垮美國這個問題上與中共政權是一丘之貉。
-
-[文章鏈接](https://thenationalpulse.com/news/antifa-ccp-beijing-meeting/)
-
-#### [**編輯****【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/ha56qwdUmq8Va/)
+（文章內容僅代表作者個人觀點）
 
 0
