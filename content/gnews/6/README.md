@@ -1,21 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】14/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-15 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/235209/)
+## 活佛原來是政協，和黨雙修被解決？
+`2020-06-16 00:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/235416/)
 
-戰友之家圖文摘要組及小語種組
+**作者：玉米地大姐**
 
-[English\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0614_CCP_Virus_Updates.pdf)
+四川省委統戰部微信公號“同心四川”6月15日發布消息。
 
-[French\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0614_CCP_Virus_Updates.pdf)
+【四川依法依規廢除一“活佛”名號】單交，原法名色拉陽智·洛桑丹比卓美，原甘孜州色達縣色拉寺活佛。長期熱衷于非法斂財，觸犯國法、違背教規、生活腐化。
 
-[German\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0614_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0614_CCP_Virus_Updates_-.pdf)
+2013年因犯敲詐勒索罪被判處有期徒刑一年三個月，緩刑一年六個月；2019年7月因購買僞造結婚證騙取成都戶籍，被成都市錦江區人民法院以僞造國家機關證件罪判處有期徒刑八個月。
 
-[Japanese\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0614_CCP_Virus_Updates.pdf)
+根據《宗教事務條例》《宗教教職人員備案辦法》等相關規定，單交被依法撤銷政協委員資格，取消其宗教教職人員身份，廢除活佛名號。
 
-[Korean\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0614_CCP_Virus_Updates.pdf)
+![](https://gnews.org/wp-content/uploads/2020/06/2-122.jpg)
 
-[Spanish\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0614_CCP_Virus_Updates.pdf)
+看罷這則消息吃驚不小，重新刷新了我對活佛的認知，原來佛號都是黨給的，更不可思議的是這位活佛2013年第一次被判刑，2019年再次被判刑，這期間是怎麽加入政協的？
+
+網上查不到單交活佛的其他資料，從官方發布的消息推測，這位單交是名符其實的善交，橫跨佛界與政界，就不怕遭佛祖報應嗎？和黨搞雙修是把雙刃劍，稍不留神就傷著自身。
+
+![](https://gnews.org/wp-content/uploads/2020/06/3-71.jpg)
+
+發布消息沒有公布單交具體罪證，究竟是被冤枉還是真有罪不得而知。可以確定是，肯定得罪了領導，否則不會活佛、政協委員稱號雙雙被摘下。
+
+中共盜取政權後諸神退位一黨獨大，宗教界成了黨的利用工具，免去了托缽化緣之憂的同時，其言行舉止與佛祖漸行漸遠。
+
+被黨任命爲宗教界領袖者大都是秘密黨員，這是公開的秘密。諸如佛教協會會長趙樸初，天主教愛國會的主席傅鐵山、基督教三自愛國會丁光訓等。
+
+改革開放後，和尚們成了黨的斂財和雙修工具，索性脫掉袈裟，大言不慚的爲黨擡轎子、唱贊歌。
+
+前幾年名噪一時的中共佛教協會副會長印順，說十九大報告是“當代佛經”、“共産黨就是現世的佛菩薩”。這麽肉麻的吹捧就連偉大的黨聽了都有點不好意思，下令刪除相關報道。
+
+![](https://gnews.org/wp-content/uploads/2020/06/4-44.jpg)
+
+這還不算，早前中共舉辦“中佛協直屬寺院教職人員研修班”，舉辦地點更是搞笑，不是寺院，而是中央社會主義學院，出席者就有印順大和尚。
+
+據媒體報道，此次培訓學員共51人，安排有《全球宗教問題：比較宗教研究與世界宗教對話》、《中華文化要義：大一統》、《中國共産黨與中華民族偉大複興》等課程，以及現場教學、小組討論等環節。
+
+媒體爆出來的寺院斂財更是屢見不鮮。如北京戒台寺功德箱斂財，背後金主是某上市公司。戒台寺景區新年鍾聲的前三記分別以5萬元、1萬元和5000元人民幣的拍賣價售出。
+
+和尚道德淪喪更是觸目驚心，以至于中共宗教事務局不得不下發文件整頓寺院腐敗、墮落亂象。要求各地制止佛教寺廟、道教宮觀亂建和各種借教斂財行爲。
+
+文件指出，近年來，寺廟上市被許多地方政府當作打造名利雙收的政績工程。寺廟中亂象頻現，和尚非但不守戒，還被爆出侵占巨額善款、與女性保持性關系的醜聞。
+
+文件稱，不少地方受經濟利益驅動，搞「宗教搭台、經濟唱戲」，其中包括一些寺觀，尤其是風景名勝區的寺觀或被投資經營，或被作爲企業資産上市，或存在強拉或引誘遊客和信衆花高價燒高香、從事抽簽蔔卦等現象。
+
+![](https://gnews.org/wp-content/uploads/2020/06/5-21.jpg)
+
+中共本是毫無信仰的流氓，其治下的所謂宗教信仰則是對宗教的一種亵渎。有道是善惡到頭終有報，不是不報，時候未到。單交活佛就是因果現世報的最好例證。
+
+正是：
+古有僧人佛跳牆
+爲空爲色兩頭忙
+今日和尚心向黨
+吃喝嫖賭毒滿腸
+
+（文章內容僅代表作者觀點）
 
 0
