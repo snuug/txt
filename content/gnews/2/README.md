@@ -1,37 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年世界獻血者日川普總統致辭（中英文對照）
-`2020-06-15 15:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235022/)
+## 緊急！FDA撤消了硫酸羥氯喹的緊急使用權！
+`2020-06-15 20:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/235150/)
 
-**Presidential Message on World Blood Donor Day, 2020**
+**作者：Dogman**
 
-Issued on: June 14, 2020
+美國食品和藥物監督管理局（U.S. Food and Drug Administration ，縮寫FDA）今天早些時候在官網公布，撤銷硫酸羥氯喹（Hydroxychloroquine，縮寫HCQ）的緊急使用權（縮寫EUA）（鏈接1）！
 
-**2020年世界獻血者日總統致辭**
+今年三月份，FDA開放了HCQ的緊急使用權，使得醫生在治療患有CCP病毒的病人時，可以使用HCQ，即使HCQ並不是官方認定有效的治療藥物之一。
 
-發布日期：2020年6月14日
+在筆者與多名醫生與制藥人士交談中了解到，今天FDA撤銷HCQ緊急使用權，將迫使醫生們將無法使用HCQ治療患有CCP病毒的患者，因為繼續使用HCQ治療CCP病毒將會為醫生帶來潛在的法律風險。
 
-Every 2 seconds, someone in the United States is in need of a blood transfusion. On World Blood Donor Day, we thank those individuals who selflessly donate blood to help thousands of hospitals and medical care facilities meet the needs of their patients.
+之前，美國醫生和外科醫生協會（縮寫AAPS）在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接2）。 而根據AAPS提供的科學研究證明，HCQ是目前治療CCP病毒最為有效的藥物（鏈接3,4,5）
 
-在美國，每兩秒鐘就有一個人需要輸血。今天（6月14日）是世界獻血日，我們感謝那些無私捐獻者們，他們幫助了成千上萬醫院和醫療機構滿足患者對血液的需求。
+AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
 
-Over the past several months, the hardships of the coronavirus have lowered our country’s blood and platelet supply to critical levels, and the need to donate blood has never been more acute. With more than 30,000 blood drives canceled since mid-March, those battling severe illnesses or those involved in life-threatening accidents could be in particular danger of not being able to receive the vital care they need. Many of our Nation’s blood banks are operating with depleted stocks, and the majority of them rarely have on hand more than a single day’s supply of Type O blood, which is critical because it can be used to meet the blood needs of any patient. During this challenging time, let us commit to raising awareness of the lifesaving act of donating blood.
+Dogman是堅定的爆料戰友；GTV賬戶為：狗狗警察。
 
-在過去的幾個月裡，在應對冠狀病毒的艱難抗疫中，我國的血液和血小板供應降低到了臨界水平，對獻血的需求也變得前所未有的迫切。自3月中旬以來，由於取消了30,000多個獻血動員活動，那些身患嚴重疾病的人或遭遇危及生命事故的人因無法獲得關鍵的救助，他們的生命變得岌岌可危。我國的許多血庫都是在庫存耗盡的情況中運作的，而大多數血庫中很少有超過一天的O型血供應，而O型血很關鍵，因為它可用於滿足任何患者的血液需求。在這個艱難時刻，讓我們承諾提高獻血這一救命行為的認識。
+鏈接：
 
-I urge all Americans who are healthy and willing to donate blood to do so at a local donation center. Organizations like the American Red Cross and other blood banks have implemented special protocols to protect donors from possible infection. Your blood donations can help minimize the harm inflicted by the coronavirus on our country.
+1. [https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or](https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or)
+2. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/)
+3. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
+4. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
+5. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
 
-我熱切呼籲所有健康且自願鮮血的美國人去當​​地的捐贈中心獻血。像美國紅十字會這樣的機構和其他血庫等組織已經實施了特別的操作規範，以保護捐贈者免受可能的感染。您的獻血可以減少冠狀病毒對我們國家造成的傷害。
 
-Today, the First Lady and I send our sincerest gratitude to both blood donors and those countless individuals who help facilitate donations. These dedicated employees, extraordinary volunteers, and compassionate individuals represent the very best of the American spirit, and our Nation is grateful for your contributions to America’s health and well-being.
 
-今天，第一夫人和我向所有獻血者和無數個幫助促進捐贈行為的人致以最誠摯的謝意。這些敬業的員工們，傑出的志願者們和每個富有同情心的人都代表著美國精神的精髓，我們國家感謝你們為美國的健康和福祉所作的貢獻。
-
-閱讀白宮原文：[https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/](https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/)
-
-*翻譯：【一花一世界】 校對：【班班】*
-
-*戰友之家玫瑰園小隊出品*
 
 0
