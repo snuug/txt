@@ -1,45 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 第一夫人梅拉尼婭·川普宣布美國少年兒童慶祝婦女參政100週年活動
-`2020-06-15 20:49 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235154/)
+## 中共在美國立衛生研究院的深層滲透遭曝光
+`2020-06-16 01:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/235454/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15201304/WH_20200615_Building_the_Movement_figure1.jpeg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/16010836/NIHCampus_NIH-1600x900-1.jpg)*圖片來源：LYDIA POLIMENI/NIH*
+根據美國《科學》雜誌（Science）2020年6月12日的最新報導，科學政策專欄作家杰弗裡·默維斯( [Jeffrey Mervis](https://www.sciencemag.org/author/jeffrey-mervis) )透露，在美國國立衛生研究院（National Institutes of Health or NIH）持續進行的一項調查中，已有54位科學家，由於對NIH隱瞞其與外國政府的財務關係而遭解僱或辭職。其中有93％的案件，其隱密的資金均來自同一家中共國機構。
 
-**美國少年兒童慶祝婦女參政100週年活動**
+杰弗里報道的最新[數據](https://acd.od.nih.gov/documents/presentations/06122020ForeignInfluences.pdf)援引自NIH院外研究主管邁克爾·勞爾（Michael Lauer）的一個演講。勞爾之前曾[發表](https://www.sciencemag.org/news/2019/06/nih-probe-foreign-ties-has-led-undisclosed-firings-and-refunds-institutions)過有關該調查範圍的一些初步信息，如調查對象包含87個機構的189名科學家等。但是他在近日某高級顧問團的演講中，提供了一份最詳細且一針見血對NIH [自2018年8月發起該項調查](https://www.sciencemag.org/news/2019/03/nih-letters-asking-about-undisclosed-foreign-ties-rattle-us-universities)的報告。該份報告震驚了美國生物醫學界，並導致了哈佛大學（Harvard University）化學和化學生物學系主任查爾斯·利伯（Charles Lieber）在內的一些[著名研究人員的被刑事指控](https://www.sciencemag.org/news/2020/01/us-charges-prominent-harvard-chemist-failing-disclose-china-ties)。NIH主任弗朗西斯·柯林斯（Francis Collins)坦言目前所得的數據“令人警醒” 。
 
-頒佈於 2020年6月15日
+勞爾在其演講報告中指出，被調查者大多數為五十多歲的亞裔男子，這“不足為奇”，因為在中共的外國人才招聘計劃中，“這些人就是他們的目標”。其中約有四分之三擁有有效的NIH研究補助金，近一半的人至少擁有兩項補助金。而285筆有效補助金額總計高達1.64億美元。約70％（133）的研究人員未向NIH報告其收取的外國研究金資助，而54％的研究者未披露其參與了中共國千人計劃。相較之下，只有9％的人與外國公司建立了聯繫，有4％的人擁有未公開的外國專利，有5％的案件涉及違反NIH的同行評審制度。在過去兩年中，曾參與NIH同行評審的人數約超過一半，受調查的人中有41％（77名科學家）已被禁止繼續參與NIH備受好評的撥款審查制度。
 
-第一夫人梅拉尼婭·川普很高興地宣布“構建運動：美國青年慶祝婦女參政100年” 的活動，這是一個紀念第19條修正案批准100週年的展覽，該修正案賦予美國婦女選舉權。該展覽將於今年8月推出，將展示年輕的美國描繪這一歷史里程碑的藝術作品。為了打造這個展覽，第一夫人要求美國及其領土上的學生提交作品，描繪代表婦女參政運動的個人、物品和事件。他們的藝術作品將與在白宮內或周圍舉行的婦女參政遊行和集會的圖片一起出現。
+杰弗裡在其文章中指出目前NIH正在努力揭露及阻止一系列被許多政府官員認為會對美國的經濟福祉和國家安全構成了重大威脅的行為。目前在美國國會，已有幾個相關法案正在審議中，包括限制來自中共國的科學人才參於美國聯邦資助的尖端技術和新興產業研究。美國聯邦調查局（FBI）已擴大了調查的範圍並確認有399名科學家可能涉及與NIH相關的研究。
 
-第一夫人梅拉尼婭·川普說：“在我們慶祝第19條修正案100週年之際，讓我們的孩子參與到對話中來是非常重要的，以便他們能夠學習和了解婦女參政運動背後的歷史”。 “幾十年來，女性領導人為美國的平等和選舉權進行遊說、遊行和抗議。我希望這個項目既能支持和擴大正在進行的關於平等的重要對話以及和平抗議活動的影響，同時鼓勵孩子們參與到自己家鄉這場影響深遠的運動背後的歷史中來。”
+評：中共以控制言論風向與盜取科學技術機密為目的，對美國科學界多年來的藍金黃滲透已在此水落石出。美國政府與科學界的警醒無疑將是對中共惡劣行為的迎頭痛擊。
 
-白宮鼓勵3到12年級的學生提交作品，並將從50個州、哥倫比亞特區、美屬薩摩亞、關島、北馬里亞納群島、波多黎各和美屬維爾京群島各選出一件作品參加展覽。所有申請者將收到由第一夫人簽名的感謝信，感謝他們參與這次紀念婦女參政運動的特別展覽。
+[原文鏈接](https://www.sciencemag.org/news/2020/06/fifty-four-scientists-have-lost-their-jobs-result-nih-probe-foreign-ties)
 
-提交申請可以在[這裡](https://wh45.secure.force.com/PublicForms/BuildingTheMovement)找到。參賽作品必須在美國東部時間2020年7月6日下午5:00之前收到。
-
-作品必須符合以下要求才能被考慮。
-
-1. 二維的，在8英寸x8英寸的紙上創作。請家長和監護人上傳您孩子作品的圖片，可以是用相機或手機拍攝的簡單快照。獲獎者將被要求在稍後通過郵件發送他們的原創作品。
-
-2. 包括關於作品的聲明（最多300字），以及它如何代表婦女參政。
-
-3. 基於以下類別之一：婦女政權論者、選舉權標誌或選舉權事件。
-
-婦女政權論者：描繪一個激勵你的女權主義者。許多勇敢的人致力於爭取婦女的選舉權。描繪全國運動中的一位著名婦女或在你的州/地區工作的人。
-
-選舉權標誌：創建你自己的鈕扣、絲帶、或標誌。活動家和支持者佩戴著寫有 “婦女投票 ” 等信息的鈕扣，或帶著寫有對威爾遜總統聲明的標語：“總統先生：婦女要為自由等待多久？”
-
-選舉權事件：描繪與婦女選舉權運動有關的歷史性遊行、抗議或其他事件。可以是全國性的事件，也可以是你所在州或地區的事件。
-
-欲了解更多關於婦女參政運動的信息，請訪問[婦女選舉權百年委員會的網站](https://www.womensvote100.org/learn)，並查看他們的[州工具箱](https://www.womensvote100.org/states)，以了解更多關於你所在州發生的事情的信息。
-
-本次展覽由策展人辦公室與第一夫人辦公室合作舉辦。
-
-翻譯自白宮原文：[Building the Movement: America’s Youth Celebrate 100 Years of Women’s Suffrage](https://www.whitehouse.gov/briefings-statements/building-movement-americas-youth-celebrate-100-years-womens-suffrage/)
-
-*翻譯：【恆久忍耐】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：文真
+校對整理：人間四月
 
 0

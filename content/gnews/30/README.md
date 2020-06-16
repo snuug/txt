@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FDA因阻礙人們獲取硫酸羥氯喹被告上法庭
-`2020-06-15 11:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/234983/)
+## 第一夫人梅拉尼婭·川普宣布美國少年兒童慶祝婦女參政100週年活動
+`2020-06-15 20:49 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235154/)
 
-**作者：Dogman**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15113112/aaps-v-fda-hydroxychloroquine-750x440-1.jpg)
-美國醫生和外科醫生協會（縮寫AAPS）與6月6日在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接1）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15201304/WH_20200615_Building_the_Movement_figure1.jpeg)
 
-AAPS說，目前美國的疫情嚴重，超過10萬人因CCP病毒死亡，然而政府的倉庫中卻存有150萬劑硫酸羥氯喹。而由於FDA下屬分支緊急使用授權部門（EUA）明令禁止使用HCQ，導致美國絕大多數州下達禁令，以禁止醫生針對CCP病毒開放HCQ的處方。
+**美國少年兒童慶祝婦女參政100週年活動**
 
-然而，AAPS強調，HCQ通過FDA安全性認證已經超過65年，是非常安全的。根據耶魯大學哈維瑞時醫生的調查研究，硫酸羥氯喹和阿奇美素被證明是治療CCP病毒非常有效的藥物組合，“應當廣泛使用和推薦給醫生”（鏈接2）。哥倫比亞大學的讓吉利也說HCQ是“非常，非常安全的藥物；而且已經使用超過75年了”（鏈接3）。 在一項針對6000名醫生的調查報告中（鏈接4），HCQ被認為在現有所有的治療藥物中最為有效。
+頒佈於 2020年6月15日
 
-AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
+第一夫人梅拉尼婭·川普很高興地宣布“構建運動：美國青年慶祝婦女參政100年” 的活動，這是一個紀念第19條修正案批准100週年的展覽，該修正案賦予美國婦女選舉權。該展覽將於今年8月推出，將展示年輕的美國描繪這一歷史里程碑的藝術作品。為了打造這個展覽，第一夫人要求美國及其領土上的學生提交作品，描繪代表婦女參政運動的個人、物品和事件。他們的藝術作品將與在白宮內或周圍舉行的婦女參政遊行和集會的圖片一起出現。
 
-截止發稿時間2020年6月15日，根據Worldometers顯示，世界範圍內因為CCP病毒受到感染的人數為8028334人，死亡436279人；而美國現在最為嚴重，受感染人數為2162904，死亡117865。
+第一夫人梅拉尼婭·川普說：“在我們慶祝第19條修正案100週年之際，讓我們的孩子參與到對話中來是非常重要的，以便他們能夠學習和了解婦女參政運動背後的歷史”。 “幾十年來，女性領導人為美國的平等和選舉權進行遊說、遊行和抗議。我希望這個項目既能支持和擴大正在進行的關於平等的重要對話以及和平抗議活動的影響，同時鼓勵孩子們參與到自己家鄉這場影響深遠的運動背後的歷史中來。”
 
-感謝關註Dogman，堅定的爆料戰友之一，努力為讀者提供關於CCP病毒等事件的真實信息。GTV賬戶為：狗狗警察
+白宮鼓勵3到12年級的學生提交作品，並將從50個州、哥倫比亞特區、美屬薩摩亞、關島、北馬里亞納群島、波多黎各和美屬維爾京群島各選出一件作品參加展覽。所有申請者將收到由第一夫人簽名的感謝信，感謝他們參與這次紀念婦女參政運動的特別展覽。
 
-鏈接：
+提交申請可以在[這裡](https://wh45.secure.force.com/PublicForms/BuildingTheMovement)找到。參賽作品必須在美國東部時間2020年7月6日下午5:00之前收到。
 
-1. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/a)
-2. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
-3. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
-4. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
+作品必須符合以下要求才能被考慮。
 
+1. 二維的，在8英寸x8英寸的紙上創作。請家長和監護人上傳您孩子作品的圖片，可以是用相機或手機拍攝的簡單快照。獲獎者將被要求在稍後通過郵件發送他們的原創作品。
 
+2. 包括關於作品的聲明（最多300字），以及它如何代表婦女參政。
 
+3. 基於以下類別之一：婦女政權論者、選舉權標誌或選舉權事件。
+
+婦女政權論者：描繪一個激勵你的女權主義者。許多勇敢的人致力於爭取婦女的選舉權。描繪全國運動中的一位著名婦女或在你的州/地區工作的人。
+
+選舉權標誌：創建你自己的鈕扣、絲帶、或標誌。活動家和支持者佩戴著寫有 “婦女投票 ” 等信息的鈕扣，或帶著寫有對威爾遜總統聲明的標語：“總統先生：婦女要為自由等待多久？”
+
+選舉權事件：描繪與婦女選舉權運動有關的歷史性遊行、抗議或其他事件。可以是全國性的事件，也可以是你所在州或地區的事件。
+
+欲了解更多關於婦女參政運動的信息，請訪問[婦女選舉權百年委員會的網站](https://www.womensvote100.org/learn)，並查看他們的[州工具箱](https://www.womensvote100.org/states)，以了解更多關於你所在州發生的事情的信息。
+
+本次展覽由策展人辦公室與第一夫人辦公室合作舉辦。
+
+翻譯自白宮原文：[Building the Movement: America’s Youth Celebrate 100 Years of Women’s Suffrage](https://www.whitehouse.gov/briefings-statements/building-movement-americas-youth-celebrate-100-years-womens-suffrage/)
+
+*翻譯：【恆久忍耐】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
