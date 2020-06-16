@@ -1,36 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年世界獻血者日川普總統致辭（中英文對照）
-`2020-06-15 15:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235022/)
+## 第一夫人梅拉尼婭·川普宣布美國少年兒童慶祝婦女參政100週年活動
+`2020-06-15 20:49 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235154/)
 
-**Presidential Message on World Blood Donor Day, 2020**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15201304/WH_20200615_Building_the_Movement_figure1.jpeg)
 
-Issued on: June 14, 2020
+**美國少年兒童慶祝婦女參政100週年活動**
 
-**2020年世界獻血者日總統致辭**
+頒佈於 2020年6月15日
 
-發布日期：2020年6月14日
+第一夫人梅拉尼婭·川普很高興地宣布“構建運動：美國青年慶祝婦女參政100年” 的活動，這是一個紀念第19條修正案批准100週年的展覽，該修正案賦予美國婦女選舉權。該展覽將於今年8月推出，將展示年輕的美國描繪這一歷史里程碑的藝術作品。為了打造這個展覽，第一夫人要求美國及其領土上的學生提交作品，描繪代表婦女參政運動的個人、物品和事件。他們的藝術作品將與在白宮內或周圍舉行的婦女參政遊行和集會的圖片一起出現。
 
-Every 2 seconds, someone in the United States is in need of a blood transfusion. On World Blood Donor Day, we thank those individuals who selflessly donate blood to help thousands of hospitals and medical care facilities meet the needs of their patients.
+第一夫人梅拉尼婭·川普說：“在我們慶祝第19條修正案100週年之際，讓我們的孩子參與到對話中來是非常重要的，以便他們能夠學習和了解婦女參政運動背後的歷史”。 “幾十年來，女性領導人為美國的平等和選舉權進行遊說、遊行和抗議。我希望這個項目既能支持和擴大正在進行的關於平等的重要對話以及和平抗議活動的影響，同時鼓勵孩子們參與到自己家鄉這場影響深遠的運動背後的歷史中來。”
 
-在美國，每兩秒鐘就有一個人需要輸血。今天（6月14日）是世界獻血日，我們感謝那些無私捐獻者們，他們幫助了成千上萬醫院和醫療機構滿足患者對血液的需求。
+白宮鼓勵3到12年級的學生提交作品，並將從50個州、哥倫比亞特區、美屬薩摩亞、關島、北馬里亞納群島、波多黎各和美屬維爾京群島各選出一件作品參加展覽。所有申請者將收到由第一夫人簽名的感謝信，感謝他們參與這次紀念婦女參政運動的特別展覽。
 
-Over the past several months, the hardships of the coronavirus have lowered our country’s blood and platelet supply to critical levels, and the need to donate blood has never been more acute. With more than 30,000 blood drives canceled since mid-March, those battling severe illnesses or those involved in life-threatening accidents could be in particular danger of not being able to receive the vital care they need. Many of our Nation’s blood banks are operating with depleted stocks, and the majority of them rarely have on hand more than a single day’s supply of Type O blood, which is critical because it can be used to meet the blood needs of any patient. During this challenging time, let us commit to raising awareness of the lifesaving act of donating blood.
+提交申請可以在[這裡](https://wh45.secure.force.com/PublicForms/BuildingTheMovement)找到。參賽作品必須在美國東部時間2020年7月6日下午5:00之前收到。
 
-在過去的幾個月裡，在應對冠狀病毒的艱難抗疫中，我國的血液和血小板供應降低到了臨界水平，對獻血的需求也變得前所未有的迫切。自3月中旬以來，由於取消了30,000多個獻血動員活動，那些身患嚴重疾病的人或遭遇危及生命事故的人因無法獲得關鍵的救助，他們的生命變得岌岌可危。我國的許多血庫都是在庫存耗盡的情況中運作的，而大多數血庫中很少有超過一天的O型血供應，而O型血很關鍵，因為它可用於滿足任何患者的血液需求。在這個艱難時刻，讓我們承諾提高獻血這一救命行為的認識。
+作品必須符合以下要求才能被考慮。
 
-I urge all Americans who are healthy and willing to donate blood to do so at a local donation center. Organizations like the American Red Cross and other blood banks have implemented special protocols to protect donors from possible infection. Your blood donations can help minimize the harm inflicted by the coronavirus on our country.
+1. 二維的，在8英寸x8英寸的紙上創作。請家長和監護人上傳您孩子作品的圖片，可以是用相機或手機拍攝的簡單快照。獲獎者將被要求在稍後通過郵件發送他們的原創作品。
 
-我熱切呼籲所有健康且自願鮮血的美國人去當​​地的捐贈中心獻血。像美國紅十字會這樣的機構和其他血庫等組織已經實施了特別的操作規範，以保護捐贈者免受可能的感染。您的獻血可以減少冠狀病毒對我們國家造成的傷害。
+2. 包括關於作品的聲明（最多300字），以及它如何代表婦女參政。
 
-Today, the First Lady and I send our sincerest gratitude to both blood donors and those countless individuals who help facilitate donations. These dedicated employees, extraordinary volunteers, and compassionate individuals represent the very best of the American spirit, and our Nation is grateful for your contributions to America’s health and well-being.
+3. 基於以下類別之一：婦女政權論者、選舉權標誌或選舉權事件。
 
-今天，第一夫人和我向所有獻血者和無數個幫助促進捐贈行為的人致以最誠摯的謝意。這些敬業的員工們，傑出的志願者們和每個富有同情心的人都代表著美國精神的精髓，我們國家感謝你們為美國的健康和福祉所作的貢獻。
+婦女政權論者：描繪一個激勵你的女權主義者。許多勇敢的人致力於爭取婦女的選舉權。描繪全國運動中的一位著名婦女或在你的州/地區工作的人。
 
-閱讀白宮原文：[https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/](https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/)
+選舉權標誌：創建你自己的鈕扣、絲帶、或標誌。活動家和支持者佩戴著寫有 “婦女投票 ” 等信息的鈕扣，或帶著寫有對威爾遜總統聲明的標語：“總統先生：婦女要為自由等待多久？”
 
-*翻譯：【一花一世界】 校對：【班班】*
+選舉權事件：描繪與婦女選舉權運動有關的歷史性遊行、抗議或其他事件。可以是全國性的事件，也可以是你所在州或地區的事件。
+
+欲了解更多關於婦女參政運動的信息，請訪問[婦女選舉權百年委員會的網站](https://www.womensvote100.org/learn)，並查看他們的[州工具箱](https://www.womensvote100.org/states)，以了解更多關於你所在州發生的事情的信息。
+
+本次展覽由策展人辦公室與第一夫人辦公室合作舉辦。
+
+翻譯自白宮原文：[Building the Movement: America’s Youth Celebrate 100 Years of Women’s Suffrage](https://www.whitehouse.gov/briefings-statements/building-movement-americas-youth-celebrate-100-years-womens-suffrage/)
+
+*翻譯：【恆久忍耐】校對：【Michelle】*
 
 *戰友之家玫瑰園小隊出品*
 

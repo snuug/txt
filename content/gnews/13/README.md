@@ -1,22 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP能否不宣而戰？
-`2020-06-15 11:21 GM10` [轉載自GNews](https://gnews.org/zh-hant/234948/)
+## 2020年世界獻血者日川普總統致辭（中英文對照）
+`2020-06-15 15:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/235022/)
 
-**作者：聞喜**
+**Presidential Message on World Blood Donor Day, 2020**
 
-中共國CCP非常可能在不宣戰的情況下把核彈扔到美國，正因為CCP武器落後，它才下先手為強!在CCP黨魁的頭腦中已經根深地的從少年期間植入了一個魔鬼哲學，那就是一旦絕望那就多殺一個是一個，什麼宣戰，臉面對這些反人類恐怖分子一點價值都沒有，有吸引力的就是獲勝結果，中國歷史上的孫子兵法最以兵不厭詐為榮耀，以偷襲獲勝作為擺脫政治困境的僥幸心理根深蒂固。
+Issued on: June 14, 2020
 
-為此，這些紅大鬼，紅小鬼經常燒香使用巫術安慰它們脆弱的心態，它們腦海裏根本沒有過什麼叫大道，大愛。CCP也常把這些美好詞匯在公共場合制成化妝品不遺余力的塗在臉上和屁股上!人性的沖動大都是以僥幸為前提，日本偷襲美國珍珠港的僥幸也都來自孫子兵法!
+**2020年世界獻血者日總統致辭**
 
-孫子兵法在歷史上共36計，但從“CCP病毒”開始又多了一計叫“送你口罩”。自此中共對歷史唯一的發明就是改寫了孫子兵法36計變成了37計。這些沒人性的中共CCP僅有的一項發明：孫子兵法37計，而且許多國家都中招，就是不看Gnews的結果。
-https://gnews.org/zh-hans/151828/
+發布日期：2020年6月14日
 
-我在紐約時間2020年1月30日在Gnews上說CCP病毒是戰爭不是事故，結果蒙對了，在4月16日說中共印制假美元搞亂美國經濟又蒙對了，這次說中共會用核偷襲方式讓川普下臺，可別在蒙對了，因為美國是滅共的唯一有效力量，傷不起!
+Every 2 seconds, someone in the United States is in need of a blood transfusion. On World Blood Donor Day, we thank those individuals who selflessly donate blood to help thousands of hospitals and medical care facilities meet the needs of their patients.
 
-祝川普總統生日快樂!只要有中共的存在，人類就傷不起，為香港人民禱告：快點天滅中共!向美麗的香港人致敬，他們用自己的尊嚴和生命替全人類阻擋中共的邪惡!
+在美國，每兩秒鐘就有一個人需要輸血。今天（6月14日）是世界獻血日，我們感謝那些無私捐獻者們，他們幫助了成千上萬醫院和醫療機構滿足患者對血液的需求。
 
+Over the past several months, the hardships of the coronavirus have lowered our country’s blood and platelet supply to critical levels, and the need to donate blood has never been more acute. With more than 30,000 blood drives canceled since mid-March, those battling severe illnesses or those involved in life-threatening accidents could be in particular danger of not being able to receive the vital care they need. Many of our Nation’s blood banks are operating with depleted stocks, and the majority of them rarely have on hand more than a single day’s supply of Type O blood, which is critical because it can be used to meet the blood needs of any patient. During this challenging time, let us commit to raising awareness of the lifesaving act of donating blood.
 
+在過去的幾個月裡，在應對冠狀病毒的艱難抗疫中，我國的血液和血小板供應降低到了臨界水平，對獻血的需求也變得前所未有的迫切。自3月中旬以來，由於取消了30,000多個獻血動員活動，那些身患嚴重疾病的人或遭遇危及生命事故的人因無法獲得關鍵的救助，他們的生命變得岌岌可危。我國的許多血庫都是在庫存耗盡的情況中運作的，而大多數血庫中很少有超過一天的O型血供應，而O型血很關鍵，因為它可用於滿足任何患者的血液需求。在這個艱難時刻，讓我們承諾提高獻血這一救命行為的認識。
+
+I urge all Americans who are healthy and willing to donate blood to do so at a local donation center. Organizations like the American Red Cross and other blood banks have implemented special protocols to protect donors from possible infection. Your blood donations can help minimize the harm inflicted by the coronavirus on our country.
+
+我熱切呼籲所有健康且自願鮮血的美國人去當​​地的捐贈中心獻血。像美國紅十字會這樣的機構和其他血庫等組織已經實施了特別的操作規範，以保護捐贈者免受可能的感染。您的獻血可以減少冠狀病毒對我們國家造成的傷害。
+
+Today, the First Lady and I send our sincerest gratitude to both blood donors and those countless individuals who help facilitate donations. These dedicated employees, extraordinary volunteers, and compassionate individuals represent the very best of the American spirit, and our Nation is grateful for your contributions to America’s health and well-being.
+
+今天，第一夫人和我向所有獻血者和無數個幫助促進捐贈行為的人致以最誠摯的謝意。這些敬業的員工們，傑出的志願者們和每個富有同情心的人都代表著美國精神的精髓，我們國家感謝你們為美國的健康和福祉所作的貢獻。
+
+閱讀白宮原文：[https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/](https://www.whitehouse.gov/briefings-statements/presidential-message-world-blood-donor-day-2020/)
+
+*翻譯：【一花一世界】 校對：【班班】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

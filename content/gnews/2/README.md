@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 緊急！FDA撤消了硫酸羥氯喹的緊急使用權！
-`2020-06-15 20:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/235150/)
+## 中共國金融領域雷聲不斷，您的money還安全？ ——記四川信托爆雷
+`2020-06-15 23:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/235323/)
 
-**作者：Dogman**
+**作者：麓山之蜂**
 
-美國食品和藥物監督管理局（U.S. Food and Drug Administration ，縮寫FDA）今天早些時候在官網公布，撤銷硫酸羥氯喹（Hydroxychloroquine，縮寫HCQ）的緊急使用權（縮寫EUA）（鏈接1）！
+由于中共冠狀病毒造成的影響，世界經濟幾乎都處于停頓或者衰退之中，而中共政府則一直對外宣傳中共國的經濟一片繁榮，甚至可以說唯獨中共國欣欣向榮。但是真實情況是這樣的呢？那爲什麽中共國金融領域近幾個月來卻是雷聲不斷啦！繼P2P陸續爆雷後，出現了許多的上市公司債務暴雷，現在卻發展到信托暴雷了。
 
-今年三月份，FDA開放了HCQ的緊急使用權，使得醫生在治療患有CCP病毒的病人時，可以使用HCQ，即使HCQ並不是官方認定有效的治療藥物之一。
+![](https://gnews.org/wp-content/uploads/2020/06/1-228.jpg)
 
-在筆者與多名醫生與制藥人士交談中了解到，今天FDA撤銷HCQ緊急使用權，將迫使醫生們將無法使用HCQ治療患有CCP病毒的患者，因為繼續使用HCQ治療CCP病毒將會為醫生帶來潛在的法律風險。
+2020年6月11日，本來是四川信托幾個信托計劃在最後兌付日，而投資者在這天收到的不是兌付資金，而且冰冷冰冷的一大瓢冷水，投資者在當晚被告知無法兌付本息，並且産品無限延期的通知。
 
-之前，美國醫生和外科醫生協會（縮寫AAPS）在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接2）。 而根據AAPS提供的科學研究證明，HCQ是目前治療CCP病毒最為有效的藥物（鏈接3,4,5）
+![](https://gnews.org/wp-content/uploads/2020/06/2-66.png)
 
-AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
+對于一個信托而已，如果賬上有錢，卻故意不給客戶兌付或者以各種理由不及時兌付，這種奇葩情況也只有在專制獨裁主義的中共國才會有吧！這也許就是中共政府一直宣稱的：中共特色主義吧！也只有共匪敢好話說盡地“勸”您投錢，“光明正大”地不給您及時兌付本息的，這難道不就是在明搶嗎？這行爲跟強盜又有什麽區別呢？利用手上的特權對老百姓進行言辭鑿鑿地割韭菜嗎？
 
-Dogman是堅定的爆料戰友；GTV賬戶為：狗狗警察。
-
-鏈接：
-
-1. [https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or](https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or)
-2. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/)
-3. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
-4. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
-5. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
+- ![](https://gnews.org/wp-content/uploads/2020/06/3-70.jpg)
+- ![](https://gnews.org/wp-content/uploads/2020/06/4-43.jpg)
 
 
+![](https://gnews.org/wp-content/uploads/2020/06/5-19.jpg)
 
+而四川信托的這次爆料涉及到的投資者高達8000多人，成都占60%以上，至少都有5000人，金額高達200多億冥幣。筆者老家就有這樣一句俗話：當您想著別人的利息的時候，殊不知人家已定盯上了您的本錢。用這句話來警示那些天天想著如何把錢拿出去放高利貸或者是參與那些高息的金融投資的人，因爲隨時可能都會遇到連本金都回不來的情況。
+
+而中共國近年來的金融爆雷可謂是接二連三，從未停止。從利用龐死騙局對老百姓進行割韭菜的P2P，再到強行不予兌付的信托，這一切的雷難道還不屬于人造嗎？
+
+![](https://gnews.org/wp-content/uploads/2020/06/6-20.jpg)
+
+再看看中共最近推出的在河北省、浙江省、深圳市試點開展的大額現金管理制度。既限制老百姓存錢也限制老百姓取錢，既限制老百姓在網上消費也限制老百姓對現金的使用，既限制個人同時也對企業進行限制。而且起點都是那麽低，卻口口聲聲宣稱不會影響老百姓的正常生活，也許這話真的只有鬼才會信吧！
+
+在這樣一個人禍不斷，政策奇葩的國度，您還覺得您的錢是您自己說了算嗎？您還會覺得您還有一個安全存的放錢地方嗎？也許這一切都只有等那個雷劈到自己頭上的時候，您才會突然之間醒悟吧！
+
+（文章內容僅代表作者觀點）
 
 0

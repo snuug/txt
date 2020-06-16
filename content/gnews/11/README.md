@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FDA因阻礙人們獲取硫酸羥氯喹被告上法庭
-`2020-06-15 11:45 GM10` [轉載自GNews](https://gnews.org/zh-hant/234983/)
+## 中共13所高校被禁用MATLAB軟體後果很嚴重
+`2020-06-15 18:18 GM06` [轉載自GNews](https://gnews.org/zh-hant/235089/)
 
-**作者：Dogman**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15113112/aaps-v-fda-hydroxychloroquine-750x440-1.jpg)
-美國醫生和外科醫生協會（縮寫AAPS）與6月6日在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接1）。
+作者：文茗
 
-AAPS說，目前美國的疫情嚴重，超過10萬人因CCP病毒死亡，然而政府的倉庫中卻存有150萬劑硫酸羥氯喹。而由於FDA下屬分支緊急使用授權部門（EUA）明令禁止使用HCQ，導致美國絕大多數州下達禁令，以禁止醫生針對CCP病毒開放HCQ的處方。
+此前美國發佈了一份新“實體清單”，除了大量熟悉的企業之外，還有以哈理工、哈工程為代表的13所知名大學也被列入了“實體清單”中。
 
-然而，AAPS強調，HCQ通過FDA安全性認證已經超過65年，是非常安全的。根據耶魯大學哈維瑞時醫生的調查研究，硫酸羥氯喹和阿奇美素被證明是治療CCP病毒非常有效的藥物組合，“應當廣泛使用和推薦給醫生”（鏈接2）。哥倫比亞大學的讓吉利也說HCQ是“非常，非常安全的藥物；而且已經使用超過75年了”（鏈接3）。 在一項針對6000名醫生的調查報告中（鏈接4），HCQ被認為在現有所有的治療藥物中最為有效。
+近日， 哈爾濱工業大學（哈工大）、哈爾濱工程大學、北航等中國高校的師生先後發現， 自己在使用MATLAB軟體時，被顯示授權許可無效。經過與MATLAB開發公司MathWorks交涉後才得知，原來自己所在的院校已經被美國政府列入了受限制的實體名單，相關授權已被中止。
+![](https://gnews.org/wp-content/uploads/2020/06/1-227.jpg)
+MATLAB是一款由美國The MathWorks公司出品的商業數學軟體。MATLAB是一種用於演算法開發、資料視覺化、資料分析以及數值計算的高級技術計算語言和互動式環境。除了矩陣運算、繪製函數/資料圖像等常用功能外，MATLAB還可以用來創建使用者介面及與調用其它語言（包括C、C++、Java、Python和FORTRAN）編寫的程式。該套裝軟體含數十個工具箱，功能涵蓋數學計算、建模仿真、電子通信、機械化工、汽車航空、電力能源、經濟金融、生物醫學等多個學科， 在工業製造、學術研究等領域具有近乎壟斷的市場地位。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15173301/2-65.png)
+上個月15日，美國全面開始對華為實施制裁，其中規定在沒有獲得美國許可證的情況下，華為將無法使用美系的晶片設計軟體，同時台積電等晶圓代工廠在沒有獲得美國許可的情況下，也將無法利用美系半導體設備為華為代工晶片。這件事和這次的MATLAB被禁是一個性質的，因為晶片設計軟體和MATLAB都屬於電子設計自動化的工業軟體，簡稱EDA。EDA技術極大地提高了電路設計的效率和可操作性，減輕了設計者的勞動強度。各行行業都早早的開發出了專門的套裝程式，進而發展成各類EDA軟體，你幾乎很少會發現哪個理工科類的領域中沒有自己的專業軟體。最簡單的話來說任何工業都需要體制，工業軟體就是繪製圖紙的工具，沒有工具就畫不了圖紙，沒圖紙什麼都造不出來。
 
-AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
+這些高校被MathWorks公司持續禁用MATLAB，則意味著這些學校的師生或研究人員發表的學術論文或者從事商業專案， 其成果原則上都不能夠再包含任何基於 MATLAB 的內容。
+![](https://gnews.org/wp-content/uploads/2020/06/3-68.jpg)
+有人會說我用盜版的如何，以前共產黨並未如此囂張，美國對共產黨一直抱有幻想，美國都是睜隻眼閉隻眼。但今天真的是不能同日而語，如果你被禁止使用MATLAB，但你在發表的論文裡用到了MATLAB的模擬圖，沒有MATLAB的許可都屬於侵犯智慧財產權。智慧財產權，打官司賠償就可能讓這些學校傾家蕩產，最典型的例子就是中興前不久因為智慧財產權的官司就賠了4300萬美元。
 
-截止發稿時間2020年6月15日，根據Worldometers顯示，世界範圍內因為CCP病毒受到感染的人數為8028334人，死亡436279人；而美國現在最為嚴重，受感染人數為2162904，死亡117865。
+面對如此困境共產黨是永遠無法創造出同樣的軟體的。MATLAB是一項系統、跨學科工程，它需要收集工科類演算法實驗資料，這是龐大的資料支撐起來的。MATLAB早已是工業體系中最重要的一部分，只不過其表現形式和載體是“軟體”而已。創造這樣的軟體需要大量的時間和經驗積累，這個積累過程，美國已經至少持續了30多年。
 
-感謝關註Dogman，堅定的爆料戰友之一，努力為讀者提供關於CCP病毒等事件的真實信息。GTV賬戶為：狗狗警察
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/15173944/4-41.jpg)
 
-鏈接：
+公開資料顯示，哈工大、哈工程都具有軍方背景，與北京航空航太大學、西北工業大學、北京理工大學、南京航空航太大學、南京理工大學一起直屬中國工業和資訊化部，被外界稱為中共的“國防七校”。
 
-1. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/a)
-2. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
-3. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
-4. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
+很明顯，美國這次制裁直指共產黨的核心軍事工業而來，如果這些軟體全都不能用了，那將會對共產黨軍工有多大的影響可想而知。
 
-
-
+(文章內容僅代表作者觀點)
 
 0
