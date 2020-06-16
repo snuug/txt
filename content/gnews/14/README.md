@@ -1,14 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生：中國人被共產黨變成了生活中的驢
-`2020-06-15 12:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/235010/)
+## 【世界多語言圖文】14/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-15 22:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/235209/)
 
-戰友之家新聞譯制組
-撰稿：GM64
+戰友之家圖文摘要組及小語種組
 
+[English\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0614_CCP_Virus_Updates.pdf)
 
+[French\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0614_CCP_Virus_Updates.pdf)
 
-郭文貴先生分享老家兒時鄰居家的驢被蒙上眼睛不停幹活還倍受虐待後，不堪忍受踢翻了主人。在驢踢翻主人，眼罩掉下來後，發現主人倒翻在地又上去補了幾腳，導致主人徹底殘疾。郭先生認為中國人就如同被中共蒙上眼睛只知道幹活的驢一樣，新中國聯邦就是讓中國人摘掉眼罩，踢翻中共。
+[German\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0614_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0614_CCP_Virus_Updates_-.pdf)
+
+[Japanese\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0614_CCP_Virus_Updates.pdf)
+
+[Korean\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0614_CCP_Virus_Updates.pdf)
+
+[Spanish\_0614\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0614_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0614_CCP_Virus_Updates.pdf)
 
 0

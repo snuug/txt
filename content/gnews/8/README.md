@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 緊急！FDA撤消了硫酸羥氯喹的緊急使用權！
-`2020-06-15 20:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/235150/)
+## 爆紅“袁爸爸”袁弓夷和班農推“天滅中共”行動！
+`2020-06-16 00:02 GM30` [轉載自GNews](https://gnews.org/zh-hant/235338/)
 
-**作者：Dogman**
+**作者：亞倫**
 
-美國食品和藥物監督管理局（U.S. Food and Drug Administration ，縮寫FDA）今天早些時候在官網公布，撤銷硫酸羥氯喹（Hydroxychloroquine，縮寫HCQ）的緊急使用權（縮寫EUA）（鏈接1）！
+據[大紀元](https://www.google.com/search?sxsrf=ALeKk01pAi1eJD9agu629AmuzUyO1Jzh2w%3A1592279220388&amp;ei=tEDoXoafF4mJoATZ9KLQCw&amp;q=%E9%A6%99%E6%B8%AF%E8%91%97%E5%90%8D%E5%AE%9E%E4%B8%9A%E5%AE%B6%E8%A2%81%E5%BC%93%E5%A4%B7%E5%88%B0%E4%BA%86%E5%8D%8E%E7%9B%9B%E9%A1%BF+%E5%A4%A7%E7%BA%AA%E5%85%83&amp;oq=%E9%A6%99%E6%B8%AF%E8%91%97%E5%90%8D%E5%AE%9E%E4%B8%9A%E5%AE%B6%E8%A2%81%E5%BC%93%E5%A4%B7%E5%88%B0%E4%BA%86%E5%8D%8E%E7%9B%9B%E9%A1%BF+%E5%A4%A7%E7%BA%AA%E5%85%83&amp;gs_lcp=CgZwc3ktYWIQAzoECCMQJ1CfdliZhgFgzocBaABwAHgAgAHIAYgB0AOSAQUwLjIuMZgBAKABAaoBB2d3cy13aXo&amp;sclient=psy-ab&amp;ved=0ahUKEwiGycGqtoXqAhWJBIgKHVm6CLoQ4dUDCAw&amp;uact=5)6月15號報道，香港著名實業家袁弓夷到了華盛頓，聯手班農滅共，和班農就三大任務達成一些共識。（三大任務指的是：籲美國提供3萬香港學生入學名額；請美國要求英國將主權還給香港公民，公民自決；以及推動美國立法定性中共爲犯罪集團，逼9000萬共産黨員退黨）
 
-今年三月份，FDA開放了HCQ的緊急使用權，使得醫生在治療患有CCP病毒的病人時，可以使用HCQ，即使HCQ並不是官方認定有效的治療藥物之一。
+![](https://gnews.org/wp-content/uploads/2020/06/1-113.png)
 
-在筆者與多名醫生與制藥人士交談中了解到，今天FDA撤銷HCQ緊急使用權，將迫使醫生們將無法使用HCQ治療患有CCP病毒的患者，因為繼續使用HCQ治療CCP病毒將會為醫生帶來潛在的法律風險。
+袁弓夷生于上海，袁弓夷祖籍浙江甯波鄞縣，是爲宋望族西門袁氏直系之後，父袁勃爲香港照相業大王，族伯袁希洛爲孫中山就任中華民國大總統時的授印代表，族叔袁希濤曾爲中華民國教育總長。子袁彌昌爲香港知名評論家，女袁彌明爲落選港姐兼香港政治家。生于上海，1953年隨家人移居香港。早年在家庭企業任職，1980年代與父袁勃創辦香港“科苑”電子工業企業系列，初期制作當時風行的電子表，獲得商業成功。後繼任父職，任香港科苑電子董事長。1980年代改革開放後投資中國大陸，任廣州科苑電子董事長。後創設Tele-Art Inc.，袁氏Tele-Art Inc.在港制日本卡西歐（Casio）電子表，曾是其在港最大代工，但其在香港的“科苑”企業，因在美國債款問題于1997年入禀百慕大法院，後申請清盤獲准。
 
-之前，美國醫生和外科醫生協會（縮寫AAPS）在官網上公布，將美國衛生與公共服務部門和FDA因為非理性幹擾大眾及時獲取硫酸羥氯喹（縮寫HCQ）告上法庭（鏈接2）。 而根據AAPS提供的科學研究證明，HCQ是目前治療CCP病毒最為有效的藥物（鏈接3,4,5）
+目前袁是香港美國電子工業實業家兼時事評論員，因在香港、美國創有多家電子企業而知名。他育有六子女，包括前新民黨政策總裁袁彌昌及人民力量前主席袁彌明。很多講粵語的人不敢提爆料革命，但袁弓夷在他的油管頻道，和愛女一起介紹新中國聯邦，引發了巨大轟動，點擊量幾十萬次。袁弓夷早年在美國居住20年，住在特朗普大廈，和美國總統特朗普是樓上樓下鄰居，他非常熟悉美國政壇和華爾街大佬。四個星期前，他毅然斷掉所有大陸生意，專心參與滅共行動。這次來到華盛頓，與新中國聯邦的發起人班農先生會面，並且要登上war room做節目。
 
-AAPS在文中還指出，有兩個原因導致硫酸羥氯喹收到壓制。第一個是因為這個藥物非常安全並且便宜，會影響人們對於新型藥物和疫苗的需求。第二個原因則是由於美國兩黨之間的政治較量，導致硫酸羥氯喹無法被大眾及時獲取。
+在香港抗爭一年多來，“四大不要臉”都站在了CCP一方，也就首富李嘉誠登報說了句黃瓜吃不吃之類的，而現在終于有一位香港實業家站出來對抗CCP，會比我們說話更有影響力，因爲他更能代表香港的聲音。美國也將意識到，香港問題的嚴重和香港暴行的惡劣。
 
-Dogman是堅定的爆料戰友；GTV賬戶為：狗狗警察。
+滅共靠行動，袁弓夷先生是實業家，有很大影響力，親身赴美。他的孩子也都很優秀。我們的粵語節目數量有限，袁弓夷現身說法，在香港社會的影響力很大，能夠給很多人答疑解惑。袁先生站出來之後，肯定會有更多實業家站出來。
 
-鏈接：
+袁弓夷出身書香門第，是中國民國教育、民主的先驅，在被中共大規模的土改公私合營之前已經逃跑到香港，以此躲過了浩劫。1950年之後，很多開明企業家攜家眷逃離了中國大陸。而目前中共明目張膽的用惡法侵蝕香港民主的時候，他們的家族又從新認識到問題而挺身而出。什麽是貴族精神，就是面對困難和挑戰時候的勇氣，可以挺身而出爲其他人遮風擋雨，扭轉乾坤。
 
-1. [https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or](https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or)
-2. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/)
-3. [https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1](https://academic.oup.com/aje/advance-article/doi/10.1093/aje/kwaa093/5847586?searchresult=1)
-4. [https://tinyurl.com/y7enya9w](https://tinyurl.com/y7enya9w)
-5. [https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/](https://www.sermo.com/press-releases/largest-statistically-significant-study-by-6200-multi-country-physicians-on-covid-19-uncovers-treatment-patterns-and-puts-pandemic-in-context/)
+正如摩根家族的繼承人，也參加了GTV，因爲是影響人類命運的時候。袁弓夷先生也有犧牲精神和貴族精神，危急時刻願意站出來。正如海東先生說的“雖千萬人吾往矣”，會有更多有良知的人站出來！
 
-
-
+（文章內容僅代表作者觀點）
 
 0
