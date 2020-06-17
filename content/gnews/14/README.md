@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 帝都北京第二波新冠病毒瘋狂來襲 ——真正的病毒一直不曾離開
-`2020-06-17 02:38 GM30` [轉載自GNews](https://gnews.org/zh-hant/236562/)
+## 【世界多語言圖文】15/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-17 03:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/236659/)
 
-**作者：亞倫**
+戰友之家圖文摘要組及小語種組
 
-網傳北京出現第二波新冠病毒疫情，據稱傳染性高于武漢。目前，全市社區進入戰時狀態。北京市民透露，殡儀館每天都在燒染疫死者屍體。多家軍醫院爆滿，包括武警總醫院因爲人數爆滿而封院。
+[English\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)
 
-![](https://gnews.org/wp-content/uploads/2020/06/1-249.jpg)
+[French\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)
 
-從曆史上看西班牙大流感，而且病毒疫情的第二波更爲凶險。1918年流感大流行暴發之際，正是第一次世界大戰如火如荼之時。那次大流行先後共出現三波疫情：第一波疫情發生于1918年春季；而同年秋季暴發的第二波疫情最爲致命，占此次流感大流行總死亡人數的90%。那次次大流行病的死亡率是第一次世界大戰死亡率的5至10倍。況且文貴先生一再強調第二波病毒的殺傷力最大，因爲人們會疲憊，會掉以輕心，會因爲天氣的轉暖和明媚欺騙性的陽光而忘卻致命的病毒，尤其是面對人造的病毒型生化武器。
+[German\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)
 
-《路德社》透露，武漢1月1日，在5萬多平方米的華南海鮮市場取了一個樣本，然後官方說病毒來自華南海鮮市場。北京新發地批發市場占地20萬平米，取了5400多環境樣本，其中有40例陽性，所以給出結論病毒來源是三文魚。官方完全邏輯混亂，說明這就是第二次投毒，爲了讓新病毒傳到美國。中共習慣性甩鍋第一時間想到歐洲，吸取了武漢的經驗教訓。中共僞政權國內的傳播情況不透明，序列並沒有上傳到國際數據庫，憑什麽說新發地的病毒來自歐洲？北京自稱抗疫有力，且長時間零增長。現在中共玩苦肉計，要讓第二波疫情，瞄准歐美。
+[Japanese\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)
 
-其實中共國的疫情一直沒有停，只是因爲沒人敢報道的問題。因爲媒體都是被控制的，信息都是被封鎖的，數據都是用腳趾頭畫出來的。從2月份開始，北京只有9人死亡，但具體是誰，至今不知道。中共善于用栽贓陷害的手法，先將自己變成受害者，讓病毒傳到全球後，自己再說控疫成功，把制造和傳播病毒的源頭栽贓到美國、歐洲頭上。強奸犯成了警察，警察被逼成了強奸犯，被強奸的開始指認警察是強奸犯，萬惡的世界，黑白顛倒的世界。
+[Korean0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)
 
-美國彭斯副總統透露，美國全國進行了超過2200萬次測試，陽性率急劇下降，住院率也有所下降。在美國抗疫狀況轉好的情況下，中共准備又要搞第二波。幾天後，美國可能疫情又要起來了，可能又要lock down封城了。
+[Russian\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)
 
-北京普通來百姓開始搶菜、扔三文魚的同時，諷刺意味的是美國感染人數已經超過200多萬的時候，北京飛往洛杉矶航班全滿。而且是短期之內就能搶到機票，票價翻了三倍仍要走，都是頂級人士，有消息和關系的人士，拿著美國護照、綠卡的人，稍微了解情況的人不會再相信中共。
-
-（文章內容僅代表作者觀點）
+[Spanish\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)
 
 0
