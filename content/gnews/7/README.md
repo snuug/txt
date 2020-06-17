@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-17 03:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/236659/)
+## 谷歌將右翼網站從廣告平台中拉黑 “政治正確”是否真的正確？
+`2020-06-17 07:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/236849/)
 
-戰友之家圖文摘要組及小語種組
+![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-76.png)图片来源：[https://www.adweek.com](https://www.adweek.com/programmatic/google-takes-action-against-conservative-websites-over-comment-sections/)
+據NBC新聞6月17日的報導,谷歌已經禁止了經常傳播右翼言論的財經網站《零對沖》（ZeroHedge）在其廣告平台上發布廣告，原因是該網站在最近的關於黑人抗議活動的評論區中出現了違規內容。
 
-[English\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)
+谷歌週二還向知名雜誌（The Federalist）發出警告，批評其對近期抗議活動相關文章的評論。
 
-[French\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)
+谷歌的一位發言人在周一的一封電子郵件中表示，在認定這些網站違反了谷歌有關種族內容的政策後，谷歌已經將這些網站列入黑名單。谷歌表示其有嚴格的政策來監管廣告可以播放的內容，明確禁止帶有貶義的、助長仇恨的、不寬容的、暴力或帶有種族歧視的內容盈利。當一個頁面違反了相關政策，谷歌就會禁止該網站在谷歌廣告中盈利。
 
-[German\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)
+The Federalist雖被谷歌警告有違反政策的行為，但仍被留有時間來解決這些問題。在谷歌禁令生效之前，網站一般都有三天的時間來清除這些違規行為。谷歌於上週就通知了ZeroHedg違反了相關政策，本周則禁止了該網站使用谷歌廣告平台。
 
-[Japanese\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)
+谷歌的禁令是在接到反網絡仇恨中心的調查通知後出台的。反網絡仇恨中心是一家英國非營利組織，專門打擊網絡仇恨和虛假信息。他們發現有10個美國網站發表有關抗議活動的種族主義文章，預計這些網站通過谷歌廣告可以賺取數百萬美元。
 
-[Korean0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)
+反網絡仇恨中心的首席執行官伊姆蘭•艾哈邁德(Imran Ahmed)表示發現許多公司在網站上發布的廣告都是公開支持黑人抗議的活動，但是也有一些公司發布的內容完全是種族主義與白人至上主義，甚至還包含有關喬治·弗洛伊德和黑人抗議運動的陰謀論。
 
-[Russian\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)
+近年來，谷歌已經禁止了多家網站進入其廣告平台，之前主要針對的是假新聞問題。近年來，ZeroHedge和The Federalist因發表各種主題的右翼文章而聞名。關於最近的抗議活動，ZeroHedge發表了一篇文章稱抗議是假的，而The Federalist發表了一篇文章稱各大媒體在抗議期間發生的搶劫和暴力事件上撒謊。
 
-[Spanish\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)
+隨著黑人抗議活動在最近幾週展開，數百家企業急切地表示支持，這其中就包括谷歌。它表示已經向致力於解決種族不平等問題的組織捐贈了1200萬美元。
+
+反網絡仇恨中心指出了其他右翼網站上的一些文章的例子，這些網站上刊登了知名品牌的廣告，同時也附帶散佈有關抗議活動的虛假敘述，這個給品牌的安全帶來了重大風險。 TrueX公司負責公共關係的副總裁卡洛琳·麥卡錫(Caroline McCarthy)說，公司需要讓谷歌和其他廣告公司對自己的廣告投放負責。
+
+當前的現實是，各大品牌公司必須先回答一個題，你的品牌內容將會反對什麼? 如果不能給一個明確的答案，那公司就會面臨大問題了，在當前選邊站隊的情況下讓各公司面臨巨大的壓力。
+
+評：
+
+谷歌目前判斷種族主義與陰謀論的標準並不完全透明，完全倒向左翼標準似乎違反谷歌一貫標榜的不作惡原則。如今的美國，左派倡導的政治正確已經快到了不分正邪的地步，谷歌這樣的作法恐怕也不是就僅僅追求“政治正確”這麼簡單，背後是否有中共藍金黃和邪惡力量的支持，時間一定會給出答案。
+
+[原文鏈接](https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+
+翻譯報導：名仔
+校對整理：人間四月
 
 0
