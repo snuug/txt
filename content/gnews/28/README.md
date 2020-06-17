@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國譴責馬杜羅試圖操控下屆委內瑞拉大選
-`2020-06-16 09:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/235756/)
+## 川普總統將於週二6月16日簽署一項警察改革行政命令
+`2020-06-16 21:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/236081/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-68.png)圖片來源：[http://www.tellerreport.com](http://www.tellerreport.com/news/--guaid%C3%B3---600-venezuelan-soldiers-no-longer-support-maduro-government--.BJoPvGwUV.html)
-以下是美國國務卿邁克爾·蓬佩奧（Michael R. Pompeo）譴責馬杜羅（Maduro）為委內瑞拉下一次選舉做準備的最新舉措的媒體聲明（全文翻譯）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03133858/%E5%B7%9D%E6%99%AE.jpg)
+據路透社華盛頓報導：川普總統將於週二（6月16日）簽署一項行政命令，對警察執法資格認證，職業培訓和精神健康評估等方面採取改進措施，使警察依法依規執法。
 
-自由選舉是委內瑞拉走出當前深陷的政治危機的唯一出路。不幸的是，在6月12日，馬杜羅獨裁政權控制的最高法院非法任命一個國家選舉委員會（CNE），繼續操縱委內瑞拉《憲法》。
+數週前，明尼阿波利斯4名警察在拘捕非裔美國人喬治·弗洛伊德（George Floyd）時意外致其死亡，事件發生後，抗議活動頻頻發生，川普總統呼籲民眾擯棄暴力，堅持和平理性，維持法律與秩序，民主黨則藉機對其發起攻擊。
 
-委內瑞拉人需要一個獨立的國家選舉委員會。委內瑞拉憲法賦予由民主選舉的國民議會負責推選國家選舉委員會成員的權力。如不遵循這一程序，就不可能代表人民的意願進行選舉活動。
+該行政命令將把部份聯邦政府撥款與良好的警務做法直接相關聯，促進對警察部門的激勵機制。鼓勵警察部門採用最新的使用武力標準；改善信息共享，加強背景審查，防止那些有劣跡記錄的人混入警察隊伍；並讓社會工作者參與對涉及毒品和無家可歸者的非暴力案件的執法處理。
 
-馬杜羅政權指定CNE，為其違背自由選舉打上了烙印。
+評：
 
-[正如我們之前表達過的，獨立的CNE是自由和公正選舉的核心前提](https://www.state.gov/free-and-fair-presidential-and-parliamentary-elections-in-venezuela)，其中關鍵領域包括：
+自從喬治·弗洛伊德死亡事件發生後，美國甚至其它國家的抗議活動頻頻發生，有些人甚至乘機搞暴力破壞，嚴重破壞了社會的正常法治秩序。現在還是控制CCP病毒蔓延傳播的關鍵時期，大量民眾的聚集可能導致CCP病毒的加速傳播。必須防止CCP及其它惡意勢力混水摸魚影響即將到來的大選，盡快依法有效解決警察部門的改革問題，平息事端，川普總統此舉順應民意，有重要意義。
 
-- 取消對政黨和候選人的禁令
-- 取消針對反對派政客的出於政治動機的司法程序
-- 釋放所有政治犯
-- 尊重言論，新聞和結社自由
-- 以透明的方式解決對自由和公正選舉的所有技術挑戰，包括選民登記以及投票機的購買和使用
+[原文鏈接](https://uk.reuters.com/article/uk-minneapolis-police-usa-trump/trump-to-sign-police-reform-executive-order-on-tuesday-idUKKBN23M2TJ)
 
-
-委內瑞拉人民要求並應享有自由和公正的選舉權。該獨裁政權及其最高法院的這一步行動使委內瑞拉離民主過渡更加遙遠。
-
-[原文鏈接](https://www.state.gov/the-united-states-condemns-maduros-latest-step-to-rig-the-next-venezuelan-election/)
-
-翻譯報導：匿名
+翻譯報導：下里巴人
 校對整理：晴天小螞蟻
 
 0
