@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-17 03:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/236659/)
+## CCP病毒在北京二次爆發，甩鍋給海外的把戲不會有人再信
+`2020-06-17 07:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/236840/)
 
-戰友之家圖文摘要組及小語種組
+![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-75.png)
+據《福布斯》報導，中共正在與CCP病毒的再次爆發作鬥爭，這引發了人們對該病毒是否會伴隨著封鎖和旅行禁令捲土重來的擔憂。在中共國的首都連續56天零感染病例後，突然增加了許多CCP病毒新病例。這個病例激增發生在夏季，早於許多人所預測的 “病毒二次爆發會在冬季”的情況。
 
-[English\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0615_CCP_Virus_Updates.pdf)
+根據中共國周二實施的規定，來自北京的旅客在抵達上海和部分省份後，將面臨14天的檢疫隔離。目前已有三個省份報告出現與北京感染群有關的病例，北京也開始禁止一些高危區域居民離開北京。各省建議居民推遲不必要的北京旅行。自上週四以來，北京新增CCP病毒病例有106例。中共國的《環球時報》表示：“北京不是武漢2.0。我們認為，這種病毒不會像武漢早期那樣迅速傳播。”財新網寫道，未來三天對遏制病毒傳播至關重要，但表示沒有必要實施封城措施。韓國在5月出現了小規模CCP病毒導致的死亡情況，在本週新西蘭和日本也報告了突然新增的CCP病毒病例。美國的第一波被CCP病毒侵襲的浪潮尚未平息，最近又有多達20個州的病例開始不斷上升。
 
-[French\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0615_CCP_Virus_Updates_-.pdf)
+據報導，北京將在不到一周的時間，對近100,000人進行CCP病毒的測試。他們中的大多數人都與新感染群新發地批發市場有密切接觸。該市場是北京最大的農貿市場，搜尋任務艱鉅，官員們估計能追溯到在關閉市場前14天之內接觸的人群數量大概在20萬人。 CCP病毒最初是在市場上的三文魚砧板上發現的，但中共國疾病預防控制中心（疾控中心）並不認為該病毒具有像魚一樣的中間宿主。對病毒進行測序後，疾控中心表示“這是來自歐洲的一種毒株”，但號稱其來源尚不清楚。該批發市場附近的建築已被隔離，飯店經營已經嚴重被影響，針對特定年齡段的學校也已關閉。
 
-[German\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0615_CCP_Virus_Updates_-.pdf)
+目前整個北京並沒有處於完全封鎖的狀態。與當初武漢關閉了76天機場不同，北京的兩個機場仍然開放，但很多乘客似乎都推遲了行程。據VariFlight的數據顯示，週日飛往北京的航班平均載客率為62％，與週六相比下降了11個百分點，較一周前相比下降了16個百分點。與週六相比，北京出境航班的載客率下降了9個百分點，與一周以前相比，下降了3個百分點。旅行市場銷售的下降似乎快於航空公司的反應速度。這樣的狀況讓很多股民感到不安，旅遊產業股受到很大的衝擊。上海和廣州機場股票的跌幅比北京機場大。但是，總部位於北京的國航股跌幅超過上海的東方航空和廣州的南方航空。
 
-[Japanese\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0615_CCP_Virus_Updates.pdf)
+評：
 
-[Korean0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean0615_CCP_Virus_Updates.pdf)
+這次中共病毒在北京的第二次爆發，再一次證實：中共病毒完全不是中共所宣傳的那樣，會隨溫度升高而減少甚至消失；它不僅僅只會在寒冬爆發，病毒的傳播與季節無關。中共掩蓋CCP病毒真相，故意將其傳遍世界。接下來，中共也許會對第二波病毒感染數據繼續造假，並將其怪罪於境外輸入，但無論中共如何操控輿論戰，在世界經歷了這場中共所製造的沒有硝煙的病毒戰之後，國際社會不會再次給予中共這個偽政權希望和機會，由中共一手造成的對世界人民的傷害和對世界經濟的打擊一定會遭到全球各國聯手的製裁和審判。
 
-[Russian\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0615_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.forbes.com/sites/willhorton1/2020/06/16/new-coronavirus-outbreak-second-wave-fear-in-china-prompt-travel-warnings-but-no-lockdown/#37f854c72ba4)
 
-[Spanish\_0615\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0615_CCP_Virus_Updates.pdf)
+翻譯報導：Hakunamatata
+校對整理：人間四月
 
 0
