@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 經過68年的審查制度川普繼續沿用： 禁止共產黨員加入美國國籍
-`2020-06-17 23:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237280/)
+## 國務卿邁克爾·蓬佩奧會晤中國共產黨中央政治局委員楊潔篪
+`2020-06-18 01:39 GM31` [轉載自GNews](https://gnews.org/zh-hant/237380/)
 
-![如果在申請時還是一名共產黨員，或10年內曾參加過共產黨，就無法成為美國公民。除此之外還包括那些為共產黨或附屬組織發聲、發表宣傳的資料等行為的申請者。 --- 川普總統](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/17225606/trump-ap-er-200611_hpMain_16x9_1600.jpg)*圖片來源：Alex Brandon/AP*
-- 要點：經過68年，1952移民和國籍法幾經修改，第313章節依舊原封不動：此章節嚴格查禁任何共產黨員移民入籍事項。
-- 如果在申請時還是一名共產黨員，或10年內曾參加過共產黨，就無法成為美國公民。除此之外還包括那些為共產黨或附屬組織發聲、發表宣傳的資料等行為的申請者。— 川普總統
+**Secretary Michael R. Pompeo’s Meeting with Chinese Communist Party Politburo Member Yang Jiechi**
 
+### **國務卿邁克爾·蓬佩奧會晤中國共產黨中央政治局委員楊潔篪**
 
-據英國衛報&lt;The Guardian&gt;最新報導，美國川普總統在周一的講話中，提出了對穆斯林移民的“極端審查”，是審查他們是否真正認同美國價值觀，同時隱射此舉效仿冷戰時期1950年對共產黨員的嚴格移民審查制度。雖年代久遠，但是這些審查制度直到今日還在沿用，並成為移民制度中的一個重要組成部分。上述提及的美國價值觀，是指根據美國公民和移民服務局所頒發的入籍要求，準公民必須明確表明“對美國憲法的遵從”以及“對美國良好社會秩序”的支持。
+JUNE 17, 2020
 
-該文章還指出，川普總統曾表示：任何人服務於共產黨或任何獨裁恐怖組織的，就說明缺乏對美國憲法的理解和認同。（這樣身份）申請者並不會真正為美國的良好社會秩序和安定著想。也就是說如果在申請時還是一名共產黨員，或10年內曾參加過共產黨，就無法成為美國公民。除此之外還包括那些為共產黨或附屬組織發聲、發表宣傳的資料等行為的申請者。
+2020年6月17日
 
-這些審查制度起源於1952年的麥卡倫-沃爾特法案，同時也被稱為1952移民和國籍法。該法案收集並規整了當時的移民法律。自從該法案通過後，已經被多次修改。但是，第313章節依舊原封不動。此章節嚴格查禁任何共產黨員移民入籍事項。
+The below is attributable to Spokesperson Morgan Ortagus:
 
-文章進一步說明：雖然美國對共產黨員審查嚴格，但是還有極少數例外情況依舊可以成為美國公民。美國移民局網站上列舉條件有：非自願成為黨員、加入時缺乏對共產黨組織的性質和宗旨的理解、16歲之前就已退出共產黨、在申請公民身份的10年前就已退出共產黨、利用會員資格來獲取工作、食物、或其他生活必須因素等等。
+Secretary of State Michael R. Pompeo met today with Chinese Communist Party (CCP) Politburo Member Yang Jiechi in Honolulu, Hawaii to exchange views on U.S.-China relations.  The Secretary stressed important American interests and the need for fully-reciprocal dealings between the two nations across commercial, security, and diplomatic interactions.  He also stressed the need for full transparency and information sharing to combat the ongoing COVID-19 pandemic and prevent future outbreaks.
 
-本文撰稿人查證到，移民局網站上聲明公民申請人有責任證明自己對憲法的支持，並且為維持美國良好秩序和安定而努力。
+以下是發言人Morgan Ortagus的發言：
 
-附資料：[1952移民和國籍法：Immigration and Nationality Act of 1952](https://zh.wikipedia.org/wiki/%E9%BA%A6%E5%8D%A1%E4%BC%A6%E5%9B%BD%E5%86%85%E5%AE%89%E5%85%A8%E6%B3%95)
+今天，美國國務卿邁克爾·蓬佩奧在夏威夷檀香山會晤了中國共產黨中央政治局委員楊潔篪，雙方就中美關係交換了意見。國務卿強調了美國的重要利益，以及兩國在商業、安全和外交互動方面進行全面對等交易的必要性。他還強調，必須充分透明和共用資訊，以便抗擊持續的COVID-19大流行病，並防止未來疫情爆發。
 
-[原文鏈接](https://www.theguardian.com/us-news/2016/aug/16/communist-party-members-still-barred-us-citizenship-trump)
+出處：[Secretary Michael R. Pompeo’s Meeting with Chinese Communist Party Politburo Member Yang Jiechi](https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
 
-翻譯報導：Cadenza
-校對整理：瑞安平
+*翻譯：【豆小豆】*  *校對：【**GM31**】*
 
-0
+*戰友之家玫瑰園小隊出品*
+
+1
