@@ -1,22 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 下一周將掀起滅共滔天巨浪&amp;新中國聯邦關於西藏的立場
-`2020-06-18 13:45 Diago` [轉載自GNews](https://gnews.org/zh-hant/238107/)
+## 白宮發言人關於財政部和國務院制裁阿薩德政權的聲明（中英文對照）
+`2020-06-18 16:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238147/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18134339/7C249642-11AA-47B3-85BA-A1479BEFF16D_w650_r1_s.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18155122/WH_20200617_target_Assad_photo169.png)From Google Map
+**Statement from the Press Secretary Regarding Treasury and State Sanctions** **on the Assad Regime**
 
-郭文貴先生在“2020年6月17日文貴先生GTV直播，GTV投資和查詢股票及夏威夷會議及喜馬拉雅農場，新中國聯邦的巨大影響力”的直播中談到——
+**白宮發言人關於財政部和國務院制裁阿薩德政權的聲明**
 
-【從昨天到今天，全世界跟我們有聯繫的國家，這幾個國家，在還沒醒過來神兒呢，那天閃電之後，現在醒過來了，MILES，為什麼你在四月份就說北京會成為最嚴重的災區，為什麼當時三月份你就說曼哈頓將是美國最嚴重的，你都說對了，為什麼？為什麼，為什麼，為什麼，太多為什麼，我真煩了，我說我不想證明我多偉大，我也不想證明我正確，我希望少死人，我說下一周在美國、在全世界，你將看到爆料革命掀起一場駭風颶浪，告訴你答案為什麼，戰友們，莘縣陽穀縣搭縣，戰友們，北京的戰友、國內的戰友，你就差這一星期兩天就要上學怎麼著，你說是死了好還是，這個我說過也不想控制，很多戰友們，拜託了，安全、安全、安全，孝敬爹娘、疼愛老婆、疼愛老公、熱愛生活、健身健心，好不好，戰友們！太多好事了，我就不說了，下周你們關注福克斯、關注美國主流媒體，關注世界重大政治機構的改革，關注北京出現的讓你無法想像的重大決定，中不中？一起為新中國聯邦、全世界人民、香港、臺灣、西藏人民祈福。阿彌陀佛！阿彌陀佛，阿彌陀佛。
+Foreign Policy
 
-最後再說西藏的啊，很多戰友今天又給我發了很多消息，看了我昨天的直播，我想跟西藏的朋友們再說一遍啊，現在你們有啥意見啊，我都尊重，我不想和你們爭論，我代表不了任何西藏，我們新中國聯邦的原則非常清楚，包括美國朋友，還有歐洲朋友都很支持我的原則，我們只和現在的尊者達賴喇嘛打交道，我們跟隨，達賴喇嘛說，尊者說，要獨立，那就獨立，他說中間路線就中間路線，他說大西藏區就大西藏區，他說加入聯邦就加入聯邦，一切聽尊者達賴喇嘛的，這就是我一切原則，在共產黨沒滅以前，啥也不想談，我們也不想談，談了也沒用，都是意淫，我深知道內部情報，共產黨正在全世界各地物色所謂的西藏人，在準備沒有達賴喇嘛以後的後西藏，，，，，，所以說親愛的兄弟姐妹們，西藏這個事情，就這麼簡單。沒幹滅共產黨，說啥都是廢話，幹滅共產黨了，由西藏人民決定！
+Issued on: June 17, 2020
 
-一切都是剛剛開始，好事太多，俺就不說了，對了看新中國聯邦CCTV中央電視臺——路德訪談。】
+外交政策
 
-下一周會出什麼大事兒呢？莫非中國的英雄科學家要隆重登場了？讓我們拭目以待！
+發佈時間：2020年6月17日
 
-（文章內容僅代表作者個人觀點）
+Today, at President Donald J. Trump’s direction, the Department of the Treasury and Department of State announced important sanctions designations on individuals and entities actively supporting the murderous and barbaric Assad regime in Syria.  Today’s designations employ a wide range of sanctions authorities to target the Assad regime, including the Caesar Act provision of the National Defense Authorization Act (NDAA) for Fiscal Year 2020, which authorizes sanctions on individuals providing support to the Syrian government.
+
+今天，在唐納德·川普的命令下，財政部和國務院宣布了對積極支持敘利亞兇殺和野蠻的阿薩德政權的個人和實體實施重要製裁。今天針對阿薩德政權啟用了大範圍的製裁，其中包括了《 2020財政年度國防授權法》（NDAA）中的《凱撒法案》，該條款授權對向敘利亞政府提供支持的個人實施制裁。
+
+The targets of today’s sanctions include regime-loyalists, Syrian financiers supporting corrupt reconstruction efforts, and individuals actively involved in the ceasefire disruption in northern Syria.
+
+今天的製裁對象包括忠於政權的人、支持腐敗的重建工作的敘利亞金融家以及積極參與破壞敘利亞北部停火的個人。
+
+Since the 2011 start to the Syrian conflict, the Assad regime has committed innumerable atrocities against Syrians, including arbitrary detention, torture, sexual violence, and murder.  These despicable acts have devastated the country’s people, infrastructure, and economy, displacing more than half of Syria’s population.
+
+自2011年敘利亞衝突開始以來，阿薩德政權對敘利亞人犯下了無數暴行，包括任意拘留、酷刑、性暴力和謀殺。這些無恥的行為摧殘了該國的人民、破壞了基礎設施和經濟，使敘利亞一半以上的人口流離失所。
+
+Today’s designations send a clear message that no individual or business should enter into business with or otherwise enrich such a vile regime.
+
+今天的指定發出了一個明確的信號，即沒有個人或企業應該與這樣一個卑鄙的政權建立業務關係或以其他方式為其提供資金。
+
+Importantly, today’s actions under the Caesar Act and Executive Orders 13894, 13582, and 13573 are intended to hold the murderous Assad regime accountable.  They are not directed at the Syrian people.
+
+重要的是，今天根據《凱撒法》和第13894號、第13582號和第13573號行政命令採取的行動旨在追究兇殘的阿薩德政權的責任，而不是針對敘利亞人民的。
+
+This Administration is committed to a lasting political solution.  The Assad regime and its patrons must recognize that a political resolution is the only viable mechanism to bring a peaceful end to the Syrian conflict.
+
+本屆政府致力於實現一個長期的政治解決方案。阿薩德政權及其支持者必須認識到，這個政治解決方案是和平結束敘利亞衝突的唯一可行機制。
+
+白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/)
+
+*翻譯：【Melody太阳的旋律】校對： 【Olivia9802】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

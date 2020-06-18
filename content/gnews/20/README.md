@@ -1,55 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 李克強早前簽署三峽大壩防衛條例預示三峽大壩就是一顆定時炸彈
-`2020-06-18 06:00 本杰明` [轉載自GNews](https://gnews.org/zh-hant/237676/)
+## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
+`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
 
-作者：文茗
+**作者：Dogman**
 
-2015年9月16日，李克強簽署國務院令，公佈了《長江三峽水利樞紐安全保衛條例》（以下簡稱條例），自2013年10月1日起施行針對三峽工程的海陸空立體及從中央到地方四級防衛條例。此條例的發布，凸顯長江三峽水利樞紐的危險增大。
-![](https://gnews.org/wp-content/uploads/2020/06/图片1-4.png)
-條例共7章41條，分為總則、陸域安全保衛、水域安全保衛、空域安全保衛、安全保衛職責、法律責任、附則。引人關注的是，條例還明確了從中央、湖北省、宜昌市到三峽樞紐運行管理單位的四級安保工作協調機制，確定了牽頭責任主體和重點職責。條例明確了長江流域各港口碼頭以及進入三峽樞紐安全保衛區船舶的相關安全保衛職責，強化了碼頭和船舶管理責任人的安全責任制，從源頭上預防、消除威脅三峽樞紐的安全隱患。
-中共《財經》副主編羅昌平注意到海陸空立體保衛三峽條例，偏偏將重慶排除在保衛工作之外。他在微信上發表文章，詳細解讀日前國務院發布命令，認為此舉正突顯了三峽的一大隱患。
+評議：
+美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
+大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
 
-三峽工程分佈在重慶市到湖北省宜昌市的長江乾流上，但是條例似乎排除了重慶市參與安全保衛的資格。這正顯示了三峽工程的危險性。據維基百科稱，三峽工程對重慶市造成多重危害：
+原文（鏈接2）：
+美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
 
-一、新重慶地區的貧困問題：三峽庫區於1997年和併入重慶的15個區縣因移民造成嚴重失業，貧困問題嚴重，而由於這些城市併入相對發達的重慶，更造成重慶市城鄉極為懸殊的經濟差距（2009年達到了500％）。三峽工程上馬導致庫區2000多家企業被關閉，失業者大增。庫區經濟以“吃財政飯”為主，稅收持續下降。屬於三峽庫區的萬州當地城鎮失業率8.1％，21.9％的城鎮移民靠低保（居民最低生活保障制度）生活。三峽庫區的涪陵及其以下八個區縣，當地城鎮失業率8.95％，人均GDP是重慶主城九區的20％不到，全國平均水平的50％。很多移民和搬遷安置款項至今沒有到位，造成了重慶主城區與三峽庫區居民嚴重的對立情緒和衝突。
-![](https://gnews.org/wp-content/uploads/2020/06/图片2-3.png)
-二、泥沙淤積和水位問題：長江上游河流所攜帶的除了泥沙，還有顆粒較大的鵝卵石，在三峽大壩築起後將極難排出，會造成堵塞，並向上游延伸，進而影響重慶。與泥沙淤積問題同樣極具爭議的，還有水位問題。在三峽蓄水至135米後，有人發現從大壩到庫尾之間的水位落差多達34.7米，遠遠超過了工程論證報告認為的0.4米，因此擔憂重慶可能會在三峽完全蓄水後被淹沒。
+此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
 
-三、生態環境問題：重慶三峽庫區污染問題有七成是農業生產以及農民生活對環境造成的污染，已經大大超過了工業污染水平。
+霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
 
-四、地質災害問題：重慶山下庫區近一半的地區存在水土流失，石漠化嚴重。三峽庫區重慶境內有超過一萬處隱患點，截至2010年已發生地質災害（險情）252處。
+對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
 
-當年被江澤民強制上馬的三峽工程，不僅引發嚴重生態危機，三峽大壩本身也面臨軍事上重大威脅。
+與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
 
-1991年初，中共國物理學教授錢偉長在報刊上發表了一篇文章，名為《海灣戰爭的啟示》，談到海灣戰爭和三峽大壩建設中的人防安全的關係。錢偉長文中表示，三峽水庫潰壩的危害，將使長江下游六省市成為澤國，幾億人將陷入絕境。他認為，三峽大壩將成為外部敵人威脅的目標。面對目前的導彈技術，三峽大壩的防禦是不可能的。因此，錢偉長建議，三峽工程是千萬不應上馬，否則就是乾自鑄達摩克勒斯劍的蠢舉。
-在三峽大壩擬議修建之初，著名水利專家清華大學教授黃萬里從地質、環境、生態、軍事諸方面痛陳三峽工程的危害，他預警了三峽水庫蓄水後卵石淤塞重慶、四川水患、浩大的工程開銷和必將釀成禍患的移民安置，並預言三峽高壩若修建，終將被迫炸掉。因此，他不被邀請參加三峽工程論證。
-![](https://gnews.org/wp-content/uploads/2020/06/图片3-2.png)
-資料顯示，三峽大壩全長一千九百八十三米，壩頂高程一百八十五米，最大壩高一百七十五米。自左到右由船閘壩段、升船機壩段、左發電廠壩段、洩洪壩段、右發電廠壩段和地下電廠壩段組成，共使用混凝土二千七百萬噸。而組成大壩的幾十個混凝土壩塊長度不等，窄的不到十三米，寬的有四十五米。
-大壩建成後各種地質災難頻現，尤其是崩岸明顯增加，截至2007年9月三峽庫區共有各類崩塌、滑坡體4,700多處，其中627處受水庫蓄水影響，863處在移民遷建區。
+司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
 
-2007年9月25日，中共高級官員和專家學者在武漢召開研討會，討論三峽工程生態環境建設與保護工作。專家表示，三峽工程生態環境安全存在諸多新老隱患，如不及時預防治理，恐釀大禍。這是中共官方首次一改以往為三峽工程辯護立場，承認形勢嚴峻。
+此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
 
-2013年1月，長江水利委員會水資源保護局前局長翁立達發表標題《齊嶽山東北斷裂是三峽最大的地質隱憂》的文章說，對三峽水庫而言，危害最大的是構造型地震。
+川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
 
-據悉，在第二庫段仙女山斷裂、九畹溪斷裂、建始斷裂北延和秭歸盆地西緣一些小斷層的交會部位，有可能誘發水庫地震。
-![](https://gnews.org/wp-content/uploads/2020/06/图片4-2.png)
-正如著名學者王維洛說的，三峽大壩不是中共所宣傳的一個銅牆鐵壁。它的壩型，它的結構決定了三峽大壩是一個三溝百孔的一個奶酪般的大壩。 “它有三條橫貫大壩的槽，兩條是船閘的通道，一條是深船區的通道。這兩條通道的兩邊只是一塊鋼板組成的，特別是深船區的這個航道，它只有一塊鋼板組成。那些一百多個洞眼，也是由一個鋼板組成的。如果有人用幾斤炸藥，或者是用一個防坦克的火箭筒，就能摧毀這個鋼板，下面的只要有水自己來完成就行。”
+川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
 
-只要三峽大壩控制水的通道被破壞了以後，大壩就會被水沖變形。因為三峽大壩是由幾十塊混凝土塊體這麼擺在一起組成的，它是放在岩石上的。它們中間不是互相連接的，只要發生變形的話，潰壩就隨時可能發生。
+媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
+而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
 
-進來中共國南方暴雨連綿不斷，百餘河流爆發大洪水。三峽大壩這顆定炸彈出現任何閃失，其危害將使長江下游6省市成澤國，幾億人陷入絕境。
-中共國家應急管理部6月12日消息稱，截至目前，洪災已經造成江西、湖南、廣西等22個省（區、市）580萬人次受災，39人死亡、失踪，40多萬人轉移，5200餘間房屋倒塌。
-![](https://gnews.org/wp-content/uploads/2020/06/图片5.png)
-水利部官員此前在記者會上說，江南、華南和西南東部發生了今年以來最大強度降雨。有148條河流發生超過警戒線水位以上的洪水。一些河流甚至出現超歷史記錄的大洪水。水利部官員形容防汛形勢很嚴峻，要做好防大汛準備，防大洪水的準備。
+NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
 
-重慶近日也遭遇特大暴雨襲擊，市區多地一片汪洋，道路變河流，深處積水達2米深，汽車沒頂。因為重慶在三峽大壩的上游，雨水的歸宿就是長江。有網友發視頻說，廣西南丹和貴州都勻交界的龍塘水庫決堤，三峽大壩危矣！
+“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
 
-正如去年網絡炒的沸沸揚揚：衛星圖像比對三峽大壩發生了變形，有可能潰壩。隨後共產黨官媒“避謠”說沒變形，但後來三峽集團專家院士們承認，三峽大壩水平位移。
-![](https://gnews.org/wp-content/uploads/2020/06/图片6.png)
-三峽大壩這個錯誤的歷史時刻建造的錯誤工程，今日的極端氣候是對它一次真實的考驗。我最擔心的就是下游那幾億的同胞，共產黨的滅亡必會帶走很多陪葬者，但如此之多骨血同胞，我實心不忍啊。不論是哪位生活在下游的同胞看到此文，希望您能暫時躲避，不要與共產黨陪葬。
+谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
 
-(文章內容只代表作者觀點)
+Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
+
+鏈接：
+
+1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+
+
+
 
 0

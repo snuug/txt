@@ -1,50 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮發言人關於財政部和國務院制裁阿薩德政權的聲明（中英文對照）
-`2020-06-18 16:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238147/)
+## 日本修改法律緊跟美國步伐制裁中共高科技
+`2020-06-18 16:42 benjaming` [轉載自GNews](https://gnews.org/zh-hant/238055/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18155122/WH_20200617_target_Assad_photo169.png)From Google Map
-**Statement from the Press Secretary Regarding Treasury and State Sanctions** **on the Assad Regime**
+作者：文茗
 
-**白宮發言人關於財政部和國務院制裁阿薩德政權的聲明**
+近日據日本媒體報導，東京警視廳公安部5月立案的可轉用於生物武器製造的噴霧乾燥裝置非法出口案件，首次適用了3年前把罰金上限提高100倍至10億日元（約合人民幣6597萬元）的修改後的《外匯法》。這是在美國和中共國對立的背景下，日本政府為防止尖端技術外流而加強出口管理體制。
+![](https://gnews.org/wp-content/uploads/2020/06/图片2-8.png)
+修改後的《外匯法》將罰金從最高1000萬日元以下提至10億日元，於2017年10月施行。今年5月又進行修改，加強了外國投資者向武器、核能等安全相關企業的出資限制。在如此高額的罰金下，將大大提高日本企業的“作案”成本，有效的管控日本的高端技術！
 
-Foreign Policy
+根據修改後的《外匯法》，外國投資者在取得安全保障上重要企業的股份時，作為必須事先申請的出資比率從此前的“10%以上”下調至“1%以上”，變得更加嚴格。
 
-Issued on: June 17, 2020
+此外，新法根據業務內容和章程把所有上市企業分為三類。作為最重要的企業，及三菱重工業等518家企業被列入對國家安全相當重要的企業名單。據悉，企業名單今後也將進行調整。
+![](https://gnews.org/wp-content/uploads/2020/06/图片3-8.png)
+為什麼在美國對中共的製裁加快的當下，日本會如此緊迫的修改法律呢？其實稍加思索能獲得答案：日本修改法律直指的就是高科技，而高科技卻是共產黨最大的短板，同時日本是美國在亞太最大的盟友。由此看來，日本修改“外匯法”直指的就是中共。
 
-外交政策
+在當今的世界上，如果說有哪個國家的技術能力能跟美國相提並論的話，毫無疑問就是日本了。日本擁有世界領先的機器設備製造，芯片技術等等！例如共產黨被卡脖子的芯片技術來說，日本不僅在上游有著設計核心、下游摸著產品製造，還在中游控制著原料，在全球芯片半導體製造鏈條上，日本可謂是獨當一面！
 
-發佈時間：2020年6月17日
+超高精度機床主要是日本，德國，瑞士的天下，其中日本更是領先世界一大截。這些高精度機床一直都是共產黨夢寐以求的設備，共產黨所有尖端軍事設備都來自於這些尖端機床製作完成。如果共產黨再也無法獲得這些高精度機床，共產黨可能連一架飛機都無法飛上天，沒有一發砲彈可以打中目標。
+![](https://gnews.org/wp-content/uploads/2020/06/图片4-5.png)
+不管是技術積累還是人才儲備上，日本是世界上最接近美國的國度。而且，在此次美中對立的情況下，按照共產黨的​​邏輯應該是日本的一個機遇：很多原來的美國供應商，完全可以轉為日本供應商；日本可以通過向中共國輸出技術，擴大在華市場份額；而中共國則可以獲得日本的技術支持，避開美國技術限制等等。用一句話總結，就是日本可以選擇邪惡，從撒旦那裡賺取非常多的錢。
 
-Today, at President Donald J. Trump’s direction, the Department of the Treasury and Department of State announced important sanctions designations on individuals and entities actively supporting the murderous and barbaric Assad regime in Syria.  Today’s designations employ a wide range of sanctions authorities to target the Assad regime, including the Caesar Act provision of the National Defense Authorization Act (NDAA) for Fiscal Year 2020, which authorizes sanctions on individuals providing support to the Syrian government.
+最令共產黨遺憾的是，出於站在正義方美國的考慮，日本必須選擇正義的一方，放緩與中接觸，控制好對共產黨尖端技術和設備的輸出。毫無疑問這會直接打擊共產黨升級製造業、稱霸世界的野心，甚至讓共產黨的邪惡計劃胎死腹中。
+![](https://gnews.org/wp-content/uploads/2020/06/图片5-2.png)
+同時，也驗證了一個道理，任何一個國家想要挑戰人類共同價值觀的時候，就是被排除在世界秩序之外的時刻。今天的共產黨在被他用藍金黃“拿下”的這些國家一個一個拋棄，等待共產黨的只有滅亡這一條路。
 
-今天，在唐納德·川普的命令下，財政部和國務院宣布了對積極支持敘利亞兇殺和野蠻的阿薩德政權的個人和實體實施重要製裁。今天針對阿薩德政權啟用了大範圍的製裁，其中包括了《 2020財政年度國防授權法》（NDAA）中的《凱撒法案》，該條款授權對向敘利亞政府提供支持的個人實施制裁。
-
-The targets of today’s sanctions include regime-loyalists, Syrian financiers supporting corrupt reconstruction efforts, and individuals actively involved in the ceasefire disruption in northern Syria.
-
-今天的製裁對象包括忠於政權的人、支持腐敗的重建工作的敘利亞金融家以及積極參與破壞敘利亞北部停火的個人。
-
-Since the 2011 start to the Syrian conflict, the Assad regime has committed innumerable atrocities against Syrians, including arbitrary detention, torture, sexual violence, and murder.  These despicable acts have devastated the country’s people, infrastructure, and economy, displacing more than half of Syria’s population.
-
-自2011年敘利亞衝突開始以來，阿薩德政權對敘利亞人犯下了無數暴行，包括任意拘留、酷刑、性暴力和謀殺。這些無恥的行為摧殘了該國的人民、破壞了基礎設施和經濟，使敘利亞一半以上的人口流離失所。
-
-Today’s designations send a clear message that no individual or business should enter into business with or otherwise enrich such a vile regime.
-
-今天的指定發出了一個明確的信號，即沒有個人或企業應該與這樣一個卑鄙的政權建立業務關係或以其他方式為其提供資金。
-
-Importantly, today’s actions under the Caesar Act and Executive Orders 13894, 13582, and 13573 are intended to hold the murderous Assad regime accountable.  They are not directed at the Syrian people.
-
-重要的是，今天根據《凱撒法》和第13894號、第13582號和第13573號行政命令採取的行動旨在追究兇殘的阿薩德政權的責任，而不是針對敘利亞人民的。
-
-This Administration is committed to a lasting political solution.  The Assad regime and its patrons must recognize that a political resolution is the only viable mechanism to bring a peaceful end to the Syrian conflict.
-
-本屆政府致力於實現一個長期的政治解決方案。阿薩德政權及其支持者必須認識到，這個政治解決方案是和平結束敘利亞衝突的唯一可行機制。
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/)
-
-*翻譯：【Melody太阳的旋律】校對： 【Olivia9802】*
-
-*戰友之家玫瑰園小隊出品*
+（文章內容僅代表作者觀點）
 
 0

@@ -1,54 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
-`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
+## 美參議員提出《台灣防衛法》 阻止中共對台“既成事實”策略
+`2020-06-18 08:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237816/)
 
-**作者：Dogman**
+![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-82.png)圖片來源：Reuters
+據台灣英文新聞報報導，6月11日美國共和黨聯邦參議員喬什·霍利(Josh Hawley)提出《台灣防衛法》草案（[Taiwan Defense Act](https://www.hawley.senate.gov/sites/default/files/2020-06/Taiwan-Defense-Act.pdf))。該法案旨在使美國能夠在中共軍隊日益強大和咄咄逼人的情況下，履行《台灣關係法》所規定的義務。該法案將要求國防部採取措施，確保台灣有能力挫敗中共國的入侵，特別是針對台灣的”既成事實”策略。
 
-評議：
-美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
-大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
+霍利議員表示，台灣是”自由開放的印太地區要津。如果讓中共奪取台灣的控制權，它將隨時統治印太地區。這不僅會對美國的亞洲盟友以及合作夥伴，而且也會對美國人構成不可接受威脅，決不能容忍此事發生。”
 
-原文（鏈接2）：
-美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
+該法案中的”既成事實”策略是指在美軍向該地區派遣部隊之前，中共軍隊會設法擊潰台灣的防禦力量。在這種情況下，中共軍隊將控制台灣，並阻止美國的干預，最終使美國別無選擇，只能接受中共國吞併台灣的既成事實。
 
-此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
+該法案建議美國採取據止行動，包括前沿部隊的 “遲滯行動”，以阻止中共軍隊的既成事實策略。該法案甚至建議對美軍使用核武器打擊該策略進行評估，並確保在中共或美國使用核武器後，美軍依然可以繼續保衛台灣。
 
-霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
+*注：*
+*1. 據止行動（denial operations）：據止行動是一種拒絕敵方使用空間、人員或設施的行動。它可能包括銷毀、清除、污染或建造障礙物。 （摘自www.globalsecurity.org）
+2. 遲滯行動（blunt layer）：指延緩、降低或阻止對手的侵略。 （摘自《美國國家發展戰略實施指南》國民警衛隊篇）*
 
-對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
+評：
 
-與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
+中共高層深知軍事實力無法和美軍正面對抗，才想出“既成事實”這個策略，想通過突然襲擊的方式，打美軍一個措手不及，逼迫美軍接受中共武力吞併台灣的事實。近年來，中共對內著力發展海軍、火箭軍，以及推進南海軍事化，對外透過藍金黃拉攏、扶植島內親共力量，都是在穩定推進該策略，妄圖在侵台時，裡應外合達到迅速控制台灣的險惡目的。
 
-司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
+當前中共國陷入內外交困的局面，中共軍隊武力侵台的可能性驟增。在此背景之下，台灣防衛法草案的提出非常及時，該草案中具體提到的據止行動、遲滯行動，以及首次提出的使用核武器進行嚇阻，這些針對性的反制措施，是對中共黨內軍內的好戰分子的一次嚴重警告。
 
-此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
+台灣作為美國印太戰略的重要節點和盟友，美國絕不可能容忍中共侵占台灣。之前郭文貴先生多次在直播中談及台灣問題，結合6月4日新中國聯邦的建立，未來當美國和國際社會正式宣布中共國為非法政府、恐怖組織之時，美國駐軍台灣甚至香港，都會是合理合法。到那時，中共只有望“台“興嘆了~讓我們拭目以待吧！
 
-川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
+[原文鏈接](https://www.taiwannews.com.tw/en/news/3946567)
 
-川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
+翻譯報導：Joseph Yang
+校對整理：Yamap
 
-媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
-而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
-
-NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
-
-“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
-
-谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
-
-Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
-
-鏈接：
-
-1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-
-
-
-
-0
+2
