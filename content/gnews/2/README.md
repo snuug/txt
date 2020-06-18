@@ -1,25 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 楊潔篪見蓬佩奧前的瘋狂：近半世紀以來中印首次爆發流血衝突
-`2020-06-18 02:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237464/)
+## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
+`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-79.png)图片来源：[https://www.financialexpress.com](https://www.financialexpress.com/defence/india-china-border-news-live-2020-ladakh-lac-galwan-indian-army-chinese-soldiers-pla-rajnath-modi-trump-doval-jaishankar/1994088/)
-加拿大廣播公司（CBC）當地時間6月16日報導稱，中共和印度兩國邊防部隊於15日晚在印度拉達克地區（Ladakh region）的加勒萬河谷（Galwan Valley）爆發邊境衝突導致印軍人員死亡。據CBC報導，這是自1975年中共在印度北部有爭議的領土擊斃四名印軍士兵以來，兩國在邊境上首次發生的流血衝突：印軍在此次沖突中死亡20人。文章作者引述印軍早先的消息稱，印方有三名士兵陣亡，包括一名軍官和兩名士兵，由於印度軍方三緘其口，尚不知這三名士兵陣亡的具體原因。此外，CBC援引印軍早前發表的聲明補充道，又有17名印軍士兵隨後在氣溫低於零攝氏度的高海拔地區負傷後不治而亡，而且中印雙方在此次暴力對峙中均有傷亡。
+**作者：Dogman**
 
-據CBC報導，中共外交部發言人趙立堅在6月16日的記者會上並未提及關於中共軍方傷亡的任何消息。譯者留意到，有海外媒體報導稱，中共在此次邊境衝突中有超過40人負傷或陣亡。然而，趙立堅不出意料地將中印流血衝突的“鍋”甩給印度，並試圖維護中共愛好和平的虛假形象。文章報導引述趙立堅的聲明，稱中共向印度強烈抗議此次邊境衝突，同時也致力於維持邊境的和平和安寧，中共還責備印度軍隊於6月15日違反了雙邊共識：印軍兩度非法越過中印邊境並主動攻擊中共人員，從而導致兩國邊防部隊嚴重的肢體衝突。
+評議：
+美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
+大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
 
-CBC報導還指出，中印兩軍在裝甲車和砲兵的支援下，於今年5月初在靠近西藏的拉達克地區開始對峙，並持續了一個月以上。文章作者引述印度官員在5月初的聲明，稱中共士兵當時有三次在不同地點越過拉達克地區邊境，他們不顧印軍要求其離開的口頭警告，在印方控制區支起了帳篷和崗哨。據CBC報導，中共的此次越境事件導致了中印軍隊在雙方有爭議的邊境上發生了令人哭笑不得的對峙：兩軍士兵相互扔石頭，叫罵甚至拳打腳踢；與此同時，CBC報導稱印方也在拉達克地區的加勒萬河谷加緊修建一條連接靠近中共邊境機場的公路。此外，文章作者援引中共外交部和印度軍方的消息稱，中印正試圖通過雙方前線部隊的接洽和協商來緩和當前的爭端。
+原文（鏈接2）：
+美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
 
-最後，這篇新聞文章回顧了中印雙方的邊境爭端。雙方在邊境有爭議的地區均有實際控制區，其相互接壤的邊境長達3500公里。最近爆​​發流血衝突的拉達克地區原屬印控克什米爾，中印雙方在1962年的軍事衝突也牽涉到該地區，而且兩國還在上世紀90年代試圖解決該地的領土爭端問題，然而卻以失敗告終。 2019年8月印度宣布拉達克地區為聯邦國土，並將其從印控克什米爾中分離出來，印度此舉隨即遭到中共的強烈譴責。
+此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
 
-評：
+霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
 
-近半個世紀以來中印首次爆發的邊境流血衝突恰好發生在楊潔篪會見美國國務卿蓬佩奧之前。結合中共耍流氓的過往，這一定不是巧合。考慮到印度莫迪總理上台後跟美國的川普總統政府結盟，而且近期印度對來自中共國和香港的投資開始嚴格審查以及印度國民對中共產品的抵制。很明顯，印度已經選好邊和全世界滅共正義聯盟站在一起。中印的流血衝突和朝鮮最近發生的“炸樓”事件無獨有偶，都是中共在對美國川普政府施以“蘿蔔加大棒”的把戲，即妄圖通過給予美國巨大的利益（如郭先生爆料楊潔篪願提供拜登的黑料給川普）的同時，使用下三濫的手段迫使川普總統認識到中共攪亂世界局勢和製造混亂的“實力”，從而迫使川普與之勾兌。然而，蓬佩奧在和楊潔篪的會見中並沒有上當。相反，中共這連續的“兔子打拳”卻讓美國更加清醒地意識到中共的邪惡。相信美國必定會和爆料革命更堅定地站在一起滅共。最後希望中共黨內和軍內的同胞們早日認清中共的漠視生命的邪惡本質，如果中共不倒台，軍隊永遠都只是充當維護盜國賊私人利益的砲灰，甚至連負傷或犧牲都不會被報導。
+對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
 
-[原文鏈接](https://www.cbc.ca/news/world/india-china-ladakh-dispute-1.5613638)
+與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
 
-翻譯報導：七里香
-校對整理：胡天歸雁
+司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
+
+此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
+
+川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
+
+川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
+
+媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
+而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
+
+NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
+
+“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
+
+谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
+
+Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
+
+鏈接：
+
+1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
+
+
+
 
 0
