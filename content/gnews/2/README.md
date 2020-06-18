@@ -1,54 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
-`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
+## 三峽大壩如果潰壩到底有多麼可怕
+`2020-06-18 08:19 benjaming` [轉載自GNews](https://gnews.org/zh-hant/237814/)
 
-**作者：Dogman**
+作者：文茗
 
-評議：
-美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
-大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
+俗話說的好水火無情。中華民族和水之間的故事可謂是波瀾壯闊，伴隨整個華夏曆史。
 
-原文（鏈接2）：
-美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
+中華大地是洪水災害頻繁的國家。據史書記載，從公元前206年至公元1949年中共國成立的2155年間，大水災就發生了1029次，幾乎每兩年就有一次。
+![](https://gnews.org/wp-content/uploads/2020/06/图片1-5.png)
+自公元前185年(西漢初)到1911年(清朝末年)的2096年間，長江共發生較大洪水災害214次，1499到1949年的450年間，湖北省境內的江漢幹堤決口達186次。出現較大洪水的年份有1153年、1227年、1560年、1788年、1849年、1860年、1870年、1905年、1931年、1935年、1949年、1954年、1998年等。
 
-此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
+1788年全流域大水，荊江大堤決口20餘處，荊州城內水深五六米，兩個月後才退去。
 
-霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
+1870年，宜昌的最大洪峰流量竟高達10.5萬立方米/秒。
 
-對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
+1931年氣候反常，長時間的降雨，造成全國性的大水災。其中長江中下游和淮河流域的湖南、湖北、江西、浙江、安徽、江蘇、山東、河南八省災情最重，是20世紀受災範圍最廣、災情最重的一年。
 
-與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
+1954年長江發生了全流域性大洪水，長江中下游洪水與川水遭遇。受災人口1890萬，淹死3.4萬人，淹沒良田317萬公頃，損失數十億元，分洪潰口水量達1023億立方米。
 
-司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
+1998年長江洪水受災範圍遍及四川、重慶、雲南、貴州、湖南、湖北、江西、安徽、江蘇等省市，除雲南、貴州省外的7省市受災縣市達588個、鄉鎮10771個。就各省而言，受災範圍之廣也屬少見。四川省21個市、地、州都不同程度遭受山洪和山地災害，長江中下游5省不僅平原河湖地區大範圍受災，山丘區也遭受嚴重山洪和山地災害。因持續不斷的暴雨洪水和長時間的高洪水位，造成潰垸、內澇和山洪等多種災害。
+![](https://gnews.org/wp-content/uploads/2020/06/图片2-4.png)
+時至今日，洪水好似輪到了三峽大壩，如果三峽大壩崩潰會有什麼後果？三峽大壩若崩潰時，百餘億立方米庫水短時間內下泄，壩址至長沙市間沿岸，受洪水波直接衝擊，災害損失嚴重。葛洲壩水利樞紐將嚴重受損，宜昌市在鐵路線以下地區受淹，枝城、上下百里洲和荊江分洪區以西洲灘圍垸將潰堤受淹。潰壩洪峰的最大流量將達到100—237萬立方米／秒，下泄洪峰將以每小時100公里的速度到達葛洲壩水利樞紐，屆時洪峰仍將達到31萬立方米／秒，洪水損壞葛洲壩大壩後進入宜昌市區，洪水在宜昌城內的流速仍然有每小時65公里，潰壩4—5小時後，宜昌城的水位將高達海拔64—71米。
 
-此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
+特別要注意，1998年長江洪水的最大流量為6萬立方米/秒，這裡給出的潰壩洪峰是其洪峰的37倍，洪峰下泄的速度高達每小時100公里，與高速公路上飛馳的汽車相同。如此大的流量，如此高的速度，其破壞能力就好比無數大卡車向你以每小時100公里的速度衝來。
 
-川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
+就是葛洲壩水利樞紐，在這樣的流量和速度下，也要被沖垮。宜昌市地面的平均高程不到海拔50米，當宜昌市洪水位高達海拔64—71米時，宜昌城已在水下20米處。在三峽大壩發生潰壩後，宜昌市的居民幾乎沒有機會逃生，因為在潰壩後的半個小時，洪峰已經就到達宜昌市。僅宜昌一市的人員損失將高達50萬。
 
-川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
+潰壩模擬的外部條件，並不是選在最不利的時刻上，也不是選在比較不利的時刻上，而是有意選在比較有利的條件下。三峽水庫總庫容393億立方米，當出現潰壩徵兆時，洩水七天才可以達到安全水位。
+![](https://gnews.org/wp-content/uploads/2020/06/图片3-3.png)
+潰壩時的自然流量為6萬立方米/秒，潰壩洪峰的最大流量將達到237萬立方米/秒。長江最大洪水流量為11萬立方米/秒（1870年），和三峽潰壩的流量237萬立方米/秒相比，就不是一個數量級的。當三峽水庫裡裝滿水，自然水流在6萬立方米/秒時的潰壩情況將是怎樣的，393億立方米的水量，是個什麼概念？就相當於黃河一年的水量，黃河一年的水量，在一個很短的時間內，潰洩下來，將是一場什麼樣的災難？
 
-媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
-而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
+不但宜昌保不住，沙市保不住，江漢平原保不住，武漢也保不住，京廣、京九鐵路也保不住，洪水影響範圍一直到南京。
 
-NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
+簡單說就是比98年洪水兇猛幾十倍的洪流不可阻擋的摧毀長江中下游的一切。洪峰10小時內到武漢，1天內到南京。十幾、幾十米高的洪水沖跨建築樓房，很難像會有多少無辜生命葬身魚腹。
 
-“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
+長江流域是中國的精華重心，水量佔全國的38%，耕地佔25%，糧食40%，棉花33%，淡水魚66%，養活3.5億人口。這個影響我是真的不敢去想。
 
-谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
+（文章內容僅代表作者觀點）
 
-Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
-
-鏈接：
-
-1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-
-
-
-
-0
+2
