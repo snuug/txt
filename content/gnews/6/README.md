@@ -1,54 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
-`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
+## 共產黨連印度都敢欺負你，9萬平方公里土地怎麼丟的
+`2020-06-18 11:48 benjaming` [轉載自GNews](https://gnews.org/zh-hant/237957/)
 
-**作者：Dogman**
+共產黨連印度都敢欺負你，9萬平方公里土地怎麼丟的
+6月16日早間，媒體報導3名印度士兵在克什米爾拉達克（Ladakh）的爭議地區與中國軍隊的衝突中喪生的消息。
+![](https://gnews.org/wp-content/uploads/2020/06/图片1-6.png)
+隨後雙方發出聲明：
 
-評議：
-美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
-大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
+中方聲明
 
-原文（鏈接2）：
-美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
+聲明說：“6月15日晚，在中印邊境加勒萬河谷地區，印軍違背承諾，再次越過實控線非法活動，蓄意發動挑釁攻擊，引發雙方激烈肢體衝突，造成人員傷亡。”
+中方聲明還說：“加勒萬河谷地區主權歷來屬我。印邊防部隊出爾反爾，嚴重違反兩國有關邊境問題協定協議，嚴重違反中印軍長級會談共識，嚴重損害兩軍關係和兩國人民感情。我們要求印方嚴格約束一線部隊，立即停止一切侵權挑釁行動，與中方相向而行，回到對話會談解決分歧的正確軌道上來。”
+中共外交部發言人趙立堅早間也曾指責印度違背兩國達成的共識，兩次越過邊境線，“挑釁和攻擊中方人員，導致雙方部隊發生嚴重肢體衝突”。趙立堅還呼籲印度不要採取單方面行動挑起事端。
+![](https://gnews.org/wp-content/uploads/2020/06/图片2-5.png)
+印度聲明
 
-此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
+與此同時，印度政府發言人斯里瓦斯塔瓦（Anurag Srivastava）則在記者會上表示，印中雙方6月6日經過“建設性和有成效”的會晤，達成了緩和局勢和邊界對峙降溫的共識。他表示，原本期待雙邊基層團隊可以順利執行雙方協議，沒想到中方做法“偏離了”雙方就實際控制線所達成的共識。
 
-霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
+斯里瓦斯塔瓦說：“2020年6月15日晚，由於中方士兵試圖單方面改變原有實際控制線，導致暴力對峙。對峙雙方均遭受了人員損傷，而這些損失如果執行雙邊軍隊高層所達成協議，原本是可以避免的”。
 
-對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
+斯里瓦斯塔補充說：“印方堅信需要保持邊界和平與寧靜，以及通過對話解決分歧的必要性。與此同時，我們也會堅決地維護印度的主權和領土完整”。
 
-與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
+通讀了雙方聲明，還是各自說各自的理由，共產黨依然還是一貫的“躲避”。印度把共產黨欺負的跟“狗”一樣，共產黨還是屁都不敢放一個，任由印度咄咄逼人的蠶食土地。
 
-司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
+印度一直都藉由“麥克馬洪線”為由長時間蠶食藏南地區土地，和印度東部這塊準“飛地”有直接關係。
+![](https://gnews.org/wp-content/uploads/2020/06/图片3-6.png)
+印度強行吞併錫金，目的其實很明確，就是把這片準飛地的連接區域“西里古里”地區的戰略延伸做到更大更深，以便於加強對東部飛地的控制能力。正是因此，在藏南地區，印度一直都在一點點蠶食藏南地區的土地。
+![](https://gnews.org/wp-content/uploads/2020/06/图片4-3.png)
+藏南地區位於喜馬拉雅山脈南側、西藏自治區東南部的山南地區、林芝地區，包括了西藏自治區的錯那、隆子、墨脫、察隅四縣的大部分及郎縣、米林兩縣少許國土。
 
-此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
+藏南地區在夏季，由於迎著從印度洋上吹送來帶著大量水分和熱量的西南季風，這裡溫暖而多雨，年平均降水在9000毫米以上，是世界上降水量最大的地區之一，可種植許多亞熱帶作物，肥沃得有西藏的“江南”之稱。
+![](https://gnews.org/wp-content/uploads/2020/06/图片5-1.png)![](https://gnews.org/wp-content/uploads/2020/06/图片6-2.png)
+藏南地區爭議領土約9萬平方公里領土，全部被印度佔領。印度地圖已經將其作為它的正式、合法邊界，並於1987年宣布成立了”阿魯納恰爾邦”，同時向該地區大量移民。目前定居在那裡的印度人比全西藏的人口總和多兩倍。 “阿魯納恰爾邦”不僅設有地方議會、警察、法庭等機構，還開設了近百所中小學校，教育內容也以印度傳統教育為主。也就是說共產黨白白把這9萬平方公里土地給了印度，用一些具體的比例解釋你就知道共產黨當政70年，僅僅對印度就丟了多少土地。
+![](https://gnews.org/wp-content/uploads/2020/06/图片7.png)
+![](https://gnews.org/wp-content/uploads/2020/06/图片8.png)
+這片土地這樣換算：相當於一個江蘇省、一個浙江省；相當於三個台灣、六個北京；相當於一個匈牙利、兩個丹麥、三個比利時；相當於六個科威特；相當於十個英阿爭議的馬爾維納斯群島；相當於二十個日俄吵得不可開交的北方四島；是二次世界大戰以來世界上一國被另一國強行侵占的最大一片土地；是中國版圖的一百零一分之一。
+![](https://gnews.org/wp-content/uploads/2020/06/图片9.png)![](https://gnews.org/wp-content/uploads/2020/06/图片10.png)
+共產黨天天吹牛1962年的中印邊境戰爭大獲全勝，我要問贏了嗎？贏了怎麼丟了9萬平方公里土地，你這是跟人打架丟了個胳膊，別人毫髮無損，你還說嚷嚷自己贏了。共產黨的無恥已經超越整個宇宙的底線。
+![](https://gnews.org/wp-content/uploads/2020/06/图片12.png)![](https://gnews.org/wp-content/uploads/2020/06/图片11.png)
+（圖片都是被共產黨丟失的藏南地區美景，宛若天堂，美不勝收）
 
-川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
+連個你的手下敗將都能把你欺負成這樣，你還有什麼臉活在這世上。你除了敢欺負香港、台灣、大陸同胞，見了外國人你就變孫子。拿出你對同胞的那股子狠勁去和印度幹啊，有本事把白送人的土地拿回來啊。沒這本事，你就趕緊自我解散，就別丟華夏民族的人了。
+![](https://gnews.org/wp-content/uploads/2020/06/图片13.png)
+（紅色部分是共產黨丟失的國土）
 
-川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
-
-媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
-而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
-
-NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
-
-“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
-
-谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
-
-Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
-
-鏈接：
-
-1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-
-
-
+（文章內容僅代表作者觀點）
 
 0

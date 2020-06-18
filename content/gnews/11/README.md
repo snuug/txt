@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亞對中共在澳投資等多方面活動加強審查
-`2020-06-18 04:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237556/)
+## 【世界多語言圖文】16/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-18 05:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/237680/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-80.png)
-悉尼報導 – 隨著中澳關係的進一步惡化，中方限制中資國有企業對澳投資使得其數量驟減，但對中國政府有可能加強對澳社區和企業方面的滲透的擔憂卻與日俱增。報導表明在冠狀病毒危機肆虐之時，中共稱之為“神秘武器”的中共中央統一戰線工作部（以下簡稱統戰部）在澳的活動高漲。
+戰友之家圖文摘要組及小語種組
 
-位於堪培拉的澳大利亞戰略政策學院的學者亞歷克斯·喬斯克(Alex Joske)，在一份新報告中指出，中共是通過與本國及海外的少數族裔團體的合作，以及宗教、商業、科學和政治等方面的各種團體的代表的合作來施加其影響。隨著中國與世界其他國家的緊張關係加劇，中共試圖介入分散的社區來影響其政治體系，隱蔽獲得有價值和敏感的技術等行為有增無減。
+[English\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)
 
-由於有報導指出中國政府出於安全目的旨在獲得澳洲的戰略資產，中國機構隨後縮減了在澳投資。據報導，2019年，對澳投資僅佔資金流入總量的24%，合38200萬美金，其中包含一些具有混合所有權的“私企”。總體上中國對澳的境外直接投資減少58%至24億美金，部分源於北京方面減少對外支出，還有堪培拉方面也對投資申請進行更嚴格的審查。
+[French\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)
 
-一項研究報告表明，“2019年，中國對澳的境外直接投資的下滑高於其對包括美國的其他西方國家的投資。世界範圍內比2018年下滑8.2%。” 在一系列外交摩擦後，中國政府不鼓勵中國公司在澳業務，所以2020年境外直接投資前景的恢復十分渺茫。中國已經取消從澳進口大麥和牛肉，還有可能切斷利潤豐厚的國際教育項目。
+[German\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)
 
-澳大利亞本月加強了對外國投資申請的審查。此舉否認針對中方，但是對中方試圖購買發電廠和通訊設施等關鍵的基礎設施表有擔心。
+[Japanese\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)
 
-名為路橋(Landbridge)的一家中資公司於2015年被授予了達爾文（Darwin）港口的長達99年租賃協議，此港口包括一美國海軍基地，並對國防起到重要作用。此家公司的高層與中國領導人和中共關係緊密。另外一家入圍建設兩家區域型水電發電站的中資公司金風(Goldwind)也與中共有關聯。
+[Korean\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)
 
-還未簽署的合約星期一受到了國會的問話，並將受到聯邦投資機構的進一步複查。國會議員布蘭登·奧涅爾(Deb O‘Neill)表示對潛在的安全問題深表擔憂。
+[Russian\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)
 
-統戰部是中國共產黨控制的一個影子宣傳機構，在疫情初期從澳洲買走大量的疫情所需醫護設備，造成市場短缺。統戰部在其他多國都有同樣的運作。在疫情全球擴散後，其開始向世界捐贈供應並且為中國政府提升形像大造輿論。
-
-喬斯克警告，統戰部在西方進行各種非法活動，控制帶有政治目的海外媒體網絡例如澳洲的太平洋媒體（Pacific Media）和美國的僑報，以及各種微信公眾號。
-
-國有及私營公司、大學、研究機構都有統戰部的滲透。解放軍代表也出席了2015年的中央統戰部會議。解放軍下屬的中國國際友好聯絡會試圖對西方的重要公眾人物示好，從而尋找在其政治體系的代理人。例如，他們與澳洲鐵礦大亨、澳洲駐中國前任大使、日本的新宗教運動、美國的退休將領和政要等積極接觸。
-
-前澳洲安全情報組織負責人鄧肯·劉易斯(Duncan Lewis)曾表明中共試圖掌控澳洲的政治體系，在商業和社區的影響力方面取得優勢，他們想“從根本上，掐住咽喉”。隨後澳洲對外國政治捐款進行了全面的限制。
-
-[原文鏈接](https://asiatimes.com/2020/06/australia-exposes-chinas-many-hidden-hands/)
-
-翻譯報導：匿名
-校對整理：胡天歸雁
+[Spanish\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)
 
 0

@@ -1,41 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共向菲律賓將捐贈900萬公斤大米，國內糧食危機不顧了？
-`2020-06-18 02:59 GM30` [轉載自GNews](https://gnews.org/zh-hant/237494/)
+## 【世界多語言圖文】16/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-18 05:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/237680/)
 
-**作者：立武**
+戰友之家圖文摘要組及小語種組
 
-6月16日，根據中共駐菲律賓大使館消息，中共爲了幫助菲律賓政府抗擊中共釋放的病毒，中共向菲律賓捐贈的300萬公斤大米已經陸續抵達菲律賓，同時中共還將向菲律賓繼續捐贈600多萬公斤大米。中共捐贈大米的目的無非是爲了籠絡菲律賓不要在南海問題上站隊美國，這個時候楊潔篪在與美國國務卿表面妥協期間，中共不忘分裂美國盟友，無疑是暴露中共的狼子野心。
+[English\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)
 
-這不是中共這兩三個月來第一次捐贈菲律賓，也不僅是菲律賓，四月五月，納米比亞、緬甸、新加坡等等國家都接受了中共的糧食捐贈。
+[French\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)
 
-![](https://gnews.org/wp-content/uploads/2020/06/1-122.png)
+[German\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)
 
-捐贈大米一直是中共作爲金錢外交的一種手段，即使在大饑荒期間，中共爲了政治需要，在國際上籠絡非洲國家，不惜捐贈大批大米。捐贈的代價是國內的人民挨餓，幾千萬中國人民死于大饑荒。
+[Japanese\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)
 
-由于一直以來，中共對農業基礎的破壞和農民的掠奪，已經造成了中共不得不依靠大量進口糧食來維持需要。在大饑荒期間，沒有出現大規模的惡劣條件足以導致千萬人死于挨餓，基本是因爲中共大搞政治運動和獨裁體制欺上瞞下的結果。
+[Korean\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)
 
-現在，中共體制下的中國仍然可能面臨著糧食危機的結果。
+[Russian\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)
 
-農業底子不好、外彙流失等等已經是鐵定的事實，唯一存在變數的就是氣候條件以及環境因素，但最近的苗條似乎不是很好。
-
-2020年，20多年以來最嚴重的蝗災在東非爆發，隨後抵達南亞、西亞，目前中國有些地方已經出現蝗蟲災害，盡管中共農業部一再聲稱危害很小，但就中共各地緊急部署蝗蟲監測與防控來看，農業部的聲明最多只是安撫人心，實際來看中共仍然非常擔心蝗蟲帶來的災害。
-
-![](https://gnews.org/wp-content/uploads/2020/06/2-71.png)
-
-可能不僅是來自西亞、東亞的沙漠蝗，在東北，吉林在6月已經下發指令要求做好蝗蟲防控工作。此前，哈爾濱發生了蝗蟲聚集情況，隨後中共在6月通報已經得到根本控制，但在6月30日之前仍然“不能松懈”，而且建議做好2020年秋季防控蝗蟲相關工作。黑龍江作爲糧食産區，是中共重中之重，即使中共真的如實控制了蝗蟲災害，我們仍然可以看到中共對糧食危機發生的恐懼。
-
-不僅在哈爾濱，內蒙古、吉林、雲南、河南、湖南多地已經發生蝗蟲災害，而且不僅僅是蝗蟲，5月份中共農業部就已經明確表示草地貪夜蛾已經入侵中國，在福建、浙江、湖北、四川、江蘇、安徽、江西等地都相繼出現蟲情，並且不斷擴散蔓延，在6月到7月可能在局部地區爆發高峰期。
-
-不僅僅是蟲災，天災也隨時可能重擊中共本來脆弱不堪的糧食問題。
-
-![](https://gnews.org/wp-content/uploads/2020/06/3-43.png)
-
-入夏以來，多地已經由于特大暴雨連續啓動重大氣象災害應急響應，四川、廣西、湖南、江蘇、廣東、重慶、貴州、陝西、安徽等地都出現了特大暴雨，許多水庫開閘泄洪，不斷發生有泥石流災害。中共的糧食“豐收在即”即使是事實，也可能變爲泡影。
-
-天災只是觸發因素之一，關鍵是中共體制本身的問題決定了中國糧食不能自給，而中共爲了政治需要大送糧食，團結聯盟來對付美國，一切爲了盜國賊的利益，即使百姓吃草都可以。一面是糧食捐贈，美名曰協助抗擊疫情，一面是在疫情期間湖北人民的糧食緊缺，甚至餓死家中。中共體制之惡猶可見之，你還會相信中共說所的糧食沒有危機麽！
-
-（文章內容僅代表作者觀點）
+[Spanish\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)
 
 0
