@@ -1,54 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利議員發起提案：或終止社交平臺繼續審查用戶言論；而被審查的用戶將更容易起訴社交平臺
-`2020-06-18 06:40 GM10` [轉載自GNews](https://gnews.org/zh-hant/237739/)
+## 中共央行2000億MLF操作後期影響如何
+`2020-06-18 12:12 benjaming` [轉載自GNews](https://gnews.org/zh-hant/237993/)
 
-**作者：Dogman**
+作者：文茗
 
-評議：
-美國《通訊端正法230法案》（Section 230 of Communications Decency Act）的是社交網絡平臺免於對其網絡上言論負責的保護傘，意味著社交網絡不用為用戶的發言負責；與此形成鮮明對比的是，谷歌因為不滿某些所有的“極右媒體”評價區的評論，而將其剔除出自己的廣告系統，對於依賴谷歌廣告而生存的媒體來說無疑是致命的。因此， 盧比奧議等員提出《限制230法案》要求將大型科技公司引用這條法案的範圍極大縮小；而今天霍利議員這次提出的法案，繼續出擊，讓因為使用社交平臺而遭遇指向性的言論審查的美國民眾更加容易對這些平臺發起訴訟。
-大型社交平臺，是民眾自由發聲的平臺；但是緊隨爆料革命的戰友，對於推特等平臺審查爆料革命言論的事情應該不會陌生，很多戰友的推特賬戶因為宣傳反共或者支持爆料革命的內容而遭到停用，甚至永久關停；霍利議員提出的法案一旦通過，不僅會確保美國內部民眾的信息獲取不再受到審查，而且爆料革命的真實聲音也因此會得到保護。此外，針對谷歌，臉書和推特等巨無霸公司而言，此議案的是否會導致進一步的反壟斷法的提出呢？據報道，谷歌一家公司，控制了網上廣告市場的70% （鏈接1）。
+中共央行6月15日，MLF如期而至，市場期盼的“降息”卻再一次落空。公告開展為期1年的2000億元MLF操作，本次操作中標利率為2.95%，與上次持平。
+![](https://gnews.org/wp-content/uploads/2020/06/图片1-8.png)
+此前中共央行預告在15日對本月到期MLF一次性續作，具體金額根據市場需求等情況確定。而6月有兩筆MLF操作到期，分別為6月8日、6月19日到期5000億元、2400億元，合計7400億元。
 
-原文（鏈接2）：
-美國周三，密蘇裏州議員約什霍利提出法案，旨在賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，例如臉書，谷歌和推特等（鏈接3）。
+MLF利率主要就是實體（1年期LPR）和樓市（5年期LPR）利率的先行指標。而降息再次落空，對市場影響最大的並不是股市，而是樓市。
 
-此前，馬克盧比奧議員（Marco Rubio），麥克布龍議員（Mike Braun）和湯姆克頓議員（Tom Cotton）提出的《限制230法案用於好撒瑪利亞人法案》（Limiting Section 230 Immunity to Good Samaritans Act）（鏈接4），可以阻止這些公司享有《通訊端正法230法案》作為豁免權，除非他們更新他們的使用條款來保證自己行為是端正的。
+連續兩次不降息操作，表面來看是給金融市場一種不再寬鬆的預期。但長期講影響不是很大。此前中共央行開始“壓降結構性存款”和大額資金管制，核心就是為了打擊資金空轉套利和保障資金進入實體經濟。但現實卻是，出口大量下滑和經濟衰退的直接結果就是資金仍然在大量進入樓市。
+![](https://gnews.org/wp-content/uploads/2020/06/图片2-6.png)
+往年房地產市場成交大概23萬億。新房成交16萬億，二手房成交7萬億。其中相當比例的資金，是大額現金，或者通過大額現金合理規避監管。而此次大額監管以及打壓結構性存款，就相當於對流入樓市的資金的一次嚴厲打壓。以當下的經濟環境今年繼續降息已經是可以肯定的，仍然是以降1年期LPR為主。也就是說未來房地產市場依然是以打壓為主，說明共產黨清晰的認識到如今的經濟下行，房地產對製造業的抽血效應會加快經濟崩潰的步伐。
 
-霍利議員說，“長久以來，推特，谷歌和臉書等大型科技公司利用自己的優勢來噤聲一些來自保守派的政治言論。。。，230章被過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。國會應當保證壞人要因為審查並噤聲對手而受到相應的審查。”
+5月社會融資規模增量超市場預期，且超過歷史同期水平，人民幣貸款、政府債券以及企業債券是支撐社融增量的主要因素。具體來看，對實體經濟發放的人民幣貸款增加1.55萬億元，同比多增3647億元；對實體經濟發放的外幣貸款折合人民幣增加457億元，同比多增266億元；企業債券淨融資2971億元，同比多1938億元，但比上月大幅減少6044億元。
 
-對於違反了誠信的公司，這項法案將會賦予使用者起訴這些公司的權利，並且要求這些公司為每位起訴人付$5000的訴訟費用。
+根據中共財政部數據，5月的地方專項債創單月新高，發行13025億元地方債。截至5月底，新增債券發行完成中共提前下達額度的94.9%。
+![](https://gnews.org/wp-content/uploads/2020/06/图片3-7.png)
+5月末，廣義貨幣(M2)餘額210.02萬億元，同比增長11.1%，增速與上月末持平，比上年同期高2.6%；狹義貨幣(M1)餘額58.11萬億元，同比增長6.8%，增速分別比上月末和上年同期高1.3個和3.4個百分點；流通中貨幣(M0)餘額7.97萬億元，同比增長9.5%。當月淨回籠現金1778億元。
 
-與此同時，司法部正在建議立法者考慮通過立法來保證這些科技公司對於網上的內容負責。任何一項立法都將打破這些平臺的幾十年來使用的法律保護。
+M2仍保持較高速增長。一方面，中共為了維護統治，必須加大金融對實體經濟的支持力度，信貸投放明顯高於去年同期。另一方面，本月地方政府專項債發行規模增加，財政存款新增1.31萬億元，比去年同期多增8251億元，直接影響未來M2增速會進一步提高。
 
-司法部在周三的一份報告中提議對230章進行重大更改。這項報告沒有提議完全撤銷這項法案，但是提議對於一些公司剝奪豁免權，如果這些公司為犯罪行為提供輔助，或者是針對特定犯罪行為不作為的話。
+中共為貨幣政策打開更大空間，統計局隨之將CPI調整為逐步回落走勢。在流動性較為充裕的同時，加大對資金流向的監控力度，目的也就是確保不發生空轉套利和脫實向虛，從而引導資金流向實體經濟所需領域。
+![](https://gnews.org/wp-content/uploads/2020/06/图片4-4.png)
+如今的共產黨已經很明確的表明立場，打壓樓市的同時會加速印鈔，目的就是保經濟和就業。但如今營商環境惡化、中美脫鉤加之企業倒閉潮的現狀，大量資金注入市場，錢能去哪裡。企業貸款意願嚴重不足，資金只剩樓市和生活必需品這兩條路。這兩項任何一項被點燃“熱情”，對民眾的生活都將發生嚴重影響，後果不堪設想。
 
-此前川普總統簽署了一項行政命令，其中解釋230法案不能為科技公司審查言論的行為提供法律豁免權。司法部官員說他們已經跟立法部門在這項報告上合作了很久，因此這份報告與總統的行政命令沒有因果性。
-
-川普總統說“我的這項行政命令建議針對230法案進行重新立法，使得哪些審查言論的社交媒體公司不能再繼續使用這項法案作為保障”。
-
-川普總統的行政命令，包括切斷政府提供給審查言論的社交媒體平臺的資金支持。再此之前，推特將總統的兩則推文貼上了“誤導言論”的標簽。
-
-媒體Axios報道說，白宮要求霍利議員關註為科技公司提供保護桑的法案進行調查。
-而在霍利議員的這項法案的一天前，NBC媒體報道說谷歌壓制了兩個保守媒體—《零對沖基金》和《聯邦主義者》。
-
-NBC最初宣稱谷歌封鎖了《聯邦主義者》和《零對沖基金》，使其無法參與谷歌的廣告系統，原因是發表了關於黑名貴運動“沒有根據的言論” （鏈接5）。谷歌隨後說《聯邦主義者》並沒有壓制。
-
-“我們與他們共同合作來解決他們網站上評論區的內容，”谷歌說。“我們的政策是不允許傳播危險的或者帶有貶低性的內容，包括評論，而且我們為他們遵守規定提供指導。”
-
-谷歌的發言人對福克斯新聞說，“需要澄清的是，《聯邦主義者》目前並沒有從我們的廣告系統中剔除。我們有嚴格的發布政策，用於規範廣告內容，包括網頁評論。這項政策已經發布很久了。”
-
-Dogman作為堅定的爆料革命支持者，希望跟您有更多的聯系（GTV：狗狗警察）。
-
-鏈接：
-
-1. [https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-2. [https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-3. [https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-4. [https://www.rubio.senate.gov/public/\_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-5. [https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176](https://www.foxnews.com/media/what-is-section-230-and-why-is-it-under-fire https://www.foxnews.com/politics/hawley-bill-targeting-big-tech-companies https://www.hawley.senate.gov/senator-hawley-blasts-google-threatening-conservative-outlets-and-section-230-hypocrisy https://www.rubio.senate.gov/public/_cache/files/7924cd9f-9360-4fe5-9fed-31cb1180148e/C3FDF72453C6D23C057ADD24D915D439.text-limiting-section-230-immunity-to-good-samaritans-act.pdf https://www.nbcnews.com/tech/tech-news/google-bans-two-websites-its-ad-platform-over-protest-articles-n1231176)
-
-
-
+（文章內容僅代表作者觀點）
 
 0

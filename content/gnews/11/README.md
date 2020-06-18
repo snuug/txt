@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】16/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-18 05:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/237680/)
+## 6月18日中共病毒疫情要聞快報
+`2020-06-18 10:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237895/)
 
-戰友之家圖文摘要組及小語種組
+**重要内容：**
 
-[English\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)
+- 北京全小區封閉，疫情擴散周邊城市；
+- 中印邊界流血衝突，中共7.5億美金拱手送上！
+- 蓬楊會談崩！
+- 香港國安法進入審議階段。
 
-[French\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)
 
-[German\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)
 
-[Japanese\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)
 
-[Korean\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)
+製作：【上天造滅疫組】
 
-[Russian\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)
-
-[Spanish\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)
-
-0
+1
