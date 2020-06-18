@@ -1,25 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒在北京二次爆發，甩鍋給海外的把戲不會有人再信
-`2020-06-17 07:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/236840/)
+## 彭斯副總統：美國沒有“第二波”冠狀病毒（中英文對照）
+`2020-06-17 15:12 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/237103/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-75.png)
-據《福布斯》報導，中共正在與CCP病毒的再次爆發作鬥爭，這引發了人們對該病毒是否會伴隨著封鎖和旅行禁令捲土重來的擔憂。在中共國的首都連續56天零感染病例後，突然增加了許多CCP病毒新病例。這個病例激增發生在夏季，早於許多人所預測的 “病毒二次爆發會在冬季”的情況。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/17150147/WH_20200616_Pence_No_Second_Wave_photo169-1.png)
+**There Isn’t a Coronavirus ‘Second Wave’**
 
-根據中共國周二實施的規定，來自北京的旅客在抵達上海和部分省份後，將面臨14天的檢疫隔離。目前已有三個省份報告出現與北京感染群有關的病例，北京也開始禁止一些高危區域居民離開北京。各省建議居民推遲不必要的北京旅行。自上週四以來，北京新增CCP病毒病例有106例。中共國的《環球時報》表示：“北京不是武漢2.0。我們認為，這種病毒不會像武漢早期那樣迅速傳播。”財新網寫道，未來三天對遏制病毒傳播至關重要，但表示沒有必要實施封城措施。韓國在5月出現了小規模CCP病毒導致的死亡情況，在本週新西蘭和日本也報告了突然新增的CCP病毒病例。美國的第一波被CCP病毒侵襲的浪潮尚未平息，最近又有多達20個州的病例開始不斷上升。
+**沒有“第二波”冠狀病毒**
 
-據報導，北京將在不到一周的時間，對近100,000人進行CCP病毒的測試。他們中的大多數人都與新感染群新發地批發市場有密切接觸。該市場是北京最大的農貿市場，搜尋任務艱鉅，官員們估計能追溯到在關閉市場前14天之內接觸的人群數量大概在20萬人。 CCP病毒最初是在市場上的三文魚砧板上發現的，但中共國疾病預防控制中心（疾控中心）並不認為該病毒具有像魚一樣的中間宿主。對病毒進行測序後，疾控中心表示“這是來自歐洲的一種毒株”，但號稱其來源尚不清楚。該批發市場附近的建築已被隔離，飯店經營已經嚴重被影響，針對特定年齡段的學校也已關閉。
+Healthcare
 
-目前整個北京並沒有處於完全封鎖的狀態。與當初武漢關閉了76天機場不同，北京的兩個機場仍然開放，但很多乘客似乎都推遲了行程。據VariFlight的數據顯示，週日飛往北京的航班平均載客率為62％，與週六相比下降了11個百分點，較一周前相比下降了16個百分點。與週六相比，北京出境航班的載客率下降了9個百分點，與一周以前相比，下降了3個百分點。旅行市場銷售的下降似乎快於航空公司的反應速度。這樣的狀況讓很多股民感到不安，旅遊產業股受到很大的衝擊。上海和廣州機場股票的跌幅比北京機場大。但是，總部位於北京的國航股跌幅超過上海的東方航空和廣州的南方航空。
+Issued on: June 14, 2020
 
-評：
+衛生保健
 
-這次中共病毒在北京的第二次爆發，再一次證實：中共病毒完全不是中共所宣傳的那樣，會隨溫度升高而減少甚至消失；它不僅僅只會在寒冬爆發，病毒的傳播與季節無關。中共掩蓋CCP病毒真相，故意將其傳遍世界。接下來，中共也許會對第二波病毒感染數據繼續造假，並將其怪罪於境外輸入，但無論中共如何操控輿論戰，在世界經歷了這場中共所製造的沒有硝煙的病毒戰之後，國際社會不會再次給予中共這個偽政權希望和機會，由中共一手造成的對世界人民的傷害和對世界經濟的打擊一定會遭到全球各國聯手的製裁和審判。
+發佈時間: 2020年6月14日
 
-[原文鏈接](https://www.forbes.com/sites/willhorton1/2020/06/16/new-coronavirus-outbreak-second-wave-fear-in-china-prompt-travel-warnings-but-no-lockdown/#37f854c72ba4)
+In recent days, the media has taken to sounding the alarm bells over a “second wave” of coronavirus infections. Such panic is overblown. Thanks to the leadership of President Trump and the courage and compassion of the American people, our public health system is far stronger than it was four months ago, and we are winning the fight against the invisible enemy.
 
-翻譯報導：Hakunamatata
-校對整理：人間四月
+近日，媒體紛紛敲響新冠病毒感染“第二波”將要到來的警鐘，這種誇大其詞的說法引起了公眾的恐慌。多虧了川普總統的領導和美國人民的勇氣與同情心，我們的公共衛生系統目前所取得的成就是四個月前所不能比的。我們正在贏得與隱密敵人的戰鬥。
+
+While talk of an increase in cases dominates cable news coverage, more than half of states are actually seeing cases decline or remain stable. Every state, territory and major metropolitan area, with the exception of three, have positive test rates under 10%. And in the six states that have reached more than 1,000 new cases a day, increased testing has allowed public health officials to identify most of the outbreaks in particular settings—prisons, nursing homes and meatpacking facilities—and contain them.
+
+雖然有關病例增加的報導佔據了有線電視新聞頻道的主要篇幅，但實際上，超過一半的州的病例數量在下降或保持穩定。除三個州外，每個州、地區和主要大都會城市的陽性測試率均低於10%。在每天新增病例超過1000例的6個州中，不斷增加的檢測使得公共衛生官員認識到大部分病例爆發發生在特定場所 （監獄、療養院和肉類加工廠），並得以控制。
+
+Lost in the coverage is the fact that today less than 6% of Americans tested each week are found to have the virus. Cases have stabilized over the past two weeks, with the daily average case rate across the U.S. dropping to 20,000—down from 30,000 in April and 25,000 in May. And in the past five days, deaths are down to fewer than 750 a day, a dramatic decline from 2,500 a day a few weeks ago—and a far cry from the 5,000 a day that some were predicting.
+
+報導中忽略了的一個事實，那就是現在每週接受檢測的美國人中只有不到6％的人被發現攜帶這種病毒。增長病例在過去的兩周里穩定了下來。全美日平均病例率從4月的3萬例和5月的2.5萬例下降到2萬例。並且在過去的五天內，死亡人數從幾週前的每天2,500人大幅下降到每天750人，與一些人預測的每天5,000人相差甚遠。
+
+The truth is that we’ve made great progress over the past four months, and it’s a testament to the leadership of President Trump. When the president asked me to chair the White House Coronavirus Task Force at the end of February, he directed us to pursue not only a whole-of-government approach but a whole-of-America approach. The president brought together major commercial labs to expand our testing capacity, manufacturers to produce much-needed medical equipment, and major pharmaceutical companies to begin research on new medicines and vaccines. He rallied the American people to embrace social-distancing guidelines. And the progress we’ve made is remarkable.
+
+但事實是，在過去的四個月裡，我們取得了巨大的進步，這證明了川普總統的領導力。當總統在2月底邀請我擔任白宮冠狀病毒特別工作組主席時，他要求我們不僅要整個政府參，而且要整個美國參與。總統匯集了主要的商業實驗室以擴大我們的檢測能力，召集了製造廠商以生產急需的醫療設備，以及主要的製藥公司研究新藥和疫苗。他號召美國人民接受社交距離準則，至此我們取得了驚人的進步。
+
+We’ve expanded testing across the board. At the end of February, between Centers for Disease Control and Prevention labs and state public health facilities, the U.S. had performed only about 8,000 coronavirus tests. As of this week, we are performing roughly 500,000 tests a day, and more than 23 million tests have been performed in total.
+
+我們已經將測試擴張到所有領域。截至2月底，美國疾控中心、預防中心實驗室，以及州公共衛生機構僅進行了僅約8,000次冠狀病毒測試。然而截至本週，我們每天進行了50萬次檢測，總共進行了2千3百多萬次檢測。
+
+We’ve also vastly expanded our supplies of crucial medical equipment. In March, there were genuine fears that hospitals in our hot spots would run out of personal protective equipment like N95 masks, gloves or, even worse, ventilators for patients battling respiratory failure. The Strategic National Stockpile hadn’t been refilled since the H1N1 influenza outbreak in 2009, and it had only 10,000 ventilators on hand.
+
+同時，我們還極大地增加了重要醫療設備的供應。 3月份時，人們曾經很擔心在疫情嚴重地區的醫院可能會耗盡如N95、手套等物資。更糟糕的是，呼吸衰竭患者所需的呼吸機等防護設備也會告罄。自2009年爆發甲型H1N1流感以來，國家戰略儲備一直沒有補充，致使我們只有1萬台呼吸機可以調用。
+
+Since then, we’ve increased the supply of personal protective equipment by the billions. Our administration launched Project Air Bridge—a partnership between the federal government and private companies—that, as of June 12, had conducted more than 200 flights from overseas to deliver more than 143 million N95 masks, 598 million surgical and procedural masks, 20 million eye and face shields, 265 million gowns and coveralls, and 14 billion gloves. In addition, we’ve worked with the private sector to ramp up ventilator production. Today, we have more than 30,000 ventilators in the Strategic National Stockpile, and we’re well on our way to building 100,000 ventilators in 100 days. No American who required a ventilator was ever denied one.
+
+從那時起，我們增加了數十億個人防護物資的供應。截止6月12日，美國政府啟動了聯邦政府與私營公司之間的合作項目“航空橋計劃”，該計劃包括了200多次的國際航班，運送交付超過1.43億個N95口罩，5.98億個手術口罩，2000萬個眼睛和麵部防護罩，2.65億件防護服，和140億雙手套。此外，我們還與私營部門合作，以提高呼吸機的產量。今天，我們的國家戰略儲備中已有3萬多台呼吸機，我們正朝著100天內建造10萬台呼吸機的方向邁進。任何需要呼吸機的美國人都能夠得到它。
+
+We’ve also made great progress on developing therapeutics and a vaccine. Last month, the pharmaceutical company Gilead Sciences announced it would donate about 940,000 vials of its new drug remdesivir to treat more than 120,000 patients in the U.S.  Under Operation Warp Speed, the federal government is already funding research into multiple vaccine candidates, and we are well on our way to having a viable vaccine by the fall.
+
+我們在提高治療方案和疫苗開發方面也取得了巨大進步。上個月，製藥公司吉利德科學（Gilead Sciences）宣布將捐贈約94萬瓶新藥瑞德西韋（Remdesivir）用於治療超過12多萬的病人。在“急速行動”計劃指導下，聯邦政府已經資助了多種候選疫苗的研究，我們正努力在秋天前研製出可行的疫苗。
+
+But our greatest strength is the resilience of the American people. From the outset of this pandemic, the American people have stepped up and made great personal sacrifices to protect the health and safety of our nation. And it’s because of their embrace of social-distancing guidelines that all 50 states have begun to reopen in a safe and responsible manner.
+
+但我們最強大的力量是美國人民的韌性。從疫情大流行的開始，美國人民就挺身而出做出了巨大的個人犧牲，以保護我們國家的健康與安全。正是因為他們遵循了社交距離準則，所有50個州都已以安全和負責的方式重新開放了。
+
+The media has tried to scare the American people every step of the way, and these grim predictions of a second wave are no different. The truth is, whatever the media says, our whole-of-America approach has been a success. We’ve slowed the spread, we’ve cared for the most vulnerable, we’ve saved lives, and we’ve created a solid foundation for whatever challenges we may face in the future. That’s a cause for celebration, not the media’s fear mongering.
+
+媒體一直在嚇唬美國人民，這次他們對第二波浪潮的可怕預言也非例外。但事實是，無論媒體怎麼說，我們所採取的全美參與的做法是成功的。我們減緩了疫情蔓延的速度，我們照顧了易受感染的人群，我們拯救了生命，我們為未來可能面臨的任何挑戰奠定了堅實的基礎。這就是我們值得慶賀的原因，而不是聽取媒體所散佈的恐懼言論。
+
+白宫原文链接：[There Isn’t a Coronavirus ‘Second Wave’](https://www.whitehouse.gov/articles/vice-president-mike-pence-op-ed-isnt-coronavirus-second-wave/)
+
+*翻譯：【奔騰的長江】校對：【Olivia9802】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
