@@ -1,38 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統致眾議院議長和參議院主席關於北朝鮮的信件（中英文對照）
-`2020-06-18 16:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238154/)
+## 從美中外交高層的談判破裂看當今世界政治局勢背後的真相
+`2020-06-18 23:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238634/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18162537/WH_20200617_Letter_NorthKorea_photo169.png)From Google Maps
-**Text of a Letter from the President to the Speaker of the House of Representatives and the President of the Senate**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18234637/Screen-Shot-2020-06-18-at-8.44.28-PM.png)图片来源：REUTERS/Leah Millis
+據《NHK國際新聞》6月18日報導，美國國務卿蓬佩奧和中國共產黨外事工作委員會辦公室主任楊潔篪在本週三會晤，這是10個月來的雙方的第一次會晤。全球高度矚目這次高層會晤，期待是否能在新冠病毒和中國加緊控製香港問題上修補裂痕。然而，顯而易見的是蓬佩奧和楊潔篪各自堅守立場，會談在中途就結束。
 
-**總統致眾議院議長和參議院主席的信件**
+美國國務院發表聲明說，蓬佩奧呼籲中方在抗擊全球流行病毒的共享信息方面應該完全透明。同時蓬佩奧強調在雙邊商業、安全和外交方面需要基於完全互惠的原則。
 
-Dear Madam Speaker: (Dear Mr. President:)
+中國外交部聲稱，由於美國發布的G7外長「就中國在香港引進國家安全發表示深切關注」的聯合聲明，楊潔篪要求美國停止干涉中國內政。楊潔篪同時提及美國頒布新疆維吾爾人權法案一事。同時，中國外交部聲稱在台灣問題上，楊潔篪促使美國要遵守“一個中國“的原則。
 
-尊敬的議長女士：(尊敬的主席先生：)
+蓬佩奧和楊潔篪也討論了南韓半島的形勢以及核裁軍等事宜，但是具體細節尚未透露。
 
-Section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)) provides for the automatic termination of a national emergency unless, within 90 days before the anniversary date of its declaration, the President publishes in the Federal Register and transmits to the Congress a notice stating that the emergency is to continue in effect beyond the anniversary date.  In accordance with this provision, I have sent to the Federal Register for publication the enclosed notice stating that the national emergency with respect to North Korea that was declared in Executive Order 13466 of June 26, 2008, expanded in scope in Executive Order 13551 of August 30, 2010, addressed further in Executive Order 13570 of April 18, 2011, further expanded in scope in Executive Order 13687 of January 2, 2015, and under which additional steps were taken in Executive Order 13722 of March 15, 2016, and Executive Order 13810 of September 20, 2017, is to continue in effect beyond June 26, 2020.
+評：這次美中外交高層談判破裂的結果是我們意料之中的事情。從NHK的新聞報導描述來看，會談沒能按照預定時間完成，中途就結束了。雖然作者的輕描淡寫一筆帶過，這傳遞了一個重要信號。可見美中雙方意見分歧巨大、無法溝通，所以會議才沒有繼續進行下去的必要。
 
-《國家緊急狀態法案》（50 USC 1622（d））第202（d）條說明全國緊急狀態將自動解除，除非在本條令周年日的前的90天內，總統在《聯邦紀事》上發布並告知國會並宣布緊急狀態將持續到該週年日之後。依照本規定，我已將隨附的通知發送至《聯邦記事》，即針對朝鮮于2008年6月26日宣布進入國家緊急狀態的第13466號行政命令，在2010年8月30日以13551號行政令擴大了其範圍，並在2010年10月30日的行政令中進一步擴大，而後在2011年4月18日的13570號行政令中再次加強，並在2015年1月2日發布的的13687號行政命令中再次擴大範圍，並在2016年3月15日發布的13722號行政令，23號發布的行政令以及2017年9月20日的13810號行政令中採取了額外的措施，基於這些文件，我們對北朝鮮的製裁將於2020年6月26日後繼續生效。
+這次外交高層的會晤本是應中共方要求才舉行的。在會談前期，路德訪談曾提到“楊潔篪代表中共黨中央想跟美國做交易，用拜登的黑材料來換取爆料革命核心戰友的信息。”中共作為世界大國政府，其手段卑鄙下流，陰險心思可見一斑。中共長久以來，利用民主制度的優勢，使用各種卑劣手段來對付對手。中共的期滿手段高超，往往是在民主制度下成長的單純人難以識破和預見的。所謂知己知彼，百戰不殆。唯有深刻了解中共一切黑暗和邪惡的文貴先生所領導的爆料革命，才能幫助美國政府認識中共政權的邪惡魔性。以川普總統為首的白宮政府完全認可並信賴爆料革命的真實和價值，美國政府才能在節節挫敗的國際政治戰場上贏回了絲絲生機。進入2020年，因新冠病毒爆發並且全球擴散，以美國為首的發達民主國家深受其害。美國政府依靠爆料革命提供的信息，從川普政權到現在美國的普羅大眾，甚至反對黨的民主黨對中共的認識才徹底翻轉。現今，美國上上下下都達成了空前一致的認識，那就是滅共是美國唯一的生路！中共是世界的毒瘤，是世界和平的威脅，是世界人民的公敵！
 
-The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula; the actions and policies of the Government of North Korea that destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region, including its pursuit of nuclear and missile programs; and other provocative, destabilizing, and repressive actions and policies of the Government of North Korea, continue to constitute an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, I have determined that it is necessary to continue the national emergency declared in Executive Order 13466 with respect to North Korea.
+當美國反共情緒高漲之時，中共又開始了新一輪的表演。
 
-朝鮮半島上存在可用於武器的核燃料激增的風險；北朝鮮政府的行動和政策破壞了朝鮮半島的穩定並危及到美國在該地區的武裝力量、盟友和貿易夥伴。北朝鮮堅持的核計劃和導彈計劃，以及其它挑釁、破壞穩定和壓制性的行動和政策，對美國的國家安全、外交政策和經濟構成不可忽視的持續威脅。為此，我認為對繼續持續全國緊急狀態並執行以應對北朝鮮的第13466號行政令並是非常必要。
+中共從幾週前又開始在美國煽動暴亂，到近日在中印邊界，釣魚島，韓朝邊境不斷挑起各種爭端。我們有理由相信，中共這樣的小動作將來還會持續不斷。但是我們要撥開雲霧見青天，透過表像看本質。中共無非只有一個目的，轉移美國視線，拖延川普總統的滅共機會，妄想搞垮川普總統的再選，妄想能夠苟延殘喘。
 
-Sincerely,
+但今非昔比，時勢造英雄。文貴先生在2017年開始的爆料革命不僅喚醒了沉睡的中國人，也喚醒了迷糊的美國人和世界人民。我們堅信有了爆料革命支持的川普政權，不會再掉進中共的陷阱裡。川普總統政權的精英們也會“藉其人之道，還治其人之身。”中共的滅亡是勢在必行，指日可待！
 
-此致，
+[原文鏈接](https://www3.nhk.or.jp/nhkworld/en/news/20200618_24/)
 
-DONALD J. TRUMP
-
-唐納德·J·川普
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/](https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/)
-
-*翻譯：【奔騰的長江】校對：【Olivia9802】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：阿麗塔Alita
+校對整理：Sonya
 
 0

@@ -1,33 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員提出《台灣防衛法》 阻止中共對台“既成事實”策略
-`2020-06-18 08:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/237816/)
+## 白宮發言人關於財政部和國務院制裁阿薩德政權的聲明（中英文對照）
+`2020-06-18 16:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238147/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-82.png)圖片來源：Reuters
-據台灣英文新聞報報導，6月11日美國共和黨聯邦參議員喬什·霍利(Josh Hawley)提出《台灣防衛法》草案（[Taiwan Defense Act](https://www.hawley.senate.gov/sites/default/files/2020-06/Taiwan-Defense-Act.pdf))。該法案旨在使美國能夠在中共軍隊日益強大和咄咄逼人的情況下，履行《台灣關係法》所規定的義務。該法案將要求國防部採取措施，確保台灣有能力挫敗中共國的入侵，特別是針對台灣的”既成事實”策略。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18155122/WH_20200617_target_Assad_photo169.png)From Google Map
+**Statement from the Press Secretary Regarding Treasury and State Sanctions** **on the Assad Regime**
 
-霍利議員表示，台灣是”自由開放的印太地區要津。如果讓中共奪取台灣的控制權，它將隨時統治印太地區。這不僅會對美國的亞洲盟友以及合作夥伴，而且也會對美國人構成不可接受威脅，決不能容忍此事發生。”
+**白宮發言人關於財政部和國務院制裁阿薩德政權的聲明**
 
-該法案中的”既成事實”策略是指在美軍向該地區派遣部隊之前，中共軍隊會設法擊潰台灣的防禦力量。在這種情況下，中共軍隊將控制台灣，並阻止美國的干預，最終使美國別無選擇，只能接受中共國吞併台灣的既成事實。
+Foreign Policy
 
-該法案建議美國採取據止行動，包括前沿部隊的 “遲滯行動”，以阻止中共軍隊的既成事實策略。該法案甚至建議對美軍使用核武器打擊該策略進行評估，並確保在中共或美國使用核武器後，美軍依然可以繼續保衛台灣。
+Issued on: June 17, 2020
 
-*注：*
-*1. 據止行動（denial operations）：據止行動是一種拒絕敵方使用空間、人員或設施的行動。它可能包括銷毀、清除、污染或建造障礙物。 （摘自www.globalsecurity.org）
-2. 遲滯行動（blunt layer）：指延緩、降低或阻止對手的侵略。 （摘自《美國國家發展戰略實施指南》國民警衛隊篇）*
+外交政策
 
-評：
+發佈時間：2020年6月17日
 
-中共高層深知軍事實力無法和美軍正面對抗，才想出“既成事實”這個策略，想通過突然襲擊的方式，打美軍一個措手不及，逼迫美軍接受中共武力吞併台灣的事實。近年來，中共對內著力發展海軍、火箭軍，以及推進南海軍事化，對外透過藍金黃拉攏、扶植島內親共力量，都是在穩定推進該策略，妄圖在侵台時，裡應外合達到迅速控制台灣的險惡目的。
+Today, at President Donald J. Trump’s direction, the Department of the Treasury and Department of State announced important sanctions designations on individuals and entities actively supporting the murderous and barbaric Assad regime in Syria.  Today’s designations employ a wide range of sanctions authorities to target the Assad regime, including the Caesar Act provision of the National Defense Authorization Act (NDAA) for Fiscal Year 2020, which authorizes sanctions on individuals providing support to the Syrian government.
 
-當前中共國陷入內外交困的局面，中共軍隊武力侵台的可能性驟增。在此背景之下，台灣防衛法草案的提出非常及時，該草案中具體提到的據止行動、遲滯行動，以及首次提出的使用核武器進行嚇阻，這些針對性的反制措施，是對中共黨內軍內的好戰分子的一次嚴重警告。
+今天，在唐納德·川普的命令下，財政部和國務院宣布了對積極支持敘利亞兇殺和野蠻的阿薩德政權的個人和實體實施重要製裁。今天針對阿薩德政權啟用了大範圍的製裁，其中包括了《 2020財政年度國防授權法》（NDAA）中的《凱撒法案》，該條款授權對向敘利亞政府提供支持的個人實施制裁。
 
-台灣作為美國印太戰略的重要節點和盟友，美國絕不可能容忍中共侵占台灣。之前郭文貴先生多次在直播中談及台灣問題，結合6月4日新中國聯邦的建立，未來當美國和國際社會正式宣布中共國為非法政府、恐怖組織之時，美國駐軍台灣甚至香港，都會是合理合法。到那時，中共只有望“台“興嘆了~讓我們拭目以待吧！
+The targets of today’s sanctions include regime-loyalists, Syrian financiers supporting corrupt reconstruction efforts, and individuals actively involved in the ceasefire disruption in northern Syria.
 
-[原文鏈接](https://www.taiwannews.com.tw/en/news/3946567)
+今天的製裁對象包括忠於政權的人、支持腐敗的重建工作的敘利亞金融家以及積極參與破壞敘利亞北部停火的個人。
 
-翻譯報導：Joseph Yang
-校對整理：Yamap
+Since the 2011 start to the Syrian conflict, the Assad regime has committed innumerable atrocities against Syrians, including arbitrary detention, torture, sexual violence, and murder.  These despicable acts have devastated the country’s people, infrastructure, and economy, displacing more than half of Syria’s population.
 
-2
+自2011年敘利亞衝突開始以來，阿薩德政權對敘利亞人犯下了無數暴行，包括任意拘留、酷刑、性暴力和謀殺。這些無恥的行為摧殘了該國的人民、破壞了基礎設施和經濟，使敘利亞一半以上的人口流離失所。
+
+Today’s designations send a clear message that no individual or business should enter into business with or otherwise enrich such a vile regime.
+
+今天的指定發出了一個明確的信號，即沒有個人或企業應該與這樣一個卑鄙的政權建立業務關係或以其他方式為其提供資金。
+
+Importantly, today’s actions under the Caesar Act and Executive Orders 13894, 13582, and 13573 are intended to hold the murderous Assad regime accountable.  They are not directed at the Syrian people.
+
+重要的是，今天根據《凱撒法》和第13894號、第13582號和第13573號行政命令採取的行動旨在追究兇殘的阿薩德政權的責任，而不是針對敘利亞人民的。
+
+This Administration is committed to a lasting political solution.  The Assad regime and its patrons must recognize that a political resolution is the only viable mechanism to bring a peaceful end to the Syrian conflict.
+
+本屆政府致力於實現一個長期的政治解決方案。阿薩德政權及其支持者必須認識到，這個政治解決方案是和平結束敘利亞衝突的唯一可行機制。
+
+白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/)
+
+*翻譯：【Melody太阳的旋律】校對： 【Olivia9802】*
+
+*戰友之家玫瑰園小隊出品*
+
+0

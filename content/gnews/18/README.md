@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 歐盟向中共說NO！
-`2020-06-18 11:40 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/237961/)
+## 在美國官方機構發佈的通告中，已經將中國和中國共產黨徹底分開
+`2020-06-18 20:52 Diago` [轉載自GNews](https://gnews.org/zh-hant/238357/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/欧盟向中共说No.jpg)
-來自彭博社消息：歐盟就中國對全球貿易的野心向其發出警告，以前所未見的關稅決定來抗擊中國對其出口商的補貼。
+![](https://gnews.org/wp-content/uploads/2020/06/chuanp_副本-2.jpg)
+作者：Diago
 
-本週一，歐盟首次將矛頭指向了一個國家（中國）向其在另一個國家（埃及）的出口商提供的援助， 此援助涉嫌扭曲市場。迄今為止，這種歐洲關稅只側重於出口商所在國提供的補貼。
+據美國駐華大使館及領事館微信公眾號發佈的[國務卿蓬佩奧與中國共產黨政治局委員楊潔篪會面](https://china.usembassy-china.org.cn/zh/secretary-of-state-pompeo-met-with-chinese-communist-party-ccp-politburo-member-yang-jiechi-06172020-zh/)
 
-這次爭端涉及到歐盟從埃及進口的玻璃纖維織物，一種用於從風力渦輪機到運動器材的工業品。埃及兩家該材料的出口商是埃及巨石玻璃纖維工業SAE與埃及恆石玻璃纖維織物SAE，他們分別是中國巨石股份有限公司和浙江恆石纖維基業有限公司在埃及的子公司，位於中國-埃及蘇伊士經貿合作區，它是中國備受爭議的”一帶一路”全球基礎設施發展計劃的一部分。
+【國務卿邁克爾·R·蓬佩奧與中國共產黨政治局委員楊潔篪會面
 
-歐盟表示，埃及巨石和埃及恆石從中國和埃及政府獲得了經濟利益，這些官方援助，不公平地削弱了歐盟區的生產商，降低了他們的競爭力。
+2020年6月17日11:03 PM美國東部夏令時間
 
-作為本週一決定的重要部分，歐盟對原產於中國的玻璃纖維織物單獨徵收每套 17% 至 30.7% 不等的反補貼稅。在此之前，為防止中國以低於成本價傾銷，歐盟向中國的玻璃纖維製品徵收37.4%或者99.7%的反傾銷稅，此次調整為34%-69%，加上新增加的反補貼稅，總稅率將提高到51%至99.7%。
+發言人辦公室
 
-而對來自埃及的玻璃纖維織物，歐盟將徵收20%的反傾銷，如果這些商品被證明來自於中國，也將加收反補貼稅，稅率同上。
+以下為發言人摩根·奧特葛斯（Morgan Ortagus）的聲明： 國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。】
+![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.03-AM.jpeg)
+據[美國駐華大使館](https://weibo.com/usembassy?refer_flag=1005055013_)[6月18日 16:29](https://weibo.com/1743951792/J7dznAkIN?from=page_1001061743951792_profile&amp;wvr=6&amp;mod=weibotime)新浪微博：
 
-“這是一個具有里程碑意義的事件，並可能會導致更多類似的案例”， Rhodium 集團副董事 Agatha Kratz 這樣說到。他領導了對“歐盟-中國關係”和“中國商業外交”的專題研究—中國的國家支持其實廣泛存在於中國境外，對歐盟和他國利益方產生了扭曲性影響。
+“國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。” 美國國務院發言人摩根·奧特葛斯（Morgan Ortagus） 瞭解更多： [O網頁連結](http://t.cn/A6LxVUE3)[收起全文d](void%280%29;)
+![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.26-AM.jpeg)
+另據蓬佩奧國務卿的推文[Secretary Pompeo](https://twitter.com/SecPompeo)[@SecPompeo12:58 AM · Jun 19, 2020·Twitter Web App](https://twitter.com/SecPompeo)
 
-中國對歐盟的決定進行了抨擊，稱其違反了“世界貿易組織的規則”。
+【During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries.】——
 
-“中方對這一裁決高度關注”，中國駐歐盟代表團在一份電子郵件聲明中說，“歐盟的裁決無助於維護世貿組織規則的權威和各方為多邊貿易體制的努力，擾亂了正常的投資流動和供應鏈，損害了發展中國家的利益”。
+> During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries. [pic.twitter.com/YJmBTUmuQ9](https://t.co/YJmBTUmuQ9)
+> — Secretary Pompeo (@SecPompeo) [June 18, 2020](https://twitter.com/SecPompeo/status/1273661424297029633?ref_src=twsrc%5Etfw)
 
-歐洲正在加大力度防範中國的“國家商業擴張主義”政策，這也很好地回應了美國對“中共經濟擴張”的擔憂。此前，華盛頓以繞過世貿組織的方式對北京採取了單邊行動，歐洲曾對此持批評態度。
+限於篇幅，這裡不再對美國駐華大使館的其他媒體官方公眾號進行一一貼圖，因為這種挖掘的喜悅應該屬於每一個讀者，我們要記住這歷史性的一刻——在美國東部夏令時間2020年6月17日晚11:03分及稍後，對應的北京時間2020年6月18日上午11:03分及稍後，在美國的官方機構發佈的通告中，已將中國和中國共產黨徹底分開！
 
-歐洲玻璃纖維織物生產商協會 Tech-Fab Europe對該項決定表示歡迎，稱這個決定標誌著“歐盟反擊外國補貼的貿易防禦新時代”已經開啟。
+接下來呢？沒了。
 
-評論：
-
-近幾年以來，越來越多的西方國家，認清了中共一直以“國家資本主義”的形式，大肆在世界各地進行經濟侵略，從不執行加入WTO之前承諾的真實面目，他們對全世界的經濟秩序造成了巨大的損害。有意思的是，一個從不按規則出牌的獨裁政權，可以說出歐盟“違反了世界貿易組織的規則”這樣的話來，讓人忍俊不禁，啼笑皆非。
-
-是時候，向中共說NO了！
-
-[資料來源](https://finance.yahoo.com/news/eu-challenges-china-trade-expansion-111608917.html)
-
-翻譯報導：文康
+（文章內容僅代表作者個人觀點）
 
 0

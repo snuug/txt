@@ -1,43 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三峽大壩如果潰壩到底有多麼可怕
-`2020-06-18 08:19 benjaming` [轉載自GNews](https://gnews.org/zh-hant/237814/)
+## 川普總統致眾議院議長和參議院主席關於北朝鮮的信件（中英文對照）
+`2020-06-18 16:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238154/)
 
-作者：文茗
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18162537/WH_20200617_Letter_NorthKorea_photo169.png)From Google Maps
+**Text of a Letter from the President to the Speaker of the House of Representatives and the President of the Senate**
 
-俗話說的好水火無情。中華民族和水之間的故事可謂是波瀾壯闊，伴隨整個華夏曆史。
+**總統致眾議院議長和參議院主席的信件**
 
-中華大地是洪水災害頻繁的國家。據史書記載，從公元前206年至公元1949年中共國成立的2155年間，大水災就發生了1029次，幾乎每兩年就有一次。
-![](https://gnews.org/wp-content/uploads/2020/06/图片1-5.png)
-自公元前185年(西漢初)到1911年(清朝末年)的2096年間，長江共發生較大洪水災害214次，1499到1949年的450年間，湖北省境內的江漢幹堤決口達186次。出現較大洪水的年份有1153年、1227年、1560年、1788年、1849年、1860年、1870年、1905年、1931年、1935年、1949年、1954年、1998年等。
+Dear Madam Speaker: (Dear Mr. President:)
 
-1788年全流域大水，荊江大堤決口20餘處，荊州城內水深五六米，兩個月後才退去。
+尊敬的議長女士：(尊敬的主席先生：)
 
-1870年，宜昌的最大洪峰流量竟高達10.5萬立方米/秒。
+Section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)) provides for the automatic termination of a national emergency unless, within 90 days before the anniversary date of its declaration, the President publishes in the Federal Register and transmits to the Congress a notice stating that the emergency is to continue in effect beyond the anniversary date.  In accordance with this provision, I have sent to the Federal Register for publication the enclosed notice stating that the national emergency with respect to North Korea that was declared in Executive Order 13466 of June 26, 2008, expanded in scope in Executive Order 13551 of August 30, 2010, addressed further in Executive Order 13570 of April 18, 2011, further expanded in scope in Executive Order 13687 of January 2, 2015, and under which additional steps were taken in Executive Order 13722 of March 15, 2016, and Executive Order 13810 of September 20, 2017, is to continue in effect beyond June 26, 2020.
 
-1931年氣候反常，長時間的降雨，造成全國性的大水災。其中長江中下游和淮河流域的湖南、湖北、江西、浙江、安徽、江蘇、山東、河南八省災情最重，是20世紀受災範圍最廣、災情最重的一年。
+《國家緊急狀態法案》（50 USC 1622（d））第202（d）條說明全國緊急狀態將自動解除，除非在本條令周年日的前的90天內，總統在《聯邦紀事》上發布並告知國會並宣布緊急狀態將持續到該週年日之後。依照本規定，我已將隨附的通知發送至《聯邦記事》，即針對朝鮮于2008年6月26日宣布進入國家緊急狀態的第13466號行政命令，在2010年8月30日以13551號行政令擴大了其範圍，並在2010年10月30日的行政令中進一步擴大，而後在2011年4月18日的13570號行政令中再次加強，並在2015年1月2日發布的的13687號行政命令中再次擴大範圍，並在2016年3月15日發布的13722號行政令，23號發布的行政令以及2017年9月20日的13810號行政令中採取了額外的措施，基於這些文件，我們對北朝鮮的製裁將於2020年6月26日後繼續生效。
 
-1954年長江發生了全流域性大洪水，長江中下游洪水與川水遭遇。受災人口1890萬，淹死3.4萬人，淹沒良田317萬公頃，損失數十億元，分洪潰口水量達1023億立方米。
+The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula; the actions and policies of the Government of North Korea that destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region, including its pursuit of nuclear and missile programs; and other provocative, destabilizing, and repressive actions and policies of the Government of North Korea, continue to constitute an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, I have determined that it is necessary to continue the national emergency declared in Executive Order 13466 with respect to North Korea.
 
-1998年長江洪水受災範圍遍及四川、重慶、雲南、貴州、湖南、湖北、江西、安徽、江蘇等省市，除雲南、貴州省外的7省市受災縣市達588個、鄉鎮10771個。就各省而言，受災範圍之廣也屬少見。四川省21個市、地、州都不同程度遭受山洪和山地災害，長江中下游5省不僅平原河湖地區大範圍受災，山丘區也遭受嚴重山洪和山地災害。因持續不斷的暴雨洪水和長時間的高洪水位，造成潰垸、內澇和山洪等多種災害。
-![](https://gnews.org/wp-content/uploads/2020/06/图片2-4.png)
-時至今日，洪水好似輪到了三峽大壩，如果三峽大壩崩潰會有什麼後果？三峽大壩若崩潰時，百餘億立方米庫水短時間內下泄，壩址至長沙市間沿岸，受洪水波直接衝擊，災害損失嚴重。葛洲壩水利樞紐將嚴重受損，宜昌市在鐵路線以下地區受淹，枝城、上下百里洲和荊江分洪區以西洲灘圍垸將潰堤受淹。潰壩洪峰的最大流量將達到100—237萬立方米／秒，下泄洪峰將以每小時100公里的速度到達葛洲壩水利樞紐，屆時洪峰仍將達到31萬立方米／秒，洪水損壞葛洲壩大壩後進入宜昌市區，洪水在宜昌城內的流速仍然有每小時65公里，潰壩4—5小時後，宜昌城的水位將高達海拔64—71米。
+朝鮮半島上存在可用於武器的核燃料激增的風險；北朝鮮政府的行動和政策破壞了朝鮮半島的穩定並危及到美國在該地區的武裝力量、盟友和貿易夥伴。北朝鮮堅持的核計劃和導彈計劃，以及其它挑釁、破壞穩定和壓制性的行動和政策，對美國的國家安全、外交政策和經濟構成不可忽視的持續威脅。為此，我認為對繼續持續全國緊急狀態並執行以應對北朝鮮的第13466號行政令並是非常必要。
 
-特別要注意，1998年長江洪水的最大流量為6萬立方米/秒，這裡給出的潰壩洪峰是其洪峰的37倍，洪峰下泄的速度高達每小時100公里，與高速公路上飛馳的汽車相同。如此大的流量，如此高的速度，其破壞能力就好比無數大卡車向你以每小時100公里的速度衝來。
+Sincerely,
 
-就是葛洲壩水利樞紐，在這樣的流量和速度下，也要被沖垮。宜昌市地面的平均高程不到海拔50米，當宜昌市洪水位高達海拔64—71米時，宜昌城已在水下20米處。在三峽大壩發生潰壩後，宜昌市的居民幾乎沒有機會逃生，因為在潰壩後的半個小時，洪峰已經就到達宜昌市。僅宜昌一市的人員損失將高達50萬。
+此致，
 
-潰壩模擬的外部條件，並不是選在最不利的時刻上，也不是選在比較不利的時刻上，而是有意選在比較有利的條件下。三峽水庫總庫容393億立方米，當出現潰壩徵兆時，洩水七天才可以達到安全水位。
-![](https://gnews.org/wp-content/uploads/2020/06/图片3-3.png)
-潰壩時的自然流量為6萬立方米/秒，潰壩洪峰的最大流量將達到237萬立方米/秒。長江最大洪水流量為11萬立方米/秒（1870年），和三峽潰壩的流量237萬立方米/秒相比，就不是一個數量級的。當三峽水庫裡裝滿水，自然水流在6萬立方米/秒時的潰壩情況將是怎樣的，393億立方米的水量，是個什麼概念？就相當於黃河一年的水量，黃河一年的水量，在一個很短的時間內，潰洩下來，將是一場什麼樣的災難？
+DONALD J. TRUMP
 
-不但宜昌保不住，沙市保不住，江漢平原保不住，武漢也保不住，京廣、京九鐵路也保不住，洪水影響範圍一直到南京。
+唐納德·J·川普
 
-簡單說就是比98年洪水兇猛幾十倍的洪流不可阻擋的摧毀長江中下游的一切。洪峰10小時內到武漢，1天內到南京。十幾、幾十米高的洪水沖跨建築樓房，很難像會有多少無辜生命葬身魚腹。
+白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/](https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/)
 
-長江流域是中國的精華重心，水量佔全國的38%，耕地佔25%，糧食40%，棉花33%，淡水魚66%，養活3.5億人口。這個影響我是真的不敢去想。
+*翻譯：【奔騰的長江】校對：【Olivia9802】*
 
-（文章內容僅代表作者觀點）
+*戰友之家玫瑰園小隊出品*
 
-2
+0
