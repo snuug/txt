@@ -1,36 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國疾病預防控制中心發布冠狀病毒病例統計報告（2020年1月22日至5月30日）
-`2020-06-18 21:37 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238385/)
+## 美國全球媒體社新官上任美國之音高層下課
+`2020-06-18 23:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238578/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18210210/CDC_20200616_photo-1.jpg)
-**美國****2019****年冠狀病毒病例監測**
+![](https://gnews.org/wp-content/uploads/2020/06/Michael-Pack-US-VOA-Voice-of-America-1.jpg)*新上任的邁克爾·派克（Michael Pack）图片来源: Facebook*
+據美國好萊塢網絡新聞《期限》（Deadline.com）記者泰德·約翰遜（Ted Johnson）報導，美國之音（VOA）總監阿曼達·本內特（Amanda Bennett）和副總監桑迪·蘇加瓦拉（Sandy Sugawara）已於週一因白宮和川普總統對VOA的嚴厲批評而辭職。他們的辭職是在邁克爾·派克（Michael Pack）被任命為VOA的監管機構全球媒體社（US Agency For Global Media）的首席執行官之後。川普提名的保守派紀錄片製片人派克已於六月初被參議院確認就任。
 
-**2020年1月22日至5月30日**
+阿曼達在周一早上給員工的一份內部說明中表示，派克有權用他自己的VOA領導者來替代他們。又說“派克在國會面前發誓，會尊重並捍衛保證VOA的獨立性。而這個獨立性正是全球觀眾對VOA驚人信任的主要原因。”
 
-Erin K. Stokes, MPH1,\*; Laura D. Zambrano, PhD1,\*; Kayla N. Anderson, PhD1; Ellyn P. Marder, DrPH1; Kala M. Raz, MPH1;  Suad El Burai Felix, MPH1; Yunfeng Tie, PhD1; Kathleen E. Fullerton, MPH1
+阿曼達於四月期間在白宮[抨擊](https://www.whitehouse.gov/articles/amid-a-pandemic-voice-of-america-spends-your-money-to-promote-foreign-propaganda/) VOA對中共冠狀病毒危機的報導無異於“中共的大外宣”時，曾[撰文](https://www.insidevoa.com/a/a-statement-from-voa-director-amanda-bennett-/5367327.html)為VOA辯解說“我們一直以英語和普通話全面報導中共的虛假信息和錯誤信息，並同時對中共其他事務盡實報導，就像我們一貫對所有47種廣播語言所做的那樣。”但隨後川普對VOA批評仍持續不斷，並稱VOA的報導已成美國的“恥辱”。
 
-**概要**
+上週末，阿曼達又於另一份[對內聲明](https://www.insidevoa.com/a/voa-director-s-statement-on-cdc-s-media-interview-policy-excluding-voa-journalists/5462335.html)中，針對騎士第一修正案研究所（Knight First Amendment Institute）發布美疾控中心（CDC）已將VOA列入採訪黑名單之事說：“ CDC備忘錄中所敘述的該中心的行為可能對美國新聞業所產生的不良影響，正是我們經常在我們廣播所報導的，那些包括中共和俄羅斯在內，沒有新聞自由的國家中所看到的現象。”
 
-**關於這個話題，我們已經知道了什麼？**
+美國全球媒體社發言人說“讚賞VOA總監阿曼達·本內特和副總監桑迪·蘇加瓦拉目前為止的服務，並祝他們在今後的工作中一切順利。” 並進一步指出目前並無後續者被任命。
 
-向疾控中心報告的截止2020年4月的監測數據顯示，COVID-19會導致老年人和有潛在健康狀況的人出現嚴重後果。
+在六月初派克的參議院確認聽證會上，參議院民主黨人曾對他承受白宮壓力的能力有所質疑。派克回應說：“全球媒體社是建立在相信記者的獨立性，及沒有任何政治影響力可以告訴他們如何報導新聞或該說什麼的原則上。如果沒有這種信任，該機構將被徹底敗壞。 ”
 
-**這份報告增加了什麼？**
+評：自[郭先生2017年4月19日VOA斷播事件](https://gnews.org/zh-hans/178462/)以來，中共對美國媒體的深度藍金黃已昭然若揭。而VOA持續地為中共洗地更是有目共睹。這次VOA的上級機構果斷地把阿曼達開除，大快人心，各種狡辯已無濟於事，等待阿曼達的很可能是犯罪的指控。相信此後在班農好友派克先生的改革和治理之下，VOA會重回正軌，秉持正義和真實，刺穿中共大外宣的層層迷霧，及時傳播真實信息，解救更多被獨裁政府蒙蔽的平民百姓。
 
-截至2020年5月30日，在COVID-19病例中，最常見的基礎健康狀況是心血管疾病（32％），糖尿病（30％）和慢性肺部疾病（18％）。與沒有報告基礎健康 狀況的情況比例，有報告基本情況的人住院率高6倍，死亡人數高12倍。
+[原文鏈接](https://deadline.com/2020/06/voice-of-america-director-donald-trump-amanda-bennett-1202959267/)
 
-**對公共衛生實踐有什麼影響？**
-
-這些研究結果突出表明，仍然需要採取措施解決戰略，特別是針對脆弱人群 ，以減緩COVID-19的傳播。
-
-[閱讀翻譯全文](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18213541/CDC_20200616_traditional-1.pdf)
-
-[閱讀英文原文](https://www.cdc.gov/mmwr/volumes/69/wr/mm6924e2.htm?s_cid=mm6924e2_w)
-
-*翻譯：【Ying202064】【V％】【Naomi (文花開）】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：匿名
+校對整理：人間四月
 
 0

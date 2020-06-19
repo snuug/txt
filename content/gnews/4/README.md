@@ -1,61 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 緻美國參議院：關於《制止國際民航相關非法行為的公約》（中英文對照）
-`2020-06-19 00:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/238688/)
+## 緊張局勢爆發之際，中美高層夏威夷會晤有何玄機？
+`2020-06-19 01:58 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238964/)
 
-#### Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation
+![](https://gnews.org/wp-content/uploads/2020/06/88d4e15591dc4fa0925223b976ca5dd2.jpg)圖片來源：[www.taiwannews.com.tw](https://www.taiwannews.com.tw/en/news/3572389)
+據路透社報導，美國國務卿蓬佩奧本週三在夏威夷會見了中共負責外交關係的國務委員楊潔篪。在中美關係日益緊張之際，這種高規格層面的會談顯得不同尋常。
 
-### **緻美國參議院的信息：關於《制止國際民航相關非法行為的公約》**
+這次會談是蓬佩奧自今年4月15日通過與楊潔篪電話討論冠狀病毒疫情以來，他倆的第一次公開接觸，也是他們自去年以來的第一次面對面會談。這兩個世界上最大的經濟體之間的關係不斷惡化，尤其是在處理冠狀病毒大流行和中共對香港實施國安法的舉措上，兩國一直處於對立衝突狀態。蓬佩奧對中共的批評一直非常強硬，因此也經常遭到中共宣傳機構的猛烈砰擊。
 
-FOREIGN POLICY
+本次會談雙方都沒有公佈具體的議程。但據消息人士稱，這次會談是中共提出的，目的之一是希望美國在冠狀病毒的來源問題上放過中共不繼續追究；另一個目的則希望美國能幫中共扼殺剛建立的新中國聯邦。為達到這些目的，中共願付出包括放棄香港國安法等的諸多條件和代價。
 
-外交政策
+美國國務院發言人摩根-奧塔格斯在會後的聲明中說，蓬佩奧在這次會談中強調了”美中兩國需要進行完全對等的交往。同時兩國也需要充分的透明度和信息共享，以打擊遏制正在進行的冠狀病毒大流行，並防止病毒未來的爆發。”而中共外交部的聲明則稱，楊潔篪在會談中告訴蓬佩奧，美國要尊重北京在關鍵問題上的立場，停止干涉中共在香港、台灣和新疆等問題的事務，並應努力修復中美關係。可見，雙方在本次會談的目標並不一致，美國關注于冠狀病毒的來源和控制，中共則只關心其政權的穩定性，雙方最終沒在任何方面達成共識。
 
-Issued on: June 18, 2020
+會議結束後數小時，中共就宣布，其全國人民代表大會將在周四開始的會議上審議香港國家安全立法草案。如果該立法獲得通過，美方很有可能啟動制裁方案，即撤銷香港自貿區地位，以及對相關的香港高層領導進行全方位制裁。屆時，美中關係將跌入新的冰點。
 
-發布日期：2020年6月18日
+[原文鏈接](https://www.reuters.com/article/us-usa-china-pompeo/top-us-china-diplomats-meet-in-hawaii-amid-frayed-ties-idUSKBN23O20V)
 
-TO THE SENATE OF THE UNITED STATES:
+翻譯報導：緣特
+校對整理：人間四月
 
-With a view to receiving the advice and consent of the Senate to ratification, I transmit herewith the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation (the “Beijing Convention”), adopted by the International Civil Aviation Organization International Con-ference on Air Law (Diplomatic Conference on Aviation Security) in Beijing on September 10, 2010, and signed by the United States on that same date. I also transmit, for the information of the Senate, the report of the Department of State with respect to the Beijing Convention.
 
-緻美國參議院：
-
-為法案的批准能得到參議院的建議和認可，我謹此轉附2010年9月10日於北京航空法國際會議（航空保安公約外交大會）上通過的、美國同日簽署的《制止國際民航相關非法行為的公約》（《北京公約》），以及國務院有關《北京公約》的報告，供參議院參考。
-
-The Beijing Convention is an important component of international efforts to prevent and punish both terrorism targeting civil aviation and the proliferation of weapons of mass destruction. As between parties to the Beijing Convention, it replaces and supersedes the Convention for the Suppression of Unlawful Acts Against the Safety of Civil Aviation, done at Montreal, September 23, 1971, and its supplementary protocol, the Protocol for the Suppression of Unlawful Acts of Vio-lence at Airports Serving International Civil Aviation, done at Montreal, February 24, 1988. It sig- nificantly strengthens the existing international counterterrorism legal framework and facilitates the prosecution and extradition of those who seek to commit acts of terror, including acts such as those committed on September 11, 2001.
-
-世界各國致力於預防懲治針對民航的恐怖主義行為及大規模殺傷性武器的擴散，《北京公約》是一個重要組成部分。在《北京公約》締約國之間，它取代了1971年9月23日在蒙特利爾通過的《制止危害民航安全非法行為的公約》及1988年2月24日在蒙特利爾通過的補充議定《制止國際民用機場非法暴力行為的議定書》。它有力強化了現有的國際反恐法律框架，有助於起訴和引渡企圖實施恐怖主義行為者，包括像2001年9月11日這樣的事件。
-
-The Beijing Convention establishes the first international treaty framework that criminalizes certain terrorist acts, including using an aircraft in a terrorist activity and certain acts relating to the transport of weapons of mass destruction or related materials by aircraft. The Beijing Convention requires States Parties to criminalize specified acts under their domestic laws and to cooperate to prevent and investigate suspected crimes under the Beijing Convention. It includes an “extradite or prosecute” obligation with respect to persons accused of committing, attempting to commit, conspiring to commit, or aiding in the commission of such offenses.
-
-《北京公約》建立了首個將某些恐怖行為定為犯罪的國際條約框架，包括在恐怖行動中使用飛機、以及用飛機運輸大規模殺傷性武器或相關物資的行為。 《北京公約》要求締約國根據其國內法律將指定的行為定為犯罪，並根據《北京公約》合作預防和調查涉嫌犯罪。其中包括對被控犯有、企圖犯有、陰謀犯有或協助犯有此類罪行的人的 “引渡或起訴 “義務。
-
-Some changes to United States law will be needed for the United States to implement provisions of the Beijing Convention obligating the United States to criminalize certain offenses, make those offenses punishable by appropriate penalties, and authorize the assertion of jurisdiction over such offenses. Proposed legislation is being separately transmitted by my Administration to the Con-gress.
-
-美國需要對美國法律進行一些修改，以執行《北京公約》的規定，即美國有義務將某些罪行定為刑事犯罪，使這些罪行受到適當的懲罰，並授權對這些罪行行使管轄權。我國政府正在將擬議的立法單獨轉交國會。
-
-I recommend that the Senate give early and favorable consideration to the Beijing Convention, subject to a reservation and certain understandings that are described in the accompanying report of the Department of State.
-
-我建議參議院參考附件國務院報告的保留意見和某些詮釋，儘早地積極考量《北京公約》。
-
-DONALD J. TRUMP
-
-唐納德·川普
-
-THE WHITE HOUSE,
-
-白宮
-
-June 18, 2020.
-
-2020年6月18日
-
-閱讀原文：[Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation](https://www.whitehouse.gov/briefings-statements/message-senate-united-states-convention-suppression-unlawful-acts-relating-international-civil-aviation/)
-
-*翻譯：【致敬香港！ 】校對：【Ying202064】*
-
-*戰友之家玫瑰小隊出品*
 
 0
