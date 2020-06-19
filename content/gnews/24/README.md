@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】16/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-18 05:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/237680/)
+## 只與尊者達賴喇嘛合作
+`2020-06-18 08:11 GM31` [轉載自GNews](https://gnews.org/zh-hant/237811/)
 
-戰友之家圖文摘要組及小語種組
+郭文貴先生在2020年6月15日至6月17日連續叁天的直播中談到了達賴喇嘛和西藏問題， 他重申了自爆料革命開始以來一直堅持的原則，就是西藏的未來由西藏人決定， 他和新中國聯邦只相信達賴喇嘛，在共產黨滅亡以後，只與達賴喇嘛在西藏問題上合作。
 
-[English\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0616_CCP_Virus_Updates.pdf)
+*翻譯: 【JoyJoy】 校對：【RD16】 字幕：【小螺号】*
 
-[French\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0616_CCP_Virus_Updates.pdf)
+*戰友之家玫瑰園小隊出品*
 
-[German\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0616_CCP_Virus_Updates_-_.pdf)
-
-[Japanese\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0616_CCP_Virus_Updates.pdf)
-
-[Korean\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0616_CCP_Virus_Updates.pdf)
-
-[Russian\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0616_CCP_Virus_Updates.pdf)
-
-[Spanish\_0616\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0616_CCP_Virus_Updates.pdf)
-
-0
+1

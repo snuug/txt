@@ -1,50 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮發言人關於財政部和國務院制裁阿薩德政權的聲明（中英文對照）
-`2020-06-18 16:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238147/)
+## 中共間諜猖狂圍攻美國
+`2020-06-18 21:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238232/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18155122/WH_20200617_target_Assad_photo169.png)From Google Map
-**Statement from the Press Secretary Regarding Treasury and State Sanctions** **on the Assad Regime**
+![](https://gnews.org/wp-content/uploads/2020/06/中共间谍猖狂围攻美国.jpg)圖片來源：福克斯新聞截圖
+根據福克斯新聞頻道（Fox News）的報道，中央情報局（Central Intelligence Agency）前局長丹尼爾·霍夫曼（Daniel Hoffman）在周二宣稱，美國正遭受的中共特務的圍攻。
 
-**白宮發言人關於財政部和國務院制裁阿薩德政權的聲明**
+主持人埃德·亨利（Ed Henry）在福克斯新聞美國新聞室（America’s Newsroom）採訪中解釋說，中共的間諜們針對的是美國的學者，研究人員，企業家和國家安全官員。中共將間諜送到美國，企圖利用美國開放的民主制度從而竊取美國的知識產權。
 
-Foreign Policy
+在去年11月份，美國國立衛生研究院（NIH）和聯邦調查局（FBI）對竊取他國生物醫學研究的科學家進行的深入調查。根據紐約時報（New York Times）的報道，所有被發現的案件，均與中共脫不開關係。霍夫曼認為，中共正試圖通過給予美國科學家財政資助，以此滲透美國政府的研究。甚至會阻礙美國研發CCP病毒疫苗的進展，及竊取CCP病毒疫苗的成果。
+對此霍夫曼表示，“他會敦促美國與高等學府建立更好的公私合作關係。“ 他還舉例指出 “美國國立衛生研究院必須制定出一個更好的方案，他們不僅要報告與外國人的所有互動。其中特別是與來自中共人員互動。”
 
-Issued on: June 17, 2020
+霍夫曼認為，中共使得全世界遭受到了與中共一樣的經濟後果，這件事不會輕易過去，中共要對此負責。
 
-外交政策
+評：
 
-發佈時間：2020年6月17日
+近年來，中共通過各種手段，例如網絡黑客，千人計劃，國際合作，輸送間諜，藍金黃重要人員等，獲得世界各國的科研成果。如果真像霍夫曼在文中所講的，中共可能會派間諜偷取或阻礙CCP病毒疫苗的研發，那麼中共在向全世界傳播病毒這一罪惡之上又增加了阻礙世界脫離病毒傷害之罪惡，中共不除世界不得安寧。
 
-Today, at President Donald J. Trump’s direction, the Department of the Treasury and Department of State announced important sanctions designations on individuals and entities actively supporting the murderous and barbaric Assad regime in Syria.  Today’s designations employ a wide range of sanctions authorities to target the Assad regime, including the Caesar Act provision of the National Defense Authorization Act (NDAA) for Fiscal Year 2020, which authorizes sanctions on individuals providing support to the Syrian government.
+[原文鏈接](https://www.foxnews.com/media/dan-hoffman-the-us-is-under-siege-by-chinese-espionage)
 
-今天，在唐納德·川普的命令下，財政部和國務院宣布了對積極支持敘利亞兇殺和野蠻的阿薩德政權的個人和實體實施重要製裁。今天針對阿薩德政權啟用了大範圍的製裁，其中包括了《 2020財政年度國防授權法》（NDAA）中的《凱撒法案》，該條款授權對向敘利亞政府提供支持的個人實施制裁。
-
-The targets of today’s sanctions include regime-loyalists, Syrian financiers supporting corrupt reconstruction efforts, and individuals actively involved in the ceasefire disruption in northern Syria.
-
-今天的製裁對象包括忠於政權的人、支持腐敗的重建工作的敘利亞金融家以及積極參與破壞敘利亞北部停火的個人。
-
-Since the 2011 start to the Syrian conflict, the Assad regime has committed innumerable atrocities against Syrians, including arbitrary detention, torture, sexual violence, and murder.  These despicable acts have devastated the country’s people, infrastructure, and economy, displacing more than half of Syria’s population.
-
-自2011年敘利亞衝突開始以來，阿薩德政權對敘利亞人犯下了無數暴行，包括任意拘留、酷刑、性暴力和謀殺。這些無恥的行為摧殘了該國的人民、破壞了基礎設施和經濟，使敘利亞一半以上的人口流離失所。
-
-Today’s designations send a clear message that no individual or business should enter into business with or otherwise enrich such a vile regime.
-
-今天的指定發出了一個明確的信號，即沒有個人或企業應該與這樣一個卑鄙的政權建立業務關係或以其他方式為其提供資金。
-
-Importantly, today’s actions under the Caesar Act and Executive Orders 13894, 13582, and 13573 are intended to hold the murderous Assad regime accountable.  They are not directed at the Syrian people.
-
-重要的是，今天根據《凱撒法》和第13894號、第13582號和第13573號行政命令採取的行動旨在追究兇殘的阿薩德政權的責任，而不是針對敘利亞人民的。
-
-This Administration is committed to a lasting political solution.  The Assad regime and its patrons must recognize that a political resolution is the only viable mechanism to bring a peaceful end to the Syrian conflict.
-
-本屆政府致力於實現一個長期的政治解決方案。阿薩德政權及其支持者必須認識到，這個政治解決方案是和平結束敘利亞衝突的唯一可行機制。
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/)
-
-*翻譯：【Melody太阳的旋律】校對： 【Olivia9802】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報道：Chris
+校對整理：阿丙
 
 0
