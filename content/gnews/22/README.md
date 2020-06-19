@@ -1,38 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統致眾議院議長和參議院主席關於北朝鮮的信件（中英文對照）
-`2020-06-18 16:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238154/)
+## 日本修改法律緊跟美國步伐制裁中共高科技
+`2020-06-18 16:42 benjaming` [轉載自GNews](https://gnews.org/zh-hant/238055/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18162537/WH_20200617_Letter_NorthKorea_photo169.png)From Google Maps
-**Text of a Letter from the President to the Speaker of the House of Representatives and the President of the Senate**
+作者：文茗
 
-**總統致眾議院議長和參議院主席的信件**
+近日據日本媒體報導，東京警視廳公安部5月立案的可轉用於生物武器製造的噴霧乾燥裝置非法出口案件，首次適用了3年前把罰金上限提高100倍至10億日元（約合人民幣6597萬元）的修改後的《外匯法》。這是在美國和中共國對立的背景下，日本政府為防止尖端技術外流而加強出口管理體制。
+![](https://gnews.org/wp-content/uploads/2020/06/图片2-8.png)
+修改後的《外匯法》將罰金從最高1000萬日元以下提至10億日元，於2017年10月施行。今年5月又進行修改，加強了外國投資者向武器、核能等安全相關企業的出資限制。在如此高額的罰金下，將大大提高日本企業的“作案”成本，有效的管控日本的高端技術！
 
-Dear Madam Speaker: (Dear Mr. President:)
+根據修改後的《外匯法》，外國投資者在取得安全保障上重要企業的股份時，作為必須事先申請的出資比率從此前的“10%以上”下調至“1%以上”，變得更加嚴格。
 
-尊敬的議長女士：(尊敬的主席先生：)
+此外，新法根據業務內容和章程把所有上市企業分為三類。作為最重要的企業，及三菱重工業等518家企業被列入對國家安全相當重要的企業名單。據悉，企業名單今後也將進行調整。
+![](https://gnews.org/wp-content/uploads/2020/06/图片3-8.png)
+為什麼在美國對中共的製裁加快的當下，日本會如此緊迫的修改法律呢？其實稍加思索能獲得答案：日本修改法律直指的就是高科技，而高科技卻是共產黨最大的短板，同時日本是美國在亞太最大的盟友。由此看來，日本修改“外匯法”直指的就是中共。
 
-Section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)) provides for the automatic termination of a national emergency unless, within 90 days before the anniversary date of its declaration, the President publishes in the Federal Register and transmits to the Congress a notice stating that the emergency is to continue in effect beyond the anniversary date.  In accordance with this provision, I have sent to the Federal Register for publication the enclosed notice stating that the national emergency with respect to North Korea that was declared in Executive Order 13466 of June 26, 2008, expanded in scope in Executive Order 13551 of August 30, 2010, addressed further in Executive Order 13570 of April 18, 2011, further expanded in scope in Executive Order 13687 of January 2, 2015, and under which additional steps were taken in Executive Order 13722 of March 15, 2016, and Executive Order 13810 of September 20, 2017, is to continue in effect beyond June 26, 2020.
+在當今的世界上，如果說有哪個國家的技術能力能跟美國相提並論的話，毫無疑問就是日本了。日本擁有世界領先的機器設備製造，芯片技術等等！例如共產黨被卡脖子的芯片技術來說，日本不僅在上游有著設計核心、下游摸著產品製造，還在中游控制著原料，在全球芯片半導體製造鏈條上，日本可謂是獨當一面！
 
-《國家緊急狀態法案》（50 USC 1622（d））第202（d）條說明全國緊急狀態將自動解除，除非在本條令周年日的前的90天內，總統在《聯邦紀事》上發布並告知國會並宣布緊急狀態將持續到該週年日之後。依照本規定，我已將隨附的通知發送至《聯邦記事》，即針對朝鮮于2008年6月26日宣布進入國家緊急狀態的第13466號行政命令，在2010年8月30日以13551號行政令擴大了其範圍，並在2010年10月30日的行政令中進一步擴大，而後在2011年4月18日的13570號行政令中再次加強，並在2015年1月2日發布的的13687號行政命令中再次擴大範圍，並在2016年3月15日發布的13722號行政令，23號發布的行政令以及2017年9月20日的13810號行政令中採取了額外的措施，基於這些文件，我們對北朝鮮的製裁將於2020年6月26日後繼續生效。
+超高精度機床主要是日本，德國，瑞士的天下，其中日本更是領先世界一大截。這些高精度機床一直都是共產黨夢寐以求的設備，共產黨所有尖端軍事設備都來自於這些尖端機床製作完成。如果共產黨再也無法獲得這些高精度機床，共產黨可能連一架飛機都無法飛上天，沒有一發砲彈可以打中目標。
+![](https://gnews.org/wp-content/uploads/2020/06/图片4-5.png)
+不管是技術積累還是人才儲備上，日本是世界上最接近美國的國度。而且，在此次美中對立的情況下，按照共產黨的​​邏輯應該是日本的一個機遇：很多原來的美國供應商，完全可以轉為日本供應商；日本可以通過向中共國輸出技術，擴大在華市場份額；而中共國則可以獲得日本的技術支持，避開美國技術限制等等。用一句話總結，就是日本可以選擇邪惡，從撒旦那裡賺取非常多的錢。
 
-The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula; the actions and policies of the Government of North Korea that destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region, including its pursuit of nuclear and missile programs; and other provocative, destabilizing, and repressive actions and policies of the Government of North Korea, continue to constitute an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, I have determined that it is necessary to continue the national emergency declared in Executive Order 13466 with respect to North Korea.
+最令共產黨遺憾的是，出於站在正義方美國的考慮，日本必須選擇正義的一方，放緩與中接觸，控制好對共產黨尖端技術和設備的輸出。毫無疑問這會直接打擊共產黨升級製造業、稱霸世界的野心，甚至讓共產黨的邪惡計劃胎死腹中。
+![](https://gnews.org/wp-content/uploads/2020/06/图片5-2.png)
+同時，也驗證了一個道理，任何一個國家想要挑戰人類共同價值觀的時候，就是被排除在世界秩序之外的時刻。今天的共產黨在被他用藍金黃“拿下”的這些國家一個一個拋棄，等待共產黨的只有滅亡這一條路。
 
-朝鮮半島上存在可用於武器的核燃料激增的風險；北朝鮮政府的行動和政策破壞了朝鮮半島的穩定並危及到美國在該地區的武裝力量、盟友和貿易夥伴。北朝鮮堅持的核計劃和導彈計劃，以及其它挑釁、破壞穩定和壓制性的行動和政策，對美國的國家安全、外交政策和經濟構成不可忽視的持續威脅。為此，我認為對繼續持續全國緊急狀態並執行以應對北朝鮮的第13466號行政令並是非常必要。
-
-Sincerely,
-
-此致，
-
-DONALD J. TRUMP
-
-唐納德·J·川普
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/](https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/)
-
-*翻譯：【奔騰的長江】校對：【Olivia9802】*
-
-*戰友之家玫瑰園小隊出品*
+（文章內容僅代表作者觀點）
 
 0

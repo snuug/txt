@@ -1,49 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮發言人關於財政部和國務院制裁阿薩德政權的聲明（中英文對照）
-`2020-06-18 16:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238147/)
+## 川普總統致眾議院議長和參議院主席關於北朝鮮的信件（中英文對照）
+`2020-06-18 16:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238154/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18155122/WH_20200617_target_Assad_photo169.png)From Google Map
-**Statement from the Press Secretary Regarding Treasury and State Sanctions** **on the Assad Regime**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18162537/WH_20200617_Letter_NorthKorea_photo169.png)From Google Maps
+**Text of a Letter from the President to the Speaker of the House of Representatives and the President of the Senate**
 
-**白宮發言人關於財政部和國務院制裁阿薩德政權的聲明**
+**總統致眾議院議長和參議院主席的信件**
 
-Foreign Policy
+Dear Madam Speaker: (Dear Mr. President:)
 
-Issued on: June 17, 2020
+尊敬的議長女士：(尊敬的主席先生：)
 
-外交政策
+Section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)) provides for the automatic termination of a national emergency unless, within 90 days before the anniversary date of its declaration, the President publishes in the Federal Register and transmits to the Congress a notice stating that the emergency is to continue in effect beyond the anniversary date.  In accordance with this provision, I have sent to the Federal Register for publication the enclosed notice stating that the national emergency with respect to North Korea that was declared in Executive Order 13466 of June 26, 2008, expanded in scope in Executive Order 13551 of August 30, 2010, addressed further in Executive Order 13570 of April 18, 2011, further expanded in scope in Executive Order 13687 of January 2, 2015, and under which additional steps were taken in Executive Order 13722 of March 15, 2016, and Executive Order 13810 of September 20, 2017, is to continue in effect beyond June 26, 2020.
 
-發佈時間：2020年6月17日
+《國家緊急狀態法案》（50 USC 1622（d））第202（d）條說明全國緊急狀態將自動解除，除非在本條令周年日的前的90天內，總統在《聯邦紀事》上發布並告知國會並宣布緊急狀態將持續到該週年日之後。依照本規定，我已將隨附的通知發送至《聯邦記事》，即針對朝鮮于2008年6月26日宣布進入國家緊急狀態的第13466號行政命令，在2010年8月30日以13551號行政令擴大了其範圍，並在2010年10月30日的行政令中進一步擴大，而後在2011年4月18日的13570號行政令中再次加強，並在2015年1月2日發布的的13687號行政命令中再次擴大範圍，並在2016年3月15日發布的13722號行政令，23號發布的行政令以及2017年9月20日的13810號行政令中採取了額外的措施，基於這些文件，我們對北朝鮮的製裁將於2020年6月26日後繼續生效。
 
-Today, at President Donald J. Trump’s direction, the Department of the Treasury and Department of State announced important sanctions designations on individuals and entities actively supporting the murderous and barbaric Assad regime in Syria.  Today’s designations employ a wide range of sanctions authorities to target the Assad regime, including the Caesar Act provision of the National Defense Authorization Act (NDAA) for Fiscal Year 2020, which authorizes sanctions on individuals providing support to the Syrian government.
+The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula; the actions and policies of the Government of North Korea that destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region, including its pursuit of nuclear and missile programs; and other provocative, destabilizing, and repressive actions and policies of the Government of North Korea, continue to constitute an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, I have determined that it is necessary to continue the national emergency declared in Executive Order 13466 with respect to North Korea.
 
-今天，在唐納德·川普的命令下，財政部和國務院宣布了對積極支持敘利亞兇殺和野蠻的阿薩德政權的個人和實體實施重要製裁。今天針對阿薩德政權啟用了大範圍的製裁，其中包括了《 2020財政年度國防授權法》（NDAA）中的《凱撒法案》，該條款授權對向敘利亞政府提供支持的個人實施制裁。
+朝鮮半島上存在可用於武器的核燃料激增的風險；北朝鮮政府的行動和政策破壞了朝鮮半島的穩定並危及到美國在該地區的武裝力量、盟友和貿易夥伴。北朝鮮堅持的核計劃和導彈計劃，以及其它挑釁、破壞穩定和壓制性的行動和政策，對美國的國家安全、外交政策和經濟構成不可忽視的持續威脅。為此，我認為對繼續持續全國緊急狀態並執行以應對北朝鮮的第13466號行政令並是非常必要。
 
-The targets of today’s sanctions include regime-loyalists, Syrian financiers supporting corrupt reconstruction efforts, and individuals actively involved in the ceasefire disruption in northern Syria.
+Sincerely,
 
-今天的製裁對象包括忠於政權的人、支持腐敗的重建工作的敘利亞金融家以及積極參與破壞敘利亞北部停火的個人。
+此致，
 
-Since the 2011 start to the Syrian conflict, the Assad regime has committed innumerable atrocities against Syrians, including arbitrary detention, torture, sexual violence, and murder.  These despicable acts have devastated the country’s people, infrastructure, and economy, displacing more than half of Syria’s population.
+DONALD J. TRUMP
 
-自2011年敘利亞衝突開始以來，阿薩德政權對敘利亞人犯下了無數暴行，包括任意拘留、酷刑、性暴力和謀殺。這些無恥的行為摧殘了該國的人民、破壞了基礎設施和經濟，使敘利亞一半以上的人口流離失所。
+唐納德·J·川普
 
-Today’s designations send a clear message that no individual or business should enter into business with or otherwise enrich such a vile regime.
+白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/](https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/)
 
-今天的指定發出了一個明確的信號，即沒有個人或企業應該與這樣一個卑鄙的政權建立業務關係或以其他方式為其提供資金。
-
-Importantly, today’s actions under the Caesar Act and Executive Orders 13894, 13582, and 13573 are intended to hold the murderous Assad regime accountable.  They are not directed at the Syrian people.
-
-重要的是，今天根據《凱撒法》和第13894號、第13582號和第13573號行政命令採取的行動旨在追究兇殘的阿薩德政權的責任，而不是針對敘利亞人民的。
-
-This Administration is committed to a lasting political solution.  The Assad regime and its patrons must recognize that a political resolution is the only viable mechanism to bring a peaceful end to the Syrian conflict.
-
-本屆政府致力於實現一個長期的政治解決方案。阿薩德政權及其支持者必須認識到，這個政治解決方案是和平結束敘利亞衝突的唯一可行機制。
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-treasury-state-sanctions-assad-regime/)
-
-*翻譯：【Melody太阳的旋律】校對： 【Olivia9802】*
+*翻譯：【奔騰的長江】校對：【Olivia9802】*
 
 *戰友之家玫瑰園小隊出品*
 

@@ -1,37 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在美國官方機構發佈的通告中，已經將中國和中國共產黨徹底分開
-`2020-06-18 20:52 Diago` [轉載自GNews](https://gnews.org/zh-hant/238357/)
+## 中共間諜猖狂圍攻美國
+`2020-06-18 21:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238232/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/chuanp_副本-2.jpg)
-作者：Diago
+![](https://gnews.org/wp-content/uploads/2020/06/中共间谍猖狂围攻美国.jpg)圖片來源：福克斯新聞截圖
+根據福克斯新聞頻道（Fox News）的報道，中央情報局（Central Intelligence Agency）前局長丹尼爾·霍夫曼（Daniel Hoffman）在周二宣稱，美國正遭受的中共特務的圍攻。
 
-據美國駐華大使館及領事館微信公眾號發佈的[國務卿蓬佩奧與中國共產黨政治局委員楊潔篪會面](https://china.usembassy-china.org.cn/zh/secretary-of-state-pompeo-met-with-chinese-communist-party-ccp-politburo-member-yang-jiechi-06172020-zh/)
+主持人埃德·亨利（Ed Henry）在福克斯新聞美國新聞室（America’s Newsroom）採訪中解釋說，中共的間諜們針對的是美國的學者，研究人員，企業家和國家安全官員。中共將間諜送到美國，企圖利用美國開放的民主制度從而竊取美國的知識產權。
 
-【國務卿邁克爾·R·蓬佩奧與中國共產黨政治局委員楊潔篪會面
+在去年11月份，美國國立衛生研究院（NIH）和聯邦調查局（FBI）對竊取他國生物醫學研究的科學家進行的深入調查。根據紐約時報（New York Times）的報道，所有被發現的案件，均與中共脫不開關係。霍夫曼認為，中共正試圖通過給予美國科學家財政資助，以此滲透美國政府的研究。甚至會阻礙美國研發CCP病毒疫苗的進展，及竊取CCP病毒疫苗的成果。
+對此霍夫曼表示，“他會敦促美國與高等學府建立更好的公私合作關係。“ 他還舉例指出 “美國國立衛生研究院必須制定出一個更好的方案，他們不僅要報告與外國人的所有互動。其中特別是與來自中共人員互動。”
 
-2020年6月17日11:03 PM美國東部夏令時間
+霍夫曼認為，中共使得全世界遭受到了與中共一樣的經濟後果，這件事不會輕易過去，中共要對此負責。
 
-發言人辦公室
+評：
 
-以下為發言人摩根·奧特葛斯（Morgan Ortagus）的聲明： 國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。】
-![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.03-AM.jpeg)
-據[美國駐華大使館](https://weibo.com/usembassy?refer_flag=1005055013_)[6月18日 16:29](https://weibo.com/1743951792/J7dznAkIN?from=page_1001061743951792_profile&amp;wvr=6&amp;mod=weibotime)新浪微博：
+近年來，中共通過各種手段，例如網絡黑客，千人計劃，國際合作，輸送間諜，藍金黃重要人員等，獲得世界各國的科研成果。如果真像霍夫曼在文中所講的，中共可能會派間諜偷取或阻礙CCP病毒疫苗的研發，那麼中共在向全世界傳播病毒這一罪惡之上又增加了阻礙世界脫離病毒傷害之罪惡，中共不除世界不得安寧。
 
-“國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。” 美國國務院發言人摩根·奧特葛斯（Morgan Ortagus） 瞭解更多： [O網頁連結](http://t.cn/A6LxVUE3)[收起全文d](void%280%29;)
-![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.26-AM.jpeg)
-另據蓬佩奧國務卿的推文[Secretary Pompeo](https://twitter.com/SecPompeo)[@SecPompeo12:58 AM · Jun 19, 2020·Twitter Web App](https://twitter.com/SecPompeo)
+[原文鏈接](https://www.foxnews.com/media/dan-hoffman-the-us-is-under-siege-by-chinese-espionage)
 
-【During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries.】——
-
-> During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries. [pic.twitter.com/YJmBTUmuQ9](https://t.co/YJmBTUmuQ9)
-> — Secretary Pompeo (@SecPompeo) [June 18, 2020](https://twitter.com/SecPompeo/status/1273661424297029633?ref_src=twsrc%5Etfw)
-
-限於篇幅，這裡不再對美國駐華大使館的其他媒體官方公眾號進行一一貼圖，因為這種挖掘的喜悅應該屬於每一個讀者，我們要記住這歷史性的一刻——在美國東部夏令時間2020年6月17日晚11:03分及稍後，對應的北京時間2020年6月18日上午11:03分及稍後，在美國的官方機構發佈的通告中，已將中國和中國共產黨徹底分開！
-
-接下來呢？沒了。
-
-（文章內容僅代表作者個人觀點）
+翻譯報道：Chris
+校對整理：阿丙
 
 0

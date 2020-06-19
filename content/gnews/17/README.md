@@ -1,26 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共間諜猖狂圍攻美國
-`2020-06-18 21:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238232/)
+## 美國疾病預防控制中心發布冠狀病毒病例統計報告（2020年1月22日至5月30日）
+`2020-06-18 21:37 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238385/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/中共间谍猖狂围攻美国.jpg)圖片來源：福克斯新聞截圖
-根據福克斯新聞頻道（Fox News）的報道，中央情報局（Central Intelligence Agency）前局長丹尼爾·霍夫曼（Daniel Hoffman）在周二宣稱，美國正遭受的中共特務的圍攻。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18210210/CDC_20200616_photo-1.jpg)
+**美國****2019****年冠狀病毒病例監測**
 
-主持人埃德·亨利（Ed Henry）在福克斯新聞美國新聞室（America’s Newsroom）採訪中解釋說，中共的間諜們針對的是美國的學者，研究人員，企業家和國家安全官員。中共將間諜送到美國，企圖利用美國開放的民主制度從而竊取美國的知識產權。
+**2020年1月22日至5月30日**
 
-在去年11月份，美國國立衛生研究院（NIH）和聯邦調查局（FBI）對竊取他國生物醫學研究的科學家進行的深入調查。根據紐約時報（New York Times）的報道，所有被發現的案件，均與中共脫不開關係。霍夫曼認為，中共正試圖通過給予美國科學家財政資助，以此滲透美國政府的研究。甚至會阻礙美國研發CCP病毒疫苗的進展，及竊取CCP病毒疫苗的成果。
-對此霍夫曼表示，“他會敦促美國與高等學府建立更好的公私合作關係。“ 他還舉例指出 “美國國立衛生研究院必須制定出一個更好的方案，他們不僅要報告與外國人的所有互動。其中特別是與來自中共人員互動。”
+Erin K. Stokes, MPH1,\*; Laura D. Zambrano, PhD1,\*; Kayla N. Anderson, PhD1; Ellyn P. Marder, DrPH1; Kala M. Raz, MPH1;  Suad El Burai Felix, MPH1; Yunfeng Tie, PhD1; Kathleen E. Fullerton, MPH1
 
-霍夫曼認為，中共使得全世界遭受到了與中共一樣的經濟後果，這件事不會輕易過去，中共要對此負責。
+**概要**
 
-評：
+**關於這個話題，我們已經知道了什麼？**
 
-近年來，中共通過各種手段，例如網絡黑客，千人計劃，國際合作，輸送間諜，藍金黃重要人員等，獲得世界各國的科研成果。如果真像霍夫曼在文中所講的，中共可能會派間諜偷取或阻礙CCP病毒疫苗的研發，那麼中共在向全世界傳播病毒這一罪惡之上又增加了阻礙世界脫離病毒傷害之罪惡，中共不除世界不得安寧。
+向疾控中心報告的截止2020年4月的監測數據顯示，COVID-19會導致老年人和有潛在健康狀況的人出現嚴重後果。
 
-[原文鏈接](https://www.foxnews.com/media/dan-hoffman-the-us-is-under-siege-by-chinese-espionage)
+**這份報告增加了什麼？**
 
-翻譯報道：Chris
-校對整理：阿丙
+截至2020年5月30日，在COVID-19病例中，最常見的基礎健康狀況是心血管疾病（32％），糖尿病（30％）和慢性肺部疾病（18％）。與沒有報告基礎健康 狀況的情況比例，有報告基本情況的人住院率高6倍，死亡人數高12倍。
+
+**對公共衛生實踐有什麼影響？**
+
+這些研究結果突出表明，仍然需要採取措施解決戰略，特別是針對脆弱人群 ，以減緩COVID-19的傳播。
+
+[閱讀翻譯全文](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18213541/CDC_20200616_traditional-1.pdf)
+
+[閱讀英文原文](https://www.cdc.gov/mmwr/volumes/69/wr/mm6924e2.htm?s_cid=mm6924e2_w)
+
+*翻譯：【Ying202064】【V％】【Naomi (文花開）】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

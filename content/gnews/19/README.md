@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭斯副總統和第二夫人與在國際空間站上的宇航員通話
-`2020-06-18 20:34 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238253/)
+## 在美國官方機構發佈的通告中，已經將中國和中國共產黨徹底分開
+`2020-06-18 20:52 Diago` [轉載自GNews](https://gnews.org/zh-hant/238357/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18201853/WH_20200617_Pence_NASA_photo169.png)
+![](https://gnews.org/wp-content/uploads/2020/06/chuanp_副本-2.jpg)
+作者：Diago
 
-**副總統和第二夫人與在國際空間站上的美國宇航局宇航員進行通話**
+據美國駐華大使館及領事館微信公眾號發佈的[國務卿蓬佩奧與中國共產黨政治局委員楊潔篪會面](https://china.usembassy-china.org.cn/zh/secretary-of-state-pompeo-met-with-chinese-communist-party-ccp-politburo-member-yang-jiechi-06172020-zh/)
 
-基礎設施與技術
+【國務卿邁克爾·R·蓬佩奧與中國共產黨政治局委員楊潔篪會面
 
-發布日期：2020年6月17日
+2020年6月17日11:03 PM美國東部夏令時間
 
-今天，副總統邁克·彭斯和第二夫人卡倫·彭斯主持了與目前在國際空間站上的三名美國航天局宇航員的通話。從國際空間站接通電話的包括美國宇航局宇航員和國際空間站指揮官克里斯·卡西迪（Chris Cassidy），以及美國宇航局宇航員鮑勃·貝肯（Bob Behnken）和道格·赫利（Doug Hurley），他們作為探險隊63號機組成員在國際空間站上生活和工作。
+發言人辦公室
 
-2020年5月30日，Behnken和Hurley成為首批批發商業飛船和火箭發射到國際空間站的宇航員，他們坐在SpaceX Crew Dragon號在獵鷹9號火箭上從NASA肯尼迪航天中心升空。被稱為NASA的SpaceX Demo-2，是一次端到端的測試飛行，逐步驗證SpaceX乘員運輸系統，包括發射，在軌，對接和著陸操作。這標誌著近十年來美國宇航員首次從美國本土副總統和第二夫人出席了5月30日的那次歷史性發射。
+以下為發言人摩根·奧特葛斯（Morgan Ortagus）的聲明： 國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。】
+![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.03-AM.jpeg)
+據[美國駐華大使館](https://weibo.com/usembassy?refer_flag=1005055013_)[6月18日 16:29](https://weibo.com/1743951792/J7dznAkIN?from=page_1001061743951792_profile&amp;wvr=6&amp;mod=weibotime)新浪微博：
 
-副總統和第二夫人向宇航員們表示祝賀，並與他們討論了作為遠征63號的一部分在太空生活和工作的經歷，包括即將計劃的太空行走。三位宇航員之前都曾乘坐太空飛機前往第二夫人問宇航員會給被他們所激勵的美國年輕人甚麼建議，使他們可以成為太空專業人士。副總統彭斯感謝宇航員們在美國再次引領太空的過程中所表現出的勇敢服務和專業精神。他向他們保證，美國人民對他們充滿信心並為他們祈禱。
+“國務卿邁克爾·R·蓬佩奧今天與中國共產黨（CCP）政治局委員楊潔篪於夏威夷檀香山會面，就美中關係交換看法。國務卿強調了美國的重要利益，以及兩國之間的來往要完全對等的需要，包括在商業、安全和外交互動中。他也強調抗擊當前的COVID-19大流行和預防未來疫情爆發需要全面的透明度和資訊分享。” 美國國務院發言人摩根·奧特葛斯（Morgan Ortagus） 瞭解更多： [O網頁連結](http://t.cn/A6LxVUE3)[收起全文d](void%280%29;)
+![](https://gnews.org/wp-content/uploads/2020/06/WhatsApp-Image-2020-06-19-at-8.35.26-AM.jpeg)
+另據蓬佩奧國務卿的推文[Secretary Pompeo](https://twitter.com/SecPompeo)[@SecPompeo12:58 AM · Jun 19, 2020·Twitter Web App](https://twitter.com/SecPompeo)
 
-翻譯自白宮文件：[Readout from the Vice President’s and Second Lady’s Call to NASA Astronauts aboard the International Space Station](https://www.whitehouse.gov/briefings-statements/readout-vice-presidents-second-ladys-call-nasa-astronauts-aboard-international-space-station/)
+【During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries.】——
 
-*翻譯：【OnePunchD】校對：【Michelle】*
+> During my meeting with CCP Politburo Member Yang Jiechi, he recommitted to completing and honoring all of the obligations of Phase 1 of the trade deal between our two countries. [pic.twitter.com/YJmBTUmuQ9](https://t.co/YJmBTUmuQ9)
+> — Secretary Pompeo (@SecPompeo) [June 18, 2020](https://twitter.com/SecPompeo/status/1273661424297029633?ref_src=twsrc%5Etfw)
 
-*戰友之家玫瑰園小隊出品*
+限於篇幅，這裡不再對美國駐華大使館的其他媒體官方公眾號進行一一貼圖，因為這種挖掘的喜悅應該屬於每一個讀者，我們要記住這歷史性的一刻——在美國東部夏令時間2020年6月17日晚11:03分及稍後，對應的北京時間2020年6月18日上午11:03分及稍後，在美國的官方機構發佈的通告中，已將中國和中國共產黨徹底分開！
+
+接下來呢？沒了。
+
+（文章內容僅代表作者個人觀點）
 
 0

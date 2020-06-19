@@ -1,36 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國疾病預防控制中心發布冠狀病毒病例統計報告（2020年1月22日至5月30日）
-`2020-06-18 21:37 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238385/)
+## 加拿大缉获安省史上最大芬太尼案 引发人们对中共国“毒丸计划”担忧
+`2020-06-18 22:09 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/238483/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18210210/CDC_20200616_photo-1.jpg)
-**美國****2019****年冠狀病毒病例監測**
+作者：加拿大喜马拉雅农场  文锦
 
-**2020年1月22日至5月30日**
+据6月18日加拿大媒体CP24报道，上个月在伯灵顿和奥克维尔进行的一系列突击行动缴获超过12万粒芬太尼和70公斤阿片类药物，成为安省史上最大芬太尼案。
 
-Erin K. Stokes, MPH1,\*; Laura D. Zambrano, PhD1,\*; Kayla N. Anderson, PhD1; Ellyn P. Marder, DrPH1; Kala M. Raz, MPH1;  Suad El Burai Felix, MPH1; Yunfeng Tie, PhD1; Kathleen E. Fullerton, MPH1
+安省省警与多伦多警队于4月开始进行名为“标枪计划”的行动，收到安省及卑诗省有走私325毫克装芬太尼毒品的情报。5月27日，卑诗省警察截获大量芬太尼，类似梯瓦制药的Teva-Oxycocet 5mg / 325mg药片。三天后，安省省警在伯灵顿及奥克维尔进行突击搜查，缴获123,700粒假冒的325mg Oxycocet片剂，70千克散装的芬太尼粉，三台商用搅拌机，一台药丸涂布机，两台药丸印压机，数卷假Teva药瓶标签，300公斤切粉剂及2万元现金。三人被拘并将在九月出庭，面临生产、贩运管制药物及拥有犯罪所得资产等多项指控。
 
-**概要**
+![](https://lh4.googleusercontent.com/nBIt68QFTcZWD4Xg3DZcekxaUajA6I-juwBzSTqaCAXiwYK2YDkg_WCHzeJIEeesVxyuLD7CRZW-lxOngrUKzC27jFBs13Bu7ZFSKJfN5sw0EcrbLDI6S6KWIfo4YBpu35Hohxw)
 
-**關於這個話題，我們已經知道了什麼？**
+郭文贵先生在2019年8月23日直播爆料中指出芬太尼是从美国赚钱并弱化美国的国家战略计划。加拿大作为毗邻美国的民主国家，近年也饱受芬太尼的侵蚀。加拿大公共卫生署资料表明，在2016年1月至2019年12月有15393名加拿大人因阿片类药物致死。卑诗省是加拿大受影响最严重的地区，其他地区（包括安省）的致死数也有所上升。芬太尼被昵称为「中国女孩」（China girl）和「中国白」（China White），可见被广泛认为主要来自中共国。2019年5月31日保守党党魁安德鲁·希尔就指出，联邦政府需要“让中共国“为加拿大非法的芬太尼以及阿片危机”负责“。
 
-向疾控中心報告的截止2020年4月的監測數據顯示，COVID-19會導致老年人和有潛在健康狀況的人出現嚴重後果。
 
-**這份報告增加了什麼？**
-
-截至2020年5月30日，在COVID-19病例中，最常見的基礎健康狀況是心血管疾病（32％），糖尿病（30％）和慢性肺部疾病（18％）。與沒有報告基礎健康 狀況的情況比例，有報告基本情況的人住院率高6倍，死亡人數高12倍。
-
-**對公共衛生實踐有什麼影響？**
-
-這些研究結果突出表明，仍然需要採取措施解決戰略，特別是針對脆弱人群 ，以減緩COVID-19的傳播。
-
-[閱讀翻譯全文](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18213541/CDC_20200616_traditional-1.pdf)
-
-[閱讀英文原文](https://www.cdc.gov/mmwr/volumes/69/wr/mm6924e2.htm?s_cid=mm6924e2_w)
-
-*翻譯：【Ying202064】【V％】【Naomi (文花開）】*
-
-*戰友之家玫瑰園小隊出品*
 
 0

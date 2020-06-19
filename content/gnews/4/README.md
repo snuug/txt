@@ -1,41 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 上海寫字樓已步入寒冬未來會怎樣
-`2020-06-19 00:34 benjaming` [轉載自GNews](https://gnews.org/zh-hant/238712/)
+## 緻美國參議院：關於《制止國際民航相關非法行為的公約》（中英文對照）
+`2020-06-19 00:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/238688/)
 
-作者：文茗
+#### Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation
 
-數據統計一季度上海甲級寫字樓市場錄得69500平方米淨吸納量，環比去年四季度持平，但同比仍下降49%；與此同時，租金環比加速下跌1.0%，有效租金下調1.5%，至人民幣每平方米每天7.8元；其中裝免期全市平均錄得3.9個月，環比增長4.5%。
-![](https://gnews.org/wp-content/uploads/2020/06/图片1-10.png)
-例如位於北外灘濱江核心地段、與陸家嘴隔江相望的昔日全國“地王”——凱德北外灘來福士廣場看到，投入使用不久的雙子塔建築周邊仍在進行最後的施工，部分租戶的裝修工作已經開始，但現場仍顯得人氣不足。
+### **緻美國參議院的信息：關於《制止國際民航相關非法行為的公約》**
 
-來福士廣場出租給銀行、保險及金融服務佔了租賃面積的62%。北外灘沿線歷來是貨運、航運及金融企業的聚集地，該項目租金8~12元/平·天、物業費42元/平方米的費用水平，屬於江景寫字樓中極具性價比的選擇。
+FOREIGN POLICY
 
-數據顯示，上海寫字樓市場按照中央商務區、核心商務區、新興商務區劃分，截至2020年4月，核心商務區的整體空置率逼近30%。很顯然，個別項目空置率已經達到甚至超過30%。
-![](https://gnews.org/wp-content/uploads/2020/06/图片2-11.png)
-一季度上海甲級寫字樓市場無新項目入市，總存量截至季末維持在1330萬平方米。一季度租賃需求主要來自於春節前談妥的成交，且市場錄得的6.95萬平方米淨吸納量以消化現有存量為主，因此甲級寫字樓平均空置率環比下降0.5個百分點至16.9%。
+外交政策
 
-隨著國內復工復產的逐步推進，預計年內新增供應約120萬平方米，但仍然比去年末的預測量縮減35%。
+Issued on: June 18, 2020
 
-上海寫字樓市場整體空置率更甚於甲級市場。最新統計，一季度上海寫字樓整體空置率為19.2%，環比下降0.8個百分點，但這一空置率將在2020年末達到28.9%。
+發布日期：2020年6月18日
 
-一季度，上海南外灘、新客站區域新增供應了3個寫字樓項目，總計供應面積約23.1萬平方米。預計，2020年全市寫字樓供應量將達到250萬平方米，但需求量僅為40萬平方米，供求比大於6：1。
-![](https://gnews.org/wp-content/uploads/2020/06/图片3-10.png)
-一季度上海甲級寫字樓租金環比加速下跌1.0%至7.8元/平方米·天。同時，預計2020年全年上海寫字樓整體租金將下降6%，並且在一段時間內維持低位，2022年才有望恢復上漲。
+TO THE SENATE OF THE UNITED STATES:
 
-典型案例就是：某家國內知名的視頻彈幕網站，自2015年開始一直在陸家嘴商務區邊緣地段的國際航運金融大廈租用寫字樓辦公，從一層到兩層、三層，最後要租4層才夠用，一共大約1萬平方米。 2019年，楊浦區招商引資優惠政策出台，給這家企業一棟寫字樓免費辦公，自然陸家嘴就失去了這一個優質客戶。查詢公開信息可見，這家視頻網站企業的註冊地址已經更改到楊浦區。如今，這家企業曾經租過的樓層，租金又有輕微下調，從當年的6元/天/平方米下調至5.6元/天/平方米。
+With a view to receiving the advice and consent of the Senate to ratification, I transmit herewith the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation (the “Beijing Convention”), adopted by the International Civil Aviation Organization International Con-ference on Air Law (Diplomatic Conference on Aviation Security) in Beijing on September 10, 2010, and signed by the United States on that same date. I also transmit, for the information of the Senate, the report of the Department of State with respect to the Beijing Convention.
 
-出租價格下跌只是一個方面，銷售價格同樣也開始大面積下滑。首先是陸家嘴寫字樓出現一波固定資產折價拋售，例如寧波銀行上海總部在年初買入位於陸家嘴商務區的中融碧玉藍天15-20層。據國內媒體報導，這單交易是通過產權交易所達成的，單價剛剛超過10萬元/平方米，相比此前開發商售價最高12萬元/平方米，已有明顯下調。而網上查詢該項目二手均價在7.3萬元/平方米。
-![](https://gnews.org/wp-content/uploads/2020/06/图片4-8.png)
-在同一個產權交易所網站，同樣有不少陸家嘴的寫字樓小業主低價拋售寫字樓房源，中融碧玉藍天近期就有幾層高樓層面積整體掛牌轉讓；一批樓齡超過20年的寫字樓，不少小業主開始套現離場，比如招商局大廈，落成於1990年代，近期不少小業主在產權交易中心掛牌，單價6萬元/平方米左右。
+緻美國參議院：
 
-上海商業地產綜合來看：中小投資者在快速離場，接盤者只是一些大型機構，成交價格回到2017年的水平；2019年三季度以來，上海商辦用地供應量明顯回升，而隨著去年辦公用地開閘出讓，租戶的需求卻在降低，從而引發了“全新寫字樓項目入市-寫字樓存量高企-空置率上升”一系列連鎖反應。
+為法案的批准能得到參議院的建議和認可，我謹此轉附2010年9月10日於北京航空法國際會議（航空保安公約外交大會）上通過的、美國同日簽署的《制止國際民航相關非法行為的公約》（《北京公約》），以及國務院有關《北京公約》的報告，供參議院參考。
 
-最關鍵的問題就是從2018年下半年開始至今，上海及周邊的杭州、南京等大城市商務寫字樓，空置率從10%升至20%甚至更多。
+The Beijing Convention is an important component of international efforts to prevent and punish both terrorism targeting civil aviation and the proliferation of weapons of mass destruction. As between parties to the Beijing Convention, it replaces and supersedes the Convention for the Suppression of Unlawful Acts Against the Safety of Civil Aviation, done at Montreal, September 23, 1971, and its supplementary protocol, the Protocol for the Suppression of Unlawful Acts of Vio-lence at Airports Serving International Civil Aviation, done at Montreal, February 24, 1988. It sig- nificantly strengthens the existing international counterterrorism legal framework and facilitates the prosecution and extradition of those who seek to commit acts of terror, including acts such as those committed on September 11, 2001.
 
-綜上所述，很清楚的看到長三角地區以及全國，受到貿易戰和CCP病毒的影響是很直接的。商業地產的下跌，已經很清晰的詮釋了營商環境惡化的直接後果。在不久的將來，中美脫鉤全面展開的那一刻，今天的上海商業地產也許是相對未來最好的一天。
+世界各國致力於預防懲治針對民航的恐怖主義行為及大規模殺傷性武器的擴散，《北京公約》是一個重要組成部分。在《北京公約》締約國之間，它取代了1971年9月23日在蒙特利爾通過的《制止危害民航安全非法行為的公約》及1988年2月24日在蒙特利爾通過的補充議定《制止國際民用機場非法暴力行為的議定書》。它有力強化了現有的國際反恐法律框架，有助於起訴和引渡企圖實施恐怖主義行為者，包括像2001年9月11日這樣的事件。
 
-（文章僅代表作者觀點）
+The Beijing Convention establishes the first international treaty framework that criminalizes certain terrorist acts, including using an aircraft in a terrorist activity and certain acts relating to the transport of weapons of mass destruction or related materials by aircraft. The Beijing Convention requires States Parties to criminalize specified acts under their domestic laws and to cooperate to prevent and investigate suspected crimes under the Beijing Convention. It includes an “extradite or prosecute” obligation with respect to persons accused of committing, attempting to commit, conspiring to commit, or aiding in the commission of such offenses.
+
+《北京公約》建立了首個將某些恐怖行為定為犯罪的國際條約框架，包括在恐怖行動中使用飛機、以及用飛機運輸大規模殺傷性武器或相關物資的行為。 《北京公約》要求締約國根據其國內法律將指定的行為定為犯罪，並根據《北京公約》合作預防和調查涉嫌犯罪。其中包括對被控犯有、企圖犯有、陰謀犯有或協助犯有此類罪行的人的 “引渡或起訴 “義務。
+
+Some changes to United States law will be needed for the United States to implement provisions of the Beijing Convention obligating the United States to criminalize certain offenses, make those offenses punishable by appropriate penalties, and authorize the assertion of jurisdiction over such offenses. Proposed legislation is being separately transmitted by my Administration to the Con-gress.
+
+美國需要對美國法律進行一些修改，以執行《北京公約》的規定，即美國有義務將某些罪行定為刑事犯罪，使這些罪行受到適當的懲罰，並授權對這些罪行行使管轄權。我國政府正在將擬議的立法單獨轉交國會。
+
+I recommend that the Senate give early and favorable consideration to the Beijing Convention, subject to a reservation and certain understandings that are described in the accompanying report of the Department of State.
+
+我建議參議院參考附件國務院報告的保留意見和某些詮釋，儘早地積極考量《北京公約》。
+
+DONALD J. TRUMP
+
+唐納德·川普
+
+THE WHITE HOUSE,
+
+白宮
+
+June 18, 2020.
+
+2020年6月18日
+
+閱讀原文：[Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation](https://www.whitehouse.gov/briefings-statements/message-senate-united-states-convention-suppression-unlawful-acts-relating-international-civil-aviation/)
+
+*翻譯：【致敬香港！ 】校對：【Ying202064】*
+
+*戰友之家玫瑰小隊出品*
 
 0
