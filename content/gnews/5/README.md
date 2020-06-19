@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-19 01:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/238918/)
+## 理想之花&#8211;新中國聯邦
+`2020-06-19 06:36 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/239175/)
 
-戰友之家圖文摘要組及小語種組
+天下苦共久也，自由女神像前的一聲宣言，我們全球反共大業進入一個快速的軌道，共產黨的喪鐘已經敲響，墳墓已經挖好，自由民主的曙光正在冉冉升起
 
-[English\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0617_CCP_Virus_Updates.pdf)
+這是一個特殊的日子，我們的新中國聯邦成立了！這一天的到來讓我們喜極而泣，回想31年的那個日子，在北京成千上萬的仁人誌士為此獻出了寶貴的生命。作為時代的先鋒，一群優秀的中華兒女–天之驕子毅然走向街頭，為命請命！懇請共產黨當政者開放社會，施行民主，科學管理，可得到的回答卻是軍隊冰冷的槍口，嗚呼哀哉！一個國家竟動用軍隊對付手無寸鐵的學生，何況他們的決策者中，好多人當年也是年輕的學生，也有同樣的經歷，但不曾有這樣的待遇。槍響之後，世人皆驚，縱觀古今中外，沒有一個政府敢做這樣的事情。在這之後心灰意冷者有之，掛印而去者有之，隱忍待發者有之，但更多是愛國逃亡者，從此共產黨政權在民眾中已經不復存在。
 
-[French\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0617_CCP_Virus_Updates.pdf)
+中國共產黨，本是蘇聯輸出革命的產物。從建黨到奪取政權都離不開蘇聯共產黨的巨大影子，更有甚者，所謂的中國共產黨第六次全國代表就是在國內無法立足的時候，蘇聯共產黨一手包辦，直接在莫斯科舉行。眾所周知，8年抗戰時期，中華大地有4個政權並存的現象：第1個，代表正統的國民黨中央政府；第2個，蘇聯扶持的延安政權；第3個，日本扶持的南京汪偽政權；第4個，日本在東北扶持的偽滿政權。抗戰前的1936年，共產黨利用秘密黨員，發動西安事變，徹底扭轉了生存危機。在8年抗戰中，假借國共合作抗戰，施行：1分抗日，2分應付，7分發展。同時秘密勾結日本特務，暗中破壞抗戰，藉以壯大自己。
 
-[Japanese\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0617_CCP_Virus_Updates.pdf)
+1945年抗戰勝利後，藉著8年抗戰中發展的250多萬兵力（部隊和民兵）,不顧戰後的百姓的生靈圖炭和百廢待興，積極準備和發動內戰。利用蘇聯紅軍在東北的優勢，積極擴展地盤和接受武裝，最後奪取了東北地區。又以東北地區人力，物力加上蘇聯提供的武器裝備最終奪取了全國政權。
 
-[Korean\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0617_CCP_Virus_Updates.pdf)
+1949年奪取政權後，為了鞏固統治，加入了蘇聯策劃的朝鮮戰爭，給中國帶來了極大的損失，打開了70年民族痛苦的序幕。
 
-[Spanish\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0617_CCP_Virus_Updates.pdf)
+1949-1976年，共產黨在毛澤東統治時期發動各種政治運動，屠殺清洗各階層的不同意見者，造成經濟疲憊，民不聊生，餓死幾千萬民眾。
 
-[German\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0617_CCP_Virus_Updates.pdf)
+毛澤東的繼任者華國鋒，採取了一些緩和的政策，國家和民眾生活稍有改善。華國鋒後被共產黨內部強硬的鄧小平擊跨，鄧小平對經濟進行一系列改革，但這些改革是在不動搖共產黨獨裁政治體制的情況下進行，民眾生活有了一定的改善，但引發了更多的社會問題，1989年的6月4號就此永遠定格在歷史上，先賢們用鮮血澆注了理想之花。
 
-[Russian\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0617_CCP_Virus_Updates.pdf)
+隨著畸形的發展，共產黨沒有順應時代和民眾的需求，頑固的堅守獨裁的一面，把億萬百姓變成現代奴隸，尤其社會的中堅力量–年輕人，被現實中的多座大山壓迫，無法抬頭。階層固化，社會失去了固有的活力。社會依然在中國歷史的周期律內循環，而今已經行將就木。
+
+億萬萬人齊下淚，天涯何處是神州！
+
+我們的理想之花-新中國聯邦已經升起，海內外華人攜手共建美好聯邦！不負時代！
 
 0
