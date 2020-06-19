@@ -1,38 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統致眾議院議長和參議院主席關於北朝鮮的信件（中英文對照）
-`2020-06-18 16:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/238154/)
+## 六四慘劇會否在香港重演？
+`2020-06-18 23:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/238552/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/18162537/WH_20200617_Letter_NorthKorea_photo169.png)From Google Maps
-**Text of a Letter from the President to the Speaker of the House of Representatives and the President of the Senate**
+![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-84.png)
+捷克媒體《評論彙編》Project Syndicate 16日發表評論文章稱，聯合國不能再放任中共繼續胡作非為，任其在侵犯人權的黑道上越走越遠。香港曾經是亞洲最自由、最開放的城市之一，如今卻因《國安法》的頒布籠罩在黑暗和恐怖之中。該法不僅剝奪了香港人民的自由，還公然違反了《中英聯合聲明》條約。
 
-**總統致眾議院議長和參議院主席的信件**
+早在2014年，香港人民就已抗議政府未能兌現《基本法》中的承諾，例如通過普選選出香港行政長官。在隨後的幾年中，出售反共書籍的一些書商們被綁架到了中共大陸。民主派的立法者和候選人受到了騷擾，進而喪失了選舉資格。同時，外國記者和人權倡導者們也被逐出香港。為英國政府工作的香港公民鄭西蒙（Simon Cheng）在前往中共國大陸後被拘留15天，還遭受了酷刑，直到被迫承認賣淫。
 
-Dear Madam Speaker: (Dear Mr. President:)
+香港市民為爭取自由付出了沉重的代價。在2014年的示威活動中，抗議者用雨傘抵擋催淚瓦斯的襲擊，“雨傘革命”因此得名。在去年爆發的“反送中”運動中，香港黑警對示威者採用了更為極端、暴力的鎮壓手段。儘管大部分示威活動是和平的，但黑警仍使用了各種包括警棍和實彈在內的武器。今年1月，兩名聯合國特別報告員發表了一份報告，揭露黑警非法使用催淚瓦斯、胡椒噴霧、胡椒丸等化學武器。
 
-尊敬的議長女士：(尊敬的主席先生：)
+今年2月，四名聯合國人權專家寫信給中共政府，詳細聲明了在示威期間香港醫護人員被騷擾、恐嚇和拘留的情況。該報告稱，有大量醫護人員在提供了身份證明後仍因“參與暴亂”等莫須有的罪名被黑警逮捕、拘留甚至起訴。該報告還強調了黑警濫用醫療運輸設施和機密信息的亂象。香港當局以及他們背後的中共卻一直保持沉默。他們在今年4月還逮捕了15名香港最受尊敬的民主派領導人，其中包括此運動的發起者———82歲的大律師馬丁·李。 5月下旬，中共全國人大以2878:1的投票結果通過了《國安法》。
 
-Section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)) provides for the automatic termination of a national emergency unless, within 90 days before the anniversary date of its declaration, the President publishes in the Federal Register and transmits to the Congress a notice stating that the emergency is to continue in effect beyond the anniversary date.  In accordance with this provision, I have sent to the Federal Register for publication the enclosed notice stating that the national emergency with respect to North Korea that was declared in Executive Order 13466 of June 26, 2008, expanded in scope in Executive Order 13551 of August 30, 2010, addressed further in Executive Order 13570 of April 18, 2011, further expanded in scope in Executive Order 13687 of January 2, 2015, and under which additional steps were taken in Executive Order 13722 of March 15, 2016, and Executive Order 13810 of September 20, 2017, is to continue in effect beyond June 26, 2020.
+儘管《國安法》的細節尚未公佈，但我們已知其中會包含禁止“顛覆”、“分裂”或“與外國政治力量勾結”等條款。這些模棱兩可的定義更會讓中共肆意抓捕和打擊任何對其提出異議的人，比如向外國議員、人權團體或新聞工作者透露香港實況的人員會被定罪。除此之外，該法律還將允許中共政權在香港設立“安全機構”。
 
-《國家緊急狀態法案》（50 USC 1622（d））第202（d）條說明全國緊急狀態將自動解除，除非在本條令周年日的前的90天內，總統在《聯邦紀事》上發布並告知國會並宣布緊急狀態將持續到該週年日之後。依照本規定，我已將隨附的通知發送至《聯邦記事》，即針對朝鮮于2008年6月26日宣布進入國家緊急狀態的第13466號行政命令，在2010年8月30日以13551號行政令擴大了其範圍，並在2010年10月30日的行政令中進一步擴大，而後在2011年4月18日的13570號行政令中再次加強，並在2015年1月2日發布的的13687號行政命令中再次擴大範圍，並在2016年3月15日發布的13722號行政令，23號發布的行政令以及2017年9月20日的13810號行政令中採取了額外的措施，基於這些文件，我們對北朝鮮的製裁將於2020年6月26日後繼續生效。
+香港大律師公會和英格蘭及威爾斯大律師公會警告說，《國安法》將嚴重損害香港人民的基本權利，比如言論、集會、結社、或信仰的自由。從前總理到著名法律和人權專家在內的將近900位國際領導人在一份聯合聲明中指出，此法破壞了香港的自治與法制，公然違背了《中英聯合聲明》的條款。
 
-The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula; the actions and policies of the Government of North Korea that destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region, including its pursuit of nuclear and missile programs; and other provocative, destabilizing, and repressive actions and policies of the Government of North Korea, continue to constitute an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, I have determined that it is necessary to continue the national emergency declared in Executive Order 13466 with respect to North Korea.
+香港最後一位英國總督，《中英聯合聲明》的主要參與者彭定康（Chris Patten）說，捍衛自由民主的人士不能對香港問題袖手旁觀。聯合國可以任命一位人權特使，或在香港設立一位特別報告員。雖然這些舉動不能立刻扭轉局勢，但每個人都可以為香港人提供某種形式的支持或保護。
 
-朝鮮半島上存在可用於武器的核燃料激增的風險；北朝鮮政府的行動和政策破壞了朝鮮半島的穩定並危及到美國在該地區的武裝力量、盟友和貿易夥伴。北朝鮮堅持的核計劃和導彈計劃，以及其它挑釁、破壞穩定和壓制性的行動和政策，對美國的國家安全、外交政策和經濟構成不可忽視的持續威脅。為此，我認為對繼續持續全國緊急狀態並執行以應對北朝鮮的第13466號行政令並是非常必要。
+前聯合國特別報告員李亮喜（Yanghee Lee）指出這兩種方案各有優劣。通過人權理事會任命的特別報告員側重於揭露侵犯人權的行為，並可以通過信息的透明來幫助實現一種問責制。特使通常對人權的話語權較少，但能夠提出政治或外交方面的解決方案。儘管中共會提出抗議，聯合國秘書長安東尼奧·古特雷斯(Antonio Guterres)也可以主動任命一名特使。設立人權特使的想法得到了包括彭定康在內的眾多官員的支持。澳大利亞、加拿大、新西蘭和英國的外交事務委員會主席也已寫信呼籲古特雷斯立刻行動。因中共當局與香港公民之間的衝突在持續升級，國際社會必須迅速採取措施。在六四發生31年後，香港正面臨發生天安門慘案2.0的危機。聯合國不應對此視而不見，更不能等到香港血流成河後才去收拾殘局。
 
-Sincerely,
+[原文鏈接](https://www.project-syndicate.org/commentary/hong-kong-security-law-un-special-envoy-by-yanghee-lee-2020-06)
 
-此致，
-
-DONALD J. TRUMP
-
-唐納德·J·川普
-
-白宮原文鏈接：[https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/](https://www.whitehouse.gov/briefings-statements/text-letter-president-speaker-house-representatives-president-senate-81/)
-
-*翻譯：【奔騰的長江】校對：【Olivia9802】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：Mauerfall
+校對整理：文投
 
 0
