@@ -1,23 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】15/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-19 01:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/238918/)
+## 揭露中共國 冒名頂替 全權交易的冰山一角！
+`2020-06-19 06:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/239216/)
 
-戰友之家圖文摘要組及小語種組
+**作者：滅共日記**
 
-[English\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0617_CCP_Virus_Updates.pdf)
+生在中共國，如果你出生貧寒，祖祖輩輩都是農民，那麽努力讀書，考上大學，幾乎是改變命運的唯一機會。而你寒窗苦讀十幾年，高考沒有收到錄取通知書。只能成爲一個打工妹。進工廠，做流水線，你在社會底層掙紮十幾年，受過太多罪，吃了沒有文憑的虧，此時你還沒放棄上進，決心重新一頭紮進書海。卻發現十六年前自己的高考分數遠遠超出報考學校分數線，而沒有收到錄取通知書，是因爲有另一個差生冒名頂替了你，你會不會情緒不穩定，甚至像歌詞唱的那樣：甚至懷疑人生？我想，大部分人都會吧。山東聊城的陳春秀，正在經曆這樣魔幻的人生。事情曝光後，在社會上引起了軒然大波，高考的重要性不言而喻，關系到千千萬萬年輕人的前程，甚至能改變他們與家庭一生的命運。然爾，還沒等事件平息，山東煙台又曝光出了一起冒名頂替案。而此案中的頂替者其心思之細膩，著實令人心寒。
 
-[French\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0617_CCP_Virus_Updates.pdf)
+![](https://gnews.org/wp-content/uploads/2020/06/1-297.jpg)
 
-[Japanese\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0617_CCP_Virus_Updates.pdf)
+1996年，山東聊城的王麗麗報考了聊城農業學校，同陳春秀一樣，她也沒有收到錄取通知書，也認爲自己“落榜”了。直到2016年，一位自稱“王麗”的女子與其弟弟先後聯系了王麗麗，並詢問王麗是否報考過聊城農業學校，得到肯定答複後，對方主動承認，是她于1996年冒名頂替王麗麗的名額上了學。而這還不算完，“王麗”還要求王麗麗配合她工作單位調查，將她的出生日期以及父母姓名等家庭詳細地址都索要走了。經過王麗麗反應，有關部門調查後確認，聊城東昌府區柳園街道辦事處的工作人員王某確有頂替他人入學事實，依規給予免職處分。雖然冒名頂替者最終受到了應有的處罰，但王麗失去的大學教育的機會，是無論如何也補償不了的。
+![](https://gnews.org/wp-content/uploads/2020/06/2-145.jpg)
+爲什麽這樣的事情會在中共國頻頻發生，而且大家有沒有發現，這些被頂替上大學的當事人，都是農村的孩子，沒有一例被冒名頂替上大學的當事人是城市的孩子。有人說因爲那個年代互聯網還沒有普及，作爲農村學生，農村學生的家長，都沒有足夠的社會常識和知識，在高考發榜當時，去查看高考情況，也讓那些無良的人有空子可鑽了。可是我覺得被冒名的總是個體，無論當年信息多麽閉塞，冒名的不法行爲不可能一個人完成，不可能像官方解釋的那樣是一個環節的疏漏。要知道一個人冒名上了大學，這中間有多少環節， 大學畢業後開始工作，每天用假身份，工作、出行、生活，難道在這過程中真的沒有任何一個環節發現問題嗎？各個監管部門難道真的沒有責任嗎？侵害行爲這麽多年來，發生了這麽多，有幾個人站出來了？這種權錢交易在這20年裏究竟有過多少次？有多少人因此進了體制內？又有多少人因爲沒有從政而成爲漏網之魚？讓人無從查起？
+![](https://gnews.org/wp-content/uploads/2020/06/3-88.jpg)
+這些事情也只不過揭開了曾經中共的高考舞弊的冰山一角而已。中共國的老百姓當遇到不公時，經常說的一句話就是世上本來就沒有絕對的公平正義可言，但對于中共高考卻說高考是世界上最公平公正的事情，是一次最有可能改變一個人命運的機會，雖然不可能改天換地一步登天，但至少給求知者一個更佳的人生選擇。但最近爆出的這些冒名頂替上大學的事情不免讓人寒心。在這個國家即便追求相對的公平正義，有時候對于沒錢沒勢的窮人來說也是一件奢侈的事情。因爲在通往公平正義的道路上有太多的阻礙，濫用權力的違法者，暗箱操作的公職人員，她們早已讓中共所謂的法律變成了一紙空文，讓公平正義遙不可及，在強權的時代，權力沒有了有效的監督便可以只手遮天，這也導致了生活在這片土地的老百姓幾乎走向了絕望！
 
-[Korean\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0617_CCP_Virus_Updates.pdf)
+GNEWS之前文章：
+再次上演板橋水庫潰壩事件！[https://gnews.org/zh-hans/237620/](https://gnews.org/zh-hans/237620/)
+揭露連花清瘟騙局 [https://gnews.org/zh-hans/236955/](https://gnews.org/zh-hans/236955/)
+中共特色【截訪公司】 [https://gnews.org/zh-hans/236907/](https://gnews.org/zh-hans/236907/)
 
-[Spanish\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0617_CCP_Virus_Updates.pdf)
-
-[German\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0617_CCP_Virus_Updates.pdf)
-
-[Russian\_0617\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0617_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0617_CCP_Virus_Updates.pdf)
+（文章內容僅代表作者觀點）
 
 0

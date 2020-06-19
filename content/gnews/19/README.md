@@ -1,61 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 緻美國參議院：關於《制止國際民航相關非法行為的公約》（中英文對照）
-`2020-06-19 00:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/238688/)
+## 理想之花&#8211;新中國聯邦
+`2020-06-19 06:36 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/239175/)
 
-#### Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation
+天下苦共久也，自由女神像前的一聲宣言，我們全球反共大業進入一個快速的軌道，共產黨的喪鐘已經敲響，墳墓已經挖好，自由民主的曙光正在冉冉升起
 
-### **緻美國參議院的信息：關於《制止國際民航相關非法行為的公約》**
+這是一個特殊的日子，我們的新中國聯邦成立了！這一天的到來讓我們喜極而泣，回想31年的那個日子，在北京成千上萬的仁人誌士為此獻出了寶貴的生命。作為時代的先鋒，一群優秀的中華兒女–天之驕子毅然走向街頭，為命請命！懇請共產黨當政者開放社會，施行民主，科學管理，可得到的回答卻是軍隊冰冷的槍口，嗚呼哀哉！一個國家竟動用軍隊對付手無寸鐵的學生，何況他們的決策者中，好多人當年也是年輕的學生，也有同樣的經歷，但不曾有這樣的待遇。槍響之後，世人皆驚，縱觀古今中外，沒有一個政府敢做這樣的事情。在這之後心灰意冷者有之，掛印而去者有之，隱忍待發者有之，但更多是愛國逃亡者，從此共產黨政權在民眾中已經不復存在。
 
-FOREIGN POLICY
+中國共產黨，本是蘇聯輸出革命的產物。從建黨到奪取政權都離不開蘇聯共產黨的巨大影子，更有甚者，所謂的中國共產黨第六次全國代表就是在國內無法立足的時候，蘇聯共產黨一手包辦，直接在莫斯科舉行。眾所周知，8年抗戰時期，中華大地有4個政權並存的現象：第1個，代表正統的國民黨中央政府；第2個，蘇聯扶持的延安政權；第3個，日本扶持的南京汪偽政權；第4個，日本在東北扶持的偽滿政權。抗戰前的1936年，共產黨利用秘密黨員，發動西安事變，徹底扭轉了生存危機。在8年抗戰中，假借國共合作抗戰，施行：1分抗日，2分應付，7分發展。同時秘密勾結日本特務，暗中破壞抗戰，藉以壯大自己。
 
-外交政策
+1945年抗戰勝利後，藉著8年抗戰中發展的250多萬兵力（部隊和民兵）,不顧戰後的百姓的生靈圖炭和百廢待興，積極準備和發動內戰。利用蘇聯紅軍在東北的優勢，積極擴展地盤和接受武裝，最後奪取了東北地區。又以東北地區人力，物力加上蘇聯提供的武器裝備最終奪取了全國政權。
 
-Issued on: June 18, 2020
+1949年奪取政權後，為了鞏固統治，加入了蘇聯策劃的朝鮮戰爭，給中國帶來了極大的損失，打開了70年民族痛苦的序幕。
 
-發布日期：2020年6月18日
+1949-1976年，共產黨在毛澤東統治時期發動各種政治運動，屠殺清洗各階層的不同意見者，造成經濟疲憊，民不聊生，餓死幾千萬民眾。
 
-TO THE SENATE OF THE UNITED STATES:
+毛澤東的繼任者華國鋒，採取了一些緩和的政策，國家和民眾生活稍有改善。華國鋒後被共產黨內部強硬的鄧小平擊跨，鄧小平對經濟進行一系列改革，但這些改革是在不動搖共產黨獨裁政治體制的情況下進行，民眾生活有了一定的改善，但引發了更多的社會問題，1989年的6月4號就此永遠定格在歷史上，先賢們用鮮血澆注了理想之花。
 
-With a view to receiving the advice and consent of the Senate to ratification, I transmit herewith the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation (the “Beijing Convention”), adopted by the International Civil Aviation Organization International Con-ference on Air Law (Diplomatic Conference on Aviation Security) in Beijing on September 10, 2010, and signed by the United States on that same date. I also transmit, for the information of the Senate, the report of the Department of State with respect to the Beijing Convention.
+隨著畸形的發展，共產黨沒有順應時代和民眾的需求，頑固的堅守獨裁的一面，把億萬百姓變成現代奴隸，尤其社會的中堅力量–年輕人，被現實中的多座大山壓迫，無法抬頭。階層固化，社會失去了固有的活力。社會依然在中國歷史的周期律內循環，而今已經行將就木。
 
-緻美國參議院：
+億萬萬人齊下淚，天涯何處是神州！
 
-為法案的批准能得到參議院的建議和認可，我謹此轉附2010年9月10日於北京航空法國際會議（航空保安公約外交大會）上通過的、美國同日簽署的《制止國際民航相關非法行為的公約》（《北京公約》），以及國務院有關《北京公約》的報告，供參議院參考。
-
-The Beijing Convention is an important component of international efforts to prevent and punish both terrorism targeting civil aviation and the proliferation of weapons of mass destruction. As between parties to the Beijing Convention, it replaces and supersedes the Convention for the Suppression of Unlawful Acts Against the Safety of Civil Aviation, done at Montreal, September 23, 1971, and its supplementary protocol, the Protocol for the Suppression of Unlawful Acts of Vio-lence at Airports Serving International Civil Aviation, done at Montreal, February 24, 1988. It sig- nificantly strengthens the existing international counterterrorism legal framework and facilitates the prosecution and extradition of those who seek to commit acts of terror, including acts such as those committed on September 11, 2001.
-
-世界各國致力於預防懲治針對民航的恐怖主義行為及大規模殺傷性武器的擴散，《北京公約》是一個重要組成部分。在《北京公約》締約國之間，它取代了1971年9月23日在蒙特利爾通過的《制止危害民航安全非法行為的公約》及1988年2月24日在蒙特利爾通過的補充議定《制止國際民用機場非法暴力行為的議定書》。它有力強化了現有的國際反恐法律框架，有助於起訴和引渡企圖實施恐怖主義行為者，包括像2001年9月11日這樣的事件。
-
-The Beijing Convention establishes the first international treaty framework that criminalizes certain terrorist acts, including using an aircraft in a terrorist activity and certain acts relating to the transport of weapons of mass destruction or related materials by aircraft. The Beijing Convention requires States Parties to criminalize specified acts under their domestic laws and to cooperate to prevent and investigate suspected crimes under the Beijing Convention. It includes an “extradite or prosecute” obligation with respect to persons accused of committing, attempting to commit, conspiring to commit, or aiding in the commission of such offenses.
-
-《北京公約》建立了首個將某些恐怖行為定為犯罪的國際條約框架，包括在恐怖行動中使用飛機、以及用飛機運輸大規模殺傷性武器或相關物資的行為。 《北京公約》要求締約國根據其國內法律將指定的行為定為犯罪，並根據《北京公約》合作預防和調查涉嫌犯罪。其中包括對被控犯有、企圖犯有、陰謀犯有或協助犯有此類罪行的人的 “引渡或起訴 “義務。
-
-Some changes to United States law will be needed for the United States to implement provisions of the Beijing Convention obligating the United States to criminalize certain offenses, make those offenses punishable by appropriate penalties, and authorize the assertion of jurisdiction over such offenses. Proposed legislation is being separately transmitted by my Administration to the Con-gress.
-
-美國需要對美國法律進行一些修改，以執行《北京公約》的規定，即美國有義務將某些罪行定為刑事犯罪，使這些罪行受到適當的懲罰，並授權對這些罪行行使管轄權。我國政府正在將擬議的立法單獨轉交國會。
-
-I recommend that the Senate give early and favorable consideration to the Beijing Convention, subject to a reservation and certain understandings that are described in the accompanying report of the Department of State.
-
-我建議參議院參考附件國務院報告的保留意見和某些詮釋，儘早地積極考量《北京公約》。
-
-DONALD J. TRUMP
-
-唐納德·川普
-
-THE WHITE HOUSE,
-
-白宮
-
-June 18, 2020.
-
-2020年6月18日
-
-閱讀原文：[Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation](https://www.whitehouse.gov/briefings-statements/message-senate-united-states-convention-suppression-unlawful-acts-relating-international-civil-aviation/)
-
-*翻譯：【致敬香港！ 】校對：【Ying202064】*
-
-*戰友之家玫瑰小隊出品*
+我們的理想之花-新中國聯邦已經升起，海內外華人攜手共建美好聯邦！不負時代！
 
 0
