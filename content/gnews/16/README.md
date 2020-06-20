@@ -1,67 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統關於繼續實施朝鮮緊急狀態的通知（中英文對照）
-`2020-06-19 12:28 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/239539/)
+## 福克斯：冠狀病毒加快了美國供應商在中共國的大撤退
+`2020-06-19 17:53 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/239618/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/04210802/White-House_16_9.png)White House 16:9
-**Text of a Notice on the Continuation of the National Emergency With Respect to North Korea**
+*作者：By Jonathan Garber*
 
-**關於繼續實施朝鮮緊急狀態的通知**
+*消息來源：FOXBusiness 《福克斯商業》*
 
-[FOREIGN POLICY](https://www.whitehouse.gov/issues/foreign-policy/)
+*翻譯/簡評：Victory*
 
-外交政策
+*PR：Julia Win*
 
-Issued on: June 17, 2020
+**簡評：**
 
-頒佈於 2020年6月17日
+川普總統在競選時就向美國民眾承諾讓製造業回歸，為美國人拿回工作崗位。而在實際推行相關政策時，無疑遇到巨大阻力。如今中共用病毒向全世界開戰，反倒是幫川普總統掃清了很多障礙。去年開始美國政府就逐步與澳洲、印度、日本、新西蘭、韓國及越南商議合作，徹底將中共踢出圈外。
 
-On June 26, 2008, by Executive Order 13466, the President declared a national emergency with respect to North Korea pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701-1706) to deal with the unusual and extraordinary threat to the national security and foreign policy of the United States constituted by the existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula.  The President also found that it was necessary to maintain certain restrictions with respect to North Korea that would otherwise have been lifted pursuant to Proclamation 8271 of June 26, 2008, which terminated the exercise of authorities under the Trading With the Enemy Act (50 U.S.C. App. 1-44) with respect to North Korea.
+現在不單是美歐企業，連中共國本土的企業都想著逃走。這個撤離過程在可見的未來是不可逆的。資金和企業撤離將進一步擊垮中共虛假經濟，加速中共惡魔政權的垮塌。
 
-2008年6月26日，總統根據《國際緊急經濟權力法》(50 USC1701-1706)，通過第13466號行政命令宣布朝鮮進入國家緊急狀態，以應對朝鮮半島可用於武器的裂變材料的存在和擴散風險對美國國家安全和外交政策構成的不尋常和特殊威脅。總統還認為，有必要維持對朝鮮的某些限制，否則將根據2008年6月26日的第8271號公告取消這些限制，該公告終止了根據《對敵貿易法》(50 USCApp.1- 44)對朝鮮行使權力。
+覆巢之下， 豈有完卵。短期內無法避免大量中共國普通勞動者要遭此波及失去工作，這可能會有較長一段時間。真正屬於我們中華民族的機會是新中國聯邦。在有法制體系，民主制度，開放思想的新中國聯邦才可能與全世界真誠溝通，恢復被邪魔中共破壞殆盡的信任。相信以中國人的勤奮和智慧，新中國聯邦會真正和世界文明國家互惠合作，走向繁榮。
 
-On August 30, 2010, the President signed Executive Order 13551, which expanded the scope of the national emergency declared in Executive Order 13466 to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States posed by the continued actions and policies of the Government of North Korea, manifested by its unprovoked attack that resulted in the sinking of the Republic of Korea Navy ship Cheonan and the deaths of 46 sailors in March 2010; its announced test of a nuclear device and its missile launches in 2009; its actions in violation of United Nations Security Council Resolutions 1718 and 1874, including the procurement of luxury goods; and its illicit and deceptive activities in international markets through which it obtains financial and other support, including money laundering, the counterfeiting of goods and currency, bulk cash smuggling, and narcotics trafficking, which destabilize the Korean Peninsula and imperil United States Armed Forces, allies, and trading partners in the region.
+## 福克斯：冠狀病毒加快了美國供應商在中共國的大撤退
 
-2010年8月30日，總統簽署了13551號行政命令，擴大了13466號行政命令中宣布的國家緊急狀態的範圍，以應對由朝鮮政府持續採取的行動和政策所構成的對國家安全，外交政策和經濟造成的異常狀況與特殊威脅。朝鮮政府的表現為2010年3月無端攻擊導致大韓民國海軍“天安號”艦沉沒，46名水手死亡。 2009年宣布對核裝置進行測試發射導彈；其違反聯合國安全理事會第1718和1874號決議的行為，包括購買奢侈品；以及其在國際市場上的非法和欺騙性活動，從而獲得金融和其他支持，包括洗錢、製造假冒偽劣商品和假幣，大量現金走私和毒品販賣，這些活動破壞了朝鮮半島的穩定並危及美國武裝部隊，盟國，以及該地區的貿易夥伴。
+[!\[\](https://spark.adobe.com/page/77qHdebGiYngL/images/47d3ec70-9325-4a3c-a08e-40597dc32afa.jpg?asset_id=ce06ad39-b57d-40b7-9d7f-26ed843e2962&amp;img_etag=%22af99641c344ee8fc0936e5db47360761%22&amp;size=1024)](https://spark.adobe.com/page/77qHdebGiYngL/images/47d3ec70-9325-4a3c-a08e-40597dc32afa.jpg?asset_id=ce06ad39-b57d-40b7-9d7f-26ed843e2962&amp;img_etag=%22af99641c344ee8fc0936e5db47360761%22&amp;size=1024)
 
-On April 18, 2011, the President signed Executive Order 13570 to take additional steps to address the national emergency declared in Executive Order 13466 and expanded in Executive Order 13551 that would ensure the implementation of the import restrictions contained in United Nations Security Council Resolutions 1718 and 1874 and complement the import restrictions provided for in the Arms Export Control Act (22 U.S.C. 2751et seq.).
+美國經濟、能源及環境助理國務卿Keith Krach（基思·克拉奇）討論了他為確保半導體供應鏈安全的努力，把製造業帶回美國。
 
-2011年4月18日，總統簽署了13570號行政命令，以採取進一步措施以響應第13466號宣布的國家緊急狀態法的行政令，並擴大了第13551號行政令範圍，以確保執行聯合國安理會第1718號和1987號決議所載的進口限制，並補充《武器出口管制法》(《美國法典》第22編第2751條及以後各編)規定的進口限制。
+一項新的調查顯示，COVID-19疫情為企業將供應鏈遷出中國的計劃注入了新的活力。
 
-On January 2, 2015, the President signed Executive Order 13687 to take further steps with respect to the national emergency declared in Executive Order 13466, as expanded in Executive Order 13551, and addressed further in Executive Order 13570, to address the threat to the national security, foreign policy, and economy of the United States constituted by the provocative, destabilizing, and repressive actions and policies of the Government of North Korea, including its destructive, coercive cyber-related actions during November and December 2014, actions in violation of United Nations Security Council Resolutions 1718, 1874, 2087, and 2094, and commission of serious human rights abuses.
+[!\[\](https://spark.adobe.com/page/77qHdebGiYngL/images/7d8d3cb1-edcf-4185-8809-a1dd184e4f18.jpg?asset_id=2cb29235-57c7-43eb-92cc-579bc9110a41&amp;img_etag=%228cfc1e6c410124d525587741187d0988%22&amp;size=1024)](https://spark.adobe.com/page/77qHdebGiYngL/images/7d8d3cb1-edcf-4185-8809-a1dd184e4f18.jpg?asset_id=2cb29235-57c7-43eb-92cc-579bc9110a41&amp;img_etag=%228cfc1e6c410124d525587741187d0988%22&amp;size=1024)
 
-2015年1月2日，總統簽署了第13687號行政命令，就第13466號行政命令宣布的、經第13551號行政命令擴大的國家緊急狀態採取進一步措施，並在第13570號行政命令中進一步處理，應對北朝鮮政府的挑釁、破壞穩定和鎮壓行動和政策對美國國家安全、外交政策和經濟構成的威脅，包括其在2014年11月和12月期間採取的與網絡相關的破壞性、脅迫性行動，違反聯合國安全理事會第1718、1874、2087和2094號決議的行動，以及嚴重侵犯人權的行為。
+據一項新調查顯示，新冠疫情的爆發進一步推動了企業供應鏈移出中共國的計劃。瑞銀的一項調研顯示，76%在中共國設有製造中心的公司首席財長表示，疫情爆發堅定了他們的決心將至少一部分生產轉到其他國家。參與調研的超過450位高管中有34%代表的公司在中共國有製造業務
 
-On March 15, 2016, the President signed Executive Order 13722 to take additional steps with respect to the national emergency declared in Executive Order 13466, as modified in scope and relied upon for additional steps in subsequent Executive Orders, to address the Government of North Korea’s continuing pursuit of its nuclear and missile programs, as evidenced by its February 7, 2016 launch using ballistic missile technology and its January 6, 2016 nuclear test in violation of its obligations pursuant to numerous United Nations Security Council resolutions and in contravention of its commitments under the September 19, 2005 Joint Statement of the Six-Party Talks, that increasingly imperils the United States and its allies.
+美國公司不是唯一打算撤離的：85%的北亞公司以及60%的中共製造商也表示，他們在計劃至少將一部分生產中心搬出中共國，這個去年底新冠病毒首先爆發的地方。
 
-2016年3月15日，總統簽署了第13722號行政令，對第13466號行政令的的國家緊急狀態法做了補充，並對緊隨其後的行政令中對其範圍進行了修改，並將根據這些修改採取進一步的措施。這些行政令將應對朝鮮政府持續執行其核武器和導彈計劃的問題。 2016年2月7日利用彈道導彈技術進行發射和2016年1月6日進行核試驗，證明其違反了聯合國安全理事會多項決議規定的義務，也違背了其在2005年9月19日《六方會談聯合聲明》中作出的承諾，日益危及美國及其盟友。
+這三項調查發現，在中共國2.5萬億美元的出口中，有高達30%（7500億美元）可能會被移走。
 
-On September 20, 2017, the President signed Executive Order 13810 to take further steps with respect to the national emergency declared in Executive Order 13466, as modified in scope and relied upon for additional steps in subsequent Executive Orders, to address the provocative, destabilizing, and repressive actions and policies of the Government of North Korea, including its intercontinental ballistic missile launches of July 3 and July 28, 2017, and its nuclear test of September 2, 2017; its commission of serious human rights abuses; and its use of funds generated through international trade to support its nuclear and missile programs and weapons proliferation.
+“這將會是一次規模可觀的再平衡，因中共國占全球出口額自2000年初至今已經跳漲10%，達到14%。遠高於美國、德國和日本，“以Keith Parker（基思·帕克）為首的瑞銀全球宏觀戰略團隊寫道。
 
-2017年9月20日，總統簽署了第13810號行政令，對第13466號行政令中宣布對國家緊急狀態採取進一步措施，並在隨後的行政命令中對其範圍進行了修改，並將根據這些修改採取進一步的措施，以解決來自朝鮮政府的挑釁的，破壞穩定的的鎮壓行為和政策，包括其2017年7月3日和7月28日的洲際彈道導彈發射，以及2017年9月2日的核試驗，嚴重侵犯人權的行為，以及它利用通過國際貿易獲得的資金來支持其核和導彈計劃以及武器擴散。
+源自中共國武漢的新冠病毒已在全球感染超過800萬人，中共國為緩減病毒傳播速度在家隔離期間，強制很多公司暫停運營，使得供應鏈遭到破壞。
+[!\[\](https://spark.adobe.com/page/77qHdebGiYngL/images/220dcf44-3f9e-4f97-9192-e3de354aab1a.jpg?asset_id=75b7ad74-5bf2-4ad2-93fc-182daa456c44&amp;img_etag=%22277941fea02726e6e32bf74a1acc1fda%22&amp;size=1024)](https://spark.adobe.com/page/77qHdebGiYngL/images/220dcf44-3f9e-4f97-9192-e3de354aab1a.jpg?asset_id=75b7ad74-5bf2-4ad2-93fc-182daa456c44&amp;img_etag=%22277941fea02726e6e32bf74a1acc1fda%22&amp;size=1024)密歇根州-製造業-工人《路透社》
+**你仍然要有能力去製造東西，作為一個國家，你仍然要有工業和工業能力–**  美國佛羅里達州參議院盧比奧
 
-The existence and risk of proliferation of weapons-usable fissile material on the Korean Peninsula and the actions and policies of the Government of North Korea continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For this reason, the national emergency declared in Executive Order 13466, expanded in scope in Executive Order 13551, addressed further in Executive Order 13570, further expanded in scope in Executive Order 13687, and under which additional steps were taken in Executive Order 13722, and Executive Order 13810, and the measures taken to deal with that national emergency, must continue in effect beyond June 26, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency with respect to North Korea declared in Executive Order 13466.
+疫情爆發造成越來越多的關於美國對中共國的依賴，不單是關鍵醫療設備，還包括一般的生產能力。中共國是全球最大的個人防護品製造國，包括口罩，測試套裝，也製造電子產品，服裝和電氣設備和其他很多產品。
 
-朝鮮半島可用於武器的裂變材料的存在和擴散的風險以及朝鮮政府的行動和政策繼續對美國的國家安全、外交政策和經濟構成不尋常和特殊的威脅。為此，在第13466號行政命令中宣布的、在第13551號行政命令中擴大範圍的、在第13570號行政命令中進一步處理的、在第13687號行政命令中進一步擴大範圍的、在第13722號行政命令和第13810號行政命令中採取額外步驟的國家緊急狀態，以及為處理這一國家緊急狀態而採取的措施，必須在2020年6月26日之後繼續有效。因此，根據《國家緊急狀態法》第202(d)節(50 U.S.C.1622(d))，我將第13466號行政命令中宣布的朝鮮國家緊急狀態延續一年。
+參與調研的公司中，92%的醫療保健公司和89%的日常消費品公司已經將產能移出中共國或者正在計劃移出。科技企業（80%）和非必須消費品（76%）製造商比工業（69%）和材料（57%）更傾向於搬出中共國。
 
-This notice shall be published in the Federal Register and transmitted to the Congress.
+同時，82%的受訪美國企業說他們打算將生產搬回美國，同時也有的考慮加拿大（38%）、日本（29%）和墨西哥（23%）。
 
-DONALD J. TRUMP
+據瑞銀報導，日本是北亞和中共國公司的首選地，將會是這次供應鏈大規模搬離最大的受益者，其次是越南和美國。
 
-THE WHITE HOUSE,
-June 17, 2020.
+將供應鏈搬回國的決心一直是川普總統的優先目標，已在華盛頓和北京的緊張局勢中獲得了動力。
 
-該通知將在《聯邦公報》中公佈並發送給國會。
+白宮經濟顧問Larry Kudlow（拉里·庫德洛）上個月告訴福克斯商業的Stuart Varney（斯圖亞特·瓦尼），川普政府願意幫助把供應鏈搬回美國的公司支付費用。“我們歡迎任何在中共國大陸或香港的美國企業，如果他們將供應鍊和生產搬回美國，我們會盡力支付全部搬遷費用。”他說道。
 
-唐納德·川普
+川普政府支持的2017年減稅和就業法案提供了新的激勵，允許美國公司只需支付一次性稅收，現金繳稅15.5%，其他繳稅8%，即可將資產搬回美國。
 
-白宮，2020年6月17日。
+這次疫情“向所有人揭示了我們數字科技優勢，軟件以及一切我們的技術創新是有局限性的”盧比奧議員在4月告訴福克斯商業的Maria Bartiromo（瑪麗亞·巴蒂羅莫）。
 
-原文連結： [https://www.whitehouse.gov/briefings-statements/text-notice-continuation-national-emergency-respect-north-korea/](https://www.whitehouse.gov/briefings-statements/text-notice-continuation-national-emergency-respect-north-korea/)
+“你仍然要有能力去製造東西，”他補充道，“作為一個國家，你仍然要有工業和工業能力，而我們曾放棄了太多。”
 
-*翻譯：【奔腾的长江】【Olivia】校隊：【Ying202064】【恒久忍耐】*
+[原文鏈接](https://www.foxbusiness.com/markets/coronavirus-speeds-up-china-supply-chain-exodus)
 
-*戰友之家玫瑰園校對出品*
+#### 編輯：【喜馬拉雅戰鷹團】
 
-1
+
+
+0

@@ -1,43 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年黑奴解放紀念日的總統致辭（中英文對照）
-`2020-06-19 13:15 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/239555/)
+## 歐盟亟待價值觀的重塑
+`2020-06-19 18:07 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/239626/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/19130840/WH-20200619-Juneteenth-photo169.jpeg)
+*翻譯/簡評：Hemingway*
 
-**Presidential Message on Juneteenth, 2020**
+*校對：leftgun*
 
-LAW & JUSTICE
+*Page: 椰子哦耶*
 
-Issued on: June 19, 2020
+*新聞來源：European Union External Action*
 
-**2020年黑奴解放紀念日的總統致辭**
+*作者：Strategic Communications*
 
-法律與司法
+**簡評：**
 
-發布日期：2020年6月19日
+從這篇文章中可以看出，儘管歐盟清醒地看到“歐中雙方價值觀和政治制度的根本不同”，以及“美中緊張局勢成為全球政治主線”，然而在歐盟作為一個整體重新衡量自身和推進決策時，錯綜的內部政治和白左敘事方法依然是其在當下世界變局中經常捨本逐末、難以主動作為的硬傷。其中的原因有很多：
 
-The First Lady and I send our warmest greetings to those celebrating Juneteenth this year.
+首先，跟中共打交道，文中所謂的“good faith negotiations”只是天真的歐洲人的一廂情願。西方的法治社會的契約精神體現在：談判階段錙銖必較，協議一旦達成，便要認真執行。但對於中共這種沒有法治的和契約精神的極權獨裁政府，既可以為了“戰狼外交”的面子分厘不讓，也可以上演劉鶴那種“下跪式”全盤接受所有談判條件的戲劇性情節。但是事後馬上反悔，撕毀條約毫無障礙。這種對契約的無視和踐踏，令西方人費解。對於信用為大的法治社會來說，撕毀條約會令人信用盡毀，是天大的事。所以西方人當然很難理解，“談判”對於中共國祇是“超限戰”中的一個可以利用的途徑這種完全不在一個頻道上的流氓邏輯。美國的上層已經在中共貿易談判反复撕毀條約的行徑中認識到這一本質區別的危險，但歐洲各國的許多高層顯然還沒有清楚地認識，因此歐盟也很難在這一點上達成共識。
 
-我和第一夫人向慶祝黑奴解放日的人們致以最熱烈的問候。
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/7bf312d5-8df1-4d1e-a8f3-2754da397c38.jpg?asset_id=e5c25a27-f3c2-47cb-87b0-574cd09ff9c7&amp;img_etag=%2247f75d93bc373f0054e3a5f1405a3f99%22&amp;size=2560)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/7bf312d5-8df1-4d1e-a8f3-2754da397c38.jpg?asset_id=e5c25a27-f3c2-47cb-87b0-574cd09ff9c7&amp;img_etag=%2247f75d93bc373f0054e3a5f1405a3f99%22&amp;size=1024)
 
-On this day 155 years ago, African Americans in Texas first heard the righteous and long-overdue words of General Order Number 3:  “All slaves are free.”  These words confirmed for still-enslaved people in Texas that the Union Army would enforce and defend their freedom, announced nearly 3 years earlier by President Abraham Lincoln in his Emancipation Proclamation.
+除此，我們再看看歷史原因。歐洲大陸的均衡政治導致的殘酷戰爭之後，美國主導的國際聯盟取代了舊時的均勢政治。過去半個多世紀以來，歐洲在美國主導的北約的保護下，習慣了履行與其國家實力並不相符的安全防務義務。讓歐洲在二戰過後的大半個世紀，享受了安全和繁榮。並因此在歐洲產生了一種十分普遍的幻覺：彷彿文明的根基已經恆定，黑暗森林般的博弈已是過去時。加上中共超限戰“虛假信息”的干擾，民眾們失去了通暢地渠道，了解價值、安全、金融、經濟、宏觀和基礎層面上，歐洲與美國的真實關係。歐洲的整個敘事語言變得精巧、不接地氣，偏愛道德至上。歐洲大部分民眾的認知的圖景結構，與真實情況完全脫節。越多越多的美國民眾在“政治正確”深度綁架的噩夢中逐漸清醒，然而歐洲大多民眾似乎依然慢了一些。
 
-155年前的今天，得克薩斯州的非洲裔美國人第一次聽到第三號將軍令：“所有奴隸都是自由的”，這是一條正義，但姍姍來遲的命令。這個命令向得克薩斯州仍被奴役的人們證明了，北方聯合軍將執行和捍衛非洲裔美國人的自由。在此三年前，林肯總統就在《解放黑奴宣言》中已經做出了這樣的宣告。
+於是，歐盟普遍視忽視了自身與美國在歷史和憲法上一脈相承的淵源，視自己為獨立角逐的政治實體，在美中尋求平衡——實則是在其保護者和施害者中尋求“平衡” 。看似“道德至上”且“政治正確”，實則是罔顧歷史和當下事實的體現。跟放毒者合作病毒大流行的複蘇、跟最蔑視發展倫理的最大碳排放國合作治理氣候、跟最擅長割韭菜解構性的極權政黨討論可持續發展，都是極荒謬的。
 
-Juneteenth reminds us of both the unimaginable injustice of slavery and the incomparable joy that must have attended emancipation.  It is both a remembrance of a blight on our history and a celebration of our Nation’s unsurpassed ability to triumph over darkness.  That ability is rooted in the fundamental goodness of America—in the truths upon which we, as a Nation, declared an end to our status as the subjects of a monarch and emerged as a free and independent people: that all men are created equal by the hand of God, endowed by our Creator with the right to life, liberty, and the pursuit of happiness.  These words form the heart of what Reverend Dr. Martin Luther King, Jr., called the “promissory note to which every American was to fall heir.”  The celebration of Juneteenth marks an important milestone in the hard-fought journey to make good on that promise for all Americans.
+布熱津斯基一段曾經飽有爭議的觀點，如今看來如此有超前且富有洞見：“公眾們將會在不久的將來，失去自主思考和判斷的能力。最終他們會期望媒體為他們進行思考，並作出判斷。”如今的虛假信息作為邪惡的中共超限戰中的重要武器，不停地破壞腐蝕著全世界人民的認知圖景。更凸顯出郭文貴先生領導的爆料革命在匡扶正道的征途上“為真不破”的重要價值，凸顯出GTV、Gnews的重要性：重新書寫那些已經偏離了真相、偏離了正道的敘事，是所有心懷正義和自由的人，應去共同書寫的未來。
 
-黑奴解放日使我們想起了奴隸制度不可想像的不公正和解放所帶來的無比喜悅。這既是對我們歷史中的一個污點的紀念，也是對我們國家戰勝黑暗的無與倫比能力的慶祝。這種能力植根於美國的基本的良善，即我們作為一個民族，宣告結束我們作為君主臣民的地位，並成為自由和獨立的民族的事實：所有人都是上帝所造的，生而平等，我們的創造者賦予了我們生命、自由和追求幸福的權利。這些表述也是馬丁·路德·金博士牧師講話的核心,“每個美國人都繼承這一承諾”。黑奴解放日的慶祝活動是一個重要里程碑，體現著為所有美國人實現這一諾言而奮鬥的歷程。
+**原文：**
 
-This Juneteenth, we commit, as one Nation, to live true to our highest ideals and to build always toward a freer, stronger country that values the dignity and boundless potential of all Americans.
+## **在愈發洶湧的大海中，歐盟應以自身利益和價值觀為行動指南**
 
-值此黑奴解放日之際，我們作為一個國家承諾：致力於實現我們的最高理想，始終朝著建設一個更自由、更強大的國家邁進，珍視所有美國人的尊嚴和無限的潛力。
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/05f0b23d-1a76-4862-93e2-7f86b4e24e20.png?asset_id=22d58d09-6abf-43a2-ad5d-f907cbb07d84&amp;img_etag=%22c45bbf03dad614e8000be9c6723c32d3%22&amp;size=2560)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/05f0b23d-1a76-4862-93e2-7f86b4e24e20.png?asset_id=22d58d09-6abf-43a2-ad5d-f907cbb07d84&amp;img_etag=%22c45bbf03dad614e8000be9c6723c32d3%22&amp;size=1024)
 
-閱讀原文：[Presidential Message on Juneteenth, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-juneteenth-2020/)
+CCP病毒危機創造著一個競爭更激烈的全球環境，對抗的比合作成長得更快。作為歐盟，我們面對著更波濤洶湧的形勢，且面臨著在大國對抗的的橫流中被各方衝擊，要求我們“選邊站”的局面。
 
-*翻譯：【新生】校對：【Michelle】*
+投資和貿易，技術和貨幣等曾被視作“技術性”而非“高級政治”的事物，現已成為公開競爭甚至是對抗的一部分。事實、科學等那些我們本可以依賴的事物，也在遭受挑戰，並成為了敘事戰中的一部分，並被社交媒體不停地放大。
 
-*戰友之家玫瑰園小隊出品*
+對於歐盟來說，當這種橫流碰撞愈演愈烈時，保持我們的平衡並不是那麼容易。我們應該保持清醒，而不是天真或懷舊。這週發生的事情清晰地表明了這意味著什麼。
+
+**保持中歐關係的正確平衡**
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/ec860aaf-7847-4277-a881-e8db01f3e906.jpg?asset_id=4d6e9bba-9aa6-474a-b82d-02b056408bc4&amp;img_etag=%22a8f86890cacdc3d127fa95d02cdc1e46%22&amp;size=1024)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/ec860aaf-7847-4277-a881-e8db01f3e906.jpg?asset_id=4d6e9bba-9aa6-474a-b82d-02b056408bc4&amp;img_etag=%22a8f86890cacdc3d127fa95d02cdc1e46%22&amp;size=1024)
+週二，我在“中歐戰略對話”上會見了中國的外交部長王毅，他是一位經驗豐富的外交官。三個小時的激烈討論，坦率而實用。
+
+中國在全球政治中發揮了越發重要的作用，我們對在許多至關重要的問題上展開合作充滿興趣，比如大流行病的複蘇、氣候變化、可持續的互聯互通等。所有這些，以及更多內容，構成了中歐合作的重大積極議程。
+
+在那些儘管目前仍有分歧，但真誠的談判可使雙方共贏的諸多議題上，我們也希望和中國展開合作。以市場准入，和就雙邊“全面投資協議”的談判為例。這些談判已經進行了多年，我希望能夠盡快完成，以結束當前不對稱的開放局面。從採購到5G到電子商務和金融服務，我們都缺乏一個公平競爭的環境，我們需要確保雙方互惠。
+
+我們還必須在該領域“做好自己的功課”：這包括投資篩選，採購互惠，供應鏈多樣化或戰略產品儲備方面已經到位或正在製定的措施。總體目標是強化歐洲自身，以應對競爭更激烈的地緣政治格局。
+
+我們還討論了非洲的債務減免事宜，我們歡迎中方對此作出更多努力。
+
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/1b68a97e-7c95-4ec2-81a3-e64ff9dce5d2.jpg?asset_id=fdc323aa-3d38-4944-8903-7494ce8327ed&amp;img_etag=%22383a675c1fb5f662effaae69e5cf5331%22&amp;size=1024)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/1b68a97e-7c95-4ec2-81a3-e64ff9dce5d2.jpg?asset_id=fdc323aa-3d38-4944-8903-7494ce8327ed&amp;img_etag=%22383a675c1fb5f662effaae69e5cf5331%22&amp;size=1024)
+
+同時，由於歐中雙方價值觀和政治制度的根本不同，我們的關係自然在某些方面會比較有對抗性。我也和外交部長討論過這一點。在香港乃至更廣泛的人權領域，雙方都表達了各自立場，但主要分歧仍然存在。
+
+我們與中共國的關係不可避免地是複雜且多方面的。“系統性的對抗”一詞引起了許多關注，這種關注更多是因為該詞彙表達中“對抗”的部分，而不是“系統性“的部分。但這並不意味著雙方正在進行系統地對抗。
+
+**虛假信息和民主社會的挑戰**
+
+虛假信息（Disinformation）是另一競爭差異占主導的領域。上週三，我們與喬瓦洛專員一道發布了關於虛假信息的聯合通訊。
+
+信息空間越發成為戰場，戰士們揮舞著鍵盤而非利劍。CCP病毒大流行也伴隨著“信息瘟疫大流行”。我們目睹了一波虛假和誤導性信息的浪潮，也目睹了某些外國勢力發動的，旨在損害歐盟及其成員國的具有針對性和影響力的行動。
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/c6b9e53f-febb-4618-bf71-88b508b23408.png?asset_id=0b813b7b-5ab8-4ef1-ae21-12aec3acfe0f&amp;img_etag=%223b30d96d6ed51c86cffb9cec36646a16%22&amp;size=1024)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/c6b9e53f-febb-4618-bf71-88b508b23408.png?asset_id=0b813b7b-5ab8-4ef1-ae21-12aec3acfe0f&amp;img_etag=%223b30d96d6ed51c86cffb9cec36646a16%22&amp;size=1024)
+自2016年以來，歐盟對外事務部一直在與來自外國的虛假信息作鬥爭。一開始，這些虛假信息主要與俄羅斯有關。現在，正如我們所說，中共國和其他一些國家也進入了該領域。我們強調，我們必須保護我們的民主制度免受這種威脅。
+
+**堅持走歐美中三角關係**
+
+我們將繼續和美國討論和應對這些議題。本週一，美國國務卿蓬佩奧將通過視頻鏈接參加歐盟外長會議。中共國和虛假信息無疑將是著重討論的議題。
+
+跨大西洋關係仍然對歐洲至關重要，我們有共同的價值觀作為關係的基石。但是這種關係也面臨著緊張和壓抑。我們並不總能和川普政府作出的單方面決定達成共識。
+
+[!\[\](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/cb48a5ae-4f95-4342-9301-b7965d717cf9.png?asset_id=df752c51-c257-4083-9732-db13ca4e1684&amp;img_etag=%22b61247a560e86329b5538f215b9c26d8%22&amp;size=2560)](https://spark.adobe.com/page/uIcNgy3oQJyqp/images/cb48a5ae-4f95-4342-9301-b7965d717cf9.png?asset_id=df752c51-c257-4083-9732-db13ca4e1684&amp;img_etag=%22b61247a560e86329b5538f215b9c26d8%22&amp;size=1024)
+
+但是，一些根本性的變化不僅僅只是美國現任政府的問題。例如，無論明年一月誰將入主白宮，美中關係都將走上全球競爭之路。這種對抗將重建未來的世界秩序。
+
+這是歐盟必須找到自身位置的大背景。在美中緊張局勢成為全球政治主線的同時，“選邊站”的壓力也在增加。有關戰略對話和虛假信息的媒體評論均涉及很多政治化妝師的身影。
+
+歐盟27個成員國在如何最佳地應對此情況方面有所分歧，這已經不是什麼秘密。一些認為我們應該與（美中之間的）一方形成一致，另一些成員國認為歐盟應該保持中立。作為尋求共同外交與安全政策的高級代表，我很了解其中的原委。
+
+我們應該採取戰略方針，我們必須維護和捍衛我們的利益和價值觀。我們必須以歐盟所想所需為指南，而非外界的期望或施壓。
+
+正如一些媒體所描述的，一種考量方法是採用“辛納屈主義”。作為歐洲人，我們必須用“我們的方式”來決策行動，且應對由此帶來的所有挑戰。當然，“歐洲的方式”包括與志同道合的人合作，以保持多邊體係作的合作的空間。儘管大國之間越來越多地將這種多邊體系視為了戰場。
+
+靜待暴風雨過去顯然不是一種切實的選擇。作為歐盟一員的意義就是要同舟共濟。我們應該以我們的利益為指南，使船保持平穩。
+
+有人會說船呆在港口裡最安全，但這不是船的意義。
+
+[新聞鏈接](https://eeas.europa.eu/headquarters/headquarters-homepage/80854/rougher-seas-eu%E2%80%99s-own-interests-and-values-should-be-our-compass_en)
+
+#### 編輯【喜馬拉雅戰鷹團】
 
 0
