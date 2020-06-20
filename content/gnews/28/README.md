@@ -1,61 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 緻美國參議院：關於《制止國際民航相關非法行為的公約》（中英文對照）
-`2020-06-19 00:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/238688/)
+## 中共已然成為當年的德國納粹
+`2020-06-19 06:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/239220/)
 
-#### Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation
+![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-89.png)
+據印度《獨立雜誌》（Swarajya）評論報導，到目前為止，這場全球性大流行已經殺死了超過15萬人，感染了超過220萬人，這才使得所有人都意識到中共對全球經濟與和平的威脅。
 
-### **緻美國參議院的信息：關於《制止國際民航相關非法行為的公約》**
+即便如此，沒有人願意直言不諱：不民主，仇外和種族主義的中共是一個威權主義國家，其不負責任的態度威脅著全球穩定。中共國在共產黨的領導下就像是二十一世紀的納粹德國。
 
-FOREIGN POLICY
+評論指出，在一個擁有如此眾多的核大國的世界中，中共不能僅靠不斷增長的軍事力量來製服或凌駕於其真實的和想像中的對手，所以他們以恐嚇，經濟脅迫和野蠻相結合的方式來實現他們的野心。中共通過完全不負責任的行為，輕而易舉的使世界陷入經濟蕭條邊緣。中共的強大隻是為了自己的利益，而不承擔任何責任，這在某種程度上是極其不道德的，而今中共甚至試圖乘機收購估值低的公司，在其向全世界釋放出病毒的情況下，向迫切需要檢測試劑和個人防護設備（PPE）的國家兜售產品來謀利。
 
-外交政策
+世界如此依賴中共在CCP病毒上的應對，以至於現在仍然猶豫是否要把這個世界上新的希特勒政權幹掉。印度在中共對印度公司威脅之後表現膽怯，僅發表了措辭謹慎的聲明，修改了印度的外國直接投資（FDI）政策，表明與印度接壤國家的公司不能在未經印度政府批准下投資印度公司。與印度擁有陸地邊界的國家包括巴基斯坦，阿富汗，中國，孟加拉國，尼泊爾，不丹和緬甸。
 
-Issued on: June 18, 2020
+由於和印度長期的武裝衝突，來自巴基斯坦的任何投資顯然都將毫無疑問地被視為危險投資，但除了中共，絕不會有人認為印度公司面臨其他鄰國的收購威脅。但是，人們卻不敢道破。評論認為即使印度外交部出於外交考慮來謹慎對待中共，但至少應該提出與印度有未解邊界爭端的鄰國在印度不能為所欲為。
 
-發布日期：2020年6月18日
+歷史總是驚人的相似，人們傾向於低估威脅的存在。在希特勒兩次的吞併（捷克斯洛伐克的奧地利和蘇台德蘭群島），並且入侵了波蘭之後全世界才將將其視為威脅。相比之下，儘管中共一再顯示其具有侵略性的民族主義時，不遵守任何國際法或人權問題時，在過去的三十多年中世界卻對此視而不見。並沒有從上個世紀對希特勒的綏靖政策中吸取任何教訓。該評論例舉了自1950年代中期以來在世界的縱容下中共的所作所為以及對世界造成的惡果。
 
-TO THE SENATE OF THE UNITED STATES:
+**中共加入聯合國並在人權事務上為所欲為**
 
-With a view to receiving the advice and consent of the Senate to ratification, I transmit herewith the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation (the “Beijing Convention”), adopted by the International Civil Aviation Organization International Con-ference on Air Law (Diplomatic Conference on Aviation Security) in Beijing on September 10, 2010, and signed by the United States on that same date. I also transmit, for the information of the Senate, the report of the Department of State with respect to the Beijing Convention.
+長久以來，印度和全世界任由中共為所欲為，踐踏藏人權利。1962年，由於印度對中共的反擊始料不及，導致其在中印戰爭中失敗。在冷戰最激烈的時候，美國總統理查德·尼克松（Richard Nixon）為了遏制擴張主義的蘇聯而對中共採取綏靖政策，使得中共在所有人權問題上都可以肆意而行。甚至在尼克松出訪前，美國就已經默許了聯合國成員國的意願，讓中共加入聯合國安理會，同時擁有否決權。這一常任理事國較早時由中華民國台灣擔任。而後台灣被無情地趕出了聯合國大會，至今都未能在聯合國大會上獲得一席之地。1971年，世界賦予了中共否決一切他們拒絕接受的事物的權利。
 
-緻美國參議院：
+**中共利用廉價勞動力使世界對其姑息養奸**
 
-為法案的批准能得到參議院的建議和認可，我謹此轉附2010年9月10日於北京航空法國際會議（航空保安公約外交大會）上通過的、美國同日簽署的《制止國際民航相關非法行為的公約》（《北京公約》），以及國務院有關《北京公約》的報告，供參議院參考。
+上世紀80年代，當鄧小平領導下的中共通過“自由貿易”轉向資本主義發展模式時，世界又給了他另一種便利。中共獲得了有史以來最寬鬆的條件來開放經濟，迄今為止，中共仍沒有令人信服世界給他們的機會是對的。中共利用重商主義政策將自己轉變成世界製造業中心，而沒有履行其平衡貿易的義務或讓人民幣找到自己的應該有的位置，直到現在才有人開始指出這種貿易不對稱，但是為時已晚。由於這個世界的縱容才創造了一個巨大的經濟和軍事的怪獸，讓中共可以完全用輕而易舉的方式摧毀整個經濟。
 
-The Beijing Convention is an important component of international efforts to prevent and punish both terrorism targeting civil aviation and the proliferation of weapons of mass destruction. As between parties to the Beijing Convention, it replaces and supersedes the Convention for the Suppression of Unlawful Acts Against the Safety of Civil Aviation, done at Montreal, September 23, 1971, and its supplementary protocol, the Protocol for the Suppression of Unlawful Acts of Vio-lence at Airports Serving International Civil Aviation, done at Montreal, February 24, 1988. It sig- nificantly strengthens the existing international counterterrorism legal framework and facilitates the prosecution and extradition of those who seek to commit acts of terror, including acts such as those committed on September 11, 2001.
+當中國人民要求內部民主時，1989年中共的部隊在天安門廣場屠殺了示威者，世界對此視而不見。當中共開始歡迎西方公司開店並從廉價勞動力中受益時，世界樂於讓一切中共的作惡都變成過去，而中國的勞動力並沒有受到法律的保護。整個全球供應鏈都轉移到了中共國，為此西方在工資收入增長方面付出了巨大的代價。貪婪的全球企業集團及其政府無視中共侵犯人權行為，以換取廉價的中國製造產品。中共通過廉價的消費刺激贏得了西方的青睞。
 
-世界各國致力於預防懲治針對民航的恐怖主義行為及大規模殺傷性武器的擴散，《北京公約》是一個重要組成部分。在《北京公約》締約國之間，它取代了1971年9月23日在蒙特利爾通過的《制止危害民航安全非法行為的公約》及1988年2月24日在蒙特利爾通過的補充議定《制止國際民用機場非法暴力行為的議定書》。它有力強化了現有的國際反恐法律框架，有助於起訴和引渡企圖實施恐怖主義行為者，包括像2001年9月11日這樣的事件。
+**中共無視國際法律政教分離名存實亡**
 
-The Beijing Convention establishes the first international treaty framework that criminalizes certain terrorist acts, including using an aircraft in a terrorist activity and certain acts relating to the transport of weapons of mass destruction or related materials by aircraft. The Beijing Convention requires States Parties to criminalize specified acts under their domestic laws and to cooperate to prevent and investigate suspected crimes under the Beijing Convention. It includes an “extradite or prosecute” obligation with respect to persons accused of committing, attempting to commit, conspiring to commit, or aiding in the commission of such offenses.
+最近，在2016年，由於海牙國際法庭裁決中共在南海不具有專屬管轄權，中共直接聲稱該裁決無效。顯然，中共不會遵守任何國際法。兩年前，就連梵蒂岡也屈服於中共的壓力，並達成協議由中共審查或否決中國天主教會神父的任命事宜。備受吹捧的政教分離政策由於中共的不妥協而陷入困境。梵蒂岡教皇屈服於中共的帝國主義，在宗教事務上給予後者發言權。
 
-《北京公約》建立了首個將某些恐怖行為定為犯罪的國際條約框架，包括在恐怖行動中使用飛機、以及用飛機運輸大規模殺傷性武器或相關物資的行為。 《北京公約》要求締約國根據其國內法律將指定的行為定為犯罪，並根據《北京公約》合作預防和調查涉嫌犯罪。其中包括對被控犯有、企圖犯有、陰謀犯有或協助犯有此類罪行的人的 “引渡或起訴 “義務。
+**中共施行集中營鎮壓新疆人民**
 
-Some changes to United States law will be needed for the United States to implement provisions of the Beijing Convention obligating the United States to criminalize certain offenses, make those offenses punishable by appropriate penalties, and authorize the assertion of jurisdiction over such offenses. Proposed legislation is being separately transmitted by my Administration to the Con-gress.
+中共還利用了龐大的軍事力量來鎮壓新疆維吾爾族社區中的異見分子。成千上萬的人被送往中共國內的勞改營，進行強制性的再教育和去伊斯蘭化計劃。穆斯林世界通常對世界上任何地方的同胞待遇都持很高的態度，但對於中共龐大的對外援助和投資計劃，他們一直表現沉默。
 
-美國需要對美國法律進行一些修改，以執行《北京公約》的規定，即美國有義務將某些罪行定為刑事犯罪，使這些罪行受到適當的懲罰，並授權對這些罪行行使管轄權。我國政府正在將擬議的立法單獨轉交國會。
+**中共竊取西方知識產權美歐無動無衷**
 
-I recommend that the Senate give early and favorable consideration to the Beijing Convention, subject to a reservation and certain understandings that are described in the accompanying report of the Department of State.
+長期以來，美國和歐洲也忽視了中共對知識產權的持續竊取，大概是因為人們認為中共一直專注於低成本製造業，而西方卻一直在失去這種優勢。世界需要一位像川普這樣對待邪惡敢怒敢言的總統，才能最終制止中共一直以來的盜竊行為。中共還利用其作為許多電子產品製造商的特權地位，在一些運往海外的產品中非法植入間諜軟件。當一個微型中共間諜芯片植入到出口美國的主板開始入侵西方科技公司時，亞馬遜和蘋果在內的30多家公司被侵入了。
 
-我建議參議院參考附件國務院報告的保留意見和某些詮釋，儘早地積極考量《北京公約》。
+正是在中共隱瞞疫情，將CCP病毒擴散到全球時，人們對中共信任的態度才開始變化，世界開始質疑中共。但中共仍然不知悔改，中國沒有承認自己的錯誤，而是攻擊批評人士，發動了大外宣，聲稱自己是無辜的。但是全世界已經不可能再接受中共的謊言。
 
-DONALD J. TRUMP
+**世界對中共惡行的反制措施**
 
-唐納德·川普
+在美國，已經開始了針對中共的集體訴訟，要求他們賠償數万億美元，以應對由中共造成的CCP病毒爆發以及經濟遭到的重創。
 
-THE WHITE HOUSE,
+當中國試圖以低價收購公司時，歐盟制定了指導方針，以確保各國政府可以防止這種情況的發生。德國已經採取行動反對中國收購弱勢公司，澳大利亞也是如此，日本也鼓勵企業將供應鏈移出中國。從去年開始，美國已禁止與中共軍隊有關聯的華為參與其通信網絡。
 
-白宮
+評論指出，中共已經不僅僅是一個威脅，因為他們現在可以在西方和印度以低價購買戰略資源。從任何定義上來說，中共都是一個流氓政體，除了自己制定的法律外，他們不尊重任何法律。如果能找到竊取財產的方法，中共就不會尊重任何人的財產權利；當中共發現通過恐嚇和壓迫可以獲取領土或資源，他們會不遺餘力攻擊他國。
 
-June 18, 2020.
+以國內生產總值（GDP）計算，中共國已經是世界第二大經濟體。其GDP約為14萬億美元，而美國為20萬億美元，離第一隻是一步之遙的距離。就購買力平價而言，中共國已經是世界第一。但CCP病毒將摧毀世界GDP和美國的經濟領導地位，這正是中共要想提前取得世界第一的手段。美國GDP即將崩潰，而中共國GDP今年仍將保持正增長。
 
-2020年6月18日
+世界不能單獨採取微弱的措施來遏制中共，無論是從經濟上還是軍事上，世界各國必須聯手起來對付中共。就像當年對希特勒一樣，因為中共不是一個願意遵守任何合理規則的良性超級大國。
 
-閱讀原文：[Message to the Senate of the United States on the Convention on the Suppression of Unlawful Acts Relating to International Civil Aviation](https://www.whitehouse.gov/briefings-statements/message-senate-united-states-convention-suppression-unlawful-acts-relating-international-civil-aviation/)
+現在是世界撤出中共國的免費通行證，並通過聯合行動取消中共執政權力的時候了。
 
-*翻譯：【致敬香港！ 】校對：【Ying202064】*
+[原文鏈接](https://swarajyamag.com/world/the-world-has-created-a-monster-in-china-time-to-withdraw-the-free-pass)
 
-*戰友之家玫瑰小隊出品*
+翻譯報導：Hakunamatata
+校對整理：Yamap
 
 0

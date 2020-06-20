@@ -1,30 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “人民幣或將自由兌換”共產黨就別忽悠老百姓了
-`2020-06-19 06:44 benjaming` [轉載自GNews](https://gnews.org/zh-hant/239204/)
+## 2020年黑奴解放紀念日的總統致辭（中英文對照）
+`2020-06-19 13:15 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/239555/)
 
-作者：文茗
-剛剛開幕的第十二屆陸家嘴論壇上，中共人民銀行行長易綱表示，上海建設國際金融中心，可以在人民幣自由兌換和資本項目可兌換方面等方面先行先試，只要符合反洗錢反恐怖融資規定，正常的貿易和投資需要資金都可以自由的進行。
-![](https://gnews.org/wp-content/uploads/2020/06/图片1-13.png)
-易剛說：“人民幣資產對國際投資者保持較高吸引力，上海正成為人民幣資產配置中心。上海正成為開放的人民幣資產配置中心，全球一流的投資者只要投資人民幣資產，首先會想到上海。當前中國經濟基本面良好，貨幣政策處於正常空間，人民幣對主要可兌換貨幣保持較高利差，對國際投資者保持較高的吸引力。上海建設國際金融中心，可以在人民幣自由兌換和資本項目可兌換方面等方面先行先試，只要符合反洗錢反恐怖融資規定，正常的貿易和投資需要資金都可以自由的進行。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/19130840/WH-20200619-Juneteenth-photo169.jpeg)
 
-網絡最火熱的評論就是“等了幾十年，終於等到了這一天？！”不由得讓人想起2013年上海自貿區的火熱，那個時期的口號是“人民幣匯率可以自由浮動。”
-![](https://gnews.org/wp-content/uploads/2020/06/图片2-12.png)
-隨之而來的就是2015年人民幣811”匯改“，人民幣迅速貶值，A股急劇波動，隨之迅速傳導至港元、港股市場。也正是這次動盪短短幾個月的時間，中共外匯儲備從4萬億下降至3萬億。經濟的下滑、資金外流的共同壓力下，中共一改寬鬆的政策，加大了對於外匯管制的力度。外匯管制規定，內地居民每人每年可以兌換的外匯上限是不超過5萬美金（或等值其他外幣），當年未使用的就過期作廢了。
+**Presidential Message on Juneteenth, 2020**
 
-共產黨不倒人民幣永遠不可能自由兌換：
+LAW & JUSTICE
 
-1、直到去年年底CCP病毒爆發之前，美元占全球儲備貨幣的比重超過60%，但人民幣佔全球儲備貨幣的比重只有約2%。世界第二大經濟體為何會有如此尷尬的比值？主要基於共產黨在世界上臭名昭著，從它建立的那一天就充斥著謊言、欺騙、殺戮。正是這些對共產黨綜合的認識，深深的不信任感注定了人民幣永遠不可能被世界認可，也不可能真正的自由兌換。
-![](https://gnews.org/wp-content/uploads/2020/06/图片3-11.png)
-2、中共國官方公佈的M2規模是驚人的170萬億元，而GDP只有90萬億元，兩者的比值在全世界的主要經濟體裡面是最高的。如存量如此之高的M2，如何平衡與疏導超大存量的人民幣對資產價格以及人民幣匯率的壓力都是無法逃避的問題。這些綜合因素都會阻止人民幣自由兌換的可能性。
+Issued on: June 19, 2020
 
-3、貿易戰和中美脫鉤必然會阻塞所有人民幣自由兌換之路。 2018年3月26日，中共推出了“中國版”原油期貨在上海期貨交易所掛牌交易，也就是說共產黨開始正式挑戰“石油美元”體系，以及一帶一路等一系列的計劃實施直指美國霸主地位。隨之而來的就是中美貿易戰直到今天的脫鉤。現實情況已經一目了然，中共國經濟已經開始崩潰，只要自由兌換人民幣，瞬間國庫那點美金將不復存在。
-![](https://gnews.org/wp-content/uploads/2020/06/图片4-9.png)
-香港的國際金融中心地位的取消，著實打到了共產黨的軟肋，共產黨也在想方設法變通尋找香港的替代城市。此前的海南自貿港我可以負責人的告訴大家：海南替代香港，這個計劃從寫下第一個字的那一刻已經失敗了。
+**2020年黑奴解放紀念日的總統致辭**
 
-共產黨思考、物色到最後也只剩下上海這一個地方可選。今日的“人民幣或將自由兌換”其實和當初的上海自貿區是一個道理，目的是假意放出開放姿態，欺騙外資進來，結果只會是失敗，何況看今日的國際環境惡化到了極點。上海無法承載香港的國際地位，無數個原因我總結只有一條：就是共產黨的統治！只要共產黨統治還在，人民幣永遠不可能自由兌換。
+法律與司法
 
-（文章內容僅代表作者觀點）
+發布日期：2020年6月19日
+
+The First Lady and I send our warmest greetings to those celebrating Juneteenth this year.
+
+我和第一夫人向慶祝黑奴解放日的人們致以最熱烈的問候。
+
+On this day 155 years ago, African Americans in Texas first heard the righteous and long-overdue words of General Order Number 3:  “All slaves are free.”  These words confirmed for still-enslaved people in Texas that the Union Army would enforce and defend their freedom, announced nearly 3 years earlier by President Abraham Lincoln in his Emancipation Proclamation.
+
+155年前的今天，得克薩斯州的非洲裔美國人第一次聽到第三號將軍令：“所有奴隸都是自由的”，這是一條正義，但姍姍來遲的命令。這個命令向得克薩斯州仍被奴役的人們證明了，北方聯合軍將執行和捍衛非洲裔美國人的自由。在此三年前，林肯總統就在《解放黑奴宣言》中已經做出了這樣的宣告。
+
+Juneteenth reminds us of both the unimaginable injustice of slavery and the incomparable joy that must have attended emancipation.  It is both a remembrance of a blight on our history and a celebration of our Nation’s unsurpassed ability to triumph over darkness.  That ability is rooted in the fundamental goodness of America—in the truths upon which we, as a Nation, declared an end to our status as the subjects of a monarch and emerged as a free and independent people: that all men are created equal by the hand of God, endowed by our Creator with the right to life, liberty, and the pursuit of happiness.  These words form the heart of what Reverend Dr. Martin Luther King, Jr., called the “promissory note to which every American was to fall heir.”  The celebration of Juneteenth marks an important milestone in the hard-fought journey to make good on that promise for all Americans.
+
+黑奴解放日使我們想起了奴隸制度不可想像的不公正和解放所帶來的無比喜悅。這既是對我們歷史中的一個污點的紀念，也是對我們國家戰勝黑暗的無與倫比能力的慶祝。這種能力植根於美國的基本的良善，即我們作為一個民族，宣告結束我們作為君主臣民的地位，並成為自由和獨立的民族的事實：所有人都是上帝所造的，生而平等，我們的創造者賦予了我們生命、自由和追求幸福的權利。這些表述也是馬丁·路德·金博士牧師講話的核心,“每個美國人都繼承這一承諾”。黑奴解放日的慶祝活動是一個重要里程碑，體現著為所有美國人實現這一諾言而奮鬥的歷程。
+
+This Juneteenth, we commit, as one Nation, to live true to our highest ideals and to build always toward a freer, stronger country that values the dignity and boundless potential of all Americans.
+
+值此黑奴解放日之際，我們作為一個國家承諾：致力於實現我們的最高理想，始終朝著建設一個更自由、更強大的國家邁進，珍視所有美國人的尊嚴和無限的潛力。
+
+閱讀原文：[Presidential Message on Juneteenth, 2020](https://www.whitehouse.gov/briefings-statements/presidential-message-juneteenth-2020/)
+
+*翻譯：【新生】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
