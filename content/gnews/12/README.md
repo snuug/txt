@@ -1,9 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共體制下人人自危，高官隱瞞病情造成傳染擴大！“中共病毒疫情每日熱線”
-`2020-06-20 00:57 GM30` [轉載自GNews](https://gnews.org/zh-hant/239920/)
-
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+## 6月18日班農戰斗室特別節目：嘉賓郭文貴先生解讀中共在美國的信息超限戰
+`2020-06-20 05:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/240077/)
 
 0
