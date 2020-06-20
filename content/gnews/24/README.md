@@ -1,91 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港家庭正準備逃離這座城市
-`2020-06-20 00:43 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/239908/)
+## 白宮2020年父親節公告
+`2020-06-20 06:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/240115/)
 
-*作者：Shibani Mahtani, Rachel Cheung, June 15, 2020*
+ROCLAMATIONS
 
-*消息來源: Thte Washington Post 《華盛頓郵報》*
+**Father’s Day, 2020**
 
-*翻譯/簡評：Chloe(文秀)*
+Issued on: June 19, 2020
 
-*校對：孫行者*
 
-**簡評：**
 
-香港人發現近幾年他們在“一國兩制”框架下所能享受到的自治和政治自由度急劇下降，因此精英們用腳投票，紛紛移民到外國。
+## **2020年父親節公告**
 
-## **擔心中共恐怖統治的香港家庭正準備逃離這座城市**
+發布日期: 2020年6月19日
 
-香港—中國共產黨已糾纏梁家好幾代了。樑的父親梁國耀從中共文化大革命的強制勞動和暴力清洗中逃到香港，以求過上更好的生活。國耀及妻子於1973年到達香港，尋求中共大陸不存在的自由和繁榮。
+Fathers are instrumental in helping prepare children for life, instilling in them the values essential to one day becoming responsible, grounded, and successful adults. As a Nation, we are grateful to the men dedicated to raising well‑rounded children. On Father’s Day, we honor and celebrate our fathers and father figures for their daily contributions to thriving families and communities.
 
-多年後，當他的家人觀看中英1997年香港交接儀式時，他當時才十幾歲的女兒有一種預感。
+父親在幫助孩子料理生活以及給他們灌輸一些必要的價值觀念以期將來成為一個負責、務實和成功的成人方面，發揮著重要作用。作為一個國家，我們感謝那些為培養個性全面充分發展的孩子而做出奉獻的男人們。在父親節這一天，我們向我們的父親和那些父親般的人物表達祝賀和敬意。因為是他們每天的貢獻給我們帶來了欣欣向榮的家庭和社區。
 
-今年36歲的梁說：“當時我心想，也許將來有天我們得再一次逃離中共統治。 我只是沒想到這一天會來得這樣快”。
+The presence of fathers in the lives of our Nation’s children is important to their growth, development, and well‑being. Fathers serve as role models to their children, exemplifying hard work, devotion to family, self-confidence, and faith. Through their character, determination, strength, and direction, they guide our futures toward happiness. Thus, it is no surprise that research increasingly shows involved fathers can help foster self-esteem, success in school, empathy, and positive behavior in their children.
 
-如今，在父親去世後的十七年之際（她父親的名字在普通話中的意思是“國家的榮耀”），梁正準備逃離香港。中國共產黨批准的一項新法律於今年夏天生效，將允許中共強大的國家安全機構在香港開展活動，為將來的政治清洗和中共秘密警察恐嚇政府批評者鋪平道路。香港的政府官員正力推在學校裡進行共產黨的宣傳。
+在我們國家的孩子的一生之中，父親的存在對他們的成長、發展和幸福非常重要。父親是孩子的楷模，向孩子展示了勤奮、對家庭的奉獻、自信和信仰。父親通過他們自己的品格、決心、勇氣和目標，引導我們走向幸福的未來。因此毫不奇怪，越來越多的研究顯示，一個身心投入的父親有助於孩子的自尊心建立、學業成功、同情心和積極行為的培養。
 
-隨著港人可享有政治自由度的惡化，護士，律師，商人和其他熟練工人急於更新他們手中一種可以提供留居英國途徑的證件，或尋找移民台灣加拿大或澳大利亞的路徑。
+By raising children to be happy, productive, and responsible adults, fathers play a critical role in shaping our society. Our fathers set an example for us of how to be our best in every aspect of our lives. The lessons they teach us guide us as we strive to care for our families, succeed at school and at work, serve others, and contribute to our communities. They are integral to raising future generations of Americans who will continue to build an ever-stronger Nation. That is why my Administration continues to provide grant funding to organizations across our country that work to strengthen relationships between fathers and their children, foster responsible parenting, and help fathers find and keep gainful employment.
 
-甚至在國安法頒布之前的2019年下半年，港人辦理移民所需的無犯罪記錄證明的申請同比激增80％，達到近21,000份，這與中共鎮壓香港反送中運動的時間相吻合。動物救援組織報告說，隨著主人離開香港，棄養的寵物狗數量有所增加。示威者們擔心遭受迫害，轉向德國荷蘭和美國尋求庇護。
+通過把孩子培養成快樂、有成就感和負責任的成年人，父親對於塑造我們的社會扮演著關鍵的角色。我們的父親給我們樹立了榜樣，告訴我們如何在生活的每一個方面做最好的自己。當我們努力去照顧家庭、取得學業和工作上的成功、為他人服務以及為社區做貢獻的時候，他們傳授給我們的經驗都在給我們提供指導。他們是培養美國子孫後代不可或缺的一部分，而這些美國人的後代將會繼續建設一個越來越強大的國家。這也是為什麼我的政府繼續提供巨大的資金，支持那些為增強父親子女關係、促進盡責養育、幫助父親找到並保有有酬工作而努力著的全國各個組織。
 
-香港精英的出逃讓人回想起移交前的歲月，彼時對北京統治的不滿情形驅使成千上萬人離開香港。當最初中共對香港統治相對溫和時，已移民的許多港人又逐漸回流，但保留他國護照以應不時之需。
+Our Nation is indebted to the men who have embraced the great blessing and solemn duty of fatherhood. Every day, they make sacrifices to ensure their children, whether by birth, adoption, or foster care, receive the care and affection they deserve. Today, we express our everlasting gratitude to our fathers and father figures for their love and commitment, and for all they have done to shape our lives.
 
-這次不一樣了。許多港人說，他們沒有計劃再重返香港，對香港的未來也不再抱希望。那些準備離開的人說，他們對在關鍵時刻放棄家園滿懷內疚，但如果留下（粵語留低），又對自己和孩子們的未來深感擔憂。
+我們國家要感激那些男人們，他們欣然承擔起父親的身份，這個身份既是一種偉大的祝福也是一個莊嚴的責任。每一天他們都在做出犧牲，以確保他們的孩子——不管是親生，收養或者是寄養——得到需要的關懷和愛護。今天，我們向父親和父親般的人物表達我們永恆的感恩，感謝他們的愛和信諾，還有他們為塑造我們的生活所付出的一切。
 
-由於擔心被當局或其雇主報復，被採訪的幾家人都在部分或全部匿名的情況下與《華盛頓郵報》交談。
+NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, in accordance with a joint resolution of the Congress approved April 24, 1972, as amended (36 USC 109), do hereby proclaim June 21, 2020, as Father’s Day. I call on United States Government officials to display the flag of the United States on all Government buildings on Father’s Day and invite State and local governments and the people of the United States to observe Father’s Day with appropriate ceremonies.
 
-“離開香港並不是件令人開心的事，”現年40歲的企業高官羅先生說。他打算在新冠疫情引起的旅行禁令緩解之後就與家人搬去台灣的台中市，“沒有覺得我們要慶祝離開香港。 我有些羞愧，總覺得我背叛了那些示威者”。
+因此現在，我，唐納德·J·川普，美利堅合眾國總統，根據經修訂的1972年4月24日國會批准的聯合決議（美國法典 36 U.S.C.109），宣布2020年6月21日為父親節。我號召美國政府機關在父親節這一天，在政府大樓上懸掛美國國旗；邀請州和當地政府以及美國人民以適當的慶典來慶祝父親節。
 
-**‘我們的政府憎恨我們’**
+IN WITNESS WHEREOF, I have hereunto set my hand this nineteenth day of June, in the year of our lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fourth.
 
-最近幾周北京重建了其與香港的關係。此前北京承諾保留香港的自治和政治自由直至2047年。
+DONALD J. TRUMP
 
-在其入侵遭到港人廣泛抵制時，中共已轉向採用國安法來壓制港人的反抗。西方政府稱中共國安法違反了《中英聯合聲明》及其建立的“一國兩制”模式。華盛頓已表示，不會再將香港與中國區別對待，並已開始重新考慮是否應該再給與香港特殊貿易地位，這種地位曾幫助香港以一個金融中心的定位蓬勃發展。
+謹此簽署於我主2020年6月4日、美利堅合眾國獨立244年為證。
 
-中共港澳辦副主任張曉明上週將國安法比喻為“殺毒軟件”，並說香港有些勢力正試圖顛覆中國共產黨的統治，強調北京現在認為香港亂局必須得到控制。
-[!\[\](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/4e1008d8-5ee9-414b-b227-0f7c60b29a99.jpg?asset_id=a7a33260-be95-42ee-940c-c081548df421&amp;img_etag=%2288f07ce5eff4b0168720b2e088d368bd%22&amp;size=1024)](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/4e1008d8-5ee9-414b-b227-0f7c60b29a99.jpg?asset_id=a7a33260-be95-42ee-940c-c081548df421&amp;img_etag=%2288f07ce5eff4b0168720b2e088d368bd%22&amp;size=1024)現年39歲的克里斯-楊（Chris Yeung）同時持有加拿大和英國護照，但居住在香港。這位因參與抗議活動而兩次被捕的政治活動家說，他計劃和家人一起移民到溫哥華。(Shibani Mahtani/華盛頓郵報)
-國安法將“外國干涉”入罪。法律專家說“外國干涉”這術語可適用範圍很廣泛，可以將與外國政黨有聯繫的任何人定罪。這對樑的丈夫克里斯·袁（Chris Yeung）來說是個問題，因為他是英國自由民主黨的海外成員。相鄰的中共轄區澳門於2009年通過類似法律，如果中共認為某外國政黨的下屬組織威脅到中國國家安全，其成員最高可判25年徒刑。
+唐納德·J·川普
 
-持有加拿大和英國雙重國籍的袁此前曾和妻子討論過在香港局面變得不可收拾時他們的撤離計劃。去年6月底，當香港開始爆發針對中共引渡條例的示威時，袁和妻子的討論變得愈來愈認真。袁一步步地看著香港社會中政治分裂加劇，在街頭遭到警察血腥毆打的年輕人變成了手持汽油彈的戰士。
+閱讀原文：https://www.whitehouse.gov/presidential-actions/fathers-day-2020/
 
-對丈夫積極參加抗議活動而可能違法這一點，梁女士已做好思想準備。但去年9月袁先生因為參加反政府的一次抗議活動被逮捕，並被拒絕合法探視長達數小時之際，他們第一次意識到香港的法治正在崩潰。
+*翻譯：【鄉間小路】校對：【致敬香港！ 】*
 
-從事商務拓展的梁女士說，國安法“已經改變了一切，我們現在意識到我們每個人都可能成為國安法的目標”。梁女士一家計劃搬去溫哥華，但尚未定下離港日期。
-
-梁女士說：“（與政府）和解沒有任何希望。 即使我們非常熱愛我們的城市，但現實是我們的政府憎恨我們”。
-
-**‘我們是最後一批離開香港’**
-[!\[\](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/d4aa9685-8044-41ef-abc4-ee818a9db6ff.jpg?asset_id=1da88967-5458-46bc-ae07-c4a105a8ba19&amp;img_etag=%22c9956707a18f66c866fa066f31221094%22&amp;size=1024)](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/d4aa9685-8044-41ef-abc4-ee818a9db6ff.jpg?asset_id=1da88967-5458-46bc-ae07-c4a105a8ba19&amp;img_etag=%22c9956707a18f66c866fa066f31221094%22&amp;size=1024)40歲的商業主管和38歲的廣播製作人勞斯計劃在冠狀病毒旅行限制放鬆時搬到台灣。(Shibani Mahtani/華盛頓郵報)
-羅家去年開始製定撤離香港計劃。商業高管羅先生的妻子是一名38歲的廣播製作人。去年的某天她正記錄示威活動時，看見警察用水砲向示威者們噴灑添加了化學物質的液體，一名14歲的示威者皮膚被燒傷而痛苦不堪。
-
-她想，幾年後可能就會輪到她的孩子（她有兩個，分別是7歲和5歲）。
-
-她說：“我無法保護她。除了走，還能做什麼呢？”
-
-羅家還有其他三家遇到了一位經紀人。這位經紀人根據一項投資計劃幫他們獲得了台灣居留權。居留文件在手，他們待新冠旅行禁令結束即可離開香港。
-
-儘管如此，他們還是對離開香港這一決定感到痛苦。
-
-身為廣播節目製作人的羅太太說：“我深感自私。 我唯一能做的就是在民主氛圍下的自由之地養育我的孩子。 希望有一天，無論他們回港與否，他們都會記得根在香港”。
-
-其他人也掙扎在類似的痛苦之中。當醫院康復病房的何護士今年參加罷工迫使香港政府在新冠病毒爆發期間關閉與中國的邊境時，她並不擔心會遭到政府的報復。她想即使在最壞的情況下她辭職不干也就沒事了。
-
-現在隨著國安法壓頂，她擔心會遭到政治清洗。
-
-何護士說：“根據新法（國安法），你不知道中共會給你安個什麼罪名。 參加罷工是否會被視為顛覆國家？”
-[!\[\](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/c828eb0f-af80-4610-90e3-bb2b470dd8da.jpg?asset_id=0f8c979f-4f07-4108-bcc5-817d5e49dbc9&amp;img_etag=%224d52b95dea5757fde0be4ac4e5d09777%22&amp;size=1024)](https://spark.adobe.com/page/LwmqiDq8qwq0x/images/c828eb0f-af80-4610-90e3-bb2b470dd8da.jpg?asset_id=0f8c979f-4f07-4108-bcc5-817d5e49dbc9&amp;img_etag=%224d52b95dea5757fde0be4ac4e5d09777%22&amp;size=1024)40多歲的何志明計劃放棄香港金融業的工作，和家人一起搬到台灣。(Shibani Mahtani/The Washington Post)
-何家正通過台灣一項針對外國專業人士的計劃申請移民到台灣，何的丈夫從事金融業，他在香港再多停留幾個月，賺點錢養家。
-
-他們離開香港的決定如此突然，都沒來得及為兩個孩子在台灣選學校。她先生不知道在金融相對不發達的台灣可以做什麼工作。但即使在餐館打工他也可以接受。他說：“擁有言論自由更值得”。
-
-他說他們的朋友大多數都是受過良好教育的專業人士，大多數都已有孩子。朋友中十分之九已經離開或正離開香港。在他工作的公司，擁有雙重國籍的同事都在衡量他們的所有選項，另一些人正努力獲得外國居留權。
-
-他說：“離開香港已成為常態，我們是最後一批。 從很多方面來說，我感覺我們就像難民，正在逃離一場戰爭”。
-
-[原文鏈接](https://www.web.de/)
-
-#### [編輯：【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/LwmqiDq8qwq0x/)
+*戰友之家玫瑰小隊出品*
 
 0
