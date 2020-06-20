@@ -1,53 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮2020年父親節公告
-`2020-06-20 06:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/240115/)
+## 立武：美司法部起訴中共劣質口罩的意義
+`2020-06-20 09:52 GM09` [轉載自GNews](https://gnews.org/zh-hant/240297/)
 
-ROCLAMATIONS
+作者：立武
 
-**Father’s Day, 2020**
+6月5日，美國司法部發布公告，正式起訴中共口罩企業金年包裝印刷有限公司（King Year Packaging and Printing Co. Ltd.），指控包括違反美國聯邦食品、藥物和化妝品法（FDCA）的三項規定。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.43.38-PM.png)
+## 壹 出口假冒偽劣口罩
 
-Issued on: June 19, 2020
+起訴書顯示，從2020年4月6日到2020年4月21日，**該公司向美國出口了495200個假冒偽劣的N95口罩。**
 
+這僅僅是中共向美國出口假口罩的壹部分，6月17日，美國司法部同樣發出公告，起訴中共口罩制造商克勞德科技集團有限公司違法FDCA，**指控其向美國出口****14****萬多個偽劣****KN95****口罩，**聲明中提到，**這家位於深圳的公司生產的****KN95****口罩平均過濾效率僅為****22.33%****，**遠遠低於該公司聲稱的95%。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.44.25-PM.png)
+據中共海關統計，**從****3****月****1****日到****5****月****5****日，中共壹共向美國出口了****66****億只口罩，另外還有****960****萬只口罩通過無償捐贈渠道進入美國。**5月24日，中共外交部部長王毅在新聞發布會上，**稱中共壹共向美國出口了****120****億以上只口罩。**郭文貴先生曾在直播中提醒要**小心防範中共出口的口罩。**
 
+事實上，中共不僅本身制造的口罩就質量低下，而且不排除中共通過出口故意毀壞、質量極差的口罩來搞亂美國。中共病毒在肆虐美國的同時，中共出口的口罩同樣起到推波助瀾的作用。
 
-## **2020年父親節公告**
+**5****月****7****日，****FDA****發布消息，由於過濾效率不達標，取消了****60****多家中共口罩商在美國銷售****N95****口罩的緊急授權。**不僅在美國，中共劣質口罩已經在國際社會上臭名昭著。
 
-發布日期: 2020年6月19日
+以下是CDC列出的違規企業：
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.45.00-PM.png)
+## 二 **虛假標準**
 
-Fathers are instrumental in helping prepare children for life, instilling in them the values essential to one day becoming responsible, grounded, and successful adults. As a Nation, we are grateful to the men dedicated to raising well‑rounded children. On Father’s Day, we honor and celebrate our fathers and father figures for their daily contributions to thriving families and communities.
+在該公司出口美國的口罩包裝上，蓋有NIOSH和FDA的認證標識，而實際上，**這家口罩企業出口的口罩並沒有經過****NIOSH****批準，也沒有經過****FDA****授權。**而且，該公司還對外散步證明其真實性的虛假文件，並向FDA提交欺詐性註冊聲明。
 
-父親在幫助孩子料理生活以及給他們灌輸一些必要的價值觀念以期將來成為一個負責、務實和成功的成人方面，發揮著重要作用。作為一個國家，我們感謝那些為培養個性全面充分發展的孩子而做出奉獻的男人們。在父親節這一天，我們向我們的父親和那些父親般的人物表達祝賀和敬意。因為是他們每天的貢獻給我們帶來了欣欣向榮的家庭和社區。
+**實際上，許多中共企業都常常虛假的提供各種機構的證明來向消費者證明其權威性。**4月26日，中共官方聲明口罩出口商需要列入醫保商會公布的取得國外標準認證或註冊的非醫用口罩生產企業清單中，而之前僅需要進口方與出口方共同出具聲明即可。**壹方面，之前的共同聲明實際上存在藍金黃的漏洞；另壹方面，中共發表該聲明的背景是國際社會對中共口罩質量的不滿，這反映出中共自己做賊心虛**。實際上，兩天後，中共就查處了47家企業的51批次不合格產品。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.45.48-PM.png)
+中共本身標準不夠，況且中共為了搞亂西方可以利用強權直接越過標準，加上中共企業口罩帶有許多虛假的標準認證，這導致中共口罩外交就是壹場赤裸裸的欺詐行為。
 
-The presence of fathers in the lives of our Nation’s children is important to their growth, development, and well‑being. Fathers serve as role models to their children, exemplifying hard work, devotion to family, self-confidence, and faith. Through their character, determination, strength, and direction, they guide our futures toward happiness. Thus, it is no surprise that research increasingly shows involved fathers can help foster self-esteem, success in school, empathy, and positive behavior in their children.
+5月，NIOSH在提供給《泰晤士報》的壹份聲明中稱，它於5月4日通知比亞迪，**對該公司在中國的制造和生產設施進行現場訪問的評級為****“****不可接受****”****，**但該公司已經向加利福尼亞州提供了數百萬個手術口罩，很難想象這些劣質口罩導致的災難性後果。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.46.15-PM.png)
+## 三 **起訴意義**
 
-在我們國家的孩子的一生之中，父親的存在對他們的成長、發展和幸福非常重要。父親是孩子的楷模，向孩子展示了勤奮、對家庭的奉獻、自信和信仰。父親通過他們自己的品格、決心、勇氣和目標，引導我們走向幸福的未來。因此毫不奇怪，越來越多的研究顯示，一個身心投入的父親有助於孩子的自尊心建立、學業成功、同情心和積極行為的培養。
-
-By raising children to be happy, productive, and responsible adults, fathers play a critical role in shaping our society. Our fathers set an example for us of how to be our best in every aspect of our lives. The lessons they teach us guide us as we strive to care for our families, succeed at school and at work, serve others, and contribute to our communities. They are integral to raising future generations of Americans who will continue to build an ever-stronger Nation. That is why my Administration continues to provide grant funding to organizations across our country that work to strengthen relationships between fathers and their children, foster responsible parenting, and help fathers find and keep gainful employment.
-
-通過把孩子培養成快樂、有成就感和負責任的成年人，父親對於塑造我們的社會扮演著關鍵的角色。我們的父親給我們樹立了榜樣，告訴我們如何在生活的每一個方面做最好的自己。當我們努力去照顧家庭、取得學業和工作上的成功、為他人服務以及為社區做貢獻的時候，他們傳授給我們的經驗都在給我們提供指導。他們是培養美國子孫後代不可或缺的一部分，而這些美國人的後代將會繼續建設一個越來越強大的國家。這也是為什麼我的政府繼續提供巨大的資金，支持那些為增強父親子女關係、促進盡責養育、幫助父親找到並保有有酬工作而努力著的全國各個組織。
-
-Our Nation is indebted to the men who have embraced the great blessing and solemn duty of fatherhood. Every day, they make sacrifices to ensure their children, whether by birth, adoption, or foster care, receive the care and affection they deserve. Today, we express our everlasting gratitude to our fathers and father figures for their love and commitment, and for all they have done to shape our lives.
-
-我們國家要感激那些男人們，他們欣然承擔起父親的身份，這個身份既是一種偉大的祝福也是一個莊嚴的責任。每一天他們都在做出犧牲，以確保他們的孩子——不管是親生，收養或者是寄養——得到需要的關懷和愛護。今天，我們向父親和父親般的人物表達我們永恆的感恩，感謝他們的愛和信諾，還有他們為塑造我們的生活所付出的一切。
-
-NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, in accordance with a joint resolution of the Congress approved April 24, 1972, as amended (36 USC 109), do hereby proclaim June 21, 2020, as Father’s Day. I call on United States Government officials to display the flag of the United States on all Government buildings on Father’s Day and invite State and local governments and the people of the United States to observe Father’s Day with appropriate ceremonies.
-
-因此現在，我，唐納德·J·川普，美利堅合眾國總統，根據經修訂的1972年4月24日國會批准的聯合決議（美國法典 36 U.S.C.109），宣布2020年6月21日為父親節。我號召美國政府機關在父親節這一天，在政府大樓上懸掛美國國旗；邀請州和當地政府以及美國人民以適當的慶典來慶祝父親節。
-
-IN WITNESS WHEREOF, I have hereunto set my hand this nineteenth day of June, in the year of our lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fourth.
-
-DONALD J. TRUMP
-
-謹此簽署於我主2020年6月4日、美利堅合眾國獨立244年為證。
-
-唐納德·J·川普
-
-閱讀原文：https://www.whitehouse.gov/presidential-actions/fathers-day-2020/
-
-*翻譯：【鄉間小路】校對：【致敬香港！ 】*
-
-*戰友之家玫瑰小隊出品*
+6月份接連對中共口罩企業的起訴標誌著美國打響對中共出口劣質口罩的連環炮，作為案例法，將有更多的口罩商將被起訴或正在被起訴。這是依法滅共的有力證明，利用最真實的證據和最公正的司法程序將中共出口劣質口罩搞亂西方社會曝光於眾，**結合對中共病毒的調查和報告公布，將更加有力的證明郭文貴先生口中的3F計劃的真實存在。**
 
 0
