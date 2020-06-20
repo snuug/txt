@@ -1,147 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自助者，天助！
-`2020-06-19 21:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/239495/)
+## 中共投資基金已侵入美國公立學校
+`2020-06-20 01:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/239923/)
 
-成者人事，達者天命！
+*作者：Natalie Winters 2020年6月15日*
 
+*消息來源: The National Pulse 《國家脈動》*
 
+*翻譯/簡評: 文意*
 
-## 自助者，天助！成者人事，達者天命！
+*PR: Julia Win*
 
-***作者：玄天生***
+**簡評：**
 
-***校閱：Julia Win***
+中共在輸送共產主義的意識形態上從來沒有鬆懈過，從小抓起。從學校抓起，做長遠打算。中共利用私營企業作掩護，買通資本主義國家的有影響力的企業或個人，並利用長期安排好的中共的內線來實施他們不可告人的計劃，中共的騙術，陰謀和超限戰從來都沒停過。他們使用方法隱蔽，蒙蔽了很多善良的美國人和西方社會的主流。因為有了郭文貴先生領導的爆料革命，世界上正義善良的人們在覺醒。他們一定會認清中共的嘴臉， 贏得這場沒有硝煙的戰爭。
 
-**注：各位看官，世間萬物尊天意、敬神命，天意不可違。此文巡“玄天”而做，容小生與您慢慢道來。**
+## **獨家報導：被標記為中共基金教育公司”工具”的科技公司在美國公立學校運營**
 
-**引言：** **百年一川，千年一貴；紅龍滅世，屠龍群者；唯真不破、爆料革命。**
+#### **一家中國教育初創公司在美國學校擴張，從中國科技巨頭騰訊獲得資金，被美國國務院列為”中國政府的工具”。**
 
+據美國《華爾街日報》報導，美國情報官員稱，騰訊一直被描述為“如果中共官員請求援助，他們不能對中國共產黨說’不’”，並收到了鄧文迪（Wendi Deng 有可能是一個中共的內線）的巨額投資。
 
+這家名為維普基德（“VIPkid”）的教育初創公司允許西方教師對學生進行英語語言技能方面的輔導。2017年，公司推出了林戈巴士（LingoBus），允許中國教師在線向美國學生教授普通話。
 
-### 閃電0:13開始之後的3下
+鑑于冠狀病毒推動轉向在線學習，該公司已將其服務”捐贈給”許多美國公立學校。
 
+[!\[\](https://spark.adobe.com/page/7tDm7eLyIobIa/images/501633f3-1f3f-428b-9d4d-4aab7ea47d49.jpg?asset_id=c425baae-ae6e-4c36-bef2-b06e3f8b29e7&amp;img_etag=%2270d247578fe4d3e0a5ee8056cd111b3c%22&amp;size=2560)](https://spark.adobe.com/page/7tDm7eLyIobIa/images/501633f3-1f3f-428b-9d4d-4aab7ea47d49.jpg?asset_id=c425baae-ae6e-4c36-bef2-b06e3f8b29e7&amp;img_etag=%2270d247578fe4d3e0a5ee8056cd111b3c%22&amp;size=1024)
 
+與此同時，參議員特德·克魯茲和喬希·霍利最近提出一項法案，禁止美國官員與被視為國家安全威脅的中國公司合作，主要點名騰訊：
 
-相信大家還記得6·4文貴先生在成立「新中國聯邦」的那一幕雷霆神助，可說是成者人事，達者天命，天德聚義，民心向郭，天命而歸，自助者，天助！
+“像騰訊和華為這樣的公司是中國共產黨的間諜活動，偽裝成21世紀的電信公司。禁止使用這些平台，阻止納稅人的錢被用來完善中共國的間諜網絡的基礎和架構，這是保護美國國家安全的常識性措施。克魯茲參議員宣布。
 
-我們先來看5月21日，中共偽政權開2會時的天氣吧。白晝天空如黑夜，雷霆大閃神宮怒；強風冰雹暴雨夜，惡共一命已嗚呼。
+如果被美國官員認為維普基德（VIPkid）背後至少兩名公眾投資者對美國安全和安保構成明顯危險，為什麼該公司還被允許在美國學校運營？
 
+美國國務院國際安全與防擴散局將騰訊描述為”中國政府的工具”，並指出，如果中共官員們決定請求他們援助，騰訊”沒有能力告訴中國共產黨’不’。”
 
+報告補充說，騰訊提供了“技術推動的監督和社會控制的基礎”，作為中共“塑造符合其威權模式世界”的更廣泛運動的一部分。
 
-在中華大地，大家都愛聽神怪，「推背圖」、「皇極經世書」、「奇門遁甲」……。但今天解說的是自己聽過的事，來玄聊一下我們這一代人，現在正在經歷的事。西方耶穌傳道，基督、天主都在西方而建，寫下了一切的發生。東方印度釋迦牟尼佛開始傳播，之後引入到東方，佛法開始與中華文化結合。**「聖經」**、**「佛經」**四字相信大家耳熟能詳，但相信不是教徒、佛徒都不會去讀這二部經典。不過我另一看法是不論宗教，只愛看書。「聖經」、「佛經」二部獨立可成書，若合在一起，上部就是「聖經」，下部就是「佛經」。
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/BDC09A55-24CC-4C46-8BEE-7960C543E0C0.jpg?asset_id=7E927096-B493-4A03-9EC3-50ED0AE7D2E5&amp;size=1024)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/BDC09A55-24CC-4C46-8BEE-7960C543E0C0.jpg?asset_id=7E927096-B493-4A03-9EC3-50ED0AE7D2E5&amp;size=960)
-#### 邪魔入世：
+換句話說，在美國課堂上運作的學習平台隨時可能被中共徵用。
 
-**基督、天主**
+[!\[\](https://spark.adobe.com/page/7tDm7eLyIobIa/images/1d3dbfa8-eec4-4011-a75d-5317b520e28d.jpg?asset_id=d42a1256-bf2b-414e-a16a-64266b2bf93a&amp;img_etag=%2209aeba6d9e3bdf8db8203001c8bde341%22&amp;size=2560)](https://spark.adobe.com/page/7tDm7eLyIobIa/images/1d3dbfa8-eec4-4011-a75d-5317b520e28d.jpg?asset_id=d42a1256-bf2b-414e-a16a-64266b2bf93a&amp;img_etag=%2209aeba6d9e3bdf8db8203001c8bde341%22&amp;size=1024)
 
-**《啟示錄》：**12章9節，「**大龍**就是那**古蛇**，名叫魔鬼，又叫撒旦，是迷惑普天下的。它被摔在地上，它的使者也一同被摔下去。」
+這不僅引起了人們對數據的存儲最終被中共拿到，還賦予他們控制教課內容的權力，彌合了中共宣傳與美國課堂之間的差距。
 
-**《創世記》：**第3章，亞當和夏娃在伊甸園與上帝同在，但**蛇**誘使他們吃了伊甸園知善惡樹的果實。
+維普基德（VIPKid）甚至因試圖影響學校課程而受到批評，他們解雇了與獨立的台灣和香港一起展示地圖，並準確描述天安門廣場慘案的老師。
 
-自從古蛇–撒旦引誘夏娃犯罪後，直到末世的今天，撒旦敗壞了一代又一代人，作了無數的惡，也殘害了一代又一代人，喝了無數聖徒的鮮血，吞吃了無數的靈魂而成了「大紅龍」。
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/5fa9a6e3-0b57-4b7b-94de-e696c874a785.jpg?asset_id=90f73d8f-c3fe-40bd-b2c2-ac7b2ed5d038&amp;img_etag=%221749798f5a3051ba3d54aa679f6a5bdd%22&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/5fa9a6e3-0b57-4b7b-94de-e696c874a785.jpg?asset_id=90f73d8f-c3fe-40bd-b2c2-ac7b2ed5d038&amp;img_etag=%221749798f5a3051ba3d54aa679f6a5bdd%22&amp;size=1024)
-**佛**
+據了解，騰訊的首席執行官還與中共有直接聯繫，目前擔任全國人大代表和委員，他是中國共產黨的一名黨員。
 
-**《大般湼槃經》卷七**
+他表示支持混淆私營部門和中共國有部門的界限，甚至選擇協助中共處理“執法和安全問題”，並合作製作”愛國”視頻遊戲。
+[!\[\](https://spark.adobe.com/page/7tDm7eLyIobIa/images/71551dbd-5c58-44fd-9f09-e8be9d592a7d.jpg?asset_id=f01cdae3-9117-4fd1-aecf-53b5715ffcff&amp;img_etag=%2248c379eae9dd9b2ee6b40b3655005be8%22&amp;size=1024)](https://spark.adobe.com/page/7tDm7eLyIobIa/images/71551dbd-5c58-44fd-9f09-e8be9d592a7d.jpg?asset_id=f01cdae3-9117-4fd1-aecf-53b5715ffcff&amp;img_etag=%2248c379eae9dd9b2ee6b40b3655005be8%22&amp;size=1024)CEO of Tencent Ma Huateng. 騰訊CEO馬化騰。
+就連進步組織大赦國際（Amnesty International)也將騰訊的數據加密能力評為100分之零，指出它並沒有“公開聲明不會同意政府留後門的要求”。
 
-師釋迦牟尼佛在世，講經說法四十九年，應得度者皆得度。
+騰訊從成立之初就一直在為維普基德（VIPkid）提供資金，自最初開始尋求公共資金以來，騰訊就投入了數百萬美元。而在至少另外三輪融資中，騰訊也”領先”了數億美元的努力。
 
-魔王波旬道與佛陀對話：「你涅磐後，我一定要破壞你的佛法。」
+[!\[\](https://spark.adobe.com/page/7tDm7eLyIobIa/images/df2b3975-d07d-4aad-ac15-1429ebbc0bc5.png?asset_id=ca09159a-8830-4a53-9089-108dcc92faa9&amp;img_etag=%222801ba82247c96f51a389debd7b78851%22&amp;size=2560)](https://spark.adobe.com/page/7tDm7eLyIobIa/images/df2b3975-d07d-4aad-ac15-1429ebbc0bc5.png?asset_id=ca09159a-8830-4a53-9089-108dcc92faa9&amp;img_etag=%222801ba82247c96f51a389debd7b78851%22&amp;size=1024)
 
-……
+在公司最新一輪融資中，在推出林戈巴士（LingoBus）後，維普基德（VIPkid）從騰訊獲得了”未公開”的資金。
 
-魔王波旬道：「到你末法時期，我叫我的徒子徒孫混入你的僧寶內，穿你的袈裟，破壞你的佛法。他們曲解你的經典，破壞你的戒律，以達到我今天武力不能達到的目的」([原文鏈接](https://blog.xuite.net/janetchang27/twblog/101022480-%E9%87%8B%E8%BF%A6%E7%89%9F%E5%B0%BC%E4%BD%9B%E8%88%87%E9%AD%94%E7%8E%8B%E6%B3%A2%E6%97%AC%E7%9A%84%E5%B0%8D%E8%A9%B1))
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/b2decb5c-437c-4f1f-a00c-22b38e5680b0.jpg?asset_id=8a78f198-7990-4420-ae02-097a207d15d5&amp;img_etag=%225a9402f964dca5799e4520c1b70bce43%22&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/b2decb5c-437c-4f1f-a00c-22b38e5680b0.jpg?asset_id=8a78f198-7990-4420-ae02-097a207d15d5&amp;img_etag=%225a9402f964dca5799e4520c1b70bce43%22&amp;size=1024)
-**解說**：西方**「聖經」**和東方**「佛經」**都有說到魔王、撒旦(紅龍)在末世會出現，紅龍魔王，相信大家也明白我所指是誰﹖現今最邪惡、由西方傳到東方，用謊言奪得政權，用假、大、空，貪婪、無恥、邪淫，放縱、洗腦、監控等等一切邪惡來統治中華大地，而且在西方縱容下成為現今最大的紅龍魔王–中共。
+據《華爾街日報》報導，該公司另一位著名投資者和董事會成員是媒體大亨魯珀特·默多克的前妻鄧文迪（Wendi Deng），美國情報官員稱，她可能試圖“進一步維護中共政府的利益”。
 
-#### 諾亞方舟
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/d46c263a-3ff5-4c19-9aad-0d105f40b040.jpg?asset_id=aeede56e-8398-4bf3-a094-f2a65a7f12c1&amp;img_etag=%22fba6023e335c2f32b13759774618facb%22&amp;size=1024)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/d46c263a-3ff5-4c19-9aad-0d105f40b040.jpg?asset_id=aeede56e-8398-4bf3-a094-f2a65a7f12c1&amp;img_etag=%22fba6023e335c2f32b13759774618facb%22&amp;size=1024)
-**《希伯來聖經·創世紀》**
+2017年，鄧向該公司投資2億美元，同年維普基德（VIPkid）啟動了針對美國課堂的林戈巴士（LingoBus ）項目。
 
-- a，創6：18，上帝吩咐諾亞建造方舟時，提到諾亞的兒子和兒媳。
-- b，創7：6，洪水降下諾亞600歲。
-- c，創11：10，兩年後諾亞602歲，閃100歲，諾亞502歲生閃。
-- d，因此，諾亞480歲，上帝決定採取行動；諾亞502歲生閃；假設閃30歲結婚，然後上帝吩咐諾亞開始建造方舟，方舟建造的時間是幾十年。建造時間最多是100年，減去三個兒子都結婚的年齡。
+據報導，官員們警告賈里德·庫什納，鄧涉嫌與中共有聯繫。
 
+*其中一位消息人士說：“美國官員還擔心，默多克正在遊說一個備受矚目的建設項目，該項目由中共國政府在​​華盛頓投資。據知情人士透露，該項目計劃耗資1億美元，位於國家植物園，被認為是國家安全風險，因為它包括一座70英尺高的白塔，可能用於監視。花園計劃位於華盛頓市中心附近的一塊高地上，距離國會大廈和白宮不到5英里，”《華爾街日報》也指出。*
+[!\[\](https://spark.adobe.com/page/7tDm7eLyIobIa/images/b5587144-32c7-4edd-a342-83e7ec3ff7f4.png?asset_id=84682fd0-dee5-43c6-a5cd-bc26b6e903f5&amp;img_etag=%225b777b60ab7dd39e6754c158aa930f87%22&amp;size=1024)](https://spark.adobe.com/page/7tDm7eLyIobIa/images/b5587144-32c7-4edd-a342-83e7ec3ff7f4.png?asset_id=84682fd0-dee5-43c6-a5cd-bc26b6e903f5&amp;img_etag=%225b777b60ab7dd39e6754c158aa930f87%22&amp;size=1024)
+鄧還將自己列為中共的附屬-騰訊的投資者。
 
-#### 爆料LADY MAY方舟
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/fca5fe74-fed3-4768-9a5b-320acdf68d31.jpg?asset_id=40f81220-50b2-4730-b39c-79712e151fb9&amp;img_etag=%2261e5eb9d679546ae2429b15ee211962c%22&amp;size=1024)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/fca5fe74-fed3-4768-9a5b-320acdf68d31.jpg?asset_id=40f81220-50b2-4730-b39c-79712e151fb9&amp;img_etag=%2261e5eb9d679546ae2429b15ee211962c%22&amp;size=1024)
-- 2017年：文貴先生爆料
-- 2017年：爆料革命、情報革命
-- 2018年：路德社
-- 2019年6月：反送中運動
-- 2020年1月：中共病毒
-- 未來：三峽？台戰？南北韓？中印？
+儘管有這些明顯的危險信號，該計劃仍在美國課堂上運作，甚至擴大。
 
+最近，該計劃與由中共資助的孔子學院牽頭的漢語學習倡議結合使用，該組織涉嫌從事間諜和宣傳，被聯邦調查局和政界人士懷疑為間諜和宣傳，導致猶他州幾所公立學校播放中共閱兵式，教師承諾在學生中灌輸漢語“道德和價值觀”，並與中共國習近平主席進行筆友課程。
 
-**解說**：上帝吩咐諾亞建造方舟，諾亞努力而行，眾人笑談諾亞傻子行為，最終活下來的就是信仰不變的諾亞與他們一家人。
+就連中共經營的媒體，也利用這次合作來展示冠狀病毒如何沒有抑制美國學生“對學習中共國語言和文化的興趣”，這是該國冠狀病毒造謠運動的一部分，暗示中共沒有感染和傳播病毒。
 
-爆料革命LADY MAY正是這樣一艘滿載信仰與生機、救苦救難、救世人出水火的諾亞方舟！
+無論是被視為國家安全威脅、宣傳渠道還是數據收集服務，維普基德（VIPkid）和林戈巴士（LingoBus）對美國最易影響的群體-學齡兒童-構成了明確而現實的危險。
 
-2017年文貴先生爆料，美國已經進入黑暗時期，2018年爆料革命路德社爆料，在中共偽政權治下，能走就走，不能走儲糧、換外幣、美金、往山上走。2019年6月，香港反送中運動，拉開了香港人覺醒、反抗的序幕，世界也開始覺醒。2019年12月換黃金，2020年1月中共病毒大爆發，到現在三峽岌岌可危……，庚子年人禍、天災、滅共年。中華大地，邪魔殘害了一代又一代，喝了無數人民的鮮血，吞噬了無數與魔為生的靈魂。覺醒吧，天意難違！
+娜塔莉·溫特斯是編輯的執行助理，也是國家脈搏的高級寫作研究員。她之前在班農戰斗室（WarRoom.org）網站上發表過論文。
 
-#### 末世之象：
+[原文鏈接](https://thenationalpulse.com/news/tech-firm-tool-china-tencent-vipkid/)
 
-**《馬太福音》**
-
-《馬太福音》：24章6至8節：你們也要聽見打仗和打仗的風聲，總不要驚慌；因為這些事是必須有的，只是末期還没有到。民要攻打民，國要攻打國；多處必有飢荒、地震。這都是灾難的起頭（灾難，原文作生産之難）。
-
-《馬太福音》：24章12節：只因不法的事增多，許多人的愛心才漸漸冷淡了。
-
-《馬太福音》：24章4至5節：耶穌回答説：『你們要謹慎，免得有人迷惑你們。因為將來有好些人冒我的名來，説「我是基督」，并且要迷惑許多人。』
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/55a58c12-7a99-4303-8b4e-961f07a2d9e4.jpg?asset_id=95c8f254-45ec-4dd7-b043-df6421a46375&amp;img_etag=%228c8a660757717637d39edfe532cdf056%22&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/55a58c12-7a99-4303-8b4e-961f07a2d9e4.jpg?asset_id=95c8f254-45ec-4dd7-b043-df6421a46375&amp;img_etag=%228c8a660757717637d39edfe532cdf056%22&amp;size=1024)
-**法滅盡經**
-
-**大正藏 卷十三**
-
-佛告阿難：「吾涅槃後、法欲滅時，五逆濁世魔道興盛，魔作沙門壞亂吾道，著俗衣裳、樂好袈裟五色之服，飲酒噉肉、殺生貪味、無有慈心，更相憎嫉。」
-
-「時有菩薩、辟支、羅漢，精進修德、一切敬待，人所宗向、教化平等，憐貧念老、鞠育窮厄，恆以經像令人奉事，作諸功德、志性恩善，不侵害人，損身濟物不自惜己、忍辱仁和。設有是人，眾魔比丘咸共嫉之，誹謗揚惡，擯黜驅遣，不令得住。」
-
-……
-
-「吾法滅時，譬如油燈臨欲滅時，光明更盛，於是便滅；吾法滅時，亦如燈滅，自此之後，難可數說。」
-
-「如是之後數千萬歲，彌勒當下世間作佛，天下泰平、毒氣全消，雨潤和適、五穀滋茂、樹木長大，人長八丈、皆壽八萬四千歲，眾生得度不可稱計。」([原文鏈接](http://www.amitofo3.net/books/sutra12.html))
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/06385d0b-98e6-477f-b907-0fc55024c929.jpg?asset_id=110263e7-08d6-4d1e-836a-98d8dde73b88&amp;img_etag=%22c38bf733d8d0b06ac71194b8ab14ba92%22&amp;size=1024)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/06385d0b-98e6-477f-b907-0fc55024c929.jpg?asset_id=110263e7-08d6-4d1e-836a-98d8dde73b88&amp;img_etag=%22c38bf733d8d0b06ac71194b8ab14ba92%22&amp;size=1024)
-**解說：末世時代**
-
-誰在說，爹親、娘親不及黨親？誰在曲解佛經，破壞宗教？進而破壞方言、文化？誰在鼓勵：與天鬥、與地鬥、與人鬥、其樂無窮？誰在要求宗教先以黨為主？誰在安排西藏第十五世傳人？誰在安排梵蒂岡的領袖？紅龍邪魔——中共！
-
-香港：中共控制下的港共政府，政客黑白顛倒，黑警黑白不分，藍絲阿諛奉承，民心而失，香港人自救，反送中運動中覺醒。有良知的香港人，浴血奮戰，震驚全球。
-
-美國及世界：長年以來的中共滲透，偷竊、收買，黑暗慢慢籠罩起來，接着中共病毒席捲全球，隱藏敵人- 中共，發動生化攻擊，感染超200萬、死亡超過10萬。人民生活被迫改變。共產聯盟、社會主義、政治正確、文革式革命在全球蔓延。
-
-台灣：中共滲透，人民因香港反送中運動覺醒。因及早知道中共以及病毒的邪惡，及時封關。防疫有力，全球認同。中共在節節敗退後、武力威脅正在加速。
-
-邪惡紅龍-中共，盤踞中華大地70年。內鬥、左反、右反、大躍進、文化大革命、對外戰爭、封關鎖國，更有64運動及之後，人民被殘害洗劫的一文不值，淪為無靈魂的人、動物、韭菜。但不乏覺醒的人暗暗等待着。
-
-
-
-**希望**：**彌勒佛**
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/e0629175-58b5-4287-84a0-63e4ee1e2fac.jpg?asset_id=7375bbb0-d9a0-4686-b84b-5bb7519c242f&amp;img_etag=%2214d34970619f7fde9bc428facf4db91a%22&amp;size=4551)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/e0629175-58b5-4287-84a0-63e4ee1e2fac.jpg?asset_id=7375bbb0-d9a0-4686-b84b-5bb7519c242f&amp;img_etag=%2214d34970619f7fde9bc428facf4db91a%22&amp;size=1024)
-明代的劉伯溫也曾說到未來佛祖的降世，說那時天上天下的眾神，都在無邊大劫之中。從歷史的記載和各種傳說中看，彌勒佛都是眾生在未來得救的唯一希望。
-
-彌勒佛在任何末世都會出現，因為代表着希望與重生，末世時人心未變，正義之火未滅，時機一到，有緣而見，追隨上帝，堅定信仰。
-
-當然每個人看法不同，常言道，讀經不以旁人而解，以經解經。當然神化也好，虛言也擺，明者而明，6·4天象，一切已明，正道之意，天選之人。
-
-華人都喜卜卦算命，無非就是想走少點灣路，得到天命。但是在中共體制下的中國，70年對大自然的破壞達到史無前例。把人性劣質化、無恥化、邪惡化，社會道德敗壞，顛倒黑白。直到文貴先生站出來，爆料革命聚起來，3年的超速成覺醒。2020年6月4日，「新中國聯邦」成立了，更重要的是大家看到的是順天意而來，達成天命；唯真不破，正義不滅，黎明是時候到來，追隨信仰、自由、民主、法治、監督。但愿減少生靈塗炭。
-[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/12E145C9-B35C-4B9C-80AB-8A50933AE604.jpg?asset_id=1B516AC4-EE0D-4E9A-A96F-EC325F82D14E&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/12E145C9-B35C-4B9C-80AB-8A50933AE604.jpg?asset_id=1B516AC4-EE0D-4E9A-A96F-EC325F82D14E&amp;size=600)[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/577861FA-DFD0-466C-ACF2-DD4547A517D7.jpg?asset_id=658C51D5-ED1B-4101-B1CD-F40E408B13FF&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/577861FA-DFD0-466C-ACF2-DD4547A517D7.jpg?asset_id=658C51D5-ED1B-4101-B1CD-F40E408B13FF&amp;size=680)[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/28B5C137-186C-4840-BD95-B31D2413971A.jpg?asset_id=96BF443F-A60B-467A-A429-1762968FF2DF&amp;size=3072)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/28B5C137-186C-4840-BD95-B31D2413971A.jpg?asset_id=96BF443F-A60B-467A-A429-1762968FF2DF&amp;size=900)[!\[\](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/87D02BB4-7D5A-4957-94F3-DA826B9C54B2.jpg?asset_id=571F03D9-ABD3-4599-AD94-D31A81086E88&amp;size=2560)](https://spark.adobe.com/page/jrxNfFyHLVZuJ/images/87D02BB4-7D5A-4957-94F3-DA826B9C54B2.jpg?asset_id=571F03D9-ABD3-4599-AD94-D31A81086E88&amp;size=680)
-[释迦牟尼佛与魔王波旬的对话](https://blog.xuite.net/janetchang27/twblog/101022480-%E9%87%8B%E8%BF%A6%E7%89%9F%E5%B0%BC%E4%BD%9B%E8%88%87%E9%AD%94%E7%8E%8B%E6%B3%A2%E6%97%AC%E7%9A%84%E5%B0%8D%E8%A9%B1)
-
-[佛说法灭尽经](http://www.amitofo3.net/books/sutra12.html)
-
-[未来佛弥勒的传说与天机](http://big5.xuefo.net/nr/article53/529901.html)
-
-文章內容僅代表作者個人觀點
-
-嗚謝圖片來源，pixabay、網絡圖片。
-
-編輯 【喜馬拉雅戰鷹團】
-
-
+#### [編輯：【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/7tDm7eLyIobIa/)
 
 0
