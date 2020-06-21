@@ -1,21 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】19/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-21 00:03 GM77` [轉載自GNews](https://gnews.org/zh-hant/240972/)
+## 虛僞至極的聯閤國人權理事會 &#8212; 美國國務卿邁剋爾 R 蓬佩奧(全文翻譯)
+`2020-06-21 01:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/241081/)
 
-戰友之家圖文摘要組及小語種組
+![](https://gnews.org/wp-content/uploads/2020/06/cropped_image1-1.jpeg)
+聯閤國人權理事會現由委內瑞拉，古巴和中共國組成，長期以來一直是放任縱容獨裁者和民主人士的避難所。這使那些真正尋求增進人的尊嚴的人感到徹底的失望。盡管如此，安理會昨天決定對一項關注美國警務和種族的決議進行投票錶決，這標誌著一個新的低點。
 
-[English\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0619_CCP_Virus_Updates.pdf)
+關於喬治·弗洛伊德（George Floyd）在美國不幸去世的公民辯論一直在進行著，這是錶明我們民主力量成熟的標識。美國人知道自己的自由受到憲法和強大法治體係的保護，因此嘗試公開地解決棘手的社會問題。我們很嚴肅地追究個人和機構的責任，我們的民主製度允許我們這樣做。美國每天與世界各地的閤作夥伴閤作，他們與我們一樣緻力於擁有基本自由的承諾。
 
-[French\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0619_CCP_Virus_Updates.pdf)
+不幸的是，安理會再次重申瞭我們決定於2018年退齣的決定是明智的。如果安理會認真地保護人權，那麼還有很多正當閤理的需要應引起關注，例如中共國，古巴和伊朗等地的係統種族差異。如果安理會是誠實的，它將會認識到美國民主的力量，並敦促全世界的專製政權樹立以美國的民主為榜樣，並要求他們的國傢遵守與我們美國人同樣適用的高度問責製和透明度。
 
-[German\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0619_CCP_Virus_Updates.pdf)
+[原文鏈接](https://www.state.gov/on-the-hypocrisy-of-un-human-rights-council)
 
-[Japanese\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0619_CCP_Virus_Updates.pdf)
-
-[Russian\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0619_CCP_Virus_Updates.pdf)
-
-[Spanish\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0619_CCP_Virus_Updates.pdf)
+翻译报道:Hakunamatata
 
 0

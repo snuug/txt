@@ -1,25 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧：美國正在以過去二十年來從未有過的方式來回應中共給全人類製造的這場危機
-`2020-06-21 10:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/241535/)
+## 國際網絡政策中心報告：隔著網絡長城的網絡戰
+`2020-06-21 11:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/241632/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-94.png)圖片來源：Republic World
-據印度斯坦時報近日報導，美國國務卿邁克·蓬佩奧（Mike Pompeo）週五在丹麥哥本哈根舉行的民主峰會的演講中，嚴厲的抨擊中共用流氓態度對待鄰里國家，特別提到中共最近對印度的邊境襲擊。此外，蓬佩奧還表示，中共不但在南中國海軍事化，還非法奪取了更多的領土，威脅到重要的海上通道，並呼籲世界民主國家和熱愛自由的人民團結起來對付中共的流氓行徑。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/08074009/%E4%B8%AD%E5%85%B1%E5%86%9B%E6%96%B9%E6%98%AF%E4%BA%9A%E5%A4%AA%E5%90%84%E5%9B%BD%E6%94%BF%E5%BA%9C%E7%BD%91%E7%BB%9C%E9%97%B4%E8%B0%8D%E6%B4%BB%E5%8A%A8%E7%9A%84%E5%B9%95%E5%90%8E%E9%BB%91%E6%89%8B-1.jpg)
+**以下是澳大利亞戰略政策研究所（ASPI）旗下的的國際網絡政策中心（ICPC）針對Twitter，Facebook公司公佈的一系列信息進行的數據組分析報告。**
 
-蓬佩奧在會議中還指出，中共利用製造虛假信息和發動惡意網絡運動，試圖瓦解美國與歐洲之間的關係。其目的在於用其極權專制的體制來取代自由世界的民主體制。特別是，中共在其冠狀病毒的傳播上與世界衛生組織勾兌，公然對全世界撒謊，導致病毒如今在全世界肆虐。成千上萬的人因病毒感染而死亡，全球經濟也在崩潰的邊緣。然而，即便如此，中共仍然堅持拒絕向世界公佈疫情相關的醫療信息，也不允許外國科學家進入中共疫區深入調查研究。
+[【中文版本】2019年隔著網絡長城的網絡戰: 關於中共國針對香港抗議信息操控行動的初步分析](https://gnews.org/wp-content/uploads/2020/06/%E5%85%B3%E4%BA%8E%E4%B8%AD%E5%85%B1%E5%9B%BD%E9%92%88%E5%AF%B9%E9%A6%99%E6%B8%AF%E6%8A%97%E8%AE%AE%E4%BF%A1%E6%81%AF%E6%93%8D%E6%8E%A7%E8%A1%8C%E5%8A%A8%E7%9A%84%E5%88%9D%E6%AD%A5%E5%88%86%E6%9E%902019.pdf)
 
-蓬佩奧早些時候在夏威夷與中共國政治局委員楊潔篪所率領的代表團會面。蓬佩奧透露說，美國同意進行此次會談的主要原因想看中共下一步想要做什麼。之前已經聽了太多中共所給出的口頭上的各種承諾，美國不想再這樣繼續浪費時間了。現在是時候把焦點轉移到中共的種種行動上，比如說，中共目前在香港、西藏、新疆還有印度的所作所為，在菲律賓和馬來西亞以及印度尼西亞和越南等經濟區的舉動，和對澳大利亞實施的威脅等等。
+[【中文版本】2020年隔著網絡長城的網絡戰: 威脅自由世界的頑固黑手](https://gnews.org/wp-content/uploads/2020/06/%E5%A8%81%E8%83%81%E8%87%AA%E7%94%B1%E4%B8%96%E7%95%8C%E7%9A%84%E9%A1%BD%E5%9B%BA%E9%BB%91%E6%89%8B2020.pdf)
 
-蓬佩奧國務卿發出預警說，中共的策略是針對單個國家發出挑戰並進行威脅。世界民主國家對付中共這種流氓政權的最好的辦法就是聯合起來，集體抵制它。美國現在兩黨的立場在這個問題上已經達成了統一。實際上，美國正在以過去二十年來從未有過的方式來回應中共給全人類製造的這場危機。
+[【英文版本】2019 Tweeting through the great fire wall: Preliminary analysis of PRC-linked information operations against the Hong Kong protests](https://gnews.org/wp-content/uploads/2020/06/Tweeting-through-the-great-fire-wall-2019.pdf)
 
-評：
-
-中共的流氓本性已經正在被全世界看清，更為可喜的是美國兩黨在這一點上已經達成了統一。正如路德訪談中所說的，只有民意統一之後，美國才能真正對中共宣戰。如若民意不統一，那麼時機就還不成熟，最後結局恐怕會和越南戰爭一樣，造成美國內部的分裂。而中共的最後的瘋狂正在讓世界上熱愛自由與民主的人民清醒過來，並且聯合起來終結它邪惡的統治。
-
-[原文鏈接](https://www.hindustantimes.com/world-news/us-calls-china-rogue-state-cites-border-attack/story-3NkKvxgtpaS6j19D8mm07J.html)
-
-翻譯報導：匿名
-校對整理：晴天小螞蟻
+[【英文版本】2020 Retweeting through the great firewall: 2020 A persistent and undeterred threat actor](https://gnews.org/wp-content/uploads/2020/06/Retweeting-through-the-great-firewall-2020.pdf)
 
 0
