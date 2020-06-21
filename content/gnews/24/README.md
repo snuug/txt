@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮2020年父親節公告
-`2020-06-20 06:10 GM31` [轉載自GNews](https://gnews.org/zh-hant/240115/)
+## 立武出品：北京疫情爆發節點奇怪 引猜測
+`2020-06-20 09:32 GM09` [轉載自GNews](https://gnews.org/zh-hant/240265/)
 
-ROCLAMATIONS
+作者：立武
 
-**Father’s Day, 2020**
+6月18日，中共疾控中心流行病首席專家吳尊友說，**昨天新增疫情來看，我可以說，北京疫情控制住了。**
 
-Issued on: June 19, 2020
+6月17日，中共自己報道，北京新增確診21例，**北京疾控直接說，推斷疫情在早期即被發現，目前還處在上升期。**
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.17.07-PM.png)
+面對中共前後矛盾的說辭，到底應該相信誰呢？
+
+## 壹 **感染已經發生了很長時間，中共掩蓋疫情已經造成巨大面積感染。**
+
+6月16日，中共疾控中心主任高福表示，**北京這次疫情很可能不是在****6****月初，****5****月底才出現，很可能要提前推壹個月。**
+
+不管高福是不是戰友，高福的話至少反應了部分事實。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.18.07-PM.png)
+北京壹直存在疫情是不爭的事實。5月18日出現西城區33人集體發熱，中共通報不是因為中共病毒；5月8日，北京高三復課後141名學生出現發熱，中共通報排除中共病毒感染；按吳尊友的意思，**新增不是新感染，前幾天就已經發病，發病前早就感染，**但當時北京還沒有采取嚴控措施，造成二次感染是多大？
+
+吳尊友認為控制住的依據是所有病例指向壹個來源——新發地市場，都和新發地有關只是報道出來的，就算只和新發地有關，新發地面積多大，人多少，這麽多人放出去造成的傳播不大嘛。**再壹個，****17****日天津出現壹起自述無外出史的本地確診，中共是不是又要編故事將他與新發地聯系起來**。
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.19.00-PM.png)
+吳尊友甚至稱沒有觀察到明顯家庭聚集性傳播，然而中共自己通報，**截至****6****月****17****日，北京已發現****8****起聚集性疫情，**工作單位有聚集性疫情，家庭怎麽可能都沒有，壹起聚集性都不存在。18日有壹名小學生確診，結果家庭成員都沒事，而之前卻是爸爸確診，小孩沒事，難道不應該質疑中共試劑出了問題？
+
+**學生確診、餐廳確診，學校、餐廳這些密切接觸場所，帶來二次感染有多大？**
+
+吳尊友聲稱，北京響應及時，把疫情控制在最小範圍，可是接連出現的**河北、四川、浙江、遼寧出現北京確診關聯病例，**這叫最小範圍？
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.19.30-PM.png)
+## 二 **下壹步，中共將再次利用疫情歌頌偉光正**
+
+吳尊友敢在這個時候說北京疫情控制住，說明中共已經決心要繼續掩蓋疫情真相。
+
+**但就像郭文貴先生說的，放不放是可以決定，但控制不控制得住不是中共可以決定的。中共根本不可能控制得住疫情，**
+
+15日，中共專家直接道出，北京疫情傳染性似乎高於武漢。首先，這可能是事實，但不意味著中共在承認疫情控制不住，而是要烘托中共控制疫情非常厲害；然後，如果僅僅根據病例數來看，此前是中共隱瞞的力度要比現在大，不能說明哪個傳染性強，**中共更有可能引導輿論：武漢病毒比較弱，所以中共報道確診、死亡人數都比歐洲少，而不是中共隱瞞，這也說明病毒不是來源中共，而是歐洲。**
+![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-10.20.06-PM.png)
+## 三 **疫情節點奇怪**
+
+此次疫情爆發在中美會談前，壹切跡象表明中共要把疫情來源推給歐洲；在中美會談崩塌之際，中共官員又出來說控制住了，顯然是避免影響到國民的愛黨熱情；**接下來，美國壹定出病毒報告，郭文貴先生似乎在暗示，英雄科學家可能出來做節目，這次疫情更有可能是應對西方社會對病毒來源的質疑。**
+
+中共既要讓疫情有影響力，足夠影響國內輿論，又要避免過度打擊國民的愛黨熱情，必須控制住，**但天意不可違背，民心不可欺，等待中共的將是霹靂雷霆行動。**
 
 
-
-## **2020年父親節公告**
-
-發布日期: 2020年6月19日
-
-Fathers are instrumental in helping prepare children for life, instilling in them the values essential to one day becoming responsible, grounded, and successful adults. As a Nation, we are grateful to the men dedicated to raising well‑rounded children. On Father’s Day, we honor and celebrate our fathers and father figures for their daily contributions to thriving families and communities.
-
-父親在幫助孩子料理生活以及給他們灌輸一些必要的價值觀念以期將來成為一個負責、務實和成功的成人方面，發揮著重要作用。作為一個國家，我們感謝那些為培養個性全面充分發展的孩子而做出奉獻的男人們。在父親節這一天，我們向我們的父親和那些父親般的人物表達祝賀和敬意。因為是他們每天的貢獻給我們帶來了欣欣向榮的家庭和社區。
-
-The presence of fathers in the lives of our Nation’s children is important to their growth, development, and well‑being. Fathers serve as role models to their children, exemplifying hard work, devotion to family, self-confidence, and faith. Through their character, determination, strength, and direction, they guide our futures toward happiness. Thus, it is no surprise that research increasingly shows involved fathers can help foster self-esteem, success in school, empathy, and positive behavior in their children.
-
-在我們國家的孩子的一生之中，父親的存在對他們的成長、發展和幸福非常重要。父親是孩子的楷模，向孩子展示了勤奮、對家庭的奉獻、自信和信仰。父親通過他們自己的品格、決心、勇氣和目標，引導我們走向幸福的未來。因此毫不奇怪，越來越多的研究顯示，一個身心投入的父親有助於孩子的自尊心建立、學業成功、同情心和積極行為的培養。
-
-By raising children to be happy, productive, and responsible adults, fathers play a critical role in shaping our society. Our fathers set an example for us of how to be our best in every aspect of our lives. The lessons they teach us guide us as we strive to care for our families, succeed at school and at work, serve others, and contribute to our communities. They are integral to raising future generations of Americans who will continue to build an ever-stronger Nation. That is why my Administration continues to provide grant funding to organizations across our country that work to strengthen relationships between fathers and their children, foster responsible parenting, and help fathers find and keep gainful employment.
-
-通過把孩子培養成快樂、有成就感和負責任的成年人，父親對於塑造我們的社會扮演著關鍵的角色。我們的父親給我們樹立了榜樣，告訴我們如何在生活的每一個方面做最好的自己。當我們努力去照顧家庭、取得學業和工作上的成功、為他人服務以及為社區做貢獻的時候，他們傳授給我們的經驗都在給我們提供指導。他們是培養美國子孫後代不可或缺的一部分，而這些美國人的後代將會繼續建設一個越來越強大的國家。這也是為什麼我的政府繼續提供巨大的資金，支持那些為增強父親子女關係、促進盡責養育、幫助父親找到並保有有酬工作而努力著的全國各個組織。
-
-Our Nation is indebted to the men who have embraced the great blessing and solemn duty of fatherhood. Every day, they make sacrifices to ensure their children, whether by birth, adoption, or foster care, receive the care and affection they deserve. Today, we express our everlasting gratitude to our fathers and father figures for their love and commitment, and for all they have done to shape our lives.
-
-我們國家要感激那些男人們，他們欣然承擔起父親的身份，這個身份既是一種偉大的祝福也是一個莊嚴的責任。每一天他們都在做出犧牲，以確保他們的孩子——不管是親生，收養或者是寄養——得到需要的關懷和愛護。今天，我們向父親和父親般的人物表達我們永恆的感恩，感謝他們的愛和信諾，還有他們為塑造我們的生活所付出的一切。
-
-NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, in accordance with a joint resolution of the Congress approved April 24, 1972, as amended (36 USC 109), do hereby proclaim June 21, 2020, as Father’s Day. I call on United States Government officials to display the flag of the United States on all Government buildings on Father’s Day and invite State and local governments and the people of the United States to observe Father’s Day with appropriate ceremonies.
-
-因此現在，我，唐納德·J·川普，美利堅合眾國總統，根據經修訂的1972年4月24日國會批准的聯合決議（美國法典 36 U.S.C.109），宣布2020年6月21日為父親節。我號召美國政府機關在父親節這一天，在政府大樓上懸掛美國國旗；邀請州和當地政府以及美國人民以適當的慶典來慶祝父親節。
-
-IN WITNESS WHEREOF, I have hereunto set my hand this nineteenth day of June, in the year of our lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fourth.
-
-DONALD J. TRUMP
-
-謹此簽署於我主2020年6月4日、美利堅合眾國獨立244年為證。
-
-唐納德·J·川普
-
-閱讀原文：https://www.whitehouse.gov/presidential-actions/fathers-day-2020/
-
-*翻譯：【鄉間小路】校對：【致敬香港！ 】*
-
-*戰友之家玫瑰小隊出品*
 
 0
