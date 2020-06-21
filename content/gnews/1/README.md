@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友之家“挺郭滅共，這三年！”演講（第9期）
-`2020-06-21 04:51 GM30` [轉載自GNews](https://gnews.org/zh-hant/241232/)
+## 2020年6月20日CCP冠狀病毒大流行第148集
+`2020-06-21 08:09 GM30` [轉載自GNews](https://gnews.org/zh-hant/241437/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+陝西西安商家被明搶，報警不見警察蹤影；湖北施恩連續暴雨影響，多個鄉鎮受災；北京荒唐的紮堆核酸檢測，有一個傳染的，大家都完蛋……
+
+
 
 0

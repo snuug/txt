@@ -1,35 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮新聞發言人關於前國家安全顧問約翰·博爾頓的聲明（中英文對照）
-`2020-06-20 21:20 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/240807/)
+## 中共網軍“前僕後繼” 用“人海戰術”拙劣錶演
+`2020-06-20 23:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/240898/)
 
-新聞摘要：美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰·博爾頓的指控是正確的，裁定 “博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。同時，他也使得自己面臨刑事責任。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/20232149/image1-19.png)*來自網上電影截圖*
+據華爾街日報香港分社近日報導，澳大利亞戰略政策研究所（Australian Strategic Policy Institute，以下簡稱ASPI) 的一份分析報告指出，就在推特（Twitter）刪除大約17萬4千個中共大外宣網軍賬戶之後的第二天，6月12日，中共新的帳戶和重新啟用的舊帳戶已經出現在推特和臉書上，以同樣的方式，散佈著歪曲事實的消息，例如中共利用美國警察拘捕喬治·弗洛伊德（George Floyd）致死引發的內亂， 散佈對中共有利的歪曲報導。
 
-**Statement from the Press Secretary**
+ASPI對推特刪除的17萬4千個帳戶中核心的2萬多用戶作了審查，總結出以下三個特點：
 
-LAW & JUSTICE      Issued on: June 20， 2020
+**中共在推特、臉書賬戶上粗製濫造，容易識別；**
 
-**新聞發言人聲明**
+報告中指出幾十個臉書帳戶與推特帳戶上有非常相似或者相同的內容，而且有突然轉發中文的行為。在推特上，針對華僑發的推文大多數沒人注意，80%的帳戶沒有人關注，大多數推文有錯誤，如拼寫錯誤和文化、語言、法律方面的錯誤。
 
-法律與司法類     發佈日期:  2020年6月20日
+還有很多帳戶突然改變話題或所使用的語言，比如，在3月，有一位法語推特用戶，突然用中文發推來攻擊郭文貴先生。這些現象表明它們是重新啟用的舊帳戶。
 
-The United States District Court for the District of Columbia today vindicated the Government’s claims against former National Security Adviser John Bolton， ruling that “Bolton likely jeopardized national security by disclosing classified information in violation of his nondisclosure agreement obligations.”  The court rightly chastised Bolton for treating as “intolerable” a review process for his book that the court believed was “reasonable.”  As the court explained， “Bolton has gambled with the national security of the United States，” hoping to secure profits by violating his nondisclosure agreements.  But Bolton bet wrong， and the downside of his losing bet is that he “stands to lose his profits from the book deal， exposes himself to criminal liability， and imperils national security.”
+中共散佈虛假信息的策略是“人海戰術“ – 只求速度和規模，不求質量
 
-美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰-博爾頓的指控是正確的，裁定“博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。法院公正地譴責了博爾頓，因為他把法院認為是 “合理的 ”對他的書的審查程序當作 “不能容忍的”。正如法院解釋的那樣，”博爾頓用美國的國家安全進行了賭博”，希望通過違反他的保密協議來確保他的收益。 但博爾頓賭錯了，他賭輸了的壞處是 “將失去他將出版的那本書交易所得的收益，使自己面臨刑事責任，並危及國家安全”。
+**中共在推特上使用的手法是運用大量垃圾內容淹沒話題。**
 
-The court denied the Government’s request for an injunction solely because Bolton’s wrongful conduct—carried out in secret—had already ensured that the book was so widely disseminated that the court believed it could no longer grant an effective remedy.
+另外，中共通過使用第三方商業機器人網絡，在推特上主導對一些主題標籤的搜索，來達到增加帖子數量的目的。
 
-法院拒絕了政府的禁令請求，完全是因為博爾頓秘密進行的錯誤行為已經造成了這本書被廣泛傳播，法院認為無法再給予有效的補救。
+近幾月來，中共的官員和外交官紛紛上推特，為中共處理新冠狀病毒大流行作辯解，攻擊美國，甚至編造病毒是源於美國的謊言。他們得到了一群匿名帳戶的網軍支持，得以擴大散佈他們的假信息。
 
-The Government intends to hold Bolton to the further requirements of his agreements and to ensure that he receives no profits from his shameful decision to place his desire for money and attention ahead of his obligations to protect national security.
+**中共網軍頑固地“前仆後繼”**
 
-政府打算要求博爾頓遵守其協議的進一步要求，並確保他不因其將對金錢和關注度的渴望置於保護國家安全的義務之上的可恥決定而獲利。
+儘管推特幾波地刪除中共網軍的帳戶，但他們總是能很快地建立新帳戶或啟用舊帳戶來填補空白，有時只需幾天的功夫，從而繼續“前赴後繼”地在網絡上散播虛假的信息。
 
-[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-130/)
+評：如果推特刪除帳戶的動作對中共的打擊是這麼蒼白無力，無論是因為技術操作的困難，或是利益關係所在，而事實上這是中共國向西方國家民眾故意散佈虛假信息，就是侵蝕、侵犯西方國家的民主、自由和主權，西方國家下一步能不能立法來裁決和製裁中共這種“信息戰”的國家犯罪行為？譯者認為這和推倒防火牆一樣迫在眉睫。
 
-*翻譯：【班班】 校對：【恆久忍耐】*
+[原文鏈接](https://www.wsj.com/articles/china-relies-on-persistence-in-social-media-propaganda-push-11591958546)
 
-*戰友之家玫瑰園小隊出品*
+翻譯報導：Triumph 6420
 
-1
+0
