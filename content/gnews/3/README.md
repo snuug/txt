@@ -1,21 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國潛艇在奄美大島附近水域潛航引日方警覺
-`2020-06-21 07:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/241388/)
+## 梵蒂岡收中共高達20億美金的賄賂，默認中共對宗教信徒的暴行
+`2020-06-21 10:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/241555/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-93.png)圖片來源：[朝日新聞](https://www.asahi.com/articles/photo/AS20200620001383.html)
-據《日本時報》報導，日本防衛省20日表示，一艘外國潛艇於18日下午在日本鹿兒島縣奄美大島東北毗連區的水下向西行駛。此外，海上自衛隊的驅逐艦和巡邏機在20日上午監測到該潛艇在鹿兒島縣橫當島以西的毗連區外向西行駛。該潛艇通過了鹿兒島縣吐噶喇島鏈與奄美大島之間的一條狹窄水域，但並未浮出水面。為了避免為判斷海上自衛隊的探測能力提供線索，日本防衛省拒絕透露該潛艇的國籍和型號。但是消息人士稱，這是中共國海軍的潛艇，其行為極不尋常，而自衛隊則認為該潛艇是為測試日美兩國的反潛戰能力而來。
+**作者：Dogman**
 
-毗連區指從12海裡領海向外延伸至24海裡的水域帶。根據國際法，潛艇在外國領海必須浮出水面併升起國旗，但並未禁止在他國領海外圍的毗連區內潛航。
+6月20日，爆料革命發起人和領導人郭文貴先生在接受史蒂夫班農先生戰鬥室的采訪中（鏈接1），透露了中共利用BGY計劃（鏈接2）腐蝕外國的細節。梵蒂岡，意大利和澳大利亞等國家精英階層每年接受中共巨額賄賂，其中梵蒂岡每年從中共那裏接受高達20億美金。
 
-日本防衛大臣河野太郎要求自衛隊盡一切努力收集情報，並執行警戒和監視。參與這些活動的包括鹿兒島鹿屋基地和沖繩縣那霸基地的海上自衛隊巡邏機、長崎縣佐世保基地的“足柄”號宙斯驅逐艦以及廣島縣吳基地的“加賀”號直升機護衛艦。
+郭文貴先生透露說，“中共每年撥款20億美金使用BGY的方式”來賄賂梵蒂岡以影響梵蒂岡內部的政策制定，使其在中共壓迫宗教自由的行為上默不作聲。
 
-日本首次在尖閣島（中共國稱“釣魚島”）的毗連區觀測到中共國潛艇是在2018年1月。這一事件引發了東京的警覺，隨後向北京投訴。
+郭文貴先生還透露，自2014以來，中共內部制定政策，將與國外貿易額的一定比例投諸BGY計劃，用以侵蝕當地國系統 。郭先生說目前用於美國的BGY額度是5%。 根據美國貿易辦公室的數據（鏈接3），2018年中美之間的貿易總量為7371億美金。如果按照5%來計算，用於美國內部BGY的額度約為368億美金。郭先生還說“中共與澳大利亞的貿易額約為2000億美金，以前是1%用於BGY，後來漲到了5% ，也就是100億美金被用於BGY”。而這些巨量的BGY資金的 用途包括“賄賂當地官員，控制媒體言論”和“控制當地資源”。
 
-[原文鏈接](https://www.japantimes.co.jp/news/2020/06/21/national/japan-detects-foreign-submarine-amami-oshima/#.Xu7OjWj7Sbh)
+通過郭文貴先生透露的信息，我們從邏輯上就能夠理順，為何在CCP病毒肆虐全球，殺死全球將近50萬人的時候，仍然有多個國家主動為中共站臺，其背後則是被重金收買的巨大政治影響力。
 
-翻譯報導：匿名
-校對整理：胡天歸雁
+郭文貴先生在之前的直播上還透露，為了噤聲讓爆料革命並降低新中華聯邦建國的影響力，中共斥資40億美金對爆料革命進行網絡壓制（鏈接4）。
+
+隨著時間的推移，筆者才慢慢才明白保持中共體系不倒最重要的概念就是“維穩”。對內，為了壓制國內的反對聲音和所謂的“社會不穩定因素”，2019年中共撥款近1萬4千億人民幣進行維穩，按照當前匯率約為2000億美金,比軍費開支還要高；對外，將貿易額按照固定比例投放用於BGY計劃，來腐蝕國外的政治經濟系統，使其為中共站臺，而根據中共的數據，2019年中共國的進出口總值為31.54萬億人民幣（鏈接5），按照當前的匯率折算4.5萬億美金；如果5%用於BGY計劃，總量約為2252億美金，大致與對內維穩費用持平。
+
+而在對內與對外維穩之間，則是中共官宦家族盜走的，不計其數的屬於中國人民的財富。
+
+鏈接：
+
+1. [https://www.youtube.com/watch?v=lRQDaIYm\_NI&t=915s](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+2. [https://gnews.org/154724/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+3. [https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018.](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+4. [https://gnews.org/zh-hans/212633/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+5. [http://www.gov.cn/xinwen/2020-01/14/content\_5468996.htm](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+
+
+
 
 0
