@@ -1,51 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 索羅斯未能撼動的聯系匯率制度，這次真的即將失守？
-`2020-06-20 14:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/240516/)
+## 白宮新聞發言人關於前國家安全顧問約翰·博爾頓的聲明（中英文對照）
+`2020-06-20 21:20 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/240807/)
 
-**—-凱爾巴斯做空港幣背後**
+新聞摘要：美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰·博爾頓的指控是正確的，裁定 “博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。同時，他也使得自己面臨刑事責任。
 
-作者**：經濟小組 CuteQ小姐**
+**Statement from the Press Secretary**
 
-港幣兌美元聯系匯率制度，自1983年起，就不斷遭受包括索羅斯在內的國際投機者攻擊。
+LAW & JUSTICE      Issued on: June 20， 2020
 
-上周彭博傳出消息，凱爾巴斯，海曼資本創始人，法制基金主席，已於6月1日創立一只新基金：Hayman Hong Kong Opportunities Fund, LP-Prodigious Series。
+**新聞發言人聲明**
 
-大膽猜測，這支便是文貴先生上個月提到自己參投的基金。文貴先生講，通常外匯最多加60倍杠桿，且看跌期權可以隨時強制平倉。 但他參投的基金利用200倍杠桿，且期限固定在18個月，後續可能延期6個月。
+法律與司法類     發佈日期:  2020年6月20日
 
-換言之，此基金以200倍杠桿 ，買入執行價格在1:10.85左右且18個月到期的港幣看跌期權。若18個月後 （或24個月後）港幣跌幅觸及40%，基金會行權賺取64倍收益；反之不行權，損失掉基金本金（即買入看跌期權的期權費）。
+The United States District Court for the District of Columbia today vindicated the Government’s claims against former National Security Adviser John Bolton， ruling that “Bolton likely jeopardized national security by disclosing classified information in violation of his nondisclosure agreement obligations.”  The court rightly chastised Bolton for treating as “intolerable” a review process for his book that the court believed was “reasonable.”  As the court explained， “Bolton has gambled with the national security of the United States，” hoping to secure profits by violating his nondisclosure agreements.  But Bolton bet wrong， and the downside of his losing bet is that he “stands to lose his profits from the book deal， exposes himself to criminal liability， and imperils national security.”
 
-解釋一下，例如投入100萬本金，加了200倍杠桿後可以撬動2億資金。到期若跌幅觸及40%，收益為2億\*40%\*(1-20% 基金表現費)=6400萬，既64倍收益。05年開始，香港聯系匯率制度增加了強方兌換保證（1：7.75）和弱方兌換保證（1：7.85），並承諾只要觸及任一邊界，香港金管局會入市幹預，以保證匯率在1美元兌7.75-7.85港幣之間浮動。為保證港幣有美元作支撐，且維持匯率穩定，香港的三家發鈔銀行（匯豐銀行、渣打銀行和中國銀行）每發行7.8港幣也必須向香港金融管理局交納1美元。另一方面，香港也需要維持與美國相同的利率水平。若港幣跌幅屆時觸及40%，則意味著聯系匯率制度即將瓦解；或者，需要重新設立較弱的聯系匯率區間。
+美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰-博爾頓的指控是正確的，裁定“博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。法院公正地譴責了博爾頓，因為他把法院認為是 “合理的 ”對他的書的審查程序當作 “不能容忍的”。正如法院解釋的那樣，”博爾頓用美國的國家安全進行了賭博”，希望通過違反他的保密協議來確保他的收益。 但博爾頓賭錯了，他賭輸了的壞處是 “將失去他將出版的那本書交易所得的收益，使自己面臨刑事責任，並危及國家安全”。
 
-雖然此基金看空港幣，但不像1997年的索羅斯，在貨幣市場上大量拋售港幣，令港幣匯率大跌。因此上周消息一出，匯市並未受影響。
+The court denied the Government’s request for an injunction solely because Bolton’s wrongful conduct—carried out in secret—had already ensured that the book was so widely disseminated that the court believed it could no longer grant an effective remedy.
 
-總結一周來國內外媒體，投資界人士的觀點為：
+法院拒絕了政府的禁令請求，完全是因為博爾頓秘密進行的錯誤行為已經造成了這本書被廣泛傳播，法院認為無法再給予有效的補救。
 
-1）高調公布做空消息，只為吸眼球；希望市場跟隨，以獲得當前看空倉位平倉機會。
+The Government intends to hold Bolton to the further requirements of his agreements and to ensure that he receives no profits from his shameful decision to place his desire for money and attention ahead of his obligations to protect national security.
 
-2）相較97年980億美元外匯儲備，香港金管局截止5月底官方外匯儲備為4423億美元（香港流通貨幣的6倍）且背後有大陸3.23萬億美元支持 （通過與中國人民銀行的掉期額度以支持港幣兌美元匯率），匯率制度牢不可破。
+政府打算要求博爾頓遵守其協議的進一步要求，並確保他不因其將對金錢和關注度的渴望置於保護國家安全的義務之上的可恥決定而獲利。
 
-霍華德馬克斯在《投資中最重要的事》中提及過，只有擁有超出大眾的第二層思維，當判斷高人一等時，才可能跑贏市場。
+[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-130/)
 
-一個18個月的期權合約，怎麽會讓大眾條件反射似地認為目的是平倉？或許，凱爾的第二層思維，是建立在大眾條件反射基礎上的。他曾提出，資本流動比資本存量更重要。只有資本流動有意義，外匯儲備才很重要。沒有外幣計價的經常賬戶盈余支撐進口，外匯儲備數字真正的意義又該如何解讀？
+*翻譯：【班班】 校對：【恆久忍耐】*
 
-無獨有偶, 倫敦Trium資本的Thomas Roderick認為，從長期看，多大規模美元儲備的幹預，也無法挽救沒有信念支撐的匯率制度。因為沒有令人信服的理由做對手交易。若大量資金流出將利率推到極高水平會怎樣？重要的是對港元流動性的影響，而不是美元儲備的影響。
+*戰友之家玫瑰園小隊出品*
 
-自2008年金融危機，香港跟隨美國將利率降至幾乎為零。本地居民，銀行及公司大量借貸，香港企業杠桿已達到全球最高。同時銀行資產已達GDP 900%。此前因債務危機而破產的國家，如冰島、塞浦路斯和愛爾蘭的銀行資產為GDP1000%以上。目前香港銀行大部分的貸款為浮動利率，美國或香港利率變化均會影響借貸市場。
-
-當前香港處於各種沖突中（國安法，疫情，中美關系等），作為資金往來橋梁現金流將難以平衡。本地居民資金外流會通過銀行外匯結余體系帶走外匯。如果央行沒有足夠的美元買入市場上過多的港幣，可能造成聯系匯率崩潰。另一方面，如若美國對香港的聯系匯率制度進行政策打壓，也必然撼動聯系匯率。
-
-目前，任一國家地區的債務風險爆掉都會刷新人類歷史。經濟金融，考驗的是挪東墻補西墻的能力。至於誰拖的更久，就很難說了。到處都是雷，因此避開踩雷的時機極為重要。
-
-世間萬物，成住壞空，周期往復。見證人類歷史的任一重大轉折點，18個月內，3年、5年抑或10年後，會有多大區別呢？
-
-理解文貴先生為什麽投了基金，卻又勸戰友不要跟投。猜得對結局，但沒人猜得準時機。
-
-親愛的戰友們，堅持自己的信念，見證每個推動人類歷史轉折的時刻，跟著文貴先生一起健身，隨著泡沫的生生滅滅而舞蹈。。。
-
-![](https://gnews.org/wp-content/uploads/2020/06/1-131.png)
-
-![](https://gnews.org/wp-content/uploads/2020/06/2-78.png)
-
-0
+1

@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮新聞發言人關於前國家安全顧問約翰·博爾頓的聲明（中英文對照）
-`2020-06-20 21:20 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/240807/)
+## 班農戰情室236自由聯盟
+`2020-06-21 00:05 GM67` [轉載自GNews](https://gnews.org/zh-hant/240980/)
 
-新聞摘要：美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰·博爾頓的指控是正確的，裁定 “博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。同時，他也使得自己面臨刑事責任。
+作者：VOG翻譯組 starwar    編輯：VOG翻譯組 flasher
 
-**Statement from the Press Secretary**
+主持人班農提到星期三美國媒體代理機構的新任CEO邁克爾·派克炒掉了下屬四個分支的領導，包括自由亞洲電臺，自由歐洲電臺的相關領導。加上之前已經辭職的美國之音主管，美國已經清理了政府所屬媒體內部的所有親共派領導。班農戲稱為「星期三大屠殺」。然後提到印度和中共的邊境衝突，提到為什麼穆迪可以鑒定地站在反抗中共的最前沿，因為他知道美國是支持他們的，他們站在「自由聯盟」（Alliance of Liberty）這邊。接著提到前白宮官員約翰·博爾頓（John Bolton）的新書，稱其中對川普的描述非常不準確。班農說這套論調就是老政客和那些掌權的機構（華爾街、大跨國企業）一直以來的看法，他們不關心美國人，這正是川普總統當選的原因。班農調侃說博爾頓就像個戰爭販子，經常說炸這裡炸那裡。隨後播放了一段博爾頓在ABC電視臺的採訪，裡面博爾頓提到川普更關心的是自己的連任，而不關心他所有行動的政治後果。班農氣笑了，為什麼楊潔篪要約見彭培奧？因為中共有求於美國。而且布隆伯格的媒體爆出來有8個中共官員出來講話，說川普讓美國變弱，拜登才是我們真正害怕的美國領導人。這完全是中共的資訊戰，全是假的。而且布隆伯格在新加坡還說過，王岐山是世界上最有權力的人。
 
-LAW & JUSTICE      Issued on: June 20， 2020
+支持人葛列格播報了即時新聞，川普總統挑戰DACA的提議被超級大法院否決了。班農說這個後面節目會詳細討論它的影響。傑克·麥克西找了一段博爾頓過去的資料，早在小布希政府時期（2005年）就有人反對博爾頓任職聯合國職位，因為覺得他不尊重上級決定，很難代表美國利益。班農總結，博爾頓的戰略策略沒有得到川普政府的支持，在針對中共的全球戰略佈局上，他輸了。要知道，北約的統帥告訴川普，請求他幫助讓這些北約國家付錢，川普做到了。而且指出在比利時建20億元的總部沒任何意義，而我們需要的是分散式的部署。博爾頓這些「資訊戰」我們要在後面的節目一件件給他戳破。
 
-**新聞發言人聲明**
+班農說博爾頓和羅伯特·蓋茨的書代表的是當權派的政客，他們在中東花了7萬億卻什麼也沒幹成。而那些錢都是美國人民的養老金，還有美國人的孩子被送到戰場上去冒險。班農繼續抨擊這些老政客，現在美國的衰落等所有這一切都是他們的不作為造成的，並且他們忽視了真正的威脅——中共。拜登在位期間，奧巴馬政府的「轉向亞洲」策略其實什麼也沒幹，看看現在中國南海和中印衝突，這都是這些當權派當時政策的後果。
 
-法律與司法類     發佈日期:  2020年6月20日
+莫拉·莫妮菡（Maura Moynihan）連線，班農問，你過去幾十年一直尋求解決這個問題，告訴我們「星期三大屠殺」發生了什麼，為什麼這對我們，對中國人和西藏人都是好事。莫拉說，西藏問題是中共的軟肋，自己在自由亞洲電臺西藏事務方面工作了十五年，Libby Liu接任以後把新聞風向變軟，處處迎合中共。想想越戰時期有300個藏人支持達賴喇嘛，在警察局前自焚，當時新聞造成轟動，但是現在我們很難看到西藏的真實新聞。VOA的問題也類似，變得迎合中共。我們一直呼籲，寫信，但是問題一直都沒有被解決。派克先生一天就把這些搞定了（炒掉四個親共高層），所以謝謝他！班農補充，川普總統任命了派克，派克幹掉了親共的走狗，這是每天都在為中國人和西藏人的人權工作的莫拉口裡說出來的。
 
-The United States District Court for the District of Columbia today vindicated the Government’s claims against former National Security Adviser John Bolton， ruling that “Bolton likely jeopardized national security by disclosing classified information in violation of his nondisclosure agreement obligations.”  The court rightly chastised Bolton for treating as “intolerable” a review process for his book that the court believed was “reasonable.”  As the court explained， “Bolton has gambled with the national security of the United States，” hoping to secure profits by violating his nondisclosure agreements.  But Bolton bet wrong， and the downside of his losing bet is that he “stands to lose his profits from the book deal， exposes himself to criminal liability， and imperils national security.”
+莫拉講述，10年前自由亞洲和VOA決定停止廣播服務，而全部轉向互聯網，這是非常錯誤的決定。因為空出的這些頻段都被中共的大外宣佔據了。而且他們利用08年以後通過技術轉讓得到的科技，可以監控誰上了這些網站。訪問者很容易被逮捕，然後被拷打折磨，因為中共控制在中國的一切。而美國的華爾街日報和華盛頓郵報等這些所謂的「獨立媒體」，不是靠政府納稅供養，中共通過自己的機構買了很多廣告頁，他們通過這些手段控制資訊的發佈。而且現在自由亞洲也有和Libby Liu親近的人，這些人也應該被炒掉。
 
-美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰-博爾頓的指控是正確的，裁定“博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。法院公正地譴責了博爾頓，因為他把法院認為是 “合理的 ”對他的書的審查程序當作 “不能容忍的”。正如法院解釋的那樣，”博爾頓用美國的國家安全進行了賭博”，希望通過違反他的保密協議來確保他的收益。 但博爾頓賭錯了，他賭輸了的壞處是 “將失去他將出版的那本書交易所得的收益，使自己面臨刑事責任，並危及國家安全”。
+Jay Kansara和Dave Ramaswamy連線，戴夫（Dave）說印度普通民眾非常支持川普總統，而且支持這屆美國政府。（班農解讀說莫迪也是國家主義者）自從莫迪上任以來，印度逐漸認識到為民主而戰的重要性，並且未來二十年都會和美國是盟友。傑伊（Jay）說，1962年的中印戰爭，印度沒有站在世界同盟的一邊，沒有站在支持美國利益的一邊，然後印度輸掉了戰爭。今天不一樣了。川普總統的政策——和印度結盟，對亞太非常重要。主持人傑克說，印度在聯合國投票中187票通過成為非常任理事國，五個常任理事國中，只有中共沒有對此發信祝賀。
 
-The court denied the Government’s request for an injunction solely because Bolton’s wrongful conduct—carried out in secret—had already ensured that the book was so widely disseminated that the court believed it could no longer grant an effective remedy.
+班農繼續問戴夫，你認為川普總統真的像博爾頓在採訪中說的，不能勝任工作嗎？戴夫否定這個觀點，他說博爾頓只是中東區域的戰略和安全顧問。過去十年以上，他們這些人在中東拖泥帶水地打仗，耗費了7-8萬億美國人的錢，讓美國普通人生活困窘。川普一上來就搞定了中東戰事，把這個局勢扭轉了。我認為博爾頓去做一個保安顧問都不配。
 
-法院拒絕了政府的禁令請求，完全是因為博爾頓秘密進行的錯誤行為已經造成了這本書被廣泛傳播，法院認為無法再給予有效的補救。
+班農最後說，現在在中印邊境，中共激進地挑起事端；但印度作為和美國結盟的一大的民主政體，不會退縮。
 
-The Government intends to hold Bolton to the further requirements of his agreements and to ensure that he receives no profits from his shameful decision to place his desire for money and attention ahead of his obligations to protect national security.
-
-政府打算要求博爾頓遵守其協議的進一步要求，並確保他不因其將對金錢和關注度的渴望置於保護國家安全的義務之上的可恥決定而獲利。
-
-[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-130/)
-
-*翻譯：【班班】 校對：【恆久忍耐】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0
