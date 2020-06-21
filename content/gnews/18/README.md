@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】18/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-20 13:07 GM77` [轉載自GNews](https://gnews.org/zh-hant/240436/)
+## G-TV升級版未來的價值、共產黨陷害戰友們的招數
+`2020-06-20 14:39 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/240558/)
 
-戰友之家圖文摘要組及小語種組
+郭文貴先生在6月16日的G-TV直播中談未來[G-TV](https://gtv.org)升级後將帶來的增值效果；以及婊了革命的戰友們遭受共產黨各種的陷害與設計。
 
-[English\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0618_CCP_Virus_Updates.pdf)
+*翻譯: 【BIM】校對：【雷鳴(文鳴)】【RD16】字幕：【Vinzo】*
 
-[French0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French0618_CCP_Virus_Updates.pdf)
+*戰友之家玫瑰園小隊出品*
 
-[German\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0618_CCP_Virus_Updates_-.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0618_CCP_Virus_Updates_-.pdf)
-
-[Japanese\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0618_CCP_Virus_Updates.pdf)
-
-[Korean\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Korean_0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Korean_0618_CCP_Virus_Updates.pdf)
-
-[Russian\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0618_CCP_Virus_Updates.pdf)
-
-[Spanish\_0618\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0618_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0618_CCP_Virus_Updates.pdf)
-
-0
+1

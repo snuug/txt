@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬楊會後 蓬佩奧警告歐洲不要依賴流氓中共
-`2020-06-20 16:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/240663/)
+## 白宮新聞發言人關於前國家安全顧問約翰·博爾頓的聲明（中英文對照）
+`2020-06-20 21:20 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/240807/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Screen-Shot-2020-06-20-at-1.27.23-PM.png)圖片來源：AP Images
-曼谷郵報週六轉載法新社報導《警告歐洲：雖然蓬佩奧與楊潔篪會談，但仍強烈打擊中共國》。哥本哈根民主峰會於週五召開，美國國務卿麥克-蓬佩奧在峰會上發表演講。這是蓬佩奧在蓬楊閉門會後的首次講話，時隔兩天。文章稱，蓬佩奧在講話中警告歐洲不要依賴中共這個“流氓演員”（rogue actor）。
+新聞摘要：美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰·博爾頓的指控是正確的，裁定 “博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。同時，他也使得自己面臨刑事責任。
 
-**歐洲應放棄中共，選擇自由**
+**Statement from the Press Secretary**
 
-蓬佩奧警告歐洲人：擁抱中共國會導致放棄自身的價值觀。他在跨太平洋緊張局勢閉門會談中並沒有軟化既有觀點。而且過了僅兩天他就對北京進行了嚴厲的譴責。蓬佩奧稱，北京是一個一心想稱霸全球的“流氓演員”。他在這次視頻會上說，在不放棄自我的情況下，西方“沒有辦法跨越其他選項（去與中共合作）”，“依賴獨裁者的民主國家是不值得稱之為民主的”。
+LAW & JUSTICE      Issued on: June 20， 2020
 
-蓬佩奧稱，他在周三與中共高級官員楊潔篪長達6個小時的會談中，有一個“非常坦率”的信息：美國正密切關注中共國的行動—包括最近與美國盟友印度發生的致人死亡的邊境衝突。蓬佩奧在峰會上指出，川普領導的“美國正在以20年未有的方式參與應對中共的侵略。”他再三呼籲，歐洲人避開共產主義“監視之國”的臂膀—中共國電信巨頭華為。並稱北京正在通過希臘和西班牙的港口投資“公然攻擊主權”。
+**新聞發言人聲明**
 
-蓬佩奧認為西方必須摘掉經濟關係的黃金眼罩，認識到中國的挑戰已長驅直入到各個國家的首府，並質疑中共國有企業的每筆投資背後的目的。
+法律與司法類     發佈日期:  2020年6月20日
 
-**歐洲人應發出自己的聲音**
+The United States District Court for the District of Columbia today vindicated the Government’s claims against former National Security Adviser John Bolton， ruling that “Bolton likely jeopardized national security by disclosing classified information in violation of his nondisclosure agreement obligations.”  The court rightly chastised Bolton for treating as “intolerable” a review process for his book that the court believed was “reasonable.”  As the court explained， “Bolton has gambled with the national security of the United States，” hoping to secure profits by violating his nondisclosure agreements.  But Bolton bet wrong， and the downside of his losing bet is that he “stands to lose his profits from the book deal， exposes himself to criminal liability， and imperils national security.”
 
-蓬佩奧尤為嚴厲指責中共： “在中共病毒問題上撒了謊，讓它蔓延到世界其他地區”。蓬佩奧還就香港國安法和維吾爾集中營問題，再次對中國提出嚴厲批評。蓬佩奧回憶了歐洲種族滅絕的歷史，再一次稱維吾爾集中營侵犯人權規模之大，二戰以來見所未見。
+美國哥倫比亞特區地方法院今天證明瞭政府對前國家安全顧問約翰-博爾頓的指控是正確的，裁定“博爾頓違反其保密協定義務，披露機密資訊，很可能危及國家安全”。法院公正地譴責了博爾頓，因為他把法院認為是 “合理的 ”對他的書的審查程序當作 “不能容忍的”。正如法院解釋的那樣，”博爾頓用美國的國家安全進行了賭博”，希望通過違反他的保密協議來確保他的收益。 但博爾頓賭錯了，他賭輸了的壞處是 “將失去他將出版的那本書交易所得的收益，使自己面臨刑事責任，並危及國家安全”。
 
-蓬佩奧與楊潔篪見面的兩天前，在與歐盟27位外長的網絡會談中也提出了對中共國的擔憂。參與會談的歐盟外交政策負責人約瑟普-博雷爾（Josep Borrell）會後表示，美國和歐洲應建立一個特別對話，討論他們對中共國的態度。
+The court denied the Government’s request for an injunction solely because Bolton’s wrongful conduct—carried out in secret—had already ensured that the book was so widely disseminated that the court believed it could no longer grant an effective remedy.
 
-歐洲內部立場不一，拒絕全面禁止華為。但蓬佩奧表示看到了希望的跡象。他歡迎瑞典封殺孔子學院，並指出捷克共和國公開批評了北京的政策。蓬佩奧呼籲歐洲發表更多聲音，他說： “我們不要對我們的選擇留下任何困惑。 讓我們選擇自由。”
+法院拒絕了政府的禁令請求，完全是因為博爾頓秘密進行的錯誤行為已經造成了這本書被廣泛傳播，法院認為無法再給予有效的補救。
 
-文章最後提到美國前安全顧問撰寫的一本書，這本批評了川普對中共國的綏靖態度。
+The Government intends to hold Bolton to the further requirements of his agreements and to ensure that he receives no profits from his shameful decision to place his desire for money and attention ahead of his obligations to protect national security.
 
-評：蓬卿在峰會上說了美國正在以20年未有的方式參與應對中共的侵略，這篇文章沒有轉載後面講的幾句話。他在後面還說：近20年美國和中共的關係深不可測，中共發出威脅的時候，美國總是一退了之，包括軍事上。蓬卿說川普政府絕不允許這樣做。此時一本關於批評綏靖主義的書出現，正好又增加了一條川普政府採取強硬手段的理由。那麼近20年前，美加英澳在阿富汗聯合打擊敵人的決心能否再現？歐洲能否堅守價值觀，加入正義的滅共聯盟？讓我們拭目以待！
+政府打算要求博爾頓遵守其協議的進一步要求，並確保他不因其將對金錢和關注度的渴望置於保護國家安全的義務之上的可恥決定而獲利。
 
-[原文鏈接](https://www.bangkokpost.com/world/1937880/warning-europe-pompeo-hits-china-hard-despite-talks)
+[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-130/)
 
-翻譯報導：匿名
-校對整理：瑞安平
+*翻譯：【班班】 校對：【恆久忍耐】*
 
-0
+*戰友之家玫瑰園小隊出品*
+
+1
