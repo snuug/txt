@@ -1,47 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## *ST銀鴿股票面臨退市，員工遊行討薪！
-`2020-06-21 06:47 GM30` [轉載自GNews](https://gnews.org/zh-hant/241319/)
+## 梵蒂岡收中共高達20億美金的賄賂，默認中共對宗教信徒的暴行
+`2020-06-21 10:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/241555/)
 
-**作者：麓山之蜂**
+**作者：Dogman**
 
-河南省漯河市\*ST銀鴿由于拖欠員工3個月的薪資沒有發放，2020年6月15日，銀鴿上千名員工上街遊行，表達訴求：聲討管理層，討要工資。
+6月20日，爆料革命發起人和領導人郭文貴先生在接受史蒂夫班農先生戰鬥室的采訪中（鏈接1），透露了中共利用BGY計劃（鏈接2）腐蝕外國的細節。梵蒂岡，意大利和澳大利亞等國家精英階層每年接受中共巨額賄賂，其中梵蒂岡每年從中共那裏接受高達20億美金。
 
-河南銀鴿實業投資股份有限公司由于連續三年虧損被標爲*ST股票，以此告訴投資者此股票爲被進行退市風險警示的股票。而該股票于2020年5月13日跌到低于1元股票，而該公司于6月9日，*ST銀鴿晚間公告：公司股票已連續20個交易日收盤價格均低于股票面值，股票自6月10日開市起停牌，公司股票存在可能被終止上市的風險。根據*ST銀鴿2020年4月29日公布的財務報表上可以看到，公司股東人數爲7.03萬人，而這7.03萬投資者也將因此血本無歸，如果這7萬多投資者聽了爆料革命的勸言，將持有的A(癌)股股票早早賣掉，也不至于走到如此地步啦！而*ST銀鴿的退市又將給這7萬多投資者帶來何種打擊與災難呢？真是想都不敢想啦！
+郭文貴先生透露說，“中共每年撥款20億美金使用BGY的方式”來賄賂梵蒂岡以影響梵蒂岡內部的政策制定，使其在中共壓迫宗教自由的行為上默不作聲。
 
-![](https://gnews.org/wp-content/uploads/2020/06/图1-1.jpg)
+郭文貴先生還透露，自2014以來，中共內部制定政策，將與國外貿易額的一定比例投諸BGY計劃，用以侵蝕當地國系統 。郭先生說目前用於美國的BGY額度是5%。 根據美國貿易辦公室的數據（鏈接3），2018年中美之間的貿易總量為7371億美金。如果按照5%來計算，用於美國內部BGY的額度約為368億美金。郭先生還說“中共與澳大利亞的貿易額約為2000億美金，以前是1%用於BGY，後來漲到了5% ，也就是100億美金被用於BGY”。而這些巨量的BGY資金的 用途包括“賄賂當地官員，控制媒體言論”和“控制當地資源”。
 
-該公司成立于1997年1月13日，于1997年4月30日在上海證券交易所上市，上市至今已有23年曆史，如此老牌公司爲什麽會落到這麽狼狽不堪的地步呢？
+通過郭文貴先生透露的信息，我們從邏輯上就能夠理順，為何在CCP病毒肆虐全球，殺死全球將近50萬人的時候，仍然有多個國家主動為中共站臺，其背後則是被重金收買的巨大政治影響力。
 
-大A(癌)退市公司都有以下共同特點：業績大幅下滑、債務纏身並且無力償還、管理層混亂以及管理層掏空公司資産，從而促使估價大跌，最後結局就是退市、重組或者被兼並。
+郭文貴先生在之前的直播上還透露，為了噤聲讓爆料革命並降低新中華聯邦建國的影響力，中共斥資40億美金對爆料革命進行網絡壓制（鏈接4）。
 
-2019年9月20日，深圳前海惠譽天成融資租賃公司公開舉報稱，銀鴿投資存在至少24億元違規擔保。
+隨著時間的推移，筆者才慢慢才明白保持中共體系不倒最重要的概念就是“維穩”。對內，為了壓制國內的反對聲音和所謂的“社會不穩定因素”，2019年中共撥款近1萬4千億人民幣進行維穩，按照當前匯率約為2000億美金,比軍費開支還要高；對外，將貿易額按照固定比例投放用於BGY計劃，來腐蝕國外的政治經濟系統，使其為中共站臺，而根據中共的數據，2019年中共國的進出口總值為31.54萬億人民幣（鏈接5），按照當前的匯率折算4.5萬億美金；如果5%用於BGY計劃，總量約為2252億美金，大致與對內維穩費用持平。
 
-2019年11月28日，因擔保合同糾紛，銀鴿投資控股股東銀鴿集團所持上市公司全部股票被輪候凍結，凍結期限3年。
+而在對內與對外維穩之間，則是中共官宦家族盜走的，不計其數的屬於中國人民的財富。
 
-2020年4月7日，河南證監局對銀鴿投資出具警示函，上市公司銀鴿投資作爲擔保人與某銀行簽訂的6.99億元擔保，已確認未履行信披義務，公司相關人員已遭處罰。
+鏈接：
 
-2020年4月17日，銀鴿投資公告稱其收到“中植系”旗下的北京通冠資本管理有限公司起訴，要求銀鴿投資向北京通冠支付一筆電子商業承兌彙票，金額爲4.0008億元。
+1. [https://www.youtube.com/watch?v=lRQDaIYm\_NI&t=915s](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+2. [https://gnews.org/154724/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+3. [https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018.](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+4. [https://gnews.org/zh-hans/212633/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+5. [http://www.gov.cn/xinwen/2020-01/14/content\_5468996.htm](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
 
-2020年4月29日，\*ST銀鴿披露年報，公司2019年實現營業收入20.19億元，同比下滑28.78%；淨利潤爲虧損6.38億元。立信會計師事務所爲銀鴿投資出具了無法表示意見的審計報告。銀鴿投資同時觸發了兩個退市風險警示條件，公司股票將被上交所實施退市風險警示。
 
-2020年4月29日，\*ST銀鴿公司披露一季報，今年一季度，公司營收1.8億元，同比下降64.7%，降幅較去年同期擴大；淨利潤爲-6662.3萬元，上年同期爲-4726.8萬元，虧損幅度擴大。
 
-2020年4月30日，銀鴿投資股票名稱變更爲\*ST銀鴿，股票交易日漲跌幅限制爲±5%。
-
-2020年5月6日，上交所作出紀律處分決定，對公司和時任董事長兼總經理顧琦、時任財務總監汪君、時任董事會秘書邢之恒、時任獨立董事兼審計委員會召集人趙海龍予以通報批評。
-
-2020年5月17日，公司收到證監會調查通知書，因公司涉嫌信息披露違法違規，決定對公司進行立案調查。
-
-2020年6月9日，\*ST銀鴿晚間公告，公司股票已連續20個交易日收盤價格均低于股票面值，股票自6月10日開市起停牌。
-
-這也許只是大A(癌)股幾千家上市公司中被爆出的冰山一角，在即將到來的風暴中，又將會有多少上市公司會遭遇與\*ST銀鴿相同的命運呢？估計留給大A(癌)廣大投資者抛售的時間也不多了，再不行動或者還在猶豫，可能就成了永遠！
-
-GNEWS過往文章：
-中印邊界衝突迅速升級 [https://gnews.org/zh-hans/236059/](https://gnews.org/zh-hans/236059/)
-中共國金融領域雷聲不斷 [https://gnews.org/zh-hans/235206/](https://gnews.org/zh-hans/235206/)
-
-（文章內容僅代表作者觀點）
 
 0
