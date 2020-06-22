@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 納瓦羅與CNN對話揭露中共病毒來源真相
-`2020-06-22 08:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/242113/)
+## 中共瘋狂抹黑美國之——美國醫院給核酸陽性患者出陰性報告
+`2020-06-22 10:59 Diago` [轉載自GNews](https://gnews.org/zh-hant/242337/)
 
-![](https://gnews.org/wp-content/uploads/2020/06/Picture-1-97.png)
-據《國會山》以及《真清政治》媒體報導：美國國家貿易顧問彼得·納瓦羅（Peter Navarro）於2020年6月21日在美國有線電視新聞網（CNN）的傑克·塔珀（Jake Tapper）與納瓦羅在“國情咨文”（State of the Union）作為白宮官員提出指控，指責“CCP病毒是中共國政府故意製造的”。
+作者：Diago
 
-以下CNN主持人傑克與嘉賓納瓦羅的採訪對話(節選)：
+據[央視新聞](https://weibo.com/cctvxinwen)[6月21日 19:35](https://weibo.com/2656274875/J7H4h4Nhv?from=page_1002062656274875_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博雲剪](https://app.weibo.com/t/feed/4iDt6Q) 已編輯新浪微博
 
-傑：你是說中國製造這種病毒的，我聽錯了嗎？
+【[#美國醫院給核酸陽性患者出陰性報告#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8C%BB%E9%99%A2%E7%BB%99%E6%A0%B8%E9%85%B8%E9%98%B3%E6%80%A7%E6%82%A3%E8%80%85%E5%87%BA%E9%98%B4%E6%80%A7%E6%8A%A5%E5%91%8A%23&amp;from=default)】近日，美國佐治亞州阿森斯市一家醫院被曝操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。有護士稱，院方指示工作人員將咽拭子採樣送到只檢測鼻拭子的實驗室，這樣結果會呈陰性。院方這樣做，是不想收治新冠肺炎確診病例。 [L央視新聞的微博視頻](http://t.cn/A6LN58gd)（視頻見於篇首）
 
-納瓦羅：你沒聽錯我的意思，該病毒是中國共產黨的產物，在我們獲得有關這些實驗室發生的事情或在潮濕市場中發生的事情的信息之前，我們知道該病毒是在中共國產生的。你應該向中國共產黨提出這個問題，即：你們知道什麼？你們是什麼時候知道的？
+在中央電視臺13頻道播出了這個所謂的NBC電視臺的“獨家披露”之後，“美國某醫院給陽性患者出具陰性報告”的新聞自昨天起至現在已經充斥國內各大新聞媒體，相關轉發情況如下（限於篇幅，以下只列五條，具體刊發情況見[“出具陰性結果”的百度搜索結果](https://www.baidu.com/s?tn=99682755_hao_pg&amp;ie=utf-8&amp;sc=UWY4rHm3nWTdPNqCmyqxTAThIjYkPHbzrjD1rj6dnH6LFhnqpA7EnHc1Fh7W5Hn1P1Dsn1msnWb&amp;ssl_sample=normal&amp;srcqid=4312541754650262562&amp;H123Tmp=nunew7&amp;word=%E5%87%BA%E5%85%B7%E9%98%B4%E6%80%A7%E7%BB%93%E6%9E%9C%E6%8A%A5%E5%91%8A) ）——
 
-傑：如果中共領導層願意接受我的採訪的話，我很願意採訪他們。我並非要為中共國辯護。
+[給陽性患者出具陰性報告,也只有他們做得出來!](https://www.baidu.com/link?url=owcA8-FrA_ZDDxviuXwZvvddym6iLu_3-MTPcII30kXGIJmQpdAnxGA_yXSSdfUbS1LKULgI1UsWgbdOTE9YhwCsRxr4XtU5ZyAEResqNta)
 
-納瓦羅：是啊，但和並不妨礙你提出這個問題。
+5小時前 – 據央視新聞 6 月 21 日晚消息,近日,美國佐治亞州阿森斯市一家醫院被爆操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。…[app.myzaker.com/news/a…](https://www.baidu.com/link?url=owcA8-FrA_ZDDxviuXwZvvddym6iLu_3-MTPcII30kXGIJmQpdAnxGA_yXSSdfUbS1LKULgI1UsWgbdOTE9YhwCsRxr4XtU5ZyAEResqNta)
 
-傑克：“我一直就病毒像中共國提出質疑，我們還做了一整期關於疫情的專題節目。而且我們對中共政府的處理方式也一直持批評態度。但問題是我們以前從來沒說過病毒是他們故意製造的。
+12小時前[不想收治新冠患者,美國一醫院故意出具陰性報告](https://www.baidu.com/link?url=jnfdZePLMzwLe4Jb6qkfKsAOfJh8lZUit4xCGxABVeUwr6Y68SGGC6VVcN4vcDK-XAD52dIzHDAlSnW0qyUz20uVts2s2OylTYxK24BqE9m) 棗莊網警巡查執法近日,美國佐治亞州一家醫院被曝操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。有護士稱,院方指示工作人員將咽拭子採樣…
 
-納瓦羅：我的判斷是，在被證明無辜之前就是有罪推定。這仍是一個懸而未決的問題。我也沒那麼說過，你可以去聽聽回放，我說的是病毒是從中共國出來的，共產黨要對此負責。
+5小時前[令人髮指!美國一醫院為了不接收新冠病例,給患者出具…](https://www.baidu.com/link?url=xfO_Ah1q_Prl49XUd-ZDru0BZ-ztPjmvU_CxvAfQ3uo29CHUnkP6-nByAt0PPEY90WWy8RpBFuy8y6kk2bhnaK) 騰訊新聞
 
-傑克說：我們說了是他們製造的，對嗎？
+18小時前[美媒曝美國一家醫院給核酸陽性患者出陰性報告,護士…](https://www.baidu.com/link?url=a7OkbgKfHJUcbiLbGGj5uQBss4JePan4bgrGdUFpRqNtV2irc9HSX3fDO91fYaks) 鳳凰網
 
-納瓦羅：我們就稱之為病毒的”孵化“吧，至於到底發生了什麼，這仍是懸而未決的問題。但是依照司法法典的概念，針對中共，我要秉持拿破崙的司法法典，既在被證明無辜之前既有罪推定。傑克，因為我們了解的情況是，中共在中共國“孵化”了這種病毒，並隱瞞了兩個月，因此殺死了十多萬美國人，並且這一打擊依然持續。我的意思是，難道他們不應該對我們所造成的數万億美元損失而負責嗎？
+1天前[…被曝操縱新冠病毒核酸檢測結果,故意給核酸陽性患…](https://www.baidu.com/link?url=jnfdZePLMzwLe4Jb6qkfKsAOfJh8lZUit4xCGxABVeUwr6Y68SGGC6VVcN4vcDK-yEPZ2ecbAlYQgJDw8cz4BISP1GVScJ9Up-MuNHv2Eie) 環球網
 
-傑克：我並非要為中共辯護。我很高興看到您似乎暗示的指控的證據，他們可能是故意創建的。中國捍衛了其對源自武漢市的冠狀病毒大流行的處理，並表示“沒有時間”就有關該病毒的信息進行共享.
+對於這個央視13台的視頻中提到的NBC電視臺的所謂“獨家披露”，在NBC的官網上以CORONAVIRUS進行搜索（見[以CORONAVIRUS為關鍵字的NBC節目搜索結果](https://www.nbc.com/search)）並未發現這條央視13台引用的獨家披露，憑常識判斷這就是一條戴上外媒帽子的徹徹底底的謊言。
 
-納瓦羅：“我希望我們可以談談他們在這裡所扮演的角色。”
+不知道這家被兲朝一眾媒體堂而皇之引用的NBC電視臺，在看到這個所謂的“獨家披露”之後，會不會把領謠的中央電視臺和轉發的兲朝媒體一併告上法庭，讓他們承受誹謗的代價？
 
-傑克：“我也想談一談此話題，我不是在為中共辯護，我只是希望能看到您的證據。證明您關於中共故意製造病毒的暗示。
+在防火牆的阻隔之下，中共通過自己控制的媒體，用精心編制的謊言對民眾進行無縫連接的強制洗腦，把它治下的國民徹底變成聾子、傻子，在輪番洗腦之下，很多人視美國和西方為敵，對美國和西方恨之入骨，他們被徹底綁上了中共的戰車。而在中共滅亡之後，在被中共洗腦深入骨髓的同胞中，有多少人會象終生攜帶CCP冠狀病毒一樣終生攜帶共產主義的思想病毒呢？這是一個任何人無法直視的問題。
 
-納瓦羅：那您繼續追問中共吧。也許他們會把相關證據給我們。從去年CCP病毒始發到現在，中共號稱“捍衛”其對源自武漢市的冠狀病毒大流行的處理，表示“沒有時間”就有關該病毒的信息進行共享。
+滅中共，不易！清中共餘毒，更難！
 
-評：
-
-CNN作為一家左派媒體，也許病毒來源真相，中共是否要承擔重大罪責對他們來說根本就不重要，但是納瓦羅的一席話對人們對CCP病毒的意識和認知是至關重要的。CCP病毒的出處，中共對世界的危害關乎文明世界以及人類的未來。在民意大過天的美國，只有讓人們知道真相，才能推動全美甚至全世界聯合起來製裁中共，相信這一天在川普總統的帶領下很快到來。斬惡除共是每一個人的使命，而在戰鬥之前，世界上的所有人都應該知道CCP病毒和共產邪惡政權的真相。
-
-原文鏈接【[1](https://www.realclearpolitics.com/video/2020/06/21/wh_trade_adviser_peter_navarro_on_covid-19_chinese_government_is_guilty_until_proven_innocent.html)】【[2](https://thehill.com/homenews/administration/503777-navarro-says-virus-was-a-product-of-the-chinese-communist-party)】
-
-翻譯報導：Hakunamatata
-校對整理：瑞安平
+（文章內容僅代表作者個人觀點）
 
 0
