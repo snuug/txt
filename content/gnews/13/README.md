@@ -1,9 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒變異很快，請勿掉以輕心！“中共病毒疫情每日熱線”
-`2020-06-22 03:08 GM30` [轉載自GNews](https://gnews.org/zh-hant/241938/)
-
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+## 廣播: 2020/6/20 文貴直播爆料共產黨窮兇極惡
+`2020-06-22 06:12 GM07` [轉載自GNews](https://gnews.org/zh-hant/242103/)
 
 0
