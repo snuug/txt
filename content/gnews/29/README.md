@@ -1,21 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】19/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-21 00:03 GM77` [轉載自GNews](https://gnews.org/zh-hant/240972/)
+## 中共譚德賽書記又作妖 ——這個節骨眼上又說新冠病毒正在加速
+`2020-06-21 02:48 GM30` [轉載自GNews](https://gnews.org/zh-hant/241143/)
 
-戰友之家圖文摘要組及小語種組
+**作者：亞倫**
 
-[English\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/English_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/English_0619_CCP_Virus_Updates.pdf)
+19日， WHO（世界衛生組織）總幹事譚德塞在例行發布會上指出，新冠病毒流行正在加速。許多人對呆在家裏已經感到厭倦是可以理解的。各國都渴望重振自己的社會和經濟。但是這種病毒仍在快速傳播，它仍然是致命的，大多數人仍然處于易感狀態 ， “我們呼籲所有國家和人民保持高度警惕” 。
 
-[French\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/French_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/French_0619_CCP_Virus_Updates.pdf)
+今年一月，全球病毒迅速蔓延開始爆發的時候，他說可防可控，當美國從武漢撤僑的時候，譚書記明確表示不必要對中國進行旅遊和貿易限制。
 
-[German\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/German_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/German_0619_CCP_Virus_Updates.pdf)
+直到三月初，譚書記還公開說，新冠肺炎沒有構成全世界的大流行。而從美國和歐洲目前的情況看，那時候恰恰是這兩個地方疫情爆發的開始。譚書記的錯誤信息爲中共病毒的全球蔓延，迅速發展，提供了寶貴的時間。
 
-[Japanese\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Japanese_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Japanese_0619_CCP_Virus_Updates.pdf)
+![](https://gnews.org/wp-content/uploads/2020/06/image0-147.jpg)
 
-[Russian\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Russian_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Russian_0619_CCP_Virus_Updates.pdf)
+而如今，川普已經停止了美國對WHO世界衛生組織的資金，並斷絕關系。是看門狗譚書記改邪歸正了麽，在這個敏感的節骨眼上又宣稱病毒大爆發加速的信息。這次又想給中共帶來什麽風向，幫中共僞政權達到什麽目的。
 
-[Spanish\_0619\_CCP\_Virus\_Updates](https://gnews.org/wp-content/uploads/2020/06/Spanish_0619_CCP_Virus_Updates.pdf)[Download](https://gnews.org/wp-content/uploads/2020/06/Spanish_0619_CCP_Virus_Updates.pdf)
+路德解讀這裏面暗藏著深刻的政治語言，即如果美國不聽WHO的建議，美國開始reopen從新開張，解除lockdown，WHO會說自己是有信譽、有情報、有價值的；但是如果美國繼續lockdown的政策，直接或者間接聽從了WHO的繼續封城的建議，美國經濟將會是毀滅性打擊。劣迹斑斑的譚書記真的夠陰毒的，不愧是中共扶持的看門狗，已然成爲了中共政治勢力的代言人。
+
+衆所周知，中共生物病毒武器已經被實驗室制造出來了，已經回不去了，中共不滅，lockdown（封城）再久的時間也是無濟于事，還會摧毀美國的經濟體系。到時候自己就把自己滅了，無數個Antifa組織陸續都會站出來，中國老百姓可以三年吃草，美國人民沒有牛排是要造反的。繼續封城在中共不滅的前提下，中共繼續放毒，感染人數依然不會減少，死亡人數依然不會下降。
+
+正如佛州reopen（解封）後立馬反彈高起，公衆的關注點從暴亂Antifa回到冠狀病毒身上，正如川普總統在西點軍校的動員，要開始尋求病毒來源。所有人的生活被怡情打亂了，航空業、旅遊酒店業都有破産的危機，商業物業慢慢因爲租戶破産交不起房租而貶值，所有經濟格局面臨洗牌，所有人都被遷入進來，如同死亡沒有人可以逃離，當所有的輿論、所有的焦點都嫁接到病毒來源的時候，制造並投放病毒的絕對證據和英雄科學家的突然降臨，將會是核彈當量的震動。
+
+看門狗譚書記還要面對百萬人聯署要求世衛總幹事譚德塞立即下台的窘境，已然失去了世界各界對其的信任，也已然成了“中共上街，人人喊打”的局面。所以必須撤換WHO領導層、展開國際調查，追究刑事責任，爲了重塑成員國對世界衛生組織的信心，才是滅共後的當務之急。或許，譚書記利用WHO替中共遮蓋怡情，給世界提供虛假錯誤建議，將成爲與南非禍害者曼德拉、盧旺達屠夫卡不加齊名的非洲黑人兄弟，也必將受到法律正義的審判。
+
+當美國開始反身了，隨著的就是回旋踢。
+
+（文章內容僅代表作者觀點）
 
 0

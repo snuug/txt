@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梵蒂岡收中共高達20億美金的賄賂，默認中共對宗教信徒的暴行
-`2020-06-21 10:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/241555/)
+## 華盛頓需要對中國政權有現實的了解
+`2020-06-21 13:30 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/241675/)
 
-**作者：Dogman**
+*——–布拉德利·泰耶（Bradley A. Thayer）是德克薩斯州聖安東尼奧大學的政治學教授，也是《中國如何看待世界：漢中主義與國際政治中的力量平衡》壹書的合著者。以下是他發表在“國會山報’”上的壹篇文章，作者的很多觀點和認知相對比較深刻，在美國主流媒體上不多見。如中共是非法的，他們是美國的敵人，要贏得與中共的對抗要喚醒民意等等，基本契合爆料革命的觀點，說明美國人中有精英，民意在被喚醒。在與中共國進行激烈的國家安全競爭之始，重要的是要考慮美國對中國政府本質的認識。*
+![直播回放】川普白宫讲话谈中共病毒疫情发展| 新冠肺炎| 武汉肺炎| 大纪元](https://lh4.googleusercontent.com/LnKPnsex4B8QCGHh36buliHvMiE4Eq2MzeO8oQlOvsmPUVJeI_ZsjF3IhA704xq2EmfPFkJAx689JC0VdurU5vhj4zG7A_EezLkD235wd028cy-5kxkBtZdA1aMt6g)
+图片来源：大纪元
 
-6月20日，爆料革命發起人和領導人郭文貴先生在接受史蒂夫班農先生戰鬥室的采訪中（鏈接1），透露了中共利用BGY計劃（鏈接2）腐蝕外國的細節。梵蒂岡，意大利和澳大利亞等國家精英階層每年接受中共巨額賄賂，其中梵蒂岡每年從中共那裏接受高達20億美金。
+幾十年來，美國壹直認為北京會接受當前的國際體系，富強起來的同時將減緩其政治化程度甚至使其民主化。這些假設是完全錯誤的！它對美國的安全，對其盟國的安全以及國際秩序的基礎造成了無法估量的損失。不管這些天真的假設是怎麽來的，由於它們對美國國家安全已造成傷害，必須更正對中共國的現實理解。這種理解包含四個部分：
 
-郭文貴先生透露說，“中共每年撥款20億美金使用BGY的方式”來賄賂梵蒂岡以影響梵蒂岡內部的政策制定，使其在中共壓迫宗教自由的行為上默不作聲。
+**首先，中共國是美國的敵人。**北京和華盛頓擁有的政治原則、利益和對當代國際政治的看法是不可調和的。這是壹個基本事實。21世紀的決定性問題是哪壹方會獲勝。
 
-郭文貴先生還透露，自2014以來，中共內部制定政策，將與國外貿易額的一定比例投諸BGY計劃，用以侵蝕當地國系統 。郭先生說目前用於美國的BGY額度是5%。 根據美國貿易辦公室的數據（鏈接3），2018年中美之間的貿易總量為7371億美金。如果按照5%來計算，用於美國內部BGY的額度約為368億美金。郭先生還說“中共與澳大利亞的貿易額約為2000億美金，以前是1%用於BGY，後來漲到了5% ，也就是100億美金被用於BGY”。而這些巨量的BGY資金的 用途包括“賄賂當地官員，控制媒體言論”和“控制當地資源”。
+**其次，美國在冷戰期間認清了蘇聯。**經歷了艱難的對抗歷程，美國從對蘇聯壹無所知到發展出“克裏姆林宮學”，更好地、有效地解釋和預測了蘇聯的行為。美國知道，無論采取什麽行動，蘇聯都會反對。相反，美國對中共及其最高級別決策的理解有了錯誤的判讀。如鏡像的左右顛倒，西方錯誤認為中共的立場與自己壹致。在川普政府之前，美國不願與中國對抗甚至沒有意識到來自中共的威脅。與中共國數十年的合作有效地幫助了中共崛起。很快美國就可以看到這是史詩級般的錯誤以及錯過了抑制中共的最好時機。
 
-通過郭文貴先生透露的信息，我們從邏輯上就能夠理順，為何在CCP病毒肆虐全球，殺死全球將近50萬人的時候，仍然有多個國家主動為中共站臺，其背後則是被重金收買的巨大政治影響力。
+**第三，中共是非法的。**中共為了確保自己的專治集權統治地位，持續挑起對其他國家和人民的仇恨，轉移國民註意力以贏得國內民眾支持。但是，正如牛頓的第三運動定律—力的作用是相互的，這種挑釁敵對行為加劇了與其他國家的緊張關系，造成孤立的國際政治形勢的必然結果。正如世界所見證的中共國與印度、美國、越南、菲律賓和日本等國家的緊張形勢。
 
-郭文貴先生在之前的直播上還透露，為了噤聲讓爆料革命並降低新中華聯邦建國的影響力，中共斥資40億美金對爆料革命進行網絡壓制（鏈接4）。
+**第四，該政權敏銳地意識到他們並不安全。**這種不安全的根源在於其缺乏合法性，因此，世界應該會看到中共懷有敵意，並可能會采取侵略行動，以提高其在全球政治中的利益並控制中國人民。
 
-隨著時間的推移，筆者才慢慢才明白保持中共體系不倒最重要的概念就是“維穩”。對內，為了壓制國內的反對聲音和所謂的“社會不穩定因素”，2019年中共撥款近1萬4千億人民幣進行維穩，按照當前匯率約為2000億美金,比軍費開支還要高；對外，將貿易額按照固定比例投放用於BGY計劃，來腐蝕國外的政治經濟系統，使其為中共站臺，而根據中共的數據，2019年中共國的進出口總值為31.54萬億人民幣（鏈接5），按照當前的匯率折算4.5萬億美金；如果5%用於BGY計劃，總量約為2252億美金，大致與對內維穩費用持平。
+所有這些對於國際穩定都是非常危險的。 中共國政權的不安全感迫使中共內部產生對外敵對和侵略的願望。國際穩定的決議取決於中共國政權本身的需要、國家領導人個人的思想意識和個人利益。中共通過欺詐國民，強迫領土變動，威脅其他國家等手段增強其控制力，中共實力的增長威脅著鄰國和世界秩序，對世界和平前景帶來巨大威脅。
 
-而在對內與對外維穩之間，則是中共官宦家族盜走的，不計其數的屬於中國人民的財富。
+中共國擁有的潛在力量比美國在過去壹個世紀遇到的所有對手都強大。中共國大力發展軍事力量，同時註重信息戰和外交戰。中共壹直致力於確保在國際信息系統中的主導地位，通過各種手段盜取先進技術，試圖超越美、英等國。在與中共國新的長期鬥爭中，美國決不能低估其所面臨的挑戰。
 
-鏈接：
+美國必須要預見到戰略上可能出現的挑戰，中共政權對於任何能對西方利益和國際和平產生不利影響的機會都不會保持沈默。這將引發多面、深層，更嚴重的危機。美國已經對中共危機忽略了近半個世紀。美國必須做好準備工作，吸取教訓，總結經驗，做好外交和軍事部署，以確保能夠對中共國制造的危機作出明智的反應。
 
-1. [https://www.youtube.com/watch?v=lRQDaIYm\_NI&t=915s](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-2. [https://gnews.org/154724/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-3. [https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018.](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-4. [https://gnews.org/zh-hans/212633/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-5. [http://www.gov.cn/xinwen/2020-01/14/content\_5468996.htm](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
+川普政府已經開始調整改變了對中共國的假設和政策。但是，與此同時，必須要西方社會和民眾認清中共嘴臉，喚醒民意，清楚看到中共非法政權對世界的危害。
 
+翻譯報道：新中國聯邦加拿大農場 楓老趙
 
-
+校对整理： HUH
 
 0
