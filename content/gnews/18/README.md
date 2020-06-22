@@ -1,34 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 梵蒂岡收中共高達20億美金的賄賂，默認中共對宗教信徒的暴行
-`2020-06-21 10:37 GM10` [轉載自GNews](https://gnews.org/zh-hant/241555/)
+## 猥亵还是强奸？中共刑法鼓励强奸幼女
+`2020-06-21 12:56 Justice After All （正义之师）` [轉載自GNews](https://gnews.org/zh-hant/241666/)
 
-**作者：Dogman**
+![](https://gnews.org/wp-content/uploads/2020/06/image-113.png)
+备受关注的新城控股原董事长王振华猥亵儿童案6月17日宣判，上海市普陀区人民法院判处王振华有期徒刑五年。法院称，王振华与被害人之间沒有性器官的接触，没办法认定强奸罪，只能认定为猥亵儿童罪。王振华不属于在公共场所当众实施犯罪，不具有其他恶劣情节，但其对不满12周岁的被害人实施猥亵，并造成被害人轻伤二级，应从重处罚。王振华拒不供认其犯罪事实，可酌情从重处罚。公诉机关建议判处王振华四年以上五年以下有期徒刑，因此对被告人王振华从重判处有期徒刑五年。給民眾的感覺似乎是依法严惩王振华，呵护了正义。
 
-6月20日，爆料革命發起人和領導人郭文貴先生在接受史蒂夫班農先生戰鬥室的采訪中（鏈接1），透露了中共利用BGY計劃（鏈接2）腐蝕外國的細節。梵蒂岡，意大利和澳大利亞等國家精英階層每年接受中共巨額賄賂，其中梵蒂岡每年從中共那裏接受高達20億美金。
+按照中共刑法第237条规定了猥亵儿童罪，该罪基本刑为五年以下有期徒刑或者拘役，有加重情节的可判处五年以上（十五年以下）有期徒刑。然而，刑法第236条所规定的强奸罪，其基本刑为三年以上十年以下有期徒刑，有加重情节的可以判处十年以上有期徒刑、无期徒刑甚至死刑。可见，**强奸罪的处罚较之猥亵儿童罪要更为严厉**。如果是猥亵儿童罪，只要不是聚众猥亵或者在公共场所猥亵，最高就是五年。而如果是强奸罪，则可以达到十年，甚至更高。
 
-郭文貴先生透露說，“中共每年撥款20億美金使用BGY的方式”來賄賂梵蒂岡以影響梵蒂岡內部的政策制定，使其在中共壓迫宗教自由的行為上默不作聲。
+王振华性侵了一个9岁女童，造成了女童的阴道撕裂. 为什么中共的法律，能够如此轻而易举的让这种罪恶昭昭的人，却只是轻轻的受到五年刑罚呢？因为中共的未成年人法律，存在一些根本性的漏洞，无力保护善良的未成年人。明明是强奸，但是中共司法上却被认定成了猥亵罪。非按猥亵判，还不要脸的说是从重处罚，把老百姓当傻子忽悠。依照中共法律的规定，强奸仅指男性性器官对女性性器官的插入。使用生殖器以外的身体部分，使用其他异物或工具“插入”受害女童性器官，都还只能认定为猥亵儿童罪。這樣， 猥亵儿童成为奸淫幼女的保护网。 正如此案，法院认为，王振华在犯罪过程中，只是用了手，两人之间没有发生性器官的接触和插入。所以，用手是猥亵不是强奸。
 
-郭文貴先生還透露，自2014以來，中共內部制定政策，將與國外貿易額的一定比例投諸BGY計劃，用以侵蝕當地國系統 。郭先生說目前用於美國的BGY額度是5%。 根據美國貿易辦公室的數據（鏈接3），2018年中美之間的貿易總量為7371億美金。如果按照5%來計算，用於美國內部BGY的額度約為368億美金。郭先生還說“中共與澳大利亞的貿易額約為2000億美金，以前是1%用於BGY，後來漲到了5% ，也就是100億美金被用於BGY”。而這些巨量的BGY資金的 用途包括“賄賂當地官員，控制媒體言論”和“控制當地資源”。
+我們知道全世界的国家里，对侵犯幼女都是非常严厉。强奸幼女基于这样的观念，即某个年龄以下的人由于缺乏对性行为做出知情选择所必需的成熟度或判断力而无法同意性接触或性行为。这是严格的责任或法定犯罪，因为未成年人的同意无关紧要，被告的意图和他们对他人年龄的看法通常无关紧要。即使不涉及武力且性征双方都同意，与未成年人发生性行为也仅是由于该人的年龄而构成的犯罪。美囯及世界的法治国家的法律定义性交是“阴道性交或手，手指或物体插入阴道，外阴或阴唇的任何插入，无论多么轻微，但不包括用于医疗或检查的插入。相比之下，中共法律的规定，强奸仅指男性性器官对女性性器官的插入。
 
-通過郭文貴先生透露的信息，我們從邏輯上就能夠理順，為何在CCP病毒肆虐全球，殺死全球將近50萬人的時候，仍然有多個國家主動為中共站臺，其背後則是被重金收買的巨大政治影響力。
-
-郭文貴先生在之前的直播上還透露，為了噤聲讓爆料革命並降低新中華聯邦建國的影響力，中共斥資40億美金對爆料革命進行網絡壓制（鏈接4）。
-
-隨著時間的推移，筆者才慢慢才明白保持中共體系不倒最重要的概念就是“維穩”。對內，為了壓制國內的反對聲音和所謂的“社會不穩定因素”，2019年中共撥款近1萬4千億人民幣進行維穩，按照當前匯率約為2000億美金,比軍費開支還要高；對外，將貿易額按照固定比例投放用於BGY計劃，來腐蝕國外的政治經濟系統，使其為中共站臺，而根據中共的數據，2019年中共國的進出口總值為31.54萬億人民幣（鏈接5），按照當前的匯率折算4.5萬億美金；如果5%用於BGY計劃，總量約為2252億美金，大致與對內維穩費用持平。
-
-而在對內與對外維穩之間，則是中共官宦家族盜走的，不計其數的屬於中國人民的財富。
-
-鏈接：
-
-1. [https://www.youtube.com/watch?v=lRQDaIYm\_NI&t=915s](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-2. [https://gnews.org/154724/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-3. [https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018.](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-4. [https://gnews.org/zh-hans/212633/](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-5. [http://www.gov.cn/xinwen/2020-01/14/content\_5468996.htm](https://www.youtube.com/watch?v=lRQDaIYm_NI&amp;t=915s https://gnews.org/154724/ https://ustr.gov/countries-regions/china-mongolia-taiwan/peoples-republic-china#:~:text=U.S.%2DChina%20Trade%20Facts,was%20%24378.6%20billion%20in%202018. https://gnews.org/zh-hans/212633/ http://www.gov.cn/xinwen/2020-01/14/content_5468996.htm)
-
-
-
+这是中共法律的悲哀。一个貌似保护幼女而实际鼓励强奸幼女的有中共特色的法律。在这样国家才会发生一个禽兽不如的老男人，把别人家9岁女儿的阴道都用手撕裂了，最后却只判了五年。
 
 0
