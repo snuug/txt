@@ -12,7 +12,11 @@
 [:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
-## 頁面 6/27 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [27](/content/README-27.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月3日文贵报平安-中俄伊军演和苏曼尼的被炸死是我们爆料革命展示实力走向另外一个胜利的新开始](/content/2020/01/20200105-5702641725419467150.md)
+
+[文字版：2020年1月2日文贵报平安直播-聊自己的人生和武汉的非典以及文贵为战友终生戒吃牛肉！](/content/2020/01/20200104-2138537406331428619.md)
 
 [文字版：2020年1月1日郭先生直播：畅谈2020 盘古开天霹雳年！灭共年！](/content/2020/01/20200104-4925314405005648052.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
 
-[文字版: 2019年12月4日郭文贵先生谈郑若骅被绑架回京的经过以及给盘古、政泉和裕达同事们发出的安全保护办法](/content/2019/12/20191205-3740864739432231815.md)
 
-[文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
-
-
-## 頁面 6/27 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [27](/content/README-27.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

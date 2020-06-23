@@ -12,7 +12,11 @@
 [:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
-## 頁面 9/27 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [27](/content/README-27.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+## 頁面 9/28 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [28](/content/README-28.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年10月12日直播，中美达成的初步协议对爆料革命无影响，香港同胞最受影响，灭共要靠我们自己！](/content/2019/10/20191014-3517209154004585431.md)
+
+[文字版：2019年10月10日报平安直播：台湾双十国庆 关注王岐山美国双十会谈中共诡计是否会得逞](/content/2019/10/20191011-1512379949091228539.md)
 
 [文字版：2019年10月9日郭文贵先生报平安直播：港人的好日子要来了，美对CCP将有雷霆行动，不仅仅制裁](/content/2019/10/20191011-7838742343464767600.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/content/2019/09/20190909-1380855058008823233.md)
 
-[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/2019/09/20190908-7629841718868230274.md)
 
-[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
-
-
-## 頁面 9/27 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [27](/content/README-27.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
+## 頁面 9/28 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [28](/content/README-28.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

@@ -12,7 +12,11 @@
 [:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
 
 
-## 頁面 4/27 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [27](/content/README-27.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
+
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
 
 [文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/2020/03/20200302-6186645591158961547.md)
 
@@ -60,9 +64,5 @@
 
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
 
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/2020/01/20200130-1699829441084097385.md)
-
-
-## 頁面 4/27 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [27](/content/README-27.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
