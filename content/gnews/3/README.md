@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交媒體應進入戰時狀態
-`2020-06-22 23:09 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/242669/)
+## 【世界多語言圖文】20/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-23 01:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/242873/)
 
-*作者：Giselle*
+戰友之家圖文摘要組及小語種組
 
-*校對：Julia Win*
+[English\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)
 
-*Page: 拱卒*
+[French\_0620\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)
+
+[German\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)
+
+[Japanese\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)
+
+[Korean\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)
+
+[Russian\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)
+
+[Spanish\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)
 
 
 
-美國密蘇里州議員約什·霍利上週提出法案，賦權美國民眾對指向性審查政治言論的大型科技公司提出訴訟，包括臉書、谷歌和推特等。
-[!\[\](https://spark.adobe.com/page/koMUZSJMpEuhh/images/847bf484-3029-43ef-8bd2-3e285d671906.jpg?asset_id=30d4cad8-2020-47e2-a6fb-d83bee0f5e4e&amp;img_etag=%22d65ebdc7e5a8c0a79504e23c5109fb97%22&amp;size=1024)](https://spark.adobe.com/page/koMUZSJMpEuhh/images/847bf484-3029-43ef-8bd2-3e285d671906.jpg?asset_id=30d4cad8-2020-47e2-a6fb-d83bee0f5e4e&amp;img_etag=%22d65ebdc7e5a8c0a79504e23c5109fb97%22&amp;size=1024)
-霍利議員認為，長期以來，推特、谷歌和臉書等公司利用自己的優勢，禁止一些來自保守派的政治言論。230法案被他們過度曲解並被法庭改寫，導致這些公司肆意妄為而不用負責。
-
-此前川普總統簽署了一項行政命令，明確230法案不能為科技公司審查言論的行為提供法律豁免權。
-
-霍利議員的法案被一些民眾解讀為，社交媒體應當停止審查制度，恢復言論自由。毫無疑問，霍利議員的出發點是非常好的，但筆者非常擔憂，即便言論自由放開了，還是會被中共為首的邪惡勢力鑽了空子。
-
-在這場沒有硝煙的第三次世界大戰中，每一天都有無數的平民死於病毒、死於假新聞、死於信息的不公開不透明，因此，作為這些擁有巨大受眾的信息平台，社交媒體是一個非常重要的主戰場。如果不能清楚地意識到這一點，那麼我們將會再一次陷入被動。
-[!\[\](https://spark.adobe.com/page/koMUZSJMpEuhh/images/01d98c4f-bda8-4b41-9e14-ed9233e4eb72.jpg?asset_id=6ce097e2-825d-4f2d-ab92-8eacceda767a&amp;img_etag=%22e1e41ea75daa11f425fc5c097ea84270%22&amp;size=1024)](https://spark.adobe.com/page/koMUZSJMpEuhh/images/01d98c4f-bda8-4b41-9e14-ed9233e4eb72.jpg?asset_id=6ce097e2-825d-4f2d-ab92-8eacceda767a&amp;img_etag=%22e1e41ea75daa11f425fc5c097ea84270%22&amp;size=1024)
-戰時狀態下，這些社交媒體都應該納入戰場範疇，進入戰時緊急狀態，實施逆向追查制度，即：封殺中共水軍賬戶，刪除一切誤導民眾的假消息，刪除一切抹黑、攻擊川普總統、爆料革命、香港運動、台灣等方面的惡意言論。
-
-中共為了籌謀這場超限戰，已經準備了至少21年。這些在社交媒體上不斷進攻的中共水軍，就是一支裝備精良的部隊。他們人數龐大，高達數百萬，具有完美的作戰技巧與能力，有組織，有策略，通過製造大量似是而非的謠言，達到淹沒真相、誤導民眾的目的。通過潛伏的特務、偽類，操控數百萬機器人賬戶，竊取我們的私人信息進行恐嚇；對川普團隊、爆料革命、香港運動、台灣民主等，日以繼夜地抹黑、分化；在網上製造恐懼，傳播謠言，煽動暴亂。其對普通民眾造成的財產損失與人員傷亡，遠超一場小規模的熱戰。
-
-他們的敵人就是民主體制，以及爆料革命不斷揭露的真相。然而，在中共這台邪惡的國家機器面前，我們的力量實在是太分散，本身人數就有限，大部分戰友還因為防火牆的阻隔上不了社交媒體，或者因為被中共長期打壓而恐懼，缺乏作戰能力。而由於中共對這些社交媒體的長期滲透，一些正義力量被多次封殺。長期支持香港運動的推友“專業家庭煮婦”，一年多的時間裡被推特封號15次；長期挖掘中共盜國賊們盜國賣國真相的DT挖掘機，被推特封了7個號，其中包括兩個從未啟用的空白號，最多的時候一天被推特封了3個號，而且不給任何理由！
-
-在這場史無前例的媒體戰中，中共是在啟用國家機器朝我們開火，而我們不但手無寸鐵，當中還有相當一部分是沉默的大多數。因此，在這種完全不對等的情況下，就算放開言論自由，也很有可能就被中共鑽了空子。只有啟動戰時機制，逆向審查這些造謠機器，把這些中共水軍、機器人賬號、特務、偽類等，全方位封殺，才能確保真正的言論自由。
-
-在這場禍及全球、影響人類生死存亡的、正義與邪惡的終極大對決中，籲請這些社交媒體公司，承擔起其應該承擔的社會責任，放棄短視，選擇正義的一邊！病毒不分左右，不識正邪，如果我們都不站出來，任由中共繼續投毒作惡，則所有人都將無法倖免！
-
-編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/koMUZSJMpEuhh/)
-
-1
+0
