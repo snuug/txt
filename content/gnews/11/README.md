@@ -1,67 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共高科技「珍珠港」式襲擊？
-`2020-06-23 00:24 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/242750/)
+## 【世界多語言圖文】20/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-23 01:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/242873/)
 
-*文章來源：Washington Examiner*
+戰友之家圖文摘要組及小語種組
 
-*作者：Paul Bedard, Washington Secrets Columnist | June 18, 2020 08:35 AM*
+[English\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)
 
-*翻譯：文明明*
+[French\_0620\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)
 
-*短評：Hemingway*
+[German\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)
 
-*PR：海闊天空*
+[Japanese\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)
 
-*PAGE：玄天生*
+[Korean\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)
 
-**短評：**
+[Russian\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)
 
-“中共國已經建立了一個由衛星、高速導彈和“超級電磁脈衝”武器組成的網絡體系”，而這個武器體系的本質，就是攻擊開放的美國的計算機網絡，讓美國徹底變成聾子、啞巴。而且，這種武器體系的啟用，是需要“冒著損失自己的危險。”
-
-儘管戰爭與暴力和死亡從不分家，但以美國為主導的西方世界的軍事訓練、武器開發、戰略戰術，是“以人為本”的，是以珍惜軍人和人民的生命為前提所設計的武器、戰術、以及軍事訓練理念。中共的這套損敵一千，自傷兩千的武器系統，儘管令人不寒而栗，但又在情理之中。它與毛澤東談核戰爭時駭人聽聞的“中國死一半沒關係還剩三億”，還有王岐山的“中國人可以吃三年草”是一以貫之的指導思想。實踐總是在理念的支配下進行的。“超限戰”是貫穿中共所有行徑中的指導理念。我們需要時刻記住這一點。報告中所描繪的該武器體系，依然是中共超限戰中的一個組成部分。
-
-CCP開發這種武器的邏輯，和其開發生物武器的原因一樣，跟北朝鮮動輒發射導彈的邏輯也是相同的。因為對共產主義政權來說，一個沒有自己存在的世界，是不值得存在的。這不是一句戲言！因為共產主義禁錮人的思想和創造性，是一種解構性、寄生性政權。因為CCP需要打散一切能夠孕育出信仰、思想、力量的社會單元，以維持自身的統治。因此，它沒有辦法在自己控制的社會中培育出什麼具有創造性的技術，但是卻善於破壞、偷竊他人的培育和經營。CCP在其盜取政權後自己控制的土地上，幾十年如一日地“盜國”，在人口紅利快要消失殆盡時，必然需要到更廣闊的世界尋找更大的社會有機體，以給其搖搖欲墜的統治續命。所以，偷竊西方社會的技術是維護其唯一的選擇。所以不讓他進行技術偷竊，對CCP來說，本身已經是致命的。
-
-勤勞的中國人三十多年創造的經濟發展，西方世界三十多年的綏靖政策，並沒有讓這個解構性的共產主義政權的本質有任何改變。任何期待其可以通過自身改良成為現代文明政黨的認識，都是天真且不切實際的。對於西方世界來說，只有千年做賊，沒有千年防賊的。儘管CCP自己創造不出什麼前沿科技，但是憑著其高超的偷盜本領，和以破壞西方社會為目標的“超限戰”理念相配合，一日不將CCP消滅，西方社會就像永遠生活在沒有安全的詛咒之下。因此，郭文貴先生領導的爆料革命，讓全世界看到了CCP的本質和邪惡，給西方社會多年隱隱感到，卻難以解讀的憂慮以真相。相信會有越來越多不願被CCP的黑暗和不安全所奴役的人，看到此處的燈塔！
-
-**原文：**
-
-## **中共國研發武器攻擊美國電網，著眼於高科技的“珍珠港”式襲擊**
-
-一項新的分析顯示，在竊取的美國技術的幫助下，中共國開發了至少三種高科技武器，以攻擊電網和關鍵技術，發動可能使美國陷入致命停電的“偷襲珍珠港”襲擊。
-
-根據獨立的美國國家和國土安全電磁脈衝工作組（EMP Task Force on National and Homeland Security）的報告，中共國已經建立了一個由衛星、高速導彈和“超級電磁脈衝”武器組成的網絡體系，這個體系有可能徹底破壞美國的電子網絡，攻擊至關重要的通信設施，以及扼制航空母艦戰鬥群戰鬥力。
-
-根據這份由工作組執行長官，長期研究電磁脈衝（EMP）戰爭的專家彼得·普里（Peter Pry）撰寫的報告，中共國研製的這種武器，是作為其“全面信息戰”的一部分，其中也包括了對計算機進行黑客襲擊。
-
-更重要的是，雖然中共國承諾只有在遭到攻擊後才會發動類似的攻擊，但普里（Peter Pry）向人們揭示，根據新顯示的數據，這個共產主義國家在撒謊，他們非常希望在衛星、艦船和陸地上首先使用這種“高空電磁脈衝”（HEMP）武器。
-
-普里（Peter Pry）在提供給情報部門的報告中提到，“中共國的軍事理論中有大量戰術和作戰計劃- 比如通過使用高空電磁脈衝（HEMP）武器，在戰場上取勝，擊敗美國航空母艦以及在美國本土發起類似“珍珠港”式的偷襲。這些是與核進攻的技術和作戰計劃相輔相成的。”如下所示：
-![This image has an empty alt attribute; its file name is 31d004ab-633c-40ee-8f8d-c87efc893932.jpg](https://spark.adobe.com/page/GJUOFzysHQa0V/images/31d004ab-633c-40ee-8f8d-c87efc893932.jpg?asset_id=eadc94b2-297d-4c33-af68-0fbeb6c8f7c1&amp;img_etag=%22c667fd641d9e3e314b54742f22e4406c%22&amp;size=1024)
-*2003年8月14日星期四的檔案照片中，大規模的停電波及美國東部地區和部分加拿大地區，克利夫蘭市處於黑暗之中，除了圖中左邊的聯邦法院大樓的應急燈以及圖中最右邊的SBC大樓。10年前，俄亥俄州發生了一起大面積停電事故，影響了5000萬人，如今電力公司和專業分析人士表示，儘管發電地點和發電方式的變化引發了美國電網系統可靠性的新問題，然而事故後做出的改進使目前不太可能發生類似的停電事故。馬克·鄧肯/美聯社*
-
-他補充說，雖然有些人相信中共國會履行不首先使用武力的承諾，但是一些重要的美國官員並不相信它們的承諾。他列舉了2020年2月美國戰略司令部總幹事查爾斯·理查德（Charles Richard）的證詞，證詞中說中共國不首先使用武力的政策可信度非常低。
-
-無論攻擊是來自敵對軍事力量還是太空事件，普里（Pry）用電磁脈衝（EMP）攻擊的潛在威脅喚醒了美國人。而且一度引起了華盛頓官員、五角大樓和川普總統對此類威脅的高度重視，並正在逐步建立抵抗此類攻擊的保護措施。
-
-這些措施是針對中共國、俄羅斯、朝鮮和伊朗製造和部署的武器的行動，他們的這些武器本質上就是向大氣層中發射並引爆核武器，從而使大氣層以下的電子設備無法工作，包括正在飛行飛機。
-![This image has an empty alt attribute; its file name is f156e36a-6bc2-4048-96d9-8b792ee2879b.png](https://spark.adobe.com/page/GJUOFzysHQa0V/images/f156e36a-6bc2-4048-96d9-8b792ee2879b.png?asset_id=14c3ce8d-8c4e-4778-b92e-8db5612ca350&amp;img_etag=%22bf122462c33bf4ae07cc05044039611b%22&amp;size=1024)
-若干年前，當普里（Pry）還是眾議院電磁脈衝（EMP）委員會重要成員的時候做過一份報告， 報告顯示，對東海岸的一次電磁脈衝（EMP）攻擊就可能導致一年內90％的死亡人口是死於搶劫、食物和水的短缺以及抑鬱絕望。即使是短暫的停電，也會像1977年在紐約發生的那樣發生搶劫。
-
-在他長達14頁的新報告中，他概述了中共國的武器裝備。
-
-首先是一種“超級電磁脈衝EMP”武器，它是用盜取的美國軍事技術而製造的。他說，這是一種裝在導彈上的核彈頭，可用於打擊戰艦和普通戰場。他援引了中共國軍方的報導說，這會是一種用於21世紀的“珍珠港”式攻擊的武器。中共國軍方的報導還說：“像美國這樣高度計算機化的開放社會極易受到來自各方面的電子攻擊。這是因為從銀行到電話系統，從發電廠到鋼鐵廠，美國的經濟完全依賴於計算機網絡。”
-
-其次是高超音速武器，它包括了可以以五倍音速的速度向目標發射的導彈。
-
-第三種是研製帶有核武器的電磁脈衝（EMP）衛星，這些衛星可以在空中漂浮數年。普里說：“美國應該高度關注這種情況：就是中共國用帶有專用彈頭的洲際彈道導彈或紅外彈道導彈的核太空武器，冒著損失自己衛星的危險，橫掃美國衛星所在的太空，並以大量中共國發射的衛星替換美國衛星，以此來擴張’高空邊界’和削弱美國的軍事能力。”
-
-[新聞鏈接](https://www.washingtonexaminer.com/washington-secrets/china-develops-weapons-to-fry-us-electric-grid-eyes-high-tech-pearl-harbor-attack)
-
-### [**編輯【喜馬拉雅戰鷹團】**](https://spark.adobe.com/page/GJUOFzysHQa0V/)
+[Spanish\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)
 
 
 
-1
+0
