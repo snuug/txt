@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共瘋狂抹黑美國之——美國醫院給核酸陽性患者出陰性報告
-`2020-06-22 10:59 Diago` [轉載自GNews](https://gnews.org/zh-hant/242337/)
+## 德國希望與中共國建立更多平等互惠的關係
+`2020-06-22 22:53 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/242667/)
 
-作者：Diago
+*新聞來源：Reuters 《路透社》*
 
-據[央視新聞](https://weibo.com/cctvxinwen)[6月21日 19:35](https://weibo.com/2656274875/J7H4h4Nhv?from=page_1002062656274875_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博雲剪](https://app.weibo.com/t/feed/4iDt6Q) 已編輯新浪微博
+*作者：Andreas Rinke & Paul Carrel*
 
-【[#美國醫院給核酸陽性患者出陰性報告#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8C%BB%E9%99%A2%E7%BB%99%E6%A0%B8%E9%85%B8%E9%98%B3%E6%80%A7%E6%82%A3%E8%80%85%E5%87%BA%E9%98%B4%E6%80%A7%E6%8A%A5%E5%91%8A%23&amp;from=default)】近日，美國佐治亞州阿森斯市一家醫院被曝操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。有護士稱，院方指示工作人員將咽拭子採樣送到只檢測鼻拭子的實驗室，這樣結果會呈陰性。院方這樣做，是不想收治新冠肺炎確診病例。 [L央視新聞的微博視頻](http://t.cn/A6LN58gd)（視頻見於篇首）
+*翻譯/簡評：InAHurry*
 
-在中央電視臺13頻道播出了這個所謂的NBC電視臺的“獨家披露”之後，“美國某醫院給陽性患者出具陰性報告”的新聞自昨天起至現在已經充斥國內各大新聞媒體，相關轉發情況如下（限於篇幅，以下只列五條，具體刊發情況見[“出具陰性結果”的百度搜索結果](https://www.baidu.com/s?tn=99682755_hao_pg&amp;ie=utf-8&amp;sc=UWY4rHm3nWTdPNqCmyqxTAThIjYkPHbzrjD1rj6dnH6LFhnqpA7EnHc1Fh7W5Hn1P1Dsn1msnWb&amp;ssl_sample=normal&amp;srcqid=4312541754650262562&amp;H123Tmp=nunew7&amp;word=%E5%87%BA%E5%85%B7%E9%98%B4%E6%80%A7%E7%BB%93%E6%9E%9C%E6%8A%A5%E5%91%8A) ）——
+*校對：Patrick*
 
-[給陽性患者出具陰性報告,也只有他們做得出來!](https://www.baidu.com/link?url=owcA8-FrA_ZDDxviuXwZvvddym6iLu_3-MTPcII30kXGIJmQpdAnxGA_yXSSdfUbS1LKULgI1UsWgbdOTE9YhwCsRxr4XtU5ZyAEResqNta)
+*Page: 拱卒*
 
-5小時前 – 據央視新聞 6 月 21 日晚消息,近日,美國佐治亞州阿森斯市一家醫院被爆操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。…[app.myzaker.com/news/a…](https://www.baidu.com/link?url=owcA8-FrA_ZDDxviuXwZvvddym6iLu_3-MTPcII30kXGIJmQpdAnxGA_yXSSdfUbS1LKULgI1UsWgbdOTE9YhwCsRxr4XtU5ZyAEResqNta)
+**簡評：**
 
-12小時前[不想收治新冠患者,美國一醫院故意出具陰性報告](https://www.baidu.com/link?url=jnfdZePLMzwLe4Jb6qkfKsAOfJh8lZUit4xCGxABVeUwr6Y68SGGC6VVcN4vcDK-XAD52dIzHDAlSnW0qyUz20uVts2s2OylTYxK24BqE9m) 棗莊網警巡查執法近日,美國佐治亞州一家醫院被曝操縱新冠病毒核酸檢測結果。他們竟然給核酸檢測陽性的患者出具陰性結果報告。有護士稱,院方指示工作人員將咽拭子採樣…
+德國將在今年7月擔任歐盟輪值主席國，任期半年。德國的默克爾及其政府在中共問題上一向親共，既便是在德國近20萬人感染中共病毒，約9千人因中共病毒失去生命的情況下，默克爾仍然倡導通過和中共國積極尋求合作來對應中共病毒。不僅如此，在疫情后的經濟復甦上，默克爾也寄希望於通過和中共加強合作，進一步打開中共國市場來實現經濟的重整旗鼓。她在5月27日的電視講話上說：“當她的政府接任歐洲輪值主席國時，歐盟與中共的關係將是首要任務,…,歐盟與中共國保持合作具有’巨大的戰略意義’。 ”
 
-5小時前[令人髮指!美國一醫院為了不接收新冠病例,給患者出具…](https://www.baidu.com/link?url=xfO_Ah1q_Prl49XUd-ZDru0BZ-ztPjmvU_CxvAfQ3uo29CHUnkP6-nByAt0PPEY90WWy8RpBFuy8y6kk2bhnaK) 騰訊新聞
+而路透社的這篇新聞卻暗示出德國政府的對華態度也許已經有所改變。據報導，德國最新公佈的歐盟輪值主席國政策計劃草案中增加了與中共國的合作需要符合“平等互惠”並且有“價值觀”的要求這兩個新的條件。分析指出，這些新條件的加入預示著德國在擔任輪值主席國期間可能會對中共國採取比人們所預期的更強硬的路線。在中共病毒肆虐歐洲以後，多數歐盟國家公民認為中共國應該為冠狀病毒（中共病毒）造成的損失負，因此，歐盟層面對中共國的態度有了很大的改變：首先，歐盟出台了“外國投資篩選框架”來試圖控制外國資本（主要是中共資本）在歐盟進行侵略性收購，從而保護歐盟國家的戰略利益；另外，歐盟委員會破天荒地首次公開指責中共是網絡上有關冠狀病毒的虛假信息氾濫的幕後黑手。德國這次能順應歐盟的大氛圍，在出任輪值主席國之前修改其政策草案並提出讓歐盟對華政策以歐盟共同利益和價值觀為導向，這的確讓人眼前一亮。在這份文件中，還有一個非常值得注意的亮點就是把美國稱為歐盟最親密的外交和政策夥伴。希望這不只是在美國從德國撤兵後的向美國示好。德國應該意識到中共與民主國家從根本上就是不同的，不可能融合的，歐洲的盟友/合作夥伴是美國而不是中共國。
 
-18小時前[美媒曝美國一家醫院給核酸陽性患者出陰性報告,護士…](https://www.baidu.com/link?url=a7OkbgKfHJUcbiLbGGj5uQBss4JePan4bgrGdUFpRqNtV2irc9HSX3fDO91fYaks) 鳳凰網
+**原文：**
 
-1天前[…被曝操縱新冠病毒核酸檢測結果,故意給核酸陽性患…](https://www.baidu.com/link?url=jnfdZePLMzwLe4Jb6qkfKsAOfJh8lZUit4xCGxABVeUwr6Y68SGGC6VVcN4vcDK-yEPZ2ecbAlYQgJDw8cz4BISP1GVScJ9Up-MuNHv2Eie) 環球網
+### **正在準備擔任歐盟輪值主席國的德國，希望與中共國有更多平等互惠的關係**
+![This image has an empty alt attribute; its file name is 7622cbfd-d957-4ac2-940e-a27d64ffcf10.jpg](https://spark.adobe.com/page/KYeNXwO2KA043/images/7622cbfd-d957-4ac2-940e-a27d64ffcf10.jpg?asset_id=273831c1-6880-4e2b-aa2e-62a5d392796e&amp;img_etag=%2250061b589090fdfad2174083a5ec58f6%22&amp;size=2560)資料圖片：中共國主席習近平（右）在北京人民大會堂會見德國總理默克爾，2018年5月24日。
+柏林（路透社）- 德國已表示將推動對中共國採取更強硬的政治路線，他在一份文件文件草案中增加了對“平等互惠”的強烈要求– 這被視為是進入歐洲企業的代碼，而且（草案中）還加入了對“價值觀”的新強調。
 
-對於這個央視13台的視頻中提到的NBC電視臺的所謂“獨家披露”，在NBC的官網上以CORONAVIRUS進行搜索（見[以CORONAVIRUS為關鍵字的NBC節目搜索結果](https://www.nbc.com/search)）並未發現這條央視13台引用的獨家披露，憑常識判斷這就是一條戴上外媒帽子的徹徹底底的謊言。
+德國會在今年下半年接任歐盟輪值主席。他在路透社週一審查的一份草案中闡述了其對總統任職期間的政策計劃。該草案會取代早前在3月編制的草案。
 
-不知道這家被兲朝一眾媒體堂而皇之引用的NBC電視臺，在看到這個所謂的“獨家披露”之後，會不會把領謠的中央電視臺和轉發的兲朝媒體一併告上法庭，讓他們承受誹謗的代價？
+在眾多新內容中，這份長達24頁的文件講到：“我們希望發展與中共國的合作，並在所有政策領域實現更多的平等互惠。”
 
-在防火牆的阻隔之下，中共通過自己控制的媒體，用精心編制的謊言對民眾進行無縫連接的強制洗腦，把它治下的國民徹底變成聾子、傻子，在輪番洗腦之下，很多人視美國和西方為敵，對美國和西方恨之入骨，他們被徹底綁上了中共的戰車。而在中共滅亡之後，在被中共洗腦深入骨髓的同胞中，有多少人會象終生攜帶CCP冠狀病毒一樣終生攜帶共產主義的思想病毒呢？這是一個任何人無法直視的問題。
+對於“平等互惠”的提及是因為之前有德國企業抱怨說他們在中共國沒有像中共國企業在德國所享有同等市場參與權。
 
-滅中共，不易！清中共餘毒，更難！
+在長達24頁的文件中這樣寫道：“所有歐盟機構和成員國的對華政策應該是統一的和平衡的，並以歐盟長期的共同利益和價值觀為導向。”
 
-（文章內容僅代表作者個人觀點）
+“價值觀”一詞曾在早前的草案中被省略，但現在將它包含在內可能表示著歐盟將對民主，人權和香港自治等問題更加關注。
+
+德國在本月初曾表示，中共國和歐盟原計劃於9月在德國萊比錫舉行的峰會因冠狀病毒（中共病毒）已被推遲。
+
+文件草案還寫道：“美國是我們在歐盟以外最親密的外交和安全政策夥伴。”這句在平時或許會被看作是無關痛癢的話在華盛頓宣布計劃從德國撤軍之際，也許它的意義很重大。
+
+[原文鏈接](https://www.reuters.com/article/us-germany-eu-china-idUSKBN23M1SF)
+
+編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/KYeNXwO2KA043/)
 
 0

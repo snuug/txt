@@ -1,25 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】20/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 01:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/242873/)
+## Warroom 228：郭文貴先生談爆料革命的唯一目標以及為什麽建立新中國聯邦
+`2020-06-23 02:59 GM77` [轉載自GNews](https://gnews.org/zh-hant/243018/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)
-
-[French\_0620\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)
-
-[German\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)
-
-[Japanese\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)
-
-[Korean\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)
-
-[Russian\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)
-
-[Spanish\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+•夏威夷的彭楊會主要談論的就是新中國聯邦。中共擔心美國資助爆料革命幹掉CCP，因此想毀掉新中國聯邦，繼續欺騙美國人和川普總統，奴役中國人民。爆料革命的唯一目標是讓美國再次偉大，美元再次堅挺，美國人都安全，從而幫助中國人民推翻共產黨，建立一個民主、法治、自由的新中國。
+•如果美國人民遭遇了危險那麽結果是災難性的，只要保證美國再次偉大並且引領世界，全世界人民都是安全的，是未來美好與和平的唯一方式。因為美國人只建國了300年就把自由、民主和法治傳播到世界上每一個角落。
+•現在美國人需要做的最重要的一件事是阻止CCP使用美元，阻止CCP用美國的科技和美國人搞死美國。如果美國沒有了，全世界也都將陷於災難中，這就是中共為什麽控制所有的社交媒體的原因。
 
 0

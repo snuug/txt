@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三峽大壩大考臨近剛入雨季就遇百年最大洪峰
-`2020-06-23 01:25 benjaming` [轉載自GNews](https://gnews.org/zh-hant/242802/)
+## 【世界多語言圖文】21/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-23 02:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/242974/)
 
-作者：文茗
+戰友之家圖文摘要組及小語種組
 
-地處三峽上游的重慶市水文監測總站22日發布洪水紅色預警，受降雨影響，預計綦江流域重慶段未來8小時內將出現洪水，重慶江津區綦江五岔站最高水位將超過保證水位（200.51米）5.7至6.3米左右，漲幅約10至11米。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003620/%E5%9B%BE%E7%89%871-23.png)
-當日早10時，重慶市水文監測總站發布了江津區綦江五岔站洪水橙色預警。 12時左右，重慶市水文監測總站將江津區綦江五岔站洪水橙色預警升級為綦江流域重慶段全線洪水紅色預警。此次預警，是重慶市水文監測總站歷史首次發布綦江洪水紅色預警。
+[English\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)
 
-據重慶市水文監測總站監測，21日8時至22日8時，重慶東南部及西部偏南地區中到大雨、局地暴雨到大暴雨。重慶酉陽、秀山、彭水等9個區縣出現暴雨，其中酉陽、秀山、武隆、南川等4個區縣出現大暴雨。最大日降雨量出現在南川水江鎮長青社區，為143.0毫米。
+[French\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)
 
-受降雨影響，重慶秀山酉水、酉陽甘龍河、武隆石梁河、綦江通惠河、綦江（萬盛）清溪河、綦江藻渡河、南川魚泉河、南川大溪河等8條次中小河流出現超警戒水位洪水。秀山酉水、酉陽甘龍河目前已退至警戒水位以下，其餘河流水位仍在上漲。秀山梅江、彭水郁江等31條次中小河流出現1至8米漲水過程，最高水位未超警戒水位。其餘中小河流水勢平穩，未出現明顯漲水過程。
+[German\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)
 
-據了解，目前重慶綦江區防汛抗旱指揮部已發布城區防汛Ⅱ級預警並啟動Ⅱ級應急響應。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003627/%E5%9B%BE%E7%89%872-19.png)
-與此同時20日至21日，西南東北部、江淮、江南北部及湖北等地出現一次強降雨過程。受降雨及上游來水影響，金沙江中游支流蜻蛉河等36條河流發生超警以上洪水，其中重慶綦江上游幹流及四川大渡河支流小金川發生超歷史洪水，四川大渡河上游幹流、重慶綦江支流蒲河及藻渡河等11條河流發生超保洪水。遵義市桐梓縣出現雷雨天氣，持續的強降雨引發山洪災害。洪水造成道路中斷，多處房屋被淹，通村通組道路嚴重受損。
+[Japanese\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)
 
-中共中央氣象台22日18時繼續發布暴雨黃色預警，預計22日20時至23日20時，湖南北部、湖北東部、安徽中南部、江蘇大部、江西西北部、貴州中南部及黑龍江西部等地的部分地區有大到暴雨，其中，湖南西北部等地局地有大暴雨。上述部分地區伴有短時強降水，局地有雷暴大風等強對流天氣。預計22日至25日，長江中下游地區有持續強降雨天氣。受其影響，長江上游支流烏江及三峽區間、洞庭湖及鄱陽湖水系、中下游沿江河流，太湖及周邊河網地區，浙江錢塘江，安徽淮南山區，廣西柳江、桂江及西江乾流等河流將出現漲水過程，其中湖南湘江、資水、沅江，江西昌江，廣西柳江、桂江等部分河流可能發生超警洪水，暴雨區內部分中小河流可能發生較大洪水。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003639/%E5%9B%BE%E7%89%873-20.png)
-到目前，洪水已造成廣東、廣西、湖南、貴州、重慶等24省852.1萬人次受災，49.5萬人次撤離，7300餘間房屋倒塌，13.8萬間不同程度損毀，農作物受災面積高達622千公頃，直接經濟損失206.7億元。
+[Korean\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)
 
-而長江流域的雨季才剛剛開始，預計未來一周長江流域將發生兩次降雨過程。 21-25日，長江乾流附近及以南地區自西向東有一次大雨，局地暴雨到大暴雨的強降雨過程；26日起，長江流域自西向東有一次強降雨過程。 21-25日，洞庭湖水系、陸水、鄱陽湖水系北部及長江中下游幹流附近累計降雨100-200毫米。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003643/%E5%9B%BE%E7%89%874-18.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003650/%E5%9B%BE%E7%89%875-3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003759/%E5%9B%BE%E7%89%876-3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003807/%E5%9B%BE%E7%89%877-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003819/%E5%9B%BE%E7%89%878-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003833/%E5%9B%BE%E7%89%879-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003936/%E5%9B%BE%E7%89%8710-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003953/%E5%9B%BE%E7%89%8711-1.png)
-此前媒體報導，三峽大壩入庫流量20日增加至每秒26500立方米，比19日的每秒20500立方米增加了每秒6000立方米。目前庫區水位接近147米，超出防洪限制水位近兩米。三峽大壩的大考真的來了，隨著降雨的持續，考驗三峽大壩的質量的時刻真的來了，但願老天保佑三峽不要發生潰壩，那將是一場世紀級別的大災難。
+[Russian\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)
 
-（文章內容僅代表作者觀點）
+[Spanish\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)
 
 0
