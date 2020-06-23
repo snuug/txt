@@ -1,25 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】20/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 01:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/242873/)
+## 皮特·納瓦羅接受CNN電視臺采訪時表示中共政府應該對冠狀病毒全球的爆發負責任
+`2020-06-23 03:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/243056/)
 
-戰友之家圖文摘要組及小語種組
-
-[English\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)
-
-[French\_0620\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)
-
-[German\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)
-
-[Japanese\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)
-
-[Korean\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)
-
-[Russian\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)
-
-[Spanish\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+皮特·納瓦羅表示美國政府必須為可能發生的事情做好準備，盡管不一定會發生。冠狀病毒疫情在全球爆發導致的人口死亡和經濟損失都應該由中共政府負責，因為中共政府在實驗室內孕育了病毒，並且瞞報疫情長達兩個月之久。
 
 0

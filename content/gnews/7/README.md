@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】21/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 02:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/242974/)
+## 班農戰情室244CNN與CGTN屬中共海外大外宣
+`2020-06-23 08:54 GM67` [轉載自GNews](https://gnews.org/zh-hant/243149/)
 
-戰友之家圖文摘要組及小語種組
+作者：VOG翻譯組 雪菜    編輯：VOG翻譯組 flasher
 
-[English\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)
+結合上週六戰情室討論的中共對全球發起資訊熱戰的內容，中共不僅在中國國內對民眾壓迫，對西藏打壓、對法輪功打壓、器官活摘、對香港運動打壓、對國內地下教會基督徒迫害和天主教徒迫害，中共總是能夠相當嫺熟地將內部輿論控制住，而且在對海外的宣傳方面也表現得相當專業，其手段也是令人咋舌，前有美國之音的艾曼達·貝內特，後有《華盛頓郵報》等新聞宣傳機構。
 
-[French\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)
+現在又有日前被國務卿邁克·彭培奧（Mike Pompeo）定義為外國使團的CGTN。CGTN相當於中共CCTV海外版，受控於中共宣傳部，專門針對反共人士進行攻擊抹黑，充斥著各種反美反川普的內容，中共通過雇傭西方記者來為他們的海外大外宣媒體工作，而CGTN至少擁有5名前CNN主播為其工作，如曾在阿富汗擔任外交官，具有20多年CNN工作經驗的肖恩·卡勒布斯（Sean Callebs）當前就在為CGTN美國站工作，當然他不是唯一的一個，還有另外一份準確的名單將在晚些時候公佈，這些為中共賣命工作的新聞記者，他們會從中共得到大筆傭金，但是他們最終是如何從CNN轉到CGTN的呢？這還有待調查。由於這些人與CNN之前千絲萬縷的關係，使得CNN通常對自己組織內部的疑慮視而不見。班農先生建議立即對這些賣國行為展開調查並追責。
 
-[German\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)
+戰情室呼籲美國警醒——中共的海外大外宣從未真正停止，他們表現得多樣化，科技化，廣泛化，如當前在美國流行的抖音，其實就是中共的另外一種洗腦宣傳，人們不需要做出思考而只是接受資訊，這對美國的損害是極大的。中共龐大的外宣支持，使得其宣傳影響力達到當年俄羅斯的250倍之多，中共向臉書，《紐約時報》、《華盛頓郵報》、《華爾街日報》支付大量費用，這些公司都在幫助中共進行海外的宣傳，其中這些報紙的特刊其實就是《人民日報》的海外版。
 
-[Japanese\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)
+針對中共的各種形式的宣傳和影響，結合美國的黑人生命問題以及之前的Antifa，戰情室分析當前正處於全球性的第四次工業革命時期，需要保守和堅定美國自由、民主、信仰體系，甚至更需要保護美國的盟國不受共產主義暴力衝擊，這是一場有關宗教和生命價值體系的戰爭。
 
-[Korean\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)
-
-[Russian\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)
-
-[Spanish\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)
+川普總統暫緩了對中共香港問題的經濟制裁，對於此事，中共控制的各種媒體機構又開始了宣傳攻勢，借由被中共重金收買的CNN開始發推，然後轉載推文瞬間達到5萬5千次之多，這背後的帳戶使用者令人生疑。斯坦福的調查報告和澳洲的調查報告都已表明這一數字的背後都是機器人帳戶，而且推特也承認確實在總統選舉中存在重大干預行為，這一切幕後又會是誰呢？！
 
 0

@@ -1,31 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三峡大坝大考临近刚入雨季就遇百年最大洪峰
-`2020-06-23 01:54 benjaming` [轉載自GNews](https://gnews.org/zh-hant/242927/)
+## 美財政部長姆努欽：川普內閣正在努力使中共對病毒負責
+`2020-06-23 07:32 GM10` [轉載自GNews](https://gnews.org/zh-hant/243107/)
 
-作者：文茗
+**作者：Dogman**
 
-地处三峡上游的重庆市水文监测总站22日发布洪水红色预警，受降雨影响，预计綦江流域重庆段未来8小时内将出现洪水，重庆江津区綦江五岔站最高水位将超过保证水位（200.51米）5.7至6.3米左右，涨幅约10至11米。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003620/%E5%9B%BE%E7%89%871-23.png)
-当日早10时，重庆市水文监测总站发布了江津区綦江五岔站洪水橙色预警。12时左右，重庆市水文监测总站将江津区綦江五岔站洪水橙色预警升级为綦江流域重庆段全线洪水红色预警。此次预警，是重庆市水文监测总站历史首次发布綦江洪水红色预警。
+美財政部長史蒂夫姆努欽先生周一接受福克斯新聞采訪時說（鏈接1），川普總統內閣正在努力，以使中國政府為其在CCP病毒上缺失透明度和對美國造成的損失負責。
 
-据重庆市水文监测总站监测，21日8时至22日8时，重庆东南部及西部偏南地区中到大雨、局地暴雨到大暴雨。重庆酉阳、秀山、彭水等9个区县出现暴雨，其中酉阳、秀山、武隆、南川等4个区县出现大暴雨。最大日降雨量出现在南川水江镇长青社区，为143.0毫米。
+福克斯新聞的達布斯（Lou Dobbs）在采訪中問問姆努欽，川普總統內閣現在是否有對與中共主席習近平和CCP的制裁計劃。達布斯在提問中，著重提到CCP需要對美國死去的數十萬人負責，並且稱CCP的做法是在“謀殺”。而姆努欽回答道“我認為有這個計劃和努力，我們需要先看一下國務卿龐培奧先生最近的會議，（他）非常清晰的說‘我們需要答案’”，他接著強調“中共到現在還沒有開放和透明，是無法令人接受的”，並且強調“病毒來自那裏（中共）是毫無疑問的，病毒是如何傳到世界上的，為什麽當時沒有在中國傳播”。
 
-受降雨影响，重庆秀山酉水、酉阳甘龙河、武隆石梁河、綦江通惠河、綦江（万盛）清溪河、綦江藻渡河、南川鱼泉河、南川大溪河等8条次中小河流出现超警戒水位洪水。秀山酉水、酉阳甘龙河目前已退至警戒水位以下，其余河流水位仍在上涨。秀山梅江、彭水郁江等31条次中小河流出现1至8米涨水过程，最高水位未超警戒水位。其余中小河流水势平稳，未出现明显涨水过程。
+前一天，白宮貿易辦公室主任彼得納瓦羅在周末接受CNN采訪時曾提到“病毒是中共研制的產物”（鏈接 2）。
 
-据了解，目前重庆綦江区防汛抗旱指挥部已发布城区防汛Ⅱ级预警并启动Ⅱ级应急响应。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003627/%E5%9B%BE%E7%89%872-19.png)
-与此同时20日至21日，西南东北部、江淮、江南北部及湖北等地出现一次强降雨过程。受降雨及上游来水影响，金沙江中游支流蜻蛉河等36条河流发生超警以上洪水，其中重庆綦江上游干流及四川大渡河支流小金川发生超历史洪水，四川大渡河上游干流、重庆綦江支流蒲河及藻渡河等11条河流发生超保洪水。遵义市桐梓县出现雷雨天气，持续的强降雨引发山洪灾害。洪水造成道路中断，多处房屋被淹，通村通组道路严重受损。
+而在國務卿龐培奧在結束與中共外事委員會辦公室主任楊潔篪會面後，發表一些列的重要講話，其中美國國務院與6月18日發表的聲明中要求中共需要對CCP病毒做到“完全透明和信息分享”（鏈接 3）。
 
-中共中央气象台22日18时继续发布暴雨黄色预警，预计22日20时至23日20时，湖南北部、湖北东部、安徽中南部、江苏大部、江西西北部、贵州中南部及黑龙江西部等地的部分地区有大到暴雨，其中，湖南西北部等地局地有大暴雨。上述部分地区伴有短时强降水，局地有雷暴大风等强对流天气。预计22日至25日，长江中下游地区有持续强降雨天气。受其影响，长江上游支流乌江及三峡区间、洞庭湖及鄱阳湖水系、中下游沿江河流，太湖及周边河网地区，浙江钱塘江，安徽淮南山区，广西柳江、桂江及西江干流等河流将出现涨水过程，其中湖南湘江、资水、沅江，江西昌江，广西柳江、桂江等部分河流可能发生超警洪水，暴雨区内部分中小河流可能发生较大洪水。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003639/%E5%9B%BE%E7%89%873-20.png)
-到目前，洪水已造成广东、广西、湖南、贵州、重庆等24省852.1万人次受灾，49.5万人次撤离，7300余间房屋倒塌，13.8万间不同程度损毁，农作物受灾面积高达622千公顷，直接经济损失206.7亿元。
+一系列美國高級官員在美國媒體的表態越來越明確，由龐培奧要求的“完全透明”，到納瓦羅說的病毒中共造，再到今天姆努欽表態川普內閣正在考慮如何懲罰中共，川普總統近期出臺“大動作”懲罰中共是可期的。
 
-而长江流域的雨季才刚刚开始，预计未来一周长江流域将发生两次降雨过程。21-25日，长江干流附近及以南地区自西向东有一次大雨，局地暴雨到大暴雨的强降雨过程；26日起，长江流域自西向东有一次强降雨过程。21-25日，洞庭湖水系、陆水、鄱阳湖水系北部及长江中下游干流附近累计降雨100-200毫米。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003643/%E5%9B%BE%E7%89%874-18.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003650/%E5%9B%BE%E7%89%875-3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003759/%E5%9B%BE%E7%89%876-3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003807/%E5%9B%BE%E7%89%877-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003819/%E5%9B%BE%E7%89%878-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003833/%E5%9B%BE%E7%89%879-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003936/%E5%9B%BE%E7%89%8710-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23003953/%E5%9B%BE%E7%89%8711-1.png)
-此前媒体报道，三峡大坝入库流量20日增加至每秒26500立方米，比19日的每秒20500立方米增加了每秒6000立方米。目前库区水位接近147米，超出防洪限制水位近两米。三峡大坝的大考真的来了，随着降雨的持续，考验三峡大坝的质量的时刻真的来了，但愿老天保佑三峡不要发生溃坝，那将是一场世纪级别的大灾难。
+制裁中共，從口炮慢慢走進現實。
 
-（文章内容仅代表作者观点）
+（文章觀點僅代表作者本人，GTV：狗狗警察）。
+
+鏈接：
+
+1. [https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
+2. [https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
+3. [https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
+
+
+
 
 0
