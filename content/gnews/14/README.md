@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】21/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 02:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/242974/)
+## 中共病毒可能最早始於去年秋天，起源解析需中共合作和信息分享
+`2020-06-23 07:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/243091/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23071406/Picture-1-101.png)圖片來源：[www.cdc.org](http://www.cdc.org/)
+日經亞洲評論報於6月22日發表了一篇有關中共冠狀病毒的最新基因研究的報導。報導中指出，據英國及其他國家的研究小組對病毒基因組的不同分析結果顯示，中共冠狀病毒可能於去年秋天就已開始在中共國傳播。
 
-[English\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)
+該報導指出，這些不同的分析報告涵蓋了該病毒的所有遺傳信息，明顯指出在武漢市確認第一例患者之前，人與人之間的傳播就已經在持續發生。然而目前為止還沒有發現任何線索可以確認該病毒的來源，這使得中共病毒的起源之謎更加撲朔迷離。儘管有證據顯示中共冠狀病毒最初是來自蝙蝠病毒，但該病毒究竟是直接傳播給人還是通過另一種動物傳播給人目前也無法確定。來自世界各國的研究團隊正在努力分析該病毒的基因組，以發現其究竟是從何時跨種傳給人類，並在國際數據庫中分享彼此研究資訊。追踪該病毒的突變順序也有可能揭示人與人之間的傳播究竟始於何時。
 
-[French\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)
+報導中又進一步列出目前的研究中發現的幾項疑點：
 
-[German\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)
+- 中共稱首例由中共病毒引起的肺炎患者於是12月8日在武漢被確認，並向英國著名的醫學雜誌《柳葉刀》報告說，該患者於12月1日開始出現症狀。但許多人對這是否真的是第一例感到懷疑。
 
-[Japanese\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)
 
-[Korean\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)
+- 據倫敦大學學院的研究人員從中國，歐洲，美國和其他地區的7,500多名患者身上提取的病毒遺傳信息來估計，人與人之間的傳染應始於10月6日至12月11日之間。所以該研究小組認為，這種病毒很早就已傳播到了中共國之外，並最終引發了大流行。
 
-[Russian\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)
 
-[Spanish\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)
+- 而英國劍橋大學的另一個研究小組則認為，根據他們對約1000人的遺傳物質的研究，感染是在9月中旬至12月初傳播到人們。該研究團隊還表示，病毒有可能並非起源於武漢。
+
+
+- 據劍橋麥克唐納考古研究所研究員彼得·福斯特（Peter Forster）說，中共冠狀病毒的共同祖先似乎起源於中國的一種蝙蝠病毒。而該蝙蝠病毒是在武漢以南的廣東省於1月中旬被發現。
+
+
+- 其他類型的分析也被採用來針對病毒爆發時間和開始地點進行研究。哈佛大學最近使用衛星圖像分析表明，武漢的大型醫院停車場的使用率在去年8月開始顯著增加。該團隊專家認為，雖然這種分析無法定論起源，但停車場的圖像變化很可能與中共冠狀病毒有關。
+
+
+- 在法國，一名40多歲的男子在去年12月下旬因流感症狀住院。而今年4月份對他的病毒樣本進行分析後，醫生證實他是被中共冠狀病毒感染。但是，由於當時來歷不明的肺炎患者並沒有激增，因此該病例與大流行的關係無法確認。
+
+
+另外，美國疾控中心（CDC）發布的一份早期報告中指出，中共病毒可能在1月下旬至2月上旬期間就已開始在美國傳播。但跟據這些最新基因研究報告顯示，中共病毒開始到傳播到歐洲和美國的時間可能比想像的要早很多。中共最初雖曾發表說中共冠狀病毒是始於武漢海鮮市場，但隨後又撤回這一說法，並一再否認美國川普政府說該病毒是從武漢研究機構洩露的說法。而對此，中共的傀儡世界衛生組織（WHO）則表示目前無法確定該病毒是否起源於武漢的市場。該組織正在考慮是否派遣研究小組來協助國際追踪該病毒的起源的工作，但毫無疑問的是，要找到該病毒起源，還需要中共的合作和信息分享。
+
+評：
+
+儘管中共冠狀病毒起源仍疑雲重重，而中共和世衛組織又竭盡所能地推脫狡辯，世界各國最新的基因研究報告已明顯地揭穿了中共的謊言，撕裂了世衛的假面具。紙包不住火，真相必定會水落石出。危害全人類的中共必受世界的審判，中共傀儡的世衛也必為其無能付出代價!
+
+[原文鏈接](https://asia.nikkei.com/Spotlight/Coronavirus/Coronavirus-likely-spread-in-China-last-fall-more-studies-find)
+
+翻譯報導：匿名
+校對整理：Yamap
 
 0

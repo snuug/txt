@@ -1,47 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共調劑全國養老基金，背後真相是養老金空賬，我們將老無所依！
-`2020-06-23 12:58 GM30` [轉載自GNews](https://gnews.org/zh-hant/243384/)
+## 重建經濟輝煌時川普總統將把美國工人放在首位（中英文對照）
+`2020-06-23 15:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243404/)
 
-**作者：文茗**
+新聞簡述：川普總統於6月22日宣布將對新移民簽證的暫停期延長到年底，並暫停了幾種與工作相關的非移民簽證，包括H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及L類和某些J類簽證。他還取消了以就業為主要目的庇護申請激勵措施。旨在阻止外國工人在眾多美國人失業的時候進入美國。這些舉措是為美國公民保留工作崗位，以確保美國工人在從冠狀病毒的經濟影響中恢復時被優先考慮。川普政府還宣布將改革移民制度，轉向以績效為基礎的移民制度，優先考慮最高技能的工人。最後還引用了皮尤研究中心的一項民意調查結果：81%的美國人認為，在面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09195412/Trump_sign_photo169.png)
+白宮原文：
 
-近日，中共財政部發布了2020年中央調劑基金年度預算，數據顯示，今年中央調劑基金預計達到7398.23億元，比去年執行數增加1095.23億元，增幅達到17.4%。
+**President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23123959/1-180.png)
+**重建經濟輝煌時川普總統將把美國工人放在首位**
 
-中共养老保险基金调剂制度是于2018年7月开始实施。其中，部分省份上缴的资金额大于得到的拨付额，成为净贡献省份；得到的拨付额大于上缴额，成为净受益省份。实施的原因就在于全国大部分省份养老金空账所致。
+Issued on: June 22, 2020
 
-根据今年的预算，有7个省份是净贡献省，21个省份以及新疆生产建设兵团是净受益省，还有3个省份持平。7个净贡献省份分别是广东、北京、福建、江苏、浙江、上海、山东，一共净贡献了1767亿元。这些省份全部位于东部沿海，包括了粤苏鲁浙这四个经济大省、京沪两大强一线城市，以及民营经济发达的东南沿海省份福建。其中，第一经济大省广东净贡献达到645.71亿元，占净贡献总额比重高达36.5%，成为中央调剂金贡献最大省份。
+頒佈於 2020年6月22日
 
-广东一直是养老金结余最多的省份。去年4月，中国社科院世界社保研究中心发布的《中国养老金精算报告2019-2050》称，在引入养老金中央调剂制度后，2019年当期广东养老金结余1296.0亿元，位居第1，远超排在第2位的四川478.3亿元和第3位的北京477.2亿元，优势明显。
+“We have a moral duty to create an immigration system that protects the lives and jobs of our citizens.”
 
-除了7个净贡献省份，贵州、云南和西藏这三个省份持平，他们也是人口出生率较高、老龄化程度较低、领退休金人口比例较低的省份。此外还有21个省份以及新疆生产建设兵团是净受益省份，其中有四个省份的净受益超过了100亿元，分别是辽宁、黑龙江、湖北和吉林。净受益省份总体呈现老龄化程度较高、年轻人口外流、养老金收不抵支的状态，东北地区尤为典型。数据显示，辽宁净受益最多，达到555.58亿元，此外黑龙江净受益485.56亿元，吉林净受益145.19亿元。
+President Donald J. Trump
 
-显然这样的调配制度是对广东极为不公平的，其他省份今天还有广东还可以调配补充，那如果广东也“老去”之时，谁又能调配给它呢？归根结底这一切根源就是养老金空账所致。
+“我們在道義上有責任建立一個保護我們公民生命和工作的移民制度。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23124058/2-100.png)
+唐納德·川普總統
 
-在養老金調配制度之前，2015年城鎮職工基本養老保險個人賬戶累計記賬額（即“空賬”）達到4.7萬億元。而當年城鎮職工養老保險基金累計結余額只有3.5萬億。也就是說，即使把城鎮職工基本養老保險基金的所有結余資金都用于填補個人賬戶，也仍然會有1萬多億的差額。
+**LEADING AN AMERICA FIRST RECOVERY: President Donald J. Trump is extending and expanding the suspension of certain visas through the end of the year to ensure American workers take first priority as we recover from the economic effects of the coronavirus.**
 
-由于補充養老保險和個人養老保險並不普及，一般談到養老金，多指國家強制的基本養老保險，包括城鎮職工基本養老保險、機關和事業單位養老保險、城鄉居民基本養老保險三種類型。
+領導一個美國第一的複蘇：唐納德·川普總統正在延長和擴大暫停某些簽證直到年底，以確保美國工人在我們從冠狀病毒的經濟影響中恢復時優先考慮。
 
-截至2016年末，中共國基本養老保險覆蓋人數超過8.8億。全國城鎮職工基本養老保險基金的總收入是2.84萬億元，總支出是2.58萬億元，當期結余是2600多億元，累計結余是3.67萬億元，可以確保17個月的支付。但是，由于目前我國養老保險主要是省級統籌，各省之間養老保險基金的運行差異比較大。高的省份，能夠保障50個月的支付，特別困難的省份，當期收不抵支，累計結余也基本上用完。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23124226/3-55.png)
-根據中共人社部發布的《中國社會保險發展年度報告2015》顯示，2015年，黑龍江、遼甯、吉林、河北、陝西和青海共六省份的城鎮企業職工養老保險基金當期收不抵支。其中，黑龍江收入比支出少183億元，遼甯、吉林也收支相差105億元、41億元。即便是養老保險基金累計結余最多的廣東，粵東西北多個市也出現嚴重收不抵支。
+- President Trump is extending the pause on new immigrant visas through the end of the year to ensure we continue putting American workers first during our ongoing coronavirus recovery.
+- 川普總統將新移民簽證的暫停期延長到年底，以確保我們在持續的冠狀病毒恢復期間繼續將美國工人放在第一位。
+- President Trump is building on this measure with an additional pause on several job-related nonimmigrant visas—H-1Bs, H-2Bs without a nexus to the food-supply chain, certain H-4s, as well as Ls and certain Js—preserving jobs for American citizens.
+- 川普總統在這一措施的基礎上，又暫停了幾種與工作相關的非移民簽證–H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及Ls和某些Js–為美國公民保留工作崗位。
+- President Trump’s efforts will ensure businesses look to American workers first when hiring.
+- 川普總統的努力將確保企業在招聘時首先考慮美國工人。
+    - Many workers have been hurt through no fault of their own due to coronavirus and they should not remain on the sidelines while being replaced by new foreign labor.
+    - 許多工人因冠狀病毒而受到傷害，但這並不是他們自己的過錯，他們不應該在被新的外國勞工取代的同時，繼續被閒置。
+- The Trump Administration has also finalized regulations to eliminate the incentive to file an asylum application for the primary purpose of obtaining an Employment Authorization Document.
+- 川普政府還敲定了法規，取消了以獲得就業授權文件為主要目的提出庇護申請的激勵措施。
+- With some exceptions, we should not permit large numbers of foreign workers to enter the United States at a time when so many Americans are out of work.
+- 除了一些例外，我們不應該允許大量的外國工人在這麼多美國人失業的時候進入美國。
 
-而截至2014年底只有河北、黑龍江、甯夏3省份當期收不抵支。很顯然，“入不敷出”的地區數量在增加。這些養老金收不抵支的省份，主要依靠財政資金補貼。最近幾年，財政補貼的力度也越來越大。據學者測算，2016年財政給予養老金的補貼或超過6000億。
 
-2018年末全國養老金累計結余可支持14.7個月的支出；分省市看，廣東高達52.2個月，黑龍江已轉負。以累計結余與當年基金支出之比衡量養老金可持續性，則2018年末全國養老金累計結余可持續月數爲14.7，全國範圍內廣東（52.2）、北京（41.8）、雲南（22.0）、西藏（19.8）和四川（18.3）可持續月數居于前列；黑龍江(-3.1)、遼甯（1.7）、青海（4.8）、湖北（5.9）和河北（6.7）可持續性較差，其中黑龍江爲唯一累計結余爲負的省份。當年養老保險收支結余爲負的省市有黑龍江和遼甯，當年結余分別爲-152.1和-366.9億元。對比2017年，15個省市的養老金可持續月數減少，其中安徽2018年可持續月數爲13.3，較2017年大幅減少10個月；廣東、內蒙古和甘肅較2017年分別減少3.7、3.1和2.7個月；雲南、北京和重慶較2017年增加7.9、3.7和3.5個月。
+**MOVING TO A MERIT-BASED IMMIGRATION SYSTEM: The Trump Administration will reform our immigration system to prioritize the highest-skilled workers and protect American jobs.**
 
-中共的養老保險制度是20多年前建立的，當時人口撫養比是5：1，現在已經持續下降到2.8：1。隨著人口老齡化的加速發展，人口撫養比還會快速接近2：1，到2050年將會達到1：1（虧空達43.2萬億）。
+轉向以績效為基礎的移民制度：川普政府將改革我們的移民制度，優先考慮最高技能的工人，保護美國的就業。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23124354/4-45.png)
+- At President Trump’s direction, the Trump Administration is taking action to reform our H-1B immigration program.
+- 在川普總統的指示下，川普政府正在採取行動改革我們的H-1B移民項目。
+- Under these reforms, the H-1B program will prioritize those workers who are offered the highest wage, ensuring that the highest-skilled applicants are admitted.
+- 根據這些改革，H-1B計劃將優先考慮那些獲得最高工資的工人，確保最高技術的申請者被接納。
+- The Trump Administration will also close loopholes that have allowed employers in the United States to replace American workers with low-cost foreign labor.
+- 川普政府還將堵住那些允許美國雇主用低成本外國勞工取代美國工人的漏洞。
+- These reforms will help protect the wages of American workers and ensure that foreign labor entering our country is high skilled and does not undercut the United States labor market.
+- 這些改革將有助於保護美國工人的工資，並確保進入我國的外國勞動力是高技能的，不會削弱美國的勞動力市場。
 
-最可怕的是很多地方政府私自挪用社保資金，最典的的案例就是涉案金額達百億人民幣的“上海社保基金案”。這只是冰山一角，全國範圍有多少類似的事件我們根本無從考證。
 
-如果共産黨還不把財富分配給民衆建立完善的社會保障體系而是持續斂財，養老保險基金的運行就會出現大問題，也許70、80、90後這一代人未來將無養老金可以領取，我們將老無所依。解決這一切問題的方法只有一個，就是消滅共産黨，財富重新分配，建立新的社會保障體系，我們才能安度晚年。
+**WIDESPREAD SUPPORT FOR COMMONSENSE ACTION: The American people stand by President Trump as he takes commonsense action to preserve jobs for American citizens.**
 
-（文章內容僅代表作者觀點）
+廣泛支持常識性行動：美國人民支持川普總統採取常識性行動，為美國公民保住就業。
+
+- Polls show that the overwhelming majority of Americans support pausing immigration as we recover as a Nation from the coronavirus pandemic.
+- 民意調查顯示，在我們從冠狀病毒大流行中恢復過來的時候，絕大多數美國人都支持暫停移民。
+    - A Washington Post-University of Maryland poll found that 65% of those polled support pausing immigration into the country, including 61% of minority respondents.
+    - 華盛頓郵報-馬里蘭大學的民調發現，65%的受訪者支持暫停移民入境，包括61%的少數族裔受訪者。
+    - A Pew Research Center poll found that 81% of Americans see mass immigration as a threat as we confront the challenges posed by the coronavirus.
+    - 皮尤研究中心的一項民意調查發現，81%的美國人認為，在我們面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
+- Democrats and liberal commentators used to support such commonsense efforts to protect American jobs.
+- 民主黨人和自由派評論員曾經支持這種保護美國就業的常識性努力。
+    - Sen. Bernie Sanders: “You think we should open the borders and bring in a lot of low-wage workers, or do you think maybe we should try to get jobs for those [American] kids?”
+    - 參議員伯尼-桑德斯：”你認為我們應該開放邊境，並帶來了大量的低工資工人， 還是你認為或許我們應該嘗試為這些[美國]孩子們找到工作？”
+    - Paul Krugman stated that “Immigration reduces the wages of domestic workers who compete with immigrants. That’s just supply and demand.”
+    - 保羅-克魯格曼表示，”移民會降低與移民競爭的國內工人的工資。這只是供求關係。”
+    - Then-Sen. Barack Obama warned that mass migration “threatens to depress further the wages of blue-collar Americans and put strains on an already overburdened safety net.”
+    - 時任參議員奧巴馬警告說大規模移民 “有可能進一步壓低美國藍領的工資，並給已經不堪重負的安全網帶來壓力”。
+
+
+閱讀白宮原文：[President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-putting-american-workers-first-restore-economy-greatness/)
+
+*翻譯：【Ying202064】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

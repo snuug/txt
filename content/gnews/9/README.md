@@ -1,32 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美財政部長姆努欽：川普內閣正在努力使中共對病毒負責
-`2020-06-23 07:32 GM10` [轉載自GNews](https://gnews.org/zh-hant/243107/)
+## 水利學家：三峽大壩隨時可能坍塌
+`2020-06-23 09:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/243212/)
 
-**作者：Dogman**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23093219/Picture-1-103.png)
+近日台灣新聞報導，隨著連日暴雨對中共國南方24個省造成嚴重破壞，著名水利學家王維洛對三峽大壩的安全性提出了質疑，指出三峽大壩隨時有可能坍塌，並警告下游居民做好撤離的準備。
 
-美財政部長史蒂夫姆努欽先生周一接受福克斯新聞采訪時說（鏈接1），川普總統內閣正在努力，以使中國政府為其在CCP病毒上缺失透明度和對美國造成的損失負責。
+截至目前為止，暴雨和泥石流已造成近千萬民眾受災，數百億元人民幣損失。巨大的洪災也引起了公眾對世界最大水電項目-三峽水利樞紐安全性的擔憂。儘管政府保證該大壩在結構上是可靠的，但王維洛還是持相反的觀點，並聲稱該大壩的穩定性不如許多人認為的那樣穩固，他同時還提到中共國水利部官員葉建春在6月10日的新聞發布會上也承認，全國至少有148條河流的水位已超過警戒線，這證明三峽大壩的蓄水量非常有限，對防洪沒有起到預期的作用，而更嚴重的問題是在建設過程中發現的裂縫和不合格的混凝土。王維洛說，大壩一旦倒塌將給居住在長江下游地區的人們帶來災難性的後果，希望他們盡快為撤離做好準備。
 
-福克斯新聞的達布斯（Lou Dobbs）在采訪中問問姆努欽，川普總統內閣現在是否有對與中共主席習近平和CCP的制裁計劃。達布斯在提問中，著重提到CCP需要對美國死去的數十萬人負責，並且稱CCP的做法是在“謀殺”。而姆努欽回答道“我認為有這個計劃和努力，我們需要先看一下國務卿龐培奧先生最近的會議，（他）非常清晰的說‘我們需要答案’”，他接著強調“中共到現在還沒有開放和透明，是無法令人接受的”，並且強調“病毒來自那裏（中共）是毫無疑問的，病毒是如何傳到世界上的，為什麽當時沒有在中國傳播”。
+另外，該水利專家在接受外國媒體採訪時還批評中共國政府和官方媒體拒絕承認該水庫的潛在危險。他說，講真話的科學家已被中共定性為刑事犯罪，從而導致中共國成了一個沒有真實信息交流的社會。與此同時，據中共官方電視台的報導，三峽大壩的水位已高出警戒水位兩米。
 
-前一天，白宮貿易辦公室主任彼得納瓦羅在周末接受CNN采訪時曾提到“病毒是中共研制的產物”（鏈接 2）。
+儘管中共不斷吹噓三峽大壩是人類的偉大工程，但來自各方面的質疑卻越來越強烈。
 
-而在國務卿龐培奧在結束與中共外事委員會辦公室主任楊潔篪會面後，發表一些列的重要講話，其中美國國務院與6月18日發表的聲明中要求中共需要對CCP病毒做到“完全透明和信息分享”（鏈接 3）。
+注：王維洛簡介
 
-一系列美國高級官員在美國媒體的表態越來越明確，由龐培奧要求的“完全透明”，到納瓦羅說的病毒中共造，再到今天姆努欽表態川普內閣正在考慮如何懲罰中共，川普總統近期出臺“大動作”懲罰中共是可期的。
-
-制裁中共，從口炮慢慢走進現實。
-
-（文章觀點僅代表作者本人，GTV：狗狗警察）。
-
-鏈接：
-
-1. [https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
-2. [https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
-3. [https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
+- 1987年9月至1997年9月：德國多蒙市多蒙大學空間規劃系，任教；
+- 1996年2月至1996年5月：美國紐約州阿爾弗雷德大學，合作科研；
+- 1997年9月至今：德國埃森市ＣＯＲＳ工程評估事務所工程師。
 
 
+[原文鏈接](https://www.taiwannews.com.tw/en/news/3951673)
 
+翻譯報導：Hanstyle
+校對整理：人間四月
 
 0
