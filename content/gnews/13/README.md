@@ -1,32 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美財政部長姆努欽：川普內閣正在努力使中共對病毒負責
-`2020-06-23 07:32 GM10` [轉載自GNews](https://gnews.org/zh-hant/243107/)
+## 美國對中共大外宣動手，夏威夷會談毫無進展
+`2020-06-23 09:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/243165/)
 
-**作者：Dogman**
+![](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/21091751/image0-205.jpg)
+據華盛頓郵報(The Washington Post)報導，川普政府週一將四個中共媒體指定為“外國使團“ 。這四個媒體分別是，中央電視台，中國新聞社，人民日報，環球時報。要求這四家媒體僱傭的員工，以及被雇傭人員的資產都需要向美方登記。此舉使得中美關係更加惡化。
 
-美財政部長史蒂夫姆努欽先生周一接受福克斯新聞采訪時說（鏈接1），川普總統內閣正在努力，以使中國政府為其在CCP病毒上缺失透明度和對美國造成的損失負責。
+美國東亞和太平洋事務助理國務卿大衛·史迪威（David Stilwell）認為美國對中共媒體行為，可能會引起中共對在中國的美國媒體進行報復。
 
-福克斯新聞的達布斯（Lou Dobbs）在采訪中問問姆努欽，川普總統內閣現在是否有對與中共主席習近平和CCP的制裁計劃。達布斯在提問中，著重提到CCP需要對美國死去的數十萬人負責，並且稱CCP的做法是在“謀殺”。而姆努欽回答道“我認為有這個計劃和努力，我們需要先看一下國務卿龐培奧先生最近的會議，（他）非常清晰的說‘我們需要答案’”，他接著強調“中共到現在還沒有開放和透明，是無法令人接受的”，並且強調“病毒來自那裏（中共）是毫無疑問的，病毒是如何傳到世界上的，為什麽當時沒有在中國傳播”。
+**隨著中美互相限制在對方國家工作的記者，新聞戰已經拉開序幕**
 
-前一天，白宮貿易辦公室主任彼得納瓦羅在周末接受CNN采訪時曾提到“病毒是中共研制的產物”（鏈接 2）。
+自從喬治·弗洛伊德（George Floyd）事件以來，美國經歷了全國范圍的抗議。中共媒體則對於美國種族動盪，和川普總統聲稱會動用軍隊應對的問題大肆報導。國務院主要發言人摩根·奧爾塔古斯（Morgan Ortagus）則在六四事件31週年紀念日前，批評中共對天安門廣場示威者的鎮壓。
 
-而在國務卿龐培奧在結束與中共外事委員會辦公室主任楊潔篪會面後，發表一些列的重要講話，其中美國國務院與6月18日發表的聲明中要求中共需要對CCP病毒做到“完全透明和信息分享”（鏈接 3）。
+此外，邁克·蓬佩奧（Mike Pompeo）上週表示：“近日中共表現出對真理和法律的蔑視。中共的大外宣正試圖將弗洛伊德死後，美國的應對措施，與中共一直以來對基本人權與自由的剝削混為一談，此舉與詐騙無異。”
 
-一系列美國高級官員在美國媒體的表態越來越明確，由龐培奧要求的“完全透明”，到納瓦羅說的病毒中共造，再到今天姆努欽表態川普內閣正在考慮如何懲罰中共，川普總統近期出臺“大動作”懲罰中共是可期的。
+川普政府曾在2月份就表示，將要對新華社，中國環球電視網，中國國際廣播電台，中國日報發行公司和美國海天發展公司，以上的五家公司與中共大使館一視同仁。除此之外，美國要求在美的中共媒體，裁剪來自中共記者人數從160人減至100人。中共則以撤銷《紐約時報》，《華爾街日報》和《華盛頓郵報》在中國的採訪資格作為回應。
 
-制裁中共，從口炮慢慢走進現實。
+對此國務院官員堅持認為，美國和中國記者的待遇不能相提並論。奧爾塔古斯表示：”西方媒體對真相負責，而中國媒體只對中共負責。”
 
-（文章觀點僅代表作者本人，GTV：狗狗警察）。
+中共一直控制著國家新聞機構，而如今，中共更是加大了對新聞機構的管控力度；表面上中共媒體不會面對新的發布規定，不過在本質里中共的媒體只會為中共說話。
 
-鏈接：
+**美中夏威夷會談毫無進展**
 
-1. [https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
-2. [https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
-3. [https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/](https://www.foxbusiness.com/politics/china-should-be-held-accountable-for-coronavirus-mnuchin https://www.cnn.com/videos/politics/2020/06/21/peter-navarro-china-coronavirus-claim-vpx-sotu-vpx.cnn https://www.state.gov/secretary-michael-r-pompeos-meeting-with-chinese-communist-party-politburo-member-yang-jiechi/)
+國務卿邁克·蓬佩奧上週在夏威夷會見了中共外交官楊潔篪。美國官員曾形容這次訪問是彌合兩國之間在許多分歧的一個機會，但是最終卻沒有取得任何實質性的進展。蓬佩奧在周五抨擊了中共政權稱其為“流氓演員”。
 
+此外，蓬佩奧一直指責中共在CCP病毒問題上的遮遮掩掩，以及對香港的打壓。近日蓬佩奧更宣布，香港不再自治，因為中共對香港實施了新的《國安法》，川普總統也已下令重新審查香港的貿易地位。
 
+分析人士說，中美之間的關係已降至數十年來最低谷。
 
+評：
+
+中共在海外用大量金錢打造的大外宣一直是中共滲透全球主流媒體的重要手段之一，並通過收購外國傳媒股份來加大對外宣傳力度企圖通過負面宣傳從內部瓦解美國。正如文中提到的弗洛伊德事件，中共大外宣對此一直在大肆宣揚，煽風點火。不過從川普總統對此事的處理中，可以看出美國已經完全意識到中共大外宣的邪惡影響，並且已經採取了有效的行動來限制其在美國的宣傳行徑。
+
+[原文鏈接](https://www.washingtonpost.com/national-security/trump-administration-imposes-new-restrictions-on-chinese-state-propaganda-outlets/2020/06/22/2b53006c-b4b5-11ea-9b0f-c797548c1154_story.html)
+
+翻譯報導：Chris
+校對整理：晴天小螞蟻
 
 0

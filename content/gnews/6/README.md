@@ -1,28 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共【合村並居】真的不能再榨了 農民脊梁砸斷骨髓抽出來也煉不了幾兩油了
-`2020-06-23 11:47 GM30` [轉載自GNews](https://gnews.org/zh-hant/243307/)
+## 重建經濟輝煌時川普總統將把美國工人放在首位（中英文對照）
+`2020-06-23 15:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243404/)
 
-**作者：滅共日記**
+新聞簡述：川普總統於6月22日宣布將對新移民簽證的暫停期延長到年底，並暫停了幾種與工作相關的非移民簽證，包括H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及L類和某些J類簽證。他還取消了以就業為主要目的庇護申請激勵措施。旨在阻止外國工人在眾多美國人失業的時候進入美國。這些舉措是為美國公民保留工作崗位，以確保美國工人在從冠狀病毒的經濟影響中恢復時被優先考慮。川普政府還宣布將改革移民制度，轉向以績效為基礎的移民制度，優先考慮最高技能的工人。最後還引用了皮尤研究中心的一項民意調查結果：81%的美國人認為，在面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09195412/Trump_sign_photo169.png)
+白宮原文：
 
-6月22日，在中共媒體上多篇關于山東“合村並居”的文章和評論在朋友圈刷屏，其主要針對目前山東多地推進合村並居過程中所出現的一些問題。比如，大面積拆除農民房子；不同意拆遷的村民；新建社區仍然八字沒有一撇；對村民房屋的評估和補償標准存在爭議；農民“上樓”的後續生計發展面臨諸多不確定性。而且從最近老百姓的輿論反饋來看，眼下多地的推進方式，有過頭之嫌。一些地方政府把拆除現有村民房屋放在第一位，而在如何“建”方面，並未讓村民吃上定心丸。還有一些地方，讓“體制內”工作的親戚朋友當“說客”、完成以後再回去上班的方式來倒逼村民“配合”。如果行政力量的參與出現強制色彩，乃至違背村民意願，那合村並居顯然就有變味之嫌。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23113424/1-341.jpg)
-如果老百姓現在搬了破樓以後，說是農民吧，手裏已經沒了地，說是工人吧，又沒社保，說是農村人吧，住的是破樓，說是城裏人吧，又沒城市戶口，曆史上管失去土地，失去住房，居無定所的老百姓，叫流民，大家覺得合村並居的老百姓應該叫什麽？如果說政府是先蓋好社區，基礎設施、醫療、教育、購物、娛樂等配套全部完善，再讓農民搬進去，這叫合村並居。現在倒好什麽都沒有，就把人房子拆了，再賣地換錢建房，這種操作跟過去的偷墳掘墓有什麽區別？在中共國，農村一向是轉移城市矛盾和經濟壓力的“泄洪區”，靠的就是中共國傳統的小農經濟，這也是解決城市供養不足時中共經常采取的方式，現在消滅了農村，農民沒有了土地，這不就是徹底摧毀小農經濟了嗎？現在失業潮這麽嚴重，如果幾億農民工返鄉怎麽辦？對于農民來說務工總不是一個穩定的工作，有今沒明的，早出晚歸。年輕人還好，年紀大的基本都是靠回家種地，根本無法外出打工，回來以後怎麽辦？喝西北風嗎？還是等著自身自滅？中共國的農民就是年輕窮，老了更窮，現在沒有了土地那就是窮上加窮！
+**President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23113550/2-163.jpg)
+**重建經濟輝煌時川普總統將把美國工人放在首位**
 
-過去的工業反哺農業現在基本已經成了一句笑話，什麽家電下鄉、汽車下鄉活生生把農村搞成了低劣工業産品傾銷地。有太多爲這個國家付出了一輩子的農民依舊老無所依。雖然中共每年表面上都會提出口號制定戰略方針，但都是說說而已，很少會細化規則，而這其中漏洞往往被各地政府利用增加了財政，農民得到的那點卻微不足道甚至被嚴酷剝削。就像這次的山東的合村並居，就是依托政策將農民僅存的一點優勢宅基地剝奪掉，還能再賣一批房子給農民增加財政收入，農民辛苦幾十年在自己宅基地上蓋的新房被廉價拆除，再花上一筆不菲的費用搬入劣質樓房。我越來越覺得老百姓對于中共來說就是圈養的奴隸，中共開心了就給點本屬于老百姓的好處，不開心了就恨不得把老百姓的祖墳刨了，還出一個狗屁政策讓老百姓無力反抗。榨取老百姓的所有價值，骨頭渣子都會不剩下，最後連骨灰都會挫骨揚灰。真的不能再榨了，沒幾兩油水了，就算你把農民脊梁砸斷了骨髓抽出來也煉不了幾兩油了！
+Issued on: June 22, 2020
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23113644/3-103.jpg)
+頒佈於 2020年6月22日
 
-2020年的中共疫情的發生，城市裏的老百姓起碼還可以躲在溫馨的家園等待黎明的到來，相信陰霾終會過去。但是農村現在的合村並居對于農村的老百姓就更像是另一場人禍，它來勢洶洶，不講人情。它對農民的心理衝擊，怕是會伴隨終身。
+“We have a moral duty to create an immigration system that protects the lives and jobs of our citizens.”
 
-GNEWS之前文章：
-揭露中共國 冒名頂替 [https://gnews.org/zh-hans/239118/](https://gnews.org/zh-hans/239118/)
-甩鍋海外 就是不查病毒源頭！[https://gnews.org/zh-hans/241175/](https://gnews.org/zh-hans/241175/)
-今日無碼老人跨省徒步回家！ [https://gnews.org/zh-hans/242117/](https://gnews.org/zh-hans/242117/)
+President Donald J. Trump
 
-（文章內容僅代表作者觀點）
+“我們在道義上有責任建立一個保護我們公民生命和工作的移民制度。”
+
+唐納德·川普總統
+
+**LEADING AN AMERICA FIRST RECOVERY: President Donald J. Trump is extending and expanding the suspension of certain visas through the end of the year to ensure American workers take first priority as we recover from the economic effects of the coronavirus.**
+
+領導一個美國第一的複蘇：唐納德·川普總統正在延長和擴大暫停某些簽證直到年底，以確保美國工人在我們從冠狀病毒的經濟影響中恢復時優先考慮。
+
+- President Trump is extending the pause on new immigrant visas through the end of the year to ensure we continue putting American workers first during our ongoing coronavirus recovery.
+- 川普總統將新移民簽證的暫停期延長到年底，以確保我們在持續的冠狀病毒恢復期間繼續將美國工人放在第一位。
+- President Trump is building on this measure with an additional pause on several job-related nonimmigrant visas—H-1Bs, H-2Bs without a nexus to the food-supply chain, certain H-4s, as well as Ls and certain Js—preserving jobs for American citizens.
+- 川普總統在這一措施的基礎上，又暫停了幾種與工作相關的非移民簽證–H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及Ls和某些Js–為美國公民保留工作崗位。
+- President Trump’s efforts will ensure businesses look to American workers first when hiring.
+- 川普總統的努力將確保企業在招聘時首先考慮美國工人。
+    - Many workers have been hurt through no fault of their own due to coronavirus and they should not remain on the sidelines while being replaced by new foreign labor.
+    - 許多工人因冠狀病毒而受到傷害，但這並不是他們自己的過錯，他們不應該在被新的外國勞工取代的同時，繼續被閒置。
+- The Trump Administration has also finalized regulations to eliminate the incentive to file an asylum application for the primary purpose of obtaining an Employment Authorization Document.
+- 川普政府還敲定了法規，取消了以獲得就業授權文件為主要目的提出庇護申請的激勵措施。
+- With some exceptions, we should not permit large numbers of foreign workers to enter the United States at a time when so many Americans are out of work.
+- 除了一些例外，我們不應該允許大量的外國工人在這麼多美國人失業的時候進入美國。
+
+
+**MOVING TO A MERIT-BASED IMMIGRATION SYSTEM: The Trump Administration will reform our immigration system to prioritize the highest-skilled workers and protect American jobs.**
+
+轉向以績效為基礎的移民制度：川普政府將改革我們的移民制度，優先考慮最高技能的工人，保護美國的就業。
+
+- At President Trump’s direction, the Trump Administration is taking action to reform our H-1B immigration program.
+- 在川普總統的指示下，川普政府正在採取行動改革我們的H-1B移民項目。
+- Under these reforms, the H-1B program will prioritize those workers who are offered the highest wage, ensuring that the highest-skilled applicants are admitted.
+- 根據這些改革，H-1B計劃將優先考慮那些獲得最高工資的工人，確保最高技術的申請者被接納。
+- The Trump Administration will also close loopholes that have allowed employers in the United States to replace American workers with low-cost foreign labor.
+- 川普政府還將堵住那些允許美國雇主用低成本外國勞工取代美國工人的漏洞。
+- These reforms will help protect the wages of American workers and ensure that foreign labor entering our country is high skilled and does not undercut the United States labor market.
+- 這些改革將有助於保護美國工人的工資，並確保進入我國的外國勞動力是高技能的，不會削弱美國的勞動力市場。
+
+
+**WIDESPREAD SUPPORT FOR COMMONSENSE ACTION: The American people stand by President Trump as he takes commonsense action to preserve jobs for American citizens.**
+
+廣泛支持常識性行動：美國人民支持川普總統採取常識性行動，為美國公民保住就業。
+
+- Polls show that the overwhelming majority of Americans support pausing immigration as we recover as a Nation from the coronavirus pandemic.
+- 民意調查顯示，在我們從冠狀病毒大流行中恢復過來的時候，絕大多數美國人都支持暫停移民。
+    - A Washington Post-University of Maryland poll found that 65% of those polled support pausing immigration into the country, including 61% of minority respondents.
+    - 華盛頓郵報-馬里蘭大學的民調發現，65%的受訪者支持暫停移民入境，包括61%的少數族裔受訪者。
+    - A Pew Research Center poll found that 81% of Americans see mass immigration as a threat as we confront the challenges posed by the coronavirus.
+    - 皮尤研究中心的一項民意調查發現，81%的美國人認為，在我們面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
+- Democrats and liberal commentators used to support such commonsense efforts to protect American jobs.
+- 民主黨人和自由派評論員曾經支持這種保護美國就業的常識性努力。
+    - Sen. Bernie Sanders: “You think we should open the borders and bring in a lot of low-wage workers, or do you think maybe we should try to get jobs for those [American] kids?”
+    - 參議員伯尼-桑德斯：”你認為我們應該開放邊境，並帶來了大量的低工資工人， 還是你認為或許我們應該嘗試為這些[美國]孩子們找到工作？”
+    - Paul Krugman stated that “Immigration reduces the wages of domestic workers who compete with immigrants. That’s just supply and demand.”
+    - 保羅-克魯格曼表示，”移民會降低與移民競爭的國內工人的工資。這只是供求關係。”
+    - Then-Sen. Barack Obama warned that mass migration “threatens to depress further the wages of blue-collar Americans and put strains on an already overburdened safety net.”
+    - 時任參議員奧巴馬警告說大規模移民 “有可能進一步壓低美國藍領的工資，並給已經不堪重負的安全網帶來壓力”。
+
+
+閱讀白宮原文：[President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-putting-american-workers-first-restore-economy-greatness/)
+
+*翻譯：【Ying202064】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

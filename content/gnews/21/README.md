@@ -1,53 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共銀行體系脆弱不堪，隨時面臨擠兌危機
-`2020-06-23 01:32 立武` [轉載自GNews](https://gnews.org/zh-hant/242730/)
+## 【世界多語言圖文】21/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-23 02:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/242974/)
 
-**銀行擠兌**
+戰友之家圖文摘要組及小語種組
 
-6月16日，山西陽泉市商業銀行發生部分儲戶集中前往銀行提款，原因是網上流傳有**“陽泉商業銀行資金鏈斷開”、“陽泉商業銀行行長卷款跑了”**的消息，中共第一時間闢謠，陽泉市市長更是以“黨性”擔保。隨後，有網友爆料，當地縣委辦公室要求縣級公務員帶頭存錢。
+[English\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)
 
-但事實上，中共喉舌《中國經營報》在去年4月份就已經發文警惕該行存在的**利潤下降、不良貸款率上升、撥備覆蓋率下**降等問題。文章顯示，**該行在2018年末的資本充足率和一級資本充足率都已經低於監管要求水準，撥備覆蓋率處於監管要求的最低水準。**
+[French\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23000528/27af1e5f29d84729a995a7f5b96bfd38-1.jpeg)
+[German\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)
 
-**在今年****4****月份，甘肅銀行的一支行也同樣出現過擠兌的現象。**去年，河南洛陽伊川農商行和遼寧營口沿海銀行都出現過不同程度的擠兌現象。
+[Japanese\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)
 
-**銀行存款不翼而飛**
+[Korean\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)
 
-6月份，工商銀行位於湖北孝感的雲夢支行，**有****49****位儲戶發現總計****1500****萬元存款不翼而飛。**隨後，該銀行稱，儲戶實際上並沒有把錢存入銀行，而是被該銀行的大堂經理私自吸收，當時這位經理以銀行職員身份為由說服受害者在他那裡進行高息存款，**利息給了十個點。銀行稱，該經理提供的收條並不能作為正規存款憑證。**
+[Russian\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)
 
-據瞭解，該經理與雲夢當地一家房地產開發商存在債務關係，**推測該經理利用這些存款作為過橋資金以補充這家房地產開發商的流動性，**通過利差賺錢。而且，這種操作已經存在四五年之久，一開始儲戶可能並非沒有拿到高利息。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23000721/Screenshot111-1.png)
-
-這件事實際上反映出兩個問題：一是這種操作是普遍性的，而且許多高利息業務、房地產流水、銀行存款都是緊密相連的，一環破環環破，**該經理已經付不起高利息，意味著房地產流水已經枯竭，龐氏騙局隨時崩盤；**二是該經理四五年吸收存款，銀行可能沒發現，也可能發現了不管，甚至可能授意為之，**意味著真實的銀行存款可能虛報了，真實的撥備率和資本充足率可能還要低很多。**
-
-**取款登記**
-
-近日，中共央行發佈《中國人民銀行關於開展大額現金管理試點通知》，**要求如果客戶存款、取款金額大於一定標準，將按《通知》要求在辦理業務的時候要進行登記，**不同地方標準不同，像河北省是10萬元、浙江省是30萬元，深圳市是20萬元。金額大小可能是和不同地方經濟好壞程度有關。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23000809/20200612115544865-2.jpg)
-
-《通知》的發佈意味著，**擠兌可能將被限制，登記將使中共能夠追蹤到個人的存取款資訊，**儘管中共聲稱是為了打擊金融犯罪，**實際上正是中共利用打擊金融犯罪之名防止存款流失。**
-
-**基本面凋零**
-
-6月1日，中共五部門發佈《通知》對普惠小微貸款實施階段性延期還本付息，同日，央行印發《通知》宣佈央行會同財政部使用4000億元再貸款專業額度，購買地方銀行小微貸款，以支援他們給小微企業發放無抵押貸款。**這種實質上無抵押借錢的操作反映出了現在地方中小銀行艱難的處境。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23001050/%E4%B8%8B%E8%BD%BD1-2.png)
-
-3月30日，**穆迪將包括南京銀行、寧波銀行等****6****家銀行評級展望調整為負面。**
-
-被認為保本的銀行理財也出現了負值，截至6月15日，**超過****200****只存續的銀行理財產品淨值低於“****1****”，**包含多數成立不久的固收類理財。截至6月7日，**有資料可查的****3240****只債券基金約****92%****出現虧損。**
-
-不僅是銀行、基金，傳統的投資管道債券、信託同樣出現暴雷。
-
-截至6月15日，**共有****28****家企業的****63****只債券出現違約，合計違約金額為****597.03****億元。**
-
-今年5月底，四川信託多個產品發生逾期，隨後投資者要求進行溝通。6月17日，溝通會上四川銀保監會相關負責人表示該信託存在**不真實披露、違規交易、大股東挪用**等違法違規問題，**風險規模可能超過****200****億元。**這是今年繼中江信託、安信信託之後第三家陷入兌付危機的信託公司。
-
-**【總結：美國與中共即將脫鉤，人民幣即將變成廢紙，郭先生再三提醒我們保命還要保財，也為我們創造了保財甚至具有不可估量升值空間的途徑，換美元、或者買****G****幣都是能夠幫助我們在人民幣變成廢紙的時候不至於失去太多財產的途徑。】**
+[Spanish\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)
 
 0
