@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統沖繩戰役75週年致辭（中英文對照）
-`2020-06-23 18:14 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243467/)
+## 印度抵制中共國產品
+`2020-06-23 21:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/243517/)
 
-新聞簡述：川普總統在2020年沖繩戰役75週年致辭，表達對在那場艱苦的鬥爭中喪生的12,000多名美國英雄緬懷之情。總統指出自由和民主是世界的燈塔。美日聯盟將以強大的綜合實力，對抗極權主義的意識形態和專政獨裁專制，防止他們破壞全球秩序。美國政府正努力為所有美國人建立一個更強大，更團結的國家。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23180802/WH_20200622_The-battle-of-Okinawa_photo169.png)
-**Presidential Message on the 75th Anniversary of the Battle of Okinawa**
+*新聞來源： 《Breitbart》*
 
-**沖繩戰役75週年致辭**
+*作者：John Hayward*
 
-Issued on: June 22, 2020
+*翻譯：Jam*
 
-發布日期：2020年6月22日
+*簡評：Jam/海闊天空*
 
-On this day 75 years ago, one of the most intense conflicts of World War II—the Battle of Okinawa—concluded in a historic victory for the United States.  Today, we pause to remember the more than 12,000 American heroes who perished in that monumental struggle and pay tribute to thousands of service members who were instrumental in the forces of freedom emerging triumphant.
+*校對：沐子璐璐*
 
-75年前的今天，第二次世界大戰最激烈的衝突之一，沖繩戰役，以美國的歷史性勝利宣告結束。今天，我們停下來緬懷在那場艱苦的鬥爭中喪生的12,000多名美國英雄，並向成千上萬在自由之師的勝利中，發揮推動作用的服役人員們表示致敬。
+*Page: 椰子哦耶*
 
-The Battle of Okinawa was the last major battle of World War II.  Dubbed Operation Iceberg, a fleet of 1,300 American ships and 50 British ships descended on the island of Okinawa in April of 1945, with a mission of securing it as a critical strategic base for Allied Forces for the final stages of the war, which ended just months later in September 1945.  By the time the battle ended, 26 of these ships had been sunk and another 168 were severely damaged.  In total, the battle cost more than 200,000 lives, including the tragic loss of nearly 100,000 Okinawan civilians.
+**簡評：**
 
-沖繩戰役是第二次世界大戰的最後一場重大戰役。 1945年4月，名為“冰山行動” 的艦隊由1,300艘美國艦船和50艘英國艦隊降落在沖繩島，其任務是確保其成為盟軍在戰爭最後階段的重要戰略基地，戰爭在幾個月後的1945年9月結束。戰鬥結束時，其中已有26艘船被擊沉，另外168艘受到嚴重破壞。這場戰鬥總共耗費了20萬多人的生命，其中包括近100,000名沖繩平民的慘痛損失。
+中共一貫靠製造矛盾轉移矛盾。此次冠狀病毒危機，中共釋放生化武器荼毒全球，各國咬牙切齒要向中共追責，美國更是對病毒源頭窮追不捨。中共又開始製造中印矛盾在國際上渾水摸魚，惹得印度同仇，民族主義情緒激增，並且開始抵制中共國產品。但印度市場中充斥著大量的中共公司產品或者來自中共國的零部件，要徹底擺脫實不容易。中共喉舌環球時報又出來為中共洗地，認為印度經濟還是軍事衝突中都無法戰勝強大的中共國。印度是個民族眾多、衝突眾多的國家，但印度的民主制度和市場經濟的快速轉型保證了印度的持續快速發展，相比，中共國，確實一個徹徹底底的專制獨裁政權，對自己的人民敲骨吸髓，對外又急速擴展。中共與印度，不可同日而語。
 
-The grueling struggle on Okinawa lasted 3 months and consisted of multiple battles, both at sea and on the island.  American and Allied troops had to navigate treacherous terrains, including cliffs and tunnels.  They valiantly rose to the challenge, demonstrating the bravery and resolve that have always defined the men and women of our Armed Forces.  In total, Presidents awarded 23 Medals of Honor to true American patriots for their gallantry and courage during the 82-days of fighting on the island.  Their service and sacrifice, along with that of their fellow brothers in arms, are a tribute to the selflessness and stalwart bravery of their generation—the Greatest Generation.  The legacy of that sacrifice includes our alliance with Japan—forged after that terrible conflict—that embodies our shared commitment to freedom and democracy, which is a beacon for the world.  Today, that alliance is on watch against would-be adversaries who, but for the combined strength of the United States an d our Japanese allies, would undermine the global order to the advantage of totalitarian ideologies and dictatorial autocracy.
+## **印度抵制中國產品的熱潮與中國經濟掌控的現實交鋒**
+[!\[\](https://spark.adobe.com/page/FLT3O2MtXrV9y/images/28c9e4c3-8f88-426c-83ca-a648274b018d.jpg?asset_id=146acd68-0bcd-450f-b2f9-8db6a3ecbc01&amp;img_etag=%2245011852d81689dcd7d76c77d935a7da%22&amp;size=2560)](https://spark.adobe.com/page/FLT3O2MtXrV9y/images/28c9e4c3-8f88-426c-83ca-a648274b018d.jpg?asset_id=146acd68-0bcd-450f-b2f9-8db6a3ecbc01&amp;img_etag=%2245011852d81689dcd7d76c77d935a7da%22&amp;size=1024)(在本周中印邊界的軍隊沖突後)印度渴望抵制中國商品的印度人遇到了一個現實， 即中共國進口商品已經削弱了很多熱門商品的本地競爭力
+“在印度最大批發市場，Delhi’s Sadar Bazaar，有近4萬商戶。這裡體現出的現實是幾乎所有貨架上的商品– 玩具，電子產品，手錶，家用電器， 都生產於中國.”NDTV 週四報導。
 
-沖繩島上艱苦的戰爭持續了3個月，包括海上和島上的多次戰鬥。美國和盟軍不得不穿越險峻的地形，包括懸崖和隧道。他們勇敢地迎接挑戰，展現了勇敢和決心，這些始終是對我們武裝部隊中男女軍人的定義。總計，總統向在82天的島上戰鬥中，真正的美國愛國者，頒發了23枚榮譽勳章，以表彰他們的英勇和勇氣。他們與軍中同胞弟兄們的服務和犧牲，是對這一代（最偉大的一代）的無私和堅定勇敢的敬意。這場犧牲的遺留產物包括我們在那場可怕的衝突之後結成的日本同盟，這體現了我們對自由和民主的共同承諾，這是世界的燈塔。今天，由於美國和我們的日本盟國的綜合實力，這種聯盟正在對抗可能的對手，這些對手將以極權主義的意識形態和獨裁專制的優勢破壞全球秩序。
+“基本上70%的電子產品都來自於中國。 在排燈節（Diwali），我們從中國購買一些如仙女燈的基本商品，但是購買量巨大，價值數10億美元。即使很多印製造商品，從水泵到電子玩具，它們的元件也只來自於中國。”一位印度企業家解釋道。
 
-Today, we remember our Greatest Generation and salute those who answered our Nation’s call with unyielding valor and intrepid resolve.  As our country continues to recover from the unprecedented hardships we have faced over the past months, let us draw from their patriotism and conviction in our efforts to build a stronger, more united country for all Americans.
+印度貿易協會表示，他們仍然決定抵制中國商品，但前提是印度政府必須要通過進行監管改革，提供補貼還有降低消費稅加強幫助本地生產商。
+[!\[\](https://spark.adobe.com/page/FLT3O2MtXrV9y/images/961f63d4-38a5-4e56-9b61-26cd0dd54c02.jpg?asset_id=d17eee55-a0ca-45dc-b032-5be3b9861854&amp;img_etag=%229cdf1b30d590c2c8ada929b0a9d31fb8%22&amp;size=2560)](https://spark.adobe.com/page/FLT3O2MtXrV9y/images/961f63d4-38a5-4e56-9b61-26cd0dd54c02.jpg?asset_id=d17eee55-a0ca-45dc-b032-5be3b9861854&amp;img_etag=%229cdf1b30d590c2c8ada929b0a9d31fb8%22&amp;size=1024)
+在德里時尚的購物區，稱為“國防殖民地（Defense Colony）”（在歷史上曾是一個軍官居住區）的地方官員在全力進行抵制。督促人們“把你家裡所有的中國商品扔到街上，拍照片並發送到報紙機構和電視頻道”。一些國防殖民地的居民顯得不是很積極，他們表示不願意將除了中國造很難再從其他地方購買到的有用東西丟掉。
 
-今天，我們銘記最偉大的一代，並以堅定不移的英勇和勇敢的決心向那些響應我們國家呼籲的人們致敬。隨著我們的國家繼續從過去幾個月來面臨的前所未有的困難中恢復過來，讓我們汲取他們的愛國主義和信念，努力為所有美國人建立一個更強大、更團結的國家。
+電信行業的分析家週五對印度快報表示：在印度的消費者幾乎無法找到負擔得起的可以代替中國造的手機的代替品。所有的頂級手機品牌裡除了一個之外都是中國品牌，這個唯一的例外是三星。事實上，一個分析人士指出，中共國手機在印度非常暢銷，以至於抵制起來將會十分困難，因為零售商無法將它們保留在庫存裡。
 
-閱讀原文：Presidential Message on the 75th Anniversary of the Battle of Okinawa https://www.whitehouse.gov/briefings-statements/presidential-message-75th-anniversary-battle-okinawa/
+“呼籲抵制中國公司可能是一個災難性的一步，因為整個智能手機生態圈將崩潰，上千個工作崗位也會受到影響”，印度快報警告說,並補充道印度生產商正在努力與中國產品爭取市場份額。一些印度政府官員正試圖通過’印度製造’的標籤加大這一努力並發誓會盡快把他們的手機換為印度製造的手機。印度電視台（IndiaTV）在周五製作了一份抵制清單，列出了在印度經營的知名中國公司，以及一些熱門標籤，以便印度自媒體用戶使用，從而表達對中國的不滿。
 
-*翻譯：【木木ANNA】校對：【Michelle】*
+中國國營的《環球時報》在周五表示，抵制中共國運動是印度民族主義的一種不理性的“動怒”表現，而且很有可能是美國的陰謀。中共國報紙對印度人進行了詳細的講解，告訴他們為什麼無論在經濟還是軍事衝突中都無法戰勝強大的中國，並警告道“美國祇能提供有限的幫助”，但這並不足以“改變兩國之間力量的平衡”。
 
-*戰友之家玫瑰園小隊出品*
+[原文鏈接](https://www.breitbart.com/national-security/2020/06/19/indian-fervor-to-boycott-chinese-products-meets-reality-of-chinese-economic-takeover/)
+
+編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/FLT3O2MtXrV9y/)
 
 0
