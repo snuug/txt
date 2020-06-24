@@ -1,85 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重建經濟輝煌時川普總統將把美國工人放在首位（中英文對照）
-`2020-06-23 15:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243404/)
+## 對公開言論的攻擊就是對美國的攻擊
+`2020-06-23 20:41 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/243513/)
 
-新聞簡述：川普總統於6月22日宣布將對新移民簽證的暫停期延長到年底，並暫停了幾種與工作相關的非移民簽證，包括H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及L類和某些J類簽證。他還取消了以就業為主要目的庇護申請激勵措施。旨在阻止外國工人在眾多美國人失業的時候進入美國。這些舉措是為美國公民保留工作崗位，以確保美國工人在從冠狀病毒的經濟影響中恢復時被優先考慮。川普政府還宣布將改革移民制度，轉向以績效為基礎的移民制度，優先考慮最高技能的工人。最後還引用了皮尤研究中心的一項民意調查結果：81%的美國人認為，在面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09195412/Trump_sign_photo169.png)
-白宮原文：
+*新聞來源： 《華盛頓觀察家報*》
 
-**President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness**
+*翻譯/簡評：Victory*
 
-**重建經濟輝煌時川普總統將把美國工人放在首位**
+*校對：海闊天空*
 
-Issued on: June 22, 2020
+*Page: 椰子哦耶*
 
-頒佈於 2020年6月22日
+**簡評：**
 
-“We have a moral duty to create an immigration system that protects the lives and jobs of our citizens.”
+看到文中出現的跡象，讓我心裡一驚。美國在我心中是言論自由之地，人民可以毫無恐懼發表自己內心的想法。而如今居然因所謂平權、反種族主義等等正義理由而陷入近乎荒誕的過度言論自我審查中，甚至有點美國版“文字獄”的意思，其原因是美國“言論自由”和“平權主義”陷入了“左右互搏”。“平權主義”似乎佔了上峰。，大眾很多行為都是無意識的、是衝動和多變的，群體很容易被居心叵測者操控。
 
-President Donald J. Trump
+[!\[\](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/6aa2c825-ea92-4dfa-9a27-cd333938c8b4.jpg?asset_id=f84f0f83-3297-475e-a63d-a475fb2ad780&amp;img_etag=%22f1bf8cc2f8b09bd912423b31ba6321a7%22&amp;size=2560)](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/6aa2c825-ea92-4dfa-9a27-cd333938c8b4.jpg?asset_id=f84f0f83-3297-475e-a63d-a475fb2ad780&amp;img_etag=%22f1bf8cc2f8b09bd912423b31ba6321a7%22&amp;size=1024)
 
-“我們在道義上有責任建立一個保護我們公民生命和工作的移民制度。”
+勒龐的《烏合之眾》一書中寫道：“群眾沒有真正渴求過真理，面對那些不合口味的證據，他們會充耳不聞…凡是能向他們提供幻覺的，都可以很容易地成為他們的主人” 。人在群體中，智商就會嚴重降低，為了獲得認同，個體願意拋棄是非，用智商去換取那份讓人備感安全的歸屬感。
 
-唐納德·川普總統
+文中提到的HBO對《亂世佳人》下架就是非常典型的反智行為，這種趨勢令人擔憂。言論自由是無數中國人夢寐以求的權利，希望美國人可以珍視，而不是屈服於烏合之眾。
 
-**LEADING AN AMERICA FIRST RECOVERY: President Donald J. Trump is extending and expanding the suspension of certain visas through the end of the year to ensure American workers take first priority as we recover from the economic effects of the coronavirus.**
+## **對公開言論的攻擊就是對美國的攻擊**
+[!\[\](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/55bf1f12-5032-4082-a9fb-4fbc49f3deed.jpg?asset_id=4bd0a095-5f13-47e5-9ec7-a03b27d4cea9&amp;img_etag=%223bf78196beba18683f0408b688b71e79%22&amp;size=1024)](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/55bf1f12-5032-4082-a9fb-4fbc49f3deed.jpg?asset_id=4bd0a095-5f13-47e5-9ec7-a03b27d4cea9&amp;img_etag=%223bf78196beba18683f0408b688b71e79%22&amp;size=1024)
+在這場撕裂美國的決定性戰鬥中有兩方，他們不是共和黨和民主黨。這場戰鬥雙方是那些相信公開言論對保護國家至關重要的人和相信管控爭論和喜歡消除文化的人。
 
-領導一個美國第一的複蘇：唐納德·川普總統正在延長和擴大暫停某些簽證直到年底，以確保美國工人在我們從冠狀病毒的經濟影響中恢復時優先考慮。
+數年來，當我們在哀嘆大學校園令人擔憂的趨勢，學生們通過取消邀請那些挑戰他們世界觀的大學演講者，並在他們不喜歡的書上發出“觸發警告”，迫使管理者創造安全空間。。而現在美國正在變成歐柏林大學校園。
 
-- President Trump is extending the pause on new immigrant visas through the end of the year to ensure we continue putting American workers first during our ongoing coronavirus recovery.
-- 川普總統將新移民簽證的暫停期延長到年底，以確保我們在持續的冠狀病毒恢復期間繼續將美國工人放在第一位。
-- President Trump is building on this measure with an additional pause on several job-related nonimmigrant visas—H-1Bs, H-2Bs without a nexus to the food-supply chain, certain H-4s, as well as Ls and certain Js—preserving jobs for American citizens.
-- 川普總統在這一措施的基礎上，又暫停了幾種與工作相關的非移民簽證–H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及Ls和某些Js–為美國公民保留工作崗位。
-- President Trump’s efforts will ensure businesses look to American workers first when hiring.
-- 川普總統的努力將確保企業在招聘時首先考慮美國工人。
-    - Many workers have been hurt through no fault of their own due to coronavirus and they should not remain on the sidelines while being replaced by new foreign labor.
-    - 許多工人因冠狀病毒而受到傷害，但這並不是他們自己的過錯，他們不應該在被新的外國勞工取代的同時，繼續被閒置。
-- The Trump Administration has also finalized regulations to eliminate the incentive to file an asylum application for the primary purpose of obtaining an Employment Authorization Document.
-- 川普政府還敲定了法規，取消了以獲得就業授權文件為主要目的提出庇護申請的激勵措施。
-- With some exceptions, we should not permit large numbers of foreign workers to enter the United States at a time when so many Americans are out of work.
-- 除了一些例外，我們不應該允許大量的外國工人在這麼多美國人失業的時候進入美國。
+本月，紐約時報社論版主編詹姆斯·班內特（James Bennet）因管理專欄刊登議員湯姆·卡頓（Tom Cotton）的特稿，文章討論應派軍隊去阻止暴亂者（聲明一下，不是和平抗議者），而被迫辭職。僅僅是刊登議員的文章提倡一個大多數公眾意見，就激起了工作人員的反對，並誇張地說印發這篇文章會讓黑人員工陷入危險。
 
+除了班內特的辭職，另一位資深編輯也辭職了，且上至出版商的管理層說刊登議員的觀點是個巨大的錯誤。除了在文章頂部增加了冗長的編者按，紐約時報誓言要全面改革其編輯流程，並開始接受更少的專欄。翻譯成白話：不要期待任何外界的觀點，因為這些觀點無法得到清醒人群的認可。凱思林·金斯伯里（Kathleen Kingsbury）擔任社論版代理編輯，在寫給職員信中講得非常清楚，如果任何人看到“任何觀點新聞——包括頭條，社交媒體照片或任何此類內容——讓你有任何猶豫，請打給我或發信息給我。”
 
-**MOVING TO A MERIT-BASED IMMIGRATION SYSTEM: The Trump Administration will reform our immigration system to prioritize the highest-skilled workers and protect American jobs.**
+本月並行的另一個事件中，HBO宣布將在其流媒體服務中下架《亂世佳人》，因為其中“描述的一些種族偏見很不幸的在美國社會已司空見慣。”這部內戰史詩是考慮通貨膨脹因素後美國影史上票房最高的電影，其中有一位著名女主角且第一次有黑人演員獲得奧斯卡獎。雖然這是舊時南部的景色被浪漫化，且其對奴隸制的描述被美化了，這依然是一扇了解南方人如何看待這場重大衝突及其後果的重要窗口。HBO說除非可以增加“對其歷史背景的討論和對其描述的譴責”他們才會重新上架這部電影，而不是相信觀影者理解電影描述了（以20世紀30年代感受力製作的）19世紀60年代的生活。換句話說，現在觸發警告也適用於成人。
 
-轉向以績效為基礎的移民制度：川普政府將改革我們的移民制度，優先考慮最高技能的工人，保護美國的就業。
+考慮到公眾態度會隨著時間變化，如果我們習慣於以今天標準判斷而取消一切讓人不適的內容，我們就得每隔幾年重新清洗一遍藝術，這將使文化沒有連續性。
 
-- At President Trump’s direction, the Trump Administration is taking action to reform our H-1B immigration program.
-- 在川普總統的指示下，川普政府正在採取行動改革我們的H-1B移民項目。
-- Under these reforms, the H-1B program will prioritize those workers who are offered the highest wage, ensuring that the highest-skilled applicants are admitted.
-- 根據這些改革，H-1B計劃將優先考慮那些獲得最高工資的工人，確保最高技術的申請者被接納。
-- The Trump Administration will also close loopholes that have allowed employers in the United States to replace American workers with low-cost foreign labor.
-- 川普政府還將堵住那些允許美國雇主用低成本外國勞工取代美國工人的漏洞。
-- These reforms will help protect the wages of American workers and ensure that foreign labor entering our country is high skilled and does not undercut the United States labor market.
-- 這些改革將有助於保護美國工人的工資，並確保進入我國的外國勞動力是高技能的，不會削弱美國的勞動力市場。
+爭論不限於典型的黨派之爭。很多自由主義者，尤其是在重視思想公開辯論的環境成長起來的年長自由主義者，和保守派一樣，令人震驚地屈服於憤怒的烏合之眾。
+[!\[\](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/00f5937f-6ab1-4b82-aaaa-67cd76ae138c.jpg?asset_id=2e57d31f-6ac2-4476-9044-0feec8029454&amp;img_etag=%22278569526feaceff52512920ada735d5%22&amp;size=1024)](https://spark.adobe.com/page/FNUO3kDYKQqkY/images/00f5937f-6ab1-4b82-aaaa-67cd76ae138c.jpg?asset_id=2e57d31f-6ac2-4476-9044-0feec8029454&amp;img_etag=%22278569526feaceff52512920ada735d5%22&amp;size=1024)安德魯·蘇利文
+安德魯·蘇利文（Andrew Sullivan）奧巴馬總統的重要支持者之一，被紐約時報的決定激怒了。他指出“卑躬屈膝是無法平息這幫社會正義暴徒的。他們只會得寸進尺。紐約時報編輯們事實上已永久性放棄了他們的權威。警覺的委員會已經審查了一切。而現在他們會更加積極。而讀者們現在知道這已經不是一家追求事實的報紙了。”
 
+同時，JK羅琳，哈利波特小說的作者，自稱為自由女權主義者，在她的個人網站發布了一篇長文解釋她對於變性者正在危害年輕女性的擔憂。這位曾備受喜愛的作家算了算她至少被取消了四到五次，只因為指出生理性別是真實的而遭到攻擊。她被激進分子貼上“TERF“的標籤，意為排斥跨性別的激進女權主義者。
 
-**WIDESPREAD SUPPORT FOR COMMONSENSE ACTION: The American people stand by President Trump as he takes commonsense action to preserve jobs for American citizens.**
+紐約時報顯然有權刊登任何人的文章，沒人對這個台有任何權力。同樣的，一個私有的流媒體服務公司有權決定提供什麼內容。因此，在這些爭論中，我們更喜歡“公開言論”而不是“自由言論”這個詞。
 
-廣泛支持常識性行動：美國人民支持川普總統採取常識性行動，為美國公民保住就業。
+但公開辯論的原則被侵蝕是一個危險的趨勢，尤其是考慮到總有一天年輕一代會長大並接管政府。一項幾年前的YouGov民調發現有46%的大學生認為第一修正案保護仇恨言論。
 
-- Polls show that the overwhelming majority of Americans support pausing immigration as we recover as a Nation from the coronavirus pandemic.
-- 民意調查顯示，在我們從冠狀病毒大流行中恢復過來的時候，絕大多數美國人都支持暫停移民。
-    - A Washington Post-University of Maryland poll found that 65% of those polled support pausing immigration into the country, including 61% of minority respondents.
-    - 華盛頓郵報-馬里蘭大學的民調發現，65%的受訪者支持暫停移民入境，包括61%的少數族裔受訪者。
-    - A Pew Research Center poll found that 81% of Americans see mass immigration as a threat as we confront the challenges posed by the coronavirus.
-    - 皮尤研究中心的一項民意調查發現，81%的美國人認為，在我們面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-- Democrats and liberal commentators used to support such commonsense efforts to protect American jobs.
-- 民主黨人和自由派評論員曾經支持這種保護美國就業的常識性努力。
-    - Sen. Bernie Sanders: “You think we should open the borders and bring in a lot of low-wage workers, or do you think maybe we should try to get jobs for those [American] kids?”
-    - 參議員伯尼-桑德斯：”你認為我們應該開放邊境，並帶來了大量的低工資工人， 還是你認為或許我們應該嘗試為這些[美國]孩子們找到工作？”
-    - Paul Krugman stated that “Immigration reduces the wages of domestic workers who compete with immigrants. That’s just supply and demand.”
-    - 保羅-克魯格曼表示，”移民會降低與移民競爭的國內工人的工資。這只是供求關係。”
-    - Then-Sen. Barack Obama warned that mass migration “threatens to depress further the wages of blue-collar Americans and put strains on an already overburdened safety net.”
-    - 時任參議員奧巴馬警告說大規模移民 “有可能進一步壓低美國藍領的工資，並給已經不堪重負的安全網帶來壓力”。
+一個人們無法忍受反對觀點的共和國，一個烏合之眾企圖消除不合口味的部分文化傳統的共和國，是無法長久延續的。
 
+[原文鏈接](https://www.washingtonexaminer.com/opinion/editorials/assault-on-open-speech-is-an-attack-on-america)
 
-閱讀白宮原文：[President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-putting-american-workers-first-restore-economy-greatness/)
-
-*翻譯：【Ying202064】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/FNUO3kDYKQqkY/)
 
 0

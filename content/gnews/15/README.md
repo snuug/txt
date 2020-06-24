@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統沖繩戰役75週年致辭（中英文對照）
-`2020-06-23 18:14 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243467/)
+## 行動！行動！行動！病毒是中共的特洛伊木馬！ ——而且病毒“突變”增強了10倍？
+`2020-06-23 21:56 GM30` [轉載自GNews](https://gnews.org/zh-hant/243549/)
 
-新聞簡述：川普總統在2020年沖繩戰役75週年致辭，表達對在那場艱苦的鬥爭中喪生的12,000多名美國英雄緬懷之情。總統指出自由和民主是世界的燈塔。美日聯盟將以強大的綜合實力，對抗極權主義的意識形態和專政獨裁專制，防止他們破壞全球秩序。美國政府正努力為所有美國人建立一個更強大，更團結的國家。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23180802/WH_20200622_The-battle-of-Okinawa_photo169.png)
-**Presidential Message on the 75th Anniversary of the Battle of Okinawa**
+**作者：亞倫**
 
-**沖繩戰役75週年致辭**
+近日班農先生在《War Room》铿锵有力的大聲疾呼：行動！行動！行動！意大利科學家發現，早在12月8日，意大利一些城市排汙系統就出現了病毒（這些城市都是中共投資的重鎮）。病毒是釋放到西方的特洛伊木馬！
 
-Issued on: June 22, 2020
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23214711/1_%E5%89%AF%E6%9C%AC-9.jpg)
 
-發布日期：2020年6月22日
+小知識補充特洛伊木馬：
 
-On this day 75 years ago, one of the most intense conflicts of World War II—the Battle of Okinawa—concluded in a historic victory for the United States.  Today, we pause to remember the more than 12,000 American heroes who perished in that monumental struggle and pay tribute to thousands of service members who were instrumental in the forces of freedom emerging triumphant.
+特洛伊木馬(Trojan Horse) ，傳說希臘聯軍圍困特洛伊久攻不下，于是假裝撤退，留下一具巨大的木馬，特洛伊守軍不知是計，把木馬運進城中作爲戰利品。夜深人靜之際，木馬腹中躲藏的希臘士兵打開城門，特洛伊淪陷。後人常用“特洛伊木馬”這一典故，用來比喻在敵方營壘裏埋下伏兵裏應外合的活動。
 
-75年前的今天，第二次世界大戰最激烈的衝突之一，沖繩戰役，以美國的歷史性勝利宣告結束。今天，我們停下來緬懷在那場艱苦的鬥爭中喪生的12,000多名美國英雄，並向成千上萬在自由之師的勝利中，發揮推動作用的服役人員們表示致敬。
+班農先生火力全開，呼籲大家行動，呼籲各部門主動出擊，說明美國很快就要行動。現在用特洛伊木馬的典故來形容中共病毒，點明了這就是中共在各國內部精准投毒，從內部搗毀對手。
 
-The Battle of Okinawa was the last major battle of World War II.  Dubbed Operation Iceberg, a fleet of 1,300 American ships and 50 British ships descended on the island of Okinawa in April of 1945, with a mission of securing it as a critical strategic base for Allied Forces for the final stages of the war, which ended just months later in September 1945.  By the time the battle ended, 26 of these ships had been sunk and another 168 were severely damaged.  In total, the battle cost more than 200,000 lives, including the tragic loss of nearly 100,000 Okinawan civilians.
+文貴先生引領的爆料革命是走在風口浪尖的排頭兵，《路德社》不斷的提前透露中共的各種陰招已然成爲全球華人中最信任的信息情報媒體。班農先生班農節目有7000萬收音機訂閱戶，其在全球高層中的影響力巨大，說特洛伊木馬和珍珠港事件，就是投毒！偷襲！未來各國一定會行動並一招制敵。
 
-沖繩戰役是第二次世界大戰的最後一場重大戰役。 1945年4月，名為“冰山行動” 的艦隊由1,300艘美國艦船和50艘英國艦隊降落在沖繩島，其任務是確保其成為盟軍在戰爭最後階段的重要戰略基地，戰爭在幾個月後的1945年9月結束。戰鬥結束時，其中已有26艘船被擊沉，另外168艘受到嚴重破壞。這場戰鬥總共耗費了20萬多人的生命，其中包括近100,000名沖繩平民的慘痛損失。
+病毒導致全球亂象，要抓住病毒，班農舉例意大利被投毒會讓美國民衆聯系到美國被投毒，這是引導和吸引民意，納瓦羅去CNN白左媒體踢爆病毒是中共的産品，一系列組合拳引爆後，將徹底推動民意，使得美國和世界人民覺醒，創造下一步具體行動的基礎。
 
-The grueling struggle on Okinawa lasted 3 months and consisted of multiple battles, both at sea and on the island.  American and Allied troops had to navigate treacherous terrains, including cliffs and tunnels.  They valiantly rose to the challenge, demonstrating the bravery and resolve that have always defined the men and women of our Armed Forces.  In total, Presidents awarded 23 Medals of Honor to true American patriots for their gallantry and courage during the 82-days of fighting on the island.  Their service and sacrifice, along with that of their fellow brothers in arms, are a tribute to the selflessness and stalwart bravery of their generation—the Greatest Generation.  The legacy of that sacrifice includes our alliance with Japan—forged after that terrible conflict—that embodies our shared commitment to freedom and democracy, which is a beacon for the world.  Today, that alliance is on watch against would-be adversaries who, but for the combined strength of the United States an d our Japanese allies, would undermine the global order to the advantage of totalitarian ideologies and dictatorial autocracy.
+特洛伊木馬式的投毒如火如荼，而最讓人擔心的一幕正在上演，研究人員發現，6月北京新發地新冠疫情及病毒基因組序列資料， 三組序列均帶有D614G突變，D614G毒株占所有新冠病毒的比例，已從年初的0%，到3月份占據26%，4月份升至65%，5月份份額達到70%，已經成爲世界主流毒株。D614G突變或可倍增病毒傳染性，還可能增加患者的病毒載量和死亡風險。
 
-沖繩島上艱苦的戰爭持續了3個月，包括海上和島上的多次戰鬥。美國和盟軍不得不穿越險峻的地形，包括懸崖和隧道。他們勇敢地迎接挑戰，展現了勇敢和決心，這些始終是對我們武裝部隊中男女軍人的定義。總計，總統向在82天的島上戰鬥中，真正的美國愛國者，頒發了23枚榮譽勳章，以表彰他們的英勇和勇氣。他們與軍中同胞弟兄們的服務和犧牲，是對這一代（最偉大的一代）的無私和堅定勇敢的敬意。這場犧牲的遺留產物包括我們在那場可怕的衝突之後結成的日本同盟，這體現了我們對自由和民主的共同承諾，這是世界的燈塔。今天，由於美國和我們的日本盟國的綜合實力，這種聯盟正在對抗可能的對手，這些對手將以極權主義的意識形態和獨裁專制的優勢破壞全球秩序。
+《路德社》也透露，新冠病毒有S蛋白，能和ACE2受體細胞結合。S蛋白有1000多個氨基酸，D614G是指第614個氨基酸，在614位點上，D氨基酸變成了G。
 
-Today, we remember our Greatest Generation and salute those who answered our Nation’s call with unyielding valor and intrepid resolve.  As our country continues to recover from the unprecedented hardships we have faced over the past months, let us draw from their patriotism and conviction in our efforts to build a stronger, more united country for all Americans.
+有研究者測試了41個感染痊愈者的血清，他們産生的中和抗體對之前的D614有用，但對G614的中和能力有顯著下降。就是讓康複者的抗體不再管用。這就是爲什麽感染過新冠病毒的人，又二次感染，因爲之前感染的是D614, 第二次遇到G614就又感染了，這還有可能影響疫苗開發。D614突變爲G614是非常恐怖的，首先增強了病毒的感染力，還會影響免疫反應。
 
-今天，我們銘記最偉大的一代，並以堅定不移的英勇和勇敢的決心向那些響應我們國家呼籲的人們致敬。隨著我們的國家繼續從過去幾個月來面臨的前所未有的困難中恢復過來，讓我們汲取他們的愛國主義和信念，努力為所有美國人建立一個更強大、更團結的國家。
+如果是病毒自然形成，十代到二十代後就自然消亡了，但這款病毒卻強烈地保留並極大的提高了攻擊性。是否通過人工幹預，才能保住這個“高感染性”？這個還需要更多的證據和驗證。
 
-閱讀原文：Presidential Message on the 75th Anniversary of the Battle of Okinawa https://www.whitehouse.gov/briefings-statements/presidential-message-75th-anniversary-battle-okinawa/
+D614G也會給未來疫苗研發很大困難，據傳有3萬個點位，而每個點位都可能有20種變化，這使得疫苗的研發變得根本不可能。中共可以使得病毒的變化無窮無盡，全世界科學家追著變異永遠沒有盡頭。
 
-*翻譯：【木木ANNA】校對：【Michelle】*
+必須直搗黃龍，鏟草除根。
 
-*戰友之家玫瑰園小隊出品*
+來源：[https://hk.appledaily.com/china/20200623/7YNCBQ35QMILXMAG34XMHR57IA/](https://hk.appledaily.com/china/20200623/7YNCBQ35QMILXMAG34XMHR57IA/)
 
 0
