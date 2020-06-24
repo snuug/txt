@@ -1,85 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重建經濟輝煌時川普總統將把美國工人放在首位（中英文對照）
-`2020-06-23 15:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243404/)
+## 行動！行動！行動！病毒是中共的特洛伊木馬！ ——而且病毒“突變”增強了10倍？
+`2020-06-23 21:56 GM30` [轉載自GNews](https://gnews.org/zh-hant/243549/)
 
-新聞簡述：川普總統於6月22日宣布將對新移民簽證的暫停期延長到年底，並暫停了幾種與工作相關的非移民簽證，包括H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及L類和某些J類簽證。他還取消了以就業為主要目的庇護申請激勵措施。旨在阻止外國工人在眾多美國人失業的時候進入美國。這些舉措是為美國公民保留工作崗位，以確保美國工人在從冠狀病毒的經濟影響中恢復時被優先考慮。川普政府還宣布將改革移民制度，轉向以績效為基礎的移民制度，優先考慮最高技能的工人。最後還引用了皮尤研究中心的一項民意調查結果：81%的美國人認為，在面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09195412/Trump_sign_photo169.png)
-白宮原文：
+**作者：亞倫**
 
-**President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness**
+近日班農先生在《War Room》铿锵有力的大聲疾呼：行動！行動！行動！意大利科學家發現，早在12月8日，意大利一些城市排汙系統就出現了病毒（這些城市都是中共投資的重鎮）。病毒是釋放到西方的特洛伊木馬！
 
-**重建經濟輝煌時川普總統將把美國工人放在首位**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23214711/1_%E5%89%AF%E6%9C%AC-9.jpg)
 
-Issued on: June 22, 2020
+小知識補充特洛伊木馬：
 
-頒佈於 2020年6月22日
+特洛伊木馬(Trojan Horse) ，傳說希臘聯軍圍困特洛伊久攻不下，于是假裝撤退，留下一具巨大的木馬，特洛伊守軍不知是計，把木馬運進城中作爲戰利品。夜深人靜之際，木馬腹中躲藏的希臘士兵打開城門，特洛伊淪陷。後人常用“特洛伊木馬”這一典故，用來比喻在敵方營壘裏埋下伏兵裏應外合的活動。
 
-“We have a moral duty to create an immigration system that protects the lives and jobs of our citizens.”
+班農先生火力全開，呼籲大家行動，呼籲各部門主動出擊，說明美國很快就要行動。現在用特洛伊木馬的典故來形容中共病毒，點明了這就是中共在各國內部精准投毒，從內部搗毀對手。
 
-President Donald J. Trump
+文貴先生引領的爆料革命是走在風口浪尖的排頭兵，《路德社》不斷的提前透露中共的各種陰招已然成爲全球華人中最信任的信息情報媒體。班農先生班農節目有7000萬收音機訂閱戶，其在全球高層中的影響力巨大，說特洛伊木馬和珍珠港事件，就是投毒！偷襲！未來各國一定會行動並一招制敵。
 
-“我們在道義上有責任建立一個保護我們公民生命和工作的移民制度。”
+病毒導致全球亂象，要抓住病毒，班農舉例意大利被投毒會讓美國民衆聯系到美國被投毒，這是引導和吸引民意，納瓦羅去CNN白左媒體踢爆病毒是中共的産品，一系列組合拳引爆後，將徹底推動民意，使得美國和世界人民覺醒，創造下一步具體行動的基礎。
 
-唐納德·川普總統
+特洛伊木馬式的投毒如火如荼，而最讓人擔心的一幕正在上演，研究人員發現，6月北京新發地新冠疫情及病毒基因組序列資料， 三組序列均帶有D614G突變，D614G毒株占所有新冠病毒的比例，已從年初的0%，到3月份占據26%，4月份升至65%，5月份份額達到70%，已經成爲世界主流毒株。D614G突變或可倍增病毒傳染性，還可能增加患者的病毒載量和死亡風險。
 
-**LEADING AN AMERICA FIRST RECOVERY: President Donald J. Trump is extending and expanding the suspension of certain visas through the end of the year to ensure American workers take first priority as we recover from the economic effects of the coronavirus.**
+《路德社》也透露，新冠病毒有S蛋白，能和ACE2受體細胞結合。S蛋白有1000多個氨基酸，D614G是指第614個氨基酸，在614位點上，D氨基酸變成了G。
 
-領導一個美國第一的複蘇：唐納德·川普總統正在延長和擴大暫停某些簽證直到年底，以確保美國工人在我們從冠狀病毒的經濟影響中恢復時優先考慮。
+有研究者測試了41個感染痊愈者的血清，他們産生的中和抗體對之前的D614有用，但對G614的中和能力有顯著下降。就是讓康複者的抗體不再管用。這就是爲什麽感染過新冠病毒的人，又二次感染，因爲之前感染的是D614, 第二次遇到G614就又感染了，這還有可能影響疫苗開發。D614突變爲G614是非常恐怖的，首先增強了病毒的感染力，還會影響免疫反應。
 
-- President Trump is extending the pause on new immigrant visas through the end of the year to ensure we continue putting American workers first during our ongoing coronavirus recovery.
-- 川普總統將新移民簽證的暫停期延長到年底，以確保我們在持續的冠狀病毒恢復期間繼續將美國工人放在第一位。
-- President Trump is building on this measure with an additional pause on several job-related nonimmigrant visas—H-1Bs, H-2Bs without a nexus to the food-supply chain, certain H-4s, as well as Ls and certain Js—preserving jobs for American citizens.
-- 川普總統在這一措施的基礎上，又暫停了幾種與工作相關的非移民簽證–H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及Ls和某些Js–為美國公民保留工作崗位。
-- President Trump’s efforts will ensure businesses look to American workers first when hiring.
-- 川普總統的努力將確保企業在招聘時首先考慮美國工人。
-    - Many workers have been hurt through no fault of their own due to coronavirus and they should not remain on the sidelines while being replaced by new foreign labor.
-    - 許多工人因冠狀病毒而受到傷害，但這並不是他們自己的過錯，他們不應該在被新的外國勞工取代的同時，繼續被閒置。
-- The Trump Administration has also finalized regulations to eliminate the incentive to file an asylum application for the primary purpose of obtaining an Employment Authorization Document.
-- 川普政府還敲定了法規，取消了以獲得就業授權文件為主要目的提出庇護申請的激勵措施。
-- With some exceptions, we should not permit large numbers of foreign workers to enter the United States at a time when so many Americans are out of work.
-- 除了一些例外，我們不應該允許大量的外國工人在這麼多美國人失業的時候進入美國。
+如果是病毒自然形成，十代到二十代後就自然消亡了，但這款病毒卻強烈地保留並極大的提高了攻擊性。是否通過人工幹預，才能保住這個“高感染性”？這個還需要更多的證據和驗證。
 
+D614G也會給未來疫苗研發很大困難，據傳有3萬個點位，而每個點位都可能有20種變化，這使得疫苗的研發變得根本不可能。中共可以使得病毒的變化無窮無盡，全世界科學家追著變異永遠沒有盡頭。
 
-**MOVING TO A MERIT-BASED IMMIGRATION SYSTEM: The Trump Administration will reform our immigration system to prioritize the highest-skilled workers and protect American jobs.**
+必須直搗黃龍，鏟草除根。
 
-轉向以績效為基礎的移民制度：川普政府將改革我們的移民制度，優先考慮最高技能的工人，保護美國的就業。
-
-- At President Trump’s direction, the Trump Administration is taking action to reform our H-1B immigration program.
-- 在川普總統的指示下，川普政府正在採取行動改革我們的H-1B移民項目。
-- Under these reforms, the H-1B program will prioritize those workers who are offered the highest wage, ensuring that the highest-skilled applicants are admitted.
-- 根據這些改革，H-1B計劃將優先考慮那些獲得最高工資的工人，確保最高技術的申請者被接納。
-- The Trump Administration will also close loopholes that have allowed employers in the United States to replace American workers with low-cost foreign labor.
-- 川普政府還將堵住那些允許美國雇主用低成本外國勞工取代美國工人的漏洞。
-- These reforms will help protect the wages of American workers and ensure that foreign labor entering our country is high skilled and does not undercut the United States labor market.
-- 這些改革將有助於保護美國工人的工資，並確保進入我國的外國勞動力是高技能的，不會削弱美國的勞動力市場。
-
-
-**WIDESPREAD SUPPORT FOR COMMONSENSE ACTION: The American people stand by President Trump as he takes commonsense action to preserve jobs for American citizens.**
-
-廣泛支持常識性行動：美國人民支持川普總統採取常識性行動，為美國公民保住就業。
-
-- Polls show that the overwhelming majority of Americans support pausing immigration as we recover as a Nation from the coronavirus pandemic.
-- 民意調查顯示，在我們從冠狀病毒大流行中恢復過來的時候，絕大多數美國人都支持暫停移民。
-    - A Washington Post-University of Maryland poll found that 65% of those polled support pausing immigration into the country, including 61% of minority respondents.
-    - 華盛頓郵報-馬里蘭大學的民調發現，65%的受訪者支持暫停移民入境，包括61%的少數族裔受訪者。
-    - A Pew Research Center poll found that 81% of Americans see mass immigration as a threat as we confront the challenges posed by the coronavirus.
-    - 皮尤研究中心的一項民意調查發現，81%的美國人認為，在我們面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-- Democrats and liberal commentators used to support such commonsense efforts to protect American jobs.
-- 民主黨人和自由派評論員曾經支持這種保護美國就業的常識性努力。
-    - Sen. Bernie Sanders: “You think we should open the borders and bring in a lot of low-wage workers, or do you think maybe we should try to get jobs for those [American] kids?”
-    - 參議員伯尼-桑德斯：”你認為我們應該開放邊境，並帶來了大量的低工資工人， 還是你認為或許我們應該嘗試為這些[美國]孩子們找到工作？”
-    - Paul Krugman stated that “Immigration reduces the wages of domestic workers who compete with immigrants. That’s just supply and demand.”
-    - 保羅-克魯格曼表示，”移民會降低與移民競爭的國內工人的工資。這只是供求關係。”
-    - Then-Sen. Barack Obama warned that mass migration “threatens to depress further the wages of blue-collar Americans and put strains on an already overburdened safety net.”
-    - 時任參議員奧巴馬警告說大規模移民 “有可能進一步壓低美國藍領的工資，並給已經不堪重負的安全網帶來壓力”。
-
-
-閱讀白宮原文：[President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-putting-american-workers-first-restore-economy-greatness/)
-
-*翻譯：【Ying202064】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+來源：[https://hk.appledaily.com/china/20200623/7YNCBQ35QMILXMAG34XMHR57IA/](https://hk.appledaily.com/china/20200623/7YNCBQ35QMILXMAG34XMHR57IA/)
 
 0

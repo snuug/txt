@@ -1,39 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統沖繩戰役75週年致辭（中英文對照）
-`2020-06-23 18:14 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243467/)
+## “功夫流感” 果然真功夫 ——美国女子哭诉3个月内两次感染CCP病毒
+`2020-06-23 22:23 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/243574/)
 
-新聞簡述：川普總統在2020年沖繩戰役75週年致辭，表達對在那場艱苦的鬥爭中喪生的12,000多名美國英雄緬懷之情。總統指出自由和民主是世界的燈塔。美日聯盟將以強大的綜合實力，對抗極權主義的意識形態和專政獨裁專制，防止他們破壞全球秩序。美國政府正努力為所有美國人建立一個更強大，更團結的國家。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23180802/WH_20200622_The-battle-of-Okinawa_photo169.png)
-**Presidential Message on the 75th Anniversary of the Battle of Okinawa**
+作者：新中国联邦加拿大农场  龙井
+![President Trump calls COVID-19 'Kung flu' - YouTube](https://lh4.googleusercontent.com/L6F78dIepkM-WYtrHUs1iOATfVn6XVvKzBBB7b2wPqNgMkfzz5zDgyvBL2Qn2Ik5JcPZGBHe6LM0eqSZ0ATEqDRk0n8bxEIzKIMbT17GGwe5aCp5W5jpuyxbRGsVMQ)
+图片来源：YouTube
 
-**沖繩戰役75週年致辭**
+近日，美国达拉斯一位名叫梅雷迪思·麦基的女子在脸书上发文，哭诉自己在短短3个月内两次感染CCP病毒的惨痛经历。 “我被再次感染的检测结果击倒了，感觉像是被吨量级的砖块又一次砸中。”
 
-Issued on: June 22, 2020
+事实上，梅雷迪思并不是仅有的短期内再次感染病毒的病例。自从武汉今年1月下旬公开报道CCP病毒以来，关注疫情的读者也许都注意到，已经有数起二次感染的病例见诸报端，有的甚至是刚刚病愈出院的患者。
 
-發布日期：2020年6月22日
+根据人们对病毒的常规认识，人体在感染病毒之后都会产生抗体，以阻止人体再次遭受同种病毒的侵害。这些抗体通常强度较高，且会在体内存活一段较长的时间。比如，流感病毒抗体可在体内存留8-12个月；感染Sars病毒、Mers病毒的康复者几年后身体内仍然可以测到抗体；而麻疹抗体则是永久的，感染一次，终身免疫。然而一项研究结果显示，CCP病毒患者康复后，体内的病毒抗体可能只能维持2-3个月。此外，中共国的一家研究机构也曾对175位康复者进行测试，发现其中30%体内中和抗体水平很低。
 
-On this day 75 years ago, one of the most intense conflicts of World War II—the Battle of Okinawa—concluded in a historic victory for the United States.  Today, we pause to remember the more than 12,000 American heroes who perished in that monumental struggle and pay tribute to thousands of service members who were instrumental in the forces of freedom emerging triumphant.
+6月22日，《路德时评》报道，北京新发地爆发的CCP毒株，有了十分微妙的新“变异”，而且传播途径也有了新的变化。这种“变异”和变化，不仅大大增强了病毒的传染性和致病性，更给防疫工作带来了严峻挑战，最直接的后果是让疫苗研究一筹莫展。
 
-75年前的今天，第二次世界大戰最激烈的衝突之一，沖繩戰役，以美國的歷史性勝利宣告結束。今天，我們停下來緬懷在那場艱苦的鬥爭中喪生的12,000多名美國英雄，並向成千上萬在自由之師的勝利中，發揮推動作用的服役人員們表示致敬。
+CCP病毒这种短期内二次感染的现象已引起各界高度关注，加上它的高传染力和强杀伤力，不得不让全世界对它刮目相看。截至发稿日，全球已累计确诊9，099，849例，累计死亡472，374例。全球经济遭遇重大打击，仅美国就有2500多万人失业。CCP病毒的祸害程度远远超过以往任何一种病毒。
 
-The Battle of Okinawa was the last major battle of World War II.  Dubbed Operation Iceberg, a fleet of 1,300 American ships and 50 British ships descended on the island of Okinawa in April of 1945, with a mission of securing it as a critical strategic base for Allied Forces for the final stages of the war, which ended just months later in September 1945.  By the time the battle ended, 26 of these ships had been sunk and another 168 were severely damaged.  In total, the battle cost more than 200,000 lives, including the tragic loss of nearly 100,000 Okinawan civilians.
-
-沖繩戰役是第二次世界大戰的最後一場重大戰役。 1945年4月，名為“冰山行動” 的艦隊由1,300艘美國艦船和50艘英國艦隊降落在沖繩島，其任務是確保其成為盟軍在戰爭最後階段的重要戰略基地，戰爭在幾個月後的1945年9月結束。戰鬥結束時，其中已有26艘船被擊沉，另外168艘受到嚴重破壞。這場戰鬥總共耗費了20萬多人的生命，其中包括近100,000名沖繩平民的慘痛損失。
-
-The grueling struggle on Okinawa lasted 3 months and consisted of multiple battles, both at sea and on the island.  American and Allied troops had to navigate treacherous terrains, including cliffs and tunnels.  They valiantly rose to the challenge, demonstrating the bravery and resolve that have always defined the men and women of our Armed Forces.  In total, Presidents awarded 23 Medals of Honor to true American patriots for their gallantry and courage during the 82-days of fighting on the island.  Their service and sacrifice, along with that of their fellow brothers in arms, are a tribute to the selflessness and stalwart bravery of their generation—the Greatest Generation.  The legacy of that sacrifice includes our alliance with Japan—forged after that terrible conflict—that embodies our shared commitment to freedom and democracy, which is a beacon for the world.  Today, that alliance is on watch against would-be adversaries who, but for the combined strength of the United States an d our Japanese allies, would undermine the global order to the advantage of totalitarian ideologies and dictatorial autocracy.
-
-沖繩島上艱苦的戰爭持續了3個月，包括海上和島上的多次戰鬥。美國和盟軍不得不穿越險峻的地形，包括懸崖和隧道。他們勇敢地迎接挑戰，展現了勇敢和決心，這些始終是對我們武裝部隊中男女軍人的定義。總計，總統向在82天的島上戰鬥中，真正的美國愛國者，頒發了23枚榮譽勳章，以表彰他們的英勇和勇氣。他們與軍中同胞弟兄們的服務和犧牲，是對這一代（最偉大的一代）的無私和堅定勇敢的敬意。這場犧牲的遺留產物包括我們在那場可怕的衝突之後結成的日本同盟，這體現了我們對自由和民主的共同承諾，這是世界的燈塔。今天，由於美國和我們的日本盟國的綜合實力，這種聯盟正在對抗可能的對手，這些對手將以極權主義的意識形態和獨裁專制的優勢破壞全球秩序。
-
-Today, we remember our Greatest Generation and salute those who answered our Nation’s call with unyielding valor and intrepid resolve.  As our country continues to recover from the unprecedented hardships we have faced over the past months, let us draw from their patriotism and conviction in our efforts to build a stronger, more united country for all Americans.
-
-今天，我們銘記最偉大的一代，並以堅定不移的英勇和勇敢的決心向那些響應我們國家呼籲的人們致敬。隨著我們的國家繼續從過去幾個月來面臨的前所未有的困難中恢復過來，讓我們汲取他們的愛國主義和信念，努力為所有美國人建立一個更強大、更團結的國家。
-
-閱讀原文：Presidential Message on the 75th Anniversary of the Battle of Okinawa https://www.whitehouse.gov/briefings-statements/presidential-message-75th-anniversary-battle-okinawa/
-
-*翻譯：【木木ANNA】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+正如梅雷迪思在脸书上写的那样：“这(病毒)太不同了，太可怕了！”难怪美国总统特朗普20日在奥克拉荷马州的集会上，不无讽刺地把CCP病毒叫作“功夫流感”，这病毒果然是有真功夫的，万万不可小觑。目前，全世界质疑病毒来源的声浪越来越高，越来越多的国家要求中共分享病毒信息，接受公开调查，以早日制服这个邪恶的“功夫”病毒，救世界脱离危难。
 
 0
