@@ -1,85 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重建經濟輝煌時川普總統將把美國工人放在首位（中英文對照）
-`2020-06-23 15:43 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243404/)
+## “一項根本挑戰”：威廉·巴爾說美國正在打擊中共間諜行為
+`2020-06-23 22:46 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/243608/)
 
-新聞簡述：川普總統於6月22日宣布將對新移民簽證的暫停期延長到年底，並暫停了幾種與工作相關的非移民簽證，包括H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及L類和某些J類簽證。他還取消了以就業為主要目的庇護申請激勵措施。旨在阻止外國工人在眾多美國人失業的時候進入美國。這些舉措是為美國公民保留工作崗位，以確保美國工人在從冠狀病毒的經濟影響中恢復時被優先考慮。川普政府還宣布將改革移民制度，轉向以績效為基礎的移民制度，優先考慮最高技能的工人。最後還引用了皮尤研究中心的一項民意調查結果：81%的美國人認為，在面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/09195412/Trump_sign_photo169.png)
-白宮原文：
+*新聞來源： 《Washington Times》*
 
-**President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness**
+*作者：Bill Gertz*
 
-**重建經濟輝煌時川普總統將把美國工人放在首位**
+*翻譯/簡評：Victory*
 
-Issued on: June 22, 2020
+*校對：CharlesS*
 
-頒佈於 2020年6月22日
+*Page: 椰子哦耶*
 
-“We have a moral duty to create an immigration system that protects the lives and jobs of our citizens.”
+**簡評：**
 
-President Donald J. Trump
+本文描述的中共間諜行為只是中共邪惡計劃的一個環節。中共邪惡擴張是經過非常精密的策劃的。中共利用藍金黃的各種手段滲透各國政界、商界、科學界、媒體界乃至宗教界等各個領域的精英階層，從而形成一個完整的對世界的全方位控制。西方民主體係是存在固有漏洞的，而毫無底線的中共惡魔充分的利用了其中漏洞，讓世界在不知不覺中已經慢慢淪入中共的魔掌。郭先生在第一次正式新聞發布會結尾時就向世界發出警告：“黑暗已經降臨”。
 
-“我們在道義上有責任建立一個保護我們公民生命和工作的移民制度。”
+所幸在付出了巨大的代價之後，美國和主要西方國家正義力量已經覺醒。中共邪魔的日子屈指可數了。
 
-唐納德·川普總統
+## **“一項根本挑戰”：威廉·巴爾說美國正在打擊中共間諜行為**
 
-**LEADING AN AMERICA FIRST RECOVERY: President Donald J. Trump is extending and expanding the suspension of certain visas through the end of the year to ensure American workers take first priority as we recover from the economic effects of the coronavirus.**
+[!\[\](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/a1902e04-5c36-4a78-aaed-2dd9044b9b59.jpg?asset_id=78c6d63a-b4c6-4de9-a94f-c09bd7781491&amp;img_etag=%226371c13e46b67b292491c51f0b836851%22&amp;size=1024)](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/a1902e04-5c36-4a78-aaed-2dd9044b9b59.jpg?asset_id=78c6d63a-b4c6-4de9-a94f-c09bd7781491&amp;img_etag=%226371c13e46b67b292491c51f0b836851%22&amp;size=1024)
 
-領導一個美國第一的複蘇：唐納德·川普總統正在延長和擴大暫停某些簽證直到年底，以確保美國工人在我們從冠狀病毒的經濟影響中恢復時優先考慮。
+司法部長比爾巴爾週日表示司法部門正在打擊中共國針對美國的情報蒐集行動。“我的看法是：這是對美國的根本挑戰”巴爾先生在福克斯新聞說。
 
-- President Trump is extending the pause on new immigrant visas through the end of the year to ensure we continue putting American workers first during our ongoing coronavirus recovery.
-- 川普總統將新移民簽證的暫停期延長到年底，以確保我們在持續的冠狀病毒恢復期間繼續將美國工人放在第一位。
-- President Trump is building on this measure with an additional pause on several job-related nonimmigrant visas—H-1Bs, H-2Bs without a nexus to the food-supply chain, certain H-4s, as well as Ls and certain Js—preserving jobs for American citizens.
-- 川普總統在這一措施的基礎上，又暫停了幾種與工作相關的非移民簽證–H-1B、與食品供應鏈沒有關係的H-2B、某些H-4，以及Ls和某些Js–為美國公民保留工作崗位。
-- President Trump’s efforts will ensure businesses look to American workers first when hiring.
-- 川普總統的努力將確保企業在招聘時首先考慮美國工人。
-    - Many workers have been hurt through no fault of their own due to coronavirus and they should not remain on the sidelines while being replaced by new foreign labor.
-    - 許多工人因冠狀病毒而受到傷害，但這並不是他們自己的過錯，他們不應該在被新的外國勞工取代的同時，繼續被閒置。
-- The Trump Administration has also finalized regulations to eliminate the incentive to file an asylum application for the primary purpose of obtaining an Employment Authorization Document.
-- 川普政府還敲定了法規，取消了以獲得就業授權文件為主要目的提出庇護申請的激勵措施。
-- With some exceptions, we should not permit large numbers of foreign workers to enter the United States at a time when so many Americans are out of work.
-- 除了一些例外，我們不應該允許大量的外國工人在這麼多美國人失業的時候進入美國。
+自19世紀末美國就享有的技術領先優勢，正在被中共國威脅，它們偷偷摸摸的以各種方式獲取美國技術並試圖取代美國超級大國的地位。
 
+“在過去十幾年，中共國一直在大力推進取代我們的進程，這非常明顯。”巴爾說。司法部門已發起一項對中共國的行動，包含抓捕，起訴以及其他針對中共國僑民及中共在美特工的法律行動，他們很多藏身於美國的大學和研究機構當中幾乎每週，司法部都會宣布一些針對中共國間諜行動的措施。
 
-**MOVING TO A MERIT-BASED IMMIGRATION SYSTEM: The Trump Administration will reform our immigration system to prioritize the highest-skilled workers and protect American jobs.**
+巴爾先生說中共國的情報蒐集“非常肆無忌憚”並包括旨在超越美國而進行的各種偷竊和欺騙。“它們想在所有主導經濟的未來科技領域成為領導者”，他說“它們偷竊我們的知識產權。當它們偷竊我們的未來科技機密時，它們是在偷竊美國人的未來。”
 
-轉向以績效為基礎的移民制度：川普政府將改革我們的移民制度，優先考慮最高技能的工人，保護美國的就業。
+就中共國對美國研究人員的利用，巴爾先生說司法部門和執法機構正在專注於終止這種非法合作。
 
-- At President Trump’s direction, the Trump Administration is taking action to reform our H-1B immigration program.
-- 在川普總統的指示下，川普政府正在採取行動改革我們的H-1B移民項目。
-- Under these reforms, the H-1B program will prioritize those workers who are offered the highest wage, ensuring that the highest-skilled applicants are admitted.
-- 根據這些改革，H-1B計劃將優先考慮那些獲得最高工資的工人，確保最高技術的申請者被接納。
-- The Trump Administration will also close loopholes that have allowed employers in the United States to replace American workers with low-cost foreign labor.
-- 川普政府還將堵住那些允許美國雇主用低成本外國勞工取代美國工人的漏洞。
-- These reforms will help protect the wages of American workers and ensure that foreign labor entering our country is high skilled and does not undercut the United States labor market.
-- 這些改革將有助於保護美國工人的工資，並確保進入我國的外國勞動力是高技能的，不會削弱美國的勞動力市場。
+[!\[\](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/5eaea8cb-5b5c-45ef-9444-d8e0efaac5ef.png?asset_id=efd99708-f353-4d4c-a6e9-1f999b0ba1cb&amp;img_etag=%228a6454ac3fb1ce7252cb74fbefdfdcc3%22&amp;size=1024)](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/5eaea8cb-5b5c-45ef-9444-d8e0efaac5ef.png?asset_id=efd99708-f353-4d4c-a6e9-1f999b0ba1cb&amp;img_etag=%228a6454ac3fb1ce7252cb74fbefdfdcc3%22&amp;size=1024)
 
+“我們正在明確地打擊相關研究人員以及它們派遣來參與我們關鍵技術項目的人員，”他說。“順便要說，這不單涉及到武器系統，還包括農業，醫藥，機器人，人工智能等等領域。這涉及到未來全部重要技術。”
 
-**WIDESPREAD SUPPORT FOR COMMONSENSE ACTION: The American people stand by President Trump as he takes commonsense action to preserve jobs for American citizens.**
+一個值得特別關注的領域是中共國一直試圖主宰全球5G通訊技術。獲得了市場控制權將讓北京“佔據對美國巨大的優勢”“巴爾說。“如果我們的工業和製造業都建立在它們控制的平台基礎之上，它們將會對西方世界佔據終極優勢，”他補充道。
 
-廣泛支持常識性行動：美國人民支持川普總統採取常識性行動，為美國公民保住就業。
+巴爾先生說，中共國一直在全球市場採取不公平競爭手段，與此同時川普總統正以任何前美國領袖都未做到的程度對抗北京。美國工商界是“問題的重點，因為基本上他們大部分都願意為短期利潤而犧牲公司長期經營能力，以便可以拿著股權去度假”他說。
 
-- Polls show that the overwhelming majority of Americans support pausing immigration as we recover as a Nation from the coronavirus pandemic.
-- 民意調查顯示，在我們從冠狀病毒大流行中恢復過來的時候，絕大多數美國人都支持暫停移民。
-    - A Washington Post-University of Maryland poll found that 65% of those polled support pausing immigration into the country, including 61% of minority respondents.
-    - 華盛頓郵報-馬里蘭大學的民調發現，65%的受訪者支持暫停移民入境，包括61%的少數族裔受訪者。
-    - A Pew Research Center poll found that 81% of Americans see mass immigration as a threat as we confront the challenges posed by the coronavirus.
-    - 皮尤研究中心的一項民意調查發現，81%的美國人認為，在我們面對冠狀病毒帶來的挑戰時，大規模移民是一種威脅。
-- Democrats and liberal commentators used to support such commonsense efforts to protect American jobs.
-- 民主黨人和自由派評論員曾經支持這種保護美國就業的常識性努力。
-    - Sen. Bernie Sanders: “You think we should open the borders and bring in a lot of low-wage workers, or do you think maybe we should try to get jobs for those [American] kids?”
-    - 參議員伯尼-桑德斯：”你認為我們應該開放邊境，並帶來了大量的低工資工人， 還是你認為或許我們應該嘗試為這些[美國]孩子們找到工作？”
-    - Paul Krugman stated that “Immigration reduces the wages of domestic workers who compete with immigrants. That’s just supply and demand.”
-    - 保羅-克魯格曼表示，”移民會降低與移民競爭的國內工人的工資。這只是供求關係。”
-    - Then-Sen. Barack Obama warned that mass migration “threatens to depress further the wages of blue-collar Americans and put strains on an already overburdened safety net.”
-    - 時任參議員奧巴馬警告說大規模移民 “有可能進一步壓低美國藍領的工資，並給已經不堪重負的安全網帶來壓力”。
+美國商界領導者沒以長遠眼光和中共國做生意，需支持維護美國強大的概念。被問及拒絕將與中共國做生意當作國家安全問題的那些人，巴爾說：“我們現在不是說德國人，因為過去的美國商界不這麼想，他們和美國站在一起。”
 
+中共國的技術蒐集行動是全面的，從傳統間諜行為如招募特工到“培養他們今後可以利用的關係”他說。
 
-閱讀白宮原文：[President Donald J. Trump Is Putting American Workers First as We Restore Our Economy to Greatness](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-putting-american-workers-first-restore-economy-greatness/)
+[!\[\](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/7f9fa38e-3632-4ce2-9e89-8b6af8ff1d2a.jpg?asset_id=fe7ce628-5076-4672-967d-900bf9e29b92&amp;img_etag=%227c7979dc1a9a094cdf7d7f6cefdc2ead%22&amp;size=1024)](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/7f9fa38e-3632-4ce2-9e89-8b6af8ff1d2a.jpg?asset_id=fe7ce628-5076-4672-967d-900bf9e29b92&amp;img_etag=%227c7979dc1a9a094cdf7d7f6cefdc2ead%22&amp;size=1024)
 
-*翻譯：【Ying202064】校對：【Michelle】*
+“人們常常不能完全接受他們被中共國當作傀儡利用的事實”巴爾指出，並且補充道美國商界應該理解這個問題。被問及參議院正在考慮一項由美國政府購買兩家通訊公司（愛立信和諾基亞）股份，以便更有效的和中共國競爭部署5G的提議時，巴爾說這兩家公司定位都非常有利於和中共國的華為競爭。
 
-*戰友之家玫瑰園小隊出品*
+遍布全球的華為設備可以被中共國的情報機構利用其後門遠程登陸。“我想說，他們肯定有能力這麼做，而且這麼做的可能性很大”巴爾說。華為表面上是一家私有企業，卻受中共政府支持，為其創建了1000億美元的基金用於5G市場擴張。
+
+“所以它們可以到其他國家說，我們可以不需要現金結算，價格非常便宜。”這就是我們要面對的來自華為的競爭。像愛立信和諾基亞是這個領域西方世界最強的競爭者，巴爾說。諾基亞是芬蘭的跨國企業，愛立信是瑞典的。巴爾說他擔心中共國可能試圖利用美國專心應對起源中共國的中共武漢肺炎（COVID-19）疫情的機會。
+
+“我擔心他們可能覺得我們注意力已有效的被中共肺炎疫情轉移，而無法應對，”他說“我擔心他們可能認為當前的環境正好加以利用並突破底線。”
+
+中共國已經在爭議地域加強了激進安全措施和軍事行動，包括中（共）印邊界，南中國海和香港，並進逼對手台灣。巴爾稱對美國來說挫敗中共國間諜和影響力活動對維持美國技術領先優勢非常重要。中國被中共統治是“極大的悲劇”，他說。
+
+“中國人民是偉大的人民，有偉大的歷史，非常勤奮能幹，”巴爾說“曾經希望把他們帶入世界系統和經濟系統，他們的政府會走向開放。但我想中共還在實施鐵腕統治，這非常不幸。”
+
+[!\[\](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/b10c7a7a-de87-4905-8aba-a4687a1c9306.png?asset_id=494b4dbe-ac43-45c4-8661-ebf4bea7784e&amp;img_etag=%22153103e3d640d9e7b16359edf45445c5%22&amp;size=2560)](https://spark.adobe.com/page/IfWC8kfGnN0g9/images/b10c7a7a-de87-4905-8aba-a4687a1c9306.png?asset_id=494b4dbe-ac43-45c4-8661-ebf4bea7784e&amp;img_etag=%22153103e3d640d9e7b16359edf45445c5%22&amp;size=1024)
+
+其他方面，司法部長說喬治弗洛伊德的死引發的社會不安已經轉變為群體暴力。“我們不能被暴徒控制，我們要以法律程序管理社會。”
+
+關於FBI進行的通俄羅斯門的不當行為調查，巴爾說以約翰達勒姆為首的聯邦調查可能在夏末結束。
+
+“我同意這很令人震驚，我們的主流媒體面對全盤覆滅的“通俄門”沉默不語，這可是他們曾極盡所能地煽情和推動的。”巴爾告訴主持人瑪麗亞巴蒂羅姆，“這就像，甚至都沒有一句’哎呀，抱歉’他們就徑直轉向下一個假的醜聞。這是讓我吃驚的，人們對我們的公民自由和政府程序的完整性毫不關心。”
+
+[原文鏈接](https://www.washingtontimes.com/news/2020/jun/21/william-barr-says-china-spying-fundamental-challen/)
+
+編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/IfWC8kfGnN0g9/)
 
 0

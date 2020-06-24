@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】20/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 01:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/242873/)
+## 吳征白手套公司 在美竟訛數十萬元小企業救濟貸款
+`2020-06-23 09:38 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/243210/)
 
-戰友之家圖文摘要組及小語種組
+![](https://lh6.googleusercontent.com/_3SEiJdqVTGRpCpJnNbOwPDaiasSfdELH3nLANMPVByagf-p102J6wfqlEoDXk0xe1F0An6S97JJwlw8BTB7pNcQYIE7-Lqc9d8bgjK3spy8VTYksqUd2pGMSTUc2wLQewL35B0)
+郭文貴先生在2019年2月19日直播提到的吳征幫孟建柱、孫立軍持有臟錢及洗錢的資產離岸公司，還有e租寶、泛亞錢被轉移的公司——Ideanomics（原七星雲）竟從納稅人資助的薪水支票保護計劃（PPP）中訛走了40萬美元的可免除貸款。該計劃初衷是援助因CCP病毒導致停工的小企業，但擁有巨量財富且持續盈利的Ideanomics竟申請並獲得了此計劃基金，而本該援救的其他小企業卻還在竭力申請該資助。
 
-[English\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012324/English_0620_CCP_Virus_Updates.pdf)
+由吳征（Bruno Wu）創建的美國上市公司Ideanomics從事金融科技和電動汽車，估值超5,000萬美元。自小企業貸款援助通過以來，該公司在納斯達克（NASDAQ）股價飆升。股價在3月6日跌至公司歷史最低點的0.30美元，此後周四反彈至每股2.05美元。CCP病毒對其財務狀況幾乎沒有威脅，其現金流在2019年12月至2020年3月之間從260萬美元增長到590萬美元，已經翻了壹番。
 
-[French\_0620\_CCP\_Virus\_Updates-](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012327/French_0620_CCP_Virus_Updates-.pdf)
+該公司通過子公司控制著幾家中共國公司，與中共國政府合作以獲取國家支持的基礎設施項目。據其2019提交美國證交會年報顯示，中共國雲南省將投資數十億美元給Ideanomics馬來西亞的子公司，以幫助中共國在東南亞擴大影響力。
 
-[German\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012332/German_0620_CCP_Virus_Updates_-.pdf)
+Ideanomics與多家中共國企建立了合作關系。例如其與中石油（PetroChina）達成的壹項業務——當有人在南京公司充電站為電動汽車充電時，吳征公司就會賺傭金。吳征還與江淮汽車和北汽福田汽車等國有汽車公司達成協議，以優惠價購電動汽車。
 
-[Japanese\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012337/Japanese_0620_CCP_Virus_Updates.pdf)
+該公司還與中共國政府民間社會部門合作。2019年8月與中共國旅遊汽車和遊船協會——文化和旅遊部控制的政府組織建立 “戰略夥伴關系” 。根據條款，吳征將幫公交車運營商車隊轉換為電動汽車，此任務將於2022年生效。吳征充分利用中共國萬億美元的“新基礎設施”計劃，於三月成立兩家子公司，幫政府為大規模基礎設施投資而籌資，包括新5G網絡，“壹帶壹路”倡議項目和電動汽車。
 
-[Korean\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012346/Korean_0620_CCP_Virus_Updates.pdf)
+美國國會中共國特別工作組成員蓋·雷申塔勒（Guy Reschenthaler）指出，不應將PPP資金提供給與諸如Ideanomics此類與中共國有關系的公司，並將此事移交給了財政部和小企業管理局。“鑒於該計劃的普及，我們必須確保將美元留給美國小企業，這才是國民經濟的支柱，” Reschenthaler說，“與CCP有關的公司不應接受納稅人資助的援助計劃。
 
-[Russian\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012352/Russian_0620_CCP_Virus_Updates.pdf)
+参考链接 https://gnews.org/zh-hans/77440/：【挖掘機團隊出品】深度挖掘！Ideanomics公司(原七星雲)吳征！為盜國賊洗錢！
 
-[Spanish\_0620\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23012356/Spanish_0620_CCP_Virus_Updates.pdf)
-
-
+文章翻譯： 新中國聯邦加拿大農場 文錦
 
 0

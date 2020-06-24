@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】21/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-23 02:39 GM77` [轉載自GNews](https://gnews.org/zh-hant/242974/)
+## 夏糧收購價格上升，農民惜售情節嚴重！
+`2020-06-23 12:24 GM30` [轉載自GNews](https://gnews.org/zh-hant/243327/)
 
-戰友之家圖文摘要組及小語種組
+**作者：匿名**
 
-[English\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023242/English_0621_CCP_Virus_Updates.pdf)
+隨著麥收的不斷完成，華北地區各個大型面粉企業經曆了小麥集體上漲，部分地區價格領漲的行情。
 
-[French\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023245/French_0621_CCP_Virus_Updates.pdf)
+目前河北大名五得利漲8厘，執行1.158元/斤；河北深州五得利漲8厘，白麥1.18元/斤；山東青島五得利漲1分5，白普麥1.205元，紅普麥1.19元/斤；山東東明五得利漲5厘，調後1.17元/斤；山東青援食品漲2分，統一1.17元/斤；安徽亳州五得利漲5厘，淨糧1.15元/斤；山東昌樂糧食儲備庫收購價格1.19元/斤。
 
-[German\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023250/German0621_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23121654/image0-161.jpg)
 
-[Japanese\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023257/Japanese0621_CCP_Virus_Updates1.pdf)
+山東半島地區小麥收購價格目前是華北地區的價格高地，已經跑步進入1.2元時代；而在河北，全省小麥平均收購價格爲1.168元/斤，最高收購價格河北定州1.21元/斤。這讓北方三省的小麥托市預案啓動難度加大。與此同時，目前啓動托市收購的南方小麥主産區，價格也出現了明顯的上漲勢頭。
 
-[Korean\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023305/Korean_0621_CCP_Virus_Updates.pdf)
+截至目前，湖北省三等小麥收購均價2210元/噸，較上周上漲40元/噸；江蘇局部地區雨後芽麥最高都收到了1元以上的位置。
 
-[Russian\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023309/Russian_0621_CCP_Virus_Updates.pdf)
+但即便如此，目前基層農戶的惜售心理依舊嚴重。來自官方的數據也顯示，盡管今年小麥較往年提前上市，但截至6月15日，主産區小麥累計收購1055.2萬噸，僅同比僅高出29萬噸。來自基層的信息顯示，受疫情影響，加上今年的小麥價格大跌之後迅速提升，很多百姓們都想坐等漲價，在等待一段時間賣糧。
 
-[Spanish\_0621\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23023312/Spanish_0621_CCP_Virus_Updates.pdf)
+需要特別指出的是，根據河南的水文資料，小麥産量最關鍵最需要水的4月和5月降水量下降明顯，4月平均降水19mm（多年平均52mm），下降63%強，5月平均37mm（多年平均70mm），下降47%強，降水少了不是一星半點，算上4月份2次罕見的凍災， 河南的糧食減産是不爭的事實，但是官方數據依然是豐收增産，這和農戶的惜售心理完全不符。在近段時間小麥價格上漲的同時，玉米價格上漲步伐也一直未停止。中國小麥、玉米的主要産區華北地區，截止目前諸城金雞飼料上調1分，執行2300元/噸；壽光巨能金玉米上調1分，執行2270元/噸；平原福洋生物上調1分，執行2234元/噸；肥城幅寬上調1分，執行2220元/噸；禹城保齡寶上調1分，執行2230元/噸；臨清金玉米上調9厘，執行2260元/噸。
+
+這樣的價格已經接近或反超國家小麥托市價格。
+
+（文章內容僅代表作者觀點）
 
 0

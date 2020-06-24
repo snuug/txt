@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 曾經的澳中關係友好是以澳洲安全為代價
-`2020-06-23 07:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/243122/)
+## 川普總統沖繩戰役75週年致辭（中英文對照）
+`2020-06-23 18:14 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/243467/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23073420/Picture-1-102.png)圖片來源：Getty Images/iStockphoto
-6月20日蘋果日報發表了關於澳中關係的文章，文章指出，澳政府與世界被中共“和平崛起”的承諾所誤導。澳政府現已看清中共與市場經濟倒行逆施的本質。中共對澳洲經濟，教育，網絡信息的滲透是長期醞釀的惡果。
+新聞簡述：川普總統在2020年沖繩戰役75週年致辭，表達對在那場艱苦的鬥爭中喪生的12,000多名美國英雄緬懷之情。總統指出自由和民主是世界的燈塔。美日聯盟將以強大的綜合實力，對抗極權主義的意識形態和專政獨裁專制，防止他們破壞全球秩序。美國政府正努力為所有美國人建立一個更強大，更團結的國家。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/23180802/WH_20200622_The-battle-of-Okinawa_photo169.png)
+**Presidential Message on the 75th Anniversary of the Battle of Okinawa**
 
-**“****和平崛起****”****實為統戰**
+**沖繩戰役75週年致辭**
 
-中共從2014年開始對外宣稱“和平崛起”。西方學術界輕信中共謊言，認為中共加入全球經濟秩序後，可以推動其向民主和市場經濟的方向發展。澳洲國立大學（ANU）學者休.懷特甚至主張美國和中共共同治理世界。他的理由是，世界已進入亞洲時代，澳洲沒有必要在美中之間選邊，一面倒傾向美國。
+Issued on: June 22, 2020
 
-在2018年3月，在經濟學人周刊一篇名為《西方是如何被中共誤導》的報導中，作者指出西方會被中共越發崛起的專制計劃經濟而非市場經濟所擊潰。市場經濟在中共國從未得到發展。取而代之的是中共將商業作為武器要挾其他國家。例如，中共迫使德國汽車製造廠梅賽德斯奔馳對其一則廣告中引用達賴喇嘛的話道歉（德國之聲2018年2月6日報導）； 由於與菲律賓在南海產生爭端（2013-2019） ，中共為報復而停止購買菲國的香蕉等農產品。經濟學人在2018年期間評論道應對中共支持的基金和公司進行全面調查和揭發。但是那時西方仍未警醒。而現在，中共病毒，信息戰和中共戰狼外交的威脅在西方全面敲響警鐘。
+發布日期：2020年6月22日
 
-當澳洲政府提出世界衛生大會應對中共病毒進行調查時，隨即而來的是中共對從澳洲進口大麥施加80.5%的關稅予以報復， 並禁止4家澳洲企業進口牛肉，禁止中國遊客到訪澳洲，禁止中國學生留學澳洲。澳洲哲學家兼教授克利夫.漢密爾頓在其書《無聲襲擊》 （Silent Invasion) 中分析中共是如何利用不同手段影響澳洲的。在其最近《隱形的手：揭發中共是如何重塑世界的》（The Hidden Hand: Exposing how the Chinese Communist Party is reshaping the world)一書中，教授漢密爾頓指出，中共通過一帶一路作為工具從而控制其他國家，並常常要挾以示他們（中共）才是有話語權的老大。他在書中也揭露中共如何通過不同方式滲透政治，貿易，大學，智庫，國際組織等。例如，自從屢遭批評和指責的維多利亞州政府和中共簽下一帶一路合作項目，其州長丹尼爾.安德魯斯和官員開始在媒體給中共背書洗地。
+On this day 75 years ago, one of the most intense conflicts of World War II—the Battle of Okinawa—concluded in a historic victory for the United States.  Today, we pause to remember the more than 12,000 American heroes who perished in that monumental struggle and pay tribute to thousands of service members who were instrumental in the forces of freedom emerging triumphant.
 
-**澳洲安全成為中澳關係友好的代價**
+75年前的今天，第二次世界大戰最激烈的衝突之一，沖繩戰役，以美國的歷史性勝利宣告結束。今天，我們停下來緬懷在那場艱苦的鬥爭中喪生的12,000多名美國英雄，並向成千上萬在自由之師的勝利中，發揮推動作用的服役人員們表示致敬。
 
-過去20年裡，中共對澳洲經濟影響涉及能源，礦產，工業投資，房地產，旅遊業，還有留學生。在北京奧運會前夕中共允許澳洲對中共國輸送能源和礦石，獲得不菲收益；中共在2007年聯邦選舉中扶持工黨領袖陸克文當選澳洲總理。此兩舉使雙方關係在2007-2008年達到頂峰。在亞太經合組織會議期間，陸克文和胡錦濤在宴會中的所講所做和工黨在選舉時的宣誓相同(陸克文當時宣傳要緊縮財政支出。工黨是一個民主社會主義黨，目標是將工業生產，交易民主社會主義化從而減少濫用和在這些行業其他的所謂反社會現象）。另外，中共領事館要求在澳華人給工黨投票，還讓領事館職工在當地發放’如何為工黨投票’的中文傳單。
+The Battle of Okinawa was the last major battle of World War II.  Dubbed Operation Iceberg, a fleet of 1,300 American ships and 50 British ships descended on the island of Okinawa in April of 1945, with a mission of securing it as a critical strategic base for Allied Forces for the final stages of the war, which ended just months later in September 1945.  By the time the battle ended, 26 of these ships had been sunk and another 168 were severely damaged.  In total, the battle cost more than 200,000 lives, including the tragic loss of nearly 100,000 Okinawan civilians.
 
-陸克文雖親共，但他並沒有完全按中共要求做。例如陸克文在2009年拒絕中鋁收購力拓集團（Rio Tinto) 的請求。隨即中共在上海以偷取商業信息之名抓捕力拓集團駐上海，包括主干人物胡士泰在內的4名職工。這充分展示中澳表面展現友好但實際中共是澳洲威脅的不爭事實。
+沖繩戰役是第二次世界大戰的最後一場重大戰役。 1945年4月，名為“冰山行動” 的艦隊由1,300艘美國艦船和50艘英國艦隊降落在沖繩島，其任務是確保其成為盟軍在戰爭最後階段的重要戰略基地，戰爭在幾個月後的1945年9月結束。戰鬥結束時，其中已有26艘船被擊沉，另外168艘受到嚴重破壞。這場戰鬥總共耗費了20萬多人的生命，其中包括近100,000名沖繩平民的慘痛損失。
 
-從校園事件層面看， 在2008年奧運前夕，當火炬傳到澳洲時，中共慫恿中共國學生迎接火炬並反對任何支持西藏的活動。在同年三月，西藏發生了暴動。澳洲國際事務協會昆士蘭分支邀請昆士蘭大學政治和國際學教授對西藏暴亂一事做了演講。該教授的言論與被慫恿的中共國學生論調一致。當時，本報導的作者，作為當時仍是一個該系在讀的博士研究生，問了幾個和此事相關的問題。該教授回答中共會和平崛起，並遵守國際規則。2019年，中共國學生攻擊支持反送中運動的香港學生。昆士蘭大學為中共洗地，計劃將支持反送中運動學生德魯.帕夫洛（柏樂志）逐出學校。昆士蘭大學支持孔子學院的建設，該大學副校長彼得.霍伊甚至要求駐布里斯班領事徐傑作為昆士蘭大學客座教授， 而霍伊本人則成為天津大學客座教授。從2016到2019年，台灣在布里斯班舉行4個台灣電影節，有三次在昆士蘭大學舉辦。但在2017年由於中共干預，大學停止資助該電影節。這些事件都只是冰山一角。更令人震驚的是中共商人黃向墨案件，這導致2018年澳洲通過了間​​諜和外部干涉法案和外部勢力透明方案，兩國關係也跌入了低谷。
+The grueling struggle on Okinawa lasted 3 months and consisted of multiple battles, both at sea and on the island.  American and Allied troops had to navigate treacherous terrains, including cliffs and tunnels.  They valiantly rose to the challenge, demonstrating the bravery and resolve that have always defined the men and women of our Armed Forces.  In total, Presidents awarded 23 Medals of Honor to true American patriots for their gallantry and courage during the 82-days of fighting on the island.  Their service and sacrifice, along with that of their fellow brothers in arms, are a tribute to the selflessness and stalwart bravery of their generation—the Greatest Generation.  The legacy of that sacrifice includes our alliance with Japan—forged after that terrible conflict—that embodies our shared commitment to freedom and democracy, which is a beacon for the world.  Today, that alliance is on watch against would-be adversaries who, but for the combined strength of the United States an d our Japanese allies, would undermine the global order to the advantage of totalitarian ideologies and dictatorial autocracy.
 
-**網絡黑客左右聯邦選舉**
+沖繩島上艱苦的戰爭持續了3個月，包括海上和島上的多次戰鬥。美國和盟軍不得不穿越險峻的地形，包括懸崖和隧道。他們勇敢地迎接挑戰，展現了勇敢和決心，這些始終是對我們武裝部隊中男女軍人的定義。總計，總統向在82天的島上戰鬥中，真正的美國愛國者，頒發了23枚榮譽勳章，以表彰他們的英勇和勇氣。他們與軍中同胞弟兄們的服務和犧牲，是對這一代（最偉大的一代）的無私和堅定勇敢的敬意。這場犧牲的遺留產物包括我們在那場可怕的衝突之後結成的日本同盟，這體現了我們對自由和民主的共同承諾，這是世界的燈塔。今天，由於美國和我們的日本盟國的綜合實力，這種聯盟正在對抗可能的對手，這些對手將以極權主義的意識形態和獨裁專制的優勢破壞全球秩序。
 
-2018年澳洲成為五眼聯盟中的第一個抵制華為參與澳洲5G建設的國家。2019年，澳洲情報部門卻發現中共網絡黑客侵入選舉投票系統。至今，中共對澳洲懲罰性關稅使雙邊關係進一步惡化，澳洲社會也開始抵制中共滲透。有句話說的好，’冰凍三尺，非一日之寒’。雙邊關係的表面友好卻是長期以澳洲安全作為代價。
+Today, we remember our Greatest Generation and salute those who answered our Nation’s call with unyielding valor and intrepid resolve.  As our country continues to recover from the unprecedented hardships we have faced over the past months, let us draw from their patriotism and conviction in our efforts to build a stronger, more united country for all Americans.
 
-[原文鏈接](https://hk.appledaily.com/us/20200620/UHJ4B2DLTSZKLMAGUUNNB4KGEY/)
+今天，我們銘記最偉大的一代，並以堅定不移的英勇和勇敢的決心向那些響應我們國家呼籲的人們致敬。隨著我們的國家繼續從過去幾個月來面臨的前所未有的困難中恢復過來，讓我們汲取他們的愛國主義和信念，努力為所有美國人建立一個更強大、更團結的國家。
 
-翻譯報導：Joyphie
-校對整理：人間四月
+閱讀原文：Presidential Message on the 75th Anniversary of the Battle of Okinawa https://www.whitehouse.gov/briefings-statements/presidential-message-75th-anniversary-battle-okinawa/
+
+*翻譯：【木木ANNA】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
