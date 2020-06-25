@@ -1,69 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 林鄭月娥可選法官？香港律師界震驚
-`2020-06-24 19:11 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/244530/)
+## 【多語言圖文版】6月14日中共病毒疫情要問快報
+`2020-06-24 22:50 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/244686/)
 
-*新聞來源：《路透社》*
+[6.14-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224633/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224633/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-*作者：Greg Torode, James Pomfret*
+[6.14-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224636/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224636/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-*發佈時間：June 21, 2020 / 2020年6月21日*
+[6.14-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224640/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224640/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-*翻譯：小小妹*
+[6.14-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224643/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224643/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-*簡評：小小妹/海闊天空*
+[6.14-每日要闻-西语Spanish.](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224646/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%ADSpanish..pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224646/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%ADSpanish..pdf)
 
-*PR：海闊天空*
+[6.14-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224653/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224653/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-*Page：拱卒*
+[6.14-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224656/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24224656/6.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-**簡評：**
 
-香港之所以稱為國際金融中心，稱為東方明珠，最根本的原因是香港社會完善的法治基礎和廣泛的自治權，而香港的司法獨立權是保障香港法治的極其重要的基礎。中共的港版國安法規定在香港設立中共的特務機構對香港進行監管，而且香港特首有權力指派法官來審理法律案件，這是對香港法治明目張膽的侵犯，這是徹底剝奪了香港的司法獨立，使得香港必須臣服於北京腳下，稱為北京的順民和奴隸。北京竟然為了維持政權穩定不惜犧牲香港？
-
-北京竟然為了控製香港不惜毀掉香港？這種涸澤而漁、飲鴆止渴的做法真是令人匪夷所思。更可惡的是，那些賣港賊，竟然厚顏無恥地說，港版國安法不會影響香港的資本主義及其法律制度，怪不得，林鄭月娥是優秀的共產黨員，完全可以睜著眼睛說瞎話？臉不紅心不跳，欺騙香港人民、欺騙全世界。
-
-## **香港律師對國家安全審判中選拔法官的計劃感到震驚**
-
-香港（路透社）-香港高級律師週日對香港領導人為國家安全案件選擇法官的計劃表示震驚，稱這是自1997年移交給中共國統治以來對已有司法獨立地區最嚴峻的挑戰。
-[!\[\](https://spark.adobe.com/page/rDy08K0HWgYSq/images/71813a25-6db8-40b7-b053-0e58332c9e9c.jpg?asset_id=970148c2-7860-43a4-8f07-d556977ea2d7&amp;img_etag=%226a350530949dc25935d4ca9c06c204e6%22&amp;size=1024)](https://spark.adobe.com/page/rDy08K0HWgYSq/images/71813a25-6db8-40b7-b053-0e58332c9e9c.jpg?asset_id=970148c2-7860-43a4-8f07-d556977ea2d7&amp;img_etag=%226a350530949dc25935d4ca9c06c204e6%22&amp;size=1024)世界新聞2020年6月21日/ 12:21 PM / 2天前香港律師對國家安全審判的法官計劃感到震驚Greg Torode，James Pomfret 4分鐘閱讀香港(路透社)–香港資深律師週日對該市領導人為國家安全案件挑選法官的計劃表示震驚，稱這是自1997年移交給中國統治以來對該地區受人尊敬的司法獨立的最嚴重挑戰。2020年6月3日，香港特首林鄭月娥在中國北京舉行新聞發布會，她在冠狀病毒病（COVID-19）爆發後戴著口罩。REUTERS/Carlos Garcia Rawlins
-此舉是新華社週六發布的香港新國家安全法細節之一，該立法有望很快由中共國國會常務委員會全國人民代表大會通過。
-
-除了一個由北京官員監督的新的當地國家安全委員會外，香港行政長官林鄭月娥還將有權任命法官來審理法律案件。
-
-香港大律師公會主席菲利普·戴克斯（Philip Dykes）認為林任職法官的任何舉動都是“絕不尋常”的舉動，稱此舉觸及了受香港基本法所保護的司法獨立性的核心。
-
-戴克斯對路透社表示：“這是自移交以來最大的轉變。”
-
-“你不能稍微獨立，就像你不能稍微懷孕一樣。你要么獨立，要么不獨立。”
-
-在林擔任理事會主席的情況下“你正在為你感興趣的比賽挑選裁判”。
-
-在回應路透社就新法規向首席大法官馬傑夫（Geoffrey Ma）提出的問題時，司法機構在一封電子郵件中表示，“不會對此發表評論”。
-
-香港和中共國官員說，必須對前英國殖民地緊急實施該法，因為在過去一年中不時發生暴力抗議活動暴露了解決分裂主義、顛覆、恐怖主義和與外國勢力勾結的必要性。
-
-這項法律激起了外國政府以及香港民主運動人士的擔憂，他們已經擔心北京正在侵蝕英國在“一國兩制”方案下歸還香港時中共承諾的廣泛自治權。
-
-香港以普通法為基礎的法律體係被廣泛視為這一模式的基石，鞏固了其作為全球金融中心的地位。
-
-其他高級律師私下發表講話，表示深切關注，稱這似乎證實了他們的擔心，即北京方面想遏制“三權分立”，而“三權分立”使香港法官成為對政府的一個重要製約因素。一些人承認，由於北京的壓力越來越大，他們越來越不敢暢所欲言。
-
-路透社四月份的《特別報導》顯示，該市一些最高級別的法官私下里擔心，香港的法治受到北京的攻擊。
-
-儘管親北京的人士要求設立特別法庭，並呼籲禁止外國法官參與涉及國家安全的案件(這是香港的悠久傳統)，但這一新計劃尚未在香港本土出現。
-
-進步律師組織的律師兼召集人安吉琳·陳（Angeline Chan）說：“這是將政治要素引入司法系統的行為，司法系統本應是公正的。”
-
-目前，法官的分配和名冊由高級法官根據法律經驗處理。
-
-戴克斯說：“這提出了很多問題……上帝才知道如何選擇他們。”他敦促盡快頒布完整的擬議法律。
-
-林在周六晚發表的聲明中說，中央政府一再強調該法律“不會影響香港的資本主義制度及其法律制度”。
-
-[原文鏈接](https://www.reuters.com/article/us-hongkong-protests-security-legal/hong-kong-lawyers-alarmed-at-plans-for-judges-in-national-security-trials-idUSKBN23S0CU)
-
-編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/rDy08K0HWgYSq/)
 
 0

@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月24日中共病毒疫情要聞快報
-`2020-06-24 19:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/244546/)
+## 【多語言圖文版】6月15日中共病毒疫情要聞快報
+`2020-06-24 23:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/244715/)
 
-**重要内容：**
+[6.15-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225652/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225652/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-- 美媒為追責中共輿論造勢；
-- 中共極力隱瞞北京疫情；
-- 武漢模式重現：北京某小區門被焊死；
-- 黨媒自稱“市場化媒體”被打臉。
+[6.15-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225655/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225655/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+
+[6.15-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225658/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225658/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+
+[6.15-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225701/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225701/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+
+[6.15-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225704/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225704/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+
+[6.15-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225708/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225708/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+
+[6.15-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225711/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24225711/6.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
 
-
-
-製作：【上天造滅疫組】
 
 0
