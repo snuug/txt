@@ -1,31 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Twitter實施言論審查屏蔽川普總統推文
-`2020-06-25 06:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245003/)
+## 美國和波蘭發表兩國總統聯合聲明
+`2020-06-25 12:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/245263/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25033439/Picture-1-131.png)圖片來源：推特截圖
-據美國知名媒體TechCrunch近日報導，6月22日（週一）晚上，一群示威抗議者與執法警察在白宮附近的拉斐特廣場發生衝突。【注：抗議者周一晚上試圖破壞白宮北部拉斐特（Lafayette）廣場上矗立的安德魯·傑克遜（Andrew Jackson）青銅雕像，被執法的警察制止。傑克遜曾經為美國獨立作出重要貢獻，是第七任美國總統。】
+美國總統和波蘭總統於2020年6月24日聯合聲明，重申兩國都珍視的價值觀，尤其是民主，法治，個人自由和自由以及自由，公平和互惠的貿易。美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪。並將合作推動可信賴的5G供應商的多元化供應鏈的創新。
 
-自從上個月發生喬治·弗洛伊德（George Floyd）意外死亡事件後，美國的抗議種族歧視活動頻頻發生，有些人甚至乘機搞打砸搶和暴力破壞，甚至在西雅圖市搞了一個沒有警察執法的’自治區’，嚴重破壞了社會的正常法治秩序。
+Joint Statement by President Donald J. Trump and President Andrzej Duda
 
-對此，川普總統在周二上午發布推文，對在華盛頓特區繼續搞暴力破壞的企圖發出警告： “只要我是你們的總統，華盛頓特區就永遠不會有’自治區’。如果他們願意試試，他們將受到執法部門的嚴懲！” 隨後Twitter公司便立即對川普總統的推文作了屏蔽，將推文的內容屏蔽在警告標籤後面並附加了通知，從而限制了推文的傳播範圍，並阻止讀者點贊轉發。Twitter公司聲稱，這條推文違反了其禁止發布涉及人群威脅內容的規則，是社交網絡上的一種“威脅行為”。
+## **唐納德·川普總統和安傑伊·杜達總統的聯合聲明**
 
-Twitter公司過去很少對包括川普在內的知名美國政界人士的推文實施審查管控措施。這一次Twitter公司對川普總統的推文進行屏蔽，可能是Twitter公司針對川普總統實施新的社交網絡平台言論審查管控的一個例證。在過去的一個月中，Twitter公司的立場和政策似乎有所轉變，更加強化了對政界人士發表言論的審查管控。5月下旬，Twitter公司對川普總統發的針對加利福尼亞州的郵寄投票方式可能存在虛假投票的兩條推文加註了警告標籤，曾經引發了一場軒然大波，幾天后川普總統則提出了一項報復性行政命令，限制社交網絡平台對用戶言論進行審查的權限。此外，在喬治·弗洛伊德意外死亡之後引發的示威抗議活動初期，Twitter公司還屏蔽了川普總統的一條對暴力示威者發出警告的推文。
+Issued on: June 24, 2020
 
-評：
+發佈日期：2020年6月24日
 
-雖然Twitter公司對川普總統之前推文屏蔽，但這絲毫沒有動搖川普總統維持法律與社會秩序的決心。川普總統週二接著發布了[以下的推文](https://twitter.com/realDonaldTrump/status/1275379758021390336)：“我已授權聯邦政府逮捕任何塗鴉或破壞美國紀念碑、雕像或其他類似聯邦建築的人，並根據《退伍軍人紀念物保護法》或其他相關法律判處10年以下有期徒刑。該措施立即生效，而且可以追溯用於過去已經造成的塗鴉或破壞的人。不會有例外！”要說“威脅”，此推直接提到可高達10年的牢獄懲罰，口氣和內容一點都不比被屏蔽掉的推文遜色，簡直可以說是有過之而無不及，Twitter公司會用同樣的理由屏蔽此推嗎？讓我們拭目以待！
+The United States and Poland have a centuries-old friendship and partnership based on shared values and interests, strong people-to-people ties, and mutual respect.  Today we reaffirm the values that both our nations hold dear, especially democracy, the rule of law, individual liberties and freedoms, and free, fair, and reciprocal trade.
 
-對於喬治·弗洛伊德意外死亡之後引發的示威抗議活動，川普總統一直呼籲民眾堅持和平理性，擯棄暴力。川普總統發推文向居心叵測圖謀不軌的鬧事者發出警告，完全合理合法，表明總統維持法律與社會秩序的決心，是總統對國家對社會負責任的表現。
+美國和波蘭在共同的價值觀和利益，牢固的人與人之間的聯繫以及相互尊重的基礎上有著數百年的友誼和夥伴關係。今天，我們重申兩國都珍視的價值觀，尤其是民主、法治、個人自由和自由以及自由、公平和互惠的貿易。
 
-民主國家的社交網絡應該維持公平公正立場，為用戶服務，讓用戶享有言論自由，由用戶對自己的言論負責。社交網絡平台不應該扮演“大兄弟”的角色，對用戶言論實施審查管控。
+The COVID-19 pandemic further underscores the importance of these values and the urgency to defend and promote them.  The United States and Poland, in concert with other Allies and like-minded partners, will work together to rebuild our economies to be stronger, more resilient, and more closely integrated; protect our critical infrastructure and technology; and diversify our supply chains.  We will also join efforts to combat disinformation, especially historical truths relating to WWII.
 
-Twitter公司這次屏蔽川普總統推文的舉動表明了Twitter公司的反川普立場，使川普總統與Twitter公司之間的鬥爭更加明朗化。這將進一步促成川普政府修改涉及社交網絡平台的相關法律，明確社交網絡平台對用戶發布的言論內容是否應該承擔法律責任，防止社交網絡平台被中共勢力利控制和利用。
+COVID-19大流行病進一步強調了這些價值觀的重要性以及捍衛和促進它們的緊迫性。美國和波蘭將與其他盟國和志同道合的夥伴一道，共同協作，重建我們的經濟，使其更強大，更具抗逆能力，更緊密地融合在一起；保護我們的關鍵基礎設施和技術；並使我們的供應鏈多樣化。我們還將共同努力打擊虛假資訊，特別是與第二次世界大戰有關的歷史真相。
 
-[原文鏈接](https://techcrunch.com/2020/06/23/twitter-trump-tweet-protester-threat-autonomous-zone/?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAN0SMlI3Nl7a55ZLilpOklnGw-J0qrE29a0hs27t7nWPe22PlmPkcgRZ0rjjumjCeQQmzb3Pwd385gBI6oOzyFpKdHp1gVEAjFUfa1xdZw0cJ8p5Soikd8aRkxJ_HTxW0OX_qlfeL_7YatYSR497T51DPkRNnNd_zY45rkF6bF99)
+The United States and Poland were proud to help one another through the COVID-19 pandemic, and we pledge to continue our close cooperation as we work to find therapeutics and vaccines.  We also underscore the importance of transparency, information-sharing, and free and functioning international organizations in the prevention of future pandemics.
 
-翻譯：下里巴人
-校對：晴天小螞蟻
+美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪，我們保證在我們尋找療法和疫苗的過程中將繼續密切地合作。我們還強調了透明度，資訊共用以及自由和運作良好的國際組織在預防未來大流行病中的重要性。
+
+Recognizing our strategic partnership, the United States and Poland continue to deepen our defense cooperation, including by further implementing the Joint Declarations of June 12, 2019, and September 23, 2019, and developing plans to bolster United States-Poland military ties and United States defense and deterrence capabilities in Poland.  We reaffirm our commitment to invest in our defense capabilities and fair burden-sharing to strengthen transatlantic security and cooperation through the North Atlantic Treaty Organization (NATO), and to ensure the effective deterrence and defense of NATO’s Eastern flank.  The United States and Poland continue to work together as Poland modernizes its Armed Forces, including through state-of-the-art United States equipment.
+
+認識到我們的戰略夥伴關係，美國和波蘭繼續加深我們的國防合作，包括進一步執行2019年6月12日和2019年9月23日的聯合聲明，並制定計劃以加強美國波蘭軍事關係和美國波蘭的防禦和威懾能力。我們重申致力於投資於我們的防禦能力和公平分擔負擔的承諾，以通過北大西洋公約組織（NATO）加強跨大西洋的安全與合作，並確保北約東翼的有效威懾和防禦。隨著波蘭使用現代化武裝其部隊，包括通過先進的美國裝備，美國和波蘭會保持繼續合作。
+
+Underscoring that energy security is national security, the United States and Poland are promoting energy diversification, free energy markets, and enhanced cooperation.  We are especially pleased to partner on supplying Poland with United States Liquefied Natural Gas and to begin a new chapter of our energy cooperation by partnering to develop Poland’s civil nuclear power sector.
+
+強調指出能源安全是國家安全，美國和波蘭正在促進能源多樣化，自由能源市場和加強合作。我們特別高興兩國能合作，美國向波蘭供應美國液化天然氣，並通過與波蘭合作發展民用核電領域來開啟我們能源合作的新篇章。
+
+The United States and Poland reiterate our support for the Three Seas Initiative, which will enhance regional energy, transportation, and information connectivity between the Adriatic, Black, and Baltic Seas through transparent, market-based, and fair investments, thereby boosting economic growth and reinforcing democratic values.  We are proud to have pledged substantial funding to implement this important initiative and call on others to join us.
+
+美國和波蘭重申我們對“三海倡議”的支持，該倡議將通過透明的、基於市場的和公平的投資來增強亞得裡亞海，黑海和波羅的海之間的區域能源，交通運輸和資訊連接，從而促進經濟增長和加強民主價值觀。我們很自豪地承諾提供大量資金來實施這一重要倡議，並呼籲其他國家加入我們。
+
+Free, fair, and reciprocal trade has enabled our nations and the world to grow prosperous, has powered innovation and development, and has created millions of jobs.  We are proud that trade between the United States and Poland has grown by more than 50 percent since 2016 and commit to jointly fight against abusive trade practices.  We will also continue to promote increased trade and investment, especially in modern technologies.
+
+自由、公平和互惠的貿易使我們的國家和世界得以繁榮發展，推動了創新和發展，並創造了數百萬個就業機會。我們感到很自豪的是美國和波蘭之間的貿易，自2016年以來增長了50％以上，並致力於共同打擊濫用貿易行為。我們還將繼續促進貿易和投資的增加，特別是在現代技術方面。
+
+Our two nations share a strong belief in privacy and individual freedoms and the importance of securing our telecommunications systems.  We therefore reaffirm our Joint Declaration of September 2, 2019, and commit to cooperate in the development of next-generation technology solutions and to use only secure and trusted providers, equipment, and supply chains in our 5G networks. To advance this aim, we will collaborate on promoting innovation for a diverse supply chain of trusted 5G vendors.
+
+我們兩國堅信隱私和個人自由以及保護我們的電信系統的重要性。因此，我們重申2019年9月2日的聯合聲明，並致力於合作開發下一代技術解決方案，並在我們的5G網路中僅使用安全可靠的供應商、設備和供應鏈。為了實現這一目標，我們將合作推動可信賴的5G供應商的多元化供應鏈的創新。
+
+閱讀原文：[Joint Statement by President Donald J. Trump and President Andrzej Duda](https://www.whitehouse.gov/briefings-statements/joint-statement-president-donald-j-trump-president-andrzej-duda/)
+
+*翻譯：【木木ANNA】 校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

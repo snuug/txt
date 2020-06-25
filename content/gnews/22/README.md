@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】23/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-25 00:27 GM77` [轉載自GNews](https://gnews.org/zh-hant/244810/)
+## 請停止讓中共用美國的錢傷害美國人民
+`2020-06-25 06:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245019/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25064037/Picture-1-132.png)圖片來源：PYMNTS.com
+據《華盛頓自由燈塔》報導，美國國會對華特別工作組成員蓋·雷申塔勒（Guy Reschenthaler）表示，不應該讓那些與中共相從過密的企業獲得經濟救濟政策下的可寬減貸款。
 
-[English\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001916/English_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001916/English_0623_CCP_Virus_Updates.pdf)
+根據美國證券交易委員會的文件吳征在美國成立的Ideanomics公司從美國薪水支票保護計劃（PPP）中獲取了40萬美元的可寬減貸款，該計劃本是幫助受中共冠狀病毒傷害的小企業。
 
-[French\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001919/French_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001919/French_0623_CCP_Virus_Updates.pdf)
+Ideanomics公司從2017年起便與中共國省級政府和國有企業保持密切合作關係，深度參與國家支持的基礎設施項目，且通過子公司控制著幾家中共國公司。
 
-[German\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001948/German_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001948/German_0623_CCP_Virus_Updates.pdf)
+另外“小企業”這個設定，也不符合Ideanomics公司的實際情況。即使是在申請來自納稅人的PPP貸款時，Ideanomics公司也向投資者保證，公司財務狀況幾乎沒有受到武漢病毒影響，並指出在致命病毒在2019年12月至2020年3月全球範圍大傳播期間，公司的現金和現金等價物已經翻了一番。
 
-[Japanese\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001933/Japanese_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001933/Japanese_0623_CCP_Virus_Updates.pdf)
+Ideanomics是受益於PPP的可疑跨國公司之一，對Ideanomics是否已歸還其PPP貸款，該公司未回應。
 
-[Korean\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001939/Korean_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001939/Korean_0623_CCP_Virus_Updates.pdf)
+國會對華特別工作組成員蓋·雷申塔勒說，不應將PPP資金提供給諸如Ideanomics之類的與中共有聯繫的公司，並將此轉交給了財政部以及小型企業管理局。“我們必須確保將美元留給美國小企業，這是我們國民經濟的支柱，與中國共產黨有聯繫的公司不應獲得納稅人資助的援助計劃。”
 
-[Russian\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001942/Russian_0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001942/Russian_0623_CCP_Virus_Updates.pdf)
+評：
 
-[Spanish\_0623\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001945/Spanish0623_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25001945/Spanish0623_CCP_Virus_Updates.pdf)
+郭文貴先生曾在2018年便表示，美國會調查所有在美與中共有聯繫的公司，並且會查清盜國賊的每一分每一厘。而吳征這樣的人居然可以拿到貸款也足以說明美國金融財政領域深陷泥沼。現在川普總統表示要排幹沼澤，美國政府也決定與那些和中共有聯繫的企業劃清界線。中共曾經引以為資的國外企業逐一被調查，好像給惡魔的黑手上踩了兩腳，當它不能承受，不斷掙扎的鬆開每一根邪惡的手指時，就是光明和正義逐漸取勝的戰績。
 
+[原文鏈接](https://freebeacon.com/coronavirus/tech-company-tied-to-china-cashes-in-on-small-business-relief/)
 
+翻譯報導：明澈
+校對整理：人間四月
 
 0

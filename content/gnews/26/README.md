@@ -1,101 +1,130 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 神聖的西藏
-`2020-06-25 00:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/244763/)
+## 保護美國龍蝦產業備忘錄
+`2020-06-25 03:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/244962/)
 
-*文章來源：Andmagazine*
+PRESIDENTIAL MEMORANDA
 
-*作者：Charles “Sam” Faddis June 17, 2020*
+## 總統備忘錄
 
-*翻譯： Victory*
+Memorandum on Protecting the United States Lobster Industry
 
-*PR：海闊天空*
+## 保護美國龍蝦產業備忘錄
 
-*評論：Hemingway*
+LAND & AGRICULTURE
 
-*PAGE：玄天生*
+國土與農業
 
-**評論：**（文章僅代表個人觀點和立場。）
+Issued on: June 24, 2020
 
-想要理解西藏的新聞、藏人的抗爭，可能需要先從這些複雜的歷史敘事中跳出來，先去理解藏人的信仰、宗教。今天的簡評，筆者想用自己的眼睛，帶您來到藏人的信仰世界。
+發佈日期：2020年6月24日
 
-有一部叫做《Unmistaken Child》的紀錄片，記錄的是喇嘛丹增梭巴在他師父大成就者袞卻格西圓寂後尋找其轉世靈童的故事。
+MEMORANDUM FOR THE SECRETARY OF AGRICULTURE
+THE SECRETARY OF COMMERCE
+THE UNITED STATES TRADE REPRESENTATIVE
 
-片子開頭，來到2001年，丹增的師父在尼泊爾圓寂，年輕的追隨者們為他舉行葬禮。火供結束後，行者們收集灰燼中的捨利。像聖徒追隨聖經一樣閱讀灰燼的形狀。灰燼的形狀像一個足跡，被解讀為袞卻格西會轉世回來。紋路指向東方，那便是他們前進、尋找的方向。我忍不住掉下淚來。
+農業部長
+商務部部長
+美國貿易代表
+備忘錄
 
-年輕的丹增被告知，因為養育帶來的不可撼動的連結，他肩負找到袞卻格西的轉世靈童的責任，英文描述為“Unmistaken Reincarnation”。小活佛將延續袞卻格西的智慧與善行，來幫助眾生。
+SUBJECT: Protecting the United States Lobster Industry
 
-[!\[\](https://spark.adobe.com/page/hjaX393c4DUIy/images/92090be4-1e5f-493f-ad8e-534d6906e785.jpg?asset_id=14e22d9f-37de-4380-b668-57bfcef44557&amp;img_etag=%227b02d4bb2403047ba75d254d98701b83%22&amp;size=2560)](https://spark.adobe.com/page/hjaX393c4DUIy/images/92090be4-1e5f-493f-ad8e-534d6906e785.jpg?asset_id=14e22d9f-37de-4380-b668-57bfcef44557&amp;img_etag=%227b02d4bb2403047ba75d254d98701b83%22&amp;size=1024)
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
-丹增很困惑，他不想當這去尋找轉世靈童的個人，因為他需要依靠無形的感覺和認知，來尋找到與師父有相同的靈魂的轉世的孩子。他說，我還不是一個佛，因此無法相信自己的感覺。當天丹增做了一個很有趣的夢，夢見一個小孩從袞卻格西去世的身體裡跳出來，說：丹增，給我你的手。於是他伸出了手。
+主題：保護美國龍蝦產業
 
-我在丹增的身上找到了自己，或者看到了千千萬萬個人相似的生命旅程。從前，從來不必思考或擔憂，要去哪裡，要做什麼，只需要聽從長者的指示就可以了。但有一天，發現開始需要，甚至只能，依靠自己來尋找一個目的，而且根本不知道，能不能找到它。而別處，世人只願意引領，不再喜歡追隨、或者不願承認喜歡追隨，哪怕是追隨智者。
+根據美利堅合眾國憲法和法律賦予我的總統權力，現命令如下：
 
-年長的喇嘛說，深信袞卻格西已經轉世。但是，他們依然有可能找到一個錯的化身。他告誡丹增，在他尋找的過程裡，不要相信任何人所說的。不要讓他們誤導你的心，因為人們都喜歡講述不同尋常的故事。而你的心，要保持誠實、不偏倚，謹慎仔細，但依然要深深相信你的心。
+Section 1.  Policy.  On May 22, 2018, the United States Trade Representative (Trade Representative) concluded an investigation under section 301 of the Trade Act of 1974, as amended (19 U.S.C. 2411), finding that China had engaged in multiple unreasonable and discriminatory trade practices that had harmed American intellectual property rights, innovation, and technology development.  In response to China’s unfair and unreasonable conduct, the United States imposed tariffs on several categories of Chinese products.
 
-丹增說：尋找師父的轉世活佛，並不是一件只是試試的事情，這是現在他的生命目的。活佛將為眾生帶來啟示，普渡千千萬萬的人，這比自己的生活、生命，重要千萬倍。年輕的丹增就此開始了長達4年的尋找。紀錄片裡記錄了這長長途中的一些剪影。丹增會仔細地了解每一個他找到並且可能是轉世靈童的孩子。通常，他碰碰孩子的額頭，給孩子一個諸如氣球的小玩意，跟孩子在一起相處觀察，問幾個問題，比如孩子認不認識一串袞卻格西生前用過的佛珠念珠。
+Rather than reform its practices, China responded to the Trade Representative’s findings with unjust retaliatory tariffs designed strategically to inflict financial harm on America’s farmers, fishermen, and workers in other industries.
 
-紀錄片盡量用發生來講述，而不用講述來誤導。我無法全然感受年輕的丹增這一漫長歲月路途中的心靈和肉體歷程。但是，決心用未知的生命長度，來尋找一個無法左右和預判結果的目的，並且同時將其作為生命中唯一的使命去堅信不疑，這件事情本身就給我足夠的啟迪和触動。這不是一場丹增個人的特殊旅途，也不是躲在鏡頭後的，所有尋找轉世靈童參與者的一場旅途。這是眾生的旅途，只是你的、我的、他的，被罩上不同的面孔和說辭，流落綿延到不同的世界角落，各自經途。不同的是，丹增的路途應該很幸福，或者是堅定。這幸福不是片刻的歡喜，而是一種綿延不斷的力量，來源於信仰。
+第1節. 政策。 2018年5月22日，美國貿易代表（以下簡稱貿易代表）依據1974年《貿易法》修訂版第301節（19 U.S.C. 2411）結束了調查，認定中國從事了多種不合理且具有歧視性的貿易慣例，損害了美國的智慧財產權，創新和技術發展。為了回應中國的不公平和不合理行為，美國對幾類中國產品徵收了關稅。中國未改革其原有的貿易慣例，而是對貿易代表的調查結果作出了不公正的報復性關稅，旨在對美國的農民，漁民和其他行業的工人造成經濟損失。
 
-[!\[\](https://spark.adobe.com/page/hjaX393c4DUIy/images/d76e937d-36d5-444c-abd0-33976fa041ba.jpg?asset_id=ea30afce-195d-4a4c-bf11-d7a04e943516&amp;img_etag=%22d2e42ce5229c2f3a74c956662bd24d60%22&amp;size=2560)](https://spark.adobe.com/page/hjaX393c4DUIy/images/d76e937d-36d5-444c-abd0-33976fa041ba.jpg?asset_id=ea30afce-195d-4a4c-bf11-d7a04e943516&amp;img_etag=%22d2e42ce5229c2f3a74c956662bd24d60%22&amp;size=1024)
+My Administration has forcefully addressed China’s unfair assault on American producers.  Among other measures, I directed the Secretary of Agriculture to deliver a comprehensive trade aid package to American farmers.  He did so, providing more than 14 billion dollars in direct payments to American farmers under the authority of the Commodity Credit Corporation (CCC) Charter Act.
 
-不由得想到自己，所有的啟發都映照了自己的經途。懷疑一切，這是先天賦予，又被這世界鼓勵的生存方式。我們應該信念什麼呢？在途中，總有幾團火焰湊起來的一團明亮。這些火焰在途中被我們找到。它既來自外在，也來自內心；它是人、是感情，還有直覺，也有部份是一種說辭、一種哲學、一種框架。它們用不同的方式暫時或長久地說服了我們的懷疑。拖拖拉拉地將它們拼湊起來，作為我們經途的信念，隨著無常的風，經年的雨，火焰忽明忽暗，時隱時現，直到一天它完整地降臨到你的世界。每個人，都需要丹增的那種能夠作為生命支撐的信仰力量。洞悉無常，卻依然​​一往無前。如這故事里外給人啟發的智者們那般。這是我也渴望的生命自覺。
+本屆政府已強有力地解決了中國對美國生產者不公平的攻擊。除其他措施外，我指示了農業部長向美國農民提供全面的貿易援助。他依據《商品信貸公司（CCC）憲章法》的授權向美國農民提供了超過140億美元的直接支付。
 
-丹增在Choekang Village的一個人家裡，找到了一個很小的孩子。孩子被奶奶抱著，看見丹增拿著“自己”前世做早課的念珠，放聲大哭。丹增將念珠戴在他的脖子上，他安靜下來。如此反复，持著念珠一直不放。丹增沒能把念珠拿走，於是他回到年長的喇嘛那裡請示。年長的喇嘛讓丹增回去繼續觀察這個孩子，用自己對師傅的深入了解來審視考察他。丹增回到Choekang Village，跟這個孩子一起相處。
+China’s retaliatory assault on the American lobster industry was particularly aggressive.  On July 6, 2018, China imposed retaliatory 25 percent tariffs on American lobster.  On September 1, 2019, China raised those retaliatory tariffs to 35 percent.  On February 14, 2020, China reduced its punitive lobster tariffs to 30 percent.  When those retaliatory tariffs are added to China’s prevailing Most Favored Nation tariffs of 5 percent and 7 percent, depending on the species of lobster, American lobsters currently face tariffs of either 35 percent or 37 percent.
 
-後來，這個孩子被帶來接受最後的測試：他需要將一系列袞卻格西生前用過的法器從眾多的法器中挑選出來。他全部都挑對了。丹增在電影結束後回答觀影人提問時說，在紀錄片之外，他們還找到了另外一個女孩，在另一所房間裡同時接受著最後的測試，她全部沒選對。最後，這個孩子通過了所有的測試。通過剃度等一系列儀式，他被確認為轉世靈童。他在純潔的生命之初，便肩負起了啟迪眾生的責任。
+中國對美國龍蝦產業的報復性攻擊特別激進。 2018年7月6日，中國對美國龍蝦徵收了25％的報復性關稅。 2019年9月1日，中國將這些報復性關稅提高到35％。 2020年2月14日，中國將龍蝦的懲罰性關稅降低至30％。這些報復性關稅再加上中國現行的最惠國關稅的5％和7％時（取決於龍蝦的種類），美國龍蝦目前面臨的關稅是35％或37％。
 
-片子裡有這樣的追問：你怎麼知道你找到的孩子是那個對的？如果錯了呢？
+On January 15, 2020, I signed the landmark Economic and Trade Agreement Between the Government of the United States of America and the Government of the People’s Republic of China (“Phase One Agreement”).  The Phase One Agreement requires important structural reforms from China related to issues such as intellectual property theft, forced technology transfer, and exchange rate manipulation.  As part of the Phase One Agreement, China made binding commitments to purchase large quantities of United States manufactured goods, agricultural products, and services.  Seafood, including lobsters, is one of the agricultural products China agreed to purchase.  To help fulfill this purchase commitment, China has made available exclusions from its retaliatory tariffs for imports of United States lobster.
 
-同樣帶著這個問題，我的思緒隨著攝像機的視角一起，跟隨著這個孩子的一言一行：從丹增發現他，觀察他，考察他，孩子接受繁瑣的測試，在被認定為轉世靈童後接受世人的追隨和祈禱。我不停地試圖將這個孩子的言行，與啟示、智慧相連，不停地揣度他一動一笑一皺眉的深意，想他是否是真是轉世靈童，是否能用前世的智慧給眾人帶來現世的啟迪。
+2020年1月15日，我簽署了具有里程碑意義的《美國政府與中華人民共和國政府之間的經貿協定》（以下簡稱《第一階段協定》）。 《第一階段協定》要求中國進行重大的結構性改革，涉及智慧財產權盜竊，強迫技術轉讓和匯率操縱等問題。作為《第一階段協定》的一部分，中國做出了具有約束力的承諾，即購買大量美國製造產品，農產品和服務。海鮮，包括龍蝦，是中國同意購買的農產品之一。為幫助履行這一購買承諾，中國已將對美國龍蝦的進口排除在報復性關稅外。
 
-尊者達賴喇嘛指示說：“Though he stays with his family for the moment, keep clean, keep clean” （儘管他還住在家裡，他，要保持純潔、純淨）。我不知道在藏文裡，這個表示純潔和純淨的詞有什麼更大的釋義，我理解其為一個人生而所在的佛性與完整。它們需要在它遭到凡俗的玷污和侵染前將其保護，讓它接受祈禱、敬拜、和人們最光亮的信念和意願的集中。然後他將成長為無法被玷污之身心，再讓生的錘煉去昇華這種在人生早年沈淀和被保護下來的完整人性和佛性。然後他便是活佛了。
+At this time, it remains unclear to what extent China’s exclusions from its retaliatory tariffs will result in increased exports of United States lobster.  Such exports are particularly important because exports to the European Union, another large market for United States lobster, appear to have been significantly and negatively affected by the recent implementation of the Comprehensive Economic and Trade Agreement (CETA) between Canada and the European Union.
 
-而現在，他只是一個孩子，一個生命沒有被污染的孩子。但他也一定就是那個被尋找的活佛。
+目前，尚不清楚究竟何種程度上的中國報復性關稅白名單才會導致美國龍蝦出口增加。此類出口特別重要，因為美國龍蝦的另一個出口大市場歐盟，似乎受到加拿大和歐盟之間最近執行的《全面經濟和貿易協定》（CETA）的嚴重不利影響。
 
-再來思考尋找轉世活佛的深意：每個人都是佛，或者都有這樣的一種天性。他們要找的，既是最唯一的活佛，也是一個純潔、乾淨的孩子。然後用所有力量的加持，來保存、保護他生命的純淨。然後他的生命和靈魂本身，就能給眾生以最高智慧的啟迪。那個“Unmistaken”如何理解？“不會出錯的”？我想不是。他們確實冒著很高的風險，也很可能找到一個“錯誤”的靈童。Unmistaken更像是“注定”。像是薛定諤的貓，當被選擇、被認定的那一刻，它錯誤的可能性就坍塌了。是什麼詮釋和譜寫了它的正確？是眾生的信念，是追隨者的祈禱和虔誠，是佛的保佑。
+The lobster industry is a crown jewel of America’s seafood industry.  From 2015 to 2018, American lobster was the most valuable single seafood species harvested in the United States, with Maine accounting for approximately 80 percent of that value each year.  It is, therefore, the policy of my Administration to mitigate the effects of unfair retaliatory trade practices on this important industry.
 
-剃度過後，丹增帶著有了新名字的小活佛回到了他的家人那裡，來徵求家人是否願意放棄自己的孩子。害羞、善良、不捨、無私，在孩子父母的眼睛裡我看到了這些。孩子的母親純潔的眼睛堅定又猶疑地閃爍，最後說，是的我可以。年輕的父親，低下頭輕輕地說：”If he works for benefit of sentient beings, then I can give my child up. Otherwise, who could give his child for nothing?” 。
+龍蝦行業是美國海鮮行業的皇冠上的明珠。從2015年到2018年，龍蝦是美國收穫的最有價值的單一海產品種，緬因州每年約占該值的80％。因此，本屆政府的政策是減輕不公平報復性貿易慣例對該重要行業的影響。
 
-小活佛的父母是誰，他的基因裡流傳著什麼樣的祖先特徵，在這個故事裡沒被刻意強調或掩藏。他來自於一個母親，一個父親，來自於一個時空的結合點，是人性與佛性的結合，是承載著佛性的人性的延綿，長成一團光亮，擱置在眾生祈禱的虔誠之光上。
+Sec. 2.  Protecting the United States Lobster Industry.  (a)  The Secretary of Agriculture shall, within 60 days of the date of this memorandum, consider taking appropriate action, to the extent permitted by applicable law, to provide assistance to fishermen and producers in the United States lobster industry that continue to be harmed by China’s retaliatory tariffs.
 
-丹增帶著小靈童從家鄉離開。曾經的親人，爺爺奶奶，都彎下身低下頭，小活佛為他們帶上白色的哈達，然後開始了啟迪生靈的旅途。這部紀錄片中，有祖母、母親、父親抱著這個孩子的鏡頭。神聖來自泥土。天連著地。他們都是平凡的人，他們來自眾生相的世界。他們依戀著彼此，更依戀著佛。佛想帶走他們的孩子，他們便將他奉獻。在沒有信仰的世界，犧牲和奉獻變成了讓人避之不及的東西。
+(b)  The Secretary of Agriculture shall also consider including, to the extent permitted by applicable law, the United States lobster industry and other segments of the United States seafood industry in any future assistance provided to mitigate the effects of China’s retaliatory trade practices.
 
-有一段鏡頭，向我們展示了一個活佛的視角：丹增帶著小活佛坐在汽車裡，開過排滿了和尚和追隨者們的道路。他來到廟裡，接受人們的跪拜。他觸碰每一個人的額頭，困惑又好奇地為每個人帶上白色的哈達，有點不安地握著丹增的手指。每一個人都看著他、觀察他、想從他的行動中解讀出啟示。真理已在所有可見之處。
+第2節.保護美國龍蝦產業。 （a）農業部長應在本備忘錄之日起60天內，考慮在適用法律允許的範圍內採取適當行動，為持續受到中國報復性關稅損害的美國龍蝦產業的漁民和生產者提供幫助。
 
-這是一個注定的孩子。注定的，是信仰；孩子，是眾生，也是佛。
+（b）農業部長還應考慮在適用法律允許的範圍內，針對包括美國龍蝦行業和美國海鮮行業的其他部分提供的任何未來所需援助，來減輕中國報復性貿易慣例的影響。
 
-西藏是一片信仰的土地，藏人是人類文明大家庭中極其純淨的孩子。希望筆者的分享，能夠讓您更好地理解他們的抗爭和苦難。而他的未來，需要每一個在信仰庇佑下的生靈共同的加持。
+Sec. 3.  Reciprocal Tariffs.  (a)  The Trade Representative shall, beginning August 15, 2020, submit a monthly report to the President detailing:
 
-**原文：**
+(i)   China’s progress in meeting its purchase commitments under the Phase One Agreement with respect to United States seafood; and
 
-## **真相：最後的武裝起義和今天的西藏現實**
+(ii)  the value of monthly Maine and other United States lobster exports to China, beginning with China’s imports for June 2020.
+
+(b)  In the event that the Trade Representative determines that China is not meeting its purchase commitments under the Phase One Agreement with respect to seafood, the Trade Representative shall consider, to the extent permitted by law, taking all appropriate action to impose reciprocal retaliatory tariffs on seafood exports from China.
+
+第3節.互惠關稅。 （a）貿易代表應于2020年8月15日開始向總統提交每月報告，詳細說明：
+
+（i）中國在履行《第一階段協定》中關於美國海產品的購買承諾方面的進展；和
+
+（ii）中國從2020年6月開始進口的，緬因州和美國其他龍蝦的月度額度。
+
+（b）如果貿易代表確定中國未能履行其在《第一階段協定》中關於海產品的購買承諾，則貿易代表應在法律允許的範圍內考慮採取一切適當行動，針對中國出口的海產品，採取對等報復性措施徵收關稅。
+
+Sec. 4.  Addressing Negative Effects of the CETA between Canada and the European Union on the United States Lobster Industry.  Pursuant to section 1332(g) of title 19, United States Code, and section 5-301 of Executive Order 12661 of December 27, 1988 (Implementing the Omnibus Trade and Competitiveness Act of 1988 and Related International Trade Matters), the Trade Representative shall request that the United States International Trade Commission (USITC) provide a report that details any negative effects of the CETA on the United States lobster industry.  The Trade Representative shall submit such report to the President.  The Trade Representative, in consultation with the Secretary of Agriculture and Secretary of Commerce, shall recommend appropriate actions that may be taken to minimize or eliminate any negative effects identified in the USITC report.
+
+第4節.解決加拿大和歐盟之間的CETA對美國龍蝦產業的負面影響。依據美國法典第19编第1332（g）節和1988年12月27日第12661号行政命令第5-301節（實施1988年《綜合貿易和競爭法》及相關國際貿易事項），貿易代表應要求美國國際貿易委員會（USITC）提供一份報告，詳細說明CETA對美國龍蝦產業的所有負面影響。貿易代表應將該報告提交總統。貿易代表應與農業部長和商務部長協商後，推薦出可採取適當措施，以最大程度地減少或消除USITC報告中指出的負面影響。
+
+Sec. 5.  General Provisions.  (a)  Nothing in this memorandum shall be construed to impair or otherwise affect:
+
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
+
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(b)  This memorandum shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(c)  This memorandum is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+第5節.一般規定。（a）本備忘錄中的任何內容均不得用於為損害或以其他方式影響做解釋：
+
+（i）法律授予執行部門或機構或其負責人的權力；或者
+
+（ii）管理和預算辦公室主任與預算、行政或立法提案有關的職能。
+
+（b）本備忘錄應根據適用法律執行，並視撥款情況而定。
+
+（c）本備忘錄無意也不會創造任何權利或利益，無論是實體還是程式上的任何權利或利益，任何一方均可針對美國，其部門、機關或實體，其高級職員、雇員、代理商或任何其他人在法律上或衡平法下執行。
+
+DONALD J. TRUMP
+
+The White House
+
+唐納德·川普
+
+白宮
 
 
 
-Charles S. (Sam) Faddis, Artemis（查爾斯·s·(薩姆)·法迪斯）, 有限公司高級合夥人，是前美國中情局有三十年的中東、南亞、歐洲情報工作經驗的執行官。他在2008年5月退休，退休前任職中情局恐怖分子大規模殺傷性武器部門主管。他在2002年夏進攻該國之前將第一支中情局團隊帶到伊拉克，並在執法、本地安全部隊、特別行動隊伍負責全面工作。退休後，他寫了大量文章，為各種政府及私人機構提供培訓，定期出現在廣播和電視上。
+白宮連結：[Memorandum on Protecting the United States Lobster Industry](https://www.whitehouse.gov/presidential-actions/memorandum-protecting-united-states-lobster-industry/)
 
-簡直難以置信，西藏人民，被中情局、美國、乃至全世界遺忘的情況下多年來持續與中共的佔領抗爭。追隨一位聖女貞德式的年輕女子，戰鬥到最後一個人，但最終被現代武器擊敗了。
+*翻譯：【Prof. Bacteriophage】校對：【V%】*
 
-西藏現在仍是被佔領的國家，中共繼續努力滅絕西藏文化並把西藏併入現代中共集權。
-[!\[\](https://spark.adobe.com/page/hjaX393c4DUIy/images/6a940008-f722-46d8-83c0-2d687effa2d7.jpg?asset_id=c2c64982-60fc-4860-98f8-a9e8789b2942&amp;img_etag=%22d9c74cca5ed97d6f5f53a9e418710b22%22&amp;size=1024)](https://spark.adobe.com/page/hjaX393c4DUIy/images/6a940008-f722-46d8-83c0-2d687effa2d7.jpg?asset_id=c2c64982-60fc-4860-98f8-a9e8789b2942&amp;img_etag=%22d9c74cca5ed97d6f5f53a9e418710b22%22&amp;size=1024)
-面部識別和其他高科技被用於監控幾乎一切自由，使反抗幾無可能。準備翻越高山逃往印度的西藏人被追捕，在山路上被狙擊手射殺。那些參與反抗運動的人被識別出來、被虐待、被謀殺。
+*戰友之家玫瑰園小隊出品*
 
-記者禁止進入西藏。新聞幾乎被完全管制。甚至旅行團也很少被允許進入這個歷史悠久的國度。
-
-儘管現實如此，對中共佔領的反抗持續到現在。在西藏以外的藏人團體為自由而努力，試圖讓西藏的故事保持鮮活。在西藏，絕望的年輕人越來越多地以自我犧牲方式作出終極的、無法阻擋的抗議。
-
-Join Sam Faddis 和Jamyang Norbu （嘉央諾布）完成了他們的五部西藏系列，這是野蠻的入侵和占領。
-
-JAMYANG NORBU（嘉央諾布）是著名的仍在工作的主要西藏流亡作家之一，主要是因為他寫了很多關於西藏政治、歷史和文化的文章，定期刊登在他的博客和其他網站，以及在如《虛幻和現實》《買龍牙》《影子西藏》和《不要停止革命》這樣的書中。
-
-雖然他被人民日報（北京）指責為“激進的藏獨分子”並因其大量譴責達賴喇嘛的政治觀點和其團隊的文章而被西藏流亡領導譴責。Norbu （嘉央諾布）是少有的可以在西藏乃至中共閱讀到其作品的流亡作家，他的文章譯文大量地出現在不同網站。住在北京的西藏詩人和博客作家Tsering Woeser（茨仁唯色），把他稱為“西藏的魯迅”
-
-***注：以上提及書名未找到相關中文譯本名稱，姑且簡單直譯，書名不一定準確。***
-
-[原文鏈接](http://andmagazine.com/talk/2020/06/17/ground-truth-the-final-armed-uprising-the-reality-of-tibet-today/)
-
-#### 編輯【[喜馬拉雅戰鷹團](https://spark.adobe.com/page/hjaX393c4DUIy/)】
-
-0
+1
