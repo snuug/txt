@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北朝鮮，金正恩決定保留對南韓的軍事行動計劃
-`2020-06-24 13:59 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/244453/)
+## 【多語言圖文版】6月16日中共病毒疫情要聞快報
+`2020-06-24 23:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/244744/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24134222/%E5%8C%97%E6%9C%9D%E9%B2%9C%EF%BC%8C%E9%87%91%E6%AD%A3%E6%81%A9%E5%86%B3%E5%AE%9A%E4%BF%9D%E7%95%99%E5%AF%B9%E5%8D%97%E9%9F%A9%E7%9A%84%E5%86%9B%E4%BA%8B%E8%A1%8C%E5%8A%A8%E8%AE%A1%E5%88%92.jpg)
-據韓國日報引用朝鮮媒體的報道，朝鮮國務委員長金正恩日前下令暫停對韓軍事行動計劃。
+[6.16-每日要闻-德文版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230733/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230733/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)
 
-24日，朝鮮勞動黨機關報勞動新聞報道稱:”金委員長在前一天以視頻會議的形式主持了黨中央軍事委員會第7屆5次會議預備會議，並做出了上述決定。” 報道說，中央軍委副委員長李炳哲和軍委部分委員參加了預備會議。
+[6.16-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230745/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230745/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-據報道，黨中央軍事委員會對最近的形勢進行了評估，決定保留人民軍總參謀部在軍委七屆五次會議上提出的對韓軍事行動計劃。
+[6.16-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230742/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230742/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-金正恩下達”保留”指示後，朝媒對韓譴責報道”消失”
+[6.16-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230748/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230748/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-據報道，自從朝鮮國務委員長金正恩指示保留對韓軍事行動計劃後，朝媒態度的突然轉變，關於對韓國的譴責報道”消失”。
+[6.16-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230754/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230754/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-24日，朝鮮勞動黨機關報勞動新聞沒有刊登批判韓國的報道。 在頭版報道中，只簡短地報道了金委員長召開黨中央軍事委員會第7屆5次會議預備會議，保留人民軍總參謀部對韓軍事行動計劃的報道。 這與4日勞動黨第一副部長金汝貞警告韓國後，勞動新聞連日刊登對韓批判報道形成鮮明對比。
+[6.16-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230823/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230823/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-朝鮮大外宣乾脆刪除了對韓的批判報道。 根據搜索《今日朝鮮》，《統一的回聲》,《回聲》等大外宣傳媒體網頁的結果，當天凌晨報道的13篇對韓國進行批判的報道在上午10點全部被刪除。 《今日朝鮮》，包括警告韓國政府的”讓其感到切骨之痛”的報道在內，共有6篇報道銷聲匿跡。 《統一的回聲》也刪除了將韓朝關係破裂的責任歸咎於韓國的報道文章。
+[6.16-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230834/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/24230834/6.16-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-譯評: 結合此前路德社的分析，北朝鮮主動”降溫”是意料之中的。他們炸毀南北聯絡部，挑釁韓國，威脅對韓軍事打擊的種種行動，主要是為了配合中共牽制美國的計劃。此前，楊潔篪與美國國務卿蓬佩奧在夏威夷會晤期間，中共在印度邊境和朝鮮半島製造動亂，想以此向美國示威。隨着會晤的結束，印度和北韓便隨之降溫。此外，北朝鮮的宣傳機構也如中共國一樣，根據黨國的需要”收放自如”。中共的瓦解已經是註定的了，中共一倒，金正恩接下來會何去何從呢？
 
-[原文鏈接1](http://naver.me/GAnZIefK)
-[原文鏈接2](http://naver.me/53YM0aBp)
-
-翻譯報道:Mc.DA
 
 0
