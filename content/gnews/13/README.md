@@ -1,29 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英國會承擔起對香港的保護職責
-`2020-06-25 09:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245210/)
+## 美國和波蘭發表兩國總統聯合聲明
+`2020-06-25 12:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/245263/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25093311/Picture-1-135.png)圖片來源：[udimagen.org](http://www.udimagen.org/british-hong-kong-flag-for-sale/)
-英國前外交大臣大衛·歐文（David Owen）近日在《外交政策》雜誌發表評論文章，文章指出在當前情勢下，中共無視國際法的行為，是世界各國所面臨的共同挑戰。
+美國總統和波蘭總統於2020年6月24日聯合聲明，重申兩國都珍視的價值觀，尤其是民主，法治，個人自由和自由以及自由，公平和互惠的貿易。美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪。並將合作推動可信賴的5G供應商的多元化供應鏈的創新。
 
-作者指出，1984年的《中英聯合聲明》是兩位令人尊敬的政治領導人：中共國的鄧小平和英國首相撒切爾夫人的心血結晶。自1997年香港回歸中國大陸以來，該國際條約總體上在中共國，香港和世界其他地區都運作良好。然而在香港的《基本法》中，要求將《公民權利和政治權利國際公約》確立為地方法律的第39條，與要求將“顛覆國家政權” ， “分裂國家” 和“與外國政治組織勾結”引入地方立法的第23條之間產生了嚴重的衝突。這引發了2003年香港民眾大規模抗議活動，使國家安全立法成為熱點問題。
+Joint Statement by President Donald J. Trump and President Andrzej Duda
 
-作者認為，香港的僵局是地緣政治的分水嶺。除了對引渡法案的不安之外，中共還單方面頒布了國家安全立法。英國政府及許多國際同行認為，這與香港《基本法》和原始條約之間存在著直接衝突。香港曾經是東西方之間的橋樑，但現在的香港可能會成為東西方之間一條新的斷層線。鑑於中共試圖通過這項法案的迫切程度，毫無疑問，中共是為了阻止民主派候選人在9月份的香港立法會選舉中再次獲勝。因此各國需通過外交途徑來應對這一問題，因為衝突升級無益於任何一方的利益。
+## **唐納德·川普總統和安傑伊·杜達總統的聯合聲明**
 
-作者認為聯合國也將在這一事務上發揮其作用。在本屆聯合國人權理事會會議上，應為聯合國香港人權特別報告員設立新的任務授權。由聯合國秘書長任命一位聯合國駐香港特使是向前邁出的重要一步，儘管這仍需要各方就誰成為該特使達成共識。在對中共採取升級行動或考慮對香港實施制裁之前，必須將該問題提交聯合國安理會。在15個成員國中，除了5個常任理事國之外，還有10個國家對與香港有關的安全問題都很關注，其中包括越南，印度尼西亞，愛沙尼亞，南非，德國和比利時。當然，由於中共擁有否決權，作者認為建立一個較為非正式的外交論壇是一個更可取的方式。但是同時聯合國憲章也明確規定了安理會在尋求和平決議方面應盡的義務。
+Issued on: June 24, 2020
 
-作者指出各國間私下的談判已經在進行，但正式的國際聯絡小組還尚未成立。該聯絡小組的方案曾被用來使納米比亞獲得獨立，並達成《波斯尼亞和黑塞哥維那的代頓協定》。最近，有七位英國前外交官員認為在當今的情況下這樣做是恰當的。美國川普總統已經邀請印度，韓國和澳大利亞參加戴維營（Camp David），與此同時，恰逢華盛頓舉行的七國集團首腦會議，在此期間日本同意率先在香港問題上發揮帶頭作用，為建立這樣的一個聯絡小組提供基礎。
+發佈日期：2020年6月24日
 
-作者認為如果中共繼續拒絕為維護聯合聲明的完整性而進行任何對話或談判，它會將香港置於一個更糟糕的境地。美國已達成兩黨共識，對香港官員和經濟方面進行製裁行動。無論未來美國誰為執政黨，雙方的參議員和國會議員，五角大樓或北約組織，還有美國國務院都會對此採取必要手段。中共無論是在海事法，捕魚權，專利，隱私或商業慣例方面，公然無視國際協定，使世界感到震驚。這些日益增加的擔憂雖然在很大程度上被隱瞞，但七國集團外交部長上週的聯合聲明顯示，香港問題已讓所有這些問題浮出水面。
+The United States and Poland have a centuries-old friendship and partnership based on shared values and interests, strong people-to-people ties, and mutual respect.  Today we reaffirm the values that both our nations hold dear, especially democracy, the rule of law, individual liberties and freedoms, and free, fair, and reciprocal trade.
 
-作者指出當下圍堵中共成為主流，各國採取的方法不盡相同。這與1946年民主國家所面對的情況不同。與當時的前蘇聯相比，中共國無論從發展程度還是技術裝備都比前者更先進了，同時軍事實力也在持續增強。基於當下的局勢，各國需謹防南海及其周邊地區發生戰爭的可能性。在這種地緣政治背景下，英國政府必須在確保繼續維護“一國兩制” 方面發揮主要推動作用，這與香港是否是英國的舊殖民地無關，而是與聯合國提出的國際條約作出的承諾緊密相關。英國雖然與中共國以及與南海和太平洋地區的許多國家都有商業利益往來，但根據國際法英國也有義務對香港人民進行人道保護。
+美國和波蘭在共同的價值觀和利益，牢固的人與人之間的聯繫以及相互尊重的基礎上有著數百年的友誼和夥伴關係。今天，我們重申兩國都珍視的價值觀，尤其是民主、法治、個人自由和自由以及自由、公平和互惠的貿易。
 
-作者最後引用了溫斯頓·丘吉爾（Winston Churchill）在1954年6月的白宮午餐會上所說的話，儘管引述的版本有很多，但作者更喜歡其中一條強硬的引述來引起中共的注意，這也正是各國現今對中共所採取的對策，即“先禮後兵”。
+The COVID-19 pandemic further underscores the importance of these values and the urgency to defend and promote them.  The United States and Poland, in concert with other Allies and like-minded partners, will work together to rebuild our economies to be stronger, more resilient, and more closely integrated; protect our critical infrastructure and technology; and diversify our supply chains.  We will also join efforts to combat disinformation, especially historical truths relating to WWII.
 
-[原文鏈接](https://foreignpolicy.com/2020/06/23/hong-kong-britain-uk-china-protect/)
+COVID-19大流行病進一步強調了這些價值觀的重要性以及捍衛和促進它們的緊迫性。美國和波蘭將與其他盟國和志同道合的夥伴一道，共同協作，重建我們的經濟，使其更強大，更具抗逆能力，更緊密地融合在一起；保護我們的關鍵基礎設施和技術；並使我們的供應鏈多樣化。我們還將共同努力打擊虛假資訊，特別是與第二次世界大戰有關的歷史真相。
 
-翻譯報導：Hakunamatata
-校對整理：Yamap
+The United States and Poland were proud to help one another through the COVID-19 pandemic, and we pledge to continue our close cooperation as we work to find therapeutics and vaccines.  We also underscore the importance of transparency, information-sharing, and free and functioning international organizations in the prevention of future pandemics.
+
+美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪，我們保證在我們尋找療法和疫苗的過程中將繼續密切地合作。我們還強調了透明度，資訊共用以及自由和運作良好的國際組織在預防未來大流行病中的重要性。
+
+Recognizing our strategic partnership, the United States and Poland continue to deepen our defense cooperation, including by further implementing the Joint Declarations of June 12, 2019, and September 23, 2019, and developing plans to bolster United States-Poland military ties and United States defense and deterrence capabilities in Poland.  We reaffirm our commitment to invest in our defense capabilities and fair burden-sharing to strengthen transatlantic security and cooperation through the North Atlantic Treaty Organization (NATO), and to ensure the effective deterrence and defense of NATO’s Eastern flank.  The United States and Poland continue to work together as Poland modernizes its Armed Forces, including through state-of-the-art United States equipment.
+
+認識到我們的戰略夥伴關係，美國和波蘭繼續加深我們的國防合作，包括進一步執行2019年6月12日和2019年9月23日的聯合聲明，並制定計劃以加強美國波蘭軍事關係和美國波蘭的防禦和威懾能力。我們重申致力於投資於我們的防禦能力和公平分擔負擔的承諾，以通過北大西洋公約組織（NATO）加強跨大西洋的安全與合作，並確保北約東翼的有效威懾和防禦。隨著波蘭使用現代化武裝其部隊，包括通過先進的美國裝備，美國和波蘭會保持繼續合作。
+
+Underscoring that energy security is national security, the United States and Poland are promoting energy diversification, free energy markets, and enhanced cooperation.  We are especially pleased to partner on supplying Poland with United States Liquefied Natural Gas and to begin a new chapter of our energy cooperation by partnering to develop Poland’s civil nuclear power sector.
+
+強調指出能源安全是國家安全，美國和波蘭正在促進能源多樣化，自由能源市場和加強合作。我們特別高興兩國能合作，美國向波蘭供應美國液化天然氣，並通過與波蘭合作發展民用核電領域來開啟我們能源合作的新篇章。
+
+The United States and Poland reiterate our support for the Three Seas Initiative, which will enhance regional energy, transportation, and information connectivity between the Adriatic, Black, and Baltic Seas through transparent, market-based, and fair investments, thereby boosting economic growth and reinforcing democratic values.  We are proud to have pledged substantial funding to implement this important initiative and call on others to join us.
+
+美國和波蘭重申我們對“三海倡議”的支持，該倡議將通過透明的、基於市場的和公平的投資來增強亞得裡亞海，黑海和波羅的海之間的區域能源，交通運輸和資訊連接，從而促進經濟增長和加強民主價值觀。我們很自豪地承諾提供大量資金來實施這一重要倡議，並呼籲其他國家加入我們。
+
+Free, fair, and reciprocal trade has enabled our nations and the world to grow prosperous, has powered innovation and development, and has created millions of jobs.  We are proud that trade between the United States and Poland has grown by more than 50 percent since 2016 and commit to jointly fight against abusive trade practices.  We will also continue to promote increased trade and investment, especially in modern technologies.
+
+自由、公平和互惠的貿易使我們的國家和世界得以繁榮發展，推動了創新和發展，並創造了數百萬個就業機會。我們感到很自豪的是美國和波蘭之間的貿易，自2016年以來增長了50％以上，並致力於共同打擊濫用貿易行為。我們還將繼續促進貿易和投資的增加，特別是在現代技術方面。
+
+Our two nations share a strong belief in privacy and individual freedoms and the importance of securing our telecommunications systems.  We therefore reaffirm our Joint Declaration of September 2, 2019, and commit to cooperate in the development of next-generation technology solutions and to use only secure and trusted providers, equipment, and supply chains in our 5G networks. To advance this aim, we will collaborate on promoting innovation for a diverse supply chain of trusted 5G vendors.
+
+我們兩國堅信隱私和個人自由以及保護我們的電信系統的重要性。因此，我們重申2019年9月2日的聯合聲明，並致力於合作開發下一代技術解決方案，並在我們的5G網路中僅使用安全可靠的供應商、設備和供應鏈。為了實現這一目標，我們將合作推動可信賴的5G供應商的多元化供應鏈的創新。
+
+閱讀原文：[Joint Statement by President Donald J. Trump and President Andrzej Duda](https://www.whitehouse.gov/briefings-statements/joint-statement-president-donald-j-trump-president-andrzej-duda/)
+
+*翻譯：【木木ANNA】 校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
