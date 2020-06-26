@@ -1,55 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國和波蘭發表兩國總統聯合聲明
-`2020-06-25 12:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/245263/)
+## 如中共掌握量子核心技術世界將陷入無盡黑暗
+`2020-06-25 12:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245321/)
 
-美國總統和波蘭總統於2020年6月24日聯合聲明，重申兩國都珍視的價值觀，尤其是民主，法治，個人自由和自由以及自由，公平和互惠的貿易。美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪。並將合作推動可信賴的5G供應商的多元化供應鏈的創新。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25123359/cropped_image1-1-4.png)
+英國新聞網站《Unheard》最近發表專欄文章《我們將不得不在第二次冷戰中選邊站》。文章認為世界正處於新的冷戰之中，這將有助於我們睜大眼睛制定適當的政策對應，而量子霸權會改變了一切。
 
-Joint Statement by President Donald J. Trump and President Andrzej Duda
+文章指出，中共國獨裁領導層向世界宣布了他想征服全世界的意圖。這次，美國面臨的是一個更強大的敵人，但收穫也會更大。過去的冷戰本質上是蘇聯與美國之間的洲際核軍備競賽，被稱為MAD，相互進行毀滅。在古巴導彈危機近乎災難性的結局之後，這場代價高昂的軍事競爭陷入了僵局，外交得以重新浮出水面，並最終促成了戈爾巴喬夫的改革。美國贏得了第一次冷戰，這在很大程度上是由於其對手因經濟上的無能導致的。
 
-## **唐納德·川普總統和安傑伊·杜達總統的聯合聲明**
+**為什麼量子科技是第二次冷戰的決定因素**
 
-Issued on: June 24, 2020
+但如果過去的冷戰是一場核軍備競賽，那麼第二次冷戰就是一場量子科技競賽。對大數據的控制掌握決定了世界上哪一個超級大國的會勝出，因為掌握量子的控制權就意味著對世界的掌控。去年10月，美國科技巨頭谷歌宣布他們建造了一台量子計算機，該量子計算機可以在200秒內完成計算，而傳統計算機要花10,000年才能完成計算，這對人類文明的意義是前所未有的。一台具有如此強大計算能力的穩定量子計算機將把複雜的金融風險管理轉變為簡單的兒童遊戲；醫療方面也無需花費數年的時間進行藥物研發，大量個人數據開放將引發人工智能和機器學習的一場革命，進而給現代軍隊在戰爭中帶來無與倫比的優勢。最關鍵的是，一台功能強大的量子計算機能夠將計算時間縮短10,000年，這將使以前堅不可摧的互聯網加密無效，而將其替換為不可破解的量子加密。量子計算將能夠破解現有的任何加密代碼。因此，無論哪個國家首先掌握量子技術，就可以立即入侵整個互聯網，從個人信息，到每個國家的銀行系統，甚至是世界領導人的所有信息都能被輕易破解。
 
-發佈日期：2020年6月24日
+這就是為什麼美國和中共國要確定誰將首先實現主導量子的原因，就像在過去的冷戰中一樣，經濟將是決定性因素。去年8月，美國陸軍部發布了一份關於“威脅軍事應用” 的量子技術的信息請求，並指出“隨之而來的全球競賽是為了利用量子技術來發揮軍事效應。”
 
-The United States and Poland have a centuries-old friendship and partnership based on shared values and interests, strong people-to-people ties, and mutual respect.  Today we reaffirm the values that both our nations hold dear, especially democracy, the rule of law, individual liberties and freedoms, and free, fair, and reciprocal trade.
+**中美在量子領域的競爭**
 
-美國和波蘭在共同的價值觀和利益，牢固的人與人之間的聯繫以及相互尊重的基礎上有著數百年的友誼和夥伴關係。今天，我們重申兩國都珍視的價值觀，尤其是民主、法治、個人自由和自由以及自由、公平和互惠的貿易。
+文章還提到，2018年12月，美國川普總統批准了《國家量子倡議法案》（NQI），規定在五年內投資1.2億美元（10億英鎊）用於量子技術的研發。他隨後簽署了一項行政命令，建立了來自工業，研究和聯邦機構的22名專家組成的國家量子計劃諮詢委員會。但中共國也有一個驚人的量子計劃來與競爭對手抗衡，中共領導人資助了一項數十億美元的量子計算項目，旨在到2030年實現重大突破。2018年11月，中共國最大的國防電子公司中國電子科技集團公司（CETC）推出了量子雷達原型機，據稱它可以探測到飛行中的隱形飛機。中共國研究人員還聲稱已經建造了一顆衛星，該衛星可以在遙遠的地方發送量子糾纏的加密信息。同時，位於馬里蘭州阿德菲（Adelphi）的美國陸軍研究實驗室的一組研究人員正在研究一種稱為量子隱形傳態的類似方法。儘管中共國顯然面臨著技術能力短缺的困擾，阻礙了中共的公司試圖取代美國競爭對手的努力，但在2019年1月提交給美國參議院的《全球威脅評估》報告得出結論稱，隨著中共國迅速趕上美國，美國在科學和技術領域的領先地位已被嚴重削弱。中共國有資金，並且正在等待時機。同時，中共的主要目標是在中共國崛起之際瓦解破壞其競爭對手，從而增加“修昔底德陷阱”（Thucydides Trap）的風險。
 
-The COVID-19 pandemic further underscores the importance of these values and the urgency to defend and promote them.  The United States and Poland, in concert with other Allies and like-minded partners, will work together to rebuild our economies to be stronger, more resilient, and more closely integrated; protect our critical infrastructure and technology; and diversify our supply chains.  We will also join efforts to combat disinformation, especially historical truths relating to WWII.
+**中共對世界日益增長的威脅**
 
-COVID-19大流行病進一步強調了這些價值觀的重要性以及捍衛和促進它們的緊迫性。美國和波蘭將與其他盟國和志同道合的夥伴一道，共同協作，重建我們的經濟，使其更強大，更具抗逆能力，更緊密地融合在一起；保護我們的關鍵基礎設施和技術；並使我們的供應鏈多樣化。我們還將共同努力打擊虛假資訊，特別是與第二次世界大戰有關的歷史真相。
+上週，澳大利亞總理斯科特·莫里森（Scott Morrison）透露，澳大利亞多個國家支持的網絡正在遭受嚴重網絡攻擊。攻擊者主要使用一種稱為“遠程執行代碼漏洞” 的策略，該策略涉及黑客企圖將自己的軟件代碼插入服務器等易受攻擊的系統中以竊取信息。網絡安全專家表示，這些網絡攻擊中使用的某些計算機代碼和策略也被用於2019年2月對國會大廈的黑客入侵。
 
-The United States and Poland were proud to help one another through the COVID-19 pandemic, and we pledge to continue our close cooperation as we work to find therapeutics and vaccines.  We also underscore the importance of transparency, information-sharing, and free and functioning international organizations in the prevention of future pandemics.
+英國也被潛在的中共國間諜技術所困擾。美國安全部門長期以來一直警告英國，華為的中共國5G設備構成了間諜威脅。中共國政府被懷疑在華為的5G設備中插入“隱藏後門”，以監視通過移動和數據網絡傳輸的數據。為了保護中共國與華為的交易不被撤消，中共對英國發動了一系列經濟威脅。中共支持的《環球時報》警告稱：如果鮑里斯·約翰遜政府在對華為以及香港的政治局勢上態度沒有改變，那麼英國經濟將面臨“重大損害”，並表示將“反擊英國越界的行為”。這篇社論援引英國在中共國的業務，尤其是在匯豐銀行的業務，以及中共國在薩默塞特郡一家核電站的投資，社論稱英國“沒有太多可打的牌，進一步削減合作可能會導致英國陷入困境”。作為回應，唐寧街正在一項名為《捍衛項目》的報告中顯示，英國正在研究如何減少關鍵產品製造上對中共國的依賴。
 
-美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪，我們保證在我們尋找療法和疫苗的過程中將繼續密切地合作。我們還強調了透明度，資訊共用以及自由和運作良好的國際組織在預防未來大流行病中的重要性。
+在回應中共國對英國的威脅時，美國國務院發表了令人驚喜的樂觀回應：“美國會與我們的盟友和合作夥伴站在一起，反對中國共產黨的脅迫性欺凌策略。” 聲明稱：總部位於深圳的華為是中國共產黨監視他國的延伸。中共的侵略行為表明了為什麼各國應避免經濟對中共國的過度依賴，並應保護其關鍵基礎設施不受中共的影響。澳大利亞，丹麥和其他自由國家最近受到中共利益的壓力，要求他們屈服於中共國的政治意願。美國隨時準備為英國及盟友提供他們所需要的任何需求。在社交媒體公司推特的表現中，中共國的網絡戰也非常明顯。該公司披露，發現了與國家虛假信息操作相關的數十萬個帳戶。中共國被認為是行動規模最大的國家，其次是俄羅斯和土耳其，他們利用操縱手段散佈親共的宣傳並推動有關香港政治動態的欺騙性信息。
 
-Recognizing our strategic partnership, the United States and Poland continue to deepen our defense cooperation, including by further implementing the Joint Declarations of June 12, 2019, and September 23, 2019, and developing plans to bolster United States-Poland military ties and United States defense and deterrence capabilities in Poland.  We reaffirm our commitment to invest in our defense capabilities and fair burden-sharing to strengthen transatlantic security and cooperation through the North Atlantic Treaty Organization (NATO), and to ensure the effective deterrence and defense of NATO’s Eastern flank.  The United States and Poland continue to work together as Poland modernizes its Armed Forces, including through state-of-the-art United States equipment.
+與伊朗類似，中共也一直在使用“人質外交”作為外交手段。華為董事孟晚舟在加拿大被捕後不久，中共國法院以涉嫌走私毒品將澳大利亞人Cam Gillespie判處死刑，並將加拿大被判有罪的毒品走私犯從無期徒刑處以死刑。孟被捕後，兩名加拿大人，前外交官和商人，也因涉嫌間諜罪而在中共國被捕。印度，另一個美國盟友，在其長達2500英里有爭議的喜馬拉雅與中共國的邊界沿線上沖突日益緊張增長。這兩個相互競爭的核大國之間的衝突主要是在氣候變化對冰川的影響上。印度使用的大約47％的水來自恒河，恒河由中共控制的西藏興起的科西河提供。結果，兩國都在修建水壩，以便更好地控制最重要的資源。使局勢變得更複雜和動蕩的是，這一邊界爭端還牽涉到第三核大國：巴基斯坦。
 
-認識到我們的戰略夥伴關係，美國和波蘭繼續加深我們的國防合作，包括進一步執行2019年6月12日和2019年9月23日的聯合聲明，並制定計劃以加強美國波蘭軍事關係和美國波蘭的防禦和威懾能力。我們重申致力於投資於我們的防禦能力和公平分擔負擔的承諾，以通過北大西洋公約組織（NATO）加強跨大西洋的安全與合作，並確保北約東翼的有效威懾和防禦。隨著波蘭使用現代化武裝其部隊，包括通過先進的美國裝備，美國和波蘭會保持繼續合作。
+美國國務卿彭培奧最近列出了中共在全球的一系列行動，包括香港，西藏，新疆，中共在印度的所作所為，在菲律賓和馬來西亞以及印尼和越南等經濟區，以及在澳大利亞的所作所為都採用了強制和協迫性的手段。
 
-Underscoring that energy security is national security, the United States and Poland are promoting energy diversification, free energy markets, and enhanced cooperation.  We are especially pleased to partner on supplying Poland with United States Liquefied Natural Gas and to begin a new chapter of our energy cooperation by partnering to develop Poland’s civil nuclear power sector.
+**歐洲對中共採取騎牆態度**
 
-強調指出能源安全是國家安全，美國和波蘭正在促進能源多樣化，自由能源市場和加強合作。我們特別高興兩國能合作，美國向波蘭供應美國液化天然氣，並通過與波蘭合作發展民用核電領域來開啟我們能源合作的新篇章。
+直到最近，大多數歐洲國家還沒有意識到來自中共的日益增長的威脅。這導致了特別陰險和軟弱的政策回應。歐盟外交政策負責人約瑟普·博雷爾·豐特萊斯（Josep Borrell Fontelles）表示：“長期以來分析人士一直在討論以美國主導體系的終結和亞洲世紀的到來。這就發生在當下，選擇立場的壓力越來越到。作為歐盟，我們應遵循我們自己的利益和價值觀，避免被其中一個或另一個工具所利用和左右。法國外交部長伊夫·勒·德里安（Yves Le Drian）在法國參議院宣布：“關於中共國，我們不應陷入兩極世界對峙的邏輯之中。為了不發動第二次冷戰，我們必須確認歐洲的自主權”。事實上，馬克龍首席外交顧問艾曼紐·邦納（Emmanuelle Bonne）向中國外交部長王毅證實了“法國準備加強與中共國的戰略溝通”，向中共保證“法國尊重中共的主權，讚賞與香港有關的問題的敏感性，並且無意干涉香港事務。德國強大的商業遊說團也被中共所吸引，而意大利則認為自己是中共“最值得信賴的盟友”。中共從希臘到布達佩斯的高鐵，也由於中共的“一帶一路”倡議等，暴露出了這些國家的經濟和政治的脆弱性。但在歐洲，有些人稱辯在第二次中美冷戰展開之際，歐洲大陸的利益在於“保持中立”，歐洲人正在自欺欺人。中共通過網絡間諜活動，對供應鏈的強勢統治以及好戰的國內政治和外交政策，已經為這些假裝中立的人們做出選擇。
 
-The United States and Poland reiterate our support for the Three Seas Initiative, which will enhance regional energy, transportation, and information connectivity between the Adriatic, Black, and Baltic Seas through transparent, market-based, and fair investments, thereby boosting economic growth and reinforcing democratic values.  We are proud to have pledged substantial funding to implement this important initiative and call on others to join us.
+**中共勝利將使全球被專制主導**
 
-美國和波蘭重申我們對“三海倡議”的支持，該倡議將通過透明的、基於市場的和公平的投資來增強亞得裡亞海，黑海和波羅的海之間的區域能源，交通運輸和資訊連接，從而促進經濟增長和加強民主價值觀。我們很自豪地承諾提供大量資金來實施這一重要倡議，並呼籲其他國家加入我們。
+如果中共國在這場鬥爭中獲勝，那麼統治著中國大陸大部分地區的活體器官摘取，社會信用強制執行，維吾爾穆斯林的拘禁，黑暗的專制統治將占主導地位，同時統治世界的其他地區。量子的控制權將改變一切。與托爾金的“魔戒”相似，這是一種巨大的力量，僅憑一個人是無法駕馭中共的。如果中共掌握了量子核心技術，全球的民主可能會永久的退卻。比爾博·巴金斯（Bilbo Baggins）為了支持自由世界而離開自己的夏爾郡時所得到的慘痛教訓，即使霍比特人一開始沒有意識到這一點，但這場戰鬥最終還是發生了。莫多（Mordor）的崛起實在太強大太危險了，即使是夏爾郡的小人物也難以忍受。
 
-Free, fair, and reciprocal trade has enabled our nations and the world to grow prosperous, has powered innovation and development, and has created millions of jobs.  We are proud that trade between the United States and Poland has grown by more than 50 percent since 2016 and commit to jointly fight against abusive trade practices.  We will also continue to promote increased trade and investment, especially in modern technologies.
+[原文鏈接](https://unherd.com/2020/06/we-will-have-to-take-a-side-in-cold-war-ii/)
 
-自由、公平和互惠的貿易使我們的國家和世界得以繁榮發展，推動了創新和發展，並創造了數百萬個就業機會。我們感到很自豪的是美國和波蘭之間的貿易，自2016年以來增長了50％以上，並致力於共同打擊濫用貿易行為。我們還將繼續促進貿易和投資的增加，特別是在現代技術方面。
-
-Our two nations share a strong belief in privacy and individual freedoms and the importance of securing our telecommunications systems.  We therefore reaffirm our Joint Declaration of September 2, 2019, and commit to cooperate in the development of next-generation technology solutions and to use only secure and trusted providers, equipment, and supply chains in our 5G networks. To advance this aim, we will collaborate on promoting innovation for a diverse supply chain of trusted 5G vendors.
-
-我們兩國堅信隱私和個人自由以及保護我們的電信系統的重要性。因此，我們重申2019年9月2日的聯合聲明，並致力於合作開發下一代技術解決方案，並在我們的5G網路中僅使用安全可靠的供應商、設備和供應鏈。為了實現這一目標，我們將合作推動可信賴的5G供應商的多元化供應鏈的創新。
-
-閱讀原文：[Joint Statement by President Donald J. Trump and President Andrzej Duda](https://www.whitehouse.gov/briefings-statements/joint-statement-president-donald-j-trump-president-andrzej-duda/)
-
-*翻譯：【木木ANNA】 校對：【V%】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：Hakunamatata
+校對整理：人間四月
 
 0
