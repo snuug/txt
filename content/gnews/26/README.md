@@ -1,127 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美關係之死（4-5）
-`2020-06-25 14:18 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245394/)
+## 中共病毒，口罩外交
+`2020-06-25 22:58 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245621/)
 
-*新聞來源：The Wire China；*
+*來源：The Cyber​​ Policy Center*
 
-*作者：ORVILLE SCHELL*
+*作者：Alicia Chen,  [Vanessa Molter](https://cyber.fsi.stanford.edu/people/vanessa-molter)*
 
-*翻譯：草根（文人）；校對：InAHurry；*
+*翻譯、簡評：johnwallis*
 
-*Page: 拱卒*
+*PR：Julia Win*
 
-## **中美接觸終止**
+*Page：玄天生*
 
-### **第四部**
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a16de953-5846-4f66-ac60-6f86c0edeb9d.png?asset_id=c0704ae0-8364-4158-89b0-9f2ea4ae0dc3&amp;img_etag=%22877958aa3dd69d35d32747aa07911756%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a16de953-5846-4f66-ac60-6f86c0edeb9d.png?asset_id=c0704ae0-8364-4158-89b0-9f2ea4ae0dc3&amp;img_etag=%22877958aa3dd69d35d32747aa07911756%22&amp;size=1024)
-大屠殺：喬治·布什，鄧小平和美國國防
+**簡評：**
 
-就像我在1989年5月那樣，站在傳說中的天安門城樓上，目睹著一百萬老百姓聚集抗議中國共產黨，這是毛除了在噩夢中，不曾想像過的能看到的景象。
+本文為斯坦福網絡政策中心所寫，通過數據實例分析研究了中共國國家媒體發的推文及其涉及的內容，來分析中共國的“口罩外交”。總體而言，中共國國家媒體強調中共國對外的捐贈，而淡化獲得其他國家的捐贈，少提甚或不提其他國家在冠狀病毒期間對中共國的幫助。同時，本文研究員還觀察到，不同國家對中共的捐贈，中共對他們的敘述是不一樣的，根據國家的不同存在差異。這些表述限定於北京的外交政策的背景下。當然中共沒想到的是，全球關於中共國“口罩外交”的報導變得越來越負面。因此，中共國國家媒體對捐贈的報導從此明顯減少。
 
-從如此眾多的狂熱的，揮舞著旗幟的年輕人中橫穿天安門廣場不可能不感到一絲興奮，這種政治的春天會讓人遐想一個更加民主，更少對抗的中國也許最終要到來了。
+以宣傳起家的中共很“雞賊”，在媒體上一直自我宣傳對外的捐贈，對外的“​​善舉”，卻很少讓國內民眾知道其實中共也大量接收了西方國家捐贈的物資。不論是如今的疫情期間，還是之前的各種災害事件上，中共向來如此。
 
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/3c71c33f-9d30-4b57-aeee-d167f3aef502.jpg?asset_id=1ed0f7fd-7217-465c-9623-3806db8d9580&amp;img_etag=%2299d48f143dbba668fbd4f4d90d8f0adb%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/3c71c33f-9d30-4b57-aeee-d167f3aef502.jpg?asset_id=1ed0f7fd-7217-465c-9623-3806db8d9580&amp;img_etag=%2299d48f143dbba668fbd4f4d90d8f0adb%22&amp;size=1024)989年5月17日，自20世紀60年代的文化大革命以來的最大的中國人民運動，成千上萬的人聚集在北京中央的天安門廣場上。圖片來自路透社的Ed Nachtrieb
+就相互物資捐贈這種在遇到災害時的普世的事件上，中共都如此入戲，大費周章、費勁心思地搞雙標宣傳，可想在其他利益相關上，中共會不惜一切代價蒙蔽人們的雙眼，比如“中共防火牆”工程，讓真相傳播，是中共最害怕的，也是我們的利器。
 
-但是當美國自由派看見改革和希望的時候，中國共產黨強硬派看見的卻是陰謀，危機跟“和平演變”—一杯滿是旨在削弱黨的無產階級專政地位的外國陰謀的毒雞尾酒。強硬派擔心政治改革如果不能被限制住的話，就會威脅一黨統治，因此在當共黨軍隊的最初的清場嘗試被抗議者阻撓後，一支承載著“不惜一切代價恢復廣場”新命令的，堅決的鄧家重組全新部隊的出現就一點也不足為怪了。當軍隊再一次橫掃進入北京城，這次裝甲車輾壓過後的不僅僅是幾千死傷的人很快便散佈在各個街道上面，還有抗議運動和對有意義的政治改革的希望也都蕩然無存。
+## **口罩外交：冠狀病毒時代的中共國敘述**
 
-北京大屠殺同時將中美接觸的邏輯性置於危機的境地。因為如果沒有改革就不會有趨同，如果沒有任何趨同的承諾，那這個接觸就沒有任何的意義。同時也沒有任何論點可以向全世界觀眾解釋他們在電視上看到的野蠻。突然之間，從來不真正相信可以跟毛派政權建立友好關係的保守黨獲得了新的話語權。就像《奧斯汀美國政治家》報的一個專欄作家貶損的總結到那樣“鄧小平再也不配他的牛仔帽了”。
+中共國一直在向抗擊冠狀病毒大流行的國家運送醫療用品，這種努力被稱為“口罩外交”。中共國能否有效地量體裁衣，以贏得世界人民的心，還有待觀察。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/88e341ac-def3-473e-a830-4702eb8e20cc.png?asset_id=56ab86bb-0898-4cd2-946e-2844c71c8fac&amp;img_etag=%225acef9b87bbbbea7b2080015370679ef%22&amp;size=1024)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/88e341ac-def3-473e-a830-4702eb8e20cc.png?asset_id=56ab86bb-0898-4cd2-946e-2844c71c8fac&amp;img_etag=%225acef9b87bbbbea7b2080015370679ef%22&amp;size=1024)
+自3月初以來，COVID-19疫情的中心已從中共國轉移到世界其它地區，尤其是美國和歐洲。為了提升“負責任的全球領導者“的形象，北京向正在抗疫的國家運送醫療用品–這種努力被稱為“口罩外交”。然而，”口罩外交“對中共國國際聲譽的影響混雜：大量文章認為，這些努力可能弊大於利( [鏈接1](https://www.businessinsider.com/analysis-china-coronavirus-political-points-mostly-not-working-2020-4) ,  [鏈接2](https://www.scmp.com/comment/opinion/article/3081294/beijing-loses-face-face-mask-diplomacy) ,  [鏈接3](https://www.the-american-interest.com/2020/04/15/how-chinas-mask-diplomacy-backfired/) )。中共國外交官和國家媒體在推特上為北京[辯護](https://twitter.com/zlj517/status/1241031638504493056)，並[讚揚](https://twitter.com/CGTNOfficial/status/1239411067106795521)其向國外捐贈醫療用品的行為。我們一直在[關注這些推特上的帖子](https://cyber.fsi.stanford.edu/news/chinese-state-media-shapes-coronavirus-convo)，以了解北京試圖如何塑造圍繞其在冠狀病毒大流行中所扮演角色的敘述。
 
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/64125136-0bfd-4e8b-8385-2cbf71205eed.png?asset_id=aad922b7-cda7-4788-8d61-260adbe0917f&amp;img_etag=%22eae9ebaf6b2ec88094cab32de492b8ab%22&amp;size=2560)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/64125136-0bfd-4e8b-8385-2cbf71205eed.png?asset_id=aad922b7-cda7-4788-8d61-260adbe0917f&amp;img_etag=%22eae9ebaf6b2ec88094cab32de492b8ab%22&amp;size=1024)當被問及他為什麼對北京如此的畢恭畢敬的，布什說如果美國跟中國斷絕了所有關係，那將會是“所有人的悲劇”。然後，他又開啟了一個新主題：商業的刺激會讓中國的民主成為必然。消息來源：有線衛星公共事務電視網的Still
+在本研究中，我們考察了北京方面關於捐贈和運送口罩、個人防護裝備（PPE）和其他醫療資源的敘述。我們編制了一個由中共國官方國家媒體機構發布的，包含關鍵詞“捐贈”、”捐送”、”PPE”、”設備“和/或“口罩“的推文數據集。這個數據集包括11家英文、中文媒體在2020年1月18日（我們將其確定為這些賬戶首次出現COVID相關推文）至2020年5月30日期間的3144條推文。這些推特賬號總共有4280萬粉絲，從7.6萬到1390萬不等，粉絲中位數為110萬。這些在我們數據集中的推文平均參與次數為269次（轉發、回復和點贊）。
 
-當世界都在為大屠殺感到震驚的時候，布什總統表達了他害怕過分情緒化的反應有可能會導致“中美關係的全面崩潰”並“將中國再扔回前蘇聯的手裡”。在6月5日的新聞發布會上，他警告，“這是一個需要我們將長期利益和對中國複雜的內部情況的認識納入考慮後採取理性的，謹慎的行動的時候。” 他強調，美國需要“時間去審視此刻以後的這種至關重要的中美關係的重要的和持久的方面。”
+**關鍵要點：**
 
-當被問到他為什麼對北京如此的畢恭畢敬，布什回答到，“如果中國被推回它1972年以前的孤立跟壓迫狀態，那將會對所有人都是一個悲劇。”然後，他提出了一個新的主題：“我認為，無論是在中國還是其它極權系統中，當人民有了商業刺激的時候，走向民主就是會勢不可擋。”
+- 總的來說，中共國國家媒體強調中共國的對外輸送，而淡化中共國從其他國家獲得的輸送。我們觀察到，包括意大利、加拿大、巴基斯坦和日本在內的國家對這些輸送的描述存在差異。
+- 此外，我們還發現，中共國的輸送限定於北京在接受國的外交政策目標的背景下，例如對加拿大的輸送提到了華為和[（當時）在加拿大進行的華為審判](https://globalnews.ca/news/6788612/huawei-mask-donations-justin-trudeau-coronavirus/)。
+- 自2020年3月下旬以來，全球關於中共國口罩外交的報導變得越來越負面。因此，中共國國家媒體對捐贈的報導從此明顯減少。
 
-他說，他不會跟中國斷交，為的是鼓勵中國人“繼續他們的改變。”
 
-布什曾經試圖給鄧打電話，但是並沒被接通，於是寫了一封“發自內心”的信。
+**中共國3月中旬使用“口罩外交”激增，此後有所減少**
 
-他請求到“如果我們讓我們兩國的關係重歸正軌，那我們都對世界和平做出了更多貢獻。”然後，藐視全國的批評的情緒，他派了他的國家安全顧問，布倫特·斯考克羅夫特去了北京，這個行程秘密的連美國大使都沒有被通知。
+我們發現，中共國在推特上的口罩外交，與對全球有關COVID-19的發展以及國外有關中共國口罩外交的報導反應息息相關。3月中下旬，捐贈相關的報導激增，[當時冠狀病毒在中共國境內的傳播速度放緩](https://www.thinkglobalhealth.org/article/updated-timeline-coronavirus)，但在國際上變得更加嚴重。自4月初以來，推文數量明顯減少，這與西方主流媒體對中共國口罩捐贈的關注度提高，以及在歐洲和北美引起的相關反彈相吻合。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/982f960f-8a29-4e84-a2ba-52097283f672.jpg?asset_id=26c60b36-e18e-4213-853d-53404ddee8d6&amp;img_etag=%226a7967a3709c5aa32d6e1e5ae0d26cd8%22&amp;size=1024)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/982f960f-8a29-4e84-a2ba-52097283f672.jpg?asset_id=26c60b36-e18e-4213-853d-53404ddee8d6&amp;img_etag=%226a7967a3709c5aa32d6e1e5ae0d26cd8%22&amp;size=1024)*圖1.中共國英文國家媒體賬號2020年1月至5月每週推文數量。*
+從1月到2月，推文的焦點是中共國國內醫用口罩和設備的短缺，以及國內增加口罩的生產。大量報導中共國企業和工廠如何成功增加口罩日產量，以滿足國內需求。中共國國家媒體有時也會對某些國家向武漢和其他中國城市捐贈醫療資源表示感謝。然而，在大多數情況下，報導仍然以中共國為中心，很少提到其他國家的名字。
 
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/485e6a13-f212-43a9-a23e-732564727a7f.jpg?asset_id=9b397877-cb26-4c04-bfa1-dafaa338b58c&amp;img_etag=%222dd07e166d6138fa771b4bc36a5508d5%22&amp;size=2560)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/485e6a13-f212-43a9-a23e-732564727a7f.jpg?asset_id=9b397877-cb26-4c04-bfa1-dafaa338b58c&amp;img_etag=%222dd07e166d6138fa771b4bc36a5508d5%22&amp;size=1024)布什在6月4號大屠殺後派斯考克羅夫特（左）秘密訪問北京去緩和外交關係，但是鄧指責美國“干涉中國內政。” 圖片來源：喬治布什總統圖書館和博物館
+2月下旬，中共國國家媒體的推文中首次提到北京對外的捐贈，首先是關於日本。恰逢2月20日， “鑽石公主號“遊輪上的客人[開始清場被放行下船](https://www.princess.com/news/notices_and_advisories/notices/diamond-princess-update.html)，全球關於日本的報導激增。2月的最後一周，對韓國的捐助在中共國國家媒體上得到了廣泛的報導，同樣也與國內關於韓國疫情激增的報導相吻合。在韓國，2月18日一名新天寺宗教組織成員確認感染病毒後，[該國的病例在24小時內增加了一倍](https://www.npr.org/sections/goatsandsoda/2020/02/20/807745305/coronavirus-2-princess-diamond-cruise-ship-passengers-die-after-contracting-covi)。中共國突出強調了對韓國的捐助，尤其是大邱市（Daegu），該教派信徒在那裡舉行了多次與冠狀病毒傳播有關的聚會。
 
-即便當時，鄧都沒有懊悔之意。還在責怪美國“散佈謠言”跟對於他稱之為“中國的驚天動地的大事”涉足太深。他還指責華盛頓“衝擊了中國利益”和“傷害了中國尊嚴”。他警告說如果美國對於他定義的中共國“反動造反派”不釆取一個更“客觀和誠實的反應”的話，中美關係會陷入一個“危險的境地。”
+隨著全球範圍內疫情的增加，尤其是在歐洲和北美，推文開始調整方向，關注國外的病毒更新和中共國對這些國家的捐助。然而，直到3月16日那一周，中共國開始報告國內[沒有本地傳播的病例時](https://www.straitstimes.com/asia/east-asia/chinas-imported-coronavirus-cases-jump-as-students-expats-flock-home)，推文總量才激增。這一激增也是在中共國外交部發言人[謊稱](https://twitter.com/zlj517/status/1238111898828066823)美軍將病毒引入武漢的事件之後。在此期間，與捐贈相關的包括每天近40條推文，而在3月中旬之前，每天的推文數量接近20條。
 
-他冷冰冰的斥責到：“ 斯考克羅夫特先生，我想跟你說，我們永遠不會允許任何人來干涉中國內政。”
+然而，中共國外交官更多咄咄逼人的語氣，和中共國官方賬號在推特上的推文增加相結合，引起了西方主流媒體對中共國“口罩外交“的廣泛批評。一些報導援引歐洲議員的話說，[這正使中共國“失去“歐洲](https://www.bloomberg.com/news/articles/2020-04-21/china-s-coronavirus-diplomacy-has-finally-pushed-europe-too-far)，而另一些人則把北京描繪成在[戰略上利用疫情來增加地緣政治影響力](https://www.foreignaffairs.com/articles/china/2020-03-18/coronavirus-could-reshape-global-order)。此外，中共國的推特外交也在國內[引起了中共國學術界的批評](https://www.scmp.com/news/china/diplomacy/article/3080485/it-will-come-back-haunt-us-inside-warnings-against-chinas-wolf)，許多人警告說，”戰狼“外交的風格將把各國推得更遠，增加了對中共國意圖的不信任。也許是為了應對全球和國內的反彈，中共國國家媒體在推特上與捐贈相關的報導在4月初至4月中旬開始減少。
 
-在這場舌戰中，斯考克羅夫特一直保持著令人驚訝的懊悔的態度，“正確的或者是錯誤的”，美國人確實是暴怒了，他試圖這樣解釋道，就好像這種在家鄉被如此眾多人感受到的暴怒並沒有特別的道義上的支持一樣。然後，他懇求鄧要看到他大老遠來就是要傳達布什總統把“象徵重要性”放在美中關係上並闡明了“他所做的來維繫這種重要性的努力。” 暗示了布什剛剛否決了立法制裁中國的事實，即使這個立法已經以418票比0票通過了眾議院的投票，斯考克羅夫特告訴鄧他是多麼的“深深感激”, “您願意接收我們對於布什總統現在所在的進退兩難的困境的解釋。那是從中國政府和中國人民的真正的朋友那來的消息。”
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/702547cd-5f8b-42af-a541-99eaf86deffa.jpg?asset_id=2ecbc697-d7a1-4bf3-83ca-b5476bbdd436&amp;img_etag=%22f5d40e42c8a14c070c13607be8277c55%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/702547cd-5f8b-42af-a541-99eaf86deffa.jpg?asset_id=2ecbc697-d7a1-4bf3-83ca-b5476bbdd436&amp;img_etag=%22f5d40e42c8a14c070c13607be8277c55%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/58ee7240-bc36-4abb-bf43-4de9cf13f54f.jpg?asset_id=6a120a8a-d26c-44c3-8d17-7175594e8fdf&amp;img_etag=%22c6f054293cebf93fd430abe1f4df77af%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/58ee7240-bc36-4abb-bf43-4de9cf13f54f.jpg?asset_id=6a120a8a-d26c-44c3-8d17-7175594e8fdf&amp;img_etag=%22c6f054293cebf93fd430abe1f4df77af%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/0c99e3e3-f6a8-49e2-9c48-1bfd3a7c486d.jpg?asset_id=5dfb05d0-5bbb-4731-aaf8-d7b007d87fd7&amp;img_etag=%22291f2b177469172704ac44eac1dd6cb3%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/0c99e3e3-f6a8-49e2-9c48-1bfd3a7c486d.jpg?asset_id=5dfb05d0-5bbb-4731-aaf8-d7b007d87fd7&amp;img_etag=%22291f2b177469172704ac44eac1dd6cb3%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/d545b09d-849d-4988-a5d7-fc397e2ae139.jpg?asset_id=42003942-ec1d-4e6b-8162-ec869370cafe&amp;img_etag=%2263ab8b534d1e3c41c2361838a04c55ff%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/d545b09d-849d-4988-a5d7-fc397e2ae139.jpg?asset_id=42003942-ec1d-4e6b-8162-ec869370cafe&amp;img_etag=%2263ab8b534d1e3c41c2361838a04c55ff%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/1d41d45a-0fa5-4dda-a07c-9abcc6d9e53f.jpg?asset_id=9d22f7ee-32a4-4bb3-8d9a-32d5cb7789a8&amp;img_etag=%22ddb32f1967c9dcbe4caede345fc1c770%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/1d41d45a-0fa5-4dda-a07c-9abcc6d9e53f.jpg?asset_id=9d22f7ee-32a4-4bb3-8d9a-32d5cb7789a8&amp;img_etag=%22ddb32f1967c9dcbe4caede345fc1c770%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/b3b0cd40-3386-4135-b3c9-66de44a23814.jpg?asset_id=df1ae837-d98d-44a3-9fd5-adb65ab2381e&amp;img_etag=%2282fb17bc828bbab7825711f8a6f8f265%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/b3b0cd40-3386-4135-b3c9-66de44a23814.jpg?asset_id=df1ae837-d98d-44a3-9fd5-adb65ab2381e&amp;img_etag=%2282fb17bc828bbab7825711f8a6f8f265%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/48819e7a-3a86-45ac-b4a8-9b99ae6c82a4.jpg?asset_id=db3b647b-a5c1-45fb-a3d0-f472716256b0&amp;img_etag=%226e9c681d207f176bd03471100efa457d%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/48819e7a-3a86-45ac-b4a8-9b99ae6c82a4.jpg?asset_id=db3b647b-a5c1-45fb-a3d0-f472716256b0&amp;img_etag=%226e9c681d207f176bd03471100efa457d%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a71edbcf-1334-46da-9a90-365e50e293fe.jpg?asset_id=78624d31-0127-4ea4-947b-e065e0bc47b2&amp;img_etag=%22acc5c6acde18012e13cdc44cd0ae6708%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a71edbcf-1334-46da-9a90-365e50e293fe.jpg?asset_id=78624d31-0127-4ea4-947b-e065e0bc47b2&amp;img_etag=%22acc5c6acde18012e13cdc44cd0ae6708%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/2ceb2dc3-56ee-40a2-9498-8888608343cf.jpg?asset_id=32e326d0-786d-468c-8bb7-75f95cffc8fd&amp;img_etag=%224a18708e137703c8ec7274a5e5783fc3%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/2ceb2dc3-56ee-40a2-9498-8888608343cf.jpg?asset_id=32e326d0-786d-468c-8bb7-75f95cffc8fd&amp;img_etag=%224a18708e137703c8ec7274a5e5783fc3%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a3ef89cc-2618-4af1-be8d-a4b2ed2b9398.jpg?asset_id=df21a3ab-7510-4f41-bc56-4394bbae7f80&amp;img_etag=%22b44960aaaa0d3e7cd8ba8b9311152b3c%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/a3ef89cc-2618-4af1-be8d-a4b2ed2b9398.jpg?asset_id=df21a3ab-7510-4f41-bc56-4394bbae7f80&amp;img_etag=%22b44960aaaa0d3e7cd8ba8b9311152b3c%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/3682a832-e0b7-4e52-96e3-9e00a8c05000.jpg?asset_id=19b8920f-3352-48ee-b912-85d1b00a077d&amp;img_etag=%22fd10389a41785223b415521247e7d8ec%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/3682a832-e0b7-4e52-96e3-9e00a8c05000.jpg?asset_id=19b8920f-3352-48ee-b912-85d1b00a077d&amp;img_etag=%22fd10389a41785223b415521247e7d8ec%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/c1d8d612-fa36-430f-8c9a-d54770e1d3bf.jpg?asset_id=7cee3cff-cee1-4f44-a1d6-58736d35a28b&amp;img_etag=%22d766b030ade29bad17f915d4504bd19b%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/c1d8d612-fa36-430f-8c9a-d54770e1d3bf.jpg?asset_id=7cee3cff-cee1-4f44-a1d6-58736d35a28b&amp;img_etag=%22d766b030ade29bad17f915d4504bd19b%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/48f67b34-e150-424a-9c75-9fc06d79687e.jpg?asset_id=1d2322b7-7e1e-4be3-b078-b743235dbade&amp;img_etag=%226a13e97a4433dfbf4ca9f6a9370cc647%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/48f67b34-e150-424a-9c75-9fc06d79687e.jpg?asset_id=1d2322b7-7e1e-4be3-b078-b743235dbade&amp;img_etag=%226a13e97a4433dfbf4ca9f6a9370cc647%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/92b38a32-533c-46cb-a285-e93ba1d31a84.jpg?asset_id=5df4f162-1190-4e77-b7ba-152b49d12e86&amp;img_etag=%22b6ba6ef586cf01413dd3aacb9ffa9767%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/92b38a32-533c-46cb-a285-e93ba1d31a84.jpg?asset_id=5df4f162-1190-4e77-b7ba-152b49d12e86&amp;img_etag=%22b6ba6ef586cf01413dd3aacb9ffa9767%22&amp;size=1024)
-Read:  [Deng Xiaoping and Brent Scowcroft’s July 2, 1989 meeting at the Great Hall of the People in Beijing （PDF File）](https://www.thewirechina.com/wp-content/uploads/2020/06/Deng_Scowcroft_July_2_1989_Meeting.pdf)
+**推文顯示出對不同國家的信息和語氣差異很大**
 
-引申閱讀：[1989年7月2日，鄧小平和布倫特·斯考克羅夫特在北京人民大會堂會面（PDF文檔）](https://www.thewirechina.com/wp-content/uploads/2020/06/Deng_Scowcroft_July_2_1989_Meeting.pdf)
+至少有三分之一的推文提到了具體的國家：126個國家和地區的名字累計被提及1100次（不包括中國）。雖然這些國家橫跨所有地區，但關於歐洲、亞洲和撒哈拉以南非洲（Sub-Saharan Africa）的覆蓋面比其它地區更廣。由於提到的國家很多，單個國家的提及次數較少。例如，撒哈拉以南非洲是被提及最多的地區，該地區最常被提到的國家肯尼亞只在27條推文中被提及。
 
-鄧傲慢的反駁到“沒有任何一種力量可以來代替中國共產黨代表中華人民共和國” 。他總結到“讓我再重複一遍，我們必須看到美國將會採取什麼樣的言論和什麼樣的行動”，把關係破裂的責任全都甩在了斯考克羅夫特和華盛頓方面。
+我們觀察到，關於中共國對外捐贈的推文明顯多於關於中共國接受捐贈的推文。當中共國確實點名提及對華捐贈的國家時，有些國家被提及的頻率高於其它國家，而且根據來源國的不同，捐贈的表述也不同。
 
-華盛頓郵報稱這次訪問為“對於專制的，血染的中國政府的懷柔的讓步。”華爾街日報攻擊它為“我們時代的最偉大的一次裝聾練習。”但是卡特政府的美國國家安全委員會的一個高級官員米克爾·奧森柏格卻讚揚這次訪問是“一次勇敢的領導力的表現。”無論是什麼，斯考克羅夫特的訪問是一次對於美中關係現在對華盛頓來說有多麼重要的詮釋。
+為了研究這些差異，我們將之前的國家名稱搜索（例如“意大利”）擴大到包括形容詞（”意大利”）和首都（”羅馬”），並按意大利、日本、伊朗、俄羅斯、巴基斯坦、加拿大、肯尼亞和巴西的提法對數據進行分組，這些國家都是在各自區域內經常被提及的。表1提供了每個國家的推文數量。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/54e25f28-2cf4-4430-a318-49910e4c1430.png?asset_id=047fb2a2-10c1-4934-8924-5cc2f4cc1fe2&amp;img_etag=%22c52d5d4ab79487e19c5a39a2f66024a1%22&amp;size=1024)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/54e25f28-2cf4-4430-a318-49910e4c1430.png?asset_id=047fb2a2-10c1-4934-8924-5cc2f4cc1fe2&amp;img_etag=%22c52d5d4ab79487e19c5a39a2f66024a1%22&amp;size=1024)*表1.國家和提及每個國家的推文數量。*
+對於每個國家，我們對所有推文進行了人工編碼，以確定它們是否提到了從中共國運來的貨物、運往中國的貨物，或者兩者都沒有。我們將醫療設備的捐贈和出口都算作“運輸”，並將來源地和接收方匯總到國家層面。這意味著我們的統計除了國家政府外，還包括個人、城市、省、州、企業和非政府組織的捐贈。
 
-對於我們這些在七週的抗議運動中一直在現場的人來說，斯考克羅夫特的訪問最引人注目的就是它是如何讓角色反轉的。並不是鄧這個剛剛用屠殺自己人民的方式玷污了他國家的名聲的人， 去尋求斯考克羅夫特的原諒和幫助恢復美中關係，而是斯考克羅夫特不知何故的最後去央求鄧去原諒美國人感受到的憤怒。同樣重要的是斯考克羅夫特那種恭敬的姿態成為了今後的一個先例：從這以後，每當“這個關係”產生危機，那就一定是美國要來承擔保持足夠的靈活度讓這個關係存續的主要責任。
+在討論中共國收到的貨物時，在分析的國家中，日本是最常被提及的國家（30條推文），其次是巴基斯坦（8條），加拿大和俄羅斯（各3條）（見圖2）。雖然中共國確實感謝歐盟捐贈了[56噸的設備](https://ec.europa.eu/echo/news/coronavirus-aid-china-eu-delivered-italy_en)，但它的[整體報導很少](https://www.lemonde.fr/idees/article/2020/03/24/coronavirus-gagner-aussi-la-bataille-geopolitique_6034216_3232.html?fbclid=IwAR18NmAvzf5eln2Znq-sRrOZNtJaV4j6jonLtacqY14WrAoUn3VN99pm2xg)，意大利本身作為捐贈國祇被提及一次，即在一條推特中駁斥了關於中共國先接受意大利設備捐贈，隨後強迫意大利回購設備的指控。同樣也提到加拿大政府捐贈的16噸的防護設備；三條提及加拿大向中共國運輸的推文，都集中在加拿大華人的捐贈上，而且數量明顯較少。相比之下，日本的捐贈被提到“慷慨“和“無私”，中共國國家媒體也反復強調中共國對日本的“感謝”。圍繞日本的正面描述可以歸結為雙邊關係的改善，這一點我們在下文中再談。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/0ba5bd5c-e13b-4162-b3e1-e18fa7c1a496.png?asset_id=9c32f1b2-a7e5-4db1-863a-3f036b9bb5df&amp;img_etag=%22029fac890a558d5047ca5b9e1bb96276%22&amp;size=1024)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/0ba5bd5c-e13b-4162-b3e1-e18fa7c1a496.png?asset_id=9c32f1b2-a7e5-4db1-863a-3f036b9bb5df&amp;img_etag=%22029fac890a558d5047ca5b9e1bb96276%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/a2432763-e1d8-4ee4-9b03-061dabeebb00.png?asset_id=00950ef7-94b0-4730-ab10-a415f03cd2e7&amp;img_etag=%224447b0b1f73791bce91138b4349733f4%22&amp;size=1024)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/a2432763-e1d8-4ee4-9b03-061dabeebb00.png?asset_id=00950ef7-94b0-4730-ab10-a415f03cd2e7&amp;img_etag=%224447b0b1f73791bce91138b4349733f4%22&amp;size=1024)*圖2：上圖：提及中共國收到的貨物的推文數量。來自日本和巴基斯坦的貨物佔據了顯著位置。下圖：提到中共國發出的貨物的推文數量。意大利和日本是最常被提及的中共國貨物接收國。*
+另一方面，中共國的對外捐贈，在我們的數據集中佔有重要地位（見圖2）。對於每個國家來說，中共國發出的貨物被提及的頻率至少是其收到的貨物的兩倍。例如，與中共國向意大利運送“ [急需的醫療用品](https://twitter.com/CGTNOfficial/status/1243196007174664193)  “形成鮮明對比，對意大利的捐贈缺乏討論。提及中共國向意大利的捐贈有76次。雖然對日本的捐贈也經常被提及（72次），但對這些捐贈的描述與對其它國家的描述有所不同。國家媒體經常把對日本的捐助說成是對東京善意的回報，中共國的民族主義媒體《環球時報》吹噓COVID-19將日本和中共國聯繫在一起。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/6065a5f8-48d2-4784-9ce9-481985ad4f19.png?asset_id=e32bfe5b-2f05-4b39-99d9-b486b6d2d297&amp;img_etag=%229f9e76f905edb703cfeb7d88c46d73ec%22&amp;size=2560)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/6065a5f8-48d2-4784-9ce9-481985ad4f19.png?asset_id=e32bfe5b-2f05-4b39-99d9-b486b6d2d297&amp;img_etag=%229f9e76f905edb703cfeb7d88c46d73ec%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/ebf0c160-0400-4361-81bc-a73210dba9dd.png?asset_id=14d828e3-8a96-4e3c-ace5-8231a2d8782f&amp;img_etag=%22a9120ec2161612738f2ba050de7b3b2e%22&amp;size=2560)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/ebf0c160-0400-4361-81bc-a73210dba9dd.png?asset_id=14d828e3-8a96-4e3c-ace5-8231a2d8782f&amp;img_etag=%22a9120ec2161612738f2ba050de7b3b2e%22&amp;size=1024)
+**中共國的口罩外交反應其外交政策目標**
 
-有些人認為，布什的殷勤來自於他對他在1970年中期在北京聯絡辦公室工作的那些日子的懷念和他所建立的作為美國對北京的第一任官方外交代表跟中共國領導人的私人關係。但是他對於美國領導層在幫助讓中共國在已經存在的國際秩序中轉變成一個更加負責任的參與者的重要性的信念，和布什稱之為他的“全方位接觸政策”的自負同樣在他的恭敬態度中起到了很大的作用。在宣布他重啟進出口和世界銀行對中國貸款的意願之後（這本身就是一個重大的讓步），布什第二次派斯考克羅夫特前往北京。然後，在1991年，他的國務卿詹姆斯·貝克也去了，並且確實在中國向流氓政權出售導彈方面得到了一些讓步。但是，他報怨說，獲得這個小小的勝利就像是去了“每年的體檢一樣，並不舒服。”
+此外，我們還觀察到一些案例，即針對具體國家的報導是根據北京的外交政策目標來製定的，這表明中共國在推特上的口罩外交是戰略性的。例如，四條關於加拿大的推文提到了有爭議的中共國電信公司華為，華為因與共產黨的關係而在西方[受到批評](https://www.cfr.org/backgrounder/huawei-chinas-controversial-tech-giant)。這些推文強調了華為如何“低調地“運送醫療設備幫助加拿大對抗冠狀病毒，這說明華為有意識地努力改善人們對它的看法。
 
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ddbbe72b-99a4-4f85-8dd6-69fdb2917479.jpg?asset_id=a9aedba7-5105-43a2-8f12-b614bb2977f5&amp;img_etag=%228c6c009195beff8e05874ff6d1754fa6%22&amp;size=3098)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ddbbe72b-99a4-4f85-8dd6-69fdb2917479.jpg?asset_id=a9aedba7-5105-43a2-8f12-b614bb2977f5&amp;img_etag=%228c6c009195beff8e05874ff6d1754fa6%22&amp;size=1024)國務卿詹姆斯·貝克訪問中國進一步洽談中國的領導圖片來源：喬治布什總統圖書館和博物館
+其中一條推文直接提到[（當時）正在進行的對華為高管孟晚舟的審判](https://www.cnbc.com/2020/01/10/huawei-cfo-meng-wanzhou-extradition-trial-explained.html)，孟晚舟因涉嫌違反美國對伊朗的製裁，2018年在溫哥華被加拿大當局應美國的引渡要求所拘留。這次逮捕和審判使中加關係緊張，北京逮捕在華的加拿大公民作為報復。中共國駐加拿大大使稱孟晚舟案是“ [雙邊關係中最大的問題](https://www.scmp.com/news/world/united-states-canada/article/3085539/china-doesnt-understand-canadas-independent) “。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/112cb0cb-efbd-465c-838f-ef90a59f47ec.png?asset_id=fc54e92a-2662-416b-88a7-636f8c36835a&amp;img_etag=%22feeed9577c293c681928ebb3295d46c0%22&amp;size=2656)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/112cb0cb-efbd-465c-838f-ef90a59f47ec.png?asset_id=fc54e92a-2662-416b-88a7-636f8c36835a&amp;img_etag=%22feeed9577c293c681928ebb3295d46c0%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/fa439134-5013-4e68-8267-8ac4ca6d99d4.png?asset_id=a2c82f1e-9336-4cb7-b630-be5f318be312&amp;img_etag=%2200e2154afe1634b02f09dfa09e82c958%22&amp;size=2688)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/fa439134-5013-4e68-8267-8ac4ca6d99d4.png?asset_id=a2c82f1e-9336-4cb7-b630-be5f318be312&amp;img_etag=%2200e2154afe1634b02f09dfa09e82c958%22&amp;size=1024)
+同樣，[對日本溢於言表的感激之情](https://english.kyodonews.net/news/2020/03/8270d66274a7-feature-global-battle-against-coronavirus-bolsters-japan-china-relations.html)，也反映了2020年初COVID-19爆發以來中日關係的改善。東京方面基本上[沒有將病毒的責任歸咎於中共國](https://www.japantimes.co.jp/opinion/2020/04/01/commentary/japan-commentary/better-ties-china-japans-coronavirus-silver-lining/#.Xt6oSZ5Kjlw)，這反映了日本首相安倍晉三（Shinzo Abe）外交政策中旨在改善對華關係的重要部分。對來自日本（也包括韓國）醫療捐贈無理由的表述，[說明在中美關係惡化之際，北京試圖改善與鄰國的關係](https://www.japantimes.co.jp/news/2020/05/17/national/politics-diplomacy/china-japan-ties-us-coronavirus/#.XuLQh55Kjlx)。
 
-布什的政策也暴露了與美國對蘇聯政府等國家政治迫害異義人士不容忍的態度的差距。正當俄羅斯仍然被視為共產主義的暴政之時，鄧的中國現在卻因他們種極權主義的做法獲得了尊重。就像詹姆斯·曼後來意識到那樣，不成文的操作原則變成了：“無論中共國政權的行為多麼可惡，“接觸政策”發起者都不會讓這些行為阻礙到跟中共國繼續的商業來往。”
+從國家媒體在推特上推送的敘事中，也可以觀察到塞爾維亞(Serbia)對中共國的一帶一路倡議（Belt and Road Initiative, BRI）[越來越重要](https://thediplomat.com/2019/01/serbia-chinas-open-door-to-the-balkans/)。與冠狀病毒相關的捐贈中直接提到習主席的推文，4條中有3條提到塞爾維亞；另一條是對巴基斯坦(Pakistan)表示感謝。此外，關於提及塞爾維亞的推文，一個值得注意的不同點為，不少推文以合作的口吻來敘述中共國的捐贈。例如，高度強調中共國的投資、運輸或捐贈如何[導致測試能力的提高](https://twitter.com/XHNews/status/1252500094672228352)，以及這些努力的合作性質。這反映了中共國近年來[試圖將BRI描繪成](https://www.wsj.com/articles/china-bills-its-belt-and-road-as-a-collaboration-but-foreign-companies-feel-left-out-11579172950#:~:text=China%20has%20framed%20the%20Belt,America%2C%20primarily%20through%20infrastructure%20projects)有外國公司參與合作的，因為有人懷疑BRI項目會導致中共國對受援國實施重大控制。
+[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/859aff50-9d07-4cd1-bad6-c7a35b760fb1.png?asset_id=9db79aa8-145e-42e1-aaa6-744d23f3b0a5&amp;img_etag=%2240f9ec10c0881fa45679070998520da3%22&amp;size=2560)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/859aff50-9d07-4cd1-bad6-c7a35b760fb1.png?asset_id=9db79aa8-145e-42e1-aaa6-744d23f3b0a5&amp;img_etag=%2240f9ec10c0881fa45679070998520da3%22&amp;size=1024)[!\[\](https://spark.adobe.com/page/3dK2IyDZYlAis/images/c60fc809-52dc-47d4-9636-5223418dd1b1.png?asset_id=e249c415-2baa-45ce-95d1-5f87b963a82e&amp;img_etag=%228e42b4e5d7a329f98825d3c04a0a4e57%22&amp;size=2560)](https://spark.adobe.com/page/3dK2IyDZYlAis/images/c60fc809-52dc-47d4-9636-5223418dd1b1.png?asset_id=e249c415-2baa-45ce-95d1-5f87b963a82e&amp;img_etag=%228e42b4e5d7a329f98825d3c04a0a4e57%22&amp;size=1024)
+**結論**
 
-讓所有人驚訝的是，鄧，他個人並沒有收回在大屠殺後進一步和美國“接觸”的可能性。在讚揚了軍隊官兵平息這場動亂後，他反問他們，“我們改革開放的基本觀念錯了麼？。。。並沒有！沒有改革我們能有我們今天所擁有的麼？”
+隨著COVID-19在全球範圍內的傳播，中共國的目標是擺脫其作為冠狀病毒源頭的形象，並將自己描繪成一個在危機時期負責任和仁慈的全球領導者。然而，中共國對其醫療捐贈的高調報導卻適得其反。此後，[中國學者敦促中共國政府在推特上減少這類活動的報導](https://www.scmp.com/news/china/diplomacy/article/3084274/too-soon-too-loud-chinese-foreign-policy-advisers-tell-wolf)。儘管有一些殘留的關於中共國捐贈的內容，比如6月11日[提到的向黎巴嫩（Lebanon）的捐贈](https://twitter.com/PDChina/status/1271059231945510912)，但自3月的高峰期以來，北京的推特口罩外交已經明顯減弱。
 
-但是，這裡的重點是：鄧所說的並不是“政治改革跟開放，”而是“經濟改革。”
+口罩外交似乎在某些國家取得了一定的成功，比如[塞爾維亞和匈牙利（Hungary）](https://apnews.com/76dff4b113e82d85716262895909f151)，然而在其他國家，口罩外交只是加強了人們對北京戰略意圖的懷疑。在某些情況下，據說北京要求大眾對其醫療用品運輸和捐贈給予讚揚，這[破壞了自己努力的成果](https://www.axios.com/beijing-demanded-praise-in-exchange-for-medical-supplies-16f5183e-589a-42e5-bc25-414eb13841b0.html)。
 
-這是非常精明的一招，當一屆又一屆的美國總統受到“接觸政策”的影響，北京得以躲過了華盛頓更加活躍的反對。事實上，這種“接觸政策”成為了越來越深層紮根於美國信念的一個條款，中國能夠從美國社會的其它層面獲得支持，比如學術界，慈善界，公民社會，還有商界。通過向北京提供“中國不會錯”的政策，美國對這個“接觸政策”的忠誠證實了對於北京的一個巨大的福祉：它可以在一個沒有挑戰的環境下專注於經濟增長，也就是壯大它的財富跟權力。
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ac378634-fda8-48b1-b5e4-185d82c9a18c.png?asset_id=a0a0725b-44c2-47af-b109-5b379fde4e98&amp;img_etag=%22c545e545d6c91a51b8159c5e20e7a826%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ac378634-fda8-48b1-b5e4-185d82c9a18c.png?asset_id=a0a0725b-44c2-47af-b109-5b379fde4e98&amp;img_etag=%22c545e545d6c91a51b8159c5e20e7a826%22&amp;size=1024)
-*翻譯：ignoreme；PR：孫行者；Page：拱卒*
+北京的說法及其對全球強烈反對的反應各不相同，這表明中共國的公共外交還處於萌芽狀態，仍在不斷發展；北京也表現出對外國和國內對其努力的接受度高度敏感。中共國能否有效地“量體裁衣”，以贏得世界人民的心，還有待觀察。
 
-## **中美接觸終止**
+[原文鏈接](https://cyber.fsi.stanford.edu/news/covid-mask-diplomacy)
 
-#### **第五部**
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/125625fe-86cc-4d0f-816f-8f09a18d3002.png?asset_id=a4bfa9a3-ca85-46aa-b837-057411e50d0e&amp;img_etag=%22b481d933640f66a4a3583da76030104a%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/125625fe-86cc-4d0f-816f-8f09a18d3002.png?asset_id=a4bfa9a3-ca85-46aa-b837-057411e50d0e&amp;img_etag=%22b481d933640f66a4a3583da76030104a%22&amp;size=1024)
-When Bill Clinton unapologetically attacked his predecessor’s accommodationist policy towards China at the Democratic National Convention in 1992, he promised a “covenant with America” that “will not coddle tyrants from Baghdad to Beijing.”
-
-1992年，當比爾·克林頓在民主黨全國代表大會上毫不客氣的攻擊上屆總統對中共國的妥協政策時，他向美國許下一份承諾：不會像對巴格達那樣把北京縱容成一個暴君。
-
-就像他對紐約時報說的，“總有一天，中共國會像東歐和前蘇聯的共產主義政權那樣（產生巨變）”。所以，美國“必須盡力鼓勵這樣的進程”。在布什無條件延長中共國的最惠國待遇時，克林頓貶低此舉是“不合情理的”且“把美國置於人權和民主的對立面是布什政府時期令人痛心的內容”。現在，他的勝利帶給人們的預期好像是要把美中政策推向一個更加對立的方向。
-
-在他贏得大選時，中共國的經濟崛起也越發不可阻擋，這時的克林頓也經歷了脫胎換骨的變化。
-
-但是，在他贏得大選後，中共國的經濟崛起越發不可阻擋，克林頓也一樣脫胎換骨了。像他後來寫的，他開始相信，即使美國不持續施壓，中共國也“會受現代社會驅使，變得更開放”。（諷刺的是，這句話在翻譯成中文時，被北京審查部門刪除了。）
-
-1994年的一次白宮新聞發布會上，克林頓完成了與中共國“接觸”的重生。他宣布，他現在相信“通過促進與中國的交往，我們能最大程度地支持中共國的人權，促進其他我們關切的重大問題”，他還宣布“將人權問題從中共國每年的最惠國待遇中剝離出來。”
-
-這是一個180度的大轉彎，它使美國在中共1989大屠殺後的人權優先政策變得站不住腳。特別是美國商人– 渴望從中共國持續增長的市場中分一塊蛋糕– 開始遊說反對該（人權）政策。負責亞太事務的助理國務卿溫斯頓·羅德承認，一些商人不僅不支持我們，還同中共國一起挖我們的牆腳。。
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ef96d311-f69f-405e-8962-e706a7b0e9e5.png?asset_id=e1a6f218-3c3c-4439-a929-fc6b1c44cd8e&amp;img_etag=%22b640ac35e82226aada18af3572c633c1%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/ef96d311-f69f-405e-8962-e706a7b0e9e5.png?asset_id=e1a6f218-3c3c-4439-a929-fc6b1c44cd8e&amp;img_etag=%22b640ac35e82226aada18af3572c633c1%22&amp;size=1024)基辛格這樣回憶江澤民說，“表現的像個和藹可親的家人，他溫暖且不拘禮節，他微笑，說一些軼事，觸碰他的對話者來建立紐帶。。江是我遇到的中共國領導人中，最沒有中央王國類型性格的。” 圖片來源：Joyce Naltchayan/法新社Getty圖片
-由於中共國獲得了越來越強的經濟實力，遊戲規則正在改變，克林頓認識到他必須重新平衡權力和經濟利益的關係。詹姆斯·曼直截了當的說，商業已成為“美國政策的指導力量”。憑藉其新的商業實力，中共國開始明白他們可以抵抗美國的壓力，並且，如果他們堅持足夠長久，當危機來臨，華盛頓就會投降。實際上，在1994年5月26日，克林頓最終給予了中共國最惠國待遇地位。
-
-“該政策的效用已經到頭了，”他說，想證明他的立場。“是時候尋找一條新路徑了”。
-
-鄧小平在1980年代倡導的口號再次被提起-韜光養晦等待時機-為克林頓鋪路。他說中共國會收起民族主義和軍事挑釁，這使得中共國的崛起看上去沒有什麼威脅性。同時，美國商人中間對中共國廉價勞動力帶來的利潤和它巨大的市場的日益渴望，也和美國人的一種新的老生常談的邏輯相吻合：“開放市場會導致社會的開放“。這個口號幫助克林頓得出結論：更開放的市場不可避免的會“提升自由精神”，所以即使沒有最惠國待遇的壓力，隨著時間推移，中共國也會開放–“就像柏林牆倒塌不可避免” 。它是一個誘人的夢，到他的第一個任期結束，全面接觸的政策已經形成。
-
-克林頓充實了他的新政策，稱之為“全面接觸”，這緩和了對中共國的排斥且有利於高層交流，甚至同意與中共總書記江澤民在1993年西雅圖亞洲領導人峰會會晤。1996年7月，儘管中共國在台灣海峽發射了兩枚挑釁性導彈，克林頓得出的結論還是“中共國正在發生的變化的性質，以及他們的領導人看待世界和我們的方式”已經證明了他之前的觀點“根本不對”。
-
-同樣的，他聲稱，美國的目標可能會通過與中共國融合更好實現，而不是相反。像卡特曾經改變方向一樣，到1997年，他的政府也在鼓吹與北京建立“建設性戰略夥伴關係”，大衛·蘭普頓形容為“積極誘導、對話和關門”的混合外交”。和中共國接觸的好處，將會成為美國近代外交史上，兩黨戰略最具影響力的和根深蒂固的標誌
-
-對任何經歷了1989事件的人來說，在1998年春天，站在人民大會堂台階上等待比爾·克林頓總統到訪是很夢幻的。從抗議學生跪在這裡提交請願書表達對領導人的不滿才不到10年的時間。也是從這些台階，解放軍在6月4日走下來，作為“人民解放軍”對自己的“人民”開火，製造了20世紀最恥辱的自我傷害。那時候，我發現很難想像中共曾經驅趕這些英靈，它們曾激怒克林頓輕率的宣布中共政府“站在歷史的錯誤一邊”，彷彿只有美國人猜到了歷史上有一些不可思議的民主推進運動。然而，回到天安門廣場，我們發現在陽光明媚的一天，兩位互相微笑的領導人在互相致意，好像在中國這個最具象徵意義的地方，從未發生過那些事情。
-
-更甚的是，雖然編排高度儀式化，但是從江澤民挽著克林頓的手臂從豪車上下來時，極其明顯兩人很享受一起的時光。他們伴著國歌聲，大步走在紅毯上，檢閱儀仗隊，渴望著讓過去成為過去。然後，當官員和記者團體湧進大會堂，一個驚人的消息被散發：江會允許中共國的廣播和電視直播新聞發布會（完全的無腳本問答）。這意味著，如果雙方領導人涉及到敏感的政治領域，將沒有最後的機會審查來刪除記錄。這是江澤民渴望與克林頓平等交流的戲劇性姿態。
-
-實際上，克林頓的阿肯色州老男孩性情讓江很活躍，發布會開始後，他展現了中共國官方少有一定程度上的即興發揮。與這位美國大師的交鋒中，江充滿了挑戰，即使對話轉向敏感的人權問題，江也不屈的捍衛中共國的成績。之後，發布會快結束的時候，他高聲說：“我想知道克林頓總統是否還有什麼補充。”
-
-克林頓繼續道：“如果因為有人謾罵就懼怕個人自由，過度限制人民的自由，那麼你會付出代價”，他顯然享受這種交換意見的方式。他補充道：“我認為，在一個整個經濟都基於思想和信息（自由）的世界裡，會付出更大的代價。”
-
-“很抱歉多佔用5分鐘，”江打斷說，看上去很享受來回交鋒，儘管主題帶有爭議性。“我想說說達賴喇嘛，”驚掉下巴，西藏和他們流亡的宗教領袖是不受中共領導歡迎的話題，尤其是與美國人在鏡頭前談論。儘管如此，江繼續說道，“在我去年訪問美國期間，我發現雖然科學技術教育已經發展到很高水平，人們也享受著現代文明，但是仍然有一部分人相信喇嘛教（藏傳佛教），我想找出原因。”
-
-因為在外交會議上演唱“牧場是我家”和背誦葛底斯堡演說的段落而聞名，江有時候很浮誇，甚至是小丑。但是他也沒有戒備，對熱情的克林頓來說是完美的“接觸對象”。可惜，他是最後一個這樣的中共領導人。
-
-回國後，在不屑一顧地將年度最惠國待遇審查程序與那些充滿人們對世界上不符合他們口味的事情產生的沮喪的傳單進行比較後，在2000年，克林頓批准了中共國的永久最惠國待遇。之後，他又在第二年促成其加入WTO。這兩個舉動都提振了人們的希望：中共國納入美國主導的世界貿易體系，不僅,能降低雙方的貿易逆差，還能促進對方進一步政治改革。
-
-像克林頓在約翰霍普金斯大學給學生的演講裡說的，“通過加入WTO，中共國不是簡單的同意進口我們的產品，也承諾引進民主制最珍視的價值觀之一：自由經濟”。中共國的經濟越自由化，也就越能全面的解放人民的潛力–他們的積極性，想像力以及他們非凡的企業精神。並且，自由的基因不會再封在瓶子裡。
-[!\[\](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/7ac1c9bd-00af-4fa8-8950-5d5320025614.png?asset_id=2315b80d-116a-4e4e-923b-91bdb6770213&amp;img_etag=%22a0fd71c35bb06c69d7f60e1d363781ce%22&amp;size=1024)](https://spark.adobe.com/page/zg4VdpSFE7W7W/images/7ac1c9bd-00af-4fa8-8950-5d5320025614.png?asset_id=2315b80d-116a-4e4e-923b-91bdb6770213&amp;img_etag=%22a0fd71c35bb06c69d7f60e1d363781ce%22&amp;size=1024)NARA 瑪德琳·奧爾布賴特，是比爾·克林頓第二個任期的國務卿，希望社會和經濟都有中共國參與，這也會影響到政治和人權的開放“。但是她也說：“鑑於中共政府的本性，這是個漸進的過程，最好是，當然也絕對不是一個必然的過程。” 圖片來源：NARA
-他的國務卿瑪德琳·奧爾布賴特還希望“與中共國更大程度的經濟和社會的融合對實踐政治和人權自由具有影響。”但是她也明智的補充道：“鑑於中共政府的本性，這是個漸進的過程，充其量,但也不是絕對是必然的。”
-
-隨著蘇聯的威脅的逝去，克林頓賦予美中政策新的內核邏輯：開放市場會促進更平等的自由社會。“想想互聯網是怎麼改變中共國的，”在2000年，他傳福音似的問觀眾，作為對新世紀的歡呼。“中共國一直試圖打壓互聯網，”他繼續暢想，“可能嗎？這就像想往牆上釘果凍一樣（難）。”
-
-[新聞鏈接](https://www.thewirechina.com/2020/06/07/the-birth-life-and-death-of-engagement/)
-
-#### 編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/zg4VdpSFE7W7W/)
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/3dK2IyDZYlAis/)
 
 0

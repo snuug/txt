@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】24/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-25 23:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/245663/)
+## 班農戰情室250中共紅色控制影響義大利、加拿大
+`2020-06-26 07:57 GM67` [轉載自GNews](https://gnews.org/zh-hant/245949/)
 
-戰友之家圖文摘要組及小語種組
+總結：VOG翻譯組 starwar    編輯：VOG翻譯組 flasher
 
-[English\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)
+今天節目班農不在現場，三位主持人是拉希姆，傑克和葛列格。傑克介紹今天的連線嘉賓——義大利記者瑪麗亞·路易薩·羅西-霍金斯（Maria Luisa Rossi-Hawkins）。她在三月份連線向戰斗室介紹義大利疫情的情況，對義大利和歐洲的時事非常瞭解。同時她也非常瞭解一帶一路計畫在義大利的情況，和一些相關的收購。
 
-[French\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)
+傑克首先問道：義大利現在的情況如何了？上次我們談話義大利正是非常悲慘的時候，我們都是眼含淚水，現在我們看到義大利情況在緩和，告訴我們現在的狀況。瑪麗亞·路易薩說：最開始上節目也就是大概是5個月前，我說義大利是歐洲第一個被疫情攻擊的國家；現在五個月過去了，大家每天還是在談論，看不到什麼解決方法。北邊米蘭周圍有了新的疫情，還很緊張，但是南方有所好轉。整個國家的士氣很低落，經濟下滑；大規模集會、教堂禮拜沒有恢復，人們被困在家裡5個月了，但是仍然看不到疫苗的希望，人們每天儘量去幫助染病和死去的人。現在大概就是這樣。
 
-[German\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)
+傑克問：當時米蘭和都靈地區爆發是，人們向南方躲避，疫情有沒有在南方爆發？瑪麗亞·路易薩說：南方沒有，但是現在米蘭周圍仍然很嚴重——雖然有所減弱，但是感染還在指數級增長。現在我們知道，在去年12月份米蘭的下水系統裡就檢測到了冠狀病毒——這是在這個病毒被報導之前在那個區域生活的中國人帶來的。我認為是中國工業人員帶來的，後面再詳細說，但是這些媒體都在避免談論這一內容。傑克繼續問：外面的普通人的感覺是怎樣的？瑪麗亞說：普通人是知道他們所看到的、聽到的和接觸到的。我們政府簽署一帶一路協議的時候，史蒂夫（班農）正在這裡演講。政府幹的事情就是只告訴我們美好的願景，說一帶一路會帶來工作機會，發展經濟，帶來繁榮。而不去告訴我們協定真正簽署了什麼內容。現在人們看到目前發生的一切，不會再去相信那些許諾了，因為差別太大了。
 
-[Japanese\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)
+拉希姆問道：瑪麗亞，關於歐盟要關閉與美國通航的決定，是歐洲各國議會普遍認可的嗎？還是布魯塞爾（歐盟總部）的決定？瑪麗亞說：我相信這是對美國川普總統決定暫停工作簽證的報復。因為會有歐洲人受到影響，歐盟想要採取報復措施，而且在川普總統發表聲明之後24小時就決定了。我覺得這對歐盟和美國的關係有害無益，反而會讓中共趁機來獲利。傑克問道：義大利的普通民眾對於美國現在（按提法）損毀哥倫布等很多歷史人物雕像怎麼看？瑪麗亞說：作為一個義大利人和歷史學者，我感到非常難過。歷史是我們每個人的一部分，誰都無法把它抹去。
 
-[Korean\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)
+主持人葛列格播報突發新聞，最高大法院以7：2授權川普政府在不需要上訴聯邦法院的情況下，遣返或驅逐某些申請庇護移民。這是川普政府在非法移民管控政策上的一大勝利。
 
-[Spanish\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)
+喬·艾特尼（Joel Etienne）加拿大多倫多連線，他是一位元代理大紀元案件的律師，來參與討論華為的案件。拉希姆問道：喬，請給我們介紹一下那裡中共華為的案件。喬詳細介紹了孟晚舟案的背景，和華為作為中共控制的科技企業，不僅向中共提供可以監控和壓迫本國人民的高科技手段，還將這種技術打包出售給委內瑞拉、伊朗政府。在審理孟晚舟引渡案件的過程中，中共還逮捕了兩名在中國的加拿大公民。
+
+傑克問：加拿大的幾個前政府和司法官員寫信要求總理特魯多用孟晚舟交換人質，我想問難道加拿大人看不出來這是一個明顯的綁架人質事件嗎？這是中共“老大哥”（喬治·奧威爾《1984》用詞）這個現存的巨大威脅在使用控制手段嗎？喬說：對於普通加拿大民眾，他們不瞭解孟晚舟對於美國這個案件調查多重要。我們習慣于用溫和的語調討論事情，但是很多時候這不能表達出這個案件對美國的重要性。不只普通加拿大民眾會覺得為什麼不去換人質，除此之外，不僅僅是幾個立法委員和前官員，而是有非常有影響力的當權派去推動，勸說總理放棄引渡。這個力量非常大。喬繼續說，就在彭培奧國務卿和中國官員（在夏威夷）會見的第二天，中共將這兩名加拿大人質判為間諜罪。這是對彭培奧國務卿講話和政策的抵抗。但是總理特魯多如果想要介入法律程式，他需要通過法律手段，通過國會投票的方式。（今天新聞已經爆出，加拿大總理特魯多已經拒絕用孟晚舟交換人質）。
+
+主持人談到美國國內目前安提法造成的混亂，雕像紀念物被損毀，商店被搶劫，街頭的暴力。傑克念了一段新聞，在週末芝加哥一個13歲的小女孩在家裡為母親跳舞，不幸被流彈集中脖子而離世。傑克說，她在自己的家裡，因為外面的騷亂而死去，如果這不是恐怖主義，我不知道什麼是。感謝那些在芝加哥值勤的FBI人員，你們做了芝加哥市長不願意去幹的事情。
 
 0

@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命上升到新境界，法治基金的董事在空軍壹號上
-`2020-06-25 14:17 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/245393/)
+## 【多語言圖文版】6月17日中共病毒疫情要聞快報
+`2020-06-25 22:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245616/)
 
-作者：新中國聯邦加拿大農場 亞倫 （文章僅代表作者個人觀點）
+[6.17-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-**川普總統新行動：**
+[6.17-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-1.宣布將出臺行重拳政令，對破壞歷史雕像者最高可判處10年監禁；
-2.美國政府將延長“暫停60天綠卡申請”至2020年年12月31日。在此基礎之上，進壹步暫停H1B、H2B、J類等非移民性質的工作簽證，有效期至2020年12月31日。
-![空军一号：18张图看美国总统专机前世今生_新闻中心_新浪网](https://lh3.googleusercontent.com/H4IiBNIhFtD_LhIOBPrAE6tmG7reETGZITDuMxzFyKx7FGb_5gdDedlVgTkWIkJvutnhiGI0cG-m1dCWokOoDosRCtz0dTlrEw9dDfIAf5tiR68kGW0FdBcMbqIcGyCaZPsZl1w)
-大家應該還記得，文貴先生今年2月去了川普總統私人資產馬阿拉歌莊園參加晚宴，並穿著白色睡衣在有兩個大床的房間做了視頻直播，代表文貴先生和川普總統的密切私人關系公開化。這次文貴先生以勞斯萊斯和CIA數據中心外墻的為背景的照片，說明爆料革命和美國政府最高情報安全機構的關系公開化。文貴先生、爆料革命的廣大戰友們已經深度參與和配合、甚至可能是開始戰略性指導美國壹系列的工作。
+[6.17-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-**小知識補充：**
+[6.17-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-空軍壹號（Air Force One）是美國總統的專機，這架藍白相間的波音飛機已成為美國的權力象征，也常被人們稱為“空中白宮”。嚴格來說，“空軍壹號”只是壹個象征性的稱號，它不區分飛機的種類與數量，無論哪架（備用機型很多），只要是現任美國總統乘坐，從登上飛機的那壹刻起，該飛機即被稱作“空軍壹號”。（資料來源百度百科）而這次法制基金董事登上的是波音757，不是最熟知的波音747。
+[6.17-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-這個神秘的人物已經揭曉，是我們的法治基金董事比爾·格茨先生昨天出現在空軍壹號上。選擇在空軍壹號上商討大計，是絕對安全的。空軍壹號進行過全面改裝，甚至有防幹擾雷達、反地對空導彈系統，最重要的是空軍壹號上有特殊技術手段，能防止監控，能反竊聽，能屏蔽外界幹擾，而且總統、幕僚、客人等都在不同艙段。那麽問題來了，商討什麽事情，需要在如此嚴防死守的場合進行。
+[6.17-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-其實，美國總統的官邸和辦公室白宮都是不安全的，據傳白宮裏有很多竊聽器被找出，文貴先生也在之前的視頻中有講述，十幾年前盤古的地下壹整層就是給了中共情報部門，已經可以隨時調用白宮前的攝像頭監控。Twitter上已經有此推文，比爾·格茨先生自己拍了張和空軍壹號的照片，據說也是第壹次乘坐，看來也是非常的榮幸，之所以可以叫這次波音757也稱作空軍壹號，情報說明了這是跟川普總統壹起登上了飛機。
+[6.17-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-我們法制基金董事比爾·格茨先生幾十年來都是反共先鋒，是美國軍事情報領域的大佬，又是純正美國人，給出的建議更為中肯和有時效性，他的幾十年累計的信譽和背後的能量，對川普總統將會很有影響力。現在法治基金和爆料革命，在六四之後已經正式走向前臺，這意義及其重大，說明了我們爆料革命新的高度。
 
-據《路德社》透露，能榮幸登上空軍壹號的人，其履歷都是透明的，也是被反復排查過的，在川普總統的安保系統中，說明對法治基金的認可，而法制基金、法治社會也是我們爆料革命的基石，是聯系合作各個領域人物的重要平臺。這次大選集會在亞利桑那州鳳凰城，川普會帶參謀去參加集會，比爾格茨先生成為川普總統高參出現在空軍壹號，說明在智囊團中有自己的壹席之地。
-
-法治基金的董事和主席已經全面出動了！所有人都在背後默默的努力，董事們在全面推進各條戰線，我們有文貴先生，有無數為了爆料革命的默默犧牲的戰友，有巨大的能力沈默力量支持 。中美貿易協議Over（不履行）但完整、追究病毒來源、英雄科學家聽證會，參議院審查《外國主權豁免法》，壹系列的滅共主線同時上演。
-
-壹切都已經開始，相信很快文貴先生就要宣布，壹切已經結束。
 
 0

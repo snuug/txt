@@ -1,67 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中印緊張局勢升級，台灣尋求與印度更緊密貿易合作
-`2020-06-25 20:46 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245494/)
+## 【世界多語言圖文】24/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-25 23:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/245663/)
 
-*新聞來源：《布雷特巴特》*
+戰友之家圖文摘要組及小語種組
 
-*作者：John Hayward*
+[English\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)
 
-*發表日期：2020年6月23日*
+[French\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)
 
-*翻譯/簡評：Victory*
+[German\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)
 
-*PR：海闊天空*
+[Japanese\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)
 
-*Page：拱卒*
+[Korean\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)
 
-**簡評：**
-
-這次中共國和印度衝突不值一提，無非是中共為轉移國內矛盾和美國的視線，狗急跳牆出的爛招，毫無新意。可惜了雙方死難的士兵。
-
-印度近年來經濟發展非常快，其在軟件工程、金融業、生物科技、工業以及服務外包等等行業都非常優秀。其廉價的勞動力，優質的教育水平，英文等等明顯優勢，使其在很多產業上可以取代中共國。現在全世界和中共國脫鉤的時候，印度一定會利用此良機填補中共國留下的產能空白，成為新的經濟增長熱點。
-
-說到台灣，中共這幫下三濫的廢物和台灣政府相比，真是雲泥之別。中共對香港人的殘酷鎮壓徹底喚醒了台灣民眾。首先大選蔡總統以創紀錄高票擊敗親共的國民黨，挽救了民主台灣。今年中共國向全世界散佈病毒，並利用打壓，威脅，收買等無恥手段影響世界衛生組織，各國政府等等，其邪惡行徑已昭然於世。而台灣政府在應對中共病毒中表現非常出色，同時還積極生產防護物資以幫助全世界。如今台灣政府已越來越活躍的與各國政府互動，參與到世界活動中。相信會有越來越多的國際組織會考慮接納台灣。
-
-## **中印緊張局勢升級，台灣尋求與印度發揮更大的貿易作用**
-
-[!\[\](https://spark.adobe.com/page/ceALU76u8vtBC/images/95762148-bc30-4c34-a09d-7f2475ee63d1.jpg?asset_id=5c5c5a0b-a1c1-47f1-9232-10197dc0ba78&amp;img_etag=%226c7954366f6f995b99db2d43b05609c9%22&amp;size=2560)](https://spark.adobe.com/page/ceALU76u8vtBC/images/95762148-bc30-4c34-a09d-7f2475ee63d1.jpg?asset_id=5c5c5a0b-a1c1-47f1-9232-10197dc0ba78&amp;img_etag=%226c7954366f6f995b99db2d43b05609c9%22&amp;size=1024)富士康首席執行官
-
-台灣富士康的首席執行官，蘋果手機元件供應商，本週二說印度是“發展的亮點”,他還說一旦新冠疫情不再嚴重，他的公司將計劃“進一步在此投資”.
-
-富士康在印度和中共國都有工廠，上週兩國軍人在喜馬拉雅發生暴力衝突後，正處於矛盾中。憤怒的印度人發起了抵制中共國產品的運動，這會佔印度進口產品的很大一部分份額。
-
-富士康主席劉楊偉在其公司年會上說在經歷了新冠疫情期間暴跌90%後，公司產值正在回升，疫情后期的遠程辦公和在線娛樂需求增長是新的業績增長動力。
-
-“我們正在全力推進下一階段的發展，我們將在接下來的幾個月內在網站公佈後續計劃，向大家報告。我們會在印度有進一步的投資”劉談到富士康在印度投資前景時說到。
-[!\[\](https://spark.adobe.com/page/ceALU76u8vtBC/images/a95499c3-ea3a-4a4e-83c2-9fab921c22c7.jpg?asset_id=80d2d8e3-1500-46e8-a1d4-16c80c013b44&amp;img_etag=%22e0e5bb4ccf00be3dfb271fd0bf2b1f73%22&amp;size=1024)](https://spark.adobe.com/page/ceALU76u8vtBC/images/a95499c3-ea3a-4a4e-83c2-9fab921c22c7.jpg?asset_id=80d2d8e3-1500-46e8-a1d4-16c80c013b44&amp;img_etag=%22e0e5bb4ccf00be3dfb271fd0bf2b1f73%22&amp;size=1024)富士康在台灣（上圖）以及印度進行了更多的投資，以實現遠離中國的多元化發展。© EPA/Jiji
-早在邊境衝突以前，印度就希望與台灣建立更緊密的經濟夥伴關係。2018年，台灣在印度的投資突破了3.6億美元，在兩年內漲幅大於1000%，兩國貿易額也從2000年的10億美元增長到2018年的75億美元。去年10月，台灣駐印度大使展望，好戲還在後面。
-
-中共病毒的爆發大大削弱了印度對中共國影響力的看法，尤其中共國開始咄咄逼人地利用其經濟優勢控制疫情對全球外交的影響，或賄賂，或威脅小國們，使其接受中共國關於疫情的政治描述。
-
-五月份，印度商業線報說台灣可以幫助印度打破中共國對電子和電信行業的控制，這是現在讓印度感到沮喪的兩個無法有效抵制中共國產品的最大市場。
-
-這篇社論指出，印度無法生產半導體，是中共國企業主導印度智能手機和電腦市場的一個主要原因，北京方面即將完全控製印度下一代5G網絡系統，這是一種危險的做法。“控制”這個詞很準確，因為印度商業線報指出中共國電信巨頭如華為堅持在其印度分公司只招聘低端職位的印度員工，並積極封鎖使得中共國過去幾十年從美國獲得的大量珍貴研究的技術轉讓。
-
-與台灣公司合作，給印度一個發展其半導體能力的機會，並開始從中共國手中拿回自己的科技市場，台灣很明確地展現了與印度建立更緊密關係的願望。
-
-台灣新聞報導說香港民主運動者製造出及時動態信息，以表達對印度和中共國對峙的支持，並修改其中一個創建了#台灣和印度站在一起#的標籤
-
-[!\[\](https://spark.adobe.com/page/ceALU76u8vtBC/images/5ffd6abf-b87d-4f09-aee3-5f6c32031156.jpg?asset_id=ce1b5da9-9e32-44f8-b755-dbd2b4c92e0d&amp;img_etag=%220c016ba8771932bdd7ee3ffb81e81eb3%22&amp;size=2560)](https://spark.adobe.com/page/ceALU76u8vtBC/images/5ffd6abf-b87d-4f09-aee3-5f6c32031156.jpg?asset_id=ce1b5da9-9e32-44f8-b755-dbd2b4c92e0d&amp;img_etag=%220c016ba8771932bdd7ee3ffb81e81eb3%22&amp;size=1024)
-
-“一副羅摩（印度神毘濕奴的第七個化身）的插畫，拉開弓準備將一個巨大的箭射向中共國惡龍，發佈在香港社交媒體網站連登（LIHKG），後被台灣新聞報導，後於週三在印度迅速傳播”台灣新聞補充道，這解釋了為什麼配上肌肉強健的握手照片，因為這樣比畫一個由印度神用弓箭射向中共國的象徵圖標傳達了更積極的友好信息。
-
-台灣外交部周二表示，外資投資在2020年增加第一季度了40%，包括一些台灣“新南下政策”涵蓋的國家大幅增長。“新南下政策旨在增強台灣在整個亞洲的參與度。這其中一個國家正是印度。
-
-中共國自然對台灣和印度之間深化的外交和經濟關係感到不快，中共暴躁地要求印度政府停止表達對“台獨”的支持，尤其對兩位印度執政黨人民黨（BJP）成員“虛擬參與”台灣總統蔡英文第二次就職儀式非常憤怒。由於中共病毒爆發的旅行禁令，蔡英文總統就職儀式的大部分國際參與者都是虛擬的。
-
-據中共說，印度對台灣的支持違反了“一個中國原則”，宣稱台灣不是獨立國家，而是早晚會被中共暴政奪回的，屬於中共國的半自治省。“任何錯誤的信號都會鼓勵台獨分子在錯誤和危險的道路上走得更遠，這將最終破壞地區和平與繁榮，”中共國外交部在一封給台灣政府的信中警告道。
-
-“任何錯誤的信號都會鼓勵這些分裂分子在錯誤和危險的軌道上走得更遠，最終會破壞該地區的和平與繁榮。”中國外交部在給台灣政府的信中警告說。
-
-[原文鏈接](https://www.breitbart.com/national-security/2020/06/23/taiwan-seeks-bigger-trade-role-india-tensions-china-escalate/)
-
-編輯：【喜馬拉雅戰鷹團】
+[Spanish\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)
 
 0

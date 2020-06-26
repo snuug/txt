@@ -1,23 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月17日中共病毒疫情要聞快報
-`2020-06-25 22:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245616/)
+## 雷霆行動開啟 中共你準備好了嗎？
+`2020-06-26 03:40 WENZI` [轉載自GNews](https://gnews.org/zh-hant/245764/)
 
-[6.17-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
+**By 文紫**
+**2020-06-26**
 
-[6.17-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+近日，五角大樓提出華為在內的20家中共PLA背景企業名單。川普政府已向美國聯邦議會提交了該份檔，並宣佈美國進入緊急狀態。若該名單的企業在美國進行活動，將對其採取制裁。
 
-[6.17-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26031957/2-168.jpg)
 
-[6.17-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+制裁名單如下：
 
-[6.17-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+1.中國航空工業集團有限公司
 
-[6.17-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+2.中國航太科技集團有限公司
 
-[6.17-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+3.中國航太科工集團有限公司
 
+4.中國電子科技集團有限公司
 
+5.中國兵器裝備集團有限公司
+
+6.中國船舶重工集團公司簡稱中船重工
+
+7.中國船舶工業總公司簡稱中船總公司
+
+8.中國兵器工業集團
+
+9.華為技術有限公司
+
+10.杭州海康威視數位技術股份有限公司
+
+11.浪潮集團
+
+12.中國航空發動機集團有限公司
+
+13.中國鐵建股份有限公司
+
+14.中國中車股份有限公司
+
+15.熊貓電子集團
+
+16.曙光資訊產業有限公司
+
+17.中國移動通信集團
+
+18.中國廣核集團
+
+19.中國核工業集團
+
+20.中國電信
+
+上述名單涵蓋企業均為中共特大型企業集團公司，為海陸空天、電腦、通信、核工業等行業龍頭企業。其中，中國兵器工業集團有限公司和中國兵器裝備集團為中共國防科技工業的核心產業。
+
+目前，中國兵器裝備集團在全球建立了30多個生產基地和行銷網路，與福特、標緻雪鐵龍、鈴木、馬自達、雅馬哈、富士等跨國公司建立了戰略合作關係，擁有特種產品、車輛、新能源、裝備製造四大產業板塊。其中特種產品產業負責裝備中國所有武裝力量，在國防領域起著重要的基礎性、戰略性作用。中國兵器工業集團有限公司是中共最大武器裝備製造集團，公司主要涉及坦克和裝甲車的研製，以及彈藥供應。
+
+據引用消息，美國政府、企業、投資者和學術領域等方面將多管齊下，重拳出擊。這份清單只是一個開始，制裁範圍會繼續加碼。此次制裁後，中共將面臨來自原材料、技術專利、人才培養、學術交流、外貿貨幣等方面全面圍剿。中共 “製造強國”戰略、一路一帶、人民幣國際化、經濟全球化、世界格局兩極化戰略的實施將面臨釜底抽薪的影響。中共外匯儲備、國內就業、撒幣外交、輸出共產主義、策劃恐怖主義等行動有望戛然而止，產生立竿見影的效果。
+
+2019年10月7日，美國商務部將中國20個公安機關和8家中共科技公司列入黑名單，用於制裁中共對穆斯林少數民族的侵犯人權行為。2019年10月9日，文貴先生提到針對這28家公司的制裁行動根本起不到制裁中共的效果，對中共懲罰行動的原名就叫“雷霆行動”，不能刪掉，必須要拿回來。如今，爆料革命的滅共策略得到川普政府的全面認可，更嚴厲更全面更徹底的滅共計畫正在穩步推進。
+
+雷霆行動已經開啟，中共你準備好了嗎？
+
+來源：https://time.com/5859119/huawei-chinese-military-company-list/
+
+注：本文僅代表作者個人觀點
 
 0
