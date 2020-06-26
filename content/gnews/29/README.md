@@ -1,55 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國和波蘭發表兩國總統聯合聲明
-`2020-06-25 12:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/245263/)
+## 美國《外國主權豁免法》聽證預修正，只為追責中共罪魁
+`2020-06-25 13:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/245359/)
 
-美國總統和波蘭總統於2020年6月24日聯合聲明，重申兩國都珍視的價值觀，尤其是民主，法治，個人自由和自由以及自由，公平和互惠的貿易。美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪。並將合作推動可信賴的5G供應商的多元化供應鏈的創新。
+作者：新中國聯邦加拿大農場 亞倫 （文章僅代表作者個人觀點）
 
-Joint Statement by President Donald J. Trump and President Andrzej Duda
+6月23日美國參議院司法委員會召開《外國主權豁免法》聽證會，嚴肅認真地討論了對《外國主權豁免法》（不能起訴外國主權國家的法案）的修正案。為剝奪中共國家主權豁免權，為向中共追責並巨額索賠掃除障礙，提供法律支持！
+![资料照：共和党联邦参议员格雷厄姆（Sen. Lindsey Graham, R-SC）2019年12月9日在记者会上发言。](https://lh4.googleusercontent.com/Z5Jp6dT--XGA5pIU8y19DvhApOD6yIi5tVkSIwQRez9G5fX8YpOowabrBJ6Dj57WzTC2Vq18S2funNbZ3sy2FiggFNyl8AGy7YEjzareKNWVpMEz8sX21jaNbeSpbl3mmjJ3Zzs)图片来源：美国之音
+**知識小補充：**
 
-## **唐納德·川普總統和安傑伊·杜達總統的聯合聲明**
+國家主權豁免，指壹個國家免受另壹國法院的管轄，該規則是對國家主權的壹種保護。該規則僅限於壹個國家在另壹國家進行的法律訴訟，在其本國進行的法律訴訟則不被豁免。目前，各國傾向於有例外的國家豁免，特別是當某個國家涉及商業交易或者非主權活動時。
 
-Issued on: June 24, 2020
+1976年，美國頒布《外國主權豁免法》，壹般性的禁止針對外國政府提起訴訟，規定外國如有下列情況之壹, 不享有豁免: ①放棄豁免；②在美國從事商業活動；③沒收在美國的財產；④涉及在美國的不動產; ⑤在美國發生的侵權行為。
 
-發佈日期：2020年6月24日
+之前密蘇裏州檢察長在提出針對中國的訴訟案時試圖使用《外國主權豁免法》中的壹些例外來繞過主權豁免原則帶來的限制，其中壹個例外是中國病毒實驗室裏的“商業活動”不受美國主權豁免法的限制；另壹個是，疫情爆發造成的經濟損失允許提出侵權索賠。但是美國的法律專家對《外國主權豁免法》中的這些例外能否適應於這些訴訟感到懷疑。所以早在4月20日，就有美國議員預備推出兩部新法案，盼透過剝奪中共政府主權豁免權，為受疫情損失的美國民眾向中共索賠鋪路。
 
-The United States and Poland have a centuries-old friendship and partnership based on shared values and interests, strong people-to-people ties, and mutual respect.  Today we reaffirm the values that both our nations hold dear, especially democracy, the rule of law, individual liberties and freedoms, and free, fair, and reciprocal trade.
+雖說速度有點慢，時隔兩個月後，《路德社》爆出了美國參議院司法委員會開始聽證會，美國非常清楚中共將利用“國家豁免權”來逃避釋放病毒的責任。為此專門針對這個問題展開討論，以民事訴訟為基礎，查封凍結中共國在美資產為手段，迫使中共必須面對訴訟並且不被“國家豁免權”所保護， 從而達到民事賠償的目的！
 
-美國和波蘭在共同的價值觀和利益，牢固的人與人之間的聯繫以及相互尊重的基礎上有著數百年的友誼和夥伴關係。今天，我們重申兩國都珍視的價值觀，尤其是民主、法治、個人自由和自由以及自由、公平和互惠的貿易。
+這次《外國主權豁免法》聽證特別指出，只是針對中共國，絕不針對其他國家。霍利參議員在司法委員會上表示：中共在作案的第壹時間撒謊，勾結WHO對疫情進行掩蓋，引用“商業異議條款”，授權法庭凍結中共國的在美資產。路德先生特別透露，霍利是班農先生扶持的青年政治家，這個司法聽證會從3月份就開始籌備（共和黨籍眾議員古登（Lance Gooden）及共和黨籍參議員霍利（Josh Hawley）也相繼提出“阻止源自中國病毒傳染病法案”（Stop COVID Act）與“2019冠狀病毒（中共病毒）疾病受害者正義法案”（Justice for Victims of COVID-19 Act），之所以沒有全面推進是因為中共耍大刀、壹直在拖時間搞談判，但彭楊夏威夷會談的徹底談崩（最後通牒），聽證會隨之也正式推進。
 
-The COVID-19 pandemic further underscores the importance of these values and the urgency to defend and promote them.  The United States and Poland, in concert with other Allies and like-minded partners, will work together to rebuild our economies to be stronger, more resilient, and more closely integrated; protect our critical infrastructure and technology; and diversify our supply chains.  We will also join efforts to combat disinformation, especially historical truths relating to WWII.
+霍利參議員對於法案條款的查缺補漏，不再給中共鉆法律空子的空間。之前主權豁免法案堪稱中共的護身符，壹再的使得中共免於法院的訴訟。
 
-COVID-19大流行病進一步強調了這些價值觀的重要性以及捍衛和促進它們的緊迫性。美國和波蘭將與其他盟國和志同道合的夥伴一道，共同協作，重建我們的經濟，使其更強大，更具抗逆能力，更緊密地融合在一起；保護我們的關鍵基礎設施和技術；並使我們的供應鏈多樣化。我們還將共同努力打擊虛假資訊，特別是與第二次世界大戰有關的歷史真相。
+川普總統上臺，不按套路出牌，打破了以前兩黨政治中的很多潛規則，以前的總統候選人在競選時很多都承諾要搬遷到耶路撒冷，只有川普總統在上任第壹年就實現了。中共面對之前的美國總統都是以反共為口炮爬上總統大位後，開始和中共勾兌，掉入中共想要的鐘擺效應的手掌心。
 
-The United States and Poland were proud to help one another through the COVID-19 pandemic, and we pledge to continue our close cooperation as we work to find therapeutics and vaccines.  We also underscore the importance of transparency, information-sharing, and free and functioning international organizations in the prevention of future pandemics.
-
-美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪，我們保證在我們尋找療法和疫苗的過程中將繼續密切地合作。我們還強調了透明度，資訊共用以及自由和運作良好的國際組織在預防未來大流行病中的重要性。
-
-Recognizing our strategic partnership, the United States and Poland continue to deepen our defense cooperation, including by further implementing the Joint Declarations of June 12, 2019, and September 23, 2019, and developing plans to bolster United States-Poland military ties and United States defense and deterrence capabilities in Poland.  We reaffirm our commitment to invest in our defense capabilities and fair burden-sharing to strengthen transatlantic security and cooperation through the North Atlantic Treaty Organization (NATO), and to ensure the effective deterrence and defense of NATO’s Eastern flank.  The United States and Poland continue to work together as Poland modernizes its Armed Forces, including through state-of-the-art United States equipment.
-
-認識到我們的戰略夥伴關係，美國和波蘭繼續加深我們的國防合作，包括進一步執行2019年6月12日和2019年9月23日的聯合聲明，並制定計劃以加強美國波蘭軍事關係和美國波蘭的防禦和威懾能力。我們重申致力於投資於我們的防禦能力和公平分擔負擔的承諾，以通過北大西洋公約組織（NATO）加強跨大西洋的安全與合作，並確保北約東翼的有效威懾和防禦。隨著波蘭使用現代化武裝其部隊，包括通過先進的美國裝備，美國和波蘭會保持繼續合作。
-
-Underscoring that energy security is national security, the United States and Poland are promoting energy diversification, free energy markets, and enhanced cooperation.  We are especially pleased to partner on supplying Poland with United States Liquefied Natural Gas and to begin a new chapter of our energy cooperation by partnering to develop Poland’s civil nuclear power sector.
-
-強調指出能源安全是國家安全，美國和波蘭正在促進能源多樣化，自由能源市場和加強合作。我們特別高興兩國能合作，美國向波蘭供應美國液化天然氣，並通過與波蘭合作發展民用核電領域來開啟我們能源合作的新篇章。
-
-The United States and Poland reiterate our support for the Three Seas Initiative, which will enhance regional energy, transportation, and information connectivity between the Adriatic, Black, and Baltic Seas through transparent, market-based, and fair investments, thereby boosting economic growth and reinforcing democratic values.  We are proud to have pledged substantial funding to implement this important initiative and call on others to join us.
-
-美國和波蘭重申我們對“三海倡議”的支持，該倡議將通過透明的、基於市場的和公平的投資來增強亞得裡亞海，黑海和波羅的海之間的區域能源，交通運輸和資訊連接，從而促進經濟增長和加強民主價值觀。我們很自豪地承諾提供大量資金來實施這一重要倡議，並呼籲其他國家加入我們。
-
-Free, fair, and reciprocal trade has enabled our nations and the world to grow prosperous, has powered innovation and development, and has created millions of jobs.  We are proud that trade between the United States and Poland has grown by more than 50 percent since 2016 and commit to jointly fight against abusive trade practices.  We will also continue to promote increased trade and investment, especially in modern technologies.
-
-自由、公平和互惠的貿易使我們的國家和世界得以繁榮發展，推動了創新和發展，並創造了數百萬個就業機會。我們感到很自豪的是美國和波蘭之間的貿易，自2016年以來增長了50％以上，並致力於共同打擊濫用貿易行為。我們還將繼續促進貿易和投資的增加，特別是在現代技術方面。
-
-Our two nations share a strong belief in privacy and individual freedoms and the importance of securing our telecommunications systems.  We therefore reaffirm our Joint Declaration of September 2, 2019, and commit to cooperate in the development of next-generation technology solutions and to use only secure and trusted providers, equipment, and supply chains in our 5G networks. To advance this aim, we will collaborate on promoting innovation for a diverse supply chain of trusted 5G vendors.
-
-我們兩國堅信隱私和個人自由以及保護我們的電信系統的重要性。因此，我們重申2019年9月2日的聯合聲明，並致力於合作開發下一代技術解決方案，並在我們的5G網路中僅使用安全可靠的供應商、設備和供應鏈。為了實現這一目標，我們將合作推動可信賴的5G供應商的多元化供應鏈的創新。
-
-閱讀原文：[Joint Statement by President Donald J. Trump and President Andrzej Duda](https://www.whitehouse.gov/briefings-statements/joint-statement-president-donald-j-trump-president-andrzej-duda/)
-
-*翻譯：【木木ANNA】 校對：【V%】*
-
-*戰友之家玫瑰園小隊出品*
+法律設置的最終目的是保障人權，契約穩定存在就是社會穩定，這是法律應有的本質。目前美國民眾已經被中共的實驗室制造，精準投毒折騰的不堪重負；煽動恐怖主義組織Antifa以壹個冠冕堂皇的黑人命貴為口號打砸搶美國各個大城市，給疫情下的美國經濟又壹重創。期待《外國主權豁免法》快速修補，並有利的執行，給美國和世界人民壹個交代。
 
 0

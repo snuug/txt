@@ -1,51 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人民幣將被踢出美元體系！
-`2020-06-25 22:22 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245508/)
+## 【多語言圖文版】6月17日中共病毒疫情要聞快報
+`2020-06-25 22:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245616/)
 
-*新聞來源： 《零對沖》*
+[6.17-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-*作者：Tyler Durden*
+[6.17-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-*發表日期：06/22/2020*
+[6.17-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-*翻譯/簡評：萬人往*
+[6.17-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-*PR：Julia Win*
+[6.17-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-*Page：拱卒*
+[6.17-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-**簡評：**
+[6.17-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-中共的人冥幣國際化之路注定痴心妄想。按中共法律規定，理論上每人每年有5萬美元的外匯兌換額度。可實際上老百姓去銀行取5000美金都能被刁難，不是說沒現鈔就是讓提供各種類似“自己是自己”的證明，想把錢匯出去也會被銀行以各種理由拒絕。一個不能自由兌換的貨幣，不能自由流通的貨幣，怎麼實現國際化？
 
-銀保監會主席郭樹清還大言不慚地說，擔心美元貶值影響中共海外資產價值。試問美元和人冥幣，哪一個該貶值得更多？人冥幣M2（廣義貨幣供應量）在2018年就接近美元M2的兩倍，這還只是官方數據，實際上的人冥幣M2會更多。參照美國生產率標準，中共國14萬億美元的GDP，只需9萬億美元的貨幣發行量。中共在2018年就已經超發等值19萬億美元的人冥幣。
-
-真實的美元兌人冥幣匯率早就應該是兩位數，趁現在中共用“擀麵杖”將匯率強拉到7.05附近，還有機會將手中的人冥幣以相對優惠的匯率換成美元。到了美國對中共萬箭齊發的時候，人冥幣真會變成冥幣，處理人冥幣資產就真來不及了。
-
-## **美國官員警告說，中共國必須做好被踢出美元金融體系的準備**
-
-北京當局對川普總統決定簽署的一項針對涉及中共國集中營網絡的中共高官的法案表示強烈不滿，儘管白宮最終推遲實施制裁。正因如此，北京的高級金融監管機構再次附和俄羅斯總統弗拉基米爾•普京最初提出的批評，這也就不足為奇了。人們越來越擔心，下一次的製裁將不僅僅是“鳴槍示警”。
-[!\[\](https://spark.adobe.com/page/2RaFJE15TWbOY/images/c68114fe-ff87-44fe-8415-04ed32cd1289.png?asset_id=032ef4bc-eeb3-4ba0-b8f9-5a78988d5c95&amp;img_etag=%2290226a6eaf4055395960ea334d27aa74%22&amp;size=1024)](https://spark.adobe.com/page/2RaFJE15TWbOY/images/c68114fe-ff87-44fe-8415-04ed32cd1289.png?asset_id=032ef4bc-eeb3-4ba0-b8f9-5a78988d5c95&amp;img_etag=%2290226a6eaf4055395960ea334d27aa74%22&amp;size=1024)
-一名高級官員警告稱，**隨著川普總統預示要對中共國政府和高官實施更多製裁，比如企業間諜和非法竊取知識產權，**美國將很快對中共國實施類似俄羅斯式的全面製裁，這是“不可避免的”。
-
-這種明目張膽的懲罰性制裁，很可能不受華盛頓當局最親密盟友的歡迎，尤其是在全球經濟如此不穩定的時期。但這些制裁肯定會加速經濟脫鉤，這正是白宮對中共鷹派彼得•納瓦羅和博明所希望的。這或許就是中共國證監會副主席方星海在周一警告說的，中共國對以美元為基礎的國際金融體系的依賴，是讓它變得脆弱的原因。
-
-*中共國證監會副主席方星海表示，由於中共國在國際貿易中主要依賴美元支付體系，這使它很容易受到美國可能實施的製裁。*
-
-*方星海在中共國媒體財新網組織的一個論壇上說，“ **這樣的事情已經發生在許多俄羅斯企業和金融機構身上。我們必須儘早做好準備——真正的準備，**而不僅僅是心理上的準備。”*
-
-*方星海發表上述言論之際，華盛頓當局正在考慮，應在多大程度上利用美元在國際支付中的關鍵作用，懲罰涉嫌參與新疆和香港等問題的中共國個人、企業和金融機構。*
-
-與此同時，方星海表示，由於美聯儲增發貨幣，美​​元未來的價值面臨著不確定，這對中共國持有的以美元計價的資產帶來了風險。方星海回應了幾天前中共國銀保監會主席郭樹清提出的批評，郭樹清上週就美元匯率發出了強烈警告。
-
-中共國目前是美國國債的第二大持有者，持有超過1萬億美元的美國國債，僅次於日本。雖然持有這些資產的賬面利潤肯定是巨大的，但隨著時間的推移，利率逆轉可能會讓中共國人民銀行蒙受巨大損失，尤其是利率以一種不穩定的方式迅速上升。
-[!\[\](https://spark.adobe.com/page/2RaFJE15TWbOY/images/2a6114b1-2077-4651-ad2e-1a370f11eaba.jpg?asset_id=09c9a531-4704-4775-8b18-2ec3b5a6acc0&amp;img_etag=%22d7cb145b85a4405c547b7d3bbba7a476%22&amp;size=2560)](https://spark.adobe.com/page/2RaFJE15TWbOY/images/2a6114b1-2077-4651-ad2e-1a370f11eaba.jpg?asset_id=09c9a531-4704-4775-8b18-2ec3b5a6acc0&amp;img_etag=%22d7cb145b85a4405c547b7d3bbba7a476%22&amp;size=1024)
-方星海認為，解決辦法是用中共國貿易力量繼續擴大人民幣在國際上的使用，儘管北京當局對人民幣的嚴格控制仍是實現這一目標的主要障礙:“人民幣國際化是抵消外部金融壓力的必要條件，”方星海補充說。“如果我們的海外資產是以人民幣持有，就不會有(美元貶值)這樣的擔憂。”
-
-[原文鏈接](https://www.zerohedge.com/markets/china-must-prepare-be-cut-dollar-based-financial-system-official-warns)
-
-編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/2RaFJE15TWbOY/)
 
 0
