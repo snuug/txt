@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國農家女23年前被兩次頂替上大學 該誰擔責？
-`2020-06-25 23:31 GM30` [轉載自GNews](https://gnews.org/zh-hant/245626/)
+## 【多語言圖文版】6月18日中共病毒疫情要聞快報
+`2020-06-26 00:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245692/)
 
-**作者：滅共日記**
+[6.18-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000746/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000746/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-近日，山東聊城出現冒名頂替上大學的事件引起社會的關注。有媒體披露，近兩年內，山東省內排查出242人涉嫌冒名頂替他人身份入學。6月22日，網友苟晶（微博@前世是天使2001）在社交平台上發貼稱自己曾在1997年和1998年山東高考中連續兩年被冒名頂替，其中1997年頂替者爲此前自己高三班主任的女兒，該班主任曾給苟晶寫過忏悔書上面寫著自己讓女兒冒名頂替苟晶上大學的經過，並向苟晶道歉希望苟晶諒解，但苟晶覺得，班主任的做法有違師德，“他說他沒有我父親那麽幸運，自己女兒不夠聰明，而他這些年內心也備受煎熬。”而1998年則最終在未填報相應志願下被錄取至湖北黃岡一院校。
+[6.18-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000749/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000749/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25214026/1-359.jpg)
+[6.18-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000752/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000752/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-看到苟晶班主任忏悔的道歉的話，真的讓人感到惡心，幾句身爲父親，非常不容易，自己也是無奈之舉難道就可以堂而皇之頂替掉別人的學籍嗎？一副自己也是逼不得已的措詞就可以營造自己也是受害者的現象了嗎？體諒你作爲父親的苦心？你怎麽不體諒一下同爲父母比你更艱難的你學生父母呢？記得高中班主任經常說 “高考是最公平的考試，不論貧富，美醜拿成績說話 ” 不過最近這些被冒名頂替的劇情，真的比電視劇還狗血，就算你偷了東西，歸還了別人，還要蹲監獄呢！這種偷了別人的人生，偷了別人的前途，毀滅了人家整個家庭的付出，爲什麽主謀和幫凶們還能安心的生活工作這麽多年？縱觀最近事件的受害者，她們似乎都是農家人，同時沒有任何背景，而她們自身也知道，以她們的背景，在當時的年代，也只能吃啞巴虧，這才是最令人歎惋的。本就沒有任何資源的情況下，連教育公平都無法爲她們提供保障，現在我們看到的只是憑借自己努力最後發聲的人，背後可能有更多因爲這些利益鏈而失去美好生活機會的平凡人被隱瞞。
+[6.18-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000755/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000755/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25214153/2-167.jpg)
+[6.18-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000759/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000759/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-看看那些冒名頂替者哪個不是當地權貴，哪個不是富甲一方，一個山東短短兩年就有242起，全國還有多少冒名頂替者沒有被查出來？這樣的事現在還有沒有在繼續在發生？當初一路審核的綠燈誰來負責？僅僅造假的人被追責就夠了嗎？那些貧困子弟，傾盡家財，寒窗苦讀，卻被你們利用手中的權利，偷天換日，冒名頂替，她們的一生怎麽彌補？還記得我之前寫過關于仝卓冒名頂替的事件，仝卓不是第一個揭露高考舞弊的人，但是確實是把最近一連串的高考舞弊案推到風口浪尖的人。但是從目前來看，除了仝卓這一個案件協助作弊修改爲應屆生的人被處理外，其他被媒體報道出來的案件均是當事人被開除，協助他們非法盜用別人身份的人沒有被處理。我就是想知道這些協助非法盜用別人身份的人，到底會有怎樣的處理結果？還是會隨著時間的推移不了了之。而整件事情所表達的就是，窮人被剝奪的機會，被改變的命運，以及被踐踏的公平，其背後隱藏的就是中共對窮人的剝削，上位者對下位者的剝削，有權者對無勢者的剝削，更是對中共國教育公平最無聲而刺耳的嘲弄！
+[6.18-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000805/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000805/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-GNEWS之前文章：
-中共【合村並居】真的不能再榨了 [https://gnews.org/zh-hans/243267/](https://gnews.org/zh-hans/243267/)
-北京新發地疫情爆發 中共故技重施 [https://gnews.org/zh-hans/241175/](https://gnews.org/zh-hans/241175/)
-陽泉市副市長竟用黨性擔保 [https://gnews.org/zh-hans/239948/](https://gnews.org/zh-hans/239948/)
-
-（文章內容僅代表作者觀點）
+[6.18-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000808/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26000808/6.18-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 0
