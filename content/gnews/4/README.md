@@ -1,53 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府下令48小時內中共外宣鳳凰衛視停播
-`2020-06-25 23:06 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245627/)
+## 【世界多語言圖文】24/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-25 23:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/245663/)
 
-*新聞來源： 《自由燈塔》；*
+戰友之家圖文摘要組及小語種組
 
-*作者： 亞當·克雷多；*
+[English\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233257/English_0624_CCP_Virus_Updates.pdf)
 
-*發表日期：2020年6月22日*
+[French\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233301/French_0624_CCP_Virus_Updates.pdf)
 
-*翻譯/簡評：RachelX*
+[German\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233306/German_0624_CCP_Virus_Updates.pdf)
 
-*PR：1818*
+[Japanese\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233314/Japanese_0624_CCP_Virus_Updates.pdf)
 
-*Page：拱卒*
+[Korean\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233418/Korean_0624_CCP_Virus_Updates.pdf)
 
-**簡評：**
-
-川普政府此舉，以及近日將中央電視台，中國新聞社，《人民日報》以及《環球時報》列為外國使團的決策都充分錶明了美國已經覺醒– 他們終於意識到由中共發起的超限戰的觸角已經蔓延到世界的每一個空間及角落，包括文中提及的媒體戰大外宣的部分。而美國祇有全方位積極應對，加之有效行動迎頭痛擊，才能夠將共產邪靈徹底殲滅。
-
-## **川普政府關閉中國​​宣傳機構開辦的電台**
-
-**參議員克魯茲曝出鳳凰衛視與中共國關係後，FCC拒絕給鳳凰衛視發放牌照。**
-
-中共控制的外宣機構鳳凰衛視旗下的一家廣播電台被川普政府勒令在48小時內停止廣播。
-[!\[\](https://spark.adobe.com/page/gK7r9xj27IY4L/images/26753020-d9e3-4a6d-b5e0-23ee5948e0b2.jpg?asset_id=b70fcf4f-472e-4bfe-b590-9f1069204bb2&amp;img_etag=%22fb12256fd2a9bd71560a06095315484e%22&amp;size=2560)](https://spark.adobe.com/page/gK7r9xj27IY4L/images/26753020-d9e3-4a6d-b5e0-23ee5948e0b2.jpg?asset_id=b70fcf4f-472e-4bfe-b590-9f1069204bb2&amp;img_etag=%22fb12256fd2a9bd71560a06095315484e%22&amp;size=1024)
-美國聯邦通訊委員會（FCC）週一(2020年6月22日)裁定，一家位於墨西哥，部分由鳳凰衛視（中共政權的主要宣傳機構之一）擁有的廣播電台，由於未能披露與中共國的關係，必須停止廣播。
-
-在聯邦通信委員會作出裁決之前，該電台利用了一個漏洞，允許從外國無線電塔（如墨西哥的電塔）廣播美國製作的內容。總部位於加州的鳳凰衛視在美國境內製作內容，然後利用發射功率更強的墨西哥電台越過邊境在美國境內進行廣播宣傳。
-
-聯邦通信委員會拒絕了該電台XEWW-AM 的許可證，該機構披露，因為該電台“沒有在他們的申請中註明一個關鍵的參與者——’鳳凰電台’（Phoenix Radio），該電台在其演播室中製作普通話節目”。鳳凰衛視旗下的鳳凰電台利用該電台在南加州各地播放中文宣傳，違反了聯邦通訊委員會法規。
-
-鳳凰衛視是今年早些時候首次發現自己已成為國會關注對象的。當時該台的一名記者在白宮舉行的關於中共新冠病毒大流行和中共國政府掩蓋疫情的發布會上與川普總統對峙。該電台在白宮的存在引發了人們對中共國家控制的新聞機構在美國傳播擴散的擔憂。
-
-聯邦通信委員會發言人告訴《華盛頓自由燈塔》，這家墨西哥電台沒有披露鳳凰衛視在製作內容方面的“廣泛的作用”。“那家與中共國政府有關係的公司沒有被列入向委員會提交的申請書中，這違反了《通信法》（ Communications Act）。因此，該申請因存在缺陷而被駁回。“
-
-鳳凰衛視利用墨西哥廣播塔而規避美國禁止傳播外國宣傳的法律。聯邦通信委員會的裁決是川普政府尋求更積極地針對這類媒體進行監管的一個跡象。多年來，這些媒體的運作幾乎未受到任何監督管控。近幾個月以來，美國國會採取行動，打擊一系列中共國宣傳機構和社交媒體賬戶，這些機構和賬戶幫助中共政權利用國家政府批准的宣傳路徑進入並散佈於美國市場。
-
-《自由燈塔》4月首次報導，參議員泰德·克魯茲（Ted Cruz）因鳳凰衛視與中共國的關係，帶頭要求關閉其墨西哥的電台。克魯茲提出立法，揭露鳳凰衛視如何利用一系列商業收購手段購入這家墨西哥電台，並利用其電波在美國境內進行共產主義宣傳。該立法將堵住聯邦通信委員會法規中允許鳳凰衛視以這種方式運作的漏洞。
-
-克魯茲告訴《自由燈塔》：“今天的決定是我們向世界發出了一個重要的信號，即美國不會允許中共國利用聯邦通信委員會的漏洞，在我們的領土上用電波進行宣傳。更重要的是，該舉措是對抗中共企圖控制美國人民的所見所聞乃至最終所想的關鍵一步。”
-
-聯邦通信委員會的裁決指責XEWW-AM 的所有者試圖掩蓋該台與鳳凰衛視的關係。聯邦通信委員會說，該台的執照申請沒有披露鳳凰衛視在製作該台廣播節目中的作用，許可證因此被駁回。雖然該台可以在日後重新提交申請，但由於人們對鳳凰衛視傳播中共政權宣傳的擔憂越來越大，該台的申請很可能被再次拒絕。
-
-克魯茲在2018年首次向聯邦通信委員會提請關注，當時鴻慧資本（H&H Capital ）收購了這家墨西哥電台。克魯茲說，鴻慧資本完全參與了鳳凰衛視的運營。鴻慧資本在很大程度上由身為美國公民的北京人霍艷（Vivian Huo）所擁有，她曾在多家中資媒體工作。
-
-[原文鏈接](https://www.theguardian.com/world/2020/jun/10/eu-says-china-behind-huge-wave-covid-19-disinformation-campaign)
-
-編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/gK7r9xj27IY4L/)
+[Spanish\_0624\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25233318/Spanish_0624_CCP_Virus_Updates.pdf)
 
 0
