@@ -1,66 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國防部公布與中共軍方關聯的公司名單
-`2020-06-26 08:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/245977/)
+## 美參議院通過兩黨一致共識的議案： 制裁為國安惡法站台和中共勾兌的金融機構
+`2020-06-26 10:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246047/)
 
-作者：Bethany Allen-Ebrahimian\*, Zach Dorfman of the Aspen Institute\*\*，June 24, 2020
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31010038/%E6%B3%95%E6%A1%88.jpg)
+彭博社2020年6月26日報導，參議院通過一項兩黨達成一致的議案，其內容為處罰與中共官員進行商業合作，支持國安惡法在香港強制推行的銀行企業。該議案由馬里蘭州民主黨議員克里斯.範荷倫（Chris Van Hollen)和賓州共和黨議員帕特.圖米(Pat Toomey)資助，在口頭表決中通過。
 
-譯者：Chloe （文秀）
+議案最終需要在國會通過後才能被川普總統表決簽署。該法案同樣被共和黨密蘇里州參議員約什.霍利支持。霍利議員譴責中共破壞1984年中英聯合聲明和香港基本法。三位議員計劃將製裁議案和2021國防授權法案修正案（An amendment to the 2021 National Defense Authorization Act）一同上報表決，已得到更多民意支持和國會議員支持，加速議案最終立法。（注：國會提議要求五角大樓放寬非機密事務的定義限制，將更多年度預算和支出明細公開透明，讓美國人民了解國防經費花銷情況。制裁議案應屬國防範圍，因為不僅是香港機構，美國的金融機構與中共勾結也被處罰。美國機構的行為觸及美國人民利益。）
 
-美國防部首次公布了在美國經營但與中共軍方關聯的中國公司名單。在Axios獲得的這份名單中，華為，杭州海康威視，中國鐵建和中國電信均赫然在列。
+該制裁金融機構議案要求國務院每年向議會報告損害香港“一個國家，兩個制度”的官員。同時議案賦予總統剝奪相關官員財產和禁止其進入美國的權力。議案只限於被確認與中共官員有商業勾結的金融機構，以保護許多有嫌疑的美國公司。這一限制同時也讓金融機構在被制裁前得知其是否在製裁名單裡。另外，若行政機關單邊決定暫時對某些個體免除制裁，國會有權制止總統的決定。
 
-表1.符合《1999年國防授權法》（公法105-261）第1237條的中共國企業
+中共欲強制推行國安惡法後，在其隱形之手推波助瀾之下，港支中國銀行，光銀國際（光明銀行旗下），中國建設銀行等要求員工簽名支持惡法推行。隨後，匯豐銀行，渣打銀行竟公開支持惡法在港執行。匯豐銀行前首席執行官梁振英發推文為中共背書，稱英澳加三國跟著美國走，干預中共內政，還稱匯豐銀行利潤來自中共，但董事局和高階管理幾乎都是英國人，將敵意來源歸於英國政府。還言匯豐應與中共站在一起避免成為像華為一樣的人質。並警告英資機構誰才有真正話語權（原話：which side of the bread is buttered)。
 
+評：
 
-|   中文名 | 英文名 |
-| --- | --- |
-| 中國航空工業集團有限公司 | Aviation Industry Corporation of China (AVIC) |
-| 中國航天科技集團公司 | China Aerospace Science and Technology Corporation (CASC) |
-| 中國航天科工集團有限公司 | China Aerospace Science and Industry Corporation (CASIC) |
-| 中國電子科技集團有限公司 | China Electronics Technology Group Corporation |
-| 中國兵器裝備集團有限公司, | China South Industries Group Corporation |
-| 又名中國南方工業集團公司 | China Shipbuilding Industry Corporation |
-| 中國船舶重工集團 | China state shipbuilding corporation |
-| 中國船舶集團有限公司 | China North Industries Group Corporation Limited (Norinco Group) |
-| 中國兵器工業集團有限公司 | Hangzhou Hikvision Digital Technology Co., Ltd (Hikvision) |
-| 海康威視 | Huawei |
-| 華為 | Inspur Group |
-| 浪潮集團 | Aero Engine Corporation of China |
-| 中國航空發動機集團 | China Railway Construction Corporation (CRCC) |
-| 中國鐵建股份有限公司 | CRRC Corp. |
-| 中國中車股份有限公司 | Panda Electronics Group |
-| 熊貓集團 | Dawning Information Industry Co (Sugon) |
-| 中科曙光 | China Mobile Communications Group |
-| 中國移動國際有限公司 | China General Nuclear Power Corp. |
-| 中國廣核集團 | China National Nuclear Corp. |
-| 中國核能電力股份有限公司 | China Telecommunications Corp. |
+此次美國兩黨攜手共同對付金融大鱷之行為，是全球滅共聯盟對中共的一記重拳。雖還不能說釜底抽薪，但至少可以說，美國精英們已經對和中共勾兌的，犧牲自己國家民眾利益貪婪成性的金融家們公開宣戰。
 
+[原文鏈接](https://www.bloomberg.com/news/articles/2020-06-25/china-sanctions-bill-on-hong-kong-law-approved-by-senate)
 
-**為什麽這個名單重要？**：因為川普總統有權對上榜的20家公司動用《國際緊急經濟權力法》，包括對它們施加制裁。
-
-**名單出爐背景**：該名單是應《1999年國防授權法案》的要求而做，但時至今日才匯編，或才公布於眾。
-
-•這個名單包含在《國際緊急經濟權力法》的一項條款中，該條款授予川普總統權限將這項法案應用於與中共軍方關聯但又在美國境內運營的中企。
-
-• 當時的國會通過《1999年國防授權法案》，是希望確保在中共成為世貿組織的成員後不會幫助中共獲得國防科技，以此防止中共提高對美國或其盟友的軍事能力。
-
-《**國際緊急經濟權力法**》（**以下IEEPA**）細節：此法案是一項非常強有力的工具，它通常通過美國財政部的制裁將外國公司和個人從美國金融系統中剔除。 目前尚不清楚這份剛出爐的名單是否是美國財政部行動的序幕。
-
-•美國國會中美經濟與安全審查委員會專員拉裏•沃特澤爾說：“總統可以利用IEEPA所授予的權力對名單上的實體進行制裁”。拉裏以個人的身份在他所能透露的範圍內告訴Axiom這個信息。
-
-•一位看過這份名單副本的前高級情報官員表示：“上榜的‘總是那幾家公司’。 其中幾家與中共國家安全部有關聯。所有這些公司都是表面上看起來是獨立於中共的私企，但其實後臺都是中共”。
-
-白宮安全顧問羅伯特•奧布萊恩今天將以中共全球影響力對美國帶來的挑戰為主題演講。 預計他在演講中將提及這份名單。
-
-國防部對這份名單未予置評。
-
-**接下來的需要註意的事項**：看過這份名單副本的前高級情報官員說：“如果接下來沒有禁止這些公司在美國做生意的此類制裁，那就是光打雷不下雨”。
-
-\*作者Bethany 是Axios裏報道中國的記者，也是《Axios中國》周刊的作者。她專門報道北京的影響力和意圖。
-
-\*作者Zach 是阿斯彭研究所（Aspen Institute）網絡與技術計劃的高級幕後作家，也是卡耐基國際事務倫理委員會的高級研究員。 他的關於國家安全，間諜活動和美國外交政策的報道發表在《政治雜誌》，《大西洋》，《外交政策》，《雅虎新聞》和《華爾街日報》等出版物中。 Zach是2018年Gerald R. Ford新聞獎中傑出國防新聞獎的共同獲獎者，和2017年Livingston獎的決賽入圍者。
-
-原文鏈接：[https://www.axios.com/defense-department-chinese-military-linked-companies-856b9315-48d2-4aec-b932-97b8f29a4d40.html](https://www.axios.com/defense-department-chinese-military-linked-companies-856b9315-48d2-4aec-b932-97b8f29a4d40.html)
+翻譯報導：Joyphie
+校對整理：瑞安平
 
 0

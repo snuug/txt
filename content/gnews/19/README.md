@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 團結起來，不再圍著共產獨裁政權跳舞
-`2020-06-26 01:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245717/)
+## 【多語言圖文版】6月19日中共病毒疫情要聞快報
+`2020-06-26 06:32 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245824/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26014106/Picture-1-136.png)
-6月23號丹麥人民黨丹麥議會議員兼外交事務發言人的索倫·埃斯佩森( **Søren Espersen)**在《日德蘭郵報》發表了抨擊中共的重要文章《世界已經受夠了中共的威脅，團結起來，下定決心，不再跟著共產獨裁政權跳舞》。索倫·埃斯佩森出生於1953年，是丹麥政治家，新聞記者和作家，自2005年2月8日以來，他一直是丹麥人民黨丹麥議會議員和外交事務發言人。接下來且看丹麥政府如何來引導並推動民意起來反共的。
+[6.19-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-文章開頭具有丹麥式幽默，作者是愉快的樂觀主義者，近乎天真，他認為日月星辰有跡象表明，中共將再也不能事事得償。世界終於受夠了中國的威脅了嗎？世界終於不再按照共產黨政權的意願蹦躂了嗎？
+[6.19-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-朝此方向發展的最新事件是鮑里斯·約翰遜（Boris Johnson）推翻了已經與英國簽訂的5G網絡建設中共華為公司的合同，因為鮑里斯認為華為不是“獨立的公司”，所以華為只能夠經營英國業務的一部分，而被徹底排除在安全和防禦領域之外。中共政府大喊大叫、怒不可遏，向鮑里斯-約翰遜身上扣垃圾桶等等反應，絕不是一個工業企業失去部分訂單的國家應該有的正常文明的行為。
+[6.19-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-另一個針對中共擂起戰鼓的是在幾天前，前北約秘書長、丹麥前首相安納斯·福格·拉斯穆森（Anders Fogh Rasmussen）公開與中共叫板。他邀請了台灣總統蔡英文和香港活動家黃之鋒和美國國務卿彭培奧一起參加了《哥本哈根民主論壇》。他說如果中共國是認真踐行“一國兩制”政策的，那麼他們不應該介意香港和台灣的代表參加並發表意見。但事實的情況是，中共國對這次論壇大怒，以陳舊的共產主義方式威脅即將軍事入侵台灣。
+[6.19-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-如上所述，這只是兩個全新的風向變化的例子。作者還提出，在過去的一年裡，越來越多的國家在問：為什麼還允許西方在共產黨的隊伍裡跑來跑去？這在當時的蘇聯時期人們是完全無法想像的事情。當年，西方的自由國家，理所當然一起站在了以克里姆林宮所代表的馬克思主義的對立面，當年的蘇聯人不可能來決定西方自由世界的理念、思想和做法。的確，蘇聯遠沒有今天的中共國那麼邪惡，即使在冷戰期間，也無法想像蘇聯會把貿易和大政治混為一談，在那個時期貿易也只是偶爾停頓一下。不管蘇聯人怎麼罵西方自由世界，也不管西方怎麼罵蘇聯人，貿易都能隔著鐵幕愉快地進行。如今，丹麥只是向一位來自西藏的年長紳士（指達賴喇嘛）遞上一杯有機咖啡和一小塊蛋糕，隨後丹麥就得經歷漫長的拉克塞德（Laksegade）地獄般的故事。（源自丹麥歷史故事，意思是中共就會故意搗鬼並且不受懲罰。）
+[6.19-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-去問問在南中國海和太平洋這一帶的國家吧，去問問日本、韓國、新加坡、台灣、菲律賓、澳大利亞、新西蘭的政治家和軍事分析家，他們是如何看待這個問題的吧，包括美國，每個國家都很清楚那裡發生的一切。藉著從貿易中獲得的利潤，共產黨的力量每週都在增長。中共軍事上的成功是依靠在世界貿易上獲得的利潤，得益於西方自由世界不斷在軍事上配合中共。西方自由世界現在必須下定決心，不再跟著共產黨獨裁專制政權跳舞。
+[6.19-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-評：
-
-作者俱有新聞記者和作家背景的政治家，擅長其犀利的政治觀點用幽默的文學語言寫成新聞，引發人民回憶起當年西方自由世界團結一致與代表馬克思主義的蘇聯獨裁政權戰鬥的歷史。作者將中共與當年蘇聯共產主義作比較，突顯中共是馬克思主義邪惡力量的升級版。這樣的敘事方式更容易被成熟的民主社會民眾所接受。由於丹麥現任的首相非常年輕，對共產主義的邪惡和殘酷沒有親身經歷，所以由年長的政治家來推動民意。其實無論是前任還是現任丹麥政府對中共的認識都是歐洲國家裡最清醒的。別看丹麥是個小國家，但丹麥是歐洲第一個對華為說“No”的國家，早在2019年3月就響應美國的倡議選擇了愛立信而不是華為的5G設備，並且在2019年12月及時爆光了華為成為法羅群島5G網絡供應商的企圖；對於中共病毒，丹麥也是歐洲最早清醒及時調整策略的國家，最早宣布了全境隔離，甚至到現在依然實行全歐洲最嚴格的措施。丹麥雖小，基於她古老的皇室和她的歷史淵源、地理位置，丹麥擅長在政治和商業上縱橫捭闔，期待著丹麥能成為團結歐洲的反共中堅力量。
-
-[原文連接](https://jyllands-posten.dk/debat/international/ECE12238000/har-verden-faaet-nok-af-kinas-trusler/)
-
-翻譯報導：匿名
-校對整理：人間四月
+[6.19-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 0

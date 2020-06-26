@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月17日中共病毒疫情要聞快報
-`2020-06-25 22:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245616/)
+## 海嘯已至 – 從文貴先生最新照片説開去
+`2020-06-25 23:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/245199/)
 
-[6.17-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224306/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
+*作者：魯邦三世*
 
-[6.17-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224309/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+*校對：Julia Win*
 
-[6.17-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224313/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+*PAGE：玄天生*
 
-[6.17-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224316/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+#### **證據**
+[!\[\](https://spark.adobe.com/page/ChzXM72xFBVrD/images/7b6831db-020d-4b63-8db9-8a0aa6187b69.png?asset_id=b36c5d10-a40f-4ebc-9a45-d722971fc9ed&amp;img_etag=%2296d91f7998911060c6b80c397fc410dc%22&amp;size=1024)](https://spark.adobe.com/page/ChzXM72xFBVrD/images/7b6831db-020d-4b63-8db9-8a0aa6187b69.png?asset_id=b36c5d10-a40f-4ebc-9a45-d722971fc9ed&amp;img_etag=%2296d91f7998911060c6b80c397fc410dc%22&amp;size=1024)
+文貴先生在最新的個人動態中發佈了四張照片，細心的戰友經過查證發現所在之處正是美國CIA的數據中心，與文貴先生2019年911直播中快艇身後大樓相似度極高！就此引發筆者對文貴先生行動的猜想和對全球滅共進度的觀察。
+[!\[\](https://spark.adobe.com/page/ChzXM72xFBVrD/images/5da76052-fa47-4c35-8be5-fe227fbe7536.png?asset_id=c45abbc2-e205-4943-aa9f-238889461309&amp;img_etag=%22f57217d76a8615b6a449414d92fe1eab%22&amp;size=1024)](https://spark.adobe.com/page/ChzXM72xFBVrD/images/5da76052-fa47-4c35-8be5-fe227fbe7536.png?asset_id=c45abbc2-e205-4943-aa9f-238889461309&amp;img_etag=%22f57217d76a8615b6a449414d92fe1eab%22&amp;size=1024)
+CIA，“Central Intelligence Agency”,全稱“美國中央情報局”，維基百科對其的核心描述為：“公開和秘密地收集和分類關於國外政府、公司和個人，政治、文化、科技等方面的情報，協調其它國內情報機構的活動，並把這些情報報告分享到美國政府各個部門的工作。”由此可見，此機構在美國對外行動中起到的核心情報支持作用。筆者以爲：作爲全球頂尖的情報機構，CIA在情報、數據收集領域有著無可質疑的實力！然而，問題核心卻在於更重要的——情報分析。如何從已經獲取的海量信息中篩選、整理、歸納、分析進而為國家安全戰略、戰術以及政府部門操作，提供强有力的支持是更重要的任務。因此，筆者以爲，文貴先生來這裏的目的首先就是在**對共情報分析**領域提供自己可靠指導（因其在過去三年中與美國政界、軍界、金融界的溝通交流中，在推進滅共進程中，屢次展現出來的對中共體制的透徹瞭解和完全有效的情報，贏得了美國高層的信任，這一點不言而喻）。但是僅僅於此麽？筆者以爲事實并非僅僅止步於此，更重要的是，利用美國情報機構的强大收集能力和爆料革命、文貴先生的情報分析能力，為CPP**蓄意製造生化武器入侵**美國，提供無可撼動的證據鏈條。注意：這裏的核心是-蓄意製造、生化武器、入侵。
 
-[6.17-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224319/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+從路德社的119節目對人傳人、大爆發、軍方製造、蓄意投毒的準確判斷、英雄科學家安全逃離匪窟並在美國國會秘密作證，以及今天與美國政府情報機構的合作，都是在”證據“這條綫上宣判中共匪幫的死刑。
 
-[6.17-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224322/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+#### **合法選項**
 
-[6.17-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/25224326/6.17-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+這樣就足夠了麽？當然不可能！文貴先生是誰？不是什麽流亡商人、流亡富商，這些都是浮淺的標簽。文貴先生是“滅共者”是“爆料革命”的發起人，更是“爆料革命”的領軍人物。那麽在這個時間節點，“**爆料革命**“的領軍人物站在作爲**美國國家機構**的CIA數據中心門前，其含義也就不言而喻了。這如同文貴先生在宣布：“爆料革命”開始全面走向前臺與美國政府進行合作。其意義不言自明！筆者以爲：至此，由文貴先生領導的“爆料革命”、新中國聯邦開始全面走向前臺，走向公衆視野。
+[!\[\](https://spark.adobe.com/page/ChzXM72xFBVrD/images/5525e6ba-2198-41e5-837d-02998a551095.jpg?asset_id=97401ba6-5ce3-42b8-b948-db1a54ae0007&amp;img_etag=%22f320dd87930aac3bbd3d574cd69c7b9f%22&amp;size=2560)](https://spark.adobe.com/page/ChzXM72xFBVrD/images/5525e6ba-2198-41e5-837d-02998a551095.jpg?asset_id=97401ba6-5ce3-42b8-b948-db1a54ae0007&amp;img_etag=%22f320dd87930aac3bbd3d574cd69c7b9f%22&amp;size=1024)
+更重要的是：作爲“爆料革命“建立的“新中國聯邦”，開始公開和中共匪幫對峙，在接下來的與美國政府以及各東西方國家的合作滅共滅疫中，展示出一個可以被世界各國接受並信任的、完全與中共匪幫不同的選項，展現出沒有中共匪幫桎梏的華人完全可以融入世界文明，並可對人類文明發展做出不可忽視的貢獻，完全不是中共匪幫統治下的”黃禍“形象。簡而言之一句話：新中國聯邦，是華人自由未來的唯一選項！中共匪幫名為“人民政府”，實則人類歷史上最大的恐怖組織！
 
+#### **民意**
 
+僅僅如此分析，顯然不足以看清現在發生的事實。筆者以爲：與此同時，在民意上，我們的盟友也在積極行動。
+
+經過幾天的“預熱“，白宮前安全顧問John Bolton今日發表新書《The Room Where It Happened：A White House Memoir》媒體熱點聚焦於：川普總統對華軟弱、甚至書中言辭批評川普總統有“通共”嫌疑。筆者以爲，博爾頓的新書事件值得關注的點聚焦于：前任白宮官員、川普“親共”、民主黨藉以抨擊行政當局、白宮高管警告危害國家安全。這些動作與班農先生“被辭職”離開白宮策略相同：
+[!\[\](https://spark.adobe.com/page/ChzXM72xFBVrD/images/0e0828e6-34bd-4f4c-875f-ef3235bf575d.jpg?asset_id=653d72cd-9af9-4ed4-aa5c-c902ed70e039&amp;img_etag=%224a9f88de9f5fe970fce6e338e9e0ff5a%22&amp;size=2560)](https://spark.adobe.com/page/ChzXM72xFBVrD/images/0e0828e6-34bd-4f4c-875f-ef3235bf575d.jpg?asset_id=653d72cd-9af9-4ed4-aa5c-c902ed70e039&amp;img_etag=%224a9f88de9f5fe970fce6e338e9e0ff5a%22&amp;size=1024)
+班農先生因“指控川普總統長子以及女婿，在美國大選期間會晤俄羅斯女律師是不愛國的背叛行爲”而離開白宮；而博爾頓是因設計美軍部署問題與川普總統發生嚴重分歧后離開白宮。
+
+班農先生離開白宮以後，幫助整合共和黨、游説美國亞洲、歐洲盟友、背後策劃“脫歐”以及邊境造墻等，這些方面反而獲得了極大的方便。與爆料革命結合，在對華策略上，以及應對中共匪幫對美國的生化武器的”珍珠港“式襲擊上，都發揮著中流砥柱的作用，由此可見，所謂的“指控”只是找個説得過去的藉口離開白宮好辦事兒而已。那麽，這次博爾頓的情況呢？
+
+筆者以爲：過去三年來，川普總統在展開對華行動上總是阻力重重，引述自路德社的説法：832川普總統本來打算與中共全面脫鈎，但是遭受到了美國企業聯名致信等的壓力才作罷。并且，川普總統不只一次提到要排乾華盛頓的沼澤等。由此可見，作爲：“政治素人”、華盛頓的“外來人”川普總統在做出實際行動前必須克服“阻力”，否則無法推行。因此，筆者以爲，博爾頓“苦肉計”出走白宮，現在事實上引導這些“阻力”批評川普總統對華“軟弱”正是化“阻力”為“動力”，為川普總統接下來的系列滅共行動掃清障礙。而這幾日白宮高官對Bolton的“警告”與“批評”，則是讓這些“阻力”對“撿到槍”深信不疑！從而使這幕“苦肉計”更加逼真，在事實上更好的達到預期目的。 為接下來的所有重大行動提供强有力的輿論支持。
+
+與此同時：在保守派陣營，諸如福克斯的著名主播盧道博亦“憤慨”地“批評”道： 美國政府沒有與盟友澳大利亞站在一起，共同追究病毒來源。習和中共釋放（unleash）了病毒，造成10幾萬美國人死亡，我們卻還在“盼望”他們履行第一階段協議？！這幾日福克斯新聞爲主的美國媒體，逐漸把輿論重心從Antifa事件轉移到對中共病毒的來源上的探究，引導輿論關注是否是中共蓄意投毒。納瓦儸在接受左派媒體CNN訪問直言：這個病毒就是中共的產品(product)！
+[!\[\](https://spark.adobe.com/page/ChzXM72xFBVrD/images/9b182e40-0694-4ce9-b27d-5764a6e09542.jpg?asset_id=b648569d-59ed-4bcc-abbe-27545d865282&amp;img_etag=%2265ab54017156e03596dd4c52c845572d%22&amp;size=1024)](https://spark.adobe.com/page/ChzXM72xFBVrD/images/9b182e40-0694-4ce9-b27d-5764a6e09542.jpg?asset_id=b648569d-59ed-4bcc-abbe-27545d865282&amp;img_etag=%2265ab54017156e03596dd4c52c845572d%22&amp;size=1024)
+筆者以爲，從文貴先生最新的動態開始，結合起這幾日的熱點事件、核心事件不難看出，滅共事業正從證據戰綫、民意戰綫，以及公開確立新中國聯邦作爲代表華人的唯一合法政府三條戰綫上，相互配合、齊頭並進、積極行動著，并且為接下來的：確認中共蓄意投毒是對美國的一種“蓄意的生化武器入侵”、與中共匪幫斷交、宣佈中共政府為一個“恐怖組織”以及“非法政權”、查封該政權當權者一切資產，並承認“新中國聯邦”為唯一代表華人的合法政府，進而發起軍事行動、定點斬首……，步步遞進！讓我們拭目以待！
+
+大風已起、海嘯已至、摧枯拉朽、在劫難逃！
+
+（僅代表作者：“魯邦三世”的個人觀點，不代表平臺立場）
+
+編輯 [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/ChzXM72xFBVrD/)
 
 0
