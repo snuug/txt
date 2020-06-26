@@ -1,21 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月20日中共病毒疫情要聞快報
-`2020-06-26 06:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245852/)
+## 參眾議院通過《香港自治法案》 中共官員將面臨制裁
+`2020-06-26 11:14 WENZI` [轉載自GNews](https://gnews.org/zh-hant/246098/)
 
-[6.20-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063537/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063537/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
+**作者：多國語言組-文香，yuyu
+2020-06-26**
 
-[6.20-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063540/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063540/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+美國參議院於25日一致通過《香港自治法案》，（該法案）就侵犯香港自治的行為實施制裁。這一法案在眾議院也獲得通過，只要總統簽署即可。
 
-[6.20-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063544/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063544/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+《香港自治法案》包括對參與侵犯（香港）自治的中共官員的資產凍結，以及對與制裁物件進行交易的金融機構的第二次制裁。
 
-[6.20-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063547/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063547/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+提交該法案的民主黨參議員范霍倫強調，“法案的通過是美國支持香港人民的強有力的超越黨派的資訊。 ”因為《國安法》的出臺，他警告說，“如果中共不停止對香港自由的壓制，那麼中共將付出代價。”
 
-[6.20-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063550/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063550/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+特朗普總統于5月29日表示反對《國安法》的出臺，將啟動取消香港自貿區地位的程式 。但是，具體的措施尚未公佈。
 
-[6.20-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063553/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063553/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+**評論：**守護香港，就是守護自己。共匪不滅，世界每一個地方都將成為香港。
 
-[6.20-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063556/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063556/6.20-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+來源：[https://www.jiji.com/jc/article?k=2020062600246&g=int](https://www.jiji.com/jc/article?k=2020062600246&amp;g=int)
+
+注：本文僅代表作者個人觀點
 
 0
