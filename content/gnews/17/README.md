@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國和波蘭發表兩國總統聯合聲明
-`2020-06-25 12:02 GM31` [轉載自GNews](https://gnews.org/zh-hant/245263/)
+## 論病毒持久戰，全球CCP病毒感染人數朝著1000萬大步邁進
+`2020-06-25 13:52 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/245361/)
 
-美國總統和波蘭總統於2020年6月24日聯合聲明，重申兩國都珍視的價值觀，尤其是民主，法治，個人自由和自由以及自由，公平和互惠的貿易。美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪。並將合作推動可信賴的5G供應商的多元化供應鏈的創新。
+作者：新中國聯邦加拿大農場 亞倫 （文章僅代表作者個人觀點）
 
-Joint Statement by President Donald J. Trump and President Andrzej Duda
+夏天來了，新冠沒走（之前有愛吃包子大人物說4月底天氣轉暖結束）。
+[!\[疾呼：拉响全球危急警报—比新冠病毒可怕更隐匿的“CCP病毒” - Gnews\](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/22203851/t_%E5%89%AF%E6%9C%AC.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fgnews.org%2Fzh-hans%2F149076%2F&amp;psig=AOvVaw3tC7mZJfx2mtbWFYfQLQMQ&amp;ust=1593192966447000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKj-mcDAneoCFQAAAAAdAAAAABAD)
+1月19日《路德社》的驚天壹爆：全球首爆CCP病毒大爆發問題，感染人數已然從當時的62例到目前全球確診超過930萬（數字建立在中共國虛假的數字，如果算上中共國沒確診就死在路上的，因為試劑不夠不給檢測的和試劑只有30%正確率，請大家無限想象），每天增加幾十萬人感染，未來速度會越來越快。
 
-## **唐納德·川普總統和安傑伊·杜達總統的聯合聲明**
+全世界只有中共國不把無癥狀感染者計入到確診！而中共國很多無知群眾覺得CCP病毒是感冒，同時中共國的統壹的新聞報道又零增長了，疫情沒事兒了，其實很多事情遠遠不是我們在媒體上看到的。
 
-Issued on: June 24, 2020
+從119到現在，病毒感染人數翻了15萬倍，巴西超過110萬，俄羅斯超過60萬，很多國家連第壹波疫情爆發還沒有結束。
 
-發佈日期：2020年6月24日
+據《路德社》的數據，美國檢查了2500多萬人，確診率大概10%。現在的數據，還沒考慮到很多國家檢測試劑不到位的問題。當感染人占人口的比例越來越高，這是非常令人恐怖的。而WHO仍在助紂為虐，不斷釋放防疫的假消息，讓全球這麽多人感染。
 
-The United States and Poland have a centuries-old friendship and partnership based on shared values and interests, strong people-to-people ties, and mutual respect.  Today we reaffirm the values that both our nations hold dear, especially democracy, the rule of law, individual liberties and freedoms, and free, fair, and reciprocal trade.
+文貴先生早在幾個月前就斬釘截鐵的在直播視頻中透露，美國感染人數將會是壹兩百萬，當時基本沒有人（包括很多三年戰友們）相信，而如今美國本土的感染人數已經超過了230萬。文貴先生領導的正道主義爆料革命已經挽救了多少鮮活的生命，而且如果不是文貴先生爆料，怎麽可能知道美國科學界、甚至是醫療衛生系統已經被藍金黃到這種程度。科學界枉顧事實，抹黑羥氯喹，隱瞞疫情，這些都是我們之前無法想象的。
 
-美國和波蘭在共同的價值觀和利益，牢固的人與人之間的聯繫以及相互尊重的基礎上有著數百年的友誼和夥伴關係。今天，我們重申兩國都珍視的價值觀，尤其是民主、法治、個人自由和自由以及自由、公平和互惠的貿易。
+俄羅斯、印度、巴西都在快速上升，未來全球確診數還會暴增。世界必須改變，全世界人都必須要警醒過來。
 
-The COVID-19 pandemic further underscores the importance of these values and the urgency to defend and promote them.  The United States and Poland, in concert with other Allies and like-minded partners, will work together to rebuild our economies to be stronger, more resilient, and more closely integrated; protect our critical infrastructure and technology; and diversify our supply chains.  We will also join efforts to combat disinformation, especially historical truths relating to WWII.
+只lockdown封城是無法徹底解決病毒問題，美國兩黨已經意識到，壹定要先解決病毒問題。只有制造者才深刻的了解病毒，那麽誰才是制造病毒的人尤其重要。
 
-COVID-19大流行病進一步強調了這些價值觀的重要性以及捍衛和促進它們的緊迫性。美國和波蘭將與其他盟國和志同道合的夥伴一道，共同協作，重建我們的經濟，使其更強大，更具抗逆能力，更緊密地融合在一起；保護我們的關鍵基礎設施和技術；並使我們的供應鏈多樣化。我們還將共同努力打擊虛假資訊，特別是與第二次世界大戰有關的歷史真相。
+科學要以信仰為基石，否則將毀滅世界。
 
-The United States and Poland were proud to help one another through the COVID-19 pandemic, and we pledge to continue our close cooperation as we work to find therapeutics and vaccines.  We also underscore the importance of transparency, information-sharing, and free and functioning international organizations in the prevention of future pandemics.
+文貴先生之前解釋道，制造病毒不難，但解決病毒不易；把病毒裝進屋子不難，把病毒放出去再收回來不易。只有了解制造病毒的源代碼，制造基因，才能著手研制疫苗工作，才有可能找到解決方案。最後只有最大的毒王中共被消滅了，所有病毒才能真正得到解決。
 
-美國和波蘭為能夠通過COVID-19大流行病互相幫助而感到自豪，我們保證在我們尋找療法和疫苗的過程中將繼續密切地合作。我們還強調了透明度，資訊共用以及自由和運作良好的國際組織在預防未來大流行病中的重要性。
+壹般的病毒軌跡都會隨著時間和傳染人數壹代又壹代而減弱，不需要疫苗可以消亡。但為什麽美國佛羅裏達州剛剛reopen開放後又爆發了？只有可能有人還在繼續到處投毒，才有可能持續的提高致命性的感染。
 
-Recognizing our strategic partnership, the United States and Poland continue to deepen our defense cooperation, including by further implementing the Joint Declarations of June 12, 2019, and September 23, 2019, and developing plans to bolster United States-Poland military ties and United States defense and deterrence capabilities in Poland.  We reaffirm our commitment to invest in our defense capabilities and fair burden-sharing to strengthen transatlantic security and cooperation through the North Atlantic Treaty Organization (NATO), and to ensure the effective deterrence and defense of NATO’s Eastern flank.  The United States and Poland continue to work together as Poland modernizes its Armed Forces, including through state-of-the-art United States equipment.
-
-認識到我們的戰略夥伴關係，美國和波蘭繼續加深我們的國防合作，包括進一步執行2019年6月12日和2019年9月23日的聯合聲明，並制定計劃以加強美國波蘭軍事關係和美國波蘭的防禦和威懾能力。我們重申致力於投資於我們的防禦能力和公平分擔負擔的承諾，以通過北大西洋公約組織（NATO）加強跨大西洋的安全與合作，並確保北約東翼的有效威懾和防禦。隨著波蘭使用現代化武裝其部隊，包括通過先進的美國裝備，美國和波蘭會保持繼續合作。
-
-Underscoring that energy security is national security, the United States and Poland are promoting energy diversification, free energy markets, and enhanced cooperation.  We are especially pleased to partner on supplying Poland with United States Liquefied Natural Gas and to begin a new chapter of our energy cooperation by partnering to develop Poland’s civil nuclear power sector.
-
-強調指出能源安全是國家安全，美國和波蘭正在促進能源多樣化，自由能源市場和加強合作。我們特別高興兩國能合作，美國向波蘭供應美國液化天然氣，並通過與波蘭合作發展民用核電領域來開啟我們能源合作的新篇章。
-
-The United States and Poland reiterate our support for the Three Seas Initiative, which will enhance regional energy, transportation, and information connectivity between the Adriatic, Black, and Baltic Seas through transparent, market-based, and fair investments, thereby boosting economic growth and reinforcing democratic values.  We are proud to have pledged substantial funding to implement this important initiative and call on others to join us.
-
-美國和波蘭重申我們對“三海倡議”的支持，該倡議將通過透明的、基於市場的和公平的投資來增強亞得裡亞海，黑海和波羅的海之間的區域能源，交通運輸和資訊連接，從而促進經濟增長和加強民主價值觀。我們很自豪地承諾提供大量資金來實施這一重要倡議，並呼籲其他國家加入我們。
-
-Free, fair, and reciprocal trade has enabled our nations and the world to grow prosperous, has powered innovation and development, and has created millions of jobs.  We are proud that trade between the United States and Poland has grown by more than 50 percent since 2016 and commit to jointly fight against abusive trade practices.  We will also continue to promote increased trade and investment, especially in modern technologies.
-
-自由、公平和互惠的貿易使我們的國家和世界得以繁榮發展，推動了創新和發展，並創造了數百萬個就業機會。我們感到很自豪的是美國和波蘭之間的貿易，自2016年以來增長了50％以上，並致力於共同打擊濫用貿易行為。我們還將繼續促進貿易和投資的增加，特別是在現代技術方面。
-
-Our two nations share a strong belief in privacy and individual freedoms and the importance of securing our telecommunications systems.  We therefore reaffirm our Joint Declaration of September 2, 2019, and commit to cooperate in the development of next-generation technology solutions and to use only secure and trusted providers, equipment, and supply chains in our 5G networks. To advance this aim, we will collaborate on promoting innovation for a diverse supply chain of trusted 5G vendors.
-
-我們兩國堅信隱私和個人自由以及保護我們的電信系統的重要性。因此，我們重申2019年9月2日的聯合聲明，並致力於合作開發下一代技術解決方案，並在我們的5G網路中僅使用安全可靠的供應商、設備和供應鏈。為了實現這一目標，我們將合作推動可信賴的5G供應商的多元化供應鏈的創新。
-
-閱讀原文：[Joint Statement by President Donald J. Trump and President Andrzej Duda](https://www.whitehouse.gov/briefings-statements/joint-statement-president-donald-j-trump-president-andrzej-duda/)
-
-*翻譯：【木木ANNA】 校對：【V%】*
-
-*戰友之家玫瑰園小隊出品*
+夏天來了，新冠沒走，因為定是有人還在繼續投毒。大家請繼續警惕，做好防護工作，突破1000萬，就在眼前。
 
 0
