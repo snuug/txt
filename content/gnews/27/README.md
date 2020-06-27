@@ -1,21 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月19日中共病毒疫情要聞快報
-`2020-06-26 06:32 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245824/)
+## 澳大利亞正在排幹沼澤
+`2020-06-26 10:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246030/)
 
-[6.19-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26081438/Picture-1-137.png)
+悉尼先驅晨報今天報導突發新聞：澳大利亞安全情報組織(ASIO:Australian Security Intelligence Organisation)於本週五清晨6:30突襲了新南威爾士州勞工議員肖克特·莫索曼（Shaoquett Moselmane）位於悉尼南部的住宅，旨在蒐集證據以支持有關中共政府在澳大利亞展開陰謀滲透的指控。本週日晚上的深度新聞電視節目六十分鐘也將會對此事件做進一步的詳細報導。
 
-[6.19-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+**ASIO****的調查**
 
-[6.19-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+反間諜機構ASIO正在對中共特工如何對新南威爾士州工黨政治家莫索曼先生進行滲透，從而影響澳大利亞政壇進行徹底調查。這將是ASIO歷史上最重要的詢問調查之一。儘管莫索曼先生近期辭去了上議院助理主席的職務，但他目前仍然是國會議員和工黨成員。
 
-[6.19-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+作為調查的一部分，十幾名穿著便衣的聯邦特工清晨抵達莫索曼議員的家，進行全面的搜查。一個小時後，六名法政官員加入了搜查。莫索曼議員家門外停的三輛車也於上午9點被徹底搜查。搜查期間，莫索曼議員的律師抵達現場。之後特工們拿著一些袋子和文件夾離開。
 
-[6.19-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+據消息人士稱，如果找到足夠的證據，中共可能會成為澳大利亞乃至世界第一起因涉嫌隱瞞其對海外在職政治家的施加陰謀影響，觸犯外國干涉罪而被起訴。
 
-[6.19-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+總檢察長克里斯蒂安·波特（Christian Porter）表示，此次行動已獲得ASIO的授權，目的是蒐集關於中共對莫索曼議員及其辦公室滲透的證據。而突擊搜查則是在有合理懷疑理由前提下而採取的步驟。
 
-[6.19-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+**莫索曼議員的親共立場**
+
+莫索曼議員自2009年進入國會以來，已經對中共國進行了9次私訪。有記錄顯示，他的交通和招待費用通常由中共政府或機構承擔。他於2019年初聘請具有中共背景的張先生為其辦公室兼職人員。據中共國網站報導，這位張先生於2013年參加了由海外華人事務辦公室舉辦的宣傳培訓課程，該課程由中共大外宣組織- 中央統一戰線工作部（UFWD）舉辦。該組織在一定程度上致力於通過合法手段和秘密的脅迫手段，增加中共在外國政治制度中的影響力。
+
+自2018年以來，莫索曼議員就因他親共的立場和對澳大利亞政府政策的批評而引起媒體的注意和相應的政治審查。在他諸多有爭議的親共的言論中，頗具爭議的他在2019年發表的演講中宣稱中共國需要一種“新的世界秩序”來發揮其潛力。
+
+不僅如此，莫塞爾曼議員還被中國華東師範大學澳大利亞研究中心列為客座教授，而議員辦公室兼職人員張先生則被任命為該中心的研究員。莫塞爾曼議員曾在上海接受該中心主任陳弘教授採訪時批評了澳大利亞新通過的反外國干涉法。中共國分析家亞歷克斯·約斯克（Alex Joske）表示，陳教授與中共關係密切，長期對澳大利亞政府政策持批評態度。
+
+**即將掀起的政治風暴**
+
+此次調查極大可能會進一步激化目前已是高度緊張的中澳關係，特別是在澳洲政府發動世界100多個國家，要求對中共冠狀病毒大流行起源深入調查之後。
+
+ASIO曾多次警告本國議員需要加強對外國政府對澳大利亞政壇施加不當影響力的防範工作。
+
+近期發起的兩黨制改革以遏制中共對澳大利亞的干預，莫索曼議員及其辦公室對此改革的態度已經遭到其他勞工黨議員的強烈批評。然而對比上議院議員對中共的毫不掩飾的讚揚，ASIO的調查結果無疑會引發澳大利亞政壇的政治風暴。
+
+**澳大利亞在行動**
+
+一位不願透露姓名的情報界內部人士表示，新南威爾士州已經頒布了多項逮捕令，試圖收集有關涉嫌陰謀的證據。另一位了解調查消息的來源說，調查起初只是一個狹窄的ASIO調查，但後來範圍很快得到擴大。在諸如此類的秘密調查案件中，簽發逮捕令以收集證據是一個緊張密集的過程，受嚴格的情報和通信法的管轄，旨在保護國家安全與侵犯個人隱私之間取得平衡。雖然這一過程是秘密進行的，ASIO仍需向總檢察長對每份逮捕令及其採取的行動做出匯報，並且與其機構合力完成。
+
+評：
+
+通過這則新聞可以看出，澳大利亞正在積極排幹內部沼澤，挖出中共多年來通過藍金黃手段深埋在澳大利亞內部沉默的力量。最近澳大利亞籍作家出版了一本名為“隱藏的手”的新書，來揭發中共如何通過西方社會各界的滲透來影響西方國家的自由民主的體制。雖然此書目前在加拿大的上線因官司而暫停，但上週已在澳大利亞出版發行。相信澳大利亞民眾很快能從最近所發生的一系列事件中看清中共的本質，堅定地與美國站在一起，滅掉中國共產黨！
+
+[原文鏈接](https://www.smh.com.au/politics/nsw/nsw-mp-s-sydney-home-raided-as-asio-probes-china-links-20200626-p556f6.html)
+
+翻譯報導：匿名
+校對整理：晴天小螞蟻
 
 0
