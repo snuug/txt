@@ -1,15 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統：工人都是國家的財富，愛國主義不能外包
-`2020-06-26 21:50 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/246406/)
+## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
 
-[川普總統6月25日](https://www.youtube.com/watch?v=KPE6jCAhSGA)在威斯康辛州具有75年曆史的馬里內特船舶公司發表演講。高度評價藍領工人對國家的貢獻，**宣告造船業回歸美國**：“像你們這樣的工人都是國家的財富…你們這八十年的工業傳承，在世界任何地方都無法複製…只要我是你們的總統，美國就不會失去造船的人才和能力。”
+戰友之家圖文摘要組及小語種組
 
-白宮原文: [Remarks by President Trump at Fincantieri Marinette Marine | Marinette, WI](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-fincantieri-marinette-marine-marinette-wi/)
+[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
 
-*翻譯：【恆久忍耐】校對：【Prof. Bacteriophage】字幕：【小螺號】*
+[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
 
-*戰友之家玫瑰園小隊出品*
+[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
+
+[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
+
+[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+
+[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+
+[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
 
 0

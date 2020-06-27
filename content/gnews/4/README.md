@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 媒體戰中川普任重道遠
-`2020-06-27 08:04 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246888/)
+## 【多語言圖文版】6月21日中共病毒疫情要聞快報
+`2020-06-27 11:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247113/)
 
-**班農作戰室 EP248-2**
+[6.21-今日要点-俄文版-Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111004/6.21-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E6%96%87%E7%89%88-%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111004/6.21-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E6%96%87%E7%89%88-%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf)
 
-*作者：Giselle*
+[6.21-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111001/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111001/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-*校對：Julia Win*
+[6.21-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111007/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111007/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-*Page: 椰子哦耶*
+[6.21-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111015/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111015/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-媒體如果墮落了，那麽，這個國家、社會離墮落也就不遠了！
+[6.21-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111020/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111020/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-看看美國川普總統，被主流媒體迫害成了啥樣子了？自他決定參選美國總統那壹刻起，就被大大小小的主流媒體追著打，壹點小事就被媒體揪著不放，各種造謠抹黑，導致川老爺子不得不遠離所有的主流媒體，在推特上開號，從此開始了地球上第壹位自媒體大V總統自我發布新聞的獨特生涯。
+[6.21-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111046/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88Spanish-.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111046/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88Spanish-.pdf)
 
-這還沒完，就算在推特上，川普總統也不能自由發聲，時不時地還被推特屏蔽、禁言，“真假川普”的戲碼也時不時地在推特上演幾場，全方位、無死角地醜化、黑化川普。川普總統富可敵國、位高權重尚且如此，那其他普通民眾呢？
+[6.21-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111253/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111253/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-中共通過對全球主流媒體的控制，正在把整個世界帶往黑暗深淵。普通民眾迷惑於和中共做交易帶來的經濟繁榮、工作機會、金錢美色，渾然不覺即將到來的危險……直到爆料革命發起人郭文貴先生在美國吹響了第壹聲口哨，直到這場突如其來的病毒……
-[!\[\](https://spark.adobe.com/page/DCasguxoNxebO/images/b567d644-3bc1-410e-8a3b-f810b326faa7.jpg?asset_id=6683ad3c-2fb8-4dfc-9443-b92dd8bf90e3&amp;img_etag=%22d6cbda4a6c618300c135177035867a35%22&amp;size=1024)](https://spark.adobe.com/page/DCasguxoNxebO/images/b567d644-3bc1-410e-8a3b-f810b326faa7.jpg?asset_id=6683ad3c-2fb8-4dfc-9443-b92dd8bf90e3&amp;img_etag=%22d6cbda4a6c618300c135177035867a35%22&amp;size=1024)
-中共不但毒害中國人大腦，造就了無數腦殘、小粉紅，也毒害了包括美國在內的西方世界，造就了白左、Antifa等毒瘤。
 
-川老爺子想把美國帶回正道，重塑美國價值，媒體是他必須要攻破的重要領域。時過三年，“中共喉舌”美國之音終於易主，臺長、副臺長被驅逐，川普算是奪回壹城。另壹家“中共喉舌”自由亞洲電臺臺長下臺，媒體戰中兩個重要的華語戰場，算是奪回來了。
-
-然而，還有很多媒體在與魔鬼做交易，將靈魂出賣給了中共，川普要讓美國強大，必須先滅中共。
-[!\[\](https://spark.adobe.com/page/DCasguxoNxebO/images/f73006a5-796a-487b-8c3e-192ea71e41a9.jpg?asset_id=c8a59c1b-d082-4e30-acdf-e69fcdfe357f&amp;img_etag=%22d0d365ab7ea553ab76abc0ff12d994e7%22&amp;size=1024)](https://spark.adobe.com/page/DCasguxoNxebO/images/f73006a5-796a-487b-8c3e-192ea71e41a9.jpg?asset_id=c8a59c1b-d082-4e30-acdf-e69fcdfe357f&amp;img_etag=%22d0d365ab7ea553ab76abc0ff12d994e7%22&amp;size=1024)
-本期班農作戰室采訪了比爾·格茨先生：
-
-美國全球媒體機構新任CEO麥克·帕克做了件非常棒的事情，那就是清理門戶。他激怒了很多民主黨和共和黨人，但這絕對是必要的。我們廣播系統的問題是，我們每年花費8億多美元來資助壹個“私營”風格的新聞機構。**這是壹場信息戰，尤其是我們的對手是中共、俄羅斯和其他國家，這不是政府資助私營風格新聞機構的時候，我們需要做的是對付虛假信息，我們需要做的是宣傳美國自由和美國價值觀，這才是他們切實要做的。**因為這些私人控制的企業，信息不能暢通，所以美國之音和其他廣播公司必須進行必要的改革，這是我們必須承擔的責任。這是信息戰，不僅僅是信息戰，而是壹場真正的戰爭！
-
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/DCasguxoNxebO/)
 
 0
