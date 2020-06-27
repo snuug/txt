@@ -1,66 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國防部公布與中共軍方關聯的公司名單
-`2020-06-26 08:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/245977/)
+## 五角大樓指出20家&#8221;中國軍隊公司&#8221;在美國開展業務; 當委會呼籲立刻停止
+`2020-06-26 11:55 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246122/)
 
-作者：Bethany Allen-Ebrahimian\*, Zach Dorfman of the Aspen Institute\*\*，June 24, 2020
+新聞來源：C.P.D.C. 當前危機委員會
 
-譯者：Chloe （文秀）
+翻譯/簡評：TCC； PR：海闊天空； Page：拱卒
 
-美國防部首次公布了在美國經營但與中共軍方關聯的中國公司名單。在Axios獲得的這份名單中，華為，杭州海康威視，中國鐵建和中國電信均赫然在列。
+簡評：
 
-表1.符合《1999年國防授權法》（公法105-261）第1237條的中共國企業
-
-
-|   中文名 | 英文名 |
-| --- | --- |
-| 中國航空工業集團有限公司 | Aviation Industry Corporation of China (AVIC) |
-| 中國航天科技集團公司 | China Aerospace Science and Technology Corporation (CASC) |
-| 中國航天科工集團有限公司 | China Aerospace Science and Industry Corporation (CASIC) |
-| 中國電子科技集團有限公司 | China Electronics Technology Group Corporation |
-| 中國兵器裝備集團有限公司, | China South Industries Group Corporation |
-| 又名中國南方工業集團公司 | China Shipbuilding Industry Corporation |
-| 中國船舶重工集團 | China state shipbuilding corporation |
-| 中國船舶集團有限公司 | China North Industries Group Corporation Limited (Norinco Group) |
-| 中國兵器工業集團有限公司 | Hangzhou Hikvision Digital Technology Co., Ltd (Hikvision) |
-| 海康威視 | Huawei |
-| 華為 | Inspur Group |
-| 浪潮集團 | Aero Engine Corporation of China |
-| 中國航空發動機集團 | China Railway Construction Corporation (CRCC) |
-| 中國鐵建股份有限公司 | CRRC Corp. |
-| 中國中車股份有限公司 | Panda Electronics Group |
-| 熊貓集團 | Dawning Information Industry Co (Sugon) |
-| 中科曙光 | China Mobile Communications Group |
-| 中國移動國際有限公司 | China General Nuclear Power Corp. |
-| 中國廣核集團 | China National Nuclear Corp. |
-| 中國核能電力股份有限公司 | China Telecommunications Corp. |
+又壹重棒，當委會致信特朗普總統，指出20家直接或間接與中共軍方有關聯的公司在過去20年中無聲無息地在美國入侵式拓展業務，這對美國的國家安全與投資者造成巨大風險，應該立即停止。 這是中美關系壹步步邁向脫鉤的不歸路。
 
 
-**為什麽這個名單重要？**：因為川普總統有權對上榜的20家公司動用《國際緊急經濟權力法》，包括對它們施加制裁。
+![](https://spark.adobe.com/page/NXrxKr5UrMRME/images/38aab3f9-fa55-4e6b-9fad-0c9c1b3df13c.png?asset_id=26c3828c-72b2-4fe5-b58b-7d5629d6c61b&amp;img_etag=%2286b6032a09603113238dcb4590730d17%22&amp;size=2560)
+## 
+**五角大樓指出20家”中國軍隊公司”在美國開展業務; 當委會呼籲立刻停止**
 
-**名單出爐背景**：該名單是應《1999年國防授權法案》的要求而做，但時至今日才匯編，或才公布於眾。
+立即發布| 2020年6月25日
 
-•這個名單包含在《國際緊急經濟權力法》的一項條款中，該條款授予川普總統權限將這項法案應用於與中共軍方關聯但又在美國境內運營的中企。
+在致特朗普總統的信中，警告國家安全和投資者所面臨的風險
 
-• 當時的國會通過《1999年國防授權法案》，是希望確保在中共成為世貿組織的成員後不會幫助中共獲得國防科技，以此防止中共提高對美國或其盟友的軍事能力。
+華盛頓特區– 21年以來，美國國防部壹直無視壹項法定要求，揭露所有直接或間接與中國共產黨人民解放軍有聯系的美國公司。 現在我們知道了為什麽：在過去的二十年中，中國軍工綜合體中超過幾十個的重要成員以及其龐大軍事力量的最大推動者被允許在美國開展業務而不受懲罰。 這必須停止。
 
-《**國際緊急經濟權力法**》（**以下IEEPA**）細節：此法案是一項非常強有力的工具，它通常通過美國財政部的制裁將外國公司和個人從美國金融系統中剔除。 目前尚不清楚這份剛出爐的名單是否是美國財政部行動的序幕。
+在今天致給特朗普總統的信中，當委會（CPDC）主席布萊恩·肯尼迪（BrianT. Kennedy）感謝特朗普總統及其對法律的支持與遵守。 他還問了壹些尖銳的問題，關於那些（中共）公司（對美國破壞）的能力，這要歸功於它們對我們的經濟，技術和資本市場的非比尋常地侵入，其中包括：
 
-•美國國會中美經濟與安全審查委員會專員拉裏•沃特澤爾說：“總統可以利用IEEPA所授予的權力對名單上的實體進行制裁”。拉裏以個人的身份在他所能透露的範圍內告訴Axiom這個信息。
+“為什麽我們要允許”直接或間接”我們敵人軍事工業聯合體的公司在美國開展業務？ 他們的”存在”已經到了什麽程度了？ 他們到底在這裏做了些什麽？ 他們與哪些美國公司互動，目的是什麽？ 中共公司在這裏有哪些子公司？ 是否有證據表明在美國境內運營的解放軍公司參與了間諜活動和/或盜竊知識產權？ [並且]，這第壹批人民解放軍公司在美國資本市場的”足跡”已到了甚麽程度？ “
 
-•一位看過這份名單副本的前高級情報官員表示：“上榜的‘總是那幾家公司’。 其中幾家與中共國家安全部有關聯。所有這些公司都是表面上看起來是獨立於中共的私企，但其實後臺都是中共”。
+五角大樓昨日的披露加上當委會已有的其他兩項舉措，更增加了緊迫性：首先，它最近呼籲財政部長史蒂文·姆努欽（Steven Mnuchin）阻止了被參議院調查人員認為在我們自己基礎設施運營商內部從事間諜活動的四家中國電信公司。 國防部剛剛將其中兩個確定為中國解放軍公司，因此包括全部這些特定的20家公司不再允許在美國開展業務。 其次，當委會呼籲美國參議院仔細審查證券交易委員會主席Jay Clayton所扮演的角色，該角色使CCP公司能夠並擴大了從我們的資本市場中吸納數萬億美元的能力，希望能制止繼續這種做法。
 
-白宮安全顧問羅伯特•奧布萊恩今天將以中共全球影響力對美國帶來的挑戰為主題演講。 預計他在演講中將提及這份名單。
-
-國防部對這份名單未予置評。
-
-**接下來的需要註意的事項**：看過這份名單副本的前高級情報官員說：“如果接下來沒有禁止這些公司在美國做生意的此類制裁，那就是光打雷不下雨”。
-
-\*作者Bethany 是Axios裏報道中國的記者，也是《Axios中國》周刊的作者。她專門報道北京的影響力和意圖。
-
-\*作者Zach 是阿斯彭研究所（Aspen Institute）網絡與技術計劃的高級幕後作家，也是卡耐基國際事務倫理委員會的高級研究員。 他的關於國家安全，間諜活動和美國外交政策的報道發表在《政治雜誌》，《大西洋》，《外交政策》，《雅虎新聞》和《華爾街日報》等出版物中。 Zach是2018年Gerald R. Ford新聞獎中傑出國防新聞獎的共同獲獎者，和2017年Livingston獎的決賽入圍者。
-
-原文鏈接：[https://www.axios.com/defense-department-chinese-military-linked-companies-856b9315-48d2-4aec-b932-97b8f29a4d40.html](https://www.axios.com/defense-department-chinese-military-linked-companies-856b9315-48d2-4aec-b932-97b8f29a4d40.html)
+[原文鏈接](https://presentdangerchina.org/2020/06/pentagon-names-20-communist-chinese-military-companies-doing-business-in-america-c-p-d-c-urges-that-stop-now/)
+編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/NXrxKr5UrMRME/)
 
 0

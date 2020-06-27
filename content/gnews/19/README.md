@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月19日中共病毒疫情要聞快報
-`2020-06-26 06:32 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/245824/)
+## 美參議院通過兩黨一致共識的議案： 制裁為國安惡法站台和中共勾兌的金融機構
+`2020-06-26 10:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246047/)
 
-[6.19-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063209/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/05/31010038/%E6%B3%95%E6%A1%88.jpg)
+彭博社2020年6月26日報導，參議院通過一項兩黨達成一致的議案，其內容為處罰與中共官員進行商業合作，支持國安惡法在香港強制推行的銀行企業。該議案由馬里蘭州民主黨議員克里斯.範荷倫（Chris Van Hollen)和賓州共和黨議員帕特.圖米(Pat Toomey)資助，在口頭表決中通過。
 
-[6.19-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063212/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+議案最終需要在國會通過後才能被川普總統表決簽署。該法案同樣被共和黨密蘇里州參議員約什.霍利支持。霍利議員譴責中共破壞1984年中英聯合聲明和香港基本法。三位議員計劃將製裁議案和2021國防授權法案修正案（An amendment to the 2021 National Defense Authorization Act）一同上報表決，已得到更多民意支持和國會議員支持，加速議案最終立法。（注：國會提議要求五角大樓放寬非機密事務的定義限制，將更多年度預算和支出明細公開透明，讓美國人民了解國防經費花銷情況。制裁議案應屬國防範圍，因為不僅是香港機構，美國的金融機構與中共勾結也被處罰。美國機構的行為觸及美國人民利益。）
 
-[6.19-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063215/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+該制裁金融機構議案要求國務院每年向議會報告損害香港“一個國家，兩個制度”的官員。同時議案賦予總統剝奪相關官員財產和禁止其進入美國的權力。議案只限於被確認與中共官員有商業勾結的金融機構，以保護許多有嫌疑的美國公司。這一限制同時也讓金融機構在被制裁前得知其是否在製裁名單裡。另外，若行政機關單邊決定暫時對某些個體免除制裁，國會有權制止總統的決定。
 
-[6.19-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063218/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+中共欲強制推行國安惡法後，在其隱形之手推波助瀾之下，港支中國銀行，光銀國際（光明銀行旗下），中國建設銀行等要求員工簽名支持惡法推行。隨後，匯豐銀行，渣打銀行竟公開支持惡法在港執行。匯豐銀行前首席執行官梁振英發推文為中共背書，稱英澳加三國跟著美國走，干預中共內政，還稱匯豐銀行利潤來自中共，但董事局和高階管理幾乎都是英國人，將敵意來源歸於英國政府。還言匯豐應與中共站在一起避免成為像華為一樣的人質。並警告英資機構誰才有真正話語權（原話：which side of the bread is buttered)。
 
-[6.19-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063221/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+評：
 
-[6.19-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063224/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+此次美國兩黨攜手共同對付金融大鱷之行為，是全球滅共聯盟對中共的一記重拳。雖還不能說釜底抽薪，但至少可以說，美國精英們已經對和中共勾兌的，犧牲自己國家民眾利益貪婪成性的金融家們公開宣戰。
 
-[6.19-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26063228/6.19-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+[原文鏈接](https://www.bloomberg.com/news/articles/2020-06-25/china-sanctions-bill-on-hong-kong-law-approved-by-senate)
+
+翻譯報導：Joyphie
+校對整理：瑞安平
 
 0
