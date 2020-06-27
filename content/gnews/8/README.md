@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
+## 中共搞經濟大量扶持養殖業 爲政績下令全面捕殺 損失的全都是老百姓！
+`2020-06-27 04:56 GM30` [轉載自GNews](https://gnews.org/zh-hant/246831/)
 
-戰友之家圖文摘要組及小語種組
+**作者：滅共日記**
 
-[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
+湖北鹹甯爲落實當地全面禁食野生動物政策，鹹安區林業局無公害處理了近6000公斤人工養殖野生動物。包括竹鼠916只，1695公斤；豪豬7頭，140公斤；以及蛇類4000多公斤。現場工作人員介紹，通過深挖、抛灑石灰等方式對山區圈養的野生動物進行填埋，對生態環境的影響降到最低。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27044012/1-196.png)
+今天我才知道在中共國原來活埋叫無公害處理，其實我並不能理解爲什麽要用活埋作爲處理方式？難道就因爲是野生動物，就應該被活埋嗎？每個小動物都應該有生存的權利，不應該因爲不是食物鏈頂端而被人隨便決定生死，難道你們看不到它們努力掙紮生存的樣子嗎？當初扶持養殖的是中共政府，現在把養殖動物歸類到野生動物的還是中共政府，你們到底要老百姓怎麽辦？怎麽活？另一方面，這些竹鼠都是當地農民辛辛苦苦養殖的，本來中共疫情就讓他們的收入大大縮水，現在還把這些奪走，老百姓的生計怎麽辦？該禁止的是純粹的野味，山上打來的，野生的。而不是經過人工大規模養殖的馴養“野味”。打著貫徹精神的旗號，幹著懶政蠢政的事情。從某種意義上，這就是一刀切的懶政。要麽就大力宣傳竹鼠蛇類養殖好得很，要麽就幹脆全部填埋了。這個新聞的出現，給我的感覺就是在堅持貫徹中共指示的一種精神的表態，地方官員都知道畢竟口頭說誰都會，造各種詞，編各種長短句誰都能說，但是要做出這個姿態就不是人人都能做的。說的難聽點，在地方官員眼裏，中共政府就是放個屁下面的地方官員都要搶著吸，地方百姓就算快餓死了，只要上面不發話，下面的地方官員完全就當看不見！千萬不要和這些畜生談人命？說到底，在執政者眼裏，肉分五花三層，人自然也要分三六九等，老百姓的命哪有他們的官位重要啊。
 
-[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27044140/2-170.jpg)
 
-[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
+而湖北鹹甯這一舉措也充分說明地方政府對付中共疫情的手段已經黔驢技窮了，現階段，能用的手段，都用上了，大致思路就是，甯可錯殺一百，不可放過一個。萬一這地兒，再來一次中共瘟疫，上級領導審查時問：你們做過什麽預防措施呀？湖北鹹甯的防疫辦可以說，我們埋過6000公斤竹鼠和蛇類呀。“還是下了大力氣的”有了這套說辭，未來面對中共審查，就有了擋箭牌，有了應對之詞。很顯然，一刀切是最省事的處理方法。同時，一刀切的部門還不需要承擔因爲一刀切的後果，那就更妙不可言了。至于爲什麽這一刀切不到海鮮産業上面。那是因爲這個産業太大了，切不動。如果整個海鮮産業規模和竹鼠養殖業差不多，肯定也被一刀切了。再怎麽說，也沒辦法否定，一個查出中共病毒的海鮮産業現在可以自然生存，另一個受傳言影響的産業卻被連根拔起。
 
-[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27044612/3-106.jpg)
 
-[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+經過這麽一弄，估計養殖戶不敢擴大生産，也不敢嘗試新品種了。就跟去年的豬瘟一樣，把豬圈都拆了，豬肉漲價了，又鼓勵養豬了，可誰敢啊？中共是嘴上喊著生命不分貴賤、衆生平等，手底下卻做著如此大規模的屠殺。這不就是強者對弱小的淩虐嗎？最惡心的是填埋了還發視頻出來顯政績這點真TM惡心人！所以說在中共國千萬不要聽政府忽悠，他們今天折騰蝙蝠，明天搞三文魚，後天又拿竹鼠開刀。中共做這些完全是無用功，其實大家早就知道誰才是病毒！
 
-[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+GNEWS之前文章：
+中共【合村並居】真的不能再榨了 [https://gnews.org/zh-hans/243267/](https://gnews.org/zh-hans/243267/)
+北京新發地疫情爆發 中共故技重施 [https://gnews.org/zh-hans/241175/](https://gnews.org/zh-hans/241175/)
+陽泉市副市長竟用黨性擔保 [https://gnews.org/zh-hans/239948/](https://gnews.org/zh-hans/239948/)
 
-[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
+（文章內容僅代表作者觀點）
 
 0

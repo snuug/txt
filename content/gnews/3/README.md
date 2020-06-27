@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府是如何推進聯邦節能行動的報告
-`2020-06-27 05:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/246857/)
+## 澳洲媒体投入灭共行动
+`2020-06-27 08:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246906/)
 
-**How the Trump Administration is Advancing Efficient Federal Operations**
+*作者：Giselle*
 
-June 25, 2020
+*校對：Julia Win*
 
-By:[Mary B. Neumayr](https://www.whitehouse.gov/people/mary-b-neumayr/) ***and Charlotte Skidmore***
+*Page：拱卒*
 
-## **川普政府是如何推進聯邦節能行動的**
+從來避談中共的澳洲媒體，這兩天仿佛換了張臉，不但24日連續發布3條反共新聞，在接下來的25日、26日，不斷有澳洲主流媒體加入對中共的討伐行動，重磅消息連發見諸報端。
 
-2020年6月25日
+我們知道澳洲是被中共藍金黃最嚴重的地方之壹。據爆料革命發起人郭文貴先生在班農作戰室透露，自2014年以來，中共每年花費15億美元收買澳洲媒體、政要，以達到控制澳洲媒體以及資源的需求。中澳每年貿易金額高達2000億美元，如此巨量的經濟往來，使得中澳兩國在利益上盤根錯節，難以分割，因此，盡管CCP-virus導致澳洲經濟停擺、人員傷亡，但主流媒體始終三緘其口，或者為中共站臺、辯護。
 
-作者：Mary B. Neumayr和Charlotte Charlottedmore
+時隔數月，國際形勢發生了翻天覆地的巨大變化，在爆料革命不斷提供證據、揭露真相的行動中，美國共和黨、民主黨已達成滅共共識，而作為五眼聯盟成員的澳洲，其政要、媒體的態度，也在悄悄改變。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
+- 6月24日，獨立調查媒體 Crikey Australia 呼籲所有媒體從業人員區分來自中共統戰組織的滲透和澳大利亞華人真正的社區組織。 文章作者 John Fitzgerald 呼籲澳大利亞政府邀請更多獨立亞裔來共同對抗中共的滲透和壓制。
 
-Today, the Council on Environmental Quality released the annual update on agency performance in meeting the goals of President Trump’s [Executive Order 13834 on Efficient Federal Operations](https://www.whitehouse.gov/presidential-actions/executive-order-regarding-efficient-federal-operations/). A priority of this Administration is the efficient management of Federal operations to meet statutory requirements established by Congress in a streamlined, cost-effective manner that supports agencies’ missions and advances environmental protection. Despite an incredibly diverse set of Federal government operations, whether it’s the Department of Defense, which ensures our nation’s security, or the Smithsonian Institution, which protects our nation’s priceless art and heritage, all Federal agencies are uniquely contributing to Federal sustainability goals and making substantial progress in carrying out their shared obligations as good stewards of the environment.
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
+- 24日，ABC news記者Eden Hynninen報道：中共國日前要求所有澳大利亞出口商簽署“聲明”出口貨物不含CCP病毒。澳大利亞農業部長表示，澳大利亞食品安全標準是世界領先的，並建議出口商不要簽署任何聲明文件，此舉可能被認為是中共國的報復手段。
 
-今天，環境品質委員會發佈了川普總統關於聯邦節能行動的13834號行政令執行情況的年度報告。本屆政府的首要任務是按照國會既定條例法規以精簡節儉的方式對聯邦各部門進行有效管理， 以此來支持各部門工作並促進環境保護。儘管各部門的運作方式極為多樣化，無論是確保國家安全的國防部，還是保護國家無價藝術品和遺產的史密森尼學會，所有部門都為聯邦政府可持續發展做出了獨特貢獻，並在履行保護環境義務上取得長足進展。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=1024)
+- 24日，Skynews報道稱，聯合國取代世衛成為中共國的“走狗”。S主持人 Paul Murray在節目中指出, 中共國通過收買手段使聯合國和各種國際組織成為其“走狗”，又壹次讓中共國從踐踏人權的惡性罪行中逃脫。
 
-Fiscal year 2019 data, published today on [sustainability.gov](https://www.sustainability.gov/), demonstrates that agencies continued to improve environmental performance in the past year and made government-wide progress, reducing building energy use by more than 641 billion Btu and water consumption by more than 175 million gallons, increasing the total value of sustainable acquisitions, and reducing greenhouse gas emissions from Federal operations for the third year in a row. The Federal Government also exceeded renewable energy requirements with 8.6 percent of electricity consumed coming from renewable qualifying sources as defined in the Energy Policy Act of 2005.
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=2850)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=1024)
+- 25日，《Sydney Morning Herald》（悉尼先驅晨報）揭露：維州與科大訊飛簽署了壹系列合作協議, 由科大訊飛 (IFlytek) 為維州政府提供多種服務。科大訊飛由於參與新疆迫害被美國制裁，維州與中共國關系密切，支持並參與了壹帶壹路項目。
 
-今天在sustainability.gov上發佈的2019財年資料表明，各部門在過去一年中繼續有效改善環境，並在政府範圍內取得了進展，減少了超過6410億英熱單位的建築能耗和超過1.75億加侖的水消耗，增加了可重複使用物品的收購，並連續第三年減少了來自聯邦政府運營的溫室氣體排放。聯邦政府還超過了《 2005年能源政策法案》規定的8.6％來自可再生能源的要求。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=2677)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=1024)
+- 25日《Sydney Morning Herald》報道：澳洲前總理 Malcolm Turnbull 呼籲南海各國家對中共國保持高壓，拒絕其對南海的任何主權宣誓。
 
-Contributing to each of these improvements is the substantial progress made in fiscal year 2019 in sustainable buildings, with an increase of 11 million square feet – for a total of 207 million square feet– in the Federal portfolio. Sustainable buildings are those that are constructed and operated to reduce energy, water, and material resource use; improve indoor environmental quality; reduce negative impacts on the environment; reduce the environmental and energy impacts of transportation; and consider the indoor and outdoor effects of the building on human health and the environment.
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=3069)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=1024)
+- 26日，《Sydney Morning Herald》連發三篇報道：
 
-這些改進中的每一項都在2019財年可持續建築方面取得實質性的進展。聯邦政府增加了1,100萬平方英尺此類建築的建設，其總量達到2. 07億平方英尺。可持續使用建築是專指為減少能源，水和物質資源的使用，改善室內環境品質，減少對環境的負面影響，減少運輸對環境和能源的影響，並考慮建築物在室內和室外對人體健康和環境的影響而建造和運營的建築。
 
-An example is the Department of the Interior’s Genoa National Fish Hatchery and Great River Road Interpretive Center in Genoa, Wisconsin. This high-performance sustainable building has achieved energy performance 62 percent better than an average building by implementing numerous innovative energy efficient strategies. In addition, implementation of new, water efficient technologies conserve about 36,900 gallons of potable water annually.
+1.《Sydney Morning Herald》報道了澳大利亞ASIO反間諜機構當日突襲了新洲共黨議員NSW Labor Shaoquett Moselmane住所，調查他作為中共的代理人對澳大利亞的滲透。據悉這是ASIO近年來最為重大的調查之壹，預示著澳大利亞親共政客們噩夢開啟。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=2692)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=1024)
+2.同日，《Sydney Morning Herald》報道了壹篇非常有意思的采訪，標題使用了“little pinks”（小粉紅）這個字眼：世界各地小粉紅們紛紛表示傷透了心，他們深愛的中共國已經拋棄了他們。美國的粉紅們說中共國怕他們傳播病毒不讓他們回國，他們的內心拔涼拔涼的；日本的粉紅們終於認清現實中根本沒有戰狼勇士來營救他們，很多小粉紅們表示開始懷疑自己的人生……
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=1024)
+3. 同日，《Sydney Morning Herald》澳大利亞駐英國最高外交大臣George Brandis強烈譴責CCP散布疫情虛假消息，進而摧毀民主自由制度的可恥行徑，他批評了CCP對澳大利亞的網絡攻擊行為，並表示英國正和澳大利亞壹起聯手對抗中共。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=1024)
+種種跡象皆顯示，全球滅共大聯盟正在初步成型，美歐、美澳、美俄、亞太……中共末日喪鐘已經敲響，面臨被全球圍剿、無處可逃絕境。
 
-位於威斯康辛州熱那亞市，附屬內政部的熱那亞國家漁場和河道管理中心就是一個例子。通過實施眾多創新的節能戰略，該建築的能源性能比普通建築提高了62％。此外，新的節水技術每年可節省約36,900加侖的二氧化碳。
-
-Federal agencies have also made substantial progress in reducing energy use, with the lowest total energy use on record and the second lowest building energy use per square foot since 2003. Sixteen agencies have surpassed the 30 percent statutory energy reduction requirement, and agencies continue to demonstrate improvements over last year, such as the Department of Commerce, which reduced its energy use per square foot by 6.9 percent in one year, in large part through an innovative energy efficiency project at the National Institute of Technology campus in Gaithersburg, Maryland, that included the installation of a new Combined Heat and Power Plant and a five mega-watt solar array.
-
-聯邦政府在減少能源消耗方面也取得了實質性進展，自2003年以來，實現了最低的總能源使用量和史上第二低的每平方英尺能源使用量。十六個部門的節能量已經超過了法定的30％，並且各部門與去年相比有持續改善，例如商務部在一年內將其每平方英尺的能源使用量減少了6.9％，這在很大程度上是通過位於馬里蘭州蓋瑟斯堡的國家技術研究院的創新節能項目實現的，其中包括安裝革新的熱電聯產電廠和一個5兆瓦的太陽能電池板。
-
-NASA’s Glenn Research Center also reduced its energy use at Lewis Field and Plum Brook Station, with an innovative project that implements energy conservation measures to improve heating, ventilation, and air conditioning; lighting; and potable water systems. The project is saving 61.8 billion Btu of energy and 7.2 million gallons of water annually, and in the first year, the estimated energy, water, and maintenance cost savings totaled $1.2 million.
-
-美國國家航空航天局（NASA）的葛籣研究中心（Glenn Research Center）還通過一項創新項目減少了路易斯基站（Lewis Field）和梅花溪基站（Plum Brook Station）的能源消耗。該專案的實施每年將可節省618億Btu的能源和720萬加侖的水。第一年在能源、水和維護成本方面節省費用總計達約120萬美元。
-
-These examples show that despite a wide variety of missions and operational requirements, agencies are achieving, and in many cases far exceeding, sustainability goals. Through all the hard work by Federal agencies in meeting President Trump’s Executive Order, we are not only conserving resources, but saving taxpayer dollars, improving agency resilience to meet their missions, and continuing to serve the American people.
-
-這些示例表明，儘管各部門職能和運行要求大有不同，但各部門仍不斷實現並在許多情況下遠遠超過了可持續發展目標。通過各方致力執行此項總統行政令，聯邦各部門不僅節省了資源，也節省了納稅人的錢，增強部門後續執政力，得以持續服務美國人民。
-
-原文：[https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/](https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/)
-
-*翻譯：【一花一世界】校對：【V%】*
-
-*戰友之家玫瑰園小隊出品*
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/C1kviAW9qVrq3/)
 
 0

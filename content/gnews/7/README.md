@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國《外國主權豁免法》聽證預修正，只爲追責中共罪魁！
-`2020-06-27 04:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/246769/)
+## 川普政府是如何推進聯邦節能行動的報告
+`2020-06-27 05:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/246857/)
 
-**作者：亞倫**
+**How the Trump Administration is Advancing Efficient Federal Operations**
 
-6月23日美國參議院司法委員會召開《外國主權豁免法》聽證會，嚴肅認真地討論了對《外國主權豁免法》（不能起訴外國主權國家的法案）的修正案。爲剝奪中共國家主權豁免權，爲向中共追責並巨額索賠掃除障礙，提供法律支持！
+June 25, 2020
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040406/111-4.jpg)
+By:[Mary B. Neumayr](https://www.whitehouse.gov/people/mary-b-neumayr/) ***and Charlotte Skidmore***
 
-知識小補充：
+## **川普政府是如何推進聯邦節能行動的**
 
-國家主權豁免，指一個國家免受另一國法院的管轄，該規則是對國家主權的一種保護。該規則僅限于一個國家在另一國家進行的法律訴訟，在其本國進行的法律訴訟則不被豁免。目前，各國傾向于有例外的國家豁免，特別是當某個國家涉及商業交易或者非主權活動時。
+2020年6月25日
 
-1976年，美國頒布《外國主權豁免法》，一般性的禁止針對外國政府提起訴訟，規定外國如有下列情況之一, 不享有豁免: ①放棄豁免；②在美國從事商業活動；③沒收在美國的財産；④涉及在美國的不動産; ⑤在美國發生的侵權行爲。
+作者：Mary B. Neumayr和Charlotte Charlottedmore
 
-之前密蘇裏州檢察長在提出針對中國的訴訟案時試圖使用《外國主權豁免法》中的一些例外來繞過主權豁免原則帶來的限制，其中一個例外是中國病毒實驗室裏的“商業活動”不受美國主權豁免法的限制；另一個是，疫情爆發造成的經濟損失允許提出侵權索賠。但是美國的法律專家對《外國主權豁免法》中的這些例外能否適應于這些訴訟感到懷疑。所以早在4月20日，就有美國議員他們預備推出兩部新法案，盼透過剝奪中共政府主權豁免權，爲受疫情損失的美國民衆向中共索賠鋪路。
+Today, the Council on Environmental Quality released the annual update on agency performance in meeting the goals of President Trump’s [Executive Order 13834 on Efficient Federal Operations](https://www.whitehouse.gov/presidential-actions/executive-order-regarding-efficient-federal-operations/). A priority of this Administration is the efficient management of Federal operations to meet statutory requirements established by Congress in a streamlined, cost-effective manner that supports agencies’ missions and advances environmental protection. Despite an incredibly diverse set of Federal government operations, whether it’s the Department of Defense, which ensures our nation’s security, or the Smithsonian Institution, which protects our nation’s priceless art and heritage, all Federal agencies are uniquely contributing to Federal sustainability goals and making substantial progress in carrying out their shared obligations as good stewards of the environment.
 
-雖說速度有點慢，時隔兩個月後，《路德社》爆出了美國參議院司法委員會開始聽證會，美國非常清楚中共將利用“國家豁免權”來逃避釋放病毒的責任。爲此專門針對這個問題展開討論，以民事訴訟爲基礎，查封凍結中共國在美資産爲手段，迫使中共必須面對訴訟並且不被“國家豁免權”所保護， 從而達到民事賠償的目的！
+今天，環境品質委員會發佈了川普總統關於聯邦節能行動的13834號行政令執行情況的年度報告。本屆政府的首要任務是按照國會既定條例法規以精簡節儉的方式對聯邦各部門進行有效管理， 以此來支持各部門工作並促進環境保護。儘管各部門的運作方式極為多樣化，無論是確保國家安全的國防部，還是保護國家無價藝術品和遺產的史密森尼學會，所有部門都為聯邦政府可持續發展做出了獨特貢獻，並在履行保護環境義務上取得長足進展。
 
-這次《外國主權豁免法》聽證特別指出，只是針對中共國，絕不針對其他國家。霍利參議員在司法委員會上表示：中共在作案的第一時間撒謊，勾結WHO對疫情進行掩蓋，引用“商業異議條款”，授權法庭凍結中共國的在美資産。路德先生特別透露，霍利是班農先生扶持的青年政治家，這個司法聽證會從3月份就開始籌備（共和黨籍衆議員古登（Lance Gooden）及共和黨籍參議員霍利（Josh Hawley）也相繼提出“阻止源自中國病毒傳染病法案”（Stop COVID Act）與“2019冠狀病毒（中共病毒）疾病受害者正義法案”（Justice for Victims of COVID-19 Act），之所以沒有全面推進是因爲中共耍大刀、一直在拖時間搞談判，但彭楊夏威夷會談的徹底談崩（最後通牒），聽證會隨之也正式推進。
+Fiscal year 2019 data, published today on [sustainability.gov](https://www.sustainability.gov/), demonstrates that agencies continued to improve environmental performance in the past year and made government-wide progress, reducing building energy use by more than 641 billion Btu and water consumption by more than 175 million gallons, increasing the total value of sustainable acquisitions, and reducing greenhouse gas emissions from Federal operations for the third year in a row. The Federal Government also exceeded renewable energy requirements with 8.6 percent of electricity consumed coming from renewable qualifying sources as defined in the Energy Policy Act of 2005.
 
-霍利參議員對于法案條款的查缺補漏，不再給中共鑽法律空子的空間。之前主權豁免法案堪稱中共的護身符，一再的使得中共免于法院的訴訟。
+今天在sustainability.gov上發佈的2019財年資料表明，各部門在過去一年中繼續有效改善環境，並在政府範圍內取得了進展，減少了超過6410億英熱單位的建築能耗和超過1.75億加侖的水消耗，增加了可重複使用物品的收購，並連續第三年減少了來自聯邦政府運營的溫室氣體排放。聯邦政府還超過了《 2005年能源政策法案》規定的8.6％來自可再生能源的要求。
 
-川普總統上台，不按套路出牌，打破了以前兩黨政治中的很多潛規則，以前的總統候選人在競選時很多都承諾要搬遷到耶路撒冷，只有川普總統在上任第一年就實現了。中共面對之前的美國總統都是以反共爲口炮爬上總統大位後，開始和中共勾兌，掉入中共想要的鍾擺效應的手掌心。
+Contributing to each of these improvements is the substantial progress made in fiscal year 2019 in sustainable buildings, with an increase of 11 million square feet – for a total of 207 million square feet– in the Federal portfolio. Sustainable buildings are those that are constructed and operated to reduce energy, water, and material resource use; improve indoor environmental quality; reduce negative impacts on the environment; reduce the environmental and energy impacts of transportation; and consider the indoor and outdoor effects of the building on human health and the environment.
 
-法律設置的最終目的是保障人權，契約穩定存在就是社會穩定，這是法律應有的本質。目前美國民衆已經被中共的實驗室制造，精准投毒折騰的不堪重負；煽動恐怖主義組織Antifa以一個冠冕堂皇的黑人命貴爲口號打砸搶美國各個大城市，給疫情下的美國經濟又一重創。期待《外國主權豁免法》快速修補，並有利的執行，給美國和世界人民一個交代。
+這些改進中的每一項都在2019財年可持續建築方面取得實質性的進展。聯邦政府增加了1,100萬平方英尺此類建築的建設，其總量達到2. 07億平方英尺。可持續使用建築是專指為減少能源，水和物質資源的使用，改善室內環境品質，減少對環境的負面影響，減少運輸對環境和能源的影響，並考慮建築物在室內和室外對人體健康和環境的影響而建造和運營的建築。
 
-（文章內容僅代表作者觀點）
+An example is the Department of the Interior’s Genoa National Fish Hatchery and Great River Road Interpretive Center in Genoa, Wisconsin. This high-performance sustainable building has achieved energy performance 62 percent better than an average building by implementing numerous innovative energy efficient strategies. In addition, implementation of new, water efficient technologies conserve about 36,900 gallons of potable water annually.
+
+位於威斯康辛州熱那亞市，附屬內政部的熱那亞國家漁場和河道管理中心就是一個例子。通過實施眾多創新的節能戰略，該建築的能源性能比普通建築提高了62％。此外，新的節水技術每年可節省約36,900加侖的二氧化碳。
+
+Federal agencies have also made substantial progress in reducing energy use, with the lowest total energy use on record and the second lowest building energy use per square foot since 2003. Sixteen agencies have surpassed the 30 percent statutory energy reduction requirement, and agencies continue to demonstrate improvements over last year, such as the Department of Commerce, which reduced its energy use per square foot by 6.9 percent in one year, in large part through an innovative energy efficiency project at the National Institute of Technology campus in Gaithersburg, Maryland, that included the installation of a new Combined Heat and Power Plant and a five mega-watt solar array.
+
+聯邦政府在減少能源消耗方面也取得了實質性進展，自2003年以來，實現了最低的總能源使用量和史上第二低的每平方英尺能源使用量。十六個部門的節能量已經超過了法定的30％，並且各部門與去年相比有持續改善，例如商務部在一年內將其每平方英尺的能源使用量減少了6.9％，這在很大程度上是通過位於馬里蘭州蓋瑟斯堡的國家技術研究院的創新節能項目實現的，其中包括安裝革新的熱電聯產電廠和一個5兆瓦的太陽能電池板。
+
+NASA’s Glenn Research Center also reduced its energy use at Lewis Field and Plum Brook Station, with an innovative project that implements energy conservation measures to improve heating, ventilation, and air conditioning; lighting; and potable water systems. The project is saving 61.8 billion Btu of energy and 7.2 million gallons of water annually, and in the first year, the estimated energy, water, and maintenance cost savings totaled $1.2 million.
+
+美國國家航空航天局（NASA）的葛籣研究中心（Glenn Research Center）還通過一項創新項目減少了路易斯基站（Lewis Field）和梅花溪基站（Plum Brook Station）的能源消耗。該專案的實施每年將可節省618億Btu的能源和720萬加侖的水。第一年在能源、水和維護成本方面節省費用總計達約120萬美元。
+
+These examples show that despite a wide variety of missions and operational requirements, agencies are achieving, and in many cases far exceeding, sustainability goals. Through all the hard work by Federal agencies in meeting President Trump’s Executive Order, we are not only conserving resources, but saving taxpayer dollars, improving agency resilience to meet their missions, and continuing to serve the American people.
+
+這些示例表明，儘管各部門職能和運行要求大有不同，但各部門仍不斷實現並在許多情況下遠遠超過了可持續發展目標。通過各方致力執行此項總統行政令，聯邦各部門不僅節省了資源，也節省了納稅人的錢，增強部門後續執政力，得以持續服務美國人民。
+
+原文：[https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/](https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/)
+
+*翻譯：【一花一世界】校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
