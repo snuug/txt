@@ -1,47 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國家安全顧問羅伯特·奧布賴恩談川普總統和習近平
-`2020-06-26 21:38 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246413/)
+## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/26213042/Picture-1-140.png)圖片來源：[www.india.com](https://www.india.com/viral/five-plagues-have-come-out-of-china-at-some-point-it-has-to-stop-us-natl-security-advisor-4027875/)
-國家安全顧問羅伯特·奧布賴恩（Robert O’Brien）6月24日亞利桑那州鳳凰城發表了有關中國共產黨的極其重要的演講，6月25日上午參加了休·休伊特（Hugh Hewitt）的訪談節目，具體(部分)內容如下：
+戰友之家圖文摘要組及小語種組
 
-HH：你昨天在亞利桑那州發表了演講。我與《華盛頓郵報》的喬什·羅金（Josh Rogin）討論了你的演講，你將中國共產黨總書記習近平比作斯大林（Josef Stalin），你打算用這種方式逼中國出招嗎？
+[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
 
-RO’B：哦，我是把中國共產黨和前蘇聯共產黨作比較，我提出的觀點是學者們過去提出過的，那就是中國共產黨是唯一一個從未正式與斯大林主義決裂的執政共產黨，這是一個馬克思列寧主義的政黨，他們從未與斯大林分道揚鑣。在人民解放軍（PLA）博物館中，就保存有斯大林雕像。所以我說，我們必須了解，中國是被一個信奉馬克思列寧主義和斯大林主義的共產黨統治的，這也是他們自己大肆宣揚的，這不是我給他們貼的標籤，是他們自己的意識形態和自己的教條學說。
+[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
 
-HH：奧布賴恩先生，我現在聽到斯大林主義時，我就想到中午的黑暗，我就想到了古拉格，我也想到關押在中國集中營中的維吾爾族人。如果要形容一下習總書記，只能說他是個殘暴的人。川普總統可以和他打交道嗎？
+[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
 
-RO’B：嗯，川普總統本人是個硬漢。我們當然證明了我們可以就第一階段貿易談判與中國達成協議。但是請記住，這個協議之所以能夠談成是因為川普總統做了40年來任何其他總統都沒能做到的事情，他對中國征收高額關稅。許多年來中共實行不公平貿易做法，每年從我們的經濟中獲利超過5,000億美元，扼殺了我們在美國本土的製造業基地，川普總統要中共為此付出代價。因此，川普總統開始徵收關稅，正是因為徵收了關稅，我們才得以達成協議。但這不僅僅只涉及貿易，我的意思是，這還與中共進入我們的資本市場有關，這與盜竊知識產權有關，這是關於中共試圖將權力之手延伸到國外讓美國人禁言，就像他們對付在推特上發布有關香港示威活動信息的休斯頓火箭隊總教練那樣。可以說，中共在各個領域都很活躍，因此我們正在採取非常謹慎的步驟來與中國當局打交道並保護美國人。
+[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
 
-HH：奧布萊恩先生，六個月前，美國經濟是有史以來最偉大的。雖然經濟情況有些改善，但我們現在仍然處於經濟衰退中。川普總統是否會把我們的經濟現狀怪罪並譴責習總書記？
+[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
 
-RO’B：我認為他不會親自譴責習近平。但我認為，總統已經說了，這個瘟疫，即COVID病毒，也就是武漢肺炎，中國人曾經也這麼說，但是後來就改了，不僅改了疫情的歷史，也改了這種疾病的標籤，在疫情早期中共不提供任何合作，他們不允許疾控中心（CDC）醫生進入疫區，他們至今仍然沒有將病毒樣本提供給我們，他們阻止了對該病毒起源和傳播的調查。然後病毒就傳播到了美國，在這裡肆虐。它殺死了超過12萬美國人，它造成了價值達數万億美元的損失。因此，我們必須立即著手解決與中共有關的實際問題，我認為不僅川普總統認識到了這一點，每一個美國人都認識到了。
+[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
 
-HH：現在，喬希·羅金將政府官員劃分為溫和派或強硬派。蓬佩奧（Pompeo）國務卿和你顯然屬於強硬派。吉姆·塔爾特（Jim Talent）認為姆努欽（Mnuchin）部長屬於溫和派。在這兩個陣營中，總統最關注誰？
-
-RO’B：是的，我拒絕這些標籤，我認為不存在溫和派或強硬派。我認為他們是一群在政府部門工作的偉大的美國人，他們正在努力確保美國人的安全並保護我們的經濟。在個別問題上他們可能有意見分歧，但我認為，包括姆努欽部長，當然還有邁克·蓬佩奧，我本人和其他人在內，每個人都有明確一致的觀點，即我們必須解決這個中國的威脅， 由中國共產黨帶到我們海岸上的威脅。我們必須以清晰，理性的方式去解決。我們將採取行動，財政部將採取行動，商務部將採取行動。我們已經在許多領域解決了這一威脅。而且我認為內閣在這方面意見基本一致。
-
-HH：新聞媒體今天是否應該相信中共公佈的冠狀病毒在中國傳播的範圍和地點的數據？
-
-RO’B：好吧，讓我問你這個問題。如果某個國家驅逐了《紐約時報》，《華爾街日報》和《華盛頓郵報》在這個國家的記者，他們審查在微信等社交媒體平台上出現的所有信息，如果他們試圖審查管控民眾甚至是身處自由國家的海外人士， 你會相信他們嗎？我說的就是這個問題。因此，這個問題的答案非常簡單。我認為目前很難相信來自中共官方國家機構的任何消息。我們再次呼籲中共打開對病毒的起源和傳播調查之門。澳大利亞要求對COVID進行中立的國際調查，中國不僅不和他們的太平洋鄰國澳大利亞合作，反而對澳大利亞的大麥徵收80％的關稅作為懲罰，這僅僅是因為呼籲對發生的疫情進行獨立調查。
-
-HH：曾經是奧巴馬（Obama）總統和布什（George W. Bush）總統任命的國防部長羅伯特·蓋茨（Robert Gates）週二在我這個訪談節目中表示，我們正處於第二次冷戰之中，的確，這一次更危險。羅伯特·奧布賴恩先生，你是否同意這一評估？
-
-RO’B：你知道，我現在不想說這是冷戰，但我的確認為蓋茨部長是正確的，因為這是美國自30年代以來，甚至可能是有史以來所面臨的最大地緣政治挑戰。我的意思是，中國是一個擁有超過13億人口的龐大國家。中國人很努力很聰明，而且他們(翻譯註釋：事實上是中共盜國賊，並非普通中國民眾)竭盡全力試圖主宰世界，他們希望成為世界第一霸主。他們信仰共產主義是人類的共同目標，認為共產黨可以代表每一個人，採用各種手段維穩，搞理想信念洗腦教育，搞金錢誘惑，甚至剷除異己，從而使中共不僅在亞太地區乃至整個世界實現自己的稱霸意願。
-
-因此，這是一個巨大的挑戰。我認為蓋茨部長對此已經作了恰當的描述。但是，美國是強大的國家，無論面對納粹德國，日本帝國，或者蘇聯，我們都沒有輸過。美國人很創新，很努力，也很聰明。所以，我現在和將來都永遠會對美利堅合眾國充滿信心。
-
-HH：當你坐下來與川普總統互相交談時，或者當你在聽他與世界其它國家領導人進行雙邊對話時，請問奧布賴恩先生，關於中共的話題會經常出現在會議桌上嗎？
-
-RO’B：瞧，這是個一直在討論的話題，特別是自從COVID病毒疫情發展和COVID病毒的傳播蔓延之後。這個病毒來自中國，最初中國隱瞞了這種病毒，使世界失去了幾個月的時間來應對病毒。中國對世界衛生組織作了隱瞞，這使有關該病毒的正確信息至少晚發布了一個月或兩個月，造成十幾萬美國人死亡，全世界有更多人喪失生命。可以肯定的是，每個世界領導人都在與川普總統談論中國。我們確實有不同之處，你知道，我們可以同時邊走路邊嚼口香糖。我們對世界各地的各種問題都有不同的議程，川普總統會關注這些問題。但我可以告訴你，全世界幾乎每個國家都受到了COVID的影響。關於世界領導人的看法，無論他們在公開場合說什麼，在私底下，他們都對中國非常擔憂。他們非常擔心這種病毒的傳播蔓延。他們指望作為自由世界領導人的川普總統給他們提供建議和指導，確保美國站在正義的一邊，而我們必須主持正義。川普總統正在以一種不動聲色和隱密的方式動員世界各地的力量，即要解決COVID的問題，同時還要確保這種情況今後不再發生。
-
-HH：奧布賴恩先生，謝謝你參加我的訪談節目。謝謝你昨天在鳳凰城發表的重要演講。我感謝你大聲疾呼中國共產黨的本質就是馬克思列寧主義政黨。希望有更多的人了解中國共產黨，你可以與它達成協議，但請記住列寧說過“他們會把繩索賣給我們”。而我們不能把繩索再賣給他們。
-
-[原文鏈接](https://www.hughhewitt.com/national-security-advisor-robert-c-obrien-on-president-trump-and-general-secretary-xi/)
-
-翻譯報導：下里巴人
-校對整理：瑞安平
+[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
 
 0

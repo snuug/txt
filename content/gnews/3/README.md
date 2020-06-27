@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI文件揭露中共駐美大使參與秘密招募科學家工作
-`2020-06-27 02:59 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246644/)
+## 川普政府是如何推進聯邦節能行動的報告
+`2020-06-27 05:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/246857/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27025607/image1-6-1.jpeg)圖片來源：www.the-scientist.com
-據《華盛頓觀察家報》（The Washington Examiner）記者凱特琳·耶勒克（Caitlin Yilek）和傑里·鄧利維（Jerry Dunleavy）於6月25日在該報發表的文章指出，美聯邦調查局（FBI ）調查顯示，中共駐美大使和某中共駐紐約外交官曾暗中參與在美招募科學家的工作。
+**How the Trump Administration is Advancing Efficient Federal Operations**
 
-文章中透露在4月被美聯邦法院解封的一份FBI去年向聯邦法院提交的文件中，對中共在美的間諜活動策略有深入的描述。該FBI文件於週一在《每日野獸》通訊被首次報導。雖然編輯過程中“中國”一詞幾乎完全（有意地）已從該文件中被刪除，但它確實至少出現過一次。據這份由一名專門從事反情報工作的FBI特工撰寫的文件中顯示，FBI正在調查康涅狄格州的案件, 該案件涉及一位明顯代表中共政府的科學家，在美蓄意招募高水平的分子遺傳學家和乾細胞研究人員人才到中共的大學和實驗室工作，從而轉移美國尖端的分子遺傳學和乾細胞研究技術。該文件進一步指出，這種行動明顯地與中共公開宣稱的技術轉讓和人力資本獲取的國家安全目標相符合。
+June 25, 2020
 
-《華盛頓觀察家報》根據該FBI文件中提供的信息，已確定這位在耶魯大學工作的科學家姓名，但由於他並未被起訴，因此無法公開其姓氏。該科學家在美從事基因研究工作已有數年，並於2009年11月入籍為美國公民，耶魯大學告訴FBI，他們沒有要求研究人員或教授披露其與外部機構關係的規定。該校也沒有回應《華盛頓觀察家報》要求其為此事件置評的請求。而康涅狄格州美國檢察官辦公室的發言人告訴《華盛頓觀察家報》說，他們對此事件也不予置評。
+By:[Mary B. Neumayr](https://www.whitehouse.gov/people/mary-b-neumayr/) ***and Charlotte Skidmore***
 
-據《華盛頓觀察家報》調查，這位科學家目前在中國南方醫科大學工作。他在南醫大工作的時間與在耶魯大學的時間有明確重疊。FBI局長克里斯托弗·雷（Christopher Wray）週三告訴福克斯新聞社（Fox News），該局有2,000多項進行中的調查是與中共政府有關的。2018年9月一位消息人士透露，該科學家一直在美國和中國之間旅行，並試圖招募其他人到中共大學工作，而在這之前FBI其實就已持續調查該科學家有兩年之久。消息人士還表示，來自中共政府的某人可能接觸了這位科學家，並命其在美國招募人員。另一位消息人士也在1月告訴FBI，該科學家的旅行費用是由中國政府資助的，而其行為“明顯的是受中共政府的指示”。據調查，兩位消息人士均不曾因提供信息而得到任何報酬。
+## **川普政府是如何推進聯邦節能行動的**
 
-《華盛頓觀察家報》認為，儘管FBI文件經過大量刪改，但據其中的描述，幾乎可以肯定該教授是與中共國的“千人計劃”有關。而國土安全部也確認，在2017年10月至2018年10月之間，該科學家確實在美國境外度過了300天。消息人士之一還告訴FBI，中共國駐美大使和一位紐約的中共外交官將與其他來美招募科學家的中共官員一起參加在波士頓舉行的一個科學峰會，而被調查的這位科學家正是要在該活動中致開幕辭的幾位發言人之一。FBI說，從這兩位消息人士獲得的信息，已“大部分經FBI成員和其他執法人員的調查證實”。
+2020年6月25日
 
-另外，雖然在《華盛頓觀察家報》取得的未經刪減的FBI文件版本中，崔天凱及那位紐約的中共外交官並未被直接點名，但崔天凱自2013年以來一直就擔任中共駐美大使的事實不變。而中共大使館在《華盛頓觀察家報》就此事諮詢時，否認其駐美外交官協助招募科學家。中共大使館發言人在回應的一份聲明中說：“這種指控不過是惡意的捏造。”
+作者：Mary B. Neumayr和Charlotte Charlottedmore
 
-《華盛頓觀察家報》的報導中也指出，目前無從得知FBI對中共大使的調查究竟有多深入。儘管外國使節享有“最高程度的”外交豁免權，但美國務院強調“外交豁免權並不能作為個人藐視法律的許可證”。這個案例只是中共長期間諜行動的其中之一。如FBI的文件指出，中共國政府也在採取各種“積極步驟” 來掩蓋其招募計劃，以逃避美國“日益嚴格的審查”，例如指示招募人員採用電話或傳真等傳統聯繫方式以減少數字型證據等，但招募人員仍持續以電子郵件作為主要的交流方式。
+Today, the Council on Environmental Quality released the annual update on agency performance in meeting the goals of President Trump’s [Executive Order 13834 on Efficient Federal Operations](https://www.whitehouse.gov/presidential-actions/executive-order-regarding-efficient-federal-operations/). A priority of this Administration is the efficient management of Federal operations to meet statutory requirements established by Congress in a streamlined, cost-effective manner that supports agencies’ missions and advances environmental protection. Despite an incredibly diverse set of Federal government operations, whether it’s the Department of Defense, which ensures our nation’s security, or the Smithsonian Institution, which protects our nation’s priceless art and heritage, all Federal agencies are uniquely contributing to Federal sustainability goals and making substantial progress in carrying out their shared obligations as good stewards of the environment.
 
-明顯地，中共希望通過其“千人計劃”獲取進入美國研究實驗室和學術機構的途徑，通過招募科學家和企業家，以達到竊取知識產權和商業秘密的目的。FBI法院文件明白顯示，美司法部正依據《外國代理人註冊法》對這位科學家進行審查，而司法部下屬的外國代理人登記（FARA）部門也證實他並未註冊為中共代理人。FBI在依法搜查該康涅狄格州科學家的電子郵件帳戶和電話記錄後，發現他與中共政府代表有多次通訊往來，並描述這位教授是某中國科技協會的主席，而該協會網站上稱該組織“是連接中共科技界與中國共產黨和中共政府的橋樑”。
+今天，環境品質委員會發佈了川普總統關於聯邦節能行動的13834號行政令執行情況的年度報告。本屆政府的首要任務是按照國會既定條例法規以精簡節儉的方式對聯邦各部門進行有效管理， 以此來支持各部門工作並促進環境保護。儘管各部門的運作方式極為多樣化，無論是確保國家安全的國防部，還是保護國家無價藝術品和遺產的史密森尼學會，所有部門都為聯邦政府可持續發展做出了獨特貢獻，並在履行保護環境義務上取得長足進展。
 
-美國司法部於2018年啟動了“中國行動”，以打擊中共間諜活動的威脅，並已逮捕、起訴了參與千人計劃的多位科學家。NIH本月初曾發表說，因沒有披露與外國政府的財務聯繫，至少有54名科學家已被撤職。而其中絕大多數（93％）的案例均涉及來自中共機構的資金。
+Fiscal year 2019 data, published today on [sustainability.gov](https://www.sustainability.gov/), demonstrates that agencies continued to improve environmental performance in the past year and made government-wide progress, reducing building energy use by more than 641 billion Btu and water consumption by more than 175 million gallons, increasing the total value of sustainable acquisitions, and reducing greenhouse gas emissions from Federal operations for the third year in a row. The Federal Government also exceeded renewable energy requirements with 8.6 percent of electricity consumed coming from renewable qualifying sources as defined in the Energy Policy Act of 2005.
 
-評：
+今天在sustainability.gov上發佈的2019財年資料表明，各部門在過去一年中繼續有效改善環境，並在政府範圍內取得了進展，減少了超過6410億英熱單位的建築能耗和超過1.75億加侖的水消耗，增加了可重複使用物品的收購，並連續第三年減少了來自聯邦政府運營的溫室氣體排放。聯邦政府還超過了《 2005年能源政策法案》規定的8.6％來自可再生能源的要求。
 
-本文中揭露的案例只是中共長期偷竊知識產權和商業機密行為的冰山一角而已。從Gnews之前翻譯報導的NIH文章和本報導提到的FBI文件中的描述，可以看到中共的間諜陰謀其實已明顯捉襟見肘。邪不壓正，中共的邪惡野心正在被逐步揭穿中，而美國政府也必定會依法懲治中共及其走狗的惡行。
+Contributing to each of these improvements is the substantial progress made in fiscal year 2019 in sustainable buildings, with an increase of 11 million square feet – for a total of 207 million square feet– in the Federal portfolio. Sustainable buildings are those that are constructed and operated to reduce energy, water, and material resource use; improve indoor environmental quality; reduce negative impacts on the environment; reduce the environmental and energy impacts of transportation; and consider the indoor and outdoor effects of the building on human health and the environment.
 
-譯者：
+這些改進中的每一項都在2019財年可持續建築方面取得實質性的進展。聯邦政府增加了1,100萬平方英尺此類建築的建設，其總量達到2. 07億平方英尺。可持續使用建築是專指為減少能源，水和物質資源的使用，改善室內環境品質，減少對環境的負面影響，減少運輸對環境和能源的影響，並考慮建築物在室內和室外對人體健康和環境的影響而建造和運營的建築。
 
-[原文鏈接](https://www.washingtonexaminer.com/news/fbi-alleges-chinas-ambassador-to-the-us-secretly-recruited-scientists)
+An example is the Department of the Interior’s Genoa National Fish Hatchery and Great River Road Interpretive Center in Genoa, Wisconsin. This high-performance sustainable building has achieved energy performance 62 percent better than an average building by implementing numerous innovative energy efficient strategies. In addition, implementation of new, water efficient technologies conserve about 36,900 gallons of potable water annually.
 
-翻譯報導:匿名
-校對整理：人間四月
+位於威斯康辛州熱那亞市，附屬內政部的熱那亞國家漁場和河道管理中心就是一個例子。通過實施眾多創新的節能戰略，該建築的能源性能比普通建築提高了62％。此外，新的節水技術每年可節省約36,900加侖的二氧化碳。
+
+Federal agencies have also made substantial progress in reducing energy use, with the lowest total energy use on record and the second lowest building energy use per square foot since 2003. Sixteen agencies have surpassed the 30 percent statutory energy reduction requirement, and agencies continue to demonstrate improvements over last year, such as the Department of Commerce, which reduced its energy use per square foot by 6.9 percent in one year, in large part through an innovative energy efficiency project at the National Institute of Technology campus in Gaithersburg, Maryland, that included the installation of a new Combined Heat and Power Plant and a five mega-watt solar array.
+
+聯邦政府在減少能源消耗方面也取得了實質性進展，自2003年以來，實現了最低的總能源使用量和史上第二低的每平方英尺能源使用量。十六個部門的節能量已經超過了法定的30％，並且各部門與去年相比有持續改善，例如商務部在一年內將其每平方英尺的能源使用量減少了6.9％，這在很大程度上是通過位於馬里蘭州蓋瑟斯堡的國家技術研究院的創新節能項目實現的，其中包括安裝革新的熱電聯產電廠和一個5兆瓦的太陽能電池板。
+
+NASA’s Glenn Research Center also reduced its energy use at Lewis Field and Plum Brook Station, with an innovative project that implements energy conservation measures to improve heating, ventilation, and air conditioning; lighting; and potable water systems. The project is saving 61.8 billion Btu of energy and 7.2 million gallons of water annually, and in the first year, the estimated energy, water, and maintenance cost savings totaled $1.2 million.
+
+美國國家航空航天局（NASA）的葛籣研究中心（Glenn Research Center）還通過一項創新項目減少了路易斯基站（Lewis Field）和梅花溪基站（Plum Brook Station）的能源消耗。該專案的實施每年將可節省618億Btu的能源和720萬加侖的水。第一年在能源、水和維護成本方面節省費用總計達約120萬美元。
+
+These examples show that despite a wide variety of missions and operational requirements, agencies are achieving, and in many cases far exceeding, sustainability goals. Through all the hard work by Federal agencies in meeting President Trump’s Executive Order, we are not only conserving resources, but saving taxpayer dollars, improving agency resilience to meet their missions, and continuing to serve the American people.
+
+這些示例表明，儘管各部門職能和運行要求大有不同，但各部門仍不斷實現並在許多情況下遠遠超過了可持續發展目標。通過各方致力執行此項總統行政令，聯邦各部門不僅節省了資源，也節省了納稅人的錢，增強部門後續執政力，得以持續服務美國人民。
+
+原文：[https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/](https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/)
+
+*翻譯：【一花一世界】校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
