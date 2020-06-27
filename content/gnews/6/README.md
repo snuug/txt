@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文貴先生早在2019年1月份就列出了美國司法部在華為之後的下一批中企制裁目標
-`2020-06-26 21:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/246388/)
+## 不做恐懼的奴隸，建設新中國聯邦是我們的使命！”中共病毒疫情每日熱線”
+`2020-06-27 00:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/246526/)
 
-製作：【上天造滅疫組】
+**欢迎加入Discord战友之家：[http://vog.media/](http://vog.media/)**
 
 0
