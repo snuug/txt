@@ -1,39 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三峽大壩難道成了共匪綁架十四億老百姓的工具嗎？
-`2020-06-27 04:25 GM30` [轉載自GNews](https://gnews.org/zh-hant/246808/)
+## 川普政府是如何推進聯邦節能行動的報告
+`2020-06-27 05:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/246857/)
 
-**作者：麓山之蜂**
+**How the Trump Administration is Advancing Efficient Federal Operations**
 
-世界正義力量已經蘇醒，以美滅共、全球自動滅共趨勢也已經形成，並且不可逆轉。中南坑的那幫盜國賊非常清楚目前的政治、經濟、軍事格局，由于中共是一個邪惡的政黨，中南坑那幫盜國賊會束手就擒嗎？這種可能性是存在，但是發生的概率微乎其微，而通過綁架九千萬黨員、十四億老百姓的身家性命來做困獸之鬥這一幕是正在上演或者已經在其計劃當中。
+June 25, 2020
 
-大家是否還記得郭文貴先生在6月15日的直播中提到的三峽大壩呢？
+By:[Mary B. Neumayr](https://www.whitehouse.gov/people/mary-b-neumayr/) ***and Charlotte Skidmore***
 
-在視頻的30:11分：【三峽大壩去年有人說、今年有人說，據我們內部情報，已經有人明確的以死谏中央，說三峽大壩出事只是早晚的事，三峽大壩一旦出事，四分之一的中國將夷爲平地。中共中央的這些領導就好像這事不會發生、甚至希望發生！我不能把話說透了。社科院的一位咱們的朋友說，他說我非常驚訝，我們報到中央的反應，中央的反應是“研究”。他說每次這種有證據說三峽大壩的水位變化、周圍環境的變化，特別是動物的變化，然後下面地殼的地質的變化，綜合分析出——太危險了，隨時可能出事。他說現在基本上可以確定是說，三峽大壩是用一個棉被子在擋住了一場大水。他說這個棉被子被滲透以後，它一旦打開根本不可控制。這是違背完全大自然的，而且聽說從去年到四月份以前是最多的密報的，中央就是研究沒有答複。但是五月份這是真是重量級人物說了——不可忽視了，可能三峽大壩要出大事。就這，現在所有人明白了，他們特別希望三峽大壩真出事，好像是死這些人他們就真減輕點負擔了。我聽著我當時都不相信，我說您這是有點極端吧？我說怎麽也不至于說中南坑的人讓這老百姓都死了去？我說也沒那麽誇張。他說“真的。”這讓我感到恐怖。】
+## **川普政府是如何推進聯邦節能行動的**
 
-中南坑的高層對于三峽水位、周圍環境的、動物的、地殼的地質的變化等等，分析報告的反應都是用“研究”二字來回複，是視而不見還是希望這些變化出現呢？而這種態度可能源于中共高層的政治鬥爭。但是放在當前的形勢下，邪惡的中共不僅希望借三峽問題來解決政治對手；也表現出當局想借三峽問題來解決目前所面對的國內、外的政治、經濟等問題；三峽會不會在美國開始對中共政權實施致命一擊的那一刻“出事”呢？通過占據人道主義的制高點來要挾美國呢？以此來拖延時間或者阻止美國的制裁呢？
+2020年6月25日
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041843/%E5%9B%BE%E4%B8%80-2.jpg)
+作者：Mary B. Neumayr和Charlotte Charlottedmore
 
-[2020年6月23日，路德时评](https://www.youtube.com/watch?v=Nm-e7zpbWEg)中也对三峡所面临的问题进行了解读，在视频的1：05:19分开始。
+Today, the Council on Environmental Quality released the annual update on agency performance in meeting the goals of President Trump’s [Executive Order 13834 on Efficient Federal Operations](https://www.whitehouse.gov/presidential-actions/executive-order-regarding-efficient-federal-operations/). A priority of this Administration is the efficient management of Federal operations to meet statutory requirements established by Congress in a streamlined, cost-effective manner that supports agencies’ missions and advances environmental protection. Despite an incredibly diverse set of Federal government operations, whether it’s the Department of Defense, which ensures our nation’s security, or the Smithsonian Institution, which protects our nation’s priceless art and heritage, all Federal agencies are uniquely contributing to Federal sustainability goals and making substantial progress in carrying out their shared obligations as good stewards of the environment.
 
-【路德：包括三峡这个，有没有可能。中共真有可能做的出哦，但是，中共自己真的要考虑一下，这个东西如果那个的话，那你这个，就像当年蒋介石当年不是把黄河大坝决堤吗？
+今天，環境品質委員會發佈了川普總統關於聯邦節能行動的13834號行政令執行情況的年度報告。本屆政府的首要任務是按照國會既定條例法規以精簡節儉的方式對聯邦各部門進行有效管理， 以此來支持各部門工作並促進環境保護。儘管各部門的運作方式極為多樣化，無論是確保國家安全的國防部，還是保護國家無價藝術品和遺產的史密森尼學會，所有部門都為聯邦政府可持續發展做出了獨特貢獻，並在履行保護環境義務上取得長足進展。
 
-安红：花园口。
+Fiscal year 2019 data, published today on [sustainability.gov](https://www.sustainability.gov/), demonstrates that agencies continued to improve environmental performance in the past year and made government-wide progress, reducing building energy use by more than 641 billion Btu and water consumption by more than 175 million gallons, increasing the total value of sustainable acquisitions, and reducing greenhouse gas emissions from Federal operations for the third year in a row. The Federal Government also exceeded renewable energy requirements with 8.6 percent of electricity consumed coming from renewable qualifying sources as defined in the Energy Policy Act of 2005.
 
-路德：对，花园口。但是后面被美国、被共产党利用，成了蒋介石最那个的，最大的、巨大的污点吗？我今天放到这里，其实这句话就是说，也是为了保护大家，中共其实想这么干，干不成了，因为我们已经知道中共啥都干的出来，知道不，他如果这么干了，那就是像119一样，我们提前给他点破。明白不，如果我们晚了，你们这个\*\*\*\*\*\*包括现在中共三峡甩锅美国，说美国要去炸三峡，你看了微信没有，微信很多在这里传。
+今天在sustainability.gov上發佈的2019財年資料表明，各部門在過去一年中繼續有效改善環境，並在政府範圍內取得了進展，減少了超過6410億英熱單位的建築能耗和超過1.75億加侖的水消耗，增加了可重複使用物品的收購，並連續第三年減少了來自聯邦政府運營的溫室氣體排放。聯邦政府還超過了《 2005年能源政策法案》規定的8.6％來自可再生能源的要求。
 
-安红：看了，他们截屏给我发。
+Contributing to each of these improvements is the substantial progress made in fiscal year 2019 in sustainable buildings, with an increase of 11 million square feet – for a total of 207 million square feet– in the Federal portfolio. Sustainable buildings are those that are constructed and operated to reduce energy, water, and material resource use; improve indoor environmental quality; reduce negative impacts on the environment; reduce the environmental and energy impacts of transportation; and consider the indoor and outdoor effects of the building on human health and the environment.
 
-路德：说美国要把三峡给炸了，苦肉计是中共一贯以来干的。他往往在这个时候断一条胳膊、断一条腿。反正他们只要那十几个人没问题就行了，你看我多惨，全世界你得支持我，美国这个时候还对我那个，你看，是不是，玩这个吗？】
+這些改進中的每一項都在2019財年可持續建築方面取得實質性的進展。聯邦政府增加了1,100萬平方英尺此類建築的建設，其總量達到2. 07億平方英尺。可持續使用建築是專指為減少能源，水和物質資源的使用，改善室內環境品質，減少對環境的負面影響，減少運輸對環境和能源的影響，並考慮建築物在室內和室外對人體健康和環境的影響而建造和運營的建築。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041648/%E5%9B%BE%E4%BA%8C.jpg)
+An example is the Department of the Interior’s Genoa National Fish Hatchery and Great River Road Interpretive Center in Genoa, Wisconsin. This high-performance sustainable building has achieved energy performance 62 percent better than an average building by implementing numerous innovative energy efficient strategies. In addition, implementation of new, water efficient technologies conserve about 36,900 gallons of potable water annually.
 
-共匪在《超限戰》中學到了生物戰的同時，氣候戰、地質戰等難道就沒學到嗎？中共既然將生化武器釋放出來毒害自己的國民以及世界同胞，難道共匪就不會將氣候戰、地質戰應用在國民身上嗎？
+位於威斯康辛州熱那亞市，附屬內政部的熱那亞國家漁場和河道管理中心就是一個例子。通過實施眾多創新的節能戰略，該建築的能源性能比普通建築提高了62％。此外，新的節水技術每年可節省約36,900加侖的二氧化碳。
 
-當魔鬼有了思想，那就是黑暗來臨的時刻。只要共匪這個惡魔還存在一時，那黑暗就從未離開，只有滅共才是我們14億人擺脫黑暗、迎接美好明天的共同目標。
+Federal agencies have also made substantial progress in reducing energy use, with the lowest total energy use on record and the second lowest building energy use per square foot since 2003. Sixteen agencies have surpassed the 30 percent statutory energy reduction requirement, and agencies continue to demonstrate improvements over last year, such as the Department of Commerce, which reduced its energy use per square foot by 6.9 percent in one year, in large part through an innovative energy efficiency project at the National Institute of Technology campus in Gaithersburg, Maryland, that included the installation of a new Combined Heat and Power Plant and a five mega-watt solar array.
 
-（文章內容僅代表作者觀點）
+聯邦政府在減少能源消耗方面也取得了實質性進展，自2003年以來，實現了最低的總能源使用量和史上第二低的每平方英尺能源使用量。十六個部門的節能量已經超過了法定的30％，並且各部門與去年相比有持續改善，例如商務部在一年內將其每平方英尺的能源使用量減少了6.9％，這在很大程度上是通過位於馬里蘭州蓋瑟斯堡的國家技術研究院的創新節能項目實現的，其中包括安裝革新的熱電聯產電廠和一個5兆瓦的太陽能電池板。
+
+NASA’s Glenn Research Center also reduced its energy use at Lewis Field and Plum Brook Station, with an innovative project that implements energy conservation measures to improve heating, ventilation, and air conditioning; lighting; and potable water systems. The project is saving 61.8 billion Btu of energy and 7.2 million gallons of water annually, and in the first year, the estimated energy, water, and maintenance cost savings totaled $1.2 million.
+
+美國國家航空航天局（NASA）的葛籣研究中心（Glenn Research Center）還通過一項創新項目減少了路易斯基站（Lewis Field）和梅花溪基站（Plum Brook Station）的能源消耗。該專案的實施每年將可節省618億Btu的能源和720萬加侖的水。第一年在能源、水和維護成本方面節省費用總計達約120萬美元。
+
+These examples show that despite a wide variety of missions and operational requirements, agencies are achieving, and in many cases far exceeding, sustainability goals. Through all the hard work by Federal agencies in meeting President Trump’s Executive Order, we are not only conserving resources, but saving taxpayer dollars, improving agency resilience to meet their missions, and continuing to serve the American people.
+
+這些示例表明，儘管各部門職能和運行要求大有不同，但各部門仍不斷實現並在許多情況下遠遠超過了可持續發展目標。通過各方致力執行此項總統行政令，聯邦各部門不僅節省了資源，也節省了納稅人的錢，增強部門後續執政力，得以持續服務美國人民。
+
+原文：[https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/](https://www.whitehouse.gov/articles/trump-administration-advancing-efficient-federal-operations/)
+
+*翻譯：【一花一世界】校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

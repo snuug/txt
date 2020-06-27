@@ -1,131 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮關於聯邦公務員改革的行政令
-`2020-06-27 12:47 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/247206/)
+## 美國駐華大使館：國家安全事務顧問羅伯特·奧布萊恩關於中國的講話
+`2020-06-27 17:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247253/)
 
-[川普總統於6月26日發布行政命令改革聯邦公務員的僱傭方式](https://www.whitehouse.gov/presidential-actions/executive-order-modernizing-reforming-assessment-hiring-federal-job-candidates/)。該行政令指示進行以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27123737/WH_20200625_Federal_Job_Candidates_photo.png)
-行政令全文：
-
-**Executive Order on Modernizing and Reforming the Assessment and Hiring of Federal Job Candidates**
-
-**關於對聯邦求職者的評估和聘用進行現代化和改革的行政命令**
-
-issued on: June 26, 2020
-
-发布于2020年6月26日
-
-By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 301 of title 3, United States Code, and sections 1104(a)(1), 3301, and 7301 of title 5, United States Code, it is hereby ordered as follows:
-
-根據美利堅合眾國憲法和法律賦予我了總統權力， 包括《美國法典》第3篇第301節和《美國法典》第5篇第1104(a)(1)、3301和7301節賦予我的總統權力，命令如下：
-
-Section 1.  Purpose.  The foundation of our professional merit-based civil service is the principle that employment and advancement rest on the ability of individuals to fulfill their responsibilities in service to the American public.  Accordingly, Federal Government employment opportunities should be filled based on merit.  Policies or practices that undermine public confidence in the hiring process undermine confidence in both the civil service and the Government.
-
-第一節：目的。我們的專業任人唯賢的公務員制度的基礎是這樣的原則：就業和晉升取決於個人履行其為美國公眾服務的責任的能力。因此，聯邦政府的就業機會應根據功績來填補。損害公眾對招聘過程的信心的政策或做法，會損害對公務員制度和政府的信心。
-
-America’s private employers have modernized their recruitment practices to better identify and secure talent through skills- and competency-based hiring.  As the modern workforce evolves, the Federal Government requires a more efficient approach to hiring.  Employers adopting skills- and competency-based hiring recognize that an overreliance on college degrees excludes capable candidates and undermines labor-market efficiencies.  Degree-based hiring is especially likely to exclude qualified candidates for jobs related to emerging technologies and those with weak connections between educational attainment and the skills or competencies required to perform them.  Moreover, unnecessary obstacles to opportunity disproportionately burden low-income Americans and decrease economic mobility.
-
-美國的私營雇主已經實現了招聘做法的現代化，通過基於技能和能力的招聘來更好地發現和確保人才。隨著現代勞動力的發展，聯邦政府需要一種更有效的招聘方法。採用以技能和能力為基礎的招聘方式的雇主們認識到，過度依賴大學學位會將有能力的候選人排除在外，損害勞動力市場的效率。以學位為基礎的招聘特別有可能排除與新興技術相關的工作的合格候選人，以及那些教育程度與從事這些工作所需的技能或能力之間聯繫薄弱的候選人。此外，不必要的機會障礙給低收入的美國人造成了過重的負擔，降低了經濟流動性。
-
-The Office of Personnel Management (OPM) oversees most aspects of the civilian Federal workforce, including creating and maintaining the General Schedule classification system and determining the duties, responsibilities, and qualification requirements for Federal jobs.  Executive departments and agencies (agencies), however, are responsible for vetting and selecting specific candidates to fill particular job openings consistent with statutory requirements and OPM rules and guidance, including applicable minimum educational requirements.  Currently, for most Federal jobs, traditional education — high school, college, or graduate-level — rather than experiential learning is either an absolute requirement or the only path to consideration for candidates without many years of experience.  As a result, Federal hiring practices currently lag behind those of private sector leaders in securing talent based on skills and competency.
-
-人事管理辦公室(OPM)負責監督聯邦文職人員隊伍的大部分方面，包括建立和維持總分類製度，並確定聯邦職位的職責、責任和資格要求。執行部門和機構(機關)負責根據法定要求和OPM的規則和指南，包括適用的最低學歷要求，審核和選拔特定的候選人來填補特定的職位空缺。目前，對於大多數聯邦工作而言，傳統教育—-高中、大學或研究生水平—-而不是經驗學習，對於沒有多年經驗的求職者來說，要么是絕對的要求，要么是唯一的考慮途徑。因此，在根據技能和能力吸引人才方面，聯邦的招聘做法目前落後於私營部門的領導者。
-
-My Administration is committed to modernizing and reforming civil service hiring through improved identification of skills requirements and effective assessments of the skills job seekers possess.  We encourage these same practices in the private sector.  Modernizing our country’s processes for identifying and hiring talent will provide America a more inclusive and demand-driven labor force.
-
-我的政府致力於通過更好地確定技能要求和有效評估求職者所具備的技能，使公務員的招聘工作現代化和改革。我們鼓勵私營部門採取同樣的做法。使我國識別和僱用人才的程序現代化，將為美國提供一支更具包容性和需求驅動的勞動力隊伍。
-
-Through the work of the National Council for the American Worker and the American Workforce Policy Advisory Board, my Administration is fulfilling its commitment to expand employment opportunities for workers.  The increased adoption of apprenticeship programs by American employers, the creation of Industry-Recognized Apprenticeship Programs, and the implementation of Federal hiring reforms, including those in this order, represent important steps toward providing more Americans with pathways to family-sustaining careers.  In addition, the Principles on Workforce Freedom and Mobility announced by my Administration in January 2020 detail reforms that will expand opportunities and eliminate unnecessary education costs for job seekers.  This order builds on the broader work of my Administration to expand opportunity and create a more inclusive 21st-century economy.
-
-通過美國工人全國委員會和美國勞動力政策諮詢委員會的工作，我的政府正在履行其擴大工人就業機會的承諾。美國雇主越來越多地採用學徒計劃，建立行業認可的學徒計劃，以及實施聯邦僱用改革，包括本命令中的改革，這些都是為更多美國人提供維持家庭生計的途徑的重要步驟。此外，我的政府在2020年1月宣布的 “勞動力自由和流動原則 “詳細說明了將為求職者擴大機會和消除不必要的教育成本的改革。這項命令建立在我的政府為擴大機會和創造一個更具包容性的21世紀經濟所做的更廣泛工作的基礎上。
-
-This order directs important, merit-based reforms that will replace degree-based hiring with skills- and competency-based hiring and will hold the civil service to a higher standard — ensuring that the individuals most capable of performing the roles and responsibilities required of a specific position are those hired for that position — that is more in line with the principles on which the merit system rests.
-
-該命令指示進行重要的、以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準–確保最能勝任某一特定職位所要求的作用和責任的人被雇用擔任該職位，這更符合業績制度所依據的原則。
-
-Sec. 2.  Revision of Job Classification and Qualification Standards.  (a)  The Director of OPM, in consultation with the Director of the Office of Management and Budget, the Assistant to the President for Domestic Policy, and the heads of agencies, shall review and revise all job classification and qualification standards for positions within the competitive service, as necessary and consistent with subsections (a)(i) and (a)(ii) of this section.  All changes to job classification and qualification standards shall be made available to the public within 120 days of the date of this order and go into effect within 180 days of the date of this order.
-
-第2條。職位分類和資格標準的修訂。 (a)OPM主任在與管理和預算辦公室主任、總統國內政策助理以及各機構負責人協商後，應根據需要並按照本節(a)(i)和(a)(ii)分節的規定，審查和修訂競爭性服務內所有職位的職務分類和資格標準。職務分類和資格標準的所有變動應在本命令發布之日起120天內向公眾公佈，並在本命令發布之日起180天內生效。
-
-(i)   An agency may prescribe a minimum educational requirement for employment in the Federal competitive service only when a minimum educational qualification is legally required to perform the duties of the position in the State or locality where those duties are to be performed.
-
-(i)只有當最低教育資格是在履行該職位職責的州或地方依法所需時，機構才可規定在聯邦競爭性服務中就業的最低教育要求。
-
-(ii)  Unless an agency is determining a candidate’s satisfaction of a legally required minimum educational requirement, an agency may consider education in determining a candidate’s satisfaction of some other minimum qualification only if the candidate’s education directly reflects the competencies necessary to satisfy that qualification and perform the duties of the position.
-
-(ii) 除非一個機構正在確定候選人是否滿足法律規定的最低教育要求，否則，只有當候選人的教育直接反映了滿足該資格和履行該職位職責所需的能力時，一個機構才可以在確定候選人是否滿足其他最低資格時考慮教育。
-
-(b)  Position descriptions and job postings published by agencies for positions within the competitive service should be based on the specific skills and competencies required to perform those jobs.
-
-(b)各機構發布的競爭性服務內職位的職位說明和招聘信息應以從事這些工作所需的具體技能和能力為基礎。
-
-Sec. 3.  Improving the Use of Assessments in the Federal Hiring Process.  (a)  In addition to the other requirements of this order, the Director of OPM shall work with the heads of all agencies to ensure that, within 180 days of the date of this order, for positions within the competitive service, agencies assess candidates in a manner that does not rely solely on educational attainment to determine the extent to which candidates possess relevant knowledge, skills, competencies, and abilities.  The heads of all agencies shall develop or identify such assessment practices.
-
-第3節. 改進聯邦招聘過程中對評估的使用。 (a)除本命令的其他要求外，OPM主任應與所有機構的負責人合作，確保在本命令發布之日起180天內，對於競爭性服務內的職位，各機構對候選人的評估方式不應僅僅依靠學歷來確定候選人擁有相關知識、技能、能力的程度。各機構負責人應制定或確定這種評估辦法。
-
-(b)  In assessing candidates, agencies shall not rely solely on candidates’ self-evaluations of their stated abilities.  Applicants must clear other assessment hurdles in order to be certified for consideration.
-
-(b) 在評估候選人時，各機構不應僅僅依靠候選人對其所述能力的自我評價。申請人必須通過其他評估障礙，才能獲得考慮認證。
-
-(c)  Agencies shall continually evaluate the effectiveness of different assessment strategies to promote and protect the quality and integrity of their hiring processes.
-
-(c) 各機構應不斷評價不同評估戰略的效力，以促進和保護其徵聘程序的質量和完整性。
-
-Sec. 4.  Definitions.  For purposes of this order:
-
-(a)  the term “assessment” refers to any valid and reliable method of collecting information on an individual for the purposes of making a decision about qualification, hiring, placement, promotion, referral, or entry into programs leading to advancement;
-
-第4節。定義。為本命令的目的：
-
-(a) “評估 “一詞指的是任何收集個人信息的有效和可靠的方法，目的是就資格、僱用、安置、晉升、推薦或進入導致晉升的方案作出決定。
-
-(b)  the term “competitive service” has the meaning specified by section 2102 of title 5, United States Code;
-
-(b) “競爭性服務 “一詞具有《美國法典》第5章第2102條所規定的含義。
-
-(c)  the term “education” refers to Post High-School Education as that term is defined in the OPM General Schedule Qualification Policies; and
-
-c) “教育 “一詞是指高中後教育，因為這個詞已經在《總理辦公廳資格政策總表》中被定義；
-
-(d)  the term “qualification” means the minimum requirements necessary to perform work of a particular position or occupation successfully and safely.
-
-(d) “資格 “一詞是指成功和安全地從事某一特定職位或職業的工作所需的最低要求。
-
-Sec. 5.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
-
-第5條。一般規定。 (a) 本命令中的任何內容均不得解釋為損害或以其他方式影響：
-
-(i)   the authority granted by law to an executive department or agency, or the head thereof; or
-
-(i) 法律授予行政部門或機構或其負責人的權力；或
-
-(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
-
-(ii) 管理和預算辦公室主任與預算、行政或立法提案有關的職能。
-
-(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
-
-(b) 本命令的執行應符合適用的法律，並以撥款為限。
-
-(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
-
-(c) 本命令無意也不會產生任何一方可在法律上或衡平法上對美國、其各部門、機構或實體、其官員、僱員或代理人或任何其他人強制執行的任何實質性或程序性權利或利益。
-
-DONALD J. TRUMP
-
-唐納德·川普
-
-THE WHITE HOUSE,
-
-白宮
-
-June 26, 2020.
-
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27171715/EO.jpeg)
+**NATIONAL SECURITY ADVISOR ROBERT O’BRIEN REMARKS ON CHINA**國家安全事務委員會（National Security Council）
+白宮（The White House）
+華盛頓哥倫比亞特區（Washington, DC）
 2020年6月26日
 
-*翻譯：【Melody太陽的旋律】校對：【V%】*
+**國家安全事務顧問羅伯特·奧布萊恩（ROBERT O’BRIEN）關於中國的講話**亞利桑那州商業局（Arizona Commerce Authority）
+鳳凰城，亞利桑那州（Phoenix, Arizona）
+2020年6月24日
 
-*戰友之家玫瑰園小隊出品*
+中國共產黨構成的挑戰，以及中國共產黨的興起及其對美國和我們的盟國造成的威脅，是我們目前面臨的至關重要的問題。
+
+\* \* \* \*
+
+數十年來，美國各政黨、工商界、學術界、媒體等方面的普遍看法認為，促進中國的自由化只是時間問題，首先是經濟領域，然後是政治領域。按照這種思維，我們向中國進一步開放我們的市場，我們在中國投入更多的資本，為中華人民共和國的官員、科學家、工程師，甚至軍事官員提供更多的訓練，中國就能變得像我們一樣。
+
+我們根據這個前提歡迎中國在2001年加入世界貿易組織（World Trade Organization），提供了大量的讓步和貿易優惠待遇。我們淡化中國嚴重侵犯人權的行為，其中包括天安門廣場事件。我們對中國廣泛的技術盜竊行為睜一隻眼閉一隻眼，使美國經濟各部門整體受到重創。隨著中國日益富裕和強盛，我們相信中國共產黨會實現自由化，可以滿足本國人民日益強烈的民主渴望。這曾經是美國大膽和典型的設想。這種設想出自於我們天生的樂觀主義，也來自於我們戰勝蘇聯共產主義的經驗。遺憾的是，這原來是很幼稚的想法。我們錯得實在很離譜。這種錯誤的估計已成為上世紀30年代以來美國對外政策最大的敗筆。
+
+那麼，我們為什麼會犯這樣的錯誤？我們為什麼不能看清中國共產黨的本質？答案很簡單，是因為我們沒有註意中國共產黨的意識形態。我們不注意聽中國共產黨領導人的言論，不注意看他們在重要文件中所寫的內容，我們視而不見，聽而不聞。我們只相信我們希望相信的方面，認為這些黨員只是名義上的共產主義者。
+
+現在，我們需要明確指出，中國共產黨是一個馬克思主義、列寧主義組織。該黨總書記習近平視自己為約瑟夫·斯大林的繼承人。實際上，正如前記者和澳大利亞政府官員約翰•加諾特(John Garnaut)所指出的，中國共產黨是最後一個從未脫離過斯大林的共產主義執政黨，只有北韓屬於部分例外。然而，斯大林采取殘暴的獨裁統治和駭人聽聞的政策，通過災害、強制集體化、處決行動和勞改營，殺害了約2,000萬俄羅斯和其他方面的人員。
+
+根據列寧、斯大林、毛的解釋，共產主義屬於極權的意識形態。在共產主義統治下，個人僅僅是實現集體化民族國家目標的一個工具，可以很容易地為民族國家的目標犧牲自己。
+
+\* \* \* \*
+
+中國共產黨要求全面控制人民的生活。這意味著經濟控制，意味著政治控制，意味著人身控制，可能更重要的是，意味著思想控制。加諾特指出，按照經典的中國治國之道，掌握和維持對江山的控制有兩個工具。首先是武，指武器和暴力。其次是文，指語言和文化。中國領導人歷來相信，權力來自於對有形戰場的控制，也來自於對文化領域的控制。加諾特寫道，“對列寧、斯大林、毛和現在的習來說，語言不是講道理和勸說的工具，而是子彈。語言是為了明確、孤立和摧毀對手。”
+
+對於中國共產黨來說，宣傳發揮了核心的作用。北京公開宣布要控制政治思想並大張旗鼓地推行之。1989年，該黨開始圍繞意識形態安全問題進行整頓。此後，中國共產黨領導人一再強調這一點。前幾年，該黨在2013年4月發布一項關於當前意識形態領域情況的通報，提出絕對不允許有任何機會和渠道散佈不正確的思想或觀點。
+
+因此在中國國內，這種方式意味著強制性的共產主義意識形態學習班，以及必須下載並使用講授所謂習近平思想的智能手機應用。這意味著完全控制所有國家媒體。從外國報紙到推特（Twitter）、臉書（Facebook）和WhatsApp等外部信息來源都遭到禁止。所有在中國國內生成的內容都受到審查。這意味著監禁從公民博主到新聞記者、律師、活動人士和宗教信徒等每一個表達任何違反該黨立場的觀點的人。而且事實是，就在最近，從今年1月1日到4月4日，就有近500人僅僅因為公開講出武漢冠狀病毒和它對該黨的影響以及該黨掩蓋這種疾病的行為而受到犯罪指控。
+
+中國共產黨重新解釋包括《聖經》（Bible）在內的宗教文本，以支持共產黨的意識形態。它將數以百萬計的維吾爾族穆斯林及其他少數群體關押在再教育營中，強迫他們在那裡接受政治灌輸和強制勞動，而他們的子女則被送進該黨管理的孤兒院中。這個過程徹底抹殺了家庭、宗教、文化、語言以及身陷這些再教育營中的人們的傳統。在中國共產黨的統治下，信息受到嚴格管制，表達時時受到監控，以便讓政府進行打壓或打造。
+
+而美國人應當感到關切。我們不僅應當為中國人民感到關切，而且應當為我們自己感到關切，因為習近平對意識形態管控的野心不僅限於其本國人民。中國共產黨宣稱的目標是建立一個人類命運共同體，並任由中國共產黨來重塑整個世界。在中國邊境之外管控思想的努力已在進行之中。
+
+近10年來，該黨已投入數十億美元用於海外宣傳行動並取得極大效果。中國共產黨已著手剷除全世界不友好的中文媒體機構，而且已接近完成。在美國的幾乎每一家中文新聞機構不是由該黨所有，就是同該黨密切合作，而且它還在滲入英文媒體。在全美各城市有十多個廣播電台，美國人在收聽調頻廣播時會聽到藏而不露的親北京的宣傳。
+
+最近，中國的宣傳讓很多美國人以為冠狀病毒是一名美國軍人帶到武漢的，而不是武漢將病毒傳播到了世界其他地區，這完全是中國共產黨捏造的，以致這名軍人和她的家人需要貼身保安來保護他們免遭死亡威脅，這種情況發生在馬里蘭（Maryland）。在抖音（TikTok）這個中國所有的擁有超過4,000萬美國用戶的社交媒體平台上，可能有很多是你們的子女和年輕的同事，批評中國共產黨以及北京的各項政策的賬號經常被刪除或查封。
+
+\* \* \* \*
+
+北京動用其財力和市場份額來迫使好萊塢（Hollywood）進行自我審查，從物質上促使導演、演員和製作人避開可能無法通過中國的國家審查機構的題材。
+
+\* \* \* \*
+
+中國共產黨也在謀求利用個體美國人。它在收集你最隱私的數據：你的言論，你的行動，你的購物，你的行踪，你的健康記錄，你的社交媒體發貼，你的短信，並且勾畫出你的朋友、家人和熟人關係網。中國共產黨達到這一目標的部分做法是補貼硬件、軟件、電訊通信甚至基因公司。因此，像華為和中興這樣的公司可以在價格上同對手銷價，以虧損的方式在全球安裝他們的設備。它實際連帶造成美國電訊硬件製造商倒閉，也使諾基亞公司（Nokia）和愛立信公司（Ericsson）處境非常艱難。
+
+\* \* \* \*
+
+那麼中國共產黨將如何利用這些數據？與中國境內的方式一樣，即對個人進行攻擊、奉承、勸誘、影響、脅迫，甚至訛詐，讓他們做或者說符合共產黨需要的事。這種微觀定向是令任何廣告商的天大夢想所不及的。與廣告商不同的是，中國不會受政府規章阻止。中國共產黨要知道你的一切，就像它要知道幾乎所有生活在中國境內的人的一切一樣。
+
+除了進行宣傳和施加影響的運作外，中國共產黨還利用貿易強迫按照它的旨意行事。
+
+\* \* \* \*
+
+共產黨利用中國在聯合國人權理事會（UN Human Rights Council）的成員地位，不讓對其在新疆和香港的侵權行為提出批評。中國共產黨將影響伸向國際機構的首腦，他們本身並不是中國官員。
+
+\* \* \* \*
+
+……。我們正在採取果斷行動，全面抵制。首先，特朗普總統不讓某些聽命於中國共產黨情報和安全部門的公司，例如中國電信業巨頭華為，接觸我們的——我們的個人和隱私數據。本政府對向華為輸出半導體技術實施了限制。
+
+第二，國務院將9個中國國家控制的宣傳媒體定性為外國使團。這些機構是中國共產黨的喉舌，這一定性使這些所謂的媒體機構受制於有關要求和受到簽證限制。第三，特朗普總統對共同參與中國對維吾爾族和其他少數民族的壓制、大規模任意拘押和高科技監視的中國21個政府實體和16家中國公司實行出口限制，我們已經阻止共同參與這些踐踏行為的官員進入美國。
+
+本屆政府還制止由雖然知道但卻仍然使用維吾爾族強勞的中國公司生產的產品非法進入美國。第四，特朗普總統將美國撤出人權理事會，抗議它受中國影響。
+
+\* \* \* \*
+
+第五，特朗普總統限制中國人民解放軍利用學生簽證將其軍官和僱員送到我國高等院校竊取美國技術、知識產權和信息。第六，總統採取行動，停止美國聯邦政府僱員退休基金投資於中華人民共和國的公司，包括中國軍方合同公司和生產用於鎮壓少數民族的監控設備的製造商。
+
+\* \* \* \*
+
+美國被動和天真對待中華人民共和國的時代結束了。我們將忠實我們的原則，尤其是言論自由，這與中國共產黨所維護的馬克思主義-列寧主義的意識形態形成鮮明對比。
+
+[原文鏈接](https://china.usembassy-china.org.cn/zh/the-chinese-communist-partys-ideology-and-global-ambitions-zh-com/)
 
 0

@@ -1,21 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月22日中共病毒疫情要聞快報
-`2020-06-27 11:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247136/)
+## 加拿大總理特魯多對中共的人質外交說不
+`2020-06-27 15:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247226/)
 
-[6.22-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112622/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112622/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27154158/cropped_image1-1-5.png)
+2020-06-27 據加拿大環球郵報的觀點文章報導：由於中共國綁架兩名加拿大人並索要贖金而引起的危機本周正愈演愈烈。
 
-[6.22-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112625/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112625/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+綁架者中共索要的贖金是釋放孟晚舟。她是中共電信公司的高管，於2018年12月在溫哥華被捕，理由是美國方面提出的引渡請求。美國司法部指控孟晚舟銀行欺詐以及電信欺詐，並希望她在美國法庭上受審。另一方面，被中共關押的人質是：麥克-斯帕弗(Michael Spavor)和麥克-康明凱(Michael Kovrig)。這兩個都叫麥克的難兄難弟在孟晚舟被捕之後沒幾天，就在中共國被抓了。自那之後他們身陷的狀況與被折磨無異，一直拖到本月初才被中共指控為間諜罪。中共的這一報復性舉動其實就是針對溫哥華法官駁回了孟晚舟試圖撤銷引渡她的要求。
 
-[6.22-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112628/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112628/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+本周有一組加拿大著名律師，前議員和外交官聯名寫信給總理賈斯丁-特魯多(Justin Trudeau), 懇求他允許司法部長利用司法權來單方面終止孟晚舟的引渡程序。特魯多鄭重回复說他不會這麼做，並提供了兩條理由：其一是加拿大的司法系統必須不能受到來自境內外政治方面的壓力，其二是加拿大不能向中共和其他國家釋放一個錯誤的信號，“他們只要隨便抓捕幾個加拿大人就能讓加拿大政府屈服。”
 
-[6.22-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112632/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112632/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+總的來說，特魯多的回答是正確的。特魯多和他的政府已經被中共搞得狼狽不堪，更糟糕是這周中共的一位外交部發言人說如果加拿大撤銷對孟晚舟的案子，兩位被扣押的人質麥克就會被釋放。之前中共一直不願公開承認這兩起案件有關聯，但中共發言人說的這番話不但透露了其底牌，也加深了這次危機的嚴重程度。承認逮捕兩位麥克與孟晚舟案有直接關係的事實，證明中共已經徹底背棄了倫理道德的底線。
 
-[6.22-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112635/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112635/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+中共國政府的所作所為和恐怖組織沒什麼不同，他們企圖綁架無辜人質來交換孟晚舟，並威脅加拿大政府如果想再見到兩個邁克，就必須和最親近的同盟國美國斷交，並且放棄國際引渡條約規定的義務。這是中共國的一貫作風，強硬且咄咄逼人，沒有外交辭令也毫無智慧可言地處理國際關係，認為一切都是理所當然。
 
-[6.22-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112638/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27112638/6.22-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+特魯多政府除了說“不”別無選擇，拒絕“人質交換”，不屈服於中共的壓力，因為這不僅僅會危及到數百萬在海外生活和旅行的加拿大人，也會給其他國家的公民造成被中共國綁架的危險。
+
+中共國已經變相承認了“人質外交”，並公開脅迫加拿大聽從其命令，特魯多政府應該清醒地認識到中共國已經嚴重侵犯了國際法律，對國際安全造成了危害，加拿大需要採取強硬立場，聯合所有的同盟國給中共國政府施加壓力。
+
+評：
+
+加拿大總理特魯多一直以來包括在疫情期間對中共態度是軟弱和盲目的信任：
+
+1. 表現在加拿大是最後一個對中共國禁止互飛的國家。
+2. 時至今日還投入本國科研資金同中共國開發研究病毒疫苗。
+3. 在加拿大西部城市卡爾加里安裝“華為”提供的人臉識別設備！
 
 
+這一切都映射出中共在加拿大的藍金黃滲透有多麼的嚴重，其觸角延伸到了政府和公司的各個階層。
+
+如今孟晚舟引渡案面對中共赤裸裸以人質外交綁架威脅，加拿大終於做出了明智的選擇和回應。我們可以想像加拿大已無退路，只有同中共國徹底切割決裂，堅定的與美國等西方盟友站在一起，才能保護本國利益，真正捍衛幾百年來加拿大人民一直追求的民主與自由。我堅信邪絕不會勝正！
+
+[原文鏈接](https://www.theglobeandmail.com/opinion/editorials/article-justin-trudeau-says-he-cant-give-in-to-chinas-hostage-taking-hes/)
+
+翻譯報導：理查德
+校對整理：瑞安平
 
 0

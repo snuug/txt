@@ -1,23 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
+## 中共警告美國不要“越過紅線”和郭先生提到的“三根紅線”是什麼關係
+`2020-06-27 04:20 立武` [轉載自GNews](https://gnews.org/zh-hant/246775/)
 
-戰友之家圖文摘要組及小語種組
+據華爾街日報26日報導，中共私下告訴美國政府，**“越過紅線”將威脅到雙方的貿易協定，**中共告訴美國政府，如果“干涉香港和臺灣等事務”，可能危及中共根據中美第一階段貿易協定**對美國商品的採購。**
 
-[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041622/%E4%B8%8B%E8%BD%BD5-3.png)
 
-[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
+就在當天，美國國務院以破壞香港高度自治和限制人權為由，**對中共官員實施簽證限制。**
 
-[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
+但顯然這不是中共懼怕的原因，這所謂的“紅線”也不僅僅是對港共制裁這麼簡單，**而恰恰是恐懼郭文貴先生在****25****日直播中提到的“三條紅線”。**
 
-[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
+【郭文貴先生6月25日直播：我告訴大家，咱們要跨過……現在有三根紅線，就在爆料革命和滅共的路上前面攔著。它沒有任何牆，它也沒有任何導彈，也沒有任何員警防守，就三根線。**這三根線不跨過去，就是說我們就在舊世界，就是建國前、新中國聯邦的建國前，跨過去以後就是新中國。**
 
-[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+【**這第一根線，就是美國這個國家是否敢真正地說出來，說共產黨不等同於中國人民，中國人民是被害者，共產黨是非法政府，然後推到防火牆、消滅共產黨。**就是把共產黨這個政府跟中國人民分開，然後讓美國人民認識到，你死的12萬人也好、200萬人也好，還是美國這幾十年的問題也好，還有人類現在的問題也好，然後認識到共產黨是個魔鬼的、非法的政權。這個事太大了！這根紅線看上去很簡單，在這兒將近100年了。這100年中國人最起碼生生死死幾十億人，就被這根紅線給攔在這裡，當奴隸、當驢使用。這根紅線是用中國人的鮮血來培養出來的，戰友們，它真的是用中國人的鮮血來養的這根紅線。】
 
-[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+【**第****2****條紅線，**大家現在還沒看到影呢，我相信很快會發生。**就是美國川普總統和習近平先生的個人關係，**這兩個人關係那麼好，兩個總統，這得有個說法。到底是非常友好啊？**還是你死我活啊？**還是你要負責任啊？這要有個說法。第2條紅線一過，**那就是帶動全世界的領導人和中共的領導人之間的個人關係。**這個意味著什麼？你們知道嘛戰友們？意味著我們每個戰友，你就站在西方的總統的這邊，還是站在了共產黨那邊。非常清楚，沒有中間的。】
 
-[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
+【**最後一條紅線，脫鉤。**就到底香港這個事情定義什麼意思？然後開始真正地與共產黨全面脫鉤。必須的、有條件的、給時間的、警告的——南海問題、東海問題、臺灣問題、香港問題，明確給你標準，**包括防火牆拿掉。**然後在這個時候馬上脫鉤。你給回復、你答應了，咱可能再談論。如不這樣——脫鉤，直到你答應為止。**實際上就是共產黨死了。**】
+
+這三根紅線就是：
+
+1. **美國定義中共是非法政權，將中國人與中共分開，中共必須為中共病毒負責。**
+2. **明確美國總統與習總書記的個人關係，世界選邊站。**
+3. **明確可能談論的標準，否則進行真正脫鉤。**
+
+
+中共最恐懼的是在國際社會上被孤立的同時，中國人民看清真相。**定義非法政權、推倒防火牆一個都不會少，**除非中共自我解體，或者有人出來青煙嫋嫋，給的期限可能是三個月到六個月。特朗普總統一定會在大選前做出明確的表態，**切割與習總書記的關係、全面滅共。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041632/%E4%B8%8B%E8%BD%BD2-1.png)
+
+現在正一步步往這個方向推進，針對第一條紅線，奧布萊恩的講話已經明確了中國人不等於中共。接下來要定義中共為非法政權，**最關鍵的是中共病毒的來源。**現在納瓦羅、蓬佩奧、班農在媒體上的造勢，就是在為英雄科學家出場作輿論準備。
+
+至於第二條紅線，**特朗普與習總書記的關係已經沒有那麼好了**，蓬佩奧等美國政要稱呼習總書記、特朗普和習總書記都沒有去夏威夷會談已經說明了一切。在沒有定義中共為非法政權、美國民意沒有起來、民主黨虎視眈眈的時候，**特朗普許多話和事情都不方便親自說、親自做。**至於兩個人的關係進展，博爾頓的新書被曝光證明**兩個人的關係只會更差、不會更好。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041648/%E4%B8%8B%E8%BD%BD-1.png)
+
+在美國領頭的情況下，**我們可以看到歐洲開始全面轉向滅共。**蓬佩奧對歐洲的兩次喊話，實際上，許多事情已經在全面推動，**喊話不是開始，而是快高潮。**歐洲肯定存在與中共勾兌的國家，有的國家也希望在期間撈取利益，**但歐洲與美國擁有共同的價值觀，**最終一定會選擇正義的一方。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041725/%E4%B8%8B%E8%BD%BD3-3.png)
+
+第三條是脫鉤，不是簡簡單單的產業鏈轉移，**金融脫鉤、提出美元體系**是壓倒中共本已快崩潰的體系的最後一根稻草。事實上，脫鉤意味著掛鉤，不僅是掛鉤東南亞、印度，**還是掛鉤新中國聯邦，這才是中共最恐懼的。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27041731/%E4%B8%8B%E8%BD%BD4-3.png)
+
+
 
 0

@@ -1,43 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文壇變遷看中共洗腦文學教育
-`2020-06-27 06:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/246868/)
+## 澳洲媒体投入灭共行动
+`2020-06-27 08:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246906/)
 
-**作者：共和青年社**
+*作者：Giselle*
 
-曾幾何時，中國文壇百家爭鳴，誕生了無數思想家、教育家，一群才華橫溢的青年學子如雨後春筍般湧現。這個國家的前途萬丈光芒。時光荏苒，這一幕卻被殘忍地定格在曆史的年輪上。這些畫面在我們眼前逐漸模糊，漸行漸遠。
+*校對：Julia Win*
 
-當今的文壇，沒有了先前的繁榮，沒有了不同思想相互碰撞産生的耀眼光芒，更沒有了莘莘學子內心深處的獨白。如同一灘腐爛發臭的苦水。我們的文壇究竟遭受了怎樣滄海桑田的變化？又是什麽讓著朝氣蓬勃的少年未老先衰？
+*Page：拱卒*
 
-聚焦我們青年學子文學教育的核心，社會關注度最高的高考科目—語文。這個以分數高低決定成敗的考試，不可避免地得從分值最高的題型說起—作文。
+從來避談中共的澳洲媒體，這兩天仿佛換了張臉，不但24日連續發布3條反共新聞，在接下來的25日、26日，不斷有澳洲主流媒體加入對中共的討伐行動，重磅消息連發見諸報端。
 
-目前高中生的作文都千篇一律，無不是人民日報式的假、大、空的文章，沒有絲毫創新。我們偶爾也能看到令人拍案叫絕的文章，但這些優秀的作品有太多讓中共洗腦下的教師無情摧殘。
+我們知道澳洲是被中共藍金黃最嚴重的地方之壹。據爆料革命發起人郭文貴先生在班農作戰室透露，自2014年以來，中共每年花費15億美元收買澳洲媒體、政要，以達到控制澳洲媒體以及資源的需求。中澳每年貿易金額高達2000億美元，如此巨量的經濟往來，使得中澳兩國在利益上盤根錯節，難以分割，因此，盡管CCP-virus導致澳洲經濟停擺、人員傷亡，但主流媒體始終三緘其口，或者為中共站臺、辯護。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27060958/fdghj.jpg)
+時隔數月，國際形勢發生了翻天覆地的巨大變化，在爆料革命不斷提供證據、揭露真相的行動中，美國共和黨、民主黨已達成滅共共識，而作為五眼聯盟成員的澳洲，其政要、媒體的態度，也在悄悄改變。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
+- 6月24日，獨立調查媒體 Crikey Australia 呼籲所有媒體從業人員區分來自中共統戰組織的滲透和澳大利亞華人真正的社區組織。 文章作者 John Fitzgerald 呼籲澳大利亞政府邀請更多獨立亞裔來共同對抗中共的滲透和壓制。
 
-剖析高考作文，不難發現其表面的自選角度，自定立意的背後，有著各式各樣的金科玉律。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
+- 24日，ABC news記者Eden Hynninen報道：中共國日前要求所有澳大利亞出口商簽署“聲明”出口貨物不含CCP病毒。澳大利亞農業部長表示，澳大利亞食品安全標準是世界領先的，並建議出口商不要簽署任何聲明文件，此舉可能被認為是中共國的報復手段。
 
-第一，新課標作文評分標准中最核心的一條便是“思想健康”。何謂思想健康?思想健康即是弘揚中共的時代精神，唱響中共的主旋律。總結一點便是：愛黨、尊黨、敬黨，堅決堅持黨是唯一標准，堅持黨的絕對領導。一切觀點都必須符合中共“新時代”下的“正能量”原則。否則，即使你的文章再精彩，也難以拿到高分。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=1024)
+- 24日，Skynews報道稱，聯合國取代世衛成為中共國的“走狗”。S主持人 Paul Murray在節目中指出, 中共國通過收買手段使聯合國和各種國際組織成為其“走狗”，又壹次讓中共國從踐踏人權的惡性罪行中逃脫。
 
-第二，學生的行文結構都必須遵循中共教師的格式，行文中不得夾雜過多個人的觀點。那些表面看似有些許新思想的觀點無不是從人民日報等黨媒摘取下來的毒瘤，。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=2850)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=1024)
+- 25日，《Sydney Morning Herald》（悉尼先驅晨報）揭露：維州與科大訊飛簽署了壹系列合作協議, 由科大訊飛 (IFlytek) 為維州政府提供多種服務。科大訊飛由於參與新疆迫害被美國制裁，維州與中共國關系密切，支持並參與了壹帶壹路項目。
 
-第三，每一篇作文想要高分還需引用名人名言。最具代表的便是習近平的名言，衆多教師都強制要求學生收集、整理並背誦習近平的名言。使得青年學子對習近平的個人崇拜靡然成風。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=2677)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=1024)
+- 25日《Sydney Morning Herald》報道：澳洲前總理 Malcolm Turnbull 呼籲南海各國家對中共國保持高壓，拒絕其對南海的任何主權宣誓。
 
-第四，在高考閱卷中，改卷者只有極短的時間改卷，這便給考生的創作帶來了極大的限制。學生的寫作方向由寫好一篇文章轉變爲寫一篇讓改卷者在短時間能看懂，能打高分的文章。使得背作文、套作文成爲中共國文學教育的一大特色。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=3069)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=1024)
+- 26日，《Sydney Morning Herald》連發三篇報道：
 
-學生在這無數潛規則下不斷地訓練，逐漸變成了一台只爲迎合教師，迎合中共的一台寫作機器。而“人民日報式文章”便成爲最合適這套制度的模板。學生想要模仿學習這類格式，勢必要閱讀大量中共黨媒的文章，而這些無不是贊美執政者的。長期暴露在這種環境下，假的也將成爲真的。
 
-由此觀之，中共一切教育教學的目的並不是爲了提升學生的思想素養，而是在不知不覺中扼殺青年的思想，使之成爲一個沒有獨立思想，沒有反抗意識，能聽從黨的領導的動物人。而這些年中共所謂的語文教育改革，無不打著“加深對祖國語言文字的理解與熱愛”，“促進語文教育教學”的幌子，不斷向青年學子灌輸“新時代”、“正能量”等邪惡思想。進一步將青年學子塑造成只會對現有知識檢索，不會對觀點正誤進行判斷，沒有權利意識的人。
+1.《Sydney Morning Herald》報道了澳大利亞ASIO反間諜機構當日突襲了新洲共黨議員NSW Labor Shaoquett Moselmane住所，調查他作為中共的代理人對澳大利亞的滲透。據悉這是ASIO近年來最為重大的調查之壹，預示著澳大利亞親共政客們噩夢開啟。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=2692)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=1024)
+2.同日，《Sydney Morning Herald》報道了壹篇非常有意思的采訪，標題使用了“little pinks”（小粉紅）這個字眼：世界各地小粉紅們紛紛表示傷透了心，他們深愛的中共國已經拋棄了他們。美國的粉紅們說中共國怕他們傳播病毒不讓他們回國，他們的內心拔涼拔涼的；日本的粉紅們終於認清現實中根本沒有戰狼勇士來營救他們，很多小粉紅們表示開始懷疑自己的人生……
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=1024)
+3. 同日，《Sydney Morning Herald》澳大利亞駐英國最高外交大臣George Brandis強烈譴責CCP散布疫情虛假消息，進而摧毀民主自由制度的可恥行徑，他批評了CCP對澳大利亞的網絡攻擊行為，並表示英國正和澳大利亞壹起聯手對抗中共。
+[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=1024)
+種種跡象皆顯示，全球滅共大聯盟正在初步成型，美歐、美澳、美俄、亞太……中共末日喪鐘已經敲響，面臨被全球圍剿、無處可逃絕境。
 
-而中共爲了掩飾它的洗腦奴化教育，強行給它的教育體制披上了素質教育的外衣。中共宣傳組派出了大量所謂的文人學者四處演講。今日說：“我們要注重學生寫作基本能力的培養，我們應重視學生的個性發展。”明天說：“學生的個性若不加以約束，定會毀了我們的孩子。”一番操作後，中共營造出了中共國當前教育行業百家爭鳴的假象。
-
-這種磨滅人性的教育體制，造就了無數悲劇。近日，金壇河濱小學的一位學生作文課後，因不堪忍受其語文教師的痛批、掌掴等，選擇跳樓結束了自己鮮活的生命。只因這位小女孩寫的《三打白骨精》的感受是：“有些人表面看著善良，可內心都是陰暗的，他們會利用各種各樣的卑鄙的手段和陰謀詭計來達到不可告人的目的。”任課的老師便痛批：“太負能量！”試問，這位孩子說的有錯嗎？負能量又是什麽？這位教師的觀點又從何而來？文學閱讀本身就是一種再創作的活動。這些教師口口聲聲說的：“一千個讀者就有一千個哈姆雷特。”然而，在他們的實際行動中，連作文都有了標准答案。孩子的天分被殘忍束縛，思想被無情摧殘，創新創造的根基被永久鏟除。而這，只是中共畸形的奴化教育下的冰山一角。
-
-隨著老一代文人的退出，接受中共洗腦教育的新一代青年接替，幾代更叠後，中共洗腦的文人占據了中國文壇的大好河山，加之中共不斷制造白色恐怖，學子和作家在這種高壓環境下，只能被迫寫中共的贊歌。至此，中國文學進入了黨文學，文人成了共産黨的禦用筆杆。
-
-當文學成了獨裁者的統治工具，當教育成爲禁锢思想的手段，當一篇普通的日記都只能到美國發表，這個民族的災難便從天而降。唯有解放思想，打破禁區，才能走出中共洗腦奴化教育的魔爪。也唯有此，人民大衆才能在大思潮來襲之際，大災難來臨之際，堅定地選擇自由、民主、人權和法制。
-
-（文章內容僅代表作者觀點）
+编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/C1kviAW9qVrq3/)
 
 0
