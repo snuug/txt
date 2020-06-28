@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲媒体投入灭共行动
-`2020-06-27 08:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246906/)
+## 參議院通過香港的制裁法案
+`2020-06-27 09:02 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246937/)
 
-*作者：Giselle*
+*文章來源：The Hill*
 
-*校對：Julia Win*
+*作者：[JORDAIN CARNEY](https://thehill.com/author/jordain-carney) – 06/25/20 06:48 PM EDT*
 
-*Page：拱卒*
+*翻譯、簡評：萬人往*
 
-從來避談中共的澳洲媒體，這兩天仿佛換了張臉，不但24日連續發布3條反共新聞，在接下來的25日、26日，不斷有澳洲主流媒體加入對中共的討伐行動，重磅消息連發見諸報端。
+*PR：Julia Win*
 
-我們知道澳洲是被中共藍金黃最嚴重的地方之壹。據爆料革命發起人郭文貴先生在班農作戰室透露，自2014年以來，中共每年花費15億美元收買澳洲媒體、政要，以達到控制澳洲媒體以及資源的需求。中澳每年貿易金額高達2000億美元，如此巨量的經濟往來，使得中澳兩國在利益上盤根錯節，難以分割，因此，盡管CCP-virus導致澳洲經濟停擺、人員傷亡，但主流媒體始終三緘其口，或者為中共站臺、辯護。
+*Page：玄天生*
 
-時隔數月，國際形勢發生了翻天覆地的巨大變化，在爆料革命不斷提供證據、揭露真相的行動中，美國共和黨、民主黨已達成滅共共識，而作為五眼聯盟成員的澳洲，其政要、媒體的態度，也在悄悄改變。
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/1fd2b455-3db0-4136-8604-3f41f923a174.jpg?asset_id=aea67431-db26-4b18-bded-98f20004f53d&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
-- 6月24日，獨立調查媒體 Crikey Australia 呼籲所有媒體從業人員區分來自中共統戰組織的滲透和澳大利亞華人真正的社區組織。 文章作者 John Fitzgerald 呼籲澳大利亞政府邀請更多獨立亞裔來共同對抗中共的滲透和壓制。
+**簡評：**
 
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/4a9f9c66-655d-496e-a288-f456eaffe2f5.jpg?asset_id=fd2d9b83-e436-4211-8213-c90a9eafafb0&amp;img_etag=%226d8223f09fcf4d4df3d3d91f928eb218%22&amp;size=1024)
-- 24日，ABC news記者Eden Hynninen報道：中共國日前要求所有澳大利亞出口商簽署“聲明”出口貨物不含CCP病毒。澳大利亞農業部長表示，澳大利亞食品安全標準是世界領先的，並建議出口商不要簽署任何聲明文件，此舉可能被認為是中共國的報復手段。
+《香港自治法案》由壹位民主黨參議員和壹位共和黨參議員提出，並迅速在參議院全票通過，這表明**以美滅共**已進入快車道，民主黨和共和黨在香港問題上拋棄黨爭，達成共識。該項法案由眾議院通過後提交總統簽字實施已經毫無懸念。
 
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/48acb770-e367-4899-878a-e8e5fc27e06d.jpg?asset_id=f342b5bf-429f-4544-b484-0898010697c1&amp;img_etag=%22872a95b895e91d5946af880f9d21b4c6%22&amp;size=1024)
-- 24日，Skynews報道稱，聯合國取代世衛成為中共國的“走狗”。S主持人 Paul Murray在節目中指出, 中共國通過收買手段使聯合國和各種國際組織成為其“走狗”，又壹次讓中共國從踐踏人權的惡性罪行中逃脫。
+按照中共“戰狼外交”的德性，壹定會派趙立堅或者華春瑩這對“堅夫瑩婦”出來在外交部答記者會上撒潑打滾，說香港是中共國的香港，這是中共國的內政，外人無權幹涉，壹副“我打自己孩子關妳什麽事”的無賴相。
 
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=2850)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8671b3e2-2485-45b1-af2d-9c2ead982eda.jpg?asset_id=1d5c80a4-74d1-4825-a51f-973108015c68&amp;img_etag=%22a9e123a84c4f99caa954a5b02743acea%22&amp;size=1024)
-- 25日，《Sydney Morning Herald》（悉尼先驅晨報）揭露：維州與科大訊飛簽署了壹系列合作協議, 由科大訊飛 (IFlytek) 為維州政府提供多種服務。科大訊飛由於參與新疆迫害被美國制裁，維州與中共國關系密切，支持並參與了壹帶壹路項目。
-
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=2677)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/c45e7382-b764-4073-b745-f41849b65115.jpg?asset_id=22b24b8a-60cc-4cf6-ae69-36eccff73182&amp;img_etag=%2252975e514979e81357240d065024888e%22&amp;size=1024)
-- 25日《Sydney Morning Herald》報道：澳洲前總理 Malcolm Turnbull 呼籲南海各國家對中共國保持高壓，拒絕其對南海的任何主權宣誓。
-
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=3069)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/9bfc7a46-fff4-4bfa-a7b7-92821b724986.jpg?asset_id=c6c0cd62-c870-46f8-9198-7f5ff47cdcad&amp;img_etag=%226f09923050f7f56e5a981da544fee0eb%22&amp;size=1024)
-- 26日，《Sydney Morning Herald》連發三篇報道：
+中共單方面撕毀中英聯合聲明，違背香港基本法，強行通過港版國安法，踐踏民主，違背法治，香港作為國際金融中心的基石已被摧毀。美國通過《香港自治法案》，既保護了美國在港利益，也保護了香港的自治地位，合理合法，順應人心，合乎民意。香港是自由、法治的國際貿易港，《香港自治法案》是美國國內法案，中共作為外人，無權幹涉。那些手上沾滿了香港同胞鮮血的中共官員、軍警憲特，報應終會來到。
 
 
-1.《Sydney Morning Herald》報道了澳大利亞ASIO反間諜機構當日突襲了新洲共黨議員NSW Labor Shaoquett Moselmane住所，調查他作為中共的代理人對澳大利亞的滲透。據悉這是ASIO近年來最為重大的調查之壹，預示著澳大利亞親共政客們噩夢開啟。
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=2692)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/bb6fb617-ad10-46a9-b76a-d71fbb0d34fe.jpg?asset_id=ee5c72a2-3b48-4878-93a4-51d9c4f25de5&amp;img_etag=%221fb296ec525b916c8ced551f45b67004%22&amp;size=1024)
-2.同日，《Sydney Morning Herald》報道了壹篇非常有意思的采訪，標題使用了“little pinks”（小粉紅）這個字眼：世界各地小粉紅們紛紛表示傷透了心，他們深愛的中共國已經拋棄了他們。美國的粉紅們說中共國怕他們傳播病毒不讓他們回國，他們的內心拔涼拔涼的；日本的粉紅們終於認清現實中根本沒有戰狼勇士來營救他們，很多小粉紅們表示開始懷疑自己的人生……
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/2fcaec1d-0202-4bfe-af4a-f4ea15bfce39.jpg?asset_id=cdb62d8b-c1a1-4a20-9c15-a32f00efeda5&amp;img_etag=%22e50aa4f747930550c5e15ad70761c769%22&amp;size=1024)
-3. 同日，《Sydney Morning Herald》澳大利亞駐英國最高外交大臣George Brandis強烈譴責CCP散布疫情虛假消息，進而摧毀民主自由制度的可恥行徑，他批評了CCP對澳大利亞的網絡攻擊行為，並表示英國正和澳大利亞壹起聯手對抗中共。
-[!\[\](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=2560)](https://spark.adobe.com/page/C1kviAW9qVrq3/images/8b19e234-6b91-48b5-aa82-08e3cfe15f97.jpg?asset_id=1e4a9171-5db7-43f2-a78b-8d05ac57a4f4&amp;img_etag=%22ec1964ccdefe96c212efac640661372e%22&amp;size=1024)
-種種跡象皆顯示，全球滅共大聯盟正在初步成型，美歐、美澳、美俄、亞太……中共末日喪鐘已經敲響，面臨被全球圍剿、無處可逃絕境。
 
-编辑：[【喜马拉雅战鹰团】](https://spark.adobe.com/page/C1kviAW9qVrq3/)
+## **參議院通過針對中共國香港法律的制裁法案**
+
+
+
+美國參議院周四通過壹項法案，對限制香港自治的中共國官員實施制裁。
+
+這項由馬裏蘭州民主黨參議員克裏斯·範霍倫（D-MD)和賓夕法尼亞州共和黨參議員帕特·圖米(R-Pa)牽頭的法案，針對那些侵犯香港半獨立地位的個人和實體，以及與之有業務往來的銀行，將予以制裁。
+[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/15494B65-924C-42FC-B038-05E1619CB320.jpg?asset_id=9118E957-F7C3-44D3-A6F5-C9CB540081D6&amp;size=1024)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/15494B65-924C-42FC-B038-05E1619CB320.jpg?asset_id=9118E957-F7C3-44D3-A6F5-C9CB540081D6&amp;size=1024)
+“中共國政府在香港的所作所為是不可接受的。他們剝奪了香港人民的權利。他們正在扼殺那裏僅存的自由，”範霍倫在參議院說。“他們正在推進剝奪香港人自由的進程。所以時間是至關重要的。”
+
+該法案出臺之際，中共國正在提出的壹項國家安全法引發了美國國會和國際社會的擔憂，即北京當局將擴大對香港的控制，並將限制公民和政治自由。
+
+參議員們試圖在本月早些時候通過該法案，但參議員凱文·克萊默 (R-N.D.)反對。根據參議院的規定，任何參議員都可以試圖以壹致同意的方式通過壹項法案，但任何參議員也可以阻止它。
+
+克萊默告訴Politico網站，盡管他是該法案的共同發起人，但他是應白宮的要求才這麽做的，因為該法案被要求進行“技術性”修改。
+[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/9A4AA571-4672-4368-8208-B9801FFA9D4A.jpg?asset_id=97E4E57A-D1C6-4990-8EB6-866180B6B232&amp;size=2560)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/9A4AA571-4672-4368-8208-B9801FFA9D4A.jpg?asset_id=97E4E57A-D1C6-4990-8EB6-866180B6B232&amp;size=723)
+圖米周四指出，他們壹直在與財政部合作，已經到了“我們同意這項法案的地步”。
+
+該法案仍需在眾議院通過後才能提交給川普總統，總統與中共國的關系令人擔憂。前國家安全顧問約翰·博爾頓在他即將出版的書中稱，川普不願過多介入香港抗議活動，他說:“我們也有人權問題。”
+
+除了制裁法案，參議院還通過了壹項由參議員喬希·霍利(R-Mo.)提出的譴責國家安全法的決議。
+[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/AC973BF0-D73E-43CD-8787-B70A19D68536.jpg?asset_id=089643C2-3CB4-4F92-BD84-1692D1AF7108&amp;size=1024)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/AC973BF0-D73E-43CD-8787-B70A19D68536.jpg?asset_id=089643C2-3CB4-4F92-BD84-1692D1AF7108&amp;size=1024)
+“我認為，這個時刻，我們能夠聚在壹起發出壹個聲音，向北京當局發出壹個明確的信號，其粉碎和摧毀香港人自由的企圖不會被忽視，不會得不到解決，”他說。
+
+[文章鏈接](https://thehill.com/blogs/floor-action/senate/504635-senate-passes-sanctions-bill-targeting-china-over-hong-kong-law?__twitter_impression=true)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/EsgPDlEykBNJn/)
 
 0

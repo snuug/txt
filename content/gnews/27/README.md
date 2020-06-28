@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 外儲減外債跌破一萬億大關，債務是壓垮共產黨最後的稻草
-`2020-06-27 03:16 GM08` [轉載自GNews](https://gnews.org/zh-hant/246687/)
+## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
+`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
 
-近日，中共國家外匯管理局公佈了一季度中共國全口徑外債數據：截至2020年3月末，全口徑(含本外幣)外債餘額為148403億元人民幣(等值20946億美元)。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27030508/gettyimages-97599090-594x594-1.jpg)A Chinese bank worker prepares to count a stack of US dollars together with stacks of 100 Chinese yuan notes at a bank in Hefei, east China’s Anhui province on March 9, 2010. All signs are pointing to an appreciation of China’s currency, perhaps even by mid-year, analysts say, after a cryptic hint from the nation’s central bank governor and a limited jump in the yuan’s value. CHINA OUT AFP PHOTO (Photo credit should read STR/AFP/Getty Images)
-2020年一季度中共國外債規模截至2020年3月末，全口徑(含本外幣)外債餘額為20946億美元，較2019年末增長373億美元，增幅1.8%。從幣種和期限結構看，本幣外債佔比38%，中長期外債佔比42%，分別較2019年末上升3個和1個百分點。
+戰友之家圖文摘要組及小語種組
 
-2020年一季度末，中共國外匯儲備30606億美元，外債20946億美元。一季度外儲減外債規模為9660億美元。也就是說共產黨的數據第一次跌破萬億美元大關。對比2019年末，中共國外匯儲備31079億美元，外債20573億美元，外儲減外債規模為10506億美元。也就是說僅僅一個季度，中共國外儲減外債規模就下降846億美元。只是一季度，外債就新增了373億美元，創一年半新高，其中廣義政府負債和中央銀行負債增長192億美元，佔比仍然達到51.5%，中共政府和央行仍然是藉外債的主力。
+[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
 
-面臨今年CCP病毒造成的困境，中共央行、外匯局快速出台多項跨境融資便利化措施，進一步擴大企業借用外債空間吸引外資： 將跨境融資宏觀審慎調節參數由1上調至1.25，將企業借債空間從原來淨資產的2倍提高至2.5倍；擴大外債便利化試點，支持試點地區高新技術企業在一定額度內自主借用外債，並擴大一次性外債登記試點範圍； 建立外匯政策綠色通道，企業可在線上申請外債登記。
+[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
 
-但是以一季度數據來看，中共的計劃並未得到有效的回報。其中直接投資，公司間貸款債務餘額為17086億元人民幣（等值2412億美元），佔12%；其他債務負債餘額為3608億元人民幣（等值509億美元），佔2%。也就是說兩項合計外債減少340億美元。側面也反映出企業存在大量倒閉，對資金需求快速減弱的現實。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27031424/mfile_1517278_1_20200327191823-1-scaled.jpg)
-從幣種結構看，本幣外債餘額為55750億元人民幣（等值7869億美元），佔38%；外幣外債餘額（含SDR分配）為92653億元人民幣（等值13077億美元），佔62% 。在外幣登記外債餘額中，美元債務佔83%，歐元債務佔7%，港幣債務佔5%，日元債務佔2%，特別提款權和其他外幣外債合計佔比為3%。也就是說總體債務還是以美元債為主，而中共大量主權債務如果發生問題必將會對共產黨國際上的信用產生極負面的影響。如今中共國企業營商環境急速惡化，企業對外借債變得十分困難。如果出現外債資金鍊斷裂，必然會導致中共國整個金融環境和經營環境惡化乃至崩潰。中共利用主權信用大量借貸外債挽救經濟、金融，維持他的統治也是它所能做的。但是企業外債違約是以企業資產為抵押，在法律的框架下解決即可，他並沒有什麼國際糾紛。而主權外債是以國家信用為擔保，違約則意味著國家信用破產，必然會被孤立和製裁，會導致違約國經濟迅速崩潰。委內瑞拉、阿根廷、津巴布韋，俄羅斯等都“品嚐”過國家主權信仰違約的苦果，稍微懂一些經濟史的都知道他們發生過什麼。
+[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
 
-數據顯示，一季度實體淨償債354億美元，為此銀行淨借入521億美元，共產黨一次穩定外匯儲備。其中“其他接受存款的公司”長短期債務的構成來看，短期債務（三個月內償債）新增437億美元，佔比新增總量的84%，新增短期債務佔了絕對多數。也就是說銀行主要利用非居民機構同業存放餘額（同業存放一般期限更短）在維持外儲的規模。然而這部分資金在一個季度內就需​​要歸還，也就是說第二季度就是另一個償債高峰期。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27030646/acd51ec9-26c4-40c5-b775-598d4dbb724d.jpg)
-共產黨真是到了窮途末路，外儲減去外債已經不足萬億，何況中美脫鉤外資撤離至少還會減少5000億的外匯儲備。共產黨現在維持這艘“千瘡百孔”的破船不沉，也只可以拆東牆補西牆，如果這個時候金融大鱷們狠狠的踩上一腳，共產黨必然會瞬間灰飛煙滅。
+[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
 
-(文章內容僅代表作者觀點）
+[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+
+[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+
+[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
 
 0

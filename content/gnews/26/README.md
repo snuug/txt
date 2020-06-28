@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
+## 美國《外國主權豁免法》聽證預修正，只爲追責中共罪魁！
+`2020-06-27 04:10 GM30` [轉載自GNews](https://gnews.org/zh-hant/246769/)
 
-戰友之家圖文摘要組及小語種組
+**作者：亞倫**
 
-[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
+6月23日美國參議院司法委員會召開《外國主權豁免法》聽證會，嚴肅認真地討論了對《外國主權豁免法》（不能起訴外國主權國家的法案）的修正案。爲剝奪中共國家主權豁免權，爲向中共追責並巨額索賠掃除障礙，提供法律支持！
 
-[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040406/111-4.jpg)
 
-[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
+知識小補充：
 
-[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
+國家主權豁免，指一個國家免受另一國法院的管轄，該規則是對國家主權的一種保護。該規則僅限于一個國家在另一國家進行的法律訴訟，在其本國進行的法律訴訟則不被豁免。目前，各國傾向于有例外的國家豁免，特別是當某個國家涉及商業交易或者非主權活動時。
 
-[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+1976年，美國頒布《外國主權豁免法》，一般性的禁止針對外國政府提起訴訟，規定外國如有下列情況之一, 不享有豁免: ①放棄豁免；②在美國從事商業活動；③沒收在美國的財産；④涉及在美國的不動産; ⑤在美國發生的侵權行爲。
 
-[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+之前密蘇裏州檢察長在提出針對中國的訴訟案時試圖使用《外國主權豁免法》中的一些例外來繞過主權豁免原則帶來的限制，其中一個例外是中國病毒實驗室裏的“商業活動”不受美國主權豁免法的限制；另一個是，疫情爆發造成的經濟損失允許提出侵權索賠。但是美國的法律專家對《外國主權豁免法》中的這些例外能否適應于這些訴訟感到懷疑。所以早在4月20日，就有美國議員他們預備推出兩部新法案，盼透過剝奪中共政府主權豁免權，爲受疫情損失的美國民衆向中共索賠鋪路。
 
-[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
+雖說速度有點慢，時隔兩個月後，《路德社》爆出了美國參議院司法委員會開始聽證會，美國非常清楚中共將利用“國家豁免權”來逃避釋放病毒的責任。爲此專門針對這個問題展開討論，以民事訴訟爲基礎，查封凍結中共國在美資産爲手段，迫使中共必須面對訴訟並且不被“國家豁免權”所保護， 從而達到民事賠償的目的！
+
+這次《外國主權豁免法》聽證特別指出，只是針對中共國，絕不針對其他國家。霍利參議員在司法委員會上表示：中共在作案的第一時間撒謊，勾結WHO對疫情進行掩蓋，引用“商業異議條款”，授權法庭凍結中共國的在美資産。路德先生特別透露，霍利是班農先生扶持的青年政治家，這個司法聽證會從3月份就開始籌備（共和黨籍衆議員古登（Lance Gooden）及共和黨籍參議員霍利（Josh Hawley）也相繼提出“阻止源自中國病毒傳染病法案”（Stop COVID Act）與“2019冠狀病毒（中共病毒）疾病受害者正義法案”（Justice for Victims of COVID-19 Act），之所以沒有全面推進是因爲中共耍大刀、一直在拖時間搞談判，但彭楊夏威夷會談的徹底談崩（最後通牒），聽證會隨之也正式推進。
+
+霍利參議員對于法案條款的查缺補漏，不再給中共鑽法律空子的空間。之前主權豁免法案堪稱中共的護身符，一再的使得中共免于法院的訴訟。
+
+川普總統上台，不按套路出牌，打破了以前兩黨政治中的很多潛規則，以前的總統候選人在競選時很多都承諾要搬遷到耶路撒冷，只有川普總統在上任第一年就實現了。中共面對之前的美國總統都是以反共爲口炮爬上總統大位後，開始和中共勾兌，掉入中共想要的鍾擺效應的手掌心。
+
+法律設置的最終目的是保障人權，契約穩定存在就是社會穩定，這是法律應有的本質。目前美國民衆已經被中共的實驗室制造，精准投毒折騰的不堪重負；煽動恐怖主義組織Antifa以一個冠冕堂皇的黑人命貴爲口號打砸搶美國各個大城市，給疫情下的美國經濟又一重創。期待《外國主權豁免法》快速修補，並有利的執行，給美國和世界人民一個交代。
+
+（文章內容僅代表作者觀點）
 
 0
