@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-27 23:55 GM77` [轉載自GNews](https://gnews.org/zh-hant/247476/)
+## 戰友觀點：試論中國教會應如何和解病毒大流行中遭到破壞的三重關係（第一部分，共三部分）
+`2020-06-28 02:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247135/)
 
-戰友之家圖文摘要組及小語種組
+**作者：Joseph Benjamin Taylor**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114556/1-198.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114700/2-112.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114737/3-58.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114806/4-47.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114827/5-31.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114841/6-20.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114854/7-16.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27214831/8-16.png)
+[第一部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247135)
+[第二部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247666)[第三部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247734)
 
-[English\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233144/English_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233144/English_0626_CCP_Virus_Updates.pdf)
-
-[French\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233148/French_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233148/French_0626_CCP_Virus_Updates.pdf)
-
-[German\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233152/German_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233152/German_0626_CCP_Virus_Updates.pdf)
-
-[Japanese\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233156/Japanese_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233156/Japanese_0626_CCP_Virus_Updates.pdf)
-
-[Korean0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233200/Korean0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233200/Korean0626_CCP_Virus_Updates.pdf)
-
-[Russian\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233204/Russian_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233204/Russian_0626_CCP_Virus_Updates.pdf)
-
-[Spanish\_0626\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233209/Spanish_0626_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27233209/Spanish_0626_CCP_Virus_Updates.pdf)
+以上內容僅代表作者的個人觀點
 
 0
