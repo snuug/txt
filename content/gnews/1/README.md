@@ -1,41 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三年到期解禁 “郭七條”要松動
-`2020-06-27 21:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/247342/)
+## 人工智能可以為民主服務
+`2020-06-28 00:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/247598/)
 
-作者：新中國聯邦加拿大農場 亞倫 （文章僅代表作者個人觀點）
+Artificial Intelligence Can Serve Democracy
 
-*前序*
+Issued on: June 26, 2020
 
-*我就是我，是顏色不壹樣的煙火；天空海闊，要做最堅強的泡沫。*
+## 人工智能可以為民主服務
 
-——*《我》林夕*
+發佈日期：2020年6月26日
 
-中共對中國人民螻蟻思想的鉗制太深了，用黑社會手段威脅綁架家人對覺醒者制約，各個覺醒者壹路走來太不容易，頭上都栓著親情、友情懼怕的枷鎖及巨大的精神和心理壓力。中共就是要人活在扭捏和憋屈之中，用商鞅愚民五術牢籠任何有價值的思考，用疲於奔命和娛樂至死“殺死”看似活著的行屍走肉。為什麽要懼怕，懼怕背後就是威脅和毛式的批鬥，認為這才是人茍活的智慧，選擇跪下的沈默可以逃脫中共殺身體、殺靈魂的魔掌麽？爹親娘親不如黨親，壹切都是黨的，壹切都要聽黨的，身體子宮都要貢獻出來，器官也要挖掉，錢和靈魂都要偷走。
+The U.S. is using every tool at its disposal to defeat the novel coronavirus, including artificial intelligence. American laboratories are harnessing AI to discover new therapeutics. The Food and Drug Administration approved an AI tool to help detect coronavirus in CT scans. And the White House led an initiative to create a database with more than 128,000 articles that scientists can analyze using AI to help understand the virus better and develop treatments.
 
-中共領袖失去了做戈爾巴喬夫的機會，選擇了齊奧塞斯庫。
+美國正在使用包括人工智慧及其他各種現有工具來應對新型冠狀病毒，包括人工智慧。美國實驗室正在利用人工智慧來發現新療法。美國食品藥品監督管理局（FDA）批准了一種AI工具，有助於在CT掃描中檢測冠狀病毒。白宮牽頭創建了一個資料庫，包含128000多篇文章，科學家可以使用AI幫助他們更好地瞭解病毒並開發治療方法。
 
-**小知識補充：**
+At the same time, AI is being twisted by authoritarian regimes to violate rights. The Chinese Communist Party is reportedly using AI to uncover and punish those who criticize the regime’s pandemic response and to institute a type of coronavirus social-credit score—assigning people color codes to determine who is free to go out and who will be forced into quarantine.
 
-戈爾巴喬夫，蘇聯政治家，1990至1991年間出任蘇聯總統，他擔任蘇聯總統期間，宣布了蘇聯解體。
+同時，人工智能被威權政權所扭曲，用以侵犯民眾權利。據報導，中國共產黨正用人工智能來發現和懲罰那些批評政府應對疫情措施的人，並建立一種冠狀病毒的社會信用評分系統-給人們分配顏色代碼，以確定哪些人可以自由出門，哪些人將被隔離。
 
-齊奧塞斯庫，羅馬尼亞政治人物，1965年至1989年任羅馬尼亞共產黨總書記。齊奧塞斯庫政權在1989年羅馬尼亞革命中被推翻，其本人及其妻子則被執行槍決。
+As the world begins to recover from the pandemic, nations face a stark choice about what vision of artificial intelligence will prevail. As Group of Seven nations meet this year under the organization’s U.S. presidency, there is a critical opportunity to shape the evolution of AI in a way that respects fundamental rights and upholds our shared values. That is why G-7 technology ministers will agree Thursday to launch the Global Partnership on Artificial Intelligence, or GPAI, together with other democratic countries.
 
-《路德社》重磅爆料，說是文貴先生在群裏發了語音，昨天班農先生跟Fox主持人多布斯打電話，壹直在罵三字經，針對中共。文貴先生提到中共和中國人的區分；川和習的私人關系拜拜。
-[!\[京城乱象聚餐必谈郭文贵猜测最大老虎\](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQXlfwRkU7EQWMBWYRBTSS77PPSmX-rRIoBnQ&amp;usqp=CAU)](https://www.google.ca/url?sa=i&amp;url=http%3A%2F%2Fwww.rfi.fr%2Fcn%2F%25E4%25B8%25AD%25E5%259B%25BD%2F20170627-%25E4%25BA%25AC%25E5%259F%258E%25E4%25B9%25B1%25E8%25B1%25A1-%25E8%2581%259A%25E9%25A4%2590%25E5%25BF%2585%25E8%25B0%2588%25E9%2583%25AD%25E6%2596%2587%25E8%25B4%25B5-%25E7%258C%259C%25E6%25B5%258B%25E6%259C%2580%25E5%25A4%25A7%25E8%2580%2581%25E8%2599%258E&amp;psig=AOvVaw1APEX5FplMYmKlbvHTq6yq&amp;ust=1593390765320000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCIDRpKmho-oCFQAAAAAdAAAAABAJ)
-只要川普總統和習的關系徹底拜拜，那“郭七條”就要應聲改動，國際格局將發生最大變化。
+隨著世界開始從此次疫情中復蘇，各國在選擇哪種人工智慧願景方面，將面臨嚴峻的選擇。今年，美國擔任七國集團（G7）輪值主席國，這是一個塑造人工智慧發展的關鍵機會，各國應尊重基本權利和維護共同價值。因此，七國集團（G-7）科技部長們將在週四達成協議，與其他民主國家一起啟動“全球人工智慧夥伴計畫”（GPAI）。
 
-當年郭七條中的“不反習”是在給習三年時間，這也是美國背後的力量給習的三年時間。希望習能在這三年時間內，讓中國社會平穩過渡，出現戈爾巴喬夫。如果習能做出歷史的正確選擇，那絕對是歷史偉人的締造者，諾貝爾和平獎，將被載入贊頌的史冊。然而隨著北京內部權力鬥爭的激化，習更傾向於做習奧塞斯庫。齊奧塞斯庫模式和戈爾巴喬夫模式，最大區別是對國家的傷害程度不同。大家都期盼著能平穩的過度，可以少留壹些人民的血，少壹些動蕩和饑餓。
 
-進入甲子年，多事秋。目前長江流域百年壹遇的特大洪水，長江三峽棉被大壩隨時進入危險期，夏天北方各地的雞蛋冰雹，頤和園裏的拍打的巨浪，兩會間白天中的黑夜，各地的有感地震，新冠病毒的無忌憚肆虐，天象表明中共專制獨裁統治不得民意，必將滅亡。國安、國寶刪得了網絡真實言論，刪不除人民吶喊的內心；防火墻玩弄得了愚民，擋不過追求真理的內心。反之，新中國聯邦六四當天的意象，天開不下雨，爆料革命亦步亦趨，承載了無數的質疑和壓力（爆料是壓上了所有的信譽的瘋狂），結果看起來這都是上帝的應允，有上天幫助和扶持。
 
-相對應的埋藏在爆料革命的偽類們只會對罵吸引目光耗費戰友們的精力，只會騙捐，只會大頭癥造空中樓閣妄圖領導壹切，給世界把把脈。壹葉知秋，由此可見中共治下所滋生骯臟陰暗的生態圈，沒有信譽、沒有信仰、只顧眼前壹畝三分地的利益，稗子總要被篩出來，當收割的時候，要對收割的人說，先將稗子薅出來，捆成捆，留著燒；惟有麥子要收在倉裏。
+閱讀原文：[Artificial Intelligence Can Serve Democracy](https://www.wsj.com/articles/artificial-intelligence-can-serve-democracy-11590618319)
 
-中共素來以人民的名義強奸人民，不允許發聲，有聲音就要被喝茶、甚至被幹掉，被要挾指認別人的犯罪。
+*翻譯：【木木ANNA】 校對：*【新生】
 
-痛定思痛，拋開壹切，不能也不被允許再做鴕鳥，唯有發聲。輔助爆料革命和國際社會對壹切政策的推動，讓他們看到中國人民真實的民意，這也就是小螞蟻的力量，也是泡沫的價值。
-
-或許只有自己知道，堅強的泡沫並不是好當的。
+*戰友之家玫瑰園小隊出品*
 
 0

@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只要美國跨過三道紅線，CCP必在30天到3個月內消失！
-`2020-06-27 09:38 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/246979/)
+## 【多語言圖文版】6月21日中共病毒疫情要聞快報
+`2020-06-27 11:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247113/)
 
-郭文貴先生在6月25日的[G-TV](https://gtv.org)直播中表示，一旦美國政府最高決策層跨過”剝奪CCP的主權豁免權,宣佈CCP為非法組織”、”川普總統宣佈與習書記的關係破裂”、”宣佈與CCP脫鉤”三道紅線，中國共產黨會在30天到3個月內滅亡。
+[6.21-今日要点-俄文版-Русский](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111004/6.21-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E6%96%87%E7%89%88-%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111004/6.21-%E4%BB%8A%E6%97%A5%E8%A6%81%E7%82%B9-%E4%BF%84%E6%96%87%E7%89%88-%D0%A0%D1%83%D1%81%D1%81%D0%BA%D0%B8%D0%B8%CC%86.pdf)
 
-*翻譯：【班仔】 校對：【BIM】【RD16】  字幕：【致敬香港! 】【班仔】*
+[6.21-每日要闻-德語版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111001/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111001/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AA%9E%E7%89%88-German.pdf)
 
-*戰友之家玫瑰園小隊製作*
+[6.21-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111007/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111007/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+
+[6.21-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111015/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111015/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+
+[6.21-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111020/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111020/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+
+[6.21-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111046/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88Spanish-.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111046/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88Spanish-.pdf)
+
+[6.21-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111253/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27111253/6.21-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+
+
 
 0

@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】25/06/2020 CCP病毒每日疫情直播簡報
-`2020-06-27 04:06 GM77` [轉載自GNews](https://gnews.org/zh-hant/246743/)
+## 文壇變遷看中共洗腦文學教育
+`2020-06-27 06:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/246868/)
 
-戰友之家圖文摘要組及小語種組
+**作者：共和青年社**
 
-[English\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040119/English_0625_CCP_Virus_Updates.pdf)
+曾幾何時，中國文壇百家爭鳴，誕生了無數思想家、教育家，一群才華橫溢的青年學子如雨後春筍般湧現。這個國家的前途萬丈光芒。時光荏苒，這一幕卻被殘忍地定格在曆史的年輪上。這些畫面在我們眼前逐漸模糊，漸行漸遠。
 
-[French\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040131/French-0625_CCP_Virus_Updates_.pdf)
+當今的文壇，沒有了先前的繁榮，沒有了不同思想相互碰撞産生的耀眼光芒，更沒有了莘莘學子內心深處的獨白。如同一灘腐爛發臭的苦水。我們的文壇究竟遭受了怎樣滄海桑田的變化？又是什麽讓著朝氣蓬勃的少年未老先衰？
 
-[German\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040134/German_0625_CCP_Virus_Updates.pdf)
+聚焦我們青年學子文學教育的核心，社會關注度最高的高考科目—語文。這個以分數高低決定成敗的考試，不可避免地得從分值最高的題型說起—作文。
 
-[Japanese\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040138/Japanese_0625_CCP_Virus_Updates.pdf)
+目前高中生的作文都千篇一律，無不是人民日報式的假、大、空的文章，沒有絲毫創新。我們偶爾也能看到令人拍案叫絕的文章，但這些優秀的作品有太多讓中共洗腦下的教師無情摧殘。
 
-[Korean\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040142/Korean_0625_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27060958/fdghj.jpg)
 
-[Spanish\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040145/Spanish_0625_CCP_Virus_Updates.pdf)
+剖析高考作文，不難發現其表面的自選角度，自定立意的背後，有著各式各樣的金科玉律。
 
-[Russian\_0625\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27040149/Russian_0625_CCP_Virus_Updates.pdf)
+第一，新課標作文評分標准中最核心的一條便是“思想健康”。何謂思想健康?思想健康即是弘揚中共的時代精神，唱響中共的主旋律。總結一點便是：愛黨、尊黨、敬黨，堅決堅持黨是唯一標准，堅持黨的絕對領導。一切觀點都必須符合中共“新時代”下的“正能量”原則。否則，即使你的文章再精彩，也難以拿到高分。
+
+第二，學生的行文結構都必須遵循中共教師的格式，行文中不得夾雜過多個人的觀點。那些表面看似有些許新思想的觀點無不是從人民日報等黨媒摘取下來的毒瘤，。
+
+第三，每一篇作文想要高分還需引用名人名言。最具代表的便是習近平的名言，衆多教師都強制要求學生收集、整理並背誦習近平的名言。使得青年學子對習近平的個人崇拜靡然成風。
+
+第四，在高考閱卷中，改卷者只有極短的時間改卷，這便給考生的創作帶來了極大的限制。學生的寫作方向由寫好一篇文章轉變爲寫一篇讓改卷者在短時間能看懂，能打高分的文章。使得背作文、套作文成爲中共國文學教育的一大特色。
+
+學生在這無數潛規則下不斷地訓練，逐漸變成了一台只爲迎合教師，迎合中共的一台寫作機器。而“人民日報式文章”便成爲最合適這套制度的模板。學生想要模仿學習這類格式，勢必要閱讀大量中共黨媒的文章，而這些無不是贊美執政者的。長期暴露在這種環境下，假的也將成爲真的。
+
+由此觀之，中共一切教育教學的目的並不是爲了提升學生的思想素養，而是在不知不覺中扼殺青年的思想，使之成爲一個沒有獨立思想，沒有反抗意識，能聽從黨的領導的動物人。而這些年中共所謂的語文教育改革，無不打著“加深對祖國語言文字的理解與熱愛”，“促進語文教育教學”的幌子，不斷向青年學子灌輸“新時代”、“正能量”等邪惡思想。進一步將青年學子塑造成只會對現有知識檢索，不會對觀點正誤進行判斷，沒有權利意識的人。
+
+而中共爲了掩飾它的洗腦奴化教育，強行給它的教育體制披上了素質教育的外衣。中共宣傳組派出了大量所謂的文人學者四處演講。今日說：“我們要注重學生寫作基本能力的培養，我們應重視學生的個性發展。”明天說：“學生的個性若不加以約束，定會毀了我們的孩子。”一番操作後，中共營造出了中共國當前教育行業百家爭鳴的假象。
+
+這種磨滅人性的教育體制，造就了無數悲劇。近日，金壇河濱小學的一位學生作文課後，因不堪忍受其語文教師的痛批、掌掴等，選擇跳樓結束了自己鮮活的生命。只因這位小女孩寫的《三打白骨精》的感受是：“有些人表面看著善良，可內心都是陰暗的，他們會利用各種各樣的卑鄙的手段和陰謀詭計來達到不可告人的目的。”任課的老師便痛批：“太負能量！”試問，這位孩子說的有錯嗎？負能量又是什麽？這位教師的觀點又從何而來？文學閱讀本身就是一種再創作的活動。這些教師口口聲聲說的：“一千個讀者就有一千個哈姆雷特。”然而，在他們的實際行動中，連作文都有了標准答案。孩子的天分被殘忍束縛，思想被無情摧殘，創新創造的根基被永久鏟除。而這，只是中共畸形的奴化教育下的冰山一角。
+
+隨著老一代文人的退出，接受中共洗腦教育的新一代青年接替，幾代更叠後，中共洗腦的文人占據了中國文壇的大好河山，加之中共不斷制造白色恐怖，學子和作家在這種高壓環境下，只能被迫寫中共的贊歌。至此，中國文學進入了黨文學，文人成了共産黨的禦用筆杆。
+
+當文學成了獨裁者的統治工具，當教育成爲禁锢思想的手段，當一篇普通的日記都只能到美國發表，這個民族的災難便從天而降。唯有解放思想，打破禁區，才能走出中共洗腦奴化教育的魔爪。也唯有此，人民大衆才能在大思潮來襲之際，大災難來臨之際，堅定地選擇自由、民主、人權和法制。
+
+（文章內容僅代表作者觀點）
 
 0
