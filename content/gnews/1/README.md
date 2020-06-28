@@ -1,35 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人工智能可以為民主服務
-`2020-06-28 00:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/247598/)
+## 新法案助推半導體產業鏈“脫共入美”
+`2020-06-28 03:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247870/)
 
-Artificial Intelligence Can Serve Democracy
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28033407/cropped_cotton.jpg)
+美國參議員湯姆-科頓官(Tom Cotton)方網站26日報導：參議員湯姆-科頓聯合多位參議員共同提出了《2020美國製造廠法案》，該法案將支持美國微電子行業的生產和發展。他們的目標是將該法案作為修正案納入今年的《國防授權法案》。
 
-Issued on: June 26, 2020
+提出該法案的參議員包括：湯姆-科頓(Tom Cotton)(共和黨-阿肯色州)、查克-舒默(Chuck Schumer)(民主黨-紐約州)、喬什-霍利(Josh Hawley)(共和黨-密蘇里州)、傑克-里德(Jack Reed)(民主黨-羅德島州)、詹姆斯-裡什(James Risch)(共和黨-愛達荷州)、克爾斯滕-吉利布蘭德(Kirsten Gillibrand)(民主黨-紐約州)、蘇珊-柯林斯(Susan Collins)(共和黨-緬因州)、安格斯-金(Angus King)(I-緬因州)和道格-瓊斯（Doug Jones） (民主黨-阿拉巴馬州)。
 
-## 人工智能可以為民主服務
+科頓說：“美國徹底改變了微電子工業，這個產業對我們今天的安全和保障至關重要。但是，將半導體製造和開發讓給中共國，使得美國在這方面已經遠遠落後，還會使中共威脅美國的未來安全。我們的法案將對美國的微電子產業加大投資，促進該產業回歸美國。”
 
-發佈日期：2020年6月26日
+霍利說：“美國的科技優勢對我們在冷戰中的勝利起到了決定性的作用，在未來幾十年內科技優勢依然很​​重要，它將確保我們有能力戰勝中共。通過該法案，將使得半導體製造業回歸美國，強化我們在該領域的領先地位。與此同時，它還將創造更多的就業崗位並振興我們的社區。”
 
-The U.S. is using every tool at its disposal to defeat the novel coronavirus, including artificial intelligence. American laboratories are harnessing AI to discover new therapeutics. The Food and Drug Administration approved an AI tool to help detect coronavirus in CT scans. And the White House led an initiative to create a database with more than 128,000 articles that scientists can analyze using AI to help understand the virus better and develop treatments.
+裡什說：“作為世界一流芯片設計師的故鄉，愛達荷州在美國半導體產業中舉足輕重，本州正持續推進半導體產業的創新與發展。近年來，中共通過盜竊和脅迫手段，企圖主導微電子產業，我們需要盡快振興本土的半導體生產，以保持我們的戰略優勢。”
 
-美國正在使用包括人工智慧及其他各種現有工具來應對新型冠狀病毒，包括人工智慧。美國實驗室正在利用人工智慧來發現新療法。美國食品藥品監督管理局（FDA）批准了一種AI工具，有助於在CT掃描中檢測冠狀病毒。白宮牽頭創建了一個資料庫，包含128000多篇文章，科學家可以使用AI幫助他們更好地瞭解病毒並開發治療方法。
+柯林斯說：“半導體產業不僅是美國保持科技領先的關鍵，而且對國家安全也至關重要。一直以來美國在該產業都處於國際領先地位，但是由於中共政府大舉扶持和不公平的商業行為，對美國的主導地位構成嚴重威脅。該法案所提供的定向投資將有助於提升半導體的研究和開發，並使美國公司保持行業領先地位，同時也保留了相關的高薪崗位和就業機會。”
 
-At the same time, AI is being twisted by authoritarian regimes to violate rights. The Chinese Communist Party is reportedly using AI to uncover and punish those who criticize the regime’s pandemic response and to institute a type of coronavirus social-credit score—assigning people color codes to determine who is free to go out and who will be forced into quarantine.
+金說：“美國的科技實力不僅是經濟創新的重要動力，也是國家安全的重要基石。我們絕不能通過產業外包來影響經濟創新和國家安全。我們需要加大產業投資，確保美國在微電子領域的領先地位，這還將為社區提供更多的高薪崗位。”
 
-同時，人工智能被威權政權所扭曲，用以侵犯民眾權利。據報導，中國共產黨正用人工智能來發現和懲罰那些批評政府應對疫情措施的人，並建立一種冠狀病毒的社會信用評分系統-給人們分配顏色代碼，以確定哪些人可以自由出門，哪些人將被隔離。
+吉利布蘭德說：“美國正處於經濟危機之中。對微電子製造業和半導體產業的投資，將為勤勞的美國人創造更多高薪的製造業崗位。《2020美國製造廠法案》將提升美國的先進製造能力，並增加對前沿技術研發的投資。此外，該法案將會提升微電子產業的國內供應鏈，為確保美國國家安全，供應鏈將優先考慮美國企業。”
 
-As the world begins to recover from the pandemic, nations face a stark choice about what vision of artificial intelligence will prevail. As Group of Seven nations meet this year under the organization’s U.S. presidency, there is a critical opportunity to shape the evolution of AI in a way that respects fundamental rights and upholds our shared values. That is why G-7 technology ministers will agree Thursday to launch the Global Partnership on Artificial Intelligence, or GPAI, together with other democratic countries.
+**背景資料：**
 
-隨著世界開始從此次疫情中復蘇，各國在選擇哪種人工智慧願景方面，將面臨嚴峻的選擇。今年，美國擔任七國集團（G7）輪值主席國，這是一個塑造人工智慧發展的關鍵機會，各國應尊重基本權利和維護共同價值。因此，七國集團（G-7）科技部長們將在週四達成協議，與其他民主國家一起啟動“全球人工智慧夥伴計畫”（GPAI）。
+美國徹底改變了微電子工業，發明了許多關鍵技術並推動經濟創新。然而，隨著亞洲國家，尤其是中共國在微電子行業的大量投資，美國在製造業或半導體生產方面將處於下風。目前，78%的高端晶圓製造產能位於亞洲。2019年，美國在該領域首次落後於中國。
 
+該法案將對商用和國防相關的微電子關鍵項目進行投資，以確保美國在該行業保持世界領先。該法案包括以下措施：
 
+**對商用微電子項目扶持**：授權商務部向各州提供150億美元的撥款，以資助微電子相關的製造、組裝、測試、先進封裝和先進裝備研發等產業的“建造、擴大或更新”。
 
-閱讀原文：[Artificial Intelligence Can Serve Democracy](https://www.wsj.com/articles/artificial-intelligence-can-serve-democracy-11590618319)
+**對軍用微電子項目的扶持：**授權國防部提供50億美元的撥款，以資助具有持續競爭力的微電子製造企業或服務於軍事、情報的專用電子產品製造企業的“建造、擴大或更新”。這筆資金也可用於生產安防類微電子產品的商用設備。
 
-*翻譯：【木木ANNA】 校對：*【新生】
+**研發費用：**授權50億美元的研發開支，以確保美國在微電子領域的領先地位。要求受資助的機構制定政策，”產生的任何微電子研發的知識產權，要求盡可能在美國國內。”
 
-*戰友之家玫瑰園小隊出品*
+**DARPA的電子復興計劃**：20億美元；
+**國家科學基金會**：15億美元；
+**能源部**：12.5億美元；
+**國家標準和技術研究所**：2.5億美元；
+
+**國家微電子研究計劃**：設立總統科技委員會下轄的一個小組委員會，每年編寫一份報告，”為下一代的突破性微電子研究和技術，提供資金指導和協調，增強美國的微電子產能，並鼓勵政府、產業界和學術界之間的合作”。
+
+**預防性條款**：禁止受中共國擁有、控製或以其他方式影響的公司獲得該法案提供的資金。
+
+**評：**近些年來，隨著全球化的深入推進，全球佈局、全球生產、全球銷售成為一個個國際貿易參與者的標配和符號。我們姑且不討論全球化的利與弊，暫時將目光投向參與全球化產業鏈分工的一個個國家實體，全球化的參與者如果都能按照公認的貿易與行為準則來行事，並有相對獨立的監督與評估機構進行協調，那麼全球化是應該能夠達到互利共贏的初衷的。但問題就出在中共國身上，中共國本質上是個獨裁專制政府，它從來不遵守遊戲規則，中共通過藍金黃手段對國際機構進行滲透，只為實現自己統治全球的野心。
+
+中共國早期依靠大量的廉價勞動力和各種優惠政策，吸引跨國公司將製造環節外包，最終使中共國成為中低端產品製造的“世界工廠”。而私下里，中共國政府時刻沒有忘記通過產業升級來佔獲取高端產品的研發與製造能力。從鄧、胡、江時代的數個五年行動計劃，到習時代高調提出“中國製造2025”計劃，中共國的戰略意圖一步步從幕後走向台前。歐美國家雖然對此有所警惕，但是一直處於夢遊狀態。直到習上台後，在全球四面出擊，西方這才開始重視起來。而這次CCP病毒大流行，歐美各國在疫情開始爆發時，都受到中共國在醫療防護用品的敲詐，讓全球各國付出血的代價。西方終於徹底覺醒，終於意識到全球產業鏈的任何一環，放在中共國這樣的流氓集團手裡，絕對都是一種威脅。痛定思痛，西方國家在美國的帶領下，紛紛開始從中共國撤回產業鏈。
+
+這對各國的安全、對滅共、對新中國聯邦、對各地農場都是極大的利好。郭先生高瞻遠矚，為愛好自由法制的中國人民提前搭建好平台和生態圈。試想一下，不遠的未來，經過各地農場認證的真戰友，帶著各自的資金、技術、渠道、人脈來到各地農場，在農場和喜馬拉雅聯儲的支持下，絕對能夠迸發出更大的能量。
+
+[原文鏈接](https://www.cotton.senate.gov/)
+
+翻譯報導：Joseph Yang
+校對整理：文投
 
 0

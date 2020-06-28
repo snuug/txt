@@ -1,55 +1,131 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 參議院通過香港的制裁法案
-`2020-06-27 09:02 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246937/)
+## 白宮關於聯邦公務員改革的行政令
+`2020-06-27 12:47 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/247206/)
 
-*文章來源：The Hill*
+[川普總統於6月26日發布行政命令改革聯邦公務員的僱傭方式](https://www.whitehouse.gov/presidential-actions/executive-order-modernizing-reforming-assessment-hiring-federal-job-candidates/)。該行政令指示進行以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27123737/WH_20200625_Federal_Job_Candidates_photo.png)
+行政令全文：
 
-*作者：[JORDAIN CARNEY](https://thehill.com/author/jordain-carney) – 06/25/20 06:48 PM EDT*
+**Executive Order on Modernizing and Reforming the Assessment and Hiring of Federal Job Candidates**
 
-*翻譯、簡評：萬人往*
+**關於對聯邦求職者的評估和聘用進行現代化和改革的行政命令**
 
-*PR：Julia Win*
+issued on: June 26, 2020
 
-*Page：玄天生*
+发布于2020年6月26日
 
-**簡評：**
+By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 301 of title 3, United States Code, and sections 1104(a)(1), 3301, and 7301 of title 5, United States Code, it is hereby ordered as follows:
 
-《香港自治法案》由壹位民主黨參議員和壹位共和黨參議員提出，並迅速在參議院全票通過，這表明**以美滅共**已進入快車道，民主黨和共和黨在香港問題上拋棄黨爭，達成共識。該項法案由眾議院通過後提交總統簽字實施已經毫無懸念。
+根據美利堅合眾國憲法和法律賦予我了總統權力， 包括《美國法典》第3篇第301節和《美國法典》第5篇第1104(a)(1)、3301和7301節賦予我的總統權力，命令如下：
 
-按照中共“戰狼外交”的德性，壹定會派趙立堅或者華春瑩這對“堅夫瑩婦”出來在外交部答記者會上撒潑打滾，說香港是中共國的香港，這是中共國的內政，外人無權幹涉，壹副“我打自己孩子關妳什麽事”的無賴相。
+Section 1.  Purpose.  The foundation of our professional merit-based civil service is the principle that employment and advancement rest on the ability of individuals to fulfill their responsibilities in service to the American public.  Accordingly, Federal Government employment opportunities should be filled based on merit.  Policies or practices that undermine public confidence in the hiring process undermine confidence in both the civil service and the Government.
 
-中共單方面撕毀中英聯合聲明，違背香港基本法，強行通過港版國安法，踐踏民主，違背法治，香港作為國際金融中心的基石已被摧毀。美國通過《香港自治法案》，既保護了美國在港利益，也保護了香港的自治地位，合理合法，順應人心，合乎民意。香港是自由、法治的國際貿易港，《香港自治法案》是美國國內法案，中共作為外人，無權幹涉。那些手上沾滿了香港同胞鮮血的中共官員、軍警憲特，報應終會來到。
+第一節：目的。我們的專業任人唯賢的公務員制度的基礎是這樣的原則：就業和晉升取決於個人履行其為美國公眾服務的責任的能力。因此，聯邦政府的就業機會應根據功績來填補。損害公眾對招聘過程的信心的政策或做法，會損害對公務員制度和政府的信心。
 
+America’s private employers have modernized their recruitment practices to better identify and secure talent through skills- and competency-based hiring.  As the modern workforce evolves, the Federal Government requires a more efficient approach to hiring.  Employers adopting skills- and competency-based hiring recognize that an overreliance on college degrees excludes capable candidates and undermines labor-market efficiencies.  Degree-based hiring is especially likely to exclude qualified candidates for jobs related to emerging technologies and those with weak connections between educational attainment and the skills or competencies required to perform them.  Moreover, unnecessary obstacles to opportunity disproportionately burden low-income Americans and decrease economic mobility.
 
+美國的私營雇主已經實現了招聘做法的現代化，通過基於技能和能力的招聘來更好地發現和確保人才。隨著現代勞動力的發展，聯邦政府需要一種更有效的招聘方法。採用以技能和能力為基礎的招聘方式的雇主們認識到，過度依賴大學學位會將有能力的候選人排除在外，損害勞動力市場的效率。以學位為基礎的招聘特別有可能排除與新興技術相關的工作的合格候選人，以及那些教育程度與從事這些工作所需的技能或能力之間聯繫薄弱的候選人。此外，不必要的機會障礙給低收入的美國人造成了過重的負擔，降低了經濟流動性。
 
-## **參議院通過針對中共國香港法律的制裁法案**
+The Office of Personnel Management (OPM) oversees most aspects of the civilian Federal workforce, including creating and maintaining the General Schedule classification system and determining the duties, responsibilities, and qualification requirements for Federal jobs.  Executive departments and agencies (agencies), however, are responsible for vetting and selecting specific candidates to fill particular job openings consistent with statutory requirements and OPM rules and guidance, including applicable minimum educational requirements.  Currently, for most Federal jobs, traditional education — high school, college, or graduate-level — rather than experiential learning is either an absolute requirement or the only path to consideration for candidates without many years of experience.  As a result, Federal hiring practices currently lag behind those of private sector leaders in securing talent based on skills and competency.
 
+人事管理辦公室(OPM)負責監督聯邦文職人員隊伍的大部分方面，包括建立和維持總分類製度，並確定聯邦職位的職責、責任和資格要求。執行部門和機構(機關)負責根據法定要求和OPM的規則和指南，包括適用的最低學歷要求，審核和選拔特定的候選人來填補特定的職位空缺。目前，對於大多數聯邦工作而言，傳統教育—-高中、大學或研究生水平—-而不是經驗學習，對於沒有多年經驗的求職者來說，要么是絕對的要求，要么是唯一的考慮途徑。因此，在根據技能和能力吸引人才方面，聯邦的招聘做法目前落後於私營部門的領導者。
 
+My Administration is committed to modernizing and reforming civil service hiring through improved identification of skills requirements and effective assessments of the skills job seekers possess.  We encourage these same practices in the private sector.  Modernizing our country’s processes for identifying and hiring talent will provide America a more inclusive and demand-driven labor force.
 
-美國參議院周四通過壹項法案，對限制香港自治的中共國官員實施制裁。
+我的政府致力於通過更好地確定技能要求和有效評估求職者所具備的技能，使公務員的招聘工作現代化和改革。我們鼓勵私營部門採取同樣的做法。使我國識別和僱用人才的程序現代化，將為美國提供一支更具包容性和需求驅動的勞動力隊伍。
 
-這項由馬裏蘭州民主黨參議員克裏斯·範霍倫（D-MD)和賓夕法尼亞州共和黨參議員帕特·圖米(R-Pa)牽頭的法案，針對那些侵犯香港半獨立地位的個人和實體，以及與之有業務往來的銀行，將予以制裁。
-[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/15494B65-924C-42FC-B038-05E1619CB320.jpg?asset_id=9118E957-F7C3-44D3-A6F5-C9CB540081D6&amp;size=1024)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/15494B65-924C-42FC-B038-05E1619CB320.jpg?asset_id=9118E957-F7C3-44D3-A6F5-C9CB540081D6&amp;size=1024)
-“中共國政府在香港的所作所為是不可接受的。他們剝奪了香港人民的權利。他們正在扼殺那裏僅存的自由，”範霍倫在參議院說。“他們正在推進剝奪香港人自由的進程。所以時間是至關重要的。”
+Through the work of the National Council for the American Worker and the American Workforce Policy Advisory Board, my Administration is fulfilling its commitment to expand employment opportunities for workers.  The increased adoption of apprenticeship programs by American employers, the creation of Industry-Recognized Apprenticeship Programs, and the implementation of Federal hiring reforms, including those in this order, represent important steps toward providing more Americans with pathways to family-sustaining careers.  In addition, the Principles on Workforce Freedom and Mobility announced by my Administration in January 2020 detail reforms that will expand opportunities and eliminate unnecessary education costs for job seekers.  This order builds on the broader work of my Administration to expand opportunity and create a more inclusive 21st-century economy.
 
-該法案出臺之際，中共國正在提出的壹項國家安全法引發了美國國會和國際社會的擔憂，即北京當局將擴大對香港的控制，並將限制公民和政治自由。
+通過美國工人全國委員會和美國勞動力政策諮詢委員會的工作，我的政府正在履行其擴大工人就業機會的承諾。美國雇主越來越多地採用學徒計劃，建立行業認可的學徒計劃，以及實施聯邦僱用改革，包括本命令中的改革，這些都是為更多美國人提供維持家庭生計的途徑的重要步驟。此外，我的政府在2020年1月宣布的 “勞動力自由和流動原則 “詳細說明了將為求職者擴大機會和消除不必要的教育成本的改革。這項命令建立在我的政府為擴大機會和創造一個更具包容性的21世紀經濟所做的更廣泛工作的基礎上。
 
-參議員們試圖在本月早些時候通過該法案，但參議員凱文·克萊默 (R-N.D.)反對。根據參議院的規定，任何參議員都可以試圖以壹致同意的方式通過壹項法案，但任何參議員也可以阻止它。
+This order directs important, merit-based reforms that will replace degree-based hiring with skills- and competency-based hiring and will hold the civil service to a higher standard — ensuring that the individuals most capable of performing the roles and responsibilities required of a specific position are those hired for that position — that is more in line with the principles on which the merit system rests.
 
-克萊默告訴Politico網站，盡管他是該法案的共同發起人，但他是應白宮的要求才這麽做的，因為該法案被要求進行“技術性”修改。
-[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/9A4AA571-4672-4368-8208-B9801FFA9D4A.jpg?asset_id=97E4E57A-D1C6-4990-8EB6-866180B6B232&amp;size=2560)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/9A4AA571-4672-4368-8208-B9801FFA9D4A.jpg?asset_id=97E4E57A-D1C6-4990-8EB6-866180B6B232&amp;size=723)
-圖米周四指出，他們壹直在與財政部合作，已經到了“我們同意這項法案的地步”。
+該命令指示進行重要的、以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準–確保最能勝任某一特定職位所要求的作用和責任的人被雇用擔任該職位，這更符合業績制度所依據的原則。
 
-該法案仍需在眾議院通過後才能提交給川普總統，總統與中共國的關系令人擔憂。前國家安全顧問約翰·博爾頓在他即將出版的書中稱，川普不願過多介入香港抗議活動，他說:“我們也有人權問題。”
+Sec. 2.  Revision of Job Classification and Qualification Standards.  (a)  The Director of OPM, in consultation with the Director of the Office of Management and Budget, the Assistant to the President for Domestic Policy, and the heads of agencies, shall review and revise all job classification and qualification standards for positions within the competitive service, as necessary and consistent with subsections (a)(i) and (a)(ii) of this section.  All changes to job classification and qualification standards shall be made available to the public within 120 days of the date of this order and go into effect within 180 days of the date of this order.
 
-除了制裁法案，參議院還通過了壹項由參議員喬希·霍利(R-Mo.)提出的譴責國家安全法的決議。
-[!\[\](https://spark.adobe.com/page/EsgPDlEykBNJn/images/AC973BF0-D73E-43CD-8787-B70A19D68536.jpg?asset_id=089643C2-3CB4-4F92-BD84-1692D1AF7108&amp;size=1024)](https://spark.adobe.com/page/EsgPDlEykBNJn/images/AC973BF0-D73E-43CD-8787-B70A19D68536.jpg?asset_id=089643C2-3CB4-4F92-BD84-1692D1AF7108&amp;size=1024)
-“我認為，這個時刻，我們能夠聚在壹起發出壹個聲音，向北京當局發出壹個明確的信號，其粉碎和摧毀香港人自由的企圖不會被忽視，不會得不到解決，”他說。
+第2條。職位分類和資格標準的修訂。 (a)OPM主任在與管理和預算辦公室主任、總統國內政策助理以及各機構負責人協商後，應根據需要並按照本節(a)(i)和(a)(ii)分節的規定，審查和修訂競爭性服務內所有職位的職務分類和資格標準。職務分類和資格標準的所有變動應在本命令發布之日起120天內向公眾公佈，並在本命令發布之日起180天內生效。
 
-[文章鏈接](https://thehill.com/blogs/floor-action/senate/504635-senate-passes-sanctions-bill-targeting-china-over-hong-kong-law?__twitter_impression=true)
+(i)   An agency may prescribe a minimum educational requirement for employment in the Federal competitive service only when a minimum educational qualification is legally required to perform the duties of the position in the State or locality where those duties are to be performed.
 
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/EsgPDlEykBNJn/)
+(i)只有當最低教育資格是在履行該職位職責的州或地方依法所需時，機構才可規定在聯邦競爭性服務中就業的最低教育要求。
+
+(ii)  Unless an agency is determining a candidate’s satisfaction of a legally required minimum educational requirement, an agency may consider education in determining a candidate’s satisfaction of some other minimum qualification only if the candidate’s education directly reflects the competencies necessary to satisfy that qualification and perform the duties of the position.
+
+(ii) 除非一個機構正在確定候選人是否滿足法律規定的最低教育要求，否則，只有當候選人的教育直接反映了滿足該資格和履行該職位職責所需的能力時，一個機構才可以在確定候選人是否滿足其他最低資格時考慮教育。
+
+(b)  Position descriptions and job postings published by agencies for positions within the competitive service should be based on the specific skills and competencies required to perform those jobs.
+
+(b)各機構發布的競爭性服務內職位的職位說明和招聘信息應以從事這些工作所需的具體技能和能力為基礎。
+
+Sec. 3.  Improving the Use of Assessments in the Federal Hiring Process.  (a)  In addition to the other requirements of this order, the Director of OPM shall work with the heads of all agencies to ensure that, within 180 days of the date of this order, for positions within the competitive service, agencies assess candidates in a manner that does not rely solely on educational attainment to determine the extent to which candidates possess relevant knowledge, skills, competencies, and abilities.  The heads of all agencies shall develop or identify such assessment practices.
+
+第3節. 改進聯邦招聘過程中對評估的使用。 (a)除本命令的其他要求外，OPM主任應與所有機構的負責人合作，確保在本命令發布之日起180天內，對於競爭性服務內的職位，各機構對候選人的評估方式不應僅僅依靠學歷來確定候選人擁有相關知識、技能、能力的程度。各機構負責人應制定或確定這種評估辦法。
+
+(b)  In assessing candidates, agencies shall not rely solely on candidates’ self-evaluations of their stated abilities.  Applicants must clear other assessment hurdles in order to be certified for consideration.
+
+(b) 在評估候選人時，各機構不應僅僅依靠候選人對其所述能力的自我評價。申請人必須通過其他評估障礙，才能獲得考慮認證。
+
+(c)  Agencies shall continually evaluate the effectiveness of different assessment strategies to promote and protect the quality and integrity of their hiring processes.
+
+(c) 各機構應不斷評價不同評估戰略的效力，以促進和保護其徵聘程序的質量和完整性。
+
+Sec. 4.  Definitions.  For purposes of this order:
+
+(a)  the term “assessment” refers to any valid and reliable method of collecting information on an individual for the purposes of making a decision about qualification, hiring, placement, promotion, referral, or entry into programs leading to advancement;
+
+第4節。定義。為本命令的目的：
+
+(a) “評估 “一詞指的是任何收集個人信息的有效和可靠的方法，目的是就資格、僱用、安置、晉升、推薦或進入導致晉升的方案作出決定。
+
+(b)  the term “competitive service” has the meaning specified by section 2102 of title 5, United States Code;
+
+(b) “競爭性服務 “一詞具有《美國法典》第5章第2102條所規定的含義。
+
+(c)  the term “education” refers to Post High-School Education as that term is defined in the OPM General Schedule Qualification Policies; and
+
+c) “教育 “一詞是指高中後教育，因為這個詞已經在《總理辦公廳資格政策總表》中被定義；
+
+(d)  the term “qualification” means the minimum requirements necessary to perform work of a particular position or occupation successfully and safely.
+
+(d) “資格 “一詞是指成功和安全地從事某一特定職位或職業的工作所需的最低要求。
+
+Sec. 5.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
+
+第5條。一般規定。 (a) 本命令中的任何內容均不得解釋為損害或以其他方式影響：
+
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
+
+(i) 法律授予行政部門或機構或其負責人的權力；或
+
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(ii) 管理和預算辦公室主任與預算、行政或立法提案有關的職能。
+
+(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(b) 本命令的執行應符合適用的法律，並以撥款為限。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+(c) 本命令無意也不會產生任何一方可在法律上或衡平法上對美國、其各部門、機構或實體、其官員、僱員或代理人或任何其他人強制執行的任何實質性或程序性權利或利益。
+
+DONALD J. TRUMP
+
+唐納德·川普
+
+THE WHITE HOUSE,
+
+白宮
+
+June 26, 2020.
+
+2020年6月26日
+
+*翻譯：【Melody太陽的旋律】校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

@@ -1,93 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料人稱中國共產黨人向梵蒂岡行賄20億美元
-`2020-06-27 08:34 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/246918/)
+## 【多語言圖文版】6月23日中共病毒疫情要聞快報
+`2020-06-27 11:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247184/)
 
-*新聞來源： 《BREITBART》*
+[6.23-每日要闻-德文版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114812/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114812/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)
 
-*作者：THOMAS D. WILLIAMS, PH.D.*
+[6.23-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114809/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114809/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-*翻譯: Victory*
+[6.23-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114815/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114815/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-*簡評：Victory/海闊天空*
+[6.23-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114819/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114819/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-*PR：left gun*
+[6.23-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114822/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114822/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
 
-*Page：椰子哦耶*
-
-**简评：**
-
-自郭文貴先生公開揭露“藍金黃”計劃後，邪魔中共利用“藍金黃”對世界侵蝕的陰謀逐步浮出水面。各國政府都已高度關註來自中共國的“藍金黃”攻擊。
-
-本文揭露了中共對宗教界不遺余力的攻擊和滲透。中共是世界上最大的壹個邪教組織，中共認為它們是唯壹的神，唯壹的權威，所有人必須服從它，而宗教人士發自內心信仰和服從的是他們的神，他們的上帝，中共無法容忍宗教的神來與其爭奪權威。中共以暴力、欺騙起家，又以謊言、暴力治國，而真正的宗教卻教給人們愛、慈悲、信念和寬恕，中共不能容忍宗教的美好凸顯出中共的醜陋。中共壹向善於制造矛盾、壓迫個體、監禁個體，不讓人們團結起來反抗暴政，而宗教人士之間兄弟般的團結友愛和強大的組織力量讓中共震撼。中共以愚民、弱民、貧民、苦民、辱民來治理民眾，不讓民眾認識到真理，而真正的宗教卻教給人智慧，賦予人勇氣，這種智慧和勇氣會讓中共惱羞成怒。中共為了維持其統治，倡導唯物主義，誘導人們追逐金錢和名利，並用金錢和名利來控制、引導人們的言行，而宗教教導人們追求的是精神的生活，在意彼岸的幸福，宗教會讓中共的魚鉤空投。中共的政權強調等級、強調特權、強調恩賜，而宗教告訴人們所有人在上帝面前都是平等的，都具有與生俱來的權力，所以中共不能容忍宗教給人們帶來的權利覺醒……
-
-所以，中共必然千方百計地對內打壓宗教，對外輸出共產主義理念，並且腐蝕宗教。中共在壹帶壹路上輸出的邪惡腐敗的共產主義文化就是對當地文化和信仰的巨大破壞。中共對梵蒂岡、意大利、澳大利亞教廷的巨額賄賂就是要讓教廷與中共合謀，用巨額利益換取對中共暴行的綏靖，甚至為中共大唱贊歌。這個世界最可怕的不是壞人的囂張，而是好人的沈默，比好人沈默更可悲的是精英的沈淪，比精英沈淪更可悲的是教廷的墮落。在無數教徒心目中神聖的教廷竟然對中共到了如此俯首帖耳的程度！神聖的教廷竟然被中共同化到如此顛倒黑白的程度！
-
-共產主義這個來自地獄的惡魔，它所到之處，釋放了人們心中所有的惡念，並讓人們無視他們的痛苦放縱這種惡念，共產主義所到之處，天堂會變成地獄！
-
-如果人類不把共產主義這個毒瘤除去，人類的文明會遭受長久的羞辱。
+[6.23-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114826/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114826/6.23-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 
-
-## **爆料人稱中國共產黨人向梵蒂岡行賄20億美元**
-
-
-[!\[\](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/7b42e2dc-459a-4554-99e2-8ba566b5db7c.jpg?asset_id=f3a20ca0-a2dd-4d4d-9992-584951cb1389&amp;img_etag=%22eff0d689f9b7de8c79852131da9155c4%22&amp;size=2560)](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/7b42e2dc-459a-4554-99e2-8ba566b5db7c.jpg?asset_id=f3a20ca0-a2dd-4d4d-9992-584951cb1389&amp;img_etag=%22eff0d689f9b7de8c79852131da9155c4%22&amp;size=1024)
-羅馬—移居海外的中共國不同政見者郭文貴先生本周說中共“每年花20億美元”賄賂教廷，使其對中共暴行保持沈默。
-
-在6月20日作戰室采訪中，郭文貴先生說中共每年調撥巨款收買其他國家，包括梵蒂岡，意大利，澳大利亞。其中教廷每年從中共收到高達20億美元，他說道。
-
-這位億萬富豪爆料者說 “中共每年花費20億美元”以對教廷內部政策制定施加影響，並讓教廷對中共打壓宗教自由的行為保持沈默。“
-
-郭先生以前曾說過中共制定了完整的控制世界的戰略被簡稱為“藍金黃”，其中藍代表（控制互聯網），金代表（用金錢收買影響力），黃（性誘關鍵人物）。
-
-自2014年來，中共制定了內部政策，花費壹定比例外貿收入在“藍金黃”計劃中，以腐蝕當地政府系統，現在對美國的“藍金黃”配額占比是5%，郭先生周六說道。
-[!\[\](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/7b30e554-995b-4f62-96f1-b5bc537a31b5.jpg?asset_id=41a1a2db-d827-4d84-9ddc-4e989120172c&amp;img_etag=%22f1a70cb0248ce5ac9541dcd20d1664db%22&amp;size=1024)](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/7b30e554-995b-4f62-96f1-b5bc537a31b5.jpg?asset_id=41a1a2db-d827-4d84-9ddc-4e989120172c&amp;img_etag=%22f1a70cb0248ce5ac9541dcd20d1664db%22&amp;size=1024)
-根據美國貿易辦公室數據，2018年中美貿易總額是7.37萬億。如按照5%計算，針對美國的“藍金黃”花費將會是368億美元。
-
-郭先生也對澳大利亞做出了類似估算。“中澳之間的貿易額為2000億美元，”他說“以前是1%用於“藍金黃”，但已經增長到5%，那將是100億美元用於“藍金黃” 。
-
-據郭先生說，這些巨額“藍金黃”資金被用於多種用途，包括賄賂本地官員，控制媒體信息，控制本地資源。
-
-澳大利亞戰略政策研究所國際網絡政策中心2019年發布的壹份報告顯示，數百個推特賬號與國家支持的對香港民主運動的詆毀行為有關，而之前這些賬號曾被用於攻擊中共政府的批評者，主要是針對郭文貴先生。
-
-這些賬號是運行了兩年多的有組織信息戰的壹部分，主要目標是郭文貴先生和以及被監禁的出版商桂民海。
-
-“這些早期努力是對這些知名的中共政府反對者引導民情和國際輿論，以便是影響海外華裔人群對他們的看法,”報告的主編之壹， 傑克沃利斯(Jake Wallis)說。
-
-就其自身而言，教廷數年來壹直在對中共進行魅力攻勢，2018年9月就中共國主教任命與北京簽署了壹項重要秘密協議。
-
-據梵蒂岡資深記者約翰艾倫（John L. Allen, Jr.,）說，梵蒂岡不遺余力地向北京獻媚，建立全面外交關系，這是弗朗西斯教皇的重點目標。
-
-梵蒂岡非常“貪戀與中共國的關系，而且往往明顯地願意壓制反對意見，放棄很多東西”以便向該目標邁進，艾倫上個月寫道。
-
-簡而言之，“梵蒂岡正在全力向北京示好，最終目的仍然是建立全面外交關系，教會在法律上的穩固地位和全球舞臺上的合作關系，”艾倫寫道。
-[!\[\](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/cdaab5c4-cf8d-47e9-94cd-e020fd7ef3d6.jpg?asset_id=8abc0617-9449-48db-8f85-84db9ad16ca2&amp;img_etag=%22c99d0ba0c21c70656db18a25449ce747%22&amp;size=1024)](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/cdaab5c4-cf8d-47e9-94cd-e020fd7ef3d6.jpg?asset_id=8abc0617-9449-48db-8f85-84db9ad16ca2&amp;img_etag=%22c99d0ba0c21c70656db18a25449ce747%22&amp;size=1024)
-2020年5月推出新中共國版本的耶穌會編輯的雜誌《公教文明》，讓梵蒂岡的2018北京序曲進入更甜美的階段。
-
-《公教文明》說新版本意味著“作為友好的表示，因為漢語在現代世界全球語境中扮演越來越重要的角色。
-
-艾倫先生對梵蒂岡向中共國獻媚的評價與其他梵蒂岡觀察者的看法是壹致的。
-
-弗朗西斯夢想著成為與北京建立外交關系的教皇，為達成此目標，他願意做出“妥協”，梵蒂岡分析者奧爾本（Alban Mikozy）去年12月在法語電視臺聲明道。
-
-“弗朗西斯教皇是個謹慎的人”奧爾本（Alban Mikozy）說“他追逐壹個夢想：成為重建中共國與梵蒂岡關系的教宗。”
-
-“為此，他願意做出壹些妥協：對香港的事件閉嘴，如果中共國領導說起重寫聖經時也不要太激動，”他就中共打算重新翻譯聖經和其他聖言文本以使其符合社會主義意識形態的公告補充道。
-
-因為這個首要需求，奧爾本（Alban Mikozy）說，教皇願意對中共破壞宗教自由以及其他人權問題視而不見。
-
-例如去年11月，在從亞洲返航的飛機上壹次記者招待會上，教皇反復說他期望訪問中共國，而回避關於香港民主運動的問題。“我希望去北京” 弗朗西斯說“我愛中共國”
-
-據奧爾本（Alban Mikozy）說，教皇對香港運動的沈默顯示了他願意竭盡全力避免冒犯中共。
-[!\[\](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/144a76c5-542d-476b-8559-522873806388.jpg?asset_id=8942bc89-f6fe-4611-b203-e37435152914&amp;img_etag=%22c18a308cb2d79c0cf3b530cb439c7fa6%22&amp;size=2560)](https://spark.adobe.com/page/bLsqmfGXIfRAz/images/144a76c5-542d-476b-8559-522873806388.jpg?asset_id=8942bc89-f6fe-4611-b203-e37435152914&amp;img_etag=%22c18a308cb2d79c0cf3b530cb439c7fa6%22&amp;size=1024)
-教皇對中共國極盡諂媚，堅稱中共政府保護宗教自由，且“教堂充滿著人”
-
-同時，教廷社會科學院院長，阿根廷索隆多主教（Marcelo Sanchez Sorondo）認為現在中共國是最好奉行天主教社會訓導的模式。
-
-[原文鏈接](https://www.breitbart.com/national-security/2020/06/23/whistleblower-claims-chinese-communists-pay-vatican-2-billion-in-bribes/)
-
-编辑：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bLsqmfGXIfRAz/)
 
 0

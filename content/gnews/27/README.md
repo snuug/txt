@@ -1,43 +1,131 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文壇變遷看中共洗腦文學教育
-`2020-06-27 06:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/246868/)
+## 白宮關於聯邦公務員改革的行政令
+`2020-06-27 12:47 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/247206/)
 
-**作者：共和青年社**
+[川普總統於6月26日發布行政命令改革聯邦公務員的僱傭方式](https://www.whitehouse.gov/presidential-actions/executive-order-modernizing-reforming-assessment-hiring-federal-job-candidates/)。該行政令指示進行以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27123737/WH_20200625_Federal_Job_Candidates_photo.png)
+行政令全文：
 
-曾幾何時，中國文壇百家爭鳴，誕生了無數思想家、教育家，一群才華橫溢的青年學子如雨後春筍般湧現。這個國家的前途萬丈光芒。時光荏苒，這一幕卻被殘忍地定格在曆史的年輪上。這些畫面在我們眼前逐漸模糊，漸行漸遠。
+**Executive Order on Modernizing and Reforming the Assessment and Hiring of Federal Job Candidates**
 
-當今的文壇，沒有了先前的繁榮，沒有了不同思想相互碰撞産生的耀眼光芒，更沒有了莘莘學子內心深處的獨白。如同一灘腐爛發臭的苦水。我們的文壇究竟遭受了怎樣滄海桑田的變化？又是什麽讓著朝氣蓬勃的少年未老先衰？
+**關於對聯邦求職者的評估和聘用進行現代化和改革的行政命令**
 
-聚焦我們青年學子文學教育的核心，社會關注度最高的高考科目—語文。這個以分數高低決定成敗的考試，不可避免地得從分值最高的題型說起—作文。
+issued on: June 26, 2020
 
-目前高中生的作文都千篇一律，無不是人民日報式的假、大、空的文章，沒有絲毫創新。我們偶爾也能看到令人拍案叫絕的文章，但這些優秀的作品有太多讓中共洗腦下的教師無情摧殘。
+发布于2020年6月26日
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27060958/fdghj.jpg)
+By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 301 of title 3, United States Code, and sections 1104(a)(1), 3301, and 7301 of title 5, United States Code, it is hereby ordered as follows:
 
-剖析高考作文，不難發現其表面的自選角度，自定立意的背後，有著各式各樣的金科玉律。
+根據美利堅合眾國憲法和法律賦予我了總統權力， 包括《美國法典》第3篇第301節和《美國法典》第5篇第1104(a)(1)、3301和7301節賦予我的總統權力，命令如下：
 
-第一，新課標作文評分標准中最核心的一條便是“思想健康”。何謂思想健康?思想健康即是弘揚中共的時代精神，唱響中共的主旋律。總結一點便是：愛黨、尊黨、敬黨，堅決堅持黨是唯一標准，堅持黨的絕對領導。一切觀點都必須符合中共“新時代”下的“正能量”原則。否則，即使你的文章再精彩，也難以拿到高分。
+Section 1.  Purpose.  The foundation of our professional merit-based civil service is the principle that employment and advancement rest on the ability of individuals to fulfill their responsibilities in service to the American public.  Accordingly, Federal Government employment opportunities should be filled based on merit.  Policies or practices that undermine public confidence in the hiring process undermine confidence in both the civil service and the Government.
 
-第二，學生的行文結構都必須遵循中共教師的格式，行文中不得夾雜過多個人的觀點。那些表面看似有些許新思想的觀點無不是從人民日報等黨媒摘取下來的毒瘤，。
+第一節：目的。我們的專業任人唯賢的公務員制度的基礎是這樣的原則：就業和晉升取決於個人履行其為美國公眾服務的責任的能力。因此，聯邦政府的就業機會應根據功績來填補。損害公眾對招聘過程的信心的政策或做法，會損害對公務員制度和政府的信心。
 
-第三，每一篇作文想要高分還需引用名人名言。最具代表的便是習近平的名言，衆多教師都強制要求學生收集、整理並背誦習近平的名言。使得青年學子對習近平的個人崇拜靡然成風。
+America’s private employers have modernized their recruitment practices to better identify and secure talent through skills- and competency-based hiring.  As the modern workforce evolves, the Federal Government requires a more efficient approach to hiring.  Employers adopting skills- and competency-based hiring recognize that an overreliance on college degrees excludes capable candidates and undermines labor-market efficiencies.  Degree-based hiring is especially likely to exclude qualified candidates for jobs related to emerging technologies and those with weak connections between educational attainment and the skills or competencies required to perform them.  Moreover, unnecessary obstacles to opportunity disproportionately burden low-income Americans and decrease economic mobility.
 
-第四，在高考閱卷中，改卷者只有極短的時間改卷，這便給考生的創作帶來了極大的限制。學生的寫作方向由寫好一篇文章轉變爲寫一篇讓改卷者在短時間能看懂，能打高分的文章。使得背作文、套作文成爲中共國文學教育的一大特色。
+美國的私營雇主已經實現了招聘做法的現代化，通過基於技能和能力的招聘來更好地發現和確保人才。隨著現代勞動力的發展，聯邦政府需要一種更有效的招聘方法。採用以技能和能力為基礎的招聘方式的雇主們認識到，過度依賴大學學位會將有能力的候選人排除在外，損害勞動力市場的效率。以學位為基礎的招聘特別有可能排除與新興技術相關的工作的合格候選人，以及那些教育程度與從事這些工作所需的技能或能力之間聯繫薄弱的候選人。此外，不必要的機會障礙給低收入的美國人造成了過重的負擔，降低了經濟流動性。
 
-學生在這無數潛規則下不斷地訓練，逐漸變成了一台只爲迎合教師，迎合中共的一台寫作機器。而“人民日報式文章”便成爲最合適這套制度的模板。學生想要模仿學習這類格式，勢必要閱讀大量中共黨媒的文章，而這些無不是贊美執政者的。長期暴露在這種環境下，假的也將成爲真的。
+The Office of Personnel Management (OPM) oversees most aspects of the civilian Federal workforce, including creating and maintaining the General Schedule classification system and determining the duties, responsibilities, and qualification requirements for Federal jobs.  Executive departments and agencies (agencies), however, are responsible for vetting and selecting specific candidates to fill particular job openings consistent with statutory requirements and OPM rules and guidance, including applicable minimum educational requirements.  Currently, for most Federal jobs, traditional education — high school, college, or graduate-level — rather than experiential learning is either an absolute requirement or the only path to consideration for candidates without many years of experience.  As a result, Federal hiring practices currently lag behind those of private sector leaders in securing talent based on skills and competency.
 
-由此觀之，中共一切教育教學的目的並不是爲了提升學生的思想素養，而是在不知不覺中扼殺青年的思想，使之成爲一個沒有獨立思想，沒有反抗意識，能聽從黨的領導的動物人。而這些年中共所謂的語文教育改革，無不打著“加深對祖國語言文字的理解與熱愛”，“促進語文教育教學”的幌子，不斷向青年學子灌輸“新時代”、“正能量”等邪惡思想。進一步將青年學子塑造成只會對現有知識檢索，不會對觀點正誤進行判斷，沒有權利意識的人。
+人事管理辦公室(OPM)負責監督聯邦文職人員隊伍的大部分方面，包括建立和維持總分類製度，並確定聯邦職位的職責、責任和資格要求。執行部門和機構(機關)負責根據法定要求和OPM的規則和指南，包括適用的最低學歷要求，審核和選拔特定的候選人來填補特定的職位空缺。目前，對於大多數聯邦工作而言，傳統教育—-高中、大學或研究生水平—-而不是經驗學習，對於沒有多年經驗的求職者來說，要么是絕對的要求，要么是唯一的考慮途徑。因此，在根據技能和能力吸引人才方面，聯邦的招聘做法目前落後於私營部門的領導者。
 
-而中共爲了掩飾它的洗腦奴化教育，強行給它的教育體制披上了素質教育的外衣。中共宣傳組派出了大量所謂的文人學者四處演講。今日說：“我們要注重學生寫作基本能力的培養，我們應重視學生的個性發展。”明天說：“學生的個性若不加以約束，定會毀了我們的孩子。”一番操作後，中共營造出了中共國當前教育行業百家爭鳴的假象。
+My Administration is committed to modernizing and reforming civil service hiring through improved identification of skills requirements and effective assessments of the skills job seekers possess.  We encourage these same practices in the private sector.  Modernizing our country’s processes for identifying and hiring talent will provide America a more inclusive and demand-driven labor force.
 
-這種磨滅人性的教育體制，造就了無數悲劇。近日，金壇河濱小學的一位學生作文課後，因不堪忍受其語文教師的痛批、掌掴等，選擇跳樓結束了自己鮮活的生命。只因這位小女孩寫的《三打白骨精》的感受是：“有些人表面看著善良，可內心都是陰暗的，他們會利用各種各樣的卑鄙的手段和陰謀詭計來達到不可告人的目的。”任課的老師便痛批：“太負能量！”試問，這位孩子說的有錯嗎？負能量又是什麽？這位教師的觀點又從何而來？文學閱讀本身就是一種再創作的活動。這些教師口口聲聲說的：“一千個讀者就有一千個哈姆雷特。”然而，在他們的實際行動中，連作文都有了標准答案。孩子的天分被殘忍束縛，思想被無情摧殘，創新創造的根基被永久鏟除。而這，只是中共畸形的奴化教育下的冰山一角。
+我的政府致力於通過更好地確定技能要求和有效評估求職者所具備的技能，使公務員的招聘工作現代化和改革。我們鼓勵私營部門採取同樣的做法。使我國識別和僱用人才的程序現代化，將為美國提供一支更具包容性和需求驅動的勞動力隊伍。
 
-隨著老一代文人的退出，接受中共洗腦教育的新一代青年接替，幾代更叠後，中共洗腦的文人占據了中國文壇的大好河山，加之中共不斷制造白色恐怖，學子和作家在這種高壓環境下，只能被迫寫中共的贊歌。至此，中國文學進入了黨文學，文人成了共産黨的禦用筆杆。
+Through the work of the National Council for the American Worker and the American Workforce Policy Advisory Board, my Administration is fulfilling its commitment to expand employment opportunities for workers.  The increased adoption of apprenticeship programs by American employers, the creation of Industry-Recognized Apprenticeship Programs, and the implementation of Federal hiring reforms, including those in this order, represent important steps toward providing more Americans with pathways to family-sustaining careers.  In addition, the Principles on Workforce Freedom and Mobility announced by my Administration in January 2020 detail reforms that will expand opportunities and eliminate unnecessary education costs for job seekers.  This order builds on the broader work of my Administration to expand opportunity and create a more inclusive 21st-century economy.
 
-當文學成了獨裁者的統治工具，當教育成爲禁锢思想的手段，當一篇普通的日記都只能到美國發表，這個民族的災難便從天而降。唯有解放思想，打破禁區，才能走出中共洗腦奴化教育的魔爪。也唯有此，人民大衆才能在大思潮來襲之際，大災難來臨之際，堅定地選擇自由、民主、人權和法制。
+通過美國工人全國委員會和美國勞動力政策諮詢委員會的工作，我的政府正在履行其擴大工人就業機會的承諾。美國雇主越來越多地採用學徒計劃，建立行業認可的學徒計劃，以及實施聯邦僱用改革，包括本命令中的改革，這些都是為更多美國人提供維持家庭生計的途徑的重要步驟。此外，我的政府在2020年1月宣布的 “勞動力自由和流動原則 “詳細說明了將為求職者擴大機會和消除不必要的教育成本的改革。這項命令建立在我的政府為擴大機會和創造一個更具包容性的21世紀經濟所做的更廣泛工作的基礎上。
 
-（文章內容僅代表作者觀點）
+This order directs important, merit-based reforms that will replace degree-based hiring with skills- and competency-based hiring and will hold the civil service to a higher standard — ensuring that the individuals most capable of performing the roles and responsibilities required of a specific position are those hired for that position — that is more in line with the principles on which the merit system rests.
+
+該命令指示進行重要的、以績效為基礎的改革，用以技能和能力為基礎的僱用方式取代以學位為基礎的僱用方式，並將使公務員制度達到更高的標準–確保最能勝任某一特定職位所要求的作用和責任的人被雇用擔任該職位，這更符合業績制度所依據的原則。
+
+Sec. 2.  Revision of Job Classification and Qualification Standards.  (a)  The Director of OPM, in consultation with the Director of the Office of Management and Budget, the Assistant to the President for Domestic Policy, and the heads of agencies, shall review and revise all job classification and qualification standards for positions within the competitive service, as necessary and consistent with subsections (a)(i) and (a)(ii) of this section.  All changes to job classification and qualification standards shall be made available to the public within 120 days of the date of this order and go into effect within 180 days of the date of this order.
+
+第2條。職位分類和資格標準的修訂。 (a)OPM主任在與管理和預算辦公室主任、總統國內政策助理以及各機構負責人協商後，應根據需要並按照本節(a)(i)和(a)(ii)分節的規定，審查和修訂競爭性服務內所有職位的職務分類和資格標準。職務分類和資格標準的所有變動應在本命令發布之日起120天內向公眾公佈，並在本命令發布之日起180天內生效。
+
+(i)   An agency may prescribe a minimum educational requirement for employment in the Federal competitive service only when a minimum educational qualification is legally required to perform the duties of the position in the State or locality where those duties are to be performed.
+
+(i)只有當最低教育資格是在履行該職位職責的州或地方依法所需時，機構才可規定在聯邦競爭性服務中就業的最低教育要求。
+
+(ii)  Unless an agency is determining a candidate’s satisfaction of a legally required minimum educational requirement, an agency may consider education in determining a candidate’s satisfaction of some other minimum qualification only if the candidate’s education directly reflects the competencies necessary to satisfy that qualification and perform the duties of the position.
+
+(ii) 除非一個機構正在確定候選人是否滿足法律規定的最低教育要求，否則，只有當候選人的教育直接反映了滿足該資格和履行該職位職責所需的能力時，一個機構才可以在確定候選人是否滿足其他最低資格時考慮教育。
+
+(b)  Position descriptions and job postings published by agencies for positions within the competitive service should be based on the specific skills and competencies required to perform those jobs.
+
+(b)各機構發布的競爭性服務內職位的職位說明和招聘信息應以從事這些工作所需的具體技能和能力為基礎。
+
+Sec. 3.  Improving the Use of Assessments in the Federal Hiring Process.  (a)  In addition to the other requirements of this order, the Director of OPM shall work with the heads of all agencies to ensure that, within 180 days of the date of this order, for positions within the competitive service, agencies assess candidates in a manner that does not rely solely on educational attainment to determine the extent to which candidates possess relevant knowledge, skills, competencies, and abilities.  The heads of all agencies shall develop or identify such assessment practices.
+
+第3節. 改進聯邦招聘過程中對評估的使用。 (a)除本命令的其他要求外，OPM主任應與所有機構的負責人合作，確保在本命令發布之日起180天內，對於競爭性服務內的職位，各機構對候選人的評估方式不應僅僅依靠學歷來確定候選人擁有相關知識、技能、能力的程度。各機構負責人應制定或確定這種評估辦法。
+
+(b)  In assessing candidates, agencies shall not rely solely on candidates’ self-evaluations of their stated abilities.  Applicants must clear other assessment hurdles in order to be certified for consideration.
+
+(b) 在評估候選人時，各機構不應僅僅依靠候選人對其所述能力的自我評價。申請人必須通過其他評估障礙，才能獲得考慮認證。
+
+(c)  Agencies shall continually evaluate the effectiveness of different assessment strategies to promote and protect the quality and integrity of their hiring processes.
+
+(c) 各機構應不斷評價不同評估戰略的效力，以促進和保護其徵聘程序的質量和完整性。
+
+Sec. 4.  Definitions.  For purposes of this order:
+
+(a)  the term “assessment” refers to any valid and reliable method of collecting information on an individual for the purposes of making a decision about qualification, hiring, placement, promotion, referral, or entry into programs leading to advancement;
+
+第4節。定義。為本命令的目的：
+
+(a) “評估 “一詞指的是任何收集個人信息的有效和可靠的方法，目的是就資格、僱用、安置、晉升、推薦或進入導致晉升的方案作出決定。
+
+(b)  the term “competitive service” has the meaning specified by section 2102 of title 5, United States Code;
+
+(b) “競爭性服務 “一詞具有《美國法典》第5章第2102條所規定的含義。
+
+(c)  the term “education” refers to Post High-School Education as that term is defined in the OPM General Schedule Qualification Policies; and
+
+c) “教育 “一詞是指高中後教育，因為這個詞已經在《總理辦公廳資格政策總表》中被定義；
+
+(d)  the term “qualification” means the minimum requirements necessary to perform work of a particular position or occupation successfully and safely.
+
+(d) “資格 “一詞是指成功和安全地從事某一特定職位或職業的工作所需的最低要求。
+
+Sec. 5.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
+
+第5條。一般規定。 (a) 本命令中的任何內容均不得解釋為損害或以其他方式影響：
+
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
+
+(i) 法律授予行政部門或機構或其負責人的權力；或
+
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(ii) 管理和預算辦公室主任與預算、行政或立法提案有關的職能。
+
+(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(b) 本命令的執行應符合適用的法律，並以撥款為限。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+(c) 本命令無意也不會產生任何一方可在法律上或衡平法上對美國、其各部門、機構或實體、其官員、僱員或代理人或任何其他人強制執行的任何實質性或程序性權利或利益。
+
+DONALD J. TRUMP
+
+唐納德·川普
+
+THE WHITE HOUSE,
+
+白宮
+
+June 26, 2020.
+
+2020年6月26日
+
+*翻譯：【Melody太陽的旋律】校對：【V%】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
