@@ -1,14 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友觀點：試論中國教會應如何和解病毒大流行中遭到破壞的三重關係（第三部分，完）
-`2020-06-28 02:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247734/)
+## 鄭州孫莊基督教堂遭中共百人暴力強拆
+`2020-06-28 05:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/248020/)
 
-**作者：Joseph Benjamin Taylor**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28014822/1-205.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28014930/2-119.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28015012/3-64.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28015044/4-53.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28015105/5-36.png)
-[第一部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247135)
-[第二部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247666)[第三部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247734)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28041904/Picture-1-149.png)圖片來源：[https://static01.nyt.com](https://static01.nyt.com/images/2018/01/13/world/asia/13china-megachurch-1/13china-megachurch-1-master1050.jpg)
+據新聞網站*The Christian Post* 6月27號報導，河南鄭州高新區的孫莊基督教堂於6月12號遭到當地政府200多人暴力強拆，並且打傷至少兩名阻止拆遷的女信徒，逮捕一位男信徒。
 
-以上內容僅代表作者的個人觀點
+**基督教教會遭中共強拆**
+
+總部設在美國的中國援助組織（China Aid）本週在一份聲明中指出，事發當天，高新區民族宗教局官員沒有向該基督教堂發出任何通知，也沒有出示任何法律文件。來者開著吊車、挖機等重型機械，強行闖入教堂並把室內所有桌椅以及教會用品向外砸。其中一位女信徒在反抗時被推倒在地，隨後昏迷不醒人事，而另一位女信徒也被毆打重傷，導致二人皆被送至醫院。
+
+據悉，2012年6月，孫莊基督教會曾加入三自愛國運動，當時中共政府允許它建造一座新的教堂建築。然而，2013年6月該建築建成後，教堂收到了孫莊村當局的驅逐和拆除通知。隨後，當局派人便向教堂門口亂扔石頭和雜土，並切斷其電源和水源。
+
+然而，遭受中共毒手的並不僅是孫莊基督教堂。該報導還提到，總部設在意大利的新宗教研究中心出版的專欄雜誌《苦冬》（*Bitter Winter）*在本月初曾報導中共國的人權問題：中共從一月到四月，短短幾個月的時間，就在安徽省多個受國家認可的教堂中強制拆除了250多個十字架，其中，報導還援引馬鞍山市一名省級官員的話說：”作為政府鎮壓行動的一部分，所有基督教標誌都被要求拆除。
+
+**中共對宗教的政治審查和壓迫**
+
+中共對宗教如此堂而皇之的迫害和鎮壓已經引起國際的注意。美國國際宗教自由委員會在其2020年度報告中指出，中共不僅把十字架從各地的基督教堂移除，還禁止18歲以下的年輕人參加任何宗教儀式，更甚者，還強行把耶穌和聖母瑪利亞的畫像撤換成習近平的照片。
+
+在美國基督教迫害監察組織“敞開的門” ( *Open Doors* )的《全球守望名單》（World Watch List）上，把中共國在迫害基督徒方面被列為世界上最糟糕的國家之一。該組織指出，任何邀請海外來賓、發展過大、過於牽扯政治的教堂都將被中共視為威脅。
+
+評：
+
+自中共掌權70年以來，對基督教以及各宗教的打壓、限制、控制歷來已久。中共在垂死掙扎之際，對宗教信仰自由的加劇迫害讓各國際組織及人士意識到中共的醜惡嘴臉。中共必將受到國際的製裁和正義的判決。
+
+[原文鏈接](https://www.christianpost.com/news/china-200-communist-officials-demolish-church-beat-christians.html)
+
+翻譯報導：Cadenza
+校對整理：晴天小螞蟻
 
 0
