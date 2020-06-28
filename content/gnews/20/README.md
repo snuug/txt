@@ -1,14 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友觀點：試論中國教會應如何和解病毒大流行中遭到破壞的三重關係（第二部分，共三部分）
-`2020-06-28 02:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247666/)
+## 我太希望宣傳我們為什麼會有GTV?
+`2020-06-28 03:52 GM31` [轉載自GNews](https://gnews.org/zh-hant/247892/)
 
-**作者：Joseph Benjamin Taylor**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28011745/1-203.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28011849/2-114.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28011923/3-60.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28011953/4-49.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28012013/5-34.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28012032/6-23.png)
-[第一部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247135)
-[第二部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247666)[第三部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247734)
+在6月25日的GTV直播中，Sara 回答了我們為什麼會有GTV？
 
-以上內容僅代表作者的個人觀點
+她說：“我們大家要從心裡面想一想，我們為什麼會有GTV？我跟律師說是這樣說的。我說，因為在美國這片土地上，twitter、油管，也是歸那個叫CCP的中國政府管的。所有的我們一旦違背了CCP的意願，我們所有的言論、甚至於我們的帳戶，都是被那個twitter、油管是控制的。包括我們爆料革命的第一領路人，就是要推翻這個邪惡政府的領路人——郭文貴先生，在twitter是被徹底消除了！他的油管帳號是無法直播的，所以，才有了GTV。
 
-0
+因為我們中國人需要一個自由發聲的地方啊，我們華人需要說出真相的地方啊……GTV是所有我們中國人、我們華人，一個自由發聲的地方，是我們渴望的一個自由的家園。
+
+所以，為啥，我們要讓世界看到它，我們要讓世界看到它，那麼我們要把它推出來，那麼怎麼樣推出來？我們要把它養大、壯大， 所以我們才有了這個G-TV整個的投資。
+
+所以說你去告我,太好了! 其實我是非常希望你們所有的、要告我的人趕緊去告。因為我希望，我非常希望在法庭上在更多更多的地方，讓我可以像這樣一樣的說出我的心聲。
+
+讓我可以把這些你們、我們所有追求幸福，追求自由的、我們同胞們的心聲通過Sara我，可以讓更多的世界上的人知道。
+
+我甚至希望在法庭上，公開法庭讓我站在那裡向全世界說，我們為啥會投資？我們為啥會彼此團結在一起有G-TV？為啥？ 所以說那些要告我的人，我非常非常感謝你給我這一個機會，有一個機會讓我去把所有的這些真相，有更多的場地去說。讓更多的人來聽到 我們真正中國人的心聲。”
+
+文字版：[6月25日Sara直播：我太希望有多的機會和場合來大大宣傳我們為什麼會有GTV！](https://gnews.org/zh-hans/245249/)
+
+*聽寫：【小螺號 】【班仔】*
+*翻譯： 【文青 】【noraTina】【雷鳴（文鳴）】【 Yuma\_8 】【Boredbug 】【JoyJoy】【流浪者 】
+校對：【RD16】【noraTina】 字幕：【班仔】【Pamila（文明）】【V%】
+編輯：【GM31】【Isaiah4031】【GM09】 視頻轉碼：【恒久忍耐】*
+
+*戰友之家玫瑰園小隊出品*
+
+1

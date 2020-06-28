@@ -1,14 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰友觀點：試論中國教會應如何和解病毒大流行中遭到破壞的三重關係（第一部分，共三部分）
-`2020-06-28 02:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247135/)
+## 稅務軟件裡的中共間諜軟件
+`2020-06-28 03:58 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/247938/)
 
-**作者：Joseph Benjamin Taylor**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114556/1-198.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114700/2-112.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114737/3-58.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114806/4-47.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114827/5-31.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114841/6-20.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27114854/7-16.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/27214831/8-16.png)
-[第一部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247135)
-[第二部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247666)[第三部分 中國教會應如何和解病毒大流行所破壞的關係？](https://gnews.org/zh-hant/?p=247734)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28035438/image1-6-7.jpeg)
+據NBC報導，在一款中共要求安裝的稅務軟件中，發現了間諜軟件，而且植入者指向中共。
 
-以上內容僅代表作者的個人觀點
+今年早些時候，一家在中國開展業務的跨國技術供應商按中國銀行的要求，安裝了一個稅務軟件，但隨後網絡安全公司Trustwave檢查出這個軟件裡含有一個惡意軟件，這個惡意軟件在稅務軟件安裝後兩小時就激活了，它在暗中安裝了一個後門，讓攻擊者可以完全進入公司的網絡。
+
+Trustwave表示，該惡意軟件設計得十分複雜，即使被刪除，也會再從網上自動下載副本自行安裝，它還能潛伏很長時間而不發作，同時，它會隨機的向遠程服務器發送信號，以逃避檢測。這些都不像普通惡意軟件的行為，更像一個國家政府的間諜軟件所為。
+
+Trustwave已將該惡意軟件稱為“GoldenSpy”，他們在周四發布了一份報告，警告所有有關的公司認真檢查他們的網絡。他們表示，這個惡意軟件在4月份開始活躍，目前還無法完全確定這是中共所為還是犯罪集團所為。Trustwave的報告說：“GoldenSpy的活動……具有針對在中國經營的外國公司的高級持續威脅（APT）協調活動的特徵……目前，我們還無法確定該軟件的普及程度……我們現在知道有一家目標技術/軟件供應商和一家大型金融機構發生了高度相似的事件，但這可能是對所有在中國經營和納稅的公司，也可能只針對少數能夠獲取重要信息的組織。”
+
+前FBI網絡專家、Trustwave公司的副總裁布萊恩·赫西(Brian Hussey)表示，在中國活動時你應該特別小心，尤其是如果有人要求你安裝一些軟件時，他說:“我們敦促每個人都應該檢查一下，看看自己的網絡是否受到影響。”
+
+從華為設備被檢出危及國家安全的後門，到“千人計劃”被查出竊取商業機密、知識產權的活動，再到這次稅務軟件裡的間諜軟件，一張巨大的中共情報網正日益展現在世人眼前。美國FBI局長克里斯托弗·雷(Christopher Wray)說，目前正在調查的跟中國情報有關的案件就有2000多起，平均每10個小時就發生一起，中共已經成為美國安全的最大威脅。
+
+[原文鏈接](https://www.nbcnews.com/tech/security/spyware-hidden-chinese-tax-software-was-probably-planted-nation-state-n1231975)
+
+翻譯報導：緣特
+校對整理：意翎
 
 0
