@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 主流媒體重新審視中共冠狀病毒
-`2020-06-28 19:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/248340/)
+## 川普總統在美國HIV檢測日的致辭
+`2020-06-28 23:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/248394/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28192202/cropped_image1-1-2.jpg)
-**摘要**
-CCP病毒導致重要免疫細胞衰竭
-主流媒體對中共病毒認識的轉變軌跡和前因後果
+摘要：6月27日，川普總統在國家艾滋病病毒檢測日針對自上世紀80年代以來全美抗擊艾滋病所做出的努力發表了評論，強調了利用諸如提前預防，檢測和治療等科學方法對於抗擊艾滋病至關重要。並且作為總統，他將在2021年國家預算中申請7.16億美元來支持此項公共衛生事業。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28233504/WH_20200627_HIV_Testing_Day_photo169.png)
+**Presidential Message on National HIV Testing Day, 2020**
 
-作為美國財經播客門戶的零對沖網站(ZeroHedge)在二月一日, 因發文質疑武漢CCP病毒與一位科學家以及其實驗室有千絲萬縷關係後，其推特賬號被永久關停。
+**2020年全國HIV檢測日總統致辭**
 
-6月27日，該網站一篇署名文章，引用《紐約時報》發表的最新研究觀點，繼續探討“CCP冠狀病毒類似艾滋病損耗人體重要免疫細胞病理，也能夠破壞人體免疫力系統”話題，梳理和諷刺主流媒體媒體對中共病毒認識的轉變軌跡和前因後果。
+Date: June 27, 2020
 
-零對沖網站表示：這個結論早在幾個月前該網站就已經發布，對於期間的經歷，作者Tyler Durden撰文感慨：我們擔心病毒流行病（pendemic），被指責散佈“信息流行病（infodemic）” ，但最可怕的是“審查流行病（censordemic）”。
+發布日期：2020年6月27日
 
-2020年2月1日，零對沖網站參考Arxiv的發現，發表了一篇文章，提出Covid-19基因組包含HIV插入物，令人擔心該病毒是人為製造的生化武器。
+Each year in June, the United States observes National Human Immunodeficiency Virus (HIV) Testing Day.  An estimated 1.2 million people in the United States are currently living with HIV.  Sadly, 1 in 7 of these individuals are unaware that they have HIV, which poses serious health risks.  On this day, we reaffirm our Nation’s leading role in advancing prevention, research, treatment, and cures for this virus and pledge to continue working to raise awareness about the importance of testing and early diagnosis in combating HIV.
+每年的六月份，美國都會舉辦“國家艾滋病病毒（HIV）檢測日”活動。據估計，美國目前有120萬人感染艾滋病毒。可悲的是，這些人中有七分之一沒有意識到自己感染了艾滋病毒，這構成了嚴重的健康風險。在這一天，我們重申我們國家在推進該病毒的預防，研究，治療和治愈方面的領導作用，並承諾繼續努力提高人們對測試和早期診斷在對抗HIV中的重要性的認識。
 
-4月，該網站報導了2008年諾貝爾醫學獎得主Luc Montagnier教授的聲明：SARS-CoV-2是是從中國武漢的一個實驗室意外洩漏的一種研製病毒，該實驗室研究冠狀病毒的目的，是試圖使用其中一種病毒作為HIV的載體，以尋找AIDS疫苗。
+While infections in the United States have dropped by more than two-thirds since the onset of the HIV/AIDS epidemic in the 1980s, nearly 40,000 Americans are still diagnosed with the virus each year.  Of these new infections, roughly 80 percent are transmitted by people who are either undiagnosed or not receiving treatment.  These numbers demonstrate how critically important it is that we continue to use American innovation and ingenuity to develop treatments that mitigate the spread of HIV.  No other country is better prepared to succeed in these efforts or has helped champion significant medical advancements more than the United States.  Availability of pre-exposure prophylaxis (PrEP) and antiretroviral therapy (ART) are dramatically reducing virus transmission and enabling good health.  People who are properly diagnosed and adhere to their ART have a very high likelihood of remaining virally suppressed for years.  This means that these individuals will have the opportunity to live h ealthy and fulfilling lives while also reducing the risk of transmission to others.
 
-這些信息似乎越來越被主流媒體認定為事實，然而一位Buzzfeed的記者當時撰寫了一篇有關零對沖的熱門文章，導致我們被禁止使用Twitter。後來BuzzFeed的新主編Mark Schoofs以“剽竊”罪名，開除了這名記者，並發表《致讀者》，列舉了自2013年以來該記者從其他出版物中摘錄內容而沒有署名的情況，這才得以恢復Twitter賬號。
+自上世紀80年代艾滋病毒/艾滋病開始流行以來，美國每年的感染人數已經下降了三分之二以上，但每年仍有近4萬名美國人被診斷出感染了這種病毒。在這些新感染中，大約有80％的人是由未被診斷出或未接受治療的人傳染的。這些數字表明，我們繼續利用美國的創新和創造力來研發能夠緩解HIV傳播的治療方法是多麼重要。沒有其它任何國家比美國更準備好在這些努力中取得成功，或者在推動重大醫學進步方面發揮了更大的作用。得到暴露前預防（PrEP）和抗逆轉錄病毒療法（ART）可以極大地減少了此病毒的傳播，並保證人們的健康。那些進行了適當的診斷並堅持使用逆轉錄病毒療法的人很可能在長達數年的時間裡讓此病毒的在其體內得到抑制。這意味著這些人將有機會過上健康且充實的生活，同時也減少了傳染給他人的風險。
 
-作者說，事實上Covid-19起源於實驗室的“陰謀論”得到了廣泛的支持，並且導致CCP實驗室成為一些國際調查的重點。
+To better close the gap between testing and treatment, last year my Administration launched “Ending the HIV Epidemic: A Plan for America” through the Department of Health and Human Services.  As part of the second year of this bipartisan, multiyear initiative, my 2021 Budget Request includes $716 million to prevent the spread of HIV infections and to better care for, treat, and protect those people living with this virus.  By actively empowering Americans with the tools they need to combat HIV, this initiative aims to drastically reduce transmissions and build healthier and safer communities throughout our Nation.
+為了更好地縮小測試與治療之間的差距，去年，美國政府通過衛生與公共服務部啟動了“終結艾滋病流行：美國的計劃”。作為一個兩黨一致通過的多年措施的第二年的一部分，我的2021年預算申請中包括了7.16億美元，用於防止HIV感染的蔓延和更好地照顧，治療和保護那些感染這種病毒的人。通過積極地賦予美國人抗擊艾滋病所需的工具，這項措施旨在大幅度減少傳播，並在全美範圍內建立更健康，更安全的社區。
 
-當大流行剛剛開始引起人們的關注，受中共影響的主流媒體在政治上傾向於將這種疾病的嚴重性降低到最低程度，Twitter和Facebook等社交媒體高薪僱傭所謂“事實檢查員”，扼殺一切違背扎克伯格們和多爾西們所稱道的主流觀點，因此即使“人造病毒”的猜想被HIV病毒的發現者親自證實也立即被指危言悚聽。“備受推崇”的StatNews更是指責零對沖傳播“信息流行病”。
+On National HIV Testing Day, we acknowledge the incredible strides our Nation has made in combating this terrible epidemic.  Together, through spreading awareness and advancing science, we recommit to using prevention, testing, and treatment tools to end HIV in the United States and around the world.
 
-作者尖刻批評: 當我們二月份拋出了冠狀病毒與HIV共享遺傳物質的信息時，這些主流媒體或是社交平台大佬理應充分利用他們的審查權來辨清事實，而不是僱傭這些所謂“事實檢查員”在根本沒有任何實際事實或知識的情況下，讓形勢變得更另混亂不堪。
+在全國艾滋病毒檢測日，我們承認我們國家在抗擊這一可怕的大流行病方面取得了相當不錯的進展。我們共同致力於通過傳播相關意識和發展相關領域科學，並再次承諾使用預防，檢測和治療工具來終結美國和世界各地的艾滋病毒。
 
-對於現在《紐約時報》態度180度大轉變，作者表示：我們已經懷疑StatNews的作者John Gregory是否會追加他的“分析”，因為已經出現了實際的“事實”，表明這不是我們應該擔心的信息流行病，而是審查流行病。”
+閱讀白宮原文 URL：https://www.whitehouse.gov/briefings-statements/presidential-message-national-hiv-testing-day-2020/
 
-評：隨著真相不斷揭示，CCP病毒終將露出其本來面目。病理層面上，我們相信現代科學必定會找到跟病毒相處的辦法。可怕的是原本應該客觀、獨立的主流媒體和自由、開放的社交平台一旦受到CCP病毒的侵害，便會讓世界暗無天日。CCP病毒已經奪取了幾十萬人的性命，不能讓它繼續禍害文明世界的免疫系統。
+*翻譯：【Winston Jackson】*
 
-[原文鏈接](https://www.zerohedge.com/political/disturbing-parallel-hiv-covid-19-can-cause-depletion-important-immune-cells-ny-times)
-
-翻譯報導：匿名
-校對整理：瑞安平
+*戰友之家玫瑰園小隊出品*
 
 0
