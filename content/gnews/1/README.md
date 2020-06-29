@@ -1,62 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文革2.0已捲土重來
-`2020-06-28 19:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/248356/)
+## 川普總統在美國HIV檢測日的致辭
+`2020-06-28 23:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/248394/)
 
-![據洛杉磯時報報道，復旦大學教授孫沛東疑因講授中共最敏感和危險的話題“文化大革命”而被“學生”舉報。孫是近年來越來越多的大學教授因“言論不當”而受到針對和懲罰的教授之一，這也正是中國共産黨加強意識形態控製的一部分](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28193715/cropped_image1-1-6.png)
-**摘要**
-鼓勵舉報實現文字獄
-意識形態文革升級版
-全方位洗腦對黨崇拜
+摘要：6月27日，川普總統在國家艾滋病病毒檢測日針對自上世紀80年代以來全美抗擊艾滋病所做出的努力發表了評論，強調了利用諸如提前預防，檢測和治療等科學方法對於抗擊艾滋病至關重要。並且作為總統，他將在2021年國家預算中申請7.16億美元來支持此項公共衛生事業。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28233504/WH_20200627_HIV_Testing_Day_photo169.png)
+**Presidential Message on National HIV Testing Day, 2020**
 
-據洛杉磯時報報導，復旦大學教授孫沛東（Sun Peidong）疑因講授中共最敏感和危險的話題“文化大革命”而被“學生”舉報。孫是近年來越來越多的大學教授因“言論不當”而受到針對和懲罰的教授之一，這也正是中國共產黨加強意識形態控制的一部分。
+**2020年全國HIV檢測日總統致辭**
 
-**從幼兒園到大學全方位洗腦一切聽黨**
+Date: June 27, 2020
 
-中共於2013年禁止討論“西方概念”，例如普世價值，新聞自由，公民社會和黨的歷史錯誤。2018年，中共責令幼兒園到大學的老師堅持一切都聽黨的。這些指導方針在圍繞中共病毒大流行的民族主義浪潮中得到了強化，而對知識分子的公開羞辱則使人想起了毛澤東時代。
+發布日期：2020年6月27日
 
-今年2月，中國社會科學院解雇了香港客座講師周培儀，因其在社交網絡上批評中共處置病毒失當。上週，湖北大學解雇了文學教授梁艷萍，因其在與日本和香港社交媒體上發表“不正確的言論”而撤銷了黨籍。出於類似原因，至少還有兩名海南和哈爾濱的教授正在接受調查。
+Each year in June, the United States observes National Human Immunodeficiency Virus (HIV) Testing Day.  An estimated 1.2 million people in the United States are currently living with HIV.  Sadly, 1 in 7 of these individuals are unaware that they have HIV, which poses serious health risks.  On this day, we reaffirm our Nation’s leading role in advancing prevention, research, treatment, and cures for this virus and pledge to continue working to raise awareness about the importance of testing and early diagnosis in combating HIV.
+每年的六月份，美國都會舉辦“國家艾滋病病毒（HIV）檢測日”活動。據估計，美國目前有120萬人感染艾滋病毒。可悲的是，這些人中有七分之一沒有意識到自己感染了艾滋病毒，這構成了嚴重的健康風險。在這一天，我們重申我們國家在推進該病毒的預防，研究，治療和治愈方面的領導作用，並承諾繼續努力提高人們對測試和早期診斷在對抗HIV中的重要性的認識。
 
-梁教授因支持武漢小說家方方而在網上受到抨擊，方方的日記被英語出版後，成為民族主義憤怒的對象。五毛指責方方在西方抹黑中國。同時向她發送了死亡威脅並譴責了她的支持者，他們在方方的微博中進行挖掘，以發現任何偏離中共路線的東西。
+While infections in the United States have dropped by more than two-thirds since the onset of the HIV/AIDS epidemic in the 1980s, nearly 40,000 Americans are still diagnosed with the virus each year.  Of these new infections, roughly 80 percent are transmitted by people who are either undiagnosed or not receiving treatment.  These numbers demonstrate how critically important it is that we continue to use American innovation and ingenuity to develop treatments that mitigate the spread of HIV.  No other country is better prepared to succeed in these efforts or has helped champion significant medical advancements more than the United States.  Availability of pre-exposure prophylaxis (PrEP) and antiretroviral therapy (ART) are dramatically reducing virus transmission and enabling good health.  People who are properly diagnosed and adhere to their ART have a very high likelihood of remaining virally suppressed for years.  This means that these individuals will have the opportunity to live h ealthy and fulfilling lives while also reducing the risk of transmission to others.
 
-對於65歲的方芳（本名王芳）而言，鎮壓是意識形態的延續，這種意識形態推動了文化大革命。自1949年以來，中國人民經歷了幾代人的革命，戰爭，飢荒，屠殺和其他創傷。而中共冠狀病毒則是最新的。然而，他們從來沒有被允許面對自己的歷史或與他們的孩子談論歷史。方方在一封給《泰晤士報》的電子郵件中說，這樣的結果是一個記憶受損的社會，這種社會重複了毀滅和遺忘的循環，卻沒有解決其深層的原因和後果。
+自上世紀80年代艾滋病毒/艾滋病開始流行以來，美國每年的感染人數已經下降了三分之二以上，但每年仍有近4萬名美國人被診斷出感染了這種病毒。在這些新感染中，大約有80％的人是由未被診斷出或未接受治療的人傳染的。這些數字表明，我們繼續利用美國的創新和創造力來研發能夠緩解HIV傳播的治療方法是多麼重要。沒有其它任何國家比美國更準備好在這些努力中取得成功，或者在推動重大醫學進步方面發揮了更大的作用。得到暴露前預防（PrEP）和抗逆轉錄病毒療法（ART）可以極大地減少了此病毒的傳播，並保證人們的健康。那些進行了適當的診斷並堅持使用逆轉錄病毒療法的人很可能在長達數年的時間裡讓此病毒的在其體內得到抑制。這意味著這些人將有機會過上健康且充實的生活，同時也減少了傳染給他人的風險。
 
-中共在1月對居民就病毒問題撒謊並在沒有充分醫療條件的情況下封城，方方認為，這種欺騙和遺棄將引發公眾對問責制的呼聲。她說：“我的判斷是錯誤的。” 疫情還沒有結束，但是我到處看到的只是讚美。“即使我們的身體仍然受傷，我們的教育也使我們許多人忘記了。 他們在遮蓋傷疤的同時唱讚歌。”
+To better close the gap between testing and treatment, last year my Administration launched “Ending the HIV Epidemic: A Plan for America” through the Department of Health and Human Services.  As part of the second year of this bipartisan, multiyear initiative, my 2021 Budget Request includes $716 million to prevent the spread of HIV infections and to better care for, treat, and protect those people living with this virus.  By actively empowering Americans with the tools they need to combat HIV, this initiative aims to drastically reduce transmissions and build healthier and safer communities throughout our Nation.
+為了更好地縮小測試與治療之間的差距，去年，美國政府通過衛生與公共服務部啟動了“終結艾滋病流行：美國的計劃”。作為一個兩黨一致通過的多年措施的第二年的一部分，我的2021年預算申請中包括了7.16億美元，用於防止HIV感染的蔓延和更好地照顧，治療和保護那些感染這種病毒的人。通過積極地賦予美國人抗擊艾滋病所需的工具，這項措施旨在大幅度減少傳播，並在全美範圍內建立更健康，更安全的社區。
 
-如今，像幾十年來一樣，要想以中文老師或教授的身份生存，就需要不斷的自我檢查和妥協，尤其是在人文科學方面，因為大學宣傳部門向講師施加壓力，要求他們宣傳黨的意識形態。
+On National HIV Testing Day, we acknowledge the incredible strides our Nation has made in combating this terrible epidemic.  Together, through spreading awareness and advancing science, we recommit to using prevention, testing, and treatment tools to end HIV in the United States and around the world.
 
-清華大學社會學家郭玉華（Guo Yuhua）表示，抵抗是有代價的。在2019年，她的法律教授徐章潤同事在發表一系列批評中共的論文後遭到了審訊並被停職。現年64歲的郭是清華大學唯一為徐的辯護而講話的學者之一。她受到大學黨委的譴責，並被社交媒體封鎖。她努力獲取自己的書籍的副本，因為這些書籍僅在香港出版，並多次在海關沒收。在與《泰晤士報》記者見面之前，她被打電話並警告不要與外國媒體講話。
+在全國艾滋病毒檢測日，我們承認我們國家在抗擊這一可怕的大流行病方面取得了相當不錯的進展。我們共同致力於通過傳播相關意識和發展相關領域科學，並再次承諾使用預防，檢測和治療工具來終結美國和世界各地的艾滋病毒。
 
-“我很害怕，”她說。同事和朋友告訴她停止講話。他們說，你只會傷害自己。但她不想讓步。
+閱讀白宮原文 URL：https://www.whitehouse.gov/briefings-statements/presidential-message-national-hiv-testing-day-2020/
 
-郭說：“所有人都面臨風險。” “如果我們想，’我只放棄一步，然後每個人都放棄一步，然後再放棄—最後，我們根本沒有空間。”根深蒂固的實用主義貫穿中國社會，這是持久的專制主義數千年的產物。她在實地考察中看到了這一點，收集了被禁止在大躍進中逃離村莊的中國農民的口述歷史。
+*翻譯：【Winston Jackson】*
 
-即使在改革開始40週年的今天，中共國的社會結構也沒有承認人民是平等的公民。它還對共產黨的權力沒有任何限制。這些造成了中共國的危機循環。但是由於沒有異議的容忍和歷史反思空間，很少有人會想到要求變革。“中國老百姓確實是世界上最好的平民。 他們受苦，忍受，忍受，”郭說。“他們把生活置於尊嚴之上。 他們說，’只要我還活著就可以。’”郭玉華作為社會學家，她的工作是說實話-不是像宣傳部門所期望的那樣投射“正能量”，而是像醫生一樣，發現社會疾病的症狀並診斷其病因。
-
-**文革升級版舉報威脅文字獄重現**
-
-復旦歷史學家孫沛東在更開放的時間進入學術界。2013年，她被復旦大學黨委書記邀請加入復旦大學歷史系，她本人也是文化大革命的學者。她說，中國有幾個“黃金歲月”，當時她在中國最聰明的年輕人中自由地與西方學者舉行了研討會，會議和討論會，並指導她的學生們。
-
-可是2015年情況開始發生變化。她關於文化大革命的幾篇文章遭到學術期刊的拒絕。國安問她有關她的研究和西方聯繫的問題。因此她離開了該國兩年，在哈佛和斯坦福大學完成學術研究。
-
-當她於2018年9月回國時。孫被禁止公開演講，並被要求更改其課程的名稱和內容。她拒絕了。然後，在2019年4月，“學生們”在她的辦公室門上張貼了幾張大字報-她的社交媒體帖子，並指控她正在支持一名女學生顛覆國家政權。他們使人聯想到毛澤東時期。毛曾鼓勵學生在文化大革命期間將其用作“武器”。這是對老師的侮辱，並通常是在公共場合侮辱他們，然後毆打他們致死的前奏。孫為成為類似策略的目標而難過。“那是非常痛苦的，”孫說。“因為我真的很喜歡教學。 我真的很關心我的學生。”
-
-“學生“還向她的部門，大學校長和大學黨委書記舉報了她。他們在網上親自攻擊了她。匿名用戶加入，詛咒她為叛徒，並在私人信息中威脅她的家人。在2019年7月前往香港參加學術會議之前，孫教授被迫簽署一項協議，誓言不得拍照，與當地人談論正在進行的抗議活動或在網上發布有關抗議的任何內容。
-
-**追求自由說真話的知識分子被排擠開除**
-
-在12月，在復旦大學爆發了一次罕見的抗議活動：大學改變了學校章程，取消了“思想自由”，並插入了對共產黨忠誠的段落。一個學生暴民聚集在自助餐廳裡，唱著復旦的校歌，讚美那些被刪除的詞。孫教授並未參與抗議活動，但她與多家西方報紙進行了討論。她說，在食堂裡抗議的學生反映了中國社會的三種類型的人：那些大聲歌唱抗拒的人，那些觀看並拍攝他們但不說話的人，那些低下頭吃東西的人，好像對發生了什麼事。“如果人們想變得意識，醒來並活著，想知道他們所生活的社會或想要為孩子謀生的社會，他們就會知道該怎麼做。 如果沒有，他們只會保持沉默。 “你不能喚醒一個假裝正在睡覺的人。”黨委書記命令孫教授寫個人聲明，誓言將停止與外國媒體交流。 如果她不遵守規定，可能會阻止她出國旅行。
-
-復旦大學，清華大學和教育部均未回應置評請求。
-
-今年，孫教授辭去了工作，離開了中國。她說，她已沒有退路了。只有另外兩位歷史教授在復旦講文化大革命。一個人今年退休，另一個人被迫改變他的教學內容。孫教授說：“這就是黨的要求。”
-
-評：說實話，我是在含著淚的情況下編譯完本文的。中國有良知的人被迫害到如此程度實在令人髮指。中共運用“馭民五術”打壓言論，智慧，文化，信仰可以說是他們從一而終的手段。我們也不難發現所謂的“學生舉報”也不過是有關部門自導自演的戲碼，兔子打拳一溜小動作。最後我只想問：被壓迫的同胞們，你們還要繼續沉默下去麼？
-
-[原文鏈接](https://www.latimes.com/world-nation/story/2020-06-27/in-chinas-universities-targeted-attacks-on-intellectuals-raise-memories-of-the-cultural-revolution)
-
-翻譯報導：匿名
-校對整理：瑞安平
+*戰友之家玫瑰園小隊出品*
 
 0
