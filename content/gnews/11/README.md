@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共駐澳媒體的秘密任務
-`2020-06-28 10:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/248258/)
+## 白宮新聞秘書就最高法院對宗教學校裁決發表聲明
+`2020-07-02 02:03 GM31` [轉載自GNews](https://gnews.org/zh-hant/251741/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/28095932/Picture-1-153.png)圖片來源：Shutterstock
-新華社駐澳洲英文部前高級編輯列維.帕森斯(Levi Parsons)在每日郵報撰文披露道，中共海外記者是中共佈設在海外審查論調的傳聲筒。
+**Statement from the Press Secretary Regarding Today****’s Supreme Court Ruling on Religious Schools**
 
-文章中指出，澳大利亞每家中共官方媒體新聞編輯室的第一項工作就是編制和翻譯一份當地媒體的報導清單，以發送給中共政府，旨在傳遞對中共持有褒貶立場的政治家，商人的信息。
+## **新聞秘書關於今天最高法院****對****宗教學校****裁決****的聲明**
 
-在澳總理斯科特.莫里森的記者會期間，目擊者稱，與新華社駐堪培拉記者白絮(Bai Xu)一道的攝影師偷拍其他記者的照片時，一位SBS(澳洲一個公共電視網絡）的攝影師鏡頭對準該白姓記者，被白察覺後， 白斷然上前試圖掩蓋鏡頭阻止拍攝。這一幕引起其他澳洲記者和聯邦警察的注意，白和其一同的記者迅速離開現場。如今，這段視頻現已在網上廣傳。
+Issued on: June 30, 2020
 
-此外，新南威爾士工黨政客肖格特.莫塞爾曼(Shaoquett Moselmane) 因涉嫌和中共勾結開展間諜活動干預澳洲政治，被澳洲安全情報組織(ASIO)進行調查。
+頒佈日期：2020年6月30日
 
-澳洲近期提出的一項”外國影響力透明度計劃“（Foreign Influence Transparency Scheme) 中明確指出與外國政府有關聯的組織一律需與澳政府登記。然而，中共的媒體目前還尚未被要求登記。
+We celebrate today’s Supreme Court decision on religious schools, which removes one of the biggest obstacles to better educational opportunities for all children.  States may no longer hide behind rules motivated by insidious bias against Catholics, known as Blaine Amendments, to exclude religious schools from public benefits.  Laws that condition public benefits, like need-based academic scholarships, on religious status demonstrate state-sanctioned hostility to religion, pressure people and institutions to censor their religious views, and stigmatize disfavored religions.  The Trump Administration believes that school choice is a civil rights issue, and that no parent should be forced to send their child to a failing school.  President Donald J. Trump will fight for school choice, and he will always defend our first freedom: the free exercise of religion.
 
-就在上星期，美國國務院已經將新華社，環球時報，人民日報，CCTV，CGTN等中共海外媒體定義為“外國代表機構”(Foreign Mission)。這將引起世界範圍內對中共媒體審查的連鎖反應。美國務院發言人摩根.奧塔哥斯(Morgen Ortagus)表示，中共控制的媒體只為中共意志服務，而西方媒體為真實服務。
+我們祝賀最高法院今天對宗教學校的裁決！該判決在為全體兒童提供更好的教育機會方面，掃清了其中一個最大的障礙。各州將不能再利用基於布萊恩修正案（該法案由反對天主教徒的偏見促成）而制定的法規將教會學校排除在公共利益之外。那些為公共利益設置條件的法律條文，例如按需分配的學術獎學金，表明了政府對宗教敵視的認可，迫使人民和機構審查其宗教 觀點，並污蔑不同的宗教信仰。川普政府認為，自由選擇學校是牽涉到公民權的問題，任何父母都不應被迫送孩子去不好的學校。唐納德·J·川普總統將為擇校而戰，他將永遠捍衛我們的第一自由：宗教信仰自由。
 
-評：
+白宮原文：[Statement from the Press Secretary Regarding Today’s Supreme Court Ruling on Religious Schools](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-todays-supreme-court-ruling-religious-schools/)
 
-世界開始對中共信息戰開始新一輪阻擊。中共在境外透過媒體自由，藉其喉舌傳送信息病毒。但這一計劃已被識破，中共嘴皮子將被世界扒開砸碎。自由媒體作為監督政府的第四方，將回歸其本應履行的職責，為人民發聲，報導事實真相。
+*翻譯：【Guanghan】校對：【奔騰的長江】【JoyJoy】*
 
-[原文鏈接](https://www.dailymail.co.uk/news/article-8465715/The-secret-role-Chinese-journalists-Australia.html)
+*戰友之家玫瑰園小隊出品*
 
-翻譯文章：Joyphie
-校對整理：晴天小螞蟻
-
-0
+1
