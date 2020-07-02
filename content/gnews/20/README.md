@@ -1,73 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## IPAC發表關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明
-`2020-07-02 03:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/251863/)
+## 大陸南方多省遭遇洪災
+`2020-07-02 06:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251976/)
 
-**Statement on the Imposition of *National Security* Legislation upon Hong Kong by the National People’s Congress of the People’s Republic of China**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02055640/chinaflood_2.jpg)圖片來源： [福克斯新聞網](https://www.foxnews.com/world/china-flood-rainstorm-guizhou-hunan-province-weather-flooding) 
+據台灣新聞昨日報導，最近幾週席捲大陸南部26個省的暴雨，使三峽大壩上游和下游的多做城市被洪水侵蝕，千餘萬人受災。這次洪災也使三峽大壩的防洪能力和可靠性受到質疑。
 
-## **關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明**
+**湖南鳳凰古城**
 
-We, members of the Inter-Parliamentary Alliance on China, condemn the imposition of so-called *National Security* legislation on Hong Kong by the Chinese National People’s Congress. This new law is a comprehensive assault on the city’s fundamental freedoms, rule of law, and autonomy.
-
-我們，作為對華政策跨國議會聯盟成員，強烈譴責中國人民代表大會把所謂的國安法強加於香港。這個新法律是對這個城市現有的基本自由，法治和自治一次全面顛覆
-
-Hong Kong’s high degree of autonomy and way of life are guaranteed by the Sino-British Joint Declaration – a binding treaty under international law – the Hong Kong Basic Law and the International Covenant on Civil and Political Rights.
-
-《中英聯合聲明》保證了香港的高度自治和生活方式。《中英聯合聲明》是依據國際法 —— 《香港基本法》和《公民權利及政治權利國際公約》制定的一項具有約束力的條約。
-
-Beijing’s imposition of this legislation represents a clear breach of its treaty obligations to the citizens of Hong Kong, will severely undermine the rights of 7 million Hong Kong citizens, and poses a grave challenge to the international community.
-
-北京強制實施這項立法，明顯違反了對香港公民的條約義務，將嚴重損害700萬香港公民的權利，也是對國際社會的嚴重挑戰。
-
-These actions cannot go unanswered. No country should be able to violate international norms and agreements with impunity.
-
-如此做法決不容姑息！沒有任何一個國家可以違背國際準則和條約並逃脫追責。
-
-Parliaments, governments, the G7, international institutions, and countless others have spoken out against the unilateral imposition of the National Security Law. The leadership of the People’s Republic of China has not heeded their warnings. The time has now come for consequences to be made clear.
-
-各國議會、政府、七國集團、國際機構及無數其他組織團體都已公開反對（中共）單方面實施《國家安全法》。中華人民共和國國家領導人對他們的警告卻置若罔聞，現在到了讓其認清後果的時候了。
-
-We therefore call upon governments:
-
-因此，我們呼籲各國的政府：
-
-**To review and to recalibrate relations with the People’s Republic of China, in coordination with allies and partners, bringing forward legislation to accelerate efforts already underway to audit and reduce strategic dependency on China, at both national and international levels.**
-
-**重新審****視****並調整與中華人民共和國的關係，與****同****盟國****和合作方通力協作，在國家及國際層面提** **案****立法，****以加速** **既已進行****的審****查及****減少對中國的戰略依賴的****進程****；**
-
-**To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.**
-
-**通過一個由民主國家聯盟組織的國際****“****方舟** **“****計畫，為面臨迫害危險的香港公民提供保護。**
-
-**To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.**
-
-**要求聯合國秘書長指定一名聯合國特使，****專門負責監測和報告香港的情況****。**
-
-The international community cannot stand idly by while the rights of Hong Kong citizens are trampled upon and international obligations violated. The world must unite in defence of Hong Kong for the sake of the people of that great city, and for the maintenance of global peace, democratic values, and rule of law everywhere.
-
-國際社會決不能袖手旁觀，任由香港公民的權利被踐踏，國際義務被違反。為了這個偉大城市的人民，為了維護全球和平、民主價值和各地的法治，全世界必須團結起來捍衛香港。
-
-**Actions**
-
-**行動**倡議
-
-The Inter-Parliamentary Alliance on China is calling for democratic countries to formulate a principled and coordinated response comprising of:
-
-各對華政策跨國議會聯盟呼籲民主國家共同制定一個原則來協作對策，包括：
-
-- **To bring forward legislation accelerating efforts to audit and reduce strategic dependency on China.** This should form part of a broader effort to review and recalibrate relations with the People’s Republic of China, at both a national and international level.
-- 提案立法，以加速審查及減少對中國的戰略依賴的進程。 此舉應成為在國家和國際層面更廣泛意義上為審查和重新調整與中華人民共和國關係努力的一部分。
-- **To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.** This would offer a path for Hong Kong citizens seeking an escape route as a last resort.
-- 通過一個由民主國家聯盟組織的國際 “方舟”計畫，為面臨迫害危險的香港公民提供保護。 這將為尋求逃亡的香港公民提供最後一條出路。
-- **To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.** It is crucial that the People’s Republic of China is held accountable for its international treaty obligations to the people of Hong Kong.
-- 要求聯合國秘書長指定一名聯合國特使來監測和報告香港的情況。 至關重要的是，中華人民共和國必須對關係香港人民的國際公約的履行義務負責。
+- 一座位於湖南省長江支流上，擁有2000多年曆史的古城，鳳凰古城，也難逃厄運，近日遭到洪水襲擊。該城居民在網上發布的視頻顯示，滿載泥沙的洪水沖入並淹滿了街道，至少有20人被困。在城鎮較現代的地區，可以看到車輛和行人艱難的在黃褐色的水流中前行。人們在視頻中清楚的看到大雨傾盆而下和不斷上升的水位，還有滿是泥濘的行人，被沖毀的店鋪，以及到處漂浮的雜物。
 
 
-出處： [IPAC](https://www.ipac.global/campaigns/hong-kong/)
+**重慶貴州**
 
-*翻譯：【**Melody**太陽的旋律】* *校對：【一花一世界】【**GM31**】*
+- 氣象局發布的天氣預報顯示，在未來幾天，湖南省多個地區仍將有持續的中度至強度的降雨。人們看到，氣象局已經連續30天發布全國性大雨警報，覆蓋地區包括重慶，貴州等地，和幾乎整個長江流域。與此同時，黃河流域也進入了汛期，位於黃河上游的小浪底水庫於6月29日開始以每秒5,520立方米的速度洩洪。
 
-*戰友之家玫瑰園小隊出品*
 
-1
+**湖北宜昌**
+
+- 據報導，三峽大壩在6月28日以每秒34,700立方米的水量洩洪後，加重了下游許多城市的洪災。而位於大壩下方僅40公里的湖北省宜昌市在6月27日發生了大水災。民眾強烈質疑當局利用三峽大壩的溢洪通道提前秘密洩洪。
+
+
+**浙江**
+
+- 另外，浙江省水利廳也發出預警，稱有20個大中型水庫的水位超過了警戒線。
+
+
+**四川盆地到黃淮江淮**
+
+- 氣象預報顯示，暴雨還會持續至少10天，降雨範圍覆蓋了從四川盆地到黃淮，江淮，江漢和江南北部地區。
+
+
+[原文鏈接](https://www.taiwannews.com.tw/en/news/3956817#:~:text=Fenghuang%20Ancient%20Town%20%28%E9%B3%B3%E5%87%B0%E5%8F%A4%E5%9F%8E,extensive%20flooding%20in%20recent%20days.)
+
+翻譯報導：Hanstyle 
+校對整理：瑞安平
+
+0
