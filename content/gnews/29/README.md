@@ -1,27 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亞也反對《國家安全法》
-`2020-07-02 03:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251846/)
+## IPAC發表關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明
+`2020-07-02 03:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/251863/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02024728/1-2.png)照片来源 : The Australian
-根據澳大利亞外交部長佩恩（Marise Payne）於7月1日發出的聲明，澳大利亞也站出來和國際社會一起向北京對香港實施《國家安全法》表達強烈關注，並表示這已經破壞了《中英聯合聲明》和香港《基本法》下所給予、保障香港的「一國兩制」架構以及香港自治原則。
+**Statement on the Imposition of *National Security* Legislation upon Hong Kong by the National People’s Congress of the People’s Republic of China**
 
-因為《國家安全法》不僅嚴重影響香港的司法獨立，也會限制香港人原本就享有的權利以及自由，而香港這個城市的成功發展的根源就是獨立不受干擾的司法以及人民的權力以及自由。
+## **關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明**
 
-聲明指出，推行《國家安全法》的過程中，完全沒有任何香港人民、立法機關、司法機關的參與。面對這絕對會影響香港未來發展的《國家安全法》，她相信香港人民會做出更多積極的評估以及行動。同時，全世界也會繼續關注香港後續的發展。
+We, members of the Inter-Parliamentary Alliance on China, condemn the imposition of so-called *National Security* legislation on Hong Kong by the Chinese National People’s Congress. This new law is a comprehensive assault on the city’s fundamental freedoms, rule of law, and autonomy.
 
-這篇聲明更提及澳大利亞對香港的成功做出許多貢獻，香港是澳大利亞在亞洲最大的商業機構所在地，全球最多的外籍人士都是來自香港。
-澳大利亞也持續地認知到香港人民一直以來為澳大利亞做出的巨大貢獻。雙方人民與人民建立的系絆之深遠可以追朔到200年之前，並且只會愈益穩固。聲明最後提到澳大利亞一直以來都是香港人最喜歡到訪的國家，澳大利亞會盡一切努力確保這種狀態。
+我們，作為對華政策跨國議會聯盟成員，強烈譴責中國人民代表大會把所謂的國安法強加於香港。這個新法律是對這個城市現有的基本自由，法治和自治一次全面顛覆
 
-更重要的是澳大利亞會繼續與國際社會合作，一起來全面了解《國家安全法》將會涉及的範圍以及衝擊的程度。
+Hong Kong’s high degree of autonomy and way of life are guaranteed by the Sino-British Joint Declaration – a binding treaty under international law – the Hong Kong Basic Law and the International Covenant on Civil and Political Rights.
 
-評：澳大利亞雖然在聲明裡面並沒有強硬的措辭以及明確將要採取的行動。但是在第一時間7月1日當天就發出聲明，強烈地傳達出澳大利亞政府的反對立場。並且，聲明裡面提到要和國際社會一起關注香港的發展，以及關注《國家安全法》所涉及的部分，都是在傳達西方國家團隊的站隊集結已經漸漸形成，CCP 若持續一路作死，西方國家建立的團隊的一連串的反制行動絕對會讓CCP了解正義的強大力量。
+《中英聯合聲明》保證了香港的高度自治和生活方式。《中英聯合聲明》是依據國際法 —— 《香港基本法》和《公民權利及政治權利國際公約》制定的一項具有約束力的條約。
 
-[原文链接](https://www.foreignminister.gov.au/minister/marise-payne/media-release/statement-hong-kong-0)
+Beijing’s imposition of this legislation represents a clear breach of its treaty obligations to the citizens of Hong Kong, will severely undermine the rights of 7 million Hong Kong citizens, and poses a grave challenge to the international community.
 
-翻譯報道：William
+北京強制實施這項立法，明顯違反了對香港公民的條約義務，將嚴重損害700萬香港公民的權利，也是對國際社會的嚴重挑戰。
 
-校对整理：白夜
+These actions cannot go unanswered. No country should be able to violate international norms and agreements with impunity.
 
-0
+如此做法決不容姑息！沒有任何一個國家可以違背國際準則和條約並逃脫追責。
+
+Parliaments, governments, the G7, international institutions, and countless others have spoken out against the unilateral imposition of the National Security Law. The leadership of the People’s Republic of China has not heeded their warnings. The time has now come for consequences to be made clear.
+
+各國議會、政府、七國集團、國際機構及無數其他組織團體都已公開反對（中共）單方面實施《國家安全法》。中華人民共和國國家領導人對他們的警告卻置若罔聞，現在到了讓其認清後果的時候了。
+
+We therefore call upon governments:
+
+因此，我們呼籲各國的政府：
+
+**To review and to recalibrate relations with the People’s Republic of China, in coordination with allies and partners, bringing forward legislation to accelerate efforts already underway to audit and reduce strategic dependency on China, at both national and international levels.**
+
+**重新審****視****並調整與中華人民共和國的關係，與****同****盟國****和合作方通力協作，在國家及國際層面提** **案****立法，****以加速** **既已進行****的審****查及****減少對中國的戰略依賴的****進程****；**
+
+**To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.**
+
+**通過一個由民主國家聯盟組織的國際****“****方舟** **“****計畫，為面臨迫害危險的香港公民提供保護。**
+
+**To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.**
+
+**要求聯合國秘書長指定一名聯合國特使，****專門負責監測和報告香港的情況****。**
+
+The international community cannot stand idly by while the rights of Hong Kong citizens are trampled upon and international obligations violated. The world must unite in defence of Hong Kong for the sake of the people of that great city, and for the maintenance of global peace, democratic values, and rule of law everywhere.
+
+國際社會決不能袖手旁觀，任由香港公民的權利被踐踏，國際義務被違反。為了這個偉大城市的人民，為了維護全球和平、民主價值和各地的法治，全世界必須團結起來捍衛香港。
+
+**Actions**
+
+**行動**倡議
+
+The Inter-Parliamentary Alliance on China is calling for democratic countries to formulate a principled and coordinated response comprising of:
+
+各對華政策跨國議會聯盟呼籲民主國家共同制定一個原則來協作對策，包括：
+
+- **To bring forward legislation accelerating efforts to audit and reduce strategic dependency on China.** This should form part of a broader effort to review and recalibrate relations with the People’s Republic of China, at both a national and international level.
+- 提案立法，以加速審查及減少對中國的戰略依賴的進程。 此舉應成為在國家和國際層面更廣泛意義上為審查和重新調整與中華人民共和國關係努力的一部分。
+- **To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.** This would offer a path for Hong Kong citizens seeking an escape route as a last resort.
+- 通過一個由民主國家聯盟組織的國際 “方舟”計畫，為面臨迫害危險的香港公民提供保護。 這將為尋求逃亡的香港公民提供最後一條出路。
+- **To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.** It is crucial that the People’s Republic of China is held accountable for its international treaty obligations to the people of Hong Kong.
+- 要求聯合國秘書長指定一名聯合國特使來監測和報告香港的情況。 至關重要的是，中華人民共和國必須對關係香港人民的國際公約的履行義務負責。
+
+
+出處： [IPAC](https://www.ipac.global/campaigns/hong-kong/)
+
+*翻譯：【**Melody**太陽的旋律】* *校對：【一花一世界】【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
+
+1
