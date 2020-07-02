@@ -1,29 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 關於中國對美國官員實施簽證限制的威脅
-`2020-07-02 01:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/251714/)
+## 台灣設專門機構幫助抗議人士逃離香港
+`2020-07-02 03:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251831/)
 
-On China’s Threats to Impose Visa Restrictions on U.S. Officials
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02030620/Picture-1-9.png)圖片來源：路透社
+路透社（Reuters）新聞網站7月1日報導，在中共強推的《新國安法》給香港之際，台灣於當日專門設立了“台港服務交流辦公室”，以協助港人離港赴台。台灣政府一位部長表示，台灣希望抓住這次機會，吸引香港的專業人士和資本流入。
 
-MICHAEL R. POMPEO, SECRETARY OF STATE
+存在巨大爭議的中共《新國安法》，同樣也在7月1日生效。該法主要針對中共所謂分裂和顛覆國家政權、恐怖主義和與外國勢力勾結等罪行，最高可處以終身監禁的刑罰。這預示著香港這座曾經的亞洲金融中心，將步入一個更加威權專制的時代。
 
-JUNE 29, 2020
+在台灣，《新國安法》受到了廣泛譴責。相關人權組織表示，自去年香港民主抗議活動以來，已有約200人逃至台灣。
 
-## **關於中國對美國官員實施簽證限制的威脅**
+台港服務交流辦公室設於台北市中心。對於選擇在中共接管香港的敏感日期建立這一機構，台灣大陸事務委員會負責人陳明同表示，這表明了台灣援助香港人的決心，也是政府進一步支持香港民主與自由的重要里程碑。
 
-國務卿 邁克爾·R·龐培奧
+與香港示威群眾一樣，台灣人民也對中共也有著根深蒂固的抵觸情緒。而中共也從未放棄過武力攻台的選項。今年五月，蔡英文總統承諾將採取措施，幫助因中共高壓統治而選擇逃離的港人赴台，成為首個正式就此表態的政府領導人。
 
-發佈日期：2020年6月29日
+陳明同警告說，中共在利用新國安法針對外國公民，即使你不是香港永久居民，也適用此法。 “這不光是針對香港居民的法律，也是中共以天朝上國自居，向全世界頒布的法令。”
 
-The Chinese Communist Party’s crackdown on Hong Kong prompted the United States to retool its relationship with the territory. The Chinese Communist Party’s threats to retaliate by restricting visas for U.S. citizens exposes once again how Beijing refuses to take responsibility for its own choices. If China wants to regain the trust of Hong Kongers and the international community, it should honor the promises it made to the Hong Kong people and to the United Kingdom in the U.N.-registered 1984 Sino-British Joint Declaration.
+這項惡法的實施為台灣吸引香港人才和資本流入創造了機會，但台灣當局表示將嚴格審查是否有中共資金混入。
 
-中國共產黨對香港的鎮壓促使美國重新調整了與香港的關係。 中國共產黨通過以限制對美國公民的簽證為報復手段的威脅再次暴露了北京是如何對自己的選擇拒絕承擔責任的。 如果中國想重新獲得香港人和國際社會的信任，就應該兌現它在聯合國登記的《1984年中英聯合聲明》中對香港人和英國的承諾。
+陳明同歡迎各大跨國公司將總部搬到台灣，並表示台灣正在審視其相關法規。陳拒絕透露預期人數和實際申請人數，其副手邱翠成表示，新的辦公室將有約24名員工，20條查詢熱線，官員們目前已經接到了“許多電話”。
 
-出處：[https://www.state.gov/on-chinas-threats-to-impose-visa-restrictions-on-u-s-officials/](https://www.state.gov/on-chinas-threats-to-impose-visa-restrictions-on-u-s-officials/)
+中共否認扼殺香港的自由，並譴責台灣幫助港人赴台的計劃。中共國務院台灣事務辦公室在周二表示，新國安法將“切斷台灣干預香港的黑手”。
 
-*翻譯：【**RD16**】*
+**評** ：
 
-*戰友之家玫瑰園小隊出品*
+從中共承諾的“港人治港”，到現實中的“港人逃港”，香港民眾所經歷的血淚、痛苦和恐怖，反應了中共欺詐的本性和殘暴的統治。 《新國安法》不僅僅是血腥鎮壓香港的法律，其中第三十八條還規定：“不具有香港特別行政區永久性居民身份的人在香港特別行政區以外針對香港特別行政區實施本法規定的犯罪，適用本法。” 意思是，在全球任何地方，只要違反了這一法律，在中共看來都是犯罪。香港目前與英國、澳洲、加拿大、德國、韓國、新西蘭等18個國家前有引渡協議，對這些國家的居民而言，只要違反了《新國安法》，中共在他們前往香港時就可以抓捕，甚至還可以向所在國直接引渡。中共試圖開始扮演邪惡世界警察的角色，要在全球徹底挑戰和吞噬自由民族的價值觀和法律體系。自由世界的人民和政府，必須聯合起來，消滅中共！如果中共得逞，對世界就是萬劫不復的深淵！
+
+[原文鏈接](https://www.reuters.com/article/us-hongkong-protests-taiwan/taiwan-opens-office-to-help-people-fleeing-hong-kong-after-china-passes-new-security-law-idUSKBN242445)
+
+翻譯報導：jeremiah
+
+校對整理：文投
 
 0

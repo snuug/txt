@@ -1,57 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國警覺中共世界霸主夢
-`2020-07-02 01:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251634/)
+## 白宮新聞秘書就《美國墨西哥加拿大協議》發表聲明
+`2020-07-02 02:44 GM31` [轉載自GNews](https://gnews.org/zh-hant/251757/)
 
-![IMG_0197.JPG](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02005944/1-1.png)
-紐約時代廣場一個廣告牌很吸引眼球：中國擁有美國！警告：中國正在吃著我們的午餐。這是美國安全研究所（American Security Institute）最近發起的一項活動，引發人們更多關注中國政府及其合作夥伴在美國眾多領域大規模的投資以及影響力。
+Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement
 
-福克斯新聞數字媒體資深記者Hollie McKay就ASI最近發布的一個報告，發表文章探討：中國到底真正擁有多少美國？美國正在作出怎樣的回應？
+## **新聞秘書就《美國墨西哥加拿大協議》發表聲明**
 
-**一、中共對食物和醫藥具有絕對控制權：**
+Issued on: July 1, 2020
 
-美國97%的抗生素和約80%的製藥用活性藥物成份都由中國生產，例如，通常用於泰諾的對乙醯氨基酚，全世界70％的用量都由中國製藥企業提供。
-2017年，美國從中國進口了46億美元的農產品，這也佔了全球營養補充品和合成肉中大豆和豌豆蛋白的大部分供應量。一家中國公司還收購了世界最大的豬肉加工和生豬生產商史密斯菲爾德（Smithfield）。
+2020年7月1日簽發
 
-CCP病毒最初爆發時，美國醫療物資和個人防護設施的嚴重短缺引起了社會恐慌，同時由於北京方面威脅扣留所需物品，幾乎使得一些美國議員向中共妥協。另一方面，冠狀病毒大流行揭示了中共國對美國乃至世界供應鏈的影響力。一些分析人士認為：中國一直持續緩慢地在購買著美國，如今在許多行業中主導著全球供應鏈，病毒大流行只是彰顯了其在救生藥物等相關方面，ASI常務董事威爾•科金（Will Coggin）呼籲：「當務之急是恢復我們關鍵的供應鏈，使我們能夠變得自我安全而不是依靠中國政府。」
+Today, the United States-Mexico-Canada Agreement (USMCA) will go into effect. Thanks to the bold leadership of President Trump, the agreement will mean stronger economic growth, more jobs for American workers, and fairer trade for our country. President Trump has delivered for American manufacturers, farmers, businesses, and workers. The agreement will drive job creation and includes the strongest, most advanced, and comprehensive set of labor provisions of any United States trade agreement. American farmers will have access to fairer markets in Canada and Mexico, opening up more opportunities to export their goods. USMCA will strengthen American manufacturing, including incentivizing investment in high paying auto manufacturing jobs here in the United States. Just as promised, President Trump is replacing the disastrous North American Free Trade Agreement, which drove American jobs overseas for years. USMCA is a fair deal for American workers and finally brings our trade relationship with Canada and Mexico into the 21st century.
 
-**二、全方位進軍美國市場，中共統治世界之心昭然若揭。**
+今天《美國墨西哥加拿大協議》將會生效。感謝川普總統的堅定領導，此協議意味著更強勁的經濟增長，為美國工人提供更多工作崗位，以及對我國有更公平的貿易交易。川普總統對美國的製造商、農民、企業及工人提供了援助。此協定將加速推動創造就業機會，並包括任何美國貿易協定中最強大、最先進和最全面的勞工規定條款。美國農民將有機會進入加拿大和墨西哥的更公平市場，為他們的出口商品開闢更多機會。《美國墨西哥加拿大協議》也會加強美國製造業，包括鼓勵對在美國本土汽車製造業高薪職位的投資。正如承諾那樣，川普總統正在取代多年來讓美國就業機會流失海外的災難性的《北美自由貿易協定》。《美國墨西哥加拿大協議》是一項對美國工人公平的協議，最終會把我們跟加拿大和墨西哥的貿易關係引領到21世紀。
 
-ASI的報告援引無黨派經濟智囊機構鮑爾森研究所的話，強調「中國公司和投資者在近2,400家美國公司中擁有多數控制權。」涉及的行業包括能源、採礦、汽車技術、航空航天技術、食品、醫療保健、娛樂、傳媒等[注]。
+出處：[Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-united-states-mexico-canada-agreement/)
 
-近年來，中國的投資規模和範圍也引起了美國國土安全的警覺，尤其是對稀土資源的壟斷，不僅影響到智能手機和電動汽車等高科技產品領域，而且會威脅美國前線武器生產，例如每架F-35戰鬥機需要920磅稀土礦物。報告稱：「 2017年，美國的稀土礦產為零。而中國占居著全世界80％以上的供應量。」
+*翻譯：【V%】 校對：【GM31】*
 
-**三、以宣傳起家的CCP，偷盜技術，控制媒體，蔑視人權。**
+*戰友之家玫瑰園小隊出品*
 
-報告數據顯示：中國公司已經收購了美國多廳影院（AMC Entertainment），傳奇娛樂（Legendary Entertainment）和其他媒體公司，因而控制了8,000多個美國影院屏幕和其他媒體平台。CCP深知宣傳的重要性，這樣一來，一方面有效防止不利於中共形象的創意產品和大眾媒體作品的出現，另一方面也有利於向美國和西方世界灌輸其扭曲的價值觀，還可以充分體現中共的「軟實力」。
 
-幾十年來，中共政府盜竊知識產權一直是公開的秘密，進而發展到資助美國大學研究人員。他們利用偷盜來的技術，轉而掌控了智能手機和其他家居用品的加工製造，使得美國和世界其他國家嚴重依賴於中國。現在中共正企圖在美國和其他西方國家建立5G網路，可以更便利為中共提供個人信息和敏感數據。
-
-《衛報》（The Guardian）報道：「中國最近通過的一項法律，要求商業公司必須與中共間諜機構共享數據。」 《人權觀察》（Human Rights Watch）則認為「中國共產黨恢復了其在商業上的絕對權威。中共的存在是對人權的生存威脅」
-
-**四、CCP利用獨裁政權，恣意挑戰法律和市場規則，培養斂財集團。**
-
-儘管美國許可中國購買美國公司，但中共不允許美國公司在中國土地上以相同的方式經營。報告指出：「在中國共產黨專政下，私營公司被迫屈從於政府的意願。」在中國土地上的美國企業早就安了一顆中國心。
-
-內華達州房地產公司Metroplex總裁保羅•穆拉德（Paul Murad）的感受很能代表美國企業主的心聲：中國公司的老闆們，頭腦里根植了中共的世界支配目標，他們得以在美國強勁發展，是因為他們可以獲得源源不斷的政府貸款。 這對美國本土的商務談判是極為嚴峻的挑戰。
-
-國際事務專家，世界經濟論壇的撰稿人米洛斯•馬里奇奇（Milos Maricic）表示：中國擁有近1500億美元的美國公司，這一公開的數據看起來在美國經濟總量佔比不算特別大，但是由於中共會採用極其複雜的所有權結構，以至於實際的數字難以估算。
-
-**五、以美國為首的西方世界開始覺醒，立法致力恢復政治和經濟秩序**
-
-川普總統領導的美國是第一個認識到CCP這種不間斷的欺騙，世界其他地方對中國的野心有了更清晰的認識。
-
-5月下旬，美參議院一致通過了兩黨制的《外國公司控股責任法》，外國公司必須嚴格遵守美國的證券法，並強調：如果外國公司作為發行人指定了不受董事會檢查的外國會計師事務所，導致上市公司會計監督委員會（PCAOB）無法審計特定報告，則發行人必須做出相應證明。一旦眾議院通過了該法案，將迫使一些外國公司退出美國證券交易，其中中國公司無疑首當其衝。
-
-據說有200多家，總市值接近2萬億美元的外國公司，他們的股票可以在美國證券市場交易，但是美國投資者對公司內部情況的了解非常有限――其中大部分是中國公司。如果該法案獲得通過，他們將像所有在公開市場上籌集資金的美國公司一樣，有義務接受PCAOB的審計。
-
-[注] 被中共收購的部分知名企業：AMC娛樂（娛樂），祥雲風能公司（CWEI，能源），完整基因組學（GNOM，醫療保健），第一國際石油（能源），通用家電（G.E.Appliances,技術），IBM — P.C.部門（技術），傳奇娛樂集團（娛樂），摩托羅拉移動（技術），耐世特汽車（Nexteer Automotive汽車），拳頭遊戲（Riot Games,娛樂），史密斯菲爾德食品（Smithfield,食品），Teledyne Continental Motors和Mattituck Services（航空航天），特雷克斯公司（Terex Corp.,機械）THC煤礦（TripleHCoal,採礦），卓爵醫療系統（Zonare Medical Systems，醫療保健）
-
-評：拿著中國老百姓辛勤勞動創造的財富，處心積慮地構築著世界霸主夢。專制獨裁到最後一定是妄自尊大，目空一切。洞觀中共一系列戰影視作品、戰狼外交政策，對內肆無忌憚愚弄百姓，對外通過藍、金、黃手段形成各種勢力企圖讓全世界臣服。然而邪惡到達一定程度，天人共滅。爆料革命喚醒世界正義的力量，讓世界回歸美好，指日可
-
-[原文链接](https://www.foxnews.com/world/how-much-of-the-united-states-does-china-really-own)
-
-翻譯報道：白頭翁
 
 0

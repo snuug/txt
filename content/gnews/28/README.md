@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參眾兩院推動議案，賦予香港人民優先避難權
-`2020-07-01 22:18 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/251556/)
+## 白宮新聞秘書就最高法院對宗教學校裁決發表聲明
+`2020-07-02 02:03 GM31` [轉載自GNews](https://gnews.org/zh-hant/251741/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/01220437/%E7%BE%8E%E5%8F%82%E4%BC%97%E4%B8%A4%E9%99%A2%E6%8E%A8%E5%8A%A8%E8%AE%AE%E6%A1%88%EF%BC%8C%E8%B5%8B%E4%BA%88%E9%A6%99%E6%B8%AF%E4%BA%BA%E6%B0%91%E4%BC%98%E5%85%88%E9%81%BF%E9%9A%BE%E6%9D%83.jpg)
-回應中共6月30日推出的港版國安法，以馬克-盧比奧為首的5名參議員於7月1日聯合發起“香港安全港議案”為那些捍衛香港自治地位，維護民主自由而和平抗議的香港人民提供優先避難，以免遭中共的殘酷迫害。
+**Statement from the Press Secretary Regarding Today****’s Supreme Court Ruling on Religious Schools**
 
-香港安全港議案將：
+## **新聞秘書關於今天最高法院****對****宗教學校****裁決****的聲明**
 
-- 給予港人第二優先（priority 2）避難資格： 允許因發表政治言論，參與香港和平抗議，並對可能遭受迫害有合理恐懼的香港居民在香港或第三地申請第二優先的難民身份以在美避難。此類申請不受難民人數限制。
-- 簽發此移民簽證時，不會考慮是否有移民傾向： 簡化難民申請手續。對這些參與遊行或在抗議活動中起到組織或支援角色的港人，在審批難民資格時，不會考慮移民傾向問題。
-- 對因申請避難或其他美國簽證而受北京報復性取消香港居民資格的，一律視為受到迫害。
-- 屆滿條款： 此議案在生效5年後自動終止。
+Issued on: June 30, 2020
 
+頒佈日期：2020年6月30日
 
-以約翰-柯蒂斯為首的13名眾議員在國會也為此議案背書，並積極推動立法程序。
+We celebrate today’s Supreme Court decision on religious schools, which removes one of the biggest obstacles to better educational opportunities for all children.  States may no longer hide behind rules motivated by insidious bias against Catholics, known as Blaine Amendments, to exclude religious schools from public benefits.  Laws that condition public benefits, like need-based academic scholarships, on religious status demonstrate state-sanctioned hostility to religion, pressure people and institutions to censor their religious views, and stigmatize disfavored religions.  The Trump Administration believes that school choice is a civil rights issue, and that no parent should be forced to send their child to a failing school.  President Donald J. Trump will fight for school choice, and he will always defend our first freedom: the free exercise of religion.
 
-參議員馬克-盧比奧指出，香港人民向世界展示了他們的勇氣。去年他們走上街頭，捍衛他們的自治權利，拒絕受中共集權的控制。港版國安法昨夜生效後，美國有責任幫助港人維護他們的社會，允許那些因行使中英聯合生命所賦權利而遭迫害的港人申請避難。此“香港安全港議案”將為這些不屈不撓反抗暴政的港人提供一個安全港灣。
+我們祝賀最高法院今天對宗教學校的裁決！該判決在為全體兒童提供更好的教育機會方面，掃清了其中一個最大的障礙。各州將不能再利用基於布萊恩修正案（該法案由反對天主教徒的偏見促成）而制定的法規將教會學校排除在公共利益之外。那些為公共利益設置條件的法律條文，例如按需分配的學術獎學金，表明了政府對宗教敵視的認可，迫使人民和機構審查其宗教 觀點，並污蔑不同的宗教信仰。川普政府認為，自由選擇學校是牽涉到公民權的問題，任何父母都不應被迫送孩子去不好的學校。唐納德·J·川普總統將為擇校而戰，他將永遠捍衛我們的第一自由：宗教信仰自由。
 
-參議員楊說自己一個月前已向國務卿蓬皮奧提議聯合英國和澳大利亞，對在中共集權鎮壓下的香港人民提供避難資格。現在他很自豪地推出這個兩黨共同推動的議案。
+白宮原文：[Statement from the Press Secretary Regarding Today’s Supreme Court Ruling on Religious Schools](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-todays-supreme-court-ruling-religious-schools/)
 
-參議員卡頓指出中共推出的港版國安法嚴重威脅了港人的言論自由。在中共看來是威脅國家安全的行為，在美國的價值觀裡是言論自由的民主權利。此兩黨議案將向世界明確表明，美國永遠不會背棄那些為自己的民主權利而戰的人們。
+*翻譯：【Guanghan】校對：【奔騰的長江】【JoyJoy】*
 
-[原文鏈接](https://www.dimsumdaily.hk/the-hong-kong-safe-harbor-act-proposed-by-us-senators-to-provide-refugee-status-for-hong-kongers-who-protest-against-beijing/)
+*戰友之家玫瑰園小隊出品*
 
-翻譯報導：雪山
-
-0
+1
