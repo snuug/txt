@@ -1,73 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## IPAC發表關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明
-`2020-07-02 03:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/251863/)
+## 美參議員瑪莎•布萊克本：安全校園法案針對中共而非中國人民
+`2020-07-02 06:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251983/)
 
-**Statement on the Imposition of *National Security* Legislation upon Hong Kong by the National People’s Congress of the People’s Republic of China**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02060625/Picture-1-12.png)圖片來源：https://www.ejectejecteject.com （圖為美參議員瑪莎•布萊克本） 
+瑪莎•布萊克本（Marsha Blackburn）生於1952年6月，是美國政治家和商人，曾是田納西州的初級美國參議員。她是共和黨人，曾於2003年至2019年在田納西州第七國會區美國眾議院任職，於1999年至2003年，擔任州參議員（引自維基百科）。她也是田納西州最大報紙《田納西人報》（The Tennessean）的特約專欄作家。
 
-## **關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明**
+布萊克本於6月30日在《田納西人報》撰寫文章，指出《安全校園法案》（The Secure Campus Act）之所以有爭議，並不是因為它的目標，而是因為它凸顯和解決了一個極其令人不悅的現實問題，批評家拒絕接受的現實問題。
 
-We, members of the Inter-Parliamentary Alliance on China, condemn the imposition of so-called *National Security* legislation on Hong Kong by the Chinese National People’s Congress. This new law is a comprehensive assault on the city’s fundamental freedoms, rule of law, and autonomy.
+通過這篇專欄文章，布萊克本概括了這些現實問題：那就是中共國有能力對全球政治經濟進行把控，而且中共在美國使用陰謀對美國進行分裂和征服。
 
-我們，作為對華政策跨國議會聯盟成員，強烈譴責中國人民代表大會把所謂的國安法強加於香港。這個新法律是對這個城市現有的基本自由，法治和自治一次全面顛覆
+**美國逐漸覺醒，真相越辨越明**
 
-Hong Kong’s high degree of autonomy and way of life are guaranteed by the Sino-British Joint Declaration – a binding treaty under international law – the Hong Kong Basic Law and the International Covenant on Civil and Political Rights.
+布萊克本指出，中共病毒的嚴重大流行過程中，中共國凸現了對全球政治經濟的掌控。中共的表裡不一的表現讓美國不再盲目，使得華盛頓對於中共國侵略的長期擔憂成為共識。 “供應鏈安全”和“經濟間諜”等詞彙忽然出現在人們防疫隔離期間的日常對話中。但即使在美國人民接受了這一新的可怕現實的時候，反對者仍然試圖用排外有錯的政治正確麻痺人們對中共的擔憂。布萊克本認為，這些反對者不承認：被默許的、無所不能的中國共產黨，幾十年來一直在利用對外開放的幌子來掩蓋自己的極權野心。
 
-《中英聯合聲明》保證了香港的高度自治和生活方式。《中英聯合聲明》是依據國際法 —— 《香港基本法》和《公民權利及政治權利國際公約》制定的一項具有約束力的條約。
+布萊克本覺得，兩面三刀的欺騙浸入在中共和美國之間的每一次互動中，包括學術殿堂。目前，超過35萬名中國學生在美國高校就讀。而故事的另一面，中共軍隊近十四年來已經資助了2500多名軍事科學家和工程師出國留學，這些效力於的中共的留學生中有人從事過間諜活動或竊取知識財產。
 
-Beijing’s imposition of this legislation represents a clear breach of its treaty obligations to the citizens of Hong Kong, will severely undermine the rights of 7 million Hong Kong citizens, and poses a grave challenge to the international community.
+**謹慎完善立法，切割中共政權**
 
-北京強制實施這項立法，明顯違反了對香港公民的條約義務，將嚴重損害700萬香港公民的權利，也是對國際社會的嚴重挑戰。
+布萊克本指出，作為司法部“中共國倡議”的調查證實，中共利用其贊助計劃和美國寬鬆的學術氛圍來竊取研發中的技術。美國聯邦調查局目前正在調查1000多起與中國經濟間諜活動有關的案件；其中美國國家衛生研究院（NIH）180起。每個月，司法部都會公佈中國學者濫用研究職位和竊取知識財產的指控。
 
-These actions cannot go unanswered. No country should be able to violate international norms and agreements with impunity.
+布萊克本稱，《安全校園法案》為遏制中共干預美國高校的威脅提供了一個有針對性的方法。一旦通過，該法案將禁止中國公民使用學生(F)或研究(J)簽證在美國完成STEM（科學，技術，工程，數學）領域的研究生或碩士學位。但該法案對香港、台灣學生予以豁免，對受中共迫害的學生和沒受過中共直接控制的本科生亦予以豁免。
 
-如此做法決不容姑息！沒有任何一個國家可以違背國際準則和條約並逃脫追責。
+該法案還將禁止接受美國聯邦資助的科技人才參與中共國暗箱操作的外國人才招聘計劃，要求接受聯邦資助的機構發誓他們不會有意僱用中共外國人才招聘計劃的參與者。
 
-Parliaments, governments, the G7, international institutions, and countless others have spoken out against the unilateral imposition of the National Security Law. The leadership of the People’s Republic of China has not heeded their warnings. The time has now come for consequences to be made clear.
+**積極推動立法，力避中共圖謀**
 
-各國議會、政府、七國集團、國際機構及無數其他組織團體都已公開反對（中共）單方面實施《國家安全法》。中華人民共和國國家領導人對他們的警告卻置若罔聞，現在到了讓其認清後果的時候了。
+布萊克本認為，美國政府當下處於歷史上最可能兩極分化的時代–而中共的危險勢力正在利用這一點。
 
-We therefore call upon governments:
+布萊克本稱，好好談話的時代已經結束，誇張的言論可能統治著輿論的電波，但它在國會大廳或思想領袖的頭腦中是沒有地位的。布萊克本認為，全球對待中共的態度這件事情上，美國具有相當大的影響力，但僅僅這種影響力不會轉變為美國國內的安全。
 
-因此，我們呼籲各國的政府：
+布萊克本認為，拒絕接受或誇大其辭都不能解決問題。美國唯一的辦法是積極主動針對中共立法，保護美國各種機構的完整性，防止中共分裂和征服美國的企圖。
 
-**To review and to recalibrate relations with the People’s Republic of China, in coordination with allies and partners, bringing forward legislation to accelerate efforts already underway to audit and reduce strategic dependency on China, at both national and international levels.**
+評：文章體現了中共的三大邪招。一是利用自己篡奪的獨裁地位代表十四億中國人。雖然《安全校園法案》用心良苦，但很多美國人還分不清中共與中國，才會認為該法案涉嫌排外。第二大邪招是表裡不一，對內洗腦騸動反美情緒，對外示弱盜取知識產權。因此一些美國人條件反射式的否認中共能威脅美國，但實際中共正在通過各種藍金黃手段，進行瘋狂的偷騙搶；第三大邪招是利用自由民主世界的寬鬆環境，挑起矛盾，攪亂民意。美國內部政治兩極分化，多少與此有關。
 
-**重新審****視****並調整與中華人民共和國的關係，與****同****盟國****和合作方通力協作，在國家及國際層面提** **案****立法，****以加速** **既已進行****的審****查及****減少對中國的戰略依賴的****進程****；**
+好在有爆料革命和川普總統，美國正在覺醒，但願美國人快點認清真相，形成滅共民意。
 
-**To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.**
+[原文鏈接](https://www.tennessean.com/story/opinion/2020/06/30/marsha-blackburn-secure-campus-act-chinese-communist-party/3284890001/)
 
-**通過一個由民主國家聯盟組織的國際****“****方舟** **“****計畫，為面臨迫害危險的香港公民提供保護。**
+翻譯報導：匿名
+校對整理：意翎
 
-**To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.**
-
-**要求聯合國秘書長指定一名聯合國特使，****專門負責監測和報告香港的情況****。**
-
-The international community cannot stand idly by while the rights of Hong Kong citizens are trampled upon and international obligations violated. The world must unite in defence of Hong Kong for the sake of the people of that great city, and for the maintenance of global peace, democratic values, and rule of law everywhere.
-
-國際社會決不能袖手旁觀，任由香港公民的權利被踐踏，國際義務被違反。為了這個偉大城市的人民，為了維護全球和平、民主價值和各地的法治，全世界必須團結起來捍衛香港。
-
-**Actions**
-
-**行動**倡議
-
-The Inter-Parliamentary Alliance on China is calling for democratic countries to formulate a principled and coordinated response comprising of:
-
-各對華政策跨國議會聯盟呼籲民主國家共同制定一個原則來協作對策，包括：
-
-- **To bring forward legislation accelerating efforts to audit and reduce strategic dependency on China.** This should form part of a broader effort to review and recalibrate relations with the People’s Republic of China, at both a national and international level.
-- 提案立法，以加速審查及減少對中國的戰略依賴的進程。 此舉應成為在國家和國際層面更廣泛意義上為審查和重新調整與中華人民共和國關係努力的一部分。
-- **To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.** This would offer a path for Hong Kong citizens seeking an escape route as a last resort.
-- 通過一個由民主國家聯盟組織的國際 “方舟”計畫，為面臨迫害危險的香港公民提供保護。 這將為尋求逃亡的香港公民提供最後一條出路。
-- **To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.** It is crucial that the People’s Republic of China is held accountable for its international treaty obligations to the people of Hong Kong.
-- 要求聯合國秘書長指定一名聯合國特使來監測和報告香港的情況。 至關重要的是，中華人民共和國必須對關係香港人民的國際公約的履行義務負責。
-
-
-出處： [IPAC](https://www.ipac.global/campaigns/hong-kong/)
-
-*翻譯：【**Melody**太陽的旋律】* *校對：【一花一世界】【**GM31**】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0

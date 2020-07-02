@@ -1,17 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP數字貨幣加速關閉“隱形監獄”的大門
-`2020-07-01 20:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/251480/)
+## 關於中國對美國官員實施簽證限制的威脅
+`2020-07-02 01:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/251714/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽（文章僅代表作者個人觀點）
-[!\[數字貨幣：中國為何高調爭取全球領先者角色- BBC News 中文\](https://ichef.bbci.co.uk/news/1024/cpsprodpb/17347/production/_109474059_gettyimages-1181644071.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-50247299&amp;psig=AOvVaw2HpakCr5D7QnTTQkB3S--e&amp;ust=1593733589978000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCODcybaereoCFQAAAAAdAAAAABAD)圖片來源：BBC 
-4月份，中共國在深圳、蘇州、成都和雄安正式啟動數字貨幣試點，幾個城市的部分人員收到以央行推出的“數字人民幣”(DCEP)形式的工資並用DCEP進行消費。
+On China’s Threats to Impose Visa Restrictions on U.S. Officials
 
-DCEP的推出暴露了CCP的邪惡動機，首先是防控資本外流，主要阻止因中美貿易戰以及香港自貿區地位取消而加速的資本外逃。 DCEP由中共國人民銀行集中管理，可以實時監控每筆交易，可以實時對交易進行凍結。其次，防止類似如比特幣的加密貨幣擊潰CCP鑄幣權及合法性，因為目前世界上比較成功的加密貨幣具有去中心化、安全、隱秘、流動性好的特色，DCEP的推出可以防止快速將資金轉移到海外。 DCEP雖然也叫數字貨幣，但不是去中心化，而是把內核放在了中共國人民銀行，如果一旦確定除DCEP之外的所有在中共國流通的加密貨幣非法，那麼就意味著完全禁止了其他加密貨幣的交易，這與CCP加強金融體系監管方針完全契合。第三點，CCP用DCEP替代美元結算體系，避免被美國製裁及長臂管轄，並且可以在CCP圈住的“一帶一路”國家內進行交易流通，也就是建立了自己的區域貨幣體系。
+MICHAEL R. POMPEO, SECRETARY OF STATE
 
-DCEP完全成為了CCP的黑暗觸角，鎖國糧票，也是區域性擴張的武器。香港自貿區地位取消之後，當CCP用金紙包裹的“假騙偷”借助香港套走美國以及世界其他國家資金的騙局被戳破之後，會加速美元與港幣、人民幣的脫鉤，人民幣將變成冥幣，所以CCP在當下加快推動DCEP的實行，加緊了閉關鎖國的步伐。 CCP最近出台一系列制度及所謂的立法，打出了黑旋風般的組合拳，對內資金管制，繼續高樹防火牆，禁止人員出境，緊急出台港版國安法，香港變成了廣東的一個區，將可以在全宇宙抓人的鐵幕鍍上了法律的外衣。
+JUNE 29, 2020
 
-有句老話“一分錢難倒英雄漢”， 全民即將使用的DCEP難倒的可是14億同胞，這是赤裸裸的金錢綁架，通過DCEP的流通，CCP可以滲透到各個領域，可以決定企業及個人的生死，徹底結束老百姓對追求“法治、民主、自由”的希望，黑暗已經來臨。 DCEP並不是基於真正意義上的區塊鏈技術所發行的數字貨幣，而是將人民幣變成可追踪控制的電子現金，這是CCP追求皇權、奴役老百姓的產物。
+## **關於中國對美國官員實施簽證限制的威脅**
 
-1
+國務卿 邁克爾·R·龐培奧
+
+發佈日期：2020年6月29日
+
+The Chinese Communist Party’s crackdown on Hong Kong prompted the United States to retool its relationship with the territory. The Chinese Communist Party’s threats to retaliate by restricting visas for U.S. citizens exposes once again how Beijing refuses to take responsibility for its own choices. If China wants to regain the trust of Hong Kongers and the international community, it should honor the promises it made to the Hong Kong people and to the United Kingdom in the U.N.-registered 1984 Sino-British Joint Declaration.
+
+中國共產黨對香港的鎮壓促使美國重新調整了與香港的關係。 中國共產黨通過以限制對美國公民的簽證為報復手段的威脅再次暴露了北京是如何對自己的選擇拒絕承擔責任的。 如果中國想重新獲得香港人和國際社會的信任，就應該兌現它在聯合國登記的《1984年中英聯合聲明》中對香港人和英國的承諾。
+
+出處：[https://www.state.gov/on-chinas-threats-to-impose-visa-restrictions-on-u-s-officials/](https://www.state.gov/on-chinas-threats-to-impose-visa-restrictions-on-u-s-officials/)
+
+*翻譯：【**RD16**】*
+
+*戰友之家玫瑰園小隊出品*
+
+0

@@ -1,71 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “機密情報”促美俄聯手能否勒住中共核武的“野馬”
-`2020-07-02 01:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/251730/)
+## IPAC發表關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明
+`2020-07-02 03:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/251863/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02014131/image1.jpeg)圖片來源：thesun.co.uk 
-戴維·E·桑格（David E. Sanger）是《紐約時報》國家安全記者，他曾三度獲得普利策獎。 
-威廉·布羅德（William J. Broad）是美國科學記者、作家、《紐約時報》高級撰稿人。
+**Statement on the Imposition of *National Security* Legislation upon Hong Kong by the National People’s Congress of the People’s Republic of China**
 
-近日他和和威廉·布羅德（William J. Broad）在《紐約時報》聯合撰文指出，雖然中共核武規模只有美國或俄羅斯的五分之一，但卻日趨強大，川普政府稱其為新的巨大威脅。
+## **關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明**
 
-**美俄聯手對抗中共**
+We, members of the Inter-Parliamentary Alliance on China, condemn the imposition of so-called *National Security* legislation on Hong Kong by the Chinese National People’s Congress. This new law is a comprehensive assault on the city’s fundamental freedoms, rule of law, and autonomy.
 
-文章提到，美國和俄羅斯的談判代表上週在維也納舉行會晤，就延長兩國之間仍然存在的最後一項主要核武控制條約展開磋商。美方就新的核威懾能力向俄方進行了秘密通報，使俄方感到驚訝— 新的核威懾不是來自俄方，而是中共國。這些情報均未公開，甚至未在美國國會廣泛流傳。但這是促使俄方加入美國陣營所做努力的一部分，美俄合力迫使中共國加入《新削減戰略武器條約》。在此期間，川普政府將規模雖小但日趨強大的中共核武庫— 雖然規模只有美國或俄方的五分之一— 描述為美俄領導人必須共同面對的新威脅。
+我們，作為對華政策跨國議會聯盟成員，強烈譴責中國人民代表大會把所謂的國安法強加於香港。這個新法律是對這個城市現有的基本自由，法治和自治一次全面顛覆
 
-作者引用美國官員的觀點指出，川普最新任命的軍控談判代表馬歇爾·比林斯利（Marshall Billingslea）在向俄方展示機密簡報時稱，中共國的核武建設極具“衝擊性”，意圖通過“令人高度擔憂的努力”建成與美俄平分秋色的核武庫，美俄幾十年來一直保留大規模的核武庫。
+Hong Kong’s high degree of autonomy and way of life are guaranteed by the Sino-British Joint Declaration – a binding treaty under international law – the Hong Kong Basic Law and the International Covenant on Civil and Political Rights.
 
-作者指出，美國傳遞的信息很明確：川普不會續簽任何沒有中共國加入的重大軍控條約。這表明，如果川普的意願不能達成，他寧願放棄《新削減戰略武器條約》。該條約將於2021年2月份到期，就在下屆總統就職典禮幾週後。
+《中英聯合聲明》保證了香港的高度自治和生活方式。《中英聯合聲明》是依據國際法 —— 《香港基本法》和《公民權利及政治權利國際公約》制定的一項具有約束力的條約。
 
-許多外部專家質疑，中共國的核武建設—被評估為能力更大而非數量更多，是否像美國政府所堅稱的那樣迅速亦或威脅。
+Beijing’s imposition of this legislation represents a clear breach of its treaty obligations to the citizens of Hong Kong, will severely undermine the rights of 7 million Hong Kong citizens, and poses a grave challenge to the international community.
 
-作者引用另一名政府高官的觀點表示，有關中共致力於發展核武的情報仍屬機密，在世界主要擁核國家中分享此類數據並非罕見。但這樣做也意味著將這些數據交給了敵對方，這些國家正與美國發生日常的低級別衝突，包括網絡攻擊、戰機軍事探查，以及俄方對烏克蘭的侵略。此前有報導稱，俄方軍情部門曾向駐阿富汗的美國及盟國軍隊提供賄賂。這名官員還表示，美國政府將試圖解密並公佈一些有關中共國的評估報告。
+北京強制實施這項立法，明顯違反了對香港公民的條約義務，將嚴重損害700萬香港公民的權利，也是對國際社會的嚴重挑戰。
 
-**核武成為美中角逐的另一個核心**
+These actions cannot go unanswered. No country should be able to violate international norms and agreements with impunity.
 
-文章強調，核武器突然成為美中之間競爭的新領域，我們有很多理由相信，即便這三個超級大國尚未展開全面的軍備競賽，世界各地談判室裡的爭執可能很快就會開始。
+如此做法決不容姑息！沒有任何一個國家可以違背國際準則和條約並逃脫追責。
 
-俄方已公開提出將《新削減戰略武器計劃》延長五年，且該計劃不需要得到國會批准。但川普顯然在下注，他可以與普京找到共同點來一起對抗中共。
+Parliaments, governments, the G7, international institutions, and countless others have spoken out against the unilateral imposition of the National Security Law. The leadership of the People’s Republic of China has not heeded their warnings. The time has now come for consequences to be made clear.
 
-作者進一步指出，毫無疑問，中共國正在提升核武水平，或正重新審視“保持最小威懾”戰略— 這足以確保在遭到襲擊時，他們可能會打掉俄方、歐洲或美國的城市。但中共只部署了300枚遠程核武器，而《新削減戰略武器條約》允許美俄各部署1550枚。因此，專家們表示，在任何談判中，任何限制條約得到簽署之前，中共都有可能堅持將其核力量增加四倍。迄今為止，中共表示無意參與任何核武限制的談判。
+各國議會、政府、七國集團、國際機構及無數其他組織團體都已公開反對（中共）單方面實施《國家安全法》。中華人民共和國國家領導人對他們的警告卻置若罔聞，現在到了讓其認清後果的時候了。
 
-作者引用美國前國防部長羅伯特•蓋茨（Robert M. Gates）的觀點指出，“從理論上講，拉中共加入這一條約的想法是個好主意。可是現實中呢？不可能。”“中共根本沒有任何參與的動機”，時任美國中情局局長的他曾就中共國向伊朗出售核導彈一事質問過中共國。蓋茨說，如果川普繼續當前的路線，實際上他最終將邀請“中共國製造比我們認為的多得多的核武器，最終達到與美國旗鼓相當的程度。”
+We therefore call upon governments:
 
-核武器正在成為眾多問題中的一個— 包括美中貿易協議、禁止中共國學生來美，以及拒絕中共5G — 川普認為上述幾點是美中僵局的核心問題。
+因此，我們呼籲各國的政府：
 
-**歷史正在重演**
+**To review and to recalibrate relations with the People’s Republic of China, in coordination with allies and partners, bringing forward legislation to accelerate efforts already underway to audit and reduce strategic dependency on China, at both national and international levels.**
 
-作者同時指出，或許川普不太了解核歷史，但從某些方面來說，他正重演上世紀60年代的情景，當時毛澤東正在尋求發展核武器。林登·約翰遜（Lyndon B. Johnson）政府曾短暫考慮邀請蘇聯參與對中共羅布泊核試驗場的聯合打擊行動，以阻止中共加入核俱樂部。但美國最終放棄了這一想法，認為這樣做太危險了。自1964年4月解密以來，美國國務院的一項絕密研究得出結論，中共國擁核帶來的風險“並不至於使美國有理由採取涉及巨大政治代價或採取高風險軍事行動”。
+**重新審****視****並調整與中華人民共和國的關係，與****同****盟國****和合作方通力協作，在國家及國際層面提** **案****立法，****以加速** **既已進行****的審****查及****減少對中國的戰略依賴的****進程****；**
 
-56年來，美國一直與中共國的“最低威懾力”共存。
+**To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.**
 
-作者轉而提到，如今，軍控談判代表比林斯利始終堅信，中共正在羅布泊進行“新的核試驗”，隨著中共在太空和海上影響力的提升，這將再次“置美國於危險之中”。毫不奇怪，中共指責美國，稱美國對導彈防禦的關注正迫使他們發展新的核武器和反導彈力量。
+**通過一個由民主國家聯盟組織的國際****“****方舟** **“****計畫，為面臨迫害危險的香港公民提供保護。**
 
-作者從歷史的角度指出，各國對建立核武庫的興趣重新燃起，其根源可以追溯到10年前奧巴馬政府初期通過的《新削減戰略武器條約》。作為使條約在參議院獲得通過的代價，奧巴馬同意對美國核設施投入數十億美元進行升級改造，包括幾十年來一直被忽視的生產設施。當時副總統喬·拜登（Joseph R. Biden）曾表示，政府將要求參議院批准《全面禁止核試驗條約》。比爾·克林頓（Bill Clinton）曾簽署該條約，但參議院從未對該條約進行投票表決。奧巴馬和拜登也從未尋求批准，他們意識到不會獲得通過。但過去的4任總統都遵守了該條約有關禁止核試驗的規定。據比林斯拉證實，這種情況可能即將結束，川普政府已經討論過“取消簽署”該條約，並就美國是否應該重返核試驗進行了辯論。自1992年以來，美國一直未進行核試驗。但他表示，美國目前沒有必要這麼做。
+**To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.**
 
-冷戰期間，美國進行的核試驗比世界其他國家的總和還要多。經過幾十年1000多次的試驗，核彈設計者學會了許多製造極端小型化核彈的技巧以及如何賦予這些核彈巨大的破壞力。與將廣島夷為平地的原子彈相比，1954年美國首次進行的氫彈爆炸試驗，其爆炸威力是原子彈的1000倍。
+**要求聯合國秘書長指定一名聯合國特使，****專門負責監測和報告香港的情況****。**
 
-鑑於這段歷史，許多核專家現在堅稱，如果川普開始新一輪的全球核試驗，由此給美國的競爭對手帶來的幫助將超過美國獲得的益處。
+The international community cannot stand idly by while the rights of Hong Kong citizens are trampled upon and international obligations violated. The world must unite in defence of Hong Kong for the sake of the people of that great city, and for the maintenance of global peace, democratic values, and rule of law everywhere.
 
-作者引用西格弗里德·赫克（曾是新墨西哥州洛斯阿拉莫斯武器實驗室的主任，現為斯坦福大學教授）的原話指出，“我們得不償失”，中共只進行了45次測試，並歡迎恢復測試，以“增加其核武庫的複雜性或多樣化”，而“這只會再次成為美國的國家安全風險。”
+國際社會決不能袖手旁觀，任由香港公民的權利被踐踏，國際義務被違反。為了這個偉大城市的人民，為了維護全球和平、民主價值和各地的法治，全世界必須團結起來捍衛香港。
 
-**核試驗的呼聲和行動從未停止**
+**Actions**
 
-文章還指出，近年來，美國內華達州沙漠試驗場的相關活動激增，出現了新的鑽井、建築、裝備、僱員和定期的“亞臨界”試驗，這些測試略低於產生核爆炸的臨界值。
+**行動**倡議
 
-多年來，美國共和黨一直敦促為核試驗做準備，並為此投入大量資金。現正在為內華達州綜合設施準備的一台儀器耗資8億美元，這台設備將用於測試钚。
+The Inter-Parliamentary Alliance on China is calling for democratic countries to formulate a principled and coordinated response comprising of:
 
-如今，共和黨仍在敦促更多升級和加速，包括內華達州綜合設施。本月，阿肯色州共和黨參議員湯姆·科頓（Tom Cotton）提出對一項《國防授權法》修正案，該法案將增加至少1000萬美元，用於“開展與縮短核試驗所需時間有關的項目”。
+各對華政策跨國議會聯盟呼籲民主國家共同制定一個原則來協作對策，包括：
 
-眾議院的民主黨高層在最近的一封信中告訴美國五角大樓和能源部，重啟核試驗的想法是“不可理喻的”，也是“短視和危險的”。
+- **To bring forward legislation accelerating efforts to audit and reduce strategic dependency on China.** This should form part of a broader effort to review and recalibrate relations with the People’s Republic of China, at both a national and international level.
+- 提案立法，以加速審查及減少對中國的戰略依賴的進程。 此舉應成為在國家和國際層面更廣泛意義上為審查和重新調整與中華人民共和國關係努力的一部分。
+- **To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.** This would offer a path for Hong Kong citizens seeking an escape route as a last resort.
+- 通過一個由民主國家聯盟組織的國際 “方舟”計畫，為面臨迫害危險的香港公民提供保護。 這將為尋求逃亡的香港公民提供最後一條出路。
+- **To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.** It is crucial that the People’s Republic of China is held accountable for its international treaty obligations to the people of Hong Kong.
+- 要求聯合國秘書長指定一名聯合國特使來監測和報告香港的情況。 至關重要的是，中華人民共和國必須對關係香港人民的國際公約的履行義務負責。
 
-文章最後引用比林斯利的原話指出，他成功地讓俄方審視中共國當前的局勢，而不是盯著內華達沙漠。在他上週的會晤中，俄方對中共國的發展進行了大量記錄，同時還審閱了機密幻燈片。他堅稱，俄方想在今年夏天晚些時候坐下來談更多。就算中共不參加，他們也會這麼做。
 
-注：《新削減戰略武器條約》是美國和俄羅斯之間簽署的一項雙邊裁減戰略武器的條約。條約有效期為十年，並可以延期五年。該條約於2010年4月8日由美國總統奧巴馬和俄國總統梅德韋傑夫在捷克首都布拉格簽署。隨後由美國參議院和俄羅斯聯邦會議分別通過。 2011年2月5日美國國務卿希拉里·克林頓與俄羅斯外長謝爾蓋·拉夫羅夫在德國慕尼黑交換有關文件，該條約正式生效。新削減戰略武器條約替代了2009年12月5日到期的削減戰略武器條約。
+出處： [IPAC](https://www.ipac.global/campaigns/hong-kong/)
 
-[原文鏈接](https://www.nytimes.com/2020/06/30/us/politics/trump-russia-china-nuclear.html)
+*翻譯：【**Melody**太陽的旋律】* *校對：【一花一世界】【**GM31**】*
 
-翻譯報導：wenyin文因校對整理：人間四月
+*戰友之家玫瑰園小隊出品*
 
-0
+1

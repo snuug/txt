@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮新聞秘書就《美國墨西哥加拿大協議》發表聲明
-`2020-07-02 02:44 GM31` [轉載自GNews](https://gnews.org/zh-hant/251757/)
+## 班農戰情室259為正義而戰！
+`2020-07-02 05:15 GM67` [轉載自GNews](https://gnews.org/zh-hant/251921/)
 
-Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement
-
-## **新聞秘書就《美國墨西哥加拿大協議》發表聲明**
-
-Issued on: July 1, 2020
-
-2020年7月1日簽發
-
-Today, the United States-Mexico-Canada Agreement (USMCA) will go into effect. Thanks to the bold leadership of President Trump, the agreement will mean stronger economic growth, more jobs for American workers, and fairer trade for our country. President Trump has delivered for American manufacturers, farmers, businesses, and workers. The agreement will drive job creation and includes the strongest, most advanced, and comprehensive set of labor provisions of any United States trade agreement. American farmers will have access to fairer markets in Canada and Mexico, opening up more opportunities to export their goods. USMCA will strengthen American manufacturing, including incentivizing investment in high paying auto manufacturing jobs here in the United States. Just as promised, President Trump is replacing the disastrous North American Free Trade Agreement, which drove American jobs overseas for years. USMCA is a fair deal for American workers and finally brings our trade relationship with Canada and Mexico into the 21st century.
-
-今天《美國墨西哥加拿大協議》將會生效。感謝川普總統的堅定領導，此協議意味著更強勁的經濟增長，為美國工人提供更多工作崗位，以及對我國有更公平的貿易交易。川普總統對美國的製造商、農民、企業及工人提供了援助。此協定將加速推動創造就業機會，並包括任何美國貿易協定中最強大、最先進和最全面的勞工規定條款。美國農民將有機會進入加拿大和墨西哥的更公平市場，為他們的出口商品開闢更多機會。《美國墨西哥加拿大協議》也會加強美國製造業，包括鼓勵對在美國本土汽車製造業高薪職位的投資。正如承諾那樣，川普總統正在取代多年來讓美國就業機會流失海外的災難性的《北美自由貿易協定》。《美國墨西哥加拿大協議》是一項對美國工人公平的協議，最終會把我們跟加拿大和墨西哥的貿易關係引領到21世紀。
-
-出處：[Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-united-states-mexico-canada-agreement/)
-
-*翻譯：【V%】 校對：【GM31】*
-
-*戰友之家玫瑰園小隊出品*
+作者：VOG翻譯組 雪菜  編輯：VOG翻譯組 flasher
 
 
+
+一、新中國聯邦公民在中共駐華盛頓大使館前舉行集會喊話
+
+今天戰情室的主持人傑克·馬克西（Jack Maxie）來到中共駐華盛頓大使館門前，現場直播新中國聯邦公民在大使館門外的集合和喊話，這些新中國聯邦的公民基本上都是華裔美國人、或者是移居美國的華人，傑克向觀眾們展示了新中國聯邦的國旗，這些新中國聯邦的公民無懼中共的壓迫，為了民主和自由來到中共駐華盛頓大使館門外，傑克告訴所有的聽眾和觀眾，真正的敵人是中共而不是中國人。這些為了正義和自由而戰的人們，揮舞著美國國旗和新中國聯邦的國旗，高喊口號：“中共撒謊，美國人死亡（CCP lie，American die）！”、“打倒共產黨（Take down CCP）！”
+
+Raheem看著現場直播向觀眾們解釋道：這些前往中共駐華盛頓大使館門口抗議的人們，他們明知道那裡有中國共產黨的監視，他們的集會就是把自己的生命置於潛在的危險之中，他們在中國大陸和香港的家人可能受到中共的威脅，但是他們仍然無懼中共的恐怖壓迫。
+
+傑克補充說中共在大陸已經搜集了7億男性的DNA樣本等作為取證的材料，中共也會監視每一個去往海外的中國人，中國人生活在一個員警國家，甚至蓋世太保就隱藏在他們的周圍，這就是中國人的真實生活寫照。正是這些追求正義和自由的中國人，揭露出了中共邪惡的真相，中共就是21世紀的納粹政權，甚至比納粹更加危險，因為中共監視人們的一切，從通話到行為。
+
+班農先生對這些新中國聯邦公民的抗議行為表示尊敬，這些人為了美國人的生命安全、美國人的美好生活、為了自由、民主而捨生忘死。因為中共獨裁專政導致的全球疫情大流行已經重創了人們的經濟和生活，但現在終於有追求正義的人們站出來，來到中共大使館外進行抗議，這是美國人民需要學習的。如果與中共正在對香港和平抗議者的鎮壓相比較，我們可以對比出兩個不同國家體系的差異——這就是由美國領導的自由聯盟與21世紀獨裁專政納粹之間的差異！
+
+二．香港國安法進一步引發關注
+
+傑克·帕索菲克（Jack Posofic）在說到香港問題時，涉及於7月1日正式施行的港版國安法，他認為這根本就不是法律，而是強制執行的一道命令，主要涉及的內容基本上有60條，但是中共在香港新成立的香港警察局應當稱為國家安全局——本質就是一個新的蓋世太保。香港已經徹底失去了自由，中共表示維護職務的辦公室在履行職責過程中所採取的行動不受香港特別行政區的管轄，完全按照中共的國家安全法來執行。
+
+除此之外，還有主權豁免權，如果是對中共有任何異議的外籍人士，只要在社交媒體或者其他媒體發表過對中共不利的言論，都可能在香港被捕。班農先生補充說其實從去年六月起中共就已經有這樣的秘密抓捕運送香港人的特殊部隊了，祇是現在的這個國安法讓一切明朗化了。
+
+就中共施行的港版國安惡法，英國首相詹森做出回應，因為香港是1997年英國歸還給中共的，英國當然應該對其遺民承擔一定的責任，所以英國承諾給300萬持有護照的香港人離開中共統治，移民英國生活的機會。本來中共是承諾香港一國兩制50年不變的，但是現在中共完全拋棄了原來的誓言，中共會將抓捕來的香港學生們送往監獄，而這一切都沒有合法程式。由於香港有大量移民，所以也會有很多人不符合移民英國的條件，也有人呼籲美國給出更多的移民許可。
+
+現在全球都被中共病毒所毒害，而共產黨還在繼續深度滲透各個國家的各個領域，中共成為了現代美國歷史上最大的危機。對比此時正在大使館外抗議的華裔，中共太腐敗、太無能了，中共為了掩蓋事實所發起超限戰的舉動更是令人髮指！
 
 0

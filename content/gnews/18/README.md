@@ -1,30 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參眾兩院推動議案，賦予香港人民優先避難權
-`2020-07-01 22:18 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/251556/)
+## 白宮新聞秘書就《美國墨西哥加拿大協議》發表聲明
+`2020-07-02 02:44 GM31` [轉載自GNews](https://gnews.org/zh-hant/251757/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/01220437/%E7%BE%8E%E5%8F%82%E4%BC%97%E4%B8%A4%E9%99%A2%E6%8E%A8%E5%8A%A8%E8%AE%AE%E6%A1%88%EF%BC%8C%E8%B5%8B%E4%BA%88%E9%A6%99%E6%B8%AF%E4%BA%BA%E6%B0%91%E4%BC%98%E5%85%88%E9%81%BF%E9%9A%BE%E6%9D%83.jpg)
-回應中共6月30日推出的港版國安法，以馬克-盧比奧為首的5名參議員於7月1日聯合發起“香港安全港議案”為那些捍衛香港自治地位，維護民主自由而和平抗議的香港人民提供優先避難，以免遭中共的殘酷迫害。
+Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement
 
-香港安全港議案將：
+## **新聞秘書就《美國墨西哥加拿大協議》發表聲明**
 
-- 給予港人第二優先（priority 2）避難資格： 允許因發表政治言論，參與香港和平抗議，並對可能遭受迫害有合理恐懼的香港居民在香港或第三地申請第二優先的難民身份以在美避難。此類申請不受難民人數限制。
-- 簽發此移民簽證時，不會考慮是否有移民傾向： 簡化難民申請手續。對這些參與遊行或在抗議活動中起到組織或支援角色的港人，在審批難民資格時，不會考慮移民傾向問題。
-- 對因申請避難或其他美國簽證而受北京報復性取消香港居民資格的，一律視為受到迫害。
-- 屆滿條款： 此議案在生效5年後自動終止。
+Issued on: July 1, 2020
+
+2020年7月1日簽發
+
+Today, the United States-Mexico-Canada Agreement (USMCA) will go into effect. Thanks to the bold leadership of President Trump, the agreement will mean stronger economic growth, more jobs for American workers, and fairer trade for our country. President Trump has delivered for American manufacturers, farmers, businesses, and workers. The agreement will drive job creation and includes the strongest, most advanced, and comprehensive set of labor provisions of any United States trade agreement. American farmers will have access to fairer markets in Canada and Mexico, opening up more opportunities to export their goods. USMCA will strengthen American manufacturing, including incentivizing investment in high paying auto manufacturing jobs here in the United States. Just as promised, President Trump is replacing the disastrous North American Free Trade Agreement, which drove American jobs overseas for years. USMCA is a fair deal for American workers and finally brings our trade relationship with Canada and Mexico into the 21st century.
+
+今天《美國墨西哥加拿大協議》將會生效。感謝川普總統的堅定領導，此協議意味著更強勁的經濟增長，為美國工人提供更多工作崗位，以及對我國有更公平的貿易交易。川普總統對美國的製造商、農民、企業及工人提供了援助。此協定將加速推動創造就業機會，並包括任何美國貿易協定中最強大、最先進和最全面的勞工規定條款。美國農民將有機會進入加拿大和墨西哥的更公平市場，為他們的出口商品開闢更多機會。《美國墨西哥加拿大協議》也會加強美國製造業，包括鼓勵對在美國本土汽車製造業高薪職位的投資。正如承諾那樣，川普總統正在取代多年來讓美國就業機會流失海外的災難性的《北美自由貿易協定》。《美國墨西哥加拿大協議》是一項對美國工人公平的協議，最終會把我們跟加拿大和墨西哥的貿易關係引領到21世紀。
+
+出處：[Statement from the Press Secretary Regarding the United States- Mexico- Canada Agreement](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-united-states-mexico-canada-agreement/)
+
+*翻譯：【V%】 校對：【GM31】*
+
+*戰友之家玫瑰園小隊出品*
 
 
-以約翰-柯蒂斯為首的13名眾議員在國會也為此議案背書，並積極推動立法程序。
-
-參議員馬克-盧比奧指出，香港人民向世界展示了他們的勇氣。去年他們走上街頭，捍衛他們的自治權利，拒絕受中共集權的控制。港版國安法昨夜生效後，美國有責任幫助港人維護他們的社會，允許那些因行使中英聯合生命所賦權利而遭迫害的港人申請避難。此“香港安全港議案”將為這些不屈不撓反抗暴政的港人提供一個安全港灣。
-
-參議員楊說自己一個月前已向國務卿蓬皮奧提議聯合英國和澳大利亞，對在中共集權鎮壓下的香港人民提供避難資格。現在他很自豪地推出這個兩黨共同推動的議案。
-
-參議員卡頓指出中共推出的港版國安法嚴重威脅了港人的言論自由。在中共看來是威脅國家安全的行為，在美國的價值觀裡是言論自由的民主權利。此兩黨議案將向世界明確表明，美國永遠不會背棄那些為自己的民主權利而戰的人們。
-
-[原文鏈接](https://www.dimsumdaily.hk/the-hong-kong-safe-harbor-act-proposed-by-us-senators-to-provide-refugee-status-for-hong-kongers-who-protest-against-beijing/)
-
-翻譯報導：雪山
 
 0
