@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 18萬香港公務員或將成為國安法首批犧牲品
-`2020-07-03 02:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/252515/)
+## 【多語言圖文版】6月29日中共病毒疫情要聞快報
+`2020-07-03 06:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/252659/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03024850/b251e049-9d9c-46a9-aa1a-d09d75e18843.jpg)
-這兩天，BNO護照成為香港人討論的大熱門，英國公開表示將允許有BNO身份的300萬香港人移民，惟親共派議員蔣麗芸指出，公務員必須放棄BNO續期，否則意圖不軌。
+[6.29-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063103/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063103/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-蔣麗芸議員并非胡亂放炮，據知情人士透露，香港政府正在研究有關文告細節，稍後將刊憲，要求18萬香港公務員將宣誓及強制放棄BNO護照。
-香港公務員一向保持政治中立，惟北京高官對此深表不滿，現在趁國安法實施，一次過收拾「政治不正確」的公務員。
+[6.29-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063106/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063106/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-97年之前英國殖民地時期，香港公務員中特別是高官們，其子女送到英國升學是最正常不過的事，還可享有學費津貼，因此，香港高官中人有一兩本外國護照，實屬平常事。
+[6.29-每日要闻-芬蘭語版-Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063109/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063109/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish.pdf)
 
-回歸23年，中共的每日150個家庭移民名額，還有一系列的優才、投資移民，到底有多少「又紅又專」的卧底潛伏香港各行各業，實在難以估計，這一埸生死硬仗，香港人不知道能否扛下？
+[6.29-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063112/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063112/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-公務員之後，香港的律師界、教育界、醫護界、金融界等，中共都可以巧立名目，將反對派一掃而光，定點消除後再安插自己人登場。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03025110/ffc9f7a0-1ba8-47bd-a67b-4c4cbe60fc75.jpg)
-新聞熱點整理：Tina
+[6.29-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063116/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063116/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+
+[6.29-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063119/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063119/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+
+[6.29-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063125/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063125/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 0
