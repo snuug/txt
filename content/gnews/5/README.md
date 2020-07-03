@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】6月29日中共病毒疫情要聞快報
-`2020-07-03 06:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/252659/)
+## 川普總統接受福克斯商業臺布萊克·布林曼的專訪
+`2020-07-03 08:44 GM31` [轉載自GNews](https://gnews.org/zh-hant/252814/)
 
-[6.29-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063103/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063103/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+川普總統于[7月1日](https://youtu.be/LkQQlMtziw4)接受福克斯商業台採訪，他表示美國的就業率和零售額創歷史新高，國家將會逐步恢復正常工作和社交，但是建議國民佩戴口罩。
 
-[6.29-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063106/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063106/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+在採訪中，主持人向川普總統提問：“如果連任，是否願意與習近平再次簽訂貿易協定？” 川普總統並未正面回應，但是他表示非常不高興，因為在協定簽訂不久，中共病毒就開始肆虐，中共政府不但沒有把病毒控制在中國大陸，反而讓它傳染到了全世界和美國。儘管川普總統在第一時間對中共國頒佈了禁令，但病毒還是被投送到了美國，川普總統表示一定會查出真相。
 
-[6.29-每日要闻-芬蘭語版-Finnish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063109/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063109/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8A%AC%E8%98%AD%E8%AA%9E%E7%89%88-Finnish.pdf)
+對於拜登如果擔任下屆總統，川普憂慮拜登會搞垮國家經濟，一旦經濟崩潰民主黨就會向國民徵收更多的稅收，而且他們會頒佈更多法令，那是非常糟糕的事情。
 
-[6.29-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063112/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063112/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+*聽寫：【Naomi】 翻譯：【Naomi】校對：【V%】【JoyJoy】字幕：【Vinzo】*
 
-[6.29-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063116/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063116/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
-
-[6.29-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063119/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063119/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
-
-[6.29-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063125/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03063125/6.29-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+*戰友之家玫瑰園小隊出品*
 
 0
