@@ -1,73 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## IPAC發表關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明
-`2020-07-02 03:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/251863/)
+## 澳大利亞總理斯科特·莫里森：將為在澳港人提供安全港簽證
+`2020-07-02 07:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/252003/)
 
-**Statement on the Imposition of *National Security* Legislation upon Hong Kong by the National People’s Congress of the People’s Republic of China**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/02062707/Picture-1-13.png)圖片來源：瑞比庫律師事務所(rigbycooke.com.au) 
+據澳大利亞新聞網(news.com.au)7月2日報導，澳大利亞正準備向目前居住在澳大利亞的多達2萬名香港居民提供安全港簽證(safe haven visas)。該安全港簽證允許在澳的香港居民在接下來的數年(甚至可能永久地)能在澳大利亞生活、學習和工作。這是澳大利亞總理斯科特·莫里森(Scott Morrison)迄今為止為居澳的香港人提供的最強有力的支持。
 
-## **關於中華人民共和國全國人民代表大會將國家安全立法強加於香港的聲明**
+**該報導指出，澳大利亞政府為當地香港人提供安全港簽證的原因如下：**
 
-We, members of the Inter-Parliamentary Alliance on China, condemn the imposition of so-called *National Security* legislation on Hong Kong by the Chinese National People’s Congress. This new law is a comprehensive assault on the city’s fundamental freedoms, rule of law, and autonomy.
+(1) 最主要的原因是中共國對香港民主抗議者的殘酷鎮壓。總理斯科特·莫里森表示，他對由中共國強制推行的港版國安法所引起的最新衝突感到不安和擔憂，該衝突導致370名香港民主抗議者被逮捕，中共香港黑警向數千人發射催淚瓦斯、胡椒噴霧和水槍。
 
-我們，作為對華政策跨國議會聯盟成員，強烈譴責中國人民代表大會把所謂的國安法強加於香港。這個新法律是對這個城市現有的基本自由，法治和自治一次全面顛覆
+莫里森還指出，關於中共對香港的殘酷鎮壓，澳大利亞已經很清楚地和其他許多國家一起發表了譴責聲明，並敦促中共國遵守香港基本法。關於向居澳香港人發放安全港簽證，莫里森認為這對澳大利亞政府來說是一個非常合理和一致的立場，同時澳大利亞內閣將很快對其進行審議。
 
-Hong Kong’s high degree of autonomy and way of life are guaranteed by the Sino-British Joint Declaration – a binding treaty under international law – the Hong Kong Basic Law and the International Covenant on Civil and Political Rights.
+(2) 另外一個原因促使澳大利亞為當地香港人提供安全港簽證是基於英國外交大臣多米尼克·拉布(Dominic Raab)近日宣布，將向近300萬香港居民提供安全港簽證。澳大利亞綠黨領袖亞當·班德(Adam Bandt)也表示，如果英國政府為可能逃離香港的數百萬人敞開大門，那麼澳大利亞不提供任何庇護所是不可接受的。
 
-《中英聯合聲明》保證了香港的高度自治和生活方式。《中英聯合聲明》是依據國際法 —— 《香港基本法》和《公民權利及政治權利國際公約》制定的一項具有約束力的條約。
+(3)最後一個原因是基於澳大利亞悠久的人道援助傳統。 1989年北京天安門廣場屠殺發生後，前澳大利亞總理鮑勃·霍克(Bob Hawke)向中國學生提供了4萬個安全港簽證，以確保他們可以在澳大利亞安全地生活。綠黨領袖亞當·班德此前曾敦促目前執政的莫里森政府加緊為香港人提供安全港簽證，秉承鮑勃·霍克的領導精神，向逃離中共暴政的香港人張開懷抱。
 
-Beijing’s imposition of this legislation represents a clear breach of its treaty obligations to the citizens of Hong Kong, will severely undermine the rights of 7 million Hong Kong citizens, and poses a grave challenge to the international community.
+總理斯科特·莫里森的本次聲明與去年他對香港問題採取謹慎態度時的言論形成鮮明對比。去年9月莫里森在一次電台採訪中表示，對待香港問題，澳大利亞在密切評估局勢的同時需要保持冷靜，而“不適合”去告訴其他國家如何辦事。
 
-北京強制實施這項立法，明顯違反了對香港公民的條約義務，將嚴重損害700萬香港公民的權利，也是對國際社會的嚴重挑戰。
+[原文鏈接](https://www.news.com.au/world/asia/thousands-of-hong-kong-residents-offered-safe-have-visas-in-australia/news-story/d5c6e99f6b513dc38e3da697b71e1c09)
 
-These actions cannot go unanswered. No country should be able to violate international norms and agreements with impunity.
+翻譯報導：時晗
+校對整理：晴天小螞蟻
 
-如此做法決不容姑息！沒有任何一個國家可以違背國際準則和條約並逃脫追責。
-
-Parliaments, governments, the G7, international institutions, and countless others have spoken out against the unilateral imposition of the National Security Law. The leadership of the People’s Republic of China has not heeded their warnings. The time has now come for consequences to be made clear.
-
-各國議會、政府、七國集團、國際機構及無數其他組織團體都已公開反對（中共）單方面實施《國家安全法》。中華人民共和國國家領導人對他們的警告卻置若罔聞，現在到了讓其認清後果的時候了。
-
-We therefore call upon governments:
-
-因此，我們呼籲各國的政府：
-
-**To review and to recalibrate relations with the People’s Republic of China, in coordination with allies and partners, bringing forward legislation to accelerate efforts already underway to audit and reduce strategic dependency on China, at both national and international levels.**
-
-**重新審****視****並調整與中華人民共和國的關係，與****同****盟國****和合作方通力協作，在國家及國際層面提** **案****立法，****以加速** **既已進行****的審****查及****減少對中國的戰略依賴的****進程****；**
-
-**To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.**
-
-**通過一個由民主國家聯盟組織的國際****“****方舟** **“****計畫，為面臨迫害危險的香港公民提供保護。**
-
-**To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.**
-
-**要求聯合國秘書長指定一名聯合國特使，****專門負責監測和報告香港的情況****。**
-
-The international community cannot stand idly by while the rights of Hong Kong citizens are trampled upon and international obligations violated. The world must unite in defence of Hong Kong for the sake of the people of that great city, and for the maintenance of global peace, democratic values, and rule of law everywhere.
-
-國際社會決不能袖手旁觀，任由香港公民的權利被踐踏，國際義務被違反。為了這個偉大城市的人民，為了維護全球和平、民主價值和各地的法治，全世界必須團結起來捍衛香港。
-
-**Actions**
-
-**行動**倡議
-
-The Inter-Parliamentary Alliance on China is calling for democratic countries to formulate a principled and coordinated response comprising of:
-
-各對華政策跨國議會聯盟呼籲民主國家共同制定一個原則來協作對策，包括：
-
-- **To bring forward legislation accelerating efforts to audit and reduce strategic dependency on China.** This should form part of a broader effort to review and recalibrate relations with the People’s Republic of China, at both a national and international level.
-- 提案立法，以加速審查及減少對中國的戰略依賴的進程。 此舉應成為在國家和國際層面更廣泛意義上為審查和重新調整與中華人民共和國關係努力的一部分。
-- **To offer protection to Hong Kong citizens in danger of persecution through an international “lifeboat” scheme organised by a coalition of democracies.** This would offer a path for Hong Kong citizens seeking an escape route as a last resort.
-- 通過一個由民主國家聯盟組織的國際 “方舟”計畫，為面臨迫害危險的香港公民提供保護。 這將為尋求逃亡的香港公民提供最後一條出路。
-- **To demand the United Nations Secretary General to designate a UN Special Envoy to monitor and to report on Hong Kong.** It is crucial that the People’s Republic of China is held accountable for its international treaty obligations to the people of Hong Kong.
-- 要求聯合國秘書長指定一名聯合國特使來監測和報告香港的情況。 至關重要的是，中華人民共和國必須對關係香港人民的國際公約的履行義務負責。
-
-
-出處： [IPAC](https://www.ipac.global/campaigns/hong-kong/)
-
-*翻譯：【**Melody**太陽的旋律】* *校對：【一花一世界】【**GM31**】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0
