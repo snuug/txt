@@ -1,55 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共無恥地誣陷澳大利亞從事間諜活動
-`2020-07-04 00:19 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/253476/)
+## CCP滑向深淵——澳⼤利亞總理莫⾥森表示 澳⼤利亞可能對受國安法鎮壓的⾹港居⺠提供安全庇護
+`2020-07-04 08:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/253731/)
 
-*新聞來源：Breitbart*
+編撰：Jay(傑伊)、夢中情⼈、MIYA(文錦)、臺灣荔枝
 
-*作者： [Ben Kew](https://www.breitbart.com/author/ben-kew/)*
+澳⼤利亞總理斯科特•莫⾥森（Scott Morrison）說，在中共實施有爭議的國安法⽣效後，澳⼤利亞正在“積極考慮”為⾹港居⺠提供安全庇護。
 
-*翻譯、簡評：cathy r*
+本周三（7月1日）香港主權回歸23周年，也是港版國安法實施首天，⾛上街頭抗議國安法的示威者有數百人被逮捕。自2019年6月9日為抗議特首林鄭月娥提議的《逃犯條例》法案，香港爆發大規模遊行至今香港人以各種形式和平抗議“反送中“條例，遭到中共的殘酷鎮壓。國安法是中共單方面違背《中英聯合申明》的承諾，公然提出欲對香港乃至全球與中共持不同政見者定義為”分裂”和”顛覆”行為並將作為刑事犯罪對待。英國⾸相約翰遜先⽣當天即表示，他將為⾹港符合條件的⼈提供途徑獲取公⺠身份在英國定居。
 
-*PR: 1818*
+當莫⾥森被問及對⾹港抗議者的鎮壓是否感到不安，以及澳⼤利亞是否會為該地區的居⺠提供安全庇護時，他表示：“這兩個問題的答案都是肯定的。我們正在⾮常積極地考慮幾周前我提出的幾個建議， 內閣會做最後的修改， 很快將為他們提供與英國類似的機會。”他沒有詳細說明這是否包括⾹港居⺠的永久居留權。他說：“當我們對這些安排做出最終決定時我會宣布，但是現在如果您要問我們是否站出來⽀持他們，答案是肯定的。”
 
-*PAGE：玄天生*
+英國政府於1997年將對⾹港的控制權移交給了中國，在移交之前⾹港公⺠可以申請英國國⺠海外（BNO）護照。⾹港擁有數⼗萬BNO護照持有⼈，相信還有數百萬其他居⺠有資格申請BNO。上個⽉英國外交⼤⾂多⽶尼克•拉布（Dominic Raab）就已推動由英國，美國，澳⼤利亞，新⻄蘭和加拿⼤組成的五眼聯盟各國，為幫助香港居民應對可能出現的“大規模外逃”準備好重新安置。當英國⾸次提出了會從⾹港接收難⺠的願景時，北京憤怒地作出了回應，指責英國懷有“殖⺠⼼態”，並要求他們停⽌“⼲涉中國內政”。
 
-**簡評：**
+澳⼤利亞政府強調，擔⼼政治迫害的⾹港居⺠已經可以根據現有的⼈道主義保護計劃申請保護。澳政府同時仍在尋找安置⾹港居⺠的替代途徑。這可能包括特殊的⼈道主義援助，例如2015年向12,000名敘利亞難⺠提供的⼈道主義援助。考慮到為⾹港居⺠制定⼀項特殊的保護計劃會進⼀步加劇澳中兩國之間的緊張關系，⼀位澳⼤利亞政府消息⼈⼠此前曾對ABC透露，幾個五眼國家可能會采取⼀致⾏動向⾹港居⺠提供⼈道主義簽證，以共同應對北京⽅⾯的任何回應。
 
-中共國在新南威士議員被突襲搜查後幾天，公佈澳大利亞兩年前在中共國從事間諜活動的證據，這些被澳大利亞和其他媒體評論說看上去一點都無害的地圖，指南針，明顯就是中共對澳大利亞採取的報復行為。由此可見，中共就是一個黑幫集團，其戰狼外交團的官話胡說，喉舌媒體的造謠生事，所有它做的指控都是以利益為出發點，根本不是一個法治國家的正當所為。
+我們看到美國參眾兩院已快速通過了全面制裁的《香港問責法》 ，臺灣政府也成立臺港服務交流辦公室提供港人來臺咨詢服務和人道援助，相信未來會有更多國家向香港伸出援手，香港人用自己的勇氣和精神贏得了全世界國家和人民的尊重。
 
-##  **中共以無害的地圖、指南針為證據誣陷澳大利亞從事間諜活動** 
-
-[!\[\](https://spark.adobe.com/page/rFXRPxizrowxn/images/eb186707-f4f1-4cf6-b1e7-48b322a9bb42.jpg?asset_id=43e171a7-59b0-497c-8abd-7243e43d5a71&amp;img_etag=%228f63ecfbee3a68c893e4a67b0b7c3551%22&amp;size=2560)](https://spark.adobe.com/page/rFXRPxizrowxn/images/eb186707-f4f1-4cf6-b1e7-48b322a9bb42.jpg?asset_id=43e171a7-59b0-497c-8abd-7243e43d5a71&amp;img_etag=%228f63ecfbee3a68c893e4a67b0b7c3551%22&amp;size=1024)
-
-在星期一，中共國再次升級了他對澳大利亞的攻擊， [指責](https://www.abc.net.au/news/2020-06-29/nsw-labor-mp-shaoquett-moselmane-not-a-suspect-in-afp-probe/12402596)澳大利亞在中共國進行間諜活動，並指控間諜活動只是“冰山一角”。
-
-星期一，中共宣傳喉舌《環球時報》發表了一篇文章[聲稱](https://www.globaltimes.cn/content/1192847.shtml)中共官員在兩年前攔截了一次澳大利亞的間諜活動。 《環球時報》還公佈了他們聲稱在逮捕中獲得的物品的照片，包括現金，指南針和一份上海地圖。當被問到如何看待這些指控時，澳大利亞總理斯科特·莫里森告訴記者：“我不會依賴中共官方媒體來作為你的信息來源。”
-
-星期一晚間，中共外交部發言人趙立堅再次加倍強調此指控，聲稱有“無可辯駁”的證據指向澳大利亞及五眼情報網絡參與此事。五眼情報網絡包括澳大利亞，加拿大，新西蘭，英國和美國。
-
-“五眼情報聯盟長期以來一直參與網絡間諜活動，監聽監控外國政府、公司和個人。這對任何人都不是秘密。”他說道，“而澳大利亞，作為五眼聯盟的重要成員，一貫熱衷在有關國家開展間諜情報活動。我恐怕《環球時報》此次揭露的只是冰山一角。”
-
-值得一提的是，趙立堅就是那位宣傳未經證實的中共冠狀病毒是美國軍方製造的陰謀論的外交部發言人。
-
-口水戰是最近兩國關係逐漸惡化的最新信號，由於地理位置的關係，兩國傳統上保持強有力的聯繫。上個星期，總理莫里森宣布澳大利亞受到了來自“高級別的國家級網絡行為者”的大量網絡攻擊，衝擊了各種重要的技術基礎設施。他拒絕點名參與的國家，但官員確認他們普遍[懷疑](https://www.breitbart.com/asia/2020/06/19/australia-suspects-china-behind-massive-cyber-attack/)中共或參與其中。
-
-[!\[\](https://spark.adobe.com/page/rFXRPxizrowxn/images/0e1bb885-8f9d-4396-8522-4f5cd0f25601.jpg?asset_id=a269fc6b-f56c-49fe-aa9c-c28e574124fa&amp;img_etag=%227b7dbf3dd3abdd2169c53e282467dac8%22&amp;size=2560)](https://spark.adobe.com/page/rFXRPxizrowxn/images/0e1bb885-8f9d-4396-8522-4f5cd0f25601.jpg?asset_id=a269fc6b-f56c-49fe-aa9c-c28e574124fa&amp;img_etag=%227b7dbf3dd3abdd2169c53e282467dac8%22&amp;size=1024)
-
-幾天前，當局[突襲](https://www.abc.net.au/news/2020-06-29/nsw-labor-mp-shaoquett-moselmane-not-a-suspect-in-afp-probe/12402596)了新南威爾士的工黨議員邵克特·莫塞爾曼的辦公室，作為擴大調查北京通過培植親共候選人和政策干涉澳大利亞政治的一部分。
-
-中共堅稱沒有“切實證據”證明中共違法參與澳大利亞政治。
-
-趙說：“他們（澳大利亞）一邊肆意竊取別國信息和數據，危害他國主權和安全，同時他們偽裝成受害者，四處散播謠言，製造對抗，上演一出出’賊喊捉賊’的鬧劇，完全喪失了起碼的底線。”
-
-澳大利亞政府拒絕評論情報問題。
-
-這個星期的民意調查[顯示](https://www.breitbart.com/national-security/2020/06/25/poll-over-80-of-aussies-support-sanctions-on-china-94-want-to-find-other-markets/)澳大利亞民眾對中共對其國家的惡意影響越來越警惕，（這包括）從中共貿易行為到[要求](https://www.breitbart.com/national-security/2019/04/04/hayward-viral-authoritarianism-spreads-china-australia-new-censorship-law/)對大學進行審查。由洛伊機構進行的調查發現，只有55%的人仍認為中共是“合格的經濟夥伴”，而壓倒性的94%的受訪者說他們希望澳大利亞“尋找其他市場”，建立新的交易夥伴關係。
-
-[原文鏈接](https://www.breitbart.com/national-security/2020/07/01/china-publishes-photo-of-map-compass-as-proof-of-australian-espionage/)
-
-#### 編輯【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/rFXRPxizrowxn/) 】 
-
-
+原⽂鏈接：[https://mobile.abc.net.au/news/2020-07-02/australia-considering-offering-safe-haven-tohong-kong-residents/12415482?secDon=poliDcs](https://mobile.abc.net.au/news/2020-07-02/australia-considering-offering-safe-haven-tohong-kong-residents/12415482?secDon=poliDcs)
 
 0
