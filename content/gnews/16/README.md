@@ -1,26 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國會山報導：參議員敦促公開披露已註冊為外國代理人的外媒信息
-`2020-07-03 17:09 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/253118/)
+## 用納稅人血汗錢粉飾“太平”——香港傀儡政府用7百萬美元試圖通過公關公司“重振香港”
+`2020-07-03 22:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253342/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03170435/Senate_20200703_foreign_media_to_disclose_photo.jpg)圖片來源：The Hill
-據[7月2日 The Hill 記者Jordain Carney報導](https://thehill.com/homenews/media/505735-senators-push-foreign-media-to-disclose-if-they-are-registered-as-foreign)：一個由兩黨參議員組成的小組正試圖要求外國媒體必須公開他們是否為註冊外國代理人（譯者註：俗稱間諜）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03220455/1-7.png)圖片來源：Unsplash/ [Markos Tsoukalas](https://unsplash.com/@markos69) 
+根據國家脈衝近期報導，在國安惡法在7.1強制實施期間，中共偽政權香港傀儡政府與英國一個和世界專制國家政府有多次合作的公關諮詢公司Consulum簽下數目達560萬英鎊(7百萬美元)的合同，以“重振香港”。該公司總監級別僱員由前英國政府職員組成。
 
-參議員卡馬拉·哈里斯（加州民主黨議員）和約翰·科寧（得克薩斯共和黨議員），以及參議員理查德·布盧門撒爾（康涅狄格民主黨議員）和本·薩斯（Ben Sasse） （內布拉斯加共和黨議員），星期四出台了立法要求外國媒體必須向他們的用戶披露他們是否根據《外國代理人註冊法》（FARA）註冊為外國代理人。
+Consulum總部在倫敦，但在卡塔爾，巴林和阿聯酋都有分部。國家脈搏媒體經許可揭露該公司現在曾經為英國保守黨，工黨，和托尼.布萊爾聯合組織(Tony Blair associates organization)工作過的僱員。該公司曾在2017年代表沙特領袖組織Misk大會，比爾.蓋茨也參與其中。 （注：Misk大會由Misk基金資助創辦。該基金由沙特王子穆罕默德.本.薩爾曼(Mohammed bin Salman成立。）
 
-哈里斯在一份聲明中說：“這項常識性的規定將要求外國間諜機構向讀者、觀眾和聽眾清楚地透露他們的隸屬關係。這種透明性將有助於消費者判斷信息來源，這在選舉年尤為重要。”
+Consulum在職僱員：
 
-科寧補充說，通過要求公司公開披露他們是否根據FARA法進行了註冊，“我們可以減少這些不良行為者試圖在我們國家播撒的虛假信息量。特別是在選舉年中，美國人面對外國媒體宣傳時保持機敏至關重要。”
+菲奧娜.巴托斯(Fiona Bartosch)
 
-該法案還作為修正案提供給《國防授權法》（NDAA），該項龐大的法案目前正在由參議院辯論。
+巴托斯為現任沙特分部總監。她在卡梅隆和文翠珊當任英國首相時領導“反假新聞”運動不幸以失敗告終。她在英政府任職時是首相辦公室的發言人，也在北約領導的會議中露面。巴托斯也為BBC工作過。
 
-該法案將使在FARA註冊的外媒，沒有在互聯網、電視或廣播中公開、清楚地作出如下聲明的傳播視為違法行為：“該傳播是由外國代理人進行的”。俄羅斯的 RT 新聞網就是在FARA註冊為外國代理人後，被國會山取消其採訪資格的。法律要求任何在美國工作的代表外國政府、政黨或官員的外國實體都要進行註冊。 《華爾街日報》還於2018年報導說，司法部已經迫使兩個中國國有的新聞機構在FARA之下註冊。
+拉努夫.墨里(Ranulph Murray)
 
-[The Hill 新聞原文鏈接](https://thehill.com/homenews/media/505735-senators-push-foreign-media-to-disclose-if-they-are-registered-as-foreign)
+墨里在2013-2015年任職保守黨的廣告經理。他也擔任過保守黨議員保羅.斯庫裡(Paul Scully)的高級議會助理。在墨里的領英和其他社交媒體帳戶可看出他與很多重要議會成員都有關聯。斯庫裡是下議院小型企業，消費和人力市場的秘書(Parliamentary Under-Secretary of State for Small Business, Consumers and Labour Markets), 同時也是倫敦的城市部長。
 
-*翻譯：【V%】校對：【Michelle】*
+奧利弗.韋爾斯(Oliver Viles)
 
-*戰友之家玫瑰園小隊出品*
+韋爾斯試圖用”Olive V”在社交媒體上隱藏身份。這位中共走狗為Consulum效力，同時也受僱於一位歐洲議會的工黨議員。他曾經也為工黨議員雷切爾**·**里夫斯**(Rachel Reeves)**擔任過議會助理。他是奧巴馬的擁護者，並發推文**“#**除去女孩的最佳方式**‘**是將她們推下樓**‘”** ，支持家庭暴力。原推文：#BestWaytoGetRidOfAGirl push ’em down the stairs
+
+約翰.斯林格(John Slinger)
+
+斯林格是Consulum策略傳媒高級總監。他是托尼.布萊爾聯會的前任諮詢顧問。
+
+格雷戈爾.柏頓(Gregor Poynton）
+
+柏頓是Consulum的合作夥伴，曾在由工黨社會主義愛德華.米利班德(Ed Miliband)在任時擔任外部事務的總監。
+
+喬林.威爾士(Jolyon Welsh)
+
+威爾士是該公司的高級總監。他曾為外交與聯邦事務部(外交部， Foreign and Commonwealth Office)政府合同的領頭。英國外交部相當於美國國務院。威爾士還做過超過11年的外交長，其中1997-2002年其職位與人權有關。
+
+羅傑.貝克(Roger Baker)
+
+貝克也為Consulum的總監，他在工黨有7年作為傳播總監的工作經驗，同時在2003-2005年作為國家媒體和廣播總監。
+
+2018年英國新聞調查辦公室(The Bureau of Investigative Journalism)的報告揭露，Consulum至少從2016年開始與沙特王子穆罕默德.本.薩爾曼的項目進行合作。該公司年由貝爾波庭格(Bell Pottinger)公關公司職員蒂姆.萊恩(Tim Ryan)和馬修.岡瑟.布謝爾(Matthew Gunther Bushell)在2013年成立。
+
+Consulum提供所謂”塑造意識，引領論點和提升認知“的傳播交流服務。行業評論稱該公司非常專業，並且沒有危及貝爾波庭格公司的信譽。但Consulum由於和巴林獨裁政府在2013年合作遭到指責。 Consulum還與吉布提和阿聯酋政府都有合作。
+
+該新聞調查辦公室報告還揭示比爾.蓋茨參與Misk會議的詳盡過程。
+
+首席大臣多米尼克**·**拉布(Domimic Raab)批評中共偽政權對香港的鎮壓，稱其行為違背1997中英聯合聲明。
+
+評：
+
+中共偽政權滲透政府合作機構，企圖通過前政府僱員人脈獲取信息，控制英國在香港事務的說話權。毫無底線的中共惡法被併入香港基本法，等同重寫香港社會遊戲規則，大肆抓捕香港居民和外籍人士變成所謂“有法可依”。此次香港國安法通過實施，讓世人更加認清中共妄想以專制霸權挑戰現代民主自由法治。現在中共企圖用金錢來打造虛幻光鮮的中共香港，這樣的愚蠢之舉只會令人不齒。
+
+[原文鏈接](https://thenationalpulse.com/politics/revealed-pr-company-defending-the-ccps-hong-kong-takeover-is-run-by-former-advisors-to-britains-prime-minister-uk-labour-party-and/)
+
+翻譯報導：Joyphie
+
+校對整理：瑞安平
 
 0
