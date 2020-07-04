@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 目前疫情肆虐，每個人都在中共的威脅之下！“中共病毒疫情每日熱線”
-`2020-07-03 08:06 GM30` [轉載自GNews](https://gnews.org/zh-hant/252761/)
+## 2020年7月2日CCP冠狀病毒大流行第160集
+`2020-07-03 08:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/252800/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+中共顛倒黑白，謊稱國安法令港人不移民；張家界暴雨山洪，小學教室被衝毀；重慶暴雨引發泥石流；浙江紹興，中國輕紡城討要疫情補貼被維穩……
 
-0
+
+
+1
