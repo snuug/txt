@@ -1,19 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月1日中共病毒疫情要聞快報
-`2020-07-04 09:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253780/)
+## 競選最後的四個月，川普總統會放什麼大招？
+`2020-07-04 09:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253829/)
 
-[7.1-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091050/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091050/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04094703/Picture-1-35.png)圖片來源：WSJ 
+據《紐約時報》的最新報導，川普總統在剛過去的六月份面臨了他就任三年半以來最大的困難，民意測驗數字直線下降，種族問題和中共病毒激增都對他年底的大選十分不利。
 
-[7.1-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091053/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091053/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+據知情人士透露，川普總統試圖緩解最大競選捐款贊助人的憂慮，向那位億萬富翁家得寶（Home Depot）創始人保證，他的政治命運很快就會改變，因為他已招募了“貴人”來穩定競選。
 
-[7.1-每日要闻-韩文版-korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091056/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091056/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-korean.pdf)
+公開調查顯示川普總統在許多州敗給了拜登，最近幾週的共和黨私人民意調查也顯示，即使在保守派州，總統也步履維艱，在蒙大拿州得分只領先拜登不足五分。根據共和黨的說法，他在佐治亞州和堪薩斯州的情況也不妙。
 
-[7.1-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091100/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091100/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
+報導認為，川普總統對種族主義抗議者的煽動性反應，在塔爾薩考慮不周的集會，拒絕承認中共病毒反彈以及大談針對俄國偵探的報導等行為，都疏遠了搖擺不定的選民。
 
-[7.1-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091103/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091103/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+川普總統繼續希望他能在競選的最後四個月中實現經濟復甦，並在本週四宣揚了就業報告，該報告顯示6月份獲得了480萬個就業機會。川普的一些顧問說，他們的內部民意調查比顯示總統陷入困境的無數公開調查更具競爭力。
 
-[7.1-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091106/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091106/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+週四早上，白宮高層和競選助手開會，為川普總統制定了七月份的工作時間表。庫什納在一次採訪中表示，他的策略就是讓總統決定自己的連任。川普總統自己實際上是競選活動的經理。他說：“我們的工作是向總統展示數據，提供想法，幫助他進行組織。 然後，根據他決定要去哪裡，來定制競選活動計劃。”
+
+一些川普總統最親密的外部盟友也正在試圖為他的連任制定更多的戰略計劃。
+
+前新澤西州州長克里斯·克里斯蒂（Chris Christie）上周向總統發送備忘錄，白宮官員形容這是直言不諱的警告，即如果還是執行2016年同樣的競選活動，而沒有製定未來四年清晰的願景，總統會輸掉大選。
+
+南卡羅來納州參議員林賽·格雷厄姆（Lindsey Graham）也敦促川普總統刺激支出，並在基礎設施和處方藥等問題上扮演更多平民主義者的角色，以應對由中共病毒引發的經濟衰退。
+
+在上個月與參議院共和黨參謀長分享的一封電子郵件中，川普的白宮政治主任布萊恩·傑克（Brian Jack）提醒參議院共和黨競選部門負責人關於總統當時的認可度記錄。傑克在郵件寫道：“經過昨晚的選舉結果，自中期選舉以來，認可川普總統的候選人目前在國會特別選舉和初選中是64-0。”
+
+但許多共和黨人對川普感到困惑的是，為什麼他如此不願採取輕鬆的步驟來幫助他解決政治困難。最明顯的例子是川普先生拒絕提倡戴口罩與中共病毒作鬥爭，這可能對他連任構成最嚴重的威脅。幾位顧問私下敦促他這樣做，但徒勞無功。
+
+或者，正如佛羅里達州參議員里克·斯科特（Rick Scott）所說：“他就是他。 人們知道他是誰。 您認為他會改變嗎？”
+
+評：
+
+在川普還沒當選總統的時候，大概沒有多少華人太關注他是個什麼樣的人。但自從川普總統當選以來，從他的推特治國到他的怒懟媒體，完全不按常理出牌的三年多表現，一個固執，率真，言出必行，信念堅定且深愛美國的老人形像已深入人心，尤其是他對共產主義的痛恨更是得到所有爆料革命戰友們的支持。川普總統肯定不完美，他有許多壞毛病，但不妨礙他會成為美國歷史以來最偉大的總統，因為他要領導美國及其所有正義的力量和地球上最邪惡的力量做鬥爭！川普形容自己是孤獨的戰士，但我們不能讓英雄孤單，就像我們不願意看到郭文貴先生孤軍奮戰一樣，我們所有的戰友們，以我們的實際行動支持川普總統，相信正義一定會戰勝邪惡，川普總統也到了必須向中共宣戰，找出病毒真相的時刻，只有這樣才能真正挽救美國及世界人民的生命，才能振興經濟，得到選民的支持並最終獲得連任！
+
+[新聞鏈接](https://www.nytimes.com/2020/07/02/us/politics/trump-2020-campaign-problems.html)
+
+翻譯報導：人間四月
+校對整理：瑞安平
 
 0

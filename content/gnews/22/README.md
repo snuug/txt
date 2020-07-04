@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在英中國留學生被告知要為中共服務
-`2020-07-04 08:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253723/)
+## 【多語言圖文版】7月1日中共病毒疫情要聞快報
+`2020-07-04 09:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253780/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04083556/2671.jpg)圖片來源：西蒙·道森（Simon Dawson）/路透社（圖為中共國駐英大使劉曉明） 
-據英國《泰晤士報》近期報導，中共國駐英大使劉曉明告訴在英中國留學生“要利用自己的力量來擴大中共國在世界上的影響力”。
+[7.1-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091050/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091050/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-隨著英國首次成為中國學生最受歡迎的目的地，英國有12萬中國學生，中共國駐英國大使告訴學生們“發揮自己的力量”。劉曉明敦促中國留學生要發揚愛國主義精神，“為祖國服務”，他將這種行為描述為“一切努力的基礎和人生的最高抱負”。他的此番言論加劇了人們對中共國對校園隱形控制的擔憂。
+[7.1-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091053/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091053/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-英國已經超越美國，逐漸成為中國學生留學目的地的首選，這種轉變歸因於北京和華盛頓之間不斷增加的外交摩擦。川普總統已採取行動阻止與中共軍方有聯繫的中國學生的簽證。相比之下，英國卻重新開放了留學結束後的工作簽證和更快的畢業要求，用以提高其吸引力。
+[7.1-每日要闻-韩文版-korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091056/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091056/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-korean.pdf)
 
-劉曉明先生對英國的中國留學生說：“我希望你能利用自己的力量來擴大中國的影響力以及增強中英合作。”
+[7.1-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091100/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091100/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-倫敦經濟學院的克里斯托弗·休斯（Christopher Hughes）教授對《泰晤士報》說：“在中國背景下，愛國主義的思想意味著支持共產黨。這意味著要與台灣統一。這意味著完全粉碎西藏自治的願望。這意味著粉碎香港。它挑戰了我們許多學術自由原則。” “中國學生越多，中共國大使館對他們的控制和使用就越多。中共設立了各種小組來監視其行為。因此，他們不會感到安全。這也意味著留學生將進行自我審查。”
+[7.1-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091103/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091103/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-[原文鏈接](https://www.thetimes.co.uk/article/chinese-students-in-britain-told-to-serve-motherland-522kffm2f)
-
-翻譯報導：老師傅
-校對整理：人間四月
+[7.1-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091106/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04091106/7.1-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 0
