@@ -1,60 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 用納稅人血汗錢粉飾“太平”——香港傀儡政府用7百萬美元試圖通過公關公司“重振香港”
-`2020-07-03 22:09 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/253342/)
+## 中共無恥地誣陷澳大利亞從事間諜活動
+`2020-07-04 00:19 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/253476/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/03220455/1-7.png)圖片來源：Unsplash/ [Markos Tsoukalas](https://unsplash.com/@markos69) 
-根據國家脈衝近期報導，在國安惡法在7.1強制實施期間，中共偽政權香港傀儡政府與英國一個和世界專制國家政府有多次合作的公關諮詢公司Consulum簽下數目達560萬英鎊(7百萬美元)的合同，以“重振香港”。該公司總監級別僱員由前英國政府職員組成。
+*新聞來源：Breitbart*
 
-Consulum總部在倫敦，但在卡塔爾，巴林和阿聯酋都有分部。國家脈搏媒體經許可揭露該公司現在曾經為英國保守黨，工黨，和托尼.布萊爾聯合組織(Tony Blair associates organization)工作過的僱員。該公司曾在2017年代表沙特領袖組織Misk大會，比爾.蓋茨也參與其中。 （注：Misk大會由Misk基金資助創辦。該基金由沙特王子穆罕默德.本.薩爾曼(Mohammed bin Salman成立。）
+*作者： [Ben Kew](https://www.breitbart.com/author/ben-kew/)*
 
-Consulum在職僱員：
+*翻譯、簡評：cathy r*
 
-菲奧娜.巴托斯(Fiona Bartosch)
+*PR: 1818*
 
-巴托斯為現任沙特分部總監。她在卡梅隆和文翠珊當任英國首相時領導“反假新聞”運動不幸以失敗告終。她在英政府任職時是首相辦公室的發言人，也在北約領導的會議中露面。巴托斯也為BBC工作過。
+*PAGE：玄天生*
 
-拉努夫.墨里(Ranulph Murray)
+**簡評：**
 
-墨里在2013-2015年任職保守黨的廣告經理。他也擔任過保守黨議員保羅.斯庫裡(Paul Scully)的高級議會助理。在墨里的領英和其他社交媒體帳戶可看出他與很多重要議會成員都有關聯。斯庫裡是下議院小型企業，消費和人力市場的秘書(Parliamentary Under-Secretary of State for Small Business, Consumers and Labour Markets), 同時也是倫敦的城市部長。
+中共國在新南威士議員被突襲搜查後幾天，公佈澳大利亞兩年前在中共國從事間諜活動的證據，這些被澳大利亞和其他媒體評論說看上去一點都無害的地圖，指南針，明顯就是中共對澳大利亞採取的報復行為。由此可見，中共就是一個黑幫集團，其戰狼外交團的官話胡說，喉舌媒體的造謠生事，所有它做的指控都是以利益為出發點，根本不是一個法治國家的正當所為。
 
-奧利弗.韋爾斯(Oliver Viles)
+##  **中共以無害的地圖、指南針為證據誣陷澳大利亞從事間諜活動** 
 
-韋爾斯試圖用”Olive V”在社交媒體上隱藏身份。這位中共走狗為Consulum效力，同時也受僱於一位歐洲議會的工黨議員。他曾經也為工黨議員雷切爾**·**里夫斯**(Rachel Reeves)**擔任過議會助理。他是奧巴馬的擁護者，並發推文**“#**除去女孩的最佳方式**‘**是將她們推下樓**‘”** ，支持家庭暴力。原推文：#BestWaytoGetRidOfAGirl push ’em down the stairs
+[!\[\](https://spark.adobe.com/page/rFXRPxizrowxn/images/eb186707-f4f1-4cf6-b1e7-48b322a9bb42.jpg?asset_id=43e171a7-59b0-497c-8abd-7243e43d5a71&amp;img_etag=%228f63ecfbee3a68c893e4a67b0b7c3551%22&amp;size=2560)](https://spark.adobe.com/page/rFXRPxizrowxn/images/eb186707-f4f1-4cf6-b1e7-48b322a9bb42.jpg?asset_id=43e171a7-59b0-497c-8abd-7243e43d5a71&amp;img_etag=%228f63ecfbee3a68c893e4a67b0b7c3551%22&amp;size=1024)
 
-約翰.斯林格(John Slinger)
+在星期一，中共國再次升級了他對澳大利亞的攻擊， [指責](https://www.abc.net.au/news/2020-06-29/nsw-labor-mp-shaoquett-moselmane-not-a-suspect-in-afp-probe/12402596)澳大利亞在中共國進行間諜活動，並指控間諜活動只是“冰山一角”。
 
-斯林格是Consulum策略傳媒高級總監。他是托尼.布萊爾聯會的前任諮詢顧問。
+星期一，中共宣傳喉舌《環球時報》發表了一篇文章[聲稱](https://www.globaltimes.cn/content/1192847.shtml)中共官員在兩年前攔截了一次澳大利亞的間諜活動。 《環球時報》還公佈了他們聲稱在逮捕中獲得的物品的照片，包括現金，指南針和一份上海地圖。當被問到如何看待這些指控時，澳大利亞總理斯科特·莫里森告訴記者：“我不會依賴中共官方媒體來作為你的信息來源。”
 
-格雷戈爾.柏頓(Gregor Poynton）
+星期一晚間，中共外交部發言人趙立堅再次加倍強調此指控，聲稱有“無可辯駁”的證據指向澳大利亞及五眼情報網絡參與此事。五眼情報網絡包括澳大利亞，加拿大，新西蘭，英國和美國。
 
-柏頓是Consulum的合作夥伴，曾在由工黨社會主義愛德華.米利班德(Ed Miliband)在任時擔任外部事務的總監。
+“五眼情報聯盟長期以來一直參與網絡間諜活動，監聽監控外國政府、公司和個人。這對任何人都不是秘密。”他說道，“而澳大利亞，作為五眼聯盟的重要成員，一貫熱衷在有關國家開展間諜情報活動。我恐怕《環球時報》此次揭露的只是冰山一角。”
 
-喬林.威爾士(Jolyon Welsh)
+值得一提的是，趙立堅就是那位宣傳未經證實的中共冠狀病毒是美國軍方製造的陰謀論的外交部發言人。
 
-威爾士是該公司的高級總監。他曾為外交與聯邦事務部(外交部， Foreign and Commonwealth Office)政府合同的領頭。英國外交部相當於美國國務院。威爾士還做過超過11年的外交長，其中1997-2002年其職位與人權有關。
+口水戰是最近兩國關係逐漸惡化的最新信號，由於地理位置的關係，兩國傳統上保持強有力的聯繫。上個星期，總理莫里森宣布澳大利亞受到了來自“高級別的國家級網絡行為者”的大量網絡攻擊，衝擊了各種重要的技術基礎設施。他拒絕點名參與的國家，但官員確認他們普遍[懷疑](https://www.breitbart.com/asia/2020/06/19/australia-suspects-china-behind-massive-cyber-attack/)中共或參與其中。
 
-羅傑.貝克(Roger Baker)
+[!\[\](https://spark.adobe.com/page/rFXRPxizrowxn/images/0e1bb885-8f9d-4396-8522-4f5cd0f25601.jpg?asset_id=a269fc6b-f56c-49fe-aa9c-c28e574124fa&amp;img_etag=%227b7dbf3dd3abdd2169c53e282467dac8%22&amp;size=2560)](https://spark.adobe.com/page/rFXRPxizrowxn/images/0e1bb885-8f9d-4396-8522-4f5cd0f25601.jpg?asset_id=a269fc6b-f56c-49fe-aa9c-c28e574124fa&amp;img_etag=%227b7dbf3dd3abdd2169c53e282467dac8%22&amp;size=1024)
 
-貝克也為Consulum的總監，他在工黨有7年作為傳播總監的工作經驗，同時在2003-2005年作為國家媒體和廣播總監。
+幾天前，當局[突襲](https://www.abc.net.au/news/2020-06-29/nsw-labor-mp-shaoquett-moselmane-not-a-suspect-in-afp-probe/12402596)了新南威爾士的工黨議員邵克特·莫塞爾曼的辦公室，作為擴大調查北京通過培植親共候選人和政策干涉澳大利亞政治的一部分。
 
-2018年英國新聞調查辦公室(The Bureau of Investigative Journalism)的報告揭露，Consulum至少從2016年開始與沙特王子穆罕默德.本.薩爾曼的項目進行合作。該公司年由貝爾波庭格(Bell Pottinger)公關公司職員蒂姆.萊恩(Tim Ryan)和馬修.岡瑟.布謝爾(Matthew Gunther Bushell)在2013年成立。
+中共堅稱沒有“切實證據”證明中共違法參與澳大利亞政治。
 
-Consulum提供所謂”塑造意識，引領論點和提升認知“的傳播交流服務。行業評論稱該公司非常專業，並且沒有危及貝爾波庭格公司的信譽。但Consulum由於和巴林獨裁政府在2013年合作遭到指責。 Consulum還與吉布提和阿聯酋政府都有合作。
+趙說：“他們（澳大利亞）一邊肆意竊取別國信息和數據，危害他國主權和安全，同時他們偽裝成受害者，四處散播謠言，製造對抗，上演一出出’賊喊捉賊’的鬧劇，完全喪失了起碼的底線。”
 
-該新聞調查辦公室報告還揭示比爾.蓋茨參與Misk會議的詳盡過程。
+澳大利亞政府拒絕評論情報問題。
 
-首席大臣多米尼克**·**拉布(Domimic Raab)批評中共偽政權對香港的鎮壓，稱其行為違背1997中英聯合聲明。
+這個星期的民意調查[顯示](https://www.breitbart.com/national-security/2020/06/25/poll-over-80-of-aussies-support-sanctions-on-china-94-want-to-find-other-markets/)澳大利亞民眾對中共對其國家的惡意影響越來越警惕，（這包括）從中共貿易行為到[要求](https://www.breitbart.com/national-security/2019/04/04/hayward-viral-authoritarianism-spreads-china-australia-new-censorship-law/)對大學進行審查。由洛伊機構進行的調查發現，只有55%的人仍認為中共是“合格的經濟夥伴”，而壓倒性的94%的受訪者說他們希望澳大利亞“尋找其他市場”，建立新的交易夥伴關係。
 
-評：
+[原文鏈接](https://www.breitbart.com/national-security/2020/07/01/china-publishes-photo-of-map-compass-as-proof-of-australian-espionage/)
 
-中共偽政權滲透政府合作機構，企圖通過前政府僱員人脈獲取信息，控制英國在香港事務的說話權。毫無底線的中共惡法被併入香港基本法，等同重寫香港社會遊戲規則，大肆抓捕香港居民和外籍人士變成所謂“有法可依”。此次香港國安法通過實施，讓世人更加認清中共妄想以專制霸權挑戰現代民主自由法治。現在中共企圖用金錢來打造虛幻光鮮的中共香港，這樣的愚蠢之舉只會令人不齒。
+#### 編輯【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/rFXRPxizrowxn/) 】 
 
-[原文鏈接](https://thenationalpulse.com/politics/revealed-pr-company-defending-the-ccps-hong-kong-takeover-is-run-by-former-advisors-to-britains-prime-minister-uk-labour-party-and/)
 
-翻譯報導：Joyphie
-
-校對整理：瑞安平
 
 0
