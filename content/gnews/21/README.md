@@ -1,54 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國六月份就業數據：新增480萬個就業崗位，再破月記錄！
-`2020-07-04 12:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254087/)
+## 6月29日至7月5日中國發佈洪水藍色預警、黃色預警的地區匯總
+`2020-07-04 19:49 Diago` [轉載自GNews](https://gnews.org/zh-hant/254316/)
 
-**A Record 4.8 Million Jobs Created in June, Beating Record Set Last Month**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04194205/%E5%B0%81%E9%9D%A2-2.jpg)
+作者：Diago
 
-**六月份破紀錄創造480萬個就業崗位，打破上個月記錄**
+一、湖南省
 
-Our Nation’s economy has broken another record as 4.8 million jobs were added in June, bringing the economic comeback to 7.5 million jobs added over the past two months, according to the Bureau of Labor Statistics’ June Employment Situation report.
+1、據[湖南發佈洪水藍色預警——人民網2020年6月30日15:52](https://www.baidu.com/link?url=xNyiwYP4TN16F03zx2Zv3wHqs6wI_jlbGaIRFVL60slVldRVWJVkDKBSU43yXpnqR9WtbyXxGyBZPDmt9ACA4B6_t014Lp2WVFx3OO39cUy)
 
-美國勞工統計局(Bureau of Labor Statistics) 6月份就業形勢報告顯示，6月份美國新增480萬個就業崗位，再創歷史新高，使美國經濟在過去兩個月新增750萬個就業崗位
+【湖南省水文水資源勘測中心2020年6月30日13時00分發佈洪水藍色預警:受沅水及長江來水的共同影響，預計未來24小時內，洞庭湖南咀河段、沅江河段將出現接近警戒水位的洪水過程。湖南省水文水資源勘測中心發佈洪水藍色預警，提請沿岸相關單位及社會公眾做好避險救災工作。影響範圍：湖南省：南縣、沅江市】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04194310/%E5%9B%BE%E4%B8%80.jpeg)
+2、據[我省發佈洪水黃色預警,洞庭湖區部分河段或出現超警戒水位洪水——新浪網2020年7月2日22:06](https://www.baidu.com/link?url=wWNEO5g2W-YEvzi397ApfFF4K1LWRyGs9JOf2XbpZJMSe0QMyWTNgkGas6j9pD-sa-UXIEglkAvO5nWYMrdBH8I3yGWADCuhZ_qeMr8qb4GvXCfI1i2PMHve3XfVkr_G)【省水文水資源勘測中心7月2日13時分發佈洪水黃色預警：受流域降雨及長江三峽水庫、沅水五強溪水庫下泄流量的共同影響，預計未來6小時內，洞庭湖南咀河段將出現超警戒水位(34.00米)的洪水;未來12小時內，沅江河段將出現超警戒水位(33.50米)的洪水;未來36小時內，安鄉河段將出現接近警戒水位(37.00米)的洪水;未來72小時內，城陵磯河段將出現接近警戒水位(32.50米)的洪水。】
 
-May and June rank as the two largest monthly jobs gains in history, with June’s numbers exceeding expectations once again. In June, nearly every major employment sector enjoyed a gain in jobs, with the leisure and hospitality industry seeing a gain of 2.1 million and retail trade increasing by 740,000. These gains likely reflect the reopening of State economies from May (based on the work week including May 12) through June (based on the work week including June 12).
+【預計影響範圍為沅江市、南縣、安鄉縣、岳陽縣、岳陽市市轄區。】
 
-5月和6月是歷史上就業人數增幅最大的兩個月，6月的數據再次超出預期。 6月，幾乎所有主要就業部門的崗位都有所增加，其中休閒和酒店業增加了210萬，零售業增加了74萬。這些增長可能反映了從5月(包括5月12日在內的工作週)到6月(包括6月12日在內的工作週)國家經濟的重新開放。
+3、據[常德水文中心發佈洪水黃色預警!——新浪網2020年7月3日17:58](https://www.baidu.com/link?url=Ee88qQN2cCWJXruq9euKnB4OIHU8TlzfWiTttHQp0fR_kwbzvhDUNbdZyJgKqcM4seKDZMaJ0IDAi0wpDh67LWXVT1-lIA1ccfJArg9VLW-hwJtvZzcH1IDxTW6dacFb&amp;wd=&amp;eqid=d0dfc4f0002249b5000000065f00ff2a)
 
-Millions of Americans have felt the costs of the economic shutdown due to COVID-19, and while the speed of this recovery has far exceeded expectations, jobs have still not recovered the ground lost since the economic shutdown began. From February to April, nearly 22.2 million total jobs were lost. Over the past two months, 7.5 million (33.8 percent) of those jobs have returned. Figure 1 shows that while the leisure and hospitality industry saw the largest gains over the past two months, the industry still has 4.8 million jobs to make up to reach its pre-COVID level.
+【7月3日9時20分，常德水文水資源勘測中心發佈洪水黃色預警。　　受強降雨及上游來水影響,預計未來6小時內,松滋河西支澧縣官垸鄉河段將出現警戒水位左右的洪水過程;未來6小時內,松滋河中支安鄉縣大湖口鎮河段將出現超過警戒水位0.5米左右的洪水過程;未來6小時內,松滋河東支安鄉縣大湖口鎮河段將出現超過警戒水位0.5米左右的洪水過程。常德水文水資源勘測中心提醒，沿岸相關單位及社會公眾要加強防範，及時避險。】
 
-數百萬計的美國人已經感受到了因新冠肺炎導致經濟關閉的代價，儘管經濟復甦的速度遠遠超過預期，但就業仍未恢復到經濟關閉前的水平。從2月到4月， 近2220萬個工作崗位丟失。在過去的兩個月，有750萬個工作崗位(33.8%)已經恢復。圖1顯示，休閒和酒店行業在過去兩個月裡取得了最大的增長，但該行業仍有480萬個工作崗位需要彌補，才能達到疫情爆發前的水平。
+二、重慶市
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04123618/image-5.png)
+1、據[重慶17個區縣地質災害氣象風險高 海事部門昨發佈洪水黃色安全預警——光明網2020年6月29日09:13](https://www.baidu.com/link?url=KwbkfKAEZV6ciOW6cAxZ0VnqfXpxDKjdS9vpxI65L5s8iQz0HmiiGKoCy1ntuDse8-t95vZRYoLySIO47nMuRK)
 
-Additionally, the BLS June Employment Situation report estimates that the overall unemployment rate fell by a record 2.2 percentage points in June to 11.1 percent, and by 3.6 percentage points over the past two months.
+【記者從重慶海事部門瞭解到，從昨天（筆者注：6月28日）早上8點至今天淩晨2點，有一輪洪峰經過重慶朝天門水域，重慶朝天門海事處發佈洪水類黃色安全預警。】
 
-此外，勞工統計局6月份就業情況報告評估，6月份整體失業率下降了2.2個百分點至11.1%，在過去兩個月中總共下降了3.6個百分點。
+【據水文部門6月27日8時預報，重慶羊角灘水位28日8時洪峰達到11.37米，較27日8時上漲4.04米。根據以上情況，結合轄區實際，重慶朝天門海事處自6月27日8時起實施水文類三級（黃色）水上交通預警，實施範圍大背兜（613公里）至馬桑溪大橋（683公里），預警期間，6月27日20時至28日6時，所有船舶禁止航經黃沙溪至馬桑溪大橋水域，客船、危險品船、滾裝船、船隊以及600總噸以下船舶禁止航經銅鑼峽水域。】
 
-Even the 3.6 percentage point reduction in the official unemployment rate since April likely understates the actual progress made. As BLS Commissioner William Beach recently [explained](https://blogs.bls.gov/blog/2020/06/29/update-on-the-misclassification-that-affected-the-unemployment-rate/), the unique circumstances COVID-19 caused has led the household employment survey to misclassify some workers as “employed” who should have been classified as “unemployed” due to temporary business closures. As the Council of Economic Advisers (CEA) has previously noted in our [May 8th](https://www.whitehouse.gov/articles/aprils-job-losses-show-many-workers-still-connected-employers/) blog, addressing this issue could have resulted in an unemployment rate upward of 19 percent in April. When accounting for this misclassification, CEA finds that the unemployment rate of 19.6 percent in April has fallen to 12.3 percent as of June (see figure 2). This 7.2 percentage point reduction is twice as large as the 3.6 percentage point reduction in the official unemployment rate over the same period.
+2、據[重慶23個區縣出現暴雨 發佈洪水黃色和橙色預警——東方網2020年7月1日13:23:11](https://www.baidu.com/link?url=mG0i7b_EXNm7udhzMlzf8brb_yiMU7nseZqBjz1iBXVJMxaPWZrr-IwJjbdt9GQNoDP95tE873UhbHdvC2sgi1wTC8rYKBMvFM5ButHgaZc3DaOCoJ10GvWujhJAjKey)
 
-即便是4月份以來官方失業率下降3.6個百分點，可能也低估了實際進展。正如勞工統計局局長William Beach最近解釋道，COVID-19病毒的獨特性導致了在家庭就業調查中，將一些本因暫時停業而被歸為“失業”的工人錯誤地歸為“就業”。經濟顧問委員會(CEA)此前在我們5月8日的博客中也指出，解決這個問題可能會導致4月份失業率上升至19%。由於這個錯誤分類，經濟顧問委員會發現4月份的失業率從19.6%下降到6月份的12.3%（見圖2）。這7.2個百分點的降幅是同期官方失業率3.6個百分點降幅的兩倍。
+【記者1日從重慶市水利局獲悉，過去24小時，重慶23個區縣出現暴雨。受降雨影響，綦江羊渡河出現超保證水位洪水，3條次中小河流出現超警戒水位洪水。重慶市水文監測總站相繼發佈洪水黃色預警和洪水橙色預警。
 
-![pastedGraphic_1.png](https://gnews.org/6a2723b2-d1ab-4a7f-8978-cd4db96b99a2)       
-來源：美國勞工統計局、經濟顧問委員會注意：經濟顧問委員會修正失業率的計算方法是，首先將報告的因“其他原因”而未工作的就業人數與2016-2019年當月該指標的數值進行差值。然後我們將差額與報告的失業人數相加，再除以經季節性調整的勞動力。經濟顧問委員會修正後的失業率沒有經過季節調整。
+據重慶市水文監測總站監測，6月30日8時至7月1日8時，重慶西部中到大雨、局地暴雨到大暴雨，中部和東南部小到中雨、局地大到暴雨，東北部分散小雨。重慶潼南、銅梁、榮昌、永川、大足、璧山、沙坪壩、九龍坡、大渡口、北碚、渝北、巴南、萬盛、綦江、江津、南川、酉陽、秀山、彭水、石柱、武隆、長壽、涪陵等23個區縣出現暴雨，其中綦江出現大暴雨，最大日降雨量出現在綦江趕水鎮正平村，為105.5毫米。
 
-The economic comeback has reduced unemployment across the board for several demographic groups. According to the BLS, the unemployment rate fell by 3.1 percentage points for Hispanic Americans and by 1.4 percentage points for Black Americans. In fact, Black Americans enjoyed the second largest employment gain on record, and female Black Americans over age 20 experienced the largest employment gain on record. Additionally, the female unemployment rate fell by 2.7 percentage points, which is larger than the decrease for men for the second straight month. As America’s businesses have reopened, teenagers saw a 6.7 percentage point unemployment rate reduction last month, consistent with the large job gains in the leisure and hospitality and retail trade industries.
+受降雨影響，綦江羊渡河出現超保證水位洪水；綦江通惠河、藻渡河、江津筍溪河等3條次中小河流出現超警戒水位洪水。綦江區綦江、秀山梅江等32條次中小河流出現1至6米漲水過程，最高水位未超警戒水位。其餘中小河流水勢平穩，未出現明顯漲水過程。】
 
-經濟復甦降低了幾個人口群體的整體失業率。根據勞工統計局的數據，西班牙裔美國人的失業率下降了3.1個百分點，非裔美國人下降了1.4個百分點。事實上，非裔美國人的就業增長創歷史第二，20歲以上的非裔美國女性就業增長創歷史第一。此外，女性失業率下降了2.7個百分點，連續第二個月降幅超過男性失業率降幅 。隨著美國企業重新開業，上月美國青年失業率下降了6.7個百分點，這與休閒、酒店和零售貿易行業大幅增加的就業崗位相符。
+三、浙江
 
-While June’s jobs report is undoubtedly positive news for our Nation, millions of Americans continue to suffer due to the COVID-19 pandemic. An increasing number of long-term unemployed workers remain, low-wage earners still make up a smaller portion of the labor force, and more than one in every ten workers remains unemployed. The successes in the jobs report, however, should provide a source of optimism for all Americans as we look toward the future.
+據[洪水黃色預警!洪澇期間,如何保護自己和家人的健康？澎湃新聞2020年6月30日21:11](https://www.baidu.com/link?url=seUzu-w-TEYsSLforsBdKp_Vm7m-zHjgNlr_wyA6RhrnM5001lhPNocSuNoZokvi-xYMsCEM4rIwoAezybuh-_)
 
-6月份的就業報告對我們無疑是個好消息，但仍有數百萬美國人因新冠肺炎大流行病而飽受折磨。長期失業的工人數量仍在增加，低收入者在勞動力中所佔的比例仍然較小，每十個工人中就有一個以上仍處於失業狀態。然而在我們展望未來的時候，就業報告中的成功應該為所有美國人提供樂觀的源泉。
+【浙江省水文管理中心6月30日8時發佈洪水黃色預警
 
-For two consecutive months, we have experienced the largest job gains in history, and the resilience of the American people remains strong as we have recovered roughly one-third of the COVID-related job losses from March and April. As we look ahead, we should be mindful of the work that remains, so that the forgotten Americans are forgotten no more.
+受集中降雨影響，預報衢州站將可能發生黃色預警級別洪水，較常水位上漲3米至4米，預警時間範圍6月30日至7月1日，影響範圍蘭溪市、龍遊縣、衢州市、衢江區、柯城區。沿江居民、江中船隻和施工人員注意防範。
 
-連續兩個月，我們經歷了歷史上最大的就業增長，從3月到4月，與新冠肺炎相關的失業人數已經恢復了大約三分之一，美國人民的恢復能力仍然很強。在我們展望未來的時候，我們應該注重餘下的任務，讓被遺忘的美國人不再被遺忘。
+浙江省水文管理中心6月30日8時發佈洪水藍色預警
 
-[白宮原文鏈接](https://www.whitehouse.gov/articles/june-jobs-numbers-shatter-expectations/)
+受集中強降雨影響，預報錢塘江流域中游蘭溪站將可能發生藍色預警級別洪水，將會較常水位上漲4~5米，預警時間範圍6月30日至7月2日，影響範圍蘭溪市、建德市、桐廬縣、富陽區、杭州市。請沿江居民、施工單位和過往船隻注意安全，防範洪水風險。
 
-*翻譯：【littlepink】  校對：【文所未闻】*
+浙江省水文管理中心6月30日9時發佈山洪災害預警
 
-*戰友之家玫瑰園小隊出品*
+根據省氣象臺未來降雨預報，預計6月30日9時至7月1日8時，遂昌縣、龍泉市、雲和縣、常山縣、龍游縣、柯城區、江山市、衢江區、松陽縣發生山洪災害可能性較大(黃色預警)，婺城區、景寧佘族自治縣、金東區可能發生山洪災害(藍色預警)。】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04194323/%E6%B5%99%E6%B1%9F.jpg)
+四、長江委水文局
+
+[長江委水文局發佈洪水藍色預警——光明網2020年7月2日13:31](https://www.baidu.com/link?url=Pu209ohWdJfYC0Ue6qZuDNoO2F5crqz3-iWCKeSl5wCuJi6-IHXC5AdmrFZUDxJh6cWcKVZEN49qFLLn0QzA0a)【今天（筆者注：7月2日），長江水利委員會水文局發佈烏江、長江上游三峽庫區、城陵磯河段洪水藍色預警，提請沿岸有關單位和公眾注意防範。受集中強降雨影響，長江上游幹流、烏江、三峽區間、洞庭湖水系發生明顯漲水過程，長江中游幹流各站水位持續上漲。預計，本次過程武隆站2日10時最高水位將在警戒水位193米附近，三峽入庫洪峰流量2日14時在50000立方米每秒左右，蓮花塘站水位6日將漲至警戒水位32.5米附近。】
+
+（文章內容僅代表作者個人觀點）
 
 0
