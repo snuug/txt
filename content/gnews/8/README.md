@@ -1,53 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國六月份就業數據：新增480萬個就業崗位，再破月記錄！
-`2020-07-04 12:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254087/)
+## 川普總統《美國精神展示》演講（7.2）
+`2020-07-04 21:41 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254360/)
 
-**A Record 4.8 Million Jobs Created in June, Beating Record Set Last Month**
+[川普總統於7月2日在白宮發表《美國精神展示》演講](https://www.youtube.com/watch?v=8dex41Qrnz4&amp;p=1&amp;pos=1)。談到在過去的兩個月, 美國創造了有史以來最大的月度就業增長的記錄，它包括了各行各業的工作，製造業也回到了美國，美國人用自己的雙手製造一切。總統簽署了一項小型企業的工人保證工資收入和帶薪病假的法案。股票市場也已回歸。美國人正在用他們的才智戰勝病毒，三個有前景的疫苗很快就會有答案，而且我們的軍隊也做好了後勤方面的準備。總統簽署了一項誰破壞我們的古蹟和雕像將入獄十年的方案，現在破壞嘎然而止。總統為我們的執法人員而驕傲，非常感謝他們。我們是一個為不同種族，膚色和信仰的公民提供平等和豐富機會的國家。
 
-**六月份破紀錄創造480萬個就業崗位，打破上個月記錄**
+以下為演講全文：
 
-Our Nation’s economy has broken another record as 4.8 million jobs were added in June, bringing the economic comeback to 7.5 million jobs added over the past two months, according to the Bureau of Labor Statistics’ June Employment Situation report.
+白宮大休息室，美國東部時間上午11:55
 
-美國勞工統計局(Bureau of Labor Statistics) 6月份就業形勢報告顯示，6月份美國新增480萬個就業崗位，再創歷史新高，使美國經濟在過去兩個月新增750萬個就業崗位
+總統：請。非常好。謝謝。重要的日子。我很高興歡迎大家來到美麗而偉大的白宮，並舉辦這個展示美國令人難以置信的小型企業的宏偉展覽。我剛看了一些漂亮的産品。
 
-May and June rank as the two largest monthly jobs gains in history, with June’s numbers exceeding expectations once again. In June, nearly every major employment sector enjoyed a gain in jobs, with the leisure and hospitality industry seeing a gain of 2.1 million and retail trade increasing by 740,000. These gains likely reflect the reopening of State economies from May (based on the work week including May 12) through June (based on the work week including June 12).
+今天，我們收到來自全國各地的大好消息。六月份美國經濟增加近500萬個新工作。這超越了所有預期，打破了所有記錄，所有的曆史記錄。我們國家的曆史上從沒有過這麽大幅度的增長。
 
-5月和6月是歷史上就業人數增幅最大的兩個月，6月的數據再次超出預期。 6月，幾乎所有主要就業部門的崗位都有所增加，其中休閒和酒店業增加了210萬，零售業增加了74萬。這些增長可能反映了從5月(包括5月12日在內的工作週)到6月(包括6月12日在內的工作週)國家經濟的重新開放。
+上個月，我們也打破了記錄，但是現在我們再次打破這個記錄。遠遠高于上個月。這是有史以來最大的月度就業增長。我們增加了210萬個休閑和接待工作，74萬個零售工作，568,000個教育和醫療工作，357,000個服務工作–這對我來說非常重要，因為您知道制造業正在發生的事情，我們簽署的貿易協議正在讓制造業重回美國, 制造業工作正在回歸，我們增加了356,000個制造業工作。難以置信。令人難以置信的數字。所有的新記錄。
 
-Millions of Americans have felt the costs of the economic shutdown due to COVID-19, and while the speed of this recovery has far exceeded expectations, jobs have still not recovered the ground lost since the economic shutdown began. From February to April, nearly 22.2 million total jobs were lost. Over the past two months, 7.5 million (33.8 percent) of those jobs have returned. Figure 1 shows that while the leisure and hospitality industry saw the largest gains over the past two months, the industry still has 4.8 million jobs to make up to reach its pre-COVID level.
+非裔美國工人取得了曆史性的收獲，這是我們前所未有的，6月新增了404,000個工作崗位。這是一個新記錄，這是有史以來的最高數字。在過去的兩個月中，我們為非裔美國工人提供了700,000個新工作；那是有史以來最高的。而最近的兩個月都是最高記錄。我們打破了上個月的記錄。上個月是一個新記錄，這個月我們又打破了。
 
-數百萬計的美國人已經感受到了因新冠肺炎導致經濟關閉的代價，儘管經濟復甦的速度遠遠超過預期，但就業仍未恢復到經濟關閉前的水平。從2月到4月， 近2220萬個工作崗位丟失。在過去的兩個月，有750萬個工作崗位(33.8%)已經恢復。圖1顯示，休閒和酒店行業在過去兩個月裡取得了最大的增長，但該行業仍有480萬個工作崗位需要彌補，才能達到疫情爆發前的水平。
+西班牙裔就業人數增加了150萬。他們是傑出的商人,想想看, 他們的就業機會增加了150萬。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/04123618/image-5.png)
+現在有80％的小型企業恢複了營業。自3月下旬以來，新的企業申請數量已翻倍。美國經濟的複蘇比大多數人，幾乎所有人，所預期的要強勁得多，因為這些數字即使是最樂觀的人，也在他們認為可能的範圍內翻了兩倍甚至三倍。
 
-Additionally, the BLS June Employment Situation report estimates that the overall unemployment rate fell by a record 2.2 percentage points in June to 11.1 percent, and by 3.6 percentage points over the past two months.
+非常感謝商務部長威爾伯•羅斯（Wilbur Ross）今天也在這裏。非常感謝，威爾伯。非常感謝你。你做得很好。
 
-此外，勞工統計局6月份就業情況報告評估，6月份整體失業率下降了2.2個百分點至11.1%，在過去兩個月中總共下降了3.6個百分點。
+今天，這裏的每家公司都體現了真正的美國卓越。您的工藝令人驚歎–我只是目睹了其中的一些；這是令人難以置信的–它在全世界都備受贊譽。你們生産的産品與衆不同。您對美國和我們國家的偉大精神的貢獻無與倫比。
 
-Even the 3.6 percentage point reduction in the official unemployment rate since April likely understates the actual progress made. As BLS Commissioner William Beach recently [explained](https://blogs.bls.gov/blog/2020/06/29/update-on-the-misclassification-that-affected-the-unemployment-rate/), the unique circumstances COVID-19 caused has led the household employment survey to misclassify some workers as “employed” who should have been classified as “unemployed” due to temporary business closures. As the Council of Economic Advisers (CEA) has previously noted in our [May 8th](https://www.whitehouse.gov/articles/aprils-job-losses-show-many-workers-still-connected-employers/) blog, addressing this issue could have resulted in an unemployment rate upward of 19 percent in April. When accounting for this misclassification, CEA finds that the unemployment rate of 19.6 percent in April has fallen to 12.3 percent as of June (see figure 2). This 7.2 percentage point reduction is twice as large as the 3.6 percentage point reduction in the official unemployment rate over the same period.
+今天和我們在一起的有弗吉尼亞州制作裝飾性美國國旗的工人，佛羅裏達州制作飛釣漁線輪的工人；來自伊利諾伊州的制作燒烤架的工人；來自北卡羅來納州的制作餡餅的工人-看上去都很好吃；來自俄克拉荷馬州的制作咖啡的工人；來自馬裏蘭州的制作冰淇淋的工人；以及得克薩斯州的制作防曬霜和棒球棒的工人。你們以無與倫比的技能和奉獻精神來生産這些商品，這些印有讓人自豪的“美國制造”標志的商品。這樣的“美國制造”商品會越來越多。
 
-即便是4月份以來官方失業率下降3.6個百分點，可能也低估了實際進展。正如勞工統計局局長William Beach最近解釋道，COVID-19病毒的獨特性導致了在家庭就業調查中，將一些本因暫時停業而被歸為“失業”的工人錯誤地歸為“就業”。經濟顧問委員會(CEA)此前在我們5月8日的博客中也指出，解決這個問題可能會導致4月份失業率上升至19%。由於這個錯誤分類，經濟顧問委員會發現4月份的失業率從19.6%下降到6月份的12.3%（見圖2）。這7.2個百分點的降幅是同期官方失業率3.6個百分點降幅的兩倍。
+通過貿易協議，我們要把工作機會帶回美國。我們有很好的貿易協議，工作機會正在回歸。目前，我們正在洽談許多重要的貿易協議。我們必須盡快完成它們。
 
-![pastedGraphic_1.png](https://gnews.org/6a2723b2-d1ab-4a7f-8978-cd4db96b99a2)       
-來源：美國勞工統計局、經濟顧問委員會注意：經濟顧問委員會修正失業率的計算方法是，首先將報告的因“其他原因”而未工作的就業人數與2016-2019年當月該指標的數值進行差值。然後我們將差額與報告的失業人數相加，再除以經季節性調整的勞動力。經濟顧問委員會修正後的失業率沒有經過季節調整。
+在這個房間所代表的小型企業延續了偉大而高貴的美國傳統。您是企業家，工匠，創造者，技術工人，你們開拓自己的道路，制造自己的産品，並為我們的公民提供高薪工作。難以置信的工作，令人難以置信的人，他們的確是工匠。您正在用美國的雙手，美國的心和美國的自豪感來做這一切。
 
-The economic comeback has reduced unemployment across the board for several demographic groups. According to the BLS, the unemployment rate fell by 3.1 percentage points for Hispanic Americans and by 1.4 percentage points for Black Americans. In fact, Black Americans enjoyed the second largest employment gain on record, and female Black Americans over age 20 experienced the largest employment gain on record. Additionally, the female unemployment rate fell by 2.7 percentage points, which is larger than the decrease for men for the second straight month. As America’s businesses have reopened, teenagers saw a 6.7 percentage point unemployment rate reduction last month, consistent with the large job gains in the leisure and hospitality and retail trade industries.
+這些公司中有幾家完全是退役軍人所有並經營。特別是當我們臨近獨立日時，我要感謝這些為國家服務的英勇的軍人們。我們誓言永遠捍衛您冒著生命捍衛的權利，自由和原則，以敬重你們的付出和犧牲。
 
-經濟復甦降低了幾個人口群體的整體失業率。根據勞工統計局的數據，西班牙裔美國人的失業率下降了3.1個百分點，非裔美國人下降了1.4個百分點。事實上，非裔美國人的就業增長創歷史第二，20歲以上的非裔美國女性就業增長創歷史第一。此外，女性失業率下降了2.7個百分點，連續第二個月降幅超過男性失業率降幅 。隨著美國企業重新開業，上月美國青年失業率下降了6.7個百分點，這與休閒、酒店和零售貿易行業大幅增加的就業崗位相符。
+自從病毒從中國傳過來–事實就是如此。這是一場本可以避免的病毒。中國本應該制止這場病毒的傳播，但他們就是讓這個發生了。當時我們剛剛簽署了一項全新的貿易協議，協議書上的墨迹甚至還沒有幹，病毒就來了。
 
-While June’s jobs report is undoubtedly positive news for our Nation, millions of Americans continue to suffer due to the COVID-19 pandemic. An increasing number of long-term unemployed workers remain, low-wage earners still make up a smaller portion of the labor force, and more than one in every ten workers remains unemployed. The successes in the jobs report, however, should provide a source of optimism for all Americans as we look toward the future.
+但是，我們快速采取了行動來挽救我們國家的小企業。我們通過了超過3萬億美元的曆史性救助措施-3萬億美元，想想看-包括超過6700億美元的“薪酬保護計劃”，從這些數字就可以看出這是一個巨大的成功。
 
-6月份的就業報告對我們無疑是個好消息，但仍有數百萬美國人因新冠肺炎大流行病而飽受折磨。長期失業的工人數量仍在增加，低收入者在勞動力中所佔的比例仍然較小，每十個工人中就有一個以上仍處於失業狀態。然而在我們展望未來的時候，就業報告中的成功應該為所有美國人提供樂觀的源泉。
+為了使小企業的工人保持工資收入，我簽署了一項法案，為美國工人提供聯邦資助的帶薪病假和帶薪家庭假。這是以前從沒有做過的事情。我們允許企業推遲繳納所得稅。而且我們大幅擴大了退稅額。
 
-For two consecutive months, we have experienced the largest job gains in history, and the resilience of the American people remains strong as we have recovered roughly one-third of the COVID-related job losses from March and April. As we look ahead, we should be mindful of the work that remains, so that the forgotten Americans are forgotten no more.
+多虧了我們的努力以及我們國家小企業的堅韌，我真的認為我們可以增強我們的根基。我們建立了有史以來最偉大的經濟體系，其基礎如此強大，所以我們的經濟沒有衰弱，沒有反向而行，而是強勢恢複，雖然我們還沒有完全成功。我們會很快完全恢複。但是我們還沒有殺死所有病毒。
 
-連續兩個月，我們經歷了歷史上最大的就業增長，從3月到4月，與新冠肺炎相關的失業人數已經恢復了大約三分之一，美國人民的恢復能力仍然很強。在我們展望未來的時候，我們應該注重餘下的任務，讓被遺忘的美國人不再被遺忘。
+但是，您要看看這些數字-這是基于我們建立的非常強大的根基，這一根基與衆不同; 這一根基讓我們沒有被這個病毒，可怕的病毒打倒；這一根基讓我們正在做以及計劃要做的別人無法想象的事情，包括：還清債務；創造就業。等等前所未見。而且明年，我相信，從某種角度，因為我們正在做的，我們會比以前更加強大
 
-[白宮原文鏈接](https://www.whitehouse.gov/articles/june-jobs-numbers-shatter-expectations/)
+但是只有這個強大的基礎才使我們今天在這裏能夠談論這些創紀錄的工作和其他相關的統計數據，因為美國經濟現在正重振生機，這是前所未有的。沒人見過這樣的數字。
 
-*翻譯：【littlepink】  校對：【文所未闻】*
+五月份，零售額猛增了近18％。那是一個記錄。最近，我們看到了股票市場曆史上最大的50天漲幅。因此，我們有50天-追溯到幾周前-我們有50天，這在股票市場的曆史上是從未有過的，對我來說這意味著工作機會。
+
+它為美國工人提高了401（k）工資和退休儲蓄。我們正在創造其所未有的曆史數據。看一下401（k），幾乎處于疫情前的水平，這是所有人都沒預料到的。
+
+我們曾經創制了世界曆史上最偉大的經濟體，現在我們再次踏上征途。我認為我們這次會比第一次做得更好，除非有人出來說：“給所有人加稅。” 他們不僅在對公司加稅-這只會讓這些公司去其他國家-但他們還要對老百姓和中等收入人群加稅，而他們正處于失業中。
+
+因此，您不能允許這種情況發生。那將是-我們所做的所有這些令人難以置信的工作都會落空。這將是一個可怕的景象。甚至可能是1929年的情況。你們有機會迎接曆史上最好的經濟狀況，並且會很快到來。
+
+從股票市場的角度來看，我們幾乎回到了原來的狀態。想想看。如果您把錯誤的人選入白宮，將會導致前所未有的經濟崩潰。您會看到一些您認為不可能發生的事情發生。他們想提高稅收，他們想增多法規。您知道，我們已經完成的重要部分是削減了大量法規。無論它們存在了四年還是八年，我們比我們國家曆史上任何一位總統削減的法規都多。遠遠超過他們。我們正在做更多的事情。我們需要有規章制度，但這些是適當合宜的規章制度，而不是扼殺。
+
+美國人正在用他們的天才和智慧以戰勝病毒。我們正在加快新療法的交付，包括抗病毒類固醇，恢複期血漿和其他療法。我們提供的療法確實非常有效，其中包括兩種已被證明有效的藥物：瑞地昔韋和地塞米松，正在進行大規模的試驗。我們將拭目以待。
+
+但是我們有三個候選疫苗。我們還有很多，但其中的三個最有前景，我想您很快就會得到答案。現在有三個候選疫苗正在試用中，還有另外三個候選疫苗將在短期內啓動。這些都是偉大的公司。過去，他們在相關領域都取得過巨大的成功。
+
+而且我們正在通過“經紗速度”（Operation Warp Speed）加快生産。另外，我們的軍隊也已做好了准備，無論是治療還是疫苗，我們的軍隊都做好了後勤方面的准備。一旦完成，他們是世界上最好的，可以很快把産品分發出去。那一天會很快到來。
+
+當我們准備慶祝七月四日時，讓我們重申對這個國家和它的公民的奉獻精神，以及定義我們過去並塑造我們未來的永恒的價值觀。
+
+我要在7月3日到達拉什莫爾山。我們將度過一個愉快的夜晚。這將是很少有人見過的煙花彙演。這將非常令人興奮。會很漂亮。
+
+他們多年來一直想煙花表演。他們曾經在很多年前這樣做，由于某種原因，他們無法或不允許這樣做。他們被禁止這樣做。但這次我允許了，我們將在7月3日度過一個熱鬧的節日。然後我們回到這裏，在華盛頓特區慶祝七月四日
+
+我還要感謝所有執法人員。你們所做的工作是很出色的。我們簽署了一項法案。如果你毀壞我們的古迹或雕像，你將入獄10年。然後所有的破壞嘎然而止，真是太神奇了。我們曾希望地方政府來處理這個問題，但最終我們說：“讓我們介入吧。” 然後我們介入，問題馬上解決了。破壞雕塑將被判入獄十年。
+
+因此，我們為執法人員感到自豪。我們要感謝他們。真的很棒。我們的軍隊令人難以置信。我們的國民警衛隊簡直令人難以置信。
+
+我很高興看到他們在西雅圖解決了這個問題，他們也知道我們正准備解決這個問題。我們准備介入，他們也知道。然後他們行動了，他們做了他們必須做的事。
+
+我們是一個致力于為不同種族，膚色，宗教和信仰的公民提供平等和豐富機會的國家。美國夢是每個美國孩子出生就擁有的神聖權利，那就是我們擁有的美國夢。沒有人能破滅我們的美國夢–無政府主義者不能，煽動者不能，傻瓜不能，搶奪者不能。他們不會對與衆不同的美國夢産生任何的影響，
+
+這就是我們今天在這裏的原因，以確保每個公民都能實現自己的夢想，實現自己的價值並充分發揮其巨大潛力。這就是我們複興，重建和恢複美國的方式。
+
+在三年半的時間裏，我們做的工作令人難以置信，這項工作沒人能想到可以完成。而且我們會再做一次，而且我相信我們正在做的比以往任何時候都更大，更好，更強大。明年你會看到的。除非被篡改，否則明年將是非凡的一年，也將是成功的一年。
+
+明年我們將會有最好的工作數據。我們會比以往任何時候都更加強大和繁榮。明年將是（我認為它將是其中的一年），從經濟的角度來看，將是我們有史以來最偉大的經濟年度或最偉大的經濟年度之一。
+
+最後我要感謝出席這個活動的所有人。我要感謝所有生産出這些令人贊歎的産品的工匠和企業家。上帝保佑美國。
+
+非常感謝大家。謝謝。非常感謝你們。
+
+東部時間下午12:08結束。
+
+[閱讀白宮原文](https://www.youtube.com/watch?v=8dex41Qrnz4&amp;p=1&amp;pos=1)
+
+*翻譯：【EricLiu(自由戰士)】校對：【文所未聞】【JennyL】字幕：【Connor54】*
 
 *戰友之家玫瑰園小隊出品*
 
