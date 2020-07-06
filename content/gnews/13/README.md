@@ -1,179 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新聞發布格林伍德和美國大兵的新版《上帝保佑美國》- 有望再成打榜歌曲！
-`2020-07-05 19:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254961/)
+## 莫談政治！香港金融專業人士依據《安全法》實施自我審查
+`2020-07-06 00:52 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/255201/)
 
-[福克斯新聞台於7月5日](https://www.youtube.com/watch?v=0Japc8M8RQw)，美國獨立日假期之際，上線了由美國著名鄉村音樂家李·格林伍德和美國空軍樂隊的大兵們聯合打造的新版《上帝保佑美國》。這種歌曲自從80年代早期首次發布以來，不斷刷新流行榜，包括在2001年的911襲擊之後的年底重回美國鄉村音樂流行榜前20名的寶座。川普總統也選中這首歌曲用在他2016年的總統競選活動和之後的各種活動中，並在2020年的選舉活動中繼續使用。
+*新聞來源：Reuters《路透社》；*
 
-歌詞大意：
+*作者：Sumeet Chatterjee, Scott Murdoch蘇媚.查特麗，斯科特.默多克*
 
-If tomorrow all the things were gone
+*翻譯/簡評：RachelX；校對：沐子璐璐；*
 
-如果明天我為之奮鬥了一輩子
+*Page：拱卒*
 
-I’d worked for all my life
+**簡評：**
 
-的東西所有都化為烏有
+隨著港版國安法的實施，曾經是世界四大金融中心之一的香港將徹底名存實亡，淪為中共統治下的另一個城市。 ‘一國兩制，五十年不變’，話音猶在，而’中英聯合聲明’已然被無恥的中共徹底撕毀。如果說去年的今天人們尚能竊竊私語，而今大家已然是風聲鶴唳，緘默不語。當勇敢的抗爭者不畏風險繼續走上街頭的同時，也有很多精緻的利己主義者選擇無視和沈默，他們沒有意識到的是，沉默並不能換來所謂的安全，而生存空間會隨著你的妥協而被擠壓殆盡。
 
-And I had to start again
+##  **莫談政治！香港金融專業人士依據安全法實施自我審查** 
 
-我不得不重新開始
+香港（路透社）- 一年前，在全球最大，最自由的金融中心之一的香港，不斷加劇的反政府示威活動曾是銀行家，律師和其他投資專家們談論的熱門話題。
 
-With just my children and my wife
+[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/95656941-4b43-4727-8e77-1a3513a0db76.jpg?asset_id=4589c554-f51d-442b-9368-5a6b81313908&amp;img_etag=%2256f3e1ad8030861cf8302b449f2d4127%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/95656941-4b43-4727-8e77-1a3513a0db76.jpg?asset_id=4589c554-f51d-442b-9368-5a6b81313908&amp;img_etag=%2256f3e1ad8030861cf8302b449f2d4127%22&amp;size=1024)資料圖片：2020年1月2日，從中國香港維多利亞山頂拍攝的香港天際線。 REUTERS/Navesh Chitrakar
 
-惟獨還有我的妻兒陪伴身邊
+週四，在中共國對這座城市施行具有爭議的新國安法的兩天后，連銀針落地的聲音彷彿都依稀可聞。銀行家們對此三緘其口，甚至在電話或短信應用APP中都盡量避免提及該法，這足以表明它所引發的不安。
 
-I’d thank my lucky stars
+路透社採訪的六七位人士表示，他們選擇不與同事和外部聯繫人談論該法律對他們業務的影響，儘管他們各自服務的機構並沒有這樣的正式指令。
 
-我要感謝我的幸運星
+該項全面的立法將這座半自治的城市，這個許多全球金融公司的地區總部所在地，推向了一條更加專制的道路。
 
-To be living here today
+該法律對分裂國家，顛覆政權，恐怖主義和勾結外部勢力進行定罪，最高可判處終身監禁。
 
-讓我今天還生活在這裡
+[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/6c29faba-34ae-46c3-a97d-35b645484517.jpg?asset_id=f77e1055-04c9-4596-981f-6d7820731983&amp;img_etag=%227a751240e26b5f91c7b4ccf311420b93%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/6c29faba-34ae-46c3-a97d-35b645484517.jpg?asset_id=f77e1055-04c9-4596-981f-6d7820731983&amp;img_etag=%227a751240e26b5f91c7b4ccf311420b93%22&amp;size=1024)
 
-Where the flag still stands for freedom
+儘管該法案沒有直接影響金融部門，但其規定包括賦予特種警察部門更多的搜查，電子監視和資產查封的權力，這引發了一些專業人士的憂慮。
 
-生活在一個旗幟仍象徵著自由的地方
+**‘它可能會改變我們的溝通方式’**
 
-And they can’t take that away
+香港和中共政府官員都表示，該法律對於填補國家安全防禦體系的漏洞至關重要。過去一年來，針對香港政府和北京方面的抗議活動持續了數月，暴力衝突時有發生。
 
-沒人能奪走那旗幟
+但批評人士擔憂，這將破壞香港自由和獨立的法律體系，而該體係被視為香港成功成為金融中心，並在中共國與世界之間架設了橋樑的關鍵因素。
 
-And I’m proud to be an American
+一家地區保險公司的高管說：“我今天上午與新加坡同事通電話時，他們中的一位向我詢問了該法律及其對香港的影響。”和他的同事們一樣，因為該話題的敏感性，該高管拒絕透露姓名。
 
-我以身為美國人為榮
+“我才開始說話，結果我老闆就拍了拍我的肩膀讓我回去工作。之後，我們在港的全體成員都被告知嚴禁在電話和社交媒體上就此發表意見。”
 
-Where at least I know I’m free
+[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/52a21c74-4fff-460f-b134-cf99df0818df.jpg?asset_id=d210d067-4af0-487b-827d-7147d5bc91a0&amp;img_etag=%2255121df8accae5d443ddcd370c0905d5%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/52a21c74-4fff-460f-b134-cf99df0818df.jpg?asset_id=d210d067-4af0-487b-827d-7147d5bc91a0&amp;img_etag=%2255121df8accae5d443ddcd370c0905d5%22&amp;size=1024)
 
-在這裡我至少擁有自由
+儘管香港的大多數金融專業人士早就意識到出行到中共國時會受到世界上最先進的電子監控系統的跟踪，但他們表示在香港曾並沒有這種擔憂，也無需採取預防措施。
 
-And I won’t forget the men who died
+某國際律師事務所的一名企業律師表示，從前英國殖民地人民的“溝通交流”方式恐怕將就此改變。
 
-我不會遺忘那些陣亡的將士
+“我認為有些人恐怕在使用Whatsapp和微信時會變得非常謹慎……作為一家公司，我們不會在公函上以任何形式涉及該法，但對於某些公司而言，這恐怕會成為問題。 ”
 
-Who gave that right to me
+一些專業人士表示，他們也在審查自己以前在社交媒體上發布的有關支持民主抗議和涉及安全法的帖子，並刪除了他們認為敏感的內容。
 
-是他們賦予我這些權利
+一家歐洲銀行的駐香港高級理財經理表示，他的經理已經建議他盡量減少通過短信應用程序同本地客戶談論政治對市場的影響。
 
-And I gladly stand up next to you
+一位正在咖啡廳安排會面的金融分析師表示，如果談話涉及新的國安法，則可能需要在更私密的地點舉行會議。
 
-有幸與你站在一起
+“現在是隔牆有耳了，”他說道。
 
-And defend her still today
+[原文鏈接](https://uk.reuters.com/article/us-hongkong-protests-financial/no-politics-please-hong-kong-finance-professionals-impose-self-censorship-after-security-law-idUKKBN2431EM)
 
-至今仍然捍衛著她
+#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/GNHxAWRtNExCy/) 】 
 
-‘Cause there ain’t no doubt I love this land
 
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-From the lakes of Minnesota
-
-從明尼蘇達的萬湖
-
-To the hills of Tennessee
-
-到田納西的群山
-
-Across the plains of Texas
-
-橫跨德克薩斯的平原
-
-From sea to shining sea
-
-從大西洋岸到太平洋
-
-From Detroit down to Houston
-
-從底特律到休斯敦
-
-And New York to L.A.
-
-從紐約到洛杉磯
-
-Well there’s pride in every American heart
-
-每一个美國人心中都充满驕傲
-
-And it’s time we stand and say
-
-是時候我們站起來說
-
-That I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛著她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-God bless this country
-
-上帝保佑這個國家
-
-And I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛着她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-*翻譯：【Dlrow】【Michelle】校對：【JoyJoy】字幕：【相機過熱啊】*
-
-*戰友之家玫瑰園小隊出品*
 
 0
