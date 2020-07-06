@@ -1,43 +1,179 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯坦福大學被質疑虛偽：自詡是人權事業捍衛者卻接受毫無人權的中共5800萬美元？！
-`2020-07-05 16:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/254951/)
+## 福克斯新聞發布格林伍德和美國大兵的新版《上帝保佑美國》- 有望再成打榜歌曲！
+`2020-07-05 19:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254961/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/05160541/cropped_image1.jpg)圖片來源：BIDD Belgrade Initiative for Digital Public Diplomacy網頁
-“斯坦福被質疑如此虛偽這是接受中共資助的代價。各高校宣稱自己是人權的保護者、是弱勢群體的庇護所，然而他們卻擁護中國共產黨，他們是扼殺言論自由的同謀。”
+[福克斯新聞台於7月5日](https://www.youtube.com/watch?v=0Japc8M8RQw)，美國獨立日假期之際，上線了由美國著名鄉村音樂家李·格林伍德和美國空軍樂隊的大兵們聯合打造的新版《上帝保佑美國》。這種歌曲自從80年代早期首次發布以來，不斷刷新流行榜，包括在2001年的911襲擊之後的年底重回美國鄉村音樂流行榜前20名的寶座。川普總統也選中這首歌曲用在他2016年的總統競選活動和之後的各種活動中，並在2020年的選舉活動中繼續使用。
 
-“大學裡的孔子學院幾乎就是一個廣告牌，宣告著大學對知識自由的貶低”。
+歌詞大意：
 
-——全美學者協會（National Association of Scholars）的政策總監雷切爾・彼得森（Rachelle Peterson）評價
+If tomorrow all the things were gone
 
-據昨日大學修復媒體網站(the college fix)披露： 斯坦福大學與中共的交往始自上個世紀70年代。在2009年，該校開辦了由中共出資的孔子學院，旨在推廣中國語言文化。 2012年，在校長約翰・軒尼詩（John Hennessy）的監督下，北京大學斯坦福中心開始運營。 2014年3月，校長軒尼詩接受了“美中關係進步獎”,該獎項的頒發者是由美國商界、政界、學術界和藝術界的華人所組成的“百人委員會”。對於此事，斯坦福大學還在網站上進行了沾沾自喜的宣傳。
+如果明天我為之奮鬥了一輩子
 
-然而，在斯坦福大學向中共投怀送抱之時，正是中共侵犯人權愈演愈烈之際。中共領導人繼續走向專制，對意識形態上的灌輸和控制進一步加強，還建立了關押維吾爾及其他穆斯林少數民族的集中營。
+I’d worked for all my life
 
-與中共的這種交往當然與斯坦福大學所宣稱的崇尚人權、維護言論自由和種族平等的理念背道而馳。全美學者協會（National Association of Scholars）的政策總監雷切爾・彼得森（Rachelle Peterson）評價說：“虛偽是接受中共資助的代價”。她還一針見血地指出：“各高校宣稱自己是人權的保護者、是弱勢群體的庇護所，然而他們卻擁護中國共產黨，他們是扼殺言論自由的同謀。”
+的東西所有都化為烏有
 
-根據美國教育部的數據，自2013年以來，斯坦福大學從中共接受的資助金額僅次於哈佛大學、南加州大學和賓夕法尼亞大學。根據彭博社的分析，斯坦福大學在這6年裡從中共接受的禮物和簽訂的合同價值5,810萬美元。
+And I had to start again
 
-在斯坦福大學加強與中共關係的同時，美國政府也在警告各高校，應關注中共對美國大學越來越大的影響力。美國聯邦調查局在2018年發布的一份報告顯示，美國大學裡的一些外國學者試圖以不法手段獲取美國的學術研究信息，以推進他們在科學、經濟和軍事領域的發展。報告指出，中共歷來資助經濟間諜活動，是世界上主要的知識產權的侵害者。報告還針對設立分校和建立聯合研究中心，向美國各大學發出警告，指出這種“合作機會”可能讓外國對手獲取美國的研究成果。
+我不得不重新開始
 
-美國執法部門對各地的孔子學院感到尤為擔憂，因為中國公民可以通過孔子學院接觸到美國學生和知識產權。孔子學院主要由漢辦（“漢語國際推廣領導小組辦公室”的簡稱）資助，漢辦是中共教育部的直屬機構，但是與中共中央對外宣傳領導小組有緊密關係。孔子學院往往阻礙校園內的自由言論，經常限制有關西藏、天安門、新疆、法輪功以及中國其他人權問題的討論。
+With just my children and my wife
 
-今年5月1日，全美學者協會發布了一份修訂名單，列出了86所由中共資助的、設立在美國大學的孔子學院（其中6所將於2020年夏天關閉）。 3月，愛荷華州共和黨參議員查克・格拉斯利（Chuck Grassley）向大學發出警告，稱孔子學院是“中共宣傳的前沿”。
+惟獨還有我的妻兒陪伴身邊
 
-斯坦福大學在開辦自己的孔子學院時也覺察到這個問題。 2012年，斯坦福大學的大學院院長理查德・薩勒（Richard Saller）說，漢辦最初提出400萬美元開辦孔子學院，條件是不能討論西藏問題。斯坦福大學表示反對，但最終還是拿到了這筆錢。對於此事，斯坦福大學管理部門和該校孔子學院的代表均未予澄清。
+I’d thank my lucky stars
 
-來自中國的巨額資金是斯坦福無法抗拒的誘惑，這讓人不得不對該校的人權理念和研究的安全性都產生質疑。
+我要感謝我的幸運星
 
-正如彼得森所說：“大學裡的孔子學院幾乎就是一個廣告牌，宣告著大學對知識自由的貶低”。
+To be living here today
 
-評：多年來，中共借宣傳中華語言文化之名，行輸出意識形態、盜取知識產權之實。通過大量的資金輸入，在世界各地建立孔子學院，對大學進行滲透。現在歐洲和美國各大學終於逐漸認清了孔子學院的本質，越來越多的孔子學院被關閉。中共也意識到“孔子”這個中華文化的偉大名字，已被他們弄得名聲狼藉，偷偷將孔子學院總部改名為教育部中外語言合作交流中心。這種換個馬甲繼續行騙的行為實在可笑，世界已經不會再被中共的宣傳所欺騙。
+讓我今天還生活在這裡
 
-[原文鏈接](https://www.thecollegefix.com/stanford-accepts-58-million-in-chinese-cash-while-pushing-global-human-rights)
+Where the flag still stands for freedom
 
-翻譯報導：Himalaya Cat 
-校對整理：瑞安平
+生活在一個旗幟仍象徵著自由的地方
 
+And they can’t take that away
 
+沒人能奪走那旗幟
+
+And I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在這裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛著她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+From the lakes of Minnesota
+
+從明尼蘇達的萬湖
+
+To the hills of Tennessee
+
+到田納西的群山
+
+Across the plains of Texas
+
+橫跨德克薩斯的平原
+
+From sea to shining sea
+
+從大西洋岸到太平洋
+
+From Detroit down to Houston
+
+從底特律到休斯敦
+
+And New York to L.A.
+
+從紐約到洛杉磯
+
+Well there’s pride in every American heart
+
+每一个美國人心中都充满驕傲
+
+And it’s time we stand and say
+
+是時候我們站起來說
+
+That I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在这裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛著她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+God bless this country
+
+上帝保佑這個國家
+
+And I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在这裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛着她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+*翻譯：【Dlrow】【Michelle】校對：【JoyJoy】字幕：【相機過熱啊】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

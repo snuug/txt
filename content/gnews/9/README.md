@@ -1,179 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新聞發布格林伍德和美國大兵的新版《上帝保佑美國》- 有望再成打榜歌曲！
-`2020-07-05 19:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254961/)
+## 快訊：香港龍門冰室遭報復，尖沙咀分店一名廚房領班遇襲
+`2020-07-05 22:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/255061/)
 
-[福克斯新聞台於7月5日](https://www.youtube.com/watch?v=0Japc8M8RQw)，美國獨立日假期之際，上線了由美國著名鄉村音樂家李·格林伍德和美國空軍樂隊的大兵們聯合打造的新版《上帝保佑美國》。這種歌曲自從80年代早期首次發布以來，不斷刷新流行榜，包括在2001年的911襲擊之後的年底重回美國鄉村音樂流行榜前20名的寶座。川普總統也選中這首歌曲用在他2016年的總統競選活動和之後的各種活動中，並在2020年的選舉活動中繼續使用。
+香港著名黃店「龍門冰室」昨晚在Facebook 宣布將今年月餅的銷售金額，全部捐贈給「612人道支援基金」，不料今早6點多遭到報復，「龍門冰室」尖沙咀分店的一名廚房領班返店舖準備上班時，在店門外遭歹徒持啤酒樽伏擊，頭破血流。這就是此刻的香港，順偽共者昌，逆偽共者亡。
 
-歌詞大意：
+「龍門冰室」的負責人張老闆在國安法生效後，早前高調宣布退出「黃色經濟圈」，因為港共將「黃色經濟圈」鎖定為港獨團伙，張老闆的餐廳從去年至今，多次遭歹徒惡意砸店破壞，但無阻他支援反佔中運動的決心。
 
-If tomorrow all the things were gone
+偽共目前在香港明目張膽打壓異己，即使你是正當生意人，只要你支持學生運動，偽共就會「搞」你，其手段包含：
 
-如果明天我為之奮鬥了一輩子
+1. 在社交媒體上抹黑該餐廳藉支援學生為名賺黑心錢，不斷分化黃絲陣營，激化矛盾，讓群眾鬥群眾。
+2. 安排黑手打擊報復，公然伏擊該餐廳廚房主力員工，手法令人不齒。
 
-I’d worked for all my life
-
-的東西所有都化為烏有
-
-And I had to start again
-
-我不得不重新開始
-
-With just my children and my wife
-
-惟獨還有我的妻兒陪伴身邊
-
-I’d thank my lucky stars
-
-我要感謝我的幸運星
-
-To be living here today
-
-讓我今天還生活在這裡
-
-Where the flag still stands for freedom
-
-生活在一個旗幟仍象徵著自由的地方
-
-And they can’t take that away
-
-沒人能奪走那旗幟
-
-And I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在這裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛著她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-From the lakes of Minnesota
-
-從明尼蘇達的萬湖
-
-To the hills of Tennessee
-
-到田納西的群山
-
-Across the plains of Texas
-
-橫跨德克薩斯的平原
-
-From sea to shining sea
-
-從大西洋岸到太平洋
-
-From Detroit down to Houston
-
-從底特律到休斯敦
-
-And New York to L.A.
-
-從紐約到洛杉磯
-
-Well there’s pride in every American heart
-
-每一个美國人心中都充满驕傲
-
-And it’s time we stand and say
-
-是時候我們站起來說
-
-That I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛著她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-God bless this country
-
-上帝保佑這個國家
-
-And I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛着她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-*翻譯：【Dlrow】【Michelle】校對：【JoyJoy】字幕：【相機過熱啊】*
-
-*戰友之家玫瑰園小隊出品*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/05220658/29172ba2-b787-40ff-b82f-1a50bc06a228.jpg)圖1說明：龍門冰室昨晚發出的關於將今年月餅的銷售金額全部捐贈給「612人道支援基金」的公告![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/05220636/7bf3fa5a-a23c-49ca-8846-c8d04ff48fef.jpg)圖2說明：龍門冰室遭報復，尖沙咀分店一名廚房領班今早上班遇襲![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/05220648/142e91ab-b54a-45c1-ae54-96050ad3db08.jpg)圖3說明：每次遊行，龍門餐廳都有大量免費食物及飲品贈送给抗议民众，學生用餐一律免費
+**香港戰友：Tina報道**
 
 0
