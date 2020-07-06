@@ -1,69 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 莫談政治！香港金融專業人士依據《安全法》實施自我審查
-`2020-07-06 00:52 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/255201/)
+## 霹靂滅共時代：中共匪幫的死穴
+`2020-07-06 09:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/255591/)
 
-*新聞來源：Reuters《路透社》；*
+*作者：寒冰（文彰）*
 
-*作者：Sumeet Chatterjee, Scott Murdoch蘇媚.查特麗，斯科特.默多克*
+*校对：Julia Win*
 
-*翻譯/簡評：RachelX；校對：沐子璐璐；*
+*PAGE：玄天生*
 
-*Page：拱卒*
+6月30日上午中共僞政權在違反其幫内部規矩的情況下，召開了僞政權的所謂全國人民代表大會常委會，以閃電賭徒式的操作迅速通過了沒有公佈其内容的僞“港版國安法”。很快，匪首習近平就簽署了其49號主席令，簽署並“公佈”了僞“港版國安法”。緊接著，半夜十一點，港共走狗傀儡行政長官便簽署僞“港版國安法”並全文刊憲並實施。適時，只有中文版本**（還不是**個像樣子的中文版本**）**，第二日發佈的所謂英文版本還只是首頁和尾頁是英文版，中間部分全部是中文的一個荒唐文件。
 
-**簡評：**
+這一系列操作真正開始讓世界瞋目結舌！西方世界以及絕大多數國家從未見過如此操作。完全就是視**法律**和制度、規則為無物。對西方警告和制裁行動沒有“觸感”的置信的流氓行爲！中共匪幫第一次完全地在香港這個國際金融中心城市，向全球直播其流氓荒誕的表演。而這才僅僅是開始的第一天。
 
-隨著港版國安法的實施，曾經是世界四大金融中心之一的香港將徹底名存實亡，淪為中共統治下的另一個城市。 ‘一國兩制，五十年不變’，話音猶在，而’中英聯合聲明’已然被無恥的中共徹底撕毀。如果說去年的今天人們尚能竊竊私語，而今大家已然是風聲鶴唳，緘默不語。當勇敢的抗爭者不畏風險繼續走上街頭的同時，也有很多精緻的利己主義者選擇無視和沈默，他們沒有意識到的是，沉默並不能換來所謂的安全，而生存空間會隨著你的妥協而被擠壓殆盡。
+翌日，多年來第一次沒有獲得批准的”七一大游行，在僞“港版國安法”的陰霾下繼續舉行。是日，至少**38萬**香港市民依然勇敢地走上了街頭。偽法實行第一天，讓整個香港一夜之間就進入了荒誕政治小説一般地現實中：
 
-##  **莫談政治！香港金融專業人士依據安全法實施自我審查** 
+· 全天僞政權的非法警隊拘捕安善香港良民愈300人，其中包括3位區議員以及9名涉嫌違反國安法行為的；
 
-香港（路透社）- 一年前，在全球最大，最自由的金融中心之一的香港，不斷加劇的反政府示威活動曾是銀行家，律師和其他投資專家們談論的熱門話題。
+· 一名男子就因被搜出“獨立”旗幟而被捕；
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/f8ff8b9f-99a4-4dc6-99eb-5c536d868248.png?asset_id=caacdec2-3c9b-4cd9-a1d3-3eff80be739c&amp;img_etag=%22aeae46f5034130e77d10f8207b358e56%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/f8ff8b9f-99a4-4dc6-99eb-5c536d868248.png?asset_id=caacdec2-3c9b-4cd9-a1d3-3eff80be739c&amp;img_etag=%22aeae46f5034130e77d10f8207b358e56%22&amp;size=1024)
+· 一名示威者因帶有“光復香港、時代革命”標語的雨傘而被捕；
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/7bb5dee8-b074-4661-8e81-cd3fb4be682e.png?asset_id=79d0b4a3-d452-4e4b-854a-22a6172d8fb5&amp;img_etag=%225e2c44ccf3feb046abf3bada41f85a4d%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/7bb5dee8-b074-4661-8e81-cd3fb4be682e.png?asset_id=79d0b4a3-d452-4e4b-854a-22a6172d8fb5&amp;img_etag=%225e2c44ccf3feb046abf3bada41f85a4d%22&amp;size=1024)
+· 當日14：48 偽警隊指：有人叫喊“香港獨立、唯一出路”口號，涉嫌煽動或教唆他人分裂國家，有可能構成“港區國安法 ”的罪行。
 
-[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/95656941-4b43-4727-8e77-1a3513a0db76.jpg?asset_id=4589c554-f51d-442b-9368-5a6b81313908&amp;img_etag=%2256f3e1ad8030861cf8302b449f2d4127%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/95656941-4b43-4727-8e77-1a3513a0db76.jpg?asset_id=4589c554-f51d-442b-9368-5a6b81313908&amp;img_etag=%2256f3e1ad8030861cf8302b449f2d4127%22&amp;size=1024)資料圖片：2020年1月2日，從中國香港維多利亞山頂拍攝的香港天際線。 REUTERS/Navesh Chitrakar
+· 大批無辜安善市民被僞警隊任意包圍、搜查、進而抓捕。
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/69737ef0-baa6-4923-ba12-947a9b7b5747.png?asset_id=2e7118d9-5467-4511-97b6-72bfa47568c4&amp;img_etag=%22c4f1a092c5a67df2f9d0ef8e33d342a1%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/69737ef0-baa6-4923-ba12-947a9b7b5747.png?asset_id=2e7118d9-5467-4511-97b6-72bfa47568c4&amp;img_etag=%22c4f1a092c5a67df2f9d0ef8e33d342a1%22&amp;size=1024)
+· 落單市民更是被中共匪幫“蓋世太保”秘密抓捕；（**像圖中的樣子**）
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/888306dd-febd-4e59-9088-39de43235bc3.png?asset_id=d0585cbc-b2cf-48a2-9558-9ac9094518d0&amp;img_etag=%22034a852b7927a0168890b066d4a915cf%22&amp;size=3417)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/888306dd-febd-4e59-9088-39de43235bc3.png?asset_id=d0585cbc-b2cf-48a2-9558-9ac9094518d0&amp;img_etag=%22034a852b7927a0168890b066d4a915cf%22&amp;size=1024)
+· 更加惡劣的是記者因有所謂違法而被截查，偽警更是蓄意出動用水泡車攻擊記者；
 
-週四，在中共國對這座城市施行具有爭議的新國安法的兩天后，連銀針落地的聲音彷彿都依稀可聞。銀行家們對此三緘其口，甚至在電話或短信應用APP中都盡量避免提及該法，這足以表明它所引發的不安。
+以上這些還僅僅是僞“港版國安法”施行的第一天，隨後幾日更讓世界瞠目結舌的事情陸續發生。
 
-路透社採訪的六七位人士表示，他們選擇不與同事和外部聯繫人談論該法律對他們業務的影響，儘管他們各自服務的機構並沒有這樣的正式指令。
+· 7月1日 **《港警強光射舉「白紙」少女　蘇聯冷笑話揭暴政：政府認定你就有罪》**（立場新聞）
 
-該項全面的立法將這座半自治的城市，這個許多全球金融公司的地區總部所在地，推向了一條更加專制的道路。
+· 7月1日 **《最少 10 人涉違《國安法》被捕　家屬：兒子僅手機貼「光時」貼紙、袋藏文宣》**（立場新聞）
 
-該法律對分裂國家，顛覆政權，恐怖主義和勾結外部勢力進行定罪，最高可判處終身監禁。
+· 7月2日**《筲箕灣黃店遭警員上門恫嚇 貼文宣營業或違國安法》**（蘋果日報）
 
-[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/6c29faba-34ae-46c3-a97d-35b645484517.jpg?asset_id=f77e1055-04c9-4596-981f-6d7820731983&amp;img_etag=%227a751240e26b5f91c7b4ccf311420b93%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/6c29faba-34ae-46c3-a97d-35b645484517.jpg?asset_id=f77e1055-04c9-4596-981f-6d7820731983&amp;img_etag=%227a751240e26b5f91c7b4ccf311420b93%22&amp;size=1024)
+· 7月2日 僞港政府在其官網**《維護國家安全 切勿以身試法》**中宣佈：“「光復香港　時代革命」口號在現時是有「港獨」、將香港特區從中華人民共和國分離出去、改變特區的法律地位或顛覆國家政權的含意，社會大眾不應以身試法。”
 
-儘管該法案沒有直接影響金融部門，但其規定包括賦予特種警察部門更多的搜查，電子監視和資產查封的權力，這引發了一些專業人士的憂慮。
+· 7月3日 **《青年穿「FREE HONG KONG」T恤被捕 梁家傑：惡法影響言論自由》**（蘋果日報）
 
-**‘它可能會改變我們的溝通方式’**
+· 7月4日 **《警抽違《國安法》市民DNA樣本》**（獨立媒體）
 
-香港和中共政府官員都表示，該法律對於填補國家安全防禦體系的漏洞至關重要。過去一年來，針對香港政府和北京方面的抗議活動持續了數月，暴力衝突時有發生。
+如果這些行爲已經足夠的“玄幻”，那麽其僞“港版國安法”則可以用“突破天際’”突破底綫“來形容！其中，讓全球震驚的就是第“36~39”條。中共匪幫難以置信地將自己的法律管轄範圍“曠古絕今”地擴充到了全宇宙！如果不是掐一下自己臉還感覺到疼，都難以相信活在現實中！生活在西方法治文明的主流大國第一次親眼看到了“法律”兩個字完全被徹底地凌辱的場面。
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/ddfc0ef2-832b-418c-9d25-96a26826a0f9.png?asset_id=2667ba77-3b5c-4403-b8f3-8c84a4d34ee1&amp;img_etag=%22847f1d5cd34af5486dcc8c91dc0fe5ea%22&amp;size=2560)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/ddfc0ef2-832b-418c-9d25-96a26826a0f9.png?asset_id=2667ba77-3b5c-4403-b8f3-8c84a4d34ee1&amp;img_etag=%22847f1d5cd34af5486dcc8c91dc0fe5ea%22&amp;size=1024)
+短短五天，中共匪幫以令人難以置信的速度，在全球直播其徹底地邪惡政權的本質。當然，於此相對的，世界主流大國第一次10000%地確信了必須要消滅這個**純粹**的“流氓”與“魔鬼”。滅共行動也已超越中共瘋狂地速度加速進行著。
 
-但批評人士擔憂，這將破壞香港自由和獨立的法律體系，而該體係被視為香港成功成為金融中心，並在中共國與世界之間架設了橋樑的關鍵因素。
+僞“港版國安法”通過前一天，美國商務部長Wilbur Ross 就發佈了關於撤銷香港特別地位的聲明**（Statement from U.S. Secretary of Commerce Wil-bur Ross on Revocation of Hong Kong Special Status）**；而在想多方面上與川普總統站在對立方向的衆議院議長Nancy Pelosi 更在公開聲明中直言：“ **The Administration should work with Congress on an appropriate response which considers all tools available, including visa limitations and economic penalties**.(政府應與國會合作，做出適當回應，考慮所有可用工具，包括簽證限制和經濟處罰)”。這表明了在應對中共匪幫的威脅上民主黨不僅與共和黨達成了共識，而且試圖采取比共和黨更加主動積極的行動。美國國務卿Mike Pompeo在當日的例行記者會中目含怒色地説道：“（這）是對所有國家的侮辱！”
 
-一家地區保險公司的高管說：“我今天上午與新加坡同事通電話時，他們中的一位向我詢問了該法律及其對香港的影響。”和他的同事們一樣，因為該話題的敏感性，該高管拒絕透露姓名。
+緊接著，美國參衆兩院便以全票通過、光速通過了，被尊敬的文貴先生**稱**爲“落下的重锤”的——《香港自治法》。對超過21**家**中共國企和金融機構以及高管進行“强制性”地制裁！事實上，這種制裁方式在結果上導致了中共匪幫與美國的**完全金融脫鈎**！
 
-“我才開始說話，結果我老闆就拍了拍我的肩膀讓我回去工作。之後，我們在港的全體成員都被告知嚴禁在電話和社交媒體上就此發表意見。”
+筆者以爲，其中最重要的一點是，中共**匪幫**令西方人難以置信的滑稽行爲，只會喚醒這些主流國家的更多滅共的民意。在此基礎之上，會有越來越多的**政治**人物看到一點，那是可遇而不可求的機會，那是比BGY還要巨大的誘惑。中共匪幫不計後果的行爲，讓這些人看到了成爲華盛頓式的人物，名垂青史的機會！相信會有更多人看到這一點。一旦這一點深入人心。滅共就是一筆功成名就的政治資產！這是中共匪幫的BGY手段不再擁有最大的誘惑力。消滅你，就是我們所有人所需要的。這樣一個群虎撲食的局面，中共匪幫能堅持幾天呢？
+[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/0fe0e3d1-4238-427c-928d-57ea1d2268a6.jpg?asset_id=dec24a79-3b84-48fa-b4fa-be949f632bde&amp;img_etag=%22db9a1448e9ff2579a23e50768c7580c2%22&amp;size=3054)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/0fe0e3d1-4238-427c-928d-57ea1d2268a6.jpg?asset_id=dec24a79-3b84-48fa-b4fa-be949f632bde&amp;img_etag=%22db9a1448e9ff2579a23e50768c7580c2%22&amp;size=1024)
+作者：魯邦三世，以上言論僅代表個人觀點，與平臺無關。
 
-[!\[\](https://spark.adobe.com/page/GNHxAWRtNExCy/images/52a21c74-4fff-460f-b134-cf99df0818df.jpg?asset_id=d210d067-4af0-487b-827d-7147d5bc91a0&amp;img_etag=%2255121df8accae5d443ddcd370c0905d5%22&amp;size=1024)](https://spark.adobe.com/page/GNHxAWRtNExCy/images/52a21c74-4fff-460f-b134-cf99df0818df.jpg?asset_id=d210d067-4af0-487b-827d-7147d5bc91a0&amp;img_etag=%2255121df8accae5d443ddcd370c0905d5%22&amp;size=1024)
-
-儘管香港的大多數金融專業人士早就意識到出行到中共國時會受到世界上最先進的電子監控系統的跟踪，但他們表示在香港曾並沒有這種擔憂，也無需採取預防措施。
-
-某國際律師事務所的一名企業律師表示，從前英國殖民地人民的“溝通交流”方式恐怕將就此改變。
-
-“我認為有些人恐怕在使用Whatsapp和微信時會變得非常謹慎……作為一家公司，我們不會在公函上以任何形式涉及該法，但對於某些公司而言，這恐怕會成為問題。 ”
-
-一些專業人士表示，他們也在審查自己以前在社交媒體上發布的有關支持民主抗議和涉及安全法的帖子，並刪除了他們認為敏感的內容。
-
-一家歐洲銀行的駐香港高級理財經理表示，他的經理已經建議他盡量減少通過短信應用程序同本地客戶談論政治對市場的影響。
-
-一位正在咖啡廳安排會面的金融分析師表示，如果談話涉及新的國安法，則可能需要在更私密的地點舉行會議。
-
-“現在是隔牆有耳了，”他說道。
-
-[原文鏈接](https://uk.reuters.com/article/us-hongkong-protests-financial/no-politics-please-hong-kong-finance-professionals-impose-self-censorship-after-security-law-idUKKBN2431EM)
-
-#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/GNHxAWRtNExCy/) 】 
-
-
+编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/ygKh7mWQLJYb4/)
 
 0
