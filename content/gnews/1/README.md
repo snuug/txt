@@ -1,179 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新聞發布格林伍德和美國大兵的新版《上帝保佑美國》- 有望再成打榜歌曲！
-`2020-07-05 19:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254961/)
+## 韓國媒體報導：新中國聯邦戰友們在首爾舉行集會要求廢除香港國安法
+`2020-07-05 22:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/255146/)
 
-[福克斯新聞台於7月5日](https://www.youtube.com/watch?v=0Japc8M8RQw)，美國獨立日假期之際，上線了由美國著名鄉村音樂家李·格林伍德和美國空軍樂隊的大兵們聯合打造的新版《上帝保佑美國》。這種歌曲自從80年代早期首次發布以來，不斷刷新流行榜，包括在2001年的911襲擊之後的年底重回美國鄉村音樂流行榜前20名的寶座。川普總統也選中這首歌曲用在他2016年的總統競選活動和之後的各種活動中，並在2020年的選舉活動中繼續使用。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/05225322/cropped_image1-4.png)圖片來自推特
+據韓國媒體《NEWSIS》報導，7月5日，在韓國支持新中國聯邦的中國人在首爾市中心舉行集會，強烈批評了中共政府強行通過並實施的《香港國家安全法》。當天集會，他們舉起了象徵新中國聯邦的藍色背景上鑲嵌著黃色星星的旗幟。
 
-歌詞大意：
+7月5日下午，抗議中國共產黨政府，主張建立”新中國聯邦”的10多名中國人在首爾中區舉行記者招待會，高呼”要求立即廢除中國共產黨強制實行的香港國安法”。
 
-If tomorrow all the things were gone
+作為發言人出席當天記者招待會的A某說:”中共政府強行通過了香港保安法，國際社會也對這種行為反應激烈”。他接著補充說:”所以我們要求中國偽政權政府廢除香港國安法。”
 
-如果明天我為之奮鬥了一輩子
+該男子還說，1997年，香港回歸的時候，中共政府和英國政府簽署了聯合聲明，承諾保障香港自治50年不變，在但23年後的今天，中共政府卻違背了這一承諾”。
 
-I’d worked for all my life
+接著，他還高呼:”中共不顧700萬名香港市民的反對和國際社會的反對，通過了反人類的香港保安法，這是對全世界的民主秩序挑戰”。
 
-的東西所有都化為烏有
+中國從上月30日開始製定香港國安法，並從本月1日開始實行。香港國安法規定，禁止分裂國家，顛覆國家政權，恐怖活動，以及與外部勢力勾結的行為。輕罪可判處3年以下有期徒刑，重罪最多可判處終身監禁。
 
-And I had to start again
+香港根據1997年回歸中國時簽署的”一國兩制”宣言，承諾在2047年之前保障香港的自治權，但由於國安法的實施，這一承諾實際上已被打破。對此，世界各國紛紛發表批評聲明，支持”新中國聯邦”的中國人也走上街頭，批評香港保安法的實施。
 
-我不得不重新開始
+繼A某之後，作為發言者的一位女性高呼:”我們深知大韓民國的自由是通過流血和鬥爭創造出來的。我們也是為了向中共專制政府發出自由的聲音而站在這裡”。
 
-With just my children and my wife
+當天出席記者招待會的人員和參加者都對自己個人信息保密。他們大多由反對中國共產黨，追求民主主義的人士組成。某某A男士說:”反對香港國安法的集會已經持續了一個月，我們對中國共產黨沒有保障中國人的權利而感到憤怒，所以必須走上街頭髮聲吶喊。
 
-惟獨還有我的妻兒陪伴身邊
+另一方面，0他們支持的新中國聯邦是由郭文貴先生所倡導的。他們提出，要求推翻共產黨，組建重視自由，民主，法治的新一屆新中國聯邦政府。
 
-I’d thank my lucky stars
+評:參與文貴先生引領的爆料革命的朴昌海先生帶領了韓國戰友，攜新中國聯邦國旗再次登上了韓國新聞。感謝他們自去年六月以來堅持為香港發聲。新中國聯邦和郭文貴先生的名字再次登上新聞，相信接下來，郭先生所領導的爆料革命和新中國聯邦也將正式走到世界的舞台前，讓全世界人的見證下推翻中共偽政權的獨裁統治。
 
-我要感謝我的幸運星
+新聞來源：
 
-To be living here today
+[來源1](https://n.news.naver.com/article/003/0009950985) 
+ [來源2](https://n.news.naver.com/article/003/0009950939) [來源3](https://n.news.naver.com/article/005/0001338543)
 
-讓我今天還生活在這裡
-
-Where the flag still stands for freedom
-
-生活在一個旗幟仍象徵著自由的地方
-
-And they can’t take that away
-
-沒人能奪走那旗幟
-
-And I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在這裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛著她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-From the lakes of Minnesota
-
-從明尼蘇達的萬湖
-
-To the hills of Tennessee
-
-到田納西的群山
-
-Across the plains of Texas
-
-橫跨德克薩斯的平原
-
-From sea to shining sea
-
-從大西洋岸到太平洋
-
-From Detroit down to Houston
-
-從底特律到休斯敦
-
-And New York to L.A.
-
-從紐約到洛杉磯
-
-Well there’s pride in every American heart
-
-每一个美國人心中都充满驕傲
-
-And it’s time we stand and say
-
-是時候我們站起來說
-
-That I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛著她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-God bless this country
-
-上帝保佑這個國家
-
-And I’m proud to be an American
-
-我以身為美國人為榮
-
-Where at least I know I’m free
-
-在这裡我至少擁有自由
-
-And I won’t forget the men who died
-
-我不會遺忘那些陣亡的將士
-
-Who gave that right to me
-
-是他們賦予我這些權利
-
-And I gladly stand up next to you
-
-有幸與你站在一起
-
-And defend her still today
-
-至今仍然捍衛着她
-
-‘Cause there ain’t no doubt I love this land
-
-因為毫無疑問我挚愛這片土地
-
-God Bless the U.S.A.
-
-上帝保佑美國
-
-*翻譯：【Dlrow】【Michelle】校對：【JoyJoy】字幕：【相機過熱啊】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：Mc.DA 
+校對整理：瑞安平
 
 0

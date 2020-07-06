@@ -1,15 +1,179 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 259：港版國安法根本不是法律，是中共為其進入香港作惡開的綠燈，是時候對中共進行制裁了
-`2020-07-05 12:36 GM77` [轉載自GNews](https://gnews.org/zh-hant/254888/)
+## 福克斯新聞發布格林伍德和美國大兵的新版《上帝保佑美國》- 有望再成打榜歌曲！
+`2020-07-05 19:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/254961/)
 
-戰友之家新聞譯制組
-撰稿：GM64
+[福克斯新聞台於7月5日](https://www.youtube.com/watch?v=0Japc8M8RQw)，美國獨立日假期之際，上線了由美國著名鄉村音樂家李·格林伍德和美國空軍樂隊的大兵們聯合打造的新版《上帝保佑美國》。這種歌曲自從80年代早期首次發布以來，不斷刷新流行榜，包括在2001年的911襲擊之後的年底重回美國鄉村音樂流行榜前20名的寶座。川普總統也選中這首歌曲用在他2016年的總統競選活動和之後的各種活動中，並在2020年的選舉活動中繼續使用。
 
+歌詞大意：
 
+If tomorrow all the things were gone
 
-•中共在香港頒布的《國安法》根本就不是法律，而是利用西方的法律概念頒布的針對阻止西方政府反對中共在香港施暴的惡法。
-•如果美國社會不在香港事件上直面中共，那將重新上演1938年捷克國被蘇俄侵占的歷史。再不徹底對那些銀行進行制裁，不狠狠打擊中共的惡行，中共只會越來越得寸進尺。美國將承受更多的人死亡，更多的經濟損失。現在是時候讓美國政府和美籍華人團結起來反抗中共了。
+如果明天我為之奮鬥了一輩子
+
+I’d worked for all my life
+
+的東西所有都化為烏有
+
+And I had to start again
+
+我不得不重新開始
+
+With just my children and my wife
+
+惟獨還有我的妻兒陪伴身邊
+
+I’d thank my lucky stars
+
+我要感謝我的幸運星
+
+To be living here today
+
+讓我今天還生活在這裡
+
+Where the flag still stands for freedom
+
+生活在一個旗幟仍象徵著自由的地方
+
+And they can’t take that away
+
+沒人能奪走那旗幟
+
+And I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在這裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛著她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+From the lakes of Minnesota
+
+從明尼蘇達的萬湖
+
+To the hills of Tennessee
+
+到田納西的群山
+
+Across the plains of Texas
+
+橫跨德克薩斯的平原
+
+From sea to shining sea
+
+從大西洋岸到太平洋
+
+From Detroit down to Houston
+
+從底特律到休斯敦
+
+And New York to L.A.
+
+從紐約到洛杉磯
+
+Well there’s pride in every American heart
+
+每一个美國人心中都充满驕傲
+
+And it’s time we stand and say
+
+是時候我們站起來說
+
+That I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在这裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛著她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+God bless this country
+
+上帝保佑這個國家
+
+And I’m proud to be an American
+
+我以身為美國人為榮
+
+Where at least I know I’m free
+
+在这裡我至少擁有自由
+
+And I won’t forget the men who died
+
+我不會遺忘那些陣亡的將士
+
+Who gave that right to me
+
+是他們賦予我這些權利
+
+And I gladly stand up next to you
+
+有幸與你站在一起
+
+And defend her still today
+
+至今仍然捍衛着她
+
+‘Cause there ain’t no doubt I love this land
+
+因為毫無疑問我挚愛這片土地
+
+God Bless the U.S.A.
+
+上帝保佑美國
+
+*翻譯：【Dlrow】【Michelle】校對：【JoyJoy】字幕：【相機過熱啊】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
