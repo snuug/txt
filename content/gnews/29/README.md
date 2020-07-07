@@ -1,61 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霹靂滅共時代：中共匪幫的死穴
-`2020-07-06 09:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/255591/)
+## 香港教室裡將安裝監控設備
+`2020-07-06 10:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/255654/)
 
-*作者：寒冰（文彰）*
+*新聞來源：Breitbart《布萊巴特》*
 
-*校对：Julia Win*
+*作者：Ben Kew*
 
-*PAGE：玄天生*
+*3 Jul 2020 2020年7月3日*
 
-6月30日上午中共僞政權在違反其幫内部規矩的情況下，召開了僞政權的所謂全國人民代表大會常委會，以閃電賭徒式的操作迅速通過了沒有公佈其内容的僞“港版國安法”。很快，匪首習近平就簽署了其49號主席令，簽署並“公佈”了僞“港版國安法”。緊接著，半夜十一點，港共走狗傀儡行政長官便簽署僞“港版國安法”並全文刊憲並實施。適時，只有中文版本**（還不是**個像樣子的中文版本**）**，第二日發佈的所謂英文版本還只是首頁和尾頁是英文版，中間部分全部是中文的一個荒唐文件。
+*翻譯/簡評：Victory*
 
-這一系列操作真正開始讓世界瞋目結舌！西方世界以及絕大多數國家從未見過如此操作。完全就是視**法律**和制度、規則為無物。對西方警告和制裁行動沒有“觸感”的置信的流氓行爲！中共匪幫第一次完全地在香港這個國際金融中心城市，向全球直播其流氓荒誕的表演。而這才僅僅是開始的第一天。
+*校對：InAHurry*
 
-翌日，多年來第一次沒有獲得批准的”七一大游行，在僞“港版國安法”的陰霾下繼續舉行。是日，至少**38萬**香港市民依然勇敢地走上了街頭。偽法實行第一天，讓整個香港一夜之間就進入了荒誕政治小説一般地現實中：
+*Page：拱卒*
 
-· 全天僞政權的非法警隊拘捕安善香港良民愈300人，其中包括3位區議員以及9名涉嫌違反國安法行為的；
+**簡評：**
 
-· 一名男子就因被搜出“獨立”旗幟而被捕；
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/f8ff8b9f-99a4-4dc6-99eb-5c536d868248.png?asset_id=caacdec2-3c9b-4cd9-a1d3-3eff80be739c&amp;img_etag=%22aeae46f5034130e77d10f8207b358e56%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/f8ff8b9f-99a4-4dc6-99eb-5c536d868248.png?asset_id=caacdec2-3c9b-4cd9-a1d3-3eff80be739c&amp;img_etag=%22aeae46f5034130e77d10f8207b358e56%22&amp;size=1024)
-· 一名示威者因帶有“光復香港、時代革命”標語的雨傘而被捕；
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/7bb5dee8-b074-4661-8e81-cd3fb4be682e.png?asset_id=79d0b4a3-d452-4e4b-854a-22a6172d8fb5&amp;img_etag=%225e2c44ccf3feb046abf3bada41f85a4d%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/7bb5dee8-b074-4661-8e81-cd3fb4be682e.png?asset_id=79d0b4a3-d452-4e4b-854a-22a6172d8fb5&amp;img_etag=%225e2c44ccf3feb046abf3bada41f85a4d%22&amp;size=1024)
-· 當日14：48 偽警隊指：有人叫喊“香港獨立、唯一出路”口號，涉嫌煽動或教唆他人分裂國家，有可能構成“港區國安法 ”的罪行。
+子曾經曰過“始作俑者，其無後乎”，這些立法委的賣港敗類，都是土生土長的香港人，居然是由他們提出要在香港教室裝監控。這些王八蛋真的是該斷子絕孫。
 
-· 大批無辜安善市民被僞警隊任意包圍、搜查、進而抓捕。
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/69737ef0-baa6-4923-ba12-947a9b7b5747.png?asset_id=2e7118d9-5467-4511-97b6-72bfa47568c4&amp;img_etag=%22c4f1a092c5a67df2f9d0ef8e33d342a1%22&amp;size=1024)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/69737ef0-baa6-4923-ba12-947a9b7b5747.png?asset_id=2e7118d9-5467-4511-97b6-72bfa47568c4&amp;img_etag=%22c4f1a092c5a67df2f9d0ef8e33d342a1%22&amp;size=1024)
-· 落單市民更是被中共匪幫“蓋世太保”秘密抓捕；（**像圖中的樣子**）
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/888306dd-febd-4e59-9088-39de43235bc3.png?asset_id=d0585cbc-b2cf-48a2-9558-9ac9094518d0&amp;img_etag=%22034a852b7927a0168890b066d4a915cf%22&amp;size=3417)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/888306dd-febd-4e59-9088-39de43235bc3.png?asset_id=d0585cbc-b2cf-48a2-9558-9ac9094518d0&amp;img_etag=%22034a852b7927a0168890b066d4a915cf%22&amp;size=1024)
-· 更加惡劣的是記者因有所謂違法而被截查，偽警更是蓄意出動用水泡車攻擊記者；
+看到這則新聞，我首先想到了喬治奧威爾的《1984》描述的場景。中共國人民一直生活在《1984》中描述的“大洋國”而不自知。如今，我自幼就嚮往的東方之珠，亞洲金融中心，自由繁華的香港，居然也變成這樣。
 
-以上這些還僅僅是僞“港版國安法”施行的第一天，隨後幾日更讓世界瞠目結舌的事情陸續發生。
+教育是一個民族的文化傳承與發展的根本。中共國的很多人因為洗腦教育，離世界主流文明社會越來越遠。中共把我們中華民族的優秀品質都連根拔掉了。共產邪魔痛恨純潔，痛恨善良，它們不希望哪裡有什麼美德，希望大家都腐化透頂。奧威爾在《1984》裡說：“出身和教育養成的說話方式，就是一個不可逾越的障礙。” 這一點相信我很多在大陸受教育的人都深有體會。我們雖然已在盡力的去排除這種洗腦教育的餘毒，但很多時候不經意間一些下意識的說話方式，行為方式都是無法改變的。這也許要伴隨我們一生。我們在很多東亞人面孔中甚至不需要語言交流，就容易辨認出中共國的人，因為一切都寫在臉上。香港的遊行者，年輕孩子們之所以如此鐵骨錚錚，如此不畏強權，如此守法，守秩序，重大義而輕生死，也是教育的原因。
 
-· 7月1日 **《港警強光射舉「白紙」少女　蘇聯冷笑話揭暴政：政府認定你就有罪》**（立場新聞）
+所幸的是中共邪魔已經苟延殘喘，它們不會有機會去毒害香港的孩子們。
 
-· 7月1日 **《最少 10 人涉違《國安法》被捕　家屬：兒子僅手機貼「光時」貼紙、袋藏文宣》**（立場新聞）
 
-· 7月2日**《筲箕灣黃店遭警員上門恫嚇 貼文宣營業或違國安法》**（蘋果日報）
 
-· 7月2日 僞港政府在其官網**《維護國家安全 切勿以身試法》**中宣佈：“「光復香港　時代革命」口號在現時是有「港獨」、將香港特區從中華人民共和國分離出去、改變特區的法律地位或顛覆國家政權的含意，社會大眾不應以身試法。”
+##  **香港立法者：將在教室中安裝攝像頭監視對政權具有顛覆性的老師** 
 
-· 7月3日 **《青年穿「FREE HONG KONG」T恤被捕 梁家傑：惡法影響言論自由》**（蘋果日報）
 
-· 7月4日 **《警抽違《國安法》市民DNA樣本》**（獨立媒體）
+ [!\[\](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/d59d5d75-adb1-4298-b01b-be1a7ef61945.jpg?asset_id=8da3ceb1-7721-47b1-bdc7-5d7f603b6e42&amp;img_etag=%22de930105d55cfec12897667b517bd10e%22&amp;size=2560)](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/d59d5d75-adb1-4298-b01b-be1a7ef61945.jpg?asset_id=8da3ceb1-7721-47b1-bdc7-5d7f603b6e42&amp;img_etag=%22de930105d55cfec12897667b517bd10e%22&amp;size=1024)  48 Anthony Kwan/Getty Images Anthony Kwan/蓋蒂圖片
+週五，香港一位親共的立法會議員建議在教室安裝攝像頭，以防止教師在上課時發表顛覆性言論
 
-如果這些行爲已經足夠的“玄幻”，那麽其僞“港版國安法”則可以用“突破天際’”突破底綫“來形容！其中，讓全球震驚的就是第“36~39”條。中共匪幫難以置信地將自己的法律管轄範圍“曠古絕今”地擴充到了全宇宙！如果不是掐一下自己臉還感覺到疼，都難以相信活在現實中！生活在西方法治文明的主流大國第一次親眼看到了“法律”兩個字完全被徹底地凌辱的場面。
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/ddfc0ef2-832b-418c-9d25-96a26826a0f9.png?asset_id=2667ba77-3b5c-4403-b8f3-8c84a4d34ee1&amp;img_etag=%22847f1d5cd34af5486dcc8c91dc0fe5ea%22&amp;size=2560)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/ddfc0ef2-832b-418c-9d25-96a26826a0f9.png?asset_id=2667ba77-3b5c-4403-b8f3-8c84a4d34ee1&amp;img_etag=%22847f1d5cd34af5486dcc8c91dc0fe5ea%22&amp;size=1024)
-短短五天，中共匪幫以令人難以置信的速度，在全球直播其徹底地邪惡政權的本質。當然，於此相對的，世界主流大國第一次10000%地確信了必須要消滅這個**純粹**的“流氓”與“魔鬼”。滅共行動也已超越中共瘋狂地速度加速進行著。
+該評論是由張宇人，香港自由黨主席，在一次關於學校教材專題討論會上提出的。
 
-僞“港版國安法”通過前一天，美國商務部長Wilbur Ross 就發佈了關於撤銷香港特別地位的聲明**（Statement from U.S. Secretary of Commerce Wil-bur Ross on Revocation of Hong Kong Special Status）**；而在想多方面上與川普總統站在對立方向的衆議院議長Nancy Pelosi 更在公開聲明中直言：“ **The Administration should work with Congress on an appropriate response which considers all tools available, including visa limitations and economic penalties**.(政府應與國會合作，做出適當回應，考慮所有可用工具，包括簽證限制和經濟處罰)”。這表明了在應對中共匪幫的威脅上民主黨不僅與共和黨達成了共識，而且試圖采取比共和黨更加主動積極的行動。美國國務卿Mike Pompeo在當日的例行記者會中目含怒色地説道：“（這）是對所有國家的侮辱！”
+張宇人的黨派以期望經濟增長為由支持中共國對香港越來越多的干涉，辯稱攝像頭是必要的，因為範民分子將政治帶入學校，有“顛覆“國家政權的危險。
 
-緊接著，美國參衆兩院便以全票通過、光速通過了，被尊敬的文貴先生**稱**爲“落下的重锤”的——《香港自治法》。對超過21**家**中共國企和金融機構以及高管進行“强制性”地制裁！事實上，這種制裁方式在結果上導致了中共匪幫與美國的**完全金融脫鈎**！
+根據中共國本周強加於這個本該自治的地區的新“國安法”，任何被視為破壞北京利益的行為將被當作犯罪，可被判處至少10年監禁。
+ [!\[\](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/1fd38678-ddc9-4486-800b-a9331213b9a8.jpg?asset_id=358a08fc-2038-4952-9958-54d5cc86363f&amp;img_etag=%228e14dc1ae19f250868b0ea5ac3a324ea%22&amp;size=3968)](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/1fd38678-ddc9-4486-800b-a9331213b9a8.jpg?asset_id=358a08fc-2038-4952-9958-54d5cc86363f&amp;img_etag=%228e14dc1ae19f250868b0ea5ac3a324ea%22&amp;size=1024) 
+“我認為我們應該安裝攝像頭，因為這裡沒有什麼隱私內容；我們應該可以對教師的授課錄像，以便隨時檢查，這樣就可以知道教師是否把政治帶入教學中，是否企圖煽動顛覆政權等等，”張宇人說。
 
-筆者以爲，其中最重要的一點是，中共**匪幫**令西方人難以置信的滑稽行爲，只會喚醒這些主流國家的更多滅共的民意。在此基礎之上，會有越來越多的**政治**人物看到一點，那是可遇而不可求的機會，那是比BGY還要巨大的誘惑。中共匪幫不計後果的行爲，讓這些人看到了成爲華盛頓式的人物，名垂青史的機會！相信會有更多人看到這一點。一旦這一點深入人心。滅共就是一筆功成名就的政治資產！這是中共匪幫的BGY手段不再擁有最大的誘惑力。消滅你，就是我們所有人所需要的。這樣一個群虎撲食的局面，中共匪幫能堅持幾天呢？
-[!\[\](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/0fe0e3d1-4238-427c-928d-57ea1d2268a6.jpg?asset_id=dec24a79-3b84-48fa-b4fa-be949f632bde&amp;img_etag=%22db9a1448e9ff2579a23e50768c7580c2%22&amp;size=3054)](https://spark.adobe.com/page/ygKh7mWQLJYb4/images/0fe0e3d1-4238-427c-928d-57ea1d2268a6.jpg?asset_id=dec24a79-3b84-48fa-b4fa-be949f632bde&amp;img_etag=%22db9a1448e9ff2579a23e50768c7580c2%22&amp;size=1024)
-作者：魯邦三世，以上言論僅代表個人觀點，與平臺無關。
+“即使你要求校長或者學校管理層做檢查，老師們一旦看到檢查者過來，可以迅速切換到一個完全不同的話題，”他繼續道。
 
-编辑 [【喜马拉雅战鹰团】](https://spark.adobe.com/page/ygKh7mWQLJYb4/)
+同樣親共的黨派-民建聯（DAB）成員支持張宇人的言論。蔣麗芸（Ann Chiang）民建聯立法會議員，抨擊教育局“懦弱”，未能對學校施加更嚴密的監控，以保護學生不“被灌輸仇恨”。
+ [!\[\](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/630dfdf9-50fc-4f73-8da6-e9f99d9217fc.jpg?asset_id=6d36f7ad-5933-44bb-924f-01fecd69cf15&amp;img_etag=%229f79ee4538e4fc474217fedfb7e06b05%22&amp;size=2560)](https://spark.adobe.com/page/y8f5n7PrjNUOC/images/630dfdf9-50fc-4f73-8da6-e9f99d9217fc.jpg?asset_id=6d36f7ad-5933-44bb-924f-01fecd69cf15&amp;img_etag=%229f79ee4538e4fc474217fedfb7e06b05%22&amp;size=1024) 
+民建聯的葛珮帆（Elizabeth Quat）也支持這種觀點，聲稱很多家長向她抱怨說，很多教材煽動仇恨，因此應該被獨立委員會審查。
 
+這些觀點證明了中共國和其盟友如何計劃加強其在香港的獨裁控制，這違反了中共在1997年英國交接香港時承諾的“一國兩制”政策。在過去10年，香港主權問題因此成為全球關注的事情。為此，數百萬人走上街頭爭取他們的民主和自治權力。
+
+本週三，香港民眾不顧港府發布的，自2003年以來首次對年度七一遊行的禁令，再一次進行了大規模遊行。這次抗議引發了民眾和安全部隊的暴力衝突，因為警方使用水砲和胡椒噴霧攻擊抗議者。執法部門逮捕了數百人，部分認是以新《國安法》的罪名，包括“分裂國家，顛覆國家，恐怖主義”進行逮捕的。
+
+[原文鏈接](https://www.breitbart.com/asia/2020/07/03/hong-kong-lawmaker-place-cameras-in-classrooms-to-spy-on-subversive-teachers/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/y8f5n7PrjNUOC/)
+ 
 0
