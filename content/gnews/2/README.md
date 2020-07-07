@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 胡錫進又捅馬蜂窩——找死！
-`2020-07-06 16:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/255823/)
+## 部分在美中國留學生將面臨離境甚至遣返
+`2020-07-06 19:09 GM01` [轉載自GNews](https://gnews.org/zh-hant/255944/)
 
-作者：喜馬拉雅聯盟加拿大農場 龍井
+根據美國移民局的壹項最新公告，如果在美國的國際留學生就讀在線課程，他們將不得不離開美國或面臨驅逐出境。此舉可能會影響成千上萬到美國上大學或參加培訓課程以及非學術或職業學習的外國學生。根據statista.com數據顯示，18/19學年在美國共有369548名中國學生，其中部分留學生或將面臨離境甚至遣返，截止2020年7月全球超過壹千萬人感染共產黨病毒，更多人的生活因共產黨病毒的影響徹底改變。
 
-胡錫進旗下的《環球時報》7月4日撰文，吹噓中共在南海擁有多種防空武器，南中國海完全在中國人民解放軍的掌控之中，其中東風21和東風26 導彈是“航母殺手”，可隨時把美國的航母置於死地。
-![胡錫進突然呼籲&quot;放開防火牆&quot; 動機引人猜疑＊ 阿波羅新聞網](https://lh3.googleusercontent.com/ifEieJmWdK2RqjWllFR0C3war6UWJ7WvYYoUpxR354EfT4c75uEO4FAOOIhaFhJmsaPVHk6KtVJFTNIsybC-KMJRcv9aIXXd__l7B76nWhI5QLKBlnF2VsjtwCOUrQ)
-圖片來源：Rebelpepper on Twitter
+原文链接：[https://edition.cnn.com/2020/07/06/politics/international-college-students-ice-online-learning/index.html](https://edition.cnn.com/2020/07/06/politics/international-college-students-ice-online-learning/index.html)
 
-可是，胡總編可能萬萬沒想到，這個原本只想嚇唬嚇唬老美，安撫安撫百姓的“報導”，立刻引起了美國智庫及軍方的高度警覺，被認為是中共對美國的赤裸裸的威脅。
 
-據軍事科學專家薄博士介紹，按照《聯合國海洋公約法》的規定，任何在公海上被攻擊的船艦都有反擊的權利。而且，美國航母歷來被看作是美國本土的延伸，對美國航母的攻擊就是對美國本土的攻擊，也就等同於直接向美國宣戰，後果十分嚴重。
-
-次日，彭博社刊文警示：美中關係正進入“黑暗森林”。文章借用科幻小說《黑暗森林》的主題，告誡美國人民，美中之間的矛盾已發展成你死我活的鬥爭。
-
-對於《環球時報》的文章，退役將軍斯伯丁也發表了自己的看法，他在推文上說：“不是我們來決定是否與中國展開冷戰，而是中國早已向我們不宣而戰！”
-
-薄博士認為，中共在軍事實力遠不是美國對手的情況下，用這樣的文章喚起美國的意識覺醒，無疑是又一次捅了馬蜂窩——找死！
 
 0
