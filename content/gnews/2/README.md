@@ -1,48 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新研究表明：硫酸羥氯喹能“急劇”降低CCP病毒致死率
-`2020-07-07 12:56 GM10` [轉載自GNews](https://gnews.org/zh-hant/256838/)
+## 中共國用數據“提高畢業生就業率”
+`2020-07-07 17:52 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/256934/)
 
-**作者：Dogman**
+*新聞來源：《南華早報》；作者：Sidney Leng*
 
-亨利福特醫療體系（Henry Ford Health System）最新的研究表明(鏈接1)，硫酸羥氯喹能夠將CCP病毒致死率“急劇”降低，並且發現，參與研究的病人沒有出現心臟副作用。
+*翻譯/簡評：cathy r；校對：孫行者；Page：拱卒*
 
-亨利福特醫療體系與7月1日在《Journal of Infectious Diseases》上發表了同行審議的研究報告，分析了3月10日到5月2日入住其系統醫院的2541位病人數據，發現“13%使用了硫酸羥氯喹（簡稱HCQ）的病人去世”，而“未使用HCQ的病人去世占比為26.4%”，對比顯示使用HCQ可以將病人死亡概率降低50%！ 而且，這些病人沒有發現任何心臟異常現象。
+**簡評：**
 
-爆料革命路德節目於一月份就提出硫酸羥氯喹可以救治CCP病毒（鏈接2），而在後面多期節目中透露，硫酸羥氯喹不僅可以救命，還極有可能預防CCP病毒，因此硫酸羥氯喹的作用在爆料革命追隨者內部傳播甚廣，很多家庭甚至存儲HCQ以防萬一。
+面對疫情和其他原因造成的失業率暴增，就業市場形勢危機，為近年來最差，中共國沒有其他措施創造就業機會，而是在數據上動腦筋，“提高就業率”，把有網上副業如網上銷售，微信公眾帳號，網上游戲競技的學生都算作了已就業，真是掩耳盜鈴，讓人笑掉大牙。
 
-> 1月29日2020年 路江博时评，直播首次提供墨博士给出的信息，硫酸羟氯喹在关键时刻可以救命！如下图！
->  [https://t.co/dWxL8KNG3I](https://t.co/dWxL8KNG3I) 
-> 
-> 后面很多期节目都在面临巨大的质疑、压力，仍然不断告诉大家这个26人民币一盒的药可以救命！并且后面节目告诉大家怎么服用！
-> 
-> 再一次验证相信爆料革命一定可以保命！ [pic.twitter.com/fnO5IuWVKy](https://t.co/fnO5IuWVKy)
-> — 路德 (@ding\_gang) [March 19, 2020](https://twitter.com/ding_gang/status/1240745494588076034?ref_src=twsrc%5Etfw)
+##  **冠狀病毒：中共國調整畢業生就業率，** 
 
-但是，硫酸羥氯喹在救治CCP病毒的功效上，在全世界範圍內遭遇到了猛烈的攻擊，尤其是美國。今年3月份，美國FDA開放了HCQ的緊急使用權，但是與6月15日將此使用權撤銷，為美國醫生開放此藥救治CCP病毒造成了極大的法律隱患 (鏈接3)。而就在7月1日，FDA仍然警告公眾使用硫酸羥氯喹可能會導致心臟問題（鏈接4）。
+##  **使那些成為遊戲玩家，博客作者的學生找到“工作”** 
 
-美國醫生協會（AAPS）因為FDA阻礙病人獲得HCQ將其告上法庭，因為多項研究表明HCQ不僅安全，而且對於治療CCP病毒有著積極的作用（鏈接5）。
+[!\[\](https://spark.adobe.com/page/FR3z4bdIw64V1/images/9db3f4c4-61c2-4f6a-8dce-f23b8f200656.jpg?asset_id=c6099f55-dfde-436d-b028-3a9c82410573&amp;img_etag=%2278d37044dc73d783445ff76b1d71c57b%22&amp;size=2560)](https://spark.adobe.com/page/FR3z4bdIw64V1/images/9db3f4c4-61c2-4f6a-8dce-f23b8f200656.jpg?asset_id=c6099f55-dfde-436d-b028-3a9c82410573&amp;img_etag=%2278d37044dc73d783445ff76b1d71c57b%22&amp;size=1024)總計870萬中國大學學生將這個夏天畢業離校，但他們將進入長久以來最差的就業市場。照片：新華
 
-除此之外，有多項研究表明，服用硫酸羥氯喹對於治療CCP病毒有著積極的作用（鏈接6,7,8,9）。而此前柳葉刀雜誌上聲稱硫酸羥氯喹無效的文章已經被撤回（10）。
-
-為何HCQ針對CCP病毒潛在的療效，會被如此大規模的故意忽略呢？白宮的貿易辦公室主任彼得納瓦羅在接受戰鬥室節目采訪時說，“自從川普總統說使用硫酸羥氯喹可能安全有效的預防和治療CCP病毒開始，主流媒體就開始不遺余力的開始批鬥他和這個藥物了”（鏈接11）。截止發稿，世界範圍內感染CCP病毒人數為11790944 人，死亡541895人。將治病救人的藥物政治化，是對世界人民的犯罪。
-
-鏈接：
-
-1. [https://www.henryford.com/news/2020/07/hydro-treatment-study](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-2. [https://twitter.com/ding\_gang/status/1240745494588076034](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-3. [https://gnews.org/zh-hans/235145](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-4. [https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-5. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-6. [https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-7. [https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-8. [https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-9. [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-10. [https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(20)31180-6/fulltext](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-11. [https://www.youtube.com/watch?v=OXTtLLthLOY](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
+- 畢業生離開大學時找到競技玩家或博客作者的“工作”將被中共國算作已就業
+- 標準的改變激起了對北京試圖在就業市場惡化的時候為新畢業生就業率注水的懷疑
 
 
-（GTV：狗狗警察）
+中共國擴大了對870萬新的大學畢業生“就業”的定義，把那些開網店，玩網上競技遊戲或有博客的學生算在內，作為在冠狀病毒疫情之下增加就業率的部分努力。
+
+根據眾多多機構發布的一份的官方通告，教育部命令大學六月底在報告畢業生就業率時注意這一新的標準。
+
+這個世界第二大經濟體面對為學生創造足夠工作的巨大壓力下，誕生了這一變化。學生是這個國家經濟下滑的最脆弱群體之一。
+
+根據國家統計局，中共國調查的失業率在五月底是5.9%。分析師認為真正的失業率可能更高，因為國內多達2.9億的民工並沒有算在官方統計數據中。
+
+
+
+根據教育部6月29日通告，只要新畢業生開了電子商業網址，並能提供網上商店的鏈接和註冊信息，將被算為“已就業”。
+
+畢業生有自由工作，包括網上銷售，在即時通信平台微信上管理公眾帳號，參加電子競技將被定義為“靈活就業”，算在總體就業數字裡。
+
+這個變化馬上引起懷疑，北京試圖對新畢業生就業數字注水，把就業市場描繪得一片光明。
+
+“就業率又可以提高了。”對《人民日報》海外版在微博上發表的有關該話題的帖子，一條評論譏諷地寫道。
+
+“這是由於害怕數據太差？”另一條寫道。
+
+中共國正面臨因為疫情防止失業率暴增的歷史挑戰，由於疫情迫使很多公司裁員或凍結總人數以節約成本。
+
+數字創紀錄高的874萬年輕人將在這個夏天從大學和學校畢業，進入就業市場。
+[!\[\](https://spark.adobe.com/page/FR3z4bdIw64V1/images/6da65407-dde7-4f68-8649-9cba06adb66b.jpg?asset_id=70974d2b-d019-47d8-98e3-0c0ba2ef4b57&amp;img_etag=%22b927f38c81eeedf605734010801e5c36%22&amp;size=2560)](https://spark.adobe.com/page/FR3z4bdIw64V1/images/6da65407-dde7-4f68-8649-9cba06adb66b.jpg?asset_id=70974d2b-d019-47d8-98e3-0c0ba2ef4b57&amp;img_etag=%22b927f38c81eeedf605734010801e5c36%22&amp;size=1024)
+根據國家統計局五月份，調查得出年齡20到24歲人群的失業率——其中大多數是新畢業生——比四月份上升1.7%，比上一年增加3.3%。
+
+在1990年代末期，北京開始依據畢業生就業率排名教育機構。在2004年，中央政府開始包括靈活就業如作家和自由翻譯者。
+
+現在的畢業生就業率包含被企業僱用的人、新創業者、自由職業者或追求更高教育者。
+
+在五月底，在讓學校停止第二學位這個為期兩年的項目之後才一年，北京又引入了這個項目。
+
+這個第二學位項目，在1980年代首次引入，在最近幾年失去吸引力。但當疫情打擊了就業前景，它又被激活，為學生不能升級到研究生教育或不能到海外學習開發一條新路。
+
+根據教育部，中共國大學五月中旬的註冊人數比一年前增加51萬1000人，三分之一是研究生。
+
+[原文鏈接](https://www.scmp.com/economy/china-economy/article/3092001/coronavirus-china-tweaks-graduate-employment-rate-include)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/FR3z4bdIw64V1/)
 
 0
