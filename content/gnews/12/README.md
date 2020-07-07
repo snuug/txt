@@ -1,23 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 胡錫進又捅馬蜂窩——找死！
-`2020-07-06 16:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/255823/)
+## 香港政府公佈《國家安全法》第四十三條實施細則，於7月7日起生效
+`2020-07-06 23:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/256202/)
 
-作者：喜馬拉雅聯盟加拿大農場 龍井
+**《香港國家安全法》第四十三條細則總結：**
 
-胡錫進旗下的《環球時報》7月4日撰文，吹噓中共在南海擁有多種防空武器，南中國海完全在中國人民解放軍的掌控之中，其中東風21和東風26 導彈是“航母殺手”，可隨時把美國的航母置於死地。
-![胡錫進突然呼籲&quot;放開防火牆&quot; 動機引人猜疑＊ 阿波羅新聞網](https://lh3.googleusercontent.com/ifEieJmWdK2RqjWllFR0C3war6UWJ7WvYYoUpxR354EfT4c75uEO4FAOOIhaFhJmsaPVHk6KtVJFTNIsybC-KMJRcv9aIXXd__l7B76nWhI5QLKBlnF2VsjtwCOUrQ)
-圖片來源：Rebelpepper on Twitter
+1. **警方可以無搜查令，進入任何私人范圍搜查。**
+2. **警方可以限制任何被調查的人離境，需交出護照。**
+3. **凍結、沒收、充公財產。**
+4. **斷綱、封網。**
+5. **向外國及台灣組織索取涉港活動資料。**
+6. **秘密監聽截取任何通訊。**
+7. **強制合作，提供資料，設備與物料。**
 
-可是，胡總編可能萬萬沒想到，這個原本只想嚇唬嚇唬老美，安撫安撫百姓的“報導”，立刻引起了美國智庫及軍方的高度警覺，被認為是中共對美國的赤裸裸的威脅。
 
-據軍事科學專家薄博士介紹，按照《聯合國海洋公約法》的規定，任何在公海上被攻擊的船艦都有反擊的權利。而且，美國航母歷來被看作是美國本土的延伸，對美國航母的攻擊就是對美國本土的攻擊，也就等同於直接向美國宣戰，後果十分嚴重。
-
-次日，彭博社刊文警示：美中關係正進入“黑暗森林”。文章借用科幻小說《黑暗森林》的主題，告誡美國人民，美中之間的矛盾已發展成你死我活的鬥爭。
-
-對於《環球時報》的文章，退役將軍斯伯丁也發表了自己的看法，他在推文上說：“不是我們來決定是否與中國展開冷戰，而是中國早已向我們不宣而戰！”
-
-薄博士認為，中共在軍事實力遠不是美國對手的情況下，用這樣的文章喚起美國的意識覺醒，無疑是又一次捅了馬蜂窩——找死！
+***以下是香港政府7月6日晚上20點16分發布的[《香港國家安全法第四十三條實施細則》](https://www.info.gov.hk/gia/general/202007/06/P2020070600748.htm?fontSize=2)刊憲，於7月7日起生效：***
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/06232223/Screen-Shot-2020-07-07-at-1.21.24-pm.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/06232228/Screen-Shot-2020-07-07-at-1.21.55-pm.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/06230449/ddbc9786-4efe-4493-893c-6b3e592db5fb.jpg)圖片來源：政府新聞網圖片。香港中聯辦主任駱惠寧，駱即香港特區的黨委，回歸23年來，第一次公開公然和特區治港班子亮相，共同治理（鎮壓）香港。 ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/06230442/2b2c3a56-42a3-48e9-88c0-a8f0f76ef9e1.jpg)圖片來源：香港蘋果新聞網![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/06230445/383f89de-9eec-4a4b-a5e2-28c6f1695589.jpg)圖片來源：香港有線新聞網
+**新聞整理：【香港戰友Tina** 】
 
 0
