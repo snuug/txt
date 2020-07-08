@@ -1,49 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 或早在2013年，中共已將蝙蝠病毒用於重新編譯並制造COVID-19
-`2020-07-08 01:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/257319/)
+## 【爆料百科】G金融如何壯大
+`2020-07-08 03:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257175/)
 
-編撰：Jay、文哒
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/07225428/image5.png)
+作者：Gwiki
 
-- 2020年7月4日，《星期日泰晤士報》頭版新聞報道稱，一項調查發現，中共可能早在2013年就發現了類似CCP病毒的冠狀病毒。報道稱，科學家團隊在廢棄的礦場中發現該蝙蝠病毒。在該礦場工作的6名礦工感染類似CCP冠狀病毒相似的病狀，其中3人致死。其後，中共科學家團隊把相關病毒樣本儲藏在武漢病毒研究所的實驗室，而此次全球爆發疫情的來源地正是武漢。
+首先要明確，G金融絕對不同於任何一個地球上已經存在的金融體系。他的核心目的是為新中國聯邦賺錢，第二是讓戰友賺錢。 G金融完全可以讓機構投資占主導，但是郭先生永遠不會忘記戰友，哪怕因為這個耗費了無數精力、財力和人力。
+
+**方式**
+
+從郭先生的直播中，我們目前可以判斷G金融的壯大靠融資、盈利和利息收入（如下圖）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/07224943/image7.png)
+1. G實體的盈利。這是G金融的根基，如果G實體不能實現盈利，整個G金融就沒有了根基。話說回來，G實體不賺錢也不太可能。除非共產黨能把爆料革命滅掉。
+2. G-banks的盈利。 G-banks加入G金融後會新增全球戰友作op為用戶資源，盈利可期。
+3. 發行企業債券。七哥直播中談到有個機構（大概率是凱爾巴斯的機構）想要Gtv發債20億美元，結果七哥說有這麼好的企業債可以發給戰友（引用1）。 （七哥第一個想到的永遠是戰友）
+4. 發行股票提供融資。以Gtv私募股權為例：在2020年7月5日的直播中提到：拿到Gtv原始股的戰友可以拿著這個去借G-dollar、G-coin。這表明兩種虛擬幣具有了可操作的借貸屬性。
+5. G-club會員及資質。 G-club會員資格是限量的，也就是說後期會升值。買到之後（1-5萬美元不等），就可以當作抵押物去融資G金融的虛擬幣。並且5萬美元的會員可以自動獲得G金融借貸的無利息的1萬美元等值的1萬股G-fashion的原始私募股權資格。在郭先生7月5日的視頻中，提到可能會給其他額度的會員也進行免費的20%的私募股權無利息貸款。
+6. 幫喜馬拉雅農場融資壯大。喜農場成立實體公司，用G金融給喜農場融資，為農場經營提供金融支持。
+7. 代理。把戰友培養成機構。在Gtv的原始股投資中戰友之家（VOG）就相當於機構投資者的角色。這以後也會成為G金融融資的主要渠道之一。這是郭先生“以戰友為核心”的思想的延續。要把戰友培養成機構，成為新中國聯邦的堅實根基。
+8. 喜農場代理。喜農場不僅可以代理G金融融資，還可以作為區域性的G實體代理。 （引用2）
 
 
-- 2020年7月5日，Flinder大學教授Nikolai Petrovsky在澳洲的「天空新聞」稱，擔憂CCP病毒是武漢病毒研究所在2013年發現的蝙蝠病毒通過人工幹預制造出來的，他認為基因上最接近CCP病毒的是由武漢病毒研究所的研究人員在2013年發現的RaTG13病毒。
+引用1:[[文字版：郭先生2020年6月17日直播-GTV投资和查询股票及夏威夷会议及喜马拉雅农场，新中国联邦的巨大影响力](https://vog2020.blogspot.com/2020/06/2020617-gtv.html)]
 
+引用2:[[文字版郭先生6月28日GTV直播：香港问责法案最后一分钟被大打折扣；成功营救郝海东之子：GTV投资进展；中共对付新中国联邦的烂招](https://s.vog.media/Detail.htm?w=4a9921a4-cec4-4bf7-a1ba-853ddbeb790c&amp;K=%E4%BB%A3%E7%90%86)]
 
-
-
-相關視頻鏈接
-
-鏈接1: COVID-19是針對人類的完美病毒（2020年5月25日）
-
-
-
-鏈接2: 早在2013年蝙蝠病毒或已經用於制造COVID-19（2020年7月5日）
-
-
-
-相關媒體報道
-
-泰晤士報：《揭露過去七年 冠狀病毒從礦山死亡到武漢實驗室的蹤跡》
-
-[https://www.thetimes.co.uk/article/seven-year-covid-trail-revealed-l5vxt7jqp](https://www.thetimes.co.uk/article/seven-year-covid-trail-revealed-l5vxt7jqp)
-
-泰晤士報：《中國在2013年發現了類似Covid的病毒，並將其保存在武漢實驗室》
-
-[https://www.thetimes.co.uk/article/china-found-covid-like-virus-in-2013-and-kept-it-stored-in-wuhan-lab-pg05t5zq2](https://www.thetimes.co.uk/article/china-found-covid-like-virus-in-2013-and-kept-it-stored-in-wuhan-lab-pg05t5zq2)
-
-法廣新聞：《星期日泰晤士報 指中國或早在2013年就發現了新冠病毒 》
-
-[http://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200705-%E6%98%9F%E6%9C%9F%E6%97%A5%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%8A%A5-%E6%8C%87%E4%B8%AD%E5%9B%BD%E6%88%96%E6%97%A9%E5%9C%A82013%E5%B9%B4%E5%B0%B1%E5%8F%91%E7%8E%B0%E4%BA%86%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92](http://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200705-%E6%98%9F%E6%9C%9F%E6%97%A5%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%8A%A5-%E6%8C%87%E4%B8%AD%E5%9B%BD%E6%88%96%E6%97%A9%E5%9C%A82013%E5%B9%B4%E5%B0%B1%E5%8F%91%E7%8E%B0%E4%BA%86%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92)
-
-德國之聲：《英媒稱，中國科學家7年前或曾發現類似新冠病毒》
-
-[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B67%E5%B9%B4%E5%89%8D%E6%88%96%E6%9B%BE%E5%8F%91%E7%8E%B0%E7%B1%BB%E4%BC%BC%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/a-54068770](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B67%E5%B9%B4%E5%89%8D%E6%88%96%E6%9B%BE%E5%8F%91%E7%8E%B0%E7%B1%BB%E4%BC%BC%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/a-54068770)
-
-彭博社：《 星期日泰晤士報稱，類似Covid的病毒在2013年被送往武漢》
-
-[https://www.bloomberg.com/news/articles/2020-07-05/covid-like-virus-was-sent-to-wuhan-in-2013-sunday-times-says](https://www.bloomberg.com/news/articles/2020-07-05/covid-like-virus-was-sent-to-wuhan-in-2013-sunday-times-says)
+文章內容僅代表作者觀點
 
 0
