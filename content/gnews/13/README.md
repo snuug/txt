@@ -1,48 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新研究表明：硫酸羥氯喹能“急劇”降低CCP病毒致死率
-`2020-07-07 12:56 GM10` [轉載自GNews](https://gnews.org/zh-hant/256838/)
+## 7月7日中共病毒疫情要聞快報
+`2020-07-07 18:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/256985/)
 
-**作者：Dogman**
+**重要內容：**
 
-亨利福特醫療體系（Henry Ford Health System）最新的研究表明(鏈接1)，硫酸羥氯喹能夠將CCP病毒致死率“急劇”降低，並且發現，參與研究的病人沒有出現心臟副作用。
-
-亨利福特醫療體系與7月1日在《Journal of Infectious Diseases》上發表了同行審議的研究報告，分析了3月10日到5月2日入住其系統醫院的2541位病人數據，發現“13%使用了硫酸羥氯喹（簡稱HCQ）的病人去世”，而“未使用HCQ的病人去世占比為26.4%”，對比顯示使用HCQ可以將病人死亡概率降低50%！ 而且，這些病人沒有發現任何心臟異常現象。
-
-爆料革命路德節目於一月份就提出硫酸羥氯喹可以救治CCP病毒（鏈接2），而在後面多期節目中透露，硫酸羥氯喹不僅可以救命，還極有可能預防CCP病毒，因此硫酸羥氯喹的作用在爆料革命追隨者內部傳播甚廣，很多家庭甚至存儲HCQ以防萬一。
-
-> 1月29日2020年 路江博时评，直播首次提供墨博士给出的信息，硫酸羟氯喹在关键时刻可以救命！如下图！
->  [https://t.co/dWxL8KNG3I](https://t.co/dWxL8KNG3I) 
-> 
-> 后面很多期节目都在面临巨大的质疑、压力，仍然不断告诉大家这个26人民币一盒的药可以救命！并且后面节目告诉大家怎么服用！
-> 
-> 再一次验证相信爆料革命一定可以保命！ [pic.twitter.com/fnO5IuWVKy](https://t.co/fnO5IuWVKy)
-> — 路德 (@ding\_gang) [March 19, 2020](https://twitter.com/ding_gang/status/1240745494588076034?ref_src=twsrc%5Etfw)
-
-但是，硫酸羥氯喹在救治CCP病毒的功效上，在全世界範圍內遭遇到了猛烈的攻擊，尤其是美國。今年3月份，美國FDA開放了HCQ的緊急使用權，但是與6月15日將此使用權撤銷，為美國醫生開放此藥救治CCP病毒造成了極大的法律隱患 (鏈接3)。而就在7月1日，FDA仍然警告公眾使用硫酸羥氯喹可能會導致心臟問題（鏈接4）。
-
-美國醫生協會（AAPS）因為FDA阻礙病人獲得HCQ將其告上法庭，因為多項研究表明HCQ不僅安全，而且對於治療CCP病毒有著積極的作用（鏈接5）。
-
-除此之外，有多項研究表明，服用硫酸羥氯喹對於治療CCP病毒有著積極的作用（鏈接6,7,8,9）。而此前柳葉刀雜誌上聲稱硫酸羥氯喹無效的文章已經被撤回（10）。
-
-為何HCQ針對CCP病毒潛在的療效，會被如此大規模的故意忽略呢？白宮的貿易辦公室主任彼得納瓦羅在接受戰鬥室節目采訪時說，“自從川普總統說使用硫酸羥氯喹可能安全有效的預防和治療CCP病毒開始，主流媒體就開始不遺余力的開始批鬥他和這個藥物了”（鏈接11）。截止發稿，世界範圍內感染CCP病毒人數為11790944 人，死亡541895人。將治病救人的藥物政治化，是對世界人民的犯罪。
-
-鏈接：
-
-1. [https://www.henryford.com/news/2020/07/hydro-treatment-study](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-2. [https://twitter.com/ding\_gang/status/1240745494588076034](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-3. [https://gnews.org/zh-hans/235145](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-4. [https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-5. [https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-6. [https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-7. [https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-8. [https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-9. [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-10. [https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(20)31180-6/fulltext](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
-11. [https://www.youtube.com/watch?v=OXTtLLthLOY](https://www.henryford.com/news/2020/07/hydro-treatment-study https://twitter.com/ding_gang/status/1240745494588076034） https://gnews.org/zh-hans/235145 https://www.fda.gov/drugs/drug-safety-and-availability/fda-cautions-against-use-hydroxychloroquine-or-chloroquine-covid-19-outside-hospital-setting-or https://aapsonline.org/aaps-news-june-2020-aaps-sues-fda/ https://www.nbcphiladelphia.com/news/coronavirus/nj-mans-battle-with-covid-19-led-him-to-experimental-drug/2347792/ https://www.medrxiv.org/content/10.1101/2020.06.26.20056507v1 https://www.medrxiv.org/content/10.1101/2020.05.02.20080036v1 https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7185016/ https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2931180-6/fulltext https://www.youtube.com/watch?v=OXTtLLthLOY)
+- 美國或將禁止TikTok疫情加重墨爾本再次“封城”；
+- 中共作秀！李克強去貴州視察“災後”民情；
+- 貴州載有考生公交墜湖21人死亡！
+- 香港國安惡法細則出爐。
 
 
-（GTV：狗狗警察）
+
+
+製作：【上天造滅疫組】
 
 0
