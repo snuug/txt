@@ -1,49 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 或早在2013年，中共已將蝙蝠病毒用於重新編譯並制造COVID-19
-`2020-07-08 01:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/257319/)
+## 駐港秘密警察基地掛牌
+`2020-07-08 05:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257485/)
 
-編撰：Jay、文哒
+香港銅鑼灣維景酒店，今天火速變身為國安公署基地，門外牌匾正名為“中華人民共和國中央人民政府駐香港特別行政區維護國家安全公署”，即駐港秘密警察基地。
 
-- 2020年7月4日，《星期日泰晤士報》頭版新聞報道稱，一項調查發現，中共可能早在2013年就發現了類似CCP病毒的冠狀病毒。報道稱，科學家團隊在廢棄的礦場中發現該蝙蝠病毒。在該礦場工作的6名礦工感染類似CCP冠狀病毒相似的病狀，其中3人致死。其後，中共科學家團隊把相關病毒樣本儲藏在武漢病毒研究所的實驗室，而此次全球爆發疫情的來源地正是武漢。
+經過昨晚通宵趕工，今早七點，林鄭月娥、全國政協副主席梁振英及全國政協副主席董建華等人，為國安公署牌匾揭幕。林鄭月娥及中聯辦主任兼國家安全事務顧問駱惠寧發表演說。
 
+酒店外進行升國旗儀式。
 
-- 2020年7月5日，Flinder大學教授Nikolai Petrovsky在澳洲的「天空新聞」稱，擔憂CCP病毒是武漢病毒研究所在2013年發現的蝙蝠病毒通過人工幹預制造出來的，他認為基因上最接近CCP病毒的是由武漢病毒研究所的研究人員在2013年發現的RaTG13病毒。
+出席者包括政務司司長張建宗、律政司司長鄭若驊、警務處處長鄧炳強及全國政協副主席梁振英、全國人大常委譚耀宗、財政司司長陳茂波等人。
 
-
-
-
-相關視頻鏈接
-
-鏈接1: COVID-19是針對人類的完美病毒（2020年5月25日）
-
-
-
-鏈接2: 早在2013年蝙蝠病毒或已經用於制造COVID-19（2020年7月5日）
-
-
-
-相關媒體報道
-
-泰晤士報：《揭露過去七年 冠狀病毒從礦山死亡到武漢實驗室的蹤跡》
-
-[https://www.thetimes.co.uk/article/seven-year-covid-trail-revealed-l5vxt7jqp](https://www.thetimes.co.uk/article/seven-year-covid-trail-revealed-l5vxt7jqp)
-
-泰晤士報：《中國在2013年發現了類似Covid的病毒，並將其保存在武漢實驗室》
-
-[https://www.thetimes.co.uk/article/china-found-covid-like-virus-in-2013-and-kept-it-stored-in-wuhan-lab-pg05t5zq2](https://www.thetimes.co.uk/article/china-found-covid-like-virus-in-2013-and-kept-it-stored-in-wuhan-lab-pg05t5zq2)
-
-法廣新聞：《星期日泰晤士報 指中國或早在2013年就發現了新冠病毒 》
-
-[http://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200705-%E6%98%9F%E6%9C%9F%E6%97%A5%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%8A%A5-%E6%8C%87%E4%B8%AD%E5%9B%BD%E6%88%96%E6%97%A9%E5%9C%A82013%E5%B9%B4%E5%B0%B1%E5%8F%91%E7%8E%B0%E4%BA%86%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92](http://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200705-%E6%98%9F%E6%9C%9F%E6%97%A5%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%8A%A5-%E6%8C%87%E4%B8%AD%E5%9B%BD%E6%88%96%E6%97%A9%E5%9C%A82013%E5%B9%B4%E5%B0%B1%E5%8F%91%E7%8E%B0%E4%BA%86%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92)
-
-德國之聲：《英媒稱，中國科學家7年前或曾發現類似新冠病毒》
-
-[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B67%E5%B9%B4%E5%89%8D%E6%88%96%E6%9B%BE%E5%8F%91%E7%8E%B0%E7%B1%BB%E4%BC%BC%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/a-54068770](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B67%E5%B9%B4%E5%89%8D%E6%88%96%E6%9B%BE%E5%8F%91%E7%8E%B0%E7%B1%BB%E4%BC%BC%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92/a-54068770)
-
-彭博社：《 星期日泰晤士報稱，類似Covid的病毒在2013年被送往武漢》
-
-[https://www.bloomberg.com/news/articles/2020-07-05/covid-like-virus-was-sent-to-wuhan-in-2013-sunday-times-says](https://www.bloomberg.com/news/articles/2020-07-05/covid-like-virus-was-sent-to-wuhan-in-2013-sunday-times-says)
+據悉，從2014年佔中運動開始，維景酒店頂層一直是國安秘密駐點，這些國安人員以酒店作為掩飾，吃住工作都在酒店內，方便他們隱身；每次銅鑼灣有遊行活動，國安居高臨下用高清攝影機拍下重心人物。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08053811/Screen-Shot-2020-07-08-at-7.38.00-pm.png)圖片來源： [蘋果新聞網視頻截圖](https://hk.sports.appledaily.com/breaking/20200708/WETNTYV347UBVNAPMWNALP3OPU/) (圖為酒店外進行升國旗儀式) ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08054322/Screen-Shot-2020-07-08-at-7.43.13-pm.png)圖片來源： [蘋果新聞網](https://hk.sports.appledaily.com/breaking/20200708/WETNTYV347UBVNAPMWNALP3OPU/) （中共駐港秘密警察酒店基地掛牌） ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08051849/578fddf6-04b3-4e51-9881-74986df38c93.jpg)圖片來源： [https://www.lianapress.hk](https://www.lianapress.hk/media/userfiles/128732/1557367110/cache/metropark-hotel-causeway-bay-hong-kong-550x500.jpg) （圖為香港銅鑼灣維景酒店） ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08051909/a90bc99c-7aff-48e7-911b-2b94b94c2951.jpg)圖片來源： [By Fan](https://wkitty.tw/blog/post/30723342) （香港銅鑼灣維景酒店，箭頭指向的是國安公署基地辦事處） 
+新聞整理：【香港戰友】
 
 0
