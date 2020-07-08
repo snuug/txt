@@ -1,43 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共超限戰對全球的滲透及影響
-`2020-07-07 10:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/256724/)
+## 白宮將歡迎墨西哥總統7月8日的訪問
+`2020-07-07 18:13 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/256958/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/07091950/Picture-1-46.png)圖片來源：Dan Fleuette 
-根據大紀元時報（The Epoch Times）報導，為了悄無聲息的控制世界，中共以《超限戰》為軍事戰略，開啟了長達數十年的對美戰爭。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/07174435/WH_20200706_Mexico_photo169.png)
+摘要：2020年7月8日星期三，川普（Donald J. Trump）總統將迎接墨西哥合眾國總統安德烈斯·曼努埃爾·洛佩茲·奧夫拉多爾（Andres Manuel Lopez Obrador）到白宮訪問。兩國領導人將承認於具有歷史意義的《美國-墨西哥-加拿大協議》（USMCA）。該協議是有史以來最大，最公平，最平衡的貿易協定，其中包含一些創新條款，有助於增強該地區的全球經濟競爭力，發展經濟並支持美國的就業機會。
 
-《超限戰》1999年由中共軍旅作家喬良（Qiao Liang）和中共人民解放軍空軍大校王湘穗（Wang Xiangsui）撰寫，中共人民解放軍出版社出版，書中強調了中共不會用傳統的軍事打擊對抗美國（ [維基百科](https://zh.wikipedia.org/zh/%E8%B6%85%E9%99%90%E6%88%98) ）。中共會通過宣傳戰，文化戰，論戰，前沿作業，政治滲透，技術和電信戰，法律戰，經濟間諜，教育間諜，網絡戰，制裁戰，等手段滲透到美國的任何產業，如今僅暴露了冰山一角，潛藏的危險因素依然會對美國造成深遠的地緣政治影響。
+白宮聲明正文：
 
-**《超限戰》應用案例**
+**Statement from the Press Secretary on the Visit of His Excellency Andres Manuel Lopez Obrador, President of the United Mexican States**
 
-孔子學院就是由中共支持，滲透到美國大學校園，開展活動從而樹立中共高大的形象。孔子學院的目的是以外交政策，把中共捏造成一個超級經濟大國和文化大國。孔子學院已經引起美國關注，並被指控以宣傳中國語言和歷史為幌子來宣傳中共。
+**新聞秘書關於墨西哥合眾國總統安德烈斯·曼努埃爾·洛佩茲·奧夫拉多爾閣下訪問的聲明**
 
-哈佛大學化學系前任主席因從中共獲得資助並作出虛假陳述，被起訴犯有經濟間諜罪，盜竊商業機密和陰謀罪。
+Issued on: July 06, 2020
 
-另一案例中，41歲的張浩（Hao Zhang）為了中共的利益，企圖偷取兩家美國公司的商業機密，其中包含無線設備性能的相關信息。聯邦調查局（Federal Bureau of Investigation）特工約翰·本內特（John F. Bennett）對張浩案件表示，經濟間諜活動造成對全美國的普遍威脅。聯邦調查局稱，中共的千人計劃鼓勵從美國竊取知識產權，並通過高昂的薪水，先進的研究設施和賦予榮譽稱號，吸引海外人才為中共效力。此行為屬於竊取知識產權，並違反出口管制。為了有效的對抗中共的戰略，聯邦調查局局長表示，美國必須採取全社會回應。
+發布日期：2020年7月6日
 
-中共還向世界積極的推出華為，中興，抖音和Zoom等中資電信公司或應用軟件，想要以此從事間諜活動和控制當地輿論等行為。好在美國已經意識到這些中共旗下的公司對美國國家安全的威脅，聯邦通信委員會（Federal Communications Commission）主席阿吉特·派（Ajit Pai）指出華為，中興與中共軍事有著緊密聯繫，且很大程度上受中共的約束。聯邦通信委員會於6月正式將華為和中興指定為國家安全威脅，並禁止動用聯邦通信委員會的資金購買任何華為和中興的產品或服務。中共的抖音，Zoom軟件最近也被發現，秘密讀取用戶的剪貼板數據，並將加密的密鑰傳到中共的服務器。
+President Donald J. Trump will welcome President Andres Manuel Lopez Obrador of the United Mexican States to the White House on Wednesday, July 8, 2020, as part of their continued partnership on trade, health, and other issues central to regional prosperity and security. The two leaders will recognize the historic United States-Mexico-Canada Agreement (USMCA) that entered into force on July 1, 2020, and their shared effort to ensure North America continues strengthening its economic ties while working to combat the coronavirus pandemic.
 
-根據澳大利亞戰略政策研究所6月份的報告，中共調動數千個團體，針對政客，企業高管等人才精英，以海外華人社區為主要目標。從而開展對外國政治影響的行動，鎮壓反對方，收集情報，促成其他國家向中共轉讓科技，並試圖控制社區團體，商業協會和中文媒體。此行動會導致種族關係緊張，影響政治，損害媒體誠信，促進間諜活動。
+2020年7月8日星期三，川普（Donald J. Trump）總統將迎接墨西哥合眾國總統安德烈斯·曼努埃爾·洛佩茲·奧夫拉多爾（Andres Manuel Lopez Obrador）到訪白宮。這是他們在貿易，衛生以及其他對地區繁榮與安全至關重要的問題上持續夥伴關係的一部分。兩國領導人將承認於2020年7月1日生效的，具有歷史意義的《美國-墨西哥-加拿大協議》（USMCA），以及他們共同為確保北美在抗擊冠狀病毒大流行的同時，繼續加強其經濟聯繫所作的共同努力。
 
-**一帶一路，債務陷阱**
+The USMCA is the largest, fairest, and most balanced trade agreement ever negotiated and contains innovative provisions to help increase global economic competitiveness as a region, grow the economy, and support American jobs, including those in manufacturing and agriculture. Additionally, the USMCA includes groundbreaking provisions to address digital trade, services, small business, and more, which will protect America’s competitive edge in technology and innovation.
 
-中共通過一帶一路的戰略計劃，以基礎建設為藉口，向低收入國家注資數十億美元。自2013年以來，該計劃已開啟2900多個項目，總價值高達3.87萬億美元。中共的掠奪性貸款做法，使這些國家受到中共侵略性影響。然而這些低收入國家並不能滿足中共野心，中共2015年後又陸續推出各種計劃，企圖擴大目標，控制全球。
+《美墨加協議》（USMCA）是有史以來最大，最公平，最平衡的貿易協定，其中包含一些創新條款，有助於增強該地區的全球經濟競爭力，發展經濟並支持美國的就業機會，包括製造業和農業就業。此外，《美墨加協議》（USMCA）還包括解決數字貿易，服務，小型企業等方面的突破性條款，這將保護美國在技術和創新方面的競爭優勢。
 
-**CCP病毒**
+閱讀原文：[Statement from the Press Secretary on the Visit of His Excellency Andres Manuel Lopez Obrador, President of the United Mexican States](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-visit-excellency-andres-manuel-lopez-obrador-president-united-mexican-states/)
 
-一篇3月份發表的報告中，確定了中共正利用CCP病毒的全球傳播，來推進經濟目標，實現更大的野心。總部位於美國的獨立諮詢公司的一份報告稱，“中共打算利用全球的動盪和低迷來吸引外國投資，搶占戰略性市場份額和資源，特別是那些被迫依賴與中共的市場和資源。” 越來越多的國家對中共對疫情的處理不及時，以及對真相遮遮掩掩感到憤怒。
+*翻譯：【木木ANNA】校對：【恆久忍耐】*
 
-雖然疫情爆發時中共派遣了許多醫療專家並發放大量口罩和呼吸器給急需幫助的國家，想要以此來改善形象，但是中共交付的產品經常被證明是有缺陷的，很多國家收到的補給品是不能使用的。因此中共想要把自己偽裝成坑疫領導者，遭到了強烈的反對。該諮詢公司的報告還指出，中共權威人士明確表示， CCP病毒造成的經濟破壞和混亂使中共有機會擴大其在全球市場和供應鏈中的主導地位，無論是在實體經濟還是在虛擬領域。
-
-評：
-
-中共根據《超限戰》對全球所有國家暗地裡進行多方面的滲透。中共的各種政策，和CCP病毒都是由《超限戰》衍生出。中共自以為不和美國有軍事上的衝突，美國就不會有動作。然而殊不知中共以前的小動作，並未讓美國感受到疼痛，但是這次卻不一樣。中共向全世界釋放的病毒，對全球都造成了巨大的傷害，這不像以前偷點技術，佔點便宜那麼簡單。至今為止，全球因CCP病毒而死亡的人數已經接近55萬人，美國這次一定會聯合其盟友共同討伐中共。
-
-[原文鏈接](https://www.theepochtimes.com/communist-chinas-silent-war-against-america_3412704.html)
-
-翻譯報導：Chris 
-校對整理：晴天小螞蟻
+*戰友之家玫瑰園小隊出品*
 
 0
