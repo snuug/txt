@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亞將重新評估與香港的引渡條約
-`2020-07-08 16:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257912/)
+## 白宮對最高法院關於宗教自由的裁決的聲明
+`2020-07-08 23:32 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/258097/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08162952/cropped_image1-8.png)
-近日澳媒報導：自中共國強制推行港版國安法以來，澳大利亞一直旗幟鮮明地與西方民主正義國家站在一起譴責並反對該惡法，同時澳大利亞還積極地為香港人提供強有力的人道支持。上週7月2日在[Gnews上已經報導](https://gnews.org/zh-hans/251986/) ，澳大利亞秉承了前總理鮑勃·霍克(Bob Hawke)的人道領導精神(即在1989年北京天安門廣場屠殺發生後，澳大利亞向中國學生張開人道懷抱為他們提供了安全港簽證)，計劃向目前居住在澳大利亞的香港居民提供天安門式的安全港簽證。此外，據悉尼先驅晨報(The Sydney Morning Herald) 7月8日報導，澳大利亞政府將重新評估與香港簽署的引渡條約。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08232543/WH_Supreme_Court_ruling_Liberty_photo169-1.png)Photo by [Ben White](https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/church?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+[**Statement from the Press Secretary Regarding Supreme Court Ruling on Religious Liberty**](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-supreme-court-ruling-religious-liberty/)
 
-**重新評估原因**
+**新聞秘書關於最高法院關於宗教自由的裁決的聲明**
 
-報導指出，促使澳大利亞重新評估與香港的引渡條約的根本原因是中共國強制推行的港版國安法。該惡法旨在徹底鎮壓香港的民主抗議活動，以消除該活動對中共偽政權的威脅。目前的引渡條約有“無證據標準”(“no evidence standard”)，這意味著香港可以在不提供證據的情況下要求從澳大利亞引渡。而港版國安法應用廣泛，以至於在澳大利亞參加支持香港民主抗議活動的人們都可以被視為對中共國國家安全的威脅，從而遭到被引渡。報導還指出，如果澳大利亞政府有充分的理由相信指控是出於政治動機，那麼澳大利亞可以拒絕引渡請求。正因如此，由於中共國不透明的司法制度，特恩布爾政府(The Turnbull government)在2017年終止了與中共國更廣泛的引渡條約。
+Issued on: July 8, 2020
 
-**多方支持重新評估**
+發布日期：2020年7月8日
 
-重新評估與香港的引渡條約得到了澳大利亞多方的支持。首先，澳大利亞工黨前總檢察長馬克·德雷福斯(Mark Dreyfus)週三表示，澳大利亞現在與香港維持一項單獨的引渡條約可能站不住腳。其次，澳大利亞現任總檢察長克里斯蒂安·波特(Christian Porter)說，對引渡條約的重新評估是基於中共國對法律的修改。波特指出，中共國正在對香港使用一些更為嚴厲的法律，與幾個星期前相比，從法律上講香港現在是一個完全不同的地方，擁有一套不同的法律。基於此，澳大利亞最大的電信服務提供商澳洲電信(Telstra)週三也重新評估了其在香港設有數據中心的業務，因為港版國安法能以國家安全為由迫使他們提供用戶信息給中共偽政府。
+Today’s Supreme Court ruling is a big win for religious freedom and freedom of conscience. Almost a decade ago, the Obama administration attempted to force employers, including religious nonprofits like the Little Sisters of the Poor, an order of nuns, to provide contraceptive coverage to their employees, in violation of their religious beliefs. Twice before in this ongoing saga, the Supreme Court has blocked these overly rigid and misguided efforts and sided with religious freedom. Today, it has once again vindicated the conscience rights of people of faith.
 
-**中共回應蒼白無力**
+今天最高法院的裁決是宗教自由和良心自由的重大勝利。大約十年前，奧巴馬政府試圖強迫雇主其中包括非營利組織， “貧窮的小姐妹”, 是修女的命令，向僱員提供避孕保險。這項命令是違反宗教信仰的。在這場不斷上演的事件中，最高法院已經兩次阻止了這些過於僵化和誤導的努力，並站在支持宗教自由的一邊。今天，它再次彰顯了信仰者的良知權。
 
-面對澳大利亞針對港版國安法的表態與行動，中共國也給出了軟弱無力和無恥地回應。關於澳大利亞為香港人提供安全港簽證，中共回應稱港版國安法對於恢復香港商業信心以及保證其公民的安全是必要的，而澳大利亞為香港人提供安全港簽證無疑是對已經跌至低谷的中澳關係雪上加霜。本週二澳大利亞外交部警告前往中國和香港的澳大利亞人，稱他們可能會被中共非法抓捕。對此，中共國駐堪培拉(Canberra)大使館發言人狡辯稱這一說法荒唐可笑，說只要澳大利亞人遵守中共國法律，就不必擔心被捕。而事實並非如此，澳籍華裔學者、親民主運動人士楊恆均博士於2019年8月被中共非法逮捕，同時被中共妄加間諜罪和危害國家安全罪。此外，墨爾本演員兼勵志演說家卡姆·吉爾斯皮(Karm Gilespie)於今年6月在廣州被中共判處死刑，施加的罪名為“試圖走私7.5公斤冰毒。”
+Since Day One, the Trump Administration has sought to lift burdens on religious exercise for people of all faiths. As the Supreme Court has previously stated, protecting the ability of people to worship and live according to the dictates of their conscience is part of “the best of our traditions.” The Court’s decision today carries forward that noble tradition. This Administration will continue working to protect healthcare, including contraceptive healthcare, for the American people. Unlike the last administration, however, we have the courage of our convictions: We are allowing women who lack access to contraceptive coverage because of their employer’s religious beliefs or moral convictions to more easily access such care through the Title X program at little to no cost. Ensuring that women receive the healthcare they need does not require banishing religious groups that refuse.
 
-[原文鏈接](https://www.smh.com.au/world/asia/australia-poised-to-offer-tiananmen-style-visas-to-hongkongers-20200708-p55a5j.html)
+自第一天起，川普政府就一直在努力為所有信仰者們減輕宗教活動負擔。正如最高法院之前所指，保護人們按照自己良心的指引進行崇拜和行動的能力，“是我們最好的傳統”的一部分。最高法院今天的裁決繼承了這一崇高的傳統。本屆政府將為保護美國人民的醫療保健，包括避孕保險而繼續努力。然而，與上屆政府不同之處，我們有堅定信念的勇氣：我們允許那些因受到雇主的宗教信仰和道德信念不同而無法獲得避孕保險的婦女們，通過Title X計畫付費很少或免費獲得這種保健。確保婦女們在獲取她們所需要的醫療保健時，無須因拒絕放棄自己的宗教信仰作為交換條件而被社會所拋棄。
 
-翻譯報導：時晗
-校對整理：瑞安平
+*翻譯：【奔騰的長江】校對：【JennyL】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
