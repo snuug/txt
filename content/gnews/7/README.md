@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮對最高法院關於宗教自由的裁決的聲明
-`2020-07-08 23:32 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/258097/)
+## CCP滑向深渊——日本考虑取消习近平国事访问，香港国安法继续发酵
+`2020-07-09 03:03 GM77` [轉載自GNews](https://gnews.org/zh-hant/258363/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08232543/WH_Supreme_Court_ruling_Liberty_photo169-1.png)Photo by [Ben White](https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/church?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-[**Statement from the Press Secretary Regarding Supreme Court Ruling on Religious Liberty**](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-supreme-court-ruling-religious-liberty/)
+编撰：石本、文宝Porsche、映兰轩、台湾荔枝、Lori文哒
 
-**新聞秘書關於最高法院關於宗教自由的裁決的聲明**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/09025809/7.9-4.png)
 
-Issued on: July 8, 2020
+香港國安法及其實施細則出臺後，在國際社會進一步發酵。繼加拿大和澳大利亞先後終止與香港的引渡條約後，日本正考慮取消習近平的國事訪問。
 
-發布日期：2020年7月8日
+8月8日，日本眾議院議員、自民黨外務委員會委員長中山靖秀等人在首相府訪問了內閣官房長官菅義偉。 譴責CCP不顧香港民眾意願、完全違背立法程序、強行通過香港國安法並立即實施，提出停止習近平以國賓身份訪問日本的決議。官房長官菅義偉表示會 “認真對待”。
 
-Today’s Supreme Court ruling is a big win for religious freedom and freedom of conscience. Almost a decade ago, the Obama administration attempted to force employers, including religious nonprofits like the Little Sisters of the Poor, an order of nuns, to provide contraceptive coverage to their employees, in violation of their religious beliefs. Twice before in this ongoing saga, the Supreme Court has blocked these overly rigid and misguided efforts and sided with religious freedom. Today, it has once again vindicated the conscience rights of people of faith.
+據悉該決議草案原稿，曾包括“要求直接取消習近平對日本的訪問”的內容，但是遭到被自民黨秘書長二階俊博的強烈反對，修改為前面的版。並添加了“只代表外事委員會和外事研究委員會”，明確此議案不是自民黨的共識。
 
-今天最高法院的裁決是宗教自由和良心自由的重大勝利。大約十年前，奧巴馬政府試圖強迫雇主其中包括非營利組織， “貧窮的小姐妹”, 是修女的命令，向僱員提供避孕保險。這項命令是違反宗教信仰的。在這場不斷上演的事件中，最高法院已經兩次阻止了這些過於僵化和誤導的努力，並站在支持宗教自由的一邊。今天，它再次彰顯了信仰者的良知權。
+**編者觀點：**
 
-Since Day One, the Trump Administration has sought to lift burdens on religious exercise for people of all faiths. As the Supreme Court has previously stated, protecting the ability of people to worship and live according to the dictates of their conscience is part of “the best of our traditions.” The Court’s decision today carries forward that noble tradition. This Administration will continue working to protect healthcare, including contraceptive healthcare, for the American people. Unlike the last administration, however, we have the courage of our convictions: We are allowing women who lack access to contraceptive coverage because of their employer’s religious beliefs or moral convictions to more easily access such care through the Title X program at little to no cost. Ensuring that women receive the healthcare they need does not require banishing religious groups that refuse.
+此次由於香港國安法出臺，所有與香港簽署有引渡條約的國家都面臨重大選擇。
 
-自第一天起，川普政府就一直在努力為所有信仰者們減輕宗教活動負擔。正如最高法院之前所指，保護人們按照自己良心的指引進行崇拜和行動的能力，“是我們最好的傳統”的一部分。最高法院今天的裁決繼承了這一崇高的傳統。本屆政府將為保護美國人民的醫療保健，包括避孕保險而繼續努力。然而，與上屆政府不同之處，我們有堅定信念的勇氣：我們允許那些因受到雇主的宗教信仰和道德信念不同而無法獲得避孕保險的婦女們，通過Title X計畫付費很少或免費獲得這種保健。確保婦女們在獲取她們所需要的醫療保健時，無須因拒絕放棄自己的宗教信仰作為交換條件而被社會所拋棄。
+日本此次眾議院的決議，也將自民黨內部的矛盾公開化。
 
-*翻譯：【奔騰的長江】校對：【JennyL】*
+二階俊博是自民黨內部被CCP深度蘭金黃的典型人物，堅決主張與CCP的綏靖政策，出賣日本國家和民眾的利益。被二階俊博修改後決議，雖然取消了習近平以國賓身份訪問，但與CCP的關系仍然藕斷絲連，仍將為日本的未來埋下禍根。
 
-*戰友之家玫瑰園小隊出品*
+如果下一步美國政府宣布港幣脫鉤的一系列重大制裁措施，日本以前在中、美之間兩邊撈好處的綏靖政策將難以為繼，必須明確選邊站。
+
+安倍政府是繼續與邪魔為伍，還是幡然醒悟，站在正義的一方，我們拭目以待！
+
+原文鏈接：[https://www.jiji.com/jc/article?k=2020070800747&g=pol&utm\_source=top&utm\_medium=topics&utm\_campaign=edit](https://www.jiji.com/jc/article?k=2020070800747&amp;g=pol&amp;utm_source=top&amp;utm_medium=topics&amp;utm_campaign=edit)
 
 0
