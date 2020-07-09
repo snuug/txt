@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 駐港秘密警察基地掛牌
-`2020-07-08 05:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257485/)
+## 中共強行通過實施香港國安法，澳洲政府發布赴中國旅行風險提示
+`2020-07-08 09:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257569/)
 
-香港銅鑼灣維景酒店，今天火速變身為國安公署基地，門外牌匾正名為“中華人民共和國中央人民政府駐香港特別行政區維護國家安全公署”，即駐港秘密警察基地。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08085948/Picture-1-53.png)圖片來源：[https://www.bbc.com](https://www.bbc.com/zhongwen/trad/amp/chinese-news-44633401)
+據澳大利亞媒體近日報導，在北京對香港實施了國安法之後，澳大利亞在上週二（7月2日）發出了升級的旅行警告。澳大利亞升級了關於中國的旅行提醒，其中聲稱去中國可能存在拘留風險。中共駐澳大利亞（堪培拉）大使稱澳方這個說法很可笑。
 
-經過昨晚通宵趕工，今早七點，林鄭月娥、全國政協副主席梁振英及全國政協副主席董建華等人，為國安公署牌匾揭幕。林鄭月娥及中聯辦主任兼國家安全事務顧問駱惠寧發表演說。
+其實在過去一段時間，澳大利亞公民入中國境內以各種理由被捕屢見不鮮。
 
-酒店外進行升國旗儀式。
+- 澳籍華裔學者楊恆軍在入獄14個月後，於3月被起訴從事間諜活動。
+- 加拿大商人Michael Spavor和前外交官Michael Kovrig在6月份也被指控犯有間諜罪。
+- 澳大利亞演員兼勵志演說家卡姆·吉爾斯皮（Karm Gilespie）被控因試圖從中國走私7.5公斤冰於6月被判處死刑，至今仍在廣州監獄服刑。
 
-出席者包括政務司司長張建宗、律政司司長鄭若驊、警務處處長鄧炳強及全國政協副主席梁振英、全國人大常委譚耀宗、財政司司長陳茂波等人。
 
-據悉，從2014年佔中運動開始，維景酒店頂層一直是國安秘密駐點，這些國安人員以酒店作為掩飾，吃住工作都在酒店內，方便他們隱身；每次銅鑼灣有遊行活動，國安居高臨下用高清攝影機拍下重心人物。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08053811/Screen-Shot-2020-07-08-at-7.38.00-pm.png)圖片來源： [蘋果新聞網視頻截圖](https://hk.sports.appledaily.com/breaking/20200708/WETNTYV347UBVNAPMWNALP3OPU/) (圖為酒店外進行升國旗儀式) ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08054322/Screen-Shot-2020-07-08-at-7.43.13-pm.png)圖片來源： [蘋果新聞網](https://hk.sports.appledaily.com/breaking/20200708/WETNTYV347UBVNAPMWNALP3OPU/) （中共駐港秘密警察酒店基地掛牌） ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08051849/578fddf6-04b3-4e51-9881-74986df38c93.jpg)圖片來源： [https://www.lianapress.hk](https://www.lianapress.hk/media/userfiles/128732/1557367110/cache/metropark-hotel-causeway-bay-hong-kong-550x500.jpg) （圖為香港銅鑼灣維景酒店） ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08051909/a90bc99c-7aff-48e7-911b-2b94b94c2951.jpg)圖片來源： [By Fan](https://wkitty.tw/blog/post/30723342) （香港銅鑼灣維景酒店，箭頭指向的是國安公署基地辦事處） 
-新聞整理：【香港戰友】
+澳大利亞外交貿易部（DFAT）上週告訴近十萬名居住在香港以及計劃前往中國大陸的澳大利亞人，國安法的覆蓋範圍非常廣。香港警方已警告香港居民，無視主權的歌曲，旗幟和空白紙可能違反國安法。 “您可能無意中違反法律”，該國安部門說：“根據該法，香港最高刑罰為終身監禁。
+
+在澳大利亞的牛肉和大麥貿易等貿易被中共報之後的冠狀病毒大流行期間，中共外交部警告學生和遊客6月重新考慮前往澳大利亞的旅行，此前，在澳大利亞呼籲對COVID-19的起源進行獨立調查後，中方稱澳大利亞反華歧視激增，呼籲不要去澳大利亞。
+
+評：
+
+綜上所述，澳大利亞和中國之間已經緊張的雙邊關係不斷的激化，也會影響到旅遊、貿易等方方面面。但是澳大利亞在金錢和正義之間做出了選擇，選擇和世界上的民主國家美國、加拿大、英國等站在一起，選擇正義、追查病毒真相、支持香港人民！
+
+[原文鏈接](https://www.smh.com.au/world/asia/china-accuses-australia-of-disinformation-over-ridiculous-travel-warning-20200708-p55a6x.html)
+
+翻譯報導：天道酬勤
+校對整理：瑞安平
 
 0
