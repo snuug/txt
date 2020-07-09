@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮對最高法院關於宗教自由的裁決的聲明
-`2020-07-08 23:32 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/258097/)
+## 題目： FBI大量抓獲中共間諜，北京強迫異議人士回國
+`2020-07-09 02:41 GM77` [轉載自GNews](https://gnews.org/zh-hant/258269/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08232543/WH_Supreme_Court_ruling_Liberty_photo169-1.png)Photo by [Ben White](https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/church?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-[**Statement from the Press Secretary Regarding Supreme Court Ruling on Religious Liberty**](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-supreme-court-ruling-religious-liberty/)
+編撰:螞蟻甲、了凡、臺灣荔枝、Lori文噠
 
-**新聞秘書關於最高法院關於宗教自由的裁決的聲明**
 
-Issued on: July 8, 2020
 
-發布日期：2020年7月8日
 
-Today’s Supreme Court ruling is a big win for religious freedom and freedom of conscience. Almost a decade ago, the Obama administration attempted to force employers, including religious nonprofits like the Little Sisters of the Poor, an order of nuns, to provide contraceptive coverage to their employees, in violation of their religious beliefs. Twice before in this ongoing saga, the Supreme Court has blocked these overly rigid and misguided efforts and sided with religious freedom. Today, it has once again vindicated the conscience rights of people of faith.
 
-今天最高法院的裁決是宗教自由和良心自由的重大勝利。大約十年前，奧巴馬政府試圖強迫雇主其中包括非營利組織， “貧窮的小姐妹”, 是修女的命令，向僱員提供避孕保險。這項命令是違反宗教信仰的。在這場不斷上演的事件中，最高法院已經兩次阻止了這些過於僵化和誤導的努力，並站在支持宗教自由的一邊。今天，它再次彰顯了信仰者的良知權。
+美國聯邦調查局（FBI）局長表示，在習近平領導的一項脅迫計劃下，中共官員一直試圖強迫人們從美國返回中國。聯邦調查局局長克裏斯托弗-雷（Christopher Wray）在向一家智庫發表演講時，呼籲在美國的華裔人士：如果中共官員試圖強迫他們返回中國，請聯系聯邦調查局。
 
-Since Day One, the Trump Administration has sought to lift burdens on religious exercise for people of all faiths. As the Supreme Court has previously stated, protecting the ability of people to worship and live according to the dictates of their conscience is part of “the best of our traditions.” The Court’s decision today carries forward that noble tradition. This Administration will continue working to protect healthcare, including contraceptive healthcare, for the American people. Unlike the last administration, however, we have the courage of our convictions: We are allowing women who lack access to contraceptive coverage because of their employer’s religious beliefs or moral convictions to more easily access such care through the Title X program at little to no cost. Ensuring that women receive the healthcare they need does not require banishing religious groups that refuse.
+他指出習近平帶頭實施了一項名為 “獵狐 “的計劃，旨在壓制對北京政治和人權政策的批評。根據該計劃，特工們正試圖向那些被視為威脅的海外華人施壓。那些拒絕回去的人的家人將會受到威脅，而一些人已經在中國被逮捕。“獵狐”行動受害者中，有數百人生活在美國，其中許多人是美國公民或綠卡持有者。他還表示中共為達到這一目的所采取的手段令人震驚。
 
-自第一天起，川普政府就一直在努力為所有信仰者們減輕宗教活動負擔。正如最高法院之前所指，保護人們按照自己良心的指引進行崇拜和行動的能力，“是我們最好的傳統”的一部分。最高法院今天的裁決繼承了這一崇高的傳統。本屆政府將為保護美國人民的醫療保健，包括避孕保險而繼續努力。然而，與上屆政府不同之處，我們有堅定信念的勇氣：我們允許那些因受到雇主的宗教信仰和道德信念不同而無法獲得避孕保險的婦女們，通過Title X計畫付費很少或免費獲得這種保健。確保婦女們在獲取她們所需要的醫療保健時，無須因拒絕放棄自己的宗教信仰作為交換條件而被社會所拋棄。
+克裏斯托弗.雷提到了一個案例，他說中共政府派了一名使者到美國探望一位異議人士的家人。這位使者要求異議人士返回中國，否則他就必須選擇自殺。
 
-*翻譯：【奔騰的長江】校對：【JennyL】*
+克裏斯托弗.雷表示：中共正在使用間諜、網絡盜竊、勒索和其它手段，作為取代美國成為世界主導經濟和技術力量的戰略之一。FBI正在進行的近5000起活躍的反間諜案件中，有近一半與中共有關。現在FBI大約每10個小時就會有一起新的與中共有關的反間諜案件開庭。而此時此刻，中共正致力於損害美國醫療機構、制藥公司和進行CCP病毒重要研究的學術機構。特朗普政府的其他成員，包括司法部長和國務卿，將在未來幾周內對中共日益激進的行為采取行動。
 
-*戰友之家玫瑰園小隊出品*
+**編者觀點**
+
+中共多年來派出無數間諜，全面滲透到海外。除了藍金黃國外政要及各種機構，還瘋狂竊取美國技術，不斷侵害美國的利益。如今中共的惡行一步步被揭露，各國的制裁大棒也相繼揮起，讓中共感受到了前所未有的恐慌，以至於不惜調動大量間諜逼迫那些批評中共的異議人士回國，以此來壓制批評中共的浪潮。這些異議人士一旦回國便極有可能被中共強加上各種罪名進行迫害，劉曉波先生便是最典型的例子。
+
+這次中共在美國的行動，也讓美國看清了中共間諜活動的猖狂。美國如今一改過去隱忍不發的態度，開始積極清理抓捕那些潛伏在各行各業的中共間諜，而這個過程中發現的間諜行為也讓美國瞠目結舌。接下來，美國會公布更多的具體行動，而這些中共間諜也必將在美國的法律體系下逐個被繩之以法。
 
 0
