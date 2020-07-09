@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共官媒號召民眾購買股票 極速吸金散戶4600億美元
-`2020-07-08 16:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/257903/)
+## 白宮對最高法院關於宗教自由的裁決的聲明
+`2020-07-08 23:32 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/258097/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08162341/cropped_image1-7.png)圖片來源：Markus Winkler on Unsplash 
-根據《彭博社》報導，中共的嚴格資本管制限制了散戶的投資機會。 2020年的低利息，一些曾經火爆的理財產品第一次報損，這兩種情況造成了市場散戶投資人改為投資股票。進而中共的資本市場在一周前開始經歷一場前所未有的牛市，也幫助全球股票市場達到本月為止最高漲幅。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08232543/WH_Supreme_Court_ruling_Liberty_photo169-1.png)Photo by [Ben White](https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/church?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
+[**Statement from the Press Secretary Regarding Supreme Court Ruling on Religious Liberty**](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-supreme-court-ruling-religious-liberty/)
 
-最近的一次的中共股市泡沫破裂已經是在五年前了，所以過去一周以來的增長速度尚屬未知。僅週一的股價飆升就給中共股票市場帶來超過4600億美元的市場價值，這也是全球金融危機以來股東收益的最大增幅。
+**新聞秘書關於最高法院關於宗教自由的裁決的聲明**
 
-諾斯易斯證劵（Northeast Securities Co.）的分析師沈正陽（音譯Shen Zhengyang ）說，市場在激烈走高之後多數會平緩下來，尤其在大盤的增幅超出小盤太多的情況下。股市突然的增長提醒市場監管部門這裡可能有欺詐。但是這樣的股市維持很多機會，（很多）投資人會繼續的被甩在後面為市場的增幅墊底。
+Issued on: July 8, 2020
 
-週二市場攀升速度減緩。滬深300指數到收盤為止上漲0.6%，是自2015年7月以來的最高點，交易量是3個月全天平均交易量的3倍以上。離岸人民幣自3月份以來首次升值達到1美元兌換少於7元人民幣的兌換比例。週二在滬深300指數的10個行業組裡，消費必需品指數增長3.1%，表現最佳。貴州茅台酒公司（Kweichow Moutai Co.,）的股票價值，作為中共市值最大的股票，增長了5.5%。
+發布日期：2020年7月8日
 
-中共官媒體在早些時候曾發表觀點，號召民眾購買股票。 （在經歷了股市極速增長之後），週二，中共官媒卻勸導民眾謹慎投資。兩個新聞報紙呼籲投資者要謹慎，其中, 中共國訂閱量最多的財經出版物之一, 證劵時報（Security Times）說，投資人應該考慮到可能的風險，不要利用市場一夜暴富。
+Today’s Supreme Court ruling is a big win for religious freedom and freedom of conscience. Almost a decade ago, the Obama administration attempted to force employers, including religious nonprofits like the Little Sisters of the Poor, an order of nuns, to provide contraceptive coverage to their employees, in violation of their religious beliefs. Twice before in this ongoing saga, the Supreme Court has blocked these overly rigid and misguided efforts and sided with religious freedom. Today, it has once again vindicated the conscience rights of people of faith.
 
-危機感使得中共政權國債劇減。自今年一月以來，截至週一，中共國的國債收益率首次增長超過3%，這也是十年來第一次。中共10年期政府債卷收益率為3.02%。截止週一，中共國股市交易員還在指望股票市場繼續增長，以把市場槓桿擴大到超過1710億美元（1.2萬億人民幣），這將是2015年低以來的最高值。
+今天最高法院的裁決是宗教自由和良心自由的重大勝利。大約十年前，奧巴馬政府試圖強迫雇主其中包括非營利組織， “貧窮的小姐妹”, 是修女的命令，向僱員提供避孕保險。這項命令是違反宗教信仰的。在這場不斷上演的事件中，最高法院已經兩次阻止了這些過於僵化和誤導的努力，並站在支持宗教自由的一邊。今天，它再次彰顯了信仰者的良知權。
 
-評：疫情造成中共產業經濟萎靡，又因為老百姓對政府信心不足，盡量將資產轉移海外，中共經濟在短期內失血嚴重。為了撐住政權， 中共厚顏無恥，將最後的魔抓伸向了股市散戶。製造了過去一周的滬深股市暴增。利用人貪婪的心理，對有些積蓄的老百姓做最後的壓榨。共產黨統治崩盤的日子距離股市崩盤的日子不遠矣。
+Since Day One, the Trump Administration has sought to lift burdens on religious exercise for people of all faiths. As the Supreme Court has previously stated, protecting the ability of people to worship and live according to the dictates of their conscience is part of “the best of our traditions.” The Court’s decision today carries forward that noble tradition. This Administration will continue working to protect healthcare, including contraceptive healthcare, for the American people. Unlike the last administration, however, we have the courage of our convictions: We are allowing women who lack access to contraceptive coverage because of their employer’s religious beliefs or moral convictions to more easily access such care through the Title X program at little to no cost. Ensuring that women receive the healthcare they need does not require banishing religious groups that refuse.
 
-[原文鏈接](https://ca.finance.yahoo.com/news/eyes-china-unstoppable-stocks-460-015642119.html)
+自第一天起，川普政府就一直在努力為所有信仰者們減輕宗教活動負擔。正如最高法院之前所指，保護人們按照自己良心的指引進行崇拜和行動的能力，“是我們最好的傳統”的一部分。最高法院今天的裁決繼承了這一崇高的傳統。本屆政府將為保護美國人民的醫療保健，包括避孕保險而繼續努力。然而，與上屆政府不同之處，我們有堅定信念的勇氣：我們允許那些因受到雇主的宗教信仰和道德信念不同而無法獲得避孕保險的婦女們，通過Title X計畫付費很少或免費獲得這種保健。確保婦女們在獲取她們所需要的醫療保健時，無須因拒絕放棄自己的宗教信仰作為交換條件而被社會所拋棄。
 
-翻譯報導：匿名
-校對整理：瑞安平
+*翻譯：【奔騰的長江】校對：【JennyL】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
