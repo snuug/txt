@@ -1,28 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮對最高法院關於宗教自由的裁決的聲明
-`2020-07-08 23:32 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/258097/)
+## CCP滑向深淵——中澳關系步入歷史低谷
+`2020-07-09 02:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/258176/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/08232543/WH_Supreme_Court_ruling_Liberty_photo169-1.png)Photo by [Ben White](https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/church?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-[**Statement from the Press Secretary Regarding Supreme Court Ruling on Religious Liberty**](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-supreme-court-ruling-religious-liberty/)
+編撰：JAY（傑伊） 、臺灣荔枝、映蘭軒、文噠
 
-**新聞秘書關於最高法院關於宗教自由的裁決的聲明**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/09013956/7.9-1.png)
 
-Issued on: July 8, 2020
+澳洲政府今天（7日）警告公民，如果赴中國旅遊可能面臨遭「任意拘押」的風險，這是中澳兩國關系惡化的最新例證。
 
-發布日期：2020年7月8日
+政府提醒民眾「沒有意圖卻觸法」
 
-Today’s Supreme Court ruling is a big win for religious freedom and freedom of conscience. Almost a decade ago, the Obama administration attempted to force employers, including religious nonprofits like the Little Sisters of the Poor, an order of nuns, to provide contraceptive coverage to their employees, in violation of their religious beliefs. Twice before in this ongoing saga, the Supreme Court has blocked these overly rigid and misguided efforts and sided with religious freedom. Today, it has once again vindicated the conscience rights of people of faith.
+澳洲當局在這項最新的警告中說：「中國當局已以『危害國家安全』為由拘禁一些外國人，澳洲人可能也面臨遭任意拘押的危險。」
 
-今天最高法院的裁決是宗教自由和良心自由的重大勝利。大約十年前，奧巴馬政府試圖強迫雇主其中包括非營利組織， “貧窮的小姐妹”, 是修女的命令，向僱員提供避孕保險。這項命令是違反宗教信仰的。在這場不斷上演的事件中，最高法院已經兩次阻止了這些過於僵化和誤導的努力，並站在支持宗教自由的一邊。今天，它再次彰顯了信仰者的良知權。
+在香港問題上,7月2日澳洲總理莫裏森公開表示，正積極考慮「提供類似機會」，為香港人提供避風港。澳方這一表態可能導致近期日趨緊張的澳中關系進一步惡化。
 
-Since Day One, the Trump Administration has sought to lift burdens on religious exercise for people of all faiths. As the Supreme Court has previously stated, protecting the ability of people to worship and live according to the dictates of their conscience is part of “the best of our traditions.” The Court’s decision today carries forward that noble tradition. This Administration will continue working to protect healthcare, including contraceptive healthcare, for the American people. Unlike the last administration, however, we have the courage of our convictions: We are allowing women who lack access to contraceptive coverage because of their employer’s religious beliefs or moral convictions to more easily access such care through the Title X program at little to no cost. Ensuring that women receive the healthcare they need does not require banishing religious groups that refuse.
+**中澳過去的磨擦**
 
-自第一天起，川普政府就一直在努力為所有信仰者們減輕宗教活動負擔。正如最高法院之前所指，保護人們按照自己良心的指引進行崇拜和行動的能力，“是我們最好的傳統”的一部分。最高法院今天的裁決繼承了這一崇高的傳統。本屆政府將為保護美國人民的醫療保健，包括避孕保險而繼續努力。然而，與上屆政府不同之處，我們有堅定信念的勇氣：我們允許那些因受到雇主的宗教信仰和道德信念不同而無法獲得避孕保險的婦女們，通過Title X計畫付費很少或免費獲得這種保健。確保婦女們在獲取她們所需要的醫療保健時，無須因拒絕放棄自己的宗教信仰作為交換條件而被社會所拋棄。
+過去幾年，澳洲指控中共幹擾和滲透當地事務，多次成為輿論的焦點。
 
-*翻譯：【奔騰的長江】校對：【JennyL】*
+1. 「孔子教室」： 新南韋爾斯州政府的教育部門調查「孔子教室」，確保課程「沒有受不適當的外國影響」。
 
-*戰友之家玫瑰園小隊出品*
+2. 有關中國的學術討論 ：澳洲媒體指出應該關註中國使館對其留學生的影響，如是否令校園內的言論自由受到損害；中國官方及媒體則批評澳媒是「抹黑」。
 
-0
+3. 政治捐款： 澳洲傳媒報道，中國商人黃向墨直接或間接給不同的政黨捐款超過300萬澳元（約227萬美元），也曾聘請離任的國會議員到自己旗下的公司打工。
+
+4. 搶購奶粉：澳洲傳媒發現有中國顧客在當地大量購買幼兒配方奶粉，並以三倍價錢把它們在網上轉售到中國。以至澳洲連鎖超市限購奶粉。
+
+5. 臺灣地位爭議：中國政府要求在澳洲網站上列明臺灣是中國的一部份，引發澳洲甚至世界的關註。
+
+**中澳近期的磨擦**
+
+澳洲去年燃燒數個月的森林野火，帶給澳洲巨大的經濟損失，對生態環境的沖擊更是難以想象，更加雪上加霜的是，今年新冠病毒席卷全球，澳洲防疫水平雖然堪稱國際典範，但封鎖措施再度重挫國內經濟。
+
+與此同時，北京幾乎不加掩飾地開始抵制澳大利亞的商品，除了加征大麥關稅、暫停部份牛肉進口、祭出旅遊警示，還有發出留學警告，呼籲大陸學生「謹慎選擇」前往澳洲念書。也因政治因素遭中共國實施經濟反制,。
+
+**澳洲正邁向近30年來首次經濟衰退**
+
+澳洲就像其他自由民主國家一樣，面臨對中共國經濟依賴和自身價值觀之間的挑戰。
+
+澳洲是全球最依賴中共國的經濟體，對其出口占33%，中共國在過去十一年一直是澳洲最大的雙邊貿易夥伴。截至2019年6月的財年，對中商品和服務交易達到創紀錄的2350億澳幣（約新臺幣4.8兆元）。
+
+澳洲對中國出口鐵礦、煤和天然氣，另外教育、觀光業、農業和釀酒等產業也非常仰賴中共國市場。有經濟學家表示，但這些產品就像大麥，並非只有澳洲生產，因此其出口更容易受政治緊張關系影響。
+
+**強勢抗中，澳總理：不因脅迫出賣價值觀**
+
+莫裏森在2GB廣播電臺這樣說：「我們是開放貿易的國家，但我們永遠不會因任何一方的脅迫而出賣價值觀。」；『戰狼外交』並不利於中國的國際形象，而澳大利亞並不是唯一對中國目前的內政外交表示擔憂的國家。」
+
+澳洲國防部長雷諾茲（Linda Reynolds）7月2日直言，印太地區正面臨「自第二次世界大戰結束以來最重大的戰略調整」，因他國(意即中共國)愈來愈常動用不屬武裝沖突的「強制性手段」，包括網絡攻擊、外國幹預，以及介於戰爭與和平間的經濟施壓，加緊利用這種「灰色地帶」手段，「影響變幹預、經濟合作成強迫，而投資變成誘騙陷阱」。
+
+澳洲5月建立了一項研究該國供應鏈、國防、外交事務脆弱性的調查顯示：該國位於全球貿易路線末端、依賴實時供應鏈而難以承受損失或中斷，因此澳洲迫切需要建立自己的、「主權靈活」的供應鏈，包括制造業采用國內供應鏈、研發設施、高技能勞動力。這樣才能掌控關鍵產業、增強主權抵禦力、擺脫對中共國依賴。調查還指出，由於新冠肺炎帶來的沖擊，澳洲與中共國已經漸漸往「部分經濟脫鉤」邁進。
+
+莫裏森認為：澳洲與中國脫鉤不是孤立中國，而是在中美之間建立可持續的關系。貿易方面或許能維持與中國關系，而國防方面則選擇美國。世界可能分裂成「中共集團」，包括俄羅斯、多數東南亞地區、中東、非洲、部分拉美國家，及「美國集團」包括多數歐洲國家、拉丁美洲國家、部分亞洲國家。澳洲遲早必須選邊站隊。
+
+莫裏森的言論與十年前時任總理陸克文（Kevin Rudd）的概述不謀而合，他認為與中共國沖突是迫在眉睫的威脅，陸克文政府在《2009年國防白皮書》（2009 Defence White Paper）中指出：“中國軍事現代化的步伐、範圍和結構都有可能給鄰國以擔憂的理由。”
+
+**未來經濟脫鉤進而戰爭準備的趨勢**
+
+6月23號由澳、美、加、英、新西蘭組成的五眼聯盟，結束為期兩天的國防部長視頻會議後，發表聯合聲明：各國支持共同對抗惡意活動，確保印太地區自由開放。五眼聯盟的會議時間，也恰好是美、中、澳關系緊張的時刻。澳大利亞的軍費開支顯然承認是應對中國的挑戰。
+
+澳洲當局近期對新疆和香港人權議題產生疑慮、禁止華為參與5G網絡建設，並針對大陸涉嫌幹預內政進行辯論。這些眾多針對中共國的措施表明了澳洲對抗中共的真實意圖。
+
+有澳洲議員直言「中共國的霸淩威脅，不只是針對澳洲，也對英國、法國，這就是非常赤裸裸的敵對行為。」戰爭不再是不可想象的，而澳洲正在武裝自己。
+
+中共戰狼四處出擊,最終導致澳洲吹起了先鋒號。中澳關系未來將由經濟依賴到經濟分離,最後戰爭備戰，敵對的趨勢上越來越明顯，雙方關系逐步步入歷史低谷。
+
+1
