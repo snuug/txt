@@ -1,239 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統與墨西哥合眾國總統簽署聯合聲明
-`2020-07-10 02:53 GM31` [轉載自GNews](https://gnews.org/zh-hant/259111/)
+## 【揭穿】37種中共謊言-第三部分：新疆維吾爾自治區
+`2020-07-10 09:40 GM67` [轉載自GNews](https://gnews.org/zh-hant/259305/)
 
-唐納德·J ·川普總統於2020年7月8日星期三歡迎墨西哥合眾國總統安德烈·曼努埃爾·洛佩茲·奧布拉多到訪白宮。作為他們在貿易、衛生和其他對地區繁榮與安全的相關問題上繼續合作的努力，兩國領導人於華盛頓簽署了歷史性的《美國-墨西哥-加拿大協議》（USMCA），一式兩份，分別用英文和西班牙文書寫。
+英文原作者: 文真真 雨人
 
-在簽字儀式上，川普總統指出：「這個具有里程碑意義的協議將把無數的工作崗位從海外，帶回北美，我們各國將是最大的受益者。我們已經能看到因為它的開始而產生的成果。這是有史以來任何國家達成的最宏大、最公平、最先進的貿易協議，它將給美國、墨西哥和加拿大工人們帶來巨大的繁榮興旺。」 奧布拉多總統重申了該協議的重要性：「這項新的協議旨在通過加強我們的經濟一體化，和改善產業鏈的運作來扭轉這種不平衡，以恢復北美洲在過去50年中失去的經濟地位…這就是為什麼這個協議是一個很好的方案，可以產生與創造就業，以及不必離我們的家，城市，州和國家太遠就能促進貿易。換句話說，我國對世界其他地區的進口量可以在北美以較低的運輸成本生產，並有可靠的供應商，當然是更可靠的公司，以及更合理的利用地區勞動力…」
+英文新聞連結：[https://gnews.org/257687/](https://gnews.org/257687/)
 
+中文翻譯：文真真   Doco文鼎
 
+中英文編輯: GS Seamoon
 
-Rose Garden
+編者注：2020年7月2日，中共外交部在其官網上發表聲明，聲稱世界（主要是美國和西方國家）在與香港特別行政區，新疆維吾爾自治區和COVID-19疫情有關的多個問題上曲解中國，並發佈了37條具體的謬論予以否認。我們將通過有力的證據來一一揭穿這些謊言，現分為四期在GNEWS發表。 第三部分關於新疆維吾爾自治區的問題。
 
-玫瑰園
+- **中共謊言之十六：**
 
-3:45 P.M. EDT
 
-東部時間下午3:45
+**16-(1)** 中共將再教育集中營稱為 “職業教育培訓中心”。他們還否認拘留了超過一百萬的維吾爾人。
 
-PRESIDENT TRUMP:  Well, thank you very much, everyone.  It’s a nice hot day, to put it mildly — (laughter) — so we’ll make this quick.  But it’s all very positive — that, I can say.
+**反駁****:**中共一直否認集中營的存在，但是當真相刺穿他們編織的謊言時，他們改變了方針，從2018年下半年開始，改稱為“職業教育和培訓中心”。據研究新疆問題的最權威的學者鄭國恩（Adrian Zenz）的估計，在新疆1000多個各種形式的集中營2中拘留了大約180萬穆斯林少數民族的人口，其中包括新疆維吾爾族，哈薩克族，回族，和烏茲別克等族1。
 
-川普總統：嗯，非常感謝大家。說句不客氣的話，今天天氣真熱，所以我們會盡快結束。但我可以斷言，內容都是非常積極有利的。
+**16-(2)**中共故意美化這些拘留中心，稱其類似于美國社區矯正中心，英國抗拒與脫離計畫（DDP）和法國反激進中心。
 
-And it’s my tremendous pleasure to welcome everyone to the White House with my good friend, President López Obrador of Mexico.  We’ve had a very outstanding relationship.
+**反駁****:**  這完全是一個謊言。 美國社區矯正和英國抗拒與脫離計畫是針對已被定罪的人或服刑後的罪犯在社區環境中施加的制裁，作為監獄以外的另一種形式；法國的反激進中心是志願參加的。 然而，集中營中的維吾爾族人沒有犯任何罪也沒有開庭問訊過，就被中共奪走了自由，被鎖進鐵絲網圍繞的營房中。 中共稱他們為走在犯罪邊緣的人，而他們經常是因為以前留了絡腮鬍子或者跟國外的朋友有聯繫就被拘留3。 他們被迫留在集中營，穿著制服，每天要遵守嚴格的行為規則。 他們與家人失散，其子女被送往孤兒院。 甚至還有比罪犯更糟糕的，他們根本不知道什麼時候可以重新獲得自由。4,5
 
-我非常高興能和我的摯友墨西哥總統洛佩斯·奧布拉多一起歡迎大家來到白宮。我們的合作關係非常出色。
+**16-(3)**中共稱“百萬維吾爾人被拘押”純屬謠言。它聲稱，由美國政府支持的“中國人權捍衛者網路(CHRD)”僅僅通過對8個人進行採訪炮製出這個謠言。還指出鄭國恩（Adrian Zenz）是極右翼的原教旨主義者，僅僅依靠某一家電視臺的一篇報導得出了結論。
 
-Mr. President, we’re truly moved that you chose to make your first foreign visit since taking office — very successfully taking office, I might add — to be with us at the White House.
+**反駁****:**隨著越來越多的證據被發現，集中營可能是自納粹大屠殺以來最大規模的監禁。 中共當局洩露的檔6，英國BBC對被拘留者的家人和朋友的採訪7，鄭國恩博士的基於資料的報告8，以及新疆地區的空無一人的住宅和2018到2019年豎起來的高牆建築7,9。 比較2016至2019年的衛星圖片，可以清楚地看出這些集中營的建築物是怎樣平地而起的10。 中共沒法否認這些事實。
 
-總統先生，我們真的很感動，您選擇了來白宮與我們在一起作為自上任以來的第一次國外訪問。我還得說，非常成功的上任。
+中共還質疑人權研究者用來得出結論的樣本太小； 卻不知，正是由於中共的鎮壓才使得這些聲音和真相很難散佈到世界上。 英國BBC的記者在新疆進行採訪時，一天24小時的行蹤都被監督。 除中共允許的範圍外，不被允許收集任何資訊或單獨採訪。 所以他們不得不在中國領土之外採訪逃離到土耳其的維族人群。 只有滅掉共產黨，才能把真相暴露給世人，才能停止他們對少數民族聳人聽聞的虐待。
 
-The relationship between the United States and Mexico has never been closer than it is right now.  And as the President said a little while ago, people were betting against that.  They were actually betting against that.  But it’s never been stronger, never been closer.  We’re doing a tremendous job together.
+- **中共謊言之十七：**中共否認對少數民族實行政治灌輸和恐嚇。 它辯稱，建立教育營地是以教授語言文字，提供職業技能培訓和去極端化為主要內容，以説明他們找到穩定的工作。大多數學員結業後能夠獲得可觀的收入， 提升家庭生活水準。
 
-美國和墨西哥之間的關係從未像現在這樣密切。正如總統剛才所說的，人們都不看好兩國的關係。他們實際上在對賭。但它如今前所未有的強大，前所未有的緊密。我們在一起做了一件很了不起的事。
 
-We’re cherished friends, partners, and neighbors.  Our cooperation is founded on mutual trust and mutual respect between the two of us and between our two countries.  And we honor the great dignity of both nations.
+**反駁****:**  這是一個赤裸裸的謊言。這些再教育集中營可不僅僅是教育培訓中心那麼簡單。難民營中的許多人是教授，作家，詩人和其他受過高等教育的人10。建立這些營地就是是為了滅絕維吾爾文化。此外，一個營地的監管人員也承認存在有多種形式的營地，要根據學員的聽話程​​度來選擇營地3。鄭國恩博士說：“職業培訓集中營只是新疆非法拘禁的七八種形式中的一種，只有特別幸運的人才能進入職業培訓營，然後送去強迫勞動。還有許多其他形式的集中營與職業培訓無關，而是充滿洗腦，政治灌輸和恐嚇。這些集中營的操作很可能仍在進行中。”另外，所謂的“穩定工作”指的是自2019年以來新疆問題的最新情況。這是一種強迫勞動制度，甚至比拘留營更為“令人震驚”，即被迫接受軍事，政治和職業培訓以便在政府資助的公司中做工。被拘留的人失去了自由，家庭和基本人權，但是，根據中共的邏輯，即使沒有這些要素，少數民族群眾的生活也足夠好了。
 
-我們是珍貴的朋友、夥伴和鄰居。我們的合作建立在我們兩個人之間和我們兩個國家之間的相互信任和相互尊重的基礎上。我們尊重彼此國家的偉大尊嚴。
+- **中共謊言之十八：**中共把被拘留者成為學員，他們聲稱保障學員的基本人權，例如行動自由，宗教自由，通信自由以及語言自由等權利。嚴禁以任何方式對學員進行侮辱。
 
-With this visit, President López Obrador and I have the opportunity to strengthen the bond we afford since his impressive election victory more than two years ago — a victory the Vice President and Ivanka joined in celebrating at the swearing-in.  That was a very exciting day for them.
 
-通過這次訪問，自他兩年多前取得令人印象深刻的選舉獲勝以來，洛佩斯·奧布拉多總統和我有機會加強我們之間的關係，副總統和伊萬卡在您的宣誓就職時也一起慶祝了這一勝利。對他們來說，那是非常激動人心的一天。
+**反駁****:** 儘管中共非常擅長對新疆地區嚴格控制，並隱藏其邪惡行為的證據，我們還是在2017年和2019年看到了被洩露出來並發佈在互聯網上的檔，內容透露了集中營的管理規定。 建立這些集中營的目的是對穆斯林少數民族進行“思想轉變”。 由於營地中的人是被迫拘禁的，因此使用了全方位無死角的視頻監視，警報，鐵絲網，手機沒收，監督塔樓，檢查站和巡邏路線等方式來防止逃跑10。 根據RFA的維吾爾服務部，被拘留者“受到政治灌輸，監督人員經常性的的粗暴對待，並在人滿為患的設施中忍受不良飲食和不衛生的環境2。
 
-Each of us was elected on the pledge to fight corruption, return power to the people, and put the interests of our countries first.  And I do that and you do that, Mr. President.
+一位被拘留了15個月的女士這樣描述了她的經歷：她的座位是固定的，床位是固定的，時間表也是固定。 如果上廁所超過2分鐘，監管人員就會拿電棒敲打你的頭部，你就得乞求他說“對不起老師，我下次不敢了”。 這些令人震驚的規定即使在軍用監獄中也是罕見的11。 中共還致力於滅絕少數民族的母語和文化。 它不僅強迫成年人學習普通話，而且還把孩子帶到孤兒院，而他們稱之為寄宿學校，在僅有普通話的環境和愛黨的的教育中被撫養長大。鄭國恩博士說：“我發現了非常詳細的證據：這些寄宿學校的老師和學生，如果他們之間沒說中文，將受到非常嚴厲的懲罰。”中共的政權就像秦朝的暴政一樣。這在“和平與發展是世界主題的21世紀”簡直不可思議。
 
-我們每個人當選時都承諾要打擊腐敗，還權於民，並把我們國家的利益放在第一位。我正在做，您也正在做，總統先生。
+- **中共謊言之十九：**中共試圖用“沒有非中國人”來否認他們拘留其他國家的合法居民。
 
-The tradition of great respect between Mexican and American Presidents goes back to the early days of both of our nations.  And, in particular, it includes President Abraham Lincoln and President Benito Juárez, who each held one another in very, very high esteem.  They were great friends and they did great things together.  And we are grateful that, this morning, President López Obrador laid a wreath at the memorials that stand to each of these leaders, right here in our nation’s capital.  That was a very beautiful, beautiful ceremony.
 
-墨西哥總統和美國總統之間互相尊重的傳統可以追溯到兩個國家建國初期。特別是包括亞伯拉罕·林肯總統和貝尼托·華雷斯總統，他們彼此都非常、非常尊敬對方。雙方是莫逆之交並一起成就了赫赫功績。我們很感激他們，今日上午，洛佩斯·奧布拉多總統向這些領導人的紀念碑敬獻了花圈，這些紀念碑就立在我們的首都這裡。那是一個非常美好的，美好的儀式。
+**反駁**:   美國國務院表示，一些美國居民被關押在新疆的集中營中13。 據透露，2019年2月，有17名澳大利亞居民在前往中國探親的行程中被拘留。 這些人都是住在國外的中國人。 中共想要模糊“非中國人”與“非中國居民”兩個概念來推卸責任。
 
-Our countries are linked by trade and travel, by history and culture, by faith and family.  The United States is home to 36 million incredible Mexican American citizens.  Mexican Americans uplift our communities, and they strengthen our churches and enrich every feature of national life.  They are hardworking, incredible people.  They are also great business men and women, and make up a big percentage of our small-business owners — and very successful.  They’re very, very successful.  They’re like you: They’re tough negotiators and great business people, Mr. President.
+- **中共謊言之二十：**中共打著反恐的幌子，宣佈集中營與其他國家的反恐措施沒有什麼不同。 他們宣稱新疆已連續3年多未發生暴力恐怖案件。 他們得到了聯合國60多個國家的支援，並受到了70多個官方，媒體和宗教團體的訪問和稱讚。
 
-貿易和旅行、歷史和文化、信仰和家庭是把我們兩國相連在一起的紐帶。美國有3600萬不可思議的墨西哥裔美國公民。墨西哥裔美國人提升了我們的社區，他們增強了我們的教會，豐富了國人生活里的方方面面。他們是勤勞、非凡的人。他們同樣是精明能幹的商人，在我們的小企業主中佔了很大比例，而且非常成功。他們非常非常的成功。他們和您一樣，是強硬的談判者和精明的商人，總統先生。
 
-Working alongside President López Obrador, we’re taking this relationship to new heights and building a powerful economic and security partnership.  Together, we have addressed many of the most complex issues facing our two countries that really went unresolved for many years — and, frankly, far too long.  It should have been resolved long before I got here.  But we’re achieving great strides and remarkable breakthroughs in strengthening our relationship for decades to come.
+**反駁**: 中共以戰鬥恐怖主義的名義掩蓋了其種族滅絕的意圖。首先，《墨玉名單》透露了一些拘禁的理由：宗教人士，違反計劃生育者，留絡腮鬍子的男人，戴面紗的女人等15。還有新聞報導稱，下載whatsapp（美國一款社交軟體）或流覽國外網站也會被送入集中營。這些原因與恐怖主義毫無干係。其次，不走法律程式的拘禁，或沒有犯罪行為就將他們確定為恐怖分子是非法的行為。被拘留者沒有經過任何審判或指控，只是因為自己的種族被放進集中營。中共想要的是“一個國家一個種族”。此外，即使該種族有一小撮人犯下恐怖罪行也不能以以預防為名義，囚禁近200萬人——這是世界穆斯林人口的十分之一啊。中共踐踏人權，顯然是沒有底線的。實際上，中共才是危害無辜人民的最大恐怖組織。中共成功地影響了聯合國，並將許多附屬國納入了它的陣線。它買通了這些人為它發聲，為其在世界上的獨裁統治創造了安全的環境。
 
-我們正在與洛佩斯·奧布拉多總統一同努力，將我們的關係提升到新的高度，並建立起強大的經濟和安全夥伴關係。我們一起處理了我們兩國面臨的許多久懸不決的複雜問題，這些問題多年來確實沒有得到解決，而且坦率地說， 拖得太久了。早在我上任之前就應該解決了。但我們正在取得巨大的進步和顯著的突破，以加強我們未來幾十年的關係。
+- **中共謊言之****二十一：**新疆從未限制包括維吾爾族在內的人民的出行自由。新疆境內的任何人，只要不被指控為犯罪嫌疑人，就可以自由出國。新疆從未限制維吾爾族人及其海外親戚之間的交流。
 
-With everything that we have accomplished, the potential for the future of the United States and Mexico is unlimited.  Far, far greater situation, really, for both countries than anyone thought possible.
 
-以我們所取得的成就，美國和墨西哥的未來將潛力無限。對兩國來說，情況遠比任何人想象的要樂觀。
+**反駁****：**中共一直對新疆人民實行嚴格的出行控制。早在2016年，德國之音就引用了《環球時報》的一份報告，稱所有新疆居民必須向公安局提交護照，以備檢查和保管。新疆居民在領取護照和出國旅行之前必須獲得公安局的批准。通過這種方式，中共成功地限制了包括維吾爾在內的新疆居民的出行自由。中共一直在通過人力和技術壓制和監督新疆穆斯林為主的少數民族。根據2019年7月發佈的《紐約時報》的文章，該技術已擴展到訪客。所有陸路旅行者都必須在手機上安裝特定的APP。該應用程式收集包括SMS和位址簿在內的個人資料。它還會檢查設備是否攜帶特定的圖片，視頻，文檔和音訊檔。實際上，中共一直在密切監視新疆居民與海外人民的交流。它特別關注諸如通過VPN流覽外部網站以及下載外部消息傳遞應用程式之類的活動。
 
-Today we celebrate the historic victory we achieved together just days ago when NAFTA was officially terminated — one of the worst trade deals in history — and replaced with a brand-new, beautiful USMCA.
+- **中共謊言之二十二：**中共在新疆的主要道路和交通樞紐等公共場所安裝了監控攝像頭，以改善社會治安，預防和打擊犯罪。這些監控設施不針對任何特定種族和群體。他們也無法自動識別和定位特定的群體。實施這些措施的目的是威懾壞人並保護好人。
 
-今天，讓我們慶祝我們共同取得的歷史性勝利，就在幾天前，《北美自由貿易協議》已正式終止，這是歷史上最糟糕的貿易協議之一，取而代之的是一個全新的、精美的《美國-墨西哥-加拿大協議》。
 
-We want to thank Canada, also.  I spoke with and will be speaking to the Prime Minister in a little while.
+**反駁****：**2019年5月，《紐約時報》報導說，習近平上臺後，2012年新疆開始大規模購買電子監控和安保設備。 2017年，新疆的公共安全支出近84億美元，是2012年的6倍。中國的高科技公司海康威視贏得了價值至少290美元的相機和面部識別系統的合同。面部識別技術已被集成到中國快速發展的監控攝像頭網路中。它會根據其外觀專門識別維吾爾族，並記錄其下落以進行搜索和審查。警方現在正在使用面部識別技術，將一些東部城市（例如杭州和溫州）以及沿海省份福建的維吾爾族作為目標。根據採購檔顯示，中國16個省和地區的大約20個員警部門開始尋求一套智慧相機系統，該系統可支援面部識別並區分維吾爾族和非維吾爾族。
 
-我們也要感謝加拿大。對此我已與加拿大總理談過了，並在稍後繼續與總理交談。
+- **中共謊言之****二十三：**所謂的“強迫勞動”是反華勢力在美國和澳大利亞精心策劃的一場陰謀。作為中國勞動者的一部分，新疆少數民族勞動者享有法律賦予的權利。他們有選擇職業的自由，他們的個人自由從未受到限制。
 
-While NAFTA slashed wages and eliminated jobs, the USMCA includes groundbreaking labor protections for workers in both nations.  This landmark agreement will bring countless jobs from overseas, back to North America, and our countries will be very big beneficiaries.  We are already seeing the fruits because it started.  It’s the largest, fairest, and most advanced trade deal ever reached by any country, and it will bring enormous prosperity to both American and Mexican workers and Canada.  We want to thank everybody.  We’ll have a separate day with Canada.  They’re coming down at the appropriate time.  But we want to congratulate Canada and the people of Canada, the Prime Minister.
 
-雖然《北美自由貿易協議》削減了工資，消除了工作崗位，但《美國-墨西哥-加拿大協議》為兩國工人提供了突破性的勞動保護。這個具有里程碑意義的協議將把無數的工作崗位從海外，帶回北美，我們各國將是最大的受益者。我們已經能看到因為它的開始而產生的成果。這是有史以來任何國家達成的最宏大、最公平、最先進的貿易協議，它將給美國、墨西哥和加拿大工人們帶來巨大的繁榮興旺。我們要感謝大家。我們與加拿大將在另一天相約。他們會在適當的時候到訪。但我們仍要祝賀加拿大和加拿大人民，以及祝賀總理。
+**反駁****：**根據澳大利亞戰略研究所的最新報告，在2017年至2019年的“援疆”計畫下，據估計有80,000多維吾爾族人被迫離開新疆並在中國各地的工廠工作。維吾爾族工人直接從新疆的“再教育集中營”被送往中國各地。根據該報告，該數位仍是保守統計。這些維吾爾族工人通常在工作時間以外接受有組織的普通話和思想訓練。禁止他們參加宗教活動。這些人拒絕或逃避這些任務極其困難。此外，中共還獎勵那些組織人員活動的當地政府和勞務派遣機構。該報告包含三個案例研究。第一個案例是中國青島泰光鞋業有限公司，該公司從新疆招募了許多工人。該公司為美國品牌耐克（Nike）生產運動鞋。《華盛頓郵報》的記者參觀了位於山東萊西的這家工廠。據報導，這家工廠看上去像是一間裝有鐵絲網，瞭望塔，攝像機和派出所的監獄。 “我們可以四處走動，但不能回到自己的（新疆），”工廠的一名維吾爾族婦女透露。
 
-But this has been a tremendous achievement.  It’s actually the largest trade deal ever made.  And we made a big one with China too, but this is the largest trade deal ever made.
+- **中共謊言之****二十四：**新疆的清真寺數量從1978年的2,000多個增加到今天的24,400個。每530名穆斯林擁有一座清真寺，這是美國清真寺數量的10倍以上。清真寺的保護和修復對新疆至關重要。這些清真寺根據當地宗教團體的要求經過了翻新，重新安置和擴建。
 
-但這已是一個巨大的成就。這實際上是有史以來最宏大的貿易協議。我們和中國也達成了一個偌大的協議，但這才是有史以來最宏大的貿易協議。
 
-Our two governments are also in close cooperation to stop the illicit cross-border flow of drugs and guns, cash, and contraband, and very importantly, stopping human trafficking.
+**反駁****：**首先，我們需要澄清中共的言論。 1950年代初中共佔領新疆時，新疆的清真寺數量為29,500。文革後，新疆的清真寺數量急劇下降到2,900，然後逐漸恢復到24,000。 （引用“新疆清真寺的數量變化和管理政策分析”）中共一直擔心穆斯林對於信仰的堅持可能演變成極端宗教主義，從而公然蔑視其在中國的伊斯蘭規定。中共於2018年提出“伊斯蘭教化”，要求所有信仰必須服從中國文化和中國共產黨。清真寺的拆除已經在新疆各地進行。通過與調查報告網路Bellingcat的合作，《衛報》通過將Google Earth與衛星公司Planet Labs進行對比，找到了2016年的衛星圖像。到2018年，新疆至少有31座清真寺和兩個大型神社被中共摧毀或拆除。其中，有15座清真寺被中共徹底拆除，其餘16座清真寺則拆除了城門，圓頂和宣禮塔。諾丁漢大學教授Rian Thum長期研究了中國伊斯蘭教的發展。他在推特上說，中國政府對新疆聖地和清真寺的破壞是維吾爾文化遭到破壞的直接體現。他還寫道：“與中國政府在新疆推行的其他政策一樣，政府摧毀清真寺和神社的戰略不僅是摧毀現代維吾爾文化，而且是徹底摧毀其歷史和未來。”
 
-我們兩國政府也在密切合作，以制止毒品和槍支、現金和違禁品的非法跨境流動，而且非常重要的是，制止人口販賣。
+- **中共謊言之****二十五****：**新疆政府不對有喪葬習俗的少數民族實行火化。政府通過諸如分配專用土地和建立專用墓地等具體措施來保證這一點。對民族習俗沒有任何限制，例如婚禮，喪禮和命名。
 
-We’re forging critical partnerships across the Western Hemisphere to combat the cartels and the smugglers and to ensure safe, humane, and lawful migration.  And we’ve been helped greatly by Mexico on creating record numbers, in a positive sense, on our southern border.  It’s been really, very, very tight and done a great job.
 
-我們正在整個西半球建立重要的夥伴關係，用於打擊販毒集團和走私分子，以確保安全、人道和合法的移民。我們已經得到了墨西哥的鼎力相助，在我們的南部邊境創造了具有非常積極意義的紀錄。它真的是，非常，非常的嚴緊，十分的了不起。
+**反駁****：**最新調查顯示，新疆地方政府已拆除了100多個維吾爾族陵墓。維吾爾族人聲稱這是中共剷除維吾爾族種族文化的另一個藉口。據美國有線電視新聞網報導，根據衛星照片比較，中共已清除了60多個維吾爾族陵墓，其中大多數是在過去2年內發生的。在新疆和田市中心擁有1000多年歷史的蘇丹公墓也於去年4月被夷為平地。現在看來已成為停車場。公墓對任何文化都是有意義的，但中共卻無情地將其拆除。
 
-And I want to thank the Secretary, who’s here.  We have a — Chad, you’re here someplace.  Where is Chad?  What a good job you’re doing, Chad.  Great job.  We’re proud of you.  And you’ve worked very closely with Mexico.  I know you were just telling me what a great help they’ve been, right?  Thank you very much, Chad.
+- **中共謊言之****二十六****：**2016年，新疆政府開展了“國家聯合與家庭”和民族團結活動。超過110萬當地政府工作人員與160萬居民結為伴侶，結交朋友，幫助他們解決工作和生活中的實際困難。
 
-我想感謝我的（國土安全部）部長，他在現場。我們有… 查德，你在這裡附近。查德在哪裡？ 你做得很好，查德。很棒的工作，我們為你感到驕傲。你和墨西哥的合作非常密切。我知道你剛才就跟我說他們如何鼎力相助的對吧？ 非常感謝你，查德。
 
-We’ve also worked closely in the battle against the coronavirus, together saving countless — thousands of lives.  It’s been my honor to help Mexico procure 600 ventilators, and it’s going to be a higher number than that.  They needed them very badly, and we were able to make them.  We’re making thousands a week, and we’re helping a lot of countries.  But one of the first, and maybe the first that I spoke to, was Mexico.  We have a lot of them in Mexico saving a lot of lives.  And, Mr. President, we’re in this fight together, and we’re doing very well.
+**反駁****：**2016年10月上旬，中共在“國家聯合與家庭”活動的框架下，要求新疆行政事業單位的全體工作人員“與基層群眾相識”。人權觀察最近發表了一篇文章，該倡議開始時每兩個月約有11萬名官員負責訪問南疆的穆斯林居民。 2017年12月，當局動員了數百萬工作人員參加並與受所謂受幫助的居民一起住宿，吃飯，生活長達一周。在2018年初，中共要求工作人員定期與其家人住幾天。伊犁哈薩克自治州的所有幹部與居民在一起生活的時間需不少於8天，且必須每兩個月住五天。
 
-同時我們還在抗擊冠狀病毒的鬥爭中密切合作，共同輓救了無數的，成千上萬的生命。我很榮幸能幫助墨西哥置備了600台呼吸機，而且未來會比這個數字更多。他們急其需要它們，而我們能夠製造它們。我們每周製造數千台，我們幫助了很多國家。但其中的一個，也許是第一個與我溝通的，是墨西哥。我們為墨西哥提供了很多並拯救了很多人的生命。而且，總統先生，我們在這場戰鬥中並肩作戰，而我們做得非常好。
-
-Just a couple of things on that: I’m proud to further announce that the U.S. is, by far, number one in testing — number one in the world in testing — and that the mortality rate is the lowest, or just about the lowest of any nation anywhere in the world.
-
-關於這一點我想說幾句：我可以自豪地宣佈，迄今為止，美國在測試方面是第一的，是世界第一的，死亡率也是最低的，或者說是世界上所有國家中最低的。
-
-And we’re safely reopening our country, and very importantly, we’re safely reopening our schools.  We want the schools to be open and going in the fall.  And most of them, I think, are looking at it that way.  It’s very important.  We’re finding out that learning by computer is not as good as learning in the classroom or learning on the campus.  And I think you’re finding that too.  We want to learn in the classroom.  So, our schools — we want them open in the fall.
-
-而且我們正在安全地重新開放我們的國家， 而且非常重要的是，我們正在安全地重新開放我們的學校。我們希望學校能在秋季開學。我想，他們中的大多數人都是這麼想的。這是非常重要的。我們發現用電腦學習不如在教室里學習或在校園裡學習。我想你們也發現了這一點。我們希望在課堂上學習。所以，我們希望學校能在秋季開學。
-
-Following President López Obrador’s remarks, we’ll sign a joint declaration committing ourselves to a shared future of prosperity, security, and harmony.  This is truly a proud moment in history for both of our nations, Mexico and the United States.
-
-在洛佩斯·奧布拉多總統講話之後，我們將簽署一項聯合宣言，承諾建立繁榮、安全與和諧的共同未來。對於我們兩國來說，這確實是一個令人驕傲的歷史時刻。
-
-With this signing, we pledge the close and continued friendship between the United States and Mexico, and we accelerate our progress toward an even greater tomorrow — and that’s what’s happening: a greater, maybe even a far greater tomorrow — with a prospering region, a flourishing hemisphere, and two sovereign nations thriving, growing, and excelling side by side, working together — and that’s what we’ve been doing.
-
-通過這次簽署，我們承諾美國和墨西哥之間的密切和延續的友誼，並加快我們向著更偉大的明天邁進的步伐，這就是正在發生的事情：一個更偉大的，甚至可能是更宏偉的明天。一個昌盛的貿易區，一個繁榮的西半球，兩個主權國家肩並肩共同努力，一起興旺、發展和進步，我們一直為之努力。
-
-Mr. President, we look forward to hosting you for a beautiful dinner later on this evening with some of your friends from Mexico and some of our great friends from the U.S.  And it’s an honor to have you with us.
-
-總統先生，我們期待著今晚邀請您與一些來自墨西哥的朋友和我們的一些美國朋友一起共進一個優美的晚餐，您的到來是我們的榮幸。
-
-And, please, we’d love to have you say a few words.  Thank you.  Thank you very much.
-
-請您說幾句話吧。謝謝你，非常感謝你。
-
-PRESIDENT LÓPEZ OBRADOR:  (As interpreted.)  Friends, ladies and gentlemen, I truly celebrate this meeting with you, President Trump.
-
-洛佩斯·奧布拉多總統：(口譯)朋友們，女士們，先生們，我真誠地慶祝與川普總統的這次會晤。
-
-My visit, to a great extent, has to do with the importance right now, in these times of world economic crisis, the importance of the entry into effect of the Mexico-U.S.-Canada Agreement, to make by Spanish acronym, “USMCA.”  Having been able to close this deal constitutes a great accomplishment benefitting all three nations and our peoples.
-
-我訪問在很大程度上與當前世界經濟危機時期的重要性有關，與《墨西哥-美國-加拿大協議》(西班牙文縮寫為 「USMCA」)生效的重要性有關。能夠達成這項協議是一項巨大的成就，有利於所有三個國家和我們各國人民。
-
-As it is well known, North America is one of the most important economic regions of the planet.  However, our region is inexplicably a region of trade deficits.  We export to the rest of the world about $3.6 trillion, but we import about $4.2 trillion.  That is, we have a deficit of $611 billion, which is translated into capital flight, less opportunities for companies and businesses, and job source losses.
-
-眾所周知，北美洲是地球上最重要的經濟區域之一。然而，我們地區卻莫名其妙地成為貿易赤字地區。我們向世界其他地區出口約3.6萬億美元，但我們進口約4.2萬億美元。也就是說，我們有6110億美元的逆差，這轉化為資本外流、公司和企業的機會減少以及工作來源的損失。
-
-This new agreement seeks to reverse this imbalance through greater integration of our economies and improvements in the functioning of productive chains to recover the economic presence that North America has lost in the last five decades.  Suffice it to say that, in 1970, the region constituted 40.4 percent of the world GDP.  And now, this share in the global economy has gone down to 27.8 percent.
-
-這項新的協議旨在通過加強我們的經濟一體化，和改善產業鏈的運作來扭轉這種不平衡，以恢復北美洲在過去50年中失去的經濟地位。可以說，在1970年，該地區佔世界生產總值的40.4%。而現在，在全球經濟中這一比率已下降到27.8%。
-
-That’s why this agreement is a great option to produce, create jobs, and foster trade without having to go so far away from our homes, cities, states, and nations.  In other words, import volumes of our country’s imports to the rest of the world may be produced in North America at a lower transportation cost with reliable suppliers — reliable vis-à-vis the companies, of course — and the utilization of regional labor force…
-
-這就是為什麼這個協議是一個很好的方案，可以產生與創造就業，以及不必離我們的家，城市，州和國家太遠就能促進貿易。換句話說，我國對世界其他地區的進口量可以在北美以較低的運輸成本生產，並有可靠的供應商，當然是更可靠的公司，以及更合理的利用地區勞動力…
-
-Of course, it’s not a matter of closing our countries to the world.  It’s a matter of taking advantage of all the advantages that we have because we’re neighbors, as well as the enforcement of a good policy of cooperation for development.
-
-當然，這不是讓我們的國家對世界封閉的意思，而是利用我們作為鄰國所擁有的所有優勢，以及執行良好的發展合作政策的意思。
-
-This agreement allows us to attract investments from other places of the hemisphere, bringing those investments to our countries, provided we comply, we honor the principles of reducing merchandises with high regional content, and also trying to have salary and labor conditions that are fair conditions for our workers of the exporting or importing countries of consumption goods.
-
-該協議允許我們吸引來自西半球其他地方的投資，將這些投資帶入我們的國家，只要我們遵守，遵重減少高區域產值含量商品的原則，並努力為我們消費品出口國或進口國的工人提供公平的工資和勞動條件。
-
-It’s also important to point out that this agreement signifies the integration of all three countries, because we’re all contributing with productive capacity, markets, technology, experience, expertise, highly skilled labor force, and we end up complementing each other.  For instance, Mexico has something which is extremely valuable to make this economic integration effective and to boost this integration — economic and commercial integration — in the region.  I’m talking about this very young, creative, and responsible labor force.
-
-此外還必須指出的是，這項協議標誌著所有三個國家的一體化，因為我們都在貢獻生產能力、市場、技術、經驗、專業知識、高技能人才，我們最終會相輔相成。比如說，墨西哥有一樣非常難能可貴的東西，可以讓這個經濟一體化變得卓有成效，可以促進這個區域的經濟和商業一體化。我說的就是這支非常年輕、有創造力、有責任感的勞動大軍。
-
-Let us not forget that the participation of workers in productive processes is just as important as the role of businesses and companies.  It really would be not good for us to have capital and technology if we don’t have good workers that are outstanding workers because of their imagination, their talent, and their mystique when they do their work.
-
-我們不要忘了，勞動者在生產過程中的參與，與企業和公司的作用同樣重要。如果我們沒有優秀的工人，這些優秀的工人因為他們的想象力、他們的才華和他們工作時的熱情而成為傑出的工人，那麼我們就算擁有資本和技術也無濟於事。
-
-On the other hand, with this type of agreement — and respecting our sovereign states — instead of distancing ourselves, we are deciding, we’re opting to walk together towards the future.  We want to privilege understanding.  That’s why we’re united.  And we’re setting aside differences, or we are solving those differences through a dialogue and mutual respect.
-
-另一方面，有了這種協議，並尊重我們的主權國家，我們不是我們選擇相互疏遠，而是決定一起走向未來。我們要以信任為優先，這就是我們團結一致的根源。我們正在擱置分歧，或者我們正在通過對話和相互尊重來化解這些分歧。
-
-Certainly, in the history of our relations, we’ve had perhaps moments in which our minds have not been together.  And there are — there have been problems that are not yet forgotten.  However, we’ve been able to establish explicit agreements of cooperation and coexistence.  For instance, in the ‘40s of last century, during the Second World War, Mexico helped meet the needs of the United States in terms of the raw materials needed by the United States, and it gave its support with the labor of migrant workers that were known as the *braceros*.
-
-當然，在我們的關係史上，我們也許曾有過思想分歧的時候。還有一些矛盾沒有被遺忘。但是，我們已經能夠建立明確的合作和共存的協議。例如，在上個世紀40年代，在第二次世界大戰期間，墨西哥幫助滿足了美國在原材料方面的需求，並以墨西哥短期勞動力的方式給予支持。
-
-Since then, and until now, we’ve been consolidating our economic-commercial trade relationship, as well as our very — very peculiar coexistence, cohabitation, sometimes as distant neighbors and other times as very affectionate and close friends.
-
-從那時起，直到如今，我們一直在鞏固我們的經濟商業貿易關係，以及我們非常、非常奇特的共處、同居關係，有時像疏遠的鄰居，有時則像非常親密的朋友。
-
-And it is also a well-known history of geopolitics, this neighborhood we have and economic circumstances of both of our nations have promoted, in a very natural manner, a process of migration of Mexican men and women coming here to the United States.  And here we’ve been able to create a community of about 38 million people, including the children of Mexican parents.  It is a community of good, working people — good people, working people who have come here to make a living in a very honest fashion.  And they have so much contributed to the development of this great nation.
-
-這也是眾所周知的地緣政治歷史，我們的這一鄰里關係和我們兩個國家的經濟狀況，以非常自然的方式，促進了墨西哥民眾移民到美國的過程。而在這裡，我們已經能夠創造一個大約3800萬人口的社區，包括墨西哥父母的孩子。這是一個由優秀的勞動者組成的社區，善良的人們，樸質的勞動者，以非常誠實的方式來到這裡謀生。他們為這個偉大國家的發展作出了巨大貢獻。
-
-Furthermore, in Mexico, more than in any other country of the world, we have in our society a million and a half of U.S. citizens.  They live there, and they’re part of our society.  So we’re not just united by geographic proximity; we have economic commercial, social, cultural, and ties of friendship, President Trump.
-
-此外，在墨西哥，我們的社會中有150萬美國公民，比世界上任何其他國家都要多。他們生活在那裡，他們是我們社會的一分子。所以川普總統，我們不僅僅是因地理上的接近而團結在一起，我們之間還有經濟商業、社會、文化和友誼的紐帶。
-
-As in the best times of our political relationship, during my mandate as President of Mexico, is that of remembering this insults and things like that from — against me.  We have received from you, President Trump, understanding and respect.  People — some people thought that our ideological differences would inevitably lead to confrontations.  Fortunately, this has not been the case.  And I believe that, towards the future, there will be no motive or need to break our very good political relationship or the friendship between our two administrations.
-
-我記得在我們政治關係最好的時候，在我作為墨西哥總統的任期間，當我被侮辱和辱罵，我們從您，川普總統那裡得到了理解和尊重。有些人認為，我們的意識形態差異將不可避免地導致對立。幸運的是，情況並非如此。我相信，放眼未來，也不會有任何緣故或需求，會破壞我們非常良好的政治關係，或我們兩屆政府之間的友誼。
-
-The best president Mexico has ever had, Benito Juárez García, as you have mentioned, had a good understanding with the great Republican President, Abraham Lincoln.  Let us remember that this great, historic leader of the United States, who was the promoter of the abolition of slavery, never recognized Emperor Maximilian imposed in Mexico through the intervention of the powerful French army.
-
-正如您提到的，墨西哥有史以來最好的總統貝尼托·華雷斯·加西亞與偉大的共和黨總統亞伯拉罕·林肯有著良好的默契。讓我們記住，這位美國偉大的歷史性領袖是廢除奴隸制的推動者，他從未認同靠強大的法國武裝強行干涉墨西哥的馬西米連諾皇帝。
-
-It is no coincidence that Juárez lamented Lincoln’s murder in the United States, saying, I quote, “I have deeply felt this disgrace because Lincoln, who was constantly working in such a determined manner for the complete freedom of its fellow men, was worthy of a better fortune or luck.”  End of quote.
-
-華雷斯對林肯在美國遇刺感到惋惜，引用他的話：「我深深地感悲哀，因為林肯為其同胞自由的權利而堅定前行，他應得更好的命運或上天的眷顧」。
-
-The same thing happened with the splendid relationship that Democrat President Franklin Delano Roosevelt had with our patriot president, General Lázaro Cárdenas.  The same situation took place.  And after the oil expropriation, in a letter, General Cárdenas recognized the good understanding — the good bilateral understanding as follows: He said, “My administration believes that the attitude of the United States of America, in the case of the oil company expropriation, reasserts once more the sovereignty of the peoples of this continent that with so much efforts have been maintaining the situation and the position of his Excellency, Mr. President Roosevelt.”  End of quote.
-
-民主黨總統富蘭克林·德拉諾·羅斯福與我們的愛國總統拉薩羅·卡德納斯將軍彼此理解的關係也同樣如此。類似的情況也發生了。而在墨西哥石油徵用事件之後，卡德納斯將軍在一封信中，表示認可了良好的雙邊理解，具體如下。他說：「我國政府認為，美利堅合眾國在石油公司被徵用一案中的態度，再次重申了本大陸人民的主權。他們作出了巨大的努力，一直在維護羅斯福總統閣下的局勢和地位」。
-
-So with all proportions and all the circumstances, with different circumstances, history tells us that it is possible to understand each other without arrogance or extremisms.
-
-所以，在各種比例和各種情況下，在不同的情況下，歷史告訴我們，不驕不躁，不走極端，是可以相互理解的。
-
-Now that I have decided to come to this meeting with you, President Trump, we had a good debate in my country on the convenience of this trip.  I decided to come because, as I have already expressed, it is very important for us to be launching this new agreement.
-
-現在我決定來參加這次與川普總統您的會晤，我們在我國就這次旅行的合適性進行了很好的辯論。我決定來是因為，正如我已經表達的那樣，對我們來說，啓動這項新協議是非常重要的。
-
-But I also wanted to be here to thank people of the United States, its government, and thank you, President Trump for being increasingly respectful with our Mexican fellow men.
-
-但我也想來這裡親自感謝美國人民、美國政府，感謝川普總統對我們墨西哥同胞的日益尊重。
-
-And to you, President Trump, I want to thank you for your understanding and the help you’ve given us in issues related to trade, commerce, oil, as well as your personal support for the acquisition of medical equipment that we needed urgently to treat our patients of COVID-19.
-
-而對於川普總統，我要感謝您在貿易、商業、石油相關問題上給予我們的理解和幫助，以及您個人對我們治療COVID-19患者所急需的醫療設備購置的支持。
-
-But what I mainly appreciate is that you have never sought to impose anything on us violating our sovereignty.  Instead of the Monroe Doctrine, you have followed, in our case, the wise advice of the lustrous and prudent President George Washington who said, quote, “Nations should not take advantage of the unfortunate condition of other peoples.”  End of quote.
-
-但我最感激的是，你們從未試圖將任何侵犯我們主權的東西強加給我們。在我們的問題上，你們沒有遵循門羅主義，而是遵循了喬治·華盛頓總統的明智倡導，他說：「國家不應該利用其他國家人民的不幸狀況」。
-
-You have not tried to treat us as a colony; on the contrary, you have honored our condition as an independent nation.  That’s why I’m here to express to the people of the United States that their President has behaved with us with kindness and respect.  You have treated us just as what we are: a country and a dignified people; a free, democratic, and sovereign people.
-
-你們沒有試圖把我們當作殖民地對待；相反，你們尊重我們作為一個獨立國家的尊嚴。這就是為什麼我在這裡向展現了友好和尊敬態度的美國人民，以及他們的總統表示感激：你們把我們視為了一個有尊嚴的國家和人；一個自由、民主和主權的人。
-
-Long live the friendship of our two nations.  Long live the United States of America.  Long live Canada.  Long live our America.  Long live Mexico.  Long live Mexico.  *Viva México.*  (Applause.)
-
-願我們兩國的友誼萬歲。美利堅合眾國萬歲。加拿大萬歲。我們的美洲萬歲。墨西哥萬歲。墨西哥萬歲。墨西哥萬歲。(掌聲)
-
-(The joint declaration is signed.)
-
-(聯合聲明已簽署)
-
-END
-
-結束
-
-4:10 P.M. EDT
-
-東部時間下午4:10
-
-白宮英文全文：[https://www.whitehouse.gov/briefings-statements/remarks-president-trump-president-lopez-obrador-united-mexican-states-signing-joint-declaration/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-president-lopez-obrador-united-mexican-states-signing-joint-declaration/)
-
-*翻譯：【Dlrow】 校對：【恆久忍耐】*
-
-*戰友之家玫瑰園小隊出品*
+人權觀察網指出，官員除了收集和更新居民家庭成員的基本資訊外，還必須執行各種任務。還要求他們瞭解居民的思想狀況，宗教信仰以及向他們灌輸政治思想，包括對“習近平思想”的解釋。此外，他們還需要教居民如何說中文，唱中共宣導的歌曲，並確保居民參加每週的升旗儀式。
 
 0
