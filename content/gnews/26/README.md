@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美即將出台禁令，禁止聯邦政府與使用華為等產品的公司簽定合同
-`2020-07-09 13:59 GM65` [轉載自GNews](https://gnews.org/zh-hant/258752/)
+## 郭文貴：“火雞龔”被調查，什麼情況？
+`2020-07-09 20:22 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/258903/)
 
-路透社美國時間7月9日上午報導，一名美國官員說，川普政府計劃本週敲定法規，禁止美國政府向使用華為、海康威視、大華、中興和海能達通信等五家中國公司產品的任何公司購買商品或服務。
+作者：喜馬拉雅聯盟加拿大農場 龍井
 
-根據該法規，向美國政府出售商品和服務的公司需要證明自己沒有使用這五家公司的產品，或者獲得美國政府豁免，才能有機會與政府簽訂合約。美國政府每年有超過5000億美元的合約。
+導語：郭文貴先生發蓋文：“火雞龔“被BBG、國會、FBI調查……什麼情況？
+![](https://lh5.googleusercontent.com/BSGqlP-r-A3IuivwKDXdeY_6aS3-WliFHMBHmIBA9oYpHvRyTu7E51xbnrneIOI8l3I1o400Fi53RbBPSZKXkMpL-eu0Bt7CKoB7_hNWY2_5PUbGR07WWPLakR3hvxofi895fqs)
+圖片來自“爆料革命“
 
-正值美中關係緊張時期，基於對國家安全和中共對冠狀病毒的處理方式、在香港採取的行動和兩國近兩年貿易爭端的考慮，該項法規預計8月13日生效，將產生深遠影響。
+郭文貴先生今天（7月9日）在他的蓋特上爆料：被“爆料革命”譽為“火雞龔”的前“美國之音“記者、特約評論員龔小夏女士，目前正接受美國廣播理事會(Broadcasting Board of Governors），簡稱BBG、美國國會和美國聯邦調查局FBI的聯合調查。郭先生透露，龔小夏被調查的主要原因是涉嫌貪污造假及賄賂。
 
-這位官員補充說，該項法規的目的不僅是禁止政府機構使用華為等的產品，而且是在限制其影響力，讓其他公司在與美國政府合作和與中國公司合作之間做出選擇。
+龔小夏是前“美國之音“中文部負責人，也是”美國之音““4.19斷播門”的主播。據郭先生介紹，2017年4月19日，他接受龔小夏的直播採訪。節目原定3個小時，但在進行到1/3，當郭先生提及對中共高層的重磅敏感爆料時，龔突然以“上級命令”為由直接掐斷了直播。龔於5月23日在《華爾街日報》上發表文章解釋說，停播是中國政府對美國之音施壓導致的。
 
-目前五家中國公司均未做出回應。
+直播採訪突然中斷，這是美國之音自開播以來破天荒的嚴重事故，隨後龔等相關5人被停職。
 
-新聞來源： [https://www.reuters.com/article/us-usa-china-contracting-exclusive/exclusive-us-finalizing-federal-contract-ban-for-companies-that-use-huawei-others-idUSKBN24A22F ?utm\_source=twitter&utm\_medium=Social](https://www.reuters.com/article/us-usa-china-contracting-exclusive/exclusive-u-s-finalizing-federal-contract-ban-for-companies-that-use-huawei-others-idUSKBN24A22F?utm_source=twitter&amp;utm_medium=Social)
- 
-0
+“4.19斷播門”立刻激起了軒然大波，網民們紛紛表達了他們的憤慨。許多人直指美國之音違反言論自由和新聞自由，許多人認為斷播事件暴露了美國之音已受到中共滲透，更有人甚至要求揪出美國之音的中國特務。
+
+美國專欄作者和揭秘記者格茨也在”華盛頓自由燈塔”發表意見，認為“中國干預美國之音，阻撓郭文貴在美國之音上揭露中國的間諜秘密。”
+
+郭文貴先生也當即發表聲明：必須追究美國之音4.19 斷播事件！並多次斷言：“美國之音一定會被調查！”
+
+果不其然， 3年後，美國白宮公開指責美國之音”拿納稅人的錢“，卻“為中國宣傳”。 2020年6月15日，美國之音台長班奈特和副台長蘇加瓦拉雙雙宣布辭職。如今，“4.19斷播門”的現場導演和製片人龔小夏女士，也正面臨法律的追責。文貴先生又一次向世人證明：爆料革命，唯真不破！
+
+1
