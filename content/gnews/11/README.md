@@ -1,16 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 265 波索比可：中共任命鄭雁雄是給香港人的重錘；香港的法治已徹底被中共拋開
-`2020-07-09 12:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/258656/)
+## 美即將出台禁令，禁止聯邦政府與使用華為等產品的公司簽定合同
+`2020-07-09 13:59 GM65` [轉載自GNews](https://gnews.org/zh-hant/258752/)
 
-戰友之家新聞譯制組
-撰稿：GM64
+路透社美國時間7月9日上午報導，一名美國官員說，川普政府計劃本週敲定法規，禁止美國政府向使用華為、海康威視、大華、中興和海能達通信等五家中國公司產品的任何公司購買商品或服務。
 
+根據該法規，向美國政府出售商品和服務的公司需要證明自己沒有使用這五家公司的產品，或者獲得美國政府豁免，才能有機會與政府簽訂合約。美國政府每年有超過5000億美元的合約。
 
+正值美中關係緊張時期，基於對國家安全和中共對冠狀病毒的處理方式、在香港採取的行動和兩國近兩年貿易爭端的考慮，該項法規預計8月13日生效，將產生深遠影響。
 
-•香港國安法背後的真正含義是：制定授權給直接指揮的習近平和秘密警察部隊。此舉專門針對的就是香港的抗議者以及任何支持他們的人。
-•鄭雁雄作為香港秘密警察的負責人，他最知名的事件就是鎮壓烏坎事件，十年來他在大陸多個省都有過鎮壓歷史。他的到來就是給香港的一個重錘。與他同時入駐香港的還有中共國情報人員和國保官員。這表明了香港的法治已經徹底的被拋棄。
-•香港處於重要的戰略位置，是CCP獲取美國經濟支持來源的支點。美國政府制裁中共政府最好的方法就是經濟制裁。
+這位官員補充說，該項法規的目的不僅是禁止政府機構使用華為等的產品，而且是在限制其影響力，讓其他公司在與美國政府合作和與中國公司合作之間做出選擇。
 
+目前五家中國公司均未做出回應。
+
+新聞來源： [https://www.reuters.com/article/us-usa-china-contracting-exclusive/exclusive-us-finalizing-federal-contract-ban-for-companies-that-use-huawei-others-idUSKBN24A22F ?utm\_source=twitter&utm\_medium=Social](https://www.reuters.com/article/us-usa-china-contracting-exclusive/exclusive-u-s-finalizing-federal-contract-ban-for-companies-that-use-huawei-others-idUSKBN24A22F?utm_source=twitter&amp;utm_medium=Social)
+ 
 0
