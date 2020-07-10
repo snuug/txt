@@ -14,6 +14,10 @@
 
 ## 頁面 25/28 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/2018/04/20180418-2982915845250551148.md)
+
+[11月8日文贵twitter再次被封7天后的报平安视频](/content/2018/04/20180418-7262790199483543364.md)
+
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/content/2018/04/20180418-3724438328570964289.md)
 
 [文字版：卢比奥质问郭文贵FB账户被关是否由于受中国政府压力](/content/2018/04/20180418-5547948456904349057.md)
@@ -59,10 +63,6 @@
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
 
 [CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/2018/04/20180418-3704285633140806842.md)
-
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
-
-[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
 
 
 ## 頁面 25/28 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)

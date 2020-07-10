@@ -14,6 +14,10 @@
 
 ## 頁面 5/28 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [28](/content/README-28.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)
 
+[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/2020/02/20200204-1180621866015014143.md)
+
+[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/content/2020/02/20200204-5956561708667682413.md)
+
 [文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/content/2020/02/20200203-308153761485477225.md)
 
 [文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/content/2020/02/20200201-4702863158571733458.md)
@@ -59,10 +63,6 @@
 [文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/2020/01/20200112-3278403890679158483.md)
 
 [文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/content/2020/01/20200112-7411568700881167018.md)
-
-[文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/content/2020/01/20200109-4663679773917256212.md)
-
-[文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/content/2020/01/20200109-5452647040359019543.md)
 
 
 ## 頁面 5/28 [**<**](/content/README-4.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [28](/content/README-28.md) [**>**](/content/README-6.md) [查看全部](/content/README-all.md)

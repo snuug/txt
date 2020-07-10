@@ -14,6 +14,10 @@
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/2020/03/20200316-6955651449637446921.md)
+
+[文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/content/2020/03/20200314-7640814044022850534.md)
+
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/content/2020/03/20200314-8958776205330396975.md)
 
 [文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/content/2020/03/20200311-6040433872108549534.md)
@@ -59,10 +63,6 @@
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/2020/02/20200207-1018085438750382057.md)
 
 [文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/content/2020/02/20200204-4372842395981895522.md)
-
-[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/2020/02/20200204-1180621866015014143.md)
-
-[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/content/2020/02/20200204-5956561708667682413.md)
 
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
