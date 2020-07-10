@@ -1,43 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台灣政府對香港的“無聲援助”
-`2020-07-10 11:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/259401/)
+## “英雄科學家”閆麗夢被CCP刪掉了什麼資料
+`2020-07-10 12:49 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/259498/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10112843/Picture-1-63.png)圖片來源：Reuters/James Pomfret 
-*這篇文章發佈在《經濟學人》印刷版亞洲部分，標題為“輕聲歡迎”（A Whispered Welcome）.*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10124650/%E4%B8%A5%E4%B8%BD%E6%A2%A6.png) Dayday 設計師
+在5月22日，GTV上有兩個人開始談閆麗夢，一個是“[得意誌之鷹](https://gtv.org/?videoid=5ec6f41de37fdd30a5c413ba)”，另一個是XXX（這人的名字不提也罷）。他們談閆麗夢的原因是多維等大外宣開始污衊閆麗夢和郭先生以及班農先生。
 
-**銅鑼灣書店林榮基先生**
+那個時候閆麗夢在[香港大學的介紹頁面](https://sph.hku.hk/en/about-us/faculty-and-staff/academic-related-staff/yan,-limeng)已經被刪了，但是[谷歌緩存](https://webcache.googleusercontent.com/search?q=cache:uF0wdRdvQ8wJ:https://sph.hku.hk/en/about-us/faculty-and-staff/academic-related-staff/%20yan,-limeng+&amp;cd=1&amp;hl=en&amp;ct=clnk&amp;gl=gr)還能找到，於是我就把這些信息保存到了[爆料百科](https://bit.ly/3eetsMH)。
 
-林榮基先生在台灣首府台北一座不起眼的建築的十樓經營著一家小書店。在台灣林先生是逃港者中名氣最高的，是香港銅鑼灣書店股東同員工失踪事件的主角之一，也是該書店的創辦人及店長。他在台北的書店延續了此前香港的銅鑼灣書店。銅鑼灣書店經營至2015年，其出售的書籍一直被中共政府定義為反共和顛覆國家主權的。 2015同年，林先生被中國特工綁架，並被非法拘留八個月。去年年初，由於擔心香港立法機關正在考慮一項的引渡法案可能將他送回大陸，林先生脫港來台。誰知擔心成為了現實。
+####  **1 ，基本資料（英文翻譯而來）**
 
-現在林先生生活起居都在商店裡。書店牆上懸掛著橫幅“光復香港”，橫幅下面是揭露批判中國共產黨罪惡行徑的書籍。當被問及台灣是否將成為香港民主運動人士的避風港時，林先生顯得有些猶豫。他說，因為書店出售中文書籍的緣故，他本人是想留在講中文的國家的。但很多人可能更願意逃離到西方國家，從而遠離中共的獨裁統治和紅色恐怖。他補充說，台灣政府對他很好，他們想盡力幫助香港，但是台灣政府的態度比較謹慎，其實這是很自然的。
+閆麗夢：
 
-**台灣政府對港人無聲的援助**
+醫學博士博士後研究員公共衛生實驗室科學處
 
-與大多數同胞一樣，台灣總統蔡英文為台灣的民主感到自豪，對香港民主人士深有同情。上個月中國對香港實施殘酷的《國安法》的前一天，台灣政府修改了相關的防疫邊界封閉措施，以方便香港人入境。 《國安法》生效的第二天，台灣政府在香港開設了一個辦事處，協助香港人訪問或移民到台灣。
+聯繫信息：電話: 3917 9949 郵箱: [\[email protected\]](/cdn-cgi/l/email-protection)
 
-台灣政府的無聲援助惹怒了中共，中共認為台灣是其領土的一部分，並一直威脅會對台採取武力行動。中共官員認為台灣政府對香港的一系列行為，是“港獨和台獨等分裂分子的陰謀”，並公開嘲諷。
+簡歷
 
-**台灣政府行事謹慎**
+閆麗夢博士在中南大學湘雅醫學院獲得醫學博士學位，並在中國南方醫科大學獲得博士學位。她的研究興趣包括通過不同的動物模型研究傳染病或炎症。她的研究最近集中在流感疫苗，交叉反應抗體和細胞免疫學的研究。
 
-雖然台灣政府做了很多協助香港的安排，但蔡英文總統的確很謹慎行事，台灣政府沒有發布任何全面庇護的政策，而是港人在台安置的請求將視個體情況而定，永居權的許可條件也沒有因為現在香港情況而有所例外，在程序上還是要按照規定做。例如，林先生在台灣經營書店，所以他是以投資者類別申請在台安置居留。
+發表作品：
 
-同時，許多台灣人也抱怨政府對香港民主人士的幫助不夠。一個小在野黨的一項有助於澄清和增強香港尋求庇護者的權力的提案被現執政的民進黨否決了。來自中央研究院的陳玉杰說，台灣移民政策的措辭含糊，意味著尋求庇護的港人不知道自己是否符合申請標準，也不清楚將等待多長時間才能拿到居留許可。他們也不能對申請庇護的拒簽提出上訴。如果將來親共的政黨執政，擔心他們對法律的解釋和執法就不會那麼慷慨人道了。
+1， 閆麗夢, Wu W, Wang Z, Li C, Lu X, Duan H, Zhou J, Wang X, Wan P, Song Y, Tang J, Han Y. 重組人表皮生長因子與人表皮生長因子的比較研究鹼性成纖維細胞生長因子在體內外對角膜上皮傷口癒合和新生血管形成的影響，《眼科研究》雜誌，2012。
 
-蔡英文總統的猶豫的原因之一可能是不想給中台緊張關係火上加油，台灣政府官員也總是擔心中共滲透台灣的企圖。民進黨議員王廷玉認為，在與中共關係緊張的時刻，政府酌情暫時擱置申請庇護案件是有幫助的，因為如果庇護申請者提出上訴，政府可能需要公開其從相關香港和其他地方的非正式情報網絡獲得的有關申請人的詳細信息，來確定申請人的真實情況。
+2， Chi Chen†, 閆麗夢†, Kun-Yuan Guo†, Yu-Jue Wan†, Fei Zou, Wei-Wang Gu, Hua Tang, [18F]- FDG-PET/CT在造血放射毒性中的作用：西藏小型豬模型，《輻射研究學報》，2012，平等貢獻。
 
-教會的黃春生牧師精心籌備了防毒面具和頭盔，通過海運送給香港的民主示威人士，並一直在幫助那些希望離開香港來台的人。教會認可了蔡英文總統和台灣政府的謹慎態度，黃牧師也堅持認為台灣政府確實是真心想幫助港人。他說，設定一個正式的庇護政策會導致很多無益的審查，對於民運人士而言，悄悄到台灣讀大學再轉成學生簽證也許是更好的選擇和方式。
+3，Yu-Jue Wang†, Wen Liu†, Chi Chen†, 閆麗夢, Jun Song, Kun-Yuan Guo, Gang Wang, Qing-Hong Wu, Wei-Wang Gu.輻射減輕了西藏小型豬的小腸能量代謝的損傷，《PloS one》雜誌，2013，平等貢獻。
 
-無論政策如何，越來越多港人離開香港搬到台灣。今年1月至4月間台灣政府發放了2, 383個居留許可，與去年同期相比增長了150％。
+4， Ming Poon, 閆麗夢,使用敲除小鼠評估RAP1在鹼損傷後角膜傷口癒合中的作用，《眼科研究與視覺科學》，《投資眼科雜誌》， 2015年1月8日。
 
-評：
+####  **2 ，根據5月份多維和文學城等大外宣的一些資料，我們大致可以判斷：** 
 
-譯者內心真心的感謝台灣政府和人民對香港同胞的默默幫助，一方面是民主和正義的信仰，一方面也需要平衡與中共的國際政治關係。自中共邪惡的香港《國安法》7月1日實施後，英國，美國，台灣，澳大利亞都出台相應的政策協助港人尋求庇護，逃離中共的魔爪。民主自由公正是這些國家的信念與價值，也是香港人的信念與堅守。
+- 閆麗夢來自香港P3實驗室。
+- 是冠狀病毒研究專家。
+- 跟文貴先生和班農先生有聯繫。
+- 應該是郭先生說的英雄科學家之一。
 
-[原文鏈接](https://www.economist.com/asia/2020/07/11/democracy-activists-fleeing-hong-kong-present-a-dilemma-for-taiwan)
 
-翻譯報導：文慈
-校對整理：意翎
+#### **3，路德爆料**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10123445/Lude.jpg)
+路德Twitter：發表在世界學術頂級期刊自然雜誌的這個發現意義重大！未來大家會知道！ [Pathogenesis and transmission of SARS-CoV-2 in golden hamsters |Nature](https://www.nature.com/articles/s41586-020-2342-5)
+
+twitter：Hungping Wu 回复路德：
+
+1，主要作者有文貴提到的Poon和斯里蘭卡的Malik。文章的表面意思是，找到適合的動物模型了，為將來的疫苗測試奠定基礎。但隱含透露了一個細節，港大的P3實驗室參與了病毒的動物實驗！等英雄科學家公佈了證據，那這篇文章也自動成為證據鏈的一環？
+
+2，文章裡面提到實驗鼠，恒河猴等都很難在呼吸系統外體現出病症，而只有金色敘利亞倉鼠能很好地體現病毒的廣泛感染性。而且能夠模擬出接觸性傳播和氣溶膠傳播。
+
+3，謎底應該揭曉了，主要作者之一的閆麗夢就是我們的英雄科學家！
+
+Sin Fun Sia，閆麗夢，錢偉恆，蔡家添，Alvina YL Wong，Prathanporn Kaewpreedee，Ranawaka APM Perera，Leo LM Poon，Malik Peiris和Ying-Ling Yen
+
+香港大學李嘉誠醫學院病理學系，香港
+
+馮凱文＆約翰·尼科爾斯
+
+通訊作者
+
+對應於顏慧玲。
+
+####  **4 ，公開露面**
+
+2020年7月10日，閆麗夢在[福克斯新聞](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)公開露面，指責中共和世界衛生組織（WHO）共同掩蓋冠狀病毒真相。之前閆麗夢就準備公開露面，後來郭先生說先讓CCP表演一下。看來接下來要搞大了。閆麗夢的出現就是要證明給世界，冠狀病毒就是中共對全世界發動的病毒戰。
+
+附文1:
+
+閆麗夢英文簡介：
+
+Yan, Limeng Scarlett
+
+**MD, PhD**
+
+**Post-doctoral Fellow** Division of Public Health Laboratory Sciences
+
+**Contact Information**
+
+Tel: 3917 9949 Email: [\[email protected\]](/cdn-cgi/l/email-protection)
+
+**Biography**
+
+Dr Scarlett Yan received her MD degree from XiangYa Medical College of Central South University and PhD from Southern Medical University (China). Her research interests include investigations of the infectious diseases or inflammation via different animal models. Her research has recently focused on study of influenza vaccine, cross-reactive antibodies and cellular immunology.
+
+**Selected Publications** [
+
+1. 1， **Yan L** , Wu W, Wang Z, Li C, Lu X, Duan H, Zhou J, Wang X, Wan P, Song Y, Tang J, Han Y. Comparative study of the effects of recombinant human epidermal growth factor and basic fibroblast growth factor on corneal epithelial wound healing and neovascularization in vivo and in vitro [J]. Ophthalmic research, 2012, 49(3): 150-160. equal contribution
+2. 2，Chi Chen, **Li-Meng Yan** , Kun-Yuan Guo, Yu-Jue Wan, Fei Zou, Wei-Wang Gu, Hua Tang,3 Yan-Ling Li, Shao-Jie Wu.The diagnostic value of \*\*\*\* \*\*[0]\*\*\*\*\*\*-FDG-PET/CT in hematopoietic radiation toxicity: a Tibet minipig model [J]. Journal of radiation research, 2012, 53 (4): 537-544. equal contribution
+3. 3，Yu-Jue Wang†, Wen Liu, Chi Chen†, **Li-Meng Yan** , Jun Song, Kun-Yuan Guo, Gang Wang, Qing-Hong Wu, Wei-Wang Gu. Irradiation Induced Injury Reduces Energy Metabolism in Small Intestine of Tibet Minipigs [J]. PloS one, 2013, 8(3): e58970. equal contribution
+4. 4，Ming Poon, **Limeng Yan** , Qizhou Lian. Using knock-out mice to assess the role of RAP1 in corneal wound healing after alkali injury, Investigative Ophthalmology & Visual Science, Invest Ophthalmol Vis Sci. 2015 Jan 8;56(2): 711-21.
+
+
+附文二：
+
+路德提到的自然雜誌的重要文章的題目及摘要翻譯：
+
+SARS-CoV-2在金黃倉鼠中的發病機制和傳播仙芬婭（Sin Fun Sia），閆麗夢，[…]顏慧玲自然雜誌（2020）
+
+摘要：
+
+SARS-CoV-2是一種新型的冠狀病毒，與在馬蹄蝠中檢測到的SARS-CoV和SARS相關的冠狀病毒具有高度核苷酸同一性，已遍及全球，並影響了全球醫療體系和經濟1,2。需要合適的小動物模型來支持疫苗和治療的發展。我們報告了SARS-CoV-2在金色敘利亞倉鼠中的發病機理和傳染性。免疫組織化學顯示，接種後第2天和第5天在鼻粘膜，支氣管上皮細胞和肺鞏固區域中存在病毒抗原，隨後在7天時迅速清除病毒並引起肺細胞增生。在十二指腸上皮細胞中也發現了病毒抗原，糞便中檢測到病毒RNA。值得注意的是，SARS-CoV-2通過直接接觸和通過氣溶膠從接種倉鼠有效地傳播到幼稚倉鼠。在污染的籠子中通過鐵蟲傳播的效率較低。儘管在接種倉鼠的鼻洗液中連續14天連續檢測到病毒RNA，但可傳播時間短，並且與感染性病毒的檢測相關，而與病毒RNA無關。接種和自然感染的倉鼠表現出明顯的體重減輕，所有動物均通過檢測中和抗體而康復。我們的結果表明，金色敘利亞倉鼠中的SARS-CoV-2感染類似於輕度感染人類的​​特徵。
+
+這些作者做出了同樣貢獻：Sin Fun Sia，閆麗夢，Alex WH Chin
+
+隸屬關係
+
+香港大學李嘉誠醫學院公共衛生學院，香港
+
+#### **作者：Gwiki**
 
 0
