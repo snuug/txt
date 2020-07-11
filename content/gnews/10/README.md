@@ -1,57 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共從未向世衛報告過新冠狀病毒的存在
-`2020-07-10 18:48 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/259701/)
+## 白宮新聞秘書聲明
+`2020-07-11 03:59 GM31` [轉載自GNews](https://gnews.org/zh-hant/259965/)
 
-*新聞來源：《華盛頓自由燈塔》；作者：Adam Kredo*
+**Statement from the Press Secretary**
 
-*翻譯/簡評：雲影Julia；校對：InAHurry；Page：椰子哦耶*
+### **新聞秘書聲明**
 
-**簡評：**
+Issued on: July 9, 2020
 
-國會議員邁克爾·麥考爾的調查結果顯示至今為止中共國都從未向世衛組織報告過任何有關新冠狀病毒的信息。 CCP蓄意利用和串謀以譚德塞為首的世衛高級官員，對全人類進行長達超過半年的隱瞞並謊報自編自演的欺世害人的假戲終於被識破，真相必會大白於天下，惡人必將被繩之於法！
+發表時間：2020年7月9日
 
-##  **中共國從未向世界衛生組織報告過新冠狀病毒的存在** 
+President Trump is gratified by today’s decision by the Supreme Court in *Trump v. Mazars*.  As the Court made clear, the limited authority of Congress to conduct fact-finding through subpoenas must be used in aid of Congress’ authority to legislate and must be tied to a valid legislative purpose.  Congress may not act as a roving investigative body, especially against a co-equal branch of government.
 
-**世衛組織回溯了原先聲稱中共國自我報告的說法，承認這從未發生**
+川普總統對今天最高法院對於”川普訴瑪紮斯 “案中的裁決感到滿意。像法院明確的那樣，國會通過傳票進行事實調查的有限權力必須用於幫助國會的立法權，而且必須與有效的立法目的相聯繫。  國會不得充當巡迴調查機構，特別是針對政府平等部門。
 
-[!\[\](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/99c64ecb-c7a1-43b7-8a1a-7f662c1e146c.png?asset_id=32251ad4-81f3-489a-aad9-109702e52d10&amp;img_etag=%22166d370f2571678ab9078573f90e1d92%22&amp;size=2560)](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/99c64ecb-c7a1-43b7-8a1a-7f662c1e146c.png?asset_id=32251ad4-81f3-489a-aad9-109702e52d10&amp;img_etag=%22166d370f2571678ab9078573f90e1d92%22&amp;size=1024)
+Last year, Democrat-run House committees subpoenaed President Trump’s financial records in an effort to gain partisan advantage in the upcoming presidential campaign.  Their claim that the financial records could serve as “a useful case study” to learn about “unsafe lending practices” and “money laundering” was plainly disingenuous.  The Supreme Court saw through these transparent smoke-screens, with all nine Justices declaring that more is required to establish a valid legislative purpose than the mere say-so of partisan committee chairmen.
 
-與中國官員和世界衛生組織的說法相反，根據世界衛生組織追踪病毒傳播的時間表，中國在2019年底並沒有報告冠狀病毒的存在。準確的說，國際衛生官員是通過發佈在美國網站上的信息發現這種病毒的。
+去年，民主黨人領導的眾議院委員會傳喚了川普總統的財務記錄，以便在即將到來的總統競選中獲得黨派優勢。 他們聲稱財務記錄可以作為瞭解 “不安全貸款做法 “和 “洗錢 “的 “有用的案例研究”，這顯然是不誠實的。  最高法院看穿了這些透明的煙幕彈，所有九名法官都宣佈，要確定有效的立法目的，需要更多的東西，而不僅僅是黨派委員會主席說了算。
 
-國際衛生組織本週悄悄地在其網站上發布了一份“更新”的時間軸。等於默認與該組織的某些高級官員數月來堅持中共國已第一時間通知世衛關於新冠狀病毒的報告的言論嚴重不符，其中包括了世衛組織總幹事譚德塞。
+By recognizing, yet again, that the job of Congress is to legislate—and not to grandstand, harass, or seek to embarrass its political opponents—the Supreme Court has reinforced the separation of powers that our Framers established as an essential bulwark of individual liberty.
 
-中共國及其在世衛組織的盟友在多次採訪和新聞發布會上堅稱，中共國向世衛組織提供了有關該病毒的信息。現在我們知道這是假消息。世衛組織在最近美國國會的一項調查中增添了其可信度，因為它在回溯中稱：可以肯定中國隱瞞了有關病毒最初的的信息，並沒有按照要求向世衛組織通報。
+最高法院再次承認，國會的工作是立法—不是嘩眾取寵，不是騷擾，或者試圖讓政治對手難堪—最高法院從而加強了我們的制憲者所確立的作為個人自由重要堡壘的三權分立。
 
-[!\[\](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/2eec2c63-a25c-4b78-bc81-9dee13f11a7b.jpg?asset_id=91330d48-ca8c-43af-8c05-c3c8c51be8bb&amp;img_etag=%22adee4dfbe7ad098f5eb7f38f1e63a8df%22&amp;size=2560)](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/2eec2c63-a25c-4b78-bc81-9dee13f11a7b.jpg?asset_id=91330d48-ca8c-43af-8c05-c3c8c51be8bb&amp;img_etag=%22adee4dfbe7ad098f5eb7f38f1e63a8df%22&amp;size=1024)
+In the accompanying decision in *Trump v. Vance*, the Court also protected the President’s financial records from intrusive subpoenas from a partisan district attorney.  As the Court determined, the New York district attorney has not yet established his ability to secure access to those records.  Instead, further proceedings are required in the lower court in which the President can raise additional arguments, including constitutional protections, against this frivolous and politically motivated subpoena.
 
-世衛組織本週在網上公佈的最新時間表顯示，官員們首次了解到該病毒是在2019年12月31日，通過在武漢工作的醫生在美國網站上發布了在武漢發現此病毒的信息，才讓世衛官員們首次認識到該病毒。這與該機構最初的時間表的言論相矛盾，即世衛組織曾說是中共國在那個日期首次提交匯報了發現病毒的信息。
+在川普訴萬斯一案的附屬決定中，最高法院也保護了來自總統的財務報告，使其免受黨派地區檢察官的侵入性傳訊。正如法院所確認的那樣，紐約地區檢察官尚未確立他獲得這些記錄的能力。 相反，需要在下級法院進行進一步的訴訟程式，使總統能夠提出額外的論點，包括憲法保護，以反對這種毫無意義和出於政治動機的傳訊。
 
-這條最初的時間軸表示：“中國武漢市衛生健康委員會在12月31日報告了湖北省武漢市的一批肺炎病例”。
+President Trump remains committed to fulfilling his promises to the American people despite any harassment or distractions his political opponents try to use to impede him.
 
-包括美國有線電視新聞網和美國新聞網在內的許多美國媒體都根據世界衛生組織完全不實的時間軸報導了其內容。
+儘管他的政治對手試圖利用任何騷擾或分心來阻礙他，但川普總統仍然致力於履行他對美國人民的承諾。
 
-中共國官員和國有媒體數月來還聲稱，CCP政權在12月31日左右通知了世衛組織。然而，最近幾天，中國官員已經放棄了這個話題。
+白宮原文連結：[https://www.whitehouse.gov/briefings-statements/statement-press-secretary-070920/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-070920/)
 
-[!\[\](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/d42c5fc1-cda3-4e7c-a5b5-ae70035d0d9c.jpg?asset_id=e92036c8-8a87-4cb8-8671-bbfa7002be12&amp;img_etag=%2251051518914fb43e64405a29d959137f%22&amp;size=2560)](https://spark.adobe.com/page/MQGcWpvbMpTfJ/images/d42c5fc1-cda3-4e7c-a5b5-ae70035d0d9c.jpg?asset_id=e92036c8-8a87-4cb8-8671-bbfa7002be12&amp;img_etag=%2251051518914fb43e64405a29d959137f%22&amp;size=1024)
+*翻譯**：**【****Melody****太陽的旋律】校對**：**【文所未聞】*
 
-得克薩斯州共和黨眾議員邁克爾·麥考爾，他領導著眾議院外交事務委員會，也是國會中共國問題特別工作組的成員之一，他更是最早揭露中共國謊報疫情的國會議員之一。上個月發表的一份關於該病毒來源的國會臨時報告首次披露，世衛組織是從網上的帖子中發現中共病毒的存在的，而不是從中共國。
+*戰友之家玫瑰園小隊出品*
 
-“我很高興看到世衛組織和CCP都閱讀了我的關於大瘟疫的起源的臨時報告並且最終向世界承認事實的真相：即中共國從來沒有向世衛組織報導病毒的爆，這嚴重違反了世衛的規定！”邁克爾·麥考爾通過華盛頓自由燈塔申明：”現在的問題是，CCP是選擇繼續進行他們虛假的宣傳活動，繼續聲稱他們向全世界發出了警告；還是全盤招供，並開始與世界衛生組織合作，徹底解決這場致命的大瘟疫。”
-
-邁克爾·麥考爾的報告清楚地表明，世衛組織總幹事譚德塞模仿附和了中國關於主動報告病毒的說法。
-
-報告總結說:“譚德塞總幹事積極地致力於捍衛CCP的領導地位，使其免受批評，這對世界能認清該病毒產生了負面影響，並阻礙了全球應對病毒的努力。”
-
-根據邁克爾·麥考爾的發現，世衛組織最初的時間軸“忽略了世衛組織駐中共國辦事處是被世衛組織駐日內瓦總部’通知’的，而不是中共國衛生當局。”現在世衛組織修改的時間軸證實了這一點。
-
-雖然最初的病毒報告確實來自於武漢，但世衛組織總部的官員是在美國的一個預警網站上發現這些信息的。
-
-根據國會報告：“譚德塞總幹事的言論似乎在暗示是武漢或中共國向世衛組織通報了疫情，但這是不真實的” 。
-
-[原文鏈接](https://freebeacon.com/national-security/china-never-reported-existence-of-coronavirus-to-world-health-organization/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/MQGcWpvbMpTfJ/)
-
-0
+1

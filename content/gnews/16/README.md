@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯尼迪：我們要求中共遵守世界規則
-`2020-07-10 15:06 GM65` [轉載自GNews](https://gnews.org/zh-hant/259578/)
+## 全球疫情籠罩，中共只能被人人喊打；中共最後的瘋狂，去哪找擀面杖？“中共病毒疫情每日熱線”
+`2020-07-10 22:37 GM30` [轉載自GNews](https://gnews.org/zh-hant/259796/)
 
-翻譯：奔騰的長江字幕：Vinzo
- 
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
 0

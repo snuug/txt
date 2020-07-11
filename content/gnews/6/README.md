@@ -1,9 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球疫情籠罩，中共只能被人人喊打；中共最後的瘋狂，去哪找擀面杖？“中共病毒疫情每日熱線”
-`2020-07-10 22:37 GM30` [轉載自GNews](https://gnews.org/zh-hant/259796/)
+## 戰友們就等著享受G-TV股東的待遇吧
+`2020-07-11 04:59 GM31` [轉載自GNews](https://gnews.org/zh-hant/260030/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+很多G-TV的投資者都拿到了股票，大家一定要及時回復團隊發送的資訊，紙質的股票任選，團隊會負責寄給投資者。G-TV是受美國金融機構、證券機構監管的一家公司，一切依照美國法律辦理。
+
+*翻譯：【noraTina】校對：【Michelle】字幕：【Connor54】【相机过热啊】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
