@@ -1,69 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 冒險外逃的英雄科學家爆料CCP病毒的消息瞬間傳遍全球！(附各新聞媒體報導鏈接，持續更新)
-`2020-07-11 02:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/259884/)
+## 請君入甕，國會議員變“有用的白痴”
+`2020-07-11 06:28 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/260087/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11001808/ef264933-1be4-4cf5-9c09-7f2ee2ab1ecf.jpg)圖為香港大學的病毒學家閆麗夢博士（Dr. Li-Meng Yan） 
-經精心籌備，香港大學的病毒學家閆麗夢博士（Dr. Li-Meng Yan）在爆料革命（中共稱為的“海外流亡政治團體”）郭文貴先生和路德社的幫助下，今年4月28日，閆博士突破重重險阻成功出逃至美國。
+*新聞來源：The Scottish Sun《蘇格蘭太陽報》*
 
-又是一番背後的談判和較量，閆博士終於出現在世人面前，出現在聚光燈下開始講述有關CCP病毒的真相。
+*作者：Jon Rogers*
 
-昨天《福克斯》新聞報導了對病毒學家閆博士[獨家採訪](https://gnews.org/zh-hans/259544/) ，儘管4小時的採訪僅披露了10多分鐘，卻瞬間引爆全球媒體，不到24小時，幾十家國際媒體爭相跟進並轉載此報導。因為，正如閆博士所言：這無關政治，這是關係到人類生死存亡的事。
+*2020年7月7日*
 
-閆博士在採訪中表示，她有義務告訴全世界真相。她是自2019年12月底以來，世界上最早一批專攻冠狀病毒研究的科學家。她的上級，港大醫學院公共衛生學院[潘烈文博士（Dr. Leo Poon）](https://sph.hku.hk/tc/about-us/faculty-and-staff/academic-staff/poon,-lit-man-leo)給她安排了這方面的任務。 2019年末，她發現了中國大陸出現了2003年SARS類似的傳染現象，但中共政府習近平當局卻企圖掩瞞病毒真相，控制輿論，讓全世界臣服於共產黨的說辭。
+*翻譯：Michael\_NH*
 
-如果她不幸被捕，等待的是監禁甚至被立即處決。她想在美國開始新的生活，但她在中國的家人卻受到了中共的威脅。中共的警察闖入她青島的家，搜查，並且質詢她的父母。在隨後與父母的通話中，閆博士的父母請求她回到中國並且放棄抗爭中共政府。
+*簡評：Michael\_NH/InAHurry*
 
-閆博士說，除了她的上級[潘烈文博士](https://sph.hku.hk/tc/about-us/faculty-and-staff/academic-staff/poon,-lit-man-leo)之外，世衛組織附屬的實驗室負責人香港大學微生物學[Malik Peiris博士](https://en.wikipedia.org/wiki/Malik_Peiris)也知道病毒的實情，卻沒有採取任何行動。 [世衛組織官網](https://www.who.int/ihr/procedures/novel-coronavirus-2019/ec-22012020-members/en/)依舊將他列為顧問。閆博士對此感到絕望，但是並不驚訝。因為她早就對世衛組織的腐敗和中共之間的勾兌有所了解。但是她不想因他們而讓病毒禍害整個世界。因此，她選擇站出來，向全世界揭露病毒的真相。
+*校對：InAHurry*
 
-閆博士表示，儘管阻力重重，她將繼續發聲。
+*Page：拱卒*
 
-***以下是報導該事件的媒體，名單持續更新中：***
+**簡評：**
 
-1. [美國《福克斯》獨家：逃離香港的中國病毒學家指責北京掩蓋冠狀病毒：“我知道他們如何對待舉報人”](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)
-2. [英國《每日郵報》：中國病毒學家指責北京確實掩蓋了冠狀病毒的爆發，並說她不得不逃離香港，因為“我知道他們如何對待舉報人”](https://www.dailymail.co.uk/news/article-8510747/Chinese-virologist-claims-Beijing-DID-cover-coronavirus-outbreak.html)
-3. [美國《紐約郵報》：逃離香港的中國病毒學家指責北京掩蓋冠狀病毒](https://nypost.com/2020/07/10/chinese-virologist-flees-after-accusing-beijing-of-covid-19-cover-up/)
-4. [美國《新聞周刊》：中國病毒學家：我來美國是“傳達COVID真相的信息”](https://www.newsmax.com/newsfront/WHO-virologist-hong-kong-whistleblower/2020/07/10/id/976580/)
-5. [澳大利亞《每日電訊報》：中國病毒學家指責北京對COVID-19的掩蓋](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fcoronavirus%2Fcoronavirus-scientists-say-virus-is-airborne-as-american-interest-in-moving-to-new-zealand-spikes%2Fnews-story%2Fd073e34e00554f6cb98fb226b908ae42&amp;memtype=anonymous&amp;mode=premium)
-6. [羅馬尼亞《每日事件報》：從COVID的家鄉逃脫：“注意你所說的。否則，就有麻煩，就會被消失”](https://evz.ro/evadata-din-patria-covid-ului-ai-grija-ce-vorbesti-intram-in-bucluc-si-disparem.html)
-7. [台灣《自由時報》：逃往美國！中國病毒研究員大爆料：中國政府會殺了我](https://news.ltn.com.tw/news/world/breakingnews/3224844)
-8. [香港《立場新聞》：港大病毒學家逃亡美國受訪指中國早知疫情曾向上司進言被警告「勿碰紅線」](https://www.thestandnews.com/politics/%E6%B8%AF%E5%A4%A7%E7%97%85%E6%AF%92%E5%AD%B8%E5%AE%B6%E9%80%83%E4%BA%A1%E7%BE%8E%E5%9C%8B-%E5%8F%97%E8%A8%AA%E6%8C%87%E4%B8%AD%E5%9C%8B%E6%97%A9%E7%9F%A5%E7%96%AB%E6%83%85-%E6%9B%BE%E5%90%91%E4%B8%8A%E5%8F%B8%E9%80%B2%E8%A8%80%E8%A2%AB%E8%AD%A6%E5%91%8A-%E5%8B%BF%E7%A2%B0%E7%B4%85%E7%B7%9A/)
-9. [《看中國》：Fox獨家：中國病毒學家指控北京掩蓋武漢肺炎疫情](https://www.secretchina.com/news/b5/2020/07/10/939302.html)
-10. [《自由亞洲》：中國外逃病毒專家閆麗夢接受美媒專訪：中國政府掩蓋疫情](https://www.rfa.org/mandarin/Xinwen/7-07102020124542.html)
-11. [《以色列新聞》：病毒學家逃離香港，指責中共國掩蓋冠狀病毒](https://israelnoticias.com/internacional/virologa-huye-china-encubrir-coronavirus/)
-12. [《希望之聲》：中共掩蓋中共病毒疫情！專家證人逃亡來美](https://www.soundofhope.org/post/399631?lang=b5)
-13. [香港《蘋果日報》：怕被中共滅口流亡美國港大病毒學家爆料：中國去年底就發現病毒人傳人](https://tw.appledaily.com/international/20200711/2CQOBKL3TV2NOSX3SPRE57TEOI/)
-14. [美國《國際財經時報》：閆麗夢博士是誰？中國病毒學家指責中共國和世衛組織隱瞞病毒疫情](https://www.ibtimes.sg/who-dr-li-meng-yan-chinese-virologist-accuses-china-who-coronavirus-cover-48275)
-15. [美國《國家評論》：中國病毒學家詳述北京對冠狀病毒傳染性的謊言](https://www.nationalreview.com/corner/chinese-virologist-details-beijings-lies-about-the-contagiousness-of-the-coronavirus/)
-16. [英國《每日星報》：逃離到美國的中國病毒專家稱知道關於中共國掩蓋病毒疫情的“真相”](https://www.dailystar.co.uk/news/world-news/chinese-virus-expert-who-defected-22336769)
-17. [法國《Fr24 news》：獨家：逃離香港的中國病毒學家指責北京藏有冠狀病毒：“我知道他們如何對待舉報人”](https://www.fr24news.com/a/2020/07/exclusive-chinese-virologist-accuses-beijing-of-hiding-coronavirus-flees-hong-kong-i-know-how-they-treat-whistleblowers.html)
-18. [《維基》網站：誰是閆麗夢博士維基，生物，年齡，維基百科，Instagram，Twitter和更多事實](https://wikispro.com/dr-li-meng-yan-wikipedia/)
-19. [美國《華盛頓觀察家報》：“我知道他們如何對待舉報人”：病毒學家逃離香港，指責中共國掩蓋冠狀病毒](https://www.washingtonexaminer.com/news/i-know-how-they-treat-whistleblowers-virologist-flees-hong-kong-and-accuses-china-of-coronavirus-cover-up)
-20. [美國《文圖拉廣播》：中國病毒學家：我來美國是“傳達COVID真相的信息”](http://www.venturabroadcasting.com/chinese-virologist-i-came-to-us-to-deliver-the-message-of-the-truth-of-covid)
-21. [美國《每日快報》：科學家被告知“保持沉默”，中國確實掩蓋冠狀病毒的爆發](https://usadailyexpress.com/china-cover-up-china-did-cover-up-coronavirus-outbreak-as-scientist-told-keep-silent/)
-22. [美國《快遞文摘》：冠狀病毒：中國病毒學家稱疫情已被掩蓋](https://expressdigest.com/coronavirus-chinese-virologist-says-outbreak-was-covered-up/)
-23. [《MogazNews》新聞網：中國病毒學家聲稱北京確實掩蓋了冠狀病毒的爆發](https://en.mogaznews.com/World-News/1556240/Chinese-virologist-claims-Beijing-DID-cover-up-coronavirus-outbreak.html)
-24. [《ReadSector》新聞網：冠狀病毒：中國病毒學家稱疫情已被掩蓋](https://en.mogaznews.com/World-News/1556240/Chinese-virologist-claims-Beijing-DID-cover-up-coronavirus-outbreak.html)
-25. [《BuradaBiliyorum》新聞網：中國病毒學家指責北京掩蓋冠狀病毒](https://en.buradabiliyorum.com/chinese-virologist-in-hiding-after-accusing-beijing-of-coronavirus-cover-up/)
-26. [丹麥《金融網》：逃離香港的中國病毒學家指控北京掩蓋COVID-19](https://finanz.dk/chinese-virologist-flees-hong-kong-accuses-beijing-of-covid-19-cover-up/)
-27. [美國《六度新聞網》：剛剛!中國病毒學家挺身而出指控北京掩蓋新冠疫情](https://6do.news/article/2925267-61)
-28. [法國《FL24新聞網》：香港病毒學家拆穿中共國冠狀病毒的謊言](https://fl24.net/2020/07/10/une-virologiste-de-hong-kong-qui-demonte-les-mensonges-chinois-sur-le-coronavirus-doit-vivre-cachee-en-amerique/)
-29. [英國《MetiNews》：中國病毒學家稱北京確實掩蓋了冠狀病毒的爆發，並說她不得不逃離香港，因為“我知道他們如何對待舉報人”](https://metinews.com/daily-uk-news-chinese-virologist-claims-beijing-did-cover-up-coronavirus-outbreak-and-says-she-has-had-to-flee-hong-kong-because-i-know-how-they-treat-whistleblowers-metinews-com/34576/)
-30. [《The Lid Press》新聞網：中國病毒學家閆麗夢博士說中共國確實掩蓋了COVID-19的爆發](https://lidblog.com/dr-li-meng-yan/)
-31. [印度《時報新聞》：中國病毒學家指責北京掩蓋了COVID-19，逃離香港；聲稱世衛組織顧問了解病毒](https://www.timesnownews.com/international/article/accusing-beijing-of-covid-19-cover-up-chinese-virologist-flees-hong-kong-claims-who-advisor-knew-about-virus/619731)
-32. [美國《NewsDio》獨家：中國病毒學家指責北京被冠狀病毒掩蓋，逃離香港：“我知道他們如何對待舉報人”](https://newsdio.com/exclusive-chinese-virologist-accuses-beijing-of-coronavirus-cover-up-fleeing-hong-kong-i-know-how-they-treat-whistleblowers/135235/)
-33. [《Jenreport》新聞網：港大病毒學家逃亡美國，指中共國早知疫情，曾向上司進言被警告「勿碰紅線」](https://jenreport.com/2020/07/10/%e6%b8%af%e5%a4%a7%e7%97%85%e6%af%92%e5%ad%a6%e5%ae%b6%e9%80%83%e4%ba%a1%e7%be%8e%e5%9b%bd-%e6%8c%87%e4%b8%ad%e5%9b%bd%e6%97%a9%e7%9f%a5%e7%96%ab%e6%83%85-%e6%9b%be%e5%90%91%e4%b8%8a%e5%8f%b8%e8%bf%9b/)
-34. [美國《大紀元時報》：中國病毒學家說北京掩蓋了病毒爆發，在美國尋求庇護](https://www.theepochtimes.com/chinese-virologist-says-beijing-covered-up-virus-outbreak-seeks-asylum-in-us-report_3420114.html)
-35. [西班牙《Noticias》：病毒學家說，中共國去年忽略了冠狀病毒警報](https://noticias.r7.com/jr-na-tv/videos/virologista-diz-que-china-ignorou-alertas-sobre-o-coronavirus-no-ano-passado-10072020)
-36. [《TheApexHerald》網站：逃離香港的中國病毒學家指責北京掩蓋COVID-19疫情](http://www.theapexherald.com/chinese-virologist-flees-following-accusing-beijing-of-covid-19-cover-up/)
-37. [印度《RokzFast》網站：病毒學家逃離香港並指責中共國掩蓋冠狀病毒](https://rokzfast.com/virologist-flees-hong-kong-and-accuses-china-of-coronavirus-cover-up-37857/)
-38. [英國《世界新聞網》：冠狀病毒：中國病毒學家稱疫情已被中共掩蓋](https://twnews.co.uk/uk-news/coronavirus-chinese-virologist-says-outbreak-was-covered-up)
-39. [意大利《Renovatio21》：中國病毒學家逃離香港，指責北京掩蓋COVID-19大流行](http://www.renovatio21.com/covid-19-virologa-cinese-fugge-da-hong-kong-e-accusa-pechino-di-aver-insabbiato-lepidemia/)
-40. [尼日利亞《獨立報》：逃離到美國的COVID-19專家指責中共國掩蓋病毒真相](https://www.independent.ng/covid-19-expert-who-defected-to-us-claims-to-know-truth-about-china-cover-up/)
+有報導說前M16 間諜斯蒂爾和他的公司奧比斯製作了一份名為《中共國精英佔領》的報告。其中揭露了中共和華為在通過英國籠絡知名人士讓他們成為“有用的白痴”。中共通過BGY滲透外國高層被爆料革命曝光後已經引起了各界的關注。文中提及的報告就是又一個強有力的證明。雖然，被報告提及的英國政要都否認了收到來自華為的籠絡。但是英國在1月份頂著壓力，不顧來自美國的善意警告決定讓華為參與英國的5G建設，這不能說與華為在英國高層的運作沒有關聯。幸運的是，在中共病毒成功攻入唐寧街和白金漢宮後，英國對華為的態度已經有了180度的轉變：鮑里斯•約翰遜計劃在2023年之前讓華為退出英國5G網絡建設。中國大使劉曉明為此竟然公然警告英國說，如果英國停止對華為的投資，將要承擔後果。
+
+中共的陰陽臉在英國的華為事件中表現的淋漓盡致。這樣的流氓政權實在是沒有資格參與國際社會。每個有自尊的國家都應該立即與中共國脫鉤！
 
 
-翻譯報導：匿名戰友
-報導整理：白夜，晴天小螞蟻
 
-0
+##  **前軍情六處間諜檔案指責中共國和華為精心策劃秘密行動，讓國會議員成為“有用的白痴”** 
+
+
+
+該報告由美國電影製片人安德魯•鄧肯(Andrew Duncan)出資，聘請克里斯托弗•斯蒂爾(Christopher Steele)和他的奧比斯商業智能(Orbis Business Intelligence) 公司協助撰寫。
+[!\[\](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/fd7f78c8-b832-4bf7-83c6-7533f6e57749.jpg?asset_id=c45fe340-c976-4c22-af2b-cbab71b675e6&amp;img_etag=%22cdef0ad43991f3b5ee6bdc52f338ba85%22&amp;size=2560)](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/fd7f78c8-b832-4bf7-83c6-7533f6e57749.jpg?asset_id=c45fe340-c976-4c22-af2b-cbab71b675e6&amp;img_etag=%22cdef0ad43991f3b5ee6bdc52f338ba85%22&amp;size=1024)克里斯托弗·斯蒂爾曾是軍情六處的高級間諜
+這份名為《中國的精兵強將》的報告稱，華為在海外的設立虛假廣播電台，並邀請知名人士參加討論和採訪。目的是鼓勵他們支持華為，甚至加入其董事會。
+
+報告同時指認，社交媒體也被（中共國）用來試圖改變大眾的觀點。
+
+該文件提到了幾位知名人士，稱他們是“親華為運動”的目標之一，目的是讓他們成為中共國“有用的白痴”。
+
+華為昨晚否認了這一說法，稱其”駁斥了這些毫無根據的指控”，這些指控”沒有事實依據”。消息人士稱，他們認為華為是美國宣傳活動的受害者，目的是不讓其參與英國正在建設的5G網絡。
+
+名單中包括了前保守黨議員薩拉•沃拉斯頓(Sarah Wollaston)，她曾擔任權力很大的下議院聯絡委員會主席的職務。
+
+她告訴《每日電訊報》，她從不曉得有任何秘密行動。
+
+沃拉斯頓聲稱，她能記得與華為的唯一聯繫，是華為曾通過某中介機構提出贊助一場紀念委員會系統成立40週年的活動。
+
+她並說她拒絕了這個贊助。
+
+沃拉斯頓女士告訴《每日電訊報》: 如果他們曾試圖影響過我，那麼並沒有太大效果。
+[!\[\](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/c09598f1-cc7a-4a82-bb36-2d1d4a7815fb.jpg?asset_id=ddd18a87-ac21-43e8-8aa2-cb7d71f06718&amp;img_etag=%2275a5523b8ed3031faa6ceaa43c5556f5%22&amp;size=2560)](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/c09598f1-cc7a-4a82-bb36-2d1d4a7815fb.jpg?asset_id=ddd18a87-ac21-43e8-8aa2-cb7d71f06718&amp;img_etag=%2275a5523b8ed3031faa6ceaa43c5556f5%22&amp;size=1024)華為堅決否認這些指控
+名單上的另一位自由民主黨議員Clement-Jones勳爵表示，由於他是華為國際顧問委員會成員，所以沒有必要把矛頭對准他。
+
+他告訴《衛報》:我和這家公司的關係眾所周知。就我而言，他們不必通過假的廣播節目來聯繫我。這一切都令人費解。這都是幻想。我們不是操縱者手中的玩具。
+
+據稱，英國首相鮑里斯•約翰遜(Boris Johnson)是2023年之前讓華為退出英國5G網絡建設的計劃的幕後推手。
+[!\[\](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/1e194212-cd60-4dc9-a867-802947834fe8.jpg?asset_id=8916c7e0-bc4d-485a-a8c1-1b1fc8f3d5e1&amp;img_etag=%2269101149be1c8b3b9763216a72470e70%22&amp;size=2560)](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/1e194212-cd60-4dc9-a867-802947834fe8.jpg?asset_id=8916c7e0-bc4d-485a-a8c1-1b1fc8f3d5e1&amp;img_etag=%2269101149be1c8b3b9763216a72470e70%22&amp;size=1024)莎拉·沃拉斯頓否認被華為鎖定為接近目標
+中國大使劉曉明警告說，如果英國停止讓華為參與5G，這會帶來嚴重的後果。
+
+曉明先生聲稱這樣做會削弱投資者對英國的信心。
+
+劉說，“所有人都在看。因為還有信任的因素，此後人們該如何信任你?我希望英國政府做出最符合利益的決定，不僅符合中國的利益，也符合英中合作的利益，更符合英國自身的利益。
+
+據稱，斯蒂爾和奧比斯公司對該報告的貢獻不到“10%”，與斯蒂爾關係密切的消息人士堅稱，“這不是我們的報告或我們的工作”，而是中國專家對其進行了研究。
+[!\[\](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/ff68ec21-126a-4be3-9592-51f083a17b7d.jpg?asset_id=4c08f287-2276-47ec-8fd8-b7e88808ee77&amp;img_etag=%22d587aac92d4aa926525cfa64491dcea8%22&amp;size=2560)](https://spark.adobe.com/page/zMwzmIe8Wo7u3/images/ff68ec21-126a-4be3-9592-51f083a17b7d.jpg?asset_id=4c08f287-2276-47ec-8fd8-b7e88808ee77&amp;img_etag=%22d587aac92d4aa926525cfa64491dcea8%22&amp;size=1024)據說鮑里斯•約翰遜(Boris Johnson)正在起草計劃，終止華為參與英國的5G網絡
+[原文鏈接](https://www.thescottishsun.co.uk/news/5781721/huawei-china-covert-campaign-mi6-agent-dossier/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/zMwzmIe8Wo7u3/)
+
+1

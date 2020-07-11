@@ -1,31 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP滑向深淵——聯邦退休基金必須撤離中共！白宮再次禁止投資CCP！
-`2020-07-11 08:25 GM77` [轉載自GNews](https://gnews.org/zh-hant/260225/)
+## 美駐華大使館和總領事館向在華美國公民發出安全警告
+`2020-07-11 11:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260355/)
 
-編撰：文秀、Pearl 珍珠、xmly（七角星）、文寶Porsche、臺灣荔枝、Lori文噠
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11112417/Picture-1-69.png)圖片來源：美國駐華大使館圖標
+***以下是美駐華大使館和總領事館7月11日向在華美國公民發出安全警告的全文翻譯***
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11082224/7.11-2-2.png)
+**地點：**中華人民共和國
 
-白宮8日向第二家聯邦退休基金（美國鐵路退休委員會 RRB）寫信，要求其撤回投資於北京軍方和侵犯人權中國公司的數億美元，這是白宮第二次阻止聯邦養老基金投資中共的舉措。
+**事件：**由於當局為達成法律和秩序以外的目的在中華人民共和國（PRC）收緊了法律的執行力度。這種變化可能包括拘留和使用出境禁令。
 
-RRB委員會由三名成員組成，是一個獨立的聯邦機構，負責鐵路工人的退休福利，與社會保障體系分開。該基金目前在中國的準確投資金額尚無法得知，但根據RRB委員會的報告，兩年前它管理的資產為283億美元，2019年的受益人基數約為50萬。
+- 在華美國公民可能在沒有獲得美國領事服務或有關其所指控犯罪的信息前被扣留。
+- 在華美國公民可能會遭受涉及“國家安全”相關的原因而受到長時間的訊問和長期拘留。
+- 在華美國公民也可能會因發送批評中國政府的私人電子消息而遭到中國安全部門拘留和驅逐。
 
-白宮的國家安全顧問羅伯特-奧布萊恩(Robert C. O’Brien)和國家經濟委員會主任拉裏-庫德洛(Larry Kudlow)在信中，概述了他們對RRB將養老金投向可疑的中國公司的擔憂。
 
-奧布萊恩先生和庫德洛先生表示，該基金目前持有參與制造導彈、軍用飛機和用於鎮壓中國少數民族的電信產品的中國公司的股份。
+如果您被捕或拘留，請要求警察或監獄官員立即通知美國大使館或最近的領事館。
 
-白宮國家安全委員會發言人約翰-烏利奧特說：“將辛勤工作美國人的退休儲蓄投資於中國公司，從長期投資風險角度看極其不審慎；考慮到CCP在疫情方面的罪惡行徑，也非常不負責任。”
+**有關更多信息，請參見下面的使領館聯繫信息。**
 
-長期以來，退休基金一直關註的是美國和國際市場上最安全的投資，但白宮官員表示，目前形勢下對中國公司的投資，將使美國退休人員面臨不可接受的金融風險。
+請您訪問[travel.state.gov，](https://travel.state.gov/content/travel/en/international-travel.html)以查看有關在華旅行安全相關建議。也可以訪問美國相關使領館的網站，以查看有關入境限制，外國檢疫政策以及地方政府提供的緊急衛生信息。
 
-**編者觀點**
+敦促旅行者註冊使用“ [智能旅行者登記程序”（STEP）](https://step.state.gov/step/)來接收警報，並使得在緊急情況下能更容易找到您。有關恐怖主義威脅，安全事件，計劃中的示威活動，自然災害等的信息會通過該程序發布。如果您需要緊急援助，請聯繫最近的美國大使館或領事館或致電以下號碼：1(888) 407-4747 （美國和加拿大免費電話）或其他國家或地區則撥打1 (202) 501-4444。
 
-早在今年五月份，白宮已經向一家負責管理美國大多數聯邦工人退休儲蓄的基金，提出要終止投資中國的公司的建議，後被采納。爆料革命戰友都知道，這些措施是美國為下一步制裁CCP做準備。一旦美國開始制裁中共國，中共將面臨股市崩盤、經濟崩潰的局面。如果不提前撤出投資，將給美國養老基金造成巨大損失，引起美國社會動蕩。
+**請通過以下渠道獲得幫助：**
 
-現在美國已經做好中共墮入深淵的各種準備，美國各界已經蘇醒，並在全面采取行動。從美國國務院、白宮、司法部、國家安全委員會、FBI現在都在媒體輿論揭露中共醜惡的嘴臉，讓美國民眾進一步認識到中共的邪惡，認識到中共不滅世界永無寧日。等民意完全沸騰那一天，川普政府順水推舟掄起大錘，對中共國經濟、貨幣、金融、科技、軍事全面制裁，CCP就完蛋了！CCP真的完蛋了！
+美國駐華大使館
+電話：+(86)(10) 8531-4000
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：[\[email protected\]](/cdn-cgi/l/email-protection#e2a0878b888b8c85a3a1b1a29196839687cc858d94)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/beijing/](https://china.usembassy-china.org.cn/embassy-consulates/beijing/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/)
 
-參考鏈接：[https://www.washingtontimes.com/news/2020/jul/8/trump-aides-press-railroad-pension-fund-cut-chines/](https://www.washingtontimes.com/news/2020/jul/8/trump-aides-press-railroad-pension-fund-cut-chines/)
+美國駐成都總領事館
+電話：+(86)(28) 8558-3992
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件  [\[email protected\]](/cdn-cgi/l/email-protection#2d6c406e44596e4548434a49586d5e594c5948034a425b)
+英文網站：[https://china.usembassy- china.org.cn/embassy-consulates/chengdu/](https://china.usembassy-china.org.cn/embassy-consulates/chengdu/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/)
+
+美國駐廣州總領事館
+電話：+(86)(20) 3814-5775
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#450230242b223f2d2a300406160536312431206b222a33)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/guangzhou/](https://china.usembassy-china.org.cn/embassy-consulates/guangzhou/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/)
+
+美國駐上海總領事館
+電話：+(86)(21) 8011-2400
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#7d2e151c131a151c143c3e2e3d0e091c0918531a120b)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/shanghai/](https://china.usembassy-china.org.cn/embassy-consulates/shanghai/%E2%80%AF)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/)
+
+美国驻沈阳总领事馆
+电话：+(86)(24) 2322-1198
+下班后紧急电话：+(86(24)2322-1198
+电子邮件 ：[Shen\[email protected\]](/cdn-cgi/l/email-protection#5f0c373a31263e31381e1c0c1f2c2b3e2b3a71383029)
+英文网站： [https://china.usembassy-china.org.cn/embassy-consulates/shenyang/](https://gcc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fembassy-consulates%2Fshenyang%2F&amp;data=02%7C01%7CBorkowiczBL%40state.gov%7Cdb85b57cff254c434e1c08d817e97fad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637285638927606038&amp;sdata=kSuAJmrbTNF14mupGFwkayf5S9vf%2FOOLJQn5oE7xlrs%3D&amp;reserved=0)
+中文网站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/)
+
+[原文鏈接](https://china.usembassy-china.org.cn/security-alert-heightened-risk-of-arbitrary-detention/)
+
+翻譯：小煦
+校對：晴天小螞蟻
 
 0
