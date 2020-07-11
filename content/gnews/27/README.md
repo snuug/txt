@@ -1,9 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯尼迪：我們要求中共遵守世界規則
-`2020-07-10 15:06 GM65` [轉載自GNews](https://gnews.org/zh-hant/259578/)
+## 7月10日福克斯獨家採訪：香港女英雄科學家閆麗夢不畏被中共消失的風險,爆料中共掩蓋中共病毒真相
+`2020-07-11 02:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/259894/)
 
-翻譯：奔騰的長江字幕：Vinzo
- 
 0

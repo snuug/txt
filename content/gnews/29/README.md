@@ -1,165 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英雄科學家登場！
-`2020-07-10 13:29 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/259529/)
-
-*新聞來源：福克斯新聞*
-
-*作者：Barnini Chakraborty, Alex Diaz*
-
-*翻譯：城堡，InAHurry，johnwallis*
-
-***簡評：**海闊天空*
-
-***校對：** TCC ， InAHurry* ； *Page：面面*
-
-**簡評：**
-
-看完閆麗夢女士在福布斯的訪談，難以抑制激動的心情。這是一顆美麗的心靈，這是一個英雄的傳奇，這是一位女性的絕唱，這是科學家的光輝良知，這是正義奏響的交響樂。閆麗夢，是中國人民的驕傲，是全體華人的驕傲，是世界女性的傑出代表，也是一位優秀的科學家向科學所做的最高致意！
-
-與閆博士的絕美形成強烈反差的是中共的邪惡，他們完全無視中國人民和世界人民遭受的重大健康風險、生命安全風險， 近乎癲狂地控制冠狀病毒的話語權，所有與官方不一致的說法都被禁言，所有敢於出聲的科學家都受到殘酷的迫害、打壓。對於勇敢向中共說不的所有人，中共抹黑聲譽、網絡攻擊、株連家人、生命威脅，無所不用其極。中共是一個徹徹底底的黑幫，中共的存在對所有人都是威脅！
-
-閆博士的訪談揭示了世界衛生組織的腐敗。世界衛生組織本應該是人類健康的捍衛者，本應無關政治只問健康，本應迅速、透明地公開與人類健康有關的所有信息，本應以科學為依據給出客觀公正的建議，卻在中共的滲透下與中共狼狽為奸、箝制信息、誤導公眾，與中共聯手，謀殺世界人民。世界衛生組織這個腐敗墮落的組織，早已被釘在歷史的恥辱柱上！
-
-閆博士的訪談也揭示了爆料革命的巨大力量。如果沒有爆料革命，閆博士會不會想到出逃美國？即使她來到美國，會不會遭遇中共黑手？即使她來到美國，會不會有福克斯這樣的平台讓她自由發聲？爆料革命是她心裡的諾亞方舟，也是我們所有華人心中的諾亞方舟。爆料革命對冠狀病毒的揭露，對病毒人傳人的預警，對硫酸羥氯喹藥物的推薦，對英雄科學家的保護，對中共邪惡和危害的揭露，對全球聯合滅共的推進，對中國人民和世界人民做的千秋偉業，必然千古迴響！
-
-在滅共事業的關鍵時期，在香港國安法強性通過之際，在美國對中共全面圍剿之際，福克斯發布了對閆麗夢博士的訪談，這對動員美國社會、影響美國輿論，對做實中共罪行、給予中共雷霆打擊增加了重磅砝碼。
-
-**中共滅亡可以倒計時了！**
-
-##  **獨家：中國病毒學家指控北京掩蓋冠狀病毒，逃離香港：“我清楚他們是怎麼對待爆料者的”** 
-
-**引言：**
-
-閆麗夢告訴福克斯新聞，她相信中共國早在公開宣布的很久之前，就知道冠狀病毒的存在。她說，她的上司也忽略了她正在進行的，被她認為是可以挽救生命的研究。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10130604/Picture1.png) **冠狀病毒爆料人：福克斯新聞獨家專訪** 
-來自香港的病毒學家，閆麗夢博士，在一次獨家專訪中告訴福克斯新聞，談及了她引領的對新型冠狀病毒COVID-19的早期研究，以及為什麼她認為全世界被隱瞞了這項研究。
-
-### **香港科學家閆麗夢博士，正步入了無人涉足的領域。** 
-
-在她登上4月28日國泰航空飛往美國的航班的幾個小時前，這位備受尊重的香港大學公共衛生學院病毒學和免疫學專家已經策劃好了她的逃跑計劃，收拾好行李並躡手躡腳穿過了學院的監控崗位和攝像頭。
-
-她拿好了她的護照和錢包，且將要把所有的親人拋在身後。如果她被抓到了，她知道她將會被投入大牢—— 或者更糟，將成為“被失踪”的人之一。
-
-閆在接受專訪時告訴福克斯新聞，說她相信中共國政府早在公開宣布的很久之前，就知道冠狀病毒的存在。她說，她的上司，被譽為該領域的一些頂級專家們，也忽略了她在冠狀病毒開始流行時正在進行的，被她認為是可以挽救生命的研究。
-
-她補充說，鑑於他們作為世界衛生組織專門研究流行性感冒及大流行病的參考實驗室的地位，他們有向世界公佈(事實)的義務，尤其在病毒在2020年初剛剛開始傳播的時候。
-
-如今已經躲藏起來的閆，稱她自己出生國家的政府正試圖破壞她的聲譽，她還指責(中共)政府僱傭的打手們精心策劃了針對她個人的網絡襲擊，目的是為了讓她噤聲。
-
-閆認為她的生命正處在危險之中。她擔心自己再也回不了家了，並且很可能將生活在再也無法見到她的朋友和家人的嚴酷的事實之中。
-
-儘管如此，她依然說，值得冒這個險。
-
-她在一個保密的地點，告訴福克斯新聞：“我之所以來到美國，就是為了傳遞有關新冠病毒真相的信息。”
-
-她補充說，如果她想在中共國講述她的故事，她“將被失踪，或被殺死。”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10130859/Picture2.png)閆麗夢博士在她婚禮上的照片。 (閆) 
-閆的故事，繪出了一個關於政府最高層掩蓋真相的驚人的說法，並似乎暴露出習近平主席和他的中國共產黨，對於控制冠狀病毒輿論偏執性的強迫症：中共國知道什麼，它在什麼時候知道的，以及那些被編輯過的信息被兜售到了世界其他地方。
-
-閆說，她是世界上研究這種新型冠狀病毒的首批科學家之一，據稱她在2019年，被她在大學/世衛組織參考實驗室的上司，潘烈文博士Leo Poon，要求調查2019年12月底在中共國大陸出現的類似SARS的病例。
-
-“中共國政府拒絕讓包括一位香港人在內的海外專家，到中共國進行研究。”她說。 “所以我求助我的朋友們來獲得更多信息。”
-
-閆在中共國大陸長大並在那裡完成了許多研究，所以她在那裡的各大醫療機構有著廣泛的專業聯絡網絡。她說，尤其是當她的團隊知道了他們沒有從政府那裡得到全部真相的時候，這就讓她來進行此類研究的確切原因。
-
-有一位朋友，是中共國疾病預防和控制中心的科學家，他對這些病例有著第一手的資料，且據稱，在中共國或世衛組織承認這種病毒可以人傳人很久之前的12月31日，就告訴閆說存在這種傳播的可能。
-
-閆說，她把其中的一些早期發現，報告給了她的老闆。
-
-“他只是點了點頭，”她回憶說，然後就告訴她繼續工作。
-
-幾天之後，2020年1月9日，世界衛生組織發表聲明：“根據中共國當局的說法，該病毒可以導致一些病人出現嚴重的疾病，並不輕易發生人際傳播…有限的信息無法判斷報告的群體病例的總體風險。”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/10131050/Picture3.png)閆麗夢博士在香港(閆) 
-閆說，她和她在中共國的同事們討論了這種特殊的病毒，但她很快就注意到語氣發生了急劇轉變。
-
-曾公開討論該病毒的醫生和研究人員們，突然就不發一言了。那些來自武漢市- 後來成為了爆發的中心- 的人們變得沉默，而其他人則被警告說不要向他們詢問細節。
-
-嚴說，醫生不祥地說：“我們不能談論它，但我們需要戴口罩。”
-
-後來，她的消息源（告訴她），人際傳播的數字開始成倍增長，於是閆開始尋找真相。
-
-閆說：“當時有很多很多病人不能得到及時的治療和確診。醫院裡的醫生們都很害怕，但他們不能發聲。疾控中心的工作人員（也）很害怕。”
-
-她說，她在1月16日再次向她的上司報告了她的發現，但據說那時她的上司讓她“保持沉默，而且要小心”。
-
-“就像他之前警告我的那樣，’不要觸碰紅線’”，這裡閆指的是政府。 “我們會引火上身而且我們會被消失的。”
-
-她（閆）還稱，一個世衛組織附屬實驗室的聯合主任馬利克-佩里斯（Prof. Malik Peiris）他也知情，但他什麼都沒有做。
-
-佩里斯也沒有回應置評請求。世衛組織網頁上把佩里斯列為世衛組織新冠病毒2019-nCoV所致肺炎國際衛生條例緊急委員會的“顧問”。
-
-閆為此感到很沮喪，但她對此並不感到意外。
-
-她說：“我早就知道會是這樣，因為我了解像世界衛生組織這樣的國際組織與中共國政府和中國共產黨之間的腐敗。所以，基本上…我接受（現實），但我不希望這種誤導性的信息被傳播到全世界。”
-
-世界衛生組織和中共都堅決否認掩蓋管狀病毒的說法。 （ [視頻](https://video.foxnews.com/v/6169011747001#sp=show-clips) ）
-
-世界衛生組織同時還否認閆，潘或是佩里斯曾經直接為該組織工作過。
-
-世衛組織發言人瑪格麗特-安-哈里斯（Margaret Ann Harris）在一封郵件中說道：“馬利克-佩里斯教授（Prof. Malik Peiris）是一名傳染病專家，他曾參加過世衛組織的任務和專家組– 正如許多在各自領域中的傑出人士一樣。但這並不意味著他是世衛組織的工作人員，他也不代表世衛組織。“
-
-閆說，儘管有各種阻力，但她還是被一種是非(正義)感所激勵。因此她說，她必須把真相說出來，即使這對她個人和她的事業都會產生嚴重的後果。
-
-她說：“我明白他們都是如何對待吹哨人的。”
-
-**“** **我明白他們都是如何對待吹哨人的** **”**
-
-——閆麗夢博士
-
-和之前的許多人一樣，一旦閆決定把對中共不利的真相說出來，她發現自己和身邊最親近的人的生命都受到了威脅。
-
-她說，那是一種直接轉達給她的恐懼，而且似乎得到了住在美國的香港博客作者[路德](https://www.youtube.com/watch?v=CLTjg03CPEs)的證實。
-
-在她與路德分享了一些她的理論和懷疑後，路德告訴她說她需要離開（香港），也許可以去美國，在那裡她不需要總是提心吊膽的。路德說，只有那樣，她才會安全而且有說出真相的平台。
-
-閆最終決定離開（香港），但當她結婚6年的丈夫（也在實驗室工作）發現了妻子和路德之間的通話時，事情變得複雜起來。
-
-閆告訴福克斯新聞，她懇求她的丈夫和她一起離開，但她的丈夫- 本身也是一個有聲望的科學家，雖然一開始一直支持她的研究，但是卻突然改變了主意。
-
-閆說：“他非常惱怒，他責怪我，試圖毀掉我的信心…他說，’他們（中共）會把我們倆都殺了的’。”
-
-“ **他（閆的丈夫）說，** **‘** **他們（中共）會把我們倆都殺了的** **‘”**
-
-——閆麗夢博士
-
-震驚和傷痛之餘，閆做出了不帶上他離開的決定。
-
-4月27日，她拿到了去美國的機票。第二天，她就坐上了飛機。
-
-當她經過13個小時的旅程降落在洛杉磯國際機場時，她被海關官員攔下了。
-
-恐懼籠罩著她，閆不知道自己是會坐牢還是會被遣送回中共國。
-
-“我必須告訴他們真相，”她說，”我做的是正確的事情。所以我告訴他們，’不要讓我回中共國。我是來這裡講述中共病毒COVID-19真相的人…. ..。而且請保護我。如果你們不保護我，中共國政府會殺了我的。”
-
-據稱，FBI被叫來進行調查。閆稱他們對她進行了幾個小時的採訪，拿走了她的手機作為證據，並允許她繼續前往她目的地。
-
-FBI告訴福克斯新聞，它既不能證實也不能否認閆的說法；但是，福克斯新聞看到了一張證據收據，似乎證實了那一次互動。
-
-當閆試圖在美國找到自己的立足點時，她說她在家鄉的朋友和家人正在遭受考驗。
-
-閆聲稱政府蜂擁到她的家鄉青島，特工們把她的小公寓翻了底朝天，並詢問了她的父母。當她聯繫她的母親和父親時，他們懇求她回家，並告訴她，她不知道自己在說什麼，並懇求她放棄鬥爭。
-
-香港大學撤下了她的網頁，而且看上去撤銷了對她的在線門戶和電子郵件的訪問權限，儘管她說她正處於批准的年假中。在給福克斯新聞的一份聲明中，學校發言人表示，閆麗夢目前已不是學校員工。
-
-“閆麗夢博士不再是大學的員工，”聲明中這樣寫道，”出於對我們現任和前任員工的尊重，我們不會透露她的個人信息。感謝您的理解。”
-
-中共國駐美國大使館對福克斯新聞說，他們不知道閆是誰，並堅持認為中共國已經英勇地處理了這場大流行病。
-
-“我們從未聽說過這個人，”電子郵件聲明寫道，”自COVID-19爆發以來，中共國政府對其作出了迅速而有效的反應。其所有努力都已清楚、完全透明地記錄在《抗擊COVID-19，中國在行動》白皮書中。事實說明一切”。
-
-世衛組織也繼續否認在該病毒的最初階段有任何錯誤的行為。這個聯合國的醫療機構最近受到了科學家們的質疑，他們質疑世衛組織關於病毒傳播方式的官方觀點。世衛組織也改變了其網站上的冠狀病毒時間表，現在說它從世衛組織的科學家那裡得到了有關病毒的信息，而不是北京當局– 像它在6個多月裡一直聲稱的那樣。
-
-福克斯新聞還聯繫了中共國外交部和被閆指責壓制她的評論的科學家們。
-
-閆說，她會繼續發聲–但她知道，她已經被鎖定為目標。
-
-[原文鏈接](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)
-
-#### 編輯：【[喜馬拉雅戰鷹團](https://spark.adobe.com/page/cLBdNJ4aGE6yJ/)】 
-
-
-
-1
+## 冒險外逃的英雄科學家爆料CCP病毒的消息瞬間傳遍全球！(附各新聞媒體報導鏈接，持續更新)
+`2020-07-11 02:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/259884/)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11001808/ef264933-1be4-4cf5-9c09-7f2ee2ab1ecf.jpg)圖為香港大學的病毒學家閆麗夢博士（Dr. Li-Meng Yan） 
+經精心籌備，香港大學的病毒學家閆麗夢博士（Dr. Li-Meng Yan）在爆料革命（中共稱為的“海外流亡政治團體”）郭文貴先生和路德社的幫助下，今年4月28日，閆博士突破重重險阻成功出逃至美國。
+
+又是一番背後的談判和較量，閆博士終於出現在世人面前，出現在聚光燈下開始講述有關CCP病毒的真相。
+
+昨天《福克斯》新聞報導了對病毒學家閆博士[獨家採訪](https://gnews.org/zh-hans/259544/) ，儘管4小時的採訪僅披露了10多分鐘，卻瞬間引爆全球媒體，不到24小時，幾十家國際媒體爭相跟進並轉載此報導。因為，正如閆博士所言：這無關政治，這是關係到人類生死存亡的事。
+
+閆博士在採訪中表示，她有義務告訴全世界真相。她是自2019年12月底以來，世界上最早一批專攻冠狀病毒研究的科學家。她的上級，港大醫學院公共衛生學院[潘烈文博士（Dr. Leo Poon）](https://sph.hku.hk/tc/about-us/faculty-and-staff/academic-staff/poon,-lit-man-leo)給她安排了這方面的任務。 2019年末，她發現了中國大陸出現了2003年SARS類似的傳染現象，但中共政府習近平當局卻企圖掩瞞病毒真相，控制輿論，讓全世界臣服於共產黨的說辭。
+
+如果她不幸被捕，等待的是監禁甚至被立即處決。她想在美國開始新的生活，但她在中國的家人卻受到了中共的威脅。中共的警察闖入她青島的家，搜查，並且質詢她的父母。在隨後與父母的通話中，閆博士的父母請求她回到中國並且放棄抗爭中共政府。
+
+閆博士說，除了她的上級[潘烈文博士](https://sph.hku.hk/tc/about-us/faculty-and-staff/academic-staff/poon,-lit-man-leo)之外，世衛組織附屬的實驗室負責人香港大學微生物學[Malik Peiris博士](https://en.wikipedia.org/wiki/Malik_Peiris)也知道病毒的實情，卻沒有採取任何行動。 [世衛組織官網](https://www.who.int/ihr/procedures/novel-coronavirus-2019/ec-22012020-members/en/)依舊將他列為顧問。閆博士對此感到絕望，但是並不驚訝。因為她早就對世衛組織的腐敗和中共之間的勾兌有所了解。但是她不想因他們而讓病毒禍害整個世界。因此，她選擇站出來，向全世界揭露病毒的真相。
+
+閆博士表示，儘管阻力重重，她將繼續發聲。
+
+***以下是報導該事件的媒體，名單持續更新中：***
+
+1. [美國《福克斯》獨家：逃離香港的中國病毒學家指責北京掩蓋冠狀病毒：“我知道他們如何對待舉報人”](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)
+2. [英國《每日郵報》：中國病毒學家指責北京確實掩蓋了冠狀病毒的爆發，並說她不得不逃離香港，因為“我知道他們如何對待舉報人”](https://www.dailymail.co.uk/news/article-8510747/Chinese-virologist-claims-Beijing-DID-cover-coronavirus-outbreak.html)
+3. [美國《紐約郵報》：逃離香港的中國病毒學家指責北京掩蓋冠狀病毒](https://nypost.com/2020/07/10/chinese-virologist-flees-after-accusing-beijing-of-covid-19-cover-up/)
+4. [美國《新聞周刊》：中國病毒學家：我來美國是“傳達COVID真相的信息”](https://www.newsmax.com/newsfront/WHO-virologist-hong-kong-whistleblower/2020/07/10/id/976580/)
+5. [澳大利亞《每日電訊報》：中國病毒學家指責北京對COVID-19的掩蓋](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fcoronavirus%2Fcoronavirus-scientists-say-virus-is-airborne-as-american-interest-in-moving-to-new-zealand-spikes%2Fnews-story%2Fd073e34e00554f6cb98fb226b908ae42&amp;memtype=anonymous&amp;mode=premium)
+6. [羅馬尼亞《每日事件報》：從COVID的家鄉逃脫：“注意你所說的。否則，就有麻煩，就會被消失”](https://evz.ro/evadata-din-patria-covid-ului-ai-grija-ce-vorbesti-intram-in-bucluc-si-disparem.html)
+7. [台灣《自由時報》：逃往美國！中國病毒研究員大爆料：中國政府會殺了我](https://news.ltn.com.tw/news/world/breakingnews/3224844)
+8. [香港《立場新聞》：港大病毒學家逃亡美國受訪指中國早知疫情曾向上司進言被警告「勿碰紅線」](https://www.thestandnews.com/politics/%E6%B8%AF%E5%A4%A7%E7%97%85%E6%AF%92%E5%AD%B8%E5%AE%B6%E9%80%83%E4%BA%A1%E7%BE%8E%E5%9C%8B-%E5%8F%97%E8%A8%AA%E6%8C%87%E4%B8%AD%E5%9C%8B%E6%97%A9%E7%9F%A5%E7%96%AB%E6%83%85-%E6%9B%BE%E5%90%91%E4%B8%8A%E5%8F%B8%E9%80%B2%E8%A8%80%E8%A2%AB%E8%AD%A6%E5%91%8A-%E5%8B%BF%E7%A2%B0%E7%B4%85%E7%B7%9A/)
+9. [《看中國》：Fox獨家：中國病毒學家指控北京掩蓋武漢肺炎疫情](https://www.secretchina.com/news/b5/2020/07/10/939302.html)
+10. [《自由亞洲》：中國外逃病毒專家閆麗夢接受美媒專訪：中國政府掩蓋疫情](https://www.rfa.org/mandarin/Xinwen/7-07102020124542.html)
+11. [《以色列新聞》：病毒學家逃離香港，指責中共國掩蓋冠狀病毒](https://israelnoticias.com/internacional/virologa-huye-china-encubrir-coronavirus/)
+12. [《希望之聲》：中共掩蓋中共病毒疫情！專家證人逃亡來美](https://www.soundofhope.org/post/399631?lang=b5)
+13. [香港《蘋果日報》：怕被中共滅口流亡美國港大病毒學家爆料：中國去年底就發現病毒人傳人](https://tw.appledaily.com/international/20200711/2CQOBKL3TV2NOSX3SPRE57TEOI/)
+14. [美國《國際財經時報》：閆麗夢博士是誰？中國病毒學家指責中共國和世衛組織隱瞞病毒疫情](https://www.ibtimes.sg/who-dr-li-meng-yan-chinese-virologist-accuses-china-who-coronavirus-cover-48275)
+15. [美國《國家評論》：中國病毒學家詳述北京對冠狀病毒傳染性的謊言](https://www.nationalreview.com/corner/chinese-virologist-details-beijings-lies-about-the-contagiousness-of-the-coronavirus/)
+16. [英國《每日星報》：逃離到美國的中國病毒專家稱知道關於中共國掩蓋病毒疫情的“真相”](https://www.dailystar.co.uk/news/world-news/chinese-virus-expert-who-defected-22336769)
+17. [法國《Fr24 news》：獨家：逃離香港的中國病毒學家指責北京藏有冠狀病毒：“我知道他們如何對待舉報人”](https://www.fr24news.com/a/2020/07/exclusive-chinese-virologist-accuses-beijing-of-hiding-coronavirus-flees-hong-kong-i-know-how-they-treat-whistleblowers.html)
+18. [《維基》網站：誰是閆麗夢博士維基，生物，年齡，維基百科，Instagram，Twitter和更多事實](https://wikispro.com/dr-li-meng-yan-wikipedia/)
+19. [美國《華盛頓觀察家報》：“我知道他們如何對待舉報人”：病毒學家逃離香港，指責中共國掩蓋冠狀病毒](https://www.washingtonexaminer.com/news/i-know-how-they-treat-whistleblowers-virologist-flees-hong-kong-and-accuses-china-of-coronavirus-cover-up)
+20. [美國《文圖拉廣播》：中國病毒學家：我來美國是“傳達COVID真相的信息”](http://www.venturabroadcasting.com/chinese-virologist-i-came-to-us-to-deliver-the-message-of-the-truth-of-covid)
+21. [美國《每日快報》：科學家被告知“保持沉默”，中國確實掩蓋冠狀病毒的爆發](https://usadailyexpress.com/china-cover-up-china-did-cover-up-coronavirus-outbreak-as-scientist-told-keep-silent/)
+22. [美國《快遞文摘》：冠狀病毒：中國病毒學家稱疫情已被掩蓋](https://expressdigest.com/coronavirus-chinese-virologist-says-outbreak-was-covered-up/)
+23. [《MogazNews》新聞網：中國病毒學家聲稱北京確實掩蓋了冠狀病毒的爆發](https://en.mogaznews.com/World-News/1556240/Chinese-virologist-claims-Beijing-DID-cover-up-coronavirus-outbreak.html)
+24. [《ReadSector》新聞網：冠狀病毒：中國病毒學家稱疫情已被掩蓋](https://en.mogaznews.com/World-News/1556240/Chinese-virologist-claims-Beijing-DID-cover-up-coronavirus-outbreak.html)
+25. [《BuradaBiliyorum》新聞網：中國病毒學家指責北京掩蓋冠狀病毒](https://en.buradabiliyorum.com/chinese-virologist-in-hiding-after-accusing-beijing-of-coronavirus-cover-up/)
+26. [丹麥《金融網》：逃離香港的中國病毒學家指控北京掩蓋COVID-19](https://finanz.dk/chinese-virologist-flees-hong-kong-accuses-beijing-of-covid-19-cover-up/)
+27. [美國《六度新聞網》：剛剛!中國病毒學家挺身而出指控北京掩蓋新冠疫情](https://6do.news/article/2925267-61)
+28. [法國《FL24新聞網》：香港病毒學家拆穿中共國冠狀病毒的謊言](https://fl24.net/2020/07/10/une-virologiste-de-hong-kong-qui-demonte-les-mensonges-chinois-sur-le-coronavirus-doit-vivre-cachee-en-amerique/)
+29. [英國《MetiNews》：中國病毒學家稱北京確實掩蓋了冠狀病毒的爆發，並說她不得不逃離香港，因為“我知道他們如何對待舉報人”](https://metinews.com/daily-uk-news-chinese-virologist-claims-beijing-did-cover-up-coronavirus-outbreak-and-says-she-has-had-to-flee-hong-kong-because-i-know-how-they-treat-whistleblowers-metinews-com/34576/)
+30. [《The Lid Press》新聞網：中國病毒學家閆麗夢博士說中共國確實掩蓋了COVID-19的爆發](https://lidblog.com/dr-li-meng-yan/)
+31. [印度《時報新聞》：中國病毒學家指責北京掩蓋了COVID-19，逃離香港；聲稱世衛組織顧問了解病毒](https://www.timesnownews.com/international/article/accusing-beijing-of-covid-19-cover-up-chinese-virologist-flees-hong-kong-claims-who-advisor-knew-about-virus/619731)
+32. [美國《NewsDio》獨家：中國病毒學家指責北京被冠狀病毒掩蓋，逃離香港：“我知道他們如何對待舉報人”](https://newsdio.com/exclusive-chinese-virologist-accuses-beijing-of-coronavirus-cover-up-fleeing-hong-kong-i-know-how-they-treat-whistleblowers/135235/)
+33. [《Jenreport》新聞網：港大病毒學家逃亡美國，指中共國早知疫情，曾向上司進言被警告「勿碰紅線」](https://jenreport.com/2020/07/10/%e6%b8%af%e5%a4%a7%e7%97%85%e6%af%92%e5%ad%a6%e5%ae%b6%e9%80%83%e4%ba%a1%e7%be%8e%e5%9b%bd-%e6%8c%87%e4%b8%ad%e5%9b%bd%e6%97%a9%e7%9f%a5%e7%96%ab%e6%83%85-%e6%9b%be%e5%90%91%e4%b8%8a%e5%8f%b8%e8%bf%9b/)
+34. [美國《大紀元時報》：中國病毒學家說北京掩蓋了病毒爆發，在美國尋求庇護](https://www.theepochtimes.com/chinese-virologist-says-beijing-covered-up-virus-outbreak-seeks-asylum-in-us-report_3420114.html)
+35. [西班牙《Noticias》：病毒學家說，中共國去年忽略了冠狀病毒警報](https://noticias.r7.com/jr-na-tv/videos/virologista-diz-que-china-ignorou-alertas-sobre-o-coronavirus-no-ano-passado-10072020)
+36. [《TheApexHerald》網站：逃離香港的中國病毒學家指責北京掩蓋COVID-19疫情](http://www.theapexherald.com/chinese-virologist-flees-following-accusing-beijing-of-covid-19-cover-up/)
+37. [印度《RokzFast》網站：病毒學家逃離香港並指責中共國掩蓋冠狀病毒](https://rokzfast.com/virologist-flees-hong-kong-and-accuses-china-of-coronavirus-cover-up-37857/)
+38. [英國《世界新聞網》：冠狀病毒：中國病毒學家稱疫情已被中共掩蓋](https://twnews.co.uk/uk-news/coronavirus-chinese-virologist-says-outbreak-was-covered-up)
+39. [意大利《Renovatio21》：中國病毒學家逃離香港，指責北京掩蓋COVID-19大流行](http://www.renovatio21.com/covid-19-virologa-cinese-fugge-da-hong-kong-e-accusa-pechino-di-aver-insabbiato-lepidemia/)
+40. [尼日利亞《獨立報》：逃離到美國的COVID-19專家指責中共國掩蓋病毒真相](https://www.independent.ng/covid-19-expert-who-defected-to-us-claims-to-know-truth-about-china-cover-up/)
+
+
+翻譯報導：匿名戰友
+報導整理：白夜，晴天小螞蟻
+
+0
