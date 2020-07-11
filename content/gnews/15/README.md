@@ -1,33 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共試圖通過網絡媒體對台灣施加影響力
-`2020-07-11 09:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260272/)
+## 美駐華大使館和總領事館向在華美國公民發出安全警告
+`2020-07-11 11:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260355/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11091659/Picture-1-68.png) **圖片來源：** [https://rfa.global.ssl.fastly.net](https://rfa.global.ssl.fastly.net/mandarin/yataibaodao/meiti/cc-04212020100626.html) 
-據亞洲新聞網（CNA）台北報導， 雖然冠狀病毒的大流行幾乎阻斷了台灣海峽兩岸民眾的往來， 但中共對台灣的統戰工作並沒有因此而停止，目前，他們正在試圖通過利用網絡社交媒體來達到拉近與台灣民眾的關係這一目的。而與此形成鮮明對比的，是台灣民眾對香港反政府抗議活動的廣泛支持，以及反對中共在香港實施《國家安全法》。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11112417/Picture-1-69.png)圖片來源：美國駐華大使館圖標
+***以下是美駐華大使館和總領事館7月11日向在華美國公民發出安全警告的全文翻譯***
 
-台灣歷來是中共最敏感的領土問題，中共一貫宣稱台灣是其領土的一部分，並在必要時會以武力統一台灣。儘管許多台灣人的血統可以追溯到中國大陸，並且與大陸有著同源的傳統文化，但大多數台灣人不希望被獨裁的中共統治。特別是近期中共在香港強推的《國家安全法》，更令台灣民眾感到恐懼。
+**地點：**中華人民共和國
 
-中共長期以來一直在爭取贏得台灣的支持，並針對台灣年輕人推出瞭如尋根之旅一類的旅遊項目， 藉此向台灣民眾傳達這樣的信息，即台灣在中共的統治下會變得更好。而現在，由於正常的旅行被暫停，中共已轉向互聯網繼續這項運動。比如在今年6月，數十個台灣家庭，通過視頻通話的方式，參加了在福州舉辦的盛大端午節晚會。中共官方媒體將此次活動描述為旨在增強台灣青年的“認祖歸宗”意識，並表達盼望台灣同胞回歸的願望。
+**事件：**由於當局為達成法律和秩序以外的目的在中華人民共和國（PRC）收緊了法律的執行力度。這種變化可能包括拘留和使用出境禁令。
 
-與此同時，中共還舉辦了面向台灣高中生， 題目為“突破病毒障礙”的錄像製作比賽，在該比賽的在線海報中寫道：“病毒切斷了海洋和山脈，但不能切斷對家鄉的渴望。”
+- 在華美國公民可能在沒有獲得美國領事服務或有關其所指控犯罪的信息前被扣留。
+- 在華美國公民可能會遭受涉及“國家安全”相關的原因而受到長時間的訊問和長期拘留。
+- 在華美國公民也可能會因發送批評中國政府的私人電子消息而遭到中國安全部門拘留和驅逐。
 
-中共的這些舉動已經引起台灣安全機構的不安。據一份內部安全報告顯示，這些舉動被描述為“新的競爭模式”的一部分，用以引導政治意識形態並向台灣政府表示不滿。另一份內部安全報告甚至說，此舉可能帶來“新的國家安全危機”。
 
-台灣的安全官員說，這些社交網絡的宣傳是由中共國家機構發起的，包括中共台灣事務辦公室和統戰部門。現在，包括抖音和Instagram在內的社交媒體平台已被用來以互動為名，“誘騙”台灣年輕人成為親共人士。對此，抖音和持有Instagram的Facebook均沒有回應。
+如果您被捕或拘留，請要求警察或監獄官員立即通知美國大使館或最近的領事館。
 
-中共台灣事務辦公室在接受路透社採訪時說，在疫情期間，與台灣人民在線互動是“自然選擇”，並指責台灣政府是“污衊兩岸同胞之間的正常往來”，更稱此為旨在謀求台灣獨立的“卑鄙”舉動。
+**有關更多信息，請參見下面的使領館聯繫信息。**
 
-而台灣方面的大陸事務委員會官員則說，由於中共的滲透活動“採取了新的形式”，人們必須保持警惕，以免“落入中共的陷阱”。
+請您訪問[travel.state.gov，](https://travel.state.gov/content/travel/en/international-travel.html)以查看有關在華旅行安全相關建議。也可以訪問美國相關使領館的網站，以查看有關入境限制，外國檢疫政策以及地方政府提供的緊急衛生信息。
 
-目前，一些證據表明中共的這些舉動並沒有取得成效。根據台北國立政治大學7月份的一項民意測驗，台灣大約27％的人支持台灣的正式獨立，創歷史新高，而希望加入中共國的人只有0.7％，有大多數被調查者傾向於維持兩岸現狀。
+敦促旅行者註冊使用“ [智能旅行者登記程序”（STEP）](https://step.state.gov/step/)來接收警報，並使得在緊急情況下能更容易找到您。有關恐怖主義威脅，安全事件，計劃中的示威活動，自然災害等的信息會通過該程序發布。如果您需要緊急援助，請聯繫最近的美國大使館或領事館或致電以下號碼：1(888) 407-4747 （美國和加拿大免費電話）或其他國家或地區則撥打1 (202) 501-4444。
 
-顯然，台灣大多數民眾有著清醒的頭腦，使中共試圖通過網絡媒體對台灣施加影響力的努力沒有成功。
+**請通過以下渠道獲得幫助：**
 
-[原文鏈接](https://www.channelnewsasia.com/news/asia/taiwan-china-online-internet-campaign-influence-12919912)
+美國駐華大使館
+電話：+(86)(10) 8531-4000
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：[\[email protected\]](/cdn-cgi/l/email-protection#e2a0878b888b8c85a3a1b1a29196839687cc858d94)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/beijing/](https://china.usembassy-china.org.cn/embassy-consulates/beijing/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/)
 
-翻譯報導：匿名
-校對整理：Yamap
+美國駐成都總領事館
+電話：+(86)(28) 8558-3992
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件  [\[email protected\]](/cdn-cgi/l/email-protection#2d6c406e44596e4548434a49586d5e594c5948034a425b)
+英文網站：[https://china.usembassy- china.org.cn/embassy-consulates/chengdu/](https://china.usembassy-china.org.cn/embassy-consulates/chengdu/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/)
+
+美國駐廣州總領事館
+電話：+(86)(20) 3814-5775
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#450230242b223f2d2a300406160536312431206b222a33)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/guangzhou/](https://china.usembassy-china.org.cn/embassy-consulates/guangzhou/)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/)
+
+美國駐上海總領事館
+電話：+(86)(21) 8011-2400
+下班後緊急電話：+(86)(10)8531-4000
+電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#7d2e151c131a151c143c3e2e3d0e091c0918531a120b)
+英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/shanghai/](https://china.usembassy-china.org.cn/embassy-consulates/shanghai/%E2%80%AF)
+中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/)
+
+美国驻沈阳总领事馆
+电话：+(86)(24) 2322-1198
+下班后紧急电话：+(86(24)2322-1198
+电子邮件 ：[Shen\[email protected\]](/cdn-cgi/l/email-protection#5f0c373a31263e31381e1c0c1f2c2b3e2b3a71383029)
+英文网站： [https://china.usembassy-china.org.cn/embassy-consulates/shenyang/](https://gcc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fembassy-consulates%2Fshenyang%2F&amp;data=02%7C01%7CBorkowiczBL%40state.gov%7Cdb85b57cff254c434e1c08d817e97fad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637285638927606038&amp;sdata=kSuAJmrbTNF14mupGFwkayf5S9vf%2FOOLJQn5oE7xlrs%3D&amp;reserved=0)
+中文网站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/)
+
+[原文鏈接](https://china.usembassy-china.org.cn/security-alert-heightened-risk-of-arbitrary-detention/)
+
+翻譯：小煦
+校對：晴天小螞蟻
 
 0

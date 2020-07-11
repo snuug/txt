@@ -1,69 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美駐華大使館和總領事館向在華美國公民發出安全警告
-`2020-07-11 11:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260355/)
+## 中共和“虎女”正在拉攏收買影響滲透英國上層政要
+`2020-07-11 12:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260448/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11112417/Picture-1-69.png)圖片來源：美國駐華大使館圖標
-***以下是美駐華大使館和總領事館7月11日向在華美國公民發出安全警告的全文翻譯***
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11123615/cropped_image1-1.jpg)圖片來自：metro.co.uk 
+英國《每日郵報》倫敦報導，披露中共和活躍在英國政商界的“虎女”正在拉攏、收買、影響、滲透英國上層政要，利用英籍華人來謀取中共國在西方的利益。報導舉了兩個典型的例子。
 
-**地點：**中華人民共和國
+李貞駒（Christine Lee）是一名律師，在北京，香港，廣州以及倫敦都設有律師事務所，她與中共（CCP）的關係非同尋常。她是中國駐倫敦大使館的首席法律顧問，也是國務院僑務辦公室的法律顧問，國僑辦是中共統戰部對外加掛的牌子，為中共統戰部統一領導海外統戰工作。然而，她還是英國議會跨黨派中國小組的干事。 2006年，她創立了“英國華人計劃”（British Chinese Project），表面上看起來似乎是在推動英中多元文化交流，但是其網站的中文譯名卻是“英國華人參政計劃”，實際上反映出中共利用華人參政來實施其對外滲透擴張的政策，通過培養中共可信賴的當地華人來最大限度地發揮對西方民主政體的政治影響力。
 
-**事件：**由於當局為達成法律和秩序以外的目的在中華人民共和國（PRC）收緊了法律的執行力度。這種變化可能包括拘留和使用出境禁令。
+李貞駒在英國參政的生涯始於托尼·布萊爾（Tony Blair）出任英國首相期間，她與當時的工黨議員（後來擔任工黨影子內閣國際貿易部長）巴里·加丁納（Barry Gardiner）成了同盟。她的律師事務所向他和他選區的工黨組織捐贈了20多萬英鎊。 2007年，當時還是布萊爾執政，加德納擔任她的“英國華人計劃”的主席，並且在2011年成立了議會“代表旅英中國公民的跨黨派工作組”，從此之後，兩人在英國政壇的關係越來越密切。李貞駒的一個兒子邁克爾·威爾克斯（Michael Wilkes）成為“英國華人計劃”的副主席，另一個兒子丹尼爾·威爾克斯（Daniel Wilkes）在加德納的議會辦公室工作，而工資卻由他母親的公司支付。
 
-- 在華美國公民可能在沒有獲得美國領事服務或有關其所指控犯罪的信息前被扣留。
-- 在華美國公民可能會遭受涉及“國家安全”相關的原因而受到長時間的訊問和長期拘留。
-- 在華美國公民也可能會因發送批評中國政府的私人電子消息而遭到中國安全部門拘留和驅逐。
+加德納一直大力主張加強中英關係和增加中共國主權財富基金在英國的投資。他支持中共國一家國有公司在欣克利角（Hinkley Point）建造核電站的計劃，保守黨特蕾莎·梅（Theresa May）政府出於對國家安全的擔憂而將該核電項目擱置。據說他還強烈批評工黨內部反對中共國參與欣克利角核電項目的意見。
+
+幾年前，李貞駒似乎也與時任保守黨政府首相的戴維·卡梅倫（David Cameron）建立了良好的關係。去年1月，她獲得梅首相頒發的“光點獎”，以表彰她對發展中英關係的貢獻。有一張李貞駒春節在唐寧街10號前面的照片，門上懸掛著紅色橫幅和漢字新年對聯，宣布中英關係的“黃金時代”。這一切所傳遞的信息直率而有力：李貞駒已被英國政府核心所接受。
+
+另一位對中英事務有影響力的人物是李雪琳（Li Xuelin），她於1989年到達英國，並迅速成為了保守黨特別是戴維·卡梅倫競選的熱情支持者，並多次與他會面。她在英國的華人社團裡有各種頭銜：英國浙江聯誼會的主席，全英華人華僑統一促進會執行會長，英國中華總商會常務副主席兼秘書長。而她也是全國政協第十二屆代表大會列席代表，全國僑聯海外理事，浙江省海外交流協會副會長。
+
+2011年，她與曾任內閣部長的資深保守黨人邁克爾·貝茨（Michael Bates）結婚。貝茨是中共國的老朋友，習近平在2015年對英國進行國事訪問期間向英國議會發表講話時還特別稱讚了貝茨。貝茨也是與中共國關係密切的英國48家集團俱樂部的成員。
+
+2014年，李雪琳陷入了一起涉及時任倫敦市市長鮑里斯·約翰遜（Boris Johnson）的房地產項目開發醜聞，當時李雪琳與約翰遜已是知交。她介入了倫敦皇家阿爾伯特碼頭（Royal Albert Dock）的開發項目，為一家中共國房地產商“高級商業園”（ABP：Advanced Business Park）爭取地塊。約翰遜最終把地塊批給了ABP，據說是因為貝茨向保守黨捐款16.2萬英鎊，而貝茨夫人（李雪琳）卻說這筆錢不是來自ABP，而是來自她自己口袋的私房錢。李雪琳每年支付5萬英鎊會費參加一個由卡梅隆建立的保守黨捐款人俱樂部，俱樂部成員可與高級政客發展特殊關係。 2014年5月，在保守黨午餐會上，李雪琳向卡梅倫介紹了她的中國客人，據說這是為將來中英合作打下基礎。
+
+評：中共利用活躍在英國政商界的英籍華人，培養和支持這些得到中共信任的“虎女”來拉攏、收買、影響、滲透英國的上層政要，甚至不惜採用隱蔽的政治獻金，來謀取中共國在西方民主國家的利益，這種滲透手段必須引起人們尤其是上層政要的高度重視，警惕中共的“藍金黃”！
+
+[原文鏈接](https://www.dailymail.co.uk/news/article-8511759/Chinas-Communist-Party-Tiger-women-influencing-heart-Establishment.html)
+
+翻譯報導：下里巴人
+校對整理：大冰箱
 
 
-如果您被捕或拘留，請要求警察或監獄官員立即通知美國大使館或最近的領事館。
-
-**有關更多信息，請參見下面的使領館聯繫信息。**
-
-請您訪問[travel.state.gov，](https://travel.state.gov/content/travel/en/international-travel.html)以查看有關在華旅行安全相關建議。也可以訪問美國相關使領館的網站，以查看有關入境限制，外國檢疫政策以及地方政府提供的緊急衛生信息。
-
-敦促旅行者註冊使用“ [智能旅行者登記程序”（STEP）](https://step.state.gov/step/)來接收警報，並使得在緊急情況下能更容易找到您。有關恐怖主義威脅，安全事件，計劃中的示威活動，自然災害等的信息會通過該程序發布。如果您需要緊急援助，請聯繫最近的美國大使館或領事館或致電以下號碼：1(888) 407-4747 （美國和加拿大免費電話）或其他國家或地區則撥打1 (202) 501-4444。
-
-**請通過以下渠道獲得幫助：**
-
-美國駐華大使館
-電話：+(86)(10) 8531-4000
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：[\[email protected\]](/cdn-cgi/l/email-protection#e2a0878b888b8c85a3a1b1a29196839687cc858d94)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/beijing/](https://china.usembassy-china.org.cn/embassy-consulates/beijing/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/)
-
-美國駐成都總領事館
-電話：+(86)(28) 8558-3992
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件  [\[email protected\]](/cdn-cgi/l/email-protection#2d6c406e44596e4548434a49586d5e594c5948034a425b)
-英文網站：[https://china.usembassy- china.org.cn/embassy-consulates/chengdu/](https://china.usembassy-china.org.cn/embassy-consulates/chengdu/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/)
-
-美國駐廣州總領事館
-電話：+(86)(20) 3814-5775
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#450230242b223f2d2a300406160536312431206b222a33)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/guangzhou/](https://china.usembassy-china.org.cn/embassy-consulates/guangzhou/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/)
-
-美國駐上海總領事館
-電話：+(86)(21) 8011-2400
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#7d2e151c131a151c143c3e2e3d0e091c0918531a120b)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/shanghai/](https://china.usembassy-china.org.cn/embassy-consulates/shanghai/%E2%80%AF)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/)
-
-美国驻沈阳总领事馆
-电话：+(86)(24) 2322-1198
-下班后紧急电话：+(86(24)2322-1198
-电子邮件 ：[Shen\[email protected\]](/cdn-cgi/l/email-protection#5f0c373a31263e31381e1c0c1f2c2b3e2b3a71383029)
-英文网站： [https://china.usembassy-china.org.cn/embassy-consulates/shenyang/](https://gcc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fembassy-consulates%2Fshenyang%2F&amp;data=02%7C01%7CBorkowiczBL%40state.gov%7Cdb85b57cff254c434e1c08d817e97fad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637285638927606038&amp;sdata=kSuAJmrbTNF14mupGFwkayf5S9vf%2FOOLJQn5oE7xlrs%3D&amp;reserved=0)
-中文网站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/)
-
-[原文鏈接](https://china.usembassy-china.org.cn/security-alert-heightened-risk-of-arbitrary-detention/)
-
-翻譯：小煦
-校對：晴天小螞蟻
 
 0
