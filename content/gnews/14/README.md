@@ -1,26 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波音將最後5架阿帕奇戰鬥直升飛機交付印度
-`2020-07-12 03:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/262522/)
+## 美國批准向台灣提供6.2億美元的導彈升級計劃
+`2020-07-12 10:47 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/262890/)
 
-![Singapore confirms it's using Apache helicopters in air defense role](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/12034740/1-41.png)
-鑑於邊境對峙仍在繼續，印度空軍已將阿帕奇和奇努克直升機都投入使用。阿帕奇已在拉達克（Ladakh）被用於夜間行動。它是一種先進的多用途戰鬥直升機，是美國陸軍攻擊直升機機隊骨幹。奇努克是一種運輸直升機，用於運送部隊，大砲和其他設備。
+*新聞來源：《Reuters》*
 
-在印度和中共軍隊在拉達克東部實際控制線之間的持續對峙中，美國航空業巨頭波音公司週五表示，已向印度空軍交付了22架阿帕奇攻擊直升機中的最後5架。攻擊性的直升機機隊已經部署在實際控制線上的主要空軍基地，特別是在拉達克東部。
+*作者：Ben Blanchard*
 
-波音公司說，它已經向印度空軍交付了全部22架阿帕奇直升機和15架奇努克重型直升機，通過交付軍用直升機，將繼續與印度建立這種夥伴關係，為了支持正確的價值取向和作戰能力，美國將全力保持與印度國防軍的密切合作，滿足其作戰需求。 ” 22架阿帕奇人中的最後5架是3月在印度斯坦空軍基地交付印度空軍的。
+*翻譯/簡評：Victory*
 
-印度是選擇阿帕奇（Apache）的17個國家之一，美國和其他幾個國家也都在使用，阿帕奇擁有最先進的變體，即AH-64E阿帕奇（AH-64E Apache） 。 AH-64E Apache配有最新的通信，導航，傳感器和武器系統。它具有先進的現代化目標獲取指定係統，該系統可提供白天，夜晚和全天候目標信息以及夜視導航功能。波音公司說：“它非常適合滿足指揮官的需要，包括在多種環境中進行偵察，安全，維持和平行動和致命攻擊，而無需進行重新配置。”
+*校對：孫行者*
 
-CH-47F（I）奇努克包含現代化的機體，通用的航空電子建築系統（CAAS）座艙以及數字自動飛行控制系統（DAFCS）。波音說：“那些創新和技術將幫助印度空軍滿足不斷發展的任務需求，最大限度地提高互操作性，並降低更新換代的成本。”
+*Page：椰子哦耶*
 
-2015年9月，國防部與波音公司敲定了訂單，生產，訓練和支持22架AH-64E阿帕奇和15架CH-47F（I）奇努克直升機。今年早些時候，在美國總統唐納德·川普訪問新德里期間，印度和美國簽署了為印度軍隊購買6架阿帕奇人的合同。
+**簡評：**
 
-相信配備了阿帕奇戰鬥直升機和奇努克運輸機的印度空軍可以更強有力地與美國軍隊並肩作戰。
+兵者不祥之器，不得已而用之。在科技高度發達的今天，人類本可以利用資源和智慧，相互合作，為更安全美好生活而努力。可悲的是，世界上總會不時出現一些極度瘋狂的邪惡政權，把人類拖入戰爭的泥潭，給無數個家庭和個人造成巨大的災難。迫使各國不得不發明各種精確昂貴的殺人武器。萬幸，掌握最尖端武器技術的美國始終站在正義的一方。
 
-[原文鏈接](https://economictimes.indiatimes.com/news/defence/india-gets-final-batch-of-apache-attack-helicopters-amid-ongoing-standoff-with-china/articleshow/76896252.cms?from=mdr)
+如今，中共邪魔政權在蟄伏幾十年後，又開始了對全人類的病毒戰襲擊。美國與台灣、日本、韓國等中共國周邊一大圈軍事盟友，在武力上必然碾壓中共匪軍。真心期待經此一役之後，徹底剷除邪魔，人類重新建立全新的世界格局。天下大同，不再有無盡的紛爭。
 
-翻譯：Ronnie
+
+
+##  **美國批准向台灣提供6.2億美元的導彈升級計劃(愛國者)** 
+
+
+[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/2f29a616-72fb-4093-b7ea-23d423a71a28.jpg?asset_id=fa47398d-33c2-468a-9949-1e0479ccc8ae&amp;img_etag=%225a809cb098d4bf419dd8f335407ae427%22&amp;size=1024)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/2f29a616-72fb-4093-b7ea-23d423a71a28.jpg?asset_id=fa47398d-33c2-468a-9949-1e0479ccc8ae&amp;img_etag=%225a809cb098d4bf419dd8f335407ae427%22&amp;size=1024)
+台北（路透社）美國批准了給台灣的價值6.2億美元的愛國者地對空導彈升級計劃，台灣政府說從美國的最新採購是為了應對來自中共國的日益增長的威脅。
+
+美國和大多數國家一樣，與台灣沒有正式外交關係，但是法律要求其為這個民主島嶼提供必要自衛手段。
+
+中共國宣稱這個民主治理的島嶼是其領土，並經常譴責美國對台灣軍售。
+
+台灣要求購買元件升級其愛國者導彈“以支持其30年的使用壽命”台灣政府週四說。
+
+洛克希德馬丁是主要供貨商，總價值約6.2億美元，他補充道。
+
+該銷售計劃通過支持採購方持續努力提升其武器現代化程度，並維持可靠的防禦能力，為美國國家經濟、安全利益提供支持。
+[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/8573550a-38c7-46c1-9153-dadf1710ae83.jpg?asset_id=dc1325e8-4ae8-4b91-9726-edab775ac158&amp;img_etag=%2276f63e731aaf2c4f7329153e7c002fba%22&amp;size=2560)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/8573550a-38c7-46c1-9153-dadf1710ae83.jpg?asset_id=dc1325e8-4ae8-4b91-9726-edab775ac158&amp;img_etag=%2276f63e731aaf2c4f7329153e7c002fba%22&amp;size=1024)
+“採購方會使用此能力遏製本地區安全威脅、增強國防。採購方可以輕鬆吸收該裝備到其武器系統。
+
+台灣國防部說希望該銷售計劃下個月內生效。
+
+“本次軍售目前是7日由川普政府銷售給台灣的，充分顯示了對我們國家安全的重視，鞏固我們與美國的安全夥伴關係，共同維護台灣海峽和該地區的和平”該部長說。
+
+台灣在看到北京日益增長的威脅，如在台灣周圍定期的空軍海軍軍演後，開始加強其防禦。
+[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/4ab3f025-e961-42a7-9e43-7746f02c1790.jpg?asset_id=b2bff2d7-37fa-42d6-a863-e830cb55c1de&amp;img_etag=%221568d817ffc6ed4822e90b1ce5d9f4cc%22&amp;size=1024)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/4ab3f025-e961-42a7-9e43-7746f02c1790.jpg?asset_id=b2bff2d7-37fa-42d6-a863-e830cb55c1de&amp;img_etag=%221568d817ffc6ed4822e90b1ce5d9f4cc%22&amp;size=1024)
+雖然台灣軍隊訓練有素，且裝備有精良的美式武器，中共國擁有巨大的數量優勢，並在添置它們自己的高級裝備，如隱形戰鬥機。
+
+[原文鏈接](https://www.reuters.com/article/us-taiwan-usa-defence/u-s-approves-620-million-missile-upgrade-package-for-taiwan-idUSKBN24B024)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/lHNjFYjnGjOQo/)
 
 0

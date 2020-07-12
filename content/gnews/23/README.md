@@ -1,15 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧國務卿：全世界都已看清中共的真面目
-`2020-07-12 01:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/260840/)
+## 戰友之家“挺郭滅共，這三年！”演講（第12期）
+`2020-07-12 08:15 GM30` [轉載自GNews](https://gnews.org/zh-hant/262761/)
 
-新闻简述：在[7月8日的蓬佩奧國務卿的記者會](https://www.youtube.com/watch?v=Buq85Np-VCM)上，他祝賀達賴喇嘛尊者85歲生日快樂，並在一開篇就談到中國共產黨北京政權，這種不是由選舉產生的共產主義政權，比害怕它的“外國敵人”更甚的是，擔心自己人民的思想自由，並對中共政府拘禁徐章潤深感不安。他批評了中共對病毒大流行的不當處理和對向WHO通報疫情一事上的欺騙行徑。他揭穿中共對香港自治的承諾是謊言，並表揚Google、Facebook和Twitter拒絕將用戶數據交還給香港政府的做法，敦促其它公司也照做。在記者提問環節，他回應了美國政府對北京方面發起的不丹和印度等周邊國家的領土爭端問題的立場。他說：“我們將很快開始與我們的歐盟朋友進行對話，討論如何共同應對來自中共的挑戰。我對此很自信。”
-
-[閱讀美國國務院英文全文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-8/)
-
-*翻譯：【V%】【奔騰的長江】【Michelle】 校對：【文青】【Connor】【Michelle】字幕：【奔騰的長江】*
-
-*戰友之家玫瑰園小隊出品*
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
