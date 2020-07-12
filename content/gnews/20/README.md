@@ -1,69 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美駐華大使館和總領事館向在華美國公民發出安全警告
-`2020-07-11 11:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/260355/)
+## 美樂見同中共國軍備談判現轉機
+`2020-07-11 17:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/260570/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/11112417/Picture-1-69.png)圖片來源：美國駐華大使館圖標
-***以下是美駐華大使館和總領事館7月11日向在華美國公民發出安全警告的全文翻譯***
+*新聞來源：The Washington Times《華盛頓時報》；*
 
-**地點：**中華人民共和國
+*作者：Bill Gertz比爾.格茨；發佈時間：2020年7月9日，星期四*
 
-**事件：**由於當局為達成法律和秩序以外的目的在中華人民共和國（PRC）收緊了法律的執行力度。這種變化可能包括拘留和使用出境禁令。
+*翻譯/簡評：RachelX英國喜莊園；校對：沐子璐璐；Page：拱卒*
 
-- 在華美國公民可能在沒有獲得美國領事服務或有關其所指控犯罪的信息前被扣留。
-- 在華美國公民可能會遭受涉及“國家安全”相關的原因而受到長時間的訊問和長期拘留。
-- 在華美國公民也可能會因發送批評中國政府的私人電子消息而遭到中國安全部門拘留和驅逐。
+**簡評：**
 
+自冷戰以來，美蘇兩個核大國之間的軍備競賽如火如荼地進行了半個多世紀。隨著蘇聯的轟然倒下，美俄之間雖然不似以往那麼劍拔弩張，但是長久以來留下難以磨滅的印記使得不僅是美國政府，乃至廣大美國民眾，都還是只把俄羅斯當作頭號假想敵看待。殊不知在他們把注意力都集中在俄羅斯，古巴，伊朗，朝鮮這些傳統意義上的罪惡軸心國的同時，一隻來自於東方的大紅龍卻在暗中摩拳擦掌。中共利用不受《中導條約》以及《新削減戰略武器條約》的便利條件，一方面虛與委蛇，放低姿態換取美國及世界的信任，靠欺騙和偷竊等手段大力發展經濟，而另一方面卻在加速擴充其核裝備，蓄勢待發。不僅如此，這只惡龍不僅自己羽翼漸豐，還同時向其它邪惡同盟國家輸送同自由世界抗衡的武器。因此，只有真正遏制住這個躲在陰暗處的惡勢力之源才能夠徹底將世界引入光明。
 
-如果您被捕或拘留，請要求警察或監獄官員立即通知美國大使館或最近的領事館。
+##  **美樂見同中共國軍備談判現轉機** 
+[!\[\](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/8c7d9d67-ee55-4359-af24-d5573b3a35c9.jpg?asset_id=fda85d5e-49ed-4970-aa02-5696ffa7ece4&amp;img_etag=%22592adf4f141aef391413acfdc3e6e9da%22&amp;size=1024)](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/8c7d9d67-ee55-4359-af24-d5573b3a35c9.jpg?asset_id=fda85d5e-49ed-4970-aa02-5696ffa7ece4&amp;img_etag=%22592adf4f141aef391413acfdc3e6e9da%22&amp;size=1024) “我可以向你保證，如果美國說他們已經準備好了下來，中國第二天就會很樂意參加，”中國一位高級官員傅聰說。 (ASSOCIATED PRESS) 
+川普政府週四表示，它歡迎中共國對加入戰略武器控制談判所持的明顯開放態度。此前，北京方面拒絕了就限制其不斷增長的核武庫而舉行的，連同俄羅斯在內的三方會談。
 
-**有關更多信息，請參見下面的使領館聯繫信息。**
+中共國外交部軍控司司長傅聰本週在北京對記者表示，中方仍然反對三方武器會談，因為美方的軍火儲備明顯要大很多。
 
-請您訪問[travel.state.gov，](https://travel.state.gov/content/travel/en/international-travel.html)以查看有關在華旅行安全相關建議。也可以訪問美國相關使領館的網站，以查看有關入境限制，外國檢疫政策以及地方政府提供的緊急衛生信息。
+然而，他也表示，只有在美方率先削減其大規模的核彈頭儲備的前提下，北京方面才願意坐到談判桌前。
 
-敦促旅行者註冊使用“ [智能旅行者登記程序”（STEP）](https://step.state.gov/step/)來接收警報，並使得在緊急情況下能更容易找到您。有關恐怖主義威脅，安全事件，計劃中的示威活動，自然災害等的信息會通過該程序發布。如果您需要緊急援助，請聯繫最近的美國大使館或領事館或致電以下號碼：1(888) 407-4747 （美國和加拿大免費電話）或其他國家或地區則撥打1 (202) 501-4444。
+他說道：“可以保證的是，如果美方已經準備將其(核彈頭儲備)降至中方水平，那麼中方絕對會在第二天就欣然前往參與會談。而事實上，我們都知道這不會發生。我們清楚美方的政策。”
 
-**請通過以下渠道獲得幫助：**
+但川普政府表示，它認為中方在武器談判上的微妙轉變是一個積極跡象。美方官員表示，中方就此類會談宣布的先決條件– 大幅削減美國核彈頭儲備– 並不是談判的障礙。
 
-美國駐華大使館
-電話：+(86)(10) 8531-4000
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：[\[email protected\]](/cdn-cgi/l/email-protection#e2a0878b888b8c85a3a1b1a29196839687cc858d94)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/beijing/](https://china.usembassy-china.org.cn/embassy-consulates/beijing/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/beijing-zh/)
+[!\[\](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/5204cc77-9eb2-4e0e-b114-3d415a832d3c.jpg?asset_id=b0a2f914-e340-41a2-98ff-b6c0aa4603ca&amp;img_etag=%22b98785c5527fa4c5ae4cff4c8360253a%22&amp;size=2560)](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/5204cc77-9eb2-4e0e-b114-3d415a832d3c.jpg?asset_id=b0a2f914-e340-41a2-98ff-b6c0aa4603ca&amp;img_etag=%22b98785c5527fa4c5ae4cff4c8360253a%22&amp;size=1024)
 
-美國駐成都總領事館
-電話：+(86)(28) 8558-3992
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件  [\[email protected\]](/cdn-cgi/l/email-protection#2d6c406e44596e4548434a49586d5e594c5948034a425b)
-英文網站：[https://china.usembassy- china.org.cn/embassy-consulates/chengdu/](https://china.usembassy-china.org.cn/embassy-consulates/chengdu/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/chengdu-zh/)
+美國國務院發言人摩根.奧塔古斯週四利用上述言論向美方施壓，要求中方必須被納入即將到期的，與俄方簽署的《新削減戰略武器條約》的未來談判之中。
 
-美國駐廣州總領事館
-電話：+(86)(20) 3814-5775
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#450230242b223f2d2a300406160536312431206b222a33)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/guangzhou/](https://china.usembassy-china.org.cn/embassy-consulates/guangzhou/)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/guanghzou-zh/)
+奧塔古斯表示，“美方歡迎中方承諾參與軍備控制談判。因此，謹慎的下一步將需要美中雙方的面對面會晤。”
 
-美國駐上海總領事館
-電話：+(86)(21) 8011-2400
-下班後緊急電話：+(86)(10)8531-4000
-電子郵件：  [\[email protected\]](/cdn-cgi/l/email-protection#7d2e151c131a151c143c3e2e3d0e091c0918531a120b)
-英文網站：[https://china.usembassy -china.org.cn/embassy-consulates/shanghai/](https://china.usembassy-china.org.cn/embassy-consulates/shanghai/%E2%80%AF)
-中文網站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shanghai-zh/)
+奧塔古斯女士說，美國軍控特使馬歇爾.比林斯萊亞將邀請中方官員參加”在維也納舉行的誠意談判”。
 
-美国驻沈阳总领事馆
-电话：+(86)(24) 2322-1198
-下班后紧急电话：+(86(24)2322-1198
-电子邮件 ：[Shen\[email protected\]](/cdn-cgi/l/email-protection#5f0c373a31263e31381e1c0c1f2c2b3e2b3a71383029)
-英文网站： [https://china.usembassy-china.org.cn/embassy-consulates/shenyang/](https://gcc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchina.usembassy-china.org.cn%2Fembassy-consulates%2Fshenyang%2F&amp;data=02%7C01%7CBorkowiczBL%40state.gov%7Cdb85b57cff254c434e1c08d817e97fad%7C66cf50745afe48d1a691a12b2121f44b%7C0%7C0%7C637285638927606038&amp;sdata=kSuAJmrbTNF14mupGFwkayf5S9vf%2FOOLJQn5oE7xlrs%3D&amp;reserved=0)
-中文网站：[https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/](https://china.usembassy-china.org.cn/zh/embassy-consulates-zh/shenyang-zh/)
+“美國還建議中共國儘早與俄羅斯會晤，考慮三邊軍控談判的未來步驟。”
 
-[原文鏈接](https://china.usembassy-china.org.cn/security-alert-heightened-risk-of-arbitrary-detention/)
+“我們都會把不同的觀點和目標帶到談判桌上，一些分歧不可避免，”奧塔古斯女士補充道。 “但現在是三個最大的核武器國家就如何防止新的軍備競賽進行對話和外交的時候了。”
 
-翻譯：小煦
-校對：晴天小螞蟻
+隨著2011年簽署的《新削減戰略武器條約》將於明年初到期，川普總統表示，未來的任何軍備協議都必須包括中共國，因為中共國一直在迅速增強其戰略和戰術核力量。
+
+傅聰說，中國不反對國際裁軍討論，並準備在聯合國安全理事會內討論這一議題。
+
+中共國的核彈頭數量仍屬國家機密，據美國情報部門估計，中方的核彈頭數量從200枚左右到1000枚之多不等。美國和俄羅斯各自擁有約6000枚彈頭，但《新削減戰略武器條約》規定兩國部署的彈頭數量應限制為1550枚。
+
+幾十年來，中共國的核彈頭由於缺乏小型化而在技術上受到限制。這導致中共國製造的彈頭體積龐大，難以用轟炸機和導彈進行運載。
+
+但在上世紀90年代，中共國通過間諜活動獲得了美國w88彈頭的設計機密，這種小型彈頭用於多彈頭導彈。
+
+[!\[\](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/c6cf1481-27d7-42c5-88bc-c48e1f6f30fb.jpg?asset_id=e3507926-6934-42b1-aa2d-59d532494b26&amp;img_etag=%22fbdd69e18a1d0d869cb67f11b479c0d8%22&amp;size=2560)](https://spark.adobe.com/page/7XAbIgCPBOFrj/images/c6cf1481-27d7-42c5-88bc-c48e1f6f30fb.jpg?asset_id=e3507926-6934-42b1-aa2d-59d532494b26&amp;img_etag=%22fbdd69e18a1d0d869cb67f11b479c0d8%22&amp;size=1024)
+
+其結果就是，解放軍近年來開始在其龐大且不斷增加的洲際和中程導彈庫中增加多彈頭儲備。
+
+俄羅斯在最近的會談中也提出了一些先決條件，但並不排除會談的可能性。
+
+上個月，美俄的武器談判代表在維也納舉行了會議。華盛頓方面表示，中方亦收到了邀請，但未派代表出席。美國代表團還特地在會談的會議室設置了掛著中共國國旗的空椅子，以強調北京未能與會。
+
+在會談中，美國官員向俄方提供了關於中共國大規模核力量集結的機密情報簡報。
+
+中共國正在建造幾種新型核導彈、一種新型核轟炸機和新型核導彈潛艇。所有核力量的研發均以秘密方式進行。
+
+中共國軍控官員傅聰還表示，美國試圖迫使中國加入其與俄羅斯的武器談判，是一種”轉移注意力的伎倆”，讓人們不再關注延長《新削減戰略武器條約》的必要性。
+
+他補充道，”美方的真正目的是擺脫一切限制，可以自由地謀求對任何現實或想像中的對手的軍事優勢。”
+
+[原文鏈接](https://www.washingtontimes.com/news/2020/jul/9/us-sees-opening-in-chinese-shift-on-arms-talks/?utm_source=RSS_Feed&amp;utm_medium=RSS)
+
+#### 編輯：【喜馬拉雅戰鷹團】 
 
 0

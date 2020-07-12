@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共撒謊，加拿大人死亡
-`2020-07-11 17:08 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/260566/)
+## 英雄女科學家在FOX專訪出面；爆料戰友疫情日記時間線打臉WHO和CCP！“中共病毒疫情每日熱線”
+`2020-07-11 23:19 GM30` [轉載自GNews](https://gnews.org/zh-hant/260866/)
 
-喜馬拉雅聯盟加拿大農場製作
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 0
