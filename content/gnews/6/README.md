@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京又有新增，“北京疫情得到控制”純屬謊言！“中共病毒疫情每日熱線”
-`2020-07-12 04:45 GM30` [轉載自GNews](https://gnews.org/zh-hant/262600/)
+## 2020年7月11日CCP冠狀病毒大流行第169集
+`2020-07-12 08:06 GM30` [轉載自GNews](https://gnews.org/zh-hant/262751/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+任何人都可能是共産體制的犧牲品；國內高考被頂替，見義勇爲也被頂替；中共以黑治國，官僚欺壓民衆；湖北多地受災，人禍天災不斷……
+
+
 
 1
