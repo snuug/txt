@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國批准向台灣提供6.2億美元的導彈升級計劃
-`2020-07-12 10:47 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/262890/)
+## 白宮敦促FDA再次授權使用羥氯喹
+`2020-07-12 11:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/263003/)
 
-*新聞來源：《Reuters》*
+编撰：台灣荔枝、映兰轩、文宝Porsche、台灣荔枝、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/12114329/7.12-2.png)
+2020年7月11日，白宫贸易顾问彼得·纳瓦罗（Peter Navarro）要求FDA再次紧急授权羟氯喹用于治疗CCP病毒。
 
-*作者：Ben Blanchard*
+美FDA最初于3月首次授予了羟氯喹紧急使用许可，但在6月15日又[撤回了](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_5)对羟氯喹的[紧急](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_5)授权 [。](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_22)
 
-*翻譯/簡評：Victory*
+基于亨利·福特医疗系统（位于底特律西南地区的领先医疗保健和医疗服务提供商）的最新研究报告，纳瓦罗要求FDA正式批准羟氯喹作为治疗Covid-19的药物。该报告显示，3月至5月间住院的2400多例患者，在服用羟氯喹治疗后，患者死亡率降低了50％，且对身体没有产生任何副作用。FDA发出的安全警告以及撤回紧急授权，实际上是在扼杀新冠病毒感染者对羟氯喹药的迫切需求，导致国家战略储备库中6000万剂羟氯喹无法正常发放。纳瓦罗表示：“在与FDA的讨论中，他们似乎没有意识到，撤回紧急授权的决定已经很大程度上抑制了羟氯喹的使用，FDA需要仔细迅速地考虑亨利·福特（Henry Ford）提出的要求。CCP病毒感染者比例正在上升，美国人正在死亡，而亨利·福特（Henry Ford）的研究表明羟氯喹在早期治疗中是一种非常有效的治疗药物，几乎没有任何风险。FDA应该在几天之内，而不是数周或数月内采取行动。如果亨利·福特（Henry Ford）的数据得到后续研究的支持，那么这些质疑羟氯喹疗效的媒体手上将沾满屠杀美国人民的鲜血，是它们的不实报道影响了该药物的使用，让很多美国人在失去生命。”
 
-*校對：孫行者*
+川普总统[在推特上](https://www.washingtonpost.com/politics/2020/07/08/trump-is-making-it-harder-harder-escape-blame-coronavirus/?itid=lk_inline_manual_4)对这项研究表示支持与赞赏[，](https://www.washingtonpost.com/politics/2020/07/08/trump-is-making-it-harder-harder-escape-blame-coronavirus/?itid=lk_inline_manual_4)敦促FDA立即行动，并敦促其将羟氯喹送往各地区医院。总统始终宣称，羟氯喹在对抗Covid-19中将扮演“改变游戏规则”的角色，而且总统自己也在服用作为预防措施。
 
-*Page：椰子哦耶*
+川普总统律师鲁道夫·朱利安尼（Rudolph W. Giuliani）在接受FoxNews采访时表示，夸大羟氯喹副作用的研究是伪造的，他们在以学者的身份给羟氯喹泼冷水。他说自己已经服用了三次羟氯喹，没有发现有任何副作用。
 
-**簡評：**
+一位不愿透露姓名的政府官员说，重新授权羟氯喹的决定将由FDA科学家做出。但也有部分科学家担心FDA会因信誉风险拒绝重新授权。
 
-兵者不祥之器，不得已而用之。在科技高度發達的今天，人類本可以利用資源和智慧，相互合作，為更安全美好生活而努力。可悲的是，世界上總會不時出現一些極度瘋狂的邪惡政權，把人類拖入戰爭的泥潭，給無數個家庭和個人造成巨大的災難。迫使各國不得不發明各種精確昂貴的殺人武器。萬幸，掌握最尖端武器技術的美國始終站在正義的一方。
+编者认为：
 
-如今，中共邪魔政權在蟄伏幾十年後，又開始了對全人類的病毒戰襲擊。美國與台灣、日本、韓國等中共國周邊一大圈軍事盟友，在武力上必然碾壓中共匪軍。真心期待經此一役之後，徹底剷除邪魔，人類重新建立全新的世界格局。天下大同，不再有無盡的紛爭。
+自2020年1月29号，路德社向全球首次推荐羟氯喹后，不同国家和地区的病毒感染者开始服用，治疗效果出人意料，有的减轻了症状，有的神奇般地痊愈了。同时，羟氯喹在治疗Covid-19过程中表现出的疗效也陆续从一线临床试验中得到了验证，羟氯喹成为了目前治疗Covid-19的最佳药物。
 
+从政府层面看，印度首先在医护人员中采用羟氯喹作为预防，并把其作为战略资源储备，不再出口。
 
+川普总统根据情报判断羟氯喹有预防和治疗双重作用，在推特上做了推荐，同时声明自己在服用该药作为预防。此外，川普总统为了解决美国羟氯喹的供应，还特意给印度总理莫迪打电话。
 
-##  **美國批准向台灣提供6.2億美元的導彈升級計劃(愛國者)** 
+如此重要的救命药却一直无法最快地应用到美国民众中，一方面是因为民主党无脑反对任何川普总统的建议；另一方面是被CCP严重蓝金黄的美国NIH和FDA置美国民众生命于不顾，为了自身利益一直阻挠羟氯喹的广泛使用。NIH和FDA与大型医疗集团勾结一直极力阻挠羟氯喹的使用主要基于两方面的原因：一、弃用便宜的非专利药品羟氯喹，而采用医疗企业昂贵的专利药物可保证其最大利益；二、较低的病人死亡率会影响盖茨基金等机构所开发疫苗的普及推广（疫苗是他们与CCP勾结实施邪恶计划、控制人类的一盘大棋）。
 
+郭先生发起的爆料革命，为了拯救更多美国人的生命，已经正式提交报告给白宫，建议将羟氯喹作为非处方药来治疗CCP病毒。一旦被批准为非处方药，民众就可以根据自己的需求进行购买，主动预防CCP病毒。我们期待真正“改变游戏规则”的这一天早日到来。
 
-[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/2f29a616-72fb-4093-b7ea-23d423a71a28.jpg?asset_id=fa47398d-33c2-468a-9949-1e0479ccc8ae&amp;img_etag=%225a809cb098d4bf419dd8f335407ae427%22&amp;size=1024)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/2f29a616-72fb-4093-b7ea-23d423a71a28.jpg?asset_id=fa47398d-33c2-468a-9949-1e0479ccc8ae&amp;img_etag=%225a809cb098d4bf419dd8f335407ae427%22&amp;size=1024)
-台北（路透社）美國批准了給台灣的價值6.2億美元的愛國者地對空導彈升級計劃，台灣政府說從美國的最新採購是為了應對來自中共國的日益增長的威脅。
+以上充分证明，以郭文贵先生引领的爆料革命是真正意义上挽救世人于危难的革命。 在人类危难的时候，是爆料革命让世界充分认识到ccp生物武器的邪恶和对世界的危害，是爆料革命为防疫这场生物战提供了至关重要的情报与讯息。只有灭共才可以拯救世界人民，才能找到解药，打赢CCP发动的这场反人类的生物武器战。
 
-美國和大多數國家一樣，與台灣沒有正式外交關係，但是法律要求其為這個民主島嶼提供必要自衛手段。
-
-中共國宣稱這個民主治理的島嶼是其領土，並經常譴責美國對台灣軍售。
-
-台灣要求購買元件升級其愛國者導彈“以支持其30年的使用壽命”台灣政府週四說。
-
-洛克希德馬丁是主要供貨商，總價值約6.2億美元，他補充道。
-
-該銷售計劃通過支持採購方持續努力提升其武器現代化程度，並維持可靠的防禦能力，為美國國家經濟、安全利益提供支持。
-[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/8573550a-38c7-46c1-9153-dadf1710ae83.jpg?asset_id=dc1325e8-4ae8-4b91-9726-edab775ac158&amp;img_etag=%2276f63e731aaf2c4f7329153e7c002fba%22&amp;size=2560)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/8573550a-38c7-46c1-9153-dadf1710ae83.jpg?asset_id=dc1325e8-4ae8-4b91-9726-edab775ac158&amp;img_etag=%2276f63e731aaf2c4f7329153e7c002fba%22&amp;size=1024)
-“採購方會使用此能力遏製本地區安全威脅、增強國防。採購方可以輕鬆吸收該裝備到其武器系統。
-
-台灣國防部說希望該銷售計劃下個月內生效。
-
-“本次軍售目前是7日由川普政府銷售給台灣的，充分顯示了對我們國家安全的重視，鞏固我們與美國的安全夥伴關係，共同維護台灣海峽和該地區的和平”該部長說。
-
-台灣在看到北京日益增長的威脅，如在台灣周圍定期的空軍海軍軍演後，開始加強其防禦。
-[!\[\](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/4ab3f025-e961-42a7-9e43-7746f02c1790.jpg?asset_id=b2bff2d7-37fa-42d6-a863-e830cb55c1de&amp;img_etag=%221568d817ffc6ed4822e90b1ce5d9f4cc%22&amp;size=1024)](https://spark.adobe.com/page/lHNjFYjnGjOQo/images/4ab3f025-e961-42a7-9e43-7746f02c1790.jpg?asset_id=b2bff2d7-37fa-42d6-a863-e830cb55c1de&amp;img_etag=%221568d817ffc6ed4822e90b1ce5d9f4cc%22&amp;size=1024)
-雖然台灣軍隊訓練有素，且裝備有精良的美式武器，中共國擁有巨大的數量優勢，並在添置它們自己的高級裝備，如隱形戰鬥機。
-
-[原文鏈接](https://www.reuters.com/article/us-taiwan-usa-defence/u-s-approves-620-million-missile-upgrade-package-for-taiwan-idUSKBN24B024)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/lHNjFYjnGjOQo/)
+参考链接：[https://www.washingtonpost.com/health/2020/07/10/peter-navarro-hydroxychloroquine-coronavirus/](https://www.washingtonpost.com/health/2020/07/10/peter-navarro-hydroxychloroquine-coronavirus/)
 
 0
