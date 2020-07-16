@@ -1,13 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沒有人比閆麗夢博士更有資格
-`2020-07-16 01:13 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/266465/)
+## 什麼是熱錢？它將如何粉碎中共的股市
+`2020-07-16 04:55 GM31` [轉載自GNews](https://gnews.org/zh-hant/266541/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16002318/Miles_20200712_4_photo.png)
-郭文貴先生在[7月12日的G-TV直播](https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044)中談到閆麗夢博士是最有資格講冠狀病毒真相的人，閆博士是世界衛生組織法定代表和中共政府唯一官方代表溝通人。她和她的老公、Malik 是香港P3實驗室最核心的5個科學家當中的3個，Malik是冠狀病毒人類第一把手，所以說閆麗夢博士本身就是有關病毒來源的證據。
+據說港幣美元脫鉤正在進行中，而且不可避免。因此，郭先生解釋了為什麼脫鉤會給中共香港的經濟帶來致命一擊。關於上海香港股市的反常現象，郭先生引入了熱錢概念，詳細闡明了如何操縱熱錢洗劫財富。此外，郭先生對最近禁止中共抖音之類的應用程式非常高興，這也有利於G-TV的投資者。
 
-*翻譯: 【JoyJoy】 校對：【Dlrow】【Michelle】 字幕：【Naomi】【Rock小哥】*
+*翻譯：【Prof. Bacteriophage】校對：【noraTina】【V%】字幕：【相机过热啊】【V%】*
 
 *戰友之家玫瑰園小隊出品*
 
