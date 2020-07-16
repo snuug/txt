@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮敦促FDA再次授權使用羥氯喹
-`2020-07-12 11:46 GM77` [轉載自GNews](https://gnews.org/zh-hant/263003/)
+## 納瓦羅：對中共國的抖音TIKTOK和微信的“強硬行動”
+`2020-07-15 10:06 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/265929/)
 
-编撰：台灣荔枝、映兰轩、文宝Porsche、台灣荔枝、文肯尼
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/12114329/7.12-2.png)
-2020年7月11日，白宫贸易顾问彼得·纳瓦罗（Peter Navarro）要求FDA再次紧急授权羟氯喹用于治疗CCP病毒。
+*新聞來源：《布雷巴特》；作者：ALANA MASTRANGELO；發佈時間：2020年7月13日*
 
-美FDA最初于3月首次授予了羟氯喹紧急使用许可，但在6月15日又[撤回了](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_5)对羟氯喹的[紧急](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_5)授权 [。](https://www.washingtonpost.com/health/2020/06/15/hydroxychloroquine-authorization-revoked-coronavirus/?itid=lk_inline_manual_22)
+*翻譯/簡評：文明明；校對：InAHurry；Page：拱卒*
 
-基于亨利·福特医疗系统（位于底特律西南地区的领先医疗保健和医疗服务提供商）的最新研究报告，纳瓦罗要求FDA正式批准羟氯喹作为治疗Covid-19的药物。该报告显示，3月至5月间住院的2400多例患者，在服用羟氯喹治疗后，患者死亡率降低了50％，且对身体没有产生任何副作用。FDA发出的安全警告以及撤回紧急授权，实际上是在扼杀新冠病毒感染者对羟氯喹药的迫切需求，导致国家战略储备库中6000万剂羟氯喹无法正常发放。纳瓦罗表示：“在与FDA的讨论中，他们似乎没有意识到，撤回紧急授权的决定已经很大程度上抑制了羟氯喹的使用，FDA需要仔细迅速地考虑亨利·福特（Henry Ford）提出的要求。CCP病毒感染者比例正在上升，美国人正在死亡，而亨利·福特（Henry Ford）的研究表明羟氯喹在早期治疗中是一种非常有效的治疗药物，几乎没有任何风险。FDA应该在几天之内，而不是数周或数月内采取行动。如果亨利·福特（Henry Ford）的数据得到后续研究的支持，那么这些质疑羟氯喹疗效的媒体手上将沾满屠杀美国人民的鲜血，是它们的不实报道影响了该药物的使用，让很多美国人在失去生命。”
+簡評：
 
-川普总统[在推特上](https://www.washingtonpost.com/politics/2020/07/08/trump-is-making-it-harder-harder-escape-blame-coronavirus/?itid=lk_inline_manual_4)对这项研究表示支持与赞赏[，](https://www.washingtonpost.com/politics/2020/07/08/trump-is-making-it-harder-harder-escape-blame-coronavirus/?itid=lk_inline_manual_4)敦促FDA立即行动，并敦促其将羟氯喹送往各地区医院。总统始终宣称，羟氯喹在对抗Covid-19中将扮演“改变游戏规则”的角色，而且总统自己也在服用作为预防措施。
+中共國控制的抖音、微信以及其他App是偽裝成社交媒體軟件的數據收集平台；是中共竊取情報和收集數據信息的工具。
 
-川普总统律师鲁道夫·朱利安尼（Rudolph W. Giuliani）在接受FoxNews采访时表示，夸大羟氯喹副作用的研究是伪造的，他们在以学者的身份给羟氯喹泼冷水。他说自己已经服用了三次羟氯喹，没有发现有任何副作用。
+在你和家人聊天時、在你享受一段音樂或視頻時，你的私人信息已經通過這些App被悄悄地傳送到了大數據庫。你的言論、你的愛好、你去哪裡、你吃了什麼、你的社會關係和經濟活動就這樣赤裸裸地呈現在中共的面前。
 
-一位不愿透露姓名的政府官员说，重新授权羟氯喹的决定将由FDA科学家做出。但也有部分科学家担心FDA会因信誉风险拒绝重新授权。
+中共通過這種方式控制了國內所有的老百姓，把整個中國變成了一座監獄，現在還企圖把手伸向海外的中國人、甚至全世界。所以為了捍衛我們自己的尊嚴和自由，保護自己的的隱私權，我們一定要注意網絡安全，卸載中共的社交軟件，保護好自己和家人。
 
-编者认为：
+##  **納瓦羅：對中共國的抖音TikTok和微信的“強硬行動”** 
 
-自2020年1月29号，路德社向全球首次推荐羟氯喹后，不同国家和地区的病毒感染者开始服用，治疗效果出人意料，有的减轻了症状，有的神奇般地痊愈了。同时，羟氯喹在治疗Covid-19过程中表现出的疗效也陆续从一线临床试验中得到了验证，羟氯喹成为了目前治疗Covid-19的最佳药物。
+[!\[\](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/e2243f97-dd46-467f-af62-cf73232f2242.jpg?asset_id=e1b98add-002b-4a7e-966d-8046427a5be9&amp;img_etag=%221c6f9dbe71d45cc2279c68cb871d7a0c%22&amp;size=2560)](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/e2243f97-dd46-467f-af62-cf73232f2242.jpg?asset_id=e1b98add-002b-4a7e-966d-8046427a5be9&amp;img_etag=%221c6f9dbe71d45cc2279c68cb871d7a0c%22&amp;size=1024)圖片來自： Getty
 
-从政府层面看，印度首先在医护人员中采用羟氯喹作为预防，并把其作为战略资源储备，不再出口。
+白宮貿易顧問彼得·納瓦羅在周日表示，美國將對中共國的微信短信服務以及中共擁有的有爭議的視頻共享社交媒體平台抖音TikTok採取“強硬行動”。
 
-川普总统根据情报判断羟氯喹有预防和治疗双重作用，在推特上做了推荐，同时声明自己在服用该药作为预防。此外，川普总统为了解决美国羟氯喹的供应，还特意给印度总理莫迪打电话。
+納瓦羅在周日接受福克斯商業採訪時說：“ 抖音TikTok和微信是中共大陸最大的審查形式，因此希望對它們採取強有力的行動。”
 
-如此重要的救命药却一直无法最快地应用到美国民众中，一方面是因为民主党无脑反对任何川普总统的建议；另一方面是被CCP严重蓝金黄的美国NIH和FDA置美国民众生命于不顾，为了自身利益一直阻挠羟氯喹的广泛使用。NIH和FDA与大型医疗集团勾结一直极力阻挠羟氯喹的使用主要基于两方面的原因：一、弃用便宜的非专利药品羟氯喹，而采用医疗企业昂贵的专利药物可保证其最大利益；二、较低的病人死亡率会影响盖茨基金等机构所开发疫苗的普及推广（疫苗是他们与CCP勾结实施邪恶计划、控制人类的一盘大棋）。
+“美國人必須知道的是，那些孩子們非常喜歡並且看起來很方便的手機應用程序中所包含的所有數據，會被直接傳送給在中共國的服務器、傳送給中共的軍隊、中國共產黨和想要竊取我們知識產權的代理機構。”
 
-郭先生发起的爆料革命，为了拯救更多美国人的生命，已经正式提交报告给白宫，建议将羟氯喹作为非处方药来治疗CCP病毒。一旦被批准为非处方药，民众就可以根据自己的需求进行购买，主动预防CCP病毒。我们期待真正“改变游戏规则”的这一天早日到来。
+[!\[\](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/2d7283f2-caf4-473e-8652-8ef744df440e.png?asset_id=f4c4d05e-2ea7-451e-8c5f-fb0fe047068b&amp;img_etag=%22aba1d7cda3e68401deb765458ac0a0ad%22&amp;size=2560)](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/2d7283f2-caf4-473e-8652-8ef744df440e.png?asset_id=f4c4d05e-2ea7-451e-8c5f-fb0fe047068b&amp;img_etag=%22aba1d7cda3e68401deb765458ac0a0ad%22&amp;size=1024)
 
-以上充分证明，以郭文贵先生引领的爆料革命是真正意义上挽救世人于危难的革命。 在人类危难的时候，是爆料革命让世界充分认识到ccp生物武器的邪恶和对世界的危害，是爆料革命为防疫这场生物战提供了至关重要的情报与讯息。只有灭共才可以拯救世界人民，才能找到解药，打赢CCP发动的这场反人类的生物武器战。
+微信是一種電信交流平台，主要用戶是中國人（包括居住在西方的中國人）。微信對內容進行審查已經是眾所周知的了。
 
-参考链接：[https://www.washingtonpost.com/health/2020/07/10/peter-navarro-hydroxychloroquine-coronavirus/](https://www.washingtonpost.com/health/2020/07/10/peter-navarro-hydroxychloroquine-coronavirus/)
+正如布雷特巴特先前報導的那樣，關於微信審查制度最引起眾怒的例子發生在去年- 武漢的李文亮醫生在微信上發布的醫療信息被審查了。
+
+作為最早識別和診斷病毒的醫生之一，李在微信上與其他醫生分享了有關如何預防這個傳染性疾病傳播的技巧。儘管他只是分享給其他醫生，並沒有向公眾提供這些內容，但微信還是迅速地審查了他的內容。李醫生隨後被拘留並被迫發表了羞辱的公開道歉。
+
+李醫生於二月份因冠狀病毒死於武漢，享年34歲。
+
+[!\[\](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/bc3a0649-a318-4f7e-acd4-7c5b51fa47ba.png?asset_id=38640476-bd00-4591-b1b0-ebd5dbce4393&amp;img_etag=%22ce7fa4217b88449c0cb65946fb8635bc%22&amp;size=2560)](https://spark.adobe.com/page/DJrKhn2Q7k5GV/images/bc3a0649-a318-4f7e-acd4-7c5b51fa47ba.png?asset_id=38640476-bd00-4591-b1b0-ebd5dbce4393&amp;img_etag=%22ce7fa4217b88449c0cb65946fb8635bc%22&amp;size=1024)
+
+納瓦羅關於限制微信的評論是在唐納德·川普總統和美國國務卿邁克·蓬佩奧證實美國正在考慮禁止抖音TikTok之後發表的。
+
+蓬佩奧說：“我們已經在這個問題上研究了很久，無論是在基礎設施中使用華為技術的問題（還是其他），我們正在聯合全世界在這方面取得實質性的進展。”
+
+國務卿補充說：“我們已經宣布中興通訊是一個對美國國家安全的威脅。”
+
+最近華為和中興通訊被美國聯邦通信委員會 認定為國家安全威脅。正如布雷特巴特報導的那樣，美國聯邦通信委員會主席派恩表示有足夠的證據支持這一決定。
+
+派恩說：“我們不能也決不會允許中共利用我們的網絡漏洞，破壞我們關鍵的通信基礎設施。”
+
+[原文鏈接](https://www.breitbart.com/tech/2020/07/13/navarro-strong-action-coming-against-chinas-tiktok-and-wechat/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/DJrKhn2Q7k5GV/)
 
 0
