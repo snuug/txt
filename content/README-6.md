@@ -14,6 +14,10 @@
 
 ## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年1月10日文贵报平安直播-台湾选举的重要性和战友们关心换汇的几个问题](/content/2020/01/20200112-3278403890679158483.md)
+
+[文字版：2020年1月8日文贵报平安直播-跟战友们分享在小飞机上吃鸡腿](/content/2020/01/20200112-7411568700881167018.md)
+
 [文字版：2020年1月7日文贵直播谈-中共把中美贸易战当成内斗工具，华人要跳出中共的孤岛现象，台湾请选蔡英文](/content/2020/01/20200109-4663679773917256212.md)
 
 [文字版：2020年1月6日文贵第二次直播-到底谁是傅希秋，他是什么样的骗子](/content/2020/01/20200109-5452647040359019543.md)
@@ -59,10 +63,6 @@
 [文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/content/2019/12/20191218-3353927093351940100.md)
 
 [文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/content/2019/12/20191217-6566572008069059453.md)
-
-[文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/content/2019/12/20191215-671526428688511323.md)
-
-[文字版：2019年12月13日文贵报平安，王健的第四种死法](/content/2019/12/20191214-6641233035759881210.md)
 
 
 ## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

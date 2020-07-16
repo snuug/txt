@@ -14,6 +14,10 @@
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/2019/01/20190123-8364143851191456056.md)
+
+[文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/content/2019/01/20190122-141136365873986277.md)
+
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/content/2019/01/20190122-8638350325848352117.md)
 
 [文字版2019年1月17 日直播（上，下）](/content/2019/01/20190122-1312642857829852488.md)
@@ -59,10 +63,6 @@
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
 
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/content/2018/12/20181209-8884360174846064842.md)
-
-[文字版：2018年12月2号杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/content/2018/12/20181205-2670968089452974831.md)
-
-[文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/content/2018/12/20181201-3387021380873494190.md)
 
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

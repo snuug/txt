@@ -14,6 +14,10 @@
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/2020/03/20200319-5480491388779340708.md)
+
+[文字版：2020年3月14日郭先生谈爆料革命面临着重要选择，郭七条一定会改!](/content/2020/03/20200317-7978079183041505608.md)
+
 [文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/2020/03/20200316-6955651449637446921.md)
 
 [文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/content/2020/03/20200314-7640814044022850534.md)
@@ -59,10 +63,6 @@
 [文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/2020/02/20200210-962029426939304062.md)
 
 [文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/content/2020/02/20200208-1574169935593183081.md)
-
-[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/2020/02/20200207-1018085438750382057.md)
-
-[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/content/2020/02/20200204-4372842395981895522.md)
 
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

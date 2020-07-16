@@ -14,6 +14,10 @@
 
 ## 頁面 9/28 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [28](/content/README-28.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/content/2019/10/20191024-6179823633507138709.md)
+
+[文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/2019/10/20191022-2968214834265730245.md)
+
 [文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
 
 [文字版：2019年10月18日郭文贵先生与战友们聊天：美国引领全球反共，港人宁死不屈，是反共先锋！](/content/2019/10/20191021-396418607512158731.md)
@@ -59,10 +63,6 @@
 [文字版：2019年9月17日文貴報平安](/content/2019/09/20190917-2323498074578492581.md)
 
 [文字版：2019年9月15日 香港已成为恐惧之港](/content/2019/09/20190917-7577220596935524798.md)
-
-[文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
-
-[文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
 
 
 ## 頁面 9/28 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [28](/content/README-28.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)

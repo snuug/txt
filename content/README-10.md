@@ -14,6 +14,10 @@
 
 ## 頁面 10/28 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [28](/content/README-28.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
+
+[文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
+
 [文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/content/2019/09/20190915-1829806510018363153.md)
 
 [文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
@@ -59,10 +63,6 @@
 [文字版: 2019年8月14日 郭文贵先生谈美國已秘密調查 中共安插在香港警隊中的PLA 操縱美國股](/content/2019/08/20190815-8696204592091636594.md)
 
 [文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/2019/08/20190814-2176259177090842759.md)
-
-[文字版：8月12日文贵在车上直播](/content/2019/08/20190814-5736259304944176367.md)
-
-[文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
 
 
 ## 頁面 10/28 [**<**](/content/README-9.md) [1](/content/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) ... [28](/content/README-28.md) [**>**](/content/README-11.md) [查看全部](/content/README-all.md)
