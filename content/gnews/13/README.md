@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】2020年7月13日福克斯第二次獨家採訪：香港科學家稱中共國掩蓋了冠狀病毒數據
-`2020-07-16 10:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/266807/)
+## 英美加指责俄竊CCP病毒疫苗信息
+`2020-07-16 12:15 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/266877/)
 
-[**2020年7月13日福克斯第二次獨家採訪**](https://www.youtube.com/watch?v=7voTUuVT5i4) **香港科學家稱中共國掩蓋了冠狀病毒數據**
+喜馬拉雅聯盟加拿大農場文錦
+![](https://lh4.googleusercontent.com/fwtKu-v_dLk0zte7IgRy_8YTTTpy2rFMV4PyD3-EhRViA95UEnKwPuzoev2PREMUw8HHuRGnII8D8SFatrIo4o5gVnK_keGwiztenlfRAsimLbVmpUu1k2EWh43N11aptQ57sAY)圖片來源於網絡
+據7月16日加拿大環球郵報報導，英國國家網絡安全中心指責俄羅斯試圖從CCP病毒疫苗研發人員處竊取信息，該消息與美國、加拿大協調後發布。目前尚未確認有任何信息被盜。
 
-[【中文版】香港科學家稱中共國掩蓋了冠狀病毒數據](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)
+外交大臣多米尼克·拉布（Dominic Raab）說：“俄羅斯情報部門以正在對抗CCP病毒大流行的人為目標，是完全不能接受的。” “儘管其他國家不計後果追求私利，但英國及盟國仍在努力尋找疫苗、保護全球健康。”
 
-[【英文版】Hong Kong scientist claiming China ‘covered up’ coronavirus data speaks out](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)
+情報官員將持續不斷的攻擊視為竊取知識產權，而不是破壞研發。國家網絡安全中心稱“惡意活動”正在進行，包括“主要針對政府，外交，智庫，醫療保健和能源目標”的攻擊。
 
-[【韓語版】 홍 콩 의 과 학 자 들 은 CCP 가 코 로 나 바 이 러 스 데 이 터 를 숨 겼 다 고 주 장 합 니 다](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)
+這三國聲稱黑客組織APT29（又稱“Cozy Bear”，屬俄羅斯情報部門）正攻擊與CCP病毒疫苗研發有關的學術和製藥機構。美國已將其認定為與俄羅斯政府有關的兩個黑客組織之一（另一組為“Fancy Bear”），他們曾闖入民主黨全國委員會計算機網絡，並在2016年總統大選前盜走電子郵件。
 
-[【法語版】Un virologue de Hong Kong affirme que le gouvernement chinois dissimule les données sur le coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)
+美當局一個月以來對中共國提出類似指控。聯邦調查局局長克里斯·雷（Chris Wray）上週表示：“此時此刻，中共國正使進行重要CCP病毒研究的美國醫療保健組織，製藥公司和學術機構陷入危險。”
 
-[【西語版】Científicos en Hong Kong afirman que CCP ha ocultado datos de coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)
+
 
 0
