@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】2020年7月13日福克斯第二次獨家採訪：香港科學家稱中共國掩蓋了冠狀病毒數據
-`2020-07-16 10:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/266807/)
+## CCP滑向深淵——美國拒絕中共國在南海的所有領土主張
+`2020-07-16 12:59 GM77` [轉載自GNews](https://gnews.org/zh-hant/266943/)
 
-[**2020年7月13日福克斯第二次獨家採訪**](https://www.youtube.com/watch?v=7voTUuVT5i4) **香港科學家稱中共國掩蓋了冠狀病毒數據**
+編撰：臺灣荔枝、Pearl珍珠、文錦、映蘭軒、Lori文噠
 
-[【中文版】香港科學家稱中共國掩蓋了冠狀病毒數據](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16125609/7.16-3-1.png)
 
-[【英文版】Hong Kong scientist claiming China ‘covered up’ coronavirus data speaks out](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)
+在國際仲裁庭裁決中國在南中國海宣布的”九段線”違反《聯合國海洋法公約》四周年之際，美國國務卿蓬佩奧星期一(7月13日)發表聲明，宣布美方認為北京對南中國海大多數海域的離岸資源權利主張是“完全不合法的”。這一項聲明標誌著美國在這一領域的政策發生了根本性的改變，不再放任中國與其較小鄰國之間的海洋爭端通過聯合國支持的仲裁和平解決。
 
-[【韓語版】 홍 콩 의 과 학 자 들 은 CCP 가 코 로 나 바 이 러 스 데 이 터 를 숨 겼 다 고 주 장 합 니 다](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)
+**美國支持國際仲裁的裁決**
 
-[【法語版】Un virologue de Hong Kong affirme que le gouvernement chinois dissimule les données sur le coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)
+這是美國政府77年以來首次對南中國海爭端表達立場，致力於承認國際法，聲明明確支持相關國家文萊、印尼、馬來西亞、菲律賓和越南。這些國家都反對中國對有爭議島礁和淺灘及周邊海域的主權主張。**蓬佩奧說：****“****北京使用恐嚇手段破壞東南亞沿海國家在南海的主權權利，欺淩它們放棄近海資源，宣稱單方面的主導權，並以****‘****強權即權利****‘****取代國際法。****“**
 
-[【西語版】Científicos en Hong Kong afirman que CCP ha ocultado datos de coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)
+**美國重申違反《聯合國海洋法公約》的活動是非法行為**
+
+聲明強調，美方不承認北京所宣稱的曾母暗沙(詹姆斯暗沙)為中國最南端領土的說法。中國對魚類和潛在能源豐富的斯卡伯勒礁、惡作劇礁或第二托馬斯淺灘沒有有效的海洋主張。中國不能合法地對馬來西亞附近的詹姆斯淺灘、越南近海的先鋒灘周圍水域、文萊附近的盧科尼亞淺灘和印尼近海的納圖納貝沙提出要求。彭培奧表示，中國及其鄰國，包括菲律賓，都是該條約的締約國，都應該尊重這一決定，中國在這些地帶對漁船的任何騷擾或石油勘探美國將視為非法行為。
+
+中國近年來一直試圖通過在南中國海珊瑚環礁上建立軍事基地來鞏固其對該海域的主張。**該區域每年大約承載****5****萬億美元的貨物運輸。**在國際仲裁庭裁決中國在南中國海宣布的”九段線”不符合國際法四周年之際，川普政府提出這一決定，結束了奧巴馬時期對中國政府無理拒絕服從南海仲裁程序的過度縱容，中國依靠綁架聯合國，野蠻侵占鄰國權益的日子一去不復返了。中國行為正在傷害全世界，為了世界局勢的穩定和繁榮，美國選擇在南中國海最敏感的問題上果斷出擊，為美軍在該地區的維和行動提供了合理的支持和依據，強有力地威懾著中國有可能采取的報復行動。
+
+原文出處：[https://apnews.com/07dc9cff9d42047cfcf28799112eb59d?utm\_source=Twitter&utm\_campaign=SocialFlow&utm\_medium=AP](https://apnews.com/07dc9cff9d42047cfcf28799112eb59d?utm_source=Twitter&amp;utm_campaign=SocialFlow&amp;utm_medium=AP)
 
 0
