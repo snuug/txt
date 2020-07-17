@@ -1,19 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】2020年7月13日福克斯第二次獨家採訪：香港科學家稱中共國掩蓋了冠狀病毒數據
-`2020-07-16 10:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/266807/)
+## 澳大利亞或考慮終止香港自由貿易協定
+`2020-07-16 13:13 GM77` [轉載自GNews](https://gnews.org/zh-hant/266961/)
 
-[**2020年7月13日福克斯第二次獨家採訪**](https://www.youtube.com/watch?v=7voTUuVT5i4) **香港科學家稱中共國掩蓋了冠狀病毒數據**
+編撰：傑伊、文秀、xmly666（七角星）、Lori文噠
 
-[【中文版】香港科學家稱中共國掩蓋了冠狀病毒數據](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102521/%E3%80%90%E4%B8%AD%E6%96%87%E3%80%912020%E5%B9%B47%E6%9C%8813%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E7%AC%AC%E4%BA%8C%E6%AC%A1%E7%8B%AC%E5%AE%B6%E9%87%87%E8%AE%BF-1.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16130555/7.16-4-1.png)
 
-[【英文版】Hong Kong scientist claiming China ‘covered up’ coronavirus data speaks out](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102041/%E3%80%90English%E3%80%9113th-July-2020-Dr-Li-Meng-Yan-FoxNews-2nd-Interview.pdf)
+澳大利亞暫停與香港的引渡協議後，**聯邦政府正面臨著取消與香港的自由貿易協議（以下“貿易協定”）的呼聲。**
 
-[【韓語版】 홍 콩 의 과 학 자 들 은 CCP 가 코 로 나 바 이 러 스 데 이 터 를 숨 겼 다 고 주 장 합 니 다](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102059/%E3%80%90%E1%84%92%E1%85%A1%E1%86%AB%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8B%E1%85%A5%E3%80%912020-%E1%84%82%E1%85%A7%E1%86%AB-7-%E1%84%8B%E1%85%AF%E1%86%AF-13-%E1%84%8B%E1%85%B5%E1%86%AF-%E1%84%83%E1%85%AE-%E1%84%87%E1%85%A5%E1%86%AB%E1%84%8D%E1%85%A2-Fox-News-%E1%84%8B%E1%85%B5%E1%86%AB%E1%84%90%E1%85%A5%E1%84%87%E1%85%B2-.pdf)
+當國會夏休結束重返工作時，綠黨會試圖利用澳洲民眾對中共打壓香港的憤怒，敦促參議院委員會重新審查貿易協定，該貿易協定是今年1月才生效，它獨立於澳大利亞在2015年與中國簽定的自由貿易協定之外。
 
-[【法語版】Un virologue de Hong Kong affirme que le gouvernement chinois dissimule les données sur le coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102107/%E3%80%90Franc%CC%A7ais%E3%80%9113-juillet-2020-Deuxie%CC%80me-interview-du-scientifique-Yan-Limeng-Fox.pdf)
+該黨認為，推動參議院委員會重新審查貿易協定這個提議，將有很大機會獲得中立議員的支持。 他們同時也希望取得保守派參議員的支持。
 
-[【西語版】Científicos en Hong Kong afirman que CCP ha ocultado datos de coronavirus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16102114/%E3%80%90Espan%CC%83ol%E3%80%9113-de-julio-de-2020docx.pdf)
+但貿易部長的表態不太可能結束議會對聯邦政府應對香港近期動蕩的辯論，適用範圍廣泛的港版國安法禁止在香港進行 “顛覆 “和 “煽動”，這遭到澳大利亞各政治派別議員的譴責。
+
+上周，總理莫裏森(Scott Morrison)宣布政府將暫停與香港的引渡協議，以及允許該市數千名香港學生和畢業生在澳大利亞停留更長時間，他表示港版國安法 “破壞 “香港一國兩制原則。
+
+**中國發出了關於澳大利亞的新旅行警告**，聲稱該國警察 “任意搜查 “中國公民並 “扣押他們的物品”
+
+這是在兩國關系日益緊張之際的最新言辭升級。
+
+位於北京的中共外交部在其網站發布的新消息中還聲稱澳大利亞媒體 “繼續煽動反華和仇華情緒”
+
+此前幾天，澳大利亞外交和貿易部在Smartraveller網站上再次發布建議，警告澳大利亞人不要到中國旅行包括香港澳門，建議裏警告說，中國當局以”危害國家安全”為由拘留外國人，加上澳大利亞對香港新國安法的擔憂，為數千香港人提供了一條獲得永久居留權的途徑，這才導致中國警告說兩國關系已接近破裂。
+
+中國外交部發言人趙立堅強烈譴責這個舉動：”中方敦促澳大利亞停止幹涉香港事務和中國內政，防止中澳關系受到進一步傷害”。
+
+中共喉舌《中國日報》的一篇社論警告說，澳大利亞正在將雙邊關系推向破裂。
+
+社論說：”澳大利亞並非不可替代，如果澳大利亞堅持其對抗性立場，它將發現代價如何”。
+
+**編者觀點**
+
+澳大利亞目前是緊跟美國為主導的滅共行動派，先是終結了澳大利亞與香港的引渡協議，還為香港人民和香港公司來澳大利亞開辟一條綠色通道，現在還在考慮終止與中國的貿易協議協定，這次澳大利亞是鐵了心想要和中共來個了斷，當中共邪惡的嘴臉都全世界看得清清楚楚時候，未來會越來越多國家一起聯合對抗中共，
+
+而中共國也只能打打嘴炮，提醒下各國應該要停止幹涉中國的內政，其實沒有太多對外國的制裁措施，因為中共國還需要靠這些國家來進口商品，是中共國離不開這些國家，不是這些國家離不開中共國，所以這些外交部發言人只能是過過嘴癮，真讓他們拿出制裁措施，啥都沒有！
+
+原文鏈接：[https://mobile.abc.net.au/news/2020-07-14/calls-axe-free-trade-agreement-hong-kong-china-crackdown/12451002?section=politics](https://mobile.abc.net.au/news/2020-07-14/calls-axe-free-trade-agreement-hong-kong-china-crackdown/12451002?section=politics)
+
+原文鏈接：[https://7news.com.au/politics/china-issues-fresh-warning-over-australia-c-1163956](https://7news.com.au/politics/china-issues-fresh-warning-over-australia-c-1163956)
 
 0
