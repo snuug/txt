@@ -1,44 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 針對閆麗夢的指控，裴偉士為何不出面進行澄清，或者反駁？
-`2020-07-18 11:19 GM10` [轉載自GNews](https://gnews.org/zh-hant/268630/)
+## 多款香港VPN應用程序在網上洩露了用戶的私人數據
+`2020-07-18 14:29 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/268709/)
 
-**文/Dogman**
+*新聞來源：《Technadu》；作者：Bill Toulas；發佈時間：2020年7月16日*
 
-中國病毒科學家閆麗夢在落地美國之後不久，港大的P3實驗室主任裴偉士就火速辭職回到斯裏蘭卡，而閆博士在隨後的福克斯新聞采訪中指控裴偉士面對疫情真相“沒有任何行動”。
+*翻譯/簡評：文明明；校對：孫行者；審核：InAHurry；Page：拱卒*
 
-閆麗夢是香港大學公共衛學院的病毒科學家， 4月底出逃美國並於7月10日開始亮相福克斯新聞（鏈接1 ）。她的實驗室，香港流感研究中心（Centre of Influenza Research），是“研究冠狀病毒的頂級實驗室”，而她這次來到美國，是要告訴美國和全世界“CCP病毒的真相”, 她在采訪中說。
+**簡評** ：
 
-在接到上級Leo Pong的命令之後，閆博士最早與12月31日就開始了針對中國大陸的秘密病毒研究。而閆博士將CCP病毒會人傳人的事實報告給Leo Pong 時，Leo Pong卻告訴她“不要說話”和“不要觸碰紅線”，並且沒有采取任何行動。與此同時，聯合主任裴偉士也知曉這件事，同樣是什麽也沒有做。
+VPN 對大多數人來說並不陌生，相信很多人都有使用VPN的經歷。對於牆內的人來說，使用VPN的主要目的是想登錄國內不允許使用的網站，因為這是我們在國內跨過防火牆，獲得牆外真實信息的唯一途徑。當然這是有風險的。
 
-在閆博士接受福克斯采訪之後，香港大學在其官網上刊登了簡短的聲明（鏈接2），聲明中說閆博士不曾在港大開展過人傳人的實驗。“Dr. Yan never conducted any research on human-to-human transmission of the novel coronavirus at HKU during December 2019 and Janurary 2020”, 港大的聲明中這樣說道。然而，閆博士在福克斯的采訪中明確說是“針對內地的病毒傳播真相進行了調查”，並非“在香港大學開展了人傳人的實驗”。而閆博士對裴偉士和Leo Pong的指控，這份聲明中沒有任何說明。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18105604/Picture-2-4.png)香港大學的聲明
-令人驚訝的是，根據路德節目爆料（鏈接3 ），就閆麗夢博士到達美國後不久，裴偉士竟然於5月10日火速退休，之後就回到他的母國斯裏蘭卡。而在裴偉士退休前不久，他從香港特首林正月娥那裏接到了“幾千萬美金的大合同”，用來做香港新冠病毒的分離研究。
+因為自己無法查證真偽，非專業人士很容易相信這些VPN公司承諾的“無登錄記錄”，以為這樣可以降低被網警發現的風險，孰不知這些無良公司為了利益，向廣大用戶提供了不完善的系統和虛假承諾，置用戶於危險之中。因此，我們在譴責這些不良的商業行為的同時，也要多學習一些網絡安全的知識，提高風險意識，不要貪圖一時小利（使用免費Apps）而影響到自己和家人的安全。就像我們常說的那樣，天下沒有免費的午餐。
 
-路德同期節目還爆料，裴偉士在港大的P3實驗室中還有一間秘密實驗室，而他在港大之外也租了地方，用於存貯病毒。“…還有一個秘密小屋，絕對違反P3實驗室，一般人進不去…做人傳人實驗，其實就是生物武器”，路德說，“Malik還在外面…租了個地方，一層樓，裏面有大冰櫃，放滿了病毒…”。而7月16日路德在節目中爆料，裴偉士（Malik Peiris）在一月份秘密去了武漢兩次（鏈接4 ）。
+##  **多款香港VPN應用程序在網上洩露了用戶的私人數據** 
 
-閆博士還在香港時，就將掌握的CCP病毒信息傳遞給了路德，而路德節目作為世界上第一家報道CCP病毒的媒體，於在1月19日就將CCP病毒爆發和可能人傳人的信息通過其節目傳遞給了公眾（鏈接5 ）。
+• 有事實證明，七種香港的VPN產品正在記錄大量的用戶數據。
 
-此外，在裴偉士辭職回到斯裏蘭卡之後，5月13日，中共主席習近平就致電斯裏蘭卡總統（鏈接6 ）。而路德在7月16日的節目中還爆料，習近平打電話給斯裏蘭卡總統實際上是在送錢。“習給斯裏蘭卡總統打電話，並給了2億美金”，路德說，“都和Malik有關”。
+• 這些產品將數據存儲在沒有保護措施的彈性搜索（Elasticsearch）引擎的公共服務器上。
 
-作為閆博士指控的最為關鍵的證人之人，裴偉士在獲得巨額合同並在閆麗夢博士出逃美國之後不久火速退休；在其回到斯裏蘭卡之後，中國政府就為斯裏蘭卡提供了2億美金的支持；面對所有指控，裴偉士不進行任何澄清。當我們將這一切串聯在一起時，裴偉士的行為顯得非常違背常理，人們不禁要問：裴偉士是否因為不可對外公布的巨大秘密而逃亡？而在中共與斯裏蘭卡的對話之後，裴偉士是否將被噤聲，甚至”被消失”？
+• 數據洩露了大量的信息，包括用戶姓名、電子郵件、密碼、IP地址、家庭地址等。
 
-閆博士所掌握的證據，將會為世人揭曉病毒真相；閆博士在最近接受福克斯新聞采訪中說（鏈接7 ），“我們的時間不多了”。
+這一組七個被認為是提供“無登錄記錄（no-log）”服務的VPN產品由於沒有對服務器採取保護措施而在網上暴露了2000萬用戶。由於這七種產品全部來自同一家香港開發商Dreamfii HK Limited，所以它們使用的是相同的Elasticsearch服務器。
 
-（GTV：狗狗警察）
+被曝光的VPN是UFO VPN，FAST VPN，Free VPN，Super VPN，Flash VPN，Secure VPN和Rabbit VPN，被洩露的文件數量超過10億，總數據量大約為1.2 TB。
 
-鏈接：
+[!\[\](https://spark.adobe.com/page/TYA684mhAqgCl/images/89765af0-46c7-45d0-829d-09b5aac20008.jpg?asset_id=93b6d0d6-ea0b-461b-9c0f-ff0f5dcd9a93&amp;img_etag=%221c13557c2891428bef00cd5df62ed3ba%22&amp;size=2760)](https://spark.adobe.com/page/TYA684mhAqgCl/images/89765af0-46c7-45d0-829d-09b5aac20008.jpg?asset_id=93b6d0d6-ea0b-461b-9c0f-ff0f5dcd9a93&amp;img_etag=%221c13557c2891428bef00cd5df62ed3ba%22&amp;size=1024)
 
-1. [https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-2. [https://www.hku.hk/press/press-releases/detail/21274.html](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-3. [https://www.youtube.com/watch?v=A3UT2iS-mRc&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-4. [https://www.youtube.com/watch?v=C8PhH\_JiOzg&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-5. [https://www.youtube.com/watch?v=kna4QmbCavY&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-6. [http://www.xinhuanet.com/politics/leaders/2020-05/13/c\_1125981620.htm](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-7. [https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+被洩露的用戶數據包括以下內容：
+
+- 上網登錄記錄
+- 用戶姓名
+- 電子郵件地址
+- 純文本形式的密碼
+- IP地址
+- 住家地址
+- 智能手機設備型號和ID
+
+[!\[\](https://spark.adobe.com/page/TYA684mhAqgCl/images/99c7e0a3-cdd8-4117-a679-dba96debf480.jpg?asset_id=0587eec1-f03d-460b-9203-9674357312d0&amp;img_etag=%2256b627889541108ed76b15b4547a9ed0%22&amp;size=1024)](https://spark.adobe.com/page/TYA684mhAqgCl/images/99c7e0a3-cdd8-4117-a679-dba96debf480.jpg?asset_id=0587eec1-f03d-460b-9203-9674357312d0&amp;img_etag=%2256b627889541108ed76b15b4547a9ed0%22&amp;size=1024) Source: Comparitech Blog 
 
 
-圖片：[https://www.hku.hk/press/c\_news\_detail\_18053.html](https://www.hku.hk/press/c_news_detail_18053.html)
+對於“無登錄記錄” VPN來說，這種方式收集的數據實在是太多了，因此這些產品的營銷承諾顯然是錯誤的。如果用戶訪問本國被禁網站的信息被洩露，他們將面臨被騙、被勒索、被釣魚、甚至被逮捕和起訴的風險。
+
+這些應用程序在Apple App Store和Google Play商店中獲得了很高的用戶評分，因此受到了數百萬人的信任。為用戶提供免費使用的事實足以使用戶忽略了這些產品的隱私和安全問題。
+
+Ran Locar和Bob Diachenko經過獨立調查，發現了網絡不安全實例並將安全問題通知了提供VPN服務的公司，但他們沒有得到公司的回應。他們發現問題並發出通知的日期是2020年7月5日，但是直到十天后實時服務器才關閉。這表明VPN公司的高層並不在乎產品的安全性和不良的商業運作。
+
+這些VPN產品將會因此而失去一些用戶，但是這樣的新聞不可能傳達到所有人，免費產品在將來還是會吸引新的用戶。
+
+正如我們之前所解釋的，確認VPN產品的“無登錄記錄（no-log）”政策是否有效的唯一方法是由獨立公司進行信用審核。例如，NordVPN最近通過了此類審核，PureVPN去年也進行了同樣的審核。這些產品值得信賴，不是因為它們在各自的網站上向用戶再三保證，而是因為他們請審計公司對他們的產品進行徹底的調查來確認它們的產品政策的真實性。
+
+[原文鏈接](https://www.technadu.com/hong-kong-based-vpn-apps-exposed-private-user-data-online/142974/)
+
+#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/TYA684mhAqgCl/) 】 
+
+
 
 0
