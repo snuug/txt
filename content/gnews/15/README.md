@@ -1,33 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國政要呼籲美企落實人權調查, 不能為利潤而犧牲原則和價值觀
-`2020-07-18 07:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/268391/)
+## 唐納德·J·川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮
+`2020-07-18 08:35 GM31` [轉載自GNews](https://gnews.org/zh-hant/268478/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18064003/Picture-1-112.png)圖片來源：gettyimages.com 
-美國《國會山報》（The Hill）7月17日刊發了一篇名為《美企須表明立場反對中共國侵犯人權》的文章。作者為現任分管美國經濟增長、能源與環境的副國務卿基斯·克拉奇（Keith Krach）和美國國土安全部代理副部長肯·庫奇內利（Ken Cuccinelli）。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18081756/%E5%9B%BE%E7%89%87-14.png)
+**President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans**
 
-文章指出，美國許多品牌因卓越品質和價值已經享譽全球，但伴隨這種知名度和消費者信任度而來的是更大的責任。這些公司也清楚的意識到，企業責任不單是一種社會責任，同時也涉及到國家安全。美國公司需要力行人權盡職調查、嚴格自問，以確認其跨國業務沒有像國務卿蓬佩奧所說的那樣“助長了強權壓迫”。
+### **唐納德****·****J·****川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮**
 
-文章矛頭直指中共企業，中共政權對其公民、包括新疆維吾爾族和其他穆斯林少數民族實行專制監控，並且嚴重侵犯人權。世界各國、企業和公民都開始認識到中共的真面目。中共利用各種手段以達到其邪惡目的，從他們竭力籠絡知識產權和技術系統到中共冠狀病毒大流行、到香港的鎮壓、再到印度邊境摩擦。
+**Issued on: July 16, 2020**
 
-值此關頭，與中國公司開展業務的美國企業更須確保其商業活動和投資不會助長和維續中共對人權的侵犯。為幫助美國企業應對這個艱難局面，美國國務院、國土安全部、與美國財政部和商務部聯合發布了一項商務指南，對供應鏈中可能牽涉新疆強迫勞動和侵犯人權行為的企業提供了風險提示和注意事項。企業需遵循指南，從而更加自信地避免對中共侵犯人權行為的資助。
+**2020****年****7****月****16****日發佈**
 
-具體涉及到新疆，文章認為美國公司至少面臨三大風險。
+“We’ve begun the most far-reaching regulatory reform in American history.” — President Donald J. Trump
 
-首先，企業可能會無意間協助中共政府開髮用於施虐的監控工具。雖然人們最近幾個月的注意力主要集中在拘留營裡上百萬維吾爾族和其他穆斯林少數民族成員，但需要記住的是，該地區其它數以百萬計的居民實際上也是囚犯，他們是住在敞開式的拘留所。在中共國，人工智能面部和步態識別技術的監控攝像頭無處不在。不但如此，中共政府還監控互聯網上的活動，採集人們的DNA樣本。所有的一切都受控於中共政府，他們僅憑自己看到的就能決定送誰進拘留營。
+“我們已經開啟了美國歷史上最廣泛的監管機制改革。” — 唐納德·J·川普總統
 
-第二個風險是其供應鏈中牽涉到強迫勞動。澳大利亞戰略政策研究所（Australian Strategic Policy Institute）的報告稱，自2017年以來中共國9個省的27家工廠（涉及80多個國際品牌的供應鏈）將維吾爾族置於“疑涉濫用的勞工派遣計劃”中。 5月初又有更多的報告顯示，中共還在急劇擴張該計劃，遠遠超出了當初的範圍。為減少不必要的風險，美國企業可以留意中國商業夥伴那邊潛在的強迫勞動和其他濫用行為的指標，包括繳納社會保險的員工過少、通過政府招聘人員僱工、以及與棉花產業的關係。
+LEADING HISTORIC REGULATORY REFORM: President Donald J. Trump has led a historic effort to eliminate unnecessary and costly regulations that hurt American businesses and families.
 
-第三種風險，硬通貨是中共的命脈。不難想像，在中共國開展業務的公司可能在不知不覺中為中共的獨裁機制提供了資金，而其股東卻完全不知情。董事會至少應向其成員披露所投資的中國公司，並考慮撤銷或退出有可能資助了中共侵犯人權行為的業務。在新疆的被壓迫環境下開展人權盡職調查是一個獨特的挑戰，企業應考慮風險並判斷是否可能使其降低。任何可能與新疆有供應鏈關係的美國企業，都應按照《聯合國工商企業與人權指導原則》（UN Guiding Principles on Business and Human Rights）及其它相關指導原則進行合理的人權盡職調查。
+**引領歷史性的監督機制改革**：在唐納德·J·川普總統的帶領下，削減不必要的、高昂的、有損美國企業和家庭的法規行動已取得歷史性的成果。
 
-文章提到今年早些時候，國務卿蓬佩奧在跟矽谷科技高管談到中共國挑戰時表示，至關重要的是，美國企業不能為利潤而犧牲掉美國的原則和價值觀，這句話值得銘記。
+- Under President Trump’s leadership, Federal agencies have taken more than 7 deregulatory actions for every significant regulatory action.
 
-文章最後呼籲美企需落實人權盡職調查，找出答案，並在造福世界中展現自身的強大力量，在這場人權悲劇中產生深刻而持久的影響。
 
-[原文鏈接](https://thehill.com/opinion/international/507856-us-businesses-must-take-a-stand-against-chinas-human-rights-abuses)
+- 在川普總統的帶領下，聯邦機構對每項重大監管措施已經採取了7項以上的放鬆管制措施。
 
-翻譯報導：致敬香港！ 
-校對整理：晴天小螞蟻
+
+- President Trump’s deregulation efforts have already reduced regulatory costs by $50 billion and are on track to reduce regulatory costs by at least that much in fiscal year 2020 alone.
+
+
+- 川普總統的放鬆管制措施的成效已經降低了500億美元的管控成本，並有望僅在2020財年就能將監管成本至少降低至這個數值。
+
+
+- The President’s Governors’ Initiative on Regulatory Innovation is working to reduce outdated regulations, advance occupational licensing reform, and align Federal and State regulations.
+
+
+- ‘總統-州長’創新性法規倡議是致力於減少過時的法規，推進職業許可改革，並統一聯邦和州的法規。
+
+
+- The Administration continues to take action to modernize and accelerate environmental reviews in order to complete infrastructure projects in a timely and efficient manner.
+
+
+- 政府繼續採取行動，現代化和加速環境審查，為了及時有效地完善基礎設施專案。
+
+
+- The President is rolling back regulations that harm American workers, including providing relief to farmers by repealing the burdensome Obama-era Waters of the United States Rule.
+
+
+- 總統正在撤銷損害美國工人的法規，包括通過廢除繁瑣的奧巴馬時代的美國水域法規，給農民提供救濟。
+
+
+- In 2019, the President signed two executive orders to increase transparency in Federal agencies and protect Americans and their small businesses from administrative abuse.
+
+
+- 2019年，總統簽署了兩項行政令，增加聯邦機構的透明度，並保護美國人民和他們的小生意以防行政濫用。
+
+
+LIFTING UP AMERICANS: President Trump is driving down costs for consumers and helping low-income Americans, who are disproportionately burdened by overregulation.
+
+**提升美國人民**：川普總統正壓低消費者成本和幫助低收入美國人民，過度監管給他們造成了極大的負擔。
+
+- Deregulation is lowering costs for all Americans, particularly benefitting low-income individuals who are disproportionately burdened by overregulation.
+
+
+- 放鬆管控為所有美國人民降低支出，對低收入個人尤其受惠，過度監管給他們造成了極大的負擔。
+
+
+- The Administration cut red tape in the healthcare industry, providing Americans with more affordable healthcare and saving Americans nearly 10 percent on prescription drugs.
+
+
+- 政府削減在醫療行業的繁文縟節，為美國人民提供更負擔得起的醫療保健，並為美國人民節省接近10%的處方藥支出。
+
+
+- Deregulation of both prescription drugs and internet access helped the poorest fifth of households eight times more than the wealthiest fifth of Americans.
+
+
+- 對處方藥和互聯網連接的放鬆監管給予美國最貧窮的五分之一家庭的幫助，將是五分之一最富裕家庭的八倍之多。
+
+
+- The Administration replaced costly Obama-era fuel standards with the Safer Affordable Fuel Efficient (SAFE) Vehicles rule, making cars more affordable for low-income Americans.
+
+
+- 美國政府以“更經濟實惠的燃油效率（SAFE）車輛法規”取代了奧巴馬時代昂貴的燃油標準，使低收入美國人更負擔得起汽車。
+
+
+- This rule is expected to lower the price of new vehicles by $2,200, according to the Council of Economic Advisers.
+
+
+- 根據經濟顧問委員會，這項政策旨在把新車價格降低2,200美元
+
+
+- The President established a council to reduce regulatory barriers to affordable housing.
+
+
+- 總統成立了一個理事會，以減少對經濟適用房監管的阻礙。
+
+
+SUPPORTING FAMILIES AND BUSINESSES: The Administration’s historic deregulatory efforts are putting money in Americans’ pockets and helping businesses prosper.
+
+**支持家庭及企業**：政府放鬆管控所作的歷史性的努力，是把錢放在美國人民的口袋，幫助企業繁榮發展。
+
+- The President’s deregulatory actions will increase household income annually by at least $3,100 in the coming years.
+
+
+- 政府的放鬆管控行動在未來幾年能提升家庭年度收入到3100元以上
+
+
+- President Trump has signed 16 pieces of deregulatory legislation that are expected to result in a $40 billion increase in annual real incomes.
+
+
+- 川普總統已經簽署16項放鬆管控的立法，預計將使每年的實際收入增加400億美元。
+
+
+- Once fully in effect, 20 major deregulatory actions undertaken by the Administration are expected to save American consumers and businesses over $220 billion per year.
+
+
+- 一旦完全生效，由政府開展的20項主要放鬆管控行動，預計能為美國消費者和企業每年節省超過200億美元。
+
+
+- The implementation of the SAFE Vehicles rule is estimated to increase the real incomes of Americans by $53 billion per year over the 2021-2029 period.
+
+
+- 實施SAFE車輛法規後，在2021-2029年間，美國人的實際年均收入預計將增加530億美元。
+
+
+- Deregulation is helping small businesses invest and expand by saving them from dedicating time and money on compliance costs.
+
+
+- 放鬆管控措施正在幫助小型企業，以通過節省他們在合規成本所花費的時間和金錢，來投資和拓展生意。
+
+
+- The President’s deregulatory actions are also increasing the competition, productivity, and wages of American workers.
+- 總統的放鬆管控行動同時增加了競爭力、生產力和美國工人的薪資。
+
+
+原文連結: [President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans](https://www.whitehouse.gov/briefings-statements/president-donald-j-trumps-historic-deregulatory-actions-creating-greater-opportunity-prosperity-americans/)
+
+*翻譯：**【**V%**】**校對：**【**Prof. Bacteriophage**】*  *編輯：【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

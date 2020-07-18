@@ -1,25 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权维护者呼吁加拿大对中共官員進行資產查封等製裁
-`2020-07-18 10:49 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/268575/)
+## 針對閆麗夢的指控，裴偉士為何不出面進行澄清，或者反駁？
+`2020-07-18 11:19 GM10` [轉載自GNews](https://gnews.org/zh-hant/268630/)
 
-翻譯報導：喜馬拉雅聯盟加拿大農場陳廷青
+**文/Dogman**
 
-2020年7月18日Vancouver Sun媒體報導，今年5月，中國人權聯盟發布了一份報告，該報告揭露了中共在2019年7月至2020年3月間對中國國內外的人民和人權活動分子進行人權壓制。
-[!\[多倫多車隊遊行紀念“六四”三十一周年| 中國民主黨| 大屠殺| 民陣| 大紀元\](https://i.epochtimes.com/assets/uploads/2020/06/DSC_0158.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F20%2F6%2F1%2Fn12151423.htm&amp;psig=AOvVaw2P9bolppukOU_zJmHW-3o2&amp;ust=1595169746472000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJjg18eE1-oCFQAAAAAdAAAAABAk)圖片來源：大紀元
-加拿大議員情報委員會在3月發布的一份報導明確指出，從中共侵犯加拿大的民主權利，對新疆人民、西藏人民和法輪功信奉者進行的一系列系統性的威脅、恐嚇和虐待中表明，中共等政權正在侵犯加拿大公民的人權捍衛權，干擾加拿大各種集會和媒體自由。
+中國病毒科學家閆麗夢在落地美國之後不久，港大的P3實驗室主任裴偉士就火速辭職回到斯裏蘭卡，而閆博士在隨後的福克斯新聞采訪中指控裴偉士面對疫情真相“沒有任何行動”。
 
-報導還稱，中共對孟晚舟在加拿大的引渡事件懷恨在心，所以非法將加拿大公民邁克爾·科夫里格和邁克爾·斯帕沃爾(Michael Kovrig and Michael Spavor)作為人質拘留，並對加拿大隱秘進行越演越烈的干擾。中共還威脅加拿大的學術自由，駭客加拿大學校網、各個集會的電話系統和計算機網絡。
+閆麗夢是香港大學公共衛學院的病毒科學家， 4月底出逃美國並於7月10日開始亮相福克斯新聞（鏈接1 ）。她的實驗室，香港流感研究中心（Centre of Influenza Research），是“研究冠狀病毒的頂級實驗室”，而她這次來到美國，是要告訴美國和全世界“CCP病毒的真相”, 她在采訪中說。
 
-中共在支持香港民權的多倫多集會(Toronto rally)上對被封鎖的一百多民親民主人士進行侮辱、恐嚇和威脅。維吾爾族激進分子穆罕默德·托赫蒂（Mehmet Tohti）說，他們非常擔心中共安全官員直接打給加拿大維吾爾族人的威脅電話，因為中共擔心他們將超過100萬的穆斯林維吾爾族人強迫集中在新疆、其他集中營和勞教所的事情被暴露，所以中共官員直接電話威脅和騷擾，甚至將他們留在中國的家庭成員作為威脅，以要求他們保持沉默。
+在接到上級Leo Pong的命令之後，閆博士最早與12月31日就開始了針對中國大陸的秘密病毒研究。而閆博士將CCP病毒會人傳人的事實報告給Leo Pong 時，Leo Pong卻告訴她“不要說話”和“不要觸碰紅線”，並且沒有采取任何行動。與此同時，聯合主任裴偉士也知曉這件事，同樣是什麽也沒有做。
 
-中共曾對加拿大西藏委員會和自由西藏學生會的成員，也是2019年倫多大學學生會主席Chemi Lhamo恐嚇到：“你最好記住，中國是你爹”。
+在閆博士接受福克斯采訪之後，香港大學在其官網上刊登了簡短的聲明（鏈接2），聲明中說閆博士不曾在港大開展過人傳人的實驗。“Dr. Yan never conducted any research on human-to-human transmission of the novel coronavirus at HKU during December 2019 and Janurary 2020”, 港大的聲明中這樣說道。然而，閆博士在福克斯的采訪中明確說是“針對內地的病毒傳播真相進行了調查”，並非“在香港大學開展了人傳人的實驗”。而閆博士對裴偉士和Leo Pong的指控，這份聲明中沒有任何說明。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18105604/Picture-2-4.png)香港大學的聲明
+令人驚訝的是，根據路德節目爆料（鏈接3 ），就閆麗夢博士到達美國後不久，裴偉士竟然於5月10日火速退休，之後就回到他的母國斯裏蘭卡。而在裴偉士退休前不久，他從香港特首林正月娥那裏接到了“幾千萬美金的大合同”，用來做香港新冠病毒的分離研究。
 
-面對中共的“欺凌、種族主義、偏執、包括性暴力和死亡的暴力威脅”，加拿大呼籲驅逐中共外交官，並對參與信息戰和對加拿大公民社會活動有威脅的人進行馬格尼茨基制裁(Magnitsky sanctions)。儘管加拿大外交大臣弗朗索瓦·菲利普（Francois-Philippe Champagne）與中國人權聯盟有在交涉，中共也承諾會接受建議，但並沒有採取有意義的行動，反而騷然持續升級。為了維護人權，加拿大決定對為維吾爾族、藏族、香港和中國大陸人民的人權侵犯行為負責的中共官員實行馬格尼茨基制裁。中國專家喬納森·曼索普（Jonathan Manthorpe）說，中國官員割了中國老百姓大約1萬億美元的韭菜，將他們變成自己的私有財產試圖藏在加拿大、美國、澳大利亞和歐洲等海外。
+路德同期節目還爆料，裴偉士在港大的P3實驗室中還有一間秘密實驗室，而他在港大之外也租了地方，用於存貯病毒。“…還有一個秘密小屋，絕對違反P3實驗室，一般人進不去…做人傳人實驗，其實就是生物武器”，路德說，“Malik還在外面…租了個地方，一層樓，裏面有大冰櫃，放滿了病毒…”。而7月16日路德在節目中爆料，裴偉士（Malik Peiris）在一月份秘密去了武漢兩次（鏈接4 ）。
 
-因此马库斯.科尔加（Marcus Koga）人权活动参与者、加拿大作家和记录篇制作人及中国倡议组织的创始人杨建立（Jang Jianli),公开呼吁加拿大应通過凍結中國盜國賊的資產，從而遏制中共的惡劣行為，並應立即考慮通過立法來懲罰造事者，最後慮驅逐駐紮在加拿大最多的已經明確的參與信息戰的中共外交官。提议者指出：為應對越演越烈的信息戰，加拿大將立即採取行動。
+閆博士還在香港時，就將掌握的CCP病毒信息傳遞給了路德，而路德節目作為世界上第一家報道CCP病毒的媒體，於在1月19日就將CCP病毒爆發和可能人傳人的信息通過其節目傳遞給了公眾（鏈接5 ）。
 
-不難看出，中共對人權的侵犯不僅僅是局限於中共國內，香港，西藏等地區，還把手伸向海外，進行長期以來的無底線的滲透和乾擾，好在真相慢慢浮出水面，讓各洲各國一起抵制惡勢力，合力把世界的前進方向扭向正軌。
+此外，在裴偉士辭職回到斯裏蘭卡之後，5月13日，中共主席習近平就致電斯裏蘭卡總統（鏈接6 ）。而路德在7月16日的節目中還爆料，習近平打電話給斯裏蘭卡總統實際上是在送錢。“習給斯裏蘭卡總統打電話，並給了2億美金”，路德說，“都和Malik有關”。
+
+作為閆博士指控的最為關鍵的證人之人，裴偉士在獲得巨額合同並在閆麗夢博士出逃美國之後不久火速退休；在其回到斯裏蘭卡之後，中國政府就為斯裏蘭卡提供了2億美金的支持；面對所有指控，裴偉士不進行任何澄清。當我們將這一切串聯在一起時，裴偉士的行為顯得非常違背常理，人們不禁要問：裴偉士是否因為不可對外公布的巨大秘密而逃亡？而在中共與斯裏蘭卡的對話之後，裴偉士是否將被噤聲，甚至”被消失”？
+
+閆博士所掌握的證據，將會為世人揭曉病毒真相；閆博士在最近接受福克斯新聞采訪中說（鏈接7 ），“我們的時間不多了”。
+
+（GTV：狗狗警察）
+
+鏈接：
+
+1. [https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+2. [https://www.hku.hk/press/press-releases/detail/21274.html](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+3. [https://www.youtube.com/watch?v=A3UT2iS-mRc&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+4. [https://www.youtube.com/watch?v=C8PhH\_JiOzg&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+5. [https://www.youtube.com/watch?v=kna4QmbCavY&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+6. [http://www.xinhuanet.com/politics/leaders/2020-05/13/c\_1125981620.htm](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+7. [https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+
+
+圖片：[https://www.hku.hk/press/c\_news\_detail\_18053.html](https://www.hku.hk/press/c_news_detail_18053.html)
 
 0
