@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2018年4月14日年文貴先生已經爆料南海一定會被“強拆”
-`2020-07-17 09:13 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/267674/)
+## 7月15日蓬佩奧白宮新聞發布會精彩片段
+`2020-07-17 11:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/267714/)
 
-製作：【上天造滅疫組】
+製作：【秘密翻譯組G-Translators】
 
 0
