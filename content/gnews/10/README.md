@@ -1,61 +1,144 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國宣布計劃建立更多的病毒實驗室
-`2020-07-18 06:01 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/268287/)
+## 唐納德·J·川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮
+`2020-07-18 08:35 GM31` [轉載自GNews](https://gnews.org/zh-hant/268478/)
 
-*新聞來源：《BREITBART》*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18081756/%E5%9B%BE%E7%89%87-14.png)
+**President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans**
 
-*作者：JOHN HAYWARD*
+### **唐納德****·****J·****川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮**
 
-*發佈時間：2020年7月14日*
+**Issued on: July 16, 2020**
 
-*翻譯/簡評：小小妹*
+**2020****年****7****月****16****日發佈**
 
-*校對：leftgun*
+“We’ve begun the most far-reaching regulatory reform in American history.” — President Donald J. Trump
 
-*審核：海闊天空*
+“我們已經開啟了美國歷史上最廣泛的監管機制改革。” — 唐納德·J·川普總統
 
-*Page：拱卒*
+LEADING HISTORIC REGULATORY REFORM: President Donald J. Trump has led a historic effort to eliminate unnecessary and costly regulations that hurt American businesses and families.
 
-簡評：
+**引領歷史性的監督機制改革**：在唐納德·J·川普總統的帶領下，削減不必要的、高昂的、有損美國企業和家庭的法規行動已取得歷史性的成果。
 
-新冠病毒爆發初期，病毒來源層出不窮，爭論不斷，從“蝙蝠湯”，到病毒實驗室洩露，再到病毒是中共政府製造出來的生物武器，一切真相漸漸浮出水面，隨著爆料革命的深入報導，世界也慢慢在覺醒-中國共產黨的邪惡和泯滅的良知殘害了成千上萬的無辜民眾，它不惜放毒而達到可以成為世界霸主的野心。中共國花費巨資所建立的病毒實驗室不是以造福人類為目的，而是研製生物武器來對抗自由民主的國家從而穩固自己的政權，擴張自己的勢力並逐漸變成世界的領導者。然而在病毒肆意爆發的階段，中共政府想要建立更多的病毒實驗室，其險惡用心可謂昭然若揭。
-
-
-
-##  **中共國宣布計劃建立更多的病毒實驗室** 
+- Under President Trump’s leadership, Federal agencies have taken more than 7 deregulatory actions for every significant regulatory action.
 
 
-[!\[\](https://spark.adobe.com/page/iSb1ovT78uYc6/images/077b3fa8-cb5c-45e7-b3fc-6cb204715fb0.jpg?asset_id=dc084bf9-6f15-4962-a363-417f3e7a56dc&amp;img_etag=%22a9f7344629fee8dab1a66e4b0c24feb1%22&amp;size=1024)](https://spark.adobe.com/page/iSb1ovT78uYc6/images/077b3fa8-cb5c-45e7-b3fc-6cb204715fb0.jpg?asset_id=dc084bf9-6f15-4962-a363-417f3e7a56dc&amp;img_etag=%22a9f7344629fee8dab1a66e4b0c24feb1%22&amp;size=1024)
-中共國官方媒體週二宣布，北京已在備受吹捧的計劃中邁出了第一步，以建立更多的高級別實驗室來研究危險的傳染病。
+- 在川普總統的帶領下，聯邦機構對每項重大監管措施已經採取了7項以上的放鬆管制措施。
 
-迄今為止，中共國僅運營著一個擁有最高防護級別的P4 實驗室：如今臭名昭著的武漢病毒研究所，它坐落在交通便利的新冠病毒大流行的震中附近，該病毒已殺死了全世界成千上萬的人，幾乎摧毀了每個國家的經濟。
 
-根據中共國國營媒體《環球時報》的報導，中共國擁有40至60個實驗室，其實驗室防護等級僅符合最低級別的P3實驗室的標準。對於一個以用大量文書工作來記錄其所做的一切而感到自豪的專制國家來說，這是一個奇怪而不清晰的估計。美國有大約1,500個P3實驗室。
+- President Trump’s deregulation efforts have already reduced regulatory costs by $50 billion and are on track to reduce regulatory costs by at least that much in fiscal year 2020 alone.
 
-《環球時報》報導，中共國大多數現有的P3實驗室直接與患者的治療有關，因此需要更多的實驗室以促進病毒的研究。
 
-儘管文章題到僅在廣東省就建立了至少25個新實驗室的計劃，但目前或即將破土動工的實驗室顯然只有七個，而四川省還有兩個。廣東一位官員談到要在五年內建立一個新的P4實驗室。
+- 川普總統的放鬆管制措施的成效已經降低了500億美元的管控成本，並有望僅在2020財年就能將監管成本至少降低至這個數值。
 
-中共國現有的P4設施，武漢病毒研究所，因為明顯的原因，引起了全世界對它的興趣比幾乎所有其他實驗室還要多，儘管中國共產黨（CCP）仍然非常不願允許外國檢查員的來訪。該實驗室從2015年才開始運作，但是在新冠病毒爆發之前它記錄了令人沮喪的安全違規記錄。
 
-自大流行的初期以來，中共的批評者認為中共新冠病毒是有意或無意從實驗室釋放出來的。英國時報週日在一篇文章中發表了最新的懷疑論據，該文章揭示了中國科學家於2013年在一塊廢棄的礦山中發現了一種類似於武漢病毒的冠狀病毒，該病毒從蝙蝠糞便中傳播並感染了六名礦工。表面上這三名工人死於其他原因，但是當他們常規接受SARS檢驗時，在其血液中發現了“另一種未知的SARS樣冠狀病毒”的抗體。
+- The President’s Governors’ Initiative on Regulatory Innovation is working to reduce outdated regulations, advance occupational licensing reform, and align Federal and State regulations.
 
-該病毒的樣本被送往武漢病毒研究所，由以研究蝙蝠冠狀病毒感染而聞名的科學家“蝙蝠女”石鄭麗來進行研究。
 
-石本人談到了大流行背後的病毒與武漢研究所保存的細菌之間的相似性，並表示她擔心大流行可能已經從實驗室傳播開來，但《泰晤士報》的文章引用的證據表明這種潛伏在2013年運往武漢的蝙蝠糞便樣本中的病毒與當前肆虐全球的新冠病毒比以前承認的更為相似。
+- ‘總統-州長’創新性法規倡議是致力於減少過時的法規，推進職業許可改革，並統一聯邦和州的法規。
 
-泰晤士報說，七年前發現新冠病毒後，“似乎出現了媒體噤聲的情況”–尤其是礦工的死亡幾乎沒有被報導出來-但是自那以後發表了一些涉及偵查工作的學術性論文，英國記者確定從該礦山採集的樣本是被帶到武漢的許多危險病原體之一。
 
-文章最後由多位專家總結，推測了礦山新冠病毒與中共新冠病毒大流行之間可能存在的聯繫，其中包括一些人發現武漢病毒研究所並沒有提及2013年新疫情爆發時的案例，這非常奇怪，並提出武漢研究人員可能已經採取了一些措施來故意掩蓋先前的事件。
+- The Administration continues to take action to modernize and accelerate environmental reviews in order to complete infrastructure projects in a timely and efficient manner.
 
-羅格斯大學瓦克斯曼微生物研究所的理查德·埃布賴特教授直言不諱地指出了最壞的情況，他暗示有一個“獨特的可能性“在武漢P4實驗室對2013年病毒所進行的工作中，可能做成了實驗室內的人工適應”，從而將該病毒突變為中共新冠病毒，至少比自然適應快了三十年，才應該有可能改變這種病毒的遺傳密碼。
 
-武漢病毒學研究所拒絕就其報告中涉及的任何問題回答《紐約時報》的提問。
+- 政府繼續採取行動，現代化和加速環境審查，為了及時有效地完善基礎設施專案。
 
-[原文鏈接](https://www.breitbart.com/national-security/2020/07/14/china-announces-plan-build-more-virus-labs/)
 
-編輯：【喜馬拉雅戰鷹團】
+- The President is rolling back regulations that harm American workers, including providing relief to farmers by repealing the burdensome Obama-era Waters of the United States Rule.
+
+
+- 總統正在撤銷損害美國工人的法規，包括通過廢除繁瑣的奧巴馬時代的美國水域法規，給農民提供救濟。
+
+
+- In 2019, the President signed two executive orders to increase transparency in Federal agencies and protect Americans and their small businesses from administrative abuse.
+
+
+- 2019年，總統簽署了兩項行政令，增加聯邦機構的透明度，並保護美國人民和他們的小生意以防行政濫用。
+
+
+LIFTING UP AMERICANS: President Trump is driving down costs for consumers and helping low-income Americans, who are disproportionately burdened by overregulation.
+
+**提升美國人民**：川普總統正壓低消費者成本和幫助低收入美國人民，過度監管給他們造成了極大的負擔。
+
+- Deregulation is lowering costs for all Americans, particularly benefitting low-income individuals who are disproportionately burdened by overregulation.
+
+
+- 放鬆管控為所有美國人民降低支出，對低收入個人尤其受惠，過度監管給他們造成了極大的負擔。
+
+
+- The Administration cut red tape in the healthcare industry, providing Americans with more affordable healthcare and saving Americans nearly 10 percent on prescription drugs.
+
+
+- 政府削減在醫療行業的繁文縟節，為美國人民提供更負擔得起的醫療保健，並為美國人民節省接近10%的處方藥支出。
+
+
+- Deregulation of both prescription drugs and internet access helped the poorest fifth of households eight times more than the wealthiest fifth of Americans.
+
+
+- 對處方藥和互聯網連接的放鬆監管給予美國最貧窮的五分之一家庭的幫助，將是五分之一最富裕家庭的八倍之多。
+
+
+- The Administration replaced costly Obama-era fuel standards with the Safer Affordable Fuel Efficient (SAFE) Vehicles rule, making cars more affordable for low-income Americans.
+
+
+- 美國政府以“更經濟實惠的燃油效率（SAFE）車輛法規”取代了奧巴馬時代昂貴的燃油標準，使低收入美國人更負擔得起汽車。
+
+
+- This rule is expected to lower the price of new vehicles by $2,200, according to the Council of Economic Advisers.
+
+
+- 根據經濟顧問委員會，這項政策旨在把新車價格降低2,200美元
+
+
+- The President established a council to reduce regulatory barriers to affordable housing.
+
+
+- 總統成立了一個理事會，以減少對經濟適用房監管的阻礙。
+
+
+SUPPORTING FAMILIES AND BUSINESSES: The Administration’s historic deregulatory efforts are putting money in Americans’ pockets and helping businesses prosper.
+
+**支持家庭及企業**：政府放鬆管控所作的歷史性的努力，是把錢放在美國人民的口袋，幫助企業繁榮發展。
+
+- The President’s deregulatory actions will increase household income annually by at least $3,100 in the coming years.
+
+
+- 政府的放鬆管控行動在未來幾年能提升家庭年度收入到3100元以上
+
+
+- President Trump has signed 16 pieces of deregulatory legislation that are expected to result in a $40 billion increase in annual real incomes.
+
+
+- 川普總統已經簽署16項放鬆管控的立法，預計將使每年的實際收入增加400億美元。
+
+
+- Once fully in effect, 20 major deregulatory actions undertaken by the Administration are expected to save American consumers and businesses over $220 billion per year.
+
+
+- 一旦完全生效，由政府開展的20項主要放鬆管控行動，預計能為美國消費者和企業每年節省超過200億美元。
+
+
+- The implementation of the SAFE Vehicles rule is estimated to increase the real incomes of Americans by $53 billion per year over the 2021-2029 period.
+
+
+- 實施SAFE車輛法規後，在2021-2029年間，美國人的實際年均收入預計將增加530億美元。
+
+
+- Deregulation is helping small businesses invest and expand by saving them from dedicating time and money on compliance costs.
+
+
+- 放鬆管控措施正在幫助小型企業，以通過節省他們在合規成本所花費的時間和金錢，來投資和拓展生意。
+
+
+- The President’s deregulatory actions are also increasing the competition, productivity, and wages of American workers.
+- 總統的放鬆管控行動同時增加了競爭力、生產力和美國工人的薪資。
+
+
+原文連結: [President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans](https://www.whitehouse.gov/briefings-statements/president-donald-j-trumps-historic-deregulatory-actions-creating-greater-opportunity-prosperity-americans/)
+
+*翻譯：**【**V%**】**校對：**【**Prof. Bacteriophage**】*  *編輯：【**GM31**】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
