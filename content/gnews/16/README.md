@@ -1,59 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美司法部長指責美主要科技娛樂公司與中共勾兌
-`2020-07-19 07:34 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269517/)
+## 路德重磅揭露H5N1與中共病毒的關係
+`2020-07-19 08:46 立武` [轉載自GNews](https://gnews.org/zh-hant/269597/)
 
-新聞來源：appleinsider
+在閆博士重磅採訪出來之後，中共先是搬出閆博士老東家港大發表的一則蒼白無力的聲明，之後又請了所謂的“國際專家”福田敬二來替中共洗地。**這名“國際專家”既是與中共狼狽為奸的****WHO****的前官員，又是現在林鄭月娥指定專家顧問團的成員之一。**
 
-作者： [Mike Peterson](https://appleinsider.com/editor/Mike+Peterson)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19083912/%E6%89%B9%E6%B3%A8-2020-07-193-3160448-3.png)
 
-翻譯： 沐子璐璐
+值得一提的是，[中共在洗地文章中提到](http://mil.news.sina.com.cn/2020-07-16/doc-iivhvpwx5699694.shtml)：【遭遇閆麗夢指控的潘烈文和裴偉士，在他們的研究生涯中，**曾參與非典、H5N1、埃博拉等病毒造成疫情的研究。**】
 
-簡評：沐子璐璐/海闊天空
-
-PR: 海闊天空
-
-PAGE：玄天生
-
-**簡評：**
-
-這則新聞報導了美國司法部長巴爾對蘋果公司以及其他科技巨頭公司的行為的指責。這些指責主要概括有兩點，第一以蘋果公司為例，這些科技巨頭公司為了進入中國市場，極力討好中共，與中共關係極為密切；第二，這些公司實施’雙重標準’，對中共國的強權要求“俯首帖耳”, 而對美國執法機構的要求，以保護用戶隱私的原則不予幫助。
-
-蘋果公司作為美國最偉大的公司之一，可能早已經忘記，是美國的民主制度，是美國的自由企業製度，是美國完善的法律體系，是美國經濟、技術和軍事實力所提供的安全為蘋果公司提供了得天獨厚的基礎環境和保護。如今，這些美國的科技巨頭為了其在中共國市場的利潤，不僅在自己的利益遭受侵犯時默不作聲，乖乖屈服從中共的強權統治，甚至“助紂為虐”，充當中共在美國的說客，左右美國的政策制定，最終損害美國的國家利益。
-
-不無遺憾地說，這些科技公司不僅僅鼠目寸光，甚至可以說是飲鴆止渴。中共拉攏這些跨國巨頭，給其市場利益，最終卻是要復制他們、摧毀他們、掠奪他們。中共利用這些跨國巨頭，盜竊美國利益，最終是要取代美國、接管世界。美國不在，美國所代表的西方價值不在，美國所倡導的自由、民主、法治不在，人類文明就將不在，人類就會永墮黑暗之中。
-
-值此美國聯合西方世界對中共進行堅決剿滅之際，以蘋果為首的科技公司一定要看清形勢、正確決策，與美國政府一道，與世界上正義的人民一道，與中共脫鉤，並滅掉中共！
-
-滅共之後，與美國公司合作的是嶄新的新中國聯邦，是與美國有同樣的尊重市場、尊重競爭、尊重企業家的新中國聯邦。在新中國聯邦，所有的企業不需要出賣原則，不需要違背道義，不需要官商勾結，不需要依靠賄賂，完全憑藉自己的競爭優勢、憑藉自己的獨特產品與服務就可以脫穎而出。在新中國聯邦，絕不會愚民、貧民、 苦民，民眾完全可以享有富足而有尊嚴的生活，這些大科技公司完全可以獲得更廣闊的充滿活力的中國市場。在新中國聯邦，絕不會弱民、辱民，民眾的智力充分開發，創造力蓬勃而出，這些大科技公司完全可以獲得更有活力、更有聰明才智的中國員工。這麼美妙的未來，難道不值得蘋果們去追尋，去創造嗎？
+隨後，**路德在節目中揭露了H5N1的相關事實。**
 
 
 
-##  **美國司法部長巴爾在本週四指責蘋果公司以及其他主要科技娛樂公司“主動跪拜”以求與中共合作** 
+**H5N1****的前世今生**
 
 
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)
-[蘋果和其加密機制](https://appleinsider.com/inside/apple-and-encryption)是巴爾過去幾年主要[批評對象](https://appleinsider.com/articles/20/01/13/attorney-general-barr-demands-apple-unlock-iphones-in-pensacola-shooting) ，尤其是在蘋果持續拒絕在其產品裡建立後門之後。最近，這個有爭議的話題於[2019年12月在彭薩科拉海軍航空站槍擊事件](https://appleinsider.com/articles/20/01/15/apple-braces-for-legal-fight-with-doj-over-pensacola-shooters-iphones)後被再次提及。
+> **H5N1就是高致病性禽流感，對非典、SARS、H5N1的研究，全世界最頂級的就是裴偉士，H5N1最重要的致命性就是furin酶切位點。新冠病毒裡竟然有furin酶切位點…**
 
-在密西根州的杰拉爾德·福特總統博物館（Gerald Ford Presidential Museum）對中共國政策的演講中，司法部長批評好萊塢和矽谷與北京政府和中共關係太親密。
 
-他說“多年來，很多公司如穀歌、微軟，雅虎和蘋果都表現地極為樂意地與中共合作”。
+H5N1是甲型流感病毒的一個高致病性亞型，**死亡率很高。**
 
-巴爾特別指出蘋果公司在最近的香港民主抗議活動中[去掉quartz (一個國際英語新聞機構)應用程序](https://appleinsider.com/articles/19/10/09/news-app-quartz-removed-from-chinese-app-store-amidst-hong-kong-protests) ，並將[VPN從中共國的應用程序商店](https://appleinsider.com/articles/18/08/20/apple-culls-thousands-of-apps-in-china-amid-attacks-from-state-media)下架，還將其部分的[雲數據轉移到中共國當地服務器](https://appleinsider.com/articles/18/07/18/chinese-icloud-data-moved-to-servers-operated-by-state-owned-telco) 。
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)
-司法部長還加倍指責了蘋果公司拒絕美國司法部門的請求，即請蘋果公司幫助調查在彭薩科拉槍擊案中那位持槍者的兩部手機。儘管蘋果公司給聯邦監察局（FBI） [提供](https://appleinsider.com/articles/20/02/05/fbi-pensacola-investigation-still-hasnt-accessed-shooters-iphone)了手機存儲在雲裡的相關數據，但巴爾說FBI經過數月的努力，“在沒有蘋果公司的任何幫助下”，最終“僥倖” [破解了其中一台手機內容](https://appleinsider.com/articles/20/05/18/fbi-breaks-iphone-security-to-uncover-pensacola-shooter-al-qaeda-link) 。
+在2003年SARS期間，[裴偉士在接受採訪的時候](https://news.sohu.com/64/51/news209165164.shtml)，說：【我最大惑不解的是，為什麼這些H5N1病毒對人類如此致命，**死亡率高達33％，**比任何一種傳統已知的人類禽流感病毒都要厲害。我們的研究隊伍近期得出一些可能的解釋，**這些病毒是促炎性細胞因數有效的誘因，**可能導致人類H5N1疾病的殺傷力大增。】
 
-巴爾表示蘋果以及其他科技公司實施’雙重標準’來討好中國市場。他補充說北京通過很多計策對這些公司’施加影響’，如威脅報復和禁止這些公司進入中共國市場。
+大致意思是裴偉士認為H5N1能夠誘發促炎性細胞因數的產生，這些促炎性細胞因數分泌過度時能夠**攻擊正常人體細胞，引起急性炎症，特別是作用於肺部，引起肺損傷，嚴重危害患者性命。**
 
-”你認為蘋果手機在中共國可以不受中共當局滲透嗎？” 巴爾說，“如果不被中共當局滲透他們就無法（在中共國）銷售任何手機”。儘管這暗示了中共官員可以控制蘋果手機，但是巴爾沒有提供能證明這一指責的證據。
+由於H5N1病毒最早是1996年在廣東（又是廣東）出現的，隨後**[1997年在香港爆發，並首次報告了H5N1感染人類的病例](https://zh.m.wikipedia.org/wiki/甲型流感病毒H5N1亞型)。**身處一線的裴偉士**能夠直接拿到許多病毒樣本，特別是作用於人體的病毒樣本，**能夠更好得分析和研究。
 
-蘋果堅稱他們絕不會給加密科技或設備留任何後門。儘管如此，美國當局已證明他們[通過第三方工具](https://appleinsider.com/articles/20/03/11/law-enforcement-can-crack-iphones-just-fine-without-a-backdoor)可以越過蘋果公司的安全機制，甚至對[最新款](https://appleinsider.com/articles/20/01/16/fbi-reportedly-accessed-locked-iphone-11-pro-max-with-graykey-third-party-tool)的蘋果手機11也可以這麼操作。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19083920/7LQI9TJH00AP0001-2.jpg)
 
-除了對蘋果的頻繁指責，巴爾還普遍打擊[加密系統](https://appleinsider.com/articles/19/07/23/us-attorney-general-barr-doubles-down-on-encryption-backdoors-call) ，尤其對端到端聊天平台的加密系統如WhatApp和iMessage。
+在這種情況下，裴偉士成為了研究H5N1數一數二的人物，而且研究一直沒有中斷過，即使SARS期間，**“****H5N1****使我著迷，我們還在進行有關工作”。**
 
-[來源鏈接](https://appleinsider.com/articles/20/07/16/ag-barr-says-apple-others-too-willing-to-collaborate-with-china#P1c-)
+2005年，[港大研究發現](http://www.china.com.cn/overseas/txt/2005-11/11/content_6027783.htm)，H5N1能夠引發免疫系統化學物質“風暴”**（也就是裴偉士發現的細胞因數風暴）**，從而**嚴重干擾肺部的免疫系統，**導致染病之後容易不治病逝。**（中共病毒也可以引起細胞因數風暴）**
 
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/)
+2007年，[港大醫學院公佈一項研究結果](http://news.bioon.com/article/6067202.html)，發現H5N1既可以感染下呼吸道，**也可以感染上呼吸道的表皮細胞。**此前科學界普遍認為，H5N1只會出現在下呼吸道，因此較難通過“人傳人”感染。**（而在上呼吸道意味著可以“人傳人”，甚至“無症狀”人傳人，這和中共病毒是不是很像）**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19083945/%E6%89%B9%E6%B3%A8-2020-07-21922-1293622-3.png)
+
+**2013年，[中國農科院陳化蘭團隊](https://www.guancha.cn/indexnews/2013_05_06_142689.shtml)把H5N1與H1N1做基因重組，製造出可以通過空氣傳播的“人造洗牌病毒”，具有人傳人的高危風險。**這項研究成果論文在同年5月3日發表於《科學》雜誌。（中共病毒具有相同的特徵，中共這是在製造生化武器！！！）
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19083931/2jai91arld-3.jpg)
+
+2016年，[香港大學李嘉誠醫學院發現了](http://www.compassedu.hk/newst_9498)**H5N1禽流感導致急性肺部損失的機制和新治療方法，**其發現發表于國際權威科學期刊《美國國家科學院院刊》上，引起世界重視。
+
+兩個此次中共病毒的關鍵人**物裴偉士和陳志偉**領導了這項研究。
+
+裴偉士相信這項研究結果**不僅可用於治療****H5N1****，還可以治療****H7N9****、****SARS****、****MERS****（那能不能治療中共病毒呢），**這些都是裴偉士的專長病毒領域。
+
+**H5N1****與中共病毒**
+
+以上時間線可以看出，**H5N1****與中共病毒有許多驚人的相似，而且中共已經明面上利用****H5N1****和基因重組技術製造生化病毒，**這是赤裸裸的威脅。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19084028/%E6%89%B9%E6%B3%A8-2020-0722-21922-1293622-3.png)
+
+這些威脅都圍繞著一個關鍵再關鍵的人物——**裴偉士**。
+
+
+> **SARS對細胞因數風暴的研究（S蛋白），H5N1是furin酶切位點切一下S蛋白，兩大熟人利器放在一起，全世界研究這個最牛的就是馬利克。**
+
+
+路德在節目中揭示了**H5N1****感染率和死亡率之高的原因，就是擁有****furin****酶切位點！**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19084013/%E6%89%B9%E6%B3%A8-2020-07-19-3160448-3.png)
+
+擁有furin酶切位點，H5N1感染人體細胞的實力大增，**而同樣的酶切位元點出現在中共病毒上**，這一定是中共製造的生化武器。
+
+
+> **furin酶切位點的死亡率非常高。再加上S蛋白產生的細胞因數風暴。能搞出這種想法的人都不是一般人。**
+
+
+也就是說，擁有這種想法的人除了性格極端之外，**一定要有極高的專業學識，**而裴偉士師除了閆博士之外，唯一一個雙博士，**既是****PhD****，也是****MD****醫學博士。**意味著裴偉士**十分瞭解人體，特別是免疫系統機制，**才能製造出作用於人體免疫系統的生化武器。
+
+
+> **所以我們在1月的時候，閆博士很驚訝，怎麼都是咱們團隊經常用的功能，所以得出結論一定來自實驗室，因為這幾項不可能在自然中都集齊。馬利克為什麼會提前退休？何為“秘密研究”，所以人都只做了一部分零件，各個團隊都只知道一部分。閆博士的老公，才知道馬利克秘密去了兩次武漢，其實就是看病毒的效果如何。**
+
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19083959/%E6%89%B9%E6%B3%A8-2020-07-192-1293622-3.png)
+
+**一切的一切都要回到源頭，中共病毒不是一天造成的，那是中共謀劃已久的生化武器。一次又一次的成功鑄就魔鬼的瘋狂，人類的仇敵已經發起了一場向文明的戰爭。在它以為要勝利的那一刻，上帝的恩典為人類開了一道門，滅共的第三道大門。中共不信天，欲勝天半子，天卻要滅共。**
 
 0
