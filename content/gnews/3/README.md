@@ -1,46 +1,192 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 過度監管每年為你家造成了多大損失
-`2020-07-19 01:36 GM31` [轉載自GNews](https://gnews.org/zh-hant/269308/)
+## 爆料革命如何揭穿中共謊言！
+`2020-07-19 05:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269184/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18113121/%E5%9B%BE%E7%89%87-16.png)
-For years, the Swamp has interfered in the lives of private American citizens by piling regulations on nearly every form of economic activity. This “expert” rule from Washington has created thousands of jobs for bureaucrats while costing everyone else time, money, and—for many—their careers.
+##  **第三次世界大戰：中共病毒生化襲擊（下篇）** 
 
-多年來，“隱形的沼澤” （指政治腐敗）一直在美國幾乎是各個方面的經濟活動中，堆積了無數的冗雜法規，嚴重地干擾著美國人民的日常生活。 華盛頓的看似“專家水準級別”的規則製造了數以千計的官僚型的崗位，耗費著所有其他人的時間、財力，對許多人來說，甚至是耗費著他們的職業生涯。
+*作者：玄天生；校閱：Julia Win；協助：戰鷹團戰友；PAGE：玄天生、拱卒*
 
-Today, President Trump announced more results from his Administration’s historic regulatory relief efforts. The White House Council of Economic Advisers (CEA) estimates that just 20 of the Administration’s deregulatory actions will save U.S. consumers and businesses over $220 billion per year.
+**引言：中共以為可以瞞天過海，繼續嫁禍、撒謊、欺騙，可惜有集美麗、良知、正義於一身的科學家站出來揭露；有郭文貴先生、以及爆料革命無數默默無聞戰友鍥而不捨、日以繼夜、抽絲剝繭的追蹤中共一切訊息，公開中共對世界是如何隱瞞、如何說謊、如何欺騙，及如何屠殺中華同胞、世界人民的真相，已使中共匪幫無處遁形！**
 
-今天，川普總統公佈更多其政府團隊在歷史性放鬆救濟管制措施上取得的成果。白宮經濟顧問委員會（CEA）預計僅僅20項政府的放鬆管制行動就能為美國消費者和企業每年節省超過2,200億美元。
+**(這是由2020年1月到現在文貴先生、爆料革命、女英雄科學家接受採訪的相關資訊而整合的文章。若有不完整是本人的不專業，請讀者見諒。)**
 
-What does that mean for your family? According to the CEA, President Trump’s deregulation program is projected to boost household incomes by upwards of $3,100 annually in the years ahead.
+因為中共向世界撒謊，致使世界人民正在面對**中共病毒(Covid-19)**、面對一場**生化戰爭**––中共向世界發動的一場**生化奇襲**，其實這就是中共挑起的**第三次世界大戰**，是一場不同於以往的**隱形戰爭**。因香港正在反抗的年青人對正義、自由的堅持與決心，激勵了有正義和良知的女英雄科學家，其在郭文貴先生的幫助下，逃離了中共魔爪，奔向了正義的美國。她以科研人員的親身經歷發出強有力的聲音，喚醒世界，讓人們看到**CCP病毒**的真相，向世界證明中共如何製造**生化武器 – 中共病毒(Covid-19)**。她警示世界：**「這與政治無關，而是關係到全人類能否活下去！」「留給我們的時間不多了！」**
 
-這對你家庭來說意味著什麼呢？據白宮經濟顧問委員會CEA稱，川普總統放鬆管制專案是計畫在未來幾年中，為每個家庭每年增加3,100美元的收入 。
+接下來我們細詳的看看**(1)中共病毒關係圖**；**(2)爆料革命和核心關鍵的女科學家如何揭穿中共的相關謊言**；**(3)真相微觀圖總結！**
 
-These benefits will take many forms: Americans will have access to cheaper cars, and patients will save nearly 10 percent on prescription drugs. Most important, these rollbacks on everyday items will help blue-collar and middle-class Americans significantly more than the richest among us.
 
-這些好處將有多種形式：美國民眾能買到更便宜的汽車，病人能省下接近10%的處方藥費用。最重要的是，對日用品的返利能最大程度地幫助到藍領和中產階級，而不是我們中這些富裕的人。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19013548/%E5%9B%BE%E7%89%87-18.png)
-Overregulation falls disproportionately on the shoulders of lower-income families, who spend a larger share of their incomes on heavily regulated goods and services. Those purchases include transportation, food, and healthcare. Government labor-market burdens also cost American jobs by causing workers to be replaced with lower-cost machines.
+> 爆料革命、女英雄科學家及更多科學家如何揭穿中共的彌天大謊
 
-過度管控的重擔壓在了低收入家庭的肩膀上，使他們將大部分的收入用於嚴格管控的商品和服務上。包括購買：關於運輸、食品和醫療保健。政府勞動力市場的重擔同樣造成了美國的工作崗位的損失，導致工人們被低成本的機器所代替。
+[!\[\](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/808c9ac2-3308-47d3-83f4-b12b26f4ae0a.png?asset_id=58d7860a-233c-43bc-83d8-a2e3a48e2da7&amp;img_etag=%22cf5e416162eac64af4ec8186a12fa08e%22&amp;size=2560)](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/808c9ac2-3308-47d3-83f4-b12b26f4ae0a.png?asset_id=58d7860a-233c-43bc-83d8-a2e3a48e2da7&amp;img_etag=%22cf5e416162eac64af4ec8186a12fa08e%22&amp;size=1024) **爆料革命揭露中共病毒行動圖** 
+### 
+ **1.文貴先生直播爆料** 
 
-Before taking office, President Trump promised to roll back two regulations for every new one added in Washington. He’s kept that promise—and then some. Under the Trump Administration, nearly eight regulations have been rolled back for each new one implemented.
+**文貴先生**是第一個，也是僅有的真正有能力消滅中共的**滅共者**，被中共視為頭號敵人。文貴先生從2017年1月第一次在視頻前發聲，開啟並引領了**爆料革命**，之後成千上萬志同道合的無名戰友一起跟隨行動，對抗、消滅中共邪惡紅龍。文貴先生在美國以及國際社會，聯合更多正義人士形成**滅共者聯盟**。大家還記得文貴先生在**2020年1月2日爆料中共武漢「非典」的事嗎﹖**
 
-上任前，川普總統許諾對華盛頓每增加一項新法規都將撤銷兩項法規。他信守這一諾言，另外還有一些。在川普團隊的帶領下，已經撤銷了近八項法規。
 
-About $50 billion in regulatory costs has already been saved on President Trump’s watch. By current projections, the CEA estimates that cutting red tape will lead real incomes for Americans to rise by $53 billion per year between 2021 and 2029.
 
-在川普總統監督下節省了大約500億管控費用。根據目前預測，CEA預計減少繁文縟節後會讓美國人民的實際收入在2021年至2029年間每年增加530億美元。
+[文字版2020年1月20日文貴談中國正在發生的非典真相](https://gnews.org/zh-hans/85908/)
 
-Americans don’t need Washington to create more white-collar jobs for central planners in the bureaucracy. They need a government that operates efficiently, effectively, and inexpensively to protect its citizens while creating jobs for workers across our country.
+[文字版：2020年1月22日文貴第二次直播談武漢疫情緊急事件](https://spark.adobe.com/page/k2SMkl2Yv47bx/)
 
-美國人民不需要華盛頓為官僚體系的集權管理者增加更多白領職位。他們需要的是政府部門快速、高效和低成本地運作，以保護其公民，同時為全國各地的工人創造就業機會。
+###  **2.國內疫情視頻剪輯** 
 
-原文連結:[This Is How Much Overregulation Would Cost Your Family Each Year](https://www.whitehouse.gov/articles/this-is-how-much-overregulation-costs-your-family-each-year/)
+國內爆發疫情後，由**戰友之家的上天造·滅疫組**及**爆料革命各地戰友**整合、剪輯了反應國內真實情況的視頻，利用互聯網時代的力量加大傳播(Livestream、Youtube)。與中共不同，我們是要把最真實、最直接的情況向世界各地傳播，讓人們看到中共國的真相，以此警醒世界。文貴先生早就說過，這次的中共病毒是可怕的、是不可控的（甚至在兩三年之內）、會大爆發的！路德在節目中也警示，這個病毒是**人工製造的、會人傳人！**
 
-*翻譯：【**V%**】* *校對：【木木**ANNA**】* *編輯：【**GM31**】*
+我們衷心的希望，人類世界不要再被中共的無恥及謊言欺騙！爆料革命就如**《國王的新衣》**故事裏那個純真的孩童，說出了真相，揭穿了中共的謊言！
 
-*戰友之家玫瑰園小隊出品*
+
+
+[武漢冠狀病毒重要新聞集錦](https://spark.adobe.com/page/k2SMkl2Yv47bx/)
+
+[快報:騰訊意外洩露了有關武漢病毒死亡的真實數據](https://gnews.org/zh-hans/103865/)
+
+[中共泯滅人性的“正能量”宣傳引爆民憤](https://spark.adobe.com/page/k2SMkl2Yv47bx/)
+
+###  **3.路德社節目** 
+
+在最關鍵的時刻，路德頂着巨大的壓力，向世人展示了爆料革命情報的力量和唯真不破的信譽。路德於1月19日節目中，爆出了中共病毒的大爆發及病毒的一些真相(當然跟隨爆料革命的，大家知道背後的爆料人是誰)。中共被迅雷不及掩耳的打臉，只好急忙公佈相關疫情的假情報，並推翻它們之前說的不會人傳人，而改為會人傳人。
+
+隨着路德社節目越來越多的情報，墨博士也提供了另一個重要的預防、治療藥物–**硫酸羥氯喹**。中共的大外宣及中共藍金黄(BGY)的力量不斷攻擊，污衊路德社節目，說藥物副作用大於治療作用等等，路德社承擔了巨大壓力。然而，最終就是真的假不了！至今大家也看到了，科學及相關報告也表明硫酸羥氯喹可以有效治療及預防中共病毒(Covid-19)。路德社及一眾爆料革命戰友，努力提供精準的情報，一次次向世界發出紅色警報！
+
+
+
+[Brief Summary of Evidence of Lab-Made 2019 nCoV](https://gnews.org/89737/)
+
+[羥氯喹有效](https://gnews.org/zh-hant/254060/)
+
+[超限戰下的珍珠港事件?!](https://gnews.org/zh-hans/113859/)
+
+###  **4.爆料革命直播節目** 
+
+隨着路德社節目的爆料，爆料革命各自媒體，也相繼直播中共病毒的真相及中共國如何隱瞞疫情的真相，不給中共喘息的機會。中共對冠狀病毒的研究及事前、事後的準備與演習，都說明中共早已在準備某一時段向世界發動生化襲擊。
+
+中共在媒體上的控制也有目共睹，看YouTube對中共病毒的真相打壓––黃標各爆料革命戰友直播平台、讓各平台無法得到推薦。可見中共不惜收買海外媒體，隱瞞真相，打壓揭露真相的平台。
+
+
+
+[中共病毒爆發和掩蓋的時間軸](https://gnews.org/zh-hans/148934/)
+
+[探尋潘多拉盒子開啓前的蛛絲馬跡](https://gnews.org/zh-hant/131699/)
+
+[陰謀？ –疫情的背後陰險佈局！](https://gnews.org/zh-hans/130771/)
+
+[中共：生化危機“V”上演！](https://gnews.org/zh-hans/127294/)
+
+[武漢新病毒背後的陰謀](https://gnews.org/zh-hant/89678/)
+
+###  **5. Gnews文章** 
+
+在Gnews上有很多科學文章、翻譯文章等等，都是揭露中共病毒的基因序列不正常，雖然比較學術性、科學性，但其實不難看懂**（以下符上參考鏈接）**。當你潛心讀完這些文章，或許也能像路德先生一樣，成為半個病毒專家。
+
+我總結這個病毒：它不是大自然中來；它是被人工刻意合成的；它對人類有很強的攻擊性；它是人傳人的，有很強的傳染性；它有能力避開人體免疫系統的回擊；它是一個生化武器，不是用來研究疫苗的。
+
+
+
+[D614G突變可能使病毒更具傳染性](https://gnews.org/zh-hans/242975/)
+
+[冠狀病毒是人造](https://gnews.org/zh-hans/169331/)
+
+[冠狀病毒生化武器發展史](https://gnews.org/zh-hans/168794/)
+
+[The Farm: “P4” Biological Superweapons Development](https://gnews.org/89509/)
+
+###  **6. DT挖掘機** 
+
+另一個爆料革命重要的揭露者，就是DT挖掘機團隊。對中共製毒的P4實驗室及與中共合作的機構進行挖掘，揭露中共不可告人的關係網，以及中共在P4實施室的內部資訊。從第一季到第二季、甚至將有第三季的萬字記錄。而推特屢次將DT挖掘機帳號無名原因的封停、永久封停，所起的直接作用，就是阻止爆料革命真相的傳播。由此，你看到中共強大的藍金黄(BGY)力量了吧！中共滲透世界及封鎖真相的力量真是無處不在！
+
+[【DT挖掘機團隊出品】 CCP病毒系列01：三種病毒的關聯](https://gnews.org/zh-hans/212656/)
+
+[【DT挖掘機團隊出品】為什麼說中共病毒不可能源於自然而必然產生於實驗室](https://gnews.org/zh-hans/219219/)
+
+[中國生物及病毒實驗室安全管理挖掘揭秘](https://gnews.org/zh-hans/233690/)
+
+[Final Battle of the CCP: The Biological Weapon for Unrestricted Warfare (Part I)](https://gnews.org/131657/)
+
+[Final Battle of the CCP – The Biological Weapon for Unrestricted Warfare (Part II)](https://gnews.org/133302/)
+
+###  **7.班農作戰室– Pandemic** 
+
+美國的媒體早已被中共滲透的不堪入目，美國之音(VOA)應該是傳播美國正義之聲、傳播普世價值到牆內最重要的平台，但他對文貴先生的斷播驚醒美國民眾，也驚醒了華人。一個美國媒體（中文部）不斷為中共站台，邀請的嘉賓除了偽類還是偽類。美國之音沒有任何記者報導香港運動，只報導中共不痛不癢、沒有價值的新聞。所以班農作戰室重新打開美國正義之聲，從川普的彈核案到現在中共病毒大爆發(Pandemic)，班農作戰室都是走在最前面的。爆料革命與班農作戰室聯合，路德社節目各嘉賓主持以及其他爆料革命戰友們到班農作戰室作客對談，展現了新中國聯邦公民的形象。告訴全世界，中國人不是中共不斷污衊和抺黑的那樣，而是與世界人民一樣，盼望擁有自由、民主、法治、信仰等普世價值的人；是愛好和平、希望融入世界大家庭、與世界人民和平相處並一起建設美好世界的人；是有能力自己創造美好未來的人！
+
+
+
+[“美版鐘南山”允許作證](https://gnews.org/zh-hans/194084/)
+
+[中共再撒彌天大謊](https://gnews.org/zh-hant/147780/)
+
+###  **8.女英雄科學閆麗夢及更多正義、良知科學家登場** 
+
+[!\[\](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/ec608a38-18ce-47a2-bb1b-35ffcadea0dc.jpg?asset_id=5451fc24-8362-443f-b4f1-1bdbac42734c&amp;img_etag=%225e82a07c323dff3818608a1ce6fa7f2c%22&amp;size=2560)](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/ec608a38-18ce-47a2-bb1b-35ffcadea0dc.jpg?asset_id=5451fc24-8362-443f-b4f1-1bdbac42734c&amp;img_etag=%225e82a07c323dff3818608a1ce6fa7f2c%22&amp;size=1024)女英雄科學家閆麗夢
+
+擁有正義、良知的女英雄科學家到福克斯新聞(Fox News)接受採訪後，猶如核彈，對中共造成了毀滅式的打擊，也是最關鍵、最核心的證人。這更進一步證明中共正在利用中共病毒(Covid-19)，對世界發動生化襲擊；證明了這就是中共病毒、就是中共研發的毀滅人類的生化武器！
+
+女英雄科學家閻麗夢，受香港反送中運動中年青人的感召，拋卻一切、歷經艱險來到美國。她的出鏡，也必將喚醒同樣擁有正義及良知的其他科學家站出來，揭露中共政權的邪惡。
+
+這一集集的訊息整合，也給美國與美國相關部門提供了核查真相的證據。而香港大學P3實驗室的核心人員裴偉士突然的離職，及潘烈文等等的相關情況也會慢慢浮出水面。美國在行動，中共偽政權對世界發動生化戰爭的實證，最終會大白於天下。
+
+**總結：**揭露中共的邪惡，人人有責！如文貴先生、如班農先生、如香港反送中運動中的年青人、如女英雄科學家閻麗夢、如路德、如千千萬萬個台前幕後的戰友，行動吧！
+
+
+
+[The Second Exclusive Interview with Fox News on July 13, 2020](https://gnews.org/266808/)
+
+[女英雄閆麗夢病毒學家逃出中共魔掌勇敢向世界披露CCP病毒真相](https://gnews.org/zh-hans/264593/)
+
+[解讀郭先生說“閆麗夢博士是最有資格的”](https://gnews.org/zh-hans/265605/)
+
+[十七年前，那場SARS到底隱藏了多少秘密](https://gnews.org/zh-hans/265050/)
+
+[揭開中共病毒真相愈來愈近](https://gnews.org/zh-hans/182950/)
+
+[美國官員證實全面調查冠狀病毒是否從武漢實驗室逃脫](https://gnews.org/zh-hans/181539/)
+
+[中共國隱瞞了疫情爆發程度](https://gnews.org/zh-hans/162369/)
+
+[閆麗夢：人類的天使，中共的噩夢](https://gnews.org/zh-hans/266731/)
+
+
+> *真相的微觀圖*
+
+[!\[\](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/7c1085a3-af3c-4e90-8da1-bc787456727c.png?asset_id=7987e56a-3217-4b6e-8aa5-f92c30b39882&amp;img_etag=%2257b6445d5cb95f5f9d0e15ed511d2737%22&amp;size=2560)](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/7c1085a3-af3c-4e90-8da1-bc787456727c.png?asset_id=7987e56a-3217-4b6e-8aa5-f92c30b39882&amp;img_etag=%2257b6445d5cb95f5f9d0e15ed511d2737%22&amp;size=1024) **中共病毒真相VS中共如何對世界** [!\[\](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/033128a3-f435-4753-9ea5-7fbfc14c564e.png?asset_id=7c33ea3d-0166-4917-ada4-0ee283d50119&amp;img_etag=%226ac9c37c87597f33cc69ffc09af609bb%22&amp;size=2575)](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/033128a3-f435-4753-9ea5-7fbfc14c564e.png?asset_id=7c33ea3d-0166-4917-ada4-0ee283d50119&amp;img_etag=%226ac9c37c87597f33cc69ffc09af609bb%22&amp;size=1024) **中共病毒真相VS中共如何對世界詳細圖** [!\[\](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/d718dfb5-e5fc-4fdc-bf3c-b05eeb2841f5.jpg?asset_id=9dc1c9d5-bbaf-439c-99c0-056de89cb7c5&amp;img_etag=%2216143389a665735fa858e6697294cd65%22&amp;size=1024)](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/images/d718dfb5-e5fc-4fdc-bf3c-b05eeb2841f5.jpg?asset_id=9dc1c9d5-bbaf-439c-99c0-056de89cb7c5&amp;img_etag=%2216143389a665735fa858e6697294cd65%22&amp;size=1024)
+最後，結合整體微觀圖，相信大家明白中共是如何對世界撒出**彌天大謊、如何蓄意隱瞞、蓄意傳播**，讓人類處於生死邊緣。這一回不單是國內民眾活在水深火熱中，世界人民同樣也活在中共病毒的危害下。
+
+相信世界是有靈性的，同意路德先生所說的，你將正義、良知種植於大自然、世界萬物，同樣大自然及萬物也有正義及良心來回報人類；若你用邪惡之心統治世界，世界一切都會以致毒、致可怕之事反噬人類。納粹當時向世界發動第二次大戰，愛因斯坦離開德國走向美國，美國強大。這一次正義、良心的科學家走向美國，美國也會再次走上更高的維度。世界真正的高度文明已經停滯了很久，甚至在退步中，精神、信仰已經消失。相信剷除邪魔後的未來，定會與宇宙文明接軌！
+
+這是繼[第三次世界大戰：我們早在戰爭中](https://gnews.org/zh-hant/260841/)的第二章，中共病毒真相(中共說謊，屠殺全人類！)
+
+感恩‧見證、參與香港反送中運動；感恩‧見證、參與爆料革命；我們都是這段歷史的見證者、行動者、參與者！
+
+文貴先生驚醒世界、香港運動喚醒世界、爆料革命喚起人們行動、女英雄科學家進一步讓人們知道真相，了解了中共的邪惡，喚醒了人們的正義與良知！
+
+[事實勝於雄辯-中共病毒大揭露](https://gnews.org/zh-hans/259905/)
+
+[我們將與冠狀病毒大流行一起生活到2021年](https://gnews.org/zh-hans/241942/)
+
+[黨軍、中共病毒兩者關係？](https://gnews.org/zh-hant/202562/)
+
+[中共國能化危為機，靠冠狀病毒接管世界嗎](https://gnews.org/zh-hans/189022/)
+
+[中共必須為新冠狀病毒的謊言負責](https://gnews.org/zh-hans/185566/)
+
+[美媒勁爆:中共黨魁故意放毒殺死人民的一個理由](https://gnews.org/zh-hans/180473/)
+
+[重磅！當委會已經知道病毒真相！](https://gnews.org/zh-hans/178720/)
+
+[中共因非法囤積全球醫療用品被起訴](https://gnews.org/zh-hans/174702/)
+
+[在武漢肺炎事件上CCP是怎樣欺騙牆內同胞的（2020年1月26日為止新聞整理）](https://gnews.org/zh-hans/91137/)
+
+[共產黨殘忍的蓄意！武漢肺炎（上篇）](https://gnews.org/zh-hans/94893/)
+
+[共產黨殘忍的蓄意！武漢肺炎（下篇）](https://gnews.org/zh-hans/95493/)
+
+文章內容僅代表作者個人觀點
+
+嗚謝圖片來源：pixabay。
+
+#### 編輯【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/MZ0Z4VCdrHeFp/) 】 
 
 0
