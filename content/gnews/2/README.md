@@ -1,59 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京時間2020年7月17日湖北恩施城區清江漫堤，城區大面積被淹
-`2020-07-19 05:25 Diago` [轉載自GNews](https://gnews.org/zh-hant/269466/)
+## 中共國從不遵守聯邦證券法！
+`2020-07-19 07:54 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269525/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19051429/%E5%B0%81%E9%9D%A2-31.jpg)
-作者：Diago
+*新聞來源：針對中共國問題的當前危機委員會*
 
-據新華視點2020年7月17日發佈的[湖北恩施市城區清江漫堤大面積被淹 當地正緊急組織轉移群眾](https://h5.ifeng.com/c/vivoArticle/v003OLxNw0cAaxOfSvwDD4xRG7tw6Ut--AhqM2Yvg2PfMZLk__?ch=ref_vivo_llq1&amp;showOriginalComments=false&amp;vivo_news_source=99&amp;isNews=1&amp;showComments=0&amp;from_channel=1&amp;vivoRecommendPushType=3)：
+*作者：Patrick Benner*
 
-【受持續強降雨影響，湖北省恩施土家族苗族自治州恩施市城區清江漫堤，城區大面積被淹，部分路段積水深達數米。當地正緊急組織轉移群眾。 17日17時30分，清江恩施水位站流量超過3670立方米/秒，水位超過418.5米。恩施市水利防汛抗旱分指揮部決定12時將恩施市城市防洪應急回應由IV級提升為Ⅲ級，13時30分將應急回應提升至Ⅱ級，16時30分將應急回應提升至Ⅰ級。（記者 譚元斌）】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19051556/0263538F34357040DABD827D762E984886821708_w690_h920.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19051601/1B24E51DAF9839956B27DA3FC9E1BD3F42C38D29_w600_h800.jpg)
-清江漫堤是幾點幾分發生的？我們不知道！清江漫堤造成多少人員死亡和物資損失？我們不知道！
+*翻譯、簡評：仙女兒-文善*
 
-以下為推特相關連結——
+*PR：孫行者*
 
-> 7月17号，湖北 恩施 
-> 中共豆腐渣工程
-> 清江河堤溃败在即 [#洪水灾害](https://twitter.com/hashtag/%E6%B4%AA%E6%B0%B4%E7%81%BE%E5%AE%B3?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7xW55LwssZ](https://t.co/7xW55LwssZ)
-> — 刘妞妞2 (@niuniu\_Liu2) [July 17, 2020](https://twitter.com/niuniu_Liu2/status/1284157577383698432?ref_src=twsrc%5Etfw)
+*PAGE：玄天生*
 
-> 湖北恩施遭遇强降雨，流经城区的长江一级支流——清江水位暴涨，漫过江堤，城区发生内涝。预计恩施大部未来数小时仍有50毫米以上降水。
-> 
-> （视频：恩施电视台） [pic.twitter.com/aj8U0PwiGp](https://t.co/aj8U0PwiGp)
-> — 500 Miles (@Safeguard008) [July 17, 2020](https://twitter.com/Safeguard008/status/1284096325735165953?ref_src=twsrc%5Etfw)
+**簡評：**
 
-> 17日上午开始，湖北恩施市城区开始积水内涝。至下午4时许，清江水位暴涨，两岸主干道积水达2米左右，恩施中心城区几乎泡在水中，公交车没顶，防空警报拉响。 [pic.twitter.com/ldCeEyUxO3](https://t.co/ldCeEyUxO3)
-> — 木沉香🇺🇸 (@Begonia2020) [July 18, 2020](https://twitter.com/Begonia2020/status/1284290461046202369?ref_src=twsrc%5Etfw)
+中共國改革開放30年，加入世界貿易組織15年，至今也沒能如西方國家所期待的那樣與國際文明接軌，反而不斷的向世界輸送虛假與欺騙，以“超限戰”的方式擾亂國際秩序，挑戰普世價值。當美國上市公司會計監督委員會已經識破中共國公司的虛假操作，當針對中共國問題的當前危機委員會已經意識到中共國的無可救藥，當以美國為主的文明世界已經開始警醒，當西方民眾已經驚悉真相，中共國靠謊言和欺騙建立起來的一切都如同鏡中花，水中月，終將化為泡影。
 
-> 【洩洪？湖北恩施大淹水】7月17日，湖北省恩施土家族苗族自治州恩施市城區清江漫堤，城區大面積被淹，部分路段積水深達數米。有網友說是洩洪所致。 [pic.twitter.com/cKvrotaWbD](https://t.co/cKvrotaWbD)
-> — 小婷 (@ttingxiao) [July 18, 2020](https://twitter.com/ttingxiao/status/1284299989535961088?ref_src=twsrc%5Etfw)
 
-> 转：湖北省恩施市的内涝！
-> 7月17日，持续强降雨致使恩施城区
-> 清江干流水位猛涨，
-> 倒灌的河水致使沿河公路被淹，
-> 两岸单位宿舍、居民楼一时间涌入大量洪水，车辆受阻、人员被困。
-> 清江河水位已临近最高警戒线，
-> 大龙潭水库泄洪在即。一旦泄洪，
-> 意味着沿河两岸几百户居民将直面洪水威胁。 [pic.twitter.com/Se0yc8mliE](https://t.co/Se0yc8mliE)
-> — Bright Future (@mywayne0511) [July 18, 2020](https://twitter.com/mywayne0511/status/1284324791059509248?ref_src=twsrc%5Etfw)
 
-> 0717 湖北恩施洪水漫堤，防空警报拉响，市民紧急转移，城区大面积被淹，部分路段积水深达数米，清江水位破历史纪录。洪灾原因是暴雨、上游水库泄洪。 [https://t.co/tZqsQQcB5n](https://t.co/tZqsQQcB5n) [#天空探照灯](https://twitter.com/hashtag/%E5%A4%A9%E7%A9%BA%E6%8E%A2%E7%85%A7%E7%81%AF?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Vsl73l0uus](https://t.co/Vsl73l0uus)
-> — 天空享知道 (@skyknows3) [July 18, 2020](https://twitter.com/skyknows3/status/1284326531687301122?ref_src=twsrc%5Etfw)
+##  **川普總統緻美國投資者：“我們不希望[你们]投資中共國軍事公司”；承諾以“切實行動”來阻止它** 
 
-> 7月17日，湖北省清江恩施水位站流量超過警戒水位，排洪 [pic.twitter.com/ohLFZhi0Lu](https://t.co/ohLFZhi0Lu)
-> — Confront the truth (@TruthConfront) [July 18, 2020](https://twitter.com/TruthConfront/status/1284392655124754432?ref_src=twsrc%5Etfw)
 
-> 難怪山城恩施變成千島湖， 然來不是下雨，是清江潰堤了！
-> 清江是長江支流，水匯入三峽宜昌下游。長江加大洩洪，清江水出不去，全流域水位上升。再加上降雨，山洪匯入清江，整個流域都變澤國。
-> 最終導致清江恐怖潰堤，國內自媒體都在瘋傳！ [pic.twitter.com/EJVtaosRbe](https://t.co/EJVtaosRbe)
-> — crossstream (@CrossstreamW) [July 18, 2020](https://twitter.com/CrossstreamW/status/1284549565668945920?ref_src=twsrc%5Etfw)
 
-當災難被刻意隱瞞，當人員死傷成為這個國家媒體上避而不談的話題，這個國家和這個國家的14億同胞全部處在等待被謀殺的境地！
+*2020年7月16日*
+[!\[\](https://spark.adobe.com/page/klExaW73I3Cal/images/4bcfe651-5723-429b-b40f-2906dfef03de.png?asset_id=58c52b54-d092-477c-80b0-1fff888db16d&amp;img_etag=%22425bc423a8af54dbad0ef9f787160dbf%22&amp;size=2560)](https://spark.adobe.com/page/klExaW73I3Cal/images/4bcfe651-5723-429b-b40f-2906dfef03de.png?asset_id=58c52b54-d092-477c-80b0-1fff888db16d&amp;img_etag=%22425bc423a8af54dbad0ef9f787160dbf%22&amp;size=1024)
+***是時候實施羅傑·羅賓遜（Roger Robinson）向美國證券交易委員會（SEC）提出的其他建議了***
 
-（文章內容僅代表作者個人觀點）
+**華盛頓哥倫比亞特區** — [星期二晚間](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-press-conference-071420/)在玫瑰園舉行的新聞發布會上，川普總統明確表達了針對中國共產黨數十年來對美國發動的“超限戰”的全面控訴。除了列舉了多年來中共在損害美國，美國人民及其切身利益上所採取的五花八門的手段外，川普先生還將他應對當前客觀存在的自由威脅所採取的措施與前副總統喬·拜登的所作所為進行了鮮明的對比：拜登在其執政期間，一直是扮演著支持和推動中國“崛起”的角色。
+
+*針對中國問題的當前危機委員會*
+
+針對中共國問題的當前危機委員會（CPDC， [https://presentdangerchina.org/](https://presentdangerchina.org/) ）自2019年3月成立以來一直認為，必須確保針對中國問題做出的抉擇是美國人民可以承受得起的。它積極把握機會鼓勵和促進下一位總司令順應民意，消除中國共產黨對我們，對其他地方的以及生活在中國的所有嚮往自由的人民的威脅。
+
+在周二舉行的白宮新聞發布會上，川普總統最重要的聲明之一就是回應媒體的一個問題。他明確表達了對美國向“中國軍事公司”的投資行為的強烈反對，並且很快將採取更多切實的行動來防止這種情況的發生
+
+這項舉措是遵循針對中共國問題的當前危機委員會（CPDC）的反復建議而製定（ [鏈接1](https://presentdangerchina.org/2020/06/pentagon-names-20-communist-chinese-military-companies-doing-business-in-america-c-p-d-c-urges-that-stop-now/) ， [鏈接2](https://presentdangerchina.org/2020/06/c-c-p-uses-our-telecom-networks-and-capital-markets-to-spy-on-american-government-companies-and-citizens/)和[鏈接3](https://presentdangerchina.org/2020/06/release-sen-tom-cotton-joins-call-for-president-trump-to-prevent-20-p-l-a-companies-from-doing-business-raising-funds-in-u-s/) ）。最近最有影響力的資本市場問題投資專家之一，前裡根國際經濟事務高級總監羅傑·羅賓遜（Roger W. Robinson），上週四在美國證券交易委員會也公開講話談到這項舉措。可以在此處（ [鏈接](https://presentdangerchina.org/wp-content/uploads/2020/07/HIGHLIGHTS-OF-ROGER-ROBINSONS-REMARKS-71620.pdf) ）找到羅賓遜（Robinson）先生演講的要點和評論：
+
+“當您有機會與美國散戶投資者談這些，每個州的人都會被激怒。他們會因為知道這些錢去支持了彈道導彈潛艇，並建造（中共國的）最新的航空母艦以及中國人民解放軍的先進武器系統而發狂。他們會感到震驚，因為他們助長了對管制國人權和社會信用體系的侵犯。 我的意思是，這些[美国人]是具有基本價值觀的人。 他們可能不是基於價值觀的投資者，但這並不意味著他們沒有價值觀。 他們是有價值觀的。 他們不希望自己的錢被以這種方式濫用。 他們希望美國證券交易委員會（SEC ）介入並將國家安全和人權[侵犯]視為必須披露的重大風險。”
+
+在回答這個問題時，“您的行政機構已經採取切實措施，以確保中共國公司不會利用我們的美國股票市場……。 上週，您的行政機構致函鐵路退休委員會，要求他們重新考慮對中共國國防……公司……的投資。您是否正在採取切實措施，以確保美國的投資不再繼續為中共國的國防公司提供資金？” ***川普先生說：“是的，您會看到更多行動的到來。這是我們簽署的一項非常重要的法案[即《香港自治法案》。然而您會在接下來很短的時間內看到更多舉措。是的，我們當然不希望他們投資中共國軍事公司。”***
+
+羅賓遜（Robinson）先生在美國證券交易委員會主席傑伊·克萊頓，他的同事和公眾公司會計監督委員會（PCAOB）的同僚面前的講話中，強烈批評了中共國“不遵守聯邦證券法…… ”這一事實：
+[!\[\](https://spark.adobe.com/page/klExaW73I3Cal/images/70c7bd9c-cb68-405b-ab7c-5ec1106dcd8a.jpg?asset_id=2e25c63f-12cd-4f12-b8a5-07ff7be66f8d&amp;img_etag=%225c80617edcdbf2cf696bc3b01aea315f%22&amp;size=1024)](https://spark.adobe.com/page/klExaW73I3Cal/images/70c7bd9c-cb68-405b-ab7c-5ec1106dcd8a.jpg?asset_id=2e25c63f-12cd-4f12-b8a5-07ff7be66f8d&amp;img_etag=%225c80617edcdbf2cf696bc3b01aea315f%22&amp;size=1024)
+*他們（中共國的公司）不受公眾公司會計監督委員會（PCAOB）的審計約束。它們不符合《薩班斯・奧克斯利法案》（Sarbanes-Oxley）或《多德-弗蘭克法案》(Dodd-Frank)。他們的財務狀況被保存在黑匣子中，由於被視為國家機密而未予披露。所有這些金色請柬都給美國人民帶來了欺詐和保護投資者的問題–更不用說，隨著我們對更確切的問題進行更深入的研究，越來越多的關於國家安全問題和侵犯人權的行為浮出水面，到底是哪些公司在我們的市場中，他們在做什麼，它們的子公司又是做什麼的……。*
+
+*“在監管方面，我不得不指責美國證券交易委員會（SEC）以及美國公眾公司會計監督委員會PCAOB…。很明顯，今天中共國得到了比他們的美國同行們更多的優惠待遇。這事兒出了嚴重問題。坦率地講，2013年5月簽署的諒解備忘錄（MOU）實在是一件可恥的事，而且它還在持續的令我每天覺得這太不可思議了。*
+
+令人非常高興的是，也是在這裡，在羅賓遜（Robinson）先生向美國證券交易委員會（SEC） / 美國公眾公司會計監督委員會(PCAOB)演講後的幾天內，川普政府宣布其打算與他的律師行事一致。 [正如路透社](https://www.oann.com/exclusive-trump-administration-to-soon-end-audit-deal-underpinning-chinese-listings-in-u-s-official/) 7月14日的報導：
+
+國務院高級官員說：“川普政府計劃很快廢除美國和中共國於2013年簽署的有關兩國審計機關之間的協議，此舉可能導致中共國在美上市的公司將會遭到更加廣泛的打擊，因為它們迴避了美國上市公司的披露規則。
+
+“那個協議為美國審計監督機構建立了程序，用以在針對中共國審計人員的執法案件中尋求相關文件，它最初是受到歡迎的，因為這是美國在獲取受嚴密保護的中共國金融方面信息的一項突破，並賦予了中共國監管機構合法性的一個標誌。
+
+“但是，作為上市公司會計監督委員會（PCAOB）的監管機構長期以來一直抱怨中共國未能准予其請求，這意味著沒法對在美國交易所交易的中共國公司進行審計。
+
+經濟增長，能源和環境部副部長基思·克拉奇（Keith Krach）表示：“缺乏透明度促使政府官員為不久後的退出交易奠定了基礎，這表明上市公司會計監督委員會（PCAOB）將退出這項交易，以確保來自中共國公司的信息是安全的
+
+“行動即將來臨，”克拉希（Krach）週一在對問題的電子郵件回復中說。 “這是一個國家安全問題，因為我們無法繼續接受使美國股東承擔風險，使美國公司處於不利地位甚至允許我們在金融市場上擁有卓越地位的黃金標準受到侵蝕。”
+
+**針對中共國問題的當前危機委員會（CPDC）**稱讚川普總統及其下屬，他們已經完全意識到了中國共產黨大規模利用我們的資本市場，以完全無視規矩，佔便宜和不透明的方式對我們造成了巨大的威脅。那些被羅賓遜（Robinson）先生和當委會（CPDC）成員所支持和擁護的，為了實現目標而努力採取行動的人，向他們致敬。
+
+[新聞鏈接](https://presentdangerchina.org/2020/07/president-trump-to-u-s-investors-we-dont-want-you-investing-in-chinese-military-companies-he-pledges-tangible-action-to-stop-it/)
+
+編輯【喜馬拉雅戰鷹團】
 
 0
