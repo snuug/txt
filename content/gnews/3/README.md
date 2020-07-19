@@ -1,59 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美司法部長指責美主要科技娛樂公司與中共勾兌
-`2020-07-19 07:34 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269517/)
+## 被郭先生蓋特推出的這兩個視頻是怎麼製作出來的
+`2020-07-19 10:43 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/269756/)
 
-新聞來源：appleinsider
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/19102832/DC%E8%A7%86%E9%A2%913.jpg)
+郭先生在7月10号和18号，郭先生在自己的盖特上分别发布了两个华盛顿DC农场制作的有关病毒和川习个人关系走向决裂的视频。
 
-作者： [Mike Peterson](https://appleinsider.com/editor/Mike+Peterson)
+这两个看似是平常的视频的背后，其实并不简单。第一个视频的出现正好跟英雄科学家的出场相互配合，第二个视频正好是7月份最重要的话题之一。这些都不是巧合。
 
-翻譯： 沐子璐璐
+#### **1，视频的发起**
 
-簡評：沐子璐璐/海闊天空
+这两个视频的发起，都是一位在郭先生直播中屡次提到的“大是大非不糊涂”先生（简称不糊涂先生）的提议。还记得7月份的时候，郭先生一直在说“最近有重要事情要发生，搂住！搂住！”于是在农场群里大家开始讨论到底是什么重要的事情要发生。不糊涂先生认为应该是英雄科学家可能会出场。于是大家就着手制作关于病毒真相的视频。
 
-PR: 海闊天空
+进入7月，川习个人关系破裂成为热点：
 
-PAGE：玄天生
+6月25日：郭文贵“第2条红线，大家现在还没看到影呢，我相信很快会发生。就是美国川普总统和习近平先生的个人关系，这两个人关系那么好，两个总统，这得有个说法”
 
-**簡評：**
+7月1日：  路德“文贵先生提到的三条红线：区分中gong和中国人；第二就是川习关系。”
 
-這則新聞報導了美國司法部長巴爾對蘋果公司以及其他科技巨頭公司的行為的指責。這些指責主要概括有兩點，第一以蘋果公司為例，這些科技巨頭公司為了進入中國市場，極力討好中共，與中共關係極為密切；第二，這些公司實施’雙重標準’，對中共國的強權要求“俯首帖耳”, 而對美國執法機構的要求，以保護用戶隱私的原則不予幫助。
+2日：郭文贵“另外一个，川普总统和习总书记的个人关系，我估计会打开，会拉倒了吧”
 
-蘋果公司作為美國最偉大的公司之一，可能早已經忘記，是美國的民主制度，是美國的自由企業製度，是美國完善的法律體系，是美國經濟、技術和軍事實力所提供的安全為蘋果公司提供了得天獨厚的基礎環境和保護。如今，這些美國的科技巨頭為了其在中共國市場的利潤，不僅在自己的利益遭受侵犯時默不作聲，乖乖屈服從中共的強權統治，甚至“助紂為虐”，充當中共在美國的說客，左右美國的政策制定，最終損害美國的國家利益。
+3日：路德“川习关系迟早要破裂”
 
-不無遺憾地說，這些科技公司不僅僅鼠目寸光，甚至可以說是飲鴆止渴。中共拉攏這些跨國巨頭，給其市場利益，最終卻是要復制他們、摧毀他們、掠奪他們。中共利用這些跨國巨頭，盜竊美國利益，最終是要取代美國、接管世界。美國不在，美國所代表的西方價值不在，美國所倡導的自由、民主、法治不在，人類文明就將不在，人類就會永墮黑暗之中。
+4日：郭文贵“川普总统必须明确说“这是CCP病毒”，你和中国领导人的关系必须是敌对关系，不是哥儿们关系。”
 
-值此美國聯合西方世界對中共進行堅決剿滅之際，以蘋果為首的科技公司一定要看清形勢、正確決策，與美國政府一道，與世界上正義的人民一道，與中共脫鉤，並滅掉中共！
+14日：路德“CCP不等于中国人，川习关系破裂，中美彻底脱钩，三条红线全部突破。”
 
-滅共之後，與美國公司合作的是嶄新的新中國聯邦，是與美國有同樣的尊重市場、尊重競爭、尊重企業家的新中國聯邦。在新中國聯邦，所有的企業不需要出賣原則，不需要違背道義，不需要官商勾結，不需要依靠賄賂，完全憑藉自己的競爭優勢、憑藉自己的獨特產品與服務就可以脫穎而出。在新中國聯邦，絕不會愚民、貧民、 苦民，民眾完全可以享有富足而有尊嚴的生活，這些大科技公司完全可以獲得更廣闊的充滿活力的中國市場。在新中國聯邦，絕不會弱民、辱民，民眾的智力充分開發，創造力蓬勃而出，這些大科技公司完全可以獲得更有活力、更有聰明才智的中國員工。這麼美妙的未來，難道不值得蘋果們去追尋，去創造嗎？
+由此，不糊涂先生认为南海强拆的话题虽热，但是还不是时候，川习个人关系破裂是个热点。于是经过讨论后，视频开始制作。
 
+#### **2，视频制作要考虑的因素以及合作**
 
+两次视频的操刀都是“华府野兽”。野兽人如其名，第一次制作视频花了8天，第二次只花了不到两天。其学习能力和进步速度可见一斑。第二次视频制作野兽迅速出了一个方案，内容包括：
 
-##  **美國司法部長巴爾在本週四指責蘋果公司以及其他主要科技娛樂公司“主動跪拜”以求與中共合作** 
+1）我们想传递给观众的主要信息？
 
+2）我们的目标观众是谁？
 
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)
-[蘋果和其加密機制](https://appleinsider.com/inside/apple-and-encryption)是巴爾過去幾年主要[批評對象](https://appleinsider.com/articles/20/01/13/attorney-general-barr-demands-apple-unlock-iphones-in-pensacola-shooting) ，尤其是在蘋果持續拒絕在其產品裡建立後門之後。最近，這個有爭議的話題於[2019年12月在彭薩科拉海軍航空站槍擊事件](https://appleinsider.com/articles/20/01/15/apple-braces-for-legal-fight-with-doj-over-pensacola-shooters-iphones)後被再次提及。
+3）我们视频的形式和效果？
 
-在密西根州的杰拉爾德·福特總統博物館（Gerald Ford Presidential Museum）對中共國政策的演講中，司法部長批評好萊塢和矽谷與北京政府和中共關係太親密。
+4）我们想用的手法和想达到的效果？
 
-他說“多年來，很多公司如穀歌、微軟，雅虎和蘋果都表現地極為樂意地與中共合作”。
+5）我们的制作的优势和劣势？
 
-巴爾特別指出蘋果公司在最近的香港民主抗議活動中[去掉quartz (一個國際英語新聞機構)應用程序](https://appleinsider.com/articles/19/10/09/news-app-quartz-removed-from-chinese-app-store-amidst-hong-kong-protests) ，並將[VPN從中共國的應用程序商店](https://appleinsider.com/articles/18/08/20/apple-culls-thousands-of-apps-in-china-amid-attacks-from-state-media)下架，還將其部分的[雲數據轉移到中共國當地服務器](https://appleinsider.com/articles/18/07/18/chinese-icloud-data-moved-to-servers-operated-by-state-owned-telco) 。
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)
-司法部長還加倍指責了蘋果公司拒絕美國司法部門的請求，即請蘋果公司幫助調查在彭薩科拉槍擊案中那位持槍者的兩部手機。儘管蘋果公司給聯邦監察局（FBI） [提供](https://appleinsider.com/articles/20/02/05/fbi-pensacola-investigation-still-hasnt-accessed-shooters-iphone)了手機存儲在雲裡的相關數據，但巴爾說FBI經過數月的努力，“在沒有蘋果公司的任何幫助下”，最終“僥倖” [破解了其中一台手機內容](https://appleinsider.com/articles/20/05/18/fbi-breaks-iphone-security-to-uncover-pensacola-shooter-al-qaeda-link) 。
+时间（2天），最多4人；新的视角回顾中美关系发展。
 
-巴爾表示蘋果以及其他科技公司實施’雙重標準’來討好中國市場。他補充說北京通過很多計策對這些公司’施加影響’，如威脅報復和禁止這些公司進入中共國市場。
+安排人员分工：
 
-”你認為蘋果手機在中共國可以不受中共當局滲透嗎？” 巴爾說，“如果不被中共當局滲透他們就無法（在中共國）銷售任何手機”。儘管這暗示了中共官員可以控制蘋果手機，但是巴爾沒有提供能證明這一指責的證據。
+请 @小燕 做视频里的所有中文字幕
 
-蘋果堅稱他們絕不會給加密科技或設備留任何後門。儘管如此，美國當局已證明他們[通過第三方工具](https://appleinsider.com/articles/20/03/11/law-enforcement-can-crack-iphones-just-fine-without-a-backdoor)可以越過蘋果公司的安全機制，甚至對[最新款](https://appleinsider.com/articles/20/01/16/fbi-reportedly-accessed-locked-iphone-11-pro-max-with-graykey-third-party-tool)的蘋果手機11也可以這麼操作。
+请 @tonyj 做视频从1：40-2：40的英文字幕；
 
-除了對蘋果的頻繁指責，巴爾還普遍打擊[加密系統](https://appleinsider.com/articles/19/07/23/us-attorney-general-barr-doubles-down-on-encryption-backdoors-call) ，尤其對端到端聊天平台的加密系統如WhatApp和iMessage。
+请 @大是大非不糊涂 @阿丙 检查内容”
 
-[來源鏈接](https://appleinsider.com/articles/20/07/16/ag-barr-says-apple-others-too-willing-to-collaborate-with-china#P1c-)
+小燕用神一样的速度制作出了中文字幕，大家一起合作翻译校对，Prof.Bacteriophage也积极献策。 tonyj很快做好了视频素材搜集。野兽掌勺，阿丙和不糊涂从头到尾把控质量，一盘大餐迅速完成。
 
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/)
+#### **3，喜马拉雅华盛顿DC农场**
+
+喜马拉雅华盛顿DC农场，简称华盛顿DC农场，华盛顿DC农场是喜马拉雅官方认可的。负责人是阿丙女士。她虽然在爆料革命中“辈分”很高，但为人低调，埋头做事，很少声张。华盛顿DC农场并不过分追求人员规模，而是严格把关吸收真正的战友及人才。小而精的团队使得毎个战友都有发挥自己才能的空间。现在DC农场正在物色一位有平面设计（尤其是视频动画设计）才能的战友加入。如申请加入这个团队，可以通过以下方式联系：
+
+1，Discord 私信: 喜马拉雅华盛顿DC联系人#9515
+
+2，E-mail:  [\[email protected\]](/cdn-cgi/l/email-protection#bdd5d4d0dcd1dcc4dc93cadcced5d4d3dac9d2d3d9defddad0dcd4d193ded2d0)
+
+3，G-Talent技术社区，@阿丙，加入链接 [https://discord.gg/rUA99Qd](https://discord.gg/rUA99Qd)
+
+作者：匿名
+
+资料支持：
+
+1，G-Talent技术社区-爆料革命资料馆频道
+
+2，[https://s.vog.media/](https://s.vog.media/) 郭文贵文字搜索
 
 0

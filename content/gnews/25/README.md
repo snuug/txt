@@ -1,24 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度計劃替代中共國成為原料藥出口國
-`2020-07-18 20:34 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/268864/)
+## 川普總統宣佈受壓迫國家周，呼籲全球對抗極權，劍指中共!
+`2020-07-19 02:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/269325/)
 
-喜馬拉雅聯盟加拿大農場熊媽媽
-[!\[India expands use of controversial drug for coronavirus despite ...\](https://media.nature.com/lw800/magazine-assets/d41586-020-01619-8/d41586-020-01619-8_18029234.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.nature.com%2Farticles%2Fd41586-020-01619-8&amp;psig=AOvVaw3QVKQstb0gn0DPn8-IXJTm&amp;ust=1595204372798000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJDe_caF2OoCFQAAAAAdAAAAABAD)圖片來源：Nature 
+川普總統在2020年7月17日宣佈，2020年7月19日至7月25日為受壓迫國家周。他呼籲所有美國人堅守對支持全世界爭取自由、公正和法治的人們的承諾，同時激勵世界各國政府堅持這個理念。他特別指出當下最顯著的極權政府的例子就是中國，中國是新冠病毒的起源地，中(共)國政府的打壓直接導致了這次病毒的全球性大流行。此外，中(共)國政府還趁火打劫，扼殺了香港的自由，進而像壓迫中國人民那樣壓迫香港人民。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24005311/white_house-mike.jpg)
+**Proclamation on Captive Nations Week, 2020**
 
-目前，CCP病毒以其驚人的速度吞噬著全世界，病毒快速變異已成為人們不得不面對且急需解決的問題，全球經濟陷入了半停滯的狀態，所以開發能夠抗擊CCP病毒的藥物以及投入世界市場是各國積極努力的方向，以期可以在外交及經濟上獲得重大利益。印度號稱“世界藥房”，而中共國是全球最大的原料藥出口國，中共國出口至印度的原料藥佔原料藥出口總額的近五分之一。由於CCP病毒疫情原因，中共國原料藥生產停滯導致的供應短缺恰恰給了印度機會，印度正努力替代中共國成為世界製藥市場的主導者。
+2020年受壓迫國家周公告
 
-在CCP病毒爆發前，印度就是世界上最大的疫苗生產國。當印度著名製藥公司Cipla在撒哈拉以南的非洲地區出售HIV藥物價格是其他製造商所售藥物價格的二十分之一時，印度的全球基本藥物出口就實現了飛躍。在此基礎上，印度政府開始推進“製藥願景2020”，旨在讓印度成為端到端藥品生產的世界領先者。在CCP病毒全球肆虐的情況下，印度的製藥優勢體現的淋漓盡致，美國等國尋求印度出口羥氯喹，使許多國家認識到印度作為世界領先藥品生產國的力量和重要性。印度一直向世界提供著種類繁多、數量充足且價格低廉的藥品，印度製藥企業也是亞洲仿製藥生產的翹楚。
+Issued on: July 17, 2020
 
-在CCP病毒疫情下，印度欠缺新藥開發能力，製藥企業面臨中共國、日本和以色列企業的激烈競爭，並受到全球大型製藥集團敵視，這些集團經常指責印度公司違反專利法。更重要的是，疫情暴露了印度製藥業對中共國原料藥API的依賴，活性藥物成分（API）是用於製造藥物或製劑的原料。中共國是世界生產和銷售原料藥的主要國家之一。由於CCP病毒疫情影響，中共國原料藥生產遭到衝擊，而湖北是中共國原料藥的主要生產基地之一，湖北又是CCP病毒爆發的源頭及主要疫區，浙江和江甦的周邊地區是中共國另外兩個主要的原料藥生產中心。受此影響，中共國原料藥價格水漲船高且銷量不斷下滑。
+2020年7月17日發佈
 
-儘管中共國原料藥出口的減少暴露了世界對它的依賴，但印度的依賴尤其被暴露出來，因為其使用了中共國向世界原料藥五分之一的供應量。印度抗生素生產商嚴重依賴中共國進口原料，大約佔90％。印度API庫存水平的下降以及中共國原料藥生產減少使印度藥品價格在世界市場上失去了競爭力。
+Tragically, hundreds of millions of people around the world continue to suffer under repressive regimes.  During Captive Nations Week, we condemn the cold grip of tyranny that holds nations under unjust rule, and we reaffirm our commitment to all who are fighting to overcome oppression.  We renew our deep devotion to the principles of liberty, justice, and the rule of law, and we know the United States will continue to shine as an unparalleled example for all nations.
 
-除對製藥業造成影響外，CCP病毒疫情亦改變外交動態，醫療外交開始引起各國關注。印度是醫療外交的積極踐行者。迄今為止，印度迅速批准向外國出口羥氯喹，派遣軍醫援助不丹、尼泊爾等國。因此，印度很大程度上希望依靠它的原料藥庫存繼續向世界供應仿製藥，儘管它可能無法在不久的將來滿足不斷增長的全球需求。如果印度由於原料藥短缺而無法滿足全球仿製藥需求，它作為仿製藥領先供應商的影響力也將下降。這很可能會讓依賴印度仿製藥的國家不再與印度合作，轉而尋求其它供應鏈，或建立本土仿製藥產業。
+讓人心碎的是世界各地仍有數以億計的人在強權政府的壓迫下受苦。 在“受壓迫國家周”期間，我們譴責專制政權將國民置於其不公正的冷血鐵掌之中，我們重申對所有為戰勝壓迫而戰的人們的承諾。 我們再次表達對自由、公正和法治的熱愛，我們確信美國仍將作為各國的不二楷模而閃耀於世界。
 
-因此，印度正利用全球原料藥供應短缺的現實，積極出台各種扶持刺激政策增加原料藥產量使之變成自己的優勢，以期最終在世界原料藥市場上成為中共國的替代者。該計劃包括確定藥品中使用的重要成分，激勵當地生產者，以及幫助被忽視的國有生產商重新奪回該行業的失地，在藥用原料和藥品生產兩方面同時努力。
+President Dwight D. Eisenhower first proclaimed Captive Nations Week in 1959 to declare our Nation’s steadfast support for people throughout the world who are denied fundamental rights by their governments.  The belief that a just government’s powers are derived from the consent of the governed is sacrosanct in our country, but it is not shared universally.  In many countries, citizens who peacefully speak their views, practice their religion, or strive to hold their governments accountable for abuses experience reckless disregard for their rights.  Recently, authoritarian regimes have used the coronavirus pandemic to justify increased restrictions on individual human rights.  These regimes have suppressed the free flow of timely and accurate information about the pandemic by censoring or imprisoning people who dare to share unapproved information or opinions.  The most notable example today is China, where the virus originated and government suppression led directly to this global pandemic.  In addition, the Chinese government has seized upon this opportunity to snuff out freedom in Hong Kong, which had been the only bastion of liberty in that captive nation.
 
-自從中印邊境衝突以來，六月底，印度以“從事的活動有損印度主權和完整、印度國防、國家安全和公共秩序”為由，禁止59款中共國手機應用程序在印度使用，包括微信、抖音等。隨後，印度總理莫迪主動註銷了在中國的微博賬號。印度同時對從中共國的進口產品進行抵制。綜合來看，目前中印關係將促使印度加速成為自給自足的原料藥出口國。
+艾森豪（Dwight D. Eisenhower）總統于1959年首次宣佈了“受壓迫國家周”，以宣佈我們國家對全世界受壓迫人民的堅定不移的支援，他們被其政府剝奪了基本人權。政府的正當權力源於其統治下人民的認可，這一信念在我們國家是神聖不可侵犯的，但是卻沒有得到全球的普遍接受。在很多國家裡，他們的公民以和平的方式發表意見，信奉自己的宗教，或挺身為那些虐待事件向政府問責，但他們卻受到政府粗暴的打壓，他們的權利遭到政府的無視。最近，某些專制政權利對人權的限制變本加厲，他們卻用新冠病毒大流行來為此可恥的行徑詭辯。這些政權審查或監禁吹哨者，僅因為他們敢於分享一些不被政府認可的資訊或意見，以此方式壓制言論自由，使外界無法獲得關於新冠大流行的即時準確的資訊。當下最顯著的例子就是中國，中國是該病毒的起源地，政府的打壓直接導致了這次病毒的全球性大流行。此外，中國政府還趁火打劫，扼殺了香港的自由，而香港曾是那個受壓迫國家唯一的自由堡壘。
 
-0
+The United States encourages all nations to respect individual liberty, uphold the rule of law, and be accountable to their people through consent-based governments.  Authoritarian regimes that do not respect the inherent dignity of every individual hold the dreams and potential of their people captive, enabling poverty, repression, and anguish to flourish as they deny their people their God-given rights.  We will never waver in our firm belief that liberty, justice, and the rule of law unleash the fullness of life that God intended for everyone.  This week and always, we stand with all people who yearn to live freely, securely, and prosperously under rights-respecting, transparent, and accountable governments rooted in the consent of the governed.
+
+美國呼籲所有國家致力於尊重個人自由，維護法治，通過民選政府向他們的人民負責。 獨裁政權踐踏每個人與生俱來的最基本的尊嚴，壓制在其治下人民的夢想和潛力，致使貧窮、壓迫和苦難橫行，因為他們無視天賦人權。 我們永遠不會動搖我們堅定的信念，即借由自由、公正和法治來締造人間天堂，使民得居其安。在本周及將來，我們與所有渴望自由平安和幸福生活的人民站在一起，他們是那些尊重人權，公開透明，負責任的民選政府的締造者，亦受到其保護。
+
+The Congress, by Joint Resolution approved July 17, 1959 (73 Stat. 212), has authorized and requested the President to issue a proclamation designating the third week of July of each year as “Captive Nations Week.”
+
+國會按照1959年7月17日批准的聯合決議(73 Stat. 212)，授權並要求總統發佈一項公告，指定每年7月的第三周為“受壓迫國家周”。
+
+NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, by virtue of the authority vested in me by the Constitution and the laws of the United States, do hereby proclaim July 19 through July 25, 2020, as Captive Nations Week.  I call upon all Americans to reaffirm our commitment to supporting those around the world striving for liberty, justice, and the rule of law.
+
+現在，據此，我本人，根據美國憲法和美國法律賦予我的權力，美利堅合眾國總統唐納德·川普宣佈2020年7月19日至7月25日為受俘國家周。 我呼籲所有美國人堅守我們對支持全世界爭取自由、公正和法治的人們的承諾。
+
+IN WITNESS WHEREOF, I have hereunto set my hand this seventeenth day of July, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fifth.
+
+天可明鑒，我在此舉手明誓。時為7月的第17天，西元2020年，即美利堅合眾國建國245年。
+
+DONALD J. TRUMP
+
+唐納德·川普
+
+*[閱讀白宮英文全文](https://www.whitehouse.gov/presidential-actions/proclamation-captive-nations-week-2020/)*
+
+*翻譯：【石頭】校對：**【**蕭蕭**】*  *編輯：【**GM31**】*
+
+*戰友之家**玫瑰園小隊出品*
+
+1

@@ -1,51 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統宣佈受壓迫國家周，呼籲全球對抗極權，劍指中共!
-`2020-07-19 02:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/269325/)
+## 歐盟因國安法將限制對香港的出口
+`2020-07-19 09:40 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269695/)
 
-川普總統在2020年7月17日宣佈，2020年7月19日至7月25日為受壓迫國家周。他呼籲所有美國人堅守對支持全世界爭取自由、公正和法治的人們的承諾，同時激勵世界各國政府堅持這個理念。他特別指出當下最顯著的極權政府的例子就是中國，中國是新冠病毒的起源地，中(共)國政府的打壓直接導致了這次病毒的全球性大流行。此外，中(共)國政府還趁火打劫，扼殺了香港的自由，進而像壓迫中國人民那樣壓迫香港人民。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24005311/white_house-mike.jpg)
-**Proclamation on Captive Nations Week, 2020**
+*新聞來源：《香港自由報》*
 
-2020年受壓迫國家周公告
+*作者：AFP*
 
-Issued on: July 17, 2020
+*發佈時間：2020年7月14日*
 
-2020年7月17日發佈
+*翻譯/簡評：文明明*
 
-Tragically, hundreds of millions of people around the world continue to suffer under repressive regimes.  During Captive Nations Week, we condemn the cold grip of tyranny that holds nations under unjust rule, and we reaffirm our commitment to all who are fighting to overcome oppression.  We renew our deep devotion to the principles of liberty, justice, and the rule of law, and we know the United States will continue to shine as an unparalleled example for all nations.
+*校對：linda琳達*
 
-讓人心碎的是世界各地仍有數以億計的人在強權政府的壓迫下受苦。 在“受壓迫國家周”期間，我們譴責專制政權將國民置於其不公正的冷血鐵掌之中，我們重申對所有為戰勝壓迫而戰的人們的承諾。 我們再次表達對自由、公正和法治的熱愛，我們確信美國仍將作為各國的不二楷模而閃耀於世界。
+*審核：InAHurry*
 
-President Dwight D. Eisenhower first proclaimed Captive Nations Week in 1959 to declare our Nation’s steadfast support for people throughout the world who are denied fundamental rights by their governments.  The belief that a just government’s powers are derived from the consent of the governed is sacrosanct in our country, but it is not shared universally.  In many countries, citizens who peacefully speak their views, practice their religion, or strive to hold their governments accountable for abuses experience reckless disregard for their rights.  Recently, authoritarian regimes have used the coronavirus pandemic to justify increased restrictions on individual human rights.  These regimes have suppressed the free flow of timely and accurate information about the pandemic by censoring or imprisoning people who dare to share unapproved information or opinions.  The most notable example today is China, where the virus originated and government suppression led directly to this global pandemic.  In addition, the Chinese government has seized upon this opportunity to snuff out freedom in Hong Kong, which had been the only bastion of liberty in that captive nation.
+*Page：拱卒*
 
-艾森豪（Dwight D. Eisenhower）總統于1959年首次宣佈了“受壓迫國家周”，以宣佈我們國家對全世界受壓迫人民的堅定不移的支援，他們被其政府剝奪了基本人權。政府的正當權力源於其統治下人民的認可，這一信念在我們國家是神聖不可侵犯的，但是卻沒有得到全球的普遍接受。在很多國家裡，他們的公民以和平的方式發表意見，信奉自己的宗教，或挺身為那些虐待事件向政府問責，但他們卻受到政府粗暴的打壓，他們的權利遭到政府的無視。最近，某些專制政權利對人權的限制變本加厲，他們卻用新冠病毒大流行來為此可恥的行徑詭辯。這些政權審查或監禁吹哨者，僅因為他們敢於分享一些不被政府認可的資訊或意見，以此方式壓制言論自由，使外界無法獲得關於新冠大流行的即時準確的資訊。當下最顯著的例子就是中國，中國是該病毒的起源地，政府的打壓直接導致了這次病毒的全球性大流行。此外，中國政府還趁火打劫，扼殺了香港的自由，而香港曾是那個受壓迫國家唯一的自由堡壘。
+簡評：
 
-The United States encourages all nations to respect individual liberty, uphold the rule of law, and be accountable to their people through consent-based governments.  Authoritarian regimes that do not respect the inherent dignity of every individual hold the dreams and potential of their people captive, enabling poverty, repression, and anguish to flourish as they deny their people their God-given rights.  We will never waver in our firm belief that liberty, justice, and the rule of law unleash the fullness of life that God intended for everyone.  This week and always, we stand with all people who yearn to live freely, securely, and prosperously under rights-respecting, transparent, and accountable governments rooted in the consent of the governed.
+當年中共用謊言欺騙了英國政府和全世界人民，向香港承諾了“一國兩制”、“港人治港”、高度自治50年不變的香港回歸政策。現在時間還未過半，就單方面撕毀了中英聯合聲明，用殘暴的手段壓製香港人民的和平訴求。不僅如此，中共國在香港頒布和實施的國安法還將它的司法權限延伸到非中國人、非香港人，企圖壓制和威脅全世界支持香港抗爭、維護香港自由法制的聲音。當然，中國的這種倒行逆施是不可能得逞的。事實上，通過這部惡法，使更多的人看清了中共沒有信譽、不守規矩、以警治國的流氓行徑。
 
-美國呼籲所有國家致力於尊重個人自由，維護法治，通過民選政府向他們的人民負責。 獨裁政權踐踏每個人與生俱來的最基本的尊嚴，壓制在其治下人民的夢想和潛力，致使貧窮、壓迫和苦難橫行，因為他們無視天賦人權。 我們永遠不會動搖我們堅定的信念，即借由自由、公正和法治來締造人間天堂，使民得居其安。在本周及將來，我們與所有渴望自由平安和幸福生活的人民站在一起，他們是那些尊重人權，公開透明，負責任的民選政府的締造者，亦受到其保護。
+在香港人民不懼暴力強權、頑強抗爭長達13個月的英勇壯舉感召下，美國和英國分別採取了支持香港的實際行動，現在歐盟也開始覺醒，加入到支持香港，對抗CCP的行列。希望下週彭培奧國務卿的歐洲之行之後，歐盟可以強硬起來，對CCP實施經濟制裁和打擊，與勇敢和正義的香港人民站在一起。
 
-The Congress, by Joint Resolution approved July 17, 1959 (73 Stat. 212), has authorized and requested the President to issue a proclamation designating the third week of July of each year as “Captive Nations Week.”
 
-國會按照1959年7月17日批准的聯合決議(73 Stat. 212)，授權並要求總統發佈一項公告，指定每年7月的第三周為“受壓迫國家周”。
 
-NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, by virtue of the authority vested in me by the Constitution and the laws of the United States, do hereby proclaim July 19 through July 25, 2020, as Captive Nations Week.  I call upon all Americans to reaffirm our commitment to supporting those around the world striving for liberty, justice, and the rule of law.
+##  **歐盟因國安法，考慮限制對香港的出口** 
 
-現在，據此，我本人，根據美國憲法和美國法律賦予我的權力，美利堅合眾國總統唐納德·川普宣佈2020年7月19日至7月25日為受俘國家周。 我呼籲所有美國人堅守我們對支持全世界爭取自由、公正和法治的人們的承諾。
 
-IN WITNESS WHEREOF, I have hereunto set my hand this seventeenth day of July, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fifth.
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/4641b840-d823-4d20-9aac-0af500082451.jpg?asset_id=d5817574-61c3-43d1-a273-b1e7c8497bd2&amp;img_etag=%220db5241d28adbf4d7e3e114aec71eba8%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/4641b840-d823-4d20-9aac-0af500082451.jpg?asset_id=d5817574-61c3-43d1-a273-b1e7c8497bd2&amp;img_etag=%220db5241d28adbf4d7e3e114aec71eba8%22&amp;size=1024) 歐洲議會。圖片。 Wikicommons。 
+週一，為回應北京頒布的國安法，歐盟國家同意考慮限制可能用於政治壓制的設備出口到香港。
 
-天可明鑒，我在此舉手明誓。時為7月的第17天，西元2020年，即美利堅合眾國建國245年。
+國安法實施後，歐盟27個成員國還將重新審核與香港的引渡協議以及簽證規定，因為該法嚴重地限制了金融中心的相對自由。
 
-DONALD J. TRUMP
+歐盟外交大臣約瑟夫·博雷爾（Josep Borrell）說，該法律的最終版本“比預期的更加嚴厲”。歐盟外交部長在布魯塞爾舉行會議時討論，同意歐洲對此作出統一回應。
 
-唐納德·川普
+“對於國安法的問題，我們有兩點意見。首先，對香港人民來說，歐盟支持他們的自治和基本自由，並且會繼續和香港人民站在一起。”
 
-*[閱讀白宮英文全文](https://www.whitehouse.gov/presidential-actions/proclamation-captive-nations-week-2020/)*
+“其次，我們想傳達給中共國的信息是，他們最近的行動改變了規則，使我們不得不調整我們的現行做法，並且很顯然會對我們的關係產生影響。”
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/c69c7697-56aa-46c8-9f85-f0ac7447161e.jpg?asset_id=57c6290b-744b-4f8e-b442-a5c4537a7e4b&amp;img_etag=%22224271a5b41d5eec1b0bdc5c3e392205%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/c69c7697-56aa-46c8-9f85-f0ac7447161e.jpg?asset_id=57c6290b-744b-4f8e-b442-a5c4537a7e4b&amp;img_etag=%22224271a5b41d5eec1b0bdc5c3e392205%22&amp;size=1024) 何塞普-博雷爾。資料圖片。歐洲議會通過Flickr/C.2.0。 
+歐盟國家將考慮限制出口那些可用於政治壓制的“軍民兩用”商品，並考慮讓香港人更加容易地獲得歐盟的簽證。
 
-*翻譯：【石頭】校對：**【**蕭蕭**】*  *編輯：【**GM31**】*
+（香港的）前殖民統治者英國已經宣布計劃給予約300萬香港人移民資格，北京對此非常惱火。
 
-*戰友之家**玫瑰園小隊出品*
+雖然更多的，正在考慮中的行動將由各國政府而不是歐盟來決定，但博雷爾（Borrell）堅持認為行動將在整個歐盟範圍內協調進行。
 
-1
+北京方面表示，在經過數月的抗議活動後，香港需要製定國安法來恢復穩定，香港的領導人還發誓要“嚴厲”地執行。批評家們警告說，此法會將許多和平的不同意見者定義成罪犯。
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/9cac7ef7-f80a-49e3-8649-7f0040041e54.jpg?asset_id=c1e1be55-8775-4fa7-b06b-5debba2f302d&amp;img_etag=%220b0a6d68b966cb3d62204c59c172c28a%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/9cac7ef7-f80a-49e3-8649-7f0040041e54.jpg?asset_id=c1e1be55-8775-4fa7-b06b-5debba2f302d&amp;img_etag=%220b0a6d68b966cb3d62204c59c172c28a%22&amp;size=1024) 圖片文件：Pixabay。 
+德國和法國建議歐盟採取聯合行動，柏林的外交部長馬斯（Heiko Maas）說，國安法意味著(香港）的現狀不能夠再繼續。
+
+馬斯說：“我們還必須言出必行。”
+
+“如果在香港實施國安法，這將對武器出口和軍民兩用商品的問題產生非常重大的影響。我們還必須問一問自己在這種情況下，、下一步該如何處理引渡協議和司法互助協議。”
+
+但是，就目前而言，歐盟尚未考慮在香港問題上對中共國實施制裁。而且歐盟在對香港這個重要貿易夥伴，採取怎樣的嚴厲措施上有重大的分歧。
+
+[原文鏈接](https://hongkongfp.com/2020/07/14/eu-to-consider-limiting-exports-to-hong-kong-over-security-law/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/9OK0b0MDijiLA/)
+ 
+0
