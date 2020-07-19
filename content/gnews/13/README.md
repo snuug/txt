@@ -1,44 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 針對閆麗夢的指控，裴偉士為何不出面進行澄清，或者反駁？
-`2020-07-18 11:19 GM10` [轉載自GNews](https://gnews.org/zh-hant/268630/)
+## 中共黨員應該如何解除、撇清與中國共產黨的關係
+`2020-07-18 19:42 Diago` [轉載自GNews](https://gnews.org/zh-hant/268811/)
 
-**文/Dogman**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18193840/%E5%B0%81%E9%9D%A2-28.jpg)
+作者：Diago
 
-中國病毒科學家閆麗夢在落地美國之後不久，港大的P3實驗室主任裴偉士就火速辭職回到斯裏蘭卡，而閆博士在隨後的福克斯新聞采訪中指控裴偉士面對疫情真相“沒有任何行動”。
+據[中國共產黨章程(全文)\_共產黨員網](https://www.baidu.com/link?url=6Zu5bz1do8fnQa0d-25c82102gZEJokWj0U0aIfk_Np1dwE0xtHK0_4kxqbnDTpnBithHwKIWrYt-dVjgeTjYa)：
 
-閆麗夢是香港大學公共衛學院的病毒科學家， 4月底出逃美國並於7月10日開始亮相福克斯新聞（鏈接1 ）。她的實驗室，香港流感研究中心（Centre of Influenza Research），是“研究冠狀病毒的頂級實驗室”，而她這次來到美國，是要告訴美國和全世界“CCP病毒的真相”, 她在采訪中說。
+【第九條　黨員有退黨的自由。黨員要求退黨，應當經支部大會討論後宣佈除名，並報上級黨組織備案。
 
-在接到上級Leo Pong的命令之後，閆博士最早與12月31日就開始了針對中國大陸的秘密病毒研究。而閆博士將CCP病毒會人傳人的事實報告給Leo Pong 時，Leo Pong卻告訴她“不要說話”和“不要觸碰紅線”，並且沒有采取任何行動。與此同時，聯合主任裴偉士也知曉這件事，同樣是什麽也沒有做。
+黨員缺乏革命意志，不履行黨員義務，不符合黨員條件，党的支部應當對他進行教育，要求他限期改正；經教育仍無轉變的，應當勸他退黨。勸黨員退黨，應當經支部大會討論決定，並報上級黨組織批准。如被勸告退黨的黨員堅持不退，應當提交支部大會討論，決定把他除名，並報上級黨組織批准。
 
-在閆博士接受福克斯采訪之後，香港大學在其官網上刊登了簡短的聲明（鏈接2），聲明中說閆博士不曾在港大開展過人傳人的實驗。“Dr. Yan never conducted any research on human-to-human transmission of the novel coronavirus at HKU during December 2019 and Janurary 2020”, 港大的聲明中這樣說道。然而，閆博士在福克斯的采訪中明確說是“針對內地的病毒傳播真相進行了調查”，並非“在香港大學開展了人傳人的實驗”。而閆博士對裴偉士和Leo Pong的指控，這份聲明中沒有任何說明。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18105604/Picture-2-4.png)香港大學的聲明
-令人驚訝的是，根據路德節目爆料（鏈接3 ），就閆麗夢博士到達美國後不久，裴偉士竟然於5月10日火速退休，之後就回到他的母國斯裏蘭卡。而在裴偉士退休前不久，他從香港特首林正月娥那裏接到了“幾千萬美金的大合同”，用來做香港新冠病毒的分離研究。
+黨員如果沒有正當理由，連續六個月不參加黨的組織生活，或不交納黨費，或不做黨所分配的工作，就被認為是自行脫黨。支部大會應當決定把這樣的黨員除名，並報上級黨組織批准。】
 
-路德同期節目還爆料，裴偉士在港大的P3實驗室中還有一間秘密實驗室，而他在港大之外也租了地方，用於存貯病毒。“…還有一個秘密小屋，絕對違反P3實驗室，一般人進不去…做人傳人實驗，其實就是生物武器”，路德說，“Malik還在外面…租了個地方，一層樓，裏面有大冰櫃，放滿了病毒…”。而7月16日路德在節目中爆料，裴偉士（Malik Peiris）在一月份秘密去了武漢兩次（鏈接4 ）。
+根據中共黨章的內容，如果中共黨員要退出中共有三種情況：
 
-閆博士還在香港時，就將掌握的CCP病毒信息傳遞給了路德，而路德節目作為世界上第一家報道CCP病毒的媒體，於在1月19日就將CCP病毒爆發和可能人傳人的信息通過其節目傳遞給了公眾（鏈接5 ）。
+1、主動要求退黨；
 
-此外，在裴偉士辭職回到斯裏蘭卡之後，5月13日，中共主席習近平就致電斯裏蘭卡總統（鏈接6 ）。而路德在7月16日的節目中還爆料，習近平打電話給斯裏蘭卡總統實際上是在送錢。“習給斯裏蘭卡總統打電話，並給了2億美金”，路德說，“都和Malik有關”。
+2、被黨組織勸退；
 
-作為閆博士指控的最為關鍵的證人之人，裴偉士在獲得巨額合同並在閆麗夢博士出逃美國之後不久火速退休；在其回到斯裏蘭卡之後，中國政府就為斯裏蘭卡提供了2億美金的支持；面對所有指控，裴偉士不進行任何澄清。當我們將這一切串聯在一起時，裴偉士的行為顯得非常違背常理，人們不禁要問：裴偉士是否因為不可對外公布的巨大秘密而逃亡？而在中共與斯裏蘭卡的對話之後，裴偉士是否將被噤聲，甚至”被消失”？
+3、自行脫黨——無正當理由連續六個月不參加黨的組織生活或不交納黨費或不做黨所分配的工作，支部大會氷決定把達到自行脫党的黨員除名，並報上級黨組織批准；
 
-閆博士所掌握的證據，將會為世人揭曉病毒真相；閆博士在最近接受福克斯新聞采訪中說（鏈接7 ），“我們的時間不多了”。
+下面依據中共黨章對準備脫離中共的黨員提出以下建議：
 
-（GTV：狗狗警察）
+1、直接致函所屬的黨組織，要求退黨。會不會給個人帶來麻煩？對於公務員、央企、國企等單位的普通黨員來說，這一條可能意味著失去工作，那麼對於那些上訪的老兵們、下崗的普通老百姓們、私企的員工們，如果致函退黨這樣的勇氣還沒有，那麼你就只能一輩子帶著中共黨員的身份，在中共死了以後繼續忍受這種身份帶來的恥辱；
 
-鏈接：
+2、黨組織勸退，如果能夠得到這種待遇的黨員應該是中了頭彩，現在還有沒有這種勸退的可能？如果有，那就盡力向黨組織證明你不是一名合格的黨員，讓黨組織勸退你吧！但是這樣不如直接致函退黨來得快捷；
 
-1. [https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-2. [https://www.hku.hk/press/press-releases/detail/21274.html](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-3. [https://www.youtube.com/watch?v=A3UT2iS-mRc&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-4. [https://www.youtube.com/watch?v=C8PhH\_JiOzg&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-5. [https://www.youtube.com/watch?v=kna4QmbCavY&feature=youtu.be](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-6. [http://www.xinhuanet.com/politics/leaders/2020-05/13/c\_1125981620.htm](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
-7. [https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower https://www.hku.hk/press/press-releases/detail/21274.html https://www.youtube.com/watch?v=A3UT2iS-mRc&amp;feature=youtu.be https://www.youtube.com/watch?v=C8PhH_JiOzg&amp;feature=youtu.be https://www.youtube.com/watch?v=kna4QmbCavY&amp;feature=youtu.be http://www.xinhuanet.com/politics/leaders/2020-05/13/c_1125981620.htm https://www.foxnews.com/media/li-meng-yan-virologist-china-coronavirus-coverup)
+3、連續六個月不參加中共的組織生活，或不交納黨費，或不做黨所分配的工作，這種情況下會被認為是自行脫黨，但是非常討厭的是，如果支部大會不把這樣的黨員除名，或者雖然支部大會決定把這樣的黨員除名，但報上級黨組織批准的時候，上級黨組織依然不批准，那麼自行脫党者依然在黨組織的花名冊上，現在看來這一條還是不如直接致函退黨來得快捷。
 
+如果你是公務員、你是央企及國企員工，如果你致函退黨會給你個人帶來失業的風險，那怎麼辦？
 
-圖片：[https://www.hku.hk/press/c\_news\_detail\_18053.html](https://www.hku.hk/press/c_news_detail_18053.html)
+據郭文貴先生“2020年4月2日傍晚GTV第二次直播 共產黨員該如何考慮自救”中提到：
+
+【那九千萬黨員，聰明的人，提前舉白旗，或者在爆料革命這塊登個記，或者到法治基金捐點錢，證明。我給所有的人，法治基金的錢你也不是捐給我的，**如果九千萬黨員有一點有腦子的，一定讓家人給法治基金法治社會捐錢，就這一條證明，我支援中國擁有法治和信仰自由。**這絕對是一個救生券，大家不信你走著看。】
+
+提前舉白旗，或者在爆料革命這裡登個記，或者到法治基金捐點錢，這些都可以讓你與中共完成切割，如果你連這樣的勇氣都沒有，那麼我們將非常悲傷地看著你在中共死後依然被這個世界另眼相看。
+
+（文章內容僅代表作者個人觀點）
 
 0

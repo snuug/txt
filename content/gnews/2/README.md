@@ -1,56 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國$52兆房地產泡沫將被擠破這場旁氏騙局的最後接盤俠會是誰？
-`2020-07-18 22:52 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/269135/)
+## 川普總統宣佈受壓迫國家周，呼籲全球對抗極權，劍指中共!
+`2020-07-19 02:04 GM31` [轉載自GNews](https://gnews.org/zh-hant/269325/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18224305/%E4%B8%AD%E5%9B%BD52%E5%85%86%E6%88%BF%E5%9C%B0%E4%BA%A7%E6%B3%A1%E6%B2%AB%E5%B0%86%E8%A2%AB%E6%8C%A4%E7%A0%B4-%E8%BF%99%E5%9C%BA%E6%97%81%E6%B0%8F%E9%AA%97%E5%B1%80%E7%9A%84%E6%9C%80%E5%90%8E%E6%8E%A5%E7%9B%98%E4%BE%A0%E4%BC%9A%E6%98%AF%E8%B0%81.jpg)
-據高盛報導，至2019年，中國房地產總價值已達$52兆美元。這相當於兩倍的美國民用住宅市場，大於美國債券市場總和。新冠病毒大流行導致的全球經濟下行，失業率高企。這不僅未能令中國房價的下跌，反而助長了房價的上升。而推動房價的買家邏輯是：經濟下滑，貨幣將貶值，唯有房產可以保值，且中國房市已大到政府不會也不敢讓房價下跌，故必定出台措施保證其價值。那麼，隨著中共倒台，虛假經濟崩盤，這場有華爾街參與推高的房市泡沫，最後的接盤俠會是誰？
+川普總統在2020年7月17日宣佈，2020年7月19日至7月25日為受壓迫國家周。他呼籲所有美國人堅守對支持全世界爭取自由、公正和法治的人們的承諾，同時激勵世界各國政府堅持這個理念。他特別指出當下最顯著的極權政府的例子就是中國，中國是新冠病毒的起源地，中(共)國政府的打壓直接導致了這次病毒的全球性大流行。此外，中(共)國政府還趁火打劫，扼殺了香港的自由，進而像壓迫中國人民那樣壓迫香港人民。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/04/24005311/white_house-mike.jpg)
+**Proclamation on Captive Nations Week, 2020**
 
-在二月封城時的短暫停頓後，房屋銷售在一些一線城市迅速回升，房價也不斷攀新高。今年，在熱門地區房價上升10%。
+2020年受壓迫國家周公告
 
-3月，深圳房產商在8分鐘內網上售出288套房產。幾天后，在蘇州，400多套新開發房產被迅速搶購一空。 4月，上海的二手房交易量創歷史新高。在上個月的一個星期六，9000多人各交付一百萬人民幣（約$141，032）押金以獲得購房權。
+Issued on: July 17, 2020
 
-這波房產泡沫之大遠超美國2008金融危機時。在當時的頂點，美國約有$9000億美元/年投入於民用住在市場，而在過去12個月裡，已有$1.4兆資金投入中國房產市場。
+2020年7月17日發佈
 
-6月的城市房屋價格與去年同期相比上升4.9%。上半年的房產投資總額上升1.9%。
+Tragically, hundreds of millions of people around the world continue to suffer under repressive regimes.  During Captive Nations Week, we condemn the cold grip of tyranny that holds nations under unjust rule, and we reaffirm our commitment to all who are fighting to overcome oppression.  We renew our deep devotion to the principles of liberty, justice, and the rule of law, and we know the United States will continue to shine as an unparalleled example for all nations.
 
-在2017年，21%的城市房屋空置。即6500萬房屋空置。對擁有2棟房產的家庭，空置率為39.4%， 對擁有3棟房產的家庭，空置率為48.2%。這遠高於國際標準。
+讓人心碎的是世界各地仍有數以億計的人在強權政府的壓迫下受苦。 在“受壓迫國家周”期間，我們譴責專制政權將國民置於其不公正的冷血鐵掌之中，我們重申對所有為戰勝壓迫而戰的人們的承諾。 我們再次表達對自由、公正和法治的熱愛，我們確信美國仍將作為各國的不二楷模而閃耀於世界。
 
-租金收入，在北京，上海，深圳，成都，都低於2%的房價。這甚至低於政府債券的回報率。
+President Dwight D. Eisenhower first proclaimed Captive Nations Week in 1959 to declare our Nation’s steadfast support for people throughout the world who are denied fundamental rights by their governments.  The belief that a just government’s powers are derived from the consent of the governed is sacrosanct in our country, but it is not shared universally.  In many countries, citizens who peacefully speak their views, practice their religion, or strive to hold their governments accountable for abuses experience reckless disregard for their rights.  Recently, authoritarian regimes have used the coronavirus pandemic to justify increased restrictions on individual human rights.  These regimes have suppressed the free flow of timely and accurate information about the pandemic by censoring or imprisoning people who dare to share unapproved information or opinions.  The most notable example today is China, where the virus originated and government suppression led directly to this global pandemic.  In addition, the Chinese government has seized upon this opportunity to snuff out freedom in Hong Kong, which had been the only bastion of liberty in that captive nation.
 
-2019年，中國城市家庭房屋自有率達96%。而美國是65%。中國家庭資產78%的在房產中，而美國祇有35%。美國人更多地投資於股票，退休基金等。
+艾森豪（Dwight D. Eisenhower）總統于1959年首次宣佈了“受壓迫國家周”，以宣佈我們國家對全世界受壓迫人民的堅定不移的支援，他們被其政府剝奪了基本人權。政府的正當權力源於其統治下人民的認可，這一信念在我們國家是神聖不可侵犯的，但是卻沒有得到全球的普遍接受。在很多國家裡，他們的公民以和平的方式發表意見，信奉自己的宗教，或挺身為那些虐待事件向政府問責，但他們卻受到政府粗暴的打壓，他們的權利遭到政府的無視。最近，某些專制政權利對人權的限制變本加厲，他們卻用新冠病毒大流行來為此可恥的行徑詭辯。這些政權審查或監禁吹哨者，僅因為他們敢於分享一些不被政府認可的資訊或意見，以此方式壓制言論自由，使外界無法獲得關於新冠大流行的即時準確的資訊。當下最顯著的例子就是中國，中國是該病毒的起源地，政府的打壓直接導致了這次病毒的全球性大流行。此外，中國政府還趁火打劫，扼殺了香港的自由，而香港曾是那個受壓迫國家唯一的自由堡壘。
 
-中國某些城市的房價比齊世界上最貴的城市房產價格。 2018年，中國房價的是平均收入的9.8倍，而舊金山只是8.4倍。
+The United States encourages all nations to respect individual liberty, uphold the rule of law, and be accountable to their people through consent-based governments.  Authoritarian regimes that do not respect the inherent dignity of every individual hold the dreams and potential of their people captive, enabling poverty, repression, and anguish to flourish as they deny their people their God-given rights.  We will never waver in our firm belief that liberty, justice, and the rule of law unleash the fullness of life that God intended for everyone.  This week and always, we stand with all people who yearn to live freely, securely, and prosperously under rights-respecting, transparent, and accountable governments rooted in the consent of the governed.
 
-在天津高級社區，房屋售價達¥9000/平米（$836/平方尺）。這相當於倫敦最貴社區的房價。但倫敦的平均收入是天津的7倍。
+美國呼籲所有國家致力於尊重個人自由，維護法治，通過民選政府向他們的人民負責。 獨裁政權踐踏每個人與生俱來的最基本的尊嚴，壓制在其治下人民的夢想和潛力，致使貧窮、壓迫和苦難橫行，因為他們無視天賦人權。 我們永遠不會動搖我們堅定的信念，即借由自由、公正和法治來締造人間天堂，使民得居其安。在本周及將來，我們與所有渴望自由平安和幸福生活的人民站在一起，他們是那些尊重人權，公開透明，負責任的民選政府的締造者，亦受到其保護。
 
-伴隨十年的高速增長的房市是高負債。第一季度，中國家庭負債率創了歷史新高至57.7%。過去十年，全球家庭債務增長總額為$11.7兆。中國占比57%，美國祇佔19%。
+The Congress, by Joint Resolution approved July 17, 1959 (73 Stat. 212), has authorized and requested the President to issue a proclamation designating the third week of July of each year as “Captive Nations Week.”
 
-除了買家的保值心理，房地產開發商和各級政府也處於現金需求不斷推出各種刺激計劃來推動房市。
+國會按照1959年7月17日批准的聯合決議(73 Stat. 212)，授權並要求總統發佈一項公告，指定每年7月的第三周為“受壓迫國家周”。
 
-當新冠病毒衝擊來臨時，在年初的頭兩個月，房市跌幅達36%。
+NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, by virtue of the authority vested in me by the Constitution and the laws of the United States, do hereby proclaim July 19 through July 25, 2020, as Captive Nations Week.  I call upon all Americans to reaffirm our commitment to supporting those around the world striving for liberty, justice, and the rule of law.
 
-大開發商和地方政府迅速推出不同的優惠計劃，刺激房產市場復甦。共有26省都推出了程度不等的優惠計劃。如： 贈送華泰股票，低首付，給予購房津貼等；或以抽籤的方式出售小戶型和低價戶型。
+現在，據此，我本人，根據美國憲法和美國法律賦予我的權力，美利堅合眾國總統唐納德·川普宣佈2020年7月19日至7月25日為受俘國家周。 我呼籲所有美國人堅守我們對支持全世界爭取自由、公正和法治的人們的承諾。
 
-上海的長江實業集團則贈送購房者華為手機和¥2～4萬（$2800-5600）的優惠卷用於抵消物業管理費。
+IN WITNESS WHEREOF, I have hereunto set my hand this seventeenth day of July, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fifth.
 
-5月中旬，万科集團在網上開通了有明星主持的直播售房節目，4個小時內銷售房屋價值¥1.48億（$2080萬）。
+天可明鑒，我在此舉手明誓。時為7月的第17天，西元2020年，即美利堅合眾國建國245年。
 
-恆大地產於2月，推出25%的折扣；在3月，推出22%的折扣。碧桂園則通過社交媒體推出17，000套新房，折扣高達50%。
+DONALD J. TRUMP
 
-在2019年，地方政府賣地和對地產開發商的各種稅收佔其總收入的52.9%，這又創了歷史新高。
+唐納德·川普
 
-房地產已徹底綁架了中國經濟，到了政府不敢讓房價下跌。這更讓人們認為這是最可保值的投資。因為如果房價急劇下跌，將讓大多數人的資產迅速清零，這會引起社會騷亂。
+*[閱讀白宮英文全文](https://www.whitehouse.gov/presidential-actions/proclamation-captive-nations-week-2020/)*
 
-對於政策制定者，這更是兩難問題。如果出台經濟刺激政策，釋放的資金恐怕不會用於製造業或其他產業，而是更多的流入房市，從而進一步推高房價。無論是硬著陸或軟著陸，現在還沒有找到一個有效的方法，能夠在不影響宏觀經濟的情況下，冷卻房市。
+*翻譯：【石頭】校對：**【**蕭蕭**】*  *編輯：【**GM31**】*
 
-中國房市的泡沫源於中共超發的海量貨幣，大多流入房市，直接推高了房價。而暴利吸引了世界各國的投機者，華爾街也將巨量的退休基金和社保基金投入到了中國房市來不斷推高房市。這便形成了一個龐氏騙局。不斷進入的後繼資金令先期投資者獲利離場。那最後的持有者將隨著這最大的泡沫破裂而賠得血本無歸。
+*戰友之家**玫瑰園小隊出品*
 
-當任何商品，包括房屋價格脫離它的基本面而虛高時，注定它會有回歸原值的那一刻。這是經濟規律。無可逃避！日本房市泡沫破裂導致30年經濟停滯就是活生生的例子。美國的次貸危機更驗證了沒有大到不可倒的神話。超發貨幣必將導致貨幣崩盤，房市龐氏騙局的泡沫也會隨之破滅。全球經濟都會受到影響。那麼誰會是那個幸運逃脫者，誰又會是那個不幸的接盤俠？希望不是你！
-
-[原文鏈接](https://www.wsj.com/articles/china-property-real-estate-boom-covid-pandemic-bubble-11594908517)
-
-翻譯報導：雪山
-
-0
+1
