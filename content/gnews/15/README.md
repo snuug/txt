@@ -1,144 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唐納德·J·川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮
-`2020-07-18 08:35 GM31` [轉載自GNews](https://gnews.org/zh-hant/268478/)
+## 人权维护者呼吁加拿大对中共官員進行資產查封等製裁
+`2020-07-18 10:49 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/268575/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/18081756/%E5%9B%BE%E7%89%87-14.png)
-**President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans**
+翻譯報導：喜馬拉雅聯盟加拿大農場陳廷青
 
-### **唐納德****·****J·****川普總統歷史性的放鬆管制行動為美國人民創造更多機會和繁榮**
+2020年7月18日Vancouver Sun媒體報導，今年5月，中國人權聯盟發布了一份報告，該報告揭露了中共在2019年7月至2020年3月間對中國國內外的人民和人權活動分子進行人權壓制。
+[!\[多倫多車隊遊行紀念“六四”三十一周年| 中國民主黨| 大屠殺| 民陣| 大紀元\](https://i.epochtimes.com/assets/uploads/2020/06/DSC_0158.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F20%2F6%2F1%2Fn12151423.htm&amp;psig=AOvVaw2P9bolppukOU_zJmHW-3o2&amp;ust=1595169746472000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJjg18eE1-oCFQAAAAAdAAAAABAk)圖片來源：大紀元
+加拿大議員情報委員會在3月發布的一份報導明確指出，從中共侵犯加拿大的民主權利，對新疆人民、西藏人民和法輪功信奉者進行的一系列系統性的威脅、恐嚇和虐待中表明，中共等政權正在侵犯加拿大公民的人權捍衛權，干擾加拿大各種集會和媒體自由。
 
-**Issued on: July 16, 2020**
+報導還稱，中共對孟晚舟在加拿大的引渡事件懷恨在心，所以非法將加拿大公民邁克爾·科夫里格和邁克爾·斯帕沃爾(Michael Kovrig and Michael Spavor)作為人質拘留，並對加拿大隱秘進行越演越烈的干擾。中共還威脅加拿大的學術自由，駭客加拿大學校網、各個集會的電話系統和計算機網絡。
 
-**2020****年****7****月****16****日發佈**
+中共在支持香港民權的多倫多集會(Toronto rally)上對被封鎖的一百多民親民主人士進行侮辱、恐嚇和威脅。維吾爾族激進分子穆罕默德·托赫蒂（Mehmet Tohti）說，他們非常擔心中共安全官員直接打給加拿大維吾爾族人的威脅電話，因為中共擔心他們將超過100萬的穆斯林維吾爾族人強迫集中在新疆、其他集中營和勞教所的事情被暴露，所以中共官員直接電話威脅和騷擾，甚至將他們留在中國的家庭成員作為威脅，以要求他們保持沉默。
 
-“We’ve begun the most far-reaching regulatory reform in American history.” — President Donald J. Trump
+中共曾對加拿大西藏委員會和自由西藏學生會的成員，也是2019年倫多大學學生會主席Chemi Lhamo恐嚇到：“你最好記住，中國是你爹”。
 
-“我們已經開啟了美國歷史上最廣泛的監管機制改革。” — 唐納德·J·川普總統
+面對中共的“欺凌、種族主義、偏執、包括性暴力和死亡的暴力威脅”，加拿大呼籲驅逐中共外交官，並對參與信息戰和對加拿大公民社會活動有威脅的人進行馬格尼茨基制裁(Magnitsky sanctions)。儘管加拿大外交大臣弗朗索瓦·菲利普（Francois-Philippe Champagne）與中國人權聯盟有在交涉，中共也承諾會接受建議，但並沒有採取有意義的行動，反而騷然持續升級。為了維護人權，加拿大決定對為維吾爾族、藏族、香港和中國大陸人民的人權侵犯行為負責的中共官員實行馬格尼茨基制裁。中國專家喬納森·曼索普（Jonathan Manthorpe）說，中國官員割了中國老百姓大約1萬億美元的韭菜，將他們變成自己的私有財產試圖藏在加拿大、美國、澳大利亞和歐洲等海外。
 
-LEADING HISTORIC REGULATORY REFORM: President Donald J. Trump has led a historic effort to eliminate unnecessary and costly regulations that hurt American businesses and families.
+因此马库斯.科尔加（Marcus Koga）人权活动参与者、加拿大作家和记录篇制作人及中国倡议组织的创始人杨建立（Jang Jianli),公开呼吁加拿大应通過凍結中國盜國賊的資產，從而遏制中共的惡劣行為，並應立即考慮通過立法來懲罰造事者，最後慮驅逐駐紮在加拿大最多的已經明確的參與信息戰的中共外交官。提议者指出：為應對越演越烈的信息戰，加拿大將立即採取行動。
 
-**引領歷史性的監督機制改革**：在唐納德·J·川普總統的帶領下，削減不必要的、高昂的、有損美國企業和家庭的法規行動已取得歷史性的成果。
-
-- Under President Trump’s leadership, Federal agencies have taken more than 7 deregulatory actions for every significant regulatory action.
-
-
-- 在川普總統的帶領下，聯邦機構對每項重大監管措施已經採取了7項以上的放鬆管制措施。
-
-
-- President Trump’s deregulation efforts have already reduced regulatory costs by $50 billion and are on track to reduce regulatory costs by at least that much in fiscal year 2020 alone.
-
-
-- 川普總統的放鬆管制措施的成效已經降低了500億美元的管控成本，並有望僅在2020財年就能將監管成本至少降低至這個數值。
-
-
-- The President’s Governors’ Initiative on Regulatory Innovation is working to reduce outdated regulations, advance occupational licensing reform, and align Federal and State regulations.
-
-
-- ‘總統-州長’創新性法規倡議是致力於減少過時的法規，推進職業許可改革，並統一聯邦和州的法規。
-
-
-- The Administration continues to take action to modernize and accelerate environmental reviews in order to complete infrastructure projects in a timely and efficient manner.
-
-
-- 政府繼續採取行動，現代化和加速環境審查，為了及時有效地完善基礎設施專案。
-
-
-- The President is rolling back regulations that harm American workers, including providing relief to farmers by repealing the burdensome Obama-era Waters of the United States Rule.
-
-
-- 總統正在撤銷損害美國工人的法規，包括通過廢除繁瑣的奧巴馬時代的美國水域法規，給農民提供救濟。
-
-
-- In 2019, the President signed two executive orders to increase transparency in Federal agencies and protect Americans and their small businesses from administrative abuse.
-
-
-- 2019年，總統簽署了兩項行政令，增加聯邦機構的透明度，並保護美國人民和他們的小生意以防行政濫用。
-
-
-LIFTING UP AMERICANS: President Trump is driving down costs for consumers and helping low-income Americans, who are disproportionately burdened by overregulation.
-
-**提升美國人民**：川普總統正壓低消費者成本和幫助低收入美國人民，過度監管給他們造成了極大的負擔。
-
-- Deregulation is lowering costs for all Americans, particularly benefitting low-income individuals who are disproportionately burdened by overregulation.
-
-
-- 放鬆管控為所有美國人民降低支出，對低收入個人尤其受惠，過度監管給他們造成了極大的負擔。
-
-
-- The Administration cut red tape in the healthcare industry, providing Americans with more affordable healthcare and saving Americans nearly 10 percent on prescription drugs.
-
-
-- 政府削減在醫療行業的繁文縟節，為美國人民提供更負擔得起的醫療保健，並為美國人民節省接近10%的處方藥支出。
-
-
-- Deregulation of both prescription drugs and internet access helped the poorest fifth of households eight times more than the wealthiest fifth of Americans.
-
-
-- 對處方藥和互聯網連接的放鬆監管給予美國最貧窮的五分之一家庭的幫助，將是五分之一最富裕家庭的八倍之多。
-
-
-- The Administration replaced costly Obama-era fuel standards with the Safer Affordable Fuel Efficient (SAFE) Vehicles rule, making cars more affordable for low-income Americans.
-
-
-- 美國政府以“更經濟實惠的燃油效率（SAFE）車輛法規”取代了奧巴馬時代昂貴的燃油標準，使低收入美國人更負擔得起汽車。
-
-
-- This rule is expected to lower the price of new vehicles by $2,200, according to the Council of Economic Advisers.
-
-
-- 根據經濟顧問委員會，這項政策旨在把新車價格降低2,200美元
-
-
-- The President established a council to reduce regulatory barriers to affordable housing.
-
-
-- 總統成立了一個理事會，以減少對經濟適用房監管的阻礙。
-
-
-SUPPORTING FAMILIES AND BUSINESSES: The Administration’s historic deregulatory efforts are putting money in Americans’ pockets and helping businesses prosper.
-
-**支持家庭及企業**：政府放鬆管控所作的歷史性的努力，是把錢放在美國人民的口袋，幫助企業繁榮發展。
-
-- The President’s deregulatory actions will increase household income annually by at least $3,100 in the coming years.
-
-
-- 政府的放鬆管控行動在未來幾年能提升家庭年度收入到3100元以上
-
-
-- President Trump has signed 16 pieces of deregulatory legislation that are expected to result in a $40 billion increase in annual real incomes.
-
-
-- 川普總統已經簽署16項放鬆管控的立法，預計將使每年的實際收入增加400億美元。
-
-
-- Once fully in effect, 20 major deregulatory actions undertaken by the Administration are expected to save American consumers and businesses over $220 billion per year.
-
-
-- 一旦完全生效，由政府開展的20項主要放鬆管控行動，預計能為美國消費者和企業每年節省超過200億美元。
-
-
-- The implementation of the SAFE Vehicles rule is estimated to increase the real incomes of Americans by $53 billion per year over the 2021-2029 period.
-
-
-- 實施SAFE車輛法規後，在2021-2029年間，美國人的實際年均收入預計將增加530億美元。
-
-
-- Deregulation is helping small businesses invest and expand by saving them from dedicating time and money on compliance costs.
-
-
-- 放鬆管控措施正在幫助小型企業，以通過節省他們在合規成本所花費的時間和金錢，來投資和拓展生意。
-
-
-- The President’s deregulatory actions are also increasing the competition, productivity, and wages of American workers.
-- 總統的放鬆管控行動同時增加了競爭力、生產力和美國工人的薪資。
-
-
-原文連結: [President Donald J. Trump’s Historic Deregulatory Actions Are Creating Greater Opportunity and Prosperity for All Americans](https://www.whitehouse.gov/briefings-statements/president-donald-j-trumps-historic-deregulatory-actions-creating-greater-opportunity-prosperity-americans/)
-
-*翻譯：**【**V%**】**校對：**【**Prof. Bacteriophage**】*  *編輯：【**GM31**】*
-
-*戰友之家玫瑰園小隊出品*
+不難看出，中共對人權的侵犯不僅僅是局限於中共國內，香港，西藏等地區，還把手伸向海外，進行長期以來的無底線的滲透和乾擾，好在真相慢慢浮出水面，讓各洲各國一起抵制惡勢力，合力把世界的前進方向扭向正軌。
 
 0
