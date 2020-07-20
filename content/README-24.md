@@ -14,6 +14,10 @@
 
 ## 頁面 24/28 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/content/2018/04/20180418-6392488223382498573.md)
+
+[2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/content/2018/04/20180418-4672993002919879692.md)
+
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/2018/04/20180418-6750041180802210914.md)
 
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/content/2018/04/20180418-7392390193329846030.md)
@@ -59,10 +63,6 @@
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/content/2018/04/20180418-197797650669402457.md)
-
-[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/2018/04/20180418-2945530337059474065.md)
-
-[文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/2018/04/20180418-5435715492986281855.md)
 
 
 ## 頁面 24/28 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

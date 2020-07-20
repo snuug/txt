@@ -14,6 +14,10 @@
 
 ## 頁面 18/28 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [28](/content/README-28.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181029-1889983154079130395.md)
+
+[文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/2018/10/20181026-2575309675439495092.md)
+
 [翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
 
 [文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/2018/10/20181025-6578176193643751329.md)
@@ -59,10 +63,6 @@
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/content/2018/09/20180913-5367861768541759446.md)
 
 [文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/content/2018/09/20180912-2723188184703053742.md)
-
-[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/content/2018/09/20180908-4427977020918468528.md)
-
-[文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/content/2018/09/20180906-3174109642123274435.md)
 
 
 ## 頁面 18/28 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [28](/content/README-28.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

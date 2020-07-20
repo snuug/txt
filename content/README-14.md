@@ -14,6 +14,10 @@
 
 ## 頁面 14/28 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [28](/content/README-28.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
+
+[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
+
 [文字版：2019年5月2日：毛澤東，鄧小平，媽祖給我託夢了](/content/2019/05/20190503-4410540874074802687.md)
 
 [文字版：2019年4月30日郭台銘選舉引起台灣人民恐懼，中國銀行將是下一個海航](/content/2019/05/20190501-8065411428742956557.md)
@@ -59,10 +63,6 @@
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
 
 [文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
-
-[文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/2019/03/20190305-7678928871394571383.md)
-
-[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/2019/03/20190304-4934492035985499612.md)
 
 
 ## 頁面 14/28 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [28](/content/README-28.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
