@@ -1,59 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美司法部長指責美主要科技娛樂公司與中共勾兌
-`2020-07-19 07:34 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269517/)
+## 歐盟因國安法將限制對香港的出口
+`2020-07-19 09:40 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/269695/)
 
-新聞來源：appleinsider
+*新聞來源：《香港自由報》*
 
-作者： [Mike Peterson](https://appleinsider.com/editor/Mike+Peterson)
+*作者：AFP*
 
-翻譯： 沐子璐璐
+*發佈時間：2020年7月14日*
 
-簡評：沐子璐璐/海闊天空
+*翻譯/簡評：文明明*
 
-PR: 海闊天空
+*校對：linda琳達*
 
-PAGE：玄天生
+*審核：InAHurry*
 
-**簡評：**
+*Page：拱卒*
 
-這則新聞報導了美國司法部長巴爾對蘋果公司以及其他科技巨頭公司的行為的指責。這些指責主要概括有兩點，第一以蘋果公司為例，這些科技巨頭公司為了進入中國市場，極力討好中共，與中共關係極為密切；第二，這些公司實施’雙重標準’，對中共國的強權要求“俯首帖耳”, 而對美國執法機構的要求，以保護用戶隱私的原則不予幫助。
+簡評：
 
-蘋果公司作為美國最偉大的公司之一，可能早已經忘記，是美國的民主制度，是美國的自由企業製度，是美國完善的法律體系，是美國經濟、技術和軍事實力所提供的安全為蘋果公司提供了得天獨厚的基礎環境和保護。如今，這些美國的科技巨頭為了其在中共國市場的利潤，不僅在自己的利益遭受侵犯時默不作聲，乖乖屈服從中共的強權統治，甚至“助紂為虐”，充當中共在美國的說客，左右美國的政策制定，最終損害美國的國家利益。
+當年中共用謊言欺騙了英國政府和全世界人民，向香港承諾了“一國兩制”、“港人治港”、高度自治50年不變的香港回歸政策。現在時間還未過半，就單方面撕毀了中英聯合聲明，用殘暴的手段壓製香港人民的和平訴求。不僅如此，中共國在香港頒布和實施的國安法還將它的司法權限延伸到非中國人、非香港人，企圖壓制和威脅全世界支持香港抗爭、維護香港自由法制的聲音。當然，中國的這種倒行逆施是不可能得逞的。事實上，通過這部惡法，使更多的人看清了中共沒有信譽、不守規矩、以警治國的流氓行徑。
 
-不無遺憾地說，這些科技公司不僅僅鼠目寸光，甚至可以說是飲鴆止渴。中共拉攏這些跨國巨頭，給其市場利益，最終卻是要復制他們、摧毀他們、掠奪他們。中共利用這些跨國巨頭，盜竊美國利益，最終是要取代美國、接管世界。美國不在，美國所代表的西方價值不在，美國所倡導的自由、民主、法治不在，人類文明就將不在，人類就會永墮黑暗之中。
-
-值此美國聯合西方世界對中共進行堅決剿滅之際，以蘋果為首的科技公司一定要看清形勢、正確決策，與美國政府一道，與世界上正義的人民一道，與中共脫鉤，並滅掉中共！
-
-滅共之後，與美國公司合作的是嶄新的新中國聯邦，是與美國有同樣的尊重市場、尊重競爭、尊重企業家的新中國聯邦。在新中國聯邦，所有的企業不需要出賣原則，不需要違背道義，不需要官商勾結，不需要依靠賄賂，完全憑藉自己的競爭優勢、憑藉自己的獨特產品與服務就可以脫穎而出。在新中國聯邦，絕不會愚民、貧民、 苦民，民眾完全可以享有富足而有尊嚴的生活，這些大科技公司完全可以獲得更廣闊的充滿活力的中國市場。在新中國聯邦，絕不會弱民、辱民，民眾的智力充分開發，創造力蓬勃而出，這些大科技公司完全可以獲得更有活力、更有聰明才智的中國員工。這麼美妙的未來，難道不值得蘋果們去追尋，去創造嗎？
+在香港人民不懼暴力強權、頑強抗爭長達13個月的英勇壯舉感召下，美國和英國分別採取了支持香港的實際行動，現在歐盟也開始覺醒，加入到支持香港，對抗CCP的行列。希望下週彭培奧國務卿的歐洲之行之後，歐盟可以強硬起來，對CCP實施經濟制裁和打擊，與勇敢和正義的香港人民站在一起。
 
 
 
-##  **美國司法部長巴爾在本週四指責蘋果公司以及其他主要科技娛樂公司“主動跪拜”以求與中共合作** 
+##  **歐盟因國安法，考慮限制對香港的出口** 
 
 
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/6601fe32-b411-48f1-ab18-d4a2b48a0110.jpg?asset_id=e13c2dd2-b2e8-43fd-952a-71a01d2f26e2&amp;img_etag=%227118baf7804d6b3e41d99309e31de968%22&amp;size=1024)
-[蘋果和其加密機制](https://appleinsider.com/inside/apple-and-encryption)是巴爾過去幾年主要[批評對象](https://appleinsider.com/articles/20/01/13/attorney-general-barr-demands-apple-unlock-iphones-in-pensacola-shooting) ，尤其是在蘋果持續拒絕在其產品裡建立後門之後。最近，這個有爭議的話題於[2019年12月在彭薩科拉海軍航空站槍擊事件](https://appleinsider.com/articles/20/01/15/apple-braces-for-legal-fight-with-doj-over-pensacola-shooters-iphones)後被再次提及。
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/4641b840-d823-4d20-9aac-0af500082451.jpg?asset_id=d5817574-61c3-43d1-a273-b1e7c8497bd2&amp;img_etag=%220db5241d28adbf4d7e3e114aec71eba8%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/4641b840-d823-4d20-9aac-0af500082451.jpg?asset_id=d5817574-61c3-43d1-a273-b1e7c8497bd2&amp;img_etag=%220db5241d28adbf4d7e3e114aec71eba8%22&amp;size=1024) 歐洲議會。圖片。 Wikicommons。 
+週一，為回應北京頒布的國安法，歐盟國家同意考慮限制可能用於政治壓制的設備出口到香港。
 
-在密西根州的杰拉爾德·福特總統博物館（Gerald Ford Presidential Museum）對中共國政策的演講中，司法部長批評好萊塢和矽谷與北京政府和中共關係太親密。
+國安法實施後，歐盟27個成員國還將重新審核與香港的引渡協議以及簽證規定，因為該法嚴重地限制了金融中心的相對自由。
 
-他說“多年來，很多公司如穀歌、微軟，雅虎和蘋果都表現地極為樂意地與中共合作”。
+歐盟外交大臣約瑟夫·博雷爾（Josep Borrell）說，該法律的最終版本“比預期的更加嚴厲”。歐盟外交部長在布魯塞爾舉行會議時討論，同意歐洲對此作出統一回應。
 
-巴爾特別指出蘋果公司在最近的香港民主抗議活動中[去掉quartz (一個國際英語新聞機構)應用程序](https://appleinsider.com/articles/19/10/09/news-app-quartz-removed-from-chinese-app-store-amidst-hong-kong-protests) ，並將[VPN從中共國的應用程序商店](https://appleinsider.com/articles/18/08/20/apple-culls-thousands-of-apps-in-china-amid-attacks-from-state-media)下架，還將其部分的[雲數據轉移到中共國當地服務器](https://appleinsider.com/articles/18/07/18/chinese-icloud-data-moved-to-servers-operated-by-state-owned-telco) 。
-[!\[\](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/images/0bf94de6-0b31-47b1-994f-e72182c714d9.jpg?asset_id=9a05ba29-561e-4085-b127-41efc5060cd1&amp;img_etag=%22cc4553b0318ee0510b3cb7d3cb0c2c92%22&amp;size=1024)
-司法部長還加倍指責了蘋果公司拒絕美國司法部門的請求，即請蘋果公司幫助調查在彭薩科拉槍擊案中那位持槍者的兩部手機。儘管蘋果公司給聯邦監察局（FBI） [提供](https://appleinsider.com/articles/20/02/05/fbi-pensacola-investigation-still-hasnt-accessed-shooters-iphone)了手機存儲在雲裡的相關數據，但巴爾說FBI經過數月的努力，“在沒有蘋果公司的任何幫助下”，最終“僥倖” [破解了其中一台手機內容](https://appleinsider.com/articles/20/05/18/fbi-breaks-iphone-security-to-uncover-pensacola-shooter-al-qaeda-link) 。
+“對於國安法的問題，我們有兩點意見。首先，對香港人民來說，歐盟支持他們的自治和基本自由，並且會繼續和香港人民站在一起。”
 
-巴爾表示蘋果以及其他科技公司實施’雙重標準’來討好中國市場。他補充說北京通過很多計策對這些公司’施加影響’，如威脅報復和禁止這些公司進入中共國市場。
+“其次，我們想傳達給中共國的信息是，他們最近的行動改變了規則，使我們不得不調整我們的現行做法，並且很顯然會對我們的關係產生影響。”
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/c69c7697-56aa-46c8-9f85-f0ac7447161e.jpg?asset_id=57c6290b-744b-4f8e-b442-a5c4537a7e4b&amp;img_etag=%22224271a5b41d5eec1b0bdc5c3e392205%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/c69c7697-56aa-46c8-9f85-f0ac7447161e.jpg?asset_id=57c6290b-744b-4f8e-b442-a5c4537a7e4b&amp;img_etag=%22224271a5b41d5eec1b0bdc5c3e392205%22&amp;size=1024) 何塞普-博雷爾。資料圖片。歐洲議會通過Flickr/C.2.0。 
+歐盟國家將考慮限制出口那些可用於政治壓制的“軍民兩用”商品，並考慮讓香港人更加容易地獲得歐盟的簽證。
 
-”你認為蘋果手機在中共國可以不受中共當局滲透嗎？” 巴爾說，“如果不被中共當局滲透他們就無法（在中共國）銷售任何手機”。儘管這暗示了中共官員可以控制蘋果手機，但是巴爾沒有提供能證明這一指責的證據。
+（香港的）前殖民統治者英國已經宣布計劃給予約300萬香港人移民資格，北京對此非常惱火。
 
-蘋果堅稱他們絕不會給加密科技或設備留任何後門。儘管如此，美國當局已證明他們[通過第三方工具](https://appleinsider.com/articles/20/03/11/law-enforcement-can-crack-iphones-just-fine-without-a-backdoor)可以越過蘋果公司的安全機制，甚至對[最新款](https://appleinsider.com/articles/20/01/16/fbi-reportedly-accessed-locked-iphone-11-pro-max-with-graykey-third-party-tool)的蘋果手機11也可以這麼操作。
+雖然更多的，正在考慮中的行動將由各國政府而不是歐盟來決定，但博雷爾（Borrell）堅持認為行動將在整個歐盟範圍內協調進行。
 
-除了對蘋果的頻繁指責，巴爾還普遍打擊[加密系統](https://appleinsider.com/articles/19/07/23/us-attorney-general-barr-doubles-down-on-encryption-backdoors-call) ，尤其對端到端聊天平台的加密系統如WhatApp和iMessage。
+北京方面表示，在經過數月的抗議活動後，香港需要製定國安法來恢復穩定，香港的領導人還發誓要“嚴厲”地執行。批評家們警告說，此法會將許多和平的不同意見者定義成罪犯。
+ [!\[\](https://spark.adobe.com/page/9OK0b0MDijiLA/images/9cac7ef7-f80a-49e3-8649-7f0040041e54.jpg?asset_id=c1e1be55-8775-4fa7-b06b-5debba2f302d&amp;img_etag=%220b0a6d68b966cb3d62204c59c172c28a%22&amp;size=1024)](https://spark.adobe.com/page/9OK0b0MDijiLA/images/9cac7ef7-f80a-49e3-8649-7f0040041e54.jpg?asset_id=c1e1be55-8775-4fa7-b06b-5debba2f302d&amp;img_etag=%220b0a6d68b966cb3d62204c59c172c28a%22&amp;size=1024) 圖片文件：Pixabay。 
+德國和法國建議歐盟採取聯合行動，柏林的外交部長馬斯（Heiko Maas）說，國安法意味著(香港）的現狀不能夠再繼續。
 
-[來源鏈接](https://appleinsider.com/articles/20/07/16/ag-barr-says-apple-others-too-willing-to-collaborate-with-china#P1c-)
+馬斯說：“我們還必須言出必行。”
 
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Ep1ZuGTy3iWNb/)
+“如果在香港實施國安法，這將對武器出口和軍民兩用商品的問題產生非常重大的影響。我們還必須問一問自己在這種情況下，、下一步該如何處理引渡協議和司法互助協議。”
 
+但是，就目前而言，歐盟尚未考慮在香港問題上對中共國實施制裁。而且歐盟在對香港這個重要貿易夥伴，採取怎樣的嚴厲措施上有重大的分歧。
+
+[原文鏈接](https://hongkongfp.com/2020/07/14/eu-to-consider-limiting-exports-to-hong-kong-over-security-law/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/9OK0b0MDijiLA/)
+ 
 0
