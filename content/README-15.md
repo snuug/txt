@@ -14,6 +14,8 @@
 
 ## 頁面 15/28 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [28](/content/README-28.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
+
 [文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/2019/03/20190305-7678928871394571383.md)
 
 [文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/2019/03/20190304-4934492035985499612.md)
@@ -61,8 +63,6 @@
 [文字版：2019年1月27日 王岐山在达沃斯的讲话已经开启了世界的反习运动](/content/2019/01/20190131-1680667895953644784.md)
 
 [文字版：2019年1月25日習近平和王岐山會有一戰](/content/2019/01/20190127-3156421909348071205.md)
-
-[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/2019/01/20190127-8646715222462480282.md)
 
 
 ## 頁面 15/28 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [28](/content/README-28.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

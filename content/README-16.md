@@ -14,6 +14,8 @@
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月24日委內瑞拉的民主反獨裁的運動對中國人民的意義與影響重大](/content/2019/01/20190127-8646715222462480282.md)
+
 [文字版：2019年1月23日文貴報平安直播](/content/2019/01/20190125-5995035220130924499.md)
 
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/2019/01/20190123-2188991099465691450.md)
@@ -61,8 +63,6 @@
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/2018/12/20181218-3889821236277365249.md)
 
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/2018/12/20181218-8948086997100898897.md)
-
-[文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
 
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

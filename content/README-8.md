@@ -14,6 +14,8 @@
 
 ## 頁面 8/28 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [28](/content/README-28.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
+
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
 
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/2019/11/20191117-3916342912052380154.md)
@@ -61,8 +63,6 @@
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
 
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/2019/10/20191028-4834533128406187922.md)
-
-[文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/2019/10/20191028-9024076555776316516.md)
 
 
 ## 頁面 8/28 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [28](/content/README-28.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
