@@ -1,41 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年太空探索日總統諮文
-`2020-07-21 23:33 GM31` [轉載自GNews](https://gnews.org/zh-hant/272052/)
+## 讓洪水沖進家園 是安徽人民的愛國行動？
+`2020-07-22 02:27 WENZI` [轉載自GNews](https://gnews.org/zh-hant/272183/)
 
-川普總統于太空探索日發表總統諮文，慶祝美國在太空探索取得的偉大成就，致敬英勇的宇航員和航太產業的從業人員。SpaceX “載人龍飛船先行2號” 標誌著人類歷史上首次由商業公司將人類送入太空軌道。川普政府指示NASA啟動2024“重返月球”計畫，為日後造訪火星照亮道路。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/06/03000725/NASA_20200530_launching_replaced_photo_16_9.png)
-Presidential Message on Space Exploration Day, 2020
+By 海奧華
+2020-07-22
 
-## **2020年太空探索日總統諮文**
+安徽人民飽受洪災之苦的時候，抖音近日卻流行著這樣一則洗腦視頻。党媒主持人說：聽見洶湧的洪水的聲音了嗎？這不是洩洪，這是蓄洪。蓄洪是把自己家的大門打開，讓洪水流到自己的家裡來，數十萬安徽同胞的家園，就這樣變成了一片澤國，安徽人是窮，但我們不傻，我們和你們一樣勤奮努力，我們也不需要溢美之詞，因為我想換做是你們，你們也和我們一樣做出同樣的選擇，因為我們有共同的家叫中國。
 
-Issued on: July 20, 2020
+這位主持人說的話，簡直荒誕之極。半夜讓洪水沖進自己的家園，還在夢鄉的人們被自己泄掉的洪水沖至曠野，這樣的愛國是不是過於罕見了。所以，一聽就是共產黨的口舌。數十萬安徽同胞妻離子散，流離失所。假如還有隔岸觀火的人在一旁顛倒黑白，“這是他們自願為祖國獻出的兒女和家園”。相信，不管是誰，都會義無反顧地把這人打殘。
 
-發佈日期：2020年7月20日
+大難來臨，人命關天的時刻，政府不通知人民趕快撤離，找地方安頓下來。反而用調戲的口吻，毫不掩飾地愚弄大眾，不要說這是一個14億人的大國政府說出來的話，這種話連一個正常的普通人都說不出口。這種奇葩的話，只有在獨裁政府的國家可以聽到，因為他想說什麼就是什麼，誰敢說不，誰就反政府。
 
-Today, our Nation celebrates the essential role that American space exploration plays in the history and character of our country.  We honor our brave astronauts and space industry professionals—both past and present—and we pledge to continue to lead the world in pioneering deeper into space, the stars, and beyond.
+中國的老百姓都不喜歡共產黨，但善良的他們不知道共產黨壞到要他們死。早就有良知的水利專家告訴大壩會淹，最壞的可能會死幾億人，但中共的態度是不作為，既不救壩也不救人，也不掩藏大壩有危險的消息。中共是希望借洪水掩蓋執政失敗帶來的一系列的社會問題：老齡化，經濟差，養老金社保的虧空。讓老百姓認為一切都是自然災害造成你們的苦日子，不是政府的錯。
 
-今天，我們的國家在慶祝美國的太空探索事業，它在我國歷史和國家形象中扮演了重要角色。我們致敬那些英勇的宇航員和航太產業的從業人員—無論過去還是現在，並承諾繼續引領世界更深入地探索太空、星系和深邃的宇宙。
+中共不是不在乎你們老百姓的死活，他們不救你們，就是要借水殺人。洪水帶來的次生災難更可怕，長江流域覆蓋中國大陸五分之一陸地面積，養育中國三分之一人口。如果洪水所經農田被淹，三分之一的人口會吃不上飯。帶來大饑荒。水災會沖倒很多電線杆，造成斷電，夏天高溫沒空調會讓很多老人中署。更危險的是水災之後就是真正的大瘟疫的開始，水將是病毒最好的載體流向全世界。
 
-This year’s observation of Space Exploration Day comes as we commence a new era of human space exploration.  Following a nine-year hiatus, American astronauts once again launched into space from American soil on rockets proudly built by American workers. Furthermore, SpaceX Demonstration Mission 2 was the first crewed launch of the National Aeronautics and Space Administration’s (NASA) Commercial Crew program, marking the first time in history that a commercial company sent humans into orbit.
+有緣的朋友們，一定要遠離長江，做好長期的大饑荒準備，會種糧食的自己種地，不會種的要馬上囤糧藏糧。危難當頭，要做好三年充足的準備，只有自救，才能保命。這場大水，這場溫疫將終結中國共產黨的70年的政權，能活下來就是大贏家。
 
-今年的“太空探索日”紀念活動，見證了我們開啟的人類太空探索新時代。時隔九年，美國的宇航員再次乘坐由美國工人所製造的引以為傲的火箭，從美國本土發射進入太空。此外， SpaceX“載人龍飛船先行2號”是美國國家航空航天局（NASA）的商業載人航太項目的首次載人發射，標誌著人類歷史上首次由商業公司將人類送入太空軌道。
+注：本文僅代表作者個人觀點
 
-These monumental feats the past year are tremendous strides forward in bringing our country’s space exploration efforts to remarkable new heights.  To build on this momentum and reaffirm America’s position as the global standard bearer for innovation, and as the world’s greatest spacefaring Nation, my Administration has directed NASA to return to the Moon—this time to stay and to build a base of operators to get humans to Mars.  Through NASA’s Artemis program, the United States will send the next man and the first woman to the surface of the Moon by 2024.  Soon, the rover *Perseverance* will launch from Kennedy Space Center*,* bound for the Jezero Crater on Mars, lighting the way for our brave American astronauts to one day follow.  Along with the helicopter *Ingenuity,* we will test powered flight on another world for the first time, unlocking the mysteries of the Red Planet in order to one day plant our great American Flag to proudly fly as a beacon of liberty and American creativity throughout the galaxy.
-
-過去一年的這些巨大成就，是我們所邁出的巨大前進步伐，將我國的太空探索事業提升到令人振奮的新高度。為繼續這一形勢，並重塑美國作為全球創新標準的依託以及世界頂級航太國家的地位，本屆政府已指示NASA啟動“重返月球”戰略—此次，我們將停留並在月球建立一個運營基地，以便將人類送往火星。通過NASA的“阿爾特彌斯計畫”，美國將在2024年前將下一位男性和首位女性送上月球。不久後，“毅力號”火星探測器將從甘迺迪航太中心發射，前往火星上的耶澤洛隕石坑，為我們英勇的美國宇航員日後造訪照亮道路。連同火星直升飛機“機智號”一道，我們將首次在另一個世界進行飛行動力測試，揭示紅色星球的奧秘，以便有一天在那裡樹起我們偉大的美國國旗，作為點亮自由、展示美國創造力的燈塔，驕傲地飄揚於星際之間。
-
-On Space Exploration Day, we pause and pay tribute to the Nation’s legacy of leadership in space and to those who came before us—remembering those who have sacrificed so much for our country’s successes and vowing to honor their achievements by continuing the noble pursuit of space exploration and understanding in the 21st century.
-
-在這太空探索日，我們駐足于斯，向我們在國際太空領域處於領先地位的國家遺產，以及那些為此奮鬥的先賢們表示敬意。讓我們銘記那些為我國的豐功偉績做出重大犧牲的人們——我們誓言在21世紀繼續探索太空、不斷認知宇宙，以這崇高的追求來紀念他們的偉大成就。
-
-白宮英文原文：[https://www.whitehouse.gov/briefings-statements/presidential-message-space-exploration-day-2020/](https://www.whitehouse.gov/briefings-statements/presidential-message-space-exploration-day-2020/)
-
-相關新聞：[https://gnews.org/zh-hant/217959/](https://gnews.org/zh-hant/217959/)
-
-*翻譯：【**Zion**】校對：【**Connor54**】*
-
-*戰友之家玫瑰園小隊出品*
-
-2
+0
