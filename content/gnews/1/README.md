@@ -1,46 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯電視臺主持人勞拉采訪耶魯大學教授哈維·瑞奇（07/20/2020）
-`2020-07-22 12:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/272606/)
+## 美“驅逐令”引發中領館“後院起火”
+`2020-07-22 17:33 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/272709/)
 
-翻譯：映蘭軒 文秀
-審核：文肯尼
+作者：喜馬拉雅聯盟加拿大農場龍井
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22122829/03-Yale-feature-1.jpg)
+校對：文錦
 
-Laura: My next guest has been receiving alarming reports of doctors targeted by their state medical licensing boards for actually saving their patients’ lives.  It sounds crazy well it’s happening.  Join me now Dr. Harvey. He is the epidemiology professor at Yale Public school of Health, and one of the most renowned minds in the country on epidemiology.  Doctor Risch, what treatment is being targeted and how pervasive is this?
+![https://img.theepochtimes.com/assets/uploads/2020/07/22/800.jpeg](https://lh3.googleusercontent.com/1XSS0PBzIx0FC3N0QPzkV4lRsZUlyNlPWnrvnz7G6NWPs9_cXkKc0JpNennRQon70yKgDvaamx2CGzAUnBEDbAv5Xv6sSmuXNOfmnLFOFzzOp8kX6lOc5MtVUjvRxhoaAuoE85k)
 
-勞拉：我的下一位嘉賓是哈維博士。 他已經收到令人震驚的報告，報告中說很多醫生因為實際上在挽救病人的生命而成為各自所在的州醫療執照委員會的打擊目標。 聽起來很瘋狂但這樣的事情正在發生。哈維博士是耶魯公共衛生學院的流行病學教授，也是國內最著名的流行病學專家之一。哈維博士，什麽樣的治療方法會成為打擊目標？ 這樣的情況有多普遍？
+圖片來源：中美新聞（7月21日晚中共駐休斯頓總領館前）
 
-哈維博士: Good evening Laura. So this is of course hydroxychloroquine, the word that nobody should ever say according to half of the population. So it is a political drug now, not a medical drug, and that has caused the complete population ignorance, and I think we are basically fighting a propaganda war against the medical facts. That collars not just population people how they think about it but doctors as well. There are many doctors that have gotten hostile remarks about saying that all the evidence is bad for it but in fact that is not true at all.  And it is easy to show all the evidence is actually good for it when it is used in out-patient uses.  Nevertheless the only people who actually see that are a whole pile of doctors who actually are on the front lines treating those patients across the country. And they are the ones who are at risk of being forced not to do it.
+7月21日晚，一條爆炸新聞火速傳遍全球：中共駐美國休斯敦總領事館發生火警，而趕赴現場的消防人員和警察卻只能“隔樓觀火”。從周圍居民拍攝的錄像中可見，領館工作人員正在其後院焚燒文件，焚燒原因則是該領事館被勒令72小時內撤離。
 
-瑞奇博士：晚上好，勞拉。這種治療方法當然是羥氯喹的使用。全美一半人口竟然都沒有提過羥氯喹這個詞。儼然，它現在是一種政治藥物，而不是醫療藥物，這造成了民眾對這個藥完全一無無知，現在我們基本上講是在打一場針對醫療事實的輿論戰。這場輿論戰不僅影響到了美國民眾，也給醫生帶來了很多麻煩。許多醫生表示有證據顯示羥氯喹治療無療效，但事實根本不是這樣。 當我們在門診使用羥氯喹治療新冠病人時，所有的證據都非常明顯地顯示出——這個藥是有療效的。 然而真正看到這一點的只有在全國各地治療新冠病人的一線醫生，但他們可能會出現被迫棄用羥氯喹的現象。
+當地時間7月21日晚8點左右，休斯頓中共領事館突然冒起滾滾濃煙，周圍居民聞到濃烈的焚燒紙張味，隨即報警。然而，當消防員和警察到達現場後，卻不准進入領館，只好在門外隔樓觀火。從網上流傳視頻可見，領館工作人員正忙著在其後院大量焚燒紙樣文件，據說還有硬盤等，臨時“焚燒爐”有5、6個之多。
 
-Laura: Doctor Risch, how important would it be now or significant if the administration basically through the FDA rescinded that warning about hydroxy，it was a complete bunk and made a mistake about the warning and get out of the way of the relationship between the doctor and the patient for off-label use of a medicine that’s been around for 65 years? Shouldn’t Stephen Hahn of the FDA come out and say look we will not micromanage your decisions and let this go?
+對此，休斯敦消防隊和警察不無風趣地回應：“（文件被焚燒後），這片地塊變厚了”。 VOA白宮新聞官當日晚間也發了個意味深長的推： “1941年12月7日，大日本帝國駐美國大使館也在燒文件……”
 
-勞拉：哈維醫生，如果政府通過食品藥品管理局（FDA）撤銷關於羥氯喹的警告， 說這個警告完全是無效的，是錯誤行為，而且政府將放開橫插在醫生和病患中間的這種強行管制行為，對藥物禁用的管制行為已經存在了65年之久，那麽，政府這樣做有什麽重要意義呢？FDA局長Stephen Hahn難道不應該出來說，你看我們不再對你如何使用羥氯喹進行微觀管理，不再管控醫生使用羥氯喹治療新冠？
+當晚據休斯頓警方消息人士透露，該領事館已被勒令關閉，所有人員必須在7月24日（週五）下午4點前全部撤離美國。據了解，中共駐休斯頓總領事館是中共早在1979年在美國設立的第一個領事館，也是中共在美設立的五個總領館之一，其他四個總領館分別位於紐約、洛杉磯、舊金山和芝加哥。
 
-Harvey: Yes, it would be game changing. In fact, all of the discussions you had earlier on how to manage going forward through September, October and into next year will change if there is a prevention and treatment that works, that’s available, and that’s safe. That is in fact the case. But the problem is of course that nobody wants to hear it and nobody lets it out except for you.  You are the only one who is actually in any way the mainstream media that is allowing anybody to speak about the evidence for the usage of these drugs.
+美國此舉乃中美關係史上前所未有，許多人對此表示詫異。當現場記者向警察詢問中領館被逐原因時，回答是：“最好去問美國國務院或者總統川普本人。”
 
-哈維博士：那將改變遊戲規則。事實上，如果有一種有效、可用和安全的預防和治療新冠病毒的方法，那本節目稍早時就如何在9、10月以及明年進行民眾社交管理的所有討論都將會發生改變。這是事實。當然了，問題是除了你之外，沒有人願意聽，也沒人願意講出這個事實。 你是唯一一個無論如何都允許任何人說出羥氯喹有效證據的主流媒體。
+事發6小時後，《環球時報》總編胡錫進發微博稱：“據老胡剛剛得到的消息，美國政府悍然要求中國72小時內關閉駐休斯頓總領館， ……而且只給出中方3天的撤離時間……”
 
-Laura: Now I’ve got to say Doctor Risch, I knew politics was corrupt having covering it for decades and I knew the law has a lot of corruption because I was a lawyer for a long time. But I didn’t know that you can have so much corruption in the medical field when it comes to bureaucrats and I know there is a lot of good people in government.  I’m not singling out but just making people better.  it is stunning to me.  Last word.
+美國國務院發言人奧塔格斯22日聲明，美國此舉旨在保護美國的知識產權和美國國民的私人信息，但未透露具體原因。
 
-勞拉：哈維博士，現在我得說我知道政治是腐敗的，因為我做新聞報道幾十年；我知道法律有很多腐敗，因為我當了很長時間律師。但我不知道在醫學領域，當涉及到官僚的時候，也會有這麽多腐敗，我知道政府裏有很多好人。 我不是在挑剔，只想讓人們變得更好。 這樣的腐敗讓我很震驚，我只能這樣說。
+次日上午，美國國務卿也就此發表講話：“我們將會採取更多的措施來保護美國國民和國家安全以及美國經濟和就業崗位”。
 
-Risch: I think there have been a lot and we hardly know the extent of it, both from the drug companies, from political contrivances and so on. I think it is very difficult, the circumstances now are difficult.
+網上有評論說：“美國終於以對付蘇聯的方式應戰了！“”美國下令關閉中共休斯敦總領館，表明對中共在美的肆意妄為已忍無可忍。“”休斯敦總領館是中共在美滲透和竊取美國政治、經濟、軍科情報的中心。“還有網友稱，休斯敦總領館不僅非法從事間諜活動，也涉嫌境外非法執法、網絡攻擊，從事大外宣、大統戰滲透等工作，“關閉它一點也不冤枉”。也有評論說，美國政府的這一突然舉動，“給了中共狠狠一棒，中共被打了個措手不及”。更有網友對休斯頓領事館焚燒的文件表示興趣：“讓我猜猜他們在燒什麼：首先是勾結Antifa的證據，其次是中共間諜名單及聯繫方式， 然後是用CCP病毒攻擊美國的實施方案，再則是美國CCP同夥人的財務記錄……”
 
-哈維博士：我認為有腐敗，只是不知道嚴重到什麽程度。腐敗來自制藥公司，來自政治陰謀等。我認為現在情況真的非常困難。
-
-Laura: Dr. Risch, do you think thousands of lives could be saved going forward if they released that hydroxychloroquine stockpile and even give it as a prophylactic like India has done and other countries have done for the front line if they wanted?
-
-勞拉：哈維博士，你認為如果政府和FDA開放庫存的羥氯喹，甚至像印度和其他國家一樣，只要一線醫生願意就能開出處方藥羥氯喹作為一種預防措施，這樣能挽救成千上萬條生命嗎？
-
-Harvey: I think 75,000 to 100,000 lives will be saved if that happens.
-
-哈維博士：我想這樣做的話，將挽救7.5萬到10萬條美國人的生命。
-
-原文鏈接：[https://video.foxnews.com/v/6173447838001#sp=show-clips](https://video.foxnews.com/v/6173447838001#sp=show-clips)
+對中共來說，後院起火銷毀文件和證據並不算什麼大事，據“路德社”7月22日分析，中領館工作人員很可能因此反水作污點證人，那才真叫“後院起火”。
 
 0
