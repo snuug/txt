@@ -1,30 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突發新聞: 中共駐休斯頓領事館焚燒機密文件引發火警
-`2020-07-22 01:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272105/)
+## 美參議院報告指責中共“數字霸權主義”,支持建立全球聯盟對抗中共
+`2020-07-22 05:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272276/)
 
-據美媒報導，當地時間週二晚間，中共駐休斯頓領事館在院子裡焚燒機密文件，引來當地消防隊。消息人士稱，中共駐休斯頓領事館將於週五前清空。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22051202/Picture-1-142.png)圖片選自： [https://www.ft.com](https://www.ft.com/content/3d56b5e4-ae60-11e9-8030-530adfa879c2) 
+據路透社（Reuters）報導，美國參議院週二的一份報告稱，中共正在利用其掌握的技術來開展“數字霸權主義”，不僅在其境內而且在世界範圍內進行監視，控制互聯網和審查信息。
 
-博博士推文說：VOA白宮新聞官也跟了一個意味深長的推文：1941年12月7日，大日本帝國駐美國大使館，也在燒文件！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22013222/671ed16a-58e9-40d1-99ba-35ca9ee1a5be.jpg)圖片來源：美國媒體KPRC 2 News記者推特截圖視頻來源：美國媒體KPRC 2 News收到的有關中共駐休斯頓領事館焚燒機密文件視頻
+領導該報告的參議院外交關係委員會民主黨參議員鮑勃·梅內德斯（Bob Menendez）表示，中共使用人工智能和生物識別等技術來跟踪其公民並控制信息。報告發布之際，華盛頓與北京之間的關係日益緊張，唐納德·川普總統（Donald Trump）將冠狀病毒大流行歸咎於中共，並指責中共在貿易，人權和軍事力量方面欺騙美國。報告指出，在中共病毒大流行期間，中共國已經收集了大量數據，重新使用了監視技術，這些動作迫使美國需要盡快做出應對。
 
-視頻來源：美國媒體KPRC 2 News
+華盛頓一直在敦促盟國從5G網絡中排除華為的產品，並為對華為和其他中共國公司實施制裁鋪平了道路。報告討論了中共加強信息控制的新法律，以及為支持這些行動的公司新技術開發投資。它說，中共國出口數字技術以增加其在其他地方的影響力，並在世界貿易組織和世界衛生組織等國際組織中尋求更大的影響力。梅內德斯在簡報中說：“中共國一直在向全球出口其數字霸權主義及其工具和策略，”他說，國際領導人越來越被中共國的模式所吸引，尤其是在川普退出一些國際事務後。
 
+該報告包含了應對中共在這些方面行動的建議，包括立法成立一個發展美國5G技術的公私合營財團和一個“數字權利促進基金”，以對抗中共對大規模監視的使用。它還支持開設網絡軍事服務學院，並支持美國總統領導一個國家聯盟與中共對抗。
 
+[原文鏈接](https://www.reuters.com/article/us-usa-china-surveillance-idUSKCN24M1ON)
 
-| ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22013232/19473824-2d66-48b8-b41e-66bc592aea91.jpg) | ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22013227/59178993-2d56-43ad-a567-ac9baabd35ca.jpg) |
-| --- | --- |
-
-圖片來源：博博士的推特截圖
-
-
-
-
-[新聞來源](https://www.khou.com/article/news/local/hfd-responds-reports-burning-classified-documents-chinese-consulate/285-33117055-f7c1-4626-b4b5-ae8c252401d5)
-
-報導整理：【以共滅共】
-
-
+文章翻譯：小煦
+校對整理：人間四月
 
 0
