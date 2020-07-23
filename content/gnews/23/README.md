@@ -1,57 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統宣佈繼續實施國家對跨國犯罪組織的緊急狀態
-`2020-07-23 10:44 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/273733/)
+## 中共國社會教育亂像根源分析（四）：社會冷漠是社會失序的表現
+`2020-07-23 11:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/273817/)
 
-新聞簡述：川普總統於2020年7月22日宣佈繼續實施國家對跨國犯罪組織的緊急狀態，因為大型跨國犯罪組織的活動已經威脅到國際政治和經濟體系的穩定。 這些組織正在變得日益複雜和危險，日益扎根滲透於外國政府和國際金融體系的運行，從而削弱民主體制，削弱法治，破壞經濟市場，助長和加劇國內暴力衝突，並日益促進其他危險分子的活動。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23100924/WH_20200722_Transnational_Criminal_photo169.png)
-通知全文：
+作者：喜馬拉雅聯盟加拿大農場沙鷗
 
-**Text of a Notice on the Continuation of the National Emergency with Respect to Transnational Criminal Organizations**
+校對: 熊媽媽
 
-**關於繼續實施國家對跨國犯罪組織的緊急狀態通知的文本**
+*摘要：在專制社會中，人從來不是目的，只是工具和手段，這就決定了在這個社會的方方面面，任何一個角落，都沒有真正的愛。生活在專制社會裡的人，大多數人是不會表達、不會交流情感的巨嬰。因為他們沒有接受過愛，也缺乏愛的能力，是愛的殘障人。巨嬰國的本質，是極權專制國！*
 
-Issued on: July 22, 2020
+對社會上人與人之間的愛，不能期望和要求無條件的給予。社會的愛，應該是指相互的尊重、理解、關心和幫助。這樣的愛是社會的基本道德要求，它的缺失，是一個社會失序的表現。
 
-发布日期：2020年7月22日
+2011年，廣東佛山兩歲女孩王悅被汽車撞倒碾壓，18位路人視若無睹，無人施救。 2019年，湖南長沙一位老人突發心髒病倒地，49人先後經過，沒有一人伸手救助，甚至無人敢報警。中共國社會的冷漠，在全世界，在人類歷史上，都到了無以復加的程度。
 
-On July 24, 2011, by Executive Order 13581, the President declared a national emergency with respect to transnational criminal organizations pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701-1706) to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States constituted by the activities of significant transnational criminal organizations.
+契訶夫說：“專制導致冷漠。”發生在中共國社會上的愛的缺失，是中共極權統治到達極限的結果。
 
-2011年7月24日，總統於第13581號行政命令，宣布根據《國際緊急經濟權力法》（美國法典第50卷第1701-1706節）對跨國犯罪組織實施國家緊急狀態，以處理大型跨國犯罪組織的活動對美國國家安全、外交政策和經濟構成的反常和重大的威脅。
+在奴隸社會，奴隸主通過限制自由和強制勞動來獲取奴隸的全部勞動成果。強制勞動必然導致怠工，制約生產效率提高。隨著生產力水平發展，人身自由和財產私有會激發勞動的自覺性和主動性，有利於解放生產力，提高生產效率，這時人類社會發展進入封建社會。
 
-The activities of significant transnational criminal organizations have reached such scope and gravity that they threaten the stability of international political and economic systems.  Such organizations are becoming increasingly sophisticated and dangerous to the United States; they are increasingly entrenched in the operations of foreign governments and the international financial system, thereby weakening democratic institutions, degrading the rule of law, and undermining economic markets.  These organizations facilitate and aggravate violent civil conflicts and increasingly facilitate the activities of other dangerous persons.
+從本質上說，人民從統治者那裡獲得的自由和財產，是二者建立的契約。這種契約以法律和道德的形式得到確認和保護。但契約的遵守、維持是以立約雙方力量、權利對等為條件的，如果雙方力量、權利不對等，契約往往以強勢一方毀約結束。
 
-大型跨國犯罪組織的活動範圍和嚴重性已經威脅到國際政治和經濟體系的穩定。這些組織正在變得日益複雜和危險；它們日益紮根滲透於外國政府和國際金融體系的運行，從而削弱民主體制，削弱法治，破壞經濟市場。這些組織助長和加劇國內暴力衝突，並日益促進其他危險分子的活動。
+在封建社會裡，皇帝（國王）佔有一切資源，權力沒有約束，法律由他建立，也總是由他破壞。為此，人民會通過鬥爭不斷爭取自身權利，要求限制皇（王）權，於是在西方就出現了代議制，人民可以選舉代表組成議會抗衡王權，進而直接選舉代表組成政府，治理國家。西方國家由此進入現代政治社會。
 
-On March 15, 2019, by Executive Order 13863, I took additional steps to deal with the national emergency with respect to transnational criminal organizations in view of the evolution of these organizations as well as the increasing sophistication of their activities, which threaten international political and economic systems and pose a direct threat to the safety and welfare of the United States and its citizens, and given the ability of these organizations to derive revenue through widespread illegal conduct, including acts of violence and abuse that exhibit a wanton disregard for human life as well as many other crimes enriching and empowering these organizations.
+而在中國，無論國家王朝冠以什麼名稱，本質上一直是一個集權統治的封建專制國家。統治者擁有所有社會資源和權力，人民則毫無權利可言，所謂的人身自由、私有財產帶有很大的欺騙性，它總是不斷受到統治者的傷害和侵犯。社會秩序不斷被統治者自己踐踏和破壞。
 
-2019年3月15日，據第13863號行政命令，鑑於這些組織的演變及其活動日益複雜化，我採取了更多的措施，以應對跨國犯罪組織有關的國家緊急情況。這些活動日益複雜，威脅到國際政治和經濟體系，並對美國及其公民的安全和福利構成直接威脅。並賦予這些組織有能力通過廣泛的非法行為獲取收入，包括罔顧人命的暴力和虐待以及許多其他犯罪行為，使這些組織富裕起來並增強了能力。
+中共極權統治對社會公義良序的破壞主要表現在三個方面：
 
-The activities of significant transnational criminal organizations continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For these reasons, the national emergency declared in Executive Order 13581 of July 24, 2011, under which additional steps were taken in Executive Order 13863 of March 15, 2019, and the measures adopted to deal with that emergency, must continue in effect beyond July 24, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency with respect to transnational criminal organizations declared in Executive Order 13581.
+一是模糊社會財富和社會意識的界限，消滅愛的基礎。中共建政後，通過玩弄所有製戲法，不斷倒騰社會資源財富，一會兒公有製，一會兒私有製。無論公有私有，本質都是你的就是我的，我的你沒有份。各級官員貪婪的胃口就像黑洞一樣，吞噬一切。竭力把所有一切社會資源佔為己有。私有觀念只是一己之私，產權觀念只是一個人的產權。
 
-大型跨國犯罪組織的活動繼續對美國的國家安全、外交政策和經濟構成非同尋常的威脅。出於以上原因，2011年7月24日第13581號行政命令宣布的國家緊急狀態，以及根據該行政命令，於2019年3月15日第13863號行政命令為應對該緊急情況所採取的其他措施，必須在2020年7月24日以後繼續生效。因此，根據《國家緊急狀態法》（美國法典第50卷第1622節）第202（d）條，我將繼續執行第13581號行政命令中宣布的關於跨國犯罪組織的國家緊急狀態，為期一年。
+一個社會沒有契約精神，就不會有界限觀念；沒有界限觀念，就不會有尊重意識；沒有尊重意識，就不會有愛的精神。界限感是尊重的基礎，尊重是愛的基礎。如果社會意識、公眾追求只是盡力佔有資源，竭力佔有他人財富，這個社會就失去了愛的基礎，代之以叢林法則盛行。
 
-This notice shall be published in the Federal Register and transmitted to the Congress.
+二是踐踏法律，破壞規則。在極權社會中，權力大於一切。統治者在吞噬社會資源財富的過程中，必然運用權力作惡，破壞法律、道德維護的現存規則、秩序，侵犯他人和公共利益。中共國貪腐盛行、強拆遍地、詐騙成風、討薪無門等等社會現象，無一不是權力對法律、道德的公然踐踏和破壞的結果。
 
-本通知將在《聯邦公報》上公佈，並轉送給國會。
+南京彭宇案，“據江蘇電視台城市頻道《甲方乙方》節目報導，在當時彭宇向派出所索要當時的筆錄時，派出所所長稱當時筆錄丟失，但留有當時用手機拍攝的筆錄照片。但彭宇本人發現照片信息顯示照片並非來自派出所所長本人的手機，此時所長不得不承認其實照片是徐壽蘭當警察的兒子提供的。”①因為當事人兒子是警察，派出所所長可以執法犯法做偽證，主審法官王浩可以枉法判決。只是為了訛詐一點醫藥費，便在政法系統發生了這樣一起令人瞠目的窩案。而且因為利益關聯，官官相護，案件最後也沒有得到公正判決。其造成的寒蟬效應，卻使得“中共國社會道德倒退了五十年”。
 
-DONALD J. TRUMP
+長沙老人倒地無人報警，據接受采訪的路人說，之所以不敢報警，是因為之前有老人跌倒，有人用手機報警後，警察根據手機用戶名找到報警人，扣押了其車輛後並拘留了他。因此，他們擔心自己報警也會被警察訛詐。
 
-唐納德 · 川普
+中共偽政權踐踏法律規則，對中共國社會道德產生的影響和後果，從這兩個案例中，就可見一斑。
 
-THE WHITE HOUSE,
+三是迫害良善、打壓正義。
 
-白宮
+當社會中集體或個人利益受到損害時候，人們對他人的愛就表現為維護公益、追求正義。愛是弱者聯繫、團結、互助的紐帶。而統治者為了作惡得逞，必然利用公權力對錶現為善行的愛進行打壓。調查汶川地震真相被捕的譚作人，709被捕的公益律師，被禁止施粥賑濟的NGO，舉報地溝油被害的李翔，舉報三鹿奶粉被殺的簡光州，揭露河南艾滋血禍的王淑平，武漢病毒吹哨人李文亮……無一不是公權力對良善進行的血腥迫害。
 
-July 22, 2020
+人民的團結會對統治者作惡犯罪構成威脅，所以他們一定要千方百計使人冷漠，對社會進行最大程度的分化，以便他們能像獅子狩獵一樣，獵物出於本能，只會四散奔逃。
 
-2020年7月22日
+繆可馨事件，表面看是學生表達了與教師接受的中共灌輸的所謂“正能量”價值觀不同的觀點，被視為異端，從而受到迫害、摧殘，是一個教育問題。但更深層的原因是家長沒有讓她參加袁燈美的私人輔導班，損害了她的利益鏈，因而受到她的報復和懲罰。而其他家長對事件的冷漠，並不是人性使然，而是出於權力狼狽為奸的擔心和害怕。從事後警察、學校、教育行政部門、政府宣傳部門沆瀣一氣，對袁燈美罪行的百般包庇袒護看，他們的擔心顧慮是非常符合今天中共國國情的，既“如果他們敢於對繆可馨家長表示同情和支持，他們的孩子就會成為下一個繆可馨。”
 
-閱讀白宮英文全文
+繆可馨悲劇，根本上是一個社會問題。這個問題就是：“中共最邪惡的地方，是為了維護其統治，多年來努力摧毀民眾之間的互信互助，將社會碎片化。這樣一來民眾就無法組織團結，也就無法有效的抵抗暴政的欺凌。雖然它們的政權穩固了，但隨之而來的是整個社會的道德淪喪，是中華文化的徹底崩毀。為了政權之私而滅亡天下，中共罪孽深重，天地不容。”②
 
-*翻譯【Dlrow】校對【木木ANNA】*
+小結
 
-*戰友之聲玫瑰園小隊出品*
+在專制社會中，人從來不是目的，只是工具和手段，這就決定了在這個社會的方方面面，任何一個角落，都沒有真正的愛！它像一個沙漠，人民沒有飲過愛的甘霖；它是一個黑暗叢林，人們沒有沐浴過愛的陽光。生活在專制社會裡的人，大多數人是不會表達、不會交流情感的巨嬰。因為他們沒有接受過愛，也缺乏愛的能力，是愛的殘障人。
 
-0
+巨嬰國的本質，是極權專制國！
+
+當今中共國社會教育亂像中的每一個問題，都是專制惡樹上開出的一朵孽花。分析、探討這些問題形成的原因以期找到解決之道，只是就問題本身分析探討是不夠的，必須看到所有問題後面的根源是中共極權統治在作惡。中共不滅，專制不除，國家就不會有真正的教育，社會就不會有真正的愛。
+
+①維基百科“彭宇案”字條內容
+
+②“路德訪談”博博士推文
+
+1
