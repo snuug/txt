@@ -1,37 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國防部長：美國不希望有武裝沖突，但必須做好戰而勝之的準備！
-`2020-07-22 10:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/272423/)
+## 【世界多語言文字版】7月19日班農在福克斯的重磅採訪: 美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相
+`2020-07-22 19:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272781/)
 
-編撰：臺灣荔枝、xmly666（七角星）、文肯尼
+**[2020年7月19日班農在福克斯的重磅採訪](https://gnews.org/zh-hans/270024/)中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行, 
+制裁共產黨高層,直到中共坦白全部中共病毒真相**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22100144/1144be6c-5c9b-4053-8c78-b0ba0e7db16d_cx0_cy6_cw0_w1023_r1_s-1.jpg)
+[‪【中文版】中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)
 
-**美軍正在嚴肅對待中共在亞太地區日益增加的軍事威脅，軍事層面已取得三大重要進展**
+[【英文版】The CCP lied and Americans died. The US must face the CCP head on by decoupling the dollar, by sanctioning the CCP banks and high-level officials. The measures must be carried out until the CCP comes clean about the truth of the CCP virus.](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)
 
-美國防部長—埃斯珀，在倫敦國際戰略研究所發表的講話中指出，美國對確保印太地區的自由與開放是一個長期的承諾，它植根於美國的價值觀以及美國與該地區盟友與夥伴的經濟紐帶。
+[【法語版】Le PCC a menti, les américains sont morts. Les Etats-Unis doivent affronter le PCC face à face par le découplage du dollar avec la devise chinoise et par les sanctions contre les banques et les dirigeants du PCC. Ces mesures doivent être appliquées et maintenues jusqu’au moment où le PCC avoue toute la vérité par 下載 à son virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)
 
-這位美國防部長表示，在過去的一年裏，中共軍隊在南中國海持續進行更加富有進攻性的侵略與擴張行動，加劇了這一地區的緊張局勢。埃斯珀說，美軍已經在三個方面取得了重大的進展。
+製作：【秘密翻譯組G-Translators】
 
-埃斯珀首先強調的是美軍的作戰準備。一方面，美軍改變了傳統的作戰體系，對軍隊進行了現代化改造，強化了威懾力量，加大了對新武器的研發力度，並在高超音速、人工智能等具備改變戰爭模式的武器方面增加了投入。
-
-美國海軍的目標是建立未來型艦隊，使海軍的靈活性、生存能力和適應能力都要有實質性的提升。空軍采取了21世紀最先進的作戰理念，更加註重速度與靈活性。陸軍則側重把改進遠程武器作為優先目標，使其速度和距離都有了很大的提升。重型轟炸機將會在高風險地區變成永久性部署。
-
-**美軍擴大與亞太地區國家的合作**
-
-第二個方面是擴大和鞏固與亞太地區國家的合作。美國跟新加坡、印度尼西亞、菲律賓、越南、泰國、澳大利亞、新西蘭、韓國、日本、臺灣、印度、孟加拉國等國家在安全、軍事方面的合作也得到了很大的加強。
-
-埃斯珀說，美軍的軍事改革將會讓盟友感到更加可靠，讓美國的對手感到更加變化莫測。
-
-**亞太地區國家之間相互合作**
-
-埃斯珀提到的第三個方面，是亞太地區國家之間的相互合作。在這方面，埃斯珀表示，日本發揮著重要作用。日本主要負責向菲律賓、馬來西亞、孟加拉國等提供了導彈等武器裝備。
-
-**編者觀點：**
-
-美國防安全部也已經充分意識到，中共對美國以及在南海對東南亞國家構成的嚴重威脅，以往睜一只眼閉一只眼，但是現如今，當美軍了解到新冠肺炎的真相後，美軍再也不能坐視不管了。這是因為CCP發動的這場生化武器——病毒戰，已經徹底威脅到了美國人的利益以及美國人的生命。在資本主義的國家，也許只有真正觸及到他們的利益及安全，他們才會真正當回事。美國部門已經看清此次新冠肺炎是由中共制造並且擴散到全世界，給美國人民及世界人民帶來了巨大的死亡。昨天，班農先生在作戰室講到，即將給中共72小時，不然美軍就要行動了。結合此次國防部長的最新講話，加上之前司法部的表態以及美軍和澳日印等正在舉行的聯合軍演，我們可以看出，嘴炮綏靖時代已經過去，一切重錘行動已經開始。
-
-原文鏈接：[https://www.voachinese.com/a/defense-secretary-mark-esper-speak-international-institute-strategic-studies-london-20200721/5511329.html](https://www.voachinese.com/a/defense-secretary-mark-esper-speak-international-institute-strategic-studies-london-20200721/5511329.html)
-
-1
+0

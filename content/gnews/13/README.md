@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國起訴2名中國黑客竊取新冠疫苗研究成果
-`2020-07-22 10:25 GM77` [轉載自GNews](https://gnews.org/zh-hant/272495/)
+## 休斯頓領館罪名：間諜、盜竊和駭客疫苗資訊、恐嚇、支援暴動
+`2020-07-22 20:55 Diago` [轉載自GNews](https://gnews.org/zh-hant/272823/)
 
-編撰：Cash2019、文珺追隨MG、xmly666（七角星）、臺灣荔枝、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22205104/%E5%B0%81%E9%9D%A2-40.jpg)
+作者：Diago
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22102049/cyber-crime-hacker-generic_650x400_41494848558-1.jpg)
+據[Foreign \[email protected\]](https://twitter.com/ForeignPolicy)[2020年7月23日7:30AM](https://twitter.com/ForeignPolicy/status/1286081154341392384)推文：
 
-**據新德裏電視報道****，****美國起訴2名中國黑客竊取美國COVID-19疫苗研究成果**
+> The increase of Chinese espionage in the United States was likely not the only reason for the closure of China's Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea. [https://t.co/8wONVGjf8z](https://t.co/8wONVGjf8z)
+> — Foreign Policy (@ForeignPolicy) [July 22, 2020](https://twitter.com/ForeignPolicy/status/1286081154341392384?ref_src=twsrc%5Etfw)
 
-華盛頓：美國司法部周二表示，兩名中國公民因試圖從美國和其他國家的數百家公司竊取COVID-19疫苗研究和知識產權而被起訴。負責國家安全的助理司法部長約翰-德默斯說，34歲的李曉宇和33歲的董家誌還針對美國、中國和香港的人權活動家進行相關情報收集。
+The increase of Chinese espionage in the United States was likely not the only reason for the closure of China’s Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea.
 
-**兩名黑客與中國國家安全部合作**
+中文大意：中共在美國的間諜活動並不是關閉中共駐休斯頓總領事館的唯一原因。中共同時也把該領事館作為恐嚇參加南海石油開採的美國能源公司的基地。
 
-這些黑客，他們的行動有些是 “為了自己的利益”，有些則是為了中共國家安全部的利益。
+據[Kevin \[email protected\]](https://twitter.com/GOPLeader)[2020年7月23日5:41AM](https://twitter.com/GOPLeader/status/1286053795504545793)推文：
 
-FBI副局長大衛-鮑迪奇說： “中共政府情報部門主導的網絡犯罪不僅威脅到美國，也威脅到其他每一個支持公平競爭、國際準則和法治的國家。”
+> The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. 
+> 
+> Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw).
+> — Kevin McCarthy (@GOPLeader) [July 22, 2020](https://twitter.com/GOPLeader/status/1286053795504545793?ref_src=twsrc%5Etfw)
 
-美國檢察官威廉-海斯洛普說，黑客的目標是全世界的公司。全美和全球許多企業、個人和機構的電腦系統被黑客入侵和破壞，大量敏感和有價值的商業機密、技術、數據和個人信息被竊取。
+The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo)
 
-美國司法部表示，黑客攻擊的目標包括 “數百家受害公司、政府、非政府組織，以及美國和海外（包括香港和中國）的個人異議人士、神職人員、民主和人權活動家。”
+中文大意：中共不值得信任，中共駐休斯頓總領館曾經試圖駭客疫苗研究，現在我們發現該領館實施間諜活動並且盜竊智慧財產權；下達關閉該領館的命令來自蓬佩奧國務卿。
 
-美國的這一行動更加說明了與中共國脫鉤的必要性。中共進一步的行動讓美國人徹底看清了中共偷盜無恥的本性和妄圖破壞美國自救的邪惡用心，促使美國人放棄與中共和平相處，簽訂和約的夢想，更加使得美國堅定信念，消滅中國共產黨這個流氓集團。
+據[Qiao \[email protected\]](https://twitter.com/qiaocollective)[2020年7月23日3:29AM](https://twitter.com/qiaocollective/status/1286020583143149573)推文：
 
-**編者觀點：**
+> Gordon Chang is on Fox alleging that the Houston Chinese consulate provided "logistical and financial support" to BLM protests and the CPC is "stoking racial tensions." 
+> 
+> Can't believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration. [pic.twitter.com/KA4c0AcpoQ](https://t.co/KA4c0AcpoQ)
+> — Qiao Collective (@qiaocollective) [July 22, 2020](https://twitter.com/qiaocollective/status/1286020583143149573?ref_src=twsrc%5Etfw)
 
-中共統治下的70年，假惡醜肆虐，荼毒人心，奪去了人們眼神中曾有的純潔和善良。由此，我們也不奇怪國內一些列令人扼腕嘆息的亂象。在CCP的洗腦下，致使有些人無論身在何處都會發作癲狂，對外的假騙偷終究會被人所不齒，並受到法律的制裁，多行不義必自斃，搬起石頭砸自己的腳。
+Gordon Chang is on Fox alleging that the Houston Chinese consulate provided “logistical and financial support” to BLM protests and the CPC is “stoking racial tensions.” Can’t believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration.
 
-現在，從國務院、國家安全部、FBI到司法部，美國各個層面都已對中共開始了全面行動。CCP綁架了中國14億人民七十年，致使教育奴化、環境惡化、經濟泡沫化、食品化學化、政治獨裁化，將中華民族蹂躪的國之不國，民之不民。然CCP的野心何至於此，妄想稱霸世界，軍事化南海、威脅臺灣、挑起中印邊境沖突、偷竊西方知識產權、藍金黃全世界，更恐怖的是，釋放CCP病毒造成全球大瘟疫，威脅人類賴以生存的地球。現如今，以美國為首的西方正義國家聯盟在爆料革命的指引下，將吹響滅共號角，還中國人民自由民主法制的未來憧憬，還世界人民一片安靜與祥和。
+中文大意：GORDON CHANG在FOX採訪中透露：中共駐休斯頓領事館策劃和金錢支持了黑命貴活動，中共為種族衝突火上澆油。難以置信的是中共要對四百年前的美國奴隸制、種族隔離和大規模監禁進行逆向工程。（注：最後一句不一定翻譯準確，如有紕漏，敬請指正）
 
-原文鏈接：
-[https://www.ndtv.com/world-news/us-indicts-2-chinese-hackers-of-stealing-covid-19-vaccine-research-2266605](https://www.ndtv.com/world-news/us-indicts-2-chinese-hackers-of-stealing-covid-19-vaccine-research-2266605)
+綜述：中共駐休斯頓總領事館因間諜、盜竊和駭客疫苗研究資訊、恐嚇在南海參加石油開採業務的美國能源公司、參與煽動和財務支持黑命貴運動，被蓬佩奧國務卿親自下令關閉！
+
+（文章內容僅代表作者個人觀點）
 
 1

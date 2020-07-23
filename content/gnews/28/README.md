@@ -1,21 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議院報告指責中共“數字霸權主義”,支持建立全球聯盟對抗中共
-`2020-07-22 05:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272276/)
+## 凱爾.巴斯先生告訴胡錫進領館關閉原因以及明天蓬佩奧的演講
+`2020-07-22 10:04 Diago` [轉載自GNews](https://gnews.org/zh-hant/272452/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22051202/Picture-1-142.png)圖片選自： [https://www.ft.com](https://www.ft.com/content/3d56b5e4-ae60-11e9-8030-530adfa879c2) 
-據路透社（Reuters）報導，美國參議院週二的一份報告稱，中共正在利用其掌握的技術來開展“數字霸權主義”，不僅在其境內而且在世界範圍內進行監視，控制互聯網和審查信息。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16062624/images_%E5%89%AF%E6%9C%AC-1.jpg)
+作者：Diago
 
-領導該報告的參議院外交關係委員會民主黨參議員鮑勃·梅內德斯（Bob Menendez）表示，中共使用人工智能和生物識別等技術來跟踪其公民並控制信息。報告發布之際，華盛頓與北京之間的關係日益緊張，唐納德·川普總統（Donald Trump）將冠狀病毒大流行歸咎於中共，並指責中共在貿易，人權和軍事力量方面欺騙美國。報告指出，在中共病毒大流行期間，中共國已經收集了大量數據，重新使用了監視技術，這些動作迫使美國需要盡快做出應對。
+據凱爾.巴斯先生9:09 PM · Jul 22, 2020推特：
 
-華盛頓一直在敦促盟國從5G網絡中排除華為的產品，並為對華為和其他中共國公司實施制裁鋪平了道路。報告討論了中共加強信息控制的新法律，以及為支持這些行動的公司新技術開發投資。它說，中共國出口數字技術以增加其在其他地方的影響力，並在世界貿易組織和世界衛生組織等國際組織中尋求更大的影響力。梅內德斯在簡報中說：“中共國一直在向全球出口其數字霸權主義及其工具和策略，”他說，國際領導人越來越被中共國的模式所吸引，尤其是在川普退出一些國際事務後。
+> I'm surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw). Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo's speech from the Nixon Presidential [https://t.co/t2qEFGwjEM](https://t.co/t2qEFGwjEM)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [July 22, 2020](https://twitter.com/Jkylebass/status/1285924843670720512?ref_src=twsrc%5Etfw)
 
-該報告包含了應對中共在這些方面行動的建議，包括立法成立一個發展美國5G技術的公私合營財團和一個“數字權利促進基金”，以對抗中共對大規模監視的使用。它還支持開設網絡軍事服務學院，並支持美國總統領導一個國家聯盟與中共對抗。
+全文如下：
 
-[原文鏈接](https://www.reuters.com/article/us-usa-china-surveillance-idUSKCN24M1ON)
+【I’m surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT) . Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo’s speech from the Nixon Presidential Library tomorrow. China’s “consulate” in Houston is not a diplomatic facility, it is the epicenter of the devious communist party’s vast network of spies & influence operations in the United States. The spies have 72 hours to leave or face arrest (generous in my opinion). Nixon/Kissinger is where it all began but the CPC has destroyed our willingness to wager on a more open, honest, and democratic China. The CPC is our enemy and our entire country is aware of this fact now. 再見 Hu. [#Decouple](https://twitter.com/hashtag/Decouple?src=hashtag_click) [#china](https://twitter.com/hashtag/china?src=hashtag_click) [#LiesSpies](https://twitter.com/hashtag/LiesSpies?src=hashtag_click) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai) [@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing)】
 
-文章翻譯：小煦
-校對整理：人間四月
+中文大意（筆者注：英文不是太好，如有錯誤，敬請指正）：
 
-0
+【胡叼盤：我很驚訝花了這麼長時間@HuXijin\_GT。你們的政府特工在美國各地撒謊、欺騙、盜竊和行賄。我們在休士頓發現了你們的紅色間諜，你們應該準備洗耳聆聽明天要在尼克森總統圖書館進行的蓬佩奧國務卿的演講。中國在休士頓的“領事館”不是外交機構，而是邪惡中共在美國龐大的間諜網路中心和施加影響力的中心。間諜們要麼在72個小時內滾蛋，要麼面臨逮捕（這是我的估計）。尼克森/基辛格是這一切的起點，但中共破壞了我們對中國更加開放、坦誠和民主的期待。中國共產黨是我們的敵人，我們整個國家現在都意識到這一事實。別了！胡叼盤 ＃脫鉤＃中國＃謊言間諜@崔天凱大使 @劉曉明大使】
+
+美國官方如何與中共偽外交部溝通，我們不得而知，但是我們要瞪大眼睛、樹起耳朵聽一聽明天蓬佩奧國務卿要在尼克森總統圖書館進行的演講，一切都已經開始！
+
+（文章內容僅代表作者個人觀點）
+
+1

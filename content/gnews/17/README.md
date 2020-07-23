@@ -1,75 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 研究人員說：在中共國的互聯網設備中發現了“後門”入口
-`2020-07-22 10:02 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/272433/)
+## 福克斯電視臺主持人勞拉采訪耶魯大學教授哈維·瑞奇（07/20/2020）
+`2020-07-22 12:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/272606/)
 
-*新聞來源：《福克斯新聞》*
+翻譯：映蘭軒 文秀
+審核：文肯尼
 
-*作者：Brooke Crothers*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22122829/03-Yale-feature-1.jpg)
 
-*發佈時間： 2020年7月17日*
+Laura: My next guest has been receiving alarming reports of doctors targeted by their state medical licensing boards for actually saving their patients’ lives.  It sounds crazy well it’s happening.  Join me now Dr. Harvey. He is the epidemiology professor at Yale Public school of Health, and one of the most renowned minds in the country on epidemiology.  Doctor Risch, what treatment is being targeted and how pervasive is this?
 
-*翻譯/簡評：文明明*
+勞拉：我的下一位嘉賓是哈維博士。 他已經收到令人震驚的報告，報告中說很多醫生因為實際上在挽救病人的生命而成為各自所在的州醫療執照委員會的打擊目標。 聽起來很瘋狂但這樣的事情正在發生。哈維博士是耶魯公共衛生學院的流行病學教授，也是國內最著名的流行病學專家之一。哈維博士，什麽樣的治療方法會成為打擊目標？ 這樣的情況有多普遍？
 
-*校對：leftgun*
+哈維博士: Good evening Laura. So this is of course hydroxychloroquine, the word that nobody should ever say according to half of the population. So it is a political drug now, not a medical drug, and that has caused the complete population ignorance, and I think we are basically fighting a propaganda war against the medical facts. That collars not just population people how they think about it but doctors as well. There are many doctors that have gotten hostile remarks about saying that all the evidence is bad for it but in fact that is not true at all.  And it is easy to show all the evidence is actually good for it when it is used in out-patient uses.  Nevertheless the only people who actually see that are a whole pile of doctors who actually are on the front lines treating those patients across the country. And they are the ones who are at risk of being forced not to do it.
 
-*審核：海闊天空*
+瑞奇博士：晚上好，勞拉。這種治療方法當然是羥氯喹的使用。全美一半人口竟然都沒有提過羥氯喹這個詞。儼然，它現在是一種政治藥物，而不是醫療藥物，這造成了民眾對這個藥完全一無無知，現在我們基本上講是在打一場針對醫療事實的輿論戰。這場輿論戰不僅影響到了美國民眾，也給醫生帶來了很多麻煩。許多醫生表示有證據顯示羥氯喹治療無療效，但事實根本不是這樣。 當我們在門診使用羥氯喹治療新冠病人時，所有的證據都非常明顯地顯示出——這個藥是有療效的。 然而真正看到這一點的只有在全國各地治療新冠病人的一線醫生，但他們可能會出現被迫棄用羥氯喹的現象。
 
-*Page：拱卒*
+Laura: Doctor Risch, how important would it be now or significant if the administration basically through the FDA rescinded that warning about hydroxy，it was a complete bunk and made a mistake about the warning and get out of the way of the relationship between the doctor and the patient for off-label use of a medicine that’s been around for 65 years? Shouldn’t Stephen Hahn of the FDA come out and say look we will not micromanage your decisions and let this go?
 
-簡評：
+勞拉：哈維醫生，如果政府通過食品藥品管理局（FDA）撤銷關於羥氯喹的警告， 說這個警告完全是無效的，是錯誤行為，而且政府將放開橫插在醫生和病患中間的這種強行管制行為，對藥物禁用的管制行為已經存在了65年之久，那麽，政府這樣做有什麽重要意義呢？FDA局長Stephen Hahn難道不應該出來說，你看我們不再對你如何使用羥氯喹進行微觀管理，不再管控醫生使用羥氯喹治療新冠？
 
-首先，網絡安全問題是如今社會人人關心的敏感問題，因為它牽涉到人們生活的方方面面，從政治經濟到個人隱私。所以這個行業的立法極其重要。象C-Data和V-SOL這樣的公司，向全世界提供有後門的設備，不僅要在道德上加以譴責，更要在經濟上和法律上嚴懲不怠，徹底杜絕類似情況發生。
+Harvey: Yes, it would be game changing. In fact, all of the discussions you had earlier on how to manage going forward through September, October and into next year will change if there is a prevention and treatment that works, that’s available, and that’s safe. That is in fact the case. But the problem is of course that nobody wants to hear it and nobody lets it out except for you.  You are the only one who is actually in any way the mainstream media that is allowing anybody to speak about the evidence for the usage of these drugs.
 
-再則，C-Data和V-SOL 都是中共國的公司，難道這只是巧合？還是精心預謀？ C-Data 公司承認了“後門”的確存在，但又否認是有意而為之，不禁讓人聯想起同是來自中共國的華為、抖音、Zoom等等。中共這種從網絡上偷竊情報和信息的不齒行為讓所有中共國的企業和普通老百姓跟著丟盡了臉。但願這兩家公司不是中共信息戰和情報戰中的兩枚棋子。
+哈維博士：那將改變遊戲規則。事實上，如果有一種有效、可用和安全的預防和治療新冠病毒的方法，那本節目稍早時就如何在9、10月以及明年進行民眾社交管理的所有討論都將會發生改變。這是事實。當然了，問題是除了你之外，沒有人願意聽，也沒人願意講出這個事實。 你是唯一一個無論如何都允許任何人說出羥氯喹有效證據的主流媒體。
 
+Laura: Now I’ve got to say Doctor Risch, I knew politics was corrupt having covering it for decades and I knew the law has a lot of corruption because I was a lawyer for a long time. But I didn’t know that you can have so much corruption in the medical field when it comes to bureaucrats and I know there is a lot of good people in government.  I’m not singling out but just making people better.  it is stunning to me.  Last word.
 
+勞拉：哈維博士，現在我得說我知道政治是腐敗的，因為我做新聞報道幾十年；我知道法律有很多腐敗，因為我當了很長時間律師。但我不知道在醫學領域，當涉及到官僚的時候，也會有這麽多腐敗，我知道政府裏有很多好人。 我不是在挑剔，只想讓人們變得更好。 這樣的腐敗讓我很震驚，我只能這樣說。
 
-##  **研究人員說：在中共國的互聯網設備中發現了“後門”入口** 
+Risch: I think there have been a lot and we hardly know the extent of it, both from the drug companies, from political contrivances and so on. I think it is very difficult, the circumstances now are difficult.
 
+哈維博士：我認為有腐敗，只是不知道嚴重到什麽程度。腐敗來自制藥公司，來自政治陰謀等。我認為現在情況真的非常困難。
 
+Laura: Dr. Risch, do you think thousands of lives could be saved going forward if they released that hydroxychloroquine stockpile and even give it as a prophylactic like India has done and other countries have done for the front line if they wanted?
 
-**The backdoor could give cybercriminals “complete … access”**
+勞拉：哈維博士，你認為如果政府和FDA開放庫存的羥氯喹，甚至像印度和其他國家一樣，只要一線醫生願意就能開出處方藥羥氯喹作為一種預防措施，這樣能挽救成千上萬條生命嗎？
 
-**“後門”可能留給網絡罪犯“全權…訪問”的機會**
+Harvey: I think 75,000 to 100,000 lives will be saved if that happens.
 
-研究人員發現中共國的網絡設備存在“後門”。通過使用相應的工具，任何人都可以訪問這些設備。
-[!\[\](https://spark.adobe.com/page/40SxoRxjFhHRv/images/8230b966-0d5e-4f37-9609-bece1901e667.jpg?asset_id=c3e980e1-af54-4419-9c9e-58a10decd454&amp;img_etag=%229cd0f06a687047f48d249218e5d35d97%22&amp;size=1024)](https://spark.adobe.com/page/40SxoRxjFhHRv/images/8230b966-0d5e-4f37-9609-bece1901e667.jpg?asset_id=c3e980e1-af54-4419-9c9e-58a10decd454&amp;img_etag=%229cd0f06a687047f48d249218e5d35d97%22&amp;size=1024)
-網絡安全研究人員Pierre Kim和Alexandre Torres在兩個建議書中寫道：這些設備的安全漏洞幾乎允許任何人進入設備的Telnet帳戶—— 這些受歡迎的網絡設備是來自中共國公司C-Data和V -SOL。 Telnet是一種用於遠程訪問計算機設備的規程。
+哈維博士：我想這樣做的話，將挽救7.5萬到10萬條美國人的生命。
 
-研究人員在提到命令行界面時寫道，後門可能會留給網絡罪犯“全權的指令線接口（CLI）管理員訪問權限”。
+原文鏈接：[https://video.foxnews.com/v/6173447838001#sp=show-clips](https://video.foxnews.com/v/6173447838001#sp=show-clips)
 
-這些被稱為光纖到戶（FTTH）、光纜終端（OLT）的設備，是服務提供商進入光纖網絡的“端點”。
-
-現在，光纖到戶（FTTH）已經非常普遍，美國全國各地的許多家庭用戶都已接入這些網絡。這些設備還在全球數百萬個網絡中使用。
-
-研究員們發現在兩個C-DATA設備和一個V-SOL設備上運行的軟件（也被稱為固件）也存在著安全問題，他們推測該安全問題還可能存在於其他數十種型號中。
-
-金（Kim）在一封電子郵件中告訴福克斯新聞: “黑客可以攔截和修改所有與這些設備連接的客戶的信息，並竊取以明文（cleat-text)形式發送的密碼”。
-[!\[\](https://spark.adobe.com/page/40SxoRxjFhHRv/images/4d391536-0671-49ab-9282-f3178f4dc15c.jpg?asset_id=3113e6d2-c906-4b2b-beeb-3c7f0f56ed35&amp;img_etag=%220e5d05dfa990a81fcb36d03f74a777ba%22&amp;size=1024)](https://spark.adobe.com/page/40SxoRxjFhHRv/images/4d391536-0671-49ab-9282-f3178f4dc15c.jpg?asset_id=3113e6d2-c906-4b2b-beeb-3c7f0f56ed35&amp;img_etag=%220e5d05dfa990a81fcb36d03f74a777ba%22&amp;size=1024)
-K2網絡安全的聯合創始人兼首席技術官Jayant Shukla說，這些安全漏洞構成了嚴重的問題。他還告訴福克斯新聞說：“擁有這樣的網絡設備的後門……是您可以遇到的最大的威脅。”
-
-他補充說：“因為許多設備直接在網絡上，而且通常沒有得到很好的安全保護，使網絡攻擊者可以經常攻入設備。另一個問題是，網絡設備不經常進行受攻擊的審查，或進行定期的自動修復。而這些卻是經常使用在伺服器和台式機上的”
-
-現在還不清楚網絡攻擊者（如果有）會怎樣利用這些安全漏洞，但是僅僅是這種可能性的存在也會給國家支持的黑客有機可乘。
-
-Shukla解釋說：“通過進入設備的後門，國家級黑客可以獲得由這些設備傳遞的敏感信息。 …他們還可以使用這些設備對網絡的其他部分發起攻擊，並造成嚴重破壞，例如關閉或錯誤配置設備。
-
-Tripwire的安全研發總監Lamar Bailey告訴福克斯新聞：“設備後門是一個嚴重的問題。在過去的幾年中，我們已經多次發現這種情況，它們一般來自於較小的中共國製造商生產的廉價設備。”
-
-C-Data在其網站上發布了冗長的回复。
-
-該公司在聲明中說：“ C-Data讚賞Pierre Kim和Alexandre Torres的工作，並感謝他們通過詳細的測試發現的安全漏洞。”
-
-該聲明將一些問題歸罪於非C-Data製造的“偽劣”的設備，但也承認了自己設備中的漏洞。在另一些問題上，該公司反對那些對它們通過“後門”遠程訪問設備的質疑。該聲明還向用戶列出了額外的“防禦網絡攻擊的措施”。
-
-C-Data補充說，任何漏洞“都不應被解讀為C-Data有意留下了後門。”
-
-Fox News已經聯繫C-Data和V-SOL對此做出回應。
-
-[原文鏈接](https://www.foxnews.com/tech/backdoor-access-chinese-internet-devices-research)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/40SxoRxjFhHRv/)
-
-1
+0
