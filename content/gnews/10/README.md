@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三峽大壩大概率出事，災區戰友趕緊避難吧！“中共病毒疫情每日熱線”
-`2020-07-22 21:14 GM30` [轉載自GNews](https://gnews.org/zh-hant/272846/)
+## 福克斯：美國要求中共駐休斯敦領館72小時內撤離
+`2020-07-22 23:07 GM65` [轉載自GNews](https://gnews.org/zh-hant/273104/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
-
+翻譯、字幕：麥子
+ 
 0

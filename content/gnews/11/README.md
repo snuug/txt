@@ -1,45 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 休斯頓領館罪名：間諜、盜竊和駭客疫苗資訊、恐嚇、支援暴動
-`2020-07-22 20:55 Diago` [轉載自GNews](https://gnews.org/zh-hant/272823/)
+## 驚心：加州CCP病毒感染者年輕化，49歲以下的佔比接近70%
+`2020-07-22 23:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/273078/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22205104/%E5%B0%81%E9%9D%A2-40.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224017/1-72.jpg)
+加州公共衛生部門在周二報告了9231名新增感染者，同時，該州總感染人數到達40萬人數量級。有超過276000人不到49歲，大約佔總數的69%。
 
-據[Foreign \[email protected\]](https://twitter.com/ForeignPolicy)[2020年7月23日7:30AM](https://twitter.com/ForeignPolicy/status/1286081154341392384)推文：
+加州的人口結構是這樣的，大約三分之二的人不到49歲，大約有9%的受感染者年齡不足18歲。相比較而言，18歲到49歲之間的人群佔總感染人數超過60%。加州在過去的兩週增加了超過12萬的病例，表明疫情在爆發。截止週二，過去一周每日新增感染人數平均為9132人，比前一周的8382個感染人數增長了700個。
 
-> The increase of Chinese espionage in the United States was likely not the only reason for the closure of China's Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea. [https://t.co/8wONVGjf8z](https://t.co/8wONVGjf8z)
-> — Foreign Policy (@ForeignPolicy) [July 22, 2020](https://twitter.com/ForeignPolicy/status/1286081154341392384?ref_src=twsrc%5Etfw)
+加州公共衛生機構也公佈了疫情感染族群分佈數據。根據數據，拉丁裔佔總感染人數的55.6%，白人佔17.5%，亞裔佔5.7%，黑人佔4.3%。而死亡數據顯示，黑人死亡數佔總數的8.7%，白人佔30.7%。住院人數在過去的兩週上漲了15%。
 
-The increase of Chinese espionage in the United States was likely not the only reason for the closure of China’s Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea.
+加州公共衛生部門的負責人索尼婭博士表示居家隔離和保持社交距離的措施，可以有效的讓感染人數曲線趨於平緩。
 
-中文大意：中共在美國的間諜活動並不是關閉中共駐休斯頓總領事館的唯一原因。中共同時也把該領事館作為恐嚇參加南海石油開採的美國能源公司的基地。
+加州已經進行了6536932份測試。截止週二，測試數量增加比之前的一天增加122611。隨著測試數量的增長，加州疫情數據還會繼續上升。社區傳播的跡象正越來越明顯。
 
-據[Kevin \[email protected\]](https://twitter.com/GOPLeader)[2020年7月23日5:41AM](https://twitter.com/GOPLeader/status/1286053795504545793)推文：
+評：如果不迅速滅共，美國拿不到病毒製造的詳細數據，根本控制不住疫情，指望民眾自我隔離或者疫苗研發都不如滅共對消滅病毒有效。
 
-> The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. 
-> 
-> Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw).
-> — Kevin McCarthy (@GOPLeader) [July 22, 2020](https://twitter.com/GOPLeader/status/1286053795504545793?ref_src=twsrc%5Etfw)
+[原文鏈接](https://www.foxnews.com/health/almost-70-percent-californias-total-coronavirus-cases-people-49-years-old-health-officials)
 
-The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo)
+翻譯報導：匿名
 
-中文大意：中共不值得信任，中共駐休斯頓總領館曾經試圖駭客疫苗研究，現在我們發現該領館實施間諜活動並且盜竊智慧財產權；下達關閉該領館的命令來自蓬佩奧國務卿。
-
-據[Qiao \[email protected\]](https://twitter.com/qiaocollective)[2020年7月23日3:29AM](https://twitter.com/qiaocollective/status/1286020583143149573)推文：
-
-> Gordon Chang is on Fox alleging that the Houston Chinese consulate provided "logistical and financial support" to BLM protests and the CPC is "stoking racial tensions." 
-> 
-> Can't believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration. [pic.twitter.com/KA4c0AcpoQ](https://t.co/KA4c0AcpoQ)
-> — Qiao Collective (@qiaocollective) [July 22, 2020](https://twitter.com/qiaocollective/status/1286020583143149573?ref_src=twsrc%5Etfw)
-
-Gordon Chang is on Fox alleging that the Houston Chinese consulate provided “logistical and financial support” to BLM protests and the CPC is “stoking racial tensions.” Can’t believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration.
-
-中文大意：GORDON CHANG在FOX採訪中透露：中共駐休斯頓領事館策劃和金錢支持了黑命貴活動，中共為種族衝突火上澆油。難以置信的是中共要對四百年前的美國奴隸制、種族隔離和大規模監禁進行逆向工程。（注：最後一句不一定翻譯準確，如有紕漏，敬請指正）
-
-綜述：中共駐休斯頓總領事館因間諜、盜竊和駭客疫苗研究資訊、恐嚇在南海參加石油開採業務的美國能源公司、參與煽動和財務支持黑命貴運動，被蓬佩奧國務卿親自下令關閉！
-
-（文章內容僅代表作者個人觀點）
-
-1
+0

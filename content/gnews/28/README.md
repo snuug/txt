@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 凱爾.巴斯先生告訴胡錫進領館關閉原因以及明天蓬佩奧的演講
-`2020-07-22 10:04 Diago` [轉載自GNews](https://gnews.org/zh-hant/272452/)
+## 美國國會議員將提出法案以阻止中共國對台灣的攻擊
+`2020-07-22 10:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/272508/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16062624/images_%E5%89%AF%E6%9C%AC-1.jpg)
-作者：Diago
+*新聞來源：《Focus Taiwan》*
 
-據凱爾.巴斯先生9:09 PM · Jul 22, 2020推特：
+*作者：Stacy Hsu and Ko Lin*
 
-> I'm surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw). Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo's speech from the Nixon Presidential [https://t.co/t2qEFGwjEM](https://t.co/t2qEFGwjEM)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [July 22, 2020](https://twitter.com/Jkylebass/status/1285924843670720512?ref_src=twsrc%5Etfw)
+*發佈時間：07/20/2020*
 
-全文如下：
+*翻譯/簡評：文明明*
 
-【I’m surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT) . Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo’s speech from the Nixon Presidential Library tomorrow. China’s “consulate” in Houston is not a diplomatic facility, it is the epicenter of the devious communist party’s vast network of spies & influence operations in the United States. The spies have 72 hours to leave or face arrest (generous in my opinion). Nixon/Kissinger is where it all began but the CPC has destroyed our willingness to wager on a more open, honest, and democratic China. The CPC is our enemy and our entire country is aware of this fact now. 再見 Hu. [#Decouple](https://twitter.com/hashtag/Decouple?src=hashtag_click) [#china](https://twitter.com/hashtag/china?src=hashtag_click) [#LiesSpies](https://twitter.com/hashtag/LiesSpies?src=hashtag_click) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai) [@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing)】
+*校對：leftgun*
 
-中文大意（筆者注：英文不是太好，如有錯誤，敬請指正）：
+*審核：InAHurry*
 
-【胡叼盤：我很驚訝花了這麼長時間@HuXijin\_GT。你們的政府特工在美國各地撒謊、欺騙、盜竊和行賄。我們在休士頓發現了你們的紅色間諜，你們應該準備洗耳聆聽明天要在尼克森總統圖書館進行的蓬佩奧國務卿的演講。中國在休士頓的“領事館”不是外交機構，而是邪惡中共在美國龐大的間諜網路中心和施加影響力的中心。間諜們要麼在72個小時內滾蛋，要麼面臨逮捕（這是我的估計）。尼克森/基辛格是這一切的起點，但中共破壞了我們對中國更加開放、坦誠和民主的期待。中國共產黨是我們的敵人，我們整個國家現在都意識到這一事實。別了！胡叼盤 ＃脫鉤＃中國＃謊言間諜@崔天凱大使 @劉曉明大使】
+*Page：刀削麵面*
 
-美國官方如何與中共偽外交部溝通，我們不得而知，但是我們要瞪大眼睛、樹起耳朵聽一聽明天蓬佩奧國務卿要在尼克森總統圖書館進行的演講，一切都已經開始！
+**簡評：**
 
-（文章內容僅代表作者個人觀點）
+*隨著疫情在全世界的擴散、香港國安法的實施、一帶一路的擴張政策以及國際藍金黃計劃和盜竊知識產權等行為的曝光，全世界對中共在經濟上、政治上和軍事上的威脅日趨清醒，世界各國紛紛出台製裁政策。在國內由於人民幣超發、官員貪污腐敗、各地疫情四起以及超級洪水肆虐，使經濟面臨崩潰、老百姓民不聊生、中共政權也是危機四伏。*
+
+*在內外交困之際，中共是否有可能為了轉移國內外的注意力，孤注一擲，對台灣發起武統呢？目前，這個問題無人可以回答，但是做好最壞的打算是十分有必要的。*
+
+*由共和黨眾議院議員泰德·尤霍發起的《台灣入侵防禦法》將會起到威懾中共、防止中共對台灣發起突然進攻的作用，也是給台灣最有效的保護。中共已經毀了一個香港，決不能再讓它毀了台灣。希望《台灣入侵防禦法》能夠早日通過和實施。*
+
+#### 
+
+##  **美國國會議員將提出法案以阻止中共國對台灣的攻擊** 
+
+
+[!\[\](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b57d060b-ff2c-49b8-8abe-4145ff415ee1.jpg?asset_id=7df1afe1-fd26-4371-8ae1-3c7e3aadef8f&amp;img_etag=%2275bc719892c1322f34d54addb269db84%22&amp;size=1024)](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b57d060b-ff2c-49b8-8abe-4145ff415ee1.jpg?asset_id=7df1afe1-fd26-4371-8ae1-3c7e3aadef8f&amp;img_etag=%2275bc719892c1322f34d54addb269db84%22&amp;size=1024)共和黨眾議院議員泰德·尤霍（Ted Yoho）/ CNA檔案照片
+7月19日（CNA）華盛頓，共和黨眾議院議員泰德·尤霍（Ted Yoho）在周末表示，他計劃提出一項法案，授權美國總統在中共國決定進攻台灣時可以用武力回擊。
+
+上週五，尤霍（Yoho）在接受福克斯商業網絡（Fox Business Network）的一次採訪中說：“下週，我們將提出一項法案，該法案將被稱為《台灣入侵防禦法》。”
+
+作為美國眾議院亞洲事務小組委員會成員的共和黨議員，尤霍（Yoho）是在被問到台灣持續受到中共國威脅，美國是否給予台灣足夠的支持時，發表這一聲明的。
+
+作為台灣的聲援者，尤霍（Yoho）說：“這項《台灣入侵防禦法》將非常明確地表明我們的意圖。 事實上，這項法案會在中共國入侵台灣時授權使用武力（AUMF） 。這項法案將授予總統使用武力的授權（AUMF）。授權使用武力(AUMF)的日落條款規定法案將在每五年審核一次。”
+
+他指出，目前美國根據1979年生效的《台灣關係法》，承諾向台灣出售足夠台灣自衛的武器裝備。
+[!\[\](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b5342a68-c4df-4ebb-bcd5-0a7715efb1a4.jpg?asset_id=00395e6a-a86e-48e2-b314-00f734f50b06&amp;img_etag=%222089bc3947d3f56d113aaee3305d854b%22&amp;size=1024)](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b5342a68-c4df-4ebb-bcd5-0a7715efb1a4.jpg?asset_id=00395e6a-a86e-48e2-b314-00f734f50b06&amp;img_etag=%222089bc3947d3f56d113aaee3305d854b%22&amp;size=1024)
+尤霍說：“習近平宣布他已經準備好，不惜流血也要統一台灣。但是他們卻忘記了征求台灣的意見，台灣從來就不是中華人民共和國的一部分，他們也不想加入。”
+
+尤霍（Yoho）在Lou Dobbs主持的“紅色風暴”節目中接受了該採訪，該節目著眼於中共國在亞太地區的擴張主義野心。
+
+[原文鏈接](https://focustaiwan.tw/politics/202007200007)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/yETPKuHECJ2c9/)
 
 1

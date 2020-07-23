@@ -1,101 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 精確制導的中共病毒——位於新疆與哈爾濱的兩家獸醫研究所
-`2020-07-22 22:58 立武` [轉載自GNews](https://gnews.org/zh-hant/272996/)
+## 中共三藩市領事館窩藏軍事生物科學家逃犯，下一個會不會是它
+`2020-07-22 23:53 Diago` [轉載自GNews](https://gnews.org/zh-hant/273210/)
 
-7月15日，新疆報告新增確診病例1例。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22234756/%E5%B0%81%E9%9D%A2-41.jpg)
+作者：Diago
 
-7月16日，新疆報告新增確診病例10例。
+據All American [\[email protected\]](/cdn-cgi/l/email-protection):00 AM · Jul 23, 2020推文：
 
-7月17日，新疆報告新增確診病例22例。
+> China harboring military-linked biologist fugitive at San Francisco consulate, FBI says [https://t.co/zibawxeWmD](https://t.co/zibawxeWmD) [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) [#AAG](https://twitter.com/hashtag/AAG?src=hash&amp;ref_src=twsrc%5Etfw) [#AAG2020](https://twitter.com/hashtag/AAG2020?src=hash&amp;ref_src=twsrc%5Etfw)
+> — All American Girl (@AIIAmericanGirI) [July 23, 2020](https://twitter.com/AIIAmericanGirI/status/1286118939131613185?ref_src=twsrc%5Etfw)
 
-7月18日，新疆報告新增確診病例13例。
+另據 [**Gregg Re**](https://www.foxnews.com/person/r/gregg-re)[**| Fox News**](http://www.foxnews.com/)於北京時間2020年7月23日上午9:45分發佈的[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)（FBI：中共三藩市領事館窩藏軍事生物科學家逃犯）
 
-7月19日，新疆報告新增確診病例17例。
+【The [Chinese](https://www.foxnews.com/category/world/world-regions/china) consulate [in San Francisco](https://www.foxnews.com/category/us/san-francisco) is harboring a biology researcher who falsely denied connections to the Chinese military to obtain a visa and gain access to the country, according to court documents filed by the FBI.
 
-7月20日，新疆報告新增確診病例8例。
+The filing came as part of a document that cited a slew of other alleged episodes in which Chinese nationals allegedly lied on their visa applications by hiding their military connections.】
 
-7月21日，新疆報告新增確診病例9例。
+根據FBI提交的法院檔，中國駐三藩市領事館正窩藏著一位元生物學研究人員，該研究人員通過否認與中共軍方的關係騙取簽證從而進入美國。該份法院檔來源於一份引用一系列其他指稱中國公民通過隱匿與中共軍方關係而獲取簽證的檔。
 
-自15日至21日，**新疆累計確診****80****例，其中多數病例都在烏魯木齊。**
+【Tang Juan, a researcher at the University of California, Davis, stated on her J-1 visa application that she “had never served in the military, but open source investigation revealed photographs of her in the uniform of the Civilian Cadre of the PLA [People’s Liberation Army], and that she had been employed as a researcher at the Air Force Military Medical University, which is another name for FMMU [Fourth Military Medical University],” the FBI claimed.】
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224835/%E6%89%B9%E6%B3%A8-2020-07-22-222212772322221-3.png)
+加利福尼亞大學大衛斯分校的研究員唐娟在她的J-1簽證申請中說，她從未在軍隊中服役，但是公開信息顯示她在中共空軍軍醫大學穿著解放軍制服的照片，並且她曾受聘于空軍軍醫大學，也就是中共第四軍醫大學。
 
-7月20日，烏魯木齊官方網站紅山網稱，**目前對於此次疫情的感染來源“尚未可知”。**根據流行病學調查，**“今年以來所有確診病例和無症狀感染者均無境外旅居史”。**
+【Then, during an interview with FBI agents on June 20, Tang “denied serving in the Chinese military, claimed she did not know the meaning of the insignia on her uniform, and that wearing a military uniform was required for attendance at FMMU because it was a military school.”】
 
-那平白無故新疆怎麼就突然爆發了疫情呢？
+然後，在6月20日接受聯邦調查局特工詢問時，唐“否認在中國軍隊服役，聲稱她不知道其制服上的徽章的含義，因為這是一所軍事院校所以在學校被要求穿軍裝。”
 
-新疆**毗鄰哈薩克和俄羅斯**，俄羅斯疫情一直都很嚴重，哈薩克最近的疫情也突然爆發，**一種情況是在新疆的中共病毒是由這兩個國家傳進來的，**但源頭現在暫時沒有找到。
+**[READ THE COURT DOCUMENTS](https://www.courtlistener.com/recap/gov.uscourts.cand.362599/gov.uscourts.cand.362599.4.0.pdf)**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22225728/%E4%B8%8B%E8%BD%BD-22.png)
+【The FBI revealed it then executed a search warrant immediately at Tang’s home and found additional evidence of Tang’s PLA affiliation.】
 
-儘管中共最近闢謠了一則病毒由哈薩克女患者輸入的消息，原因是現有病例都沒有“境外旅居史”，**但不排除有來自境外感染者未被發現的可能。**
+聯邦調查局（FBI）透露，隨後立即在唐娟家中實施搜查，並且發現唐與中共軍方有聯繫的其他證據。
 
-前些天，中共駐哈薩克領事館發佈了警惕哈國疫情的公告，隨後中共媒體開始吹風出現新病毒，**同時強調哈美兩國在哈國的阿拉木圖實驗室的合作，意在甩鍋病毒來源。**
+【”The FBI assesses that, at some point following the search and interview of Tang on June 20, 2020, Tang went to the Chinese Consulate in San Francisco, where the FBI assesses she has remained,” the bureau announced.】
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224826/%E6%89%B9%E6%B3%A8-2020-07-23-1203250-2.png)
+聯邦調查局宣佈：“在2020年6月20日對唐（Tang）進行搜查和詢問後的不久，唐（Tang）前往中國駐三藩市的領事館，聯邦調查局（FBI）認為她依然被窩藏在中共三藩市領事館內。”
 
-不過隨後這些消息都被打臉。
+There existed evidence in at least one case “of a military scientist copying or stealing information from American institutions at the direction of military superiors in China,” the bureau went on. The court documents contained similar evidence against several other Chinese scientists.
 
-新疆和哈薩克疫情的爆發都有點蹊蹺，由於哈薩克有與美國合作抗共的意思，**中共可能利用中共病毒影響地緣政治形勢。**
+FBI官員還說，至少有一份證據“軍事科學家在中共軍方上級的指令下從美國機構複製或竊取資訊”。 法院檔中包含針對其他幾位中國科學家的類似證據。
 
-路德在節目中爆料，**美軍在哈薩克基地已經佈局好了，班農之前去哈薩克就是做這事的。**
+【Chen Song, for example, was an “active duty People’s Liberation Army military scientist who lied to get into the United States, attempted to destroy evidence and lied extensively to the FBI when interviewed,” the government wrote in charging documents】
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224812/%E6%89%B9%E6%B3%A8-2020-07-22-22221277232221-3.png)
+例如，陳頌是一名“中共軍方現役的軍事科學家，在被FBI詢問時試圖損毀證據並向向FBI公然撒謊”，政府在起訴檔中寫道。
 
-**如果中共將新疆的疫情歸結於哈薩克的“新病毒”，並要求進入哈薩克調查，**或是投放中共病毒搞亂哈薩克（結果導致臨近的新疆也爆發疫情），都能起到破壞美軍聯合哈薩克抗共的作用。
+注：本文僅為[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)部分內容，更多細節請閱讀原文。
 
-值得注意的是，新疆境內建有**新疆畜牧科學院，該科學院獸醫研究所的****P3****專案辦人員在**2012年曾和**軍事醫學科學院七所**的研究員一同前往**香港大學****P3****實驗室**進行座談交流。
+綜述：休斯頓領事館已經在72小時中，在2020年7月22日最新的白宮疫情記者會上【Trump himself said more closures could be coming if China didn’t change its behavior. “It’s always possible,”】，川普總統本人說如果中共不改變其行事方式，接下來會有更多的中共使領館被關閉，這一直是可能的。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224757/%E6%89%B9%E6%B3%A8-2020-07-22-22123221-3.png)
+接下來迎接72小時的會不會是三藩市領事館呢？期待ing！
 
-軍事醫學科學院七所即為**國家生物防護裝備工程技術研究中心**，所長為祁建成，他曾發表論文介紹**法國****P3****實驗室的控制系統。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224742/24cafd0469b648fd8d5dc6b605804070-3.jpg)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224732/%E6%89%B9%E6%B3%A8-2020-07-22-212321-3.png)
-
-此次座談交流會可能是路德所說的**軍代表去驗收專案，**也可能是探究如何在內地建設P3實驗室。
-
-新疆畜牧科學院獸醫研究所專門從事畜禽疫診斷、防治技術研究，其中設有**動物病毒研究室，主要研究領域就包括病原分離和免疫機理的研究。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224717/%E6%89%B9%E6%B3%A8-2020-07-22-22221223221-3.png)
-
-該研究所還與中國境內另一家獸醫研究所——**哈爾濱獸醫研究所**有過多次交流。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224703/%E6%89%B9%E6%B3%A8-2020-07-22-2123221-2.png)
-
-哈爾濱獸醫研究所擁有中國唯一的**大動物生物安全四級設施**，所轄實驗室包括**國家禽流感參考實驗室和國家非洲豬瘟專業實驗室。**
-
-可以發現，新疆畜牧科學院研究所和哈爾濱獸醫研究所都與**哈薩克**有著深刻的學術交流。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224649/%E6%89%B9%E6%B3%A8-2020-07-22-2221223221-3.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224639/%E6%89%B9%E6%B3%A8-2020-07-22-222123221-4.png)
-
-**哈爾濱獸醫研究所的****P4****實驗室**是中國除武漢P4實驗室、軍事科學院P4實驗室之外的唯三家實驗室，在2018年通過驗收，**主要研究方向是動物傳染。**
-
-最值得關注的是，該研究所有一名**中科院院士，叫陳化蘭**，她曾在美國CDC流感分中心做博士後研究，是**中國第一位世界動物衛生組織專家**，也是**現任國家禽流感參考實驗室主任，**帶有該所的動物流感基礎與防控研究創新團隊。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224626/%E6%89%B9%E6%B3%A8-2020-07-22-222212773221-3.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224615/%E6%89%B9%E6%B3%A8-2020-07-22-2222127732221-3.png)
-
-陳化蘭是研究H5N1的“權威”，**而****H5N1****又與中共病毒有千絲萬縷的聯繫。**
-
-1997年香港爆發H5N1以來，病毒只能從禽類傳染到人，在人與人之間的傳播能力很小。
-
-陳化蘭曾經研究過**[H5N1病毒要發生怎樣的改變，才會使其在人與人之間傳播](https://news.sina.com.cn/c/2014-01-09/163629199370.shtml)。**
-
-在研究中，陳化蘭團隊交換了H5N1的基因片段和H1N1的基因片段，**用重組出病毒中最致命的來感染豚鼠，結果發現這些病毒能夠在豚鼠之間轉播。**
-
-這項研究實際上證實了**這種病毒可以在哺乳動物間傳播。**
-
-> [路德重磅揭露H5N1与中共病毒的关系](https://gnews.org/zh-hans/269531/)
-
-我們可以發現這些重點研究所所在的地方，**不論是武漢、哈爾濱還是新疆，都是疫情重災區，**這種巧合不禁讓人浮想聯翩。
-
-**如果中共不公開病毒真相，將是對人類文明的災難。**
+（文章內容僅代表作者個人觀點）
 
 0

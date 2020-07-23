@@ -1,18 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】7月19日班農在福克斯的重磅採訪: 美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相
-`2020-07-22 19:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272781/)
+## 精確制導的中共病毒——位於新疆與哈爾濱的兩家獸醫研究所
+`2020-07-22 22:58 立武` [轉載自GNews](https://gnews.org/zh-hant/272996/)
 
-**[2020年7月19日班農在福克斯的重磅採訪](https://gnews.org/zh-hans/270024/)中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行, 
-制裁共產黨高層,直到中共坦白全部中共病毒真相**
+7月15日，新疆報告新增確診病例1例。
 
-[‪【中文版】中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)
+7月16日，新疆報告新增確診病例10例。
 
-[【英文版】The CCP lied and Americans died. The US must face the CCP head on by decoupling the dollar, by sanctioning the CCP banks and high-level officials. The measures must be carried out until the CCP comes clean about the truth of the CCP virus.](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)
+7月17日，新疆報告新增確診病例22例。
 
-[【法語版】Le PCC a menti, les américains sont morts. Les Etats-Unis doivent affronter le PCC face à face par le découplage du dollar avec la devise chinoise et par les sanctions contre les banques et les dirigeants du PCC. Ces mesures doivent être appliquées et maintenues jusqu’au moment où le PCC avoue toute la vérité par 下載 à son virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)
+7月18日，新疆報告新增確診病例13例。
 
-製作：【秘密翻譯組G-Translators】
+7月19日，新疆報告新增確診病例17例。
+
+7月20日，新疆報告新增確診病例8例。
+
+7月21日，新疆報告新增確診病例9例。
+
+自15日至21日，**新疆累計確診****80****例，其中多數病例都在烏魯木齊。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224835/%E6%89%B9%E6%B3%A8-2020-07-22-222212772322221-3.png)
+
+7月20日，烏魯木齊官方網站紅山網稱，**目前對於此次疫情的感染來源“尚未可知”。**根據流行病學調查，**“今年以來所有確診病例和無症狀感染者均無境外旅居史”。**
+
+那平白無故新疆怎麼就突然爆發了疫情呢？
+
+新疆**毗鄰哈薩克和俄羅斯**，俄羅斯疫情一直都很嚴重，哈薩克最近的疫情也突然爆發，**一種情況是在新疆的中共病毒是由這兩個國家傳進來的，**但源頭現在暫時沒有找到。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22225728/%E4%B8%8B%E8%BD%BD-22.png)
+
+儘管中共最近闢謠了一則病毒由哈薩克女患者輸入的消息，原因是現有病例都沒有“境外旅居史”，**但不排除有來自境外感染者未被發現的可能。**
+
+前些天，中共駐哈薩克領事館發佈了警惕哈國疫情的公告，隨後中共媒體開始吹風出現新病毒，**同時強調哈美兩國在哈國的阿拉木圖實驗室的合作，意在甩鍋病毒來源。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224826/%E6%89%B9%E6%B3%A8-2020-07-23-1203250-2.png)
+
+不過隨後這些消息都被打臉。
+
+新疆和哈薩克疫情的爆發都有點蹊蹺，由於哈薩克有與美國合作抗共的意思，**中共可能利用中共病毒影響地緣政治形勢。**
+
+路德在節目中爆料，**美軍在哈薩克基地已經佈局好了，班農之前去哈薩克就是做這事的。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224812/%E6%89%B9%E6%B3%A8-2020-07-22-22221277232221-3.png)
+
+**如果中共將新疆的疫情歸結於哈薩克的“新病毒”，並要求進入哈薩克調查，**或是投放中共病毒搞亂哈薩克（結果導致臨近的新疆也爆發疫情），都能起到破壞美軍聯合哈薩克抗共的作用。
+
+值得注意的是，新疆境內建有**新疆畜牧科學院，該科學院獸醫研究所的****P3****專案辦人員在**2012年曾和**軍事醫學科學院七所**的研究員一同前往**香港大學****P3****實驗室**進行座談交流。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224757/%E6%89%B9%E6%B3%A8-2020-07-22-22123221-3.png)
+
+軍事醫學科學院七所即為**國家生物防護裝備工程技術研究中心**，所長為祁建成，他曾發表論文介紹**法國****P3****實驗室的控制系統。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224742/24cafd0469b648fd8d5dc6b605804070-3.jpg)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224732/%E6%89%B9%E6%B3%A8-2020-07-22-212321-3.png)
+
+此次座談交流會可能是路德所說的**軍代表去驗收專案，**也可能是探究如何在內地建設P3實驗室。
+
+新疆畜牧科學院獸醫研究所專門從事畜禽疫診斷、防治技術研究，其中設有**動物病毒研究室，主要研究領域就包括病原分離和免疫機理的研究。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224717/%E6%89%B9%E6%B3%A8-2020-07-22-22221223221-3.png)
+
+該研究所還與中國境內另一家獸醫研究所——**哈爾濱獸醫研究所**有過多次交流。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224703/%E6%89%B9%E6%B3%A8-2020-07-22-2123221-2.png)
+
+哈爾濱獸醫研究所擁有中國唯一的**大動物生物安全四級設施**，所轄實驗室包括**國家禽流感參考實驗室和國家非洲豬瘟專業實驗室。**
+
+可以發現，新疆畜牧科學院研究所和哈爾濱獸醫研究所都與**哈薩克**有著深刻的學術交流。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224649/%E6%89%B9%E6%B3%A8-2020-07-22-2221223221-3.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224639/%E6%89%B9%E6%B3%A8-2020-07-22-222123221-4.png)
+
+**哈爾濱獸醫研究所的****P4****實驗室**是中國除武漢P4實驗室、軍事科學院P4實驗室之外的唯三家實驗室，在2018年通過驗收，**主要研究方向是動物傳染。**
+
+最值得關注的是，該研究所有一名**中科院院士，叫陳化蘭**，她曾在美國CDC流感分中心做博士後研究，是**中國第一位世界動物衛生組織專家**，也是**現任國家禽流感參考實驗室主任，**帶有該所的動物流感基礎與防控研究創新團隊。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224626/%E6%89%B9%E6%B3%A8-2020-07-22-222212773221-3.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22224615/%E6%89%B9%E6%B3%A8-2020-07-22-2222127732221-3.png)
+
+陳化蘭是研究H5N1的“權威”，**而****H5N1****又與中共病毒有千絲萬縷的聯繫。**
+
+1997年香港爆發H5N1以來，病毒只能從禽類傳染到人，在人與人之間的傳播能力很小。
+
+陳化蘭曾經研究過**[H5N1病毒要發生怎樣的改變，才會使其在人與人之間傳播](https://news.sina.com.cn/c/2014-01-09/163629199370.shtml)。**
+
+在研究中，陳化蘭團隊交換了H5N1的基因片段和H1N1的基因片段，**用重組出病毒中最致命的來感染豚鼠，結果發現這些病毒能夠在豚鼠之間轉播。**
+
+這項研究實際上證實了**這種病毒可以在哺乳動物間傳播。**
+
+> [路德重磅揭露H5N1与中共病毒的关系](https://gnews.org/zh-hans/269531/)
+
+我們可以發現這些重點研究所所在的地方，**不論是武漢、哈爾濱還是新疆，都是疫情重災區，**這種巧合不禁讓人浮想聯翩。
+
+**如果中共不公開病毒真相，將是對人類文明的災難。**
 
 0

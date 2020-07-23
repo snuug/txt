@@ -1,57 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共三藩市領事館窩藏軍事生物科學家逃犯，下一個會不會是它
-`2020-07-22 23:53 Diago` [轉載自GNews](https://gnews.org/zh-hant/273210/)
+## 為市場而跪舔中共的好萊塢電影業
+`2020-07-23 01:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/273298/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22234756/%E5%B0%81%E9%9D%A2-41.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23012301/Picture-1-146.png)圖片來源：pinterest.com.au 
+很多人發現中共國電影院放映的好萊塢大片與國外原版總有不同之處，如果您是個電影迷，一定會好奇這點。美國《新聞周刊》文化產業首席記者保羅·邦德（Paul Bond）在他最近的文章中告訴了我們答案。
 
-據All American [\[email protected\]](/cdn-cgi/l/email-protection):00 AM · Jul 23, 2020推文：
+**為什麼看重中國市場**
 
-> China harboring military-linked biologist fugitive at San Francisco consulate, FBI says [https://t.co/zibawxeWmD](https://t.co/zibawxeWmD) [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) [#AAG](https://twitter.com/hashtag/AAG?src=hash&amp;ref_src=twsrc%5Etfw) [#AAG2020](https://twitter.com/hashtag/AAG2020?src=hash&amp;ref_src=twsrc%5Etfw)
-> — All American Girl (@AIIAmericanGirI) [July 23, 2020](https://twitter.com/AIIAmericanGirI/status/1286118939131613185?ref_src=twsrc%5Etfw)
+對於好萊塢來說，中國充滿了機會，但也是令人頭痛的市場。機會在於，它擁有一個巨大的市場潛力，預計很快就會成為世界上最大的電影市場。每個電影公司都明白，要想在國際上取得成功，增長點就在中國。
 
-另據 [**Gregg Re**](https://www.foxnews.com/person/r/gregg-re)[**| Fox News**](http://www.foxnews.com/)於北京時間2020年7月23日上午9:45分發佈的[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)（FBI：中共三藩市領事館窩藏軍事生物科學家逃犯）
+**怎樣賺到巨額利潤**
 
-【The [Chinese](https://www.foxnews.com/category/world/world-regions/china) consulate [in San Francisco](https://www.foxnews.com/category/us/san-francisco) is harboring a biology researcher who falsely denied connections to the Chinese military to obtain a visa and gain access to the country, according to court documents filed by the FBI.
+中國很快將超過美國成為世界最大電影市場。根據普華永道的數據，在因中共病毒關閉全球影院之前，中國有望在2021年成為全球最大的電影市場，票房收入為112億美元，而美國為109億美元。根據共產黨的喉舌《人民日報》的數據，截至2019年底，中國擁有6.9萬塊電影屏幕，而一年前只有9700塊。
 
-The filing came as part of a document that cited a slew of other alleged episodes in which Chinese nationals allegedly lied on their visa applications by hiding their military connections.】
+自2012年達成協議以來，中共每年允許34部外國電影進入國內，電影公司獲得25%的票房，其餘的歸中共國公司所有，包括政府擁有的發行商中國電影集團和華夏電影發行有限公司。但電影業內人士在不願透露姓名的情況下表示，34更多的是一個下限而非上限，尤其是電影公司可以與中共國公司聯合製作，從而避免自己的電影被歸為“外國”，2016年由馬特-達蒙主演和中外配角組成的《長城》和即將上映的《壯志凌雲2》都是如此。
 
-根據FBI提交的法院檔，中國駐三藩市領事館正窩藏著一位元生物學研究人員，該研究人員通過否認與中共軍方的關係騙取簽證從而進入美國。該份法院檔來源於一份引用一系列其他指稱中國公民通過隱匿與中共軍方關係而獲取簽證的檔。
+**奧威爾式的審查制度**
 
-【Tang Juan, a researcher at the University of California, Davis, stated on her J-1 visa application that she “had never served in the military, but open source investigation revealed photographs of her in the uniform of the Civilian Cadre of the PLA [People’s Liberation Army], and that she had been employed as a researcher at the Air Force Military Medical University, which is another name for FMMU [Fourth Military Medical University],” the FBI claimed.】
+如果西方製片人想在中國放映或製作一部電影，他們必須首先與一支由官僚組成的軍隊打交道，他們決定中國觀眾能看到什麼內容。這些官僚的名字很有奧威爾風格：國家民族事務委員會、國家宗教事務局、中共中央宣傳部、國家安全保衛部等等。他們的工作不僅要確保中共國的形象永遠是好的，而且要確保一些主題永遠不被提及，其中最重要有三個話題：台灣、西藏、天安門，後來又加上一長串的其他敏感話題：中共主席試圖無限期延長任期，1300萬維吾爾族、哈薩克族和土耳其穆斯林被拘留和遭受酷刑；中共國對基督教的壓制和香港對民運人士的騷擾等等。
 
-加利福尼亞大學大衛斯分校的研究員唐娟在她的J-1簽證申請中說，她從未在軍隊中服役，但是公開信息顯示她在中共空軍軍醫大學穿著解放軍制服的照片，並且她曾受聘于空軍軍醫大學，也就是中共第四軍醫大學。
+**恪守道德堅持原則的演員導演被封殺**
 
-【Then, during an interview with FBI agents on June 20, Tang “denied serving in the Chinese military, claimed she did not know the meaning of the insignia on her uniform, and that wearing a military uniform was required for attendance at FMMU because it was a military school.”】
+而不向中共低頭的著名影星理查德.基爾(Richard Gere)則遭到中共的多年持續封殺。在1993年奧斯卡頒獎典禮外的紅毯上，當時已接近A級明星巔峰的基爾抗議中共對西藏”可怕”的佔領。基爾曾表示，隨著中國市場規模和重要性的增長，他在西藏問題上的持續立場嚴重損害了他的事業。同樣，有布拉德.皮特(Brad Pitt)在1997年的《西藏七年》中扮演的角色也讓他一度落入了中共國的禁演名單。
 
-然後，在6月20日接受聯邦調查局特工詢問時，唐“否認在中國軍隊服役，聲稱她不知道其制服上的徽章的含義，因為這是一所軍事院校所以在學校被要求穿軍裝。”
+受到同樣待遇的還有導演奧利弗.斯通（Oliver Stone），由於中共當局的干涉，他曾三次嘗試與中國電影公司完成合拍片，但都失敗了。其中一個項目是改編自安思敏的回憶錄《紅杜鵑》。這是一個以上世紀60年代文革期間為背景的女同性戀愛情故事。同性關係是被中共國審查機構禁止的。 20世紀福克斯公司在2019年大熱的《波西米亞狂想曲》的中國版片中刪掉了所有關於弗雷迪.默丘利同性戀的內容。更敏感的是任何關於文化大革命的討論，以及對毛主席或共產黨在那些痛苦歲月中行動的任何批評。
 
-**[READ THE COURT DOCUMENTS](https://www.courtlistener.com/recap/gov.uscourts.cand.362599/gov.uscourts.cand.362599.4.0.pdf)**
+**放棄底線違背價值觀得到高額獎勵**
 
-【The FBI revealed it then executed a search warrant immediately at Tang’s home and found additional evidence of Tang’s PLA affiliation.】
+好萊塢電影人已經習慣了中共對大小事情的干涉。曾製作過《辛德勒的名單》等多部電影的製片人傑瑞.莫倫(Jerry Molen)說：”你不一定非要展示上海、北京和長城的所有榮耀，但你永遠不能以糟糕的方式展示它們。” 2018年，莫倫擔任《巨齒鯊》的執行製片人，該片由華納兄弟和華媒資本聯合出品，講述了一條巨大的史前鯊魚，電影中的男主角科學家是中國人。該片票房成功，全球收入5.3億美元，其中1.53億美元來自中國。
 
-聯邦調查局（FBI）透露，隨後立即在唐娟家中實施搜查，並且發現唐與中共軍方有聯繫的其他證據。
+派拉蒙影業發布了《壯志凌雲2》的預告片：獨行俠（Top Gun: Maverick），其中一個鏡頭是湯姆.克魯斯（Tom Cruise）飾演的現已中年的主角，穿上了他在第一部中穿的棕色皮夾克。 1986年，夾克上有紀念性的海軍演習貼片，上面印有台灣和日本的國旗。在新的預告片中，夾克看起來是一樣的，但國旗卻不見了，派拉蒙拒絕與媒體談論此事。克薩斯州共和黨人泰德.克魯茲(Ted Cruz)今年5月在美國參議院的會場上責問道：”獨行俠，一個美國偶像，顯然害怕中國共產黨，這傳遞了什麼信息？”
 
-【”The FBI assesses that, at some point following the search and interview of Tang on June 20, 2020, Tang went to the Chinese Consulate in San Francisco, where the FBI assesses she has remained,” the bureau announced.】
+好萊塢綏靖中共國的一個特別惡劣的例子是2012年翻拍的《紅色黎明》（Red Dawn），由小製片廠Film District與米高梅（MGM）及索尼聯合製作。這部電影講述的是一群美國小鎮的青少年抵禦中國入侵的故事。不過在後期製作中，米高梅和索尼對其進行了數字化修改，使入侵來自朝鮮。加拉格爾說，他從好萊塢的這種舉動中看不到任何親中共的意識形態，只是想賺錢。他說：”電影製作人並不是每天早上醒來都在思考中共的本質，但可以說他們也沒有醒悟到中共所帶來的威脅。”
 
-聯邦調查局宣佈：“在2020年6月20日對唐（Tang）進行搜查和詢問後的不久，唐（Tang）前往中國駐三藩市的領事館，聯邦調查局（FBI）認為她依然被窩藏在中共三藩市領事館內。”
+在各大電影公司中，迪士尼是與中共國做生意最成功的公司，該公司在《鋼鐵俠3》上與中共當局周旋的能力就說明了這一點。該公司在上海和香港的主題公園上成功地與政府合作，甚至在中共的堅持下，用只有中共國才有的壯觀遊樂設施取代了太空山等商標景點。去年，該公司的《復仇者聯盟-終極遊戲》成為史上最賣座的電影，全球票房28億美元，其中6.14億美元或約22%來自中國。
 
-There existed evidence in at least one case “of a military scientist copying or stealing information from American institutions at the direction of military superiors in China,” the bureau went on. The court documents contained similar evidence against several other Chinese scientists.
+**成為中共擴大全球影響的宣傳媒介**
 
-FBI官員還說，至少有一份證據“軍事科學家在中共軍方上級的指令下從美國機構複製或竊取資訊”。 法院檔中包含針對其他幾位中國科學家的類似證據。
+中共對與外國人合拍片的要求是，在全球範圍內只能放映一個版本，實際上是讓中共審查機構決定國際觀眾能看到什麼。曾幫助多部美國電影進入中共國院線的製片人馬修.馬利克（Matthew Malek）說：”即使中國人告訴你，他們只是想控制在中國看到的東西，他們送過來的合同中也有一條，中國版本成為主版本。他們不承認這一點，但我已經看過足夠多的次數了。沒辦法，除非你是一家巨頭電影公司，從一開始就知道中國人想要什麼，所以才會創作一部電影。”
 
-【Chen Song, for example, was an “active duty People’s Liberation Army military scientist who lied to get into the United States, attempted to destroy evidence and lied extensively to the FBI when interviewed,” the government wrote in charging documents】
+**敲響警鐘**
 
-例如，陳頌是一名“中共軍方現役的軍事科學家，在被FBI詢問時試圖損毀證據並向向FBI公然撒謊”，政府在起訴檔中寫道。
+美國不會再容忍好萊塢繼續跪舔中共。 5月21日，參議員泰德.克魯茲提出了一項被稱為SCRIPT法案（停止審查、恢復誠信、保護Talkies法案），如果電影公司為了安撫中國人而對電影進行審查，將切斷電影公司從國防部獲得的幫助。他的法案是對好萊塢的”警醒”。克魯茲說：好萊塢公司已經了解到，中共國會對美國電影進行審查，所以他們經常會在向中共國市場提交影片之前對影片進行修改，中共審查員不僅控制著中國觀眾看到的東西，也控制著美國觀眾看到的東西。克魯茲說，法案將迫使製片人在他們需要美國政府的援助和他們想要從中共國電影市場獲得的資金之間做出選擇。
 
-注：本文僅為[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)部分內容，更多細節請閱讀原文。
+評：
 
-綜述：休斯頓領事館已經在72小時中，在2020年7月22日最新的白宮疫情記者會上【Trump himself said more closures could be coming if China didn’t change its behavior. “It’s always possible,”】，川普總統本人說如果中共不改變其行事方式，接下來會有更多的中共使領館被關閉，這一直是可能的。
+好萊塢的演員、製片人和導演曾經為他們宣揚自由和人文精神而自豪。每年在奧斯卡金像獎頒獎典禮上，全世界都會聽到好萊塢的說教，有關這個國家如何沒有做到和實現社會正義和理想。然而好萊塢為了巨大的市場份額已經放棄它曾經的價值觀，在中共的淫威下開始自我審查，來避免惹怒中共這個世界上最大的人權侵犯者。這種審查不僅影響到在中共國發行的電影版本，還將其影響力擴大到全球，影響到西方社會的劇院放映的許多電影。希望參議員泰德.克魯茲的SCRIPT法案能得到通過，希望司法部長威廉.巴爾能對跪舔中共的好萊塢電影業進行法律的約束，讓好萊塢重新回到正確的價值觀。
 
-接下來迎接72小時的會不會是三藩市領事館呢？期待ing！
+[原文鏈接](https://www.newsweek.com/hollywood-has-long-played-chinas-ruleswill-new-cold-war-derail-that-1518947)
 
-（文章內容僅代表作者個人觀點）
+翻譯報導：Skagen 
+校對整理：人間四月
 
 0
