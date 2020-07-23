@@ -1,37 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國防部長：美國不希望有武裝沖突，但必須做好戰而勝之的準備！
-`2020-07-22 10:12 GM77` [轉載自GNews](https://gnews.org/zh-hant/272423/)
+## 中共三藩市領事館窩藏軍事生物科學家逃犯，下一個會不會是它
+`2020-07-22 23:53 Diago` [轉載自GNews](https://gnews.org/zh-hant/273210/)
 
-編撰：臺灣荔枝、xmly666（七角星）、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22234756/%E5%B0%81%E9%9D%A2-41.jpg)
+作者：Diago
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22100144/1144be6c-5c9b-4053-8c78-b0ba0e7db16d_cx0_cy6_cw0_w1023_r1_s-1.jpg)
+據All American [\[email protected\]](/cdn-cgi/l/email-protection):00 AM · Jul 23, 2020推文：
 
-**美軍正在嚴肅對待中共在亞太地區日益增加的軍事威脅，軍事層面已取得三大重要進展**
+> China harboring military-linked biologist fugitive at San Francisco consulate, FBI says [https://t.co/zibawxeWmD](https://t.co/zibawxeWmD) [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) [#AAG](https://twitter.com/hashtag/AAG?src=hash&amp;ref_src=twsrc%5Etfw) [#AAG2020](https://twitter.com/hashtag/AAG2020?src=hash&amp;ref_src=twsrc%5Etfw)
+> — All American Girl (@AIIAmericanGirI) [July 23, 2020](https://twitter.com/AIIAmericanGirI/status/1286118939131613185?ref_src=twsrc%5Etfw)
 
-美國防部長—埃斯珀，在倫敦國際戰略研究所發表的講話中指出，美國對確保印太地區的自由與開放是一個長期的承諾，它植根於美國的價值觀以及美國與該地區盟友與夥伴的經濟紐帶。
+另據 [**Gregg Re**](https://www.foxnews.com/person/r/gregg-re)[**| Fox News**](http://www.foxnews.com/)於北京時間2020年7月23日上午9:45分發佈的[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)（FBI：中共三藩市領事館窩藏軍事生物科學家逃犯）
 
-這位美國防部長表示，在過去的一年裏，中共軍隊在南中國海持續進行更加富有進攻性的侵略與擴張行動，加劇了這一地區的緊張局勢。埃斯珀說，美軍已經在三個方面取得了重大的進展。
+【The [Chinese](https://www.foxnews.com/category/world/world-regions/china) consulate [in San Francisco](https://www.foxnews.com/category/us/san-francisco) is harboring a biology researcher who falsely denied connections to the Chinese military to obtain a visa and gain access to the country, according to court documents filed by the FBI.
 
-埃斯珀首先強調的是美軍的作戰準備。一方面，美軍改變了傳統的作戰體系，對軍隊進行了現代化改造，強化了威懾力量，加大了對新武器的研發力度，並在高超音速、人工智能等具備改變戰爭模式的武器方面增加了投入。
+The filing came as part of a document that cited a slew of other alleged episodes in which Chinese nationals allegedly lied on their visa applications by hiding their military connections.】
 
-美國海軍的目標是建立未來型艦隊，使海軍的靈活性、生存能力和適應能力都要有實質性的提升。空軍采取了21世紀最先進的作戰理念，更加註重速度與靈活性。陸軍則側重把改進遠程武器作為優先目標，使其速度和距離都有了很大的提升。重型轟炸機將會在高風險地區變成永久性部署。
+根據FBI提交的法院檔，中國駐三藩市領事館正窩藏著一位元生物學研究人員，該研究人員通過否認與中共軍方的關係騙取簽證從而進入美國。該份法院檔來源於一份引用一系列其他指稱中國公民通過隱匿與中共軍方關係而獲取簽證的檔。
 
-**美軍擴大與亞太地區國家的合作**
+【Tang Juan, a researcher at the University of California, Davis, stated on her J-1 visa application that she “had never served in the military, but open source investigation revealed photographs of her in the uniform of the Civilian Cadre of the PLA [People’s Liberation Army], and that she had been employed as a researcher at the Air Force Military Medical University, which is another name for FMMU [Fourth Military Medical University],” the FBI claimed.】
 
-第二個方面是擴大和鞏固與亞太地區國家的合作。美國跟新加坡、印度尼西亞、菲律賓、越南、泰國、澳大利亞、新西蘭、韓國、日本、臺灣、印度、孟加拉國等國家在安全、軍事方面的合作也得到了很大的加強。
+加利福尼亞大學大衛斯分校的研究員唐娟在她的J-1簽證申請中說，她從未在軍隊中服役，但是公開信息顯示她在中共空軍軍醫大學穿著解放軍制服的照片，並且她曾受聘于空軍軍醫大學，也就是中共第四軍醫大學。
 
-埃斯珀說，美軍的軍事改革將會讓盟友感到更加可靠，讓美國的對手感到更加變化莫測。
+【Then, during an interview with FBI agents on June 20, Tang “denied serving in the Chinese military, claimed she did not know the meaning of the insignia on her uniform, and that wearing a military uniform was required for attendance at FMMU because it was a military school.”】
 
-**亞太地區國家之間相互合作**
+然後，在6月20日接受聯邦調查局特工詢問時，唐“否認在中國軍隊服役，聲稱她不知道其制服上的徽章的含義，因為這是一所軍事院校所以在學校被要求穿軍裝。”
 
-埃斯珀提到的第三個方面，是亞太地區國家之間的相互合作。在這方面，埃斯珀表示，日本發揮著重要作用。日本主要負責向菲律賓、馬來西亞、孟加拉國等提供了導彈等武器裝備。
+**[READ THE COURT DOCUMENTS](https://www.courtlistener.com/recap/gov.uscourts.cand.362599/gov.uscourts.cand.362599.4.0.pdf)**
 
-**編者觀點：**
+【The FBI revealed it then executed a search warrant immediately at Tang’s home and found additional evidence of Tang’s PLA affiliation.】
 
-美國防安全部也已經充分意識到，中共對美國以及在南海對東南亞國家構成的嚴重威脅，以往睜一只眼閉一只眼，但是現如今，當美軍了解到新冠肺炎的真相後，美軍再也不能坐視不管了。這是因為CCP發動的這場生化武器——病毒戰，已經徹底威脅到了美國人的利益以及美國人的生命。在資本主義的國家，也許只有真正觸及到他們的利益及安全，他們才會真正當回事。美國部門已經看清此次新冠肺炎是由中共制造並且擴散到全世界，給美國人民及世界人民帶來了巨大的死亡。昨天，班農先生在作戰室講到，即將給中共72小時，不然美軍就要行動了。結合此次國防部長的最新講話，加上之前司法部的表態以及美軍和澳日印等正在舉行的聯合軍演，我們可以看出，嘴炮綏靖時代已經過去，一切重錘行動已經開始。
+聯邦調查局（FBI）透露，隨後立即在唐娟家中實施搜查，並且發現唐與中共軍方有聯繫的其他證據。
 
-原文鏈接：[https://www.voachinese.com/a/defense-secretary-mark-esper-speak-international-institute-strategic-studies-london-20200721/5511329.html](https://www.voachinese.com/a/defense-secretary-mark-esper-speak-international-institute-strategic-studies-london-20200721/5511329.html)
+【”The FBI assesses that, at some point following the search and interview of Tang on June 20, 2020, Tang went to the Chinese Consulate in San Francisco, where the FBI assesses she has remained,” the bureau announced.】
 
-1
+聯邦調查局宣佈：“在2020年6月20日對唐（Tang）進行搜查和詢問後的不久，唐（Tang）前往中國駐三藩市的領事館，聯邦調查局（FBI）認為她依然被窩藏在中共三藩市領事館內。”
+
+There existed evidence in at least one case “of a military scientist copying or stealing information from American institutions at the direction of military superiors in China,” the bureau went on. The court documents contained similar evidence against several other Chinese scientists.
+
+FBI官員還說，至少有一份證據“軍事科學家在中共軍方上級的指令下從美國機構複製或竊取資訊”。 法院檔中包含針對其他幾位中國科學家的類似證據。
+
+【Chen Song, for example, was an “active duty People’s Liberation Army military scientist who lied to get into the United States, attempted to destroy evidence and lied extensively to the FBI when interviewed,” the government wrote in charging documents】
+
+例如，陳頌是一名“中共軍方現役的軍事科學家，在被FBI詢問時試圖損毀證據並向向FBI公然撒謊”，政府在起訴檔中寫道。
+
+注：本文僅為[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)部分內容，更多細節請閱讀原文。
+
+綜述：休斯頓領事館已經在72小時中，在2020年7月22日最新的白宮疫情記者會上【Trump himself said more closures could be coming if China didn’t change its behavior. “It’s always possible,”】，川普總統本人說如果中共不改變其行事方式，接下來會有更多的中共使領館被關閉，這一直是可能的。
+
+接下來迎接72小時的會不會是三藩市領事館呢？期待ing！
+
+（文章內容僅代表作者個人觀點）
+
+0

@@ -1,18 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】7月19日班農在福克斯的重磅採訪: 美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相
-`2020-07-22 19:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272781/)
+## 突發：中共舊金山領事館藏軍方間諜疑簽證造假被FBI通緝
+`2020-07-23 02:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/273388/)
 
-**[2020年7月19日班農在福克斯的重磅採訪](https://gnews.org/zh-hans/270024/)中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行, 
-制裁共產黨高層,直到中共坦白全部中共病毒真相**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23020858/1-107.png)圖片來源：The New York Times 
+據CNBC最新報導，FBI指控一位生物專家隱瞞中共軍方背景騙取美國簽證。目前該專家窩藏在舊金山領事館，拒絕被逮捕。
 
-[‪【中文版】中共撒謊，美國人死亡,美國必須直面中共,脫鉤美元,制裁中共銀行,制裁共產黨高層,直到中共坦白全部中共病毒真相](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194421/7%E6%9C%8820%E6%97%A5%E7%A6%8F%E5%85%8B%E6%96%AF%E9%87%87%E8%AE%BF%E7%8F%AD%E5%86%9C%E5%85%88%E7%94%9F.pdf)
+在2020年6月20號，根據唐女士的採訪和調查內容，FBI得知她逃到中共駐舊金山領事館，現在依然呆在裡面。在美國與中共關係加速緊張的背景下，該調查恐會使緊張關係繼續升級。
 
-[【英文版】The CCP lied and Americans died. The US must face the CCP head on by decoupling the dollar, by sanctioning the CCP banks and high-level officials. The measures must be carried out until the CCP comes clean about the truth of the CCP virus.](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194429/720-EN-Mr-Banon-Foxnews-Interview.pdf)
+據法院文件表明，去年秋天，唐娟申請了非移民簽證在加利福尼亞大學戴維斯分校進行科學研究。但是FBI特工在網上找到她的軍裝照片。於是，FBI在6月20號詢問了她的簽證申請情況。她強調沒有在中共軍隊服役，不是中共黨員。在FBI詢問後，她跑到舊金山領事館，目前依然在裡面。 6月26號，美國政府對她的簽證欺詐行為進行了聯邦指控。
 
-[【法語版】Le PCC a menti, les américains sont morts. Les Etats-Unis doivent affronter le PCC face à face par le découplage du dollar avec la devise chinoise et par les sanctions contre les banques et les dirigeants du PCC. Ces mesures doivent être appliquées et maintenues jusqu’au moment où le PCC avoue toute la vérité par 下載 à son virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22194440/7.20FRBanon-Foxnews-.pdf)
+美國國家部門在星期三命令中共關閉休斯頓領事館。官方說明此舉動是在保護美國知識產權和私人信息。司法部在星期二指出兩名中國公民試圖駭客疫苗公司偷取商業機密。川普政府包括FBI局長克里斯托弗·A·雷，也已經強烈批評中共濫用黑客攻擊美國機構偷盜知識產權的行為。美國還試圖制裁華為，擔心其無線網絡會用於監控美國公民。
 
-製作：【秘密翻譯組G-Translators】
+唐軍官窩藏在領事館的細節揭露了另一起中共國公民簽證欺詐的案件。美國律師試圖將唐軍官案件和其他有中共軍方背景的研究人員聯繫起來，聚焦到中共的第四軍醫大學，該大學屬於中國解放軍的高校。律師寫道“被告案不是一個孤立的案件，似乎是中共軍方操縱的眾多案件其中之一，特別是第四軍醫大學和其聯合機構。這些機構將中共軍方科學家通過偽裝身份掩蓋其真實目的送到美國。”律師又寫道“這些案件中至少一個存在確鑿證據，證明軍方科學家從美國機構中抄襲偷取信息並傳給中共軍方長官。”
+
+Axios新聞曾報導到過唐軍官案件，指出中共外交官使用外交豁免權庇護中共罪犯，屬於非正常行為。中共外交官濫用《維也納條約法公約》，此公約規定外交官如何在別國行使權力，並指出大使館和領事館人員如有犯罪行為，應當遵循當地法律和規定。中共領事館庇護罪犯違反了公約。
+
+美國政府在6月20號的文件中說道“唐軍官案件反映出舊金山中共領事館為中共軍方提供潛在的庇護所從而阻止美國聯邦調查。”而目前中共駐華盛頓大使館發言人沒有立即回應。
+
+評：
+
+中共國在全世界的大使館和領事館都會陸續關閉，美國的休斯頓領事館只是多米諾骨牌的第一張，舊金山領事館窩藏間諜案是一個重要的加速領事館關閉的催化劑。中共領事館窩藏間諜揭示了中共藍金黃的事實，並給全世界政府最直白的警示。全世界都會掀起一波和中共國的斷交熱潮，緊跟其後的就是熱戰了吧。戰友們，加油！中倒台已經不遠了。
+
+[原文鏈接](https://www.cnbc.com/2020/07/22/chinese-consulate-in-san-francisco-harboring-fugitive-fbi-says.html)
+
+翻譯報導： justin\_x 
+校對整理：人間四月
 
 0

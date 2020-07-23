@@ -1,17 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英雄科學家闫麗夢
-`2020-07-23 04:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/273466/)
+## 華為成燙手山芋法國也不接了
+`2020-07-23 07:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/273626/)
 
-**作者：德意志之鷹**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23070006/1-108.png)
+據《亞洲新聞》最新報導，法國當局已告知計劃購買華為5G設備的電信運營商，一旦設備許可證到期，將無法續證，實際意義上就是把華為逐步從法國踢出局。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040456/image0-1-5.jpg)
+此前美國明確表示，華為的設備可能會被中共用於間諜活動，並已敦促其盟友予以禁止。英國隨後表態，將禁止購買華為設備，且要在2027年前將所有華為設備從英國5G網絡中清除。
 
-[**英雄科學家闫麗夢**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040349/%E6%96%87%E6%A1%88-%E9%97%AB%E4%B8%BD%E6%A2%A6.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040349/%E6%96%87%E6%A1%88-%E9%97%AB%E4%B8%BD%E6%A2%A6.pdf)
+法國此舉和英國相似，目的是在未來幾年內逐步把華為設備從國家移動網絡中踢出。從中可以看出，法國與歐洲其他國家一樣，在中美兩個超級大國日益緊張的地緣政治風暴中需要明確立場。
 
-**請點擊下載按鈕，下載文檔觀看！**
+本月，法國國家網絡安全局（French National Cybersecurity Agency, 簡稱ANSSI）表示將允許運營商使用包括華為在內的有3到8年許可的設備。但是又另外補充，並力勸目前沒有使用中共公司設備的運營商不要使用，以免將來需要替換。
 
-（文章內容僅代表作者觀點）
+雖然ANSSI的決定尚未正式公佈且不予置評，但是消息人士稱，ANSSI已經把決定告知各大城市的運營商。他們還透露，大部分華為設備的授權期為三年或五年，而愛立信和諾基亞等歐洲競爭對手的大部分設備卻獲得了八年授權。鑑於許可證的期限很短，這樣做實際上等於到2028年華為將在法國5G網絡中消失。這也無疑給正在使用華為設備的法國運營商布依格電信（Bouygues）和Altice集團帶來大麻煩，意味著他們將要花大價錢更換現有的基礎設施。
+
+**評論：**
+
+此前，有报导称法国法国财政部长表态不会禁止华为在法国投资5G，中共大外宣奔走相告。随即，法国当局私下通知运营商不予给华为设备续证。道。被啪啪打脸的中共大外宣，疼吗？
+
+[原文鏈接](https://www.channelnewsasia.com/news/business/exclusive--french-limits-on-huawei-5g-equipment-amount-to-de-facto-ban-by-2028-12954480)
+
+翻譯報導：姜之晗
 
 1

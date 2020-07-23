@@ -1,53 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國國會議員將提出法案以阻止中共國對台灣的攻擊
-`2020-07-22 10:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/272508/)
+## 被 FBI 通緝解放軍相關科研人員　據報藏身三藩市中國總領事館
+`2020-07-23 00:31 GM15` [轉載自GNews](https://gnews.org/zh-hant/273254/)
 
-*新聞來源：《Focus Taiwan》*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23002949/image0-22.jpg)
+美國要求中國關閉駐休斯敦總領事館之際，傳出一名被美國聯邦調查局（FBI）通緝、被指與中國解放軍有聯繫的研究員 — 唐娟（Tang Juan 譯音），進入了中國三藩市總領事館。
 
-*作者：Stacy Hsu and Ko Lin*
+美國媒體[Axios](https://www.axios.com/san-francisco-consulate-harboring-chinese-military-researcher-fbi-17325706-7983-4b17-aa6f-f19a450b646b.html)報道，當局已知會中國她是被通緝的，「中方毫無疑問知道那人是逃犯。」
 
-*發佈時間：07/20/2020*
+據 Axios 引述聯邦檢察官於 7月 20 日遞交的[法庭文件](https://www.documentcloud.org/documents/6999950-Tang-Juan-2-1.html)顯示，唐娟以交流訪問學者簽證去美國，於加州大學戴維斯分校從事研究工作。她在申請簽證時，並無披露自己曾效力中國人民解放軍空軍軍醫大學，美方的調查更指，她是現役軍人。FBI 在得到法庭搜令後，在唐娟的住所找到她與解放軍有聯繫的證據。唐娟於 6 月 20 日接受調查人員問話，[26日 被指控涉嫌簽證欺詐](https://www.documentcloud.org/documents/6999951-Tang-Juan-1-1.html)。
 
-*翻譯/簡評：文明明*
+文件指，唐娟於 20 日的問話後不久即進入中國三藩市總領事館，並一直留在該處。事件表明，中國三藩市總領事館有意為解放軍人員免受美國起訴提供庇護。
 
-*校對：leftgun*
+法庭文件又提到，除了唐娟之外，近日數宗類似案件都同解放軍或其相關機構有關，當中包括一名史丹福大學交流研究員 Song Chen。報道指，這些來自中國軍方的科學家在申請美國簽證時，隱瞞與軍方的關係，作假聲明。
 
-*審核：InAHurry*
+中國駐華盛頓及三藩市總領事館均暫未回應事件。
 
-*Page：刀削麵面*
+[GM40]新聞引用自 [https://www.thestandnews.com/international/被-fbi-通緝解放軍相關科研人員-據報藏身三藩市中國總領事館/](https://www.thestandnews.com/international/%E8%A2%AB-fbi-%E9%80%9A%E7%B7%9D%E8%A7%A3%E6%94%BE%E8%BB%8D%E7%9B%B8%E9%97%9C%E7%A7%91%E7%A0%94%E4%BA%BA%E5%93%A1-%E6%93%9A%E5%A0%B1%E8%97%8F%E8%BA%AB%E4%B8%89%E8%97%A9%E5%B8%82%E4%B8%AD%E5%9C%8B%E7%B8%BD%E9%A0%98%E4%BA%8B%E9%A4%A8/)
 
-**簡評：**
-
-*隨著疫情在全世界的擴散、香港國安法的實施、一帶一路的擴張政策以及國際藍金黃計劃和盜竊知識產權等行為的曝光，全世界對中共在經濟上、政治上和軍事上的威脅日趨清醒，世界各國紛紛出台製裁政策。在國內由於人民幣超發、官員貪污腐敗、各地疫情四起以及超級洪水肆虐，使經濟面臨崩潰、老百姓民不聊生、中共政權也是危機四伏。*
-
-*在內外交困之際，中共是否有可能為了轉移國內外的注意力，孤注一擲，對台灣發起武統呢？目前，這個問題無人可以回答，但是做好最壞的打算是十分有必要的。*
-
-*由共和黨眾議院議員泰德·尤霍發起的《台灣入侵防禦法》將會起到威懾中共、防止中共對台灣發起突然進攻的作用，也是給台灣最有效的保護。中共已經毀了一個香港，決不能再讓它毀了台灣。希望《台灣入侵防禦法》能夠早日通過和實施。*
-
-#### 
-
-##  **美國國會議員將提出法案以阻止中共國對台灣的攻擊** 
-
-
-[!\[\](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b57d060b-ff2c-49b8-8abe-4145ff415ee1.jpg?asset_id=7df1afe1-fd26-4371-8ae1-3c7e3aadef8f&amp;img_etag=%2275bc719892c1322f34d54addb269db84%22&amp;size=1024)](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b57d060b-ff2c-49b8-8abe-4145ff415ee1.jpg?asset_id=7df1afe1-fd26-4371-8ae1-3c7e3aadef8f&amp;img_etag=%2275bc719892c1322f34d54addb269db84%22&amp;size=1024)共和黨眾議院議員泰德·尤霍（Ted Yoho）/ CNA檔案照片
-7月19日（CNA）華盛頓，共和黨眾議院議員泰德·尤霍（Ted Yoho）在周末表示，他計劃提出一項法案，授權美國總統在中共國決定進攻台灣時可以用武力回擊。
-
-上週五，尤霍（Yoho）在接受福克斯商業網絡（Fox Business Network）的一次採訪中說：“下週，我們將提出一項法案，該法案將被稱為《台灣入侵防禦法》。”
-
-作為美國眾議院亞洲事務小組委員會成員的共和黨議員，尤霍（Yoho）是在被問到台灣持續受到中共國威脅，美國是否給予台灣足夠的支持時，發表這一聲明的。
-
-作為台灣的聲援者，尤霍（Yoho）說：“這項《台灣入侵防禦法》將非常明確地表明我們的意圖。 事實上，這項法案會在中共國入侵台灣時授權使用武力（AUMF） 。這項法案將授予總統使用武力的授權（AUMF）。授權使用武力(AUMF)的日落條款規定法案將在每五年審核一次。”
-
-他指出，目前美國根據1979年生效的《台灣關係法》，承諾向台灣出售足夠台灣自衛的武器裝備。
-[!\[\](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b5342a68-c4df-4ebb-bcd5-0a7715efb1a4.jpg?asset_id=00395e6a-a86e-48e2-b314-00f734f50b06&amp;img_etag=%222089bc3947d3f56d113aaee3305d854b%22&amp;size=1024)](https://spark.adobe.com/page/yETPKuHECJ2c9/images/b5342a68-c4df-4ebb-bcd5-0a7715efb1a4.jpg?asset_id=00395e6a-a86e-48e2-b314-00f734f50b06&amp;img_etag=%222089bc3947d3f56d113aaee3305d854b%22&amp;size=1024)
-尤霍說：“習近平宣布他已經準備好，不惜流血也要統一台灣。但是他們卻忘記了征求台灣的意見，台灣從來就不是中華人民共和國的一部分，他們也不想加入。”
-
-尤霍（Yoho）在Lou Dobbs主持的“紅色風暴”節目中接受了該採訪，該節目著眼於中共國在亞太地區的擴張主義野心。
-
-[原文鏈接](https://focustaiwan.tw/politics/202007200007)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/yETPKuHECJ2c9/)
-
-1
+0

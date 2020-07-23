@@ -1,68 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情影響，香港換屆選舉有變數
-`2020-07-22 11:28 GM77` [轉載自GNews](https://gnews.org/zh-hant/272573/)
+## 中共三藩市領事館窩藏軍事生物科學家逃犯，下一個會不會是它
+`2020-07-22 23:53 Diago` [轉載自GNews](https://gnews.org/zh-hant/273210/)
 
-編撰:文卡西歐、臺灣荔枝、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22234756/%E5%B0%81%E9%9D%A2-41.jpg)
+作者：Diago
 
-中共國人大常委、民建聯前主席譚耀宗今日（20日）指，基於疫情嚴峻，政府不應排除壓後 9 月立法會換屆選舉。中聯辦控制的《大公報》亦發社評，指抗疫是頭等大事，政府應堵塞所有漏洞，包括推遲立法會選舉以減少人群聚集帶來的播疫風險。 《大公報》以《全民抗疫是壓倒一切的頭等大事》為題[發表社評](http://www.takungpao.com/opinion/233114/2020/0720/476914.html)，稱疫情失控蔓延是威脅香港的最大危機，為抗疫特區政府必須堵塞所有漏洞，並要準備預案采取必要措施，包括推遲立法會選舉以減少人群聚集帶來的疫情傳播風險。
+據All American [\[email protected\]](/cdn-cgi/l/email-protection):00 AM · Jul 23, 2020推文：
 
-**筆者認為：**
+> China harboring military-linked biologist fugitive at San Francisco consulate, FBI says [https://t.co/zibawxeWmD](https://t.co/zibawxeWmD) [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) [#AAG](https://twitter.com/hashtag/AAG?src=hash&amp;ref_src=twsrc%5Etfw) [#AAG2020](https://twitter.com/hashtag/AAG2020?src=hash&amp;ref_src=twsrc%5Etfw)
+> — All American Girl (@AIIAmericanGirI) [July 23, 2020](https://twitter.com/AIIAmericanGirI/status/1286118939131613185?ref_src=twsrc%5Etfw)
 
-立法會換屆選舉9月6日舉行，中共對這次選舉有多少勝算？ 如果沒有勝劵在握會出甚么花招來阻撓大選？ 這不是港人陰謀論和杞人憂天，是中共一貫以來的施政作風。
+另據 [**Gregg Re**](https://www.foxnews.com/person/r/gregg-re)[**| Fox News**](http://www.foxnews.com/)於北京時間2020年7月23日上午9:45分發佈的[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)（FBI：中共三藩市領事館窩藏軍事生物科學家逃犯）
 
-換屆選舉提名期由7月18日開始，各黨派陸續報名。 就在此時，香港偏偏爆發了第三波疫情，已經有建制派議員向林鄭政府提議，建議立法會選舉延期舉行，這也坐實了港人擔心的事實。
+【The [Chinese](https://www.foxnews.com/category/world/world-regions/china) consulate [in San Francisco](https://www.foxnews.com/category/us/san-francisco) is harboring a biology researcher who falsely denied connections to the Chinese military to obtain a visa and gain access to the country, according to court documents filed by the FBI.
 
-香港第三波疫情爆發愈發變的詭異，與《港版國安法》推行進度高度吻合。坊間一直有傳聞，「港府容許特定人士豁免檢疫，在執行限聚令時存在雙重標準是這次爆發的始作俑者」，現在呈跳躍式反彈的疫情個案大部份都來自於建制派搞的飯局群組以及警察家屬的家庭聚會。 而黨媒和左報卻出奇一致地只字不提群組爆發，都把矛頭指向「初選」，栽贓說是因為初選61萬人上街的結果。
+The filing came as part of a document that cited a slew of other alleged episodes in which Chinese nationals allegedly lied on their visa applications by hiding their military connections.】
 
-香港醫管局無視前線醫護人員體力透支抗疫的辛苦，在醫療系統濱臨崩潰時竟然宣布全體員工凍薪，這等於是在已經非常低落的醫護士氣上再雪上加霜。 同時我們不禁要問政府，你們到底想幹什么？ 你們是真心抗疫還是想假借疫情做見不得人的勾當？
+根據FBI提交的法院檔，中國駐三藩市領事館正窩藏著一位元生物學研究人員，該研究人員通過否認與中共軍方的關係騙取簽證從而進入美國。該份法院檔來源於一份引用一系列其他指稱中國公民通過隱匿與中共軍方關係而獲取簽證的檔。
 
-現在建制派出手希望港府延期選舉，讓人看到一些端倪，他們想用疫情無限期拖延立法會選舉，當選舉無法依期舉行，這屆立法會就可以順理成章地成為臨時立法會。此步棋不但可以避免建制派大敗的局面，更加可以令來年財政預算案避免被否決，避免林鄭的施政陷入癱瘓。這所有的一切都是為了共產黨的政權，港府出賣香港人民利益，嚴重破壞香港法治制度，賣掉了香港人的未來。
+【Tang Juan, a researcher at the University of California, Davis, stated on her J-1 visa application that she “had never served in the military, but open source investigation revealed photographs of her in the uniform of the Civilian Cadre of the PLA [People’s Liberation Army], and that she had been employed as a researcher at the Air Force Military Medical University, which is another name for FMMU [Fourth Military Medical University],” the FBI claimed.】
 
-共產黨為了他們可以繼續執政真的可謂是無所不用其及，無視疫情漫延，無視前線醫護體力透支，無視醫療系統崩塌，無視人民生命…… 。所以我們要反抗，不把這個魔鬼消滅，我們不可能有平安，不把它消滅我們將永無寧日。
+加利福尼亞大學大衛斯分校的研究員唐娟在她的J-1簽證申請中說，她從未在軍隊中服役，但是公開信息顯示她在中共空軍軍醫大學穿著解放軍制服的照片，並且她曾受聘于空軍軍醫大學，也就是中共第四軍醫大學。
 
-### **醫管局宣布全體員工凍薪****，****工會斥打擊士氣****，****警告管理層未必擔當得起後果**
+【Then, during an interview with FBI agents on June 20, Tang “denied serving in the Chinese military, claimed she did not know the meaning of the insignia on her uniform, and that wearing a military uniform was required for attendance at FMMU because it was a military school.”】
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22105621/7.22-41.png)
+然後，在6月20日接受聯邦調查局特工詢問時，唐“否認在中國軍隊服役，聲稱她不知道其制服上的徽章的含義，因為這是一所軍事院校所以在學校被要求穿軍裝。”
 
-![]()醫院管理局今日（21日）宣布，由本年4月1日起，凍結所有員工薪酬。 醫管局人力資源主管彭飛舟向全體員工發信，指醫管局大會已通過，各薪級表、薪幅及津貼金額凍結。 醫管局員工陣線主席余慧明表示，負壓病房即將不勝負荷，所有前線後援的醫療團隊都面對極沈重壓力，若然要一眾仍在戰場上抗疫的同事，共同承受政府不作為的惡果，與公務員同樣凍薪，只會醫療團隊士氣更為低落。她又透露，已有不少醫護萌生去意。
+**[READ THE COURT DOCUMENTS](https://www.courtlistener.com/recap/gov.uscourts.cand.362599/gov.uscourts.cand.362599.4.0.pdf)**
 
-根據發出的通告，醫管局大會已通過，由今年4月1日起，各薪級表、薪幅及津貼金額凍結，但通告中沒有解釋原因。
+【The FBI revealed it then executed a search warrant immediately at Tang’s home and found additional evidence of Tang’s PLA affiliation.】
 
-醫護在本年初曾發起罷工，促請政府封關。余慧明重提事件，指政府不封關是不作為，她擔心凍薪令醫療團隊的士氣更低落，又指已有不少同事萌生去意，擔憂在抗疫期間人手嚴重流失，會導致醫療系統崩潰。她又警告，政府及醫管局管理層會因此負上責任，恐怕政府以及醫管局管理層，並未能夠擔當得起。而管理層同樣需為政府的抗疫失敗負上同等責任”。
+聯邦調查局（FBI）透露，隨後立即在唐娟家中實施搜查，並且發現唐與中共軍方有聯繫的其他證據。
 
-另外，余慧明引述醫管局員工，指員工對難以領取津貼感到不滿，高危地區工作的津貼，即使符合條件仍不獲上司批準，又或者被上司以行政手段，令同事無法達到領取津貼的條件，她又說，凍薪會令情況雪上加霜。
+【”The FBI assesses that, at some point following the search and interview of Tang on June 20, 2020, Tang went to the Chinese Consulate in San Francisco, where the FBI assesses she has remained,” the bureau announced.】
 
-消息來源：
-[https://www.thestandnews.com/politics/%E9%86%AB%E7%AE%A1%E5%B1%80%E5%AE%A3%E5%B8%83%E5%85%A8%E9%AB%94%E5%93%A1%E5%B7%A5%E5%87%8D%E8%96%AA-%E5%B7%A5%E6%9C%83%E6%96%A5%E6%89%93%E6%93%8A%E5%A3%AB%E6%B0%A3-%E8%AD%A6%E5%91%8A%E7%AE%A1%E7%90%86%E5%B1%A4-%E6%9C%AA%E5%BF%85%E6%93%94%E7%95%B6%E5%BE%97%E8%B5%B7-%E5%BE%8C%E6%9E%9C/?fbclid=IwAR1Rx\_Epc0i5zhMFDNeN7a-9KEVN\_K5HiCwjgU0bIyaV0tqVNQeN47ysvzc](https://www.thestandnews.com/politics/%E9%86%AB%E7%AE%A1%E5%B1%80%E5%AE%A3%E5%B8%83%E5%85%A8%E9%AB%94%E5%93%A1%E5%B7%A5%E5%87%8D%E8%96%AA-%E5%B7%A5%E6%9C%83%E6%96%A5%E6%89%93%E6%93%8A%E5%A3%AB%E6%B0%A3-%E8%AD%A6%E5%91%8A%E7%AE%A1%E7%90%86%E5%B1%A4-%E6%9C%AA%E5%BF%85%E6%93%94%E7%95%B6%E5%BE%97%E8%B5%B7-%E5%BE%8C%E6%9E%9C/?fbclid=IwAR1Rx_Epc0i5zhMFDNeN7a-9KEVN_K5HiCwjgU0bIyaV0tqVNQeN47ysvzc)
+聯邦調查局宣佈：“在2020年6月20日對唐（Tang）進行搜查和詢問後的不久，唐（Tang）前往中國駐三藩市的領事館，聯邦調查局（FBI）認為她依然被窩藏在中共三藩市領事館內。”
 
-### **譚耀宗倡選舉延期****，****民主派斥其選情行先****，****對建制無信心**
+There existed evidence in at least one case “of a military scientist copying or stealing information from American institutions at the direction of military superiors in China,” the bureau went on. The court documents contained similar evidence against several other Chinese scientists.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22105611/7.22-4%EF%BC%882%EF%BC%89.png)
+FBI官員還說，至少有一份證據“軍事科學家在中共軍方上級的指令下從美國機構複製或竊取資訊”。 法院檔中包含針對其他幾位中國科學家的類似證據。
 
-![]()立法會換屆選舉9月6日舉行，換屆選舉提名期由18日開始，各黨派陸續報名。適逢本港病毒第三波疫情爆發，中共人大常委譚耀宗出席電臺節目時表示，建議立法會選舉延期舉行。 民主派認為，選舉延期與否應交由專家決定，斥其是選情行先，對於建制派無信心。
+【Chen Song, for example, was an “active duty People’s Liberation Army military scientist who lied to get into the United States, attempted to destroy evidence and lied extensively to the FBI when interviewed,” the government wrote in charging documents】
 
-#### **譚耀宗呼籲立法會選舉延期舉行**
+例如，陳頌是一名“中共軍方現役的軍事科學家，在被FBI詢問時試圖損毀證據並向向FBI公然撒謊”，政府在起訴檔中寫道。
 
-譚耀宗今日（7月21日）出席電臺節目時表示，建議立法會選舉延期是要提醒政府，一旦疫情不受控，應研究及應對選舉能否繼續，以及涉及立法會真空期出現的法律問題等。他又強調，建制派的選情並非主要問題，首要是疫情和市民健康。
+注：本文僅為[China harboring military-linked biologist fugitive at San Francisco consulate, FBI says](https://www.foxnews.com/politics/chinese-military-linked-biologist-fugitive-san-francisco-consulate-fbi)部分內容，更多細節請閱讀原文。
 
-譚耀宗又稱，現時回港需檢疫14日，在大灣區城市生活的港人想返來都返不到，恐難以參與投票。 他認為，港府應評估疫情何時受控，又舉例說，東京奧運都可延遲一年。
+綜述：休斯頓領事館已經在72小時中，在2020年7月22日最新的白宮疫情記者會上【Trump himself said more closures could be coming if China didn’t change its behavior. “It’s always possible,”】，川普總統本人說如果中共不改變其行事方式，接下來會有更多的中共使領館被關閉，這一直是可能的。
 
-近日，建制團體”中華輝煌會”於雅蘭中心舉行“慶回歸”活動時，逾百人除罩熱舞後多人確診，被問及是否「抵鬧（該挨罵）」時？ 譚耀宗回應稱，不知個案是否「抵鬧」，譚反問為何民主派舉辦的一連兩日初選，數十萬人外出也沒事？ 質疑是否太神奇。
+接下來迎接72小時的會不會是三藩市領事館呢？期待ing！
 
-對此，有網友回復說，「就是因為有和無戴口罩的分別啰！ 」也有網友說，「沒有甚么神奇丫 ！ 中共想延期選舉，拖延政策。 」
+（文章內容僅代表作者個人觀點）
 
-港大感染及傳染病中心總監何柏良在電臺節目中亦指出，本港基本上未有出現因排隊而受感染的群組個案。 他表示，只要在投票站內外采取合適的防疫措施，包括強制戴口罩、管理人流，應有助於減低病毒傳播風險。
-
-#### **陳淑莊斥建制派「選情行先」**
-
-民主派港島區初選勝出的公民黨鄭達鴻質疑譚耀宗的說法，指選舉延期與否應交由醫學專家判斷，而非由譚耀宗等人提出，如果他這么早講，是不是對於自己選情無信心。
-
-民主派會議召集人陳淑莊亦批評建制派選情行先，強行押後選舉。 她指出，疫情期間，韓國、新加坡等均有進行選舉，采取不同防疫措施，包括延長投票時間、禁止拉票、允許隔離人士或患者授權投票等，認為港府應該參考。
-
-陳淑莊亦強調，選舉延期與否應交由專家決定。 她又要求港府全面封關控制疫情，令選舉可順利進行。
-
-消息來源：[https://hk.epochtimes.com/news/2020-07-21/16132453](https://hk.epochtimes.com/news/2020-07-21/16132453)
-
-1
+0
