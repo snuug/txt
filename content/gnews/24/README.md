@@ -1,43 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 休斯頓中領燒文件和新西蘭3位反共人士遭遇嚴重車禍的微妙關係
-`2020-07-22 23:48 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/273197/)
+## 英雄科學家闫麗夢
+`2020-07-23 04:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/273466/)
 
-作者：G-power
+**作者：德意志之鷹**
 
-據新西蘭當地媒體Stuff報導，7月21日下午1：05，在奧克蘭Tokoroa附近的1號國道發生嚴重車禍，兩人死亡，三人受重傷被送往醫院。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040456/image0-1-5.jpg)
 
-從新西蘭警方了解到的消息，在這場車禍中，三位反共人士搭乘紅色轎車，正常靠左行駛，遭遇到對面黑色皮卡越界迎面相撞，導致副駕駛一側的兩位朋友當場身亡，駕駛側的朋友重傷。黑色皮卡的司機和乘客重傷，目前未知這兩名傷者的身份。
+[**英雄科學家闫麗夢**](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040349/%E6%96%87%E6%A1%88-%E9%97%AB%E4%B8%BD%E6%A2%A6.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23040349/%E6%96%87%E6%A1%88-%E9%97%AB%E4%B8%BD%E6%A2%A6.pdf)
 
-當場去世的2位為民陣新西蘭主席習衛國、獨立中文筆會成員王樂成，另外1位情況危急被送往ICU病房搶救，為新西蘭價值聯盟成員余洪明。當時三人正驅車前往首都惠靈頓，是準備參加22日10時在惠靈頓國會廣場的“抗議中共滲透，守護新西蘭”集會，並為參與新西蘭國會對中共在新西蘭的滲透調查作證。余洪明是活動聯繫人之一。
+**請點擊下載按鈕，下載文檔觀看！**
 
-图片显示两车损伤严重。
-![在Tokoroa南部发生的一次车祸中，两人丧生，三人受伤](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22231817/10.jpg)
-根據Stuff網站的報導，當時還有第三輛貨車，在紅色轎車的前方，黑色皮卡和這輛貨車也有剮蹭。新西蘭急救組織派遣4架直升機、5輛救護車到現場。其中2人當場死亡，3人通過直升機和救護車緊急送往醫院。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22233604/WhatsApp-Image-2020-07-23-at-3.34.48-PM.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232013/9-3.png)![没有照片描述。](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232001/8.jpg)
-*警察提供的示意图*
-![图片中可能有：户外](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232026/7-3.jpg)
-新西蘭坎特伯雷大學教授、中共問題專家安妮·瑪麗·布雷迪 (Anne-Marie Brady) 教授也對此事故非常關注，她發推表示自己已聯繫去醫院探望的陳維健，獲知余洪明仍然不省人事。有網友Jack留言說，餘的妻子和兒子已被接到哈密爾頓朋友家中，請教授不要擔心。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232051/6-6.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232103/5-9.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232216/4-20.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232230/3-16.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232648/11-7.jpg)
-*余洪明和习卫国推特*
+（文章內容僅代表作者觀點）
 
-新西蘭政府被中共藍金黃滲透嚴重，讓廣大網友不得不心存質疑，此次事故是由於天氣、車輛故障等原因造成的正常事故，還是幕後另有其因？由於警方未曾披露更多真相，不得不讓人生疑。首先，事故的傷亡人員非常巧合，三位反共人士2死1重傷，而且是在去往新西蘭國會作證途中。有網友說，懷疑是暗殺，要是另一輛車的司機死了，那陰謀的可能就更大，畢竟死無對症。其次，事故時間點非常蹊蹺，發生在中共與五國聯盟及世界各國關係惡化之際，更是在中國青島籍病毒專家閆麗夢博士兩次接受Fox採訪，揭露中共和WHO聯合造假，讓全世界聚焦病毒真相之時。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22232523/1-74.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22233641/WhatsApp-Image-2020-07-23-at-3.34.44-PM.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22233534/WhatsApp-Image-2020-07-23-at-3.33.44-PM.jpeg)
-中共不僅綁架奴役14億中國人民和9000萬黨員，還將黑手伸向世界文明。中共是新型冠狀病毒的幕後黑手，由於中共製造並釋放病毒生化武器，至今已造成全球超過1500萬人感染60萬人死亡，使得全世界有史以來首次停擺，破壞力超過第二次世界大戰。中共是反普世價值的幕後黑手，他們血腥鎮壓香港民主運動，推出香港國安法，其38條明確指出，“不具有香港特區永久性居民身份的人在香港特區以外針對香港特區實施本法規定的犯罪的，適用本法。”除此之外，在美國以及部分歐洲國家爆發的Antifa運動，有證據顯示其背後也有中國共產黨的身影。這些都是對民主社會的價值觀的公然挑釁。那麼此次交通事故背後是否有中共的影子，是否與新西蘭大选和當前國際形勢有關，從近期世界局勢發展時間線（新西蘭時間）可見一般。
-
-7月9日，五國聯盟討論香港問題，相繼出台暫停引渡條例、給予港人庇護等措施。
-
-7月10日，新西蘭國家黨排位議員楊健宣布退休，其被媒體報導為中共間諜。
-
-7月19日，班農接受福克斯採訪時說，中共必須公開中共病毒真相，打開所有病毒實驗室，否則我們就切斷中共的一切。
-
-7月19日，美日澳三國海軍在南海、菲律賓海舉行聯合軍演。
-
-7月20日，中方駐新西蘭大使吳璽在新中貿易高峰論壇上上直接警告新西蘭，不要干涉中國內政，否則會影響兩國關係。
-
-7月21日，新西蘭工黨華人議員霍建強宣布退休，資料顯示其與中共關係緊密。
-
-7月22日，美國突然要求中方72小時內關閉駐休斯敦總領館，中共緊急焚燒機密文件銷毀核心資料。連美國總統川普都在記者會發問，中共到底在燒什麼。呼籲新西蘭警方查明真相，盡快給事故受難者家屬一個公正的調查結果。我们会继续跟踪受害者家属，找到真正的幕后黑手
-
-0
+1
