@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從雀巢中國變賣大陸資產看外資撤出中共潮
-`2020-07-22 09:35 GM77` [轉載自GNews](https://gnews.org/zh-hant/272407/)
+## 凱爾.巴斯先生告訴胡錫進領館關閉原因以及明天蓬佩奧的演講
+`2020-07-22 10:04 Diago` [轉載自GNews](https://gnews.org/zh-hant/272452/)
 
-編撰：文非、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16062624/images_%E5%89%AF%E6%9C%AC-1.jpg)
+作者：Diago
 
-世界最大的食品制造商雀巢集團，繼3月份宣布擬出售旗下銀鷺食品股權後，近日確認將繼續出售旗下一部分大陸瓶裝水業務。雀巢中國7月20日官方確認，公司正在考慮出售其在大陸地區的“雀巢優活”和“雲南山泉”業務，目前正在與可能的收購方進行洽談。外資從中國大陸的撤離行動從未停歇，一直在持續。
+據凱爾.巴斯先生9:09 PM · Jul 22, 2020推特：
 
-外資企業在中國大陸的撤離不是突發的，是一種趨勢，也是一種必然。中國大陸擁有14億人口的巨大市場，外資的持續撤離已經充分說明他們已經提前洞察到即將發生在中國大陸的巨大金融災難。這種破壞性之大足以迫使其放棄這一龐大市場，選擇離開。
+> I'm surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw). Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo's speech from the Nixon Presidential [https://t.co/t2qEFGwjEM](https://t.co/t2qEFGwjEM)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [July 22, 2020](https://twitter.com/Jkylebass/status/1285924843670720512?ref_src=twsrc%5Etfw)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22091945/1-103.png)
+全文如下：
 
-造成外資撤離的原因有哪些以及其撤離後附帶的影響是什麽？
+【I’m surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT) . Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo’s speech from the Nixon Presidential Library tomorrow. China’s “consulate” in Houston is not a diplomatic facility, it is the epicenter of the devious communist party’s vast network of spies & influence operations in the United States. The spies have 72 hours to leave or face arrest (generous in my opinion). Nixon/Kissinger is where it all began but the CPC has destroyed our willingness to wager on a more open, honest, and democratic China. The CPC is our enemy and our entire country is aware of this fact now. 再見 Hu. [#Decouple](https://twitter.com/hashtag/Decouple?src=hashtag_click) [#china](https://twitter.com/hashtag/china?src=hashtag_click) [#LiesSpies](https://twitter.com/hashtag/LiesSpies?src=hashtag_click) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai) [@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing)】
 
-首先，自2018年美國川普總統開啟貿易戰以來，中美貿易戰已持續兩年之久，其對中國外貿及外資企業產生了重大影響。中共海關總署公布的數據顯示，受美中貿易戰影響，2019年全年以美元計價中國對美國出口同比下降12.5%，進口同比下降20.9%，美中貿易總量減少14.6%。整個進出口貿易籠罩在沈重關稅下，中國大陸市場只會變得越來越糟糕。在外貿經濟下降的同時，其帶來的影響也將是多方面的。直接影響將導致中國大陸經濟下行壓力持續擴大，市場將進一步持續萎縮。
+中文大意（筆者注：英文不是太好，如有錯誤，敬請指正）：
 
-其次，近年來中國勞動力與環境成本不斷攀升，監管環境讓外資深感不安，以及在中國居住和工作可能的風險都在升高，即使美中第一階段協議簽署，也不會對中國經營狀況有實質性的改善。
+【胡叼盤：我很驚訝花了這麼長時間@HuXijin\_GT。你們的政府特工在美國各地撒謊、欺騙、盜竊和行賄。我們在休士頓發現了你們的紅色間諜，你們應該準備洗耳聆聽明天要在尼克森總統圖書館進行的蓬佩奧國務卿的演講。中國在休士頓的“領事館”不是外交機構，而是邪惡中共在美國龐大的間諜網路中心和施加影響力的中心。間諜們要麼在72個小時內滾蛋，要麼面臨逮捕（這是我的估計）。尼克森/基辛格是這一切的起點，但中共破壞了我們對中國更加開放、坦誠和民主的期待。中國共產黨是我們的敵人，我們整個國家現在都意識到這一事實。別了！胡叼盤 ＃脫鉤＃中國＃謊言間諜@崔天凱大使 @劉曉明大使】
 
-第三，中共釋放病毒造成全球病毒大流行。2019年末，中共釋放病毒，造成疫情爆發，對本就岌岌可危的全球經濟造成了致命性打擊。一方面，疫情使得大部分企業處於停工減產的狀態，訂單的流失和取消，長時間的停產狀態，容易造成外資企業出現資金運轉問題。另一方面，疫情爆發後，世界各國都相應實施旅行和入境管制，直接影響相關地區的旅遊業和航空業，繼而影響餐飲、住宿、購物、交通、金融等相關服務業的萎縮。據國家統計局公布，2020年中國大陸一季度全國GDP同比降低6.8%。外資企業及時撤離，能夠及時止損。
+美國官方如何與中共偽外交部溝通，我們不得而知，但是我們要瞪大眼睛、樹起耳朵聽一聽明天蓬佩奧國務卿要在尼克森總統圖書館進行的演講，一切都已經開始！
 
-第四，香港國際地位的喪失。由於中共的一意孤行，在香港民主運動抗爭一周年後，於2020年6月30日通過《港版國安法》，違背了《中英聯合聲明》，強制實行一國一制。而之前香港一直作為自由貿易港，擁有大陸不曾有的特殊優勢，如自由貿易、自由經濟、自由匯兌。更重要的是，外資可以在香港自由進出。
+（文章內容僅代表作者個人觀點）
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22092115/2-48.jpg)
-
-中共商務部統計數據指出，2019年1月至4月，實際使用外資金額451.4億美元，當中有310.6億美元來自香港，占比達69%。隨著美國政府正式取消香港自由貿易區後，香港從此喪失國際地位，淪為普通的大陸城市。通過香港投資大陸市場的外資企業為了保證自身的資金安全，也都將逐漸撤離中共大陸市場。
-
-第五，中美即將脫鉤。近期美國對中共采取一系列制裁措施，令中共經濟損失慘重。中共副總理劉鶴不久前提出準備啟動“經濟內循環”。而《環球時報》又刊載中聯部原副部長周力的文章，稱“要做好擺脫美元霸權、逐步實現人民幣與美元脫鉤的準備”，引起更多人對形勢感到不安。人民幣和港幣一旦被踢出美元交易體系，在此之前沒有撤出的外資企業將會被徹底套牢，一切有效資產都將付之一炬。中國大陸面臨如此嚴峻的形式，外資企業撤離也是情理之中。
-
-外資大批撤離後，將造成大批相關產業鏈中的中小企業迎來倒閉潮，大批工人將面臨失業潮，人民的生活會也將變得更加痛苦；外資撤走的同時，必然會帶走大量外匯，加速人民幣和港幣的貶值。所有這一切都是中共邪惡政權綁架中國14億人民，綁架外資企業造成的嚴重後果。為了14億人民的福祉，我們必須要消滅CCP，這樣無論是大陸企業還是外資企業，無論是大陸人民還是世界人民才會迎來一個公平自由的貿易市場，才能開展正常的經濟活動，才能獲得民主自由的法治制度，人民才能迎來無限美好的健康生活。
-
-參考鏈接：[https://c.epochtimes.today/32514](https://c.epochtimes.today/32514)
-
-0
+1

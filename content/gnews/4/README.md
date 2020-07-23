@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和黨新提案將允許美國民眾對中共在新冠病毒中欺詐行為提起訴訟
-`2020-07-22 12:19 GM77` [轉載自GNews](https://gnews.org/zh-hant/272591/)
+## 休斯頓領館罪名：間諜、盜竊和駭客疫苗資訊、恐嚇、支援暴動
+`2020-07-22 20:55 Diago` [轉載自GNews](https://gnews.org/zh-hant/272823/)
 
-編撰：Cash2019、Pearl 珍珠、xmly666（七角星）、文珺追隨MG、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22205104/%E5%B0%81%E9%9D%A2-40.jpg)
+作者：Diago
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22121154/%E4%B8%8B%E8%BD%BD-3.jpg)
+據[Foreign \[email protected\]](https://twitter.com/ForeignPolicy)[2020年7月23日7:30AM](https://twitter.com/ForeignPolicy/status/1286081154341392384)推文：
 
-**共和黨提新法案將剝奪中共政府的主權豁免權**
+> The increase of Chinese espionage in the United States was likely not the only reason for the closure of China's Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea. [https://t.co/8wONVGjf8z](https://t.co/8wONVGjf8z)
+> — Foreign Policy (@ForeignPolicy) [July 22, 2020](https://twitter.com/ForeignPolicy/status/1286081154341392384?ref_src=twsrc%5Etfw)
 
-據華盛頓監察者報道，周一提出的 “COVID-19受害者民事司法法案 ”將允許各州和美國公民就中共涉嫌在掩蓋和加劇全球冠狀病毒大流行中的作用提起聯邦訴訟，這次的新法案推動旨在讓中國承擔責任的類似獨立立法。
+The increase of Chinese espionage in the United States was likely not the only reason for the closure of China’s Houston consulate. China has also been using it as a base to intimidate U.S. energy firms that have a presence in the South China Sea.
 
-4月有報導說，美國情報界認為，中共淡化了最初冠狀病毒爆發的嚴重性，並繼續扭曲瞞報其境內的感染率和死亡人數。北京否認策劃掩蓋其冠狀病毒應對措施。美國聯邦調查局和國土安全部也指責中共對美國機構進行網絡攻擊，竊取冠狀病毒疫苗研究成果。
+中文大意：中共在美國的間諜活動並不是關閉中共駐休斯頓總領事館的唯一原因。中共同時也把該領事館作為恐嚇參加南海石油開採的美國能源公司的基地。
 
-**允許美國公民就新冠肺炎隱瞞事實向法院起訴並要求賠償。**
+據[Kevin \[email protected\]](https://twitter.com/GOPLeader)[2020年7月23日5:41AM](https://twitter.com/GOPLeader/status/1286053795504545793)推文：
 
-麥克薩利在一份聲明中說“因中共的謊言和欺騙而受害的美國人——包括那些因COVID-19而失去親人、遭受商業損失或身體受到傷害的人——應該有機會追究中國的責任並要求公正的賠償”。
+> The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. 
+> 
+> Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw).
+> — Kevin McCarthy (@GOPLeader) [July 22, 2020](https://twitter.com/GOPLeader/status/1286053795504545793?ref_src=twsrc%5Etfw)
 
-這一法案類似於2016年在前總統奧巴馬的否決下頒布的《反恐怖主義贊助者正義法案》。該法授權2001年 “9-11 ”恐怖襲擊受害者家屬在聯邦法院繼續對沙特提起民事訴訟，並增加了美國公民起訴外國支持恐怖主義的能力。
+The Chinese Communist Party cannot be trusted. They have attempted to hack vaccine research and now we find out they were conducting espionage and stealing intellectual property out of their consulate in Houston. Shutting down the consulate was the right call by [@SecPompeo](https://twitter.com/SecPompeo)
 
-新立法如果獲得通過，將允許聯邦法院聽取並裁決指控中共政府對COVID-19大流行負有責任的申訴，剝奪中共因使大流行惡化的行為（和不作為）而享有的主權豁免權，並授權聯邦法院對中共資產實施凍結和扣押。
+中文大意：中共不值得信任，中共駐休斯頓總領館曾經試圖駭客疫苗研究，現在我們發現該領館實施間諜活動並且盜竊智慧財產權；下達關閉該領館的命令來自蓬佩奧國務卿。
 
-法案文本部分指出，其目的是 “剝奪某些外國的主權豁免權，以確保為美國新型冠狀病毒的受害者的正義得到伸張”，受影響的人 “可因此在美國任何適當的地區法院起訴，並應追回他或她所遭受的損失和訴訟費用的三倍，包括律師費”。
+據[Qiao \[email protected\]](https://twitter.com/qiaocollective)[2020年7月23日3:29AM](https://twitter.com/qiaocollective/status/1286020583143149573)推文：
 
-該法案將允許州檢察長通過聯邦法院系統對中國提起此類訴訟，如果該立法獲得通過，將代表著美國進一步提高中共政府在世界舞臺上不當行為的成本。
+> Gordon Chang is on Fox alleging that the Houston Chinese consulate provided "logistical and financial support" to BLM protests and the CPC is "stoking racial tensions." 
+> 
+> Can't believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration. [pic.twitter.com/KA4c0AcpoQ](https://t.co/KA4c0AcpoQ)
+> — Qiao Collective (@qiaocollective) [July 22, 2020](https://twitter.com/qiaocollective/status/1286020583143149573?ref_src=twsrc%5Etfw)
 
-**美國政府各部門正在對中共采取行動**
+Gordon Chang is on Fox alleging that the Houston Chinese consulate provided “logistical and financial support” to BLM protests and the CPC is “stoking racial tensions.” Can’t believe China reverse-engineered 400 years of American slavery, apartheid, and mass incarceration.
 
-本月早些時候，川普政府宣布對中共官員實施制裁，包括拒絕發放旅行簽證，美國認為這些官員參與了對中國維吾爾族和其他少數民族的人權侵犯。在中國接管香港後，美國還通過實施 “國家安全 “法對中國采取行動
+中文大意：GORDON CHANG在FOX採訪中透露：中共駐休斯頓領事館策劃和金錢支持了黑命貴活動，中共為種族衝突火上澆油。難以置信的是中共要對四百年前的美國奴隸制、種族隔離和大規模監禁進行逆向工程。（注：最後一句不一定翻譯準確，如有紕漏，敬請指正）
 
-美國司法部的 “中國倡議 “旨在打擊中共的間諜活動和涉嫌以竊取研究為目的的 “千人計劃”，美國已經逮捕並起訴了一些中共科學家，其中包括哈佛大學化學系主任查爾斯-利伯。今年早些時候，該機構在一項全球敲詐計劃中指控中國電信巨頭華為。
+綜述：中共駐休斯頓總領事館因間諜、盜竊和駭客疫苗研究資訊、恐嚇在南海參加石油開採業務的美國能源公司、參與煽動和財務支持黑命貴運動，被蓬佩奧國務卿親自下令關閉！
 
-6月，聯邦通信委員會將華為和中興通訊定為 “國家安全威脅”，而五角大樓則將華為列為在美國經營的20家與中國政府解放軍有直接關系的中國公司之一。
+（文章內容僅代表作者個人觀點）
 
-國家安全顧問羅伯特-奧布萊恩、聯邦調查局局長克裏斯托弗-雷和司法部長威廉-巴爾最近幾周都發表講話，警告中共帶來的威脅。
-
-**編者觀點：**
-
-因為每個國家的官員都享有主權豁免法，也就意味著國外地方政府或者民眾想起訴中共政府就是不能到司法的層面，雖然民眾起訴了，但是法院也是不接受的，這項剝奪中共主權豁免權的議案對滅共是至關重要的。一旦該法案通過，只要民眾有足夠的證據證明他們有罪，民眾對中共國官員起訴的案子將成立，最終將會導致中共國的官員被制裁和賠償。如果這些官員不同意最終制裁結果，那這些中共官員隱藏的財富將被暴露於公眾視線，美國將通過全世界金融政治的渠道全方位追討賠款，無論是在swift系統還是在所謂的區塊鏈之中，美國都將偵查到底，全數繳獲。
-
-原文出處：[https://www.washingtonexaminer.com/news/gop-bill-would-allow-people-to-sue-china-over-coronavirus-deceit](https://www.washingtonexaminer.com/news/gop-bill-would-allow-people-to-sue-china-over-coronavirus-deceit)
-
-0
+1

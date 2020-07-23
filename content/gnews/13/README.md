@@ -1,27 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 凱爾.巴斯先生告訴胡錫進領館關閉原因以及明天蓬佩奧的演講
-`2020-07-22 10:04 Diago` [轉載自GNews](https://gnews.org/zh-hant/272452/)
+## 美國起訴2名中國黑客竊取新冠疫苗研究成果
+`2020-07-22 10:25 GM77` [轉載自GNews](https://gnews.org/zh-hant/272495/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16062624/images_%E5%89%AF%E6%9C%AC-1.jpg)
-作者：Diago
+編撰：Cash2019、文珺追隨MG、xmly666（七角星）、臺灣荔枝、文肯尼
 
-據凱爾.巴斯先生9:09 PM · Jul 22, 2020推特：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22102049/cyber-crime-hacker-generic_650x400_41494848558-1.jpg)
 
-> I'm surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw). Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo's speech from the Nixon Presidential [https://t.co/t2qEFGwjEM](https://t.co/t2qEFGwjEM)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [July 22, 2020](https://twitter.com/Jkylebass/status/1285924843670720512?ref_src=twsrc%5Etfw)
+**據新德裏電視報道****，****美國起訴2名中國黑客竊取美國COVID-19疫苗研究成果**
 
-全文如下：
+華盛頓：美國司法部周二表示，兩名中國公民因試圖從美國和其他國家的數百家公司竊取COVID-19疫苗研究和知識產權而被起訴。負責國家安全的助理司法部長約翰-德默斯說，34歲的李曉宇和33歲的董家誌還針對美國、中國和香港的人權活動家進行相關情報收集。
 
-【I’m surprised it took this long [@HuXijin\_GT](https://twitter.com/HuXijin_GT) . Your government operatives lie, cheat, steal, and bribe their way throughout the United States. We caught your 諜 RED HANDED in Houston and you should prepare for Secretary Pompeo’s speech from the Nixon Presidential Library tomorrow. China’s “consulate” in Houston is not a diplomatic facility, it is the epicenter of the devious communist party’s vast network of spies & influence operations in the United States. The spies have 72 hours to leave or face arrest (generous in my opinion). Nixon/Kissinger is where it all began but the CPC has destroyed our willingness to wager on a more open, honest, and democratic China. The CPC is our enemy and our entire country is aware of this fact now. 再見 Hu. [#Decouple](https://twitter.com/hashtag/Decouple?src=hashtag_click) [#china](https://twitter.com/hashtag/china?src=hashtag_click) [#LiesSpies](https://twitter.com/hashtag/LiesSpies?src=hashtag_click) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai) [@AmbLiuXiaoMing](https://twitter.com/AmbLiuXiaoMing)】
+**兩名黑客與中國國家安全部合作**
 
-中文大意（筆者注：英文不是太好，如有錯誤，敬請指正）：
+這些黑客，他們的行動有些是 “為了自己的利益”，有些則是為了中共國家安全部的利益。
 
-【胡叼盤：我很驚訝花了這麼長時間@HuXijin\_GT。你們的政府特工在美國各地撒謊、欺騙、盜竊和行賄。我們在休士頓發現了你們的紅色間諜，你們應該準備洗耳聆聽明天要在尼克森總統圖書館進行的蓬佩奧國務卿的演講。中國在休士頓的“領事館”不是外交機構，而是邪惡中共在美國龐大的間諜網路中心和施加影響力的中心。間諜們要麼在72個小時內滾蛋，要麼面臨逮捕（這是我的估計）。尼克森/基辛格是這一切的起點，但中共破壞了我們對中國更加開放、坦誠和民主的期待。中國共產黨是我們的敵人，我們整個國家現在都意識到這一事實。別了！胡叼盤 ＃脫鉤＃中國＃謊言間諜@崔天凱大使 @劉曉明大使】
+FBI副局長大衛-鮑迪奇說： “中共政府情報部門主導的網絡犯罪不僅威脅到美國，也威脅到其他每一個支持公平競爭、國際準則和法治的國家。”
 
-美國官方如何與中共偽外交部溝通，我們不得而知，但是我們要瞪大眼睛、樹起耳朵聽一聽明天蓬佩奧國務卿要在尼克森總統圖書館進行的演講，一切都已經開始！
+美國檢察官威廉-海斯洛普說，黑客的目標是全世界的公司。全美和全球許多企業、個人和機構的電腦系統被黑客入侵和破壞，大量敏感和有價值的商業機密、技術、數據和個人信息被竊取。
 
-（文章內容僅代表作者個人觀點）
+美國司法部表示，黑客攻擊的目標包括 “數百家受害公司、政府、非政府組織，以及美國和海外（包括香港和中國）的個人異議人士、神職人員、民主和人權活動家。”
+
+美國的這一行動更加說明了與中共國脫鉤的必要性。中共進一步的行動讓美國人徹底看清了中共偷盜無恥的本性和妄圖破壞美國自救的邪惡用心，促使美國人放棄與中共和平相處，簽訂和約的夢想，更加使得美國堅定信念，消滅中國共產黨這個流氓集團。
+
+**編者觀點：**
+
+中共統治下的70年，假惡醜肆虐，荼毒人心，奪去了人們眼神中曾有的純潔和善良。由此，我們也不奇怪國內一些列令人扼腕嘆息的亂象。在CCP的洗腦下，致使有些人無論身在何處都會發作癲狂，對外的假騙偷終究會被人所不齒，並受到法律的制裁，多行不義必自斃，搬起石頭砸自己的腳。
+
+現在，從國務院、國家安全部、FBI到司法部，美國各個層面都已對中共開始了全面行動。CCP綁架了中國14億人民七十年，致使教育奴化、環境惡化、經濟泡沫化、食品化學化、政治獨裁化，將中華民族蹂躪的國之不國，民之不民。然CCP的野心何至於此，妄想稱霸世界，軍事化南海、威脅臺灣、挑起中印邊境沖突、偷竊西方知識產權、藍金黃全世界，更恐怖的是，釋放CCP病毒造成全球大瘟疫，威脅人類賴以生存的地球。現如今，以美國為首的西方正義國家聯盟在爆料革命的指引下，將吹響滅共號角，還中國人民自由民主法制的未來憧憬，還世界人民一片安靜與祥和。
+
+原文鏈接：
+[https://www.ndtv.com/world-news/us-indicts-2-chinese-hackers-of-stealing-covid-19-vaccine-research-2266605](https://www.ndtv.com/world-news/us-indicts-2-chinese-hackers-of-stealing-covid-19-vaccine-research-2266605)
 
 1

@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美印海軍聯合軍演，以應對與中共國日益緊張的局勢
-`2020-07-22 05:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272294/)
+## 美國滅共的軍事重捶何時砸下
+`2020-07-22 06:51 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/272320/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22052611/Picture-1-143.png)圖片來源： [https://www.thehindu.com](https://www.thehindu.com/news/national/discussing-joint-patrols-with-india-in-indian-ocean-french-navy-chief/article30013561.ece) 
-據福克斯新聞最新報導，美國和印度海軍周一在孟加拉灣進行了聯合軍事演習，以應對中美之間在該地區的緊張局勢。美國海軍周二表示，本週還將與日本和澳大利亞進行其他軍事演習。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/22064850/Picture-1-144.png)圖片來源: [https://www.theepochtimes.com](https://www.theepochtimes.com/exclusive-as-ccp-virus-spreads-us-military-to-withhold-some-infection-data_3286756.html) 
+據Tribune新聞報導，前白宮首席戰略家史蒂夫·班農(Steve Bannon)表示，川普政府已經制定了一項完整的“戰爭計劃”，先強硬對抗中共，然後擊垮中共。他補充說這項計劃包含了在中印邊界衝突上對盟國印度予以支持。
 
-此次美印軍演，雙方出動了強大陣容，其中包括美軍的尼米茲號(USS Nimitz)航母打擊群，該群由尼米茲號航空母艦，普林斯頓號導彈巡洋艦(USS Princeton)，斯特雷特號(USS Sterett)和拉爾夫約翰遜號(USS Ralph Johnson)兩艘導彈驅逐艦組成。
+報導指出班農在周一接受福克斯新聞採訪時說：“大家會看到一項完整的戰爭計劃，該計劃首先是強硬對抗中共，然後將中共徹底擊垮，中共在軍事上根本只是虛張聲勢。同時在中印邊界衝突上對盟國印度進行支持也包括在這項針對中共的’戰爭計劃’中。”
 
-印度方面則出動了一艘驅逐艦，兩艘隱形護衛艦以及一艘導彈巡洋艦。
+在2016川普總統的選舉勝利中扮演了關鍵角色的班農，於2017年不再擔任首席戰略家一職。他說，總統的“戰爭理事會”( war council)中已經安排了“啟示錄中的四騎士” ，包含國家安全顧問羅伯特·奧布賴恩(Robert O’Brien)，聯邦調查局局長克里斯托弗·雷(Christopher Wray)，國務卿邁克· 蓬佩奧·(Mike Pompeo)，以及司法部長威廉·巴爾(William Barr) 來展開滅共的行動。
 
-本次演習被描述為“高水準的，旨在最大程度提高訓練水準和兩軍作戰協調能力的演習”，也體現了美印兩國共同維護印太地區安全的決心和能力。
+奧布賴恩，雷和巴爾在過去三周中發表了三場重要演講。蓬佩奧也將於本週晚些時候針對中共發表演講。班農表示，“這四個人制定了完整統一的戰爭計劃，在技術信息戰以及經濟戰中對抗中共，然後我們會和盟友一起開放南海，並在中印邊界衝突上支持盟友印度。”
 
-報導還強調，此次聯合軍演的時間耐人尋味，剛好發生在美國表示，對中共國在南中國海的主權主張不予承認後的幾天。近年來，美國一直指責中共國不斷擴大領海主張和派遣軍艦通過戰略航道。此次美印聯合軍事演習，被普遍認為是美方對中美之間在該地區緊張局勢的強力回應。
+報導最後指出，班農說，” 川普總統已經安排好一個連貫的計劃來擊垮中共。我希望美國財政部長也趕緊加入行動。相信美國財政部長已經看到了這個連貫的戰爭計劃，也會加入到滅共計劃的一致行動中。”
 
-另外，此次軍演的另外兩個背景也尤為值得關注，一是中共國因對冠狀病毒疫情的隱瞞正受到全球各國的強烈譴責，二是前不久，在中印邊境一個有爭議地區發生了中印軍人的致命衝突，該衝突導致20餘名印度士兵死亡，數十人受傷。中印兩國之間的緊張關係也立即隨之升高。
+評:
 
-[原文鏈接](https://www.foxnews.com/world/us-india-navies-joint-military-operations)
+在國家安全顧問，聯邦調查局局長，國務卿，和司法部長接續發表重大滅共計畫的行動下，美國滅共的態勢攀升到最高。接下來就等待關鍵時刻的一到，迅速徹底結束CCP政權。近日大陸內部洪災肆虐，多少百姓流離失所，除了不捨，更是祈望CCP 最快速度結束，建立民主、法治、人權的美好社會。
 
-翻譯報導：Hanstyle 
-校對整理：晴天小螞蟻
+[原文鏈接](https://www.tribuneindia.com/news/world/trump-administration-has-put-together-war-plan-to-take-down-chinese-communist-party-bannon-115872)
+
+翻譯報導：匿名
+校對整理：Yamap
 
 0
