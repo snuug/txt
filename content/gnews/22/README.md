@@ -1,29 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大承認已錯失防控疫情關鍵時期
-`2020-07-23 11:39 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/273841/)
+## 第一課：被破壞的公民社會基石
+`2020-07-23 12:30 DT` [轉載自GNews](https://gnews.org/zh-hant/273862/)
 
-喜馬拉雅聯盟加拿大農場Cran
+[DT特戰旅金融講堂](https://t.me/joinchat/MWJuBVQnmImYI1p9U0iXDg)
 
-校對：文錦
+*作者：長工Satoshi｜文章：西川Stanly整理；*
 
-據CTV和CBC 近日報導，早在1月17日加拿大軍隊醫學情報中心就向國防總理Harjit Sajian 遞交了關於新冠病毒的簡報。然而內閣和官員直到1月27日才開始關注疫情。顯然在3月中旬公共衛生署要求停止幾乎所有商業和社會活動前，政府已知曉疫情的擴散。 Sajian在昨天的國會中為自己對疫情的應對進行了辯解。
-[!\[加拿大疫情最嚴重的魁北克省準備小學復課– RCI | 中文\](https://www.rcinet.ca/zh/wp-content/uploads/sites/6/2020/04/23131304-635x357.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.rcinet.ca%2Fzh%2F2020%2F04%2F28%2F%25E5%258A%25A0%25E6%258B%25BF%25E5%25A4%25A7%25E7%2596%25AB%25E6%2583%2585%25E6%259C%2580%25E4%25B8%25A5%25E9%2587%258D%25E7%259A%2584%25E9%25AD%2581%25E5%258C%2597%25E5%2585%258B%25E7%259C%2581%25E5%2587%2586%25E5%25A4%2587%25E5%25B0%258F%25E5%25AD%25A6%25E5%25A4%258D%25E8%25AF%25BE%2F&amp;psig=AOvVaw3quqFGIIf1fQ_AN-L7zZqY&amp;ust=1595604821088000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCIDmsqjZ4-oCFQAAAAAdAAAAABAt)圖片來源:canada international 
-情報專家Wesley Wark 認為1月17號送交的簡報並非特別早，因為西方情報機構早在幾週前就知道一種新形病毒在湖北蔓延。美國軍隊醫學情報中心更是早在去年11月就跟踪和報告新冠病毒的進展。
+我們從近年來鬧的比較兇的反洗錢說起，先普及壹些基本的常識，隨後細講。反洗錢/反恐怖主義金融活動，簡稱AML/CTF，Anti-Money-Laundry, Counter-Terrorist Finance Activities。起源來自於2001年911事件後的美國反恐行動。在金融系統中直觀的操作方法是通過對個人信息建立數據庫，借助大數據對個人隱私無後果的侵犯。本質是令個人失去隱私的有罪推定，即妳需要證明自己的資金與洗錢和恐怖主義無關。最終結果是讓銀行和金融機構擁有了比政府，法院，警察局還要高的地位，變相的剝奪了個人對財產的所有權。
 
-CBC引述Wark 的話：“加拿大政府尚未解釋為何錯過評估預警和製定應對計劃的機會。……浪費的時間使加拿大以殘忍的方式喪失了生命和經濟,。”
+**KYC，Know Your Client**
+[!\[\](https://spark.adobe.com/page/HyVwkTjv2Y6un/images/3a4f2f7c-8719-45cf-a8bc-836840fcd2ce.jpg?asset_id=76e2c284-8850-4ad8-acca-7fe902671346&amp;img_etag=%22eb4276059d88df4c364f66d7854ad15f%22&amp;size=2560)](https://spark.adobe.com/page/HyVwkTjv2Y6un/images/3a4f2f7c-8719-45cf-a8bc-836840fcd2ce.jpg?asset_id=76e2c284-8850-4ad8-acca-7fe902671346&amp;img_etag=%22eb4276059d88df4c364f66d7854ad15f%22&amp;size=1024)
+妳今天去任何歐美/香港/新加坡,任何金融活動相關的地方比如妳開戶, 這裏面就有壹個步驟叫做KYC。律師會把這個歸屬盡職調查類, 金融服務管這個叫KYC。簡單的個人KYC: 姓名，年齡，證件號，地址等。 海外經常要求地址證明，這個墻內不多見。 常規地址證明比如水電賬單, 信用卡賬單, 身份證地址是不作數的。因為未必能找到妳。KYC的街頭俗語就是脫妳衣服, 脫多少, 脫光之後會不會扒開檢查, 那權利在銀行手上。KYC對於個人的敏感點在於，妳的資金來源證明。對於企業有兩個敏感點: 資金來源和最終受益人, Ultimate Benefical Owner。
 
-加拿大公共衛生署與被披露和中共勾兌的WHO 保持著緊密聯繫。一份洩露的文件顯示中共領導對世界隱瞞了重要疫情信息。
+世界上有不少公司是賣KYC服務的, 比如 One World Check，屬於Thomson Reouter旗下的。基本上收錄了全世界所有政治敏感人物，PEP，Political Exposure Person；和恐怖主義相關的個人和組織名冊。簡單來說, 比如妳在中國五線城市打架鬥毆, 被判幾個月, 我這裏面可以查到，就厲害到這個地步。
 
-評：
+照理說麽，這個法律這麽厲害，盜國賊家族的這麽多人怎麽可以在歐美這麽猖狂洗錢呢?這部法律基本賦予了金融機構至高無上的權利。比警察，法院都厲害。這個是有罪推定，妳不能證明妳5000塊美金是合法收入，妳就是洗錢,或者洗錢的嫌疑, 銀行就能可以凍結妳。妳存5000都要證明，結果人家幾百億隨便打。江朱王等可以隨便證明幾百億是幹凈的，我5000塊都證明不了, 這就是普通人和權貴的差距。
 
-如閆麗夢博士所說，疫情與政治黨派無關，而是關乎人類生死存亡。加拿大政府應如Wark 所說，公開解釋錯過防控疫情關鍵時機的原因。在WHO被揭露與中共的腐敗關係後，加國政府還應解釋面對疫情時是如何與WHO合作的。相信被中共藍金黃嚴重的加拿大最終在關鍵抉擇時會堅定地與價值觀相同的盟友站在一起。
+這次大家知道富國銀行, WellsForgo。國內有壹家交易所叫做OKCoin，OkCoin之前是可以交易美元的，賬戶是臺灣壹家銀行。某年某月, 富國銀行給臺灣所有銀行發信, 誰給比特幣交易所提供銀行服務, 以後妳們所有經過我結算的美元老子都直接凍結。OKCoin幾億美元就這樣死在臺灣，進不來, 也打不出。之前七哥說的相關的銀行怎麽流氓, 我深有感觸。我也被凍結過7個帳號，現在我和香港拜拜了。我在香港某銀行壹次因為說我們提供的文件裏面的壹份PO(Purchasing Order) 不符合銀行規定凍結賬戶。我日他祖宗。我的PurchasingOder是我付錢為什麽要找妳的格式？
 
-文章鏈接：
+**最終受益人**
+[!\[\](https://spark.adobe.com/page/HyVwkTjv2Y6un/images/73142a36-7435-42b4-b3f4-125d0a315f6a.jpg?asset_id=ec909f0a-ea0d-4a1f-bcdf-c5e2b86bb34e&amp;img_etag=%22cccbda58bb95677cf49280a1dbb6d118%22&amp;size=2560)](https://spark.adobe.com/page/HyVwkTjv2Y6un/images/73142a36-7435-42b4-b3f4-125d0a315f6a.jpg?asset_id=ec909f0a-ea0d-4a1f-bcdf-c5e2b86bb34e&amp;img_etag=%22cccbda58bb95677cf49280a1dbb6d118%22&amp;size=1024)
+對於個人, 金融機構主要查妳是不是政治敏感人物, 這都是寫在紙面上的賦予金融機構至高無上的權利。對於公司的槽點, 最終受益人!
 
-[https://www.cbc.ca/news/politics/military-intelligence-unit-covid-19-briefing-1.5657796](https://www.cbc.ca/news/politics/military-intelligence-unit-covid-19-briefing-1.5657796)
+理論上, 妳無法證明那個股東, 董事就是真正最終受益人。這部分, 妳永遠無法真正證明，立法者心裏清楚，華爾街也清楚。這部法律, 基本上就是華爾街給全世界所有人脖子上架了壹把大砍刀。比如我幫DT代持了, DT相信我. 那紙面上 我就是最終受益人; 我拿到錢我不給DT, 結果我成了真正意義的最終受益人。如果公司在開戶的時候DT就沒有如實申報UBO，屬於合謀欺詐，遞交虛假材料。那麽DT就面臨兩難的選擇：被我坑，或者被銀行起訴。妳發現, 總是他們贏。
 
-[https://www.ctvnews.ca/politics/sajjan-defends-covid-19-response-as-documents-show-he-was-briefed-on-virus-risk-in-january-1.5034653](https://www.ctvnews.ca/politics/sajjan-defends-covid-19-response-as-documents-show-he-was-briefed-on-virus-risk-in-january-1.5034653)
+很多公司的股東是基金: 很多投資人不直接投, 都通過基金投資, 要的就是隱私。所以,我壹開始說, 就是脫妳衣服，至於脫多少, 看別人的心情。銀行可以脫掉妳內褲, 還可以扒開看看裏面有沒有藏雪茄。
 
-1
+我自己本人也申請過金融牌照，熟知這裏面操作。我的律師給我起草的反洗錢操作手冊，A4的紙, 80頁，我基本爛熟於胸。所有對公民社會破壞的行為，都是打著正義旗號的。比如反洗錢, 比如反恐怖主義金融活動。結果是海航隨便幾千億香港打到美國，普通人5000塊都需要證明來源。這是實質。
+
+這裏面的邏輯很簡單：某些機構多了權利，那壹定是某些人失去權力。AML/CTF這是美國開的頭， 華爾街！然後天朝在香港發揚光大，全世界基本都壹樣。這基本上就是剝奪了財產的所有權。妳有錢在賬戶，但是妳沒有交易的自由。妳不能證明我的錢有問題，那錢就是沒有問題。銀行客戶經理有KPI，拒絕多少客戶的洗錢交易嫌疑，是任務，和文革抓特務壹樣。
+
+華為都可以給伊朗打錢, 都沒有洗錢! 都沒有支持恐怖主義! 這就是華爾街的邏輯! 要不是匯豐小雞雞被抓住, 死都不會認賬的。對於普通人來說, 目前海外開戶是困難的。多數人連金融機構要求的地址證明都無法提供。全世界目前大約還有20-30億人口屬於沒有銀行賬戶的 Un-banked Population。
+
+如果通過虛擬貨幣作為中轉，想要實現匿名和安全的要求。這是也是壹把雙刃劍，用無法刪除的賬本在走錢, 把個人信息交給幣安/火幣/這樣的公司。妳的地址綁定了實名。我想想都危險。
+
+公民社會兩大基石: 隱私和交易的自由。壹部法律, 回到奴隸社會。
+
+這也就是七哥為什麽要創建GB。
+
+編輯 [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/HyVwkTjv2Y6un/)
+
+0

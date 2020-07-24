@@ -1,57 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統宣佈繼續實施國家對跨國犯罪組織的緊急狀態
-`2020-07-23 10:44 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/273733/)
+## 中共國洪災引發對三峽大壩可持續性的質疑
+`2020-07-23 11:18 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/273803/)
 
-新聞簡述：川普總統於2020年7月22日宣佈繼續實施國家對跨國犯罪組織的緊急狀態，因為大型跨國犯罪組織的活動已經威脅到國際政治和經濟體系的穩定。 這些組織正在變得日益複雜和危險，日益扎根滲透於外國政府和國際金融體系的運行，從而削弱民主體制，削弱法治，破壞經濟市場，助長和加劇國內暴力衝突，並日益促進其他危險分子的活動。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23100924/WH_20200722_Transnational_Criminal_photo169.png)
-通知全文：
+*新聞來源：《福布斯》*
 
-**Text of a Notice on the Continuation of the National Emergency with Respect to Transnational Criminal Organizations**
+*作者：Kenneth Rapoza*
 
-**關於繼續實施國家對跨國犯罪組織的緊急狀態通知的文本**
+*發佈時間：2020年7月20日*
 
-Issued on: July 22, 2020
+*翻譯/簡評：Victory*
 
-发布日期：2020年7月22日
+*校對：Julia Win*
 
-On July 24, 2011, by Executive Order 13581, the President declared a national emergency with respect to transnational criminal organizations pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701-1706) to deal with the unusual and extraordinary threat to the national security, foreign policy, and economy of the United States constituted by the activities of significant transnational criminal organizations.
+*審核：InAHurry*
 
-2011年7月24日，總統於第13581號行政命令，宣布根據《國際緊急經濟權力法》（美國法典第50卷第1701-1706節）對跨國犯罪組織實施國家緊急狀態，以處理大型跨國犯罪組織的活動對美國國家安全、外交政策和經濟構成的反常和重大的威脅。
+*Page：拱卒*
 
-The activities of significant transnational criminal organizations have reached such scope and gravity that they threaten the stability of international political and economic systems.  Such organizations are becoming increasingly sophisticated and dangerous to the United States; they are increasingly entrenched in the operations of foreign governments and the international financial system, thereby weakening democratic institutions, degrading the rule of law, and undermining economic markets.  These organizations facilitate and aggravate violent civil conflicts and increasingly facilitate the activities of other dangerous persons.
+簡評：
 
-大型跨國犯罪組織的活動範圍和嚴重性已經威脅到國際政治和經濟體系的穩定。這些組織正在變得日益複雜和危險；它們日益紮根滲透於外國政府和國際金融體系的運行，從而削弱民主體制，削弱法治，破壞經濟市場。這些組織助長和加劇國內暴力衝突，並日益促進其他危險分子的活動。
+中共國修建三峽大壩的計劃可以追溯到建政初期，但這個提議卻一直受到了來自水利、地質等行業專家的反對：例如，著名水利工程專家、清華大學教授黃萬里先生就曾警告，修建三峽大壩會有12個災難性後果：1.長江下游幹堤崩岸；2.阻礙航運；3.移民問題；4.積淤問題；5.水質惡化；6.發電量不足；7.氣候異常；8.地震頻發；9.血吸蟲病蔓延；10.生態惡化；11.上游水患嚴重；12.終將被迫炸掉。如今不但已經可以從衛星照片中看到大壩變形，而且黃萬里先生的預測也已經大部分得到了應驗。對大壩變形，中共官媒一直持否認態度，但最近，卻有官媒承認了三峽大壩移位變形並辯稱大壩的變化均在正常範圍內。
 
-On March 15, 2019, by Executive Order 13863, I took additional steps to deal with the national emergency with respect to transnational criminal organizations in view of the evolution of these organizations as well as the increasing sophistication of their activities, which threaten international political and economic systems and pose a direct threat to the safety and welfare of the United States and its citizens, and given the ability of these organizations to derive revenue through widespread illegal conduct, including acts of violence and abuse that exhibit a wanton disregard for human life as well as many other crimes enriching and empowering these organizations.
+據郭文貴先生在直播中透露，目前中共高層對三峽大壩的危險狀況雖有了解，但卻毫不在意。因為它們認為三峽大壩的建造是前幾任領導班子的決定，與這屆政府無關。長江下游億萬百姓生命，就這樣被它們視如草芥。可見，現在統治著華夏大地的是一群毫無人性的魔鬼。可以說，我們中華民族真的到了生死攸關的時刻。請所有覺醒了的華夏子孫，在保證安全的情況下，都來為消滅惡魔中共助力！每個人的行動都很重要，都可能是壓倒駱駝的那一根稻草！
 
-2019年3月15日，據第13863號行政命令，鑑於這些組織的演變及其活動日益複雜化，我採取了更多的措施，以應對跨國犯罪組織有關的國家緊急情況。這些活動日益複雜，威脅到國際政治和經濟體系，並對美國及其公民的安全和福利構成直接威脅。並賦予這些組織有能力通過廣泛的非法行為獲取收入，包括罔顧人命的暴力和虐待以及許多其他犯罪行為，使這些組織富裕起來並增強了能力。
 
-The activities of significant transnational criminal organizations continue to pose an unusual and extraordinary threat to the national security, foreign policy, and economy of the United States.  For these reasons, the national emergency declared in Executive Order 13581 of July 24, 2011, under which additional steps were taken in Executive Order 13863 of March 15, 2019, and the measures adopted to deal with that emergency, must continue in effect beyond July 24, 2020.  Therefore, in accordance with section 202(d) of the National Emergencies Act (50 U.S.C. 1622(d)), I am continuing for 1 year the national emergency with respect to transnational criminal organizations declared in Executive Order 13581.
 
-大型跨國犯罪組織的活動繼續對美國的國家安全、外交政策和經濟構成非同尋常的威脅。出於以上原因，2011年7月24日第13581號行政命令宣布的國家緊急狀態，以及根據該行政命令，於2019年3月15日第13863號行政命令為應對該緊急情況所採取的其他措施，必須在2020年7月24日以後繼續生效。因此，根據《國家緊急狀態法》（美國法典第50卷第1622節）第202（d）條，我將繼續執行第13581號行政命令中宣布的關於跨國犯罪組織的國家緊急狀態，為期一年。
+##  **中共國洪災引發對三峽大壩可持續性的質疑** 
 
-This notice shall be published in the Federal Register and transmitted to the Congress.
 
-本通知將在《聯邦公報》上公佈，並轉送給國會。
+[!\[\](https://spark.adobe.com/page/tnWgAdtzONYiy/images/6bf8bd48-381b-41b3-83a9-74ee4475fb27.jpg?asset_id=53140294-15c4-43dc-a164-915539d66fd7&amp;img_etag=%2284f7bf00b88b5902ec55ae8f5e642607%22&amp;size=1024)](https://spark.adobe.com/page/tnWgAdtzONYiy/images/6bf8bd48-381b-41b3-83a9-74ee4475fb27.jpg?asset_id=53140294-15c4-43dc-a164-915539d66fd7&amp;img_etag=%2284f7bf00b88b5902ec55ae8f5e642607%22&amp;size=1024)長江上游及其支流的嚴重洪澇災害導致三峽大壩… …ASSOCIATED PRESS 美聯社
+似乎是時代的一部分，不是嗎? 一次百年不遇的瘟疫，一次百年不遇的洪災。中共國部分地區幾乎已經被淹沒在水里了，中共政府稱之為百年一遇的洪災。本是為了防禦洪災建造的三峽大壩，現在卻成了人們關注的焦點。
 
-DONALD J. TRUMP
+三峽大壩是世界上最大的水電站，發電裝機容量22500兆瓦。問題是，這個發電站位於長江下游，它的上游有好幾座比三峽大壩海拔高的大壩。而且由於洪水和上游大壩的問題，三峽大壩在大量水流的壓力下，正在發生彎曲。
 
-唐納德 · 川普
+由於這個季風季節的暴雨，中共國中部地區長江（中國最長的河流）沿岸的一些城市，在過去一周都遭受了洪災。據報導，這是自1998年以來最嚴重的洪災，而不是北京方面所說的百年一遇的洪災。
 
-THE WHITE HOUSE,
+總計有超過400多條長江支流發生洪災，近200人喪生和財產被淹沒。
 
-白宮
+平均降雨量比去年雨季高出12%。根據政府週五的一些估計，洪水造成的經濟損失預計將達到862億元(120億美元)。
+[!\[\](https://spark.adobe.com/page/tnWgAdtzONYiy/images/f40d36b5-fe79-41f1-aa84-6399a6a29452.jpg?asset_id=9a7cea98-e680-4e5e-bc28-dac8e9976e04&amp;img_etag=%222852fba020f836550d7d61bb8fd68c23%22&amp;size=2560)](https://spark.adobe.com/page/tnWgAdtzONYiy/images/f40d36b5-fe79-41f1-aa84-6399a6a29452.jpg?asset_id=9a7cea98-e680-4e5e-bc28-dac8e9976e04&amp;img_etag=%222852fba020f836550d7d61bb8fd68c23%22&amp;size=1024)
+週日，美聯社發自北京的報導稱，當局炸毀了一整座大壩，以釋放大壩後面洶湧的水流，讓水流下行。
 
-July 22, 2020
+中共國中央電視台(CCTV)報導說，週日早間，安徽省楚河上的大壩被炸毀，預計，此後水位將下降兩英尺。
 
-2020年7月22日
+上週，因大壩後面的水位超過了洪水警戒線50英尺（約15米），三峽大壩打開了三道閘門。美聯社文章稱，預計另一個洪峰將於週二抵達大壩，並補充說，中共國軍方一直在測試堤防的強度，並用沙袋和岩石加固堤防。
 
-閱讀白宮英文全文
+上週末，消防隊員完成了對鄱陽湖堤壩一個620英尺（約188米）斷面的填埋。鄱陽湖是中國最大的淡水湖，洪水淹沒了江西省的15個村莊，使糧食作物被淹。
 
-*翻譯【Dlrow】校對【木木ANNA】*
+根據中共國應急管理部門的消息，截至週日晚些時候，淮河水位已經超高，且未來三天淮河還將有強降雨。
+[!\[\](https://spark.adobe.com/page/tnWgAdtzONYiy/images/2213cca9-51c2-48dc-8421-519a930c3bbe.jpg?asset_id=d29f2eb8-27b0-4e59-892b-00e3ff261b07&amp;img_etag=%2221d852c3937dca844365cd9917cf36aa%22&amp;size=2560)](https://spark.adobe.com/page/tnWgAdtzONYiy/images/2213cca9-51c2-48dc-8421-519a930c3bbe.jpg?asset_id=d29f2eb8-27b0-4e59-892b-00e3ff261b07&amp;img_etag=%2221d852c3937dca844365cd9917cf36aa%22&amp;size=1024)中國稱三峽大壩已造成緊急問題。攝影：杜華茹/Corbis 杜華茹/Corbis 
+從今天到週三，更多強降雨將增加連接三峽的河流的洪水風險，儘管最強降雨似乎將在周三，週四結束，使世界上最大的水壩免於承受更大的壓力。
 
-*戰友之聲玫瑰園小隊出品*
+據美聯社報導，預計本周洪水將對山西、河南、山東、安徽和江蘇等省的部分地區構成威脅，而四川和貴州省的部分地區則可能會遭遇山洪暴雨的襲擊，不過這些應該不會對三峽大壩產生任何影響。
 
-0
+中共國最不希望看到的就是大壩崩塌，一旦發生，北京將很難掩蓋，只能自食其果。
+
+[原文鏈接](http://www.gtv.org/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/tnWgAdtzONYiy/)
+
+1
