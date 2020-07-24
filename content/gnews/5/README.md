@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】10/07/2020 CCP病毒每日疫情直播簡報
-`2020-07-24 12:57 GM77` [轉載自GNews](https://gnews.org/zh-hant/275028/)
+## 【世界多語言圖文】11/07/2020 CCP病毒每日疫情直播簡報
+`2020-07-24 13:44 GM77` [轉載自GNews](https://gnews.org/zh-hant/275087/)
 
 戰友之家圖文摘要組及小語種組
 
-[English\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)
+[English\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)
 
-[German\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)
+[French\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)
 
-[Japanese\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)
+[German\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)
 
-[Korean\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)
+[Japanese\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)
 
-[Spanish\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)
+[Korean\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)
 
+[Russian\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)
 
+[Spanish\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)
 
 0
