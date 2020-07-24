@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】10/07/2020 CCP病毒每日疫情直播簡報
-`2020-07-24 12:57 GM77` [轉載自GNews](https://gnews.org/zh-hant/275028/)
+## 耶魯大學哈維·里施教授：開放羥氯喹將輓救近10萬美國人的生命
+`2020-07-24 13:08 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/275047/)
 
-戰友之家圖文摘要組及小語種組
+福克斯新聞台（Fox News）台於2020年7月21日採訪耶魯大學公共衛生學院著名流行病學專家[哈維·里施（Harvey Risch）教授](http://%E5%93%88%E7%BB%B4%C2%B7%E9%87%8C%E6%96%BD%EF%BC%88Harvey%20Risch%EF%BC%89%E6%95%99%E6%8E%88)，談論主題為「[硫酸羥氯喹在一線醫生中的使用](https://www.youtube.com/watch?v=vfF4_peyG1I)」。里施教授點出羥氯喹已經成為一款「政治藥物」，許多一線醫生因使用羥氯喹治療新冠肺炎病而成為所在州的醫療執照委員會打擊的目標。他指出門診醫生使用羥氯喹都顯示出療效。他斥責相關部門和企業的腐敗行為，並估計如果政府和FDA開放庫存的羥氯喹讓一線醫生使用，將能輓救7.5萬到10萬條美國人的生命。
 
-[English\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)
+*翻譯：【映蘭軒】【文秀】校對：【文肯尼】【重生】字幕：【 相機過熱啊 】*
 
-[German\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)
+*戰友之家玫瑰園小隊出品*
 
-[Japanese\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)
+相关新闻：
 
-[Korean\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)
+[把羥氯喹變為非處方藥的重要性](https://gnews.org/zh-hant/263282/)
 
-[Spanish\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)
+[國際傳染病學雜誌發表《羥氯喹、阿奇霉素和聯合用藥治療新型冠狀病毒肺炎住院患者》](https://gnews.org/zh-hant/259104/)
 
+[亨利·福特首席學術官卡爾卡尼斯醫生：讓科學而不是政治指導治療研究](https://gnews.org/zh-hant/258830/)
 
+[亨利福特衛生系統研究顯示：使用羥氯喹治療CCP病毒患者可顯著降低死亡率](https://gnews.org/zh-hant/258573/)
+
+[Tucker Carlson 採訪醫學撰稿人馬克·西格爾博士：羥氯喹降低一半死亡率](https://gnews.org/zh-hant/257124/)
 
 0

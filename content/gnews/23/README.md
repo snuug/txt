@@ -1,63 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國政府黑客
-`2020-07-23 19:12 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/274279/)
+## 中共學者隱瞞軍人身份被指控簽證欺詐
+`2020-07-24 06:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/274774/)
 
-*新聞來源：CHINA LAW BLOG｜作者： [Steve Dickinson](https://www.chinalawblog.com/author/stevedickinson) ；*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24055330/1-111.png)圖片來源： [https://majesticpr.com/us-arrests-three-chinese-nationals-for-visa-fraud/](https://majesticpr.com/us-arrests-three-chinese-nationals-for-visa-fraud/) 
+根據美國司法部7月23日發布的公告,四名中共軍人身份的訪問學者因簽證欺詐受到指控，其中三人已被捕，另一人藏匿在中共駐舊金山領事館，FBI正在緝拿。
 
-*翻譯、簡評：小小妹｜校對：1818｜PAGE：玄天生；*
+據悉，被指控的四人在美國著名的研究機構做訪問學者或研究生，均在申請入境簽證時隱瞞了自己中共軍人的身份，這證明了中共利用美國社會和學術機構的開放性,對美國進行的極端滲透。
 
-**簡評：**
+除了以上逮捕行動外，聯邦調查局最近還在全美25個以上的城市，對涉嫌隱瞞中共軍方身份的簽證持有者展開了調查。聯邦調查局國家安全處執行助理處長約翰·布朗（John Brown）說，發現被調查者“都利用美國和美國人民善意，極力隱瞞他們真正的隸屬關係”。
 
-黑客本身就是一個非法的組織或個人，通過互聯網、軟件竊取你的個人隱私和資料來獲取相應的利益。但是中共政府利用這一手段來監控企業和個人，從而保護自己的利益和維護自身的權利免受侵害。實際上中共就是最大的犯罪集團，這相當於又當裁判又下場踢球，毫無規則可言。在中共國你沒有任何人權，因為你一旦說了，做了一些損害政府的言論和活動，它們會第一時間察覺並且採取行動，並讓你因此付出沉痛代價。可想而知，如果中共政府稱霸世界，那麼所有的人都將成為他們的奴隸。
+上述4人如果罪名成立，可能會被判處長達10年的監禁和25萬美元的罰款。
 
-##  **中共國政府黑客：如何進行(第一部分)** 
+對四人的具體指控，簡介如下：
 
-*公佈於： [《中國商業法基礎》](https://www.chinalawblog.com/basics-of-china-business-law) 、 [《中國商業》](https://www.chinalawblog.com/china-business) 、 [《互聯網》](https://www.chinalawblog.com/internet)*
+王鑫（音譯，Xin Wang，）：6月7日被捕，6月8日首次出庭，加利福尼亞州北區的大陪審團已於6月22日提交起訴書。
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/00ede151-aa51-4dc0-be27-575b2ef881f9.jpg?asset_id=04605b97-c84b-4f26-a8c9-72931729724a&amp;img_etag=%22105743fbc45f540cc808138fc9ed1f0a%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/00ede151-aa51-4dc0-be27-575b2ef881f9.jpg?asset_id=04605b97-c84b-4f26-a8c9-72931729724a&amp;img_etag=%22105743fbc45f540cc808138fc9ed1f0a%22&amp;size=1024)
+王鑫在2018年12月獲得J-1非移民簽證，於2019年3月26日入境美國。王鑫在簽證申請中填寫的入境目的是在加州大學舊金山分校進行科學研究，並稱在2002年9月1日至2016年9月1日曾在中國人民解放軍擔任醫學副教授。然而，王鑫實際上是解放軍現役的“九級”技術員（相當於少校軍銜），隸屬於某軍事大學的實驗室，曾向該實驗室的上級提供加州大學實驗室的佈局資料，以便在中共國進行複制。加州大學舊金山分校實驗室的部分資金來自於美國衛生與公眾服務部和美國國立衛生研究院（NIH）。
 
-在[《中共政府正在通過後門訪問你的網絡並使你的信息，無處可藏》](https://www.chinalawblog.com/2020/07/the-chinese-government-is-accessing-your-network-through-the-backdoor-and-there-still-is-no-place-to-hide.html)中，我解釋了中國銀行如何要求其帳戶持有人（包括在中共國的所有外國公司）安裝惡意軟件，從而使中共政府可以查看到所有帳戶持有人的數據。在[《中共國的惡意軟件：對不起，技術極客們，依舊無處可藏》](https://www.chinalawblog.com/2020/07/china-malware-sorry-techno-geeks-there-still-is-no-place-to-hide.html)中，我解釋道，“在中共國，政府本身就是黑客，它不會允許任何外國或國內技術人員提供會破壞黑客最終目標的服務。”
+唐娟（音譯，Juan Tang）：藏匿於中共國駐舊金山的領事館
 
-文章分為上下兩部分，此篇為第一部分（第二部分將於明天發布），我將解釋中共政府的黑客攻擊目標，它們怎樣進行黑客攻擊，以及為什麼外國公司幾乎不可避免地遭到中共政府的入侵或進行反擊。
+唐娟以加州大學戴維斯分校研究員的身份，於2019年12月27日左右持J-1非移民簽證入境美國。她在簽證申請中作了虛假陳述，否認自己入伍的事實。事實上，唐娟是解放軍空軍的一名軍官，曾在空軍軍醫大學（又稱第四軍醫大學）工作。聯邦調查局在發現了數張唐娟身著軍服的照片後對其問話，並於7月20日獲得法庭簽發的逮捕令。唐娟在問話後潛入中共國駐舊金山的領事館，藏匿至今。
 
-**A：中共政府是黑客。**
+宋琛（音譯，Chen Song）：7月18日被捕
 
-在網絡領域中，總體國家安全概念的基本目標是使所有網絡通信和信息向中共政府開放並可供中共政府使用，同時禁止國外各方訪問。為遵循這一理念，政府將努力確保在中共國境內進行的所有網絡活動對國家而言都是透明的。該計劃適用於在中共國（以及現在的香港和澳門）境內開展活動的所有人（個人或實體）。如果你在中共國開展業務，則必須假定你所有的聯網數據和通信均會被中共政府所捕獲。外商投資公司或外國國民不再享有任何特權；一旦進入中共國境內，他們的待遇與國內公司和中共國公民是相同的。就像所有中共國公民一樣，你無處可藏。
+宋琛於2018年12月23日持J-1非移民簽證入境美國。她在簽證申請時表示，已於2011年6月30日結束了在中共軍隊的服役，當時已是北京西釣魚台醫院的一名神經科醫生，入境的目的是在斯坦福大學進行腦科疾病方面的研究。然而，這些都是謊言。宋琛是現役軍人，隸屬於解放軍空軍下屬機構。截至7月13日為止，中共國的一家醫療網站仍將她列為解放軍空軍總醫院神經內科的主治醫師，並貼有她的軍裝照。此外，在2015年發表的一篇文章中，宋琛是解放軍空軍總醫院的醫生，為該院核磁共振科原主任醫師進行屍檢。
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/84d6e60d-6ed9-40a6-ad8b-32410efe218c.jpg?asset_id=fc97a3f6-1270-4401-96f2-3069ee4401a7&amp;img_etag=%22a1f0a6ea61ad636c50eafbbf0adc3b07%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/84d6e60d-6ed9-40a6-ad8b-32410efe218c.jpg?asset_id=fc97a3f6-1270-4401-96f2-3069ee4401a7&amp;img_etag=%22a1f0a6ea61ad636c50eafbbf0adc3b07%22&amp;size=1024)
+此外，從被宋琛刪除的複原文件中找到了她給中共國駐紐約領事館的一封信，信中解釋說她正在延長留美國時間。信中還寫道，北京西釣魚台醫院只是她的掩護，所以延期需獲得解放軍空軍和第四軍醫大學的批准。此外，信中還解釋，由於這些申請屬於文件機密，因此她不能在網上傳輸。
 
-那麼中共政府是如何執行該計劃呢？關鍵是中共政府就是黑客。當黑客直接參與創建和管理互聯網以及實施網絡安全的關鍵代理，並對其進行監管時，毫無疑問，該黑客不會受到網絡入侵/數據收集活動的影響。黑客決定了系統的工作方式，當然，它也不會對自己的活動提供任何保護。
+趙凱凱（音譯，Kaikai Zhao）：7月18日被捕
 
-**B.航天信息公司**
+趙凱凱被捕前是印第安納大學機器學習和人工智能專業的研究生。他在2018年6月申請F1非移民簽證時否認曾在軍中服役。事實上，他曾在國防科技大學服役，該大學是解放軍一流的科研教育機構，直屬於中共中央軍委。趙凱凱還曾就讀於中國人民解放軍空軍航空大學。該校的學生都是接受軍事訓練的現役軍人。此外，FBI還在網上找到了趙凱凱身著軍服的照片。
 
-下面討論的Golden Spy / Golden Helper惡意軟件程序說明了這一基本事實。據Trustwave報告稱，Golden Spy軟件由航天信息公司（Aerospace Information Joint Stock LLC。–航天信息股份有限公司）編寫，這家上市的IT公司專注信息安全領域。據該公司的網站，它歸中共國有公司中國航天科工集團有限公司（CASIC）所有。請參閱[GoldenSpy第4章：官方Golden Tax軟件中嵌入的GoldenHelper惡意軟件。](https://www.trustwave.com/en-us/resources/blogs/spiderlabs-blog/goldenspy-chapter-4-goldenhelper-malware-embedded-in-official-golden-tax-software/)
+譯評：
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/b366ab5f-8e10-4afa-9d37-027043539789.jpg?asset_id=7fd6679c-09f0-4946-9633-bbdb2f2f526a&amp;img_etag=%22be48de8f8d22faf66108f890336646b7%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/b366ab5f-8e10-4afa-9d37-027043539789.jpg?asset_id=7fd6679c-09f0-4946-9633-bbdb2f2f526a&amp;img_etag=%22be48de8f8d22faf66108f890336646b7%22&amp;size=1024)
+美國司法部對上述四人的指控證據確鑿。關閉中共駐休斯頓領事館以及彭培奧在尼克松圖書館的演講都說明b美國不但已充分掌握中共偷竊知識產權的證據，而且已著手剷除中共在美國的間諜，美國的重錘正接連不斷地砸下。據說已有2名休斯頓領館人員向美國尋求政治庇護，最後關頭脫離中共實是明智之舉。奉勸還在為中共效力的人們，果斷投誠與美國合作，站出來消滅中共，才是你們唯一的出路。中共從不保護為其賣力的嘍囉，即便是高級間諜金無怠，不是也沒逃過“被自殺“的命運嗎？
 
-中國航天科工集團有限公司是中共國領先的導彈和相關航空航天設備的製造商。它向朝鮮出售導彈系統，並與俄羅斯軍隊密切合作。作為武器供應商，它是直接由政府和中共控制的國有企業，它也就相當於政府（直屬）。最近，作為中共國促進網絡運營和雲計算本地化發展計劃的一部分，中國航天科工集團有限公司通過其子公司航天信息公司進入了商業網絡業務，該公司一直活躍於支付處理和其他會計系統。航天信息公司起草了Golden Shield稅收軟件以及相關係統的編寫是（促進網絡運營和雲計算本地化發展）計劃的一部分。
+[原文鏈接](https://www.justice.gov/opa/pr/researchers-charged-visa-fraud-after-lying-about-their-work-china-s-people-s-liberation-army)
 
-**C. Golden Spy / Golden Helper惡意軟件**
-
-航天信息公司起草了Golden Spy惡意軟件，就等於是中共政府起草了該惡意軟件。簡而言之，中共政府就是黑客，所以它得以免於因其黑客活動所引起的任何責任。這就是為什麼航天信息公司為此惡意軟件使用了一種粗略且易於識別的特洛伊木馬系統，但並沒有受到監測，懲罰或被勒令禁止。
-
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/eb6edac1-48e4-4252-9a15-5e7bc79415e2.jpg?asset_id=3227bf43-772b-4eb4-a6c6-bc33fe711037&amp;img_etag=%22cb660725e7d0608a814a5b680c679143%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/eb6edac1-48e4-4252-9a15-5e7bc79415e2.jpg?asset_id=3227bf43-772b-4eb4-a6c6-bc33fe711037&amp;img_etag=%22cb660725e7d0608a814a5b680c679143%22&amp;size=1024)
-
-一些人向我們和安全專家評論說，這種明顯的入侵也就表明中共政府不能成為惡意軟件程序的幕後黑手。 [ArsTechnica](https://arstechnica.com/information-technology/2020/07/malware-stashed-in-china-mandated-software-is-more-extensive-than-thought/)網站明確做出回應：
-
-讀者評論：“特洛伊木馬下載程序的使用並不隱蔽。”
-
-來自ArsTechnica網站的回复：至於說它不那麼隱蔽的原因……按照你在此應用軟件的標準，像這樣的惡意軟件還不成熟，所以這是一個奇怪的論點。說來也怪，你認為中共政府關心的是程序是否隱蔽嗎？這可是政府授權在境內使用的軟件啊。說的好像中共政府會對其進行打擊似的。
-
-因此，這就是中共國的情況。正如Arstechnica網站明確指出的那樣，當惡意軟件或非法數據收集由政府自己完成時，那就沒有補救措施也沒有後路。在境內開展業務時，中共國政府及其相關的黑客組織不必隱蔽或遮掩自己的踪跡。
-
-**D.第二部分，明天**
-
-明天，在第二部分中，我將通過闡述中共政府如何獲得外國公司網絡和公司數據訪問的四種基本方式，來說明中共黑客如何實現其在網絡領域的目標。
-
-[原文鏈接](https://www.chinalawblog.com/2020/07/prc-government-hacking-how-its-done.html)
-
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/pzqfbfE8g8ZR9/)
+翻譯：Himalaya Cat
 
 0
