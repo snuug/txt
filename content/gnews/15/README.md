@@ -1,63 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國政府黑客
-`2020-07-23 19:12 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/274279/)
+## 休斯頓之役——結合中共可能採取的流氓手段談72小時的重要性
+`2020-07-24 03:25 立武` [轉載自GNews](https://gnews.org/zh-hant/274664/)
 
-*新聞來源：CHINA LAW BLOG｜作者： [Steve Dickinson](https://www.chinalawblog.com/author/stevedickinson) ；*
+7月21日，美國政府要求中共**72****小時內**關閉休斯頓總領事館。
 
-*翻譯、簡評：小小妹｜校對：1818｜PAGE：玄天生；*
+第一個“72小時”**引爆全球媒體網路，**宣告美國滅共決心和中美斷交在即。
 
-**簡評：**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24032007/22%E8%BD%BD-3.png)
 
-黑客本身就是一個非法的組織或個人，通過互聯網、軟件竊取你的個人隱私和資料來獲取相應的利益。但是中共政府利用這一手段來監控企業和個人，從而保護自己的利益和維護自身的權利免受侵害。實際上中共就是最大的犯罪集團，這相當於又當裁判又下場踢球，毫無規則可言。在中共國你沒有任何人權，因為你一旦說了，做了一些損害政府的言論和活動，它們會第一時間察覺並且採取行動，並讓你因此付出沉痛代價。可想而知，如果中共政府稱霸世界，那麼所有的人都將成為他們的奴隸。
+熱點新聞的意義在於**誰佔據了輿論山頭，誰就佔據了主動權，**雙方博弈的時間視窗只有大選前的幾個月。
 
-##  **中共國政府黑客：如何進行(第一部分)** 
+如果中共將輿論導向轉變為**“川普政府流氓手段”、“沒有法律依據”、“泯滅人權”，**這將給民主黨一張很好的牌來打擊川普，同時**挑起國內民族主義綁架民意，**將給蓬佩奧今天演講提到的**“中國人民對抗中共暴政”**予以輿論重創。
 
-*公佈於： [《中國商業法基礎》](https://www.chinalawblog.com/basics-of-china-business-law) 、 [《中國商業》](https://www.chinalawblog.com/china-business) 、 [《互聯網》](https://www.chinalawblog.com/internet)*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031957/%E4%B8%8B23%E8%BD%BD-5.png)
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/00ede151-aa51-4dc0-be27-575b2ef881f9.jpg?asset_id=04605b97-c84b-4f26-a8c9-72931729724a&amp;img_etag=%22105743fbc45f540cc808138fc9ed1f0a%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/00ede151-aa51-4dc0-be27-575b2ef881f9.jpg?asset_id=04605b97-c84b-4f26-a8c9-72931729724a&amp;img_etag=%22105743fbc45f540cc808138fc9ed1f0a%22&amp;size=1024)
+所以，中共一定想方設法**佔據休斯頓輿論的高點。**
 
-在[《中共政府正在通過後門訪問你的網絡並使你的信息，無處可藏》](https://www.chinalawblog.com/2020/07/the-chinese-government-is-accessing-your-network-through-the-backdoor-and-there-still-is-no-place-to-hide.html)中，我解釋了中國銀行如何要求其帳戶持有人（包括在中共國的所有外國公司）安裝惡意軟件，從而使中共政府可以查看到所有帳戶持有人的數據。在[《中共國的惡意軟件：對不起，技術極客們，依舊無處可藏》](https://www.chinalawblog.com/2020/07/china-malware-sorry-techno-geeks-there-still-is-no-place-to-hide.html)中，我解釋道，“在中共國，政府本身就是黑客，它不會允許任何外國或國內技術人員提供會破壞黑客最終目標的服務。”
+“**合法”示威**
 
-文章分為上下兩部分，此篇為第一部分（第二部分將於明天發布），我將解釋中共政府的黑客攻擊目標，它們怎樣進行黑客攻擊，以及為什麼外國公司幾乎不可避免地遭到中共政府的入侵或進行反擊。
 
-**A：中共政府是黑客。**
+> **“說不定會有很多美國籍小粉紅來當肉盾，以侵犯人權的方式阻擋。”**
 
-在網絡領域中，總體國家安全概念的基本目標是使所有網絡通信和信息向中共政府開放並可供中共政府使用，同時禁止國外各方訪問。為遵循這一理念，政府將努力確保在中共國境內進行的所有網絡活動對國家而言都是透明的。該計劃適用於在中共國（以及現在的香港和澳門）境內開展活動的所有人（個人或實體）。如果你在中共國開展業務，則必須假定你所有的聯網數據和通信均會被中共政府所捕獲。外商投資公司或外國國民不再享有任何特權；一旦進入中共國境內，他們的待遇與國內公司和中共國公民是相同的。就像所有中共國公民一樣，你無處可藏。
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/84d6e60d-6ed9-40a6-ad8b-32410efe218c.jpg?asset_id=fc97a3f6-1270-4401-96f2-3069ee4401a7&amp;img_etag=%22a1f0a6ea61ad636c50eafbbf0adc3b07%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/84d6e60d-6ed9-40a6-ad8b-32410efe218c.jpg?asset_id=fc97a3f6-1270-4401-96f2-3069ee4401a7&amp;img_etag=%22a1f0a6ea61ad636c50eafbbf0adc3b07%22&amp;size=1024)
+即使身處美國，仍然有**許多中國人只浸泡在中共社交媒體網路**——微信、抖音。
 
-那麼中共政府是如何執行該計劃呢？關鍵是中共政府就是黑客。當黑客直接參與創建和管理互聯網以及實施網絡安全的關鍵代理，並對其進行監管時，毫無疑問，該黑客不會受到網絡入侵/數據收集活動的影響。黑客決定了系統的工作方式，當然，它也不會對自己的活動提供任何保護。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031945/%E4%B8%8B%E8%BD%BD-28.png)
 
-**B.航天信息公司**
+美國打掉中共兩大媒體巨頭意義也在於**針對國外小粉紅進行反洗腦。**
 
-下面討論的Golden Spy / Golden Helper惡意軟件程序說明了這一基本事實。據Trustwave報告稱，Golden Spy軟件由航天信息公司（Aerospace Information Joint Stock LLC。–航天信息股份有限公司）編寫，這家上市的IT公司專注信息安全領域。據該公司的網站，它歸中共國有公司中國航天科工集團有限公司（CASIC）所有。請參閱[GoldenSpy第4章：官方Golden Tax軟件中嵌入的GoldenHelper惡意軟件。](https://www.trustwave.com/en-us/resources/blogs/spiderlabs-blog/goldenspy-chapter-4-goldenhelper-malware-embedded-in-official-golden-tax-software/)
+目前情況來看，仍然有許多小粉紅接受在美的黨組織領導，**通過同鄉會、聯誼會、旗袍會共用社會主義核心價值觀。**
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/b366ab5f-8e10-4afa-9d37-027043539789.jpg?asset_id=7fd6679c-09f0-4946-9633-bbdb2f2f526a&amp;img_etag=%22be48de8f8d22faf66108f890336646b7%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/b366ab5f-8e10-4afa-9d37-027043539789.jpg?asset_id=7fd6679c-09f0-4946-9633-bbdb2f2f526a&amp;img_etag=%22be48de8f8d22faf66108f890336646b7%22&amp;size=1024)
+**他們也是中共可以利用的牌。**
 
-中國航天科工集團有限公司是中共國領先的導彈和相關航空航天設備的製造商。它向朝鮮出售導彈系統，並與俄羅斯軍隊密切合作。作為武器供應商，它是直接由政府和中共控制的國有企業，它也就相當於政府（直屬）。最近，作為中共國促進網絡運營和雲計算本地化發展計劃的一部分，中國航天科工集團有限公司通過其子公司航天信息公司進入了商業網絡業務，該公司一直活躍於支付處理和其他會計系統。航天信息公司起草了Golden Shield稅收軟件以及相關係統的編寫是（促進網絡運營和雲計算本地化發展）計劃的一部分。
+甚至不用發紅包，鼓動民意在領事館外面抗議美國的“72小時”，**召來梁冠軍、黃河邊、西諾等幾員大將，偽裝成中國人的主流民意。**
 
-**C. Golden Spy / Golden Helper惡意軟件**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031908/unnamed-20.jpg)
 
-航天信息公司起草了Golden Spy惡意軟件，就等於是中共政府起草了該惡意軟件。簡而言之，中共政府就是黑客，所以它得以免於因其黑客活動所引起的任何責任。這就是為什麼航天信息公司為此惡意軟件使用了一種粗略且易於識別的特洛伊木馬系統，但並沒有受到監測，懲罰或被勒令禁止。
+同時配合FAKE NEWS和民主黨，**把川普政府打成無視民意的流氓政府，**通過聯結“黑命貴”運動，**偽裝成受迫害的亞裔群體，**進而坐實川普政府**種族主義的標籤。**
 
-[!\[\](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/eb6edac1-48e4-4252-9a15-5e7bc79415e2.jpg?asset_id=3227bf43-772b-4eb4-a6c6-bc33fe711037&amp;img_etag=%22cb660725e7d0608a814a5b680c679143%22&amp;size=2560)](https://spark.adobe.com/page/pzqfbfE8g8ZR9/images/eb6edac1-48e4-4252-9a15-5e7bc79415e2.jpg?asset_id=3227bf43-772b-4eb4-a6c6-bc33fe711037&amp;img_etag=%22cb660725e7d0608a814a5b680c679143%22&amp;size=1024)
+中共就賭這是合法示威和抗議，美國不敢驅逐小粉紅，**只要美國敢動手，一定會面臨主流媒體的討伐。**
 
-一些人向我們和安全專家評論說，這種明顯的入侵也就表明中共政府不能成為惡意軟件程序的幕後黑手。 [ArsTechnica](https://arstechnica.com/information-technology/2020/07/malware-stashed-in-china-mandated-software-is-more-extensive-than-thought/)網站明確做出回應：
+不過，在面臨隨時可能被遣返的情況下，**有多少小粉紅敢站出來還是未知數。**
 
-讀者評論：“特洛伊木馬下載程序的使用並不隱蔽。”
+**扮演受害者**
 
-來自ArsTechnica網站的回复：至於說它不那麼隱蔽的原因……按照你在此應用軟件的標準，像這樣的惡意軟件還不成熟，所以這是一個奇怪的論點。說來也怪，你認為中共政府關心的是程序是否隱蔽嗎？這可是政府授權在境內使用的軟件啊。說的好像中共政府會對其進行打擊似的。
 
-因此，這就是中共國的情況。正如Arstechnica網站明確指出的那樣，當惡意軟件或非法數據收集由政府自己完成時，那就沒有補救措施也沒有後路。在境內開展業務時，中共國政府及其相關的黑客組織不必隱蔽或遮掩自己的踪跡。
+> **中共陰招：肯定會讓死幾個人。像南聯盟一樣，讓老百姓站出來，合法砸美國店，美國車。**
 
-**D.第二部分，明天**
 
-明天，在第二部分中，我將通過闡述中共政府如何獲得外國公司網絡和公司數據訪問的四種基本方式，來說明中共黑客如何實現其在網絡領域的目標。
+64那年，因為一具屍體，**愛國青年被打成暴亂分子。**
 
-[原文鏈接](https://www.chinalawblog.com/2020/07/prc-government-hacking-how-its-done.html)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031827/D8iPBctXoAAaCJo-3.jpg)
 
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/pzqfbfE8g8ZR9/)
+69去年，香港人同樣被形容成**“一小撮暴徒”**，配合偽類在海外的攻擊，**中共一直想把爆料革命打成資助恐怖主義的黑手。**
 
-0
+今年，中共同樣可以使用一貫的爛招，**把美國定義為“主動挑起爭端”的霸權。**
+
+二十年前，南斯拉夫大使館被炸事件，**引發了抗美熱潮。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031817/v2-02723015890e7541c2fef25fa88d999c_1440w-3.jpg)
+
+**但中共絕口不提那架藏匿的****F-117****。**
+
+大使館或是領事館，作為中共海外藍金黃和統戰的橋頭堡，**深入貫徹落實著中共的****3F****計畫。**
+
+**從芬太尼、中共病毒再到****ANTIFA****，**這些事件的背後都有中共的黑手。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031804/%E4%B8%8B4%E8%BD%BD-3.png)
+
+
+> **說不定還沒開槍，他們自己就引爆，把證據炸了（比如類似卡舒吉和芬太尼的現場）。就是為了讓你開槍，說美國爆的，扮受害者。**
+
+
+
+> **直接炸了，威脅美國FBI，美國不可能讓聯邦特工冒著生命危險進入。他們又絕食、又靜坐，又樓頂拿著煤氣罐，都有可能。拖時間！一進去就碰瓷，發動全世界宣傳機器，說領事館被武力襲擊…**
+
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031730/Screenshot-5.png)
+
+**炸掉領事館，毀滅證據，栽贓美國。**
+
+資助ANTIFA，偽裝成FBI、CIA，**自導自演一齣炸彈威脅苦情戲，最後出具監控錄影畫面。**
+
+只要夠狠，就可以挑起民意，掀起在各大美國駐中國領事館的示威浪潮，**讓美國人看到“擁護共產黨，反對美利堅”才是中國人的主流民意。**
+
+**開闢新戰場**
+
+中共出牌反制需要時間，**不給中共反制時間就是最好的反擊。**
+
+休斯頓領事館的關閉，美國先拔頭籌**，中共在沒有任何情報來源的情況下，慌張燒毀檔。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031719/Scre2enshot-2.png)
+
+這是美國開闢的新戰場，**現在中共疲於奔命，在不同戰場受制於美國。**
+
+中共反制美國依靠的是大選前的時間視窗，**中共想要的是拖延戰術，而不是“****72****小時”，**對中共來說，這種**“快、准、狠”的滅共政策**是未曾有過的。
+
+**因為中共面對的是非常瞭解中共的爆料革命。**
+
+只要在各個戰場不斷推進真正的民意，同時不斷開闢新戰場，開啟全球聯合滅共，**中共就沒有時間來挑起民意，只能疲於在不同戰場慌忙應付。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24031709/223%E8%BD%BD-5.png)
+
+**三個月的霹靂雷霆行動是三年爆料革命推進的成果，**對付擅於閃轉騰挪的中共，行動必須像雨點般打下，不留空隙。
+
+**對付中共，就要“72小時”，休斯頓事件僅僅是第一個“72小時**。
+
+[P.S.引用來自路德時評](https://www.youtube.com/watch?v=NSQ7rx9v2oU)
+
+1
