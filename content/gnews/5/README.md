@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】11/07/2020 CCP病毒每日疫情直播簡報
-`2020-07-24 13:44 GM77` [轉載自GNews](https://gnews.org/zh-hant/275087/)
+## 快報: 瞞軍方身份來美FBI通緝犯於24日被捕,是其主動棄暗投明還是中共丟卒保車?
+`2020-07-24 18:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/275169/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24181929/Picture-1-154.png)圖片來源： [六度新聞](https://6do.news/article/2989406-61) 
+據美ABC舊金山7號台美國當地時間7月24日下午報導，前兩天被認為藏匿在中共國駐舊金山領事館的研究員唐娟於24日凌晨在薩克拉門託縣監獄登記被捕，目前羈押在該監獄中。唐娟是加州大學戴維斯分校華裔研究員，因簽證欺詐罪被美國通緝。加州大學戴維斯分校正在配合執法部門提供所要求的信息。該校表示，唐娟曾是放射腫瘤科的訪問研究員，是中國教育部與西京醫院資助的交流項目的訪問學者。
 
-[English\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)
+**唐娟暴露的過程**
 
-[French\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)
+唐娟在2019年10月申請到加州大學戴維斯分校工作。她在簽證申請中瞞報了其中共軍籍身份。 FBI在6月20日對唐進行了詢問，她否認曾在軍隊服役。當FBI探員出示給唐娟她身穿解放軍文職幹部製服的照片時， 她稱不知道軍裝上的徽章的意義。隨後特工們在她住所又發現了更多的證據以證明她的軍人身份。探員們通過查閱了有關中國的文章，結合唐某身穿解放軍制服的照片，做出了她的軍方背景的判斷。
 
-[German\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)
+檢察官在7月20日的一份法庭文件稱，在2020年6月20日FBI搜查和詢問後的某個時間點，唐娟去了中共駐舊金山領事館，然後一直未出現過。 FBI認為她一直藏匿在領館裡。
 
-[Japanese\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)
+**多名具有中共軍方背景人員已被美國指控和調查**
 
-[Korean\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)
+指控唐娟的法庭文件還稱，司法部正在拘捕另一名謊報軍方背景進入美國的中國科學家。該文件指出多名中國公民企圖隱瞞其中共軍方的背景或與中共政府的關係，並稱中共國政府指示其在美國的解放軍成員刪除他們設備上的信息企圖妨礙司法調查。
 
-[Russian\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)
+評：
 
-[Spanish\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)
+本周美國下令關閉中共國駐休斯敦領事館，而舊金山領事館會不會因為藏匿唐娟而也被下令關閉呢？美國已經加大了對又軍方和政府背景的中國研究人員的調查，逃到中使領館未必就安全。唐娟的被抓到底是主動棄暗投明還是被領館出賣呢？我們不得而知。有一點可以證明，就是還在替中共國賣命偷竊美國知識技術產權的中共國知識分子們，懸崖勒馬的關鍵時刻已經到了！
+
+[原文鏈接](https://abc7news.com/chinese-consulate-san-francisco-sf-tang-juan-uc-davis/6332978/)
+
+翻譯報導：Sarathecat 
+校對整理：晴天小螞蟻
 
 0
