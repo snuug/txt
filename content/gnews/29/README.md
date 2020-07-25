@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共運動以及“中國城”的命運
-`2020-07-25 04:38 GM31` [轉載自GNews](https://gnews.org/zh-hant/275590/)
+## 【世界多語言圖文】2020/07/03 CCP病毒每日疫情直播簡報
+`2020-07-25 05:36 GM77` [轉載自GNews](https://gnews.org/zh-hant/275664/)
 
-在郭先生的2020年7月19日的G-TV直播中，他提到現在已經沒有人敢試圖停止滅共，因為“**誰想停止滅共，那你就是美國的敵人！**“
+戰友之家圖文摘要組及小語種組
 
-在世界範圍內，各國已經開始調查那些由中共所支持培養的紅頂商人如馬雲之類的。美國已力推**對所有海外的中共黨員或是為****CCP****做事的人員的調查**（郭先生指出實際上此行動三年前就已啟動）。華人聚集區（包含**中國城**）因為是CCP基地的重要嫌疑地帶，必將成為重點目標。紐約，新澤西，華盛頓特區，波士頓，洛杉磯和三藩市等地區是此調查的重中之重。
+[English\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052917/English_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052917/English_0703_CCP_Virus_Updates.pdf)
 
-類似地，歐洲已經開始了有關如何徹底關閉“中國城”的立法討論，因為這些“**中國城**”已被視為**“共產黨搞間諜犯罪的場合**”。因受到美國堅定的決心和一系列猛烈開拓性實際行動的鼓舞，“**北約最後決定表態堅決與美國站在一起**”，為這“滅共之戰”而並肩奮鬥。
+[French\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052929/French_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052929/French_0703_CCP_Virus_Updates.pdf)
 
-”**美國現在已經形成了三派**“（三個不同的陣營）：
+[German\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052935/German_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052935/German_0703_CCP_Virus_Updates.pdf)
 
-\*. 首先是“**絕對的滅共派“**陣營，代表人物有國務卿蓬佩奧先生，納瓦羅先生，班農先生，科頓參議員，博明先生和Miles Yu先生等；
+[Japanese\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052945/Japanese_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052945/Japanese_0703_CCP_Virus_Updates.pdf)
 
-\*. 第二陣營是“**絕對的親共派**”，他們“**頑固致死，可能被藍金黃**“所困/勒索；(BGY/ 藍金黃計畫指CCP利用資訊/金錢/性別來勒索）
+[Korean\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052954/Korean_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052954/Korean_0703_CCP_Virus_Updates.pdf)
 
-\*. 第三個被稱為“**無知派“**陣營，但這個無知派”**接下來都將成為堅定的滅共派**”。
+[Russian\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053002/Russian_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053002/Russian_0703_CCP_Virus_Updates.pdf)
 
-爆料革命的戰友們和全世界很快將”**看著共產黨摧枯拉朽**“！
+[Spanish\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053008/Spanish_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053008/Spanish_0703_CCP_Virus_Updates.pdf)
 
-*翻译：【RD16】 校对：【GM31】 字幕：【V%】*
-
-*战友之家玫瑰园小队出品*
-
-0
+1
