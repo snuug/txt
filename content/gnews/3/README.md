@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/03 CCP病毒每日疫情直播簡報
-`2020-07-25 05:36 GM77` [轉載自GNews](https://gnews.org/zh-hant/275664/)
+## 戰友們請聯繫當地喜馬拉雅農場以尋求保護
+`2020-07-25 09:48 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/275899/)
 
-戰友之家圖文摘要組及小語種組
+在[2020年7月22日的現場直播](https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044)中，郭文貴先生敦促戰友們聯繫當地喜馬拉雅農場以尋求保護，郭先生也解釋了與當地農場的新合作方式，和當地農場簽署貸款合同，可以要股權、要利息、要現金，由戰友們自己決定。
 
-[English\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052917/English_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052917/English_0703_CCP_Virus_Updates.pdf)
+*翻譯：【JoyJoy】校對：【Winston Jackson】字幕：【V%】*
 
-[French\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052929/French_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052929/French_0703_CCP_Virus_Updates.pdf)
+*戰友之家玫瑰園小隊出品*
 
-[German\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052935/German_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052935/German_0703_CCP_Virus_Updates.pdf)
-
-[Japanese\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052945/Japanese_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052945/Japanese_0703_CCP_Virus_Updates.pdf)
-
-[Korean\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052954/Korean_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25052954/Korean_0703_CCP_Virus_Updates.pdf)
-
-[Russian\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053002/Russian_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053002/Russian_0703_CCP_Virus_Updates.pdf)
-
-[Spanish\_0703\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053008/Spanish_0703_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25053008/Spanish_0703_CCP_Virus_Updates.pdf)
-
-1
+0
