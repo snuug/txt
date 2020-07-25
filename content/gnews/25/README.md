@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】11/07/2020 CCP病毒每日疫情直播簡報
-`2020-07-24 13:44 GM77` [轉載自GNews](https://gnews.org/zh-hant/275087/)
+## 蓬佩奧：“共產主義中國與自由世界的未來”
+`2020-07-25 06:00 GM31` [轉載自GNews](https://gnews.org/zh-hant/275681/)
 
-戰友之家圖文摘要組及小語種組
+國務卿邁克爾·R·蓬佩奧於2020年7月23日在位於加利福尼亞州約巴林達的理查·尼克森總統圖書館發表[演講](https://www.youtube.com/watch?v=7azj-t0gtPM)。他指出，美國過去與中國共產黨交往的政策，反而促進了中國共產黨侵蝕美國和西方世界的利益；世界必須團結起來，向北京施壓以解放中國人民。他還引用雷根總統對前蘇聯的態度 “信任但要核實” ，相反地，他評論到，對中共的態度應該是 “不信任並要核實” 。蓬佩奧國務卿向尼克森總統的政治遺產致敬，並提議 “以更具創造性和更果敢的方式 引導中國變革” 。
 
-[English\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133646/168EN.pdf)
+*翻譯：【**Zion**文恩* *】【**BIM**】* *校對：【石頭* *】【**key**】* *字幕：【羅賓**Robin (**文賓**)**】* *編輯：【**GM31**】*
 
-[French\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133650/168FR.pdf)
+*戰友之家玫瑰園小隊出品*
 
-[German\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133654/168GE.pdf)
-
-[Japanese\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133743/168JP.pdf)
-
-[Korean\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133751/168Kor.pdf)
-
-[Russian\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133757/168RUS.pdf)
-
-[Spanish\_0711\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24133802/168SPA_1.pdf)
-
-0
+1

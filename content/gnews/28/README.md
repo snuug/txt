@@ -1,21 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】10/07/2020 CCP病毒每日疫情直播簡報
-`2020-07-24 12:57 GM77` [轉載自GNews](https://gnews.org/zh-hant/275028/)
+## CCP滑向深淵——中共黑手奴役勞工，與獨裁政權勾兌的個人和公司必將受嚴懲
+`2020-07-25 04:52 GM77` [轉載自GNews](https://gnews.org/zh-hant/275601/)
 
-戰友之家圖文摘要組及小語種組
+編撰：文玄、Pearl 珍珠、文珺追隨MG、臺灣荔枝、Lori文噠
 
-[English\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25042255/Josh-Hawley1-1024x576-1-1.jpg)
 
-[German\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)
+**美議員提法案要懲治與獨裁政權勾兌來從奴役勞動中獲利的名人和公司**
 
-[Japanese\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)
+參議員喬希-霍利（Josh Hawley）計劃提出立法，要求公司和名人在被發現在供應鏈中使用奴工或代言使用奴工的產品時，必須 “付出代價”。
 
-[Korean\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)
+“美國企業和兜售產品的名人已經玩了很久了–在國內大談企業社會責任和社會正義，卻從組裝產品的奴隸勞工身上賺取數百萬美元，”霍利周一在一份聲明中說。
 
-[Spanish\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)
+“高管們在美國消費者面前打造所謂清醒和社會進步的形象，卻樂此不疲地將勞動力外包給中國的集中營，這一切只是為了省下幾個錢。”
 
+霍利的 “無奴隸企業認證法案 “將要求對公司進行定期審計，並對未達到人權標準的公司進行處罰。
 
+霍利的法案似乎是針對中國政府在新疆省的維吾爾族勞改營的人權暴行，而且是在美國官員扣押了一大批產品之後，他們懷疑這些產品是用人發制造的，這是打擊中國強迫勞動的努力的一部分。
 
-0
+參議員辦公室表示，至少有80家全球公司與維吾爾族勞改營掛鉤，包括耐克、阿迪達斯和三星。
+
+還有一些人對他們認為中國政府的 “暴行 “發表了看法。在線支付處理公司Stripe的首席執行官首席執行官Jack Dorsey在推特上轉發這一消息並呼籲美國企業對中國政府的 “暴行 “采取立場。
+
+華爾街的利益集團在這幾十年裏和中共獨裁者一起剝削欺壓中國人民，是時候揭穿他們虛偽醜陋的面目，西方社會在覺醒。
+
+因為華爾街的高管的腐敗，美國失去了大量的工作，加重了中國人民的苦難卻穩定加固了中共的邪惡政權，是時候對這些為虎作倀的公司采取措施了。
+
+這次瘟疫讓每一個西方社會的人民體會到了被邪惡所挾持的全球化的惡果。
+
+相信這個法案能夠一棒驚醒那些貪婪的人們，然他們知道，他們需要為他們貪欲所造成的後果負責。
+
+**編者觀點**
+
+道德是獨裁者的口號，也是資本主義社會左派的的座右銘。
+
+但是他們口中的道德和政治正確是虛偽的，甚至是骯臟和帶血的，我們從參議員喬希-霍利計劃提出立法就能看得出來左棍們是和低人權國家統治者們沆瀣一氣地壓榨底層勞動者的本質。
+
+隨著正義力量的覺醒和占據上風，低人權的經濟體必將處處受限，中共做為典型也必將一步步滑向深淵。
+
+原文出處：
+[https://www.foxbusiness.com/markets/china-uighur-hawley-us-companies-bill.amp?\_\_twitter\_impression=true&s=09](https://www.foxbusiness.com/markets/china-uighur-hawley-us-companies-bill.amp?__twitter_impression=true&amp;s=09)
+
+1
