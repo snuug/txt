@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如果三峽大壩垮塌,九座核電站或被淹?輻射洩漏可能波及韓國
-`2020-07-24 09:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/274892/)
+## 【世界多語言圖文】10/07/2020 CCP病毒每日疫情直播簡報
+`2020-07-24 12:57 GM77` [轉載自GNews](https://gnews.org/zh-hant/275028/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/23062813/Picture-1-149.png)圖片來源：Handout/Reuters 
-據雅虎日本新聞網最新報導，受6月以來持續強降雨的影響，中國南方長江中下游地區正處於大洪水的邊緣。目前建在上游的世界最大水電站三峽大壩水位已經達到極限，這加劇了人們對水壓垮壩的擔憂：不僅下游的上海地區將遭受嚴重水災，連靠近該地區的9座核電站也將受到影響，災害甚至可能波及朝鮮半島。
+戰友之家圖文摘要組及小語種組
 
-據中共當局7月24日的報導，截至22日，中國南方暴雨洪澇災害已造成江西、安徽、湖北等27省市、4552萬人受災，死亡和失踪142人，受損房屋3.5萬間。
+[English\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091010/167En.pdf)
 
-更令人擔憂的是，建在長江上游的三峽大壩已經達到最高水位，面臨水壓垮壩的危險。如果持續超過極限水位，大壩因水壓過大而崩塌造成氾濫，下游上海地區的大洪水將不可避免，並將對該地區已建的9座核電站產生不利影響。
+[German\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091022/167Ge_1.pdf)
 
-據韓國專家分析，“如果三峽大壩坍塌洪水氾濫，淹沒這一地區，可能發生重大核事故”，具體而言，“有可能重演當年日本福島核電站，因洪水導致反應堆冷卻功能喪失而引發的燃料洩露事故”。
+[Japanese\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091027/167JP_1.pdf)
 
-[原文鏈接](https://news.yahoo.co.jp/articles/12c1250c76f4f0a50faba54f7cc224b9c48c9512)
+[Korean\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091032/167Kor.pdf)
 
-翻譯報導：fuyao 
-校對整理：晴天小螞蟻
+[Spanish\_0710\_CCP\_Virus](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24091036/167Spa_1.pdf)
 
-1
+
+
+0

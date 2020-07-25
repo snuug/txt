@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快報: 瞞軍方身份來美FBI通緝犯於24日被捕,是其主動棄暗投明還是中共丟卒保車?
-`2020-07-24 18:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/275169/)
+## 紫色閃電劈向自由女神像！專家警告：惡劣天氣恐持續
+`2020-07-25 01:26 GM15` [轉載自GNews](https://gnews.org/zh-hant/275464/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/24181929/Picture-1-154.png)圖片來源： [六度新聞](https://6do.news/article/2989406-61) 
-據美ABC舊金山7號台美國當地時間7月24日下午報導，前兩天被認為藏匿在中共國駐舊金山領事館的研究員唐娟於24日凌晨在薩克拉門託縣監獄登記被捕，目前羈押在該監獄中。唐娟是加州大學戴維斯分校華裔研究員，因簽證欺詐罪被美國通緝。加州大學戴維斯分校正在配合執法部門提供所要求的信息。該校表示，唐娟曾是放射腫瘤科的訪問研究員，是中國教育部與西京醫院資助的交流項目的訪問學者。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25012403/phpeDOkJy.jpg)
+國紐約23日遭受暴風雨襲擊，有網友拍攝到一道紫色的閃電，直接劈向自由女神像下的區域，相當驚人。除此之外，一棟教堂直接被閃電擊中，引發熊熊大火。氣象專家對此警告，紐約接下來可能還有龍捲風及洪水等天災侵擾，暴風更恐怕會加強，造成嚴重威脅。
 
-**唐娟暴露的過程**
+綜合外媒報導，紐約近日遭暴風雨壟罩，有網友拍下自由女神像宛如被紫色閃電擊中的影片，可以看見畫面中不停打雷，一道閃電就這樣直直地朝著自由女神像劈去，落向自由島後方區域，畫面十分震撼，這段影片迅速遭到網友瘋狂轉傳，目前已有3.9萬人分享。
 
-唐娟在2019年10月申請到加州大學戴維斯分校工作。她在簽證申請中瞞報了其中共軍籍身份。 FBI在6月20日對唐進行了詢問，她否認曾在軍隊服役。當FBI探員出示給唐娟她身穿解放軍文職幹部製服的照片時， 她稱不知道軍裝上的徽章的意義。隨後特工們在她住所又發現了更多的證據以證明她的軍人身份。探員們通過查閱了有關中國的文章，結合唐某身穿解放軍制服的照片，做出了她的軍方背景的判斷。
+除此之外，位於紐約皇后區（Queens）的南奧佐恩公園（South Ozone Park），有2名路人慘遭雷擊，緊急送醫，目前狀況不明；公園旁的教堂尖頂也遭到雷擊，有目擊民眾更稱，閃電除了劈向尖頂，還直接劈向教堂的門。
 
-檢察官在7月20日的一份法庭文件稱，在2020年6月20日FBI搜查和詢問後的某個時間點，唐娟去了中共駐舊金山領事館，然後一直未出現過。 FBI認為她一直藏匿在領館裡。
+「惡劣天氣恐持續」有氣象專家對此提出警告，紐約雖然度過了這次的暴風雨，但接下來還可能出現龍捲風及洪水等天災，造成更多的損失。
 
-**多名具有中共軍方背景人員已被美國指控和調查**
+> The best video I ever captured. [#NewYork](https://twitter.com/hashtag/NewYork?src=hash&amp;ref_src=twsrc%5Etfw) [#WeatherChannel](https://twitter.com/hashtag/WeatherChannel?src=hash&amp;ref_src=twsrc%5Etfw) [#NYC](https://twitter.com/hashtag/NYC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cOBqTqJ9LO](https://t.co/cOBqTqJ9LO)
+> — Mikey Cee (@\_Mikey\_Cee) [July 22, 2020](https://twitter.com/_Mikey_Cee/status/1286074510488350720?ref_src=twsrc%5Etfw)
 
-指控唐娟的法庭文件還稱，司法部正在拘捕另一名謊報軍方背景進入美國的中國科學家。該文件指出多名中國公民企圖隱瞞其中共軍方的背景或與中共政府的關係，並稱中共國政府指示其在美國的解放軍成員刪除他們設備上的信息企圖妨礙司法調查。
+引自自由時報:[https://news.ltn.com.tw/news/world/breakingnews/3238868](https://news.ltn.com.tw/news/world/breakingnews/3238868)
 
-評：
-
-本周美國下令關閉中共國駐休斯敦領事館，而舊金山領事館會不會因為藏匿唐娟而也被下令關閉呢？美國已經加大了對又軍方和政府背景的中國研究人員的調查，逃到中使領館未必就安全。唐娟的被抓到底是主動棄暗投明還是被領館出賣呢？我們不得而知。有一點可以證明，就是還在替中共國賣命偷竊美國知識技術產權的中共國知識分子們，懸崖勒馬的關鍵時刻已經到了！
-
-[原文鏈接](https://abc7news.com/chinese-consulate-san-francisco-sf-tang-juan-uc-davis/6332978/)
-
-翻譯報導：Sarathecat 
-校對整理：晴天小螞蟻
+GM15
 
 0
