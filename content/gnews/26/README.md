@@ -1,61 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## DT特戰旅金融課堂第二課
-`2020-07-25 16:45 DT` [轉載自GNews](https://gnews.org/zh-hant/276122/)
+## 【多语言图文版】7月3日中共病毒疫情要闻快报
+`2020-07-26 08:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276566/)
 
-DT特戰旅金融課堂
+[7.3-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
+[7.3-每日要闻-法文版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)
 
+[7.3-每日要闻-韩语版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)
 
-作者:長工satoshi/文章整理:西川stanly
+[7.3-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-上周說了反洗錢法, 簡單概括來說, 金融機構擁有了至高無上的權限。我反對洗錢，反對恐怖主義金融活動, 但是我認為不應該建立在犧牲公民自由權利的基礎之上。盜國賊歐美洗錢沒有受到任何影響，只知道普通人的日常生活受了影響。
+[7.3-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
 
-個人財產神聖不可侵犯, 這包含了交易自由；即如果妳不能證明我的資金有問題或者我的交易對象有問題, 或者交易本身有問題, 妳就沒有權利阻止我交易.七哥的GTV是洗錢還是詐騙? 至少法院沒有這麽說，甚至都沒有立案，妳作為壹個銀行有什麽權利直接貼上”詐騙的標簽”。
+[7.3-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-所以今天，我們就來講述這種給他人貼上標簽的超級權利，記賬權。
+[7.3-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-記賬在日常生活裏雖然是小事，但是我們內心其實認為這是神聖無比的壹件事。擡頭三尺有神靈；做壞事要三思；歐美人說的Karma；和佛學裏的因果。菩薩畏因，眾生畏果。大家潛意識裏都有壹個神靈在給每個人的每件事 “記賬”, 並且相信 這位神靈不會記假賬，更不會遺漏。更不會發生如下圖所示的這類事。
-
-[!\[\](https://spark.adobe.com/page/t055KPeEXh1t3/images/a9cbb70e-7ecf-4ebd-8b42-14f127d0cbf7.jpg?asset_id=6eeed718-c7ad-462d-a95a-b48840d786c6&amp;img_etag=%2290d26e0c7bb01096aded9590156d0e9b%22&amp;size=5096)](https://spark.adobe.com/page/t055KPeEXh1t3/images/a9cbb70e-7ecf-4ebd-8b42-14f127d0cbf7.jpg?asset_id=6eeed718-c7ad-462d-a95a-b48840d786c6&amp;img_etag=%2290d26e0c7bb01096aded9590156d0e9b%22&amp;size=1024)
-
-**廣義記賬權，個人最基礎的底層信息。**
-
-[!\[\](https://spark.adobe.com/page/t055KPeEXh1t3/images/50e6bc7f-7bfd-4342-a05a-6b8b2d46fd40.jpg?asset_id=b12eabb9-e832-47cd-bb4f-7f464a52658a&amp;img_etag=%223e5d62a56e906daf2183ec7e333acbce%22&amp;size=2560)](https://spark.adobe.com/page/t055KPeEXh1t3/images/50e6bc7f-7bfd-4342-a05a-6b8b2d46fd40.jpg?asset_id=b12eabb9-e832-47cd-bb4f-7f464a52658a&amp;img_etag=%223e5d62a56e906daf2183ec7e333acbce%22&amp;size=1024)
-
-我們一生下來, 就帶著賬本。妳是誰, 妳幾點出生, 男女, 父母是誰，都有賬本。公民ID身份是最基礎的賬本! 這個記賬權在 “政府”。民主社會, 政府會把很多記賬權分出去, 比如婚姻登記, 壹些地方太平紳士就可以直接處理。歐美國家, 我沒有記錯, 很多神父也可以處理這件事。集權國家, 那這個就只有政府了。從妳生下來, 經歷不同的教育階段, 到結婚, 到工作, 都是賬本。
-
-妳的學歷是妳年輕時候的重要賬本, 妳小時候最關心的是成績單這個賬本。我們都天然相信這是公平公正的。因為學校不會作假。但是, 萬壹他們作假了呢? 而且, 不需要承擔後果怎麽辦?前段時間, 沸沸揚揚那個高考被冒名頂替的，被冒名頂替最後還要道歉。這說明了什麽?賬本的公正安全 其實是整個社會最最底層的壹個建設。
-
-基於公民ID 這個基礎底層的賬本, 在這個上面, 出來的學歷教育, 財產登記, 銀行賬本, 我們可以理解成“二層賬本”。二層賬本裏面我們十分關心的, 或者相當關心的, 那可能就是妳在金融機構裏的“賬本”。
-
-妳存進多少錢, 出多少錢, 銀行給妳記賬。從妳選擇某個銀行開戶的那壹時刻開始, 銀行就是妳心裏那個神！他對妳而言擁有了神聖的權利。妳相信他的賬本, 幾乎等同於相信上帝壹樣。也因為銀行賬本的”可信”, 所以衍生出很多東西: 比如妳拿著這個銀行的賬單流水, 去另壹個銀行借貸。妳不會自己制作壹份流水單拿去借貸，因為沒有用。可以這麽說：銀行幾乎所有的特權來自於這個記賬權！
-
-那麽妳會問: 好了, 我也老老實實記賬, 我會有這個超級權利麽? 我就老老實實記賬，不幹別的！另壹方面，記賬權應該怎麽來，政府賦予還是，某種競爭機制競爭產生???
-
-不得不說: This is a million dollar question，這是壹個值壹百萬的問題。
-
-在生活裏, 很少人會問這些問題，既得利益者, 更不會向妳說出秘密。我追根刨底, 追到記賬權，這是不是最基礎，我也不知道。但我肯定的是, 記賬權, 肯定是超級權利。因為, 潛意識裏, 這已經是神的權利！
-
-**分布式賬本**
-
-[!\[\](https://spark.adobe.com/page/t055KPeEXh1t3/images/4ffc553e-88a4-4886-b68b-5e32f33aafa7.jpg?asset_id=4ccf954b-061f-448f-9f7d-9fc15539ce20&amp;img_etag=%22b6b8796c0720229fb92ca145ecd073ff%22&amp;size=2560)](https://spark.adobe.com/page/t055KPeEXh1t3/images/4ffc553e-88a4-4886-b68b-5e32f33aafa7.jpg?asset_id=4ccf954b-061f-448f-9f7d-9fc15539ce20&amp;img_etag=%22b6b8796c0720229fb92ca145ecd073ff%22&amp;size=1024)
-
-好的, 這壹段, 先到這裏。我們來看區塊鏈, 分布式賬本是什麽？記賬的核心問題: 誰給誰記了什麽！哈耶克先生在探討計劃經濟, 就圍繞“誰給誰計劃了什麽“，我致敬壹下這位大師。弄清楚金融問題, 上面那些花花套路, 我們不需要被迷惑。弄清楚金融, 先研究經濟學本身。經濟學本身, 不是關於鋼筋水泥, 而是關人, 人的意圖和行為。再次致敬壹下米塞斯。
-
-我們先說分布式賬本。說之前我先說結論，區塊鏈都是分布式賬本, 分布式賬本不壹定是區塊鏈。我們簡單形容壹下分布式賬本: 我們每個人都有壹本魔法書, 上面寫了我欠DT 100萬。然後我給DT打了30萬，這個時候人手壹本賬本的大家都看到了, 長工給DT打了30萬, 還差70. DT不能說我沒打錢, 我也 不能說自己根本沒打, 然後騙大家說打了。我如果偷偷把還千DT70萬改成7000, 我壹改, 大家也都看到了，我無法作假。
-
-分布式賬本可以這麽粗淺的來理解，這個形式的賬本, 比中心化的是不是科學很多對吧。我想, 大家的回答, 肯定是的。這個比中心化的賬本科學多了，至少互相監督。
-
-現在我再問: 現在是誰在記賬？我可以不可以記賬？是所有人都在記賬，還是所有人都有記賬權？比如說, 我們三家銀行, 跨境匯款，跳過SWIFT, 我們三家弄壹個分布式賬本, 就可以了嗎?
-
-今天妳去維基百科，妳去谷歌，沒有清晰定義區塊鏈。今天我定義壹下區塊鏈和分布式賬本的核心區別, 真正的秘密在於“礦工”！誰可以做礦工，誰有記賬權。”寫”賬本的權力, 是被賦予, 被授權, 還是競爭而來，這是最核心的問題。這裏面的差別就在於妳記賬權的產生。授權的本質是Proof of Stake，競爭的本質是 Proof of Work。這裏談到了共識層面的問題，PoS在今天的資本主義世界裏面是主流，比如股份制公司。但是PoS又壹個大Bug，這個大Bug是今天很多問題的源頭。
-
-那麽，做礦工的前提條件又是什麽呢？問題越挖越深了，這個問題有點太廣泛。我舉例來說, 挖礦這件事. 比如妳挖ETH, 表面上妳不需要經過ETH ，比如Vitalik 來批準, 但是其實妳做的那壹刻, 妳同意了ETH的協議, 按照他們的規則參與挖礦。
-
-妳要證明妳記得帳是合法的，那妳需要不斷證明。妳可以否認別人的帳本，別人也可以否認妳的。對於比特幣的孤塊競爭，我可以講很久。孤塊競爭，本質上就是記帳權的競爭。從分布式帳本，到區塊鏈, 我很高興，我們又回到誰給誰記什麽帳的問題。永遠抓住核心本質，記賬權。
-
-編輯：[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/t055KPeEXh1t3/)
-
-0
+1
