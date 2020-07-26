@@ -1,37 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## No Agency Relation: CCP ≠ Chinese People
-`2020-07-26 16:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276895/)
+## 滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）
+`2020-07-26 19:52 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/276965/)
 
-As told in the article [*Agency theory and the role of audit*](https://www.icaew.com/-/media/corporate/files/technical/audit-and-assurance/audit-quality/audit-quality-forum-fundamentals/fundamentals-agency-theory-and-the-role-of-audit.ashx) published by the Institute of Chartered Accountants in England and Wales, an agency relationship arises when one or more principals (e.g. an owner) engage another person as their agent (or steward) to perform a service on their behalf. The principals bear the consequences of whatever the agent does in the scope of agency relationship if the principals don’t tell the third party to deny the agency relationship and corresponding rights. And the simplest agency model assumes that no agents are trustworthy and if an agent can make himself better off at the expense of a principal then he will.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26194318/4-hoursemen.png)
+**《共產主義中國與自由世界的未來》**
 
-**—  Chinese People Have Never Appointed the CCP as Their Agent**
+邁克爾·R·蓬佩奧
 
-The Chinese Communist Party (CCP) hasn’t never been elected as an agent of Chinese people through transparent elections. However, the CCP claims it represents 1.4b Chinese. The CCP is untrustworthy and makes itself better off at the expense of Chinese. The CCP often promulgates that the principal Chinese will fall into chaos without it.
+謝謝。謝謝你們。州長先生，感謝您的介紹。您過譽了。的確是這樣：當你走進那個體育館，說出「蓬佩奧」的名字時，就會有人竊竊私語。我有一個兄弟馬克（Mark），他非常好，也是一位非常出色的籃球運動員。讓我們再次為藍鷹儀仗隊，以及空軍下士凱拉·海史密斯（Kayla Highsmith）和她精彩的國歌演唱鼓掌，怎麼樣？（掌聲）也感謝勞瑞牧師（Pastor Laurie）令人動容的禱告，我還要感謝休·休伊特（Hugh Hewitt）和尼克松基金會邀請我在這個重要的美國機構演講。很高興由一位空軍成員為我唱歌，由一位海軍陸戰隊成員為我做介紹，而且他們讓陸軍的人站到了海軍的地盤兒上（笑聲）。這一切都棒極了。
 
-**— Illegal Agents****Numerate****Heavy Commissions**
+很榮幸來到約巴林達（Yorba Linda），尼克松的父親在這兒建了這棟房子，尼克松總統在這裡出生並成長。感謝「尼克松中心」董事會和工作人員，讓我和我的團隊今天的活動成為可能——在眼下這絕非易事。我們有幸看到在座的那些非常特別的人，包括我所認識的克里斯——克里斯·尼克松（Chris Nixon）。我還要感謝特里西婭·尼克松和朱莉·尼克松·艾​​森豪威爾對這次訪問的支持。
 
-It is very absurd. You owned a house valued at £1000,000. A real estate agent told you that he would act as your sales agent to sell your house and numerated his commission at 80% without getting your approval. He sold your house to his CEO overseas at £10,000 and charged commission at £8,000. The CEO sold the house immediately at £1000,000 subsequently and laundered the proceeds to bank accounts maintained in the USA, the UK and the EU with the help of bankers. As a result, you became much poorer, couldn’t afford proper education and could only get propaganda that without the agent it would become much worse and it was decided by history that this agent was your only option. Your appearance seen from outsiders was too bad, which would convince outsiders of the propaganda mentioned above. It also convinced outsiders that you, the agent and the market were unseparated. As far as China is concerned, you are the Chinese people, the agent is the CCP and China is the market.
+我還想感謝幾位勇敢的中國異見人士，感謝他們遠道而來參加我們今天的活動。所有其他尊貴的客人，（掌聲）所有其他尊貴的客人，感謝你們的光臨。那些坐在在帳篷下的人，你們一定是多付了票錢。還有那些正在觀看現場直播的人，感謝你們的收看。最後，正如州長所說，我出生在聖安娜（Santa Ana），離這裡不太遠。今天在座的有我的姐姐和姐夫。謝謝你們的到來。我敢打賭你們從未想到我會站在這裡。
 
-**— An Example of Heavy Agency Cost**
+我今天的講話是一系列有關中共國的演說中的第四個，我邀請國家安全顧問羅伯特·奧布萊恩（Robert O’Brien）、聯邦調查局局長克里斯·雷（Chris Wray）和司法部長巴爾（Barr）與我一起發表這些演說。我們有一個非常明確的目標，一個真正的使命。這是在解釋美國與中共國關係的不同方面、數十年來兩國關係的巨大失衡，以及中國共產黨的霸權意圖。我們的目標是明確地指出，川普總統的中國政策旨在解決對美國的威脅，這點是明確的，而且我們為確保這些自由制定了戰略。奧布賴恩大使談到了意識形態。聯邦調查局局長雷談到了間諜活動。司法部長巴爾談到了經濟。現在，我今天的目標是將這一切匯總到美國人民手中，並詳細說明中共國的威脅對我們的經濟、我們的自由乃至全球各地自由民主的未來意味著什麼。
 
-Because of this terrible agency relationship, the CCP made great gains at the expense of Chinese people. According to the [Agriculture Tax Ordinance](https://zh.wikisource.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%86%9C%E4%B8%9A%E7%A8%8E%E6%9D%A1%E4%BE%8B)(ATO) effective until 2006 published in 1958 by CCP, the agriculture tax(AT) was levied on assessed production quantities of normal years by applying average tax rate of 15.5% plus local rate of less than 9.5%, plus additional 10%-50% for individual peasants not member of people’s commune (PC). There was no personal allowance as set in UK [*Income Tax Act 2007*](https://www.legislation.gov.uk/ukpga/2007/3/section/35)*.*What made matters worse was that the officers of AJA joined by most peasants were responsible for preparing AT return in conformance with ATO. The PC officers and other officials of different CCP classes were only interested in selfish promotion and welfare arising from overstating production quantities and overcharging AT. It was said that there were only 115.1 thousand tons grains produced in Fengdu of Sichuan in 1959 in an article [*Failure of Indicator Management: Great Famine and CCP Fraudulence*](http://137.189.161.113/PaperCollection/Details.aspx?id=7258) published by The Universities Service Centre for China Studies of The Chinese University of Hong Kong. It was overstated to 420 thousand tons, as a result of which , the AT was charged at 25% for about 105 thousand tons. Therefore, the agency cost was actually charged at 91.23% (105/115.1×100%=91.23%),  as a result, there was a severe consequence of substantial starvation deaths of the people in Sichuan in the Great Famine. My grandfather died during this famine. I grew up in the countryside and also suffered a great blow, in the form of short height and thinness due to the lack of nutrition in the growth period, from such high agency cost because the heavy AT left little for parents to feed me.
+距離基辛格博士（Dr. Kissinger）密訪中國，到明年將是半個世紀了，離2022年尼克松總統訪華50週年也不太遠了。那時的世界大為不同。我們曾經想象，與中國的接觸將會產生團結、合作的光明未來。
 
-In recent years, the CCP social insurance has become one of the heaviest costs of Chinese private businesses and workers. Similar to the AT, there is no personal allowance that is available in the UK National Insurance Contribution scheme and overcharge by applying overstated gross wages in the form of setting least contribution. If your gross wage each year is ¥40,000 and the minimum required fee is ¥3000 each month in Guangdong, the charge will be ¥36,000 each year. As we all know, social insurance expenditure is not transparent and the social insurance fund is now being invested in the A share market of China. The A share market has been used for laundering money and cheating funds into the hands of CCP officials, which can explain why the gains from A share tradings have been exempt from income tax since introduction of securities exchange in 1990. Therefore, the CCP social insurance charge is the agency cost charged by the CCP at 90% (36000/40000×100%=90%) in the case mentioned above.
+但是，今天我們仍然戴著口罩，看著傳染病大流行的死亡人數在不斷增加。這都是因為中共沒有兌現他們對世界的承諾。每天早上，我們都在讀著有關香港和新疆境內的鎮壓事件的頭條新聞。我們看到，中共國的貿易霸凌導致了美國就業流失，那個統計數字令人瞠目，並給整個美國的經濟帶來了沈重打擊，包括我們這兒，南加州。而且，我們目睹中國軍隊變得越來越強大並且越來越具威脅性。
 
-**—****Chinese People ≠ CCP ≠ China**
+從加利福尼亞州，到我的故鄉堪薩斯州以至更遠的地方，我要重提那些美國人心中的疑問：從與中共國接觸50年後，美國人民現在有什麼拿得出手的成果？我們的領導人所提出中國向自由與民主演化的理論是否被證明是正確的？這是中共國所定義的「雙贏」局面嗎？而更關鍵的是，從一位國務卿的角度來看，美國變得更加安全了嗎？我們是否有更大的可能性保證我們自己的和平，並為我們後代帶來和平？看，我們必須承認一個艱澀的現實。我們必須承認這個艱澀的現實，它將指導我們在未來幾十年中的發展：如果我們想要擁有一個自由的21世紀，而不是習近平所夢想的中共國的世紀，那麼，與中共國盲目交往的舊模式根本無濟於事。我們決不能延續，也絕不能重蹈這個模式。正如川普總統已明確指出的那樣，我們需要一項保護美國經濟乃至我們生活方式的戰略。自由世界必須戰勝這一新的暴政。
 
-On July 1 and July 24, 2020, some people, identified as the Whistleblower Movement  participants, held protests outside the Chinese Embassy in Washington DC and Chinese Consulate in Houston respectively following the declaration of the establishment of the New Federal State of China on June 4, 2020. They all deny the agency relationship between Chinese people and the CCP to the outsider world, and indicate that  it’s reasonable to replace the CCP with the New Federal State of China (NFSC).
+現在，我似乎是在急於摧毀尼克松總統的政治遺產，但在這之前，我希望明確地表示，他做了當時他所認為的對美國人民最為有利的事情，而且在當時他很可能是對的。他是一位傑出的中國學者、彪悍冷靜的勇士，而且對中國人民深懷敬意。——我想我們都是。值得肯定的是，他認識到中國太重要了，以至不能忽視它，即使當時該國被其自身內部的殘暴的共產主義所削弱。
 
-Many nations such as the USA have  gradually become aware that the Chinese People are not equal to the CCP, and the CCP doesn’t represent China either. Take America as an example, it is said in the [*Communist China and the Free World’s Future*](https://www.state.gov/communist-china-and-the-free-worlds-future/) speech made by US Secretary of State Michel Pompeo on July 23, 2020 that the USA opened arms to Chinese citizens, only to see the CCP exploit American free and open society. America gave the CCP special economic treatment, only to see the CCP insist on silence over its human rights abuses as the price of admission for Western companies entering China. America knows that the People’s Liberation Army is not a normal army, too. Its purpose is to uphold the absolute rule of the CCP elites and expand a Chinese empire, not to protect the Chinese people. Chinese people, too made in the image of God, are completely distinct from the CCP.
+1967年，尼克松在《外交事務》雜誌發表了一篇非常著名的文章，其中解釋了他的未來戰略。他的話是這樣的。他說：「從長遠來看，我們根本無法承受將中共國永遠地排除在國際大家庭之外的後果……除非中國發生變革，否則世界不會安全。因此，我們的目標是：在可能的範圍內，我們必須施加影響。我們的目標應該是引導變革。」我認為這是整篇文章的關鍵詞：「引導變革」。因此，在他歷史性的北京之行中，尼克松總統開啓了我們的接觸戰略。他滿懷理想地尋求一個更自由，更安全的世界，並希望中國共產黨能兌現這一承諾。
 
-**— Solution to Agency Problem in China**
+隨著時間的推移，美國決策者們更加認為，隨著中國變得更加繁榮，它將會對外開放，對內變得更加自由，進一步在國際上不那麼具有威脅性，它將變得更加友好。我敢肯定，這一切似乎都是必然。但是那個必然的時代已經過去了。我們一直在進行的這種接觸並沒有在中共國內部帶來尼克松總統所希​​望引起的那種變革。事實是，我們的政策以及其他自由國家的政策讓中共國失敗的經濟得以復蘇，卻看到北京對曾幫助它的國際力量恩將仇報。我們向中國公民張開雙臂，卻看到中國共產黨只是利用我們的自由、開放的社會。中共國派大外宣滲透進入我們的新聞發佈會、研究中心、高中、大學，甚至進入家長教師協會的會議。我們錯將台灣這樣的朋友邊緣化了，而後來台灣自己蓬勃發展出一個生機盎然的民主制度。我們給予中國共產黨及其政權本身特殊的經濟待遇，看到的卻是中共堅持要求外界對其踐踏人權的行為保持沈默，並以此作為西方公司進入中國的籌碼。
 
-It is stated in [*The Declaration*](https://gnews.org/221992/)*of NFSC* that it will uphold rule of law, freedom, segregation of government branches and democracy. In the [NFSC](https://gnews.org/222444/) promoted by the [Whistleblower Movement](https://www.youtube.com/watch?v=I5w3N2_Bfpw), Chinese people will appoint legal agent and numerate the agency cost at reasonable rate through transparent democratic and free election process. To deny the agency relationship between CCP and Chinese people, more Chinese people are requisitioned to join in the Whistleblower’s Movement.
+前一天，奧布賴恩大使舉了幾個例子：萬豪、美國航空、達美航空、聯合航空等公司都從其網站上刪除了有關台灣的條目，以免激怒北京。離此不遠的好萊塢——這個美國創意自由的中心和自詡的社會公平的仲裁者，卻對哪怕是對中國稍微不利的說法都進行自我審查。企業對中共的容忍和沈默在全世界各地都在發生。企業們的這種忠誠效果如何？奉承會得到獎勵嗎？
 
-Author: CPA Jim
+我引述巴爾總檢察長的話，司法部部長巴爾。他在上周的一次演講中說：「中共國統治者的最終野心不是與美國進行貿易。而是要洗劫美國。」中共國掠奪了我們寶貴的知識產權和商業機密，在美國各地造成了數百萬個就業機會的流失[1]。它從美國吸走了供應鏈，並為其添加了奴隸勞工的屬性。它使世界關鍵的海上航道對國際商貿而言變得不那麼安全了。
 
-Auther: CPA Jim
+尼克松總統曾經說過，他擔心向中共開放世界會創造一個人形怪物 「弗蘭肯斯坦」 ，而這就是我們所處的局面。現在，信仰正義的人們可以爭論為什麼多年以來，自由國家允許這些壞事發生。也許我們當初對中共國的共產主義毒瘤過於幼稚了，也許我們在冷戰中的勝利讓我們相信自己將會戰無不勝，也許我們是貪婪的資本家，抑或被北京的「和平崛起」的言論所蒙蔽。無論出於何種原因——無論出於何種原因，今天的中國對國內越來越專制，而且更加激進地敵視世界其它地方的自由。
+
+川普總統已經說了：夠了。我不認為在兩黨中有很多人對我今天提出的事實報有異議。但是即便現在, 依然有人堅持認為，我們應保留那種「為了對話而對話」的模式。
+
+現在，要明確說明的是，我們還會堅持對話但是我們之間的對話將會不再如以往我數星期前到檀香山會見楊潔篪依舊是相同的說辭，一堆的說辭，但依舊沒有任何作為上的改變。楊潔篪的種種承諾，就如同許多在他之前中共曾承諾過的一樣，都是空話。我猜想他原先應該是預期我將會對他們的要求做出讓步因為說實在的，在這之前我們有太多的行政先例。可是我沒有讓步。我們川普總統也不會讓步。
+
+就如國家安全事務顧問奧布萊恩之前清楚的闡釋，我們必須牢記中共政權就是馬克思列寧主義政權。習近平總書記就是這個已經破產的集權主義意識形態最虔誠的信徒。就是這個意識形態，這個意識形態決定了他數十年來對中國共產主義全球霸權的慾望。美國不能再忽視這兩個國家之間政治和意識形態根本性的不同了就如同中共從來沒有忽視這一點。我過去曾經在眾議院情報委員會任職、隨後擔任中央情報局局長以及擔任美國國務卿年兩年多來的經驗讓我明白了以下這項核心重點：即唯一的，真正能改變共產中國唯一的方法是不應以中國領導人所說的為基礎來採取行動而是以他們的表現你們可以看到美國的政策對這個結論的回應。
+
+里根總統曾說他跟蘇聯打交道時，是本著「信任但是要覈實」。但是現在對於中國共產黨，我要說的是我們必須要「不信任但而且要覈實」。我們是世界上愛好自由的國家，我們必須促使中國的變革，就如尼克松總統所期望的那樣。我們必須以更具創造性和強硬的方式推動中國的變革。因為北京的行為在威脅著我們的人民和我們的繁榮。我們必須從改變我們的人民和盟友他們對中國共產黨的看法開始。我們必須說出真相。我們不能把中國的這個化身當作一個正常的國家像對待其他國家一樣我們知道與中國做貿易不像跟其他正常並依法辦事的國家一樣。北京威脅著全球各項協議，並將全球各項協議視為建議——作為取得其支配全球主導地位的渠道。然而，為了堅持公平原則，就如我們的貿易談判代表在至達成第一階段貿易談判協議所做的那樣，我們能夠迫使中國認真對待其知識產權剽竊以及傷害美國工人的政策。我們也知道跟那些有中共背景的公司做生意和跟其他如加拿大的公司做生意不同。他們不聽從獨立的董事會而他們很多都獲得國家補貼因此無需追求利潤。華為就是最好的例子。我們不再視華為為一家單純的電信公司， 能確保你和你的朋友交談。我們就以它本來的面目稱它為——真正威脅國家安全的公司，而且我們也已經採取相應的行動。
+
+我們也知道如果我們的公司在中國投資，他們將不知不覺的支持了共產黨侵犯人權的行為。我們的財政部和商務部因此已將那些在全世界傷害及侵犯最基本人權的中國領導人和實體進行制裁，並將他們列入黑名單。我們有數個機構已經合作定制一份商業咨詢通告確保我們那些公司總裁們知道，他們的供應鏈在中國境內是如何運作的。
+
+我們也知道並非所有的中國學生和僱員是單純的學生和僱員，僅僅來這兒賺點錢和吸取知識，他們當中有太多是過來偷取我們的知識產權然後帶回他們的國家。我們的司法部和其他機構已經在積極追查懲罰這些罪行。
+
+我們也知道中國人民解放軍並非一支正常的軍隊。它的任務就是擁護中國共產黨的精英們持續執政的權力以及擴張中共國的帝國版圖，而非保護中國人民。因此我們的國防部已經在東中國海和南中國海內外，強化我們自由航行行動，在台灣海峽亦如此。同時我們也設立了一支太空部隊以威懾中國，在最後的邊界上發動的侵略因此，坦率說我們已經讓國務院設定了一套新的針對中共國的政策，進而達到特朗普總統公平和互惠的目標，以改變幾十年來失衡的狀態。
+
+就在這星期，我們宣佈關閉中共國在休士頓的總領事館因為那是個間諜活動和盜取知識產權的中心。（掌聲）我們在兩個星期前扭轉了八年來在南中國海國際法問題上被打臉的做法我們呼籲中共國使其核能力符合我們時代的戰略現實。國務院在全世界每一層面面對我們的中共國同行時，僅要求公平與互利。可是我們的方式不應僅僅是一味的強硬，那是無法達到我們所期望的結果。
+
+我們應該讓更多完全有別於中國共產黨的那些 有力量和愛好自由的中國人民加入，並賦予他們權力。首先從面對面外交開始。我無論到任何地方都會見到許多非常有才華和勤奮的中國男士和女士。我也見過從新疆集中營中逃出來的維吾爾族和哈薩克族人。我也跟香港民主領袖交流過，包括陳日君和黎智英。兩天前，我也在倫敦會見了香港自由鬥士羅冠聰上個月在我辦公室，我也聽了天安門廣場幸存者們的故事。今天他們其中一位就在這裡。王丹是其中一位關鍵的學生，從來未曾停止過為中國人的自由而鬥爭。王先生，可否請您站起來，讓我們都認識你？（掌聲）今天還有一位跟我們一起的是中國民主運動之父，魏京生先生。就因為他倡導民主，結果在中國勞改營呆了數十年。魏先生，可否請您站起來？（掌聲）
+
+我在冷戰時期長大，並且在軍隊服務。如果說我學到了什麼，那就是共產黨幾乎總是在撒謊。他們最大的謊言就是讓人以為他們代表著14億的人民，而這些人民是被監控著、壓迫著，並且害怕發聲。正好相反的是，中國共產黨害怕聽到中國人民誠實的想法，甚過害怕任何其他的敵人，更害怕失去他們所掌握的權力，其實他們沒有理由，完全沒有理由這樣。想想看這世界將會有多美好—更不要說中國國內的人民，如果當時我們能聽到來自武漢醫生們的聲音，他們能被允許發出有關新型冠狀病毒爆發的警告在過去幾十年，我們的領袖都無視或刻意淡化這些勇敢的中國異見人士對我們發出的警告，提醒我們所面對相關的政權的本質。因此，我們不能再忽視它了。他們和任何人一樣，他們也知道我們永遠無法回到現狀了。
+
+但是改變中國共產黨的行為不僅僅是中國人自己的使命。自由的國家都必須起來捍衛自由。那絕對不是件容易的事。但是我有信心我們能做到。我相信有信心是因為我們曾經做過。我知道事情的發展會是怎樣的。我相信是因為中共正在重復以前蘇聯共產黨曾經犯過的錯誤，就是疏遠其潛在的盟友，打破了國內國外對它的信任拒絕尊重知識產權及法治的可預見性。我有信心。我有信心是因為我看到各國已經覺醒，他們已經意識到不可能再回到以前那樣，就如同我們美國一樣。布魯塞爾，悉尼甚至河內，也同樣都意識到。最重要的是，我相信我們可以捍衛自由是因為自由本身就是甜美的吸引力，看看香港人爭相著要移民國外因為中共收緊了對這座讓人驕傲的城市的控制他們揮舞著美國國旗。是的，當中也有一些不同之處。不像蘇聯那時的情況。中國與全球經濟已經深度融合。但是北京依賴我們甚過與我們依賴他們。（掌聲）我反對那種看法說我們已經陷入中共事先設定陷阱而不能自拔的時代，並認為未來就是中共霸權的時代。我們的模式並非因為美國國力走弱而就注定失敗。就如同我今年早前在慕尼黑說過，自由世界依舊獲勝。我們只要相信它、瞭解它，並為它感到驕傲。全世界的人民依舊希望來到開放的社會。他們來這裡念書，來這裡工作來這裡為他們的家人搭建他們的生活他們並不希望安頓定居在中國。現在是時候了。我很高興今天來到這裡。這是最佳的時機。
+
+現在是自由的國度採取行動的時候了。並非每個國家都會用同樣的方式對待中國，他們也並非必須那樣做。每個國家都必須瞭解他們應該如何保護自身的主權，如何保護其經濟的繁榮，以及如何保有自身的理念，免於被中共的觸角滲透但是我呼籲每個國家的每個領導人開始做如美國已經在做的事，那就是向中共強調必須互惠互利，強調透明度及向中國共產黨問責他們是一群各懷鬼胎的統治者。而這些簡單卻有力的標準將非常有效。我們太長時間都讓中共訂立與我們交往的條件，但是未來將不再如此。自由國家必須定調。我們必須在相同的原則下行事。我們必須共同畫上一條底線，不會被中共的討價還價或甜言蜜語而抹殺掉。其實，這正是最近美國所做的，就像我們一次永久性的拒絕承認中國非法聲稱擁有的南中國海的主權；同時我們也呼籲這些國家成為廉潔的國家以避免讓他們老百姓的個人私密資料落入中國共產黨手裡。我們通過設定標準來做到這一點沒錯，這是困難的。對某些小國來說的確是困難的。他們擔心會被傷害。因此，一些國家基本上就沒有能力和勇氣現在跟我們站在一起。事實上，我們北約的盟友就沒有在香港事情上為香港站出來發聲因為他們擔心會被北京限制進入中國市場。而這種怯懦將導致歷史性的失敗因此我們不能重犯以前的錯誤。我們不能重犯過去幾年的錯誤。應對中國的挑戰需要民主國家的努力和力量，這些在歐洲，非洲，南美洲，尤其是印太地區的（民主國家）。而如果我們現在不採取行動，中共最終將侵蝕我們的自由，並將顛覆我們辛苦建立起來，以法律為基礎的社會秩序。如果我們跪下，我們的子子孫孫都將任由中國共產黨所擺布，而它的行為正是當今自由世界最主要的挑戰習總書記並非天生注定能在國內外進行其獨裁統治，除非我們允許他那麼做。這個並非圍堵遏制中國。別相信這套說辭。這是一項我們從未遭遇過複雜的新挑戰。
+
+蘇聯當時是和自由世界隔絕的可是現在共產中國已經存在我們的境內了。所以我們不能獨自面對這項挑戰。聯合國、北約、七國集團、20國集團，只要我們結合我們的經濟、外交和軍事力量絕對足以應對這項挑戰，只要我們能以最大的勇氣將力量投放在實處。也許現在是時候將相同理念的國家組織起來，成立一個民主聯盟。我們擁有一切的工具。我知道我們能做到。而現在我們需要的是意志。
+
+我想問，就如聖經所言：「我們的心靈固然願意， 但肉體卻脆弱了？」如果自由世界不改變（共產中國），那麼共產中國就會改變我們。我們不能回到過去的模式僅僅因為它們舒服或是方便。保障我們的自由免受中國共產黨侵蝕是我們這個時代的任務。而美國是最理想的領導者因為我們的立國原則提供了我們這個機會。我上星期在費城解說時，站著並望著我們的獨立紀念館，我們國家立國之處全人類擁皆有其不可剝奪的權力而我們的政府就要保障那些權力。這是簡單而有力的事實。讓我們成為全世界人民自由的燈塔包括中國國內的人民。事實上，1967年理查德。尼克松總統寫下的一句話太對了：「在中國改變之前，世界不會安全 「現在我們應該聽從他的話語。世界正處於危險當中。而今天世界正蘇醒。今天自由世界必須做出回應。我們不能再回到過去。
+
+願上帝保佑你們每一個人願上帝保佑中國人民。願上帝保佑美國人民。謝謝大家。
+
+[閱讀英文演講全文](https://www.state.gov/communist-china-and-the-free-worlds-future/)
+
+[演講視頻（中英文字幕）](https://gnews.org/zh-hant/275681/)
+
+*翻譯：【Zion文恩 】【BIM 】校對：【石頭 】【key】編輯整理：【GM31】【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

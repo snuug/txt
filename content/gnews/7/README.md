@@ -1,21 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月4日中共病毒疫情要聞快報
-`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
+## CCP滑向深淵——從美澳啟動對中共「反虛假宣傳運動」及澳視「中共南海主張」屬非法，看澳中關系之嬗變
+`2020-07-26 12:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/276807/)
 
-[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+編撰：螞蟻甲、文珺追隨MG、xmly666（七角星）、文肯尼
 
-[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26120022/7.26-2-1.png)
 
-[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+**美澳將啟動針對中共的反虛假宣傳運動**
 
-[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+澳洲Age7月25日報道：澳大利亞和美國將聯合發起打擊來自中國和俄羅斯等國的虛假信息活動，北京和華盛頓交替關閉領事館，世界上最大的兩個經濟體之間的外交緊張局勢急劇升級。
 
-[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
+澳大利亞外交部長瑪麗絲•佩恩(Marise Payne)和國防部長琳達•雷諾茲(Linda Reynolds)將於本周日飛往華盛頓與美國國防部長舉行重要會談。
 
-[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+兩國部長計劃就應對獨裁國家的造謠活動、加強印太地區的衛生安全以及幫助該地區從冠狀病毒危機中恢復等措施達成一致。
 
+兩位澳大利亞部長表示，他們還將根據澳大利亞本月初發布的最新國防戰略，討論如何深化兩國防務合作。新戰略承諾澳大利亞將向美國購買遠程反艦導彈，以裝備其 “超級大黃蜂 “艦隊。”面對日益復雜和競爭激烈的地區環境，我們繼續在雙方關系的廣度上進行合作是至關重要的，”參議員佩恩和參議員雷諾茲說。”我們將繼續在我們的優先事項上取得進展，包括投資該地區的基礎設施，打擊虛假信息，維護人權，加強科技合作。”
 
+參議員佩恩將參加她的第五次AUSMIN會議，她說，今年討論的是 “澳大利亞的短期、中期和長期利益”。她說：”我們的聯盟合作對於促進和實現一個穩定、開放和有彈性的地區，以造福於所有澳大利亞人是至關重要的”。澳大利亞和美國將尋求在整個印太地區建立統一戰線，打擊獨裁國家的虛假信息，兩國尤其關註中共利用社交媒體破壞整個地區民主制度的方式。外交和貿易部已經在成立一個新的特別工作組來打擊網絡虛假信息，澳大利亞關註的是對整個印太地區發展中國家的影響。
+
+推特上個月透露，它已經刪除了3萬多個賬戶，因為調查人員發現這些賬戶與中國、俄羅斯和土耳其的國家媒體宣傳和虛假信息行動有聯系。美國上周五關閉了中共駐休斯敦領事館，因為它被指控竊取美國的相關研究，勸說數十名研究人員將資料交給中共機構，並脅迫在逃的中國公民返回中共。休斯敦總領事蔡偉曾任中國駐堪培拉大使館的副團長。作為報復，中共外交部周五宣布撤銷美國駐中國成都領事館的執照，指責美國違反國際法、國際關系基本準則和《中美領事公約》條款。
+
+中共正加強在太平洋和東南亞地區的對外援助和基礎設施項目上的合作，近年來中國在這些地區的影響力不斷增強。中共一直被美國指責在整個地區從事 “債務陷阱外交”，即給各國背上不可持續的債務，其長期目標是建立與美國相抗衡的軍事存在。
+
+美澳部長們還將討論如何進一步擴大由澳大利亞、美國、英國、加拿大和新西蘭組成的 “五眼 “情報網，以便在COVID-19危機後重點關註戰略經濟問題，如確保供應鏈的安全。雖然 “五眼 “網絡傳統上嚴格專註於國家安全和外交事務領域的情報共享，但全球疫情凸顯了在經濟安全方面建立更緊密聯盟的必要性。
+
+**澳大利亞將中共對南中國海的主張標記為非法**
+
+另外，據澳州AGE 7月25日報道： 澳大利亞拒絕了中國對南中國海關鍵部分的主張，與美國一起在聯合國譴責中共的領土主張是非法的。澳大利亞軍艦在越南、印尼和菲律賓之間的爭議領土上遭遇中國海軍一周後，此舉可能為加強該地區的海軍參與鋪平道路。
+
+澳大利亞政府咋周六向聯合國提交的文件中表示，中共在南中國海九段線沒有法律依據。中共經常將南中國海域劃為其九段線內。
+
+美國國防部長馬克·埃斯珀周四指責中國共產黨挑釁東盟國家。 “最令我擔憂的是，人民解放軍繼續在東海和南海的侵略行為，包括擊沈一艘越南漁船、騷擾馬來西亞油氣開發、護送中國漁船隊進入印尼聲稱的專屬經濟區，並將被占領的地物軍事化，直接違反中國在國際法下的承諾。”近期，中共在南中國海地區的一個爭議島嶼上駐紮了8架戰鬥機。
+
+**編者觀點：**
+
+澳大利亞將與盟友美國一起發起對中共國發虛假信息啟動調查，並跟隨美國將中共對南中國海的主張標記為非法。這兩則新聞看似不搭，其實完全是美澳在不同領域針對中共及相關方的步調一致的行動和主張。中共以假治國由來已久，並且利用西方相對開放的輿論環境把這套辦法搬到國際輿論陣地來企圖引導民意，影響西方內政。
+
+同時，中共極具擴張野心，2025，2049內部擴張計劃，通過一帶一路輸出腐敗和債務達到外部控制和擴張，同時積極在南海及太平洋沿岸國家打著民用的名義行軍事擴張之實的準備。所有這一切，西方國家之前並非不知但也並非全知，隨著爆料革命在世界的傳播，越來越多國家變得清醒，並且逐漸行動起來了，因為他們逐漸認識到中共的洪水已經淹到家門口並和他們家後院的沼澤地連成一片了。澳洲做為五眼聯盟之一，和美國步調一致地圍堵中共是自身利益的需要也是正義的需要，在這個新的歷史背景下看中澳關系及中澳關系的嬗變我們就能準確把握其節奏和走向了。澳洲不是第一個也不是最後一個對中共策略和行動調整的國家，嬗變不但是澳中關系的主基調也是世界與中共關系的主基調。一切都已經開始。
+
+新聞來源：
+[https://www.theage.com.au/politics/federal/us-and-australia-set-to-launch-campaign-to-counter-disinformation-20200724-p55f9f.html](https://www.theage.com.au/politics/federal/us-and-australia-set-to-launch-campaign-to-counter-disinformation-20200724-p55f9f.html)
+[https://www.theage.com.au/world/asia/australia-labels-china-s-claims-to-south-china-sea-illegal-20200725-p55fde.html](https://www.theage.com.au/world/asia/australia-labels-china-s-claims-to-south-china-sea-illegal-20200725-p55fde.html)
 
 1

@@ -1,55 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國可能考慮關閉美國香港領事館
-`2020-07-26 11:24 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/276774/)
+## 【多語言圖文版】7月4日中共病毒疫情要聞快報
+`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
 
-*新聞來源：《*彭博社*》*
+[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-*發佈時間：2020年7月23日*
+[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-*翻譯/簡評：cathy r*
+[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-*校對：TCC*
+[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-*審核：海闊天空*
+[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
 
-*Page：拱卒*
-
-簡評：
-
-中共國面對在美國駐休斯敦的領事館被72小時要求撤離感到惱怒成羞，誓言要進行報復，還要從讓美國感到更痛苦的地方開始。中共國所用語氣是那麼惡毒，完全是一副被人抓住現行的流氓醜惡嘴臉。這篇內容可以清楚地看到中共自以為是的霸凌態度、大頭症，譯者都已經無詞可以形容。難怪郭先生一再強調中國人不等於中國共產黨，因為這些中共的代言人是蘇維埃共產主義的產物，而非有著文化素養的華夏同胞。
-
-另外一件非常有趣的事是，這篇評論在彭博社首次發出來時間是7/22, 9pm, 在7/23, 2am更新了。不但內容改了，連題目都改了。老題目是：中共國可能考慮消減美國香港領事館；新題目是:中共國“警告”美國“謹慎”考慮(兩國)關係的發展方向( China Warns US to Think 'Carefully' About Where Relations Are Heading) 。讀者應該可以看出這兩個題目的力度完全不同。在這個在自由與暴政選邊站的重要時刻，拜金主義的彭博社已經明顯地選擇與中共站一邊，這是對自由世界的侮辱。
-
-原文翻譯：
-
-#### 
-
-##  **《環球時報》編輯說中共國可能考慮削減關閉美國香港領事館(中共國已決定關閉成都的美國領事館)** 
+[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 
- [!\[\](https://spark.adobe.com/page/sUTviXFzFf2JH/images/ba6b2d4b-74df-4d39-b8c0-0ac647a809a3.jpg?asset_id=6584e915-1634-4977-a0c5-26805f8b4cd6&amp;img_etag=%22594e9bc103740be49fbf4102ddb22a48%22&amp;size=1024)](https://spark.adobe.com/page/sUTviXFzFf2JH/images/ba6b2d4b-74df-4d39-b8c0-0ac647a809a3.jpg?asset_id=6584e915-1634-4977-a0c5-26805f8b4cd6&amp;img_etag=%22594e9bc103740be49fbf4102ddb22a48%22&amp;size=1024) 美國駐香港領事館
-《環球時報》總編輯胡錫進說，北京方面可能會對美國強迫關閉中共國駐休斯敦領事館做出回應，這些舉動會給美國造成比關閉其在武漢的業務更大的痛苦，包括可能削減其在香港更大的代表團。
 
-胡說，“美國在香港領事館有1000多名工作人員，”中國共產黨報紙的編輯胡錫進在周四中共國社交媒體的一篇文章中寫道。 “那麼多人在幹什麼？這顯然是一個間諜中心。”將員工人數削減到100至200人可能是中共國現有的眾多選擇之一。他的推特和微博文章在過去總是領先中共國政府官宣，被密切關注。
-
-據《南華早報》週四晚些時候援引獲得決定簡要情況的來源時報導，中共國將關閉美國駐西南城市成都的領事館，以報復休斯敦的決定。
-
-中共國外交部發言人汪文斌星期三指出，美國在華外交使團和人員的數量遠遠超過了中共國在美國的存在，接著說，如果美國不撤銷對休斯敦的決定，北京將採取報復行動。
- [!\[\](https://spark.adobe.com/page/sUTviXFzFf2JH/images/84b942fc-4f0a-43ac-87f8-71419d0a2b00.jpg?asset_id=e57ee17c-9d61-435f-b993-65f7dfdf3b6c&amp;img_etag=%22a9b57afda8a05c477f2cb3f8337f9c06%22&amp;size=2560)](https://spark.adobe.com/page/sUTviXFzFf2JH/images/84b942fc-4f0a-43ac-87f8-71419d0a2b00.jpg?asset_id=e57ee17c-9d61-435f-b993-65f7dfdf3b6c&amp;img_etag=%22a9b57afda8a05c477f2cb3f8337f9c06%22&amp;size=1024) 中國被美國下令關閉其在休斯敦的領事館，因被指責為間諜活動。 
-休斯敦領事館被迫關閉是美國和中共國多年來關係最大的威脅之一，近幾個月來，美中關係在從貿易和早期處理冠狀病毒大流行等方面惡化。美國總統唐納德·川普(DonaldTrump)說，關閉中共國在美國的其他代表團仍然是一種可能性。
-
-胡寫道，武漢——最早爆發冠狀病毒大瘟疫的大陸中心城市——的美國領事館已經開始作準備了。
-
-中共國駐休斯敦代表團只給72小時關閉，帶來了極大的不便。胡沒有詳細說明或說他從哪裡得到的信息。
-
-他寫道，因此關閉武漢領事館太容易了，美國的痛苦感與離開休斯敦的中共國外交官的感受不一樣。
-
-“因此，當中共國採取報復行動時，很可能跳出美國預設的戰場，從一個讓美國感到更痛苦的地方開始，並使它驚訝。”胡寫道。
-
-[原文鏈接](https://www.bloomberg.com/news/articles/2020-07-23/china-could-consider-u-s-hong-kong-consulate-cuts-editor-says?srnd=premium-asia&amp;sref=4TrMk4Dc)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/sUTviXFzFf2JH/)
- 
 1
