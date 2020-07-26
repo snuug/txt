@@ -1,21 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月4日中共病毒疫情要聞快報
-`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
+## 比爾•蓋茨和中國軍方的密切關系引人遐想
+`2020-07-26 12:36 GM77` [轉載自GNews](https://gnews.org/zh-hant/276830/)
 
-[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+編撰：Cash2019、Pearl珍珠、xmly666（七角星）、文肯尼
 
-[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26123329/EWo3KWcWoAIFfOl-1.png)
 
-[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+**比爾·蓋茨的核公司與中國軍方代理合作**
 
-[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+這位科技企業家 “慈善家”因堅稱中共在應對冠狀病毒方面“做了很多正確的事情”而受到抨擊，但這種不應有的、與事實不符的贊譽只是與中共勾結的冰山一角。
 
-[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
+正如由蓋茨創立並擔任主席的核能研究公司Terrapower與中國核工業集團公司（CNNC）合作，這是一家完全由政府資助和管理的公司。
 
-[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+更重要的是，這家國有企業參與了“中國核能項目的發展，包括民用和軍用”。
 
+美國國防部從1999年起就悄悄地將中核集團確定為中共的軍事合作者，今年6月才首次公開名字。
 
+中核集團入選國務院軍事合作者名單。
+
+國務院還強調了與中核集團這樣的國有核企業接觸的風險，因為這些企業是增強中共綜合國力的戰略工具—-既可以通過民用部門發展，也可以通過支持軍事項目發展。
+
+雖然Terrapower與中核集團的合作在項目實施一年多後就結束了，但這並不是他們主動提出的。川普政府的政策似乎終止了蓋茨與中共控制的公司之間的計劃。
+
+蓋茨本人將合資企業的停止歸咎於美國最近的政策變化，並表示，如果我們克服了這些障礙，他將恢復該項目。
+
+**比爾蓋茨高度評價中共“債務陷阱外交”**
+
+而另外一邊，中共國務院授予蓋茨一項國家最高榮譽：中國工程院終身院士，以表彰他對Terrapower的工作。
+
+作為中共親自挑選的唯一一位非學者型外國人獲獎，蓋茨與中共政府的密切關系可見一斑，他在各種場合與中共國家主席習近平會面，並在本月初還與李克強總理討論了關於核能的進一步合作。
+
+蓋茨高度評價了中共通過“債務陷阱外交”對非洲進行經濟剝削的行為。這是一個兩面三刀的過程，在這個過程中，中共戰略性地給予一些國家規模可觀的貸款，用於他們明知無力償還的基礎設施和交通項目。一旦該國（主要是非洲國家）違約，中共就會征用這些項目，往往會積累更多的政治和經濟力量。例如，肯尼亞政府就因為欠債而被迫將蒙巴薩港給中國。
+
+蓋茨在公開論壇上稱贊習近平主席的演講，還委婉地將中共的債務陷阱外交努力描述為“分享教訓”和“伸出援手”，對非洲的承諾非常令人印象深刻。習主席將與非洲的關系作為首要任務。
+
+他甚至對自己計劃出席9月中非合作論壇（FOCAC）表示興奮，認為該論壇是確保雙方金融安排的主要會議。
+
+**編者觀點：**
+
+比爾蓋茨作為曾經的世界首富，都在替中共站臺說話，可想而知中共在西方世界藍金黃程度何其深。這些藍金黃力量不僅幫中共站臺說好話這麽簡單，還幫著中共偷盜西方核技術，這背後不知有多麽大的利益交易才能讓一個極其成功西方企業家做這些道德敗壞的事情。中共30年在西方世界布局藍金黃BGY計劃，其目的背後顯然是控制全世界，控制全人類的邪惡用心，令人感到更加瘋狂的是，CCP現在還把新冠病毒投放到了全世界。
+
+隨著爆料革命在西方世界的影響越來越大，現在全球已經開啟了聯合滅共的時代，再加上習總加速師的助理，我們堅信在不久的將來中共政府很快就會嗝屁了！
+
+原文出處：[https://thenationalpulse.com/exclusive/ccp-collaborator-gates/](https://thenationalpulse.com/exclusive/ccp-collaborator-gates/)
 
 1

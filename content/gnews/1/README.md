@@ -1,29 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 有识之士指出中共恶法危及港人港企 美企须全面撤港美府须立法保护香港
-`2020-07-26 12:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276765/)
+## No Agency Relation: CCP ≠ Chinese People
+`2020-07-26 16:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276895/)
 
-图片来源：澳大利亚特别节目广播事业局网站 (SBS)https://www.sbs.com.au/news/audiotrack/fears-national-security-law-could-spark-more-hong-kong-unrest
+As told in the article [*Agency theory and the role of audit*](https://www.icaew.com/-/media/corporate/files/technical/audit-and-assurance/audit-quality/audit-quality-forum-fundamentals/fundamentals-agency-theory-and-the-role-of-audit.ashx) published by the Institute of Chartered Accountants in England and Wales, an agency relationship arises when one or more principals (e.g. an owner) engage another person as their agent (or steward) to perform a service on their behalf. The principals bear the consequences of whatever the agent does in the scope of agency relationship if the principals don’t tell the third party to deny the agency relationship and corresponding rights. And the simplest agency model assumes that no agents are trustworthy and if an agent can make himself better off at the expense of a principal then he will.
 
-美国财政部前官员乔纳森¡¤尚泽（Jonathan Schanzer）和艾瑞克¡¤洛伯（Eric Lorber）7月23日在《华盛顿邮报》发表观点文章，中共一意孤行通过恶法，还美其名曰香港《国安法》，将魔爪伸向香港，破坏港岛民主、自由和法治。文章呼吁美国政府应当抓住机遇，向处于危机中的港人和港企施以援手，通过各种优惠政策，吸引港岛人才、知识和资金等资源流入美国。
+**—  Chinese People Have Never Appointed the CCP as Their Agent**
 
-该文章援引美国国务卿蓬皮奥（Mike Pompeo）于今年2月份向全美州长所作讲话时的观点，表示中共目前正在各个层面积极利用美国薄弱环节。针对6月份通过的恶法，美国商会（American Chamber of Commerce）在香港进行了一项调查，结果显示76%的民众非常或者有些担心刚通过的恶法，63%的民众担心恶法将危害港岛商业前景，35%民众表示计划转移资本、资产和企业。文章预测随着中共利用恶法，打压港岛民主运动，这种恐慌情绪将会与日俱增。
+The Chinese Communist Party (CCP) hasn’t never been elected as an agent of Chinese people through transparent elections. However, the CCP claims it represents 1.4b Chinese. The CCP is untrustworthy and makes itself better off at the expense of Chinese. The CCP often promulgates that the principal Chinese will fall into chaos without it.
 
-文章指出，虽然美国各大科技巨头，包括Facebook, Google和Twitter，出于对中共滥用披露信息的担心，已经暂停处理中共国要其提供香港用户数据的请求。一旦，中共把港岛也圈进它打造的“网络防火墙”里，这些科技公司将别无选择只能退出港岛。除了科技公司受到影响之外，中共恶法入侵港岛极有可能波及香港的各大金融机构。
+**— Illegal Agents****Numerate****Heavy Commissions**
 
-文章建议，在香港金融环境日益恶劣的情况下，联邦政府应当考虑对欲将总部迁至美国或者扩大在美业务的香港金融银行企业提供税收刺激政策，州政府也应该考虑对这些港企提供建筑补贴、低息贷款等优惠政策，尤其是一直备受金融银行业青睐的西海岸各州。当然，美国的机会并不仅限于吸引香港的银行业。据香港公司注册处（Hong Kong Companies Registry）数据显示，仅今年5月份，在香港岛注册的本土公司就多大130万家，其中850家是上市公司。
+It is very absurd. You owned a house valued at £1000,000. A real estate agent told you that he would act as your sales agent to sell your house and numerated his commission at 80% without getting your approval. He sold your house to his CEO overseas at £10,000 and charged commission at £8,000. The CEO sold the house immediately at £1000,000 subsequently and laundered the proceeds to bank accounts maintained in the USA, the UK and the EU with the help of bankers. As a result, you became much poorer, couldn’t afford proper education and could only get propaganda that without the agent it would become much worse and it was decided by history that this agent was your only option. Your appearance seen from outsiders was too bad, which would convince outsiders of the propaganda mentioned above. It also convinced outsiders that you, the agent and the market were unseparated. As far as China is concerned, you are the Chinese people, the agent is the CCP and China is the market.
 
-文章分析， 许多香港居民受教育程度高，在金融和其他重要领域具备极强专业技能，对香港实施开放政策，不仅能帮助香港对抗中共的独裁专制统治，对美国自身而言也是三赢局面：促进美国经济健康发展、打压中共以香港为跳板压榨美国经济以及维护美国所倡导的自由民主。虽然，已经在美国通过的捍卫香港自由民主权利的《香港自治法》不能再做修改，但是国会应当考虑通过其他立法措施保护港人，比如，放宽港人来美的签证限制以及港企在美的业务限制。文章还提醒，很多港人并不愿意离开他们的家园，而且，不在中共势力范围的其他国家也在他们的考虑之列，比如澳大利亚等。有些港人很可能会选择去英国，因为英国已经采取措施帮助他们逃离香港。
+**— An Example of Heavy Agency Cost**
 
-评：国安恶法破坏民主法治自由，美国不会袖手旁观，任凭中共肆意妄为，世界更不会坐视不理，对港人收到的迫害置若罔闻。相信许多国家都会效法英国，对香港同胞施以善意的援助之手。当然，我们也要看到针对香港同胞的援助并不完全是慈善事业，更是其他国家刺激本国经济发展的机遇。这篇美国前官员的观点文章很能说明一些问题，他们对于人才、知识和资本的看重尤为突出。香港经历了这几十年的发展，得到了西方社会的广泛认可和普遍信任，不过也间接给中共过去几十年吸血世界经济铺设了的一个管道。反观大陆在中共的高压统治之下，Made in China几乎成了假冒伪劣的代名词，那帮在法拉盛、中国城干着非法勾当的孙子几乎成了中国人坑蒙拐骗的缩影。这个锅我们中国人不背！无数华夏好儿女们本来也该像香港同胞这样，无论走到哪里都受到大家欢迎，是各国争相吸引的人才资本才对。天佑香港！重建国际社会对中国人的信任任重道远！
+Because of this terrible agency relationship, the CCP made great gains at the expense of Chinese people. According to the [Agriculture Tax Ordinance](https://zh.wikisource.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%86%9C%E4%B8%9A%E7%A8%8E%E6%9D%A1%E4%BE%8B)(ATO) effective until 2006 published in 1958 by CCP, the agriculture tax(AT) was levied on assessed production quantities of normal years by applying average tax rate of 15.5% plus local rate of less than 9.5%, plus additional 10%-50% for individual peasants not member of people’s commune (PC). There was no personal allowance as set in UK [*Income Tax Act 2007*](https://www.legislation.gov.uk/ukpga/2007/3/section/35)*.*What made matters worse was that the officers of AJA joined by most peasants were responsible for preparing AT return in conformance with ATO. The PC officers and other officials of different CCP classes were only interested in selfish promotion and welfare arising from overstating production quantities and overcharging AT. It was said that there were only 115.1 thousand tons grains produced in Fengdu of Sichuan in 1959 in an article [*Failure of Indicator Management: Great Famine and CCP Fraudulence*](http://137.189.161.113/PaperCollection/Details.aspx?id=7258) published by The Universities Service Centre for China Studies of The Chinese University of Hong Kong. It was overstated to 420 thousand tons, as a result of which , the AT was charged at 25% for about 105 thousand tons. Therefore, the agency cost was actually charged at 91.23% (105/115.1×100%=91.23%),  as a result, there was a severe consequence of substantial starvation deaths of the people in Sichuan in the Great Famine. My grandfather died during this famine. I grew up in the countryside and also suffered a great blow, in the form of short height and thinness due to the lack of nutrition in the growth period, from such high agency cost because the heavy AT left little for parents to feed me.
 
-原文链接：
+In recent years, the CCP social insurance has become one of the heaviest costs of Chinese private businesses and workers. Similar to the AT, there is no personal allowance that is available in the UK National Insurance Contribution scheme and overcharge by applying overstated gross wages in the form of setting least contribution. If your gross wage each year is ¥40,000 and the minimum required fee is ¥3000 each month in Guangdong, the charge will be ¥36,000 each year. As we all know, social insurance expenditure is not transparent and the social insurance fund is now being invested in the A share market of China. The A share market has been used for laundering money and cheating funds into the hands of CCP officials, which can explain why the gains from A share tradings have been exempt from income tax since introduction of securities exchange in 1990. Therefore, the CCP social insurance charge is the agency cost charged by the CCP at 90% (36000/40000×100%=90%) in the case mentioned above.
 
-https://www.washingtonpost.com/opinions/2020/07/23/why-we-should-invite-hong-kong-businesses-move-united-states/
+**—****Chinese People ≠ CCP ≠ China**
 
-翻译报道：妙音
+On July 1 and July 24, 2020, some people, identified as the Whistleblower Movement  participants, held protests outside the Chinese Embassy in Washington DC and Chinese Consulate in Houston respectively following the declaration of the establishment of the New Federal State of China on June 4, 2020. They all deny the agency relationship between Chinese people and the CCP to the outsider world, and indicate that  it’s reasonable to replace the CCP with the New Federal State of China (NFSC).
 
-校对整理：瑞安平
+Many nations such as the USA have  gradually become aware that the Chinese People are not equal to the CCP, and the CCP doesn’t represent China either. Take America as an example, it is said in the [*Communist China and the Free World’s Future*](https://www.state.gov/communist-china-and-the-free-worlds-future/) speech made by US Secretary of State Michel Pompeo on July 23, 2020 that the USA opened arms to Chinese citizens, only to see the CCP exploit American free and open society. America gave the CCP special economic treatment, only to see the CCP insist on silence over its human rights abuses as the price of admission for Western companies entering China. America knows that the People’s Liberation Army is not a normal army, too. Its purpose is to uphold the absolute rule of the CCP elites and expand a Chinese empire, not to protect the Chinese people. Chinese people, too made in the image of God, are completely distinct from the CCP.
+
+**— Solution to Agency Problem in China**
+
+It is stated in [*The Declaration*](https://gnews.org/221992/)*of NFSC* that it will uphold rule of law, freedom, segregation of government branches and democracy. In the [NFSC](https://gnews.org/222444/) promoted by the [Whistleblower Movement](https://www.youtube.com/watch?v=I5w3N2_Bfpw), Chinese people will appoint legal agent and numerate the agency cost at reasonable rate through transparent democratic and free election process. To deny the agency relationship between CCP and Chinese people, more Chinese people are requisitioned to join in the Whistleblower’s Movement.
+
+Author: CPA Jim
+
+Auther: CPA Jim
 
 0

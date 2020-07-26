@@ -1,21 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多语言图文版】7月3日中共病毒疫情要闻快报
-`2020-07-26 08:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276566/)
+## 中共特務情報機構遍及世界
+`2020-07-26 09:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276595/)
 
-[7.3-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/13101820/1-50.png)圖片來源：Raphaël Dunant,Gajmar/Wikimedia/CC BY-SA 4.0 
+據印度媒體ThePrint近日發表的專欄文章指出，中共通過多個前沿組織來掩蓋其情報機構在民事和軍事領域的運作。作為一個不透明的政權，中共已經聲名狼藉，它依靠其安全和情報機構緊緊地控制其公民、持不同政見者和外國人，同時還大規模地進行商業間諜和網絡戰等活動。
 
-[7.3-每日要闻-法文版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)
+中共通過多層次的運作，其中包括媒體或商業公司、孔府學院、個人、海外商會、團體、留學生等。中共和軍方控制了許多中共科技公司和其他公司。如今，中共從事間諜網絡活動的人數超過了任何其他國家。
 
-[7.3-每日要闻-韩语版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)
+文章指出，由於中（共）國仍然是一個獨裁社會，且由於語言障礙，因此西方國家很難驗證這些信息，導致現在世界幾乎被中共獨裁所滲透。文章對中共的主要間諜情報機構的介紹如下：
 
-[7.3-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+**1.國家安全部(簡稱MSS)**
 
-[7.3-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
+國家安全部是中（共）國最重要的民用情報機構。新西蘭坎特伯雷大學政治學教授安妮-瑪麗•布雷迪（Anne-Marie Brady）將其描述為監視世界的“全方位情報機構”，類似於蘇聯的克格勃（KGB），英文譯為“國家安全委員會”。
 
-[7.3-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+國家安全部成立於1983年，其職責包括反間諜，收集外國情報以及對國內監視和收集情報等國家安全事務。人們通常將其描述為美國中央情報局和聯邦調查局的聯合體。國家安全部與其他情報機構一樣，在中（共）國和海外開展各種間諜活動，監控和調查國內外個人和機構，它可以命令他們從事或支持情報活動。它還有權對阻礙或洩露情報工作信息的人進行最長15天的行政拘留。
 
-[7.3-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+**2.中共國安全部（簡稱MPS）**
+
+中共國安全部除反恐外，還負責監管內部安全和異見人士。它控制著中共國的內部網絡政策。從管理戶口登記，身份證，國籍以及中外國籍人士的出入境狀態，到管理集會和示威活動，甚至到邊境管理，中共國安全部是中共保持不透明的監管活動的一個重要部門。
+
+**3.中共中央軍委聯合參謀部（簡稱JSD）**
+
+該機構是中共解放軍的外部情報機構。該機構還將其人員派往海外的公司、大學和其他機構作為秘密特工。它下屬的中國國際戰略研究學會是其負責接待外國軍官的前線組織。它還經營著國際關係研究院。
+
+**4.戰略支援部隊（SSF）**
+
+中共解放軍的這個機構處理與網絡戰有關的所有事務，進行從對國外的政治干預到針對軍事和商業機密的黑客攻擊，再到通常稱為PsyOps的心理行動等一系列行動。位於華盛頓特區的研究與分析機構詹姆斯敦基金會（Jamestown Foundation）指出，作為解放軍新的信息戰力量的戰略支援部隊有兩個主要任務。
+
+- 首先，它將通過基於空間和網絡的能力為解放軍提供戰略信息支持，包括通信、導航和定位、情報、監視和偵察以及軍事信息基礎設施的保護。
+- 第二，戰略支援部隊將進行信息操作，包括空間和對空、網絡、電子戰和心理戰。
+
+
+評：正是因為中共操縱如此龐大的監控特務機構，所以讓很多中國人不敢發聲，包括出國的華人，更甚者對於一部分外國人也是。所以要真正消除世界人民，特別是中國人民，海外華人的恐懼，必須從根上徹底滅掉中共獨裁這個體制。
+
+[原文鏈接](https://theprint.in/defence/ministries-of-security-strategic-support-force-chinas-intel-agencies-how-they-operate/463697/)
+
+翻譯報導：匿名
+校對整理：Yamap
 
 1
