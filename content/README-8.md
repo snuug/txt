@@ -14,6 +14,14 @@
 
 ## 頁面 8/28 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [28](/content/README-28.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月23日文贵报平安直播](/content/2019/11/20191125-6475275943691135995.md)
+
+[文字版：2019年11月21日感谢万佛万神，警告海外华人不要帮中共作恶并喊话黄芳](/content/2019/11/20191122-9185268058186409613.md)
+
+[文字版：2019年11月19日庆祝香港人权与民主法案全票通过](/content/2019/11/20191121-5294984680700709371.md)
+
+[文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/2019/11/20191120-7407976853651843177.md)
+
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
 
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
@@ -55,14 +63,6 @@
 [文字版：2019年10月30日特别节目文贵和Sara、路德、江财神在喜马拉雅大使馆谈区块链](/content/2019/11/20191104-6223234375354578515.md)
 
 [文字版：2019年10月29日郭文贵先生与庄烈宏先生直播](/content/2019/11/20191104-6256642616766807144.md)
-
-[文字版：2019年10月28日文贵紧急直播](/content/2019/11/20191104-5535756797858660589.md)
-
-[文字版：2019年10月27日文贵试直播乱聊](/content/2019/11/20191104-2431489573018737402.md)
-
-[文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
-
-[文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/2019/10/20191028-4834533128406187922.md)
 
 
 ## 頁面 8/28 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [28](/content/README-28.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
