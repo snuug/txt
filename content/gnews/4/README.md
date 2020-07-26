@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 皮爾斯伯里：美中關係正向新冷戰態勢發展
-`2020-07-25 23:53 GM65` [轉載自GNews](https://gnews.org/zh-hant/276372/)
+## 東三省恐有大面積疫情爆發；三峽一旦潰壩，恐遭水災核汙染雙重危險！“中共病毒疫情每日熱線”
+`2020-07-26 06:58 GM30` [轉載自GNews](https://gnews.org/zh-hant/276484/)
 
-翻譯：laowu 字幕：Vinzo
- 
-1
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+
+0

@@ -1,45 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宮宣佈韓戰退伍軍人紀念日
-`2020-07-25 16:12 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/276112/)
+## 將中國人和中國共產黨區分開來是滅共的重要條件
+`2020-07-25 20:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276174/)
 
-新聞簡述：六十七年前，經過三年多的殘酷戰鬥，戰勝了朝鮮半島的共產主義擴張，但是我們有三萬六千多名美國人在朝鮮戰爭中喪生，十萬三千多人受傷，近八千人失蹤。朝鮮戰爭終於結束了。為了紀念捍衛自由和保護我們珍視的價值觀而奮鬥的普通美國人的不尋常勇氣和犧牲，川普總統宣佈2020年韓國戰爭紀念日是2020年7月27日。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25155030/WH_20200724_PresidentKwar_photo169.png)
-[**Proclamation on National Korean War Veterans Armistice Day, 2020**](https://www.whitehouse.gov/presidential-actions/proclamation-national-korean-war-veterans-armistice-day-2020/)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25200448/Picture-1-159.png)圖片來源： [SupChina](https://supchina.com/2019/07/22/why-do-chinese-people-like-their-government/) 
+王祥偉，原中共大外宣港媒《南華早報》原總編輯，現居北京改任為該報的編輯顧問，7月25日在《南華早報》發表署名文章，提出美國現在要將中國人民同中國共產黨區分開來並推翻中共政權的想法只是美國的一廂情願的論調。王總編的分析真的有說服性嗎？他的論點站得穩嗎？
 
-**宣佈2020年朝鮮戰爭退伍軍人紀念日**
+**王總編–美國滅共是一廂情願**
 
-Sixty-seven years ago today, guns fell silent along the Korean Demilitarized Zone after more than 3 years of brutal fighting to defeat the expansion of communism on the Korean Peninsula.  On National Korean War Veterans Armistice Day, we pause to remember the uncommon courage and sacrifice of ordinary Americans who fought to defend freedom and protect the values we hold dear.
+本週四美國國務卿蓬佩奧在尼克松圖書館發表了有歷史意義的講話，標誌著美國對華政策的全面轉向，從綏靖轉為全面對抗，其中最突出的一點是，國務卿呼籲美國及世界要將中國人民和中共分開，要賦予中國人民權力。他說：“共產黨人幾乎總是在撒謊。他們說的最大的謊言就是他們自認為代表了14億被監視、被壓迫、不敢說話的中國人民。” 同時，他敦促國際聯盟向中共國施壓，並要求中共國改變其行為。
 
-六十七年前的今天，在為擊敗朝鮮半島的共產主義擴張進行了三年多的殘酷戰鬥之後，朝鮮非軍事區的槍聲終於沈寂。在國家朝鮮戰爭退伍軍人停戰紀念日，我們暫停下來去紀念那些為捍衛自由和保護我們所珍視的價值觀而奮鬥的普通美國人的不尋常勇氣和犧牲。
+王總編深刻理解蓬佩奧的發言透露出的意思。他在文章中明確指出， 美國區分中國人民和中共的目的是為了破壞共產黨專政制度，從而達到孤立和推翻共產黨的目的。看來王總編深知美國新強硬政策的終極目的– 滅共。從他文章中可以看出，美國這個最新思路已經在中共官員中廣為流傳，他稱蓬佩奧的講話使“美國終於暴露了自己的真實面目”。
 
-This year marks the 70th anniversary of the start of the Korean War.  When the conflict began, Americans were still rebuilding their lives in the aftermath of World War II, enjoying the blessings of peace and looking toward a future filled with hope and prosperity.  When freedom and democracy were under threat on the Korean Peninsula, however, 2 million Americans left their homes, put on our Nation’s uniform, and answered their country’s call to duty.  Their resolve was tried and tested in once obscure and unfamiliar places, such as Pork Chop Hill, Heartbreak Ridge, Chipyong-ni, Pusan, and the Chosin Reservoir, and in unnamed locations known only by grid coordinates or hilltop elevations.  Alongside tens of thousands of coalition troops from our allies around the world, these individuals fought, bled, died, went missing, and suffered brutal captivity to defeat a determined foe amid the harshest of conditions, including sweltering heat, bone-numbing cold, and deep snow that buried valleys and rugged ridgelines.  Their unquestioned valor, determination, and patriotism halted communist aggression and restored liberty and dignity for the South Korean people.  In our Nation’s Capital, the black granite wall of the Korean War Veterans Memorial stands as a testament to their sacrifice, etched with the words 「Freedom is Not Free.」  In total, more than 36,000 Americans gave their lives in the Korean War, more than 103,000 were wounded, and nearly 8,000 went missing in action.
+然而，像那些堅信“中國共產黨領導下的具有中國特色的社會主義是世界上最優越的製度”的共產黨人一樣，對於美國新的滅共思路的可行性，王總編畫下了一個大問號，美國“能否成功，還是一廂情願呢？“
 
-今年是朝鮮戰爭爆發70週年。當衝突開始時，美國人正在重建第二次世界大戰後的生活，享受和平的祝福，並展望充滿希望和繁榮的未來。但是，當朝鮮半島的自由與民主受到威脅時，有200萬美國人離開了家園，穿上了我們國家的戎裝，並相應了他們國家的使命召喚。他們的決心曾在不為人所知和陌生的地方到得過試驗和測試，例如豬排山、傷心嶺、奇永尼、釜山和長信水庫，以及在僅有網格坐標或山頂海拔高度而不知名的地點。這些戰士和來自世界各地數以萬計的盟友聯軍一起戰鬥、流血、死亡、失蹤並遭受被囚禁，在殘酷的條件下擊敗了頑固的敵人，包括酷熱、麻木的寒冷和掩埋了山谷和山脊的大雪。他們毫無疑問的英勇，決心和愛國主義制止了共產黨的侵略，並恢復了南朝鮮人民的自由和尊嚴。在我們國家的首都，朝鮮戰爭退伍軍人紀念館的黑色花崗岩牆屹立著，以紀念他們的犧牲，上面刻著「自由是不自由」的字樣。共有36,000多名美國人在朝鮮戰爭中失去了他們的寶貴的生命，超過103,000人受傷，近8,000人失蹤。
+駁：如果王總編學習一下歷史，了解一下中共國從上世紀九十年代以來的發家史，就可以清楚地認識，中共的經濟發展完全是在親共的美國對華政策下實現的。正是得到美國和西方資金技術支持，中共才有今天經濟上的長足的發展。沒有了美國和西方的經濟輸血，中共的經濟一定會停滯。自美中貿易戰以來，國內經濟急轉直下，出口嚴重受挫，工廠倒閉，大量工人失業。這僅僅是美國打擊中共在經濟上的小試牛刀。美國祇要下定決心，滅共新思路完全可行。
 
-Today, the Republic of Korea, once decimated in the aftermath of the war, is one of the world’s most vibrant, dynamic, and economically prosperous democracies — and one of our strongest allies.  Our Armed Forces continue to proudly serve side-by-side with our Korean military counterparts.  This ironclad alliance, forged in war and reinforced by a shared love of liberty and deep ties of friendship, is vital to peace and stability in both Asia and the world.
+**王總編–區分和懲罰共產黨對美國來說是不切實際的**
 
-韓國在戰爭之後曾經一度被毀滅，但如今是世界上最充滿活力，最活躍，經濟繁榮的民主國家之一，也是我們最強大的盟友之一。我們的武裝部隊繼續自豪地與我們的韓國軍方同行並肩服務。這個鐵腕的聯盟在戰爭中建立起來，並因對自由的共同愛和深厚的友誼紐帶而得到加強，對亞洲和世界的和平與穩定至關重要。
+在王總編看來，美國近期來一系列遏制中共國的行動，無論是在新疆問題上製裁中共國官員和公司，派遣航空母艦通過南中國海，指責中共政府資助黑客竊取中共病毒疫苗研究數據，還是前兩天關閉中共駐美領館等等，這些行動對中共都不會造成什麼嚴重傷害，更不可能實現美國區分和打擊共產黨的目的，儘管有報導說美國要對所有共產黨員實施簽證和旅行禁令，但美國要將所有共產黨及其家人從普通人中區分出來給於製裁，實際操作可能性很小。
 
-As we commemorate the 67th anniversary of the Korean War Armistice, we renew our commitment to the principles of liberty for which our Korean War veterans so valiantly fought.  We are eternally grateful for the families that endured the unimaginable sacrifices and heartache of war, and we are thankful for all the men and women who helped change the fate of a nation.  The 38 months of bloody warfare represent the honorable legacy of a selfless and courageous generation of American patriots.
+在他看來，首先，共產黨員的人口基數非常龐大。中國共產黨擁有9千2百萬黨員，加上他們的父母、配偶和子女等直系家庭成員，總人數超過3億；其次，共產黨的影響力幾乎滲透到社會的各個層面，在中共國內，成為黨員往往是就業或晉升的先決條件，因此，無論是城市還是農村基層，黨員及其家屬遍布政府部門和國有企業、大學、私營或外國企業等等。人們以身為黨員為榮；再次，也就是最重要的一點，大多數黨員與黨和政府的決策無關。總之，王總編的觀點其實就是說，中共黨員遍地都是，美國是製裁不過來的。
 
-我們在紀念朝鮮戰爭停戰67週年之際，我們重申對我們的朝鮮戰爭退伍軍人為此英勇奮戰的自由原則的承諾。我們永遠感謝遭受了無法想象的犧牲和戰爭之痛的家庭，並且我們感謝所有幫助改變民族命運的人們。 38個月的流血戰爭代表了一代無私，勇敢的美國愛國者的光榮遺產。
+駁：要美國調查制裁3億人當然不可能，但別忘了文貴先生一直以來的主張，就是99.99%的共產黨員都是好人，只有中共最高層的幾個家族才是真正的始作俑者，是懲罰和打擊的對象。在新中國聯邦下，無辜的共產黨員是要被大赦的。如果美國政府接受新中國聯邦的幫助，相信他們絕對不用耗財耗時耗力地對所有共產黨員進行調查和製裁，而只需要針對個別人進行打擊，有的放矢。另一方面，王總編也幫助證明了文貴先生大多數黨員是好人的看法，因為正如王總編所說，大多數黨員並不參與黨和政府決策的製定，所以只有那些制定政策的黨員高層才是美國打擊的對象，完全打臉王總編所稱共產黨員太多，美國無法區分制裁的說法。
 
-NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, by virtue of the authority vested in me by the Constitution and the laws of the United States, do hereby proclaim July 27, 2020, as National Korean War Veterans Armistice Day.  I call upon all Americans to observe this day with appropriate ceremonies and activities that honor and give thanks to our distinguished Korean War Veterans.
+**王總編–川普制裁中共黨員只是為選舉虛張聲勢**
 
-現在，據此，我，美利堅合眾國總統唐納德·J川普，根據憲法和美國法律賦予我的權力，特此宣佈2020年7月27日為韓國戰爭退伍軍人紀念日。我呼籲所有美國人以適當的儀式和活動來紀念這一天，以紀念和感謝我們傑出的朝鮮戰爭退伍軍人。
+王總編認為，首先，如果美國對全部中共黨員實行禁令，基本上就是兩國人員往來的完全脫鉤，這是不現實的；其次，這個制裁令可能只是川普在競選民調下降時，為挽回民調而採取的競選言論，而不是真正美國想實施的計劃，而且美國官方媒體也已經把川普政府的對華政策描繪成非理性的、反复無常的，近乎失去理智；再次，對一些共產黨高官的製裁只是美國政府在中國普通民眾和共產黨領導層製造矛盾的一種手段。王總編說，美國想要挑撥黨群關係這一企圖在習近平時代是不可能的，因為廣大中國民眾完全折服於這位領導人上任以來所做的反腐倡廉的成績，對中共現任領導人的滿意度爆棚。美國應該先好好管管自己國內的疫情和暴亂才是。雖然在王總編看來，制裁中共黨員只是美國在打嘴炮，但制裁黨員在美資產和撤銷在美黨員及其家屬簽證等這一措施實際也導致了某些中共官員失眠，動搖了共產黨在美的勢力。
 
-IN WITNESS WHEREOF, I have hereunto set my hand this twenty-fourth day of July, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fifth.
+**駁：**
 
-特此通知，我是在7月的第二十四天，我們主的2020年，美利堅合眾國獨立的第二百四十五年簽署的。
+王總編所有論調無非就是要將所有共產黨員不分好壞綁架到共產黨滅亡的戰車上。川普政府真的只是打嘴炮嗎？借用文貴先生經常說的一句話：我們不要聽他說什麼，要看他做什麼。反共滅共已經在美國兩黨形成了共識，懲治共產黨員只是所有打擊中共手段的其中之一。共產黨對美國幾十年的滲透已經無所不及，不可否認，川普政府面臨的壓力和反對勢力絕對不可小視。但別忘了，川普總統自上任以來一直在努力“排幹沼澤”，相信沼澤里一定有不少共產黨的勢力。川普總統一向說到做到，顛覆了以往政客只說不做的行為模式。他很清楚，只有滅共才能成就另一個四年！
 
-DONALD J. TRUMP
+[原文鏈接](https://www.scmp.com/week-asia/opinion/article/3094443/will-us-bid-split-chinese-people-communist-party-work-or-it?onboard=true)
 
-唐納德J·川普
-
-*翻譯：【JennyL】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+翻譯報導：Sarathecat
 
 0
