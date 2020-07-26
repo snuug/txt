@@ -1,34 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新加坡中共間諜在美認罪
-`2020-07-25 11:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/275980/)
+## 白宮宣佈韓戰退伍軍人紀念日
+`2020-07-25 16:12 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/276112/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25110247/1-118.png)圖片地址[https://blog.smu.edu.sg/tag/yeo-jun-wei/](https://blog.smu.edu.sg/tag/yeo-jun-wei/) 
-一名新加坡公民楊俊偉週五承認在美國擔任秘密中國情報人員工作，並招募了陸軍軍官、國務院和五角大樓官員作為特工。楊先生於2016年6月至2019年1月就讀於北京大學國家戰略傳播學院，當時他去了喬治華盛頓大學。他為幾本有關中國事務的出版物撰稿。
+新聞簡述：六十七年前，經過三年多的殘酷戰鬥，戰勝了朝鮮半島的共產主義擴張，但是我們有三萬六千多名美國人在朝鮮戰爭中喪生，十萬三千多人受傷，近八千人失蹤。朝鮮戰爭終於結束了。為了紀念捍衛自由和保護我們珍視的價值觀而奮鬥的普通美國人的不尋常勇氣和犧牲，川普總統宣佈2020年韓國戰爭紀念日是2020年7月27日。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/25155030/WH_20200724_PresidentKwar_photo169.png)
+[**Proclamation on National Korean War Veterans Armistice Day, 2020**](https://www.whitehouse.gov/presidential-actions/proclamation-national-korean-war-veterans-armistice-day-2020/)
 
-楊於2019年1月至2020年1月在喬治·華盛頓大學西格爾亞洲研究中心的艾略特國際事務學院擔任訪問學者。他還為網絡和紙質期刊撰寫了許多文章，其中包括2019年2月在《防務》雜誌上發表的一篇題​​為《中央王國已死，大中華萬歲》的文章。
+**宣佈2020年朝鮮戰爭退伍軍人紀念日**
 
-檢察官說，從2015年開始，楊一直在中國情報部門的指導下工作，直到11月被捕。他在法庭聲明中承認，他秘密為中國情報部門工作，招募美國政府官員擔任間諜，並向北京提供信息。哥倫比亞特區美國律師邁克爾·舍溫（Michael Sherwin）說：“此案再次凸顯了[中国]情報部門在我們內部的運作方式，使用代理人在眾多領域（航空航天，公共政策，國防）中鎖定和評估美國公民，以追踪和偷竊我們的知識產權和國防機密情報。”
+Sixty-seven years ago today, guns fell silent along the Korean Demilitarized Zone after more than 3 years of brutal fighting to defeat the expansion of communism on the Korean Peninsula.  On National Korean War Veterans Armistice Day, we pause to remember the uncommon courage and sacrifice of ordinary Americans who fought to defend freedom and protect the values we hold dear.
 
-根據法庭上提交的事實聲明，楊尋求“從美國獲得有價值的非公開信息，他利用互聯網和各種社交媒體網站，對能夠獲得有價值的非公開信息的美國人進行了鎖定和評估，包括獲得高級別安全特許的美國軍方和政府僱員。”
+六十七年前的今天，在為擊敗朝鮮半島的共產主義擴張進行了三年多的殘酷戰鬥之後，朝鮮非軍事區的槍聲終於沈寂。在國家朝鮮戰爭退伍軍人停戰紀念日，我們暫停下來去紀念那些為捍衛自由和保護我們所珍視的價值觀而奮鬥的普通美國人的不尋常勇氣和犧牲。
 
-聲明說，2015年在新加坡國立大學攻讀博士學位期間訪問北京做報告的一段時間內，楊開始擔任中國代理人。在報告後，楊被聲稱代表中國智庫的一些個人招募。這些人向楊付錢，以換取政治報告和信息。楊開始了解到，其中至少有四人是中國政府的情報人員。楊被要求與中國人民解放軍簽訂合同，同時繼續為軍事情報和其他間諜服務工作。
+This year marks the 70th anniversary of the start of the Korean War.  When the conflict began, Americans were still rebuilding their lives in the aftermath of World War II, enjoying the blessings of peace and looking toward a future filled with hope and prosperity.  When freedom and democracy were under threat on the Korean Peninsula, however, 2 million Americans left their homes, put on our Nation’s uniform, and answered their country’s call to duty.  Their resolve was tried and tested in once obscure and unfamiliar places, such as Pork Chop Hill, Heartbreak Ridge, Chipyong-ni, Pusan, and the Chosin Reservoir, and in unnamed locations known only by grid coordinates or hilltop elevations.  Alongside tens of thousands of coalition troops from our allies around the world, these individuals fought, bled, died, went missing, and suffered brutal captivity to defeat a determined foe amid the harshest of conditions, including sweltering heat, bone-numbing cold, and deep snow that buried valleys and rugged ridgelines.  Their unquestioned valor, determination, and patriotism halted communist aggression and restored liberty and dignity for the South Korean people.  In our Nation’s Capital, the black granite wall of the Korean War Veterans Memorial stands as a testament to their sacrifice, etched with the words 「Freedom is Not Free.」  In total, more than 36,000 Americans gave their lives in the Korean War, more than 103,000 were wounded, and nearly 8,000 went missing in action.
 
-楊被指示獲取“關於美國商務部，人工智能以及中美之間’貿易戰’的非公開信息。”在多達20次會晤中，信息被傳遞給了中國多個地區的中國情報部門。楊通過互聯網和社交媒體收集信息，以識別和招募美國人向他提供信息。中共還於2018年命令他成立了一家假諮詢公司，並為該公司發布工作清單，以尋找代理人。大約有400人將簡歷寄給了他，其中90％來自“美國具有安全特許的軍事和政府人員。”楊把簡歷已發送給中共情報官員。
+今年是朝鮮戰爭爆發70週年。當衝突開始時，美國人正在重建第二次世界大戰後的生活，享受和平的祝福，並展望充滿希望和繁榮的未來。但是，當朝鮮半島的自由與民主受到威脅時，有200萬美國人離開了家園，穿上了我們國家的戎裝，並相應了他們國家的使命召喚。他們的決心曾在不為人所知和陌生的地方到得過試驗和測試，例如豬排山、傷心嶺、奇永尼、釜山和長信水庫，以及在僅有網格坐標或山頂海拔高度而不知名的地點。這些戰士和來自世界各地數以萬計的盟友聯軍一起戰鬥、流血、死亡、失蹤並遭受被囚禁，在殘酷的條件下擊敗了頑固的敵人，包括酷熱、麻木的寒冷和掩埋了山谷和山脊的大雪。他們毫無疑問的英勇，決心和愛國主義制止了共產黨的侵略，並恢復了南朝鮮人民的自由和尊嚴。在我們國家的首都，朝鮮戰爭退伍軍人紀念館的黑色花崗岩牆屹立著，以紀念他們的犧牲，上面刻著「自由是不自由」的字樣。共有36,000多名美國人在朝鮮戰爭中失去了他們的寶貴的生命，超過103,000人受傷，近8,000人失蹤。
 
-他還使用一個匿名的專業人際關係網站為中共國尋找代理人。然後，該網絡站點開始了智能搜索，以提供更多名稱。 “ 楊幾乎每天都要檢查此網站，查看該網站統計建議給他的新一批潛在聯繫人發出信息。”他招聘了許多聯繫人來提供信息和撰寫報告，所有這些都在中國情報部門的指導下進行。聲明說：“ 楊成功招募了向他提供信息的多名美國公民。”
+Today, the Republic of Korea, once decimated in the aftermath of the war, is one of the world’s most vibrant, dynamic, and economically prosperous democracies — and one of our strongest allies.  Our Armed Forces continue to proudly serve side-by-side with our Korean military counterparts.  This ironclad alliance, forged in war and reinforced by a shared love of liberty and deep ties of friendship, is vital to peace and stability in both Asia and the world.
 
-在招募的人員中，有一名在F-35B噴氣式飛機上工作且有財務困難的空軍文職僱員，楊聘請該僱員撰寫有償報告，包括有關日本購買美國F-35戰鬥機的信息。美國政府上周宣布，東京將以價值230億美元的價格購買100多架F-35。
+韓國在戰爭之後曾經一度被毀滅，但如今是世界上最充滿活力，最活躍，經濟繁榮的民主國家之一，也是我們最強大的盟友之一。我們的武裝部隊繼續自豪地與我們的韓國軍方同行並肩服務。這個鐵腕的聯盟在戰爭中建立起來，並因對自由的共同愛和深厚的友誼紐帶而得到加強，對亞洲和世界的和平與穩定至關重要。
 
-楊通過社交媒體招募的第二個人是五角大樓的軍官。該軍官寫了一份關於美軍從阿富汗撤軍對中共影響的報告。楊為這份報告給軍官妻子的銀行帳戶支付了$ 2,000。然後，中共指示楊招募更多軍官提供機密信息。楊在招募之前被捕。
+As we commemorate the 67th anniversary of the Korean War Armistice, we renew our commitment to the principles of liberty for which our Korean War veterans so valiantly fought.  We are eternally grateful for the families that endured the unimaginable sacrifices and heartache of war, and we are thankful for all the men and women who helped change the fate of a nation.  The 38 months of bloody warfare represent the honorable legacy of a selfless and courageous generation of American patriots.
 
-楊先生2019年1月至2019年7月住在華盛頓地區，遊走於智囊團、遊說公司和國防承包商等組織，招聘和評估可能的中共特工。由於擔心他的通訊將被美國政府截獲，楊還被指示不要與在美國的中國情報部門進行聯絡。中國情報人員告訴楊，在美國旅行時不要帶手機或筆記本。這名特工給了楊某一張銀行卡，以便楊某支付提供信息的美國聯繫人，北京間諜通過中國加密的短信應用程序微信和多部電話與他聯繫。
+我們在紀念朝鮮戰爭停戰67週年之際，我們重申對我們的朝鮮戰爭退伍軍人為此英勇奮戰的自由原則的承諾。我們永遠感謝遭受了無法想象的犧牲和戰爭之痛的家庭，並且我們感謝所有幫助改變民族命運的人們。 38個月的流血戰爭代表了一代無私，勇敢的美國愛國者的光榮遺產。
 
-楊對指控供認不諱，他“ 承認接受並執行了中華人民共和國情報局特工的任務。”
+NOW, THEREFORE, I, DONALD J. TRUMP, President of the United States of America, by virtue of the authority vested in me by the Constitution and the laws of the United States, do hereby proclaim July 27, 2020, as National Korean War Veterans Armistice Day.  I call upon all Americans to observe this day with appropriate ceremonies and activities that honor and give thanks to our distinguished Korean War Veterans.
 
-[原文鏈接](https://m.washingtontimes.com/news/2020/jul/24/exclusive-singaporean-think-tank-expert-guilty-spy/)
+現在，據此，我，美利堅合眾國總統唐納德·J川普，根據憲法和美國法律賦予我的權力，特此宣佈2020年7月27日為韓國戰爭退伍軍人紀念日。我呼籲所有美國人以適當的儀式和活動來紀念這一天，以紀念和感謝我們傑出的朝鮮戰爭退伍軍人。
 
-翻譯報導：匿名
+IN WITNESS WHEREOF, I have hereunto set my hand this twenty-fourth day of July, in the year of our Lord two thousand twenty, and of the Independence of the United States of America the two hundred and forty-fifth.
 
-1
+特此通知，我是在7月的第二十四天，我們主的2020年，美利堅合眾國獨立的第二百四十五年簽署的。
+
+DONALD J. TRUMP
+
+唐納德J·川普
+
+*翻譯：【JennyL】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
+
+0
