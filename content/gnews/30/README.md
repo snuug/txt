@@ -1,69 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美脫鉤- -華盛頓將十一家蘋果手機關鍵供應商列入黑名單
-`2020-07-26 07:22 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/276512/)
+## 【多語言圖文版】7月2日中共病毒疫情要聞快報
+`2020-07-26 08:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276541/)
 
-*新聞來源：Asian Review《日經亞洲評論》；作者：Lauly Li, Cheng Ting-Fang and Kenji Kawase；發佈時間： 2020年7月21日*
+[7.2-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075659/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075659/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-*翻譯/簡評：Beicy-數學老師；校對：leftgun；審核：InAHurry；Page：拱卒*
+[7.2-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075702/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075702/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-簡評：
+[7.2-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075706/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075706/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-中美脫勾正在加速運行中，華盛頓又將11家中共國科技公司列入黑名單。這篇新聞報導重點介紹了蘋果手機的關鍵供應商，歐菲光集團(O-Film) 的一些背景信息: 侵犯人權，對維吾爾族少數民族強制性勞役; 依靠政府大量補貼，超低價格搶占國際供應鏈市場。從中，我們也看到了蘋果公司只看利潤，維護中共國血汗工廠的醜惡嘴臉。
+[7.2-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075709/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075709/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-正如郭文貴先生反复警醒我們的: 美國一些企業賺取髒錢，無視CCP對中國人民的殘酷剝削與鎮壓，其雙手粘滿了鮮血。全世界只有重拾信仰，而不是金錢至上，才能拯救我們自己。
+[7.2-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075713/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075713/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
 
-##  **中美脫鉤- -華盛頓將蘋果手機關鍵供應商列入黑名單** 
+[7.2-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075716/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075716/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-**歐菲光(O-Film)等11家公司被指控參與對維吾爾族少數民族強制性勞役**
+[7.2-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075724/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075724/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-[!\[\](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/1c8052fc-0b3d-4089-9a6f-79f5f6193145.jpg?asset_id=4f0b0504-b298-4a61-9086-20a8ddd96d64&amp;img_etag=%22c37da78cadcb7d41960d352ad7cf87e7%22&amp;size=2560)](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/1c8052fc-0b3d-4089-9a6f-79f5f6193145.jpg?asset_id=4f0b0504-b298-4a61-9086-20a8ddd96d64&amp;img_etag=%22c37da78cadcb7d41960d352ad7cf87e7%22&amp;size=1024)蘋果供應商歐菲光(O-Film)是最近被列入美國貿易黑名單的11家中國公司之一。 ©路透社
-
-台北/香港報導—- 華盛頓已將一家蘋果手機的關鍵供應商列入了黑名單，作為其最近對中共國科技公司打擊行動的一部分，此舉預計將動搖電子產品消費供應鏈，並加速全球兩個最大經濟體之間的繼續脫鉤。
-
-攝像頭和触摸模塊供應商歐菲光集團(O-Film Group)是周一被美國商務部列入實體名單的11家中國公司之一，該公司涉嫌侵犯了中國維吾爾族少數群體的人權。在深圳上市的歐菲光是電子消費和汽車供應鏈中的後起之秀，為包括微軟，惠普，戴爾，通用汽車，亞馬遜和蘋果在內的眾多美國公司提供產品。它的客戶還有三星電子，華為技術，Oppo和索尼。
-
-[!\[\](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/ec5b1376-f7b4-40f4-a292-c423f841ac4f.jpg?asset_id=8b8a4dec-4238-42ed-8afb-51b95bc676fa&amp;img_etag=%22ddafee90d46e7d7ac72e383e82604f77%22&amp;size=2560)](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/ec5b1376-f7b4-40f4-a292-c423f841ac4f.jpg?asset_id=8b8a4dec-4238-42ed-8afb-51b95bc676fa&amp;img_etag=%22ddafee90d46e7d7ac72e383e82604f77%22&amp;size=1024)歐菲光集團的用戶
-
-但是，美國商務部已點名歐菲光(O-Film) 在南昌的子公司參與了對維吾爾族和中國西部其他穆斯林少數民族的強制性勞役。如果要獲取美國技術，添加到“實體列表”中的公司必須申請特殊許可。美國政府宣布上述消息後，歐菲光(O-Film) 股價週二在深圳下跌近4％，而當天整體市場上漲0.65％。
-
-週一被列入實體名單的另外兩家公司—- 潭源科技(Tanyuan Technologies) 和KTK集團都在上海上市, 也都是全球電子消費供應鏈的一部分。潭源科技生產用於智能手機，平板電腦和筆記本電腦的散熱材料，而KTK已涉足印度的智能手機生產。
-
-[!\[\](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/a0d7d19b-76f6-4d6d-abc5-6fc49ac27ad0.jpg?asset_id=ebc4f2be-d6f2-4474-b8f1-c2d5b1d04737&amp;img_etag=%229cea272cacfed7f591622021eeaefbb4%22&amp;size=2560)](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/a0d7d19b-76f6-4d6d-abc5-6fc49ac27ad0.jpg?asset_id=ebc4f2be-d6f2-4474-b8f1-c2d5b1d04737&amp;img_etag=%229cea272cacfed7f591622021eeaefbb4%22&amp;size=1024)歐菲光在中共國的分佈
-
-市場觀察家認為: 華盛頓的最新舉動可能會極大地影響跨國公司和美國公司對供應商的選擇，從長遠來看甚至會改變科技供應鏈的競爭格局。儘管從法律上講，只要商業活動不涉及美國技術的出口或再出口，美國公司並沒有被禁止從黑名單上的公司進行採購。
-
-[!\[\](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/13b441a6-94c2-4285-8b4e-380bf3669a87.jpg?asset_id=3761d9c1-82f7-485a-915b-2691b2ee7050&amp;img_etag=%225978cb48b970a23433ab815fd9a5dd55%22&amp;size=2560)](https://spark.adobe.com/page/eQWFHaz8PbRS7/images/13b441a6-94c2-4285-8b4e-380bf3669a87.jpg?asset_id=3761d9c1-82f7-485a-915b-2691b2ee7050&amp;img_etag=%225978cb48b970a23433ab815fd9a5dd55%22&amp;size=1024)歐菲光在世界的分佈
-
-台灣經濟研究所智能手機和供應鏈高級分析師邱世芳(Chiu Shih-fang) 在接受《日經亞洲評論》採訪時說：“美國的舉動再次強調了美國公司在長遠上應減少與中共國公司的交往。 科技公司今後在與被美國政府列入黑名單的企業繼續業務關係時，不得不首先權衡風險。”
-
-歐菲光(O-Film) 成立於2002年，於2017年成為蘋果供應鏈的一部分，最初是為iPad提供支持，後來又為iPhone提供支持，這證明了它可以滿足這家加利福尼亞公司對質量的嚴格要求。此後，歐菲光(O-Film) 已成為領先技術供應商的強大競爭對手，這些技術供應商包括富士康旗下的日本夏普公司(Sharp), 相機模塊領域的LG Innotek, 以及台灣觸摸屏模塊組件的TPK-Holding 。湯森路透（Thomson Reuters）的數據顯示: 該公司的市值約為人民幣515億元（合73.6億美元），遠高於夏普的59.5億美元。
-
-蘋果公司發言人告訴日經新聞：“蘋果致力於確保我們供應鏈中的每個人都享有尊嚴並得到尊重。當我們從今年早些時候得知ASPI的指控時，我們立即採取了進一步的行動，並開始與供應商進行詳細調查。我們沒有發現在蘋果生產環節上有任何強迫勞動的證據，而且我們計劃繼續監察這一問題。”
-
-蘋果公司發言人說：“我們與歐菲光(O-Film)合作已經有好幾年了，並定期對其工廠進行詳細審核。最近，我們於3月向其生產部門派遣了獨立的第三方調查團隊，而且在6月和7月進行了額外的突擊審核。這些團隊調查了員工僱用的實際情況，核實了員工文檔，並以當地語言對工人進行了廣泛的獨立採訪。”
-
-根據歐菲光(O-Film) 官方網站上的新聞稿，蘋果公司首席執行官蒂姆·庫克（Tim Cook）於2017年12月訪問了歐菲光(O-Film) 的一家工廠，並讚揚了該公司的技術專長和工作文化。該新聞稿援引庫克的話說，蘋果“未來將和歐菲光(O-Film) 建立更緊密的合作關係”。
-
-廣發證券(GF Securities) 的技術分析師Jeff Pu說：“多年來，歐菲光(O-Film) 已成為蘋果公司至關重要的相機模塊供應商。歐菲光(O-Film) 可以告訴主要客戶蘋果公司，其生產線不涉及強迫勞動。但是被加入美國貿易黑名單仍可能影響其與蘋果公司等美國客戶的未來業務往來，以及將來的訂單份額。”
-
-Pu表示，歐菲光(O-Film) 正在為蘋果公司即將推出的5G手機提供前端攝像頭模塊和雙攝像頭模塊，並與韓國的Cowell，夏普和富士康分享了這一訂單。
-
-根據蘋果公司在2019年發布的最新供應商名單，向蘋果公司供貨的四家歐菲光(O-Film) 公司的設施中有三家位於南昌，而該公司被列入黑名單的子公司就在南昌。目前尚不清楚該子公司是否經營著為這家總部位於Cupertino的科技巨頭提供產品。
-
-像許多其他中共國的科技公司一樣，例如潭源科技(Tanyuan Technologies) 和京東方科技(BOE Technology) ，歐菲光(O-Film) 收到了中央和地方政府的大力補貼。該公司於7月1日表示已從深圳市政府獲得了3600萬元人民幣的補貼，而在6月4日，公司宣布會在合肥市地方政府對土地，基礎設施和資金的支持下，在那裡建設3D光學傳感研發中心。
-
-儘管歐菲光(O-Film) 在供應鏈中的排名有所上升，但其淨利潤從2017年進入蘋果供應鏈時的8.23億元人民幣下降至去年的5.1億元人民幣，降幅近40％。去年12月，該公司因未準確披露其財務報表而受到深圳證券交易所的處罰。儘管如此，該公司最近仍被公認為是2019年深圳市光明區傑出貢獻企業之一。
-
-潭源科技(Tanyuan Technologies) 的主要客戶是三星，華為，Vivo和Oppo。去年，該公司淨虧損為4090萬元人民幣，原因是該公司擴展了業務，開始開發可用於處理5G手機的新材料。
-
-與此同時，KTK集團正在延遲在印度開始生產智能手機的計劃。該公司表示其計劃在印度項目上花費9880萬美元，而且位於新德里以外工廠的基本建設已經完成，但運營開始已從2020年第二季度推遲到第三季度。 KTK指責冠狀病毒大瘟疫對印度計劃的打擊尤其嚴重。此外，印度和中共國之間的緊張局勢加劇，包括最近的致命邊界衝突，也造成了這一延遲。
-
-歐菲光(O-Film)，潭源科技(Tanyuan) 和KTK集團沒有立即回應日經新聞的評論請求。我們還與微軟公司(Microsoft)，惠普公司(HP)，戴爾電腦(Dell) 和亞馬遜(Amazon)進行了聯繫，但截至發稿時未得到回應。
-
-[原文鏈接](https://asia.nikkei.com/Business/China-tech/Washington-blacklists-key-Apple-supplier-amid-US-China-decoupling)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/eQWFHaz8PbRS7/)
-
-0
+1
