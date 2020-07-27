@@ -1,33 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金正恩首次承認朝鮮有疑似中共病毒感染病例
-`2020-07-26 10:36 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276714/)
+## 【多語言圖文版】7月4日中共病毒疫情要聞快報
+`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26102728/Picture-1-164.png)圖片來源： [News 95.7](https://www.news957.com/world/2020/03/06/north-korea-ends-quarantine-of-some-foreigners-in-virus-move/) 
-《紐約時報》駐該國韓國首爾記者7月25日報導，朝鮮金正恩週日宣布國家進入“最高”緊急狀態，原因是在與韓國接壤的開城地區發現了“疑似”中共病毒的感染病例。這是朝鮮政府首次公開承認該國可能存在中共病毒感染病例。
+[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-**朝鮮開城發現中共病毒疑似病例**
+[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-據朝鮮官方中央通訊社週日報導，一名三年前叛逃到韓國的朝鮮人在上週日秘密返回朝鮮開城後，被發現”疑似感染了惡性病毒”，朝鮮中央通訊社因此發布了高度警戒。朝鮮新聞社稱，在進行了多項檢測後，衛生部門將此人和其接觸者，以及最近5天到過開城的人都進行了隔離。朝鮮官方沒有透露感染者的身份，稱其可能是在韓國感染的病毒，但韓國政府沒有立即對此作出反應。
+[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-據朝鮮方面消息稱，他們正在調查一個軍事單位，三年前該單位曾有人成功偷越邊境叛逃到韓國，而這名叛逃者上週日非法越境回到朝鮮。朝鮮稱，他們計劃“進行嚴厲的懲罰並採取必要措施”。自上世紀九十年代初以來，已有3萬多朝鮮人逃往韓國。但有些人未能適應韓國的生活又逃回了朝鮮。不過，要成功越過世界上武裝最嚴密的朝韓邊境脫逃案例還是很少的。
+[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-**金正恩宣布** **“** **緊急狀態** **”**
+[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
 
-從朝鮮方面的反映來看，這次感染情況非常嚴重。金正恩在周六召開的工人黨政治局緊急會議上承認他的國家可能首次爆發中共病毒。引用金正恩的話：“發生了惡性病毒進入我國的危急情況。” 同時，金正恩宣布開城周圍進入”緊急狀態”，並下令全國啟動最高應急系統，並發布最高警報。朝鮮新聞社稱，金正恩在周五在接到有關情況匯報後立即採取了先發製人的措施，完全封鎖開城，隔離各地區。
+[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-據朝鮮媒體報導，朝鮮負責疾病控制高級官員參加了金正恩週六的政治局會議，全國各地的政府和高級官員也通過視頻參加了會議。金正恩命令他們”以無限的責任感、忠誠和奉獻精神”對抗中共病毒的傳播。
 
-**朝鮮至今未正式承認其國內有中共病毒感染病例**
 
-儘管金正恩宣布了緊急狀態並承認有惡性病毒感染髮生，但是直到現在，這個世界上最孤立的國家仍未官方正式承認該國有中共病毒感染病例的發生，而外界對朝鮮的說法存在很大的質疑，許多人擔心中共病毒疫情實際已經在朝鮮爆發。
-
-評：雖然朝鮮是最早對中共國封鎖邊境的國家，但由於長期的國際制裁和封鎖，朝鮮極度缺乏醫療救助設施和用品，加上朝鮮金家一直以來的暴力統治，外界不得不擔心朝鮮人民如何在中共疫情肆虐的情況下得到及時有效的救助。據之前無法證實的消息，朝鮮處理感染病例的手段就是直接對病患處以極刑。我們只能為生活在這個毫無人權的獨裁國度的朝鮮人民默默祈禱，希望真的不要有中共病毒的大爆發。
-
-[原文鏈接](https://www.nytimes.com/2020/07/25/world/asia/north-korea-coronavirus-kim-jong-un.html)
-
-翻譯報導：Sarathecat 
-校對整理：晴天小螞蟻
-
-0
+1

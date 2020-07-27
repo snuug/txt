@@ -1,21 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月4日中共病毒疫情要聞快報
-`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
+## 全球滅共已集結完畢，馬上行動
+`2020-07-26 19:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/277052/)
 
-[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+喜馬拉雅加拿大農場薇文
 
-[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
-
-[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
-
-[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
-
-[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
-
-[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+校對整理：熊媽媽
 
 
 
-1
+**江城子•庚子年全球滅共**
+
+風雨千年山河長，上乏道，傷民邦。
+
+馬列侵攘，肆虐任共黨。
+
+造疫尤甚禍四方，百族殤，問興亡？
+
+霹靂庚子震穹蒼，驚雷響，魔難狂。
+
+盤古天罡，勢破藍金黃。
+
+三年爆革何論量？全世界，斬夜王！
+
+
+
+中共暴政之惡已昭然若揭！爆料革命之火已在全球點燃！
+
+值此新中國聯邦全球農場反抗中共聯動遊行即將開始之際，喜馬拉雅加拿大農場獻詞一首，為全球遊行戰友壯行！喝彩！
+
+各位新中國聯邦的戰友，全球聯動大遊行已集結完畢，馬上就要開始了，讓我們再次見證歷史時刻。
+
+為了正義，為了真正的自由、民主、法治，為了我們的後代，行動、行動、行動！ ！ ！
+
+0
