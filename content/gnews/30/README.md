@@ -1,21 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月2日中共病毒疫情要聞快報
-`2020-07-26 08:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276541/)
+## 中共押注西方社會的腐敗
+`2020-07-26 10:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/276685/)
 
-[7.2-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075659/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075659/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+*新聞來源：《The Times》*
 
-[7.2-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075702/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075702/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+*作者：Matthew Syed*
 
-[7.2-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075706/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075706/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+*發佈時間：2020年7月19日*
 
-[7.2-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075709/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075709/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+*翻譯/簡評：cathy r*
 
-[7.2-每日要闻-西语-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075713/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075713/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD-Spanish.pdf)
+*校對：Beicy-數學老師*
 
-[7.2-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075716/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075716/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+*審核：InAHurry*
 
-[7.2-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075724/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26075724/7.2-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+*Page：拱卒*
 
-1
+簡評：
+
+對於中共國不斷增強它對西方民主國家進攻姿態，西方國家的知識份子開始思考是什麼讓中共如此地有恃無恐。他們開始反思，自己社會的腐敗—-包括政府的公然造假，公民信仰的丟失，和民主制度的破壞，讓中共國看到了“希望”，也找到了衝擊民主自由的國際秩序的著力點。
+
+郭文貴先生多少次提醒世界: 我們人類已經到了毀滅的最後關頭。人類自救的唯一方向是重拾信仰，走正道主義。而消滅中共，在地球上徹底剷除共產主義，是我們-崇尚自由的人們的共同的任務。
+
+小花絮：本文作者不僅是英國著名的新聞記者，他還是英國的兵乓球冠軍。多次代表英國出戰世界級兵乓比賽。相信他對中共國並不陌生。
+
+
+
+##  **習押注西方的衰落** 
+
+
+
+**腐敗的程度如此之深，我們甚至看不到。但我們的敵人知道。**
+
+週四，財政研究所的保羅·約翰遜分析了救世主一樣的里希·蘇納克的支出計劃。他的分析讀起來很有趣。他發現，大肆宣揚的55億英鎊的“羅斯福式”注資，並不像看上去的那樣。通過查看細節，約翰遜發現那隻是一個會計騙術，一個統計假象。那隻是讓資金從一個地方流向另一個地方，或者，正如他所說，一種“其實為零”的增長。他發現其他一系列“承諾”也是如此。
+[!\[\](https://spark.adobe.com/page/voe4SExqXByDY/images/ebbf4bd7-3cf5-47f7-94a0-ced8025954b6.jpg?asset_id=7b6045c1-4f09-4f9e-a47d-d54f7de3863b&amp;img_etag=%225d47b0284ba386b63e82e2bde27a4762%22&amp;size=2560)](https://spark.adobe.com/page/voe4SExqXByDY/images/ebbf4bd7-3cf5-47f7-94a0-ced8025954b6.jpg?asset_id=7b6045c1-4f09-4f9e-a47d-d54f7de3863b&amp;img_etag=%225d47b0284ba386b63e82e2bde27a4762%22&amp;size=1024)
+這件事之所以讓我震驚，不是因為分析報告所說的，（如果正確的話）關於政府的刻意欺騙，而是因為我們對分析報告內容的反應。有些報紙根本沒有報導約翰遜(Johnson)的主張。 BBC的主要報導也都迴避了它，據我所知，ITV也迴避了報導。坦白說，誰能怪他們？欺騙已經變得如此普遍，如此順理成章（想想以前的預算計劃，許多都曾包含了固定形式的掩飾與哄騙），以至於欺騙已經融入在了背景中。就像一種在宿主群體中流行的病毒一樣，我們幾乎不再注意到它了。
+
+我提到這一點是因為我們正站在十字路口。我們可以籠統地稱之為“西方國家”和中共國之間的對峙被描述成了一場新的冷戰。我並不覺冷戰的說法得吸引人，但我不能否認習近平的共產黨和自由民主秩序之間正在進行一場具有歷史意義的戰鬥。與上一次，以核震懾策略和意識形態為中心的冷戰不同，這將是一場關於量子計算、人工智能和全球影響力的戰鬥。而一個令人驚醒的事實：這是一場西方可能會輸掉的戰爭。
+[!\[\](https://spark.adobe.com/page/voe4SExqXByDY/images/8320e884-9f89-43b4-abad-81f2cadb6b21.jpg?asset_id=818492ff-377c-4f64-a303-50f6dbfd928e&amp;img_etag=%22f14bba8c3de0790a98ef6d2ce6a72bd7%22&amp;size=1024)](https://spark.adobe.com/page/voe4SExqXByDY/images/8320e884-9f89-43b4-abad-81f2cadb6b21.jpg?asset_id=818492ff-377c-4f64-a303-50f6dbfd928e&amp;img_etag=%22f14bba8c3de0790a98ef6d2ce6a72bd7%22&amp;size=1024)
+我這麼說不是為了長中國共產黨的志氣，而是因為自由主義體系內部的腐朽已經很明顯。唐納德·川普(Donald Trump)不應該讓我們擔心（公平地說，他迅速發現了中共國的威脅），我們也不應該擔心他赦免了他的前顧問羅傑·斯通(Roger Stone)，或對這場大瘟疫的糟糕反應，或來到我們大西洋彼岸，與住房部長羅伯特·詹里克(Robert Jenrick)的鬧劇，或民主世界的100萬個其他醜聞。這甚至不是現代西方長期的短視主義，儘管這與中國製定面向2050年的戰略計劃形成鮮明對比。
+
+不，最能說明腐敗問題的標誌是我們對有些事幾乎不再關注——比如蘇納克(Sunak) 的分析報告；我們對腐敗太熟悉了，以至於聞不到腐爛的味道。在《羅馬帝國衰亡史》一書中，吉本(Gibbon)寫道：“當代人的眼睛幾乎不可能在公眾領域裡發現腐朽和腐敗。” 我認為他的觀點是無可爭辯的：最後發現制度衰退的是局內人，而局外人更容易發現腐敗。
+
+我認為，這有助於解釋中國共產黨越來越自信的原因。一些西方分析家對習近平對台灣的威脅態度、他在南海的操作以及與印度在喜馬拉雅邊境的小規模衝突表示驚訝。我們很容易就把這件事說成是帝國主義的過度擴張，一個想要成為獨裁者的虛榮。難道他沒有意識到中共國的製度是腐敗的，充滿矛盾的，背負著增長放緩的重擔嗎？
+[!\[\](https://spark.adobe.com/page/voe4SExqXByDY/images/1de66e92-8835-4ab0-90ba-5f193788195a.jpg?asset_id=ae626397-7025-4bc1-9495-3229ed6700d0&amp;img_etag=%221646c2bc01f82ee50198586aaba445c6%22&amp;size=2560)](https://spark.adobe.com/page/voe4SExqXByDY/images/1de66e92-8835-4ab0-90ba-5f193788195a.jpg?asset_id=ae626397-7025-4bc1-9495-3229ed6700d0&amp;img_etag=%221646c2bc01f82ee50198586aaba445c6%22&amp;size=1024)
+這裡有一個新聞：習近平對此再了解不過了。 (中共)政治局可能是盜賊集團，但它並不愚蠢。不， (中共)政治局成員認為全球擴張的時機已經成熟, 不是因為對自身實力的傲慢評價，而是出於對我們弱點的評估。就像(英國歷史學家)吉本(Gibbon) 研究羅馬帝國時一樣，中共發現了(西方的)腐敗。中共注意到劃時代的兩極分化，超現實戰爭的本質，以及許多西方人對自己的歷史和製度的日益輕視。他們認為這是一次逐步改變世界秩序的機會，以符合他們的利益而不是我們的。
+
+同樣的分析也適用於弗拉基米爾·普京(Vladimir Putin)的，一直在展示其外交政策的力量，並對西方目標進行黑客攻擊的俄羅斯，儘管這是一個經濟範疇案例；上週，它被指控試圖竊取新冠病毒疫苗研究並影響2019年大選。再一次，西方評論解釋這是由於俄羅斯的內部變化和普京總統認為自己是彼得大帝的個性。我建議不要用我們對他們的評估, 而是用他們對我們的評估來更好地理解(所發生的一切)。這位狡猾的前克格勃特工，像習近平一樣，看到西方秩序正在衰敗。
+
+讓我再次重複：當一個帝國正在衰敗時，局內人不再注意到的東西才是殺手。我們把憤怒都集中在房地產開發商獲得不正當收入或政府科學家違反規則。這些都很好。但同時我們不再注意到，正如吉本(Gibbon)所說的，“毒藥已經進入了系統的關鍵部位”：合法化的腐敗、政治和商業之間的勾結、為滿足特殊利益而製定的規則。按照作者弗朗西斯·福山(Francis Fukuyama)的說法，美國的稅法有一萬頁長，裡面有各種的甜心豁免，優惠和向利益相關者傾斜的交換條件。
+
+至於市場經濟，它們已在我們的眼皮底下僵化了。這些規則對局內人是如此有利，以至於新企業無法參與，阻礙了創新。在歐洲100家最有價值的公司中，沒有一家是在過去的40年裡成立的，這一點是作者馬特· 里德利(Matt Ridley)指出的。在美國，傳統運營商在主要指數中停留的時間越來越長。至於公司創辦率，18個西方經濟體中有16個正在下降。現在讓我們想想這一現象：1971年，華盛頓有175家註冊遊說公司。到2013年，這一數字已激增至12,000家，每年支出超過32億美元，並且整個西方世界都在復制這一趨勢。
+
+我當然不是在為俄羅斯或中國辯護。我可以花數千字來詳細描述他們的腐敗和可怕的鎮壓。我只是建議，了解他們行為的最好方法是像反射棱鏡一樣檢視我們的弱點。他們並不認為他們的行動是過分的。他們對西方秩序的衝擊從我們的內部腐敗著手，而我們也失去了獲得國際支持的能力。在後一點上，他們肯定是對的。在聯合國，英國在譴責強加給香港的安全法方面未能獲得支持，僅獲得26票。而53個國家支持中國，這是“一帶一路”倡議的早期回報。中國共產黨在這些國家投入了大量資金，獲得了越來越多的軟實力。
+
+我仍會把我的錢投注在自由民主上。我們有更開明的製度。但克服我們虛榮心的最好辦法是讓自己置身於其他國家的境地，無論是朋友還是對手，意識到他們都在用難以置信的眼光看著我們。正如心理學家對自戀者所說的，正如吉本(Gibbon)在幾個世紀以來所警告的：“我們需要像別人看待我們一樣看待自己。”
+
+[原文鏈接](https://www.thetimes.co.uk/article/xi-banks-on-the-decline-and-fall-of-the-west-kghxjzzxg)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/voe4SExqXByDY/)
+
+0

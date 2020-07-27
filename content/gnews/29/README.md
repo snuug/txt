@@ -1,21 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多语言图文版】7月3日中共病毒疫情要闻快报
-`2020-07-26 08:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276566/)
+## 國與國反制追蹤篇-美新聞雜誌在香港民調43%受訪者支持歐美制裁
+`2020-07-26 10:22 GM77` [轉載自GNews](https://gnews.org/zh-hant/276700/)
 
-[7.3-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081111/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+編撰：天使、文非、文錦、文肯尼
 
-[7.3-每日要闻-法文版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081115/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E6%96%87%E7%89%88-French.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26101910/1-84.jpg)
 
-[7.3-每日要闻-韩语版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081119/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E8%AF%AD%E7%89%88-Korean.pdf)
+圖片來源：端傳媒
 
-[7.3-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081124/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+美國新聞雜誌《Newsweek》在港版國安法生效後，在香港進行民意調查，結果顯示，38%港人認為美國對香港是威脅，認為中國威脅香港的人也有37%。整體而言，43%受訪者支持美國等西方國家制裁香港和中國，28%人表示反對，22%不置可否。至於國際制裁能否改善目前情況，則意見分歧，40%人相信有效，認為無效的受訪者也有40%。
 
-[7.3-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081128/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
+《Newsweek》委托英國策略顧問公司Redfield & Wilton Strategies，進行問卷調查，於7月19日至21日，訪問了超過1,000名香港成年人居民，了解他們在港版國安法生效後的政治取態。 
 
-[7.3-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081132/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+結果顯示，38%受訪者認為美國政府對香港是威脅多於盟友；認為美國政府是盟友多於威脅的人有29%，21%受訪者認為美國非敵非友。而認為中國政府是香港威脅的受訪者有37%，34%人認為中國政府是香港盟友，16%人表示中國政府非敵非友。調查亦問到港人對英國的取態，33%認為英國是香港的盟友，29%人認為英國是威脅。 
 
-[7.3-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26081135/7.3-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+37%受訪者認為，香港與中國關系更緊密，有利香港長遠利益；認為與美國關系緊密、有利香港的受訪者有30%。9%人則表示，香港應該和中美以外的國家，發展更緊密關系；剩余未有表態的受訪者則表示不知道如何回答。 
 
-1
+被問到「一國兩制」是否面臨被蠶食危機，55%受訪者表示認同，32%表示不認同。49%受訪者表示，會繼續支持「一國兩制」，20%人支持「全面獨立」（full independence），12%認為北京應該直接管治香港。
+
+被問到港版國安法生效後，會否令他們更有安全感，34%受訪者表示認同，42%表示不認同。另外有34%受訪者表示，他們會在港版國安法下妥協，31%人則表示不會妥協。整體而言，有58%受訪者同意香港自由正受到威脅。 
+
+調查亦了解港人對年輕政治領袖的看法，33%受訪者對年輕政治領袖持正面評價，不滿年輕領袖的則有26%人，30%表示中立。過去，部分香港政客出席美國國會聽證會，講解香港局勢，36%認同有關做法，29%人表示反對，24%人表示沒有意見。 
+
+對於香港、中國將面臨更多來自英美等國制裁，38%受訪者認為做法會對他們的經濟和生活質素，構成負面沖擊，24%人不認同，29%人表示對制裁沒有太大感覺。
+
+**編者觀點：**
+
+香港作為中西方交流的橋頭堡，是中國內地對外的金融和貿易橋梁，是國際金融中心之一。金融市場在流動性和深度均位列世界前列：
+
+1. 外匯交易量世界第五
+2. 銀行對外資產世界第五
+3. 衍生工具交易量世界第五
+4. 股票市場（按市值計算）世界第七，亞洲第二
+5. 世界第四大黃金市場
+6. 全亞洲最大的銀行貸款中心和債券發行中心
+
+
+香港擁有完整的法律保障、國際認可的監管制度、先進的金融基礎設施、種類繁多的產品，具有競爭力的商業環境和具備專業素質的人才。中共出臺所謂《國安法》，是對法治的踐踏，其預示著香港的法治環境和商貿環境即將不復存在。歐美對香港和中共的制裁，是維護其利益的必要手段，是對此流氓法律的有力回擊。
+
+美金是一種全球暢通無阻的世界性貨幣。港幣是香港幾大銀行發行，流通於香港，采取和美元掛鉤的聯系匯率政策。也就是說，根據美金在香港的流通量來控制港幣的流通量，維持香港內部港元對美金的匯率的絕對穩定。因為港幣對美元實行的是固定匯率，匯率比價永遠不變。人民幣對美元卻是浮動匯率，匯價經常變動。
+
+中共充分利用港幣和美元掛鉤的特點，讓港幣成為洗錢工具，超額印刷兌換美元，對美元市場造成一定的不良影響。歐美制裁香港，將會斬斷港幣和美元的掛鉤。金融手段制裁港幣後，港幣便不能在國際上流通，價值會急速貶值，加上擠兌效應，港幣將徹底消失。
+
+香港人經過了一年的民主抗爭，不但沒有實現五大訴求，反倒迎來了“一國一制”，淪為了一個普通的大陸城市。西方看到了中共的無恥，要註定對中共的制裁必然起始於香港。香港需要鳳凰涅磐，浴火重生。我們堅信香港將很快迎來新生，成為東方的耶路撒冷。
+
+新聞來源：
+[https://tw.appledaily.com/international/20200724/4DA42X3ZLOGHPM3KUXMFUOV6H4/](https://tw.appledaily.com/international/20200724/4DA42X3ZLOGHPM3KUXMFUOV6H4/)
+
+0

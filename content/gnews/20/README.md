@@ -1,14 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 297：比爾·格茲談蓬佩奧國務卿的尼克松圖書館演講；中共與美合作政策從尼克松開始也從尼克松這裏結束
-`2020-07-26 10:09 GM77` [轉載自GNews](https://gnews.org/zh-hant/276668/)
+## 【多語言圖文版】7月4日中共病毒疫情要聞快報
+`2020-07-26 11:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/276797/)
 
-戰友之家新聞譯制組
-撰稿：GM64
+[7.4-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114203/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+
+[7.4-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114159/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+
+[7.4-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114206/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+
+[7.4-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114210/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+
+[7.4-每日要闻-西文版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114214/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E6%96%87%E7%89%88-Spanish.pdf)
+
+[7.4-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/26114218/7.4-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 
-
-比爾·格滋認為蓬佩奧國務卿的尼克松圖書館演講基本上說美國必須改變中共，否則美國將失去自由世界，向中國共產黨施加了最終的壓力。蓬佩奧國務卿演講的目標觀眾是中國百姓，希望中國百姓意識到美國是中國百姓的好夥伴，呼籲中國人民站起來反抗專制政權。其演講的另外一個元素是中共內部已經有了裂痕。
 
 1
