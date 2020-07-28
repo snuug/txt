@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 橋水基金創始人警示需迅速與中共脫鉤,美國“最大的敵人”是自己
-`2020-07-28 07:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/278217/)
+## 新西蘭也加入了暫停與香港引渡條約的行列
+`2020-07-28 08:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/278271/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/28072642/Picture-1-177.png)圖片來源：REUTERS/Brian Snyder 
-據《市場觀察》報導，隨著中美關係與中共病毒疫情進一步惡化，黃金期貨週一漲至每盎司1,937.20美元，漲幅2.1％；美國股市高開，美元跌至近兩年新低。
+![C:UsersSimonDesktop發.jpg](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/28081542/1-142.png)圖片來源： [https://www.dreamstime.com/stock-photo-puzzle-national-flag-hong-kong-new-zealand-concept-image98095728](https://www.dreamstime.com/stock-photo-puzzle-national-flag-hong-kong-new-zealand-concept-image98095728) 
+據路透社惠靈頓報導，新西蘭外交部長溫斯頓•彼得斯週二表示，由於中共國決定強行在香港實施《國家安全法》，新西蘭已暫停與香港的引渡條約，彼得斯在一份聲明中說： “新西蘭已不再相信香港的刑事司法系統完全獨立於中共國。”
 
-在一個電話會議中，橋水基金創始人，億萬富翁投資者雷·達利奧（Ray Dalio）警告說，中美衝突或演變為“資本戰爭”，這將傷害美元。
+儘管本月初香港居民舉行了大規模的抗議活動，並得到了西方國家的廣泛關注和支持，中共政府仍一意孤行，對前英國殖民地的香港實施了新的《國家安全法》，從而使這個自由的金融中心走上了專制的軌道。
 
-達利奧在福克斯的《週日早晨期貨》上說：“現實是，有貿易戰、技術戰、地緣政治戰和資本戰。按照法律規定，不在中共國投資，甚至不再保留債券，這些都是可能的，它們具有重大意義。政府必須制定政策來“很好地解決”這些難題。
+在這之前，澳大利亞，加拿大和英國都在本月初與香港暫停了引渡條約。美國總統川普也簽署法案結束了對香港的優惠經濟待遇。
 
-當被問及他是否擔心美元時，達里奧表示，美國才是美國“自己最大的敵人”，不能再繼續財政赤字，出售債券或加大印鈔，如果我們不共同努力，做出改變，提高生產力，賺取更多的收入，建立本幣的穩定性和良好的資產負債表，美國經濟將衰落。 ”
+新西蘭外交部長溫斯頓•彼得斯還表示，除了暫停引渡條約，新西蘭還將對出口到香港的商品和技術重新審查，尤其是涉及軍民兩用的商品和技術將被視同為出口至中共大陸，進而採取相應的管制措施。
 
-市場方面由於Google的母公司Alphabet，Amazon.com ，Apple和Facebook 都將於在周三和周四的24小時內公佈收益，因此科技股在本周備受關注。
+雖然中共使館代表發表了聲明，表示嚴重關切和強烈反對，但並沒有改變新西蘭的決定。人們還注意到，新西蘭的這一決定，是在中共國是其最大的貿易夥伴的背景下做出的，很有可能招致中共的貿易報復，可見新西蘭政府已經充分意識到來自中共的威脅遠遠大於其所帶來的經濟利益。
 
-英國政府週日將西班牙重新列入其不安全名單，隨著中共病毒病例的出現，其他歐洲國家也警告不要前往該國。從西班牙到達英國的旅行者現在必須隔離14天。
+[原文鏈接](https://www.reuters.com/article/us-hongkong-security-newzealand/new-zealand-suspends-extradition-treaty-with-hong-kong-idUSKCN24S2U1#:~:text=WELLINGTON%20%28Reuters%29%20%2D%20New%20Zealand,Winston%20Peters%20said%20on%20Tuesday.)
 
-受中共病毒影響，低成本航空公司Ryanair XE：RY4C的第一季度淨虧損為2.15億美元。
-
-軟件巨頭SAP週日宣布了計劃通過首次公開發行將其Qualtrics雲端軟件業務公開上市。這家德國公司在2018年以約80億美元的價格收購了Qualtrics。
-
-評：橋水基金的表態是華爾街在美國滅共之戰的風向標。相信越來越多金融大佬都會認清形勢，華爾街的站隊，是美國內部最激烈的博弈。不論是否心甘情願，金融界都將做出最後選擇。
-
-[新聞鏈接](https://www.marketwatch.com/story/billionaire-investor-ray-dalio-warns-us-china-conflict-could-become-a-capital-war-that-hits-the-dollar-2020-07-27)
-
-翻譯報導：明澈
-校對整理：人間四月
+翻譯報導：Hanstyle
 
 0
