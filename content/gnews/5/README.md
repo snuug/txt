@@ -1,50 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大衛生部批准瑞德西韋用於治療CCP病毒感染患者
-`2020-07-28 13:24 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/278535/)
+## GTV 的被打壓彰顯的是西方金融界的腐敗
+`2020-07-28 19:58 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/278726/)
 
-作者：喜馬拉雅聯盟加拿大農場文錦
+*作者：Giselle；審核：海闊天空；Page：拱卒*
 
-校對：熊媽媽
+在人類文明高度發達的今天，財產與自由，是現代社會公民權中最基本的權力。
 
+1955年，大法官費利克斯·法蘭克福曾說，昨天這個領域的熱點是“財產”，今天卻是“公民自由”，明天它又可能成為“財產”。
 
-[!\[肺炎疫情：美國買光治新冠藥物“瑞德西韋”招來歐洲國家不滿- BBC News 中文\](https://ichef.bbci.co.uk/news/410/cpsprodpb/11B64/production/_113184527_mediaitem113184526.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-53261078&amp;psig=AOvVaw3dWJoOmBgndBpUCLEbAwQe&amp;ust=1596043152444000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPj8o5y68OoCFQAAAAAdAAAAABAD)圖片來源：BBC 
-7月28日，加拿大衛生部批准使用瑞德西韋治療CCP病毒感染患者。這是加拿大衛生部批准的首個用於治療CCP病毒的藥物。該藥物用於治療因感染CCP病毒而致嚴重肺炎且需吸氧的患者。批准條件要求製藥商吉利德（Gilead）繼續監測其安全性和有效性。
+由此可見，財產與自由的緊密關係。
 
-加拿大衛生部批准12歲以上的成人和青少年可服用瑞德西韋。製藥商吉利德（Gilead）並未尋求將其授權用於孕婦或兒童。
+金融，作為一個國家、城市的金融“血脈”，本應高度服務於個人與團體，充分保障公民支配財富的自由，在法律的監管之下讓財富流通，盤活國民經濟，造福於國民。
 
-截至目前，美國，新加坡，日本，澳大利亞和歐洲已經有條件地批准了瑞德西韋的使用。
+然而，在中共多年的邪惡滲透之下，很多知名金融機構都感染了共產病毒，患上了“腦血栓”，國家安全受到嚴重損害。
 
-該藥物具有乾擾CCP病毒複製其遺傳物質的能力。在美國進行的一項研究中，瑞德西韋將恢復時間縮短了31％，平均恢復時間為11天，而接受常規護理的恢復時間平均為15天。
+美國第五大銀行富國銀行，擁有168年曆史，2013年起成為全球市值最大的銀行，市值高達約2360億美元。
+[!\[\](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/ce7136b4-c277-4323-a4d5-4b593934f03d.jpg?asset_id=cfe994e4-b7d5-4acc-b1f1-84e2d0f09aeb&amp;img_etag=%22c6e88e6217b98cc3dc092dc414c12873%22&amp;size=2560)](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/ce7136b4-c277-4323-a4d5-4b593934f03d.jpg?asset_id=cfe994e4-b7d5-4acc-b1f1-84e2d0f09aeb&amp;img_etag=%22c6e88e6217b98cc3dc092dc414c12873%22&amp;size=1024)美國第五大銀行富國銀行
+排名“福布斯全美百強銀行榜”第11位的美國華美銀行，專注於美國與大中華市場，總資產約459億美元，市值超過70億美元。
 
-7月28日，在[Warroom](https://gnews.org/zh-hans/276651/)第303期大約11分鐘10秒左右，著名的預防醫學博士Elizabeth Lee Vliet警告了關於瑞德西韋的副作用，“我們在推廣瑞德西韋時要非常小心，這是大型醫藥公司正在強力推廣的藥物，該藥抹殺了硫酸羥氯喹的功效和安全性。 瑞德西韋在治療晚期CCP病毒患者時，僅將恢復期縮短了幾天，更糟的是，它對肝和鼻竇系統有嚴重的副作用。”
+[!\[\](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/4f941a29-9c9c-4ca0-87ef-f67c5b9ff815.jpg?asset_id=f87defb6-5e97-49e3-8a33-a62409d490fa&amp;img_etag=%221f88cae15c8ad7582a811786cd8462c5%22&amp;size=2560)](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/4f941a29-9c9c-4ca0-87ef-f67c5b9ff815.jpg?asset_id=f87defb6-5e97-49e3-8a33-a62409d490fa&amp;img_etag=%221f88cae15c8ad7582a811786cd8462c5%22&amp;size=1024)華美銀行
 
-目前人口僅三千多萬的加拿大感染CCP病毒人數官方數據已突破11萬，有報導稱實際人數是官方數據的數倍。
+在Paypal 成熟發展了15 年之後，Stripe 站在了顛覆者的擂台上。進入2014年，stripe 就像一個音節一樣被媒體反复念唱，它是支付領域的新銳，以更快捷、更輕便的方式抓住了客戶的心。
 
-自CCP疫情爆發以來，加拿大政壇荒唐事頻出。媒體爆出原平面設計師、無任何醫學背景的衛生部長Patty Hajdu自己要求民眾因疫情禁止旅行，但她自己在疫情期間花費納稅人73,220加元在安省內乘七座飛機往返四次。來路不明的加拿大首席公共衛生官譚詠詩自疫情以來就亦步亦趨地追隨CCP傳聲筒WHO，即使被呼籲下台仍以種族歧視為擋箭牌賴著不走。深陷慈善醜聞、假公濟私的總理特魯多批准加拿大與有中共軍方背景的公司共研CCP病毒疫苗。
+[!\[\](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/48ac95cf-7e40-44db-8860-e63b2e894892.png?asset_id=35f607ec-ca53-4ac1-8ae5-6bc60449df92&amp;img_etag=%223e539404efa6451dda9661bc2eb0a9b0%22&amp;size=2560)](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/48ac95cf-7e40-44db-8860-e63b2e894892.png?asset_id=35f607ec-ca53-4ac1-8ae5-6bc60449df92&amp;img_etag=%223e539404efa6451dda9661bc2eb0a9b0%22&amp;size=1024) Stripe
 
-難怪加拿大良心醫學博士Kulvinder Kaur嘆息道：“我因目睹CCP病毒在加拿大擴散而心碎。信奉庸醫、無視科學的政府令我更絕望。無盡的政治、媒體謊言。政府侵犯了我們的權利和自由。醫生原本可挽救加拿大人，政府卻令其死亡。”
+Captial one 被業界譽為一個神奇的存在，創造過連續10年間資本回報率和利潤增幅率均超過20%的奇蹟。
 
-今日，加拿大衛生部批准昂貴的瑞德西韋進行治療，而媒體與政客們卻從不提物美價廉、連中共領導都在偷偷服用的防治CCP病毒的硫酸羥氯喹，對大聲疾呼的英雄科學家閆麗夢博士也充耳不聞。可見，加拿大要想有效控制CCP病毒疫情，還有很長的路要走。
+[!\[\](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/824304af-14d9-4524-9f6d-6da387a43959.jpg?asset_id=b8483425-4e83-4a4d-b181-3b97267945bd&amp;img_etag=%22db3ce6072bd84f4652cd632a6ad6f31a%22&amp;size=2560)](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/824304af-14d9-4524-9f6d-6da387a43959.jpg?asset_id=b8483425-4e83-4a4d-b181-3b97267945bd&amp;img_etag=%22db3ce6072bd84f4652cd632a6ad6f31a%22&amp;size=1024) Captial one
 
-參考鏈接：
+如今，這些美國知名金融機構深陷粗暴拒絕客戶投資、惡意中傷客戶投資對象——gtv等多項控訴，面臨眾多受害者指控。
 
-Health Canada authorizes remdesivir to treat severe COVID-19
+除了美國，澳洲四大銀行：NAB，CBA，ANZ，Westpac，也將一一被受害客戶提起訴訟。
 
-[Health Canada authorizes remdesivir to treat severe COVID-19](https://globalnews.ca/news/7224970/health-canada-remdesivir-coronavirus/)
+那麼，這個中共不惜動用國家機器，脅迫、勾兌全球這麼多家知名銀行誣陷、打壓的G-TV，究竟是一家甚麼樣的實體呢？
 
-Remdesivir authorized with conditions for the treatment of patients in Canada with severe COVID-19 symptoms
+G-TV是一個媒體平台，從媒體角度看，G-TV與美國breitbart、福克斯新聞網並無太大區別，唯一本質的區別是：G-TV是由郭文貴先生髮起爆料革命的滅共平台。
 
-[https://healthycanadians.gc.ca/recall-alert-rappel-avis/hc-sc/2020/73621a-eng.php](https://healthycanadians.gc.ca/recall-alert-rappel-avis/hc-sc/2020/73621a-eng.php)
+在中共70年極權統治下，14億中國人被屏蔽了雙目、雙耳，失去了了解真相的機會。中共通過防火牆，阻礙牆內民眾了解民主、自由、法治，14億中國人逐漸淪落成中共的奴隸，很多人失去了最基本的辨識能力。
 
-Health Minister Patty Hajdu’s multiple flights home during COVID-19 pandemic cost $73,000
+此外，中共還通過無處不在的大外宣以及被中共藍金黃滲透的西方主流媒體，對全世界進行洗腦，通過包裝過的精英主義、全球化，以經濟貿易、市場機會、工作機會、金錢美色等為誘餌，在全球投放共產病毒，試圖拉攏更多的力量加入其獨裁陣營，維護其獨裁統治。
 
-[https://nationalpost.com/news/national/hajdus-repeated-flights-home-during-pandemic-cost-73gs/wcm/63ea5876-4126-4365-ad458fd9e25b2f57?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1595904080](https://nationalpost.com/news/national/hajdus-repeated-flights-home-during-pandemic-cost-73gs/wcm/63ea5876-4126-4365-ad458fd9e25b2f57?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1595904080)
+G-TV作為一個滅共戰場，不斷揭發真相、向西方世界傳播真相、發出預警，從海航事件到香港事件再到冠狀病毒等一系列事件，已經對中共進行了致命打擊，讓中共極度恐懼。為了限制G-TV的發展壯大，中共對G-TV的攻擊、打壓，無處不在，不但指派特務潛伏，在網站里安置了各種bug, 還指使黑客一直對G-TV進行攻擊。
 
-Kulvinder Kaur MD
+G-TV即將面向戰友私募資金的消息發布之後，得到了眾多滅共勇士的積極響應，資金在很短的時間內就募集到位，數額遠超預期2000萬美元的25倍多！這個數據創造了世界金融史上的奇蹟！這個速度創造了世界金融史上的傳奇！這就是民意、這就是民心、這就是信任！
 
-> My heart is broken watching [#COVID19Canada](https://twitter.com/hashtag/COVID19Canada?src=hash&amp;ref_src=twsrc%5Etfw) unfold. Absolutely broken watching our govts embrace quackery & abandon science. Broken hearing endless political/media lies. Broken watching govts violate our rights/freedoms. Broken from govts allowing Cdns to die when we can save them
-> — Kulvinder Kaur MD (@dockaurG) [July 25, 2020](https://twitter.com/dockaurG/status/1287015622187061248?ref_src=twsrc%5Etfw)
+GTV私募事件令中共非常恐慌，潛伏在全球的黑暗勢力對這些知名銀行進行了脅迫、勾兌，通過造謠、打招呼、出通告等方式，無所不用其極地阻礙G-TV私募。
+
+除去私募投資，GTV史無前例地推出了目前可在G生態圈使用的G dollar。 G dollar一經推出，就受到海內外無數痛恨共產黨、熱愛自由人士的積極響應，源源不斷的購買請求指向了G dollar。 Gdollar 帶給CCP的絕對是驚悸， CCP以舉國之力對世界各地的銀行、金融機構許以重諾，在全世界圍堵世界各地的Gdollar 投資者。
+
+金融，作為一個國家生存不可或缺的部分，為社會提供輸血、造氧功能。中共通過對全球主流金融系統的滲透，操控各國內政，破壞各國金融秩序，已經形成了事實上的侵略。
+
+[!\[\](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/b3254f8d-d38a-4264-915b-b2ff5073a0b6.jpg?asset_id=403a4146-68db-4a1b-97d3-8cc5b8854a79&amp;img_etag=%2251be658e03f47ec33e3383d453fed7ca%22&amp;size=2560)](https://spark.adobe.com/page/gLdbGuzXm7aJG/images/b3254f8d-d38a-4264-915b-b2ff5073a0b6.jpg?asset_id=403a4146-68db-4a1b-97d3-8cc5b8854a79&amp;img_etag=%2251be658e03f47ec33e3383d453fed7ca%22&amp;size=1024)
+
+縱觀美國歷史，財產權是美國整個憲法制度的重要組成部分。 1897年，大法官約翰·哈倫就宣稱，“財產權利應被視為共和製的一個重要原則”。這個觀念來源於：自殖民地時期開始，美國殖民者就相信，財產所有權是個人免於政府強制和享受自由的經濟基礎。
+
+在共產病毒的侵蝕之下，全球的民主法治基石正在受到嚴重損害。 CCP通過對銀行的操控，阻礙公民合法投資行為，只是冰山一角。
+
+然而，在西方民主法治制度下，任何的勾兌、任何以原則為代價換取的利益都會受到法律的嚴懲。隨著中共極權體制的崩塌，與中共勾兌的更多黑暗真相，必將大白於天下。
+
+中共的恐懼就是中共的七寸。在此次GTV和Gdollar投資中，中共使出渾身解數阻止資本流向G生態圈，由此看出G生態圈對中共搖搖欲墜的銀行系統、一戳即破的金融系統的沉重的打擊。這個世界，資本永遠不會撒謊，資本永遠流向最安全、最有希望、最有實力的地方。從資本的流向，我們也看出了什麼是民心所向、什麼是希望所在。
+
+爆料革命小試牛刀，中共國就已經地動山搖，爆料革命必定勢如破竹，摧枯拉朽，將中共徹底丟進歷史的垃圾堆！
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/gLdbGuzXm7aJG/)
 
 0

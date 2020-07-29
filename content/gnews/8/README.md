@@ -1,52 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 貓咪也中招？英國首例動物貓咪被診斷出患有冠狀病毒
-`2020-07-28 12:05 GM77` [轉載自GNews](https://gnews.org/zh-hant/278451/)
+## 加拿大衛生部批准瑞德西韋用於治療CCP病毒感染患者
+`2020-07-28 13:24 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/278535/)
 
-暹羅貓被認為感染了主人的病毒，建議人們不要親吻寵物
+作者：喜馬拉雅聯盟加拿大農場文錦
 
-報道：Matthew Weaver、Jessica Elgot
+校對：熊媽媽
 
-收集：Cash2019
 
-直譯：文佑（荊棘不鳥）、Lori文噠
+[!\[肺炎疫情：美國買光治新冠藥物“瑞德西韋”招來歐洲國家不滿- BBC News 中文\](https://ichef.bbci.co.uk/news/410/cpsprodpb/11B64/production/_113184527_mediaitem113184526.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-53261078&amp;psig=AOvVaw3dWJoOmBgndBpUCLEbAwQe&amp;ust=1596043152444000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPj8o5y68OoCFQAAAAAdAAAAABAD)圖片來源：BBC 
+7月28日，加拿大衛生部批准使用瑞德西韋治療CCP病毒感染患者。這是加拿大衛生部批准的首個用於治療CCP病毒的藥物。該藥物用於治療因感染CCP病毒而致嚴重肺炎且需吸氧的患者。批准條件要求製藥商吉利德（Gilead）繼續監測其安全性和有效性。
 
-一只雌性暹羅貓成為英國第一只感染冠狀病毒的動物，促使人們警告主人不要親吻寵物或與它們分享食物。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/28120049/8-4.png)
-這只來自英格蘭南部的貓咪相信是在5月份從主人那裏感染了病毒。它最初被私人獸醫診斷為貓科皰疹。但作為格拉斯哥病毒研究中心對數百只貓咪進行的冠狀病毒篩查計劃的一部分，這只貓咪的樣本在6月份檢測出Sars-Cov-2陽性。
+加拿大衛生部批准12歲以上的成人和青少年可服用瑞德西韋。製藥商吉利德（Gilead）並未尋求將其授權用於孕婦或兒童。
 
-上周在Weybridge的動物植物健康實驗室進行的後續樣本檢測證實，這只貓也感染了Covid-19。
+截至目前，美國，新加坡，日本，澳大利亞和歐洲已經有條件地批准了瑞德西韋的使用。
 
-這只六歲的貓只出現了輕微的癥狀，包括呼吸急促和鼻腔分泌物，此後已經康復。但領導這項篩查計劃的格拉斯哥大學比較病毒學教授瑪格麗特-霍西建議貓咪主人 “要非常註意衛生”。
+該藥物具有乾擾CCP病毒複製其遺傳物質的能力。在美國進行的一項研究中，瑞德西韋將恢復時間縮短了31％，平均恢復時間為11天，而接受常規護理的恢復時間平均為15天。
 
-她說 “如果你有任何呼吸道癥狀，那麽一定要把你的咳嗽或噴嚏抓到一次性紙巾裏，並在處理你的貓之前洗手。不要親吻你的貓。不要讓貓咪和你睡在一張床上，也不要和貓咪分享食物。”
+7月28日，在[Warroom](https://gnews.org/zh-hans/276651/)第303期大約11分鐘10秒左右，著名的預防醫學博士Elizabeth Lee Vliet警告了關於瑞德西韋的副作用，“我們在推廣瑞德西韋時要非常小心，這是大型醫藥公司正在強力推廣的藥物，該藥抹殺了硫酸羥氯喹的功效和安全性。 瑞德西韋在治療晚期CCP病毒患者時，僅將恢復期縮短了幾天，更糟的是，它對肝和鼻竇系統有嚴重的副作用。”
 
-她對暹羅貓這種毛發短小的品種感染疾病表示驚訝。”我想也許毛絨絨的會更容易感染任何噴嚏或咳嗽飛沫。但你不能把它作為典型。”
+目前人口僅三千多萬的加拿大感染CCP病毒人數官方數據已突破11萬，有報導稱實際人數是官方數據的數倍。
 
-她強調，全世界只有少數貓咪的冠狀病毒檢測呈陽性，沒有證據表明這些動物會將疾病傳染給人類。
+自CCP疫情爆發以來，加拿大政壇荒唐事頻出。媒體爆出原平面設計師、無任何醫學背景的衛生部長Patty Hajdu自己要求民眾因疫情禁止旅行，但她自己在疫情期間花費納稅人73,220加元在安省內乘七座飛機往返四次。來路不明的加拿大首席公共衛生官譚詠詩自疫情以來就亦步亦趨地追隨CCP傳聲筒WHO，即使被呼籲下台仍以種族歧視為擋箭牌賴著不走。深陷慈善醜聞、假公濟私的總理特魯多批准加拿大與有中共軍方背景的公司共研CCP病毒疫苗。
 
-霍西說。”我們非常熱衷於確定一個英國的[病例]，因為這使我們能夠努力了解傳播。這是一個相當罕見的發現。我們一直對人畜共患疾病（一種可以在人和動物之間傳播的疾病）感興趣，看看病毒是否有任何進化。目前，我們的貓病毒與歐洲、美國和香港分離出的所有其他貓病毒非常相似。我們沒有得到任何證據表明病毒在感染貓之前已經發生了變化。”
+難怪加拿大良心醫學博士Kulvinder Kaur嘆息道：“我因目睹CCP病毒在加拿大擴散而心碎。信奉庸醫、無視科學的政府令我更絕望。無盡的政治、媒體謊言。政府侵犯了我們的權利和自由。醫生原本可挽救加拿大人，政府卻令其死亡。”
 
-4月初，英國獸醫協會在其主席多斯桑托斯在大流行病的形勢下建議英國大約1090萬只貓在流行期間應該留在家中，這引起了貓主人的恐慌。
+今日，加拿大衛生部批准昂貴的瑞德西韋進行治療，而媒體與政客們卻從不提物美價廉、連中共領導都在偷偷服用的防治CCP病毒的硫酸羥氯喹，對大聲疾呼的英雄科學家閆麗夢博士也充耳不聞。可見，加拿大要想有效控制CCP病毒疫情，還有很長的路要走。
 
-在其網站崩潰後，英國獸醫協會被迫澄清，只有自我隔離的主人應該盡可能將寵物留在室內，這提高了唐寧街的貓不得不進入隔離的前景。
+參考鏈接：
 
-多斯桑托斯說，陽性測試不應該引起警惕。她說 “這真的很重要，沒有人應該恐慌。世界各地有極少數寵物動物感染冠狀病毒的案例，沒有證據表明寵物會將冠狀病毒傳給主人。”
+Health Canada authorizes remdesivir to treat severe COVID-19
 
-她重復了獸醫的建議，即如果貓咪的病毒測試呈陽性或有癥狀，主人應盡可能將貓咪留在室內。
+[Health Canada authorizes remdesivir to treat severe COVID-19](https://globalnews.ca/news/7224970/health-canada-remdesivir-coronavirus/)
 
-當被問及10號是否應該樹立一個更好的榜樣，當鮑裏斯-約翰遜患有病毒時，唐寧街被封鎖，多斯桑托斯說。”我不知道拉裏唐寧街，但我的建議仍然是一樣的，如果你已經測試出冠狀病毒陽性或正顯示出跡象，如果可能的話，讓你的貓待在室內。我們不知道拉裏與首相有多少密切的接觸，只有在貓咪樂意的情況下，才應該把它們留在室內。”
+Remdesivir authorized with conditions for the treatment of patients in Canada with severe COVID-19 symptoms
 
-英國首席獸醫官克裏斯汀教授說。”這是一個非常罕見的事件，感染的動物只檢測到輕微的臨床癥狀並在幾天內康復了。
+[https://healthycanadians.gc.ca/recall-alert-rappel-avis/hc-sc/2020/73621a-eng.php](https://healthycanadians.gc.ca/recall-alert-rappel-avis/hc-sc/2020/73621a-eng.php)
 
-“沒有證據顯示寵物會直接將病毒傳染給人類。我們將繼續密切關註這一情況，如果情況發生變化，我們將更新對寵物主人的指導。”
+Health Minister Patty Hajdu’s multiple flights home during COVID-19 pandemic cost $73,000
 
-英格蘭公共衛生局醫療總監Doyle表示，這是在提醒人們在接觸動物後要洗手。”這是英國首例家貓檢測出冠狀病毒陽性的案例，但不應該引起人們的恐慌，”她說，”對這一病例的調查表明，感染是由人類傳播給動物的，而不是相反。目前，沒有證據表明寵物會將疾病傳染給人類。”
+[https://nationalpost.com/news/national/hajdus-repeated-flights-home-during-pandemic-cost-73gs/wcm/63ea5876-4126-4365-ad458fd9e25b2f57?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1595904080](https://nationalpost.com/news/national/hajdus-repeated-flights-home-during-pandemic-cost-73gs/wcm/63ea5876-4126-4365-ad458fd9e25b2f57?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1595904080)
 
-全球已有少量動物感染冠狀病毒的病例報道，包括紐約布朗克斯動物園的一些老虎和獅子。
+Kulvinder Kaur MD
 
-原文鏈接:
-[https://amp.theguardian.com/world/2020/jul/27/pet-cat-diagnosed-with-covid-19-uk-government-confirms](https://amp.theguardian.com/world/2020/jul/27/pet-cat-diagnosed-with-covid-19-uk-government-confirms)
+> My heart is broken watching [#COVID19Canada](https://twitter.com/hashtag/COVID19Canada?src=hash&amp;ref_src=twsrc%5Etfw) unfold. Absolutely broken watching our govts embrace quackery & abandon science. Broken hearing endless political/media lies. Broken watching govts violate our rights/freedoms. Broken from govts allowing Cdns to die when we can save them
+> — Kulvinder Kaur MD (@dockaurG) [July 25, 2020](https://twitter.com/dockaurG/status/1287015622187061248?ref_src=twsrc%5Etfw)
 
 0
