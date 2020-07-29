@@ -1,28 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共利用“四國會議”拉攏阿富汗和尼泊爾
-`2020-07-28 23:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/278903/)
+## 【世界多語言圖文】2020/07/17 CCP病毒每日疫情直播簡報
+`2020-07-29 06:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/279235/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/28234001/1-146.png)圖片：scmp.com 
-據《印度斯坦時報》28日報導，中共最近在四國會議上要求阿富汗和尼泊爾應多學習巴基斯坦。中共外交部長王毅與這三個國家進行了視頻會議，並要將阿富汗納入中歐經濟合作組織。
+戰友之家圖文摘要組及小語種組
 
-中共週一敦促阿富汗，尼泊爾和巴基斯坦開展“四方合作”，以克服中共病毒危機，並繼續開展“一帶一路”倡議（BRI）下的項目，包括中巴經濟走廊（CPEC）。
+[Engish\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055014/Engish_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055014/Engish_0717_CCP_Virus_Updates.pdf)
 
-在印中邊界僵持背景下，由中共舉辦的視頻會議討論了中共病毒大流行。鑑於印度目前與尼泊爾的關係緊張，這次會議可能與新德里的外交政策有關係。
+[French\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055047/French_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055047/French_0717_CCP_Virus_Updates.pdf)
 
-中共說，四國應“充分發揮地緣優勢，加強四個國家與中亞國家之間的交流與聯繫，維護區域和平與穩定”。還說，四個國家應“積極推動中巴經濟走廊和喜馬拉雅跨境三維互聯網絡的建設，支持將CPEC擴展到阿富汗，進一步釋放區域互聯紅利”。
+[German\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055120/German_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055120/German_0717_CCP_Virus_Updates.pdf)
 
-中共外交部的聲明表明，中共正在尋求與南亞三個國家建立更長期的合作機制，而不僅僅是共同努力應對這一大流行病。對於尼泊爾來說，這是一個傳遞信息的機會，因為它在與印度關係緊張的情況下與中共的關係日益緊密。
+[Japanese\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055155/Japanese_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055155/Japanese_0717_CCP_Virus_Updates.pdf)
 
-至於巴基斯坦，中共拿巴基斯坦和中共之間“鐵兄弟”關係舉例，在強調睦鄰是“好運”後，呼籲尼泊爾和阿富汗效仿中巴合作抗擊大流行，從中巴合作中學習經驗，阿富汗和尼泊爾應該擴大參與四個國家對中共病毒的聯防聯治機制，恢復經濟活動和人員往來，根據反流行病合作原則，這四個國家應盡快開闢人員和後勤的“快速通道”和“綠色通道”。還應加強邊境地區的聯合預防和控制，並製定共同認可的關於流行病通報，預防，管理和控制的標準作業程序，作為大流行後恢復和經濟發展的一部分，其他國家應堅定地促進[“一帶一路”](https://gnews.org/267082/)共同建設，促進關鍵合作項目的恢復，保持產業和供應鏈的穩定，並在數字領域創造新的經濟增長點。
+[Korean\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054826/Korean_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054826/Korean_0717_CCP_Virus_Updates.pdf)
 
-中共與巴基斯坦的相互利用關係，可閱讀本網站的其他文章，例如[《援助口罩是內衣做的巴鐵也被中共坑爹!巴基斯坦主播報導氣炸：被騙了！ 》](https://gnews.org/zh-hans/162593/) 、 [《中共在支持巴基斯坦的恐怖組織嗎》](https://gnews.org/zh-hans/145104/) 。
+[Russian\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054908/Russian_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054908/Russian_0717_CCP_Virus_Updates.pdf)
 
-評：考慮到中共政權將穆斯林投入奧斯威辛式集中營，請巴基斯坦、阿富汗考慮清楚如何面對你們國家的穆斯林公民，考慮到中共在香港的暴政，尼泊爾也要考慮如何保證自己的安全，不要為了眼前的蠅頭小利受中共魔掌的控制。正如彭佩奧所說，每個國家都必須自己悟出如何保護自己的主權、如何保護自己的經濟繁榮以及如何保護它的理念和價值不被中共的觸角所染指。
+[Spanish\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054941/Spanish_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054941/Spanish_0717_CCP_Virus_Updates.pdf)
 
-[原文鏈接](https://www.hindustantimes.com/world-news/china-turns-to-pak-nepal-and-afghanistan-for-four-party-cooperation-in-south-asia-excludes-new-delhi/story-WC8Gc59RSXBEsbIGx0rGGK.html)
-
-譯者：CPA Jim
-
-0
+1

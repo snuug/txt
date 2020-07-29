@@ -1,7 +1,7 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣播: 2020/7/28 郭文貴先生直播
-`2020-07-28 21:00 GM07` [轉載自GNews](https://gnews.org/zh-hant/278790/)
+## 老班長伐共檄文 -新中國聯邦抗議示威大遊行新西蘭站
+`2020-07-29 04:07 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/279045/)
 
-2
+0
