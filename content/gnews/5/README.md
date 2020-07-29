@@ -1,106 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我很小,但是我很特別&#8212; 小國丹麥無懼中共,堅定與盟友美國站在一起
-`2020-07-29 11:27 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279498/)
+## 司法部起訴“千人計畫”學者哈佛化學系前主任稅務欺詐
+`2020-07-29 11:34 GM31` [轉載自GNews](https://gnews.org/zh-hant/279513/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29110607/Picture-1-189.png)圖片來源：Thibault Savary/AFP （丹麥首相梅特·弗雷德里克森7月22號接見美國國務卿馬克蓬佩奧） 
-歐洲是被中共深度藍金黃的地區，在德法把控下的歐盟一直執行綏靖政策，但是有一個北歐小國丹麥卻脫穎而出，無懼中共，堅定表明立場與美國等滅共盟友站在一起，是除五眼聯盟之外美國最關鍵的盟友，丹麥被蓬佩奧國務卿讚賞為是美國的優秀夥伴和麵對全球挑戰時的主要盟友。此篇文章將分析丹麥是如何被藍金黃，又如何認清中共的無恥，最後選擇了與美國一起維護共同的自由民主價值觀。
+Department of Justice
 
-####  **派重量級人物出任大使，使各種手段藍金黃丹麥** 
+## 司法部
 
-針對美國彭佩奧國務卿7月22號對丹麥的成功訪問，中共國駐丹麥大使馮鐵廹不及待在丹麥《政治報》發表題為《警惕美國挑撥中丹關係》的文章。在分析他的文章之前，先稍稍分析一下這位愛好發文章愛上電視的馮鐵大使的簡歷。這位馮鐵先生可不是無名小職，他曾歷任中共駐澳大利亞聯邦大使館參贊，駐香港澳門台灣事務司參贊，外交部辦公廳副主任，駐澳門特別行政區特派員公署副特派員，香港澳門台灣事務司司長，直至在2019年5月突然調任丹麥替換原女大使鄧英（從其日程安排可見這位鄧英大使在位時的主要工作是接待國內各代表團來丹麥訪問）。從簡歷就可以看出馮鐵歷任對中共國有戰略意義的國家地區的外交職位，將這樣受到重用的人物出任小小丹麥王國絕對不是大材小用，中共一定是對丹麥有所圖謀，這一點從中共對丹麥的特殊投入也可以體現出來。 2019年4月4日，成都大熊貓“星二”“毛二”正式入住丹麥哥本哈根動物園，丹麥是少數被施以大熊貓外交的國家之一。丹麥雖小，但是一整套的特務組織一個都不缺，如果您打開： [https://www.hetong.dk/](https://www.hetong.dk/) ，出現以下的網頁：
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29110759/Picture-1-190.png)
-如此完整的統戰組織顯然需要大量投入。 2019年11月8號馮鐵在哥本哈根大學會見被授予榮譽博士的張喜華教授，張教授促成了中國首家丹麥研究中心於2017年的建立，該中心目的是深化和拓展中丹合作研究、語言教學和人才培養工作，培養**知華友華**的丹麥學子和學者。 （評：知華友華難道是“藍金黃“的別稱？）。而這個中心顯然是因為工作出色才得到馮鐵大使的重視。據Gnew文章（ [https://gnews.org/zh-hans/252092/](https://gnews.org/zh-hans/252092/) ）曾揭露：哥本哈根大學的研究人員參與調查新疆維吾爾族人的基因項目，而該項目的首席研究員尼爾斯·莫林（Niels Morling）與中共國“培育”了非常“有趣”的人脈關係，該名教授曾經擔任中共公安部的專家顧問。不知道是不是這個中心成功培養了這位知華友華的丹麥教授呢？再舉例，丹麥皇家音樂學院與中央音樂學院合作創辦了全球唯一一所音樂孔子學院。
+Office of Public Affairs
 
-####  **丹麥有什麼吸引著中共** 
+### 公共事務辦公室
 
-丹麥當底有什麼值得中共如此大的投入呢？統觀近年各類政治經濟和軍事文章，可以總結丹麥有幾個方面讓中共垂涎三尺：
+FOR IMMEDIATE RELEASE Tuesday, July 28, 2020
 
-- **中共在北極地區有著長期利益，關注的重點是軍事，資源和戰略** 。中共試圖將北冰洋轉變成如南中國海那樣充滿軍事化競爭的區域。如果看世界地圖，格陵蘭島是北美大陸的一部分，也是美國最重要的軍事基地之一，圖勒空軍基地在這裡協助攔截有關導彈發射的信息，可確保美國的自衛能力；第二，格陵蘭島儲藏著大量未開采的稀土資源；第三，全球變暖為北極新的海上航線和自然資源的獲取鋪平了道路。這就是為什麼中共近年來集中關注北極。自2013年以來，中共處心積慮在北極理事會中佔有了觀察員地位，並稱自己為鄰北極國家。
+2020年7月28日 立即發佈
 
+**Harvard University Professor Charged with Tax Offenses**
 
-- **藉口幫助丹麥發展電信基礎，包裝華為成私營企業，在丹麥建立華為5G基地** 。郭文貴先生三年多的直播已經無數次提到，當中共有地域政治擴張的野心，華為作為解放軍永遠都是沖在最前面架設數據網絡的一帶一路。早在2007華為就在丹麥設立了公司，而自華為在丹麥成立10多年來，丹麥國家安全和情報機構PET持續發現華為辦公室經常有不明身份的工作人員，這些人員被華為謊稱為“遊客” 。
+### 哈佛大學教授被控逃稅
 
+**Dr. Charles Lieber was previously indicted on charges of making false statements to federal authorities regarding his participation in China’s Thousand Talents Program**
 
-- **利用丹麥科研技術作為中共作惡的“助手”** 。第一，利用學術交流的方式，以資助或共同研究的方式，將研究成果作為侵犯人權奴役人民的應用。如突破科學底線進行生物基因研究，前述哥本哈根大學的研究人員參與調查新疆維吾爾族人的基因項目；奧爾堡大學的研究人員幫助中共監控巨頭海康威視開發可在社交媒體跟踪各種意見傳播的算法等。第二，丹麥先進的生物製藥技術早就令中共垂涎三尺，被稱為生物領域的華為的華大基因也早在2010年就將其研發中心設在丹麥。註冊公司為：BGI-Europe A/S。疫情中，華大基因同樣利用在丹麥深耕的關係，獲得了在歐洲國家自由銷售連40%正確率都不到的檢測試劑盒。 Gnew文章《華大基因—基因組界的華為》和路德訪談2020/7/21都揭露過華大基因的真相。
+**參與中國****“****千人計畫****”****的查理斯****·****利伯（****Charles Lieber****）博士因涉嫌之前向聯邦政府做出虛假陳述而遭起訴**
 
+The former Chair of Harvard University’s Chemistry and Chemical Biology Department was charged today in a superseding indictment with tax offenses for failing to report income he received from Wuhan University of Technology (WUT) in Wuhan, China.
 
-####  **美國與中共在丹麥的角力** 
+哈佛大學化學與化學生物學系前主任今天因涉嫌瞞報從中國武漢理工大學（WUT）獲得的收入，而被追加起訴書指控逃稅。
 
-早在1867年，當美國從俄羅斯購買阿拉斯加時，就曾經想購買格陵蘭，因為北極地區在地緣政治尤其在對抗俄羅斯方面極為重要。 1946年，時任美國總統杜魯門（Harry S. Truman）曾經向丹麥政府提出以1億美元收購格陵蘭的要約。當時的報價被拒絕，但是美國人被允許在島上維持軍事存在，美國隨後在1952年建立圖勒基地，今天的圖勒基地是美國建立導彈防禦系統的重要組成部分。時至今天，這世界第一和第二大經濟體圍繞著北極和5G，再次在丹麥展開了角力。特別是在川普執政之後。
+Dr. Charles Lieber, 61, was indicted by a federal grand jury in Boston on two counts of making and subscribing a false income tax return and two counts of failing to file reports of foreign bank and financial accounts (FBAR) with the Internal Revenue Service (IRS).  In June 2020, Lieber was indicted on two counts of making false statements to federal authorities.  Lieber was arrested on Jan. 28, 2020.
 
-**一對雌雄熊貓來到丹麥：** 2019年4月4號，丹麥民眾迎來了等待三年的大熊貓，他們給這對寶貝安排了由丹麥著名建築師設計師比格·英格斯（Bjarke Ingels ）設計的大型設施中，耗資1.6億丹麥克朗， 成為第十四個擁有熊貓的國家。
+現年61歲的查理斯·利伯博士，被波士頓聯邦大陪審團起訴，罪名是兩例製作和簽署虛假所得稅申報表，以及兩例未向國家稅務局（IRS）提交外國銀行和金融帳戶報告（FBAR）。2020年6月，利伯因向聯邦當局作兩項虛假陳述罪名而遭起訴，並於2020年1月28日被捕。
 
-**川普總統提出購買格陵蘭島** ：2019年8月中旬，在川普總統提出了購買格陵蘭島的希望，在被丹麥政府和格陵蘭島自治政府拒絕後，川普取消了9月份訪問丹麥的計劃。
+The superseding indictment alleges that Lieber served as the Principal Investigator of the Lieber Research Group at Harvard University, which received more than $15 million in federal research grants between 2008 and 2019. Unbeknownst to his employer, Harvard University, Lieber allegedly became a “Strategic Scientist” at WUT and, later, a contractual participant in China’s Thousand Talents Plan from at least 2012 through 2015.  China’s Thousand Talents Plan is one of the most prominent Chinese talent recruitment plans designed to attract, recruit and cultivate high-level scientific talent in furtherance of China’s scientific development, economic prosperity and national security.
 
-**丹麥首相聲明美國是丹麥最重要的盟友：**在拒絕川普總統買島出現外交危機後，丹麥首相於12月4號和川普在北約會議會面後鄭重聲明：我沒有體驗到丹麥和美國之間有任何衝突。我們是非常重要的伙伴，毫無疑問，美國是我們最重要的盟友。注意是最重要的盟友，沒有之一。並且丹麥在北約軍費開支上支持川普總統，同意分擔更多的比例。
+追加起訴書指稱，利伯擔任哈佛大學利伯研究小組的首席調查員，在2008年至2019年獲得了超過1500萬美元的聯邦研究經費。據指，在其雇主哈佛大學不知情的情況下，利伯成為武漢理工 大學的“戰略科學家”，後來至少在2012年至2015年期間，作為了中國“千人計畫”的簽約者。而“千人計畫”是中國最突出的人才招聘計畫之一，旨在吸引、收買和培養高層次科技人才，以促進中國科學發展、經濟繁榮和國家安全。
 
-**中共威脅法羅群島領導人** :自2015年以來，華為一直為法羅群島電信公司提供4G服務，2019年12月10日中共駐丹麥大使馮鐵威脅法羅群島首相、外交部長和財政部長，如果不與華為簽訂5G網絡建設合同，將拒絕與法羅群島簽署自貿協定。法羅群島和格陵蘭島都位於北極，也是丹麥的自治領地，人口5萬。但是這位中共大使威脅法羅領導人的錄音被洩漏給了媒體，導致其醜相百露。
+Under the terms of Lieber’s three-year Thousand Talents contract, WUT allegedly paid Lieber a salary of up to $50,000 per month, living expenses of up to $150,000 and awarded him more than $1.5 million to establish a research lab at WUT.  It is alleged that in 2018 and 2019, Lieber lied to federal authorities about his involvement in the Thousand Talents Plan and his affiliation with WUT.
 
-**你來我往的外交戰：**
+根據利伯三年的“千人計畫”簽約條款，據指，武漢理工大學向利伯支付高達5萬美元的月薪，高達15萬美元的生活費，並因他為武漢理工建立研究實驗室而獎勵他150多萬美元。據指，在2018和2019年，利伯向聯邦當局謊報他參與了“千人計畫”，以及其與武漢理工大學的關係。
 
-2020年5月13日馮鐵在丹麥重要時政門戶網站“議會”（Altinget）上發表題為《美國別拿中國說事以掩蓋其在格陵蘭的企圖》的署名文章。
+According to the superseding indictment, in tax years 2013 and 2014, Lieber earned income from WUT in the form of salary and other payments made to him pursuant to the Strategic Scientist and Thousand Talents Contracts, which he did not disclose to the IRS on his federal income tax returns.  The superseding indictment also alleges that Lieber, together with WUT officials, opened a bank account at a Chinese bank during a trip to Wuhan in 2012.   Thereafter, between at least 2013 and 2015, WUT periodically deposited portions of Lieber’s salary into that account. U.S. taxpayers are required to report the existence of any foreign bank account that holds more than $10,000 at any time during a given year by the filing an FBAR with the IRS.  Lieber allegedly failed to file FBARs for the years 2014 and 2015.
 
-2020年6月10日美國在格陵蘭島首都努克的領事館重新開放。 1953年美國在努克的領事館曾經關閉。
+根據追加起訴書，在2013和2014納稅年度，利伯根據“戰略科學家”和“千人計畫”，以工資和其他支付形式，從武漢理工大學獲得的收入未向國稅局的聯邦所得稅申報表進行披露。追加起訴書還指控，利伯在2012年前往武漢期間，與武漢理工大學的官員的陪同下，在一家中國的銀行開設了戶頭。此後，至少在2013年至2015年期間，武漢理工大學定期將利伯的部分工資存入該帳戶。美國納稅人必須向國稅局提交外國銀行和金融帳戶報告（FBAR），即在給定年份內不論何時，報告任何持有超過1萬美元的外國銀行帳戶。據指，利伯在2014年和2015年沒有提交外國銀行和金融帳戶報告（FBAR）。
 
-2020年6月19號蓬佩奧出席丹麥民主峰會，在會上列舉極權中共的累累罪行，號召歐洲各國在維護自由民主價值還是繼續容忍獨裁暴政之間作出選擇，鏗鏘有力地警告中共政權必須清楚，脆弱的不是民主，而是極權主義，民主終將獲勝。
+The charge of making false statements provides for a sentence of up to five years in prison, three years of supervised release and a fine of $250,000.  The charge of making and subscribing false income tax returns provides for a sentence of up to three years in prison, one year of supervised release and a $100,000 fine.  The charge of failing to file an FBAR provides for a sentence of up to five years in prison, three years of supervised release and a fine of $250,000.  Sentences are imposed by a federal district court judge based upon the U.S. Sentencing Guidelines and other statutory factors.
 
-2020年7月22號蓬佩奧成功訪問丹麥後，高度讚揚丹麥是美國的優秀夥伴和麵對全球挑戰時的主要盟友，美國政府高度讚賞丹麥為確保北極穩定和緊張局勢所做的工作。美國和丹麥無論是在北約，還是在北極地區，以及在共同捍衛民主價值方面，都有著密切的秘密合作。
+對作虛假陳述的指控，可判處最高5年監禁、3年監外看管和25萬美元的罰款。對製作和簽署虛假所得稅申報表的指控規定，最高可判處3年監禁、1年監外看管和10萬美元罰款。被控未提交外國銀行和金融帳戶報告的可判處最高5年監禁、3年監外看管和25萬美元的罰款。判決由聯邦地區法院法官根據《美國量刑準則》和其他法定因素作出。
 
-2020年7月27號馮鐵在蓬佩奧成功訪問丹麥後，廹不及待在丹麥《政治報》發表題為《警惕美國挑撥中丹關係》的文章，馮大使通篇都想混淆中國與中共的概念，把中國人民勤勞致富發展成世界第二大經濟體的功勞歸功於中共。顛倒黑白，在丹麥短短兩年的時間裡明明多次威脅丹麥政府，媒體和藝術家，卻紅口白牙說“我們不威脅任何人”。最可笑的是為華為辯護，稱華為在丹麥已有近15年的歷史，為丹麥電信通訊業的發展做出了巨大貢獻。華為應該同500多家丹麥在華企業一樣，受到公正和非歧視的待遇。最後這一句蘊含的威脅意味非常明顯，拿500家在華的丹麥企業當肉票啊！但中共這行將倒塌的政權任憑你馮大使能挽回嗎？美國和丹麥之間基於共同民主價值觀的聯盟關係豈是你馮大使有挑撥得了的？
+Assistant Attorney General for National Security John C. Demers; U.S. Attorney Andrew E. Lelling;  Joseph R. Bonavolonta, Special Agent in Charge of the Federal Bureau of Investigation, Boston Field Division; Leigh-Alistair Barzey, Special Agent in Charge of the Defense Criminal Investigative Service, Northeast Field Office; Philip Coyne, Special Agent in Charge of the U.S. Department of Health and Human Services, Office of Inspector General; and Kristina O’Connell, Special Agent in Charge of the Internal Revenue Service’s Criminal Investigations in Boston made this announcement.  Assistant U.S. Attorney Jason Casey of Lelling’s National Security Unit is prosecuting this case with the assistance of Trial Attorney David Aaron of the National Security Division’s Counterintelligence and Export Control Section.
 
-####  **丹麥民眾的覺醒** 
+負責國家安全事務的助理司法部長約翰·德邁爾斯，美國律師安德魯·萊林，聯邦調查局波士頓外勤司特工約瑟夫·R·博納沃隆塔，東北外勤辦事處國防刑事調查處特工利·阿利斯泰爾·巴澤，監察長辦公室美國衛生與公眾服務部特工菲力浦·科恩，以及波士頓國稅局刑事調查特工克莉絲蒂娜·奧康奈爾宣佈了此公告。萊林國家安全性群組的美國助理檢察官傑森·凱西在國家安全司反間諜和出口管制科審判律師大衛·亞倫的協助下起訴此案。
 
-- **丹麥對華為保持著足夠的警惕。**儘管丹麥不是五眼聯盟的成員，但作為北約成員國，丹麥可以得到美國共享的情況，以及丹麥情治部門自己調查的結果，可以相到應證實，使得丹麥對華為的所作所為保持著相對的警惕。丹麥《政治報》專門有一個專欄《Huawai i danmark》收集了自2019年1月以來的20多篇重要文章：
+The details contained in the charging documents are allegations. The defendant is presumed innocent unless and until proven guilty beyond a reasonable doubt in a court of law.
 
+起訴檔中所含細節內容為指控。除非在法庭上毫無疑義的確定其有罪，否則被告推定無罪。
 
-- **漫畫事件反映丹麥民眾一開始就對病毒來源的懷疑和對極權中共的鄙視。** 2020年1月27號丹麥報紙《日德蘭郵報》（Jyllands-Posten）星期一刊登了一幅將中共病毒作為中共國旗一部分的卡通畫。這幅畫影響力巨大，而且真值中共病毒大流行剛剛開始之際，提醒了全世界以致中共急敗壞，馮鐵頻頻出擊，一方面於1月30號也在《日德蘭郵報》發表署名文章，抨擊該報刊載辱華漫畫，綁架中國人民，稱漫畫是對中國人民的極大侮辱，同時威脅《日德蘭郵報》和漫畫作者向中國人民道歉。另一方面，煽動在丹的留學生和學者專家對丹麥輿論和政府以至於首相施加壓力，這當然遭到了丹麥首相的嚴辭拒絕，同時也遭到熱愛自由言論的丹麥民眾更猛烈的諷刺。
+[閱讀英文全文](https://www.justice.gov/opa/pr/harvard-university-professor-charged-tax-offenses)
 
+*翻譯：【Dlrow】 校對：【GM31】*
 
-- **丹麥成為首個在歐洲全境** **lockdown** **的國家：** 2020年3月11號起丹麥外交部改變旅行建議，不建議丹麥人出境去橙色國家，同時對進入丹麥的交通工具進行限制，所有教育機構的學生都被送回家，所有室內文化機構，圖書館，休閒設施等將關閉，所有不履行關鍵職責的公務員都被送回家，學校和日托設施將關閉。
-
-
-- **不懼中共威脅，支持香港並堅持與台灣政界的交往。**有在野黨領䄂親赴香港見證抗議活動，並在議會大廈前樹立香港抗議雕像，邀請香港抗議活動人士來丹麥。對台灣無論是前首相還是在野黨派與台灣政界一直保持互動。 2019年07年05 台灣外長吳釗燮獲丹麥前首相邀請赴丹麥演說，使新晉中共大使馮鐵顏面無光。 2020年6月19號在蓬佩奧出度丹麥民主峰會時丹麥專門邀請蔡英文總統在會上演講。 [請見Gnew文章《彭佩奧在哥本哈根民主峰會吹響全球滅共集結號》](https://gnews.org/zh-hans/240909/)
-
-
-####  **堅持民主自由價值的丹麥堅定與盟友美國站在一起** 
-
-在民主國家，儘管中共能利用各種手段能暫時得逞，但政府的最終政策走向取決於民意，這在丹麥這個小國尤其如此。馮鐵大使7月27號的文章下面丹麥民眾的留言就可以推測出丹麥民意已經到達的滅共層次。我奉勸馮鐵大使你仔細看看評論，別看你有機會上電視報紙發文章，這只是民主制度給你自由發言的平台，你一來自獨裁奴隸制度國家的大使，在自由民主制度植入血液的丹麥大放蕨詞，人家只是看你笑話。接下來中共一定會看到丹麥在北約，北極理事會和歐盟中如何和盟友一起結成滅共的陣線。正如美國國務卿在訪問丹麥時所說：我們都是強大的民主國家，我們都知道，我們熱愛自由是有代價的，我們準備捍衛這種自由。
-
-《政治報》馮鐵文章下的幾條評論原文翻譯如下，更多精彩評論請見鏈接： [https://politiken.dk/debat/debatindlaeg/art7866137/USA-fors%C3%B8ger-at-s% C3%A5-splid-i-forholdet-mellem-Kina-og-Danmark](https://politiken.dk/debat/debatindlaeg/art7866137/USA-fors%C3%B8ger-at-s%C3%A5-splid-i-forholdet-mellem-Kina-og-Danmark)
-
-1. **Peter Wendelboe Hansen** 
- “中國不是我們的敵人，但共產黨無疑不是我們的朋友。僅僅憑馮鐵提到”可愛的熊貓”是別人眼中的秘密間諜，就足以證明她的文章的水平。如果他真想讓的宣傳起作用，也許他應該求助於《唐老鴨》和《彼得毛絨》的讀者。“
-2. **Anders Højmark Andersen** 
- “中共只是在沒有使用戰爭、殖民和奴隸制的情況下，發展成為世界第二大經濟體。1949-1950年，中共以暴力和武力入侵、佔領和吞併了西藏。從那時起，中共對西藏的殖民統治達到了這樣的程度，以至於現在很多城市和地區的人口都是中國人佔多數。西藏人因被佔領而被處決、監禁和折磨，數以千計的人被強迫勞動，即奴隸制。我自己在西藏旅行時，曾與他們中的許多人交談過。時至今日，藏人僅僅因為爭論學校應該使用藏語而被判處長期監禁。所以，請停止你的謊言，讓西藏人和其他人有自己的發言權。獨裁對任何人都沒有好處。“
-3. **Tommy Clausen** “在中共獨裁者開始談論和平與寬容之前，看看你自己國家的民主狀況如何吧。”
-4. **Else Marie Sveistrup** 
- “閉嘴息息吧，你又開始進行一輪宣傳了。”
-5. **Morten Iversen** 
- “指責批評專制政權和意識形態的人，並給他們貼上心理學術語的標籤，這是一個古老的伎倆。仇視俄羅斯、仇視伊斯蘭、仇視仇視… 。但是我可以清楚地用事實和可證明的信息，確定中共對專制政權意識形態不喜歡的人所施行的虐待、壓迫、暴力，甚至武力。每天都有數以百萬計的人經歷著這些意識形態對人類的蔑視和殘暴。而他們的領導人卻試圖假裝自己是無辜的、受迫害的。評論欄的字符限制使你無法列出所有中共的虐待行為–但你可以從監獄集中營中數百萬被壓迫的維吾爾人開始，他們在為西方時裝公司做強迫勞動。對香港人民的虐待、暴力、壓迫。侵略和占領西藏。對不遵守黨的紀律或抗議政府或壓迫的中國公民的獨裁暴行。熊貓外交以及試圖收買其在世界尤其是西方的影響力–注定要失敗。西方希望與中共合作，共同解決世界問題–但不是按照中共的條件，實現中共的目標。這種國家宣傳嚴重偽裝成指責者和對”同理心”的善意擔憂，甚至赤裸裸地威脅（不，不，我們只是在說如果你不按照我們的要求做的後果……）。- 謊言和振動只是在表面之下。”
-
-
-***關於北極爭端的相關文章：***
-
-- [北極新的安全政策動態](https://www.diis.dk/publikationer/nye-sikkerhedspolitiske-dynamikker-arktis)
-- [法羅群島成為超級大國遊戲中爭奪的前沿陣地](https://politiken.dk/udland/art7554418/F%C3%A6r%C3%B8erne-blev-frontlinjen-i-supermagternes-spil)
-- [中共大使的錄音洩漏其威脅法羅領導人](https://www.berlingske.dk/internationalt/banned-recording-reveals-china-ambassador-threatened-faroese-leader)
-- [《政治報》的《華為在丹麥》專輯](https://politiken.dk/tag/main/Huawei_i_Danmark)
-
-
-***華大基因相關原文鏈接：***
-
-- [介紹華大基因](https://www.olbert.us/)
-
-
-***其他：***
-
-- [丹麥漫畫家惹惱中共](https://jyllands-posten.dk/indland/ECE11903472/vrede-kinesere-vi-staar-lige-nu-overfor-en-alvorlig-humanitaer-katastrofe-saa-kommer-jp-med-saadan-en-respektloes-tegning)
-
-
-原創文章作者：匿名
-
-
+*戰友之家玫瑰園小隊出品*
 
 0

@@ -1,23 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/17 CCP病毒每日疫情直播簡報
-`2020-07-29 06:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/279235/)
+## 中美關係持續惡化中, 紛爭不斷
+`2020-07-29 09:03 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279409/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/28232130/1-145.png)圖片來源： [CNN](https://edition.cnn.com/videos/spanish/2018/05/22/eeuu-china-aranceles-cancelados-tregua-comercial-importaciones-conflicto-sergio-cesarin-entrevista-serbia-dinero.cnn) 
+據CNBC最新報導，上周世界中美兩大強國之間的對抗達到了頂點，雙方都關閉了對方的領事館。華盛頓要求中共關閉其在休斯頓的領事館，北京也報復性的要求美國關閉其在中國成都的領事館。雙方之間的緊張關係持續惡化。
 
-[Engish\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055014/Engish_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055014/Engish_0717_CCP_Virus_Updates.pdf)
+**中共在華盛頓已無盟友**
 
-[French\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055047/French_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055047/French_0717_CCP_Virus_Updates.pdf)
+歐亞集團的高級顧問羅伯特•卡普蘭（Robert Kaplan）指出，中共國已經逐步演變成為一個“個人獨裁專制的政權。” 他指出，這樣的結果使得中共在華盛頓已經沒有了朋友。連到左傾的民主黨現在也不願意和中共打交道，原因和右翼共和黨一樣，那就是中國政權偷走了大量的美國工作機會。 ”
 
-[German\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055120/German_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055120/German_0717_CCP_Virus_Updates.pdf)
+馬凱碩（Kishore Mahbubani）是一位來自新加坡國立大學亞洲研究所的資深學者，他在一次會議中指出“中共最大的戰略失誤就是疏遠對華最友好的美國商界。
 
-[Japanese\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055155/Japanese_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29055155/Japanese_0717_CCP_Virus_Updates.pdf)
+**南海局勢持續升級**
 
-[Korean\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054826/Korean_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054826/Korean_0717_CCP_Virus_Updates.pdf)
+自今年以來，兩國之間的緊張局勢持續升級，在多個問題上紛爭不斷，包括中共冠狀病毒的來源以及中共在南海的主權爭議。卡普蘭指出，使得華盛頓和中共分道揚鑣的原因之一是一些“無法解決的”問題包括南海議題。
 
-[Russian\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054908/Russian_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054908/Russian_0717_CCP_Virus_Updates.pdf)
+南海一直是雙方爭執的焦點，中共堅稱在南海大部分水域擁有主權，而菲律賓，台灣和越南也聲稱對這一資源豐富的水域擁有部分主權，美國則主張自由航行政策。
 
-[Spanish\_0717\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054941/Spanish_0717_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29054941/Spanish_0717_CCP_Virus_Updates.pdf)
+卡普蘭還指出，對中共而言，為達到他們進一步在印度洋擴張的野心，南海的控制權至關重要。就像當時的英國東印度公司，”幾百年前英國為壟斷亞洲貿易權的擴張行為。
+
+7月4日美國獨立日這天，美國海軍非常罕見的派出兩艘航空母艦在南海進行軍事演習。作為回應，中共也於7月1日至5日在該區域進行了軍演。
+
+此外，美國務卿蓬佩奧也重申了美國在南海問題上的立場。他在一份聲明中表示，中共對南海大多數海域的離岸資源的主權聲明是’完全不合法的’，其為控制這些資源而展開的霸凌手段也是完全不合法的。蓬佩奧同時補充說，美國堅決支持2016年海牙國際仲裁庭的裁決。
+
+歐亞集團的創始人伊恩•布雷默（Ian Bremmer）表示，這一聲明意味著美國直接否認了中國在該區域的領土擴張，並可導致該區域的軍事升級。
+
+[原文鏈接](https://www.cnbc.com/2020/07/27/us-china-tensions-escalate-amid-rivalry-in-the-south-china-sea.html)
+
+翻譯報導：Rong 
+校對整理：晴天小螞蟻
 
 1
