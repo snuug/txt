@@ -14,6 +14,8 @@
 
 ## 頁面 15/28 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [28](/content/README-28.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/2019/04/20190407-6044925743176035036.md)
+
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
 
 [文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
@@ -61,8 +63,6 @@
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
 
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190208-3310541803704262131.md)
-
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/2019/02/20190207-4952752821783304200.md)
 
 
 ## 頁面 15/28 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [28](/content/README-28.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
