@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆麗夢博士戰斗室重磅發聲:中共病毒是解放軍病毒實驗室產物!
-`2020-07-29 08:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279327/)
+## 文貴先生連線戰斗室:美國祇有放棄官僚和個人利益,通過閆博士所提供的證據找到真相,才能讓美國更加安全!
+`2020-07-29 08:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279342/)
 
 製作：【秘密翻譯組G-Translators】
 
