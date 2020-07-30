@@ -1,36 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國自由峰會釋放強烈信號：聯合中國人民抵抗中共政權
-`2020-07-29 19:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279681/)
+## 【多語言圖文版】7月5日中共病毒疫情要聞快報
+`2020-07-30 03:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280020/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29184900/1596062906584.jpg)
-據《華盛頓時報》7月27日報導，自由大學本週一在華盛頓市中心的川普國際酒店組織了為期兩天的自由峰會。與會者是來自美國立法和國家安全領域的專家和學者，大家就當前美國對中共國的認知和政策做了深入的討論，一致認為美國與中共國的關係正在發生根本性的變化，美國如何處理於中共的關係將決定本世紀世界大局的走向。
+[7.5-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031548/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031548/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-**自由峰會的召開背景**
+[7.5-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031551/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031551/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-自川普政府執政以來，美國在各方面都顯示出對中共國的強硬態度，雙方在貿易、人權、台灣和整個東亞地區的安全問題上都有激烈衝突。就在上週，美國下令關閉了休斯敦中領館，原因是美國認為該領館是中共的間諜活動中心。隨後中方進行了報復，也下令關閉了美國駐成都的總領館。就在峰會召開前幾個小時，最後一批美國外交官離開了美國駐成都領事館。同時也還是在上週，美國在舊金山逮捕了一名有中共軍方背景的研究人員，同時指控兩名中共黑客試圖竊取有關中共病毒的研究資料。美國也越來越明確的指出，中共政府要對這次全球病毒大流行造成的損失承擔責任，並特別譴責了中共領導人在疫情爆發初期隱瞞了真相，耽誤了各國拯救生命的寶貴時間。
+[7.5-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031555/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031555/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-**與中共”脫鉤”勢在必行**
+[7.5-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031600/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031600/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-報導稱，美國官員認識到，中共國自認為它的極權專制優於西方的自由民主，從而它極力向世界各國推銷其執政模式。通過在峰會上的發言，著名的保守派人士和國家安全專家向媒體描述了中共國全球勢力的日益增長形勢以及它對美國未來的影響。
+[7.5-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031603/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031603/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-田納西州共和黨參議員瑪莎·布萊克本（Marsha Blackburn）發言指出，不管承不承認，美國與中共國的關係實際已經破例。美國不可能只通過單一策略或法案就完全切割與中共國的千絲萬縷的聯繫，但切割是勢在必行。預見到美國將來會在盟友、市場和影響力的爭奪方面都會面臨中共國的嚴酷挑戰，川普的一些顧問甚至認為現在就是美國與中共國”脫鉤”的時候了。
+[7.5-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031608/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031608/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
 
-**聯合盟友和中國人民一起挑戰中共**
+[7.5-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031629/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031629/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-報導指出，川普政府現在對付中共國的策略核心是通過簽訂新的貿易協議重塑經濟競爭環境，利用美國的軍事力量來製衡中共國在南海的擴張，同時防止中共國對美國知識產權竊取，並通過一系列手段重新定義兩國關係。通過峰會，專家們更確定了盟友和中國人民在對抗中共國政策中的重要性。
+[7.5-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031832/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031832/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-國家安全專家們指出，僅靠打口炮和起訴某些人是控制不了咄咄逼人的中共的，與盟友加強聯繫合作十分的重要。比如，美國政府最近通過幕後談判使英國改變了其原來的親共態度，終止了華為參與英國5G網絡建設計劃。同時，美國政府還不斷加強與其它歐洲國家、澳大利亞和東南亞各國的聯繫。
-
-特別值得指出的一點是，除了強調與各盟國加強聯繫外，此次峰會還提出了要與中國人民聯合在一起，這也是美國政府的態度。美國國務院在周一就成都領館關閉的聲明中稱：“我們對中共的決定感到失望，我們將努力通過其他駐華使領館繼續向成都地區的人民伸出援手。”
-
-一些立法者在峰會上指出，只有在中國人民的推動下，世界才能迫使中共進行真正持久的變革。阿肯色州共和黨參議員湯姆·科頓（Tom Cotton ）一針見血地說道：”70年中國共產黨統治下的中國人民一直是受害者，他們明白，他們被一個腐敗的獨裁政權統治著。”
-
-評：華盛頓的自由峰會的最大亮點是我們英雄科學家繼福克斯後的再次公開亮相。她帶來的中共病毒生化武器的鐵證一定會加速喚醒美國民眾，從而敦促川普政府加快和加強對中共的打擊力度，更重要的是聯合全球中國人，才能最終徹底消滅中共勢力，還自由於中國和世界人民。
-
-原文鏈接： [https://www.washingtontimes.com/news/2020/jul/27/freedom-summit-speakers-urge-tough-line-on-china/](https://www.washingtontimes.com/news/2020/jul/27/freedom-summit-speakers-urge-tough-line-on-china/)
-
-編譯：Sarathecat
-
-0
+1
