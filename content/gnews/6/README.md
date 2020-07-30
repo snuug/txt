@@ -1,65 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部起訴“千人計畫”學者哈佛化學系前主任稅務欺詐
-`2020-07-29 11:34 GM31` [轉載自GNews](https://gnews.org/zh-hant/279513/)
+## 中共在英國大外宣新聞頻道即將面臨英廣播監督機構禁令
+`2020-07-29 19:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279673/)
 
-Department of Justice
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/29183433/1596062055896.jpg)
+中共環球電視網（CGTN）是中共繼中文國際頻道（CCTV-4）之後開播的第二條國際頻道，是中共控制的大外宣。目前，中國環球電視網的自製節目在中央廣播電視總台光華路辦公區製播。北美分台、非洲分台、歐洲分台也有製作節目並透過主頻播出。圖片來源： [www.cgtn.com/tv](http://www.cgtn.com/tv)播放截圖
 
-## 司法部
+**中共大外宣內容強迫供人謊話連篇**
 
-Office of Public Affairs
+據英國衛報七月26日報導，英國廣播監管機構（Ofcom）正承受著越來越大的壓力，要求其禁止中共的喉舌電視頻道在英國播放廣播節目，此前有人指責中共一再違反公正規則，並宣揚中共支持的強迫供認、謊話連篇的電台內容。目前，Ofcom正在對中共的英語新聞頻道——中共環球電視網（CGTN）進行三起現場調查。本月早些時候，英國監管機構已對該頻道做出裁定，反對它播出了前英國記者彼得·漢弗萊（Peter Humphrey）的強迫供認。工黨將與Ofcom的首席執行官梅拉妮·道斯（Melanie Dawes）一起，指控該頻道的屢次違規事件。
 
-### 公共事務辦公室
+Ofcom還收到一份投訴，指出完全不應允許中共的CGTN廣播，因為它是由一個政黨（中共）有效控制的。人權組織”保護捍衛者”今年早些時候提交了申訴。其董事彼得·達林（Peter Dahlin）說：“最好的辦法是吊銷他們的執照，告訴他們是不被接受的。當然，依據規則，他們之後可以重新申請許可證，然後重新啟動流程。”
 
-FOR IMMEDIATE RELEASE Tuesday, July 28, 2020
+**先前英國已棄用華為設備**
 
-2020年7月28日 立即發佈
+在英國與中共的緊張關係加劇之際，英國決定在2027年前將中共華為公司生產的設備從它的電話網絡中剝離出來。這一決定是在保守黨議員對該公司參與5G網絡的強烈反對之後做出的。這一決定導致中共官方媒體警告稱，將進行”公開和痛苦的”報復。中共的《 *環球時報》*在一篇社論中表示，中共不能“保持被動”。
 
-**Harvard University Professor Charged with Tax Offenses**
+中共的CGTN可在英國多個平台上播放，並在世界各地製作節目。它不公佈收視率，但已經招募了許多西方記者，包括前BBC記者在內，以擴展其歐洲業務。其在歐洲的影響力不斷擴大，包括去年在倫敦開設了生產基地。 CGTN已經有一個美國分支機構，而且，它在那裡已經註冊為外國代理人。
 
-### 哈佛大學教授被控逃稅
+提交給Ofcom的關於中共CGTN的投訴包括來自英國駐港領事館前僱員西蒙（Ssimon Cheng）的投訴。他聲稱中共CGTN頻道廣播了他被強迫下的供認。他8月份在一次中國之行中被拘留，並說他被迫承認嫖娼。
 
-**Dr. Charles Lieber was previously indicted on charges of making false statements to federal authorities regarding his participation in China’s Thousand Talents Program**
+另一項投訴來自一名被拘留者的女兒。 2015年失踪的香港書商桂敏海的女兒桂安琪（Angela Gui）說，該頻道播出了她父親的逼迫供認。他獲釋，但於2018年再次被捕，目前仍被關押在中國。
 
-**參與中國****“****千人計畫****”****的查理斯****·****利伯（****Charles Lieber****）博士因涉嫌之前向聯邦政府做出虛假陳述而遭起訴**
+**英對中共新聞調查並即將採取行動**
 
-The former Chair of Harvard University’s Chemistry and Chemical Biology Department was charged today in a superseding indictment with tax offenses for failing to report income he received from Wuhan University of Technology (WUT) in Wuhan, China.
+影子文化大臣喬·史蒂文斯（Jo Stevens）說：“針對中共CGTN的調查結果是令人髮指的，Ofcom已經表示，他們將採取行動，盡可能禁止該頻道再在英國播出。Ofcom 有一項持續的職責，就是要確保持有在這個國家廣播許可證的人是適當的”。
 
-哈佛大學化學與化學生物學系前主任今天因涉嫌瞞報從中國武漢理工大學（WUT）獲得的收入，而被追加起訴書指控逃稅。
+通常情況下，外國經營的電視頻道，如《今日俄羅斯》（ Russia Today ）和2012年被禁止的伊朗新聞電視台（Iranian Press TV），會發現自己無法遵守廣播守則。中共CGTN和其他國家支持的廣播公司有公然違反Ofcom守則的歷史。儘管監管機構確實會施加經濟處罰，但這些處罰並不像對其他電視頻道那樣有威懾力。必須針對目前的製裁制度是否足夠進行審查。
 
-Dr. Charles Lieber, 61, was indicted by a federal grand jury in Boston on two counts of making and subscribing a false income tax return and two counts of failing to file reports of foreign bank and financial accounts (FBAR) with the Internal Revenue Service (IRS).  In June 2020, Lieber was indicted on two counts of making false statements to federal authorities.  Lieber was arrested on Jan. 28, 2020.
+雖然有人呼籲吊銷其執照，但其他高級國會議員，例如前首席國務卿保守黨國會議員達米安（Damian Green）卻說，禁止CGTN應該是“不得已而為之”。
 
-現年61歲的查理斯·利伯博士，被波士頓聯邦大陪審團起訴，罪名是兩例製作和簽署虛假所得稅申報表，以及兩例未向國家稅務局（IRS）提交外國銀行和金融帳戶報告（FBAR）。2020年6月，利伯因向聯邦當局作兩項虛假陳述罪名而遭起訴，並於2020年1月28日被捕。
+漢弗萊（Humphrey），向Ofcom提出了第二項針對中共CGTN的投訴，他說：“我希望通過取消該許可證，保證我們在英國的人民將不必再受到觀看被關在籠子裡的人承認他們侮辱性宣傳材料的侵害”。
 
-The superseding indictment alleges that Lieber served as the Principal Investigator of the Lieber Research Group at Harvard University, which received more than $15 million in federal research grants between 2008 and 2019. Unbeknownst to his employer, Harvard University, Lieber allegedly became a “Strategic Scientist” at WUT and, later, a contractual participant in China’s Thousand Talents Plan from at least 2012 through 2015.  China’s Thousand Talents Plan is one of the most prominent Chinese talent recruitment plans designed to attract, recruit and cultivate high-level scientific talent in furtherance of China’s scientific development, economic prosperity and national security.
+衛報表示已聯繫中共CGTN進行評論，但在報導發佈時還未收到回复。通常被發現違反廣播守則的電台一審會被判處罰金，但也有撤銷許可證的先例。伊朗英語電視台（Iranian Press TV），就在2012年失去了它的新聞電視台牌照。
 
-追加起訴書指稱，利伯擔任哈佛大學利伯研究小組的首席調查員，在2008年至2019年獲得了超過1500萬美元的聯邦研究經費。據指，在其雇主哈佛大學不知情的情況下，利伯成為武漢理工 大學的“戰略科學家”，後來至少在2012年至2015年期間，作為了中國“千人計畫”的簽約者。而“千人計畫”是中國最突出的人才招聘計畫之一，旨在吸引、收買和培養高層次科技人才，以促進中國科學發展、經濟繁榮和國家安全。
+評論：
 
-Under the terms of Lieber’s three-year Thousand Talents contract, WUT allegedly paid Lieber a salary of up to $50,000 per month, living expenses of up to $150,000 and awarded him more than $1.5 million to establish a research lab at WUT.  It is alleged that in 2018 and 2019, Lieber lied to federal authorities about his involvement in the Thousand Talents Plan and his affiliation with WUT.
+極權政體一向注重對新聞與宣傳對控制，中共更加如此。這次以中共環球電視網面臨英國禁令表明，中共一直以來在擴張海外國際頻道上的野心，終於受到日益覺醒的正義力量的揭露與遏制。
 
-根據利伯三年的“千人計畫”簽約條款，據指，武漢理工大學向利伯支付高達5萬美元的月薪，高達15萬美元的生活費，並因他為武漢理工建立研究實驗室而獎勵他150多萬美元。據指，在2018和2019年，利伯向聯邦當局謊報他參與了“千人計畫”，以及其與武漢理工大學的關係。
+新聞自由對開放社會至關重要，世界局勢已經來到正邪較量的十字路口。在民主國家，新聞作為權力的第四極，是選舉之外重要的民意表達渠道，因為代議制總是趨向於違背科層決策機制之外的被代表者利益。而在獨裁國家，沒有民意的勝利，只有權力的傲慢，新聞成為被打壓控制的對象，構成其經濟壟斷與政治壟斷外，整個欺騙性的意識形態的一環。
 
-According to the superseding indictment, in tax years 2013 and 2014, Lieber earned income from WUT in the form of salary and other payments made to him pursuant to the Strategic Scientist and Thousand Talents Contracts, which he did not disclose to the IRS on his federal income tax returns.  The superseding indictment also alleges that Lieber, together with WUT officials, opened a bank account at a Chinese bank during a trip to Wuhan in 2012.   Thereafter, between at least 2013 and 2015, WUT periodically deposited portions of Lieber’s salary into that account. U.S. taxpayers are required to report the existence of any foreign bank account that holds more than $10,000 at any time during a given year by the filing an FBAR with the IRS.  Lieber allegedly failed to file FBARs for the years 2014 and 2015.
+中共的新聞沒有論點，只有論調，其本質就是用空談堆砌虛幻無用的聖像。首先，它無視或淡化報導的客觀性前提而一味強調主觀性前提，用所聲稱的取代實際的。這使得共產黨平時說的東西和他拿來決策的東西完全不同。因為這群持無產階級立場的有產者，就其理想信念而言也只是工具理性的，雖然一味宣稱的“為人們服務”，“凡是利於黨的，就是利於人民的”，但心裡不是想當公僕而是要做青天，而且顯然其實它對人們利益毫不在乎，這個黨是最圖利少數的惡黨之一。跟共產黨打交道，必須完全不信並不斷求證。其次，它將報導訴諸於情感道德，只用“正能量”給群眾打雞血，將一切問題訴諸於道德或獎懲，而不是構建一個邊界。中共歷來相信人治不相信法治，選擇愚民教育而非開智教育，相信強國弱民的帝王權術。這樣它的愚民新聞和愚民教育一樣，都是洗腦的一環。洗腦的關鍵不是欺騙，而是抹殺判斷力。變壞和變傻的機理是一樣的，都是把錯誤合理化的結果。莫言善化少，只因惡化多。當一個社會的公共資源配置出了問題，不是解決問題而求之於道德，就會對民眾無竭止地提出道德要求。然而，越是社會問題層出不窮，希望道德來救場時，就越是道德每況愈下，甚至跌破底線。在一個正常社會裡，人只要有基本的道德意識，不打架不罵人不咬狗不搶貓糧食吃，就活得很幸福了。相反，在一個經濟配置失衡而導致人心失衡的社會裡，縱然是你提出“絲毫不為自己，只為他人和社會鞠躬盡瘁死而後已”這等超高難度的道德要求，也是糊弄不過去的。除了造就一群口是心非的偽君子，並無助於問題的解決。中共不斷激化人心中的無知與野蠻，新聞教育等同於欺騙，上當與愚蠢就是愛國。它治下的人民成為反智主義的砲灰，成為全民互害的犧牲品。最後，它不允許獨立報導，將講和官方同樣版本的故事上升到政治高度。在將道德政治化的同時大行政治不道德，繼續公共資源配置領域大秀肌肉，“順之者猖，逆之者被嫖娼”。社會是故事構成的，講故事是社會動員中激活人們熱情的最有效方法之一。這也是為什麼專制國家努力阻止自由新聞，獨立電影和紀錄片的發展，同時加強政權引導的敘事框架。
 
-根據追加起訴書，在2013和2014納稅年度，利伯根據“戰略科學家”和“千人計畫”，以工資和其他支付形式，從武漢理工大學獲得的收入未向國稅局的聯邦所得稅申報表進行披露。追加起訴書還指控，利伯在2012年前往武漢期間，與武漢理工大學的官員的陪同下，在一家中國的銀行開設了戶頭。此後，至少在2013年至2015年期間，武漢理工大學定期將利伯的部分工資存入該帳戶。美國納稅人必須向國稅局提交外國銀行和金融帳戶報告（FBAR），即在給定年份內不論何時，報告任何持有超過1萬美元的外國銀行帳戶。據指，利伯在2014年和2015年沒有提交外國銀行和金融帳戶報告（FBAR）。
+記得前蘇聯和東歐國家的知識分子形容他們當年面對的政體是一種“不道德的政治”，理由是人民的冷漠、互不關懷和良心的虛無，恰恰乃政權所需：他們不是怕你沒良知，只怕你太熱心。然而弔詭的是，你又不可能長久而穩定地管治一群什麼都不相信的人。一個徹底原子化的社會，注定是要瓦解的。所以1987年那一年，蘇聯媒體上最常見的一句話是“我們不可能再這樣子下去了”。現在，中共都新聞聯播還能繼續多久，讓我們開始為它的大結局倒數。
 
-The charge of making false statements provides for a sentence of up to five years in prison, three years of supervised release and a fine of $250,000.  The charge of making and subscribing false income tax returns provides for a sentence of up to three years in prison, one year of supervised release and a $100,000 fine.  The charge of failing to file an FBAR provides for a sentence of up to five years in prison, three years of supervised release and a fine of $250,000.  Sentences are imposed by a federal district court judge based upon the U.S. Sentencing Guidelines and other statutory factors.
+影子疊加的再多也擋不住光，拿一個鐵鎚敲擊湖面，確實每次都能激起水花，只是沒有實際的作用作為，中共新聞不過是如大清滅亡前夜，所營造的一個掌權者的假盛世。黑夜已至，這個世界的正義力量不應再容許中共繼續通過假新聞將黃昏渲染成黎明來欺騙眾人。點塔七層，不如暗處一燈，讓我們每個人都化成光，變作水。
 
-對作虛假陳述的指控，可判處最高5年監禁、3年監外看管和25萬美元的罰款。對製作和簽署虛假所得稅申報表的指控規定，最高可判處3年監禁、1年監外看管和10萬美元罰款。被控未提交外國銀行和金融帳戶報告的可判處最高5年監禁、3年監外看管和25萬美元的罰款。判決由聯邦地區法院法官根據《美國量刑準則》和其他法定因素作出。
+後記：看一個國家是不是真民主，關鍵就是要通過一人一票的選舉和人人都能參與的自由新聞，來保證勝利聯盟（以下簡稱“聯盟”）的人數。領導人工作的本質是為聯盟服務，因為聯盟對領導人有推翻權——如果你不能保證我們的利益，我們有能力隨時換一個。如果聯盟的人數很多，那麼這個國家就是我們通常所說的民主國家。反過來如果聯盟的人數非常少，那麼不管這個國家如何粉飾自己，它都是事實上的非民主國家。相信隨著親共生態圈的不斷崩潰，G系列的生態圈不斷成長，新中國聯邦勝利聯盟的數量與質量都將不斷成長，社會正向發展，正義公平的喜馬拉雅一定會實現。
 
-Assistant Attorney General for National Security John C. Demers; U.S. Attorney Andrew E. Lelling;  Joseph R. Bonavolonta, Special Agent in Charge of the Federal Bureau of Investigation, Boston Field Division; Leigh-Alistair Barzey, Special Agent in Charge of the Defense Criminal Investigative Service, Northeast Field Office; Philip Coyne, Special Agent in Charge of the U.S. Department of Health and Human Services, Office of Inspector General; and Kristina O’Connell, Special Agent in Charge of the Internal Revenue Service’s Criminal Investigations in Boston made this announcement.  Assistant U.S. Attorney Jason Casey of Lelling’s National Security Unit is prosecuting this case with the assistance of Trial Attorney David Aaron of the National Security Division’s Counterintelligence and Export Control Section.
+原文連接： [https://www.theguardian.com/media/2020/jul/26/chinas-tv-channel-faces-uk-ban-as-complaints-mount](https://www.theguardian.com/media/2020/jul/26/chinas-tv-channel-faces-uk-ban-as-complaints-mount)
 
-負責國家安全事務的助理司法部長約翰·德邁爾斯，美國律師安德魯·萊林，聯邦調查局波士頓外勤司特工約瑟夫·R·博納沃隆塔，東北外勤辦事處國防刑事調查處特工利·阿利斯泰爾·巴澤，監察長辦公室美國衛生與公眾服務部特工菲力浦·科恩，以及波士頓國稅局刑事調查特工克莉絲蒂娜·奧康奈爾宣佈了此公告。萊林國家安全性群組的美國助理檢察官傑森·凱西在國家安全司反間諜和出口管制科審判律師大衛·亞倫的協助下起訴此案。
+作者: [邁克爾·薩維奇](https://www.theguardian.com/profile/michael-savage) （Michael Savage） *衛報政策編輯*
 
-The details contained in the charging documents are allegations. The defendant is presumed innocent unless and until proven guilty beyond a reasonable doubt in a court of law.
+翻譯報導:nicnicni
 
-起訴檔中所含細節內容為指控。除非在法庭上毫無疑義的確定其有罪，否則被告推定無罪。
-
-[閱讀英文全文](https://www.justice.gov/opa/pr/harvard-university-professor-charged-tax-offenses)
-
-*翻譯：【Dlrow】 校對：【GM31】*
-
-*戰友之家玫瑰園小隊出品*
+校對整理:瑞安平
 
 0
