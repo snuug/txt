@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 727 2020 新中国联邦全球大游行新西兰站纪实
-`2020-07-30 05:31 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/280156/)
+## 【多語言圖文版】7月14日中共病毒疫情要聞快報
+`2020-07-30 08:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280458/)
 
-作者：引力波
+[7.14-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083123/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083123/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-2020年7月30日
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30045054/WhatsApp-Image-2020-07-30-at-7.06.21-PM.jpeg)
-新西蘭時間2020年7月27日中午11點，在距離新西蘭奧克蘭市中國總領館僅一公里的Greenland上的麥當勞餐廳門口，一大群藍衣中國人在安靜地準備著即將開始的遊行。這些都是我們新西蘭喜馬拉雅農場的戰友們，他們中很多為了參與這次的遊行，特地驅車數小時，甚至提前數日飛抵奧克蘭。新西蘭喜馬拉雅農場的負責人老班長和戰友義工們為了這次的遊行，已經籌劃了數週，定制旗幟、傳單、著裝、製作宣傳板，聯繫各地參加遊行的戰友落實食宿交通等問題，一切的一切都為了這一天新中國聯邦成立以來的第一次全球聯合大遊行。
+[7.14-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083127/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083127/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-中午12點，遊行隊伍行至奧克蘭中共領館門口，在新西蘭當地土著獻上毛利人戰舞之後，戰友們帶著口罩，揮舞新中國聯邦的藍色國旗，舉著各種滅共宣傳牌，高聲喊著“TAKE DOWN CCP”, “CCP LIE,KIWI DIE”,”CCP LIE,PEOPLE DIE”等口號。引得路人紛紛駐足觀看。受到了戰友們熱情的鼓舞，許多經過的車輛來回駛過遊行隊伍鳴笛助威，其中至少有十幾輛車都是華裔人士，他們用行動表示了對這次遊行的支持。同時有很多經過的路人主動向戰友們索要關於中共病毒真相的傳單。戰友們還向中共領事館的兩位保安（新西蘭當地人）發了傳單，他們非常認真的閱讀了全部內容。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30045116/WhatsApp-Image-2020-07-30-at-7.06.28-PM.jpeg)
-下午3點，遊行隊伍來到了奧克蘭美國領事館門口，繼續激昂地遊行。喜馬拉雅新西蘭農場在GTV、YOUTUBE上的頻道全程直播了這次的遊行活動，並和美國、加拿大、澳洲、日本、法國、英國等各地的新中國聯邦的遊行活動連線，直播活動盛況。
+[7.14-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083131/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083131/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-从游行的一开始，至少有三组行踪可疑的华人一直在不远处监视，这些人是新西兰中国领馆派出的中共特务。在以往，中共的爪牙渗透到新西兰当地华人中，暗中控制着当地华人的言行，让华人敢怒不敢言。可是今天，战友们不会再恐惧，老班长更是带着几名战友飞奔抓特务，这些平时耀武扬威的中共特务居然要么夺路而逃要么躲进车里装傻，中共在末日的路上狂奔，相信他们心里很清楚谁是正义的，谁是邪恶的，谁即将崛起而谁又即将覆灭。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30045133/WhatsApp-Image-2020-07-30-at-7.06.38-PM.jpeg)
-中共在全世界无孔不入的宣传渗透下，这几十年来海外正义有良知的华人的声音一直是被压制甚至被操纵的，而新中国联邦成立仅两个月不到，就组织起全球灭共的和平游行。爆料革命在郭文贵先生的带领下，三年来用无数事实证明我们华人是优秀的民族，只要彻底脱离中共的魔爪，我们将是世界上维护民主和自由最坚定的力量。这次的727全球大游行只是刚刚开始，是所有华人开启街头抗争运动争取自由民主的开端，所有热爱自由的华人们，请放下恐惧，勇敢加入到我们的行列中来，共同为建设我们心中的喜马拉雅而努力。
+[7.14-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083135/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083135/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-1
+[7.14-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083139/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083139/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+
+[7.14-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083143/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083143/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+
+[7.14-每日要闻-英语版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083148/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083148/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+
+0
