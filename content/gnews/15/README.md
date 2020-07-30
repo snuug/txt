@@ -1,25 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新聞秘書就執行川普總統防止網路審查行政命令的執行情況發表聲明
-`2020-07-30 08:01 GM31` [轉載自GNews](https://gnews.org/zh-hant/280391/)
+## 台灣前總統李登輝30日19時24分，病逝於台北榮總，享耆壽98歲!
+`2020-07-30 09:56 GM15` [轉載自GNews](https://gnews.org/zh-hant/280506/)
 
-#### Statement from the Press Secretary Regarding the Implementation of President Trump’s Executive Order on Preventing Online Censorship
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30094549/20200729001555.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30094536/6-11.jpg)
+**蔡英文：國家的莫大損失**
+總統府秘書長蘇嘉全表示，總統蔡英文聞訊表達最深的哀悼與不捨，也期望家屬節哀，總統認為李前總統在台灣民主歷程上的貢獻無可取代，他的離世是國家的莫大損失。總統也指示總統府及相關部門全力協助家屬辦理治喪事宜，務使治喪儀典哀榮隆重。
 
-### **新聞秘書就執行川普總統防止網路審查行政命令的執行情況發表聲明**
+**馬英九：感到不捨**
+前總統馬英九表示，李登輝前總統曾擔任中華民國元首與中國國民黨主席，帶領國家與黨的發展，包括馬前總統在內，台灣許多政治人物都曾是他的部屬。對於李前總統辭世，馬前總統感到不捨，並對李夫人及家屬致上誠摯哀悼之意。
 
-Issued on: July 29, 2020
+**1991年宣布終止動員戡亂、推動總統直選**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30094606/20200624-054025_U18452_M620714_8963.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30094621/1393944328-2313792598.jpg)
+1988年1月13日，總統蔣經國去世，由時任副總統的李登輝繼任總統。李登輝在1990年獲第一屆國民大會選為總統，並於翌年5月宣布終止動員戡亂時期，廢止動員戡亂時期臨時條款，展開第一次修憲，推動「萬年國會改選」、「總統直選」。他在1996年當選首位選民總統，被視為是台灣民主化的重要推手。
 
-2020年7月29日發佈
+不過在1996年總統大選前夕，李登輝1995年訪問母校美國康乃爾大學，發表題為「民之所欲，長在我心」的演講，引發中國強烈抗議，導致1995年爆發台海飛彈危機。台海危機後來因美國緊急調動兩個航母戰鬥群進入台海，穩住局勢，也讓李高票當選首任民選總統。
 
-On Monday, the Department of Commerce, as directed by President Donald J. Trump’s Executive Order on Preventing Online Censorship, filed a petition to clarify the scope of Section 230 of the 1996 Communications Decency Act. The petition requests that the Federal Communications Commission (FCC) clarify that Section 230 does not permit social media companies that alter or editorialize users’ speech to escape civil liability. The petition also requests that the FCC clarify when an online platform curates content in “good faith,” and requests transparency requirements on their moderation practices, similar to requirements imposed on broadband service providers under Title I of the Communications Act. President Trump will continue to fight back against unfair, un-American, and politically biased censorship of Americans online.
+李登輝上任後，並宣布「戒急用忍」政策，兩岸關係降到冰點，雖然時任海基會董事長的辜振甫在1998年到大陸進行「融冰之旅」，但李又在1999年提出「特殊國與國關係（兩國論）」，致兩岸關係凍結。
 
-週一，按照唐納德.J.川普總統關於防止線上審查的行政命令的指示，商務部提交了一份請願書，以澄清1996年《通信規範法》第230條的範圍。請願書要求聯邦通信委員會（FCC）澄清：第230條不允許社交媒體公司通過更改或編輯用戶言論來逃避民事責任。請願書還要求聯邦通信委員會明確線上平臺何時以 “誠信”的方式管理內容，並對其審核制度的做法提出透明度要求，這類似於《通信法案》第一章對寬頻服務提供者的要求。川普總統將繼續反擊美國網路中不公平的、反美的以及帶有政治偏見的審查制度。
+李前總統與世長辭，令全國人民十分不捨，但他留下的民主基業、倡導台灣價值的「生命共同體」、「民之所欲，長在我心」，將是台灣前進永遠的動能，也值得所有人民公僕銘記在心，台灣民主先生李登輝，陪伴台灣人民走過威權、走向民主，奠定台灣本土化的基石，將永遠活在台灣人民心中，也會紀錄在台灣史頁。
 
-出處：[Statement from the Press Secretary Regarding the Implementation of President Trump’s Executive Order on Preventing Online Censorship](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-implementation-president-trumps-executive-order-preventing-online-censorship/)
+1990年三月學運，萬名大學生在中正紀念堂靜坐抗議，提出「解散國民大會」、「廢除臨時條款」、「召開國是會議」、「提出政經改革時間表」等四大訴求 ，當時訴求的對象，正是李登輝前總統，在歷史的關鍵時刻，他做了正確的決定，接受了民意的呼喚，啟動台灣民主化的巨輪。
 
-*翻譯：【重生】  校對：【GM31】*
+**李前總統憑藉著高超的政治手腕、過人的耐心與意志力，變革了黨國一體的國民黨政權，漸次鑿碎威權政治的巨石，鋪成民主台灣之路他的勇氣和堅持，讓台灣政黨和平轉移，也確立屬於兩千三百萬人的國家主權定位，為台灣人奠定世代相傳的台灣主體意識。李前總統一生為台灣憂慮，護佑台灣，如今台灣民主已進入不同階段。**
 
-*戰友之家玫瑰園小隊出品*
+GM15
 
-1
+引自:[https://tw.appledaily.com/politics/20200730/WQ74YIF6KAP3BXUTBENPUDA6MU/](https://tw.appledaily.com/politics/20200730/WQ74YIF6KAP3BXUTBENPUDA6MU/)
+
+0

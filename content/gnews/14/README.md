@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月13日中共病毒疫情要聞快報
-`2020-07-30 08:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280426/)
+## 澳美部長會議在美舉行&#8212; 澳大利亞堅定抵抗中共的威脅
+`2020-07-30 10:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280542/)
 
-[7.13-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30080429/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30080429/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30100111/Picture-1-194.png)圖片來源：澳大利亞ABC 新聞網
+華爾街日報網2020年7月27日刊登了約翰·李（John Lee）的一篇觀點文章。
 
-[7.13-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081240/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081240/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+*約翰* *·* *李（* *John Lee* *）是哈德遜研究所（* *the Hudson Institute* *）和悉尼美國研究中心（* *the US Studies Centre in Sydney* *）的高級研究員。他曾於* *2016-18* *年擔任過澳大利亞外交部長的高級國家安全顧問。*
 
-[7.13-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081244/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081244/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+當下，在川普總統呼籲盟國迎接中共挑戰之時，約翰·李（John Lee）認為，美澳部長會議（AUSMIN）顯示澳大利亞有勇氣和決心，不退縮。
 
-[7.13-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081248/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081248/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+澳大利亞外交部長瑪麗斯·佩恩（Marise Payne）和國防部長琳達·雷諾茲（Linda Reynolds）無畏中共病毒仍在全球肆虐，本週一飛往華盛頓，與美方的國務卿邁克·蓬佩奧（Mike Pompeo）和國防部長馬克·埃斯珀（Mark Esper）舉行年度的澳美部長會談。在當前視頻會議是常態的狀況下，約翰.李認為，這是非常不尋常的舉動， 面對中共國的威脅，澳大利亞非常明白美國的重要性。
 
-[7.13-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081253/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081253/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+他認為，雖然川普總統的變幻莫測的風格有時會讓人揣摩不定， 但是，當川普政府呼籲盟國挺身而出之時，亞太地區的堅定盟友日本和澳大利亞，已遙相呼應。
 
-[7.13-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081258/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081258/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+**澳大利亞的覺醒和決絕**
 
-[7.13-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081302/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081302/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+就像許多其他印太國家一樣，澳大利亞也一直被中共國侵蝕。中共病毒的全球大流行，才使人們看清中共的真面目：他們不過就是列寧主義的徒子徒孫，欺軟怕硬；西方的善意不會有回報，西方的膽怯也只會使他們更囂張。
 
-[7.13-每日要闻-英语版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081307/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30081307/7.13-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+覺醒了的澳大利亞近期公佈了引人注目的《 2020年戰略防禦白皮書》，將在未來十年，國防預算增至4000億美元，其中將近1900億美元專門用於提高防禦能力。澳大利亞要增強遠程和超音速導彈、無人戰鬥機和網絡軍力。這明顯是對著共軍來的，目的在於遏制中共擴軍和在印太平洋的影響力。
 
+澳大利亞明白，要保衛澳大利亞和尋求印太地區勢力均衡，從戰略態式到發展攻擊性武力到共同運作軍備各方面，都不能靠孤軍奮戰，需要美國作領頭羊。澳大利亞的最佳選擇是依靠聯盟。
 
+值得注意的是，澳大利亞此舉是在當前美中關係自1972年尼克松（Richard Nixon）訪華以來最敵對時期。同時，中共正在給澳大利亞施壓，做出增加澳大利亞大麥進口稅等貿易制裁。目前，北端的日本和南端的澳大利亞已成為美國的堅定反共同盟。
+
+**澳美聯盟義無反顧**
+
+越來越多的西方盟國認識到，這場肆虐全球的中共病毒，改變了中美關係。惡化的關係也會持續。也許川普政府不可預測，但是美國的反共決心是不容置疑的。
+
+作者認為，澳大利亞冒著與中共的衝突會損害其的經濟利益的風險，勇敢地採取如此大膽的舉動，不僅是相信美國的力量，而且也不懷疑美國的決絕。
+
+可以說，本週的澳美部長會是多年來最重要的會議之一。對美國作為一個超級大國和澳大利亞相對小的國來講，兩國自然在一些方面持有異議。比如，2019年的東亞峰會，川普沒有出席，澳大利亞人嘆息美國的影響力削弱，而中共國趁機在會議上霸凌它的鄰國，並攻擊美國的缺席。
+
+中共經常嘲笑1951年澳大利亞、新西蘭、美國簽訂的太平洋安全條約為冷戰的遺物，廢紙一張。但是中共的挑釁，給了此聯盟一個新目標。蓬佩奧（Pompeo）和埃斯珀先生以及佩恩和雷諾斯（Reynolds）女士將討論一個共同的目標：我們的銅牆鐵壁將結束中共的推搡霸凌。
+
+**譯評** ：
+
+7月29日澳大利亞ABC新聞報導，這次美澳部長會議已達成了一項協議， 由美國出資，在澳大利亞的達爾文（Darwin）建立軍用燃料儲備庫，以保證美國武力裝備的供應。這是備戰的節奏。澳大利亞前總理特恩布爾（Malcolm Turnbull）（任2015 – 2018總理，約翰·李任職於同屆澳政府）近期披露，在2018年澳政府禁華為之前，中共施於澳大利亞巨大壓力和各種威脅。他說，如果澳大利亞政府頂不住，就會成為中共的奴隸。他還說，中共需要的是澳大利亞鐵礦石，不是澳大利亞袋鼠。
+
+譯者的理解是，澳大利亞可愛的一面可以放一放，最後拼搏的就是實力。文貴先生也一貫強調的是***實力*** 。當下美國和其盟國聯盟與中共拼的就是實力。
+
+[原文鏈接](https://www.google.com.au/amp/s/www.wsj.com/amp/articles/down-under-doubles-down-on-checking-china-11595889726)
+
+翻譯報導：Triumph 6420 
+校對整理：Sarathecat
 
 0

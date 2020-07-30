@@ -1,21 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月14日中共病毒疫情要聞快報
-`2020-07-30 08:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280458/)
+## 大連、福州、北京、新疆疫情大蔓延，葫蘆娃又放毒了嗎？
+`2020-07-30 10:50 GM77` [轉載自GNews](https://gnews.org/zh-hant/280600/)
 
-[7.14-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083123/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083123/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+編撰：文小明
+審核：文肯尼
 
-[7.14-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083127/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083127/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30104354/1596078348437483-1.jpg)
 
-[7.14-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083131/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083131/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+**大連1322所幼兒園停園，千余家場所關停**
 
-[7.14-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083135/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083135/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+大連中共病毒疫情已蔓延至5省市，大連全市1322所幼兒園全部暫停入園，1614家文化服務場所暫停開放。
 
-[7.14-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083139/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083139/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+此外，高風險地區19家（網吧14家、KTV4家、遊藝廳1家）文化市場經營場所、21個基層綜合文化服務中心，中風險地區5家（網吧2家、KTV3家）文化市場經營場所、7個基層綜合文化服務中心被關停。
 
-[7.14-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083143/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083143/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+大連人民文化俱樂部、大連國際會議中心大劇院、宏濟大舞臺、開發區大劇院、金三角劇場5家專業劇場也全部關停；大連市內8家舞廳亦全部關停。
 
-[7.14-每日要闻-英语版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083148/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083148/7.14-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+23家室內景區和有室內場館的景區中，大連森林動物園熱帶雨林爬蟲館、生態鳥館，大連博物館、大連自然博物館、大連武術文化博物館、旅順日俄監獄舊址博物館、金石灘景區室內場館等21家也關停；1614家文化館（站）、博物館、美術館等公共文化服務場所暫停開放，停止所有線下聚集性活動。
+
+截至7月28日晚，近1500家（次）文化和旅遊企業（場所）被檢查。
+
+中共官方葫蘆娃發布無癥狀感染者數據是有目的，主要是需要對疫情並未真正控制住找到一個合適的解釋，需要新的“替罪羊”來平息專家和民眾不滿。
+
+**中共福州市也宣布“進入戰時狀態”**
+
+遼寧大連的疫情已經蔓延到至少9個城市，從大連到福州市打工的某位“毒王”，在確診前幾乎逛了半個福州市，福州宣布“進入戰時狀態”。
+
+據中共通報上寫道，從大連到福州打工的這位確診人士，25日22時48分被確診，而他幾乎跑了半個福州市。截至27日23時，共對與其接觸的1495人進行核酸檢測，其中604人檢測結果為陰性。
+
+中共（政府）只會是隱瞞、掩蓋，不會向民眾通報，誰傳出去消息，就抓誰”。
+
+**北京最大小區亦中招新冠**
+
+7月27日，大連的疫情已擴散到北京。7月27日0時—24時，中共官方的數據顯示，當天有64人確診，這是3月以來的單日新增病例最多的一天。但外界普遍對中共官方的數據持懷疑態度，因為中共此前一直隱瞞疫情，瞞報數據。7月28日，北京市疾病預防控制中心稱，北京27日確診的病例與大連市疫情相關聯，是一位53歲的女性，安徽省人，7月14日來北京，暫住女兒家，地址為天通苑西三區28號樓。而天通苑，號稱“亞洲最大社區”，位於北京市昌平區，人口稠密，常住人口近50萬。天通苑共有16個分區，天通苑西三區僅僅是其中一個。
+
+**中共新疆維吾爾自治區烏魯木齊爆發冠狀病毒，防疫突升級無預警封樓**
+
+新疆和遼寧、香港一樣，被中國國家衛生健康委評為疫情風險等級為“高風險“的地區。新疆的疫情自7月開始惡化，新疆省會城市烏魯木齊7月16日開始封城。7月21日，烏魯木齊市防疫指揮部宣布，在全市範圍內開展免費核酸檢測。同一天，新疆維吾爾自治區公安廳網絡安全保衛總隊指出，新疆互聯網信息辦公室等有關部門查處7月17日以來六起編造和傳播涉疫情謠言信息案例，十人分別被處以警告、罰款和拘留處分，警告和震懾意味濃厚。
+
+27日，烏魯木齊的封城級別突然提高，連家門都被貼上封條。新疆其他縣市也開始“無預警封城”。烏魯木齊封城動作升級到封社區、封單元樓、封家門的三封閉級別。
+
+由於新疆的疫情相關信息都掌握在官方手中，民間處於長期的管控壓力之下，網絡和社交媒體罕有關於疫情源頭和範圍的討論，新疆居民都顯得有些恐慌。很害怕2009年的事件會再次發生！
+
+疫情、洪水、失業……民心在躁動……
+美國、南海、真相……正義在來臨……
+所以，葫蘆娃們是不是害怕了？
+葫蘆娃們是不是又開始到處放毒，鎮壓民意？
+
+誰還敢說面對這種巨嬰似的惡魔我們還要繼續沈默？
+滅共，就差你這一票
+滅共，沒我不行……
+戰鬥吧，戰友們！
+
+來源：[https://www.aboluowang.com/2020/0730/1483242.html](https://www.aboluowang.com/2020/0730/1483242.html)
 
 0

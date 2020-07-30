@@ -1,23 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月15日中共病毒疫情要聞快報
-`2020-07-30 08:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280485/)
+## 習近平拒絕取消贊比亞100億美元外債之中的中共部分
+`2020-07-30 10:59 GM77` [轉載自GNews](https://gnews.org/zh-hant/280629/)
 
-[7.15-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083923/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083923/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
+編撰：多梅尼科、hans（文玄）、Cash2019、文非、文肯尼
 
-[7.15-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083927/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083927/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30105608/2-69.jpg)
 
-[7.15-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083931/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083931/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+圖片來源：法新社/蓋蒂圖片社
 
-[7.15-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083935/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083935/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+2018年9月1日，贊比亞總統埃德加-倫古（左）在人民大會堂與中共國家主席習近平舉行雙邊會晤前握手。當時，倫古正準備參加中共將於9月3日和4日在北京舉行的中非合作論壇。
 
-[7.15-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083939/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083939/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+贊比亞是通過“一帶一路倡議（BRI）”向中共大量舉債的眾多非洲國家之一，在該倡議下，中共利用掠奪性貸款大量資助發展中國家開展基礎設施項目建設。BRI項目旨在通過增加其他國家對中共經濟的依賴性，在全球範圍內擴大中共的影響力來為北京服務。該倡議目前在非洲取得了一定的效果，中共已成為這個貧困大陸的最大債權人。
 
-[7.15-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083943/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083943/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+據報道稱，在贊比亞“超過100億美元的外債中，中共就占據了約64億美元，其中，大部貸款都應用於基礎設施建設“。贊比亞只是非洲國家面臨債務危機的其中一個例子，當前中共CCP病毒大流行及其造成的經濟停滯使這些國家的債務危機變得更加嚴重。非洲在中共的債務總額達1450億美元，今年欠款超過80億美元。
 
-[7.15-每日要闻-英语版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083947/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30083947/7.15-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E8%AF%AD%E7%89%88-English.pdf)
+今年6月，習近平表示，中共將取消相關非洲國家所欠下的無息債務，作為北京在CCP病毒大流行期間資助非洲國家行動的一部分。但中共的大部分債務都屬於優惠貸款，由私人實體發行的，這意味著信貸更難被寬恕或免除。
 
+觀察人士說，雖然北京過去已經取消了向非洲國家提供的大部分無息貸款，但它們只占非洲對中共金融債務總額的5%，其余的由優惠貸款和商業貸款覆蓋。《南華早報》指出了習近平的誤導性承諾。
 
+**編者觀點：**
+
+中共通過債務手段制約和拉攏非洲國家，以擴大自己在世界上的影響力，自1949年中共建政以來，中共一直對非洲國家給予所謂“援助”，基本都是以政治目的為主。
+
+中共對非洲的拉攏起到了一定的作用。例如：1971 年 10 月 25 日，第 26 屆聯合國大會恢復中共在聯合國的合法席位，76 張贊成票中有 26 張來自非洲國家。
+
+中共自改革開放，加入WTO以來，進一步加快了債務外交的步伐。當債務國沒有經濟能力償還債務時，中共便開始掠奪其資源。斯裏蘭卡便是中國債務陷阱外交弊病的典型代表。中共為漢班托塔港提供了巨額資金貸款，但港口發生虧損後無力償還貸款。最終的結果就是斯裏蘭卡被迫將這個具有重要戰略意義的港口租賃給中共使用。這就是中共債務外交背後的秘密。
+
+非洲國家毗鄰歐亞大陸，各類資源十分豐富，地緣政治地位極為重要。中共正是瞄準了這一目標，極力向非洲擴張，加強自己的影響力和控制力。非洲國家正在對來自中共的貸款產生依賴性，蘊藏的潛在風險巨大，目前已經有許多非洲國家正因此而掉入債務陷阱，不得不對中共言聽計從，形成了一定程度上的“命運共同體”。例如：中共在出臺《港版國安法》之後，竟然會有大量非洲國家表態跟其站在一起。
+
+相關來源：
+[https://www.breitbart.com/africa/2020/07/28/report-xi-jinping-refused-to-cancel-chinese-portion-of-zambias-10-billion-debt/](https://www.breitbart.com/africa/2020/07/28/report-xi-jinping-refused-to-cancel-chinese-portion-of-zambias-10-billion-debt/)
 
 0
