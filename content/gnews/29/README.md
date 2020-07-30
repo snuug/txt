@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的【DCEP】爲新計劃經濟2.0鋪路 配合控制老百姓！
-`2020-07-30 03:01 GM30` [轉載自GNews](https://gnews.org/zh-hant/279976/)
+## 【多語言圖文版】7月10日中共病毒疫情要聞快報
+`2020-07-30 06:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280259/)
 
-**作者：小妍說**
+[7.10-每日要闻-德文版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064443/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064443/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E6%96%87%E7%89%88-German.pdf)
 
-2020年4月份中共央行推出的DCEP先行在深圳、蘇州、雄安、成都等地進行封閉試點測試。除工行、農行、中行、建行四大中共國國有商業銀行外，還有中共移動、中共電信、中共聯通三大電信運營商也都共同參與試點。其試點場景包括交通、教育、醫療、消費等，觸達C端用戶。今年7月中共更是加快了DCEP的發展，中共國人民銀行數字貨幣研究所與滴滴出行正式達成戰略合作協議，官方公布的合作原因是爲了共同研究探索DCEP在智慧出行領域的場景創新和應用。不僅如此，另外，DCEP還將與美團、B站等中共國國內頭部互聯網公司展開合作，其公布的目的是爲了推動數字經濟與實體經濟融合發展，爲DCEP尋找更多的商業落地場景。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30025546/%E5%9B%BE%E7%89%871.jpg)
-中共這個時候力推DCEP其背後的真正原因真的是這樣嗎？從之前的定點測試，到現在的用于老百姓高頻使用的場景做測試，此舉可以看出中共在逐步將DCEP融入老百姓的生活中，並且與科技結合起來，也就是最新的監控工具，畢竟原來的人民幣沒有辦法想印多少就印多少？就算可以爲所欲爲的印，成本費用也是很高的；原來的人民幣也沒有辦法監控每一個人的每筆交易；當中共想要凍結老百姓財産的時候，原來的人民幣要凍結，需要法院的執行，但是如果是DCEP的話，可能只要一個行政命令就可以凍結；原來老百姓的錢是老百姓自己的，一旦DCEP流通，老百姓的錢很有可能變成中共給你用的錢，當你的每筆消費都被監控中的時候，中共不讓你消費，你一定消費不了。
+[7.10-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064447/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064447/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30025550/%E5%9B%BE%E7%89%872.jpg)
+[7.10-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064450/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064450/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-衆所周知，真正的數字貨幣是爲匿名支付而生的，去中心化的，可以解決跨境支付的諸多問題，而中共的數字貨幣，是絕對的中心化，完全實名花錢，當老百姓手裏的錢差不多都換成DCEP後，中共就可以輕而易舉的控制老百姓了，等到過段時間糧食，肉菜都緊缺的時候，中共也可以輕而易舉的進行計劃經濟了，完全實現了一鍵印鈔，節省了材料、印刷、人工、運輸流通等各個環節，印錢直接在電腦上改個數字就可以了，連紙張錢都不用花就可以隨意掠奪韭菜的財産。老百姓不想使用都不行，因爲工資都將用DCEP發,徹底大數據,而且是能直接介入老百姓，而不是像過去的觀察了！這是中共借區塊鏈的名頭，行開倒車回到配給制，並利用科技手段控制百姓之實的舉措。這也是爲了讓老百姓感覺不到被”計劃”了，畢竟直接重回計劃經濟，阻力太大了。用DCEP包裝一下，弄一層糖衣，就更好欺騙老百姓了。
+[7.10-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064454/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064454/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30025554/%E5%9B%BE%E7%89%873.jpg)
+[7.10-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064458/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064458/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-從DCEP的迅速推廣，看來現在國內換外彙的路也被徹底堵死了，這也將是人民幣脫鈎美元的前奏。無論哪個國家的經濟系統都關系到這個國家的每一個人，中共在短期內弄的這麽激進，只能說明中共確實到了窮途末路的時候了。
+[7.10-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064501/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064501/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
 
-GNEWS之前文章：
-到底是誰感染了新疆？ [https://gnews.org/zh-hans/279238/](https://gnews.org/zh-hans/279238/)
-中共兩大運營商拆除2G網絡 [https://gnews.org/zh-hans/248596/](https://gnews.org/zh-hans/248596/)
+[7.10-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064509/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064509/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
 
-（文章內容僅代表作者觀點）
+[7.10-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064512/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30064512/7.10-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
 0
