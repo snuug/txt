@@ -1,16 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共高層權鬥激烈 北京衛戍區司令突然換人
-`2020-07-29 23:00 GM10` [轉載自GNews](https://gnews.org/zh-hant/279769/)
+## 【多語言圖文版】7月5日中共病毒疫情要聞快報
+`2020-07-30 03:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280020/)
 
-**文/GM40**
+[7.5-每日要闻-德语版-German](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031548/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031548/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%BE%B7%E8%AF%AD%E7%89%88-German.pdf)
 
-中共高層權鬥之爭一直在臺面下激烈進行中，最近北戴河會議開不開的問題，讓整個權鬥慘烈疑似臺面化，尤其近日北京衛戍區司令異動、中共總書記習近平與國務院總理李克強數度隔空叫陣，讓海外評論者認為，很可能是牽涉到中共2022年的權力班子組成問題。
-綜合媒體報導，七月十四日，中共北京衛戍區司令突然換人，原來的王春林被撤換改由傅文華上任，由於牽涉到北京防衛，引發外界重視，傅文華是北部戰區81集團軍參謀長，而王春林則去向不明，本事件疑與之公安部副部長孫力軍落馬事件連結，懷疑是政變未遂、突然換人。
+[7.5-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031551/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031551/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-新聞引用自 [https://news.ltn.com.tw/news/world/breakingnews/3237038](https://news.ltn.com.tw/news/world/breakingnews/3237038)
+[7.5-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031555/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031555/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
+[7.5-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031600/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031600/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
+[7.5-每日要闻-日语版-Japnese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031603/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031603/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japnese.pdf)
 
-0
+[7.5-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031608/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031608/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+
+[7.5-每日要闻-匈语版-Hungarian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031629/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031629/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E5%8C%88%E8%AF%AD%E7%89%88-Hungarian.pdf)
+
+[7.5-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031832/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30031832/7.5-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+
+1

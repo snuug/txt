@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國金融制裁逼近, 中資銀行或將放棄SWIFT
-`2020-07-30 00:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/279844/)
+## 【多語言圖文版】7月7日中共病毒疫情要聞快報
+`2020-07-30 03:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280077/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30001229/Picture-1-191.png)圖片來源：wikipedia 
-路透社(Reuters)7月29日消息，根據中國銀行投資銀行部的一份報告顯示，中共將通過增加使用自己的金融信息網絡用於中國內地、香港和澳門的跨境交易來為美國潛在的金融制裁做準備。
+[7.7-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032919/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032919/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
 
-路透社本月初報導說，中國國有銀行一直在修訂應急計劃，應對未來美國立法處罰銀行，針對參與實施香港新國家安全法的在職官員。
+[7.7-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032924/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032924/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
 
-BOCI(中銀國際)和前外匯監管機構合著的報告中表示，CIPS(跨境銀行間支付系統)的更多使用替代了比利時的SWIFT系統，也會減少中國全球支付數據在美國的曝光。
+[7.7-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032928/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032928/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
 
-該報告著眼於美國可能對中資銀行採取的潛在措施，包括切斷中資銀行對SWIFT金融信息服務的訪問。 SWIFT是全球銀行進行金融交易的主要網絡。
+[7.7-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032931/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032931/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
 
-中共2015年啟動了CIPS清算和結算服務系統來幫助人民幣國際化。在中共中央銀行的監管下，CIPS表示，2019年結算服務系統每天處理來自96個國家地區的1357億元人民幣（約合194億美元)。
+[7.7-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032935/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032935/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
 
-報告還指出，如果美國採取切斷一些中資銀行獲得美元結算的渠道的極端行動，中共也應該考慮停止使用美元作為錨貨幣的外匯管制。此外，該報告還建議中共制定類似於歐盟的《阻止法規》，使歐盟還能夠維持和美國製裁的目標國家伊朗之間的經貿關係。
+[7.7-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032938/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30032938/7.7-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
 
-[原文鏈接](https://www.reuters.com/article/us-china-banks-usa-sanctions-idUSKCN24U0SN)
 
-翻譯報導：Tracy 
-校對整理：文投
 
 1
