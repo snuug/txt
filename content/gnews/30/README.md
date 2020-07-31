@@ -1,19 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【多語言圖文版】7月9日中共病毒疫情要聞快報
-`2020-07-30 06:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/280219/)
+## 實地采訪【中共合村並居真相】 老百姓苦不堪言！
+`2020-07-30 07:29 GM30` [轉載自GNews](https://gnews.org/zh-hant/280363/)
 
-[7.9-每日要闻-俄语版-Russian](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063104/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063104/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E4%BF%84%E8%AF%AD%E7%89%88-Russian.pdf)
+**作者：小妍說**
 
-[7.9-每日要闻-法语版-French](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063108/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063108/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%B3%95%E8%AF%AD%E7%89%88-French.pdf)
+今天我在網絡上看到一個視頻講述的是山東施行的合村並居，在政府的各種手段逼迫下，有居民選擇服藥自殺的事件。看到這個新聞我就想再聊聊合村並居的這個事情，之前我可能只是通過新聞來了解這個事，但最近，我實地采訪了一個剛剛經曆過合村並居的阿姨，她和我詳細的講述了一下，她們那裏的故事！阿姨告訴我，她們村子合村並居的房子是按照幾等房分錢的，一等房給800元一平米，二等房是600元一平米，三等房是500元一平米，拆了她們的房子最多的也就是給8萬多人民幣，不光這樣，她們還要每平方米添1000多人民幣去購買政府給她們准備的房子，阿姨說：房子的質量非常差，根本沒有辦法裝修，屋裏面的牆面上都是下雨時滲透的痕迹，而且連窗戶框都是歪的，她們都算好的，她們附近有的村子，甚至先拆後建，先把老百姓的購房款收上來，用老百姓交的錢去蓋房子，在賣回給她們，至于多久能建好，有沒有住房補貼，開發商會不會賠錢跑路，對于她們完全沒有保障。而且這些都是強制執行的。阿姨一直非常憤怒的在說：眼睜睜的看著自己那麽好的房子就被拆了，心裏特別難過，還說當地政府的領導都掙得盆滿缽滿，老百姓則是自己的地沒有了，更倒黴的是房子也有可能沒有！
 
-[7.9-每日要闻-韩文版-Korean](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063111/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063111/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E9%9F%A9%E6%96%87%E7%89%88-Korean.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30072408/%E5%9B%BE%E7%89%871-1.jpg)
 
-[7.9-每日要闻-日语版-Japanese](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063115/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063115/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E6%97%A5%E8%AF%AD%E7%89%88-Japanese.pdf)
+在中共國，農民失去了農田和宅基地，年輕人就不用說了，在哪裏都能賺錢，但是需要活到老幹到老，因爲你失去農田和宅基地，你幹不動很有可能連吃喝都沒有，你的村並了，你的地沒了，爲了生活到最後只能是拾荒乞討。而且農民住到樓上就變成城裏人了嗎？就能在當地就業嗎？不還是要背井離鄉，房屋空置，真不知道中共這個合並有什麽意義？這事說好聽點，叫地方債務危機下的無奈自救，說難聽點就是剝削農民最後剩余價值。過去家電賣不出去了，家電下鄉。汽車賣不出去了，汽車下鄉。現在房子賣不出去了，房地産下鄉。現在就是拿槍頂著你拆了你家房子，在給你蓋上新房子讓你花錢買。這一拆一建，中共政府一分錢不用花，既改善了鄉村，政績又好看，上下都吃肥。又刺激了消費，最後還能提高GDP 。
 
-[7.9-每日要闻-西语版-Spanish](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063120/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063120/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%A5%BF%E8%AF%AD%E7%89%88-Spanish.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30072433/%E5%9B%BE%E7%89%872-1.jpg)
 
-[7.9-每日要闻-英文版-English](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063125/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30063125/7.9-%E6%AF%8F%E6%97%A5%E8%A6%81%E9%97%BB-%E8%8B%B1%E6%96%87%E7%89%88-English.pdf)
+這就是赤裸裸的犧牲農民長期利益之後，把土地收益全部轉移到中共政府和相關利益群體手中，其實這樣的操作在中共曆史上已經進行過很多次了。短期看是農民拿到了一點補償買了並居的樓房之後大的省份甚至可能還有點剩余，但是隨之而來的是他們的生活成本直線上升，很多硬性支出會産生。之前自家農村自己生産的生活産品對自己的補貼消失，同時可能面臨資金向主城區放水，把補償的那點資金洗劫一空。拿農民土地資源填補瘋狂的地方債窟隆，高杠杆搞地産開發造成的壓力等等。這完全是將未來風險完全轉嫁到農民群體身上並將好處和收益自己吞掉。今天中共可以以發展之名隨意拆你房子，明天就可以以發展爲名掠奪你的財産。誰還能在此安心創造財富，每天提心吊膽冒著隨時被強取的風險。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30072454/%E5%9B%BE%E7%89%873-1.jpg)
+
+在任何一個國家，房子都是私有財産，沒有農民同意，竟然強制拆除，如何談依法治國。農村分散居住，本來就是合理情況。國外多少農民都是獨自一戶在自己農田的邊上。這方便耕作和管理。除了中共國，難道還有其他國家要強制農民集體居住嗎？中共天天吹噓的什麽基層控制力強的謊言現在早已不攻自破了。逼迫農民拆遷都得靠警察暴力，這基層大概也沒什麽不靠暴力能辦成的事了。我知道山東是中共國兵源第一大省。我相信這些被強拆的農民應該有很多孩子是當兵的，有朝一日希望這些農民的孩子，當你們面對的不是侵略者而是面對強拆無助的百姓時，當連長面露猶豫，指導員厲聲催促時，你們一定要學會把握好手中槍口的方向啊！
+
+GNEWS之前文章：
+到底是誰感染了新疆？[https://gnews.org/zh-hans/279238/](https://gnews.org/zh-hans/279238/)
+新計劃經濟2.0 [https://gnews.org/zh-hans/279957/](https://gnews.org/zh-hans/279957/)
+
+（文章內容僅代表作者觀點）
 
 0
