@@ -1,18 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NBA表示中共籃球學院應該重視球員人權問題
-`2020-07-30 23:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281011/)
+## 【世界多語言圖文】2020/06/28 CCP病毒每日疫情直播簡報
+`2020-07-31 08:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/281276/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30233909/1-168.png)
-據ESPN (體育電視網) 的記者費納魯(Steve Fainaru) 和馬克(Mark Fainaru-Wada)揭露由於NBA在華學院內部對於“人權問題”的指控。費納魯和馬克報導說，美國教練舉報學院內的中國教練“體罰年輕球員並且不提供教育。”報告還說，“美國教練在新疆經常受到騷擾和監視。”
+戰友之家圖文摘要組及小語種組
 
-&lt;體育畫報&gt;的戴倫格(Ross Dellenger)公佈了一封NBA專員西爾弗（Adam Silver）寫給共和黨參議員布萊克（Sen. Marsha Blackburn）的信，信中說NBA聯盟已經切斷了與新疆訓練學院的合作關係。 NBA副主席負責國際運營的塔圖姆（Mark Tatum）也向費納魯和馬克談到了聯盟的這一舉動。
+[English\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)
 
-塔圖姆說:“我們在這裡學到的教訓之一是我們需要對學院進行更直接的監督，並在適當時進行人員配置的變更。”關於如何解決學院內部提出的人權問題，塔圖姆補充說“NBA已經盡了最大的努力，我們的監督權是有限的。”
+[French\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)
 
-塔圖姆沒有明確說明NBA關閉新疆學院是因為體罰的醜聞，而是說這是“很多因素”導致的決定。
+[Japanese\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)
 
-在休斯敦火箭隊總經理莫雷(Daryl Morey)分享了一條推文公開支持香港的民主抗議者後，NBA與中共之間的商業關係成為了被世界廣泛討論的話題。中共官員譴責了莫雷的舉動，並且中共暫停了一切與NBA聯盟的合作。西爾弗後來提到中共政府甚至要求NBA解僱莫雷。
+[Korean\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)
+
+[Spanish\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)
+
+
 
 0
