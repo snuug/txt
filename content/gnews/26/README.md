@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新聞秘書就執行川普總統防止網路審查行政命令的執行情況發表聲明
-`2020-07-30 08:01 GM31` [轉載自GNews](https://gnews.org/zh-hant/280391/)
+## 習近平拒絕取消贊比亞100億美元外債之中的中共部分
+`2020-07-30 10:59 GM77` [轉載自GNews](https://gnews.org/zh-hant/280629/)
 
-#### Statement from the Press Secretary Regarding the Implementation of President Trump’s Executive Order on Preventing Online Censorship
+編撰：多梅尼科、hans（文玄）、Cash2019、文非、文肯尼
 
-### **新聞秘書就執行川普總統防止網路審查行政命令的執行情況發表聲明**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30105608/2-69.jpg)
 
-Issued on: July 29, 2020
+圖片來源：法新社/蓋蒂圖片社
 
-2020年7月29日發佈
+2018年9月1日，贊比亞總統埃德加-倫古（左）在人民大會堂與中共國家主席習近平舉行雙邊會晤前握手。當時，倫古正準備參加中共將於9月3日和4日在北京舉行的中非合作論壇。
 
-On Monday, the Department of Commerce, as directed by President Donald J. Trump’s Executive Order on Preventing Online Censorship, filed a petition to clarify the scope of Section 230 of the 1996 Communications Decency Act. The petition requests that the Federal Communications Commission (FCC) clarify that Section 230 does not permit social media companies that alter or editorialize users’ speech to escape civil liability. The petition also requests that the FCC clarify when an online platform curates content in “good faith,” and requests transparency requirements on their moderation practices, similar to requirements imposed on broadband service providers under Title I of the Communications Act. President Trump will continue to fight back against unfair, un-American, and politically biased censorship of Americans online.
+贊比亞是通過“一帶一路倡議（BRI）”向中共大量舉債的眾多非洲國家之一，在該倡議下，中共利用掠奪性貸款大量資助發展中國家開展基礎設施項目建設。BRI項目旨在通過增加其他國家對中共經濟的依賴性，在全球範圍內擴大中共的影響力來為北京服務。該倡議目前在非洲取得了一定的效果，中共已成為這個貧困大陸的最大債權人。
 
-週一，按照唐納德.J.川普總統關於防止線上審查的行政命令的指示，商務部提交了一份請願書，以澄清1996年《通信規範法》第230條的範圍。請願書要求聯邦通信委員會（FCC）澄清：第230條不允許社交媒體公司通過更改或編輯用戶言論來逃避民事責任。請願書還要求聯邦通信委員會明確線上平臺何時以 “誠信”的方式管理內容，並對其審核制度的做法提出透明度要求，這類似於《通信法案》第一章對寬頻服務提供者的要求。川普總統將繼續反擊美國網路中不公平的、反美的以及帶有政治偏見的審查制度。
+據報道稱，在贊比亞“超過100億美元的外債中，中共就占據了約64億美元，其中，大部貸款都應用於基礎設施建設“。贊比亞只是非洲國家面臨債務危機的其中一個例子，當前中共CCP病毒大流行及其造成的經濟停滯使這些國家的債務危機變得更加嚴重。非洲在中共的債務總額達1450億美元，今年欠款超過80億美元。
 
-出處：[Statement from the Press Secretary Regarding the Implementation of President Trump’s Executive Order on Preventing Online Censorship](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-implementation-president-trumps-executive-order-preventing-online-censorship/)
+今年6月，習近平表示，中共將取消相關非洲國家所欠下的無息債務，作為北京在CCP病毒大流行期間資助非洲國家行動的一部分。但中共的大部分債務都屬於優惠貸款，由私人實體發行的，這意味著信貸更難被寬恕或免除。
 
-*翻譯：【重生】  校對：【GM31】*
+觀察人士說，雖然北京過去已經取消了向非洲國家提供的大部分無息貸款，但它們只占非洲對中共金融債務總額的5%，其余的由優惠貸款和商業貸款覆蓋。《南華早報》指出了習近平的誤導性承諾。
 
-*戰友之家玫瑰園小隊出品*
+**編者觀點：**
 
-1
+中共通過債務手段制約和拉攏非洲國家，以擴大自己在世界上的影響力，自1949年中共建政以來，中共一直對非洲國家給予所謂“援助”，基本都是以政治目的為主。
+
+中共對非洲的拉攏起到了一定的作用。例如：1971 年 10 月 25 日，第 26 屆聯合國大會恢復中共在聯合國的合法席位，76 張贊成票中有 26 張來自非洲國家。
+
+中共自改革開放，加入WTO以來，進一步加快了債務外交的步伐。當債務國沒有經濟能力償還債務時，中共便開始掠奪其資源。斯裏蘭卡便是中國債務陷阱外交弊病的典型代表。中共為漢班托塔港提供了巨額資金貸款，但港口發生虧損後無力償還貸款。最終的結果就是斯裏蘭卡被迫將這個具有重要戰略意義的港口租賃給中共使用。這就是中共債務外交背後的秘密。
+
+非洲國家毗鄰歐亞大陸，各類資源十分豐富，地緣政治地位極為重要。中共正是瞄準了這一目標，極力向非洲擴張，加強自己的影響力和控制力。非洲國家正在對來自中共的貸款產生依賴性，蘊藏的潛在風險巨大，目前已經有許多非洲國家正因此而掉入債務陷阱，不得不對中共言聽計從，形成了一定程度上的“命運共同體”。例如：中共在出臺《港版國安法》之後，竟然會有大量非洲國家表態跟其站在一起。
+
+相關來源：
+[https://www.breitbart.com/africa/2020/07/28/report-xi-jinping-refused-to-cancel-chinese-portion-of-zambias-10-billion-debt/](https://www.breitbart.com/africa/2020/07/28/report-xi-jinping-refused-to-cancel-chinese-portion-of-zambias-10-billion-debt/)
+
+0
