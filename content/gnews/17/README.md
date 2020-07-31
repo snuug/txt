@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/06/28 CCP病毒每日疫情直播簡報
-`2020-07-31 08:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/281276/)
+## 湯姆•科頓參議員呼籲修改法律擴大對中共外國代理人的控訴範圍
+`2020-07-31 09:37 GM77` [轉載自GNews](https://gnews.org/zh-hant/281395/)
 
-戰友之家圖文摘要組及小語種組
+**編撰**：Cash2019、文盲2020、文非、文肯尼
 
-[English\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31093226/9-5.png)
 
-[French\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)
+華盛頓特區-阿肯色州參議員湯姆·科頓（Tom Cotton）發表以下聲明，此前有消息稱，阿肯色大學前一位與中國有聯系的教授因電匯和護照欺詐罪被起訴：
 
-[Japanese\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)
+“聯邦執法機構因對涉嫌的中共特工西蒙·紹特·昂昂（Simon Saw-Teong Ang）提起了有力的訴訟而值得贊揚。但中共間諜不是普通的欺詐者，而是在為外國對手工作。我們應該修改法律，以便將來外國代理人不僅要為電匯欺詐負責，尤其是從中國共產黨那裏拿錢替中共辦事，在這種情況下是真正的犯罪。”
 
-[Korean\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)
+**編者觀點：**
 
-[Spanish\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)
+制定“限制外國勢力與影響力之法律”並非是新的思維，美國在第二次世界大戰期間，為打擊納粹在其境內的侵略性宣傳工作，於1938年通過《外國代理人登記法》（Foreign Agents Registration Act, FARA），要求在美境內任何代表外國政府工作的人士（政治遊說者、企業公司、媒體機構等）均需向美國司法部登記並披露這種關系。
 
+在美合法註冊外國代理人，但越過法律紅線行事，終究要遭受法律懲罰。中共近年來已經成為美國真正的對手，手段無所不用其極。中共更擅長利用美國法律漏洞來施展手腳，這不僅是對美國開展真正意義上的“超限戰”，更是對美國法律底線的挑戰。
 
+不戰而屈人之兵是共產黨更優選擇的戰略，中共沒有直接挑戰美國的實力，但中共並沒有放棄對美國民主國家的攻擊，反而轉用卑劣手段來挑戰美國。在此背景下，美國需要出臺更嚴苛的法律針對外國代理人在美國的違法行為進行指控與起訴，尤其是對那些為中共工作的代理人進行全方位地監管。
 
-0
+新聞來源：[https://www.cotton.senate.gov/?p=press\_release&id=1403](https://www.cotton.senate.gov/?p=press_release&amp;id=1403)
+
+1

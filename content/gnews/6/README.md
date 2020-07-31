@@ -1,36 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年7月30日郭文貴先生连线韩国战友直播摘要
-`2020-07-31 12:23 GM10` [轉載自GNews](https://gnews.org/zh-hant/281527/)
+## 俄亥俄州中國夫婦對密謀竊取醫學商業機密並在中國銷售的行為認罪
+`2020-07-31 13:33 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281550/)
 
-**戰友之家摘要組**
+[美國司法部於2020年7月30日公佈](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)，前居住在俄亥俄州的女子陳莉和她的丈夫周宇，被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密和實施電訊欺詐。今天在美國地方法院通過視頻會議認罪，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31132643/DOJ_20200730_Li_Chen_Pleaded_Guilty_photo.jpg)
+中英文對照全文：
 
-00：00 文貴給韓國戰友一個大禮，參與到建設一個新世界裏面。閆麗夢博士能否滅共，不行。現在受到威脅最大的不是中國人，而是其它國家。共黨正在幫助埃及、伊朗、中東某個國家和巴基斯坦建設P3實驗室，北朝鮮也在建設中。這些國家有了生化武器就兩個目標：一個是美國，二猶太人。伊朗在中東就是滅以色列的。全人類都要記住文貴在韓國站說的話，美國和猶太人都面臨一個最大挑戰，一波一波的生化危機，要麼滅了共產黨。人類面臨最大的威脅和綁架，過去幾個月人類還是沒有醒來，西方的邪惡勢力還在勾結共黨。他們沒有意識到，這個生化危機還會繼續來。這麼多P3實驗室只有美國和猶太人這兩個目標。今天的爆料未來會被驗證。
+Department of Justice
 
-04：50 第二個問題，中共病毒使得全球經濟處在崩潰邊緣，需要多久恢復，文貴認為只要共黨滅了，恢復應該不會太久。美國經濟下行很大，歐洲還在調整中，互聯網信息市場把美國整個股票市場擡起來了。這是一個新興人類產業。人類生活方式、行為模式導致新的經濟模式。韓國將是亞洲經濟恢復最快的，因為韓國民族很強悍。等病毒的事過去了，很多人就可以用低廉的價格買到很高價值的資產，很多資產會賤賣。接下來新型轉型，科技產業也會大變革。
+司法部
 
-08：23 非洲和中共國恢復可能性不大，因為沒有技術，而且別人不跟你玩了。如果中共不滅或者新政權不為人所信賴，那麼以後經濟就完蛋了。我們戰友機會很大，只要你有精力又年輕，都有可能找到很多機會。如果美國和以色列不幹掉這些魔鬼，整個人類都完了。這次是人類大機會，大家一定要抓住機會。經濟只會區域性不平衡，同時產生巨大機會。
+Office of Public Affairs
 
-11:10 羥氯喹是目前最有效的藥物但是還是推廣不利。後面是否有人控制、阻礙。雖然西方制度不完美，資本主義制度不完美，但是比獨裁社會主義還是要好很多。文貴每天的生活成本很高，需要大量資產，所以沒有資本就不會有爆料革命。班農在川普酒店搞的活動我們也有出錢。羥氯喹影響了兩個利益：第一，美國最大醫藥集團，全世界黑社會都沒有他們掙錢。西方國家醫藥是利潤最高的，美國總統都不敢說話。這些公司背後政治力量太大了。羥氯喹開放了會有一萬到兩萬億資產，這個力量太大了。美國整個醫療局是最早給武漢實驗室拿錢的。這些醫療科技巨頭，最怕你們把羥氯喹開放，開放後200個，十板價格20美金。他們想要賣五十美金，後面利益太大。會顛覆全人類的利益，我們在通過自己渠道分發。我們讓他們知道下一個要幹掉的就是以色列和美國。羥氯喹和阿奇黴素絕對有用。所以第一力量後面就是華爾街背後的資本力量，但是這些都要發生劇變，也使得我們很榮幸，這將誕生人類新格局。社會主義和資本主義都要巨大變化。文貴痛斥醫藥巨頭做壞事太多，必然遭到報應。文貴在吃羥氯喹，已經吃了20多粒了，文貴家人當心他的安全。
+公共事務辦公室
 
-24:23 皮特納瓦羅和川普總統啥時候可以說出來新中國聯邦——嚴格講皮特沒有承認新中國聯邦，僅僅算是默認。在CSpan全國直播中出現我們戰友全球遊行，文貴感到意外，皮特離開後被幾個大佬質疑是否默認，皮特說新中國聯邦正在支持美國，希望可以繼續下去。現在還有很多美國人在默默支持我們，符合我們的利益，不能一次走太大。我們定位不同於法輪功，是一個政治團體，有政治訴求，就是推翻中共，我們和中共的人權、自由、法治訴求都不同，世界不能拒絕我們。實力大於虛名。大量歐洲機構組織都在聯系我們，他們期望知道我們未來如何發展。
+FOR IMMEDIATE RELEASE Thursday, July 30, 2020
 
-33：20 7.27更多戰友站出來了，這個對國內戰友影響如何，無法具體用語言來形容，比如巨大之類。這次是個本質改變，所有人給文貴發信息，很多孩子被喝茶多次，很少直接聯系文貴，他們給文貴發幾個信息圖，文貴連線各地後傳播曲線直線上升。英國是在最後遊行時候數據劇烈上升。所有的數據都是在關鍵時刻出現過，比如419直播。這個都是在防火墻控制之下實現的，很多傳播都是通過數據鏈的傳播。戰友直接反饋，第一我們拒絕被代表，第二，安紅在澳洲影響很大，說我想家想父母。另外我們跟他們不一樣，共黨不代表我們，愛國不代表愛黨，沒有人罵新中國聯邦，他的訴求都是中國人的訴求。代表我們真心想要滅共，我們不同於中共。不論是否可以再未來控制中國，至少我們被西方接受了。這個是我們共同的家。
+2020年7月30日 立即發佈
 
-39：55 新中國聯邦各個年齡段出來遊行都有，民心所向。未來國內如何走向？我們走到今天是全國戰友大量支持的結果，是文貴多年經營的結果，所以國內的事情文貴都知道。他們沒心情管水災的事；三峽是別的領導建的，自己不在乎。他們覺得死人多了好控制，對美國認為川普一定被幹掉，只要川普輸了，他的團隊去了，美國就搞定了。對於經濟他們認為中國人三十年前還燒柴火，現在可以用天然氣了，還要求啥？中國閉關鎖國還可以過很多年，中國人韌性強，死多少人無所謂，只要我在位子上，你們吃草無所謂。香港天天成了策反基地了，香港必須拿下，如果美國支持臺灣打下來打碎她。死上一百萬將軍自然出來了。一百萬死了可以出一個元帥，十萬士兵死了出一個將軍。只有內部政治會贏。大家不要天真，共黨認為你們都死了我就贏了，跟宗教信仰沒有關系。過去兩周在河南一帶、三門峽，孟建柱的基地，孫立軍的基地，被抓的人都是全部交代，只要求不禍及家人。共黨就是一個流氓，他們知道共黨一定利用你的家人來搞死你，所以每個人都一抓就跪。普通人再有本事也沒用，沒有未來。文貴笑談一個政法委高官被抓後家裏的資產無數。居然有蠟化的小孩屍體，和大量變態東西，超過大家想象。中國人的災難不存在閉關鎖國，這個國已經地獄化了，那樣邪惡的人可以存在，如果我們改不了這些心霾，精神枷鎖中國的未來還早著呢。到處是吃喝騙，虐待弱者，沒有任何人性。
+**Researcher Pleaded Guilty to Conspiring to Steal Scientific Trade Secrets from Ohio Children’s Hospital to Sell in China**
 
-58：20 新中國聯邦有些戰友不明白，共黨大赦的事是什麼情況，郭先生對死刑如何看？我們憲法是否會廢除死刑。一次文貴離開北朝鮮，需要繞道中國去韓國。飛機幾乎感覺是去了三個不同世界。文貴喜歡韓國，但是娛樂這一套比共黨還邪惡。韓國人內心太壓抑了。新中國聯邦所有戰友想的問題和我們沒有關系，不要想太高了。韓國人臆想很多別的事，我們要想一件事，只要讓共黨消失，後面的事不是我們決定的，要讓人民一人一票去決定。只要滅共，什麼後面都是人民自己的事。文貴調侃偽類民運的事。我們要無我，我們不要桃子，就不怕偷桃的，必須大赦但是錢一定要還回去。共黨的財富都是來自人民，所有共黨都來自於我們普通人家人，不要老是對自己人最狠。我們缺的是信仰人性，如果不分真假善惡，就不是人。只要加入共黨就不可以分真假，分善惡。黨員犯罪中國人就都是犯罪份子。必須大赦。否則中國要軍閥四起，會死掉70-80%的人。就會進入人吃人的時代，必須忘掉過去，建立法治，否則還不如共黨。
+**研究人員對密謀竊取俄亥俄州兒童醫院的醫學商業機密並在中國銷售的行為表示認罪**
 
-1：07：35 以後新中國聯邦和韓國、日本經濟政治關系如何走向？成就文貴來自港澳臺、歐美、韓國和日本，沒有共黨後我們不同於他們，不會挑戰美國。亞洲、日本、韓國、新加坡都不可能和共黨玩，所以他們不能控制亞洲。未來韓國和北朝鮮一定統一，亞洲民主國家後未來無人可擋中國和亞洲七小龍會占全世界大多數財富。而且美國歐洲的消費市場也會逐步降低到50%左右，日本新加坡，安倍的貿易協議非常重要。太平洋貿易協議，我們進去後，不再做亞洲霸主後，亞洲會是未來一千年的最大的區域。未來海洋文明和大陸文明都要去了，是互聯網的國家。未來是有信仰和沒有信仰國家的對抗，未來等亞洲統一後是一個信仰後勤勞的國家對抗不勤勞的國家。中國外交官員極端無恥，都是傻叉，他們心裏也知道，一堆狗屎領導最勤勞的百姓，所以知道必須奴役中國人才可以維護他們的政權。很多國家希望未來接受大量中國人。接受一百萬香港人就會有一個香港，接收五千萬中國人就會有一個新中國。接下來全世界都會愛中國人。
+Crime is Another Example of Economic Malfeasance Related to the Peoples Republic of China Accommodating Theft of Commercial Products They Cannot Field Organically
 
-1:17:25 文貴先生和韓國戰友互動，大喊消滅共黨。呼籲戰友好好培養孩子。文貴提三個要求：
-第一，韓國疫情威脅，大家備好口罩藥品，一定還有一波疫情。大家一定要準備好，保護好戰友。
-第二，韓國還希望有更多戰友站出來，想盡辦法把韓國建成對抗中共基地，準備接收幫助戰友逃離中共。
-第三，韓國戰友非常堅定，大家一定要懂得財務，用心經營，一手強大隊伍，一手讓戰友發財。G系列要配合你們做大做強。未來戰友前途無限。Gfashion樣品很好，班農都動心了。班農感慨文貴的時間使用非常有效，還有掙錢能力太強了。希望未來戰友衣著，教養都要有極大提高。文貴和戰友祈福！
+此犯罪是另一個與中華人民共和國有關的經濟不法行為的例子，縱容偷竊他們不能自主研發的商業產品
 
-1:30:30 GTV新生，期待戰友做有價值節目。做好Gnews，韓國要發聲出來，在韓國做好G系列，這個太重要了。文貴非常榮幸接收大家采訪。
+Former Ohio woman Li Chen, 46, pleaded guilty today via video conference in U.S. District Court today to conspiring to steal scientific trade secrets and conspiring to commit wire fraud concerning the research, identification and treatment of a range of pediatric medical conditions.
 
-更多詳情請點擊：[https://youtu.be/OG1uN9zWaSE](https://youtu.be/OG1uN9zWaSE)
+46歲的前居住在俄亥俄州的女子陳莉（音譯，Li Chen）今天在美國地方法院通過視頻會議認罪，她承認密謀竊取醫學商業機密，並密謀對一系列兒科疾病的研究、鑒定和治療實施電訊欺詐。
+
+“Once again we see the People’s Republic of China (PRC) facilitating the theft of our nation’s ingenuity and hard work as part of their quest to rob, replicate and replace any product they don’t have the ability to develop themselves,” said John C. Demers, Assistant Attorney General for National Security. “Far from being an isolated incident, we see the PRC implicated in around 60 percent of all trade secret theft cases. This continued economic belligerence runs contrary to the values and norms that facilitate the success of our industries and countering it remains among our highest priorities.”
+
+負責國家安全的助理司法部長約翰·C·德默爾斯表示：「我們再次看到中共國（PRC）為竊取我們國家的知識財富和工作成果提供了便利，搶奪、複製和取代任何他們沒有能力自己開發的產品，這是他們謀求的一部分」，「這絕非個別事件，在所有竊取商業秘密的案件中，約有60%的案件涉及中國。這種持續的經濟交鋒與促進我們產業成功的價值觀和規範背道而馳，打擊這種行為仍是我們的最優先事項之一」。
+
+“Nationwide Children’s Hospital’s Research Institute took reasonable measures to protect its cutting-edge intellectual property and trade secrets regarding exosomes, and I commend the cooperation of Nationwide Children’s throughout this investigation,” U.S. Attorney David M. DeVillers said. “Chen betrayed her employer of 10 years by stealing trade secrets from this American institution and transferring them to China after receiving payments from the Chinese government.”
+
+美國檢察官戴維·M·德維爾勒斯表示：「全國兒童醫院（Nationwide Children’s Hospital）的研究所採取了合理的措施來保護其有關外植體的尖端知識產權和商業秘密，我對全國兒童醫院在整個調查過程中的合作表示贊賞」，「陳莉背叛了她10年的雇主，竊取了這家美國機構的商業秘密，並在收受中國政府的報酬後將其轉移到中國」。
+
+“Li Chen was a trusted researcher at Nationwide Children’s Hospital, conducting cutting-edge U.S. government-funded research,” stated FBI Cincinnati Special Agent in Charge Chris Hoffman. “With her guilty plea, she admits that she abused this trust to establish a company in China for her own financial gain. The FBI is committed to working closely with partners such as Nationwide Children’s Hospital to protect the innovations that make America a world leader in science and technology.”
+
+聯邦調查局辛辛那提特別負責探員克里斯·霍夫曼表示：「陳莉曾是全國兒童醫院一位值得信賴的研究人員，進行美國政府資助的尖端研究」，「隨著她的認罪，她承認她濫用這種信任，在中國建立公司，以謀取自己的經濟利益。聯邦調查局致力於與全國兒童醫院等合作夥伴密切合作，以保護使美國成為世界科技領導者的創新成果」。
+
+Chen admitted to stealing scientific trade secrets related to exosomes and exosome isolation from Nationwide Children’s Hospital’s Research Institute for her own personal financial gain.
+
+陳某承認為了自己的個人經濟利益，竊取了全國兒童醫院研究所有關外排體和外排體分離的醫學商業秘密。
+
+Chen and her husband, alleged co-conspirator Yu Zhou, 49, worked in separate medical research labs at the Research Institute for 10 years each (Zhou from 2007 until 2017 and Chen from 2008 until 2018). They are charged with conspiring to steal at least five trade secrets related to exosome research from Nationwide Children’s Hospital.
+
+陳莉和她的丈夫，被指控的同謀，49歲的周宇（音譯，Yu Zhou）分別在各自研究所的醫學研究實驗室工作了10年（周宇從2007年到2017年，陳莉從2008年到2018年）。他們被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密。
+
+Exosomes play a key role in the research, identification and treatment of a range of medical conditions, including necrotizing enterocolitis (a condition found in premature babies), liver fibrosis and liver cancer.
+
+外排體在研究、鑒定和治療一系列醫學疾病中發揮著關鍵作用，包括壞死性腸炎（早產兒的一種病症）、肝纖維化和肝癌。
+
+According to her plea agreement, Chen conspired to steal and then monetize one of the trade secrets by creating and selling exosome “isolation kits.” Chen admitted to starting a company in China to sell the kits. Chen received benefits from the Chinese government, including the State Administration of Foreign Expert Affairs and the National Natural Science Foundation of China. Chen also applied to multiple Chinese government talent plans, a method used by China to transfer foreign research and technology to the Chinese government.
+
+根據她的認罪協議，陳某共謀竊取商業秘密，然後利用其中之一通過製造和銷售「分離試劑盒」來牟取利益。陳某承認在中國成立了一家公司來銷售這些試劑盒。陳某從中國政府，包括國家外國專家局和國家自然科學基金委員會處獲得了利益。陳某還簽約了多個中國政府人才計劃，這是中國用來向自己政府挪移外國研究和技術的一個方法。
+
+As part of her plea, Chen has agreed to forfeit approximately $1.4 million, 500,000 shares of common stock of Avalon GloboCare Corp. and 400 shares of common stock of GenExosome Technologies Inc.
+
+作為認罪的一部分，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
+
+Chen and Zhou were arrested in California in July 2019 and their case was unsealed in August 2019 when they appeared in federal court in Columbus.
+
+陳某、周某二人於2019年7月在加州被捕，案件於2019年8月在哥倫布聯邦法院出庭時解封。
+
+John C. Demers, Assistant Attorney General for National Security;David M. DeVillers, United States Attorney for the Southern District of Ohio; and Chris Hoffman, Special Agent in Charge, Federal Bureau of Investigation (FBI), Cincinnati Division, announced the plea entered into today before U.S. District Judge Sarah D. Morrison. Assistant U.S. Attorneys S. Courter Shimeall, Peter K. Glenn-Applegate, Special Assistant U.S. Attorney J. Michael Marous and National Security Division Trial Attorney Matthew J. McKenzie, are representing the United States in this case.
+
+負責國家安全的助理司法部長約翰·C·德默斯、俄亥俄州南區聯邦檢察官戴維·M·德維爾勒斯和聯邦調查局辛辛那提分局負責特別探員克里斯·霍夫曼，今天在美國地區法官莎拉·D·莫里森面前宣佈了認罪協議。美國助理檢察官庫爾·希默爾、彼得·格倫·阿普爾蓋特、美國特別助理檢察官邁克爾·馬魯斯和國家安全處審判律師馬修·麥肯齊在此案中代表美國。
+
+[閱讀英文全文](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)
+
+*翻譯：【Dlrow】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
