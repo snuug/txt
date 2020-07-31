@@ -1,21 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/06/28 CCP病毒每日疫情直播簡報
-`2020-07-31 08:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/281276/)
+## 7月31日中共病毒疫情要聞快報
+`2020-07-31 10:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281460/)
 
-戰友之家圖文摘要組及小語種組
+**重要內容：**
 
-[English\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)
-
-[French\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)
-
-[Japanese\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)
-
-[Korean\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)
-
-[Spanish\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)
+- 中共幫獨裁國家研發病毒攻擊美國！
+- 羥氯喹雖非神藥，但可救命！
+- 蓬佩奧：中共是「世紀威脅」！
+- 葡萄牙切割華為5G；
+- 鐘翰林等四人被指“分裂國家”，白色恐怖降臨香港！
 
 
 
-0
+
+製作：【上天造滅疫組】
+
+1
