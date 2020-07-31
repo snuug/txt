@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府貸款給柯達製藥
-`2020-07-31 02:28 GM31` [轉載自GNews](https://gnews.org/zh-hant/281084/)
+## 【世界多語言圖文】2020/06/28 CCP病毒每日疫情直播簡報
+`2020-07-31 08:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/281276/)
 
-唐納德·川普於[2020年7月30日](https://www.youtube.com/watch?v=mnaYpmk8l1c)舉行新聞發佈會，宣佈川普政府正在支持柯達製藥公司的啟動，並表示今天的行動是我們建立歷史上最大的醫療陣容過程中的最新一步。
+戰友之家圖文摘要組及小語種組
 
-[閱讀英文全文](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-press-briefing-july-28-2020/)
+[English\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082253/English_0628_CCP_Virus_Updates.pdf)
 
-*翻譯：【Guanghan】校對：【Dlrow】字幕：【Melody】 編輯：【GM31】*
+[French\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082259/French_0628_CCP_Virus_Updates.pdf)
 
-*戰友之家玫瑰園小隊出品*
+[Japanese\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082303/Japanese_0628_CCP_Virus_Updates.pdf)
+
+[Korean\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082307/Korean_0628_CCP_Virus_Updates.pdf)
+
+[Spanish\_0628\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31082311/Spanish_0628_CCP_Virus_Updates.pdf)
+
+
 
 0
