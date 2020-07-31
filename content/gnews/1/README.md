@@ -1,18 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NBA表示中共籃球學院應該重視球員人權問題
-`2020-07-30 23:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281011/)
+## 中共黑客非法入侵梵蒂岡網絡
+`2020-07-31 03:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281071/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30233909/1-168.png)
-據ESPN (體育電視網) 的記者費納魯(Steve Fainaru) 和馬克(Mark Fainaru-Wada)揭露由於NBA在華學院內部對於“人權問題”的指控。費納魯和馬克報導說，美國教練舉報學院內的中國教練“體罰年輕球員並且不提供教育。”報告還說，“美國教練在新疆經常受到騷擾和監視。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31005233/1-169.png)
+來源：The Times
 
-&lt;體育畫報&gt;的戴倫格(Ross Dellenger)公佈了一封NBA專員西爾弗（Adam Silver）寫給共和黨參議員布萊克（Sen. Marsha Blackburn）的信，信中說NBA聯盟已經切斷了與新疆訓練學院的合作關係。 NBA副主席負責國際運營的塔圖姆（Mark Tatum）也向費納魯和馬克談到了聯盟的這一舉動。
+據一家美國網絡安全公司報導，在即將更新一份有爭議的，關於中共國天主教會地位的協議之際，為中共國政府工作的黑客入侵了梵蒂岡的網絡系統。
 
-塔圖姆說:“我們在這裡學到的教訓之一是我們需要對學院進行更直接的監督，並在適當時進行人員配置的變更。”關於如何解決學院內部提出的人權問題，塔圖姆補充說“NBA已經盡了最大的努力，我們的監督權是有限的。”
+位於馬薩諸塞州薩默維爾的一間私人機構稱，黑客於5月初開始對梵蒂岡的計算機和電子郵件服務器進行攻擊。他們的攻擊目標包括教廷的對外傳教所，香港天主教教區和與梵蒂岡相關的中港考察團的信息，該考察團是一個參與了2018年協議的機構，旨在分享和平衡中共和羅馬教廷之間有關任命天主教事宜的權力。
 
-塔圖姆沒有明確說明NBA關閉新疆學院是因為體罰的醜聞，而是說這是“很多因素”導致的決定。
+[原文鏈接](https://www.thetimes.co.uk/article/beijing-commits-cardinal-sin-of-hacking-vatican-mdw8xwff0#:~:text=Agents%20working%20for%20the%20Chinese,American%20cybersecurity%20company%20has%20reported.)
 
-在休斯敦火箭隊總經理莫雷(Daryl Morey)分享了一條推文公開支持香港的民主抗議者後，NBA與中共之間的商業關係成為了被世界廣泛討論的話題。中共官員譴責了莫雷的舉動，並且中共暫停了一切與NBA聯盟的合作。西爾弗後來提到中共政府甚至要求NBA解僱莫雷。
+翻譯報導：Hanstyle
 
 0

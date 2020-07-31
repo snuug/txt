@@ -1,20 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羥氯喹療效醫生系列證詞之二：布萊恩·普羅克特醫生使用羥氯喹治癒率高達100%
-`2020-07-30 23:24 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/280994/)
+## NBA表示中共籃球學院應該重視球員人權問題
+`2020-07-30 23:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281011/)
 
-得克薩斯州McKinney市的家庭醫生布萊恩·普羅克特博士（Dr. Brian C. Procter）在他的[推特](https://mobile.twitter.com/ProcterMd)上發佈視頻，宣佈使用羥氯喹、阿奇霉素和鋅治癒了75名以上的COVID-19患者，達到100%的治癒率， 而費用低於50美元。他指出，戴口罩和等待疫苗並不是解決這場危機的辦法，但盡早積極使用羥氯喹是使國家全面恢復的關鍵。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30233909/1-168.png)
+據ESPN (體育電視網) 的記者費納魯(Steve Fainaru) 和馬克(Mark Fainaru-Wada)揭露由於NBA在華學院內部對於“人權問題”的指控。費納魯和馬克報導說，美國教練舉報學院內的中國教練“體罰年輕球員並且不提供教育。”報告還說，“美國教練在新疆經常受到騷擾和監視。”
 
+&lt;體育畫報&gt;的戴倫格(Ross Dellenger)公佈了一封NBA專員西爾弗（Adam Silver）寫給共和黨參議員布萊克（Sen. Marsha Blackburn）的信，信中說NBA聯盟已經切斷了與新疆訓練學院的合作關係。 NBA副主席負責國際運營的塔圖姆（Mark Tatum）也向費納魯和馬克談到了聯盟的這一舉動。
 
-> 我宣誓忠於《希波克拉底誓言》。並將其張貼在我的大廳里；我希望所有患者都能看到這一誓言，所以我張貼在大廳里。這是我的信條，也是我對患者的承諾。FDA、CDC、NIH、WHO和Fauci博士這個宣誓詞里可沒提他們的名字，哪也沒有。我讀了，我想找他們的名字，找不到。 他們不在誓詞里，我不是宣誓效忠於他們的，我保證效忠於我的國家和《希波克拉底誓言》。
-> -萊恩·普羅克特醫生
+塔圖姆說:“我們在這裡學到的教訓之一是我們需要對學院進行更直接的監督，並在適當時進行人員配置的變更。”關於如何解決學院內部提出的人權問題，塔圖姆補充說“NBA已經盡了最大的努力，我們的監督權是有限的。”
 
+塔圖姆沒有明確說明NBA關閉新疆學院是因為體罰的醜聞，而是說這是“很多因素”導致的決定。
 
-[萊恩·普羅克特醫生推特](https://mobile.twitter.com/ProcterMd)截屏：
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30212107/AFD_20200708_Dr.Proctor-figure2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30212050/AFD_20200708_Dr.Proctor-figure1.png)[https://mobile.twitter.com/ProcterMd](https://mobile.twitter.com/ProcterMd) 
-*翻譯/聽寫：【一花一世界】校對：【Connor54】字幕：【相機過熱啊】 編輯：【Isaiah4031】*
-
-*戰友之家玫瑰園小隊出品*
+在休斯敦火箭隊總經理莫雷(Daryl Morey)分享了一條推文公開支持香港的民主抗議者後，NBA與中共之間的商業關係成為了被世界廣泛討論的話題。中共官員譴責了莫雷的舉動，並且中共暫停了一切與NBA聯盟的合作。西爾弗後來提到中共政府甚至要求NBA解僱莫雷。
 
 0
