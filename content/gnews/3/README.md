@@ -1,85 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 隱私和匿名 DT特戰旅金融課堂第三課
-`2020-07-31 22:45 DT` [轉載自GNews](https://gnews.org/zh-hant/281493/)
+## 聲稱因疫情起訴中國是巨大錯誤的參議員Dianne是不是被藍金黃了
+`2020-08-01 02:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/281818/)
 
-DT特戰旅金融課堂
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022732/%E5%B0%81%E9%9D%A2-1.jpg)
+作者：Diago
 
-*作者：長工Satoshi｜文章：西川Stanly整理*
+[Feinstein had a Chinese spy connection she didn’t know about — her driver](https://www.sfchronicle.com/bayarea/matier-ross/article/Sen-Feinstein-had-a-Chinese-connection-she-13121441.php)（費恩斯坦不知道她有一個中國間諜司機）（[Matier & Ross](https://www.sfchronicle.com/author/matier-ross/)Aug. 1, 2018 Updated: Aug. 1, 2018 9:07 a.m. ）
 
-我們前兩周說了反洗錢法, 然後破天荒說了記賬權。記賬權這個概念是比較犀利一點, 今天結合賬戶體系說隱私和匿名。畢竟, 記賬這件事, 就是誰給誰記什麼賬的問題。賬戶ID是一個基本的要素。
+【A local source who knew about the incident confirmed to us that the FBI showed up at Feinstein’s office in Washington, D.C., about five years ago to alert the then-chairwoman of the Senate Intelligence Committee that her driver was being investigated for possible Chinese spying.】
 
-上一堂課還順便蜻蜓點水說了區塊鍊和分佈式賬本。這個話題其實很大很深, 往後的課程, 應該基本都是圍繞這個來說。戰友們的留言, 對加密數字貨幣都有興趣想了解. 今天我會花大部分精力圍繞賬戶體係來分析。
+中文大意：一位元瞭解此事的當地消息人士向我們證實，聯邦調查局大約在五年前出現在費恩斯坦華盛頓特區的辦公室，以提醒時任參議院情報委員會主席的費恩斯坦的駕駛員正在接受可能的中國間諜活動的調查。
 
-**今天說隱私和匿名！**
+【Besides driving her around when she was in California, the staffer also served as gofer in her San Francisco office and as a liaison to the Asian American community, even attending Chinese Consulate functions for the senator.】
 
-[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/864e71c3-f890-4073-b182-e3c623d2dc29.jpg?asset_id=d59d787d-13d8-4738-9858-f3bb7d73ab22&amp;img_etag=%22c89342e8338303eab5ad5072f26bd736%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/864e71c3-f890-4073-b182-e3c623d2dc29.jpg?asset_id=d59d787d-13d8-4738-9858-f3bb7d73ab22&amp;img_etag=%22c89342e8338303eab5ad5072f26bd736%22&amp;size=1024)
+中文大意：除了在加利福尼亞州開車帶她到處走走之外，該職員還曾在她的三藩市辦公室擔任辦事員，並作為亞裔美國人社區的聯絡人，甚至參加了參議員在中國領事館的活動。
 
-隱私和匿名是兩個完全不等同的事情，但是基本上，很多人都搞不清楚。隱私是法律範疇內的事情, 而匿名是一種行為。人在兩種情況下選擇匿名， 一是當你的隱私安全得不到保證的時候；二是你想幹壞事不想讓人知道的時候！所以,戴著面具燈光黑暗開化妝舞會,很多最後已淫亂收場。
+【“They interviewed him, and Dianne forced him to retire, and that was the end of it,” says our source.】
 
-在一個正常的法治社會，人不需要匿名！如果推特不被BGY， 戰友們都可以隨便透露自己是誰！但只要七哥一註冊，喊一聲“今天你們健身了麼？” 那這個賬號立刻就被斃掉了！推特最近修改了使用條款, 你登錄的時候會讓你同意他的流氓條款, 讓你同意他出賣你的隱私。重點戰友肯定被重點關照了, 所以DT退出推特. 我這種小魚小蝦, 人家不感興趣, 倒也沒什麼大礙。
+中文大意：他們（聯邦調查局）訊問了這名黛恩.費恩斯坦的中國司機，黛恩迫使這名中國司機離職，這件事就這樣結束了——消息來源人士透露
 
-法律定義內涵蓋的隱私很廣的：比如你的家庭地址，比如電話號碼；你如你投票投給了誰，比如你消費了什麼；比如你愛看什麼電影，喜歡什麼食物。這些都是你的隱私。這些基本在互聯網時代已經完全透明。當你在網絡註冊賬號的時候，每一次打勾，同意使用條款，基本等同每一次對自己的隱私作出了出賣。
+[Sen. Dianne Feinstein’s Ties To China Go Way Deeper Than An Alleged Office Spy](https://thefederalist.com/2018/08/08/sen-dianne-feinsteins-ties-china-go-way-deeper-alleged-office-spy/)（By [Ben Weingarten](https://thefederalist.com/author/ben-weingarten/) 參議員戴安娜·費恩斯坦（Dianne Feinstein）與中國的關係比所謂的官員間諜要深得多（本·溫格丹（Ben Weingarten））August 8, 2018）
 
-在談金融領域的賬戶體系之前, 我們先回顧一下“紙幣現金社會”。
+【According to four former intelligence officials, in the 2000s, a staffer in Senator Dianne Feinstein’s San Francisco field office was reporting back to the MSS [[China’s Ministry of State Security](https://www.washingtontimes.com/news/2009/mar/19/exclusive-chinese-spy-who-defected-tells-all/), its intelligence and security apparatus]. While this person, who was a liaison to the local Chinese community, was fired, charges were never filed against him. (One former official reasoned this was because the staffer was providing political intelligence and not classified information—making prosecution far more difficult.) The suspected informant was ‘run’ by officials based at China’s San Francisco Consulate, said another former intelligence official. The spy’s handler ‘probably got an award back in China’ for his work, noted this former official, dryly.】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022859/%E6%8D%95%E8%8E%B72.jpg)
+中文大意：據四名前情報官員稱，在2000年代，參議員戴安娜·費恩斯坦（Dianne Feinstein）三藩市現場辦公室的一名工作人員正在向中國國家安全部報告。這名當時作為與當地華人社區聯繫的聯絡人被解雇了，（美國相關部門）從未對他提起訴訟。 （一名前官員認為這是因為該工作人員提供政治情報而不是機密資訊，使起訴更加困難。）另一名前情報官員說，可疑的線人是由駐中國三藩市領事館的官員“管理”的。這位前官員乾脆地指出，間諜的處理人員“可能在中國獲得了獎勵”。
 
-說回顧, 因為可能現在的年輕一代甚至忘記了這個時代，人們幾乎不用現金人民幣了。傳統現金社會基本不用關心賬戶的，因為現金具備天然隱私和匿名的屬性！你枕頭底下多少錢, 就是多少錢，完全沒有賬戶之說。我念高中住校, 家裡帶現金, 每個月回家一次. 錢要放非常好古代的銅錢白銀和黃金都是天然隱私和匿名的。你上街買菜，買了三斤豬肉花了90塊，拿出100，找你10塊，你帶回3斤豬肉. 這一筆交易非常簡單容易理解。你付的那100塊錢不會洩漏你的個人信息：比如生日，比如家庭住址，比如你去過哪裡！收錢的人也不用管你是誰！現金是隱私的保護神！但這幾乎都成為歷史。
+另據[醜聞升級！美多名政要涉嫌暴跌前狂拋股票，司法部開始調查](http://gold.cnfol.com/huanqiugushi/20200330/28049620.shtml)（2020-03-30 14:09:33 來源：金十數據）：
 
-傳統交易是隱私天然屏障，但現在紙幣現金逐步被替代！甚至一些混蛋國家，規定大於1000歐元的交易，不許使用紙幣！整個歐盟都是！你看到很多商品標價999歐元，不要奇怪！就差沒有規定紙幣現金屬於非法交易了！當然，能夠孕育出“共產主義”這種混蛋思想的以德法為代表的歐洲，出現多混蛋滑稽的事情都不用奇怪！你使用他們法定貨幣一次超過1000現金是非法行為！照目前的趨勢, 在一些混蛋國家, 紙幣退出流通, 甚至完全取締, 我都認為完全可能。我們已經一隻腳踏進地獄。
+【根據參議院的記錄，費恩斯坦本人並未出售任何股票。但她的丈夫在一月份和二月份出售了150萬至600萬美元的生物技術公司Allogene Therapeutics的股票。費恩斯坦本月初在推特上說，她沒有參與丈夫的財務決定。】
 
-簡單回顧現金社會完畢，下面我用支付寶的賬戶體系, 作為主要的例子, 來分析隱私和匿名。支付寶的賬戶申請和驗證, 就是手機號/電子郵件+身份驗證. 我們把這個簡單理解是開戶或者賬戶申請。
+就在這幾天美國民主黨參議員黛恩.費恩斯坦又成了中國媒體的誇讚對象——
 
-今天，“支付寶張三”給“支付寶李四”支付一筆錢, 這筆交易, 我們分析一下：張三支付的時候, 需要李四提供賬戶, 然後支付寶這個機構來記賬。張三賬戶必須有足夠餘額,才能完成。支付完成之後, 雙方都會知道對方的賬號信息；支付寶也知道；監管機構也可以隨時查詢。這筆交易, 對於不相關的, 比如隔壁老王, 就不知道這筆交易信息。這筆交易的法律有效性, 也是有保障的。那麼, 我簡單總結, 對於交易雙方, 和交易平台(支付寶)和監管機構, 這筆交易是透明的, 對於不相關的隔壁老王, 是秘密的。但是, 我今天問大家一個問題: 李四賣3斤豬肉給張三, 真需要知道張三的賬號麼？李四賣豬肉給張三, 非要告訴張三他的賬號麼？但是, 在這支付體系下, 你不告訴不行。
+據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [07月31日 10:34](https://weibo.com/1887344341/JdICrFP0f?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 【美參議員：中國是受人尊敬的國家 因疫情起訴中國是巨大錯誤】
 
-在一些傳統的金融支付方式, 比如歐美很多地方, 喜歡用支票。支票你只會透露賬戶名, 但是不會透露賬號。開成現金支票, 幾乎就是現金。缺點是支付者的賬號信息, 在支票上。收錢的人, 只需要提供名稱，比如“ABC肉舖”，至於ABC肉舖後面的賬戶, 你不需要提供。這種是保護收款者, 但是對付款者保護有限。
+29日，美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上表示，中國是一個受其他國家尊重的國家。美國如果破例因疫情取消中國的國家主權豁免權、起訴中國政府的話，那將會是一個巨大錯誤。因為這樣做會殃及自身，使自己成為其他國家起訴的對象。
+而就美國目前在全球範圍內的行動之廣，“破例”後受害最深的反而是美國。美國疫情暴發以後，包括密蘇里州州政府在內多個政府機構或組織向中國政府發起訴訟，聲稱中國防疫不力，導致新冠疫情蔓延。[#美參議員稱中國是受人尊敬的國家#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%8F%82%E8%AE%AE%E5%91%98%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%98%AF%E5%8F%97%E4%BA%BA%E5%B0%8A%E6%95%AC%E7%9A%84%E5%9B%BD%E5%AE%B6%23)
+[L微丟的微博視頻](http://t.cn/A6UyvomT)[收起全文d](void%280%29;)
 
-你使用銀行卡,比如借記卡或者信用卡, 你使用之後, 你的信息,包括姓名,和地址, 都被記錄！你有隱私麼? 如果你相信法律會保護你隱私，或者，商戶那邊的信息永遠不會被盜。我是不信的。
+中共國對於黛安.範士丹（注：與黛恩.費恩斯坦為同一人，中文叫法不同而已）大贊的部分文章——
 
-這基本是當下的金融賬戶體系，對隱私的全面侵犯，隱私權是基本喪失的。所以才有隱私保護法: 如果真有保障, 還需要保護麼?
+[美議員:中國受人尊敬,因疫情起訴中國是巨大錯誤\_手機網易網](https://www.baidu.com/link?url=vm2B-qN4WTCSFBT5p4D1tbAFWVSLs2c4h-_2hUIfSpgPwB99rz8Zr6GXs7ubX3vVkw6yAM1uYS-KrG4-bu2Wwa)
 
-**下面說以太坊** 。
+1天前 – 摘要:“中國是受人尊敬的國家,因疫情起訴中國是巨大的錯誤。”美國參議員黛安·範士丹(路透社資料圖)海外網7月31日電當地時間30日,美國參議員黛安·範…
 
-[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/272a058f-a25c-4f19-8358-7eab94502b2e.jpg?asset_id=48e5c149-8abb-45c7-a36e-8a161ddad9f7&amp;img_etag=%22d2a65b64388489577e16bee2c32fb729%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/272a058f-a25c-4f19-8358-7eab94502b2e.jpg?asset_id=48e5c149-8abb-45c7-a36e-8a161ddad9f7&amp;img_etag=%22d2a65b64388489577e16bee2c32fb729%22&amp;size=1024)
+[美參議員:因疫情起訴中國是壞主意 美國責任將被追究 – AcFun彈幕…](https://www.baidu.com/link?url=ok6d3lRITfyap6CtoLEbQdRXkkpHu2D5l3jEvLZsFVbbRHZ7piUDPhj4EMbE8_uh)
 
-為什麼不先說比特幣？原因是比特幣不好理解，尤其是比特幣的賬戶體系。以太坊用一串類似內存字符地址替代手機號電子郵件，身分證號，作為賬戶ID。一個賬戶, 就是一串固定的字符。你可以申請10個, 100個, 隨便。這一點, 單就賬戶獲取/申請的角度, 好像自由度大增，法律也沒有規定你最多有幾個，比如支付寶一個人最多三個賬號。那麼，以太坊地址有沒有綁定身份證？這是今天一個非常核心的一個點！
+1天前 – 當地時間7月29日,美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上引用談話和證詞表示,“我們(美國)把中國看作是一個潛在的交易夥伴,那是…
 
-如果你去交易所開戶，實名認證基本上必須的。你的身份和地址是綁定的。不管你去中國的火幣，Ok，還是美國的Coinbase，都是這樣。你用這個地址收錢，比如ERC20版本的USDT，你知道這會是什麼後果？
+[美議員:中國值得尊敬 借疫情“起訴中國”大錯特錯](https://www.baidu.com/link?url=YDKcUr9Dl_LRmd47bvYoJbevwAExcZIIrUGRUDamqIif6BE6eL4-c9F64np2Q0KN98_0tTgxWkm1njBnvhPLKgoKiXeYzKTEXCLpV_Vb9D7)
 
-第一：交易雙方，比如你玩OTC, 他可以知道你有多少餘額，你轉多少錢，收多少錢。
+20小時前 – 央視網消息:7月30日,美國民主黨聯邦參議員黛安·範士丹出席參議院司法委員會的聽證會時表示,中國值得尊敬,借疫情“起訴中國”是大錯特錯。 編輯:張哲…
 
-第二： 交易平台，這個不用說，你本身就透明。
+中共駐三藩市領事館、中國國家安全部、中國司機、在新冠疫情前家人莫名其妙出手套現股票的參議員Dianne Feinstein是不是被中共深度藍金黃了？那些把她的正在接受調查的中國司機放走的人到底有沒有從中共拿錢？不管怎樣，在此時此刻還敢為中共月臺的Dianne Feinstein，其勇氣可嘉，只是這是不是下一步要被抽幹的沼澤？
 
-第三：隔壁老王，隔壁老王未必知道這個地址是你的，但是他可以隨時查看這個地址的交易以及餘額。
-
-第四：監管部門。一連串看似匿名的交易，只要有幾個地址是可以查到實名綁定的，可以順藤摸瓜，掌握一切。天然不可篡改的帳本，如實紀錄了一切。
-
-牆內的公安和經偵，一年多以前早就熟練掌握上述技能，可能小地方警察可能還沒學會。我認識一個幣商，就因為收到黑USDT , 連續一個多月，天天警察局協助調查。
-
-我為什麼又說這個例子, 因為這既是比特幣賬戶的秘密…….
-
-比特幣賬戶中充當紙幣的叫做UTXO，Unspent Transaction Output，簡單翻譯就叫零錢。任何一個人，都可以所以註冊比特幣錢包。但是大家無法理解比特幣的帳戶體系，沒有幾個人說的清楚用UTXO做成的帳戶體系。
-
-我們回到現金社會：你今天出門，帶了錢包，錢包裡面有三張錢，100, 50, 和10， 總計160。你今天買豬肉，花掉那張100的， 你從錢包拿出去那張100, 人家回你10。你的錢包現在還是三張錢：50, 10, 10，共計70。這個非電子版本的現金錢包，天然隱私和加密。
-
-今天的比特幣也是一樣：你有一個錢包，只有你有私鑰。你在錢包裡可以隨意放多少UTXO (簡單理解為地址）, 也就是隨意幾張張鈔票。上面的例子：你出門的時候，錢包裡面三個UTXO地址，共計160。回家的時候，有一個地址花光了，進來一個新的UTXO, 還是三個UTXO，總計70。核心在這裡: 你每次使用不同的UTXO, 沒有人能夠輕易識別出這個UTXO是你的還是別人的，隔壁老王現在沒法偷窺了。除非他家裡有幾十個太陽可以燃燒來破解私鑰。隱私和安全問題, 都是經濟問題，當對方偷窺成本過高, 也就無法偷窺。
-
-那怎麼保護你的權利?證明那個是你的? 你簽名啊, 導出私鑰啊。今天一個多小時, 我想我大致詮釋了比特幣白皮書的題目: 比特幣, 一種點對點的電子現金系統。只要你使用得當沒有人可以查看你的比特幣錢包有多少錢。但是交易所綁定固定UTXO, 你當然也就裸奔了。
-
-最後說一下今年, 就是當下最新的法律：
-
-歐盟的2018年6月19日公佈的反洗錢法第五部(MLD5) 在2020年1月20日生效。 The Fifth Anti-Money Laundering Directive (“MLD5”) was published in the Official Journal of the EU on 19th June, 2018, and comes into force on 20th Jan, 2020. 這部法律涵蓋了區塊鏈資產。
-
-另外美國這方面：
-
-[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/a7c5a439-b4b8-48bd-8fcc-31e74bbc1769.jpg?asset_id=23bda419-8964-413d-b360-8a77cabff321&amp;img_etag=%221e4020b0dfab32746d7b31688e5a40f3%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/a7c5a439-b4b8-48bd-8fcc-31e74bbc1769.jpg?asset_id=23bda419-8964-413d-b360-8a77cabff321&amp;img_etag=%221e4020b0dfab32746d7b31688e5a40f3%22&amp;size=1024)
-
-這個是美國稅務部門和犯罪調查局, 對於區塊鏈資產的態度。匿名幣: 門羅​​, Zcash, 達士什麼的, 基本要完蛋；鏈下交易方式: 比如CORE 的閃電網, 基本要嗝屁。注意, 還有PLasma。特定的, 利於博彩的簽名算法的那個BCH, 也是強監管對象，區塊鏈, 隱私友好, 但是不是罪犯友好。但如果使用不當, 就純粹是裸奔友好。
-
-下一堂課：小世界網絡模型。
-
-今天佈置一個作業：以比特幣礦工挖塊打包為例，分析各種不同情況下礦池(礦工) 之間的對記賬權的競爭和博弈！我會用記賬權的競爭博弈，來詮釋小世界網絡。
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/h0tUcnvdhPJNa/)
+（文章內容僅代表作者個人觀點）
 
 0

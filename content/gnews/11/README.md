@@ -1,93 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄亥俄州藥物委員會羥氯喹禁令激民憤 昨日宣佈放棄執行
-`2020-07-31 16:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281616/)
+## 印度對中共的行動已成為全球滅共的縮影
+`2020-07-31 19:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281668/)
 
-新聞簡述：俄亥俄州藥物委員會此前[禁止使用氯喹和羥氯喹治療CCP新冠病毒的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)遭到醫護人員和患者群體抗議，迫於壓力和州長的明確要求下，該協會於[7月30日宣佈撤銷](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)該規定及相關條例。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162039/HCQ_20200730_ohio_photo169.png)
-**Requirements for Dispensing or Selling Chloroquine and Hydroxychloroquine in Ohio**
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-**關於羥氯喹在俄亥俄州的出藥和銷售要求**
+校對：HUH
+![](https://lh6.googleusercontent.com/a4VCrIekcGcgByG9YbdE_gPZC49cdAfGbL7kcwBdnlAIf3NR_Whiticknsg9zJ0wfYMKIlXUxMVwCXkKTU2iEanyP-HkBbUp26FZo1iuVkBFcRWsqvw3uid9jBIBKiGYE5-VkjA)圖片來源：indiatoday.in 
+在6月15日印中邊境拉達克加勒萬河谷印中發生軍事衝突導致士兵死亡事件之後，印度針對中共國進行了一系列的反制措施，同時，在以美國為首的世界正義力量看清中共的邪惡本質之後，在全世界掀起了以實際行動抵制中共、消滅中共的浪潮。印中的關係轉變以及印度反對中共的行動就是全球滅共的縮影。
 
-Updated 7/30/2020
+一、印度針對中共的一系列行動
 
-更新於7/30/2020
+在中印邊境衝突發生之後，當地時間7月3日，印度總理莫迪突訪衝突邊境並聲明“擴張主義時代”已經結束，意指中共，併計劃向邊境增兵35000人。緊接著，7月17日，印度國防部長拉吉納特·辛格（Rajnath Singh）抵達中印邊境，檢查防務、評估軍備情況並慰問士兵，包括檢閱在當地部署的T-90主戰坦克、步兵作戰演練、肩扛式反坦克導彈系統、傘降演練以及偵察武器。
 
-As a result of the feedback received by the medical and patient community and at the request of Governor DeWine, the State of Ohio Board of Pharmacy has withdrawn proposed rule 4729:5-5-21 of the Administrative Code. Therefore, prohibitions on the prescribing of chloroquine and hydroxychloroquine in Ohio for the treatment of COVID-19 will not take effect at this time. This will allow the Board to reexamine the issue with the assistance of the State Medical Board of Ohio, clinical experts, and other stakeholders to determine appropriate next steps. Licensees should be aware that emergency rule 4729-5-30.2 is no longer effective and the requirements of that rule, including the inclusion of a diagnosis code on any prescription for chloroquine and hydroxychloroquine, are no longer applicable
+7月20日，美國尼米茲號航母（USS Nimitz）、“普林斯頓”號（USS Princeton）導彈巡洋艦、“斯特雷特”號（USS Sterett）導彈驅逐艦和“拉爾夫·約翰遜”號（ USS Ralph Johnson）導彈驅逐艦組成的航母打擊群與印度海軍在印度洋安達曼—尼科巴群島附近海域進行“過航演習”，旨在最大限度地提高訓練和互操作性，雙方檢驗在對方軍事基地獲得補給及為彼此軍艦加油能力。
 
-鑒於來自醫護人員和相關患者的反饋 ，並應州長DeWine的要求，俄亥俄州醫藥協會特此撤回擬議條例4729：5-5-21 。由此，禁止在俄亥俄州開處方氯喹和羥氯喹用於治療COVID-19 的規定即日起失效。協會將在俄亥俄州醫學委員會，臨床專家及相關機構和人員的協助下重新審查該條例並確定適當的後續步驟。具醫療資質人員請注意，緊急條例4729-5-30.2不再有效，其規定在任何氯喹和羥基氯喹的處方上注明診斷代碼將不再適用。
+7月29日，印度從法國購買的5架陣風戰鬥機已抵印度安巴拉空軍基地，印度軍方高調舉行了接機儀式。截至目前，印度已經從法國購買了36架陣風戰鬥機。在購買5架戰機之後，印度表示還需要為其海軍和空軍增加150多架噴氣式戰機。
 
-[閱讀英文公告原文](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)
+截至目前，印度禁用了106款中共國APP，另外對275個中共國的其他應用進行“是否存在損害國家安全及侵犯用戶隱私行為”的審核。另外，印度已決定將華為排除在網絡建設計劃之外。
 
-**【附錄：俄亥俄州長DeWine敦促俄亥俄州藥物委員會終止羥氯喹禁令的[推特](https://mobile.twitter.com/GovMikeDeWine/status/1288829332211658752)截圖】**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162801/Ohio_20200730_Governor_Twitter_snapshot.png)
-**【附錄：俄亥俄州藥物委員會此前發佈的[限制使用羥氯喹的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)如下】**
+二、美俄對印度的支持
 
-4729:5-5-21 Prescription requirements for chloroquine and hydroxychloroquine.
+7月初，印度於2015年9月批准從美國波音採購的、總金額約30億美元的22架AH-64E“阿帕奇”武裝直升機和15架CH-47F“支奴干”重型運輸直升機已交付印度空軍，這將極大的提高印度軍方在高海拔地區的攻擊能力和運輸能力，強化了應付中印邊境的突發狀況的能力，使印度在邊境與中共的對抗中取得優勢。
 
-4729：5-5-21氯喹和羥氯喹的處方要求
+2018年10月，印度與傳統盟友俄羅斯簽署了價值54億美元的S-400導彈防空系統採購協議。 6月24日，印度國防部長訪問莫斯科，出席勝利日閱兵並催促俄方加快供應S-400防空導彈系統，俄方答應提前交付。緊接著，在7月初，印度國防採購委員會批准從俄羅斯購買21架米格-29戰鬥機以及將印度空軍現有的59架該型號戰鬥機進行升級，雙方合同總額超過9.84億美元。另外，印度斯坦航空有限公司將以14.2億美元的價格購買12架蘇-30MKI。 7月20日，俄總理米舒斯京簽署政府令，俄印打算就相互派遣部隊、軍艦和軍機的流程達成共識，外界認為這為俄國軍事顧問替印度操作和維護S-400打下了基礎。
 
-(A) No prescription for chloroquine or hydroxychloroquine may be dispensed by a pharmacist or sold at retail by a licensed terminal distributor of dangerous drugs, including prescriptions for patients residing in Ohio dispensed or sold at retail by nonresident terminal distributors of dangerous drugs as defined in rule 4729:5-8-01 of the Administrative Code, unless the prescription bears a written diagnosis code from the prescriber or a statement indicating its veterinary medical purpose.
+相反，中共從2014年就從俄羅斯訂購了價值30億美元的S-400防空導彈系統，在2018年俄方向中共交付發射車後，俄方未向中共提供足夠的S-400防空導彈，截至目前，俄方繼續對中共推遲交付S-400導彈，原因是俄方懷疑中共在俄境從事間諜活動，可能已經取得了俄羅斯“國家機密”。
 
-（A）氯喹或羥氯喹的處方藥將不允許通過藥劑師配給或在有危險藥品特許銷售資質的零售點出售，包括配給俄亥俄州本地居民的或由有危險藥品特許銷售資質的非本地零售點出售的符合第4729：5-8-01號條例定義的處方藥。除非處方上開處方者的書面診斷代碼或聲明為獸醫用。
+三、全球滅共佈局已完成
 
-(B) Except as provided in paragraph (C) of this rule, prescriptions issued for chloroquine or hydroxychloroquine for prophylactic use related to COVID-19 or for the treatment of COVID-19 are strictly prohibited unless otherwise approved by the board’s executive director in consultation with the board president, at which time a resolution shall issue. Upon the effective date of this rule, all previous approvals for the use of chloroquine or hydroxychloroquine shall be deemed void and must be approved using the process outlined in this paragraph.
+中共病毒在全球的快速爆發，使全世界正義力量甦醒並做出了有效回應。美國及其亞歐的盟友都意識到了中共的霸權意圖以及對世界的威脅，包括竊取知識產權和商業機密、在中共國內奴隸勞工、高樹防火牆對網絡進行控制、南海的霸權主義等。美國及其盟友澳大利亞和日本已陳兵南中國海，同時迅速圍繞中共國形成三個戰略區域，包括波蘭為主的東歐、哈薩克斯坦為主的中亞五國、南中國海臨海國家，對中共國形成了戰略包圍。
 
-（B）除非如條款（C）另有規定，嚴格禁止開具氯喹或羥氯喹作為預防或治療COVID-19相關治療的處方藥，除非經由經董事會執行董事與董事會主席協商同意，屆時將正式決議。在本規定生效後，在此之前所有使用氯喹或羥氯喹的批准均應視為無效，必須按照本條款規定程序進行審批。
+歐美多國退出華為5G，多國退出中共主導的亞投行。美國與盟友可以互用軍事基地，提供後勤補給，包括近期印澳簽署國防協議允許兩國使用對方的軍事基地，美日澳印“四國民主聯盟”的海上力量正式形成，這些都將加速中共的滅亡，這是世界正義力量倡導的“自由”與中共“獨裁暴政”之戰。
 
-(C) The prohibition in paragraph (B) of this rule does not apply to prescriptions issued as part of a documented institutional review board-approved clinical trial to evaluate the safety and efficacy of the drugs to treat COVID-19. Prescriptions must include documentation that the patient is enrolled in a clinical trial.
+參考鏈接：
 
-（C）條款（B）中的禁令不適用於已獲得機構審查委員會批准的臨床試驗的處方，該處方用於評估治療COVID-19的藥物的安全性和有效性。處方必須包括有關該患者已參加臨床試驗的文件。
+[https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html](https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html)
 
-(D) Paragraphs (B) and (C) of this rule shall also apply to medication orders and outpatient prescriptions dispensed by institutional pharmacies as defined in agency 4729 of the Administrative Code
+[https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html](https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html)
 
-4729:5-5-21 2
+> [Boeing delivered 22 AH-64E Apache and 15 CH-47F(I) Chinook military helicopters to IAF](http://www.indiandefencereview.com/news/boeing-delivered-22-ah-64e-apache-and-15-ch-47fi-chinook-military-helicopters-to-iaf/)
 
-（D）條款（B）和（C）也應適用於代理條例第4729條所定義的公共藥房配給的藥品訂單和門診處方藥
-
-4729：5-5-21 2
-
-Replaces: 4729-5-30.2
-
-替代：4729-5-30.2
-
-Effective: 7/30/2020
-
-生效日期：2020年7月30日
-
-Five Year Review (FYR) Dates: 07/30/2025
-
-五年審查（FYR）日期：07/30/2025
-
-CERTIFIED ELECTRONICALLY Certification
-
-07/20/2020
-
-電子認證日期
-
-07/20/2020
-
-Date Promulgated Under: 119.03
-
-頒布日期：119.03
-
-Statutory Authority: 4729.26, 3719.28
-
-法定機構：4729.26，3719.28
-
-Rule Amplifies: 4729.26, 4729.54, 4729.55
-
-細則：4722.96、4725.94、4729.55
-
-Prior Effective Dates: 03/22/2020 (Emer.)
-
-先前生效日期：03/22/2020（Emer。）
-
-[閱讀此公告英文原文](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)
-
-*翻譯：【一花一世界】編輯整理：【Isaiah4031】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0
