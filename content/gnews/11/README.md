@@ -1,33 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大自媒體人發文：中共正在試圖控制加拿大人的言論
-`2020-08-01 08:52 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/282013/)
+## 【世界多語言文字版】7月28日CNBC重磅採訪: 班農談中美關係, 制裁中共, 以及與郭文貴先生的關係
+`2020-08-01 09:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/282032/)
 
-翻譯報導：喜馬拉雅聯盟加拿大農場坐看雲起時
+**[7月28日CNBC重磅採訪](https://youtu.be/h8gEugx1Mv4)班農談中美關係，制裁中共，以及與郭文貴先生的關係**
 
-校對整理：熊媽媽
-[!\[中共報復無底線：加拿大公民被判處八年徒刑- Gnews\](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/01063543/Picture-1-4.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fgnews.org%2Fzh-hans%2F250738%2F&amp;psig=AOvVaw2M9LmNtkthXZpi2AOGczKn&amp;ust=1596372207110000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPj76oeE-uoCFQAAAAAdAAAAABAJ)圖片來源：gnews 
-7月31日，資深評論家斯潘塞·費爾南多（SPENCER FERNANDO）發文稱：中共國駐溫哥華總領館是中共努力把其殘暴專制制度延伸到加拿大的黑手中的一部分。中共正在試圖控制加拿大人在自己的國家內可以說些什麼。
+[【中文版】班農談中美關係,制裁中共,以及與郭文貴先生的關係](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091102/7%E6%9C%8828%E6%97%A5CNBC%E9%87%8D%E7%A3%85%E9%87%87%E8%AE%BF%EF%BC%9A%E7%8F%AD%E5%86%9C%E8%B0%88%E4%B8%AD%E7%BE%8E%E5%85%B3%E7%B3%BB%EF%BC%8C%E5%88%B6%E8%A3%81%E4%B8%AD%E5%85%B1%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%B8%8E%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E7%9A%84%E5%85%B3%E7%B3%BB-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091102/7%E6%9C%8828%E6%97%A5CNBC%E9%87%8D%E7%A3%85%E9%87%87%E8%AE%BF%EF%BC%9A%E7%8F%AD%E5%86%9C%E8%B0%88%E4%B8%AD%E7%BE%8E%E5%85%B3%E7%B3%BB%EF%BC%8C%E5%88%B6%E8%A3%81%E4%B8%AD%E5%85%B1%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%B8%8E%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E7%9A%84%E5%85%B3%E7%B3%BB-1.pdf)
 
-中共國通過了一項法律，這項法律規定了在香港倡導民主是一種犯罪，而且無論在世界哪個角落倡導香港民主，都是一種犯罪。
+[【英文版】CNBC’s important interviews with Bannon on Sino-US relations, sanctions on CCP, and relationship with Mr. Miles Guo](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091108/7.28-CNBCs-important-interviews-with-Bannon-on-Sino-US-relations-sanctions-on-CCP-and-relationship-with-Mr.-Miles-Guo.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091108/7.28-CNBCs-important-interviews-with-Bannon-on-Sino-US-relations-sanctions-on-CCP-and-relationship-with-Mr.-Miles-Guo.pdf)
 
-比如說，如果你在社交媒體上，或以其他方式發表過支持香港民主或批評中共的言論，那麼你就是中共的罪犯，如果你去中共國，可能會被關進監獄。 （事實上，根據港版國安法，凡是跟中共國有引渡條例的國家，中共國都有權要求逮捕。）
+陸續更新中……
 
-然而，即使是這樣的法律，對中共來說還遠遠不夠。現在，他們還要管控加拿大公民在自己國家的意見表達。
-
-《環球郵報》近日報導了中共國駐溫哥華總領事佟曉玲在接受溫哥華1320 AM（所謂的”溫哥華華人社區的聲音”）採訪時，她說，”在香港和本地（加拿大）都有極少數人惡意詆毀和破壞香港的國家安全立法”，她指責這些人與”反華勢力”勾結，試圖在海外製造”麻煩”。
-
-佟曉玲指責溫哥華華人社區的各種成員，包括來自香港，澳門，中共國大陸和台灣的華人中，有人“試圖恐嚇真正關心香港的人，阻止他們發表意見，對他們進行人身攻擊。他們在華裔社區製造分裂，破壞中加關係”。
-
-加拿大爭取香港民主的活動人士說，對於一個外國政府官員來說，發表這樣的言論是件極不正常的事情。他們認為，華裔加拿大人的意見表達不關中共國政府的事。
-
-正如香港親民聯盟團體”加拿大香港聯盟”的王卓妍（Cherie Wong）所說，中共國似乎認為他們可以控制華裔加拿大人的言論和想法。她認為中共外交官的講話，說明了中共國自認為對華裔個人具有一定程度的管控權。指責分裂華人，其實是在強化海外華人和中共國是一個整體的想法，這是很不正確的，屬於大外宣的一部分，不允許海外華人和中共國存在政治觀點的差異。
-
-王卓妍說得很有道理。眾所周知，中共認為他們控制著全世界所有的中共國人，即使他們並不生活在中共國。因此，中共覺得自己有理由對加拿大的政治施加控制，告訴加拿大人他們可以想什麼，不可以想什麼。
-
-這與中共國日益囂張和好戰的態度不謀而合，因為由於中共病毒和新疆的種族滅絕事件，幾乎世界上所有國家的輿論都對中共國不利。
-
-基於這個原因和其他種種原因，加拿大必須減少對中共國的依賴，使加拿大的經濟和中共國脫鉤，變得更加自給自足，加深與民主盟友的聯繫，捍衛加拿大所有公民的言論自由權利，並驅逐任何試圖控制加拿大人民的中共官員。
+製作：【秘密翻譯組G-Translators】
 
 0
