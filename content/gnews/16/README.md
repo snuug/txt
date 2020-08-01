@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/06/29 CCP病毒每日疫情直播簡報
-`2020-07-31 09:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/281423/)
+## 戰友原創歌曲《這一刻》
+`2020-07-31 11:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281503/)
 
-戰友之家圖文摘要組及小語種組
+《這一刻》
 
-[English\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094340/English_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094340/English_0629_CCP_Virus_Updates.pdf)
+原創歌手：鐵蛋兒
 
-[French\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094411/French_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094411/French_0629_CCP_Virus_Updates.pdf)
+這一刻看見夢想變成現實出現在我的面前嶄新的藍色旗幟，萬丈光芒這一刻我的思緒變得固執只想來到你身邊戰友同在的場景，如此感動戰友同心的力量，如此感動
 
-[German\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094416/German_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094416/German_0629_CCP_Virus_Updates.pdf)
+這一刻被偽類敗壞的名聲終於得到了清白善良堅定的面孔，如此不同這一刻我的身體不停顫抖不能自已大聲喊
+ CCP LIED PEOPLE DIED 
+是CCP LIED PEOPLE DIED
 
-[Japanese\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094420/Japanese_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094420/Japanese_0629_CCP_Virus_Updates.pdf)
+這一刻讓世界明白時間已經不多了是CCP LIED PEOPLE DIED 
+這一刻讓世界明白一切不是偶然的是CCP LIED PEOPLE DIED 
+是CCP LIED PEOPLE DIED 
+是CCP LIED PEOPLE DIED
 
-[Korean\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094426/Korean_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094426/Korean_0629_CCP_Virus_Updates.pdf)
+這一刻讓世界明白時間真的不多了是CCP LIED PEOPLE DIED
 
-[Russian\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094433/Russian_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094433/Russian_0629_CCP_Virus_Updates.pdf)
-
-[Spanish\_0629\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094438/Spanish_0629_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31094438/Spanish_0629_CCP_Virus_Updates.pdf)
-
-1
+0

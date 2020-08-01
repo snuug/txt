@@ -1,59 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如何高效傳播爆料革命真相
-`2020-07-31 11:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281518/)
+## 俄亥俄州中國夫婦對密謀竊取醫學商業機密並在中國銷售的行為認罪
+`2020-07-31 13:33 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281550/)
 
-作者：喜馬拉雅聯盟加拿大農場文寶Porsche
+[美國司法部於2020年7月30日公佈](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)，前居住在俄亥俄州的女子陳莉和她的丈夫周宇，被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密和實施電訊欺詐。今天在美國地方法院通過視頻會議認罪，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31132643/DOJ_20200730_Li_Chen_Pleaded_Guilty_photo.jpg)
+中英文對照全文：
 
-校對：熊媽媽
+Department of Justice
 
+司法部
 
-[!\[劉妞妞2 в Twitter: &quot;送CCP一場錘子雨！砸死CCP的不是最後一個錘子！而 ...\](https://pbs.twimg.com/media/Ed8nPNoU4AAsSDw.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Ftwitter.com%2Fniuniu_liu2%2Fstatus%2F1287791169754161153%3Flang%3Dbg&amp;psig=AOvVaw3EemfbJ-13rQnPtioiET-O&amp;ust=1596295416866000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJCtvf_l9-oCFQAAAAAdAAAAABAD)
-有效傳播，是爆料革命成功與否的勝負手。遺憾的是，我們無數戰友，每天非常辛苦的發推，但是大多數信息要么沉入海底無人看到、要么就是在戰友之間內部循環、要么就陷入與偽類的纏鬥被舉報封號，最終傳播效果很有限。本人連續封號5個以上，鬱悶已久，甚至一度放棄。但是路德在節目中大聲疾呼不能放棄推特陣地，警醒了我，思索良久、終於找到適合自己的方法。自己目測，只需原來1成時間，傳播的受眾即可達到或超越原來傳播方式的受眾。在此分享給戰友們。
+Office of Public Affairs
 
-**1.向誰傳播？**
+公共事務辦公室
 
-1）爆料革命的資訊，是真戰友，會去自動尋找、每日關注重要渠道的資訊，我們不需要花大量時間在內部循環傳播，比如GTV這是戰友們互換信息的場所、而不是相互傳播的主戰場，真正的戰場是Twitter和Instgram，尤其是前者，Youtube是傳播兌現的地方，既感興趣的人會點擊你的Twitter鏈接、進入Youtube去進一步了解。 Facebook因為需要通過添加好友傳播，所以效果有限，此處暫不討論。
+FOR IMMEDIATE RELEASE Thursday, July 30, 2020
 
-2）我們需要的是進入我們完全不熟悉的領域，將外人變為戰友，這些外人指的是陌生人、甚至五毛、或者敵人。
+2020年7月30日 立即發佈
 
-3）結論是：我們傳播的重點是向除戰友的所有人。
+**Researcher Pleaded Guilty to Conspiring to Steal Scientific Trade Secrets from Ohio Children’s Hospital to Sell in China**
 
-**2.自己的粉絲多少不重要。**
+**研究人員對密謀竊取俄亥俄州兒童醫院的醫學商業機密並在中國銷售的行為表示認罪**
 
-1）粉絲取決於你的名氣和互粉兩個因素。普通戰友要快速增粉，只有互粉這一個方法，但這個費時費力數量有限，10個粉絲與100個粉絲，傳播的效果沒有太大區別。我們要做的是傳播，而不是成為大V。
+Crime is Another Example of Economic Malfeasance Related to the Peoples Republic of China Accommodating Theft of Commercial Products They Cannot Field Organically
 
-2）傳播最快方法—借助大V賬號，讓大V的海量粉絲看到我們的留言。
+此犯罪是另一個與中華人民共和國有關的經濟不法行為的例子，縱容偷竊他們不能自主研發的商業產品
 
-**3.對手方的大V，是重中之重。**
+Former Ohio woman Li Chen, 46, pleaded guilty today via video conference in U.S. District Court today to conspiring to steal scientific trade secrets and conspiring to commit wire fraud concerning the research, identification and treatment of a range of pediatric medical conditions.
 
-1）盟友大V，比如川普的粉絲，多數都是咱們的戰友。很容易就能從內部渠道如GTV或路德頻道知道重要推文，普通戰友可以不必關注。
+46歲的前居住在俄亥俄州的女子陳莉（音譯，Li Chen）今天在美國地方法院通過視頻會議認罪，她承認密謀竊取醫學商業機密，並密謀對一系列兒科疾病的研究、鑒定和治療實施電訊欺詐。
 
-2）中間派大V，比如達賴喇嘛的粉絲，可以適當關注。這些粉絲比對手大V粉絲更容易轉化為戰友。
+“Once again we see the People’s Republic of China (PRC) facilitating the theft of our nation’s ingenuity and hard work as part of their quest to rob, replicate and replace any product they don’t have the ability to develop themselves,” said John C. Demers, Assistant Attorney General for National Security. “Far from being an isolated incident, we see the PRC implicated in around 60 percent of all trade secret theft cases. This continued economic belligerence runs contrary to the values and norms that facilitate the success of our industries and countering it remains among our highest priorities.”
 
-3）對手大V，比如英文世界的奧巴馬和中文世界的艾未未，他們的粉絲才是我們傳播的重點對象。把對手轉化1個，領先差距會增加2個。如果不小心把大V轉化了，就是巨大驚喜了。
+負責國家安全的助理司法部長約翰·C·德默爾斯表示：「我們再次看到中共國（PRC）為竊取我們國家的知識財富和工作成果提供了便利，搶奪、複製和取代任何他們沒有能力自己開發的產品，這是他們謀求的一部分」，「這絕非個別事件，在所有竊取商業秘密的案件中，約有60%的案件涉及中國。這種持續的經濟交鋒與促進我們產業成功的價值觀和規範背道而馳，打擊這種行為仍是我們的最優先事項之一」。
 
-**4.跟推大V，是一場戰鬥。**
+“Nationwide Children’s Hospital’s Research Institute took reasonable measures to protect its cutting-edge intellectual property and trade secrets regarding exosomes, and I commend the cooperation of Nationwide Children’s throughout this investigation,” U.S. Attorney David M. DeVillers said. “Chen betrayed her employer of 10 years by stealing trade secrets from this American institution and transferring them to China after receiving payments from the Chinese government.”
 
-1）反洗腦和洗腦的方法都是一樣，就是“重複”。天天看見，他們慢慢就會相信。
+美國檢察官戴維·M·德維爾勒斯表示：「全國兒童醫院（Nationwide Children’s Hospital）的研究所採取了合理的措施來保護其有關外植體的尖端知識產權和商業秘密，我對全國兒童醫院在整個調查過程中的合作表示贊賞」，「陳莉背叛了她10年的雇主，竊取了這家美國機構的商業秘密，並在收受中國政府的報酬後將其轉移到中國」。
 
-2）留言必須排在第一。跟推留言排第一，大V一定看得到、永遠不會沉底，稍微感興趣的粉絲也必然看到。其瀏覽量將是天文數字，每一推都有可能轉化成功戰友。
+“Li Chen was a trusted researcher at Nationwide Children’s Hospital, conducting cutting-edge U.S. government-funded research,” stated FBI Cincinnati Special Agent in Charge Chris Hoffman. “With her guilty plea, she admits that she abused this trust to establish a company in China for her own financial gain. The FBI is committed to working closely with partners such as Nationwide Children’s Hospital to protect the innovations that make America a world leader in science and technology.”
 
-3）要實現大V推下的第一個留言，必須拿出戰鬥的狀態，全神貫注操作。
+聯邦調查局辛辛那提特別負責探員克里斯·霍夫曼表示：「陳莉曾是全國兒童醫院一位值得信賴的研究人員，進行美國政府資助的尖端研究」，「隨著她的認罪，她承認她濫用這種信任，在中國建立公司，以謀取自己的經濟利益。聯邦調查局致力於與全國兒童醫院等合作夥伴密切合作，以保護使美國成為世界科技領導者的創新成果」。
 
-4）操作技巧：將要跟推的內容和鏈接提前複製到剪貼板上；不停刷新推特頁面；在出現最新推文後10秒左右完成留言，一般可保證排列第一。
+Chen admitted to stealing scientific trade secrets related to exosomes and exosome isolation from Nationwide Children’s Hospital’s Research Institute for her own personal financial gain.
 
-**5.留言內容是關鍵。**
+陳某承認為了自己的個人經濟利益，竊取了全國兒童醫院研究所有關外排體和外排體分離的醫學商業秘密。
 
-1）根據大V粉絲的特徵選擇不同的詞句，同時對所附鏈接做簡單的介紹，以吸引這些粉絲點開你要傳播的鏈接。
+Chen and her husband, alleged co-conspirator Yu Zhou, 49, worked in separate medical research labs at the Research Institute for 10 years each (Zhou from 2007 until 2017 and Chen from 2008 until 2018). They are charged with conspiring to steal at least five trade secrets related to exosome research from Nationwide Children’s Hospital.
 
-2）留言後面附上我們要傳播的鏈接。
+陳莉和她的丈夫，被指控的同謀，49歲的周宇（音譯，Yu Zhou）分別在各自研究所的醫學研究實驗室工作了10年（周宇從2007年到2017年，陳莉從2008年到2018年）。他們被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密。
 
-**6.不要在乎短期的轉推或留言。**真正要轉推或留言的人，已經是你的粉絲，這些人就好比是我們的戰友，不是我們傳播的重點人群。我們的重點是將普通觀眾轉化為我們的粉絲。由於爆料革命的信息都是比較超前的，普通民眾認同有個過程，此時他們中的大多數是不會點贊、轉推或留言的。因此，我們不必在意這三個指標，只需要不停地讓他們看到我們的信息，日積月累、時間到了之後，自然會轉化成戰友。一旦他們成為我們的堅定戰友，他們可能會自動地去尋找需要的信息了，而有點興趣、半信半疑的人則會繼續依賴我們供給信息，他們是最可能點贊、轉推或留言的群體。
+Exosomes play a key role in the research, identification and treatment of a range of medical conditions, including necrotizing enterocolitis (a condition found in premature babies), liver fibrosis and liver cancer.
 
-**7.避免封號的技巧：**每個留言的內容不能完全相同否則會被當作機器人封號、推文不可有極端言論或攻擊性言論、多去英文推特下用英文留言減少被中文五毛舉報的機會。
+外排體在研究、鑒定和治療一系列醫學疾病中發揮著關鍵作用，包括壞死性腸炎（早產兒的一種病症）、肝纖維化和肝癌。
 
-**8.只給真正感興趣的人回复。**對於真有興趣的、有可能轉化為戰友的發言，要積極用心回复。對於無禮、無依據、無邏輯的回復不理睬，不浪費時間。
+According to her plea agreement, Chen conspired to steal and then monetize one of the trade secrets by creating and selling exosome “isolation kits.” Chen admitted to starting a company in China to sell the kits. Chen received benefits from the Chinese government, including the State Administration of Foreign Expert Affairs and the National Natural Science Foundation of China. Chen also applied to multiple Chinese government talent plans, a method used by China to transfer foreign research and technology to the Chinese government.
+
+根據她的認罪協議，陳某共謀竊取商業秘密，然後利用其中之一通過製造和銷售「分離試劑盒」來牟取利益。陳某承認在中國成立了一家公司來銷售這些試劑盒。陳某從中國政府，包括國家外國專家局和國家自然科學基金委員會處獲得了利益。陳某還簽約了多個中國政府人才計劃，這是中國用來向自己政府挪移外國研究和技術的一個方法。
+
+As part of her plea, Chen has agreed to forfeit approximately $1.4 million, 500,000 shares of common stock of Avalon GloboCare Corp. and 400 shares of common stock of GenExosome Technologies Inc.
+
+作為認罪的一部分，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
+
+Chen and Zhou were arrested in California in July 2019 and their case was unsealed in August 2019 when they appeared in federal court in Columbus.
+
+陳某、周某二人於2019年7月在加州被捕，案件於2019年8月在哥倫布聯邦法院出庭時解封。
+
+John C. Demers, Assistant Attorney General for National Security;David M. DeVillers, United States Attorney for the Southern District of Ohio; and Chris Hoffman, Special Agent in Charge, Federal Bureau of Investigation (FBI), Cincinnati Division, announced the plea entered into today before U.S. District Judge Sarah D. Morrison. Assistant U.S. Attorneys S. Courter Shimeall, Peter K. Glenn-Applegate, Special Assistant U.S. Attorney J. Michael Marous and National Security Division Trial Attorney Matthew J. McKenzie, are representing the United States in this case.
+
+負責國家安全的助理司法部長約翰·C·德默斯、俄亥俄州南區聯邦檢察官戴維·M·德維爾勒斯和聯邦調查局辛辛那提分局負責特別探員克里斯·霍夫曼，今天在美國地區法官莎拉·D·莫里森面前宣佈了認罪協議。美國助理檢察官庫爾·希默爾、彼得·格倫·阿普爾蓋特、美國特別助理檢察官邁克爾·馬魯斯和國家安全處審判律師馬修·麥肯齊在此案中代表美國。
+
+[閱讀英文全文](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)
+
+*翻譯：【Dlrow】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

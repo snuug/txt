@@ -1,81 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄亥俄州中國夫婦對密謀竊取醫學商業機密並在中國銷售的行為認罪
-`2020-07-31 13:33 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281550/)
+## 俄亥俄州藥物委員會羥氯喹禁令激民憤 昨日宣佈放棄執行
+`2020-07-31 16:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281616/)
 
-[美國司法部於2020年7月30日公佈](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)，前居住在俄亥俄州的女子陳莉和她的丈夫周宇，被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密和實施電訊欺詐。今天在美國地方法院通過視頻會議認罪，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31132643/DOJ_20200730_Li_Chen_Pleaded_Guilty_photo.jpg)
-中英文對照全文：
+新聞簡述：俄亥俄州藥物委員會此前[禁止使用氯喹和羥氯喹治療CCP新冠病毒的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)遭到醫護人員和患者群體抗議，迫於壓力和州長的明確要求下，該協會於[7月30日宣佈撤銷](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)該規定及相關條例。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162039/HCQ_20200730_ohio_photo169.png)
+**Requirements for Dispensing or Selling Chloroquine and Hydroxychloroquine in Ohio**
 
-Department of Justice
+**關於羥氯喹在俄亥俄州的出藥和銷售要求**
 
-司法部
+Updated 7/30/2020
 
-Office of Public Affairs
+更新於7/30/2020
 
-公共事務辦公室
+As a result of the feedback received by the medical and patient community and at the request of Governor DeWine, the State of Ohio Board of Pharmacy has withdrawn proposed rule 4729:5-5-21 of the Administrative Code. Therefore, prohibitions on the prescribing of chloroquine and hydroxychloroquine in Ohio for the treatment of COVID-19 will not take effect at this time. This will allow the Board to reexamine the issue with the assistance of the State Medical Board of Ohio, clinical experts, and other stakeholders to determine appropriate next steps. Licensees should be aware that emergency rule 4729-5-30.2 is no longer effective and the requirements of that rule, including the inclusion of a diagnosis code on any prescription for chloroquine and hydroxychloroquine, are no longer applicable
 
-FOR IMMEDIATE RELEASE Thursday, July 30, 2020
+鑒於來自醫護人員和相關患者的反饋 ，並應州長DeWine的要求，俄亥俄州醫藥協會特此撤回擬議條例4729：5-5-21 。由此，禁止在俄亥俄州開處方氯喹和羥氯喹用於治療COVID-19 的規定即日起失效。協會將在俄亥俄州醫學委員會，臨床專家及相關機構和人員的協助下重新審查該條例並確定適當的後續步驟。具醫療資質人員請注意，緊急條例4729-5-30.2不再有效，其規定在任何氯喹和羥基氯喹的處方上注明診斷代碼將不再適用。
 
-2020年7月30日 立即發佈
+[閱讀英文公告原文](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)
 
-**Researcher Pleaded Guilty to Conspiring to Steal Scientific Trade Secrets from Ohio Children’s Hospital to Sell in China**
+**【附錄：俄亥俄州長DeWine敦促俄亥俄州藥物委員會終止羥氯喹禁令的[推特](https://mobile.twitter.com/GovMikeDeWine/status/1288829332211658752)截圖】**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162801/Ohio_20200730_Governor_Twitter_snapshot.png)
+**【附錄：俄亥俄州藥物委員會此前發佈的[限制使用羥氯喹的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)如下】**
 
-**研究人員對密謀竊取俄亥俄州兒童醫院的醫學商業機密並在中國銷售的行為表示認罪**
+4729:5-5-21 Prescription requirements for chloroquine and hydroxychloroquine.
 
-Crime is Another Example of Economic Malfeasance Related to the Peoples Republic of China Accommodating Theft of Commercial Products They Cannot Field Organically
+4729：5-5-21氯喹和羥氯喹的處方要求
 
-此犯罪是另一個與中華人民共和國有關的經濟不法行為的例子，縱容偷竊他們不能自主研發的商業產品
+(A) No prescription for chloroquine or hydroxychloroquine may be dispensed by a pharmacist or sold at retail by a licensed terminal distributor of dangerous drugs, including prescriptions for patients residing in Ohio dispensed or sold at retail by nonresident terminal distributors of dangerous drugs as defined in rule 4729:5-8-01 of the Administrative Code, unless the prescription bears a written diagnosis code from the prescriber or a statement indicating its veterinary medical purpose.
 
-Former Ohio woman Li Chen, 46, pleaded guilty today via video conference in U.S. District Court today to conspiring to steal scientific trade secrets and conspiring to commit wire fraud concerning the research, identification and treatment of a range of pediatric medical conditions.
+（A）氯喹或羥氯喹的處方藥將不允許通過藥劑師配給或在有危險藥品特許銷售資質的零售點出售，包括配給俄亥俄州本地居民的或由有危險藥品特許銷售資質的非本地零售點出售的符合第4729：5-8-01號條例定義的處方藥。除非處方上開處方者的書面診斷代碼或聲明為獸醫用。
 
-46歲的前居住在俄亥俄州的女子陳莉（音譯，Li Chen）今天在美國地方法院通過視頻會議認罪，她承認密謀竊取醫學商業機密，並密謀對一系列兒科疾病的研究、鑒定和治療實施電訊欺詐。
+(B) Except as provided in paragraph (C) of this rule, prescriptions issued for chloroquine or hydroxychloroquine for prophylactic use related to COVID-19 or for the treatment of COVID-19 are strictly prohibited unless otherwise approved by the board’s executive director in consultation with the board president, at which time a resolution shall issue. Upon the effective date of this rule, all previous approvals for the use of chloroquine or hydroxychloroquine shall be deemed void and must be approved using the process outlined in this paragraph.
 
-“Once again we see the People’s Republic of China (PRC) facilitating the theft of our nation’s ingenuity and hard work as part of their quest to rob, replicate and replace any product they don’t have the ability to develop themselves,” said John C. Demers, Assistant Attorney General for National Security. “Far from being an isolated incident, we see the PRC implicated in around 60 percent of all trade secret theft cases. This continued economic belligerence runs contrary to the values and norms that facilitate the success of our industries and countering it remains among our highest priorities.”
+（B）除非如條款（C）另有規定，嚴格禁止開具氯喹或羥氯喹作為預防或治療COVID-19相關治療的處方藥，除非經由經董事會執行董事與董事會主席協商同意，屆時將正式決議。在本規定生效後，在此之前所有使用氯喹或羥氯喹的批准均應視為無效，必須按照本條款規定程序進行審批。
 
-負責國家安全的助理司法部長約翰·C·德默爾斯表示：「我們再次看到中共國（PRC）為竊取我們國家的知識財富和工作成果提供了便利，搶奪、複製和取代任何他們沒有能力自己開發的產品，這是他們謀求的一部分」，「這絕非個別事件，在所有竊取商業秘密的案件中，約有60%的案件涉及中國。這種持續的經濟交鋒與促進我們產業成功的價值觀和規範背道而馳，打擊這種行為仍是我們的最優先事項之一」。
+(C) The prohibition in paragraph (B) of this rule does not apply to prescriptions issued as part of a documented institutional review board-approved clinical trial to evaluate the safety and efficacy of the drugs to treat COVID-19. Prescriptions must include documentation that the patient is enrolled in a clinical trial.
 
-“Nationwide Children’s Hospital’s Research Institute took reasonable measures to protect its cutting-edge intellectual property and trade secrets regarding exosomes, and I commend the cooperation of Nationwide Children’s throughout this investigation,” U.S. Attorney David M. DeVillers said. “Chen betrayed her employer of 10 years by stealing trade secrets from this American institution and transferring them to China after receiving payments from the Chinese government.”
+（C）條款（B）中的禁令不適用於已獲得機構審查委員會批准的臨床試驗的處方，該處方用於評估治療COVID-19的藥物的安全性和有效性。處方必須包括有關該患者已參加臨床試驗的文件。
 
-美國檢察官戴維·M·德維爾勒斯表示：「全國兒童醫院（Nationwide Children’s Hospital）的研究所採取了合理的措施來保護其有關外植體的尖端知識產權和商業秘密，我對全國兒童醫院在整個調查過程中的合作表示贊賞」，「陳莉背叛了她10年的雇主，竊取了這家美國機構的商業秘密，並在收受中國政府的報酬後將其轉移到中國」。
+(D) Paragraphs (B) and (C) of this rule shall also apply to medication orders and outpatient prescriptions dispensed by institutional pharmacies as defined in agency 4729 of the Administrative Code
 
-“Li Chen was a trusted researcher at Nationwide Children’s Hospital, conducting cutting-edge U.S. government-funded research,” stated FBI Cincinnati Special Agent in Charge Chris Hoffman. “With her guilty plea, she admits that she abused this trust to establish a company in China for her own financial gain. The FBI is committed to working closely with partners such as Nationwide Children’s Hospital to protect the innovations that make America a world leader in science and technology.”
+4729:5-5-21 2
 
-聯邦調查局辛辛那提特別負責探員克里斯·霍夫曼表示：「陳莉曾是全國兒童醫院一位值得信賴的研究人員，進行美國政府資助的尖端研究」，「隨著她的認罪，她承認她濫用這種信任，在中國建立公司，以謀取自己的經濟利益。聯邦調查局致力於與全國兒童醫院等合作夥伴密切合作，以保護使美國成為世界科技領導者的創新成果」。
+（D）條款（B）和（C）也應適用於代理條例第4729條所定義的公共藥房配給的藥品訂單和門診處方藥
 
-Chen admitted to stealing scientific trade secrets related to exosomes and exosome isolation from Nationwide Children’s Hospital’s Research Institute for her own personal financial gain.
+4729：5-5-21 2
 
-陳某承認為了自己的個人經濟利益，竊取了全國兒童醫院研究所有關外排體和外排體分離的醫學商業秘密。
+Replaces: 4729-5-30.2
 
-Chen and her husband, alleged co-conspirator Yu Zhou, 49, worked in separate medical research labs at the Research Institute for 10 years each (Zhou from 2007 until 2017 and Chen from 2008 until 2018). They are charged with conspiring to steal at least five trade secrets related to exosome research from Nationwide Children’s Hospital.
+替代：4729-5-30.2
 
-陳莉和她的丈夫，被指控的同謀，49歲的周宇（音譯，Yu Zhou）分別在各自研究所的醫學研究實驗室工作了10年（周宇從2007年到2017年，陳莉從2008年到2018年）。他們被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密。
+Effective: 7/30/2020
 
-Exosomes play a key role in the research, identification and treatment of a range of medical conditions, including necrotizing enterocolitis (a condition found in premature babies), liver fibrosis and liver cancer.
+生效日期：2020年7月30日
 
-外排體在研究、鑒定和治療一系列醫學疾病中發揮著關鍵作用，包括壞死性腸炎（早產兒的一種病症）、肝纖維化和肝癌。
+Five Year Review (FYR) Dates: 07/30/2025
 
-According to her plea agreement, Chen conspired to steal and then monetize one of the trade secrets by creating and selling exosome “isolation kits.” Chen admitted to starting a company in China to sell the kits. Chen received benefits from the Chinese government, including the State Administration of Foreign Expert Affairs and the National Natural Science Foundation of China. Chen also applied to multiple Chinese government talent plans, a method used by China to transfer foreign research and technology to the Chinese government.
+五年審查（FYR）日期：07/30/2025
 
-根據她的認罪協議，陳某共謀竊取商業秘密，然後利用其中之一通過製造和銷售「分離試劑盒」來牟取利益。陳某承認在中國成立了一家公司來銷售這些試劑盒。陳某從中國政府，包括國家外國專家局和國家自然科學基金委員會處獲得了利益。陳某還簽約了多個中國政府人才計劃，這是中國用來向自己政府挪移外國研究和技術的一個方法。
+CERTIFIED ELECTRONICALLY Certification
 
-As part of her plea, Chen has agreed to forfeit approximately $1.4 million, 500,000 shares of common stock of Avalon GloboCare Corp. and 400 shares of common stock of GenExosome Technologies Inc.
+07/20/2020
 
-作為認罪的一部分，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
+電子認證日期
 
-Chen and Zhou were arrested in California in July 2019 and their case was unsealed in August 2019 when they appeared in federal court in Columbus.
+07/20/2020
 
-陳某、周某二人於2019年7月在加州被捕，案件於2019年8月在哥倫布聯邦法院出庭時解封。
+Date Promulgated Under: 119.03
 
-John C. Demers, Assistant Attorney General for National Security;David M. DeVillers, United States Attorney for the Southern District of Ohio; and Chris Hoffman, Special Agent in Charge, Federal Bureau of Investigation (FBI), Cincinnati Division, announced the plea entered into today before U.S. District Judge Sarah D. Morrison. Assistant U.S. Attorneys S. Courter Shimeall, Peter K. Glenn-Applegate, Special Assistant U.S. Attorney J. Michael Marous and National Security Division Trial Attorney Matthew J. McKenzie, are representing the United States in this case.
+頒布日期：119.03
 
-負責國家安全的助理司法部長約翰·C·德默斯、俄亥俄州南區聯邦檢察官戴維·M·德維爾勒斯和聯邦調查局辛辛那提分局負責特別探員克里斯·霍夫曼，今天在美國地區法官莎拉·D·莫里森面前宣佈了認罪協議。美國助理檢察官庫爾·希默爾、彼得·格倫·阿普爾蓋特、美國特別助理檢察官邁克爾·馬魯斯和國家安全處審判律師馬修·麥肯齊在此案中代表美國。
+Statutory Authority: 4729.26, 3719.28
 
-[閱讀英文全文](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)
+法定機構：4729.26，3719.28
 
-*翻譯：【Dlrow】*
+Rule Amplifies: 4729.26, 4729.54, 4729.55
+
+細則：4722.96、4725.94、4729.55
+
+Prior Effective Dates: 03/22/2020 (Emer.)
+
+先前生效日期：03/22/2020（Emer。）
+
+[閱讀此公告英文原文](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)
+
+*翻譯：【一花一世界】編輯整理：【Isaiah4031】*
 
 *戰友之家玫瑰園小隊出品*
 
-0
+1
