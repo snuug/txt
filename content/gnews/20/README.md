@@ -1,47 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度考慮增加禁用近300種與中共相關的應用程序
-`2020-07-31 22:20 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/281746/)
+## 美國參議院通過法案：允許民眾就CCP病毒造成的損失起訴中共政府
+`2020-08-01 04:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281905/)
 
-*新聞來源：The National Pulse《國家脈衝》；作者：Staff Writer；發佈時間：2020年7月27日*
+![美參議院通過新法案，允許FBI無搜查令監控民眾上網記錄-滑鐵盧華人網 ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01044352/1.png) 圖片來源： [http://www.africantimes2005.com/gjxw/23139.html](http://www.africantimes2005.com/gjxw/23139.html) 
+據報導，參議院司法委員會周四批准了一項法案，該法案將允許人們就CCP病毒大面積傳播造成的損害向聯邦法院提起訴訟。
 
-*翻譯/簡評：文明明；校對：Beicy-數學老師；審核：InAHurry；Page：拱卒*
+格雷厄姆（Lindsey Graham）是南卡羅來納州共和黨議員，也是此法案的共同發起人，他說：“由於中共國對世界隱瞞了該病毒的起源和性質，美國人有權利要求賠償。”
 
-**簡評** ：
+委員會主席林賽·格雷厄姆說：“事實已經很清楚了，中國共產黨顯然欺騙了世界並操縱了有關冠狀病毒的信息。 他們限制在中國境內旅行以減緩傳播，但允許中國人在世界各地旅行以增加傳播。”他還強調說：“鑑於中共的欺騙和隱瞞行為，美國人有權通過法律手段獲得賠償。”
 
-6月底，出於國家主權和安全的考慮，印度政府已經下令禁止使用包括抖音在內的59種中共國的應用程序。最近，印度再次擬定了一份列有275種中共國應用程序的清單，並對它們是否違反國家安全和用戶隱私進行了全面的審查。印度的這一行動，將使中共國的互聯網公司在印度市場受到重創。
+[原文鏈接](https://justthenews.com/government/congress/senate-committee-passes-bill-allow-people-sue-china-covid-19-related-damages)
 
-根據中共國對於數據共享有關規定，凡是屬於中共國的公司，無論它們在何處運營必須遵循中共的法律，有義務將本屬於公司的用戶數據在必要的情況下提供給相關的部門共享，這是與西方國家保護隱私的法律完全背道而馳的。
+翻譯報導：Hanstyle
 
-中共的法規不僅侵犯了本國公民的隱私，也嚴重威脅到運營國公民的隱私和國家安全。這是任何一個主權國家都不能容忍的。現在，印度首先對中共在網絡安全方面採取了實質性的措施，相信美國和歐洲國家很快也會有相應的措施出台。
-
-##  **印度考慮增加禁用近300種與中共相關的應用程序** 
-
-印度繼上個月禁止了包括抖音（TIK TOK）在內的59個應用程序後，目前，出於對相關的國家安全和用戶隱私的擔憂，正考慮對其它275種中共國的應用程序設置禁令。
-[!\[\](https://spark.adobe.com/page/9y8u1RI57BF47/images/183a2cbc-ef45-4643-93c8-fe665ec44abc.jpg?asset_id=a23bdb42-3d65-4050-a45b-17e703dd1d7a&amp;img_etag=%2297fcdcd6a91a8e1be235d107e79b4d83%22&amp;size=1024)](https://spark.adobe.com/page/9y8u1RI57BF47/images/183a2cbc-ef45-4643-93c8-fe665ec44abc.jpg?asset_id=a23bdb42-3d65-4050-a45b-17e703dd1d7a&amp;img_etag=%2297fcdcd6a91a8e1be235d107e79b4d83%22&amp;size=1024)
-據知情者透露，印度已經草擬了一份包含275種中共國應用程序的清單，並對它們是否違反國家安全和用戶隱私進行檢查。這表明印度提升了審查制度，可能有更多的中共國互聯網公司被禁止在該國發展。
-[!\[\](https://spark.adobe.com/page/9y8u1RI57BF47/images/3d9c8d00-9914-41ad-b1ff-2d957d0d9b35.jpg?asset_id=2ecde43c-7133-40be-bd33-36431ba02ac0&amp;img_etag=%22cc02ff695507590afe146c573a4ed88a%22&amp;size=1024)](https://spark.adobe.com/page/9y8u1RI57BF47/images/3d9c8d00-9914-41ad-b1ff-2d957d0d9b35.jpg?asset_id=2ecde43c-7133-40be-bd33-36431ba02ac0&amp;img_etag=%22cc02ff695507590afe146c573a4ed88a%22&amp;size=1024)
-在印度已經被禁的59個APP
-
-繼上個月高調禁止了包括短視頻應用程序抖音在內的59種中共國的應用程序之後，兩家亞洲巨頭之間的地緣政治局勢日漸緊張。
-
-印度經濟時報（ET）查看了這份清單，它包括了中國最有價值的互聯網巨頭騰訊提供的遊戲PubG，手機製造商小米提供的Zili，電子商務巨頭阿里巴巴提供的AliExpress以及抖音（TikTok）的所有者ByteDance提供的Resso和ULike等應用。
-
-上面提到的那位人士說：“政府可能禁止清單中所有的、或部分應用程序，也可能一個也不禁。”
-
-內政部聯盟部長的發言人沒有對印度經濟時報（ET） 就事情發展的詢問做出回應。但是，官方消息人士稱，這些審核旨在識別更多中文應用程序，審核所需的資金正在籌措中。一位官員解釋說：“其中一些應用程序由於安全問題已作紅標，而其他一些則是因違反數據共享和隱私問題被列出。”
-
-官員們指出，他們所指的中共國的數據共享規定要求中共國的公司必須與本國共享數據，無論它們在何處運營。而經過這些應用程序傳送到中共國的數據對印度的主權和完整構成了威脅。
-
-當議員們以及國務卿邁克·彭佩奧Mike Pompeo）已經表示，美國可能會禁止象抖音（Tik Tok）之類的、由中共控制的應用程序，但印度已經走在了前面，將其對中共國激進的言論轉化為政策。
-
-美國也應該明智地跟進。
-
-[原文鏈接](https://thenationalpulse.com/politics/india-bans-nearly-300-more-chinese-apps/)
-
-#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/9y8u1RI57BF47/) 】 
-
-
-
-0
+1

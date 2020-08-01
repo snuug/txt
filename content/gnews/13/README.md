@@ -1,13 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦會被一個又一個國家承認合法性
-`2020-08-01 04:16 GM31` [轉載自GNews](https://gnews.org/zh-hant/281892/)
+## 【世界多語言文字版】7月23日美國務卿蓬佩奧歷史性重磅演講: 疾呼全世界對抗中共極權
+`2020-08-01 08:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281993/)
 
-在郭先生[7月27日](https://gtv.org/?videoid=5f1f5462237d0041a6d181d8)的G-TV直播中，他宣佈:“新中國聯邦會被一個又一個國家承認合法性，會開始代表中國人民在海外合法與西方合作，建立屬於中國人的有法治信仰自由，戰友們很多未來都會參與到新中國的建設，包括接管中共在西方非法的財富，最終還給中國人民。中國人拒絕中共代表中國，要求全世界一起推翻這個流氓體制，中國人要求真正擁有獨立、民主、信仰、自由、法治，我們子孫的未來不會像原來一樣。”
+**[7月23日美國務卿蓬佩奧歷史性演講](https://www.youtube.com/watch?v=7azj-t0gtPM&amp;feature=youtu.be)** 
+ **疾呼全世界對抗中共極權**
 
-*翻譯：【茶奶奶】  校對：【Vinzo】  字幕：【GM31】*
+[【中文版】美國務卿蓬佩奧歷史性演講，疾呼全世界對抗中共極權](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)
 
-*戰友之家玫瑰園小隊出品*
+[【英文版】Secretary Pompeo Delivers a Speech at the Richard Nixon Presidential Library](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)
 
-1
+
+
+陸續更新中……
+
+製作：【秘密翻譯組G-Translators】
+
+0
