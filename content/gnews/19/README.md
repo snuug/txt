@@ -1,36 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年7月30日郭文貴先生连线韩国战友直播摘要
-`2020-07-31 12:23 GM10` [轉載自GNews](https://gnews.org/zh-hant/281527/)
+## 俄亥俄州藥物委員會羥氯喹禁令激民憤 昨日宣佈放棄執行
+`2020-07-31 16:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281616/)
 
-**戰友之家摘要組**
+新聞簡述：俄亥俄州藥物委員會此前[禁止使用氯喹和羥氯喹治療CCP新冠病毒的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)遭到醫護人員和患者群體抗議，迫於壓力和州長的明確要求下，該協會於[7月30日宣佈撤銷](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)該規定及相關條例。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162039/HCQ_20200730_ohio_photo169.png)
+**Requirements for Dispensing or Selling Chloroquine and Hydroxychloroquine in Ohio**
 
-00：00 文貴給韓國戰友一個大禮，參與到建設一個新世界裏面。閆麗夢博士能否滅共，不行。現在受到威脅最大的不是中國人，而是其它國家。共黨正在幫助埃及、伊朗、中東某個國家和巴基斯坦建設P3實驗室，北朝鮮也在建設中。這些國家有了生化武器就兩個目標：一個是美國，二猶太人。伊朗在中東就是滅以色列的。全人類都要記住文貴在韓國站說的話，美國和猶太人都面臨一個最大挑戰，一波一波的生化危機，要麼滅了共產黨。人類面臨最大的威脅和綁架，過去幾個月人類還是沒有醒來，西方的邪惡勢力還在勾結共黨。他們沒有意識到，這個生化危機還會繼續來。這麼多P3實驗室只有美國和猶太人這兩個目標。今天的爆料未來會被驗證。
+**關於羥氯喹在俄亥俄州的出藥和銷售要求**
 
-04：50 第二個問題，中共病毒使得全球經濟處在崩潰邊緣，需要多久恢復，文貴認為只要共黨滅了，恢復應該不會太久。美國經濟下行很大，歐洲還在調整中，互聯網信息市場把美國整個股票市場擡起來了。這是一個新興人類產業。人類生活方式、行為模式導致新的經濟模式。韓國將是亞洲經濟恢復最快的，因為韓國民族很強悍。等病毒的事過去了，很多人就可以用低廉的價格買到很高價值的資產，很多資產會賤賣。接下來新型轉型，科技產業也會大變革。
+Updated 7/30/2020
 
-08：23 非洲和中共國恢復可能性不大，因為沒有技術，而且別人不跟你玩了。如果中共不滅或者新政權不為人所信賴，那麼以後經濟就完蛋了。我們戰友機會很大，只要你有精力又年輕，都有可能找到很多機會。如果美國和以色列不幹掉這些魔鬼，整個人類都完了。這次是人類大機會，大家一定要抓住機會。經濟只會區域性不平衡，同時產生巨大機會。
+更新於7/30/2020
 
-11:10 羥氯喹是目前最有效的藥物但是還是推廣不利。後面是否有人控制、阻礙。雖然西方制度不完美，資本主義制度不完美，但是比獨裁社會主義還是要好很多。文貴每天的生活成本很高，需要大量資產，所以沒有資本就不會有爆料革命。班農在川普酒店搞的活動我們也有出錢。羥氯喹影響了兩個利益：第一，美國最大醫藥集團，全世界黑社會都沒有他們掙錢。西方國家醫藥是利潤最高的，美國總統都不敢說話。這些公司背後政治力量太大了。羥氯喹開放了會有一萬到兩萬億資產，這個力量太大了。美國整個醫療局是最早給武漢實驗室拿錢的。這些醫療科技巨頭，最怕你們把羥氯喹開放，開放後200個，十板價格20美金。他們想要賣五十美金，後面利益太大。會顛覆全人類的利益，我們在通過自己渠道分發。我們讓他們知道下一個要幹掉的就是以色列和美國。羥氯喹和阿奇黴素絕對有用。所以第一力量後面就是華爾街背後的資本力量，但是這些都要發生劇變，也使得我們很榮幸，這將誕生人類新格局。社會主義和資本主義都要巨大變化。文貴痛斥醫藥巨頭做壞事太多，必然遭到報應。文貴在吃羥氯喹，已經吃了20多粒了，文貴家人當心他的安全。
+As a result of the feedback received by the medical and patient community and at the request of Governor DeWine, the State of Ohio Board of Pharmacy has withdrawn proposed rule 4729:5-5-21 of the Administrative Code. Therefore, prohibitions on the prescribing of chloroquine and hydroxychloroquine in Ohio for the treatment of COVID-19 will not take effect at this time. This will allow the Board to reexamine the issue with the assistance of the State Medical Board of Ohio, clinical experts, and other stakeholders to determine appropriate next steps. Licensees should be aware that emergency rule 4729-5-30.2 is no longer effective and the requirements of that rule, including the inclusion of a diagnosis code on any prescription for chloroquine and hydroxychloroquine, are no longer applicable
 
-24:23 皮特納瓦羅和川普總統啥時候可以說出來新中國聯邦——嚴格講皮特沒有承認新中國聯邦，僅僅算是默認。在CSpan全國直播中出現我們戰友全球遊行，文貴感到意外，皮特離開後被幾個大佬質疑是否默認，皮特說新中國聯邦正在支持美國，希望可以繼續下去。現在還有很多美國人在默默支持我們，符合我們的利益，不能一次走太大。我們定位不同於法輪功，是一個政治團體，有政治訴求，就是推翻中共，我們和中共的人權、自由、法治訴求都不同，世界不能拒絕我們。實力大於虛名。大量歐洲機構組織都在聯系我們，他們期望知道我們未來如何發展。
+鑒於來自醫護人員和相關患者的反饋 ，並應州長DeWine的要求，俄亥俄州醫藥協會特此撤回擬議條例4729：5-5-21 。由此，禁止在俄亥俄州開處方氯喹和羥氯喹用於治療COVID-19 的規定即日起失效。協會將在俄亥俄州醫學委員會，臨床專家及相關機構和人員的協助下重新審查該條例並確定適當的後續步驟。具醫療資質人員請注意，緊急條例4729-5-30.2不再有效，其規定在任何氯喹和羥基氯喹的處方上注明診斷代碼將不再適用。
 
-33：20 7.27更多戰友站出來了，這個對國內戰友影響如何，無法具體用語言來形容，比如巨大之類。這次是個本質改變，所有人給文貴發信息，很多孩子被喝茶多次，很少直接聯系文貴，他們給文貴發幾個信息圖，文貴連線各地後傳播曲線直線上升。英國是在最後遊行時候數據劇烈上升。所有的數據都是在關鍵時刻出現過，比如419直播。這個都是在防火墻控制之下實現的，很多傳播都是通過數據鏈的傳播。戰友直接反饋，第一我們拒絕被代表，第二，安紅在澳洲影響很大，說我想家想父母。另外我們跟他們不一樣，共黨不代表我們，愛國不代表愛黨，沒有人罵新中國聯邦，他的訴求都是中國人的訴求。代表我們真心想要滅共，我們不同於中共。不論是否可以再未來控制中國，至少我們被西方接受了。這個是我們共同的家。
+[閱讀英文公告原文](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)
 
-39：55 新中國聯邦各個年齡段出來遊行都有，民心所向。未來國內如何走向？我們走到今天是全國戰友大量支持的結果，是文貴多年經營的結果，所以國內的事情文貴都知道。他們沒心情管水災的事；三峽是別的領導建的，自己不在乎。他們覺得死人多了好控制，對美國認為川普一定被幹掉，只要川普輸了，他的團隊去了，美國就搞定了。對於經濟他們認為中國人三十年前還燒柴火，現在可以用天然氣了，還要求啥？中國閉關鎖國還可以過很多年，中國人韌性強，死多少人無所謂，只要我在位子上，你們吃草無所謂。香港天天成了策反基地了，香港必須拿下，如果美國支持臺灣打下來打碎她。死上一百萬將軍自然出來了。一百萬死了可以出一個元帥，十萬士兵死了出一個將軍。只有內部政治會贏。大家不要天真，共黨認為你們都死了我就贏了，跟宗教信仰沒有關系。過去兩周在河南一帶、三門峽，孟建柱的基地，孫立軍的基地，被抓的人都是全部交代，只要求不禍及家人。共黨就是一個流氓，他們知道共黨一定利用你的家人來搞死你，所以每個人都一抓就跪。普通人再有本事也沒用，沒有未來。文貴笑談一個政法委高官被抓後家裏的資產無數。居然有蠟化的小孩屍體，和大量變態東西，超過大家想象。中國人的災難不存在閉關鎖國，這個國已經地獄化了，那樣邪惡的人可以存在，如果我們改不了這些心霾，精神枷鎖中國的未來還早著呢。到處是吃喝騙，虐待弱者，沒有任何人性。
+**【附錄：俄亥俄州長DeWine敦促俄亥俄州藥物委員會終止羥氯喹禁令的[推特](https://mobile.twitter.com/GovMikeDeWine/status/1288829332211658752)截圖】**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162801/Ohio_20200730_Governor_Twitter_snapshot.png)
+**【附錄：俄亥俄州藥物委員會此前發佈的[限制使用羥氯喹的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)如下】**
 
-58：20 新中國聯邦有些戰友不明白，共黨大赦的事是什麼情況，郭先生對死刑如何看？我們憲法是否會廢除死刑。一次文貴離開北朝鮮，需要繞道中國去韓國。飛機幾乎感覺是去了三個不同世界。文貴喜歡韓國，但是娛樂這一套比共黨還邪惡。韓國人內心太壓抑了。新中國聯邦所有戰友想的問題和我們沒有關系，不要想太高了。韓國人臆想很多別的事，我們要想一件事，只要讓共黨消失，後面的事不是我們決定的，要讓人民一人一票去決定。只要滅共，什麼後面都是人民自己的事。文貴調侃偽類民運的事。我們要無我，我們不要桃子，就不怕偷桃的，必須大赦但是錢一定要還回去。共黨的財富都是來自人民，所有共黨都來自於我們普通人家人，不要老是對自己人最狠。我們缺的是信仰人性，如果不分真假善惡，就不是人。只要加入共黨就不可以分真假，分善惡。黨員犯罪中國人就都是犯罪份子。必須大赦。否則中國要軍閥四起，會死掉70-80%的人。就會進入人吃人的時代，必須忘掉過去，建立法治，否則還不如共黨。
+4729:5-5-21 Prescription requirements for chloroquine and hydroxychloroquine.
 
-1：07：35 以後新中國聯邦和韓國、日本經濟政治關系如何走向？成就文貴來自港澳臺、歐美、韓國和日本，沒有共黨後我們不同於他們，不會挑戰美國。亞洲、日本、韓國、新加坡都不可能和共黨玩，所以他們不能控制亞洲。未來韓國和北朝鮮一定統一，亞洲民主國家後未來無人可擋中國和亞洲七小龍會占全世界大多數財富。而且美國歐洲的消費市場也會逐步降低到50%左右，日本新加坡，安倍的貿易協議非常重要。太平洋貿易協議，我們進去後，不再做亞洲霸主後，亞洲會是未來一千年的最大的區域。未來海洋文明和大陸文明都要去了，是互聯網的國家。未來是有信仰和沒有信仰國家的對抗，未來等亞洲統一後是一個信仰後勤勞的國家對抗不勤勞的國家。中國外交官員極端無恥，都是傻叉，他們心裏也知道，一堆狗屎領導最勤勞的百姓，所以知道必須奴役中國人才可以維護他們的政權。很多國家希望未來接受大量中國人。接受一百萬香港人就會有一個香港，接收五千萬中國人就會有一個新中國。接下來全世界都會愛中國人。
+4729：5-5-21氯喹和羥氯喹的處方要求
 
-1:17:25 文貴先生和韓國戰友互動，大喊消滅共黨。呼籲戰友好好培養孩子。文貴提三個要求：
-第一，韓國疫情威脅，大家備好口罩藥品，一定還有一波疫情。大家一定要準備好，保護好戰友。
-第二，韓國還希望有更多戰友站出來，想盡辦法把韓國建成對抗中共基地，準備接收幫助戰友逃離中共。
-第三，韓國戰友非常堅定，大家一定要懂得財務，用心經營，一手強大隊伍，一手讓戰友發財。G系列要配合你們做大做強。未來戰友前途無限。Gfashion樣品很好，班農都動心了。班農感慨文貴的時間使用非常有效，還有掙錢能力太強了。希望未來戰友衣著，教養都要有極大提高。文貴和戰友祈福！
+(A) No prescription for chloroquine or hydroxychloroquine may be dispensed by a pharmacist or sold at retail by a licensed terminal distributor of dangerous drugs, including prescriptions for patients residing in Ohio dispensed or sold at retail by nonresident terminal distributors of dangerous drugs as defined in rule 4729:5-8-01 of the Administrative Code, unless the prescription bears a written diagnosis code from the prescriber or a statement indicating its veterinary medical purpose.
 
-1:30:30 GTV新生，期待戰友做有價值節目。做好Gnews，韓國要發聲出來，在韓國做好G系列，這個太重要了。文貴非常榮幸接收大家采訪。
+（A）氯喹或羥氯喹的處方藥將不允許通過藥劑師配給或在有危險藥品特許銷售資質的零售點出售，包括配給俄亥俄州本地居民的或由有危險藥品特許銷售資質的非本地零售點出售的符合第4729：5-8-01號條例定義的處方藥。除非處方上開處方者的書面診斷代碼或聲明為獸醫用。
 
-更多詳情請點擊：[https://youtu.be/OG1uN9zWaSE](https://youtu.be/OG1uN9zWaSE)
+(B) Except as provided in paragraph (C) of this rule, prescriptions issued for chloroquine or hydroxychloroquine for prophylactic use related to COVID-19 or for the treatment of COVID-19 are strictly prohibited unless otherwise approved by the board’s executive director in consultation with the board president, at which time a resolution shall issue. Upon the effective date of this rule, all previous approvals for the use of chloroquine or hydroxychloroquine shall be deemed void and must be approved using the process outlined in this paragraph.
 
-0
+（B）除非如條款（C）另有規定，嚴格禁止開具氯喹或羥氯喹作為預防或治療COVID-19相關治療的處方藥，除非經由經董事會執行董事與董事會主席協商同意，屆時將正式決議。在本規定生效後，在此之前所有使用氯喹或羥氯喹的批准均應視為無效，必須按照本條款規定程序進行審批。
+
+(C) The prohibition in paragraph (B) of this rule does not apply to prescriptions issued as part of a documented institutional review board-approved clinical trial to evaluate the safety and efficacy of the drugs to treat COVID-19. Prescriptions must include documentation that the patient is enrolled in a clinical trial.
+
+（C）條款（B）中的禁令不適用於已獲得機構審查委員會批准的臨床試驗的處方，該處方用於評估治療COVID-19的藥物的安全性和有效性。處方必須包括有關該患者已參加臨床試驗的文件。
+
+(D) Paragraphs (B) and (C) of this rule shall also apply to medication orders and outpatient prescriptions dispensed by institutional pharmacies as defined in agency 4729 of the Administrative Code
+
+4729:5-5-21 2
+
+（D）條款（B）和（C）也應適用於代理條例第4729條所定義的公共藥房配給的藥品訂單和門診處方藥
+
+4729：5-5-21 2
+
+Replaces: 4729-5-30.2
+
+替代：4729-5-30.2
+
+Effective: 7/30/2020
+
+生效日期：2020年7月30日
+
+Five Year Review (FYR) Dates: 07/30/2025
+
+五年審查（FYR）日期：07/30/2025
+
+CERTIFIED ELECTRONICALLY Certification
+
+07/20/2020
+
+電子認證日期
+
+07/20/2020
+
+Date Promulgated Under: 119.03
+
+頒布日期：119.03
+
+Statutory Authority: 4729.26, 3719.28
+
+法定機構：4729.26，3719.28
+
+Rule Amplifies: 4729.26, 4729.54, 4729.55
+
+細則：4722.96、4725.94、4729.55
+
+Prior Effective Dates: 03/22/2020 (Emer.)
+
+先前生效日期：03/22/2020（Emer。）
+
+[閱讀此公告英文原文](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)
+
+*翻譯：【一花一世界】編輯整理：【Isaiah4031】*
+
+*戰友之家玫瑰園小隊出品*
+
+1
