@@ -1,21 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/06/30 CCP病毒每日疫情直播簡報
-`2020-07-31 10:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/281448/)
+## 如何高效傳播爆料革命真相
+`2020-07-31 11:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281518/)
 
-戰友之家圖文摘要組及小語種組
+作者：喜馬拉雅聯盟加拿大農場文寶Porsche
 
-[French\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095600/French_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095600/French_0630_CCP_Virus_Updates.pdf)
+校對：熊媽媽
 
-[German\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095603/German_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095603/German_0630_CCP_Virus_Updates.pdf)
 
-[English\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095607/English_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095607/English_0630_CCP_Virus_Updates.pdf)
+[!\[劉妞妞2 в Twitter: &quot;送CCP一場錘子雨！砸死CCP的不是最後一個錘子！而 ...\](https://pbs.twimg.com/media/Ed8nPNoU4AAsSDw.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Ftwitter.com%2Fniuniu_liu2%2Fstatus%2F1287791169754161153%3Flang%3Dbg&amp;psig=AOvVaw3EemfbJ-13rQnPtioiET-O&amp;ust=1596295416866000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCJCtvf_l9-oCFQAAAAAdAAAAABAD)
+有效傳播，是爆料革命成功與否的勝負手。遺憾的是，我們無數戰友，每天非常辛苦的發推，但是大多數信息要么沉入海底無人看到、要么就是在戰友之間內部循環、要么就陷入與偽類的纏鬥被舉報封號，最終傳播效果很有限。本人連續封號5個以上，鬱悶已久，甚至一度放棄。但是路德在節目中大聲疾呼不能放棄推特陣地，警醒了我，思索良久、終於找到適合自己的方法。自己目測，只需原來1成時間，傳播的受眾即可達到或超越原來傳播方式的受眾。在此分享給戰友們。
 
-[Japanese\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095611/Japanese_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095611/Japanese_0630_CCP_Virus_Updates.pdf)
+**1.向誰傳播？**
 
-[Korean\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095614/Korean_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095614/Korean_0630_CCP_Virus_Updates.pdf)
+1）爆料革命的資訊，是真戰友，會去自動尋找、每日關注重要渠道的資訊，我們不需要花大量時間在內部循環傳播，比如GTV這是戰友們互換信息的場所、而不是相互傳播的主戰場，真正的戰場是Twitter和Instgram，尤其是前者，Youtube是傳播兌現的地方，既感興趣的人會點擊你的Twitter鏈接、進入Youtube去進一步了解。 Facebook因為需要通過添加好友傳播，所以效果有限，此處暫不討論。
 
-[Spanish\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095619/Spanish_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095619/Spanish_0630_CCP_Virus_Updates.pdf)
+2）我們需要的是進入我們完全不熟悉的領域，將外人變為戰友，這些外人指的是陌生人、甚至五毛、或者敵人。
 
-1
+3）結論是：我們傳播的重點是向除戰友的所有人。
+
+**2.自己的粉絲多少不重要。**
+
+1）粉絲取決於你的名氣和互粉兩個因素。普通戰友要快速增粉，只有互粉這一個方法，但這個費時費力數量有限，10個粉絲與100個粉絲，傳播的效果沒有太大區別。我們要做的是傳播，而不是成為大V。
+
+2）傳播最快方法—借助大V賬號，讓大V的海量粉絲看到我們的留言。
+
+**3.對手方的大V，是重中之重。**
+
+1）盟友大V，比如川普的粉絲，多數都是咱們的戰友。很容易就能從內部渠道如GTV或路德頻道知道重要推文，普通戰友可以不必關注。
+
+2）中間派大V，比如達賴喇嘛的粉絲，可以適當關注。這些粉絲比對手大V粉絲更容易轉化為戰友。
+
+3）對手大V，比如英文世界的奧巴馬和中文世界的艾未未，他們的粉絲才是我們傳播的重點對象。把對手轉化1個，領先差距會增加2個。如果不小心把大V轉化了，就是巨大驚喜了。
+
+**4.跟推大V，是一場戰鬥。**
+
+1）反洗腦和洗腦的方法都是一樣，就是“重複”。天天看見，他們慢慢就會相信。
+
+2）留言必須排在第一。跟推留言排第一，大V一定看得到、永遠不會沉底，稍微感興趣的粉絲也必然看到。其瀏覽量將是天文數字，每一推都有可能轉化成功戰友。
+
+3）要實現大V推下的第一個留言，必須拿出戰鬥的狀態，全神貫注操作。
+
+4）操作技巧：將要跟推的內容和鏈接提前複製到剪貼板上；不停刷新推特頁面；在出現最新推文後10秒左右完成留言，一般可保證排列第一。
+
+**5.留言內容是關鍵。**
+
+1）根據大V粉絲的特徵選擇不同的詞句，同時對所附鏈接做簡單的介紹，以吸引這些粉絲點開你要傳播的鏈接。
+
+2）留言後面附上我們要傳播的鏈接。
+
+**6.不要在乎短期的轉推或留言。**真正要轉推或留言的人，已經是你的粉絲，這些人就好比是我們的戰友，不是我們傳播的重點人群。我們的重點是將普通觀眾轉化為我們的粉絲。由於爆料革命的信息都是比較超前的，普通民眾認同有個過程，此時他們中的大多數是不會點贊、轉推或留言的。因此，我們不必在意這三個指標，只需要不停地讓他們看到我們的信息，日積月累、時間到了之後，自然會轉化成戰友。一旦他們成為我們的堅定戰友，他們可能會自動地去尋找需要的信息了，而有點興趣、半信半疑的人則會繼續依賴我們供給信息，他們是最可能點贊、轉推或留言的群體。
+
+**7.避免封號的技巧：**每個留言的內容不能完全相同否則會被當作機器人封號、推文不可有極端言論或攻擊性言論、多去英文推特下用英文留言減少被中文五毛舉報的機會。
+
+**8.只給真正感興趣的人回复。**對於真有興趣的、有可能轉化為戰友的發言，要積極用心回复。對於無禮、無依據、無邏輯的回復不理睬，不浪費時間。
+
+0

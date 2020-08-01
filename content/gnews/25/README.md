@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 熱戰危險了？ BBC驚曝美中開戰熱點：中國急於奪下臺灣！
-`2020-07-31 09:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/281374/)
+## 【世界多語言圖文】2020/06/30 CCP病毒每日疫情直播簡報
+`2020-07-31 10:02 GM77` [轉載自GNews](https://gnews.org/zh-hant/281448/)
 
-編撰：天使
-審核：文肯尼
+戰友之家圖文摘要組及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31092159/2566056-XXL-1.jpg)
+[French\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095600/French_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095600/French_0630_CCP_Virus_Updates.pdf)
 
-美國國務卿蓬佩奧日前對中共喊話，「南海不是中國的海上帝國」，對此，中國外交部發言人汪文斌反嗆，「我們要告訴蓬佩奧，南海不是美國的夏威夷」，雙方你來我往，透露美中緊張關系急速升溫。28日英國BBC報導「美中新一輪外交沖突彰顯新冷戰態勢，專家擔憂兩國可能走向熱戰」，中國獨立政治學者吳強甚至直指，「真正的危險在臺灣」。
+[German\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095603/German_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095603/German_0630_CCP_Virus_Updates.pdf)
 
-國際對於美中關系，從冷戰升級到熱戰的可能性高度關註，吳強認為中共在東海、臺海以及南海領域，與其他國家發生矛盾的根本原因在於，中國擁抱傳統帝國主義的心態，不承認現有國際規則，「這也是中美關系緊張的征結所在」。至於美中戰爭的熱點在哪？吳強認為，「真正的危險在臺灣」，他強調中共以民族復興為目標，習近平打算在第三任期內完成對臺灣的統一，因此中共也不惜一切代價，在香港否定一國兩制，並推出《港版國安法》，種種作為皆有跡可循。
+[English\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095607/English_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095607/English_0630_CCP_Virus_Updates.pdf)
 
-吳強直言，對北京來說，只有奪下臺灣，把臺灣作為核潛艇基地才能在未來，真正有能力與美國對抗。所以中美關系越緊張，中國越急於奪下臺灣。吳強補充，中共奪下臺灣後，才能解決海南島需要大量海空掩護核潛艇的問題，由此展開美中在西太平洋的對抗。
+[Japanese\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095611/Japanese_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095611/Japanese_0630_CCP_Virus_Updates.pdf)
 
-**觀者評論：**
+[Korean\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095614/Korean_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095614/Korean_0630_CCP_Virus_Updates.pdf)
 
-顯而易見，從地圖上看，臺灣是重要戰略之地，臺灣對於中共國來說不僅是第一大島，而且也是中共國與太平洋地區各國海上聯系的重要交通樞紐，是中共國以及國際海上交通要道。同時，臺灣與廟島群島、舟山群島、海南島等構成一條海上“長城”。從國際戰略地位來看，臺灣歷來是兵家必爭之地,甲午戰爭後，日本強迫清政府割讓臺灣，從此，日本控制了從千島群島到臺灣島，掌握了亞洲東岸大部分海岸地區進入太平洋的通道，包括日本在二戰期間，進行偷襲的飛機也有從臺灣起飛。所以，中共國覬覦臺灣很久了，尤其是習近平，想在自己執政期限內控制香港的同時奪取臺灣。尤霍說：“習近平宣布他已準備好，不惜流血也要統一臺灣，但是他們卻忘了征求臺灣人民的意見，臺灣從來不是中共國的一部分，他們也不想加入”。中共國急於奪取臺灣，也揭示了他們想從臺灣戰略部署打擊西方世界的野心。然而郭文貴先生曾爆料中共國敢打臺灣，西方世界一定會支持臺灣。相信西方世界尤其是美國在中共國對臺灣動武時定會給予中共國重重一擊。
+[Spanish\_0630\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095619/Spanish_0630_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31095619/Spanish_0630_CCP_Virus_Updates.pdf)
 
-相關來源：
-[https://www.setn.com/News.aspx?NewsID=787573](https://www.setn.com/News.aspx?NewsID=787573)
-
-2
+1
