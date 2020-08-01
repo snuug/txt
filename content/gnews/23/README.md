@@ -1,35 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共控制的黑客攻擊美國疫苗研發機構企圖盜竊冠狀病毒疫苗研發情報
-`2020-07-31 14:54 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281565/)
+## 德國不再扭捏，暫停與香港引渡協議
+`2020-07-31 20:47 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281689/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31144936/ransomware-2321110_640-800x450-1.jpg)
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-圖片鏈接： 
- [https://www.ntdtv.com/gb/2019/08/08/a102640135.html](https://www.ntdtv.com/gb/2019/08/08/a102640135.html) 
+校對：HUH
 
 
-據《路透社》華盛頓報導，中共控制的黑客發起對美國疫苗研發機構的攻擊，企圖盜竊冠狀病毒疫苗的研發數據情報。
+[!\[歐洲模範生怎麼了？德國經濟成長率6年最低｜天下雜誌\](https://storage.googleapis.com/www-cw-com-tw/article/202001/article-5e2016d209f9f.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.cw.com.tw%2Farticle%2F5098645&amp;psig=AOvVaw37lxxQttarf0Eyg6SivzNm&amp;ust=1596328954443000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPCpk_zi-OoCFQAAAAAdAAAAABAm)圖片來源：commons.wikimedia 
+7月31日，德國外長馬斯表示，德國決定暫停與香港的引渡協議，這是既五眼聯盟之後第一個暫停與香港引渡協議的歐盟國家，德國對香港措施還包括停止向香港出口部分軍用設備，簡化港人入境手續，為“受到威脅”人士提供獎學金等，同時，德國希望與更多的歐洲國家一起行動。目前，就香港問題，德國在歐盟的最佳拍檔法國就是否採取行動還在考慮中。
 
-一位負責監測中共黑客活動的美國安全官員披露，中共控制的黑客在今年早些時候曾經試圖侵入美國一家領先的CCP病毒疫苗研發公司（Moderna Inc.）的電腦系統，圖謀盜取CCP病毒疫苗的研究數據情報。 Moderna公司是最早獲得聯邦政府近5億美元的資金支持來研發CCP病毒疫苗的美國公司，川普政府對這個公司研發的疫苗寄予了很高的期望，從本月開始，該公司在政府的幫助下已經開始對30,000人進行疫苗臨床試驗。與此同時，世界各國的各個醫療部門也在爭相研發有效的病毒疫苗。總部位於馬薩諸塞州的Moderna公司向路透社證實，該公司已與FBI保持密切聯繫。該公司發言人說：“我們始終高度警惕並不斷評估潛在的網絡安全威脅，以保護我們的寶貴信息”。
+日前，德國外交部發布消息“香港政府取消10多名反對派候選人參選資格以及推遲立法會選舉的決定是對香港公民權利的又一次攻擊，執行香港國安法的新部門已經逮捕了3名積極分子，德國擔憂如果中共國《港版國安法》破壞“一國兩制”，將對德中關係產生影響”。
 
-雖然有關人員沒有透露更多關於黑客的信息，但人們注意到，美國司法部上週以間諜罪起訴了兩名中共國公民，罪名是間諜活動和試圖非法入侵三個參與冠狀病毒疫苗研發的美國實驗室和公司。上週發布的起訴書稱，兩名中共國黑客李嘯宇和董家誌有長達十年的從事網絡黑客活動的歷史，檢察官更指出，李嘯宇和董家志兩人受中共國家安全部的直接控制，他們最近的黑客攻擊對像是從事CCP病毒相關醫學研究機構。
+馬斯還表示：“我們再次期待中共國能夠遵守其國際法律義務。包括確保《基本法》所保障的自由和權利，其中也包括自由和公正選舉的權利，這是香港人的權利。”
 
-另外，美國司法部起訴書中提到的另外兩家未具名的醫學研究公司分別位於加利福尼亞州和馬里蘭州，均為正在從事抗病毒藥物研究的公司。檢察官說，黑客以“尋找漏洞”的方式對他們的網絡“進行了偵察”。目前，這兩家公司的網絡安全團隊已收到有關外國黑客威脅的警報。
+7月31日晚，香港特首林鄭月娥召開記者會宣布，原訂9月6日舉行的立法會選舉推遲至2021年9月5日，此前報名的參選人將作廢。緊接著，德國宣布暫停與香港的引渡協議。德國此舉是歐盟在香港問題上針對中共開始強硬的重要信號。
 
-值得注意的是，一位從事調查去年針對生物科技公司多起黑客入侵案件的安全顧問表示，據調查，這些受中共國家安全部控制的黑客組織正在全球範圍內展開盜竊CCP病毒疫苗的網絡攻擊活動。這也從另一方面佐證了目前這起針對Moderna公司的黑客攻擊案件的背後操縱者就是中共國的安全部門。
+7月23日，在美國尼克松總統圖書館國務卿蓬佩奧曾提及，“事實上，我們北約的盟友就沒有在香港事情上為香港站出來發聲，因為他們擔心會被北京限制進入中國市場” ，所指的就是德國。 7月29日，美國國防部部長馬克·埃斯珀宣布，撤出三分之一近11900名駐德美軍，美軍在歐洲的指揮部從德國斯圖加特搬遷至比利時的蒙斯。
 
-評：
+美國為首的五眼聯盟滅共的堅決態度以及港府取消反對黨候選人的選舉資格並推遲立法會選舉使德國最終採取了暫停與香港引渡協議的決定。
 
-世界各國爭相研發有效的CCP病毒疫苗，這是一件好事，有競爭才會有壓力有促進。但是競爭必須是基於公平的競爭，基於研發實力的競爭，基於醫學研究水平的競爭。中共不守公平，不靠實力，不搞研究，卻依靠黑客非法偷竊疫苗數據情報，實在可恥至極。黑客犯罪會受到法律制裁，在黑客背後的中共也應該受到懲罰！
+參考鏈接：
 
-原文鏈接：
+[https://www3.nhk.or.jp/nhkworld/en/news/20200801\_07/](https://www3.nhk.or.jp/nhkworld/en/news/20200801_07/)
 
-https://www.reuters.com/article/us-health-coronavirus-moderna-cyber-excl/exclusive-chinese-backed-hackers-targeted-covid-19-vaccine-firm-moderna-idUSKCN24V38M
+[https://www.politico.eu/article/germany-suspends-extradition-agreement-with-hong-kong/](https://www.politico.eu/article/germany-suspends-extradition-agreement-with-hong-kong/)
 
-翻譯報導：Hanstyle
-
-校對整理：下里巴人
+[https://www.reuters.com/article/us-usa-trump-germany-military/us-to-withdraw-about-12000-troops-from-germany-but-nearly-half-to-stay-in- europe-idUSKCN24U20L](https://www.reuters.com/article/us-usa-trump-germany-military/us-to-withdraw-about-12000-troops-from-germany-but-nearly-half-to-stay-in-europe-idUSKCN24U20L)
 
 0

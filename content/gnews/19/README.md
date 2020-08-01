@@ -1,93 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄亥俄州藥物委員會羥氯喹禁令激民憤 昨日宣佈放棄執行
-`2020-07-31 16:42 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281616/)
+## 隱私和匿名 DT特戰旅金融課堂第三課
+`2020-07-31 22:45 DT` [轉載自GNews](https://gnews.org/zh-hant/281493/)
 
-新聞簡述：俄亥俄州藥物委員會此前[禁止使用氯喹和羥氯喹治療CCP新冠病毒的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)遭到醫護人員和患者群體抗議，迫於壓力和州長的明確要求下，該協會於[7月30日宣佈撤銷](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)該規定及相關條例。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162039/HCQ_20200730_ohio_photo169.png)
-**Requirements for Dispensing or Selling Chloroquine and Hydroxychloroquine in Ohio**
+DT特戰旅金融課堂
 
-**關於羥氯喹在俄亥俄州的出藥和銷售要求**
+*作者：長工Satoshi｜文章：西川Stanly整理*
 
-Updated 7/30/2020
+我們前兩周說了反洗錢法, 然後破天荒說了記賬權。記賬權這個概念是比較犀利一點, 今天結合賬戶體系說隱私和匿名。畢竟, 記賬這件事, 就是誰給誰記什麼賬的問題。賬戶ID是一個基本的要素。
 
-更新於7/30/2020
+上一堂課還順便蜻蜓點水說了區塊鍊和分佈式賬本。這個話題其實很大很深, 往後的課程, 應該基本都是圍繞這個來說。戰友們的留言, 對加密數字貨幣都有興趣想了解. 今天我會花大部分精力圍繞賬戶體係來分析。
 
-As a result of the feedback received by the medical and patient community and at the request of Governor DeWine, the State of Ohio Board of Pharmacy has withdrawn proposed rule 4729:5-5-21 of the Administrative Code. Therefore, prohibitions on the prescribing of chloroquine and hydroxychloroquine in Ohio for the treatment of COVID-19 will not take effect at this time. This will allow the Board to reexamine the issue with the assistance of the State Medical Board of Ohio, clinical experts, and other stakeholders to determine appropriate next steps. Licensees should be aware that emergency rule 4729-5-30.2 is no longer effective and the requirements of that rule, including the inclusion of a diagnosis code on any prescription for chloroquine and hydroxychloroquine, are no longer applicable
+**今天說隱私和匿名！**
 
-鑒於來自醫護人員和相關患者的反饋 ，並應州長DeWine的要求，俄亥俄州醫藥協會特此撤回擬議條例4729：5-5-21 。由此，禁止在俄亥俄州開處方氯喹和羥氯喹用於治療COVID-19 的規定即日起失效。協會將在俄亥俄州醫學委員會，臨床專家及相關機構和人員的協助下重新審查該條例並確定適當的後續步驟。具醫療資質人員請注意，緊急條例4729-5-30.2不再有效，其規定在任何氯喹和羥基氯喹的處方上注明診斷代碼將不再適用。
+[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/864e71c3-f890-4073-b182-e3c623d2dc29.jpg?asset_id=d59d787d-13d8-4738-9858-f3bb7d73ab22&amp;img_etag=%22c89342e8338303eab5ad5072f26bd736%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/864e71c3-f890-4073-b182-e3c623d2dc29.jpg?asset_id=d59d787d-13d8-4738-9858-f3bb7d73ab22&amp;img_etag=%22c89342e8338303eab5ad5072f26bd736%22&amp;size=1024)
 
-[閱讀英文公告原文](https://www.pharmacy.ohio.gov/Documents/Pubs/Newsletter/2020/Requirements%20for%20Dispensing%20or%20Selling%20Chloroquine%20and%20Hydroxychloroquine%20Update%207.30.2020.pdf)
+隱私和匿名是兩個完全不等同的事情，但是基本上，很多人都搞不清楚。隱私是法律範疇內的事情, 而匿名是一種行為。人在兩種情況下選擇匿名， 一是當你的隱私安全得不到保證的時候；二是你想幹壞事不想讓人知道的時候！所以,戴著面具燈光黑暗開化妝舞會,很多最後已淫亂收場。
 
-**【附錄：俄亥俄州長DeWine敦促俄亥俄州藥物委員會終止羥氯喹禁令的[推特](https://mobile.twitter.com/GovMikeDeWine/status/1288829332211658752)截圖】**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31162801/Ohio_20200730_Governor_Twitter_snapshot.png)
-**【附錄：俄亥俄州藥物委員會此前發佈的[限制使用羥氯喹的公告](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)如下】**
+在一個正常的法治社會，人不需要匿名！如果推特不被BGY， 戰友們都可以隨便透露自己是誰！但只要七哥一註冊，喊一聲“今天你們健身了麼？” 那這個賬號立刻就被斃掉了！推特最近修改了使用條款, 你登錄的時候會讓你同意他的流氓條款, 讓你同意他出賣你的隱私。重點戰友肯定被重點關照了, 所以DT退出推特. 我這種小魚小蝦, 人家不感興趣, 倒也沒什麼大礙。
 
-4729:5-5-21 Prescription requirements for chloroquine and hydroxychloroquine.
+法律定義內涵蓋的隱私很廣的：比如你的家庭地址，比如電話號碼；你如你投票投給了誰，比如你消費了什麼；比如你愛看什麼電影，喜歡什麼食物。這些都是你的隱私。這些基本在互聯網時代已經完全透明。當你在網絡註冊賬號的時候，每一次打勾，同意使用條款，基本等同每一次對自己的隱私作出了出賣。
 
-4729：5-5-21氯喹和羥氯喹的處方要求
+在談金融領域的賬戶體系之前, 我們先回顧一下“紙幣現金社會”。
 
-(A) No prescription for chloroquine or hydroxychloroquine may be dispensed by a pharmacist or sold at retail by a licensed terminal distributor of dangerous drugs, including prescriptions for patients residing in Ohio dispensed or sold at retail by nonresident terminal distributors of dangerous drugs as defined in rule 4729:5-8-01 of the Administrative Code, unless the prescription bears a written diagnosis code from the prescriber or a statement indicating its veterinary medical purpose.
+說回顧, 因為可能現在的年輕一代甚至忘記了這個時代，人們幾乎不用現金人民幣了。傳統現金社會基本不用關心賬戶的，因為現金具備天然隱私和匿名的屬性！你枕頭底下多少錢, 就是多少錢，完全沒有賬戶之說。我念高中住校, 家裡帶現金, 每個月回家一次. 錢要放非常好古代的銅錢白銀和黃金都是天然隱私和匿名的。你上街買菜，買了三斤豬肉花了90塊，拿出100，找你10塊，你帶回3斤豬肉. 這一筆交易非常簡單容易理解。你付的那100塊錢不會洩漏你的個人信息：比如生日，比如家庭住址，比如你去過哪裡！收錢的人也不用管你是誰！現金是隱私的保護神！但這幾乎都成為歷史。
 
-（A）氯喹或羥氯喹的處方藥將不允許通過藥劑師配給或在有危險藥品特許銷售資質的零售點出售，包括配給俄亥俄州本地居民的或由有危險藥品特許銷售資質的非本地零售點出售的符合第4729：5-8-01號條例定義的處方藥。除非處方上開處方者的書面診斷代碼或聲明為獸醫用。
+傳統交易是隱私天然屏障，但現在紙幣現金逐步被替代！甚至一些混蛋國家，規定大於1000歐元的交易，不許使用紙幣！整個歐盟都是！你看到很多商品標價999歐元，不要奇怪！就差沒有規定紙幣現金屬於非法交易了！當然，能夠孕育出“共產主義”這種混蛋思想的以德法為代表的歐洲，出現多混蛋滑稽的事情都不用奇怪！你使用他們法定貨幣一次超過1000現金是非法行為！照目前的趨勢, 在一些混蛋國家, 紙幣退出流通, 甚至完全取締, 我都認為完全可能。我們已經一隻腳踏進地獄。
 
-(B) Except as provided in paragraph (C) of this rule, prescriptions issued for chloroquine or hydroxychloroquine for prophylactic use related to COVID-19 or for the treatment of COVID-19 are strictly prohibited unless otherwise approved by the board’s executive director in consultation with the board president, at which time a resolution shall issue. Upon the effective date of this rule, all previous approvals for the use of chloroquine or hydroxychloroquine shall be deemed void and must be approved using the process outlined in this paragraph.
+簡單回顧現金社會完畢，下面我用支付寶的賬戶體系, 作為主要的例子, 來分析隱私和匿名。支付寶的賬戶申請和驗證, 就是手機號/電子郵件+身份驗證. 我們把這個簡單理解是開戶或者賬戶申請。
 
-（B）除非如條款（C）另有規定，嚴格禁止開具氯喹或羥氯喹作為預防或治療COVID-19相關治療的處方藥，除非經由經董事會執行董事與董事會主席協商同意，屆時將正式決議。在本規定生效後，在此之前所有使用氯喹或羥氯喹的批准均應視為無效，必須按照本條款規定程序進行審批。
+今天，“支付寶張三”給“支付寶李四”支付一筆錢, 這筆交易, 我們分析一下：張三支付的時候, 需要李四提供賬戶, 然後支付寶這個機構來記賬。張三賬戶必須有足夠餘額,才能完成。支付完成之後, 雙方都會知道對方的賬號信息；支付寶也知道；監管機構也可以隨時查詢。這筆交易, 對於不相關的, 比如隔壁老王, 就不知道這筆交易信息。這筆交易的法律有效性, 也是有保障的。那麼, 我簡單總結, 對於交易雙方, 和交易平台(支付寶)和監管機構, 這筆交易是透明的, 對於不相關的隔壁老王, 是秘密的。但是, 我今天問大家一個問題: 李四賣3斤豬肉給張三, 真需要知道張三的賬號麼？李四賣豬肉給張三, 非要告訴張三他的賬號麼？但是, 在這支付體系下, 你不告訴不行。
 
-(C) The prohibition in paragraph (B) of this rule does not apply to prescriptions issued as part of a documented institutional review board-approved clinical trial to evaluate the safety and efficacy of the drugs to treat COVID-19. Prescriptions must include documentation that the patient is enrolled in a clinical trial.
+在一些傳統的金融支付方式, 比如歐美很多地方, 喜歡用支票。支票你只會透露賬戶名, 但是不會透露賬號。開成現金支票, 幾乎就是現金。缺點是支付者的賬號信息, 在支票上。收錢的人, 只需要提供名稱，比如“ABC肉舖”，至於ABC肉舖後面的賬戶, 你不需要提供。這種是保護收款者, 但是對付款者保護有限。
 
-（C）條款（B）中的禁令不適用於已獲得機構審查委員會批准的臨床試驗的處方，該處方用於評估治療COVID-19的藥物的安全性和有效性。處方必須包括有關該患者已參加臨床試驗的文件。
+你使用銀行卡,比如借記卡或者信用卡, 你使用之後, 你的信息,包括姓名,和地址, 都被記錄！你有隱私麼? 如果你相信法律會保護你隱私，或者，商戶那邊的信息永遠不會被盜。我是不信的。
 
-(D) Paragraphs (B) and (C) of this rule shall also apply to medication orders and outpatient prescriptions dispensed by institutional pharmacies as defined in agency 4729 of the Administrative Code
+這基本是當下的金融賬戶體系，對隱私的全面侵犯，隱私權是基本喪失的。所以才有隱私保護法: 如果真有保障, 還需要保護麼?
 
-4729:5-5-21 2
+**下面說以太坊** 。
 
-（D）條款（B）和（C）也應適用於代理條例第4729條所定義的公共藥房配給的藥品訂單和門診處方藥
+[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/272a058f-a25c-4f19-8358-7eab94502b2e.jpg?asset_id=48e5c149-8abb-45c7-a36e-8a161ddad9f7&amp;img_etag=%22d2a65b64388489577e16bee2c32fb729%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/272a058f-a25c-4f19-8358-7eab94502b2e.jpg?asset_id=48e5c149-8abb-45c7-a36e-8a161ddad9f7&amp;img_etag=%22d2a65b64388489577e16bee2c32fb729%22&amp;size=1024)
 
-4729：5-5-21 2
+為什麼不先說比特幣？原因是比特幣不好理解，尤其是比特幣的賬戶體系。以太坊用一串類似內存字符地址替代手機號電子郵件，身分證號，作為賬戶ID。一個賬戶, 就是一串固定的字符。你可以申請10個, 100個, 隨便。這一點, 單就賬戶獲取/申請的角度, 好像自由度大增，法律也沒有規定你最多有幾個，比如支付寶一個人最多三個賬號。那麼，以太坊地址有沒有綁定身份證？這是今天一個非常核心的一個點！
 
-Replaces: 4729-5-30.2
+如果你去交易所開戶，實名認證基本上必須的。你的身份和地址是綁定的。不管你去中國的火幣，Ok，還是美國的Coinbase，都是這樣。你用這個地址收錢，比如ERC20版本的USDT，你知道這會是什麼後果？
 
-替代：4729-5-30.2
+第一：交易雙方，比如你玩OTC, 他可以知道你有多少餘額，你轉多少錢，收多少錢。
 
-Effective: 7/30/2020
+第二： 交易平台，這個不用說，你本身就透明。
 
-生效日期：2020年7月30日
+第三：隔壁老王，隔壁老王未必知道這個地址是你的，但是他可以隨時查看這個地址的交易以及餘額。
 
-Five Year Review (FYR) Dates: 07/30/2025
+第四：監管部門。一連串看似匿名的交易，只要有幾個地址是可以查到實名綁定的，可以順藤摸瓜，掌握一切。天然不可篡改的帳本，如實紀錄了一切。
 
-五年審查（FYR）日期：07/30/2025
+牆內的公安和經偵，一年多以前早就熟練掌握上述技能，可能小地方警察可能還沒學會。我認識一個幣商，就因為收到黑USDT , 連續一個多月，天天警察局協助調查。
 
-CERTIFIED ELECTRONICALLY Certification
+我為什麼又說這個例子, 因為這既是比特幣賬戶的秘密…….
 
-07/20/2020
+比特幣賬戶中充當紙幣的叫做UTXO，Unspent Transaction Output，簡單翻譯就叫零錢。任何一個人，都可以所以註冊比特幣錢包。但是大家無法理解比特幣的帳戶體系，沒有幾個人說的清楚用UTXO做成的帳戶體系。
 
-電子認證日期
+我們回到現金社會：你今天出門，帶了錢包，錢包裡面有三張錢，100, 50, 和10， 總計160。你今天買豬肉，花掉那張100的， 你從錢包拿出去那張100, 人家回你10。你的錢包現在還是三張錢：50, 10, 10，共計70。這個非電子版本的現金錢包，天然隱私和加密。
 
-07/20/2020
+今天的比特幣也是一樣：你有一個錢包，只有你有私鑰。你在錢包裡可以隨意放多少UTXO (簡單理解為地址）, 也就是隨意幾張張鈔票。上面的例子：你出門的時候，錢包裡面三個UTXO地址，共計160。回家的時候，有一個地址花光了，進來一個新的UTXO, 還是三個UTXO，總計70。核心在這裡: 你每次使用不同的UTXO, 沒有人能夠輕易識別出這個UTXO是你的還是別人的，隔壁老王現在沒法偷窺了。除非他家裡有幾十個太陽可以燃燒來破解私鑰。隱私和安全問題, 都是經濟問題，當對方偷窺成本過高, 也就無法偷窺。
 
-Date Promulgated Under: 119.03
+那怎麼保護你的權利?證明那個是你的? 你簽名啊, 導出私鑰啊。今天一個多小時, 我想我大致詮釋了比特幣白皮書的題目: 比特幣, 一種點對點的電子現金系統。只要你使用得當沒有人可以查看你的比特幣錢包有多少錢。但是交易所綁定固定UTXO, 你當然也就裸奔了。
 
-頒布日期：119.03
+最後說一下今年, 就是當下最新的法律：
 
-Statutory Authority: 4729.26, 3719.28
+歐盟的2018年6月19日公佈的反洗錢法第五部(MLD5) 在2020年1月20日生效。 The Fifth Anti-Money Laundering Directive (“MLD5”) was published in the Official Journal of the EU on 19th June, 2018, and comes into force on 20th Jan, 2020. 這部法律涵蓋了區塊鏈資產。
 
-法定機構：4729.26，3719.28
+另外美國這方面：
 
-Rule Amplifies: 4729.26, 4729.54, 4729.55
+[!\[\](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/a7c5a439-b4b8-48bd-8fcc-31e74bbc1769.jpg?asset_id=23bda419-8964-413d-b360-8a77cabff321&amp;img_etag=%221e4020b0dfab32746d7b31688e5a40f3%22&amp;size=2560)](https://spark.adobe.com/page/h0tUcnvdhPJNa/images/a7c5a439-b4b8-48bd-8fcc-31e74bbc1769.jpg?asset_id=23bda419-8964-413d-b360-8a77cabff321&amp;img_etag=%221e4020b0dfab32746d7b31688e5a40f3%22&amp;size=1024)
 
-細則：4722.96、4725.94、4729.55
+這個是美國稅務部門和犯罪調查局, 對於區塊鏈資產的態度。匿名幣: 門羅​​, Zcash, 達士什麼的, 基本要完蛋；鏈下交易方式: 比如CORE 的閃電網, 基本要嗝屁。注意, 還有PLasma。特定的, 利於博彩的簽名算法的那個BCH, 也是強監管對象，區塊鏈, 隱私友好, 但是不是罪犯友好。但如果使用不當, 就純粹是裸奔友好。
 
-Prior Effective Dates: 03/22/2020 (Emer.)
+下一堂課：小世界網絡模型。
 
-先前生效日期：03/22/2020（Emer。）
+今天佈置一個作業：以比特幣礦工挖塊打包為例，分析各種不同情況下礦池(礦工) 之間的對記賬權的競爭和博弈！我會用記賬權的競爭博弈，來詮釋小世界網絡。
 
-[閱讀此公告英文原文](http://www.registerofohio.state.oh.us/pdfs/4729/5/5/4729$5-5-21_PH_FF_N_RU_20200720_1547.pdf)
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/h0tUcnvdhPJNa/)
 
-*翻譯：【一花一世界】編輯整理：【Isaiah4031】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0

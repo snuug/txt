@@ -1,45 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度對中共的行動已成為全球滅共的縮影
-`2020-07-31 19:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281668/)
+## 聲稱因疫情起訴中國是巨大錯誤的參議員Dianne是不是被藍金黃了
+`2020-08-01 02:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/281818/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022732/%E5%B0%81%E9%9D%A2-1.jpg)
+作者：Diago
 
-校對：HUH
-![](https://lh6.googleusercontent.com/a4VCrIekcGcgByG9YbdE_gPZC49cdAfGbL7kcwBdnlAIf3NR_Whiticknsg9zJ0wfYMKIlXUxMVwCXkKTU2iEanyP-HkBbUp26FZo1iuVkBFcRWsqvw3uid9jBIBKiGYE5-VkjA)圖片來源：indiatoday.in 
-在6月15日印中邊境拉達克加勒萬河谷印中發生軍事衝突導致士兵死亡事件之後，印度針對中共國進行了一系列的反制措施，同時，在以美國為首的世界正義力量看清中共的邪惡本質之後，在全世界掀起了以實際行動抵制中共、消滅中共的浪潮。印中的關係轉變以及印度反對中共的行動就是全球滅共的縮影。
+[Feinstein had a Chinese spy connection she didn’t know about — her driver](https://www.sfchronicle.com/bayarea/matier-ross/article/Sen-Feinstein-had-a-Chinese-connection-she-13121441.php)（費恩斯坦不知道她有一個中國間諜司機）（[Matier & Ross](https://www.sfchronicle.com/author/matier-ross/)Aug. 1, 2018 Updated: Aug. 1, 2018 9:07 a.m. ）
 
-一、印度針對中共的一系列行動
+【A local source who knew about the incident confirmed to us that the FBI showed up at Feinstein’s office in Washington, D.C., about five years ago to alert the then-chairwoman of the Senate Intelligence Committee that her driver was being investigated for possible Chinese spying.】
 
-在中印邊境衝突發生之後，當地時間7月3日，印度總理莫迪突訪衝突邊境並聲明“擴張主義時代”已經結束，意指中共，併計劃向邊境增兵35000人。緊接著，7月17日，印度國防部長拉吉納特·辛格（Rajnath Singh）抵達中印邊境，檢查防務、評估軍備情況並慰問士兵，包括檢閱在當地部署的T-90主戰坦克、步兵作戰演練、肩扛式反坦克導彈系統、傘降演練以及偵察武器。
+中文大意：一位元瞭解此事的當地消息人士向我們證實，聯邦調查局大約在五年前出現在費恩斯坦華盛頓特區的辦公室，以提醒時任參議院情報委員會主席的費恩斯坦的駕駛員正在接受可能的中國間諜活動的調查。
 
-7月20日，美國尼米茲號航母（USS Nimitz）、“普林斯頓”號（USS Princeton）導彈巡洋艦、“斯特雷特”號（USS Sterett）導彈驅逐艦和“拉爾夫·約翰遜”號（ USS Ralph Johnson）導彈驅逐艦組成的航母打擊群與印度海軍在印度洋安達曼—尼科巴群島附近海域進行“過航演習”，旨在最大限度地提高訓練和互操作性，雙方檢驗在對方軍事基地獲得補給及為彼此軍艦加油能力。
+【Besides driving her around when she was in California, the staffer also served as gofer in her San Francisco office and as a liaison to the Asian American community, even attending Chinese Consulate functions for the senator.】
 
-7月29日，印度從法國購買的5架陣風戰鬥機已抵印度安巴拉空軍基地，印度軍方高調舉行了接機儀式。截至目前，印度已經從法國購買了36架陣風戰鬥機。在購買5架戰機之後，印度表示還需要為其海軍和空軍增加150多架噴氣式戰機。
+中文大意：除了在加利福尼亞州開車帶她到處走走之外，該職員還曾在她的三藩市辦公室擔任辦事員，並作為亞裔美國人社區的聯絡人，甚至參加了參議員在中國領事館的活動。
 
-截至目前，印度禁用了106款中共國APP，另外對275個中共國的其他應用進行“是否存在損害國家安全及侵犯用戶隱私行為”的審核。另外，印度已決定將華為排除在網絡建設計劃之外。
+【“They interviewed him, and Dianne forced him to retire, and that was the end of it,” says our source.】
 
-二、美俄對印度的支持
+中文大意：他們（聯邦調查局）訊問了這名黛恩.費恩斯坦的中國司機，黛恩迫使這名中國司機離職，這件事就這樣結束了——消息來源人士透露
 
-7月初，印度於2015年9月批准從美國波音採購的、總金額約30億美元的22架AH-64E“阿帕奇”武裝直升機和15架CH-47F“支奴干”重型運輸直升機已交付印度空軍，這將極大的提高印度軍方在高海拔地區的攻擊能力和運輸能力，強化了應付中印邊境的突發狀況的能力，使印度在邊境與中共的對抗中取得優勢。
+[Sen. Dianne Feinstein’s Ties To China Go Way Deeper Than An Alleged Office Spy](https://thefederalist.com/2018/08/08/sen-dianne-feinsteins-ties-china-go-way-deeper-alleged-office-spy/)（By [Ben Weingarten](https://thefederalist.com/author/ben-weingarten/) 參議員戴安娜·費恩斯坦（Dianne Feinstein）與中國的關係比所謂的官員間諜要深得多（本·溫格丹（Ben Weingarten））August 8, 2018）
 
-2018年10月，印度與傳統盟友俄羅斯簽署了價值54億美元的S-400導彈防空系統採購協議。 6月24日，印度國防部長訪問莫斯科，出席勝利日閱兵並催促俄方加快供應S-400防空導彈系統，俄方答應提前交付。緊接著，在7月初，印度國防採購委員會批准從俄羅斯購買21架米格-29戰鬥機以及將印度空軍現有的59架該型號戰鬥機進行升級，雙方合同總額超過9.84億美元。另外，印度斯坦航空有限公司將以14.2億美元的價格購買12架蘇-30MKI。 7月20日，俄總理米舒斯京簽署政府令，俄印打算就相互派遣部隊、軍艦和軍機的流程達成共識，外界認為這為俄國軍事顧問替印度操作和維護S-400打下了基礎。
+【According to four former intelligence officials, in the 2000s, a staffer in Senator Dianne Feinstein’s San Francisco field office was reporting back to the MSS [[China’s Ministry of State Security](https://www.washingtontimes.com/news/2009/mar/19/exclusive-chinese-spy-who-defected-tells-all/), its intelligence and security apparatus]. While this person, who was a liaison to the local Chinese community, was fired, charges were never filed against him. (One former official reasoned this was because the staffer was providing political intelligence and not classified information—making prosecution far more difficult.) The suspected informant was ‘run’ by officials based at China’s San Francisco Consulate, said another former intelligence official. The spy’s handler ‘probably got an award back in China’ for his work, noted this former official, dryly.】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022859/%E6%8D%95%E8%8E%B72.jpg)
+中文大意：據四名前情報官員稱，在2000年代，參議員戴安娜·費恩斯坦（Dianne Feinstein）三藩市現場辦公室的一名工作人員正在向中國國家安全部報告。這名當時作為與當地華人社區聯繫的聯絡人被解雇了，（美國相關部門）從未對他提起訴訟。 （一名前官員認為這是因為該工作人員提供政治情報而不是機密資訊，使起訴更加困難。）另一名前情報官員說，可疑的線人是由駐中國三藩市領事館的官員“管理”的。這位前官員乾脆地指出，間諜的處理人員“可能在中國獲得了獎勵”。
 
-相反，中共從2014年就從俄羅斯訂購了價值30億美元的S-400防空導彈系統，在2018年俄方向中共交付發射車後，俄方未向中共提供足夠的S-400防空導彈，截至目前，俄方繼續對中共推遲交付S-400導彈，原因是俄方懷疑中共在俄境從事間諜活動，可能已經取得了俄羅斯“國家機密”。
+另據[醜聞升級！美多名政要涉嫌暴跌前狂拋股票，司法部開始調查](http://gold.cnfol.com/huanqiugushi/20200330/28049620.shtml)（2020-03-30 14:09:33 來源：金十數據）：
 
-三、全球滅共佈局已完成
+【根據參議院的記錄，費恩斯坦本人並未出售任何股票。但她的丈夫在一月份和二月份出售了150萬至600萬美元的生物技術公司Allogene Therapeutics的股票。費恩斯坦本月初在推特上說，她沒有參與丈夫的財務決定。】
 
-中共病毒在全球的快速爆發，使全世界正義力量甦醒並做出了有效回應。美國及其亞歐的盟友都意識到了中共的霸權意圖以及對世界的威脅，包括竊取知識產權和商業機密、在中共國內奴隸勞工、高樹防火牆對網絡進行控制、南海的霸權主義等。美國及其盟友澳大利亞和日本已陳兵南中國海，同時迅速圍繞中共國形成三個戰略區域，包括波蘭為主的東歐、哈薩克斯坦為主的中亞五國、南中國海臨海國家，對中共國形成了戰略包圍。
+就在這幾天美國民主黨參議員黛恩.費恩斯坦又成了中國媒體的誇讚對象——
 
-歐美多國退出華為5G，多國退出中共主導的亞投行。美國與盟友可以互用軍事基地，提供後勤補給，包括近期印澳簽署國防協議允許兩國使用對方的軍事基地，美日澳印“四國民主聯盟”的海上力量正式形成，這些都將加速中共的滅亡，這是世界正義力量倡導的“自由”與中共“獨裁暴政”之戰。
+據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [07月31日 10:34](https://weibo.com/1887344341/JdICrFP0f?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 【美參議員：中國是受人尊敬的國家 因疫情起訴中國是巨大錯誤】
 
-參考鏈接：
+29日，美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上表示，中國是一個受其他國家尊重的國家。美國如果破例因疫情取消中國的國家主權豁免權、起訴中國政府的話，那將會是一個巨大錯誤。因為這樣做會殃及自身，使自己成為其他國家起訴的對象。
+而就美國目前在全球範圍內的行動之廣，“破例”後受害最深的反而是美國。美國疫情暴發以後，包括密蘇里州州政府在內多個政府機構或組織向中國政府發起訴訟，聲稱中國防疫不力，導致新冠疫情蔓延。[#美參議員稱中國是受人尊敬的國家#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%8F%82%E8%AE%AE%E5%91%98%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%98%AF%E5%8F%97%E4%BA%BA%E5%B0%8A%E6%95%AC%E7%9A%84%E5%9B%BD%E5%AE%B6%23)
+[L微丟的微博視頻](http://t.cn/A6UyvomT)[收起全文d](void%280%29;)
 
-[https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html](https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html)
+中共國對於黛安.範士丹（注：與黛恩.費恩斯坦為同一人，中文叫法不同而已）大贊的部分文章——
 
-[https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html](https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html)
+[美議員:中國受人尊敬,因疫情起訴中國是巨大錯誤\_手機網易網](https://www.baidu.com/link?url=vm2B-qN4WTCSFBT5p4D1tbAFWVSLs2c4h-_2hUIfSpgPwB99rz8Zr6GXs7ubX3vVkw6yAM1uYS-KrG4-bu2Wwa)
 
-> [Boeing delivered 22 AH-64E Apache and 15 CH-47F(I) Chinook military helicopters to IAF](http://www.indiandefencereview.com/news/boeing-delivered-22-ah-64e-apache-and-15-ch-47fi-chinook-military-helicopters-to-iaf/)
+1天前 – 摘要:“中國是受人尊敬的國家,因疫情起訴中國是巨大的錯誤。”美國參議員黛安·範士丹(路透社資料圖)海外網7月31日電當地時間30日,美國參議員黛安·範…
+
+[美參議員:因疫情起訴中國是壞主意 美國責任將被追究 – AcFun彈幕…](https://www.baidu.com/link?url=ok6d3lRITfyap6CtoLEbQdRXkkpHu2D5l3jEvLZsFVbbRHZ7piUDPhj4EMbE8_uh)
+
+1天前 – 當地時間7月29日,美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上引用談話和證詞表示,“我們(美國)把中國看作是一個潛在的交易夥伴,那是…
+
+[美議員:中國值得尊敬 借疫情“起訴中國”大錯特錯](https://www.baidu.com/link?url=YDKcUr9Dl_LRmd47bvYoJbevwAExcZIIrUGRUDamqIif6BE6eL4-c9F64np2Q0KN98_0tTgxWkm1njBnvhPLKgoKiXeYzKTEXCLpV_Vb9D7)
+
+20小時前 – 央視網消息:7月30日,美國民主黨聯邦參議員黛安·範士丹出席參議院司法委員會的聽證會時表示,中國值得尊敬,借疫情“起訴中國”是大錯特錯。 編輯:張哲…
+
+中共駐三藩市領事館、中國國家安全部、中國司機、在新冠疫情前家人莫名其妙出手套現股票的參議員Dianne Feinstein是不是被中共深度藍金黃了？那些把她的正在接受調查的中國司機放走的人到底有沒有從中共拿錢？不管怎樣，在此時此刻還敢為中共月臺的Dianne Feinstein，其勇氣可嘉，只是這是不是下一步要被抽幹的沼澤？
+
+（文章內容僅代表作者個人觀點）
 
 0

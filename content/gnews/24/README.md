@@ -1,81 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄亥俄州中國夫婦對密謀竊取醫學商業機密並在中國銷售的行為認罪
-`2020-07-31 13:33 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/281550/)
+## 印度對中共的行動已成為全球滅共的縮影
+`2020-07-31 19:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281668/)
 
-[美國司法部於2020年7月30日公佈](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)，前居住在俄亥俄州的女子陳莉和她的丈夫周宇，被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密和實施電訊欺詐。今天在美國地方法院通過視頻會議認罪，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31132643/DOJ_20200730_Li_Chen_Pleaded_Guilty_photo.jpg)
-中英文對照全文：
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-Department of Justice
+校對：HUH
+![](https://lh6.googleusercontent.com/a4VCrIekcGcgByG9YbdE_gPZC49cdAfGbL7kcwBdnlAIf3NR_Whiticknsg9zJ0wfYMKIlXUxMVwCXkKTU2iEanyP-HkBbUp26FZo1iuVkBFcRWsqvw3uid9jBIBKiGYE5-VkjA)圖片來源：indiatoday.in 
+在6月15日印中邊境拉達克加勒萬河谷印中發生軍事衝突導致士兵死亡事件之後，印度針對中共國進行了一系列的反制措施，同時，在以美國為首的世界正義力量看清中共的邪惡本質之後，在全世界掀起了以實際行動抵制中共、消滅中共的浪潮。印中的關係轉變以及印度反對中共的行動就是全球滅共的縮影。
 
-司法部
+一、印度針對中共的一系列行動
 
-Office of Public Affairs
+在中印邊境衝突發生之後，當地時間7月3日，印度總理莫迪突訪衝突邊境並聲明“擴張主義時代”已經結束，意指中共，併計劃向邊境增兵35000人。緊接著，7月17日，印度國防部長拉吉納特·辛格（Rajnath Singh）抵達中印邊境，檢查防務、評估軍備情況並慰問士兵，包括檢閱在當地部署的T-90主戰坦克、步兵作戰演練、肩扛式反坦克導彈系統、傘降演練以及偵察武器。
 
-公共事務辦公室
+7月20日，美國尼米茲號航母（USS Nimitz）、“普林斯頓”號（USS Princeton）導彈巡洋艦、“斯特雷特”號（USS Sterett）導彈驅逐艦和“拉爾夫·約翰遜”號（ USS Ralph Johnson）導彈驅逐艦組成的航母打擊群與印度海軍在印度洋安達曼—尼科巴群島附近海域進行“過航演習”，旨在最大限度地提高訓練和互操作性，雙方檢驗在對方軍事基地獲得補給及為彼此軍艦加油能力。
 
-FOR IMMEDIATE RELEASE Thursday, July 30, 2020
+7月29日，印度從法國購買的5架陣風戰鬥機已抵印度安巴拉空軍基地，印度軍方高調舉行了接機儀式。截至目前，印度已經從法國購買了36架陣風戰鬥機。在購買5架戰機之後，印度表示還需要為其海軍和空軍增加150多架噴氣式戰機。
 
-2020年7月30日 立即發佈
+截至目前，印度禁用了106款中共國APP，另外對275個中共國的其他應用進行“是否存在損害國家安全及侵犯用戶隱私行為”的審核。另外，印度已決定將華為排除在網絡建設計劃之外。
 
-**Researcher Pleaded Guilty to Conspiring to Steal Scientific Trade Secrets from Ohio Children’s Hospital to Sell in China**
+二、美俄對印度的支持
 
-**研究人員對密謀竊取俄亥俄州兒童醫院的醫學商業機密並在中國銷售的行為表示認罪**
+7月初，印度於2015年9月批准從美國波音採購的、總金額約30億美元的22架AH-64E“阿帕奇”武裝直升機和15架CH-47F“支奴干”重型運輸直升機已交付印度空軍，這將極大的提高印度軍方在高海拔地區的攻擊能力和運輸能力，強化了應付中印邊境的突發狀況的能力，使印度在邊境與中共的對抗中取得優勢。
 
-Crime is Another Example of Economic Malfeasance Related to the Peoples Republic of China Accommodating Theft of Commercial Products They Cannot Field Organically
+2018年10月，印度與傳統盟友俄羅斯簽署了價值54億美元的S-400導彈防空系統採購協議。 6月24日，印度國防部長訪問莫斯科，出席勝利日閱兵並催促俄方加快供應S-400防空導彈系統，俄方答應提前交付。緊接著，在7月初，印度國防採購委員會批准從俄羅斯購買21架米格-29戰鬥機以及將印度空軍現有的59架該型號戰鬥機進行升級，雙方合同總額超過9.84億美元。另外，印度斯坦航空有限公司將以14.2億美元的價格購買12架蘇-30MKI。 7月20日，俄總理米舒斯京簽署政府令，俄印打算就相互派遣部隊、軍艦和軍機的流程達成共識，外界認為這為俄國軍事顧問替印度操作和維護S-400打下了基礎。
 
-此犯罪是另一個與中華人民共和國有關的經濟不法行為的例子，縱容偷竊他們不能自主研發的商業產品
+相反，中共從2014年就從俄羅斯訂購了價值30億美元的S-400防空導彈系統，在2018年俄方向中共交付發射車後，俄方未向中共提供足夠的S-400防空導彈，截至目前，俄方繼續對中共推遲交付S-400導彈，原因是俄方懷疑中共在俄境從事間諜活動，可能已經取得了俄羅斯“國家機密”。
 
-Former Ohio woman Li Chen, 46, pleaded guilty today via video conference in U.S. District Court today to conspiring to steal scientific trade secrets and conspiring to commit wire fraud concerning the research, identification and treatment of a range of pediatric medical conditions.
+三、全球滅共佈局已完成
 
-46歲的前居住在俄亥俄州的女子陳莉（音譯，Li Chen）今天在美國地方法院通過視頻會議認罪，她承認密謀竊取醫學商業機密，並密謀對一系列兒科疾病的研究、鑒定和治療實施電訊欺詐。
+中共病毒在全球的快速爆發，使全世界正義力量甦醒並做出了有效回應。美國及其亞歐的盟友都意識到了中共的霸權意圖以及對世界的威脅，包括竊取知識產權和商業機密、在中共國內奴隸勞工、高樹防火牆對網絡進行控制、南海的霸權主義等。美國及其盟友澳大利亞和日本已陳兵南中國海，同時迅速圍繞中共國形成三個戰略區域，包括波蘭為主的東歐、哈薩克斯坦為主的中亞五國、南中國海臨海國家，對中共國形成了戰略包圍。
 
-“Once again we see the People’s Republic of China (PRC) facilitating the theft of our nation’s ingenuity and hard work as part of their quest to rob, replicate and replace any product they don’t have the ability to develop themselves,” said John C. Demers, Assistant Attorney General for National Security. “Far from being an isolated incident, we see the PRC implicated in around 60 percent of all trade secret theft cases. This continued economic belligerence runs contrary to the values and norms that facilitate the success of our industries and countering it remains among our highest priorities.”
+歐美多國退出華為5G，多國退出中共主導的亞投行。美國與盟友可以互用軍事基地，提供後勤補給，包括近期印澳簽署國防協議允許兩國使用對方的軍事基地，美日澳印“四國民主聯盟”的海上力量正式形成，這些都將加速中共的滅亡，這是世界正義力量倡導的“自由”與中共“獨裁暴政”之戰。
 
-負責國家安全的助理司法部長約翰·C·德默爾斯表示：「我們再次看到中共國（PRC）為竊取我們國家的知識財富和工作成果提供了便利，搶奪、複製和取代任何他們沒有能力自己開發的產品，這是他們謀求的一部分」，「這絕非個別事件，在所有竊取商業秘密的案件中，約有60%的案件涉及中國。這種持續的經濟交鋒與促進我們產業成功的價值觀和規範背道而馳，打擊這種行為仍是我們的最優先事項之一」。
+參考鏈接：
 
-“Nationwide Children’s Hospital’s Research Institute took reasonable measures to protect its cutting-edge intellectual property and trade secrets regarding exosomes, and I commend the cooperation of Nationwide Children’s throughout this investigation,” U.S. Attorney David M. DeVillers said. “Chen betrayed her employer of 10 years by stealing trade secrets from this American institution and transferring them to China after receiving payments from the Chinese government.”
+[https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html](https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html)
 
-美國檢察官戴維·M·德維爾勒斯表示：「全國兒童醫院（Nationwide Children’s Hospital）的研究所採取了合理的措施來保護其有關外植體的尖端知識產權和商業秘密，我對全國兒童醫院在整個調查過程中的合作表示贊賞」，「陳莉背叛了她10年的雇主，竊取了這家美國機構的商業秘密，並在收受中國政府的報酬後將其轉移到中國」。
+[https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html](https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html)
 
-“Li Chen was a trusted researcher at Nationwide Children’s Hospital, conducting cutting-edge U.S. government-funded research,” stated FBI Cincinnati Special Agent in Charge Chris Hoffman. “With her guilty plea, she admits that she abused this trust to establish a company in China for her own financial gain. The FBI is committed to working closely with partners such as Nationwide Children’s Hospital to protect the innovations that make America a world leader in science and technology.”
-
-聯邦調查局辛辛那提特別負責探員克里斯·霍夫曼表示：「陳莉曾是全國兒童醫院一位值得信賴的研究人員，進行美國政府資助的尖端研究」，「隨著她的認罪，她承認她濫用這種信任，在中國建立公司，以謀取自己的經濟利益。聯邦調查局致力於與全國兒童醫院等合作夥伴密切合作，以保護使美國成為世界科技領導者的創新成果」。
-
-Chen admitted to stealing scientific trade secrets related to exosomes and exosome isolation from Nationwide Children’s Hospital’s Research Institute for her own personal financial gain.
-
-陳某承認為了自己的個人經濟利益，竊取了全國兒童醫院研究所有關外排體和外排體分離的醫學商業秘密。
-
-Chen and her husband, alleged co-conspirator Yu Zhou, 49, worked in separate medical research labs at the Research Institute for 10 years each (Zhou from 2007 until 2017 and Chen from 2008 until 2018). They are charged with conspiring to steal at least five trade secrets related to exosome research from Nationwide Children’s Hospital.
-
-陳莉和她的丈夫，被指控的同謀，49歲的周宇（音譯，Yu Zhou）分別在各自研究所的醫學研究實驗室工作了10年（周宇從2007年到2017年，陳莉從2008年到2018年）。他們被控共謀從全國兒童醫院竊取至少5項與外排體研究相關的商業機密。
-
-Exosomes play a key role in the research, identification and treatment of a range of medical conditions, including necrotizing enterocolitis (a condition found in premature babies), liver fibrosis and liver cancer.
-
-外排體在研究、鑒定和治療一系列醫學疾病中發揮著關鍵作用，包括壞死性腸炎（早產兒的一種病症）、肝纖維化和肝癌。
-
-According to her plea agreement, Chen conspired to steal and then monetize one of the trade secrets by creating and selling exosome “isolation kits.” Chen admitted to starting a company in China to sell the kits. Chen received benefits from the Chinese government, including the State Administration of Foreign Expert Affairs and the National Natural Science Foundation of China. Chen also applied to multiple Chinese government talent plans, a method used by China to transfer foreign research and technology to the Chinese government.
-
-根據她的認罪協議，陳某共謀竊取商業秘密，然後利用其中之一通過製造和銷售「分離試劑盒」來牟取利益。陳某承認在中國成立了一家公司來銷售這些試劑盒。陳某從中國政府，包括國家外國專家局和國家自然科學基金委員會處獲得了利益。陳某還簽約了多個中國政府人才計劃，這是中國用來向自己政府挪移外國研究和技術的一個方法。
-
-As part of her plea, Chen has agreed to forfeit approximately $1.4 million, 500,000 shares of common stock of Avalon GloboCare Corp. and 400 shares of common stock of GenExosome Technologies Inc.
-
-作為認罪的一部分，陳某同意沒收約140萬美元、50萬股Avalon GloboCare公司的普通股和400股GenExosome公司的普通股。
-
-Chen and Zhou were arrested in California in July 2019 and their case was unsealed in August 2019 when they appeared in federal court in Columbus.
-
-陳某、周某二人於2019年7月在加州被捕，案件於2019年8月在哥倫布聯邦法院出庭時解封。
-
-John C. Demers, Assistant Attorney General for National Security;David M. DeVillers, United States Attorney for the Southern District of Ohio; and Chris Hoffman, Special Agent in Charge, Federal Bureau of Investigation (FBI), Cincinnati Division, announced the plea entered into today before U.S. District Judge Sarah D. Morrison. Assistant U.S. Attorneys S. Courter Shimeall, Peter K. Glenn-Applegate, Special Assistant U.S. Attorney J. Michael Marous and National Security Division Trial Attorney Matthew J. McKenzie, are representing the United States in this case.
-
-負責國家安全的助理司法部長約翰·C·德默斯、俄亥俄州南區聯邦檢察官戴維·M·德維爾勒斯和聯邦調查局辛辛那提分局負責特別探員克里斯·霍夫曼，今天在美國地區法官莎拉·D·莫里森面前宣佈了認罪協議。美國助理檢察官庫爾·希默爾、彼得·格倫·阿普爾蓋特、美國特別助理檢察官邁克爾·馬魯斯和國家安全處審判律師馬修·麥肯齊在此案中代表美國。
-
-[閱讀英文全文](https://www.justice.gov/opa/pr/researcher-pleaded-guilty-conspiring-steal-scientific-trade-secrets-ohio-children-s-hospital)
-
-*翻譯：【Dlrow】*
-
-*戰友之家玫瑰園小隊出品*
+> [Boeing delivered 22 AH-64E Apache and 15 CH-47F(I) Chinook military helicopters to IAF](http://www.indiandefencereview.com/news/boeing-delivered-22-ah-64e-apache-and-15-ch-47fi-chinook-military-helicopters-to-iaf/)
 
 0

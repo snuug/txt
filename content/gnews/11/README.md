@@ -1,45 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度對中共的行動已成為全球滅共的縮影
-`2020-07-31 19:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/281668/)
+## 美國參議院通過法案：允許民眾就CCP病毒造成的損失起訴中共政府
+`2020-08-01 04:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281905/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽
+![美參議院通過新法案，允許FBI無搜查令監控民眾上網記錄-滑鐵盧華人網 ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01044352/1.png) 圖片來源： [http://www.africantimes2005.com/gjxw/23139.html](http://www.africantimes2005.com/gjxw/23139.html) 
+據報導，參議院司法委員會周四批准了一項法案，該法案將允許人們就CCP病毒大面積傳播造成的損害向聯邦法院提起訴訟。
 
-校對：HUH
-![](https://lh6.googleusercontent.com/a4VCrIekcGcgByG9YbdE_gPZC49cdAfGbL7kcwBdnlAIf3NR_Whiticknsg9zJ0wfYMKIlXUxMVwCXkKTU2iEanyP-HkBbUp26FZo1iuVkBFcRWsqvw3uid9jBIBKiGYE5-VkjA)圖片來源：indiatoday.in 
-在6月15日印中邊境拉達克加勒萬河谷印中發生軍事衝突導致士兵死亡事件之後，印度針對中共國進行了一系列的反制措施，同時，在以美國為首的世界正義力量看清中共的邪惡本質之後，在全世界掀起了以實際行動抵制中共、消滅中共的浪潮。印中的關係轉變以及印度反對中共的行動就是全球滅共的縮影。
+格雷厄姆（Lindsey Graham）是南卡羅來納州共和黨議員，也是此法案的共同發起人，他說：“由於中共國對世界隱瞞了該病毒的起源和性質，美國人有權利要求賠償。”
 
-一、印度針對中共的一系列行動
+委員會主席林賽·格雷厄姆說：“事實已經很清楚了，中國共產黨顯然欺騙了世界並操縱了有關冠狀病毒的信息。 他們限制在中國境內旅行以減緩傳播，但允許中國人在世界各地旅行以增加傳播。”他還強調說：“鑑於中共的欺騙和隱瞞行為，美國人有權通過法律手段獲得賠償。”
 
-在中印邊境衝突發生之後，當地時間7月3日，印度總理莫迪突訪衝突邊境並聲明“擴張主義時代”已經結束，意指中共，併計劃向邊境增兵35000人。緊接著，7月17日，印度國防部長拉吉納特·辛格（Rajnath Singh）抵達中印邊境，檢查防務、評估軍備情況並慰問士兵，包括檢閱在當地部署的T-90主戰坦克、步兵作戰演練、肩扛式反坦克導彈系統、傘降演練以及偵察武器。
+[原文鏈接](https://justthenews.com/government/congress/senate-committee-passes-bill-allow-people-sue-china-covid-19-related-damages)
 
-7月20日，美國尼米茲號航母（USS Nimitz）、“普林斯頓”號（USS Princeton）導彈巡洋艦、“斯特雷特”號（USS Sterett）導彈驅逐艦和“拉爾夫·約翰遜”號（ USS Ralph Johnson）導彈驅逐艦組成的航母打擊群與印度海軍在印度洋安達曼—尼科巴群島附近海域進行“過航演習”，旨在最大限度地提高訓練和互操作性，雙方檢驗在對方軍事基地獲得補給及為彼此軍艦加油能力。
+翻譯報導：Hanstyle
 
-7月29日，印度從法國購買的5架陣風戰鬥機已抵印度安巴拉空軍基地，印度軍方高調舉行了接機儀式。截至目前，印度已經從法國購買了36架陣風戰鬥機。在購買5架戰機之後，印度表示還需要為其海軍和空軍增加150多架噴氣式戰機。
-
-截至目前，印度禁用了106款中共國APP，另外對275個中共國的其他應用進行“是否存在損害國家安全及侵犯用戶隱私行為”的審核。另外，印度已決定將華為排除在網絡建設計劃之外。
-
-二、美俄對印度的支持
-
-7月初，印度於2015年9月批准從美國波音採購的、總金額約30億美元的22架AH-64E“阿帕奇”武裝直升機和15架CH-47F“支奴干”重型運輸直升機已交付印度空軍，這將極大的提高印度軍方在高海拔地區的攻擊能力和運輸能力，強化了應付中印邊境的突發狀況的能力，使印度在邊境與中共的對抗中取得優勢。
-
-2018年10月，印度與傳統盟友俄羅斯簽署了價值54億美元的S-400導彈防空系統採購協議。 6月24日，印度國防部長訪問莫斯科，出席勝利日閱兵並催促俄方加快供應S-400防空導彈系統，俄方答應提前交付。緊接著，在7月初，印度國防採購委員會批准從俄羅斯購買21架米格-29戰鬥機以及將印度空軍現有的59架該型號戰鬥機進行升級，雙方合同總額超過9.84億美元。另外，印度斯坦航空有限公司將以14.2億美元的價格購買12架蘇-30MKI。 7月20日，俄總理米舒斯京簽署政府令，俄印打算就相互派遣部隊、軍艦和軍機的流程達成共識，外界認為這為俄國軍事顧問替印度操作和維護S-400打下了基礎。
-
-相反，中共從2014年就從俄羅斯訂購了價值30億美元的S-400防空導彈系統，在2018年俄方向中共交付發射車後，俄方未向中共提供足夠的S-400防空導彈，截至目前，俄方繼續對中共推遲交付S-400導彈，原因是俄方懷疑中共在俄境從事間諜活動，可能已經取得了俄羅斯“國家機密”。
-
-三、全球滅共佈局已完成
-
-中共病毒在全球的快速爆發，使全世界正義力量甦醒並做出了有效回應。美國及其亞歐的盟友都意識到了中共的霸權意圖以及對世界的威脅，包括竊取知識產權和商業機密、在中共國內奴隸勞工、高樹防火牆對網絡進行控制、南海的霸權主義等。美國及其盟友澳大利亞和日本已陳兵南中國海，同時迅速圍繞中共國形成三個戰略區域，包括波蘭為主的東歐、哈薩克斯坦為主的中亞五國、南中國海臨海國家，對中共國形成了戰略包圍。
-
-歐美多國退出華為5G，多國退出中共主導的亞投行。美國與盟友可以互用軍事基地，提供後勤補給，包括近期印澳簽署國防協議允許兩國使用對方的軍事基地，美日澳印“四國民主聯盟”的海上力量正式形成，這些都將加速中共的滅亡，這是世界正義力量倡導的“自由”與中共“獨裁暴政”之戰。
-
-參考鏈接：
-
-[https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html](https://edition.cnn.com/2020/07/30/asia/india-france-rafale-jet-fighters-intl-hnk-scli/index.html)
-
-[https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html](https://www.livemint.com/news/world/china-russia-ties-moscow-accuses-beijing-of-espionage-postpones-s-400-delivery-11596088920408.html)
-
-> [Boeing delivered 22 AH-64E Apache and 15 CH-47F(I) Chinook military helicopters to IAF](http://www.indiandefencereview.com/news/boeing-delivered-22-ah-64e-apache-and-15-ch-47fi-chinook-military-helicopters-to-iaf/)
-
-0
+1
