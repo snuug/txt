@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/07 CCP病毒每日疫情直播簡報
-`2020-08-02 03:40 GM77` [轉載自GNews](https://gnews.org/zh-hant/282907/)
+## Warroom 303：羥氯喹用於病毒早期治療能降低一半的死亡率;小唐納德分享羥氯喹治療病毒被推特禁言
+`2020-08-02 04:01 GM77` [轉載自GNews](https://gnews.org/zh-hant/282922/)
 
-戰友之家圖文摘要組及小語種組
+戰友之家新聞譯制組
+撰稿：GM64
 
-[English\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)
 
-[French\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)
 
-[German\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)
+•現在已經有確鑿的證據表示，服用羥氯喹的住院患者死亡率比不服用降低了51%。這支持了羥氯喹緊急使用的授權。
+•小唐納德·川普的推特因轉發羥氯喹對治療ccp病毒有效而被禁言。
 
-[Japanese\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)
-
-[Korean\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)
-
-[Russian\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)
-
-[Spanish\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)
-
-0
+1
