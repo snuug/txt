@@ -1,109 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共少將好戰言論，網民巧妙發聲怒懟
-`2020-08-01 22:46 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/282489/)
+## 【世界多語言圖文】2020/07/01 CCP病毒每日疫情直播簡報
+`2020-08-02 02:56 GM77` [轉載自GNews](https://gnews.org/zh-hant/282744/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01220529/WE-ARE-NOT-YOU.jpg)
-2016年六月間，中共軍中著名好戰份子的代表之一海軍羅源少將（高乾子弟）對當時中共與美國之間的對抗發表了言辭激烈的觀點，他在博文中呼籲：“親愛的人民，我們應該去戰鬥！” 令他吃驚的是，網上的回應並不是他所期待的，而是決然不同的。
+戰友之家圖文摘要組及小語種組
 
-很快，中文的社交媒體上開始流傳不同的帖文，表達不同的觀點。網民們用各種不同的方法駁斥，諷刺，譴責羅援的號召。其中一篇題目為《“我們”不是“你們”！ 》的文章，是對上面提到的羅援將軍言論的回應。文章的作者是上海的王亞軍。這篇回應，很有代表性地反映了中國普通民眾對中共與美國對抗的看法。文章駁斥了中共刻意混淆”中共與中國人民“，“特權階層和普通民眾”這些概念，用有力簡潔的語言，真實地表達了民間對中共統治下的中國現狀的不滿和極其的憤怒。文章明確指出，中國人民不願意為中共而戰，為特權階層而戰。
+[English\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)
 
-這篇回應自發表以來，在世界社交媒體裡掀起狂瀾，得到眾多的回應，不能一一列舉。特別是最近，隨著中共的喪鐘敲響，而中共又盡其所能要把中國人民綁在它的戰車上，以求最後的掙扎。這篇文章，又再次進入了人們的視野。
+[French\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)
 
-####  **《“我們”不是“你們”！ 》** 
+[German\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)
 
-感覺到危機來臨了? 
-歇斯底里地叫喊了? 
-現在，你他媽的“我們親愛的人民”了? 
- “我們，我們”的， 
-你感覺很親切是吧？
+[Japanese\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)
 
-養老雙軌制，看病多軌制， 
- “我們”，不在一起吧？ 
-開著公車，遊山玩水， 
-抱著二奶，吃香喝辣， 
- “三公”揮霍時， 
- “我們”，也不在一起吧？ 
-高收入全保障吃特供享特權， 
- “我們”，還不在一起吧？
+[Korean\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)
 
-要打仗了，戰爭來了， 
-你他媽的“我們”了！ 
-還什麼“親愛的”“我們”！
+[Russian\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)
 
-對不起，“我們”， 
-不是你們一夥兒的： 
-你們是你們， 
-你們只是你們， 
-也只能是你們； 
-而我們，我們才是我們。
+[Spanish\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)
 
-聽好了，告訴你們: 
-我-們-不-去！ 
-我們不去打仗， 
-因為我們沒有多少什麼東東要保衛。 
-我們不去打仗， 
-因為我們也不想去“保衛” 
-你們的東東。
-
-還是招集你們的子弟兵去吧， 
-將軍！ 
-從紐約奢侈品的商店裡， 
-從馬爾代夫的海灘裡， 
-從瑞士雪山的滑道裡， 
-從洛杉磯溫哥華的豪宅里， 
-召集他們吧！
-
-太遠了，是吧？ 
-而且飛機的頭等艙太少， 
-商務艙也不夠? 
-那好吧，那就近一些： 
-從京都的洋別墅裡， 
-從省城的大機關里， 
-從CBD的寫字樓裡， 
-從夜總會的包房裡， 
-去召集他們吧！
-
-鄧小平陳雲說還是我們自己的孩子可靠。 
-那麼，還是你們自己的孩子去戰鬥吧！
-
-“親愛的人民” 
-都不是你們的孩子， 
-所以”親愛的人民” 都不可靠。
-
-你怎麼還要這些不可靠的“親愛的人民”去戰鬥？ 
-你不害怕嗎？ 
-不可靠的人民放出去的子彈也會不可靠！
-
-高乾子弟拿槍你們會放心： 
-起碼他們不會掘祖墳； 
-高官子弟拿著槍， 
-保衛自己的利益， 
-也算盡了本分。但願， 
-那些腦滿腸肥的傢伙還能拿得動槍；但願， 
-他們會像祖輩那樣， 
-不臨陣怯戰當逃兵。
-
-我們老百姓不去！ 
-我們才不去打仗！
-
-我們見過越戰退役老兵為生活艱難奔走的身影；
-
-我們聽過老志願軍手捧幾百元人民幣， 
-顫抖地感謝國家的聲音。
-
-我們等待，等待； 
-我們有足夠的耐心等待。 
-我們觀看，觀看； 
-我們會心平氣和地觀看，
-
-觀看你們的完蛋，並且， 
- “我們”將為你們的徹底完蛋， 
-添油加柴，歡呼雀躍！
-
-**作者：大是大非不糊塗**
-
-
-
-1
+0

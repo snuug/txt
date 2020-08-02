@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/07 CCP病毒每日疫情直播簡報
-`2020-08-02 03:40 GM77` [轉載自GNews](https://gnews.org/zh-hant/282907/)
+## 文字版2020年8月1日郭先生GTV蓋特視頻
+`2020-08-02 06:05 GM01` [轉載自GNews](https://gnews.org/zh-hant/282972/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02054629/57449B01-A4EB-4CE8-AEC6-3B53D7D198F0.jpeg)彩虹橋
+親愛的兄弟姐妹們現在是剛看完，班農戰鬥室文貴昨天的節目，大家要看壹看，昨天我是不想上的，本來班農先生讓我上我是不想上的，後來沒辦法我說上壹個小時，那麽上了壹個小時在這個中間，我說英文完全沒準備所以說亂講的，在這個之前咱們的戰友亞吉娜給我建議，說妳能不能說英文像美國人壹樣很冷靜，不要情緒化就是說很冷靜，我說那不是我 我就是要情緒化，我就要當郭文貴 。
 
-[English\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)
+但是昨天我真是聽了亞吉娜的話了，就是讓亞吉娜高興 聽了郭文貴然他高興，說得慢點，但是沒想到剛才我看完，反應巨大 大家認為這個好，很多美國朋友說：Miles妳英文大有飛進啊，妳就這樣講啊我們都聽得懂。而且剛才是因為美國之音的War Room，最多是收音者，結果這收音者今天創了新高了已經，他們跟我說郭先生妳只要壹上壹定創新高。而且現在咱們主要的美國西方的觀眾，都是白人的各個家庭，沒想到。
 
-[French\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)
+所以說看來我的改變風格，關於這兩天的大事我現在給大家說說，這G-TV妳想不值錢都不行啊，妳說抖音 Zoom 微信關了，妳說妳看啥呀？中國同胞妳不看G-TV，妳只能看G-TV G-News，G-News現在每星期以倍數的數據成長，上星期美國某媒體人跟我說，Miles我想入股G-News，我拿1000萬入股 我說那妳入股多少啊？妳說他說啥？1000萬我入20%，我在視頻裏面我說妳先等等啊，我就用另外壹個手機撥通了電話，我說妳現在就把G-News剛剛評估的價值發給他，我說妳看..幾分鐘以後發給這個人，這個人看完以後視頻還沒有關，他說Miles妳嚇死我了，我說我告訴妳這個世界上，妳跟我別比勇敢，不要比聰明，我說就在上星期我G-News都在20個億了，現在有人說如果20億願意投資50%，那就是說要拿10億美元，妳拿1000萬美元要弄幾十個百分比，妳開玩笑哪。
 
-[German\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)
+G-TV 值多少錢？兄弟姐妹們，妳猜猜值多少錢？G-Fashion我們未來壹下子，開始就是1000億美元 就是1000億美元，現在G-TV 定價20億美元太便宜了.但是我們現在有1000個戰友啊是吧？值啊，共產黨恐懼這次G-TV 恐懼G-News，妳們想想恐懼到啥程度？過壹段時間妳們知道，過壹段時間妳們就會更加明白。它意味著什麽？親愛的兄弟姐妹們，所有的共產黨的APP都得下架，它都下架以後看看我們，我們多少有秘密的招兒還沒開始哪，不要忘了並購 。
 
-[Japanese\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)
+當時G-TV招股書裏面並購..咱會不夠誰呀？是吧？大家看著，現在我回看以下路德安紅訪談，有很多國內的戰友說壹定要看這壹期，我說為什麽？啊..但是我昨天晚上做了壹個夢
+妳說夢見啥了？夢見港幣真的沒了，這真的嘛？說30天內港幣消失了，我還真沒投資多少錢哪，是不是再加大投資讓港幣做空啊？大家局的我今天的英文講的是不是太爛了，給我點點贊鼓勵鼓勵我？還是說批評批評我？我真不願意參加戰鬥室和西方的訪談。但是爆料革命的需要，妳看這白發多酷啊，我發現這男人沒有白發就不夠成熟，很多人給我發信息..妳看看現在瘦了，我最近瘦了4~5公斤。
 
-[Korean\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)
+所以說妳看這脖子的肉顯老了，然後這臉也顯老了但是我特別開心，從小我就羨慕老人不知為啥，人家都怕老我不怕老，滄桑感成熟感是我從小崇拜的，從小就說我太小了，從小我就是被人說我太小了，現在看到我這個成熟白發，我好享受啊，成熟了更加可信賴了，好事太多了，共產黨的APP沒了。把妳舌頭給妳割了，港幣再沒了，就把妳小雞雞給妳割了，被割了舌頭被割了小雞雞的巨人，會是啥人哪？那叫被閹割的人，被閹割後的共產黨會多瘋狂？
 
-[Russian\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)
+妳說有時我在手機上錄視頻的時候，就看著我自己，這郭文貴真不簡單啊，挺厲害，真挺厲害，說實話挺佩服的，妳看我現在郝海東兄弟還有我的釗穎兄弟。現在教我怎麽練，過去我兒子做我教練 成天教我就是不聽，就讓我自己練，結果現在郝海東先生葉釗穎妹妹
+這回說了我就聽，這壹聽不要緊了這個肚子是明顯下去了。按他倆的動作就是真的是肚子發熱，燒，這每天做完感覺老好了，現在我覺得壹脫了洗澡是時候的身材，我覺得實在是太好了，哪天我來個裸浴吧直播壹下子，裸浴啊裸浴..這是耍流氓..開玩笑別當真，再壹個兄弟姐妹們咱很多戰友啊，老跟我發信息，說誰誰誰跟誰談戀愛了，誰誰誰跟誰有關系了，戰友們爆料革命沒資格也不應該，參與和指責評價任何戰友的私生活，妳願意跟誰跟誰那是妳的事，人家愛跟誰跟誰，那是…自婚，壹天晚上跟誰約會了，愛跟誰約會跟誰約會妳管得著嘛，誰都不會穿著衣服洗澡，誰都有七情六欲，只要妳別傷害第三方妳愛怎麽招怎麽招，自己做事自己擔著，幹嘛？我們不要搞道德審判 不要道德綁架。
 
-[Spanish\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)
+我們美西的壹位女戰友，被別人所謂爆出來..都是共產黨，爆出來跟這個那個的 我回復非常簡單，咱這位女戰友都快60歲了身材那麽好，拿不用不白瞎了嘛，咋的呀？有啥不行那玩意啊？他傷妳了嘛？礙妳啥事了？我們不能參與也不評價。這都是共產黨搞的鬼，最近共產黨打著所有的戰友名義的潛伏，越來越囂張都是說實話，“用蔣幹知蔣幹”兄弟姐妹們，還有壹招“用蔣幹滅蔣幹”那更高，用蔣幹滅共產黨那不更高嘛，怕啥呀？是不是？
 
-0
+但是戰友們不要上當，不要被任何道德的語言所綁架，不要接受任何人對妳的指責，只有妳自己的的信仰和道德法律，評判妳的行為，世界上只有真假善惡 其它都扯蛋的事，別聽那王八蛋胡說八道，該幹啥幹啥做妳自己，Be yourself （做妳自己），這是當年丘吉爾老婆說丘吉爾最重要的壹句話：You need Be yourself. Why？I Always Be Myself，Now You need Be yourself. 壹位她看到丘吉爾有點恐懼，在乎別人的評論，她說：妳就做妳自己就完了。他說：我壹直做我自己啊，她說：妳還是..我再告訴妳 妳做妳自己，丘吉爾: 哦..做自己，就像我壹樣我從來不在乎評論我，什麽不喜歡我，我就是我，親愛的兄弟姐妹們如果妳是個正常的人，自信的人有上天信仰的人，做妳自己 謝謝！
+
+1

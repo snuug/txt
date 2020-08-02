@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/06 CCP病毒每日疫情直播簡報
-`2020-08-02 03:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/282878/)
+## Warroom 306 閆麗夢博士：病毒被中共軍方發現和擁有，經過精心策劃；來自自然演化的可能性為零
+`2020-08-02 04:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282942/)
 
-戰友之家圖文摘要組及小語種組
+戰友之家新聞譯制組
+撰稿：GM64
 
-[English\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032542/English_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032542/English_0706_CCP_Virus_Updates.pdf)
 
-[French\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032546/French_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032546/French_0706_CCP_Virus_Updates.pdf)
 
-[German\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032550/German_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032550/German_0706_CCP_Virus_Updates.pdf)
+CCP病毒不是來自蝙蝠，然後又傳染給人類的，而是以蝙蝠病毒為基礎的一個病毒，被中國解放軍的軍方發現和擁有。通過在實驗室的改造和在動物上的傳播，來使該病毒以人類為目標，因此對人類有很強大的殺傷力。可以從病毒的基因來證實這一點。這就是為什麽中共要掩蓋該病毒的真實的基因序列，不想讓人們知道該病毒是來自中國解放軍研究發現的舟山蝙蝠的病毒。
 
-[Japanese\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032555/Japanese_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032555/Japanese_0706_CCP_Virus_Updates.pdf)
-
-[Russian\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032600/Russian_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032600/Russian_0706_CCP_Virus_Updates.pdf)
-
-[Spanish\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032605/Spanish_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032605/Spanish_0706_CCP_Virus_Updates.pdf)
-
-[Korean\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032610/Korean_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032610/Korean_0706_CCP_Virus_Updates.pdf)
-
-0
+1
