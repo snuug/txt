@@ -1,36 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈佛大學與中共同流合污偽造民意
-`2020-08-01 07:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281955/)
+## 【世界多語言文字版】7月23日美國務卿蓬佩奧歷史性重磅演講: 疾呼全世界對抗中共極權
+`2020-08-01 08:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281993/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01073732/1-1.png)
-華盛頓自由燈塔(The Washington Free Beacon)報導了哈佛大學公佈的一項民意調查，該調查稱，中共得到了公民的普遍支持。中共很快的採用了這一調查結果，並大肆宣傳。但是此次調查是由一家前中共官員的公司，零點研究諮詢集團（Horizon Research Consultancy Group）發起展開的，哈佛大學對此調查公司的信息隻字不提，該調查結果的真實性令人質疑。
+**[7月23日美國務卿蓬佩奧歷史性演講](https://www.youtube.com/watch?v=7azj-t0gtPM&amp;feature=youtu.be)** 
+ **疾呼全世界對抗中共極權**
 
-**中共哈佛自欺欺人**
+[【中文版】美國務卿蓬佩奧歷史性演講，疾呼全世界對抗中共極權](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)
 
-公佈這一荒唐調查的哈佛大學，在暗地裡也與中共保持密切的聯繫，從2014年以來哈佛大學在中共手里至少獲得了7600萬美元。大學發言人丹尼爾·哈莎（Daniel Harsha）稱，隱瞞公司情況是為了保護該公司免受政治報復。這並不是第一次哈佛大學與零點研究諮詢集團合作進行調查，哈佛大學曾調查03年至16年期間中共及其下層的公眾批准情況。這兩次調查，哈佛大學一直刻意隱藏調查公司信息。
+[【英文版】Secretary Pompeo Delivers a Speech at the Richard Nixon Presidential Library](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)
 
-外交專家對此調查提出質疑，美國企業研究所(American Enterprise Institute) 研究員扎克·庫珀（Zack Cooper）認為，想要獲得可靠的數據是不可能的，中國人民擔心因為自己的言行受到影響，而且人民一直處於被監視的狀態，所以他們不敢向民調表達真實的意向。
 
-哈佛大學也認識到人民迫於專制不敢發表意見，但是仍堅持此次民調結果，哈莎甚至說出有悖人權的話，“恐嚇在專制國家或半專制國家一直可能發生，但這並不意味著社會科學家衡量民意是不合法的。”
 
-庫伯則表示；在中國做民調可以，但是要解釋清楚，誰在什麼情況下接受的調查，並且要注意他們的回復是否是自願的。這次的民調並沒有顯示這些數據，所以這次民調是有問題的。
+陸續更新中……
 
-**中共對企業的滲透**
-
-零點研究諮詢集團是由原中國司法部官員袁岳（Yuan Yue）創立，該公司與中共有著廣泛的業務聯繫，與20多個州政府合作。為中共官員舉辦研討會，並與中共國務院的附屬機構合作。
-
-美國傳統基金會高級研究員迪恩·程(Dean Cheng)說，每家中國公司都有黨委監督其工作，並阻止公司獨立於中共，而且中共會通過這些黨委了解到公司內部信息和運作。中共的黨委幾乎滲透了所有的中國公司。
-
-簡評：
-
-中共企圖用“藍金黃“控制整個美國。哈佛大學無疑是中共滲透教育領域中最大受益者。中共大肆宣傳哈佛大學的民調研究報告，說到底不過是和哈佛大學自導自演的一場戲。哈佛大學的哈莎在清楚中共所作所為前提下，竟然還能坦然接受，講出這種變相縱容的話，可見哈佛大學已經向中共低頭。
-
-看到這種偽造民意事情的發生，更是證明了新中國聯邦一人一票的重要性。一人一票就是人權的根本體現。
-
-原文鏈接： [https://freebeacon.com/coronavirus/harvard-hires-ex-regime-official-to-poll-china/](https://freebeacon.com/coronavirus/harvard-hires-ex-regime-official-to-poll-china/)
-
-翻譯報導： Chris
+製作：【秘密翻譯組G-Translators】
 
 0

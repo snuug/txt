@@ -1,65 +1,179 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在滅共的金融/政治/軍事方案之下中共還有機會實施持久戰嗎
-`2020-08-01 10:38 Diago` [轉載自GNews](https://gnews.org/zh-hant/282115/)
+## 國務卿蓬佩奧、國防部長埃斯珀、澳大利亞外交部長佩恩、澳大利亞國防部長雷諾茲新聞發佈會 (摘要)
+`2020-08-01 11:33 GM31` [轉載自GNews](https://gnews.org/zh-hant/282180/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01102913/%E5%B0%81%E9%9D%A2-2.jpg)
-作者：Diago
+***以下內容節選自7月28日國務卿蓬佩奧，國防部長埃斯珀，澳大利亞外交部長佩恩，澳大利亞國防部長雷諾茲新聞發佈會內容*****，*****閱讀原文請參見*****[Secretary Michael R. Pompeo at a Press Availability With Secretary of Defense Mark Esper, Australian Foreign Minister Marise Payne, and Australian Defence Minister Linda Reynolds](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-with-secretary-of-defense-mark-esper-australian-foreign-minister-marise-payne-and-australian-defence-minister-linda-reynolds/)**
 
-據[7/31/2020 路德時評（路安康談）：美參議院司法委員會通過允許對中共國追責的法案；中共召開會議“要和美國打持久戰”意味著什麼？拉裡金站出來揭露中共偽造他的視頻抹黑郭文貴先生](https://youtu.be/ZDFRpduS9yk) ：
 
-[00:25:56](https://www.youtube.com/watch?v=ZDFRpduS9yk&amp;t=1556s) – 路德: 1，“要深刻認識我國社會主要矛盾發展變化帶來的新特徵新要求，增強機遇意識和風險意識，把握發展規律，發揚鬥爭精神，善於在危機中育新機、於變局中開新局，抓住機遇，應對挑戰，趨利避害，奮勇前進。”就是毛賊東當年的策略，和日本人媾和，不斷偷襲國軍。2，危機中育新機，是讓老百姓過得更慘，在文革2.0中，不與美國合作，開倒車。（注：引用文字來源於[ling](https://www.youtube.com/channel/UCThx9DxPfzuATRm-SDiVnuA)戰友整理的視頻概要，在此特別向[ling](https://www.youtube.com/channel/UCThx9DxPfzuATRm-SDiVnuA)戰友致敬。）
 
-路德先生節目中提到的中共中央政治局會議具體內容見於[以持久戰心態，堅韌地面對國內國際一系列挑戰](https://tech.sina.com.cn/roll/2020-08-01/doc-iivhuipn6178890.shtml)（2020年08月01日 00:56 [21世紀經濟報導](https://m.21jingji.com/article/20200801/a51b7e601c2fbec3cf82b7a0b746c095.html)）：
+**SECRETARY POMPEO （美國國務卿蓬佩奧）:**
 
-【7月30日，中共中央政治局召開會議，分析研究當前經濟形勢，部署下半年經濟工作。】
+Our two great democracies face immediate crises like the COVID-19 pandemic and longer-term challenges like the Chinese Communist Party’s ambitions.  We need to deal with each of these challenges simultaneously.
 
-【會議認為，當前和今後一個時期，我國發展仍然處於戰略機遇期，但機遇和挑戰都有新的發展變化。當今世界正經歷百年未有之大變局，和平與發展仍然是時代主題，同時國際環境日趨複雜，不穩定性不確定性明顯增強。】
+我們兩個偉大的民主國家目前正面臨著諸多危機，比如COVID-19大流行病和諸如中國共產黨野心帶來的長期挑戰。我們需要同時應對每個挑戰。
 
-這段話翻譯過來就是以前可以明火執仗的搶騙偷，現在被國際識破了，越來越不容易搶騙偷了。
+We are lucky to count Australia as a close partner throughout all of this.  When I was in Sydney last August, I recall naming our relationship as the “Unbreakable Alliance.”  It’s even more true today.
 
-【此次會議對當前形勢與未來發展作出重要判斷和指引。會議指出，當前經濟形勢仍然複雜嚴峻，不穩定性不確定性較大，遇到的很多問題是中長期的，必須從持久戰的角度加以認識，加快形成以國內大循環為主體、國內國際雙迴圈相互促進的新發展格局，建立疫情防控和經濟社會發展工作中長期協調機制，堅持結構調整的戰略方向，更多依靠科技創新，完善宏觀調控跨週期設計和調節，實現穩增長和防風險長期均衡。】
+我們很幸運地將澳大利亞視為緊密的合作夥伴以應對這一切。去年八月在悉尼時，我曾用“堅不可摧的聯盟”來形容兩國關係，今天看來更是如此。
 
-這段話的意思是，以前可以通過藍金黃搞定的事，現在搞不定了，以美國為例，原計劃是通過干擾美國大選把川普幹掉，通過美國的沉默的力量可以把彭佩奧國務卿、班農先生、納瓦羅先生及其他堅決滅共的美國政要和郭文貴先生為代表的爆料革命滅掉，現在不可能了，在國際上對中共關上大門要關門打狗的時候，中共要自己做好關起門來自娛自樂、讓老百姓在歡聲笑語中吃草或者連草也吃不上被餓死的準備了。
+We started this morning by talking at length about the Chinese Communist Party’s malign activity in the Indo-Pacific region, and indeed all around the world.
 
-【中國遇到的很多問題是中長期的，必須從持久戰的角度加以認識。這是因為我們正經歷百年未有之大變局，會處於一個較長期的過渡階段。目前，疫情對各國經濟、政治與社會產生持續衝擊，使得全球局勢面臨巨變，外部不穩定性不確定性增強。】
+從今早開始，我們對中國共產黨在印度-太平洋地區乃至全世界的惡行進行了深入探討。
 
-這段話的意思跟上一段差不多，主要是中共不能再象以前那樣方便的搶騙偷了。後邊幾段的意思也差不多，就不再囉嗦了，但是象路德先生分析的那樣，中共是做好長期抗爭的準備了，那中共為什麼要做持久戰的準備呢？
+The United States commends the Morrison government for standing up for democratic values and the rule of law, despite intense, continued, coercive pressure from the Chinese Communist Party to bow to Beijing’s wishes.
 
-因為想在美國總統大選前滅川普以達到改變形勢的願望徹底落空了，原因是——
+美國政府讚揚澳大利亞莫里森政府在中國共產黨對其進行了強硬、持續、且脅迫性的施壓，並妄圖迫使澳大利亞屈服于北京的意願時，依舊堅守民主價值觀和法治。
 
-據GNEWS2020-04-14 19:44發佈的[美參議員提出法案，剝奪中共國家“主權豁免權”, 凍結中共資產,向中共政府索賠](https://gnews.org/zh-hans/172975/)：【美國參議員喬什 .霍利（Josh Hawley）於4月14日提出《中共冠狀病毒受害人正義法案》（Justice for Victims of COVID-19 Act），讓中共為國際疫情大爆發承擔應有責任。這一法案將剝奪中共的“主權豁免權”（Sovereign Immunity），為個人起訴中共禁言和隱瞞資訊等做法創造法律基礎。同時，這一法案將促成美國國務院設立“中共冠狀病毒受害人正義工作小組”，對北京在病毒爆發期間的處置方法展開國際調查，並向中共政府索賠。】
+It is unacceptable for Beijing to use exports or student fees as a cudgel against Australia.  We stand with our Australian friends.
 
-再據GNEWS2020-06-25 13:32發佈的[美國《外國主權豁免法》聽證預修正，只為追責中共罪魁](https://gnews.org/zh-hans/245354/)：【6月23日美國參議院司法委員會召開《外國主權豁免法》聽證會，嚴肅認真地討論了對《外國主權豁免法》（不能起訴外國主權國家的法案）的修正案。為剝奪中共國家主權豁免權，為向中共追責並巨額索賠掃除障礙，提供法律支援！】
+北京利用（限制）貿易出口或留學生留學來反制澳大利亞，這是不可接受的，我們與我們的澳大利亞朋友們站在一起。
 
-這個外國主權豁免法如果通過了就意味著哪怕川普總統敗選，哪怕蓬佩奧國務卿、納瓦羅先生和其他堅決滅共的美國政要和郭文貴先生為代表的爆料革命滅掉，由於這個法案的通過將形成美國全社會跨黨派、不受總統更替影響的向中共追責的體系將是不可被摧毀的，這也意味著中共已經預見到在短期內不可以翻盤，所以必須做好長期抗爭的準備。
+We also discussed the COVID-19 pandemic.  The United States commends Australia for publicly condemning China’s disinformation campaign and insisting on an independent review into this virus’s origin.
 
-那麼在中共做持久戰準備的同時，美國還發生了哪些奇怪的事情呢？
+我們還討論了COVID-19大流行病的情況。美國讚揚澳大利亞公開譴責中共的虛假宣傳， 並堅持對病毒的起源開展獨立調查。
 
-1、據GNEWS2020-07-26 02:37發佈的[官方消息：來自中國的神秘種子包裹被送往三個州的多民眾手裡](https://gnews.org/zh-hans/276431/)：【一個來自中國神秘包裹，裡面裝有未經檢驗的種子，被隨機送往多州。
+I also want to applaud your efforts to include Taiwan in the World Health Assembly, so that the world might benefit from that vigorous democracy’s wisdom in dealing with the outbreak.
 
-居住在華盛頓 猶他州和佛吉尼亞州的多位居民都收到了郵件，似乎是從中國送來的小包裹裝的種子，官員對記者說道：“今天我們收到報告，有人收到了來自中國的包有種子的郵件，但是他們並沒有下單購買這些東西”華盛頓農業部官員週五告訴我們。“這些種子是以包裹形式發送的，通常標注說裡面是珠寶。這些不請自來的種子極具入侵性，會給當地農作物帶來疾病，或是會傷害當地家禽”
+我也要稱讚您為將臺灣納入世界衛生大會所作的努力，這使得全世界都可以從積極、民主的臺灣應對疫情的智慧中受益。
 
-這些種子通常以密封包裝的形式郵寄過來，大家不應該隨意打開這種包裹，官員說道。應當將其以農業走私的理由報告給美國農業部門。】
+We look forward to working together on our nations’ ongoing economic recovery from this entirely preventable pandemic. Today we reaffirmed our collective commitment to strengthening supply chains, so that they are resilient against future pandemics, CCP retaliation, and the use of forced labor.
 
-2、[時隔20年，罕見傳染病又在美國出現，專家：恐怕早已擴散](https://baijiahao.baidu.com/s?id=1673167946391404537&amp;wfr=spider&amp;for=pc)（
-發佈時間：07-2916:48）（這篇報導非常重要，希望能夠警醒美國有關方面）：
+我們期待著共同合作，使兩國從完全可以避免的大流行病中走出，保持持續的經濟復蘇。今天，我們重申了對加強供應鏈合作的共同承諾，以抵禦未來的大流行病，中共的報復和強制勞動力的使用。
 
-【進入2020年之後，全球各地相繼爆發了不同程度的新冠肺炎疫情，其中，美國的尤為嚴重，很多專家表示紛紛表示，美國的疫情已經開始了第二輪爆發，目前，美國每日的確診人數持續打破新紀錄，創下了有史以來最高紀錄，單日確診人數增加到了84000，事情到這裡還沒有結束，又有一種消失了20年的傳染病重新出現在了美國，已經造成多人感染，如今的美國狀況，用“偏逢屋漏連夜雨”來形容再合適不過了。出現在美國新的傳染病就是“戰壕熱”，據媒體報導稱，美國的俄科羅拉多州發現了4名感染“戰壕熱”的流浪人。目前當地政府衛生部門正在排查當地的流浪漢。看看是否還有其他的感染者，避免這種疾病的大規模爆發，對此，有專家表示，此病爆發與流浪人群，可能這種病毒早已經在流浪人群中爆發了，要儘早遏制。可能很多人對於“戰壕熱”這種病毒不是很瞭解，其實看名字也很好理解，這種病早期發源於戰爭中的戰壕而得名，這種病毒的傳播途徑是通過蝨子來傳播的急性感人染病，患病的人會出現反復發燒、頭疼、骨頭疼、噁心、嘔吐等症狀，尤其是小腿疼痛，如果不及時處理，一些感染者可能會發展為皮膚病或者心臟掰膜感染，危及生命。據專家介紹稱，由於現在人們都把目光轉移到了新冠病毒上，忽略了一些其他的“病毒”，由於受新冠病毒的影響，導致很多美國人破產，被迫無家可歸，使得，近期的流浪群體越來越大，從而也導致了這種疾病的迅速蔓延，不僅如此，這種排查也比較有困難，因為流浪人群過大，還有就是也要從救治的新冠肺炎中排查出是否有感染“戰壕熱”的醫護人員。據悉，這並不是美國新冠肺炎期間發現的第一種奇怪的病毒了，早在五月份的時候，美國就發現了攜帶萊姆病菌的蜱蟲，並且已經出現了感染者，儘管萊姆病不是傳染性疾病，但是這種病毒的致死率是非常高的，在歐洲這種病被當地人稱為“殺手疾病”，由此可見，這種疾病是多麼的恐怖了。現在美國出現的這些疾病，對於目前美國的狀況來說，無疑不是雪上加霜，給新冠肺炎疫情的防疫工作帶來了不少困難，在短短幾個月的時間裡美國相繼爆發了萊姆病與“戰壕熱”這兩種病毒，可以看出目前美國情況的危急，再加上其中一種疾病已經20多年沒有出現過了，現在突然出現，美國衛生部也要更加重視呀。對此大家有什麼想說的呢，歡迎留言評論。】看到這些內容，我第一個能想到的就是中共軍中毒王曹務春所研究的蜱蟲了，希望這不是曹務春所在的中共党衛軍發起的針對美國的另一場生化戰爭，但是非常可疑！！！
+Turning to Hong Kong, our nations have both denounced the CCP’s violation of its own treaty promises and the crushing of the Hong Kong’s people’s freedoms.
 
-那麼美國能不能給中共打持久戰的機會呢？
+談到香港，我們兩國都譴責中共違背其承諾的條約以及踐踏香港人民自由的行徑。
 
-據郭先生“**2020****年****7****月****28****日郭先生****GTV****直播**”提到的
+The U.S. applauds Australia’s decisive response to suspend its extradition agreement and extend visas for residents of Hong Kong in Australia.
 
-【所以說工作需要，同時我大概過去35天在船上，我有兩個最重要的方案要做。一個要跟班農和將軍的將軍，還有和一個金融方案，我要見很多人。】
+美國讚揚澳大利亞做出中止引渡協議的果斷回應，並為在澳大利亞居住的香港人延長簽證有效期。
 
-【第二個原因，爆料革命進入了關鍵時刻，正在有一個金融方案和軍事行動方案，那麼現在又給了新任務，還有政治方案。是吧！沒辦法。】
+We also addressed the CCP’s attempts to dominate the technology space.  We, in fact, spent a great deal of time on this issue.  Australia was ahead of us in awakening to the threat of untrusted vendors like Huawei and ZTE.  We look forward to nations becoming “Clean Countries” together.
 
-郭文貴先生要和誰一起制訂這些方案？當然包括班農先生了，為什麼班農先生在川普國際酒店開完論壇會議馬上回到郭文貴先生的船上去了，因為班農先生半夜接到某個睡不著覺的人的電話，讓他趕緊回到郭先生船上工作，這個打電話的人是誰呢？是不是中國讓他不悅悅的川普總統呢？這個大家自己去猜。
+我們還談到了中共主導技術領域的企圖。實際上，我們在此問題上花費了大量時間進行討論。在喚醒華為和中興等不受信任的供應商的威脅方面，澳大利亞領先我們一步。我們期待著與世界各國一道，成為“清潔的國家”。
 
-也就是說在2020年7月28日往前追溯的35天內，郭先生和班農先生及相關人員已經和正在制定滅共的軍事方案和金融方案，從2020年7月28日起又新增加了滅共的政治方案，那麼針對滅共制訂的政治方案、金融方案、軍事方案還會讓中共有打持久戰的機會嗎？
+And finally, we’ll keep working with our Australian partners to reassert the rule of law in the South China Sea, which the United States and Australia have both underscored in recent, important statements.  I’ll let Secretary Esper address more about our military cooperation both there and elsewhere.
 
-（文章內容僅代表作者個人觀點）
+最後，我們將繼續與我們的合作夥伴澳大利亞共同協作，重申南中國海的法治，這也是美國和澳大利亞在最近重要聲明中所重點強調的。我將讓國防部長埃斯珀進一步闡述我們在南中國海和其他海域的軍事合作。
 
-0
+Ministers, as I said just last week at the Nixon Library, the burden Australia has undertaken to uphold democratic values is not yours to bear alone.
+
+部長們，正如我上周在尼克森圖書館演講中所說，堅持民主價值觀的重擔不應由澳大利亞一國承擔。
+
+The United States knows the threats that you and the rest of the free world face.  And the United States stands with you in our unbreakable alliance.
+
+美國深知澳大利亞和其他自由世界所面臨的威脅。在我們堅不可摧的聯盟中，美國與你同在。
+
+**FOREIGN MINISTER PAYNE（澳大利亞外交部長佩恩）:**
+
+COVID-19 has, without doubt, exacerbated the security challenges in our region.  Some countries are using the pandemic to undermine liberal democracy.  The role of multilateral institutions is more important now than ever in supporting our values and our strategic objectives as the world responds to the health and economic challenges of COVID-19.
+
+毫無疑問，COVID-19加劇了我們地區的安全挑戰。一些國家正在利用大流行病破壞自由民主。隨著整個世界開始對COVID-19所帶來的健康和經濟挑戰進行回應，在支持我們的價值觀和戰略目標方面，多邊機構在當下所起的作用比以往任何時候都更加重要。
+
+We’re therefore pleased also to be able to announce a new working group between Australia’s Department of Foreign Affairs and Trade and the United States Department of State to monitor and respond to harmful disinformation.
+
+因此，我們榮幸的宣佈澳大利亞外交事務和貿易部與美國國務院成立了一個新的工作組，旨在監督和應對有害的虛假資訊。
+
+The rules-based global order is a constant, notwithstanding or perhaps even more so given the impact of the pandemic.  We reiterated our commitment to holding states to account when they breach international norms and laws, as we have done and will continue to do so in relation to China’s erosion of freedoms in Hong Kong.
+
+基於規則的全球秩序就像一個常數，雖然或可能更為嚴重的受到了大流行病的影響，但更需要保持不變。我們重申我們對破壞國際準則和法律的國家進行追責的承諾，正如在中共侵蝕香港自由的問題上，我們曾做出的以及會繼續做出行動。
+
+**SECRETARY ESPER (美國國防部長埃斯柏):**
+
+The United States and Australia share a deep and enduring bond, united by common values and forged through decades of shared sacrifice, having fought shoulder-to-shoulder in every major conflict since World War I.  Today our alliance remains strong and resilient and is vital to stability, to security, and prosperity around the globe and in the United States’ priority theater, the Indo-Pacific.  Together we share a common vision for a free and open Indo-Pacific where all nations, big and small, can enjoy the benefits of sovereignty; where free, fair, and reciprocal trade are the norm; where states adhere to international rules and norms; and where international disputes are resolved peacefully.
+
+美國和澳大利亞因共同的價值觀團結在一起，歷經數十年的共同犧牲，彼此維繫著深厚而持久的紐帶。自第一次世界大戰以來，我們在每個重大衝突中並肩作戰。當下，我們的聯盟仍然強大且富有韌性，並在全球範圍及美國的優先戰區印度-太平洋地區，維護地區穩定、安全及繁榮中發揮著至關重要的作用。我們擁有共同的願景：打造一個自由，開放的印度及太平洋地區，其所覆蓋的任何國家，無論大小，都享有主權；自由，公平和互惠貿易是一種常態；各個國家遵守國際規則和規範；國際爭端可以得到和平解決。
+
+Today we discussed a range of issues regarding the future of the region, including the impact of the global pandemic as well as the security situation in the South China Sea specifically and the Indo-Pacific more generally.  We appreciate Australia’s significant contributions to COVID-19 response efforts, and we spoke in detail about the Chinese Communist Party’s destabilizing activities and the fact that Beijing is increasingly resorting to coercion and intimidation to advance its strategic objectives at the expense of other nations.
+
+今天，我們討論了有關該地區未來的一系列問題，包括全球大流行病的影響，以及具體到南中國海的安全局勢，廣泛到印度-太平洋地區的安全局勢。我們感激澳大利亞為COVID-19應對工作做出的重大貢獻，我們詳細談到了中國共產黨破壞地區穩定的行動，以及北京方面越來越多地採取脅迫和恐嚇手段，以犧牲其他國家的利益來推進其戰略目標的事實。
+
+The United States seeks a constructive, results-oriented relationship with the PRC, but we will stand firm in upholding the international rules-based order.  And we applaud Australia for pushing back against the CCP’s brazen economic threats and coercive behavior and increasing risk of retaliation.
+
+美國尋求與中國建立一個建設性的，以結果為導向的兩國關係，但我們將堅定地維護基於規則的國際秩序。我們讚揚澳大利亞冒著不斷升級的被報復的風險，對中共殘酷的經濟威脅和脅迫行為予以反擊。
+
+We also discussed the PRC’s less conspicuous means of extending its influence through state-sponsored tech dominance.  And we commend Australia for its decision to reject Huawei and ZTE in its 5G network, thus protecting the integrity of our intelligence cooperation and the many other aspects of our defense relationship.
+
+我們還討論了中國採取隱蔽手段，企圖利用由國家資助的技術優勢擴大其在他國影響力的情況。我們讚揚澳大利亞政府拒絕華為和中興參與其5G網路建設的決定，進而保護了美澳兩國的情報合作以及其他方面的國防合作。
+
+Additionally, last week, five Australian warships joined the USS Ronald Reagan carrier strike group and a Japanese destroyer in conducting a trilateral naval exercise in the Philippine Sea ahead of the upcoming RIMPAC exercise in Hawaii.  These exercises not only bolster interoperability, but also send a clear signal to Beijing that we will fly, we will sail, and we will operate wherever international law allows and defend the rights of our allies and partners to do the same.
+
+此外，在上周，五艘澳大利亞軍艦加入了羅奈爾得·裡根號航母打擊群，與一艘日本驅逐艦一道，在即將舉行的夏威夷環太平洋軍事演習(RIMPAC)之前，於菲律賓海域進行了三方海軍軍演。這些演習不僅增強了互通性，而且向北京發出了一個明確的信號：在國際法允許的範圍內，我們將動用空軍，海軍捍衛我們盟國和合作夥伴行使相同的權利。
+
+**DEFENSE MINISTER REYNOLDS(澳大利亞國防部長雷諾茲):**
+
+Since its beginning, AUSMIN has steered our alliance through a rapidly changing world, from the Cold War to confronting extremism and most recently focusing the alliance activities in the Indo-Pacific.  But today, we are both experiencing a profound change in the geopolitical framework that underpins our security but also our prosperity.  So now more than ever, we must put a premium on ensuring the alliance continues to serve both our nations’ interests.
+
+自成立以來，澳美部長級磋商會(AUSMIN)一直引領著澳美同盟應對瞬息萬變的世界局勢，從冷戰到對抗極端主義，直至近期針對印太地區同盟的行為。但是現在，我們正經歷著地緣政治框架下深刻的變革。該地緣政治框架不僅鞏固著我們的安全，更保障著我們的繁榮。因此，與以往任何時刻相比，我們都必須更加珍視澳美同盟，確保該同盟繼續為我們兩國的利益服務。
+
+And today we have done just that, focusing to ensure our alliance cooperation is best placed to respond to our shared challenges.  We have a great and ambitious set of defense outcomes, ones that advance our cooperation in support of our shared vision, a vision for a region that is secure, that is open, and is also prosperous.
+
+現在我們已經做到了這一點，致力於確保我們的聯盟合作可以最大限度的應對我們共同的挑戰。我們擁有一系列偉大和雄心勃勃的國防成果，這些成果可以促進我們的合作，以支援我們的共同願景，即建立一個安全，開放和繁榮的地區。
+
+**QUESTION:**  Thank you very much.  Mr. Secretary, Minister Payne, if I could ask you both about China and Mr. Secretary a more local question.
+
+**提問：**非常感謝。國務卿先生，佩恩部長，我想同時問您兩位一個有關中國的問題，再問國務卿先生一個更當地語系化的問題。
+
+Mr. Secretary, after your alliance of democracies speech, you received some criticism by some people who called it unworkable especially for European allies, as the Trump administration pursues a confrontational trade policy on Europe and doesn’t criticize other autocrats, including Viktor Orban.  How do you work through that?
+
+國務卿先生，在您上周發表了有關民主聯盟的演講後，一些批評人士認為，這對一些盟國，特別是歐洲盟國不可行，因為川普政府對歐洲奉行對抗性的貿易政策，而且並沒有批評包括維克多·奧爾班在內的其他獨裁者。您如何評價呢？
+
+And Minister Payne, another aspect of that speech was the admonition to help the Chinese people change the Chinese Government.  Do you think that is possible and/or wise?
+
+佩恩部長，國務卿演講的另一個方面是關於幫助中國人改變中國政府的警告。您認為這是可行或明智的嗎？
+
+**SECRETARY POMPEO:**  Let me just take your first question to me and then Minister Payne can take the second one.  No, it’s completely workable.  As I said in that same set of remarks, this isn’t about picking America versus China.  This is about choosing freedom and democracy against tyranny and authoritarian regime, and I am confident that the democracies, our transatlantic alliance – all of those great nations know precisely which side of that debate they want to be on.  They know where their peoples’ interests lie.  They lie with freedom and democracy and continued economic prosperity for their people.  That doesn’t come from partnering with or working with authoritarian regimes that threaten them, but rather working with countries like Australia and America that value freedom and human rights in the same way that they do.
+
+**美國國務卿蓬佩奧：**我回答您提出的第一個問題，然後佩恩部長可以回答第二個問題。不，這是完全可行的。正如我之前在歐洲演講中所說，這無關選擇美國還是中國。這是關於選擇自由和民主，還是選擇暴政和獨裁專制政權。我相信民主國家，我們的跨大西洋同盟，所有這些偉大的國家都清晰的知道他們想站在這場辯論的哪一方。他們知道國民的利益所在。他們為了自己的國民，會與自由，民主和持續的經濟繁榮站在一起。與威脅自己國家的獨裁專政政權合作，不可能實現這些。而與像澳大利亞和美國這樣珍視自由和人權的國家合作才可能帶來自由、民主和經濟繁榮。
+
+Last thing:  You asked a second question to her.  I’m going to take a swing because you mischaracterized again what I said.  Go back and look what I said.  We need to make sure we’re talking to everyone all across the world.  The Chinese, when they come here, they talk to Democrats, right – they go to Capitol Hill and lobby Democrats on Capitol Hill.  American diplomats ought to have that same opportunity so that we can speak to all people that are part of the People’s Republic of China.  It seems only appropriate that we do that.  It seems quite necessary.  Indeed, I would think that the government in Beijing would want that.  We encourage there to be freedom of speech, openness, the capacity to work with elements inside the United States that don’t always agree with the administration.  That’s how democracies – that’s how economic growth takes place.  Those kinds of things are the right thing to do, and we’re aiming through our diplomatic efforts to make sure that there’s every opportunity for people all across the world to speak to all of the various views that are contained inside of the People’s Republic of China.
+
+最後一點：雖然您第二個問題是問佩恩部長的，但因為您再次曲解了我的本意，我要不客氣的回擊了。您可以回頭看看我說的話。我們需要確保我的話是講給全世界所有人聽的。中國人，來到美國，他們可以與民主黨對話，對吧，他們去國會山，在國會山遊說民主黨。美國外交官應該有同樣的機會與中國人對話，他們是中華人民共和國的一部分。這樣做才是合適和對等的，也是很有必要的。確實，我認為北京政府會希望那麼做。我們鼓勵言論自由，鼓勵開放，鼓勵在美國內部，可以有與政府所持政見相左的人士合作的空間。這就是民主，經濟就是這樣發展起來的。這些是正確的事情，我們希望通過外交努力，確保世界各地所有的人民都有一切機會對中國封鎖的各種觀點發表意見。
+
+**FOREIGN MINISTER PAYNE:**  Thanks very much, Mike, and rather than I think make individual comments on the Secretary’s speech – Secretary’s speeches are his own; Australia’s positions are our own.  And we operate, as you would expect, on the basis of our shared values, actually, which are reflected in both the approach of the United States and the approach of Australia.  But most importantly from our perspective, we make our own decisions, our own judgments in the Australian national interest and about upholding our security, our prosperity, and our values.  So we deal with China in the same way.  We have a strong economic engagement, other engagement, and it works in the interests of both countries.
+
+**澳大利亞外交部長佩恩：**非常感謝，邁克，我僅代表我個人發表對國務卿演講的評論，國務卿發表的是他的演講。澳大利亞政府有自己的立場。正如您期望的那樣，澳大利亞政府的運轉基於我們共同信奉價值觀，實際上，美國和澳大利亞的做法已經充分體現了這一點。從我們的角度來看，最重要的事情是我們自己做出決定，做出符合澳大利亞國家利益的判斷，這事關維護澳大利亞的安全，繁榮和價值觀。因此，在處理與中國的關係時，我們遵循同樣的原則。兩國有著強有力的經濟聯繫，以及在其他事務上的聯繫，這符合兩國的利益。
+
+That said, of course, we don’t agree on everything.  We are very different countries.  We are very different systems, and it’s the points on which we disagree that we should be able to articulate in a mature and sensible way and advance, as I said, our interests and our values.  As my prime minister put it recently, the relationship that we have with China is important, and we have no intention of injuring it, but nor do we intend to do things that are contrary to our interests, and that is the premise from which we begin.
+
+當然，我們並非在所有事務上都保持一致。我們是兩個非常不同的國家。我們有著截然不同的體制，對持不同看法之處，我們應該用成熟和明智的方式來表達，如我所說，進而推進我們各自國家的利益和價值觀。正如澳大利亞總理最近所述，我們與中國的關係是重要的，我們無意傷害兩國關係，但我們也無意做違背我們利益的事情，這是我們開始做任何事情的前提。
+
+**QUESTION:**Secretary Pompeo, if I could start with you, there’s a lot of concern in Australia about the growing rift between your administration and China.  As you know, Australia is very dependent on China.  Should Australians be concerned about the long-term consequences of the breakdown in relations between your two countries for our regional security?
+
+**提問：**蓬佩奧國務卿，如果我可以請您開始回答，澳大利亞對您的政府與中國之間的裂痕表示關注。如您所知，澳大利亞非常依賴中國。澳大利亞人是否應該擔心中美兩國關係破裂會給澳大利亞地區安全帶來長期後果？
+
+And perhaps, Minister Payne, if you could talk to the same question after the Secretary.
+
+可能的話，佩恩部長，請您在國務卿回答完畢後，也回答一下這個問題。
+
+**SECRETARY POMPEO:**  This isn’t about a breakdown in relations between the United States and China. This is about unlawful misconduct by the Chinese Communist Party, coercive behavior, that frankly most Western nations have permitted to go on for far too long.  President Trump made very clear as far back as his campaign that we were no longer going to permit that to happen.  We were going to rebalance the relationship with the objective of getting a much more fair, reciprocal relationship between the United States and China.
+
+**美國國務卿蓬佩奧：**這不是關於中美關係破裂的問題。這是關於中國共產黨所作的非法不當行為，強制性行為，坦率地說，大多數西方國家長期縱容這種行為。川普總統在競選早期就曾明確表示，我們不再允許這種情況發生了。我們將重新平衡兩國關係，旨在建立一個更加公正，互惠的美中關係。
+
+We’ve done it on multiple fronts.  We’ve seen it very publicly on trade.  We’ve seen it – the things we’ve done to make sure that we have a safe and secure infrastructure.  The Australians have been fantastic at making sure that Australians’ information, their private information, didn’t end up in the hands of the Chinese Communist Party.
+
+我們已經在多個層面展開行動。大家已經在貿易問題上看到了。我們已經看到了政府為確保美國基礎設施安全而作的事情。澳大利亞政府在確保澳大利亞人的資訊，民眾的私人資訊不會落入中國共產黨的手中這件事情上，做的非常出色。
+
+So every nation and its people needs to be aware of the threat that is posed by the Chinese Communist Party to them, and I am confident that the Australian Government, just like the American Government, will act in ways that preserve their sovereignty and secure freedoms for their own people.
+
+因此，每個國家及其民眾都必須意識到中國共產黨給他們帶來的威脅，我相信，與美國政府一樣，澳大利亞政府也將採取行動，堅決維護國家主權，保障民眾的自由。
+
+**FOREIGN MINISTER PAYNE:**
+
+We do often hold common positions with the United States because we do share so many of those fundamental values, and we both want the same kind of region:  We want it to be secure, we want it to be stable, we want it to be free, we want it to be prosperous.  And what this meeting is all about, what AUSMIN is all about – and has been, in fact, for its 30 iterations – is the alignment of the broad perspectives of Australia and the United States on global and regional issues.  That includes our discussions in relation to China.  It includes our discussions in relation to COVID-19 response and recovery.
+
+**澳大利亞外交部長佩恩：**我們通常與美國持有相同的立場，因為我們認可相同的基本價值觀，而且我們都希望擁有同樣類型的家園：我們希望它是安全的，穩定的，自由的，繁榮的。這次會議的全部內容，澳美部長級磋商會議的全部內容，實際上歷經了30次的更新反覆運算，事關澳大利亞和美國在全球和區域議題觀點上廣泛的統一。這包括討論與中國相關的議題，包括討論COVID-19的應對和疫情恢復。
+
+We have, I think, a demonstrable track record of making decisions based on our own interests.  The number of those have been mentioned today in terms of protecting Australia and Australians in the interests of national security, whether they are around countering foreign interference, whether they are ensuring that our 5G network is protected from high-risk vendors, whether they are about the sorts of initiatives that we’ve taken more recently around our foreign investment rules.
+
+在基於自身利益做出決策這個問題上，我們有著可被證實的紀錄。在保護澳大利亞和澳大利亞人的國家安全利益方面，今天已經提到了一些，不管是反對外來干涉，還是保護我們的5G網路免受高風險供應商的侵害，還是近期制定了更多外商投資準則等舉措和行動。
+
+國務院英文全文：[Secretary Michael R. Pompeo at a Press Availability With Secretary of Defense Mark Esper, Australian Foreign Minister Marise Payne, and Australian Defence Minister Linda Reynolds](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-with-secretary-of-defense-mark-esper-australian-foreign-minister-marise-payne-and-australian-defence-minister-linda-reynolds/)
+
+*翻譯：【jamie(文胤)】  校對：【GM31】【Winston Jackson】*
+
+*戰友之家玫瑰園小隊出品*
+
+1

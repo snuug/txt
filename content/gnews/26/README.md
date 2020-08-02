@@ -1,60 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 聲稱因疫情起訴中國是巨大錯誤的參議員Dianne是不是被藍金黃了
-`2020-08-01 02:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/281818/)
+## 滅共也是美國內部政治勢力的較量
+`2020-08-01 04:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281680/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022732/%E5%B0%81%E9%9D%A2-1.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/31202936/1-175.png)
+據福克斯新聞7月30日報導，美國加州參議員戴安·費恩斯坦（Dianne Feinstein）在周四的參議院司法委員會聽證會上稱“中國是值得尊敬的國家”，並反對美國因為疫情對中共國進行追責。此番言論引起了爭議，與當前民意明顯背道而馳。
 
-[Feinstein had a Chinese spy connection she didn’t know about — her driver](https://www.sfchronicle.com/bayarea/matier-ross/article/Sen-Feinstein-had-a-Chinese-connection-she-13121441.php)（費恩斯坦不知道她有一個中國間諜司機）（[Matier & Ross](https://www.sfchronicle.com/author/matier-ross/)Aug. 1, 2018 Updated: Aug. 1, 2018 9:07 a.m. ）
+**費恩斯坦反對美國對中共進行追責**
 
-【A local source who knew about the incident confirmed to us that the FBI showed up at Feinstein’s office in Washington, D.C., about five years ago to alert the then-chairwoman of the Senate Intelligence Committee that her driver was being investigated for possible Chinese spying.】
+費恩斯坦自1992年起任加州參議員至今，她自稱與中國一直保持著長期良好的關係，而她與中共政府的關係更是密切。 2018年，美國總統川普曾抨擊費恩斯坦，因為她僱傭一名中共國間諜為司機。雖然此事暴露後，費恩斯坦表示”羞愧難當”，但由於種種原因，FBI沒能指控此人，而費恩斯坦則以”迫使他退休”而使此事不了了之。
 
-中文大意：一位元瞭解此事的當地消息人士向我們證實，聯邦調查局大約在五年前出現在費恩斯坦華盛頓特區的辦公室，以提醒時任參議院情報委員會主席的費恩斯坦的駕駛員正在接受可能的中國間諜活動的調查。
+福克斯新聞報導稱，在周四的聽證會上，費恩斯坦毫無掩飾地稱讚了中共政府。她說，中國讓成千上萬的人在短時間內脫離貧困，是值得人尊敬的國家，對此她深信不疑，因為她本人去過中國很多次並做過有關研究。費恩斯坦還稱，她所在的州仍將中國視為潛在的巨大市場。
 
-【Besides driving her around when she was in California, the staffer also served as gofer in her San Francisco office and as a liaison to the Asian American community, even attending Chinese Consulate functions for the senator.】
+在讚揚力挺中共國的同時，費恩斯坦還對美國提出了警告。她稱，美國針對疫情對中共國一系列問責是非常危險的。同時，允許美國公民起訴中共國更是犯了一個巨大的錯誤，會適得其反。她給出的理由是，其他國家包括中共國在內，可能會利用由此產生的新的法律先例來對付美國，從而引發連鎖反應甚至造成全球混亂。
 
-中文大意：除了在加利福尼亞州開車帶她到處走走之外，該職員還曾在她的三藩市辦公室擔任辦事員，並作為亞裔美國人社區的聯絡人，甚至參加了參議員在中國領事館的活動。
+**費恩斯坦的主張完全違背美國主流民意**
 
-【“They interviewed him, and Dianne forced him to retire, and that was the end of it,” says our source.】
+不管費恩斯坦們如何力挺中共，美國政府和民意依然支持對中共的強硬態度。
 
-中文大意：他們（聯邦調查局）訊問了這名黛恩.費恩斯坦的中國司機，黛恩迫使這名中國司機離職，這件事就這樣結束了——消息來源人士透露
+不久前，密蘇里州的共和黨總檢察長埃里克·施密特（ Eric Schmitt）向福克斯新聞展示了一份該州對中共國的訴訟聲明。他在聲明寫道：“”在密蘇里州，病毒的影響是非常真實的–數以千計的人被感染，許多人已經死亡，許多家庭面臨著親人的離世，小企業關門，工薪階層為一日三餐而犯愁。 ” 訴訟提交後，中共《人民日報》旗下的《環球時報》發文稱，中共國對美國領導層”濫用訴訟”的行為”極為不滿”，”正在考慮對包括施密特在內的美國個人、實體和政府官員採取懲罰性報復措施”。
 
-[Sen. Dianne Feinstein’s Ties To China Go Way Deeper Than An Alleged Office Spy](https://thefederalist.com/2018/08/08/sen-dianne-feinsteins-ties-china-go-way-deeper-alleged-office-spy/)（By [Ben Weingarten](https://thefederalist.com/author/ben-weingarten/) 參議員戴安娜·費恩斯坦（Dianne Feinstein）與中國的關係比所謂的官員間諜要深得多（本·溫格丹（Ben Weingarten））August 8, 2018）
+除了施密特外，美國俄亥俄州共和黨參議員約什·霍利（Josh Hawley）和佛羅里達州里克·斯科特（Rick Scott）也公開批評了中共。斯科特甚至提出了一項參議院法案，保護疫苗研究不受中共國間諜和滲透勢力的影響。美國國務卿蓬佩奧（Mike Pompeo）對中共國的強硬立場更是眾所周知。蓬佩奧曾告誡各州州長，警惕中共國通過各種方式對美國的滲透，他更指出中共是美國安全的真正”風險”。
 
-【According to four former intelligence officials, in the 2000s, a staffer in Senator Dianne Feinstein’s San Francisco field office was reporting back to the MSS [[China’s Ministry of State Security](https://www.washingtontimes.com/news/2009/mar/19/exclusive-chinese-spy-who-defected-tells-all/), its intelligence and security apparatus]. While this person, who was a liaison to the local Chinese community, was fired, charges were never filed against him. (One former official reasoned this was because the staffer was providing political intelligence and not classified information—making prosecution far more difficult.) The suspected informant was ‘run’ by officials based at China’s San Francisco Consulate, said another former intelligence official. The spy’s handler ‘probably got an award back in China’ for his work, noted this former official, dryly.】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022859/%E6%8D%95%E8%8E%B72.jpg)
-中文大意：據四名前情報官員稱，在2000年代，參議員戴安娜·費恩斯坦（Dianne Feinstein）三藩市現場辦公室的一名工作人員正在向中國國家安全部報告。這名當時作為與當地華人社區聯繫的聯絡人被解雇了，（美國相關部門）從未對他提起訴訟。 （一名前官員認為這是因為該工作人員提供政治情報而不是機密資訊，使起訴更加困難。）另一名前情報官員說，可疑的線人是由駐中國三藩市領事館的官員“管理”的。這位前官員乾脆地指出，間諜的處理人員“可能在中國獲得了獎勵”。
+報導指出，很顯然，美國兩黨在中國問題上的黨派分歧不斷加深，民主黨人選擇對中共保持沉默，而共和黨人同川普政府則一致選擇與中共的正面交鋒。民意也傾向於支持共和黨的強硬立場。通過皮尤研究中心6月16日至7月14日對1003人所做的一次民意調查顯示，超過四分之三的美國成年人將中共病毒全球擴散歸咎於中共政府，超過六成的受訪者表示，中共國在處理疫情上做得很不好。這項調查還顯示，73%的美國成年人對中共國持不利看法，這也是皮尤研究中心15年來對中共國所做民調得到的最負面評價。
 
-另據[醜聞升級！美多名政要涉嫌暴跌前狂拋股票，司法部開始調查](http://gold.cnfol.com/huanqiugushi/20200330/28049620.shtml)（2020-03-30 14:09:33 來源：金十數據）：
+**評** ：滅共不單是關係到廣大中國人民的事，它同時也影響著美國未來的發展和走向。中共對美國幾十年的滲透，特別是對美國政界的影響不是一夜間就能清除掉的。美國兩黨要達成滅共的共識而採用一致行動需要時間和所有人的努力。但中共的猖狂給美國留下的時間不多了，爆料革命的戰友們要更積極地行動起來，在閆博士的帶領下，喚醒更多美國和全世界的民眾，使更多的人盡快加入到滅共的隊伍中來。
 
-【根據參議院的記錄，費恩斯坦本人並未出售任何股票。但她的丈夫在一月份和二月份出售了150萬至600萬美元的生物技術公司Allogene Therapeutics的股票。費恩斯坦本月初在推特上說，她沒有參與丈夫的財務決定。】
+[原文鏈接](https://www.foxnews.com/politics/feinstein-letting-americans-sue-china-over-coronavirus-response-would-be-huge-mistake)
 
-就在這幾天美國民主黨參議員黛恩.費恩斯坦又成了中國媒體的誇讚對象——
+翻譯報導：Sarathecat
 
-據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [07月31日 10:34](https://weibo.com/1887344341/JdICrFP0f?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 【美參議員：中國是受人尊敬的國家 因疫情起訴中國是巨大錯誤】
+校對整理：文旺
 
-29日，美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上表示，中國是一個受其他國家尊重的國家。美國如果破例因疫情取消中國的國家主權豁免權、起訴中國政府的話，那將會是一個巨大錯誤。因為這樣做會殃及自身，使自己成為其他國家起訴的對象。
-而就美國目前在全球範圍內的行動之廣，“破例”後受害最深的反而是美國。美國疫情暴發以後，包括密蘇里州州政府在內多個政府機構或組織向中國政府發起訴訟，聲稱中國防疫不力，導致新冠疫情蔓延。[#美參議員稱中國是受人尊敬的國家#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%8F%82%E8%AE%AE%E5%91%98%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%98%AF%E5%8F%97%E4%BA%BA%E5%B0%8A%E6%95%AC%E7%9A%84%E5%9B%BD%E5%AE%B6%23)
-[L微丟的微博視頻](http://t.cn/A6UyvomT)[收起全文d](void%280%29;)
-
-中共國對於黛安.範士丹（注：與黛恩.費恩斯坦為同一人，中文叫法不同而已）大贊的部分文章——
-
-[美議員:中國受人尊敬,因疫情起訴中國是巨大錯誤\_手機網易網](https://www.baidu.com/link?url=vm2B-qN4WTCSFBT5p4D1tbAFWVSLs2c4h-_2hUIfSpgPwB99rz8Zr6GXs7ubX3vVkw6yAM1uYS-KrG4-bu2Wwa)
-
-1天前 – 摘要:“中國是受人尊敬的國家,因疫情起訴中國是巨大的錯誤。”美國參議員黛安·範士丹(路透社資料圖)海外網7月31日電當地時間30日,美國參議員黛安·範…
-
-[美參議員:因疫情起訴中國是壞主意 美國責任將被追究 – AcFun彈幕…](https://www.baidu.com/link?url=ok6d3lRITfyap6CtoLEbQdRXkkpHu2D5l3jEvLZsFVbbRHZ7piUDPhj4EMbE8_uh)
-
-1天前 – 當地時間7月29日,美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上引用談話和證詞表示,“我們(美國)把中國看作是一個潛在的交易夥伴,那是…
-
-[美議員:中國值得尊敬 借疫情“起訴中國”大錯特錯](https://www.baidu.com/link?url=YDKcUr9Dl_LRmd47bvYoJbevwAExcZIIrUGRUDamqIif6BE6eL4-c9F64np2Q0KN98_0tTgxWkm1njBnvhPLKgoKiXeYzKTEXCLpV_Vb9D7)
-
-20小時前 – 央視網消息:7月30日,美國民主黨聯邦參議員黛安·範士丹出席參議院司法委員會的聽證會時表示,中國值得尊敬,借疫情“起訴中國”是大錯特錯。 編輯:張哲…
-
-中共駐三藩市領事館、中國國家安全部、中國司機、在新冠疫情前家人莫名其妙出手套現股票的參議員Dianne Feinstein是不是被中共深度藍金黃了？那些把她的正在接受調查的中國司機放走的人到底有沒有從中共拿錢？不管怎樣，在此時此刻還敢為中共月臺的Dianne Feinstein，其勇氣可嘉，只是這是不是下一步要被抽幹的沼澤？
-
-（文章內容僅代表作者個人觀點）
-
-0
+1

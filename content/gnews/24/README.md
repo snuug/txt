@@ -1,15 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國NBA訓練營侵犯人權
-`2020-08-01 02:57 GM31` [轉載自GNews](https://gnews.org/zh-hant/281837/)
+## 美國參議院通過法案：允許民眾就CCP病毒造成的損失起訴中共政府
+`2020-08-01 04:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281905/)
 
-在7月30日的[Fox News報導](https://youtu.be/s1Xn2gEO2tw)中，主持人Martha採訪了議員Tom Cotton，並就有人在NBA的中國訓練場地見證到他們的教練有虐待中國球員現象對他進行了採訪。Tom Cotton議員對這種惡劣行徑做了痛斥，並要求停止這種行為，他表示：“這簡直就是用年幼中國孩子充斥的血汗工廠，並且這位NBA員工看到了各種您所提到的最不堪的虐待孩子的事。他們甚至在中 (共) 國的西北地方還建有針對少數民族的，宗教群體的所謂的”再教育” (勞改)營地，這就好比是二戰中納粹德國”。
+![美參議院通過新法案，允許FBI無搜查令監控民眾上網記錄-滑鐵盧華人網 ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01044352/1.png) 圖片來源： [http://www.africantimes2005.com/gjxw/23139.html](http://www.africantimes2005.com/gjxw/23139.html) 
+據報導，參議院司法委員會周四批准了一項法案，該法案將允許人們就CCP病毒大面積傳播造成的損害向聯邦法院提起訴訟。
 
-他強調NBA現在所表露的立場實在是非常令人失望，“然而不幸的是，太多的球星和高管們似乎更關心的是，是否能在中 (共) 國多賺幾塊錢，而對最基本的人類自由和尊嚴的底線無所顧及。”
+格雷厄姆（Lindsey Graham）是南卡羅來納州共和黨議員，也是此法案的共同發起人，他說：“由於中共國對世界隱瞞了該病毒的起源和性質，美國人有權利要求賠償。”
 
-*翻譯**:**【**Guanghan**寶寶】*  *校對**:**【清晨風景】* *字幕：【**Rock**小哥】* *編輯**:**【**GM31**】*
+委員會主席林賽·格雷厄姆說：“事實已經很清楚了，中國共產黨顯然欺騙了世界並操縱了有關冠狀病毒的信息。 他們限制在中國境內旅行以減緩傳播，但允許中國人在世界各地旅行以增加傳播。”他還強調說：“鑑於中共的欺騙和隱瞞行為，美國人有權通過法律手段獲得賠償。”
 
-*戰友之家玫瑰園小隊出品*
+[原文鏈接](https://justthenews.com/government/congress/senate-committee-passes-bill-allow-people-sue-china-covid-19-related-damages)
 
-0
+翻譯報導：Hanstyle
+
+1
