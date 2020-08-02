@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄羅斯完成CCP病毒疫苗臨床試驗併計劃10月免費接種，世界疫苗競賽已開啟
-`2020-08-01 22:58 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/282500/)
+## 【世界多語言圖文】2020/07/01 CCP病毒每日疫情直播簡報
+`2020-08-02 02:56 GM77` [轉載自GNews](https://gnews.org/zh-hant/282744/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽
+戰友之家圖文摘要組及小語種組
 
-校對：HUH
-![](https://lh6.googleusercontent.com/jb6aYV17PEZV2cQT5pHcRTyYKtpzoj7TZkNv6-_nTpHeIt-odzgBDbzQdXpxfJ0Ab-vHF5I0mLPmRPeeqg2qDOTXi7m_oD5wibYFoifumC2QN1C0c2K5yL-Xg8ysVURzcEqgsvk)
-圖片來源：kurez.com
+[English\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)
 
-8月1日，俄羅斯衛生部長Mikhail Murashko宣布，由NF Gamaleya國家流行病學和微生物學研究中心開發的新冠病毒疫苗已完成臨床試驗，大規模對市民免費疫苗接種將從10月份開始，第一批接種疫苗的是醫務人員和教師，俄羅斯計劃將完全由聯邦預算支付新冠病毒疫苗接種費用。
+[French\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)
 
-Gamaleya中心技術平台已創建20年，科學家分解了新冠病毒成分，並觀察到病毒由哪些蛋白質組成，哪些會引起免疫反應。 Gamaleya中心研製的疫苗預計於8月10-12日進行註冊，計劃於8月15-16日可獲得藥品生產許可證，9-10月開始工業量產。 Gamaleya中心負責人Alexander Gintsburg表示，“他們生產疫苗的技術已獲得專利，疫苗獨特並且超越了國外類似藥物，這是一種兩種組分的藥物，可讓人體產生長期免疫力。同時強調，俄羅斯願意與外國同行分享最佳經驗做法。”
+[German\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)
 
-Gamaleya中心與俄羅斯國防部NN Burdenko軍事醫院聯合進行了該疫苗的臨床試驗。 7月20日，第二批20名志願者已完成臨床試驗並出院，測試結果清楚地表明了在所有志願者身上未發現任何副作用、並發症或不良反應以及其它健康問題，驗證了疫苗的安全性和對人體的耐受性。為確認疫苗已取得積極效果，安全性和耐受性，所有志願者將在第一次接種後的第42天再次接受對照檢查。
+[Japanese\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)
 
-俄羅斯聯邦國防部微生物研究院48中央研究所是俄羅斯防禦進攻性生物武器的主要開發機構，48研究所負責人Sergei Borisevich上校表示，“接種疫苗後產生的高水平抗體會在體內保留很長時間。 ”由此可見，俄羅斯對新冠病毒本身以及對疫苗的研究上升到了“防禦進攻性生物武器”級別。
+[Korean\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)
 
-俄羅斯副總理Tatiana Golikova表示，俄羅斯正在一次開發幾種疫苗，但其中Gamaleya中心和新西伯利亞“Vector研製的疫苗最具前景。Vector研製的疫苗目前正在進行臨床試驗，併計劃在9月完成，然後將進行國家註冊，緊接著10月份開始生產。俄聯邦消費者權益保護監督局負責人Anna Popova指出，Vector研製的疫苗與其他機構不同，我們擁有肽鍵，也就是說，它的任何部分都不含生物製劑，因此絕對不會引起不良反應。”
+[Russian\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)
 
-目前，在世界範圍內，美國生物技術公司Moderna研發的新冠疫苗被稱為美國最有效的疫苗之一，Moderna打算將一個療程定價為50-60美元，每劑約合25-30美元。美國Pfizer公司和德國BioNTech公司估計他們的開發價格為每劑19.5美元，英國牛津大學與美國阿斯利康實驗室（AstraZeneca）合作開發的疫苗價格為每劑3-4美元。
-
-7月31日在中共“崴腳部”記者會上，發言人汪文斌就有關“美國官員指控中共黑客竊取美國Moderna疫苗研製數據“時表示，這種指控“純屬造謠污衊”，在新冠疫苗自主研發方面，中共國處於世界領先地位，根本不存在、也不需要靠偷竊來取得領先地位，倒是我們更擔心個別的竊密成性的國家，利用黑客來竊取中方的技術。
-
-在已開啟的全世界針對CCP病毒疫苗開發競賽中，值得注意的是，俄羅斯對疫苗的開發與其他國家不同，在疫苗研製初始階段，俄羅斯“防禦進攻性生物武器”的主要開發機構48中央研究所就已全面介入，這充分證明了從CCP病毒全球爆發的開始，俄羅斯就已經意識到這就是“生物武器”。
-
-參考鏈接：
-
-[https://tass.ru/obschestvo/9102831?utm\_source=yxnews&utm\_medium=desktop](https://tass.ru/obschestvo/9102831?utm_source=yxnews&amp;utm_medium=desktop)
-
-[https://ria.ru/20200801/1575255164.html](https://ria.ru/20200801/1575255164.html)
-
-[https://www.gazeta.ru/social/2020/08/01/13172467.shtml](https://www.gazeta.ru/social/2020/08/01/13172467.shtml)
+[Spanish\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)
 
 0
