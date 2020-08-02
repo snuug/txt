@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從假蜂蜜到假食品假疫苗再到CCP冠狀病毒都源於我們的過度沉默
-`2020-08-02 02:27 Diago` [轉載自GNews](https://gnews.org/zh-hant/282660/)
+## 【世界多語言圖文】2020/07/01 CCP病毒每日疫情直播簡報
+`2020-08-02 02:56 GM77` [轉載自GNews](https://gnews.org/zh-hant/282744/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02022143/%E5%B0%81%E9%9D%A2-5.jpg)
-作者：Diago
+戰友之家圖文摘要組及小語種組
 
-據[**主廚君**](https://weibo.com/u/3277430954)[2020年8月2日 11:43](https://weibo.com/3277430954/Je1Vywwl1?from=page_1005053277430954_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone 7](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+[English\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025057/English_0701_CCP_Virus_Updates.pdf)
 
-搞化學的都去做食品了，cnmd [L主廚君的微博視頻](http://t.cn/A6UGMaKQ)
+[French\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025102/French_0701_CCP_Virus_Updates.pdf)
 
-看了這個視頻，我們可以學到什麼知識呢？原來做出外觀、口感、粘稠度、拉絲度與真蜂蜜高度一致的假蜂蜜是這麼簡單！那種用做基料的不明液體是什麼？是誰研製出來的？那種添加的香精是什麼？是誰研製出來的？這種按一定比例把不明液體和香精混合起來的經攪拌即可加工而成的“蜂蜜”的配方是誰研製出來的？
+[German\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025106/German_0701_CCP_Virus_Updates.pdf)
 
-我相信能夠研製作為假蜂蜜基料液體和作為添加劑的香精的人肯定不是販夫走卒，我相信能夠研製出兩者混合比例的，肯定不是販夫走卒，但是當所有這些都研製出來並且有固定的添加比例之後，哪怕是販夫走卒，只要看一遍這個視頻還不能做出假蜂蜜的，只有一種情況——出於良知，他拒絕這樣做！沒有任何其他理由！
+[Japanese\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025109/Japanese_0701_CCP_Virus_Updates.pdf)
 
-那麼生活中國的十四億草根是不是都是無辜的受害者？恐怕答案是否定的。種菜的會不會使用巨毒農藥？養豬的會不會使用瘦肉精？養奶牛的會不會在出售原奶時加水再加三聚腈胺？或者我既不是種菜的、我也不是養豬的、我也不是養奶牛的，我只是一個辦公室白領，那麼作為某一個體系中的零件，建築施工業的能不能保證他所經手的每一份施工存檔資料都是真實的？再推而廣之加工業的從業者能不能保證他所負責的工序是嚴格按照規程操作的？研發行業的從業者能不能保證每個實驗資料都是準確和可驗證的？我相信基本上每個人都不能拍胸脯保證自己所從事的行業沒有一點造假。
+[Korean\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025113/Korean_0701_CCP_Virus_Updates.pdf)
 
-再來說說我們人類正在面臨的這場中共生化戰爭危機，按目前已知的情況，2003年的那場SARS就是中共對全人類發起的一次不宣而戰的生化戰爭，那麼在2003年之前有多少人參與了研發和決策以及隨後對全人類的欺騙？在2003年以後的中共發起的歷次的對全球不宣而戰的生化戰爭，包括MERS、禽流感、各種蜱蟲病、多次SARS局部國家的發作，再到目前的這場CCP冠狀病毒攻擊，再到前幾天郭文貴先生爆出來的中共在伊朗、埃及、中東某國家（非常懷疑是卡塔爾）、巴基斯坦、朝鮮秘密興建的針對美國和以色列的P3生化實驗室，這期間有多少人參與研發、決策、設計、施工、調試？在全球近七十億人口中，從科學界到企業界到政界，有多少人直接或間接實施了這一系列的反人類犯罪？為什麼除了我們已知的郭文貴先生、閆麗夢博士和還不為我們所知的已經起義逃到西方的英雄科學家們站出來？為什麼只有路德先生的頻道和GTV、GNEWS、FOX等少數正義媒體能夠成為發聲的平臺？我們作為人類的一員，為什麼基於信仰和良知的付出會面對如此巨大的阻力和危險？
+[Russian\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025116/Russian_0701_CCP_Virus_Updates.pdf)
 
-在CCP冠狀病毒之前，我們總是說是中共這種邪惡的體制造就了中國現在的這一切，在CCP冠狀病毒之後，我們知道這種邪惡體制不僅限於中國，在WHO、在聯合國、在美國、在法國、在英國、在科學雜誌、在自然雜誌、在香港P3、在武漢P4、在所有未知的中共國的生化實驗室和其他在建的生化實驗室、那些唯利是圖視人命為草芥的藥廠老闆、那些視選票為唯一關注的政客，這長長的清單不能涵蓋所有為這場生化危機添磚加瓦的方方面面。
+[Spanish\_0701\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025125/Spanish_0701_CCP_Virus_Updates.pdf)
 
-這一切是不是都與我們非當局者無關？其實真不是，這一切都與我們息息相關。這一切的惡都直接、間接源於我們自身。中共的今天就是我們及我們的父輩、祖輩的忍讓、順從、服從的結果，我們每個人不知不覺中吃到肚裡的毒食品、吸到肺裡的霧霾、打到我們子孫身上的假疫苗、喝進我們子孫肚裡的假奶粉，以及現在我們正在忍受的不知道什麼時候我們也會被感染甚至死去的CCP冠狀病毒，這一切都是我們當之無愧的。這一切都是我們及我們的父輩、祖輩的精於算計、懦弱、忍讓息息相關，因為邪惡盛行的唯一條件就是善良者的沉默！
-
-在今天我們慶倖無數的爆料革命戰友、無數的正義人士站在一起，我們就是推翻中共暴政的一員，我們重要不重要？如果我們不參與，那我們一點也不重要，因為離了我們中共暴政一樣被推翻，但是如果我們所有人都不參與，當郭文貴先生在為滅共奔走呼號的時候，我們誰也不給法治基金捐款，那滅共者們就不會看到滅共的滔滔民意，所以離了我們誰都不行；當郭文貴先生號召發起在全球各地中共使領館抗議的時候，我們每個個體可不可以不參加？當然可以，因為在發出“CCP LIES，美國人（英國人、日本人、韓國人、中國人）死亡”口號的人群裡，不差我一個，但是如果我們所有人都不參加，那麼僅僅一人戰一國、一人為全中國人乃至全人類奔走呼號的郭文貴先生恐怕只能被視為瘋子，所以離了我們誰都不行，對於那些抗議，我們可能不能身至，但我們的轉發和評論也是另一種參與，這種參與離了我們誰都不行！
-
-中共推翻了，就一切唯真不破了？這個世界就從地獄變成天堂了？恐怕不是！路漫漫其修遠兮！在天堂和地獄之間，是人類；在上帝和魔鬼之間，是人類。當善良者沉默時，邪惡必將盛行，當善良者過度沉默時，邪惡必將統治這個世界，這就是可怕的現實。
-
-（文章內容僅代表作者個人觀點）
-
-1
+0

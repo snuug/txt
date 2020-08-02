@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港府借疫情為由宣布推遲立法會選舉
-`2020-08-02 02:34 GM77` [轉載自GNews](https://gnews.org/zh-hant/282676/)
+## 【世界多語言圖文】2020/07/02 CCP病毒每日疫情直播簡報
+`2020-08-02 03:04 GM77` [轉載自GNews](https://gnews.org/zh-hant/282772/)
 
-編撰：文卡西歐、文非、文肯尼
+戰友之家圖文摘要組及小語種組
 
-香港政府今日（31 日）引《緊急條例》將立法會選舉押後一年至明年9 月5 日舉行，特首林鄭月娥在記者會上表示有尋求中央政府的支持和指示。中央人民政府、港澳辦及中聯辦隨即發表聲明，認為香港新冠肺炎疫情再次爆發，其疫情形勢嚴峻，強調政府推遲第七屆立法會選舉是「合理合法」，並指「充分理解和支持」 。
+[English\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025831/English_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025831/English_0702_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02023020/8.1-5-1.jpg)
+[French\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025835/French_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025835/French_0702_CCP_Virus_Updates.pdf)
 
-中聯辦聲明，自7 月5 日起，香港疫情形勢急轉直下，連續10 天單日新增確診病例過百，故此社會各界人士連日來紛紛提出押後立法會選舉，以確保選舉能夠在公眾安全與公平公正的前提下進行。中聯辦強調押後立法會選舉「符合憲法、基本法和香港本地法律」、「體現了對科學防控疫情的尊重」、「體現了對廣大香港市民生命健康安全的責任擔當」，認為這是「順應了主流民意」。不過香港民意研究所今日公布民調顯示，有55% 受訪香港市民支持選舉如期舉行。
+[German\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025838/German_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025838/German_0702_CCP_Virus_Updates.pdf)
 
-中聯辦聲明又指出，「沒有安全的選舉環境，就談不上選舉的公平公正」，以全球至少有68 個國家或地區因應疫情押後選舉為例，強調「生命至上，是國際社會的普遍共識」，故此支持香港特區政府基於公眾利益和實際情況而延遲選舉的決定。
+[Japanese\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025842/Japanese_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025842/Japanese_0702_CCP_Virus_Updates.pdf)
 
-港澳辦則連出兩稿，其中指中央人民政府表示支持香港特區政府依法地將立法會選舉延遲一年，又指將會應香港抗擊疫情的需求，「提供一切必要支持和援助」，切實保護香港居民生命安全和身體健康。
+[Korean\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025845/Korean_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025845/Korean_0702_CCP_Virus_Updates.pdf)
 
-另外，港澳辦則贊揚政府推遲選舉是「對香港市民的生命安全和身體健康高度負責的態度」，聲明指出，香港當下最重要、最緊迫的任務是采取嚴格和有力措施盡快控制疫情傳播，認為押後選舉的決定「符合當下其他許多國家和地區的通行做法」、「不會影響特別行政區政權機關的正常運作」、「不會損害香港市民依法享有的民主權利和自由」。
+[Russian\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025849/Russian_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025849/Russian_0702_CCP_Virus_Updates.pdf)
 
-至於立法會空缺問題，中央人民政府、港澳辦及中聯辦均表示，中央政府將依法提請全國人民代表大會常委會作出決定。
+[Spanish\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025853/Spanish_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025853/Spanish_0702_CCP_Virus_Updates.pdf)
 
-**評論**
-
-中共欲取締九月份立法會選舉，很大程度上是源於去年建制派十一月區選大敗，導致北京政府顏面盡失。他們一方面不想重演去年的滑鐵盧之役，更重要的是不願看到泛民派取得大勝的場面。
-
-在林鄭月娥發布該行政命令前，中共已通過譚耀宗、曾鈓成等土共元老、工聯會、民建聯等建制派，還有黨媒左報等渠道借抗疫之名預熱和炒作了一個多星期，終於香港政府在7月31 日引《緊急條例》將立法會選舉押後一年至明年 9 月 5 日舉行。
-
-在林鄭宣布押後選舉後短短3小時後，曾經與中共關系最密切的德國就宣布對特區政府押後立法會選舉以及裁定參選人提名無效的做法提出嚴重反對，並宣布德國將暫停與香港之間的引渡協議。美國隨後也發布聲明表示對推遲選舉的行為不能容忍。西方國家的反應速度之快出乎大家想象! 這樣的速度表明一個清晰不過的信息，即西方各國在反共立場上已經取得高度一致。香港同時作為中共和全球反共聯盟的最前線，是一個一觸即發的角鬥場。中共的猖狂已無法用語言來形容，等待它的必然是被消滅。
-
-原文鏈接：
-[https://today.line.me/hk/article/%E6%94%BF%E5%BA%9C%E5%BC%95%E3%80%8A%E7%B7%8A%E6%80%A5%E6%A2%9D%E4%BE%8B%E3%80%8B%E6%8A%BC%E5%BE%8C%E7%AB%8B%E6%9C%83%E9%81%B8%E8%88%89%E4%B8%80%E5%B9%B4%E3%80%80%E4%B8%AD%E5%A4%AE%E6%94%BF%E5%BA%9C%E3%80%81%E4%B8%AD%E8%81%AF%E8%BE%A6%E3%80%81%E6%B8%AF%E6%BE%B3%E8%BE%A6%EF%BC%9A%E5%85%85%E5%88%86%E7%90%86%E8%A7%A3%E5%92%8C%E6%94%AF%E6%8C%81-xYl9m1](https://today.line.me/hk/article/%E6%94%BF%E5%BA%9C%E5%BC%95%E3%80%8A%E7%B7%8A%E6%80%A5%E6%A2%9D%E4%BE%8B%E3%80%8B%E6%8A%BC%E5%BE%8C%E7%AB%8B%E6%9C%83%E9%81%B8%E8%88%89%E4%B8%80%E5%B9%B4%E3%80%80%E4%B8%AD%E5%A4%AE%E6%94%BF%E5%BA%9C%E3%80%81%E4%B8%AD%E8%81%AF%E8%BE%A6%E3%80%81%E6%B8%AF%E6%BE%B3%E8%BE%A6%EF%BC%9A%E5%85%85%E5%88%86%E7%90%86%E8%A7%A3%E5%92%8C%E6%94%AF%E6%8C%81-xYl9m1)
-
-1
+0

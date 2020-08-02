@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登如何收取中共15億美元賄賂，默許為中共提供生物武器，協同中共建集中營，實施人工智能監控
-`2020-08-02 02:43 GM77` [轉載自GNews](https://gnews.org/zh-hant/282699/)
+## 【世界多語言圖文】2020/07/04 CCP病毒每日疫情直播簡報
+`2020-08-02 03:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282805/)
 
-整理：文珺追隨MG
-審核：文肯尼
+戰友之家圖文摘要組及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02023922/2-1.jpg)
+[English\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)
 
-**奧巴馬政府和拜登對於中共將幾百萬人關押在奴工集中營是知情的**
+[French\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)
 
-奧巴馬執政期間，巴拉克·侯賽因·奧巴馬本人及其幕僚，包括喬·拜登在內，從白宮的內部文件、中央情報局的報告以及許多人權組織的報告中已然知悉，中共政權在全國各地設有奴工集中營，被關押者遭到奴役、強暴、酷刑、活摘器官、謀殺等，屍體被付之一炬。這些報告的內容與先前提交給聯合國和布什政府的報告是一致的。受害者包括法輪大法修煉者、基督徒、維族人、藏人、農民、藝術家、記者和渴望自由的普通公民。
+[German\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)
 
-**喬****·****拜登以奧巴馬政府副總統身份收受了中共****15****億美金**
+[Korean\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)
 
-在中共把基督徒、法輪大法修煉者、藏人、維族人和其他少數民族關入集中營、按需殺人摘取器官之時，喬·拜登和兒子亨特·拜登在奧巴馬政府的眼皮底下收了中共15億美元。喬·拜登和亨特·拜登或被控反人類罪（危害人類罪）而面臨審判，或也將依照《群體滅絕罪公約》第1至4條以及其它許多與叛國罪、反人類罪有關的刑法被控罪。
+[Russian\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)
 
-**共謀罪****——****《群體滅絕罪公約》第****3****條**
+[Spanish\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)
 
-《聯合國防止及懲治群體滅絕罪公約》第3條是二戰之後制定的。其中規定，如果任何個人、實體或政府是群體滅絕的同謀，可以被控以反人類罪。特朗普政府在過去兩年裏通過了許多議案和法律，都在譴責中共建設的集中營，然而傳媒、政客和數百萬人的持續攻擊掣肘了特朗普及政府，削弱了對中共的打擊以及反擊中共建設奴工營、殺人和發展生物武器技術的力度。
+[Japanese\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)
 
-**收取中共****15****億美元，默許****AI****、生物武器等技術轉讓**
-
-喬·拜登、希拉裏·克林頓和奧巴馬政府及其他官員，放手讓中共竊取技術並與貪財的美國人和西方人合作，使得美國的研究所、企業和生物技術產業將尖端技術資產轉移到中國，包括冠狀病毒和其它生物武器技術。這是玩忽職守，或他們以為中共治下的中國可以成為文明國家、會說實話。
-
-**谷歌等科技巨頭的****AI****監控奴役中國和世界**
-
-拜登父子在奧巴馬執政時期掣肘美國軍方、聯邦調查局、特勤局、中情局等情報機構中的優秀人才，使得他們無法全面對抗中共威脅和美國國內及世界各地其它邪惡的實體。他們允許谷歌幫助中共打造奧威爾式國家。特朗普上任之後，許多與中共有聯系的企業被中共利用，來對抗美國擺脫中共貿易奴役的努力。如今，疫情爆發了。數月以來，不斷就世界處在危險之中發出警告。很多人都視之不見，更別說主流媒體，此舉使世界面臨更大危險。
-
-**編者觀點：**
-
-拜登父子受賄、美國科技公司同中共沆瀣一氣奴役人民這篇新聞算是“舊聞”，原文發表於2020年4月2日，但並未引起人們熱議和廣泛傳播，原因我想我們從以上文中就能看到邏輯線條，且作者在文中甚至感慨：“數月以來，我在我發布的報告、書籍、文章、訪談、起訴書和推文中，不斷就世界處在危險之中發出警告。然而，很多人只是視其所需而剽竊，沒有大的推特賬號來支持我，連發布好內容的善良的人都視之不見，更別說主流媒體，此舉使世界面臨更大危險。這是為什麽？” 最後的問題發人深省。
-
-戰友們跟隨爆料革命三年來，了解到了無數常人所不能理解的密室中的 “殺戮，變態，活摘，交易，口蜜腹劍…”。人性之惡，人性之黑，人性之邪的確讓人恍如隔世，三觀盡毀。
-
-目前世界處於一種黎明前最黑暗的時刻，神魔之戰，正義與邪惡之鏖戰。堅定地相信正義一定勝利，神的庇佑一定會恩澤到善良的老百姓，中共必亡。
-
-**新聞來源**：
-[https://zh.theaiorganization.com/how-bidens-took-1-5-billion-bioweapon-transfer-complicity-to-slave-camps-china-ai-surveillance/](https://zh.theaiorganization.com/how-bidens-took-1-5-billion-bioweapon-transfer-complicity-to-slave-camps-china-ai-surveillance/)
-
-1
+0
