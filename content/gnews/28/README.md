@@ -1,77 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國向亞洲反華為行動提供財政援助
-`2020-08-01 23:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/282507/)
+## 【世界多語言圖文】2020/07/04 CCP病毒每日疫情直播簡報
+`2020-08-02 03:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282805/)
 
-*新聞來源：《日經亞洲評論》*
+戰友之家圖文摘要組及小語種組
 
-*作者：Ryo Nakamura*
+[English\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)
 
-*發佈時間： 2020年7月25日*
+[French\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)
 
-*翻譯/簡評：萬人往*
+[German\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)
 
-*校對：Julia Win*
+[Korean\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)
 
-*審核：InAHurry*
+[Russian\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)
 
-*Page：拱卒*
+[Spanish\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)
 
-簡評：
-
-“華而不實、為所欲為”正是華為這家所謂民營企業的真實寫照。華為不僅在國內外洗錢、藍金黃、偷竊技術、從事間諜活動，還常常煽動小粉紅的“愛國”情緒。
-
-孟晚舟被加拿大拘捕，牆內微博一片沸騰，出現了“今夜我們都是孟晚舟”等文字表示對孟公主的支持和對加拿大當局的憤慨。當波蘭國家安全局以“從事間諜活動”的名義逮捕了華為在當地的員工王偉晶時，華為次日回應，中止僱傭關係，網上出現“今夜我們都是王偉晶”等支持的文字被連夜刪帖。對華為來說，普通員工都是炮灰，隨時可以犧牲掉，壓榨員工更是家常便飯。為華為工作12年的員工李洪元，因離職賠償問題，被華為以職務侵占罪為由向警方舉報，隨即被羈押251日，後因證據不足而獲檢察院不起訴處分並釋放。出身985，工作996，離職251，維權404。
-
-今天，西方主流國家徹底認清華為公司的真面目，紛紛終止華為的業務，禁止華為參與建設5G網絡，中共利用華為實現全球5G建設的佈局被逐步瓦解。中共伸向海外的邪惡觸手被連根斬掉，只能搞一搞“經濟內循環”，中共假經濟崩潰之時指日可待。
-
-
-
-##  **美國向亞洲反華為行動提供財政援助** 
-
-
-
-**華盛頓當局敦促日本和澳大利亞在“清潔”5G道路上進行合作**
-[!\[\](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/7940f9e4-e05e-44fd-97c3-c737ec53bacf.jpg?asset_id=068dff2a-a6ad-46b0-86d2-b2d70d37b68e&amp;img_etag=%2229f8052dc211220c6592fbfc5e2f2737%22&amp;size=2560)](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/7940f9e4-e05e-44fd-97c3-c737ec53bacf.jpg?asset_id=068dff2a-a6ad-46b0-86d2-b2d70d37b68e&amp;img_etag=%2229f8052dc211220c6592fbfc5e2f2737%22&amp;size=1024)基思•克拉奇(Keith Krach)(右二)，在美國促進經濟安全和與中共國脫鉤的努力中發揮了關鍵作用。路透社
-華盛頓——一名美國高級外交官表示，華盛頓當局可能會在其5G基礎建設中反對使用華為技術設備的倡導行動中提供財政支持，因為美國希望讓亞洲發展中國家與自己的政策保持一致。
-[!\[\](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/9a4d819f-5d1b-46c8-9475-edcd2d49110e.jpg?asset_id=7e488d8a-a4d3-4065-97d5-403112c6a782&amp;img_etag=%22ed737300a337e88980a10d45df6df43c%22&amp;size=1024)](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/9a4d819f-5d1b-46c8-9475-edcd2d49110e.jpg?asset_id=7e488d8a-a4d3-4065-97d5-403112c6a782&amp;img_etag=%22ed737300a337e88980a10d45df6df43c%22&amp;size=1024)
-華為對資源有限的發展中國家十分具有吸引力，因為其產品和服務通常比愛立信(Ericsson)和諾基亞(Nokia)生產的替代品更便宜。但，美國負責經濟增長、能源和環境事務的副國務卿基思•克拉奇(Keith Krach)在與日本經濟新聞社(Nikkei)和其它日本媒體舉行的圓桌會議上表示，這些價格也有隱性成本。
-
-他說:“華為是中共作為監控國家的骨幹。”他指的是中國共產黨。 “這就是為什麼任何一個國家，如果在其5G系統中包含華為或中興設備，隨時都能被盜竊和監視。”
-
-克拉奇發表此番言論之際，川普政府正在發起針對華為和其它中共國科技公司的行動，指責它們對國家安全構成風險。儘管華為和其它公司否認了這些指控，但這項行動本月開始產生效果，英國已禁止華為進入其5G網絡，而且據報導，法國網絡安全機構也對華為實施了事實上的禁令。
-
-克拉奇說，美國不會依賴已經成為全球電信業領導者的華為，而是讓其它國家選擇更換華為製造的設備。
-
-克拉奇在周三的圓桌會議上表示，“我們可以做很多事情”來幫助發展中國家替換華為的零部件。他提到了美國國際開發金融公司(US International Development Finance Corp.)、美國進出口銀行（Export-Import Bank） 和美國國際開發署(US Agency for International Development)等政府機構可能提供的援助。
-
-美國總統唐納德·川普政府根據2018年10月立法通過的法案，將政府基礎設施投資能力提高了一倍。克拉奇暗示，（美國）可能會與日本和澳大利亞合作，加大通信基礎設施建設力度。
-[!\[\](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/ae88059a-80a8-4a85-94eb-53486c2a873a.jpg?asset_id=aa2df441-090d-4769-a87a-fd90b296dd33&amp;img_etag=%224c2e07471332906b5417af61897a0173%22&amp;size=1024)](https://spark.adobe.com/page/kgQQzz9AkU6wn/images/ae88059a-80a8-4a85-94eb-53486c2a873a.jpg?asset_id=aa2df441-090d-4769-a87a-fd90b296dd33&amp;img_etag=%224c2e07471332906b5417af61897a0173%22&amp;size=1024)
-他說，值得信賴的電信基礎設施是“我們印度-太平洋戰略的一部分”。
-
-對於菲律賓和泰國等尚未從網絡中淘汰華為產品的國家，他說：“我認為，我們首先要做的是與他們合作，看看他們能否取代或改變這一決定。”
-
-這兩個國家都是美國的軍事盟友。美國擔心，華為的設備可能會將高度敏感的信息暴露給中共國間諜，並干擾緊急情況下的有效溝通。
-
-中共國政府一直否認有使用華為設備從事間諜活動行為。
-
-克拉奇還表示，人們對中共國應用程序（如抖音-TikTok和微信）收集個人信息發送到中共國政府（的行為）感到擔憂。
-
-他說:“這類應用程序真的很危險，因為它可能導致（中共）對我們孩子的監視。”
-
-川普政府正在考慮在美國禁止抖音（TikTok）。他說，印度對抖音（TikTok）的禁令“著實刺激了我們”。
-
-但他強調，日本是否效仿，最終取決於本國政府。他說:“我們的立場是，我們希望與他們分享我們的情報，與他們分享我們自己要樹立榜樣的原因。”
-
-克拉奇表示，從長遠來看，美國計劃擴展其“5G清潔路徑”，該計劃倡議將華為和中興等供應商從美國外交設施進出的5G通信中剔除。
-
-他說:“我們很快將把這一清潔路徑的倡議擴展到5G之外，包括乾淨的應用程序、乾淨的系統、乾淨的數據中心、乾淨的雲和乾淨的水下電纜，以便讓透明之光照亮中共國。”
-
-美國已經敦促國際社會在這些領域限制與中共國的聯繫。它可以開始指定參與這些業務的“清潔”公司，以促進這一轉變。
-
-[原文鏈接](https://asia.nikkei.com/Spotlight/Huawei-crackdown/US-dangles-financial-aid-to-anti-Huawei-campaign-in-Asia)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/kgQQzz9AkU6wn/)
+[Japanese\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)
 
 0

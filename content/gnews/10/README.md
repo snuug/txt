@@ -1,23 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/02 CCP病毒每日疫情直播簡報
-`2020-08-02 03:04 GM77` [轉載自GNews](https://gnews.org/zh-hant/282772/)
+## 拜登之子與中共的醜惡勾當等同於出賣美國軍事科技的間諜活動
+`2020-08-02 09:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/283073/)
 
-戰友之家圖文摘要組及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02093932/Picture-1-2.png)圖片來源：Reuters 
+據AND magazine最近發表的一篇文章透露，中國廣核集團公司(CGN)，一家由中共解放軍（PLA）控制的國有企業，被指參與竊取高度敏感的美國軍事科技並向中共提供相關信息。目前來看， 該中共企業其實就是為了竊取美國核機密而創建的。
 
-[English\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025831/English_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025831/English_0702_CCP_Virus_Updates.pdf)
+**中廣核與渤海華美的始末**
 
-[French\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025835/French_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025835/French_0702_CCP_Virus_Updates.pdf)
+中廣核成立於2014年，其重要投資者之一，是副總統拜登之子亨特. 拜登(Hunter Biden)所領導的私人股權基金管理公司渤海華美。該公司將1000萬美元用於中廣核的首次公開發行股票，渤海華美是Rosemont Seneca Partners與中共國有銀行之間的合資企業，Rosemont Seneca Partners是亨特.拜登（Hunter Biden）於2009年創立的投資基金公司。創建基金公司的數十億美元在陪同父親對中共進行國事訪問後不到兩週的時間裡到了拜登之子的賬戶。
 
-[German\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025838/German_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025838/German_0702_CCP_Virus_Updates.pdf)
+2017年，中廣核聘請的一為名叫何思雄的顧問（Szuhsiung Ho台裔美國人），他被美國司法部指控“協助中廣核秘密獲得美國核工程師協助設計和製造核反應堆的某些部件”。何思雄最終認罪，並被判處兩年徒刑。
 
-[Japanese\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025842/Japanese_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025842/Japanese_0702_CCP_Virus_Updates.pdf)
+何思雄負責招募六名核工程師向中廣核提供信息。這些信息有時通過工程師傳遞，有時在旅行期間直接由何思雄傳遞給中廣核。另外何思雄還借在特拉華州所經營一家名為Energy Technology International的空殼公司， 僱傭向中共提供情報的工程師。至少有一名工程師是田納西州河谷管理局的僱員。六名工程師提供了關於核燃料的詳細資料， 這種情報被中共用來推進新型反應堆類型的工作。
 
-[Korean\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025845/Korean_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025845/Korean_0702_CCP_Virus_Updates.pdf)
+中共目前正在與西屋電氣(Westinghouse)等美國公司競爭，爭取在海外進行新的核反應堆交易。中共通過從美國竊取的信息獲得了多達30個新的核反應堆建設合同。有跡象表明，一些被盜的信息可能與美國核潛艇上使用的反應堆類型有關。
 
-[Russian\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025849/Russian_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025849/Russian_0702_CCP_Virus_Updates.pdf)
+更為不可思議的是，即便在美國司法部把何思雄定罪之後，拜登之子和渤海華美也沒有從中廣核撤出。
 
-[Spanish\_0702\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025853/Spanish_0702_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02025853/Spanish_0702_CCP_Virus_Updates.pdf)
+**“精誠合作“的行動**
+
+拜登之子和渤海華美還參與了與中共的其他合資企業，目標是幫中共竊取美國敏感技術和戰略材料。渤海華美和中共軍用航空承包商中國航空工業公司（AVIC），於2015年收購了美國“軍民兩用”零件製造商亨尼格斯（Henniges），其主要製造具有軍事用途的抗震技術。
+
+在渤海華美與中航工業聯手的前一年，該公司從美國竊取了與F-35戰鬥機計劃相關的技術。
+
+渤海華美在2016與一家中共國有公司中國鉬業公司進行了另一項投資。該公司收購了鉬和其他具有軍事和核應用的稀土礦物，該礦對運輸、通信、建築、計算機、醫學和新興技術至關重要。
+
+2016年，中國鉬業宣布以26億美元收購剛果民主共和國一半以上的銅鈷礦。幾個月後，渤海華美宣布將以15億美元收購該礦的另外24％股權。
+
+**拜登父子的** **真正面目**
+
+拜登之子的商業交易已經在新聞中出現了一段時間，他的道德觀眾人皆知是值得懷疑的， 例如，之前對他參與烏克蘭天然氣公司布瑞斯瑪（Burisma）的所有客觀評估顯示，可以肯定他用錢以及利用他的父親(副總統)和其他美國官員的影響力向烏克蘭政府施加壓力，目的是終止正在進行的對布瑞斯瑪公司及其領導層的腐敗調查。任何人凡是看過喬.拜登臭名昭著的吹噓在烏克蘭解雇了進行調查的檢察官的視頻，都可以得出結論，拜登之子在拿錢做掩護。
+
+該文章還認為，拜登之子在渤海華美和中共之間的苟合與烏克蘭事件的性質是完全不同的。這不僅僅是因為仗著父親的權勢吸食可卡因而被海軍開除的人品問題，這是一個作為美國政府的代言人不僅已經和中共爬上同一張床， 而且拋棄了所有美國公民的權益的問題。這絕不僅僅是腐敗， 而是赤裸裸的軍事間諜活動！
+
+評：拜登父子完全是走共產黨風格。老子做官， 兒子經商， 看似兩不相干， 其實借用潛規則和隱形力量來幹見不得人的勾當，靠賣國暗中撈取利益！這就是美國的叛國賊！
+
+[原文鏈接](http://andmagazine.com/talk/2020/07/31/was-joe-bidens-son-part-of-a-chinese-spy-operation-to-steal-u-s-nuclear-technology/)
+
+翻譯報導：喜相逢
+校對整理：人間四月
 
 0

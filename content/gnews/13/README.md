@@ -1,23 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/04 CCP病毒每日疫情直播簡報
-`2020-08-02 03:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282805/)
+## 學術自由的終結：戴耀廷被香港大學解僱
+`2020-08-02 09:30 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/283055/)
 
-戰友之家圖文摘要組及小語種組
+*新聞來源：《香港自由報》*
 
-[English\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)
+*作者：RACHEL WONG*
 
-[French\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)
+*發佈時間：2020年7月28日*
 
-[German\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)
+*翻譯/簡評：小小妹*
 
-[Korean\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)
+*校對：Julia Win*
 
-[Russian\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)
+*審核：海闊天空*
 
-[Spanish\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)
+*Page：拱卒*
 
-[Japanese\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)
+簡評：
+
+戴耀廷是2014年“雨傘運動”的核心人物，他呼籲舉行抗議，推動香港實現更直接的民主。去年，港大開始對戴耀廷進行調查，導致校務委員會做出了周二的決定，該委員會的成員主要來自校外，其主席李國章也是香港最高行政長官林鄭月娥的顧問。可見中共不允許任何一個有血性的民主人士帶領公眾追求法治、自由和民主，這也是它所懼怕的。中共流氓政府一步步涉足香港的各個領域和階層，從司法、教育、到言論自由，想要掌控一切，一旦你違背它的統治，它會徹底打壓你或讓你消失。以戴耀廷教授為例，中共開了扼殺香港教育機構的學術人員不再有言論自由的先河。
+
+
+
+##  **“學術自由的終結”：香港大學解僱民主派活動家、法學教授戴耀廷** 
+
+
+
+香港民主運動人士戴耀廷因不當行為而被香港大學（HKU）開除，他目前在香港大學（HKU）擔任法學副教授。
+
+香港大學校務委員會（HKU Council ）星期二以18票對2票的投票結果，贊成將這位“雨傘運動”領袖從法學院中解僱。
+[!\[\](https://spark.adobe.com/page/ZuqJrS76A49rx/images/38ef667e-1f85-4a56-8102-63e680b3c46c.jpg?asset_id=17bb661c-f223-4be5-8715-5650fce4511e&amp;img_etag=%227ab7a7b12484f0b8839b9cbce84d8ee9%22&amp;size=2560)](https://spark.adobe.com/page/ZuqJrS76A49rx/images/38ef667e-1f85-4a56-8102-63e680b3c46c.jpg?asset_id=17bb661c-f223-4be5-8715-5650fce4511e&amp;img_etag=%227ab7a7b12484f0b8839b9cbce84d8ee9%22&amp;size=1024)戴耀廷照片
+會議結束後，校務委員會本科生代表納撒尼爾·雷（Nathaniel Lei）對新聞界說，他對這一決定感到憤怒：“這是對學術自由和大學自主權的公然踐踏。”
+
+現年56歲的戴，自1991年以來一直在法律系任教。他與社會學教授陳健民（Chan Kin-man）、朱耀明（Chu Yiu-ming）牧師是“愛與和平佔領中環”運動的聯合創始人，該運動促成了2014年“ 雨傘運動”的抗議活動，示威者在政府總部附近的主要道路上佔領了79天。
+
+去年八月，他因“ 雨傘運動”涉嫌串謀和煽動滋擾公眾而被定罪。去年八月，他在等待上訴期間獲釋。
+
+**香港學術自由的終結**
+[!\[\](https://spark.adobe.com/page/ZuqJrS76A49rx/images/ff58194f-8853-4dad-9d5e-9ef3574ddaf9.jpg?asset_id=7274a43a-0312-4e3f-9077-9453f487bf47&amp;img_etag=%222a9254a87100bcbcfe91a302ea905322%22&amp;size=2560)](https://spark.adobe.com/page/ZuqJrS76A49rx/images/ff58194f-8853-4dad-9d5e-9ef3574ddaf9.jpg?asset_id=7274a43a-0312-4e3f-9077-9453f487bf47&amp;img_etag=%222a9254a87100bcbcfe91a302ea905322%22&amp;size=1024)香港大學。檔案照片。 Tom Grundy/HKFP. 
+針對這一決定，戴告訴記者，這不是由大學做出的，而是“由大學以外的權威機構通過其代理人做出的”。
+
+“這標誌著香港學術自由的終結。 香港教育機構的學術人員再也不能自由地就政治或社會有爭議的問題，向公眾發表有爭議的言論。 香港的學術機構無法保護其成員不受內部和外部的’干擾’。”
+
+他說，他對港大（HKU ）充滿感激，也為港大（HKU ）的隕落感到“心痛”：“我將以另一種身份繼續從事有關法治的研究和教學。 我為香港的法治而戰也不會停止。 我有信心看到一所自由的香港大學在未來重生。”
+
+納撒尼爾·雷（Nathaniel Lei）告訴媒體，如果戴在其刑事定罪的上訴中勝訴，校務委員會的決定可能會被複審。他補充說，香港大學（HKU ）副校長張翔在會議上沒有投票。
+[!\[\](https://spark.adobe.com/page/ZuqJrS76A49rx/images/27364d28-25fc-4278-bb4d-95d0c626c43c.jpg?asset_id=eb50a076-9916-405f-86bd-d8d1575836b3&amp;img_etag=%22d22580e4112b68b4627dafe865fde1a7%22&amp;size=2560)](https://spark.adobe.com/page/ZuqJrS76A49rx/images/27364d28-25fc-4278-bb4d-95d0c626c43c.jpg?asset_id=eb50a076-9916-405f-86bd-d8d1575836b3&amp;img_etag=%22d22580e4112b68b4627dafe865fde1a7%22&amp;size=1024)納撒尼爾·雷照片
+香港大學（HKU ）學生會主席葉芷琳（Edy Jeh）譴責校務委員會的決定。她說，將採取後續行動，包括呼籲改革校務委員會的請願書，因為她說，校務委員會的組成可能導致有利於成員自身利益的決定：“我相信，校務委員會是出於政治考慮而做出這一決定的。”
+
+在星期二晚些時候的新聞稿中，香港大學（ University of Hong Kong ）表示，“它已經解決了有關一名教職員工的人事問題。”
+
+聲明指出“經過嚴格和公正的正當程序，經過認真審議和考慮，校務委員會已經作出決定。 相應地將結果告知了有關工作人員。 我們希望公眾理解，這是大學的內部人事問題，院校的自主權應該得到尊重。”
+
+香港大學校務委員會（HKU Council ）是大學的管治和管理機構。其成員包括六名由校監（香港行政長官）委任的人士。它還包括由校務委員會任命的六名非香港大學（HKU） 僱員的公共信託人，數名教師，一名本科生和一名研究生。
+
+去年，香港大學校務委員會轄下的“可能有正當的理由調查委員會”在調查針對戴的投訴後，裁定沒有足夠的理由解僱他。
+
+這不是執行機構第一次成為人們關注的焦點。香港大學校務委員會（HKU Council）否決前法律學院院長陳文敏的任命，這在2015年引起軒然大波。校委會此前否認北京干預其事務。
+
+[原文鏈接](http://www.gtv.org/)
+
+編輯：【喜馬拉雅戰鷹團】
 
 0

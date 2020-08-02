@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柯達股票飛漲的背後
-`2020-08-01 23:18 WENZI` [轉載自GNews](https://gnews.org/zh-hant/282532/)
+## 【世界多語言圖文】2020/07/07 CCP病毒每日疫情直播簡報
+`2020-08-02 03:40 GM77` [轉載自GNews](https://gnews.org/zh-hant/282907/)
 
-By 真善忍
-2020-08-02
+戰友之家圖文摘要組及小語種組
 
-柯達公司曾是世界上最大的膠片供應商之一，照片攝影的代名詞。曾是家喻戶曉，走遍全世界的品牌。自2004年以來，年年虧損，2012年申請破產。最近在7月29日兩天的美股盤中，柯達股價暴漲1167%。
+[English\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033600/English_0707_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01230540/%E6%97%A0%E6%A0%87%E9%A2%98.png)
+[French\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033604/French_0707_CCP_Virus_Updates.pdf)
 
-自今年一月開始，武漢新冠病毒在全世界各個國家流傳後，全球今日確診病例達1773萬，死亡達68萬。在這樣疫情肆虐下，羥氯喹確一直被各種利益集團，世界衛生組織，美國衛生官員，醫藥寡頭，醫學權威雜誌等《柳葉刀》等等種種聲音掩蓋著。但在川普政府和一線的醫生護士親自幾個月的試用下來，證明了羥氯喹確實是目前為止最有效的對抗藥。美國人消耗著全球40%的製藥原料。但只有10%是在美國生產。這次的新冠病毒説明美國認識到醫藥製造業本土生產的重要性。於是川普政府決定大批量的投放生產。通過啟動國防生產法，柯達集團獲得了7.65億美元的政府貸款，目的是説明加快各種疾病的藥物生產，減少對其他國家藥物進口的依賴，特別是準備生產羥氯喹的原料藥。
+[German\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033607/German_0707_CCP_Virus_Updates.pdf)
 
-為什麼選擇柯達集團公司來生產呢？是因為它擁有龐大的工業設施，包括1600萬平方英尺的製造空間，實驗室，倉庫和辦公室，88個批量生產反應堆，現場發電場和蒸汽供應。所有這些現有的基礎設施加上一百多年累積下來超過10000項的在藥物和生產化工高級材料的專利。顯示了柯達集團化工上硬體和軟體上無敵的實力。阿司匹林就曾是柯達集團伊士曼製藥的主打產品。
+[Japanese\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033611/Japanese_0707_CCP_Virus_Updates.pdf)
 
-無疑，羥氯喹將會大量面世，它意味著川普政府對抗中共利益集團的小小勝利。而羥氯喹能否儘快地到達美國人民的手上，大量地使用，還要通過非處方藥的審批的努力，使人們不需看醫生，直接可以上藥店買到。羥氯喹可以防止感染上新冠病毒，但羥氯喹能終結中共嗎？不能，中共一定已經在馬不停蹄地製造著下一個生化病毒。那生產羥氯喹又有什麼意義呢？生產羥氯喹能救助那些已被感染和防止被感染的美國人，重建美國人民的信心，並贏得美國人民對川普政府的肯定。羥氯喹的生產也讓美國製造業的回歸，從醫藥行業開始，邁出了漂亮的一步。這些對幫助川普政府連任都是最好的民意和政績。
+[Korean\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033614/Korean_0707_CCP_Virus_Updates.pdf)
 
-中共在美國鋪天蓋地的大外宣可以每天都狂批川普，但錢是不會騙人的，柯達股價的飛漲就是美國投資界對川普行動最好地肯定。這是對美國製造業回歸的看好。這也是美國經濟體系恢復的實力。
+[Russian\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033618/Russian_0707_CCP_Virus_Updates.pdf)
 
-注：本文僅代表作者個人觀點
+[Spanish\_0707\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02033622/Spanish_0707_CCP_Virus_Updates.pdf)
 
 0

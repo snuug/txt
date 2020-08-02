@@ -1,152 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【我們不是你們”親愛的“，我們不會為中共去打仗】
-`2020-08-01 23:12 喜马拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/282528/)
+## 【世界多語言圖文】2020/07/06 CCP病毒每日疫情直播簡報
+`2020-08-02 03:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/282878/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01230606/%E6%88%91%E4%BB%AC%E4%B8%8D%E6%98%AF%E4%BD%A0%E4%BB%AC%E2%80%9D%E4%BA%B2%E7%88%B1%E7%9A%84%EF%BC%8C%E6%88%91%E4%BB%AC%E4%B8%8D%E4%BC%9A%E4%B8%BA%E4%B8%AD%E5%85%B1%E5%8E%BB%E6%89%93%E4%BB%973.jpg)
-前言：
+戰友之家圖文摘要組及小語種組
 
-今天，中共怎麼了？中共的領導人習近平怎麼了？中共的人民解放軍將軍們怎麼了？習近平喊出：是時刻“我們”的人民為中共賣命了！羅援將軍在其博客里居然喊出：“親愛的人民，我們應該去戰鬥？” 只要是正常人思考：14億人民真的是中共“親愛的”？ 14億人民真的是屬於中共習近平主席和羅援將軍的“我們的”？在過去中共統治中國人七十年裡，中共的利益集團家族們利用手中的權力，使用手中的武器，對待國民如同奴隸一樣！在中共的統治下國人受盡折磨，屈辱，凌辱，非自然死亡的人數遠遠超過由於戰爭和自然災害的死亡。
+[English\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032542/English_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032542/English_0706_CCP_Virus_Updates.pdf)
 
-今天，中國人突然成為中共領導人和將軍們口中的“我們的親愛的”？這實在讓所有中國人譏諷，憤怒和譴責。十四億中國人不會再被愚弄，因為老百姓已經清楚地知道：現在中共感覺到危機來了，中共開始瘋狂了！中共又想重新上演毛澤東的把戲，利用和犧牲他們口中“親愛的人民”來維持他們血腥的統治。
+[French\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032546/French_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032546/French_0706_CCP_Virus_Updates.pdf)
 
-####  **【我們不是你們”親愛的“，我們不會為中共去打仗】** 
+[German\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032550/German_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032550/German_0706_CCP_Virus_Updates.pdf)
 
-你們，以人民的名義奴役十四億中國人的幾個利益家族集團：
+[Japanese\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032555/Japanese_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032555/Japanese_0706_CCP_Virus_Updates.pdf)
 
-你們和你們的家人得到特別的照顧，
+[Russian\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032600/Russian_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032600/Russian_0706_CCP_Virus_Updates.pdf)
 
-與你們”親愛的人民“完全不一樣！
+[Spanish\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032605/Spanish_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032605/Spanish_0706_CCP_Virus_Updates.pdf)
 
-你們的生活得到全面保障,享受無上的特權
-
-享受著完全免費的醫療保險，
-
-不僅如此
-
-你們貪婪成性強取豪奪老百姓的可憐血汗錢，
-
-把上億萬的錢供你們自己和家人揮霍。
-
-你們買無數的房子送給自己的二奶三奶無數奶
-
-你們窮奢極侈荒淫無度
-
-玩弄女孩男孩活摘器官為自己和家人長生不老！
-
-我們，你們稱呼的“親愛的人民”，
-
-有多少家庭無能為力供養孩子上學！
-
-多少家庭因為無錢而得不到及時救治而死！
-
-又有多少家庭因為毒奶粉失去骨肉孩子
-
-不僅如此，
-
-楊改蘭就因為無法得到政府一年幾百美金的救助無法生存，
-
-親手殺死自己的四個孩子和自殺！
-
-所以，
-
-讓我們告訴你們，請記住：
-
-我們不是你們的”親愛的“！
-
-現在你們恐懼了
-
-現在你們知道自己的末日要來了
-
-現在你們要用戰爭來維繫你們血腥的統治！
-
-所以，現在,你他媽的想起我們，
-
-所以，現在你們喊出的”親愛的人民“！
-
-所以，
-
-讓我們告訴你們，請記住：
-
-我們不是你們的”親愛的“，我們不會為中共去打仗
-
-我們不是你們的，我們不再屬於你們了:
-
-你們是你們,你們只是你們,也只能是你們;
-
-而我們是我們自己，更不是你們親愛的人民！
-
-我們不去打仗, 因為我們身無分文，沒有真正屬於我們的土地和房子需要為之去保衛的。
-
-我們不去打仗, 因為我們不會去保衛以人民的名義奴役十四億中國人的幾個利益家族集團。
-
-中國人民解放軍的將軍們：
-
-召集你們自己的孩子們去戰鬥吧。
-
-對了，他們還醉生夢死在奢侈的世界裡，
-
-用可憐的老百姓的血汗錢揮霍，
-
-從紐約第五大道的奢侈品商店裡到馬爾代夫的海水里,
-
-從瑞士雪山的滑道裡到巴黎的巴黎香榭麗舍大街！
-
-對了，中共的領導人陳雲說, 還是我們自己的孩子可靠。
-
-那麼還是你們自己的孩子去為中共戰鬥吧!
-
-你們所喊的”親愛的人民“ 都不是你們自己的孩子,
-
-所以，我們， 你們口中的親愛的人民是不可靠。
-
-對了，難道你不害怕嗎？
-
-讓不可靠的人民替你們去打仗？
-
-你們自己的孩子們拿著槍,你們會放心:
-
-因為他們應該不會害你們。
-
-你們自己的孩子們拿著槍,
-
-至少不會背叛你們。
-
-所以去召集你們自己可靠的孩子們吧！
-
-從前，
-
-我們看見過越戰退役老兵為生活艱難奔走的身影;
-
-我們聽見過老志願軍手捧幾百元顫抖地感謝國家的聲音.
-
-現在，
-
-我們歡呼並迎接美軍的到來,我們更願意為美軍帶路！
-
-消滅你們這些騎著人民頭上作威作福的中共黑幫犯罪團伙!
-
-我們， —你們稱呼的”親愛的人民“，
-
-會靜靜地看著你們的報應，看著你們末日的到來。
-
-靜靜地看著-你們走向死亡！
-
-我們，—你們稱呼的”親愛的人民“，
-
-將努力推進你們的徹底崩潰和死亡
-
-當那一天的到來，
-
-我們，—你們稱呼的”親愛的人民“，
-
-燃放慶祝的鞭炮,
-
-歡呼雀躍著新中國的誕生！
-
-改編自上海王亞軍《“我們”不是“你們”！ 》
-
-**作者：瑞安平20200801**
+[Korean\_0706\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032610/Korean_0706_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02032610/Korean_0706_CCP_Virus_Updates.pdf)
 
 0

@@ -1,23 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/04 CCP病毒每日疫情直播簡報
-`2020-08-02 03:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282805/)
+## 美國成立工作組應對中共國威脅
+`2020-08-02 09:50 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/283077/)
 
-戰友之家圖文摘要組及小語種組
+*新聞來源：美國國土安全部*
 
-[English\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)
+*發佈時間：2020年7月24日*
 
-[French\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)
+*翻譯：BZ*
 
-[German\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)
+*簡評：BZ，Julia Win*
 
-[Korean\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)
+*校對：Julia Win*
 
-[Russian\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)
+*審核：InAHurry*
 
-[Spanish\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)
+*Page：拱卒*
 
-[Japanese\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)
+簡評：
+
+在過去幾十年裡，西方國家張開雙臂歡迎中共國走向世界舞台，扶助其全方位發展，本想以此感化中共，使其給中共國人民帶來自由、民主、法治，與世界共同進步。卻萬萬沒想到，中共“韜光養晦”，坑蒙拐騙，以藍金黃（BGY)等手段，滲透、並嚴重侵蝕了整個西方政治、經濟、文化、科技等各個領域。又喪心病狂的向全世界發動生化襲擊，造成世紀大瘟疫，導致幾百萬人失業，數十萬人喪失了寶貴的生命，威脅著整個人類社會。好在，郭文貴先生以及引領的爆料革命，讓西方政要、精英們逐步認清了中共的邪惡本質。中共發動的生化戰，更驚醒了美國以及西方盟友！剷除中共匪幫，已成西方世界的共識，成為正義的需要！接下來，砸向中共的重錘會一一落下！
+
+
+
+##  **代理部長沃爾夫成立工作組以應對來自中共國日益加劇的威脅** 
+
+
+
+發表於2020年7月24日
+[!\[\](https://spark.adobe.com/page/U5dQv5CpkgKDs/images/269120be-024f-4e70-8743-e330a5f7181e.jpg?asset_id=99b43876-4f6a-434a-9489-3bd6e91a77d5&amp;img_etag=%2275ed280da6c71aef801ddac64e636f25%22&amp;size=1024)](https://spark.adobe.com/page/U5dQv5CpkgKDs/images/269120be-024f-4e70-8743-e330a5f7181e.jpg?asset_id=99b43876-4f6a-434a-9489-3bd6e91a77d5&amp;img_etag=%2275ed280da6c71aef801ddac64e636f25%22&amp;size=1024)國土安全部部長Chad F. Wolf 
+華盛頓—美國國土安全部（Homeland Security ）代理部長查德·沃爾夫（Chad F. Wolf）最近主持了國土安全部（Homeland Security ）“中共國工作組”的首次會議。該小組的目的是全面闡明、優先考慮和協調該部對中國共產黨(CCP)對國土構成的不斷演變的威脅的反應。
+
+代理部長沃爾夫（Wolf）表示：“由於中共在貿易、網絡安全、移民和知識產權領域的惡意活動，中共國的威脅正在以驚人的速度加劇。與川普總統的領導和方向一致，國土安全部（Homeland Security ）會站在打擊這些對國土和我們生活方式的威脅的最前沿。國土安全部（Homeland Security ）在遏制中共國惡性活動方面的作用從未如此重要和及時。國土安全部（ Homeland Security ）新成立的“中共國工作組”將優先考慮，協調和闡明與我們所面臨的威脅相稱的近期和長期的決定性行動。”
+
+這個工作組將鞏固該部在前線工作中已經發揮的至關重要的作用，以保護國土免受中共有組織的，企圖破壞我們的經濟繁榮、國家安全和基本自由的活動的影響。該部最近採取的行動包括：
+[!\[\](https://spark.adobe.com/page/U5dQv5CpkgKDs/images/e1dff4c0-47db-4884-937a-3af88a298965.jpg?asset_id=98a42948-5c96-475a-8b58-21ecbab78bb4&amp;img_etag=%222339e48a66e5d826984a6e17422edfe5%22&amp;size=1024)](https://spark.adobe.com/page/U5dQv5CpkgKDs/images/e1dff4c0-47db-4884-937a-3af88a298965.jpg?asset_id=98a42948-5c96-475a-8b58-21ecbab78bb4&amp;img_etag=%222339e48a66e5d826984a6e17422edfe5%22&amp;size=1024)
+● 與工業界和州、地方、部落和地區政府合作，打擊中共的虛假宣傳活動或更廣泛的扭曲我國的公共言論並破壞對我們民主進程的信心。
+
+● 針對中共非法製造商利用大瘟疫（起源於中共國並通過中共瀆職行為傳播）生產和販賣假冒或違禁的新型冠狀病毒（COVID-19）個人防護設備和醫療用品到美國的行為。其結果是，已有超過一百萬多個“美國食品和藥品監督管理局”（FDA）禁止使用的新型冠狀病毒測試包和七十五萬個假冒口罩被查獲。
+
+● 借總統5月29日的公告，拒絕讓高風險的▲“研究生”入境（F和J簽證）▲，這些學生的目的是竊取我們的知識產權，以促進北京的經濟和國家安全利益。
+
+● 扣繳中共利用被關押在集中營100萬以上的維吾爾族人（以及新疆其他穆斯林少數民族）被強迫生產的商品，以加強全球規範（人權、自由和公平貿易）。
+
+● 在非法芬太尼（和其它源自中共國的合成藥物）進入我們的社區並奪走更多美國人生命之前，利用技術和創新對其鎖定和禁止。
+
+● 與美國政府和行業內的其他人合作，保護我們的信息和通信技術基礎設施免受中共（CCP）惡意活動（知識產權盜竊、數據收集等）的侵害。
+
+● 利用外國投資監督機構，包括美國外國投資委員會和以前稱為電信團隊（Team Telecom）的部門間機構，遏制中共通過企業渠道施加影響，利用我們的自由市場，削弱我們經濟競爭力的企圖。
+
+[原文鏈接](https://www.dhs.gov/news/2020/07/24/acting-secretary-wolf-establishes-china-working-group-address-intensifying-threat)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/U5dQv5CpkgKDs/)
 
 0
