@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】7月28日CNBC重磅採訪: 班農談中美關係, 制裁中共, 以及與郭文貴先生的關係
-`2020-08-01 09:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/282032/)
+## 尼克松和基辛格中國綏靖政策的徹底終結
+`2020-08-01 18:12 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/282354/)
 
-**[7月28日CNBC重磅採訪](https://youtu.be/h8gEugx1Mv4)班農談中美關係，制裁中共，以及與郭文貴先生的關係**
+郭文貴先生在[7月25日的G-TV直播](https://gtv.org//?videoid=5f1c27922f677e46c0fbc325)中說到：我們看到了美國政府官方滅共，這是歷史性的時刻，美國國務卿彭佩奧說了和中國人站在一起，正式官方分開中國人和中國共產黨，就像對付前蘇聯一樣對付中共，脫鈎、經濟孤立、世界孤立，對所有的黨員不惜一切代價的打擊，包括無人機定點清除。技術、文化各種交流全面脫鈎。美國人沒有忘記天安門事件，這很關鍵，我們要為天安門事件平反，必須說出真相，就像我們要病毒真相，必須對六四死亡的人和所有發生的事情找出真相。
 
-[【中文版】班農談中美關係,制裁中共,以及與郭文貴先生的關係](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091102/7%E6%9C%8828%E6%97%A5CNBC%E9%87%8D%E7%A3%85%E9%87%87%E8%AE%BF%EF%BC%9A%E7%8F%AD%E5%86%9C%E8%B0%88%E4%B8%AD%E7%BE%8E%E5%85%B3%E7%B3%BB%EF%BC%8C%E5%88%B6%E8%A3%81%E4%B8%AD%E5%85%B1%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%B8%8E%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E7%9A%84%E5%85%B3%E7%B3%BB-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091102/7%E6%9C%8828%E6%97%A5CNBC%E9%87%8D%E7%A3%85%E9%87%87%E8%AE%BF%EF%BC%9A%E7%8F%AD%E5%86%9C%E8%B0%88%E4%B8%AD%E7%BE%8E%E5%85%B3%E7%B3%BB%EF%BC%8C%E5%88%B6%E8%A3%81%E4%B8%AD%E5%85%B1%EF%BC%8C%E4%BB%A5%E5%8F%8A%E4%B8%8E%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E7%9A%84%E5%85%B3%E7%B3%BB-1.pdf)
+*翻譯：【noraTina】校對：【Winston Jackson】字幕：【相機過熱啊】編輯：【Michelle】*
 
-[【英文版】CNBC’s important interviews with Bannon on Sino-US relations, sanctions on CCP, and relationship with Mr. Miles Guo](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091108/7.28-CNBCs-important-interviews-with-Bannon-on-Sino-US-relations-sanctions-on-CCP-and-relationship-with-Mr.-Miles-Guo.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01091108/7.28-CNBCs-important-interviews-with-Bannon-on-Sino-US-relations-sanctions-on-CCP-and-relationship-with-Mr.-Miles-Guo.pdf)
-
-陸續更新中……
-
-製作：【秘密翻譯組G-Translators】
+*戰友之家玫瑰園小隊出品*
 
 0

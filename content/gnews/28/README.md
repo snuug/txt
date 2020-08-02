@@ -1,15 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國NBA訓練營侵犯人權
-`2020-08-01 02:57 GM31` [轉載自GNews](https://gnews.org/zh-hant/281837/)
+## 【世界多語言文字版】7月23日美國務卿蓬佩奧歷史性重磅演講: 疾呼全世界對抗中共極權
+`2020-08-01 08:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281993/)
 
-在7月30日的[Fox News報導](https://youtu.be/s1Xn2gEO2tw)中，主持人Martha採訪了議員Tom Cotton，並就有人在NBA的中國訓練場地見證到他們的教練有虐待中國球員現象對他進行了採訪。Tom Cotton議員對這種惡劣行徑做了痛斥，並要求停止這種行為，他表示：“這簡直就是用年幼中國孩子充斥的血汗工廠，並且這位NBA員工看到了各種您所提到的最不堪的虐待孩子的事。他們甚至在中 (共) 國的西北地方還建有針對少數民族的，宗教群體的所謂的”再教育” (勞改)營地，這就好比是二戰中納粹德國”。
+**[7月23日美國務卿蓬佩奧歷史性演講](https://www.youtube.com/watch?v=7azj-t0gtPM&amp;feature=youtu.be)** 
+ **疾呼全世界對抗中共極權**
 
-他強調NBA現在所表露的立場實在是非常令人失望，“然而不幸的是，太多的球星和高管們似乎更關心的是，是否能在中 (共) 國多賺幾塊錢，而對最基本的人類自由和尊嚴的底線無所顧及。”
+[【中文版】美國務卿蓬佩奧歷史性演講，疾呼全世界對抗中共極權](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)
 
-*翻譯**:**【**Guanghan**寶寶】*  *校對**:**【清晨風景】* *字幕：【**Rock**小哥】* *編輯**:**【**GM31**】*
+[【英文版】Secretary Pompeo Delivers a Speech at the Richard Nixon Presidential Library](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)
 
-*戰友之家玫瑰園小隊出品*
+
+
+陸續更新中……
+
+製作：【秘密翻譯組G-Translators】
 
 0

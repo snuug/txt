@@ -1,20 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】7月23日美國務卿蓬佩奧歷史性重磅演講: 疾呼全世界對抗中共極權
-`2020-08-01 08:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/281993/)
+## 意大利最新研究表明羥氯喹加阿奇霉素降低60%以上死亡率
+`2020-08-01 12:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/282190/)
 
-**[7月23日美國務卿蓬佩奧歷史性演講](https://www.youtube.com/watch?v=7azj-t0gtPM&amp;feature=youtu.be)** 
- **疾呼全世界對抗中共極權**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01101159/200801_IJID_Italy_study_photo169.png)
+意大利米蘭大學聖保羅和聖卡洛醫院衛生科學系傳染病診所7月29日發表於《國際傳染病雜誌》（[International Journal of Infectious Diseases](https://doi.org/10.1016/j.ijid.2020.07.056)）的一項研究表明，聯合使用羥氯喹和阿奇霉素，與對照組相比，死亡風險降低66%。這項研究包括了從2020年2月24日到5月17日在意大利米蘭住院的539名CCP病毒患者。
 
-[【中文版】美國務卿蓬佩奧歷史性演講，疾呼全世界對抗中共極權](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084350/7.23-CHN-%E7%BE%8E%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E5%9F%B9%E5%A5%A5%E6%BC%94%E8%AE%B2.pdf)
+編者注：羥氯喹、阿奇霉素和鋅劑早在[4月8日的白宮每日疫情通報會](https://gnews.org/zh-hant/166994/)上，川普總統就已經宣佈這組安全藥物組合在治療CCP病毒感染病人的潛力，並[多次披露他正在親身服用](https://gnews.org/zh-hant/216721/)，可是他卻因此被幾乎所有媒體、政敵、和科學界的建制派瘋狂詆毀，直至最近越來越多救治病人的[前線醫生](https://gnews.org/zh-hant/278643/)站出來發聲，才又重新回到人們的視線。正義可能會遲到，但永遠不會缺席，真相終將有一天會隨著越來越多的世界各地醫學證據出現而曝光於天下。
 
-[【英文版】Secretary Pompeo Delivers a Speech at the Richard Nixon Presidential Library](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01084401/7.23-EN-Secretary-Pompeo-Delivers-a-Speech.pdf)
+論文中文翻譯全文如下（[下載中文PDF文件](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01123258/200801_IJID_Italy_study_traditional.pdf)）
+
+《國際傳染病雜誌》
+
+[2020年7月29日起可在線查閱](https://doi.org/10.1016/j.ijid.2020.07.056)
+
+已錄用待發表，期刊預校樣
+
+給編輯的信
+
+**羥氯喹對****2019****冠狀病毒病的有效性****:****形勢已經塵埃落定？**
+
+安東內拉·德·阿米尼奧·蒙福特，亞歷山德羅·塔維爾，弗朗西斯·白，朱利亞·馬爾凱蒂
+
+意大利米蘭大學聖保羅和聖卡洛醫院衛生科學系傳染病診所
+
+親愛的先生,
+
+阿爾沙德（Arshad）等人在美國進行的一項觀察性研究證據表明，2019冠狀病毒病患者單獨服用羥氯喹、或與阿奇霉素一起服用羥氯喹，死亡率有所降低(Arshad et al., 2020)。有關羥氯喹的有效性和毒性的數據尚存爭議（[Liu et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via=ihub#bib0010), [Devaux et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via=ihub#bib0015), [Gautret et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via=ihub#bib0020), [Tang et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via%253Dihub#bib0025), [Geleris et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via%253Dihub#bib0030)）。
+
+阿爾沙德的研究的一些主要弱點已經被指出了（[Lee et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via%253Dihub#bib0035)），但這些並不全部適用於我們的研究。我們的傾向評分包括了阿爾沙德研究中遺漏的一些潛在的混雜因素（例如入院日期、疾病嚴重程度、心血管疾病、血漿C反應蛋白基線水平）。其次，我們排除了使用其他藥物的人群，同時採用其它藥物可能會使羥氯喹的效果產生偏差。第三，雖然剩餘混雜因素還是可能存在的（例如，心血管疾病患者在對照組中更常見），但對照組的人更有可能接受機械通氣，這是一種保守的偏差。這些結果來自兩個不同的現實環境（意大利和美國），與兩個大型隨機試驗（[Horby et al., 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via%253Dihub#bib0040), [World Health Organization, 2020](https://www.sciencedirect.com/science/article/pii/S1201971220306007?via%253Dihub#bib0045)）的結果相衝突。雖然不可測的混雜因素仍然是這些差異最可能的解釋，但我們仍然缺乏一個強有力的統合研究，我們試問是否需要進一步對羥氯喹進行測試。另外，開始治療的最佳時點也是一個有待在臨床隨機研究中解決的問題。
+
+表1. 未調整和調整後的院內死亡的邊際相對危險性
 
 
+| <br> | **未調整 風險比（95%置信區間）** | **P****值** | **調整後 \*￡ 風險比（95%置信區間）** | **P****值** |
+| --- | --- | --- | --- | --- |
+| <br> | **所有病人** |
+| 控制组# （92人） | 1.00 | <br> | 1.00 | <br> |
+| 羥氯喹組（197人） | 0.43 (0.28,0.64) | &lt;.001 | 0.66 (0.39,1.11) | 0.118 |
+| 羥氯喹+阿奇霉素組（94人） | 0.36 (0.21,0.60) | &lt;.001 | 0.44 (0.24,0.82) | 0.009 |
+| <br> | **&****基線氧合指數**PO2/FiO2**0-300** |
+| 控制組# （41人） | 1.00 | <br> | 1.00 | <br> |
+| 羥氯喹組（83人） | 0.52 (0.31,0.87) | <br> | 0.71 (0.37,1.35) | <br> |
+| 羥氯喹+阿奇霉素組（28人） | 0.46 (0.23,0.93) | <br> | 0.59 (0.26,1.35) | <br> |
+| <br> | <br> | <br> | <br> | 交互項P值 |
+| <br> | <br> | <br> | <br> | &lt;.001 |
+| <br> | **&****基線氧合指數**PO2/FiO2**300+** |
+| 控制組# （33人） | 1.00 | <br> | 1.00 | <br> |
+| 羥氯喹組（100人） | 0.39 (0.15,0.97) | <br> | 0.49 (0.15,1.63) | <br> |
+| 羥氯喹+阿奇霉素組（60人） | 0.56 (0.21,1.52) | <br> | 0.62 (0.19,1.97) | <br> |
 
-陸續更新中……
 
-製作：【秘密翻譯組G-Translators】
+\* 根據年齡、性別、合併症數量、心血管疾病（有/無）、症狀持續時間、入院日期、 C反應蛋白和逆概率加權審查進行了調整。
 
-0
+£ 總體估計數也根據2019冠狀病毒病基線水平的嚴重程度進行了調整。
+
+# 肝素、免疫調節劑、抗艾滋病毒藥的組合，或者完全不用藥。
+
+&  45例缺失氧合指數PO2/FiO2基線資料的患者未被包括在分類分析中。
+
+阿爾沙德的研究的一些主要弱點已經被指出了（Lee et al., 2020），但這些並不全部適用於我們的研究。我們的傾向評分包括了阿爾沙德研究中遺漏的一些潛在的混雜因素（例如入院日期、疾病嚴重程度、心血管疾病、血漿C反應蛋白基線水平）。其次，我們排除了使用其他藥物的人群，同時採用其它藥物可能會使羥氯喹的效果產生偏差。第三，雖然剩餘混雜因素還是可能存在的（例如，心血管疾病患者在對照組中更常見），但對照組的人更有可能接受機械通氣，這是一種保守的偏差。這些結果來自兩個不同的現實環境（意大利和美國），與兩個大型隨機試驗（Horby et al., 2020, World Health Organization, 2020）的結果相衝突。雖然不可測的混雜因素仍然是這些差異最可能的解釋，但我們仍然缺乏一個強有力的統合研究，我們試問是否需要進一步對羥氯喹進行測試。另外，開始治療的最佳時點也是一個有待在臨床隨機研究中解決的問題。
+
+*翻譯：【Naomi (文花開)】校對：【致敬香港！】編輯報道：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
+
+相關新聞：
+
+硫酸羥氯喹、阿奇霉素和鋅 [https://gnews.org/zh-hant/166994/](https://gnews.org/zh-hant/166994/)
+
+川普稱如果他認為可能接觸了病毒會再次服硫酸羥氯喹 [https://gnews.org/zh-hant/216721/](https://gnews.org/zh-hant/216721/)
+
+俄亥俄州藥物委員會羥氯喹禁令激民憤  昨日宣佈放棄執行 [https://gnews.org/zh-hant/281616/](https://gnews.org/zh-hant/281616/)
+
+羥氯喹療效醫生系列證詞之二：布萊恩·普羅克特醫生使用羥氯喹治癒率高達100% [https://gnews.org/zh-hant/280994/](https://gnews.org/zh-hant/280994/)
+
+前線醫生關於羥氯喹療效的系列證詞之一：史黛菈·伊曼紐爾醫師 [https://gnews.org/zh-hant/278643/](https://gnews.org/zh-hant/278643/)
+
+耶魯大學哈維·里施教授：開放羥氯喹將輓救近10萬美國人的生命 [https://gnews.org/zh-hant/275047/](https://gnews.org/zh-hant/275047/)
+
+把羥氯喹變為非處方藥的重要性 [https://gnews.org/zh-hant/263282/](https://gnews.org/zh-hant/263282/)
+
+國際傳染病學雜誌發表《羥氯喹、阿奇霉素和聯合用藥治療新型冠狀病毒肺炎住院患者》 [https://gnews.org/zh-hant/259104/](https://gnews.org/zh-hant/259104/)
+
+亨利·福特首席學術官卡爾卡尼斯醫生：讓科學而不是政治指導治療研究 [https://gnews.org/zh-hant/258830/](https://gnews.org/zh-hant/258830/)
+
+1

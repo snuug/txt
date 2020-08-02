@@ -1,60 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 聲稱因疫情起訴中國是巨大錯誤的參議員Dianne是不是被藍金黃了
-`2020-08-01 02:33 Diago` [轉載自GNews](https://gnews.org/zh-hant/281818/)
+## 中共樓市不控 消費不起 內循環經濟無望！
+`2020-08-01 08:21 GM30` [轉載自GNews](https://gnews.org/zh-hant/281987/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022732/%E5%B0%81%E9%9D%A2-1.jpg)
-作者：Diago
+**作者：小妍說**
 
-[Feinstein had a Chinese spy connection she didn’t know about — her driver](https://www.sfchronicle.com/bayarea/matier-ross/article/Sen-Feinstein-had-a-Chinese-connection-she-13121441.php)（費恩斯坦不知道她有一個中國間諜司機）（[Matier & Ross](https://www.sfchronicle.com/author/matier-ross/)Aug. 1, 2018 Updated: Aug. 1, 2018 9:07 a.m. ）
+昨天我寫了一篇關于爛尾樓的文章，今天我還想繼續和大家聊聊中共國樓市的未來的一些發展方向及走勢。關注樓市的老百姓應該都發現了進入7月以來中共國對于房價的嚴打可以說是不留余地，7月15日，號稱房價神話的深圳就迎來了“新深八條”的調控政策，首要一條即是：深戶居民家庭、成年單身人士（含離異）須在本市落戶滿3年，且能提供購房之日前在本市連續繳納36個月及以上個人所得稅或社會保險證明，方可購買商品住房。而這樣的政策對新入深戶的年輕人，隨子女將戶籍遷入深圳的老人，滿18歲的深二代，以及假離婚買房的夫妻，都被新政限制住了，這部分人可能占了潛在購房者的40%左右。這也就瞬間導致很多人將喪失在深圳購房的資格。對于政策出台之前購買到房子的購房者來說雖然買到了房子，但是很有可能買在了最高價格，因爲這一政策很多購房者失去資格，進而導致的結果就是手裏有房可能賣不出去，只能降價賣出。
 
-【A local source who knew about the incident confirmed to us that the FBI showed up at Feinstein’s office in Washington, D.C., about five years ago to alert the then-chairwoman of the Senate Intelligence Committee that her driver was being investigated for possible Chinese spying.】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01081402/%E5%9B%BE%E7%89%871-1.jpg)
 
-中文大意：一位元瞭解此事的當地消息人士向我們證實，聯邦調查局大約在五年前出現在費恩斯坦華盛頓特區的辦公室，以提醒時任參議院情報委員會主席的費恩斯坦的駕駛員正在接受可能的中國間諜活動的調查。
+不僅僅是深圳，其後沒幾天，隔壁的東莞出台限購加碼政策，購房通道同樣被封鎖。在此期間，浙江的杭州、甯波，江蘇的南京，均出台了樓市新政，加碼限購，提高購房門檻。尤其南京出台的“甯九條”，從九個方面圍追堵截房價，對市場造成巨大影響。2020年中共出台的政策遠比2018和2019年嚴苛得多。隨後7月24日副總理韓正就召開房地産工作座談會，韓正強調，要堅持問題導向，高度重視當前房地産市場出現的新情況新問題，時刻繃緊房地産調控這根弦，堅定不移推進落實好長效機制。10座城市被點名參加這次的座談會，分別是北京、上海、廣州、深圳、南京、杭州、沈陽、成都、甯波、長沙等10個城市。中央喊10城開會，事無巨細安排了下半年房地産市場工作部署。懂行的人都知道，之前是住建部主持會議，這次直接上升至正國級規格，背後意味著什麽？多城出台調控新政，外加會議以及輿論導向，這一連串的操作，的確把人看懵了。要知道這在平時，一條大新聞就會對市場輿論造成巨大影響，何況接二連三的信息轟炸。換句話說，政策爲什麽不在5-6月份樓市最火爆的時候出台，偏偏要選在7月份，不是有些亡羊補牢嗎？
 
-【Besides driving her around when she was in California, the staffer also served as gofer in her San Francisco office and as a liaison to the Asian American community, even attending Chinese Consulate functions for the senator.】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01081420/%E5%9B%BE%E7%89%872-1.jpg)
 
-中文大意：除了在加利福尼亞州開車帶她到處走走之外，該職員還曾在她的三藩市辦公室擔任辦事員，並作為亞裔美國人社區的聯絡人，甚至參加了參議員在中國領事館的活動。
+而這一切都源于6月18日，第十二屆陸家嘴論壇會議召開，劉副總理在分析完國內外局勢後，說了一句意味深長的話：“一個以國內循環爲主、國際國內互促的雙循環發展的新格局正在形成。”那麽經濟內循環和中共國的房價到底有什麽關系呢？經濟內循環，按照官方解釋，就是一個生産、交易、消耗都在一個經濟體內的模式。雖說中共國有強大的消費者市場，但是購買力被長期透支。主要原因正是一輪接一輪的房地産消耗。這就是症結所在。數據顯示，從2008年開始到2018年，中共國居民杠杆率從17.9%上漲到了53.2%，2019年一季度，居民杠杆率繼續提升，達到了54.3%，其中個人住房貸款占住戶部門貸款總額的50%以上。10年前我們可能用每月收入的30%去做月供，而現在大多數家庭則用50%以上的收入去還房貸，再減去一定的儲蓄，能拿出來消費的資金屈指可數。
 
-【“They interviewed him, and Dianne forced him to retire, and that was the end of it,” says our source.】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01081437/%E5%9B%BE%E7%89%873-2.jpg)
 
-中文大意：他們（聯邦調查局）訊問了這名黛恩.費恩斯坦的中國司機，黛恩迫使這名中國司機離職，這件事就這樣結束了——消息來源人士透露
+所以說，當下中共國居民明面上房子挺多，但實際上能拿來消費的流動資金，大家心知肚明。以此來看，房價高壓的消費者市場，根本無法支撐起經濟內循環。看到這裏，你應該明白了，爲什麽6月18日之後，市場上會爆發出這麽多打壓房地産的調控政策。總結一句話就是，“樓市不壓，消費不起，內循環經濟無望”。這樣的情況下，您還覺得你的房子不會降價嗎？
 
-[Sen. Dianne Feinstein’s Ties To China Go Way Deeper Than An Alleged Office Spy](https://thefederalist.com/2018/08/08/sen-dianne-feinsteins-ties-china-go-way-deeper-alleged-office-spy/)（By [Ben Weingarten](https://thefederalist.com/author/ben-weingarten/) 參議員戴安娜·費恩斯坦（Dianne Feinstein）與中國的關係比所謂的官員間諜要深得多（本·溫格丹（Ben Weingarten））August 8, 2018）
+GNEWS之前文章：
+難道只有一死才能引起社會關注嗎？[https://gnews.org/zh-hans/281907/](https://gnews.org/zh-hans/281907/)
+卻沒見過業主住在爛尾樓！[https://gnews.org/zh-hans/281166/](https://gnews.org/zh-hans/281166/)
+走向思想禁锢的深淵【女德班】！[https://gnews.org/zh-hans/281112/](https://gnews.org/zh-hans/281112/)
 
-【According to four former intelligence officials, in the 2000s, a staffer in Senator Dianne Feinstein’s San Francisco field office was reporting back to the MSS [[China’s Ministry of State Security](https://www.washingtontimes.com/news/2009/mar/19/exclusive-chinese-spy-who-defected-tells-all/), its intelligence and security apparatus]. While this person, who was a liaison to the local Chinese community, was fired, charges were never filed against him. (One former official reasoned this was because the staffer was providing political intelligence and not classified information—making prosecution far more difficult.) The suspected informant was ‘run’ by officials based at China’s San Francisco Consulate, said another former intelligence official. The spy’s handler ‘probably got an award back in China’ for his work, noted this former official, dryly.】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/01022859/%E6%8D%95%E8%8E%B72.jpg)
-中文大意：據四名前情報官員稱，在2000年代，參議員戴安娜·費恩斯坦（Dianne Feinstein）三藩市現場辦公室的一名工作人員正在向中國國家安全部報告。這名當時作為與當地華人社區聯繫的聯絡人被解雇了，（美國相關部門）從未對他提起訴訟。 （一名前官員認為這是因為該工作人員提供政治情報而不是機密資訊，使起訴更加困難。）另一名前情報官員說，可疑的線人是由駐中國三藩市領事館的官員“管理”的。這位前官員乾脆地指出，間諜的處理人員“可能在中國獲得了獎勵”。
-
-另據[醜聞升級！美多名政要涉嫌暴跌前狂拋股票，司法部開始調查](http://gold.cnfol.com/huanqiugushi/20200330/28049620.shtml)（2020-03-30 14:09:33 來源：金十數據）：
-
-【根據參議院的記錄，費恩斯坦本人並未出售任何股票。但她的丈夫在一月份和二月份出售了150萬至600萬美元的生物技術公司Allogene Therapeutics的股票。費恩斯坦本月初在推特上說，她沒有參與丈夫的財務決定。】
-
-就在這幾天美國民主黨參議員黛恩.費恩斯坦又成了中國媒體的誇讚對象——
-
-據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [07月31日 10:34](https://weibo.com/1887344341/JdICrFP0f?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) 【美參議員：中國是受人尊敬的國家 因疫情起訴中國是巨大錯誤】
-
-29日，美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上表示，中國是一個受其他國家尊重的國家。美國如果破例因疫情取消中國的國家主權豁免權、起訴中國政府的話，那將會是一個巨大錯誤。因為這樣做會殃及自身，使自己成為其他國家起訴的對象。
-而就美國目前在全球範圍內的行動之廣，“破例”後受害最深的反而是美國。美國疫情暴發以後，包括密蘇里州州政府在內多個政府機構或組織向中國政府發起訴訟，聲稱中國防疫不力，導致新冠疫情蔓延。[#美參議員稱中國是受人尊敬的國家#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%8F%82%E8%AE%AE%E5%91%98%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%98%AF%E5%8F%97%E4%BA%BA%E5%B0%8A%E6%95%AC%E7%9A%84%E5%9B%BD%E5%AE%B6%23)
-[L微丟的微博視頻](http://t.cn/A6UyvomT)[收起全文d](void%280%29;)
-
-中共國對於黛安.範士丹（注：與黛恩.費恩斯坦為同一人，中文叫法不同而已）大贊的部分文章——
-
-[美議員:中國受人尊敬,因疫情起訴中國是巨大錯誤\_手機網易網](https://www.baidu.com/link?url=vm2B-qN4WTCSFBT5p4D1tbAFWVSLs2c4h-_2hUIfSpgPwB99rz8Zr6GXs7ubX3vVkw6yAM1uYS-KrG4-bu2Wwa)
-
-1天前 – 摘要:“中國是受人尊敬的國家,因疫情起訴中國是巨大的錯誤。”美國參議員黛安·範士丹(路透社資料圖)海外網7月31日電當地時間30日,美國參議員黛安·範…
-
-[美參議員:因疫情起訴中國是壞主意 美國責任將被追究 – AcFun彈幕…](https://www.baidu.com/link?url=ok6d3lRITfyap6CtoLEbQdRXkkpHu2D5l3jEvLZsFVbbRHZ7piUDPhj4EMbE8_uh)
-
-1天前 – 當地時間7月29日,美國民主黨籍參議員黛安·範士丹在參議院司法委員會的聽證會上引用談話和證詞表示,“我們(美國)把中國看作是一個潛在的交易夥伴,那是…
-
-[美議員:中國值得尊敬 借疫情“起訴中國”大錯特錯](https://www.baidu.com/link?url=YDKcUr9Dl_LRmd47bvYoJbevwAExcZIIrUGRUDamqIif6BE6eL4-c9F64np2Q0KN98_0tTgxWkm1njBnvhPLKgoKiXeYzKTEXCLpV_Vb9D7)
-
-20小時前 – 央視網消息:7月30日,美國民主黨聯邦參議員黛安·範士丹出席參議院司法委員會的聽證會時表示,中國值得尊敬,借疫情“起訴中國”是大錯特錯。 編輯:張哲…
-
-中共駐三藩市領事館、中國國家安全部、中國司機、在新冠疫情前家人莫名其妙出手套現股票的參議員Dianne Feinstein是不是被中共深度藍金黃了？那些把她的正在接受調查的中國司機放走的人到底有沒有從中共拿錢？不管怎樣，在此時此刻還敢為中共月臺的Dianne Feinstein，其勇氣可嘉，只是這是不是下一步要被抽幹的沼澤？
-
-（文章內容僅代表作者個人觀點）
+（文章內容僅代表作者觀點）
 
 0
