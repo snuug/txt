@@ -1,30 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推倒防火牆的利器— 覆蓋全球的星鏈計劃
-`2020-08-02 15:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/283300/)
+## 蓬佩奧：美國將在未來幾天對中共軟件公司採取行動
+`2020-08-02 18:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/283370/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02153030/1596396607706.jpg)圖片來源：TechSpot 
-據8月1日美國CNBC新聞報導稱，覆蓋全球的SpaceX公司星鏈計劃（Starlink ）未來市場潛力巨大。據SpaceX公司表示，全美有近70萬用戶對該公司即將推出衛星互聯網服務表示出興趣，這項“星鏈計劃”的市場需求不可估量。由於市場需求遠超出預期，SpaceX於週五向聯邦通信委員會監管部門提出了要將授權客戶終端數量從100萬增加到500萬的請求。客戶終端是指連接到衛星網絡需要使用的設備。
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-**星鏈計劃全球覆蓋網速一流**
+校對：HUH
 
-星鏈計劃這個衛星互聯網計劃就是要建立一個由大約12,000顆小衛星組成的互聯網絡，使用戶無論在世界的任何角落都可以直接連上高速互聯網。迄今為止，SpaceX已經發射了500多顆星鏈計劃衛星。要實現用戶直接連接到衛星互聯網，除了將衛星送入軌道之外，SpaceX還需要構建一個龐大的地面基站和平價的客戶終端系統。
 
-據報導，星鏈計劃打算在今年夏天開始進行個別的私人驗收測試，接著是公開驗收測試。 SpaceX公司告訴美國聯邦通信委員會監管部門，在今年年底之前，星鏈計劃將在美國北部和加拿大南部開始提供商業服務，預計2021會迅速覆蓋到全球範圍。
+[!\[Microsoft, TikTok officials in White House talks to prevent total ...\](https://media.foxbusiness.com/BrightCove/854081161001/202007/3907/854081161001_6177102239001_6177099460001-vs.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.foxbusiness.com%2Ftechnology%2Fmicrosoft-tiktok-deal-trump-ban&amp;psig=AOvVaw0rlffwC7tyditj6aGnXiDZ&amp;ust=1596494782970000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKD8x9nM_eoCFQAAAAAdAAAAABAU)圖片來源：FOX News 
+8月2日，美國國務卿蓬佩奧表示，在未來幾天，美國當局將對一些在美國的中共國軟件公司採取行動。美國總統特朗普很快將對直接將數據資料持續提供給中共的中共國軟件企業採取行動，原因是這些企業的行為可能損害美國國家安全。
 
-SpaceX的CEO馬斯克曾自豪地稱其星鏈計劃的網速不遜於現有任何互聯網服務。他在3月份表示，該網絡的延遲將少於20毫秒，競技遊戲中的玩家可以實現網遊中的快速反應。
+蓬佩奧在福克斯Fox News Channel電視節目Sunday Morning Futures上，當他被問及可以對TikTok社交網絡採取什麼措施時回答：在美國的中共國軟件公司，無論是TikTok、微信還是其他許多公司，正是他們將數據直接傳輸給了中共。很長一段時間以來，美國祇是說：“天哪，如果我們玩得開心，或者如果一家公司可以從中賺錢，我們將允許這種情況發生。”特朗普總統說：“受夠了，我們會弄清楚的。”龐培補充說，在未來幾天中，特朗普總統將“對與中共有關的、計劃對美國安全構成的廣泛威脅採取行動”，這實際上是國家安全問題，是對美國人私人數據的保護。
 
-**未來估值可能高達1750億美金**
+7月31日，特朗普總統曾表示，“他將動用緊急經濟權力法或發布行政命令，計劃禁止在美國使用TikTok，美國擔心TikTok為中共北京在美蒐集情報。”
 
-正如SpaceX總裁格溫·肖特韋爾（Gwynne Shotwell）先前所說，星鏈計劃是個雄心偉略的項目，可能要花費約100億美元或更多。 SpaceX在近幾年一直從私人投資者處獲得穩定的投資，目前市值約為440億美元。 SpaceX告訴投資者，如果星鏈計劃成功，衛星互聯網業務的目標市場總額為1萬億美元。摩根士丹利（Morgan Stanley）最近表示，估值SpaceX最樂觀的估值可能高達1750億美元。
+在外界猜測美國將迫使TikTok剝離其美國資產的過程中，微軟成為潛在的買家。據《華爾街日報》週日援引知情人士的話報導，在特朗普總統發出信號稱政府將反對這一交易之後，微軟與字節跳動公司（ByteDance）之間的談判暫停。
 
-評：星鏈計劃這個消息振奮人心！我們爆料革命和新中國聯邦最重要的原則是唯真不破。推倒防火牆迫在眉睫，只要牆內老百姓能收到我們爆料革命真實信息，了解CCP的邪惡本質，越來越多的牆內和體制內的同胞會成為我們的戰友，這樣會極大地加速我們的滅共步伐！
+8月1日，郭先生說過，“這G-TV你想不值錢都不行啊，你說抖音、 Zoom、 微信關了，你說你看啥呀？中國同胞你不看G-TV，你只能看G-TV、 G-News和G-News。”所以，戰友們，郭先生帶著大家打造的G系列是新中國人包括戰友們堅實的諾亞方舟，也是未來市場前景最好的企業。
 
-原文鏈接：https://www.cnbc.com/2020/08/01/spacex-starlink-extraordinary-demand-with-nearly-700000-interested.html
+參考鏈接：
 
-編譯：匿名
+https://www.cnbc.com/2020/08/02/trump-to-take-action-on-chinese-software-firms-in-coming-days-pompeo.html
 
-校對：Sarathecat
+[https://www.ntv.ru/novosti/2385620/](https://www.ntv.ru/novosti/2385620/)
+
+[https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm\_source=yxnews&utm\_medium=desktop](https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm_source=yxnews&amp;utm_medium=desktop)
 
 0
