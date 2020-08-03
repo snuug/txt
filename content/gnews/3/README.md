@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美歐再次集結，譴責港府推遲立法會選舉的決定
-`2020-08-02 17:37 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/283327/)
+## 隨著美國製裁的臨近，中資銀行被敦促放棄SWIFT清算
+`2020-08-02 21:34 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/283521/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽
+*新聞來源：《路透社》；作者：Cheng Leng, Zhang Yan and Ryan Woo；發佈時間：2020-7-29*
 
-校對：优雅
-![](https://lh3.googleusercontent.com/25eiDHUu4Zc8Mw5BW6IrCRdRSC-zKgfREZY2jMKThQy1UH8g-MH75xzJqmIAmPkEwZYjuknnIxlm4gHgdyvPnpYdIaSgler9er7JUTqGkjeCKMuXAY3ei1ia3m4I6bxOCqd_O14)圖片來源：USN.ONE 
-8月1號，美國國務卿蓬佩奧在國務院官網發表聲明，“美國譴責香港政府將原定於9月6日舉行的立法會選舉推遲一年的決定，如此長時間的拖延沒有正當理由，並敦促港府重新考慮他們的決定。如果推遲，香港很可能再也無法投票支持任何事情或任何職位。”蓬佩奧表示，選舉應盡可能接近9月6日舉行，並以反映香港人民意願和願望的方式舉行。蓬佩奧強調，如果不這樣做，香港將繼續變成中共統治下的另一個共產主義城市，港府的決定充分證實中共無意履行在《中英聯合聲明》及《基本法》中對香港人民與英國所做的承諾。
+*翻譯/簡評：Victory；校對：leftgun；審核：InAHurry；Page：椰子哦耶*
 
-中共及港府推遲立法會選舉的舉動引起西方世界的強烈不滿，英美澳三國以及歐盟對此決議表示強烈反對，要求中共需要履行國際責任並在國際社會中重建信任，強調在立法會選舉上必須體現《基本法》保障香港市民的民主權利與自由。
+**簡評** ：
 
-7月31日，香港行政長官林鄭月娥在7月30號取消了12名民主派立法會候選人資格後，向外界宣布將第七屆立法會選舉延後一年，並稱這是一個艱難的決定，但“對於保障公眾健康和確保公平和公開的投票是絕對必要的。” 緊跟其後，國務院港澳事務辦公室、中央人民政府駐香港特別行政區聯絡辦公室31日相繼發表聲明表示理解和支持。在此前一周，建制派以及所謂的香港一些在中共國的人大常委、人大代表，包括中共政協常委、世界衛生組織原總幹事陳馮富珍等在媒體呼籲立法會延後舉行。
+美國如對中共國銀行實施禁用SWIFT的金融制裁，港幣、人民幣將和美金脫鉤，其威力不亞於金融核彈。同時，SWIFT如被禁用，中共國將無法通過美元購買商品和服務或出口任何商品，這意味著，中共外彙來源會被堵死。這將是金融和貿易的雙重重擊。而中共口炮宣傳部說的內循環經濟不過是一句自己都不信的笑話，接下來中共國經濟衰退、大規模失業、物價飛漲，糧食危機等等都無法避免。嚴重依賴出口支持的中共經濟必然陷入崩盤式潰敗。
 
-立法會是一院制議會，由70名議員組成，反對黨反對推遲投票，認為這樣他們就失去了成功的機會，這將為香港自1991年由港英政府為當時的立法局（回歸後改稱立法會）引入直選以來，首次延遲選舉。
+中共曾妄圖利用區塊鏈實現國際結算，建立自己的支付體系，CIPS，實現人民幣國際化，以取代美元地位，這簡直是癡人說夢。不會有國家會蠢到接受毫無信用的人民幣。只要美元與人民幣脫鉤，人民幣馬上變廢紙。
 
-8月2日，香港“法政匯思”團體發文稱，“大規模取消選舉資格及延遲選舉違反香港人的基本權利。”向港府提供抗疫意見的專家公開稱，專家顧問團並無牽涉是否押後立法會選舉的討論，這純粹是港府的內部決定。香港民主派22名立法會議員也發表聯合聲明，反對押後選舉。可見港府推遲立法會選舉是中共授意下的決定，以避免重複2019年在立法會上即使操縱也失去了多數位置的覆轍。
+如今，美國已別無選擇。中共已經把美國和全世界逼到牆角，留給人類的時間真的不多了。美國和全世界的問題已經不是是否消滅中共，而是如何以最小的代價消滅中共。必須承認，對中共國實施SWIFT脫鉤制裁，會不可避免對美國和世界經濟造成衝擊。這也是美國遲遲未出手的原因。正式出手前，美國需要做好全面防衝擊準備。我們期待美國盡快打出這記重拳。
 
-香港作為“自由”與“獨裁暴政”的前沿戰場，在中共快速通過並實施《港版國安法》之後，美國總統特朗普7月初宣布取消香港自貿區地位，並簽署了《香港自治法案》，對破壞香港自治權的中共官員及與這些官員有業務往來的銀行實施制裁。五眼聯盟和德國已暫停與香港引渡協議、對香港實施武器禁運、呼籲禁止華為參與5G網絡佈局，特別是德國在林鄭月娥宣布立法會選舉延後一年後馬上宣布暫停德國與香港的引渡協議。同時，歐盟已宣布通過一攬子方案以支持香港反制中共，方案包括“移民、政治避難和簽證政策、敏感設備與技術出口、香港大專院校學術交流和學生獎學金機會、對公民社會組織的支持” 。中共的猖獗使西方正義聯盟更加緊密的走到一起，共同用“行動”反對中共的邪惡。
+##  **隨著美國製裁的臨近， 中資銀行被敦促放棄SWIFT清算** 
 
-原文鏈接：
+北京（路透）——據中國銀行投行部的一份報告，中共國應該為可能受到的美國製裁做好準備，增加在大陸，香港，澳門的跨境交易中使用自己的金融通訊網絡
 
-[https://www.aninews.in/news/world/asia/us-condemns-hong-kong-govt-decision-to-postpone-legislative-council-elections20200802133553/](https://www.aninews.in/news/world/asia/us-condemns-hong-kong-govt-decision-to-postpone-legislative-council-elections20200802133553/)
+[!\[\](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/95bd5c10-ba96-4875-b607-f83e48847bb5.png?asset_id=51360e52-78ad-4e5e-8231-e6f687c08c6b&amp;img_etag=%22c3d4a0a50293127df5095ee4727df4e9%22&amp;size=2560)](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/95bd5c10-ba96-4875-b607-f83e48847bb5.png?asset_id=51360e52-78ad-4e5e-8231-e6f687c08c6b&amp;img_etag=%22c3d4a0a50293127df5095ee4727df4e9%22&amp;size=1024)文件照片：香港中環全景圖， REUTERS/Tyrone Siu/File Photo 路透社/ Tyrone Siu/文件圖片
 
-[https://www.hindustantimes.com/world-news/united-states-condemns-hong-kong-decision-to-postpone-legislative-council-polls/story-fWiQZ01oI7zF9RWhYGM0uI.html](https://www.hindustantimes.com/world-news/united-states-condemns-hong-kong-decision-to-postpone-legislative-council-polls/story-fWiQZ01oI7zF9RWhYGM0uI.html)
+路透社本月早些時候報導，中共國國有銀行一直在修改應急計劃，以應對美國立法可能處罰為執行香港新國安法的官員提供服務的銀行。
 
-[https://newizv.ru/news/world/02-08-2020/ssha-prizvali-vlasti-gonkonga-ne-perenosit-parlamentskie-vybory-na-god](https://newizv.ru/news/world/02-08-2020/ssha-prizvali-vlasti-gonkonga-ne-perenosit-parlamentskie-vybory-na-god)
+中國銀行國際證券有限公司(BOCI)在報告中表示，更多地使用跨境銀行支付系統(CIPS)，而不是位於比利時的SWIFT系統，也將減少中共國全球支付數據對美國的依賴。該報告由一位前外匯監管人員共同撰寫。
+
+該銀行首席經濟學家管濤曾任中共國國家外匯管理局國際收支司司長。
+
+該報告研究了美國可能對中共國銀行採取的措施，包括切斷它們對SWIFT金融通訊服務的訪問，SWIFT是全球銀行間進行金融交易的主要網絡。
+[!\[\](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/b97e6e34-68fc-4214-a71c-a7274b333058.jpg?asset_id=e0f34343-e7a8-4b97-bf4b-80164b4b74f2&amp;img_etag=%228f64d68981dbf281789ac502952989c1%22&amp;size=2560)](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/b97e6e34-68fc-4214-a71c-a7274b333058.jpg?asset_id=e0f34343-e7a8-4b97-bf4b-80164b4b74f2&amp;img_etag=%228f64d68981dbf281789ac502952989c1%22&amp;size=1024)
+在世界上最大的兩個經濟體之間關係日益惡化時，此報告這樣寫道：“對敵人的一記重拳將使你免於敵人的很多攻擊。我們需要提前做好心理和實際的準備。”
+
+2015年，中共國啟動了跨境銀行支付系統（CIPS）清算和結算服務系統，以促進人民幣的國際化使用。 CIPS表示，在央行的監管下，2019年它每天處理1357億元人民幣(194億美元)，參與的國家和地區共有96個。
+
+報告稱，如果美國採取極端行動，切斷一些中共國銀行的美元結算渠道，中共國也應考慮停止使用美元作為其外匯控制的錨定貨幣。
+[!\[\](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/4c333470-a9b8-4b2c-8cd9-d3bed8bfbde9.png?asset_id=1f21b709-c6a0-44be-82b1-c8bb00feab0e&amp;img_etag=%22d939ee87c763a9a76573f27f687edd5f%22&amp;size=2560)](https://spark.adobe.com/page/f36PMKAdhj3Hb/images/4c333470-a9b8-4b2c-8cd9-d3bed8bfbde9.png?asset_id=1f21b709-c6a0-44be-82b1-c8bb00feab0e&amp;img_etag=%22d939ee87c763a9a76573f27f687edd5f%22&amp;size=1024)
+報告還建議中共國製定類似歐盟阻止法案的立法，該法案允許歐盟維持與伊朗的貿易和經濟關係，而伊朗是美國製裁的目標。
+
+中共國華為技術公司（世界上最大的電信設備製造商）的首席財務官，目前正在反抗被從加拿大引渡到美國，因為美國指控她就華為和一家伊朗公司的關係誤導匯豐銀行，使匯豐銀行因違反美國製裁而面臨罰款和懲罰的風險。
+
+[原文鏈接](https://www.reuters.com/article/us-china-banks-usa-sanctions-idUSKCN24U0SN)
+
+#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/f36PMKAdhj3Hb/) 】 
+
+
 
 0

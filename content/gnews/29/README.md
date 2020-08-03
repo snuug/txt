@@ -1,23 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/04 CCP病毒每日疫情直播簡報
-`2020-08-02 03:11 GM77` [轉載自GNews](https://gnews.org/zh-hant/282805/)
+## Warroom 304 郭文貴先生：解除美國羥氯喹處方藥限制；通過我們的關鍵證人找出病毒真相，美國才能安全解決當前災難
+`2020-08-02 04:08 GM77` [轉載自GNews](https://gnews.org/zh-hant/282937/)
 
-戰友之家圖文摘要組及小語種組
+戰友之家新聞譯制組
+撰稿：GM64
 
-[English\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030805/English_0704_CCP_Virus_Updates.pdf)
 
-[French\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030810/French_0704_CCP_Virus_Updates.pdf)
 
-[German\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030815/German_0704_CCP_Virus_Updates.pdf)
+•中共的高級官員在1月的第一周就開會了解到了中共病毒疫情的事情，但因為中共政府選擇了隱瞞疫情，使美國人的生命和財產受到了重大的損失。是時候對中共采取行動了！中共必須在72小時內開放大陸的病毒實驗室，給國際機構上交所有有關中共病毒的數據。72小時一到如果中共拒絕，將制裁所有的中共銀行，切斷一切美元的兌換。
+•這場中共制造的疫情對美國的社會各界都是一場考驗，如果不支持閆博士美國就完了。
+•現在拯救美國的當務之急就是把羥氯喹變成非處方藥物，因為現在有美國人玩政治遊戲，才導致美國每天有1000多人死去。
 
-[Korean\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030820/Korean_0704_CCP_Virus_Updates.pdf)
-
-[Russian\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030826/Russian_0704_CCP_Virus_Updates.pdf)
-
-[Spanish\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030830/Spanish_0704_CCP_Virus_Updates.pdf)
-
-[Japanese\_0704\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)[Download](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02030834/Japanese_0704_CCP_Virus_Updates.pdf)
-
-0
+1
