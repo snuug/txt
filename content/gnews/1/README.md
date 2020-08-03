@@ -1,55 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國軍方是否已深入滲透美國的醫學研究領域
-`2020-08-02 21:48 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/283537/)
+## 繼美國各州收到來自中國的神秘種子後日本近日也出現同樣情況
+`2020-08-02 23:34 Diago` [轉載自GNews](https://gnews.org/zh-hant/283647/)
 
-*新聞來源：《零對沖》；作者：Tyler Durden；發佈時間：07/25/2020*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02232825/%E5%B0%81%E9%9D%A2-7.jpg)
+作者：Diago
 
-*翻譯/簡評：毛毛貓貓；校對：Julia Win；審核：InAHurry；Page：拱卒*
+據[**粘土****Guu\_**](https://weibo.com/6939876385?refer_flag=1001030103_)[08月02日 17:48](https://weibo.com/6939876385/Je4jFvMeC?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-**簡評** ：
+日本收到迷的種子那事我還真挺疑惑的，微博一個人沒說，國內媒體也沒有報導，那兩天以為只有我自己看到了呢。各種中國給日本和美國隨機郵寄炭疽病毒培養假說，還有說先寄正常種子，一次兩次三次都正常，第4次等你鬆懈了再發送破壞農業的死亡種子。。。圖裡都是幾包奇怪的種子，上面都寫著中國郵政 ​
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02232858/007zF0S5ly1ghclxrp55yj308c03rmx5.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02232905/007zF0S5ly1ghcly3r8qsj30jj07p76b.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02232909/007zF0S5ly1ghclztm301j30g90d0130.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02232938/007zF0S5ly1ghcm09jhhrj30g90c9wmt.jpg)
+在看了這條微博之後，我用日語詞彙“謎の種”在推特上搜索相關推文，以下為部分推文摘錄，由於日語基礎基本是零，所以以下內容均為日語推文後用谷歌翻譯後直接引用：
 
-中共國盜竊美國知識產權由來已久，越來越多的事實證明中共國以學術交流為名，多次向美國派遣具有中共軍方背景的研究人員，滲透到美國的醫學研究領域，以幫助中國軍方獲取美國醫學科研成果和機密。美國相關部門負責人已經呼籲對中美之間的醫學交流展開大規模調查，近日美國逮捕了具有中共軍方背景的王欣，宋辰，趙凱凱和唐娟，對中共極具震懾力。真所謂：“莫伸手，伸手必被捉！”
+相關推文——
 
-##  **中共國軍方是否已深入滲透美國的醫學研究領域？** 
+> 今話題の謎の種が中国から届く件
+> 届いた人みんな画像アップしてるんだけどバーコードのとこにある管理番号みたいなのがどれも違う。
+> 
+> これ、Twitterのアカウントと
+> 住所の紐付け特定＝パスワード、個人情報などの取得目的だったりするかもしれないので
+> 
+> SNSに種画像アップするの止めた方がいいかもです [https://t.co/lorPzzS3ni](https://t.co/lorPzzS3ni)
+> — すまりん (@smasman405) [July 31, 2020](https://twitter.com/smasman405/status/1289074446272102400?ref_src=twsrc%5Etfw)
 
-此文由勞倫斯·塞林（Lawrence Sellin）博士提交，他是已退休的美國陸軍預備役上校，之前曾在美國陸軍傳染病醫學研究所工作，並在製藥行業進行基礎和臨床研究。他是國家安全公民委員會（Citizens Commission on National Security）的成員。
+今話題の謎の種が中国から届く件 届いた人みんな画像アップしてるんだけどバーコードのとこにある管理番号みたいなのがどれも違う。 これ、Twitterのアカウントと 住所の紐付け特定＝パスワード、個人情報などの取得目的だったりするかもしれないので SNSに種画像アップするの止めた方がいいかもです
 
-中共國盜竊了價值數十億美元的美國知識產權，這是一個被廣泛公認的事實。
+谷歌翻譯結果：現在正在從中國談論的神秘種子都已上載，但條碼中的控制編號等所有種子都不同。 由於這可能是為了獲取Twitter帳戶和位址連接=密碼，個人資訊等，因此最好停止將種子圖像上傳到SNS。
 
-美國政府最近下令關閉在得克薩斯州休斯頓的中共國領事館，參議員馬可·盧比奧（R-FL）將其描述為“中共在美國龐大的間諜網和巨大的網絡影響力運營的窩點”。
+引用農林水産省@MAFF\_JAPAN· Jul 31內容：
 
-幾乎與此同時，美國司法部(Department of Justice)起訴了兩名中共國公民，指控他們試圖竊取COVID-19疫苗的研究成果，並黑客攻擊了包括國防承包商在內的數百家美國及其海外公司。
+注文をしていない種子が海外から郵送される事例があるようです。外装に植物検疫の合格印のない植物が届いたら、そのままの状態で最寄りの #植物防疫所 へご相談ください。 外装が未開封の場合は、配達後に受取を拒否できますので郵便局にご相談ください。詳細はこちら
 
-目前，現年37歲，曾在加州大學戴維斯分校的醫學院(University of California, Davis, School of Medicine)做了幾個月的癌症客座研究員的唐娟(Juan Tang)，一度躲藏在舊金山的中共國領事館內，現已被聯邦調查局(FBI)逮捕。
+谷歌翻譯結果：似乎有些情況是從國外郵寄無序種子。 如果收到的植物在外部沒有通過植物檢疫標誌，請直接與最近的植物檢疫站聯繫。如果包裝未打開，您可以在交貨後拒絕收貨，因此請與郵局聯繫。 點擊這裡瞭解詳情
 
-她是近日被聯邦當局指控的四名中共國研究人員之一，他們為進入美國而謊報了他們的背景。
+推文2：
 
-薩克拉門托（ Sacramento）地方法院提起的聯邦刑事訴訟指控唐娟（Juan Tang）在2019年10月28日申請非移民簽證時，隱瞞了她與中共國軍方的關係。
+> 【要注意】中国から？日本各地に謎の種届く 農水省「植えないで」[https://t.co/Ni3v6HKlXU](https://t.co/Ni3v6HKlXU)
+> 
+> 一部はネギの種とみられ、「有害な病害虫が付着している可能性がある」として、植えずに相談するよう呼びかけを始めた。同様の事例は米国でも相次いでいる。
+> — ライブドアニュース (@livedoornews) [July 31, 2020](https://twitter.com/livedoornews/status/1289129637583314946?ref_src=twsrc%5Etfw)
 
-美國聯邦調查局（FBI）的刑事起訴書中有唐娟(Juan Tang)身著中共國軍裝的照片，而她所在的科研單位被列為- 第四軍醫大學（The Fourth Military Medical University）國家分子醫學轉化科學中心和細胞生物學系（the National Translational Science Center & Department of Cell Biology），中共國西安，710032。
-[!\[\](https://spark.adobe.com/page/SXuSDL6OCxXz1/images/c52d35a0-f566-49df-a578-d496efbebd44.jpg?asset_id=73a0a18c-b82d-41ab-b6e5-25238fc00c29&amp;img_etag=%22d5cc3ed5ac33d70241a629d32fe0857c%22&amp;size=1024)](https://spark.adobe.com/page/SXuSDL6OCxXz1/images/c52d35a0-f566-49df-a578-d496efbebd44.jpg?asset_id=73a0a18c-b82d-41ab-b6e5-25238fc00c29&amp;img_etag=%22d5cc3ed5ac33d70241a629d32fe0857c%22&amp;size=1024)
-據加州大學戴維斯分校（University of California, Davis）發言人安迪·費爾(Andy Fell)介紹，唐娟（Juan Tang ）曾是該校醫學院放射腫瘤學系的客座研究員。她的研究由“中共國獎學金委員會”資助，“這是一個隸屬於中共國教育部和中共國西京醫院的學習型交流項目。”
+推文内容：【要注意】中国から？日本各地に謎の種届く 農水省「植えないで」 [https://news.livedoor.com/lite/article\_detail/18661667/](https://t.co/Ni3v6HKlXU?amp=1) 一部はネギの種とみられ、「有害な病害虫が付着している可能性がある」として、植えずに相談するよう呼びかけを始めた。同様の事例は米国でも相次いでいる。
 
-是的，但是為什麼是加州大學戴維斯分校？
+谷歌翻譯結果：[注意]來自中國？ 神秘的種子遍佈日本農林水產省“不要種植” https://news.livedoor.com/lite/article\_detail/18661667/有些似乎是韭菜種子，“有害有害生物可能會附著 是的，我開始徵求意見，但沒有種植。 在美國，類似的情況還在繼續。
 
-這可能是因為她和李建建的關係。李建建於1984年從在西安的中共國第四軍醫大學獲得醫學博士學位，他是美國加州大學戴維斯醫學院的放射腫瘤學系教授，與唐娟在中共國國家分子醫學轉化科學中心的職位一樣，李博士現任加州大學戴維斯分校腫瘤分子轉化醫學的研究主任。
+結束語：在中共即將被滅之際，這種莫名其妙來自中國郵政的種子到底是什麼情況？希望懂日語的戰友密切關注關於日本收到的來自中國的神秘種子的相關資訊，希望美國、日本以及未披露出來收到這些神秘種子的國家和地區密切關注來自中國的神秘郵包。
 
-李博士於1994年從愛荷華大學放射與自由基生物學系畢業並獲得博士學位。 1995年至1998年在美國國立衛生研究院的國立癌症研究所接受培訓。
+另外美國近期爆發的奇怪的新病毒到底是怎麼回事？【相關連結為[時隔20年，罕見傳染病又在美國出現，專家：恐怕早已擴散](https://baijiahao.baidu.com/s?id=1673167946391404537&amp;wfr=spider&amp;for=pc)（發佈時間：07-2916:48）以及[又是發燒症狀，又一病毒席捲美國23個州，潛伏期比新冠病毒還長](https://www.sohu.com/a/410954275_120082100?_f=index_betapagehotnews_4&amp;_trans_=000014_bdss_dkygcbz)（搜狐網[大國爭霸](https://mp.sohu.com/profile?xpt=N2U4NWRjMDgtNzc5Ni00ZjBmLTlhOGItZTU1NzU3YWIyMDk4&amp;_f=index_pagemp_1&amp;spm=smpc.content.author.2.1596423192414O9A0CXM&amp;_trans_=000014_bdss_dkygcbz) 2020-08-01 18:22）】，另外希望日本密切關注近期是否有蜱蟲病爆發，因為在此前的發佈的[中共的軍中毒王——曹務春](https://gnews.org/zh-hans/204257/)一文中也列明瞭同時在日本和美國多地莫名其妙出現的蜱蟲病。
 
-多年來，李博士與中共國的科學家保持著廣泛的合作，其中的一些科學家在中共國的第四軍醫大學(Fourth Military Medical University)工作。
-
-李博士似乎不太可能不知道唐娟與中共國第四軍醫大學的隸屬關係。
-
-本文提到的四名被捕的中共國公民，僅佔在美的中共國學生、博士後研究人員和全職醫學科學家的極小部分，他們中的許多人是由美國納稅人的錢支持的，他們可能在積極協助中共國軍方竊取美國的機密和專有信息。目前，美國的醫學研究領域是反間諜活動中最薄弱的環節，成為中共國間諜活動的靶心。
-
-對美中之間的醫學研究交流項目進行全面調查的時機早已到來。
-
-[原文鏈接](https://www.zerohedge.com/markets/has-chinas-military-deeply-infiltrated-us-medical-research)
-
-#### 編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/SXuSDL6OCxXz1/) 】 
-
-
+（文章內容僅代表作者個人觀點）
 
 0

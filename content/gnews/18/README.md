@@ -1,20 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三星關閉最後一個電腦工廠，加速撤離中共國工廠
-`2020-08-02 09:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/282811/)
+## 蓬佩奧：美國將在未來幾天對中共軟件公司採取行動
+`2020-08-02 18:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/283370/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02031222/1-5.png)圖片來源：asia.nikkei.com 
-據路透社（首爾）報導，三星電子公司將會關閉在中共國的最後一個電腦工廠。韓國科技巨頭週六稱，最先進的製造商(三星)要把自己的生產線從中共撤出，遠離世界上的第二大經濟體。隨著中共國勞動力成本的飆升，中美貿易戰的影響，再加上中共病毒的肆虐，很多公司在考慮將他們的生產線和供應鏈撤出中共。
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-南華早報週五引用了一則三星員工的通知，通知上寫道，在蘇州三星電子工廠，除了研發部門的人員受影響以外，近一半的合同工約1700名工人受影響。據香港新聞報導，該電子廠在2012年向國外運送了價值43億美元的產品，然而，到2018年，該數字降到只有10億美元。
+校對：HUH
 
-三星發言人拒絕透露關於公司利潤、貨運以及員工的相關信息。三星公司發表聲明:“中共國市場依然對三星很重要，我們依然會給中國消費者提供優質的產品和上等的服務。” 三星公司在去年關閉了最後一個中共國的手機工廠。但是三星依然保留了蘇州和西安這兩個半導體工廠。
 
-評:蘇州的江蘇最重要的工業城市，然而蘇州的工業發展主要靠的上是韓國日本的大企業投資發展起來的。隨著三星在蘇州撤離，蘇州的工業將會受到嚴重打擊，隨即大批中共國的底層百姓失業。這對蘇州這種經濟重鎮將是致命一擊。而且，這種撤資速度將會如指數般加快。蘇州要是沒有了日韓外資企業，蘇州的外來人口將銳減，隨著收租戶們的房子也無人可租，隨之而來就是本地人受影響，進而影響蘇州的房價。值得一提的是，蘇州的經濟在全國首屈一指，要是東部城市都是如此囧困，可想而知，中共國的形式是多麼嚴峻。中共的擀麵杖子還能撐多久?
+[!\[Microsoft, TikTok officials in White House talks to prevent total ...\](https://media.foxbusiness.com/BrightCove/854081161001/202007/3907/854081161001_6177102239001_6177099460001-vs.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.foxbusiness.com%2Ftechnology%2Fmicrosoft-tiktok-deal-trump-ban&amp;psig=AOvVaw0rlffwC7tyditj6aGnXiDZ&amp;ust=1596494782970000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKD8x9nM_eoCFQAAAAAdAAAAABAU)圖片來源：FOX News 
+8月2日，美國國務卿蓬佩奧表示，在未來幾天，美國當局將對一些在美國的中共國軟件公司採取行動。美國總統特朗普很快將對直接將數據資料持續提供給中共的中共國軟件企業採取行動，原因是這些企業的行為可能損害美國國家安全。
 
-[譯文鏈接](https://www.reuters.com/article/us-samsung-elec-china-pc/samsung-electronics-to-halt-production-at-its-last-computer-factory-in-china-idUSKBN24X3K4)
+蓬佩奧在福克斯Fox News Channel電視節目Sunday Morning Futures上，當他被問及可以對TikTok社交網絡採取什麼措施時回答：在美國的中共國軟件公司，無論是TikTok、微信還是其他許多公司，正是他們將數據直接傳輸給了中共。很長一段時間以來，美國祇是說：“天哪，如果我們玩得開心，或者如果一家公司可以從中賺錢，我們將允許這種情況發生。”特朗普總統說：“受夠了，我們會弄清楚的。”龐培補充說，在未來幾天中，特朗普總統將“對與中共有關的、計劃對美國安全構成的廣泛威脅採取行動”，這實際上是國家安全問題，是對美國人私人數據的保護。
 
-譯者：Justin\_x
+7月31日，特朗普總統曾表示，“他將動用緊急經濟權力法或發布行政命令，計劃禁止在美國使用TikTok，美國擔心TikTok為中共北京在美蒐集情報。”
+
+在外界猜測美國將迫使TikTok剝離其美國資產的過程中，微軟成為潛在的買家。據《華爾街日報》週日援引知情人士的話報導，在特朗普總統發出信號稱政府將反對這一交易之後，微軟與字節跳動公司（ByteDance）之間的談判暫停。
+
+8月1日，郭先生說過，“這G-TV你想不值錢都不行啊，你說抖音、 Zoom、 微信關了，你說你看啥呀？中國同胞你不看G-TV，你只能看G-TV、 G-News和G-News。”所以，戰友們，郭先生帶著大家打造的G系列是新中國人包括戰友們堅實的諾亞方舟，也是未來市場前景最好的企業。
+
+參考鏈接：
+
+https://www.cnbc.com/2020/08/02/trump-to-take-action-on-chinese-software-firms-in-coming-days-pompeo.html
+
+[https://www.ntv.ru/novosti/2385620/](https://www.ntv.ru/novosti/2385620/)
+
+[https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm\_source=yxnews&utm\_medium=desktop](https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm_source=yxnews&amp;utm_medium=desktop)
 
 0
