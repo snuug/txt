@@ -1,23 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/08 CCP病毒每日疫情直播簡報
-`2020-08-03 10:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/283970/)
+## TIKTOK禁令推遲了？流產了？特朗普食言了？
+`2020-08-03 10:54 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/284138/)
 
-戰友之家圖文摘要及小語種組
+作者：喜馬拉雅聯盟加拿大農場龍井
 
-[English\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101900/English_0708_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101900/English_0708_CCP_Virus_Updates-2.pdf)
+校對：熊媽媽
+![會面川普後…微軟繼續洽購TikTok！ 9月15日前敲定| 國際| 三立新聞網SETN.COM](https://lh4.googleusercontent.com/n95OlbHXDoaEvDnyl2ZrO37wIQpBeHeRt_YNw-OLdhH_vp1b4xQM1teigkYuGyMhTiL6tA2DVWbSAfW9HXpPHXn0_RhHc4LBs20RSqGJ2vMIW_UDYtraEv2-szmTcmQYuOP70P4)
+圖片：三立新聞
 
-[French\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101855/French_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101855/French_0708_CCP_Virus_Updates-1.pdf)
+美國總統特朗普上週五從佛羅里達州返回時在“空軍一號”上對隨行記者明確表示，將於次日，即8月1日採取行動，在美國全面禁止由中共控制的TikTok視頻應用。 “我們禁止TikTok進入美國。”特朗普說，他可以利用緊急經濟權力或行政命令來執行該行動，並堅持認為，“我擁有該權力。”
 
-[Japanese\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101912/Japanese_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101912/Japanese_0708_CCP_Virus_Updates-1.pdf)
+然而，事情並不像他所預告的那樣，週六似乎什麼事都沒有發生。
 
-[Korean\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101908/Korean_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101908/Korean_0708_CCP_Virus_Updates-1.pdf)
+對TikTok的禁令究竟是推遲了？還是流產了？到底是什麼原因導致總統“食言”了？通過美國國務卿彭佩奧今天（8月2日）在福克斯新聞的訪談，我們可以從中得到些許信息。
 
-[Russian\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101917/Russian_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101917/Russian_0708_CCP_Virus_Updates-1.pdf)
+彭佩奧說：“總統將會在未來幾天針對與中共有關的軟件所帶來大範圍的國家安全風險採取行動，（你們）很快就會看到總統的公告。”他還轉述總統的話：”是解決這個問題的時候了，我們要予以阻止。“
 
-[Spanish\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101904/Spanish_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101904/Spanish_0708_CCP_Virus_Updates-1.pdf)
+當福克斯主持人瑪利亞問及“微軟收購抖音是否能保證避免來自中共國的監控”時，彭佩奧這樣回答：“瑪利亞，我向你保證，總統作出的決定將確保美國人民的風險接近於零”。他說：“那是總統為我們所有任務執行人制定的目標。我們在幾個月前就開始對此事進行評估了。我們已經找到了一個解決方案，大家很快就會看到總統的公告。”
 
+看來，對TikTok的禁令沒有流產，特朗普也不會食言，但禁止的方式很可能會有變化。
 
+**為什麼要禁** **TikTok** **？**
+
+彭佩奧就制止中共軟件的原因做了解釋——中共軟件直接向中共政府和軍方提供數據，嚴重威脅到美國的國家安全。
+
+他說：“這些在美國開展業務的中共軟件，無論是抖音還是微信，還有其他不計其數的軟件，都在直接給中共和中共國家安全機構提供數據，包括用戶的面部識別模式、住所、電話號碼、朋友、聯繫人等信息。”他指出，這些是川普總統已明確指示我們去解決的問題，也是真正的國家安全問題。對於美國人來說，這是真正的隱私保護問題。
+
+此外，總統助理皮特·納瓦羅7月17日在福克斯新聞節目中也表示，那些孩子們非常喜歡並且看起來如此便捷的移動應用程序所包涵的所有數據，都被輸送給中共的服務器，輸送給中共軍隊，輸送給中共政府以及那些想要竊取美國知識產權的代理機構。這些應用程序可用於竊取個人及其財務信息並進行勒索，它們還可以被用來竊取商業知識產權和專有秘密。
+
+**為什麼推遲禁令？**
+
+根據事態發展的情況分析，“禁令”推遲的主要原因可能是，正在進行的微軟收購TikTok的談判，由於特朗普的明確反對，TikTok母公司字節跳動作出了重大讓步。
+
+據路透社消息，兩名知情人士周六（８月1日）表示，在美國總統特朗普週五表示他已決定禁用該應用後，字節跳動已作出重大讓步：同意完全剝離TikTok在美國的業務，由微軟接管並負責保存管理所有美國的用戶數據，此外也允許除了微軟之外另一家美國公司接管TikTok的美國業務，以挽救與白宮的一筆交易。
+
+字節跳動此前曾試圖在TikTok的美國業務中持有少數股權，但遭到了白宮的拒絕。知情人士稱，字節跳動創始人張一鳴也已同意出售自己的股份。
+
+**白宮可能採取的措施**
+
+BBC科技新聞編輯里奧·凱利恩（Leo Kelion）盤點了美國政府可能採取的幾種封禁方法。它們分別是：軟件下架，封禁服務器，局部封禁和政府乾預。而根據最新進展來看，在政府監督和在保護用戶數據方面得到保障的前提下，TikTok美國業務被接管的可能性較大。
+
+據德國之聲中文網周日(8月2日)消息，微軟的首席執行官薩蒂亞·納德拉(Satya Nadella)已經直接與美國總統特朗普通話。此次通話後，微軟宣布繼續與TikTok談判，期盼取得TikTok在美國的經營權。
+
+談判計劃在9月15日之前完成，內容不但涉及美國的經營權，也將涉及加拿大、澳洲、新西蘭等地運行的相關事務。至於美國政府最在乎的安全問題，微軟表示， TikTok用戶的資料將會被存放在美國本土，也會為該App加上“世界級的安全、隱私、數據保護”技術。但微軟不保證最後能簽約成功。
+
+可見，這個重啟的收購談判已不是微軟和字節跳動之間的談判，而是由美國政府參與的三方會談。如果收購協議能達成，不見得不是件三全其美的好事：首先是國家安全和民眾信息安全得到保障；其次是滿足了廣大青少年用戶的願望，畢竟TikTok在美國有上億使用者，是深受歡迎的社交軟件；第三是微軟公司很可能以很好的價格買到一個”寶貝“。不管白宮怎樣選擇，我們相信彭佩奧說的那句話：“總統作出的決定將確保美國人民的風險接近於零”。
+
+參考鏈接：
+
+[https://twitter.com/QuShuitai/status/1290009886563205135](https://twitter.com/QuShuitai/status/1290009886563205135)
+
+[https://www.dw.com/zh/%E5%BE%AE%E8%BD%AF%E8%87%B4%E7%94%B5%E7%89%B9%E6%9C%97%E6 %99%AE-%E9%87%8D%E5%90%AF%E6%94%B6%E8%B4%ADtiktok%E8%B0%88%E5%88%A4/a-54409900](https://www.dw.com/zh/%E5%BE%AE%E8%BD%AF%E8%87%B4%E7%94%B5%E7%89%B9%E6%9C%97%E6%99%AE-%E9%87%8D%E5%90%AF%E6%94%B6%E8%B4%ADtiktok%E8%B0%88%E5%88%A4/a-54409900)
 
 0
