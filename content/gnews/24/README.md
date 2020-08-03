@@ -1,58 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 烏魯木齊再現方艙醫院 通信部又要消失1800萬用戶？
-`2020-08-02 12:15 GM77` [轉載自GNews](https://gnews.org/zh-hant/283195/)
+## 蓬佩奧：美國將在未來幾天對中共軟件公司採取行動
+`2020-08-02 18:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/283370/)
 
-編撰：文小明
-審核：Lori文噠
+作者：喜馬拉雅聯盟加拿大農場熊媽媽
 
-2020年8月1日，有推友發布視頻，顯示[新疆](https://www.aboluowang.com/tag/%E6%96%B0%E7%96%86_1.html)烏魯木齊正在將紅山體育館改建成方艙醫院，以應對日益嚴重疫情。從7月16日烏魯木齊封城以來，疫情不僅向周邊城市迅速蔓延，在烏市本地至今也沒有減緩的跡象。
+校對：HUH
 
-[烏魯木齊](https://www.aboluowang.com/tag/%E4%B9%8C%E9%B2%81%E6%9C%A8%E9%BD%90_1.html)正在將紅山體育館改建成[方艙醫院](https://www.aboluowang.com/tag/%E6%96%B9%E8%88%B1%E5%8C%BB%E9%99%A2_1.html)（視頻截圖）
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02120903/3-1.jpg)
+[!\[Microsoft, TikTok officials in White House talks to prevent total ...\](https://media.foxbusiness.com/BrightCove/854081161001/202007/3907/854081161001_6177102239001_6177099460001-vs.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.foxbusiness.com%2Ftechnology%2Fmicrosoft-tiktok-deal-trump-ban&amp;psig=AOvVaw0rlffwC7tyditj6aGnXiDZ&amp;ust=1596494782970000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCKD8x9nM_eoCFQAAAAAdAAAAABAU)圖片來源：FOX News 
+8月2日，美國國務卿蓬佩奧表示，在未來幾天，美國當局將對一些在美國的中共國軟件公司採取行動。美國總統特朗普很快將對直接將數據資料持續提供給中共的中共國軟件企業採取行動，原因是這些企業的行為可能損害美國國家安全。
 
-推友發布的視頻顯示，烏魯木齊市為應對嚴重疫情，正在將紅山體育館改建成方艙醫院，以收治更多的感染病人。**網友評論說，如果每天只有三、四十個感染病例，需要建方艙醫院嗎？**
+蓬佩奧在福克斯Fox News Channel電視節目Sunday Morning Futures上，當他被問及可以對TikTok社交網絡採取什麼措施時回答：在美國的中共國軟件公司，無論是TikTok、微信還是其他許多公司，正是他們將數據直接傳輸給了中共。很長一段時間以來，美國祇是說：“天哪，如果我們玩得開心，或者如果一家公司可以從中賺錢，我們將允許這種情況發生。”特朗普總統說：“受夠了，我們會弄清楚的。”龐培補充說，在未來幾天中，特朗普總統將“對與中共有關的、計劃對美國安全構成的廣泛威脅採取行動”，這實際上是國家安全問題，是對美國人私人數據的保護。
 
-> 新疆 烏魯木齊 紅山體育館改方艙醫院 2020.7.31 [pic.twitter.com/iCwVuvTz7g](https://t.co/iCwVuvTz7g)
-> — 白七的纪录 (@Fei\_Nigh) [July 31, 2020](https://twitter.com/Fei_Nigh/status/1289262314999316480?ref_src=twsrc%5Etfw)
+7月31日，特朗普總統曾表示，“他將動用緊急經濟權力法或發布行政命令，計劃禁止在美國使用TikTok，美國擔心TikTok為中共北京在美蒐集情報。”
 
-**編者評論**
+在外界猜測美國將迫使TikTok剝離其美國資產的過程中，微軟成為潛在的買家。據《華爾街日報》週日援引知情人士的話報導，在特朗普總統發出信號稱政府將反對這一交易之後，微軟與字節跳動公司（ByteDance）之間的談判暫停。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02120929/4-1.png)
+8月1日，郭先生說過，“這G-TV你想不值錢都不行啊，你說抖音、 Zoom、 微信關了，你說你看啥呀？中國同胞你不看G-TV，你只能看G-TV、 G-News和G-News。”所以，戰友們，郭先生帶著大家打造的G系列是新中國人包括戰友們堅實的諾亞方舟，也是未來市場前景最好的企業。
 
-2020年27日下午，新疆維吾爾自治區人民政府新聞辦公室召開新聞發布會，介紹烏魯木齊市疫情和防控工作情況。
+參考鏈接：
 
-截至7月26日24時，報道只有8795人正在接受醫學觀察。烏魯木齊市衛健委主任張衛介紹，所有需要留觀的人員均單人單間居住（兒童等確需他人照顧的人員除外），同時規範觀察對象的健康監測，每日至少兩次監測，上門測量提問做好記錄，發現健康狀況異常的立即轉診。
+https://www.cnbc.com/2020/08/02/trump-to-take-action-on-chinese-software-firms-in-coming-days-pompeo.html
 
-集中醫學觀察點所有房間均配備基本生活設施，保障水電等正常使用並配備生活用品，**每人每天按照50元標準提供定點送餐服務，**並為患有其他疾病人員及時配送藥品，出現急性疾病的有專用車輛送至醫院就診。
+[https://www.ntv.ru/novosti/2385620/](https://www.ntv.ru/novosti/2385620/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/02120918/5-1.jpg)
-
-還記得2020年1月23日10時起，武漢市和周邊的鄂州市、仙桃市、潛江市、黃岡市、荊門市等相續宣布暫停運營城市公交、地鐵、輪渡、長途客運，暫時關閉機場、火車站、高速公路等離開通道，嚴防武漢新型冠狀病毒疫情擴散。
-
-而後就是全中國人民懷著一腔熱血，為了同胞，為了手足，簽了生死狀，奔赴前線。
-
-但是噩耗不斷傳來，疫情沒有控制住，反而是各種火葬場24小時加班的消息，反而是空氣中二氧化硫超標幾萬倍的消息，反而是各種氣化的焚燒爐的新聞鋪天蓋地的出來了。宣傳要進行市場計劃經濟分配，達到每個村子兩臺。
-
-之後，慘絕人員的斷糧的場面，餓死的老人、小孩大有人在。
-
-沒有好消息……
-
-從封城到解封，武漢經歷的76天，1100萬人暫停軌跡，通信部公布1800萬用戶消失。
-
-而後就是廣東方艙、港版方艙、黑龍江方艙……直到現在的新疆方艙。
-
-我為什麽悲痛？因為看到封城、方艙醫院這樣的字眼，腦海裏不免的想到武漢的76天裏死人的場景。
-
-我為什麽悲痛？因為我明明知道這是中共自己放毒的黑暗內幕，我搞不懂他為什麽要莫名其妙的去殺人，而且殺這麽多人，以前還在YOUTUBO上看見一個視頻，說是武漢方艙醫院的建設是建設在北京和武漢的風水連線上，而方艙就是一個巨大的祭臺，如果真是這樣，那麽烏魯木齊是不是又是中共這種無知愚蠢的理論下的一個犧牲品？
-
-我為什麽悲痛，因為還有那麽多人沒有看到事情的真相，還沒有聽到閆博士說的中共黑暗的陰謀，因為不知道下一步，中共還要在哪裏建設方艙醫院？是沿著P3實驗室的建設軌跡建設方艙嗎？還是沿著什麽風水大陣的軌跡建設呢？
-
-我很悲痛，因為我不知道在中共滅亡之前還要公布多少個1800萬消失的用戶！
-
-原文網址：
-[https://www.aboluowang.com/2020/0802/1484288.html](https://www.aboluowang.com/2020/0802/1484288.html)
+[https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm\_source=yxnews&utm\_medium=desktop](https://vm.ru/news/818859-pompeo-anonsiroval-mery-ssha-protiv-kompanij-iz-kitaya?utm_source=yxnews&amp;utm_medium=desktop)
 
 0
