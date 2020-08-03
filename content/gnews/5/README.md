@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共產黨的APP都下架了G-TV和GNEWS想不賺錢都不行
-`2020-08-03 08:03 GM31` [轉載自GNews](https://gnews.org/zh-hant/283943/)
+## 【世界多语言图文】2020/07/12 CCP病毒每日疫情直播简报
+`2020-08-03 11:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/284145/)
 
-在郭先生8月1日的G-TV 直播中，他提到：“共產黨恐懼這次G-TV 恐惧G-News，你們想想恐懼到啥程度？過一段時間你們知道，過一段時間你們就會更加明白。它意味著什麼？“
+戰友之家圖文摘要及小語種組
+
+[English\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110223/English_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110223/English_0712_CCP_Virus_Updates.pdf)
+
+[French\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110250/French_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110250/French_0712_CCP_Virus_Updates.pdf)
+
+[German\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110228/German_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110228/German_0712_CCP_Virus_Updates.pdf)
+
+[Japanese\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110232/Japanese_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110232/Japanese_0712_CCP_Virus_Updates.pdf)
+
+[Korean\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110242/Korean_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110242/Korean_0712_CCP_Virus_Updates.pdf)
+
+[Russian\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110238/Russian_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110238/Russian_0712_CCP_Virus_Updates.pdf)
+
+[Spanish\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110246/Spanish_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110246/Spanish_0712_CCP_Virus_Updates.pdf)
 
 
-> 共產黨的APP沒了，把你舌頭給你割了，港幣再沒了，就把你小雞雞給你割了，被割了舌頭被割了小雞雞的巨人，會是啥人哪？那叫被閹割的人，被閹割後的共產黨會多瘋狂？
 
-
-*翻譯：【茶奶奶】字幕：【小螺號】編輯：【GM31】視頻預處理：【恒久忍耐】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0

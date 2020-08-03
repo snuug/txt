@@ -1,13 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 別關心民運，專注滅共!
-`2020-08-03 06:35 GM31` [轉載自GNews](https://gnews.org/zh-hant/283835/)
+## 【世界多語言圖文】2020/07/08 CCP病毒每日疫情直播簡報
+`2020-08-03 10:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/283970/)
 
-郭文貴先生在7月25日的G-TV直播中表示，只要共產黨在，我們都是輸家，共產黨不在，什麼你都是贏家，你有無限的可能。中國的新政府一定是人民一人一票選出來的，不是美國國務卿決定，這是新中國聯邦的宣言。爆料革命的戰友們不要那麼在乎名利，不要去管魏京生和王丹這些民運人士，這是共產黨的病毒。新中國聯邦只有一種可能去參加類似的會議，就是國會山、白宮、五角大樓或者國務院專門開新聞記者會見我們，一對一，或者新中國聯邦派代表到那兒去，集體被承認。
+戰友之家圖文摘要及小語種組
 
-*翻譯：【班仔】 校對：【Winston Jackson】字幕：【小螺號】編輯:【GM31】*
+[English\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101900/English_0708_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101900/English_0708_CCP_Virus_Updates-2.pdf)
 
-*戰友之家玫瑰園小隊製作*
+[French\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101855/French_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101855/French_0708_CCP_Virus_Updates-1.pdf)
+
+[Japanese\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101912/Japanese_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101912/Japanese_0708_CCP_Virus_Updates-1.pdf)
+
+[Korean\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101908/Korean_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101908/Korean_0708_CCP_Virus_Updates-1.pdf)
+
+[Russian\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101917/Russian_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101917/Russian_0708_CCP_Virus_Updates-1.pdf)
+
+[Spanish\_0708\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101904/Spanish_0708_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03101904/Spanish_0708_CCP_Virus_Updates-1.pdf)
+
+
 
 0
