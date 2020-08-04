@@ -1,27 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國欲解除對俄羅斯制裁，釋放“冰釋前嫌”信號
-`2020-08-03 11:06 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/284183/)
+## 川普總統關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令
+`2020-08-04 00:10 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/284725/)
 
-作者：喜馬拉雅聯盟加拿大農場熊媽媽
+新聞簡述：[該行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-aligning-federal-contracting-hiring-practices-interests-american-workers/)旨在為美國工人創造就業機會，包括在大流行造成的經濟錯位期間通過聯邦合同創造的就業機會, 並防止對美國工人造成不利影響。每個執行部門和機構的負責人應審查有關聯邦採購的經濟和效率以及國家安全的外國勞工雇用慣例或離岸慣例，並在必要時並根據適用法律並在必要時提出行動建議。提高聯邦採購的經濟性和效率，保護國家安全。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16204044/Trump_sign_EO169_SMALLER.jpg)
+中英文對照全文：
 
-校對：HUH
-![](https://lh3.googleusercontent.com/151qS7rOKwqu3hxdME0h-_zgv6wYYdU3Qd7jMLUcRFnWn6xnSB2v6zY4kyrMQWb2M6MCnF9OXj1JakOQx_MuD91Zo3f4-DqzN-Mk6gOIsbw5JPpWOykIRPefPmFajJtGT5rj1AQ)圖片來源：rbc.ru 
-8月3日，俄羅斯經濟報報導，美國國家安全顧問羅伯特·奧布賴恩認為，“鑑於俄羅斯威脅美國及其盟國的行動”對俄採取限制性措施是必要的，但如果莫斯科“放棄在國外進行侵略”，這些措施將變得多餘。奧布萊恩在《華盛頓郵報》的一篇文章中說，“莫斯科和華盛頓之間的友好關係不僅對兩國有益，而且對整個世界都有益。”
+**Executive Order on Aligning Federal Contracting and Hiring Practices With the Interests of American Workers**
 
-滅共四騎士之一的奧布萊恩表示，“自裡根時代以來，沒有哪位總統像現任國家元首一樣表現出對莫斯科如此果斷的決定。就像裡根一樣，特朗普總統正在尋找與俄羅斯另一條道路，在這條道路上俄羅斯能夠放棄對國外的侵略，並成為美國和歐洲的友好夥伴。在這種情況下，兩國之間的貿易將蓬勃發展，將沒有必要對莫斯科進行製裁。”
+Issued on: August 3, 2020
 
-同時，這位顧問強調，鑑於俄羅斯之前採取的行動威脅到了美國及其盟國，華盛頓採取的限制性措施是必要的。奧布萊恩引用“干涉西方民主選舉”和“參與對美國和盟國的網絡攻擊”作為這些行動的例子。由於莫斯科涉嫌干預2016年美國總統大選，美國對俄羅斯實施了製裁。自2019年9月以來，美國已無限期禁止政府機構使用俄羅斯私人公司卡巴斯基實驗室的軟件，華盛頓聲稱，此類軟件對美國安全構成了威脅。卡巴斯基拒絕了這些指控，並認為該禁令是基於“未經證實的指控，謠言和猜測”。
+**關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令**
 
-特朗普顧問回顧了華盛頓針對指控俄羅斯參與前蘇聯軍事情報官Sergei Skripal上校和他的女兒Julia在英國Salisbury中毒事件所採取的措施。美國決定驅逐數十名俄羅斯外交官，並關閉俄羅斯駐舊金山總領館以及華盛頓和紐約的領事館。
+頒布日期：2020年8月3日
 
-奧布萊恩的文章還說，美國退出了《中程核力量條約》及《開放天空條約》，因為俄羅斯違反了這些協議條款。莫斯科也投訴美國未遵守《中程核力量條約》，俄方尤其不滿美國在羅馬尼亞部署Mk-41發射器，稱這些裝置有可能發射違反協定射程的導彈。至於《開放天空條約》，俄方表示嚴格在協議框架內行事，俄國防部認為，美國決定退出該條約是意圖控制所有空間並試圖避免別國對美國領土的檢查。 《開放天空條約》是在2002年由美俄及另外32個多為北約成員的國家簽署，該條約允許簽字國之間進行一定數量的偵察飛行，在相互同意的條件下對當事國的軍用設施及軍隊活動拍照並蒐集其它信息，由此，可在簽字國之間建立透明和互信。
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
-不過，奧布萊恩補充說，美國“審慎樂觀”地表示，美國將能夠與俄羅斯和中共國締結軍控協議。俄羅斯方面早些時候宣布準備與美國就擴大《進一步減少和限制戰略進攻性武器的措施條約》（START-3）達成協議，美國則堅持要求中共國加入該軍控條約，但中共表示，如果美國將核武庫減少到中共國的水平，才准備加入莫斯科和華盛頓之間的談判進程。
+根據美利堅合眾國憲法和法律賦予我的總統權力，現命令如下：
 
-目前，全球滅共進行時，美國為首的“五眼聯盟”、歐盟、日韓、印度、東歐、南中國海鄰近國家在針對中共的行動上已經達成共識，已形成波蘭為主的東歐、哈薩克斯坦為主的中亞五國、南中國海臨海國家三個戰略區域對中共的包圍。近日，美國在疫情、軍事以及貿易方面不斷向俄羅斯釋放積極信號，如果俄羅斯全面加入全球滅共的隊伍，無論從追查CCP病毒真相上、政治上、輿論上、金融上、媒體上、外交上、軍事上，從全球戰略格局來看，中共將真正四面楚歌。
+Section 1.  Policy.  It is the policy of the executive branch to create opportunities for United States workers to compete for jobs, including jobs created through Federal contracts. These opportunities, particularly in regions where the Federal Government remains the largest employer, are especially critical during the economic dislocation caused by the 2019 novel coronavirus (COVID-19) pandemic.  When employers trade American jobs for temporary foreign labor, for example, it reduces opportunities for United States workers in a manner inconsistent with the role guest-worker programs are meant to play in the Nation’s economy.
 
-雖然，中共對外聲明中俄兩國是“新時代全面戰略協作夥伴關係”，但是近日俄媒報導，俄羅斯已經明顯減少了參與中共最引以為豪的“一帶一路”項目的實施，甚至俄羅斯外長謝爾蓋·拉夫羅夫都沒有參加6月18日中共舉行的“一帶一路”倡議會議，俄媒甚至認為莫斯科有可能結束對這個項目的參與。特別是中共在CCP病毒方面對全球的舉動和瘋狂讓俄羅斯徹底醒悟，與美國為首的正義力量站在一起是歷史的正確選擇。
+第1節。政策。行政部門的政策是為美國工人創造競爭機會，包括通過聯邦合同創造的就業機會。這些機會，特別是在聯邦政府仍是最大雇主的地區，在因2019年新型冠狀病毒（COVID-19）大流行而造成的經濟混亂中尤其重要。例如，當雇主將美國的工作換成臨時的外國勞工時，這會減少美國工人的機會，其方式與客工計劃在國家經濟中的作用不符。
+
+Sec. 2.  Review of Contracting and Hiring Practices.  (a)  The head of each executive department and agency (agency) that enters into contracts shall review, to the extent practicable, performance of contracts (including subcontracts) awarded by the agency in fiscal years 2018 and 2019 to assess:
+
+第2節。審查合同和雇用慣例。 （a）簽訂合同的每個執行部門和代理機構（機構）的負責人應在切實可行的範圍內審查該機構在2018和2019財年授予的合同（包括分包合同）的績效，以評估：
+
+(i)   whether contractors (including subcontractors)  used temporary foreign labor for contracts performed in the United States, and, if so, the nature of the work performed by temporary foreign labor on such contracts; whether opportunities for United States workers were affected by such hiring; and any potential effects on the national security caused by such hiring; and
+
+(i)   承包商（包括分包商）是否在美國執行的合同中使用了臨時的外國勞工，以及，如果是，臨時外國勞工對此類合同進行的工作的性質；這種雇用是否影響了美國工人的機會；這種雇用對國家安全的任何潛在影響；和
+
+(ii)  whether contractors (including subcontractors)  performed in foreign countries services previously performed in the United States, and, if so, whether opportunities for United States workers were affected by such offshoring; whether affected United States workers were eligible for assistance under the Trade Adjustment Assistance program authorized by the Trade Act of 1974; and any potential effects on the national security caused by such offshoring.
+
+(ii)  承包商（包括分包商）是否在國外提供過服務，而以前曾在美國提供過服務；如果是，那麼這種離岸業務是否影響了美國工人的機會；受影響的美國工人是否有資格根據1974年《貿易法》授權的貿易調整援助計劃獲得援助；以及此類離岸對國家安全的任何潛在影響。
+
+(b)  The head of each agency that enters into contracts shall assess any negative impact of contractors’ and subcontractors’ temporary foreign labor hiring practices or offshoring practices on the economy and efficiency of Federal procurement and on the national security, and propose action, if necessary and as appropriate and consistent with applicable law, to improve the economy and efficiency of Federal procurement and protect the national security.
+
+(b)  每個機構的簽訂合同的負責人應評估承包商和分包商的臨時外國勞工雇用實踐或離岸外包實踐對聯邦採購的經濟和效率以及對國家安全的任何負面影響，並在必要時建議採取行動。適當並符合適用法律，以改善聯邦採購的經濟性和效率並保護國家安全。
+
+(c)  The head of each agency shall, in coordination with the Director of the Office of Personnel Management, review the employment policies of the agency to assess the agency’s compliance with Executive Order 11935 of September 2, 1976 (Citizenship Requirements for Federal Employment), and section 704 of the Consolidated Appropriations Act, 2020, Public Law 116-93.
+
+(c)  每個機構的負責人應與人事管理辦公室主任協調，審查機構的雇傭政策，以評估機構是否遵守1976年9月2日第11935號行政命令（聯邦就業的公民身份要求） ，以及2020年《綜合撥款法》第704-93節的第704節。
+
+(d)  Within 120 days of the date of this order, the head of each agency shall submit a report to the Director of the Office of Management and Budget summarizing the results of the reviews required by subsections (a) through (c) of this section; recommending, if necessary, corrective actions that may be taken by the agency and timeframes to implement such actions; and proposing any Presidential actions that may be appropriate.
+
+(d)  在該命令發出之日起的120天內，每個機構的負責人應向管理和預算辦公室主任提交一份報告，總結本條(a)至(c)項要求的審查結果部分；必要時機構可以糾正措施和更改實施這些措施的時間表；並提出任何適當的總統行動。
+
+Sec. 3.  Measures to Prevent Adverse Effects on United States Workers.  Within 45 days of the date of this order, the Secretaries of Labor and Homeland Security shall take action, as appropriate and consistent with applicable law, to protect United States workers from any adverse effects on wages and working conditions caused by the employment of H-1B visa holders at job sites (including third-party job sites), including measures to ensure that all employers of H-1B visa holders, including secondary employers, adhere to the requirements of section 212(n)
+
+(1) of the Immigration and Nationality Act (8 U.S.C. 1182(n)(1)).
+
+第3節。防止對美國工人造成不利影響的措施。在該命令發出之日起45天內，勞動和國土安全局局長應採取適當措施並遵守適用法律，以保護美國工人免受因雇用在職的（包括第三方工作地點）H-1B簽證持有人，包括確保所有H-1B簽證持有人的雇主（包括二級雇主）不利影響，遵守第212(n)節要求的措施(1)《移民和國籍法》(8 U.S.C. 1182(n)(1))。
+
+Sec. 4.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
+
+第4節。一般規定。 （a）此命令中的任何內容均不得解釋為損害或以其他方式影響：
+
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
+
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(i)   法律授予執行部門或機構或其負責人的權力；或
+
+(ii)  管理和預算辦公室主任與預算，行政或立法提案有關的職能。
+
+(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(b)  該命令應根據適用法律並在適當情況下執行。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+(c)  該命令無意於也不會創造任何權利或利益，無論是實質性的還是程序性的在法律上或衡平法下執行，任何一方均可對美國，其部門，機關或實體，其高級職員，僱員，代理商或任何其他人。
+
+DONALD J. TRUMP
+
+THE WHITE HOUSE,August 3, 2020.
+
+唐納德·川普
+
+白宮
+
+2020年8月3日
+
+*翻譯：【Guanghan】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

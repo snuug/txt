@@ -1,36 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共秘密幫助巴基斯坦建病毒實驗室研發生化武器
-`2020-08-03 13:18 GM77` [轉載自GNews](https://gnews.org/zh-hant/284306/)
+## 川普總統關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令
+`2020-08-04 00:10 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/284725/)
 
-編撰：臺灣荔枝、文盲2020、天使、文白、文肯尼
+新聞簡述：[該行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-aligning-federal-contracting-hiring-practices-interests-american-workers/)旨在為美國工人創造就業機會，包括在大流行造成的經濟錯位期間通過聯邦合同創造的就業機會, 並防止對美國工人造成不利影響。每個執行部門和機構的負責人應審查有關聯邦採購的經濟和效率以及國家安全的外國勞工雇用慣例或離岸慣例，並在必要時並根據適用法律並在必要時提出行動建議。提高聯邦採購的經濟性和效率，保護國家安全。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16204044/Trump_sign_EO169_SMALLER.jpg)
+中英文對照全文：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03130458/2-3.png)
+**Executive Order on Aligning Federal Contracting and Hiring Practices With the Interests of American Workers**
 
-澳大利亞媒體報道稱，巴基斯坦和中共已經達成了一項秘密協議，以擴大潛在的生物戰能力，包括開展與致命炭疽病毒有關的研究項目，但巴基斯坦將其視為“出於政治動機的虛假新聞報道”。
+Issued on: August 3, 2020
 
-澳大利亞調查報刊《The Klaxon》在7月23日發表的一篇文章中說，中共武漢病毒研究所已與巴基斯坦軍方國防科學技術組織（DESTO）簽署了為期三年的秘密協議，以合作研究“新型傳染病”。由於新型冠狀病毒被認為起源於武漢，因此武漢病毒學研究所最近幾個月引起了國際的廣泛關註。曾經有人猜測這種疾病很可能是從那個實驗室釋放的，奇怪的是大多數專家都對這種理論不屑一顧。
+**關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令**
 
-巴基斯坦外交部周日在一份聲明中稱，該文章是“出於政治動機的虛假新聞報道”，並稱該文章是“毫無根源的捏造和罔顧事實”。 報告中提到的巴基斯坦生物安全三級實驗室（BSL-3）並沒有什麽秘密。巴基斯坦聲稱一直在與《禁止生物武器公約》（BTWC）締約國分享該設施的信息。並且提交了《建立信任措施》。
+頒布日期：2020年8月3日
 
-報告顯示，該設施旨在對疾病爆發的調查、改進、診斷以及保護人民而建設的系統。 巴基斯坦外交部表示，巴基斯坦嚴格遵守其BTWC義務，並一直是強有力的核查機制的最堅定支持者之一，以確保該公約各締約國完全遵守該條約。
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
-BTWC是1975年禁止生產化學武器和生物武器的多邊裁軍條約。 The Klaxon引述匿名情報人士的話說，由中共資助的項目已經進行了“成功的土壤取樣試驗”，以分離蘇雲金芽孢桿菌（Bacillus Thuringiensis），它與炭疽芽孢桿菌（炭疽，一種已分類的生物戰劑）具有“驚人的相似性”。
+根據美利堅合眾國憲法和法律賦予我的總統權力，現命令如下：
 
-一位消息人士說：“考慮到蘇雲金芽孢桿菌（Bacillus Thuringiensis）與炭疽桿菌（一種已分類的生物戰劑）之間驚人的相似性，改良後處理細菌的專門技術可以讓潛在的進攻性生物程序多樣化。” 報告稱，武漢實驗室正在“向巴基斯坦科學家提供有關病原體和生物信息學操作的大規模培訓，以幫助巴基斯坦建立自己的病毒收集數據庫。”
+Section 1.  Policy.  It is the policy of the executive branch to create opportunities for United States workers to compete for jobs, including jobs created through Federal contracts. These opportunities, particularly in regions where the Federal Government remains the largest employer, are especially critical during the economic dislocation caused by the 2019 novel coronavirus (COVID-19) pandemic.  When employers trade American jobs for temporary foreign labor, for example, it reduces opportunities for United States workers in a manner inconsistent with the role guest-worker programs are meant to play in the Nation’s economy.
 
-一位情報人士說：“這可能有助於巴基斯坦提高其病毒基因鑒定，獲取危險微生物的能力以及使用基因組學工具進行研究傳染病的能力。”文章援引匿名國防消息來源的話說，中共希望巴基斯坦與印度接觸，它想在外國土壤上進行潛在的危險實驗，而不使其本國人民承受風險。
+第1節。政策。行政部門的政策是為美國工人創造競爭機會，包括通過聯邦合同創造的就業機會。這些機會，特別是在聯邦政府仍是最大雇主的地區，在因2019年新型冠狀病毒（COVID-19）大流行而造成的經濟混亂中尤其重要。例如，當雇主將美國的工作換成臨時的外國勞工時，這會減少美國工人的機會，其方式與客工計劃在國家經濟中的作用不符。
 
-**編者評論：**
+Sec. 2.  Review of Contracting and Hiring Practices.  (a)  The head of each executive department and agency (agency) that enters into contracts shall review, to the extent practicable, performance of contracts (including subcontracts) awarded by the agency in fiscal years 2018 and 2019 to assess:
 
-郭先生在7月30日與韓國喜馬拉雅農場戰友連線中爆料，這個病毒在改變世界很多國家的格局，共產黨自己在作死，共產黨在不到6個月的時間裏，在伊朗建立了P3實驗室，幫助埃及建設了P3實驗室，還在幫中東某個國家的地下設施中建設實驗室，且目前已初具規模。巴基斯坦在3年前就已經和中共簽訂了要建生化武器基地的協議，北朝鮮也正在建設中，這些國家要生化武器，他們就是要幹掉美國和以色列還有猶太人，而這些國家將要面對一個選擇，等待死亡，或是被中國共產黨一次又一次的生化危機給滅了，或是他們聯合起來把共產黨這個獨裁體制給滅了，否則的話，美國、以色列等正義國家沒有第三個選擇。
+第2節。審查合同和雇用慣例。 （a）簽訂合同的每個執行部門和代理機構（機構）的負責人應在切實可行的範圍內審查該機構在2018和2019財年授予的合同（包括分包合同）的績效，以評估：
 
-郭先生還說“人類面臨著前所未有的正真的巨大的邪惡與綁架，不僅是中國人民，過去的6個月，人類付出了這麽大的代價，但是很多國家還沒有醒過來，政治家、政治家說客們以及還有一幫大財閥們控制著媒體，控制著金融，共產黨和他們攪和在一起。他們沒有想到，全世界最偉大的是美利堅合眾國，全人類最有影響力的猶太民族，他們根本沒有弄明白，這個生化襲擊，只是剛剛開始，接下來會一直重復，可能從CCP病毒變成無數個變形了的CCP病毒，他們會做出更多的病毒，攻擊美國和猶太民族，所以一切都只是剛剛開始。記住這一天郭先生的爆料，未來這些都會被驗證的”。
+(i)   whether contractors (including subcontractors)  used temporary foreign labor for contracts performed in the United States, and, if so, the nature of the work performed by temporary foreign labor on such contracts; whether opportunities for United States workers were affected by such hiring; and any potential effects on the national security caused by such hiring; and
 
-中共獨裁暴政的本性引發災難無數，它一直對14億中國人民進行生命控制、經濟控制、政治控制、身體控制及思想控制。現在中共將這種控制通過實驗室的病毒輸出到全世界，中共以為他們的所作所為不會被世界所討伐，但他們的如意算盤打錯了，他們的種種惡行已然昭然若揭，全世界的正義力量正在不斷地醒過來，他們開始明白，當今自由世界的首要挑戰就是中共，不滅掉中共，世界將永遠不可能有安全。以美國為首的世界民主聯盟必將聯合起來共同討伐和鏟除中共邪惡體制。
+(i)   承包商（包括分包商）是否在美國執行的合同中使用了臨時的外國勞工，以及，如果是，臨時外國勞工對此類合同進行的工作的性質；這種雇用是否影響了美國工人的機會；這種雇用對國家安全的任何潛在影響；和
 
-相關鏈接*：*
-[https://www.news18.com/news/india/news-of-chinese-lab-creating-anthrax-like-pathogens-in-pakistan-fake-says-its-foreign-office-2736129.html](https://www.news18.com/news/india/news-of-chinese-lab-creating-anthrax-like-pathogens-in-pakistan-fake-says-its-foreign-office-2736129.html)
+(ii)  whether contractors (including subcontractors)  performed in foreign countries services previously performed in the United States, and, if so, whether opportunities for United States workers were affected by such offshoring; whether affected United States workers were eligible for assistance under the Trade Adjustment Assistance program authorized by the Trade Act of 1974; and any potential effects on the national security caused by such offshoring.
+
+(ii)  承包商（包括分包商）是否在國外提供過服務，而以前曾在美國提供過服務；如果是，那麼這種離岸業務是否影響了美國工人的機會；受影響的美國工人是否有資格根據1974年《貿易法》授權的貿易調整援助計劃獲得援助；以及此類離岸對國家安全的任何潛在影響。
+
+(b)  The head of each agency that enters into contracts shall assess any negative impact of contractors’ and subcontractors’ temporary foreign labor hiring practices or offshoring practices on the economy and efficiency of Federal procurement and on the national security, and propose action, if necessary and as appropriate and consistent with applicable law, to improve the economy and efficiency of Federal procurement and protect the national security.
+
+(b)  每個機構的簽訂合同的負責人應評估承包商和分包商的臨時外國勞工雇用實踐或離岸外包實踐對聯邦採購的經濟和效率以及對國家安全的任何負面影響，並在必要時建議採取行動。適當並符合適用法律，以改善聯邦採購的經濟性和效率並保護國家安全。
+
+(c)  The head of each agency shall, in coordination with the Director of the Office of Personnel Management, review the employment policies of the agency to assess the agency’s compliance with Executive Order 11935 of September 2, 1976 (Citizenship Requirements for Federal Employment), and section 704 of the Consolidated Appropriations Act, 2020, Public Law 116-93.
+
+(c)  每個機構的負責人應與人事管理辦公室主任協調，審查機構的雇傭政策，以評估機構是否遵守1976年9月2日第11935號行政命令（聯邦就業的公民身份要求） ，以及2020年《綜合撥款法》第704-93節的第704節。
+
+(d)  Within 120 days of the date of this order, the head of each agency shall submit a report to the Director of the Office of Management and Budget summarizing the results of the reviews required by subsections (a) through (c) of this section; recommending, if necessary, corrective actions that may be taken by the agency and timeframes to implement such actions; and proposing any Presidential actions that may be appropriate.
+
+(d)  在該命令發出之日起的120天內，每個機構的負責人應向管理和預算辦公室主任提交一份報告，總結本條(a)至(c)項要求的審查結果部分；必要時機構可以糾正措施和更改實施這些措施的時間表；並提出任何適當的總統行動。
+
+Sec. 3.  Measures to Prevent Adverse Effects on United States Workers.  Within 45 days of the date of this order, the Secretaries of Labor and Homeland Security shall take action, as appropriate and consistent with applicable law, to protect United States workers from any adverse effects on wages and working conditions caused by the employment of H-1B visa holders at job sites (including third-party job sites), including measures to ensure that all employers of H-1B visa holders, including secondary employers, adhere to the requirements of section 212(n)
+
+(1) of the Immigration and Nationality Act (8 U.S.C. 1182(n)(1)).
+
+第3節。防止對美國工人造成不利影響的措施。在該命令發出之日起45天內，勞動和國土安全局局長應採取適當措施並遵守適用法律，以保護美國工人免受因雇用在職的（包括第三方工作地點）H-1B簽證持有人，包括確保所有H-1B簽證持有人的雇主（包括二級雇主）不利影響，遵守第212(n)節要求的措施(1)《移民和國籍法》(8 U.S.C. 1182(n)(1))。
+
+Sec. 4.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
+
+第4節。一般規定。 （a）此命令中的任何內容均不得解釋為損害或以其他方式影響：
+
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
+
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(i)   法律授予執行部門或機構或其負責人的權力；或
+
+(ii)  管理和預算辦公室主任與預算，行政或立法提案有關的職能。
+
+(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(b)  該命令應根據適用法律並在適當情況下執行。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+(c)  該命令無意於也不會創造任何權利或利益，無論是實質性的還是程序性的在法律上或衡平法下執行，任何一方均可對美國，其部門，機關或實體，其高級職員，僱員，代理商或任何其他人。
+
+DONALD J. TRUMP
+
+THE WHITE HOUSE,August 3, 2020.
+
+唐納德·川普
+
+白宮
+
+2020年8月3日
+
+*翻譯：【Guanghan】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
