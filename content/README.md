@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.MD) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,7 +9,7 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.MD) 
 
 
 ## 頁面 1/28 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [28](/content/README-28.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
