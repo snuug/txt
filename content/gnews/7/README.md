@@ -1,34 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美駐華使館8月4日開始拍賣取貨截止8月19日，然後會怎樣呢？
-`2020-08-03 12:02 Diago` [轉載自GNews](https://gnews.org/zh-hant/284237/)
+## SpaceX宇航員安全返航
+`2020-08-03 12:52 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/284290/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03114945/%E5%B0%81%E9%9D%A2-10.jpg)
-作者：Diago
+[美國宇航局（NASA）](https://www.youtube.com/watch?v=qDjvuBah3K0)宇航員羅伯特·貝恩肯和道格拉斯·赫爾利於美國東部時間8月2日星期日下午2點48分在佛羅里達州彭薩科拉海岸附近乘坐「奮進號」太空艙濺落。
 
-據網易2020年8月3日18:22發佈的[美國駐華大使館被曝拍賣財產](https://3g.163.com/news/article/FJ4HRO0K0521MV2M.html)：
+*翻譯【Dlrow】校對【文Ink】字幕【Naomi】*
 
-【據網傳圖片顯示，上述拍賣活動，定於8月4日在位於北京順義區的美國使館倉庫舉行，拍賣物品包含住宅傢俱、電器、電腦以及其有破損物品等。】
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03115012/2020_0803_f1f810a5j00qehgsp000zc000ej00irm.jpg)
-經查美國駐華使館在此前也曾拍賣過二手物品，單從這起事件無法證明美國即將關閉駐華使館。
+*戰友之家玫瑰園小隊出品*
 
-我們再看一下另一則新聞——[美駐成都領館外交官及其家屬一個月內離華-閩南網](http://www.xkgz.com/newsText.asp?strId=13958&amp;inPage=2)（來源環球網2020年7月28日9:21）：　【法新社27日下午一篇題為“中國官方接管關閉的美國駐成都領事館”的報導稱，美國國務院發言人對法新社表示，（美駐成都使領館）使團的外交官及其家屬將在8月27日前離開中國。】
+相關新聞：
 
-美國駐成都領事館領事及隨員一行會不會與北京駐華使館的館員們一同離開？ 我們沒有辦法對未來要發生的事情進行預測，但是目前的情況基本上就是美國在對著中共打明牌，我們再重溫一下[5/28/2020 路德時評（路博艾)：川普明天公佈對中共的具體制裁措施；川普發佈行政命令管控美社交媒體；美英澳加四國發聯合聲明譴責中共強推港國安法；11:52時間點](https://youtu.be/Mw2WfpxxDNw?t=712)提到的美國將對中共採取的措施——取消香港自貿區 ，制裁中共、香港偽政權核心成員 ，凍結中共偽政權海外資產 ，南海限時強拆 ，港幣、人民幣與美元脫鉤 ，宣佈中共為偽政權 ，美中斷交 ，中概股強行退市還錢 ，制裁中共盜國賊海外資產 ，美軍進駐香港 ，推倒防火牆 ，斬首。
+SpaceX公司再次發射了60顆Starlink衛星 [https://gnews.org/zh-hant/224490/](https://gnews.org/zh-hant/224490/)
 
+【快訊】Dragon Demo-2飛船成功與國際空間站對接 [https://gnews.org/zh-hant/218850/](https://gnews.org/zh-hant/218850/)
 
+【快訊】美國再次創造歷史，NASA和SpaceX成功將宇航員送入太空 [https://gnews.org/zh-hant/217959/](https://gnews.org/zh-hant/217959/)
 
-我們可以想像一下：2020年8月27日前美國關閉駐華使館，並與中共斷交，然後宣佈中共為偽政權，然後凍結中共偽政權海外資產，然後制裁中共盜國賊海外資產，然後推倒防火牆，然後斬首。
+怎樣線上參與NASA的 「美國發射」 計劃 [https://gnews.org/zh-hant/215643/](https://gnews.org/zh-hant/215643/)
 
-滅共之箭已經在弦上，而且開弓不會再有回頭箭了，但是中共還有沒有別的辦法？沒了！
+川普總統在聽取SpaceX Demo-2發射彙報中的講話（2020.05.27）[https://gnews.org/zh-hant/?p=215549](https://gnews.org/zh-hant/?p=215549)
 
-不管怎樣，中共這個人類歷史上的最邪惡的存在離開這個世界的日子已經開始了倒計時了，那麼美國駐華使館的人員還會回來嗎？我們借用一下成都領事館離開時的標語——
+【快訊】NASA和SpaceX發射SpaceX Demo-2進入倒計時，【更新】因為天氣原因發射推遲至週六 [https://gnews.org/zh-hant/214602/](https://gnews.org/zh-hant/214602/)
 
-新中國聯邦加油！
+NASA在大流行病期間邀請所有人5月27日線上觀看“美國啟動”計劃 [https://gnews.org/zh-hant/214139/](https://gnews.org/zh-hant/214139/)
 
-WE WILL BE BACK!
-
-（文章內容僅代表作者個人觀點）
+美國重新領先太空！彭斯副總統連線NASA 負責人及宇航員 [https://gnews.org/zh-hant/208759/](https://gnews.org/zh-hant/208759/)
 
 0
