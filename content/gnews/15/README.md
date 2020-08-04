@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/07/09 CCP病毒每日疫情直播簡報
-`2020-08-03 10:51 GM62` [轉載自GNews](https://gnews.org/zh-hant/284068/)
+## 美駐華使館8月4日開始拍賣取貨截止8月19日，然後會怎樣呢？
+`2020-08-03 12:02 Diago` [轉載自GNews](https://gnews.org/zh-hant/284237/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03114945/%E5%B0%81%E9%9D%A2-10.jpg)
+作者：Diago
 
-[English\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104601/English_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104601/English_0709_CCP_Virus_Updates-1.pdf)
+據網易2020年8月3日18:22發佈的[美國駐華大使館被曝拍賣財產](https://3g.163.com/news/article/FJ4HRO0K0521MV2M.html)：
 
-[French\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104606/French_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104606/French_0709_CCP_Virus_Updates-1.pdf)
+【據網傳圖片顯示，上述拍賣活動，定於8月4日在位於北京順義區的美國使館倉庫舉行，拍賣物品包含住宅傢俱、電器、電腦以及其有破損物品等。】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03115012/2020_0803_f1f810a5j00qehgsp000zc000ej00irm.jpg)
+經查美國駐華使館在此前也曾拍賣過二手物品，單從這起事件無法證明美國即將關閉駐華使館。
 
-[German\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104556/German_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104556/German_0709_CCP_Virus_Updates-1.pdf)
+我們再看一下另一則新聞——[美駐成都領館外交官及其家屬一個月內離華-閩南網](http://www.xkgz.com/newsText.asp?strId=13958&amp;inPage=2)（來源環球網2020年7月28日9:21）：　【法新社27日下午一篇題為“中國官方接管關閉的美國駐成都領事館”的報導稱，美國國務院發言人對法新社表示，（美駐成都使領館）使團的外交官及其家屬將在8月27日前離開中國。】
 
-[Japanese\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104624/Japanese_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104624/Japanese_0709_CCP_Virus_Updates-1.pdf)
-
-[Korean\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104615/Korean_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104615/Korean_0709_CCP_Virus_Updates-1.pdf)
-
-[Russian\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104611/Russian_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104611/Russian_0709_CCP_Virus_Updates-1.pdf)
-
-[Spanish\_0709\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104620/Spanish_0709_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03104620/Spanish_0709_CCP_Virus_Updates-1.pdf)
+美國駐成都領事館領事及隨員一行會不會與北京駐華使館的館員們一同離開？ 我們沒有辦法對未來要發生的事情進行預測，但是目前的情況基本上就是美國在對著中共打明牌，我們再重溫一下[5/28/2020 路德時評（路博艾)：川普明天公佈對中共的具體制裁措施；川普發佈行政命令管控美社交媒體；美英澳加四國發聯合聲明譴責中共強推港國安法；11:52時間點](https://youtu.be/Mw2WfpxxDNw?t=712)提到的美國將對中共採取的措施——取消香港自貿區 ，制裁中共、香港偽政權核心成員 ，凍結中共偽政權海外資產 ，南海限時強拆 ，港幣、人民幣與美元脫鉤 ，宣佈中共為偽政權 ，美中斷交 ，中概股強行退市還錢 ，制裁中共盜國賊海外資產 ，美軍進駐香港 ，推倒防火牆 ，斬首。
 
 
+
+我們可以想像一下：2020年8月27日前美國關閉駐華使館，並與中共斷交，然後宣佈中共為偽政權，然後凍結中共偽政權海外資產，然後制裁中共盜國賊海外資產，然後推倒防火牆，然後斬首。
+
+滅共之箭已經在弦上，而且開弓不會再有回頭箭了，但是中共還有沒有別的辦法？沒了！
+
+不管怎樣，中共這個人類歷史上的最邪惡的存在離開這個世界的日子已經開始了倒計時了，那麼美國駐華使館的人員還會回來嗎？我們借用一下成都領事館離開時的標語——
+
+新中國聯邦加油！
+
+WE WILL BE BACK!
+
+（文章內容僅代表作者個人觀點）
 
 0

@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多语言图文】2020/07/12 CCP病毒每日疫情直播简报
-`2020-08-03 11:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/284145/)
+## 21世紀知識青年又來一次上山下鄉？
+`2020-08-03 13:44 GM77` [轉載自GNews](https://gnews.org/zh-hant/284329/)
 
-戰友之家圖文摘要及小語種組
+編輯：文非
+審核：Lori文噠
 
-[English\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110223/English_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110223/English_0712_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03133927/1-8.jpg)
 
-[French\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110250/French_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110250/French_0712_CCP_Virus_Updates.pdf)
+為深入貫徹落實中共總書記習近平對青年工作的重要思想與“鄉村振興戰略規劃”，共青團中央要動員廣大青年投身鄉村振興，力爭3年內組織超過1000萬人次的大中專學生誌願下鄉。這是中共打算重走老路的標誌。
 
-[German\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110228/German_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110228/German_0712_CCP_Virus_Updates.pdf)
+![_106429922_hi031755309.jpg](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03133934/2-5.jpg)
 
-[Japanese\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110232/Japanese_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110232/Japanese_0712_CCP_Virus_Updates.pdf)
+1968年12月22日，中央人民廣播電臺預告，將廣播“毛主席最新指示”，這次廣播播出了《人民日報》將於次日發表的一篇報導：這篇報導介紹了甘肅省會寧縣城關鎮部份居民到農村安家落戶一事，其標題是“我們也有兩只手，不在城裏吃閑飯”。引述了毛澤東10多天前的指示：“**知識青年到農村去，接收貧下中農的再教育很有必要。要說服城裏的幹部和其他人，把自己的初中、高中、大學畢業的子女送到鄉下去，來一個動員。各地農村的同誌應當歡迎他們去**。”這就是“文革”時期毛澤東著名的“12.11指示”。毛的這一指示改變了整整一代城市青年和數千萬城市家庭的命運。
 
-[Korean\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110242/Korean_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110242/Korean_0712_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03134007/3-3.jpg)
 
-[Russian\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110238/Russian_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110238/Russian_0712_CCP_Virus_Updates.pdf)
+宮廷鬥爭貫穿中共整個歷史。當時正值文化大革命時期，中共上層正在進行你死我活的權力鬥爭，很明顯這次運動是把無業城鎮勞動力到農村安家落戶視為解決失業的辦法，將政府的壓力拋到農民的手中。據《知青檔案》統計，1968年至1978年間，全國上山下鄉的知識青年高達1623萬人之多。這場有組織的大規模人口遷移，對整整一代城鎮青年產生了深遠的影響。
 
-[Spanish\_0712\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110246/Spanish_0712_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03110246/Spanish_0712_CCP_Virus_Updates.pdf)
+目前中共的核心官員，多數都參加過這一次運動，了解過去的歷史便可知道中共在想什麽，當前的中共內外交困，失業率持續攀升，經濟更加萎靡，安置就業崗位成為了重大問題，中共的上層模仿毛澤東的行為，轉移就業矛盾，上山下山運動便提到日程上來了。
 
+人類的自由行動，時間才對我們顯示為流逝。如果沒有自由，那麽就沒有時間流逝可言。中共治下的70年禁錮了人民的思想和行動，它是老百姓無盡災難的源頭。對中國老百姓而言，這70年的時間仿佛凝固了，每一分每一秒都在重演悲劇。習近平視毛澤東為偶像，能做到像毛一樣“偉大”是習的夢想，偶像的行動在習的眼中都是值得仿效的，重走上山下鄉的老路是情理之中的。
 
+六七十年代的上山下鄉運動，對於紅二代和特權階級而言，是一次“野外散心”。可對於普通知青，這次運動徹底改變了他們的命運。著名作家嚴歌苓寫的知青小說《天浴》，該小說以文革為背景，講述了女知青文秀為了回城出賣自己身體，被幹部忽悠，最終走向毀滅的故事。而這僅僅是上山下鄉的運動的一個縮影。
+
+時代在變化，中共自從改革開放後，人民的思想也隨之變化，西方民主和資本主義思潮席卷了整個大陸，尤其在加入WTO後，金錢的作用日益凸顯。當下的國人信奉金錢而極少個人崇拜，中共的指令有效性已遠不如毛時代，下面人多數陽奉陰違，月經式的運動多數草草收場。由儉入奢易，由奢入儉難，目前很多城市青年過著衣食無憂的生活，在他們腦海裏上山下鄉運動好像只是歷史書的一部分。對他們而言，回到條件相對簡陋的鄉下是難以忍受的。
+
+歷史是科學性的，掌握歷史規律便可以洞察時代的發展。歷史的怪圈常常羈絆者人類前進的步伐，一次次重蹈覆轍。人們需要知道真實的歷史，才能避免被誤導。我們的爆料革命和Gnews、GTV正在傳播真相，努力喚醒更多的人。
+
+真相對於錯誤是有優越性的，哪怕是一個最胡思亂想的人，他思考的內容都有客觀的東西。所以其實一直做正確的時期並不是很難的事，真正難的是所有的事情都做錯，例如當下中共的種種行為，突破人們的想象力朝著反方向加速而去，正如郭先生在2020年5月21日直播中談到：“當年薄熙來說過一句話，**說共產黨誰能滅了共產黨？只有共產黨滅共產黨，共產黨裏邊出來個大惡棍、大流氓，才能滅了共產黨**。有道理，但還是出現個袁世凱吧。”
+
+參考鏈接：[https://www.modernchinastudies.org/cn/issues/past-issues/111-mcs-2003-issue-4/1320-2012-01-06-10-04-09.html](https://www.modernchinastudies.org/cn/issues/past-issues/111-mcs-2003-issue-4/1320-2012-01-06-10-04-09.html)
 
 0
