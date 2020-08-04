@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵先生与韩国战友连线直播
-`2020-08-03 15:45 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/284359/)
+## 科頓：抖音問題涉及美國國家安全，必須將其禁止
+`2020-08-03 18:05 GM65` [轉載自GNews](https://gnews.org/zh-hant/284428/)
 
-喜马拉雅联盟加拿大农场视频组制作
-
+翻譯：奔騰的長江字幕：laowu
+ 
 0

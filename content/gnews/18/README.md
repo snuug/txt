@@ -1,91 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令
-`2020-08-04 00:10 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/284725/)
+## 緊跟著爆料革命把世界的地獄變成天堂
+`2020-08-04 00:27 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/284748/)
 
-新聞簡述：[該行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-aligning-federal-contracting-hiring-practices-interests-american-workers/)旨在為美國工人創造就業機會，包括在大流行造成的經濟錯位期間通過聯邦合同創造的就業機會, 並防止對美國工人造成不利影響。每個執行部門和機構的負責人應審查有關聯邦採購的經濟和效率以及國家安全的外國勞工雇用慣例或離岸慣例，並在必要時並根據適用法律並在必要時提出行動建議。提高聯邦採購的經濟性和效率，保護國家安全。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16204044/Trump_sign_EO169_SMALLER.jpg)
-中英文對照全文：
+*作者：Cathy*
 
-**Executive Order on Aligning Federal Contracting and Hiring Practices With the Interests of American Workers**
+*校對: Julia Win；審核：海闊天空；Page：拱卒*
 
-Issued on: August 3, 2020
+聽了7月30日文貴先生和韓國戰友連線的轉播真的是感慨萬千。
+[!\[\](https://spark.adobe.com/page/2nrc4gL4ONhLP/images/7a087698-bb0b-422b-9b5a-e3020f7c67a4.jpg?asset_id=6eb5aa44-169b-4a7c-94c1-a29fad4709ea&amp;img_etag=%225e33565c45f1cfbf3e9846b99adfda0e%22&amp;size=1024)](https://spark.adobe.com/page/2nrc4gL4ONhLP/images/7a087698-bb0b-422b-9b5a-e3020f7c67a4.jpg?asset_id=6eb5aa44-169b-4a7c-94c1-a29fad4709ea&amp;img_etag=%225e33565c45f1cfbf3e9846b99adfda0e%22&amp;size=1024)
+文貴先生不但在爆料革命上能指引我們，在未來的新的時代也在引領著我們。推翻了共產黨的中國和世界將不再是過去的中國和世界了，因為壓在我們頭上的不是什麼社會主義，資本主義，而是正義和不正義的區別。文貴先生說：“共產黨很多事摟著呢，它也是傀儡。”所以說共產黨只是一個標誌，一個表象，背後的深層原因還有很多。他說：“一定行為的背後一定有資本在那塊。”“第一力量就是華爾街和華爾街背後的老大科技股，醫藥股背後的巨頭資本力量。”華爾街背後也有更深的力量，財富集團。也就是他說的“資本就是爹，資本就是正義。有資本有主義，沒資本沒主義。”。而這“小小的幾個人拿全人類的命開玩笑。”就可以決定開不開放強氯喹作為處方藥。因為“羥氯喹開放了大家都可以買非常便宜，這是多大機會，一萬億到兩萬億。”而“花5億到10億都能搞個總統出來，我憑啥讓給你兩萬億三萬億。”就是這股邪惡的力量控制著社會的運作。 “美國的FDC,CDC，最早給共產黨P4實驗室拿錢的。”所以現在的戰爭已經不是社會主義和資本主義，而是正義和不正義，有信仰和無信仰的戰爭。
 
-**關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令**
+如果推翻了共產黨，中國人的創造力被極大的解放出來，加上爆料革命，世界將會什麼樣子？文貴先生說了，“世界上60%的新產品和經濟是美國產的，生產地80%都是日本，韓國，中國。沒有共產黨的新中國一切都會顛倒過來。中國和亞洲七小龍產80 %高科技和必需用品。全世界的財富不是美國占68%，亞洲會占到70-75%。歐洲17萬億GDP，7-8億人口，美國的3億人口和美洲，加拿大至多佔30 +%，他們的消費市場從80%恢復到40-50%。中國和亞洲從15%的消費市場升到35-45%，非洲拉美洲佔10-15%就不錯了。”“亞洲未來一千年是和平生產技術發展最快的地方。”“中國沒有共產黨了有信仰了，有法治體係以後，世界進入了一個新的時代，勤勞的國家和不勤勞的國家。全世界毋庸置疑的最勤勞的中國人，韓國人，日本人，包括新加坡人，台灣人，香港人，誰能跟我們比啊。”
+[!\[\](https://spark.adobe.com/page/2nrc4gL4ONhLP/images/18c40aab-8be4-4188-911d-56091b8395f3.jpg?asset_id=d055c2f4-f256-406e-b880-0069ed6e7495&amp;img_etag=%22a5a6933cbedab3fc8a05d757a4b4c15c%22&amp;size=1024)](https://spark.adobe.com/page/2nrc4gL4ONhLP/images/18c40aab-8be4-4188-911d-56091b8395f3.jpg?asset_id=d055c2f4-f256-406e-b880-0069ed6e7495&amp;img_etag=%22a5a6933cbedab3fc8a05d757a4b4c15c%22&amp;size=1024)我們的諾亞方舟
 
-頒布日期：2020年8月3日
 
-By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
+而我們爆料革命就是走在世界最前沿的人，“如果人類不被消滅，世界上最大的受益體就是我們。我們隨時和世界的心臟同時跳動，跟世界的政治脈絡同時跳動，世界的經濟和我們隨時交融。”這次疫情之下“現在的gtv互聯網市場，一下把美國幾萬億市場抬起來了。Google,youtube都是幾千億往上漲，趕上這個新興的產業。整個社會都呆在家裡面，電視，媒體，還有一些特殊生活方式的改變。人類的行為模式，生活方式被逆轉的改變，誕生的新型經濟也是巨大的。”“這次人類大劫難，財富大分配，我們再抓不住機會，就回家種菜去吧。經濟不會崩潰，會區域型的不平衡的成長，同時誕生巨大的機會。就看你的選擇了。”經濟發展說到底就是科技的發展，人才的發展，只要有人就能夠發展。 “我相信財富，科技，資本得到的形式都會巨變。我們很幸運我們是走在人類最前端的那些人。看到了全世界最大的政治經濟資本各種遊戲的最後一次較量。將誕生人類歷史上萬年的地球將面臨一個新的選擇，我不相信社會主義會存在了，我也不相信資本主義還這樣存在。我們的人生將豐富多采，每時每刻都產生巨大的變化。”這就是我們現在所處的時代。舊的體制在消亡，新的體制在建立。被舊的世界秩序所壓制的經濟、科技都會前所未有的發展，也許我們會迎來外星人帶來的科技和真相，人類的世界觀會從新改變。這一切都在推翻中共的路上不斷的發展著，這個歷史的趨勢是誰也擋不住的。 “我們缺的是信仰，是法治，是人性。”“你不能拒絕我們，我們歷史定位，未來的政治價值，代表的民意沒人能拒絕。讓人認可這不是我們追求的，共產黨滅了我們啥都有。”
 
-根據美利堅合眾國憲法和法律賦予我的總統權力，現命令如下：
+所以現在最緊要的就是推翻共產黨的統治，這是人類解放的第一步。 “共產黨是人類有史以來最大的惡魔，它對人類要幹的事情是你想像不到的。人類面臨萬年以來不遇的巨大威脅和挑戰。”“中國不存在閉關鎖國，這個國已經完全地獄化了。地獄有三道鎖，心霾，政府完全魔鬼化了，整個中國人沒有信仰製造的這個環境。”“中國現在的外交就是吹騙假，什麼都不是就是一個傻叉。這幫狗屎領導了中國最老實的老百姓。只有奴役中國人才能維護它血色的政權。”而“過去六個月人類面臨巨大威脅沒有醒過來。政治家，大財閥們控制著媒體，控制著金融，和共產黨勾結在一起，但他們沒有想到人類最偉大的權利就是美利堅共和國，全人類最有影響力的猶太民族，他們沒明白這個生化危機只是一個開始，會再來再來。”“共產黨在過去六個月內，在伊朗建設一個快要建成的P3實驗室，跟香港實驗室一個級別。正在幫助埃及建設P3實驗室，正在幫助中東的某個國家建地下室，已經挖了三百多米，巴基斯坦建生化武器基地，北朝鮮正在建設中，這五個國家第一干的就是美國，只要你惹我，老子就給你家放毒去。最簡單的成本，殺傷力最強，最不可控。第二，幹猶太人。所有的美國人，以色列人面臨一個最根本的選擇，一等待死亡，一次又一次的生化襲擊， 二把共產黨給滅了。沒有第三個選擇。”在這個過程中“中共和西方的醫藥大佬死多人符合他們的戰略意義，這個邪惡的集團你們可得看明白了。”所以現在正是人類生死存亡的危急時刻，只要我們團結在一起，緊跟著爆料革命，堅持到最後，就會看到勝利的曙光會一點一點透過來，我們也會迎來永久的和平和勝利，把世界的地獄變成天堂。
 
-Section 1.  Policy.  It is the policy of the executive branch to create opportunities for United States workers to compete for jobs, including jobs created through Federal contracts. These opportunities, particularly in regions where the Federal Government remains the largest employer, are especially critical during the economic dislocation caused by the 2019 novel coronavirus (COVID-19) pandemic.  When employers trade American jobs for temporary foreign labor, for example, it reduces opportunities for United States workers in a manner inconsistent with the role guest-worker programs are meant to play in the Nation’s economy.
-
-第1節。政策。行政部門的政策是為美國工人創造競爭機會，包括通過聯邦合同創造的就業機會。這些機會，特別是在聯邦政府仍是最大雇主的地區，在因2019年新型冠狀病毒（COVID-19）大流行而造成的經濟混亂中尤其重要。例如，當雇主將美國的工作換成臨時的外國勞工時，這會減少美國工人的機會，其方式與客工計劃在國家經濟中的作用不符。
-
-Sec. 2.  Review of Contracting and Hiring Practices.  (a)  The head of each executive department and agency (agency) that enters into contracts shall review, to the extent practicable, performance of contracts (including subcontracts) awarded by the agency in fiscal years 2018 and 2019 to assess:
-
-第2節。審查合同和雇用慣例。 （a）簽訂合同的每個執行部門和代理機構（機構）的負責人應在切實可行的範圍內審查該機構在2018和2019財年授予的合同（包括分包合同）的績效，以評估：
-
-(i)   whether contractors (including subcontractors)  used temporary foreign labor for contracts performed in the United States, and, if so, the nature of the work performed by temporary foreign labor on such contracts; whether opportunities for United States workers were affected by such hiring; and any potential effects on the national security caused by such hiring; and
-
-(i)   承包商（包括分包商）是否在美國執行的合同中使用了臨時的外國勞工，以及，如果是，臨時外國勞工對此類合同進行的工作的性質；這種雇用是否影響了美國工人的機會；這種雇用對國家安全的任何潛在影響；和
-
-(ii)  whether contractors (including subcontractors)  performed in foreign countries services previously performed in the United States, and, if so, whether opportunities for United States workers were affected by such offshoring; whether affected United States workers were eligible for assistance under the Trade Adjustment Assistance program authorized by the Trade Act of 1974; and any potential effects on the national security caused by such offshoring.
-
-(ii)  承包商（包括分包商）是否在國外提供過服務，而以前曾在美國提供過服務；如果是，那麼這種離岸業務是否影響了美國工人的機會；受影響的美國工人是否有資格根據1974年《貿易法》授權的貿易調整援助計劃獲得援助；以及此類離岸對國家安全的任何潛在影響。
-
-(b)  The head of each agency that enters into contracts shall assess any negative impact of contractors’ and subcontractors’ temporary foreign labor hiring practices or offshoring practices on the economy and efficiency of Federal procurement and on the national security, and propose action, if necessary and as appropriate and consistent with applicable law, to improve the economy and efficiency of Federal procurement and protect the national security.
-
-(b)  每個機構的簽訂合同的負責人應評估承包商和分包商的臨時外國勞工雇用實踐或離岸外包實踐對聯邦採購的經濟和效率以及對國家安全的任何負面影響，並在必要時建議採取行動。適當並符合適用法律，以改善聯邦採購的經濟性和效率並保護國家安全。
-
-(c)  The head of each agency shall, in coordination with the Director of the Office of Personnel Management, review the employment policies of the agency to assess the agency’s compliance with Executive Order 11935 of September 2, 1976 (Citizenship Requirements for Federal Employment), and section 704 of the Consolidated Appropriations Act, 2020, Public Law 116-93.
-
-(c)  每個機構的負責人應與人事管理辦公室主任協調，審查機構的雇傭政策，以評估機構是否遵守1976年9月2日第11935號行政命令（聯邦就業的公民身份要求） ，以及2020年《綜合撥款法》第704-93節的第704節。
-
-(d)  Within 120 days of the date of this order, the head of each agency shall submit a report to the Director of the Office of Management and Budget summarizing the results of the reviews required by subsections (a) through (c) of this section; recommending, if necessary, corrective actions that may be taken by the agency and timeframes to implement such actions; and proposing any Presidential actions that may be appropriate.
-
-(d)  在該命令發出之日起的120天內，每個機構的負責人應向管理和預算辦公室主任提交一份報告，總結本條(a)至(c)項要求的審查結果部分；必要時機構可以糾正措施和更改實施這些措施的時間表；並提出任何適當的總統行動。
-
-Sec. 3.  Measures to Prevent Adverse Effects on United States Workers.  Within 45 days of the date of this order, the Secretaries of Labor and Homeland Security shall take action, as appropriate and consistent with applicable law, to protect United States workers from any adverse effects on wages and working conditions caused by the employment of H-1B visa holders at job sites (including third-party job sites), including measures to ensure that all employers of H-1B visa holders, including secondary employers, adhere to the requirements of section 212(n)
-
-(1) of the Immigration and Nationality Act (8 U.S.C. 1182(n)(1)).
-
-第3節。防止對美國工人造成不利影響的措施。在該命令發出之日起45天內，勞動和國土安全局局長應採取適當措施並遵守適用法律，以保護美國工人免受因雇用在職的（包括第三方工作地點）H-1B簽證持有人，包括確保所有H-1B簽證持有人的雇主（包括二級雇主）不利影響，遵守第212(n)節要求的措施(1)《移民和國籍法》(8 U.S.C. 1182(n)(1))。
-
-Sec. 4.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
-
-第4節。一般規定。 （a）此命令中的任何內容均不得解釋為損害或以其他方式影響：
-
-(i)   the authority granted by law to an executive department or agency, or the head thereof; or
-
-(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
-
-(i)   法律授予執行部門或機構或其負責人的權力；或
-
-(ii)  管理和預算辦公室主任與預算，行政或立法提案有關的職能。
-
-(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
-
-(b)  該命令應根據適用法律並在適當情況下執行。
-
-(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
-
-(c)  該命令無意於也不會創造任何權利或利益，無論是實質性的還是程序性的在法律上或衡平法下執行，任何一方均可對美國，其部門，機關或實體，其高級職員，僱員，代理商或任何其他人。
-
-DONALD J. TRUMP
-
-THE WHITE HOUSE,August 3, 2020.
-
-唐納德·川普
-
-白宮
-
-2020年8月3日
-
-*翻譯：【Guanghan】校對：【Michelle】*
-
-*戰友之家玫瑰園小隊出品*
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/2nrc4gL4ONhLP/) 】
 
 0

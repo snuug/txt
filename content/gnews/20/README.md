@@ -1,67 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 變形的三峽大壩會不會垮？
-`2020-08-03 23:27 GM77` [轉載自GNews](https://gnews.org/zh-hant/284441/)
+## 川普總統關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令
+`2020-08-04 00:10 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/284725/)
 
-編撰：臺灣荔枝、文盲2020、文珺追隨MG、 Lori文噠
+新聞簡述：[該行政命令](https://www.whitehouse.gov/presidential-actions/executive-order-aligning-federal-contracting-hiring-practices-interests-american-workers/)旨在為美國工人創造就業機會，包括在大流行造成的經濟錯位期間通過聯邦合同創造的就業機會, 並防止對美國工人造成不利影響。每個執行部門和機構的負責人應審查有關聯邦採購的經濟和效率以及國家安全的外國勞工雇用慣例或離岸慣例，並在必要時並根據適用法律並在必要時提出行動建議。提高聯邦採購的經濟性和效率，保護國家安全。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/16204044/Trump_sign_EO169_SMALLER.jpg)
+中英文對照全文：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03180351/%E4%B8%89%E5%B3%A1%E5%A4%A7%E5%9D%9D2.jpg)
+**Executive Order on Aligning Federal Contracting and Hiring Practices With the Interests of American Workers**
 
-本次季節性洪峰過去，有跡象表明中國領導人可能正在為大型水電項目降溫**。**
+Issued on: August 3, 2020
 
-中國官方媒體堅稱，今年第三次長江大洪水周三通過三峽大壩時，什麽也沒發生。大壩的負責人說，自周一以來，這座高185米的屏障阻擋了長江上遊流失的三分之一以上的雨水。在周一的高峰期，四川和重慶的大雨徑流以每秒60,000立方米的速度流入大壩，並以每秒38,000立方米的速度排出。新華社說，在大壩以東的主要城市，包括武漢，沒有發生嚴重洪災的報道，但大壩減輕了威脅。
+**關於使聯邦合同和雇用慣例與美國工人利益保持一致的行政命令**
 
-中國國家氣象中心預測，南部省份夏季季風將結束。 首席氣象學家張娟說，自6月以來最嚴重的雨季襲擊了包括長江流域在內的全國大部分地區。
+頒布日期：2020年8月3日
 
-大壩是從今年的大洪水中幸存下來的。 上周，官方的新華社說，由於水流的壓力，該結構的一部分略微彎曲。新華社的消息再次傳出有關可能發生水壩倒塌的傳聞，加劇了臺灣，日本和印度對大壩可以經受多長時間考驗的猜測。
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
-對於新華社來說，很少會承認三峽大壩在持有雨水以保護下遊城市如武漢時發生了一點變形，因為在過去，官方媒體只會選擇避免報道，並否認任何有關大壩的討論。
+根據美利堅合眾國憲法和法律賦予我的總統權力，現命令如下：
 
-新華社這個消息是否標誌著北京正在改變對水壩和其他大型水電項目的態度？ 大壩的建設始於1990年代江澤民主席期間。 他的副總理李鵬是主要支持者。
+Section 1.  Policy.  It is the policy of the executive branch to create opportunities for United States workers to compete for jobs, including jobs created through Federal contracts. These opportunities, particularly in regions where the Federal Government remains the largest employer, are especially critical during the economic dislocation caused by the 2019 novel coronavirus (COVID-19) pandemic.  When employers trade American jobs for temporary foreign labor, for example, it reduces opportunities for United States workers in a manner inconsistent with the role guest-worker programs are meant to play in the Nation’s economy.
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03180432/%E4%B8%89%E5%B3%A1%E5%A4%A7%E5%9D%9D3-1.jpg)
+第1節。政策。行政部門的政策是為美國工人創造競爭機會，包括通過聯邦合同創造的就業機會。這些機會，特別是在聯邦政府仍是最大雇主的地區，在因2019年新型冠狀病毒（COVID-19）大流行而造成的經濟混亂中尤其重要。例如，當雇主將美國的工作換成臨時的外國勞工時，這會減少美國工人的機會，其方式與客工計劃在國家經濟中的作用不符。
 
-北京大學管理學院的一位教授要求匿名的學者說：“目前的最高領導層可能不太喜歡這樣的項目，尤其是自從李鵬去年去世以及當時年事已高的江澤民的影響力逐漸減弱以來”。自1997年11月，該大壩阻塞了亞洲最長的河流以來，圍繞大水壩的爭議從未消失超過二十年。
+Sec. 2.  Review of Contracting and Hiring Practices.  (a)  The head of each executive department and agency (agency) that enters into contracts shall review, to the extent practicable, performance of contracts (including subcontracts) awarded by the agency in fiscal years 2018 and 2019 to assess:
 
-李鵬忽視了許多專業環境和水力工程師的反對意見，對環境和社會影響的快速評估，並於1992年在中國人大會通過了一項法案，以啟動水壩及其下面的水力發電站的建設。當該法案付諸表決時，全國人民代表大會上幾乎有三分之一的人棄權或反對該項目。
+第2節。審查合同和雇用慣例。 （a）簽訂合同的每個執行部門和代理機構（機構）的負責人應在切實可行的範圍內審查該機構在2018和2019財年授予的合同（包括分包合同）的績效，以評估：
 
-一些專家說，今年夏天，在湖南，安徽，江西和江蘇等下遊省份普遍發生洪災，這表明該水壩在防洪和減災方面是一次失敗。他們說，盡管今年長江的洪災十分嚴重，但與大壩設計中設想的最壞情況相比，它顯得蒼白無力。
+(i)   whether contractors (including subcontractors)  used temporary foreign labor for contracts performed in the United States, and, if so, the nature of the work performed by temporary foreign labor on such contracts; whether opportunities for United States workers were affected by such hiring; and any potential effects on the national security caused by such hiring; and
 
-四川省地質礦產局總工程師範曉也在《中國國家地理》雜誌上撰文說，大壩可以暫時攔截上遊的洪水，但對長江中下遊暴雨造成的洪水影響不大。他還說，該大壩的設計初衷是“每兩個世紀發生一次最壞情況的洪水”，盡管目前的洪水遠沒有最壞情況發生的洪水嚴重，但它未能履行其備受贊揚的洪水調節作用。
+(i)   承包商（包括分包商）是否在美國執行的合同中使用了臨時的外國勞工，以及，如果是，臨時外國勞工對此類合同進行的工作的性質；這種雇用是否影響了美國工人的機會；這種雇用對國家安全的任何潛在影響；和
 
-水利部副部長葉建春本周表示，如果不是因為天氣改善而雨帶轉移到其他地方，那麽自6月以來長江沿岸的洪災可能會將大壩和其他基礎設施的能力擴大到一個“斷裂點”。
+(ii)  whether contractors (including subcontractors)  performed in foreign countries services previously performed in the United States, and, if so, whether opportunities for United States workers were affected by such offshoring; whether affected United States workers were eligible for assistance under the Trade Adjustment Assistance program authorized by the Trade Act of 1974; and any potential effects on the national security caused by such offshoring.
 
-李鵬在回憶錄中指出，大壩的總體目標是控制洪水和保護武漢和重慶等城市中心。然而，水壩的運營商中國三峽集團曾表示，如果沒有水壩，情況可能會更加嚴重，兩個城市都在今年夏天被部分淹沒。
+(ii)  承包商（包括分包商）是否在國外提供過服務，而以前曾在美國提供過服務；如果是，那麼這種離岸業務是否影響了美國工人的機會；受影響的美國工人是否有資格根據1974年《貿易法》授權的貿易調整援助計劃獲得援助；以及此類離岸對國家安全的任何潛在影響。
 
-也有跡象表明，北京可能會將其偏好從水電項目轉移到其他地方。 中國國家發展和改革委員會今年迄今已批準了三個建設核電站或擴大現有發電能力的項目，但尚未宣布在主要河流上新建水壩或水電計劃。
+(b)  The head of each agency that enters into contracts shall assess any negative impact of contractors’ and subcontractors’ temporary foreign labor hiring practices or offshoring practices on the economy and efficiency of Federal procurement and on the national security, and propose action, if necessary and as appropriate and consistent with applicable law, to improve the economy and efficiency of Federal procurement and protect the national security.
 
-習近平主席本周特別提到了參加中國國家核公司國際核聚變項目的中國核工業公司的核工程師。 CNNC還將在年底前邁向第一個國內融合實驗。自2018年以來，習近平尚未檢查任何大型水壩或水電項目。
+(b)  每個機構的簽訂合同的負責人應評估承包商和分包商的臨時外國勞工雇用實踐或離岸外包實踐對聯邦採購的經濟和效率以及對國家安全的任何負面影響，並在必要時建議採取行動。適當並符合適用法律，以改善聯邦採購的經濟性和效率並保護國家安全。
 
-編者觀點：
+(c)  The head of each agency shall, in coordination with the Director of the Office of Personnel Management, review the employment policies of the agency to assess the agency’s compliance with Executive Order 11935 of September 2, 1976 (Citizenship Requirements for Federal Employment), and section 704 of the Consolidated Appropriations Act, 2020, Public Law 116-93.
 
-文中作者引用新華社及其他相關人士的表述可以看出三峽大壩不再是最早官媒宣傳的那樣固若金湯，千秋萬代之工程，雖然還是掩飾為主，但欲蓋彌彰，讓人的確會提出：變形的三峽大壩能應對洪水挑戰嗎？
+(c)  每個機構的負責人應與人事管理辦公室主任協調，審查機構的雇傭政策，以評估機構是否遵守1976年9月2日第11935號行政命令（聯邦就業的公民身份要求） ，以及2020年《綜合撥款法》第704-93節的第704節。
 
-網絡上流傳很廣的中共的有關三峽大壩的如下宣傳：
+(d)  Within 120 days of the date of this order, the head of each agency shall submit a report to the Director of the Office of Management and Budget summarizing the results of the reviews required by subsections (a) through (c) of this section; recommending, if necessary, corrective actions that may be taken by the agency and timeframes to implement such actions; and proposing any Presidential actions that may be appropriate.
 
-- 2003年6月1日，《三峽大壩固若金湯，可以抵擋萬年一遇洪水》；
-- 2007年5月8日，《三峽大壩 今年起可防千年一遇洪水》；
-- 2008年10月21日，《三峽大壩可抵禦百年一遇特大洪水》；
-- 2010年7月20日，《長江水利委：不能把希望都寄托在三峽大壩上》；
-- 2020年7月12日，某國內公眾號：三峽大壩已經盡力了，請不要再指責他了…
+(d)  在該命令發出之日起的120天內，每個機構的負責人應向管理和預算辦公室主任提交一份報告，總結本條(a)至(c)項要求的審查結果部分；必要時機構可以糾正措施和更改實施這些措施的時間表；並提出任何適當的總統行動。
 
+Sec. 3.  Measures to Prevent Adverse Effects on United States Workers.  Within 45 days of the date of this order, the Secretaries of Labor and Homeland Security shall take action, as appropriate and consistent with applicable law, to protect United States workers from any adverse effects on wages and working conditions caused by the employment of H-1B visa holders at job sites (including third-party job sites), including measures to ensure that all employers of H-1B visa holders, including secondary employers, adhere to the requirements of section 212(n)
 
-不管這是不是個茶余飯後的梗，但真讓老百姓如鯁在喉，因為三峽大壩如果真指望不上而坍塌，將會因水災生靈塗炭，同時可能造成沿岸核電站的核泄漏，整個東亞地區包括日本韓國以及東南亞地區都將面臨嚴重的生態災難。
+(1) of the Immigration and Nationality Act (8 U.S.C. 1182(n)(1)).
 
-1994年12月14日在三峽工程的開工典禮上時任國務院總理李鵬作了《功在當代利千秋》的開工報告。其中提到三峽大壩建成後，老百姓電費可以低至8分錢一度。老百姓是否有享受過這麽低的電價不得而知，但李鵬家族的中飽私囊是毋庸置疑的。
+第3節。防止對美國工人造成不利影響的措施。在該命令發出之日起45天內，勞動和國土安全局局長應採取適當措施並遵守適用法律，以保護美國工人免受因雇用在職的（包括第三方工作地點）H-1B簽證持有人，包括確保所有H-1B簽證持有人的雇主（包括二級雇主）不利影響，遵守第212(n)節要求的措施(1)《移民和國籍法》(8 U.S.C. 1182(n)(1))。
 
-文貴先生8月1日在WAR ROOM直播中提到：三峽大壩非常危險，很多北京高層的人給了我一些視頻，看到三峽崩塌的危險越來越高，現在已經有2000多萬人因為水災失去了家園，但中共隱瞞水災真相，美國很多科技公司在幫助隱瞞真相。
+Sec. 4.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:
 
-習近平和王岐山根本不在意三峽崩塌死多少人，多難興邦。 文貴先生在更早的直播中還提到過總加速師的態度：三峽大壩是江澤民時代李鵬主持修建的，和我毛關系，死3億人，吃飯的人更少，更穩定。
+第4節。一般規定。 （a）此命令中的任何內容均不得解釋為損害或以其他方式影響：
 
-中共對水災不管的態度，反應了中共的追責機制，中共的追責機制永遠是對黨負責，而不用對人民負責，並且人民的災難可以轉化為政治鬥爭的工具和抓手，勝利的派系反而還可以從生靈塗炭中獲取政治利益和資本。
+(i)   the authority granted by law to an executive department or agency, or the head thereof; or
 
-新聞來源:
-[https://asiatimes.com/2020/07/three-gorges-dam-weathers-the-flood-challenge/](https://asiatimes.com/2020/07/three-gorges-dam-weathers-the-flood-challenge/)
+(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.
+
+(i)   法律授予執行部門或機構或其負責人的權力；或
+
+(ii)  管理和預算辦公室主任與預算，行政或立法提案有關的職能。
+
+(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.
+
+(b)  該命令應根據適用法律並在適當情況下執行。
+
+(c)  This order is not intended to, and does not, create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.
+
+(c)  該命令無意於也不會創造任何權利或利益，無論是實質性的還是程序性的在法律上或衡平法下執行，任何一方均可對美國，其部門，機關或實體，其高級職員，僱員，代理商或任何其他人。
+
+DONALD J. TRUMP
+
+THE WHITE HOUSE,August 3, 2020.
+
+唐納德·川普
+
+白宮
+
+2020年8月3日
+
+*翻譯：【Guanghan】校對：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
