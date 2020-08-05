@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 2/28 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [28](/content/README-28.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年6月13日郭先生连线江财神畅谈喜马拉雅农场和新中国联邦的未来](/content/2020/06/20200616-1167287562234062263.md)
+
+[文字版:郭先生2020年6月10日紧急直播-关于G币GTV投资者被澳大利亚等银行非法强迫退款的各种事宜](/content/2020/06/20200613-1120918089970981192.md)
 
 [文字版:郭先生2020年6月9日直播-关于G币的退款诉讼赔偿以及如何拥有投资GTV老股的机会的一些回答](/content/2020/06/20200613-4006639465820074167.md)
 
@@ -59,10 +63,6 @@
 [文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/2020/05/20200516-6242836971583369231.md)
 
 [文字版:郭先生5月9日GTV直播连线魔女Peace](/content/2020/05/20200514-7037618968169156768.md)
-
-[文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/2020/05/20200512-5842185723258318346.md)
-
-[文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
 
 
 ## 頁面 2/28 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [28](/content/README-28.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

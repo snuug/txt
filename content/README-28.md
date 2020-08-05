@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 28/28 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [查看全部](/content/README-all.md)
+
+[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼](/content/2018/04/20180418-3031315413205773844.md)
+
+[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
 
 [2017年9月19日明镜专访郭文贵第六期（7）：马蕊案的目的是遣返郭文贵](/content/2018/04/20180418-6242782845301179834.md)
 

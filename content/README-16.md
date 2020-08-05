@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+
+[关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
+
+[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
 
 [文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
 
@@ -59,10 +63,6 @@
 [文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/2019/01/20190108-2730263120772075960.md)
 
 [文字版：1月5日接受庄烈宏先生美东之声访问， 中共敢打台湾 ？什么叫战友？2019文贵爆料的具体战略](/content/2019/01/20190107-8663591932172573911.md)
-
-[文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190102-5930616806834548247.md)
-
-[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2018/12/20181231-1701485310206179392.md)
 
 
 ## 頁面 16/28 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [28](/content/README-28.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

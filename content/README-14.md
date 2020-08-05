@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 14/28 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [28](/content/README-28.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
+
+[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
+
+[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
 
 [文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/2019/05/20190514-4477543672120238865.md)
 
@@ -59,10 +63,6 @@
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/content/2019/04/20190416-1716208713998494644.md)
 
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/content/2019/04/20190415-6656531151323124700.md)
-
-[文字版：2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！3/1](/content/2019/04/20190414-1930118777431360844.md)
-
-[文字版：2019年4月13日郭文贵先生第三次直播．王岐山副主席可能要扶正！给战友们的四条建议！紧急通知⚠️战友必看！](/content/2019/04/20190414-3550758239268922002.md)
 
 
 ## 頁面 14/28 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [28](/content/README-28.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

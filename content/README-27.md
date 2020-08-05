@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 27/28 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+
+[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7403014981154876678.md)
+
+[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
 
 [（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-980107644225560251.md)
 
@@ -59,10 +63,6 @@
 [（二）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！ （二）](/content/2018/04/20180418-8227695732169623360.md)
 
 [（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）](/content/2018/04/20180418-5664665363890615082.md)
-
-[翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼](/content/2018/04/20180418-3031315413205773844.md)
-
-[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
 
 
 ## 頁面 27/28 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)

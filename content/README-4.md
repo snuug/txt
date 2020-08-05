@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年4月4日文贵谈CCP病毒让人类陷入巨大灾难，明年5月不可能解决](/content/2020/04/20200406-4712830590535337259.md)
+
+[文字版：2020年4月3日谈爆料革命与家人的关系和最近的一些事情的感想](/content/2020/04/20200406-3461892408125397096.md)
 
 [文字版:2020年4月2日郭先生GTV视频直播提醒大家不要把战友逼成敌人](/content/2020/04/20200404-7348500743663555332.md)
 
@@ -59,10 +63,6 @@
 [文字版:2020年2月27日文贵谈王岐山站着出来握手](/content/2020/02/20200229-501572706956306869.md)
 
 [文字版:2020年2月21日郭先生参加班农战斗室访谈](/content/2020/02/20200227-1553172568054337472.md)
-
-[文字版：2020年2月22日文贵谈CCP要与世界玉石俱焚](/content/2020/02/20200224-7577071556955663808.md)
-
-[文字版：2020年2月21日郭先生警示北京人民医院感染众多！疫情大爆发还没真正开始！](/content/2020/02/20200223-7052827819661082462.md)
 
 
 ## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

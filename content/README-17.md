@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 17/28 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [28](/content/README-28.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月1日文贵接受木兰访谈访问，什么时候放91号文件，刘承杰他爹到底是谁，共产党会怎样灭亡，2019我们做什么](/content/2019/01/20190102-5930616806834548247.md)
+
+[文字版：2018年12月29日接受路德先生的访谈，谈马建案与2019年爆料计划和中国私人企业家的命运](/content/2018/12/20181231-1701485310206179392.md)
 
 [文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/content/2018/12/20181228-5085719562457402069.md)
 
@@ -59,10 +63,6 @@
 [翻译：美国彭斯副总统誓言中国不退让，关税就不会停止](/content/2018/11/20181117-5688974428760501004.md)
 
 [文字版：2018年11月15日星期四战友之声 20181115 轉郭文貴報平安直播，正式宣布王健之死发布会时间](/content/2018/11/20181116-2341303954846594943.md)
-
-[文字版：2018年11月19号的王健之死的发布会．可能导致股市波动．及其他重大政治事件 要从19号改至20号](/content/2018/11/20181115-2654226496006898669.md)
-
-[文字版郭文贵先生2018年11月13日中国共产党过去四年对私人企业家的打压是孟建柱、傅政华、孙立军、王岐山放下的滔天罪行！私人企业家不能再成为共产党及盗国贼们的尿壶了！](/content/2018/11/20181114-7269018934518411869.md)
 
 
 ## 頁面 17/28 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [28](/content/README-28.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/2020/01/20200127-3403056014280027444.md)
+
+[文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
 
 [文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
 
@@ -59,10 +63,6 @@
 [文字版：2019年12月30日郭先生第二次直播：向战友询问春晚的举办形式并出示惊人王健死亡照片](/content/2020/01/20200102-5236405611062477381.md)
 
 [文字版:2019年12月30日文贵报平安谈2020是霹雳年，不能让任何人阻挡爆料革命！](/content/2020/01/20200102-3330652484007682662.md)
-
-[文字版：2019年12月29日郭先生与钢铁侠电话连线直播](/content/2019/12/20191231-3168641532778332278.md)
-
-[文字版：2019年12月28日文贵报平安谈细丝的行为纯粹是第二个郭宝胜](/content/2019/12/20191231-1107954365607490232.md)
 
 
 ## 頁面 6/28 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [28](/content/README-28.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)

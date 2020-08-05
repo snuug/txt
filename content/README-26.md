@@ -1,4 +1,4 @@
-###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
@@ -9,10 +9,14 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 ## 頁面 26/28 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
+
+[文字版 (二) 2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-4391930695523447506.md)
+
+[文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
 
@@ -59,10 +63,6 @@
 [（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
 
 [（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-5887917197465527624.md)
-
-[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7403014981154876678.md)
-
-[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
 
 
 ## 頁面 26/28 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
