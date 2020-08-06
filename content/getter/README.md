@@ -13,6 +13,11 @@
 
 
 
+[华尔街日报：白宫寻求打击在美国上市的中国公司  如果公司不遵守美国的审计要求，就会被取消上市资格  https://www.wsj.com/articles/t...](/content/getter/content/2020/08/5f2c96c73f706952fe3ff42e.md)
+
+**郭文贵MILES** `2020-08-06T23:48:23`
+##
+
 [看看澳洲最大银行如何对其客户故意诱导与威胁，企图以诈骗为名强行追回战友的GTV投资汇款   How the Australian biggest bank is...](/content/getter/content/2020/08/5f2c43a43f706952fe3fb8d6.md)
 
 **郭文贵MILES** `2020-08-06T17:53:40`
@@ -156,10 +161,5 @@
 [中共解决问题的一贯做法：编造谎言，掩盖真相，宣传；美国人需要敢于面对真相 CCP's gangster style of problem solving: ma...](/content/getter/content/2020/07/5f204f236145de42900e0571.md)
 
 **郭文贵MILES** `2020-07-28T16:15:31`
-##
-
-[7月28日 请战友们收看秘密翻译组正在同传节目CNBC重磅采访：班农谈中美关系，制裁中共，以及与郭文贵先生的关系  https://gtv.org//?vide...](/content/getter/content/2020/07/5f201ef56145de42900dcf39.md)
-
-**郭文贵MILES** `2020-07-28T12:49:57`
 ##
 
