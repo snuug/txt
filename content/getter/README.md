@@ -13,6 +13,11 @@
 
 
 
+[8月7号硅谷的战友做了第二次的宣传片太棒了……https://gtv.org//?videoid=5f2da7c33f706952fe40de3e](/content/getter/content/2020/08/5f2dd4d83f706952fe40fd99.md)
+
+**郭文贵MILES** `2020-08-07T22:25:28`
+##
+
 [8月7日：中南坑的这些老王八蛋们，你们准备好了吗？在你们起床前我送给你们好礼物！ https://www.axios.com/newsletters/axios...](/content/getter/content/2020/08/5f2dd0163f706952fe40f9cd.md)
 
 **郭文贵MILES** `2020-08-07T22:05:10`
@@ -156,10 +161,5 @@
 [GTV 维护预告  由于系统升级需要，GTV网站及App将大约于 7月29日 12pm EST. 至 7月30日12pm EST.之间暂停服务24小时。在此期间...](/content/getter/content/2020/07/5f2191606145de42900f9a92.md)
 
 **郭文贵MILES** `2020-07-29T15:10:24`
-##
-
-[7月29日的早晨……太阳升起！！！](/content/getter/content/2020/07/5f2147d76145de42900f5381.md)
-
-**郭文贵MILES** `2020-07-29T09:56:39`
 ##
 
