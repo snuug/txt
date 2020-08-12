@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國數億貸款流向中共背景的企業
-`2020-08-04 07:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/285053/)
+## 【世界多語言文字版】8月11日閆博士在Newsmax TV的採訪
+`2020-08-12 03:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/293737/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/04065455/Picture-1-14.png)圖片來源：entrepreneur.com 
-《布賴特巴特新聞網》（Breitbart News）8月2日報導，根據地平線戰略諮詢公司在《紐約時報》發布的分析，自三月份以來，由美國納稅人資助的薪酬保障計劃（PPP，Paycheck Protection Program），目前已為超過125家中共背景的公司提供了貸款，至少有32家中共背景的公司獲得了超過100萬美元的貸款，總額高達1.8億美元。
+**[8月11日閆博士在Newsmax TV的採訪](https://youtu.be/uW1SDEcJj3o)**
 
-據了解，PPP在CCP病毒疫情導致的經濟停滯期間，提供最高可達1000萬美元，利率為1%的可免除貸款，以幫助美國員工人數不足500人的小企業支付員工薪酬等經營費用。
+[【中文版】8月11日閆博士在Newsmax TV的採訪](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12030812/CN-Aug-11th-%E9%96%86%E5%8D%9A%E5%A3%AB%E5%9C%A8Newsmax-TV%E7%9A%84%E6%8E%A1%E8%A8%AA.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12030812/CN-Aug-11th-%E9%96%86%E5%8D%9A%E5%A3%AB%E5%9C%A8Newsmax-TV%E7%9A%84%E6%8E%A1%E8%A8%AA.pdf)
 
-報告中重點指出由中共政府所有的中國航空工業集團旗下的大陸航空技術公司和昂際航電在PPP貸款中共獲得1035萬美元。中國海航集團在美國的子公司—海航集團北美有限責任公司和海航紐約培訓中心，分別獲得了100萬美元的PPP貸款。海航集團專門從事房地產、航空和金融服務交易，是全球《財富》500強公司。中共基因檢測巨頭華大基因集團的美國子公司最初也獲得了100萬美元的PPP貸款，當媒體報導了這筆貸款後，華大基因美國公司歸還了這筆錢。
+[【英文版】Aug 11th Dr. Yan’s Interview in Newsmax TV](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12030817/EN-Aug-11th-DrYan-Interview-in-Newsmax-TV.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12030817/EN-Aug-11th-DrYan-Interview-in-Newsmax-TV.pdf)
 
-據《泰晤士報》報導，位於加州的生物技術公司鄧德里昂醫藥獲得了價值500萬至1000萬美元的貸款。該公司為南京新百所有，是一家中共國有投資公司，其控股股東與共產黨關係密切。
+陸續更新中……
 
-PPP貸款項目的資金還進入了金融技術領域。矽谷移動支付公司Citcon USA LLC獲得了15萬至35萬美元的貸款。據悉，中國企業真格基金是該公司的主要投資者，該公司將美國公司連接到支付寶和微信等中國支付平台，或將面臨川普政府的製裁。
+**製作：【秘密翻譯組G-Translators】**
 
-美國參議院共和黨目前正在製定新的法案，其中一項規定將會禁止中共背景的公司獲得聯邦貸款的資格，確保將來不會將此類聯邦貸款發放給與中共有聯繫的公司。
-
-同時川普政府正在打擊中共對美國經濟的滲透。上週末，川普許諾將盡快禁止中共擁有的短視頻應用軟件TikTok。週日，參議院民主黨領袖查克·舒默（Chuck Schumer）也公開支持對TikTok的禁令。
-
-[原文鏈接](https://www.breitbart.com/politics/2020/08/02/report-125-china-linked-companies-get-ppp-loans/)
-
-譯者：Tracy 
-校對：文投
-
-0
+1

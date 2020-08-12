@@ -1,21 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西蘭主流媒體報道中国科学家阎丽梦
-`2020-08-04 02:00 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/284870/)
+## 閆博士揭露中共病毒並非來源於自然 Part2（英文+挪威語Norwegian）
+`2020-08-11 23:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/293478/)
 
-作者：Lazyme
+挪威語標題 Dr. Yan: Coronavirus (covid-19) Kommer IKKE fra Naturen (del 2).
 
-在數週的沉寂後，新西蘭先驅報報道終於爲了正義和民生，勇敢的報道了閻麗夢博士在福克斯的採訪視頻。概要如下：
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/04014610/Yan_LImeng-EN.jpg)
-一位出逃到美國的中國醫學專家支持這種說法，即Covid-19流感大流行始於一個軍事實驗室，並被中國官員掩蓋真相。
+翻譯：tiger64 校對：tiger64，rabbit79 視頻：小羽
 
-來自香港的病毒學專家閻麗夢博士逃往美國，擔心中國軍隊會因為她的發現和信仰而“失踪”。她告訴福克斯新聞，中國政府對她的作品進行了審查，她的發現本可以拯救全球的生命。 “這是我們在世界上看到的一個巨大的流行病，”閻麗夢告訴主持人比爾·海默。
+閆博士揭露中共隱瞞病毒疫情，夥同世衛組織隱瞞人傳人的事實。閆博士進一步揭露病毒並非來源於自然。
+挪威語簡介 Dr. Yan avslører at KKP dekket over utbruddet av coronavirus og samarbeidet med WHO for å dekke over at det var overføring fra menneske til menneske i desember og januar. Dr. Yan hevder videre at viruset ikke kommer fra naturen.
 
-“這比我們在人類歷史上所知道的都要多。所以，時機非常非常重要。如果我們能早點停止，我們就能拯救生命。”來自香港的病毒學專家閻麗夢博士擔心她會逃往美國，擔心中國軍隊會因為她的發現和信仰而“失踪”。閻麗夢告訴福克斯新聞，她相信中國政府至少在一個月前就知道了Covid-19，然後才公開承認有疫情。她說，她的主管在去年年底首次要求她對新病毒進行“秘密”調查。她稱自己的研究和研究領域的一些自稱專家人漠視她的發現。
-
-閻麗夢在接受福克斯新聞頻道採訪時說：“我必須躲起來，因為我知道他們是如何對待告密者的，作為這裡的舉報人，我想說出Covid-19的真相和SARS-2型Covid病毒的起源。”閻麗夢博士的核心觀點之一是，在研究人與人之間的病毒傳播時，她的發現表明病毒來自與中國人民解放軍有聯繫的研究機構。
-
-原文鏈接：https://www.nzherald.co.nz/world/news/article.cfm?c\_id=2&objectid=12353248
-
-0
+1

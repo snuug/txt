@@ -1,42 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok禁令改收購&#8211; 制裁中共軟件一波三折
-`2020-08-03 15:59 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/284375/)
+## 08.11 財經快訊
+`2020-08-11 11:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/293272/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/03155230/1596484328270.jpg)圖片來自：新唐人
-據紐約/華盛頓（路透社）8月2日報導，三位情人士透露，川普總統同意給予微軟公司45天的期限商議ByteDance旗下TikTok應用的收購事宜。美國官員表示，由於中共擁有TikTok的所有權，有理由擔心此款應用在處理個人信息數據時會給美國帶來國家安全風險。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/10204401/%E8%B4%A2%E7%BB%8F.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/11112435/1-36.png)
+1. 沒選票，那就股票：黎智英事件持續升溫，壹傳媒股票兩日內突破10倍！同時多國政要發聲力挺黎佬。港人在展現自己不屈鬥志的同時亦給加速師們出了一道新難題：究竟敢不敢撕破香港金融畫皮，強行停牌甚至清盤壹傳媒。
 
-**川普總統暫行禁令同意微軟收購** **TikTok**
 
-川普總統在上週五曾表示，他打算最快在周六頒布TikTok的禁令，同時駁回微軟的收購意向。隨後川普和微軟首席執行官薩蒂亞·納德拉（Satya Nadella）進行了面談，在周日的聲明中稱，收購計劃將繼續，並力爭在9月15日前達成交易。
+[https://www.bloomberg.com/news/articles/2020-08-11/a-1000-stock-jump-is-hong-kong-s-new-pro-democracy-rallying-cry?cmpid=socialflow- twitter-business&utm\_campaign=socialflow-organic&utm\_source=twitter&utm\_medium=social&utm\_content=business](https://www.bloomberg.com/news/articles/2020-08-11/a-1000-stock-jump-is-hong-kong-s-new-pro-democracy-rallying-cry?cmpid=socialflow-twitter-business&amp;utm_campaign=socialflow-organic&amp;utm_source=twitter&amp;utm_medium=social&amp;utm_content=business)
 
-據知情人透露，川普總統的顧問以及共和黨內部給總統施壓使其改變了原先的主意。如果完全禁止TikTok，11月美國總統大選前，共和黨可能會失去許多使用這個應用的年輕支持者，同時可能引發一波法律上的挑戰。在過去的兩天，幾位著名的共和黨議員紛紛發表了聲明，敦促川普總統將TikTok出售給微軟。共和黨參議員林賽·格雷厄姆（Lindsey Graham）在推文中回稱川普總統改變主意是“正在取得雙贏”。
+- 強勢美股帶動亞洲市場：標普500繼昨日創下今年新高，距歷史最高點只差1%左右後，亞洲股市亦受帶動盤活，日經225指數上揚1.6%至22,686.53；南韓Kospi指數上揚1.3%至2418.91；悉尼S&P上跳0.9%至6167.1。由此可見美股仍是全球經濟風向標。
 
-**微軟收購** **TikTok** **交易必須符合美國國家安全利益**
 
-有消息稱，ByteDance和微軟之間就TikTok收購事宜的談判將在美國外國投資委員會（CFIUS）監督下進行，該委員會有權終止任何協議。微軟在聲明中謹慎地表示，暫時無法確定是否會收購達成協議。微軟完全理解總統所擔憂的問題，並承諾，在全面的安全審查下，微軟將全力以赴達成對TikTok的收購，並期望通過此交易給包括美國財政部在內的整個國家帶來相應的經濟利益。
+[https://www.startribune.com/asian-shares-mostly-higher-on-stimulus-moves-jobs-data/572061812/](https://www.startribune.com/asian-shares-mostly-higher-on-stimulus-moves-jobs-data/572061812/)
 
-根據擬議的交易，微軟表示將接管TikTok在美國、加拿大、澳大利亞和新西蘭的業務，並確保TikTok美國用戶的所有私人數據轉移並保留在美國。微軟補充到，他們可能會邀請其他美國投資者購買TikTok的少數股權。 ByteDance籌集的外部資本中約有70％來自美國，但目前不知道微軟會為TikTok支付多少。路透社上週報導稱，Bytedance對TikTok的估值超過了500億美元，美國要求TikTok從Bytedanc中剝離的壓力可能會降低這一估值。而對Bytedance的估值今年初則高達1400億美元，當時其股東之一的獵豹移動（Cheetah Mobile）通過私下交易出售了其小部分的股份。 Bytedance的原始投資者還包括日本的軟銀集團公司（SoftBank Group Corp ）。
+- 姆努欽表示到2022年前會徹底清理不合規中概股，斯伯丁將軍：太慢！美財長姆努欽近日表示將在2022年底前徹底清理不符合美國會計要求的中概股。此“強硬”舉措確招緻美國眾多批評聲音，斯伯丁將軍就在推特上對此事表示震驚無奈
 
-值得提及的一點是，交易中重要一項是要把TikTok的技術與ByteDance的基礎設施和訪問分離開來，此舉能降低美國對私人數據完整性的擔憂。 ByteDance在中國大陸擁有一個名為“抖音“的短視頻應用程序，該應用程序使用TikTok的相同代碼。人們正在考慮給微軟和ByteDance一個過渡期，以便兩者開發出完全獨立於TikTok和ByteDance的技術。
 
-Bytedance和白宮沒有立即回應有關微軟方面的表態，Bytedance在星期天晚些時候發表的一份聲明中沒有提及TikTok，但稱其在全球化的過程中面臨“複雜和難以想像的困難” 。
+[https://uk.reuters.com/article/us-usa-trade-china-companies/chinese-firms-that-fail-us-accounting-standards-to-be-delisted-as-of-2022-mnuchin- idUKKCN2562QX](https://uk.reuters.com/article/us-usa-trade-china-companies/chinese-firms-that-fail-u-s-accounting-standards-to-be-delisted-as-of-2022-mnuchin-idUKKCN2562QX)
 
-**美國將繼續加強對來自中共國應用軟件的審查**
+- 假擀麵杖經濟難以為繼：中共國食品cpi指數同比增長13.2%,豬肉價格更是上長85.7%。民以食為天，在數據大量注水的情況下食品增幅還是到達2位數可見中共確實無力回天。牆內戰友務必抓緊屯糧，換美元，以及逃離汛情區。
 
-由於中共在貿易、香港自治權、網絡安全和CCP病毒傳播等方面的所作所為，中美兩國之間關係加劇惡化，TikTok已成為全球兩個最大經濟體之間爭端的又一導火索。中共的官方報紙《中國日報》週一稱，Bytedance是美國政治迫害的受害者，還說美國政府沒有提供有力證據支持其“TikTok對美國國家安全構成威脅”的指控。
 
-美國對應用程序開發商處理的個人數據審查越來越嚴格，尤其是當數據涉及到美國軍事或情報人員時。下令對TikTok撤資並不是白宮第一次針對此類擔心而採取的行動。比如今年初，美國外國投資委員會就下令中共背景的北京崑崙科技有限公司出售了其2016年購買的Grindr LLC，該應用是一款受歡迎的同性約會應用程序，崑崙科技被迫以62億美元價格將其出售。再如，2018年，由於擔心可識別美國公民數據的安全性，美國外資委員會迫使中共國的螞蟻金服（Ant Financial）放棄收購速匯金國際公司（MoneyGram International Inc）的計劃。
+> [China inflation edges up as food prices rise](https://themalaysianreserve.com/2020/08/11/china-inflation-edges-up-as-food-prices-rise/)
 
-\*相關文章：《從“移除中共國App”應用看到了世界的覺醒》
+- 自此再無Made in HK。美海官署宣布9/25日起不再區分“Made in China” & “Made in HK”，此舉勢必打擊眾多香港製造業（比如袁粑粑的電子婊作坊），喪鐘已為四大不要臉而鳴。
 
-> [从“移除中共国App”应用看到了世界的觉醒](https://gnews.org/zh-hans/219500/)
 
-原文鏈接：  [https://www.reuters.com/article/us-usa-tiktok-trump-exclusive-idUSKBN24Y0UD](https://www.reuters.com/article/us-usa-tiktok-trump-exclusive-idUSKBN24Y0UD)
 
-翻譯：Hakunamatata
 
-校對：Sarathecat
+By 金融法律組
 
-0
+1
