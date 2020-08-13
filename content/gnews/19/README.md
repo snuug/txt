@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/04 CCP病毒每日疫情直播簡報
-`2020-08-13 01:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/294797/)
+## 閆博士接受Newsmax電視台採訪時稱:「病毒源自中共實驗室! 」（英文+蒙古語）
+`2020-08-13 04:51 GM62` [轉載自GNews](https://gnews.org/zh-hant/295143/)
 
-戰友之家圖文摘要及小語種組
+ᠶᠢᠠᠨ ᠳ᠋ᠣᠺᠲ᠋ᠣᠷ ᠲᠧᠯᠸᠢᠰ ᠬᠣᠷᠢᠶᠠᠨ ᠤ ᠰᠤᠷᠪᠤᠯᠵᠢᠯᠠᠭ᠎ᠠ ᠶᠢ ᠬᠦᠯᠢᠶᠡᠬᠦ ᠳᠡᠭᠡᠨ ᠄ ᠸᠢᠷᠦ᠋ᠰ ᠳᠤᠮᠳᠠᠳᠤ ᠤᠯᠤᠰ ᠤᠨ ᠡᠪ ᠬᠠᠮᠲᠤ ᠨᠠᠮ ᠤᠨ ᠲᠤᠷᠰᠢᠯᠲᠠ ᠶᠢᠨ ᠲᠠᠰᠤᠭ ᠠᠴᠠ ᠢᠷᠡᠯᠲᠡ ᠲᠡᠶ
 
-[English\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014223/English_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014223/English_0804_CCP_Virus_Updates.pdf)
+翻譯：闪电训练 校對：闪电训练 視頻製作：菠萝
 
-[French\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014227/French_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014227/French_0804_CCP_Virus_Updates.pdf)
+簡介 病毒不是直接從蝙蝠來的、而是經過修改的病毒，是根據中國軍事研究院發現的蝙蝠冠狀病毒。
+ᠸᠢᠷᠦ᠋ᠰ ᠰᠢᠭᠤᠳ ᠰᠠᠷᠢᠰᠤᠨ ᠪᠠᠭᠪᠠᠭᠠᠶ ᠶᠢᠨ ᠪᠡᠶ᠎ᠡ ᠳᠡᠭᠡᠷ᠎ᠡ ᠡᠴᠡ ᠢᠷᠡᠭᠰᠡᠨ ᠪᠢᠰᠢ ᠂      ᠬᠠᠷᠢᠨ ᠳᠤᠮᠳᠠᠳᠤ ᠤᠯᠤᠰ ᠠᠴᠠ ᠴᠡᠷᠢᠭ ᠣᠨ ᠶᠠᠪᠤᠳᠠᠯ ᠤᠨ ᠰᠤᠳᠤᠯᠭᠠᠨ ᠤ ᠬᠦᠷᠢᠶᠡᠯᠡᠩ ᠡᠴᠡ ᠢᠯᠡᠷᠡᠭᠦᠯᠦᠭᠰᠡᠨ ᠰᠠᠷᠢᠰᠤᠨ ᠪᠠᠭᠪᠠᠭᠠᠶ ᠶᠢᠨ ᠲᠢᠲᠢᠮᠯᠢᠭ ᠸᠢᠷᠦ᠋ᠰ ᠪᠣᠯᠤᠨ᠎ᠠ
 
-[Japanese\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014237/Japanese_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014237/Japanese_0804_CCP_Virus_Updates.pdf)
-
-[Korean\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014234/Korean_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014234/Korean_0804_CCP_Virus_Updates.pdf)
-
-[Russian\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014241/Russian_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014241/Russian_0804_CCP_Virus_Updates.pdf)
-
-[Spanish\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014230/Spanish_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014230/Spanish_0804_CCP_Virus_Updates.pdf)
-
-
-
-1
+0

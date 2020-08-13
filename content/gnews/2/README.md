@@ -1,14 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士回顧世衛組織所有謊言 中共在背後操縱這一切 羥氯喹對冠狀病毒長期有效有預防和治療作用（中文+日文）
-`2020-08-13 06:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/295221/)
+## 病毒並非源自武漢華南海鮮市場! 閆博士揭露秘密調查結果（英文English+中文Chinese+意大利文Italian）
+`2020-08-13 10:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/295439/)
 
-日文標題 閆博士は告発 「中国共産党は水面下でWHOを牛耳り真相を隠蔽」、「 ヒドロキシクロロキンは新型肺炎の治療と予防に有効 」閆博士は告発連発
+意大利文標題 La virologa informatrice cinese: il virus non provenga dal mercato del pesce di Wuhan
 
-**翻譯：華夏儿女** **校對：瓜子** **視頻：文件夹 文稿：瓜子**
+翻譯：明天的彩虹 校對： Carota Einstein
 
-閆博士針對中共和WHO隱瞞CCP病毒真相而造成世界大爆發的罪行進行了揭露。 並對羥氯喹的信賴性和安全性進行了解釋和說明。 她闡述到,羥氯喹已有60年的臨床使用經驗,已被認定為瘧疾等疾病的特效藥,孕婦和兒童都可以使用。 羥氯喹有保護免疫系統不陷入混亂狀態的作用,對CCP病毒有預防和治療效果,印度和臺灣已採用,並有所成功。 希望能推廣羥氯喹以對抗CCP病毒,拯救人類。
-閆博士はCCPとWHOが真相隠蔽し、世界に感染拡大に至る犯行を告発しました。そしてHCQの信頼性と安全性を解説しました。HCQは60年の使用歴があって、マラリア等の特薬と認定され、妊婦と児童も使えます。HCQは免疫システムの混乱状態を回避する作用があります、新型コロナに予防と治療する効果があります、インドや台湾も治療に使用し、効果がありました。HCQを世界に推奨して新型コロナに勝って人類を救って欲しいと語りました。
+中共釋放資訊引導人們相信,這個病毒來自武漢海鮮市場,然而三分之一最初被確診的病例人數並沒有去過那個海鮮市場,所有就不能確定病毒來自海鮮市場。
+
+Il Partito Comunista Cinese vogliono anche che le persone credano che questo virus provenga dal mercato del pesce di Wuhan, anche se abbiamo visto che almeno un terzo dei contagiati non è mai stato a questo mercato del pesce, non ci sono mai stati, non verranno diagnosticati.
 
 0
