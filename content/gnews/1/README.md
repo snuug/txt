@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黎智英：这一天终于来了
-`2020-08-13 04:15 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/295112/)
+## 【世界多語言圖文】2020/08/05 CCP病毒每日疫情直播簡報
+`2020-08-13 06:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/294869/)
 
-作者：引力波
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13034946/4-9.jpg)
-昨日,香港員警以涉嫌違反”港版國安法”為由拘捕蘋果日報老闆、壹傳媒創建人黎智英、黎智英的兩個兒子、壹傳媒4名高層等至少9人,並派出數百員警搜查壹傳媒總部大樓。 黎智英先生曾經說過:”我兩手空空來到香港,所得一切都歸功於香港之自由,如今感恩而已生命回報自由。 “
+戰友之家圖文摘要及小語種組
 
-在黎先生被捕之後的數小時內,壹傳媒股票大漲300%。 勇敢的香港人用行動支援黎先生,他們表示即使蘋果日報只能出版白紙,他們也會將它買空。 這是民心所向。 今年五月,黎智英先生曾經寫道:”我擔心有一天中國共產黨不僅會對香港的新聞自由感到厭倦,而且對香港的自由人民感到厭倦。 那天到了。 “
+[English\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)
 
-黎先生是香港的英雄,但是香港還有數以萬計的年輕抗爭者在最近的一年裡被拘捕、強姦、謀殺。 不要忘記他們,不要讓他們白白犧牲,不要讓悲劇一遍遍地重演。 西方文明世界現在必須要醒來了,除非中共摧毀整個世界的民主自由,否則他們不會停止。 沒有人可以獨善其身,所有他們所遭受的苦難終將落在我們每一個人身上,拯救香港,就是拯救我們自己
+[French\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)
+
+[German\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)
+
+[Japanese\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)
+
+[Korean\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)
+
+[Russian\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)
+
+[Spansih\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)
+
+
 
 0

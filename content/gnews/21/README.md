@@ -1,71 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國對美國立法者和非政府組織高管實施報復性制裁
-`2020-08-12 17:21 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/294426/)
+## 中共國干涉美國總統大選，黑客攻擊是其瘋狂手段之一
+`2020-08-13 00:06 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/294751/)
 
-*新聞來源：《Breitbart》；作者：JOHN HAYWARD；發佈時間： 2020年8月10日*
+*新聞來源：Reuters《路透社》；作者：Christopher Bing；發佈時間：2020年8月9日*
 
-*翻譯/簡評：文明明；校對：leftgun；審核：InAHurry；Page：拱卒*
+*翻譯/簡評：RachelX；校對：沐子璐璐；審核：InAHurry；Page：拱卒*
 
-簡評：
+**簡評：**
 
-上週，美國對包括香港行政長官林鄭月娥（Carrie Lam） 在內的11名參與迫害香港的中共國官員實施了製裁。表達了美國政府對香港人民追求自由民主法制運動的支持，同時也表明美國堅決反對中共對香港人民的壓制的立場。
+多年來，中共對於美國內部政治的滲透和影響早就無處不在。但是由於之前美國延續其半個世紀以來的外交戰略，一直只是把俄羅斯作為首要敵人，對於中共，美國卻一直採取了綏靖政策。但最終事實證明，這只披著羊皮的狼才是美國乃至西方自由世界的最大威脅。中共發動的網絡戰不僅僅局限於對於西方知識產權的竊取，中共在利用高科技手段控制西方民眾的輿論導向方面也是駕輕就熟。而對於乾擾美國大選中共更是不遺餘力。此次大選臨近之際，美方不僅截獲了來自於中共國的，可用於競選投票的偽造駕照，而身為國家安全顧問的奧布萊恩也明確指出中共在網絡方面在對美進行攻擊。看來大選來臨之際，一場血雨腥風將無可避免…
 
-本週一，中共國採取了外交對等政策，宣布對6名美國國會議員和5名與人權有關的非政府組織高管實施制裁，制裁的理由無外乎千年不變的“香港是中共國的香港，香港事務是中共國的內政，任何外部勢力都不能干預”。這就是中共從不承認自己的錯誤，把責任推卸給他方的一貫的做法。
+##  **奧布萊恩說，中共國通過網絡攻擊瞄準美國大選基礎設施** 
+[!\[\](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/eb34400f-9716-4774-8a1e-c945e2da45c2.jpg?asset_id=52697568-caf5-411c-83e0-f395fa36c50f&amp;img_etag=%22fa10fbb7299e9c5ab6bb4cf1e065339b%22&amp;size=1024)](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/eb34400f-9716-4774-8a1e-c945e2da45c2.jpg?asset_id=52697568-caf5-411c-83e0-f395fa36c50f&amp;img_etag=%22fa10fbb7299e9c5ab6bb4cf1e065339b%22&amp;size=1024)
+華盛頓（路透社）- 白宮國家安全顧問羅伯特·奧布賴恩（Robert O’Brien）週日表示，與中共政府相關的黑客一直在瞄準2020年總統大選前的美國選舉基礎設施，這表明中共涉嫌干預大選的活動已經愈演愈烈。
 
-對於中共的製裁，受制裁的參議院們和非政府組織高管們給予了有力的反擊：
+奧布萊恩的言論似乎超出了國家情報總監辦公室週五發表的聲明，該聲明說中共國“一直在擴大影響力“，並指出俄羅斯已經在試圖削弱民主黨候選人喬·拜登的影響力。該聲明並未明確指責北京對美國大選相關係統進行黑客攻擊的行為。
 
-*參議員湯姆·科頓（Tom Cotton）——中共是對自由世界最大的危險，我將永遠不會停止與它針鋒相對。*
+奧布萊恩在哥倫比亞廣播公司的《面向全國》節目中表示：“他們希望看到總統落敗。中共國像俄羅斯和伊朗一樣，都在對我們的選舉基礎設施和網站進行網絡攻擊和網絡釣魚。 ”
 
-*霍利（Josh Hawley）議員——中國宣布對我進行製裁，來報復我發出反共的聲音以及捍衛美國的利益。隨便你報復，我不會退縮。*
+美國政府指責中共國黑客入侵美國公司，政客或政府機構，但中共國一直否認這種說法。中共國外交部發言人耿爽在今年四月曾表示：“美國總統大選是美國內部事務，我們對此無意干涉。”
 
-*盧比奧（Marco Rubio）議員表示——自由世界必須和他們（香港的民主運動活動家）站在一起。*
+奧布萊恩說，美國已經看到來自全國各地的黑客試圖入侵美國國務卿辦公室的網站，這些網站負責管理地方一級的選舉並收集美國民眾數據。
 
-中共的報復性制裁其實根本沒有正當理由、沒有事實依據，師出無名。它之所以這麼做，只是為了國內維穩和在國際上保留面子。正如人權觀察組織的肯尼斯·羅斯（Kenneth Roth）在他的回應中所說：“美國政府因為香港的自由被打壓而製裁了中共國和香港的官員。相反，北京製裁我和其他十位是因為我們捍衛了這些自由。我很榮幸能夠加入到有無數香港人的自由陣營。”
+他表示：“這是一個令人擔憂的問題，干擾絕非僅僅來自俄羅斯。任何試圖干預我們自由公正選舉的國家都將面臨嚴重後果。”
 
-##  **中共國對美國立法者和非政府組織高管實施報復性制裁** 
+國家安全委員會沒有立即回應置評請求。國家情報總監辦公室拒絕評論或澄清奧布萊恩的言論是否與其觀點相悖。
+[!\[\](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/c412998a-64db-4f18-b655-bc394d804381.jpg?asset_id=52c33ff9-2e1e-4ca0-a976-bb09641bdff8&amp;img_etag=%2202ce040a92559cceada4fbb28a260a54%22&amp;size=1024)](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/c412998a-64db-4f18-b655-bc394d804381.jpg?asset_id=52c33ff9-2e1e-4ca0-a976-bb09641bdff8&amp;img_etag=%2202ce040a92559cceada4fbb28a260a54%22&amp;size=1024)
+國家情報總監辦公室此前曾表示，“對手”正試圖在11月份總統大選前破壞美國政治候選人的私人通訊，並滲透美國選舉系統。而且中共國方面不希望看到川普總統的連任。
 
-**週一，中共國宣布對11名美國人實施制裁，以報復美國對包括香港行政長官林鄭月娥（Carrie Lam）在內的11名參與迫害香港的中共國官員的製裁。**
+美國情報機構的多次審查認為，俄羅斯在2016年的競選活動中支持了川普，並削弱了其競爭對手希拉里·克林頓在大選中的機會。
 
-[!\[\](https://spark.adobe.com/page/Mngamnw0h9agT/images/dea45e64-2afe-4519-80c4-ca1cfa45527f.jpg?asset_id=2db9697e-7e23-4d70-aa14-40aaa3179647&amp;img_etag=%22858665e3d511bc8bbbdaafe21f1d8d69%22&amp;size=2560)](https://spark.adobe.com/page/Mngamnw0h9agT/images/dea45e64-2afe-4519-80c4-ca1cfa45527f.jpg?asset_id=2db9697e-7e23-4d70-aa14-40aaa3179647&amp;img_etag=%22858665e3d511bc8bbbdaafe21f1d8d69%22&amp;size=1024)
+[原文鏈接](https://www.reuters.com/article/us-usa-election-interference-idUSKCN2550Q2)
 
-中共國製裁的對象包括六名美國議員，他們全都是共和黨人，還有五名與人權有關的非政府組織的高管。
-
-[!\[\](https://spark.adobe.com/page/Mngamnw0h9agT/images/662c2c4b-df0b-46f0-8d30-a929bc6513ae.jpg?asset_id=6eb56036-aaad-4854-8891-bf22dc1bc038&amp;img_etag=%22cf1c83ef0823384eadb85fd6828dfddb%22&amp;size=2560)](https://spark.adobe.com/page/Mngamnw0h9agT/images/662c2c4b-df0b-46f0-8d30-a929bc6513ae.jpg?asset_id=6eb56036-aaad-4854-8891-bf22dc1bc038&amp;img_etag=%22cf1c83ef0823384eadb85fd6828dfddb%22&amp;size=1024)光榮榜，反共的勇士們
-
-受到製裁的美國國會議員包括德克薩斯州的泰德·克魯茲（Ted Cruz）、佛羅里達州的馬可·魯比奧（Marco Rubio）、密蘇里州的喬什·霍利（Josh Hawley）、阿肯色州的湯姆·科頓（Tom Cotton）和賓夕法尼亞州的帕特·圖密（Pat Toomey）以及新澤西州眾議員克里斯·史密斯（Chris Smith）。此前，中共國曾禁止克魯茲（Ted Cruz）、盧比奧（Marco Rubio）和史密斯（Chris Smith）到中共國旅行。
-
-受到製裁的非政府組織高管是國家民主基金會主席卡爾·格甚曼（Carl Gershman）、國家民主研究所的德里克·米切爾（Derek Mitchell）、共和黨國際研究所的丹尼爾·特溫寧（Daniel Twining）和自由之家的邁克爾·阿布拉莫維茨（Michael Abramowitz），以及人權觀察組織的執行董事肯尼斯·羅斯（Kenneth Roth）。
-
-中共國外交部在宣布製裁時說：“中共國堅決反對並強烈譴責這種公然干涉香港事務—中共國內政的做法，因為它嚴重違反了國際法和國際關係的基本原則。”
-
-外交部聲稱，受到製裁的個人及其組織圖謀挑戰北京用“一國兩制”的原則來控製香港，而這一原則被世界公認為是成功的”。
-
-外交部發言人趙立堅說：“我想重申，香港是中共國的香港，香港事務是中共國的內政，任何外部勢力都不能干預。中共國敦促美國要承認這一現實並糾正其不法的行為，不要朝著錯誤的方向走得更遠。”
-
-《華爾街日報》發現，川普政府的一些重要官員不在製裁者名單中，同時也注意到名單上的議員都是“共和黨人和針對中共國的鷹派”。
-
-參議員湯姆·科頓（Tom Cotton）發表聲明，以被中共國製裁為榮，並發誓將加大對中共暴政的打擊力度：
-
-[!\[\](https://spark.adobe.com/page/Mngamnw0h9agT/images/3925698b-a934-4f04-8453-edfb9a9ddc8a.jpg?asset_id=ec4c2c22-8ef6-43e0-9c9a-2e05758495b5&amp;img_etag=%22eeb88d39972e37dda130166c39a85b78%22&amp;size=2560)](https://spark.adobe.com/page/Mngamnw0h9agT/images/3925698b-a934-4f04-8453-edfb9a9ddc8a.jpg?asset_id=ec4c2c22-8ef6-43e0-9c9a-2e05758495b5&amp;img_etag=%22eeb88d39972e37dda130166c39a85b78%22&amp;size=1024) Tom Cotton
-
-*中共用這些沒有用的製裁來對付我是因為我維護了中共的真正受害者：數百萬受武漢新冠病毒傷害的美國人，那些因為工廠關閉、工作被轉移到中共國（而失業）的工人，那些財產被竊取的企業和發明家，那些教堂被推土機夷為平地的中共國基督教徒和傳教士們，那些在集中營中掙扎的維吾爾人和其他少數族裔，那些為民主而奮不顧身的香港學生和被共產專制的高科技所控制的中國人民。*
-
-中共是對自由世界最大的威脅，我將永遠不會停止與它針鋒相對。如果中共國因為我迄今為止反對共產主義專制的努力而對我實行這些制裁，那麼我有三個字給他們：走著瞧。
-
-[!\[\](https://spark.adobe.com/page/Mngamnw0h9agT/images/c35fd780-7299-47d4-87f2-ecb99ba3dc62.jpg?asset_id=8e629923-cf0c-4c64-862e-27f59f979046&amp;img_etag=%2276de505e0d8f8c9968ff03624872fc5a%22&amp;size=2560)](https://spark.adobe.com/page/Mngamnw0h9agT/images/c35fd780-7299-47d4-87f2-ecb99ba3dc62.jpg?asset_id=8e629923-cf0c-4c64-862e-27f59f979046&amp;img_etag=%2276de505e0d8f8c9968ff03624872fc5a%22&amp;size=1024) Josh Hawley
-
-霍利（Josh Hawley）以類似的方式回應：“中共國宣布對我進行製裁，來報復我發出反共的聲音以及捍衛美國的利益。隨便你報復，我不會退縮”。
-
-[!\[\](https://spark.adobe.com/page/Mngamnw0h9agT/images/1378f5a9-1454-440e-a5cb-c79f307abaea.jpg?asset_id=04fe0d27-be85-4763-a4d5-e7fcc9eab888&amp;img_etag=%22d7380789ffd94ff2729c7f1f918eb5e2%22&amp;size=2560)](https://spark.adobe.com/page/Mngamnw0h9agT/images/1378f5a9-1454-440e-a5cb-c79f307abaea.jpg?asset_id=04fe0d27-be85-4763-a4d5-e7fcc9eab888&amp;img_etag=%22d7380789ffd94ff2729c7f1f918eb5e2%22&amp;size=1024) Marco Rubio
-
-盧比奧（Marco Rubio）在推特上取笑了這一制裁：“上個月中共國禁止了我（入境），今天他們制裁我。我不想專牛角尖，但是，我開始覺得他們不喜歡我了。 ” 他隨後發了幾張自己與香港民運人士會面的照片，並表示“自由世界必須和他們站在一起”。
-
-人權觀察組織的肯尼斯·羅斯（Kenneth Roth）在他的回應中說：“美國政府因為香港的自由被打壓而製裁了中共國和香港的官員。相反，北京製裁我和其他十位是因為我們捍衛了這些自由。我很榮幸能夠加入到有無數香港人的自由陣營。”
-
-[原文鏈接](https://www.breitbart.com/national-security/2020/08/10/china-retaliates-with-sanctions-on-u-s-lawmakers-and-ngo-executives/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Mngamnw0h9agT/)
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/ttXPb8pvi38Qj/) 】
 
 0

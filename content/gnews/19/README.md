@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月12日中共病毒疫情要聞快報
-`2020-08-12 17:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/294494/)
+## 【世界多語言圖文】2020/08/04 CCP病毒每日疫情直播簡報
+`2020-08-13 01:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/294797/)
 
-**重要內容：**
+戰友之家圖文摘要及小語種組
 
-- 閆麗夢博士在Newsmax TV電視台揭露： “病毒來源於中共實驗室！”；
-- 班農：中共是全人類的敵人；
-- 美駐華大使館徽號刪除“中國”只留“北京”；
-- 訪民被圍追堵截，信訪辦依然人山人海。
+[English\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014223/English_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014223/English_0804_CCP_Virus_Updates.pdf)
+
+[French\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014227/French_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014227/French_0804_CCP_Virus_Updates.pdf)
+
+[Japanese\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014237/Japanese_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014237/Japanese_0804_CCP_Virus_Updates.pdf)
+
+[Korean\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014234/Korean_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014234/Korean_0804_CCP_Virus_Updates.pdf)
+
+[Russian\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014241/Russian_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014241/Russian_0804_CCP_Virus_Updates.pdf)
+
+[Spanish\_0804\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014230/Spanish_0804_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13014230/Spanish_0804_CCP_Virus_Updates.pdf)
 
 
 
-
-製作：【上天造滅疫組】
-
-2
+1

@@ -1,34 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 0812每日財經快訊
-`2020-08-12 11:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/294266/)
+## 末日近了，中共跪了
+`2020-08-12 19:10 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/294573/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12110701/%E8%B4%A2%E7%BB%8F.png)
-1. 貴金屬價格小幅跳水：銀遠期下調至$23/y盎司，黃金遠期回調至$1900/盎司左右，分析師認為投資者對全球經濟復甦信息提升所致。私以為長期來看貴金屬仍有上漲空間，但短期波動會波動前景不明朗。
+作者：喜馬拉雅聯盟加拿大農場龍井
 
+校對：風雲小哥
 
-[https://www.hindustantimes.com/business-news/indian-spot-gold-rate-and-silver-price-on-aug-12-2020/story-yz6S06RbfaICYWCRjISPKK.html](https://www.hindustantimes.com/business-news/indian-spot-gold-rate-and-silver-price-on-aug-12-2020/story-yz6S06RbfaICYWCRjISPKK.html)
+![中央黨校校刊載文盛讚習近平貴族氣質引爆網絡in 2020 | Okay gesture ...](https://lh5.googleusercontent.com/F1p0UCmkS_6WQGFPHCwCqVZlhrKtiEHTMlrhiwZbNXbY4hGYq7d2saIyiahSQxJZ58qSPjK7O4NH0IRZeg_zvFTo0UnrDAmabU7j4yj4ozTS-e3_eZNRtRtWX2irwSQRIt726bw)
 
-2.零對沖：各國央行至明年或向市場注水近28萬億美元。零對沖近日發文：世界各國央行為應對經濟泡沫今年預估將向市場注資24萬億美元（該數據已剔除中共央行的超發貨幣額），明年更是可能達到驚人的28萬億美元。由此可見正如7哥所言，就算排除中共病毒這一黑天鵝事件世界經濟長久向好亦是十分困難。
+圖片來源：網絡
 
-[https://www.zerohedge.com/markets/central-bank-balance-sheets-hit-28-trillion-next-year](https://www.zerohedge.com/markets/central-bank-balance-sheets-hit-28-trillion-next-year)
+8月12日，中共外交部副部長樂玉成通過外交部網站向美國傳遞“求和”信息。樂玉成說：“中美兩國的對話不能中斷，尤其兩國外交部門不能陷入’無線電靜默’。我本人已做好隨時與美方同行對話的準備。” 他還說：“未來幾個月十分關鍵，我們要保持定力，牢牢把握兩國關係的正確方向，確保其不失控、不脫軌。”
 
-3.建行反了？還是中共已拋棄港共？據聞建行香港分行竟跟從美國政府制裁令對11名港共官員暫停開新戶口。消息還指出，在港三大中資銀行：中國銀行，建行和招商銀行同時開始限制11官員開新賬戶以保障自身美元融資渠道來苟延殘喘。狡兔死，走狗烹將會是香港四大不要臉未來的真實寫照。
+短短數語，釋放出許多信息。
 
-[https://www.bloomberg.com/news/articles/2020-08-12/chinese-banks-move-to-comply-with-us-sanctions-on-hong-kong?fbclid=IwAR1Vh2u89yIfS3xTE-469p28gvE-cLQChMGtB06ywt8Lz1EvtwBihyf0Lz0](https://www.bloomberg.com/news/articles/2020-08-12/chinese-banks-move-to-comply-with-u-s-sanctions-on-hong-kong?fbclid=IwAR1Vh2u89yIfS3xTE-469p28gvE-cLQChMGtB06ywt8Lz1EvtwBihyf0Lz0)
+首先，中美兩國的對話已經中斷。說白了就是不管中共如何叫囂，美國都不予理會。其次，中共戰狼集體隱遁，推出新面孔準備跪下求和。第三，中共承認：與美國徹底鬧翻，就意味著“習總加速師”開的這輛破車就會失控、脫軌；第四，未來幾個月，是決定中共生死存亡的關鍵時刻。
+![Image](https://lh3.googleusercontent.com/h2qQ3qPRwRauKt1O_32ZL9QPYOPcKuYrVcQvBEoFqQstFNwlyadiuuMnaWWvEuIYqrbLHBIezw-Gz5LhmXDC7lVPVUw0m_Dtk4aAI6pfLrAyajW-xTdhY0lMPMdTKheWf-05FtE)圖片來源：財聯社
+因此，樂玉成說：“就是再困難、再复雜的問題，也要拿到桌面上來談。我本人已做好隨時與美方同行對話的準備。”“雙方問題已經夠多了，我們不能再做加法，而要想辦法做減法。”
 
-4.四大行哀聲四起；契稅率上調無影響？國內四大銀行頻頻爆出對管理層實施減薪。同時自9月1日期牆內70年產權房稅率平均上調2%。那麼問題來了，牆內的同胞，你們還能忍麼？你們覺得這紙糊的擀麵杖你們還能幫忙撐麼？
+回到7月24日，中共外交部長王毅同德國外長馬斯舉行視頻會晤時，語氣還相當強硬，稱中美關係目前面臨的困難完全是美方一手造成的**，**美方是不擇手段的，甚至是毫無底線的，並揚言中共國“絕不容美方胡來”。
 
-[https://news.sina.com.tw/article/20200807/35970824.html](https://news.sina.com.tw/article/20200807/35970824.html)
+自中共投放病毒造成全球大流行，導緻美國數十萬人喪生，尤其是中共使臣楊潔篪赴夏威夷談判以來，中美關係急劇惡化。美國相繼在南海、東海部署兵力，分別與澳大利亞、印度、台灣、日本、菲律賓等國進行各類聯合軍事演習，還派遣戰鬥機、偵察機無限接近香港、廣州、上海等城市。總而言之，美軍已做好大規模局部衝突的備戰工作。
 
-[https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html](https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html)
+同時，美國還以凍結資產和限制簽證等措施，相繼制裁了迫害新疆維吾爾族同胞，破壞香港民主與自由的相關責任人，制裁了華為、字節跳動、騰訊等中共科技巨頭。
 
-1. 四大行哀聲四起；契稅率上調無影響？國內四大銀行頻頻爆出對管理層實施減薪。同時自9月1日期墻內70年產權房稅率平均上調2%。那麽問題來了，墻內的同胞，妳們還能忍麽？妳們覺得這紙糊的搟面杖妳們還能幫忙撐麽？
-https://news.sina.com.tw/article/20200807/35970824.html
-https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html
+這還沒完，川普政府還委派白宮美國衛生部長阿扎爾訪問台灣，觸碰中共最敏感的“紅線”。
 
+對於中共的“強烈抗議”，國務卿蓬佩奧則加以輕描淡寫的諷刺與挖苦：“令我感到驚訝的是，當美國派它的衛生部長到另一個國家時，為什麼會有人因此感到受威脅呢？ ”他說：“阿扎爾訪台是為了高尚的人道主義目的，要降低全世界所有公民的風險，包括中國公民在內。僅僅是一個衛生部長，為了擊敗這個全球大流行的病毒而在一個特定的地方出現，有人卻因此感到受威脅，感到憤怒，並且認為是在挑戰他們的國家安全，這只能說明他們非常脆弱。”
 
-By 金融法律組
+對於美國在政治、軍事、經濟以及科技方面的全方位夾擊，中共不得不放下身段，委曲求全。
 
-0
+8月5日，王毅轉變話風，有一種求饒的意味，為維護中美關係捋出“四要”準則：一要明確底線，避免對抗。二要暢通渠道，坦誠對話。三要拒絕脫鉤，保持合作。四要放棄零和，共擔責任。
+
+然而，王毅放出的話就好像是放出的空氣，美方依然置之不理。如今中共只好又放出這位副部長向美國釋放“求和”訊息。
+
+正如文貴先生所說，中共只會欺負柔弱的老百姓，一旦遇上強敵，只有一個選擇——跪！網友評論這樣評論中共的嘴臉：“一個字：賤！兩個字：真賤！！三個字：特犯賤！！！”
+
+然而事到如今，求和還管用麼？ 8月12日，郭文貴先生向戰友們傳遞好消息： “現在（滅共大業）已經萬事俱備！華盛頓、洛杉磯、矽谷和華爾街分別作出了重要的決定。8月份對爆料革命來說是最最關鍵的……重錘必將落下，沒人擋得住！”
+
+郭先生視頻： [https://twitter.com/Safeguard008/status/1293507270035136513](https://twitter.com/Safeguard008/status/1293507270035136513)
+
+2
