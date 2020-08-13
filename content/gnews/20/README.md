@@ -1,45 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 華為禁令不會“將英國帶入數字網絡慢車道”
-`2020-08-11 17:49 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/293419/)
+## 0812每日財經快訊
+`2020-08-12 11:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/294266/)
 
-*新聞來源：telegraph《電報》；作者：Hannah Boland；發佈時間： 2020年8月5日*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12110701/%E8%B4%A2%E7%BB%8F.png)
+1. 貴金屬價格小幅跳水：銀遠期下調至$23/y盎司，黃金遠期回調至$1900/盎司左右，分析師認為投資者對全球經濟復甦信息提升所致。私以為長期來看貴金屬仍有上漲空間，但短期波動會波動前景不明朗。
 
-*翻譯/簡評：文意；校對：* *Beicy-數學老師；審核：海闊天空；Page：拱卒*
 
-簡評：
+[https://www.hindustantimes.com/business-news/indian-spot-gold-rate-and-silver-price-on-aug-12-2020/story-yz6S06RbfaICYWCRjISPKK.html](https://www.hindustantimes.com/business-news/indian-spot-gold-rate-and-silver-price-on-aug-12-2020/story-yz6S06RbfaICYWCRjISPKK.html)
 
-我深信在任何一個有信仰的國家裡，人民是不會對邪惡低頭的。華為是中共的邪惡之手，伸向全世界從事違法活動： 偷竊技術、監視、從事間諜活動，危害所在國的人民安全。英國政府決定將華為踢出5G供應商的決定符合民心、民意。很多時候政府官員會被利益誘惑與中共勾兌，但領導人應該知道任何決策只要以民為本就會得人心。政府決策絕對不能因為少數富有階層的利益而犧牲人民和國家利益。
+2.零對沖：各國央行至明年或向市場注水近28萬億美元。零對沖近日發文：世界各國央行為應對經濟泡沫今年預估將向市場注資24萬億美元（該數據已剔除中共央行的超發貨幣額），明年更是可能達到驚人的28萬億美元。由此可見正如7哥所言，就算排除中共病毒這一黑天鵝事件世界經濟長久向好亦是十分困難。
 
-##  **華為禁令不會”將英國帶入數字網絡慢車道”** 
+[https://www.zerohedge.com/markets/central-bank-balance-sheets-hit-28-trillion-next-year](https://www.zerohedge.com/markets/central-bank-balance-sheets-hit-28-trillion-next-year)
 
-**信息科技專業人員表示，他們不認為政府的決定會導致更高的費用並加劇數字網絡鴻溝**
+3.建行反了？還是中共已拋棄港共？據聞建行香港分行竟跟從美國政府制裁令對11名港共官員暫停開新戶口。消息還指出，在港三大中資銀行：中國銀行，建行和招商銀行同時開始限制11官員開新賬戶以保障自身美元融資渠道來苟延殘喘。狡兔死，走狗烹將會是香港四大不要臉未來的真實寫照。
 
-[!\[\](https://spark.adobe.com/page/iXjG7spt60InX/images/e02fcdcc-e897-46df-b826-cb216f35dea2.jpg?asset_id=200c2cae-9c68-491c-96f6-858543383d66&amp;img_etag=%223688cd1f74033c15f9b8961a06982964%22&amp;size=2560)](https://spark.adobe.com/page/iXjG7spt60InX/images/e02fcdcc-e897-46df-b826-cb216f35dea2.jpg?asset_id=200c2cae-9c68-491c-96f6-858543383d66&amp;img_etag=%223688cd1f74033c15f9b8961a06982964%22&amp;size=1024)
+[https://www.bloomberg.com/news/articles/2020-08-12/chinese-banks-move-to-comply-with-us-sanctions-on-hong-kong?fbclid=IwAR1Vh2u89yIfS3xTE-469p28gvE-cLQChMGtB06ywt8Lz1EvtwBihyf0Lz0](https://www.bloomberg.com/news/articles/2020-08-12/chinese-banks-move-to-comply-with-u-s-sanctions-on-hong-kong?fbclid=IwAR1Vh2u89yIfS3xTE-469p28gvE-cLQChMGtB06ywt8Lz1EvtwBihyf0Lz0)
 
-信息科技專家表示，禁止華為的移動設備不會將英國“推入數字網絡慢車道”，此前中共國科技巨頭曾就其對英國的重要性發出嚴厲警告。
+4.四大行哀聲四起；契稅率上調無影響？國內四大銀行頻頻爆出對管理層實施減薪。同時自9月1日期牆內70年產權房稅率平均上調2%。那麼問題來了，牆內的同胞，你們還能忍麼？你們覺得這紙糊的擀麵杖你們還能幫忙撐麼？
 
-在對英國特許信息協會專業級會員的調查中，3,000名受訪者中有一半以上都不認同華為的論調—- 即英國的電信和寬帶網絡(建設)將因剔除華為的決定而受到損害，(該決定)將推高消費價格並深化數字網絡的鴻溝。另有20名專業級會員仍未決定(同意與否)。
+[https://news.sina.com.tw/article/20200807/35970824.html](https://news.sina.com.tw/article/20200807/35970824.html)
 
-大多數信息協會專業級會員表示，他們認為剝離華為設備將使英國(的信息網絡)更加安全，同時大多數會員認為2027年剔除華為設備是可行的(目標)。
+[https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html](https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html)
 
-政府上個月進行了一次大刀闊斧的(政策)轉變，沒有允許中共國公司華為為英國的5G網絡提供設備，反而命令電信運營商開始從網絡中剝離其現有的華為設備。
+1. 四大行哀聲四起；契稅率上調無影響？國內四大銀行頻頻爆出對管理層實施減薪。同時自9月1日期墻內70年產權房稅率平均上調2%。那麽問題來了，墻內的同胞，妳們還能忍麽？妳們覺得這紙糊的搟面杖妳們還能幫忙撐麽？
+https://news.sina.com.tw/article/20200807/35970824.html
+https://money.163.com/20/0812/13/FJR7VDHO00259DLP.html
 
-此舉引發了華為的強烈譴責，華為英國發言人埃德·布魯斯特(Ed Brewster)警告說，這將損害英國的創新。他說：“政府不是在“升級”，而是在降級，我們敦促他們重新考慮。” 該決策“脅迫英國進入數字網絡慢車道”。
 
-[!\[\](https://spark.adobe.com/page/iXjG7spt60InX/images/c086eac0-bc20-452e-a03e-2075bcbbaa06.jpg?asset_id=4e0bfef0-333d-4b9b-9a53-a32d40cb1359&amp;img_etag=%2227549d8ab3975f80b1cfd7cff41ea565%22&amp;size=2560)](https://spark.adobe.com/page/iXjG7spt60InX/images/c086eac0-bc20-452e-a03e-2075bcbbaa06.jpg?asset_id=4e0bfef0-333d-4b9b-9a53-a32d40cb1359&amp;img_etag=%2227549d8ab3975f80b1cfd7cff41ea565%22&amp;size=1024)
+By 金融法律組
 
-到目前為止，華為一直是最大的電信設備提供商之一，其係統已嵌入(英國)3G和4G網絡中。
-
-但是，政策主管比爾·米切爾(Bill Mitchell)表示，最新民意調查顯示：對於大多數英國信息協會專業級會員來說，“華為聲稱沒有他們英國將被拋棄到一個黑暗時代的口氣聽起來很傲慢”。
-
-“政府現在面臨的挑戰是，在開發替代方案時通過確保整個技術行業的高能力、道德和信任標準，來建立公眾對政府在華為問題上的決策支持。
-
-“這將需要在沒有華為參與且不會損害經濟增長的情況下，對英國如何建立5G能力以支持數字化轉型進行明智的規劃。” 政府已表示正在諮詢其他設備提供商，例如日本電器公司(NEC )和富士通公司(Fujitsu)。
-
-[原文鏈接](https://www.telegraph.co.uk/technology/2020/08/05/huawei-ban-will-not-move-britain-digital-slow-lane/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/iXjG7spt60InX/)
-
-1
+0

@@ -1,35 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 08.11 財經快訊
-`2020-08-11 11:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/293272/)
+## 中共國戰機進入台灣領域被導彈追踪
+`2020-08-12 09:36 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/294112/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/10204401/%E8%B4%A2%E7%BB%8F.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/11112435/1-36.png)
-1. 沒選票，那就股票：黎智英事件持續升溫，壹傳媒股票兩日內突破10倍！同時多國政要發聲力挺黎佬。港人在展現自己不屈鬥志的同時亦給加速師們出了一道新難題：究竟敢不敢撕破香港金融畫皮，強行停牌甚至清盤壹傳媒。
+*新聞來源：《每日快報》*
 
+*作者： [Rebecca Perring](https://www.express.co.uk/search?s=Rebecca%20Perring&amp;b=1)*
 
-[https://www.bloomberg.com/news/articles/2020-08-11/a-1000-stock-jump-is-hong-kong-s-new-pro-democracy-rallying-cry?cmpid=socialflow- twitter-business&utm\_campaign=socialflow-organic&utm\_source=twitter&utm\_medium=social&utm\_content=business](https://www.bloomberg.com/news/articles/2020-08-11/a-1000-stock-jump-is-hong-kong-s-new-pro-democracy-rallying-cry?cmpid=socialflow-twitter-business&amp;utm_campaign=socialflow-organic&amp;utm_source=twitter&amp;utm_medium=social&amp;utm_content=business)
+*翻譯、簡評：萬人往*
 
-- 強勢美股帶動亞洲市場：標普500繼昨日創下今年新高，距歷史最高點只差1%左右後，亞洲股市亦受帶動盤活，日經225指數上揚1.6%至22,686.53；南韓Kospi指數上揚1.3%至2418.91；悉尼S&P上跳0.9%至6167.1。由此可見美股仍是全球經濟風向標。
+*PR：沐子璐璐*
 
+*審核：海闊天空*
 
-[https://www.startribune.com/asian-shares-mostly-higher-on-stimulus-moves-jobs-data/572061812/](https://www.startribune.com/asian-shares-mostly-higher-on-stimulus-moves-jobs-data/572061812/)
+*PAGE：玄天生*
 
-- 姆努欽表示到2022年前會徹底清理不合規中概股，斯伯丁將軍：太慢！美財長姆努欽近日表示將在2022年底前徹底清理不符合美國會計要求的中概股。此“強硬”舉措確招緻美國眾多批評聲音，斯伯丁將軍就在推特上對此事表示震驚無奈
+**簡評：**
 
+原南京軍區副司令，“綠帽子”將軍王洪光（高燕燕前夫）在2017年兩會接受記者採訪時表示：“美國在台灣部署薩德之日，就是我們解放台灣之日”。如今，美國不僅加強對台軍售，還讓衛生部長訪台。中共國除了讓外交部發言人用嘴反擊、派戰鬥機越過台灣海峽中線（灰溜溜地被驅離）、刻意貶低阿扎爾部長的訪台意義之外，沒有任何實質性回擊。在外交部的回應中，“亮劍”、“奉陪到底”這樣符合戰狼外交作派的詞語也消失不見，只保留了“堅決反對”、“嚴正交涉”。
 
-[https://uk.reuters.com/article/us-usa-trade-china-companies/chinese-firms-that-fail-us-accounting-standards-to-be-delisted-as-of-2022-mnuchin- idUKKCN2562QX](https://uk.reuters.com/article/us-usa-trade-china-companies/chinese-firms-that-fail-u-s-accounting-standards-to-be-delisted-as-of-2022-mnuchin-idUKKCN2562QX)
+中共偽政權歷來都是外強中乾，鎮壓手無寸鐵的老百姓毫不手軟，對外卻軟弱無能，割地賠款；對外，從來沒贏過，對內，從來沒輸過。如果中共將局勢升級，派軍隊入侵台灣，美國的航母編隊會讓他們有去無回，甚至派無人機定點斬首，精準實現“讓領導先走”；如果中共繼續保持沉默，讓外交部打口炮，習總加速師“統一組國”的大夢就難以實現，恐怕受到黨內的質疑。中共現在進退兩難，處境尷尬。
 
-- 假擀麵杖經濟難以為繼：中共國食品cpi指數同比增長13.2%,豬肉價格更是上長85.7%。民以食為天，在數據大量注水的情況下食品增幅還是到達2位數可見中共確實無力回天。牆內戰友務必抓緊屯糧，換美元，以及逃離汛情區。
+#### 
 
-
-> [China inflation edges up as food prices rise](https://themalaysianreserve.com/2020/08/11/china-inflation-edges-up-as-food-prices-rise/)
-
-- 自此再無Made in HK。美海官署宣布9/25日起不再區分“Made in China” & “Made in HK”，此舉勢必打擊眾多香港製造業（比如袁粑粑的電子婊作坊），喪鐘已為四大不要臉而鳴。
-
+##  **第三次世界大戰的邊緣:中共國戰機進入“敵占區”後被導彈追踪** 
 
 
 
-By 金融法律組
+中共國派出戰鬥機越過台灣海峽中線，與此同時，美國衛生部長亞歷克斯·阿扎爾（Alex Azar）訪問台灣，表達川普總統的支持。
 
-1
+在經歷了一段時間的中美關係急劇惡化之後，聲稱擁有台灣主權的中共國譴責了此次訪問，隨即展示武力。中共國威脅要對此次訪問進行未指明的報復。大約上午9點(格林尼治標準時間凌晨1點)，中共國派出殲-11和殲-10戰鬥機短暫飛到台灣這邊敏感而狹窄的海峽，此海峽將台灣與其龐大的鄰國分隔開來，隨後阿扎爾（Azar）會見了台灣總統蔡英文。
+
+台灣空軍在國防部發布的一份聲明中表示，這些飛機被台灣陸基防空導彈跟踪，並被巡邏的台灣飛機“驅逐”。
+
+中共國國防部沒有立即置評。
+
+與此同時，中共國警告稱，將從周一開始對包括官員在內的11名美國公民實施制裁，以回應華盛頓當局對11名香港和中共國官員實施制裁的舉動。 (香港和中共國官員)被指責剝奪了香港的政治自由。
+
+一位熟悉政府安全規劃的台灣高級官員表示，鑑於中共國戰機處於台灣導彈的射程範圍內，中共國顯然是在“針對”阿扎爾（Azar）的訪問採取一個“非常危險的”舉動。
+
+*宣稱台灣是自己領土的中共國譴責了此次訪問（圖片：《每日快報》）*
+[!\[\](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/442b3ce3-957e-483e-886c-0dbf99f51952.jpg?asset_id=d1297cd5-8e26-4a70-8991-a1ed61ac7aeb&amp;img_etag=%22d0b6a0c5cfcf012493c48a1705b1d285%22&amp;size=2560)](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/442b3ce3-957e-483e-886c-0dbf99f51952.jpg?asset_id=d1297cd5-8e26-4a70-8991-a1ed61ac7aeb&amp;img_etag=%22d0b6a0c5cfcf012493c48a1705b1d285%22&amp;size=1024) *美國衛生部長亞歷克斯·阿扎爾（Alex Azar）會見了台灣總統蔡英文。 （圖片：GETTY）* 
+這是自2016年以來的第三次入侵，台灣方面表示，中共國戰機越過了海峽中線。
+
+在華盛頓和北京關係惡化之際，川普政府把加強對這個民主島嶼的支持作為一項優先事項，並增加了武器銷售。
+
+站在兩面台灣國旗前，阿扎爾（Azar）在總統府對蔡英文總統說:“很榮幸能在這裡轉達川普總統對台灣的大力支持和友誼。”
+[!\[\](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/c1614240-7e61-4009-b5f8-709e7996dd5d.jpg?asset_id=b8c3a02b-9ccd-4361-95f5-a36d016f66cf&amp;img_etag=%22c0b86cfd9fb2024c3e8205651e8cf495%22&amp;size=2560)](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/c1614240-7e61-4009-b5f8-709e7996dd5d.jpg?asset_id=b8c3a02b-9ccd-4361-95f5-a36d016f66cf&amp;img_etag=%22c0b86cfd9fb2024c3e8205651e8cf495%22&amp;size=1024) *中共國聲稱擁有台灣主權（圖片：路透社）* 
+華盛頓在1979年斷絕了與台北的官方關係，轉而支持北京。
+
+阿扎爾（Azar）此行目的是加強與台灣的經濟和公共衛生合作，支持台灣在抗擊冠狀病毒方面發揮的國際作用。
+
+他對蔡英文總統說:“台灣對冠狀病毒的反應是世界上最成功的，這是對台灣社會和文化開放、透明、民主的本質的讚揚。”
+
+台灣早期採取有效措施抗擊疫情，使其病例數遠低於鄰國，有480人感染，7人死亡，而且大多數病例是輸入型的。
+
+美國是冠狀病毒感染病例和死亡人數最多的國家，曾多次就疫情問題與中共國發生衝突，指責北京方面缺乏透明度。
+
+蔡英文對阿扎爾（Azar）表示，他的訪問代表著“我們兩國在抗擊大瘟疫方面的合作向前邁出了一大步”，並提到了疫苗和藥物研發、生產等領域的合作。
+[!\[\](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/c0551c99-86f2-4c53-844e-36e5023e068a.jpg?asset_id=5feed5f7-3302-42c8-9fe2-0c3017193a76&amp;img_etag=%22bf3f6844e73a70dd151fdaf0aafe4107%22&amp;size=2560)](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/images/c0551c99-86f2-4c53-844e-36e5023e068a.jpg?asset_id=5feed5f7-3302-42c8-9fe2-0c3017193a76&amp;img_etag=%22bf3f6844e73a70dd151fdaf0aafe4107%22&amp;size=1024) *美國對中國的軍事力量(圖片: 《每日快報》)* 
+美國允許台灣參加世衛組織的決策機構世界衛生大會(WHA)，更多地參與該組織，台灣特別感謝美國的支持。
+
+由於中共國的反對，台灣沒有加入世衛組織。
+
+中共國認為台灣是中共國的一個省。
+
+[新聞鏈接](https://www.express.co.uk/news/world/1320857/china-news-world-war-3-taiwan-missile-ww3)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/Nw2HEgbd3x5Qi/)
+
+0

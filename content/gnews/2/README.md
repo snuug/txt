@@ -1,21 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】班農戰斗室EP327 閆博士採訪片段
-`2020-08-12 03:00 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/293721/)
+## 中共國干涉美國總統大選，黑客攻擊是其瘋狂手段之一
+`2020-08-13 00:06 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/294751/)
 
-**班農戰斗室EP327閆博士採訪片段視頻【 [1](https://youtu.be/pCde5hsWQI0?t=3540) 】【 [2](https://youtu.be/ZH8I06W_u5g?t=3415) 】**
+*新聞來源：Reuters《路透社》；作者：Christopher Bing；發佈時間：2020年8月9日*
 
-[【中文版片段1】班農戰斗室EP327閆博士採訪片段1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025055/CN-%E7%8F%AD%E8%BE%B2%E6%88%B0%E9%AC%A5%E5%AE%A4-EP-327-%E9%96%86%E5%8D%9A%E5%A3%AB%E6%8E%A1%E8%A8%AA%E7%89%87%E6%AE%B51.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025055/CN-%E7%8F%AD%E8%BE%B2%E6%88%B0%E9%AC%A5%E5%AE%A4-EP-327-%E9%96%86%E5%8D%9A%E5%A3%AB%E6%8E%A1%E8%A8%AA%E7%89%87%E6%AE%B51.pdf)
+*翻譯/簡評：RachelX；校對：沐子璐璐；審核：InAHurry；Page：拱卒*
 
-[【中文版片段2】班農戰斗室EP327閆博士採訪片段2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025059/CN-%E7%8F%AD%E8%BE%B2%E6%88%B0%E9%AC%A5%E5%AE%A4-EP-327-%E9%96%86%E5%8D%9A%E5%A3%AB%E6%8E%A1%E8%A8%AA%E7%89%87%E6%AE%B52.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025059/CN-%E7%8F%AD%E8%BE%B2%E6%88%B0%E9%AC%A5%E5%AE%A4-EP-327-%E9%96%86%E5%8D%9A%E5%A3%AB%E6%8E%A1%E8%A8%AA%E7%89%87%E6%AE%B52.pdf)
+**簡評：**
 
-[【英文版片段1】Bannon WarRoom EP 327 Dr. Yan’s Interview Part 1](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025102/EN-Bannon-WarRoom-327-Interview-DrYan-part1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025102/EN-Bannon-WarRoom-327-Interview-DrYan-part1.pdf)
+多年來，中共對於美國內部政治的滲透和影響早就無處不在。但是由於之前美國延續其半個世紀以來的外交戰略，一直只是把俄羅斯作為首要敵人，對於中共，美國卻一直採取了綏靖政策。但最終事實證明，這只披著羊皮的狼才是美國乃至西方自由世界的最大威脅。中共發動的網絡戰不僅僅局限於對於西方知識產權的竊取，中共在利用高科技手段控制西方民眾的輿論導向方面也是駕輕就熟。而對於乾擾美國大選中共更是不遺餘力。此次大選臨近之際，美方不僅截獲了來自於中共國的，可用於競選投票的偽造駕照，而身為國家安全顧問的奧布萊恩也明確指出中共在網絡方面在對美進行攻擊。看來大選來臨之際，一場血雨腥風將無可避免…
 
-[【英文版片段2】Bannon WarRoom EP 327 Dr. Yan’s Interview Part 2](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025106/EN-Bannon-WarRoom-327-Interview-DrYan-part2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12025106/EN-Bannon-WarRoom-327-Interview-DrYan-part2.pdf)
+##  **奧布萊恩說，中共國通過網絡攻擊瞄準美國大選基礎設施** 
+[!\[\](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/eb34400f-9716-4774-8a1e-c945e2da45c2.jpg?asset_id=52697568-caf5-411c-83e0-f395fa36c50f&amp;img_etag=%22fa10fbb7299e9c5ab6bb4cf1e065339b%22&amp;size=1024)](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/eb34400f-9716-4774-8a1e-c945e2da45c2.jpg?asset_id=52697568-caf5-411c-83e0-f395fa36c50f&amp;img_etag=%22fa10fbb7299e9c5ab6bb4cf1e065339b%22&amp;size=1024)
+華盛頓（路透社）- 白宮國家安全顧問羅伯特·奧布賴恩（Robert O’Brien）週日表示，與中共政府相關的黑客一直在瞄準2020年總統大選前的美國選舉基礎設施，這表明中共涉嫌干預大選的活動已經愈演愈烈。
 
-陸續更新中……
+奧布萊恩的言論似乎超出了國家情報總監辦公室週五發表的聲明，該聲明說中共國“一直在擴大影響力“，並指出俄羅斯已經在試圖削弱民主黨候選人喬·拜登的影響力。該聲明並未明確指責北京對美國大選相關係統進行黑客攻擊的行為。
 
-**製作：【秘密翻譯組G-Translators】**
+奧布萊恩在哥倫比亞廣播公司的《面向全國》節目中表示：“他們希望看到總統落敗。中共國像俄羅斯和伊朗一樣，都在對我們的選舉基礎設施和網站進行網絡攻擊和網絡釣魚。 ”
 
-1
+美國政府指責中共國黑客入侵美國公司，政客或政府機構，但中共國一直否認這種說法。中共國外交部發言人耿爽在今年四月曾表示：“美國總統大選是美國內部事務，我們對此無意干涉。”
+
+奧布萊恩說，美國已經看到來自全國各地的黑客試圖入侵美國國務卿辦公室的網站，這些網站負責管理地方一級的選舉並收集美國民眾數據。
+
+他表示：“這是一個令人擔憂的問題，干擾絕非僅僅來自俄羅斯。任何試圖干預我們自由公正選舉的國家都將面臨嚴重後果。”
+
+國家安全委員會沒有立即回應置評請求。國家情報總監辦公室拒絕評論或澄清奧布萊恩的言論是否與其觀點相悖。
+[!\[\](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/c412998a-64db-4f18-b655-bc394d804381.jpg?asset_id=52c33ff9-2e1e-4ca0-a976-bb09641bdff8&amp;img_etag=%2202ce040a92559cceada4fbb28a260a54%22&amp;size=1024)](https://spark.adobe.com/page/ttXPb8pvi38Qj/images/c412998a-64db-4f18-b655-bc394d804381.jpg?asset_id=52c33ff9-2e1e-4ca0-a976-bb09641bdff8&amp;img_etag=%2202ce040a92559cceada4fbb28a260a54%22&amp;size=1024)
+國家情報總監辦公室此前曾表示，“對手”正試圖在11月份總統大選前破壞美國政治候選人的私人通訊，並滲透美國選舉系統。而且中共國方面不希望看到川普總統的連任。
+
+美國情報機構的多次審查認為，俄羅斯在2016年的競選活動中支持了川普，並削弱了其競爭對手希拉里·克林頓在大選中的機會。
+
+[原文鏈接](https://www.reuters.com/article/us-usa-election-interference-idUSKCN2550Q2)
+
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/ttXPb8pvi38Qj/) 】
+
+0
