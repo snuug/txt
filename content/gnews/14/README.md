@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本入五眼聯盟代價是什麼
-`2020-08-13 09:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/295425/)
+## 病毒並非源自武漢華南海鮮市場! 閆博士揭露秘密調查結果（英文English+中文Chinese+意大利文Italian）
+`2020-08-13 10:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/295439/)
 
-郭文貴先生在[8月8日的G-TV直播](https://gtv.org//?videoid=5f2ea290ca0edb7e3f220718)中表示，共產黨不阻止日本加入五眼聯盟，代價是中日貨幣互換額大增，從過去的360億變成了5000億。甚至接下來不阻止其入常和其它國際組織，日本會犧牲台灣、香港和人權。安倍最傷心的是川普總統沒有跟他簽阿爾法協議。日本是共產黨一定要控制的。如果共產黨不在1到2年內滅掉，在日本和美國兩個國家的華人是最慘的。所以，郭先生呼籲Peace和村長戰友要起來。
+意大利文標題 La virologa informatrice cinese: il virus non provenga dal mercato del pesce di Wuhan
 
-*翻譯：【班仔】 校對：【JoyJoy】字幕：【相機過熱啊】編輯：【Michelle】*
+翻譯：明天的彩虹 校對： Carota Einstein
 
-*戰友之家玫瑰園小隊出品*
+中共釋放資訊引導人們相信,這個病毒來自武漢海鮮市場,然而三分之一最初被確診的病例人數並沒有去過那個海鮮市場,所有就不能確定病毒來自海鮮市場。
+
+Il Partito Comunista Cinese vogliono anche che le persone credano che questo virus provenga dal mercato del pesce di Wuhan, anche se abbiamo visto che almeno un terzo dei contagiati non è mai stato a questo mercato del pesce, non ci sono mai stati, non verranno diagnosticati.
 
 0

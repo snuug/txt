@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/05 CCP病毒每日疫情直播簡報
-`2020-08-13 06:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/294869/)
+## 班農喊話&#8221;必須讓中共公開所有P3與P4實驗室與所有病毒資訊&#8221; （英文English+中文Chinese+日文Japanese）
+`2020-08-13 07:54 GM62` [轉載自GNews](https://gnews.org/zh-hant/295350/)
 
-戰友之家圖文摘要及小語種組
+日文版標題 「中国共産党にＰ３とＰ４実験室を開けさせ、あらゆる実験室及びウィルスの情報を掴めなければならず」元アメリカ合衆国首席戦略官バノン氏
 
-[English\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)
+**翻譯：感言** **校對：Sally** **視頻：yuyu（文悠）字幕：文件夹**
 
-[French\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)
+一切皆因中共而起，但華盛頓沒有一人站出來，追究中共，要求中共負責，這就是人民不專注於誰該為疫情負責的原因。 中共必須開放P3、P4實驗室，公開所有關於病毒的資訊。 我們只有真正找到來源，找到原始毒株基因結構，與其他國家聯盟，停止中共的到處作惡，才能解決這件事。
 
-[German\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)
+すべては中国共産党に起因します。残念ですが、ワシントンで立ち向かった人、中国共産党責任追及と呼びかける人は一人もいません。これは、皆がパンデミックの責任追及や言わない理由だと考えられています。中国共産党は必ずP3及びP4研究所を一般開放し、ウイルス情報を世界へ開放すべきです。何故なら、我々は本当のウイルス発生源を見つけて、原始的なウイルス株を獲得して、そして世界各国と協力して、中国共産党の悪行を止めることこそ、すべては解決できるものです。
 
-[Japanese\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)
-
-[Korean\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)
-
-[Russian\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)
-
-[Spansih\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)
-
-
-
-0
+1
