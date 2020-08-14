@@ -1,43 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## iPhone製造商表示,中國作為世界工廠的日子已經到頭了
-`2020-08-14 02:53 GM77` [轉載自GNews](https://gnews.org/zh-hant/296346/)
+## 川普:我們對中共國的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大（英文English+法文French）
+`2020-08-14 07:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/296661/)
 
-編撰:天使、文佑(荊棘不鳥)、Lori文噠
+法文標題 Trump : Notre vue du PCC est complètement différente qu’auparavant ! Il ne sert à rien de parler de la première phase des accords commerciaux
 
-來源:彭博社
+翻譯： cnquldebut 校對：德妹 視頻製作：文靓
 
-**鴻海科技集團****(Hon Hai Precision Industry Co.)****董事長劉揚偉表示****,****該公司正在逐步增加中國以外的產能****,****中國是從****iPhone****到戴爾台式機和任天堂交換機等小工具的主要生產基地。**
+中共釋放病毒到美國,到全世界,無論怎樣的制裁都不能挽回那些死去的生命,美國對中共的認識與八個月以前已完全不同!
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14024348/%E4%B8%96%E7%95%8C%E5%B7%A5%E5%8E%82-1.jpeg)
-
-這家蘋果公司和其他十幾家科技巨頭的主要供應商,計劃將其供應鏈在中國市場和美國市場之間進行分割,宣稱由於貿易戰,中國作為工廠走向世界的時代已經結束。
-
-鴻海科技集團董事長劉揚偉表示,它正在逐步增加中國以外的產能,中國是從iPhone到戴爾台式機和任天堂交換機等小工具的主要生產基地。 目前,中國境外的比例從去年6月的25%上升到30%。
-
-劉揚偉在其公司公佈財報后告訴記者,隨著該公司–也就是富士康–將更多的製造業轉移到東南亞和其他地區,以避免對前往美國市場的中國製造商品徵收不斷升級的關稅,這一比例將會上升。
-
-“不管是印度、東南亞還是美洲,每個地方都會有一個製造生態系統。  “劉揚偉說,雖然中國仍將在富士康的製造帝國中扮演關鍵角色,但中國”作為世界工廠的日子已經結束了”。
-
-華盛頓和北京之間的貿易緊張局勢加劇,促使設備製造商將生產基地從中國轉移到其他地方,劉揚偉去年表示,如果需要,蘋果最珍貴的產品iPhone可以在中國以外的地方生產。 兩國仍在進行貿易談判,但劉揚偉的評論肯定了一種日益增長的預期,即以中國為中心的電子產品供應鏈將在長期內分化。
-
-這家臺灣公司在截至6月的季度中,淨收入為229億新臺幣(7.78億美元),好於預期,受iPad和MacBook需求增加的推動。 營收為1.13萬億新臺幣,但鴻海警告稱,由於蘋果推遲了今年推出iPhone的時間,預計其第三季度銷售額相對於2019年將下降兩位數。
-
-鴻海正在從第一季度創紀錄的利潤下滑中反彈,因為其工廠的生產恢復了,而且就地避難的訂單刺激了家庭計算設備的需求。 蘋果首席執行官蒂姆-庫克(Tim Cook)7月31日在公佈了粉碎預期的季度營收後表示,疫情可能促進了iPad和Mac的銷售,即使蘋果商店的關閉拖累了iPhone的銷售。 蘋果占鴻海銷售額的一半。
-
-即使蘋果表現出色,鴻海的其他客戶也表現不佳。 在香港上市的子公司FIH Mobile Ltd(富智康集團有限公司)在8月7日發布的財報中表示,雖然華為技術有限公司的新手機在中國很受歡迎,但在美國制裁後,這些手機在其他地方沒有達到預期。 另一個重要客戶小米公司在中國和南亞國家之間日益緊張的局勢下,在印度市場遭遇了滑坡。  FIH上半年虧損1億美元。
-
-富士康一直在動搖其傳統上以中國為中心的業務。 鴻海是蘋果組裝合作夥伴之一,計劃擴大在印度的業務,有可能説明iPhone製造商在這個擁有13億人口的國家發展業務,並隨著華盛頓和北京之間的關係發生摩擦,將這家美國公司的部分供應鏈轉移到中國之外。
-
-中國的競爭對手也帶來了越來越大的挑戰。 本機電子巨頭Luxshare Precision Industry Co. 。 (立訊精密)在7月達成協定,從緯創資通公司(Wistron Corp.) 。 手中收購一家蘋果手機生產廠後,準備成為第一家中國本土的iPhone組裝商。 富邦證券分析師廖國強(Arthur Liao)在7月23日的一份說明中寫道,雖然鴻海將保留高端iPhone的組裝訂單,但立訊精密將蠶食中入門級蘋果手機的業務。
-
-劉揚偉在回答幾位分析師關於富士康面對崛起的中國供應商的競爭策略的問題時表示,富士康將致力於其元件業務,以保持技術領先地位,而且它還受益於與蘋果的長期關係。
-
-在美國總統唐納德-川普(Donald Trump)發布行政命令,禁止美國居民與騰訊控股有限公司的微信開展業務後,訂單可能會受到進一步影響。 天風國際證券分析師郭明池在8月9日的一份說明中警告說,如果蘋果被迫從其全球應用商店中刪除該應用,iPhone年出貨量可能會暴跌25%-30%。
-
-原文連結:
-
-[https://www.hindustantimes.com/world-news/china-s-days-as-world-s-factory-are-over-says-iphone-maker/story-clPVEE4DKQX4Muwe4kNRJL.html](https://www.hindustantimes.com/world-news/china-s-days-as-world-s-factory-are-over-says-iphone-maker/story-clPVEE4DKQX4Muwe4kNRJL.html)
+Le PCC a libéré un virus aux États-Unis, au monde entier, et non-importe quelles sanctions imposées au PCC, elles ne peuvent pas sauver les vies qui sont mortes. La perception du PCC aux États-Unis est complètement différente de ce qu’elle était il y a huit mois !
 
 0

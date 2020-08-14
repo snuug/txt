@@ -1,89 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：美國參議員正式發出決議要求中共償還舊中國債券
-`2020-08-14 04:37 立武` [轉載自GNews](https://gnews.org/zh-hant/296459/)
+## 【世界多語言圖文】2020/08/06 CCP病毒每日疫情直播簡報
+`2020-08-14 07:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/296524/)
 
-8月13日，美國共和黨參議員**瑪莎·麥克薩利**（Martha McSally）**和瑪莎·布萊克本**（Marsha Blackburn）提出[一項併發決議](https://www.mcsally.senate.gov/news/press-releases/mcsally-blackburn-demand-china-repay-its-16-trillion-defaulted-debt)，要求中共國償還**由美國債券持有人基金會代表的20000個美國家庭的總共1.6萬億美元**的主權債務（包括利息）。
+戰友之家圖文摘要及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043437/%E6%89%B9%E6%B3%A8-2020-08-14-145209-3.png)
+[English\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054318/English_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054318/English_0806_CCP_Virus_Updates.pdf)
 
-**“歷史”債券**
+[French\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054322/French_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054322/French_0806_CCP_Virus_Updates.pdf)
 
-在決議中提到，**1900****年至****1940****年間，**中華民國在世界各地（包括美國）發行了**數百萬美元的主權債務，他們於****1938****年拖欠了這筆債務。**
+[German\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054325/German_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054325/German_0806_CCP_Virus_Updates.pdf)
 
-據瞭解，這筆債務包含**1911****年清政府發行的“湖廣鐵路債券”**和**1913****年民國政府發行的“黃金融資債券”**。
+[Japanese\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054333/Japanese_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054333/Japanese_0806_CCP_Virus_Updates.pdf)
 
-1911年，**清政府與英、法、德、美四國銀行**簽訂借款合同，為修建湖廣鐵路借取**為期****40****年、數額****600****萬金英鎊**的款項。
+[Korean\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054329/Korean_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054329/Korean_0806_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043411/600x-1-3.jpg)
-
-1951年，**本金到期無人償還。**
-
-中美建交後不久，美國阿拉巴馬州公民**採用集體訴訟方式**要求償還這筆多達**1****億多美元的欠款，被告欄是“中華人民共和國”，**送達人是“外交部長黃華先生”。
-
-隨後，中共退回了傳票，**並以“國家主權豁免權”為由否定美國法院行使司法管轄。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043358/%E6%89%B9%E6%B3%A8-2020-08-124-151809-2.png)
-
-1982年，阿拉巴馬聯邦法院進行**缺席判決，命令中共國償付原告****4130****萬余美元、外交利息和訴訟費用，**當時原告就要求法院強制執行中國在美國境內的財產。
-
-後來，**在中共的“外交努力”（藍金黃）下，**該法院撤銷了這一判決。
-
-1913年，民國政府**以5%的價格發行了2500萬英鎊的以黃金支持的大型債券，**這批債券定於1960年到期，但是1938年，中共國違背了**“[對中華民國政府及其繼承者的有約束力的承諾](https://www.americanbondholdersfoundation.com/)”**。
-
-**美國債券持有人基金會**
-
-2001年，田納西州的農場主**約拿·比安科**（Jonna Bianco）與他人共同成立了**美國債券持有人基金會（****ABF****），**這個基金會代表了**2****萬多名持有這些舊中國債券的持有者。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043332/0c91e56c68ae49a988464648c2b967f0-3.jpeg)
-
-比安科為ABF團隊招募了一些知名人士，包括**比爾·貝內特**（Bill Bennett），他曾是**雷根總統時期的教育部長**，以及克萊蒙特研究所高級研究員**布萊恩·甘迺迪**（Brian Kennedy），**該研究所是川普總統早期的捍衛者。**
-
-比安科聲明：“**中華人民共和國將其拖欠的主權債務視為****1949****年之前的中華民國的債務，但這樣做與中國聲稱自己是中華民國主權權利的唯一繼承人的說法相矛盾**”。
-
-文貴先生也提到了相同的觀點。
-
-2018年8月，比安科在新澤西州貝德明斯特的特朗普國家高爾夫俱樂部**[與川普總統會面](https://www.bloomberg.com/news/articles/2019-08-29/trump-s-new-trade-war-weapon-might-just-be-antique-china-debt)，**隨後，她又**與美國財政部長姆努欽會面。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043320/1400x-1-3.jpg)
-
-在去年4月，**ABF****的代表團還與美國商務部長羅斯會見。**
-
-去年熟悉美國財政部的人士就已經說，**財政部已經在對中共國的這些債券進行了研究。**
-
-熟悉爆料革命的戰友都知道，**文貴先生最早在2018年10月就爆出美國正在要求中共償還民國國債。**
+[Spanish\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054336/Spanish_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054336/Spanish_0806_CCP_Virus_Updates.pdf)
 
 
-
-此前，ABF也一直在推動這件事情，卻一直沒有引起關注。
-
-由此可見，爆料革命是推動此次事件的一個非常關鍵的因素，**爆料革命巨大的影響力與背後的力量，以及與這些組織密切的關係，是此次參議院提出決議最關鍵的因素。**
-
-**中共需要償還嗎**
-
-正如聲明中提到的，中共既然承認是中華民國的唯一合法繼承人，就應該承擔中華民國償還債務的義務，**不能只要權利，卻不行使義務。**
-
-
-> **存在即主權，政府像管理機構，管理機構可以隨時換，但稅收被接管了，債務也要被接受。如果中共不按照國際秩序來，就不可能建交並讓中共加入國際社會。**
-
-
-1792年尼克森訪華，1979年中美正式建交，意味著美國承認中共國的繼承人權利，**那麼中共國理應按照國際規則接受償還債務的義務。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043259/Dolf49CUwAAKMp5-3.jpg)
-
-這對於中共來說是一個兩難的問題，**要麼承擔義務，經濟崩潰，中共倒閉；要麼不承擔義務，美國不承認中共合法政權，中共也倒閉。**
-
-一直以來，中共都以兩個原因回絕承擔義務的要求，**一是惡債不予繼承原則，二是國家主權豁免原則。**
-
-之所以中共稱這些債券為“惡債”，**一是因為已經過期，二是迫不得已，三是這是導致清朝倒閉的“稻草”。**
-
-**如果沒有清朝倒閉，也沒有中共的存在，**除非中共認為自己是迫不得已繼承中華民國的政權，否則中共不可能**只要歷史的利益，不要歷史的義務。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14043248/%E6%89%B9%E6%B3%A8-2020-08-14-14520229-5.png)
-
-至於國家主權豁免原則，**一旦中共被拿掉國家合法政權，就不存在這一原則。**
-
-而且，1987年，**中共國與英國政府達成了一項****2350****萬英鎊的和解協議，**既然中共認為償還債務沒有道理，為何又要達成和解協定。
 
 0

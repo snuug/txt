@@ -1,26 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國將“孔子學院”列為中共的外國使團
-`2020-08-14 02:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/296299/)
+## 閆博士接受Newsmax電視台採訪時稱: &#8221; 病毒源自中共實驗室! &#8220;（英語English+中文Chinese+意大利文Italian）
+`2020-08-14 06:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/296611/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14015156/1-50.png)圖片：hksar.org 
-《國會山報》(The Hill)8月13日報導，美國國務院已經將孔子學院列為外國使團，認為其屬於中共大外宣的核心要素。
+意大利語標題 La virologa informatrice cinese: questo è un virus modificato basato sull’Istituto Militare Cinese
 
-國務卿蓬佩奧的官方發言
+翻譯：明天的彩虹 校對： Carota Einstein 視頻：小羽
 
-國務卿蓬佩奧星期四說，孔子學院美國中心是一個由中共政府資助的傳播中國語言和文化的項目，是“中共全球大外宣和提升其在美國幼兒教育和高校研究影響力的實體”，幫助共產黨提升全球影響力。此次認定孔子學院為外國使團是美國政府一次官方正式行動，理由是該組織由外國政府“暗中控製或操縱”，並且有類似於領事館或大使館職能，可接受中共行政命令實施外交任務等。
+這是中國軍事學院的基於一種名為4ZC45和ZXC21的蝙蝠冠狀病毒的基礎上的改良病毒,該序列在2017年至2018年間公開。 
 
-文章引用蓬佩奧的話，“這些行動的目標很明確：保證美國教育從業者和學校管理者能夠知情地選擇，是否繼續以任何方式允許這些共產黨支持的項目。美國和世界各國的大學都在審查孔子學院過去的行為以及其和中共的關係。”“美國要確保在校園的學生能夠不受中共影響地學習中國語言和文化，避免共產黨及其代理人的操縱。”
-
-參議員本·薩斯 （Ben Sasse）的觀點
-
-孔子學院一直都是對华鹰派的焦點，很多共和黨人都想要關閉其運營。國務院發布官方聲明後，參議員本·薩斯評論道：“孔子學院項目是全國校園生活的一個重要部分，但是在該項目背後隱藏著兩個邪惡的核心目的：傳播共產黨的邪惡理念和讓在自由世界學習的中國學生從事間諜活動。中共的外交行動非常依賴這些前哨站一樣的機構，因此它們必須被列入外交使團。”
-
-文章最後提到，把孔子學院列入外交使團正值中美關係惡化之際，美中在“CCP病毒”疫情、香港國安法、5G技術、台海問題、貿易各方面等都存在衝突。此外，孔子學院也正在被其他國家審查，表明這個機構是被共產黨利用的間諜機構。加拿大安全情報局稱孔子學院只不過是共產黨竊取加拿大情報信息而打的幌子。
-
-[相關鏈接](https://thehill.com/homenews/administration/511863-chinas-confucius-institute-designated-as-a-foreign-mission-of-beijing)
-
-翻譯報導：張雨桐
+questo è un virus modificato basato sull’Istituto Militare Cinese che ha scoperto un coronavirus di pipistrello chiamato 4ZC45 e ZXC21, questa sequenza è stata esposta dal 2017 al 2018. È possibile controllare la sequenza dal database GenBank di NIH(National Institutes of Health).
 
 0
