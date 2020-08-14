@@ -1,214 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 玫瑰看新闻 八月13日
-`2020-08-13 05:12 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/295166/)
+## 【世界多語言圖文】2020/08/05 CCP病毒每日疫情直播簡報
+`2020-08-13 06:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/294869/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/06214028/1-20.jpg)
-**2020**年**8**月**13**日
+戰友之家圖文摘要及小語種組
 
-1.焦点新闻：美国务卿呼吁凝聚自由世界，对抗邪恶中共霸权
+[English\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021821/English_0805_CCP_Virus_Updates.pdf)
 
-路透布拉格8月12日 – 美国国务卿蓬佩奥周三访问捷克时表示，中国的全球经济实力使其在某些方面比冷战期间的苏联更难对抗。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13050019/image-50.png)
-2020年8月12日，捷克布拉格，美国国务卿蓬佩奥与捷克总理巴比什举行记者会
+[French\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021810/French_0805_CCP_Virus_Updates.pdf)
 
-蓬佩奥呼吁欧洲各国联合起来反对中国共产党，他说中国共产党利用其经济实力在世界各地施加影响力。 “现在正在发生的事情不是冷战2.0，”他在给捷克参议院做演讲时表示，“在某些方面，抵抗中共威胁的挑战要困难得多。” “中国共产党已经以苏联从未有过的方式融入了我们的经济、我们的政治和我们的社会。”
+[German\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021824/German_0805_CCP_Virus_Updates.pdf)
 
-中国驻英国大使刘晓明上个月曾指责美国挑起新冷战，因某些政客在11月美国总统大选前甩锅中国以获得支持。这番讲话之后，就出现了冷战的提法。 捷克共和国是蓬佩奥东欧四国访问之行的第一站，他将与这些国家讨论网络和能源安全问题。在1989年天鹅绒民主革命爆发之前，捷克一直是苏联阵营的一部分。
+[Japanese\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13061751/Japanese_0805_CCP_Virus_Updates.pdf)
 
-蓬佩奥利用这个机会猛烈抨击俄罗斯和中国的影响，并称赞捷克官员在过去一年里与北京角力。捷克是一个人口1,070万的中欧国家。 他提到了捷克为发展5G电信网络设定安全标准做出的努力，此前一家政府监管机构警告不要使用中国华为制造的设备。
+[Korean\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021817/Korean_0805_CCP_Virus_Updates.pdf)
 
-蓬佩奥和捷克总理巴比什(Andrej Babis)在5月签署了一份5G安全声明，但该国尚未做出全面禁止华为技术的决定。捷克总统泽曼(Milos Zeman)一直在推动与中国建立更紧密的关系。 蓬佩奥还赞扬了捷克参议院议长Milan Vystrcil，后者继续推进其已故前任的计划，在本月底访问台湾，此举激怒了中国。
+[Russian\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021813/Russian_0805_CCP_Virus_Updates.pdf)
 
-蓬佩奥表示，欧洲一些国家需要更长时间才能意识到这些威胁，但已经显示出积极的势头。 他说：“(美国的)形势已经扭转，就像我在欧洲看到的一样。西方正在取得胜利，不要让任何人告诉你西方已经衰落。” “这将需要我们所有人……布拉格、波兰、葡萄牙的所有人。我们有义务明确、坦率地跟我们的人民对话，无所畏惧。我们必须面对复杂的问题……我们必须一起努力，”他说。
+[Spansih\_0805\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13021828/Spansih_0805_CCP_Virus_Updates.pdf)
 
-援引： [https://cn.reuters.com/article/pompeo-china-0812-comments-wedn-idCNKCS25901R](https://cn.reuters.com/article/pompeo-china-0812-comments-wedn-idCNKCS25901R)
 
-2.白宫新闻秘书关于安全重新开放美国学校的声明
-
-唐纳德·J·特朗普总统坚信，教育美国国家的孩子是当务之急。他一直主张学校在今年秋天安全地重新开放，以确保美国国家的孩子得到最好的教育和照顾。数据显示，儿童患冠状病毒的严重疾病或死亡的风险极低，比成年人少得多，甚至比季节性流感少。重要的是，长期停课对儿童和家庭的危害是重大而持久的。今天，特朗普政府提出了一些建议，指导学校走向安全重开之路，同时授权家庭为子女做出最佳决定。在特朗普总统的领导下，孩子们是第一位的。
-
-唐纳德·J·特朗普总统鼓励安全重新开放美国学校，以支持美国的学生和家庭。 我们相信，只要许多学区实施缓解措施和卫生协议以保护家庭，保护老师和学生，就可以安全地重新开放。 唐纳德·J·特朗普总统 支持安全开放：唐纳德·J·特朗普总统倡导学校在今年秋天安全地重新开放，以确保我们国家的孩子得到最佳的教育和照顾。
-
-援引： [https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-safe-reopening-americas-schools/](https://www.whitehouse.gov/briefings-statements/statement-press-secretary-regarding-safe-reopening-americas-schools/)
-
-[https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-supporting-americas-students-families-encouraging-safe-reopening-americas-schools/](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-supporting-americas-students-families-encouraging-safe-reopening-americas-schools/)
-
-3.蓬佩奥说，他警告拉夫罗夫不要为美军提供赏金
-
-2020年8月12日，在捷克共和国布拉格进行的四国欧洲之旅之始，美国国务卿迈克·蓬佩奥（Mike Pompeo）周三表示，他警告俄罗斯外长谢尔盖·拉夫罗夫（Sergei Lavrov）称，如果莫斯科提供赏金来杀死在阿富汗的美军或其他西方军队，将“付出巨大的代价”。
-
-《纽约时报》 6月报道称，俄罗斯军事情报部门以美国情报官员的身分，暗中向与塔利班有关联的激进分子悬赏，以杀害包括美军在内的阿富汗联军。 唐纳德·特朗普总统说，由于许多美国情报官员怀疑它的真实性，所以没有被告知这一消息，尽管美国和欧洲的一些消息来源都对他的言论提出了反驳。
-
-在接受自由欧洲电台/自由电台的采访时，蓬佩奥拒绝透露他是否相信情报是可信的，还是他认为应该向特朗普通报情况，但表示华盛顿不会容忍这种行为。 “如果俄罗斯人提供金钱杀死美国人，或者与此同时，其他西方人也将付出巨大的代价。这就是我与外交部长拉夫罗夫分享的东西。”庞培奥在对捷克共和国进行正式访问期间接受采访时说。他还说“我知道我们的军队也已经与其高级领导人进行了交谈。我们不会容忍，我们不会容忍。”
-
-上个月，熟悉情报报道的美国和欧洲消息人士称，美国已获得新的报道，以支持俄罗斯鼓励塔利班武装分子在阿富汗杀害美国和盟军士兵的指控。 情报报告发布之际，美国一直在与塔利班以及阿富汗政府进行谈判，以达成停滞不前的和平协议，该协议于2月达成，目的是撤退美军。
-
-援引：
-
-[https://in.reuters.com/article/usa-afghanistan-russia-pompeo/pompeo-says-he-warned-lavrov-against-offering-bounties-for-u-s-soldiers-idINKCN25906H](https://in.reuters.com/article/usa-afghanistan-russia-pompeo/pompeo-says-he-warned-lavrov-against-offering-bounties-for-u-s-soldiers-idINKCN25906H)
-
-4.俄罗斯表示军医将在两周内获得抗COVID疫苗
-
-莫斯科（路透社）-俄罗斯周三表示，将在两周内推出第一批世界上第一批COVID-19疫苗，但由于专家对莫斯科迅速批准该药而提出“毫无根据”的安全性担忧，俄罗斯对此予以驳斥。
-
-为了纪念苏联于1957年发射的世界上第一颗卫星，该疫苗被称为“人造卫星V”，尚未完成最终试验，一些科学家表示，他们担心莫斯科可能会将国家威信摆在安全之上。
-
-官员们说，由莫斯科加马利亚研究所开发的这种疫苗将在最终试验中自愿提供给包括医生在内的人们使用。预计将于10月开始在俄罗斯大规模推广。
-
-来自德国，美国和英国的科学家质疑在完成测试之前批准疫苗的智慧，称从安全角度来看这是有风险的。
-
-援引： [https://in.reuters.com/article/us-health-coronavirus-russia-vaccine/russia-says-medics-to-get-anti-covid-shots-in-two-weeks-some-russians-wary-idINKCN25821K](https://in.reuters.com/article/us-health-coronavirus-russia-vaccine/russia-says-medics-to-get-anti-covid-shots-in-two-weeks-some-russians-wary-idINKCN25821K)
-
-5.乔·拜登（Joe Biden），卡玛拉·哈里（KamalaHarris）在竞选活动中打击特朗普，并承诺在冠状病毒大流行中“创造数百万个工作” 美国民主党总统候选人乔·拜登和他最近被选为副总统候选人卡马拉·哈里斯（Kamala Harris）星期三一起参加了他们的第一次面对面竞选活动。![](https://gnews.org/062e3fbe-0539-4473-8386-c5cf75a46494)
-
-哈里斯（Harris）首次登上拜登（Biden）官方副总统大选之选时宣布：“由于特朗普领导层的失败，我们的经济受到了所有主要工业化国家的最大打击之一，失业率增长了两倍。” 两人承诺，如果当选，他们将提供“高薪工作”。 “我们将创造数以百万计的就业机会，并通过清洁能源革命来应对气候变化，恢复关键的供应链，使未来在美国得以实现，在《平价医疗法案》的基础上，使每个人都可以安心享受医疗保险和最终向看护者提供他们应有的尊严，尊重和报酬，”哈里斯说。
-
-卡玛拉·哈里斯（Kamala Harris）对唐纳德·特朗普（Donald Trump）总统处理冠状病毒爆发发起了针对性攻击。 哈里斯说：“这种病毒几乎影响了每个国家。但是，有一个原因使它对美国的打击要比其他任何发达国家都要严重。” 她说：“这是因为特朗普从一开始就没有认真对待它。他拒绝接受测试并开始跑步。他在社交疏远和戴口罩方面嗤之以鼻。他错误的认为他比专家更在行。”
-
-美国已经记录了510万例感染病例，超过16.5万人死于该病毒。 周三，白宫顾问凯利·康威（Kellyanne Conway）坚称，哈里斯“是激进左派的很大一部分”，并暗示参议员将很难摆脱比登（Biden）的困境，拜登（Biden）的年龄和适合担任康威的职位经常被嘲笑。
-
-援引： [https://www.foxbusiness.com/politics/biden-harris-promise-to-bring-back-millions-of-jobs-lost-during-coronavirus-pandemic](https://www.foxbusiness.com/politics/biden-harris-promise-to-bring-back-millions-of-jobs-lost-during-coronavirus-pandemic)
-
-6.美国打击的是中共而非中国
-
-目前，引起热议的这场所谓的“中美之争”，一方是美利坚合众国经过民意授权（全民投票）的政府，代表的是美国人民的利益。而另一方，则只是中共党及其政权，并非中国，更不是中国人民。稍有点现代民主宪政起码知识的人都知道，任何一个政党都不能代表、更不能等同于这个国家。但民主国家的执政党和政府是经由民众一人一票选举的授权而获得在一定期限内（例如4年）代表其本国民众的利益的政权。
-
-而独裁专制政权，特别是共产极权专制，都是靠流氓造反起家的非法政权，中共当年更是外国势力—-苏俄共产国际的雇佣军。而它在苏俄对其武装及支持下夺得政权后至今已70年。却从未进行过一次真正意义的选举，几十年赖在台上，对中国人民实行从中央到村庄无所不至的一党专政。中共自称“历史选择了”它，真是天大的笑话。
-
-中共只是全体中国人中极小的一部份，而且是一个特殊既得利益的贪腐集团。美国对中国人民一向是友好的，美国要打击和惩治的只是中共这个党及其独裁政权残民的恶行，这对广大中国民众是有利的。例如美国反对中共侵犯中国民众的人权，反对中共迫害政治异见人士，维权律师，上访民众，宗教人士，压迫藏人、维族人等少数民族，霸凌台湾民主政权等种种恶行， 反对中共钳制新闻言论自由，封网，删帖，以言治罪等等……中共对此则诬其为“反中”，“反华”。实则美国政府才是维护了中国民众的根本利益，所以美国政府的所作所为只是“反共”，却是爱华、护中，维护了中国广大民众的根本利益。
-
-援引：
-
-[https://news.creaders.net/us/2020/08/12/2255818.html](https://news.creaders.net/us/2020/08/12/2255818.html)
-
-7.香港媒体大亨黎智恩被保释，敦促抗议者“小心”
-
-香港媒体大佬黎智英（Jimmy Lai）周一根据国家新的国家安全法被捕，他敦促年轻的示威者在未来的战斗中要“更加谨慎”。 （Lai）拥有香港最阅读报纸之一的《应用日报》（Apply Daily），是在对政治异议者进行更广泛镇压后被拘留的最杰出人物之一。
-
-据《华尔街日报》报道，根据中国于今年6月实施的国家安全法，另外九人，因涉嫌外国勾结而于周一被捕。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13050053/image-51.png)
-档案：香港媒体大亨黎美仪在香港接受采访时暂停。  （美联社） ”黎智英在周三早些时候被保释。释放后，他在接受BBC采访时说，逮捕他只是“开始”。 黎智英说：“当我被拘留时，我无法入睡。我在想，如果我知道现在这种情况会发生在我身上，并且[在途中]更加艰辛，我会做同样的事情吗？事情？ 他还说，他对自己的举动并不后悔，但警告年轻的抗议者“对我们保持法治和自由的抵抗要更加谨慎”。
-
-援引： [https://www.foxnews.com/world/hong-kong-media-mogul-jimmy-lai-released](https://www.foxnews.com/world/hong-kong-media-mogul-jimmy-lai-released)
-
-8.洛杉矶县大火烧毁了数千英亩土地
-
-洛杉矶县休斯湖地区至少一万英亩的土地上熊熊大火。 加州圣塔克拉里塔（Santa Clarita）的景色，湖火在2020年8月12日星期三在洛杉矶国家森林上散发着浓烟（美联社照片/ Marcio Jose Sanchez） 。洛杉矶县农村地区的午后大火迅速燃烧了10,000英亩，并散发出一缕烟雾，从65英里外的城市海滩上可以看到。
-
-美国森林服务局在一份声明中首次报道了在洛杉矶市区以北约63英里处的非法人休斯湖社区的联邦土地上的湖火。 该地区的撤离工作已被命令，多条道路被封闭。 加州国家森林附近爆发大规模加州灌木丛火。加利福尼亚休斯湖附近的大火燃烧横跨数千亩撕毁周三仍在燃烧到晚上，持续快速蔓延。
-
-大火在太平洋时间下午3:30左右在洛杉矶以北约65英里的山腰社区的山麓上爆发。据报道，它靠近北休斯湖和松峡谷公路  。 据当局称，截止到6:30，它已经增长到10,000英亩，威胁到数个建筑。森林本身占地约70万英亩。 对此，洛杉矶县消防局表示，事故指挥官已要求将对大火做出反应的“消防队”数量增加一倍，达到20支。
-
-援引：
-
-[https://www.nbcnews.com/news/us-news/fire-burns-thousands-acres-l-county-ahead-heatwave-n1236572](https://www.nbcnews.com/news/us-news/fire-burns-thousands-acres-l-county-ahead-heatwave-n1236572)
-
-[https://www.foxnews.com/us/massive-brush-fire-erupts-california-angeles-national-forest](https://www.foxnews.com/us/massive-brush-fire-erupts-california-angeles-national-forest)
-
-9.深圳有巴西进口鸡翼表面测出新冠病毒
-
-2020年8月13日深圳有巴西进口鸡翼表面测出新冠病毒。(示意图)
-
-深圳市龙岗区发现一份从巴西进口的急冻鸡翅表面样本，对新冠病毒检测呈阳性。 深圳市疫情防控指挥部办公室第一时间组织相关部门对可能接触相关产品的人员进行全面核酸检测，结果均为阴性，阳性样本密切接触者已纳入健康管理；对全市相关库存产品全部封存并进行核酸检测，结果均为阴性，对已售出产品全部追溯并通报相关机构进行处置；对相关产品外包装及存放环境全部进行消毒。
-
-深圳市有关部门将继续展开对相关冻品的追溯检测排查。指挥部办公室提醒广大市民近期谨慎购买进口冷冻肉制品和水产品，同时注意做好个人防护，降低感染新冠病毒风险。
-
-援引：
-
-[https://hd.stheadline.com/news/realtime/chi/1844760/](https://hd.stheadline.com/news/realtime/chi/1844760/)
-
-10.内地今年洪灾已造成6346万人次受灾致219人死亡失踪
-
-2020-08-13 11:33
-
-内地今年洪灾已造成6346万人次受灾，致219人死亡失踪。(新华社图片)
-
-国家防汛抗旱总指挥部秘书长、应急管理部副部长周学文在今天(13日)举行的新闻发布会上表示，6月份以来，我国的长江、淮河、太湖流域发生了严重的汛情，防汛救灾工作面临严峻考验。 洪涝灾害已造成6346万人次受灾，直接经济损失达1789.6亿元，比前5年均值偏多12.7%和15.5%。因灾死亡失踪219人，倒塌房屋5.4万间，比前5年均值分别减少54.8%和65.3%。 周学文表示，当局调度长江三峡30多座水库，减轻中下游防洪压力，又紧急转移安置400万名群众，是近年来最多。财政部已下拨约21亿元，支援11个省份救灾。
-
-援引：
-
-[https://hd.stheadline.com/news/realtime/chi/1844823/](https://hd.stheadline.com/news/realtime/chi/1844823/)
-
-11.蓬佩奥说美国可能考虑对白俄罗斯实施制裁
-
-国务卿指出，“选举给美国带来了难以置信的麻烦，令美国感到更加失望的是，它没有更自由，更公平”
-
-©Nicholas Kamm /通过AP进行游泳池拍摄
-
-华盛顿，8月13日。/TASS/。
-
-美国国务卿蓬佩奥说，由于共和国目前的事件，美国将考虑对白俄罗斯实施制裁的可能性。
-
-“哦，我敢肯定，我们将研究所有这些问题，需要注意的重要事项是标准。我们相信我们不仅可以单方面而且可以多边方式做到这一点，这是什么呢？到底是要制裁还是要就产品交付做出决定，从而为白俄罗斯人民带来良好的结果？这些都是有待确定的事情。”蓬佩奥在欧洲自由电台/电台采访中说。“我们尚未确定适当的回应是什么，但是我可以告诉你：我们将与我们的欧洲朋友，我们这里热爱自由的朋友一道，他们同样关心发生的事情。我们希望为了白俄罗斯人民，我们将采取与此一致的行动。”庞培总结说。
-
-援引：
-
-[https://tass.com/world/1189069](https://tass.com/world/1189069)
-
-12.美中两国官员联合追查神秘种子包裹
-
-美国农业部门官员称，他们正在与中国同行合作，以判断是谁向美国居民发送神秘种子包裹并阻止今后可能出现的运送。![](https://gnews.org/ae7fe1fa-883a-41ef-bb9e-132d0d0073c8)
-
-美国农业部门官员称，他们正在与中国同行合作，以判断是谁向美国居民发送神秘种子包裹并阻止今后可能出现的发货。
-
-美国农业部在周三公布的一段事先录制的电台广播中称，中国正在协助确定种子发送者的身份，并表示农业部知道这些货物背后的公司的名称。美国农业部还称，中国邮政部门正在配合上述调查。
-
-- 美国邮政总局被呼吁停止递送神秘种子包裹
-- 不明种子包裹事件蔓延至全球
-
-
-援引：
-
-[https://cn.wsj.com/articles/美中两国官员联合追查神秘种子包裹-11597284608](https://cn.wsj.com/articles/美中两国官员联合追查神秘种子包裹-11597284608)
-
-13.新西兰总理表示，奥克兰Covid-19疫情将“恶化”
-
-新西兰总理杰辛达·阿登（Jacinda Ardern）预计该国最大城市奥克兰将被长期封锁。
-
-新西兰最高卫生官员表示，Covid-19可能已经在新西兰最大的城市中流传了数周，因为确认了13例新的社区病例，所有病例都与周二宣布的4例病例有关。 总理贾辛达·阿登（Jacinda Ardern）表示，在奥克兰这个人口超过140万人的城市中，这个不断发展的集群目前总数为17个，“在变得更好之前，它会变得更糟”。
-
-在没有社区传播的情况下，经过102天的传播，新西兰人为该病毒感到震惊，该国因其成功的Covid-19消除策略而享誉全球。 “再次让我们想起了这种病毒的棘手性以及它易于传播的能力，” Ardern说。“尽力而为早仍然是最好的选择。”
-
-在新西兰，接触追踪，隔离和测试过程被认为是至关重要的。 事实证明，在秋天成功进行了51天的封锁，从社区中消除了该病毒，并且使新西兰人除了严格的边境管制外，还可以恢复正常生活。 新的疫情使新西兰人重回锁定的传统：等待Ardern每天下午1点的新闻发布会了解新病例的数量。
-
-援引：
-
-[https://www.theguardian.com/world/2020/aug/13/covid-19-may-have-been-circulating-in-new-zealand-for-weeks-as-fresh-case-emerges](https://www.theguardian.com/world/2020/aug/13/covid-19-may-have-been-circulating-in-new-zealand-for-weeks-as-fresh-case-emerges)
-
-冠状病毒实时新闻：
-
-印度看到创纪录的每日病例上升
-
-全球死亡人数接近750,000
-
-根据约翰**·**霍普金斯大学的追踪数据，全球有**749,358**例已知的冠状病毒死亡，因为自报告首例冠状病毒病例以来，在近八个月的时间里，世界已接近**75**万死亡的严峻里程碑。 两天前，案件总数超过了2000万，令人震惊。目前已经达到了20,620,847。
-
-摘要
-
-以下是最近几个小时的主要发展：
-
-- 全球死亡人数接近750,000。根据约翰·霍普金斯大学的追踪数据，全球有749,358例已知的冠状病毒死亡，因为自报告第一例冠状病毒病例以来，世界已接近八个月的死亡人数达到约75万人的严峻里程碑。两天前，病例总数超过了2000万。他们已经达到了20,620,847。
-
-
-- 印度周四报告说，新的冠状病毒感染又有创纪录的每日上升，而Covid-19造成的死亡人数超过47,000。印度卫生部说，周四的感染较前一天增加了66,999例，迄今为止已达到近240万例。该国是仅次于美国和巴西的世界最大的案件处理国，现在报告连续15天每天增加50,000例以上。
-- 法国24小时内在24小时内登记了超过2,500例新的冠状病毒病例，这是自5月以来的最大增幅。卫生部DGS公共卫生部门说，在过去一周的600,000次检测中，有11,600例呈阳性。
-- 官方媒体称，约旦将从周四起关闭与叙利亚的边境，为期一周。约旦的病毒病例有所减少。
-- 澳大利亚维多利亚州一夜之间记录了278例新的冠状病毒病例，这与最近的下降趋势相吻合，在8月初增加到600例后，病例数更接近7月中旬的水平。
-- 委内瑞拉通讯部长兼总统尼古拉斯·马杜罗（NicolásMaduro）的亲密顾问周三表示，随着该国的每日病例稳步上升，他已被诊断出患有冠状病毒。
-
-
-- 德国周三将布加勒斯特和罗马尼亚的其他几个地区列入了冠状病毒感染的高风险地区，德国部长取消了前往罗马尼亚首都的工作旅行。
-- 在冠状病毒病例激增之后，秘鲁总统马丁·维兹卡拉（MartínVizcarra）禁止家庭聚会，并将锁定范围扩大到该国的另外五个地区，秘鲁25个地区中有15个已经实行了滚动封锁。
-- 意大利已下令从克罗地亚，希腊，马耳他和西班牙来的旅客接受Covid-19检验，并且由于对新感染的关注日益增加，哥伦比亚已被列入全面旅行禁令的国家清单。
-- 法国 报告说，过去24小时内有2524例新的冠状病毒感染，带有Covid-19的医院的人数继续下降，下降了121人，降至4,891人，这是自3月19日以来首次降至5,000人以下。
-- 土耳其将把学校的重新开放推迟近一个月。政府宣布，由于每天的冠状病毒病例仍超过1000例，学生将在新学年开始从在线学习开始，再过渡到面对面的教育。
-
-
-- 智利 周一将解除世界上最长的封锁之一。首都圣地亚哥的中央商务区和毗邻的中央车站将在“逐步”重新开放下进入“过渡”阶段。
-
-
-援引：https://www.theguardian.com/world/live/2020/aug/13/coronavirus-live-news-covid-19-may-have-been-in-new-zealand-city-for-weeks-russia-vaccine-due-in-fortnight?page=with:block-5f34cb2c8f08899e2e66d2b7#block-5f34cb2c8f08899e2e66d2b7
 
 0

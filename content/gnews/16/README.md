@@ -1,13 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本入五眼聯盟代價是什麼
-`2020-08-13 09:40 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/295425/)
+## 0813財經快訊
+`2020-08-13 11:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/295566/)
 
-郭文貴先生在[8月8日的G-TV直播](https://gtv.org//?videoid=5f2ea290ca0edb7e3f220718)中表示，共產黨不阻止日本加入五眼聯盟，代價是中日貨幣互換額大增，從過去的360億變成了5000億。甚至接下來不阻止其入常和其它國際組織，日本會犧牲台灣、香港和人權。安倍最傷心的是川普總統沒有跟他簽阿爾法協議。日本是共產黨一定要控制的。如果共產黨不在1到2年內滅掉，在日本和美國兩個國家的華人是最慘的。所以，郭先生呼籲Peace和村長戰友要起來。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/13111013/1-45.png)
+1. 中共擠壓全球金融市場多樣性： MSCI新興市場指數中中共國賬戶竟佔比高達39.1% ！ ETF（指數型股票基金）投資者陷入偽多樣性陷阱。
 
-*翻譯：【班仔】 校對：【JoyJoy】字幕：【相機過熱啊】編輯：【Michelle】*
 
-*戰友之家玫瑰園小隊出品*
+[https://www.ft.com/content/087946ae-3c8d-4b05-a1b4-8a68b1a27b6b](https://www.ft.com/content/087946ae-3c8d-4b05-a1b4-8a68b1a27b6b)
+
+- 新三年，舊三年，縫縫補補又三年：近日，發改委允許新車用就零件，或為脫鉤做準備。牆內同胞們，你們還敢開車麼？你們敢開車你們加的起油麼？你們加的汽油你們付得起過路費麼？竟然還有某西方主流媒體認為中共國二手車市場即將起飛，真是無語凝噎。
+
+
+[https://www.rfa.org/mandarin/yataibaodao/jingmao/ql-08122020061234.html](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql-08122020061234.html)
+
+- 印度重錘出擊：繼封鎖中共app後，印度突襲多間中資公司並發現多間空殼實體涉嫌為超過40間銀行洗錢，涉案金額或達1.34億美元。
+
+
+[https://hk.epochtimes.com/news/2020-08-12/87144411](https://hk.epochtimes.com/news/2020-08-12/87144411)
+
+- 藍金黃預警：達里歐的橋水基金二季度再加倉黃金的同時加倉阿里巴巴幅度達244%，並且橋水還答復加倉了另外兩隻ETF：安碩中國大盤ETF和安碩MSCI中國指數ETF。看來這只安碩也是大有來頭啊
+
+
+[https://markets.businessinsider.com/commodities/news/gold-price-ray-dalio-invested-400-million-precious-metal-q2-2020-8-1029501695](https://markets.businessinsider.com/commodities/news/gold-price-ray-dalio-invested-400-million-precious-metal-q2-2020-8-1029501695)
+
+- 銀行業的貸款流向哪兒？郭樹清顧左右而言它。上半年累計新增貸款超過12萬億，當被問及貸款流向何處，郭樹清透露製造業，基礎設施，科技創新以及小微三農是重點。看上去回答的天衣無縫，可是你細品可以發現這個回答幾乎涵蓋了所有產業，說了幾乎等於沒說。
+
+
+[https://money.163.com/20/0813/07/FJT3E5B000259DLP.html](https://money.163.com/20/0813/07/FJT3E5B000259DLP.html)
+
+By 金融法律組
 
 0
