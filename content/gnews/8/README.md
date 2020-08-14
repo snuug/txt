@@ -1,63 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國黑客掠奪台灣半導體產業
-`2020-08-13 23:33 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/296132/)
+## 凯莱·麦肯阿尼：美貌与智慧并存的新晋白宫新闻秘书；川普总统连任竞选的最强资产之一
+`2020-08-14 01:48 GM01` [轉載自GNews](https://gnews.org/zh-hant/294591/)
 
-*新聞來源：Wired《有線媒體》；作者：安迪·格林伯格(Andy Greenberg)；發佈時間：2020年8月6日*
+作者：战友之家维基小组/ VOG WIKI Group
 
-*翻譯/簡評：理工男文峰；校對：Beicy-數學老師；審核：海闊天空；Page：拱卒*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12182032/KM-white-house-1.jpg) 白宫新闻秘书：凯莱·麦肯阿尼
 
-**簡評** ：
+**1.****人物简介**
 
-本文詳細介紹了中共國黑客掠奪台灣半導體產業的具體技術以及相關證據，進一步做實了中共用黑客盜取他國核心技術的罪證。中共國的黑客部隊在中共內部是具有戰略地位的，因為中共的體制扼殺創新，因此中共幾乎所有的技術都要通過偷盜獲得。中共通過國家力量不僅從台灣偷盜技術，更是從世界其他各國如美國、加拿大等國偷取技術。中共用黑客部隊偷取技術的目的在於建立自己的技術優勢，用於對外軍事威脅，對內監控自己國家的民眾。網絡脫鉤雖然能夠對中共的黑客偷取專利和技術有重大打擊，但仍然不能從根本上清除這些行為，因為中共的黑客已經分佈在眾多國家。唯有滅共才能治本。
+凯莱·麦肯阿尼（Kayleigh McEnany）是美国政治评论员、律师和作家，也是白宫新晋新闻秘书。她出生于1988年4月18日，是一位成功的屋顶承包商的女儿，在佛罗里达州的普兰特城（Plant City）长大，就读于坦帕市的圣名天主教高中。由于从小就对政治和政治评论着迷，高中毕业后选择在华盛顿特区的乔治敦大学外交学院主修国际政治，其间曾到英国牛津大学圣艾德蒙学堂交换学习一年，是后来的英国影子内阁大臣尼克·托马斯-西蒙斯（Nick Thomas-Symonds）政治课的学生[1] [\[2\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Zeffman_2020-7)[\[3\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Stonor_2020-9)。2010年大学毕业后，麦肯阿尼在福克斯电视台迈克·哈卡比（Mike Huckabee）的新闻节目中担任了三年的制片人助理[\[1\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Miami-6)。之后，麦肯阿尼进入迈阿密大学法学院，因成绩优异获得布鲁斯·温尼克（[Bruce J. Winick](https://en.wikipedia.org/wiki/Bruce_Winick)）奖，一个向班级前1％的学生提交的奖学金。翌年麦肯阿尼转入哈佛大学法学院，并于2016年从哈佛大学毕业。随后，麦肯阿尼进入了CNN，在CNN这个很少有川普盟友的电视台为川普辩护，最终帮助川普赢得了2016年总统选举[4]。2017年她就任共和党全国委员会（Republican National Committee ，RNC）发言人，她还是Political Prospect网站的创始人，Above the Law网站的专栏作者， The Hill网站的撰稿人[5]。2019年2月起，她开始担任川普总统2020年竞选连任团队的全国新闻秘书。同年4月7日，她被任命为白宫新闻秘书，为她的政治旅程画上了浓墨重彩的一笔[\[6\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。
 
-##  **中共國黑客掠奪台灣半導體產業** 
+**2.****职业生涯**
 
-[!\[\](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/42e2367c-d87c-4bd5-af64-fc522f519fcc.jpg?asset_id=9e326884-5537-426e-ba98-301b071bccab&amp;img_etag=%22ffca000c4038740bf41c77d3877765ab%22&amp;size=1024)](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/42e2367c-d87c-4bd5-af64-fc522f519fcc.jpg?asset_id=9e326884-5537-426e-ba98-301b071bccab&amp;img_etag=%22ffca000c4038740bf41c77d3877765ab%22&amp;size=1024)
+**2.1****初入媒体行业实现政治热情**
 
-一個名為“萬能鑰匙操作”的活動已竊取了源代碼、軟件開發工具包、芯片設計等。
+“政治展望”（Political Prospect）是一个试图在各种政治意识形态之间展开对话的舆论论网站，作为该网站的创始人，麦肯阿尼表示从她有记忆以来就一直对政治感兴趣。”我一直对政治和政治评论很着迷。有趣的是，除了我之外，我的家族中没有人对政治有特别的兴趣，也没有人出身于政治背景。” [\[7\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Miami-6)麦肯阿尼说。
 
-台灣一直面臨與中共國存在的生存衝突，多年來一直是中共國國家資金支持的黑客的(襲擊)目標。但一家台灣安全公司的調查表明，僅僅一組大陸黑客就能夠如此深入地滲透台灣經濟核心產業，幾乎掠奪了整個半導體產業。
+第一次参与政治活动是在2004年高中二年级时，她在布什/切尼2004年的竞选活动中做志愿者。这段经历不但让她获得了参加竞选活动的实习机会，还帮助她开启了从政生涯。麦肯阿尼明智的决定去华盛顿特区的乔治敦大学外交学院上大学，主修国际政治。在一天辛苦的学习结束后，大部分乔治敦大学法学院的学生合上案例书籍，上床睡觉前，打开电视追看当天的新闻时会碰到，他们的同学，金发碧眼的麦肯阿尼，与政界人士一起出现在福克斯商业频道的午间和黄金时段节目中。在大学期间，她曾在布什政府的白宫媒体事务办公室实习，撰写媒体简报。除了一些令人兴奋的福利和偶尔的名人互动，例如她有机会护送纽约巨人队的四分卫伊莱·曼宁到椭圆形办公室，麦肯阿尼在白宫实习经历还激发了她对政治媒体和评论的热情。[\[7\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Miami-6)
 
-在今天的”黑帽” 安全會議上，來自台灣網絡安全公司CyCraft的研究人員計劃介紹過去兩年中至少7家台灣芯片公司遭到黑客攻擊的新細節。這一系列深度入侵(之所以)稱為”萬能鑰匙操作”，是由於攻擊者使用”萬能鑰匙注入”技術，(這些入侵)似乎旨在竊取盡可能多的知識產權，包括源代碼、軟件開發工具包和芯片設計。雖然CyCraft公司此前曾給這群黑客命名為Chimra，但該公司的新發現包括了黑客與中共國大陸聯繫的證據，以及與臭名昭著的中共國國家贊助的黑客集團溫蒂（Winnti) 之間的鬆散聯繫。溫蒂（Winnti)有時也被稱為Barium或Axiom。
+从乔治敦大学毕业后，麦肯阿尼加入了阿肯色州前州长迈克·哈卡比在福克斯电视台的节目，担任了三年的助理制片人。在谈到在节目中的感受时，她说：“为迈克·哈卡比秀工作给我带来了很多千载难逢的经历。我去了以色列，为哈卡比采访以色列总理本雅明·内塔尼亚胡。2011年皇家婚礼前，我还在伦敦制作了采访。” [\[7\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Miami-6)
 
-在CyCraft公司作長期調查的研究員之一查德·達菲（Chad Duffy）表示：“這很大程度上是基於國家(行為)的攻擊，旨在操縱台灣的地位和力量。” CyCraft公司的另一位研究員陳忠寬（Cheng-Kuan Chen）補充說，CyCraft公司觀察到的那種大規模批量盜竊知識產權行為，“從根本上損害了(台灣)公司的整體經營能力” ， “這是對整個行業的戰略攻擊。” 他今天將介紹該公司的“黑帽”研究。
+为了实现儿时政治评论员的职业梦想，哈佛大学毕业以后，麦肯阿尼就以联合主持人的身份出现在CNN的“ The Point”节目中。除在这档黄金时段政治话题节目中出现之外，她还在《美国现场》（America Live w / Megyn Kelly），《卡武托》（Cavuto），福克斯新闻的《红眼》（Red Eye），《真实的故事》（The Real Story w/ Gretchen Carlson）和Varney＆Co等节目中亮相[\[7\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-Miami-6)。
 
-**骨架密鑰**
+对于麦肯阿尼在媒体界的表现，其在福克斯和CNN的前雇主都对她作了非常肯定的评价。迈克·哈卡比称她为“一丝不苟的研究者”和“胸有成竹者”。她在CNN共事过的评论员，自由派活动家范·琼斯（[Van Jones](https://en.wikipedia.org/wiki/Van_Jones)）注意到了她在职业上的迅速成功，“我不是想要为这些信息辩护，但我希望人们能够承认，无论任何党派中，都很少有人能在这么短的时间内取得麦肯阿尼的成就……人们一直在轻视她，也一直在后悔” [\[8\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。
 
-[!\[\](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/c65fcc85-6eed-4efe-a8d8-d7df4530812f.jpg?asset_id=bec5b568-ce09-4578-a3e5-9805f938cef2&amp;img_etag=%22e152d4d93d4a5598df8a85d31b93336f%22&amp;size=2560)](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/c65fcc85-6eed-4efe-a8d8-d7df4530812f.jpg?asset_id=bec5b568-ce09-4578-a3e5-9805f938cef2&amp;img_etag=%22e152d4d93d4a5598df8a85d31b93336f%22&amp;size=1024)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12183202/office.jpg) 凯莱·麦肯阿尼和女儿Blake
 
-CyCraft公司的研究人員拒絕告訴有限媒體(WIRED)任何受害公司的名字。有些(受害公司)是CyCraft 公司的客戶，而該公司則與一個稱為”事件響應論壇和安全團隊”的調查小組合作分析了其他入侵事件。幾位半導體公司的受害者總部設在新竹工業園(Hsinchu Industrial Park)，這是台灣西北部城市新竹(Hsinchu)的技術中心。
+**2.2共和党全国委员会发言人**
 
-研究人員發現，至少在某些情況下，黑客似乎通過破壞虛擬專用網絡來獲得對受害者網絡的初始訪問，儘管不清楚他們是否獲得了VPN 訪問憑據，或者他們是否直接利用了VPN 服務器中的漏洞。然後，黑客通常使用滲透測試工具Cobalt Strike 的自定義版本，通過與Google Chrome 更新文件同名來偽裝他們種植的惡意軟件。他們還使用託管在谷歌或微軟雲服務上的命令和控制服務器，使得其通信更難檢測為異常。
+2017年8月5号麦肯阿尼在Twitter上宣布，她将离开CNN。第二天，她就开始在总统的个人Facebook页面上的选举视频中宣传川普。她在这90秒视频中主要传达给选民三点信息：上周五就业报告数据好于预期，川普总统执政以来新增就业岗位超过100万，失业率处于16年来新低，消费者信心处于16年来新高；川普总统支持正在国会投票的《美国移民改革促进就业法案》（Raise Act），把保障美国人的就业机会放在首位；川普总统为越战老兵颁发荣誉勋章，提高他们的福利[\[9\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。
 
-從初始訪問點，黑客會進入受加密哈希(cryptographic hashing)保護的密碼數據庫，並嘗試破解它們，(從而)嘗試移動到網絡上的其他計算機。 CyCraft公司的分析師說，只要有可能，黑客就會利用竊取的憑據和用戶可用的合法功能通過在網絡中移動並獲得進一步的訪問權限，而不是用可能洩露其指紋的惡意軟件感染計算機。
+8月7日，共和党全国委员会（RNC）发布消息，麦肯阿尼将成为其电视和广播首席发言人。RNC主席Ronna McDaniel在一份声明中对麦肯阿尼即将任职RNC的工作目标做了详细说明，他说：“麦肯阿尼将成为我们党持续致力于向全美宣传共和党信息的一个组成部分；她的丰富经验将是RNC的宝贵财富，我们将继续支持川普总统，并在进入2018年时建立我们在国会的多数席位。作为报道国内外新闻事件的通讯员，麦肯阿尼拥有多年制定传播策略和传播关键信息的经验;她知道如何传达共和党的理念和价值观[\[10\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)”。 对于新职，麦肯阿尼发表了一项声明“我很高兴能在我们国家如此重要的历史性时刻加入RNC”，她在声明中说，“我渴望谈论共和党的理念和价值观，并对影响全国各地美国人的问题进行广泛讨论”[\[10\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。
 
-然而，CyCraft公司發現黑客在受害者網絡中反複使用的最獨特戰術，是(使用)一種技術去操作域控制器—-這種強大的服務器為訪問大型網絡設定規則。通過一個自定義程序，將來自常見黑客工具Dumpert 和Mimikatz 的代碼組合在一起，黑客們將為域控制器內存中的每個用戶添加新的附加密碼，每個用戶都使用相同的密碼，這一技巧稱為”萬能鑰匙注入”。有了這個新密碼，黑客們就會偷偷地訪問整個公司的機器。 “這就像一把萬能鑰匙，讓他們去任何地方，”達菲(Duffy)說。
+作为RNC全国发言人，麦肯阿尼不辱使命，专注于在各种新闻媒体上，包括私人推特上为共和党发声，批驳民主党无视国家和美国人民的利益；勇敢地面对各种媒体对川普总统的诬陷攻击，断章取义的讥讽嘲弄，揭穿驳斥有关川普总统的各种假新闻，为川普总统选举助力。
 
-**與中共國的紐帶**
+2017年8月，右派团体在美国[弗吉尼亚州](https://zh.wikipedia.org/wiki/%E5%BC%97%E5%90%89%E5%B0%BC%E4%BA%9A%E5%B7%9E)[夏洛茨维尔镇](https://zh.wikipedia.org/w/index.php?title=%E5%A4%8F%E6%B4%9B%E8%8C%A8%E7%BB%B4%E5%B0%94%E9%8E%AE&amp;action=edit&amp;redlink=1)举行了一次反对移除罗伯特·李将军雕像的大规模集会[\[11\]\[12\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3) ，因发生暴力冲突而导致人员伤亡及警用直升机意外坠毁[\[12\]](https://zh.wikipedia.org/wiki/2017%E5%B9%B4%E5%9B%A2%E7%BB%93%E5%8F%B3%E7%BF%BC%E9%9B%86%E4%BC%9A#cite_note-WaPo_Saturday-2)[\[13\]](https://zh.wikipedia.org/wiki/2017%E5%B9%B4%E5%9B%A2%E7%BB%93%E5%8F%B3%E7%BF%BC%E9%9B%86%E4%BC%9A#cite_note-Hart-7)[\[14\]](https://zh.wikipedia.org/wiki/2017%E5%B9%B4%E5%9B%A2%E7%BB%93%E5%8F%B3%E7%BF%BC%E9%9B%86%E4%BC%9A#cite_note-Kelsey-8)。川普表示白人至上主义者和反抗议者应共同承担暴力责任，“参加集会的人并不都是白人至上主义者和新纳粹分子，许多集会者是为抗议该市把李将军的雕像从解放公园中移走的决定。当反对派（左翼）指责右翼時，他们自己手中也挥舞著棍棒，难道他们就没问题吗？”[15]在川普以上言论遭受左派攻击后，麦肯阿尼和共和党全国委员会一起坚定地站在川普总统身后。麦肯阿妮在推文中写道——共和党支持总统 “爱和包容的信息”，川普的言论是对仇恨强烈斥责的标志[\[16\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。2018年5月，麦肯阿尼告诉福克斯商业网：”总统已经多次出来说他谴责所有的种族主义。我们都谴责种族主义，这也包括总统。”
 
-今年4月，CyCraft公司悄悄地發表了大部分有關”萬能鑰匙行動”的研究結果。但在”黑帽”對話中，公司計劃增加一些新發現，有助於將黑客活動與中共國大陸關聯起來。
+2018年，她出版了第一本著作——《新美国革命：平民主义运动的形成》（The New American Revolution: The Making of a Populist Movement）。福克斯新闻主持人肖恩·汉尼提（Sean Hannity）在序言中写道：“凯莱在支持川普的保守主义运动中，从来没有退缩过”。
 
-[!\[\](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/df503e99-e59d-452d-9123-27c253084657.jpg?asset_id=662de1c0-8395-4b2f-83e1-ec15edd33806&amp;img_etag=%22009fc47a136b30e40309b65b55af0f63%22&amp;size=2560)](https://spark.adobe.com/page/MGjYIwvwUyRxp/images/df503e99-e59d-452d-9123-27c253084657.jpg?asset_id=662de1c0-8395-4b2f-83e1-ec15edd33806&amp;img_etag=%22009fc47a136b30e40309b65b55af0f63%22&amp;size=1024)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12182348/book.jpg) 凯莱·麦肯阿尼的著作《新美国革命：平民主义运动的形成》
 
-在這些新線索中，最引人注目的或許來自本質上黑客的駭客。 CyCraft公司的研究人員觀察到Chimera小組從受害者的網絡中竊取了數據，並且能夠從他們與命令和控制服務器的通信中截獲身份驗證令牌。使用相同的令牌，CyCraft公司的分析師們能夠瀏覽雲服務器的內容，其中包括他們描述為黑客的“備忘單”，概述了典型入侵的標準操作程序。特別是該文件用簡體中文寫的，用在中共國大陸，而不是台灣。
+在美国两党对抗中，麦肯阿尼坚定地跟共和党和川普总统站在一起。2020年2月28日，麦肯阿尼在福克斯新闻上痛斥民主党对川普总统和美国人民不负责任的恶行，她说：“对美国不利的事情对民主党人来说是好事。他们竟然有这样的想法，真是不可思议。他们从根上反对股市，他们为冠状病毒能扎下根来而不遗余力。他们做着扳倒川普总统的白日梦。为达目的，毁掉多少美国人他们都不在乎。”[\[17\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)
 
-黑客們似乎也主要在北京的時區內活動，按照”996″的工作日程——每天早9點到晚上9點，在中共國科技行業常見的每週6天工作，並在中共國大陸的假期休假。最後，CyCraft公司說，他們從與台灣和外國情報機構的合作中了解到，一個使用類似技術的黑客組織也瞄準了台灣政府機構。
+**2.3****白宫新闻秘书**
 
-不過，最具體地發現是在多個受害者網絡上存在一個後門程序。 CyCraft公司說， Winnti 組織以前曾使用過這個程序，該組織是一大批黑客，他們從事了十年以上的工作，被廣泛認為是以中共國大陸為基地的黑客。近年來，Winnti組織以實施國家支持的、符合中共國利益的黑客和營利性犯罪黑客（通常針對視頻遊戲公司）而廣為人知。 2015 年，賽門鐵克公司(Symantec)發現Winnti 似乎也使用了”萬能鑰匙”注入攻擊，就像CyCraft公司發現針對台灣半導體公司那樣。 （CyCraft 公司指出， 它仍然不確定(是否)Chimera實際上就是Wintti組織， 但認為這是可能的。）
+2020年4月，马克·梅多斯(Mark Meadows)接替米克·穆尔瓦尼(Mick Mulvaney)出任白宫办公室主任后，梅多斯的第一个人事变动就是在2020年4月7日聘请麦肯阿尼担任新闻秘书，她也是川普政府4任新闻秘书中最年轻的一位。麦肯阿尼上任后，通过新闻发布会对川普总统的观点和政策进行宣传、解释和辩护。大部分时间里，麦肯阿尼都在同美国众多的左派媒体进行战斗，她经常在新闻媒体上公开地驳斥CNN等媒体编造的假新闻。麦肯阿尼对记者说： “我向你们保证，我将永远不会对你们撒谎。”[\[18\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)。
 
-卡巴斯基公司(Kaspersky)在2013年公佈的一項調查中首次發現這一黑客組織並命名Winnti。去年，該組織與一次攻擊有關，該攻擊劫持了台灣華碩(Asus)出售的電腦更新機制。卡巴斯基全球研究與分析團隊主管Costin Raiu表示，除了CyCraft公司所關注的半導體製造商(被駭客)以外，Winnti組織應對針對其他台灣企業的一系列廣泛的攻擊負責，(這些企業)從電信到科技公司。
+为了应对记者的问题，麦肯阿尼从不打无把握之仗，即便是有些问题对她而言可能是小菜一碟，或有些问题后来并没有被问到，她都会准备一个厚厚的文件夹，把可能会出现的问题收集整理，归纳要点，按主题分门别类以备一时之需。她曾被记者拍到一个文件夹里准备了四十多个主题，涵盖了从中国到俄罗斯，从经济到政治，从病毒测试到死亡率，从黑人运动到邮寄选票，从高尔夫球到总统健康……正是因为她每次都提前做好功课，有备而来，才能从容应对各种挑战。麦肯阿尼能够在白宫新闻发布会上反复列举出媒体一再发生的错误报道，她在6月29日说：”我真的认为，《纽约时报》是时候退后一步，问问自己为什么会错，错得如此之多，如此之频繁。” 她甚至抱怨道，“我大概被问了12个关于邦联旗的问题，而我们的总统专注于行动，我有点失望没有人关注美国这个周末有多少人死亡，没有人关注纽约的枪击案持续上升，没有人关注5个孩子被杀，没有人关注如何让我们的社会变得更加安全……我没有得到任何一个有关行动的问询。”显然，她的准备太充分了。
 
-Raiu說：“他們所看到的可能只是一幅大圖的一小部分。” Raiu補充說，Winnti並不是唯一的與中共國有聯繫、對台灣廣泛定位攻擊的(黑客)組織。但是他說Winnti的創新策略，例如劫持華碩(Asus)的軟件更新，使它們與眾不同。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/12182724/folder.jpg) 凯莱·麦肯阿尼的新闻发布会文件夹
 
-不過，即使在中共國大規模黑客入侵其相鄰島嶼的情況下，CyCraft公司的達菲（Duffy）仍認為，半導體產業是一個特別危險的(面臨攻擊的)目標。他指出，竊取芯片原理圖可能會允許中共國黑客更容易地挖掘隱藏在計算硬件中的漏洞。達菲(Duffy)說：“如果您在原理圖水平上對這些芯片有深刻的了解，則可以對它們進行各種模擬攻擊，並在漏洞發布之前找到漏洞。” “當這些設備投放市場時，它們已經受到損害。”
+2020年3月11日接受帕特·米勒节目的电台采访时，麦肯阿尼表示民主党人在尝试把冠状病毒“政治化”，他们几乎是在为这个结果加油打气了[19]。被任命为白宫新闻秘书之前的几周，麦肯阿妮称赞了川普总统对疫情的处理，她说：“这位总统将永远把美国放在第一位，他将永远保护美国公民……这与可怕的奥巴马总统任期形成了鲜明的对比，是不是让人耳目一新呢？” [20] 2020年4月，麦肯阿尼支持川普关于世界卫生组织表现出“明显偏向中国”的说法，世卫组织通过“重复中国在冠状病毒大流行期间兜售的不准确说法”和“反对美国挽救生命的旅行限制” ，将美国人置于危险之中[21]。2020年7月16日，当被问到关于疾病控制和预防中心数据可靠性的问题，麦肯阿尼立即翻到CDC的标签，阐述了政府用来追踪疫情蔓延的监控机制。马里兰州州长拉里·霍根（Larry Hogan）批评了川普对疫情的处理，麦肯阿尼这个问题早有准备，她翻到 “HOGAN ”标签，指出各种场合，3月19日、4月18日霍根曾赞扬联邦的应对措施。她还高度赞扬川普总统的果断措施，“当1月31日，美国仅有7例（冠状病毒确诊病人）时，川普总统就颁布了对中国的旅行禁令，这拯救了美国人的生命。但是民主党在做什么？佩罗西提出不禁止法案（No Ban Act），这将给川普政府限制外国人进入美国带来过度的限制。”[22]
 
-CyCraft公司承認，無法確定黑客對被盜的芯片設計文檔和代碼的處理方式。黑客行動的更可能動機僅僅是讓中共國自己的半導體製造商在競爭中脫穎而出。達菲(Duffy)說：“這是削弱台灣經濟的一部分，損害其長期生存能力的一種方式。” “如果您查看這次攻擊的範圍，幾乎整個行業，包括供應鏈的上下游，似乎是要改變那裡的權力關係。如果所有的知識產權都掌握在中共國手中，他們將擁有更大的力量。”
+**3.****评价**
 
-[原文鏈接](https://www.wired.com/story/chinese-hackers-taiwan-semiconductor-industry-skeleton-key/)
+麦肯阿尼职业起点很高，从大学时期就曾在乔治·布什多位政治人物手下锻炼，到福克斯新闻节目担任制片人助理，CNN评论员，哈佛毕业后第二年成为共和党全国委员会发言人，32岁成为白宫新闻秘书，年轻的麦肯阿尼一路攀登，这与她自信聪明的个人风格，沉稳扎实的职业素养是密不可分的。川普2020年选举经理布拉德·帕斯卡尔评价：“麦肯阿尼是川普政府中一颗冉冉升起的新星，她是一位一流的专业人士，她将为川普总统和美国人民提供良好的服务。她以其敏锐的头脑，积极的态度，坚定的信念和孜孜不倦的工作态度，已经成为总统连任竞选的最强资产之一。” [\[17\]](https://en.wikipedia.org/wiki/Kayleigh_McEnany#cite_note-NYT-3)
 
-編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/MGjYIwvwUyRxp/) 】
+一路走来，麦肯阿尼一直是保守主义价值观的信奉者，川普总统的积极捍卫者，凭借实力成功实现了儿时的政治梦想。她对媒体与政治有敏锐的洞察力，是一位美貌与智慧并存，才华与气质兼备的女性发言人，是潜在的美女政治家。
+
+1. Kayleigh McEnany – the ‘acceptable’ face of Trumpism who infuriates liberals，Theguardian.com, May 10, 2020
+2. Stonor, Joe, “Labour frontbencher taught Trump’s Press Secretary politics at Oxford”, Cherwell, May 12, 2020
+3. Kayleigh McEnany Biography，https://www.aaespeakers.com/speakers/kayleigh-mcenany
+4. Kirell, Andrew, “Meet the Trumpkins: The Donald’s Army of Media-Hungry Cable News Boosters”, The Daily Beast February 22, 2016
+5. Kayleigh McEnany, abovethelaw.com
+6. Katie Rogers and Maggie Haberman,Trump Has a New Press Secretary Who
+Knows How to Defend Him, The New York Times, April 7, 2020
+7. MIAMI LAW STAFF REPORT, “From Classroom to Newsroom: Rising 2L Kayleigh McEnany Appears on TV as Guest Political Commentator”, Miami School of Law, July 2, 2014
+8. Williamson, Elizabeth “In Kayleigh McEnany, Trump Taps a Press Fighter for the Coronavirus Era”, The New York Times, April 27, 2020
+9. Eric Levitz, RNC Makes Kayleigh McEnany Its National Spokesperson, Intelligencer, Aug. 7, 2017
+10. Eddie Scarry, Kayleigh McEnany joins Republican National Committee as spokesperson, Washington Examiner, August 07, 2017
+11. Stolberg, Sheryl Gay; Rosenthal, Brian M., Car Hits Crowd After White Nationalist Rally in Charlottesville Ends in Violence, The New York Times, Aug 12， 2017
+12. Joe Heim, Ellie Silverman, T. Rees Shapiro and Emma Brown, One dead as car strikes crowds amid protests of white nationalist gathering in Charlottesville; two police die in helicopter crash, The Washington Post, August 13,2017
+13. Benjamin Hart & Chas Danner, “3 Dead and Dozens Injured After Violent White Nationalist Rally in Virginia”, The New Yorker, August 12, 2017
+14. Adam Kelsey, “2 Virginia state troopers assisting Charlottesville protest response die in helicopter accident”, CBS News, August 12, 2017
+15. 弗州冲突 川普言论风波始末（上），大纪元网，2017年8月31日
+16. Greenwood, Max, “RNC spokeswoman: GOP stands behind Trump’s message ‘of love and inclusiveness'”, The Hill, August 15, 2020
+17. Smith, David, Holden, Emily, “‘We won’t see coronavirus here’… and other gems from Trump’s new press secretary”, The Guardian, April 8, 2020
+18. Kiely, Eugene, “White House Press Secretary Repeats Russia Talking Point”, FactCheck, May 1, 2020
+19. Wu, Nicholas, “New White House press secretary Kayleigh McEnany takes heat for past comments on Obama, coronavirus”, USA Today, April 8, 2020
+20. Panetta, Grace, New White House press secretary Kayleigh McEnany claimed in February that ‘we will not see diseases like the coronavirus’ come to America, Business Insider, April 7, 2020
+21. Hudson, John; Dawsey, Josh; Mekhennet, Souad, Trump expands battle with WHO, Stuff, April 26, 2020
+22. Press Briefing by Press Secretary Kayleigh McEnany, July 31,2020, https://www.whitehouse.gov
+
 
 0
