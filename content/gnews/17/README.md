@@ -1,24 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月25日後將不再有“香港製造”
-`2020-08-14 02:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/296308/)
+## 川普:我們對中共國的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大（英文English+意大利文Italian）
+`2020-08-14 06:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/295176/)
 
-![A view of a cityDescription automatically generated](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14021022/1-51.png)圖片來源: Nomadicmatt.com 
-據路透社最新報導，在英國政府統治下的香港，雖然只是一個殖民地. 但是它在世界享譽盛名. 主要原因是就是這個小小的地方擁有自由和法治，自由貿易以及所給予的特殊待遇，令香港經濟急速發展, 成為了亞洲四小龍之一。可惜, 隨著2018年中美貿易戰開始, 2019年香港反送中運動以及全球中共冠狀病毒大爆發，香港作為一個轉口及出口港，和中國內地經濟的緊密合作，首當其衝, 其經濟受到的巨大的打擊和損失已無法估計.
+意文標題 Trump: Vediamo la Cina in modo diverso rispetto a otto mesi fa, in modo molto diverso
 
-今年7月1日, 中共人大在香港實施國安法. 這意味著香港高度自治已經成為過去.1984年12月所簽訂的中英聯合聲明中對港人高度自治的承諾已經成為歷史，香港法治淪為一國一制.
+翻譯：明天的彩虹 校對： Carota Einstein 視頻校對：明天的彩虹 視頻製作： AVA 文嶢
 
-國安法加速中美之間的緊張關係，由於香港高度自治已經失去, 香港市民的自由和權力被剝削。因此, 美國對待香港和中國內地的城市已無分別。川普總統在7月14日宣布取消香港特殊地位, 並且在9月25日將把香港和中國製造的產品相提並論，兩者不再有分別，在美國征收相同的關稅. 另一方面, 由於中共公司在美國不遵守審計規則, 任意製造虛假帳戶來矇騙美國而成為上市公司， 美國財政部長因此宣布將會取消這些中概股公司在美國上市。美國這次做法,對香港金融機構將會帶來莫大影響和衝擊.
+川普:我們對中共的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大。 我們獲得了第一階段的交易,這是一個了不起的交易,但是現在已經意義不大了,我們對中共的看法與八個月前截然不同。
 
-自從香港反送中運動以來，香港政府及黑警一直打壓香港市民。 8月8日美國政府決定制裁11名香港高官以及港澳辦官員。次日, 中共同樣列出製裁美國11名官員以作報復。中共的做法, 只會令各國更加清楚中共是一個什麼樣的政府.
+Stiamo parlando molto del PCCP(Partito Comunista Cinese). Non avremmo dovuto parlare del PCC. Abbiamo concluso un accordo di fase uno ed è stato un affare meraviglioso. Vediamo la Cina in modo diverso rispetto a otto mesi fa, in modo molto diverso.
 
-評論: 香港在短短的100多年曆史, 從一個小漁村, 發展成為世界人所皆知的現代文明的城市, 但是由於中共統治下以及香港政府的無能, 將一個的美麗的香港, 沉淪為一個警察城市,一個和中國內地城市無分別的地方。香港人的自由及人權已經喪失, 自由經濟貿易地位也消失，在中共政權統治下是多麼的可悲.
-
-[新聞鏈接](https://www.reuters.com/article/us-usa-trade-china-hongkong/hong-kong-goods-for-export-to-u-s-to-be-labelled-made-in-china-idUSKCN2570UT)
-
-翻譯報導：叮噹
-
-校對整理:人間四月
-
-1
+0

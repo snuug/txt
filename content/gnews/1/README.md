@@ -1,23 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/06 CCP病毒每日疫情直播簡報
-`2020-08-14 07:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/296524/)
+## 德國鷹派對CCP摩拳擦掌欲火力全開
+`2020-08-14 10:49 GM77` [轉載自GNews](https://gnews.org/zh-hant/296954/)
 
-戰友之家圖文摘要及小語種組
+編撰:下午茶、文盲2020、文肯尼
 
-[English\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054318/English_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054318/English_0806_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14104327/%E5%9B%BE%E7%89%87-1%E7%9A%84%E5%89%AF%E6%9C%AC.png)儘管有德國總理安格拉-默克爾(Angela Merkel),但柏林正在發生根本性的轉變。  | Sean Gallup/Getty 圖片。
 
-[French\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054322/French_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054322/French_0806_CCP_Virus_Updates.pdf)
+Noah Barkin是Rhodium Group的總編輯,也是德國馬歇爾基金German Marshall Fund在柏林的高級訪問學者。
 
-[German\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054325/German_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054325/German_0806_CCP_Virus_Updates.pdf)
+柏林–全球各地的民主政府正一個接一個地對中共採取強硬立場。 從澳大利亞和美國開始,已經蔓延到印度、加拿大和英國。
 
-[Japanese\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054333/Japanese_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054333/Japanese_0806_CCP_Virus_Updates.pdf)
+然而德國,作為全球參與者中的一個異類,柏林經常極力避免批評中共的領導層,即使北京在COVID-19病毒危機中利用歐洲的分歧,大規模組織扣押拘役維吾爾族穆斯林,並對香港實施嚴厲的國安法。
 
-[Korean\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054329/Korean_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054329/Korean_0806_CCP_Virus_Updates.pdf)
+德國不僅保持沉默,而且還極力維護這種沉默。 本月早些時候,德國總理默克爾的親密盟友、經濟部長彼得-阿爾特邁爾(Peter Altmaier)在接受POLITICO和《法蘭克福彙報》(Frankfurter Allgemeine Zeitung)採訪時分別表示,教訓其他國家不是德國的角色。 阿爾特邁爾說,他仍然相信 「Wandel durch Handel」–即更緊密的貿易關係將推動中國走向更自由、更開放的政治制度。
 
-[Spanish\_0806\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054336/Spanish_0806_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14054336/Spanish_0806_CCP_Virus_Updates.pdf)
+對於批評中國在習近平主席領導下日益強硬的批評者和歐洲反擊的擁護者來說,德國的立場被視為一個重大障礙。
 
+**這位總理在步入****2020****年後決定****,****北京可以成為歐洲的合作夥伴****,****而不是競爭者和系統性競爭對手。**
 
+然而,柏林也正在發生根本性的轉變,儘管它並沒有像英國那樣以令人目眩的速度發生。 在過去的一年裡,德國政界對中共的看法已經趨於強硬。 隨著默克爾明年卸任,聯盟可能發生變化,人們越來越感覺到,柏林採取更加鷹派的立場已經不可避免。  “一旦默克爾卸任,我想你會看到一個快速的轉變,可能是一個劇烈的轉變。” 一位在政治上與其保守派保持一致的聯邦議院官員說。
+
+德國工業界的一位資深人士對此表示贊同,他預測,儘管有來自商業遊說團體的壓力,要求保持關係和諧,但更加鷹派路線背後的勢頭將難以阻止:”趨勢是朝著一個方向發展,那就是走向更強硬的路線,”他說。
+
+事實上,默克爾在中國問題上的做法–優先考慮對話,避免對抗或批評,將少數德國大公司的利益放在首位–已經出現了深深的裂痕。
+
+默克爾總理進入2020年後決心表明,北京可以成為歐洲的合作夥伴,而不是像歐盟委員會去年所描述的那樣,只是一個競爭者和系統性的競爭對手。
+
+但北京拒絕配合。 相反,隨著COVID-19病毒危機的擴散,中共變得更具挑釁性,過去一周,中共利用其新的國安法在香港積極打擊民主活動人士。 默克爾希望正式批准歐盟-中國投資條約並就氣候政策和非洲發展達成單獨協定的念頭正在消退。 總理與習近平和歐盟領導人的峰會最初計劃於9月中旬在東部城市萊比錫舉行,但已被無限期推遲。
+
+不僅中共拒絕與默克爾合作,默克爾自己的內閣成員和聯邦議院內的廣泛聯盟也拒絕與中國合作,其中包括默克爾自己的基督教民主聯盟(CDU)成員,外交委員會主席諾伯特-羅特根(Norbert Röttgen),以及她的聯盟夥伴社會民主黨(SPD)和綠黨的議員。 週末,社民黨領導的外交部的一名高級官員在Der Spiegel 雜誌上撰寫了一篇措辭強硬的對華評論,讀起來像是對默克爾的做法進行了小小的譴責。
+
+這個跨黨派團體越來越有信心,認為今年可以通過挫敗默克爾讓華為在德國5G網路中發揮作用的計劃,對默克爾的對華政策再次造成打擊。
+
+負責起草5G安全立法的內政部長霍斯特-塞霍夫(Horst Seehofer)已經向華為的反對者發出信號,表示不想與他們爭鬥。 據該部的一位高級官員稱,這意味著他的部下可能在秋季提交給議會的法律草案將為華為設置過高的安全門檻,予以清除。
+
+隨著英國、法國、義大利以及東歐和斯堪的納維亞半島的大部分地區準備將華為趕出,默克爾–她曾多次談到歐盟需要在5G上採取共同立場–將很難將德國帶向另一個方向。
+
+美國新的出口管制限制了華為獲得先進晶元的機會,這讓人們對該公司作為5G供應商的可靠性產生了更多的質疑,並給華為在德國議會的反對者提供了進一步的彈藥。
+
+如果川普總統在11月的美國總統大選中輸給民主黨挑戰者拜登(Joe Biden),默克爾的地位可能會被進一步削弱。 拜登現在在所有主要民調中都享有一定的領先優勢,他已經表示,他打算在中國政策上與盟友密切合作。 如果他打來電話,柏林將很難說不。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14104257/%E5%9B%BE%E7%89%87-1-4.png)德國在對華立場上是一個異類–但可能不會持續太久 |。 Odd Andersen/AFP via Getty 圖片。
+
+這些都不意味著柏林的政治家們會突然開始像華盛頓的鷹派同行那樣說話。 但這確實意味著,從長遠來看,他們在制定對華政策時,將不得不優先考慮更廣泛的戰略因素,而不是產業利益。
+
+柏林將繼續與北京就共同關心的領域進行對話,但也可以設想默克爾之後的世界,柏林將更加強硬地發聲,回擊來自北京的經濟威脅並設定紅線,在中國越過紅線時,與盟友協調採取具體行動。 德國支援歐盟為應對中共在香港用國安法打壓而採取的措施,即使它們沒有像美國和英國採取的措施那樣深入,也是一個信號。
+
+在評估德國未來與中國的關係時,最後一塊拼圖是誰接替默克爾擔任總理。
+
+距離下一次聯邦大選還有一年多一點的時間,她的繼任者是誰,這個人將領導什麼樣的政府,以及這一切對柏林對北京的政策可能意味著什麼,都還沒有明確的說法。
+
+但在柏林 「大聯盟 」執政十多年後,選舉的確有可能產生新的政治格局,其中就包括近年來崛起的綠黨,他們是德國對華最鷹派的政黨。
+
+**德國現在可能是個異類****,****但默克爾的對華路線似乎越來越站不住腳。**
+
+綠黨(The Greens)支持他們所謂的以人權為中心的 「道德外交政策」,而且–因為他們的標誌性議題是應對氣候變化–他們對北京的立場不太可能像默克爾那樣受到依賴中國的德國汽車業的影響。
+
+在接替梅克爾擔任總理的前幾位候選人中,最近幾個月的民調已經轉向了基民盟的姊妹黨巴伐利亞基督教社會聯(Bavarian Christian Social Union)的領導人馬庫斯-索德(Markus Söder)。 雖然他的基民盟競爭對手阿爾明-拉舍特(Armin Laschet 和)弗裡德里希-梅爾茨(Friedrich Merz)從這場大流行病中脫穎而出,但無論從哪個角度看,他都度過了一場不錯的危機,並在基層保守派中獲得了更大的支援。
+
+作為巴伐利亞州的總理,索德(Söder)不遺餘力地維護寶馬和奧迪等德國本土汽車製造商的利益。 但作為總理,他將面臨壓力,以顯示他在為所有德國人工作。
+
+與其說索德(Söder)是一個意識形態主義者,不如說他是一個政治實用主義者–過去18個月里,他在氣候政策上發生了巨大轉變,因為這樣做在政治上是有意義的–如果他最終與綠黨(theGreens)結成聯盟,並面對華盛頓新的、更友好的政府,推動其盟友開展更多合作,那麼他也將面臨改變對華立場的巨大壓力。
+
+德國現在可能是個例外,但默克爾的對華路線似乎越來越站不住腳。 它不太可能在未來的政治變革中倖存下來。
+
+原文連結:
+
+[https://www.politico.eu/article/why-post-merkel-germany-will-change-its-tune-on-china/](https://www.politico.eu/article/why-post-merkel-germany-will-change-its-tune-on-china/)
 
 0

@@ -1,53 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普對中共的雷霆攻勢
-`2020-08-14 00:08 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/296231/)
+## 9月25日後將不再有“香港製造”
+`2020-08-14 02:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/296308/)
 
-*新聞來源：《AXIOS》；作者：Dave Lawler；發佈時間：2020年8月7日*
+![A view of a cityDescription automatically generated](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14021022/1-51.png)圖片來源: Nomadicmatt.com 
+據路透社最新報導，在英國政府統治下的香港，雖然只是一個殖民地. 但是它在世界享譽盛名. 主要原因是就是這個小小的地方擁有自由和法治，自由貿易以及所給予的特殊待遇，令香港經濟急速發展, 成為了亞洲四小龍之一。可惜, 隨著2018年中美貿易戰開始, 2019年香港反送中運動以及全球中共冠狀病毒大爆發，香港作為一個轉口及出口港，和中國內地經濟的緊密合作，首當其衝, 其經濟受到的巨大的打擊和損失已無法估計.
 
-*翻譯/簡評：RachelX；校對：沐子璐璐；審核：海闊天空；Page：拱卒*
+今年7月1日, 中共人大在香港實施國安法. 這意味著香港高度自治已經成為過去.1984年12月所簽訂的中英聯合聲明中對港人高度自治的承諾已經成為歷史，香港法治淪為一國一制.
 
-**簡評** ：
+國安法加速中美之間的緊張關係，由於香港高度自治已經失去, 香港市民的自由和權力被剝削。因此, 美國對待香港和中國內地的城市已無分別。川普總統在7月14日宣布取消香港特殊地位, 並且在9月25日將把香港和中國製造的產品相提並論，兩者不再有分別，在美國征收相同的關稅. 另一方面, 由於中共公司在美國不遵守審計規則, 任意製造虛假帳戶來矇騙美國而成為上市公司， 美國財政部長因此宣布將會取消這些中概股公司在美國上市。美國這次做法,對香港金融機構將會帶來莫大影響和衝擊.
 
-此前，川普總統對於貿易談判一直寄予厚望，希望通過相對文明的方式使得中共依據國際規範及準則回歸正軌。然而遺憾的是，對於流氓惡棍而言，一切合約協議都只是一紙空文罷了。特別是當中共感受到自己的權力受到威脅的時候，它定會毫無顧忌的使用各種超乎常人想像的卑劣手段予以反擊。此次病毒的釋放使得美國乃至全世界都徹底遭受重創，也終於使得川普總統徹底看清了中共的本質。我們期待看到更多的滅共重錘頻繁落下，盡快將這個邪魔惡黨從世間徹底剷除。
+自從香港反送中運動以來，香港政府及黑警一直打壓香港市民。 8月8日美國政府決定制裁11名香港高官以及港澳辦官員。次日, 中共同樣列出製裁美國11名官員以作報復。中共的做法, 只會令各國更加清楚中共是一個什麼樣的政府.
 
-##  **川普對中(共)國的雷霆攻勢** 
+評論: 香港在短短的100多年曆史, 從一個小漁村, 發展成為世界人所皆知的現代文明的城市, 但是由於中共統治下以及香港政府的無能, 將一個的美麗的香港, 沉淪為一個警察城市,一個和中國內地城市無分別的地方。香港人的自由及人權已經喪失, 自由經濟貿易地位也消失，在中共政權統治下是多麼的可悲.
 
-![This image has an empty alt attribute; its file name is ed5ac4c6-ab8e-4878-a127-2b6d2835fb09.jpg](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/ed5ac4c6-ab8e-4878-a127-2b6d2835fb09.jpg?asset_id=6dcbe776-ca08-4478-99b0-6d0695174254&amp;img_etag=%22e05ed68f0695ef7487a55b9509a44105%22&amp;size=1024)
+[新聞鏈接](https://www.reuters.com/article/us-usa-trade-china-hongkong/hong-kong-goods-for-export-to-u-s-to-be-labelled-made-in-china-idUSKCN2570UT)
 
-在此之前，可以說川普總統對於中(共)國的態度一直是雷聲大雨點小。
+翻譯報導：叮噹
 
-**為何重要：**即使在川普貿易戰最激烈的時候，他的政府也從未像現在這樣全面、迅速而有力地打擊過中(共)國。
-![This image has an empty alt attribute; its file name is 27027d88-d6c7-4c6e-b96d-4ab5d76900b2.jpg](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/27027d88-d6c7-4c6e-b96d-4ab5d76900b2.jpg?asset_id=038cef7a-ec55-43b6-b11d-2d9c51f3b753&amp;img_etag=%2241d0d80d6a3897ed314e30945324a1e3%22&amp;size=1024)
-**週四晚間** ，川普進一步升級了他的行動，他通過行政命令威脅要同時禁止TikTok和大型全球通信應用程序微信，此舉進一步加巨了中美科技界之間的剝離。
+校對整理:人間四月
 
-![This image has an empty alt attribute; its file name is e7d100c3-2514-4099-80dd-a6bf566fef51.jpg](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/e7d100c3-2514-4099-80dd-a6bf566fef51.jpg?asset_id=4e9f960d-cc6f-468a-95d9-b637c795528e&amp;img_etag=%2246cfee7daed211ce6e7441a54f767c57%22&amp;size=2560)
-
-**週五，**美國財政部以’執行北京鎮壓自由和民主進程的政策’為由，對北京所支持的香港特首林鄭月娥實施了製裁。
-![This image has an empty alt attribute; its file name is 74af81ba-d2be-4e2d-a02b-3b843563d0d3.png](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/74af81ba-d2be-4e2d-a02b-3b843563d0d3.png?asset_id=7f74ae2d-84a0-4688-9ef9-d9654e3c04a6&amp;img_etag=%22f894d23066a7239920f5385f39ffa798%22&amp;size=1024)美製裁新疆兵團及兩名官員
-**此舉是在對**強大的準軍事組織新疆生產建設兵團實施制裁之後進行的，該團伙在大規模拘留少數民族的事件中發揮了作用。
-
-![This image has an empty alt attribute; its file name is 1f21d338-5560-43bd-b030-bf0be59ed862.jpg](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/1f21d338-5560-43bd-b030-bf0be59ed862.jpg?asset_id=08032e20-6e32-4729-b505-1da81b8eb5dc&amp;img_etag=%226f138fd7ea87c4f36a567bf3916134d0%22&amp;size=2560)休斯敦的中(共)國領事館
-
-**美國已經**關閉了在休斯敦的中(共)國領事館，大力敦促其盟友與中(共)國電信巨頭華為的5G網絡進行剝離，甚至警告美國藍籌公司，他們可能會因參與北京的競標而面臨法律制裁。
-![This image has an empty alt attribute; its file name is 27575d79-be23-4fc6-b543-b8ff5cf376b4.jpg](https://spark.adobe.com/page/HKMDaWhtDrK3n/images/27575d79-be23-4fc6-b543-b8ff5cf376b4.jpg?asset_id=d4127ddd-fbc6-4c9e-9a6e-7178f416ab62&amp;img_etag=%22f0821d4680099e89d292934eaafb6737%22&amp;size=1024)衛生部長亞歷克斯·阿扎爾訪問台灣
-**衛生部長亞歷克斯·阿扎爾（Alex Azar ）即將**成為四十年來最高級別的訪台美國官員，這一支持台灣自治的尖銳信號已經激怒了北京方面。
-
-**言外之意：**雖然在某些情況下，川普一直在回應中(共)國的行動-特別是在針對嚴苛的香港安全法問題上。但是這一波突如其來的攻勢可能還不僅於此。
-
-1. **政治** ：川普在大選之年押注對中(共)國採取強硬措施，希望以此在選民中引起共鳴，他的眾多顧問中包括了貿易顧問彼得·納瓦羅，他在我們的Pro Rata播客中經常引用民意測驗表明川普此舉的正確性。
-
-2. **貿易** ：川普已經承認他希望與中(共)國達成貿易協議的願望使得他在過去的行動中被束縛了手腳，包括在對新疆大規模集中營的問題的處理上。而今，貿易談判處於冰凍狀態，而且這還很可能是永久性的。
-
-3. **市場** ：得益於2萬億美元的CARES法案以及美聯儲“竭盡所能”來支撐市場的承諾，投資者在很大程度上忽略了貿易戰相關的頭條新聞，並繼續將股票價格推高。
-
-**歸根結底：** Axios中(共)國記者Bethany Allen-Ebrahmian指出，在過去幾周中，我們似乎已經看到了過去數十年的鷹派政策開始被提出或執行。
-
-很多這些相關舉措都會引發重大後果，而且絕非僅僅是對中(共)國而言。
-
-[原文鏈接](https://www.axios.com/trump-china-offensive-trade-tiktok-sanctions-38c2110e-8319-453b-97a5-08a4124070a0.html?utm_campaign=organic&amp;utm_medium=socialshare&amp;utm_source=twitter)
-
-編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/HKMDaWhtDrK3n/) 】
-
-0
+1
