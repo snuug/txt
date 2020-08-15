@@ -1,59 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美金融脫鉤箭在弦上
-`2020-08-14 14:41 GFinTalents` [轉載自GNews](https://gnews.org/zh-hant/297057/)
+## 微信公眾號&#8221;局座召忠&#8221;8月14日變更為&#8221;戰忽局&#8221;意味著什麼
+`2020-08-14 19:36 Diago` [轉載自GNews](https://gnews.org/zh-hant/297137/)
 
-*G金融人才小組雅吉娜Rex編輯*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193137/%E5%B0%81%E9%9D%A2-50.jpg)
+作者：Diago
 
-### 郭先生視頻中多次強調中共貨幣會被踢出美元交易體系
+據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [08月14日 18:08](https://weibo.com/1887344341/JfTA3yYvw?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
 
-2018年10月4號郭先生提到“今天看到了美國總統號召美國人不要再跟中共做生意甚至要撤除中共，接下來對人民幣的美元脫鉤和不允許他再使用美元結算系統，對港幣的做空，把港幣徹底滅掉，把香港徹底定為美國要關注的危險區域，而且阻止美國投資並要立法，“美港關係法”一定會取消，“香港自貿區協議”一定會被取消，香港的港幣一定變成垃圾人民幣一定變成紙比冥紙還便宜。”
+微信公眾號“局座召忠”更名為“戰忽局”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193257/707e96d5gy1ghqi3baup7j20u0172q5y.jpg)
+同時中共控制的互聯網媒體也基本在2020年8月14日下午18:00之後發佈了同樣內容的消息：
 
-2019年11月6日郭先生提到“我們完整地寫了報告，最後又附上區塊鏈的目標，為什麼要幹掉你們的SWIFT和CHIPS，為什麼中共要發展DC/EP，虛擬貨幣在市場上兩千多億的比特幣的背後，真正在暗網上，所有操縱的都有嫌疑。這個報告是昨天給的那個人，今天早上約了咱們的人去看。剛才說他們要推進。這對美國是致命的，是要美國命的。”
+[“局座召忠”正式更名為”戰忽局”\_媒體\_澎湃新聞-The Paper](https://www.baidu.com/link?url=NY9NCUb1mRdlvpG7JEAXQpxviYxDobBPNz8FIA7obO32d_C40MgLNUtXKOEVNJo1v_6E4Aas5jHAlMx4I64KUK)
 
-2020年7月12日郭先生提到“直播之前我就告訴自己得摟住：第一件事，我告訴大家一定會發生什麼，川普總統不會再跟習是個人好哥們，這不可能了；第二，他一定會說這是共產黨病毒；第三，馬上會把香港、大陸的，從香港開始或者同時開始跟人民幣、跟港幣，美元脫鉤。”
+**[戰忽局真的來了(更局座名場面)](https://www.baidu.com/link?url=PehmF2qfuGpQPM96_jcBqu3hl1C9Ka9Pz7ANqVYzxR8CWKQ8wpqC-jVaT7X5i9b_lHpB36RozjXgRr1HF6EzDa)**
 
-**評論：郭先生經常提到滅共的最後0.3，就是金融擀麵杖子的脆斷，就是中美金融的脫鉤。一旦脫鉤發生，中共將土崩瓦解，爆料革命是推動中共滅亡的最重要的力量一極。**
+**[“局座召忠”改名,“戰忽局”掛牌\_手機網易網](https://www.baidu.com/link?url=57aywD0Q6WTnl7XKbIHuEqlXJykLjGsVWmNML1kWY4afUX3y1j8fxf_jMErVKpDCu-3JfxIXBj9uEYeZ1HKF890viR1SvYkdZQ9YZcwfany)**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14125341/52.jpg) source:VOG
+對於這則突如其來的發佈潮，有以下幾個看點：
 
-### 中共官員、專家近幾個月公開討論最壞情況
+1、2015年12月31日創辦的“局座召忠”微信公眾號通過審核之前，肯定要遞交相關資料，既然當初通過審核，說明遞交材料符合當時的規定，也就是說只要張召忠不提出異議，只要不存在侮辱党和國家領導人嫌疑，那麼“局座召忠”也好“局座戴旭”也好都不存在什麼問題；
 
-最壞情況指的是：
+2、2020年8月14日前“局座召忠”的微信公眾號運營與張召忠的關係：這份公告裡說明的2020年8月14日“局座召忠”微信公眾號與局座張召忠的合作條件——用局座張召忠的名義運營，張召忠不參與微信公眾號“局座召忠”運營公司的運作與管理，也不在公司中擔任職務，僅作為公司的專家與顧問，對公眾號選題和內容進行審查把關。
 
-1、中共國被排除在美元結算體系之外
+3、微信公眾號從“局座召忠”變成“戰忽局”以後，不變的地方是：“仍將請局座與大家進行交流互動”；變的地方是：微信公眾號更名後業務方向將逐漸有所調整和改變。
 
-2、美國凍結或沒收一部分中共國持有的龐大美國債券。
+為什麼要把公眾號名字從“局座召忠”改成很有諷刺意義的“戰忽局”？
 
-A. 中國人民銀行原貨幣委員會成員的余永定近日表示，“一場廣泛的金融戰爭已經開始…最致命的戰術尚未被使用。”
+據[局座召忠](http://web.anyv.net/index.php/viewnews-55270)：
 
-B. 中國證券監督管理委員會副主席方星海表示，中國很容易受到美國可能施加的製裁，應該“及早地”預防，做好“真正的”應對準備。 “這樣的事情已經發生在俄羅斯的很多企業和金融機構的身上。
+【[局座召忠微信](http://web.anyv.net/index.php/viewnews-55270)介紹：著名軍事專家張召忠在公眾平臺上進行內容發佈的自媒體，包含視頻、專欄和新節目的預告等。】
 
-C. 原中國國家外匯管理局國際收支司司長、現任中銀證券全球首席經濟學家的管濤也表示，北京應該為脫鉤做好準備。他表示：“我們必須做好心理準備，美國可能會將中國逐出美元結算體系。”
+另據[局座召忠微信文章](http://web.anyv.net/index.php/account-55270)（一共156頁，以下為第1頁發佈文章清單）：
 
-**評論：余永定是原人民銀行貨幣政策委員會委員。餘是金融專家，一般說話比較慎重，連他都擔心中美金融脫鉤，說明這個時刻非常臨近了。**
+【[音訊大禮包](http://web.anyv.net/index.php/article-3159334)[今天與您分享的音訊內容分別為：n中美貿易休戰期限已到，後續是言和還是分手？n特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？n美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋n請您按照順序收聽！](http://web.anyv.net/index.php/article-3159334)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14125512/yuyongding.jpeg) source:www.sohu.com
+[法國國防部：“局勢太緊張”，我家的航母不去南海了](http://web.anyv.net/index.php/article-3159333)[SFA新聞快遞](http://web.anyv.net/index.php/article-3159333)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-### 人民銀行加速試點發行虛擬貨幣DC／EP 
+[美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋](http://web.anyv.net/index.php/article-3159332)[戰列艦主宰海戰場](http://web.anyv.net/index.php/article-3159332)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-中共國為避免被踢出美元交易系統後自尋生路，DC／EP的加速推進是重要的一環。
+[特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？](http://web.anyv.net/index.php/article-3159331)[美國的第一條高鐵還任重道遠啊](http://web.anyv.net/index.php/article-3159331)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-今年4月14日，有消息源傳出“中國人民銀行主導開發的數字貨幣DC/EP已在中國農業銀行開始內部測試”。 DC/EP錢包支持數字資產兌換、數字錢包管理、數字貨幣交易記錄查詢、錢包挂靠等功能，同時也支持掃碼支付、匯款收付款、手機芯片等基本功能。
+[音訊大禮包](http://web.anyv.net/index.php/article-3155067)[今天與您分享的音訊內容分別為：n太剛了！美國海軍上將拿軍艦戰颱風，誰輸誰贏？nExcuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰n美國債臺高築，為還債要賣掉美國一個州？n請您按照順序收聽！](http://web.anyv.net/index.php/article-3155067)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-8月3日央行召開的2020年下半年工作電視會議指出，2020年下半年，法定數字貨幣封閉試點已經順利啟動，將積極穩妥推進法定數字貨幣研發，並加快建立覆蓋全市場的交易報告製度和總交易報告庫。
+[這是想幹什麼？！法國戴高樂號航母也要來印太了](http://web.anyv.net/index.php/article-3155066)[SFA新聞快遞](http://web.anyv.net/index.php/article-3155066)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-8月14日中共商務部印發《全面深化服務貿易創新發展試點總體方案》。在全面探索創新發展模式方面，《方案》提出，在京津冀、長三角、粵港澳大灣區及中西部具備條件的試點地區開展數字人民幣（DC／EP)試點。
+[美國債臺高築，為還債要賣掉美國一個州？](http://web.anyv.net/index.php/article-3155065)[美國國債達史上最高](http://web.anyv.net/index.php/article-3155065)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-**評論：DC／EP實行的主要目的就是達到經濟“內循環”和對牆內14億老百姓的終極金融管控，以及脫離國際世界監管，以達到和邪惡政權國家的隱秘交易。**
+[Excuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰](http://web.anyv.net/index.php/article-3155064)[五眼聯盟剛“解散”，特朗普就宣佈5G要正面剛](http://web.anyv.net/index.php/article-3155064)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-（文章內容僅代表作者觀點）
+[音訊大禮包](http://web.anyv.net/index.php/article-3149055)[今天與您分享的音訊內容分別為：n“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作n烏克蘭將加入北約寫入憲法，北約：來了，老弟！n繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！n請您按照順序收聽！](http://web.anyv.net/index.php/article-3149055)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14125655/0.jpeg)
+[印度與巴基斯坦關係緊張，第3次喀什米爾戰爭?](http://web.anyv.net/index.php/article-3149054)[SFA新聞快遞](http://web.anyv.net/index.php/article-3149054)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-Source： [https://](https://cn.reuters.com/article/china-us-tension-financial-iron-curtain-idCNKCS2591AZ) [cn.reuters.com/article/china-us-tension-financial-iron-curtain-idCNKCS2591AZ](https://cn.reuters.com/article/china-us-tension-financial-iron-curtain-idCNKCS2591AZ)
+[繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！](http://web.anyv.net/index.php/article-3149053)[盧宇光為你講述遍地屍骸有溫情的戰場](http://web.anyv.net/index.php/article-3149053)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-[https://finance.sina.com.cn/blockchain/roll/2020-08-13/doc-iivhvpwy0766178.shtml](https://finance.sina.com.cn/blockchain/roll/2020-08-13/doc-iivhvpwy0766178.shtml)
+[烏克蘭竟將加入北約寫入憲法，北約：來了，老弟！](http://web.anyv.net/index.php/article-3149052)[烏克蘭和俄羅斯](http://web.anyv.net/index.php/article-3149052)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+[“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作](http://web.anyv.net/index.php/article-3149051)[世界首個5G火車站在上海成立，美國看在眼裡急在心裡](http://web.anyv.net/index.php/article-3149051)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+**1,**[2](http://web.anyv.net/index.php/account-55270-page-2),[3](http://web.anyv.net/index.php/account-55270-page-3),[4](http://web.anyv.net/index.php/account-55270-page-4),[5](http://web.anyv.net/index.php/account-55270-page-5),[156](http://web.anyv.net/index.php/account-55270-page-156)[下頁](http://web.anyv.net/index.php/account-55270-page-2)
+
+這些文章從題目上看與局座召忠的那些神奇觀點“海帶纏潛艇”、“霧霾防鐳射武器”如出一轍，不管用“局座召忠”還是“戰忽局”都是打雞血和忽悠。
+
+另外剛剛又查看了[張召忠(中國軍事理論家、軍事評論家)\_百度百科](https://www.baidu.com/link?url=RKRW3JfraHAARe-RX9pNfHk7RxQPSbChrRrCBa3rhFar28vTwQABiwl9LO0JFUAEcgecNaEK76mpND1ZomHb1T84txMMc2wD69nlL6lDQfx1sr0OvRrbHjfuCRIX7Wmx&amp;wd=&amp;eqid=ace31abd000b63c5000000065f3718b9)，發現原來“局座”就是張召忠的別名，不是實實在在的党衛軍的某個局，原來人家從來就沒當過真，只是在畫皮包裝之下，看客們把忽悠當真了，如果一直這樣歲月靜好倒也罷了，可是當針尖對上麥芒的時候，你會發現120年前的義和團一直沒有退場，只不過它現在穿的是“局座召忠”的外衣，滿朝文武依然還在，只不過它們現在穿上了“馬列主義”的外衣。
+
+（文章內容僅代表作者個人觀點）
 
 0

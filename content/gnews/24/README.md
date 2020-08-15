@@ -1,15 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士接受Newsmax電視台採訪時稱: &#8221; 病毒源自中共實驗室! &#8220;（英語English+中文Chinese+意大利文Italian）
-`2020-08-14 06:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/296611/)
+## 人民幣即將崩盤 銀行面臨倒閉 中共強推DCEP 肆虐掠奪民財
+`2020-08-14 06:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/296641/)
 
-意大利語標題 La virologa informatrice cinese: questo è un virus modificato basato sull’Istituto Militare Cinese
+**作者：小妍說**
 
-翻譯：明天的彩虹 校對： Carota Einstein 視頻：小羽
+8月14日中共商務部印發《全面深化服務貿易創新發展試點總體方案》。在全面探索創新發展模式方面，《方案》提出，在京津冀、長三角、粵港澳大灣區及中西部具備條件的試點地區開展數字人民幣（DCEP)試點。《方案》明確了五項基本原則，包括堅持全面深化，拓展提升；堅持深化改革，擴大開放；堅持創新驅動，加快轉型；堅持錯位探索，整體協同；堅持守住底線，防控風險。全面深化試點地區爲北京、天津、上海、重慶(涪陵區等21個市轄區)、海南、大連、廈門、青島、深圳、石家莊、長春、哈爾濱、南京、杭州、合肥、濟南、武漢、廣州、成都、貴陽、昆明、西安、烏魯木齊、蘇州、威海和河北雄安新區、貴州貴安新區、陝西西鹹新區等28個省市(區域)。試點期限爲3年，自方案批複之日起算。
 
-這是中國軍事學院的基於一種名為4ZC45和ZXC21的蝙蝠冠狀病毒的基礎上的改良病毒,該序列在2017年至2018年間公開。 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14064801/%E5%9B%BE%E7%89%871-10.png)
 
-questo è un virus modificato basato sull’Istituto Militare Cinese che ha scoperto un coronavirus di pipistrello chiamato 4ZC45 e ZXC21, questa sequenza è stata esposta dal 2017 al 2018. È possibile controllare la sequenza dal database GenBank di NIH(National Institutes of Health).
+關注DCEP的應該都了解，2019年10月中共領導公開表示：將區塊鏈作爲核心技術自主創新重要的突破口，視爲未來國家發展方向的重要核心之一。隨後國內各大網站論壇隨即發帖跟風，全部都在大力吹捧中共國所謂的數字貨幣DCEP上。當時還有很多異想天開的言論，說中共國將會用DCEP擊垮美元體系扭轉貿易戰，好多國內小粉紅由于長期洗腦，在什麽都不懂的情況下就立刻跟著中共高潮了一波，完全不知道DCEP不僅不可能撼動一絲美元體系，甚至將成爲中共國老百姓脖子上的一道枷鎖。DCEP就是中共掠奪老百姓手中的財富並將在未來成爲控制老百姓行爲以及思想的一種手段。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14064825/%E5%9B%BE%E7%89%872-8.png)
+
+而今天中共終于迫不及待的要全面推廣DCEP了，其背後的原因無非就是當前中共國的經濟正處蕭條，國內不少銀行從2019年起就因爲大量壞賬而面臨倒閉的風險，如果繼續這樣下去，未來的局面就是會引起全國性的恐慌擠兌，而中共國多年來巨量發行的貨幣， 也遲早會因爲樓市的崩塌而流入市場造成惡性通貨膨脹，即便在中共官方的限制下，資金還是不斷的外逃，而這個時候推廣DCEP，這也許是打算用技術手段解決經濟問題，並盡快實施計劃經濟與社會控制。由于DCEP的電子錢包需要綁定身份，並由中共央行進行記賬，這也可以讓央行直接取代商業銀行的存款業務，加之貨幣的電子化，可直接避免未來商業銀行倒閉可能出現的擠兌現象。DCEP實行的主要目的就是以配合閉關鎖國和計劃經濟爲主的，並力求使未來中共國的經濟潰而不崩，以維持民生經濟基本的運作，並要在閉關鎖國後以此對老百姓實行經濟監控與制裁的手段，中共這就是以貨幣的改制來肆虐掠奪民財，讓政權可以苟延殘喘。所以說，如果我們到現在還不知反抗，那麽到那時很有可能在吃草的時候，還要感激涕零地喊聲真香， 才能換取苟活的資格了。
+
+GNEWS之前文章：
+官逼民反 民不得不反！[https://gnews.org/zh-hans/296428/](https://gnews.org/zh-hans/296428/)
+中共回收的菜品烤肉你敢吃嗎？[https://gnews.org/zh-hans/296011/](https://gnews.org/zh-hans/296011/)
+中共這場5G騙局該如何收場呢？[https://gnews.org/zh-hans/295985/](https://gnews.org/zh-hans/295985/)
+
+（文章內容僅代表作者觀點）
 
 0

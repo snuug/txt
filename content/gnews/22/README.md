@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士接受Newsmax電視台採訪時稱: &#8221; 病毒源自中共實驗室! &#8220;（英語English+日文Japanese）
-`2020-08-14 07:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/296644/)
+## 川普:我們對中共國的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大（英文English+法文French）
+`2020-08-14 07:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/296661/)
 
-日文標題 「コロナは中共解放軍実験室で改造されたもの」閆博士Newsmaxのインタビューで爆弾発言
+法文標題 Trump : Notre vue du PCC est complètement différente qu’auparavant ! Il ne sert à rien de parler de la première phase des accords commerciaux
 
-翻譯：renn🇯🇵(文卷儿） 校對：风花雪月 視頻：yuyu（文悠）
+翻譯： cnquldebut 校對：德妹 視頻製作：文靓
 
-在接受Newsmax TV主持人Spicer採訪時,閆博士確信這是經過實驗室改造的病毒,是基於中國軍方實驗室的舟山蝙蝠病毒,他們將其命名為ZC45和ZXC21,其基因序列在2017至2018年公佈,可以從NIH Genbank Database(美國國立衛生研究所遺傳序列資料庫)中找到。 到達美國后,FBI多次為閆博士作證 ,只有頂級科學家才能參與這個事件,還有多位目前不便公開的政府人員與閆博士取得過聯絡。
+中共釋放病毒到美國,到全世界,無論怎樣的制裁都不能挽回那些死去的生命,美國對中共的認識與八個月以前已完全不同!
 
-閆麗夢博士はNewsmax TVチャンネルのスパイサー氏によるインタビューで暴く：これは中共解放軍研究所が所有するコウモリコロナウイルスをもとにして改造したウイルスです。彼らはこのウイルスをZC45、ZXC21と呼びます。その遺伝子配列が2017年から2018年までの間に公開されて、NIH Genbank Database（アメリカ国立衛生研究所の遺伝子データベース）から入手できるものです。 また、閆麗夢博士はアメリカに着いて以来、数回程FBIに証明されましたが、このプロジェクトに参加するには、トップの科学者でないと入れません。その他公開できない政府関係者らも私と連絡取れました。
+Le PCC a libéré un virus aux États-Unis, au monde entier, et non-importe quelles sanctions imposées au PCC, elles ne peuvent pas sauver les vies qui sont mortes. La perception du PCC aux États-Unis est complètement différente de ce qu’elle était il y a huit mois !
 
 0

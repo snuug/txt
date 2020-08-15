@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普:我們對中共國的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大（英文English+意大利文Italian）
-`2020-08-14 06:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/295176/)
+## 閆博士接受Newsmax電視台採訪時稱: &#8221; 病毒源自中共實驗室! &#8220;（英語English+中文Chinese+意大利文Italian）
+`2020-08-14 06:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/296611/)
 
-意文標題 Trump: Vediamo la Cina in modo diverso rispetto a otto mesi fa, in modo molto diverso
+意大利語標題 La virologa informatrice cinese: questo è un virus modificato basato sull’Istituto Militare Cinese
 
-翻譯：明天的彩虹 校對： Carota Einstein 視頻校對：明天的彩虹 視頻製作： AVA 文嶢
+翻譯：明天的彩虹 校對： Carota Einstein 視頻：小羽
 
-川普:我們對中共的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大。 我們獲得了第一階段的交易,這是一個了不起的交易,但是現在已經意義不大了,我們對中共的看法與八個月前截然不同。
+這是中國軍事學院的基於一種名為4ZC45和ZXC21的蝙蝠冠狀病毒的基礎上的改良病毒,該序列在2017年至2018年間公開。 
 
-Stiamo parlando molto del PCCP(Partito Comunista Cinese). Non avremmo dovuto parlare del PCC. Abbiamo concluso un accordo di fase uno ed è stato un affare meraviglioso. Vediamo la Cina in modo diverso rispetto a otto mesi fa, in modo molto diverso.
+questo è un virus modificato basato sull’Istituto Militare Cinese che ha scoperto un coronavirus di pipistrello chiamato 4ZC45 e ZXC21, questa sequenza è stata esposta dal 2017 al 2018. È possibile controllare la sequenza dal database GenBank di NIH(National Institutes of Health).
 
 0
