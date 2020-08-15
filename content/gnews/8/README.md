@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大金融滅共行動組：中共如何掏空你的錢袋子&#8211;房地產篇
-`2020-08-14 11:31 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/297002/)
+## 《滅共倒計時》第二集: Virus 病毒
+`2020-08-14 22:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/297364/)
 
-喜馬拉雅聯盟加拿大農場金融滅共行動組製作
+製作：【秘密翻譯組G-Translators】
 
 0

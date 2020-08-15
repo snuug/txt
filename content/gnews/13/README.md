@@ -1,72 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微信公眾號&#8221;局座召忠&#8221;8月14日變更為&#8221;戰忽局&#8221;意味著什麼
-`2020-08-14 19:36 Diago` [轉載自GNews](https://gnews.org/zh-hant/297137/)
+## 欠債還錢! 美要求中共償還1.6萬億美元民國債券
+`2020-08-14 21:45 GM77` [轉載自GNews](https://gnews.org/zh-hant/297290/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193137/%E5%B0%81%E9%9D%A2-50.jpg)
-作者：Diago
+編撰:文錦、文非、Lori文噠
 
-據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [08月14日 18:08](https://weibo.com/1887344341/JfTA3yYvw?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
+美國參議院 –參議員瑪莎·麥克薩利(R-AZ)和瑪莎·布萊克本(R-TN)今天提出了一項決議,呼籲中華人民共和國(PRC)償還欠20,000個美國家庭的1.6萬億美元主權債務。
 
-微信公眾號“局座召忠”更名為“戰忽局”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193257/707e96d5gy1ghqi3baup7j20u0172q5y.jpg)
-同時中共控制的互聯網媒體也基本在2020年8月14日下午18:00之後發佈了同樣內容的消息：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14214017/%E6%97%A0%E6%A0%87%E9%A2%983-1.jpg)
 
-[“局座召忠”正式更名為”戰忽局”\_媒體\_澎湃新聞-The Paper](https://www.baidu.com/link?url=NY9NCUb1mRdlvpG7JEAXQpxviYxDobBPNz8FIA7obO32d_C40MgLNUtXKOEVNJo1v_6E4Aas5jHAlMx4I64KUK)
+1900年至1940年間,中華民國在世界各地(包括美國)發行了數百萬美元的主權債務。 他們於1938年拖欠了這筆債務,1949年,在毛澤東領導下的共產黨接管了中國,成立了中國。 根據國際法,中華人民共和國作為中華民國的繼任政府負責償還其債務。
 
-**[戰忽局真的來了(更局座名場面)](https://www.baidu.com/link?url=PehmF2qfuGpQPM96_jcBqu3hl1C9Ka9Pz7ANqVYzxR8CWKQ8wpqC-jVaT7X5i9b_lHpB36RozjXgRr1HF6EzDa)**
+但是,中共國沒有履行其財政義務,因此,在46個州中的20,000個家庭從未得到償還。 1987年,英國首相撒切爾夫人成功要求中共國償還債券。 該決議呼籲川普總統竭盡全力解決和償還違約主權債務,據美國美國債券持有人基金會稱,該債務目前價值 1.6 兆美元,涉及美國 2 萬個家庭。
 
-**[“局座召忠”改名,“戰忽局”掛牌\_手機網易網](https://www.baidu.com/link?url=57aywD0Q6WTnl7XKbIHuEqlXJykLjGsVWmNML1kWY4afUX3y1j8fxf_jMErVKpDCu-3JfxIXBj9uEYeZ1HKF890viR1SvYkdZQ9YZcwfany)**
+麥克薩里說: “中國一再未能履行其對美國的義務,奪走了美國家庭的金錢和工作。” “好吧,虐待到此為止。 我們要求中國對他們的債務和在世界上釋放冠狀病毒負責。 我們要求中國償還欠美國家庭的1.6萬億美元。 “
 
-對於這則突如其來的發佈潮，有以下幾個看點：
+布萊克本說: “參議員麥克薩利和我介紹了《 COVID受害者民事訴訟法》,為美國人提起訴訟,起訴中國政府在冠狀病毒傳播中的作用。” “但是,這並不是中共第一次對美國人民產生巨大影響。 20世紀初中國拖欠的債務仍為2萬個美國家庭總計欠債1.6萬億美元。 2020年明確表明,就我們與中國的關係而言,現狀不起作用。 “
 
-1、2015年12月31日創辦的“局座召忠”微信公眾號通過審核之前，肯定要遞交相關資料，既然當初通過審核，說明遞交材料符合當時的規定，也就是說只要張召忠不提出異議，只要不存在侮辱党和國家領導人嫌疑，那麼“局座召忠”也好“局座戴旭”也好都不存在什麼問題；
+**編者觀點。**
 
-2、2020年8月14日前“局座召忠”的微信公眾號運營與張召忠的關係：這份公告裡說明的2020年8月14日“局座召忠”微信公眾號與局座張召忠的合作條件——用局座張召忠的名義運營，張召忠不參與微信公眾號“局座召忠”運營公司的運作與管理，也不在公司中擔任職務，僅作為公司的專家與顧問，對公眾號選題和內容進行審查把關。
+1.為何中共需要繼承民國債券?
 
-3、微信公眾號從“局座召忠”變成“戰忽局”以後，不變的地方是：“仍將請局座與大家進行交流互動”；變的地方是：微信公眾號更名後業務方向將逐漸有所調整和改變。
+國家政權的更迭有延續性,當中共頂替中華民國政府時,按照《國際法》”繼承國取締被繼承國時,被繼承國的債務也會自動轉往繼承國,成為繼承國的債務「這一條例,應該繼承中華民國的債券。 據路德社分析,當初1972年中美關係正常化時,就是因為中共承認了這筆債券。
 
-為什麼要把公眾號名字從“局座召忠”改成很有諷刺意義的“戰忽局”？
+中共製造的病毒,至今已經造成了美國感染人數達到了541萬,死亡人數達到了17萬。 美國經濟第二季度下滑了32.9%,是過去兩個世紀以來美國所遭遇的最嚴重的經濟衰退。 美國要求調查真相和賠償,是合理合法的行為。
 
-據[局座召忠](http://web.anyv.net/index.php/viewnews-55270)：
+2.債券為何從數百萬美元變成了1.6萬億美元?
 
-【[局座召忠微信](http://web.anyv.net/index.php/viewnews-55270)介紹：著名軍事專家張召忠在公眾平臺上進行內容發佈的自媒體，包含視頻、專欄和新節目的預告等。】
+債券至今已經過去了100年,隨著利率的增加和時間的累積,貨幣價值的變化,債券經過評估后變為1.6萬億美元也是正常的。
 
-另據[局座召忠微信文章](http://web.anyv.net/index.php/account-55270)（一共156頁，以下為第1頁發佈文章清單）：
+3.爆料革命的力量。
 
-【[音訊大禮包](http://web.anyv.net/index.php/article-3159334)[今天與您分享的音訊內容分別為：n中美貿易休戰期限已到，後續是言和還是分手？n特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？n美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋n請您按照順序收聽！](http://web.anyv.net/index.php/article-3159334)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
+郭文貴先生曾在多次直播中談及民國債券讓中共償還。 詳情見連結: https://gnews.org/zh-hans/281762/ 。
 
-[法國國防部：“局勢太緊張”，我家的航母不去南海了](http://web.anyv.net/index.php/article-3159333)[SFA新聞快遞](http://web.anyv.net/index.php/article-3159333)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
+War room是爆料革命重要的組成部分。 在7月20日的戰鬥室節目中,班農先生採訪了債券索賠委員會主席,目前已經有議員開始全面推動決議。
 
-[美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋](http://web.anyv.net/index.php/article-3159332)[戰列艦主宰海戰場](http://web.anyv.net/index.php/article-3159332)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
+新聞連結:
 
-[特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？](http://web.anyv.net/index.php/article-3159331)[美國的第一條高鐵還任重道遠啊](http://web.anyv.net/index.php/article-3159331)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[音訊大禮包](http://web.anyv.net/index.php/article-3155067)[今天與您分享的音訊內容分別為：n太剛了！美國海軍上將拿軍艦戰颱風，誰輸誰贏？nExcuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰n美國債臺高築，為還債要賣掉美國一個州？n請您按照順序收聽！](http://web.anyv.net/index.php/article-3155067)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[這是想幹什麼？！法國戴高樂號航母也要來印太了](http://web.anyv.net/index.php/article-3155066)[SFA新聞快遞](http://web.anyv.net/index.php/article-3155066)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[美國債臺高築，為還債要賣掉美國一個州？](http://web.anyv.net/index.php/article-3155065)[美國國債達史上最高](http://web.anyv.net/index.php/article-3155065)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[Excuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰](http://web.anyv.net/index.php/article-3155064)[五眼聯盟剛“解散”，特朗普就宣佈5G要正面剛](http://web.anyv.net/index.php/article-3155064)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[音訊大禮包](http://web.anyv.net/index.php/article-3149055)[今天與您分享的音訊內容分別為：n“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作n烏克蘭將加入北約寫入憲法，北約：來了，老弟！n繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！n請您按照順序收聽！](http://web.anyv.net/index.php/article-3149055)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[印度與巴基斯坦關係緊張，第3次喀什米爾戰爭?](http://web.anyv.net/index.php/article-3149054)[SFA新聞快遞](http://web.anyv.net/index.php/article-3149054)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！](http://web.anyv.net/index.php/article-3149053)[盧宇光為你講述遍地屍骸有溫情的戰場](http://web.anyv.net/index.php/article-3149053)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[烏克蘭竟將加入北約寫入憲法，北約：來了，老弟！](http://web.anyv.net/index.php/article-3149052)[烏克蘭和俄羅斯](http://web.anyv.net/index.php/article-3149052)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-[“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作](http://web.anyv.net/index.php/article-3149051)[世界首個5G火車站在上海成立，美國看在眼裡急在心裡](http://web.anyv.net/index.php/article-3149051)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
-
-**1,**[2](http://web.anyv.net/index.php/account-55270-page-2),[3](http://web.anyv.net/index.php/account-55270-page-3),[4](http://web.anyv.net/index.php/account-55270-page-4),[5](http://web.anyv.net/index.php/account-55270-page-5),[156](http://web.anyv.net/index.php/account-55270-page-156)[下頁](http://web.anyv.net/index.php/account-55270-page-2)
-
-這些文章從題目上看與局座召忠的那些神奇觀點“海帶纏潛艇”、“霧霾防鐳射武器”如出一轍，不管用“局座召忠”還是“戰忽局”都是打雞血和忽悠。
-
-另外剛剛又查看了[張召忠(中國軍事理論家、軍事評論家)\_百度百科](https://www.baidu.com/link?url=RKRW3JfraHAARe-RX9pNfHk7RxQPSbChrRrCBa3rhFar28vTwQABiwl9LO0JFUAEcgecNaEK76mpND1ZomHb1T84txMMc2wD69nlL6lDQfx1sr0OvRrbHjfuCRIX7Wmx&amp;wd=&amp;eqid=ace31abd000b63c5000000065f3718b9)，發現原來“局座”就是張召忠的別名，不是實實在在的党衛軍的某個局，原來人家從來就沒當過真，只是在畫皮包裝之下，看客們把忽悠當真了，如果一直這樣歲月靜好倒也罷了，可是當針尖對上麥芒的時候，你會發現120年前的義和團一直沒有退場，只不過它現在穿的是“局座召忠”的外衣，滿朝文武依然還在，只不過它們現在穿上了“馬列主義”的外衣。
-
-（文章內容僅代表作者個人觀點）
+[https://www.mcsally.senate.gov/news/press-releases/mcsally-blackburn-demand-china-repay-its-16-trillion-defaulted-debt](https://www.mcsally.senate.gov/news/press-releases/mcsally-blackburn-demand-china-repay-its-16-trillion-defaulted-debt)
 
 0
