@@ -1,89 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 下一個目標：阿裡巴巴
-`2020-08-15 06:12 立武` [轉載自GNews](https://gnews.org/zh-hant/297764/)
+## 【世界多語言圖文】2020/08/07 CCP病毒每日疫情直播簡報
+`2020-08-15 10:15 GM62` [轉載自GNews](https://gnews.org/zh-hant/297558/)
 
-8月5日，美國國務卿蓬佩奧在國務院新聞發佈會上明確表示**阿裡巴巴等中共企業正在威脅美國的資訊安全**，特別是在提到**“淨化雲存儲”**時，蓬佩奧點名了**阿裡巴巴通過雲存儲獲得美國公民資訊**、美國的智慧財產權和中共病毒的疫苗研究。
+戰友之家圖文摘要及小語種組
 
-在美國針對微信、TIKTOK採取果斷的行動後，**[阿裡巴巴很可能成為下一個制裁目標](https://edition.cnn.com/2020/08/13/tech/us-retaliation-china-tech-hnk-intl/index.html)。**
+[English\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060944/%E6%89%B9%E6%B3%A8-2020-08-15-1715233-3.png)
+[French196\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)
 
-早在4月16日，《華爾街日報》就報導稱，美國貿易代表辦公室很可能**在****1974****年貿易法第****301****條款的框架**下，就北京不公平地限制美國在**雲計算和其他高科技服務領域**的貿易行為展開新的貿易申訴。
+[German\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)
 
-至於具體措施，文中提到，**美國可能會限制阿裡巴巴在美國提供雲計算服務，**或阻止阿裡巴巴在美國進一步擴張。
+[Japanese\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)
 
-**華爾街與川普的角力**
+[Korean\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)
 
-就在美國即將針對阿裡巴巴採取制裁行動之際，**[橋水、高盛和JP摩根等與中共深度勾兌的基金公司大肆加倉了阿裡巴巴的股票](https://baijiahao.baidu.com/s?id=1675000354777287814&amp;wfr=spider&amp;for=pc)**，橋水基金加倉阿裡巴巴的幅度甚至高達244%。
+[Spanish\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060930/%E6%89%B9%E6%B3%A8-2020-08-15-17152233-4.png)
 
-通過捆綁中概股企業，**華爾街的出擊掣肘了川普政府的制裁行動。**
 
-這不是華爾街與川普政府的第一次角力。
-
-在川普**即將簽署香港自治法案**之前，**來自華爾街的****1200****億美元突然流入中共國以延緩川普政府的行動**，隨後川普總統通過國家安全顧問**發函要求**必須他們15號之前撤回這筆投資。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060915/%E6%89%B9%E6%B3%A8-2020-08-15-142758-3.png)
-
-據《華爾街日報》報導，當地時間週二，**包括蘋果、福特、沃爾瑪、迪士尼等在內的十多家華爾街公司**參加了與白宮官員的電話會議，**詳細說明了針對微信的禁令可能給這些公司的業務造成的不利後果，並希望行政命令的範圍能夠在未來幾周內縮小。**
-
-8月8日，文貴先生在連線直播中透露，川普政府出臺的行政命令本來除了抖音、微信之外**還包括阿裡巴巴、百度等****6****家中共企業，後來中共做的工作把這幾家拿掉了**。
-
-一方面，可以看出**中共在美國深度的藍金黃**，另一方面，反映出了**中共的恐懼**。
-
-**阿裡巴巴：財富、資料與情報**
-
-中共一直吹噓阿裡巴巴在美國的利益很小，**意在說明阿裡巴巴不會威脅到美國的國家安全。**
-
-事實是，阿裡巴巴不僅是**中共盜國賊的家族儲錢罐**，蠶食美國百姓的財富，同時也是**中共“以商養情、以商統西、以商掩蓋情報系統”的情報中心、間諜中心、駭客中心**。
-
-文貴先生在去年九月就透露，**全世界最大的資料中心就在阿裡巴巴，全世界最大的駭客就在阿裡巴巴，全世界最大的軟體敏感搜索都是阿裡巴巴的。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060538/Dvc0mdWW0AAsPSK-5.jpg)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060552/DvdDKRnXQAASux9-3.jpg)
-
-阿裡巴巴最重要的就是資料。
-
-2015年，**[阿裡雲在矽谷設立了第一座資料中心](https://www.qdaily.com/articles/56019.html)，**聯繫到中共在矽谷嚴重的滲透和包括張首晟在內的科學家被自殺，可以認為，**中共在矽谷的勢力是幫助阿裡雲拿下資料中心的關鍵因素，而阿裡雲在矽谷的資料中心又是幫助中共進一步滲透美國的核心橋頭堡。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060315/%E6%89%B9%E6%B3%A8-2020-08-15-1274457-2.png)
-
-當時阿裡雲的海外業務負責人喻思成說到；“**我們只需要以較小心得方式增長**”，這顯示出了**中共不想阿裡雲的滲透驚動美國政府**的畏罪心理。
-
-阿裡雲能夠在美國擴張，**一方面是依靠巨額的補貼**，在2015年當年**阿裡巴巴就向阿裡雲投資了****10****億美元**以幫助後者在海外市場進行擴張，這筆費用很大程度上**用於公關或者藍金黃**。
-
-同時，阿裡雲還為客戶開出了**最高減少****30%****的價格**，**通過價格戰的方式跑馬圈地。**
-
-另一方面，**阿裡雲依靠阿裡巴巴巨大的流量資源幫助美國公司進入中國市場，**這對於華爾街來說，是一個**“不能拒絕的交易”**，同時阿裡雲順理成章**成為了這些公司的標準配置**。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060303/f290e68d223d00d-3.jpg)
-
-不僅在美國，阿裡雲同時還在東南亞、歐洲市場上**與當地大型的電信公司組建合資公司**，包括**日本的軟銀和歐洲的沃達豐**。
-
-目前，阿裡雲已經在全球21個地區建設了63個可用區，**[成為亞洲最大的雲計算平臺](http://www.cankaoxiaoxi.com/finance/20180419/2262225_3.shtml)**。根據IDC的資料，**阿裡雲市場佔有率達到47.6%**。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060246/EfNxQPmWAAAKvSL-3.jpg)
-
-文貴先生在2018年12月提到，**阿裡巴巴的大資料在中東説明很多的國家的油提高生產了****20%****。**
-
-**阿裡巴巴，你完了**
-
-同時，文貴先生還提到，**馬雲的大資料全是來自美國的核心技術，全是百人計畫、千人計畫偷取的技術。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060235/DbVLBEwW4AA3FXy-5.jpg)
-
-解鈴還須系鈴人，如果美國**像中止微信交易那樣**制裁阿裡巴巴，對於阿裡巴巴來說將是一個致命的打擊，**不僅僅呈現在股市上，**最重要的是，**中共在全世界的大資料生態圈將會遭受重創。**
-
-**阿裡巴巴可能嗅到了不詳的資訊**，最近新註冊了一家簡稱“京西”的公司，該公司的主營業務主要圍繞**電腦硬軟體的開發與製造**，似乎預示著**阿裡巴巴公司即將面臨著與華為同樣的命運。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060220/d1a20cf431adcbefb6701201958e0fdaa3cc9f1d-3.jpeg)
-
-8月14日，**阿裡巴巴被納入恒指**，似乎也預示著**阿裡巴巴在美股面臨退市的命運。**
-
-**阿裡巴巴，你完了！**
-
-1
+0
