@@ -1,55 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本粉絲追捧香港&#8221;民主女神&#8221;周庭
-`2020-08-14 10:09 GM77` [轉載自GNews](https://gnews.org/zh-hant/296919/)
+## 微信公眾號&#8221;局座召忠&#8221;8月14日變更為&#8221;戰忽局&#8221;意味著什麼
+`2020-08-14 19:36 Diago` [轉載自GNews](https://gnews.org/zh-hant/297137/)
 
-編撰:天使、文佑(荊棘不鳥)、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193137/%E5%B0%81%E9%9D%A2-50.jpg)
+作者：Diago
 
-東京(法新社)-她被稱為”民主女神”,並在政客和演員中擁有了粉絲。 毫無疑問,香港活動家周庭在日本很重要。
+據[觀察者網](https://weibo.com/1887344341?refer_flag=1001030103_) [08月14日 18:08](https://weibo.com/1887344341/JfTA3yYvw?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14100256/%E5%91%A8%E5%A9%B7-1.png)
+微信公眾號“局座召忠”更名為“戰忽局”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/14193257/707e96d5gy1ghqi3baup7j20u0172q5y.jpg)
+同時中共控制的互聯網媒體也基本在2020年8月14日下午18:00之後發佈了同樣內容的消息：
 
-這位23歲的女孩本周被捕是頭條新聞,點燃了日本的社交媒體,遠遠超過了中共憑藉港版國安法拘留其他高調人物的事件。
+[“局座召忠”正式更名為”戰忽局”\_媒體\_澎湃新聞-The Paper](https://www.baidu.com/link?url=NY9NCUb1mRdlvpG7JEAXQpxviYxDobBPNz8FIA7obO32d_C40MgLNUtXKOEVNJo1v_6E4Aas5jHAlMx4I64KUK)
 
-熟悉媒體、富有傳奇色彩,還能說一口流利的日語,周庭成功地打破了日本人對外交事務相對冷漠的態度,為北京對其家鄉的打壓贏得了前所未有的關注。
+**[戰忽局真的來了(更局座名場面)](https://www.baidu.com/link?url=PehmF2qfuGpQPM96_jcBqu3hl1C9Ka9Pz7ANqVYzxR8CWKQ8wpqC-jVaT7X5i9b_lHpB36RozjXgRr1HF6EzDa)**
 
-在她本周被捕后,日本的”#釋放周庭”和”#我抗議逮捕周庭”的標籤迅速走紅,日本各政治派別的公眾人物以及作家和演員都在推特上表示支援。
+**[“局座召忠”改名,“戰忽局”掛牌\_手機網易網](https://www.baidu.com/link?url=57aywD0Q6WTnl7XKbIHuEqlXJykLjGsVWmNML1kWY4afUX3y1j8fxf_jMErVKpDCu-3JfxIXBj9uEYeZ1HKF890viR1SvYkdZQ9YZcwfany)**
 
-資深執政黨立法會議員長島昭久就被捕事件發佈了一連串推特,稱周庭”為香港的自由和民主付出了全部青春”。
+對於這則突如其來的發佈潮，有以下幾個看點：
 
-反對黨立法會議員蓮舫、演員秋元才加,和體育作家乙武洋匡等人都對這位活動人士表示歡迎,並譴責中共對她的被捕行徑。
+1、2015年12月31日創辦的“局座召忠”微信公眾號通過審核之前，肯定要遞交相關資料，既然當初通過審核，說明遞交材料符合當時的規定，也就是說只要張召忠不提出異議，只要不存在侮辱党和國家領導人嫌疑，那麼“局座召忠”也好“局座戴旭”也好都不存在什麼問題；
 
-一位推特使用者寫道:「她很年輕,但她很勇敢。  “許多人稱讚周庭的日語能力。
+2、2020年8月14日前“局座召忠”的微信公眾號運營與張召忠的關係：這份公告裡說明的2020年8月14日“局座召忠”微信公眾號與局座張召忠的合作條件——用局座張召忠的名義運營，張召忠不參與微信公眾號“局座召忠”運營公司的運作與管理，也不在公司中擔任職務，僅作為公司的專家與顧問，對公眾號選題和內容進行審查把關。
 
-**推特、曲子和章魚丸子**。
+3、微信公眾號從“局座召忠”變成“戰忽局”以後，不變的地方是：“仍將請局座與大家進行交流互動”；變的地方是：微信公眾號更名後業務方向將逐漸有所調整和改變。
 
-周庭在日本的人氣很大程度上來自於針對日本的精明宣傳,包括運營擁有超過47萬粉絲的日語推特帳號,並出現在日本媒體上。
+為什麼要把公眾號名字從“局座召忠”改成很有諷刺意義的“戰忽局”？
 
-她的語言能力讓她難得地不經意間接觸到了日本公眾,而她對動漫和日本流行音樂的熱愛也讓很多人喜歡上了她。
+據[局座召忠](http://web.anyv.net/index.php/viewnews-55270)：
 
-當她週二被保釋時,她告訴記者——用日語——當她被拘留時,她的腦海裡一直在播放日本流行音樂組合櫸坂46(Keyakizaka46)的歌曲”Fukyowaon”。
+【[局座召忠微信](http://web.anyv.net/index.php/viewnews-55270)介紹：著名軍事專家張召忠在公眾平臺上進行內容發佈的自媒體，包含視頻、專欄和新節目的預告等。】
 
-她還對來自日本的支援表示敬意,在油管的直播中說,她「在被捕期間感覺到日本人在為她加油」。
+另據[局座召忠微信文章](http://web.anyv.net/index.php/account-55270)（一共156頁，以下為第1頁發佈文章清單）：
 
-周庭也是日本美食的粉絲,甚至還分享了她嘗試流行的章魚丸子料理失敗的照片。
+【[音訊大禮包](http://web.anyv.net/index.php/article-3159334)[今天與您分享的音訊內容分別為：n中美貿易休戰期限已到，後續是言和還是分手？n特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？n美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋n請您按照順序收聽！](http://web.anyv.net/index.php/article-3159334)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-去年,她與很多日本名人和公眾人物一起入選了福布斯日本50個最具影響力的社交媒體帳號榜單。
+[法國國防部：“局勢太緊張”，我家的航母不去南海了](http://web.anyv.net/index.php/article-3159333)[SFA新聞快遞](http://web.anyv.net/index.php/article-3159333)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-周庭經常被日本媒體稱為”民主女神”——但她在接受採訪時表示,自己並不喜歡這個綽號。
+[美國耍心機拉上別國減軍備，日本吃了虧決心要稱霸太平洋](http://web.anyv.net/index.php/article-3159332)[戰列艦主宰海戰場](http://web.anyv.net/index.php/article-3159332)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-這個稱呼也引起了網上評論者的憤怒,他們說這反映了日本媒體習慣於用特別女性化的方式來描述女性人物——而且,他們說是物化的方式。
+[特朗普和加州高鐵項目杠上了，美國第一條高鐵涼了？](http://web.anyv.net/index.php/article-3159331)[美國的第一條高鐵還任重道遠啊](http://web.anyv.net/index.php/article-3159331)2019-2-23 05:16[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-儘管她很受歡迎,但目前還不清楚周庭是否對日本政府的政策產生了很大影響。
+[音訊大禮包](http://web.anyv.net/index.php/article-3155067)[今天與您分享的音訊內容分別為：n太剛了！美國海軍上將拿軍艦戰颱風，誰輸誰贏？nExcuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰n美國債臺高築，為還債要賣掉美國一個州？n請您按照順序收聽！](http://web.anyv.net/index.php/article-3155067)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-首席發言人菅義偉(Yoshihide Suga)沒有對她的被捕發表具體評論,儘管日本政府對國家安全法的實施表示了更廣泛的關注,該法規定顛覆、恐怖主義和外國勾結在香港是非法的。
+[這是想幹什麼？！法國戴高樂號航母也要來印太了](http://web.anyv.net/index.php/article-3155066)[SFA新聞快遞](http://web.anyv.net/index.php/article-3155066)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-日本一直在恢復與北京的關係,中國國家主席習近平此前定於今年進行國事訪問,以鞏固回暖的關係。
+[美國債臺高築，為還債要賣掉美國一個州？](http://web.anyv.net/index.php/article-3155065)[美國國債達史上最高](http://web.anyv.net/index.php/article-3155065)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-但這次訪問被推遲了,似乎是無限期的,雖然政府將這一決定歸咎於冠狀病毒大流行,但日本一些議員對該國與北京的關係越來越感到不安。
+[Excuse me ?特朗普放下臉面，宣佈美國要光明正大贏得5G戰](http://web.anyv.net/index.php/article-3155064)[五眼聯盟剛“解散”，特朗普就宣佈5G要正面剛](http://web.anyv.net/index.php/article-3155064)2019-2-22 05:32[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-原文連結:
+[音訊大禮包](http://web.anyv.net/index.php/article-3149055)[今天與您分享的音訊內容分別為：n“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作n烏克蘭將加入北約寫入憲法，北約：來了，老弟！n繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！n請您按照順序收聽！](http://web.anyv.net/index.php/article-3149055)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
 
-[http://go.newsfusion.com/world-news/item/13590047](http://go.newsfusion.com/world-news/item/13590047)
+[印度與巴基斯坦關係緊張，第3次喀什米爾戰爭?](http://web.anyv.net/index.php/article-3149054)[SFA新聞快遞](http://web.anyv.net/index.php/article-3149054)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+[繳槍不殺，戰鬥民族真實上演“我一個人包圍了一百多人“！胸毛比子彈震撼！](http://web.anyv.net/index.php/article-3149053)[盧宇光為你講述遍地屍骸有溫情的戰場](http://web.anyv.net/index.php/article-3149053)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+[烏克蘭竟將加入北約寫入憲法，北約：來了，老弟！](http://web.anyv.net/index.php/article-3149052)[烏克蘭和俄羅斯](http://web.anyv.net/index.php/article-3149052)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+[“五眼聯盟”全面瓦解！英國，新西蘭繼續與中國進行5G合作](http://web.anyv.net/index.php/article-3149051)[世界首個5G火車站在上海成立，美國看在眼裡急在心裡](http://web.anyv.net/index.php/article-3149051)2019-2-21 05:30[局座召忠](http://web.anyv.net/index.php/account-55270)
+
+**1,**[2](http://web.anyv.net/index.php/account-55270-page-2),[3](http://web.anyv.net/index.php/account-55270-page-3),[4](http://web.anyv.net/index.php/account-55270-page-4),[5](http://web.anyv.net/index.php/account-55270-page-5),[156](http://web.anyv.net/index.php/account-55270-page-156)[下頁](http://web.anyv.net/index.php/account-55270-page-2)
+
+這些文章從題目上看與局座召忠的那些神奇觀點“海帶纏潛艇”、“霧霾防鐳射武器”如出一轍，不管用“局座召忠”還是“戰忽局”都是打雞血和忽悠。
+
+另外剛剛又查看了[張召忠(中國軍事理論家、軍事評論家)\_百度百科](https://www.baidu.com/link?url=RKRW3JfraHAARe-RX9pNfHk7RxQPSbChrRrCBa3rhFar28vTwQABiwl9LO0JFUAEcgecNaEK76mpND1ZomHb1T84txMMc2wD69nlL6lDQfx1sr0OvRrbHjfuCRIX7Wmx&amp;wd=&amp;eqid=ace31abd000b63c5000000065f3718b9)，發現原來“局座”就是張召忠的別名，不是實實在在的党衛軍的某個局，原來人家從來就沒當過真，只是在畫皮包裝之下，看客們把忽悠當真了，如果一直這樣歲月靜好倒也罷了，可是當針尖對上麥芒的時候，你會發現120年前的義和團一直沒有退場，只不過它現在穿的是“局座召忠”的外衣，滿朝文武依然還在，只不過它們現在穿上了“馬列主義”的外衣。
+
+（文章內容僅代表作者個人觀點）
 
 0
