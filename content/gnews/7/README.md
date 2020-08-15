@@ -1,9 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年8月14日CCP冠狀病毒大流行第203集
-`2020-08-15 10:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/298166/)
+## 川普總統向同微信做生意的美國公司發出明確信息 &#8211; 我做對我們國家安全有好處的事情
+`2020-08-15 11:24 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/298277/)
 
-西安中共病毒再次爆發；三峽將迎來新一輪洪水；四川多地洪水泥石流；糧食危機，中共杜絕餐飲浪費迫在眉睫；騰訊被指“勸退”高齡員工……
+在[8月14日白宮新聞發佈會](https://www.youtube.com/watch?v=MU7Ehnz79BI)上，川普總統在回答一個關於微信行政令的問題時，向對同微信做生意的美國公司發出明確信息，他不會放任微信繼續對美國國家安全的威脅。
 
-0
+
+> 我做對我們國家安全有好處的事情
+> – 川普總統
+
+
+*翻譯：【Michelle】字幕：【Pamila（文明）】編輯：【Michelle】*
+
+*戰友之家玫瑰園小隊出品*
+
+> [President Trump Signs An Executive Order on Addressing the Threat Posed by WeChat](https://gnews.org/289077/)
+
+> [川普总统致众议院议长和参议院议长关于解决微信构成威胁的信函文本](https://gnews.org/zh-hans/289101/)
+
+1

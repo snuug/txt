@@ -1,11 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：我們非常憤怒！一定要查明病毒的真相（英文English+西班牙語Spanish）
-`2020-08-15 10:09 GM62` [轉載自GNews](https://gnews.org/zh-hant/298058/)
+## COVID-19是中共國軍事實驗室製造的人造生物武器
+`2020-08-15 10:59 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/298226/)
 
-西班牙語標題 Trump: ¡Estamos muy enojados! Debe descubrir la verdad sobre el virus
+*新聞來源：《國家脈衝》*
 
-翻譯：胜利之光 校對：帅虎 視頻：小羽
+*作者：Staff Writer*
+
+*發佈時間：2020年8月12日*
+
+*翻譯/簡評：遊戲小哥/InAHurry*
+
+*校對：leftgun*
+
+*審核：InAHurry*
+
+*Page：拱卒*
+
+簡評：
+
+隨著閆麗夢博士進一步向世界展示中共病毒COVID-19為中共人為製造的各種證據，世界生物醫科學院院長兼著名生物技術專家朱塞佩-特里托（Giuseppe Tritto）也在其長達300頁的書中指控COVID-19為中共國軍事實驗室製造的人造武器。同時，他還非常悲觀地指出由於中共在提供病毒基因序列上的拖延和病毒的突變，我們能找到一種阻斷病毒的疫苗的希望已十分渺茫。這位專家所言也正是閆博士一直在向世界大聲疾呼的。希望在特里托（Tritto)之後還會有越來越多之前不願意站出來的相關人士出來發聲，因為世界急需認識到新冠病毒實為生化武器。
+
+
+
+##  **與聯合國有關聯的生物技術專家聲稱COVID-19是中共國軍事實驗室製造的人造生物武器** 
+
+
+
+**世界生物醫學科學院院長兼著名生物技術專家朱塞佩·特里托（Giuseppe Tritto）指控稱COVID-19是人為製造，它起源於中共國軍方領導的一項實驗，並且“極不可能”發明出成功的疫苗。**
+[!\[\](https://spark.adobe.com/page/kllHS7RTmxGct/images/4103c197-19f4-4d96-9bf5-47cf9675cf16.jpg?asset_id=03e76a20-995c-4a15-80f9-1ba349593b36&amp;img_etag=%22218e59aa7b3e9f0ab35dd428c9f7c13b%22&amp;size=1024)](https://spark.adobe.com/page/kllHS7RTmxGct/images/4103c197-19f4-4d96-9bf5-47cf9675cf16.jpg?asset_id=03e76a20-995c-4a15-80f9-1ba349593b36&amp;img_etag=%22218e59aa7b3e9f0ab35dd428c9f7c13b%22&amp;size=1024)
+這本近300頁、用意大利語出版的書認為中共國在法國和美國的資金和人員協助下進行了生物工程實驗。雖然這項合作旨在試圖開發針對SARS等疾病的疫苗，但在中共國軍方的主持下，這種合作卻演變成了更加危險的研究。
+
+具體地說，特里托（Tritto）指控武漢病毒研究所的P4實驗室使用了“逆向遺傳學”（科學家用來改變疾病病原體的過程）來製造致命的生物武器。
+
+儘管COVID-19是一種人造生物武器的指控已被主流媒體所摒棄，但特里托（Tritto）的資質有可能為他的發現提供極高的可信度。
+
+作為世界生物醫學科學技術研究院的執行主席，他監督著一個定期與聯合國（UN）機構（例如聯合國教育，科學及文化組織（UNESCO））合作的機構。
+
+聯合國是監督世界衛生組織（WHO）的機構，它被委以監督全世界針對COVID-19的抗疫行動的任務，但經常被指控屈從於中國共產黨。
+
+特里托（Tritto）補充說，在中共人民解放軍（PLA）專家的推動下，項目主任石正麗博士重新調配了實驗室，以專注於生物武器的製造。關於美國的參與，該書中列出了被指參與該活動的教授們的名字，這些教授都從安東尼·福其（Anthony Fauci）博士的國家過敏和傳染病研究所獲得了重大資助的。
+
+中國共產黨至今仍拒絕透露有關該病毒的細節。而這是開發有效疫苗所必需的詳細信息。
+[!\[\](https://spark.adobe.com/page/kllHS7RTmxGct/images/c6183d6c-c06e-4239-a18a-f402a46b3811.jpg?asset_id=9bc4a42f-9d11-4933-b31b-f111b818afde&amp;img_etag=%22dcb2741af5cd9cc7f01a53b898e0ee07%22&amp;size=1024)](https://spark.adobe.com/page/kllHS7RTmxGct/images/c6183d6c-c06e-4239-a18a-f402a46b3811.jpg?asset_id=9bc4a42f-9d11-4933-b31b-f111b818afde&amp;img_etag=%22dcb2741af5cd9cc7f01a53b898e0ee07%22&amp;size=1024) Covid-19與武漢研究室有關
+特里托（Tritto）解釋說：“提供基質蛋白將意味著承認COVID-19是在實驗室中製造的。 實際上，中共國所提供的不完整基因組中缺少了一些艾滋病氨基酸插入物，這本身就是確鑿的罪證。”
+
+認罪會為中共在產生和傳播這種疾病上承擔在法律和財務上的責任打開大門。
+
+冠狀病毒現已經發生突變，這會影響任何疫苗的功效：
+
+“鑑於COVID-19的許多突變，我們能找到一種能阻斷這種病毒的疫苗的希望已經及其渺茫。 目前，已有11種不同的菌株得到了鑑定，其中，在歐洲發展的A2a遺傳系和在北美生根的B1遺傳系，它們都比起源於武漢的0系更具傳染性。 因此我相信，我們最多可以找到一種對4-5種菌株有效的多價疫苗，這能夠覆蓋全球70-75％的人口。”
+
+這再次證明：中共國撒謊，人民死亡。
+
+[原文鏈接](https://thenationalpulse.com/news/un-expert-says-covid-19-bioweapon/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/kllHS7RTmxGct/)
 
 0

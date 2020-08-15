@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共加大對美石油大豆採購以挽救第一階段中美貿易協議？
-`2020-08-15 06:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/297845/)
+## 【世界多語言圖文】2020/08/07 CCP病毒每日疫情直播簡報
+`2020-08-15 10:15 GM62` [轉載自GNews](https://gnews.org/zh-hant/297558/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15060710/1-61.png)圖片來源： [https://www.dw.com](https://www.dw.com/zh/%E8%81%94%E5%90%88%E5%9B%BD%E4%B8%AD%E7%BE%8E%E8%B4%B8%E6%98%93%E6%88%98%E4%B8%A4%E8%B4%A5%E4%BF%B1%E4%BC%A4-%E4%B8%BA%E4%BD%95%E5%8F%B0%E6%B9%BE%E6%98%AF%E6%9C%80%E5%A4%A7%E5%8F%97%E7%9B%8A%E8%80%85/a-51127577) 
-據雅虎新聞報導，隨著中美貿易戰第一階段協議審議日期的臨近，來自美國貿易商，船舶經紀人和中共國進口商的消息顯示，未來數周美國對中共國的原油出貨量將急劇增加。
+戰友之家圖文摘要及小語種組
 
-知情人士說，中共國的石油公司已初步預定油輪在8月和9月運送至少2000萬桶來自美國的原油。而在此之前，中共國對美國的原油採購量，遠遠低於其在中美第一階段貿易協議中的承諾。
+[English\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)
 
-近年來，中共國已成為美國最大的原油購買國，但緊張的貿易局勢使貿易量幾乎停止。
+[French196\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)
 
-今年1月，中共國承諾在2017年的基礎上購買185億美元的能源產品，包括原油和天然氣，據知情人士透露，中共國國有石油天然氣公司中石油及其最大的煉油企業中石化近期的採購量激增。兩家中共國公司已分別預訂了五到六個超級油輪，每個油輪可容納200萬桶石油，將分別於八月和九月的裝船，併計劃到年底購買300萬噸（約2200萬桶）或價值近10億美元的美國原油。另外，除了大量購買原油，中共國的買家還預定了197,000噸的美國大豆。
+[German\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)
 
-對目前這種不尋常的原油交易，中美雙方石油公司均拒絕發表任何評論。但值得注意的是，原定於週六進行的中美第一階段貿易協議審議將被推遲，並且尚未商定新的日期。
+[Japanese\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)
+
+[Korean\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)
+
+[Spanish\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)
 
 
 
-簡評：眾所周知，中共國並未有效執行中美第一階段貿易協議中列明的採購承諾，而此次貿易協議審議日期臨近之時採取的突擊購買行為，也許是為了挽回一些所謂的信譽，亦或是僅僅做出一些姿態，甚至只是拋出一些誘餌，希望美國方面緩解對其在貿易上的壓力。但是，美國方面已經明確表示無限期推遲審議日期，這無疑是向中共發出了一個強烈信號，即中美之間的貿易關係已經不是兩國關係的重點。
-
-[新聞鏈接](https://finance.yahoo.com/news/exclusive-china-ramps-u-oil-025230178.html)
-
-翻譯報導：hanstyle88
-
-1
+0

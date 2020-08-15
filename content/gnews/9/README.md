@@ -1,23 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/07 CCP病毒每日疫情直播簡報
-`2020-08-15 10:15 GM62` [轉載自GNews](https://gnews.org/zh-hant/297558/)
+## 中國二房東的房地產夢想正在破滅
+`2020-08-15 11:20 GM77` [轉載自GNews](https://gnews.org/zh-hant/298262/)
 
-戰友之家圖文摘要及小語種組
+編撰：Jay、Pearl珍珠、文肯尼
 
-[English\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15111255/%E6%88%BF%E5%9C%B0%E4%BA%A7.png)
 
-[French196\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)
+隨著中共病毒的蔓延,租賃市場的萎縮,中國中產階級的二房東夢真在破滅。
 
-[German\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)
+北京的上班族二十幾歲的李女士以為自己已經在中國私人財產的階梯上,買了兩套公寓,並將其出租。然後,新的冠狀病毒來了,無業房客離城,房租大跌。
 
-[Japanese\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)
+她是數以百萬計的中國房東中的一員,這些房東在通往中國日益壯大的中產階級的高速公邊路上購買了公寓進行出租,許多人現在面臨著租金收入的首次下滑。
 
-[Korean\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)
+分析師說,目前幾乎沒有大範圍抵押貸款違約的前景,房地產價格繼續增長,儘管比較緩慢。但租賃困境凸顯了中國經濟的脆弱性,房東大軍已經開始在他們的悲觀情緒下削減了開支。
 
-[Spanish\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)
+不願透露全名的李女士說,2月至5月期間,她不得不將其中一間公寓的租金減半,以堅持住一個租客,而她自己的工資也被削減了25%,她的雇主因冠狀病毒影響,採取了削減成本的措施。
 
+“我必須支付我在北京房屋的租金以及兩套公寓的月供。」她說。
 
+根據房地產數據供應商諸葛找房網的數據,7月份20個主要城市的租金比上年同期下降了2.33%——這已經是連續第四個月在這個多年來一直活躍的市場上出現下滑。
 
-0
+該行業仍然不透明,沒有全國性的資料庫說明誰擁有這些房產,歷史跟蹤數據也有限。
+
+今年年初,新冠肺炎的蔓延給中國的服務業和製造業帶來了巨大壓力,首先被裁員的是外來務工人員,他們是小戶型公寓的主要承接者。緊接著,白領工人也跟著走了,而平時會湧入城市的外省應屆大學畢業生卻苦於找不到工作。所有這些都拖累了租戶和財大氣粗的房東的消費。
+
+甚至對短期住宿的需求也在減弱,使房東失去了一種選擇。根據追蹤Airbnb和Vrbo上預訂情況的分析公司AirDNA的數據,6月份,至少有一晚預訂的中國短租房產數量比去年同期下降了29%。
+
+“有兩個群體……。受影響最大,”諸葛找房副總裁袁成建說。”一個是長期租賃公司……。另一個是通過高槓桿融資購買房產的投資者,因為他們用租金償還了部分抵押貸款。”
+
+50歲的羅淑珍在東莞南部工業城市的兩棟樓里有80個房間要轉租,她說今年的租客數量下降了30%。她現在推遲了去年買的一套公寓的裝修計劃。
+
+“很難說疫情會持續多久,所以我不知道下半年能否維持租房生意。”經營便利店的羅先生說。
+
+和羅淑珍一樣,路透社採訪的其他房東也在考慮減少支出。週五的官方數據顯示,中國7月零售額第七個月下降。
+
+但房貸違約事件目前仍然罕見。截至6月底中國整體不良貸款率平均僅為2.1%。
+
+監管機構沒有給出抵押貸款變質的分類數據,但中國的住宅抵押貸款支持證券(RMBS)市場提供了趨勢線索。
+
+約有3%的抵押貸款由銀行進行證券化,今年早些時候,一些證券化抵押貸款的拖欠還款率有所上升,不過違約率仍低於未償還抵押貸款的0.10%。
+
+“證券化市場中一半的交易使用90天作為違約的定義,而另一半則使用180天,「惠譽評級亞太區結構性融資高級總監TracyWan表示。”對於那些使用180天的人來說,你會有更長的時間來確認違約,而且這個數位還在上升。”
+
+對於北京的上班族小李來說,正在尋求説明,才能讓自己一帆風順的房產夢時代已經到來。
+
+“我甚至向父親求助–我都快30歲了!」她說。
+
+這是中國中產階級萎縮的一個標誌。中共政權靠賣地建立的房地產泡沫市場必將給中國144億人民帶來不可預料的災難,將老百姓一輩子綁定在一套房子上,邪惡至極。所以,中國114億人民必須要清醒地認識到,只有推翻壓在人民頭上的CCP撒旦政權,中國人民才能真正走向民主自由法治的社會,人們才能在健康的市場經濟中實現美好生活。
+
+原文連結:
+
+[https://www.reuters.com/article/us-china-economy-landlords/for-chinas-landlords-rent-to-riches-dreams-fade-in-red-flag-for-fragile-economy-idUSKCN25A0WL](https://www.reuters.com/article/us-china-economy-landlords/for-chinas-landlords-rent-to-riches-dreams-fade-in-red-flag-for-fragile-economy-idUSKCN25A0WL)
+
+1
