@@ -1,55 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰情室331 羥氯喹的有效適用期──安提法
-`2020-08-15 10:10 GM67` [轉載自GNews](https://gnews.org/zh-hant/298097/)
+## 【世界多語言圖文】2020/08/07 CCP病毒每日疫情直播簡報
+`2020-08-15 10:15 GM62` [轉載自GNews](https://gnews.org/zh-hant/297558/)
 
-作者：澳喜翻譯組 Lish    編輯：VOG翻譯組 flasher
+戰友之家圖文摘要及小語種組
 
+[English\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101407/English_0807_CCP_Virus_Updates.pdf)
 
+[French196\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101411/French196_0807_CCP_Virus_Updates.pdf)
 
-內容摘要
+[German\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101419/German_0807_CCP_Virus_Updates.pdf)
 
-1. 中共病毒的兩個主要階段以及羥氯喹的適用期
-2. 羥氯喹可把死亡率降至0
-3. 美國FDA（食品藥品監督管理局）不認可羥氯喹的原因
-4. 安提法遲遲不定為恐怖組織的一個要因
+[Japanese\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101415/Japanese_0807_CCP_Virus_Updates.pdf)
 
+[Korean\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101422/Korean_0807_CCP_Virus_Updates.pdf)
 
-詳細內容
-
-- 中共病毒的兩個階段，羥氯喹適用於第一階段
+[Spanish\_0807\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15101426/Spanish_0807_CCP_Virus_Updates.pdf)
 
 
-以下內容是嘉賓Harvey Risch 博士的陳述
-
-在感染中共病毒後有兩個重要的階段。第一階段為嚴重的感冒流感症狀並且這些症狀會持續一段時間。在這段時間裡，病毒會不斷複製，而免疫系統也努力地進行控制；而有些人的免疫力不足以抵抗病毒的複製，在6-8天后會產生致命性肺炎，這就是第二階段。在這一階段病人開始會感到呼吸困難，後面會發展到嚴重呼吸困難，通常這些病人需要住院治療。第二階段病人的肺部已經附有死去的免疫細胞，這時候用抑制病毒複製的藥就沒有什麼用，應該用另外一種方法來進行治療。
-
-因此我們有兩種方法去對不同階段的病人進行治療。第一種方法就是在早期階段運用藥物抑制病毒的複製，如果這不起作用，就需要運用其他的藥物和更加積極的手段來抗擊肺炎。以羥氯喹為主加服用鋅和阿齊黴素這樣的配方對早期抑制病毒複製非常有效，因為其會説明我們的免疫系統對抗病毒。
-
-通常需要服用羥氯喹的人，其免疫系統無法抵抗病毒。高危人群通常指在60歲以上的，或者是有糖尿病，肥胖症，高血壓或有過癌症的病人或有其他免疫相關的疾病的人。病毒會在這些人身上更好地複製進而到達無法控制的地步。低風險人群是在60歲以下的並沒有以上疾病的，或多或少他們的免疫系統可以應付病毒。所有的研究都表明只要儘早積極治療，羥氯喹對高危的病人也有效。沒有一份研究表明它是不起作用的。
-
-節目中有問道Harvey Risch 博士，對攻擊你的那些人，包括福奇博士有什麼想說的。Harvey Risch 博士說：他們攻擊我是因為他們沒有有效的科學論證；如果有，我願意奉陪到底——我們可以來進行羥氯喹的辯論。這些人，他們就只會指名道姓，而不會和我來一場真正的辯論。我是科學家，我為科學月臺而不是帶著偏見。
-
-- 如果羥氯喹不受限，美國的死亡率大概會減少多少？
-
-
-Harvey Risch 博士說保守估計是死亡率會降低50%，更可能的是減少60%至三分之二的死亡率。如果我們有私人醫生給每個病人開處方，就比如全國有很多醫生運用羥氯喹給新冠病人開處方一樣，這些醫生實際上達到了100%的免死率和免住院率，這是極好的結果。
-
-- 美國FDA食品藥品監督管理局不認可羥氯喹的原因。
-
-
-美國FDA在其網站上不合理地把羥氯喹歸納為對門診病人用藥的警告區。FDA也不合理地以羥氯喹對晚期病人的使用研究報告作為說辭，卻從不提及這些大量的對早期病人有效的研究報告。節目揭露FDA三分之一的經濟來源是製藥公司。這些藥物公司付錢給FDA，因為FDA需要根據法律要求為這些公司提供服務——例如FDA需要對新藥品進行不斷檢測才能最終獲得批准。Harvey Risch 博士最後建議更多的人站出來為羥氯喹發聲。
-
-- 安提法遲遲不定為恐怖組織的一個要因
-
-
-班農就八月12號晚上安提法在波特蘭法院門口一系列的暴力違法活動表達看法。班農表示應該把安提法定義為恐怖組織。這種激進的無政府主義打著黑命貴的旗號，實際上它與George Floyd 的死毫不相干。安提法就是一個從頭到腳，從裡到外宣導無政府主義，共產主義 和馬克思主義的組織。他們受到了很好的培訓和資金支持，他們想要做的就是摧毀美國，摧毀美國的法律。現在距川普政府對安提法作出讓步才12天，在軍隊從波特蘭撤退的12天前我們節目就說過，這樣只會助長他們的膽量，他們要的是革命，而革命意味著他們不會讓步，不會尋求以談判的方式來解決問題，他們隨時準備著拿起他們的槍繼續暴力活動。
-
-班農先生強烈建議波特蘭現在需要的是法律和秩序，波特蘭的人民需要一個安全穩定的城市。而唯有加強執法能力並且逮捕這些違法者，把這些人鎮壓下去，才能恢復各個城市的安寧。把他們的定義成恐怖組織並把他們的整個背後運作的網給消滅。
-
-嘉賓Jack Posobiec 表示對安提法的讓步並沒有從中得到什麼，相反這些有著武器裝備的暴徒已經作惡76 天了，他們已經變得更加強大和更有組織性——他們知道如何運作，以及如何利用黑命貴造勢。
-
-主持人拉希姆-卡薩說美國定義恐怖組織需滿足三點。第一，必須有國際性的牽連；第二，參與恐怖活動，或者意圖參與恐怖活動；第三，活動必須是威脅到美國國家安全的。主持人拉希姆-卡薩姆表示這三點安提法都已經具備。拉希姆-卡薩姆還揭露，定義恐怖組織會暴露整個運作網——更廣泛的這些安提法背後的招募人，資金支持者和外國勢力。一些有聲望的組織，慈善基金組織，或者是有著大公司的個人在直接或間接地為他們提供資金支持。這就是這屆政府對於去定義安提法為恐怖組織感到備受壓力原因。一旦安提法定義為恐怖組織，所有的這些在背後提供資助的公司，組織或個人將會與安提法一起沉船。
 
 0
