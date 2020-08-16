@@ -1,42 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 委內瑞拉怎麼輸掉了三艘超級油輪?
-`2020-08-16 07:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/299300/)
+## 【世界多語言圖文】2020/08/08 CCP病毒每日疫情直播簡報
+`2020-08-16 09:15 GM62` [轉載自GNews](https://gnews.org/zh-hant/299358/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16071856/1-70.png) (照片來源:其中一艘轉移到CCP的超級油輪Carabobo，Photo Copyright Andrea Romanin) 
-**美國對委內瑞拉石油禁運的製裁影響巨大**
+戰友之家圖文摘要及小語種組
 
-根據Reuter（路透社）作者Luc Cohen 和Roslan Khasawneh 的共同報導，在美國實施制裁行動下，委內瑞拉和中共國之間的合資船運公司CV Shipping (CV Shipping Pte Ltd)已經嚴重受到打擊，多國船運公司不願運輸委內瑞拉的石油，導致損失了三艘超級油輪。在新加坡法院文件中顯示出中國石油天然氣股份有限公司(PetroChina Co Ltd)在今年年初開始擁有這三艘油輪的控制權。
+[English\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091020/English_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091020/English_0808_CCP_Virus_Updates.pdf)
 
-CV Shipping是中石化和委內瑞拉國家石油公司(PDVSA)在新加坡有一家合資船運公司。這三艘超級油輪(Junin, Boyaca and Carabobo)被轉讓的事件鮮少有媒體報導。在此之前，美國對委內瑞拉國家石油公司(PDVSA)的製裁下，這些油輪失去了保險，導致了中委兩國的合資公司CV Shipping數百萬美元的損失，並促使中石油將CV Shipping破產，並讓CV Shipping底下的三艘超級油輪轉移到中石油下。當初成立CV Shipping的目的是將委內瑞拉的石油運往中共國和其他一些出口目的地。
+[French\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091013/French_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091013/French_0808_CCP_Virus_Updates.pdf)
 
-PDVSA損失了三艘油輪，每艘油輪最多可攜帶200萬桶石油。華盛頓通過制裁運輸其石油到其他OPEC成員國家的第三方船隻，再度加強了已長達18個月制裁委內瑞拉總統馬杜羅(Nicolas Maduro)的動作。一些主要的希臘船運公司因擔心運送委內瑞拉原油遭受制裁，從而拒絕了委內瑞拉的石油出口生意。到目前為止，PDVSA還擁有第四艘超級油輪(Ayacucho)的所有權。但據路透社上週報導，一家美國玻璃製造商正尋求為委內瑞拉2010年對兩家工廠的沒收而獲得5億美元的仲裁裁決，該公司正在新加坡法院提起訴訟，目標對准其所擁有的第四艘油輪。
+[German\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091016/German_0808_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091016/German_0808_CCP_Virus_Updates-1.pdf)
 
-**美國製裁下，中委合資公司慘** **淡** **結局**
+[Japanese\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091023/Japanese_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091023/Japanese_0808_CCP_Virus_Updates.pdf)
 
-這場爭端代表著在2008年發起的雄心勃勃的合資企業的一個慘淡結局，當時急需原油供應的中共國在前總統馬杜羅（Maduro）的前總統烏戈·查韋斯（Hugo Chavez）的雙方支持下，大幅度加深與中委兩國的關係。但是，當中共國大幅削減對委國的支持後，馬杜羅（Maduro）垮台。中共國石油天然氣公司高管夏宏偉(音譯)在2019年9月17日致PDVSA高管的信中寫道：“該合資企業的最初目的已完全無法實現了。”
+[Korean\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091031/Korean_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091031/Korean_0808_CCP_Virus_Updates.pdf)
 
-中石油於2020年1月在新加坡首次製裁PDVSA，試圖切斷仍在掌權的馬杜羅（Maduro）的石油收入後，於2020年1月在新加坡將CV Shipping置於法院主導的清算中。目前，中共國仍然是委內瑞拉原油的主要進口國之一，他們通過船到船的轉移方式，使該原油原產地看起來像是馬來西亞。
+[Russian\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091027/Russian_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091027/Russian_0808_CCP_Virus_Updates.pdf)
 
-**主要原因沒有保險，無法船運，合資公司帳戶被凍結**
+[Spansih\_0808\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091034/Spansih_0808_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16091034/Spansih_0808_CCP_Virus_Updates.pdf)
 
-據報導，制裁行動在合資企業中引發了一系列連鎖危機。法庭記錄中包含的信件顯示，總部位於百慕大的船舶互保協會標准保賠協會（Standard Club）於去年5月撤銷了四艘船的保護和彌償（P＆I）保險。 CV Shipping的保險經紀人Willis Towers Watson在案件文件中包含的電子郵件中解釋說，標准保賠協會做出了這一決定，因為“它不想承受制裁或承擔因制裁帶來的風險。”根據中石油（PetroChina）律師寫的誓章，新加坡法律要求，船隻必須擁有船的P＆I保險才能起航。
 
-宣誓書說，此外，CV Shipping的銀行凍結了該公司的帳戶，這些船的船長警告說，他們將很快取消合同。
-
-CV Shipping在2013年至2018年期間的運營年利潤在60萬至1400萬美元之間，但不久就發現，自己每月損失達500,000美元，因為即使沒有運輸收入，也不得不支付船隻的管理費和燃料費。為減少損失，中石油於2019年6月提議終止CV Shipping合資企業，並將這四艘船拆分給兩家公司。根據文件中包括的前任經理的通知，PDVSA於2019年6月在委內瑞拉水域接管了其中一艘油輪(Ayacucho)的管理。
-
-中石油夏宏偉在6月28日給PDVSA高管的電子郵件中稱這是“單方面”行為，但仍建議該公司保留該兩艘油輪( Ayacucho ,Carabobo)，另外兩艘油輪((Junin, Boyaca )則轉給中石油。2020年1月17日，Ayacucho油輪和Junin油輪的股份分別轉讓給PDVSA和PetroChina。根據法庭文件中包含的買賣協議，PDVSA以1780萬美元的價格購買了Ayacucho的股份，而中石油以1380萬美元的價格購買了Junin的股份。這筆款項從股東向合資企業提供的貸款中扣除。
-
-但是，兩方均無法就剩餘的兩艘船達成協議，這促使中石油要求將CV Shipping置於清算狀態，此舉得到新加坡法院的迅速批准。指定的清算人提議對兩家公司之間剩餘的兩艘油輪進行拍賣，並要求雙方提供資金證明，PDVSA表示由於製裁而無法這樣做。 “由於不可抗力，以公開和公認的美利堅合眾國政府代表我們實施的單方面強制性措施表示，我們無法顯示銀行帳戶，” Oswaldo Vargas-負責PDVSA海事業務的人子公司PDV Marina-2月22日寫給清算人。
-
-實施制裁的美國財政部未回應置評請求。巴爾加斯（Vargas）從公司撤職，並因涉嫌與3月走私燃油走私而被委內瑞拉當局逮捕。清算人代表CV Shipping代理，隨後與中石油達成了一項私下談判的協議，以中石油同意償還公司間債務，並以每股1新加坡元（0.7287美元）的價格出售Carabobo和Boyaca的股份。兩艘船的母公司共欠CV Shipping約5300萬美元。
-
-[原文出處](https://www.reuters.com/article/us-venezuela-oil-china-tankers-exclusive/exclusive-how-venezuela-lost-three-oil-supertankers-to-its-chinese-partner-idUSKCN257235)
-
-翻譯報導：william
-
-譯評: 因為美國對委內瑞拉的製裁行動，國際間沒有運輸公司敢運輸委內瑞拉的石油，中委兩國合資的船運公司當然也不能運輸委內瑞拉的石油，導致這間合資船運公司近乎破產，底下的三艘油輪歸中石油，一艘歸委內瑞拉，不難發現，與CCP合作的國家都沒有好下場。從這件事情更可以明白美國的製裁行動是非常全面非常有力的。美國針對CCP的重錘正一個接一個地落下，全世界人民將很快看到CCP的垮台。
 
 0
