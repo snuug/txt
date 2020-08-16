@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：我們非常憤怒！一定要查明病毒的真相（英文English+西班牙語Spanish）
-`2020-08-15 10:09 GM62` [轉載自GNews](https://gnews.org/zh-hant/298058/)
+## 2020年8月14日CCP冠狀病毒大流行第203集
+`2020-08-15 10:36 GM30` [轉載自GNews](https://gnews.org/zh-hant/298166/)
 
-西班牙語標題 Trump: ¡Estamos muy enojados! Debe descubrir la verdad sobre el virus
-
-翻譯：胜利之光 校對：帅虎 視頻：小羽
+西安中共病毒再次爆發；三峽將迎來新一輪洪水；四川多地洪水泥石流；糧食危機，中共杜絕餐飲浪費迫在眉睫；騰訊被指“勸退”高齡員工……
 
 0
