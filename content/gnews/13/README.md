@@ -1,40 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 戰忽局局座張召忠回應美台軍售和軍演的玄妙之處究竟在哪裡
-`2020-08-15 23:49 Diago` [轉載自GNews](https://gnews.org/zh-hant/298726/)
+## 川普總統關於與波蘭共和國增強國防合作協議的聲明
+`2020-08-16 03:22 GM31` [轉載自GNews](https://gnews.org/zh-hant/299102/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15233508/%E5%B0%81%E9%9D%A2-55.jpg)
-作者：Diago
+Statement by the President Regarding the Enhanced Defense Cooperation Agreement with the Republic of Poland
 
-據[局座召忠](https://weibo.com/u/6049590367?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年8月16日9:19AM](https://weibo.com/6049590367/Jg8Y9vC50?ref=home&amp;rid=4_0_8_3083327919145302747_6_0_0) 來自 [時事評論 · 視頻社區](https://weibo.com/)
+### **總統關於與波蘭共和國增強國防合作協議的聲明**
 
-[#中方將制裁參與對台軍售美國企業#](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%B0%86%E5%88%B6%E8%A3%81%E5%8F%82%E4%B8%8E%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE%E7%BE%8E%E5%9B%BD%E4%BC%81%E4%B8%9A%23&amp;from=default) 最近大陸在臺灣海峽舉行演習，美國裡根號航母經東海駛向南海，台海形勢處於緊張狀態。
+Issued on: August 15, 2020
 
-美國國國防部借機批准洛克希德馬丁公司交付90架F-16V戰機的訂單，其中有66架準備在2026年交給臺灣。F-16V屬於四代半先進戰機，其相控陣雷達等均採用了F-35戰機的技術。
+發佈日期：2020年8月15日
 
-雷根總統1982年到1984年第一個任期中，總共對台軍售5.2億美元。特朗普總統2017年以來不到4年，總共對台軍售138.74億美元。軍售總額增加了37倍。
+Today, my Administration signed a historic Enhanced Defense Cooperation Agreement with the Republic of Poland.  This agreement is the culmination of months of negotiations with our Polish allies following the two joint declarations I signed with President Duda last year.  The agreement will enhance our military cooperation and increase the United States military presence in Poland to further strengthen NATO deterrence, bolster European security, and help ensure democracy, freedom, and sovereignty.
 
-雷根政府對台軍售內容包括：退役驅逐艦2艘+S-70等直升機16架+C-130運輸機12架+教練機49架+近程導彈和零備件等，基本上屬於防禦性質。
+今天，我國政府與波蘭共和國簽署一項歷史性的增強國防合作協議。去年我與杜達總統簽署了兩項聯合聲明後，此該協議是與波蘭盟國進行數月談判的累積。該項協議能增強雙方軍隊合作和增加美國在波蘭的軍事儲備，以進一步加深北約的震懾力，增強歐洲安全，並有助於確保維護民主、自由與主權。
 
-特朗普政府對台軍售主要是：M1A12三代主戰坦克108輛+裝甲車，F-16V升級版四代半戰機66架， MQ-9B改型海上衛士大型無人機4架+導彈、魚雷、炸彈等精確制導武器～
+My Administration has done more for the United States Armed Forces than any other in history, including entirely rebuilding our military.  This agreement is yet another in a series of actions that will protect our forces and increase their ability to carry out their mission.  Additionally, this agreement serves as a model for other nations with respect to equitable burden sharing.  I thank President Duda, the Polish people, and the members of my Administration for their hard work in making this agreement a reality.  The United States looks forward to implementing the Enhanced Defense Cooperation Agreement with Poland and to continuing our important work together.
 
-[L局座召忠的微博視頻](http://t.cn/A6UlK5Ld)[收起全文d](void%280%29;)
+本屆政府為美國武裝力量所做的工作比歷史上其他政府做的要多，包括全面重建我們的軍隊。該協議是一系列行動中的又一個，它將會保護我們的部隊並提升其執行任務的能力。除此之外，該項協議是其他國家平分負擔方面的典範。我感謝杜達總統，波蘭人民以及我政府團隊的成員，感謝各位為使這項協議成為現實所做的辛勤工作。美國期待與波蘭執行《增強國防合作協定》，並希望我們繼續共同努力。
 
-局座召忠在視頻中提到：
+閱讀原文：[Statement by the President Regarding the Enhanced Defense Cooperation Agreement with the Republic of Poland](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-enhanced-defense-cooperation-agreement-republic-poland/)
 
-【近期美國針對臺灣問題屢屢出招兒，七月份美國雙航母戰鬥群先後兩次在南海和台海進行軍演，美日澳三國海軍艦艇也在這一海域開展軍演，一個月內就有70架次偵察機抵近中國領空附近偵察挑釁，8月9號派遣內閣部長訪台，裡根號航母戰鬥群闖入東海炫耀武力，對台軍售4架海上衛士無人機，現在呢美國頻繁打臺灣牌，不斷測試大陸底線，如果繼續何釜底抽薪、陽奉陰違、說一套做一套、肆意妄衛，臺灣會不會從戰略棋子變成火藥桶？】
+*翻譯：【V%】 校對：【木木ANNA】*
 
-【8月17號美國將率領全世界二十多個國家進行環太平洋軍演，這一天正好是中美817公報發表38周年，1982年8月17號中美發表817公報，這個公報裡頭美國做了三點承諾，向臺灣出售的武器在性能和數量上將不超過中美建交後這幾年來供應的水準，這是第一點；準備逐漸減少對臺灣的武器出售，這是第二點；經過一段時間以後，最終解決對台軍售這個問題，第三點。現在看來美國一點都沒有信守承諾，38年過去了，不僅沒有減少，反而變本加厲，不遺餘力地對台出售進攻型的裝備、快速武裝臺灣，為臺灣以武拒統提供武器彈藥，美國不斷地探測底線，中國的底線到底在哪裡？1979年中美建交之前我們的口號是“一定要解放臺灣”，中美建交之後，1979年以後全國人大發表《告臺灣同胞書》宣佈爭取和平統一祖國的方針，2005年3月14日全國人大通過《反分裂國家法》，提出在三種情況下中國大陸可以用非和平手段解決臺灣問題。你不是把臺灣當戰略棋子玩兒嗎？你不是把臺灣打造成火藥桶嗎？我們就隔三差五在這個火藥桶周邊放炮仗，讓你不得安生，引爆了算你倒楣，最終讓美國的這個棋子變成棄子，百無一用成累贅。】
-
-每每面對張召忠這樣的戰忽局局座，我們都要重新審視一下什麼是中共的超限戰，本應中共國防部主官回應的美國對台軍售和軍演，要通過戰忽局局座說出來；本應通過中共外交部主官回應的美國對台軍售和軍演，要通過戰忽局局座說出來；本應通過中共商務部主官回應的美國對台軍售和軍演，要通過戰忽局局座說出來。
-
-想來想去，最大的可能就是利用這種戰忽局的探測氣球如果得到強烈反彈，那麼本來應該出面的國防部、外交部、商務部可能站出來說戰忽局的觀點不代表官方觀點；如果未引起美國或者臺灣的反彈，那麼戰忽局的觀點就是官方觀點，可以向牆內的小粉紅們表明，我兲朝威武。
-
-再回到戰忽局局座召忠的神邏輯——中美是對戰的牌手，臺灣是美國手裡的一張牌。這種觀點害不死別人，只能害死對此深信不疑的中共黨魁和沉迷在大國春夢中的無知國民。為什麼？因為按照這個邏輯如果美國對中共出臺灣牌，那麼中共就可以出王炸或者其他手段把臺灣牌打下去或者打死。那麼臺灣到底是不是中美之間博弈的一張牌？如果說臺灣是一張牌的話，臺灣有沒有可能置身事外、保持中立？這個問題不需要回答，因為臺灣根本就不是一張牌，臺灣與美國、中共一起構成了地區博弈的三方，臺灣為了保護自己、避免被中共吃下，所以要向美國採購武器，進行自衛；美國為了保護盟友和地區利益及維護美國在二戰後所確立的國際秩序，必須與臺灣站在一起，於是形成了雖是三方博弈，但實際上是美台聯手滅中共的局面。
-
-在這樣的大形勢之下，中共不敢對它所聲稱的牌手美國進行恐嚇或回擊，於是乎轉向臺灣，在把臺灣貶成了棋子之後，叫囂著要把臺灣變成棄子和累贅。而且哪怕是這番說辭也不能通過官方管道說出來，而只能通過善於揣摩聖意的戰忽局局座之嘴說出來，您看懂中共的這個牌局了嗎？
-
-（文章內容僅代表作者個人觀點）
+*戰友之家玫瑰園小隊出品*
 
 0

@@ -1,45 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 來自中共國的神秘口罩出現在佛羅里達坦帕灣地區
-`2020-08-15 14:04 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/298422/)
+## 評梁振英建議黎智英放棄英國籍以中國人身份在香港搞政治
+`2020-08-15 21:44 Diago` [轉載自GNews](https://gnews.org/zh-hant/298687/)
 
-*新聞來源：Breitbart《布雷特巴特》；作者: BEN KEW；發佈時間：2020年8月12日*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15214808/%E5%B0%81%E9%9D%A2-54.jpg)
+作者：Diago
 
-*翻譯/簡評：Victory；校對：leftgun；審核： InAHurry；Page：拱卒*
+據梁振英[2020年8月15日19:16](https://www.facebook.com/leung.cy.108/posts/1249586935403781?__cft__%5b0%5d=AZXQY7OCn64lT-ubZC97NodWhq0woZpr8WlNV_gnQNid-AlN9GxQWnFxmFeDVpctJuiaBwfzl6LppSCxEv3JAjRiItTOvNxbtj-7ZzHlZyceJCipkJT1_V1-qm-1RDMo9SM&amp;__tn__=%2CO%2CP-R)facebook內容：
 
-**簡評：**
+This is a report in the Financial Times today. So Jimmy Lai has been a UK National since 1996, one year before the changeover. What is this Briton doing in Hong Kong, China disguising as a Chinese patriot?
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213707/117714797_1249585155403959_7273294365346837636_n.jpg)
+這條臉書在出口之後又被觀察者網轉為內銷，據[**觀察者網**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年8月16日7:43](https://weibo.com/1887344341/Jg8l05Zkf?ref=home&amp;rid=0_131072_8_1413038356329918455_0_0_0) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
 
-最近，在美國各地出現了很多來自中共國的神秘包裹。最先被報導的有種子包裹，然後美國海關又截獲了大量來自中共國的美國假駕照，這次，在弗羅里達的坦帕灣地區，又有居民收到了來自中共國的口罩。當局認為這些口罩很有可能是“刷單詐騙”的一部分，商家這麼做是為了通過冒充買家發布正面評論來提高銷量。但考慮到中共希望利用疫情搞亂美國的邪惡用心，也許這些口罩包裹可能並不是為了“刷單”那麼簡單。美國當局應該把所有的口罩都蒐集起來進行檢驗，他們也許會有意想不到的發現。
+【梁振英質問黎智英：敢放棄英國國籍嗎？】
 
-如果說，不請自來的口罩是為了“刷單”，那麼被海關截獲的2萬個假駕照又該作何解釋呢。眾所周知，駕照在美國是可以作為合法身份證使用的。在美國大選臨近之際，有如此大規模的假駕照流入美國，這很有可能是中共企圖利用這些假駕照來偽造選票，從而達到影響美國大選的目的。一旦美國找到切實證據證明中共國的假駕照旨在干預美國大選，這將是中共入侵美國的又一罪證。
+亂港頭目、“壹傳媒”創始人黎智英日前獲保釋後，小動作不斷。香港前特首梁振英15日借英國《金融時報》的一篇文章諷刺黎智英，同時點名“港獨”頭目黃之鋒。
 
-##  **來自中共國的神秘口罩出現在佛羅里達坦帕灣地區** 
+梁振英在臉書寫道：“英國金融時報今天的報導，黎智英自從1996年開始就是英國公民，一個英國人在香港搞政治，為了什麼？黎智英有沒有考慮放棄英國國籍，名正言順的以中國人身份在香港搞政治嗎？黃之鋒在呼籲香港官員放棄英國國籍的同時，是否也應該向黎智英進一言？”
 
-[!\[\](https://spark.adobe.com/page/o5YEw3jrnX4r4/images/c4657ffe-7373-4c39-9763-e49e3aed8120.jpg?asset_id=834ee2ac-41a0-4641-ad66-e41a14ac286b&amp;img_etag=%2251e2ed9cdaa866c26f36a3bcf2692fb7%22&amp;size=1024)](https://spark.adobe.com/page/o5YEw3jrnX4r4/images/c4657ffe-7373-4c39-9763-e49e3aed8120.jpg?asset_id=834ee2ac-41a0-4641-ad66-e41a14ac286b&amp;img_etag=%2251e2ed9cdaa866c26f36a3bcf2692fb7%22&amp;size=1024)一個紙箱裡裝滿了包裝好的藍色手術口罩。美國居民在郵寄中收到不需要的口罩。 Smith Collection/Getty Images
+上述發文的配圖就是英國《金融時報》的文章截圖。 幾小時後，梁振英配合英文文案又發了一次《金融時報》的截圖，他諷刺道：“這個英國人在中國香港做什麼，偽裝成中國愛國者？”[收起全文d](void%280%29;)
 
-據當地媒體本週報導，有美國佛羅里達州坦帕灣(Tampa Bay)地區的居民報告稱，他們在自己的住所收到了來自中共國的、來源不明的口罩。這可能是為提高銷量而進行的“刷單欺詐”的一部分。
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213743/707e96d5gy1ghsaynmhboj20dz0awq51.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213747/707e96d5gy1ghsaynnx9aj20dz09p0v8.jpg)
 
-克利爾沃特市(（Clearwater）的本地居民珊·夏普（Shan Sharp）是其中的一名收件人，她在周二告訴當地NBC新聞的子公司WLFA：她在最近打開郵箱時發現了兩包口罩。
 
-她說：“我看了一下標籤，上面寫著中國、上海、和某個區。所有的信息，包括我的手機號碼，都寫在包裹上。當我看到所有這些信息以後，我害怕地不敢打開包裹，我也不想把它繼續留在家裡。”
+中共以梁振英的狂吠開道，繼之以党媒加強放送，這就是兲朝對於黎智英先生的定點打擊了。
 
-就這樣，夏普把包裹扔進了垃圾桶，並給當地的調查記者香農·貝肯(Shannon Behnken)打了電話。貝肯有一個名為“最好打給貝肯”的熱線電話，此熱線稱自己“致力於揭露欺詐行為、保護消費者和向當權者的問責”。
+梁振英在徹底淪為中共的一條狗之後，已經失去了正常人的思維和邏輯，主要體現在——
 
-根據聯邦貿易委員會(FTC)和商業促進局(BBB)的說法，這些包裹很可能是一種名為“刷單”的欺詐手段的一部分，即第三方賣家製造虛假訂單，以便在亞馬遜等網站上發布對自己的好評。
-[!\[\](https://spark.adobe.com/page/o5YEw3jrnX4r4/images/f0d141dc-8723-4421-8497-4fe9c30bab18.jpg?asset_id=0aefcd36-101d-4169-ad22-3ea8a5220ef9&amp;img_etag=%22d302b1e24c579ddd8b62c7afd5e71cfd%22&amp;size=1024)](https://spark.adobe.com/page/o5YEw3jrnX4r4/images/f0d141dc-8723-4421-8497-4fe9c30bab18.jpg?asset_id=0aefcd36-101d-4169-ad22-3ea8a5220ef9&amp;img_etag=%22d302b1e24c579ddd8b62c7afd5e71cfd%22&amp;size=1024)
-商業促進局(BBB)是這樣解釋的：
+1、按梁振英的邏輯只有放棄英國國籍才算名正言順的中國人，其實中國人只是一個寬泛的概念，在華北地區歷史上出現過遼、金、契丹等多個少數民族政權，後來都與漢族融合了，都成了中國人，出生于山東威海的梁振英的父親梁忠恩的血統裡的遼、金、契丹的血緣在概率上要高於土生土長的廣東人和香港人，從這一點來看，作為在香港的威海衛員警後裔的梁振英似乎是名不太正言也不太順的中國人。
 
-這些公司，通常是外國的第三方賣家，他們利用在網上找到的地址來向您寄送商品。他們的目的是想讓它看起來好像是您寫了一篇關於他們商品的熱情洋溢的評論，並且你是一個經過驗證的買家。然後他們會發布一個虛假的正面評論來提高他們的產品評級，以增加他們的銷量。他們認為，他們能得豐厚的回報。
+2、黎智英先生是不是在香港“搞政治”？在我看來只有以賄選的或者通過陰謀控制選舉、變相剝奪公民的投票權等不正當手段取得公職的人，才算是搞政治。從這一點來說林鄭月娥行政當局和發出狗吠的投共求榮的梁振英才算是“搞政治”，黎智英先生的抗爭是“搞政治”嗎？我想這是對黎智英先生的侮辱和褻瀆，黎智英先生的抗爭不是在搞政治，而是不允許讓“政治”來“搞”他！梁振英因為賣身投共作了狗之後，在狗眼看人低之下，把黎智英先生的公民抗爭看成了“搞政治”，原因無它，狗嘴裡長不出象牙。
 
-口罩並不是美國人最近收到的唯一產品。上個月，來自中共國，神秘的種子包裹被寄到了全美各地的地址，導致農業官員出面警告人們不要種植這些種子。人們最初擔心種子可能被用作生物武器，不過現在人們認為這也是刷單詐騙的一部分。
+3、黎智英先生為什麼要抗爭？
 
-儘管一些消費者可能認為“刷單”對自己沒有風險，但商業促進局(BBB)警告說，一旦犯罪分子獲得了某人的個人信息，他們就可能將其用於很多非法目的。
+> 【[#黎智英](https://twitter.com/hashtag/%E9%BB%8E%E6%99%BA%E8%8B%B1?src=hash&amp;ref_src=twsrc%5Etfw) 周四在网上直播 落泪感谢港人支持】
+> 黎智英一度落淚，感激外界對他以及壹傳媒的支持，形容這幾天是他人生中最感動及開心的時刻，會一直堅守民主自由![pic.twitter.com/HscW8MJfhW](https://t.co/HscW8MJfhW)
+> — 澳洲大紀元 (@epochtimesau) [August 13, 2020](https://twitter.com/epochtimesau/status/1293810730852966400?ref_src=twsrc%5Etfw)
 
-商業促進局（BBB）警告說：“如果有人能夠像你自己購買物品那樣把這些物品寄給你，這表明他們可能掌握了一部分你的個人信息，如姓名、地址，甚至還有電話號碼。一旦這些信息出現在網絡上，它們就可能被無數不正當的企業利用。”
+（注：為避免因推特平臺出現問題，下附推特同源視頻）
 
-[原文鏈接](https://www.breitbart.com/national-security/2020/08/12/mystery-masks-china-arriving-tampa-bay-addresses/)
+“我所做的事情不是因為任何東西，只是因為這個地方，對我實在太好，這是我需要對這個地方交代的，這是我應該做的，因為這裡是我的家園，這是培養我今天所擁有一切的家園。”
 
-編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/o5YEw3jrnX4r4/) 】
+狗眼看人低的梁振英趴在地上一心舔共倒也罷了，但是在舔共之餘發出的對黎智英先生的狂吠，倒不可以等閒視之，對咬人的狗，不打它是不知道痛的，而當英國和其他國家的制裁加諸梁振英時，它就變成了一隻惶惶然的喪家之犬，我相信梁振英們也蹦躂不了幾天了。
+
+（文章內容僅代表作者個人觀點）
 
 0

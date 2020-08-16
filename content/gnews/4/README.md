@@ -1,42 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 委內瑞拉怎麼輸掉了三艘超級油輪?
-`2020-08-16 07:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/299300/)
+## 川普將中共國的大宣傳“孔子學院”定為外國使團
+`2020-08-16 10:48 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/299541/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16071856/1-70.png) (照片來源:其中一艘轉移到CCP的超級油輪Carabobo，Photo Copyright Andrea Romanin) 
-**美國對委內瑞拉石油禁運的製裁影響巨大**
+新聞來源：國家脈動
 
-根據Reuter（路透社）作者Luc Cohen 和Roslan Khasawneh 的共同報導，在美國實施制裁行動下，委內瑞拉和中共國之間的合資船運公司CV Shipping (CV Shipping Pte Ltd)已經嚴重受到打擊，多國船運公司不願運輸委內瑞拉的石油，導致損失了三艘超級油輪。在新加坡法院文件中顯示出中國石油天然氣股份有限公司(PetroChina Co Ltd)在今年年初開始擁有這三艘油輪的控制權。
+作者：Staff Writer
 
-CV Shipping是中石化和委內瑞拉國家石油公司(PDVSA)在新加坡有一家合資船運公司。這三艘超級油輪(Junin, Boyaca and Carabobo)被轉讓的事件鮮少有媒體報導。在此之前，美國對委內瑞拉國家石油公司(PDVSA)的製裁下，這些油輪失去了保險，導致了中委兩國的合資公司CV Shipping數百萬美元的損失，並促使中石油將CV Shipping破產，並讓CV Shipping底下的三艘超級油輪轉移到中石油下。當初成立CV Shipping的目的是將委內瑞拉的石油運往中共國和其他一些出口目的地。
+*翻譯：文明明*
 
-PDVSA損失了三艘油輪，每艘油輪最多可攜帶200萬桶石油。華盛頓通過制裁運輸其石油到其他OPEC成員國家的第三方船隻，再度加強了已長達18個月制裁委內瑞拉總統馬杜羅(Nicolas Maduro)的動作。一些主要的希臘船運公司因擔心運送委內瑞拉原油遭受制裁，從而拒絕了委內瑞拉的石油出口生意。到目前為止，PDVSA還擁有第四艘超級油輪(Ayacucho)的所有權。但據路透社上週報導，一家美國玻璃製造商正尋求為委內瑞拉2010年對兩家工廠的沒收而獲得5億美元的仲裁裁決，該公司正在新加坡法院提起訴訟，目標對准其所擁有的第四艘油輪。
+*簡評:文明明、海闊天空*
 
-**美國製裁下，中委合資公司慘** **淡** **結局**
+*校對、審核：海闊天空*
 
-這場爭端代表著在2008年發起的雄心勃勃的合資企業的一個慘淡結局，當時急需原油供應的中共國在前總統馬杜羅（Maduro）的前總統烏戈·查韋斯（Hugo Chavez）的雙方支持下，大幅度加深與中委兩國的關係。但是，當中共國大幅削減對委國的支持後，馬杜羅（Maduro）垮台。中共國石油天然氣公司高管夏宏偉(音譯)在2019年9月17日致PDVSA高管的信中寫道：“該合資企業的最初目的已完全無法實現了。”
+*PAGE：玄天生*
 
-中石油於2020年1月在新加坡首次製裁PDVSA，試圖切斷仍在掌權的馬杜羅（Maduro）的石油收入後，於2020年1月在新加坡將CV Shipping置於法院主導的清算中。目前，中共國仍然是委內瑞拉原油的主要進口國之一，他們通過船到船的轉移方式，使該原油原產地看起來像是馬來西亞。
+簡評：孔子學院以孔子為名，但所作所為與孔子毫無關係，只能令孔子蒙羞。這些以文化交流為名的孔子學院動輒以資金脅迫各大學乖乖聽話，對各所在大學進行言論審查，通過控制教師和教材輸出專制意識形態，為中共國製度塗脂抹粉，更甚至，很多孔子學院是知識產權盜竊和間諜活動的重要基地。中共國的孔子學院是中共國輸出共產主義意識形態的重要戰場，嚴重侵蝕了西方世界的普世價值和民主法制制度，在西方世界造成了極其惡劣的影響。對於孔子學院，前領導人趙紫陽的政治秘書鮑彤老先生在推特上曾經說到：78年前我念的第一篇古文是《禮記·檀弓下·苛政猛於虎也》。孔子是我的啟蒙者。我贊成關閉孔子學院。我認為現在遍及全球的孔子學院，都是糟蹋這位先哲及其學說的屠宰場。這些孔子學院都和孔夫子無關。它們全姓共，不姓孔。
 
-**主要原因沒有保險，無法船運，合資公司帳戶被凍結**
+美國國務院將孔子學院定義為外國使團具有重大意義，這表明美國開始從文化層面遏制中共的滲透、影響，美國從各個層面開始打擊中共國的知識產權盜竊和間諜活動。美國的這些有力措施使中共滲透美國、搞弱搞亂美國的計劃受到重創，也揭下了孔子學院表面文化交流、實則進行文化侵略的畫皮。
 
-據報導，制裁行動在合資企業中引發了一系列連鎖危機。法庭記錄中包含的信件顯示，總部位於百慕大的船舶互保協會標准保賠協會（Standard Club）於去年5月撤銷了四艘船的保護和彌償（P＆I）保險。 CV Shipping的保險經紀人Willis Towers Watson在案件文件中包含的電子郵件中解釋說，標准保賠協會做出了這一決定，因為“它不想承受制裁或承擔因制裁帶來的風險。”根據中石油（PetroChina）律師寫的誓章，新加坡法律要求，船隻必須擁有船的P＆I保險才能起航。
 
-宣誓書說，此外，CV Shipping的銀行凍結了該公司的帳戶，這些船的船長警告說，他們將很快取消合同。
 
-CV Shipping在2013年至2018年期間的運營年利潤在60萬至1400萬美元之間，但不久就發現，自己每月損失達500,000美元，因為即使沒有運輸收入，也不得不支付船隻的管理費和燃料費。為減少損失，中石油於2019年6月提議終止CV Shipping合資企業，並將這四艘船拆分給兩家公司。根據文件中包括的前任經理的通知，PDVSA於2019年6月在委內瑞拉水域接管了其中一艘油輪(Ayacucho)的管理。
+##  **獲勝：川普將中共國的大宣傳“孔子學院”定為外國使團** 
 
-中石油夏宏偉在6月28日給PDVSA高管的電子郵件中稱這是“單方面”行為，但仍建議該公司保留該兩艘油輪( Ayacucho ,Carabobo)，另外兩艘油輪((Junin, Boyaca )則轉給中石油。2020年1月17日，Ayacucho油輪和Junin油輪的股份分別轉讓給PDVSA和PetroChina。根據法庭文件中包含的買賣協議，PDVSA以1780萬美元的價格購買了Ayacucho的股份，而中石油以1380萬美元的價格購買了Junin的股份。這筆款項從股東向合資企業提供的貸款中扣除。
 
-但是，兩方均無法就剩餘的兩艘船達成協議，這促使中石油要求將CV Shipping置於清算狀態，此舉得到新加坡法院的迅速批准。指定的清算人提議對兩家公司之間剩餘的兩艘油輪進行拍賣，並要求雙方提供資金證明，PDVSA表示由於製裁而無法這樣做。 “由於不可抗力，以公開和公認的美利堅合眾國政府代表我們實施的單方面強制性措施表示，我們無法顯示銀行帳戶，” Oswaldo Vargas-負責PDVSA海事業務的人子公司PDV Marina-2月22日寫給清算人。
 
-實施制裁的美國財政部未回應置評請求。巴爾加斯（Vargas）從公司撤職，並因涉嫌與3月走私燃油走私而被委內瑞拉當局逮捕。清算人代表CV Shipping代理，隨後與中石油達成了一項私下談判的協議，以中石油同意償還公司間債務，並以每股1新加坡元（0.7287美元）的價格出售Carabobo和Boyaca的股份。兩艘船的母公司共欠CV Shipping約5300萬美元。
+**根據媒體報導，美國國務院已決定為中共資助的大外宣前哨——孔子學院貼上“外交使團”的標籤。**
 
-[原文出處](https://www.reuters.com/article/us-venezuela-oil-china-tankers-exclusive/exclusive-how-venezuela-lost-three-oil-supertankers-to-its-chinese-partner-idUSKCN257235)
+這是緊隨《國家脈動》（National Pulse）數月來的有關報導的結果，這些有爭議的、通過[宣傳，知識產權盜竊和間諜活動](https://www.grassley.senate.gov/news/news-releases/grassley-schools-confucius-institutes-are-fronts-chinese-propaganda-just-ask-fbi)對美國學校所產生的惡性影響的項目都聽命於中共。
 
-翻譯報導：william
+那些被《國家脈動》（National Pulse）獨家曝光的，與孔子學院合作的個人和實體中有[喬·拜登（Joe Biden)](https://thenationalpulse.com/politics/biden-lauded-confucius-institutes/) 、 [安德魯王子（Peince Andrew）](https://thenationalpulse.com/news/prince-andrew-and-xi-confucius-institute/) 、 [華盛頓特區市長穆里爾·鮑澤（Muriel Bowser）](https://thenationalpulse.com/politics/dc-mayor-bowser-chinese-communist-links/) 、 [國家新聞俱樂部](https://thenationalpulse.com/politics/national-press-club-ccp-links/) 、 [美國大學考試委員會](https://thenationalpulse.com/news/us-college-board-ccp-funding/)以及[前任總統們](https://thenationalpulse.com/exclusive/bush-carter-obama-confucius-institutes/) 。
 
-譯評: 因為美國對委內瑞拉的製裁行動，國際間沒有運輸公司敢運輸委內瑞拉的石油，中委兩國合資的船運公司當然也不能運輸委內瑞拉的石油，導致這間合資船運公司近乎破產，底下的三艘油輪歸中石油，一艘歸委內瑞拉，不難發現，與CCP合作的國家都沒有好下場。從這件事情更可以明白美國的製裁行動是非常全面非常有力的。美國針對CCP的重錘正一個接一個地落下，全世界人民將很快看到CCP的垮台。
+據《南華早報》報導：
+
+川普政府對這個由中共國政府資助的，長期在美國和其他國家教授中國語言和文化的項目加強了審查，使得與北京之間的緊張關係進一步升級。
+
+據不願透露姓名的知情者說，美國國務院計劃最早會在周四宣布，美國的孔子學院（許多都位於大學校園內）需要註冊為“外國使團”。
+
+從這項指令中可以得出結論，即孔子學院是由外國政府“實質上擁有或有效控制”的，這將使他們在管理上符合類似於使館和領事館的行政要求。
+
+國務院沒有對此做出立即回應，但今年初國務院曾對幾家中共國媒體採取了類似行動。
+
+這些學院長期以來一直是對华鹰派的目標，包括共和黨參議員馬可·盧比奧（Marco Rubio）在內的議員們正在敦促所在州的學校[終止與它們之間的協議](https://www.scmp.com/news/china/article/3026122/miami-dade-college-shutting-down-its-confucius-institute) 。他稱它們“是以教授中國語言和文化為工具來擴大政治影響力，並由中共國政府操控的項目”。
+[!\[\](https://spark.adobe.com/page/VADGwnrWLviik/images/13f96e55-1614-4a47-9b2c-45803908397d.jpg?asset_id=f32cf8f7-9cea-47f7-a3d2-86a1bd251799&amp;img_etag=%22ea6ec16711fc06edea4649266b0c99ce%22&amp;size=1024)](https://spark.adobe.com/page/VADGwnrWLviik/images/13f96e55-1614-4a47-9b2c-45803908397d.jpg?asset_id=f32cf8f7-9cea-47f7-a3d2-86a1bd251799&amp;img_etag=%22ea6ec16711fc06edea4649266b0c99ce%22&amp;size=1024)
+此舉可能會進一步加劇與北京之間的緊張關係，因為兩國已經在治理香港和5G技術等所有問題上發生了衝突。
+
+本週，衛生和公共服務部部長亞歷克斯·阿扎爾（Alex Azar）成為40多年來訪問台灣的最高級別的美國官員，國務卿邁克爾·彭佩奧（Michael Pompeo）則在布拉格發表了演講，抨擊中共的“脅迫和控制的運動”。
+
+根據全國學者協會（一個無黨派研究機構）對孔子學院的研究，在全球約550家孔子學院中，有80家設在美國的大學中，其中包括斯坦福大學和佐治亞州的薩凡納州立大學（ Savannah State University）。
+
+儘管這些學院通常會迴避歷史、政治和時事，但批評人士說，它們是中共國影響校園的工具，北京政府通過威脅要撤回在這些機構的資金，以達到它審查教材和進行學術活動的目的。
+
+全國學者協會反對他們，因為它說他們的資金缺乏透明度，並且禁止中共國政府認為的敏感話題。
+
+此舉將是川普政府快速增長的反擊中共滲透美國的眾多手段中的最新一擊，也是數十年來期待已久的對敵對國家實行綏靖政策的反擊。
+
+[新聞鏈接](https://thenationalpulse.com/news/confucius-institutes-foreign-mission/)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/VADGwnrWLviik/)
 
 0
