@@ -1,29 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普總統關於與波蘭共和國增強國防合作協議的聲明
-`2020-08-16 03:22 GM31` [轉載自GNews](https://gnews.org/zh-hant/299102/)
+## 閆博士 病毒是中共故意投放 不論是自然原因還是意外洩漏中共都不應掩蓋事實，都應能阻止病毒擴散（英文English+中文Chinese+日文Japanese）
+`2020-08-16 10:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/299413/)
 
-Statement by the President Regarding the Enhanced Defense Cooperation Agreement with the Republic of Poland
+日語標題 「自然由来でも事故漏れでも事実を隠す必要がなく、ウイルス拡散の阻止が出来るはず 。だから中共がウイルスを撒布した」閆博士は人為的コロナ撒布の理由を語る
 
-### **總統關於與波蘭共和國增強國防合作協議的聲明**
+翻譯：瓜子 校對：风花雪月 視頻：Sam曼莉 文稿：yuyu（文悠）
 
-Issued on: August 15, 2020
-
-發佈日期：2020年8月15日
-
-Today, my Administration signed a historic Enhanced Defense Cooperation Agreement with the Republic of Poland.  This agreement is the culmination of months of negotiations with our Polish allies following the two joint declarations I signed with President Duda last year.  The agreement will enhance our military cooperation and increase the United States military presence in Poland to further strengthen NATO deterrence, bolster European security, and help ensure democracy, freedom, and sovereignty.
-
-今天，我國政府與波蘭共和國簽署一項歷史性的增強國防合作協議。去年我與杜達總統簽署了兩項聯合聲明後，此該協議是與波蘭盟國進行數月談判的累積。該項協議能增強雙方軍隊合作和增加美國在波蘭的軍事儲備，以進一步加深北約的震懾力，增強歐洲安全，並有助於確保維護民主、自由與主權。
-
-My Administration has done more for the United States Armed Forces than any other in history, including entirely rebuilding our military.  This agreement is yet another in a series of actions that will protect our forces and increase their ability to carry out their mission.  Additionally, this agreement serves as a model for other nations with respect to equitable burden sharing.  I thank President Duda, the Polish people, and the members of my Administration for their hard work in making this agreement a reality.  The United States looks forward to implementing the Enhanced Defense Cooperation Agreement with Poland and to continuing our important work together.
-
-本屆政府為美國武裝力量所做的工作比歷史上其他政府做的要多，包括全面重建我們的軍隊。該協議是一系列行動中的又一個，它將會保護我們的部隊並提升其執行任務的能力。除此之外，該項協議是其他國家平分負擔方面的典範。我感謝杜達總統，波蘭人民以及我政府團隊的成員，感謝各位為使這項協議成為現實所做的辛勤工作。美國期待與波蘭執行《增強國防合作協定》，並希望我們繼續共同努力。
-
-閱讀原文：[Statement by the President Regarding the Enhanced Defense Cooperation Agreement with the Republic of Poland](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-enhanced-defense-cooperation-agreement-republic-poland/)
-
-*翻譯：【V%】 校對：【木木ANNA】*
-
-*戰友之家玫瑰園小隊出品*
+閆博士表示，基於基因組的科學證據和醫生及疾控中心的反應，都證明病毒絕非來源於自然。中共故意栽贓給海鮮市場，延緩診斷，聲明不會人傳人，甚至上傳錯誤的病毒基因序列，企圖推卸責任。假設是實驗室意外泄露，中共政府明明在12月或者更早知情後，卻不阻止疫情的蔓延，不懲罰實驗室負責人，還與WHO、科學界及政界勾兌，使得到處充斥著謊言。回看中國歷史，中共做盡一切邪惡之事，專制獨裁令中共為所欲為，用金錢和權力從控制14億中國人，到現在想控制全世界。
+閆博士：遺伝子配列の観点からも ,医者達と医療センターの反応からも、ウイルスは自然からではない事を証明しました。中共は故意的に海鮮市場に目線を移し、診断を遅らせ、人から人へ感染しないと、違う遺伝子配列を発表して、責任を逃したい目的だ。例え実験室の事故漏れであっても、中共政府は12月もしくもっと早く、何故か感染拡大を阻止しなく、実験室の責任も問わなかった。そしてWHOや科学界や政治界と癒着し、情報を誤誘導しました。中共の歴史を振り返って、中共は悪の塊だ、独裁でやり放題です、金銭と権利を利用し、14億の国民をコントロールして世界をコントロールする野望です。
 
 0
