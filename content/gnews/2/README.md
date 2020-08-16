@@ -1,49 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 評梁振英建議黎智英放棄英國籍以中國人身份在香港搞政治
-`2020-08-15 21:44 Diago` [轉載自GNews](https://gnews.org/zh-hant/298687/)
+## 美國聯邦調查局將參與貝魯特爆炸調查會帶來什麼結果
+`2020-08-16 00:58 Diago` [轉載自GNews](https://gnews.org/zh-hant/299040/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15214808/%E5%B0%81%E9%9D%A2-54.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/16005143/images_%E5%89%AF%E6%9C%AC.jpg)
 作者：Diago
 
-據梁振英[2020年8月15日19:16](https://www.facebook.com/leung.cy.108/posts/1249586935403781?__cft__%5b0%5d=AZXQY7OCn64lT-ubZC97NodWhq0woZpr8WlNV_gnQNid-AlN9GxQWnFxmFeDVpctJuiaBwfzl6LppSCxEv3JAjRiItTOvNxbtj-7ZzHlZyceJCipkJT1_V1-qm-1RDMo9SM&amp;__tn__=%2CO%2CP-R)facebook內容：
+據GNEWS 2020-08-10 02:50發佈的[川普總統在黎巴嫩爆炸案當日記者會全文](https://gnews.org/zh-hans/291407/)：【川普總統：首先，我要向黎巴嫩人民表示最深切的同情，那裡的報導表明，在貝魯特發生的大規模爆炸中，許多人喪生，數百人重傷。我們為所有受害者及其家人禱告。美國隨時準備協助黎巴嫩。我與黎巴嫩人民有很好的關係，我們將在那裡提供幫助。看起來像是一次可怕的襲擊。】
 
-This is a report in the Financial Times today. So Jimmy Lai has been a UK National since 1996, one year before the changeover. What is this Briton doing in Hong Kong, China disguising as a Chinese patriot?
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213707/117714797_1249585155403959_7273294365346837636_n.jpg)
-這條臉書在出口之後又被觀察者網轉為內銷，據[**觀察者網**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年8月16日7:43](https://weibo.com/1887344341/Jg8l05Zkf?ref=home&amp;rid=0_131072_8_1413038356329918455_0_0_0) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
+據GNEWS2020年8月11日03:24發佈的[黎巴嫩大爆炸背後的中共鬼魅影子](https://gnews.org/zh-hans/292603/)：【到目前為止，2750噸具有高度爆炸性的硝酸銨是調查的重點。據政府的說法，這些硝酸銨在沒有安全措施的情況下已經在貝魯特港儲存了六年。現在，奧恩總統表示將從三個層面對爆炸事件展開調查。其一是調查這些危險爆炸物的來源以及存儲方法；其二是澄清究竟是因工作疏忽還是因事故造成的；第三是是否存在“外部干預”。】
 
-【梁振英質問黎智英：敢放棄英國國籍嗎？】
+據[**環球時報**](https://weibo.com/huanqiushibaoguanwei)[2020年8月16日11:50](https://weibo.com/1974576991/Jg9Xg0YhV?from=page_1002061974576991_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-亂港頭目、“壹傳媒”創始人黎智英日前獲保釋後，小動作不斷。香港前特首梁振英15日借英國《金融時報》的一篇文章諷刺黎智英，同時點名“港獨”頭目黃之鋒。
+【[#美國聯邦調查局插手貝魯特港爆炸案#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%81%94%E9%82%A6%E8%B0%83%E6%9F%A5%E5%B1%80%E6%8F%92%E6%89%8B%E8%B4%9D%E9%B2%81%E7%89%B9%E6%B8%AF%E7%88%86%E7%82%B8%E6%A1%88%23&amp;from=default)】美國負責政治事務的副國務卿大衛·黑爾（David Hale）13日在黎巴嫩表示，美國聯邦調查局將和其他國際調查人員一起，對貝魯特港口爆炸案進行調查。黑爾說：“應黎巴嫩政府的邀請，美國聯邦調查局將與黎巴嫩及國際調查人員一道，去揭開大家都想知道的爆炸案謎底。”（央視）[L美國聯邦調查局插手貝魯特港爆炸案](http://t.cn/A6UHXKXO)
 
-梁振英在臉書寫道：“英國金融時報今天的報導，黎智英自從1996年開始就是英國公民，一個英國人在香港搞政治，為了什麼？黎智英有沒有考慮放棄英國國籍，名正言順的以中國人身份在香港搞政治嗎？黃之鋒在呼籲香港官員放棄英國國籍的同時，是否也應該向黎智英進一言？”
+視頻內容——
 
-上述發文的配圖就是英國《金融時報》的文章截圖。 幾小時後，梁振英配合英文文案又發了一次《金融時報》的截圖，他諷刺道：“這個英國人在中國香港做什麼，偽裝成中國愛國者？”[收起全文d](void%280%29;)
+【美國副國務卿黑爾呼籲對貝魯特港大爆炸進行一個徹底透明的調查，他說美國聯邦調查局調查小組受黎巴嫩當局邀請將在本週末抵達參與調查，此外他還強調國家全面控制港口和邊境的必要性。美聯社稱，這顯然是指黎巴嫩真主党目前對港口和邊境施加了影響。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213743/707e96d5gy1ghsaynmhboj20dz0awq51.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213747/707e96d5gy1ghsaynnx9aj20dz09p0v8.jpg)
+黑爾：每個主權國家完全控制其港口和邊境，我想所有黎巴嫩人都願意回到那個時代，不願意生活在最近這些年我們所看到的幹什麼都行的氛圍。】
 
+我們不是軍事專家，也不能從爆料的火焰上分析出更深的結果，但是在這裡我們還是要重播一下貝魯特爆炸的三個畫面——
 
-中共以梁振英的狂吠開道，繼之以党媒加強放送，這就是兲朝對於黎智英先生的定點打擊了。
+> 很明确是被袭击奇怪黎巴嫩至今没说法 [pic.twitter.com/OdllUWh1ym](https://t.co/OdllUWh1ym)
+> — crossstream (@CrossstreamW) [August 12, 2020](https://twitter.com/CrossstreamW/status/1293600864901271552?ref_src=twsrc%5Etfw)
 
-梁振英在徹底淪為中共的一條狗之後，已經失去了正常人的思維和邏輯，主要體現在——
+> 黎巴嫩 不是意外
+> 
+> 😓😓😓 [pic.twitter.com/Zu7kcIZhx0](https://t.co/Zu7kcIZhx0)
+> — 新世紀 (@tmkeyam) [August 9, 2020](https://twitter.com/tmkeyam/status/1292302910420742146?ref_src=twsrc%5Etfw)
 
-1、按梁振英的邏輯只有放棄英國國籍才算名正言順的中國人，其實中國人只是一個寬泛的概念，在華北地區歷史上出現過遼、金、契丹等多個少數民族政權，後來都與漢族融合了，都成了中國人，出生于山東威海的梁振英的父親梁忠恩的血統裡的遼、金、契丹的血緣在概率上要高於土生土長的廣東人和香港人，從這一點來看，作為在香港的威海衛員警後裔的梁振英似乎是名不太正言也不太順的中國人。
+> 海上捕捉来自黎巴嫩贝鲁特的冲击波💥 [pic.twitter.com/JmAT2EHul8](https://t.co/JmAT2EHul8)
+> — 关笑天 (@a23442796) [August 15, 2020](https://twitter.com/a23442796/status/1294625880082231297?ref_src=twsrc%5Etfw)
 
-2、黎智英先生是不是在香港“搞政治”？在我看來只有以賄選的或者通過陰謀控制選舉、變相剝奪公民的投票權等不正當手段取得公職的人，才算是搞政治。從這一點來說林鄭月娥行政當局和發出狗吠的投共求榮的梁振英才算是“搞政治”，黎智英先生的抗爭是“搞政治”嗎？我想這是對黎智英先生的侮辱和褻瀆，黎智英先生的抗爭不是在搞政治，而是不允許讓“政治”來“搞”他！梁振英因為賣身投共作了狗之後，在狗眼看人低之下，把黎智英先生的公民抗爭看成了“搞政治”，原因無它，狗嘴裡長不出象牙。
+看完現場爆炸視頻，我們再把上文提到的三則消息連起來看：
 
-3、黎智英先生為什麼要抗爭？
+1、川普總統看起來黎巴嫩的爆炸像是一次可怕的襲擊，並且宣佈美國將為黎巴嫩提供幫助；
 
-> 【[#黎智英](https://twitter.com/hashtag/%E9%BB%8E%E6%99%BA%E8%8B%B1?src=hash&amp;ref_src=twsrc%5Etfw) 周四在网上直播 落泪感谢港人支持】
-> 黎智英一度落淚，感激外界對他以及壹傳媒的支持，形容這幾天是他人生中最感動及開心的時刻，會一直堅守民主自由![pic.twitter.com/HscW8MJfhW](https://t.co/HscW8MJfhW)
-> — 澳洲大紀元 (@epochtimesau) [August 13, 2020](https://twitter.com/epochtimesau/status/1293810730852966400?ref_src=twsrc%5Etfw)
+2、黎巴嫩總統提出了調查爆炸的三個層面：爆炸物來源及存儲方法、爆炸原因是工作疏忽還是事故、是否存在外部干預；
 
-（注：為避免因推特平臺出現問題，下附推特同源視頻）
+3、美國副國務卿表示每個主權國家完全控制其港口和邊境，我想所有黎巴嫩人都願意回到那個時代，不願意生活在最近這些年我們所看到的幹什麼都行的氛圍。
 
-“我所做的事情不是因為任何東西，只是因為這個地方，對我實在太好，這是我需要對這個地方交代的，這是我應該做的，因為這裡是我的家園，這是培養我今天所擁有一切的家園。”
+綜合分析完三條消息之後，我們再假設一下：
 
-狗眼看人低的梁振英趴在地上一心舔共倒也罷了，但是在舔共之餘發出的對黎智英先生的狂吠，倒不可以等閒視之，對咬人的狗，不打它是不知道痛的，而當英國和其他國家的制裁加諸梁振英時，它就變成了一隻惶惶然的喪家之犬，我相信梁振英們也蹦躂不了幾天了。
+如果這次爆炸是由於中共通過伊朗或者直接與黎巴嫩真主党暗通款曲試圖在中東製造混亂吸引美國和歐洲的注意力的話，如果中共妄圖通過製造這樣一次爆炸切斷中東向歐洲和其他國家的石油供應的話，或者不管什麼目的，經過FBI調查發現中共或伊朗在黎巴嫩貝魯特港爆炸事故中的黑手的時候，它們還會有有多少在這個世界存續的可能？
 
 （文章內容僅代表作者個人觀點）
 
