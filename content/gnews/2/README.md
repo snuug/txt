@@ -1,28 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 邊境衝突令中企在印度營商環境惡化
-`2020-08-15 19:53 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/298577/)
+## 評梁振英建議黎智英放棄英國籍以中國人身份在香港搞政治
+`2020-08-15 21:44 Diago` [轉載自GNews](https://gnews.org/zh-hant/298687/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15184742/1597531531277-1.jpg)圖片來源： [https://techpp.com/2020/06/02/boycott-china-economics-opinion/](https://techpp.com/2020/06/02/boycott-china-economics-opinion/) 
-據路透新德里/上海8月14日報導：五名業內消息人士對路透社表示，小米等中共企業在獲得印度質量控制機構對其產品的批准方面面臨延誤，這因兩國在喜馬拉雅邊境發生衝突後，中共企業營商環境惡化。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15214808/%E5%B0%81%E9%9D%A2-54.jpg)
+作者：Diago
 
-“我們不能像往常一樣做生意了。”文章指出，與印度總理莫迪領導的執政黨有關的印度民族主義up團體呼籲抵制中共進口商品，此後印度加大了對中共進口商品的審查。這些團體對20名印度士兵在6月中印邊界衝突中死亡感到憤怒。
+據梁振英[2020年8月15日19:16](https://www.facebook.com/leung.cy.108/posts/1249586935403781?__cft__%5b0%5d=AZXQY7OCn64lT-ubZC97NodWhq0woZpr8WlNV_gnQNid-AlN9GxQWnFxmFeDVpctJuiaBwfzl6LppSCxEv3JAjRiItTOvNxbtj-7ZzHlZyceJCipkJT1_V1-qm-1RDMo9SM&amp;__tn__=%2CO%2CP-R)facebook內容：
 
-早在今年4月，印度已下令對來自中共的投資進行審查，自衝突發生以來，政府一直推遲做出任何審批。印度貿易部也沒有回應記者的置評請求。
+This is a report in the Financial Times today. So Jimmy Lai has been a UK National since 1996, one year before the changeover. What is this Briton doing in Hong Kong, China disguising as a Chinese patriot?
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213707/117714797_1249585155403959_7273294365346837636_n.jpg)
+這條臉書在出口之後又被觀察者網轉為內銷，據[**觀察者網**](https://weibo.com/newoutlook?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年8月16日7:43](https://weibo.com/1887344341/Jg8l05Zkf?ref=home&amp;rid=0_131072_8_1413038356329918455_0_0_0) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)：
 
-文章指出印度標準局(BIS)最近幾週推遲了對手機零部件和電視機的審批，危及到小米和Oppo等公司的計劃。印度標準局局長蒂瓦里(Pramod Kumar Tiwari)沒有回應記者的置評請求。中共商務部和外交部也沒有立即回應。小米拒絕置評，而Oppo也沒有回應。
+【梁振英質問黎智英：敢放棄英國國籍嗎？】
 
-文章還表示這兩個亞洲大國之間幾十年來最嚴重的邊境緊張局勢已經損害了兩國的經濟關係，印度官員預計這種損害會愈加嚴重。一位官員表示:“兩國關係急劇惡化。”他補充稱，印度不太可能立即批准中共企業的幾項投資提議。一位印度高級官員表示，政府正在製定一項新的標準政策，可能會在8月底宣布，瞄準來自中共和其它國家的低質量產品。 Oppo和小米在內的中共智能手機品牌佔印度智能手機銷量的80%。雖然這兩家公司的大部分產品都是在印度組裝的，但也有一些零部件是從中共進口的。最近幾週，莫迪呼籲建立一個“自力更生的印度”，敦促工業界集中精力提高國內生產。
+亂港頭目、“壹傳媒”創始人黎智英日前獲保釋後，小動作不斷。香港前特首梁振英15日借英國《金融時報》的一篇文章諷刺黎智英，同時點名“港獨”頭目黃之鋒。
 
-文章解釋道，印度標準局的申請通常能在15天內得到處理，但現在該網站稱，截至上週五，有643份申請等待審批，其中394份申請等待超過20天。它沒有說有多少來自中共公司。
+梁振英在臉書寫道：“英國金融時報今天的報導，黎智英自從1996年開始就是英國公民，一個英國人在香港搞政治，為了什麼？黎智英有沒有考慮放棄英國國籍，名正言順的以中國人身份在香港搞政治嗎？黃之鋒在呼籲香港官員放棄英國國籍的同時，是否也應該向黎智英進一言？”
 
-評：回顧當時中印邊境衝突：2020年5月9日，中共國與印度兩國部隊於錫金北部地區的納庫拉發生對峙，後演變為肢體衝突，在衝突中雙方共有11人受傷。 6月2日，中印對峙進一步升級，兩國大幅增兵加勒萬河谷，於6月16日，爆發軍事衝突：印度三人死亡，中共5死11傷。歷史上中共與印度發生過三次邊境衝突。這次來看，印度會走在反共的前列，從軍事、外交和貿易上開始，果斷程度都強於世界其他國家。
+上述發文的配圖就是英國《金融時報》的文章截圖。 幾小時後，梁振英配合英文文案又發了一次《金融時報》的截圖，他諷刺道：“這個英國人在中國香港做什麼，偽裝成中國愛國者？”[收起全文d](void%280%29;)
 
-文章來源： [https://www.business-standard.com/article/international/chinese-firms-feel-the-pinch-of-india-s-new-import-regulations-report-120081401647\_1.html](https://www.business-standard.com/article/international/chinese-firms-feel-the-pinch-of-india-s-new-import-regulations-report-120081401647_1.html)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213743/707e96d5gy1ghsaynmhboj20dz0awq51.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15213747/707e96d5gy1ghsaynnx9aj20dz09p0v8.jpg)
 
-翻譯報導：匿名
 
-校對整理：瑞安平
+中共以梁振英的狂吠開道，繼之以党媒加強放送，這就是兲朝對於黎智英先生的定點打擊了。
+
+梁振英在徹底淪為中共的一條狗之後，已經失去了正常人的思維和邏輯，主要體現在——
+
+1、按梁振英的邏輯只有放棄英國國籍才算名正言順的中國人，其實中國人只是一個寬泛的概念，在華北地區歷史上出現過遼、金、契丹等多個少數民族政權，後來都與漢族融合了，都成了中國人，出生于山東威海的梁振英的父親梁忠恩的血統裡的遼、金、契丹的血緣在概率上要高於土生土長的廣東人和香港人，從這一點來看，作為在香港的威海衛員警後裔的梁振英似乎是名不太正言也不太順的中國人。
+
+2、黎智英先生是不是在香港“搞政治”？在我看來只有以賄選的或者通過陰謀控制選舉、變相剝奪公民的投票權等不正當手段取得公職的人，才算是搞政治。從這一點來說林鄭月娥行政當局和發出狗吠的投共求榮的梁振英才算是“搞政治”，黎智英先生的抗爭是“搞政治”嗎？我想這是對黎智英先生的侮辱和褻瀆，黎智英先生的抗爭不是在搞政治，而是不允許讓“政治”來“搞”他！梁振英因為賣身投共作了狗之後，在狗眼看人低之下，把黎智英先生的公民抗爭看成了“搞政治”，原因無它，狗嘴裡長不出象牙。
+
+3、黎智英先生為什麼要抗爭？
+
+> 【[#黎智英](https://twitter.com/hashtag/%E9%BB%8E%E6%99%BA%E8%8B%B1?src=hash&amp;ref_src=twsrc%5Etfw) 周四在网上直播 落泪感谢港人支持】
+> 黎智英一度落淚，感激外界對他以及壹傳媒的支持，形容這幾天是他人生中最感動及開心的時刻，會一直堅守民主自由![pic.twitter.com/HscW8MJfhW](https://t.co/HscW8MJfhW)
+> — 澳洲大紀元 (@epochtimesau) [August 13, 2020](https://twitter.com/epochtimesau/status/1293810730852966400?ref_src=twsrc%5Etfw)
+
+（注：為避免因推特平臺出現問題，下附推特同源視頻）
+
+“我所做的事情不是因為任何東西，只是因為這個地方，對我實在太好，這是我需要對這個地方交代的，這是我應該做的，因為這裡是我的家園，這是培養我今天所擁有一切的家園。”
+
+狗眼看人低的梁振英趴在地上一心舔共倒也罷了，但是在舔共之餘發出的對黎智英先生的狂吠，倒不可以等閒視之，對咬人的狗，不打它是不知道痛的，而當英國和其他國家的制裁加諸梁振英時，它就變成了一隻惶惶然的喪家之犬，我相信梁振英們也蹦躂不了幾天了。
+
+（文章內容僅代表作者個人觀點）
 
 0
