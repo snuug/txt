@@ -13,6 +13,11 @@
 
 
 
+[8月17日：这个不要脸的CCp……](/content/getter/content/2020/08/5f3ae65c1be0b830427a2c6c.md)
+
+**郭文贵MILES** `2020-08-17T20:19:40`
+##
+
 [8月17号：与战友们分享今天的午餐……](/content/getter/content/2020/08/5f3ac54e1be0b830427a1bc4.md)
 
 **郭文贵MILES** `2020-08-17T17:58:38`
@@ -156,10 +161,5 @@
 [8月7号硅谷的战友做了第二次的宣传片太棒了……https://gtv.org//?videoid=5f2da7c33f706952fe40de3e](/content/getter/content/2020/08/5f2dd4d83f706952fe40fd99.md)
 
 **郭文贵MILES** `2020-08-07T22:25:28`
-##
-
-[8月7日：中南坑的这些老王八蛋们，你们准备好了吗？在你们起床前我送给你们好礼物！ https://www.axios.com/newsletters/axios...](/content/getter/content/2020/08/5f2dd0163f706952fe40f9cd.md)
-
-**郭文贵MILES** `2020-08-07T22:05:10`
 ##
 
