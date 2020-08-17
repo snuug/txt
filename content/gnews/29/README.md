@@ -1,14 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士 病毒是中共故意投放 不論是自然原因還是意外洩漏中共都不應掩蓋事實，都應能阻止病毒擴散（英文English+中文Chinese+日文Japanese）
-`2020-08-16 10:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/299413/)
+## 閆博士接受Newsmax電視台採訪時稱:“病毒源自中共實驗室！”（英文English+瑞典語Swedish）
+`2020-08-16 10:54 GM62` [轉載自GNews](https://gnews.org/zh-hant/299523/)
 
-日語標題 「自然由来でも事故漏れでも事実を隠す必要がなく、ウイルス拡散の阻止が出来るはず 。だから中共がウイルスを撒布した」閆博士は人為的コロナ撒布の理由を語る
+瑞典語標題 I en intervju med Newsmax TV sa Dr. Yan “covid-19 härstammar från KKPs labb!”
 
-翻譯：瓜子 校對：风花雪月 視頻：Sam曼莉 文稿：yuyu（文悠）
+翻譯：JingMerit 校對：lxxy 視頻：小羽
 
-閆博士表示，基於基因組的科學證據和醫生及疾控中心的反應，都證明病毒絕非來源於自然。中共故意栽贓給海鮮市場，延緩診斷，聲明不會人傳人，甚至上傳錯誤的病毒基因序列，企圖推卸責任。假設是實驗室意外泄露，中共政府明明在12月或者更早知情後，卻不阻止疫情的蔓延，不懲罰實驗室負責人，還與WHO、科學界及政界勾兌，使得到處充斥著謊言。回看中國歷史，中共做盡一切邪惡之事，專制獨裁令中共為所欲為，用金錢和權力從控制14億中國人，到現在想控制全世界。
-閆博士：遺伝子配列の観点からも ,医者達と医療センターの反応からも、ウイルスは自然からではない事を証明しました。中共は故意的に海鮮市場に目線を移し、診断を遅らせ、人から人へ感染しないと、違う遺伝子配列を発表して、責任を逃したい目的だ。例え実験室の事故漏れであっても、中共政府は12月もしくもっと早く、何故か感染拡大を阻止しなく、実験室の責任も問わなかった。そしてWHOや科学界や政治界と癒着し、情報を誤誘導しました。中共の歴史を振り返って、中共は悪の塊だ、独裁でやり放題です、金銭と権利を利用し、14億の国民をコントロールして世界をコントロールする野望です。
+視頻簡介
+閆博士在接受Newsmax電視台採訪時稱：2019冠狀病毒是經過實驗室修改的病毒。此病毒是根據中共國軍事研究院發現的蝙蝠冠狀病毒，中共將其命名為ZC45和ZXC21。這兩個基因序列在2017年至2018年間被公佈，可以從美國國家衛生研究院的資料庫中查到。
+I en intervju med Newsmax TV sa Dr. Yan att covid-19 är ett labb modifierat virus som baserat på det kinesiska militära institutet som upptäckte vissa fladdermus-coronavirus. KKP kallade det ZC45 och ZXC21. Dessa sekvenser exponerades mellan 2017 och 2018 som kan kontrolleras från NIH GenBank-databasen.
 
 0
