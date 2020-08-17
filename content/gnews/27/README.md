@@ -1,15 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普:我們非常憤怒! 一定要查明病毒的真相（英文English+瑞典語Swedish）
-`2020-08-16 11:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/299568/)
+## 美國國會調查美國對中共國間諜無人機的依賴
+`2020-08-16 17:42 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/299823/)
 
-瑞典語標題 Trump: Vi är väldigt arga! Vi måste ta reda på var detta virus kom från
+*新聞來源：Washington Freebeacon《自由燈塔》；作者：Adam Kredo；發佈時間：2020年8月11日*
 
-翻譯：JingMerit 校對：lxxy 視頻：小羽
+*翻譯/簡評：雲影Julia；校對：Julia Win；審核：海闊天空；Page：拱卒*
 
-視頻簡介
-我們必須停止將該病毒政治化，而應該團結起來查明該病毒如何傳播到美國和全世界。我們對此感到非常生氣。
-Vi måste sluta politisera viruset, istället vara förenade och ta reda på hur detta virus kom till Amerika och till världen. Vi är väldigt arga över det hela.
+**簡評** ：
+
+幾十年來，隨著中共改革開放並迅速發展壯大的同時，其觸角也伸向了海外。中共利用金融和市場、利用海外的諸多被其滲透控制的機構以及科學家、利用通訊、間諜無人機等各種卑劣手段，盜取歐美先進科技、生物醫藥、航空航天技術、互聯網技術和商業專利情報。提升了盜國賊家族的企業價值後，再將其轉移到海外自己的腰包。
+
+本篇文章闡述了美國兩黨議員已經採取行動，依法調查中共的卑劣手段之一、利用間諜無人機收集美國人和美國國內基礎設施信息，對美國國家安全造成威脅、對美國經濟造成破壞，以及竊取聯邦政府、美國商界和醫學界專有的保密信息。中共這個世界公敵非法瘋狂的行為，必將自取滅亡！
+
+##  **美國國會調查美國對中共國間諜無人機的依賴** 
+
+**中共利用技術在美國進行間諜活動**
+
+[!\[\](https://spark.adobe.com/page/4t7xHbYMRrgLc/images/53681cd2-312a-4502-9b41-86b541634d69.jpg?asset_id=e488017d-c715-4ca0-8b56-28dc75bfc725&amp;img_etag=%22ce9de3360c117f60730f9becc9bc062e%22&amp;size=1024)](https://spark.adobe.com/page/4t7xHbYMRrgLc/images/53681cd2-312a-4502-9b41-86b541634d69.jpg?asset_id=e488017d-c715-4ca0-8b56-28dc75bfc725&amp;img_etag=%22ce9de3360c117f60730f9becc9bc062e%22&amp;size=1024)
+
+共和黨議員對美國依賴中共國製造的無人機展開了調查。這些無人機已成為許多州和地方執法機構的標配，被中共政權用作間諜工具。
+
+雖然隨著美國各州和地方執法機構對無人機技術的依賴，中共國的無人機在美國各地激增，但美國情報機構評估稱，中共國正在利用這些無人機收集美國人和美國國內基礎設施的信息。由於擔心間諜活動，聯邦政府今年早些時候禁止使用中共國製造的無人機，但美國許多州的警察、消防員和急救人員仍在使用這項技術。
+
+國會的共和黨議員致信商務部長威爾伯·羅斯(Wilbur Ross)，請求對中共國複雜的間諜活動展開調查。議員們堅持認為，進口中共國製造的無人機對國家安全構成了威脅，必須加大監管力度，以確保地方當局和應急人員不會讓自己處於弱勢。
+
+這封信是在美國國會對中共在美國境內的間諜活動日益感到擔憂的情況下發出的，這種擔憂遠遠超出了無人機的問題。這封信的組織者之一、議員瑪莎·麥克薩利（Martha McSally-亞利桑那州共和黨議員）,最近提出了一項立法，將阻止聯邦資金用於中共國製造的無人機和類似設備。國會的其它調查則集中在中共對美國經濟的破壞以及竭力從聯邦政府、美國商界和醫學界竊取專有的保密信息。
+
+無人機是地方和國家機關的重要工具，被用於處理從森林大火到關鍵基礎設施的監控等各種問題。中共國在低成本無人機生產方面處於領先地位，這使其成為一個有吸引力的供應商。然而，與中共國的許多科技行業一樣，中共國的無人機行業也受制於中共，後者對無人機獲取的信息實行單方面控制。出於這個原因，美國內政部以安全漏洞為由，於今年1月停飛了其全部800架無人機。
+
+但地方當局繼續購買和部署中共國無人機，促使參議員麥克薩利、湯姆·科頓(Tom Cotton-阿肯色州共和黨人)、里克·斯科特(Rick Scott-佛羅里達州共和黨人)、馬可·盧比奧(Marco Rubio-佛羅里達州共和黨人)、瑪莎·布萊克本(Marsha Blackburn-田納西州共和黨人)、喬什·霍利(Josh Hawley-密蘇里州共和黨人)和理查德·布盧門撒爾(Richard Blumenthal-康涅狄格州民主黨人)要求加強監管。
+[!\[\](https://spark.adobe.com/page/4t7xHbYMRrgLc/images/8bc5dcc4-6678-49e7-915e-9ee6cccae704.jpg?asset_id=8a94b253-b8bf-4ca5-89df-1eaeed24f260&amp;img_etag=%22df68569e60566fc02e5c0b1c6d64d497%22&amp;size=1024)](https://spark.adobe.com/page/4t7xHbYMRrgLc/images/8bc5dcc4-6678-49e7-915e-9ee6cccae704.jpg?asset_id=8a94b253-b8bf-4ca5-89df-1eaeed24f260&amp;img_etag=%22df68569e60566fc02e5c0b1c6d64d497%22&amp;size=1024)
+“為了保護國家安全和美國公民的隱私，並保護國內’無人機’產業，我們要求你們所有對口的商務部門參與，立即調查對國家安全有影響的在中共國製造的’無人機’，並確定任何必要的執法措施,”議員們在8月5日的信中寫道，該信於週二公開發布。
+
+議員們說，中共國無人機“充斥著美國市場，給美國公民的安全和隱私帶來了無數風險”。
+
+議員們說，隨著聯邦政府開始打擊這些中共間諜工具，美國各州和地方政府也必須跟進。
+
+共和黨參議員瑪莎·麥克薩利的5月份立法，特別禁止聯邦資金用於購買與中共有關聯的任何公司的設備。這也適用於那些接受聯邦資金購買此類設備的州。
+
+[原文鏈接](https://freebeacon.com/national-security/congress-probes-u-s-reliance-on-chinese-spy-drones/)
+
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/4t7xHbYMRrgLc/) 】
 
 0
