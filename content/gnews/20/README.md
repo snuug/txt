@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士接受Newsmax電視台採訪時稱:“病毒源自中共實驗室！”（英文English+瑞典語Swedish）
-`2020-08-16 10:54 GM62` [轉載自GNews](https://gnews.org/zh-hant/299523/)
+## 班農疫情作戰室選摘（第331期）
+`2020-08-16 12:09 GM99` [轉載自GNews](https://gnews.org/zh-hant/299597/)
 
-瑞典語標題 I en intervju med Newsmax TV sa Dr. Yan “covid-19 härstammar från KKPs labb!”
+#### **作者：文章**
 
-翻譯：JingMerit 校對：lxxy 視頻：小羽
 
-視頻簡介
-閆博士在接受Newsmax電視台採訪時稱：2019冠狀病毒是經過實驗室修改的病毒。此病毒是根據中共國軍事研究院發現的蝙蝠冠狀病毒，中共將其命名為ZC45和ZXC21。這兩個基因序列在2017年至2018年間被公佈，可以從美國國家衛生研究院的資料庫中查到。
-I en intervju med Newsmax TV sa Dr. Yan att covid-19 är ett labb modifierat virus som baserat på det kinesiska militära institutet som upptäckte vissa fladdermus-coronavirus. KKP kallade det ZC45 och ZXC21. Dessa sekvenser exponerades mellan 2017 och 2018 som kan kontrolleras från NIH GenBank-databasen.
+
+**(10:47)**
+**波索比克（OAN評論員）表示**
+•有臥底記者獨家錄像，812安提法燒美國旗，燒豬頭，燒川普旗，向聯邦法庭警察發射煙花火箭；
+•暴力由安提法所引起，他們宣稱美國政府、體制為法西斯主義，在手冊和宣傳已明示要訴諸暴力，這是他們的選擇，源於反法西斯主義與無政府主義的意識型態，812騷亂非因執法引起。
+
+**(36:13)**
+**里奇博士（耶魯大學醫學院流行疫學家）指出**
+•武漢病毒疫症第一階段，始於重感冒，以烴氯奎組合治療，有效幫助免疫系統，第二階段，平均從第六、七、八日，有人發展成嚴重肺炎，治療方法不同。
+•建議FDA：1. 授權緊急使用，允許可能有效疫苗就應允許可能有效藥物 2. 以科學論據平衡目前一面倒反烴氯奎聲浪。
 
 0
