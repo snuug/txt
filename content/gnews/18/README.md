@@ -1,19 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月16日中共病毒疫情要聞快報
-`2020-08-16 10:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/299511/)
+## 川普:我們非常憤怒! 一定要查明病毒的真相（英文English+瑞典語Swedish）
+`2020-08-16 11:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/299568/)
 
-**重要內容：**
+瑞典語標題 Trump: Vi är väldigt arga! Vi måste ta reda på var detta virus kom från
 
-- 川普直言考慮禁阿里巴巴；
-- 班農：支持黑命貴示威的幕後金主到底是誰？
-- 四川綿陽發生暴雨，內澇嚴重；
-- G系列是進入西方金融領域的鑰匙！
+翻譯：JingMerit 校對：lxxy 視頻：小羽
 
+視頻簡介
+我們必須停止將該病毒政治化，而應該團結起來查明該病毒如何傳播到美國和全世界。我們對此感到非常生氣。
+Vi måste sluta politisera viruset, istället vara förenade och ta reda på hur detta virus kom till Amerika och till världen. Vi är väldigt arga över det hela.
 
-
-
-製作：【上天造滅疫組】
-
-1
+0
