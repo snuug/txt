@@ -1,18 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月17日財經快訊: 央行大放水, 華為被絞殺
-`2020-08-17 11:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/300541/)
+## 史上最强硬推文!皮特纳瓦罗发推直指CCP病毒源头，质疑中共执政合法性!
+`2020-08-17 13:15 GM01` [轉載自GNews](https://gnews.org/zh-hant/300593/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17113234/Picture-1-59.png)
-[1. 中共央行8月17日公告稱，將開展7000億中期借貸便利操作（MLF）操作，同時開展500億員7天逆回購操作。該公告表明貨幣政策將走向寬鬆](https://money.163.com/20/0817/15/FK8B4H1300259DLP.html)
+2020年8月17日,美国总统助理,白宫贸易与制造业政策办公室主任,皮特纳瓦罗一条推特让很多灭共阵营的战友为之一振!
 
-[2. 美商務部將38家華為子公司列入實體清單，被列入實體需獲得美商務部頒發的許可證，才能購買美國技術，但美政府會抱著拒絕態度審視此類申請](https://www.cnbc.com/2020/08/17/us-to-tighten-restrictions-on-huawei-access-to-technology-chips-sources-say.html)
+> There's only one president in the world responsible for killing over 160,000 Americans and that's the unelected president of Communist China. We're all China Hawks now![https://t.co/QkTKIZwNO6](https://t.co/QkTKIZwNO6)
+> — Peter Navarro (@PeterNavarro45) [August 17, 2020](https://twitter.com/PeterNavarro45/status/1295391850971488256?ref_src=twsrc%5Etfw)
 
-[3. 中共監管機構或進一步收緊房地產發債規模，借新還舊額度按照70%-90%實行。據中房研究協會數據顯示，2020下半年房企融資債券到期規模約為5588億元（RMB）。房企將迎來又一輪寒冬。](https://www.epochtimes.com/gb/20/8/16/n12334710.htm)
+“全世界只有一个总统要对16万死去的美国人负责,他就是没被选举的中国共产党的主席!现在我们在中国问题上都是鹰派!
 
-[4. 摩根斯坦利表示：市場對國會達成刺激性利好政策預期更高，或對政府下一步決策施加一定壓力](https://www.zerohedge.com/markets/morgan-stanley-market-stakes-are-now-even-higher-congress-reach-stimulus-deal)
+据了解,皮特纳瓦罗在中国问题上,是川普总统最信任的人之一, 该推文可以凭得上是西方政要在中共国问题上最强硬的一条,不仅将CCP病毒的责任直指源头,并且在提到中国共产党主席的时候使用了”uneleted不是选举的”一词直接对中国共产党的执政合法性带来了强烈的冲击.
 
-新聞整理：【密翻組-金融法律組】
+2020年8月16日,川普总统,高级顾问库什纳以及班农先生同时出镜福克斯新闻接受玛丽亚采访，意味着美国两党选举之争正式上升为美国与中共之间在大选上的较量。
 
-2
+皮特纳瓦罗也是第一个使用CCPVirus的美国政要，该推文一个小时前，皮特纳瓦罗另一条推文将共产党和民主党联系了起来，更加证明了郭先生多次提到的，2020年美国的选举实则是美国人与共产党的较量“
+
+“两个党——民主党和中国共产党想要把杀死了16万美国人来自中国的病毒其责任错怪在美国总统头上#共产党撒谎人们死亡”
+
+在病毒问题上民主党尝试将病毒的责任“扣在”川普总统头上。对于川普总统来说，将病毒的责任指向真正的源头——中国共产党，不仅是选举的需要，也是正义的需要。
+
+
+
+1
