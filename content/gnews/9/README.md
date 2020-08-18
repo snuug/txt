@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年8月16日CCP冠狀病毒大流行第205集
-`2020-08-17 09:32 GM30` [轉載自GNews](https://gnews.org/zh-hant/300468/)
+## 多行不義必自斃，華爲即將完蛋？“中共病毒疫情每日熱線”
+`2020-08-17 09:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/300476/)
 
-中共多家銀行凍結儲蓄卡；中共欲強制征收生育基金；成都暴雨，城市被淹；城管毆打婦女，中共以黑治國；小斯基戰友展示新中國聯邦國旗，飛躍中共國……
+**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
 
 1

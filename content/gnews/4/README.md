@@ -1,18 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月17日財經快訊: 央行大放水, 華為被絞殺
-`2020-08-17 11:41 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/300541/)
+## 進駐TikTok敵營Triller 川普首支影片近120萬人搶先看
+`2020-08-17 19:35 GM37` [轉載自GNews](https://gnews.org/zh-hant/300824/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17113234/Picture-1-59.png)
-[1. 中共央行8月17日公告稱，將開展7000億中期借貸便利操作（MLF）操作，同時開展500億員7天逆回購操作。該公告表明貨幣政策將走向寬鬆](https://money.163.com/20/0817/15/FK8B4H1300259DLP.html)
+作者：GM40
 
-[2. 美商務部將38家華為子公司列入實體清單，被列入實體需獲得美商務部頒發的許可證，才能購買美國技術，但美政府會抱著拒絕態度審視此類申請](https://www.cnbc.com/2020/08/17/us-to-tighten-restrictions-on-huawei-access-to-technology-chips-sources-say.html)
+今天川普總統註冊類似「抖音」的美國Triller（創辦人是美籍華裔）粉絲立馬上萬；他上的第一個視頻110萬人觀看。
 
-[3. 中共監管機構或進一步收緊房地產發債規模，借新還舊額度按照70%-90%實行。據中房研究協會數據顯示，2020下半年房企融資債券到期規模約為5588億元（RMB）。房企將迎來又一輪寒冬。](https://www.epochtimes.com/gb/20/8/16/n12334710.htm)
+Triller去年1300萬訂戶，現5500萬。川普下令要禁抖音，因它收集美國用戶個資，包括政府員工行蹤（給中共當局），危害美國安全。禁抖音、微信，關閉中領館，趕走華為，追捕中共間諜學者等，川普總統是真抗共！
 
-[4. 摩根斯坦利表示：市場對國會達成刺激性利好政策預期更高，或對政府下一步決策施加一定壓力](https://www.zerohedge.com/markets/morgan-stanley-market-stakes-are-now-even-higher-congress-reach-stimulus-deal)
+白宮與中國影音媒體公司字節跳動(ByteDance)和旗下抖音(TikTok)的戰爭持續延燒，根據福斯財經新聞網(Fox Business)的報導，川普總統的競選團隊15日向抖音競爭對手Triller申請帳號，並迅速在該平台上傳第一支影片，截至16日中午累積有120萬的點閱率。
 
-新聞整理：【密翻組-金融法律組】
+川普總統PO上的影片僅短短15秒，川普在影片中稱自己「是科技領域的專業人士」，並對著鏡頭表示：「沒有人能像我一樣，沒有人。」
 
-2
+Triller的創立至今已經屆滿五年，同樣也是主打結合人工智慧的影音娛樂平台，自從各地開始發起抖音的抵制行動後，該平台的下載次數就不斷突破新高；今年6月由於印度政府對抖音進行制裁，Triller在該國的下載次數甚至超過1.2億。
+
+Triller執行長盧麥克(Mike Lu，音譯)曾經表示：「若抖音未來真的被逐出美國市場，我們將會有很高的機率能成功取代它」；而隨著川普6日簽署的行政命令，要求在45天後封殺抖音和海外版微信(WeChat)，Triller的下載量在當週末暴增，許多TikTok知名網紅也同時宣佈遷移到Triller。
+
+新聞鏈接[https://udn.com/news/story/6813/4788097](https://udn.com/news/story/6813/4788097)
+
+0
