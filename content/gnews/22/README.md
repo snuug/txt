@@ -1,9 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 硫酸羟氯喹需要正義人士的支持推廣！中南坑擔心美國脫鈎？“中共病毒疫情每日熱線”
-`2020-08-18 03:24 GM30` [轉載自GNews](https://gnews.org/zh-hant/301346/)
+## 閆博士談中共繼續存在沒有人會安全也不會有疫苗（西班牙語Spanish+英語English）
+`2020-08-18 09:46 GM62` [轉載自GNews](https://gnews.org/zh-hant/301664/)
 
-**歡迎加入Discord戰友之家：[http://vog.media/](http://vog.media/)**
+西班牙語標題 La Dra.Yan dice que si el PCCh queda allí, nadie está en salvo y nunca se puede desarrollar una vacuna
 
-1
+內容簡介
+閆博士談中共繼續存在沒有人會安全也不會有疫苗 閆博士的專業與勇氣讓班農先生兩次敬禮。
+
+La Dra.Yan dice que si el PCCh queda allí, nadie está en salvo y nunca se puede desarrollar una vacuna. El profesionalismo y el coraje de la Dra.Yan hizo que el Sr.Bannon la saludara dos veces.
+
+
+
+2
