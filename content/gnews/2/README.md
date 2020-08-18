@@ -1,113 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 關於字節跳動公司收購Musical.ly的行政令
-`2020-08-18 12:55 GM31` [轉載自GNews](https://gnews.org/zh-hant/302023/)
+## 日本引以為傲75個和平年將面臨中朝導彈的挑戰
+`2020-08-18 14:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302058/)
 
-**Order Regarding the Acquisition of Musical.ly by ByteDance Ltd**
+- 安倍晉三政府長期以來關注的焦點威脅：隨時可能來自朝鮮或中國彈道導彈襲擊。
 
-### **關於字節跳動公司（ByteDance）收購Musical.ly的行政令**
 
-**Issued on: August 14, 2020**
+- “我不認為《憲法》意味著我們只是坐下來等待死！”— 前首相的鳩山一郎（Ichiro Hatoyama）
 
-**2020****年****8****月****14****日發佈**
 
-By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 721 of the Defense Production Act of 1950, as amended (section 721), 50 U.S.C. 4565, it is hereby ordered as follows:
 
-根據美國憲法和美利堅合眾國法律，包括經修正的1950年《國防生產法》第721節（第721節）《美利堅合眾國法典》第50編 4565節賦予我的總統職權，現特此命令如下：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18142118/1597774860687.jpg)
+據紐約時報（The New York Time)最新報導，對多數世界大國而言，購買武器來防禦朝鮮和中國等國家並不引人注目，但在日本，它正在引起一場敏感的政治辯論。
 
-Section 1.  Findings.  (a)  There is credible evidence that leads me to believe that ByteDance Ltd., an exempted company with limited liability incorporated under the laws of the Cayman Islands (“ByteDance”), through acquiring all interests in musical.​ly, an exempted company with limited liability incorporated under the laws of the Cayman Islands (“Musical.​ly”), might take action that threatens to impair the national security of the United States.  As a result of the acquisition, ByteDance merged its TikTok application with Musical.​ly’s social media application and created a single integrated social media application; and
+東京—安倍晉三（Shinzo Abe）面臨著日本首相任期中史無前例的嚴峻挑戰，冠狀病毒（CCP病毒）持續爆發，經濟陷入衰退，民眾對日本政府處理危機感到厭倦。然而，安倍晉三政府的注意力集中在另一種威脅，這一威脅其實是日本政府長期以來關注的焦點：隨時可能來自朝鮮或中國彈道導彈襲擊。
 
-第1節. 調查結果. （a）有可靠的證據使我相信字節跳動（ByteDance） Ltd.是一家根據開曼群島法律註冊成立的獲豁免公司（“ ByteDance”）。Musical.ly是一家根據開曼群島法律註冊成立的豁免有限責任公司（”Musical.ly”）, 字節跳動通過收購Musical.ly所有權益的行動可能威脅到美國國家安全。收購結果是，字節跳動將其TikTok應用程式與Musical.ly的社交媒體應用程式合併，創建了一個整合社交媒體應用程式;及
+本月，安倍晉三的政黨開始公開討論，如果導彈襲擊迫在眉睫，日本是否應該購買能夠打擊到敵方領土內導彈發射場的武器。對於多數世界大國來說，這種能力將是微不足道的。但是對於日本來說，這一提議充滿了爭議。日本在周六紀念第二次世界大戰結束75週年，以及摒棄戰爭75年之際。考慮放寬日本攻擊其他國家目標能力的限制時，執政黨觸活了曠日持久敏感的政治辯論。
 
-(b)  Provisions of law, other than section 721 and the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.), do not, in my judgment, provide adequate and appropriate authority for me to protect the national security in this matter.
+討論之所以在進行，是因為日本發現自己陷入了中國在亞洲不斷發動的軍事挑釁行為的境地之中。美國一度堅定地致力於保證該地區安全，但是目前是否持續可靠已經成為問題。日本國防部長河野太郎（Taro Kono）在本週的日本防衛省接受采訪時，迴避地談論了購買長距離導彈提議的敏感話題。
 
-（b）我認為，除第721條和《國際緊急經濟權力法》（美國法典50 U.S.C. 1701及以下）以外，其它法律規定在這件事上並未給我提供充分和適當的權力來保護國家安全。
+**關於日本憲法和本國軍事發展**
 
-Sec. 2.  Actions Ordered and Authorized.  On the basis of the findings set forth in section 1 of this order, considering the factors described in subsection (f) of section 721, as appropriate, and pursuant to my authority under applicable law, including section 721, I hereby order that:
+河野太郎（Taro Kono）先生說：“從邏輯上講，我不會說這是零百分比”，他指出，任何購買此類武器都需要配套複雜的雷達和監視系統以及對軍事人員進行培訓才可以使用它們。 “政府尚未真正做出任何決定。”河野先生的謹慎回答反映出日本民眾對日本的和平憲法的強烈認同，該憲法是美國占領者於1947年制定的，並將日本所能進行的軍事行動限制為自衛範圍。
 
-第2節. 命令和授權的行動. 根據本命令第1節中列出的調查結果，我酌情考慮了第721節（f）款中所述的因素，並根據包括第721節在內的適用法律授權，我命令：
+安倍晉三多年來努力嘗試修改《憲法》中的和平主義條款遭到了強烈反對。總理內閣的議會聯盟夥伴公明黨（Komeito）和自民黨（Liberal Democrats）表示，他們不支持購買遠程導彈。東京國立政策研究所（National Graduate Institute）研究生院安全與國際研究計劃主任道下徳成（Narushige Michishita）說：“就日本而言，提出這樣的建議可能是可恥的。” “如同當人們開始談論“罷工”時，人們會感到非常震驚。”
 
-(a)  The transaction resulting in the acquisition by ByteDance of Musical.​ly, to the extent that Musical.​ly or any of its assets is used in furtherance or support of, or relating to, Musical.​ly’s activities in interstate commerce in the United States (“Musical.​ly in the United States”), is hereby prohibited, and ownership by ByteDance of any interest in Musical.​ly in the United States, whether effected directly or indirectly through ByteDance, or through ByteDance’s subsidiaries, affiliates, or Chinese shareholders, is also prohibited.
+但是，鑑於日本周圍的風險越來越大，包括朝鮮擴大核武庫和中國在病毒大流行期間表現出的逼人態勢，道下徳成（Michishita）和其他安全分析人士表示，考慮加強防禦措施是自然而然的。在日本公共廣播公司NHK本週的一次民意測驗中，一半的受訪者表示，日本應該購買能夠在導彈發射出敵方領土外就可以將其阻止的武器。此項測驗的支持率目前比安倍晉三更高：根據NHK最近的一項民意調查，只有34％的受訪者贊成內閣目前的表現，這是自安倍晉三在2012年重新就任首相以來的最低水平。 （ 他從2006年到2007年擔任第一任。）
 
-（a）導致字節跳動公司（ByteDance）收購Musical.ly的交易，如果Musical.ly或其任何資產被用於促進或支持或與Musical.ly在各州之間貿易中的活動有關, 則在此禁止字節跳動（ByteDance）擁有Musical.ly在美國的任何權益，無論是直接或間接通過字節跳動（ByteDance），還是通過字節跳動（ByteDance）的子公司、關聯公司或中國股東，都是禁止的。
+這個數字很大程度上是由於公眾對政府發出關于冠狀病毒的各種混合複雜信息感到沮喪，即使感染病例案件還在增加，政府仍在7月份對國內旅行推廣實施補貼。安倍晉三在公眾場合露面時，還一直在闢謠關於他的健康狀況。
 
-(b)  In order to effectuate this order, not later than 90 days after the date of this order, unless such date is extended for a period not to exceed 30 days, on such written conditions as the Committee on Foreign Investment in the United States (CFIUS) may impose, ByteDance, its subsidiaries, affiliates, and Chinese shareholders, shall divest all interests and rights in:
+**關於** **“岸邊宙斯盾”（Aegis Ashore）**
 
-（b）為了執行該命令，在該命令發佈之日起90天內，除非該日期的延長為期不超過30天，否則根據美國外國投資委員會(CFIUS)可能規定的書面條件為准,字節跳動（ByteDance）及其子公司、分支機搆和中國股東應剝離以下公司的所有權益：：
+目前關於購買遠程導彈的討論並不是空穴來風，由於政府在6月份決定取消購買本該在日本北部和西部部署的美國導彈防禦系統，即“岸邊宙斯盾”（Aegis Ashore）。執政黨表示，在取消該系統後，有必要尋找其他替代方案用來攔截來襲導彈。
 
-(i)   any tangible or intangible assets or property, wherever located, used to enable or support ByteDance’s operation of the TikTok application in the United States, as determined by the Committee; and
+河野太郎（Kono）先生說，儘管從原則上來說，岸上宙斯盾是一種很好的防禦方式，但是系統中確保火箭助推器不會落在日本領土內，所必需的硬件調整成本之高，實在令人望而卻步。考慮到這筆費用，他說：“我認為這不值得。”但是，儘管日本已決定取消部署美國的導彈系統，河野太郎（Kono）表示，我們重要的是向朝鮮“發送明確的信息“，明確日本與美國的聯盟，”我們決心保護日本免受朝鮮的任何導彈襲擊。”在聯盟中，美國歷來承擔提供進攻能力的角色，而日本則堅持純粹的防禦活動。
 
-（i）委員會確定的任何有形或無形資產或財產，無論位於何處，用於促成或支援字節跳動在美國運行抖音（TikTok）應用程式的情況；和
+目前約55,000名美軍駐紮在日本，新加坡國際戰略研究所（International Institute for Strategic Studies）亞太安全高級研究員尤安·格雷厄姆（Euan Graham）比喻說：“美日同盟的舊模式是日本戴著“盾牌”並擁有“劍”。”
 
-(ii)  any data obtained or derived from TikTok application or Musical.​ly application users in the United States.  Immediately upon divestment, ByteDance shall certify in writing to CFIUS that all steps necessary to fully and permanently effectuate the actions required under sections 2(a) and 2(b) have been completed.
+格雷厄姆（Euan Graham）說：“但是這種模式已經被打破了很多年。” 隨著Trump政府推動盟國為自己的防衛承擔更多責任，這種趨勢一直在加速。澳大利亞是美國在太平洋的另一個盟友，最近宣布了新的遠程導彈軍事支出計劃。韓國最近還談妥了美國強加的導彈放寬準則，這將使韓國能夠製造可用於遠程導彈的火箭。
 
-（ii）從美國的抖音應用程式或Musical.ly應用程式使用者獲得或衍生的任何資料。資產剝離後，字節跳動公司應立即向外國投資委員會（CFIUS）書面證明，完全和永久地執行第2（a）和2（b）節所要求的所有必要步驟均已完成, 以全面和永久地實施這些行動。
+三年前，朝鮮導彈高空飛過日本上空，所有的手機發出嗶嗶的警告，日本必須做出類似的計算。鑑於Trump總統可以連任第二任期的可能性，日本“正在尋求開放防務選擇”。 “日本越來越必須通過日本手段提供自己的防禦。” 紐約外交關係委員會（Foreign Relations）亞洲研究高級研究員米拉·拉普-胡珀（Mira Rapp-Hooper）說，“日本越來越必須通過日本自己的手段提供自己的防禦。”
 
-(c)  Immediately upon divestment, ByteDance shall certify in writing to CFIUS that it has destroyed all data that it is required to divest pursuant to section 2(b)(ii), as well as all copies of such data wherever located, and CFIUS is authorized to require auditing of ByteDance on terms it deems appropriate in order to ensure that such destruction of data is complete.
+**日本隊自身導彈發展和抵禦中朝的威脅**
 
-（c）資產剝離後，字節跳動應立即以書面形式向外國投資委員會（CFIUS）證明其已銷毀根據第2(b)(ii)條要求剝離的所有資料，以及此類資料的所有副本，無論存於何處，以及外國投資委員會（CFIUS）被授權要求按其認為適當的條款對字節跳動進行審核，以確保完成此類資料銷毀。
+在本月東京舉行的新聞發布會上，有記者問日本防衛大臣河野太郎（Taro Kono），日本在購買遠程導彈時是否需要考慮中國或韓國的敏感神經。批評人士質疑日本侵略戰爭時期的受害者是否會認為這種導彈違反了其對和平主義的憲法承諾。 “在中國加強導彈的時候，為什麼我們需要他們的批准？” 河野先生反駁說。 “為什麼我們需要獲得韓國的批准才能保衛我們的領土？” 日本對遠程導彈的討論可以追溯到1956年，當時日本政府裁定日本擁有向敵國發射導彈以抵抗對日本領土發動攻擊的合法權利。
 
-(d)  ByteDance shall not complete a sale or transfer under section 2(b) to any third party:
+當時，擔任首相的鳩山一郎（Ichiro Hatoyama）曾有句著名的話：“我不認為《憲法》意味著我們只是坐下來等待死亡。”2003年，當時的日本防衛大臣石破茂（Shigeru Ishiba）詳細介紹了日本向朝鮮等其他國家發射導彈的條件：如果敵人的導彈被加油並裝載到了發射器上，它攻擊日本的意圖顯而易見。這樣的標準可能導致模糊的決定和有關日本何時才能部署自己的導彈的疑問。
 
-（d）字節跳動（ByteDance）不得向任何協力廠商完成第2(b)條規定的銷售或轉讓。
+蘭德公司（RAND Corporation）分析師杰弗裡·霍恩（Jeffrey Hornung）對於僅允許自衛的意圖表示：“日本必須找到在法律準則上繼續精確細化的方法和策略”。 “如果你看到火箭在發射架上加油，卻不知道它的發射方向，如果對它進行摧毀，你就剛剛發動了一場戰爭。”
 
-(i)   until ByteDance notifies CFIUS in writing of the intended recipient or buyer; and
+作為自衛活動的一部分，日本海岸警衛隊一直密切監視中國派遣的艦船在釣魚島群島/尖閣諸島（Senkakus）附近的水域巡邏，尖閣諸島是日本管理的東海島嶼，但遭到中國的反對。日本最近還簽署了一項協議，借用越南巡邏艇，以監測南中國海的海上活動，中國最近在該海域中計劃發展其軍事力量。
 
-（i）直到字節跳動（ByteDance）以書面形式將預期的接收方或買方通知外國投資委員會（CFIUS）；以及
+河野太郎（Taro Kono）在接受采訪時說，日本不希望其任何行動被視為引起該地區衝突的挑釁行為。河野說：“我不認為我們即將發動戰爭或其他任何事情。” “而且我認為我們不應該在任何地方加劇緊張局勢。”一些分析家指出，日本已經開始發展發動導彈反擊的能力。兩年前，當日本發布新的國防方針時，指明日本可以購買可用於攻擊敵方軍艦甚至陸地基地目標的導彈。
 
-(ii)  unless 10 business days have passed from the notification in section 2(d)(i) and CFIUS has not issued an objection to ByteDance.  Among the factors CFIUS may consider in reviewing the proposed sale or transfer are whether the buyer or transferee:  is a U.S. citizen or is owned by U.S. citizens; has or has had a direct or indirect contractual, financial, familial, employment, or other close and continuous relationship with ByteDance, or its officers, employees, or shareholders; and can demonstrate a willingness and ability to support compliance with this order.  In addition, CFIUS may consider whether the proposed sale or transfer would threaten to impair the national security of the United States or undermine the purpose of this order, and whether the sale effectuates, to CFIUS’s satisfaction and in its discretion, a complete divestment of all tangible or intangible assets or property, wherever located, used to enable or support the operation of the TikTok application in the United States.
+批評人士說，安倍晉三政府試圖利用當前的情況，使公眾對購買遠程導彈的討論簡短化。 “我認為這是絕大多數日本人的共識，即萬不得已時，在敵軍進攻前五分鐘，日本作為一個主權國家有權攻擊試圖襲擊我們的敵軍，” 時任日本海上自衛隊總司令Yoji Koda （香田洋二）說。但他說，當前的提議“可能是一種避開討論的肆意嘗試，把結論推向去擁有攻擊能力“。東京佐川和平基金會（Sasakawa Peace Foundation）高級研究員渡邊恆雄（Tsuneo Watanabe）說，美國讓盟國承擔更多國防費產生了盟國的焦慮，可能會促使東京就購買遠程導彈進行更認真的討論。
 
-（ii）除非第第2(d)(i)中規定的通知發出後已過10個工作日，並且外國投資委員會（CFIUS）沒有對字節跳動提出異議。 外國投資委員會（CFIUS）在審查擬議的出售或轉讓中可能考慮以下因素：包括買方或受讓方是否為美國公民或由美國公民所有；與字節跳動或其高管，員工或股東有直接或間接的合同，財務，家族，雇傭關係或其他密切和持續的關係; 並且可以證明願意並有能力遵守本命令。此外，外國投資委員會（CFIUS）可能會考慮擬議的出售或轉讓是否會威脅到美國的國家安全或破壞該命令的目的，以及出售是否有效，使外國投資委員會（CFIUS）滿意並自行決定完全撤銷所有無論在何處的有形或無形資產或財產，用於在美國啟用或支持抖音（TikTok）應用程式的運營。
+原文： [https://www.nytimes.com/2020/08/16/world/asia/japan-military-missiles-pacifist.html](https://www.nytimes.com/2020/08/16/world/asia/japan-military-missiles-pacifist.html?auth=login-google)
 
-(e)  From the date of this order until ByteDance provides a certification of divestment to CFIUS pursuant to section 2(b), ByteDance and TikTok Inc., a Delaware corporation, shall certify to CFIUS on a weekly basis that they are in compliance with this order and include a description of efforts to divest the interests and rights described in section 2(b) and a timeline for projected completion of remaining actions.
+翻譯：匿名
 
-（e）從本命令發出之日起，直到字節跳動（ByteDance）根據第2(b)向外國投資委員會（CFIUS）提供剝離證明為止，字節跳動（ByteDance）和德拉瓦州公司抖音（TikTok Inc.）均應每週向外國投資委員會（CFIUS）證明其遵守該命令，並說明為剝離第2(b)節所述利益和權利所做的努力以及預計完成剩餘行動的時間表。
+校對：瑞安平
 
-(f)  Any transaction or other device entered into or employed for the purpose of, or with the effect of, evading or circumventing this order is prohibited.
-
-（f）禁止為逃避或規避本命令的目的或效果而進行或使用的任何交易或其他手段。
-
-(g)  Without limitation on the exercise of authority by any agency under other provisions of law, and until such time as the divestment is completed and verified to the satisfaction of CFIUS, CFIUS is authorized to implement measures it deems necessary and appropriate to verify compliance with this order and to ensure that the operations of the TikTok application are carried out in such a manner as to ensure protection of the national security interests of the United States.  Such measures may include the following:  on reasonable notice to ByteDance and TikTok Inc., employees of the United States Government, as designated by CFIUS, shall be permitted access, for purposes of verifying compliance with this order, to all premises and facilities of ByteDance and TikTok Inc., and any of their respective subsidiaries, operated in furtherance of the TikTok application located in the United States:
-
-（g）在不限制任何機構根據其他法律規定行使職權的前提下，在撤資完成並得到外國投資委員會（CFIUS）滿意的核查之前，外國投資委員會（CFIUS）被授權執行其認為必要和適當的措施, 以核查本命令的遵守情況，並確保抖音（TikTok）應用程式的運作方式能夠確保保護美國的國家安全利益。這些措施可能包括：在合理通知字節跳動（ByteDance）和抖音（TikTok）公司後，外國投資委員會（CFIUS）指定的美國政府雇員應獲准進入字節跳動（ByteDance）和抖音（TikTok）公司及其各自的分支結構在美國境內為促進抖音（TikTok）應用而運營的所有房舍和設施，以核查本命令的遵守情況。
-
-(i)    to inspect and copy any books, ledgers, accounts, correspondence, memoranda, and other records and documents in the possession or under the control of ByteDance or TikTok Inc., or any of their respective subsidiaries, that concern any matter relating to this order;
-
-（i）檢查並複製字節跳動（ByteDance）或抖音（TikTok Inc.）或其各自任何子公司擁有或控制的與該命令有關的任何帳簿，分類帳，帳目，信件，備忘錄和其他記錄和檔。
-
-(ii)   to inspect or audit any information systems, networks, hardware, software, data, communications, or property in the possession or under the control of ByteDance or TikTok Inc., or any of their respective subsidiaries; and
-
-（ii）檢查或審核字節跳動（ByteDance）或抖音（TikTok Inc.）或其各自任何子公司擁有或控制的任何資訊系統，網路，硬體，軟體，資料，通信或財產；和
-
-(iii)  to interview officers, employees, or agents of ByteDance or TikTok Inc., or any of their respective subsidiaries, concerning any matter relating to this order.  CFIUS shall conclude its verification procedures within 90 days after the certification of divestment is provided to CFIUS pursuant to subsection (b) of this section.
-
-（iii）就與本命令有關的任何事宜約談字節跳動（ByteDance）或抖音（TikTok Inc.）或其任何子公司的高級管理人員，員工或代理商。 外國投資委員會（CFIUS）應在根據本節(b)款在撤資證明被提交至外國投資委員會（CFIUS）後的90天內完成其核查程式。
-
-(h)  If any provision of this order, or the application of any provision to any person or circumstances, is held to be invalid, the remainder of this order and the application of its other provisions to any other persons or circumstances shall not be affected thereby.  If any provision of this order, or the application of any provision to any person of circumstances, is held to be invalid because of the lack of certain procedural requirements, the relevant executive branch officials shall implement those procedural requirements.
-
-（h）如果本命令的任何規定或對任何人或情況的任何規定的適用被認為無效，則本命令的其餘部分及其其他規定對任何其他人或情況的適用均不受影響。如果由於缺乏某些程式要求而使本命令的任何規定或對任何人的適用都無效，則相關行政部門的官員應執行這些程式要求。
-
-(i)  The Attorney General is authorized to take any steps necessary to enforce this order.
-
-（i）司法部部長被授權採取任何必要的步驟來執行該命令。
-
-Sec. 3.  Reservation.  I hereby reserve my authority to issue further orders with respect to ByteDance, Musical.​ly, Musical.​ly in the United States, and TikTok Inc. as shall in my judgment be necessary to protect the national security.
-
-第3節.  保留. 我在此保留對字節跳動（ByteDance）、Musical.ly、美國的Musical.ly和抖音（TikTok Inc.）發佈進一步命令的權力，因為我認為這對保護國家安全是必要的。
-
-Sec. 4.  Publication and Transmittal.  (a)  This order shall be published in the Federal Register.
-
-第4節. 出版和傳播. （a）該命令應在《聯邦公報》上公佈。
-
-(b)  I hereby direct the Secretary of the Treasury to transmit a copy of this order to the appropriate parties named in section 1 of this order.
-
-（b）我在此指示財政部長將本命令的副本轉交給本命令第1節中指定的有關各方。
-
-出處：[Order Regarding the Acquisition of Musical.ly by ByteDance Ltd](https://www.whitehouse.gov/presidential-actions/order-regarding-acquisition-musical-ly-bytedance-ltd/)
-
-*翻譯：【JennyL】 校對：【Naomi】 【GM31】【Winston Jackson】* *編輯:【GM31】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0
