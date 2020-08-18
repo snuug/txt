@@ -1,23 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/09 CCP病毒每日疫情直播簡報
-`2020-08-17 23:44 GM62` [轉載自GNews](https://gnews.org/zh-hant/301015/)
+## 前中情局官員被捕，中共的觸角無處不在
+`2020-08-18 04:06 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/301385/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18035116/1-86.png)圖片來源：Medium 
+美國司法部網站8月17日發布文章稱，現年67歲的前中央情報局（CIA）軍官馬玉清(音譯，Alexander Yuk Ching Ma)於2020年8月14日被逮捕，罪名是他與一名同樣任職於CIA的親戚同謀，向中國共產黨傳遞最高級別機密，包含這項指控的刑事訴狀當天上午已公佈。
 
-[English\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)
+美國國家安全助理總檢察長約翰•德默斯（John C. Demers）表示： “中共間諜活動的足跡很長，可悲的是，這些被捕情報人員背叛了他們的同事、國家及其自由民主的價值觀，去支持一個專制的共產主義政權。這種背叛永遠都不值得。無論當下，還是在他們認為自己逃脫了懲罰很多年後，我們都會找到這些叛徒並將他們繩之以法。對於中共的情報部門來說，這些人是可以犧牲的。對於我們來說，感到悲哀而又緊迫，這提醒我們需要時刻保持警惕。”夏威夷地區美國檢察官肯吉•普萊斯（Kenji Price）表示：“今天宣布的指控令人震驚，也讓我們清醒的認識到，在夏威夷的社區，那些企圖通過間諜行為危害我們國家安全的人所構成的持續威脅。特別值得關注的是，我們國家情報界的人員竟然會向中共洩露機密的國防信息，背叛他們的同事和國家。我的團隊將繼續堅定的地追查間諜活動。” 聯邦調查局（FBI）反情報部門特工艾倫•科勒（Alan E.Kohler Jr .）談到：“這起嚴重的間諜案是中共在美國境內開展的專門針對美國進行的一系列非法活動的其中一件。此案表明，無論調查時間長短或者難度如何，聯邦調查局的所有人都將不懈努力，以保護我們的國家安全不受中共情報部門的威脅。眾所周知，任何違反信任立場，背叛美國的人都將面臨司法制裁，不管需要多少年將其罪行公佈於眾，我們都將繼續努力追究。”他還提到，“這些案件非常複雜，要花費數年甚至數十年才能得出結論。他為聯邦調查局檀香山分部的所有人所做的工作感到自豪。他們的奉獻精神提醒我們，在確保美國國家安全與保障方面，聯邦調查局將永遠不會放棄。”
 
-[French\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)
+馬玉清是香港出生的美國籍居民。根據法庭的文件顯示，馬於1982年開始為中央情報局工作，對最高機密進行審查，並按照規定簽署了保密協議，在這些協議中，他承認自己在中央情報局任職期間有負責保護美國政府機密的責任。馬於1989年離開中央情報局，並在上海工作生活，之後又於2001年來到夏威夷。在十年的時間裡，馬和他的親戚（被確認為1號同謀）勾結，並與多名中共情報官員密謀交流國防信息。這兩名前中央情報局官員於2001年3月在香港舉行為期三天的會議中，向中共情報機構提供了有關美國中央情報局的人員，行動和隱藏通訊方法的信息。會議的部分內容被錄像記錄下來，其中一段視頻顯示馬為他們提供機密，同時接受了對方5萬美元的現金。
 
-[Japanese\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)
+法院文件進一步稱，馬定居夏威夷後，他尋求在美國聯邦調查局工作，以便再次獲得美國政府機密信息，而他又可以將這些信息提供給中共與他的聯絡人。 2004年，聯邦調查局（FBI）檀香山辦事處（Honolulu Field Office）聘請馬為合同語言學家，負責審查和翻譯中文文件。在接下來的六年中，馬經常進行文件複印，拍照和偷盜帶有美國機密標記的文件，例如標註了“秘密”（SECRET）的文件。馬經常前往中國，隨身攜帶一些盜取的文件和圖像，把這些文件和圖像提供給聯絡人，並帶著數千美元的現金和昂貴的禮物從中國返回，例如一套新的高爾夫球桿等。法院文件顯示，2019年春，在兩次會議中，馬承認了他是潛伏在聯邦調查局中的臥底，為中共提供情報服務，還表示願意再次為中共情報部門提供信息，中共為此給他過2千美元現金的“小恩小惠”。 2020年8月12日，在被捕前與另一名潛伏在FBI的臥底人員會面時，馬再次接受了錢財作為他過去提供情報的獎賞，他表示願意繼續幫助中共政府，還表示希望“祖國”獲得成功。
 
-[Korean\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)
+馬將於明天在美國夏威夷州地方法院首次出庭，他被控罪名是串謀傳播國防信息以協助外國政府，如果罪名成立，他將面臨最高無期徒刑的懲處，最高刑期由國會決定，此處僅供參考。
 
-[Russian\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)
+```
+ 
+```
 
-[Spanish\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)
+```
+附件：马玉清起诉书
+```
 
+[原文鏈接](https://www.justice.gov/opa/pr/former-cia-officer-arrested-and-charged-espionage)
 
+翻譯報導：Hakunamatata
 
-0
+1

@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 站在十字路口的美國
-`2020-08-17 20:52 GM30` [轉載自GNews](https://gnews.org/zh-hant/300942/)
+## 國家安全顧問羅伯特·奧布萊恩就《美國-哥倫比亞增長倡議書》發表聲明
+`2020-08-18 02:06 GM31` [轉載自GNews](https://gnews.org/zh-hant/301275/)
 
-**作者：美東香草山教育組**
+**Statement by National Security Advisor Robert C. O’Brien**
 
-前言：全球化在當今世界，正遭受著人們的普遍質疑。各種觀點也紛繁複雜。利益共同體和科技等力量的濫用，有時會超越傳統國家主權的約束，從而給世界帶來混亂。
+### **國家安全顧問羅伯特·奧布萊恩的聲明**
 
-美國地緣政治大師布熱津斯基的《The choice,global domination or global leadership》一書中是這樣寫的。“美國社會所激發的全球化趨勢，淡化了國家主權。美國的力量和美國的發展動力結合在一起，將可能促使逐漸形成一個利益共享的全球共同體。濫用美國的力量和社會影響，就會給世界帶來混亂，使美國陷入困境”。中共國正是利用了美國的開放社會，一點點賺取實力。
+Issued on: August 17, 2020
 
-截止2020年8月15日，美國感染中共病毒數據已達540萬人，死亡超17萬人。美國陷入了空前的危險之中，必須盡快勇敢地做出選擇。
+發行日期：2020年8月17日
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17204837/1-69.jpg)
+Today, on behalf of President Donald J. Trump, I am pleased to announce the United States-Colombia Growth Initiative, which signals a new era of partnership between our two great countries. This bilateral initiative will harness a wide variety of agencies across the United States Government to expand our efforts focused on rural development, infrastructure expansion, security, and the rule of law. Together with the Colombian government, we will work to identify new opportunities for investment, sustainable development, and growth for Colombia.
 
-美國科技力量被濫用和盜用
+今天，我榮幸地代表唐納德·J·川普總統宣佈《美國-哥倫比亞增長倡議書》，這標誌著我們兩個偉大國家之間夥伴關係的新時代。這項雙邊倡議將利用美國政府各式機構來擴大我們在農村發展，基礎設施擴展，安全和法治方面的努力。我們將與哥倫比亞政府一道，為哥倫比亞尋找投資，可持續發展和增長的新機會。
 
-遍布美國的孔子學院，已經被美國列爲外交使團。孔子學院是打著學術交流的幌子滲透美國各大院校。哈佛、耶魯、麻省理工等等這些一流大學，被ＣＣＰ滲透後。很多頂尖實驗室科技人才被同時邀請或與中共國相關人才交流。從而，很多科研機構的知識産權和前沿技術被盜用。很多留美的華裔科學家悄悄被中共列入了千人計劃，爲中共國不斷輸送美國的最新科技成果。美國的知識産權嚴重受到了危害。
+This economic-based initiative will complement the United States’ expansive efforts to improve governance, security, and rule of law abroad. As part of our *América Crece*strategy in the Western Hemisphere, the United States seeks to strengthen our relationships with friends and allies in the region to achieve lasting security and prosperity for the 21st century. We continue to stand with our partner and close ally, the Government of Colombia, as we confront the challenges ahead and work together to advance our goals in the Western Hemisphere.
 
-過度全球化掏空了美國的制造業 全美地圖上的鐵鏽地帶，就是中共國與國際資本掏空美國傳統制造業的傑作。鐵鏽地帶主要是五大湖區的賓夕法尼亞、俄亥俄州、印第安納、密歇根、伊利諾伊等。自八十年代開始，制造業崗位丟失80%以上。原來的鋼鐵企業、汽車企業、零配件企業大量轉移至亞洲。尤其是大部分轉移至中共國。産業快速轉移導致這些地區人口大量外遷。比如：底特律人口下降30%，克利夫蘭下降19.8%，匹茲堡人口下降10%。這種産業的快速外遷導致當地經濟沒有獲得喘息的機會，人口大量外遷，嚴重影響當地社會經濟和秩序。工作機會的大量流失導致社會矛盾和不公的大量産生。藍領就業崗位的大量流失給後來的ANTIFA和芬太尼留下了乘虛而入的缺口。美國的社會根基在被動搖。
+這項以經濟為基礎的計畫將使美國為改善海外治理，安全和法治所作的廣泛努力更加完備。作為我們在西半球[“美州增長”（AméricaCrece）](https://www.state.gov/wp-content/uploads/2019/11/America-Crece-FAQs-003-508.pdf)戰略的一部分，美國尋求加強與該地區朋友和盟友的關係，以實現21世紀的持久安全與繁榮。我們將繼續與我們的夥伴和親密盟友哥倫比亞政府站在一起，面對未來的挑戰，為實現我們在西半球的目標而共同努力。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17204718/2-43.jpg)
+出處:[Statement by National Security Advisor Robert C. O’Brien](https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-081720/)
 
-全球化下的公司利益高于國家利益
+*翻譯：【倚天劍】*  *校對**&**編輯：【**GM31**】*
 
-國際資本爲了滿足自身利益最大化，片面追求自身價值。在疫情發生後，表現在關鍵的醫療産業鏈滯留在中共國。比如：美國的醫藥公司嚴重依賴海外的抗生素原料（大部分集中在中共國）。其他還有維生素原料、醫療防護用品、呼吸機等等。導致疫情發生時物資匮乏。此外，在有效藥羥綠奎的使用上。美國大型醫藥企業明顯有阻止其使用的迹象。強生、輝瑞等藥企爲了追求自身利益，可能並不願考慮推廣羥氯喹的使用。CDC、FDA等機構也明顯出現袒護大型藥企迹象。這種一味追求公司價值妨礙了公衆的利益和美國的國家利益。
+*戰友之家玫瑰園小隊出品*
 
-美國到了必須做出選擇的最後時刻
-
-美國的力量對于全球安全發揮穩定器的作用。美國的民主和成功的典範，轉播著經濟、文化、科技的發展，從而超越了國界的全球性相互依賴。然而，當這種全球化出現對美國本土嚴重傷害的情況下，美國必須要迅速的做出選擇！
-
-（文章內容僅代表作者觀點）
-
-0
+1

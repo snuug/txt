@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本國立大學首鼠兩端，對中共國欲拒還迎！
-`2020-08-17 19:49 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/300858/)
+## 刪除和重發瑞士駐華使館的新浪微博就能阻止草根的評論嗎
+`2020-08-18 00:35 Diago` [轉載自GNews](https://gnews.org/zh-hant/301171/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17194012/1597707218697.jpg)圖片：東京大學
-儘管日本政府對中共國竊取情報的行為一直心存警惕，擔心先進技術會通過日本的國立大學被中共國竊取，然而實際上日本很多尖端技術研究中心依然存在依賴中共國的現象。對於大學來說，與國外企業的合作研究項目是其重要的資金來源。因此那些高度重視科研成果的大學往往在強化規章制度，防止信息洩露這方面表現得併不積極。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003121/%E5%B0%81%E9%9D%A2-58.jpg)
+作者：Diago
 
-三重大學於2016年針對日本的國立大學做了一個問卷調查，結果顯示有將近半數的規模化院校即便設立了防止信息洩露的涉外部門，實際上也沒能發揮很好的作用。大部分情況都是由缺乏涉外管理知識的擔任其他職務的教職員工來兼任該部門的工作。
+據韓連潮先生@lianchaohan2020年[Aug 17，9:58AM](https://twitter.com/lianchaohan/status/1295178201703030784)推文：
 
-一位國立大學副教授指出，儘管我們通過大量的電子郵件和培訓等方式試圖喚起人們對涉外管理的注意，但是學校高層的回應往往是“無論如何都應該與外部實驗室進行互動”。這個事實說明，日本國立大學目前無論在人才上還是在資金上都不得不依賴國外。
+> 大陆微信群，瑞士大使馆网站火🔥了，下面这条微博成了网红：大陆民众纷纷要求瑞士爆出中国百人存款7.8万亿的储户名单。可见，尽管中共国当局竭力封锁墙外信息，但依旧有很多大陆人通过各种渠道获得信息，并且抓住各种机会表达意愿。 [pic.twitter.com/MYtlTOvPB1](https://t.co/MYtlTOvPB1)
+> — 韩连潮 (@lianchaohan) [August 17, 2020](https://twitter.com/lianchaohan/status/1295178201703030784?ref_src=twsrc%5Etfw)
 
-日本大學2018年度與海外企業之間的合作研究項目數量為320個，大約是2014年的1.5倍。在資金方面，海外企業提供的資金量是日本國內企業提供資金量的將近10倍。
+在防火牆之下，草根的怒火象地底奔流的岩漿一樣在隨時找突破口噴發，這一次民憤的突破口是瑞士駐華大使館的這條微博：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003126/7f391a56a9cc2c3274d410204b90e4d4.jpg)
+但是現在我們已經看不到這條微博了——它被刪除了,與被刪除微博同內容的微博又一次發出來了，據[**瑞士駐華大使館**](https://weibo.com/swissembassy)[2020年8月18日11:25](https://weibo.com/2603537861/JgsEdnirz?from=page_1001062603537861_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-由於攻讀理工科研究生的日本學生數量不斷減少，使得日本的國立大學愈發青睞那些打算繼續深造的優秀的中共國留學生。截至5月20日，僅東京大學的本科及研究生院中就有4,000多名海外留學生，其中約60％是中國人。
+[置頂](void%280%29;)[#打卡瑞士#](https://s.weibo.com/weibo?q=%23%E6%89%93%E5%8D%A1%E7%91%9E%E5%A3%AB%23&amp;from=default)[#瑞士電影配音大賽#](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%A3%AB%E7%94%B5%E5%BD%B1%E9%85%8D%E9%9F%B3%E5%A4%A7%E8%B5%9B%23&amp;from=default) 全網開啟為慶祝瑞士和中國建交70周年，同賀全國影院復工複映🎬瑞士駐華大使館攜手 [@瑞士國家旅遊局](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E5%9B%BD%E5%AE%B6%E6%97%85%E6%B8%B8%E5%B1%80?from=feed&amp;loc=at) ，[@微天下](https://weibo.com/n/%E5%BE%AE%E5%A4%A9%E4%B8%8B?from=feed&amp;loc=at) 和 [@盧米埃影業](https://weibo.com/n/%E5%8D%A2%E7%B1%B3%E5%9F%83%E5%BD%B1%E4%B8%9A?from=feed&amp;loc=at) ，隆重推出瑞士電影《海蒂和爺爺》配音大賽![\[赞啊\]]()本次大賽面對所有公眾開放，年齡不是問題，語言不是距離，男女老少鹹宜🌹四種語言版本同時啟動，不管是德語、法語、義大利語還是中文，總能找到你心目中那一款海蒂![\[好喜欢\]]()祝大家參（wan）賽（de）開心![\[好爱哦\]]()詳細參賽規則、評審陣容及獎項細則請參見活動海報 [@瑞士駐上海總領事館](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E9%A9%BB%E4%B8%8A%E6%B5%B7%E6%80%BB%E9%A2%86%E4%BA%8B%E9%A6%86?from=feed&amp;loc=at)[@瑞士駐成都總領事館](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E9%A9%BB%E6%88%90%E9%83%BD%E6%80%BB%E9%A2%86%E4%BA%8B%E9%A6%86?from=feed&amp;loc=at)[@北京法語聯盟](https://weibo.com/n/%E5%8C%97%E4%BA%AC%E6%B3%95%E8%AF%AD%E8%81%94%E7%9B%9F?from=feed&amp;loc=at)[@濟南法語聯盟](https://weibo.com/n/%E6%B5%8E%E5%8D%97%E6%B3%95%E8%AF%AD%E8%81%94%E7%9B%9F?from=feed&amp;loc=at)[@微瑞士](https://weibo.com/n/%E5%BE%AE%E7%91%9E%E5%A3%AB?from=feed&amp;loc=at)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003137/%E6%8D%95%E8%8E%B74-2.jpg)
+此時此刻，這條新浪微博下邊的即時評論是這樣的——
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003153/%E6%8D%95%E8%8E%B72-3.jpg)
+什麼是歷史？這就是！什麼是電影？這就是！人民知道了真相，它們幻想著堵住人民的嘴、捂住人民的眼睛、塞住人民的耳朵，它們製造著恐懼，並幻想著人民會屈服於這種恐懼、會盲從於它們刻意營造的“真相”，瑞士駐華大使館的這條微博還能不能繼續存活？我們不知道，但是我們都知道哪怕刪除了重新再發同內容的微博，大家依然端著小板凳在微博下邊發出自己的怒吼——
 
-日本文部科學省認為，雖然強化國立大學的涉外管理制度將會影響到大學在科研成果方面的產出，但還是應該著手討論如何在經濟安全保障和科研成果這兩個方面找到一個平衡點。
+公佈盜國賊名單！
 
-譯者觀點：
+11月公投！
 
-中共國通過向全世界知名院校及科研機構提供研究經費的手段向各個國家輸出了大量學術間諜，近兩年美國已經抓捕了大量混跡在美國學術圈的中共國間諜人員，當中甚至還有中共國空軍現役軍官！由此可見中共國對全球學術界滲透之深，之廣。日本也不例外，作為鄰國的日本更是中共的重點滲透對象。對於身在學術圈的科學家們來說，最重要的不是產出多少成果，而是產出的成果是不是被用在正確的地方！科研機構的腐敗給人類帶來的災難要遠遠超過經濟腐敗或者政治腐敗，想想現在的中共病毒不就是那些由海外科研機構長期培養的中共學術間諜製造出來的嗎？醒醒吧！一邊是正義和國家安全，另一邊是魔鬼的科研經費，那些有著深厚底蘊的高等學府難道還不明白那個才是正確的選擇嗎?
+而就在寫稿的這會兒，刪除評論與網友們持續評論的角逐依然在進行中，最新的評論是這樣的——
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003205/%E6%8D%95%E8%8E%B73-1.jpg)
+讓我們共同圍觀赤納粹對民意恐懼刪除評論的現場直播——
 
-新聞來源：Sankeibiz
+[https://weibo.com/2603537861/JgsEdnirz?from=page\_1001062603537861\_profile&wvr=6&mod=weibotime&type=comment#\_rnd1597723786517](https://weibo.com/2603537861/JgsEdnirz?from=page_1001062603537861_profile&amp;wvr=6&amp;mod=weibotime&amp;type=comment#_rnd1597723786517)
 
-原文銜接： [https://www.sankeibiz.jp/macro/news/200812/mca2008120500003-n1.htm](https://www.sankeibiz.jp/macro/news/200812/mca2008120500003-n1.htm)
+（文章內容僅代表作者個人觀點）
 
-翻譯：黑貓
-
-校對：千葉子菜 格物小哥
-
-發布：瑞安平
-
-0
+1

@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/09 CCP病毒每日疫情直播簡報
-`2020-08-17 23:44 GM62` [轉載自GNews](https://gnews.org/zh-hant/301015/)
+## 阿聯酋和以色列歷史性和平協議對新中國的啟示
+`2020-08-18 03:51 GM06` [轉載自GNews](https://gnews.org/zh-hant/301345/)
 
-戰友之家圖文摘要及小語種組
+作者：背靠背
 
-[English\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)
+中東地處在連接歐亞非、地中海、印度洋的關鍵位置，是大國角力的場所，現在是正義與邪惡較量的戰場，中東動蕩壹直是世界不安定的重要誘因比如石油，這歷史性和平協議將積極促進中東地區和平與發展，中東整體將投向美國陣營，中共壹帶壹路，統治歐亞非陰謀企圖徹底破產。
 
-[French\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)
+ 石油是國家經濟發展的重要資源，中共是原油進口大國，石油短缺，飛機飛不起、坦克汽車跑不動、供應鏈斷裂、通脹、經濟歇菜、金融崩潰、貨幣崩盤。根據海關原油進口數據，截止2020年6月，中共對中東石油的依賴接近五成。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18034557/%E5%9B%BE%E7%89%87-1-6.png)
+值得壹提，中共習近平2018年7月19日對阿聯酋國事訪問後，原油進口大幅增加，2019和2020年進口排名第八。2017，2018年中國石油多次在阿聯酋獲得陸地油田和海上油田特許經營權。
 
-[Japanese\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)
+ 如果中東對中共斷油，中共經濟崩盤、直接拿掉中共人冥幣和股市搟面杖。中東國家在中共病毒施虐下，經濟和老百姓生命財產都遭受嚴重損失，原油價格低迷，甚至在今年4月份出現負價格。有必要向中共討回真相、要求中共為巨大損失負全部責任。
 
-[Korean\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)
+ 截止2020年8月18日以色列總人口888.4萬人，累計感染中共病毒94751人，死亡692人；阿聯酋總人口963.1萬人，確診累計感染中共病毒64541人，死亡364人。
 
-[Russian\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)
+ 根據Tradingeconomics數據，2019年以色列GDP總額3951億美元，2020年預測值減少至3400億美元，下降13.95%；阿聯酋GDP總額4211.4億美元，2020年預測值減少至3750億美元，下降10.96%。
 
-[Spanish\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)
+**中共唯恐中東不亂，善於制造、挑撥和利用各種矛盾，制造和利用仇恨，中東國家化幹戈為玉帛，中共在中東無立足之地，對中共背後支持者壹次重大勝利。**
+
+中共在中東壹手支持伊朗，另壹手玩轉沙特、科威特、阿聯酋，在他們中間遊走，挑撥，互相制衡，利益誘惑威脅，賣武器，買石油，控制油田，甚至用人冥幣結算原油。
+
+ 中東走向歷史性和平，斷絕了中共利用中東國家、宗教、種族矛盾，進行利益綁架，把這些中東國家綁架到中共魔鬼戰車之上—壹帶壹路。中共大量出口武器到中東國家加劇中東亂局，2016年壹枚中共國設計的C801導彈擊中了阿聯酋海軍的運輸船。美國軍火公司在中東亂局中通過賣武器賺的盆滿缽滿，中東和平動了不少華爾街利益集團蛋糕。
+
+ 中東化幹戈為玉帛，致力應對中共病毒威脅和經濟發展，排除中共邪惡勢力，共同抵抗中共病毒，是正義和生存的需要。
+阿聯酋和以色列歷史性和平協議加速了中東和平進程，接下去沙特很可能很快與以色列簽署協議，敘利亞和伊朗非法獨裁統治結束，埃及和北非、東非國家都可能加入和平協議等等。
+
+**阿聯酋和以色列歷史性和平協議給沒有中共的新中國的啟示。**
+ 中共統治中國大陸70余年，國衰山河破，在長期中共洗腦統治下，物欲橫流，人性扭曲，社會上下充滿戾氣，無處不在的仇恨，經常能看到這樣的新聞，因壹個口角，壹個眼神，遭至毒打，甚至因此失去生命。99%的共產黨員都是好人，只有少少數中南坑盜國家族需要被清算。郭文貴先生提出的新中國大赦是大智慧，最大可能解決新中國千年與世界其他國家和平發展問題。如果沒有中國共產黨的新中國依然背負仇恨大包袱，無法輕裝重新上路，社會陷入無休止的仇恨報復、不穩定的惡性循環之中，這是中國老百姓不可承受的，卸下過去包袱，放眼未來機遇，中東已經做出最佳選擇。
+
+ 題外話，在郭文貴與新西蘭農場老班長等戰友連線直播提到，這個和平協議最大貢獻者是托尼布萊爾，川普總統和庫什納是美國最大推手和UAE英雄王子MBZ，文貴先生多次視頻中提到托尼布萊爾，並且在慈善事業與他有合作，因此從阿以和平協議整個過程，處處透露出郭文貴先生影子。中共楊潔篪在中東外交的失敗，他能逃過中共絞肉機體制嗎？
 
 
 
-0
+1
