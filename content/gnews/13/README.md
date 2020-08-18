@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 進駐TikTok敵營Triller 川普首支影片近120萬人搶先看
-`2020-08-17 19:35 GM37` [轉載自GNews](https://gnews.org/zh-hant/300824/)
+## 【世界多語言圖文】2020/08/09 CCP病毒每日疫情直播簡報
+`2020-08-17 23:44 GM62` [轉載自GNews](https://gnews.org/zh-hant/301015/)
 
-作者：GM40
+戰友之家圖文摘要及小語種組
 
-今天川普總統註冊類似「抖音」的美國Triller（創辦人是美籍華裔）粉絲立馬上萬；他上的第一個視頻110萬人觀看。
+[English\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234102/English_0809_CCP_Virus_Updates.pdf)
 
-Triller去年1300萬訂戶，現5500萬。川普下令要禁抖音，因它收集美國用戶個資，包括政府員工行蹤（給中共當局），危害美國安全。禁抖音、微信，關閉中領館，趕走華為，追捕中共間諜學者等，川普總統是真抗共！
+[French\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234109/French_0809_CCP_Virus_Updates.pdf)
 
-白宮與中國影音媒體公司字節跳動(ByteDance)和旗下抖音(TikTok)的戰爭持續延燒，根據福斯財經新聞網(Fox Business)的報導，川普總統的競選團隊15日向抖音競爭對手Triller申請帳號，並迅速在該平台上傳第一支影片，截至16日中午累積有120萬的點閱率。
+[Japanese\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234112/Japanese_0809_CCP_Virus_Updates.pdf)
 
-川普總統PO上的影片僅短短15秒，川普在影片中稱自己「是科技領域的專業人士」，並對著鏡頭表示：「沒有人能像我一樣，沒有人。」
+[Korean\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18021306/Korean_0809_CCP_Virus_Updates-1.pdf)
 
-Triller的創立至今已經屆滿五年，同樣也是主打結合人工智慧的影音娛樂平台，自從各地開始發起抖音的抵制行動後，該平台的下載次數就不斷突破新高；今年6月由於印度政府對抖音進行制裁，Triller在該國的下載次數甚至超過1.2億。
+[Russian\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234105/Russian_0809_CCP_Virus_Updates.pdf)
 
-Triller執行長盧麥克(Mike Lu，音譯)曾經表示：「若抖音未來真的被逐出美國市場，我們將會有很高的機率能成功取代它」；而隨著川普6日簽署的行政命令，要求在45天後封殺抖音和海外版微信(WeChat)，Triller的下載量在當週末暴增，許多TikTok知名網紅也同時宣佈遷移到Triller。
+[Spanish\_0809\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17234115/Spanish_0809_CCP_Virus_Updates.pdf)
 
-新聞鏈接[https://udn.com/news/story/6813/4788097](https://udn.com/news/story/6813/4788097)
+
 
 0
