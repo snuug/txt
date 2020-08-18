@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 站在十字路口的美國
-`2020-08-17 20:52 GM30` [轉載自GNews](https://gnews.org/zh-hant/300942/)
+## 刪除和重發瑞士駐華使館的新浪微博就能阻止草根的評論嗎
+`2020-08-18 00:35 Diago` [轉載自GNews](https://gnews.org/zh-hant/301171/)
 
-**作者：美東香草山教育組**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003121/%E5%B0%81%E9%9D%A2-58.jpg)
+作者：Diago
 
-前言：全球化在當今世界，正遭受著人們的普遍質疑。各種觀點也紛繁複雜。利益共同體和科技等力量的濫用，有時會超越傳統國家主權的約束，從而給世界帶來混亂。
+據韓連潮先生@lianchaohan2020年[Aug 17，9:58AM](https://twitter.com/lianchaohan/status/1295178201703030784)推文：
 
-美國地緣政治大師布熱津斯基的《The choice,global domination or global leadership》一書中是這樣寫的。“美國社會所激發的全球化趨勢，淡化了國家主權。美國的力量和美國的發展動力結合在一起，將可能促使逐漸形成一個利益共享的全球共同體。濫用美國的力量和社會影響，就會給世界帶來混亂，使美國陷入困境”。中共國正是利用了美國的開放社會，一點點賺取實力。
+> 大陆微信群，瑞士大使馆网站火🔥了，下面这条微博成了网红：大陆民众纷纷要求瑞士爆出中国百人存款7.8万亿的储户名单。可见，尽管中共国当局竭力封锁墙外信息，但依旧有很多大陆人通过各种渠道获得信息，并且抓住各种机会表达意愿。 [pic.twitter.com/MYtlTOvPB1](https://t.co/MYtlTOvPB1)
+> — 韩连潮 (@lianchaohan) [August 17, 2020](https://twitter.com/lianchaohan/status/1295178201703030784?ref_src=twsrc%5Etfw)
 
-截止2020年8月15日，美國感染中共病毒數據已達540萬人，死亡超17萬人。美國陷入了空前的危險之中，必須盡快勇敢地做出選擇。
+在防火牆之下，草根的怒火象地底奔流的岩漿一樣在隨時找突破口噴發，這一次民憤的突破口是瑞士駐華大使館的這條微博：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003126/7f391a56a9cc2c3274d410204b90e4d4.jpg)
+但是現在我們已經看不到這條微博了——它被刪除了,與被刪除微博同內容的微博又一次發出來了，據[**瑞士駐華大使館**](https://weibo.com/swissembassy)[2020年8月18日11:25](https://weibo.com/2603537861/JgsEdnirz?from=page_1001062603537861_profile&amp;wvr=6&amp;mod=weibotime) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17204837/1-69.jpg)
+[置頂](void%280%29;)[#打卡瑞士#](https://s.weibo.com/weibo?q=%23%E6%89%93%E5%8D%A1%E7%91%9E%E5%A3%AB%23&amp;from=default)[#瑞士電影配音大賽#](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%A3%AB%E7%94%B5%E5%BD%B1%E9%85%8D%E9%9F%B3%E5%A4%A7%E8%B5%9B%23&amp;from=default) 全網開啟為慶祝瑞士和中國建交70周年，同賀全國影院復工複映🎬瑞士駐華大使館攜手 [@瑞士國家旅遊局](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E5%9B%BD%E5%AE%B6%E6%97%85%E6%B8%B8%E5%B1%80?from=feed&amp;loc=at) ，[@微天下](https://weibo.com/n/%E5%BE%AE%E5%A4%A9%E4%B8%8B?from=feed&amp;loc=at) 和 [@盧米埃影業](https://weibo.com/n/%E5%8D%A2%E7%B1%B3%E5%9F%83%E5%BD%B1%E4%B8%9A?from=feed&amp;loc=at) ，隆重推出瑞士電影《海蒂和爺爺》配音大賽![\[赞啊\]]()本次大賽面對所有公眾開放，年齡不是問題，語言不是距離，男女老少鹹宜🌹四種語言版本同時啟動，不管是德語、法語、義大利語還是中文，總能找到你心目中那一款海蒂![\[好喜欢\]]()祝大家參（wan）賽（de）開心![\[好爱哦\]]()詳細參賽規則、評審陣容及獎項細則請參見活動海報 [@瑞士駐上海總領事館](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E9%A9%BB%E4%B8%8A%E6%B5%B7%E6%80%BB%E9%A2%86%E4%BA%8B%E9%A6%86?from=feed&amp;loc=at)[@瑞士駐成都總領事館](https://weibo.com/n/%E7%91%9E%E5%A3%AB%E9%A9%BB%E6%88%90%E9%83%BD%E6%80%BB%E9%A2%86%E4%BA%8B%E9%A6%86?from=feed&amp;loc=at)[@北京法語聯盟](https://weibo.com/n/%E5%8C%97%E4%BA%AC%E6%B3%95%E8%AF%AD%E8%81%94%E7%9B%9F?from=feed&amp;loc=at)[@濟南法語聯盟](https://weibo.com/n/%E6%B5%8E%E5%8D%97%E6%B3%95%E8%AF%AD%E8%81%94%E7%9B%9F?from=feed&amp;loc=at)[@微瑞士](https://weibo.com/n/%E5%BE%AE%E7%91%9E%E5%A3%AB?from=feed&amp;loc=at)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003137/%E6%8D%95%E8%8E%B74-2.jpg)
+此時此刻，這條新浪微博下邊的即時評論是這樣的——
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003153/%E6%8D%95%E8%8E%B72-3.jpg)
+什麼是歷史？這就是！什麼是電影？這就是！人民知道了真相，它們幻想著堵住人民的嘴、捂住人民的眼睛、塞住人民的耳朵，它們製造著恐懼，並幻想著人民會屈服於這種恐懼、會盲從於它們刻意營造的“真相”，瑞士駐華大使館的這條微博還能不能繼續存活？我們不知道，但是我們都知道哪怕刪除了重新再發同內容的微博，大家依然端著小板凳在微博下邊發出自己的怒吼——
 
-美國科技力量被濫用和盜用
+公佈盜國賊名單！
 
-遍布美國的孔子學院，已經被美國列爲外交使團。孔子學院是打著學術交流的幌子滲透美國各大院校。哈佛、耶魯、麻省理工等等這些一流大學，被ＣＣＰ滲透後。很多頂尖實驗室科技人才被同時邀請或與中共國相關人才交流。從而，很多科研機構的知識産權和前沿技術被盜用。很多留美的華裔科學家悄悄被中共列入了千人計劃，爲中共國不斷輸送美國的最新科技成果。美國的知識産權嚴重受到了危害。
+11月公投！
 
-過度全球化掏空了美國的制造業 全美地圖上的鐵鏽地帶，就是中共國與國際資本掏空美國傳統制造業的傑作。鐵鏽地帶主要是五大湖區的賓夕法尼亞、俄亥俄州、印第安納、密歇根、伊利諾伊等。自八十年代開始，制造業崗位丟失80%以上。原來的鋼鐵企業、汽車企業、零配件企業大量轉移至亞洲。尤其是大部分轉移至中共國。産業快速轉移導致這些地區人口大量外遷。比如：底特律人口下降30%，克利夫蘭下降19.8%，匹茲堡人口下降10%。這種産業的快速外遷導致當地經濟沒有獲得喘息的機會，人口大量外遷，嚴重影響當地社會經濟和秩序。工作機會的大量流失導致社會矛盾和不公的大量産生。藍領就業崗位的大量流失給後來的ANTIFA和芬太尼留下了乘虛而入的缺口。美國的社會根基在被動搖。
+而就在寫稿的這會兒，刪除評論與網友們持續評論的角逐依然在進行中，最新的評論是這樣的——
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18003205/%E6%8D%95%E8%8E%B73-1.jpg)
+讓我們共同圍觀赤納粹對民意恐懼刪除評論的現場直播——
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17204718/2-43.jpg)
+[https://weibo.com/2603537861/JgsEdnirz?from=page\_1001062603537861\_profile&wvr=6&mod=weibotime&type=comment#\_rnd1597723786517](https://weibo.com/2603537861/JgsEdnirz?from=page_1001062603537861_profile&amp;wvr=6&amp;mod=weibotime&amp;type=comment#_rnd1597723786517)
 
-全球化下的公司利益高于國家利益
+（文章內容僅代表作者個人觀點）
 
-國際資本爲了滿足自身利益最大化，片面追求自身價值。在疫情發生後，表現在關鍵的醫療産業鏈滯留在中共國。比如：美國的醫藥公司嚴重依賴海外的抗生素原料（大部分集中在中共國）。其他還有維生素原料、醫療防護用品、呼吸機等等。導致疫情發生時物資匮乏。此外，在有效藥羥綠奎的使用上。美國大型醫藥企業明顯有阻止其使用的迹象。強生、輝瑞等藥企爲了追求自身利益，可能並不願考慮推廣羥氯喹的使用。CDC、FDA等機構也明顯出現袒護大型藥企迹象。這種一味追求公司價值妨礙了公衆的利益和美國的國家利益。
-
-美國到了必須做出選擇的最後時刻
-
-美國的力量對于全球安全發揮穩定器的作用。美國的民主和成功的典範，轉播著經濟、文化、科技的發展，從而超越了國界的全球性相互依賴。然而，當這種全球化出現對美國本土嚴重傷害的情況下，美國必須要迅速的做出選擇！
-
-（文章內容僅代表作者觀點）
-
-0
+1
