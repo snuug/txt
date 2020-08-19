@@ -1,54 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共是如何“明目張膽”地報復澳大利亞的
-`2020-08-19 07:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302850/)
+## 【中英文視頻版】2020/08/11 CCP病毒每日疫情直播簡報
+`2020-08-19 10:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/303065/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19074635/1-80.jpg)圖片來自澳大利亞人報
-據ABC新聞近日報導，中共反擊澳大利亞的招數從最開始的牛肉，如今盯上了葡萄酒。
+重点中文：
 
-中共最近手忙腳亂地宣布，要針對澳洲葡萄酒進行反傾銷調查。澳洲政府，葡萄酒製造商和農戶都聲明他們沒有任何過錯。中國究竟購買了多少澳洲葡萄酒？答案是很多。根據澳洲方面的統計，在中國有5200萬人飲用進口葡萄酒，中國已經成為了世界上最有價值的葡萄酒市場之一。
+1. 中共外交部在環球網上譴責美國衛生部長訪問台灣，因為中共害怕世界聚焦台灣，台灣僅480例冠狀病毒感染病例，7人死亡，這是中華民主的典範。
+2. 前重慶市長黃奇帆認為中美之間的摩擦已經上升到準備進行鬥爭，中共控制的大陸將進入內循環模式。這是否意味中共將要閉關鎖國 ?
+3. 自七月初以來，幾百個城市連續泡水四十多天。8月11日，成都整個城區被暴雨籠罩，部分街道被淹沒。
+4. 德國之聲，8月10日：香港警方已逮捕了媒體大亨黎智英（Jimmy Lai），他是中國在香港政策上的直言不諱的批評人。這位71歲的老人擁有廣受歡迎的報社《蘋果日報》（Apple Daily）。
+5. Natalie Winters：商業利益交織在一起，這實際上又是中共滲透的元素。 National Pulse首席執行官表示他將利用字節跳動公司（BiteDance，即抖音位於北京的母公司）來推廣“社會主義核心價值觀”······
 
-中國市場的客源主要是年輕人，他們擁有品鑑優質紅酒的能力。去年，中國購買了價值120億的澳洲葡萄酒，佔全澳洲出口葡萄酒的1/3。到今年3月，出口中國的葡萄酒達到1300萬公升。
 
-**為何中共現在發表這個聲明** **？**
+1. Ministry of Foreign Affairs of CCP condemned US Secretary of Health and Human Services for visiting Taiwan, as CCP fears world focus on Taiwan where has only 480 cases of COVID-19, 7 deaths, a model of Chinese democracy.
+2. Huang Qifan (former mayor of Chongqing), believes that the friction between China and U.S is reaching a point to a fight. CCP is planning to set into an internal circulation mode,  the world wonder if CCP will close the country.
+3. Since July,  hundreds of cities in China have been soaked in water for more than 40 days. August 11th, Chengdu once again was covered by stormy rain and some streets were flooded.
+4. DW News, August 10：Police in Hong Kong arrested media tycoon Jimmy Lai, an outspoken critic of China’s policies in Hong Kong. The 71-year-old owns popular tabloid Apple Daily.
+5. Natalie Winters: Business interests interwoven, and again is really an element of infiltration by CCP. The National Pulse CEO said he would use his company BiteDance(Beijing-based parent company to TikTok) to promote “socialist core values”…
 
-中共決定針對澳大利亞葡萄酒的傾銷問題或銷售價低於產品價值一事展開調查，實際上背後的根本原因是目前澳中關係處於冰點。
 
-五月，中共宣布針對用於釀造啤酒的澳洲大麥徵收重稅。這個決定號稱澳洲農民在有利可圖的市場上實施了傾銷價格。幾天后，中共又以標籤不符合規定為由，暫停了澳大利亞4家牛肉廠商的出口資格。澳洲的政治家們公開直接回擊，表示這類事件不該和日益加劇的政治緊張局勢關聯在一起。
 
-在今年年初，中共駐澳大利亞大使曾警告說，中國的消費者會聯合抵制澳洲的商品，只是因為堪培拉執意要求獨立調查中共病毒的源頭。
-
-中國占澳洲農業出口市場的1/3。而澳洲的農民自從1950年以來，從未如此依賴過單一市場，所以出口商們非常緊張。
-
-澳大利亞葡萄和葡萄酒主管托尼·巴塔哥林（Tony Battaglene）對中共展開調查的決定深表吃驚。 “我們以為他們會冷靜下來，我們清楚，在中共病毒形勢下掙扎的製造業都在抱怨中共商務部所做的決定。”
-
-**下一步將會發生什麼** **？**
-
-中共期望在8月份提交針對澳大利亞傾銷葡萄酒的指控報告，或許最終的截止日期會延長到2022年2月。起初，中共要求澳大利亞出口商完成有關商品價格，出口總量和市場方面的“問卷調查”。貿易大臣西蒙·布瑞明翰姆（Simon Birmingham）認為有關傾銷的指控是中共故意找茬。他明確指出今年上半年銷售到中國的葡萄酒是在中國市場上第二高的價格。參議員布瑞明翰姆說，“我們將不予理會這些無中生有的指控，說什麼澳大利亞葡萄酒在中國市場傾銷或低於實際價格銷售。”他說葡萄酒本身就昂貴，如果被視為傾銷，那說明澳大利亞葡萄酒製造商不擅長生產葡萄酒。
-
-中共是否能夠讓澳大利亞去回應這樣的官司，可參照世貿組織N年來都懸而未決的類似爭端。然而另外一件調查的威脅似乎也要逼近，中共還在考慮澳洲葡萄酒相關方的補償責任，開展一項針對確定澳洲政府是否補貼葡萄酒出口商的調查。
-
-這項指控與給大麥加關稅事件類似，但是政府否認澳大利亞農民得到了政府補貼。同時，澳大利亞仍繼續與中國開展貿易往來，擴展出口市場。在丹麥，印度尼西亞和新加坡，澳大利亞葡萄酒需求都在不斷增長。
-
-**中共的公告是否表示當地市場供大於求** **？**
-
-絕對不是的，至少在短時間裡不會。中共聲明需要12-18個月來準備報告，在這段時間裡，澳大利亞的出口商或許能夠開拓新的市場。
-
-儘管在今年年初，由於中共病毒的原因，葡萄酒的總出口有所回落。中國市場對澳大利亞的葡萄酒需求量仍舊很大，有跡象表明隨著中國經濟的複蘇，這樣的需求仍在增長。中澳自由貿易協定裡的貿易條件仍然有促進作用，自從2019年以來，澳大利亞出售給中國的葡萄酒沒有被徵收關稅。同時，澳大利亞葡萄酒生產商最近還有一個倍受打擊的情況，在乾旱、森林大火和其他極端天氣的影響下，今年澳大利亞的葡萄總產量跌落為13年來最低水平。
-
-**澳大利亞也在和中國進行貿易戰嗎** **？**
-
-從官方獲悉的答案是否定的。澳大利亞並沒有與中國搞貿易戰。 “澳大利亞不會參與任何類型的戰爭。”參議員布瑞明翰姆回答說：“儘管幾個月來沒有辦法與中方對話，他相信兩國能夠在雙方共同利益上進行合作。”
-
-傑夫·威爾森（Jeff Wilson），一直在珀斯美亞研究中心，致力於研究澳中貿易，他發表了不同的見解。 “從字面上說，貿易戰要求雙方相互制裁，這次更像是一次貿易的痛擊。”威爾森說。澳洲政府一邊公開宣傳他們不希望進行貿易戰，而一邊中共在不斷對澳報復施壓，澳洲政府內部的沮喪情緒在不斷滋長。
-
-評論：自從澳大利亞總理莫里森要求國際獨立調查“中共病毒的源頭”，中共針對澳大利亞所實施的報復性回擊就接踵而至。從牛肉，到大麥，到現在的葡萄酒。顯而易見，莫里森總理深深地戳到了中共的痛處。中共國必定會採取一切手段實施報復，促使澳洲政府屈服。善與惡之戰總會是刀光劍影，將很多無辜的人捲入其中。惟有一勞永逸地解決世界亂象的根源，那就是中共邪惡政權，世界上的民主國家才會真正享有安寧和繁榮。
-
-原文鏈接： [https://www.abc.net.au/news/2020-08-19/china-eyes-australian-wine-export-in-latest-trade-move/12571672](https://www.abc.net.au/news/2020-08-19/china-eyes-australian-wine-export-in-latest-trade-move/12571672)
-
-翻譯報導：阿麗塔Alita
-
-校對整理：人間四月
 
 0

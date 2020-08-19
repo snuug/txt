@@ -1,49 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 華爾街希望中國有更多舞弊的行為
-`2020-08-19 07:58 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302853/)
+## 【世界多語言圖文】2020/08/11 CCP病毒每日疫情直播簡報
+`2020-08-19 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/303085/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19074844/Picture-1-62.png)圖片來源：http://stock.hexun.com/ 
-蓋特斯通研究所(Gatestone Institute)網站8月17日發表文章稱，華爾街希望中概股企業有更多的舞弊欺詐行為。
+戰友之家圖文摘要及小語種組
 
-上星期,在宣布美國證券交易委員會(US Securities and Exchange Commission)對中國公司欺騙行為正進行調查之後,有很多投資者已經大量拋售了納斯達克上市的愛奇藝股票。為什麼中國公司能夠搶奪美國投資者的利益？這都是歸咎於美國邀請這些公司來美上市,並給他們有明確特殊待遇。
+[English\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)
 
-四月份,短期賣家Wolfpack Research指控愛奇藝利用兩位數的幅度誇大其收入和用戶量,製造假的賬目。 Wolfpack認為這些偽造的項目及數據,可以追索到2018年三月公開募資之前。
+[French\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)
 
-愛奇藝曾經被認為是中國的奈飛(Netflix of China),但其實它是一個不可靠而且沒有信用的運作公司，被一家所謂的中國谷歌(China’s Google)公司—百度—所擁有。
+[Japanese\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)
 
-由愛奇藝醜聞所引發的一連串中共企業欺騙行暴露無遺,無可置疑瑞幸咖啡所捏造的假銷售記錄行為亦不能倖免。也因此,瑞幸咖啡六月底在納斯達克(Nasdaq)被除牌。
+[Korean\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)
 
-這些事的發生應該歸咎誰人的錯呢?事情要從另一個角度來看，雖然你會因為這些公司所做出的不誠實行為而憤怒，但是華爾街的貪婪交易者及股票交易監督者都應對此承擔責任，因為美國在法例上容許這些公司這樣做。
+[Russian\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)
 
-的確，美國的市場環境擁有嚴格的披露規則和嚴格的執行者,並且提供融資基金以及投資環境給上市公司。
+[Spanish\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)
 
-不幸的是，中國公司由於這些特殊待遇，“似乎”像擁有一個去美國市場的免費通行證，可以在市場上肆意賺取豐厚利潤,雙眼被金錢所蒙蔽,子啊錯的路上越走越遠。
 
-2013年,美國和中共審計機構—美國上市公司會計監督委員會和中國財政部及中國證券監督管理委員會—簽署了一份沒有受約束及限制的《執法合作諒解備忘錄》(Memorandum of Understanding on Enforcement Cooperation)。根據這個備忘錄, 在涉及公開上市公司的執法案件中，雙方均可從審計師處獲取文件。然而這種安排並未促進中共的合作,而且更容許中方拒絕交出有關文件，例如，如果中方違反金融法律,中方公司可以利用該備忘錄規則賦予的方便作為擋箭牌,讓這些公司成功有效地豁免美國相關法規文件的規則及審查。
-
-中共官方媒體《中國日報》曾經在8月12日報導，“中國證券監督管理委員會星期六表示,中共政府沒有限制會計師事務所向海外監管機構提供審計服務”。然而，中共並沒有遵守承諾，反而更加欺騙“上市公司會計監督委員會”。該委員會是對美國公司的上市、財務欺詐事件、破產等根據法則進行監管。中共一直阻撓“上市公司會計監督委員會（PCAOB）”審查公司財務。 PCAOB對其不合作的態度非常不滿，提出投訴，但似乎沒有很大的效果。
-
-中共朝著錯誤的方向越走越遠。 3月份，因為香港國家安全法的強行推出，進一步阻止與海外監管機構共享審計信息。於是，憤怒的川普政府管理層終止了2003年的備忘錄，並加強對中概股的打擊。
-
-自從川普總統2016年上任,從中美貿易戰到近期冠狀病毒對經濟的影響,他的管理團隊對中共一連串的行動，可謂無懈可擊。正如著名對沖基金經理凱巴爾·巴斯（Kyles Bass）告訴路透社的,“美國在不知不覺中,容許中共的公司在美國募集基金及投資都是億元以上,並且可以避免跟隨美國基本的債券審計標準”。
-
-美國金融界的另一個觀點是，資本市場從一個市場流向另一個市場，美國不需要中國公司任何數據。如果美國收緊這些規例，這些發行人將會轉向其他市場。華爾街日報在8月10號提到，將中概股公司踢出美國交易所，這些公司將會轉移到一些對投資者較少保障的地方，例如香港或者上海。
-
-前中美經濟及安全審核委員會主席Roger Robinson告訴Gatstone,他還擔心新規定是否會得到執行。 “儘管中共濫用美國資本市場正在取得歷史性進展，但美國財政部和華爾街仍在積極努力，以盡量減少對現狀的破壞。”
-
-美國交易市場具有吸引力和深度,投資者希望在有能力管理的市場投資。美國市場管理良好，部分原因是嚴格執行了披露規則。中方公司之所以來到美國，是因為他們自己的市場（包括香港市場）受到了污染，儘管他們的市場規模龐大，但仍被視為死水和污水池。
-
-美國已經深深的明白到中共的假、偷及騙的行為。但中共仍然想找機會在美國繼續“偷”，已經是很難了。
-
-**評論** :
-
-很多事情的發生,都不能從單方面去看，正如現在華爾街的現況,亦是一樣。雖然中概股嚴重影響股票市場,引致市場很大的波動,很多投資者都只會去怪責中概股所帶來的影響,但是回顧以往,中概股是怎樣進駐美國市場？到底還是由於貪婪的華爾街投資者想從中概股公司賺取更大的利潤,因而間接地幫助更多中概股公司上市，並且幫助這些公司免去查核假賬目。可惜美國市場擁有完善的金融監管系統，最終這些欺騙行最終為得以曝光，這些中概股公司被除牌。最近,美國政府對中概股的打擊非常嚴重，華爾街投資者希望從除牌公司賺取更大的利益。他們希望中國有更多舞弊的情形,因為除牌時,股價會跌致很低。這些投資者從低吸納,賺取利潤,到頭來他們才是最大贏家。
-
-[原文鏈接](https://www.Gatestoneinstitute.org/16352/wall-street-china-fraud)
-
-翻譯報導：叮噹
-校對整理：文投
 
 0
