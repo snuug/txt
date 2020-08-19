@@ -1,24 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/10 CCP病毒每日疫情直播簡報
-`2020-08-18 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/301679/)
+## 美聯邦展開對斯坦福等大學未公開的來自中共國的捐贈調查
+`2020-08-18 10:31 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/301853/)
 
-重點中文: 
-1. 8月9日上海新增18例冠狀病毒感染者，中共卻甩鍋給從外歸國人員。 就像六月一樣，竟然將冠狀病毒嫁禍於進口的三文魚。 
-2. 北京“隨手拍”交通違法舉報APP正式上線。 鼓勵市民舉報交通違法行為。 挑起群眾之間矛盾，轉移對政府的不滿。 文革2.0全面開啟。 
-3. 8月9日 內蒙古草原突發被巨型龍捲風襲擊，傷者在醫院進行治療,150頂蒙古包被損壞。 沒看到政府及時處理，百姓的納稅錢都用去哪裡了？ 
-4. 8月9日美國衛生與公眾服務部部長 亞歷克斯·阿紮爾，會見了台灣總統蔡英文，台灣和美國將雙方關係塑造為基於「共同的民主價值觀」上的盟友。 
-5. 閆麗夢博士: 我們分析了冠狀病毒的基因組,並找到了證明。 病毒絕對不是來自自然，而是在實驗室通過技術改造過的。
+*新聞來源：* campus reform *《校園改革》；作者：Margaret Beste；發佈時間：* 2020年8月14日
 
-1. August 9, 18 new cases in Shanghai. However, it is reported by CCP that the cause was from people returning from abroad. Just like in June the coronavirus was blamed on imported salmon by CCP.
-2. Beijing “Shoot at any time” APP is online, to encourage citizens to report traffic violations. Arouse the masses to fight each other to transfer dissatisfaction with government. Cultural Revolution version 2.0 is started.
-3. Huge tornados emerged over grasslands in Inner Mongolia, injured were  in hospital, 150 yurts were damaged. But without timely response from government. Where did they spend the taxes that people paid? 
-4. August 9, Alex Azar, Secretary of Health and Human Services met with Taiwanese President Tsai Ing-wen. Taiwan and U.S have shaped their relationship as allies based on “common democratic values.” 
-5. Virologist Dr. Li-meng Yan:  we analyzed the genome of COVID-19 and seized the evidence, it’s definitely not coming from nature but been modified in the lab. It’s based on the PLA-owned(CCP) Zhoushan bat coronavirus.
+*翻譯/簡評：* Cathy r *；校對：*海闊天空*；審核：海闊天空；Page：拱卒*
 
+簡評：
 
+由於中共的深度藍金黃，美國大學收到了中共很多匿名的金錢禮物，並沒有上報聯邦教育部。現在教育部開始調查斯坦福和福德姆大學，這兩個大學都有明顯的和中共國的廣泛合作往來。美國大學不可能再養虎成患，罔顧國家利益了。
 
+##  **聯邦開啟對斯坦福、福德姆大學** 
 
+##  **有關中共國涉嫌未披露的禮物展開調查** 
+
+**美國教育部宣布對斯坦福大學（Stanford University）和福德姆大學（Fordham University）進行聯邦調查。**
+
+**該部門正在調查兩家大學是否沒有披露外國禮物，包括來自中共國的禮物。**
+
+[!\[\](https://spark.adobe.com/page/ObrUS53jmwgGn/images/98f3a78e-e4bb-4f76-ab64-6e0da27bf116.jpg?asset_id=4baedc87-a22b-46e1-b7a5-596214cf1c0e&amp;img_etag=%220e0a3b46162a5e010b053d1f95d9c935%22&amp;size=2560)](https://spark.adobe.com/page/ObrUS53jmwgGn/images/98f3a78e-e4bb-4f76-ab64-6e0da27bf116.jpg?asset_id=4baedc87-a22b-46e1-b7a5-596214cf1c0e&amp;img_etag=%220e0a3b46162a5e010b053d1f95d9c935%22&amp;size=1024)
+
+美國教育部已正式對福德姆大學和斯坦福大學展開聯邦調查。
+
+此次調查的重點是對大學公開接收外國（包括中共國）禮物的情況進行調查。在一封通知福德姆大學調查的信中，教育部提到了該大學“在國外的廣泛參與，其中大部分似乎是通過其商學院的’全球金融協作計劃’（Global Finance Collaboration Program）來促進的。”
+
+“教育部的全面審查顯示，令人驚訝的是，大學沒有報告外國來源的禮物和合同。”
+
+這封信承認，福德姆大學有近30家合作機構，其中5家在中共國。
+
+[!\[\](https://spark.adobe.com/page/ObrUS53jmwgGn/images/ca852c75-ea1f-495c-82c1-d04533637dff.jpg?asset_id=7775c9c0-4099-4325-a57c-d779a2f520c8&amp;img_etag=%22c3962a3fbf6d6309f2c2b6ef4d55d570%22&amp;size=2560)](https://spark.adobe.com/page/ObrUS53jmwgGn/images/ca852c75-ea1f-495c-82c1-d04533637dff.jpg?asset_id=7775c9c0-4099-4325-a57c-d779a2f520c8&amp;img_etag=%22c3962a3fbf6d6309f2c2b6ef4d55d570%22&amp;size=1024)
+
+關於其與一所中共國大學的關係，福德姆大學聲稱這是“中共國政府批准的第一個在北京的聯合國際MBA項目。”
+
+經過審查記錄，教育部發現，自1986年以來，福德姆大學隻公布了兩份相關禮物。
+
+教育部總法律顧問辦公室的一位發言人告訴《校園改革》報，福德姆大學過去遵守聯邦金融法規的情況似乎存在問題。
+
+“教育部對福德姆大學第117條披露情況的全面審查顯示，發現其外國來源禮物和合同令人驚訝地缺乏報告，特別是考慮到在很長一段時間內，福德姆大學在國外與幾所外國大學的交往似乎很多（自1986年以來只披露了2份第117條報告，兩者都發生在2020年7月）。該部的調查經驗表明，福德姆大學目前和歷史上第117條的披露——或缺乏披露——可能表明福德姆大學在遵守其法定披露義務方面存在嚴重缺陷。”
+
+教育部向斯坦福大學發出了一封類似的信，稱該大學“在中共國有廣泛的商業利益，並與中共國有著非常深刻的糾葛”。以前的報告表明，“斯坦福大學自2010年5月以來報告了有超過6400萬美元來自中共國和與中共國簽訂的身份不明、匿名的禮物和合同。”
+
+教育部說，它對可能沒有正式報告的更多禮物和合同感到關切。
+
+在信中，教育部還提到了7月份對斯坦福大學客座研究員宋辰提起的聯邦指控。這位研究人員被指控簽證欺詐，據信她與中共國人民解放軍有聯繫。
+
+由於宋獲得了極大的突破性神經研究機會，教育部也對她可能與中共國分享的信息對國家安全的影響表示關切。
+
+在調查之前，教育部最近開展了一項活動，揭露美國大學收到的此前未披露的外國禮物。
+
+斯坦福大學和福德姆大學沒有及時回應《校園改革》報的多次評論請求。
+
+[原文鏈接](https://campusreform.org/?ID=15452)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/ObrUS53jmwgGn/)
 
 1
