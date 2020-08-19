@@ -1,113 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 關於字節跳動公司收購Musical.ly的行政令
-`2020-08-18 12:55 GM31` [轉載自GNews](https://gnews.org/zh-hant/302023/)
+## 如何對抗無所不在的中共滲透機構
+`2020-08-18 23:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302502/)
 
-**Order Regarding the Acquisition of Musical.ly by ByteDance Ltd**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18230552/1-89.png)照片來源: [https://bitterwinter.org/confucius-institutes-designated-by-us-as-foreign-missions-of-china/](https://bitterwinter.org/confucius-institutes-designated-by-u-s-as-foreign-missions-of-china/) 
+**CCP** **如何開發軟實力**
 
-### **關於字節跳動公司（ByteDance）收購Musical.ly的行政令**
+觀察家研究基金會(Observer Research Foundation) Kalpit A Mankikar的報導表示，儘管在中共冠狀病毒大流行之後，全球對CCP的反擊領域主要在於貿易，技術獲取，人力資本和金融方面，但現在已經擴展對CCP強烈掌控的“軟實力”和科技民族主義(techno-nationalism)的領域。
 
-**Issued on: August 14, 2020**
+約瑟夫·奈教授（Joseph Nye）給出了軟實力的定義，他認為，一個國家可以利用其文化，外交政策和政治價值觀來對他國發揮其影響力。東亞新興國家依靠其軟實力突破了許多邊界。例如日本的黑澤漫畫，不需廣告就已全球皆知的Pokemon、韓國的流行音樂(K-pop) 、台灣的戲劇和“ Mando-pop”類音樂。在約瑟夫·奈教授看來，中共國在推動軟實力上相對滯後。這與鄧小平時代的“韜光養晦”、“和平崛起”的概念有關。這種看起來有些保守的觀念，現在看起來甚至會讓人感到不可思議。在後來的胡錦濤時代，“和諧社會”和“和平發展”成為政策主軸。
 
-**2020****年****8****月****14****日發佈**
+**以孔子學院為** **幌子** **，** **對** **印度、澳大利亞、新西蘭等國校園** **進行滲透**
 
-By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 721 of the Defense Production Act of 1950, as amended (section 721), 50 U.S.C. 4565, it is hereby ordered as follows:
+CCP為了藉由軟實力來推展其勢力，中共在2004年開始推廣“孔子學院”來“傳播中國語言和文化”。最近，印度政府宣布對印度各大學的孔子學院展開審查。由此檢視中共國機構與印度著名國內大學之間簽署的協議，其中包括貝拿勒斯印度大學(Banaras Hindu University)、尼赫魯大學（Jawaharlal Nehru University）印度理工學院（Indian Institute of Technology）、國立理工學院（National Institutes of Technology）。另外，根據印度新近發布的《國家教育政策》規定，已將“普通話”從中學生學習的第二外語項目中移除了。
 
-根據美國憲法和美利堅合眾國法律，包括經修正的1950年《國防生產法》第721節（第721節）《美利堅合眾國法典》第50編 4565節賦予我的總統職權，現特此命令如下：
+中共官方媒體發表了批評印度此舉的文章，稱其為“受西方利益影響的安全問題”。中共大使館也譴責了這一決定，敦促政府不要將文化交流“政治化”。在過去的幾年中，許多學術機構一直在展開運動來阻止中共的文化傳播。澳大利亞和新西蘭的研究人員廣泛地記錄了使用孔孔子學院作為中共國國家的延伸。有報導稱，孔子學院會對學生和教師之間的敏感的政治對話進行“審查”討論，例如香港和台灣的民主抗議。
 
-Section 1.  Findings.  (a)  There is credible evidence that leads me to believe that ByteDance Ltd., an exempted company with limited liability incorporated under the laws of the Cayman Islands (“ByteDance”), through acquiring all interests in musical.​ly, an exempted company with limited liability incorporated under the laws of the Cayman Islands (“Musical.​ly”), might take action that threatens to impair the national security of the United States.  As a result of the acquisition, ByteDance merged its TikTok application with Musical.​ly’s social media application and created a single integrated social media application; and
+文章中表示，在香港的抗議活動中，許多澳大利亞大學之間的學生之間也發生了暴力衝突。澳大利亞作家克萊夫·漢密爾頓（Clive Hamilton）聲稱中共竭盡全力詆毀他關於中共如何滲透澳大利亞社會一本書《無聲的入侵：中國如何把澳大利亞變成木偶國》(Silent Invasion: How China Is Turning Australia into a Puppet State)，他稱孔子學院為“思想管理項機構”，指責孔子學院為“間諜”並執行中共活動的機構。另外，澳大利亞已對孔子學院內數干預起事件展開調查，看是否違反外國干涉法。
 
-第1節. 調查結果. （a）有可靠的證據使我相信字節跳動（ByteDance） Ltd.是一家根據開曼群島法律註冊成立的獲豁免公司（“ ByteDance”）。Musical.ly是一家根據開曼群島法律註冊成立的豁免有限責任公司（”Musical.ly”）, 字節跳動通過收購Musical.ly所有權益的行動可能威脅到美國國家安全。收購結果是，字節跳動將其TikTok應用程式與Musical.ly的社交媒體應用程式合併，創建了一個整合社交媒體應用程式;及
+新西蘭研究員安妮·瑪麗·布雷迪（Anne Marie-Brady）警告說，在習近平主席執政期間，旨在影響外國政府意見的行為大幅度增加。在她“魔術武器”(Magic Weapons)論文中，她詳細介紹了來自中共國的政客如何按照中共國的指示來執行“政治影響力行動”。瑪麗·布雷迪的論文促使新西蘭對外國干預以及選舉過程進行了調查。
 
-(b)  Provisions of law, other than section 721 and the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.), do not, in my judgment, provide adequate and appropriate authority for me to protect the national security in this matter.
+**CCP** **利用海外機構壓制台灣的國際空間**
 
-（b）我認為，除第721條和《國際緊急經濟權力法》（美國法典50 U.S.C. 1701及以下）以外，其它法律規定在這件事上並未給我提供充分和適當的權力來保護國家安全。
+根據報導，雖然目前各國反擊中共意識型態的目標僅限於孔子學院，但之後可能會擴展到其他方面。與之類似的意識形態抵制，可追溯到1980年代對蘇聯的經濟限制和對南非的種族隔離的抗議行動。中華人民共和國堅持“一個中共國”政策，宣稱台灣為大陸的一部分，大力地壓制了台灣普通話（國語）。人權活動家聲稱，自從共產主義革命以來，中共一直在推廣普通話為中共國的國語，並試圖消滅其他語言，例如藏語和維吾爾語。實際上，根據中共國的法律，那些提倡以母語從事教育的人也可能被指控煽動分裂主義，一旦被判有罪，他們可能面臨長達15年的監禁。
 
-Sec. 2.  Actions Ordered and Authorized.  On the basis of the findings set forth in section 1 of this order, considering the factors described in subsection (f) of section 721, as appropriate, and pursuant to my authority under applicable law, including section 721, I hereby order that:
+激進主義者提倡抵制普通話，並更多地強調台灣普通話，而且還將“獨裁”中共國的價值觀與“民主台灣”來相互比較。之前，這是由同情台灣被邊緣化的人提出的，但是在目前的情況下，這樣的倡導可能會獲得更多人的支持。台灣似乎已經回到了美國議題上，美國衛生部長亞歷克斯·阿扎爾（Alex Azar）是近四十年來訪問台灣的最高行政官員。
 
-第2節. 命令和授權的行動. 根據本命令第1節中列出的調查結果，我酌情考慮了第721節（f）款中所述的因素，並根據包括第721節在內的適用法律授權，我命令：
+**美國對中共意圖掌控美國網路媒體聲音的反攻**
 
-(a)  The transaction resulting in the acquisition by ByteDance of Musical.​ly, to the extent that Musical.​ly or any of its assets is used in furtherance or support of, or relating to, Musical.​ly’s activities in interstate commerce in the United States (“Musical.​ly in the United States”), is hereby prohibited, and ownership by ByteDance of any interest in Musical.​ly in the United States, whether effected directly or indirectly through ByteDance, or through ByteDance’s subsidiaries, affiliates, or Chinese shareholders, is also prohibited.
+美國總統唐納德·川普（Donald Trump）對中共技術民族主義的反制措施不僅限於華為。技術民族主義是一種意識形態的建構，將一個國家的技術基礎和創新能力與其自身形象和經濟福祉聯繫起來。中共1978年的改革以科學，技術，工業，農業，國防等領域的經濟現代化為前提。在本世紀之初，中共領導人的目的是創建一個防火牆，以阻止諸如穀歌、推特和臉書之類的科技公司進入，並且建立諸如百度(Baidu)，阿里巴巴(Alibaba)和騰訊(Tencent )之類的“國家冠軍”（稱為“ BAT”三位一體）。
 
-（a）導致字節跳動公司（ByteDance）收購Musical.ly的交易，如果Musical.ly或其任何資產被用於促進或支持或與Musical.ly在各州之間貿易中的活動有關, 則在此禁止字節跳動（ByteDance）擁有Musical.ly在美國的任何權益，無論是直接或間接通過字節跳動（ByteDance），還是通過字節跳動（ByteDance）的子公司、關聯公司或中國股東，都是禁止的。
+根據“走出去”政策，這些國家冠軍在國外市場上嶄露頭角。川普總統在8月6日演講中，對Tiktok和WeChat在美開展業務而造成的國家安全問題提出質疑。川普總統對中共科技界的“ BAT”三位一體展開行動。他的“清潔雲端”計劃敦促抵制BAT三位一體的雲存儲服務，這些服務具有明確的擴展美國市場的戰略。美國政府正在召集其他國家簽署“清潔網絡“計劃，以扼殺中共國科技公司，並聲稱有30多個國家支持該計劃。
 
-(b)  In order to effectuate this order, not later than 90 days after the date of this order, unless such date is extended for a period not to exceed 30 days, on such written conditions as the Committee on Foreign Investment in the United States (CFIUS) may impose, ByteDance, its subsidiaries, affiliates, and Chinese shareholders, shall divest all interests and rights in:
+毫無疑問，美國以及各國藉由TikTok和孔子學院來打擊中共國一直以來施行的文化滲透和技術民族主義。目前，由於CCP仍致力於尋求從製造中心的地位升級為先進技術的創新者，因此它仍將朝陽行業和數字公司作為主要關注點。但由於中共在半導體和機器人技術領域的缺乏技術能力，幾乎沒有能力來回擊美國科技公司。
 
-（b）為了執行該命令，在該命令發佈之日起90天內，除非該日期的延長為期不超過30天，否則根據美國外國投資委員會(CFIUS)可能規定的書面條件為准,字節跳動（ByteDance）及其子公司、分支機搆和中國股東應剝離以下公司的所有權益：：
+[原文出處](https://www.orfonline.org/expert-speak/fighting-fire-wall-with-fire-wall/)
 
-(i)   any tangible or intangible assets or property, wherever located, used to enable or support ByteDance’s operation of the TikTok application in the United States, as determined by the Committee; and
+翻譯報導：william
 
-（i）委員會確定的任何有形或無形資產或財產，無論位於何處，用於促成或支援字節跳動在美國運行抖音（TikTok）應用程式的情況；和
+譯評:
 
-(ii)  any data obtained or derived from TikTok application or Musical.​ly application users in the United States.  Immediately upon divestment, ByteDance shall certify in writing to CFIUS that all steps necessary to fully and permanently effectuate the actions required under sections 2(a) and 2(b) have been completed.
+CCP藉由文化、經濟之名，實際上掩護並執行滲透、監控並壓制反對聲音以及間諜活動一直都是CCP 海外機構的主要工作。在滅共行動之前，各國對這樣的文化、經濟滲透完全沒有意識到，或因藍金黃作用失去了反抗能力。美國川普總統毅然站出來對抗CCP，當CCP病毒導致大量死傷時，他所面臨的困難遠比當時美國對抗蘇聯更為嚴峻複雜，但是，天滅中共的時機已到，只要各國之間更團結、戰友彼此更團結，一定會加速滅共的時間。
 
-（ii）從美國的抖音應用程式或Musical.ly應用程式使用者獲得或衍生的任何資料。資產剝離後，字節跳動公司應立即向外國投資委員會（CFIUS）書面證明，完全和永久地執行第2（a）和2（b）節所要求的所有必要步驟均已完成, 以全面和永久地實施這些行動。
-
-(c)  Immediately upon divestment, ByteDance shall certify in writing to CFIUS that it has destroyed all data that it is required to divest pursuant to section 2(b)(ii), as well as all copies of such data wherever located, and CFIUS is authorized to require auditing of ByteDance on terms it deems appropriate in order to ensure that such destruction of data is complete.
-
-（c）資產剝離後，字節跳動應立即以書面形式向外國投資委員會（CFIUS）證明其已銷毀根據第2(b)(ii)條要求剝離的所有資料，以及此類資料的所有副本，無論存於何處，以及外國投資委員會（CFIUS）被授權要求按其認為適當的條款對字節跳動進行審核，以確保完成此類資料銷毀。
-
-(d)  ByteDance shall not complete a sale or transfer under section 2(b) to any third party:
-
-（d）字節跳動（ByteDance）不得向任何協力廠商完成第2(b)條規定的銷售或轉讓。
-
-(i)   until ByteDance notifies CFIUS in writing of the intended recipient or buyer; and
-
-（i）直到字節跳動（ByteDance）以書面形式將預期的接收方或買方通知外國投資委員會（CFIUS）；以及
-
-(ii)  unless 10 business days have passed from the notification in section 2(d)(i) and CFIUS has not issued an objection to ByteDance.  Among the factors CFIUS may consider in reviewing the proposed sale or transfer are whether the buyer or transferee:  is a U.S. citizen or is owned by U.S. citizens; has or has had a direct or indirect contractual, financial, familial, employment, or other close and continuous relationship with ByteDance, or its officers, employees, or shareholders; and can demonstrate a willingness and ability to support compliance with this order.  In addition, CFIUS may consider whether the proposed sale or transfer would threaten to impair the national security of the United States or undermine the purpose of this order, and whether the sale effectuates, to CFIUS’s satisfaction and in its discretion, a complete divestment of all tangible or intangible assets or property, wherever located, used to enable or support the operation of the TikTok application in the United States.
-
-（ii）除非第第2(d)(i)中規定的通知發出後已過10個工作日，並且外國投資委員會（CFIUS）沒有對字節跳動提出異議。 外國投資委員會（CFIUS）在審查擬議的出售或轉讓中可能考慮以下因素：包括買方或受讓方是否為美國公民或由美國公民所有；與字節跳動或其高管，員工或股東有直接或間接的合同，財務，家族，雇傭關係或其他密切和持續的關係; 並且可以證明願意並有能力遵守本命令。此外，外國投資委員會（CFIUS）可能會考慮擬議的出售或轉讓是否會威脅到美國的國家安全或破壞該命令的目的，以及出售是否有效，使外國投資委員會（CFIUS）滿意並自行決定完全撤銷所有無論在何處的有形或無形資產或財產，用於在美國啟用或支持抖音（TikTok）應用程式的運營。
-
-(e)  From the date of this order until ByteDance provides a certification of divestment to CFIUS pursuant to section 2(b), ByteDance and TikTok Inc., a Delaware corporation, shall certify to CFIUS on a weekly basis that they are in compliance with this order and include a description of efforts to divest the interests and rights described in section 2(b) and a timeline for projected completion of remaining actions.
-
-（e）從本命令發出之日起，直到字節跳動（ByteDance）根據第2(b)向外國投資委員會（CFIUS）提供剝離證明為止，字節跳動（ByteDance）和德拉瓦州公司抖音（TikTok Inc.）均應每週向外國投資委員會（CFIUS）證明其遵守該命令，並說明為剝離第2(b)節所述利益和權利所做的努力以及預計完成剩餘行動的時間表。
-
-(f)  Any transaction or other device entered into or employed for the purpose of, or with the effect of, evading or circumventing this order is prohibited.
-
-（f）禁止為逃避或規避本命令的目的或效果而進行或使用的任何交易或其他手段。
-
-(g)  Without limitation on the exercise of authority by any agency under other provisions of law, and until such time as the divestment is completed and verified to the satisfaction of CFIUS, CFIUS is authorized to implement measures it deems necessary and appropriate to verify compliance with this order and to ensure that the operations of the TikTok application are carried out in such a manner as to ensure protection of the national security interests of the United States.  Such measures may include the following:  on reasonable notice to ByteDance and TikTok Inc., employees of the United States Government, as designated by CFIUS, shall be permitted access, for purposes of verifying compliance with this order, to all premises and facilities of ByteDance and TikTok Inc., and any of their respective subsidiaries, operated in furtherance of the TikTok application located in the United States:
-
-（g）在不限制任何機構根據其他法律規定行使職權的前提下，在撤資完成並得到外國投資委員會（CFIUS）滿意的核查之前，外國投資委員會（CFIUS）被授權執行其認為必要和適當的措施, 以核查本命令的遵守情況，並確保抖音（TikTok）應用程式的運作方式能夠確保保護美國的國家安全利益。這些措施可能包括：在合理通知字節跳動（ByteDance）和抖音（TikTok）公司後，外國投資委員會（CFIUS）指定的美國政府雇員應獲准進入字節跳動（ByteDance）和抖音（TikTok）公司及其各自的分支結構在美國境內為促進抖音（TikTok）應用而運營的所有房舍和設施，以核查本命令的遵守情況。
-
-(i)    to inspect and copy any books, ledgers, accounts, correspondence, memoranda, and other records and documents in the possession or under the control of ByteDance or TikTok Inc., or any of their respective subsidiaries, that concern any matter relating to this order;
-
-（i）檢查並複製字節跳動（ByteDance）或抖音（TikTok Inc.）或其各自任何子公司擁有或控制的與該命令有關的任何帳簿，分類帳，帳目，信件，備忘錄和其他記錄和檔。
-
-(ii)   to inspect or audit any information systems, networks, hardware, software, data, communications, or property in the possession or under the control of ByteDance or TikTok Inc., or any of their respective subsidiaries; and
-
-（ii）檢查或審核字節跳動（ByteDance）或抖音（TikTok Inc.）或其各自任何子公司擁有或控制的任何資訊系統，網路，硬體，軟體，資料，通信或財產；和
-
-(iii)  to interview officers, employees, or agents of ByteDance or TikTok Inc., or any of their respective subsidiaries, concerning any matter relating to this order.  CFIUS shall conclude its verification procedures within 90 days after the certification of divestment is provided to CFIUS pursuant to subsection (b) of this section.
-
-（iii）就與本命令有關的任何事宜約談字節跳動（ByteDance）或抖音（TikTok Inc.）或其任何子公司的高級管理人員，員工或代理商。 外國投資委員會（CFIUS）應在根據本節(b)款在撤資證明被提交至外國投資委員會（CFIUS）後的90天內完成其核查程式。
-
-(h)  If any provision of this order, or the application of any provision to any person or circumstances, is held to be invalid, the remainder of this order and the application of its other provisions to any other persons or circumstances shall not be affected thereby.  If any provision of this order, or the application of any provision to any person of circumstances, is held to be invalid because of the lack of certain procedural requirements, the relevant executive branch officials shall implement those procedural requirements.
-
-（h）如果本命令的任何規定或對任何人或情況的任何規定的適用被認為無效，則本命令的其餘部分及其其他規定對任何其他人或情況的適用均不受影響。如果由於缺乏某些程式要求而使本命令的任何規定或對任何人的適用都無效，則相關行政部門的官員應執行這些程式要求。
-
-(i)  The Attorney General is authorized to take any steps necessary to enforce this order.
-
-（i）司法部部長被授權採取任何必要的步驟來執行該命令。
-
-Sec. 3.  Reservation.  I hereby reserve my authority to issue further orders with respect to ByteDance, Musical.​ly, Musical.​ly in the United States, and TikTok Inc. as shall in my judgment be necessary to protect the national security.
-
-第3節.  保留. 我在此保留對字節跳動（ByteDance）、Musical.ly、美國的Musical.ly和抖音（TikTok Inc.）發佈進一步命令的權力，因為我認為這對保護國家安全是必要的。
-
-Sec. 4.  Publication and Transmittal.  (a)  This order shall be published in the Federal Register.
-
-第4節. 出版和傳播. （a）該命令應在《聯邦公報》上公佈。
-
-(b)  I hereby direct the Secretary of the Treasury to transmit a copy of this order to the appropriate parties named in section 1 of this order.
-
-（b）我在此指示財政部長將本命令的副本轉交給本命令第1節中指定的有關各方。
-
-出處：[Order Regarding the Acquisition of Musical.ly by ByteDance Ltd](https://www.whitehouse.gov/presidential-actions/order-regarding-acquisition-musical-ly-bytedance-ltd/)
-
-*翻譯：【JennyL】 校對：【Naomi】 【GM31】【Winston Jackson】* *編輯:【GM31】*
-
-*戰友之家玫瑰園小隊出品*
-
-1
+0
