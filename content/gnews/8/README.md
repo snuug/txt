@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/10 CCP病毒每日疫情直播簡報
-`2020-08-19 08:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/302912/)
+## 青瓦台：中共楊潔篪將於21日訪問韓國釜山討論習近平訪韓事宜
+`2020-08-19 11:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/303132/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19112218/1-82.jpg)
+青瓦台發言人姜珉奭19日通過新聞發布會表示:”應國家安保室長徐勳的邀請，中共政治局委員楊潔篪將於21日至22日訪問韓國釜山。”就中共主席習近平訪韓問題等進行討論。
 
-[English\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)
+徐勳安保室長計劃在與楊潔篪委員在訪韓的第二天即22日上午舉行會談後，通過午餐會談，就韓中對CCP病毒方面進行合作、高層交流等雙邊關係、韓半島及國際局勢等相互關注的問題交換意見。這是楊自2018年7月非公開訪韓後時隔兩年多後首次訪韓，也是CCP病毒之後中方高層人士首次訪韓。
 
-[French\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)
+外交界內外有觀測稱，時隔兩年訪韓的楊委員在某種程度上會調整習近平的訪韓日程。如果習成功訪韓，那麼很有可能成為CCP病毒爆發後韓中首腦的首次會面。本次會面將有望恢復因薩德部署而陷入僵局的韓中關係。中共解除限韓令也將水到渠成。
 
-[German\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)
+由於中共對北韓強大的影響力，如果中共支持文在寅政府的對北政策，將可能緩和最近因北韓開城共同聯絡事務所爆炸而惡化的南北緊張關係。
 
-[Japanese\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)
+但是，今年6月的香港人權法通過後，再次激化了美中矛盾，習在這個時候出訪韓國另韓國政府倍感頭疼。外交界部分人士指出，楊此次訪韓可能會發出牽制美國的信息，讓韓國政府的立場不偏向美國。
 
-[Korean\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)
+因此，一旦習訪韓的日程落實，不排除美國對韓國政府加大壓力的可能性。據悉，在楊即將訪韓之際，被稱為”死亡天鵝”的6架美國戰略轟炸機B-1B Rancer於17日至18日在韓半島近海飛行。
 
-[Russian\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)
+不過也有人指出，由於最近首爾為中心的地區CCP病毒確診人數不斷增加，出訪也存在很大變數。就楊訪韓選擇的是釜山而不是首爾一事，有分析說，這可能是因為CCP病毒的原因。對此，青瓦台說:”會談場所的決定與CCP病毒的擴散沒有任何關係。”
 
-[Spanish-0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)
+**評論** :從本篇報導可以看出，韓國方面仍然期待中共政府緩和之前因為薩德事件惡化的中韓關係，甚至希望習出面緩和朝韓半島的緊張局勢。殊不知，這背後導致這些問題的黑手正是中共。或者，韓國領導人都知道這背後的原因就是中共，但是因為地理位置的原因，以及多年來經濟上的依賴，韓國政府只能苦苦尋求一個平衡於中，美，朝三國之間的平衡點。而楊潔篪此次選擇美國大選前訪韓，不難看出他的用意是要動搖美韓的同盟關係。想要逼韓國政府做出明確的站隊，而這次的大爆發莫非就是一個來自中共的”警告”？郭文貴先生在之前直播裡提到的24號可能發生的大事又會是什麼？我們拭目以待。
 
+翻譯報導:Mc.DA以諾
 
+[原文鏈接](http://me2.do/IFw7B0Fb)
 
-1
+0

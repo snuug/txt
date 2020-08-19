@@ -1,65 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 區塊鏈專題（壹）為什麽說共產黨（CCP）的存在是對區塊鏈世界的最大威脅？
-`2020-08-19 06:47 GM36` [轉載自GNews](https://gnews.org/zh-hant/302786/)
+## 【世界多語言圖文】2020/08/10 CCP病毒每日疫情直播簡報
+`2020-08-19 08:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/302912/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19051503/0819_6.jpg)
-本專題遵守唯壹的宗旨“為真不破”，講究客觀事實和邏輯，追求以科學的方法驗證與證偽！
+戰友之家圖文摘要及小語種組
 
-區塊鏈是什麽？
+[English\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)
 
-區塊鏈（blockchain）是壹個特殊的分布式數據庫用於儲存信息，任何信息都可以寫入區塊，也可以從區塊中讀取，任何服務器都可以加入區塊鏈網絡成為節點之壹。這些節點中並沒有中心節點，任何壹個節點都可以讀寫數據，所有的節點都保持同步，這就是區塊鏈的去中心化和同步性。
+[French\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)
 
-我們是誰？
+[German\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)
 
-我們是全世界眾多的區塊鏈技術信仰者和從業者，我們壹直相信天賦人權，人生而自由和私有財產神聖不可侵犯。
+[Japanese\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)
 
-我們為什麽選擇區塊鏈？
+[Korean\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)
 
-我們希望我們的財富能更安全；我們的隱私能更有保障；我們希望能擺脫大政府，大銀行和大媒體這三大山的壓迫，我們向往著壹個去中心化的更加公平與正義的世界。
+[Russian\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)
 
-是什麽在阻攔我們與區塊鏈？
-
-當我們追求隱私保障時他們偷走我們的隱私，分析我們的隱私甚至是出售我們的隱私；
-
-當我們追求財富的安全時，不論我們擁有多麽好的硬件錢包，最後都繞不過使用他們的貨幣，他們的交易所，這壹刻我們的隱私就已經不存在來，別騙自己了，這壹刻妳已經不匿名了；當我們追求區塊鏈世界的名正言順時，他們大量使用比特幣，門羅幣等在暗網交易，大肆的洗錢與犯罪，這些對區塊鏈世界都是不健康的，他們在摧毀我們的信用，他們在汙名化我們！
-
-他們是誰？
-
-他們是口蜜腹劍的騙子，他們是心狠手辣的殺手，他們是從地獄前來摧毀人間的惡魔，他們是踐踏人權的獨裁者。
-
-他們就是中國共產黨，the Communist Party of China，中國人稱他們叫CCP。
-
-CCP是什麽？
-
-CCP是壹個獨裁的共產主義政權，他們綁架了14億中國人民。他們擁有全世界最廉價的勞動力和最勤勞的人民，他們在中國擁有想做什麽就可以做什麽的權力。他們隨時可以將人民抓到集中營，可以用坦克碾壓抗議的學生，可以拿走人民銀行裏的存款，CCP還在武漢P4實驗室創造了COVID-19病毒，中國人稱之為CCP VIRUS，這個病毒導致了全世界幾十萬人的死亡。
-
-CCP和區塊鏈有什麽關系？
-
-- CCP擁有中國100%的人力資源與電力資源，在中國的所有礦場幾乎都是為了CCP的利益服務，所以CCP天然就擁有大量的比特幣等數字貨幣，這對於CCP控制比特幣市場極為關鍵，簡單地說，區塊鏈的挖礦獎勵機制在中國創造了CCP這樣壹個巨大而邪惡的莊家，毫無疑義的是這些比特幣都成為了CCP控制比特幣市場的籌碼。
-- CCP控制著中國和香港等地的所有的交易所，這些交易所就像華為，騰訊，阿裏巴巴等這些中資企業壹樣，他們要將壹切的數據和財富義務的交給CCP，如果不聽話就會帶來殺生之禍，例如海航董事長王建這種中國的千億富豪，CCP為了銷毀證據就可以輕易的殘忍的殺害他們。所以妳還相信OKEX，火幣，幣安等等這些中資的交易所會保證妳的比特幣或其他貨幣的安全麽？妳還相信他們會保護妳的隱私麽？中資的平臺甚至要求KYC的時候需要人臉驗證,這是多麽荒唐的壹件事啊？保護隱私的數字貨幣平臺居然最終需要人臉驗證才能完成KYC，這簡直就是掩耳盜鈴！
-- 中資控制的各大交易所頻繁在發生發山寨幣，丟幣，K線插針，交易高頻期服務器斷開甚至API無法連接的情況，這些情況不僅給投資者帶來了巨大的損失，也對數字貨幣的信用造成了巨大的打擊，更嚴重的是這些情況發生時市場都發生了巨大的變盤，我有充足的證據可以說明這不只是技術上的故障，而是中資平臺聯手的操作市場行為！我們會在本系列的接下來幾期將過去的中資平臺的罪行及證據壹壹列舉。
-- 比特幣等數字貨幣成為了CCP最近幾年在暗網的交易與滲透，對各國政府的腐敗的工具之壹。這些犯罪行為只會放大區塊鏈的普及和宣傳的成本，讓人們不相信區塊鏈技術，甚至認為區塊鏈是邪惡的，只是用來洗錢和犯罪的工具，事實上完全不是如此，區塊鏈是壹項人類巨大的技術進步，而這個技術的雙刃劍效應的黑暗面被CCP無限的放大了。
-- 最重要的壹點，只要CCP還在中國統治壹天，區塊鏈技術就永遠無法在中國市場上普及，因為區塊鏈的壹切特性都是與CCP背道而馳的。區塊鏈主張去中心化，而CCP是世界上最大的中心化政權，在中國有句話，爹親娘親不如黨親，可見CCP的中心化程度有多麽嚴重；區塊鏈追求保護隱私，CCP卻是全世界最大的隱私竊賊，她永遠不會容忍任何保護隱私的技術在中國的推廣，CCP不會容忍任何不能控制和維穩的事情發生；區塊鏈技術天然的威脅了舊中心化銀行體系，這也是CCP最不能容忍的壹點，如果銀行都去中心化了，CCP怎麽從人們手上把錢偷走？賬本公開的區塊鏈技術下，CCP怎麽能進行腐敗？光這幾點就是CCP永遠無法容忍的。
+[Spanish-0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)
 
 
-倡議
-
-只要CCP存在壹天，區塊鏈世界就將無法向前踏出壹步，區塊鏈技術在中國和其他地區的普及就無法完成，這極大的影響了共識的發展，這對所有區塊鏈從業者和信仰者都是巨大的傷害，CCP的存在天然的侵犯了我們的利益。我們必須明白，不管妳是技術工作者還是比特幣持有者，即使妳是個持幣的投機者，如果不推翻CCP，區塊鏈的技術和產品就永遠無法獲得中國的市場，妳的比特幣還是其他幣就永遠無法合法的在中國購買資產，這不僅影響了妳的體驗，也影響了區塊鏈的價值，只有推翻了CCP，區塊鏈產品才能在中國以及世界開花結果，而每壹個block chainer 才能得到應有的利益！
-
-我以壹個區塊鏈技術工作者的身份倡議，推翻CCP，還人類自由，政府只是物業，人民才是主人！
-
-我們每壹個人都生而自由，我們的私有財產神聖不可侵犯，我們的人權不可侵犯！
-
-区块链世界的每一个人都必须觉醒！CCP是独裁最后的堡垒，我们的自由近在眼前！我们不能再做缩头乌龟，我们不能坐以待毙，我们不可以再懦弱的隐藏起来了，我们要走到太阳底下，我们要大声呐喊我们的區塊鏈世界的每壹個人都必須覺醒！CCP是獨裁最後的堡壘，我們的自由近在眼前！我們不能再做縮頭烏龜，我們不能坐以待斃，我們不可以再懦弱的隱藏起來了，我們要走到太陽底下，我們要大聲吶喊我們的訴求！
-
-我們是壹個壹個獨立的區塊，我們彼此連接，我們彼此呼應，我們彼此記錄，我們無所畏懼！
-
-TAKE DOWN THE CCP！推翻中國共產黨！
-
-
-
-秘密專稿組 2020.08.19; 審稿：文橙
 
 1

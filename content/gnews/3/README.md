@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/11 CCP病毒每日疫情直播簡報
-`2020-08-19 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/303085/)
+## 【中文字幕完整版】班農疫情作戰室第338期
+`2020-08-19 13:34 GM10` [轉載自GNews](https://gnews.org/zh-hant/303205/)
 
-戰友之家圖文摘要及小語種組
+**摘要/文章
+戰友之家新聞譯制組**
 
-[English\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)
 
-[French\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)
 
-[Japanese\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)
+**波特蘭目擊者賀南德斯(博客生命貴自由記者，製作人)指出：**816晚上 ，賀南德斯離「黑命貴」群眾大約2英尺，拿著錄像機記錄他們的暴行。受害人在其中一段視頻中說，他們只是在附近跑UBER外賣，無緣無故地就遭毆打，一個人挨打，下一個又挨打，有人試圖保護前一個，情況就一發不可收拾了。
+受害人在被攻擊後躲避上車，然後出車禍，下車後，被一群人圍攻，被木棒毆打，最後失去知覺，躺在地上，就是被錄下的那段。現在波特蘭街頭就是如此。當時無司法人員在場，打911電話也不能馬上接通。
 
-[Korean\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)
+**Horowitz霍羅威茲 (保守派作家)**新書：「閃電戰，川普將粉碎左派，並獲勝」，在紐約時報暢銷書籍榜待了6周，卻只有一個電臺談論。
+霍羅威說，共和黨人對民主黨人太客氣了，稱他們為自由主義者，其實他們是獨斷者，他們的首要目標是挑戰第一修正案(意見自由，集會自由，宗教自由等)。
+很陰暗的自由主義者，懷恨的偏執狂主義者，如果意見不同，會毀了你的事業和你的家人，然後，人們就不想說真話了。
+30年來， 川普是著名公眾人物，從未有人說他是白人至上主義者，直到他與民主黨人競爭。
+民主黨是一個種族主義政黨，種族主義是他們的主要武器。
+民主黨控制著美國的每個內城，並到處肆虐。
+歷史事實是黑人奴役黑人，而白人解放了黑人。
 
-[Russian\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)
+**Darren Beattie 比第(保守派分析員)**談到白俄羅斯近況，比第指國家部門聯合非政府組織，打擊他們不喜歡的領導人，就是所謂的顔色革命。
+這種玩反總統的把戲，在白俄羅斯，他們直接聯繫了反川普力量。
 
-[Spanish\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)
+**McSally麥薩利(參議員，亞利桑那州)表示：**中國共產黨和中國的崛起是美國這一代，甚至未來，最大的地緣政治威脅。
+中共一直在竊取我們的工作、技術、研究，在國際舞臺上作弊，而我們卻一直讓他們這麼做，現在需要所有的人，開始行動，去阻止他們。
+中共的目的是統治世界，成為世界的領導。
 
 
 
