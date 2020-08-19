@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/10 CCP病毒每日疫情直播簡報
-`2020-08-18 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/301679/)
+## 韓國第二波疫情來襲，中共病毒確診病例暴增
+`2020-08-18 10:27 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/301805/)
 
-重點中文: 
-1. 8月9日上海新增18例冠狀病毒感染者，中共卻甩鍋給從外歸國人員。 就像六月一樣，竟然將冠狀病毒嫁禍於進口的三文魚。 
-2. 北京“隨手拍”交通違法舉報APP正式上線。 鼓勵市民舉報交通違法行為。 挑起群眾之間矛盾，轉移對政府的不滿。 文革2.0全面開啟。 
-3. 8月9日 內蒙古草原突發被巨型龍捲風襲擊，傷者在醫院進行治療,150頂蒙古包被損壞。 沒看到政府及時處理，百姓的納稅錢都用去哪裡了？ 
-4. 8月9日美國衛生與公眾服務部部長 亞歷克斯·阿紮爾，會見了台灣總統蔡英文，台灣和美國將雙方關係塑造為基於「共同的民主價值觀」上的盟友。 
-5. 閆麗夢博士: 我們分析了冠狀病毒的基因組,並找到了證明。 病毒絕對不是來自自然，而是在實驗室通過技術改造過的。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/07/30201731/1-161.png)圖片來源： [https://news.raftaar.in](https://news.raftaar.in/national/%E0%A4%AA%E0%A5%82%E0%A4%B0%E0%A5%8D%E0%A4%B5%E0%A5%8B%E0%A4%A4%E0%A5%8D%E0%A4%A4%E0%A4%B0-%E0%A4%95%E0%A5%87-%E0%A4%86%E0%A4%A0-%E0%A4%B0%E0%A4%BE%E0%A4%9C%E0%A5%8D%E0%A4%AF%E0%A5%8B%E0%A4%82-%E0%A4%AE%E0%A5%87%E0%A4%82-%E0%A4%95%E0%A5%8B%E0%A4%B0%E0%A5%8B%E0%A4%A8%E0%A4%BE-%E0%A4%95%E0%A5%81%E0%A4%B2-42-501-%E0%A4%AE%E0%A4%B0%E0%A5%80%E0%A4%9C) 
+據韓聯社報導，包括首都圈的教會在內，韓國全國各地的CCP 病毒的確診患者突然暴增。
 
-1. August 9, 18 new cases in Shanghai. However, it is reported by CCP that the cause was from people returning from abroad. Just like in June the coronavirus was blamed on imported salmon by CCP.
-2. Beijing “Shoot at any time” APP is online, to encourage citizens to report traffic violations. Arouse the masses to fight each other to transfer dissatisfaction with government. Cultural Revolution version 2.0 is started.
-3. Huge tornados emerged over grasslands in Inner Mongolia, injured were  in hospital, 150 yurts were damaged. But without timely response from government. Where did they spend the taxes that people paid? 
-4. August 9, Alex Azar, Secretary of Health and Human Services met with Taiwanese President Tsai Ing-wen. Taiwan and U.S have shaped their relationship as allies based on “common democratic values.” 
-5. Virologist Dr. Li-meng Yan:  we analyzed the genome of COVID-19 and seized the evidence, it’s definitely not coming from nature but been modified in the lab. It’s based on the PLA-owned(CCP) Zhoushan bat coronavirus.
+不久前，在教會連續暴出感染病例後，客服中心、托兒所、療養醫院等多機構也接連出現確診病例。隨即，感染又擴散到軍隊，從地區擴散到非首都圈。防疫當局在高度緊張的狀態下正在全力切斷感染鏈。
 
+除了教會出現感染病例外，首爾還出現了警察官被確診的事例，出現了”CCP病毒”全方位擴散的局面。防疫當局表示，本週將成為決定是否再次出現全國大流行的分水嶺。
 
+根據中央防疫對策本部公佈的數據，以18日0時為基準，新增CCP 病毒感染患者246名，累計確診患者為15761名。從新確診患者的感染途徑來看，本地發病人數為235人，海外流入者為11人。從14日開始的5天裡，確診病例已接近1000例。
 
+相關部門提醒，首爾圈居民盡量不要外出，並嚴格遵守防疫措施。
 
+譯評:
+
+第一波疫情爆發的時候，韓國繼中共國之後成為第二爆發國。但是，韓國隨後舉全國之力，用最快的速度穩住了疫情，成為全世界防疫最好的幾個國家之一。而這次，就在郭文貴先生爆料韓國將再次爆發疫情不過短短幾天，韓國疫情就應驗了郭先生的話。莫非是郭先生有預測未來的能力？我相信是郭先生拿到了第一手的情報，有人蓄意放毒，為的就是以此威脅還在舉棋不定的韓國。之前，閆博士說：“只要CCP還存在一天，就沒有人是安全的，哪怕你已經離開了中國，他們不可能只製造一種病毒，他們已經放出了一部分，他們為什麼不會接著放？”
+
+各位在韓國的同胞戰友，還有全世界的華人朋友，CCP越瘋狂，勝利就離我們越近。懇請大家做好防護，等待天亮的那天。在大家安全的情況下，儘自己的一份力量，傳播真相，傳播爆料革命，早日送這邪惡的政黨下地獄。
+
+新聞鏈接：【 [1](http://naver.me/GeYpSWl3) 】【 [2](http://naver.me/xAaBequk) 】
+
+翻譯報導:Mc.DA 以諾
+校對整理：人間四月
 
 1
