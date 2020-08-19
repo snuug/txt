@@ -1,44 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 國家情報總監：干預大選反川普，中共威脅遠大於俄伊
-`2020-08-19 08:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302937/)
+## 【世界多語言圖文】2020/08/10 CCP病毒每日疫情直播簡報
+`2020-08-19 08:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/302912/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084418/1597841035120.jpg)圖片來源：Israel National News 
+戰友之家圖文摘要及小語種組
+
+[English\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)
+
+[French\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)
+
+[German\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)
+
+[Japanese\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)
+
+[Korean\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)
+
+[Russian\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)
+
+[Spanish-0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)
 
 
-據福克斯新聞的最新報導，國家情報總監約翰·特克里夫（John Ratcliffe）表示，中共對美國國家安全造成的危害遠比其他任何國家都嚴重。他詳細列舉了一系列中共的威脅行為，包括操縱和乾預美國大選。情報官員們表示自從2016年以來美國情報部門一直關注來自俄羅斯和伊朗對於乾預美國大選的威脅，而現在終於意識到中共干預美國大選才是最值得擔憂的。
-
-拉特克利夫在一份聲明中告訴福克斯新聞，“中共對美國國家安全的危害，無論從經濟上，軍事上還是技術上，比其他任何國家都要嚴重。其中就包括操縱和乾預美國大選” 。
-
-外界普遍認為俄羅斯傾向於支持現任總統川普，並為此在2016年美國大選期間製造混亂；相反中共更樂於看到川普在11月份輸掉大選。然而，國會裡的民主黨人，如眾議院議長南希·佩洛西（Nancy Pelosi）和眾議院情報委員會主席亞當·希夫（Adam Schiff）, 自2016年以來一直嚴厲警告要提防俄羅斯干預，但卻對中共對2020美國大選的潛在威脅置若罔聞。來自加州的佩洛西上週表示，俄羅斯和中共的威脅不能相提並論，並要求情報機構提供更多的有關俄羅斯干預的情報。她說莫斯科正在“一刻不停地干預我們的大選”。
-
-拉特克利夫表示，其實來自中共的威脅才最為嚴重。他正在蒐集所有情報來全面解析這一威脅，給美國最高決策層提供最佳方案，以遏制來自中共的各種滲透活動。他解釋道，中共擔心川普總統連任會導緻美國繼續執行“反共”政策，並表示情報機構已向數百名國會議員作了通報，以期喚醒他們對中共為一己之私而插手干預美國政壇的警惕。他說，“公平和自由的選舉是美國民主的基石。美國情報機構將對來自中共以及其他危險國家和冒險家旨在干預我國大選的的各種活動保持高度警惕”。
-
-中共通過各種網絡控製手段來影響美國大選，支持反川普組織，並大量偽造社交媒體賬號來煽動反美情緒。據社交媒體分析公司Graphica本月發表的報告揭露，6月份有大量由親中的“垃圾郵件龍”（Spamouflage Dragon）偽造的社交媒體賬號發放中英文視頻，抨擊美國政策和川普政府。該報告揭露，某些在YouTube和Twitter上活動的賬號利用人工智能偽造頭像。這是一種在虛假信息宣傳中的慣用手段，這些社交平台上所謂的“真實用戶”都是偽造的。用記者的話說，“這些活動對賬號偽造的中共身份絲毫不加掩飾，矛頭明顯指向美國政策。”
-
-報告還特別提到，遍及全美各地的針對中共冠狀病毒和反種族歧視的抗議活動都是針對推翻川普政府。據報導，一個7月12日發布的標題為“誰該為美國疫情負責？”的視頻中，川普總統被描述為中共冠狀病毒的“堅定並富有創造力的盟友”，按照Graphica的說法，其內容“嚴厲抨擊美國政府應對中共冠狀病毒措施不力，對深受其害的廣大美國平民百姓和反種族歧視示威者表示同情”。
-
-國家情報總監辦公室（ODNI）的一位官員告訴福克斯新聞，情報機構“在向美國人民提供有關中共對大選威脅方面的消息更新情況比2016年好得多。” 情報機構將聯合國土安全部和聯邦調查局勉力支持州和地方官員維護選舉安全。國家情報總監辦公室正在和聯邦調查局及其分支機構通力合作，將情報分析結果及時傳達到州和地方官員那裡。
-
-大選威脅更新記錄中還提到，中共更願意看到川普總統在11月份大選中失利。埃瓦尼納在本月早些時候說，由於中共方面認為無法掌控川普總統，所以希望他在大選中失利。中共與此同時不斷向美國政府中的反共政治人物施壓，以期擴大對美國大选和政策的影響。
-
-過去幾個月來，針對美國政府對中共冠狀病毒的應對，關閉中共駐休斯頓領事館，以及在其他問題方面，中共在升級其公開的批評態度。中共嚴厲指責美國政府在香港問題、Tiktok公司、南海主權歸屬問題以及中共試圖主導5G市場等方面的聲明和立場，中共很清楚這將影響大選選情。
-
-上個月，川普政府斷然關閉中共駐休斯頓的領事館，部分原因是中共試圖染指美國的能源公司。同一天晚些時候，中共採取報復，下令關閉美國駐成都領事館。而在Tiktok問題上，川普政府對中共社交平台採取強硬立場，於本月簽署了行政命令，要求在45天之內禁止Tiktok在美國的運作。這項禁令對這家中共公司出售其美國應用平台施加巨大壓力。川普政府將對這一交易實行嚴格監控。
-
-自5月中旬以來，埃瓦尼納已經向川普和拜登的競選團隊，國會委員會包括參眾兩院情報委員會成員及國會領導人提交了近20份有關選舉威脅的內部秘密簡報。
-
-一位國家情報總監辦公室官員告訴福克斯新聞說，內部秘密簡報由埃瓦尼納及其團隊主導完成，聯邦調查局和國土安全部官員以及其他有關部門也經常參與工作。聯邦調查局局長克里斯托弗·雷（Christopher Wray）數月來一直在警告,中共試圖左右美國輿情並從事經濟間諜活動。今年夏天早些時候，雷告訴福克斯新聞，中共希望能左右美國的政治思維和政策，並將其納入一個親中親共的軌道。他警告說，這一切都會體現在大選中。
-
-國會山來自加州的眾議院情報委員會主席亞當·希夫（Adam Schiff）警告說，中共會動用各種手段干預大選。其威脅嚴重程度遠遠超過俄羅斯和伊朗。他告訴美國國家廣播公司（NBC）中共還會利用貿易戰與美國抗衡。一位共和黨助理告訴福克斯新聞說，從上一屆國會開始眾議院情報委員會的共和黨人就一直在針對中共進行調查，並且說中共是美國的最大擔憂。這位助手說，“我們一直在調查，從未停止過”。
-
-川普競選團隊也表示，川普政府對俄羅斯一直持強硬態度。中共和伊朗反對川普總統也是出於同樣的原因。川普競選團隊的公關總監蒂姆·默特（Tim Murtaugh）在一份聲明中說，“我們不需要也不願意出現任何外來干預，川普總統將光明正大地擊敗拜登”。他還說，“情報部門對中共和伊朗企圖阻止川普總統連任感到擔憂，很顯然這是因為多年來拜登之流一直縱容他們，而川普總統要使之為自己的所有行為負責”。
-
-新聞鏈接： [https://www.foxnews.com/politics/china-election-interference-threat](https://www.foxnews.com/politics/china-election-interference-threat)
-
-翻譯報導：匿名
-
-校對整理：人間四月
 
 1
