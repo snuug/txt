@@ -1,30 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 明尼蘇達州聖保羅市一劉姓男子因高價倒賣N95口罩被判罰
-`2020-08-18 15:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/302076/)
+## 如何對抗無所不在的中共滲透機構
+`2020-08-18 23:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/302502/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18154011/AG_20200818_N95_photo169.png)Photo by [Jonathan J. Castellon](https://unsplash.com/@joncas89?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/n95?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-據[美國明尼蘇達州《明星論壇報》8月14日報道](https://www.startribune.com/settlement-halts-alleged-price-gouging/572120472/?refresh=true)（作者：克里斯托弗·斯諾貝克），聖保羅一名叫凱文劉（Kevin Liu）的男子無視3月21日開始執行的禁止高價出售重要物資的行政令（EO 20-10號），把從零售店購買的口罩以高出買入價高達1,774%的價格在eBay上出售包括1000多只3M生產的N95口罩，被控並已認罰，同意向法庭支付6800美元罰款。以下為《明星論壇報》的報道摘要。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18230552/1-89.png)照片來源: [https://bitterwinter.org/confucius-institutes-designated-by-us-as-foreign-missions-of-china/](https://bitterwinter.org/confucius-institutes-designated-by-u-s-as-foreign-missions-of-china/) 
+**CCP** **如何開發軟實力**
 
-《明星論壇報》（摘要）：美國聖保羅一名男子被控以不合理的高價出售N95口罩。根據檢察官基思·埃利森（Keith Ellison）週五宣佈的一項法庭協議，該男子同意支付6800美元，並停止轉售這款口罩。
+觀察家研究基金會(Observer Research Foundation) Kalpit A Mankikar的報導表示，儘管在中共冠狀病毒大流行之後，全球對CCP的反擊領域主要在於貿易，技術獲取，人力資本和金融方面，但現在已經擴展對CCP強烈掌控的“軟實力”和科技民族主義(techno-nationalism)的領域。
 
-埃里森指控儘管根據拉姆齊縣（Ramsey Country）地方法院提出的中止保證，州長蒂姆·瓦爾茲（Tim Walz）已發出行政命令禁止對這些物品進行價格欺詐，但凱文劉仍以「過分的超高價格」出售或出售基本物品和服務。
+約瑟夫·奈教授（Joseph Nye）給出了軟實力的定義，他認為，一個國家可以利用其文化，外交政策和政治價值觀來對他國發揮其影響力。東亞新興國家依靠其軟實力突破了許多邊界。例如日本的黑澤漫畫，不需廣告就已全球皆知的Pokemon、韓國的流行音樂(K-pop) 、台灣的戲劇和“ Mando-pop”類音樂。在約瑟夫·奈教授看來，中共國在推動軟實力上相對滯後。這與鄧小平時代的“韜光養晦”、“和平崛起”的概念有關。這種看起來有些保守的觀念，現在看起來甚至會讓人感到不可思議。在後來的胡錦濤時代，“和諧社會”和“和平發展”成為政策主軸。
 
-檢察官稱，劉某售出了1000多只N95口罩，其中一些口罩的價格為每只24.17美元，而正常情況下，每只口罩的標價為1.31美元。根據提交給法院的文件，這比零售價高出約1,774%。
+**以孔子學院為** **幌子** **，** **對** **印度、澳大利亞、新西蘭等國校園** **進行滲透**
 
-備案陳述，其它口罩的加價從比零售價高出366%到 1,011%不等。
+CCP為了藉由軟實力來推展其勢力，中共在2004年開始推廣“孔子學院”來“傳播中國語言和文化”。最近，印度政府宣布對印度各大學的孔子學院展開審查。由此檢視中共國機構與印度著名國內大學之間簽署的協議，其中包括貝拿勒斯印度大學(Banaras Hindu University)、尼赫魯大學（Jawaharlal Nehru University）印度理工學院（Indian Institute of Technology）、國立理工學院（National Institutes of Technology）。另外，根據印度新近發布的《國家教育政策》規定，已將“普通話”從中學生學習的第二外語項目中移除了。
 
-「大家需要知道，州長禁止價格欺詐的行政命令不僅適用於零售商，也適用於個人」 ，埃里森在一份聲明中說，「我很高興這個網上經銷商配合了我的調查。最終的和解終止了口罩的銷售， 且確保受害的消費者得到賠償。
+中共官方媒體發表了批評印度此舉的文章，稱其為“受西方利益影響的安全問題”。中共大使館也譴責了這一決定，敦促政府不要將文化交流“政治化”。在過去的幾年中，許多學術機構一直在展開運動來阻止中共的文化傳播。澳大利亞和新西蘭的研究人員廣泛地記錄了使用孔孔子學院作為中共國國家的延伸。有報導稱，孔子學院會對學生和教師之間的敏感的政治對話進行“審查”討論，例如香港和台灣的民主抗議。
 
-該報無法聯繫到劉某，因此無法得到他對此的評論。
+文章中表示，在香港的抗議活動中，許多澳大利亞大學之間的學生之間也發生了暴力衝突。澳大利亞作家克萊夫·漢密爾頓（Clive Hamilton）聲稱中共竭盡全力詆毀他關於中共如何滲透澳大利亞社會一本書《無聲的入侵：中國如何把澳大利亞變成木偶國》(Silent Invasion: How China Is Turning Australia into a Puppet State)，他稱孔子學院為“思想管理項機構”，指責孔子學院為“間諜”並執行中共活動的機構。另外，澳大利亞已對孔子學院內數干預起事件展開調查，看是否違反外國干涉法。
 
-[新聞原文鏈接](https://www.startribune.com/settlement-halts-alleged-price-gouging/572120472/?refresh=true)
+新西蘭研究員安妮·瑪麗·布雷迪（Anne Marie-Brady）警告說，在習近平主席執政期間，旨在影響外國政府意見的行為大幅度增加。在她“魔術武器”(Magic Weapons)論文中，她詳細介紹了來自中共國的政客如何按照中共國的指示來執行“政治影響力行動”。瑪麗·布雷迪的論文促使新西蘭對外國干預以及選舉過程進行了調查。
 
-[點擊下載](https://www.ag.state.mn.us/Office/Communications/2020/docs/Liu_AOD.pdf)明尼蘇達檢察官基思·埃利森週五宣佈的法庭協議。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18153424/AG_20200818_N95-figure1-scaled.jpg)Photo by [Tingey Injury Law Firm](https://unsplash.com/@tingeyinjurylawfirm?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/justice?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-*翻譯：【小粉紅】 校對：【石頭】編輯：【Michelle】*
+**CCP** **利用海外機構壓制台灣的國際空間**
 
-*戰友之家玫瑰園小隊出品*
+根據報導，雖然目前各國反擊中共意識型態的目標僅限於孔子學院，但之後可能會擴展到其他方面。與之類似的意識形態抵制，可追溯到1980年代對蘇聯的經濟限制和對南非的種族隔離的抗議行動。中華人民共和國堅持“一個中共國”政策，宣稱台灣為大陸的一部分，大力地壓制了台灣普通話（國語）。人權活動家聲稱，自從共產主義革命以來，中共一直在推廣普通話為中共國的國語，並試圖消滅其他語言，例如藏語和維吾爾語。實際上，根據中共國的法律，那些提倡以母語從事教育的人也可能被指控煽動分裂主義，一旦被判有罪，他們可能面臨長達15年的監禁。
 
-1
+激進主義者提倡抵制普通話，並更多地強調台灣普通話，而且還將“獨裁”中共國的價值觀與“民主台灣”來相互比較。之前，這是由同情台灣被邊緣化的人提出的，但是在目前的情況下，這樣的倡導可能會獲得更多人的支持。台灣似乎已經回到了美國議題上，美國衛生部長亞歷克斯·阿扎爾（Alex Azar）是近四十年來訪問台灣的最高行政官員。
+
+**美國對中共意圖掌控美國網路媒體聲音的反攻**
+
+美國總統唐納德·川普（Donald Trump）對中共技術民族主義的反制措施不僅限於華為。技術民族主義是一種意識形態的建構，將一個國家的技術基礎和創新能力與其自身形象和經濟福祉聯繫起來。中共1978年的改革以科學，技術，工業，農業，國防等領域的經濟現代化為前提。在本世紀之初，中共領導人的目的是創建一個防火牆，以阻止諸如穀歌、推特和臉書之類的科技公司進入，並且建立諸如百度(Baidu)，阿里巴巴(Alibaba)和騰訊(Tencent )之類的“國家冠軍”（稱為“ BAT”三位一體）。
+
+根據“走出去”政策，這些國家冠軍在國外市場上嶄露頭角。川普總統在8月6日演講中，對Tiktok和WeChat在美開展業務而造成的國家安全問題提出質疑。川普總統對中共科技界的“ BAT”三位一體展開行動。他的“清潔雲端”計劃敦促抵制BAT三位一體的雲存儲服務，這些服務具有明確的擴展美國市場的戰略。美國政府正在召集其他國家簽署“清潔網絡“計劃，以扼殺中共國科技公司，並聲稱有30多個國家支持該計劃。
+
+毫無疑問，美國以及各國藉由TikTok和孔子學院來打擊中共國一直以來施行的文化滲透和技術民族主義。目前，由於CCP仍致力於尋求從製造中心的地位升級為先進技術的創新者，因此它仍將朝陽行業和數字公司作為主要關注點。但由於中共在半導體和機器人技術領域的缺乏技術能力，幾乎沒有能力來回擊美國科技公司。
+
+[原文出處](https://www.orfonline.org/expert-speak/fighting-fire-wall-with-fire-wall/)
+
+翻譯報導：william
+
+譯評:
+
+CCP藉由文化、經濟之名，實際上掩護並執行滲透、監控並壓制反對聲音以及間諜活動一直都是CCP 海外機構的主要工作。在滅共行動之前，各國對這樣的文化、經濟滲透完全沒有意識到，或因藍金黃作用失去了反抗能力。美國川普總統毅然站出來對抗CCP，當CCP病毒導致大量死傷時，他所面臨的困難遠比當時美國對抗蘇聯更為嚴峻複雜，但是，天滅中共的時機已到，只要各國之間更團結、戰友彼此更團結，一定會加速滅共的時間。
+
+0
