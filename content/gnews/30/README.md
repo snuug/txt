@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 四川樂山五道橋中心城區濃霧到底是什麼成份？爆炸極限是多少
-`2020-08-20 00:27 Diago` [轉載自GNews](https://gnews.org/zh-hant/303554/)
+## 澳洲超過半數民眾反對接種免費COVID-19疫苗
+`2020-08-20 09:26 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/307161/)
 
-作者：Diago
+作者：Giselle
 
-據[**荔枝新聞**](https://weibo.com/jstvjstv?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2020年8月20日11:53](https://weibo.com/1796087453/JgLGG3GUl?ref=home&amp;rid=0_131072_8_4727568127333684538_0_0_0) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+審核：海闊天空
 
-【[#官方回應四川樂山發生有害氣體洩漏#](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E5%9B%9B%E5%B7%9D%E4%B9%90%E5%B1%B1%E5%8F%91%E7%94%9F%E6%9C%89%E5%AE%B3%E6%B0%94%E4%BD%93%E6%B3%84%E6%BC%8F%23&amp;from=default)：未發現氯化氫等氣體超標 正進一步排查】8月20日，網傳四川樂山五道橋中心城區發生有害氣體洩漏。網友拍攝的視頻顯示，城區內濃霧滾滾。樂山應急管理局回應荔枝新聞稱，此事已關注，目前已發佈相關通報。據微博五通橋通報稱，經排查，區內所有化工企業均未發生爆炸。已對異味濃霧進行監測，未發現氯化氫等氣體超標。現正開展水、氣取樣檢測，進一步開展深入排查。[LJSTV荔枝視頻的秒拍視頻](http://t.cn/A6U1GRKy)[收起全文d](void%280%29;)
+Page：刀削麵面
 
-既然權威資訊通過微博五通橋發佈，那我們就來看看微博五通橋是怎麼對這些資訊進行澄清的——
+澳洲主流左派媒體SBS昨天在推特上發起了一項投票，主題是：澳洲總理莫里森19日宣布，如果COVID-19疫苗被證明是安全和有效的，每個澳洲人都能夠獲得免費疫苗，你會接種疫苗嗎？
+[!\[\](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/f98acb86-0129-4a43-85ef-07d32bc009e3.jpg?asset_id=60e21438-09f7-44f3-94c5-2887c1b7fc1e&amp;img_etag=%223b1429a6c4a7170ec81db7c6c57c21d5%22&amp;size=1024)](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/f98acb86-0129-4a43-85ef-07d32bc009e3.jpg?asset_id=60e21438-09f7-44f3-94c5-2887c1b7fc1e&amp;img_etag=%223b1429a6c4a7170ec81db7c6c57c21d5%22&amp;size=1024)
+截止20日上午11時，一共有12656人參與了投票，最終結果顯示54%的民眾反對接種免費疫苗。
 
-據[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055013_)[2020年8月20日 09:56](https://weibo.com/2001979947/JgKV6qnjG?from=page_1001062001979947_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+事件緣由澳洲政府日前和英國製藥巨頭阿斯利康（AstraZeneca ）簽署協議，一旦牛津大學研發的疫苗通過最後階段的人體試驗，將授權澳洲藥廠批量生產。澳洲政府計劃為所有澳洲人免費接種疫苗，讓澳洲人口的疫苗接種率達到95%。
+[!\[\](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/4fe288c4-50d2-4c31-a8c1-d075c8198ecb.jpg?asset_id=c6422cc0-b5ed-41d4-b0d4-e6a4f281acdb&amp;img_etag=%225ca44a99b5f103093aef769f71ca4e7b%22&amp;size=2560)](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/4fe288c4-50d2-4c31-a8c1-d075c8198ecb.jpg?asset_id=c6422cc0-b5ed-41d4-b0d4-e6a4f281acdb&amp;img_etag=%225ca44a99b5f103093aef769f71ca4e7b%22&amp;size=1024)
+8月19日，澳洲總理莫里森接受澳洲媒體採訪時說，他希望疫苗接種是盡可能強制性的，只有出於醫學理由無法接種疫苗的人可以豁免。
 
-【情況通報】目前，經應急、環保等部門現場勘察，我區危化品企業未發生爆炸，全區正在對區內危化品企業再次開展地毯式排查，請大家不信謠、不傳謠，關注官方通報。 [2樂山](http://t.cn/R2Wx3bL) ​​​​
+推友Fyhfr留言說：我們怎麼可能期待會出現一款神奇疫苗？ COVID-19是實驗室製造出來的，強變異。 2003年出現的SARS疫苗，至今都不可用，而我們的總理卻認為，比SARS更強大的COVID-19疫苗，將在幾個月內推出，這怎麼可能？
 
-據[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055013_)[2020年8月20日 10:37](https://weibo.com/2001979947/JgLbLsJ5h?from=page_1001062001979947_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed) 已編輯
+推友心是蓮花：中共高級官員已經為我們證明了硫酸羥氯喹是安全的，我相信羥氯喹，但我不相信疫苗。
 
-【情況通報續】經排查，我區內所有化工企業均未發生爆炸。目前，五通橋中心城區產生異味濃霧的原因已經生態環境等部門快速監測，未發現氯化氫等氣體超標情況。通過環保部門排查和企業自查，未發現洩露等異常現象，現正開展水、氣取樣檢測，進一步開展深入排查。請市民不要恐慌。相關後續情況，我區將及時予以通報。 [2樂山](http://t.cn/R2Wx3bL) [2樂山](http://t.cn/R2Wx3bL)[收起全文d](void%280%29;)
+推友文西：免費疫苗？它只是從每個納稅人的另一個口袋中繳付的稅款。
 
-據[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055013_)[2020年8月20日 10:58](https://weibo.com/2001979947/JgLkhh4qb?from=page_1001062001979947_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed) 已編輯
+推友Ewart Dave：COVID-19沒有疫苗！澳洲政府此時強行推廣疫苗的行為是不負責任的。
 
-8月20日上午11時，區委書記張國清會同相關部門、企業負責人到企業檢查受災情況，未發現其他異常。請市民不信謠，不傳謠，不恐慌。 [2樂山](http://t.cn/R2Wx3bL) ​​​​
+推友Xima：由於COVID-19病毒強變異特性，因此沒有一款疫苗可以做到適合所有人注射，對此感到擔心。
 
-據[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055013_)[2020年8月20日11:12](https://weibo.com/2001979947/JgLq2x3na?from=page_1001062001979947_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed) 已編輯
+推友Ewen：當昨天澳洲總理宣布要給國民免費注射疫苗時，我就明白為什麼硫酸羥氯喹在澳洲如此被排斥了。當利益足夠大時，所有的信仰、道義都可以靠邊站。
 
-8月20日上午11時，區委書記張國清等區領導及相關部門在企業現場查看情況，未發現異常。請市民不信謠，不傳謠，不恐慌，保持正常生產生活秩序。 [2樂山](http://t.cn/R2Wx3bL) ​​​​
+留言區很多推友質疑，不斷湧現的疫苗新聞只是一場覆蓋全球的金錢遊戲。由於當前中共仍然掩蓋病毒真相，拒絕交出原始毒株的正確基因序列，在加上病毒的超強變異特徵，疫苗的研發幾乎不太可能有突破性進展。
 
-據[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055014_)[2020年8月20日11:38](https://weibo.com/2001979947/JgLABirUl?from=page_1001062001979947_profile&amp;wvr=6&amp;mod=weibotime) 來自 [iPhone用戶端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)
+許多推友表示，硫酸羥氯喹治療新冠病毒的功效，已經被全球大量一線醫療工作者認可，這款藥成本低廉，易於生產，易於推廣，更安全有效，被美國傳染病專家Dr. Stephen Smith以及紐約一線醫生Dr. Zev Zelenko認為是終結新冠病毒大流行的希望。但澳洲政府卻罔顧科學事實，不但不推廣硫酸羥氯喹非處方化，反而禁止醫生給患者使用羥氯喹治療新冠病毒。這裡面究竟有什麼貓膩？
+[!\[\](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/b381cdd1-5565-49e8-81e0-67d7b27d3900.jpg?asset_id=f6839263-ecee-4a08-8df1-60d1ddbba218&amp;img_etag=%22c98d403782116a908d7e43b91e0a06c3%22&amp;size=2560)](https://spark.adobe.com/page/bhtNkaK7gG2kh/images/b381cdd1-5565-49e8-81e0-67d7b27d3900.jpg?asset_id=f6839263-ecee-4a08-8df1-60d1ddbba218&amp;img_etag=%22c98d403782116a908d7e43b91e0a06c3%22&amp;size=1024)
+澳洲政府今年4月花費2.5億澳元，用於購買1000萬份中國華大基因生產的新冠病毒檢測盒，然而，州政府卻認為這批測試盒是不需要的、與現有測試設備不兼容，導致絕大部分試劑盒被閒置。澳洲衛生部承認，這批檢測盒的保質期只有6個月，那麼，這筆被浪費的2.5億澳元，最後由誰買單？
 
-8月20日上午8時許，五通橋沿湧斯江出現的刺激性氣味，經排查現有危化企業均未見異常。從8點到11時，樂山市環境監測中心站、五通橋生態環境局對五通橋中心城區開展應急監測，所監測的氟化氫、VOCs、氯化氫、氯氣、氨氣指標均未出現超標資料。 [2樂山·五通橋四望關大橋](http://t.cn/z82jder) ​​​​
+回到疫苗話題，很多推友質疑疫苗其實並不免費，“沒有哪家製藥公司會’免費’送出數十億澳元的疫苗。”一些支持接種疫苗的人同樣也對疫苗尚未經過嚴格的試驗就大面積使用而持質疑態度。他們表示，通常疫苗的研發要經歷數年時間，而匆忙推出的疫苗讓人們無法了解其副作用和長期影響。
 
-因為我們都見過天津大爆炸、青島黃島大爆炸、貝魯特大爆料的威力，所以對於微博五通橋的這一系列發佈，越看越害怕，市民信啥謠了？市民傳啥謠了？現在微博五通橋告訴公眾，現有危化企業均未見異常、氟化氫、VOCs、氯化氫、氯氣、氨氣指標均未出現超標資料，那麼“五道橋中心城區發生有害氣體洩漏”究竟是什麼氣體？它的爆炸極限是多少？為什麼[**微博五通橋**](https://weibo.com/u/2001979947?refer_flag=1005055014_)只說當地政府沒發現異常和當地企業沒發現異常，而不對空氣中造成刺激性氣味的氣體成份進行化驗並公佈？因為當地政府和當地企業沒查到和沒發現並不意味著就沒有洩漏和沒有爆炸危險！
+在人類健康受到如此巨大的威脅面前，希望這些政府高官、大型企業能夠回歸科學、回歸常識，不要試圖為了經濟利益愚弄民眾，為了政治利益綁架民眾。
 
-（文章內容僅代表作者個人觀點）
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/bhtNkaK7gG2kh/)
 
 0
