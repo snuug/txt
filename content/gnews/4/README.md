@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士接受Newsmax電視台採訪時稱:“病毒源自中共實驗室！”（丹麥語Danish+英文English）
-`2020-08-20 07:47 GM62` [轉載自GNews](https://gnews.org/zh-hant/306708/)
+## Warroom 334 娜塔莉：中共向美國非法出口假身份證、武器零件和槍支被查獲；南希·佩洛西團隊為中共官媒遊說
+`2020-08-20 11:54 GM77` [轉載自GNews](https://gnews.org/zh-hant/307825/)
 
-丹麥語標題：I et interview med Newsmax TV sagde Dr. Yan: “COVID-19 stammer fra et KKP-lab
-
-翻譯：麦丹奈 校對：螞蟻游擊隊(文蟻） 視頻：小羽
-
-視頻簡介
-閆博士在接受Newsmax電視台採訪時稱：2019冠狀病毒是經過實驗室修改的病毒。此病毒是根據中共國軍事研究院發現的蝙蝠冠狀病毒，中共將其命名為ZC45和ZXC21。這兩個基因序列在2017年至2018年間被公佈，可以從美國國家衛生研究院的資料庫中查到。
-I et interview med TV-kanalen Newsmax sagde Dr. Yan: COVID-19 er blevet modificeret i et laboratorium. Denne virus, fundet hos flagermus, der blev opdaget af det kinesiske PLA’s Academy of Military Science. KKP navngav dem ZC45 og ZXC21. Disse to gensekvenser blev offentliggjort mellem 2017 og 2018 og kan findes en database over National Institutes of Health(NIH).
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+•中共政府擅長制造混亂和分裂這在美國已經不是什麽秘密了，最近有壹串來自中國的非法出口物品，例如偽造身份證，攻擊性武器零件，槍支消音器等這樣的東西。政治上沒有巧合，這些東西壹直支持著動蕩與暴亂已經有20年了。
+•南希·佩洛西的高級職員已經註冊為外國代理人為中共國官方媒體遊說，她的辦公室與抖音、中共國中央電視臺等公司的員工相互工作。
 
 0
