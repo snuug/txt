@@ -1,49 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國監管機構對賣空欺詐指控展開調查後
-`2020-08-19 13:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/303180/)
+## 中共正在推行的數字貨幣電子支付系統遭質疑
+`2020-08-19 20:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/303345/)
 
-*新聞來源：businessinsider｜作者：卡門·雷尼克（Carmen Reinicke）；*發佈時間：2020年8月14日
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19195644/Picture-1-66.png)圖片來源： [https://thecoinshark.net](https://thecoinshark.net/) 
+全球最大區塊鏈媒體Coin Telegraph於8月17日發表報導對中共國的數字貨幣計劃提出了質疑。儘管CCP病毒疫情已經給全球經濟造成重創，但中共一直以來積極宣導盡快實施的“數字人民幣”計劃，也稱數字貨幣電子支付系統（DCEP）似乎未受疫情影響，仍然在穩定推進中。
 
-*翻譯、簡評：Beicy-數學老師｜PR：沐子璐璐｜審核：海闊天空｜PAGE：玄天生；*
+**DCEP只進行利基（niche）測試而非全面化**
 
-**簡評：**
+早在8 月5 日就有消息透露，中共已選擇了一組國有商業銀行為試點，對專門為數字貨幣使用而設計的數字貨幣錢包進行大規模的行業內部測試。據報導，各銀行正在測試如何將數字貨幣錢包作為一種手段來實現央行數字貨幣的日常支付以及輔助大規模資金轉移交易。中共計劃在未來幾週將這種測試全面推廣到香港大灣區，同時也在一些其他主要城市進行試點。中共的數字人民幣測試計劃看起來覆蓋許多經濟繁榮地區，從北京、天津和河北省到長江三角洲，進而到南部沿海地區廣東省、香港和澳門。
 
-美國已經進入滅共狀態，金融滅共重錘接連不斷—- 抖音被限期強制出售; 愛奇藝被美國證券交易委員會調查。在中共製造的冠狀病毒大瘟疫開始後，愛奇藝股價一路上漲。但在被調查消息公佈當日即下跌18%。而接下來微信、阿里巴巴、騰訊等中共國在美上市企業，都會被爆料革命的鐵鎚痛砸至退市為止。
+然而，中共區塊鏈服務網絡（BSN）構架商北京紅棗科技（Red Date Technology）CEO何亦凡卻很肯定地說，其實中共的DCEP測試僅會在四個城市進行，其中不包括香港和澳門。如果有人進行DCEP測試，那一定是在深圳。
 
-網飛公司(Netflix) 是美國最大的在線視頻流媒體，在全球範圍內有超過1.93億付費訂閱，愛奇藝被美國投資者視為中共國版的美國網飛公司(Netflix) 。 2018年5月31日當愛奇藝公司首席執行官接受媒體採訪，還想像著要做中共國版的迪斯尼而非美國網飛公司(Netflix) 。而那時，郭文貴先生已經警告中共國的企業人士: 跟著共產黨，走進火葬場。這一切的發生，真是: 莘縣陽谷縣搭縣，現在正兌現。 ( [愛奇藝公司首席執行官接收媒體採訪信息來源](https://sg.news.yahoo.com/chinese-equivalent-netflix-no-want-230048104.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuYmluZy5jb20v&amp;guce_referrer_sig=AQAAAF72sxA7fmqF-WuerXBFUGmjLhijEYS9DufZHZUcDoKIvmkFpPmixhjm3obFM2LPgkPpAQdHnMxLs8cJHP2U70P4u0IwvqA0P6-Z5O886SvpzqUqhzEJOi-O8TYs1uPYnvsCWPSKIw9WNtxe9lRvCv3mbRQ5-_iOtOrviOHeig7N) )
+**DCEP推廣實施範圍將非常有限**
 
-本報導發布者– 商業內幕(Business Insider)網站是美國金融和商業新聞網站，成立於2009年1月，由德國出版社阿克塞爾·斯普林格(Axel Springer)擁有。它操作有14個國家版本和一個國際版, 影響廣泛。 ( [信息來源](https://www.bing.com/search?q=businessinsider.com&amp;form=ANNTH1&amp;refig=adc4e59deb5b45beb45f0f7a70ac0b8c&amp;sp=-1&amp;ghc=2&amp;pq=businessinsider&amp;sc=8-15&amp;qs=n&amp;sk=&amp;cvid=adc4e59deb5b45beb45f0f7a70ac0b8c) )
+文章指出，近幾個月來有一些報導吹噓人民銀行發行的數字貨幣會如何顛覆美元霸主地位以及擾亂全球支付市場。 DCEP首先威脅到的是”環球銀行金融電信協會系統“（SWIFT）在全球跨境交易的主導地位。與DCEP的即時加密交易方式相比，傳統的SWIFT顯得效率過低。
 
-##  **市場內幕：美國監管機構對賣空欺詐指控（IQ）展開調查後，中共國的愛奇藝股價暴跌18％** 
-[!\[\](https://spark.adobe.com/page/C0LGSjaiqUunq/images/6c0c4641-c5d0-4cdd-bba1-8f1893f815c6.jpg?asset_id=856bab77-dbff-4b2b-9c10-5be89e6129db&amp;img_etag=%221af49b582d1c3fc46db0e8ba1f355b9b%22&amp;size=2560)](https://spark.adobe.com/page/C0LGSjaiqUunq/images/6c0c4641-c5d0-4cdd-bba1-8f1893f815c6.jpg?asset_id=856bab77-dbff-4b2b-9c10-5be89e6129db&amp;img_etag=%221af49b582d1c3fc46db0e8ba1f355b9b%22&amp;size=1024) *圖片:路透社(Reuters )* 
-•類似於(美國)網飛公司(Netflix)的中國流媒體服務公司[愛奇藝](https://markets.businessinsider.com/stocks/iq-stock?utm_source=markets&amp;utm_medium=ingest)表示，美國證券交易委員會已對該公司展開調查。
+儘管理論上DCEP會對傳統貨幣和支付體繫帶來毀滅性的巨大挑戰，但如何有效地使用區塊鏈加密技術進行數字人民幣的發放和轉移尚未有解決方法。何亦凡表示，他和其他BSN同行暫不清楚區塊鏈技術技術在國家層面的央行數字貨幣（CBDC ）項目中如何發揮作用。當DCEP推出後，商業銀行可以採用區塊鏈技術進行數字貨幣的結算和流通，但不知道涉及面會有多廣，是否適用於央行一級交易。何亦凡還補充道，在DCEP推廣初期，可能只限於個人主導的交易，如個人對公司對或個人對個人，其效果和目前的微信支付或支付寶沒有什麼差別。只有當真正用在企業主導的企業間或企業對個人的交易上時，DCEP的效應才會得到發揮，但隨即又會帶來如稅收和銀行結算等方面的改變，短時間內全面推廣是很難做到的。
 
-• 週五在盤前交易中，愛奇藝公司的股價下跌了18％。
+**DCEP缺乏實用性**
 
-• 進行調查之前，一家名為狼群研究公司(Wolfpack Research)的賣空公司質疑愛奇藝的用戶數量、銷售、費用以及2018年對天月公司(Skymoons)的收購。
+值得注意的是，中共的DCEP並不支持加密技術在貨幣匿名性方面的使用，這就使數字人民幣無法與比特幣和其他虛擬貨幣目前所具有的匿名性和隱私功能相媲美。不過，中共央行人士曾信誓旦旦承諾說要保護用戶的隱私，並稱DCEP的核心目標是替換部分貨幣基礎或流通中少見的硬通貨，而打臉的是，去年人民銀行行長易綱卻稱，數字人民幣並不是要取代如銀行存款和其他支付平台上的餘額等形式的貨幣供應。
 
-週五， [愛奇藝公司(iQiyi)](https://markets.businessinsider.com/stocks/iq-stock?utm_source=markets&amp;utm_medium=ingest) （一家類似於網飛公司(Netflix)的中國流媒體服務公司）的股票在盤前交易中下跌了18％，這次下跌發生在[該公司表示](https://ir.iqiyi.com/news-releases/news-release-details/iqiyi-announces-second-quarter-2020-financial-results)美國證券交易委員會（SEC）對其進行了調查之後。
+一位不願透露姓名的知情人士告訴Coin Telegraph，DCEP的實際效用很有限，尤其涉及到跨境交易方面。由於人民幣在世界貨幣市場上不能自由兌換，數字人民幣在國際上可以說不具任何影響，尤其是當它只限於個人對公司的交易時，完全沒有意義。比如，如果一家境外公司接受數字人民幣，它首先必須在某中國商業銀行開設賬戶（電子錢包賬戶和銀行賬戶），從而能先將數字貨幣兌換成人民幣，再通過某中國商業銀行在當地的分行將人民幣兌換成當地貨幣。不過，該人士補充說，當企業對企業的交易採用DCEP時，對那些與中國企業有直接業務聯繫的國際公司來說會帶來一些好處。
 
-一家賣空公司—-狼群研究公司（Wolfpack Research） [4月份的報告稱](https://wolfpackresearch.com/research/iq-netflix-of-china-good-luckin/) ，“(愛奇藝)公司在2018年首次公開募股（IPO）之前就犯了欺詐行為，此後一直如此。” 。這片報告發出後，美國證券交易委員會(SEC)進行了調查。 (狼群研究公司)報告質疑愛奇藝的用戶數量、銷售、費用以及2018年對成都天月數字娛樂公司的收購(等一系列行為的真實性)。
+雖然中共當局繼續強調DCEP只是當局打擊洗錢等犯罪活動以及幫助人民銀行控制實體貨幣流通的一種方式，但數字人民幣很顯然會成為支付寶和微信支付等一些本地數字支付系統的強大競爭對手。目前，中共國是除烏克蘭、瑞典、烏拉圭、巴哈馬和韓國以外世界上少數幾個測試央行數字貨幣的國家。最近有消息稱，中共政府已經明確打算在2022年北京冬奧會期間測試它的數字產品，但計劃的詳情目前無人知曉。
 
-愛奇藝公司在周四的收益報告中表示，美國證券交易委員會(SEC)已要求其提供2018年1月以來的愛奇藝公司的某些財務和運營記錄，以及狼群研究公司（Wolfpack Research ）報告中明確指出的那些收購和投資的相關文件。 (愛奇藝)公司表示正在與美國證券交易委員會(SEC)合作。
+[原文鏈接](https://cointelegraph.com/news/chinas-digital-yuan-cbdc-is-close-but-many-details-remain-unknown)
 
-(愛奇藝)公司還說，在狼群研究公司（Wolfpack）報告發布後，它聘請了專業顧問對指控進行內部審查。
-
-愛奇藝的最大股東[百度](https://markets.businessinsider.com/stocks/baidu-stock?utm_source=markets&amp;utm_medium=ingest) ，是中國搜索引擎巨頭，其股價在上週五的盤前交易中也下跌了5％。
-
-近期繼包括[瑞幸咖啡(Luckin Coffee)虛假銷售](https://www.businessinsider.com/luckin-coffee-fabricated-310-million-in-sales-investigation-2020-4?utm_source=markets&amp;utm_medium=ingest)在內的一系列會計醜聞之後，美國正在加強對在美國證券交易所進行交易的中共國公司的監管。正在此時，美國證券交易委員會(SEC) 宣布對愛奇藝調查。
-
-川普政府上週提出了一項計劃，要求在美國上市的中共國公司必須[在2022年之前遵守美國審計要求](https://www.wsj.com/articles/trump-administration-seeks-crackdown-on-chinese-companies-with-shares-traded-in-u-s-11596748284) ，否則放棄在美國上市。
-
-[!\[\](https://spark.adobe.com/page/C0LGSjaiqUunq/images/45b2c6d6-4e83-4d3d-a9f8-b85f3c705929.jpg?asset_id=f15485dd-dd38-4b6a-9e2f-ee8dad910121&amp;img_etag=%2250f9e8120525a1caf45193c359ae148a%22&amp;size=2560)](https://spark.adobe.com/page/C0LGSjaiqUunq/images/45b2c6d6-4e83-4d3d-a9f8-b85f3c705929.jpg?asset_id=f15485dd-dd38-4b6a-9e2f-ee8dad910121&amp;img_etag=%2250f9e8120525a1caf45193c359ae148a%22&amp;size=1024)市場內幕版(Markets Insider )
-
-截至週四收盤， [愛奇藝今年已上漲約5％](https://markets.businessinsider.com/stocks/iq-stock?utm_source=markets&amp;utm_medium=ingest) 。
-
-[新聞鏈接](https://markets.businessinsider.com/news/stocks/iqiyi-stock-chinese-netflix-sec-probe-shortseller-report-fraud-allegations-2020-8-1029504935#)
-
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/C0LGSjaiqUunq/)
+翻譯：明澈
+校對：Sarathecat
 
 0
