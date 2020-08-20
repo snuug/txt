@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/10 CCP病毒每日疫情直播簡報
-`2020-08-19 08:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/302912/)
+## 蘋果App Store 在中國的處境會日益艱難？
+`2020-08-19 10:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/303083/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19103040/Picture-1-63.png)照片來源: [https://www.aroged.com](https://www.aroged.com/china-takes-revenge-on-apple-and-the-app-store-to-bend-the-united-states/) 
+**蘋果努力配合中共相關要求以維持中國市場**
 
-[English\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)
+根據美國科技新聞網站AppleInsider的最新的報導，儘管蘋果一直透過配合中共的要求，例如在App Store中刪除相關應用程序的行動來努力維持與CCP政府官員的關係，但是因為近年來中美兩國關係的持續升溫使得蘋果的處境處於劣勢，更可能會危及到App Store本身。
 
-[French\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)
+報導指出，蘋果因為考量中國市場對收入和硬件生產佔了非常大的比重，所以一直小心翼翼地對中共政府和監管機構表示服從。以及大部分的供應鏈位於中國境內，並給其帶來大量的收入，因此蘋果公司非常渴望維持這樣緊密的合作關係。
 
-[German\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)
+針對蘋果公司的規模和實力，意味著蘋果擁有比其他跨國公司更大的影響力，並能夠規避中共的一些法律，但也有其局限性。根據《信息》（The Information）的消息來源，儘管蘋果公司提出了要求，但在2017年與監管機構的年會議仍然糟糕透頂。那年，蘋果公司宣布了在中共的三個研發中心，並將iCloud數據的控制權移交給了與其合作的中國本地公司。然而，在與監管機構的一次會晤中，有消息人士表示，剛剛任命的大中華區負責人伊莎貝爾·葛·馬埃（Isabel Ge Mahe）被告知，蘋果並沒有想像中的那麼暢行無阻，並且應該遵守所有中共法律。
 
-[Japanese\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)
+文中表示，儘管以前蘋果能夠獲得允許其在中共運營的豁免權，例如在沒有本地合作夥伴的情況下經營App Store或對應用程序和內容實行寬鬆的審查制度；然而，現在蘋果公司必須更加合規並遵循與每個人相同的規則。
 
-[Korean\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)
+**中共對App Store的審查制度成為製肘**
 
-[Russian\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)
+這些要遵守的措施包括最近從中國的App Store下架了數千款遊戲，因無法從當地監管機構那裡獲得許可。以及蘋果也宣稱放棄了在中國推出Apple TV的計劃。據可靠消息來源，蘋果更大的關注是涉及關鍵豁免的項目，例如那些允許App Store完全運營的豁免。可以說最大的豁免是App Store本應由中共合作夥伴來控股和運營，但是自從App Store於2010年在中國開業以來，蘋果就沒有這樣做。此外，儘管App Store應該要確保應用程序遵循相關法律，包括那些嚴格審查內容和服務的法律，但是實際上App Store的運營態度則寬鬆得多。
 
-[Spanish-0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)
+事實證明，早在2013年中共啟動上海自由貿易區以鼓勵外國投資時，蘋果確實有機會解決這個問題。消息人士表示蘋果高管曾考慮在該地區設立法人實體來維持這家商店，而無需合資夥伴，但由於存在潛在的失控而被駁回。蘋果在中美貿易戰期間一直等到2018年，才對該實體進行註冊，但最後中共政府拒絕批准該申請。熟悉訴訟程序的人士說，中共官員希望蘋果公司對App Store發生的事情做出更多讓步，但是這是蘋果公司高管不願意接受的。
 
+鑑於川普政府的當前形勢以及要求出售TikTok在美國的業務以將其從中共手中轉移出去的情況，這使App Store更處於不穩定的情況，中共隨時有可能向蘋果提出更多報復性的要求。根據蘋果公司前員工在報告中表示，這場打壓的戰爭可能只是中共搶奪App Store的開端，為的是要將App Store完全符合中共的法律。
 
+**譯評:**
 
-1
+所有的公司團體、平民百姓在中共眼中都是一個棋子。知名國際公司如Apple 也是，儘管憑藉創新科技以及在中共國的許多投資，享有相關優惠，以及享受中國廣大市場帶來的巨大人口紅利，但是與惡魔交易的下場就是要配合指示任其擺佈。關於下架某些APP，或者發表什麼意見，Apple公司儼然已成為中共代理人。然而，只要中共一滅，少了欺詐掩瞞、少了政治操作，世界經濟在遵守法治、自由市場的規則之下運作，世界經濟一定會更蓬勃發展，各大公司也可以更正大光明的經營獲利。關鍵還是在於全球齊心，一致滅共。
+
+[原文鏈接](https://appleinsider.com/articles/20/08/18/app-store-in-china-may-face-more-regulation-due-to-apples-weaker-position)
+
+翻譯：william 
+校對：晴天小螞蟻
+
+0

@@ -1,23 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/11 CCP病毒每日疫情直播簡報
-`2020-08-19 11:06 GM62` [轉載自GNews](https://gnews.org/zh-hant/303085/)
+## 特鲁多政府中止WE慈善腐敗案聽證會，可能結束特別委員會對中共的調查
+`2020-08-19 13:51 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/303213/)
 
-戰友之家圖文摘要及小語種組
+喜馬拉雅聯盟加拿大農場來得及
+![20200819.jpg](https://lh3.googleusercontent.com/PG5G68DTaB8jtM2XKbCXmhi9pyDD_BTdkn7OFnOKDxCOT-g9fO7CtQABFMpQccAvXxxKTjS_9BZTbRZZDuJe2Z1yyPstz8DGOSzted8Vtfou0jZdD0wlDairRt74sA5SccBJpl0)
+圖片來源：cbc.ca
 
-[English\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110327/English_0811_CCP_Virus_Updates.pdf)
+加拿大總理賈斯汀·特魯多（Justin Trudeau）於2020年8月18日在渥太華與副總理兼財政部長（新任）克里斯蒂亞·弗里蘭德（Chrystia Freeland）、政府內事務部長多米尼克·勒布朗（Dominic LeBlanc）對記者講話決定關閉國會六週。
 
-[French\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110330/French_0811_CCP_Virus_Updates.pdf)
+一、關閉議會變相拖延WE慈善貪腐案調查
 
-[Japanese\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110334/Japanese_0811_CCP_Virus_Updates.pdf)
+總理賈斯汀·特魯多（Justin Trudeau）決定關閉國會六週，可能會破壞反對派為調查WE慈善機構的爭議而做出的努力，這意味著調查加中關係危機的特別委員會的結束，自由黨最初投票反對成立該委員會。
 
-[Korean\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110341/Korean_0811_CCP_Virus_Updates.pdf)
+反對黨議員在委員會中的人數超過自由黨政府的成員，因此可以凌駕執政黨舉行聽證會，但是特魯多關閉國會的舉動關閉了所有委員會的活動，直到9月23日新一屆會議開始為止。委員會恢復運作之前可能會延遲數週。
 
-[Russian\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110345/Russian_0811_CCP_Virus_Updates.pdf)
+三個不同的下議院委員會正在調查WE慈善爭議，包括財務委員會，道德委員會和政府運營委員會。作為常務委員會，議會回來後將重新組建它們。
 
-[Spanish\_0811\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19110338/Spanish_0811_CCP_Virus_Updates.pdf)
+根據反對黨影子內閣財政部長皮埃爾波利耶夫（Pierre Poilievre）的說法，財務委員會計劃在8月和9月初舉行更多有關WE爭議的會議。他指責特魯多（Trudeau）要求減少損害其政府的爭議。
 
+WE Charity隸屬於幾個相關慈善機構以及以營利為目的的ME to WE公司。自從與聯邦政府達成一項合同以來，該合同一直備受爭議，該合同涉及一項價值5.435億美元的計劃，以支付學生從事志願者工作的費用。在針對特魯多的利益衝突指控中，該協議於7月3日被取消。
 
+二、關閉議會變相結束特別委員會對中共的調查
+
+保守黨和新民主黨人周二也對加中關係特別委員會的未來表示嚴重關切。作為一個由下議院投票產生的特別委員會，當議會返回時，需要重新投票成立該特別委員會。
+
+該委員會正在準備一份有關香港危機的報告，並希望在9月收到前大使約翰·麥卡勒姆（John McCallum）的來信。現在無法發布任何計劃的報告。
+
+少數派自由黨政府反對組建中國委員會，並於2019年12月投票反對成立中國委員會，但由于魁人政團（BlocQuébécois）和新民主黨（NDP）支持保守黨議案，反對黨的票數超過了該委員會。自從中共將兩名加拿大人扣押以報復加拿大扣押孟晚舟以來，兩國之間的關係已大大惡化。
+
+保守黨影子內閣中加關係部長加內特·格努伊斯（Garnett Genuis）曾是加拿大-中國委員會成員，他說，特魯多妨礙了迫切需要就加拿大可以為香港提供幫助的建議，因為中國共產黨打擊前英國的民主自由屬地。
+
+另一位中國委員會委員，新民主黨國會議員傑克·哈里斯（Jack Harris）說，他對發生的事情感到憤怒，並將尋求重啟。
+
+該委員會的自由黨成員彼得·弗拉吉斯卡托斯（Peter Fragiskatos）表示，他希望看到中國委員會在獲得批准後恢復工作。 “我認為委員會所做的工作非常出色，我們聽到了一些非常有力的證人的話，他們給了我們關於加中關係本質的非常好的想法。”
+
+三、短評
+
+關閉國會六週，可謂一石二鳥，一方面拖延腐敗案的調查，一方面停止對中共的調查。
+
+加拿大左派政府一方面總理和內閣大臣貪腐案纏身，另一方面毫無遮掩繼續與中共合作，包括
+
+（1）不撤回投入中共控制的亞洲發展銀行的資金
+
+（2）繼續與中共軍方背景生物公司康希諾生物聯合開發CCP病毒疫苗
+
+（3）持續支持中共控制下的國際衛生組織WHO
+
+（4）給170個加拿大使館安裝中共背景科技公司威視的“安保設備”
+
+（5）對中共軍方科技企業華為不採取有力行動
+
+（6）現在又變相停止調查中共的特別委員會
+
+………..
+
+中共過去幾十年的茁壯成長，沒有西方世界極左共產勢力的抬頭是不可能的。加拿大政界、金融界被中共攔金黃的程度，以及自己腐爛的程度可能還沒有被完全揭示出來。
 
 0

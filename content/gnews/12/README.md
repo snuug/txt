@@ -1,24 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/11 CCP病毒每日疫情直播簡報
-`2020-08-19 10:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/303065/)
+## 【中文字幕完整版】班農疫情作戰室第338期
+`2020-08-19 13:34 GM10` [轉載自GNews](https://gnews.org/zh-hant/303205/)
 
-重点中文：
-
-1. 中共外交部在環球網上譴責美國衛生部長訪問台灣，因為中共害怕世界聚焦台灣，台灣僅480例冠狀病毒感染病例，7人死亡，這是中華民主的典範。
-2. 前重慶市長黃奇帆認為中美之間的摩擦已經上升到準備進行鬥爭，中共控制的大陸將進入內循環模式。這是否意味中共將要閉關鎖國 ?
-3. 自七月初以來，幾百個城市連續泡水四十多天。8月11日，成都整個城區被暴雨籠罩，部分街道被淹沒。
-4. 德國之聲，8月10日：香港警方已逮捕了媒體大亨黎智英（Jimmy Lai），他是中國在香港政策上的直言不諱的批評人。這位71歲的老人擁有廣受歡迎的報社《蘋果日報》（Apple Daily）。
-5. Natalie Winters：商業利益交織在一起，這實際上又是中共滲透的元素。 National Pulse首席執行官表示他將利用字節跳動公司（BiteDance，即抖音位於北京的母公司）來推廣“社會主義核心價值觀”······
+**摘要/文章
+戰友之家新聞譯制組**
 
 
-1. Ministry of Foreign Affairs of CCP condemned US Secretary of Health and Human Services for visiting Taiwan, as CCP fears world focus on Taiwan where has only 480 cases of COVID-19, 7 deaths, a model of Chinese democracy.
-2. Huang Qifan (former mayor of Chongqing), believes that the friction between China and U.S is reaching a point to a fight. CCP is planning to set into an internal circulation mode,  the world wonder if CCP will close the country.
-3. Since July,  hundreds of cities in China have been soaked in water for more than 40 days. August 11th, Chengdu once again was covered by stormy rain and some streets were flooded.
-4. DW News, August 10：Police in Hong Kong arrested media tycoon Jimmy Lai, an outspoken critic of China’s policies in Hong Kong. The 71-year-old owns popular tabloid Apple Daily.
-5. Natalie Winters: Business interests interwoven, and again is really an element of infiltration by CCP. The National Pulse CEO said he would use his company BiteDance(Beijing-based parent company to TikTok) to promote “socialist core values”…
 
+**波特蘭目擊者賀南德斯(博客生命貴自由記者，製作人)指出：**816晚上 ，賀南德斯離「黑命貴」群眾大約2英尺，拿著錄像機記錄他們的暴行。受害人在其中一段視頻中說，他們只是在附近跑UBER外賣，無緣無故地就遭毆打，一個人挨打，下一個又挨打，有人試圖保護前一個，情況就一發不可收拾了。
+受害人在被攻擊後躲避上車，然後出車禍，下車後，被一群人圍攻，被木棒毆打，最後失去知覺，躺在地上，就是被錄下的那段。現在波特蘭街頭就是如此。當時無司法人員在場，打911電話也不能馬上接通。
+
+**Horowitz霍羅威茲 (保守派作家)**新書：「閃電戰，川普將粉碎左派，並獲勝」，在紐約時報暢銷書籍榜待了6周，卻只有一個電臺談論。
+霍羅威說，共和黨人對民主黨人太客氣了，稱他們為自由主義者，其實他們是獨斷者，他們的首要目標是挑戰第一修正案(意見自由，集會自由，宗教自由等)。
+很陰暗的自由主義者，懷恨的偏執狂主義者，如果意見不同，會毀了你的事業和你的家人，然後，人們就不想說真話了。
+30年來， 川普是著名公眾人物，從未有人說他是白人至上主義者，直到他與民主黨人競爭。
+民主黨是一個種族主義政黨，種族主義是他們的主要武器。
+民主黨控制著美國的每個內城，並到處肆虐。
+歷史事實是黑人奴役黑人，而白人解放了黑人。
+
+**Darren Beattie 比第(保守派分析員)**談到白俄羅斯近況，比第指國家部門聯合非政府組織，打擊他們不喜歡的領導人，就是所謂的顔色革命。
+這種玩反總統的把戲，在白俄羅斯，他們直接聯繫了反川普力量。
+
+**McSally麥薩利(參議員，亞利桑那州)表示：**中國共產黨和中國的崛起是美國這一代，甚至未來，最大的地緣政治威脅。
+中共一直在竊取我們的工作、技術、研究，在國際舞臺上作弊，而我們卻一直讓他們這麼做，現在需要所有的人，開始行動，去阻止他們。
+中共的目的是統治世界，成為世界的領導。
 
 
 
