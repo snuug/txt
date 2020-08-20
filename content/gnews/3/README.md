@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港律政司介入許智峯私人檢控西灣河開槍警案 要求法庭撤控 豁免被告出庭
-`2020-08-20 05:20 GM36` [轉載自GNews](https://gnews.org/zh-hant/305915/)
+## 【中意文視頻版】2020/08/11 CCP病毒每日疫情直播簡報
+`2020-08-20 08:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/306777/)
 
-許智峯表示，18 日收到信件，指律政司正式決定介入其向去年11月11日於西灣河開槍的交通部警長提控一案，並已去信西九龍裁判法院要求撤控。許智峯稱律政司司長鄭若驊「以人治取代法治」，包庇警暴，考慮在短期內提出司法覆核。這正符合共產黨行政一貫作風：黑箱作業、官官相衛。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20051657/820_1.png)
-【港版國安法】美國務院：直系親屬財務若與被制裁者有混雜 或遭凍結資產
+意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 200: Trump blocca BiteDance(società madre di TikTok)
 
-早前《傳真社》報道指林鄭目前正在美國哈佛大學修讀博士的幼子林約希自上月25日開始失蹤，其後表示因「家有急事」突然回港，引來外界關注与猜测。     美國務院回覆《蘋果》查詢時指，「香港正常化」行政命令的制裁及簽證限制只針對此權限所指定人員，並不針對直系親屬，但指出，若有關直系親屬包括子女的財務連繫與被制裁者有混雜，則有遭凍結財產的風險。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20051842/820_2.jpg)
-收集人：JAY、文卡西歐
 
-整理：向新世界
 
-新闻源：THE STAND NEWS
+重点中文：
 
-[https://www.thestandnews.com/politics/](https://www.thestandnews.com/politics/)
+1. 中共外交部在環球網上譴責美國衛生部長訪問台灣，因為中共害怕世界聚焦台灣，台灣僅480例冠狀病毒感染病例，7人死亡，這是中華民主的典範。
+2. 前重慶市長黃奇帆認為中美之間的摩擦已經上升到準備進行鬥爭，中共控制的大陸將進入內循環模式。這是否意味中共將要閉關鎖國 ?
+3. 自七月初以來，幾百個城市連續泡水四十多天。8月11日，成都整個城區被暴雨籠罩，部分街道被淹沒。
+4. 德國之聲，8月10日：香港警方已逮捕了媒體大亨黎智英（Jimmy Lai），他是中國在香港政策上的直言不諱的批評人。這位71歲的老人擁有廣受歡迎的報社《蘋果日報》（Apple Daily）。
+5. Natalie Winters：商業利益交織在一起，這實際上又是中共滲透的元素。 National Pulse首席執行官表示他將利用字節跳動公司（BiteDance，即抖音位於北京的母公司）來推廣“社會主義核心價值觀”······
 
-[https://hk.appledaily.com/local/20200819/BJYDM5JRZZCPVDITZKK5PDQJAY/](https://hk.appledaily.com/local/20200819/BJYDM5JRZZCPVDITZKK5PDQJAY/)
+
+1. Il Ministero degli Affari Esteri del PCC ha condannato il Segretario della Salute e dei Servizi Umani degli Stati Uniti  per aver visitato Taiwan, poiché il PCC teme che il mondo si concentri su Taiwan, un modello di democrazia cinese con solo 480 casi di COVID-19, 7 morti.
+2. Huang Qifan (ex sindaco di Chongqing), ritiene che l’attrito tra Cina e Stati Uniti stia raggiungendo un punto di rottura. Il PCC sta progettando di impostare una modalità di circolazione interna, il mondo si chiede se il PCC chiuderà il paese.
+3. Da luglio, centinaia di città in Cina sono state immerse nell’acqua per più di 40 giorni. L’11 agosto, Chengdu è stata nuovamente colpita da una tempesta e alcune strade sono state allagate.
+4. DW News, 10 agosto: La polizia di Hong Kong ha arrestato il magnate dei media Jimmy Lai, un critico schietto delle politiche cinesi a Hong Kong. Il 71enne possiede il popolare tabloid Apple Daily.
+5. Natalie Winters: Gli interessi commerciali si intrecciano, ci sono elementi di infiltrazione. Il CEO di National Pulse ha detto che userà la sua compagnia BiteDance (società madre di TikTok) per promuovere “valori fondamentali socialisti” …
+
 
 0
