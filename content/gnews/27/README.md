@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 四川樂山市五通橋區大批群眾緊急撤離，官方稱未發現氯化氫等氣體超標
-`2020-08-20 09:42 GM01` [轉載自GNews](https://gnews.org/zh-hant/307370/)
+## 法國拉烏爾(Raoult) 醫生:一種已經被20億人服用過的葯羥氯喹如何在2020年變成了有毒的? （法文French+英文English）
+`2020-08-20 10:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/307447/)
 
-*國內新聞作者: 背靠背*
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20084645/03bb05709ba5f119.jpg)
-8月20日上午8時，四川樂山市五通橋區沿湧斯江區域出現刺激性氣味，大批群眾撤離。
+法文標題 Dr. Raoult : comment un médicament qui a été pris par deux milliards de personnes est devenu en 2020 toxique
 
-四川樂山市五通橋區沿湧斯江區域出現刺激性氣味，疑似化工廠氣體洩漏，大批群眾撤離擠滿街道。市區環保部門監測點位均未發現氯化氫、氟化氫、氯氣、氨氣、VOCs（揮發性有機物）等指標超標情況。據駐守在現場的消防員表示，根據初步排查，未在相關公司發現任何漏點，具體異味產生的原因尚不清楚。
+翻譯：珠丝玛迹 校對：珠丝玛迹 視頻製作：文菠萝
 
-群眾表示:化工氣體，氣味刺鼻，難以忍受，政府部門告訴他們，有這個情況，但是沒有超過他們的標準。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20085054/8af528d1c4a96049.jpg)
-四川省永祥股份、樂山市福華通達農藥科技有限公司發佈聲明稱：所有涉及公司的設備、裝置壹切正常、安全，未發生任何洩漏等異常情況。
+視頻簡介
+法國馬賽的醫生拉烏爾質問:如何解釋這場完全瘋狂的針對羥氯喹的戰爭? 是否是背後巨大的經濟利益?
+Le professeur Didier Raoult était interviewé par Laurence Ferrari le 19 août. Il demande comment expliquer cette guerre complètement folle contre l’hydroxychloroquine ? Est-ce que ce sont les intérêts financiers monstrueux ?
 
-五通橋區隸屬於四川省樂山市，是四川重要的工業基地、四川省化工基地，也是國內十大原料基地之壹。此前的8月18日，受洪災影響，位於樂山市五通橋區的永祥多晶矽廠區按當地政府應急管理局要求已緊急停產。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20085319/unknown-4.png)
 
 
 0

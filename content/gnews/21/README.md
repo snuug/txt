@@ -1,16 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法國拉烏爾(Raoult) 醫生:一種已經被20億人服用過的葯羥氯喹如何在2020年變成了有毒的? （法文French+英文English）
-`2020-08-20 10:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/307447/)
+## 【世界多語言圖文】2020/08/12 CCP病毒每日疫情直播簡報
+`2020-08-20 11:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/307409/)
 
-法文標題 Dr. Raoult : comment un médicament qui a été pris par deux milliards de personnes est devenu en 2020 toxique
+戰友之家圖文摘要及小語種組
 
-翻譯：珠丝玛迹 校對：珠丝玛迹 視頻製作：文菠萝
+[English\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)
 
-視頻簡介
-法國馬賽的醫生拉烏爾質問:如何解釋這場完全瘋狂的針對羥氯喹的戰爭? 是否是背後巨大的經濟利益?
-Le professeur Didier Raoult était interviewé par Laurence Ferrari le 19 août. Il demande comment expliquer cette guerre complètement folle contre l’hydroxychloroquine ? Est-ce que ce sont les intérêts financiers monstrueux ?
+[French\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)
+
+[German\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)
+
+[Japanese\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)
+
+[Korean\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)
+
+[Spanish\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)
 
 
 
