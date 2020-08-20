@@ -18,6 +18,11 @@
 **郭文贵MILES** `2020-08-20T13:40:08`
 ##
 
+[8月20日: Mr. Guo Wengui's Statement Re. Arrest of Steve Bannon   郭文贵先生关于对班农先生被逮捕的声...](/content/getter/content/2020/08/5f3eac0c1be0b830427d4fd8.md)
+
+**郭文贵MILES** `2020-08-20T16:59:56`
+##
+
 [8月20号：文贵．关于我们的战友史蒂夫．班农．被捕的的声名！  August 20: Wengui. About our comrade Steve. Bann...](/content/getter/content/2020/08/5f3eaa2a1be0b830427d4dca.md)
 
 **郭文贵MILES** `2020-08-20T16:51:54`
@@ -156,10 +161,5 @@
 [8月14日：新中国联邦绝对是．受天力．奉民心、天地合之大作……结合……妙不可言！秘不能宣！](/content/getter/content/2020/08/5f36c73a1be0b8304276d443.md)
 
 **郭文贵MILES** `2020-08-14T17:17:46`
-##
-
-[8月14号：谢谢战友们发回的信息．对刚才我录的新中国联邦的国旗视频！颠倒了新中国联邦旗帜的提醒，现在已经改正过来，谢谢！](/content/getter/content/2020/08/5f36c4401be0b8304276d24e.md)
-
-**郭文贵MILES** `2020-08-14T17:05:04`
 ##
 
