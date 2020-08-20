@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/10 CCP病毒每日疫情直播簡報
-`2020-08-19 08:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/302912/)
+## 第八版診療方案中的硫酸羥氯喹和磷酸氯喹
+`2020-08-19 20:46 GM01` [轉載自GNews](https://gnews.org/zh-hant/303382/)
 
-戰友之家圖文摘要及小語種組
+國內新聞:#7002
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19202432/B9A03E1A-57F3-4B43-96E9-DBF5387BDCF8.jpeg)
+8月19日國家衛健委官網發佈《新型冠狀病毒肺炎診療方案（試行第八版）》，在方案中明確不推薦使用硫酸羥氯喹或聯合使用阿奇霉素，但是允許α-干擾素、利巴韋林、磷酸氯喹、阿比多爾可繼續試用。也就是說可以用磷酸氯喹，但不可以使用作用原理基本一致、毒副作用更小、更安全的羥氯喹。這是怎麼一種神經錯亂呢？我們一起猜測一下背後的有可能的動因：
 
-[English\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084914/English_0810_CCP_Virus_Updates1.pdf)
+1. 羥氯喹是爆料革命路德社最早提出來的治療CCP病毒藥物，如果公開允許羥氯喹的使用，也就相當於為爆料革命背書，證明瞭爆料革命的「真」與「善」；
 
-[French\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084922/French_0810_CCP_Virus_Updates1_v1.pdf)
+2. 川普總統是最早提出羥氯喹有效的政治人物，為了打擊川普總統的個人信用，也不能公開聲明羥氯喹的有效性；
 
-[German\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084929/German_0810_CCP_Virus_Updates1.pdf)
+3. 制藥行業的利益，羥氯喹太便宜了，一旦確認了羥氯喹的臨床有效性，就不會再有制藥公司研發相關藥物和疫苗了；
 
-[Japanese\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084925/Japanese_0810_CCP_Virus_Updates1.pdf)
+4. CCP拿疫苗來發財，拿疫苗來利誘一帶一路國家的策略也相應也會落空；
 
-[Korean\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084932/Korean_0810_CCP_Virus_Updates1-.pdf)
+5. 一旦全世界認識到羥氯喹可以有效治療及預防CCP病毒，CCP的這波搞亂美國搞亂世界的目的就一定程度上落空。
 
-[Russian\_0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084918/Russian_0810_CCP_Virus_Updates1.pdf)
-
-[Spanish-0810\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19084936/Spanish-0810_CCP_Virus_Updates1.pdf)
+所以羥氯喹背後所牽扯的政治利益、戰略意義、經濟利益都不是那麼簡單的，這也許就是CCP和眾多利益團體抹黑羥氯喹的原因。
 
 
 
-1
+0
