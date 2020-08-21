@@ -1,16 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新報告顯示去年有500億美元加密數字貨幣資產離開中國
-`2020-08-21 06:04 GM01` [轉載自GNews](https://gnews.org/zh-hant/309426/)
+## 8月21日財經快訊: 數字貨幣花活多, 疫苗前景不明朗
+`2020-08-21 09:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/309942/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21055051/%E6%88%AA%E5%B1%8F2020-08-21-%E4%B8%8A%E5%8D%8810.50.18.png)
-根據區塊鏈数据分析公司Chainalysis的最新研究，過去壹年約有500億美元的加密貨幣資產離開中國，中國公民每年每人只可以轉移5萬美元的資金出國。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21090930/Picture-1-71.png)圖片來源： [https://www.fxempire.com/](https://www.fxempire.com/news/article/the-crypto-daily-movers-and-shakers-august-3rd-2020-664543) 
+[1.俄羅斯世博銀行（Expobank）發行首款以數字加密貨幣為擔保物的貸款,貸款者用Waves幣作為該貸款的抵押品](https://www.themoscowtimes.com/2020/08/19/russian-bank-issues-first-crypto-backed-loan-a71197)
 
-該公司8月20日的報告中表示，具有爭議的加密貨幣泰達幣（Tether）在此期間從東亞流出的資金超過180億美元。因為Tether其價值與美元掛鉤，占該地區穩定幣使用量的93％。
+[2.歐洲知名科學家Giuseppe Tritto近日表示中共病毒疫苗短期內可能無法成功，並認為病毒可能誕生於中共軍方實驗室](http://www.asianews.it/news-en/Prof-Tritto:-COVID-19-was-created-in-the-Wuhan-laboratory-and-is-now-in-the-hands-of-the-Chinese-military-50719.html)
 
-根據郭文貴先生在直播中的信息，未來即將發行的G系列數字貨幣將同時掛鉤美元與黃金。
+[3.繼6月北美二手車均價下探至歷史低點時，本月二手車市場卻引來第二春，曼海姆二手車指數（Manheim Used Vehicle Value Index）從6月158攀升至163.4 ，顯示出消費者對市場的信心，但同時也有分析師指出，指數的上揚或只是消費者對政府第二輪消費刺激措施抱有濃厚興趣](https://chicago.suntimes.com/2020/8/14/21365668/used-car-prices-spiking-covid-19-pandemic-market-for-new-cars-vehicles-inventory-rental-cars-hertz)
 
-来源：[https://www.bloomberg.com/news/articles/2020-08-20/crypto-assets-of-50-billion-moved-from-china-in-the-past-year](https://www.bloomberg.com/news/articles/2020-08-20/crypto-assets-of-50-billion-moved-from-china-in-the-past-year)
+[4.世貿組織6月數據指出二季度全球商品貿易持續下滑，表明經濟復甦仍舊充滿挑戰。 6月份商品貿易指數僅為84.5，同期下滑18.6,並悲觀預期全年跌幅或為13%左右。](https://www.zerohedge.com/markets/world-trade-fell-lowest-levels-june)
+
+新聞整理：Mr. 
+ 【密翻組-金融法律組】
 
 0

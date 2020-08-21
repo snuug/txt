@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中意文視頻版】2020/08/13 CCP病毒每日疫情直播簡報
-`2020-08-20 23:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/308890/)
+## 國家債務和早年中國勞工移民的罹難
+`2020-08-21 04:24 GM31` [轉載自GNews](https://gnews.org/zh-hant/309268/)
 
-意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 202: Il bacino del fiume Yangtze ha 50.000 dighe
+在8.15 G-TV直播的這一部分中，郭先生解釋了為什麼他無法認可價值1.6萬億美元的國債。 要認可這項債務的前提條件是美國應先補償所有早年為美國修建道路和基礎設施的最早的中國勞工移民，當時成千上萬的人死于危險的建設當中。
 
+郭先生還警告美國精英們，這場比賽的名字現在是“安全主義”。 只有滅共，才能控制病毒的狀況，才能恢復正常生活，否則，人們的生命都將難保，而談論2024總統選舉簡直就是一個夢想。
 
+NFSC現在無需任何人認可， 西方和世界已經意識到，除了與NFSC聯盟並竭力推翻CCP之外，人類別無其他生存之道。
 
-視頻重點
+*翻譯**:**【**RD16**】*  *字幕**:**【小螺號】【* *Naomi (**文花開**)**】*  *編輯**:**【**GM31**】**Transcoding:**【小螺號】*
 
-1. 長江流域有5萬座水庫，本應具有防洪和洩洪功能。 但是由於水壩的洪水排放，大片農田被淹沒了。被淹也是大壩的功能之一嗎？
-2. 美國海關與邊境保護局宣佈，即日起各口岸，對進口的中國英騰集團服飾，下達暫扣令。因為該公司涉嫌在生產服裝時，使用了來自監獄的奴工。
-3. 黎智英被捕事件引發高度關注，許多港人無懼中共打壓香港新聞自由的卑劣行徑，用行動支持，大量買入《蘋果日報》，且《壹傳媒》股票上漲三倍。
-4. 美國國務卿蓬佩奧，8月12日：中共政權的馬列主義核心不亞於蘇聯的，也許比蘇聯有過之而無不及。
-5. 義大利的政黨、歐洲議會，澳大利亞，還有印度，正在聯合起來瞭解到底在巴基斯坦有沒有P3實驗室和P4實驗室在与中共合作。
+*戰友之家玫瑰園小隊出品*
 
-
-1. Il bacino del fiume Yangtze ha 50.000 bacini idrici, dovrebbero essere dotati di funzione di controllo e scarico delle inondazioni, ma ampi tratti di terreno agricolo sono stati allagati a causa dello scarico delle dighe.
-2. La Dogana degli Stati Uniti ha annunciato che tutti i porti emetteranno ordini di detenzione temporanea per gli indumenti importati dal Chinese Hero Vast Group, poiché la società è sospettata di utilizzare manodopera schiava delle prigioni per la produzione di abbigliamento.
-3. L’arresto di Jimmy Lai ha destato grande attenzione. Molti cittadini di Hong Kong non hanno paura dell’atto spregevole del PCC di sopprimere la libertà di stampa di Hong Kong e hanno acquistato numerose copie del giornale “Apple Daily” e il prezzo delle azioni “Next Digital”  sono aumentate del triplo.
-4. Il Segretario Pompeo: Il regime del PCC ha un nucleo marxista-leninista non meno di quanto ne avesse l’Unione Sovietica, forse di più.
-5. Miles Guo: I partiti politici in Italia, Il Parlamento europeo, Australia e India stanno lavorando insieme per scoprire se ci sono o meno laboratori P3 e P4 in Pakistan che in collaborazione con PCC.
-
-
-0
+1

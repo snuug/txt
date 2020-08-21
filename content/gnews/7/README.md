@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共外交官在太平洋島國的行為說明了什麼？
-`2020-08-21 00:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/308984/)
+## 勁爆：華爾街日報的彌天大謊！
+`2020-08-21 05:45 GM99` [轉載自GNews](https://gnews.org/zh-hant/309372/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21001404/Picture-1-69.png)圖片來源：www.pinterest.ca 
-《紐約時報》（New York Times）8月19日報導了一張照片，引發熱議。照片顯示中共大使唐松根在太平洋島國基里巴斯(Kiribati)舉行的一場歡迎儀式上，按照當地的習俗在30個當地人的背上踩著走過場。
+#### **作者：Phoenix**
 
-一些人認為，這張照片象徵著中共的“戰狼”外交，體現了北京專橫的殖民主義做法。而在當地基里巴斯人和中共看來，這種批評是西方的大驚小怪，他們認為這只是當地的習俗，常常出現在婚禮上和某些歡迎儀式上。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21052937/Cover2.png)
 
-無論如何，這場看似小題大做的辯論，卻反映出這樣一個現實：這些太平洋島國在地緣政治中正變得舉足輕重，中美雙方正在這塊幅員遼闊的區域以援助和交流的形式進行著爭奪影響力的戰爭。
+華爾街日報撒彌天大謊，造謠郭文貴先生和GTV等遭遇FBI調查，而這些虛假信息則來自所謂的不具名“相關人士” 。
 
-澳大利亞國立大學亞太學院副教授卡特琳娜·泰伊瓦(Katerina Teaiwa)說：“我們的島嶼一直是別人地緣政治的遊戲場，沒人認真對待或傾聽太平洋島民的聲音，這讓人非常沮喪。 ”卡特琳娜的父親來自基里巴斯。
+8月19日，華爾街日報刊登了標題爲《班農和郭文貴搞募捐遭調查》的文章（*[鏈接1](https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467)*），通過捏造事實和曲解事實的方法誤導讀者。文章中說，根據相關人士提供的消息，“The federal probe is being conducted by the Federal Bureau of Investigation… whether GTV or associates of Mr. Guo violated securities laws through the private share placement”，錯誤引導讀者，使讀者誤認爲FBI正在針對郭文貴先生和GTV進行調查。但事實上，FBI從未沒有發起過類似針對郭先生的調查。
 
-位於赤道附近的基里巴斯曾是英國的殖民地，由33個島嶼組成，海洋專屬經濟區面積達350萬平方公里。基里巴斯是與夏威夷距離最近的鄰國。太平洋上有數百個人口稀少的島嶼，加起來的總面積佔地球表面的15%，就像散落在中國、美國和澳大利亞之間的棋子。隨著中美兩國的激烈競爭，基里巴斯是幾個對北京和華盛頓都越來越重要的太平洋國家之一。悉尼智庫洛伊研究所太平洋島嶼項目主任喬納森·普萊克(Jonathan Pryke)說：“在第二次世界大戰期間，這些位於遙遠海洋中間的小島就具有不可估量的戰略重要性，從那以後的戰略地理也沒有發生太大的變化。”
+文章還通過移花接木和刻意扭曲事實，暗指 Voice of Guo發佈針對GTV的虛假投資信息。文中中說 “… they could invest in the GTV Media offering through another entity called Voice of Guo Media Inc. … ”，並且“GTV Media said in its statement that it didn’t issue shares to anyone through Voice of Guo Media”。而事實上，郭先生早在6月2日直播中就已經對外公佈，Voice of Guo的募集資金並不在GTV的私募範圍之內（*[鏈接2](https://www.youtube.com/watch?v=oa1Ab3UhsW8)*）。雖然華爾街日報的妓者並不願意相信，但是，Voice of Guo的資金與GTV毫無關係。
 
-中共一直在太平洋地區製造聲勢，並開始取得初步勝利。上個月，巴布亞新幾內亞加入到伊朗和委內瑞拉等國的行列，投票支持了中共對半自治的香港實施嚴厲的新國安法的聯合國決議。今年1月，所羅門群島（“二戰”期間一些最重要的戰役就發生在這裡）與台灣的民主自治政府斷絕了關係，轉為承認台灣是中國領土的一部分。幾天后，基里巴斯也作出了同樣的選擇，這個轉變馬上得到了中共領導人習近平的讚揚。中基兩國簽署了一份諒解備忘錄，將這個島國納入了中共的“一帶一路”基礎設施倡議；兩國建立了外交關係後，習近平稱讚基里巴斯和該國總統“站在了歷史的正確一邊” 。不久後，唐松根成為首任中共駐基里巴斯大使，並已經收到當地請求，讓中方幫助提高當地島嶼的高度，以免受氣候變化導致的海平面上升影響。不過，唐踩著他人後背走路的照片給了他一種新的可見度。
+文章還通過錯誤引用事實的方式來混淆是非。例如，其中一段說“In Taiwan…police had prevented one supporter of Mr. Guo from tansfeering $43000 to Voice of Guo because they suspected financial fraud”，暗指由於郭文貴先生金融詐騙導致投資人匯款失敗。而熟悉爆料革命的戰友都知道這個說法與事實完全不相符。其中這位“臺灣人”的真實身份是侯小寶先生，他曾經親自在路德時評節目中現身說法，他在節目中明確說匯款不是被詐騙。他表明臺灣警察拒絕轉款的表面理由是擔心金融詐騙，實則爲中共大外宣爲了污衊爆料革命而採取的措施之一（*[鏈接3](https://www.youtube.com/watch?v=vfcVje9Dy3U)*）。
 
-中共駐基里巴斯大使館週一在臉書上發出一份聲明，稱那純粹是一次教育訪問，旨在促進“相互理解”，探索“合作機會”。該聲明沒有為歡迎儀式做辯護或解釋，但似乎是對那張照片幾天前出現在臉書和推特上的討論的回應。
+華爾街日報的這篇報道，通篇通過引用部分事實甚至虛構事實的方式，輔以引導和暗示，爲讀者營造出錯誤的幻覺，使讀者誤以爲GTV、Voice of Guo、郭先生和班農先生等存在巨大的金融犯罪行爲。但是，對於基本事實的刻意曲解，卻難以掩蓋其打壓爆料革命和郭文貴先生的真實目的。作者Brian Spegele 和 Aruna Viswanatha之前也通過撒謊和造謠的方式來抹黑爆料革命和郭文貴先生 （*[鏈接4](https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463)*）。
 
-美國駐斐濟的國防武官康斯坦丁·帕納約圖中校(Cmd. Constantine Panayiotou)是照片的批評者之一，他在推特上指責說“我無法想像踩著兒童後背走路的場景是任何國家的大使（或就此而論任何成年人！）可接受的行為。然而，中共駐基里巴斯大使讓我們看到了這個場景。” 新西蘭克賴斯特徹奇的坎特伯雷大學教授安瑪麗·布雷迪( Anne-Marie Brady)也說，不管儀式的目的是什麼，完全無法與人們對它的看法相抗衡：“它給人的視覺形象讓人意識到了不平衡的新殖民主義。”
+但是，華爾街日報此舉的背後真實意圖是什麼呢？郭文貴先生在最新直播中給出了答案。
 
-澳大利亞官員也作出了類似的批評，引發了熟悉這種傳統習俗的人的強烈反對。一些人指出，趴在地上的人似乎都是成年人。另一些人指出，這個儀式是表示尊重，不是由大使發起的，而是由當地的長輩發起的，試圖以最為隆重的習俗以示尊敬和好客。
+這一切的發生，其實早已在郭文貴先生的預料之中。郭先生在8月20日的蓋特視頻中，建議戰友要做好心裏準備，因爲未來幾天，共產黨以及各方面西方的黑暗將會發動對爆料革命和國際正義力量進行最“兇猛的攻擊”和“全面的攻擊”，目的則是要滅掉爆料革命，“至少要他們（爆料革命）半條命”。面對猛烈的攻擊，郭先生建議所有的戰友要“辨別是非”，“不要着急判斷”，並且在安全的情況下站出來抵抗。綜合來看，華爾街日報的這篇報道只是中共此次滅爆行動的前奏而已。
 
-這些討論流於表面，而美國官員更擔心的是中共會利用基里巴斯猖獗的腐敗，在夏威夷以南的聖誕島上修建戰略前哨。
-
-點評：當我們遇到不同的文化衝突時，如何正確對待是我們的選擇，就像本文所討論的關於唐大使踩在30人背上的事件，唐大使可以選擇踩過去，也可以選擇平等和尊重他人的變通方式，以體現了國與國之間的交往理念，窺一斑而知全豹，中共對內不懂得尊重民意，對外也就不可能懂得平等對待，為達到其目的，可以不擇手段。中共涉足太平洋島國，也為中美競爭帶來了不確定的影響。
-
-[原文鏈接](https://www.nytimes.com/2020/08/19/world/asia/kiribati-china.html)
-
-翻譯：Hong 
-校對：文投
+**鏈接**
+1. [https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467](https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467)
+2. [https://www.youtube.com/watch?v=oa1Ab3UhsW8](https://www.youtube.com/watch?v=oa1Ab3UhsW8)
+3. [https://www.youtube.com/watch?v=vfcVje9Dy3U](https://www.youtube.com/watch?v=vfcVje9Dy3U)
+4. [https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463](https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463)
 
 0
