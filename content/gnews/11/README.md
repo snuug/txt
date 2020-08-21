@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 擠兌再次上演，中共官方通報稱：謠言！
-`2020-08-20 20:53 GM30` [轉載自GNews](https://gnews.org/zh-hant/308628/)
+## 【中意文視頻版】2020/08/13 CCP病毒每日疫情直播簡報
+`2020-08-20 23:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/308890/)
 
-**作者：麓山之蜂**
+意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 202: Il bacino del fiume Yangtze ha 50.000 dighe
 
-近日，河北省邢台市甯晉縣的邢台銀行甯晉支行發生儲戶擠兌事件。而共匪處理這次儲戶集中提取存款的套路依舊是抓人辟謠，目的就是讓儲戶放棄提取存款。想盡一切辦法不給儲戶兌現就是共匪的一貫作風，這也可以稱爲中共特色。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20204509/%E9%87%91%E8%9E%8D%E5%B7%A5%E4%BD%9C%E5%8A%9E%E5%85%AC%E5%AE%A4%E5%9B%BE1.jpg)
 
-以上是2020年8月19日，中共僞政府甯晉縣地方金融監督管理局、甯晉縣金融工作辦公室聯合發出的《關于邢台銀行甯晉支行謠言情況的說明》。
+視頻重點
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20204554/%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%9B%BE2.jpg)
+1. 長江流域有5萬座水庫，本應具有防洪和洩洪功能。 但是由於水壩的洪水排放，大片農田被淹沒了。被淹也是大壩的功能之一嗎？
+2. 美國海關與邊境保護局宣佈，即日起各口岸，對進口的中國英騰集團服飾，下達暫扣令。因為該公司涉嫌在生產服裝時，使用了來自監獄的奴工。
+3. 黎智英被捕事件引發高度關注，許多港人無懼中共打壓香港新聞自由的卑劣行徑，用行動支持，大量買入《蘋果日報》，且《壹傳媒》股票上漲三倍。
+4. 美國國務卿蓬佩奧，8月12日：中共政權的馬列主義核心不亞於蘇聯的，也許比蘇聯有過之而無不及。
+5. 義大利的政黨、歐洲議會，澳大利亞，還有印度，正在聯合起來瞭解到底在巴基斯坦有沒有P3實驗室和P4實驗室在与中共合作。
 
-以上是8月20日，河北省邢台市甯晉縣公安局發布的警情通報。
 
-中共僞政府通報的邢台銀行甯晉支行被擠兌的情況爲：8月19日，甯晉縣換馬店鎮某村村民王某某到某國有商業銀行甯晉支行取錢，因支取10萬元存款沒有提前預約，銀行工作人員告知其明天可以過來支取，後其又到邢台銀行甯晉支行取10萬元，因也沒有提前預約，銀行工作人員同樣告知其明天可以取錢。爲此，王某心生怨恨，遂散布“邢台銀行要倒閉了，已經支取不出存款”之類的謠言，造成了不良社會影響。
+1. Il bacino del fiume Yangtze ha 50.000 bacini idrici, dovrebbero essere dotati di funzione di controllo e scarico delle inondazioni, ma ampi tratti di terreno agricolo sono stati allagati a causa dello scarico delle dighe.
+2. La Dogana degli Stati Uniti ha annunciato che tutti i porti emetteranno ordini di detenzione temporanea per gli indumenti importati dal Chinese Hero Vast Group, poiché la società è sospettata di utilizzare manodopera schiava delle prigioni per la produzione di abbigliamento.
+3. L’arresto di Jimmy Lai ha destato grande attenzione. Molti cittadini di Hong Kong non hanno paura dell’atto spregevole del PCC di sopprimere la libertà di stampa di Hong Kong e hanno acquistato numerose copie del giornale “Apple Daily” e il prezzo delle azioni “Next Digital”  sono aumentate del triplo.
+4. Il Segretario Pompeo: Il regime del PCC ha un nucleo marxista-leninista non meno di quanto ne avesse l’Unione Sovietica, forse di più.
+5. Miles Guo: I partiti politici in Italia, Il Parlamento europeo, Australia e India stanno lavorando insieme per scoprire se ci sono o meno laboratori P3 e P4 in Pakistan che in collaborazione con PCC.
 
-從中共僞政府通報的情況來看，貌似很有道理。當認真、仔細推敲，可謂是漏洞百出。分析：村民王某第一次去銀行支取10萬存款，銀行告知沒有提前預約，當天不能提取。那爲什麽邢台市甯晉縣公安局就發布的警情通報中沒有將村民王某第一次去到的某國有商業銀行甯晉支行的名字進行公開呢？這其中的某國有商業銀行難道很神秘，其面紗不能被公布嗎？亦或某國有商業銀行是受害銀行嗎？但是村民王某是支取存款10萬，應該屬于合理、合法行爲，怎麽第一次取款的銀行名字不能被公開呢？這其中又隱含著哪些不可告人的秘密呢？既然這個通報中有這麽重要的內容都被隱瞞，那這個通報的可信度還存在嗎？
-
-此刻，中共僞政府肯定會對社會說：政府、公安局發布的內容不要過分解讀。
-
-@北京頭條也迅速在其微博上發布了此消息；@財經真相在其推特上發布了擠兌現場視頻。
-
-而河北省邢台銀行經營就沒一點問題嗎？邢台銀行的真的能如期、如數兌付儲戶的存款嗎？
-
-邢台銀行2019年年報顯示：截止2019年年末，邢台銀行的資産總額爲1031.17億元，2019年邢台銀行的淨利潤爲2.15億元，同比減少43.12%；截止2019年末，邢台銀行的不良貸款爲2.81%，同比上升0.72個百分點；撥備覆蓋率爲153.49%，同比上升9.94個百分點。
-
-據企業查得知，而邢台銀行董事兼順德支行行長孫秀梅卻有著“老賴”的美名。孫秀梅爲邢台銀行董事兼順德支行負責人，其于2019年9月因違反財産報告制度被列爲失信被執行人；同期，由于未按執行通知書制定的期間履行生效法律文書確定的給付義務，涉及與清河縣鑫達來典當有限公司的借款合同糾紛，被限制高消費。
-
-8月11日，河北邯鄲市紀委監委網占消息顯示，據永年區紀委消息：邢台銀行永年支行行長賈勇涉嫌嚴重違紀違法，目前正接受紀律審查和監察調查。
-
-邢台銀行不僅經營不善，問題十分嚴重，而且其內部管理、人事方面也存在驚人的問題，只是被提前點火罷了。
-
-在中共國，每次銀行遭遇擠兌，中共僞政府總是用所謂的“謠言”來告知被嚴重洗腦的老百姓。也只有在中共國，能因爲謠言，讓銀行被擠兌而倒閉。
-
-在共匪這個體制下，儲戶一直都是韭菜，只是什麽時候被其收割而已。中共國的銀行業在接下來的狂風暴雨中會越來越多的銀行遭遇擠兌，希望牆內的同胞們，不要再被中共這種下三濫的謊言、經不起推敲與琢磨的通報所蒙蔽了，如果繼續沈睡，那在接下來很快就會來臨的狂風暴雨中，您和您的家人如何才能安度此劫呢？
-
-醒醒吧！親愛的同胞們。
-
-（文章內容僅代表作者觀點）
 
 0
