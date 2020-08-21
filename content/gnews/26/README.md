@@ -1,27 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共教育部要求全面恢復教育教學秩序——CCP病毒恐校內大爆發
-`2020-08-21 07:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/309476/)
+## 中共和巴基斯坦伊朗中東合作建造實驗室 研發生化武器 以最低成本最強殺傷力滅掉美國和以色列（日语Japanese+中文Chinese+英文English）
+`2020-08-21 07:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/309130/)
 
-編輯記者：川渝小哥G  校對編輯：文劍 宠宝贝（文宠）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064432/1-101.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064537/2-51.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064557/3-24.png)
-8月21號，根據北京青年報報導，教育部於20號印發《關於做好2020年秋季學期教育教學和疫情防控工作的通知》，要求全面恢復教育教學秩序。通知指出，各地各校要按照國家衛健委、教育部聯合印發的《關於印發高等學校、中小學校和托幼機構秋冬季新冠肺炎疫情防控技術方案的通知》要求，結合本地疫情形勢制定開學方案。學校黨組織書記和校長(園長)作為第一責任人，全面排查各類設施設備安全隱患，按照”錯區域、錯層次、錯時、錯峰””屬地統籌”等原則，周密安排2020年秋季學期開學工作，全面恢復正常教育教學秩序。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064601/4-%E6%B4%9B%E6%9D%89%E7%9F%B6.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064608/5-%E6%B4%9B%E6%9D%89%E7%9F%B6.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064633/7-%E5%AE%9E%E9%99%85%E5%90%88%E6%A0%BC%E7%8E%8730.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064654/8-6.png)
-CCP病毒初期爆發時，中共提供給西班牙、捷克、英國、荷蘭、澳大利亞等國的醫療檢測試劑及設備，被曝光為不達標的劣質產品。西班牙部長薩爾瓦·伊拉表示該國從中國購買的快速檢測試劑，前9000項檢測只有30%的準確率。芬蘭發現中國運來的個人防護設備無法達到使用標準，澳大利亞緝獲了80萬個來自中國的劣質口罩，荷蘭也要求退還60萬個劣質口罩。以上事件證明中共製造的檢測試劑和醫護產品合格率極低，無法保障人民安全。4月23號，中國經濟周刊報導深圳市政府公佈了一組新冠肺炎病例中師生佔比數據。其中學生感染21人，老師感染6人。學校屬於人員密集場所，病毒大爆發大傳播幾率很大。在此背景下，教育部仍然下達全面恢復教育教學秩序的指令。將導致大量師生相互傳染，甚至死亡。而中共築造的防火牆封鎖了全部訊息，醫院不敢確診、媒體不敢報導、人民不敢討論，將造成史無前例的人道災難。
+小語種標題 CCPはパキスタン、中東へ協力して生物化学兵器を開発する実験室を建設し　最安かつ最強な殺傷威力で米国とイスラエルを消滅する
 
-新聞及資料來源: (教育部要求全面恢復教育教學秩序 北京青年報發佈於2020年8月21號)
-
-[http://epaper.ynet.com/html/202008/21/content\_359833.htm?spm=C73544894212.P59511941](http://epaper.ynet.com/html/202008/21/content_359833.htm?spm=C73544894212.P59511941)
-
-(新測試的不可靠性延緩了在西班牙延緩冠狀病毒傳播的努力 西班牙報紙《El Pais》發佈於2020年3月27號)
-
-[https://english.elpais.com/society/2020-03-27/unreliability-of-new-tests-delays-effort-to-slow-coronavirus-spread-in-spain.html](https://english.elpais.com/society/2020-03-27/unreliability-of-new-tests-delays-effort-to-slow-coronavirus-spread-in-spain.html)
-
-(中國提供給世界的病毒醫護防護產品不合格 洛杉磯時報發佈於2020年4月10號)
-
-[https://www.latimes.com/world-nation/story/2020-04-10/china-beijing-supply-world-coronavirus-fight-quality-control](https://www.latimes.com/world-nation/story/2020-04-10/china-beijing-supply-world-coronavirus-fight-quality-control)
+翻譯： 感言🇯🇵 校對： 风花雪月 🇯🇵 視頻： 文件夹 文稿： yuyu（文悠）🇯🇵
 
 
+
+視頻簡介
+面對中共的作惡，美國是最危險的國家，有許多華爾街和亞洲巨頭力挺中共，並提供經濟支持。中共在中東、伊朗、巴基斯坦瘋狂地建設P3實驗室，因為製造病毒生化武器成本最低、殺傷力最強。郭文貴先生於華盛頓早在三年前，就警吿美國和西方國家，中共在中東、伊朗和巴基斯坦，有建造生化武器基地的計劃，而現在中共已經實行了計劃，中共想滅掉美國和以色列。爆料革命從開始到現在三年間，郭文貴先生做了2680多次直播，一直在爆料真相以警醒世人。
+
+CCPの脅威に晒される最も危険な国は米国であり、ウォール街とアジアの巨頭は背後でCCPを支え、経済支援を提供している。CCPは最低コストかつ最強な殺傷威力を持つ生物化学兵器を製造するために中東、イランとパキスタンでP3実験室を必死に建設している。郭文貴さんは三年前からワシントンにて米国と西側諸国に、CCPは中東、イランとパキスタンで生物化学兵器を製造する基地の建設計画を有することを警告した。米国とイスラエルを消滅するため、現在その計画を遂行している。告発革命を起こしてから今までの三年間、郭文貴さんは２６８０回以上も亘ってオンラインライブを配信し、世間に真相を暴いて人々の覚醒を促してきた。
 
 0
