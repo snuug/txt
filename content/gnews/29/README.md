@@ -1,23 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/12 CCP病毒每日疫情直播簡報
-`2020-08-20 11:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/307409/)
+## Warroom 335 勞倫斯·塞林：中共通過其盟友巴基斯坦計劃統治南亞；印度將扮演關鍵角色制止中共在印度洋地區霸權
+`2020-08-20 12:29 GM77` [轉載自GNews](https://gnews.org/zh-hant/307944/)
 
-戰友之家圖文摘要及小語種組
-
-[English\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)
-
-[French\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)
-
-[German\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)
-
-[Japanese\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)
-
-[Korean\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)
-
-[Spanish\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+•中共想稱霸亞洲，巴基斯坦是僅次於朝鮮的盟友。中共希望在巴基斯坦的幫助下實現其統治南亞的目標。中共通過中巴走廊從經濟進入南亞，利用壹帶壹路來打通關鍵環節。但不僅如此中共還想要從軍事上進入南亞。因為中共國想要在印度洋的霸權，所以印度成為了美國和其他四方合作中的關鍵角色。
+•在反抗中共的過程中印度洋十分重要，因為中共國試圖從南海開始控制整個太平洋和印度洋，所以印度制定的太平洋戰略發揮了非常重要的作用。
 
 0

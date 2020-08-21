@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港中共脫鉤的前站
-`2020-08-20 17:21 GM36` [轉載自GNews](https://gnews.org/zh-hant/308378/)
+## 【中英文視頻版】2020/08/13 CCP病毒每日疫情直播簡報
+`2020-08-20 21:34 GM62` [轉載自GNews](https://gnews.org/zh-hant/308541/)
 
-整理：文白審稿：文橙
+英文標題 CCP Virus Pandemic Updates Ep 202: CCP regime has a Marxist-Leninist core no less than Soviet Union
 
-中共享獨裁暴政統治著世界偉大古老文明之一，中共的經濟從1980年佔世界國民生產總值的大約2%悄然增長到了今天的將近20%，就是因為它利用中國人民勤奮、力量、生產率和創造力和美國幾十年來形成盤根錯節的經貿關係，利用香港來偷取美元和全球的科技，可以說，中共的第一的科技來源是香港，第一的外彙來源是香港，第一的國際真實的信息也來源於香港。香港是中共的聚寶盆，是它獨裁體制安身至今的最大通道。
 
-曾經的香港是高度依賴[國際貿易](https://zh.wikipedia.org/wiki/%25E5%259C%258B%25E9%259A%259B%25E8%25B2%25BF%25E6%2598%2593)的[自由經濟](https://zh.wikipedia.org/wiki/%25E8%2587%25AA%25E7%2594%25B1%25E5%25B8%2582%25E5%25A0%25B4%25E7%25B6%2593%25E6%25BF%259F)體，作為國際貿易及金融樞杻，香港是全球服務業主導程度最高的經濟體，其中[貿易](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E8%25B2%25BF%25E6%2598%2593)及[物流業](https://zh.wikipedia.org/w/index.php?title=%25E9%25A6%2599%25E6%25B8%25AF%25E7%2589%25A9%25E6%25B5%2581%25E6%25A5%25AD&amp;action=edit&amp;redlink=1) （2018年該業增加值佔GDP的21.2% ）、 [金融服務業](https://zh.wikipedia.org/w/index.php?title=%25E9%25A6%2599%25E6%25B8%25AF%25E9%2587%2591%25E8%259E%258D%25E6%259C%258D%25E5%258B%2599%25E4%25B8%259A&amp;action=edit&amp;redlink=1) （19.7%）、 [專業](https://zh.wikipedia.org/wiki/Category:%25E9%25A6%2599%25E6%25B8%25AF%25E5%25B0%2588%25E6%25A5%25AD%25E5%259C%2598%25E9%25AB%2594)及工商業支持服務業（12.0%）、 [旅遊業](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF%25E6%2597%2585%25E9%2581%258A%25E6%25A5%25AD) （4.5%）是香港經濟的四個傳統主要行業。在國際上憑著“一個沒有貿易障礙的免稅港、政府在經濟方面乾預很少（實行積極不干預政策）、極低通脹、資金流動及對外投資障礙極少、金融與銀行業限制極少、薪酬與價格干預很少、產權觀念牢固、維持低程度的規管以及非常規市場活動很少”等的特點，在全球[經濟自由度指數](https://zh.wikipedia.org/wiki/%25E7%25B6%2593%25E6%25BF%259F%25E8%2587%25AA%25E7%2594%25B1%25E5%25BA%25A6%25E6%258C%2587%25E6%2595%25B8)中排名第一， [世界銀行](https://zh.wikipedia.org/wiki/%25E4%25B8%2596%25E7%2595%258C%25E9%2593%25B6%25E8%25A1%258C)營商便利度排名維持在全球第二到第六位之間，在[世界經濟論壇](https://zh.wikipedia.org/wiki/%25E4%25B8%2596%25E7%2595%258C%25E7%25BB%258F%25E6%25B5%258E%25E8%25AE%25BA%25E5%259D%259B)發布的《 [全球競爭力報告](https://zh.wikipedia.org/wiki/%25E5%2585%25A8%25E7%2590%2583%25E7%25AB%25B6%25E7%2588%25AD%25E5%258A%259B%25E5%25A0%25B1%25E5%2591%258A) 2018-2019》中， [香港](https://zh.wikipedia.org/wiki/%25E9%25A6%2599%25E6%25B8%25AF)排名全球第三，連續八年躋身全球十大最具競爭力的經濟體行列。
 
-在中共獨裁暴政籠罩下，2020年6月，即使全宇宙反對，也要強制實施蔑視全世界人民智商的《港版國家安全法》，變本加厲的殘酷迫害香港七百萬人民的基本人權，明目張膽的用惡法搶奪香港所有勇敢正義人士的私有財產，並將手深入西方自由的世界引渡抓捕它想抓捕的任何人，以實現永恆統治香港進而對抗自由世界的邪惡目的。
+視頻重點
 
-中共獨裁體制霸凌下的香港，經濟在2020年上半年遭受沉重打擊，生產總值進一步下跌，貿易出口創紀錄以來的最大跌幅，在不利的營商環境下，勞工市場也進一步下跌，達到6.2 %，超越了全球金融危機爆發後的5.5%，逾十五年來的最高水平。更加奇葩的是香港的經濟數據進入快跌通道的同時香港政府的消費開支節節攀升，儼然中共體制不管人民死活竊取人民財富的縮影。
+1. 長江流域有5萬座水庫，本應具有防洪和洩洪功能。 但是由於水壩的洪水排放，大片農田被淹沒了。被淹也是大壩的功能之一嗎？
+2. 美國海關與邊境保護局宣佈，即日起各口岸，對進口的中國英騰集團服飾，下達暫扣令。因為該公司涉嫌在生產服裝時，使用了來自監獄的奴工。
+3. 黎智英被捕事件引發高度關注，許多港人無懼中共打壓香港新聞自由的卑劣行徑，用行動支持，大量買入《蘋果日報》，且《壹傳媒》股票上漲三倍。
+4. 美國國務卿蓬佩奧，8月12日：中共政權的馬列主義核心不亞於蘇聯的，也許比蘇聯有過之而無不及。
+5. 義大利的政黨、歐洲議會，澳大利亞，還有印度，正在聯合起來瞭解到底在巴基斯坦有沒有P3實驗室和P4實驗室在与中共合作。
 
-現在的香港早已面目全非，中共將內地警察、解放軍非法地進入香港，用比黑社會還下流的手段，威脅逮捕、強姦香港人，造成的死亡，無名屍體，浮屍，以及香港中大，香港理大和香港各個學校，以及香港宗教學校遇到的這種慘無人道的，比當年日本鬼子進香港，中共的文化大革命和希特勒時期還要慘。即使在這樣情況下，19年民主派11月24日區議會選舉摘下破紀錄388席，投票率高達7成，香港人幾乎一面倒支持民主派。這一年多來香港人用真正的行動告訴世界，他們追求民主、法治和自由的信心和決心,香港人用親身的經歷告訴世界，中共獨裁暴政霸凌世界熱愛和平人民的狼子野心和陰謀詭計。
 
-中共不能代表14億中國人民，更加不能代表香港人，香港的真相感動了自由世界，讓有良知的人，和香港人民站在一起。脫鉤則是自由世界對中共獨裁暴政的必然選擇，而香港則是脫鉤的前站，自由世界已經開始改變對中共的看法，不再把中共政府視作“正常國家”，並且採取行動，終止香港享有的特殊貿易和商業特權，對參與執行《港版國安法》的香港和中共官員，包括香港親中共領導人林鄭月娥進行製裁，宣布暫停或終止了與香港的三項涉及引渡、逃犯移交、免稅的雙邊協議。種種行動表明, 香港爆發金融危機的時日不遠，金融脫鉤，美元同港幣脫鉤，港幣變廢紙，這相當於掐斷了中共的美元管道，掏空了中共的錢袋子。
+1. The Yangtze River Basin has 50,000 reservoirs, should with flood control and discharge function. But large tracts of farmland have been flooded due to flood discharge from the dams. Why?
+2. U.S. Customs announced that, all ports will issue temporary detention orders for the apparels imported from Chinese Hero Vast Group. Because the company is suspected of using slave labor from prisons when producing clothing.
+3. The arrest of Jimmy Lai has aroused great attention. Many Hongkongers are not afraid of CCP’s despicable act of suppressing Hong Kong’s freedom of the press, bought a large number of “Apple Daily”, “Next Digital” stock rose three times.
+4. Secretary Pompeo: The CCP regime has a Marxist-Leninist core no less than the Soviet Union did, and indeed, perhaps more so. We all know what we’re up against.
+5. Miles Guo: The political parties in Italy, the European Parliament, Australia and India as well, are working together to find out whether or not there are P3 and P4 labs in Pakistan in collaboration with CCP.
 
-自由世界必將戰勝中共獨裁暴政，中國人民和香港人必將迎來真正的民主、法治和自由。
-
-數據來源： [https://www.hkeconomy.gov.hk/tc/home/index.htm](https://www.hkeconomy.gov.hk/tc/home/index.htm)
 
 0
