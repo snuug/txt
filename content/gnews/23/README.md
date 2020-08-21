@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 勁爆：華爾街日報的彌天大謊！
-`2020-08-21 05:45 GM99` [轉載自GNews](https://gnews.org/zh-hant/309372/)
+## 滅共少不了你！
+`2020-08-21 07:35 GM36` [轉載自GNews](https://gnews.org/zh-hant/309651/)
 
-#### **作者：Phoenix**
+整理：台灣荔枝、文白、文非
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21052937/Cover2.png)
+美國AXIOS新聞報導，紐約時間8月20日，週四，前川普政府首席戰略家史蒂夫·班農先生，以聯邦欺詐罪被起訴並被紐約拘留。班農先生否認所指控罪名，當天下午，聯邦法官同意班農先生以五百萬美元保釋金獲得保釋，並將出行限制在紐約和華盛頓DC地區，且未經允許， **不能使用私人飛機或船隻** 。據報導，班農先生與另外三人被指控的主要罪名是通過名為“我們建牆”的眾籌活動籌得2500萬美元款項，將其中數十萬元用於私人花費。截至目前，班農先生是2016年川普總統競選團隊中第六位受到聯邦指控的高級成員，其他五位是在穆勒調查中被起訴的羅傑·斯通、邁克爾·弗林、里克·蓋茨、保羅·馬納福特和邁克爾·科恩。
 
-華爾街日報撒彌天大謊，造謠郭文貴先生和GTV等遭遇FBI調查，而這些虛假信息則來自所謂的不具名“相關人士” 。
+班農先生是2016年川普總統競選團隊核心成員，美國特朗普總統首任期的前七個月曾擔任美國[白宮首席策略長](https://zh.wikipedia.org/w/index.php?title=%25E7%2599%25BD%25E5%25AE%25AE%25E9%25A6%2596%25E5%25B8%25AD%25E7%25AD%2596%25E7%2595%25A5%25E9%2595%25B7&amp;action=edit&amp;redlink=1)兼[總統顧問](https://zh.wikipedia.org/wiki/%25E7%25BE%258E%25E5%259C%258B%25E7%25B8%25BD%25E7%25B5%25B1%25E9%25A1%25A7%25E5%2595%258F) ，媒體高管、政治人物、戰略家、前投資銀行家、法治社會主席、“ [爆料革命](https://zh.wikipedia.org/wiki/%25E7%2588%2586%25E6%2596%2599%25E9%259D%25A9%25E5%2591%25BD) ”的堅定支持者。
 
-8月19日，華爾街日報刊登了標題爲《班農和郭文貴搞募捐遭調查》的文章（*[鏈接1](https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467)*），通過捏造事實和曲解事實的方法誤導讀者。文章中說，根據相關人士提供的消息，“The federal probe is being conducted by the Federal Bureau of Investigation… whether GTV or associates of Mr. Guo violated securities laws through the private share placement”，錯誤引導讀者，使讀者誤認爲FBI正在針對郭文貴先生和GTV進行調查。但事實上，FBI從未沒有發起過類似針對郭先生的調查。
+中共勾結華爾街深度藍金黃的力量碰瓷班農先生，很詭異很突然，它們用法律超限戰的手段，企圖干擾並拖延班農先生傳播CCP病毒的真相，影響全球滅共的進程，最終左右美國大選。行動很瘋狂用心很險惡。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21073220/821_5.jpg)
+8月20日郭先生在直播中說到“ **班農被抓了才能知道共產黨有多大力量，這樣的寒蟬效應會震驚美國西方，反共下場就是這樣，下一個不會是比爾格次？皮特納瓦羅？彭培奧？不想變成班農，你就要滅共，你不滅共，未來都可能是這個下場。政治家都必須要接受捐款才能搞政治，裡面一旦臥底，設計你，噁心你，而且一定會在八月份，大選最關鍵時刻，中共內部很平靜，說肯定會把川普幹掉，哪能那麼簡單，滅共是最難的一件事** 。”
 
-文章還通過移花接木和刻意扭曲事實，暗指 Voice of Guo發佈針對GTV的虛假投資信息。文中中說 “… they could invest in the GTV Media offering through another entity called Voice of Guo Media Inc. … ”，並且“GTV Media said in its statement that it didn’t issue shares to anyone through Voice of Guo Media”。而事實上，郭先生早在6月2日直播中就已經對外公佈，Voice of Guo的募集資金並不在GTV的私募範圍之內（*[鏈接2](https://www.youtube.com/watch?v=oa1Ab3UhsW8)*）。雖然華爾街日報的妓者並不願意相信，但是，Voice of Guo的資金與GTV毫無關係。
+自2020年6月4日新中國聯邦建立以來，班農先生幾乎一直呆在郭文貴先生的船上，共謀滅共大業。此次對班農先生的逮捕和限制行動，將會在一定程度上影響原定計劃。共產黨在西方世界的藍金黃以及暗勢力，已經在垂死掙扎，他們對班農先生和爆料革命害怕至極，才出此下策。但我們相信，滅共的步伐不會停下來，這次破壞行動只會激發班農先生和西方正義力量滅共的決心，一定會在最短時間內徹底消滅共產黨。
 
-文章還通過錯誤引用事實的方式來混淆是非。例如，其中一段說“In Taiwan…police had prevented one supporter of Mr. Guo from tansfeering $43000 to Voice of Guo because they suspected financial fraud”，暗指由於郭文貴先生金融詐騙導致投資人匯款失敗。而熟悉爆料革命的戰友都知道這個說法與事實完全不相符。其中這位“臺灣人”的真實身份是侯小寶先生，他曾經親自在路德時評節目中現身說法，他在節目中明確說匯款不是被詐騙。他表明臺灣警察拒絕轉款的表面理由是擔心金融詐騙，實則爲中共大外宣爲了污衊爆料革命而採取的措施之一（*[鏈接3](https://www.youtube.com/watch?v=vfcVje9Dy3U)*）。
+在滅共上、冠狀病毒真相上，班農先生是最重要的戰友，堅信班農先生浴火重生。中共實驗室製造並釋放CCP病毒攻擊全球，用藍金黃的力量定點攻擊要消滅中共的人，它的霸權意圖顯露無疑
 
-華爾街日報的這篇報道，通篇通過引用部分事實甚至虛構事實的方式，輔以引導和暗示，爲讀者營造出錯誤的幻覺，使讀者誤以爲GTV、Voice of Guo、郭先生和班農先生等存在巨大的金融犯罪行爲。但是，對於基本事實的刻意曲解，卻難以掩蓋其打壓爆料革命和郭文貴先生的真實目的。作者Brian Spegele 和 Aruna Viswanatha之前也通過撒謊和造謠的方式來抹黑爆料革命和郭文貴先生 （*[鏈接4](https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463)*）。
-
-但是，華爾街日報此舉的背後真實意圖是什麼呢？郭文貴先生在最新直播中給出了答案。
-
-這一切的發生，其實早已在郭文貴先生的預料之中。郭先生在8月20日的蓋特視頻中，建議戰友要做好心裏準備，因爲未來幾天，共產黨以及各方面西方的黑暗將會發動對爆料革命和國際正義力量進行最“兇猛的攻擊”和“全面的攻擊”，目的則是要滅掉爆料革命，“至少要他們（爆料革命）半條命”。面對猛烈的攻擊，郭先生建議所有的戰友要“辨別是非”，“不要着急判斷”，並且在安全的情況下站出來抵抗。綜合來看，華爾街日報的這篇報道只是中共此次滅爆行動的前奏而已。
-
-**鏈接**
-1. [https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467](https://www.wsj.com/articles/fundraising-at-company-tied-to-steve-bannon-and-guo-wengui-faces-probe-11597857467)
-2. [https://www.youtube.com/watch?v=oa1Ab3UhsW8](https://www.youtube.com/watch?v=oa1Ab3UhsW8)
-3. [https://www.youtube.com/watch?v=vfcVje9Dy3U](https://www.youtube.com/watch?v=vfcVje9Dy3U)
-4. [https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463](https://www.wsj.com/articles/fbi-probes-chinese-exile-including-work-with-former-trump-aide-steve-bannon-11594248463)
+信息來源： [https://gnews.org/zh-hans/308384/](https://gnews.org/zh-hans/308384/)
 
 0

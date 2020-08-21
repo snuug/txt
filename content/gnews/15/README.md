@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共少不了你！
-`2020-08-21 07:35 GM36` [轉載自GNews](https://gnews.org/zh-hant/309651/)
+## 8月21日財經快訊: 數字貨幣花活多, 疫苗前景不明朗
+`2020-08-21 09:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/309942/)
 
-整理：台灣荔枝、文白、文非
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21090930/Picture-1-71.png)圖片來源： [https://www.fxempire.com/](https://www.fxempire.com/news/article/the-crypto-daily-movers-and-shakers-august-3rd-2020-664543) 
+[1.俄羅斯世博銀行（Expobank）發行首款以數字加密貨幣為擔保物的貸款,貸款者用Waves幣作為該貸款的抵押品](https://www.themoscowtimes.com/2020/08/19/russian-bank-issues-first-crypto-backed-loan-a71197)
 
-美國AXIOS新聞報導，紐約時間8月20日，週四，前川普政府首席戰略家史蒂夫·班農先生，以聯邦欺詐罪被起訴並被紐約拘留。班農先生否認所指控罪名，當天下午，聯邦法官同意班農先生以五百萬美元保釋金獲得保釋，並將出行限制在紐約和華盛頓DC地區，且未經允許， **不能使用私人飛機或船隻** 。據報導，班農先生與另外三人被指控的主要罪名是通過名為“我們建牆”的眾籌活動籌得2500萬美元款項，將其中數十萬元用於私人花費。截至目前，班農先生是2016年川普總統競選團隊中第六位受到聯邦指控的高級成員，其他五位是在穆勒調查中被起訴的羅傑·斯通、邁克爾·弗林、里克·蓋茨、保羅·馬納福特和邁克爾·科恩。
+[2.歐洲知名科學家Giuseppe Tritto近日表示中共病毒疫苗短期內可能無法成功，並認為病毒可能誕生於中共軍方實驗室](http://www.asianews.it/news-en/Prof-Tritto:-COVID-19-was-created-in-the-Wuhan-laboratory-and-is-now-in-the-hands-of-the-Chinese-military-50719.html)
 
-班農先生是2016年川普總統競選團隊核心成員，美國特朗普總統首任期的前七個月曾擔任美國[白宮首席策略長](https://zh.wikipedia.org/w/index.php?title=%25E7%2599%25BD%25E5%25AE%25AE%25E9%25A6%2596%25E5%25B8%25AD%25E7%25AD%2596%25E7%2595%25A5%25E9%2595%25B7&amp;action=edit&amp;redlink=1)兼[總統顧問](https://zh.wikipedia.org/wiki/%25E7%25BE%258E%25E5%259C%258B%25E7%25B8%25BD%25E7%25B5%25B1%25E9%25A1%25A7%25E5%2595%258F) ，媒體高管、政治人物、戰略家、前投資銀行家、法治社會主席、“ [爆料革命](https://zh.wikipedia.org/wiki/%25E7%2588%2586%25E6%2596%2599%25E9%259D%25A9%25E5%2591%25BD) ”的堅定支持者。
+[3.繼6月北美二手車均價下探至歷史低點時，本月二手車市場卻引來第二春，曼海姆二手車指數（Manheim Used Vehicle Value Index）從6月158攀升至163.4 ，顯示出消費者對市場的信心，但同時也有分析師指出，指數的上揚或只是消費者對政府第二輪消費刺激措施抱有濃厚興趣](https://chicago.suntimes.com/2020/8/14/21365668/used-car-prices-spiking-covid-19-pandemic-market-for-new-cars-vehicles-inventory-rental-cars-hertz)
 
-中共勾結華爾街深度藍金黃的力量碰瓷班農先生，很詭異很突然，它們用法律超限戰的手段，企圖干擾並拖延班農先生傳播CCP病毒的真相，影響全球滅共的進程，最終左右美國大選。行動很瘋狂用心很險惡。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21073220/821_5.jpg)
-8月20日郭先生在直播中說到“ **班農被抓了才能知道共產黨有多大力量，這樣的寒蟬效應會震驚美國西方，反共下場就是這樣，下一個不會是比爾格次？皮特納瓦羅？彭培奧？不想變成班農，你就要滅共，你不滅共，未來都可能是這個下場。政治家都必須要接受捐款才能搞政治，裡面一旦臥底，設計你，噁心你，而且一定會在八月份，大選最關鍵時刻，中共內部很平靜，說肯定會把川普幹掉，哪能那麼簡單，滅共是最難的一件事** 。”
+[4.世貿組織6月數據指出二季度全球商品貿易持續下滑，表明經濟復甦仍舊充滿挑戰。 6月份商品貿易指數僅為84.5，同期下滑18.6,並悲觀預期全年跌幅或為13%左右。](https://www.zerohedge.com/markets/world-trade-fell-lowest-levels-june)
 
-自2020年6月4日新中國聯邦建立以來，班農先生幾乎一直呆在郭文貴先生的船上，共謀滅共大業。此次對班農先生的逮捕和限制行動，將會在一定程度上影響原定計劃。共產黨在西方世界的藍金黃以及暗勢力，已經在垂死掙扎，他們對班農先生和爆料革命害怕至極，才出此下策。但我們相信，滅共的步伐不會停下來，這次破壞行動只會激發班農先生和西方正義力量滅共的決心，一定會在最短時間內徹底消滅共產黨。
-
-在滅共上、冠狀病毒真相上，班農先生是最重要的戰友，堅信班農先生浴火重生。中共實驗室製造並釋放CCP病毒攻擊全球，用藍金黃的力量定點攻擊要消滅中共的人，它的霸權意圖顯露無疑
-
-信息來源： [https://gnews.org/zh-hans/308384/](https://gnews.org/zh-hans/308384/)
+新聞整理：Mr. 
+ 【密翻組-金融法律組】
 
 0

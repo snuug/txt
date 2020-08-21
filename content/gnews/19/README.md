@@ -1,27 +1,116 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共教育部要求全面恢復教育教學秩序——CCP病毒恐校內大爆發
-`2020-08-21 07:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/309476/)
+## 重磅：矽穀自殺科學家黃穀陽與籌建武漢P4實驗室的陳竺之間不為人知的秘密
+`2020-08-21 08:41 立武` [轉載自GNews](https://gnews.org/zh-hant/309781/)
 
-編輯記者：川渝小哥G  校對編輯：文劍 宠宝贝（文宠）
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064432/1-101.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064537/2-51.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064557/3-24.png)
-8月21號，根據北京青年報報導，教育部於20號印發《關於做好2020年秋季學期教育教學和疫情防控工作的通知》，要求全面恢復教育教學秩序。通知指出，各地各校要按照國家衛健委、教育部聯合印發的《關於印發高等學校、中小學校和托幼機構秋冬季新冠肺炎疫情防控技術方案的通知》要求，結合本地疫情形勢制定開學方案。學校黨組織書記和校長(園長)作為第一責任人，全面排查各類設施設備安全隱患，按照”錯區域、錯層次、錯時、錯峰””屬地統籌”等原則，周密安排2020年秋季學期開學工作，全面恢復正常教育教學秩序。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064601/4-%E6%B4%9B%E6%9D%89%E7%9F%B6.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064608/5-%E6%B4%9B%E6%9D%89%E7%9F%B6.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064633/7-%E5%AE%9E%E9%99%85%E5%90%88%E6%A0%BC%E7%8E%8730.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21064654/8-6.png)
-CCP病毒初期爆發時，中共提供給西班牙、捷克、英國、荷蘭、澳大利亞等國的醫療檢測試劑及設備，被曝光為不達標的劣質產品。西班牙部長薩爾瓦·伊拉表示該國從中國購買的快速檢測試劑，前9000項檢測只有30%的準確率。芬蘭發現中國運來的個人防護設備無法達到使用標準，澳大利亞緝獲了80萬個來自中國的劣質口罩，荷蘭也要求退還60萬個劣質口罩。以上事件證明中共製造的檢測試劑和醫護產品合格率極低，無法保障人民安全。4月23號，中國經濟周刊報導深圳市政府公佈了一組新冠肺炎病例中師生佔比數據。其中學生感染21人，老師感染6人。學校屬於人員密集場所，病毒大爆發大傳播幾率很大。在此背景下，教育部仍然下達全面恢復教育教學秩序的指令。將導致大量師生相互傳染，甚至死亡。而中共築造的防火牆封鎖了全部訊息，醫院不敢確診、媒體不敢報導、人民不敢討論，將造成史無前例的人道災難。
-
-新聞及資料來源: (教育部要求全面恢復教育教學秩序 北京青年報發佈於2020年8月21號)
-
-[http://epaper.ynet.com/html/202008/21/content\_359833.htm?spm=C73544894212.P59511941](http://epaper.ynet.com/html/202008/21/content_359833.htm?spm=C73544894212.P59511941)
-
-(新測試的不可靠性延緩了在西班牙延緩冠狀病毒傳播的努力 西班牙報紙《El Pais》發佈於2020年3月27號)
-
-[https://english.elpais.com/society/2020-03-27/unreliability-of-new-tests-delays-effort-to-slow-coronavirus-spread-in-spain.html](https://english.elpais.com/society/2020-03-27/unreliability-of-new-tests-delays-effort-to-slow-coronavirus-spread-in-spain.html)
-
-(中國提供給世界的病毒醫護防護產品不合格 洛杉磯時報發佈於2020年4月10號)
-
-[https://www.latimes.com/world-nation/story/2020-04-10/china-beijing-supply-world-coronavirus-fight-quality-control](https://www.latimes.com/world-nation/story/2020-04-10/china-beijing-supply-world-coronavirus-fight-quality-control)
+> **如果說矽谷的兄弟姐妹們你們還不清醒，你呆在美國你和任何老共，我不管你什麼立場，你和老共的企業家和白手套，還有像中國的馬明哲，馬化騰，馬雲，百度李彥宏等等，還像熊曉鴿這樣的人，你再合作，你等著，你要麼就是張首晟，你要麼就是2號張首晟，你一定不會有好下場的。（文貴先生）**
 
 
+2002年，**在****SARS****爆發的前一年，**主流媒體報導，2月27日，**黃谷陽在美國加州矽谷槍殺了他的前任女上司後，自殺。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083419/1852769_huang300bbc-3.jpg)黄谷阳
+
+**身邊所有人都沒有想到會發生這樣的事情。**
+
+甚至前一個月，**黃谷陽還和趙國屏、陳竺一塊商量，轉到國內工作**。
+
+甚至當月，**[黃谷陽的老師、國際遺傳學大會主席趙壽元教授還為黃谷陽填寫完呈遞教育部的“特聘教授候選人推薦表”](https://news.sohu.com/02/88/news148088802.shtml)**。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083407/%E6%89%B9%E6%B3%A8-2020-08-21-1732734-3.png)
+
+所有人都知道這意味著什麼，**所有人都知道黃谷陽前途無量，所有人對他的死都默不作聲。**
+
+**被解雇、自視清高、被歧視、妻子流產、有哮喘病史**通通都成為黃谷陽的“殺人基因”。
+
+但卻沒有人留意**黃谷陽與陳竺、與江家之間**說不清道不明的關係。
+
+**黃谷陽**
+
+我們先來看看黃谷陽的來歷。
+
+1985年本科畢業。
+
+1986到美國發展。
+
+1992年獲得**[麻塞諸塞州立大學生物學博士](http://www.lifeweek.com.cn/2002/1120/3179.shtml)**學位。
+
+隨後，**[投到西雅圖華盛頓大學分子生物學系主任Leroy Hood門下從事博士後研究](http://www.cnd.org/HXWZExpress/02/03/020304-3.gb.html)**，任課題組負責人，還參加過**比爾·蓋茨投資的基因識別疾病**的研究專案。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083457/15vfB9BXTAJdoLXH71gbtPg-3.jpeg)左为Leroy Hood
+
+1996年至1997年，在**杜邦下屬公司****AgBiotech**做研究組長，同時在**德拉瓦大學**任教。
+
+1997年至1999年成為生物資訊公司“Double Twist”的**資深科學家和生產部經理**。
+
+1998年，**被復旦大學生命學院聘為兼職教授**。
+
+1999年，擔任**中國國家人類基因組南方研究中心**常務副主任。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083254/timg-1-3.jpg)
+
+2000年，回到美國擔任**矽谷製藥公司****PPD****微生物部門主任**，但仍然保留**中國華大基因中心副主任**職務。
+
+2002年，擔任**PPD****公司分子生物部和生物資訊學部的總監**。
+
+黃谷陽是一個天賦異稟的天才少年，是一個才華橫溢的科學家，**是一個與中共基因組計畫深深聯繫在一起的准長江學者**。
+
+他**將矽谷的科學技術、最前沿的研究資料帶到了中國，**帶到了復旦生命學院，[帶到了華大基因](https://news.sohu.com/10/05/news148060510.shtml)。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083228/0887b2d542f7490c8bf4b708e11ba15a-3.jpeg)
+
+**他的經歷正是中共偷竊美國技術、藍金黃學術圈、滲透美國矽谷的縮影，他的下場在他與中共勾兌的那一刻已經註定。**
+
+**陳竺**
+
+在**黃谷陽擔任中國國家人類基因組南方研究中心常務副主任**的時候，**當時的主任是陳竺，**當時陳竺還是**973****計畫的首席科學家**。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083203/00219963-3.jpg)
+
+自1994年，陳竺就開始參與中國人類基因組計畫的運籌、組織和管理工作，**組建了國家人類基因組南方研究中心和上海系統生物醫學研究中心**。
+
+值得注意的是，**[上海系統生物醫學研究中心](http://www.cas.cn/xw/ldhd/200503/t20050328_988580.shtml)**是上海與坐落在美國西雅圖的世界首個**[系統生物學研究所（ISB）](http://www.isb.pku.edu.cn/institute/Introduction/2010-12-16/15/)**共同合作建立的，而**ISB在2000年由Leroy Hood建立**，**Leroy Hood就是黃谷陽在華盛頓大學的導師！！！**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083151/%E6%89%B9%E6%B3%A8-2020-08-21-171716-7.png)Leroy Hood
+
+後來在2007年，**陳竺當上了中共的衛生部部長。**
+
+陳竺最為出名的是**全程參與了武漢****P4****實驗室的籌建工作，**包括提議、立項、選址、建設直到竣工。
+
+在2003年SARS期間，**時任中科院武漢病毒所所長胡志紅突然接到了中科院副院長陳竺的電話，**詢問能否承擔在武漢建設P4實驗室的任務。
+
+隨後，**病毒所副所長袁志明跟隨陳竺前往法國，同法國研究和新技術部部長****Haignere****女士協商，**達成建設P4實驗室的初步合作意向。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083103/20150131153748584-3-scaled.jpg)
+
+**陳竺前往法國為之後中法合作建設P4實驗室打下頭陣，**之後**[胡錦濤訪法、希拉克訪華、薩科齊訪華](https://www.thepaper.cn/newsDetail_forward_5705221)**等焦點事件都順理成章地發生，武漢P4實驗室也在中法兩國“友好交流”下逐漸建造起來。
+
+值得注意的是，**陳竺與法國的情誼由來已久。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21083020/AqvkOL5CMAAwGKI-3.jpg)法国国民议会会长阿夸耶代表法国总统萨科齐授予陈竺“法国荣誉军团军官勋章”
+
+陳竺曾在**法國巴黎第七大學聖路易醫院擔任外籍住院醫師，並攻讀博士學業，**主修分子生物學。
+
+陳竺的夫人陳賽娟同樣**在****1986****年進入法國巴黎第七大學攻讀博士學位。**
+
+他們的老師王振義更是**在****1992****年當選為法國科學院外籍院士。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21082917/bbc720e4-0f5f-43ec-9e27-fd4676f15071-3.jpg)左为王振义，右为Guy Vincendon
+
+**同樣和陳竺緊密聯繫在一起的是上海。**
+
+**回看陳竺整個學術生涯和政治生涯，幾乎都離不開上海，**包括陳竺的父親母親，陳竺的老師同事，可以說，**陳竺的勢力大部分都在上海。**
+
+提到上海，就不得不提到**上海幫的老大江家**。
+
+可以發現，陳竺之前的中科院副院長是江綿恒，**[陳竺被任命為中科院副院長，江綿恒起到不小作用。](https://www.epochtimes.com/b5/20/5/1/n12074420.htm)**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21082832/f6894bd3-d8f1-4db9-a0a6-9ff17b0a4f05-3.jpg)
+
+**而跟隨陳竺前往法國的前武漢病毒所副所長、現****P4****實驗室主任袁志明則是江志成的藥明康得的合夥人。**
+
+回到黃谷陽，根據黃谷陽的經歷，**他與陳竺、與上海幫之間的關係十分緊密，**作為在矽谷的科學家，他莫名其妙的死亡不免引起人們的懷疑，**矽谷、****P4****實驗室、法國、上海似乎在包織著一些不為人知的秘密。**
+
+（未完待續）
 
 0
