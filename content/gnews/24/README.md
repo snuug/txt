@@ -1,17 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士談中共繼續存在沒有人會安全也不會有疫苗（意大利語Italian+英文English）
-`2020-08-20 11:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/307602/)
+## “我是音雄”滅共三劍客之（一）—— 初心：平凡英雄的舞台
+`2020-08-20 11:53 GMusic` [轉載自GNews](https://gnews.org/zh-hant/298459/)
 
-意大利語標題 PCC ha rilasciato alcuni ceppi di virus di proposito, perché non può rilasciare gli altri?
+*我是音雄文字組作者Hannah編輯Kardia*
 
-翻譯：明天的彩虹 校對： Carota Einstein 字幕： 小羽
-
-視頻簡介
-中共絕製造絕不是只有一種病毒。 因此，想像一下他們有多少種病毒毒株，而且已經故意釋放了一些，為什麼它就不會釋放其它病毒毒株呢？ 那麼，我們怎麼可能有疫苗來解決這個問題呢？
-Il PCC non fanno mai un solo ceppo di virus. Quindi immagina quanti ceppi di virus hanno in quello stock e ne hanno rilasciati alcuni di proposito, perché non possono rilasciare gli altri? Quindi, come è possibile che tu abbia un vaccino per risolvere questo problema?
+“音雄”們，歡迎加入空中唱響discord [https://discord.gg/AB9Xrrz](https://discord.gg/AB9Xrrz)
 
 
+ （班農先生和郭文貴先生寄語全球戰友，支持音樂滅共大型節目《我是音雄》） 
+####  **“** **我是音雄** **”—** **無名英雄的舞台** 
+
+幾個美東香草山文藝熱愛音樂的戰友萌發了做一張“新中國聯邦首張滅共紀念專輯”的念頭，希望銘記這段歷史，隨後找到新中國聯邦國歌詞曲作者唐平與威廉王，以及爆料革命空中唱響團隊商量，然後，一拍即合。
+
+在一次戰友們的頭腦風暴中，
+
+“誒？為什麼我們不聯合所有農場做一個滅共音樂系列節目呢？海選，真人秀，講述普通戰友的故事…”
+
+“好主意！”
+
+“叫什麼名字呢？”
+
+這時，恰好是唐平與威廉王創作了新歌《英雄》的日子，“要不就叫’我是英雄’？”
+
+“聽起來不錯啊，改成’音’雄如何，音樂的音？“
+
+“好！”
+
+就這樣，新中國聯邦首檔滅共大型音樂節目“我是音雄”應運而生。
+
+####  **路德社聚集大英雄，我們聚集無名英雄。** 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15143643/Screen-Shot-2020-08-15-at-2.29.03-PM.png)
+“路德社聚集大英雄，我們聚集無名英雄”——這是唐平一直在重複的一句話。
+
+我們一直在找尋能夠讓平凡的戰友故事能夠被記錄的方式，爆料革命戰友們有太多“堅定，勇敢，愛與突破……”需要被銘記，也有太多“苦澀，糾結，無奈，放棄…….”需要被講述。他們就像一粒粒細小的碎金子，不易察覺。
+
+音樂是一個好的載體，“我是音雄”希望能讓這些金子被一個一個認出來，讓他們故事裡的光亮照進更多同胞的心。
+
+他們，就是身邊不起眼的你，我，他，雖然很少被聚光燈照耀，但平凡而真實，一路跟隨爆料革命，心底湧動出無數的的感動，感慨和感激，這個平台就是為平凡英雄們搭建的舞台，讓更多人有機會聆聽他們的歌唱和心聲。
+
+####  **音樂就像子彈，射進** **CCP** **的心臟** 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15143720/Screen-Shot-2020-08-15-at-2.27.11-PM.png)
+郭先生說：“文貴在此祝愿’我是音雄’欄目辦得圓滿成功，能把更多戰友的激情、動力、正義挖掘出來。變成無限個錘子砸向中南坑，砸向共產黨！ ”
+
+班農先生說：“music video is culture and culture can help us take down the CCP. Really appreciate all the work you’re doing and all great musicians and young talents you’re working with. Great fight! Part of fight here! Take down CCP”.
+
+全球各農場負責人說：音樂滅共，沒你不行！滅共“音”雄，你最重要！音樂就是子彈，也許你就是正中CCP心臟的那一發！新中國聯邦所有熱愛音樂的戰友行動起來，唱出我們心底的吶喊！支持《我是音雄》大型音樂活動！
 
 0

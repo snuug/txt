@@ -1,93 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 落淚的香港媒體大亨
-`2020-08-20 17:05 GM36` [轉載自GNews](https://gnews.org/zh-hant/308351/)
+## 2020年8月20日:史蒂夫•班農(Steve Bannon)對欺詐罪不認罪
+`2020-08-20 18:56 Diago` [轉載自GNews](https://gnews.org/zh-hant/308466/)
 
-整撰：文錦審稿：文橙
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20185257/%E6%8D%95%E8%8E%B74_%E5%89%AF%E6%9C%AC.jpg)
+作者：Diago
 
-8月10日，蘋果日報創始人黎智英被控違反國安法遭到警方拘捕，40小時後獲准保釋。 16日，他與香港著名詞作家林夕通過視訊進行對談，情緒一度失控。
+據AXIOS兩小時以前發佈的[Steve Bannon pleads not guilty on fraud charges](https://www.axios.com/steve-bannon-charged-fraud-199c43c1-2e75-4535-8eb0-d96558c9f777.html)（[Shane Savitsky](https://www.axios.com/authors/ssavitsky)）
 
-自去年香港反送中行動開始，黎智英一直堅守在香港，支持反送中行動，反對國安法。
+史蒂夫·班農（Steve Bannon）對欺詐罪不認罪
 
-黎智英出生於廣州，母親遭批鬥被送勞改，12歲時隻身逃到香港。年少的他從底層小工做起，靠努力打拼成功創辦了服裝連鎖品牌佐丹奴。 8964天安門事件，北京對學生的血腥鎮壓，讓他感到極為憤怒，曾發表公開信敦促時任中國總理的李鵬下台謝罪。
+Former Trump administration chief strategist Steve Bannon pleaded not guilty on Thursday after being [indicted](https://www.justice.gov/usao-sdny/pr/leaders-we-build-wall-online-fundraising-campaign-charged-defrauding-hundreds-thousands) and taken into custody in New York on federal fraud charges.
 
-就這樣，黎智英成為首批受北京整肅的香港商人之一，他的服裝品牌佐丹奴在內地的業務遭到全面封殺，被迫低價出售股權。從此黎智英棄商從文，轉而投身傳媒事業，先後創辦了《壹傳媒》、《壹周刊》和《蘋果日報》。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20170242/820_16-3.jpg)
-30年對中共說“不”的香港人
+在被訴聯邦欺詐罪並被紐約拘留後，川普總統前首席戰略顧問史蒂夫·班農本週四對該起訴不認罪。
 
-2019年6月香港開始反送中運動，黎智英不僅公開表示支持還親自參加抗議活動，儘管香港大多知名富商都保持緘默，甚至對他恨之入骨，稱其影響了大家悶聲發財。
+**The latest:**A federal judge agreed to release Bannon on a $5 million bond. His travel will be restricted to the New York and Washington, D.C. areas, and he will not be allowed to use private jets or boats without permission.
 
-97香港回歸後，大部分香港媒體已被中共收購和收買，這些媒體指責黎智英是CIA特工、一隻“幕後黑手”和美國指使的“禍港四人幫”的頭號人物、是香港抗議運動的策動者。大公報還圖文報導了，黎智英二姐在黎宅外讀聲明，罵弟亂港傷害一國兩制，令其懸崖勒馬。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20170247/820_17-1.jpg)
-黎智英和他的蘋果日報也一直堅持報導真相，而大部分香港媒體選擇噤聲，甚至附和中共的虛假宣傳。同年9月他接受bloomberg採訪時說，自己不在乎被北京貼上“賣國賊”的標籤，因為這些都是子虛烏有。
+最新消息：一位聯邦法官同意以500萬美元的保釋金釋放班農，他的活動範圍將僅限定於紐約和華盛頓特區，並且未經許可不得使用私人飛機或船隻。
 
-由於中共的施壓，沒有一家公司在黎智英的報紙上刊登廣告，蘋果日報的訂閱數也因疫情急劇下滑，面臨巨大的經營危機。
+**The state of play:**Bannon, along with three others, allegedly defrauded donors out of hundreds of thousands of dollars for their own profit with a crowdfunding campaign called [“We Build the Wall”](https://webuildthewall.us/) that raked in over $25 million.
 
-黎智英接受紐約時報中文網採訪時說到，“ **我總感覺自己是中國人，我一直希望中國改變，成為民主國家。我錯了。這只是一廂情願。** ”
+案件起因：據稱，班農（Bannon）和其他三個人通過名為“我們築牆”的眾籌活動籌集了超過2500萬美元，騙取了數十萬美元的捐款作為自身利潤，。
 
-面對中共的迫害升級，選擇堅守香港
+- The indictment says that Bannon, via a non-profit, took in over $1 million from the scheme “and at least some of it was used to cover hundreds of thousands of dollars in [his] personal expenses.”
+- •起訴書稱，Bannon通過非營利組織從該活動中獲得了超過100萬美元的收入，“其中至少有一部分用於支付數十萬美元的個人開支。”
+- Bannon’s co-conspirators are Brian Kolfage, who served as the organization’s founder and president, Andrew Badolato and Timothy Shea.
+- •Bannon的同謀是Brian lflfage（“我們築牆”組織的創始人兼總裁）、Andrew Badolato和Timothy Shea。
+- Kolfage [deleted](https://twitter.com/BrianKolfage/status/1296076545770041350) the organization’s GoFundMe page on Wednesday, alleging that the platform was engaged in “censorship” after it shut down another of his campaigns centered on suing Black Lives Matter.
+- •Kolfage在星期三刪除了該組織的“資助我們”（GoFundMe）頁面，稱該平臺在關閉了他的另一項以起訴黑命貴為中心的活動後，正在從事“審查”。
 
-如今，黎智英成為中共的跟踪目標。蘋果日報報導，多名神秘人士長期在報社大樓外和九龍半島黎家房子外，24小時接力跟踪黎智英；同時大批神秘的“愛國者“也定期聚集在他家的大門外，揮舞“剷除賣國賊” “美國走狗”等橫幅頻繁示威。
 
-黎智英對這種騷擾不屑一顧，說自己已經習慣了這種滋擾。他說，自己很少出門，也不理會所有的辱罵，這些辱罵嚇跑了很多朋友，他只是不喜歡被門口刺耳的中國國歌打擾。
+**Why it matters:**Bannon’s indictment makes him the sixth person linked to the senior leadership of the 2016 Trump campaign to be hit with federal charges.
 
-中共似乎找不到任何想要的證據，2020年2月28日和4月18日，短短不到兩個月時間，就分別以涉嫌參加去年8月31日和8月18日及10月1日未經授權的集會為名2度拘捕黎智英。
+為何這件事重要：對班農的起訴書使他成為第六位受到聯邦指控打擊的與2016年特朗普競選活動的高級領導有關的人。
 
-面對中共的騷擾升級，很多朋友早就勸黎智英離開香港。黎智英今年5月接受路透社訪問說：“ **這是我的家，香港給予了我的一切，我要奮戰到最後一天，我不會離開香港。如果我為此犧牲，將是一種榮耀** 。 “
+- The others are Roger Stone, Michael Flynn, Rick Gates, Paul Manafort and Michael Cohen — all of whom faced indictments under the Mueller investigation.
+- 其他人是羅傑·斯通，邁克爾·弗林，裡克·蓋茨，保羅·馬納福特和邁克爾·科恩，他們都在穆勒的調查下面臨起訴。
+- A lower-level campaign adviser, George Papadopoulos, was also charged.
+- 還指控了較低級別的競選顧問喬治·帕帕多普洛斯。
 
-港人用行動表達對蘋果的支持
 
-今年6月30日國安法正式實施，黑暗如期而至。
+**The big picture:**According to its website, We Build the Wall’s says it “will focus on building portions of a U.S. Southern Border wall and manage the support operations required for, and the processes associated with, the design, engineering, construction, and maintenance of the wall.”
 
-8月10日近200名警員搜查香港《蘋果日報》總部，在報社現場帶走25大箱物品，並禁止路透社丶美聯社丶香港電台丶立場新聞等進入採訪區，引起國際輿論震驚。
+總體情況：根據其網站，“我們建造隔離牆”表示，“它將專注於建造美國南部邊界隔離牆的部分，並對與設計、建造、施工和維護邊界牆相關的運作和過程的支持進行管理。”
 
-黎智英當日早晨在寓所被捕，罪名是涉嫌違反國安法第29條中，勾結外國或者境外勢力危害國家安全罪和涉嫌串謀欺詐。
+- The indictment says that the organization did indeed spend money on a border wall but alleges that “hundreds of thousands of dollars were siphoned … for the personal use and benefit” of the defendants.
+- •起訴書說，該組織確實確實在邊界牆上花了錢，但是指控說，“數十萬美元被抽走了……為被告個人使用和謀利”。
+- They allegedly used the money “for a variety of personal expenses, including, among other things, travel, hotel, consumer goods and personal credit card debts.” Kolfage specifically allegedly used his share for “home renovations, payments toward a boat, a luxury SUV, a golf cart, jewelry, cosmetic surgery, personal tax payments and credit card debt.”
+- 據稱他們將這筆錢用於“各種個人支出，其中包括旅行，酒店，消費品和個人信用卡債務。”據稱，Kolfage特別將自己的股份用於“房屋裝修、船用付款、豪華SUV、高爾夫球車、珠寶、整容手術、個人稅收和信用卡債務”。
 
-10日被捕之人還包括，壹傳媒集團的營運總裁周達權也被指控勾外國勢力與串謀欺詐，黎智英的長子跟壹傳媒集團的另外3名高官被指控串謀欺詐。黎智英的次子黎耀恩則是被指控勾結外國或境外勢力。
 
-11日凌晨，《蘋果日報》頭版，出現七個醒目大字“蘋果一定撐落去。港區大部分報攤、便利店的蘋果日報遭民眾搶購一空。該集團表示，當日銷量已由往常的約7萬份，加印至55萬份。
+- “This case should serve as a warning to other fraudsters that no one is above the law, not even a disabled war veteran or a millionaire political strategist,” added Inspector-in-Charge Philip R. Bartlett.
+- 負責檢查的菲力浦·R·巴特利特（Philip R. Bartlett）補充說：•“此案應向其他欺詐者發出警告，就是沒有人可以淩駕於法律之下，不管他是有殘障的退伍軍人還是百萬富翁戰略活動家。”
 
-旗下壹傳媒股價兩日暴漲逾5倍。黎智英兒子的餐廳中午也大排長龍。
 
-勿自由寧願死的香港人對中共的暴行表達出無聲的反抗！
+**Behind the scenes:** Bannon was taken into custody aboard the Lady May, a 152-foot yacht *(**[listing price: $27.9 million](https://www.burgessyachts.com/en/buy-a-yacht/yachts-for-sale/lady-may-00002702)**)* off the Connecticut coast.
 
-美國副總統彭斯、白宮國安顧問奧布萊恩等公開回應黎智英被捕是對自由的極大冒犯和侮辱，美國將繼續和所有熱愛自由的香港人站在一起。
+幕後花絮：班農是在LADY MAY遊艇上被拘捕的，該遊艇152英尺、標價2790萬美元位於康涅狄格州海岸外。
 
-蘋果代表香港精神
+- The vessel is reportedly owned by controversial Chinese billionaire Guo Wengui, [per the Washington Free Beacon](https://freebeacon.com/national-security/beijing-suspected-hacking-yacht-owned-chinese-billionaire/). Guo is a critic of the Chinese Communist Party and [has been bankrolling Bannon’s recent work](https://www.axios.com/steve-bannon-contract-chinese-billionaire-guo-media-fa6bc244-6d7a-4a53-9f03-1296d4fae5aa.html).
+- 據《華盛頓自由信報》報導，這艘船由有爭議的中國億萬富翁郭文貴擁有。郭是中國共產黨的批評者，一直在資助班農的最新工作。
+- “Bannon was arrested by inspectors from the U.S. Postal Service,” [per the Hartford Courant](https://www.courant.com/breaking-news/hc-br-bannon-arrested-connecticut-20200820-aogsf64fr5axpheyas2xhsst7u-story.html).
+- •根據Hartford Courant的說法，“ Bannon是被U.S. Postal Service的檢查人員逮捕的”。
+- All three of Bannon’s cellphones are now disabled, according to Axios’ Jonathan Swan.
+- •根據Axios的喬納森·斯旺（Jonathan Swan）的說法，班農（Bannon）的所有三部手機現已停用。
 
-被扣留近40小時的黎智英最終獲准保釋，12日凌晨他在律師陪同下離開旺角警署。警署門口，早已守候了大批市民，市民們高舉著十字架和蘋果日報，並高呼“撐蘋果撐到底”等口號。
 
-蘋果日報經歷最黑暗的一天后，黎智英13日透過該報直播，向外界分享自己的感受，他表示，今天是他人生中最感動、最開心的時刻。在接近人生最後的階段，知道自己做的事是對的。他形容“在手鐐之下，沒有一刻覺得自己很慘或被屈辱，”。
+**Trump distanced himself**from his former aide while speaking to reporters at the White House, but said he feels “very badly” for Bannon.
 
-16日，黎智英如約與移居台灣的香港詞神林夕視訊，兩人惺惺相惜傾心交談，從被中共逼迫放棄佐丹奴服裝聊到創辦蘋果報紙，希望通過媒體傳播真實的資訊傳播自由精神，做有意義的事。
+川普在白宮與記者談及此事時與前助手保持距離，但說起班農的遭遇他說感覺“非常不好”。
 
-當被讀者問及，中共會不會拿家人做人質，要挾要你停止，你會不會放棄蘋果？
+- “[H]e was involved … in our campaign, and for a small part of the administration, very early on. I haven’t been dealing with him at all.”
+- •“ [他]很早就參與了….我們的競選活動，並且在行政團隊中參與了一小部分。我根本沒有與他打交道。”
+- “I don’t know that he was in charge. I didn’t know any of the other people either.”
+- •“我不知道他被起訴的事情。我也不認識其他（同案被訴的）任何人。”
 
-黎智英一度情緒失控，哽咽道：“這是我最難面對的事情，家庭是我最重要的事，不是我的事業不是我的名譽。如果（中共）做的真的那麼離譜，我真的不知道如何面對…”。
 
-正如他自己的推文中所述，黎智英的蘋果代表著香港人追求自由不屈不朽的精神。中共用短短十幾年就掏空了香港的美元儲備，破壞了香港得以發展和繁榮的自由法治金融體系，將英國延續下來的百年國際信用毀於一旦。自由不再，東方之珠不在再！
-![]()
-如今，中共強推國安法，要奪走香港人的法治、人權和自由精神，面對疫情、抓捕、被墜樓被消失被雞姦被輪姦，香港人沒有選擇退縮和屈服，就像林夕安撫黎智英時說的:“若中共敢做,那麼它們付出代價會很大。”
+**[Read the indictment](https://www.documentcloud.org/documents/7040959-U-S-v-Brian-Kolfage-Stephen-Bannon-Et-Al.html)****.**
 
-香港人的勇敢讓中共恐懼，讓全世界人民為之動容和震撼，自由精神一定會衝破黑暗，香港人一定會迎來光明！
+*This is a breaking news story and will be updated.*
 
-以下是黎智英先生接受媒體採訪，留下的一些精彩的瞬間：
+這是一個重大新聞，將進行更新。
 
-接受福克斯採訪：“170萬香港人反送中游行。捍衛自由，保護法治、人權和生活方式，與中共獨裁統治抗爭是每個人的責任”。
+特別聲明：由於英文水準有限，以上翻譯如有不妥之處，敬請指正。
 
-https://www.youtube.com/watch?v=YWKFO78KsGo&t=32s
+綜述：針對班農先生的逮捕後面有沒有共產黨的影子？我們先來看一下中共新浪微博上的一則報導——
 
-接受西方記者採訪：“失去自由將失去一切。過去30年我們沒有為後代守住自由，現在香港年輕人在為自己而戰。我挺身而出，讓我的生命有了意義”。
+據[**環球網**](https://weibo.com/1686546714?refer_flag=1001030103_) [2020年8月20日21:43](https://weibo.com/1686546714/JgPyj8Bx9?refer_flag=1001030103_) 來自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-> 黎智英最經典的訪談，值得所有人看看
->  [pic.twitter.com/kokZaiBRuu](https://t.co/kokZaiBRuu)
-> — 秦鹏 (@shijianxingzou) [August 11, 2020](https://twitter.com/shijianxingzou/status/1293136634154831872?ref_src=twsrc%5Etfw)
+【[#特朗普前顧問班農被逮捕#](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E5%89%8D%E9%A1%BE%E9%97%AE%E7%8F%AD%E5%86%9C%E8%A2%AB%E9%80%AE%E6%8D%95%23)】據美國消費者新聞與商業頻道剛剛消息，特朗普前高級顧問史蒂夫·班農被逮捕。報導說，班農涉嫌在籌款活動中對數十萬捐贈者進行詐騙。
 
-參考鏈接：
+美聯社報導則提到，另有其他3人同班農一起被指控詐騙“我們來修牆”線上活動的捐贈者。
 
-[https://tw.appledaily.com/international/20200816/WXAH3JYPQFTBGX3Z423QEPERPU/](https://tw.appledaily.com/international/20200816/WXAH3JYPQFTBGX3Z423QEPERPU/)
+據《今日美國報》此前報導，班農為“我們來修牆”組織的諮詢委員會主席，該組織成員均為特朗普的支持者，他們曾在兩年內共籌集超過2500萬美元來建造一面邊境牆，以表示對特朗普本人及其政策的支援。
 
-[﻿「黎智英二姐」罵弟亂港傷害「一國兩制」](http://www.takungpao.com.hk/news/232109/2019/1002/356582.html)
+然而，報導稱，就在這面牆剛剛完工僅幾個月後，它卻出現了嚴重的“被侵蝕跡象”。7月，美國一家調查機構“Propublica”的最新報告顯示，多名建築工程師和水文學家近日警告稱，這面牆已經顯示出了被河水侵蝕的跡象，如果不及時進行修復，很可能會倒塌並墜入下方的河水中。專家們還表示，這面牆不應該建在離河這麼近的地方。
 
-0
+這一報告也引起了特朗普的注意，7月12日晚，特朗普在推特上轉發了這一報告，並發文“埋怨”起了他的支持者們。他寫道：“我不同意一個私人團體在一個棘手的地方修這麼小的一段牆，還是通過廣告籌集的資金。他們這樣做只會讓我難堪。” 班農曾出任特朗普競選團隊負責人，被外界認為是特朗普2016年勝選的主要功臣之一。特朗普當選後，班農曾出任白宮首席戰略師、總統高級顧問，2017年8月被解職。離開白宮後，班農曾重掌美國右翼網路媒體布萊特巴特新聞網。特朗普曾描述班農被解職一事稱，“當班農被解除職務時，他不僅失去了工作，還失去了理智。”[#班農被捕#](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E5%86%9C%E8%A2%AB%E6%8D%95%23)[L環視頻的微博視頻](http://t.cn/A6UBbYmM)[收起全文d](void%280%29;)
+
+另外我們再對照看一下2020-08-19 22:34發佈的[8月13日崔天凱在同布魯金斯學會視頻中對美國發出了哪些恐嚇](https://gnews.org/zh-hans/303474/)提到的崔天凱對美國相關人士發出的恐嚇：【一些人如此沉迷於“冷戰”一詞，或許是認為他們曾贏得冷戰，但不應忘記世界為40多年冷戰付出的代價。即便冷戰期間也發生過朝鮮戰爭和越南戰爭兩場熱戰，使美國及相關國家付出慘痛代價。我們不應讓歷史重演。如果中美關係的負面趨勢繼續發展，中國可能面臨更多困難和挑戰，但“新冷戰”的發起者也必須仔細掂量自己將付出的代價，以及給世界帶來的災禍。“鐘為誰鳴”，將來會有算帳的一天。】
+
+對於滅共核心成員的班農先生的逮捕，或許就是崔天凱說的“將來會有算帳的一天”，我相信排在“將來會有算帳的一天”的名單上的第一個應該是川普總統和他的家人，在這個第一之後是並列的：蓬佩奧先生、巴爾先生、納瓦羅先生、盧比奧先生等一眾幹將。
+
+滅共已經是你死我亡之戰，中共希望借班農先生被捕製造寒蟬效應，可是對於滅共者來說，班農先生的被捕何嘗不是更加激發了他們的鬥志呢？因為如果這個世界任由中共來統治，不僅班農先生不會安全，不僅川普總統隨時處於危險中，每一個人都處在危險中，所以為了每一個人都有免于恐懼的自由、尤其是免於中共製造的恐懼的自由，必須齊心滅共！
+
+（文章內容僅代表作者個人觀點）
+
+1

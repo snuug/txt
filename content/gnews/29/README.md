@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雜談：聊聊LPR,DCEP,批發市場關閉，和節約糧食的號召
-`2020-08-20 10:14 GM77` [轉載自GNews](https://gnews.org/zh-hant/307467/)
+## 【世界多語言圖文】2020/08/12 CCP病毒每日疫情直播簡報
+`2020-08-20 11:18 GM62` [轉載自GNews](https://gnews.org/zh-hant/307409/)
 
-作者：文青
+戰友之家圖文摘要及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100810/8.20-4-1.png)
+[English\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100314/English_0812_CCP_Virus_Updates.pdf)
 
-各種異乎尋常的消息在最近幾天集中釋放，如房貸利率強制轉換成LPR，28省市深入推廣數字幣DCEP，深圳蕪湖等城市批發市場出現重大疫情而被關閉，各機關企事業單位發文號召節約糧食等消息成為最近最熱門的話題。哪怕是壹直沈靜在歲月靜好，生活比蜜甜的人也意識到了可能有大事發生。
+[French\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100318/French_0812_CCP_Virus_Updates.pdf)
 
-這些消息主要指向房子，鈔票和糧食。 這些都是維系社會經濟運行最重要的方面。先談談房子，房子在國民財富中占絕對重要的位置。壹套房子可能需要幾代人的積蓄來湊首付，然後再用幾十年的省吃儉用來還清欠款。強制轉化成LPR，利率壹旦大幅提高，將會有多少家庭無家可歸。央行壹開始的宣傳推廣，到現在迫切要將自願變成強制，充分說明了人們對LPR可以減輕房奴還貸壓力的不認可。
+[German\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100322/German_0812_CCP_Virus_Updates.pdf)
 
-同時，央行絲毫不顧忌本不景氣的房地產市場的恐慌情緒而如此迫切地強推LPR，只有壹個解釋：就是人民幣將大幅貶值，利率很可能要大幅提升以防止資金逃逸。 利率大幅提升後，才能最大程度的保證放出去的貸款不受損失。央行雖然有說9到12月可以改為固定利率，只怕到時會以各種理由推脫，甚至在固定利率上做文章，讓貸款者無法改回原合同利率。
+[Japanese\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20111633/Japanese_0812_CCP_Virus_Updates.pdf)
 
-再聊聊數字人民幣。當前中美脫鉤，人民幣被踢出SWift系統的預期已經成為共識。在貿易斷絕，美股融資和香港融美元渠道盡失的情形下，這超發的人民幣隨時會像潰堤的洪水壹樣，沖擊各行各業。此時強制推行數字人民幣，可以精準掌控資金流向，防止資金大幅外流或炒作民生物資，為計劃生產，計劃分配的決策和實施提高有力保障。數字貨幣可以強化對人的控制，便於剝奪異見者的財產，減少敵對勢力的政治沖擊，消耗貪腐所產生的沈澱資金，從而減輕惡性通脹的壓力。然而，在黨爭不斷，缺少監管的環境中，數字貨幣不可能按紙幣減少的數量去發行，無節制的濫發必然發生。另外，數字貨幣測試的時間太短，其流通環節的安全性也不容忽視。
+[Korean\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100329/Korean_0812_CCP_Virus_Updates.pdf)
 
-最後是各地批發市場出現疫情，暫不討論是不是真實存在，或是不是人為的。批發市場就“名正言順”被關閉了。生活物資的生產者無法銷售產品，居民消費者也無法購買生活物資。這時供銷社開始入駐，壹方面低價從農民手中買入農產品，另壹方面，高價銷售給城市居民。這樣，既完成了收割任務，有順利的推進了計劃分配的進程。總之，每壹件事都是沖著收割人民的財富，回歸計劃經濟去的。面對即將到來的災難，我們真的需要積極應對，賣掉多余的房子，儲備外匯，儲存各種生活物資。冬天來了，春天也就不遠了，做點力所能及的事，早點推翻這個邪惡的政權，大家也就能少受苦了**。**
+[Spanish\_0812\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20100325/Es_0812_CCP_Virus_Updates.pdf)
+
+
 
 0

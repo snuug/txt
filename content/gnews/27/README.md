@@ -1,17 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法國拉烏爾(Raoult) 醫生:一種已經被20億人服用過的葯羥氯喹如何在2020年變成了有毒的? （法文French+英文English）
-`2020-08-20 10:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/307447/)
+## Warroom 330 馬克西蒙：中共越發的邪惡讓香港陷入噩夢，如今法律審判都基於中共的需要而不維護正義
+`2020-08-20 11:35 GM77` [轉載自GNews](https://gnews.org/zh-hant/307717/)
 
-法文標題 Dr. Raoult : comment un médicament qui a été pris par deux milliards de personnes est devenu en 2020 toxique
-
-翻譯：珠丝玛迹 校對：珠丝玛迹 視頻製作：文菠萝
-
-視頻簡介
-法國馬賽的醫生拉烏爾質問:如何解釋這場完全瘋狂的針對羥氯喹的戰爭? 是否是背後巨大的經濟利益?
-Le professeur Didier Raoult était interviewé par Laurence Ferrari le 19 août. Il demande comment expliquer cette guerre complètement folle contre l’hydroxychloroquine ? Est-ce que ce sont les intérêts financiers monstrueux ?
+戰友之家新聞譯制組
+撰稿：GM64
 
 
+
+•現在香港的警察都是中共的解放軍，早已不是世界上最好的警察，香港的高級官員全部都換了。中共在香港摧毀了壹個又壹個香港好的機構。
+•David Long是壹名公共執法負責人，他拒絕逮捕示威者，在國安法頒布後，他領導的部門就不再負責相關監控了。在此之後他被中共汙蔑成壞人。
+•中共頒布的國安法，令每個人都生活在恐懼中，人與人之間失去信任，沒有了司法正義，司法變成了維護中共需要而不是維護正義的工具。
 
 0
