@@ -1,23 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月19日財經快訊: 經濟熄火, 市場開始警覺
-`2020-08-21 09:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/303319/)
+## 納瓦羅：川普動用《國防生產法案》是美國抗疫的必要措施
+`2020-08-21 11:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/310098/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/19193950/Picture-1-64.png)
-[1.上週，愛奇藝的投資者由於PCAOB宣布對愛奇藝的舞弊進行調查遭受嚴重損失。該文章認為中共上市公司能夠來美國騙錢暢通無阻，並且得寸進尺，主要是由於奧巴馬政府和中共政府簽訂的有嚴重瑕疵以致於事實上根本無法履行的審計監管合作備忘錄和華爾街貪婪的縱容。](https://www.gatestoneinstitute.org/16352/wall-street-china-fraud)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21111341/1-102.png)
+圖片： [華爾街日報](https://www.wsj.com/articles/what-drove-kodaks-roller-coaster-trump-deal-one-determined-white-house-official-11597935982)
 
-[2.一向持樂觀態度的債券大師Lacy Hunt對槓桿的極度增加警覺起來，認為隨著槓桿的不斷攀升，違約風險增加，這種情況是不可持續的。](https://www.thestreet.com/.amp-mishtalk/mishtalk/economics/bond-bull-lacy-hunt-warns-of-a-huge-monetary-risk)
+據美國保守派TOWNHALL新聞網8月20日報導，俄亥俄州參議員謝羅德·布朗（Sherrod Brown）最近稱白宮發布的一份關於《國防生產法案》（DPA）的報告是政治“宣傳”和“作秀”，對此，白宮貿易與製造業政策辦公室主任、川普總統高級經濟顧問皮特.納瓦羅（Peter Navarro）給予了駁斥。
 
-[3. 2020年8月18日，受貨幣與財政雙刺激政策影響，標準普爾500以創新高，收復自從中共病毒發生以來的下跌，但是本次牛市主要受科技股驅動，部分股票並沒有收復中共病毒導致的下跌，容易受市場負面消息影響。](https://www.cnbc.com/amp/2020/08/17/stock-market-futures-open-to-close-news.html)
+在中共病毒大流行期間， 川普總統已經78次利用DPA賦予的行政權力來促使企業加快國防安全物資的生產供應。通過動用DPA，美國可以在本土大量生產所需N95口罩、呼吸機以及其他CCP病毒防護用品。白宮發布的一份詳細報告介紹了川普總統如何使用DPA和行政命令來對抗CCP病毒以及加快關鍵物資的生產。然而，參議員布朗卻認為，白宮這份報告只是為了轉移民眾對總統失敗政策的注意力，值得注意的是，布朗並沒有提到中共在這次疫情中扮演的角色。
 
-[3.零對沖：隨時中共病毒的二次爆發，歐洲經濟的反彈正在熄火。](https://www.zerohedge.com/markets/high-frequency-data-suggests-europes-recovery-stalling)
+針對布朗對總統使用DPA的批評，納瓦羅一針見血地指出，布朗就是為中共洗地。納瓦羅說，唯一的政治“宣傳”其實就來自布朗和喬·拜登（Joe Biden）這些中共的辯護人，他們在過去十幾年裡，眼睜睜地看著中共從俄亥俄州偷走了上百萬工作卻無所作為。現在，布朗將這個由中共惡意向美投放的致命病毒歸罪於川普總統，而他隸屬的民主黨卻在推動4萬億美元加稅，這將導致大量美國工薪家庭失去工作機會。納瓦羅還補充道，實際上，川普總統利用DPA實現了自二戰以來最迅速的美國工業基礎總動員，川普的計劃就是生產超過民眾需求的防疫必需的醫藥用品來保護美國人民。
 
-[4.甲骨文軟件、推特、微軟均有意收購都有意收購抖音海外版，甲骨文優勢明顯。](https://www.marketwatch.com/story/trump-approves-of-oracles-effort-to-buy-tiktok-2020-08-18?reflink=mw_share_twitter)
+在這次因中共病毒造成的前所未有的困境中，川普總統使用DPA是完全合理的，該法案的使用只會令美國人受益。白宮的報告表明了川普政府實施DPA過程的透明度，根本不是布朗口中的’宣傳’，反而是真正體現了川普總統為保護美國人民和對抗中共病毒所做出的努力。
 
-[5.中共社科院專家在網易發文吹噓內循環為主、雙循環為輔，還在幻想不脫鉤。](https://money.163.com/20/0819/16/FKDH6J9H00258J1R.html)
+評：值得注意的是，納瓦羅在對布朗的反駁中再次強調了CCP病毒是中共的惡意投放。隨著爆料革命閆博士的亮相和進一步對CCP病毒整個過程的揭發，以及越來越多科學家勇敢地站出來發聲，我們相信，病毒來源和疫情全球擴散的真相不久就會在全世界公佈，從川普總統口中說出的那天也會很快到來。
 
-新聞整理：Mr. and CPA Jim 
- 【密翻組-金融法律組】
+[原文鏈接](https://townhall.com/tipsheet/reaganmccarthy/2020/08/20/peter-navarro-claps-back-at-sen-brown-for-calling-the-use-of-defense-production-act-propaganda-n2574760)
+
+翻譯：jajabird
+
+校對：Sarathecat
 
 0

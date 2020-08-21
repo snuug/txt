@@ -1,15 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农被捕引发的寒蝉效应
-`2020-08-20 23:53 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/308921/)
+## 最新報告顯示去年有500億美元加密數字貨幣資產離開中國
+`2020-08-21 06:04 GM01` [轉載自GNews](https://gnews.org/zh-hant/309426/)
 
-作者：引力波
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20231549/1-85.jpg)
-“假新聞” 這是當我第一次聽到我的朋友說國內網傳史蒂夫·班農被捕時我的反應。十分鐘後，BBC報導了同一則新聞，然後是CNN，FOX，然後傳播到了所有人。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21055051/%E6%88%AA%E5%B1%8F2020-08-21-%E4%B8%8A%E5%8D%8810.50.18.png)
+根據區塊鏈数据分析公司Chainalysis的最新研究，過去壹年約有500億美元的加密貨幣資產離開中國，中國公民每年每人只可以轉移5萬美元的資金出國。
 
-事情發生後，他們從寫作到編輯再到發布新聞只花了21分鐘的時間。這次中國的宣傳系統效率多高！班農被捕事件是否有中共的影子？我不知道。我所知道的是，中共現在欣喜若狂，因為班農先生是對中共威脅最大的人之一。從現在開始，美國司法系統會將班農先生拖入訴訟的泥潭。
+該公司8月20日的報告中表示，具有爭議的加密貨幣泰達幣（Tether）在此期間從東亞流出的資金超過180億美元。因為Tether其價值與美元掛鉤，占該地區穩定幣使用量的93％。
 
-中共的敵人名單上的下一個是誰？寒蟬效應已經開始。就像荒唐的《香港國安法》將鎮壓任何敢於批評中共的人一樣，他們將利用每個國家/地區的每一項法律來清除每一個他們不喜歡的人。無論您是否喜歡史蒂夫·班農，現在沒有人是安全的，包括那些自認為是中共盟友的人。畢竟，誰能保證您的利益永遠與CCP保持一致呢？
+根據郭文貴先生在直播中的信息，未來即將發行的G系列數字貨幣將同時掛鉤美元與黃金。
+
+来源：[https://www.bloomberg.com/news/articles/2020-08-20/crypto-assets-of-50-billion-moved-from-china-in-the-past-year](https://www.bloomberg.com/news/articles/2020-08-20/crypto-assets-of-50-billion-moved-from-china-in-the-past-year)
 
 0
