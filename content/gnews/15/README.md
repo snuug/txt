@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國消費疲軟, 危害全球貿易
-`2020-08-21 19:24 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/310538/)
+## 【世界多語言圖文】2020/08/13 CCP病毒每日疫情直播簡報
+`2020-08-22 00:08 GM62` [轉載自GNews](https://gnews.org/zh-hant/309865/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190042/Picture-1-74.png)圖片來源：dreamstime.com 
-據《巴倫周刊》8月19日報導，中共病毒對各個國家所造成的經濟影響各不相同。這一動盪不定的局面將給世界，尤其是給中共國、美國和歐盟的貿易關係帶來更多的摩擦。
+戰友之家圖文摘要及小語種組
 
-在中共國，既使工業生產和固定資產投資達到新高，消費支出遠沒有跟上。問題在於所生產的產品最終要用於消費，中共企業生產的產品如果中國消費者不買，那麼總得有人去買。到目前為止，歐美市場在一定程度上緩解了中共企業的銷售危機，而歐美國家自己的生產企業卻在苦苦掙扎。
+[English\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)
 
-中共病毒出現以後，中共國在2019年12月至2020年2月期間，零售業支出在季節性調整的基礎上同比下降大約25%，製造業產量同比下降大約20%。這和美國同年2月份（經濟波峰）至4月份（經濟低谷）出現的情況極為相似。歐盟的產出和消費同比均下降大約30%。
+[French\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)
 
-世界主要三大經濟體的複蘇狀況顯而易見截然不同。最新數據顯示，美國和歐盟在實物商品方面的支出和病毒流行前相比大致相同，儘管歐美國家的生產企業遠沒有實現全部產能。
+[German\_0813\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190136/Picture-1-75.png)如上圖所示，美國和歐盟經濟在面對中共病毒的打擊時反應相似，即零售業支出遠超製造業產量
+[Japanese\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190142/Picture-2-2.png)如上圖所示，在中共國，即使製造業表現強勁，零售業支出仍然遠低於病毒流行前的水平
+[Korean\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)
 
-實際上，在季節性調整的基礎上，與病毒流行前相比，7月份比6月份呈下降趨勢。中共製造業產量恢復遠遠快於家庭支出。美國與此相反，產量落後於消費支出。這種差異反映出中共政府的政策問題，尤其是政府對在城市苦苦掙扎的廣大農民工在疫情期間幾無福利補貼。大量農民工由於無法得到失業救濟，被迫離城返鄉。由此造成消費支出總額的大幅下降。另一方面生產企業因享有政府補貼而得以維持生產，全然無視經濟規律平衡的要求。結果是，和2019年二季度的6，060億美元以及2018年二季度的6，400億美元相比，今年4月份至6月份中國消費者在進口商品和服務上的總支出還不到5 ，300億美元。相比之下，二季度的中國製成品出口總額和過去幾年同期相比基本上沒有變化。國內市場需求減少而產量持續增長導致整體貿易順差激增。能源價格下降和出國旅遊減少在一定程度上也導致這一現狀。
+[Russian\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190148/Picture-3.png)如上圖所示，中共製造業出口額恢復但進口商品消費減少從而導致貿易順差激增
+[Spanish\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)
 
-而歐盟的製造業和出口貿易平衡方向相反，進口減少，出口減少的更多。歐盟今年二季度製成品方面的貿易順差為500億歐元（600億美元），而病毒流行前平均大約為1，100億歐元。消費不足和投資不足對歐盟經濟和非歐盟經濟同樣有害，歐盟的貿易順差減少就是這一結果。正確的解決辦法應該是加大進口，而不是減少出口。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190537/Picture-1-76.png)如上圖所示，歐盟的製造業順差下降是由於進口相對穩定但出口大幅減少
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21190822/Picture-1-79.png)如上圖所示，與歐盟類似，美國貿易數據顯示其出口量下降遠遠超過進口數據
-
-僅在6月份由於出口量增加，差額略有縮小。美國製造業出口額遠遠低於進口額。這有助於理解為什麼美國製造業的反彈受到如此制約。肉食品屠宰加工行業和發動機汽車業明顯例外，這些行業的產量真正實現了V型複蘇。而其他大多數行業仍然遠遠低於2月份的水平，在過去幾個月中復蘇努力成效甚微。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21191007/Picture-1-80.png)如上圖所示，病毒流行造成城市公共設施停擺，美國汽車業由此重新煥發生機。製造業其他行業則復蘇乏力
-
-不幸的是，消費需求疲軟的問題可能會從中共國蔓延到世界各地。千百萬美國人開始預見到他們的收入將大幅減少，因病毒流行而得到的失業救濟金必將停掉。歐盟各國政府一直在疫情期間向企業發放補貼以保證員工工資，現如今也開始討論如何盡快結束這種資助。
-
-全球經濟這塊蛋糕正變得越來越小，依靠政府資助而維持生存的公司將不得不更加辛苦經營，以應對銷售額大幅下降的慘淡現狀。這顯然將使得中共病毒流行前就早已出現的各國之間的貿易衝突愈演愈烈，沒有任何一個國家能置身事外。尤其是，中共國不計後果用政府補貼維持生產和廉價出口的模式，將使得其他相關國家經濟雪上加霜。
-
-**評：**
-
-這些圖表和數據下面是全球矛盾重重的政治和經濟的真實狀況。任何一個國家都無法獨善其身。在每一個國家試圖負重前行的努力中，都需要政府和社會各個階層的協同合作。企業或行業之間需要合作，各國政府之間也需要合作。這次中共病毒給全球經濟帶來的負面影響將長期存在。
-
-更為值得注意的是，在中共國受到最大影響的就是那些沒有任何保障的底層農民工。飽受摧殘無能為力的底層百姓，在天災人禍中付出血淚。如果還是踟躕不前，徘徊觀望，農民工的現狀，就是不遠將來的你。
-
-[原文鏈接](https://www.barrons.com/articles/chinas-weak-consumer-recovery-is-bad-for-chinaand-world-trade-51597856401)
-
-翻譯：匿名
-校對：文旺
 
 0
