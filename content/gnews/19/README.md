@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/14 CCP病毒每日疫情直播簡報
-`2020-08-21 10:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/309993/)
+## 偽類、五毛橫行時寫給戰友的話
+`2020-08-21 12:50 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/310228/)
 
-英語標題 CCP Virus Pandemic Updates Ep 203: U.S.A expands “Clean Network program”sanction TikTok, Huawei, Ali
+喜馬拉雅聯盟加拿大農場 文林
+
+校對 文錦
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21124734/003.jpg)圖片來源：vog 
+與CCP的較量逐漸進入深水區，在偽類、五毛橫行時，我們該怎樣應對？
+
+說點我的看法:
+
+很多戰友之所以很難與偽類、五毛等人相區分,是因為本來差別就不大。
+
+相同的基因、相同的文化、相同的洗腦經歷,使得彼此相差真的一點兒都不大,都會一言不合就炸毛,隨之惡語相向、唇槍舌劍。都是情緒秒發作,發作之前幾乎不思考,因為很多人已經被從娃娃抓起的洗腦搞得只會喊口號了。不要以為你昨天還在糞坑游泳,今天加入隊伍,上了戰船,就是個合格的戰士了，就可以在面對糞坑里的那些人時覺得自己很高尚了。不要以為幾十年的洗腦,僅靠三年的反洗腦,你就成一朵蓮花了。
+
+CCP種下的毒,我們花費自己的後半生,甚至下一代的一生都不一定洗得乾淨,只是大部分人沒有察覺到自己的惡而已。大部分人都是在用被CCP訓練過的腦子行事而已。
+
+至於此,我有兩點對策：
+
+1.滅共！不管他是真戰友還是假戰友, 我分不出來,自然也不可能百分百確定。我只知道, 戰友罵我, 我去滅共, 偽類、五毛罵我,我也去滅共。無論是戰友之惡,還是偽類、五毛之惡, 其根在CCP。我堅信, 只有將CCP的老根先刨了, 戰友之惡才會失養而從善,才不會今天是戰友,明天就叛變; 偽類之偽才變真,隨之-共滅(五)毛自蛻。
+
+2.行動！要想真正甩偽類、五毛八條街, 真正與他們區分開來,那就行動、行動、行動! 偽類、五毛只停留在口炮層面。打口炮,我們跟他們很難有區別,也不會有勝利,只有無盡的糾纏。當你不跟他們廢話,行動起來,向前一路狂奔的時候,會突然發現,那些口炮原來只是個屁而已, 不會對我們造成半點實質性傷害, 原來他們不行動的, 原來站在原地爭吵是永遠不能甩掉他們的…..
+
+最後,請嚴加看守我們這已經被刻意訓練了很久的、隨時會蹦出來傷人的邪惡的靈魂,讓自己多一點時間做做好人。
 
 
 
-視頻重點
-
-1. 川普政府將擴大「凈化網絡計劃」（Clean Network program）以保護美國的資產與安全。繼抖音被制裁，華為、阿里、騰訊、百度均為川普政府下一波的制裁對象。
-2. 8月10日中共國公安部長趙克志稱：“建議在刑法修正案中單獨規定襲警罪”。這將推動中共鎮壓民眾反抗。
-3. 川普稱香港金融中心在中共治理下將惡化。由於香港的民主和自由正遭遇中共全面打壓。
-4. Mark Simon：香港城市大學16歲的女學生們曾給我打電話祈求我“西蒙先生，你要幫幫我們。” 他們真的認為黑警會將他們滅口。你知道，這裡沒有信任，整個香港都等待著惡夢降臨，因為有中共在就總會發生的。
-5. 你往回看過去的三年，只要是共產黨加緊駭客幹掉推特、YouTube，黑掉路德社、路德訪談，還有Sara（VOG），還有我們的戰友直播，只要是這個時候，共產黨就有大事了。共產黨就怕我們說。
-
-
-1. Protecting American assets and security, the Trump administration will expand its “Clean Network program” by initiating the sanction to TikTok, and setting the next targets to Huawei, Ali, Tencent, and Baidu.
-2. the Minister of Public Security of the CCP, Zhao Kezhi stated: “It is recommended that the crime of assaults on the police be separately made in the amendment to the Criminal Law.”  This will fuels CCP to suppress its people’s resistance.
-3. President Trump said Hong Kong’s global financial center will “go to hell” under tightened Chinese rule. As the democracy and freedom in Hong Kong are being suppressed by the CCP.
-4. Mark Simon：I had 16-year-old girls in City University of Hong Kong, calling me, begging me, you got to help us. They really thought the police were coming to kill them. But, you know there’s just no trust and all of Hong Kong was waiting for something horrible to happen, because with the Communists, something always will happen.
-5. Miles Guo: If you look back on the last three years, whenever the CCP works hard hacking accounts on Twitter, YouTube, hacking Lu De Media, Voice of Guo (VOG, Sara), and other fellows’ live streaming. Means for the CCP something big would be happened. They are afraid of us talking about it.
-
-
-0
+1

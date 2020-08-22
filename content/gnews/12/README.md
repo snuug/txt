@@ -1,17 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中國聯邦旗飄揚在中央電視台
-`2020-08-21 17:53 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/310425/)
+## 文貴說｜系列圖片連載（一）
+`2020-08-21 20:49 GM98` [轉載自GNews](https://gnews.org/zh-hant/310624/)
 
-喜馬拉雅聯盟加拿大農場龍井
-[!\[Lady May✊✊✊ (@MayGuo7) | Twitter\](https://pbs.twimg.com/media/Ef7tlWYXsAAjPgE.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Ftwitter.com%2Fmayguo7&amp;psig=AOvVaw1svZXe0miCABHck2Pt-fJn&amp;ust=1598132939336000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPjI-aejresCFQAAAAAdAAAAABAD)圖片來源：推特
-因報導班農先生被起訴事件，新中國聯邦國旗竟落落大方地飄揚在了中共中央電視台的屏幕上，展現在全中國人民面前。
+##  1. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21194428/1-1-2.jpg)
+人類進入了一個百年不遇的金融市場供給的黑洞期……就是無人掌握了解和可以預測明天會發生什麼。這些都是共產黨製造的CCP冠狀病毒的生化武器導致的結果。
 
-北京時間8月21日上午七點整，當央視中文國際頻道正在報導美國白宮前首席戰略師班農先生被起訴事件時，畫面中出現了文貴先生的lady may豪華遊輪。遊輪上，新中國聯邦的藍色七芒星旗迎風招展。遊輪載著新中國聯邦國旗正破浪前行，英姿颯爽，威武霸氣。屏幕右上方出現一排字幕：“班農被捕時所乘船隻”。視頻中游輪畫面超過10秒鐘。
+——郭文貴先生2020年3月18日
 
-不僅如此，當央視繼續播報班農先生獲保釋後健步走出法庭時，畫面也呈現出三面清晰奪目搶鏡頭的新中國聯邦國旗。
+##  2. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200035/1-2-1.jpg)
+一切最壞的時候還沒來呢。共產黨絕對完了！在它完之前不能把任何人帶走，這是我們要做的。
 
-央視的這則報導立刻引起轟動，戰友們都興奮異常。有人感慨，“新中國聯邦，想低調都不行。”有人歡呼，“我喜歡這廣告！”有人提問，“誰能告訴我這樣的廣告費用是多少嗎？”有人回答，“按央視的收費規矩，30萬每秒，不過，戰友就免費啦！”
+——郭文貴先生2020年3月18日
 
-1
+##  3. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200213/1-3-1.jpg)
+一定要把華人形像要維持著，堅決不能放棄！
+
+——郭文貴先生2020年3月18日
+
+##  4. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200334/1-4-1.jpg)
+我們要的就是防止世界變成中國人的敵人，海外的華人和中國人把這個變成中國人的病毒，誰要是碰這個高壓線，誰就是我們的敵人！ ！ ！誰要引向這個方向就是我們的敵人！ ！ ！
+
+——郭文貴先生2020年3月20日
+
+##  5. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201150/1-5-1.jpg)
+爆料革命的力量無處不在，爆料革命沒有力量不能達到的死角，沒有天花板，只有目標、只有目的、只有成功！
+
+——郭文貴先生2020年3月25日
+
+##  6. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201415/1-6-1.jpg)
+現在面對人類的只有兩個事，沒有第三個事。生和死！生和死！沒有任何選擇！
+
+——郭文貴先生2020年3月25日
+
+##  7. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201531/1-7-1.jpg)
+道德是做人的底線，人和畜生之別，就是“道”、“德”！ “道”就是手段，“德”就是標準。
+
+——郭文貴先生2018年5月31日
+
+
+
+0

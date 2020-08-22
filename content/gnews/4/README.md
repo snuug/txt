@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從黨媒的“口炮”看中共面臨的焦頭爛額的問題
-`2020-08-21 20:54 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/310645/)
+## 【世界多語言圖文】2020/08/13 CCP病毒每日疫情直播簡報
+`2020-08-22 00:08 GM62` [轉載自GNews](https://gnews.org/zh-hant/309865/)
 
-喜馬拉雅聯盟加拿大農場熊媽媽
-[!\[2016年8月2日中國現狀觸目驚心\](https://i.imgur.com/VN7TtAZ.jpg)](https://www.google.ca/url?sa=i&amp;url=http%3A%2F%2Fcdp2006.org%2Fshow.asp%3Fid%3D12572&amp;psig=AOvVaw3ywl2Ijh6T2Vz19saCGJe5&amp;ust=1598143046564000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCODcmv3IresCFQAAAAAdAAAAABAE)圖片來源：Twitter 
-8月21日，中共黨媒全面報導習總書記在安徽考察調研的講話內容，從中可見中共治下的國家面臨的科技、經濟、企業、防汛、貧困、糧食、工程、產業鏈、中共的存在性等一系列問題，反映了世界上最勤懇的民族所在的國家被中共的邪惡政權壓製成了現在的千瘡百孔，破敗不堪。而從黨媒的一貫口炮中能夠看出老百姓面臨的將是更加糟糕的生存問題。
+戰友之家圖文摘要及小語種組
 
-**黨媒報導觀點1** ：牢牢把握擴大內需戰略基點，加大關鍵核心技術攻堅。因應國內經濟結構性問題、美國施壓等外部政經環境的不穩定不確定性，中央提出“國內國際雙循環”的新發展格局。習近平提到，要把做實做強做優實體經濟作為主攻方向，牢牢把握擴大內需這個戰略基點，加大關鍵核心技術攻堅力度。
+[English\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)
 
-中共國加入WTO後，最引以為豪的就是三駕馬車“投資、消費、出口”。在投資方面，一帶一路在中共國外投入資金建設的項目多半已成爛尾工程。美國戳破了中共對外投資的實質，“中共努力在世界各地建造港口，不是因為中共希望成為優秀的造船者或海上航行的守護者，而是在每一個項目中都包含了國家安全因素。一帶一路計劃往往提供低於市場價格的掠奪性貸款，完全清楚借貸方將來無力償還時能有所獲。”目前，投資方面，世界主要國家採取行動抵制華為的5G，海航的崩塌都反映出中共在投資這方面已斷腿。出口方面，受貨幣、貿易、政治、運輸、中共病毒影響，出口基本短腿。消費方面，5月28日，中共國務院總理李克強在全國人大閉幕後的記者會上談道，“有6億人每個月的收入也就1000元人民幣，怎麼樣保障那些困難群眾和受疫情影響新的困難群眾的基本民生，我們應該放在極為重要的位置”。由此可見消費也已斷腿。中共制下的經濟成了名副其實的“擀麵杖子經濟”。
+[French\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)
 
-**黨媒報導觀點2** ：加強防汛救災和災後恢復重建。
+[German\_0813\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)
 
-中共官媒統計，27個省市受災，共有148條河流超過警戒水位，受災人數已近3400萬。那麼實際受災人數呢，中共政府有過幫扶嗎？ 6月、7月是受災最嚴重的月份，高層在哪裡呢？水災造成的老百姓死傷、財物損害、有些人甚至無家可歸、沒有收成、牲畜死亡、商業停頓、古蹟損毀、食品污染、水源污染、疾病傳播，這些不是要老百姓自己解決嗎？現在還在受災中，已經就在談災後重建，是的，重建官員才可以撈錢。
+[Japanese\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)
 
-**黨媒報導觀點3** ：結合“十四五”規劃，聚焦河流湖泊安全、生態環境安全、城市防洪安全，謀劃建設一批基礎性、樞紐性的重大項目。
+[Korean\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)
 
-長江流域已建成的大小水電項目超過2.4萬座，其中一些未經環評即開工建設，過度開發致使幾百條河流出現不同程度斷流，魚類無處棲息，由於大壩阻隔、生境破碎，物種滅絕。事情已經做到這種程度，還要“謀劃建設一批基礎性、樞紐性的重大項目”，這是要徹底斷老百姓子孫後代的根。
+[Russian\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)
 
-**黨媒報導觀點4** ：要堅決扛穩糧食安全責任。
+[Spanish\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)
 
-黨媒7月26日在“習近平總書記關切事”中曾報導，“近日，國家統計局網站公佈今年全國夏糧生產數據顯示，2020年我國夏糧總產量達2856億斤，比2019年增加了24.2億斤，增長0.9%，全國夏糧生產再獲豐收，產量創歷史新高。”緊接著，在8月17日，社科院發佈到“十四五”期末，有可能出現1.3億噸左右的糧食缺口。 ”做為黨媒前後報導自相矛盾，都是謊言。現在終於承認糧食緊缺了，北方蝗災，南方水災，從哪裡來的糧食呢？這不是常識嗎？
 
-**黨媒報導觀點5：**推動製造業加速向數字化、網絡化、智能化發展，提高產業鏈供應鏈穩定性和現代化水平。要對標世界一流，加強前沿探索和前瞻佈局，加大關鍵核心技術攻堅力度。
-
-2019年研究與試驗發展（R&D）經費支出21737億元人民幣，2018年，全國共投入研究與試驗發展（R&D）經費19677.9億元。 2019年中共數據，國家重點實驗室515個，國家工程研究中心133個，國家工程實驗室217個，國家企業技術中心1540個，國家級科技企業孵化器1177個，國家備案眾創空間1888個，專利申請量438萬件。如此規模的投入，如此規模的科研力量，為什麼還要藍金黃，千人計劃，技術偷竊？說明關鍵核心技術的缺失，科研的虛假。
-
-**黨媒報導觀點6** ：要出台更多援企、減負、穩崗、擴就業的支持措施，突出做好高校畢業生、農民工、退役軍人、受災群眾等重點人群就業工作。
-
-黨媒特意強調了“高校畢業生、農民工、退役軍人、受災群眾”，這說明學生畢業之後無從就業，農民工沒有了工作、沒人招工，退役軍人也無法安排工作，受災群眾沒人管。
-
-**黨媒報導觀點7** ：任何時候我們都要不忘初心、牢記使命，都不能忘了人民這個根，永遠做忠誠的人民服務員。要廣泛開展愛國主義教育，讓人們深入理解為什麼歷史和人民選擇了中國共產黨，為什麼必須堅持走中國特色社會主義道路、實現中華民族偉大復興。
-
-疫情，中共不管，包括現在都不知道真正因為疫情的死亡人數，更別提疫情期間無數的人道災難。水災，中共不管，老百姓流離失所。疫情、水災期間，號稱2020年第二季度國內生產總值（GDP）增長3.2%的中共國，為什麼不給老百姓發放疫情、災情補貼？誰是服務員？老百姓還是中共？ 70年來，老百姓都是被代表，被選擇！
-
-美好的環境、勤懇老百姓的發自內心的自由的笑容、兒時的藍天白雲，蛙啼蟲鳴在哪裡？
 
 0
