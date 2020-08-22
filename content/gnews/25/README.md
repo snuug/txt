@@ -1,54 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和黨眾議員加入參議院推動收回1.6萬億美元中國百年債務
-`2020-08-21 07:17 GM36` [轉載自GNews](https://gnews.org/zh-hant/309606/)
+## 中共與世界衛生組織勾結掩蓋病毒來源真相（法文French+英文English）
+`2020-08-21 09:44 GM62` [轉載自GNews](https://gnews.org/zh-hant/309980/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21071609/821_4.jpg)湖廣鐵路債券（網絡圖片） 
-收集：台灣荔枝
+法文標題 L’OMS et le PCC sont complices de cette dissimulation de l’origine du virus
 
-翻譯：淨水—源
+翻譯：石野鲜生 校對：文文-自由法兰西 視頻：文菠萝
 
-整理：文非
 
-田納西州眾議員格林（Mark Green）提出一項決議案，要求中共國政府償還民國政府拖欠美國百年的主權債務。此項債務總計超過1.6萬億美元，包括利息。
 
-眾議院的決議案是繼上週由亞利桑那州參議員瑪莎-麥克薩利（Martha McSally）提出、田納西州參議員瑪莎-布萊克本（Marsha Blackburn）共同提出的類似措施之後的又一決議案。決議案表達了國會議員的意願，但不具有法律效力。有關此法案的動向必須由川普政府推動。
-
-格林（Mark Green）表示“我們不能再袖手旁觀，放任中共國違背國際法規定而對美國主權債務違約。”
-
-美國債券持有人基金會主席Jonna Bianco 表示，他們已經得到95%的該民國債券持有人的授權書，表示他們支持川普總統向中共國追償債務。
-
-**1.6**萬億美元的百年民國債券為特朗普提供了對抗北京的獨特籌碼。
-
-[https://www.foxbusiness.com/markets/historic-chinese-bonds-trump-leverage-beijing](https://www.foxbusiness.com/markets/historic-chinese-bonds-trump-leverage-beijing)
-
-該民國債券是由黃金為抵押物，由中華民國政府在1912年發行。該政府在1949年毛澤東發動的革命結束後，逃到台灣。
-
-北京一直堅持認為台灣是中國的一部分，根據國際法，繼任政府要對前任政府的債務負責。
-
-中國前國家主席李先念在1987年與當時的英國首相撒切爾夫人曾達成了2350萬英鎊的和解協議，如果北京不向英國償付其所持債券，中共國將被拒之於英國資本市場之外。
-
-中共利用中共病毒將美國汽車製造商國有化。
-
-[https://www.foxbusiness.com/markets/china-coronavirus-nationalize-america-owned-car-company](https://www.foxbusiness.com/markets/china-coronavirus-nationalize-america-owned-car-company)
-
-債券風險評級公司穆迪、標準普爾和惠譽表示，中共國有選擇性的償付部分債券持有人而非全部，在技術上已經屬於選擇性違約。中共國在清償所有債務之前，不能進入國際債務市場。
-
-在川普取消原定於上週六舉行的就與中共政府1月簽署的貿易協議後續進展會晤不到一周，格林（Mark Green）的“民國債券償還決議案”就出台了。
-
-川普週二對記者說：”我現在不想和他們打交道。”他指責中國未能遏制中共病毒，該病毒去年年底在武漢市首次被發現，此後成為全球流行病。
-
-中共病毒在美國的感染和死亡人數比任何其他國家都要多。為了遏制該病毒的傳播，強制隔離，不僅使得很多企業運營困難，還使得不少企業停止營業，曾經生機勃勃的美國經濟陷入了自大蕭條以來最嚴重的衰退，更破壞了川普的連任競選。
-
-“中國對世界所做的事情是不可想像的”， 川普說，”中共國本可以阻止它，但他們沒有！”
-
-格林（Mark Green）在其演講中回應了川普的立場。他說”中國必須為其一再的謊言和惡意行為負責，為它向我們國家和世界釋放中共病毒所造成的無與倫比的破壞負責。”
-
-編者觀點：中共製造並釋放的病毒對美國造成了嚴重傷害，美國要求中共償還民國債務是合理要求，中共必須為此次事件擔負責任。
-
-郭文貴先生最早提過古董債券，之後班農先生在戰斗室也曾經多次提及。目前，美國對中共用債務來進行疫情損失賠償，已經步入了行動階段。隨著多位議員提出相關決議，中共將無處可逃。近日，中共官方媒體多次提及中美脫鉤，不想就此結束中美關係，可以看出中共內心的膽怯。加之這次疫情的賠償，如果中共不按照要求進行賠償，將會立即被踢出世界體系，實現它的內循環之夢。
-
-新聞鏈接： [https://www.foxbusiness.com/markets/china-debt-resolution-rep-mark-green](https://www.foxbusiness.com/markets/china-debt-resolution-rep-mark-green)
+視頻簡介
+7月29日閆麗夢博士參加班農戰鬥室採訪指出:世界衛生組織與中共勾結掩蓋病毒真相。
+Dr. Yan Limeng sur War Room de M. Bannon, le 29 Juillet : L’OMS et le PCC sont complices de cette dissimulation de l’origine du virus
 
 0
