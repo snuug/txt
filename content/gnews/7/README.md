@@ -1,97 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：協助試圖遣返文貴先生的關鍵人物——盧姆·大衛斯和她的家族
-`2020-08-22 09:04 立武` [轉載自GNews](https://gnews.org/zh-hant/311743/)
+## 【中意文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-22 11:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/312024/)
 
-8月17日，美國司法部的檔中，一個關鍵的人物是**尼基·盧姆·大衛斯（****Nickie Lum Davis****）**。
+意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 204: Il settore manifatturiero cinese è in calo.
 
-**尼基·盧姆·大衛斯**
+視頻重點
 
-2008年大選前後，盧姆·大衛斯嫁給了喬·沙皮拉，後者是猶太企業家，大衛斯隨後也皈依了猶太教，**成為了共和黨和猶太政治事業的籌款人，她同時也是約翰·麥凱恩（****John McCain****）競選總統的主要籌款人。**
+1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
+2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
+3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
+4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
+5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
 
-在此期間，**盧姆·大衛斯與伊里亞德·布羅依迪（****Elliott Broidy****）以及其他共和黨高層人士一起合作。**
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084855/2fb176869e564d0ab651cbe1a21442e7_18-3.jpg)埃利奥特·布罗依迪
+1. Il settore manifatturiero cinese è in calo. Il 14 agosto, Foxconn, il più grande produttore di Apple, ha annunciato che trasferirà gradualmente la sua linea di produzione nel sud-est asiatico, il che significa che “i giorni della Cina come fabbrica mondiale sono finiti”. I media ufficiali del PCC hanno cercato di distogliere l’attenzione da questo riferendolo a malapena e vantandosi dell’internazionalizzazione del RMB.
+2. Il 7 agosto, il Dipartimento di Stato americano e il Dipartimento del Tesoro hanno annunciato sanzioni contro 11 funzionari di Hong Kong e del PCC. Il 15 agosto, i media ufficiali del PCC hanno continuato a fare il lavaggio del cervello al popolo cinese, a screditare gli Stati Uniti e a vantarsi che lo sviluppo di Hong Kong deve fare affidamento sul PCC. Il PCC è diventato anche più violento e più feroce per reprimere le proteste pacifiche del popolo di Hong Kong.
+3. Natalie Winters: Brendan Daly, che ha servito come direttore delle comunicazioni e portavoce di Nancy Pelosi per quasi un decennio, ha continuato a servire come vicepresidente esecutivo presso una società di lobbying e PR nota come Ogilvy. E lì ha effettivamente guidato il contratto dell’azienda con China Central Television. Secondo il Foreign Agents Registration Act, le informazioni di questa società indicavano che è “supervisionata, posseduta, diretta, controllata, finanziata e sovvenzionata” dal Partito Comunista Cinese.
+4. Miles Guo: Alcuni paesi hanno espresso il loro sostegno a riorganizzare le Nazioni Unite dopo le elezioni presidenziali statunitensi, cosa che espellerà il PCC, l’attuale governo della RPC, dallo status di legittimo rappresentante degli 1,4 miliardi di cinesi nella comunità internazionale. Inoltre, in passato nessuno ha mai osato dire “Abbatti il PCC” o “Elimina il PCC”, ma ora il mondo intero sta dicendo che il PCC deve essere ritenuto pienamente responsabile della pandemia ed essere assicurato alla giustizia.
+5. Nello Xinjiang, per nascondere la verità sull’epidemia, le persone che escono di casa senza un permesso vengono avvertite vocalmente, maltrattate fisicamente o addirittura messe dietro le sbarre. La propaganda locale ha anche minacciato i residenti che “ti spezzeremo le gambe se ti troviamo all’aperto, ti spaccheremo i denti se avrai il coraggio di disobbedire”. Sotto il governo del PCC, l’applicazione della legge è una vergogna in sé e una mancanza di rispetto per la dignità umana fondamentale.
 
-她還參與了**洛杉磯地區**的幾家**唱片和電視製作公司**。
 
-**跨界的她**得以通過**海地說唱歌手普拉斯·蜜雪兒（****Pras Michel****）和劉特佐**進行聯繫。
 
-她隨後幫助**談判了劉特佐與布羅依迪之間的最終交易條款，以遊說總統取消對****1MDB****的調查。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084910/gettyimages-462179564-h_2016-3.jpg)普拉斯·米歇尔
-
-布羅依迪試圖影響一個可能對1MDB案有發言權的聯邦職位的提名人，**他也在****2017****年呼籲川普總統與時任馬來西亞總理納吉布建立高爾夫約會，**但他的嘗試都失敗了。
-
-同年，**劉特佐、普拉斯·蜜雪兒和布羅依迪**在努力阻止司法部調查1MDB案的基礎上，**又發起了另一項計畫：確保郭文貴先生的引渡。**
-
-這個計畫顯然失敗了，**布羅依迪未按照聯邦法律的要求註冊為外國註冊代理人，盧姆·大衛斯也被指控協助和教唆該罪行。**
-
-一旦盧姆·大衛斯被判有罪，將被**尋求沒收“構成或源自可追溯至上述違法行為的收益所代表的不動產或個人財產”。**
-
-等待盧姆·大衛斯的還不僅僅如此，**盧姆·大衛斯的身後是中共與美國深層力量布下的一張利益網。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084837/DcfoM1cVQAA39hA-3.jpg)右为卢姆·戴维斯
-
-這位在**夏威夷**長大的女士，一開始就來頭不小，**她的父母是與比爾·克林頓關係緊密的盧姆夫婦。**
-
-**盧姆夫婦**
-
-1997年，**洛杉磯亞裔美國人社區，民主黨籌款人諾拉·盧姆（****Nora T. Lum****）和她的丈夫基恩·盧姆（****Gene KH Lum****）**同意認罪，罪名是非法提供5萬美元的政治捐款，涉及物件包括**參議員愛德華·甘迺迪**和來自奧克拉荷馬州的**民主黨總統候選人斯圖爾特·普萊斯（****Stuart Price****）**，後者同時也是**比爾·克林頓競選活動的前財務主席**。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084826/Img266274054-3.jpg)右为爱德华·肯尼迪
-
-法庭檔顯示，盧姆夫婦**通過眾多“稻草”捐助者非法地從他們在奧克拉荷馬州的能源公司（****DER****）轉移資金。**
-
-盧姆夫婦的故事還要從6年前說起。
-
-早在上世紀80年代，**盧姆夫婦就活躍于夏威夷的政壇。**
-
-1991年，盧姆夫婦會見了當時的**民主黨全國委員會主席羅恩·布朗（****Ron Brown****）**。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084808/9c03559a1c7045ebbc794e2f48aec2ed-3.jpeg)左为罗恩·布朗
-
-1992年，盧姆夫婦從夏威夷移居到加利福尼亞州，**羅恩·布朗任命諾拉·盧姆作為亞太諮詢委員會****–****投票（****APAC****）的組織負責人，**為比爾·克林頓爭取亞裔社區的籌款和投票。
-
-當時，**APAC****的另一位成員是黃建南（****John Huang****），他之後擔任了比爾·克林頓的商務部助理部長，他同時也是****1996****年美國競選財務醜聞的關鍵人物之一。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084757/611091458091366-450x343-1-3.jpg)左为黄建南
-
-1993年，**在斯圖爾特·普萊斯的幫助下，**盧姆夫婦購買了Dynamic Energy Resources Inc.（DER），**隨後斯特爾特·普萊斯擔任了公司的總裁。**
-
-1993年，**羅恩·布朗被任命為比爾·克林頓的商務部長，**比爾·克林頓在幾個月前剛剛競選總統成功**。**
-
-1994年，盧姆夫婦任命**羅恩·布朗的兒子邁克爾·布朗（****Michael Brown****）**作為DER的董事會成員，**並給予他****5%****的股份**和價值6萬美元的高爾夫球場會員資格。
-
-1994年下半年，**盧姆夫婦與斯圖爾特·普萊斯發生爭執，**隨後斯圖爾特·普萊斯提起訴訟，**聲稱盧姆夫婦通過****DER****使自己和他們的政治盟友受益。**
-
-1996年，DER和盧姆夫婦被調查，**這是針對羅恩·布朗的業務往來進行的獨立律師調查的一部分。**
-
-1996年4月，**羅恩·布朗在飛機失事中喪生，**當時獨立律師調查已經結束，**其餘的調查工作都移交給了司法部，**調查內容還包括盧姆夫婦是否行賄羅恩·布朗和是否從商務部獲得特殊待遇。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22084744/f26d97ab1ef1495a965c9ab5fa742b32-3.jpeg)
-
-再後來，就有了盧姆夫婦的認罪。
-
-這僅僅是1996年美國競選財務醜聞的冰山一角，**在整個事件中，華裔、亞裔的身影無處不在，背後中共的黑手也影影若現。**
-
-文貴先生挑戰的不僅僅是中共盜國賊，班農事件讓我們更加深刻感受到美國深層力量的強大，**司法部的檔打響了爆料革命對抗美國深層力量的第一槍。**
-
-**二十年前，那場醜聞已然淡漠；二十年後，盧姆家族又一次站到了前臺。**
-
-這一次，她們面對的**是爆料革命，是川普總統，是班農，是新中國聯邦。**
-
-（未完待續）
-
-參考連結：
-
-[https://www.ilind.net/2020/08/21/feds-allege-hawaii-woman-was-key-player-in-illegal-lobbying-scheme/](https://www.ilind.net/2020/08/21/feds-allege-hawaii-woman-was-key-player-in-illegal-lobbying-scheme/)
-
-[https://www.latimes.com/archives/la-xpm-1997-05-22-mn-61279-story.html](https://www.latimes.com/archives/la-xpm-1997-05-22-mn-61279-story.html)
-
-[https://www.newyorker.com/magazine/1997/04/14/american-guanxi](https://www.newyorker.com/magazine/1997/04/14/american-guanxi)
-
-[https://greensboro.com/fund-raisers-plead-guilty-to-arranging-illegal-donations/article\_2f3c94c5-9d26-5dd9-9b69-1ca5837d919c.html](https://greensboro.com/fund-raisers-plead-guilty-to-arranging-illegal-donations/article_2f3c94c5-9d26-5dd9-9b69-1ca5837d919c.html)
 
 0

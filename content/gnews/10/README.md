@@ -1,82 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國司法部文件節錄片段翻譯
-`2020-08-22 07:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311611/)
+## 巴布亞新幾內亞拒絕48名接種新冠疫苗中國工人入境
+`2020-08-22 10:15 GM01` [轉載自GNews](https://gnews.org/zh-hant/311931/)
 
-- **[美國司法部文件英文全文鏈接](https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf)**
-- **[路德社解說鏈接](https://youtu.be/-LKxFQU3qNE)**
-- **[美國司法部文件節錄片段翻譯PDF鏈接](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070348/%E7%BE%8E%E5%9C%8B%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B6%E7%AF%80%E9%8C%84%E7%89%87%E6%AE%B5%E7%BF%BB%E8%AD%AF.pdf)**
+國內新聞組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22100505/38D1891C-A1EA-41CA-84F2-388907B92242.jpeg)
+據《澳大利亞人報》21日報道，巴布亞新幾內亞當局拒絕了一架載有中共冶金科工集團子公司瑞木鎳鈷管理有限公司員工的航班進入該國，原因為巴新當局擔心上述員工在離開中國之前接受了「未經批准的」新冠疫苗接種。
 
+針對此事件中共外交部發言人趙立堅同日在記者會上強調，中共疫苗研發嚴格遵循科學規範的程序，嚴格進行安全性、有效性評價和倫理審查。
 
-**以下是美國司法部文件節錄片段翻譯的文檔截圖**
+據可靠消息稱，雖然中國國藥集團的滅活疫苗並未通過臨床三期測試，沒有正式獲得上市許可，但一些國企事業單位已經開始一定規模的使用。特別是一些派駐到海外的企業員工及國際航班人員。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070131/Screen-Shot-2020-08-22-at-9.01.21-pm.png)
+無論根據中共自己的藥品監督管理條例還是國際通行准則，這種未經正式上市批准的疫苗都是不可以商業使用的。中共為了進行所謂的「疫苗外交」，顯示「抗疫成果」根本不顧法律原則及公眾健康，外交部還振振有詞說自己符合程序。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070631/Screen-Shot-2020-08-22-at-9.06.24-pm.png)
+CCP自己的疫苗在國內連三期臨床都沒有開展，給這48名冶金科工員工進行疫苗免疫接種的原因是什麼？難道是拿這些工人做臨床三期試驗？你在國內都沒有申請臨床三期試驗。如果是商業接種，那中國就是違法了。更不可能是臨床二期吧，因為臨床二期都已經揭盲結束試驗了。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070829/Screen-Shot-2020-08-22-at-9.08.16-pm.png)
+巴布亞新幾內亞拒絕這批接種新冠疫苗工人入境是有理由的，一個沒有經過臨床三期，沒有正式批准上市的疫苗，被接種者是否會在體內留有活病毒？即使有這種顧慮也是正常的。CCP竟然還堂而皇之抗議他國的正常措施。CCP的無恥行徑令我們全民族蒙羞！
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071051/Screen-Shot-2020-08-22-at-9.10.44-pm.png)
+新聞鏈接
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071348/Screen-Shot-2020-08-22-at-9.13.41-pm.png)
+[https://m.thepaper.cn/newsDetail\_forward\_8841342](https://m.thepaper.cn/newsDetail_forward_8841342)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072102/Screen-Shot-2020-08-22-at-9.20.55-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072123/Screen-Shot-2020-08-22-at-9.21.16-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071217/Screen-Shot-2020-08-22-at-9.12.10-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071408/Screen-Shot-2020-08-22-at-9.14.02-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071423/Screen-Shot-2020-08-22-at-9.14.13-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071435/Screen-Shot-2020-08-22-at-9.14.29-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071447/Screen-Shot-2020-08-22-at-9.14.39-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071458/Screen-Shot-2020-08-22-at-9.14.51-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071514/Screen-Shot-2020-08-22-at-9.15.06-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071533/Screen-Shot-2020-08-22-at-9.15.17-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071542/Screen-Shot-2020-08-22-at-9.15.34-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071613/Screen-Shot-2020-08-22-at-9.16.07-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071625/Screen-Shot-2020-08-22-at-9.16.20-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071640/Screen-Shot-2020-08-22-at-9.16.34-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071650/Screen-Shot-2020-08-22-at-9.16.44-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071704/Screen-Shot-2020-08-22-at-9.16.57-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071716/Screen-Shot-2020-08-22-at-9.17.09-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071731/Screen-Shot-2020-08-22-at-9.17.23-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071741/Screen-Shot-2020-08-22-at-9.17.33-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071752/Screen-Shot-2020-08-22-at-9.17.45-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071804/Screen-Shot-2020-08-22-at-9.17.58-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071816/Screen-Shot-2020-08-22-at-9.18.09-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071828/Screen-Shot-2020-08-22-at-9.18.20-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071840/Screen-Shot-2020-08-22-at-9.18.33-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071851/Screen-Shot-2020-08-22-at-9.18.45-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071904/Screen-Shot-2020-08-22-at-9.18.57-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071919/Screen-Shot-2020-08-22-at-9.19.14-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071934/Screen-Shot-2020-08-22-at-9.19.26-pm.png)
-
-翻譯：【秘密翻譯組】
-
-1
+0

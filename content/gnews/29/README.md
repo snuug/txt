@@ -1,25 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/13 CCP病毒每日疫情直播簡報
-`2020-08-22 00:08 GM62` [轉載自GNews](https://gnews.org/zh-hant/309865/)
+## G-Club很快要上線
+`2020-08-22 03:05 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/311227/)
 
-戰友之家圖文摘要及小語種組
+郭文貴先生在[8月12日的G-TV直播](https://livestream.com/accounts/27235681/events/8197481/videos/209783490)說G-Club很快會上線，但是他不能做任何股權的承諾，因為美國法律現在不允許。但是頭1萬個和第二個1萬個，頭100萬個和第二個100個，頭一個月和第二個月加入一定是不一樣的。但是不管什麼時候買G-Club會員，都會終生享受七G-Fashion的50%的永遠的會員價格。
 
-[English\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084929/English_0813_CCP_Virus_Updates.pdf)
+*翻譯：【noraTina】校對：【JoyJoy】【V%】字幕：【Naomi (文花開)】編輯：【Michelle】*
 
-[French\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084940/French_0813_CCP_Virus_Updates.pdf)
-
-[German\_0813\_CCP\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084936/German_0813_CCP_Virus_Updates_.pdf)
-
-[Japanese\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21235242/Japanese_0813_CCP_Virus_Updates.pdf)
-
-[Korean\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084943/Korean_0813_CCP_Virus_Updates.pdf)
-
-[Russian\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084947/Russian_0813_CCP_Virus_Updates.pdf)
-
-[Spanish\_0813\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21084932/Spanish_0813_CCP_Virus_Updates.pdf)
-
-
+*戰友之家玫瑰園小隊出品*
 
 0
