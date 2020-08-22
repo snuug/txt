@@ -1,16 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：我們對中共國的看法與以前完全不同了！談論第一階段貿易協議的事情意義已不大（瑞典語Swedish+英語English）
-`2020-08-22 03:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/311203/)
+## 中共病毒給我們帶來危機重重; G平台給我們帶來希望之光
+`2020-08-22 08:05 GM80` [轉載自GNews](https://gnews.org/zh-hant/311648/)
 
-瑞典語標題 Trump: Vi granskar kommunistiska Kina annorlunda än tidigare! Att prata om fas 1-avtalet är meningslöst
+[https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21203143/MG\_20200815-2.mp4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21203143/MG_20200815-2.mp4)
 
-翻譯：JingMerit 校對：lxxy 視頻：年糕
+在和郭文貴先生8月155日的連線直播中,瑪莎戰友提問:病毒現在還很嚴重,郭先生曾預言俄羅斯會有大爆發,第二輪的中共病毒會到來。 第一批病毒影響了經濟,第二批捲土重來,全球經濟會到什麼程度? 郭先生回答:首先一點,世界一切都會改變,全人類的經濟在2-3年後全部暴跌,接下來病毒一定會大爆發,閆博士講出了真相,這是生化武器,找出疫苗幾乎不可能,病毒一定會重複再來,甚至陪伴我們一生。 病毒最可怕的是城市化,最好在澳大利亞有袋鼠的地方,英國、紐約、洛杉磯、東京、大阪、香港、台灣這樣的地方麻煩了。 世界經濟接下來一定大蕭條,病毒一定會再來,全世界進入了人類上必須的互聯網經濟、互聯網金融、互聯網戀愛,現在是互聯網賺錢,G-TV、G-News、G-Coin、G-Dollar全是互聯網。 戰友們一定要有朋友,朋友就是資源,一定要接受虛擬時代帶來的機會,只有新中國聯邦讓大家活得更好、讓大家安全。
 
-視頻簡介
-川普認為，第一階段協定對總進口意義不大。新冠狀病毒已釋放到歐洲,美國和世界各地。因此，我們對共產主義中國的看法不同於八個月前。
+*翻譯【文所未聞】校對【**Dlrow**】字幕【班仔】編輯【**JoyJoy**】*
 
-Trump tycker att fas 1-avtalet betyder väldigt lite för den totala importen av saker. Covid-19 släpptes till Europa, USA och över hela världen. Så vi granskar kommunistiska Kina annorlunda än vi gjorde för åtta månader sedan.
+*戰友之家玫瑰園小隊出品*
+
+
+> “現在家裡有豪車的,有二、三套房子的,咱走著看。 不管你在哪國,你能交得起電費、你能交得起水費、你能把這修修補補給弄好,你就是個贏家了”
+
+
+*-郭文貴*
 
 0

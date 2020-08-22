@@ -1,27 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中意文視頻版】2020/08/14 CCP病毒每日疫情直播簡報
-`2020-08-22 02:23 GM62` [轉載自GNews](https://gnews.org/zh-hant/311081/)
+## 飢荒捲土重來，存糧迫在眉睫
+`2020-08-22 05:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311395/)
 
-意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 203: Trump sanziona a TikTok, Huawei, Ali, Tencent…
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22054807/1-110.png)圖片來源：Josh Sosland 
+根據每日信號(The Daily Signal)的報導，中共正面臨著食品危機，這次食品危機主要來源以下幾點。
 
+**蝗蟲豬流感：**
 
+非洲豬流感在中國南部迅速傳播，2019年的豬流感已造成1.8億頭豬死亡，約佔中國養豬總數的40％。 2019年秋季時分，蝗蟲向北方進軍，沿途已吞噬近3百萬英畝的農作物。這些問題導致食品價格飛速上漲，特別是豬肉在七月份就上漲了85%，蔬菜價格也上漲了8%。
 
-視頻重點
+**洪災：**
 
-1. 川普政府將擴大「凈化網絡計劃」（Clean Network program）以保護美國的資產與安全。繼抖音被制裁，華為、阿里、騰訊、百度均為川普政府下一波的制裁對象。
-2. 8月10日中共國公安部長趙克志稱：“建議在刑法修正案中單獨規定襲警罪”。這將推動中共鎮壓民眾反抗。
-3. 川普稱香港金融中心在中共治理下將惡化。由於香港的民主和自由正遭遇中共全面打壓。
-4. Mark Simon：香港城市大學16歲的女學生們曾給我打電話祈求我“西蒙先生，你要幫幫我們。” 他們真的認為黑警會將他們滅口。你知道，這裡沒有信任，整個香港都等待著惡夢降臨，因為有中共在就總會發生的。
-5. 你往回看過去的三年，只要是共產黨加緊駭客幹掉推特、YouTube，黑掉路德社、路德訪談，還有Sara（VOG），還有我們的戰友直播，只要是這個時候，共產黨就有大事了。共產黨就怕我們說。
+2020年進入雨季後，長江的汛期也如約而至。大量降雨加上中共給三峽大壩開閘洩洪，從而造成人為的洪災。洪災不但使得豬流感更加難以控制，還影響了1300英畝的耕地，造成近210億美元的損失。
 
+直到現在，洪水造成的威脅還未消退。上周中共發出公告，督促人們停止浪費糧食，並威脅要對違反規定的人進行懲罰。此公告發出後，對餐飲業造成巨大衝擊，並且在抖音平台上也造成不小的影響。食品價格的上漲令中國經濟雪上加霜，從CCP病毒造成的衰退中復蘇更是難上加難。人們不得不將食品和生活必需品作為開銷重點，這導致零售業仍處於虧損狀態。
 
-1. Proteggendo le risorse e la sicurezza americane, l’amministrazione Trump espanderà il suo “Programma Clean Network” avviando la sanzione a TikTok e poi a Huawei, Ali, Tencent e Baidu.
-2. il ministro della Pubblica Sicurezza del PCC, Zhao Kezhi, ha dichiarato: “Si raccomanda che il reato di aggressione alla polizia sia fatto separatamente nell’emendamento al diritto penale”. Questo spingerà il PCC a sopprimere la resistenza del suo popolo.
-3. Il presidente Trump ha detto che il centro finanziario globale di Hong Kong “andrà all’inferno” sotto il rafforzamento del governo cinese. La realtà è che la democrazia e la libertà a Hong Kong vengono soppresse dal PCC.
-4. Mark Simon ： C’erano ragazze di 16 anni alla City University di Hong Kong, che mi chiamavano per aiutarle. Pensavano davvero che la polizia sarebbe venuta ad ucciderle. Ma sai che non c’è fiducia e tutta Hong Kong stava aspettando che accadesse qualcosa di orribile, perché con i comunisti, qualcosa accadrà sempre.
-5. Miles Guo: Se guardi indietro agli ultimi tre anni, ogni volta che il PCC lavora duramente per hackerare account su Twitter, YouTube, Lu De Media, Voice of Guo (VOG, Sara) e il live streaming di altri colleghi, ogni volta che accade , significa che per il PCC è successo qualcosa di grosso. Hanno paura che ne parliamo.
+各種人為或非人為的災害使得中共不得不大量增加食品進口量。 2020年上半年中共農牧產品進口量與2019年同期相比增長5倍。肉類進口額度同比增加100億人民幣，油料種子進口額度同比增加1170億人民幣。
 
+上世紀50年代，中共一手導致的全國性飢荒餓死了三千多萬人，如今物價持續上漲，人民也可能會面臨難以飽腹的風險。中共這樣一意孤行下去，只會加速滅亡。
+
+**簡評：**
+
+存糧的問題文貴先生已經提了不止一次了。如今中共發出節約糧食的公告，等於直白的告訴你糧庫不夠了。存糧迫在眉睫，不要天真的想著通過進口糧食而求生，一旦全球與中共完成脫鉤，中共的“人冥幣” 還能從哪進口糧食？中共從來沒把人民當回事，到時候中南坑自身難保，哪裡還會管普通民眾？面對現狀，我們必須警醒，為了自己也要開始存糧行動了！一旦糧庫空了，或者中共強行實施數字貨幣，如同當年的糧票一般，人們沒有自由購買糧食權，到時候想買都晚了！存糧自救！
+
+[原文鏈接](https://www.dailysignal.com/2020/08/21/why-chinas-food-crisis-could-get-worse-amid-pests-pestilence/)
+
+翻譯報導：Chris
 
 0

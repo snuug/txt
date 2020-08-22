@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文貴說｜系列圖片連載（一）
-`2020-08-21 20:49 GM98` [轉載自GNews](https://gnews.org/zh-hant/310624/)
+## 【中意文視頻版】2020/08/14 CCP病毒每日疫情直播簡報
+`2020-08-22 02:23 GM62` [轉載自GNews](https://gnews.org/zh-hant/311081/)
 
-##  1. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21194428/1-1-2.jpg)
-人類進入了一個百年不遇的金融市場供給的黑洞期……就是無人掌握了解和可以預測明天會發生什麼。這些都是共產黨製造的CCP冠狀病毒的生化武器導致的結果。
+意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 203: Trump sanziona a TikTok, Huawei, Ali, Tencent…
 
-——郭文貴先生2020年3月18日
 
-##  2. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200035/1-2-1.jpg)
-一切最壞的時候還沒來呢。共產黨絕對完了！在它完之前不能把任何人帶走，這是我們要做的。
 
-——郭文貴先生2020年3月18日
+視頻重點
 
-##  3. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200213/1-3-1.jpg)
-一定要把華人形像要維持著，堅決不能放棄！
+1. 川普政府將擴大「凈化網絡計劃」（Clean Network program）以保護美國的資產與安全。繼抖音被制裁，華為、阿里、騰訊、百度均為川普政府下一波的制裁對象。
+2. 8月10日中共國公安部長趙克志稱：“建議在刑法修正案中單獨規定襲警罪”。這將推動中共鎮壓民眾反抗。
+3. 川普稱香港金融中心在中共治理下將惡化。由於香港的民主和自由正遭遇中共全面打壓。
+4. Mark Simon：香港城市大學16歲的女學生們曾給我打電話祈求我“西蒙先生，你要幫幫我們。” 他們真的認為黑警會將他們滅口。你知道，這裡沒有信任，整個香港都等待著惡夢降臨，因為有中共在就總會發生的。
+5. 你往回看過去的三年，只要是共產黨加緊駭客幹掉推特、YouTube，黑掉路德社、路德訪談，還有Sara（VOG），還有我們的戰友直播，只要是這個時候，共產黨就有大事了。共產黨就怕我們說。
 
-——郭文貴先生2020年3月18日
 
-##  4. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21200334/1-4-1.jpg)
-我們要的就是防止世界變成中國人的敵人，海外的華人和中國人把這個變成中國人的病毒，誰要是碰這個高壓線，誰就是我們的敵人！ ！ ！誰要引向這個方向就是我們的敵人！ ！ ！
-
-——郭文貴先生2020年3月20日
-
-##  5. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201150/1-5-1.jpg)
-爆料革命的力量無處不在，爆料革命沒有力量不能達到的死角，沒有天花板，只有目標、只有目的、只有成功！
-
-——郭文貴先生2020年3月25日
-
-##  6. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201415/1-6-1.jpg)
-現在面對人類的只有兩個事，沒有第三個事。生和死！生和死！沒有任何選擇！
-
-——郭文貴先生2020年3月25日
-
-##  7. 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21201531/1-7-1.jpg)
-道德是做人的底線，人和畜生之別，就是“道”、“德”！ “道”就是手段，“德”就是標準。
-
-——郭文貴先生2018年5月31日
-
+1. Proteggendo le risorse e la sicurezza americane, l’amministrazione Trump espanderà il suo “Programma Clean Network” avviando la sanzione a TikTok e poi a Huawei, Ali, Tencent e Baidu.
+2. il ministro della Pubblica Sicurezza del PCC, Zhao Kezhi, ha dichiarato: “Si raccomanda che il reato di aggressione alla polizia sia fatto separatamente nell’emendamento al diritto penale”. Questo spingerà il PCC a sopprimere la resistenza del suo popolo.
+3. Il presidente Trump ha detto che il centro finanziario globale di Hong Kong “andrà all’inferno” sotto il rafforzamento del governo cinese. La realtà è che la democrazia e la libertà a Hong Kong vengono soppresse dal PCC.
+4. Mark Simon ： C’erano ragazze di 16 anni alla City University di Hong Kong, che mi chiamavano per aiutarle. Pensavano davvero che la polizia sarebbe venuta ad ucciderle. Ma sai che non c’è fiducia e tutta Hong Kong stava aspettando che accadesse qualcosa di orribile, perché con i comunisti, qualcosa accadrà sempre.
+5. Miles Guo: Se guardi indietro agli ultimi tre anni, ogni volta che il PCC lavora duramente per hackerare account su Twitter, YouTube, Lu De Media, Voice of Guo (VOG, Sara) e il live streaming di altri colleghi, ogni volta che accade , significa che per il PCC è successo qualcosa di grosso. Hanno paura che ne parliamo.
 
 
 0

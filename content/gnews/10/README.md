@@ -1,24 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 復旦國際政治系教授沈逸:民主黨若釘不死班農小心更猛烈反撲
-`2020-08-22 02:37 Diago` [轉載自GNews](https://gnews.org/zh-hant/311193/)
+## 美國司法部文件節錄片段翻譯
+`2020-08-22 07:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311611/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22023432/%E5%B0%81%E9%9D%A2-74.jpg)
-作者：Diago
+- **[美國司法部文件英文全文鏈接](https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf)**
+- **[路德社解說鏈接](https://youtu.be/-LKxFQU3qNE)**
+- **[美國司法部文件節錄片段翻譯PDF鏈接](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070348/%E7%BE%8E%E5%9C%8B%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B6%E7%AF%80%E9%8C%84%E7%89%87%E6%AE%B5%E7%BF%BB%E8%AD%AF.pdf)**
 
-在2020年5月29日丹佛黑命貴騷亂中，深度體現中共黑手的就是那個中文條幅“咱們工人有力量”，而全球中文媒體首發[“咱們工人有力量”是真的！](https://user.guancha.cn/main/content?id=319625&amp;page=0)文章的就是觀察者網，作為中共喉舌的觀察者網2020-08-22 10:11:19發佈了[沈逸：民主黨這次若釘不死班農，小心更猛烈地反撲](https://www.guancha.cn/ShenYi/2020_08_22_562436.shtml)，針對該文章我找到了文章所附原始視頻的沈逸的新浪微博，據據[**沈逸**](https://weibo.com/shyfd?refer_flag=1005055013_)[8月21日 22:47](https://weibo.com/1157864602/JgZoI0FHo?from=page_1005051157864602_profile&amp;wvr=6&amp;mod=weibotime) 來自 [深度報導 · 視頻社區](https://weibo.com/)
 
-【被保釋絕口不提特朗普，品品“國師”和“懂王”的“塑膠兄弟情”】班農進去了，班農又出來了。然而當輿論的聚光燈投向一度將班農奉為軍師的特朗普總統時，他先是否認三連，接著切割關係，最後不忘在背後“踹一腳”，這種“塑膠兄弟情”背後是兩人怎樣一種微妙關係，聲稱遭到政治迫害的班農出來後又會怎樣還擊呢？[#逸語道破#](https://s.weibo.com/weibo?q=%23%E9%80%B8%E8%AF%AD%E9%81%93%E7%A0%B4%23&amp;from=default)[#特朗普前顧問班農被逮捕#](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E5%89%8D%E9%A1%BE%E9%97%AE%E7%8F%AD%E5%86%9C%E8%A2%AB%E9%80%AE%E6%8D%95%23&amp;from=default)[L沈逸的微博視頻](http://t.cn/A6Ud6YaA)[收起全文d](void%280%29;)
+**以下是美國司法部文件節錄片段翻譯的文檔截圖**
 
-非常有趣的是，沈逸點到了班農先生走出法院門口時出現的新中國聯邦國旗，也點到了逮捕班農先生時所在的LADY MAY，這說明我們看到的沈逸都看到了，我們知道的沈逸都知道了，但是沈逸引而不發，何故？不為蒼生說人話只為君王唱讚歌爾！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070131/Screen-Shot-2020-08-22-at-9.01.21-pm.png)
 
-郭文貴先生在“**郭先生****7****月****5****日****GTV****直播**”中提到：【我認為啊，我個人認為，我第一次說出來，我認為2020年的選美國總統，我說過這是美國和中南海的選舉，根本不是共和黨和民主黨的選舉。可能啊，我一直認為，我認為美國選總統會非常荒謬的結果結束。有史以來第一次，會非常滑稽，就像中美貿易一樣，這個總統選舉你會跌掉眼鏡，為什麼？因為共產黨在美國滲透太嚴重了。】
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070631/Screen-Shot-2020-08-22-at-9.06.24-pm.png)
 
-也就是說2020年的美國總統大選不是共和黨和民主黨在選舉，而是美國和中南海的選舉，在這場選舉中對班農先生發生逮捕令的紐約區檢查官、觀察者網及沈逸教授、民主黨及其推舉的總統候選人都屬於中南海陣營，根據沈逸的分析，為了打擊作為美國代表的川普總統，所以在逮捕班農的同時，很快就出現川普總統小兒子在班農“我們一起建牆”的專案當中的視頻，也就是說中南海陣營希望通過逮捕班農把火燒到川普總統身上，在視頻的最後，沈逸提到“除非民主黨方面手上有那種非常致命的證據，依據法條定罪，除非有這種東西可以把班農徹底釘死，如果釘不死的話，只是拿出那些若有若無的東西，班農的反擊可能非常的激烈。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070829/Screen-Shot-2020-08-22-at-9.08.16-pm.png)
 
-作為中南海陣營方面能不能拿出一下子把班農先生釘死的證據？我相信拿不出來，民主黨也拿不出來，美國的2020年總統選舉到底會出現什麼樣的荒謬的結果？我們不敢想，因為我們沒有選票，我們不是美國公民，但是我們肯定不屬於中南海陣營，我們能做什麼？我們要找出各種中共試圖影響和操控美國總統選舉的事實和證據，讓美國知道、讓世界知道，美國的選舉不能再這樣繼續下去了！這個世界不應該再這樣繼續下去了！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071051/Screen-Shot-2020-08-22-at-9.10.44-pm.png)
 
-（文章內容僅代表作者個人觀點）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071348/Screen-Shot-2020-08-22-at-9.13.41-pm.png)
 
-0
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072102/Screen-Shot-2020-08-22-at-9.20.55-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072123/Screen-Shot-2020-08-22-at-9.21.16-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071217/Screen-Shot-2020-08-22-at-9.12.10-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071408/Screen-Shot-2020-08-22-at-9.14.02-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071423/Screen-Shot-2020-08-22-at-9.14.13-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071435/Screen-Shot-2020-08-22-at-9.14.29-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071447/Screen-Shot-2020-08-22-at-9.14.39-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071458/Screen-Shot-2020-08-22-at-9.14.51-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071514/Screen-Shot-2020-08-22-at-9.15.06-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071533/Screen-Shot-2020-08-22-at-9.15.17-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071542/Screen-Shot-2020-08-22-at-9.15.34-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071613/Screen-Shot-2020-08-22-at-9.16.07-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071625/Screen-Shot-2020-08-22-at-9.16.20-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071640/Screen-Shot-2020-08-22-at-9.16.34-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071650/Screen-Shot-2020-08-22-at-9.16.44-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071704/Screen-Shot-2020-08-22-at-9.16.57-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071716/Screen-Shot-2020-08-22-at-9.17.09-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071731/Screen-Shot-2020-08-22-at-9.17.23-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071741/Screen-Shot-2020-08-22-at-9.17.33-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071752/Screen-Shot-2020-08-22-at-9.17.45-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071804/Screen-Shot-2020-08-22-at-9.17.58-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071816/Screen-Shot-2020-08-22-at-9.18.09-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071828/Screen-Shot-2020-08-22-at-9.18.20-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071840/Screen-Shot-2020-08-22-at-9.18.33-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071851/Screen-Shot-2020-08-22-at-9.18.45-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071904/Screen-Shot-2020-08-22-at-9.18.57-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071919/Screen-Shot-2020-08-22-at-9.19.14-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071934/Screen-Shot-2020-08-22-at-9.19.26-pm.png)
+
+翻譯：【秘密翻譯組】
+
+1
