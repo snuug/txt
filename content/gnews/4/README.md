@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月22日財經快訊: 以法滅共即將拉開序幕
-`2020-08-22 09:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311824/)
+## 【中意文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-22 11:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/312024/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22092203/Picture-1-84.png)圖片來源： [https://commons.wikimedia.org](https://commons.wikimedia.org/wiki/File:Lawandorder01.jpg) 
-[1. Wechat用戶或於下週一起訴川普政府的相關禁令涉及違憲，此舉無疑是“迫使“司法部將相關證據公之於眾。](https://finance.yahoo.com/news/wechat-users-group-sues-block-010621313.html)
+意大利語標題 Aggiornamenti sulla pandemia del virus PCC, Ep. 204: Il settore manifatturiero cinese è in calo.
 
-[2.週五美國銀行分析指出，美國公司債券發行數今年或達到驚人的2.5萬億美元。這對經濟復甦是個利好同時也隱藏著美國公司或在今年餘下的時間開展裁員等節流措施](https://www.corona-stocks.com/its-just-absolutely-incredible-whats-going-on-in-the-corporate-bond-market-is-stunning/?amp)
+視頻重點
 
-[3. 《窮爸爸·富爸爸》一書作者羅伯特·清琦（Robert Kiyosaki）近日表示銀行危機或即將到來，建議購買黃金或數字貨幣。同他也指出，美國有面臨馬克思主義侵蝕危險。](https://www.kitco.com/news/2020-08-21/Robert-Kiyosaki-says-don-t-make-this-financial-mistake-and-get-manipulated.html)
+1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
+2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
+3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
+4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
+5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
 
-[4.零對沖觀點：大數據高科技無法實現社會主義。市場過程完全不同意計算設備，開展業務不僅需要確定性的程序，還需要對“未知”的認識，大數據確實涵蓋了許多情報，可惜這些情報不是知識，做不到從0到1。因此有理由相信大數據等高科技並不會比蘇聯時期的原始大型計算機做得更好。](https://www.zerohedge.com/economics/why-smarter-computers-wont-make-socialism-more-workable)
 
-新聞整理：Mr. 
- 【密翻組·金融法律組】
+1. Il settore manifatturiero cinese è in calo. Il 14 agosto, Foxconn, il più grande produttore di Apple, ha annunciato che trasferirà gradualmente la sua linea di produzione nel sud-est asiatico, il che significa che “i giorni della Cina come fabbrica mondiale sono finiti”. I media ufficiali del PCC hanno cercato di distogliere l’attenzione da questo riferendolo a malapena e vantandosi dell’internazionalizzazione del RMB.
+2. Il 7 agosto, il Dipartimento di Stato americano e il Dipartimento del Tesoro hanno annunciato sanzioni contro 11 funzionari di Hong Kong e del PCC. Il 15 agosto, i media ufficiali del PCC hanno continuato a fare il lavaggio del cervello al popolo cinese, a screditare gli Stati Uniti e a vantarsi che lo sviluppo di Hong Kong deve fare affidamento sul PCC. Il PCC è diventato anche più violento e più feroce per reprimere le proteste pacifiche del popolo di Hong Kong.
+3. Natalie Winters: Brendan Daly, che ha servito come direttore delle comunicazioni e portavoce di Nancy Pelosi per quasi un decennio, ha continuato a servire come vicepresidente esecutivo presso una società di lobbying e PR nota come Ogilvy. E lì ha effettivamente guidato il contratto dell’azienda con China Central Television. Secondo il Foreign Agents Registration Act, le informazioni di questa società indicavano che è “supervisionata, posseduta, diretta, controllata, finanziata e sovvenzionata” dal Partito Comunista Cinese.
+4. Miles Guo: Alcuni paesi hanno espresso il loro sostegno a riorganizzare le Nazioni Unite dopo le elezioni presidenziali statunitensi, cosa che espellerà il PCC, l’attuale governo della RPC, dallo status di legittimo rappresentante degli 1,4 miliardi di cinesi nella comunità internazionale. Inoltre, in passato nessuno ha mai osato dire “Abbatti il PCC” o “Elimina il PCC”, ma ora il mondo intero sta dicendo che il PCC deve essere ritenuto pienamente responsabile della pandemia ed essere assicurato alla giustizia.
+5. Nello Xinjiang, per nascondere la verità sull’epidemia, le persone che escono di casa senza un permesso vengono avvertite vocalmente, maltrattate fisicamente o addirittura messe dietro le sbarre. La propaganda locale ha anche minacciato i residenti che “ti spezzeremo le gambe se ti troviamo all’aperto, ti spaccheremo i denti se avrai il coraggio di disobbedire”. Sotto il governo del PCC, l’applicazione della legge è una vergogna in sé e una mancanza di rispetto per la dignità umana fondamentale.
+
+
+
 
 0
