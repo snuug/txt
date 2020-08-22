@@ -1,27 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
-`2020-08-22 09:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/311841/)
+## 中共養老金制度實質是龐氏騙局
+`2020-08-22 11:20 GM01` [轉載自GNews](https://gnews.org/zh-hant/312037/)
 
-英語標題 CCP Virus Pandemic Updates Ep 204:  “China’s days as the world’s factory are over.”
+國內新聞作者：背靠背
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22105630/7706F2BA-7F01-4CC2-AF8A-0622E076BFD7.jpeg)
+最近一則原中央黨校教授蔡霞被開除中共黨籍，退休工資從人民幣17375減到普通工人退休工資人民幣3712元，養老待遇相差之大，雖然是是冰山一角，但揭開中共養老制度真相。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22105952/E10D2BD7-753A-4C7D-B165-AE596B7144BE.png)
+養老金制度缺陷。
 
+中共養老金制度發展分三個階段：一是傳統型養老保險制度的建立階段（1951-1978年）；二是對養老保險制度實行社會統籌的探索階段（1978-1991年）；三是社會統籌與個人賬戶相結合的養老保險制度的實踐階段（1991年至2014年）。前兩個階段施行一軌制，養老保險制度並未建立起來，沒有資金的繳存。
 
+第三個階段建立社會統籌和個人賬戶養老金制度，一直運行到現在。這個階段有兩個重要改革：
 
-視頻重點
+1、視同繳費年限，即視同繳費年限和實際繳納年限合併計發養老金。國務院《關於深化企業職工養老保險制度改革的通知》的規定，實行個人繳費制度前，職工的連續工齡可視同繳費年限。視同繳費年限可以與實際繳費年限合併計算發放基本養老保險金。
 
-1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
-2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
-3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
-4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
-5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
+2、養老雙軌制。1997年分兩個等級，企業退休人員領的是「基本養老金」，是單位和個人自己按一定標準繳納；而對機關和事業單位的退休人員卻給的高，叫「養老金」，機關事業單位不需要繳納養老保險，由財政撥款。養老金差距小有3-5倍，大可以到50倍。
 
+視同繳納年限是一塊缺口；企業職工繳納養老金，退休後拿的少，機關事業單位人員不繳納養老金，反而拿的多的多，造成另一塊缺口。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110115/BDB6CBAD-9541-4283-A54B-F0C89B6D49A7.png)
+通過上面分析，兩方面養老金缺口由年輕一代人繳納的養老金來填補，中共國2001年加入WTO，經濟增加快，城鎮企業職工繳納養老金基數快速增長，並且財政收入增長快，問題被掩蓋。隨著時間後移，養老金收不抵支就是必然結果，此外還帶出另一個問題，財政沈重負擔。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110208/0C4797CA-0EE0-432D-8710-4CB187378E99.png)
+財政補貼社保基金比例，2010後開始大幅增長，之後較為平穩。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110212/8C62D5EC-662F-4971-B4A4-7CDE0CA12B1C.png)
+中共財政甩掉包袱。
 
-1. The Chinese manufacturing sector is falling down. On August 14, Foxconn, Apple’s largest manufacturer, announced it will gradually shift its production line to Southeast Asia, which means that “China’s days as the world’s factory are over.” CCP’s official media tried to draw attention away from this by barely reporting it and by bragging the internationalization of the RMB .
-2. Hong Kong corrupt CCP police broke into a “yellow shop” (a business supporting the freedom movement) early in the morning. After being exposed, they did not admit their crime. In fact, the Hong Kong police has been increasingly corrupted by the CCP since 1997, on the order of Jiang Zemin and Zeng Qinghong. Since then, its staff has been invaded by cops from the mainland and its leadership has traveled often to mainland to swear their allegiance to the CCP.
-3. Natalie Winters: Brendan Daly, who served as Nancy Pelosi’s communications director and spokesperson for nearly a decade, went on to serve as executive vice president at a lobbying and PR firm known as Ogilvy. And there he actually spearheaded the firm’s contract with China Central Television. According to the Foreign Agents Registration Act, the information of this company indicated that it’s “supervised, owned, directed, controlled, financed and subsidized” by the Chinese Communist Party.
-4. Miles Guo:  Some countries have expressed their support to re-organize the U.N. after the U.S. presidential election. This will kick the CCP, the current PRC government, out of the status as the legitimate representative of the 1.4 billion Chinese people in the international community. In addition, in the past no one ever dared to say “Take down the CCP” or “Eliminate the CCP,” but now the whole world are saying that the CCP must be held fully accountable for the pandemic and be brought to justice.
-5. In Xinjiang, to hide the truth of the outbreak, people leaving their home without a permit would be vocally warned, physically abused, or even put behind bars. The local propaganda has also threatened the residents that “we will break your legs if you get caught outdoor, we will smash your teeth out if you dare to disobey”. Under CCP’s rule, the law enforcement is a disgrace in itself and a disrespect to basic human dignity.
+2015年1月14日，國務院發佈《國務院關於機關事業單位工作人員養老保險制度改革的決定》，實現老人老辦法，新人新辦法，中人逐步過渡。2014年10月1日前參加工作並沒有繳納養老金，之後退休也在城鎮企業職工繳納的養老金里拿錢，而且拿的還更多。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110301/1A2F5764-FA2A-4942-BBCF-D45CE091DF7C.png)
+中共如何完美的解決社保巨大缺口？甩鍋農民。
 
+擴大養老保險繳存基數，再次想起廣大勤勞的農民。國發〔2014〕8號《國務院關於建立統一的城鄉居民基本養老保險制度的意見》，將廣大的農民群眾納入養老金繳納的隊伍中。
+
+根據《2020年上半年人力資源和社會保障統計數據》，城鎮職工基本養老保險，期末參保人數44152萬人，基金收入20472.4億元，基金支出23841.2億元；城鄉居民基本養老保險，期末參保人數53449萬人，基金收入2382.7億元，基金支出1602.7億元。
+
+人口老齡化同樣是造成社保缺口的重要因素。
+
+按照國際上通常把60歲以上的人口佔總人口比例達到10%,或65歲以上人口佔總人口的比重達到7%，中共國早在2000年已經邁入老齡社會。由於中共內部利益問題，邪惡的計劃生育政策造成，未來30-40年，出生人口、育齡婦女佔比快速下滑，其中20-35歲階段比例下滑更甚，老齡人（60歲以上）口佔比快速上升，老齡化帶來的問題影響未來幾十年。
+
+2019年中國出生人口降至1465萬，60週歲及以上人口25388萬人，佔總人口的18.1%，65歲及以上人口佔比達12.6%，總人口突破14億。2030年之後65歲及以上人口佔總人口的比重或超過20%。
+
+中共國65歲人口預測在2050年超過30%。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110517/C31026FB-0DC6-45A3-BA53-376062FE1036.png)
+最後，中共社保制度如同經濟一樣，一場龐氏騙局。
 
 0

@@ -1,26 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 史蒂夫·班農：欺詐指控是一項預謀的政治打擊
-`2020-08-22 04:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311318/)
+## 美國司法部文件節錄片段翻譯
+`2020-08-22 07:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311611/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22043715/1-109.png)班農先生走出紐約曼哈頓聯邦法院
-2018年12月，科爾法奇等人通過GoFundMe發起了一項名為“我們築牆”的在線眾籌活動用於在邊境修建牆，該活動籌集了超過2500萬美元。
+- **[美國司法部文件英文全文鏈接](https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf)**
+- **[路德社解說鏈接](https://youtu.be/-LKxFQU3qNE)**
+- **[美國司法部文件節錄片段翻譯PDF鏈接](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070348/%E7%BE%8E%E5%9C%8B%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B6%E7%AF%80%E9%8C%84%E7%89%87%E6%AE%B5%E7%BF%BB%E8%AD%AF.pdf)**
 
-司法部（DOJ）指控班農先生，布賴恩.科爾法奇和另外兩人從“我們築牆”運動中竊取了數百萬美元。紐約南區代理律師奧黛麗·史特勞斯（Audrey Strauss）在司法部一份聲明中說：“被告欺騙了成千上萬的捐助者，編造虛假藉口說所有這些錢都將用於建築，籌集數百萬美元。” 司法部稱，該計劃向科爾法奇提供了數百萬美元，供他“奢侈生活方式”。其他調查人員說，他們涉嫌欺詐是由於他們歪曲了資金的使用。
 
-這四人被指控以一項串謀實施電匯欺詐罪和一項串謀實施洗錢罪。若這些指控屬實最高可判處20年徒刑。白宮前首席戰略家兼前布賴特巴特主編史蒂芬·班農週五表示：他的被捕是一項“政治襲擊”，對於他為邊界牆籌款的個人計劃的欺詐指控，他不予承認。
+**以下是美國司法部文件節錄片段翻譯的文檔截圖**
 
-“我不會退縮，這是一次政治襲擊，” 班農先生在他被捕第二天的“戰斗室”直播時表示，“我將一直留在戰斗室，我將繼續戰鬥。”班農在拒絕認罪後於週四被保釋。班農坦言：逮捕他是為了恐嚇那些擁護川普總統建立美墨邊界牆的支持者。 “每個人都知道我喜歡鬥爭，多年來我一直被稱為’蜜獾’。 您知道，蜜獾是不會放棄的，我做好了長期鬥爭的打算，我將繼續戰鬥，”班農在播客中說。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070131/Screen-Shot-2020-08-22-at-9.01.21-pm.png)
 
-班農曾是特朗普總統競選活動的負責人，並在白宮擔任首席戰略家，最終於2017年離開白宮。這位66歲的老人繼續補充說：“這次政治襲擊目的不僅僅試圖制止和恐嚇人們建立隔離牆，更牽涉主權的含義。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070631/Screen-Shot-2020-08-22-at-9.06.24-pm.png)
 
-白宮新聞秘書凱里·麥肯尼（Kayleigh McEnaney）週四在一份聲明中說，總統“一直認為，隔離牆應該是由政府出資的項目。” 他還說：“川普政府已經修建了300多英里的邊界牆，到年底將完成近500英里的路程。 我們的南部邊界比以往任何時候都更加安全。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070829/Screen-Shot-2020-08-22-at-9.08.16-pm.png)
 
-點評：班農先生是第六位被起訴的川普幕僚，儘管已獲得保釋並回到戰斗室節目中來，但正如他所說：“欺詐指控是一次政治構陷，是為了嚇退支持川普的人們，滅共會觸犯很多團體的利益，但我絕不退縮！我會繼續戰鬥！感謝新中國聯邦和中國人民的支持！”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071051/Screen-Shot-2020-08-22-at-9.10.44-pm.png)
 
-[原文鏈接](https://www.ntd.com/steve-bannon-fraud-charges-are-a-political-hit-job_498335.html)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071348/Screen-Shot-2020-08-22-at-9.13.41-pm.png)
 
-翻譯報導：布衣騎士
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072102/Screen-Shot-2020-08-22-at-9.20.55-pm.png)
 
-0
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072123/Screen-Shot-2020-08-22-at-9.21.16-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071217/Screen-Shot-2020-08-22-at-9.12.10-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071408/Screen-Shot-2020-08-22-at-9.14.02-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071423/Screen-Shot-2020-08-22-at-9.14.13-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071435/Screen-Shot-2020-08-22-at-9.14.29-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071447/Screen-Shot-2020-08-22-at-9.14.39-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071458/Screen-Shot-2020-08-22-at-9.14.51-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071514/Screen-Shot-2020-08-22-at-9.15.06-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071533/Screen-Shot-2020-08-22-at-9.15.17-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071542/Screen-Shot-2020-08-22-at-9.15.34-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071613/Screen-Shot-2020-08-22-at-9.16.07-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071625/Screen-Shot-2020-08-22-at-9.16.20-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071640/Screen-Shot-2020-08-22-at-9.16.34-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071650/Screen-Shot-2020-08-22-at-9.16.44-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071704/Screen-Shot-2020-08-22-at-9.16.57-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071716/Screen-Shot-2020-08-22-at-9.17.09-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071731/Screen-Shot-2020-08-22-at-9.17.23-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071741/Screen-Shot-2020-08-22-at-9.17.33-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071752/Screen-Shot-2020-08-22-at-9.17.45-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071804/Screen-Shot-2020-08-22-at-9.17.58-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071816/Screen-Shot-2020-08-22-at-9.18.09-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071828/Screen-Shot-2020-08-22-at-9.18.20-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071840/Screen-Shot-2020-08-22-at-9.18.33-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071851/Screen-Shot-2020-08-22-at-9.18.45-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071904/Screen-Shot-2020-08-22-at-9.18.57-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071919/Screen-Shot-2020-08-22-at-9.19.14-pm.png)
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071934/Screen-Shot-2020-08-22-at-9.19.26-pm.png)
+
+翻譯：【秘密翻譯組】
+
+1

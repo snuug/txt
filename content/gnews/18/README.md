@@ -1,60 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共未雨綢繆 「紅黃綠」分類建檔進入小區
-`2020-08-22 08:28 WENZI` [轉載自GNews](https://gnews.org/zh-hant/311692/)
+## 【中英文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-22 09:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/311841/)
 
-By 文紫
- 2020-08-22
-
+英語標題 CCP Virus Pandemic Updates Ep 204:  “China’s days as the world’s factory are over.”
 
 
 
+視頻重點
 
-近日，中共昭陽區委組織部牽頭，民欣花園小區物業公司向小區內長期居住及租戶人員下發了「紅黃綠」分類建檔、規範服務、溫暖到家的通知。中共針對居民開始提供定制化暖心服務，真的有這麼貼心嗎？
-
-
-
-
-
-![“”](//s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22074307/IMG_6598.jpg”)
-
+1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
+2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
+3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
+4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
+5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
 
 
-
-
-我看未必。經濟向好時，未見任何真心實意的造福舉動。在這人均收入降至千元以下的時候，中共會勒緊褲腰帶全心全意為人民服務嗎？黃鼠狼給雞拜年，不像好心。
-
-
-
-
-
-我們來看看，中共是怎麼給居民貼標籤的。紅色人群：病患（殘障）獨居老人、留守兒童、重病或重型精神病患者、生活不能自理人員、有極端（暴力）行為人員、刑滿釋放人員等家庭情況特殊、實際困難特別突出、特別需要關注或關愛幫助的居民群體。黃色人群：離異家庭、居住情況異常家庭、家人抑鬱、失獨、鄰里糾紛突出、外租經營戶等具有一定困難、需要實時提供幫助服務的居民群體。綠色人群：除去「紅黃」群體，收入穩定且沒有特殊情況需要特別關注的家庭。由此可見，紅色人群分明是明顯缺少社會關愛，長期感受社會歧視，精神壓抑，極度厭世，仇恨社會的不穩定因素，屬於反抗意願強烈，反抗代價較小，反抗能力突出的因素。黃色人群長期心情壓抑不暢，亟待疏解，屬於情緒不穩定，極易被事件煽動，易被情感或利益利用的人群，反抗意願中等，反抗代價中等，反抗能力中等人群。綠色人群應屬於生活富足，家庭健全，情緒穩定，負面思想偏少，家庭牽絆較多，反抗意願不足，反抗代價較大，反抗能力較弱的人群。
-
-
-
-
-
-那麼，中共這麼貼標籤的原因何在呢。近半年來，天災人禍接踵而至，不曾停歇。疫情、洪水、失業，家毀人亡，天怒人怨。人們心中的憤怒與怨恨隨時都會噴湧而出，只是缺少那合適的時機。內憂外患，面對時局的動蕩和背離的民心，難道中共不清楚，穩定才是他嚴防死守的最後防線嗎。另一方面，小區是城市規劃的最小單元，它的特點主要是人口集中，物業設施集中，管理集中，是人員關係緊密程度僅次於企事業的利益共同體。社區人口集中如果和群體性突發事件聯繫在一起，恐怕不容小覷。情勢一旦失控，僅憑傳統的城市警力和物管能力是無法應對的。事件的蔓延速度，事件的發酵規模將很快超出中共的控制範圍。這也是為什麼，在這個關鍵時刻，中共要大力推進所謂社區治理的政治引領和能力提升，整合基層黨建資源 ，充實社區黨組織力量，實現黨組織小區全覆蓋的目的。由此可見，防證券顛覆於未然才是中共深入社區，提前佈局的主要原因。
-
-
-
-
-
-那麼，中共貼了標籤後會怎麼做呢。中共最擅長的，就是製造是非，轉嫁矛盾，挑撥離間，漁翁得利等偷雞摸狗的見不得人的事情。以防意外，在蒐集社區群體用戶信息後，中共首先要做的就是清晰的判別各方利益的立場、訴求的區別，努力分化群體，防止三類人群的結合，削弱民眾粘合後的反抗能力。當遇到群體性事件時，中共一定會集中力量辦大事，曉之以情，動之以理，或許諾利益，或恐嚇威逼，與物業、業主委員會、民警等聯手，努力將苗頭扼殺在搖籃里。但事件若未平息，繼續擴大，中共或許會將停電停水停氣停通信等手段擴展至整個樓宇或整個小區，將事件後果擴大化，轉移至不相關人群。由於不同人群的利益不一致，又往往會站在自己的立場考慮問題，形成短視和內部矛盾。此時的中共會審時度勢，趁虛而入，從而削弱當事人訴求的意願，最終息事寧人。不過，中共這樣做，就真的可以防患於未然了嗎？我看未必。只要我們眼光放遠，遠離蠅頭小利，堅守心理戰線。不離不棄的站在一起，行動團結，思想統一，就沒有誰可以戰勝我們。
-
-
-
-
-
-越不心安才越上心，越是情勢複雜才越要提前佈局。面對未來多變的情勢，中共算是下足了功夫。不過，再怎麼未雨綢繆也枉然，邪不壓正才是真道理。
-
-
-
-
-
-注：本文僅代表作者個人觀點
-
+1. The Chinese manufacturing sector is falling down. On August 14, Foxconn, Apple’s largest manufacturer, announced it will gradually shift its production line to Southeast Asia, which means that “China’s days as the world’s factory are over.” CCP’s official media tried to draw attention away from this by barely reporting it and by bragging the internationalization of the RMB .
+2. Hong Kong corrupt CCP police broke into a “yellow shop” (a business supporting the freedom movement) early in the morning. After being exposed, they did not admit their crime. In fact, the Hong Kong police has been increasingly corrupted by the CCP since 1997, on the order of Jiang Zemin and Zeng Qinghong. Since then, its staff has been invaded by cops from the mainland and its leadership has traveled often to mainland to swear their allegiance to the CCP.
+3. Natalie Winters: Brendan Daly, who served as Nancy Pelosi’s communications director and spokesperson for nearly a decade, went on to serve as executive vice president at a lobbying and PR firm known as Ogilvy. And there he actually spearheaded the firm’s contract with China Central Television. According to the Foreign Agents Registration Act, the information of this company indicated that it’s “supervised, owned, directed, controlled, financed and subsidized” by the Chinese Communist Party.
+4. Miles Guo:  Some countries have expressed their support to re-organize the U.N. after the U.S. presidential election. This will kick the CCP, the current PRC government, out of the status as the legitimate representative of the 1.4 billion Chinese people in the international community. In addition, in the past no one ever dared to say “Take down the CCP” or “Eliminate the CCP,” but now the whole world are saying that the CCP must be held fully accountable for the pandemic and be brought to justice.
+5. In Xinjiang, to hide the truth of the outbreak, people leaving their home without a permit would be vocally warned, physically abused, or even put behind bars. The local propaganda has also threatened the residents that “we will break your legs if you get caught outdoor, we will smash your teeth out if you dare to disobey”. Under CCP’s rule, the law enforcement is a disgrace in itself and a disrespect to basic human dignity.
 
 
 0

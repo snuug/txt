@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月22日財經快訊: 以法滅共即將拉開序幕
-`2020-08-22 09:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311824/)
+## 巴布亞新幾內亞拒絕48名接種新冠疫苗中國工人入境
+`2020-08-22 10:15 GM01` [轉載自GNews](https://gnews.org/zh-hant/311931/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22092203/Picture-1-84.png)圖片來源： [https://commons.wikimedia.org](https://commons.wikimedia.org/wiki/File:Lawandorder01.jpg) 
-[1. Wechat用戶或於下週一起訴川普政府的相關禁令涉及違憲，此舉無疑是“迫使“司法部將相關證據公之於眾。](https://finance.yahoo.com/news/wechat-users-group-sues-block-010621313.html)
+國內新聞組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22100505/38D1891C-A1EA-41CA-84F2-388907B92242.jpeg)
+據《澳大利亞人報》21日報道，巴布亞新幾內亞當局拒絕了一架載有中共冶金科工集團子公司瑞木鎳鈷管理有限公司員工的航班進入該國，原因為巴新當局擔心上述員工在離開中國之前接受了「未經批准的」新冠疫苗接種。
 
-[2.週五美國銀行分析指出，美國公司債券發行數今年或達到驚人的2.5萬億美元。這對經濟復甦是個利好同時也隱藏著美國公司或在今年餘下的時間開展裁員等節流措施](https://www.corona-stocks.com/its-just-absolutely-incredible-whats-going-on-in-the-corporate-bond-market-is-stunning/?amp)
+針對此事件中共外交部發言人趙立堅同日在記者會上強調，中共疫苗研發嚴格遵循科學規範的程序，嚴格進行安全性、有效性評價和倫理審查。
 
-[3. 《窮爸爸·富爸爸》一書作者羅伯特·清琦（Robert Kiyosaki）近日表示銀行危機或即將到來，建議購買黃金或數字貨幣。同他也指出，美國有面臨馬克思主義侵蝕危險。](https://www.kitco.com/news/2020-08-21/Robert-Kiyosaki-says-don-t-make-this-financial-mistake-and-get-manipulated.html)
+據可靠消息稱，雖然中國國藥集團的滅活疫苗並未通過臨床三期測試，沒有正式獲得上市許可，但一些國企事業單位已經開始一定規模的使用。特別是一些派駐到海外的企業員工及國際航班人員。
 
-[4.零對沖觀點：大數據高科技無法實現社會主義。市場過程完全不同意計算設備，開展業務不僅需要確定性的程序，還需要對“未知”的認識，大數據確實涵蓋了許多情報，可惜這些情報不是知識，做不到從0到1。因此有理由相信大數據等高科技並不會比蘇聯時期的原始大型計算機做得更好。](https://www.zerohedge.com/economics/why-smarter-computers-wont-make-socialism-more-workable)
+無論根據中共自己的藥品監督管理條例還是國際通行准則，這種未經正式上市批准的疫苗都是不可以商業使用的。中共為了進行所謂的「疫苗外交」，顯示「抗疫成果」根本不顧法律原則及公眾健康，外交部還振振有詞說自己符合程序。
 
-新聞整理：Mr. 
- 【密翻組·金融法律組】
+CCP自己的疫苗在國內連三期臨床都沒有開展，給這48名冶金科工員工進行疫苗免疫接種的原因是什麼？難道是拿這些工人做臨床三期試驗？你在國內都沒有申請臨床三期試驗。如果是商業接種，那中國就是違法了。更不可能是臨床二期吧，因為臨床二期都已經揭盲結束試驗了。
+
+巴布亞新幾內亞拒絕這批接種新冠疫苗工人入境是有理由的，一個沒有經過臨床三期，沒有正式批准上市的疫苗，被接種者是否會在體內留有活病毒？即使有這種顧慮也是正常的。CCP竟然還堂而皇之抗議他國的正常措施。CCP的無恥行徑令我們全民族蒙羞！
+
+新聞鏈接
+
+[https://m.thepaper.cn/newsDetail\_forward\_8841342](https://m.thepaper.cn/newsDetail_forward_8841342)
 
 0
