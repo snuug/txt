@@ -1,82 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國司法部文件節錄片段翻譯
-`2020-08-22 07:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311611/)
+## 一夜回到解放前&#8212;-老香港人的獨白
+`2020-08-22 09:48 GM36` [轉載自GNews](https://gnews.org/zh-hant/311862/)
 
-- **[美國司法部文件英文全文鏈接](https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf)**
-- **[路德社解說鏈接](https://youtu.be/-LKxFQU3qNE)**
-- **[美國司法部文件節錄片段翻譯PDF鏈接](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070348/%E7%BE%8E%E5%9C%8B%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B6%E7%AF%80%E9%8C%84%E7%89%87%E6%AE%B5%E7%BF%BB%E8%AD%AF.pdf)**
+收集人：天使； 整撰：文錦； 審稿：文橙
 
+“國安法，就是一場噩夢。感覺我的人生就像畫了一個圓圈，又回到了原點。我到香港就是要逃脫共產黨，結果幾十年後共產黨又到了香港。”
 
-**以下是美國司法部文件節錄片段翻譯的文檔截圖**
+文革時在中國內地曾遭受政治迫害，一心嚮往來到香港與家人團聚、享受一點自由的孟剛（化名）老先生，在接受美國之音採訪時，描述他作為香港人此刻的心境。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070131/Screen-Shot-2020-08-22-at-9.01.21-pm.png)
+十年“浩劫“後選擇逃到香港。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22094822/822_4-1.jpg)
+“我年輕時想要擺脫中共那種惡劣的政治環境。現在可好，國安法將香港變成了一個跟中國內地任何城市一樣的地方，’一國兩制’完了，我們僅有的一點自由沒有了。現在說話都要小心，出去參加遊行、抗議之類的活動都有顧慮。有一種恐懼的陰影壓在頭上。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070631/Screen-Shot-2020-08-22-at-9.06.24-pm.png)
+孟老先生1940年代出生在中國南方，父母雙雙在中共建國不久去了香港。他跟著祖母生活，中專畢業後被分配到一家國營工廠做技術員。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22070829/Screen-Shot-2020-08-22-at-9.08.16-pm.png)
+1966年“文化大革命“爆發，他被捲入這場每個人都要站隊表態的空前政治運動，加入了造反派。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071051/Screen-Shot-2020-08-22-at-9.10.44-pm.png)
+1969年底， 20多歲的他因所在職工宿舍牆上的毛澤東畫像掉地上破裂被抓，加上他父母在香港這層“海外關係”，他被要求交代父母是否是“國民黨特務”。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071348/Screen-Shot-2020-08-22-at-9.13.41-pm.png)
+“把我關在廠裡的學習班，關了81天。每天被一群造反派輪番批鬥，掛著’沒有教育好的子女’的批鬥牌子，’坐飛機’，雙臂從後被高高壓起，還踢我後腿叫我下跪。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072102/Screen-Shot-2020-08-22-at-9.20.55-pm.png)
+孟先生說，被關押期間，每天24小時由至少4名退伍軍人、多時5、6個人，分3班看管，上廁所、去飯堂都要跟著。每天晚上8、9點鐘困到眼睛都睜不開了卻不讓睡，逼迫他念《毛澤東選集》，寫學習心得，交代問題，經常一宿一宿不讓睡，人都快瘋掉了。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072123/Screen-Shot-2020-08-22-at-9.21.16-pm.png)
+半年後，他被調到了一家乾重體力活的工廠，在這裡一干就是5年多。 1976年初，他又被調到另一家重體力活工廠，情況沒有多少改變。他曾提出到香港跟父母團聚，公安局的干警找到他讓他很害怕。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071217/Screen-Shot-2020-08-22-at-9.12.10-pm.png)
+“他問我你想到香港去，那我問你，是中國社會主義好還是香港資本主義好。我哪敢亂說，就說當然是社會主義好。他說，既然這樣，那你去香港幹嘛，呆在這兒不是蠻好的嘛。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071408/Screen-Shot-2020-08-22-at-9.14.02-pm.png)
+直到1976年文革結束，他提交去香港的申請在78年終於得到批准。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071423/Screen-Shot-2020-08-22-at-9.14.13-pm.png)
+“我當時想的就是要脫離這種壓抑的政治環境嘛，一點點自由都沒有，沒想到香港去發財如何，或者過什麼好日子，沒去想它，就是脫離這個很難叫人理解的環境，一點人身的自由都沒有。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071435/Screen-Shot-2020-08-22-at-9.14.29-pm.png)
+1978年年中，他終於邁過深圳羅湖橋，踏上了在當時被多少中國人想像為“天堂”般的、一百多年來成為多少中國人政治“避難所”的香港這塊自由的土地。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071447/Screen-Shot-2020-08-22-at-9.14.39-pm.png)
+“我剛跨過羅湖橋，我就知道，終於自由了，好開心。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071458/Screen-Shot-2020-08-22-at-9.14.51-pm.png)
+孟先生說，新近來到香港，雖然面臨語言不通、人生地不熟的壓力。但人確實快樂了，完全沒有了在國內時的心理痛苦。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071514/Screen-Shot-2020-08-22-at-9.15.06-pm.png)
+他表示，港英時代是沒有民主，但有自由，民眾很開心，唱歌、跳舞、賭馬呀，哪怕你罵共產黨、罵英國女王都可以，很自由。你只要肯幹，能吃苦，都能賺錢，不愁生活，人人都很開心。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071533/Screen-Shot-2020-08-22-at-9.15.17-pm.png)
+“六四“學運後，香港出現移民潮
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071542/Screen-Shot-2020-08-22-at-9.15.34-pm.png)
+97年香港回歸，中共承諾遵守《中英聯合聲明》，給予香港50年不變的“一國兩制”、“港人治港”和“高度自治”。孟先生表示，當時的港人選擇相信中共理應兌現承諾，基本上支持香港主權移交給中國的“一國兩制”，
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071613/Screen-Shot-2020-08-22-at-9.16.07-pm.png)
+1989年天安門，“六四屠殺”的解放軍開槍鎮壓學生，港人震驚，譴責、聲援、募捐，營救從中國逃亡到香港的六四學生和異見人士。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071625/Screen-Shot-2020-08-22-at-9.16.20-pm.png)
+中共對自己人民的暴行震驚全球，更讓港人看到了中共的殘暴，令港人對香港回歸後的前景感到悲觀和恐懼。於是，香港1990年起出現大規模的移民潮，僅到1994年就有約30萬港人移居海外，大部分屬中高管階層或高學歷專業人士。移民潮持續至少5年以上。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071640/Screen-Shot-2020-08-22-at-9.16.34-pm.png)
+孟先生表示，他曾眼見更多的無法移民的港人排長隊申請和領取英國國民（海外）護照（BNO，British National Overseas），為自己選擇一個“保險”。據英國官方統計數字，至2020年2月，港人持有的有效英國國民（海外）護照共有近350萬本。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071650/Screen-Shot-2020-08-22-at-9.16.44-pm.png)
+孟先生也曾恐懼97香港主權移交中共後的香港前途，但他自己和家人沒有條件移民。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071704/Screen-Shot-2020-08-22-at-9.16.57-pm.png)
+噩夢來臨
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071716/Screen-Shot-2020-08-22-at-9.17.09-pm.png)
+2003年，當時的特首董建華提出就基本法有關國家安全的第23條進行立法，觸發50萬港人上街抗議，逼迫港府被迫撤回。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071731/Screen-Shot-2020-08-22-at-9.17.23-pm.png)
+“至少23條國安立法，裁判權還是在香港的法庭系統，有相對的獨立性，對港人的權利有相對的保障。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071741/Screen-Shot-2020-08-22-at-9.17.33-pm.png)
+2007年，中共人大常委會通過否決2012年雙普選的決議，承諾2017年後香港可以普選行政長官。但是到了2014年，人大常委會卻違背承諾，實行對2017年特首選舉候選人“篩選”制，除2016年立法會議選舉不變外，特首參選人須由親中建制派操控的1200人的提名委員會過半數提名，並把參選人限制在2至3名。這直接觸發了港人長達79天的直接對抗中共的爭取“真普選”的佔領運動。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071752/Screen-Shot-2020-08-22-at-9.17.45-pm.png)
+孟先生表示，他做夢也沒有想到從2019年6月開始的有數百萬港人參加的反逃犯條例的“反送中”抗爭、爭取包括“雙真普選”的“五大訴求”，換來的卻是中共對港人權利的漠視和鐵腕鎮壓，將“國安法”強加給港人，令香港陷入讓人不敢說話的“紅色恐怖”，失去了原有的一點自由。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071804/Screen-Shot-2020-08-22-at-9.17.58-pm.png)
+孟先生感嘆道，雖然自認對共產黨有很深的了解，他仍沒有料到它會公然違背中英聯合聲明和踐踏保障香港“一國兩制”50年不變的基本法承諾，甘心對抗美英等國際社會，讓香港遭受國際制裁，毀掉香港。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071816/Screen-Shot-2020-08-22-at-9.18.09-pm.png)
+“香港年輕人更不了解共產黨了，沒有嚐過共產黨的滋味。它太惡毒了，不停地樹立敵人，把什麼人都看成敵人，扶植一部分人控制多數人。它把國安法這種中國內地的法律用在香港，把香港變成了跟內地城市一樣的地方，就是’一國一制’了。國安法比23條立法（基本法第23條有關國家安全的條款）惡劣太多了，由當局指定法官，還可以把人抓到內地，由中共的法官審判。香港要衰敗，東方之珠爛掉了。我活了70多歲，幾十年後共產黨又到了香港。”
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071828/Screen-Shot-2020-08-22-at-9.18.20-pm.png)
+參考鏈接：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071840/Screen-Shot-2020-08-22-at-9.18.33-pm.png)
+[https://www.voachinese.com/a/CCP-Brings-Terror-To-Hong-Kong-With-National-Security-Law20200821/5552724.html](https://www.voachinese.com/a/CCP-Brings-Terror-To-Hong-Kong-With-National-Security-Law20200821/5552724.html)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071851/Screen-Shot-2020-08-22-at-9.18.45-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071904/Screen-Shot-2020-08-22-at-9.18.57-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071919/Screen-Shot-2020-08-22-at-9.19.14-pm.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22071934/Screen-Shot-2020-08-22-at-9.19.26-pm.png)
-
-翻譯：【秘密翻譯組】
-
-1
+0

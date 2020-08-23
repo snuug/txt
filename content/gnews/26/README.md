@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共再一次屠殺普通老百姓的鐵證！三峽大壩蓄意無預警泄洪！
-`2020-08-22 07:41 GM30` [轉載自GNews](https://gnews.org/zh-hant/311623/)
+## 【中英文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-22 09:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/311841/)
 
-**作者：小妍說**
+英語標題 CCP Virus Pandemic Updates Ep 204:  “China’s days as the world’s factory are over.”
 
-最近一直在看國內的新聞，真的是越看越奇怪，中共國南方的水災明明已經相當嚴重了，已經死了幾萬人了，爲什麽在中共國內的新聞媒體的熱搜上根本看不到這樣的新聞報道呢？8月18日早上，四川樂山水文局預報，青衣江夾江水文站8月18日，洪峰水位414.2米，洪峰流量17000立方米每秒，洪水重現期50年一遇，爲1955年有水文記錄以來的最大洪水。樂山8月18日6時啓動I級防汛應急響應。樂山大佛平台被淹沒，洪水淹至大佛腳底板，水位比前兩天還高了差不多兩米。即四川之後，近日“長江2020年第5號洪水”“嘉陵江2020年第2號洪水”陸續通過重慶主城中心城區，並大幅超過保證水位，重慶臨江大量道路和居民樓都被淹沒，中共媒體報道：該市有26萬余人受災，2萬多店鋪被淹，磁器口、朝天門等標志性地段成爲“重災區”，所謂的“山城”已經被淹成“海島”了。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/21212652/%E5%9B%BE%E7%89%872-83.jpg)
-8月20日當天寸灘水文站水位高達191.62米，超過1981年紀錄21厘米，低于1870、1788和1905年估算水位。這也意味著，2020年長江五號洪水已是重慶115年來最高水位洪水，也是中共國建立以來重慶最高水位洪水。但是與毗鄰降雨不斷的四川省不同，重慶被淹之際烈日當空，那也就說明洪水襲城不是因爲降雨，而中共官方給出的回複說原因有三個，一是重慶上遊地區連續降雨天氣導致洪水峰高量大；二是岷江、沱江、嘉陵江、涪江等在長江、嘉陵江重慶段形成彙集；三是上一輪洪峰剛過，水位還沒有退去。她說的這三個原因無非就是想說，經過重慶的上遊洪水太多了，而且重慶本身水位就高，所以才會被淹。但是實際上進入汛期後，重慶市對長江上遊的水庫、嘉陵江流域的水庫實施梯級聯合調度，來減輕重慶的防洪壓力。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072645/%E5%9B%BE%E7%89%872-89.jpg)
 
-這麽做就是爲了防止進入三峽水庫的長江幹流洪水超過87500立方米每秒，而三峽大壩的最大流量是10.25立方米每秒。如果三峽23個泄洪口全開，很有可能保住重慶不淹。但目前三峽只打開11個泄洪口，僅發揮不到一半的泄洪能力。盡管如此，這也是三峽建庫以來最大的下泄流量，洪峰到達重慶時，每秒進7.6萬平方米，出4.8萬平方米，這種泄洪規模根本無法保全重慶。隨後中共國水力發電工程學會副秘書長張博庭說：重慶淹水同三峽水庫沒有關系。想解決重慶市的洪水問題，必須依靠重慶上遊的水庫實現攔洪削峰，但是這種解釋與當初承諾的三峽大壩防洪能力是完全有衝突的，並且中共國水利部還要求長江上遊水庫群進行攔蓄調度。重慶處在上遊，必須執行國家攔截洪水的任務。因爲如果不攔截，處在重慶以東、長江中下遊的地區將被衝垮。以武漢爲例。武漢市的防汛能力大概能承受6.1萬立方米每秒的流量。超過7萬立方米每秒的洪水襲來，武漢會是怎樣的局面？剛剛經曆了史上最嚴厲封城的武漢，接下來很有可能接受洪水的洗禮。
+視頻重點
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22072704/%E5%9B%BE%E7%89%873-22.jpg)
+1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
+2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
+3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
+4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
+5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
 
-而無論怎樣，傷害最大的還是中共國的老百姓，就像郭先生8月21日直播時說的：過去48小時對于三峽大壩是非常危險的，中共故意泄洪，有意識的想要殺掉上千萬的民衆，中共媒體也掩蓋了事實。在受災的災民中，沒有救援更沒有糧食，而且手機信號被屏蔽，阻止災民向外發出信息，這是巨大災難。三峽大壩，重慶水災，是中共執政多年無知愚昧的積累，帶給老百姓的不僅僅是貧窮、痛苦，更是一場場的災難。反映的不是中共執政的無能，而是中共從誕生以來根本就不在乎民生。
 
-GNEWS之前文章：
-四川樂山五通橋全民上演真實【跑毒】[https://gnews.org/zh-hans/310676/](https://gnews.org/zh-hans/310676/)
-陝西寶雞2歲半幼童遭父抱摔死亡 [https://gnews.org/zh-hans/309671/](https://gnews.org/zh-hans/309671/)
-深圳超市實施【使用現金實名制】[https://gnews.org/zh-hans/302640/](https://gnews.org/zh-hans/302640/)
+1. The Chinese manufacturing sector is falling down. On August 14, Foxconn, Apple’s largest manufacturer, announced it will gradually shift its production line to Southeast Asia, which means that “China’s days as the world’s factory are over.” CCP’s official media tried to draw attention away from this by barely reporting it and by bragging the internationalization of the RMB .
+2. Hong Kong corrupt CCP police broke into a “yellow shop” (a business supporting the freedom movement) early in the morning. After being exposed, they did not admit their crime. In fact, the Hong Kong police has been increasingly corrupted by the CCP since 1997, on the order of Jiang Zemin and Zeng Qinghong. Since then, its staff has been invaded by cops from the mainland and its leadership has traveled often to mainland to swear their allegiance to the CCP.
+3. Natalie Winters: Brendan Daly, who served as Nancy Pelosi’s communications director and spokesperson for nearly a decade, went on to serve as executive vice president at a lobbying and PR firm known as Ogilvy. And there he actually spearheaded the firm’s contract with China Central Television. According to the Foreign Agents Registration Act, the information of this company indicated that it’s “supervised, owned, directed, controlled, financed and subsidized” by the Chinese Communist Party.
+4. Miles Guo:  Some countries have expressed their support to re-organize the U.N. after the U.S. presidential election. This will kick the CCP, the current PRC government, out of the status as the legitimate representative of the 1.4 billion Chinese people in the international community. In addition, in the past no one ever dared to say “Take down the CCP” or “Eliminate the CCP,” but now the whole world are saying that the CCP must be held fully accountable for the pandemic and be brought to justice.
+5. In Xinjiang, to hide the truth of the outbreak, people leaving their home without a permit would be vocally warned, physically abused, or even put behind bars. The local propaganda has also threatened the residents that “we will break your legs if you get caught outdoor, we will smash your teeth out if you dare to disobey”. Under CCP’s rule, the law enforcement is a disgrace in itself and a disrespect to basic human dignity.
 
-（文章內容僅代表作者觀點）
 
 0
