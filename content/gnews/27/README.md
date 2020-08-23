@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/16 CCP病毒每日疫情直播簡報
-`2020-08-23 06:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/313190/)
+## 中共利用疫苗狠狠的收割老百姓！“公共産品” 1000元兩支！宣稱保護率100% ？
+`2020-08-23 08:55 GM30` [轉載自GNews](https://gnews.org/zh-hant/313431/)
 
-英語標題 CCP Virus Pandemic Updates Ep 205:  U.S. push to deny the CCP regime’s legitimacy
+**作者：小妍說**
 
-視頻重點
+國藥集團中共國生物兩款新冠病毒滅活疫苗Ⅰ/Ⅱ期臨床試驗相繼揭盲，結果顯示疫苗組接種者均産生高滴度抗體；新冠滅活疫苗國際臨床（Ⅲ期）試驗正式啓動；全球首個新冠滅活疫苗生産車間通過生物安全檢查……近日，國藥集團黨委書記、董事長劉敬桢接受采訪時表示，國際臨床三期試驗結束後，新冠滅活疫苗就可以進入審批環節，預計今年12月底能夠上市。價格不會很高，預計幾百塊錢一針。如果打兩針的話，價格應在1000塊錢以內。打一針疫苗，保護率大概是97%，抗體産生是緩慢的，像曲線一樣在緩慢增長，一般情況下大概半個月可以達到能抵抗新冠病毒的水平；如果打兩針疫苗，保護率能達到100%。劉敬桢還表示說：中共國有14億人不是人人都有必要打，比如居住在人口密集城市的學生、上班族等是有必要的，而居住在人口稀少的農村地區的人們就可以不用打。
 
-1. 近日大陸多家銀行以反洗錢為名凍結儲蓄卡。更有官媒以中共發展為由，提議強制徵收生育基金。眾所周知中共權貴階層是最大的洗錢組織，中共權貴階層們把香港作為洗錢的中轉站、跳板，然後再將資產轉移國外，幾乎全部權貴家族都這樣運作。肆意無故凍結百姓的儲蓄卡，實屬非法政府行為。
-2. 大陸各地為響應中共節約號召，多舉措反對浪費，甚至洗腦百姓日常生活，讓家長懲罰剩飯子女。似乎回到文革相互監督的時代。
-3. 四川綿陽同樣遭水災，百姓生活遇困難。另有四川綿陽也連降暴雨，積水嚴重，百姓損失不可估量。看不到政府的救援在哪？每年徵收的稅費用在哪裡？
-4. （澳大利亞和美國政府前網絡安全合同商Robert Potter，澳大利亞天空新聞，8月16日）（從這個資料庫）我們開始看到之前在新疆和西藏廣泛部署的監控技術，現在以不同的規模部署到中共國其他地方。 但在我們查看了原資料之後，很明顯，這是一個建築物門禁系統，用政府的面部識別系統來驗證居民進入自己家的權限。
-5. （Miles Guo. 8月13日）在歐洲，沒想到啊，聽說這個美國推廣的，否定中共的政權的合法性，一致得到同意。那麼現在大家都在想，那你美國，共產黨不合法誰合法啊？
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23082724/%E5%9B%BE%E7%89%871-90.jpg)
 
+首先我想說說這個價格，2針1000元左右，請各位不要忘記中共國有將近一半人月收入不足一千元，你告訴我兩針一千元有多少人是打不起的，有太多小粉紅，五毛黨張嘴就是太便宜了，一萬我也打，你打不打是你的自由，但是那些打不起的人怎麽辦？而且就目前中共國的經濟來看，絕大多數老百姓都是打不起的，大家可以算算一家幾口人，老人孩子就算少的加起來也要六七口吧，多的甚至十多口人，那就是一個家庭打疫苗的支出就要1萬元人民幣左右，就今年這個經濟狀況讓老百姓拿出一萬元太難了。之前我在人民網上看到一條新聞說：7月，美國衛生和公共服務部（HHS）表示，已經向全球兩家制藥巨頭訂購1億劑新冠肺炎疫苗，價值達19.5億美元。1億劑，價值19.5億美元，核算下來每劑是19.5美元，折合人民幣大概是135元，就算打兩針也就是270元。這麽對比一下怎麽國內的疫苗那麽貴，難道有什麽過人之處嗎？畢竟我們平時打疫苗不都是國産的比進口的便宜很多嗎？
 
-1. Banks in mainland China froze debit cards under the pretext of anti-money laundering. Moreover, official media advocated for the compulsory collection of maternity funds, citing Communist China’s development as the reason.  It’s well known that the CCP’s powerful class is the largest money laundering organization. They use Hong Kong as a transfer station and springboard for money laundering, and then transfer assets abroad. Almost all powerful families operate in this way.
-2. In response to the CCP’s call to save food, many areas took measures to curb food wasting. They went so far as to brainwash the people, asking parents to punish children for wasting food. This seems backing to the era of the Cultural Revolution when the people surveilled one another.
-3. Mianyang in Sichuan was also flooded, causing hardship to people’s life. Mianyang was also severely flooded because of the heavy rain. The people suffered immeasurable losses. The government’s rescue is nowhere to be seen. So, what is the use of taxes collected each year?
-4. (Robert Potter, former Australian and U.S. government cyber security contractor) We’re now starting to see (from this database) technologies which had previously been deployed extensively in Xinjiang and Tibet, now being deployed elsewhere within China at a different scale, after we went through the metadata, it became clear that this was a building access management system where people, where state government facial recognition systems were being used to authenticate people’s access to their own homes.
-5. (Miles Guo. August 13) Right now, out of one’s expectation,  I heard the U.S.’ push to deny the CCP regime’s legitimacy has gained unanimous agreement in Europe. Then everyone wondered, if the U.S. deems the CCP regime illegitimate, which regime would be legitimate (to represent the Chinese people)?
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23084356/%E5%9B%BE%E7%89%872-101.jpg)
 
+其次就是這個疫苗的效果，保護率能達到100%，我只想問一句話，大家敢打中共國制造的疫苗嗎？如果中共國制造的疫苗都是靠譜的，那爲什麽老百姓要到香港的診所和醫院裏注射疫苗？而且一個制造核算檢測試劑盒准確率只有30%的國家，一個普通疫苗都能弄成毒疫苗的國家，一個推廣騙子藥蓮花清瘟膠囊以及各種騙人中藥的國家，還能研發出有效的中共病毒的疫苗？誰會相信呢？除非是他們早有准備。而且就算是讓老百姓接種疫苗也要告訴老百姓，疫苗針對中共病毒的類型是什麽？對于已發生變異的病毒是否同等有效？疫苗抗體有效期是多久？什麽都不說就直接告訴老百姓保護率能達到100%，如果這樣還是先讓那些盜國賊家族的子女，領導高官們先打吧。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23083126/%E5%9B%BE%E7%89%873-29.jpg)
+最後再來看看在5月18號召開的世衛大會上，中方做出了莊嚴的承諾：如果中共國研發出疫苗，那麽將會作爲世界衛生事業的公共産品。這句話的意思很明了：中方會將自己研發的疫苗技術無償提供給世界各國，以便爲全球70億民衆的健康做出自己的貢獻。從經濟角度來看，中共國這個決定是“甯願犧牲本國萬億利潤也要拯救全人類的擔當和氣魄”。但是結合今天的這個新聞，“公共産品” 1000元兩支？對于中共國老百姓來說真是莫大的諷刺，我不知道是這全球70億民衆不包括中共國14億的人口呢？還是中共國人不是生活在地球上呢？中共解放全人類的前提就是盤剝奴役中共國的老百姓，由此可見中共國人在中共眼裏就不算是人，對外大撒幣，對內割韭菜，中共表面上說的冠冕堂皇，背地裏始終如一的幹著龌龊的事兒。口罩外交已經讓人看到了他們的險惡了，而這次的疫苗外交更是暴露他們的寡德。
+
+GNEWS之前文章：
+人都沒了，何談教育？[https://gnews.org/zh-hans/313013/](https://gnews.org/zh-hans/313013/)
+休斯敦總領事館全體館員集體三等功 [https://gnews.org/zh-hans/301459/](https://gnews.org/zh-hans/301459/)
+中共村幹部帶您簽字按手印強拆 [https://gnews.org/zh-hans/299153/](https://gnews.org/zh-hans/299153/)
+
+（文章內容僅代表作者觀點）
 
 0
