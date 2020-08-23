@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 長江洪水導致重慶逾26萬3千人受災，近2萬3千多間商鋪壹度被淹沒
-`2020-08-23 02:54 GM77` [轉載自GNews](https://gnews.org/zh-hant/312880/)
+## 【世界多語言圖文】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-23 09:28 GM62` [轉載自GNews](https://gnews.org/zh-hant/313451/)
 
-新聞源：香港電臺
-收集人：JAY 七角星
-整理：七角星
-復核：文非
+戰友之家圖文摘要及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23024115/images-4.jpg)
+[English\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091852/English_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091852/English_0815_CCP_Virus_Updates.pdf)
 
-引言：重慶正在遭受史上罕見洪水，導致26萬多人受災，而中共領導層在會上閉口不提，並在會上大談推進長江三角壹體化經濟，中共吹噓的泡沫經濟和洪災下的民不聊生形成鮮明對比。
+[French\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091909/French_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091909/French_0815_CCP_Virus_Updates.pdf)
 
-**本篇談：**
+[German\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091904/German_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091904/German_0815_CCP_Virus_Updates.pdf)
 
-**1.****長江洪水導致重慶逾26萬3千人受災，近2萬3千多間商鋪壹度被淹沒**
+[Japanese\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23092518/Japanese_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23092518/Japanese_0815_CCP_Virus_Updates.pdf)
 
-**2.****習進平主持有關推進長三角壹體化發展的座談會。**
+[Korean\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091858/Korean_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091858/Korean_0815_CCP_Virus_Updates.pdf)
 
-**1.****長江洪水導致重慶逾26萬3千人受災，近2萬3千多間商鋪壹度被淹沒**
+[Spanish\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091913/Spanish_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091913/Spanish_0815_CCP_Virus_Updates.pdf)
 
-香港電臺：兩江近期的洪水是重慶主要河流，今年入汛後的最大洪水，是長江、嘉陵江重慶段歷史上罕見的大洪水，昨日上午，長江、嘉陵江洪水洪峰，已通過重慶主城中心城區，重慶市當局指出，長江及嘉陵江的洪水，導致當地超過26萬3千人受災，2萬3千多間商鋪被淹沒，未有人死亡。
 
-重慶當局說，全市調派2萬8千人應急救援，提前預撥1980萬元人民幣救災資金，並緊急運送9萬4千件救災物資、大量飲用水及即食食品等支援災區。隨著洪水退去，災後重建等工作正加緊推進。
-
-**收集者、整理者觀點：當重慶發生那麽大的洪災情況，微信朋友圈和國內主要的媒體都是以小事化了的態度處理此事，取而代之是用抖音、娛樂明星緋聞、泡沫電視劇來吸引全國百姓的眼球。我相信在國內的朋友，如果不是在重慶當地或者周邊城市的人，基本對這類災難新聞沒什麽感覺，因為國內主要的媒體都沒怎麽報道，而當下人民用的最多就是微信朋友圈，這些新聞也沒怎麽在微信傳播，因為這屬於如果報道得不好，就很容易引起民眾反抗，所以微信也少有報道，如果有些自媒體曝出了更多關於災區的猛料，基本也都會被刪除，以至於重慶26萬3千人受災，居然看不到有任何求救信息以及對於這次災害抱怨的文章，這也讓我們想起黨內媒體壹向的維穩手法，跟之前新冠病毒初期在國內爆發壹樣的手法，壹旦內容報道太深入或報道出不好的東西出來，文章會被第壹時間刪除。**
-
-**這篇新聞居然報道沒有人員傷亡，這明顯太假了，我之前還看過壹個視頻，就是有壹個人被洪水沖走屍體漂浮在水面上，被人用視頻記錄起來，然後這篇文章又說提前預撥1980萬賑災款，1980萬能給予壹個村的賑災都不夠，別說是重慶地區，壹個重慶市當局，只能拿出這點錢，這是中國經濟排名不算差的重慶市，也表現地方政府救災不利，想想之前外國留學生來中國留學壹年還能獲得10萬元補助，中共真的是拿錢出去大撒幣，凈幹些藍金黃的勾當，對於國內人民的苦難都是睜壹只眼閉壹只眼，反正不要給我鬧事就好！**
-
-**2.****習進平主持有關推進長三角壹體化發展的座談會。**
-
-香港電臺：習近平強調，要深刻認識長三角區域在國家經濟社會發展中的地位和作用，結合長三角壹體化發展面臨的新形勢新要求，堅持目標導向、問題導向相統壹，緊扣壹體化和高質量兩個關鍵詞，抓好重點工作，真抓實幹、埋頭苦幹，推動長三角壹體化發展不斷取得成效，習近平指出，長三角壹體化發展不是壹日之功，既要有歷史耐心，又要有只爭朝夕的緊迫感，既謀劃長遠，又幹在當下。
-
-**收集者、整理者觀點：在中美對抗局面下，推動長三角壹體化內循環經濟發展，可能是他想表達的意思，至於洪水受災長三角地帶情況，損失多少傷亡多少則完全無視，按照路德訪談中的意思，壹旦洪水形成的更大傷亡和經濟損失造成民憤民怨，就趁機以人民的名義轉移矛盾直指到需要打擊的江曾那邊，可以看到國家領導人都是在玩政治遊戲，特別不是民選的政府，因為人民手中沒有選票，所以中共國家領導人他們想幹什麽事，基本他們自己說了算。這邊長江重慶正在上演洪災，妳作為國家主席不去親自看望下受災民眾，至少像李總理過去演戲下也好，居然在會上談論這種虛假經濟，要推動長江三角經濟發展情況，可是當前長江三角正在上演由於洪災導致民眾經濟損失，經濟衰退妳都不關心，所以可以看出這種獨裁國家領導人是多麽邪惡和虛偽，只要CCP壹直存在，國內災難就會不斷上演！**
-
-原文鏈接：
-[https://news.rthk.hk/rthk/ch/component/k2/1545269-20200822.htm](https://news.rthk.hk/rthk/ch/component/k2/1545269-20200822.htm)
-[https://news.rthk.hk/rthk/ch/component/k2/1545208-20200821.htm](https://news.rthk.hk/rthk/ch/component/k2/1545208-20200821.htm)
-[https://news.rthk.hk/rthk/ch/component/k2/1545309-20200822.htm](https://news.rthk.hk/rthk/ch/component/k2/1545309-20200822.htm)
 
 0
