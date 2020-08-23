@@ -1,27 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/15 CCP病毒每日疫情直播簡報
-`2020-08-22 09:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/311841/)
+## 郭先生連線秘密翻譯組直播速記
+`2020-08-22 13:48 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/312161/)
 
-英語標題 CCP Virus Pandemic Updates Ep 204:  “China’s days as the world’s factory are over.”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22134242/image1-2.jpeg)
+**（1）司法部文件的意義是美國對中共的司法宣戰**
 
+用什麼樣的詞形容這個意義都不為過。這個司法文件是8月18日簽署的文件，是以國家的名義頒布的文件。抓捕班農先生的文件也是8月18日簽署的，但那個只是法院自己搞的，和司法部、FBI都沒關係，是法院讓郵政局的人來抓捕班農先生的，更誇張的是16日中共就知道要抓捕班農了。說明中共也知道司法部這個文件18日要簽署了。這個是美國內部的不同力量的較量，更是中美之間的新聞間諜超限戰，是美國對中共的真正的司法宣判。太多人包括白宮、司法部、蘇世民、華爾街、媒體啊都會被抓，會是美國有史以來超過水門事件的最大政治醜聞。 8月21日已經發生了兩件重要的事情，還有一件事情也會發生。世界上的新水泊梁山將會形成，把所有反共的美國政客聚集在一起。這次的司法宣判會重新定義未來世界新的司法規則。
 
+**（2）班農被構陷後有何反擊行動？**
 
-視頻重點
+班農會自救，不需要爆料革命幫忙。班農從法院出來後我們戰友和新中國聯邦展現的面貌是對班農最大的支持。希望戰友們繼續用這種方式去支持，身體力行把司法部的文件內容結合班農事件一起傳播到全世界。
 
-1. 中共病毒疫情大流行衝擊製造業，疫情令富士康大陸工廠受到重創。 8月14日，蘋果最大代工廠富士康逐步將生產遷往東南亞，宣告”中國作為世界工廠的日子已經結束”。但中共官媒轉移話題，宣傳人民幣國際化的快速增長。
-2. 8月7日黑警淩晨闖香港深水埗大埔道的黃店餐廳翻文件， 被踢爆後黑警不認錯。從1997年香港主權移交之日起，當時的中共獨裁者江澤民及曾慶紅，便開始向香港警隊“摻沙子”。香港警隊高層都曾到中國大陸接受過中共培訓。為什麼香港黑警越來越黑？就因為他們最高的主子江澤民、曾慶紅是中共黑惡勢力中最黑的流氓頭子。中共對香港警隊進行長年的滲透。
-3. Natalie Winters：布倫丹·達利曾任南茜·佩洛西的傳播總監和發言人近十年，之後在遊說公關公司奧美任執行副總裁。在那裡他實際上牽頭公司與CCTV簽約。基於《外國代理人登記法》的註冊資訊，該公司受中共“監督、擁有、指導、控制、資助及補貼”。
-4. 其他國家最近紛紛表態，美國大選之後要改組聯合國。就會把共產黨，把現在的中華人民共和國的政府，合法代表中國人民14億人民在國際上地位，kick off踢出去。另，共產黨，從沒人敢說：“推翻共產黨，消滅共產黨。”現在全世界說：“共產黨必須為這次病毒承擔一切責任，要把它送上審判法庭。”
-5. 新疆的這一輪疫情爆發後，為掩蓋疫情的真相，當局採取了強制封閉管理。私自外出人員會遭到重罰，呵斥、上門警告，甚至拘留、體罰等，有些地區甚至用高音喇叭警告居民“出門打斷腿，還嘴打掉牙”，在中共的集權統治下，執法手段拙劣剝奪做人尊嚴。
+**（3）習曾大戰的內幕**
 
+中共開啟了內部最血腥的決戰，已經不能停止。未來政黨全部大清洗或者發生內戰，甚至打台灣，總之中國國內一天比一天差，813政變很快會有更多報導，上海信託，上海金融，上海銀行等很多人都會被抓。
 
-1. The Chinese manufacturing sector is falling down. On August 14, Foxconn, Apple’s largest manufacturer, announced it will gradually shift its production line to Southeast Asia, which means that “China’s days as the world’s factory are over.” CCP’s official media tried to draw attention away from this by barely reporting it and by bragging the internationalization of the RMB .
-2. Hong Kong corrupt CCP police broke into a “yellow shop” (a business supporting the freedom movement) early in the morning. After being exposed, they did not admit their crime. In fact, the Hong Kong police has been increasingly corrupted by the CCP since 1997, on the order of Jiang Zemin and Zeng Qinghong. Since then, its staff has been invaded by cops from the mainland and its leadership has traveled often to mainland to swear their allegiance to the CCP.
-3. Natalie Winters: Brendan Daly, who served as Nancy Pelosi’s communications director and spokesperson for nearly a decade, went on to serve as executive vice president at a lobbying and PR firm known as Ogilvy. And there he actually spearheaded the firm’s contract with China Central Television. According to the Foreign Agents Registration Act, the information of this company indicated that it’s “supervised, owned, directed, controlled, financed and subsidized” by the Chinese Communist Party.
-4. Miles Guo:  Some countries have expressed their support to re-organize the U.N. after the U.S. presidential election. This will kick the CCP, the current PRC government, out of the status as the legitimate representative of the 1.4 billion Chinese people in the international community. In addition, in the past no one ever dared to say “Take down the CCP” or “Eliminate the CCP,” but now the whole world are saying that the CCP must be held fully accountable for the pandemic and be brought to justice.
-5. In Xinjiang, to hide the truth of the outbreak, people leaving their home without a permit would be vocally warned, physically abused, or even put behind bars. The local propaganda has also threatened the residents that “we will break your legs if you get caught outdoor, we will smash your teeth out if you dare to disobey”. Under CCP’s rule, the law enforcement is a disgrace in itself and a disrespect to basic human dignity.
+西方的政治鬥爭沒有仇恨，只是走司法程序或羞辱你一下，但中共的鬥爭是充滿血腥和仇恨的，是要死人的，充滿了恐懼。中國人活得真是豬狗不如啊！
 
+**（4）以美滅共和以共滅共的真正決勝的時間大概什麼時候？**
+
+中共滅亡快著說今年年底明年年初，慢的話還需要一兩年。不要太天真，中共不滅，防火牆不可能推倒。
+
+**（5）郭先生對秘密翻譯組的評價**
+
+秘密翻譯組有著偉大和不可磨滅的功勞，但在工作的過程中出現問題是非常正常的，出現不同聲音是必須要存在的，能夠解決不舒服聲音的能力就是民主和創新的能力。民主的路上沒有終結，就是過程。秘密翻譯組應該是未來新中國聯邦的外交部和教育部的雛形和人才庫，將承擔著重要的使命。
+
+**（6）目前要做的最重要事情**
+
+把Gnews，GTV做大做強，像Zach這樣的美國人支持對爆料革命是最非常重要的，在美國需要更多的電腦媒體天才幫助我們把G系列做得更好。我們需要更強大的西方團隊加入我們G系列的發展當中。美國人需要行動，對中共的超限戰進行反擊。
+
+**（7）是否可以建立更方便的和郭先生直接溝通的途徑**
+
+農場的建立本來就是為了給戰友架起和郭先生溝通的橋樑。但很少戰友可以嚴肅認真地做一些踏踏實實的工作或直播，太情緒化，只想“自我”，沒有更多的嚴肅分析節目。中國人的最大缺點就是沒有團隊合作，沒有智慧和勇氣，太懦弱不懂反抗。戰友應該互相溝通，提供智慧和能力，戰友善意的信息打擾有時是對郭先生最大的困擾和讓人生氣的地方，非常不懂得尊重。戰友們千萬不要迷失自己，只想滿足自己的慾望，一定要學會尊重別人，有智慧。
+
+**（8）Gnews和GTV**
+
+Gnews目前50%的關注量下滑，是因為一些國內戰友作者被抓造成的，未來凡是在Gnews和GTV做過貢獻的國內戰友都會得到回報。 Gnews一定要盡快商業化，目前的狀況郭先生非常不滿意，離期望的樣子差得很遠。未來一定要開設打賞功能，誰寫的文章打賞最多，賞上加賞。戰友如何在Gnews和GTV表現自己，就看點擊率。實力是唯一說話的基礎。未來GTV會是所有中共宣傳機器的總和。 GTV很可能是未來最偉大的投資案例。因為它是以改變人類的理想為基礎的。
+
+**（9）郭先生為爆料革命花了多少錢？最起碼被中共拿走直接間接損失1000億美元，歷史上絕無第二人。但這不重要，重要的是還要有錢花，要為了信仰不惜犧牲任何代價的決心滅共到底。**
+
+**（10）新中國聯邦**
+
+共濟會和羅斯柴爾德家族都是聯姻的小範圍的利益，沒法和新中國聯邦比，千萬別小看我們自己，新中國聯邦是要改變世界的，未來G系列是世界最大的金融力量。人類到了大同的時代，中國人只要喚醒百分之一千分之一都是無法想像的強大的力量。
+
+**（11）台海戰爭的可能性**
+
+可能性是巨大的，但其實川普總統只要飛趟台灣就是贏。中共打台灣是垂死掙扎，而且這是一貫做法，所有戰爭都是政治需要，由中共的內部政治鬥爭導致的。台灣沒有太大的國際視野，太膽小。只要開戰，台灣一定生靈塗炭。但到底如何避免，這問題太大，沒人可以回答。台灣人民要自救。
+
+整理：人間四月
 
 0

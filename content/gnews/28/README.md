@@ -1,19 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月22日財經快訊: 以法滅共即將拉開序幕
-`2020-08-22 09:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/311824/)
+## “我是音雄”全球戰友召集令：滅共之路，沒你不行
+`2020-08-22 12:09 GMusic` [轉載自GNews](https://gnews.org/zh-hant/312086/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22092203/Picture-1-84.png)圖片來源： [https://commons.wikimedia.org](https://commons.wikimedia.org/wiki/File:Lawandorder01.jpg) 
-[1. Wechat用戶或於下週一起訴川普政府的相關禁令涉及違憲，此舉無疑是“迫使“司法部將相關證據公之於眾。](https://finance.yahoo.com/news/wechat-users-group-sues-block-010621313.html)
+*我是音雄文字組撰稿* *然小哥編輯Kardia*
 
-[2.週五美國銀行分析指出，美國公司債券發行數今年或達到驚人的2.5萬億美元。這對經濟復甦是個利好同時也隱藏著美國公司或在今年餘下的時間開展裁員等節流措施](https://www.corona-stocks.com/its-just-absolutely-incredible-whats-going-on-in-the-corporate-bond-market-is-stunning/?amp)
+看吧，蔚藍的天空
 
-[3. 《窮爸爸·富爸爸》一書作者羅伯特·清琦（Robert Kiyosaki）近日表示銀行危機或即將到來，建議購買黃金或數字貨幣。同他也指出，美國有面臨馬克思主義侵蝕危險。](https://www.kitco.com/news/2020-08-21/Robert-Kiyosaki-says-don-t-make-this-financial-mistake-and-get-manipulated.html)
+舞吧，自由的旌旗
 
-[4.零對沖觀點：大數據高科技無法實現社會主義。市場過程完全不同意計算設備，開展業務不僅需要確定性的程序，還需要對“未知”的認識，大數據確實涵蓋了許多情報，可惜這些情報不是知識，做不到從0到1。因此有理由相信大數據等高科技並不會比蘇聯時期的原始大型計算機做得更好。](https://www.zerohedge.com/economics/why-smarter-computers-wont-make-socialism-more-workable)
+唱吧，滅共的歌聲
 
-新聞整理：Mr. 
- 【密翻組·金融法律組】
+在滅共的路上，沒你不行！
+
+“爆料革命”點燃了滅共的導火索，在這個夏季，進入白熱化的里程
+
+隨著億萬華夏兒女的甦醒，已經點燃的滅共之火熊熊，在滅共的路上，非你不行
+
+我們耳熟能詳的滅共英雄在前線披荊斬棘，刀光劍影
+
+我們億萬無名英雄能做的就是擂鼓助威，搖旗吶喊，身體力行
+
+這個夏季，我們滅共的大舞台―“我是音雄”，就是你我盡情發揮的滅共戰場
+
+講出你的**滅共故事** ，唱出你的**滅共心聲**
+
+在歡快和嬉戲之間，追求自由，法制和民主的喜馬拉雅
+
+積土成山，滴水成海，眾人拾柴火焰高
+
+在浩瀚宇宙，你我同是小小的七芒星
+
+只要我們手挽手，肩並肩，
+
+凝聚在一起，就能爆發出洪荒之力
+
+我們每個人的小小心願，搭載誠摯的吶喊
+
+定能凝聚成一股強大的聲音
+
+讓更多還在恐懼，還在昏睡，還在視而不見的同胞覺醒和改變
+
+在滅共的路上，我們攜手同行
+
+在通往喜馬拉雅的路上，我們戰鬥並肩
+
+世界局勢在改變，中共在惶惶不可終日，我們要打造盤古開天闢地以來，屬於華夏兒女自己的自由家園！
+
+八月，這個火熱的季節
+
+燃燒吧，青春的熱血
+
+唱響吧，滅共的戰歌
+
+讓我們所有無名英雄都邁出一步，高喊出一聲，
+
+透過“我是音雄”的平台，行動、行動、再行動！
+
+歌唱音雄 歡迎點擊鏈接 報名
+
+[https://forms.gle/E1q6Yaxu8dPAMfhXA](https://forms.gle/E1q6Yaxu8dPAMfhXA)
+
+創作音雄 歡迎投稿您的詞／曲 作品至：[\[email protected\]](/cdn-cgi/l/email-protection)
 
 0
