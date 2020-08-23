@@ -1,68 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文錦說電影——有感《十年》
-`2020-08-23 03:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/312904/)
+## 【中英文視頻版】2020/08/16 CCP病毒每日疫情直播簡報
+`2020-08-23 06:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/313190/)
 
-作者：文錦
+英語標題 CCP Virus Pandemic Updates Ep 205:  U.S. push to deny the CCP regime’s legitimacy
 
-2015年，壹部名叫《十年》的電影上映，影片構想了十年後香港的樣子。
+視頻重點
 
-當時的中共媒體《環球時報》這樣評論：“這部片子是完全荒誕的，它所描繪的場景，十年後不可能在香港出現……，相信多數港人也不會真的認為香港會變得如此恐怖”，該電影被喻為：思想病毒“，禁止在內地上映。
+1. 近日大陸多家銀行以反洗錢為名凍結儲蓄卡。更有官媒以中共發展為由，提議強制徵收生育基金。眾所周知中共權貴階層是最大的洗錢組織，中共權貴階層們把香港作為洗錢的中轉站、跳板，然後再將資產轉移國外，幾乎全部權貴家族都這樣運作。肆意無故凍結百姓的儲蓄卡，實屬非法政府行為。
+2. 大陸各地為響應中共節約號召，多舉措反對浪費，甚至洗腦百姓日常生活，讓家長懲罰剩飯子女。似乎回到文革相互監督的時代。
+3. 四川綿陽同樣遭水災，百姓生活遇困難。另有四川綿陽也連降暴雨，積水嚴重，百姓損失不可估量。看不到政府的救援在哪？每年徵收的稅費用在哪裡？
+4. （澳大利亞和美國政府前網絡安全合同商Robert Potter，澳大利亞天空新聞，8月16日）（從這個資料庫）我們開始看到之前在新疆和西藏廣泛部署的監控技術，現在以不同的規模部署到中共國其他地方。 但在我們查看了原資料之後，很明顯，這是一個建築物門禁系統，用政府的面部識別系統來驗證居民進入自己家的權限。
+5. （Miles Guo. 8月13日）在歐洲，沒想到啊，聽說這個美國推廣的，否定中共的政權的合法性，一致得到同意。那麼現在大家都在想，那你美國，共產黨不合法誰合法啊？
 
-誰也未曾料到，短短幾年，現實中的香港就驗證了這部5年前的電影，影片中的諸多場景正活靈活現地在香港發生。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23030332/1-93.jpg)
+1. Banks in mainland China froze debit cards under the pretext of anti-money laundering. Moreover, official media advocated for the compulsory collection of maternity funds, citing Communist China’s development as the reason.  It’s well known that the CCP’s powerful class is the largest money laundering organization. They use Hong Kong as a transfer station and springboard for money laundering, and then transfer assets abroad. Almost all powerful families operate in this way.
+2. In response to the CCP’s call to save food, many areas took measures to curb food wasting. They went so far as to brainwash the people, asking parents to punish children for wasting food. This seems backing to the era of the Cultural Revolution when the people surveilled one another.
+3. Mianyang in Sichuan was also flooded, causing hardship to people’s life. Mianyang was also severely flooded because of the heavy rain. The people suffered immeasurable losses. The government’s rescue is nowhere to be seen. So, what is the use of taxes collected each year?
+4. (Robert Potter, former Australian and U.S. government cyber security contractor) We’re now starting to see (from this database) technologies which had previously been deployed extensively in Xinjiang and Tibet, now being deployed elsewhere within China at a different scale, after we went through the metadata, it became clear that this was a building access management system where people, where state government facial recognition systems were being used to authenticate people’s access to their own homes.
+5. (Miles Guo. August 13) Right now, out of one’s expectation,  I heard the U.S.’ push to deny the CCP regime’s legitimacy has gained unanimous agreement in Europe. Then everyone wondered, if the U.S. deems the CCP regime illegitimate, which regime would be legitimate (to represent the Chinese people)?
 
-**《浮瓜》—****出路何在？**
-
-《十年》集結了五位香港新銳導演虛構的五個短篇故事，包括郭臻的《浮瓜》、黃飛鵬的《冬蟬》，歐文傑的《方言》、周冠威的《自焚者》、以及伍嘉良的《本地蛋》。這部制作成本只有五十萬港幣的電影，神奇般創造出六百萬港幣的票房佳績。
-
-《十年》講敘香港人面對原有的生活方式被無情改變後的艱難抗爭，反映了港人當下的焦慮與恐懼，無論政治、語言、民生、本土生存空間正被蠶食……
-
-首段短片《浮瓜》描述中共為了在香港推行國安法，利用黑社會自導自演壹場槍擊案，希望藉此恐嚇香港市民達到立法的目的。原計劃是犧牲兩位政商人士，接受任務的兩個“槍手”原本只為賺錢，卻在最後關頭出於內心的良善，調轉槍口方向對空鳴槍，而成為事件的犧牲品。
-
-現實中的香港，與中共的政商勾結、官官勾結、串通黑社會的黑暗比電影中更甚。去年721反送中遊行在元朗，當晚壹群身穿白色上衣的不明團夥用棍棒等武器瘋狂襲擊示著黑衣的抗議者、路人和地鐵上的乘客，造成45人受傷。
-
-《浮瓜》中最後的槍聲，兩個被指派為槍手的無辜底層市民倒在血泊中，那深沈的荒誕和哀傷感不正是現在的香港嗎？到處彌漫著恐怖和哀傷，香港的未來會走向何方？
-
-**《冬蟬》—****絕望****《方言》—****蠶食**
-
-五部片子中風格最特殊的《冬蟬》，導演黃飛鵬以超現實的手法展現更悲觀的情感。在香港發展的過程中我們失去很多，唯壹能做的就是把失去的這些東西，制成標本封存起來。《冬蟬》透露著香港人內心中對遺失的事物的種種留戀，和對現狀的無比絕望。
-
-最通俗的應該是歐文傑的《方言》。中共越來越深入地參與或收購香港的宣傳口徑，如今的影視綜藝作品、媒體甚至日常生活中，都需要用普通話作為標準。片中那位計程車司機是很多港人的縮影，如果不能學好普通話，會面臨生計困難。
-
-香港人已經從語言文化到生活方式，甚至到生存都已被中共無情地徹底改變。這不正是如今香港的寫照嗎？
-
-**自焚者—****鳳凰涅磐**
-
-五部短片中，最震撼當屬《自焚者》。這部短片描述更多年輕人主張維護香港自治，並訴求英國政府無果，最終有人走上自焚。鏡頭中男主角努力尋找自己的女友，片中穿插很多歷史背景和壹些年輕人的思想爭論。最終這位自焚者，卻是來自內地，曾經歷過文革、六四，同時也參與香港街頭運動的壹位老婦人。
-
-經歷過文革或六四的內地人，從國內逃到香港，以為從此可以脫離暴政，卻不想97年回歸後噩運隨之再次席卷而來。從香港23條立法，到雙普選，再到送中條例的修訂，國安法，中共步步收緊套在香港人脖子上的絞索，這壹代人向往自由卻最終沒有擺脫中共。
-
-正因為他們來到香港擁有過自由的快樂，所以更加珍惜自由的可貴。他們深知香港如今的危機，影片中那位老者用自焚表達自己對中共的無比憤懣，將這種無懼的精神傳遞到香港的年輕壹代，激勵他們繼續為守護自己的自由抗爭。
-
-“自焚“究竟仍是絕望還是重新燃起希望？這應該是《十年》電影的核心。
-
-**《本地蛋》—****生機**
-
-伍嘉良的《本地蛋》同樣是探討“本地”生存的主題。香港小學生到處記錄和檢舉，這靈感壹定來自“紅衛兵“。影片中“香港”兩字和“本地“兩字到底有什麽差別？意在告誡香港的下壹代，喚醒民眾收回思考的基本能力。當出現被禁止的藏書書店中孩子們在閱讀的鏡頭時，喻示著香港的壹線生機！
-
-回到片首的《浮瓜》，大概是和《自焚者》壹樣直接觸碰政治議題的短片。
-
-很多墻內年輕人常說：“我不懂政治、我也不管政治。政治不是老百姓玩的遊戲。“
-
-壹些臺灣人和在外華人也很少過問政治，因為生活在自由的土地上，沒覺得政治離自己的日常生活有什麽關系。
-
-《冬蟬》導演的黃飛鵬說到：“劇組並非就打算討論政治，但到後來發現，所有的東西都離不開政治。“
-
-《十年》是香港小市民的悲歌。在2015年上映，正值香港民眾為爭取“雙普選、真普選“多年來不見成效，相反中共對香港的破壞愈演愈烈的時期，影片讓港人的情緒得以宣泄的同時，更是欲喚醒民眾心底的力量，
-
-這才是香港未來的希望。
-
-身處自由世界的每壹個人，妳不理政治可是政治隨時都有可能找上妳，會與妳的生活息息相關。妳的拒絕思考只是自欺欺人，且是在助紂為虐。《十年》不僅喚醒港人自己，也警醒了全世界的華人。
-
-參考鏈接：
-[https://www.voicettank.org/single-post/2019/07/05/070503](https://www.voicettank.org/single-post/2019/07/05/070503)
 
 0

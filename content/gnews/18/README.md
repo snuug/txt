@@ -1,16 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港電台節目再獲殊榮——記錄片勇奪八獎項，前線記者功不可沒
-`2020-08-22 23:23 GM77` [轉載自GNews](https://gnews.org/zh-hant/312664/)
+## 【世界多語言圖文】2020/08/14 CCP病毒每日疫情直播簡報
+`2020-08-23 03:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/311997/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-字幕：恩典
-後期製作：文粵
+戰友之家圖文摘要及小語種組
+
+[English\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110739/English_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110739/English_0814_CCP_Virus_Updates.pdf)
+
+[French\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110751/French_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110751/French_0814_CCP_Virus_Updates.pdf)
+
+[German\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110747/German_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110747/German_0814_CCP_Virus_Updates.pdf)
+
+[Japanese\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034241/Japanese_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034241/Japanese_0814_CCP_Virus_Updates.pdf)
+
+[Korean\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034236/Korean_0814_CCP_Virus_Updates-%E6%96%87%E8%B5%AB%E8%AF%91-%E9%A3%9E%E8%94%A6%E5%90%9B%E6%A0%A1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034236/Korean_0814_CCP_Virus_Updates-%E6%96%87%E8%B5%AB%E8%AF%91-%E9%A3%9E%E8%94%A6%E5%90%9B%E6%A0%A1.pdf)
+
+[Spanish\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110743/Spanish_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110743/Spanish_0814_CCP_Virus_Updates.pdf)
 
 
-
-港台機構傳訊組總監伍曼儀今日接受《蘋果》電話訪問，她說︰「未詳細了解細節，我想同事們都會覺得很鼓舞。作為港台人工作表現被肯定，都會感到開心。對於以有關「反送中」、「抗暴」的紀錄片參賽，有機會被扣上「唱衰香港」及「借助外國勢力」帽子時，伍曼儀說︰「政治是一件事，作為製作人是應該感恩。」
 
 0

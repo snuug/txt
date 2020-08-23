@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中宣部8月22日緊急爆出一個月前的「舊聞」：7月22日正式啓動新冠疫苗緊急使用
-`2020-08-23 06:00 GM01` [轉載自GNews](https://gnews.org/zh-hant/313165/)
+## 【世界多語言圖文】2020/08/15 CCP病毒每日疫情直播簡報
+`2020-08-23 09:28 GM62` [轉載自GNews](https://gnews.org/zh-hant/313451/)
 
-國內新聞作者:#7002
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23054435/57B9C256-CDB7-425E-8F8E-E8EFA1451FD5.jpeg)
-北京時間8月23日，微信朋友圈和各大新聞門戶網站開始「爭相」報道一個月前發生的舊聞：中共7月22日已經正式啓動新冠疫苗的緊急使用。在一檔電視節目中國務院聯防聯控機制科研攻關組疫苗研發專班工作組組長鄭忠偉在節目中表示，我國已於7月22日正式啓動新冠疫苗的緊急使用。
+戰友之家圖文摘要及小語種組
 
-這麼好的利國利民的消息為什麼要一個月之後才正式發佈？中共一向在抗疫、疫苗研發上放衛星，就連班農先生遠在萬里之外的被捕消息都第一時間公佈，為什麼疫苗緊急使用的消息拖了這麼久才發佈？原來偷偷摸摸的使用疫苗給自己惹來麻煩，被太平洋國家巴布亞新幾內亞打臉了，為了說明自己不是在非法使用疫苗，所以趕緊說自己的疫苗已經「緊急使用」了。
+[English\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091852/English_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091852/English_0815_CCP_Virus_Updates.pdf)
 
-參見新聞《巴布亞新幾內亞（Papua New Guinea）政府8月20日下令，禁止一架載有中國工人的飛機入境，因機上載有一批在8月10日注射過新型冠狀病毒肺炎（COVID-19）試驗疫苗的中國礦工。》
+[French\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091909/French_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091909/French_0815_CCP_Virus_Updates.pdf)
 
-在中共的最新報道中，鄭忠偉還談到6月24日，偽國務院批准《新冠病毒疫苗緊急使用(試用)方案》，可是該《方案》在各搜索網站中都無法查詢到。關於疫苗緊急授權使用的信息也未發佈到食品藥品監督管理局的相關網站上。
+[German\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091904/German_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091904/German_0815_CCP_Virus_Updates.pdf)
 
-中共放「疫苗衛星」被他國打臉，不但派出外交發言人「趙戰狼」發表聲明，還趕緊編造各種謊言和稀泥，給自己找面子。CCP本來就是不要臉的，還非要硬撐，累不累呢？
+[Japanese\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23092518/Japanese_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23092518/Japanese_0815_CCP_Virus_Updates.pdf)
 
-新聞鏈接
+[Korean\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091858/Korean_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091858/Korean_0815_CCP_Virus_Updates.pdf)
 
-[https://news.sina.cn/2020-08-23/detail-iivhuipp0150976.d.html](https://news.sina.cn/2020-08-23/detail-iivhuipp0150976.d.html)
+[Spanish\_0815\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091913/Spanish_0815_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23091913/Spanish_0815_CCP_Virus_Updates.pdf)
+
+
 
 0

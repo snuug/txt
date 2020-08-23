@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/16 CCP病毒每日疫情直播簡報
-`2020-08-23 06:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/313190/)
+## 班農戰情室344追討國債·洪水災情加劇
+`2020-08-23 09:54 GM67` [轉載自GNews](https://gnews.org/zh-hant/313500/)
 
-英語標題 CCP Virus Pandemic Updates Ep 205:  U.S. push to deny the CCP regime’s legitimacy
-
-視頻重點
-
-1. 近日大陸多家銀行以反洗錢為名凍結儲蓄卡。更有官媒以中共發展為由，提議強制徵收生育基金。眾所周知中共權貴階層是最大的洗錢組織，中共權貴階層們把香港作為洗錢的中轉站、跳板，然後再將資產轉移國外，幾乎全部權貴家族都這樣運作。肆意無故凍結百姓的儲蓄卡，實屬非法政府行為。
-2. 大陸各地為響應中共節約號召，多舉措反對浪費，甚至洗腦百姓日常生活，讓家長懲罰剩飯子女。似乎回到文革相互監督的時代。
-3. 四川綿陽同樣遭水災，百姓生活遇困難。另有四川綿陽也連降暴雨，積水嚴重，百姓損失不可估量。看不到政府的救援在哪？每年徵收的稅費用在哪裡？
-4. （澳大利亞和美國政府前網絡安全合同商Robert Potter，澳大利亞天空新聞，8月16日）（從這個資料庫）我們開始看到之前在新疆和西藏廣泛部署的監控技術，現在以不同的規模部署到中共國其他地方。 但在我們查看了原資料之後，很明顯，這是一個建築物門禁系統，用政府的面部識別系統來驗證居民進入自己家的權限。
-5. （Miles Guo. 8月13日）在歐洲，沒想到啊，聽說這個美國推廣的，否定中共的政權的合法性，一致得到同意。那麼現在大家都在想，那你美國，共產黨不合法誰合法啊？
+翻譯報導：VOG翻譯組 starwar    編輯：VOG翻譯組 flasher
 
 
-1. Banks in mainland China froze debit cards under the pretext of anti-money laundering. Moreover, official media advocated for the compulsory collection of maternity funds, citing Communist China’s development as the reason.  It’s well known that the CCP’s powerful class is the largest money laundering organization. They use Hong Kong as a transfer station and springboard for money laundering, and then transfer assets abroad. Almost all powerful families operate in this way.
-2. In response to the CCP’s call to save food, many areas took measures to curb food wasting. They went so far as to brainwash the people, asking parents to punish children for wasting food. This seems backing to the era of the Cultural Revolution when the people surveilled one another.
-3. Mianyang in Sichuan was also flooded, causing hardship to people’s life. Mianyang was also severely flooded because of the heavy rain. The people suffered immeasurable losses. The government’s rescue is nowhere to be seen. So, what is the use of taxes collected each year?
-4. (Robert Potter, former Australian and U.S. government cyber security contractor) We’re now starting to see (from this database) technologies which had previously been deployed extensively in Xinjiang and Tibet, now being deployed elsewhere within China at a different scale, after we went through the metadata, it became clear that this was a building access management system where people, where state government facial recognition systems were being used to authenticate people’s access to their own homes.
-5. (Miles Guo. August 13) Right now, out of one’s expectation,  I heard the U.S.’ push to deny the CCP regime’s legitimacy has gained unanimous agreement in Europe. Then everyone wondered, if the U.S. deems the CCP regime illegitimate, which regime would be legitimate (to represent the Chinese people)?
 
+今天戰斗室現場主持人是拉希姆、傑克和威什。嘉賓OAN聯絡人傑克·波索比克（Jack·Posobiec）繼續連線，討論安替法和暴力的無政府主義者在波特蘭造成的混亂，他提到Facebook（臉書）提出了要審查安替法這些暴力分子的社交媒體資訊。波索比克評論道，臉書一直對保守主義者的意見和資訊進行審查和遮罩，然而那些安替法的暴力分子才是真正去破壞社會秩序的人，臉書卻一直縱容他們的言論。主持人傑克補充，臉書為這些暴力分子提供了資訊發佈的平臺，這已經很久了。
+
+喬娜·比安科（Jonna Bianco）連線。喬娜說美國的民調顯示他們想要讓中共國負責，通過追繳他們過期的主權國債。參眾兩院的議員代表（亞利桑那、田納西等州）都贊成川普總統向中共國追討主權國債，參議院通過了決議案並通知了白宮。主持人傑克問道，有觀眾問有沒有這些主權債務的二級市場，可以去購買的？喬娜說她看到網上有這些債務的資訊，但是她不能驗證真實性。以他們代表的2萬債券持有人的這些國債，這些債券一直到80年代都在倫敦的市場上交易，87年中共國償還了英國的主權債務（譯者注：償還英國的主權債務和當時中英關於香港的談判有關），但是沒有償還美國的。她代表的美國債券持有者基金會沒有聽說有二級市場在出售相關金融產品。
+
+威什問喬娜，如果立法通過了，而且中國償還了1.6萬億的債務，這能讓美國人和世界對現在的全球疫情感到滿意嗎？喬娜說：當然不會。我們支持川普總統向中共國追責。我們每天要支付中國7千2百萬美金利息，可以用討回的這部分錢去付。而且市場上還有法國、比利時、葡萄牙等債券持有者，我們代表的美國債券者採取的行動只是開始，這些其它持有者也會採取行動。過去幾十年中國共產黨盜取技術和智慧財產權，這些是我們對中共的追責和懲罰。
+
+傑克問，這段時期有沒有債券持有人來找到你們，提出追討的問題？喬娜說是的，我們已經接到一些這樣的案例，並提出願意代表他們和其它美國債券持有者採取行動。傑克感謝喬娜為美國人利益做出的努力。喬娜說我們每天付給中共7千2百萬美金利息，這些追討相比於中國共產黨的武漢病毒造成的全球疫情根本不成比例。我們要代表美國人的利益，向中共追責並帶回我們的製造業，提升就業，重振美國經濟。
+
+拉希姆說很難想像，80年代的問題，一直拖到現在還沒解決。傑克說當年中國在商討香港問題時償還了英國持有人的債券，但是卻拒絕了我們；現在中共又撕毀了和英國關於香港的協議。所有有良知的人都應該讓你們的政府知道，我們不能成為中共的工具，被他們利用去欺壓中國人，欺壓其它國家的人。整個事件，只有英國債權人拿到了該得的回報，其他所有人都被中共坑害了。
+
+拉希姆把話題轉向中國長江流域的洪水，他說傑克一直在關注這些新聞，處在最前沿，現在金融時報開始報導這些我們一直呼籲的資訊。視頻在播放重慶地區被淹沒的城鎮，有家畜被洪水沖走，還有大批家畜被淹死的畫面。傑克說我週一週二講到，後面的48小時對重慶非常關鍵，會有很大的洪水，這些都發生了，上游還在不停地洩洪。三峽大壩放水量在每秒5萬立方米，這超過了下游武漢地區湖泊的存蓄能力。三峽大壩現在的水位在163-164米，設計最高水位是175米，而且水位在以每小時8-15釐米的速度上漲——進水量是7萬5千立方米每秒，洩洪是5萬左右，這樣下去三峽大壩很難控制洪水繼續上漲。中國內部的媒體開始講三峽大壩形勢很緊張，讓上游的所有水壩管理者密切關注。我祈禱三峽大壩不要出事——想想160米高的牆倒下，水以60英里每小時的速度沖下來，下游的建築都將被毀掉，那裡的人一定要提高警惕。那裡的中國人正在受苦，不只是農田被淹沒，所有的交通都中斷了，受災地也非常危險。如果洪水沒有辦法得到控制，他們（中共）會犧牲武漢和重慶。而一旦那裡的堤防倒塌，城市的地下交通，軌道等都會被毀。那裡的人民會遭受很多苦難。98年發大水時，洪水在那裡停留了3個月才慢慢退去。四川很多地區也在受災，而那裡是中國最大的豬肉生產地。我認為中國在後面幾個月會有很嚴重的食物供給問題。
+
+傑克評論道，西方的媒體應該對洪水24小時關注報導，但實際情況是不論中國國內還是西方，都很少有。在中國甚至把洪水的資訊發到微信都是犯法的。要知道，在過去這段時間裡，很多洩洪是在半夜沒有任何預警的時候偷著幹的，這打破了政府和人民之間的契約，人民應該去追責，而西方的媒體反對中共的報導很少。拉希姆說，如果中共存活下來，他們會繼續領導中國，甚至世界。洪水對於世界醫用品的供應鏈的影響更是不言而喻。中共的China Daily報導，如果拜登當選，中共政府會和美國政府非常“平和”。我們是時候對中共講：你的時間到了。
+
+傑克評論了華爾街日報的兩篇報導，一篇提到了中共在西方滲透的“千人計畫”和“獵鳳行動”——中共通過招募大學科研人員和學生來滲透美國；另一篇是報導美國大學為中國學生特別修訂課程內容，比如歷史課，以使這些學生不會回到國內後受到懲罰。傑克說美國的大學因為中共的壓迫而失去了自由，這讓他感到噁心。主持人還在節目中討論了美國現階段的兩黨政治角力，還有拉希姆的新節目國家脈動。
 
 0
