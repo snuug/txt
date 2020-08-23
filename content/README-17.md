@@ -12,7 +12,13 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 17/28 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [28](/content/README-28.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/29 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [29](/content/README-29.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+
+[文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/2019/01/20190113-3654521321996198385.md)
+
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
 
 [文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
 
@@ -58,11 +64,5 @@
 
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/2018/11/20181124-4394519846774733520.md)
 
-[翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/2018/11/20181124-6313930265884722848.md)
 
-[翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
-
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
-
-
-## 頁面 17/28 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [28](/content/README-28.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
+## 頁面 17/29 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [29](/content/README-29.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

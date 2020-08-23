@@ -12,7 +12,13 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 27/28 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+## 頁面 27/29 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+
+[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
+
+[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
+
+[（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
 
 [（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
 
@@ -58,11 +64,5 @@
 
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
 
-[美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/2018/04/20180418-6931208450020595005.md)
 
-[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
-
-[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
-
-
-## 頁面 27/28 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
+## 頁面 27/29 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)

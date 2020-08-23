@@ -12,7 +12,13 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/29 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [29](/content/README-29.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+
+[文字版:2020年4月11日郭先生GTV直播](/content/2020/04/20200415-8766682257981187519.md)
+
+[文字版:2020年4月10日郭先生直播](/content/2020/04/20200415-6756741546928314849.md)
+
+[文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
 
@@ -58,11 +64,5 @@
 
 [文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/content/2020/03/20200314-8958776205330396975.md)
 
-[文字版：2020年3月8日文贵谈即将发生CCP的股市及欺民贼的末日，我们每一位战友都将见证历史！](/content/2020/03/20200311-6040433872108549534.md)
 
-[文字版：2020年3月7日谈冠状病毒始于香港，必将终于香港！世界的爆发还没开始！](/content/2020/03/20200311-4043567072040877942.md)
-
-[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
-
-
-## 頁面 4/28 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [28](/content/README-28.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)
+## 頁面 4/29 [**<**](/content/README-3.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [29](/content/README-29.md) [**>**](/content/README-5.md) [查看全部](/content/README-all.md)

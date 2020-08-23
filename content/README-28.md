@@ -12,7 +12,13 @@
 [:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 28/28 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [查看全部](/content/README-all.md)
+## 頁面 28/29 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
+
+[美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/2018/04/20180418-6931208450020595005.md)
+
+[翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
+
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
 
 [（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/2018/04/20180418-5802483270047805854.md)
 
@@ -58,11 +64,5 @@
 
 [ 郭文贵9月6日报平安：董卿是孙力军的情妇揭秘马航370失踪及雷洋之死|文字版](/content/2018/04/20180418-6438072051436758841.md)
 
-[郭宝胜专访曹长青( 郭文贵爆料对中国政局与民主运动的巨大意义（视频文字版）](/content/2018/04/20180418-8737769596242434513.md)
 
-[袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版2017-6-24](/content/2018/04/20180418-8213280584796437424.md)
-
-[|郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/2018/04/20180418-3180317526840992396.md)
-
-
-## 頁面 28/28 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [查看全部](/content/README-all.md)
+## 頁面 28/29 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
