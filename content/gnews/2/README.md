@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年8月21日美國銀行監管機構要求華爾街加強反洗錢盡職調查
-`2020-08-23 00:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/312712/)
+## 【世界多語言圖文】2020/08/14 CCP病毒每日疫情直播簡報
+`2020-08-23 03:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/311997/)
 
-![Federal Reserve Bank of St. Louis - Wikipedia](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23000913/1-112.png)圖片來源：維基百科
-美聯儲官網披露，美聯儲理事會、美國聯邦存款保險公司、反金融犯罪行動網絡、國家信用聯盟管理局以及貨幣審計長辦公室今天發表[聯合聲明](https://www.federalreserve.gov/newsevents/pressreleases/files/bcreg20200821a1.pdf) ，闡明《銀行保密法》（BSA）對於可能被視為“政治人物”（PEP）的客戶的盡職調查要求，盡職調查應與PEP關係所帶來的風險相稱。
+戰友之家圖文摘要及小語種組
 
-PEP一詞通常用於指代現在或已經負有重要公共職能的外國個人，以及其直系親屬和近親。憑藉這種公共職位或關係，這些人可能面臨更高的風險，即他們的資金可能是源自腐敗或其他非法活動的收益。
+[English\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110739/English_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110739/English_0814_CCP_Virus_Updates.pdf)
 
-應對外國官員腐敗造成的洗錢威脅仍然是美國的國家安全重點。該聲明承認，PEP關係存在不同程度的洗錢風險，這取決於特定客戶關係的事實和情況。例如，PEP與銀行的交易規模有限，在銀行的小額美元存款帳戶，已知的合法資金來源或只能訪問受特定條款和付款時間表約束的產品或服務，可以合理地劃定為具有較低風險的個人客戶資料。
+[French\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110751/French_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110751/French_0814_CCP_Virus_Updates.pdf)
 
-該聲明闡明，儘管銀行必須採用適當的基於風險的程序進行客戶盡職調查（CDD），但CDD規則並未制定監管要求，監管機構也沒有期望銀行對被視為PEP的客戶採取獨特的額外盡職調查步驟。本聯合聲明不會改變現有的BSA和反洗錢（AML）法律或法規要求，也不會要求銀行停止現有的風險管理行為。
+[German\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110747/German_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110747/German_0814_CCP_Virus_Updates.pdf)
 
-評：在中美脫鉤的大背景下，中共國已經被中國共產黨的腐敗行為弄得不再適合居住，相信很多中共官員都急於將錢洗到華爾街，希望美國銀行監管機構的行動為時未晚，希望該聲明能夠起到作用。
+[Japanese\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034241/Japanese_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034241/Japanese_0814_CCP_Virus_Updates.pdf)
 
-[原文鏈接](https://www.federalreserve.gov/newsevents/pressreleases/bcreg20200821a.htm)
+[Korean\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034236/Korean_0814_CCP_Virus_Updates-%E6%96%87%E8%B5%AB%E8%AF%91-%E9%A3%9E%E8%94%A6%E5%90%9B%E6%A0%A1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23034236/Korean_0814_CCP_Virus_Updates-%E6%96%87%E8%B5%AB%E8%AF%91-%E9%A3%9E%E8%94%A6%E5%90%9B%E6%A0%A1.pdf)
 
-譯者：CPA Jim
+[Spanish\_0814\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110743/Spanish_0814_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/22110743/Spanish_0814_CCP_Virus_Updates.pdf)
 
-BY金融法律組
+
 
 0
