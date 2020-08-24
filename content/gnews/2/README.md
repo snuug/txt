@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 傳媒大亨黎智英被捕所帶來的思考
-`2020-08-24 07:11 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/314725/)
+## 【中英文視頻版】2020/08/17 CCP病毒每日疫情直播簡報
+`2020-08-24 10:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/314991/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24070541/1-118.png)圖片來自：美國副總統彭斯的推特
-全國公共廣播電台的記者朱莉·麥卡錫2020年8月23日採訪報導
+英語標題 CCP Virus Pandemic Updates Ep 206: Flood in China. Unwarned release of surging water from the dams
 
-在香港，媒體界的顯赫人物黎智英先生最近成為了輿論的焦點。他在香港的精英中顯得與眾不同。幾十年來，這位72歲的生意人公開對抗北京，全力維護香港的准民主。
 
-朱莉·麥卡錫在節目中與林培瑞（Perry Link）（現任加尼福尼亞大學河濱分校的現代中國文學教授，他是黎智英的老朋友）和國際策略和研究中心的朱迪·布蘭切特（Jude Blanchette），以及前香港記者陳婉容女士進行了互動，一起回顧了黎智英先生的人生經歷，並且談論了作為香港的異見者，黎智英先生所付出的代價。
 
-香港警察以黎智英先生去年非法參加了大規模抗議活動為由，對黎智英先生實施過不止一次的逮捕。兩週前，在新國安法的框架下，當局控告了大量的抗議者。黎智英被指控為與境外勢力勾結，可能被送進監獄。
+視頻重點
 
-當黎智英先生被保釋的時候，媒體和支持者蜂擁而至。當局者將長久以來的民主抗議活動視為搞亂香港的暴動。朱迪·布蘭切特表示，黎智英是罕見的民主運動傑出人物。一方面由於他在法庭上據理力爭，另一方面他敢於公開與北京對抗。實際上黎智英先生比任何人都有籌碼，他有自己的媒體，使他在這個城市裡擁有了一個難得的擴音器。
+1. 8月16日 四川雅安寶興縣暴雨致國道351線中斷。路基懸空 路面塌陷！國道是全國性政治、經濟意義的主要幹線公路，大陸全國的交通建設工程總經費雖高，貪汙舞弊回扣金額也超乎想像巨大，導致工程建設品質低劣，大雨一來，國道不堪檢驗。
+2. 國家防汛抗旱總指揮部秘書長周學文高調宣稱“大水之年往往是豐收之年。但據大陸民間的消息，今年的罕見大雨加上中共無預警洩洪，大面積農田被毀，今年收成堪憂，甚至可能絕收。
+3. (CNBC，8月17日）關於華為的最新消息，據路透社報導，川普政府將進一步加緊對中共國公司華為的限制。 報導指出，商務部將採取行動防止華為在沒有特殊許可證的情況下獲得半導體，包括由外國公司使用美國軟件或技術開發或生產的晶片。
+4. （Miles Guo. 8月16日）這個UAE的變化，現在大家知道的事情，中國共產黨根本不知道人家就建交了。 這是多麼的打臉哪。  因為這意味著中共整個一帶一路戰略、整個中東戰略、整個東非北非的徹底失敗。
 
-林培瑞教授說黎智英先生是一個極其聰慧的人。當年，他是乘坐一條小漁船從大陸逃到香港，最終成為了香港富豪。少年時代的黎智英先生曾經在香港的一家製衣工廠上班，他一路從經理做到了製衣廠的老闆，將品牌擴展到大陸。但是在1989年天安門事件以後，黎智英先生的生意一落千丈。因為黎智英先生公開稱當時的總理李鵬為傻子。他在大陸的所有店鋪被迫關閉，於是他出售了整個生意。後來他投資了一個媒體公司，就是眾所周知的蘋果日報。前香港記者陳婉容（Yuen Chen）說，蘋果日報也報導名人的八卦，但主要報導有關中共政府和公知的評論。
 
-香港媒體報導了黎智英本月被捕事件，蘋果日報的母公司股票價格暴漲。 200個警察包圍了蘋果日報，他們用手銬銬住了黎智英。林培瑞猜測，北京方面把黎智英當作一個富豪，而非抗議運動的策劃者，逮捕黎智英是為了殺雞給猴看。當局給香港上街的孩子們傳遞的信息就是，我們能夠把黎智英關進監獄，就能把任何人關進監獄。目前還不太清楚誰啟動了黎智英與外國勾結的案子。
+1. 5. On August 16, in Ya’an, Sichuan, rain-induced flood cut off National Highway 351. The road foundation hanged in the air, while the road surface collapsed. National Highways are strategic infrastructure projects that involve many political and economic stakes. Because of the corruption at every level of these projects, which have extremely expensive price but horribly bad quality, to certain extent, these roads couldn’t even stand against the challenge of heavy rain.
+2. 6. Zhou Xuewen, Secretary-General of the State Flood Control and Drought Relief Headquarters said, “the year of the flood is often the year of harvest.” But people know the truth, as the flood caused by the heavy rains and the unwarned release of surging water from the dams already destroyed the harvest. The risk of food shortage is very high.
+3. (CNBC) Breaking news now on Huawei. Reuters is reporting that the Trump administration will further tighten restrictions on the Chinese company. That report says the Commerce Department will move to prevent Huawei from obtaining semiconductors without a special license that includes chips made by foreign firms developed or produced using U.S. software or technology.
+4. (Miles Guo, August 16) The UAE’s change of stance in the Middle East, as we all have heard, UAE and Israel established their diplomatic relations without the CCP acknowledging it in advance. What a slap in the face. For the cause of taking down the CCP, the significance of such move is tremendous.
 
-在國安法出台前，黎智英曾求助川普總統“拯救香港”，並已經與彭斯副總統和國務卿蓬佩奧見過面。由於黎智英的發言非常直率明了，他怎麼想就怎麼說，所以黎智英先生能夠吸引香港的民眾。
-
-布蘭切特認為黎智英先生向美國求助完全是基於香港人的絕望。因為他們所享有的香港自治即將坍塌，中國人希望藉助外力的幫助。目前發生在香港人身上的事情對我們每一個人都特別重要。
-
-黎智英先生的被捕是世界的至暗時刻。
-
-*全國公共廣播電台（英語：National Public Radio* *，縮寫為NPR* *）是美國一家獲公眾贊助及部分政府資助，但獨立運作的非商業性媒體機構。該電台成立於1970年2月24日，開播於1971* *年4* *月。 2009* *年時，聽眾數目已超過了2000* *萬人。*
-
-評論：黎智英先生的再次被捕引發了全球各國的關注。全世界徹底看清了中共政府違背了一個國家對國際的承諾，看清了這個獨裁政府是如何肆意踐踏法律和人權的。中共政府在國際上的信用已經喪失殆盡。
-
-[原文鏈接](https://www.npr.org/2020/08/23/905181738/who-is-jimmy-lai-prominent-hong-kong-publisher-faces-new-national-security-law)
-
-翻譯整理報導：阿麗塔Alita
 
 0

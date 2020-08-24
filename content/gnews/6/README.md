@@ -1,56 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共風雨飄搖，人心惶惶
-`2020-08-24 05:21 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/314633/)
+## 【世界多語言圖文】2020/08/16 CCP病毒每日疫情直播簡報
+`2020-08-24 08:56 GM62` [轉載自GNews](https://gnews.org/zh-hant/314873/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24050529/1-94.jpg)
-《蘋果日報》新聞網本月21日發表了英國人權活動家本尼迪克特·羅傑斯（Benedic Rogers）關於香港問題的文章。
+戰友之家圖文摘要及小語種組
 
-作者在文章中說，中共在香港非法逮捕黎智英、周庭以及其他一些民運人士一周後，其駐英國大使劉曉明拉黑了作者的推特賬號。
+[English\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)
 
-作者說，表面上看這兩件事完全無法相提並論。許多傑出的英勇無畏的香港人都將面臨牢獄之災，其中有一些是他非常熟悉的朋友。相比之下推特被拉黑不值一提。
+[French\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)
 
-但是，換個角度看就會發現，看似毫無關聯的兩件事卻暴露出中共的虛弱本質：自詡為世界新興超級強國，卻在一個71歲的老人，一個23歲的年輕姑娘，和其他幾個年輕而勇敢的示威者面前瑟瑟發抖。並對一些在倫敦的缺乏資金支持的人權鬥士恐懼至極。
+[German\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)
 
-作者認為，中共對過去一年發生在香港的示威活動如此害怕，是因為他們懼怕數百萬香港人每個週末走上街頭的和平示威所傳遞的反共信息會蔓延到大陸。中共對去年11月份香港區議會選舉結果感到恐懼（指去年11月份民主派在區議會選舉中取得壓倒性勝利），擔心一個月後將要開始的立法會選舉會出現同樣結果，於是操縱香港行政當局將立法會選舉推遲一年。
+[Japanese\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)
 
-作者明確表示，他現在不會，將來也永遠不會提倡或鼓勵暴力。他一向認為香港人只有在和平和有尊嚴的社會狀態中，才最為強大。但是，如果面對的香港警察像三合會黑幫一樣，毫無節制和底線的濫用武力，而香港當局對公民心聲一直置若罔聞，那麼示威者如果出現激進行為就不足為怪。
+[Korean\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)
 
-作為一個成熟而自信的政府——無論是中共還是香港政府，本應設法了解造成民眾不滿情緒的根本原因，積極尋求真誠的對話以達成有效共識。中共如果在事件早期就放棄逃犯條例，就不至使這一事件戲劇性極端發展。而後居然又引入更加恐怖的國安法。
+[Russian\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)
 
-一個成熟自信的政府本該把區議會選舉結果視作改革的契機，展開民主對話，做到傾聽，了解和改變，為立法會和和港府特首選舉提出普選方案。但是中共政府和林鄭月娥政府根本就不是一個成熟自信的政府。他們毫無安全感，易怒，恐懼，膽怯，報復心極重。
+[Spanish\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)
 
-這就不是一個超級大國所為，這就是一個完全無視法律的惡霸政府，所以恐懼一切透明製度和問責制度。這個政府只認警棍，警靴和子彈。他們拒絕一切和平解決問題的方式，無視理性、商量和辯論的行政原則。
 
-這就是為什麼在香港所有的批評言論都被壓制，而在大陸言論受限的狀況則更為極端。甚至在大陸國界以外的自由世界裡，這個惡霸政權也試圖壓制反對聲音。
-
-他說他很願意多談談在香港的那些勇士朋友們的情況，但又擔心會給他們帶來無妄之災。所以他要講述被這個所謂的超級大國的大使拉黑推特背後的原因，來展現這個政權有多麼荒謬。
-
-中共駐英國大使劉曉明在推特上說中國希望和英國保持和平友好的關係。本文作者跟帖表示贊同，但提出一個問題：“既然這樣為什麼貴國對維吾爾人實行大屠殺式的暴行，為什麼破壞香港的自由？為什麼摧毀成千上萬的教堂，搗毀十字架，監禁基督教徒和佛教徒？為什麼活摘人體器官？如果你們真的希望和平，為什麼要做這些事情？？？”劉曉明對此沒有回复。
-
-本文作者隨之發布第二條推文，以回應劉曉明關於中英關係中存在的問題。
-
-他說，他18歲開始在青島教授英語，此後一直在倡導中英兩國之間結下緊密的紐帶。他說不需要任何人，尤其那些來自人民大會堂的人，來講解中英關係是怎麼回事。他曾在中國各地的許多中國朋友家里花幾個小時和他們家人一起包餃子。他說這種中英關係要遠比建立在奴隸勞工和出賣理念價值上的骯髒交易要美好得多。
-
-由此他發推對劉曉明關於兩國關係出現問題的推文表示贊同，但同時問到：“您認為誰應對此負責？”他告訴劉曉明，現在出現的問題正是劉所為之效力的邪惡帝國造成的。 “中共每天都在撒謊，違背承諾，嚴重侵犯人權，還對海外的批評者威脅恐嚇。”
-
-結果，本文作者就被劉曉明拉黑了推特。
-
-作者進一步說，被拉黑推特只是冰山的一角。在過去的三年裡劉曉明及其手下不停向英國國會議員遊說，向作者潑髒水。 2017年劉曉明給西敏市的官員們甚至保守黨黨魁打電話誣告作者。大概與此同時作者入境香港被拒。
-
-作者說，他本人、鄰居、老闆甚至他的母親都收到數十封匿名恐嚇信。英國政府為此向中共大使館交涉，而劉曉明從未對此行徑加以譴責。作者在倫敦的幾個同事也有同樣遭遇。作者說，與中共那些惡行相比，劉曉明的行為是小巫見大巫。真正令作者感到擔憂的是香港和大陸許許多多的勇士們遭到逮捕，折磨和監禁。
-
-作者說，他和讀者分享這段經歷的目的是要讓人們看清一點：一個在香港和大陸監禁信奉和平溝通的不同政見者，並且封鎖來自倫敦的微弱的不同聲音的政權絕非一個自信的政權。這樣的政權當然不值得尊重，甚至不值得恐懼。它只配憐憫和質疑。
-
-他還呼籲劉曉明對那位瑞典籍華人桂敏海，被中共從泰國綁架到中國一事做出解釋。一個政權竟然僅僅因為其出版物和相關研究而公然把一個外國公民從第三國綁架到中國。這樣的政權不配被稱為超級大國，只不過是惶惶不可終日的黑手黨罷了。
-
-他說，一個在民主國家採用遊說國會議員，寫恐嚇信威脅不同政見人士令其保持沉默這種卑劣手段的政權，一定是風雨飄搖，人心惶惶。
-
-中共早晚會意識到自己在玩火自焚，害人害己。這一定會結束中共政權統治的噩夢，也將成為全中國人民迎接自由曙光的開始。
-
-（貝內迪克特·羅傑斯（Benedict Rogers)是倫敦的人權活動家和作家。英國人權組織香港監察（Hong Kong Watch）的聯合創始人和主席，英國保守黨人權委員會聯合創始人和副主席，對華政策跨議會聯盟（Inter-Parliamentary Alliance on China，IPAC)顧問小組成員。他有6本著作，長期在國際媒體發表文章和言論。他擁有倫敦大學亞非學院（School of Oriental and African Studies, SOAS ）的中國問題研究的碩士學位。他長期在中國生活和工作，並於1997年至2002年期間作為新聞記者在香港居住。）
-
-[原文鏈接](https://hk.appledaily.com/us/20200821/FOP2IVMGVVAU7JDNJ43FUZ6JLE/)
 
 0
