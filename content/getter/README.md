@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-08-20T18:21:30`
 ##
 
+[8月24日：乖乖呀，这是真的假的呀？](/content/getter/content/2020/08/5f43f34cb8c8a748917f5121.md)
+
+**郭文贵MILES** `2020-08-24T17:05:16`
+##
+
 [8月23日：今天下午八点这个节目值得一看……https://mobile.twitter.com/cortessteve/status/129763637954...](/content/getter/content/2020/08/5f42d9ebb8c8a748917d9f61.md)
 
 **郭文贵MILES** `2020-08-23T21:04:43`
@@ -156,10 +161,5 @@
 [8月17日：这个不要脸的CCp……](/content/getter/content/2020/08/5f3ae65c1be0b830427a2c6c.md)
 
 **郭文贵MILES** `2020-08-17T20:19:40`
-##
-
-[8月17号：与战友们分享今天的午餐……](/content/getter/content/2020/08/5f3ac54e1be0b830427a1bc4.md)
-
-**郭文贵MILES** `2020-08-17T17:58:38`
 ##
 
