@@ -1,20 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】戴維斯案件：美國司法部起訴文件全文翻譯
-`2020-08-23 13:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/313816/)
+## 解決病毒疫情無望，人類陷入更深危機
+`2020-08-23 18:55 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/313997/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23130041/doj_seal.jpg)
+8月23日清晨郭先生在G-TV發佈蓋特視頻，稱他已從中國內地的爆料革命戰友處獲得可靠情報，中共正計劃對世界採取極具破壞性的舉措。即使在這個關鍵時刻，華爾街仍在與中共勾結，西方政客們竟然把疫情危機當作其政治遊戲中的棋子。他說人類沒有希望在不久的將來得到任何有效的解決方案用以遏制不斷惡化的大流行。 從昨天開始，世界已經被中共向「地獄」更推進了一步。 郭先生發出極為慘烈的警告:
 
-**以下是針對共和黨和猶太政治事業籌款人尼基•馬里•盧姆•戴維斯（Nickie Mali Lum Davis）案件** 
- **美國司法部起訴文件的全文翻譯**
 
-[【中文版】美國司法部對戴維斯起訴書中文全文翻譯](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23125438/%E7%BE%8E%E5%9B%BD%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B620-cr-0068-LEK.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23125438/%E7%BE%8E%E5%9B%BD%E5%8F%B8%E6%B3%95%E9%83%A8%E6%96%87%E4%BB%B620-cr-0068-LEK.pdf)
+> 這個世界人類的貪婪和天真無知自私，到這時候華爾街還在跟中共勾兌呢！現在美國還說「我可能脫鈎」 …… 你連可能的機會都沒有了！可悲！
 
-[【英文版】美國司法部官方起訴文件英文原文](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23125819/Nickie-Davis-information.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/23125819/Nickie-Davis-information.pdf)
 
-陸續更新中……
 
-**製作：【秘密翻譯組G-Translators】**
+> 人類有史以來，真相永遠是脆弱的；善良永遠是弱小的；偉大和勇敢的人總是寂寞和孤獨的。這也是上天對人類的懲罰吧？一切都要從長計議了兄弟姐妹們！這個病毒可真不是三月五月一年半年夠解決的，不用想了，絕不可能！也不要任何幻想！
+> – 郭文貴
+
+
+翻譯：【RD16】字幕： 【相機過熱啊】編輯：【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0
