@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/16 CCP病毒每日疫情直播簡報
-`2020-08-24 08:56 GM62` [轉載自GNews](https://gnews.org/zh-hant/314873/)
+## 中國經濟正成長的假象
+`2020-08-24 09:49 GM36` [轉載自GNews](https://gnews.org/zh-hant/314990/)
 
-戰友之家圖文摘要及小語種組
+## 
 
-[English\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)
+編撰：JAY、文波、文肯尼審稿：文橙艾文
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24094525/824%E2%80%94%E2%80%943.jpg)
+中共國務院總理李克強在重慶考察企業時說，近幾個月宏觀經濟運行反映良好，六穩六保政策取得積極成效，今年保住上億市場主體，完成新增城鎮就業900萬人以上的任務，全年經濟可實現正增長，要繼續努力，應對好發展中的不確定因素。
 
-[French\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)
+李克強在考察網絡公司時對他們服務小微企業、帶動大量就業表示肯定;考察汽車產業時，鼓勵他們開發更多可以帶動消費的產品；考察科技業時勉勵西部地區發揮迴旋空間大的優勢，積極承接東部產業轉移，並向產業中高端升級。
 
-[German\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)
+李克強在重慶還視察了重慶的洪災狀況，走訪被洪水浸過的民居以及詢問當地農地恢復生產所遇到的困難。
 
-[Japanese\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)
+**評論：**目前中共國整體經濟運行逐漸向閉關鎖國的內循環靠攏，中共雖號稱經濟呈現正增長，但是中共經濟實際情況卻是極速下降，正在變得非常糟糕。中共經濟受到了三大因素的影響，正在呈現全面崩盤的景象。其一不外乎是疫情影響；其二是美中貿易戰；其三是外國政府對於大型中共企業正在進行全面製裁，將企業、資本全面撤出中共。
 
-[Korean\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)
+中共經濟多年形成的經濟泡沫加之中共釋放CCP病毒造成的全球正義國家的圍剿正在使中共經濟呈現全面衰退、崩盤趨勢。中共政府經濟正增長的大肆宣傳只是為了向國內民眾和全球其他國家展示的假象而已。
 
-[Russian\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)
+新聞鏈接:
 
-[Spanish\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)
-
-
+[https://news.rthk.hk/rthk/ch/component/k2/1545422-20200823.htm](https://news.rthk.hk/rthk/ch/component/k2/1545422-20200823.htm)
 
 0
