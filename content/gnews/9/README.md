@@ -1,28 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆封城次生災難凸顯
-`2020-08-24 08:25 GM01` [轉載自GNews](https://gnews.org/zh-hant/314884/)
+## 法律超限戰：中共支持受制裁企業起訴川普政府
+`2020-08-24 09:46 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/314969/)
 
-國內新聞作者:背靠背
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24091945/1-119.png)圖片來源：https://reason.com/2020/08/03/microsoft-may-save-tiktok-from-trumps-clutches-after-president-proposes-ban-on-chinese-video-app/ 
+據亞洲新聞台最新報導，字節跳動公司24日宣布將對川普政府提起訴訟之後，中共在本週一也表示支持相關公司拿起法律武器保護他們的權益。
 
-2020年8月20日早晨，瑞盛社區15個人早上被強迫集中喝藥。瑞盛社區是新疆烏魯木齊市米東區盛達東路片區下轄的社區。視頻中的藥是蓮花清瘟膠囊，另壹種疑似鹽酸阿比朵爾。
-上面瑞盛社區發生的事情，只是整個新疆社區冰山壹角，社區如監獄，老百姓如囚徒，失去基本人的自由，由於被隔離沒有工作，他們面臨經濟上失去支持，老人孩子生病了不能看病，社區後勤保障缺位，缺乏幹凈的食品、醫療救助、藥品、水等。
+外交部發言人趙立堅在一場新聞簡報告訴記者美國政客的行動是有組織、有系統的經濟霸凌行為。 8月初，美國總統川普發出行政命令要求中共公司字節跳動需在90天內出售並處理完畢它的視頻共享應用TikTok（海外版抖音）在美國的資產。此舉增加了字節跳動公司剝離TikTok的壓力，並合法地支持了川普政府對中共所擁有的社交媒體應用的製裁。
 
+TikTok上週六表示將在法庭上挑戰川普政府的製裁。與此同時，被制裁的微信公司在美國也有個人發起了起訴川普政府的提議。
 
+評論：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24080555/unknown-6.png)
+2020 年8 月17 日美國司法部廉政科及夏威夷州公訴人辦公室於夏威夷聯邦地區法院提起訴訟，文件顯示習近平、孫立軍等中共政要涉入美國政治。消息來源透露這導致了美國情報部、司法部、公關官員、媒體界等20多人被捕調查，是美國有史以來最大的政治醜聞，遠超水門事件。而該事件和美國政府制裁TikTok，微信以及中共的回應也顯示出，中美之間正式開啟了國家級的法律超限戰。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24080651/unknown-1-1.png)
+[原文鏈接](https://www.channelnewsasia.com/news/asia/china-says-supports-companies-use-of-legal-weapons-to-safeguard-13047604)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081245/unknown-2-1.png)新疆某居委會（陳萍農大社區負責3區2-6號樓工作）： “告誡各位居民，能吃兩頓飯的吃壹頓飯，能吃三頓飯的吃兩頓飯，節約資源。少倒垃圾、塑料袋之類的東西。”該工作人員還禁止高血壓患者出門買降壓藥。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081645/unknown-3-1.png)中共政府進行嚴格言論管制，刪帖，刪微博，要求民眾註銷微博賬號。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081759/unknown-4-2.png)武漢暴力隔離模式，推行到新疆烏魯木齊。普通老百姓喪失基本人權，沒有尊嚴。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081914/unknown-5-2.png)違反中共強制隔離規定，被暴力執法，以黑執法。社區居民被拷在路邊，當街示眾，警告其他社區居民。
-
-武漢疫情強制隔離模式，成為各地應對中共病毒疫情標準，隨著中共病毒疫情發展，疫情造成的次生災難超越中共病毒本身帶來的傷害。
+校對整理：人間四月
 
 0

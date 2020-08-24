@@ -1,25 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/17 CCP病毒每日疫情直播簡報
-`2020-08-24 10:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/314991/)
+## 每日新聞看點
+`2020-08-24 10:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/315058/)
 
-英語標題 CCP Virus Pandemic Updates Ep 206: Flood in China. Unwarned release of surging water from the dams
+喜馬拉雅聯盟加拿大農場 孫行者 大地鯤鵬
+
+2020 年8 月23 日新聞看點
+
+一、疫情真相
+
+1. 8月23日，川普政府批准在緊急情況下使用恢復期患者的血漿，用於治療住院中共肺炎患者。對於此緊急授權的批准，Zeleno醫生質疑美國食品和藥物管理局，為何不批准同樣沒有經過雙盲試驗，但更便宜和有效的羥氯喹來治療中共病人。 （Zeleno醫生是使用羥氯喹、鋅和阿奇黴素治療中共肺炎的主要支持者。）
+
+2.中共8月22日消息，其已於一個月前正式啟動中共疫苗的緊急使用。 （由於沒有經過最終的臨床3期試驗，緊急使用的弊處可能出現兩種情況，一是疫苗實際上的保護作用並不強，二是可能出現副作用。
+
+3.美國疾病控制與預防中心（CDC）主任雷德菲爾德（Robert Redfield）8月20日在接受《美國醫學會雜誌》（JAMA）採訪時表示，目前可能有多達6000萬美國人感染了中共病毒。
+
+二、新中國聯邦新聞
+
+1.“路德訪談“8月23日晚間節目爆料：
+
+a．習近平的建築藝術項目：中共歷屆政治局委員、常委家族的子女和私生子女散佈在各個國家，他們正在通過手中掌握的的巨額財富滲透、或直接進入西方政壇，控制世界政治。中共最高層對此早有秘密調查和記錄。以習近平為例，記錄其私生子女的生物和財富地圖的代號被稱為“習近平的建築藝術項目”。郭文貴先生掌握“建築藝術項目“的內容以及令谷之死的全部錄音，這是美國司法部8月17日的公開文件中提到習近平不惜以犧牲朝鮮金家生物基因信息、釋放美國在華間諜以及接受美國遣返非法移民為交換條件，要求遣返郭文貴先生的原因。
+
+b. 習近平當年被江澤民隔代指定為中共領導人的原因是，習近平夫人彭麗媛的情人是總政歌手閻維文，閻維文同時又與宋祖英關係曖昧，閻通過宋祖英向江澤民推薦了習近平，使之最後得以成為王儲。彭麗媛是閻維文之女閻晶晶與中共前外交部長李肇星之子李禾禾的婚姻介紹人，外界懷疑閻晶晶實為彭、閻私生女。
+
+(路德訪談本期鏈接[https://www.youtube.com/watch?v=ONC9oQakujw&amp;t=4744s](https://www.youtube.com/watch?v=ONC9oQakujw&amp;amp;t=4744s) )
+
+2.美國宣告製裁11名香港官員及中共涉港官員，使用美元結算的金融機構可能會拒絕向這些受制裁的官員提供服務，為此中共銀保監會表示堅定支持中資金融機構為這些官員提供金融服務。
+
+3.今天長江2020年第5號洪水已通過三峽水庫。
+
+4.一個稱跟微信所有者沒有關聯的微信用戶組於美國時間週五對特朗普政府提起訴訟，尋求阻止一項禁止與微信進行交易的行政命令。
+
+5.香港公務員事務局日前向特區政府部門主管發信，稱若有正處於試用期的公務員，因參與非法公眾活動被捕並被控告，可被解僱。
+
+6.香港新成立的學生組織“教育野”發言人鄭家朗與退休教師陳智聰及區議員蔣旻正8月21日召開記者會，發表公開信要求教育局撤回通識教科書政治審查。鄭家朗同時表示，港版國安法實施之後，教育的紅線愈收愈窄。
+
+三、世界新聞
+
+1.星期天（8月23日），川普總統競選連任陣營在美國共和黨舉行全國代表大會的前夜，發表了第二任期施政綱領。綱領中列出了在經濟、教育、外交政策與國防等十大領域的施政重點，包括在未來10個月當中創造1000萬個工作機會，在2021年帶領國家脫離中共病毒疫情、並恢復正常，以及維持和擴大美國無以倫比的軍事力量。施政綱領將“終止對中共國的依賴”排在十大重點施政領域的第三位，其內容包括從中共國撤回100萬個製造業工作機會並對相關美國企業提供稅收減免，不允許那些將工作機會外包給中共國的公司獲得聯邦政府合同，以及要中共為讓中共病毒向世界擴散負完全責任。
+
+2.當地時間23日晚，大批白俄羅斯抗議者不畏懼強權，不對獨裁讓步，繼續聚集在首都明斯克總統官邸附近抗議盧卡申科選舉舞弊。盧卡申科與普京密談後，乘武裝直升機回到官邸，並手拿AK47突擊步槍，威嚇白俄羅斯市民。
+
+3. 伊朗週日（8月23日）表示，從被擊落的烏克蘭客機的黑匣子中分析發現，這架客機在被第一枚飛彈擊中並發生爆炸後的19秒中，飛機上的乘客尚未死亡，但25秒後，第二枚導彈擊中飛機。
+
+4.在今年的黑帽大會（Black Hat）上，台灣網絡安全公司CyCraft的研究人員展示了中共黑客使用“萬能鑰匙注入器”（Skeleton key injector）技術，在過去兩年中攻擊台灣芯片公司，竊取盡可能多的知識產權，包括源代碼、軟件開發套件和芯片設計的細節。台灣製造了全世界2/3的半導體，而中共國則是世界最大的半導體進口國。台灣芯片公司成為中共國黑客目標的原因在於：一是台灣芯片產業發展很早，基礎深厚；二是半導體人才也非常充分；另外，在國際供應鍊和整個經營上，台灣有長期的經驗及相互的信任關係。
+
+四、時事點評
+
+1.《美國夏威夷州立法院對戴維斯起訴書》（中文翻譯）( [https://gnews.org/zh-hans/312937/](https://gnews.org/zh-hans/312937/) )
+
+2.《習近平的建築藝術項目是什麼》（ [https://gnews.org/zh-hans/314172/](https://gnews.org/zh-hans/314172/) ）
 
 
 
-視頻重點
-
-1. 8月16日 四川雅安寶興縣暴雨致國道351線中斷。路基懸空 路面塌陷！國道是全國性政治、經濟意義的主要幹線公路，大陸全國的交通建設工程總經費雖高，貪汙舞弊回扣金額也超乎想像巨大，導致工程建設品質低劣，大雨一來，國道不堪檢驗。
-2. 國家防汛抗旱總指揮部秘書長周學文高調宣稱“大水之年往往是豐收之年。但據大陸民間的消息，今年的罕見大雨加上中共無預警洩洪，大面積農田被毀，今年收成堪憂，甚至可能絕收。
-3. (CNBC，8月17日）關於華為的最新消息，據路透社報導，川普政府將進一步加緊對中共國公司華為的限制。 報導指出，商務部將採取行動防止華為在沒有特殊許可證的情況下獲得半導體，包括由外國公司使用美國軟件或技術開發或生產的晶片。
-4. （Miles Guo. 8月16日）這個UAE的變化，現在大家知道的事情，中國共產黨根本不知道人家就建交了。 這是多麼的打臉哪。  因為這意味著中共整個一帶一路戰略、整個中東戰略、整個東非北非的徹底失敗。
-
-
-1. 5. On August 16, in Ya’an, Sichuan, rain-induced flood cut off National Highway 351. The road foundation hanged in the air, while the road surface collapsed. National Highways are strategic infrastructure projects that involve many political and economic stakes. Because of the corruption at every level of these projects, which have extremely expensive price but horribly bad quality, to certain extent, these roads couldn’t even stand against the challenge of heavy rain.
-2. 6. Zhou Xuewen, Secretary-General of the State Flood Control and Drought Relief Headquarters said, “the year of the flood is often the year of harvest.” But people know the truth, as the flood caused by the heavy rains and the unwarned release of surging water from the dams already destroyed the harvest. The risk of food shortage is very high.
-3. (CNBC) Breaking news now on Huawei. Reuters is reporting that the Trump administration will further tighten restrictions on the Chinese company. That report says the Commerce Department will move to prevent Huawei from obtaining semiconductors without a special license that includes chips made by foreign firms developed or produced using U.S. software or technology.
-4. (Miles Guo, August 16) The UAE’s change of stance in the Middle East, as we all have heard, UAE and Israel established their diplomatic relations without the CCP acknowledging it in advance. What a slap in the face. For the cause of taking down the CCP, the significance of such move is tremendous.
-
-
-0
+1
