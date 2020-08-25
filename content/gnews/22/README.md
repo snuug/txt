@@ -1,29 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國又現新疫情新病毒: 安徽壽縣493人發熱腹瀉已關閉涉事自來水廠
-`2020-08-24 22:33 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/315408/)
+## 比爾·戈茨談中共高層內鬥如同蘇聯政權一樣正在走向滅亡（西班牙語Spanish+中文Chinese+英文English）
+`2020-08-25 05:31 GM62` [轉載自GNews](https://gnews.org/zh-hant/315201/)
 
-作者：玫瑰天空
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24221806/1-96.jpg)
-在疫情肆虐洪水泛濫的時刻,2020年8月23日中國境內又傳新消息! 又出現新的疫情,新的病毒,各大媒體報刊均爭相報導,新疫情又給了普通民眾一記重擊! 這是新一輪開始,還是又一個接力?
+翻譯：謎擬Q 校對：帅虎 視頻：小羽
 
-所有中國媒體傳遞的信息與事實相距有多遠,大家都心照不宣,數位的報導一直是某些人的遊戲的一部分。 只是可以確認的資訊是:新疫情,新病毒又開始新一輪蔓延。據中國人民網合肥8月23日北京時間19:35發出報導,安徽淮南市壽縣衛生健康委員會發出通報:壽縣保義鎮發生發熱腹瀉病事件。
+西班牙語標題 Bill Goetz: las luchas internas de alto nivel en el PCCh es como la Unión Soviética estaba encaminando rumbo a la derrota
 
-通報稱,8月20日以來,壽縣保義鎮居民493人陸續出現發熱嘔吐、腹痛腹瀉癥狀,壽縣立即成立處置工作領導組,迅速開展人員治療工作,其中縣醫院、縣中醫院收治289人,目前病人病情普遍好轉,部分病人已治癒出院。
+中文簡介
+比爾·戈茨談中共高層內鬥如同蘇聯政權一樣正在走向滅亡 川普總統對華為下的又一個重錘。
 
-據省市縣聯合調查組初步調查,判定為志賀氏菌感染所引起。 為防止水體感染,保義鎮自來水廠已於8月21日關閉,有關處置工作正在進一步進行中。安徽壽縣近五百人嘔吐腹瀉,初步判定為志賀氏菌感染。
+Bill Goetz: las luchas internas de alto nivel en el PCCh es como la Unión Soviética estaba encaminando rumbo a la derrota. El presidente Trump está dando otro martillazo a Huawei
 
-新聞回顧:
 
-據瀟湘晨報報導,安徽淮南壽縣保義鎮多名村民反映,鎮上數百人於近日出現腹瀉和發熱情況,疑似因洪水過後自來水出現問題。 對此,壽縣人民政府工作人員告訴瀟湘晨報,從8月20日開始接到反映,全縣有400多人出現腹瀉、發熱癥狀,目前仍有200多人在住院。 現在也懷疑是自來水出現問題,省市已經派來專家在調查,一定會給出調查結果。
-
-以上數位相關信息取自中國媒體,與事實相距多遠無可考證。 所謂調查,武漢是曾經調查過的案例,結果可想而知。 國內百姓面臨接踵而至的一輪輪天災人禍唯一可以做的是:自救!
-
-援引:[http://ah.people.com.cn/n2/2020/0823/c358266-34245455.html](http://ah.people.com.cn/n2/2020/0823/c358266-34245455.html) 。
-
-[http://www.bjnews.com.cn/news/2020/08/23/761566.html。](http://www.bjnews.com.cn/news/2020/08/23/761566.html。)
-
-[https://m.sohu.com/a/414525634\_116237/?pvid=000115\_3w\_a。](https://m.sohu.com/a/414525634_116237/?pvid=000115_3w_a。)
 
 0
