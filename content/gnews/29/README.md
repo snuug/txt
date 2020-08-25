@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/17 CCP病毒每日疫情直播簡報
-`2020-08-24 10:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/314991/)
+## 王毅PK胡叼盤批美國傲慢的引用新詞“飛去來器”
+`2020-08-24 20:56 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/315235/)
 
-英語標題 CCP Virus Pandemic Updates Ep 206: Flood in China. Unwarned release of surging water from the dams
+喜馬拉雅聯盟加拿大農場熊媽媽
+[!\[Chinese foreign minister berates Canadian reporter for asking ...\](https://i.cbc.ca/1.3611579.1464817413!/cpImage/httpImage/image.jpg_gen/derivatives/16x9_780/cda-china-20160601.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.cbc.ca%2Fnews%2Fpolitics%2Fchinese-foreign-minister-berates-reporter-1.3611510&amp;psig=AOvVaw3lK3JPygkBIlSqNprgaMI9&amp;ust=1598400829812000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCIDN_KKJtesCFQAAAAAdAAAAABAD)圖片來源：CBC 
+8月24日，中共黨媒刊文《王毅：強行“脫鉤”如“飛去來器”，最終傷及自身》，報導了國務委員兼外長王毅24日在廣西北海同匈牙利外交與對外經濟部長西亞爾托會談後答記者問的講話。
 
+王毅表示，所謂“脫鉤”論調既不可行，也不合理。如果只是對此進行政治操弄，則是無視自身發展需要，損害普通民眾的福祉，是一條注定走不通的死路。
 
+王毅此說，主要想將“脫鉤”歸結於美國“政治操弄”，表明中共膽怯於華盛頓將“中共”與“中國人民”完全區分，既中共不代表中國人民，試圖苟延殘喘押注11月美國總統大選。
 
-視頻重點
+王毅稱美國如果“脫鉤”必將像“飛去來器”一樣，最終傷及自身。他指出：有些國家對中國的經濟運行提出一些意見和期待，我們認為這都是發展中的問題，必將隨著中國進一步深化改革、擴大開放而得到妥善解決。
 
-1. 8月16日 四川雅安寶興縣暴雨致國道351線中斷。路基懸空 路面塌陷！國道是全國性政治、經濟意義的主要幹線公路，大陸全國的交通建設工程總經費雖高，貪汙舞弊回扣金額也超乎想像巨大，導致工程建設品質低劣，大雨一來，國道不堪檢驗。
-2. 國家防汛抗旱總指揮部秘書長周學文高調宣稱“大水之年往往是豐收之年。但據大陸民間的消息，今年的罕見大雨加上中共無預警洩洪，大面積農田被毀，今年收成堪憂，甚至可能絕收。
-3. (CNBC，8月17日）關於華為的最新消息，據路透社報導，川普政府將進一步加緊對中共國公司華為的限制。 報導指出，商務部將採取行動防止華為在沒有特殊許可證的情況下獲得半導體，包括由外國公司使用美國軟件或技術開發或生產的晶片。
-4. （Miles Guo. 8月16日）這個UAE的變化，現在大家知道的事情，中國共產黨根本不知道人家就建交了。 這是多麼的打臉哪。  因為這意味著中共整個一帶一路戰略、整個中東戰略、整個東非北非的徹底失敗。
+王毅批評美國引用了新詞“飛去來器”，創意堪比新華社“胡叼盤”主編。王部長是不是可以抽空維基一下，查一查“飛去來器”的真正意思？無知不可怕，但是傲慢的無知就很可怕了！中共擔心美國真正“脫鉤”，擀麵杖子經濟徹底崩塌，向美國解釋是“發展中的問題”，繼續欺騙拖延美國，稱其可以得到妥善解決。
 
+王毅還說，作為獨立主權國家，我們當然都有必要維護各自的經濟主權包括數字網絡主權，但這絕不意味著彼此向對方關閉市場，而是要使我們之間的經濟融合更加規範，我們的相互開放更可持續。任何與中國“脫鉤”的企圖，都是與未來全球的最大市場“脫鉤”，與自身發展的重大機遇“脫鉤”，與不可阻擋的時代潮流“脫鉤”。
 
-1. 5. On August 16, in Ya’an, Sichuan, rain-induced flood cut off National Highway 351. The road foundation hanged in the air, while the road surface collapsed. National Highways are strategic infrastructure projects that involve many political and economic stakes. Because of the corruption at every level of these projects, which have extremely expensive price but horribly bad quality, to certain extent, these roads couldn’t even stand against the challenge of heavy rain.
-2. 6. Zhou Xuewen, Secretary-General of the State Flood Control and Drought Relief Headquarters said, “the year of the flood is often the year of harvest.” But people know the truth, as the flood caused by the heavy rains and the unwarned release of surging water from the dams already destroyed the harvest. The risk of food shortage is very high.
-3. (CNBC) Breaking news now on Huawei. Reuters is reporting that the Trump administration will further tighten restrictions on the Chinese company. That report says the Commerce Department will move to prevent Huawei from obtaining semiconductors without a special license that includes chips made by foreign firms developed or produced using U.S. software or technology.
-4. (Miles Guo, August 16) The UAE’s change of stance in the Middle East, as we all have heard, UAE and Israel established their diplomatic relations without the CCP acknowledging it in advance. What a slap in the face. For the cause of taking down the CCP, the significance of such move is tremendous.
+王毅刻意提出“獨立主權國家”，充分說明了世界正義力量已經不認為中共靠獨裁、強權、剝削老百姓的政權合法性。強調“數字網絡主權”，也證明了中共科技公司，包括華為、阿里巴巴、騰訊等做為中共竊取其他國家安全信息的媒介，近期遭受世界各國的抵制與驅替，已經無力回天。至於與全球的最大市場、重大機遇、時代潮流“脫鉤”，那是中共與世界脫鉤，不代表老百姓與世界脫鉤，沒有了中共的邪惡，老百姓經歷陣痛之後的活力會極大迸發出來。
 
+最近披露的美國司法部文件，開始了美國國家反共的步伐，中共一直利用國家級力量試圖遣返郭文貴先生以及阻止新中國聯邦的成立，那麼中共央視清晰播放了新中國聯邦的戰艦Lady May和國旗，而且視頻顯示Lady May氣勢恢宏，國旗迎風飄揚，這是不是算作是你們這些所謂的高級官員惡意放出的“飛去來器”最終傷及自身了呢？
 
 0
