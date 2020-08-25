@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 也談蔡霞“退休待遇”被取消
-`2020-08-24 03:20 GM30` [轉載自GNews](https://gnews.org/zh-hant/314553/)
+## 【中英文視頻版】2020/08/17 CCP病毒每日疫情直播簡報
+`2020-08-24 10:00 GM62` [轉載自GNews](https://gnews.org/zh-hant/314991/)
 
-**作者：陽光透林**
+英語標題 CCP Virus Pandemic Updates Ep 206: Flood in China. Unwarned release of surging water from the dams
 
-近日，中共黨內的紅二代人物蔡霞女士被其組織開出黨籍，並同時被取消了“退休待遇”。本文對“退休待遇”打上引號，是因爲感覺有點名不副其實，要重點說這事。
 
-蔡霞供職于中共中央黨校，職務教授，幹到退休年齡現已“退休”。因發表了令黨魁極爲不滿的言論，遭到單位把“退休待遇”連同黨籍一起捆綁懲罰。爲此，引來了社會上廣泛的議論和譴責。
 
-蔡女士可以算是體制內人物，在中央黨校這樣的部級單位工作，比大多數普通人來說有著體面的工作和生活。如果蔡女士像沈默的多數那樣保持三緘其口，不惹事，不去“妄議”組織，估計現在應該不會生活有虞。現在，蔡女士置自己的穩定生活于不顧，敢于公開站出來質疑和挑戰最高統治者及其組織，可以說是勇氣頗嘉，不僅值得贊賞，而且還值得人們十分的敬佩。這一點是毫無疑問的。
+視頻重點
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24031717/20201708_CH_%E9%BB%A8%E6%A0%A1%E6%95%99%E6%8E%88%E8%94%A1%E9%9C%9E-1.jpg)
+1. 8月16日 四川雅安寶興縣暴雨致國道351線中斷。路基懸空 路面塌陷！國道是全國性政治、經濟意義的主要幹線公路，大陸全國的交通建設工程總經費雖高，貪汙舞弊回扣金額也超乎想像巨大，導致工程建設品質低劣，大雨一來，國道不堪檢驗。
+2. 國家防汛抗旱總指揮部秘書長周學文高調宣稱“大水之年往往是豐收之年。但據大陸民間的消息，今年的罕見大雨加上中共無預警洩洪，大面積農田被毀，今年收成堪憂，甚至可能絕收。
+3. (CNBC，8月17日）關於華為的最新消息，據路透社報導，川普政府將進一步加緊對中共國公司華為的限制。 報導指出，商務部將採取行動防止華為在沒有特殊許可證的情況下獲得半導體，包括由外國公司使用美國軟件或技術開發或生產的晶片。
+4. （Miles Guo. 8月16日）這個UAE的變化，現在大家知道的事情，中國共產黨根本不知道人家就建交了。 這是多麼的打臉哪。  因為這意味著中共整個一帶一路戰略、整個中東戰略、整個東非北非的徹底失敗。
 
-可是，中共是什麽組織，按蔡女士的說法屬于黑幫，黨魁則屬黑幫老大。事實正是如此，中共是黑幫組織，那麽黑幫組織開辦的像黨校這樣的單位，那必定不是什麽生産或勞動場所，其職能則是替黑幫組織培養和訓練一批批黑社會的骨幹分子，去危害社會，欺壓和魚肉百姓，也是爲黑幫控制社會，打造未來黑幫接班人提供首要分子保障。
 
-既然黨校不是生産或勞動場所，而是黑幫從事活動的場子，那麽蔡女士“退休”前也就算不上是在勞動崗位上從事生産勞動而“退休”，頂多算是爲一個組織賣身效命到了一定年齡，比照生産或勞動單位去定期領取可以“洗手不幹”的養老賞金而已。這種賞金表面上看似“退休金”，但在內容上與真正意義的勞動退休金有著本質的區別。領取退休金是法治國家的法定待遇，而獲取賞金則是黑幫按幫規許諾的待遇，前者在法理上是個人勞動所得，屬于私有財産神聖不可侵犯，而後者則不然，屬于黑幫對個人的賞賜，個人能不能獲取賞金，不在于個人是否曾經做出過付出，而是在于個人是否聽黑幫老大的話，遵從幫規。蔡女士既然加入了黑幫，入了夥，則必然要按黑幫的規矩辦。
+1. 5. On August 16, in Ya’an, Sichuan, rain-induced flood cut off National Highway 351. The road foundation hanged in the air, while the road surface collapsed. National Highways are strategic infrastructure projects that involve many political and economic stakes. Because of the corruption at every level of these projects, which have extremely expensive price but horribly bad quality, to certain extent, these roads couldn’t even stand against the challenge of heavy rain.
+2. 6. Zhou Xuewen, Secretary-General of the State Flood Control and Drought Relief Headquarters said, “the year of the flood is often the year of harvest.” But people know the truth, as the flood caused by the heavy rains and the unwarned release of surging water from the dams already destroyed the harvest. The risk of food shortage is very high.
+3. (CNBC) Breaking news now on Huawei. Reuters is reporting that the Trump administration will further tighten restrictions on the Chinese company. That report says the Commerce Department will move to prevent Huawei from obtaining semiconductors without a special license that includes chips made by foreign firms developed or produced using U.S. software or technology.
+4. (Miles Guo, August 16) The UAE’s change of stance in the Middle East, as we all have heard, UAE and Israel established their diplomatic relations without the CCP acknowledging it in advance. What a slap in the face. For the cause of taking down the CCP, the significance of such move is tremendous.
 
-鑒于此，蔡女士被取消“退休待遇”，按黑幫的規矩，一點沒有犯規，而是“規”所當然。
-
-重點是，聽說蔡女士或有人爲蔡女士打抱不平，打算或提議去打官司爭回待遇。在本人看來，這不僅是異想天開，而且于情于理也必然行不通。首先，在大陸，法院是誰家開的店，是法大還是權大？其次，本是賞金，而非退休金，哪裏存在什麽法治根據可以“依法”去爭取呢？再其次，如果要按法理去爭取，那麽豈不是間接的承認了大陸的衙門不是黑幫所開的店，而是法治國家的機關了，那蔡女士所指的黑幫組織又是指誰了呢？豈不是自相矛盾？爲此，還是請打住爲好。
-
-此外，對蔡女士本人來講，就現在的認識看，你是投錯了行，就曾經的行爲事實看，你不僅沒有參加過任何生産勞動，反而培養了一批批黑幫骨幹，是在爲這座高牆付出的是添磚加瓦，不僅沒有勞動貢獻，反而屬于有過之人，增加了未來人們推牆的成本。因此，既然已經覺醒，看清了那個組織，現又被剝奪了“退休待遇”，你不該把它看作是一種物質損失，而應把它視爲對自己過去行爲的一種“贖罪”。更進一步而言，就算沒被取消這種“退休待遇”，本人也應該主動拒絕再接受這種恩賜去“領賞”，從身份和物質上徹底與黑幫劃清界限，以便在心靈上獲取最大的欣慰和救贖。
-
-（文章內容僅代表作者觀點）
 
 0

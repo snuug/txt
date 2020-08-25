@@ -1,28 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆封城次生災難凸顯
-`2020-08-24 08:25 GM01` [轉載自GNews](https://gnews.org/zh-hant/314884/)
+## 8月24日財經快訊: A股排隊圈錢, Zoom突然失靈
+`2020-08-24 20:07 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/315202/)
 
-國內新聞作者:背靠背
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24192826/Picture1-3.png)圖片來源：DownDetector截圖（圖為Zoom在美國大部分地區突然失靈） 
+[1. A股排隊圈錢中，證監會IPO預先披露文件顯示8月截至近日已有至少7家企業等待上市。](http://www.csrc.gov.cn/pub/newsite/fxjgb/yxpl/index.htm)
 
-2020年8月20日早晨，瑞盛社區15個人早上被強迫集中喝藥。瑞盛社區是新疆烏魯木齊市米東區盛達東路片區下轄的社區。視頻中的藥是蓮花清瘟膠囊，另壹種疑似鹽酸阿比朵爾。
-上面瑞盛社區發生的事情，只是整個新疆社區冰山壹角，社區如監獄，老百姓如囚徒，失去基本人的自由，由於被隔離沒有工作，他們面臨經濟上失去支持，老人孩子生病了不能看病，社區後勤保障缺位，缺乏幹凈的食品、醫療救助、藥品、水等。
+[2. Zoom大面積斷播。視頻會議公司Zoom今日在北美，尤其是東海岸地區發生大規模無徵兆斷播現象，由於疫情原因許多公司和學校採取遠程辦公教學，許多用戶對此表示十分憤怒](https://www.gizmodo.com.au/2020/08/zoom-is-down-at-the-worst-possible-time/)
 
+[3.中共外儲淨值跌破萬億：外匯管制加劇，樓市股市危矣。中共外匯管理局發布了一季度外債數據，外債總額頭寸一季度增加373億美元，儲備淨額只有9660億美元。](http://cn.secretchina.com/news/gb/2020/08/24/943666.html)
 
+[4.世界央行行長視訊會議將在本週四，週五召開。美聯儲主席傑伊·鮑威爾表達了希望使通貨膨脹率維持在2%的目標，以抵消經濟低迷的預期](https://www.reporter.am/what-steps-will-central-bankers-reveal-at-jackson-hole-summit/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24080555/unknown-6.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24080651/unknown-1-1.png)
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081245/unknown-2-1.png)新疆某居委會（陳萍農大社區負責3區2-6號樓工作）： “告誡各位居民，能吃兩頓飯的吃壹頓飯，能吃三頓飯的吃兩頓飯，節約資源。少倒垃圾、塑料袋之類的東西。”該工作人員還禁止高血壓患者出門買降壓藥。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081645/unknown-3-1.png)中共政府進行嚴格言論管制，刪帖，刪微博，要求民眾註銷微博賬號。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081759/unknown-4-2.png)武漢暴力隔離模式，推行到新疆烏魯木齊。普通老百姓喪失基本人權，沒有尊嚴。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24081914/unknown-5-2.png)違反中共強制隔離規定，被暴力執法，以黑執法。社區居民被拷在路邊，當街示眾，警告其他社區居民。
-
-武漢疫情強制隔離模式，成為各地應對中共病毒疫情標準，隨著中共病毒疫情發展，疫情造成的次生災難超越中共病毒本身帶來的傷害。
+**新聞整理：CPA Jim & Mr 
+ 【密翻組·金融法律組】**
 
 0

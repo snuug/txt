@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/16 CCP病毒每日疫情直播簡報
-`2020-08-24 08:56 GM62` [轉載自GNews](https://gnews.org/zh-hant/314873/)
+## 王毅PK胡叼盤批美國傲慢的引用新詞“飛去來器”
+`2020-08-24 20:56 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/315235/)
 
-戰友之家圖文摘要及小語種組
+喜馬拉雅聯盟加拿大農場熊媽媽
+[!\[Chinese foreign minister berates Canadian reporter for asking ...\](https://i.cbc.ca/1.3611579.1464817413!/cpImage/httpImage/image.jpg_gen/derivatives/16x9_780/cda-china-20160601.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.cbc.ca%2Fnews%2Fpolitics%2Fchinese-foreign-minister-berates-reporter-1.3611510&amp;psig=AOvVaw3lK3JPygkBIlSqNprgaMI9&amp;ust=1598400829812000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCIDN_KKJtesCFQAAAAAdAAAAABAD)圖片來源：CBC 
+8月24日，中共黨媒刊文《王毅：強行“脫鉤”如“飛去來器”，最終傷及自身》，報導了國務委員兼外長王毅24日在廣西北海同匈牙利外交與對外經濟部長西亞爾托會談後答記者問的講話。
 
-[English\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085037/English_0816_CCP_Virus_Updates.pdf)
+王毅表示，所謂“脫鉤”論調既不可行，也不合理。如果只是對此進行政治操弄，則是無視自身發展需要，損害普通民眾的福祉，是一條注定走不通的死路。
 
-[French\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085008/French_0816_CCP_Virus_Updates.pdf)
+王毅此說，主要想將“脫鉤”歸結於美國“政治操弄”，表明中共膽怯於華盛頓將“中共”與“中國人民”完全區分，既中共不代表中國人民，試圖苟延殘喘押注11月美國總統大選。
 
-[German\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085033/German_0816_CCP_Virus_Updates-2.pdf)
+王毅稱美國如果“脫鉤”必將像“飛去來器”一樣，最終傷及自身。他指出：有些國家對中國的經濟運行提出一些意見和期待，我們認為這都是發展中的問題，必將隨著中國進一步深化改革、擴大開放而得到妥善解決。
 
-[Japanese\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085004/Japanese_0816_CCP_Virus_Updates.pdf)
+王毅批評美國引用了新詞“飛去來器”，創意堪比新華社“胡叼盤”主編。王部長是不是可以抽空維基一下，查一查“飛去來器”的真正意思？無知不可怕，但是傲慢的無知就很可怕了！中共擔心美國真正“脫鉤”，擀麵杖子經濟徹底崩塌，向美國解釋是“發展中的問題”，繼續欺騙拖延美國，稱其可以得到妥善解決。
 
-[Korean\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085029/Korean_0816_CCP_Virus_Updates.pdf)
+王毅還說，作為獨立主權國家，我們當然都有必要維護各自的經濟主權包括數字網絡主權，但這絕不意味著彼此向對方關閉市場，而是要使我們之間的經濟融合更加規範，我們的相互開放更可持續。任何與中國“脫鉤”的企圖，都是與未來全球的最大市場“脫鉤”，與自身發展的重大機遇“脫鉤”，與不可阻擋的時代潮流“脫鉤”。
 
-[Russian\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085018/Russian_0816_CCP_Virus_Updates.pdf)
+王毅刻意提出“獨立主權國家”，充分說明了世界正義力量已經不認為中共靠獨裁、強權、剝削老百姓的政權合法性。強調“數字網絡主權”，也證明了中共科技公司，包括華為、阿里巴巴、騰訊等做為中共竊取其他國家安全信息的媒介，近期遭受世界各國的抵制與驅替，已經無力回天。至於與全球的最大市場、重大機遇、時代潮流“脫鉤”，那是中共與世界脫鉤，不代表老百姓與世界脫鉤，沒有了中共的邪惡，老百姓經歷陣痛之後的活力會極大迸發出來。
 
-[Spanish\_0816\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/24085014/Spanish_0816_CCP_Virus_Updates.pdf)
-
-
+最近披露的美國司法部文件，開始了美國國家反共的步伐，中共一直利用國家級力量試圖遣返郭文貴先生以及阻止新中國聯邦的成立，那麼中共央視清晰播放了新中國聯邦的戰艦Lady May和國旗，而且視頻顯示Lady May氣勢恢宏，國旗迎風飄揚，這是不是算作是你們這些所謂的高級官員惡意放出的“飛去來器”最終傷及自身了呢？
 
 0
