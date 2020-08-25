@@ -1,30 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共全軍組織面向社會公開招考文職人員——正式開啓打造文職大軍
-`2020-08-25 04:08 GM64` [轉載自GNews](https://gnews.org/zh-hant/315797/)
+## 比爾·戈茨談中共高層內鬥如同蘇聯政權一樣正在走向滅亡（西班牙語Spanish+中文Chinese+英文English）
+`2020-08-25 05:31 GM62` [轉載自GNews](https://gnews.org/zh-hant/315201/)
 
-國內新聞作者：快慢機
+翻譯：謎擬Q 校對：帅虎 視頻：小羽
 
-根據頒布實施的新《中國人民解放軍文職人員條例》及有關政策規定，中共中央軍委政治工作部將全面組織實施，全軍面向社會公開招考文職人員的相關工作。
+西班牙語標題 Bill Goetz: las luchas internas de alto nivel en el PCCh es como la Unión Soviética estaba encaminando rumbo a la derrota
 
-2020年全國有近27萬余名考生參加公共科目和專業科目考試。
-2020年國家公務員考試參考人數爲96萬。
-從近幾年的國家公務員考試統計數據來看，同比參考人數是在逐年遞減。而同期報名參考軍隊文職人員的數量則在逐年增加。
+中文簡介
+比爾·戈茨談中共高層內鬥如同蘇聯政權一樣正在走向滅亡 川普總統對華為下的又一個重錘。
 
-對比後原因應該是軍方文職人員薪資待遇對比當地公務員工資水平來講的確提高了不少。
-相對報考競爭壓力也要小很多。
+Bill Goetz: las luchas internas de alto nivel en el PCCh es como la Unión Soviética estaba encaminando rumbo a la derrota. El presidente Trump está dando otro martillazo a Huawei
 
-中共軍方曆來注重黨性洗腦文化的灌輸。
-黨指揮槍，黨性大過人性是中共軍方的傳統理念。
 
-中共的核心就是假，黑，騙！靠著無處不在的龐大宣傳機器。時時刻刻在給體制內的黨奴洗腦。
-
-中共軍方是中共僞政權的國家暴力機器。
-槍杆子是必須要時刻掌握在共黨手中的。
-中共在此時大力全面推廣建設文職大軍，其用意無非是打造一支必須無條件。
-
-聽黨話，跟黨走，黨讓幹啥就幹啥的
-赤色匪軍，文職大軍的全面鋪開，將開啓中共軍方內部新一輪的洗腦風暴。
 
 0
