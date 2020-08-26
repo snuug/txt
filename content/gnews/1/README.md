@@ -1,52 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的陰謀:利用疫情讓世界失去自由、經濟崩塌
-`2020-08-26 04:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/317506/)
+## 【世界多語言圖文】2020/08/18 CCP病毒每日疫情直播簡報
+`2020-08-26 08:36 GM62` [轉載自GNews](https://gnews.org/zh-hant/317735/)
 
-![Would China's Draconian Coronavirus Lockdown Work Anywhere Else ...](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26043741/1-125.png)
-**圖片來源：時代周刊** **(Time)**
+戰友之家圖文摘要及小語種組
 
-據Gateway Pundit 8月25日報導，中共在2019年底向世界投放了CCP病毒，隨後以武漢人民的痛苦為代價，用假病毒數據讓其他國家效仿他們在武漢的鐵腕抗疫政策，以達到讓世界經濟崩塌的目的。
+[English\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083043/English_0818_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083043/English_0818_CCP_Virus_Updates.pdf)
 
-一位支持香港運動的美國人麥克·星克(Michael Senger)在推特上用一連串的推文點出了這個陰謀。
+[French\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083050/French_0818_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083050/French_0818_CCP_Virus_Updates.pdf)
 
-**中共的宣傳工具主要是西方的社交媒體**
+[Japanese\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083046/Japanese_0818_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083046/Japanese_0818_CCP_Virus_Updates-1.pdf)
 
-意大利是這個陰謀的首要目標。早在三月份，中共利用社交媒體鋪天蓋地地為鐵腕抗疫政策（中共不顧死活，強行把老百姓困在家裡的做法）做宣傳，並在感染數據上造假，讓世界相信這個做法的有效性。中共知道，只要意大利效仿中國的抗疫模式，封鎖國家和經濟，其他國家也會效仿!
+[Korean\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083054/Korean_0818_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083054/Korean_0818_CCP_Virus_Updates.pdf)
 
-中共展開的社交媒體戰，不僅限於意大利。中共滲透了推特，並利用其在社交媒體上歌頌中共國的抗疫政策，讓全世界政府繼續實行封鎖式限制令(lock-down)。
+[Russian\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083058/Russian_0818_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083058/Russian_0818_CCP_Virus_Updates.pdf)
 
-麥克在推特上貼出了一篇有14萬人點讚的推文，推文上歌頌中共國在疫情中的表現。麥克指出，點讚的14萬人中，大部分是假的推特用戶。這些假用戶行動高度一致，之前在推特上轟炸的主要課題是病毒疫情，隨後在喬治·弗羅伊(George Floyd)事件和黑人抗議(BLM)事件期間，也步調一致地在社交媒體上大量轉推這些事件和相關課題。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26043816/2-45.png)
-紐約時報在6月18日的一篇報導中（原文[https://www.nytimes.com/2020/06/08/technology/china-twitter-disinformation.html](https://www.nytimes.com/2020/06/08/technology/china-twitter-disinformation.html) ）對這個現象進行剖析。文章出來後，推特公司封鎖了超過17萬個疑似中共特務的推特賬戶。麥克認為，這些賬戶肯定只是冰山一角！中共利用推特對全世界進行超限戰已經屢見不鮮。這場超限戰在社交媒體上的影響力是巨大的，到現在每天還在發生。
+[Spanish\_0818\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083101/Spanish_0818_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26083101/Spanish_0818_CCP_Virus_Updates.pdf)
 
-**中共用榮譽和金錢滲透西方科學界**
 
-美國先進科學協會在六月份（原文https://www.sciencemag.org/news/2020/06/fifty-four-scientists-have-lost-their-jobs-result-nih-probe-foreign-ties）的文章裡，報導了54名美國科學家跟外國勢力之間有利益勾兌，其中百分之93指向中共國。這些科學家已經被解僱。
-
-另外，美國自然科學協會也報導（原文https://www.nature.com/articles/d41586-020-02051-8），協會內有約18名科研人員沒有按規定申報與外國人或政府之間的聯繫。這些被調查的科研人員當中，大部分都接受了來自中共的榮譽或金錢。
-
-**華春瑩通過兒童視頻鼓吹中共的陰謀**
-
-中共發言人華春瑩6月17日用英文在推特上寫了這句話：“這位7歲小姑娘有的常識，為什麼大人沒有？”，並推出一個視頻。這個視頻利用童聲說出了中共陰謀裡的邏輯鏈：
-
-“因為新冠病毒，我很不開心。我不能上學，我看不到我的朋友。我不能去我喜歡的餐廳，我不能去派對。我不能去迪斯尼樂園。但我知道這一切的犧牲是值得的，我已經堅持呆在家兩個月了。
-
-我戴口罩、勤洗手，不去人多的地方，為了防止病毒擴散。
-
-**因為我知道，如果我不這樣做，我可能會受到感染，並把病毒感染給爸爸、媽媽和弟弟。如果他們被感染了，他們可能死去，我就看不到他們了。** ”
-
-這個邏輯鏈的核心是：讓所有人都呆在家裡，把家變成監獄，讓世界經濟陷入停頓。
-
-美國聯邦調查局局長克里斯托弗·雷(Christopher Wray)在最近的演講中說道：“中共一直企圖遊說我們從聯邦到州和地方的各級官員，讓我們支持和效仿中共鐵腕抗疫模式，要我們繼續實施封鎖式限制令(lock-down)。”
-
-除了美國，中共還在英國、非洲、印度、澳洲展開相同的社交媒體戰，主要的作戰平台是推特。
-
-直至今日，中共聲稱中國境內只有8萬人受感染CCP病毒。誰都知道，這個數據是垃圾！這方面的造假中共不是第一次幹，也不會是最後一次。
-
-[原文網址](https://www.thegatewaypundit.com/2020/08/confirmed-china-launched-massive-social-media-campaign-march-get-countries-adopt-stringent-coronavirus-lockdowns-destroy-economies/)
-
-**翻譯報導：** **XO** **醬**
 
 0
