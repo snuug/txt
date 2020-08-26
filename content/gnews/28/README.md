@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共蠶食東南亞的新手法
-`2020-08-25 10:40 GM36` [轉載自GNews](https://gnews.org/zh-hant/316412/)
+## 【世界多語言圖文】2020/08/17 CCP病毒每日疫情直播簡報
+`2020-08-25 11:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/316431/)
 
-編撰：JAY、文波、文肯尼審稿：艾文文橙
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25103913/825.png)
-**本文提要**   **：**
+戰友之家圖文摘要及小語種組
 
-中共國務院總理——李克強在北京出席瀾湄合作第三次領導人會議時表示，中共在完成新型冠狀病毒疫苗研製並投入使用後，將優先向湄公河國家提供。
+[English\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)
 
-李克強又說，中共將在瀾湄合作專項基金框架下，設立公共衛生專項資金，力所能及地向湄公河國家提供抗疫物資和技術支持。
+[French\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)
 
-李克強指出，國際社會團結合作攸關全球抗擊疫情大局，中共願與湄公河各國一起，支持世界衛生組織更好地發揮作用。
+[German\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)
 
-**評論：**
+[Japanese\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)
 
-據本文觀點分析，中共想輸出國內無用的醫療產能到國外，以拉攏周邊的東南亞國家，獲取國際政治支持。藉此向世界表明自己是慷慨負責的大國形象。中共此舉做法和過去對疫情放任處理以及對待國內疫情之行徑產生了極大的諷刺。
+[Korean\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)
 
-大多數項目是提供醫療協助和經濟支持，向世人展現出一副疫情好轉的跡象，經濟復甦的場景，以欺騙大多數國家，使其異想天開。在這樣的背景下，中共正好利用此機對“一帶一路”重新包裝，延續過去在該國家執行的侵略計劃
+[Russian\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)
 
-新聞鏈接：
+[Spanish\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)
 
-[https://news.rthk.hk/rthk/ch/component/k2/1545500-20200824.htm](https://news.rthk.hk/rthk/ch/component/k2/1545500-20200824.htm)
+
 
 0
