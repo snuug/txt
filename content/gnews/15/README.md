@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月25日財經快訊: 債務執行失敗, 中共襲擊金融市場
-`2020-08-25 09:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/316352/)
+## 喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
+`2020-08-25 12:38 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/316579/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25094443/image-2.jpg)圖片來源： [https://xotv.me](https://xotv.me/channels/233-economic-war-room/vod_videos/3387-hey-chinese-communist-party-you-break-it-you-pay-for-it) 
-1.中國一線城市司法強制執行債務失敗，被執行企業法人資不抵債已經進入破產程序： [廣州](http://zxgk.gzcourt.org.cn/) ， [北京](http://www.bjcourt.gov.cn/cpws/index.htm) 、 [上海](http://www.shezfy.com/page/sssw/index.html?lm=94&amp;pm=d0) 、 [深圳](http://wenshu.court.gov.cn/website/wenshu/181217BMTKHNT2W0/index.html?pageId=48d846081b3c4b683f3697e4dbd312f4&amp;s21=%E6%97%A0%E8%B4%A2%E4%BA%A7%E5%8F%AF%E4%BE%9B%E6%89%A7%E8%A1%8C&amp;s16=%E6%89%A7%E8%A1%8C%E6%A1%88%E7%94%B1&amp;s11=3200&amp;s2=%E6%B7%B1%E5%9C%B3&amp;s4=4&amp;s8=10) 。
+喜馬拉雅聯盟加拿大農場 文錦
 
-2.債務違約案件增加，曾經的廣州繁華地段房屋在網上公開進行司法拍賣： [阿里拍賣](https://sf.taobao.com/court_notice/2879138138.htm) ； [京東拍賣](https://auction.jd.com/sifa_list.html?provinceId=19) ：
+校對 小甜蝦
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25123308/image0-7.png)
+2020年8月25、26、 27日，喜馬拉雅聯盟加拿大農場將分別在溫哥華、多倫多和卡爾加里證監會進行示威。
 
-[3.經濟作戰室：Kevin Freeman解釋中國共產黨如何用圈錢襲擊美國資本市場](https://www.economicwarroom.com/kevin-freeman-explains-the-unrestricted-warfare-tactics-of-the-chinese-communist-party)
+此次示威, 主要有三個訴求：
 
-[4.中共疫情復甦模式擴大貧富差距](https://www.ft.com/content/e0e2940a-17cb-40ed-8d27-3722c9349a5d)
+1.解凍賬戶
 
-[5.美聯儲、哈佛法學院、賓夕法尼亞大學沃頓學院將在9月11日共同主辦有關銀行監管的研究會議。](https://www.federalreserve.gov/newsevents/pressreleases/other20200824a.htm)
+2.出示封賬戶證據
 
-6.將政治因素考慮進去後，需要重估中共科技股價值： [英國金融時報](https://on.ft.com/34uRHVO) ， [技術代碼網](https://technocodex.com/chinas-tech-giants-grapple-with-threats-at-home-and-abroad/)
+3.徹查誰在背後，為什麼誣告
 
-新聞整理：CPA Jim 
- 【密翻組·金融法律組】
+事情原委：
+
+戰友們自願、合法地向在美國紐約證交所登記、受美國法律監管的，律師、董事等一應俱全的、符合證券監管法的正規公司投資，由於誣告和中共藍金黃的深度滲透，加拿大的證監會濫用權力對農場的正規借款項目進行了粗暴干涉並凍結了農場借款項目在CIBC銀行上千萬美元的賬戶。 CIBC銀行從8月7日起以所謂“under review（審查中）”, 迫使農場收款賬戶只能進不能出，令賬戶無法彙款也不能退款。戰友查到早在5月份BC省證監會就發出了打擊G系列的文件，說明這不是單單個別銀行的決定，而是證監會的指令。可見證監會和G系列作對，這次是裡應外合一開始就做好了打擊所有G系列的準備。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25123210/000-1.png)圖片來源：bcsc.bc.ca 證監會網站
+我們的敵人遠不止盜國賊，很大一部分是海外與之勾兌的、企圖利用所謂“法律、法規”的金融機構對普通民眾和海外尋求有尊嚴生活的人的欺壓和玩弄。
+
+為了討回公道、維護合法權益和喜馬拉雅的形象。戰友們25日一早就在三地證監會前抗議示威。新中國聯邦旗飄揚在示威現場，鼓舞著士氣。戰友們高喊“SC Show Me The Proof”、“SC Stop Discriminating”、“Stop power abuse”、“We want justice”、“Himalaya Our Hope”、“GTV Rocks”、“Protect Investors! Return Our Money”、 “Give my money back!”等口號。
+
+喜馬拉雅聯盟加拿大農場不鳴則已、一鳴驚人。這次不只是在證監會現場示威，農場還在緊鑼密鼓地準備法律材料和律師資料，計劃在BC省和阿省同時起訴加拿大省證監會。
+
+作為新中國聯邦公民和爆料革命的戰友，一洗膽小怕事的華人刻板印象，不再忍受屈辱和莫須有的指責，齊齊站出來，在法律框架下維護我們的人權和財產權。中共在全球鋪開的法律超限戰、金融超限戰已逐漸暴露在世人面前，這也是他們最後的瘋狂。
+
+勇敢、執著、有正義感的戰友們一次次喊出支持GTV、支持喜馬拉雅，這都是華人的希望，我們一定要抗爭到底！
+
+參考鏈接：
+
+2020年08月25日喜馬拉雅加拿大證監會遊行https://www.youtube.com/watch?v=xQmjw2-6Ho4
+
+2020年8月21日金融時事欄目組主講老江——誰擋我們滅共，就戰誰！ https://www.youtube.com/watch?v=eOxtlH-zwcE&t=1672s
 
 0

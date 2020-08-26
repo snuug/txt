@@ -1,25 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/18 CCP病毒每日疫情直播簡報
-`2020-08-25 08:09 GM62` [轉載自GNews](https://gnews.org/zh-hant/316073/)
+## 黎智英被“腳軟”的中共黨媒報導羞辱了誰?
+`2020-08-25 10:15 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/316367/)
 
-英語標題 CCP Virus Pandemic Updates Ep 207:  Chinese Communist Party is essentially a criminal organization
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/11105102/1-34.png)圖片來源：蘋果日報截圖
+8月25日，大陸門戶網站搜狐新聞網的一篇文章《 [黎智英曾放話不怕被送到內地審訊突然又改口了：若因違法真被送去我腳軟](https://m.k.sohu.com/d/476200841?channelId=2063) 》值得玩味。
 
-視頻重點
+從標題可以看出，中共黨媒作者試圖想把“壹傳媒”集團創始人黎智英的形像從“英雄”轉變成“狗熊”。
 
-1. 8月18日上海市副市長，市公安局局長龔道安接受審查調查。上海市公安局局長落馬，暗示中共內部鬥爭極為激烈，中共本質就是黑幫組織，在追求利益和權力的過程中，一定會火拼。回看中共歷史幾十年來從未停止過內部鬥爭，而百姓卻成為附屬犧牲品。
-2. 截至18日6時，四川省知名景點樂山大佛(總高71米）佛腳平台再次進水，且洪水已漫過佛腳腳趾，這是1949年中共建政以來，樂山大佛首次被洪水淹至腳趾。四川史無前例啟動「1級防汛」顯示目前四川防汛形勢異常嚴峻。
-3. 8月17日，長沙市一食堂自助餐廳，用過餐的人將餐盤放入回收處的克秤稱重。
-4. 8月16日，紐約支持香港 · 消滅中共集會“中共病毒，生化武器！迫害人類，消滅中共！這是正義的聲音！把真相傳播到全世界，中共懼怕醒來的民眾站出來！全球在行動！
-5. (郭文貴先生，8/16）王健臨死前托付的東西，他已經知道自己要完了，把自己的私生子女和財富、核心中的東西放到新西蘭去。 平安的馬明哲，馬明哲的女兒。 包括房峰輝抓之前，房峰輝的私生子女也去了新西蘭的，有一個女兒在澳大利亞。
+本月10日，港警出動上百名警力，從黎智英先生的《蘋果日報》大樓抓捕了包括黎智英父子在內的9人。
 
+黎智英被控的3項罪名全是政治罪，意在警告香港的民主派人士：“我們連黎智英這樣的大佬富豪都敢動，抓你們是灑灑水而已！” 拿黎先生為新國安法試刀，用的是“擒賊擒王”或“殺雞儆猴”的策略，即，只要製服黎先生一個人，就可以大挫民主派士氣，為以後的獨裁統治鋪平道路。
 
-1. August 18, Gong Dao’an, Shanghai’s Vice Mayor and Police Chief was under investigation. His fall implies that the internal struggle/fight within the CCP is extremely fierce. The CCP is essentially a criminal organization. In the process of pursuing interests and power, it will definitely have internal fights. Looking back at the CCP’s history for decades, the internal struggle has never stopped, and the people have become collateral victims.
-2. August 18th, the Leshan Giant Buddha (71m high) had its foot platform, a well-known scenic spot in Sichuan Province, flooded once again, and the flood has spread over the toes of the Buddha’s feet. This is the most severe flood since the establishment of the Communist China in 1949.
-3. August 17, a policy reminiscent of the Cultural Revolution was implemented in Changsha, Hunan Province. At a cafeteria in Changsha, anyone dumping food will face a fine. At a government agency’s buffet cafeteria in Changsha, all diners who have finished meals must return their plates to a recycling area to be weighed.
-4. August 16, at a New York rally to support Hong Kong and eliminate/take down the CCP. The following was shouted by protestors: “CCP virus,  biochemical weapons!  Crimes against humanity! Take down the CCP! This is the voice of justice! We aim to tell the world the truth! The CCP is afraid of their people to know the truth! The world is in action!
-5. (Miles Guo, August 16) The valuables Wang Jian entrusted before he died…he knew he had not much time left… he put his illegitimate children, wealth and essential items in New Zealand. Ping An’s Ma Mingzhe and his daughter.  Also Fang Fenghui, before his arrest, his illegitimate kids went to New Zealand and one of his daughters is in Australia.
+但中共的如意算盤再一次落空：黎智英並沒有服軟，反而激起了國際社會的公憤，連川普總統也說黎先生是“勇敢的人”，國際輿論眾口一詞譴責中共港府的非法拘押，督促中共釋放黎智英。在來勢洶洶的國際壓力下，黎先生於12日獲得保釋。
 
+黎先生被捕之後，《蘋果日報》的股票上漲超過300%，勇敢智慧的香港人再次用沉默的行動向中共表達了不妥協不屈服。面對各界的支持，黎先生感動得泣不成聲，表示將為香港的自由抗爭到底。
+
+搜狐網站作為大陸的門戶網站，文章必須表現出滿滿的“正能量”，在黨媽如意算盤落空，全世界丟臉之後，如何讓黨媽在國內粉紅面前不失面子，如何為黨媽遮羞洗地才是當務之急。
+
+很多時候，我對這些官媒寫手充滿了同情，我不知道他們需要承受怎樣的自虐，才能堅持不懈地捂著鼻子把大便寫出法式大餐的美味。
+
+回到中共黨媒報導的主題： “24日中午，黎智英出席前香港特區議員劉慧卿的一檔節目時，突然改口稱如被捕後要到內地審訊，’我都腳軟’”。因為此前，他曾對媒體說，即使被送回內地審訊，他也沒有恐懼。
+
+就是這麼兩句話，就讓中共寫手大喜過望，就像真的在大便中刨到金子一樣。但是我真的很想提醒一下這些叼盤黨，如今的讀者早就不那麼傻了，在你打算忽悠的對像中基本可以分兩種人，一種是只顧埋頭吃食的人豬，這種人對歷史推進起不到任何作用，既不會成為動力，更不會成為阻力。他們可能是社會穩定的基礎，不過，一旦有一天，當他們發現盤中的豬食少了或者變差了，仍然有可能像《動物莊園》裡的動物那樣造反。另外一種人是智商比你們高，見識比你們廣的人，他們審時度勢避其鋒芒，不公開與你們叫板以求自保，但他們心裡明鏡似的，大多數時候只是靜靜地看你們裝逼，一旦外部環境稍微寬鬆，他們一定會站出來成為反抗你們的中堅力量。
+
+黎先生的這兩句話，前一句話表達的克服恐懼、抗爭到底的決心；後一句想說明的是你們的殘酷血腥，你們斷章取義別有用心的誤導只能更加暴露出你黨媽的心虛和無恥！
+
+每個人都是血肉之軀，每個人的生命都只有一次，任何一個熱愛生活熱愛家人的人都會珍惜生命，當然會對你們的殘酷手段感到恐懼！你們可以把幾百萬人關進集中營隨意殺伐；你們可以面不改色地從活人身上摘取器官為自己續命；你們可以在全世界面前對香港孩子痛下殺手；你們可以置幾千萬受洪水侵襲的人民生命於不顧；為了延續你們的紅色江山，你們隨時準備犧牲數億人口；你們可以把病毒作為武器對全世界發動生物戰……你們的殘忍讓每個看清你們本質的人不寒而栗！
+
+但是，每個黑暗的時代都有英雄！所謂英雄，就是戰勝了恐懼，拋開了得失，不惜用生命反抗惡勢力的人！無疑，郭文貴先生是，黎智英先生是，香港的孩子也是，還有無數被你們迫害、暗算、恐嚇的有名無名的反抗者皆是！然而，盛產英雄的時代絕對是統治者最黑暗的時代，這樣的政權必須被清理出人類社會之外。
+
+中共黨媒報導黎先生對送回大陸“嚇到腿軟”，仍然妄圖製造寒蟬效應，但這絕不可能是黎先生的恥辱！
+
+By：白夜
+
+文章內容僅代表作者觀點
 
 0

@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港大學團隊首次證實CCP病毒二次感染病例
-`2020-08-25 08:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/316023/)
+## 【世界多語言圖文】2020/08/17 CCP病毒每日疫情直播簡報
+`2020-08-25 11:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/316431/)
 
-作者：小雨
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25073747/222222222222-1.jpg)
-香港大學微生物學系的研究人員8月24日表示，香港一名33歲的男子在4月中旬新冠肺炎康復後於8月初(142天后)再次感染新冠病毒，這是世界上首個二次感染病例。 
+戰友之家圖文摘要及小語種組
 
-研究人員表示，該患者第一次發病時的癥狀為，咳嗽，咽喉痛，發燒，和頭痛三天。他在3月26日Covid-19的測試顯示陽性。第二次在8月15日香港機場入境篩查中測試為陽性，沒有明顯的伴隨癥狀。而且該患者在第二次確診入院時，其體內檢測不到抗體，由此可以確定該患者是康復后再次感染，而非”複陽”。 
+[English\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)
 
-遺傳分析表明，對比該患者第一次和第二次感染的病毒株基因排序，有24個不同之處。第一次感染的病毒與美國或英國菌株最相關，而第二次感染與瑞士和英國病毒菌株最相關。
+[French\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)
 
-以往就有證據顯示，新冠肺炎患者體內的抗體水準會在其感染數個月後逐步下降。香港大學微生物學系臨床副教授杜啟泓認為，此次出現的二次感染病例，說明確診新冠肺炎即使康復后，仍然可能發生再次感染，新冠病毒或許會像流感病毒等一樣，長期在人群中存在。他還表示，二次感染病例的出現也會對疫苗的研究有所啟示。
+[German\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)
 
-點評：這個病例從學術角度證實了中共製造出的這種病毒的邪惡，CCP病毒抗體只能在體內保持大約3個月。疫苗不是萬能的，一支疫苗更不可能同時針對多種不同型的毒株。另一方面，我們也應該看到，就在這個研究成果即將發布之時，還有很多科學家受巨大利益的驅使，為疫苗研究和生產搖旗吶喊。呼籲廣大戰友，切不可掉以輕心，最好防護，不要相信任何保終身的疫苗和群體免疫之說。
+[Japanese\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)
 
-新聞連結:
+[Korean\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)
 
-[https://edition.cnn.com/2020/08/24/health/covid-19-reinfection-hong-kong-study/index.html](https://edition.cnn.com/2020/08/24/health/covid-19-reinfection-hong-kong-study/index.html)
+[Russian\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)
 
-[http://www.uzaobao.com/bolg/20200825/76996.html](http://www.uzaobao.com/bolg/20200825/76996.html)
+[Spanish\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)
+
+
 
 0

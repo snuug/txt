@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 天價學區房的背後黑手
-`2020-08-25 07:57 GM64` [轉載自GNews](https://gnews.org/zh-hant/316068/)
+## 8月25日財經快訊: 債務執行失敗, 中共襲擊金融市場
+`2020-08-25 09:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/316352/)
 
-近日，網紅學校“深圳灣學校”成爲該校學生家長的圍攻對象，事件起因于學校2017年曾承諾：“3年後中考，南山前三，深圳前五；5年後南山第一，深圳前三。”基于此衆家長購買了該區20萬一平的高價學區房，然而三年後的今天，該校成績卻排在全市80多所學校的第68 名。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25094443/image-2.jpg)圖片來源： [https://xotv.me](https://xotv.me/channels/233-economic-war-room/vod_videos/3387-hey-chinese-communist-party-you-break-it-you-pay-for-it) 
+1.中國一線城市司法強制執行債務失敗，被執行企業法人資不抵債已經進入破產程序： [廣州](http://zxgk.gzcourt.org.cn/) ， [北京](http://www.bjcourt.gov.cn/cpws/index.htm) 、 [上海](http://www.shezfy.com/page/sssw/index.html?lm=94&amp;pm=d0) 、 [深圳](http://wenshu.court.gov.cn/website/wenshu/181217BMTKHNT2W0/index.html?pageId=48d846081b3c4b683f3697e4dbd312f4&amp;s21=%E6%97%A0%E8%B4%A2%E4%BA%A7%E5%8F%AF%E4%BE%9B%E6%89%A7%E8%A1%8C&amp;s16=%E6%89%A7%E8%A1%8C%E6%A1%88%E7%94%B1&amp;s11=3200&amp;s2=%E6%B7%B1%E5%9C%B3&amp;s4=4&amp;s8=10) 。
 
-在歎息中國父母望子成龍之心的同時，不禁被高價學區房所驚歎。學區房在中國整個地産業像神一般的存在，2019年北京西城區一套面積僅12.2平方米的“老破小”學區房，以360萬元的價格成交，單價30萬元/平米，更有甚者，僅一街之隔的學區房與非學區房價格可以相差近10萬元/平米。
+2.債務違約案件增加，曾經的廣州繁華地段房屋在網上公開進行司法拍賣： [阿里拍賣](https://sf.taobao.com/court_notice/2879138138.htm) ； [京東拍賣](https://auction.jd.com/sifa_list.html?provinceId=19) ：
 
-當今中國社會底層普遍的共識–只有學習才是唯一的出路。爲了孩子能接受更優質的教育不惜“砸鍋賣鐵”。由于社會教育資源的不均衡，加之教育部推行“就近免試入學”原則（也即在優質教育資源的學校管轄片區有房産，才可以進入這樣的學校），三個因素就在無形中造就了天價的學區房，學區房成爲獲得優質教育資源的通行證。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25073332/webwxgetmsgimg.jpeg)北京历年房价走势图
-底層社會對教育資源的渴望成爲政府“割韭菜”的一把利劍。以北京爲例，2013年後房地産業一直處于低迷狀態，2015年房價開始爆炸式的增長，一年時間裏均價竟暴增了1.7萬元/平米。雖然當時北京出台“330新政”，降息、降准來刺激樓市，但這些都不及一紙教育改革文件的巨大推力—《進一步規範義務教育免試就近入學》。另外一個重要推手，根據《北京市中小學建設三年行動計劃（2012-2014年）》，2015年底前，北京170所各大名校的附屬小學、附屬中學、分校等將相繼開工。更多的名校與“免試就近入學”合力催生“學區房”的狂購潮。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25073609/webwxgetmsgimg-3.jpeg)
-在中央集權制度下，政府無疑是高房價的幕後黑手，因爲“暴力拆遷”沒有政府的默許根本無法辦到，既不在體制內又歸體制管的“城管大隊”成爲政府推卸罪責的替罪羊。根據中共《憲法》修正案第十條規定，國家爲了公共利益的需要，可以依照法律規定對土地實施征收或者征用並給予補償。也就是說沒有一寸土地是屬于個人的，政府可以隨意踐踏私權利。政府出售本來屬于拆遷戶的地皮，再拿出一小部分所得“補償”給拆遷戶。相對于政府獲得的巨大利益，拆遷戶得到的只不過是九牛一毛。開發商對政府官員的賄賂同樣是一筆高額收入，僅杭州市原副市長許邁永受賄就高達近2億元，而這只是冰山的一角。
+[3.經濟作戰室：Kevin Freeman解釋中國共產黨如何用圈錢襲擊美國資本市場](https://www.economicwarroom.com/kevin-freeman-explains-the-unrestricted-warfare-tactics-of-the-chinese-communist-party)
 
-天價地皮（2020年2月20，上海“徐彙濱江西岸金融港”地塊以310.5億元拍出）、高額的賄賂成本，開發商這些前期巨額投入最後都會轉嫁到購房者身上。作爲合作方，政府一手策劃的“學區房”令雙方都滿載而歸。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25073730/webwxgetmsgimg-5.jpeg)
-當這些普通家庭的孩子（十幾萬一平的房價對這些家庭簡直就是天文數字），渴望知識改變命運的時候，殊不知政府策劃的“學區房”已經把自己關在了“命運大門”的另一邊。
+[4.中共疫情復甦模式擴大貧富差距](https://www.ft.com/content/e0e2940a-17cb-40ed-8d27-3722c9349a5d)
+
+[5.美聯儲、哈佛法學院、賓夕法尼亞大學沃頓學院將在9月11日共同主辦有關銀行監管的研究會議。](https://www.federalreserve.gov/newsevents/pressreleases/other20200824a.htm)
+
+6.將政治因素考慮進去後，需要重估中共科技股價值： [英國金融時報](https://on.ft.com/34uRHVO) ， [技術代碼網](https://technocodex.com/chinas-tech-giants-grapple-with-threats-at-home-and-abroad/)
+
+新聞整理：CPA Jim 
+ 【密翻組·金融法律組】
 
 0
