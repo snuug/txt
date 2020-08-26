@@ -1,24 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/17 CCP病毒每日疫情直播簡報
-`2020-08-25 11:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/316431/)
+## 中簡評：【國安法】港府推全民檢測疑點重重似黑箱操作引民眾普遍不信任
+`2020-08-25 13:56 GM36` [轉載自GNews](https://gnews.org/zh-hant/316606/)
 
-戰友之家圖文摘要及小語種組
+編撰：恩典、向新世界、文肯尼
 
-[English\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)
+【港府如果經過民主程序，而不是黑箱作業，亦會得到百姓支持。港府一味以「免費」檢測為焦點，模糊了檢測過程中應有的民主制衡程序，難免引起DNA被送往大陸的疑慮】 。
 
-[French\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)
+此前相關媒體多次報導過港府推新冠疫情全民檢測引民眾對隱私洩漏的擔憂。
 
-[German\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)
+香港資深媒體人李怡亦表示，專權政治不遵守普世標準，人們出於自然的取態就是：不信任。
 
-[Japanese\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)
+公民黨的執業大律師梁嘉善表示，一串密碼的DNA即能解讀並判定個人的身份及身體狀況、特徵、甚至籍貫等訊息，若中資公司以統計、調查等為由，將其界定為「檢測」的一部份，擔憂個人私隱將被洩漏並被監控。
 
-[Korean\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)
+雖然港府及檢測公司相關人員表示，檢測中心所得的個人資料皆會保密，但港府的做法卻很難取信於人。港府針對此舉的操作疑點重重，讓人不得不產生其「別有用心」之想。
 
-[Russian\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)
+為什麼港府未經公開招標此次病毒檢測廠商？ （不透明）
 
-[Spanish\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)
+為什麼聘用三家中資化驗所進行檢測？ （不可信）
+
+為什麼要用華大基因公司？ （不可信公司）
+
+為什麼捨棄本地合格的且被認可的檢測人員而使用大陸人員？ （民眾無從監督）
+
+華大基因公司負責為中共收集和分析「基因庫」，其旗下兩家公司，被美國商務部以「涉嫌強制採集維族人與其它穆斯林少數民族基因做研究，以打壓維族人」為由，列入實體制裁清單。
+
+這一波又一波的詭異操作難以讓人釋疑。但是如果港府經過民主程序，而不是黑箱作業，即使市民需自費承擔，亦會得到民眾支持。現今，港府一味以「免費」檢測為焦點，模糊了過程中應有的民主制衡程序，在普遍對港府不信任的現實上，也難免引起DNA被送中的疑慮。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25135338/825_4.jpg)
+林鄭說，「（政府）每做一樣都有人用陰謀論抹黑分化」。林鄭月娥將市民對整件事的擔心及隱憂抹黑為分化市民與政府的行為令人不齒。
+
+有網友表示，如果林鄭能以民主程序制定抗疫措施，保持公開透明，以民意為依歸，何來分化之論？
+
+在此，我想送給港府兩句話，一句是孔子子說的，「己所不欲，勿施於人。 」另一句是我說的，己所欲，勿強施於人。港人是人，無論港府是出於好意還是別有用心，請尊重民意，拋棄獨斷專權的行政作風。一味給市民正常發聲的行為扣上故意抹黑分化的帽子，本身自己就不白。
+
+在此奉勸港府，追隨中共必然走向滅亡，未來等待他們的不僅是香港人民的審判，也將是世界人民的審判。
+
+新聞源：
+
+[http://hk.epochtimes.com/news/2020-08-24/76772460d](http://hk.epochtimes.com/news/2020-08-24/76772460d)
 
 
 
