@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農疫情作戰室 341期
-`2020-08-25 09:58 GM47` [轉載自GNews](https://gnews.org/zh-hant/316311/)
+## 【世界多語言圖文】2020/08/17 CCP病毒每日疫情直播簡報
+`2020-08-25 11:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/316431/)
 
-戰友之家新聞譯製組製作
+戰友之家圖文摘要及小語種組
+
+[English\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105907/English_0817_CCP_Virus_Updates.pdf)
+
+[French\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105910/French_0817_CCP_Virus_Updates.pdf)
+
+[German\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105921/German_0817_CCP_Virus_Updates.pdf)
+
+[Japanese\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110020/Japanese_0817_CCP_Virus_Updates.pdf)
+
+[Korean\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110010/Korean_0817_CCP_Virus_Updates.pdf)
+
+[Russian\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25105927/Russian_0817_CCP_Virus_Updates.pdf)
+
+[Spanish\_0817\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25110016/Spanish_0817_CCP_Virus_Updates.pdf)
 
 
-
-討論8月18日民主黨全美代表大會
-班農： 8月18日民主黨全美代表大會，全球化主義者控制拜登競選活動。
-政治階層與華爾街金主聯盟，讓美國經濟蒙受災難。他們鼓吹的新自由主義，標榜社會正義，卻將國家推入激進的文化馬克思主義和無政府狀態，摧毀美國經濟，摧毀美國的生活方式。
-比爾戈茨建議川普：
-1.再推進「承認台灣」議題；
-2.保持強硬政策，兩黨現在都是對中國的鷹派。
-麥克西： 克林頓結束了一場冷戰，而中國用它製造了一場新冷戰，就是我們現在身處的這場冷戰，因為他的行動，自願地把秘密交給我們的敵人。
 
 0
