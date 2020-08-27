@@ -1,32 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國對部分在南中國海進行惡意活動的中共國有企業和个人實施限制措施
-`2020-08-26 19:55 GM65` [轉載自GNews](https://gnews.org/zh-hant/319119/)
+## 川普總統的民調支持率在疫情減緩後開始提升
+`2020-08-26 22:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/319353/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26195446/Screen-Shot-2020-08-26-at-19.54.27.png)
-*美國國務院新聞通稿*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26225112/Picture11.png)照片來源: [https://www.azcentral.com](https://www.azcentral.com/story/opinion/op-ed/ej-montini/2020/06/10/donald-trump-hold-rally-arizona-while-coronavirus-cases-rise/5337939002/) 
+**川普總統的支持率開始爬升**
 
-**美國國務卿麥克·蓬佩奧**
+根據美國消費者新聞與商業頻道（CNBC）最新報導， Change Research民調公司在最新公佈的數據中顯示，選民對中共冠狀病毒的擔憂似乎開始減緩。就在過去兩個星期，美國總統唐納德·川普（Donald Trump）的支持率在六個搖擺州開始提升。儘管川普總統在民調支持率上還是落後民主黨總統候選人喬·拜登（Joe Biden）。
 
-2020年8月26日
+在周三發布的調查中顯示，在亞利桑那州，佛羅里達州，密歇根州，北卡羅來納州，賓夕法尼亞州和威斯康星州等六個州，原本有69%的選民對中共病毒表示“嚴重擔憂”，在兩週後下降至66％。另外，原本對中共冠狀病毒表示“非常嚴重擔憂”的比例也從49％下降至45％。
 
-The United States supports a free and open South China Sea. We respect the sovereign rights of all nations, regardless of size, and seek to preserve peace and uphold freedom of the seas in a manner consistent with international law. In July, I announced an updated policy regarding Beijing’s unlawful maritime claims in the South China Sea and emphasized that the United States was prepared to take firm action to oppose Beijing’s campaign of bullying.
+另外，各州有48％的選民贊同川普總統所做的工作，而52％的選民則不贊同。而在兩週前，只有46％的受訪者贊同了川普總統正在做的工作，有54％的受訪者表示不贊同。而關於總統如何處理中共冠狀病毒的方式，贊同率上升到47％，是自5月中旬以來的最高水平。本月初，只有44％的受訪者表示贊同了川普總統如何處理中共冠狀病毒。
 
-美國支持一個自由和開放的南中國海。無論國家大小，我們尊重所有國家的主權，並且按照國際法的規定維護和平和海域自由。七月份，我宣布了一項針對北京在南中國海從事非法海事主張的最新政策，並強調美國已準備好採取堅決行動應對北京的霸凌行為。
+**疫情對美國大選扮演關鍵影響**
 
-Today, the Department of State will begin imposing visa restrictions on People’s Republic of China (PRC) individuals responsible for, or complicit in, either the large-scale reclamation, construction, or militarization of disputed outposts in the South China Sea, or the PRC’s use of coercion against Southeast Asian claimants to inhibit their access to offshore resources. These individuals will now be inadmissible into the United States, and their immediate family members may be subject to these visa restrictions as well. In addition, the Department of Commerce has added 24 PRC state-owned enterprises to the Entity List, including several subsidiaries of China Communications Construction Company (CCCC).
+報導中指出，這樣輿論的轉變是在美國國內中共冠狀病毒疫情似乎有所緩解之際出現的。美國最新的中共冠狀病毒確診數和住院人數都穩定地下降，以及測試复陽的比例也在降低。根據約翰·霍普金斯大學（Johns Hopkins University）整理的數據，美國總共有超過570萬例感染中共冠狀病毒，至少有17萬8千人死於感染該病毒，這樣的數據都遠高於任何國家，也直接影響了川普總統今年年底競選白宮第二任期的選情。
 
-今天，國務院將啟動對部分中共國個人的簽證限制，這些人在南中國海負責或參與了對有爭議哨所的開發、建造或軍事化，或對東南亞索賠國家的脅迫以禁止他們獲取離岸資源。我們現在禁止這些個人進入美國，他們的直系親屬也可能適用於這些簽證限制。此外，商務部已將24家中共國有企業加入實體清單，其中包括中國交通建設集團公司的多家子公司。
+雖然目前川普總統在六個州的民調支持率開始提升了，但民調結果仍對川普總統不樂觀。搖擺州選民以51％對49％的領先幅度，傳遞出拜登和民主黨在處理中共冠狀病毒方面可能會比川普總統和共和黨做得更好的訊息。報導中表示，儘管民調顯示目前雙方仍處在拉鋸狀態，但在關鍵州的數據來看，拜登對川普總統的領先程度為49％對46％。拜登在六個州中的五個州稍微領先，而北卡羅來納州，雙方幾乎持平。
 
-Since 2013, the PRC has used its state-owned enterprises to dredge and reclaim more than 3,000 acres on disputed features in the South China Sea, destabilizing the region, trampling on the sovereign rights of its neighbors, and causing untold environmental devastation. CCCC led the destructive dredging of the PRC’s South China Sea outposts and is also one of the leading contractors used by Beijing in its global “One Belt One Road” strategy. CCCC and its subsidiaries have engaged in corruption, predatory financing, environmental destruction, and other abuses across the world.
+- 亞利桑那州：拜登49％，川普47％
+- 佛羅里達州：拜登49％，川普46％
+- 密歇根州：拜登50％，川普44％
+- 北卡羅來納州：拜登48％，川普47％
+- 賓夕法尼亞州：拜登49％，川普46％
+- 威斯康星州：拜登49％，川普44％
 
-自2013年，中共國利用其國有企業對南中國海有爭議島嶼進行了面積3000多英畝的疏浚和開墾作業，破壞了該地區的穩定，踐踏了其鄰國的主權，並造成了不可估量的環境破壞。中國交建主導了對南中國海有爭議哨所的疏浚作業，同時也是北京用於其“一帶一路”戰略的主要工程公司之一。中國交建及其子公司在全球範圍內從事了腐敗、掠奪性融資、環境破壞及其它違法活動。
 
-The PRC must not be allowed to use CCCC and other state-owned enterprises as weapons to impose an expansionist agenda. The United States will act until we see Beijing discontinue its coercive behavior in the South China Sea, and we will continue to stand with allies and partners in resisting this destabilizing activity.
+雖然還不清楚拜登從上週的民主黨全國代表大會後會獲得了多少加分，但選民似乎給了拜登蠻正面的評價。川普總統有機會在周四共和黨全國代表大會的閉幕之夜發表演說來反擊拜登。
 
-絕不允許中共國利用中國交建公司及其它國有企業作為武器，實施擴張主義計劃。美國將採取行動，直到我們看到北京在南中國海停止一切強權活動，同時，我們將一直與盟國和夥伴一起抵制這種破壞穩定的行為。
+譯評：
 
-[原文鏈接](https://www.state.gov/u-s-imposes-restrictions-on-certain-prc-state-owned-enterprises-and-executives-for-malign-activities-in-the-south-china-sea/)
+以美滅共，以共滅共，還有以法滅共。不管共和黨還是民主黨，消滅CCP已是美國國內一致的口徑。只有消滅CCP，中共冠狀病毒才有解藥，中國洪災才能得以舒緩，香港以及全世界才能再次重回民主法治的安穩軌道。
 
-1
+[新聞鏈接](https://www.cnbc.com/2020/08/26/coronavirus-concerns-fall-and-trump-approval-rises-in-2020-swing-states.html)
+
+翻譯報導：william 
+校對整理：人間四月
+
+0
