@@ -1,72 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府今日宣佈投資10億用於發展人工智能、量子信息科學、5G通信等新興技術
-`2020-08-27 01:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/319638/)
+## 華大基因生產的新冠病毒檢測試劑盒存在著嚴重的質量問題
+`2020-08-27 05:18 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/320039/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27013930/WH_20200826_Investing_1_Billion-photo169.png)Photo by Franck V. on Unsplash
-**The Trump Administration Is Investing $1 Billion in Research Institutes to Advance Industries of the Future**
+*新聞來源：Daily Mail《每日郵報》；作者：RYAN FAHEY；發佈時間： 2020年8月25日*
 
-**川普政府將向研究機構投資10億美元，以推動未來產業的發展**
+*翻譯/簡評：文明明；校對/審核：InAHurry；Page：拱卒*
 
-August 26, 2020
+簡評：
 
-2020年8月26日
+由華大基因生產的新冠病毒檢測試劑盒存在著嚴重的質量問題。今天，瑞典公共衛生機構揭露，因為使用華大基因的試劑盒，導致3700人得到錯誤的的測試結果。該機構表示，在今年三月至八月期間，這種試劑盒在瑞典被人們用來進行居家測試，那些當時有輕微症狀或無症狀的人因為使用了這種質量不過關的試劑盒，得到錯誤的陽性結果，誤導了許多人。目前，該機構已經將這種偽劣試劑盒上報給瑞典醫療產品管理局，並通知了歐洲和世界衛生組織的相關部門，但這種試劑盒已經被銷往了世界各地。
 
-By: Michael Kratsios and Chris Liddell
+中共一貫以假治國，在國內，假酒、假藥、假疫苗、任何商品都有假冒偽劣產品，國內老百姓似乎已經對此司空見慣了。但是，中共現在居然把偽劣產品銷往了全世界，要知道，這些診斷新冠病毒試劑盒是用來保護和拯救生命的。在病毒大流行期間向世界出售不合格測試劑，華大基因的做法實在是無底線。可悲的是，這真實地反映出了當前中共統治下的中國的現狀。
 
-The Trump Administration is taking strong action to ensure American leadership in the industries of the future—artificial intelligence (AI), quantum information science (QIS), 5G communications, and other key emerging technologies that will shape our economy and security for years to come.
+##  **瑞典發現中共國製造的偽劣新冠病毒試劑盒** 
 
-川普政府正在採取強有力的行動，以確保美國在未來產業 — 人工智能(AI)、量子信息科學(QIS)、5G通信和其它關鍵的新興技術中的領導地位，這些技術將在未來幾年塑造我們的經濟和安全。
+##  **導致3700個錯誤陽性結果** 
 
-Today, the White House, the National Science Foundation (NSF), and the Department of Energy (DOE) announced more than $1 billion in awards for the establishment of 12 new AI and QIS research and development (R&D) institutes nationwide.
+[!\[\](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/a93d6d3a-8faa-4ce2-ae61-f3408c084616.jpg?asset_id=762db6a7-82ed-4228-a3e2-e4ed1d945df8&amp;img_etag=%2213ccb7fedfba1a0234ecf95f25ab940e%22&amp;size=2560)](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/a93d6d3a-8faa-4ce2-ae61-f3408c084616.jpg?asset_id=762db6a7-82ed-4228-a3e2-e4ed1d945df8&amp;img_etag=%2213ccb7fedfba1a0234ecf95f25ab940e%22&amp;size=1024)
 
-今天，白宮、美國國家科學基金會(NSF)和能源部(DOE)宣佈了超過10億美元的基金，用於在全國範圍內建立12個新的AI和QIS研發機構。
+- **瑞典表示，聚合酶鏈反應（PCR）試劑盒來自一家名為華大基因（BGI Genomics）的中共國公司**
+- **三月至八月期間，瑞典人使用了這些測試盒**
+- **公共衛生機構說，主要是“當時有輕微症狀或無症狀的人得到了假陽性結果”。**
 
-Together, NSF’s AI Research Institutes and DOE’s QIS Research Centers will serve as national R&D hubs for these critical industries of the future, spurring innovation, supporting regional economic growth, and training our next generation workforce.
 
-美國國家科學基金會的人工智能研究所和能源部的QIS研究中心將共同成為這些未來關鍵產業的國家研發中心，刺激創新，支持區域經濟增長，並培養我們的下一代勞動力。
+瑞典公共衛生機構今天說，一種偽劣的試劑盒已經造成了約3700個錯誤陽性結果，這是由兩個實驗室在常規質量監控過程中發現的一個錯誤。
 
-The National Science Foundation and additional Federal partners are awarding $140 million over five years to a total of seven NSF-led AI Research Institutes. These collaborative research and education institutes will focus on a range of AI R&D areas, such as machine-learning, synthetic manufacturing, precision agriculture, and forecasting prediction. Research will take place at universities around the country, including the University of Oklahoma at Norman, the University of Texas at Austin, the University of Colorado at Boulder, the University of Illinois at Urbana-Champaign, the University of California at Davis, and the Massachusetts Institute of Technology.
+該機構表示，這種用於檢測目前還在爆發中的新冠病毒的聚合酶鏈反應（PCR）試劑盒是由華大基因（BGI Genomics）公司在中共國生產並經運往世界各地的。
 
-美國國家科學基金會和其它聯邦合作夥伴將在5年內向美國國家科學基金會領導的總共7個人工智能研究所提供1.4億美元的資金。這些合作研究和教育機構將專注於一系列人工智能研發領域，如機器學習、合成製造、精准農業和預測預報。研究將在全國各地的大學進行，包括俄克拉荷馬大學諾曼分校、德克薩斯大學奧斯汀分校、科羅拉多大學博爾德分校、伊利諾伊大學厄巴納-香檳分校、加州大學戴維斯分校和麻省理工學院。
+該機構說，三月至八月期間，這種試劑盒在瑞典被人們用來進行居家測試。
 
-NSF anticipates making additional AI Research Institute awards in the coming years, with more than $300 million in total awards, including contributions from partner agencies, expected by next summer. Overall, NSF invests more than $500 million in artificial intelligence activities annually and is the largest Federal driver of nondefense AI R&D.
+[!\[\](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/42c3948b-7719-4d11-be85-5d7b7c677aec.jpg?asset_id=fb839b36-75db-42fe-b2d3-5d449e74fd3c&amp;img_etag=%229a1fc80f5d157fa6ffb18138200da35b%22&amp;size=2560)](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/42c3948b-7719-4d11-be85-5d7b7c677aec.jpg?asset_id=fb839b36-75db-42fe-b2d3-5d449e74fd3c&amp;img_etag=%229a1fc80f5d157fa6ffb18138200da35b%22&amp;size=1024)瑞典公共衛生局表示，這些檢測正在進行的COVID-19感染的PCR試劑盒由BGI基因組學公司在中國製造，並已在全球範圍內銷售（圖：中國公司BGI基因組學公司製造的PCR試劑盒） 。
 
-美國國家科學基金會預計，未來幾年將追加人工智能研究所的獎勵，預計到明年夏天，包括合作機構的捐款在內，基金總額將超過3億美元。總體而言，美國國家科學基金會每年對人工智能活動的投資超過5億美元，是聯邦非國防人工智能研發的最大推動力。
+該機構在一份聲明中說，主要是“那些當時有輕微症狀或無症狀的人得到了錯誤的陽性結果。”
 
-To establish the QIS Research Centers, DOE is announcing up to $625 million over five years to five centers that will be led by DOE National Laboratory teams at Argonne, Brookhaven, Fermi, Oak Ridge, and Lawrence Berkeley National Laboratories. Each QIS Center will incorporate a collaborative research team spanning multiple institutions as well as scientific and engineering disciplines. The private sector and academia will be providing another $300 million in contributions for the centers.
+該機構補充說，本週他們將聯繫那些受到影響的人，並對瑞典的官方感染人數進行調整。
 
-為了建立QIS研究中心，能源部宣佈在5年內向5個中心提供高達6.25億美元的資金，這5個中心將由能源部在阿貢、布魯克海文、費米、橡樹嶺和勞倫斯伯克利國家實驗室的國家實驗室團隊領導。每個QIS中心都將組建一個跨多個機構以及科學和工程學科的合作研究團隊。私營部門和學術界將為這些中心貢獻另外3億美元。
+[!\[\](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/cd40a3d7-8c16-4567-892f-c14dfa5e4c68.jpg?asset_id=2df27334-8796-47a7-bf2a-c5ace35db43b&amp;img_etag=%22465f1e701c317a1fa3357cd7173c4992%22&amp;size=2560)](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/cd40a3d7-8c16-4567-892f-c14dfa5e4c68.jpg?asset_id=2df27334-8796-47a7-bf2a-c5ace35db43b&amp;img_etag=%22465f1e701c317a1fa3357cd7173c4992%22&amp;size=1024) 2020年3月至8月挪威每日新增CCP病毒感染人數
 
-The centers will focus on a range of key QIS research topics including quantum networking, sensing, computing, and materials manufacturing. Through this critical, basic R&D, our Nation will have a strong foundation for the future of commercial technologies underpinned by QIS.
+“這種偽劣試劑盒已經被上報給了瑞典醫療產品管理局，但它已經從中共國出口到了許多其他國家”。該機構補充說，它已經通知了歐洲和世界衛生組織的相關部門。
 
-這些中心將專注於一系列關鍵的QIS研究課題，包括量子網絡、傳感、計算和材料製造。通過這種關鍵的基礎研發，我國將為未來以QIS為基礎的商業技術奠定堅實的基礎。
+瑞典在周二表示，已確診的新冠病毒案例有86,891，死亡人數5,814。
 
-The establishment of these new national AI and QIS institutes will not only accelerate discovery and innovation, but will also promote job creation and workforce development. NSF’s AI Research Institutes and DOE’S QIS Research Centers will include a strong emphasis on training, education, and outreach to help Americans of all backgrounds, ages, and skill levels participate in our 21st-century economy.
+上週解禁的瑞典在六個月內創下了150年來最高的死亡人數，在期間51,405例的死亡總數中有4,500例死亡與新冠病毒有關。
 
-這些新的國家人工智能和QIS研究所的建立不僅將加速發現和創新，而且還將促進就業和勞動力發展。美國國家科學基金會的人工智能研究所和能源部的QIS研究中心將大力強調培訓、教育和推廣，以幫助不同背景、年齡和技能水平的美國人參與21世紀的經濟。
+這是自1869年以來，在1月至6月底期間死亡人數的最高記錄。而1869年的同期有55,431人死亡，大多數是由於飢荒。但那時瑞典的人口僅為410萬，而如今為1030萬。
 
-Importantly, these institutes are a manifestation of the uniquely American free-market approach to technological advancement. Each institute brings together the Federal Government, industry, and academia, positioning us to leverage the full power and expertise of the United States innovation ecosystem for the betterment of our Nation.
+[!\[\](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/a50c00ab-032c-475c-8476-bbceae941371.jpg?asset_id=5441c05d-4ef2-4fad-b64e-73a1d96910ae&amp;img_etag=%220a13a897fc53485020ff33629085a96f%22&amp;size=2560)](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/a50c00ab-032c-475c-8476-bbceae941371.jpg?asset_id=5441c05d-4ef2-4fad-b64e-73a1d96910ae&amp;img_etag=%220a13a897fc53485020ff33629085a96f%22&amp;size=1024) 2020年3月至8月挪威每日因CCP病毒死亡人數
 
-重要的是，這些機構體現了美國獨特的自由市場技術進步方式。每個研究所都將聯邦政府、工業界和學術界聚集在一起，使我們能夠充分利用美國創新生態系統的力量和專門知識，以改善我們的國家。
+還應指出的是，瑞典在兩次世界大戰期間都保持了中立，而大多數歐洲國家在75年前的一次戰鬥中的死亡人數就相當於這六個月的冠狀病毒死亡人數。
 
-As history has shown, America is a country of thinkers, doers, and innovators. The United States is the proud home of the greatest technological breakthroughs the world has ever known, from creating the modern Internet to putting humans on the moon. Emerging technologies like AI and QIS will lead to transformative benefits for the American people in healthcare, communications, manufacturing, agriculture, transportation, security, and beyond.
+不過，瑞典統計局表示，新冠病毒意味著瑞典的死亡人數將比過去五年的平均水平高出約10％。
 
-歷史表明，美國是一個由思想家、行動家和創新者組成的國家。從創造現代互聯網到將人類送上月球，美國是世界上最偉大的技術突破的驕傲之鄉。AI和QIS等新興技術將為美國人民在醫療、通信、製造業、農業、交通、安全等領域帶來變革性的利益。
+由於與新冠病毒相關的死亡人數激增，4月份的死亡人數比平均水平高出近40％。
 
-Today’s announcement of $1 billion invested in AI and QIS research centers builds upon more than three years of action and demonstrates our commitment to continued technological leadership.
+儘管與北歐鄰國相比，瑞典一直處於抗疫劣勢，但它的人均死亡人數卻低於英國，西班牙和意大利。
 
-今天宣佈向人工智能和QIS研究中心投資10億美元，是在三年多行動的基礎上進行的，表明瞭我們對持續技術領先的承諾。
+[!\[\](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/d88b3a39-cb87-4ed9-985d-5844cd1cf08a.jpg?asset_id=c9bfffdd-fb43-42f1-ba2f-344a3de431b1&amp;img_etag=%221edc04cf4bfb855ce5ed959f8d2cd9bd%22&amp;size=2560)](https://spark.adobe.com/page/D2nbIg1lX3BbQ/images/d88b3a39-cb87-4ed9-985d-5844cd1cf08a.jpg?asset_id=c9bfffdd-fb43-42f1-ba2f-344a3de431b1&amp;img_etag=%221edc04cf4bfb855ce5ed959f8d2cd9bd%22&amp;size=1024) 8月初，在瑞典斯德哥爾摩的帕爾松德運河，人們在近30攝氏度的夏日天氣中享受乘船、劃獨木舟和站立划槳的樂趣。該國對病毒的自由態度獨樹一幟，避免鎖國。
 
-The Trump Administration is making sure the next cutting-edge innovations are made in America, ensuring the American people live healthier, safer, and more prosperous lives.
+瑞典在處理病毒大流行的放任態度一直備受爭議，它採取讓病毒在人群中傳播以達到“群體免疫”的政策，這種政策側重於人們自願接受社交距離的指導。
 
-川普政府正在確保下一個尖端創新在美國製造，確保美國人民生活更健康、更安全、更繁榮。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27014706/WH_20200826_Investing_1_Billion-figure1.jpg)圖片來源：https://www.whitehouse.gov/
-[閱讀白宮原文](https://www.whitehouse.gov/articles/trump-administration-investing-1-billion-research-institutes-advance-industries-future/)
+因為大多數學校都仍然開放，許多企業也在一定程度上繼續運營著，這意味著瑞典的經濟狀況要比大多數國家都好。
 
-翻譯：【Naomi（文花開）】校對 & 編輯：【Michelle】
+但是，它的死亡人數一直高於選擇了更嚴格的禁足措施的北歐鄰國。
 
-戰友之家玫瑰園小隊出品
+挪威，大約只有瑞典一半的人口，總共只有260例新冠病毒死亡病例。
 
-1
+儘管芬蘭在禁止外出方面更加嚴厲，但是芬蘭第二季度的經濟卻要比它強大的鄰國表現出色。
+
+在過去三個月中，芬蘭的國內生產總值下滑了約5％，而瑞典則下滑了8.6％。
+
+與第二季度英國20.4％的GDP下滑相比，這些數據還是比較容易被接受的。
+
+[原文鏈接](https://www.dailymail.co.uk/news/article-8663071/Sweden-uncovers-3-700-false-positives-faulty-Chinese-coronavirus-test-kits.html)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/D2nbIg1lX3BbQ/)
+
+0
