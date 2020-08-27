@@ -1,18 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共故意釋放新冠病毒（韓語Korean+中文Chinese+英語English）
-`2020-08-26 09:46 GM62` [轉載自GNews](https://gnews.org/zh-hant/318432/)
+## VOG多語種組每日政要Twitter播報(中文)08/26期（視頻+PDF文字檔下載）
+`2020-08-26 10:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/318547/)
 
-韓語標題 중국 공산당 고의로 코로나-19 바이러스 방출했다
+撰稿記者：CYC⽂颖、今晚打老虎
 
-校對：朴文爱 視頻：lain
+[VOG多語種組每日政要Twitter播報.pdf](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26104428/2020.8.26.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/26104428/2020.8.26.pdf)
 
 
-
-視頻簡介
-中共故意釋放新冠病毒, 他們的邪惡超出人類的理解範圍。
-
-중국 공산당 고의로 코로나-19 바이러스 방출했다, 선량한 우리의 사고방식으로는 그 사악을 이해하기 힘듭니다.
 
 0
