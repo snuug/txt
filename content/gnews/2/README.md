@@ -1,16 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共曾收買克林頓使其同意分享美國彈道導彈技術並將相關技術轉移到伊朗（德語German+中文Chinese+英語English）
-`2020-08-26 23:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/319066/)
+## 民主黨已經放棄一中政策
+`2020-08-27 02:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/319710/)
 
-德語標題 Die KPCh bestachen Clinton um die Technologie für ballistische Raketen zu erwerben und. transferierten sie in den Iran
+在[8月25日的G-TV直播](https://gtv.org/?videoid=5f459faffb4f61689a489b8d)中，郭文貴先生披露一位美國民主黨大佬，也是克林頓夫婦和拜登的密友，給他打電話談了民主黨放棄「一中」政策和承認台灣為一個國家。郭先生認為放棄一中政策的舉措勝過千萬種其它努力，屆時中共就不是非法政府合法政府的問題了，它就是犯罪集團。
 
-德語翻譯：MilaM(米拉猫)　德語校對：平常心（文常心）　字幕：文件夹
+*翻譯：【茶奶奶】校對&總結：【Michelle】字幕：【恆久忍耐】 編輯：【GM31】 聽寫：【Naomi（文花開）】*
 
-視頻簡介
-中共曾收買克林頓使其同意分享美國彈道導彈技術 並且已將武器及其相關技術轉移到伊朗等國家
+*戰友之家玫瑰園小隊製作*
 
-Die Kommunistische Partei Chinas hatte Clinton bestochen, um amerikanische Raketentechnologie zu teilen, und hat Waffen und verwandte Technologie an Länder wie den Iran weitergegeben.
-
-0
+1
