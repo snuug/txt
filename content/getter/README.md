@@ -13,6 +13,11 @@
 
 
 
+[8月27日：从这个孙子这篇报导可以．完整地看出来刚刚发生的W S J的几篇报道．和共产党最近的大外宜．欺民贼的黑郭新政策．在海外的执行的证据！由此可见端倪．共产...](/content/getter/content/2020/08/5f47f6a3d3bc84639c7b4b68.md)
+
+**郭文贵MILES** `2020-08-27T18:08:35`
+##
+
 [8月27号：尊敬的战友们好．半小时后，9:30我们在澳洲喜马拉雅农场连线中相见吧！https://gtv.org/?videoid=5f47a44dfb4f61...](/content/getter/content/2020/08/5f47aed0d3bc84639c7b07dd.md)
 
 **郭文贵MILES** `2020-08-27T13:02:08`
@@ -156,10 +161,5 @@
 [8月20日: Mr. Guo Wengui's Statement Re. Arrest of Steve Bannon   郭文贵先生关于对班农先生被逮捕的声...](/content/getter/content/2020/08/5f3eac0c1be0b830427d4fd8.md)
 
 **郭文贵MILES** `2020-08-20T16:59:56`
-##
-
-[8月20号：文贵．关于我们的战友史蒂夫．班农．被捕的的声名！  August 20: Wengui. About our comrade Steve. Bann...](/content/getter/content/2020/08/5f3eaa2a1be0b830427d4dca.md)
-
-**郭文贵MILES** `2020-08-20T16:51:54`
 ##
 
