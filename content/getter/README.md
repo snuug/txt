@@ -13,6 +13,11 @@
 
 
 
+[8月27号：尊敬的战友们好．半小时后，9:30我们在澳洲喜马拉雅农场连线中相见吧！https://gtv.org/?videoid=5f47a44dfb4f61...](/content/getter/content/2020/08/5f47aed0d3bc84639c7b07dd.md)
+
+**郭文贵MILES** `2020-08-27T13:02:08`
+##
+
 [【重要新闻 News】 1.美国奋斗者组成新共和党  The New Republican Party of American Strivers   https...](/content/getter/content/2020/08/5f4676d7d3bc84639c79ffae.md)
 
 **郭文贵MILES** `2020-08-26T14:51:03`
@@ -156,10 +161,5 @@
 [8月20号：文贵．关于我们的战友史蒂夫．班农．被捕的的声名！  August 20: Wengui. About our comrade Steve. Bann...](/content/getter/content/2020/08/5f3eaa2a1be0b830427d4dca.md)
 
 **郭文贵MILES** `2020-08-20T16:51:54`
-##
-
-[8月20号：尊敬的战友们好文贵到后在这里乱聊……直播，](/content/getter/content/2020/08/5f3e93ea1be0b830427d2eff.md)
-
-**郭文贵MILES** `2020-08-20T15:16:58`
 ##
 
