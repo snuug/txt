@@ -1,54 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧國務卿告訴美國人民為什麼2020總統選舉一定要投川普總統
-`2020-08-26 21:16 Diago` [轉載自GNews](https://gnews.org/zh-hant/319207/)
+## 川普政府今日宣佈投資10億用於發展人工智能、量子信息科學、5G通信等新興技術
+`2020-08-27 01:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/319638/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/25234754/%E5%B0%81%E9%9D%A2-88.jpg)
-作者：Diago
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27013930/WH_20200826_Investing_1_Billion-photo169.png)Photo by Franck V. on Unsplash
+**The Trump Administration Is Investing $1 Billion in Research Institutes to Advance Industries of the Future**
 
-2020年8月25日美國國務卿蓬佩奧在耶路撒冷的發言其實算是對川普總統及其行政團隊部分政策的總結和對未來計畫的宣告。
+**川普政府將向研究機構投資10億美元，以推動未來產業的發展**
 
-下面我們結合[8月25日美國國務卿蓬佩奧在共和黨全國大會上的發言（文字版全文）](https://gnews.org/zh-hans/318715/)（By[GM65](https://gnews.org/zh-hans/author/gm65/)– 2020-08-26 11:42）看一下what he has done——川普總統及其團隊已經做了哪些？
+August 26, 2020
 
-1、In China, he’s pulled back the curtain on the predatory aggression of the Chinese Communist Party. 對中共國，他掀開了中共掠奪式侵略行為的遮掩布。
+2020年8月26日
 
-2、The president has held China accountable for covering up the China virus and allowing it to spread death and economic destruction in America and around the world總統要求中共國對掩蓋中共病毒真相，並任由病毒將死亡和經濟破壞蔓延到美國和世界負責；
+By: Michael Kratsios and Chris Liddell
 
-3、He has ensured that the Chinese Community Party’s spies posing as diplomats in America are jailed or sent back to China他保證把中共以外交名義作為偽裝來美國的間諜送到監獄或送回中國；
+The Trump Administration is taking strong action to ensure American leadership in the industries of the future—artificial intelligence (AI), quantum information science (QIS), 5G communications, and other key emerging technologies that will shape our economy and security for years to come.
 
-4、he has ended the ridiculously unfair trade arrangement with China that punched a hole in our economy他還終止了與中共國簽訂的、使我們的經濟陷入困境的、可笑的不平等貿易協定；
+川普政府正在採取強有力的行動，以確保美國在未來產業 — 人工智能(AI)、量子信息科學(QIS)、5G通信和其它關鍵的新興技術中的領導地位，這些技術將在未來幾年塑造我們的經濟和安全。
 
-5、In North Korea, the president lowered the temperature and against all odds got the North Korean leadership to the table. No nuclear tests, no long range missile tests, and Americans held captive in North Korea came home to their families, as did the precious remains of scores of heroes who fought in Korea. 對朝鮮，總統讓局勢降溫並克服一切困難讓朝鮮領導人回到談判桌上。不進行核子試驗，不進行遠端導彈試驗，被朝鮮關押的美國人回來與家人團聚，朝鮮戰爭烈士的珍貴遺體也回到了故鄉。
+Today, the White House, the National Science Foundation (NSF), and the Department of Energy (DOE) announced more than $1 billion in awards for the establishment of 12 new AI and QIS research and development (R&D) institutes nationwide.
 
-6、Ukraine has defensive weapon systems, and America left a harmful treaty so our nation can now build missiles to deter Russian aggression. 烏克蘭擁有了防禦武器系統，美國也退出了一項有害條約，現在我們國家可以製造導彈來震懾俄羅斯的盛氣淩人。
+今天，白宮、美國國家科學基金會(NSF)和能源部(DOE)宣佈了超過10億美元的基金，用於在全國範圍內建立12個新的AI和QIS研發機構。
 
-7、In the Middle East, when Iran threatened, the president approved a strike that killed the Iranian terrorist Qasem Soleimani. This is the man most responsible for the murder and maiming of hundreds of American soldiers and thousands of Christians across the Middle East, and you’ll recall too, that when the president took office, radical Islamic terrorists had beheaded Americans and ISIS controlled a territory the size of Great Britain. 對中東，當伊朗造成威脅時，總統批准一項打擊行動，擊斃伊朗恐怖分子凱西姆·蘇萊曼尼。此人是中東地區數百名美國士兵和幾千名基督徒被殺害和致殘的罪魁禍首。你應該還記得，總統上任時，激進的伊斯蘭恐怖分子斬首了美國人，ISIS控制了相當於英國領土面積的一片地區。
+Together, NSF’s AI Research Institutes and DOE’s QIS Research Centers will serve as national R&D hubs for these critical industries of the future, spurring innovation, supporting regional economic growth, and training our next generation workforce.
 
-8、The president exited the U.S. from the disastrous nuclear deal with Iran and squeezed the Ayatollah, Hezbollah, and Hamas. 總統退出了與伊朗簽訂的災難性核協議，並且鉗制了霍姆尼、真主党和哈馬斯。
+美國國家科學基金會的人工智能研究所和能源部的QIS研究中心將共同成為這些未來關鍵產業的國家研發中心，刺激創新，支持區域經濟增長，並培養我們的下一代勞動力。
 
-9、The president too moved the U.S. embassy to this very city of God, Jerusalem, the rightful capital of the Jewish homeland, 總統還把美國大使館遷至耶路撒冷這座上帝之城，這是猶太人的國家合法的首都。
+The National Science Foundation and additional Federal partners are awarding $140 million over five years to a total of seven NSF-led AI Research Institutes. These collaborative research and education institutes will focus on a range of AI R&D areas, such as machine-learning, synthetic manufacturing, precision agriculture, and forecasting prediction. Research will take place at universities around the country, including the University of Oklahoma at Norman, the University of Texas at Austin, the University of Colorado at Boulder, the University of Illinois at Urbana-Champaign, the University of California at Davis, and the Massachusetts Institute of Technology.
 
-10、and just two weeks ago, the president brokered a historic peace deal between Israel and the United Arab Emirates.就在兩周前，總統促成以色列和阿聯酋簽訂歷史性和平協定。
+美國國家科學基金會和其它聯邦合作夥伴將在5年內向美國國家科學基金會領導的總共7個人工智能研究所提供1.4億美元的資金。這些合作研究和教育機構將專注於一系列人工智能研發領域，如機器學習、合成製造、精准農業和預測預報。研究將在全國各地的大學進行，包括俄克拉荷馬大學諾曼分校、德克薩斯大學奧斯汀分校、科羅拉多大學博爾德分校、伊利諾伊大學厄巴納-香檳分校、加州大學戴維斯分校和麻省理工學院。
 
-在川普總統及其行政團隊的努力之下，正在發生的事情有哪些？
+NSF anticipates making additional AI Research Institute awards in the coming years, with more than $300 million in total awards, including contributions from partner agencies, expected by next summer. Overall, NSF invests more than $500 million in artificial intelligence activities annually and is the largest Federal driver of nondefense AI R&D.
 
-1、he will not rest until justice is done. 正義不匡扶，行動不停止。——這一條指的是讓中共為病毒負責；
+美國國家科學基金會預計，未來幾年將追加人工智能研究所的獎勵，預計到明年夏天，包括合作機構的捐款在內，基金總額將超過3億美元。總體而言，美國國家科學基金會每年對人工智能活動的投資超過5億美元，是聯邦非國防人工智能研發的最大推動力。
 
-2、Those jobs, those jobs are coming back home. 那些工作崗位都回來了。——這一條指的是正在回歸的工作崗位和工作崗位背後的產業鏈；
+To establish the QIS Research Centers, DOE is announcing up to $625 million over five years to five centers that will be led by DOE National Laboratory teams at Argonne, Brookhaven, Fermi, Oak Ridge, and Lawrence Berkeley National Laboratories. Each QIS Center will incorporate a collaborative research team spanning multiple institutions as well as scientific and engineering disciplines. The private sector and academia will be providing another $300 million in contributions for the centers.
 
-3、NATO is stronger。北約更強大了；
+為了建立QIS研究中心，能源部宣佈在5年內向5個中心提供高達6.25億美元的資金，這5個中心將由能源部在阿貢、布魯克海文、費米、橡樹嶺和勞倫斯伯克利國家實驗室的國家實驗室團隊領導。每個QIS中心都將組建一個跨多個機構以及科學和工程學科的合作研究團隊。私營部門和學術界將為這些中心貢獻另外3億美元。
 
-4、our brave soldiers, they’re on their way home. 而我們勇敢的軍人正在回家的路上。
+The centers will focus on a range of key QIS research topics including quantum networking, sensing, computing, and materials manufacturing. Through this critical, basic R&D, our Nation will have a strong foundation for the future of commercial technologies underpinned by QIS.
 
-5、This is a deal that our grandchildren will read about in their history books. 這項協議將載入子孫輩的歷史教科書中。
+這些中心將專注於一系列關鍵的QIS研究課題，包括量子網絡、傳感、計算和材料製造。通過這種關鍵的基礎研發，我國將為未來以QIS為基礎的商業技術奠定堅實的基礎。
 
-在蓬佩奧國務卿的講話中，我最在乎的就是“he will not rest until justice is done.”，因為這關乎全人類的生死，為什麼說川普總統將是人類歷史上最傑出的一位美國總統？因為川普總統已經做的和正在做的不僅僅關乎美國人民的生死和自由，川普總統已經做的和正在做的關乎全人類的生死和自由！
+The establishment of these new national AI and QIS institutes will not only accelerate discovery and innovation, but will also promote job creation and workforce development. NSF’s AI Research Institutes and DOE’S QIS Research Centers will include a strong emphasis on training, education, and outreach to help Americans of all backgrounds, ages, and skill levels participate in our 21st-century economy.
 
-為什麼2020年總統選舉必須要投票給川普總統？
+這些新的國家人工智能和QIS研究所的建立不僅將加速發現和創新，而且還將促進就業和勞動力發展。美國國家科學基金會的人工智能研究所和能源部的QIS研究中心將大力強調培訓、教育和推廣，以幫助不同背景、年齡和技能水平的美國人參與21世紀的經濟。
 
-You know, as a soldier, I saw firsthand people desperate to flee to freedom, the way of each of us can best ensure our freedoms is by electing leaders who don’t just talk, but who deliver. 大家知道，作為一名軍人，我親眼看到很多人渴望逃向自由。我們每個人能夠確保自由的最好方式就是選出一位元言必信、行必果的領導者。
+Importantly, these institutes are a manifestation of the uniquely American free-market approach to technological advancement. Each institute brings together the Federal Government, industry, and academia, positioning us to leverage the full power and expertise of the United States innovation ecosystem for the betterment of our Nation.
 
-（文章內容僅代表作者個人觀點）
+重要的是，這些機構體現了美國獨特的自由市場技術進步方式。每個研究所都將聯邦政府、工業界和學術界聚集在一起，使我們能夠充分利用美國創新生態系統的力量和專門知識，以改善我們的國家。
 
-0
+As history has shown, America is a country of thinkers, doers, and innovators. The United States is the proud home of the greatest technological breakthroughs the world has ever known, from creating the modern Internet to putting humans on the moon. Emerging technologies like AI and QIS will lead to transformative benefits for the American people in healthcare, communications, manufacturing, agriculture, transportation, security, and beyond.
+
+歷史表明，美國是一個由思想家、行動家和創新者組成的國家。從創造現代互聯網到將人類送上月球，美國是世界上最偉大的技術突破的驕傲之鄉。AI和QIS等新興技術將為美國人民在醫療、通信、製造業、農業、交通、安全等領域帶來變革性的利益。
+
+Today’s announcement of $1 billion invested in AI and QIS research centers builds upon more than three years of action and demonstrates our commitment to continued technological leadership.
+
+今天宣佈向人工智能和QIS研究中心投資10億美元，是在三年多行動的基礎上進行的，表明瞭我們對持續技術領先的承諾。
+
+The Trump Administration is making sure the next cutting-edge innovations are made in America, ensuring the American people live healthier, safer, and more prosperous lives.
+
+川普政府正在確保下一個尖端創新在美國製造，確保美國人民生活更健康、更安全、更繁榮。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27014706/WH_20200826_Investing_1_Billion-figure1.jpg)圖片來源：https://www.whitehouse.gov/
+[閱讀白宮原文](https://www.whitehouse.gov/articles/trump-administration-investing-1-billion-research-institutes-advance-industries-future/)
+
+翻譯：【Naomi（文花開）】校對 & 編輯：【Michelle】
+
+戰友之家玫瑰園小隊出品
+
+1
