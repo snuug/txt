@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黨指揮槍，槍留下，退伍後你該何去何從？
-`2020-08-27 09:59 GM64` [轉載自GNews](https://gnews.org/zh-hant/320480/)
+## 【世界多語言圖文】2020/08/19 CCP病毒每日疫情直播簡報
+`2020-08-27 11:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/320561/)
 
-國內新聞作者：快慢機
+戰友之家圖文摘要及小語種組
 
-當兵，也許你會後悔兩年；不當兵，你會後悔一輩子。這是一句在中共軍營流傳很廣的話！但事實的確如此麽？
+[English\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102308/English_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102308/English_0819_CCP_Virus_Updates1.pdf)
 
-鐵打的營盤流水的兵！每年中共軍方都會有部分服役期滿的老兵面臨著退伍及轉業。然後又會有部分應征入伍的新兵從新兵連補充進來。周而複始，稀松平常。
+[French\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102312/French_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102312/French_0819_CCP_Virus_Updates1.pdf)
 
-脫下軍裝，離開軍營，回歸社會。老兵們首先要面對的就是如何重新融入社會。少則兩年，多則五七八年的相對封閉的軍營生活，教條刻板的機械化模式，一切聽指揮，其實跟坐牢幾乎沒什麽區別。這段牢籠般的軍營生活實際上是與外面地方社會幾乎完全脫節的。
+[German\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102316/German_0819_CCP_Virus_Updates1_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102316/German_0819_CCP_Virus_Updates1_.pdf)
 
-一日三餐，寢食無憂。無需爲生存發愁，只需要考慮如何與領導及戰友處理好關系，平穩的混日子就行了。這是絕大多數中共基層現役軍人的真實寫照。
+[Japanese\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27113637/Japanese_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27113637/Japanese_0819_CCP_Virus_Updates1.pdf)
 
-這種千篇一律的木納生活方式的惡果就是，一旦你習慣了這種相對安逸的度日方式，那麽你就跟一具行屍走肉差別無二了。
+[Korean\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102324/Korean_0819_CCP_Virus_Updates_208.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102324/Korean_0819_CCP_Virus_Updates_208.pdf)
 
-活到老，學到老，人生才能更加的精彩！
-精神上的懶惰要比肉體上的懶惰後果嚴重得多。中共的惡毒之處，就是要讓所有的人，都變成精神上的意慵心懶；而肉體上則如徒具形骸！這樣便于它們更好的奴役與統治這些庸庸碌碌，雖生猶死的靈魂難民！
+[Russian\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102320/Russian_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102320/Russian_0819_CCP_Virus_Updates1.pdf)
 
-老兵們把他們的青春都毫無保留的奉獻了中共軍方鐵打的營盤。退伍後所得的也僅僅是那點象征性的補償金（詳細參考《退役士兵安置條例》）。
-拿著用自己最好的青春時光，所換回來的那微薄的退伍補償金，以及一個木納的軀殼，重新回歸久別的現實社會。激烈的競爭，高企的生活成本，快速的生活方式等等的一切都那麽的現實那麽的殘酷。
+[Spanish\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102327/Spanish_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102327/Spanish_0819_CCP_Virus_Updates1.pdf)
 
-有多少退伍的老兵迷失在了這個他們脫離的許久的，光怪陸離的現實社會。又有多少的老兵無法正常的，與這個高速發展的社會所結合。不斷的被邊緣化，直至逐漸的被社會所淡忘甚至淘汰… …
-
-老兵不死，只是慢慢的凋零！
-這是道格拉斯.麥克阿瑟將軍的名言！
-而中共統治下的老兵們，這句話顯然不是說給你們聽的！
-
-中共迫于壓力所剛剛成立不久的“退役軍人事務部”。就是老兵們不斷的上街抗議，集體上訪，他們所面臨的生活難，醫療難，養老難等諸多生存窘境，政府與軍方都置若罔聞，相互推诿。這種過河拆橋，視老兵爲包袱的政權和軍隊，難道還不能讓老兵們，及現役中共軍人所警醒麽？
-
-老兵們，你們已經爲中共付出了最美好的青春；年輕時錯把黨國當家國，黨國隨時一腳踢開你。但家國不會，因爲我們生在長在這片土地上。
-但願我們的老兵不要再次弄丟了自己的靈魂與尊嚴！
-向所有的“老兵”——敬禮！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27094409/17263118_401.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27094428/unnamed.png)
 
 
 0

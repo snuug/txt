@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全面脫鈎進行時，全球最大基金管理公司退出香港
-`2020-08-27 02:40 GM01` [轉載自GNews](https://gnews.org/zh-hant/319728/)
+## 匯豐凍結香港壹傳媒高管賬戶 美國務卿稱中國“霸淩”英國
+`2020-08-27 09:09 GM01` [轉載自GNews](https://gnews.org/zh-hant/320380/)
 
-作者：尚
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27022943/6E8085F6-5642-49CC-BA32-9D3919730114.jpeg)
-全球最大共同基金公司領航集團將關閉香港業務 並退出香港ETF–聲明
+國內新聞作者：文顧
 
-新聞來自：路透社
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27085111/dddded.jpg)新聞來自：路透社
 
-路透上海8月26日 – 全球最大的共同基金管理公司–領航集團(Vanguard Group)週三在一則聲明中稱，將「逐步關閉」香港業務，並退出香港交易所交易基金(ETF)業務。
+據路透社報道，美國國務卿蓬佩奧周三因英國匯豐銀行(HSBA.L)對待香港親民主運動相關客戶的報導再次批評該行，稱中國“霸淩”英國。
 
-原文鏈接:https://cn.reuters.com/article/vanguard-hk-etf-0826-idCNKBS25M100
+壹傳媒創辦人黎智英於8月10日因涉嫌違反香港國安法下的勾結外國或境外勢力被警方上門拘捕。《蘋果日報》是壹傳媒旗下的出版物。壹傳媒高管Mark Simon對路透表示，盡管該公司的企業賬戶未被關閉，但匯豐銀行已經凍結了黎智英的個人賬戶和他名下企業的賬戶，Simon稱他自己的個人和信用卡賬戶也被凍結。
+
+蓬佩奧在壹份聲明中表示，“自由國家必須確保企業利益不會被中國共產黨收買，以幫助其進行政治鎮壓。”
+
+原文鏈接：[https://cn.reuters.com/article/us-pompeo-china-hsbc-0827-idCNKBS25N05H](https://cn.reuters.com/article/us-pompeo-china-hsbc-0827-idCNKBS25N05H)
 
 0
