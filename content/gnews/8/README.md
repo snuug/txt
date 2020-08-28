@@ -1,16 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農視頻 348 郭文貴先生 三峽洪災真實死亡人數已達十萬多人（西班牙語Spanish+中文Chinese+英語English）
-`2020-08-28 10:32 GM62` [轉載自GNews](https://gnews.org/zh-hant/322135/)
+## 槲皮素+鋅:預防CCP病毒的B方案
+`2020-08-28 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/322202/)
 
-西班牙語標題 El número real de muertos por las inundaciones de las Tres Gargantas ha alcanzado más de 100.000
+作者 小雨
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28104345/111-1.jpg)
+弗拉基米爾·澤連科博士(Dr. Vladimir Zev Zelenko)在8月4日推特和臉書上提出可以預防CCP病毒的B方案(A 方案是羥氯喹),即:
 
-翻譯：謎擬Q 校對：帅虎 視頻：小羽
+槲皮素(Quercetin)500mg,
 
-視頻簡介: 
-三峽洪災真實死亡人數已達十萬多人 整個中國明年百分百會發生大饑荒。
+每天一至二次 (非處方藥) 鋅(Zinc)25mg,
 
-El número real de muertos por las inundaciones de las Tres Gargantas ha alcanzado más de 100.000. Está 100% seguro de que China tendrá una gran hambruna el próximo año.
+每天一次 (非處方藥)
+
+注:服用前請諮詢醫生。
+
+弗拉基米爾·澤連科博士就是幾次做客班農作戰室的大鬍子醫生。 澤連科博士曾在班農作戰室節目中明確表示他和他的家人,包括他的幼女每天都在服用羥氯喹。 他被認為是美國最早對CCP病毒使用羥氯喹的醫生之一。 澤連科博士從今年3月份就一直致力與推動羥氯喹在預防和早期治療中的使用。 從6月份他就表示槲皮素是可以在沒有羥氯喹的情況下作為備選方案。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28104430/2222.jpg)
+澤連科博士在8月16日的推特和臉書上還指出,如果出現輕癥狀,懷疑感染CCP病毒,在拿到確切的PCR核酸檢測結果接受治療之前,對於低風險人群,即年齡小於60歲,沒有其他的合併症及沒有嚴重感染癥狀(例如,呼吸困難)。 可以採用的治療方案如下:
+
+1 休息,多喝水,必要時可服用泰諾(對乙醯氨基酚)
+
+2 維生素C 1gm, 每天一次,服用7天。
+
+3 槲皮素500mg, 每天二次,服用7天。
+
+4 鋅 50mg,每天一次,服用7天。
+
+5 請遵醫囑。
+
+點評:雖然現在很多醫生在呼籲獲得羥氯喹的緊急使用權,開放羥氯喹為非處方葯,但是目前在很多國家地區,例如歐洲各國,羥氯喹是處方藥。澤連科博士這個替代方案給處在CCP病毒傳染危險中又不能取得羥氯喹的民眾帶來了希望和福音。
+
+
+
+弗拉基米爾·澤連科博士(Dr. Vladimir Zev Zelenko)
+
+推特:@zev\_dr
+
+臉書@covid19win
+
+[https://www.facebook.com/covid19win/photos/pcb.169254014728649/169253971395320/?type=3&theater](https://www.facebook.com/covid19win/photos/pcb.169254014728649/169253971395320/?type=3&amp;theater)
+
+注:本網站不給讀者提供醫療建議或給任何治療方案背書,讀者請聯繫自己的醫生或澤連科醫生本人諮詢。
 
 0

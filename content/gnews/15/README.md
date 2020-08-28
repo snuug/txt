@@ -1,57 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新聞看點
-`2020-08-28 09:14 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322021/)
+## 【VOG多語種新聞播報(西班牙文)0828期】 三峽大壩危險——中國重慶長江寸灘水位累計漲幅超二十米
+`2020-08-28 09:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/322000/)
 
-喜馬拉雅聯盟加拿大農場 孫行者 大地鯤鵬
+西班牙語標題 La presa de las Tres Gargantas está en peligro: en Cuntan, el nivel del agua del Río Yangtze de Chongqing, China ha aumentado en más de 20 metros.
 
-2020 年8 月27日新聞看點
+編輯記者：川渝小哥G      Periodista: Chuanyu Xiaoge G
 
-一、疫情真相
+校對編輯：文劍 宠宝贝（文宠）Editor: Wenjian Chong Baobei (Wenchong)
 
-1.世衛組織派往中共國的新冠病毒調查先遣小組結束為期三週的訪問，但此行並未包含疫情源頭武漢，引發西方國家對調查透明度和可信度的擔憂。
+翻譯:谜拟Q Traductor: Mini Q
 
-2.中共國商務部於8月18日對原產於澳大利亞的進口裝2升及以下容器的葡萄酒進行反傾銷立案調查。此舉針對澳政府要求調查中共病毒起源，是繼對澳產牛肉和小麥加徵關稅之後的又一報復行為。
+視頻內容
 
-二、聯邦消息
+8月19號,根據新華網報導中國重慶主城即將迎來”長江2020年第5號洪水”。
 
-1.《路德訪談》8月27日晚間節目內容：美國司法部文件中的“外國人B”就是令完成。令完成手中“94號文件”的文字內容和郭文貴先生手中“91號文件”的音、視頻內容是共同破解中共海外財富地圖的鑰匙。 ( [https://www.youtube.com/watch?v=LU7kuZRJfXs](https://www.youtube.com/watch?v=LU7kuZRJfXs) )
+據長江委水文上游局19號晚11點測報,重慶長江寸灘水文站水位191.1米,超過保證水位 7.6米, 距1981年大洪水洪峰水位不足1米。 根據中國長江水文網數據顯示,8月10號至8月19號期間,寸灘水位從170.51米上漲到191.1米,漲幅達到驚人的20.59米, 最高水流量達到74400立方米每秒,超過黃河每秒流量的28倍。
 
-2.據台灣軍方人士27日透露，台灣將以810億新台幣購買美國岸置型機動魚叉反艦導彈，魚叉導彈和台灣自製的雄二反艦導彈互相配合，可提升導彈的命中率70 %以上，達到更大作戰效益。
+重慶的下游是三峽大壩,因其建設時期存在結構缺陷, 至今已嚴重變形。 短短十天內,長江局部水位發生了恐怖的漲幅,必將對三峽大壩形成巨大衝擊。 一旦潰壩,其下游的省市將會深陷洪災之中。
 
-3.台灣知名網紅陳之漢28日凌晨遭遇槍擊，手臂、右大腿及右小腿各中一槍。陳常在網絡上評議時事，以反共著稱，在網絡上擁有超高人氣。 2019年1月，他曾因反共言論收到網友的刺殺威脅。
+2017年10月5號華盛頓新聞發佈會上,爆料革命贊助者郭文貴曾預警中共將向全世界發動襲擊。 兩年後,中共研發的CCP病毒席捲全球。 7月22號, 郭文貴公開表示三峽大壩存在大概率潰壩風險,呼籲下游人民提前離開以保全性命。 不透明的政權必然隱藏了大量邪惡事件或行為, 中國水災與CCP病毒的手法何其相似,真相只有在中共退出歷史舞臺時才會揭開。
 
-4.香港警方經一年多調查，宣布去年7月21日元朗白衣人恐怖襲擊市民事件為兩派互毆，警方指鹿為馬的結論引起香港市民強烈不滿。另據《蘋果日報》消息，活躍於反送中運動的Telegram群組SUCK channel管理員於昨晚凌晨被捕。
+郭文貴(7月22號直播)
 
-5.美國新聞網站Buzzfeed日前發表的報導披露，他們通過對比衛星雲圖和實際調查發現，新疆地區過去三年新建了268所關押上百萬穆斯林少數族裔的集中營場所。
+中共說了。 那是江澤民和鄧小平(鄧家)的錯。 不是我的錯。 死個幾億人。 中國剩九億人也不錯。 洩洪到洩洪區灌滿。 然後祈求上天吧。 看老百姓的命吧。 在整個中國南部。 水災災區的同胞們。 如果你們相信文貴。 能撤抓緊撤。 能離開抓緊離開。
 
-6.300多艘中共國船隻在厄瓜多爾所屬加拉巴哥群島附近，通過關閉衛星系統逃避追踪，更改船隻名稱，濫捕濫漁，並留下大量海洋垃圾。
+新聞及資料來源:
 
-三、世界新聞
+[http://www.xinhuanet.com/2020-08/18/c\_1126384004.htm](http://www.xinhuanet.com/2020-08/18/c_1126384004.htm)
 
-1.日本首相安倍晉三於當地時間週五（28日）在記者會上宣布，因健康原因，已決定辭任首相職務，將留任至自民黨選出繼任人為止。
+(1981年以來最高位長江洪水抵近重慶主城 新華網發佈於8月18號晚11點)
 
-2.川普總統在共和黨全國代表大會演講中對中共提出了強烈批評，他說到：中共進入WTO，是有史以來世界上最大的經濟災難；中美貿易最重要的就是使產業鏈回歸美國，不再被中共綁架；BLM暴亂的問題，表面上是法律和秩序問題，其實根源也是中共在作祟；邊境非法移民，和中共支持的委內瑞拉也分不開；最關鍵的是，中共在想方設法干涉美國選舉，希望通過操控大選使拜登上台。
+[http://www.cjh.com.cn/article\_73\_239587.html](http://www.cjh.com.cn/article_73_239587.html)
 
-3.路德社消息，美國國務卿蓬佩奧、共和黨議員克頓等滅共精英正在組建新共和黨，建立滅共新聯盟。
+(中國長江水文網發佈於2020年8月19號)
 
-4.眾議院議長南希‧佩洛西周四表示，民主黨總統候選人拜登不應該與川普總統進行任何辯論。佩洛西在每週新聞發布會上對記者表示：“我認為不應該進行任何（總統競選）辯論。” 對佩洛西的建議，拜登回應評論說：“只要委員會繼續維持目前的計劃，我就會與他（川普）辯論。”
+[http://data.cma.cn/data/online/t/1](http://data.cma.cn/data/online/t/1)
 
-5.國土安全局長查德沃爾夫確認，安提法符合國內恐怖主義的標準。他說，安提法是鬆散連接的一個組織，目前已經傷害了100多名警察和其他執法人員，完全構成了國內恐怖主義。
+(國家氣象科學數據中心/中國氣象數據網國家)
 
-6.司法部開始調查年初四州（紐約州，新澤西，賓州，密歇根）養老院在州長命令下強行安排新冠病毒感染者入養老院，以及人為禁止養老院要求新人提供新冠病毒核酸結果的事件，相關評論指出上述命令無異於集體謀殺。
+備註:降水量、高程分析來自中國氣象數據網,洪水數據來自中國長江水文網。 根據國家氣象科學數據中心資料顯示,該時間段重慶及周邊省市降水量正常。
 
-7.抖音首席執行官凱文·梅耶爾（Kevin Mayer）係因被排除在該公司與微軟和甲骨文的交易談判之外而辭職。梅耶爾的辭職表明，TikTok很可能會在未來48小時內與微軟達成出售交易。出售的部分為TikTok美國部分，約有1億的使用者。
 
-8.澳大利亞總理莫里森（Scott Morrison）本週四（8月27日）舉行新聞發布表示《外交關係法案》將於下週提交議會審議，此舉或將促使“一帶一路”備忘錄作廢。
 
-9.加拿大保守黨領袖奧圖爾（ ERIN O’TOOL）在本週提出的保守黨外交政策中，與中共關係佔了很大篇幅。主要內容有：認識中共政權帶來的威脅，並製定計劃應對；扭轉特魯多對中共的綏靖態度以及貶低民主印度的做法；打擊中共對加拿大機構的滲透和對華裔加拿大人的恐嚇；禁止華為參與加拿大5G網絡建設；對一個中共國政策提出警告，視北京對香港一國兩制政策、尊重台灣參與聯合國多邊機構等問題的反應而定；給中共30天時間釋放被中共國綁架的加拿大公民邁克爾·斯帕弗和邁克爾·科夫里格，否則對包括中共總書記、最高人民法院院長在內的中共高官實施馬格尼茨基法進行製裁。
+El 19 de agosto, de acuerdo con los informes de Xinhuanet, la ciudad principal de Chongqing, China, está a punto de marcar el comienzo de la “Quinta inundación del río Yangtze en 2020”.
 
-四、時事評論
+Según el informe a las 23 del día 19 de la Oficina Hidrológica del Comité del Río Yangtze, el nivel del agua de la estación hidrológica de Cuntan, en Chongqing, era de 191,1 metros, lo que excede 7,6 metros del nivel de agua garantizada un metro por encima del nivel récord de 1981. Según datos de la Red Hidrológica del Río Yangtze de China, desde el día 10 al 19 de agosto, el nivel del agua de Cuntan subió de 170,51 metros a 191,1 metros, aumentando un número alarmante de 20,59 metros, el caudal máximo de agua alcanzó los 74.400 metros cúbicos por segundo, superando en 28 veces al río Amarillo.
 
-郭文貴先生三年爆料中提到的“91號文件”內容（ [https://gnews.org/zh-hant/317333/](https://gnews.org/zh-hant/317333/) ）
+Agua abajo de Chongqing se encuentra la presa de las Tres Gargantas, que tuvo defectos estructurales durante su período de construcción, el día de hoy se ha deformado gravemente. En solo diez días, el nivel del agua del río Yangtze ha experimentado un aumento terrible del nivel de agua que seguramente tendrá un enorme impacto sobre la presa de las Tres Gargantas. Una vez que se rompa la planta hidroeléctrica las provincias y ciudades aguas abajo quedarán profundamente atrapadas en la gran inundación.
 
-摘要：”91號文件“是馬建副部長任職期間調查和偵察所有官員過程中所收集到的資料。其中包含相關官員的海外關係、子女留學、私生子女、財富轉移、內鬥、性愛的監聽和錄影等資料，同時包含西方過去幾十年被中共布下的所有情報系統……
+El 5 de octubre de 2017, en una conferencia de prensa en Washington, Miles Guo, el iniciador de la revolución, advirtió que el PCCh lanzaría un ataque contra el mundo. Dos años después, un virus desarrollado por el PCCh barrió el mundo, el 22 de Julio, Miles Guo declaró públicamente que la presa de las Tres Gargantas tiene una alta probabilidad de derrumbe y alertó a las personas que se encuentran río abajo que se retiren lo antes posible para salvar sus vidas. Un régimen opaco seguramente oculta una gran cantidad de eventos o acciones malignas, son similares las inundaciones chinas y el virus del PCCh. La verdad sólo se revelará cuando el PCCh se retire del escenario de la historia.
+
+Miles Guo (en una transmisión en vivo del 22 de julio)
+
+El PCCh dijo
+
+todo eso es culpa de Jiang Zemin y Deng Xiaoping
+
+no es mi culpa
+
+cientos de millones de personas murieron
+
+900 millones de personas que restan en China, tampoco está tan mal
+
+dirigir la inundación hacia el área de inundaciones, para que las llenen
+
+luego rezarle al cielo
+
+depende del destino de la gente
+
+En todo el sur de China
+
+Compatriotas de las zonas afectadas por las inundaciones
+
+Si creen en Miles Guo
+
+si pueden retirarse antes, háganlo rápido
+
+si pueden irse del lugar, apresúrense en irse de ahí.
+
+
+
+fuentes:
+
+[http://www.xinhuanet.com/2020-08/18/c\_1126384004.htm](http://www.xinhuanet.com/2020-08/18/c_1126384004.htm)
+
+(La mayor inundación del río Yangtze desde 1981 alcanzó la ciudad principal de Chongqing)
+
+[http://www.cjh.com.cn/article\_73\_239587.html](http://www.cjh.com.cn/article_73_239587.html)
+
+(sitio web de la Estación hidrológica del Río Yangtze, China, publicado el 19 de agosto de 2020)
+
+[http://data.cma.cn/data/online/t/1](http://data.cma.cn/data/online/t/1)
+
+(Centro Nacional de Datos Científicos Meteorológicos / sitio web de Datos Meteorológicos de China)
+
+Ojos: El análisis de precipitación y elevación proviene del sitio web de Datos Meteorológicos de China y los datos de inundaciones provienen del sitio web de la Estación hidrológica del Río Yangtze de China.
+
+Según datos del Centro Nacional de Datos Científicos Meteorológicos, la precipitación en Chongqing, las provincias y ciudades circundantes fueron normales durante este período.
 
 0

@@ -1,16 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Warroom 345：班農先生從法院回來稱自己是不怕毒蛇敢單挑獅子的蜜獾，不會退縮，絕對會追殺邪惡的中共
-`2020-08-28 09:51 GM77` [轉載自GNews](https://gnews.org/zh-hant/322075/)
+## VOG多語種組每日政要Twitter播報(中文)08/28期(視頻+ PDF下載)
+`2020-08-28 10:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/322085/)
 
-戰友之家新聞譯制組
-撰稿：GM64
-
+[8.28每日政要Twitter播報](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28100115/8.28.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28100115/8.28.pdf)
 
 
-•班農先生自稱自己為契而不舍的蜜獾，會繼續為修建邊境墻去戰鬥。因為支持修建邊境墻就是支持川普總統的偉大行動之壹。
-•美國英雄布萊恩 科爾法奇是美國空軍歷史上受傷最嚴重的飛行員，他已經在中東戰場上獻出壹次生命，現在又冒著生命危險修建邊境墻。川普總統是對的，修建邊境墻是政府的壹項職能，但之前從未被履行過。
-•班農先生感慨從法院走出來以後最讓自己驚喜的是新中國聯邦的戰友。
 
 0

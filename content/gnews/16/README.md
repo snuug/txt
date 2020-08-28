@@ -1,18 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本首相安倍晉三請辭首相
-`2020-08-28 09:09 GM31` [轉載自GNews](https://gnews.org/zh-hant/322015/)
+## 川普總統談與中共國脫鈎和美國對中共國入侵台灣的可能反應
+`2020-08-28 09:33 GM31` [轉載自GNews](https://gnews.org/zh-hant/322054/)
 
-![](https://imgcdn.cna.com.tw/www/WebPhotos/1024/20200828/3968x2636_680250280170.jpg)
-日本NHK快訊報導，首相安倍晉三在日本時間下午4時左右于首相官邸舉行的臨時內閣會議裡表達請辭首相。
+川普總統在8月24日接受[福克斯](https://youtu.be/9rQgENQTg4s)新聞史蒂夫·希爾頓（Steve Hilton）的採訪中談到和中國脫鈎的問題。川普總統說，在過去的幾十年中， 美國從中國什麼也沒有得到， 中國一直在掠奪美國，美國每年從中國那裡損失達千億美元。除了他沒有任何一個總統敢對中國還擊，他說如果中國對美國不公，他一定會和中國脫鈎。當被希爾頓問到他對中國入侵台灣時的可能應對時，他說這個採訪的場合不適合談這個問題，但是中國很清楚他會怎樣做。
 
-[GM40]
+*翻譯：【JennyL】校對：【key】【Native】【Michelle】【GM31】字幕：【Pamila（文明）】【文言】*
 
-新聞連結:[https://www.cna.com.tw/news/firstnews/202008285003.aspx](https://www.cna.com.tw/news/firstnews/202008285003.aspx)
+*戰友之家玫瑰園小隊出品*
 
-相關新聞：
 
-> [安倍晉三因病辭任, 文貴先生半月前稱下任首相會更反共!這是巧合麼?](https://gnews.org/zh-hant/321994/)
 
 0

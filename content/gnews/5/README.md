@@ -1,143 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德談為什麼司法部檔是爆料的全面開始
-`2020-08-28 11:14 立武` [轉載自GNews](https://gnews.org/zh-hant/322230/)
+## 【中英文視頻版】2020/08/20 CCP病毒每日疫情直播簡報
+`2020-08-28 11:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/322307/)
 
-[鳴謝路德時評的精彩分析](https://www.youtube.com/watch?v=9V948JTDFW8)
+英文標題 CCP Virus Pandemic Updates Ep 209: Chinese Communist Party attributed the food crisis to food waste
 
-**序**
+重點內容
 
-文貴先生剛剛出來的時候，他似乎像一隻初生牛犢進入了虎穴，**在虎穴裡是一雙雙假冒為善的眼睛，他們狡黠地暗喜，他們激動地流著哈喇，**他們等待獵物的出現已經很久了。
+1. 8月20日，四川樂山五通橋永祥化工廠發生氣體洩漏事件，全城居民大逃亡，當日，官方否認有氣體洩漏，轉天又稱有少量氯化氫氣霧散發。大量民眾批評當局隱瞞實情。
+2. 8月20日重慶百年不遇洪災，整個城市泡在水中。一棟樓的房子現在只露了一個房頂出現。重慶近期滴雨未下，長江流域有近5萬座水庫。
+3. 中國即將面臨糧食危機，中共開始警告人民不要浪費糧食；浪費糧食已經被定義為犯罪。生活在中共國沒有人權，沒有法制，沒有言論自由。
+4. （比爾·格茨，8/19）（從蔡霞被開除中共黨籍談起）我想中共黨內有聲音傳遞出，他們開始認識到中共是個黑社會國家政權，這些腐敗的家族盜走了中國人民的財富。很明显过去八年来，习近平残酷地集中权力，造成了党内和中国人民广泛地反对他的统治。中国人民痛恨中共，视中共为腐败政治實體。
+5. (郭文貴先生，8/20）班農先生的事，发生后不到20分鐘，我就得知共產黨的媒體，CCTV，所有的（中共）媒體， 就报道出来了。再過20分鐘，所有的美國媒體才把這個新聞播放出來。中共的媒體能比美國的更早知道。這個行動真的有夠快，比救水还快！
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110651/%E6%89%B9%E6%B3%A8-2020-08-28-202616-3.png)2017年文贵先生爆料直播
 
-他們蜂擁而上，志在必得，心中百般地竊喜和狂傲，**他們用熟悉的套路和模式，先捧後殺，有的唱紅，有的唱白，試圖毀掉文貴先生的名譽。**
+1. August 20, an explosion occurred at the Yongxiang Chemical Plant in Wutongqiao, Leshan, Sichuan. The gas leaked and the residents of the city fled. On the that day, the government denied that there was a gas leak, but the next day it said that a small amount of chlorinated hydrogen mist was leaked and emitted.  The authorities concealed it.
+2. Chongqing encountered once-in-a-century flooding, and the entire city was soaked in water. Only the roofs of single-story buildings can be seen. Water still gushes up from the underground tunnel below. What is absurd is that it has not rained recently in Chongqing. The fact is that there are 50,000 dams in the Yangtze River basin.
+3. The CCP attributed the food crisis to food waste, saying that food waste was related to criminal activities, and wasting food has been defined as a crime. People living in the Communist China has no human rights, no Rule of law, and no freedom of speech. The fertile fields in 27 provinces have suffered from floods, locust plagues and epidemics.
+4. (Bill Gertz, 8/19) (On Cai Xia’s being expelled from the CCP) I think there are voices in the party which are starting to recognize that this is a mafia state, these families are corrupt, they’re stealing from the Chinese people. Clearly Xi Jinping’s ability over the last eight years to brutally consolidate power has created a widespread opposition to his rule both within the party and of course among the Chinese people who hate the Chinese Communist Party; they view the communist party as just a corrupt political entity.
+5. (Miles Guo, August 20) Mr. Bannon’s incident, less than 20 minutes after I got to know about it, all the CCP media, CCTV, all other  Chinese communist media, all came out.  And another 20 minutes later, all the American media reported it. The CCP media got to know it even earlier than the American did. The CCP’s media coverage was so fast, much faster than their flood relief actions.
 
-**他們建立一個又一個的組織試圖綁架文貴先生，他們又高舉言論自由和正義必勝的大旗，**行使著下作無恥的行為。
-
-**他們有的痛哭流涕，有的傻笑大氣，有的說書講理，有的破口抨擊。**
-
-他們有著共同的目標和共同的使命，**勢必要將一個前無古人喊出滅共的戰士推入深淵，推入萬劫不復的地獄。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110625/600_2214834_1-3.jpg)2017年文贵先生哈德逊研究所演讲
-
-他們不知道一個剛剛從地獄掙脫出來的戰士，已經接受過百般的磨練和洗禮，對於他來說，**初生牛犢只是為了掩人耳目，獨入虎穴，只是為了引出背後的大貓，文貴先生在等待的是在大貓出來的一刹那，利刃出鞘，一擊斃命。**
-
-**欺民賊：小罵大幫忙**
-
-
-> **令完成2014年就出來了，郭伯雄、徐才厚、孫力軍等，甚至姬鵬飛，手上都有材料，為什麼現在才出來？因為以前他們即便出來，中共也可以利用大外宣，所有社交媒體蓋住一切爆料，讓他們無法發聲。**
-
-
-
-> **外加所謂“主流媒體”《華爾街日報》的造謠，所謂“自媒體”的屎諾等跟風瞎編，就讓美國政客不敢沾染。還有海外偽民運中和政客熟悉的人，再煽風點火…美國議員拿到爆料，肯定要問傅希秋這種人，結果這些偽民運、偽律師 ，都會說“是假的”。**
-
-
-有人說，**欺民賊是傻，是壞，**不必搭理他們。
-
-路德卻說，**欺民賊是帶著任務的，是中共海外的大外宣力量，**如若不然，不可能有人會天天詆毀一個人，而且這個人和你沒有瓜葛，也不觸及你的利益，**甚至是為了你的未來在戰鬥。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110533/DzUoMRjU0AE_bLg-3.jpg)2019年文贵看春晚
-
-**欺民賊就是小罵大幫忙，**平常可以不要臉皮地擁護文貴先生、吹捧文貴先生，他們等的就是文貴先生露出破綻，**一旦文貴先生一句話、一個動作出現問題，這些欺民賊就開始群擁而上，既是演被騙的苦情戲，又是演揭發的英雄劇。**
-
-欺民賊的目的就是**敗壞文貴先生的信譽，孤立文貴先生，在關鍵時刻出賣文貴先生，**讓共產黨有機可乘。
-
-賴昌星就是活脫脫一個例子。
-
-賴昌星“**被海外民運以各種名義吃、騙、坑三四年，最後是海外民運把他賣給了共產黨。還陷害他賭博，帶他去賭博，在當地又犯了刑事罪，最後把賴昌星送回了國內。（文貴先生）**”
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110507/pic20080328235311-3.jpg)左一为赖昌星
-
-**賴昌星的結局是慘的。**
-
-即使令完成14年出來，欺民賊也能配合中共將令完成的爆料**詆毀成出逃貪官的報復，毀掉他的名譽，再動用五毛水軍、大外宣力量通過人海戰術來掩蓋令完成的爆料，**最後徹底瓦解一場不成氣候的革命。
-
-
-> **令完成站出來，會被人問“你有證據麼？”這些人自己就是證人，但中共就攪混水，搞壞你的名譽，再用“挺郭砸郭”攪混水。**
-
-
-
-> **王立軍手上有料，照樣被送回去。因為如果策略和謀略不夠，這些料照樣不能給中共定罪。因為中共太邪惡，很多東西根本超出了人類想像，告訴媒體都沒人相信，會說你是“編故事”，哪怕令計畫自己出來都會被編造。**
-
-
-
-> **郭伯雄家人出來爆料，肯定會被打成貪官，說內鬥失敗，出來爆料，最後不了了之…哪怕郭伯雄的兒子站出來，都會被抹黑。**
-
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110401/20141029093211807-3.jpg)令完成，化名“王诚”
-
-王立軍、郭伯雄、徐才厚、孫立軍都是如此，**他們敗就敗在無法建立起信譽。**
-
-而現在司法部檔和**文貴先生都可以給予他們爆料的信譽。**
-
-**司法部文件：信譽的標杆**
-
-
-> **司法部檔出來後，這些東西才會一個個曝光。司法部定性了文貴先生爆料。**
-
-
-司法部文件**證明了文貴先生爆料的真實性，更是建立了文貴先生滅共無出其右的地位，**司法部檔揭露中共動用一國之力和深層政府的力量試圖遣返文貴先生，習近平更是親自出面與川普談判，這更加地**反映出中共的恐懼和文貴先生的重要性。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110341/caJM-fyecrxv4892570-3.jpg)2017年川习马阿拉歌庄园会面
-
-這是文貴先生**三年爆料，和中共周旋，放長線釣大魚**的結晶。
-
-
-> **現在這些人出來，只需要文貴先生說，“這些是真的”。**
-
-
-現在，文貴先生的一句認可就可以建立這些爆料人的信譽，**這也是為什麼路德先生說司法部檔是全面爆料的開始，即將會有越來越多的核心級人物站出來爆料。**
-
-
-> **這麼多人站出來，各種證據給到美國。越來越多人站出來形成一個勢頭，一定會摧毀玩“空城計”的這幫人。**
-
-
-
-> **爆料革命的效應，只要一個人出來，就有十個人，100個人。他們只要堵，就又被坐實證據。**
-
-
-
-> **郭伯雄、徐才厚、遲浩田、王立軍、孫力軍等家族，全都會出來。越瞭解這個體制，越知道每個人都是肉，十四億人和絞肉機，停止的方式只有這個。習、王認為自己是絞肉機，但也隨時可以絞殺他們。**
-
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110145/8a3af1a135b12c06d5ede2def58f2820_w-3.jpg)
-
-現在，**文貴先生已經將正義的藍旗插在山頭，真正為了保命保財的爆料人會趨之若鶩，**誰都想快點結束這個體制，誰都惶惶不安**，心安之處在新中國聯邦，**這是趨勢，也是潮流。
-
-**三年爆料：放長線釣大魚**
-
-賴昌星但凡**對共產黨在海外的大外宣力量有一個清晰的認識的話，**就不會相信海外民運。
-
-文貴先生的優勢在於**他深入過中共的情報核心，他特別熟悉管海外民運幾十年的林強和張越，**他深知海外民運是什麼貨色。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110121/EX4MMwFWsAAn2Kk-3.jpg)右三为林强
-
-文貴先生更大的優勢是**他懂得戰略與博弈，懂得釣魚和周旋，更懂得隱忍和堅持**。
-
-三年爆料，文貴先生受盡了唾駡與侮辱，受盡了背叛和捅刀，**他也曾給予欺民賊一個放下屠刀的機會，他也相信因果福報，欺民賊的惡和不悔改，自然有來自上天的懲罰，**文貴先生要做的就是讓子彈飛一會。
-
-
-> **爆料就是誘餌、引蛇出洞，真正的是用司法來依法滅共。**
-
-
-
-> **大外宣的體系，西諾韋石夏業良馬大維，文貴先生說有幾個被抓了，被保釋了。都是放長線釣大魚。**
-
-
-文貴先生不在乎欺民賊，**他在乎的是欺民賊背後的一張網，一張中共在海外布下的天羅地網，**文貴先生把自己拋出去，作為攻擊的目標，作為誘餌，**就是要引蛇出洞，要坐實這張網存在的證據。**
-
-文貴先生作為標杆，只要砸鍋的**，****FBI****一定會鎖定這個目標，鎖定他的財務來源，鎖定他的情報上線，**慢慢牽出背後的大貓。
-
-文貴先生與欺民賊打官司，**為的是坐實誰支付了欺民賊的律師費，撤訴意味著證據已經坐實。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110033/maxresdefault-2-5.jpg)2019年文贵先生和郭宝胜庭外质询
-
-只要坐實證據，**欺民賊要麼做污點證人，要麼被遣返或進監獄，**自然不用搭理他們。
-
-更重要的是，**接下來即將利用****RICO****法案制裁這張網背後佈局的人，**毫無疑問，目標對準的就是中共。
-
-司法部檔是文貴先生三年磨一劍的結晶，這是一把“瓦雷利亞鋼劍”，利刃出鞘的那一刻，結局早已在三十年前決定。
 
 0
