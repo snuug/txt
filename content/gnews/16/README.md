@@ -1,20 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友點評】蓬佩奧發推文再批中共施壓匯豐銀行
-`2020-08-28 05:39 GM42` [轉載自GNews](https://gnews.org/zh-hant/321640/)
+## 日本首相安倍晉三請辭首相
+`2020-08-28 09:09 GM31` [轉載自GNews](https://gnews.org/zh-hant/322015/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-戰友點評：点苍山
-後期製作：文粵
+![](https://imgcdn.cna.com.tw/www/WebPhotos/1024/20200828/3968x2636_680250280170.jpg)
+日本NHK快訊報導，首相安倍晉三在日本時間下午4時左右于首相官邸舉行的臨時內閣會議裡表達請辭首相。
 
+[GM40]
 
+新聞連結:[https://www.cna.com.tw/news/firstnews/202008285003.aspx](https://www.cna.com.tw/news/firstnews/202008285003.aspx)
 
-美國國務卿蓬佩奧在推特發文，指中共“繼續欺淩我們的英國朋友及企業領導人”，並批評滙豐控股為受制裁的人士保留帳戶卻關閉那些追求自由人士的帳戶。
+相關新聞：
 
-資料來源：蘋果日報
-
-[https://hk.appledaily.com/finance/20200826/SJTL653MRRDHBMQYOVHWRXGIKM/](https://hk.appledaily.com/finance/20200826/SJTL653MRRDHBMQYOVHWRXGIKM/)
+> [安倍晉三因病辭任, 文貴先生半月前稱下任首相會更反共!這是巧合麼?](https://gnews.org/zh-hant/321994/)
 
 0

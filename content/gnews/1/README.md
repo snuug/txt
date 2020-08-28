@@ -1,47 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 槲皮素+鋅:預防CCP病毒的B方案
-`2020-08-28 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/322202/)
+## 喜馬拉雅聯盟加拿大農場證監會三日示威圖集
+`2020-08-28 13:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322404/)
 
-作者 小雨
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28104345/111-1.jpg)
-弗拉基米爾·澤連科博士(Dr. Vladimir Zev Zelenko)在8月4日推特和臉書上提出可以預防CCP病毒的B方案(A 方案是羥氯喹),即:
+喜馬拉雅聯盟加拿大農場 文錦
 
-槲皮素(Quercetin)500mg,
+校對 小甜蝦
 
-每天一至二次 (非處方藥) 鋅(Zinc)25mg,
+2020年8月25、26、27連續三日，喜馬拉雅聯盟加拿大農場在多倫多、卡爾加里及溫哥華證監會前進行抗議示威。勇敢、堅韌的我們熱愛加拿大！熱愛自由！追求公平正義真相！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130110/00.jpg)
+我們堅持自己的合法權利，要求證監會：
 
-每天一次 (非處方藥)
+1.解封無理由凍結的賬戶和資金！
 
-注:服用前請諮詢醫生。
+2.給我們證據！
 
-弗拉基米爾·澤連科博士就是幾次做客班農作戰室的大鬍子醫生。 澤連科博士曾在班農作戰室節目中明確表示他和他的家人,包括他的幼女每天都在服用羥氯喹。 他被認為是美國最早對CCP病毒使用羥氯喹的醫生之一。 澤連科博士從今年3月份就一直致力與推動羥氯喹在預防和早期治療中的使用。 從6月份他就表示槲皮素是可以在沒有羥氯喹的情況下作為備選方案。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28104430/2222.jpg)
-澤連科博士在8月16日的推特和臉書上還指出,如果出現輕癥狀,懷疑感染CCP病毒,在拿到確切的PCR核酸檢測結果接受治療之前,對於低風險人群,即年齡小於60歲,沒有其他的合併症及沒有嚴重感染癥狀(例如,呼吸困難)。 可以採用的治療方案如下:
+3.停止濫用權力！
 
-1 休息,多喝水,必要時可服用泰諾(對乙醯氨基酚)
+請欣賞戰友們的英姿：
 
-2 維生素C 1gm, 每天一次,服用7天。
+加拿大最大城市安省多倫多
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130407/%E5%A4%9A%E4%BC%A6%E5%A4%9A3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130502/%E5%A4%9A%E4%BC%A6%E5%A4%9A2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130519/%E5%A4%9A%E4%BC%A6%E5%A4%9A1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130535/%E5%A4%9A%E4%BC%A6%E5%A4%9A4.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130548/%E5%A4%9A%E4%BC%A6%E5%A4%9A5.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130602/%E5%A4%9A%E4%BC%A6%E5%A4%9A6.png)
+加拿大阿省卡爾加里
 
-3 槲皮素500mg, 每天二次,服用7天。
-
-4 鋅 50mg,每天一次,服用7天。
-
-5 請遵醫囑。
-
-點評:雖然現在很多醫生在呼籲獲得羥氯喹的緊急使用權,開放羥氯喹為非處方葯,但是目前在很多國家地區,例如歐洲各國,羥氯喹是處方藥。澤連科博士這個替代方案給處在CCP病毒傳染危險中又不能取得羥氯喹的民眾帶來了希望和福音。
-
-
-
-弗拉基米爾·澤連科博士(Dr. Vladimir Zev Zelenko)
-
-推特:@zev\_dr
-
-臉書@covid19win
-
-[https://www.facebook.com/covid19win/photos/pcb.169254014728649/169253971395320/?type=3&theater](https://www.facebook.com/covid19win/photos/pcb.169254014728649/169253971395320/?type=3&amp;theater)
-
-注:本網站不給讀者提供醫療建議或給任何治療方案背書,讀者請聯繫自己的醫生或澤連科醫生本人諮詢。
+戰友們在物資不充足、活動人數較少的情況下，三天來堅持到底。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130613/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130622/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C2-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130634/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C1-scaled.jpg)
+加拿大卑詩省溫哥華
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130702/%E6%B8%A9%E5%93%A5%E5%8D%8E1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130711/%E6%B8%A9%E5%93%A5%E5%8D%8E2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130727/%E6%B8%A9%E5%93%A5%E5%8D%8E3.jpg)
+相關新聞： 
+ Peaceful Demonstration against The Abuse of Power by The Securities Commissions in Canada 
+ https://gnews.org/318993/ 
+喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
+ https://gnews.org/zh-hans/316568/ 
+郭文貴先生鼓勵喜馬拉雅聯盟加拿大農場戰友向證監會抗爭
+ https://gnews.org/zh-hans/316801/ 
+近觀加拿大農場的金融“中途島戰役” 
+ https://gnews.org/zh-hans/318790/
 
 0

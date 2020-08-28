@@ -1,20 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友點評】冠人民之名 行黨衛軍之實 獨裁者將警察綁上破戰車
-`2020-08-28 03:08 GM42` [轉載自GNews](https://gnews.org/zh-hant/321536/)
+## 8月28日財經快訊: 抖音將死? 疫情持續影響經濟
+`2020-08-28 08:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321925/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-戰友點評：點蒼山
-後期製作：文粵
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28081856/Picture16.png)圖片來源： [https://pixabay.com](https://pixabay.com/illustrations/tiktok-ban-social-media-tiktok-ban-5358337/) 
+[1.沃爾瑪證實，它正在與微軟合作競購TikTok。消息人士稱，TikTok即將達成出售其在美國，加拿大，澳大利亞和新西蘭業務的協議，交易金額可能在200億至300億美元之間。](https://www.cnbc.com/2020/08/27/walmart-is-teaming-up-with-microsoft-on-tiktok-bid.html)
 
+[2.受中共病毒影響，中國最大的汽車製造商公佈上半年利潤下降39％](https://www.bloomberg.com/news/articles/2020-08-27/china-s-biggest-carmaker-posts-39-drop-in-first-half-earnings?srnd=next-china)
 
+[3.受中共病毒影響，代表54個國家的英聯邦在今年7月份呼籲緊急暫停所有發展中國家的外債償還。國際貨幣基金組織稱，中共病毒威脅將使貧窮國家倒退十年，全球經濟衰退可能使1億人陷入極端貧困。](https://www.bloomberg.com/news/articles/2020-08-27/virus-threatens-to-set-back-poor-nations-by-10-years-imf-says?srnd=markets-vp)
 
-習近平昨日向中國人民警察授旗並致訓詞，指人民警察是國家重要的治安行政和刑事司法力量，又強調警察要對黨忠誠
+[4.微軟參與協助中共軍方代理機構助其開發操作系統](https://thenationalpulse.com/news/microsoft-ccp-operating/)
 
-資料來源：立場新聞
+[5.人大副校長劉元春：要解決雙循環要有”備胎”方案](https://money.163.com/20/0828/13/FL4BN6IP00258J1R.html)
 
-[https://www.thestandnews.com/politics/%E7%B5%95%E5%B0%8D%E5%BF%A0%E8%AA%A0-%E5%90%91%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E8%AD%A6%E5%AF%9F%E6%8E%88%E6%97%97-%E7%BF%92%E8%BF%91%E5%B9%B3-%E8%AD%A6%E5%AF%9F%E8%A6%81-%E4%BB%A5%E9%BB%A8%E7%9A%84%E6%84%8F%E5%BF%97%E7%82%BA%E6%84%8F%E5%BF%97/](https://www.thestandnews.com/politics/%E7%B5%95%E5%B0%8D%E5%BF%A0%E8%AA%A0-%E5%90%91%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E8%AD%A6%E5%AF%9F%E6%8E%88%E6%97%97-%E7%BF%92%E8%BF%91%E5%B9%B3-%E8%AD%A6%E5%AF%9F%E8%A6%81-%E4%BB%A5%E9%BB%A8%E7%9A%84%E6%84%8F%E5%BF%97%E7%82%BA%E6%84%8F%E5%BF%97/)
+[6.日首相安倍晉三突然決定辭職，日經指數急挫](https://www.cnbc.com/2020/08/28/asia-markets-federal-reserve-currencies-oil-in-focus.html)
+
+By：【密翻組·金融法律組】
 
 0
