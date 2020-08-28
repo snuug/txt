@@ -1,55 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國的洪水正猛烈地衝擊稀土，化肥以及其它行業
-`2020-08-27 17:45 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/320995/)
+## 8月27日財經快訊：南海強拆開始，中概股妥協
+`2020-08-27 19:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321141/)
 
-*新聞來源：《日經亞洲評論Nikkei Asia Review》；作者：譚燦(CK TAN)；*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27173435/Picture12.png)圖片來源： [https://s.yimg.com](https://s.yimg.com/ny/api/res/1.2/GWZW5jm.6VLUMjGfl9zvNA--~A/YXBwaWQ9aGlnaGxhbmRlcjtzbT0xO3c9ODAw/https://media-mbst-pub-ue1.s3.amazonaws.com/creatr-uploaded-images/2020-08/9665e530-e733-11ea-97fd-a595c2491687) 
+[1.美國商務部將24家中國企業列入參與南海島礁軍事化實體名單，南海強拆已經開始。](https://www.commerce.gov/news/press-releases/2020/08/commerce-department-adds-24-chinese-companies-entity-list-helping-build)
 
-*翻譯/簡評：文明明；校對：Beicy-數學老師；審核：海闊天空InAHurry；Page：草根文人*
+[2.美國監管方要求接受審計才能避免摘牌，中方要求就此問題和美方對話](https://www.bloomberg.com/news/articles/2020-08-26/china-makes-concessions-in-call-for-talks-on-u-s-audit-standoff)
 
-簡評：
+[3.澳大利亞聯邦政府將立法，徹底中斷澳大利亞維多利亞州政府與中共國一帶一路的合作協議](https://www.theaustralian.com.au/nation/politics/morrison-to-tear-up-victorias-belt-and-road-initiative-deal-with-beijing/news-story/ec1fa27c29897246b6b152420d004a0f)
 
-數週以來，長江以及沿江流域的洪水嚴重地影響了工業生產，許多生產廠家因遭水淹而停止運營。中共國為數不多的稀土生產商之一的四川盛和資源有限公司和化肥生產商四川和邦生物技術有限公司等企業都因廠房被淹，設備和庫存都遭遇不同程度的重大損失。稀土是生產智能手機和其他電子設備至關重要的17種金屬之一，而磷酸鹽類通常用於製造肥料和動物飼料的礦物。這些上游企業的停產，將影響下游企業的正常運營，對中共國因新冠病毒造成的經濟停滯而言，將是雪上加霜。
+[4.新西蘭航空公司隨著中共病毒疫情延續將承受進一步虧損。新西蘭航空公司曾連續多年在全球航空業中排名名列前茅。現在面臨18年來首次稅後虧損4.54億新西蘭元。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12359827)
 
-面對洪水帶來的如此慘重的經濟損失和數百萬受暴雨和洪水影響的沿江居民，中共領導人不得不從如火如荼的內鬥中抽出時間，在電視上做秀般的擺拍了一下，露了一下臉，根本沒有實際的防洪和安置受災群眾的舉措。而搶險指揮部上週六已經發出警告說，主要水域沿線的水位仍然很高，並命令地方政府保持警惕，準備應對周二的更大降雨。長江水域的大壩，尤其是三峽大壩又將面臨這新一輪暴雨的考驗。
+[5.在美國，負責中共病毒治療研究的55名專家中有8名隸屬於瑞德西韋製造商吉利得（Gilead ）。那麼吉利得在這場羥氯喹大戰中扮演什麼樣的角色呢？](https://www.zerohedge.com/medical/what-gileads-role-war-hydroxychloroquine)
 
-##  **中共國的洪水正猛烈地衝擊稀土，化肥以及其它行業** 
+[6.小鵬汽車今天紐約上市，是否能夠經得起美國證監會的審查，是否hold住是個問題。](https://m.sohu.com/a/415108097_616701/?pvid=000115_3w_a)
 
-從新冠病毒病毒封鎖中恢復的經濟正在面臨洪水的威脅
+[7.美聯儲理事分析中共病毒對經濟和銀行業造成的巨大負面影響](https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm)
 
-[!\[\](https://spark.adobe.com/page/mCaXlZ7USQBsC/images/1198ad37-715b-40f4-bee2-7efe2238885a.jpg?asset_id=245efbf9-f722-4e81-b3d7-2b5642df5a57&amp;img_etag=%2232cc667e67204a2ddadd52da099dd876%22&amp;size=2560)](https://spark.adobe.com/page/mCaXlZ7USQBsC/images/1198ad37-715b-40f4-bee2-7efe2238885a.jpg?asset_id=245efbf9-f722-4e81-b3d7-2b5642df5a57&amp;img_etag=%2232cc667e67204a2ddadd52da099dd876%22&amp;size=1024)
-
-上海—— 數週以來，中共國最長的水域- 長江以及沿江流域的洪水嚴重影響了工業生產，對正試圖擺脫由因新冠病毒引起的下滑經濟而言，無疑是雪上加霜。
-
-儘管當局沒有透露自六月以來的暴雨造成的洪水所帶來的經濟損失總數，但是許多生產廠家因遭水淹而停止運營。
-
-中共國為數不多的稀土生產商之一的四川盛和(Shenghe)資源有限公司在周三表示，洪水損壞了該公司下屬的兩家工廠包括設備和庫存在內的固定資產。
-
-這家在上海上市的集團公司初步預計損失將在3.9億元至5.2億元人民幣（5,600萬至7,500萬美元）之間，因為洪水阻止了公司員工進入工廠實地評估實際受損情況。
-
-其中的一家工廠在2019年生產了28,227噸稀土礦土，約佔該集團營業收入的8％。這種材料是生產智能手機和其他電子設備至關重要的17種金屬之一。週一，該公司的股價跌至7.90元，較上一周下跌了11％。
-
-根據中共國工業信息網站的數據，去年中共國生產了132,000噸的稀土礦物，大約佔全球產量的三分之二。
-
-[!\[\](https://spark.adobe.com/page/mCaXlZ7USQBsC/images/0cd95cfb-6d9f-4067-9bf5-1e3a00d3d561.jpg?asset_id=73ff0ed8-f123-4314-be17-31cbc8b3b1e8&amp;img_etag=%228b07e18216abd907284220c48679116a%22&amp;size=2560)](https://spark.adobe.com/page/mCaXlZ7USQBsC/images/0cd95cfb-6d9f-4067-9bf5-1e3a00d3d561.jpg?asset_id=73ff0ed8-f123-4314-be17-31cbc8b3b1e8&amp;img_etag=%228b07e18216abd907284220c48679116a%22&amp;size=1024)
-
-化肥生產商四川和邦(Hebang)生物技術有限公司週四宣布其工廠已被洪水淹沒，生產線和庫存損失預計為3.5億元。根據光大(Everbright)證券的分析師分析，四川和邦生物技術有限公司和福化集團佔中共國磷酸類礦物生產的24％。分析師還表示，何時能夠恢復生產尚不確定。磷酸鹽類是一種廣泛用於製造肥料和動物飼料的礦物。
-
-此外，洪水還影響了皮革生產廠家四川振鏡(Zhenjing)公司，該公司佔地157,000平方米的工廠已經被水淹沒。這家為汽車和鞋類製造商提供產品的公司表示未來需要三個月才能恢復運營。
-
-由於長江流經整個中共國的中部，因此暴雨影響了長江流域的數百萬人，這引起了國家最高領導人的關注。習近平主席和李克強總理上周訪問了遭受洪災影響的地區，並承諾加強防洪工作和經濟援助。中央電視台還播出李克強穿著雨靴在齊腳踝的水中與重慶的災民交談的畫面。重慶是一個人口超過三千萬的中部城市。
-
-儘管中共國的幾座水壩，特別是湖北省的三峽大壩，都抵擋住了高水位，但是下游的人們卻仍然生活在擔憂中。今年夏天，三峽不得不抵擋創紀錄的流經水量，週四，它開閘放水，流出水量達到每秒75,000 立方米。
-
-搶險指揮部周六警告說，主要水域沿線的水位仍然很高，並命令地方政府保持警惕，準備應對周二的更大降雨。
-
-另一場暴風雨即將來臨，中共國氣象局週日發布了颱風“巴維”的警報，颱風預計將在周三襲擊中共國的南部地區。
-
-中共國第二季度的經濟增長率為3.2％，好於預期。但是，目前一些經濟學家懷疑這種增長速度能否持續。標普全球信用評級公司（S&P Global Ratings）在8月17日的一份報告中表示，中共國7月份的經濟數據表明其經濟的增長仰仗於政府的支持。
-
-[原文鏈接](https://asia.nikkei.com/Business/Companies/China-s-flooding-slams-rare-earth-fertilizer-and-other-industries)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/mCaXlZ7USQBsC/)
+By：【密翻組- 金融法律團隊】
 
 0
