@@ -1,24 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月27日財經快訊：南海強拆開始，中概股妥協
-`2020-08-27 19:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321141/)
+## 梅耶爾的閃辭預示著TikTok大勢已去
+`2020-08-27 22:14 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321294/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27173435/Picture12.png)圖片來源： [https://s.yimg.com](https://s.yimg.com/ny/api/res/1.2/GWZW5jm.6VLUMjGfl9zvNA--~A/YXBwaWQ9aGlnaGxhbmRlcjtzbT0xO3c9ODAw/https://media-mbst-pub-ue1.s3.amazonaws.com/creatr-uploaded-images/2020-08/9665e530-e733-11ea-97fd-a595c2491687) 
-[1.美國商務部將24家中國企業列入參與南海島礁軍事化實體名單，南海強拆已經開始。](https://www.commerce.gov/news/press-releases/2020/08/commerce-department-adds-24-chinese-companies-entity-list-helping-build)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27214953/Screen-Shot-2020-08-28-at-11.49.42-am.png)圖片來源：道客優
+據《金融時報》8月27日報導，在川普總統下達對TikTok的封殺令後，上任不到四個月的TikTok首席執行官凱文·梅耶爾（Kevin Mayer）提出了辭呈，梅耶爾此前在迪斯尼擔任高管。
 
-[2.美國監管方要求接受審計才能避免摘牌，中方要求就此問題和美方對話](https://www.bloomberg.com/news/articles/2020-08-26/china-makes-concessions-in-call-for-talks-on-u-s-audit-standoff)
+川普總統在前不久下令TikTok的母公司字節跳動（ByteDance）必須在90天內將TikTok的美國資產出售給一家美國公司，否則TikTok在美業務將會被全面禁止。梅耶爾在給TikTok和字節跳動員工的信中稱，他決定在本週四離開公司，現任TikTok的美國總經理凡妮莎·帕帕斯（Vanessa Pappas）將暫時接替他的工作。
 
-[3.澳大利亞聯邦政府將立法，徹底中斷澳大利亞維多利亞州政府與中共國一帶一路的合作協議](https://www.theaustralian.com.au/nation/politics/morrison-to-tear-up-victorias-belt-and-road-initiative-deal-with-beijing/news-story/ec1fa27c29897246b6b152420d004a0f)
+梅耶爾在信中解釋，他離職的決定是在目前政治環境發生巨大變化的情況下經過深思熟慮而作出的。梅耶爾稱，他當初簽約TikTok時就是衝著發展TikTok的全球業務來的，然而，由於美國政府對TikTok的決定將逼迫公司賤賣美國的業務，這將使他的工作與原來的期望背道而馳。
 
-[4.新西蘭航空公司隨著中共病毒疫情延續將承受進一步虧損。新西蘭航空公司曾連續多年在全球航空業中排名名列前茅。現在面臨18年來首次稅後虧損4.54億新西蘭元。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12359827)
+據熟悉整個事件的人透露，梅耶爾在六月簽了TikTok，但上任僅幾週，川普政府就下達了對TikTok的有關決定，當時梅耶爾並沒有預料TikTok會因為涉及美國數據隱私和國家安全問題而深入地捲入中美對抗中，他簽約TikTo可不是為了處理這種棘手的事。在梅耶爾剛加入字節跳動時，一位熟悉他的人就說，梅耶爾已經把自己置於了一個政治敏感區，他必須在迎合他的中共國“主子”同時接受美國公眾的審查。
 
-[5.在美國，負責中共病毒治療研究的55名專家中有8名隸屬於瑞德西韋製造商吉利得（Gilead ）。那麼吉利得在這場羥氯喹大戰中扮演什麼樣的角色呢？](https://www.zerohedge.com/medical/what-gileads-role-war-hydroxychloroquine)
+字節跳動創始人兼首席執行官張一鳴在另外一份致員工的信中表示，鑑於TikTok目前面臨的全球政治挑戰，他完全理解梅耶爾先生的離職決定。張一鳴稱，公司所處的政治環境對梅耶爾的工作會有巨大的影響，特別是考慮到他在美國主持公司的全球業務。 TikTok公司同時也發表了一份聲明，表示尊重梅耶爾的辭職決定。
 
-[6.小鵬汽車今天紐約上市，是否能夠經得起美國證監會的審查，是否hold住是個問題。](https://m.sohu.com/a/415108097_616701/?pvid=000115_3w_a)
+《金融時報》在報導中稱，川普總統在本月曾說，他的政府有可靠證據表明字節跳動可能會採取損害美國安全的行動。字節跳動已與多家潛在的TikTok美國買家進行了溝通。張一鳴在員工信中表示，字節跳動正在積極尋求辦法來解決目前面臨的全球挑戰，特別是在美國和印度。 TikTok在本週早些時候起訴了川普政府，認為其行為出於政治動機，未走正當程序。
 
-[7.美聯儲理事分析中共病毒對經濟和銀行業造成的巨大負面影響](https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm)
+評：梅耶爾是前迪士尼高管，成功地運作過迪士尼各種項目，經手的資金也是以億計，在政商界有雄厚的人脈，梅耶爾有足夠的底氣接手TikTok。然而加盟僅僅不到四個月的時間，梅耶爾底氣全無，提出了辭呈，明眼人應該不難看出，TikTok當前的困難已經超過了梅耶爾的能力範圍，應該不是公司如何賺錢的問題，而是更深層的關乎國家安全利益的根本問題。梅耶爾的閃辭可以說是“識時務者為俊傑”，越來越多的美國企業家在國家安全面前還是會做出明智的選擇的。
 
-By：【密翻組- 金融法律團隊】
+[原文鏈接](https://www.ft.com/content/c35fc9fb-6466-43f0-8ad6-ddf6c1cc7d79)
+
+翻譯：Sarathecat 
+校對：晴天小螞蟻
 
 0

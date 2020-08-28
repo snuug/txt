@@ -1,37 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國對於災區重建的幻影
-`2020-08-27 18:01 GM36` [轉載自GNews](https://gnews.org/zh-hant/321019/)
+## 8月27日財經快訊：南海強拆開始，中概股妥協
+`2020-08-27 19:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321141/)
 
-收集人：JAY
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27173435/Picture12.png)圖片來源： [https://s.yimg.com](https://s.yimg.com/ny/api/res/1.2/GWZW5jm.6VLUMjGfl9zvNA--~A/YXBwaWQ9aGlnaGxhbmRlcjtzbT0xO3c9ODAw/https://media-mbst-pub-ue1.s3.amazonaws.com/creatr-uploaded-images/2020-08/9665e530-e733-11ea-97fd-a595c2491687) 
+[1.美國商務部將24家中國企業列入參與南海島礁軍事化實體名單，南海強拆已經開始。](https://www.commerce.gov/news/press-releases/2020/08/commerce-department-adds-24-chinese-companies-entity-list-helping-build)
 
-新聞來源：香港電台
+[2.美國監管方要求接受審計才能避免摘牌，中方要求就此問題和美方對話](https://www.bloomberg.com/news/articles/2020-08-26/china-makes-concessions-in-call-for-talks-on-u-s-audit-standoff)
 
-編撰者：文波
+[3.澳大利亞聯邦政府將立法，徹底中斷澳大利亞維多利亞州政府與中共國一帶一路的合作協議](https://www.theaustralian.com.au/nation/politics/morrison-to-tear-up-victorias-belt-and-road-initiative-deal-with-beijing/news-story/ec1fa27c29897246b6b152420d004a0f)
 
-審核：Lori文噠
+[4.新西蘭航空公司隨著中共病毒疫情延續將承受進一步虧損。新西蘭航空公司曾連續多年在全球航空業中排名名列前茅。現在面臨18年來首次稅後虧損4.54億新西蘭元。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12359827)
 
-新聞內容：
+[5.在美國，負責中共病毒治療研究的55名專家中有8名隸屬於瑞德西韋製造商吉利得（Gilead ）。那麼吉利得在這場羥氯喹大戰中扮演什麼樣的角色呢？](https://www.zerohedge.com/medical/what-gileads-role-war-hydroxychloroquine)
 
-國務院總理李克強，昨日主持召開國務院常務會議，部署防汛救災及災後重建。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27180215/827%E2%80%94%E2%80%9412.jpg)
-會議指出今年汛情罕見，長江、淮河等流域，遭遇嚴重洪水災害，受災範圍廣，經濟損失大，是歷史上較嚴重的一年；救災資金對受災較重及深度貧困地區，會給予進一步支持，按照標準上限，盡快落實及運用國家補償。
+[6.小鵬汽車今天紐約上市，是否能夠經得起美國證監會的審查，是否hold住是個問題。](https://m.sohu.com/a/415108097_616701/?pvid=000115_3w_a)
 
-中央財政對受災較重省份倒塌及嚴重損毀的民房，在現行每戶2萬元人民幣補助標準基礎上，每戶再增補5千元，亦會支持復修受損農田及農舍等設施，做好種子等供應，保證秋糧再獲好收成。另外，中央財政會支持地方政府，搶修被毀道路、橋樑、中小型水利等設施，推進建設城市防洪設施。
+[7.美聯儲理事分析中共病毒對經濟和銀行業造成的巨大負面影響](https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm)
 
-會議亦確定，在前期中央已撥出的資金基礎上，今、明兩年安排高標準農田建設補助資金160億元，對受災地區予以「傾斜支持」；中央預算內投資亦要加大對重建項目的支持，允許地方將抗疫特別國債、地方政府債、特殊轉移支付資金，用於恢復重建。
-
-評論：
-
-從根本性來解析，水利設施是中華人民共和國各地方政府管理，也是收取巨量稅額的管道之一。簡單來說，中央與地方政府必須對此次水災所造成的人事損失進行資助與一定程度的賠償。但以目前政府的作為和行動，顯而易見是背道而馳，全是不切實際的表面工程。
-
-從內文可以看到，他們所謂的補償是撥款每戶總額為人民幣2萬5千元，不過實際的修繕費用和人事財產損失之總和，對於受災居民來說是天文數字，補償金反成微不足道的存在。而在農業補助這方面，政府想撥款160億分兩年全面支持修復受災地區的農業。
-
-中央全面介入地方內政，首先，由於受災地區範圍相當廣大，若按照兩年才160億元，每年80億的話，分攤到受災波及地區的農業面積，每畝能得到的賠償相對而言是非常稀少。以現在中國農業的發展水準，光是莊稼作物和農地改造就占了絕大部分的投入成本，而設備都僅是小部分的經費。這些資金全然沒有足夠的條件讓受災農民承受重新投入耕作的栽種成本，不管是秧苗來源，還是恢復耕地原先保有的肥沃度，除此之外，農民自身的經濟能力也是癥結點，。
-
-總而言之，中共政府稱謂的傾斜式支持，等同於黨內戰略性計畫，再加上有關於糧食減產的報導，無庸置疑是勞民傷財的補償政策。
-
-新聞連結: [https://news.rthk.hk/rthk/ch/component/k2/1546101-20200827.htm?spTabChangeable=0](https://news.rthk.hk/rthk/ch/component/k2/1546101-20200827.htm?spTabChangeable=0)
+By：【密翻組- 金融法律團隊】
 
 0
