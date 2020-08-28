@@ -1,15 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中東和平推进, 一帶一路破產
-`2020-08-27 20:34 GM80` [轉載自GNews](https://gnews.org/zh-hant/321184/)
+## 【戰友點評】冠人民之名 行黨衛軍之實 獨裁者將警察綁上破戰車
+`2020-08-28 03:08 GM42` [轉載自GNews](https://gnews.org/zh-hant/321536/)
 
-[https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27001206/MG\_0816\_1\_%E7%86%9F%E8%82%89.mp4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27001206/MG_0816_1_%E7%86%9F%E8%82%89.mp4)
+製作單位：戰友之家-粵語組
+評述：卡西歐
+戰友點評：點蒼山
+後期製作：文粵
 
-郭文貴先生在8月16日連線紐西蘭戰友時評價川普總統推動中東和平進程,以色列和UAE建交,這對滅共意義深遠,影響重大。 中共的一帶一路破產, 整個中東的戰略,甚至東非、北非的徹底失敗。 滅共到了關鍵時刻,滅共最後一道門的鑰匙在我們戰友手裡邊。
 
-*翻譯:【茶奶奶】字幕:【Naomi(文花開)】標題:【Naomi(文花開)】編輯:【JoyJoy】*
 
-*戰友之家玫瑰園小隊出品*
+習近平昨日向中國人民警察授旗並致訓詞，指人民警察是國家重要的治安行政和刑事司法力量，又強調警察要對黨忠誠
+
+資料來源：立場新聞
+
+[https://www.thestandnews.com/politics/%E7%B5%95%E5%B0%8D%E5%BF%A0%E8%AA%A0-%E5%90%91%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E8%AD%A6%E5%AF%9F%E6%8E%88%E6%97%97-%E7%BF%92%E8%BF%91%E5%B9%B3-%E8%AD%A6%E5%AF%9F%E8%A6%81-%E4%BB%A5%E9%BB%A8%E7%9A%84%E6%84%8F%E5%BF%97%E7%82%BA%E6%84%8F%E5%BF%97/](https://www.thestandnews.com/politics/%E7%B5%95%E5%B0%8D%E5%BF%A0%E8%AA%A0-%E5%90%91%E4%B8%AD%E5%9C%8B%E4%BA%BA%E6%B0%91%E8%AD%A6%E5%AF%9F%E6%8E%88%E6%97%97-%E7%BF%92%E8%BF%91%E5%B9%B3-%E8%AD%A6%E5%AF%9F%E8%A6%81-%E4%BB%A5%E9%BB%A8%E7%9A%84%E6%84%8F%E5%BF%97%E7%82%BA%E6%84%8F%E5%BF%97/)
 
 0

@@ -1,17 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黎智英認為香港變成警察城市 呼籲港人為自由法治抗爭
-`2020-08-27 18:57 GM01` [轉載自GNews](https://gnews.org/zh-hant/321104/)
+## 警谎窜改7.21历史 颠倒黑白 荒谬绝伦 傀儡政府与港人全面开战
+`2020-08-28 00:42 GM42` [轉載自GNews](https://gnews.org/zh-hant/321415/)
 
-國內新聞作者：文章
+制作单位：战友之家-粤语组
+评述：卡西欧
+点评：恩典
+后期制作：文粤
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27184219/bkn-20200827112408932-0827_00822_001_01p.jpg)新聞來自：東網
 
-壹傳媒黎智英(27日)在社交網站直播表示，英國過往賦予香港自由和法治，這些亦與港人成長，是香港的第二種特色，但現時香港的自由和法治已被取走。
 
-對於香港情況，黎智英認為港人已對政府失去信心，已不理會政府，故政府不能運作，港人亦會因而覺得香港並非如自己所想，有意離開，又認為香港會變成警察城市。他形容，仍繼續參與抗爭運動的港人是社會和價值的支柱，但離開的港人亦十分重要，因可喚醒國際社會，引起對香港的關注。
 
-原文鏈接：https://hk.on.cc/hk/bkn/cnt/news/20200827/bkn-20200827112408932-0827\_00822\_001.html
+
+陈天柱，今日重新定义7.21白衣人恐袭事件的警方版本，形容是两派人士的冲突，更指白衫人士首先被人挑衅，一名黄背心女子步行出闸遭白衣人袭击，才令事件急剧恶化
+
+资料来源：苹果日报 & 立场新闻
+
+[https://hk.appledaily.com/breaking/20200826/UWJKKRZ7BFCOFLFWJKOGMKGPAI/](https://hk.appledaily.com/breaking/20200826/UWJKKRZ7BFCOFLFWJKOGMKGPAI/)
+
+[https://www.thestandnews.com/politics/%E8%AD%A6%E5%9C%96%E6%94%B9%E5%AF%AB-7-21-%E6%AD%B7%E5%8F%B2-%E7%AB%8B%E5%A0%B4%E6%96%B0%E8%81%9E-%E7%99%BC%E4%BD%88-7-21-%E7%9B%B4%E6%92%AD%E9%97%9C%E9%8D%B5%E9%A6%96%E5%8D%8A%E5%B0%8F%E6%99%82%E6%97%81%E8%BF%B0%E6%96%87%E5%AD%97%E5%85%A8%E8%A8%98%E9%8C%84/](https://www.thestandnews.com/politics/%E8%AD%A6%E5%9C%96%E6%94%B9%E5%AF%AB-7-21-%E6%AD%B7%E5%8F%B2-%E7%AB%8B%E5%A0%B4%E6%96%B0%E8%81%9E-%E7%99%BC%E4%BD%88-7-21-%E7%9B%B4%E6%92%AD%E9%97%9C%E9%8D%B5%E9%A6%96%E5%8D%8A%E5%B0%8F%E6%99%82%E6%97%81%E8%BF%B0%E6%96%87%E5%AD%97%E5%85%A8%E8%A8%98%E9%8C%84/)
 
 0
