@@ -1,11 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 冠狀病毒是由中共解放軍軍事科學研究院製造和修改（丹麥語Danish+英語English）
-`2020-08-27 10:40 GM62` [轉載自GNews](https://gnews.org/zh-hant/320284/)
+## 8月27日中共病毒疫情要聞快報
+`2020-08-27 17:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/320963/)
 
-丹麥語標題 COVID-19 er blevet oprettet og modificeret af PLA Academy of Military Science (AMS)
+**重要內容：**
 
-翻譯：麦丹奈 校對：螞蟻游擊隊(文蟻） 視頻：小羽
+- 閆麗夢博士：中共從未成功研製出人類疫苗；
+- 川普必定追責中共決不罷休！
+- “人民警察”變“中共警察”；
+- 病毒洪災雙重打擊，大陸實體店倒閉無數。
+
+
+
+
+製作：【上天造滅疫組】
 
 0

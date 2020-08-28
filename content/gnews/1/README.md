@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共海關未批准向加拿大出口候選疫苗導致加拿大首次臨床試驗停滯
-`2020-08-27 15:07 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/320884/)
+## 8月27日財經快訊：南海強拆開始，中概股妥協
+`2020-08-27 19:45 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321141/)
 
-喜馬拉雅聯盟加拿大農場 來得及
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27145404/%E6%9D%A5.png)圖片來源：維基百科& CBC NEWS 
-由於中加兩國之間日益加劇的緊張關係，中共一家生物公司與加拿大哈利法克斯研究團隊之間的合作已被放棄。此合作旨在開展加拿大對潛在的COVID-19疫苗的首次臨床試驗。加拿大國家研究委員會與CanSino Biologics之間的伙伴關係由聯邦政府於5月宣布，由加拿大衛生部批准，希望在哈利法克斯進行的臨床試驗可以在幾週內開始。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27173435/Picture12.png)圖片來源： [https://s.yimg.com](https://s.yimg.com/ny/api/res/1.2/GWZW5jm.6VLUMjGfl9zvNA--~A/YXBwaWQ9aGlnaGxhbmRlcjtzbT0xO3c9ODAw/https://media-mbst-pub-ue1.s3.amazonaws.com/creatr-uploaded-images/2020-08/9665e530-e733-11ea-97fd-a595c2491687) 
+[1.美國商務部將24家中國企業列入參與南海島礁軍事化實體名單，南海強拆已經開始。](https://www.commerce.gov/news/press-releases/2020/08/commerce-department-adds-24-chinese-companies-entity-list-helping-build)
 
-但在7月下旬，加拿大媒體報導說，加中合作夥伴關係處於困境，稱中共國已推遲了該公司原定於5月底發送給哈利法克斯研究人員的貨物。
+[2.美國監管方要求接受審計才能避免摘牌，中方要求就此問題和美方對話](https://www.bloomberg.com/news/articles/2020-08-26/china-makes-concessions-in-call-for-talks-on-u-s-audit-standoff)
 
-加拿大國家研究委員會（NRC）在一封電子郵件聲明中表示，該候選疫苗未經中共國海關批准運往加拿大。聲明說，為CanSino提供資金的北京理工大學和科技部，在NRC與CanSino簽署協議之前對其進行了審查。在簽署之後，中共政府對將疫苗運送到其他國家的過程進行了修改。
+[3.澳大利亞聯邦政府將立法，徹底中斷澳大利亞維多利亞州政府與中共國一帶一路的合作協議](https://www.theaustralian.com.au/nation/politics/morrison-to-tear-up-victorias-belt-and-road-initiative-deal-with-beijing/news-story/ec1fa27c29897246b6b152420d004a0f)
 
-加拿大疫苗學中心主任斯科特·哈珀林（Scott Halperin）表示，無法與CanSino合作令人失望。他說：“我們已經準備好開始這項研究，早在6月就獲得了所有批准，但該公司一直在試圖向我們運送疫苗，但沒有被允許這樣做。”哈珀林說，與其他國家合作始終存在風險，這就是加拿大一直在努力確保將有加拿大製造的疫苗可用的原因。
+[4.新西蘭航空公司隨著中共病毒疫情延續將承受進一步虧損。新西蘭航空公司曾連續多年在全球航空業中排名名列前茅。現在面臨18年來首次稅後虧損4.54億新西蘭元。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12359827)
 
-短評：
+[5.在美國，負責中共病毒治療研究的55名專家中有8名隸屬於瑞德西韋製造商吉利得（Gilead ）。那麼吉利得在這場羥氯喹大戰中扮演什麼樣的角色呢？](https://www.zerohedge.com/medical/what-gileads-role-war-hydroxychloroquine)
 
-維基上的信息很清楚的顯示，天津康希諾是和中共解放軍高度合作的生物公司，並在中共控制的上交所，港交所上市。可見該公司完全是中共控制下的公司。
+[6.小鵬汽車今天紐約上市，是否能夠經得起美國證監會的審查，是否hold住是個問題。](https://m.sohu.com/a/415108097_616701/?pvid=000115_3w_a)
 
-中共軍方製造病毒並擴散到全世界，為配合生物戰，威脅世界，中共控制世界醫藥和醫療設備生產；病毒擴散到世界前在全世界採購個人防護設備；企圖主導中共病毒疫苗研發…加拿大這次疫苗事件只是中共用疫苗綁架世界的一個縮影。
+[7.美聯儲理事分析中共病毒對經濟和銀行業造成的巨大負面影響](https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm)
 
-加拿大作為中共藍金黃的重災區，通訊/監視設備，生物/醫藥，金融/監管系統還都在與中共繼續合作。但是即便如此，也難逃脫中共的威脅。
-
-但是這次中共在中共病毒疫苗方面停止與加拿大合作，對加拿大來說也許是好事。與中共解放軍合作的生物公司的疫苗，如果在加拿大遍地開花，將會成為第二個華為，成為中共控制加拿大的國家安全的工具，後患無窮。
-
-參考鏈接： [https://www.cbc.ca/news/canada/nova-scotia/canada-china-covid-19-vaccine-trial-plug-pulled-1.5701101](https://www.cbc.ca/news/canada/nova-scotia/canada-china-covid-19-vaccine-trial-plug-pulled-1.5701101)
-
-
+By：【密翻組- 金融法律團隊】
 
 0
