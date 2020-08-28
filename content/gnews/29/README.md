@@ -1,25 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/19 CCP病毒每日疫情直播簡報
-`2020-08-27 11:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/320561/)
+## 8月27日中共病毒疫情要聞快報
+`2020-08-27 17:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/320963/)
 
-戰友之家圖文摘要及小語種組
+**重要內容：**
 
-[English\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102308/English_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102308/English_0819_CCP_Virus_Updates1.pdf)
-
-[French\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102312/French_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102312/French_0819_CCP_Virus_Updates1.pdf)
-
-[German\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102316/German_0819_CCP_Virus_Updates1_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102316/German_0819_CCP_Virus_Updates1_.pdf)
-
-[Japanese\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27113637/Japanese_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27113637/Japanese_0819_CCP_Virus_Updates1.pdf)
-
-[Korean\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102324/Korean_0819_CCP_Virus_Updates_208.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102324/Korean_0819_CCP_Virus_Updates_208.pdf)
-
-[Russian\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102320/Russian_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102320/Russian_0819_CCP_Virus_Updates1.pdf)
-
-[Spanish\_0819\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102327/Spanish_0819_CCP_Virus_Updates1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/27102327/Spanish_0819_CCP_Virus_Updates1.pdf)
+- 閆麗夢博士：中共從未成功研製出人類疫苗；
+- 川普必定追責中共決不罷休！
+- “人民警察”變“中共警察”；
+- 病毒洪災雙重打擊，大陸實體店倒閉無數。
 
 
+
+
+製作：【上天造滅疫組】
 
 0
