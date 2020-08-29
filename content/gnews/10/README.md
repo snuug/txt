@@ -1,28 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 用透露到外網的上海共產黨員資料核實一下復旦大學沈逸的資訊
-`2020-08-29 05:52 Diago` [轉載自GNews](https://gnews.org/zh-hant/323127/)
+## 中國公民被指控在FBI調查可能向中國轉移敏感軟體期間破壞硬碟
+`2020-08-29 09:57 GM31` [轉載自GNews](https://gnews.org/zh-hant/323434/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29055018/%E5%B0%81%E9%9D%A2-99.jpg)
-作者：Diago
+Department of Justice
 
-在此前的文章[復旦國際政治系教授沈逸:民主黨若釘不死班農小心更猛烈反撲](https://gnews.org/zh-hans/311051/)裡對沈逸的微博進行了研究，經研究發現此人是資深、高智商大外宣，其為害程度與胡錫進不相上下，據**[*沈逸*\_百度百科](https://www.baidu.com/link?url=MRajG0ZSy_Eakg5fJLGZOdB7-_gao6K-URYWqlx-Vwq3xEnBnmhYz6r7tKt6Wa-02kQz3ZBOraWPHPoDw0Osk12yNDkN210z71L9KF-Ig-i&amp;wd=&amp;eqid=d5a81d8d0001f6cf000000065f4a1fc8)：**
+Office of Public Affairs
 
-**【**沈逸，男，漢族，1976年生，上海人，中國共產黨黨員，[復旦大學國際關係與公共事務學院](https://baike.baidu.com/item/%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E5%9B%BD%E9%99%85%E5%85%B3%E7%B3%BB%E4%B8%8E%E5%85%AC%E5%85%B1%E4%BA%8B%E5%8A%A1%E5%AD%A6%E9%99%A2/6479002)國際政治系教授，復旦大學網路空間治理研究中心主任，復旦大學網路空間國際治理研究基地主任，美國問題專家。**】**
+FOR IMMEDIATE RELEASE  Friday, August 28, 2020
 
-【1995年-2005年就讀於復旦大學國際政治系。其間（2004年6-12月），赴[香港大學](https://baike.baidu.com/item/%E9%A6%99%E6%B8%AF%E5%A4%A7%E5%AD%A6/233635)歷史系美國研究中心訪問交流。
+**美國司法部**
 
-2005年復旦大學國際關係與公共事務學院國際政治系博士畢業，獲法學博士學位，留校任教至今。
+**公共事務辦公室**
 
-2008年8月-2009年9月，以復旦大學“青年骨幹教師培訓”專案公派美國[喬治城大學](https://baike.baidu.com/item/%E4%B9%94%E6%B2%BB%E5%9F%8E%E5%A4%A7%E5%AD%A6/5335677)外交學院科學技術與國際關係項目進行博士後訪學。】
+**即時發佈  2020年8月28日 星期五**
 
-【研究方向：資訊技術與國際安全、資訊技術、傳媒與外交、國家資訊安全戰略、大國關係、國家網路安全戰略、全球網路空間治理、網路外交等。】
+**Chinese National Charged with Destroying Hard Drive During FBI Investigation into the Possible Transfer of Sensitive Software to China**
 
-以此看來沈逸主任也是又紅又專的中共吹鼓手了，那麼在中共倒臺的那一刻沈逸主任會不會被清算呢？我覺得這要看沈逸主任的造化了，以下為沈逸主任的個人資訊，為避免侵犯沈逸主任的隱私，其身份證號碼後三位、手機號碼前三位均以\*\*\*代替，如有雷同，純屬巧合。
+### **中國公民被指控在FBI調查可能向中國轉移敏感軟體期間破壞硬碟**
 
-沈逸：男，漢族，籍貫：上海，所屬黨支部：復旦國關教1支部（國際政治系支部），身份證號碼：310104197611060\*\*\*，電話號碼：\*\*\*16020756，學歷：博士研究生。
+A Chinese national and researcher at the University of California, Los Angeles has been arrested on federal charges of destroying evidence to obstruct an FBI investigation after he was observed throwing a damaged hard drive into a dumpster outside his apartment, the Justice Department announced today.
 
-（文章內容僅代表作者個人觀點）
+美國司法部今天宣佈，一名中國公民、加州大學洛杉磯分校研究員因涉嫌破壞證據妨礙聯邦調查局(FBI)調查，已被聯邦政府逮捕。此前，有人觀察到他將一個損壞的硬碟扔進公寓外的垃圾箱。
 
-0
+Guan Lei, 29, of Alhambra, was arrested pursuant to a one-count criminal complaint unsealed this afternoon during his initial appearance in United States District Court.
+
+阿罕布拉市29歲的關磊是依據今天下午在美國地區法院首次出庭時公佈的一項刑事指控而被逮捕的。
+
+The criminal complaint alleges that Guan, who was in the U.S. on a J-1 non-immigrant visa, threw a damaged hard drive into a trash dumpster near his residence on July 25.  The FBI recovered the damaged hard drive after Guan was not allowed to board a flight to China and after Guan refused the FBI’s request to examine his computer.  The affidavit in support of the complaint notes that the internal hard drive “was irreparably damaged and that all previous data associated with the hard drive appears to have been removed deliberately and by force.”
+
+刑事起訴書稱，7月25日，持J-1非移民簽證在美國的關某將一個損壞的硬碟扔進了他家附近的垃圾箱。在關某不允許登上飛往中國的航班及拒絕FBI檢查其電腦的要求後，FBI恢復了損壞的硬碟。支援該申訴的證詞指出，內部硬碟”遭到了不可挽回的損壞，之前所有與硬碟有關的資料似乎都被故意和強制刪除了。”
+
+According to the complaint, Guan is being investigated for possibly transferring sensitive U.S. software or technical data to China’s National University of Defense Technology (NUDT) and falsely denying his association with the Chinese military – the People’s Liberation Army – in connection with his 2018 visa application and in interviews with federal law enforcement. Guan later admitted that he had participated in military training and wore military uniforms while at NUDT.  One of Guan’s NUDT faculty advisors in China was also a lieutenant general in the PLA who developed computers used by the PLA General Staff Department, the PLA General Armament Department, Air Force, military weather forecasts, and nuclear technology. NUDT is “suspected of procuring U.S.-origin items to develop supercomputers with nuclear explosive applications “and has been placed on the Department of Commerce’s Entity List for nuclear nonproliferation reasons, according to the affidavit.
+
+起訴書稱，關某因可能將美國敏感軟體或技術資料轉移到中國國防科技大學(NUDT)，並在2018年的簽證申請和接受聯邦執法部門問詢時，拒不承認自己與中國軍隊–中國人民解放軍的關係而受到調查。關某後來承認，他在中國國防科技大學(NUDT)期間參加了軍事訓練，並穿著軍裝。關某在中國國防科技大學(NUDT)的教員顧問之一，也是解放軍的一名中將，他曾為解放軍總參謀部、解放軍總裝備部、空軍、軍事天氣預報和核技術開發計算器。根據宣誓書，中國國防科技大學(NUDT) “涉嫌採購源自美國的物品，以開發具有核爆炸應用的超級計算器”，並因核不擴散原因被列入商務部的實體名單。
+
+In addition to destroying the hard drive, the complaint alleges that Guan concealed digital storage devices from investigators and falsely told federal officials that he had not had any contact with the Chinese consulate during his nearly two-year stay in the U.S.
+
+除了銷毀硬碟外，起訴書還稱，關某向調查人員隱瞞了數字存放裝置，並對聯邦官員謊稱，他在美國逗留近兩年期間沒有與中國領事館有過任何聯繫。
+
+During his initial appearance this afternoon, Guan was ordered detained by a United States Magistrate Judge, who scheduled an arraignment for Sept. 17, 2020.
+
+在今天下午的初次出庭中，美國地方法官下令將關某拘留，並安排在2020年9月17日進行提審。
+
+A criminal complaint contains allegations that a defendant has committed a crime. Every defendant is presumed innocent until and unless proven guilty beyond a reasonable doubt.
+
+刑事訴訟包含了對被告人犯罪的指控。除了在排除合理懷疑的情況下被證明有罪之外，每名被告都被推定為無罪。
+
+The felony offense of destruction of evidence carries a statutory maximum sentence of 20 years in federal prison.
+
+銷毀證據的重罪最高可判處20年聯邦監禁。
+
+This case is being investigated by the FBI, Homeland Security Investigations, and U.S. Customs and Border Protection. The U.S. Department of State’s Diplomatic Security Service has provided substantial assistance during the investigation.
+
+此案正由聯邦調查局、國土安全調查局和美國海關與邊境保護局調查。美國國務院外交安全局在調查期間提供了大量協助。
+
+This case is being prosecuted by Assistant U.S. Attorneys Will Rollins and George Pence of the Terrorism and Export Crimes Section.
+
+這起案件由美國反恐和出口犯罪部門的助理檢察官威爾·羅林斯和喬治·彭斯起訴。
+
+連結：[https://www.justice.gov/opa/pr/chinese-national-charged-destroying-hard-drive-during-fbi-investigation-possible-transfer](https://www.justice.gov/opa/pr/chinese-national-charged-destroying-hard-drive-during-fbi-investigation-possible-transfer)
+
+*翻譯：【班仔】 校對：【小粉紅】 編輯：【GM31】*
+
+*戰友之家玫瑰園小對出品*
+
+1

@@ -1,63 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法部調查州長令是否導致養老院老人過量死亡
-`2020-08-28 20:30 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/322632/)
+## 川普說中共國“知道如果入侵台灣他會怎麼做”
+`2020-08-29 06:46 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/323163/)
 
-新聞簡述： 因懷疑紐約、新澤西、賓夕法尼亞和密歇根州公共養老院的過量死亡與其州長髮布的行政令有關，司法部要求這些州長向司法部提供數據，以此決定是否對他們發起調查。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28202056/DOJ_20200826_govorners-photo-v2-1.png)圖片來源：https://www.nga.org/governors/
-司法部文件（中英文對照）
+*新聞來源：Taiwan News《台灣新聞》；作者：George Liao；發佈時間：2020/08/24*
 
-Department of Justice
+*翻譯/簡評：Victory；校對：leftgun；審核：海闊天空；Page：拱卒*
 
-Office of Public Affairs
+**簡評** ：
 
-Wednesday, August 26, 2020
+郭文貴先生曾爆出中共打算對台灣和香港用兵的雙龍計劃，說明武力攻台一直都是中共的一個選項。回顧中共歷史，中共往往在內部出現大問題，政權極不穩定的時候，就會對外發動戰爭以達到轉移內部矛盾，消滅政治對手。當年的朝鮮戰爭、越南戰爭莫不如是。但此次中共如果敢輕舉妄動，勢必會遭到世界的猛烈反擊，川普總統的話就是最好的明證。
 
-司法部公共事務辦公室
+《孫子兵法》開篇說： “兵者，國之大事，死生之地，存亡之道，不可不察也。” 這是在告誡當權者不要輕易用兵，否則很容易自取滅亡。現任中共黨魁好像不信這個邪，自上任以來就沒消停過，甚至在2018年對中共全軍發出訓令，要軍隊準備好打仗，要中共軍人不要怕死。 “一不怕苦、二不怕死”是世紀惡魔毛臘肉當年的口號。在個體價值和生命價值被充分尊重的今天，中共不以為恥地公開喊出這種口號，只能說，中共離人類現代文明還很遠，極度無知狂妄。
 
-2020年8月26日，星期三
+兵者，詭道也，故能而示之不能，用而示之不用，近而示之遠，遠而示之近，中南坑里的那些大腦袋竟然天天嚷嚷著和要打仗，要么他們就是虛張聲勢，要么就是愚蠢無知。
 
-**Department of Justice Requesting Data From Governors of States that Issued COVID-19 Orders that May Have Resulted in Deaths of Elderly Nursing Home Residents**
+中共不時利用輿論煽動民族主義情緒，相信很多人在網上還看到過“寧可大陸不長草， 也要收復釣魚島”這種極端恐怖主義言論。什麼魔鬼會不惜自我毀滅也要攻擊其他國家？前些年中共還有個更瘋狂的將軍朱成虎居然曾放言要不惜西安以東被毀滅，傷亡10億中國人也要和美國打一場核戰。這是什麼樣的恐怖主義言論？
 
-**因疑COVID-19有關命令可能導致養老院居民死亡，司法部要求發佈此命令的州長們提供相關數據**
+幸慶的是，中國民眾如今已經不容易被當局忽悠，對中共的本質有了更深入的認識。眼下，中共最害怕的就是中國民眾不堪壓迫群起反抗。中共的武裝力量最大的敵手其實是中國民眾，天價維穩費遠遠超過本已十分龐大的軍費就是最好的說明。
+[!\[\](https://spark.adobe.com/page/0lXHCinXLUUXt/images/d943e15f-4529-4250-8288-9ebcec564faf.jpg?asset_id=b2e8e447-5cd2-422a-8f53-4b96d1410508&amp;img_etag=%22536a43a7dc201360fae4dbeb2ff93901%22&amp;size=1024)](https://spark.adobe.com/page/0lXHCinXLUUXt/images/d943e15f-4529-4250-8288-9ebcec564faf.jpg?asset_id=b2e8e447-5cd2-422a-8f53-4b96d1410508&amp;img_etag=%22536a43a7dc201360fae4dbeb2ff93901%22&amp;size=1024)
+##  **川普說中共國“知道如果入侵台灣他會怎麼做”** 
 
-Data will help inform whether the Department of Justice will initiate investigations under the Civil Rights of Institutionalized Persons Act (CRIPA) regarding New York, New Jersey, Pennsylvania and Michigan’s response to COVID-19 in public nursing homes
+美國總統在接受福克斯新聞採訪時表示，中共國知道它如果攻擊台灣，他將如何應對
 
-數據將有助於司法部決定是否根據《機構化公民權利法》就紐約、新澤西、賓夕法尼亞和密歇根州公共養老院的COVID-19應對措施發起調查
+台北（台灣新聞）——美國總統川普週日採訪中（8月23日）告訴福克斯新聞，中共國如果入侵台灣，北京清楚他會怎麼做。採訪還談論了美中關係和美國經濟。
 
-Today the Justice Department requested COVID-19 data from the governors of states that issued orders which may have resulted in the deaths of thousands of elderly nursing home residents. New York, New Jersey, Pennsylvania, and Michigan required nursing homes to admit COVID-19 patients to their vulnerable populations, often without adequate testing.
+“下一次革命”的主持人希爾頓提出了美國和台灣關係的話題，他希望了解川普在這個問題上的反應。希爾頓說，在過去，美國政府對台灣的態度是不同的，美台關係變得越來越重要，“因為在技術和經濟方面，台灣一家公司在半導體領域處於世界領先地位”
+[!\[\](https://spark.adobe.com/page/0lXHCinXLUUXt/images/1484a020-116a-4ec3-92dd-64ec2cca0baa.jpg?asset_id=293e41cf-e019-4177-9cdc-9ce8ca662789&amp;img_etag=%22a9dd6349140d5267e160b899dd6a42ff%22&amp;size=1024)](https://spark.adobe.com/page/0lXHCinXLUUXt/images/1484a020-116a-4ec3-92dd-64ec2cca0baa.jpg?asset_id=293e41cf-e019-4177-9cdc-9ce8ca662789&amp;img_etag=%22a9dd6349140d5267e160b899dd6a42ff%22&amp;size=1024)
+川普插話說，“它們要入侵這個國家。”
 
-今天（8月26日），司法部要求發佈相關州令的州長提供COVID-19數據。這些命令可能導致了數千名養老院老人的死亡。紐約、新澤西、賓夕法尼亞和密歇根州（的命令）要求養老院通常在沒有進行適當的檢測情況下，接納COVID-19患者到他們年老體弱的群體中去。
+希爾頓接著問，“中共看起來越來越好戰，如果它們試圖入侵台灣或有效控制台灣及其重要產業，你會讓他們得逞嗎?”
 
-For example, on March 25, 2020, New York ordered: “No resident shall be denied re-admission or admission to [a nursing home] solely based on a confirmed or suspected diagnosis of COVID-19. [Nursing homes] are prohibited from requiring a hospitalized resident who is determined medically stable to be tested for COVID-19 prior to admission or readmission.”
+“我認為在這兒談論這個問題不太合適，但中共國知道我要做什麼。它們知道。”川普回復道。 “我認為這樣談論這件事不合適。你知道。我不想說我要做這個或者我不做這個。在這裡談論這件事是不合適的。”
 
-例如，在2020年3月25日，紐約下令：「不得僅基於已確認或疑似的COVID-19診斷，拒絕任何人重新入住或入住[養老院]。 [養老院]禁止要求對病情穩定的住院患者在入住或重新入住之前進行COVID-19的檢測。」
+“它是一個很大，很強大的課題，但我認為中共國明白我將要做的事情“川普說道。
 
-“Protecting the rights of some of society’s most vulnerable members, including elderly nursing home residents, is one of our country’s most important obligations,” said Assistant Attorney General for Civil Rights Division Eric Dreiband. “We must ensure they are adequately cared for with dignity and respect and not unnecessarily put at risk.”
+在談到美中關係時，川普說，“回顧過去三年半的時間，我是唯一一個與中共國較量的人，如果你看到過情報報告，裡面說中共正在努力幫助拜登當選。如果他當選，中共國將擁有我們的國家。”
 
-「保護社會上一些最弱勢群體的權利，包括養老院的老人們，是我們國家最重要的義務之一，」民權司助理檢察長埃里克·德雷班德（Eric Dreiband）說。 「我們必須確保他們在有尊嚴和被尊重的基礎上得到充分照料，並且無需置於不必要的風險之下。」
+川普說中共國對拜登有很大的影響力，說北京給了他兒子“15億美元的費用”。他繼續說，“它們控制了喬·拜登。它們完全控制他，它們非常希望我輸。”
 
-According to the Centers for Disease Control, New York has the highest number of COVID-19 deaths in the United States, with 32,592 victims, many of them elderly. New York’s death rate by population is the second highest in the country with 1,680 deaths per million people. New Jersey’s death rate by population is 1,733 deaths per million people – the highest in the nation. In contrast, Texas’s death rate by population is 380 deaths per million people; and Texas has just over 11,000 deaths, though its population is 50 percent larger than New York and has many more recorded cases of COVID-19 – 577,537 cases in Texas versus 430,885 cases in New York. Florida’s COVID-19 death rate is 480 deaths per million; with total deaths of 10,325 and a population slightly larger than New York.
+在談到美國經濟與中共國的關係時，川普告訴主持人，我已經從中共國拿走了數百億美元的稅款，並給了我們的農民，因為中共錯誤地針對了我們的農民。它們認為這會給我施加壓力。
+[!\[\](https://spark.adobe.com/page/0lXHCinXLUUXt/images/cf343445-e86c-457d-b041-d6b04cc1afde.jpg?asset_id=546c4860-6bdb-4210-b500-c3e9bf87d3b8&amp;img_etag=%22b1858b6c52692fd7cccf5d9c1921f7f1%22&amp;size=1024)](https://spark.adobe.com/page/0lXHCinXLUUXt/images/cf343445-e86c-457d-b041-d6b04cc1afde.jpg?asset_id=546c4860-6bdb-4210-b500-c3e9bf87d3b8&amp;img_etag=%22b1858b6c52692fd7cccf5d9c1921f7f1%22&amp;size=1024) 2020年1月9日蔡英文總統將台灣大選定位於一場捍衛國家主權和民主、對抗中國的戰爭© RITCHIE B TONGO/EPA-EFE/REX 
+川普甚至提出了讓美國經濟與中共國脫鉤的可能性，他說:“沒有哪個國家比中共國更壓榨我們……我們損失了數千億美元。我們從中共國什麼也沒得到…只是賠錢…當我對中共國征收25%的關稅時，我們讓很多企業回到了美國。
 
-根據疾病控制中心的數據，紐約的COVID-19死亡人數全美最高，共有32,592名死亡，其中許多是老年人。紐約的人口死亡率是全國第二高的，每百萬人中有1,680人死亡。新澤西州的人口死亡率為每百萬人1,733例死亡 — 全國最高。相比之下，得克薩斯州的人口死亡率為每百萬人380人死亡。儘管得克薩斯州的人口數比紐約多50％，但是得克薩斯州的死亡人數剛剛超過11,000，並且記錄在案的COVID-19病例數量也更多，得克薩斯州為577,537例，而紐約為430,885例。佛羅里達州的COVID-19死亡率為百萬分之480。總死亡人數為10,325，其人口總數略多於紐約。
+川普重申了中共國幾十年來一直在操縱匯率和竊取美國商業機密的指控。 “如果它們不善待我們，我肯定會(脫鉤)，”他表示。
 
-The Department of Justice’s Civil Rights Division is evaluating whether to initiate investigations under the federal “Civil Rights of Institutionalized Persons Act” (CRIPA), which protects the civil rights of persons in state-run nursing homes, among others. The Civil Rights Division seeks to determine if the state orders requiring admission of COVID-19 patients to nursing homes is responsible for the deaths of nursing home residents.
+[原文鏈接](https://www.taiwannews.com.tw/en/news/3993753)
 
-司法部的民權司正在評估是否需要根據聯邦《制度化公民民權法》（CRIPA）展開調查，該法和其它相關法規一同保護州立養老院裡居民的民權。民權部門試圖確定要求接納COVID-19患者入住的相關州內命令是否對養老院院居民的死亡負責。
-
-On March 3, 2020, the Attorney General announced the Justice Department’s National Nursing Home Initiative. This is a comprehensive effort by the department, led by the Elder Justice Initiative and in strong partnership with the U.S. Department of Health and Human Services that uses every available tool to pursue nursing homes that provide substandard care to their residents.  As announced on April 10, 2020, the department is also investigating the Soldiers’ Home in Holyoke, Massachusetts, where COVID-19 has taken the lives of at least 76 residents.  https://www.justice.gov/opa/pr/federal-investigation-conditions-nursing-home-veterans-massachusetts-announced
-
-2020年3月3日，司法部長宣佈了美國司法部的國家養老院計劃。這是該部門在老年人司法倡議組織領導下，加強和國家衛生與公共服務部合作，整合現有手段和方法，共同致力規範養老院服務標準的結果。正如2020年4月10日宣佈的那樣，國防部還正在調查馬薩諸塞州霍利奧克的戰士之家，COVID-19在那裡奪走了至少76名居民的生命。https://www.justice.gov/opa/pr/federal-investigation-conditions-nursing-home-veterans-massachusetts-announced
-
-The data requests and Soldiers’ Home investigation are not accusations of fault or wrongdoing by the states or any other individual or entity, and the department has not reached any conclusions about these matters.
-
-這個數據請求及對戰士之家的調查並不是針對各州或任何其他個人和機構過失或不當行為的指控，（司法）部門尚未對這些問題得出任何結論。
-
-[閱讀司法部原文](https://www.apple.com)
-
-翻譯：【一花一世界】 校對 & 編輯：【Michelle】
-
-戰友之家玫瑰園小隊出品
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/0lXHCinXLUUXt/) 】
 
 0

@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/20 CCP病毒每日疫情直播簡報
-`2020-08-28 21:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/322666/)
+## 程銀寶: 我快要死了只想有件新衣裳,領導叫我去跟國民黨拿
+`2020-08-29 07:06 Diago` [轉載自GNews](https://gnews.org/zh-hant/323190/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29065842/%E5%B0%81%E9%9D%A2-100.jpg)
+作者：Diago
 
-[English\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)
+據[**軍師評**](https://weibo.com/1877310374?refer_flag=1001030103_) [2014年07月07日 21:30](https://weibo.com/1877310374/BcvwYso2L?refer_flag=1001030103_) 來自 [360安全流覽器](https://app.weibo.com/t/feed/1tqBja)新浪微博
 
-[French\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)
+【湖北第一位抗戰女兵】她曾是天門縣長千金，她不到二十歲任國軍128師教導主任負責訓練新兵，抗戰期間她轉戰四方為國殺敵，因腹部受傷終身未育；如今她，棲身不到十平，高不到2米的小屋，連基本的電都沒有。程銀寶，湖北第一位抗戰女兵。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29065903/6fe57ba6gw1ei4k1drjboj20c21a8afs.jpg)
+另據[**甲丁小二**](https://weibo.com/2127332001?refer_flag=1001030103_) [2017年04月24日 22:40](https://weibo.com/2127332001/F04VAlrAZ?refer_flag=1001030103_)新浪微博
 
-[German\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)
+【轉】程銀寶，92歲，民國天門縣長千金：19歲入國軍投身抗日戰爭，冒槍林彈雨與日軍廝殺，後腹部中彈致終身不育。49後因抗日經歷屢遭批鬥迫害幾乎喪命，晚年住在幾平米窩棚，無水無電無低保。老人說：我快要死了，只想有件新衣裳，可領導叫我去跟國民黨拿！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29065912/7ecc82a1ly1fey5d6nto7j20b20ayt9a.jpg)
+另據**[程銀寶：91歲抗戰女兵的傳奇人生](http://character.workercn.cn/c/2012/05/31/120531072926720629640.html)****（**[http://www.workercn.cn](http://www.workercn.cn/)2012-05-31**）：**
 
-[Japanese\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)
+【她曾經是天門縣長之女，她曾經因為槍法出神，名噪一時，獲部隊領導獎勵一塊19鑽瑞士金表。抗日戰爭中，她被日軍擊中腹部受傷，沒有子女。1943年，因部隊叛變，不肯屈服的她，脫下軍裝做起普通老百姓。她叫程銀寶，一位91歲的老人。而今，她生活在一間不到10平米的小屋裡。她說了整整一個下午，都沒能講完自己的故事。老人說：“我要守著我的老屋，到走不動的那一天。”】
 
-[Korean\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)
+在網上找不到程銀寶婆婆的更多資訊，但是我相信查到的這些都是真的，我也相信程銀寶婆婆說的：“我快要死了，只想有件新衣裳，可領導叫我去跟國民黨拿！”是真的，在中共眼中這些參加過抗戰的國軍老兵不是中華民族的英雄，所以他們也不會得到中共所把持的政府的資助，麥克亞瑟將軍說過“老兵不死，老兵只是凋零”，那麼當年義氣風發抵抗日寇的程銀寶婆婆，她作為一個老兵，她和與她同樣經歷的那些遺留在大陸的國軍老兵，作為中華民族的英雄，他們曾經流過的血、受過的傷、做出的犧牲是不是在他們凋零前已經全部被抹掉了？難道他們曾經流過的血、受過的傷、做出的犧牲只屬於某一個黨？對於這些為我們民族流血犧牲的英雄的漠視、淡忘、忽略是不是我們這個國家、這個民族的恥辱？
 
-[Spanish\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)
+（文章內容僅代表作者個人觀點）
 
 0
