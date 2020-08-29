@@ -13,6 +13,11 @@
 
 
 
+[8月29日 新中国联邦日本战友们在大阪的抗议游行活动现场（三）](/content/getter/content/2020/08/5f4a5927d3bc84639c7d6593.md)
+
+**郭文贵MILES** `2020-08-29T13:33:27`
+##
+
 [8月29日 新中国联邦日本战友们在大阪的抗议游行活动现场（二）](/content/getter/content/2020/08/5f4a4968d3bc84639c7d53ca.md)
 
 **郭文贵MILES** `2020-08-29T12:26:16`
@@ -156,10 +161,5 @@
 [8月23日：今天下午八点这个节目值得一看……https://mobile.twitter.com/cortessteve/status/129763637954...](/content/getter/content/2020/08/5f42d9ebb8c8a748917d9f61.md)
 
 **郭文贵MILES** `2020-08-23T21:04:43`
-##
-
-[https://gnews.org/zh-hans/313078/． 8月23日：由于中共太厉害．太凶残的加速……估计，中美之间连脱钩的机会不会再有了，因为中共...](/content/getter/content/2020/08/5f42607d6f581b42a53e25e9.md)
-
-**郭文贵MILES** `2020-08-23T12:26:37`
 ##
 
