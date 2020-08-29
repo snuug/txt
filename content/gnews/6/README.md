@@ -1,22 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友短評】港青據報乘快艇擬赴台　被中國海警截獲送中　包括被港警國安處拘捕李宇軒
-`2020-08-28 15:23 GM42` [轉載自GNews](https://gnews.org/zh-hant/322460/)
+## 【世界多語言圖文】2020/08/20 CCP病毒每日疫情直播簡報
+`2020-08-28 21:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/322666/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-戰友評論：恩典
-後期製作：文粵
+戰友之家圖文摘要及小語種組
 
+[English\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)
 
+[French\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)
 
-《自由亞洲電台》率先报道，12名香港抗争者逃亡台湾失败，正被中国公安扣押，其中包括“香港故事”成员李宇轩
+[German\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)
 
-資料來源：蘋果日報 自由亞洲電台
+[Japanese\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)
 
-[https://hk.appledaily.com/local/20200828/2LDZNAKZWJF6RFWCDTM3WCYT5M/](https://hk.appledaily.com/local/20200828/2LDZNAKZWJF6RFWCDTM3WCYT5M/)
+[Korean\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)
 
-[https://www.rfa.org/mandarin/yataibaodao/gangtai/al2-08272020085530.html](https://www.rfa.org/mandarin/yataibaodao/gangtai/al2-08272020085530.html)
+[Spanish\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)
 
 0
