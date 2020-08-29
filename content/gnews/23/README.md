@@ -1,57 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新聞看點
-`2020-08-29 08:05 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/323254/)
+## 中國公民被指控在FBI調查可能向中國轉移敏感軟體期間破壞硬碟
+`2020-08-29 09:57 GM31` [轉載自GNews](https://gnews.org/zh-hant/323434/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬 孫行者
+Department of Justice
 
-2020 年8 月28日新聞看點
+Office of Public Affairs
 
-一、疫情真相
+FOR IMMEDIATE RELEASE  Friday, August 28, 2020
 
-1.中共在加拿大公共醫療和醫藥部的代言人譚詠詩醫生，敦促特魯多政府以謀求鴉片類藥物包括嗎啡、芬太尼等毒品在加拿大處方的合法化，試圖以此舉轉移社會各界對使用硫酸羥氯喹來防治中共病毒的要求。
+**美國司法部**
 
-2.中共製藥公司康希諾正在與幾個國家談判，尋求緊急批准使用該公司研發的實驗性新冠病毒疫苗。由於該疫苗尚未完成大規模安全性和有效性試驗，該公司的舉措引發公共衛生擔憂。此前，在缺乏第3期臨床試驗數據的情況下，此種疫苗被試用於中共軍人，且相關數據並未公開。
+**公共事務辦公室**
 
-二、聯邦消息
+**即時發佈  2020年8月28日 星期五**
 
-1.8月28日喜馬拉雅聯盟加拿大農場舉行“全球聯動滅共大遊行”，此次遊行除了揭露中共的種種罪行，更希望能夠喚醒更多人心中的良知，面對中共的邪惡不再漠視、不再旁觀、不再縱容，選擇發聲、選擇行動、選擇正義良知與傳播真相。
+**Chinese National Charged with Destroying Hard Drive During FBI Investigation into the Possible Transfer of Sensitive Software to China**
 
-2.美資深軍情記者比爾·格茨於WARROOM解讀司法部文件時，透露川普總統認為郭文貴先生是美掌握中共內部情報的重要資源；同時比爾·格茨還披露了夏威夷司法文件上未公佈的一段細節，中共曾脅迫阿布扎比構陷郭文貴先生詐騙，涉案金額達20億美元。 （“路德時評”28/8/2020節目進行了解讀[https://www.youtube.com/watch?v=z0CnTswnMsY](https://www.youtube.com/watch?v=z0CnTswnMsY) ）
+### **中國公民被指控在FBI調查可能向中國轉移敏感軟體期間破壞硬碟**
 
-3.美國國防部周五宣布，美國政府已認定包括建築巨頭中國交通建設集團在內的另外11家企業為中共軍方擁有或控制，此舉將為出台新一輪制裁鋪路。
+A Chinese national and researcher at the University of California, Los Angeles has been arrested on federal charges of destroying evidence to obstruct an FBI investigation after he was observed throwing a damaged hard drive into a dumpster outside his apartment, the Justice Department announced today.
 
-4.週五（8月28日），美國聯邦調查局（FBI）表示，在弗吉尼亞大學（UVA）做研究的中共軍方研究人員胡海舟（Hu Haizhou，音譯）在機場被美國海關官員攔下，此人試圖帶著他從美國大學偷來的可用於水下機器人和飛機發動機的先進計算機源代碼逃回中共國。
+美國司法部今天宣佈，一名中國公民、加州大學洛杉磯分校研究員因涉嫌破壞證據妨礙聯邦調查局(FBI)調查，已被聯邦政府逮捕。此前，有人觀察到他將一個損壞的硬碟扔進公寓外的垃圾箱。
 
-5.挪威內閣成員欲提名香港抗爭者諾貝爾獎，中共外交部長王毅稱不要將此獎政治化。王毅還試圖模糊肆虐全球的新冠病毒疫情的起源，對是否病毒起源於中共國提出質疑，儘管這與全球衛生專家和各國政府的認知存在差異。
+Guan Lei, 29, of Alhambra, was arrested pursuant to a one-count criminal complaint unsealed this afternoon during his initial appearance in United States District Court.
 
-6.在瘟疫與洪災肆虐當下，中共當局8月發布夏糧收購進度，顯示許多省分收成銳減，但是多地官媒卻持續報喜，中共國糧食危機迫在眉睫。
+阿罕布拉市29歲的關磊是依據今天下午在美國地區法院首次出庭時公佈的一項刑事指控而被逮捕的。
 
-7.印度國有煉油企業已決定停止進口中共國相關企業的原油和燃料，消息曝出當天，中共“三桶油”股價齊跌。此前，印度國有石油公司已宣布停止租用中共國油輪。
+The criminal complaint alleges that Guan, who was in the U.S. on a J-1 non-immigrant visa, threw a damaged hard drive into a trash dumpster near his residence on July 25.  The FBI recovered the damaged hard drive after Guan was not allowed to board a flight to China and after Guan refused the FBI’s request to examine his computer.  The affidavit in support of the complaint notes that the internal hard drive “was irreparably damaged and that all previous data associated with the hard drive appears to have been removed deliberately and by force.”
 
-8.繼台積電9月14日後無法為華為代工麒麟等芯片之後，美國最主要的內存及閃存芯片生產商美光公司明確表態9月14日後也會斷供華為。
+刑事起訴書稱，7月25日，持J-1非移民簽證在美國的關某將一個損壞的硬碟扔進了他家附近的垃圾箱。在關某不允許登上飛往中國的航班及拒絕FBI檢查其電腦的要求後，FBI恢復了損壞的硬碟。支援該申訴的證詞指出，內部硬碟”遭到了不可挽回的損壞，之前所有與硬碟有關的資料似乎都被故意和強制刪除了。”
 
-9.法國電信運營商布衣格電信（Bouygues Telecom）週四（8月27日）表示，將按照政府要求的5G安全問題，在2028年之前在“人口非常稠密的地區”，拆除3,000個中共華為(專題)公司製造的天線。
+According to the complaint, Guan is being investigated for possibly transferring sensitive U.S. software or technical data to China’s National University of Defense Technology (NUDT) and falsely denying his association with the Chinese military – the People’s Liberation Army – in connection with his 2018 visa application and in interviews with federal law enforcement. Guan later admitted that he had participated in military training and wore military uniforms while at NUDT.  One of Guan’s NUDT faculty advisors in China was also a lieutenant general in the PLA who developed computers used by the PLA General Staff Department, the PLA General Armament Department, Air Force, military weather forecasts, and nuclear technology. NUDT is “suspected of procuring U.S.-origin items to develop supercomputers with nuclear explosive applications “and has been placed on the Department of Commerce’s Entity List for nuclear nonproliferation reasons, according to the affidavit.
 
-10.香港警方日前污衊“7.21”元朗事件是兩派互毆的同一天，紐約時報就元朗事件所做的真相報導《香港警察去了哪？ 》（Where Were Hong Kong Police？），榮膺有亞洲普立茲獎之稱的2020年卓越新聞獎兩項大獎。
+起訴書稱，關某因可能將美國敏感軟體或技術資料轉移到中國國防科技大學(NUDT)，並在2018年的簽證申請和接受聯邦執法部門問詢時，拒不承認自己與中國軍隊–中國人民解放軍的關係而受到調查。關某後來承認，他在中國國防科技大學(NUDT)期間參加了軍事訓練，並穿著軍裝。關某在中國國防科技大學(NUDT)的教員顧問之一，也是解放軍的一名中將，他曾為解放軍總參謀部、解放軍總裝備部、空軍、軍事天氣預報和核技術開發計算器。根據宣誓書，中國國防科技大學(NUDT) “涉嫌採購源自美國的物品，以開發具有核爆炸應用的超級計算器”，並因核不擴散原因被列入商務部的實體名單。
 
-三、世界新聞
+In addition to destroying the hard drive, the complaint alleges that Guan concealed digital storage devices from investigators and falsely told federal officials that he had not had any contact with the Chinese consulate during his nearly two-year stay in the U.S.
 
-1.美國川普總統的連任競選活動以“法律與秩序”作為本週共和黨全國代表大會的中心議題，他們聚焦在隨著各地爆發的種族正義抗議活動而來的暴力和破壞事件。
+除了銷毀硬碟外，起訴書還稱，關某向調查人員隱瞞了數字存放裝置，並對聯邦官員謊稱，他在美國逗留近兩年期間沒有與中國領事館有過任何聯繫。
 
-2.8月28日川普共和黨大會講話：華盛頓內部的一些人叫我不要站出來（反對）中共，他們為中共開脫允許它們繼續對我們進行欺詐並偷盜我們的工作，對我們的國家肆意妄為，但是我向所有美國人許諾，我們絕對要以最強硬的態度對中共予以最強有力的反擊！
+During his initial appearance this afternoon, Guan was ordered detained by a United States Magistrate Judge, who scheduled an arraignment for Sept. 17, 2020.
 
-3.美國傳統的民主黨地區、明尼蘇達州鐵嶺地區（Iron Range）的六名市長周五（8月28日）宣布，背書支持現任共和黨川普總統和副總統邁克•彭斯連任。
+在今天下午的初次出庭中，美國地方法官下令將關某拘留，並安排在2020年9月17日進行提審。
 
-4.台灣向美國採購”魚叉“岸艦導彈軍售案，金額由新台幣500億元爆增到800億元，此舉將大大提升台灣在中共PLA侵台時的防禦能力。這項軍售案美國可能在11月總統選舉前宣布。
+A criminal complaint contains allegations that a defendant has committed a crime. Every defendant is presumed innocent until and unless proven guilty beyond a reasonable doubt.
 
-5.台灣總統蔡英文28日宣布，開放進口含萊克多巴胺的美國豬肉，並放寬30月齡以上美國牛肉進口。此舉有利於促成台美BTA（雙邊貿易協定）。
+刑事訴訟包含了對被告人犯罪的指控。除了在排除合理懷疑的情況下被證明有罪之外，每名被告都被推定為無罪。
 
-四、時事評論
+The felony offense of destruction of evidence carries a statutory maximum sentence of 20 years in federal prison.
 
-川普總統白宮發表犀利競選檄文劍指拜登（ [https://gnews.org/zh-hans/322841/](https://gnews.org/zh-hans/322841/) ）
+銷毀證據的重罪最高可判處20年聯邦監禁。
 
-摘要：川普總統週四在白宮南草坪發表了長達70多分鐘的演講，可以說是共和黨總統大選的一篇重要的戰鬥檄文。川普總統的講話首先肯定了他第一任期所做出的成績，然後矛頭直指民主黨總統候選人拜登，指出如果拜登（Biden)當選，美國人民將面臨著經濟崩潰和無政府主義的社會混亂。
+This case is being investigated by the FBI, Homeland Security Investigations, and U.S. Customs and Border Protection. The U.S. Department of State’s Diplomatic Security Service has provided substantial assistance during the investigation.
 
-0
+此案正由聯邦調查局、國土安全調查局和美國海關與邊境保護局調查。美國國務院外交安全局在調查期間提供了大量協助。
+
+This case is being prosecuted by Assistant U.S. Attorneys Will Rollins and George Pence of the Terrorism and Export Crimes Section.
+
+這起案件由美國反恐和出口犯罪部門的助理檢察官威爾·羅林斯和喬治·彭斯起訴。
+
+連結：[https://www.justice.gov/opa/pr/chinese-national-charged-destroying-hard-drive-during-fbi-investigation-possible-transfer](https://www.justice.gov/opa/pr/chinese-national-charged-destroying-hard-drive-during-fbi-investigation-possible-transfer)
+
+*翻譯：【班仔】 校對：【小粉紅】 編輯：【GM31】*
+
+*戰友之家玫瑰園小對出品*
+
+1
