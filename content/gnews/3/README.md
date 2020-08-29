@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜馬拉雅聯盟加拿大農場證監會三日示威圖集
-`2020-08-28 13:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322404/)
+## 參議員湯姆·科頓: 中共政府支持拜登當選
+`2020-08-28 19:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/322542/)
 
-喜馬拉雅聯盟加拿大農場 文錦
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28192335/Picture2-2.png)圖片來源：receive.news 
+據紐約時報8月27日報導，美國阿肯色州參議員湯姆·科頓（Tom Cotton）在周四舉行的共和黨大會（RNC）上明確指出，中共政府支持的是軟弱無能的民主黨總統候選人拜登。
 
-校對 小甜蝦
+今年43歲的湯姆·科頓一直被認為是美國在中東及中國政策上的鷹派代表人物之一。他反對上屆總統奧巴馬的伊朗核協議。在中共病毒全球疫情問題上，科頓也強烈譴責中共的欺瞞和投毒行為，並要求中共必須對18萬美國人的死亡和數百萬的失業負責，由此他也成為被中共制裁的共和黨參議員之一。
 
-2020年8月25、26、27連續三日，喜馬拉雅聯盟加拿大農場在多倫多、卡爾加里及溫哥華證監會前進行抗議示威。勇敢、堅韌的我們熱愛加拿大！熱愛自由！追求公平正義真相！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130110/00.jpg)
-我們堅持自己的合法權利，要求證監會：
+在此次共和黨大會演講中，科頓參議員從多方面對比了川普總統與拜登的政見及表現。他表示，在對待中共的問題上，拜登根本無法與川普總統相提並論。美國需要一個可以維護國家和人民利益的總統，而不是一個卑躬屈膝的弱者。
 
-1.解封無理由凍結的賬戶和資金！
+科頓在大會上說，幾個月前中共向全世界投放病毒，而拜登竟然認為中共不是美國的競爭者，更不是壞人，拜登將會把美國帶回到錯誤和危險的過去！而與其相反，川普總統完全看清來自中共國的威脅，並且正在全力以赴向中共追責。科頓說，過去的五十年裡，拜登推動了中共國的崛起，簽訂了極其失敗的貿易協議，迫使美國工廠關閉，工人失業，他讓中共國的芬太尼在美國氾濫毒害孩子，而川普總統卻嚴厲制裁了這些中共毒販。科頓還明確指出，中共不會放棄對拜登的支持，美國的其他敵人也不會。如果拜登當選，在接下來的四年裡，他的表現只會和過去五十年以來一樣軟弱無能。
 
-2.給我們證據！
+此外，川普政府最高反間諜報官員，美國國家反間諜與安全中心主任威廉·埃文納（William Evanina）本月也指出中共政府支持拜登當選。埃文納稱，中共一直傾盡全力在11月大選前影響美國的政治環境和選情，向不利於中共利益的人物施壓，並轉移和對抗針對中共的批評聲音。在過去的幾個月裡，中共集中火力批評美國川普政府對中共病毒的回應以及關閉中共休斯頓領館的行動，還發表嚴厲聲明反對美國政府在香港問題、TikTok、南中國海和5G等問題上的行動和立場，所有中共的言行都極大地影響到美國大選結果。
 
-3.停止濫用權力！
+正如科頓所說：“你軟弱，敵人就會挑釁。只有川普總統的實力才可以帶領我們遠離戰爭。” 美國共和黨正在正面對抗中共的挑釁，川普政府只有加大力度繼續前進才是再次贏得大選的唯一出路。
 
-請欣賞戰友們的英姿：
+[原文鏈接](https://nypost.com/2020/08/27/rnc-2020-tom-cotton-says-china-rooting-for-weak-joe-biden/)
 
-加拿大最大城市安省多倫多
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130407/%E5%A4%9A%E4%BC%A6%E5%A4%9A3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130502/%E5%A4%9A%E4%BC%A6%E5%A4%9A2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130519/%E5%A4%9A%E4%BC%A6%E5%A4%9A1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130535/%E5%A4%9A%E4%BC%A6%E5%A4%9A4.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130548/%E5%A4%9A%E4%BC%A6%E5%A4%9A5.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130602/%E5%A4%9A%E4%BC%A6%E5%A4%9A6.png)
-加拿大阿省卡爾加里
-
-戰友們在物資不充足、活動人數較少的情況下，三天來堅持到底。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130613/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130622/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C2-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130634/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C1-scaled.jpg)
-加拿大卑詩省溫哥華
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130702/%E6%B8%A9%E5%93%A5%E5%8D%8E1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130711/%E6%B8%A9%E5%93%A5%E5%8D%8E2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130727/%E6%B8%A9%E5%93%A5%E5%8D%8E3.jpg)
-相關新聞： 
- Peaceful Demonstration against The Abuse of Power by The Securities Commissions in Canada 
- https://gnews.org/318993/ 
-喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
- https://gnews.org/zh-hans/316568/ 
-郭文貴先生鼓勵喜馬拉雅聯盟加拿大農場戰友向證監會抗爭
- https://gnews.org/zh-hans/316801/ 
-近觀加拿大農場的金融“中途島戰役” 
- https://gnews.org/zh-hans/318790/
+翻譯：Rong 
+校對：Sarathecat
 
 0

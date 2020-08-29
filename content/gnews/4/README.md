@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/21～22 CCP病毒每日疫情直播簡報
-`2020-08-28 11:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/322318/)
+## 骯髒的手段: 因華為之爭中共威脅美國醫療用品供給
+`2020-08-28 19:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/322534/)
 
-英文標題 CCP Virus Pandemic Updates Ep 210-211: Baimazhai, Sichuan the communications were interrupted during the flood.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15100410/1597500196200.jpg)圖片來源： [https://paratic.com/](https://paratic.com/huawei-cfo-tutuklandi-ticaret-savasi-kiliclar-cekildi/) 
+根據Washington Examnier 8月26日報導，著名經濟專家和中共事務專家認為由於美國加緊對華為的監管，因而會引致中共報復及限制美國取得所需醫療用品。
 
-視頻重點
+清華大學李稻葵教授對美國針對中共旗艦通訊公司華為的監管有所回應， 李教授認為“對於維生素和抗生素，90%以上的原材料都是在中(共)國生產的。美國在短期內肯定無法生產它們。”
 
-1. 遼寧省省內首家村級供銷社在瀋陽成立，中共國走在重回文革時代的路上。
-2. 8月19日，四川省平武縣白馬寨在洪水中通信中斷，到現在三天過去了，仍沒有任何消息。
-3. 在多國紛紛表示免費為自己國民接種新冠疫苗時，中共慷慨將疫苗贈送全世界，而另一方面卻告訴中國國內百姓每套疫苗1000人民幣，約120歐元。
-4. 在國安法進入香港後，香港社會正在經歷或面臨巨大的倒退。現在，教育領域也正在被進一步腐蝕。 根據《眾新聞》報導，香港的多本通識教科書，近日遭到香港教育局刪改，其中刪去了“六四”、“公民抗命”、“三權分立”、“香港新聞自由指數排名下跌”、“中國器官買賣問題”等內容。
-5. (郭文貴先生，8/20）今天的班農先生被捕，會開始一個新的爆料革命的高度。共產黨你完了。不信咱走著看。你越這麽幹，我們越有戰友。我相信顫抖的絕對不是美國那些滅共的人士。顫抖的將是你們。美國人還會猶豫滅共嗎？還想不滅共嗎？共產黨能饒過你嗎？共產黨露出自己的兇器，你就會讓世界感受到恐懼。
+此前美國商務部實行新規例，讓華為更難獲取源自美國技術的電子零件產品。美國也警告電信巨頭華為是中共間諜的一個平台。李稻葵教授在此之後所發表的言論，更令國際看清楚中共神秘面紗背後的事實。早前國際社會也對中共在中共病毒大流行前的不當處理感到非常憤怒。
 
+更甚的是根據南華早報報導，李稻葵表示“擾亂中（共）國經濟，就等於在糧食問題上與中國人民爭吵，那麼中（共）國就可以在藥品供應問題上和美國開戰了，對吧?”李教授表示如果美國真的玩弄遊戲，中共會作出反制措施。李教授所說的話都是用來挑戰美國的。
 
-1. The first village-level Supply and Marketing Cooperative (“supply station“) in Liaoning Province was established in Shenyang. The Communist Party of China is on the way back to the Cultural Revolution era.
-2. On August 19, in Baimazhai village, Pingwu County of Sichuan Province, the communications were interrupted during the flood. Three days have passed and there is still no news found.
-3. Many countries have expressed that they will provide free vaccines of coronavirus to their people. The CCP announced that it will donate the vaccine to the world. However, on the other side, it requests the people in China to pay 1000 RMB (around 120Euro) per vaccine.
-4. After the National Security Law entered Hong Kong, Hong Kong society is experiencing or facing a huge setback. Now, the education field is also being further “corroded”.According to the Hong Kong Citizen News report, many general education textbooks in Hong Kong were recently revised or deleted by the Hong Kong Education Bureau. Among them, a lot of contents like “June 4th”, “civil disobedience”, “separation of powers”, and “Hong Kong Press Freedom Index fell in rankings”, “Chinese organ sales” and others were deleted.
-5. (Miles Guo) Mr. Bannon being arrested today will lift the Whistleblower Movement to a new height. CCP, you are finished! Just wait and see!The more you (CCP) do this, the more allies we will get. I believe it’s not the anti-CCP Americans that will tremble. It is you (the CCP) that will tremble.  Will there still be any Americans hesitant about taking down the CCP or unwilling to take down the CCP? As the CCP has bared its claws, the world will know fear.
+報導指出，另一方面中共政治協商委員會常務委員則標榜中共政府是站在中國人民這邊。但是根據美國國會安全分析員分析，中共統一戰線主要目的是管理潛在中（共）國內部的反對派勢力. 而且最重要是任務是對於外國的影響和滲透。
 
+由於中共拒絕批准美國在華工廠所製造的口罩及其他醫療裝備出口，引致西方國家認為全球供應鏈不能再任由中共控制，因而尋求其他對西方各國有利的方案。
+
+美國傳統基金會研究員成斌(Dean Cheng)則認為中共製造謠言，稱冠狀病毒由美國製造是不明智及具有災難性的。再加上折斷對美國的藥品供應，因此美國不但要跟中共脫鉤, 而且更要從中（共）國撤離。
+
+評論:
+
+中共利用14億中國人民作為對外的擋箭牌. 在外國面前總是喬裝成代表中國人民發聲.但內裡總使把老百姓當作奴隸一般. 當這個虛偽的面紗被外國揭穿.中共對疫情爆發的不當,對洪災的管理不治. 中共仍然認為其沒有錯. 不但如此. 更甚的是他會運用骯髒的手. 吸空外國製造的醫療物資. 以致多個國家沒有足夠醫療設備對抗疫情. 另一方面運用大外宣手段傳播冠狀病毒是源自美國. 在世界民主,文明的社會裡, 哪有這種無恥的政府. 對人民, 對世界作出如此的傷害. 只有中共能夠做得到.
+
+[原文鏈接](https://www.washingtonexaminer.com/policy/defense-national-security/play-dirty-chinese-official-threatens-us-medical-supplies-over-huawei-fight)
+
+翻譯：叮噹
+校對：Yamap
 
 0
