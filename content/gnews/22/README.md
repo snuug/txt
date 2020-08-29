@@ -1,103 +1,143 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【VOG多語種新聞播報(西班牙文)0828期】 三峽大壩危險——中國重慶長江寸灘水位累計漲幅超二十米
-`2020-08-28 09:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/322000/)
+## 路德談為什麼司法部檔是爆料的全面開始
+`2020-08-28 11:14 立武` [轉載自GNews](https://gnews.org/zh-hant/322230/)
 
-西班牙語標題 La presa de las Tres Gargantas está en peligro: en Cuntan, el nivel del agua del Río Yangtze de Chongqing, China ha aumentado en más de 20 metros.
+[鳴謝路德時評的精彩分析](https://www.youtube.com/watch?v=9V948JTDFW8)
 
-編輯記者：川渝小哥G      Periodista: Chuanyu Xiaoge G
+**序**
 
-校對編輯：文劍 宠宝贝（文宠）Editor: Wenjian Chong Baobei (Wenchong)
+文貴先生剛剛出來的時候，他似乎像一隻初生牛犢進入了虎穴，**在虎穴裡是一雙雙假冒為善的眼睛，他們狡黠地暗喜，他們激動地流著哈喇，**他們等待獵物的出現已經很久了。
 
-翻譯:谜拟Q Traductor: Mini Q
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110651/%E6%89%B9%E6%B3%A8-2020-08-28-202616-3.png)2017年文贵先生爆料直播
 
-視頻內容
+他們蜂擁而上，志在必得，心中百般地竊喜和狂傲，**他們用熟悉的套路和模式，先捧後殺，有的唱紅，有的唱白，試圖毀掉文貴先生的名譽。**
 
-8月19號,根據新華網報導中國重慶主城即將迎來”長江2020年第5號洪水”。
+**他們建立一個又一個的組織試圖綁架文貴先生，他們又高舉言論自由和正義必勝的大旗，**行使著下作無恥的行為。
 
-據長江委水文上游局19號晚11點測報,重慶長江寸灘水文站水位191.1米,超過保證水位 7.6米, 距1981年大洪水洪峰水位不足1米。 根據中國長江水文網數據顯示,8月10號至8月19號期間,寸灘水位從170.51米上漲到191.1米,漲幅達到驚人的20.59米, 最高水流量達到74400立方米每秒,超過黃河每秒流量的28倍。
+**他們有的痛哭流涕，有的傻笑大氣，有的說書講理，有的破口抨擊。**
 
-重慶的下游是三峽大壩,因其建設時期存在結構缺陷, 至今已嚴重變形。 短短十天內,長江局部水位發生了恐怖的漲幅,必將對三峽大壩形成巨大衝擊。 一旦潰壩,其下游的省市將會深陷洪災之中。
+他們有著共同的目標和共同的使命，**勢必要將一個前無古人喊出滅共的戰士推入深淵，推入萬劫不復的地獄。**
 
-2017年10月5號華盛頓新聞發佈會上,爆料革命贊助者郭文貴曾預警中共將向全世界發動襲擊。 兩年後,中共研發的CCP病毒席捲全球。 7月22號, 郭文貴公開表示三峽大壩存在大概率潰壩風險,呼籲下游人民提前離開以保全性命。 不透明的政權必然隱藏了大量邪惡事件或行為, 中國水災與CCP病毒的手法何其相似,真相只有在中共退出歷史舞臺時才會揭開。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110625/600_2214834_1-3.jpg)2017年文贵先生哈德逊研究所演讲
 
-郭文貴(7月22號直播)
+他們不知道一個剛剛從地獄掙脫出來的戰士，已經接受過百般的磨練和洗禮，對於他來說，**初生牛犢只是為了掩人耳目，獨入虎穴，只是為了引出背後的大貓，文貴先生在等待的是在大貓出來的一刹那，利刃出鞘，一擊斃命。**
 
-中共說了。 那是江澤民和鄧小平(鄧家)的錯。 不是我的錯。 死個幾億人。 中國剩九億人也不錯。 洩洪到洩洪區灌滿。 然後祈求上天吧。 看老百姓的命吧。 在整個中國南部。 水災災區的同胞們。 如果你們相信文貴。 能撤抓緊撤。 能離開抓緊離開。
+**欺民賊：小罵大幫忙**
 
-新聞及資料來源:
 
-[http://www.xinhuanet.com/2020-08/18/c\_1126384004.htm](http://www.xinhuanet.com/2020-08/18/c_1126384004.htm)
-
-(1981年以來最高位長江洪水抵近重慶主城 新華網發佈於8月18號晚11點)
-
-[http://www.cjh.com.cn/article\_73\_239587.html](http://www.cjh.com.cn/article_73_239587.html)
-
-(中國長江水文網發佈於2020年8月19號)
-
-[http://data.cma.cn/data/online/t/1](http://data.cma.cn/data/online/t/1)
-
-(國家氣象科學數據中心/中國氣象數據網國家)
-
-備註:降水量、高程分析來自中國氣象數據網,洪水數據來自中國長江水文網。 根據國家氣象科學數據中心資料顯示,該時間段重慶及周邊省市降水量正常。
+> **令完成2014年就出來了，郭伯雄、徐才厚、孫力軍等，甚至姬鵬飛，手上都有材料，為什麼現在才出來？因為以前他們即便出來，中共也可以利用大外宣，所有社交媒體蓋住一切爆料，讓他們無法發聲。**
 
 
 
-El 19 de agosto, de acuerdo con los informes de Xinhuanet, la ciudad principal de Chongqing, China, está a punto de marcar el comienzo de la “Quinta inundación del río Yangtze en 2020”.
+> **外加所謂“主流媒體”《華爾街日報》的造謠，所謂“自媒體”的屎諾等跟風瞎編，就讓美國政客不敢沾染。還有海外偽民運中和政客熟悉的人，再煽風點火…美國議員拿到爆料，肯定要問傅希秋這種人，結果這些偽民運、偽律師 ，都會說“是假的”。**
 
-Según el informe a las 23 del día 19 de la Oficina Hidrológica del Comité del Río Yangtze, el nivel del agua de la estación hidrológica de Cuntan, en Chongqing, era de 191,1 metros, lo que excede 7,6 metros del nivel de agua garantizada un metro por encima del nivel récord de 1981. Según datos de la Red Hidrológica del Río Yangtze de China, desde el día 10 al 19 de agosto, el nivel del agua de Cuntan subió de 170,51 metros a 191,1 metros, aumentando un número alarmante de 20,59 metros, el caudal máximo de agua alcanzó los 74.400 metros cúbicos por segundo, superando en 28 veces al río Amarillo.
 
-Agua abajo de Chongqing se encuentra la presa de las Tres Gargantas, que tuvo defectos estructurales durante su período de construcción, el día de hoy se ha deformado gravemente. En solo diez días, el nivel del agua del río Yangtze ha experimentado un aumento terrible del nivel de agua que seguramente tendrá un enorme impacto sobre la presa de las Tres Gargantas. Una vez que se rompa la planta hidroeléctrica las provincias y ciudades aguas abajo quedarán profundamente atrapadas en la gran inundación.
+有人說，**欺民賊是傻，是壞，**不必搭理他們。
 
-El 5 de octubre de 2017, en una conferencia de prensa en Washington, Miles Guo, el iniciador de la revolución, advirtió que el PCCh lanzaría un ataque contra el mundo. Dos años después, un virus desarrollado por el PCCh barrió el mundo, el 22 de Julio, Miles Guo declaró públicamente que la presa de las Tres Gargantas tiene una alta probabilidad de derrumbe y alertó a las personas que se encuentran río abajo que se retiren lo antes posible para salvar sus vidas. Un régimen opaco seguramente oculta una gran cantidad de eventos o acciones malignas, son similares las inundaciones chinas y el virus del PCCh. La verdad sólo se revelará cuando el PCCh se retire del escenario de la historia.
+路德卻說，**欺民賊是帶著任務的，是中共海外的大外宣力量，**如若不然，不可能有人會天天詆毀一個人，而且這個人和你沒有瓜葛，也不觸及你的利益，**甚至是為了你的未來在戰鬥。**
 
-Miles Guo (en una transmisión en vivo del 22 de julio)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110533/DzUoMRjU0AE_bLg-3.jpg)2019年文贵看春晚
 
-El PCCh dijo
+**欺民賊就是小罵大幫忙，**平常可以不要臉皮地擁護文貴先生、吹捧文貴先生，他們等的就是文貴先生露出破綻，**一旦文貴先生一句話、一個動作出現問題，這些欺民賊就開始群擁而上，既是演被騙的苦情戲，又是演揭發的英雄劇。**
 
-todo eso es culpa de Jiang Zemin y Deng Xiaoping
+欺民賊的目的就是**敗壞文貴先生的信譽，孤立文貴先生，在關鍵時刻出賣文貴先生，**讓共產黨有機可乘。
 
-no es mi culpa
+賴昌星就是活脫脫一個例子。
 
-cientos de millones de personas murieron
+賴昌星“**被海外民運以各種名義吃、騙、坑三四年，最後是海外民運把他賣給了共產黨。還陷害他賭博，帶他去賭博，在當地又犯了刑事罪，最後把賴昌星送回了國內。（文貴先生）**”
 
-900 millones de personas que restan en China, tampoco está tan mal
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110507/pic20080328235311-3.jpg)左一为赖昌星
 
-dirigir la inundación hacia el área de inundaciones, para que las llenen
+**賴昌星的結局是慘的。**
 
-luego rezarle al cielo
+即使令完成14年出來，欺民賊也能配合中共將令完成的爆料**詆毀成出逃貪官的報復，毀掉他的名譽，再動用五毛水軍、大外宣力量通過人海戰術來掩蓋令完成的爆料，**最後徹底瓦解一場不成氣候的革命。
 
-depende del destino de la gente
 
-En todo el sur de China
-
-Compatriotas de las zonas afectadas por las inundaciones
-
-Si creen en Miles Guo
-
-si pueden retirarse antes, háganlo rápido
-
-si pueden irse del lugar, apresúrense en irse de ahí.
+> **令完成站出來，會被人問“你有證據麼？”這些人自己就是證人，但中共就攪混水，搞壞你的名譽，再用“挺郭砸郭”攪混水。**
 
 
 
-fuentes:
+> **王立軍手上有料，照樣被送回去。因為如果策略和謀略不夠，這些料照樣不能給中共定罪。因為中共太邪惡，很多東西根本超出了人類想像，告訴媒體都沒人相信，會說你是“編故事”，哪怕令計畫自己出來都會被編造。**
 
-[http://www.xinhuanet.com/2020-08/18/c\_1126384004.htm](http://www.xinhuanet.com/2020-08/18/c_1126384004.htm)
 
-(La mayor inundación del río Yangtze desde 1981 alcanzó la ciudad principal de Chongqing)
 
-[http://www.cjh.com.cn/article\_73\_239587.html](http://www.cjh.com.cn/article_73_239587.html)
+> **郭伯雄家人出來爆料，肯定會被打成貪官，說內鬥失敗，出來爆料，最後不了了之…哪怕郭伯雄的兒子站出來，都會被抹黑。**
 
-(sitio web de la Estación hidrológica del Río Yangtze, China, publicado el 19 de agosto de 2020)
 
-[http://data.cma.cn/data/online/t/1](http://data.cma.cn/data/online/t/1)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110401/20141029093211807-3.jpg)令完成，化名“王诚”
 
-(Centro Nacional de Datos Científicos Meteorológicos / sitio web de Datos Meteorológicos de China)
+王立軍、郭伯雄、徐才厚、孫立軍都是如此，**他們敗就敗在無法建立起信譽。**
 
-Ojos: El análisis de precipitación y elevación proviene del sitio web de Datos Meteorológicos de China y los datos de inundaciones provienen del sitio web de la Estación hidrológica del Río Yangtze de China.
+而現在司法部檔和**文貴先生都可以給予他們爆料的信譽。**
 
-Según datos del Centro Nacional de Datos Científicos Meteorológicos, la precipitación en Chongqing, las provincias y ciudades circundantes fueron normales durante este período.
+**司法部文件：信譽的標杆**
+
+
+> **司法部檔出來後，這些東西才會一個個曝光。司法部定性了文貴先生爆料。**
+
+
+司法部文件**證明了文貴先生爆料的真實性，更是建立了文貴先生滅共無出其右的地位，**司法部檔揭露中共動用一國之力和深層政府的力量試圖遣返文貴先生，習近平更是親自出面與川普談判，這更加地**反映出中共的恐懼和文貴先生的重要性。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110341/caJM-fyecrxv4892570-3.jpg)2017年川习马阿拉歌庄园会面
+
+這是文貴先生**三年爆料，和中共周旋，放長線釣大魚**的結晶。
+
+
+> **現在這些人出來，只需要文貴先生說，“這些是真的”。**
+
+
+現在，文貴先生的一句認可就可以建立這些爆料人的信譽，**這也是為什麼路德先生說司法部檔是全面爆料的開始，即將會有越來越多的核心級人物站出來爆料。**
+
+
+> **這麼多人站出來，各種證據給到美國。越來越多人站出來形成一個勢頭，一定會摧毀玩“空城計”的這幫人。**
+
+
+
+> **爆料革命的效應，只要一個人出來，就有十個人，100個人。他們只要堵，就又被坐實證據。**
+
+
+
+> **郭伯雄、徐才厚、遲浩田、王立軍、孫力軍等家族，全都會出來。越瞭解這個體制，越知道每個人都是肉，十四億人和絞肉機，停止的方式只有這個。習、王認為自己是絞肉機，但也隨時可以絞殺他們。**
+
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110145/8a3af1a135b12c06d5ede2def58f2820_w-3.jpg)
+
+現在，**文貴先生已經將正義的藍旗插在山頭，真正為了保命保財的爆料人會趨之若鶩，**誰都想快點結束這個體制，誰都惶惶不安**，心安之處在新中國聯邦，**這是趨勢，也是潮流。
+
+**三年爆料：放長線釣大魚**
+
+賴昌星但凡**對共產黨在海外的大外宣力量有一個清晰的認識的話，**就不會相信海外民運。
+
+文貴先生的優勢在於**他深入過中共的情報核心，他特別熟悉管海外民運幾十年的林強和張越，**他深知海外民運是什麼貨色。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110121/EX4MMwFWsAAn2Kk-3.jpg)右三为林强
+
+文貴先生更大的優勢是**他懂得戰略與博弈，懂得釣魚和周旋，更懂得隱忍和堅持**。
+
+三年爆料，文貴先生受盡了唾駡與侮辱，受盡了背叛和捅刀，**他也曾給予欺民賊一個放下屠刀的機會，他也相信因果福報，欺民賊的惡和不悔改，自然有來自上天的懲罰，**文貴先生要做的就是讓子彈飛一會。
+
+
+> **爆料就是誘餌、引蛇出洞，真正的是用司法來依法滅共。**
+
+
+
+> **大外宣的體系，西諾韋石夏業良馬大維，文貴先生說有幾個被抓了，被保釋了。都是放長線釣大魚。**
+
+
+文貴先生不在乎欺民賊，**他在乎的是欺民賊背後的一張網，一張中共在海外布下的天羅地網，**文貴先生把自己拋出去，作為攻擊的目標，作為誘餌，**就是要引蛇出洞，要坐實這張網存在的證據。**
+
+文貴先生作為標杆，只要砸鍋的**，****FBI****一定會鎖定這個目標，鎖定他的財務來源，鎖定他的情報上線，**慢慢牽出背後的大貓。
+
+文貴先生與欺民賊打官司，**為的是坐實誰支付了欺民賊的律師費，撤訴意味著證據已經坐實。**
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28110033/maxresdefault-2-5.jpg)2019年文贵先生和郭宝胜庭外质询
+
+只要坐實證據，**欺民賊要麼做污點證人，要麼被遣返或進監獄，**自然不用搭理他們。
+
+更重要的是，**接下來即將利用****RICO****法案制裁這張網背後佈局的人，**毫無疑問，目標對準的就是中共。
+
+司法部檔是文貴先生三年磨一劍的結晶，這是一把“瓦雷利亞鋼劍”，利刃出鞘的那一刻，結局早已在三十年前決定。
 
 0

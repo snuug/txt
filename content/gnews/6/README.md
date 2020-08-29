@@ -1,21 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/20 CCP病毒每日疫情直播簡報
-`2020-08-28 21:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/322666/)
+## 匯豐銀行凍結黎智英和集團高層賬戶，蓬佩奧斥其顛倒黑白
+`2020-08-28 22:24 GM01` [轉載自GNews](https://gnews.org/zh-hant/322756/)
 
-戰友之家圖文摘要及小語種組
+作者：尚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28220810/16FBF2C2-D535-4D91-B9FC-AEF6256F4EDD.jpeg)
+黎智英銀行戶口被封蓬佩奧斥匯豐黑白顛倒
 
-[English\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)
+新聞來自：法國國際廣播電台
 
-[French\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)
+壹傳媒集團行政總裁張劍虹，包括他與集團創辦人黎智英和集團高層Mark Simon等人在匯豐銀行的戶口，已無法提取現金和轉賬。他說，他在8月12日發現有關情況，目前正透過律師向銀行瞭解詳情。8月10日，香港出動200警員進入壹傳媒位於將軍澳的總部大樓，大肆搜索後帶走一批文件。
 
-[German\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)
+對於匯豐銀行封鎖壹傳媒高層戶口一事，根據華爾街日報報道，美國國務卿蓬佩奧極表不滿。蓬佩奧發表聲明說：「匯豐銀行一方面繼續保持那些因拒絕給港人自由而受制裁者的帳戶，另一方面卻關閉追尋自由者的帳戶。」他又稱，自由國家必須確保公司利益不會屈從於中共，協助其政治打壓，並稱美國已準備好幫助英國政府及其企業抵抗中共的欺凌，站在自由一方。
 
-[Japanese\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)
-
-[Korean\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)
-
-[Spanish\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)
+原文鏈接：[https://www.rfi.fr/cn/港澳台/20200828-黎智英银行户口被封蓬佩奥斥汇丰黑白颠倒](https://www.rfi.fr/cn/港澳台/20200828-黎智英银行户口被封蓬佩奥斥汇丰黑白颠倒)
 
 0

@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安倍晉三因病辭任, 文貴先生半月前稱下任首相會更反共!這是巧合麼?
-`2020-08-28 09:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/321994/)
+## VOG多語種組每日政要Twitter播報(中文)08/28期(視頻+ PDF下載)
+`2020-08-28 10:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/322085/)
 
-製作：【上天造滅疫組】
+[8.28每日政要Twitter播報](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28100115/8.28.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28100115/8.28.pdf)
 
-1
+
+
+0

@@ -1,32 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞典政府指控華大基因病毒檢測試劑假陽性率高
-`2020-08-28 10:12 GM01` [轉載自GNews](https://gnews.org/zh-hant/322126/)
+## 喜馬拉雅聯盟加拿大農場證監會三日示威圖集
+`2020-08-28 13:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322404/)
 
-國內新聞作者:旅行
+喜馬拉雅聯盟加拿大農場 文錦
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28101022/j8fPUtYKPlgMgRgyz8jNL5iedqMvXXY5os1zd6LNc3c.jpeg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28101040/1477-innckce3626468.jpg)
+校對 小甜蝦
 
+2020年8月25、26、27連續三日，喜馬拉雅聯盟加拿大農場在多倫多、卡爾加里及溫哥華證監會前進行抗議示威。勇敢、堅韌的我們熱愛加拿大！熱愛自由！追求公平正義真相！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130110/00.jpg)
+我們堅持自己的合法權利，要求證監會：
 
-8月25日，瑞典公共衛生局聲明稱：華大基因生產的新冠病毒檢測試劑盒存在缺陷，有過高的假陽性率，導致3700人的檢測結果出現假陽性。
+1.解封無理由凍結的賬戶和資金！
 
-瑞典公共衛生局向歐洲有關部門和世界衛生組織通報了這壹情況。
+2.給我們證據！
 
-這則新聞壹出，華大基因馬上進行了所謂澄清：公司關註到某歐洲媒體，報道公司新型冠狀病毒檢測試劑盒存在“高陽性檢出率”問題。
+3.停止濫用權力！
 
-華大基因的所謂澄清完全是在用文字遊戲忽悠國內不懂的百姓。瑞典公共衛生局的公告中說的是“假陽性”，而華大給自己美化成“高陽性檢出率”。這完全是兩個不同的概念。
+請欣賞戰友們的英姿：
 
-1、假陽性與高陽性檢出率：“假陽性”是指樣品本身為陰性（不含病毒），而檢測結果是陽性，即檢測結果是錯誤的。
-“高陽性檢出率”是指試劑盒能檢測到病毒含量很低的樣品，能更有效檢測出弱陽性樣品，前提是樣品本身就是陽性的。
+加拿大最大城市安省多倫多
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130407/%E5%A4%9A%E4%BC%A6%E5%A4%9A3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130502/%E5%A4%9A%E4%BC%A6%E5%A4%9A2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130519/%E5%A4%9A%E4%BC%A6%E5%A4%9A1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130535/%E5%A4%9A%E4%BC%A6%E5%A4%9A4.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130548/%E5%A4%9A%E4%BC%A6%E5%A4%9A5.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130602/%E5%A4%9A%E4%BC%A6%E5%A4%9A6.png)
+加拿大阿省卡爾加里
 
-2、文字遊戲：中共最擅長玩文字遊戲，華大基因把壹個負面詞語巧妙地變成正面表揚，典型的CCP撒謊本質。
-
-3、劣質產品：試劑盒靈敏度的高低，是由標準病毒RNA參考品來衡量，而中共壹貫是數據造假，產品的真實質量從全世界禁止使用就壹目了然。
-
-4、劣幣驅逐良幣： CCP審批上市的新冠病毒RT-PCR試劑盒全部為國產，進口試劑盒產品不能走綠色通道獲得快速審批，導致國內劣質試劑盒橫行，這種劣幣驅逐良幣現象導致無法真實篩選感染者，造成國內疫情無法估量的感染和蔓延。
-
-國產新冠疫苗試劑盒的靈敏度低，陽性檢出率只有30%～50%，已經被國際多家媒體報道。華大基因為自己洗地只能更加暴露其撒謊和無恥的本質。
+戰友們在物資不充足、活動人數較少的情況下，三天來堅持到底。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130613/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130622/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C2-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130634/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C1-scaled.jpg)
+加拿大卑詩省溫哥華
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130702/%E6%B8%A9%E5%93%A5%E5%8D%8E1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130711/%E6%B8%A9%E5%93%A5%E5%8D%8E2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130727/%E6%B8%A9%E5%93%A5%E5%8D%8E3.jpg)
+相關新聞： 
+ Peaceful Demonstration against The Abuse of Power by The Securities Commissions in Canada 
+ https://gnews.org/318993/ 
+喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
+ https://gnews.org/zh-hans/316568/ 
+郭文貴先生鼓勵喜馬拉雅聯盟加拿大農場戰友向證監會抗爭
+ https://gnews.org/zh-hans/316801/ 
+近觀加拿大農場的金融“中途島戰役” 
+ https://gnews.org/zh-hans/318790/
 
 0

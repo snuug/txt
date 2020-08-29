@@ -1,41 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜馬拉雅聯盟加拿大農場證監會三日示威圖集
-`2020-08-28 13:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322404/)
+## 郭文貴先生在2017年5月29日就預告了三年後司法部檔的出臺
+`2020-08-28 20:23 Diago` [轉載自GNews](https://gnews.org/zh-hant/322628/)
 
-喜馬拉雅聯盟加拿大農場 文錦
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28202014/%E5%B0%81%E9%9D%A2-96.jpg)
+作者：Diago
 
-校對 小甜蝦
+2017年5月29日郭文貴先生在[郭文貴5月29日報平安直播視頻 關於王歧山](https://youtu.be/uoMlhusFIkY)[19:48](https://youtu.be/uoMlhusFIkY?t=1188)時間點提到——
 
-2020年8月25、26、27連續三日，喜馬拉雅聯盟加拿大農場在多倫多、卡爾加里及溫哥華證監會前進行抗議示威。勇敢、堅韌的我們熱愛加拿大！熱愛自由！追求公平正義真相！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130110/00.jpg)
-我們堅持自己的合法權利，要求證監會：
 
-1.解封無理由凍結的賬戶和資金！
 
-2.給我們證據！
+【就在他要來的期間，大家知道他推遲了兩周的時間，他說是簽證的問題。後來在我們中南海內部，頻繁給我發來資訊，我到今天萬分感激。我真不知道他是誰。我相信即是有正義良心的人，同時也在利用我的人。抱歉我這麼說。
 
-3.停止濫用權力！
+他們正在想辦法抓捕和我有關的人。包括也有騙我的人，在廣州。曾經有人打著某領導家人名義騙了我的錢，他們把他抓了。包括5月7號抓捕了北京首都機場給我提供了部分海航航班資訊的人。包括也抓捕了給我在曾經在總參二部的一個軍官，給我提供資訊的人。也包括他們在上海和劉特佐(JHO LOW)在商量如何利用協力廠商把我弄回去的事。
 
-請欣賞戰友們的英姿：
+包括有人向他們許諾在美國政府遊說要通過阿聯酋協力廠商護照把我弄回去的事。包括也研究把我綁架到船上，用貨船把我運回去的事。包括在紐約大街上有人沖上來說我調戲過這個女同志，然後跟當地的公安串通好，員警把我關起來讓我閉嘴的事。包括有人設計把我家人給放毒品，陷害我有毒品的事兒。都在上三周的爆料中，在醞釀之中。主要的領導人是其中的我說的四個盜國賊之一。但這事都沒有發生。所以這位老領導他是被利用者，他真是個好人。背後這些人讓他一面跟我談，背後邊使用這些黑招對付我。
 
-加拿大最大城市安省多倫多
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130407/%E5%A4%9A%E4%BC%A6%E5%A4%9A3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130502/%E5%A4%9A%E4%BC%A6%E5%A4%9A2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130519/%E5%A4%9A%E4%BC%A6%E5%A4%9A1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130535/%E5%A4%9A%E4%BC%A6%E5%A4%9A4.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130548/%E5%A4%9A%E4%BC%A6%E5%A4%9A5.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130602/%E5%A4%9A%E4%BC%A6%E5%A4%9A6.png)
-加拿大阿省卡爾加里
+就是上次我說的一共三招，第三招叫爛招。
 
-戰友們在物資不充足、活動人數較少的情況下，三天來堅持到底。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130613/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130622/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C2-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130634/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C1-scaled.jpg)
-加拿大卑詩省溫哥華
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130702/%E6%B8%A9%E5%93%A5%E5%8D%8E1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130711/%E6%B8%A9%E5%93%A5%E5%8D%8E2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130727/%E6%B8%A9%E5%93%A5%E5%8D%8E3.jpg)
-相關新聞： 
- Peaceful Demonstration against The Abuse of Power by The Securities Commissions in Canada 
- https://gnews.org/318993/ 
-喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
- https://gnews.org/zh-hans/316568/ 
-郭文貴先生鼓勵喜馬拉雅聯盟加拿大農場戰友向證監會抗爭
- https://gnews.org/zh-hans/316801/ 
-近觀加拿大農場的金融“中途島戰役” 
- https://gnews.org/zh-hans/318790/
+第二招是什麼呢？跟美國政府做交換。頭兩天中美之間習川會以後有六個工作小組談不同的兩國合作問題。每個小組來華盛頓都在遊說美國政府將我遣送回國。而且美國的有些官員也在騙他們，說我們可以做，那你們給什麼條件。開出了天價。這就是當年的子藍和鄭袖想幹的事——賣國求文貴，賣國求平安。
 
-0
+你們所有跟華盛頓談的話。你們所有在華盛頓所嘗試的交易。未來都會被公佈。記住今天郭文貴說的話。不但美國的國會山都在盯著，全美國人都在盯著。你們以為現在是真正的世界老大了，你們覺得現在你們可以控制全世界了。可能嗎？！】
+
+郭文貴先生在三年零兩個半月之前就預見到司法部檔的出臺，其實也不是預見，而是他的所作所為本來就是2020年8月17日公佈的這份司法部檔的一部分，或者說這份司法部檔就是在他的精心呵護下誕生的，我們都知道郭文貴先生是人不是神，可是我們讀懂郭文貴先生了嗎？中共盜國賊和美國的DEEP STATE讀懂郭文貴先生了嗎？我想我們和這個世界都在慢慢讀懂郭文貴先生，中共盜國賊和美國的DEEP STATE也會讀懂郭文貴先生，不同之處在於我們和這個世界上追隨郭文貴先生的那些人和組織正在欣喜地看著一個新世界的誕生，中共盜國賊和美國的DEEP STATE正在無可奈何地等待著公平和正義對於他們的終極審判。
+
+（文章內容僅代表作者個人觀點）
+
+1

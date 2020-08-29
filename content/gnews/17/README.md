@@ -1,16 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農視頻 348 郭文貴先生 三峽洪災真實死亡人數已達十萬多人（西班牙語Spanish+中文Chinese+英語English）
-`2020-08-28 10:32 GM62` [轉載自GNews](https://gnews.org/zh-hant/322135/)
+## 【戰友短評】事實豈容篡改，臭名因網絡遠播，鄧炳強拒絕認錯
+`2020-08-28 15:10 GM42` [轉載自GNews](https://gnews.org/zh-hant/322451/)
 
-西班牙語標題 El número real de muertos por las inundaciones de las Tres Gargantas ha alcanzado más de 100.000
+製作單位：戰友之家-粵語組
+評述：卡西歐
+戰友評論：点苍山
+後期製作：文粵
 
-翻譯：謎擬Q 校對：帅虎 視頻：小羽
 
-視頻簡介: 
-三峽洪災真實死亡人數已達十萬多人 整個中國明年百分百會發生大饑荒。
 
-El número real de muertos por las inundaciones de las Tres Gargantas ha alcanzado más de 100.000. Está 100% seguro de que China tendrá una gran hambruna el próximo año.
+8.27 新界北總區刑事總部高級警司陳天柱狡辯2019.7.21元朗恐襲的言論激起全港人憤怒，鄧炳強指陳天柱的“勢均力敵，旗鼓相當”的評論不必要
+
+資料來源：蘋果日報
+
+[https://hk.appledaily.com/breaking/20200827/2TULJAENCREJHC4A4NSNULDCYQ](https://hk.appledaily.com/breaking/20200827/2TULJAENCREJHC4A4NSNULDCYQ)
 
 0

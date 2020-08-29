@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/21～22 CCP病毒每日疫情直播簡報
-`2020-08-28 11:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/322318/)
+## 日本首相安倍晉三因病辭職, 日本未來走向何方?
+`2020-08-28 19:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/322558/)
 
-英文標題 CCP Virus Pandemic Updates Ep 210-211: Baimazhai, Sichuan the communications were interrupted during the flood.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28193024/Picture3-3.png)圖片來源：EPA/FRANCK ROBICHON / PAP 
+據雅虎日本最新新聞報導，日本首相安倍晉三於8月28日突然宣布了辭職的決定。政府和執政黨的相關人員公開了這一消息。安倍首相的親信指出，安倍首由於應對中共病毒等事務導致積勞成疾，分別於本月17日和24日前往了東京信濃町的慶應大學醫院就診，醫生們表達對其身體狀況的憂慮。 28日下午5點，安倍首相在時隔兩個半月後於首相官邸舉行了記者新聞發布會。
 
-視頻重點
+安倍首相一直患有潰瘍性結腸炎，在其第一次執政期間自民黨在2007年7月的參議院選舉中慘敗後他的身體狀況開始惡化，大約一年後任期未滿就辭職了。而此次則是安倍首相第二次在任期中辭職，他原本應該作為第三次連任自民黨首相到2021年9月底才任職期滿。
 
-1. 遼寧省省內首家村級供銷社在瀋陽成立，中共國走在重回文革時代的路上。
-2. 8月19日，四川省平武縣白馬寨在洪水中通信中斷，到現在三天過去了，仍沒有任何消息。
-3. 在多國紛紛表示免費為自己國民接種新冠疫苗時，中共慷慨將疫苗贈送全世界，而另一方面卻告訴中國國內百姓每套疫苗1000人民幣，約120歐元。
-4. 在國安法進入香港後，香港社會正在經歷或面臨巨大的倒退。現在，教育領域也正在被進一步腐蝕。 根據《眾新聞》報導，香港的多本通識教科書，近日遭到香港教育局刪改，其中刪去了“六四”、“公民抗命”、“三權分立”、“香港新聞自由指數排名下跌”、“中國器官買賣問題”等內容。
-5. (郭文貴先生，8/20）今天的班農先生被捕，會開始一個新的爆料革命的高度。共產黨你完了。不信咱走著看。你越這麽幹，我們越有戰友。我相信顫抖的絕對不是美國那些滅共的人士。顫抖的將是你們。美國人還會猶豫滅共嗎？還想不滅共嗎？共產黨能饒過你嗎？共產黨露出自己的兇器，你就會讓世界感受到恐懼。
+自2012年12月安倍政府第二次上台以來，安倍首相的連續在任天數於8月24日達到了2799天，剛剛超過了前首相佐藤榮作，成為歷史上連續在任天數最長的首相。如果加上他的第一屆政府的在任天數，那麼他的總計在任天數早在2019年11月就超過日本戰前首相桂太郎（2886天），成為歷任首相中總計在任天數最長的首相。自今年年初以來，日本政府對中共病毒的應對策略就一直猶豫不決，內閣的支持率也一直低迷。
 
+安倍首相於本月17日和24日連續兩次到慶應大學醫院就醫，總計在醫院停留了11個小時以上。 8月19日安倍首相還接受了檢查，以確保自己的健康狀況得到控制，並於24日向記者作了解釋，仔細聽取了上週的檢查結果，並進行了追加檢查。然而，在政府和執政黨內部人們普遍認為安倍首相是由於老毛病潰瘍性結腸炎而去醫院治療，因此對其身體狀況感到擔憂。
 
-1. The first village-level Supply and Marketing Cooperative (“supply station“) in Liaoning Province was established in Shenyang. The Communist Party of China is on the way back to the Cultural Revolution era.
-2. On August 19, in Baimazhai village, Pingwu County of Sichuan Province, the communications were interrupted during the flood. Three days have passed and there is still no news found.
-3. Many countries have expressed that they will provide free vaccines of coronavirus to their people. The CCP announced that it will donate the vaccine to the world. However, on the other side, it requests the people in China to pay 1000 RMB (around 120Euro) per vaccine.
-4. After the National Security Law entered Hong Kong, Hong Kong society is experiencing or facing a huge setback. Now, the education field is also being further “corroded”.According to the Hong Kong Citizen News report, many general education textbooks in Hong Kong were recently revised or deleted by the Hong Kong Education Bureau. Among them, a lot of contents like “June 4th”, “civil disobedience”, “separation of powers”, and “Hong Kong Press Freedom Index fell in rankings”, “Chinese organ sales” and others were deleted.
-5. (Miles Guo) Mr. Bannon being arrested today will lift the Whistleblower Movement to a new height. CCP, you are finished! Just wait and see!The more you (CCP) do this, the more allies we will get. I believe it’s not the anti-CCP Americans that will tremble. It is you (the CCP) that will tremble.  Will there still be any Americans hesitant about taking down the CCP or unwilling to take down the CCP? As the CCP has bared its claws, the world will know fear.
+隨著中共病毒感染的蔓延，安倍首相從今年1月26日開始至6月20日已經連續工作了147天，此外也有周末堅持工作的情況。首相身邊的工作人員擔心其過於勞累，紛紛認為首相看上去顯的很勞累。作為2012年底安倍首相第二次組閣上台以來一直支撐首相工作的有著“政權的骨架”之稱的內閣官房長官菅義偉、副總理兼財務相麻生太郎、自民黨的稅制調查會長甘利明等人最近也對首相提出了休養的建議，但是安倍首相強烈希望在應對中共病毒時能做到“親臨一線指揮”，因此沒有接受。
 
+這次安倍首相辭職後，未來日本政壇的重點將聚焦到”後安倍晉三”時代。自民黨即將舉行黨內選舉，進而選出下一任黨魁。在參加黨魁選舉的候選人當中，除了自民黨的政調會長岸田文雄和原幹事長石破茂表現出了領先地位之外，黨內也有推舉官房長官菅義偉以及防衛相河野太郎的呼聲。
+
+安倍首相是日本前外相安倍晉太郎的次子，他的祖父是前首相岸信介。 1993年，在眾議院選舉中，安倍晉三從舊山口一區競選中首次當選，並連續當選了9次。 2003年，他在小泉純一郎執政期間被選為自民黨幹事長，並於2005年被任命為內閣官房長官。 2006年9月，在原首相小泉純一郎卸任之後，安倍晉三於52歲初次擔任首相至2008年辭職。
+
+2012年9月，自民黨淪為在野黨後安倍晉三再度成為自民黨黨首，並於同年12月在眾議院選舉中獲得多數席位，重掌政權。 2015年，安倍首相無投票再次當選自民黨黨首。 2016年，因首相的任期從原來”連續兩個任期的6年”延長到了”連續三個任期的9年”，因此安倍晉三於2018年的首相競選中擊敗了石破茂，第三次勝選，再任首相。
+
+譯評：
+
+此次安倍首相因病辭職對於日本來說未嘗不是一件好事，畢竟如今的日本面臨著極大的不穩定性，由於中共病毒的影響日本的經濟已經受到了沉重的打擊，而當前安倍政府在病毒應對策略方面對中共的態度卻一直非常曖昧，即不幫中共說話也不徹底和美國站在一起，這對於滅共而言明顯是不利的。郭先生曾經在10天前的直播中說過，日本新上任的首相對於中國共產黨來說將是一個噩夢，堅決反共的新首相會在很短的時間內做出安倍政府一直不敢做的事，這無疑是對中共非常不利的事，讓我們拭目以待吧！如果真如郭先生所說的那樣，美國和新中國聯邦乃至全世界支持正義的力量在滅共的道路上無疑將會增加一個強大的盟友，中共在亞洲乃至全世界將面臨更加猛烈的反擊，直至被徹底摧毀！
+
+新聞來源： [雅虎日本新聞網](https://news.yahoo.co.jp/articles/16b19aef0507b5e2c474ba4410e35dbbbc14bf13)
+
+翻譯：旭鵬(文鵬) 
+校對：格物小哥，下里巴人
 
 0
