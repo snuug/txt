@@ -1,31 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8∙27喜馬拉雅聯盟加拿大農場在中共駐加拿大大使館示威
-`2020-08-28 18:20 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322518/)
+## 司法部調查州長令是否導致養老院老人過量死亡
+`2020-08-28 20:30 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/322632/)
 
-喜馬拉雅聯盟加拿大農場 文錦
+新聞簡述： 因懷疑紐約、新澤西、賓夕法尼亞和密歇根州公共養老院的過量死亡與其州長髮布的行政令有關，司法部要求這些州長向司法部提供數據，以此決定是否對他們發起調查。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28202056/DOJ_20200826_govorners-photo-v2-1.png)圖片來源：https://www.nga.org/governors/
+司法部文件（中英文對照）
 
-校對 小甜蝦
+Department of Justice
 
-2020年8月27日下午13:00-16:00，喜馬拉雅聯盟加拿大農場在首都渥太華中共駐加拿大大使館門前示威。此乃戰友們首次在加拿大的政治文化中心示威抗議，做為第一批勇士，意義深遠，用行動展現了我們滅共的勇氣與決心。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181647/%E6%B8%A5%E5%A4%AA%E5%8D%8E-%E8%83%8C%E5%BD%B1-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181458/%E5%B8%BD%E5%AD%90%E8%A1%A3%E6%9C%8D.jpg)
-科普：
+Office of Public Affairs
 
-大使館是一國在建交國首都派駐的常設外交代表機關。大使館代表整個國家的利益，全面負責兩國關係。領事館是一國駐在他國某個城市的[領事](https://baike.baidu.com/item/%E9%A2%86%E4%BA%8B/53972)代表機關的總稱，負責管理當地本國[僑民](https://baike.baidu.com/item/%E4%BE%A8%E6%B0%91/2578059)和其它領事事務。如果兩個國家斷交，一定會撤銷大使館，但不一定撤銷領事館。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181522/%E6%B8%A5%E5%A4%AA%E5%8D%8E1-scaled.jpg)
-主題:
+Wednesday, August 26, 2020
 
-1. 宣講中共病毒危害加拿大及全世界, 世界人民已經認識中共的邪惡。
+司法部公共事務辦公室
 
-2. 宣講新中國聯邦成立, 展現新中國人的意氣風發。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181538/%E6%B8%A5%E5%A4%AA%E5%8D%8E2-scaled.jpg)
-加拿大幅員遼闊，是世界面積第二大國家，人們居住相對分散。戰友們為了共同的信仰，長途跋涉，只為發出正義的呼號，向世人揭露中共的邪惡。其中不少上午參加完多倫多證監會遊行的戰友驅車四、五個小時到渥太華中共駐加拿大大使館繼續戰鬥，途遇瓢潑大雨，彷彿考驗戰友，到達示威地點時，竟雨過天晴，有如神助。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181552/%E6%B8%A5%E5%A4%AA%E5%8D%8E3-scaled.jpg)
-在遊行現場，一面面新中國聯邦旗幟在空中飄揚，與形單影隻的中共國血旗形成鮮明對比。戰友們拉開了“消滅共產黨是人類正義的需要（TAKE DOWN THE CCP! IT’S CALLOF JUSTICE!）”巨型條幅，高喊著“共產黨放毒，害死全人類！”、“邪惡共產黨，忽悠全世界！ ”、“相信共產黨，走進火葬場！”“推倒防火牆，國人知真相！”、“新中國聯邦，人民的希望！”、“CCP Lied, Canadians Died！（中共撒謊，加人死亡）”、 “Take down the CCP!（滅掉中共）”、“Take down the fire wall! （推倒防火牆）”、“Who is the enemy? CCP, not Chinese people!（誰是敵人？是中共！不是中國人） ”等口號。主心骨老江連續三日參加了多倫多證監會抗議，已經喊得聲音嘶啞，但依然堅持戰斗在中共國駐加拿大大使館前線，鼓舞著戰友。過往車輛頻頻鳴笛，以示支持和致意。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28181604/%E6%B8%A5%E5%A4%AA%E5%8D%8E4.jpg)
-郭文貴先生在7月25日的直播中就提過，之前，中共副部長親自部署了對喜馬拉雅聯盟加拿大農場的截擊，包括派人在農場進行潛伏，提前支付2000多萬美元在不同的賬上，協調在加拿大的合作銀行，準備好了對加拿大農場的國家級伏擊。但人心向背，大勢所趨，中共的末日越來越近。中共駐加拿大大使館的石牆建築雖然看上去堅固厚實，但裡面為中共賣命的人內心一定是惶恐不安的。
+2020年8月26日，星期三
 
-該我們贏了！我們一定會贏！
+**Department of Justice Requesting Data From Governors of States that Issued COVID-19 Orders that May Have Resulted in Deaths of Elderly Nursing Home Residents**
+
+**因疑COVID-19有關命令可能導致養老院居民死亡，司法部要求發佈此命令的州長們提供相關數據**
+
+Data will help inform whether the Department of Justice will initiate investigations under the Civil Rights of Institutionalized Persons Act (CRIPA) regarding New York, New Jersey, Pennsylvania and Michigan’s response to COVID-19 in public nursing homes
+
+數據將有助於司法部決定是否根據《機構化公民權利法》就紐約、新澤西、賓夕法尼亞和密歇根州公共養老院的COVID-19應對措施發起調查
+
+Today the Justice Department requested COVID-19 data from the governors of states that issued orders which may have resulted in the deaths of thousands of elderly nursing home residents. New York, New Jersey, Pennsylvania, and Michigan required nursing homes to admit COVID-19 patients to their vulnerable populations, often without adequate testing.
+
+今天（8月26日），司法部要求發佈相關州令的州長提供COVID-19數據。這些命令可能導致了數千名養老院老人的死亡。紐約、新澤西、賓夕法尼亞和密歇根州（的命令）要求養老院通常在沒有進行適當的檢測情況下，接納COVID-19患者到他們年老體弱的群體中去。
+
+For example, on March 25, 2020, New York ordered: “No resident shall be denied re-admission or admission to [a nursing home] solely based on a confirmed or suspected diagnosis of COVID-19. [Nursing homes] are prohibited from requiring a hospitalized resident who is determined medically stable to be tested for COVID-19 prior to admission or readmission.”
+
+例如，在2020年3月25日，紐約下令：「不得僅基於已確認或疑似的COVID-19診斷，拒絕任何人重新入住或入住[養老院]。 [養老院]禁止要求對病情穩定的住院患者在入住或重新入住之前進行COVID-19的檢測。」
+
+“Protecting the rights of some of society’s most vulnerable members, including elderly nursing home residents, is one of our country’s most important obligations,” said Assistant Attorney General for Civil Rights Division Eric Dreiband. “We must ensure they are adequately cared for with dignity and respect and not unnecessarily put at risk.”
+
+「保護社會上一些最弱勢群體的權利，包括養老院的老人們，是我們國家最重要的義務之一，」民權司助理檢察長埃里克·德雷班德（Eric Dreiband）說。 「我們必須確保他們在有尊嚴和被尊重的基礎上得到充分照料，並且無需置於不必要的風險之下。」
+
+According to the Centers for Disease Control, New York has the highest number of COVID-19 deaths in the United States, with 32,592 victims, many of them elderly. New York’s death rate by population is the second highest in the country with 1,680 deaths per million people. New Jersey’s death rate by population is 1,733 deaths per million people – the highest in the nation. In contrast, Texas’s death rate by population is 380 deaths per million people; and Texas has just over 11,000 deaths, though its population is 50 percent larger than New York and has many more recorded cases of COVID-19 – 577,537 cases in Texas versus 430,885 cases in New York. Florida’s COVID-19 death rate is 480 deaths per million; with total deaths of 10,325 and a population slightly larger than New York.
+
+根據疾病控制中心的數據，紐約的COVID-19死亡人數全美最高，共有32,592名死亡，其中許多是老年人。紐約的人口死亡率是全國第二高的，每百萬人中有1,680人死亡。新澤西州的人口死亡率為每百萬人1,733例死亡 — 全國最高。相比之下，得克薩斯州的人口死亡率為每百萬人380人死亡。儘管得克薩斯州的人口數比紐約多50％，但是得克薩斯州的死亡人數剛剛超過11,000，並且記錄在案的COVID-19病例數量也更多，得克薩斯州為577,537例，而紐約為430,885例。佛羅里達州的COVID-19死亡率為百萬分之480。總死亡人數為10,325，其人口總數略多於紐約。
+
+The Department of Justice’s Civil Rights Division is evaluating whether to initiate investigations under the federal “Civil Rights of Institutionalized Persons Act” (CRIPA), which protects the civil rights of persons in state-run nursing homes, among others. The Civil Rights Division seeks to determine if the state orders requiring admission of COVID-19 patients to nursing homes is responsible for the deaths of nursing home residents.
+
+司法部的民權司正在評估是否需要根據聯邦《制度化公民民權法》（CRIPA）展開調查，該法和其它相關法規一同保護州立養老院裡居民的民權。民權部門試圖確定要求接納COVID-19患者入住的相關州內命令是否對養老院院居民的死亡負責。
+
+On March 3, 2020, the Attorney General announced the Justice Department’s National Nursing Home Initiative. This is a comprehensive effort by the department, led by the Elder Justice Initiative and in strong partnership with the U.S. Department of Health and Human Services that uses every available tool to pursue nursing homes that provide substandard care to their residents.  As announced on April 10, 2020, the department is also investigating the Soldiers’ Home in Holyoke, Massachusetts, where COVID-19 has taken the lives of at least 76 residents.  https://www.justice.gov/opa/pr/federal-investigation-conditions-nursing-home-veterans-massachusetts-announced
+
+2020年3月3日，司法部長宣佈了美國司法部的國家養老院計劃。這是該部門在老年人司法倡議組織領導下，加強和國家衛生與公共服務部合作，整合現有手段和方法，共同致力規範養老院服務標準的結果。正如2020年4月10日宣佈的那樣，國防部還正在調查馬薩諸塞州霍利奧克的戰士之家，COVID-19在那裡奪走了至少76名居民的生命。https://www.justice.gov/opa/pr/federal-investigation-conditions-nursing-home-veterans-massachusetts-announced
+
+The data requests and Soldiers’ Home investigation are not accusations of fault or wrongdoing by the states or any other individual or entity, and the department has not reached any conclusions about these matters.
+
+這個數據請求及對戰士之家的調查並不是針對各州或任何其他個人和機構過失或不當行為的指控，（司法）部門尚未對這些問題得出任何結論。
+
+[閱讀司法部原文](https://www.apple.com)
+
+翻譯：【一花一世界】 校對 & 編輯：【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0

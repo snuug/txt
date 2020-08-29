@@ -1,25 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/20 CCP病毒每日疫情直播簡報
-`2020-08-28 11:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/322307/)
+## 8·28全球聯動滅共大遊行喜馬拉雅聯盟加拿大農場擷英
+`2020-08-28 19:33 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322553/)
 
-英文標題 CCP Virus Pandemic Updates Ep 209: Chinese Communist Party attributed the food crisis to food waste
+喜馬拉雅聯盟加拿大農場 文錦
 
-重點內容
+繼2020年7月27日參與首次全球聯合滅共示威後，加拿大農場數百名戰友摩拳擦掌，8月28日再次出征，分別在多倫多、溫哥華中共總領館前進行全球聯動滅共大遊行。
 
-1. 8月20日，四川樂山五通橋永祥化工廠發生氣體洩漏事件，全城居民大逃亡，當日，官方否認有氣體洩漏，轉天又稱有少量氯化氫氣霧散發。大量民眾批評當局隱瞞實情。
-2. 8月20日重慶百年不遇洪災，整個城市泡在水中。一棟樓的房子現在只露了一個房頂出現。重慶近期滴雨未下，長江流域有近5萬座水庫。
-3. 中國即將面臨糧食危機，中共開始警告人民不要浪費糧食；浪費糧食已經被定義為犯罪。生活在中共國沒有人權，沒有法制，沒有言論自由。
-4. （比爾·格茨，8/19）（從蔡霞被開除中共黨籍談起）我想中共黨內有聲音傳遞出，他們開始認識到中共是個黑社會國家政權，這些腐敗的家族盜走了中國人民的財富。很明显过去八年来，习近平残酷地集中权力，造成了党内和中国人民广泛地反对他的统治。中国人民痛恨中共，视中共为腐败政治實體。
-5. (郭文貴先生，8/20）班農先生的事，发生后不到20分鐘，我就得知共產黨的媒體，CCTV，所有的（中共）媒體， 就报道出来了。再過20分鐘，所有的美國媒體才把這個新聞播放出來。中共的媒體能比美國的更早知道。這個行動真的有夠快，比救水还快！
+七芒星藍色大旗再次飄揚，前面是頻頻鳴笛致敬的車流，背後是惶恐不安的中共，中間佇立著有著堅定信仰的勇敢戰友，向加拿大民眾揭露中共邪惡、傳播中共病毒真相、展現了新中國聯邦新中國人的新形象。
 
+中共駐多倫多總領館前滅共大遊行
 
-1. August 20, an explosion occurred at the Yongxiang Chemical Plant in Wutongqiao, Leshan, Sichuan. The gas leaked and the residents of the city fled. On the that day, the government denied that there was a gas leak, but the next day it said that a small amount of chlorinated hydrogen mist was leaked and emitted.  The authorities concealed it.
-2. Chongqing encountered once-in-a-century flooding, and the entire city was soaked in water. Only the roofs of single-story buildings can be seen. Water still gushes up from the underground tunnel below. What is absurd is that it has not rained recently in Chongqing. The fact is that there are 50,000 dams in the Yangtze River basin.
-3. The CCP attributed the food crisis to food waste, saying that food waste was related to criminal activities, and wasting food has been defined as a crime. People living in the Communist China has no human rights, no Rule of law, and no freedom of speech. The fertile fields in 27 provinces have suffered from floods, locust plagues and epidemics.
-4. (Bill Gertz, 8/19) (On Cai Xia’s being expelled from the CCP) I think there are voices in the party which are starting to recognize that this is a mafia state, these families are corrupt, they’re stealing from the Chinese people. Clearly Xi Jinping’s ability over the last eight years to brutally consolidate power has created a widespread opposition to his rule both within the party and of course among the Chinese people who hate the Chinese Communist Party; they view the communist party as just a corrupt political entity.
-5. (Miles Guo, August 20) Mr. Bannon’s incident, less than 20 minutes after I got to know about it, all the CCP media, CCTV, all other  Chinese communist media, all came out.  And another 20 minutes later, all the American media reported it. The CCP media got to know it even earlier than the American did. The CCP’s media coverage was so fast, much faster than their flood relief actions.
+![](https://cdn.discordapp.com/attachments/729183136134725693/748901750429450260/image1.jpg)
 
+![](https://cdn.discordapp.com/attachments/714279213544505447/749040851065372702/1.jpg)
+
+戰友老江慷慨陳詞：
+
+中共篡政以來，中華大地上下幾代、幾十億人被這邪惡政權欺壓、殘殺。從三反五反到文化大革命、三年大饑荒，再到八九六四、法輪功、新疆、香港……無數民眾被暴政殘害乃至奪去生命。總領館的人更清楚，CCP病毒實際是由中共武漢軍事實驗室釋放的生化武器，已致全球至少三千萬人感染、八十多萬人死亡，平民百姓被無差別殘害，人類文明陷入至暗時刻。這都是中共為了掩蓋自己虛弱的經濟、瀕臨崩潰的政權和邪惡超出常人想像的盜國賊集團所做的。總領館的幫兇們，你們能在這場疫情中獨善其身嗎？敢大搖大擺地去餐館吃飯、去超市購物嗎？你們的孩子可以摘掉口罩上學、安心的和別人嬉戲、擁抱嗎？
+
+![](https://cdn.discordapp.com/attachments/714279213544505447/749045733449007114/3.JPG)
+
+爆料革命秉承上天的使命，站在你們面前，向邪惡的中共說不！ ！ ！我們不承認這個非民選、非法的恐怖組織、邪教集團來執掌中國的政權。中國人民不需要你，世界人民不需要你！你們用謊言、暴力愚弄全世界，收買西方政客、干擾他國政治、破壞各國民主！你們可以掩蓋一時，但現在人神共憤，必將天誅地滅！
+
+全世界華人越來越看清中共的本質，邪惡的中共，你聽到人們憤怒的吶喊了吧！共產黨，你們的謊言終將被揭穿，惡行終將被審判！中共不等於中國人，共產黨不等於中國！全世界人民越來越看清是中共企圖把全體中國人牢牢地綁在自己的戰車上，企圖拉十多億百姓一同墮入地獄。
+
+整個人類文明向前時，中共卻在加速開歷史的倒車，現在國內很多地區因為盜國賊無休止的貪婪導致洪水滔天，給國內、東南亞等國造成潛在核洩露的危害。你們企圖用三峽潰壩來掩蓋假經濟數據，強迫我們必須接受你們的欺壓、掠奪和殘害。總領館的人，你們平時那麼多衣冠禽獸的領導，今天怎麼沒有人敢出來講一講？你們的假大空騙，你們自己非常清楚。由於中國人的善良和忍讓，令中共變本加厲。現在虛偽的盜國賊已成為百姓茶餘飯後的笑柄。
+
+爆料革命戰友、新中國聯邦公民和全世界的反共力量會團結在一起，揭露中共的邪惡和陰謀。 Gnews、GTV每天大量報導中共的醜惡行徑，盜國賊家族的累累財富都是因為犧牲了我們的血汗、器官、人權、法制、自由乃至生命！你們吃人民的肉，喝人民的血，為了續命活摘人民的器官！邪惡的中國共產黨，今天我們就站在你們面前，誓要戰鬥到底！永不放棄!
+
+老江還接受了大紀元採訪，表示海外華人一定要聯合起來、和全球正義力量共同作戰。
+
+北京人在北美戰友呼籲：中領館的人不要在窗縫偷窺了，快快投誠，做污點證人還能有一條生路。以前中領館門口還有指揮人員，有污言穢語、用身體衝撞的小粉紅。爆料革命三年頂假民運三十一年，現在小粉紅全無，時而有猥瑣的偷拍特務但不敢正面對質，中共氣數已盡。
+![](https://media.discordapp.net/attachments/714279213544505447/749040855607935046/4.png)
+加國楓葉戰友感言：許多年後孩子們問我，爸爸那時候你在那兒？我會說，我就在這裡！還有許多人為了你們的自由而吶喊！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28195832/%E6%8D%95%E8%8E%B73-4.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28195844/%E6%8D%95%E8%8E%B74-4.jpg)
+中共駐溫哥華總領館前滅共大遊行
+
+文莘戰友對著總領館攝像頭讀了一封感人肺腑的信，說出了對還在中共體制內同胞的話。九千萬中共黨員很多都是為了好工作、好生活才入黨，沒有多少人認同中共理論。新中國聯邦是中國人棄暗投明的正義選擇，在自由、民主、法制的國度能擁有美好生活，未來充滿希望。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28195804/%E6%B8%A93-1-scaled.jpg)
+![](https://cdn.discordapp.com/attachments/714279213544505447/749040864017514496/2.jpg)
+
+![](https://cdn.discordapp.com/attachments/714279213544505447/749040709444567086/1.jpg)
+
+有戰友第二次參加全球聯動滅共大遊行，也是證監會三日抗議後第四天繼續在中共總領館前示威。她感覺此次戰友們克服了恐懼，更有經驗、更自信，精神更飽滿了。雖然早出晚歸，但不覺得辛苦，因為已決心拼盡全力在這代人就把中共滅掉，不再禍害我們的子孫。希望更多的戰友站出來，做那一根根壓垮中共的稻草。
+
+領喊口號的雙魚俠戰友中氣十足，她提到以前在國內不關心政治，怕槍打出頭鳥，現在勇敢地站出來是受到其他戰友的鼓舞，我們在相對安全的國家，可以合法地發聲、喚醒人們的良善。踏出第一步就沒那麼可怕，歡迎更多戰友加入，和正義、世界文明站在一起。
+
+年僅十歲的小戰友隨全家齊出動。他說上帝在保佑著我們，我不害怕。中共殘害香港同胞、釋放病毒危害全人類是無法接受的。
+
+此次全球聯動滅共大遊行除了揭露中共的種種罪行，更希望能夠喚醒更多人心中的良知，面對CCP 的邪惡不再漠視、不再旁觀、不再縱容。選擇發聲、選擇行動、選擇正義良知與傳播真相。滅共，就差你一個！
+
+參考鏈接：
+
+828加農響應全球滅共聯盟直播
+
+[https://gtv.org/web/#/VideoLiveUI?sessionid=5f494d67fb4f61689a4f9f35https://twitter.com/CanadaHimalaya/status/1299412009365184514?s=20https://twitter.com/CanadaHimalaya/status/1299412636162035718?s=20https://twitter.com/CanadaHimalaya/status/1299410319828299776?s=20https://twitter.com/CanadaHimalaya/status/1299415664449540097?s=20](https://gtv.org/web/#/VideoLiveUI?sessionid=5f494d67fb4f61689a4f9f35https://twitter.com/CanadaHimalaya/status/1299412009365184514?s=20https://twitter.com/CanadaHimalaya/status/1299412636162035718?s=20https://twitter.com/CanadaHimalaya/status/1299410319828299776?s=20https://twitter.com/CanadaHimalaya/status/1299415664449540097?s=20)
 
 0

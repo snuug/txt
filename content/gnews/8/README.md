@@ -1,21 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/20 CCP病毒每日疫情直播簡報
-`2020-08-28 21:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/322666/)
+## 四川樂山洪水來襲，14戶遭滅門；中共加快采購美國農產品！ “中共病毒疫情每日熱線”
+`2020-08-28 23:28 GM30` [轉載自GNews](https://gnews.org/zh-hant/322800/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28232446/14_20200821_002-1-1.jpg)
 
-[English\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)
-
-[French\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)
-
-[German\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)
-
-[Japanese\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)
-
-[Korean\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)
-
-[Spanish\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)
+**GTV鏈接：[https://gtv.org//?videoid=5f491dd0fb4f61689a4f3c9d](https://gtv.org//?videoid=5f491dd0fb4f61689a4f3c9d)**
 
 0

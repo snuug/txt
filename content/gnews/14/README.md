@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 骯髒的手段: 因華為之爭中共威脅美國醫療用品供給
-`2020-08-28 19:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/322534/)
+## 【世界多語言圖文】2020/08/20 CCP病毒每日疫情直播簡報
+`2020-08-28 21:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/322666/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/15100410/1597500196200.jpg)圖片來源： [https://paratic.com/](https://paratic.com/huawei-cfo-tutuklandi-ticaret-savasi-kiliclar-cekildi/) 
-根據Washington Examnier 8月26日報導，著名經濟專家和中共事務專家認為由於美國加緊對華為的監管，因而會引致中共報復及限制美國取得所需醫療用品。
+戰友之家圖文摘要及小語種組
 
-清華大學李稻葵教授對美國針對中共旗艦通訊公司華為的監管有所回應， 李教授認為“對於維生素和抗生素，90%以上的原材料都是在中(共)國生產的。美國在短期內肯定無法生產它們。”
+[English\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212329/English_0820_CCP_Virus_Updates.pdf)
 
-此前美國商務部實行新規例，讓華為更難獲取源自美國技術的電子零件產品。美國也警告電信巨頭華為是中共間諜的一個平台。李稻葵教授在此之後所發表的言論，更令國際看清楚中共神秘面紗背後的事實。早前國際社會也對中共在中共病毒大流行前的不當處理感到非常憤怒。
+[French\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212325/French_0820_CCP_Virus_Updates-Copie.pdf)
 
-更甚的是根據南華早報報導，李稻葵表示“擾亂中（共）國經濟，就等於在糧食問題上與中國人民爭吵，那麼中（共）國就可以在藥品供應問題上和美國開戰了，對吧?”李教授表示如果美國真的玩弄遊戲，中共會作出反制措施。李教授所說的話都是用來挑戰美國的。
+[German\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212333/German_0820_CCP_Virus_Updates_.pdf)
 
-報導指出，另一方面中共政治協商委員會常務委員則標榜中共政府是站在中國人民這邊。但是根據美國國會安全分析員分析，中共統一戰線主要目的是管理潛在中（共）國內部的反對派勢力. 而且最重要是任務是對於外國的影響和滲透。
+[Japanese\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212337/Japanese_0820_CCP_Virus_Updates.pdf)
 
-由於中共拒絕批准美國在華工廠所製造的口罩及其他醫療裝備出口，引致西方國家認為全球供應鏈不能再任由中共控制，因而尋求其他對西方各國有利的方案。
+[Korean\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212345/Korean_0819_CCP_Virus_Updates_209.pdf)
 
-美國傳統基金會研究員成斌(Dean Cheng)則認為中共製造謠言，稱冠狀病毒由美國製造是不明智及具有災難性的。再加上折斷對美國的藥品供應，因此美國不但要跟中共脫鉤, 而且更要從中（共）國撤離。
-
-評論:
-
-中共利用14億中國人民作為對外的擋箭牌. 在外國面前總是喬裝成代表中國人民發聲.但內裡總使把老百姓當作奴隸一般. 當這個虛偽的面紗被外國揭穿.中共對疫情爆發的不當,對洪災的管理不治. 中共仍然認為其沒有錯. 不但如此. 更甚的是他會運用骯髒的手. 吸空外國製造的醫療物資. 以致多個國家沒有足夠醫療設備對抗疫情. 另一方面運用大外宣手段傳播冠狀病毒是源自美國. 在世界民主,文明的社會裡, 哪有這種無恥的政府. 對人民, 對世界作出如此的傷害. 只有中共能夠做得到.
-
-[原文鏈接](https://www.washingtonexaminer.com/policy/defense-national-security/play-dirty-chinese-official-threatens-us-medical-supplies-over-huawei-fight)
-
-翻譯：叮噹
-校對：Yamap
+[Spanish\_0820\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28212341/Spanish_0820_CCP_Virus_Updates.pdf)
 
 0
