@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/21～22 CCP病毒每日疫情直播簡報
-`2020-08-28 11:57 GM62` [轉載自GNews](https://gnews.org/zh-hant/322318/)
+## 港陸警方勾聯，十二位參與反修例青年被羈押深圳看守所，願天佑義士
+`2020-08-28 21:58 GM01` [轉載自GNews](https://gnews.org/zh-hant/322724/)
 
-英文標題 CCP Virus Pandemic Updates Ep 210-211: Baimazhai, Sichuan the communications were interrupted during the flood.
+作者：尚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28214739/C7C60DD7-8A77-4C2E-93F7-D017C7B4BBB2.jpeg)
+【被捕送中】12青年颱風關係提前出發 港警獲悉通報中國海警搜捕 黃之鋒：望天佑義人
 
-視頻重點
+新聞來自：蘋果新聞
 
-1. 遼寧省省內首家村級供銷社在瀋陽成立，中共國走在重回文革時代的路上。
-2. 8月19日，四川省平武縣白馬寨在洪水中通信中斷，到現在三天過去了，仍沒有任何消息。
-3. 在多國紛紛表示免費為自己國民接種新冠疫苗時，中共慷慨將疫苗贈送全世界，而另一方面卻告訴中國國內百姓每套疫苗1000人民幣，約120歐元。
-4. 在國安法進入香港後，香港社會正在經歷或面臨巨大的倒退。現在，教育領域也正在被進一步腐蝕。 根據《眾新聞》報導，香港的多本通識教科書，近日遭到香港教育局刪改，其中刪去了“六四”、“公民抗命”、“三權分立”、“香港新聞自由指數排名下跌”、“中國器官買賣問題”等內容。
-5. (郭文貴先生，8/20）今天的班農先生被捕，會開始一個新的爆料革命的高度。共產黨你完了。不信咱走著看。你越這麽幹，我們越有戰友。我相信顫抖的絕對不是美國那些滅共的人士。顫抖的將是你們。美國人還會猶豫滅共嗎？還想不滅共嗎？共產黨能饒過你嗎？共產黨露出自己的兇器，你就會讓世界感受到恐懼。
+中國海警日前在粵港東南方海域截獲一艘涉嫌非法越境的快艇，有消息指船上載有12名因反修例運動被捕的青年，包括被香港警方國安處拘捕的李宇軒。消息人士透露，12人現於深圳鹽田看守所，最少數人的家屬已接獲當局通報，因目前各人遭強制拘留，家屬未知道是否可探望，正尋求是否可聘用內地律師協助。
 
+中共喉舌《文匯報》及《大公報》今日（28日）分別以「國安疑犯乘艇潛台 十餘獨暴一網成擒」，以及「黑暴末路 李宇軒着草被擒」為題在頭版報道，詳細列出案情。《文匯報》指涉事快艇於本月23日晚上由西貢區布袋澳出發，原計劃先到距離香港約300公里的台灣管轄範圍東沙群島，再轉乘大船到台灣屏東。
 
-1. The first village-level Supply and Marketing Cooperative (“supply station“) in Liaoning Province was established in Shenyang. The Communist Party of China is on the way back to the Cultural Revolution era.
-2. On August 19, in Baimazhai village, Pingwu County of Sichuan Province, the communications were interrupted during the flood. Three days have passed and there is still no news found.
-3. Many countries have expressed that they will provide free vaccines of coronavirus to their people. The CCP announced that it will donate the vaccine to the world. However, on the other side, it requests the people in China to pay 1000 RMB (around 120Euro) per vaccine.
-4. After the National Security Law entered Hong Kong, Hong Kong society is experiencing or facing a huge setback. Now, the education field is also being further “corroded”.According to the Hong Kong Citizen News report, many general education textbooks in Hong Kong were recently revised or deleted by the Hong Kong Education Bureau. Among them, a lot of contents like “June 4th”, “civil disobedience”, “separation of powers”, and “Hong Kong Press Freedom Index fell in rankings”, “Chinese organ sales” and others were deleted.
-5. (Miles Guo) Mr. Bannon being arrested today will lift the Whistleblower Movement to a new height. CCP, you are finished! Just wait and see!The more you (CCP) do this, the more allies we will get. I believe it’s not the anti-CCP Americans that will tremble. It is you (the CCP) that will tremble.  Will there still be any Americans hesitant about taking down the CCP or unwilling to take down the CCP? As the CCP has bared its claws, the world will know fear.
+報道指，快艇為免驚動香港水警，在香港水域只以較慢時速20公里行駛，惟行至香港水域果洲群島附近被廣東海警追截，最終被捕。
 
+據本報了解，12人因為颱風提前由布袋澳出發，目的地是台灣高雄，惟出發不久即被捕；消息指香港警方知悉事件，通報內地當局加強搜捕。
+
+原文鏈接：[https://hk.appledaily.com/local/20200828/JC6IT5BJEVHKNK43LRHGDXUE5Q/](https://hk.appledaily.com/local/20200828/JC6IT5BJEVHKNK43LRHGDXUE5Q/)
 
 0

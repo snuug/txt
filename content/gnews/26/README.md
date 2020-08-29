@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜馬拉雅聯盟加拿大農場證監會三日示威圖集
-`2020-08-28 13:21 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/322404/)
+## 文貴說｜系列圖片連載（二）
+`2020-08-28 22:15 GM98` [轉載自GNews](https://gnews.org/zh-hant/322739/)
 
-喜馬拉雅聯盟加拿大農場 文錦
+##  8. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28210449/7DD83646-3075-4496-AEB3-854056A1B674.jpeg)
+香港人是中國人的耶路撒冷，香港是中國的聖地，包括台灣。
 
-校對 小甜蝦
+——郭文貴先生2020年3月28日
 
-2020年8月25、26、27連續三日，喜馬拉雅聯盟加拿大農場在多倫多、卡爾加里及溫哥華證監會前進行抗議示威。勇敢、堅韌的我們熱愛加拿大！熱愛自由！追求公平正義真相！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130110/00.jpg)
-我們堅持自己的合法權利，要求證監會：
+##  9. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28213741/A7F24240-7C04-4E39-8E2A-813C9D3EFEBB.jpeg)
+共產黨正在走向瘋狂，共產黨正在走向死亡。它的每一個行動，它的每一個傲慢和每一個恐懼，導致了它的行為和結果都是對爆料革命巨大的幫助，都將成為未來它受審判的證據。
 
-1.解封無理由凍結的賬戶和資金！
+——郭文貴先生2020年3月28日
 
-2.給我們證據！
+##  10. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28214652/8086E952-ADEF-4282-A96C-F57BC6E634B6.jpeg)
+投資有一個法則，當一方陷入破產或一方陷入到不可抗力的時候，你所有的決策都是錯的，你所有的保障都歸零。
 
-3.停止濫用權力！
+——郭文貴先生2020年3月28日
 
-請欣賞戰友們的英姿：
+##  11. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28214834/34A85143-16D1-492F-B81B-0824282AE439.jpeg)
+珍惜今天已經擁有的，再追求明天想要的。
 
-加拿大最大城市安省多倫多
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130407/%E5%A4%9A%E4%BC%A6%E5%A4%9A3.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130502/%E5%A4%9A%E4%BC%A6%E5%A4%9A2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130519/%E5%A4%9A%E4%BC%A6%E5%A4%9A1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130535/%E5%A4%9A%E4%BC%A6%E5%A4%9A4.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130548/%E5%A4%9A%E4%BC%A6%E5%A4%9A5.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130602/%E5%A4%9A%E4%BC%A6%E5%A4%9A6.png)
-加拿大阿省卡爾加里
+——郭文貴先生2019年12月7日
 
-戰友們在物資不充足、活動人數較少的情況下，三天來堅持到底。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130613/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130622/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C2-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130634/%E5%8D%A1%E5%B0%94%E5%8A%A0%E9%87%8C1-scaled.jpg)
-加拿大卑詩省溫哥華
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130702/%E6%B8%A9%E5%93%A5%E5%8D%8E1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130711/%E6%B8%A9%E5%93%A5%E5%8D%8E2.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28130727/%E6%B8%A9%E5%93%A5%E5%8D%8E3.jpg)
-相關新聞： 
- Peaceful Demonstration against The Abuse of Power by The Securities Commissions in Canada 
- https://gnews.org/318993/ 
-喜馬拉雅聯盟加拿大證監會示威如火如荼進行中
- https://gnews.org/zh-hans/316568/ 
-郭文貴先生鼓勵喜馬拉雅聯盟加拿大農場戰友向證監會抗爭
- https://gnews.org/zh-hans/316801/ 
-近觀加拿大農場的金融“中途島戰役” 
- https://gnews.org/zh-hans/318790/
+##  12. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28215259/86F77668-9FA4-4028-97C6-03580D09659B.jpeg)
+戰友們，人無信則不立，這是我們中國人老祖宗傳承下來最重要的品質！
+
+——郭文貴先生2019年12月7日
+
+##  13. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28215505/ECB24DF0-F9B3-4C4B-A934-7EE50B992AF9.jpeg)
+社交媒體是個現代社會最偉大的一個力量。它的力量超過核武器、超過冠狀病毒。但是你不去好好用它，活著你不好好使用它，你就會被擊倒，你就會被利用。
+
+——郭文貴先生2019年12月7日
+
+##  14. 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28215928/5F7442BE-F161-4689-8A4A-39FBC544319D.jpeg)
+所有中南坑和共產黨員，你們要記住：此時此刻是你們最後一次站在人民面前，在共產黨的獨裁和魔鬼面前，是選擇與魔鬼為伍，與人民為敵，還是以人民為核心，真正的做一個利天下蒼生的選擇。
+
+——郭文貴先生2020年1月27日
 
 0

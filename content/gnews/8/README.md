@@ -1,11 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 四川樂山洪水來襲，14戶遭滅門；中共加快采購美國農產品！ “中共病毒疫情每日熱線”
-`2020-08-28 23:28 GM30` [轉載自GNews](https://gnews.org/zh-hant/322800/)
+## 蔡英文政府請不要再懦弱，否則台灣可能就是下一個香港
+`2020-08-29 06:18 GM01` [轉載自GNews](https://gnews.org/zh-hant/323154/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/28232446/14_20200821_002-1-1.jpg)
+作者：尚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29055102/08D63DC0-DFD3-4C93-9662-31047A998B0B.jpeg)
+兩批港青投奔怒海潛台一批禁錮深圳一批獲台海巡送高雄
 
-**GTV鏈接：[https://gtv.org//?videoid=5f491dd0fb4f61689a4f3c9d](https://gtv.org//?videoid=5f491dd0fb4f61689a4f3c9d)**
+新聞來自：法廣
+
+近日有兩批香港青年疑逃避當局國安法的指控分頭坐船出海潛往台灣，但命運各異，一批被廣東海警截獲，根據蘋果日報引述消息指，12名被捕者目前禁錮在深圳鹽田看守所；另一批則在東沙群島漂流，被台灣海巡署查獲。根據中國時報報道，船上有5人目前在高雄，並結束隔離。報道稱，事件讓蔡英文政府感到棘手，因此下令禁止消息外傳。
+
+原文鏈接：[https://www.rfi.fr/tw/港澳台/20200829-兩批港青投奔怒海潛台一批禁錮深圳一批獲台海巡送高雄](https://www.rfi.fr/tw/港澳台/20200829-兩批港青投奔怒海潛台一批禁錮深圳一批獲台海巡送高雄)
 
 0
