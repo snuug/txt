@@ -1,18 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒特點：免疫病毒時間短有二次感染風險（西班牙語Spanish+英語English）
-`2020-08-30 02:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/324359/)
+## 【港版國安法】路透社委託民調：60%人反立法 70%撐獨立查警暴
+`2020-08-30 05:27 GM01` [轉載自GNews](https://gnews.org/zh-hant/324523/)
 
-翻譯：謎擬Q 校對：帅虎 視頻：小羽
+作者：尚
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30051417/623D23F7-8740-4B45-9506-F4E6461446A1.jpeg)
+【港版國安法】路透社委託民調：60%人反立法 70%撐獨立查警暴
 
-西班牙語標題 La corta duración de la presencia de anticuerpos supone un riesgo de infección secundaria
+新聞來自：蘋果新聞
 
-視頻簡介
-閆博士揭露：CCP病毒免疫時間短有二次感染風險,若不搞清楚病毒就無法研製出有效的疫苗。
+香港民意研究所在路透社委託下，首度於7月「港版國安法」生效後進行民調，發現近6成受訪者反對《國安法》，較6月時的57%更高。該民調又發現，支持反修例示威活動訴求的受訪者有上升，其中支持政府成立獨立調查委員會查警暴的受訪者，較上次調查多近4%，達70%，強烈反對的更達51%，較6月坊間還未知悉國安法具體內容時多2%。對於上述民意改變，路透社指特首辦、港澳辦和香港警方拒作回應。
 
-La corta duración de la presencia de anticuerpos supone un riesgo de infección secundaria, y sin comprender el virus no se puede desarrollar una vacuna eficaz
+該調查又發現，在「港版國安法」實施後，57%受訪者表明會在稍後的立法會選舉投票支持民主派，較6月時增加4%，支持建制派的則有25%，較6月時跌4%，未決定或不會投票的則有19%，較6月時微跌1%。至於支持和反對香港獨立的受訪者比例，則分別為19%和59%，與6月時的21%和60%相若。
 
-
+原文鏈接：[https://hk.appledaily.com/local/20200830/QG5SVTWBYVCF3MIYHS7YFLQUOI/](https://hk.appledaily.com/local/20200830/QG5SVTWBYVCF3MIYHS7YFLQUOI/)
 
 0

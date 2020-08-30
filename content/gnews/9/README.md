@@ -1,39 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共對公職人員做病毒疫苗試驗
-`2020-08-29 21:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/324031/)
+## 【中英文視頻版】2020/08/23～24 CCP病毒每日疫情直播簡報
+`2020-08-30 01:33 GM62` [轉載自GNews](https://gnews.org/zh-hant/324296/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29213840/Picture16-1.png)圖片來源：mnd.org.nz 
-據BBC本月27報導，中共國一家知名私企集團老總在8月初告訴手下員工說，中共病毒疫苗有望在11月份上市。該企業設有醫療保健部門，所以該老闆把疫苗看作救命稻草，希望依靠擴大疫苗銷售，使企業擺脫困境，實現經濟復甦。幾個星期後中共國迫於輿論公開發布了疫苗研究的進展情況。
+英文標題 CCP Virus Pandemic Updates Ep 212-213:   Miles Guo: If the Three Gorges Dam will broken, 40 million, even 100 million people would be killed in such disaster and dangers
 
-中共病毒最早出現在中共國內，之後迅速在全世界蔓延開來，一發不可收拾。現在，中共國正不遺餘力地向全球各地加緊滲透，以圖在疫苗研製和銷售上贏得先機。上週，中共國一家國營媒體發布了一張研製中的疫苗照片：在一個試驗室裡，一個女子舉著一個帶有商標的小盒子，面帶微笑。中國醫藥集團表示希望能在12月份開始銷售該疫苗，並且透露其銷售價格大約是140美元（相當於106英鎊）。
+視頻簡介
 
-**公開的和秘密的試驗**
+1. 近年來，中國社會矛盾激化，民怨四起一觸即發。因徵地強拆，污染問題，廣東、河北、江西、浙江等省發生多起群體性抗暴事件。在中共國，私有財產被執法名義隨意剝奪。
+2. 中共禁止內蒙古等6省用少數民族語言授課，中共的該行為，被指是實行民族文化滅絕。近期，內蒙古微信群有人熱議有關停止蒙古語授課，被公安封群抓人。
+3. 百年一遇特大洪水，水淹大佛腳。四川地區受到大面積的洪澇災害，放眼望去一片汪洋，百姓生活毀於一旦。唯不見自稱人民的政府施以援手。。
+4. (郭文貴, 8/22)如果三峽大壩垮塌，可能造成四千萬人甚至一億人在禍端和危險中喪生。我100％確信，明年整個中國都是大饑荒。毫無疑問。
+5. (郭文貴先生，8/22）中共建了三峽大壩。是為了電站的利益。但是他們正在制造一顆巨大的炸彈，並將其投放給世界，投放給中國。另外不要忘記，在該地區有三個核電站，這是他們給世界帶來的最大危險。不僅中國人遭遇饑荒，全世界可能會因為核武器而遇到麻煩。
 
-中共國的如意算盤可謂昭然若揭。眾所周知，全球正在研製並處於臨床三期群體安全測試階段的6種疫苗中，有3種是中共疫苗。具有諷刺意味的是，中共國對外宣稱已經成功遏制病毒擴散，結果反而沒有理由在其境內進行大規模疫苗試驗。
 
-香港大學公共衛生學院教授本·考林（Ben Cowling）透露，所有疫苗生產商都在想方設法在那些中共病毒高危肆虐的國家和地區開展臨床三期的大規模安全疫苗測試。他對所有研製中的疫苗的功效持樂觀態度。可是中共在這方面的所作所為非常越界。中共衛生部的一位高級官員透露說，中共國上個月開始秘密的在公職人員身上做疫苗人體試驗。中共衛健委官員鄭忠偉（Zheng Zhongwei）接受中央電視台採訪時表示，在緊急狀態下可以授權給海關人員和其他公共領域職工使用還在研製階段的未經審核通過的疫苗。
+1. In recent years, social conflicts in Communist China have intensified, and public grievances are on the verge of erupting. Due to land acquisition, demolition and pollution problems, a number of mass riot incidents have occurred in Guangdong, Hebei, Jiangxi, Zhejiang and other provinces.  Private properties were seized arbitrarily by the law enforcement in the Communist China.
+2. The CCP has banned the teaching of Mongolian language in six provinces, including Inner Mongolia, which has been accused of practicing ethnic and cultural extermination. Such topic had been on fire among WeChat users in Inner Mongolia, but the CCP police has closed these chatting groups and put related people behind bars.
+3. Floods immerced the foot of the Leshan Giant Buddha (71m high). The Sichuan region has been devastated by floods and rainstorms which turned streets of Leshan City into sea, and devastated the lives of the people. The CCP government, which claims to represent the Chinese people, has failed to rescue them.
+4. (Miles Guo, 8/22) If the Three Gorges Dam will broken, 40 million, even 100 million people would be killed in such disaster and dangers. I am 100% sure there will be a great famine throughout China next year. No doubt about it…….
+5. （Miles Guo，8/22) The CCP built the Three Gorges Dam for the benefit of power stations. But they are making a huge bomb and delivering it to the world, to China. Also, please keep in mind that there are three nuclear stations in that area. It is the greatest danger they are bringing to the world. Not only Chinese will suffer from great famine, the whole world might be in troubles due to “nuclear weapons”.
 
-成為第一併不重要，能大量供應才是關鍵。考林教授表示，“我估計到12月份會有幾種疫苗上市，但不確定是否能保證大量供應。” 他認為到2021年夏天才可能達到全世界人口全員注射免疫疫苗。
 
-中共國承認其在阿聯酋，秘魯和阿根廷等國的數千人身上做公開的臨床三期疫苗安全測試。這是政府與製藥公司之間一系列有據可查的全球合作。
 
-然而，還存在大量沒有公開的秘密疫苗試驗。例如最近巴布亞新幾內亞政府就拒絕48個中共國礦工入境。他們的雇主，一家在太平洋島嶼諸國經營採礦的中共國國有公司出具證明，說這些礦工8月份早些時候曾經註射過試驗疫苗。但是，這種疫苗並非臨床三期的大規模安全測試疫苗，而是所謂緊急注射試驗疫苗。因此巴布亞新幾內亞政府擔心中共沒有公開全部內情，一些礦工身上仍然可能攜帶活性中共病毒。
-
-**疫苗外交欺騙世人**
-
-中共國在疫苗使用上的外交態度耐人尋味。一方面通過其政府報告的英文版吹噓抗疫成績，並宣稱一旦疫苗研製成功將與世界分享；另一方面則向非洲和鄰近的東南亞國家暗示這些地區將首先從免疫疫苗中受益。
-
-一位歐洲高級外交官指出，他們見識過中共國在塞爾維亞和意大利實行“口罩外交”的拙劣表演。這些國家疫情惡化時收到的卻是中共國生產的劣質口罩。現在中共將極有可能使用更為精心策劃的“疫苗外交”手段。正如考林教授所說，“中共國在疫苗研製上投入太多，現在是收貨利潤的時候了。”
-
-評儘管這篇BBC文章的作者意圖表現媒體中立，其揭露中共政府在病毒和疫苗問題上的各種手段的態度已經十分明確。和閆麗夢博士的勇氣和無畏相對照，一些科學家迫於中共壓力，在中共病毒和疫苗問題上保持緘默，甚至為中共的謊言站台。本文中提到的這位港大教授，面對媒體清晰表明其對中共的厭惡態度。
-
-中共在免疫疫苗測試中違背常規，並在自己的公職人員身上冒險試驗，證明這個政府即使對自己的公職人員，也全然沒有愛民之心。破壞規則是這個政府和政黨的常態，其必將自食惡果。
-
-[原文鏈接](https://www.bbc.com/news/world-asia-china-53917315)
-
-翻譯：匿名
-校對：意翎
 
 0
