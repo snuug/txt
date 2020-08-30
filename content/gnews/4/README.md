@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 長江流域和三峽大壩的特大水患（法語French+中文Chinese+英文English）
-`2020-08-30 08:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/324675/)
+## 8月27日文貴連線澳喜: CCP要花大價錢, 要在西方主流媒體,找一堆人來攻擊新中國聯邦
+`2020-08-30 10:30 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/325001/)
 
-法文標題 L’inondation de grande ampleur du fleuve Yangtze et du barrage des Trois Gorges
+8月27日文貴連線澳喜: 我們有G-fashion，我們有G-mall，G-TV，我們有G-news，這個交易市場價值是什麼？就是一個國家的權利；內部戰友說CCP要花大價錢，要在西方主流媒體，特別包括澳大利亞、包括電視台，找一堆人來攻擊你新中國聯邦；一個人的決策決定了你的一切；相信你做的事兒，享受你今天已經得到的，追求你明天再想要的，我是我一再說的話。
 
-文本翻譯：石野鲜生 文本校對：卓别林（文尊）Cnqudebut Fr 視頻製作：小羽 視頻校對：道一
 
-Le fleuve Yangtze touché par une inondation sans précédent, le barrage des Trois Gorges est au bord de l’effondrement. Une grande famine est inéluctable et une éventuelle catastrophe nucléaire menace la Chine et le monde. Mais le PCC dissimule toujours les vérités
+
+By：【秘密翻譯組G-Translators】
 
 0
