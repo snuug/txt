@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 成龍北京豪宅突被查封拍賣 演藝圈地震前兆？
-`2020-08-30 04:32 GM01` [轉載自GNews](https://gnews.org/zh-hant/324473/)
+## 長江流域和三峽大壩的特大水患（法語French+中文Chinese+英文English）
+`2020-08-30 08:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/324675/)
 
-國內新聞作者：文章
+法文標題 L’inondation de grande ampleur du fleuve Yangtze et du barrage des Trois Gorges
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30043028/38279053.jpg)新聞來自：大紀元時報
+文本翻譯：石野鲜生 文本校對：卓别林（文尊）Cnqudebut Fr 視頻製作：小羽 視頻校對：道一
 
-據大紀元時報綜合陸媒8月28日報道，成龍的兩套北京豪宅被強制查封後，正在司法拍賣。據悉，兩套住宅均位於北京市東城區東直門內大街9號院（NAGA上院），每套房產面積為608平方米，房產評估價1.03億元，起拍價為7,190萬元。
-
-據成龍公司的說法，該房產開發商是禦嘉置地有限公司。在13年前將房產交付給成龍後，壹直未依約辦理產權變更登記手續。後來因開發商債務糾紛被債主提告，房產被強制查封。而在法院執行拍賣的過程中，成龍旗下的兩套房屋及車位正處於查封範圍內。
-
-原文鏈接：https://hk.epochtimes.com/news/2020-08-29/56842466
+Le fleuve Yangtze touché par une inondation sans précédent, le barrage des Trois Gorges est au bord de l’effondrement. Une grande famine est inéluctable et une éventuelle catastrophe nucléaire menace la Chine et le monde. Mais le PCC dissimule toujours les vérités
 
 0
