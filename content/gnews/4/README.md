@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生8.29：80%+可能中共在瑞士存款都會過渡給新中國聯邦
-`2020-08-29 21:13 Diago` [轉載自GNews](https://gnews.org/zh-hant/324001/)
+## 【中英文視頻版】2020/08/23～24 CCP病毒每日疫情直播簡報
+`2020-08-30 01:33 GM62` [轉載自GNews](https://gnews.org/zh-hant/324296/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/29211207/%E5%B0%81%E9%9D%A2-103.jpg)
-作者：Diago
+英文標題 CCP Virus Pandemic Updates Ep 212-213:   Miles Guo: If the Three Gorges Dam will broken, 40 million, even 100 million people would be killed in such disaster and dangers
 
-郭文貴先生在2020年8月29日與慕尼克戰友聯線時，提到：
+視頻簡介
 
-【戰友提問：我有一個問題，尊敬的郭先生，請允許我問你一個問題，由我們歐洲戰友團的戰友們提出來的，可以嗎？
+1. 近年來，中國社會矛盾激化，民怨四起一觸即發。因徵地強拆，污染問題，廣東、河北、江西、浙江等省發生多起群體性抗暴事件。在中共國，私有財產被執法名義隨意剝奪。
+2. 中共禁止內蒙古等6省用少數民族語言授課，中共的該行為，被指是實行民族文化滅絕。近期，內蒙古微信群有人熱議有關停止蒙古語授課，被公安封群抓人。
+3. 百年一遇特大洪水，水淹大佛腳。四川地區受到大面積的洪澇災害，放眼望去一片汪洋，百姓生活毀於一旦。唯不見自稱人民的政府施以援手。。
+4. (郭文貴, 8/22)如果三峽大壩垮塌，可能造成四千萬人甚至一億人在禍端和危險中喪生。我100％確信，明年整個中國都是大饑荒。毫無疑問。
+5. (郭文貴先生，8/22）中共建了三峽大壩。是為了電站的利益。但是他們正在制造一顆巨大的炸彈，並將其投放給世界，投放給中國。另外不要忘記，在該地區有三個核電站，這是他們給世界帶來的最大危險。不僅中國人遭遇饑荒，全世界可能會因為核武器而遇到麻煩。
 
-郭文貴先生：我等著呢！說吧。
 
-戰友：我們的問題是：瑞士十一月公投會涉及瑞士的企業和侵犯人權的國家和個人的關係，存在瑞士銀行的盜國賊的他們的財產未來會怎麼處理呢？請您回答。
+1. In recent years, social conflicts in Communist China have intensified, and public grievances are on the verge of erupting. Due to land acquisition, demolition and pollution problems, a number of mass riot incidents have occurred in Guangdong, Hebei, Jiangxi, Zhejiang and other provinces.  Private properties were seized arbitrarily by the law enforcement in the Communist China.
+2. The CCP has banned the teaching of Mongolian language in six provinces, including Inner Mongolia, which has been accused of practicing ethnic and cultural extermination. Such topic had been on fire among WeChat users in Inner Mongolia, but the CCP police has closed these chatting groups and put related people behind bars.
+3. Floods immerced the foot of the Leshan Giant Buddha (71m high). The Sichuan region has been devastated by floods and rainstorms which turned streets of Leshan City into sea, and devastated the lives of the people. The CCP government, which claims to represent the Chinese people, has failed to rescue them.
+4. (Miles Guo, 8/22) If the Three Gorges Dam will broken, 40 million, even 100 million people would be killed in such disaster and dangers. I am 100% sure there will be a great famine throughout China next year. No doubt about it…….
+5. （Miles Guo，8/22) The CCP built the Three Gorges Dam for the benefit of power stations. But they are making a huge bomb and delivering it to the world, to China. Also, please keep in mind that there are three nuclear stations in that area. It is the greatest danger they are bringing to the world. Not only Chinese will suffer from great famine, the whole world might be in troubles due to “nuclear weapons”.
 
-郭文貴先生：這個問題非常好，就在前天我跟他們有一個很長的談話啊，親愛的兄弟姐妹們，這個問題非常非常好，說明我們戰友關注的都是很重點的，我會告訴你百分之八十以上的可能，所有在瑞士存的錢都會過渡給我們新中國聯邦，來作為未來的新中國的代持。（此處有掌聲和歡呼！以下為對郭先生話的重複——）
 
-**百分之八十以上的可能，所有在瑞士存的錢都會過渡給我們新中國聯邦，來作為未來的新中國的代持。**
 
-**百分之八十以上的可能，所有在瑞士存的錢都會過渡給我們新中國聯邦，來作為未來的新中國的代持。**
-
-**百分之八十以上的可能，所有在瑞士存的錢都會過渡給我們新中國聯邦，來作為未來的新中國的代持。** 我告訴你們，網路上傳說的二十萬都不是真的，我告訴你大家超過這個數，我給你們舉個最簡單的例子，在德國、瑞士、義大利、法國、比利時，所有的這些分行裡邊大概有六萬個帳號在過去是共產黨背後控制的，而且這些帳號是從什麼時候開始的？這些官員告訴我說，來大錢最多的時候是1989年4月份、5月份到7月份，你能想想嗎？我聽的我真的都懵啦，因為那個時間是我上街跟你們今天一樣，我被抓起來後來我又被釋放出來重做了郭文貴的日子，就共產黨當年89的時候，它已經覺著自己完蛋了，它大量的財富移到了這些國家，而且分散在各個的分支機搆，現在從來沒動過，從來沒動過；第二次錢是哪來的？大家知道嗎？你們根本不敢想像，是在申請奧運會之前，1999年到2001年奧運會之前是另外一個高峰，往外挪錢的時候。大家你們知道嗎？如果沒有奧運會共產黨知道全世界會把共產黨給幹倒，沒有WTO，共產黨就完蛋了，它知道。結果它成功了，但是那個時候大量的錢出來了；第三個時間是什麼時候？2008年經濟危機，共產黨大量的錢轉到外面，但是它自己卻印了大量的鈔票，當這些銀行告訴我說，郭先生，如何依法地讓新中國聯邦代表中國人接受這些錢要通過國際上的法律組織，現在我們得得到超過二百二十三個國家、超過一百個國家來支援我們，我現在絕對有信心超過一百五十個國家支持我們，所以說戰友們，你們今天的上街抗議，未來我們就有權利來代表我們新中國人、新中國聯邦把從瑞士的這些錢拿回來，但是我告訴你們，瑞士的法律不會象你想像的那麼直接、那麼粗暴，不會的，它會分成三步走：第一個，這次基本上概括一個範圍，要把這些錢說瑞士依法交還給有關符合中國利益的和國際法的組織；第二步，是內部再立細法，然後在國際上合作特別是美國，然後把我們列為一個合法的、代持有這些財富、分配這些財富的組織；第三步的時候，就是通過國際法律系統把錢還給中國人民。所以說大家記住你們腳底下就在德國慕尼克，就在德國這個地方，德意志銀行是在共產黨的歷史當中充當了打手、洗錢、殺人越禍的關鍵銀行。最後德國銀行一定會被懲罰，而且一定會將我們中國人的血汗錢還給中國人民，一定會拯救億萬個楊改蘭！兄弟姐妹們，謝謝你們！】
 
 0
