@@ -1,107 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共官媒扭曲白俄羅斯抗議
-`2020-08-30 13:38 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/325312/)
+## CCP降低生鮮乳食品安全標準 蒙牛伊利遭奶圈聯盟除
+`2020-08-30 13:49 GM77` [轉載自GNews](https://gnews.org/zh-hant/325319/)
 
-*新聞來源：《HKFP》；作者：DAVID BANDURSKI；發佈時間：2020年8月23日上午九點*
+編撰：文小明
 
-*翻譯/簡評：linda琳達/linda琳達和海闊天空；校對：leftgun；審核：InAHurry；Page：草根文人*
+中共國前些年的三聚氰胺事件讓多少父母心碎，又牽動了多少百姓關懷的目光。
 
-**簡評：**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30134319/%E5%A5%B61-1.png)
 
-CCTV13作為一個國家級大型電視台公然欺騙廣大的中國觀眾，把白俄羅斯反對獨裁的盧卡申科說成白俄羅斯首都舉行大規模群眾集會支持政府。中共一貫以欺騙的手段給國內民眾洗腦，甚至到了荒唐無恥的程度。在互聯網高度發達的今天，CCTV13公然藐視人民的信息收集能力，赤裸裸地顛倒黑白、指鹿為馬、混淆視聽。此次白俄羅斯事件又一次赤裸裸地現實了中共的以假治國、醜陋無比。獨裁者最害怕民眾民主意識的覺醒，所以中共不惜冒天下之大不韙，粉飾白俄羅斯的獨裁統治。但歷史潮流浩浩蕩盪，獨裁終將被埋葬，人民必定獲得權力。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30134419/%E5%A5%B62-2.png)
 
-在中共治下，中國的歷史被篡改，國際事件被扭曲報導。中國人被摀住耳朵、被蒙上眼睛、被欺騙七十年，被與世隔絕，與現代文明漸行漸遠。唯有徹底剷除中共，才能給中國人一個真實的世界，才能把辨別力和判斷能力真正還給中華同胞。
+這些年，奶源還是那些，奶牛也不變，飼料也不變，養殖技術更不變，所以蛋白質含量很難提高，換成妳該怎麽辦？
 
-##  **因人群而異的解讀：中國官方媒體對白俄羅斯抗議活動的單方面報導** 
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30132643/%E5%A5%B63-1.png)
 
-在本週早些時候，我觀察了中共國的黨派媒體在報導正在進行的白俄羅斯抗議活動時如何表現出明顯的立場，顯然與四面楚歌的亞歷山大·盧卡申科站在一起。儘管在周末舉行的一次小型集會來支持白俄羅斯領導人，但規模龐大要求罷免他的示威活動使它相形見拙,，但官方新華社週一的標題是：“白俄羅斯首都舉行大規模群眾集會支持政府“
+中共的那些制定遊戲規則乳制品行業都是天才，他們從“根本”上把問題解決了：既然牛奶質量不能提高，那我就降低行業標準。 他們在2010年6月修改了已經執行了25年的生乳國家標準修訂：
 
-鑑於這種以玩世不恭的態度把被扭曲事件的廣泛傳播，再加上對國際報導的堅決審查，人們可能會認為中共國讀者別無選擇，只能吞下官方言論。也許有一些來自“財新傳媒”之類的故事，該報紙週一（在其付費專欄後面）報導說，反對派示威“超過了十萬人”，親盧卡申科的敘述似乎佔據了主導地位。
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/fc8e3294-c74f-4ba8-acf2-be130e5998ac.jpg?asset_id=ea85d456-6a78-4a4e-9c04-6ff7eb329c24&amp;img_etag=%22bbdedd9746d81b53d64346c4c2f6b2ff%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/fc8e3294-c74f-4ba8-acf2-be130e5998ac.jpg?asset_id=ea85d456-6a78-4a4e-9c04-6ff7eb329c24&amp;img_etag=%22bbdedd9746d81b53d64346c4c2f6b2ff%22&amp;size=1024)盧卡申科總統。圖片：克里姆林宮。 
-但是，我們不能忘記，儘管層層控制，但中國的信息格局仍然複雜，對於那些善於觀察的人來說，可以發現不和諧行為和創造性抵抗（從隱晦到大膽）。今天我們有一個令人高興的例子，微信公眾號“老魚吹牛皮”發表的一篇文章，該文章更批判地看待白俄羅斯示威活動的官方新聞報導。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30132721/%E5%A5%B64-1.png)
 
-這篇文章並沒有直接批評中央電視臺本周明顯的誤導性建議，即“明斯克舉行大規模群眾集會支持政府。” 但是，它確實給了讀者一個心領神會的眼神，令人信服的攝影證據顯示了，週末親盧卡申科的集會與反對派示威遊行相比相形見絀。
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/94e95292-6e5d-48ff-847f-11d76425ec9f.jpg?asset_id=da98ecc2-495d-4353-9187-cb6298e9b400&amp;img_etag=%2227439dc9cbb5f333ce5ef69fa11c798b%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/94e95292-6e5d-48ff-847f-11d76425ec9f.jpg?asset_id=da98ecc2-495d-4353-9187-cb6298e9b400&amp;img_etag=%2227439dc9cbb5f333ce5ef69fa11c798b%22&amp;size=1024)維基共享
-談到由中共國有的上海傳媒集團運營的上海東方電視台，文章更加直接的指出，該網絡甚至把明斯克反對派示威遊行的鏡頭錯誤的當成親政府的示威者。
+對比1986年的老國標，這次修訂把乳蛋白含量的標準從2.95%降低到了2.8%：
 
-最近幾天，白俄羅斯公民上街抗議，因為他們對最近的選舉結果不滿意，並懷疑盧卡申科偽造了選票。同時，盧卡申科這幾天一直很忙，向他的老朋友普京尋求幫助，然後叫自己的支持者走上街頭。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30132802/%E5%A5%B65-1.png)
 
-但是，隨著大量人群湧向白俄羅斯首都明斯克的主要廣場，反對盧卡申科，與支持領導人的稀疏團體形成對比，尷尬局面出現了。尷尬的畫面看起來基本上是這樣的：
+而同樣的標準，美國標準是3.1%，歐盟標準是3.3%：
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/420aa654-1830-4e78-ab08-1a7c128c5175.png?asset_id=00b8a909-c719-493f-b058-1708529e187d&amp;img_etag=%22c6cc84506650533e9c5ecdb64c0ee0a9%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/420aa654-1830-4e78-ab08-1a7c128c5175.png?asset_id=00b8a909-c719-493f-b058-1708529e187d&amp;img_etag=%22c6cc84506650533e9c5ecdb64c0ee0a9%22&amp;size=1024)親盧卡申科集會的圖像，中國作家用箭頭標記，反對派示威者數量遠遠超過他們。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30132909/%E5%A5%B66-1.png)
 
-有些人可能想問我如何從圖像中分辨出哪些人反對盧卡申科，哪些人支持他？不用擔心，我們會及時回到這一點。
+同時中共2010年版的新國標還把菌落總數的標準從每毫升50萬個提成到了每毫升200萬個。但是這個標準在美國是30萬，歐盟是10萬：
 
-儘管白俄羅斯國家離我們身處的中國很遙遠，但我們國家（中共國）的媒體當然必須報導這樣一個重大新聞。所以昨天，我們從許多電視台得到了這個消息
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30132950/%E5%A5%B67-1.png)
 
-首先，來自中央電視台：
+經過25年的發展，中共的牛奶質量不僅沒有向歐美看齊，反而越來越後退，全世界恐怕都找不到這樣低的標準了。 上海奶業行業協會副秘書長顧佳升說**“****如果說三聚氰胺事件還能洗白是壹次意外，這次國標修訂就是整個乳制品行業洗不掉的汙點。****”**
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b09dcff7-175b-4889-a6aa-6b349a2a0e05.png?asset_id=a344a563-ab31-40d2-8231-6b2c03f45104&amp;img_etag=%22269268fc02371cd7c7e8a17d2ff8df80%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b09dcff7-175b-4889-a6aa-6b349a2a0e05.png?asset_id=a344a563-ab31-40d2-8231-6b2c03f45104&amp;img_etag=%22269268fc02371cd7c7e8a17d2ff8df80%22&amp;size=1024)央視13台播出的電視報導說：“明斯克舉行大規模群眾集會支持政府。”
+2008年的三聚氰胺事件讓很多消費者不信任國產牛奶了，2010年修改生乳國家標準讓從業人員也不願意相信自己的行業。 這次國標修訂以後，中共現代畜牧產品加工科技事業的開拓者和奠基人，享有中國“乳業泰鬥”之譽的駱承庠表示，中國奶業完了。
 
-嗯無疑，許多人看到了這一點。實際上，央視在這裡所說的話有一些真相。實際上，有街頭遊行示威支持盧卡申科，儘管使用“街頭示威”表達對領導人支持的想法有些奇怪。作者忽略了要注意的是，中央電視台只是提及支持政府的示威遊行，實際上在誤導觀眾，這可能是不明顯的跨過內容審查的界限的一種手段。從技術上講，示威遊行的確存在並非不真實，但在中共國，反政府集會及其龐大的規模是一個更為敏感的問題。
+唯壹值得慶幸的是，就算國家標準被修訂了，仍然有壹些頭鐵的公司堅持著職業操守， 比如中國農墾乳業聯盟。 2019年11月25日，新華網發布了生鮮乳中國農墾乳業聯盟團體標準發布的公告。
 
-接下來，我們從上海的東方衛視獲得這張照片：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30133129/%E5%86%9C%E5%9E%A6%E4%B9%B3%E4%B8%9A169-4.png)
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/6782c4bc-2959-4a77-86ad-3b40d0bb9e2b.png?asset_id=a923f6b7-e1ac-417f-99d9-7ee9fecea1ce&amp;img_etag=%22d566a648bf76d2692f0ce940291bad88%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/6782c4bc-2959-4a77-86ad-3b40d0bb9e2b.png?asset_id=a923f6b7-e1ac-417f-99d9-7ee9fecea1ce&amp;img_etag=%22d566a648bf76d2692f0ce940291bad88%22&amp;size=1024)上海東方電視台的報導是：“白俄羅斯：首都約7萬人集會，支持政府維護國家安寧。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30133216/%E5%A5%B69.png)
 
-現在，這很有趣。頻道上的場景包括幾組示威者的特寫鏡頭，但是任何懂一點白俄羅斯語的人都可以輕鬆地發現問題。
+中國農墾乳業聯盟公布了自己的生鮮乳標準，比86版的國際乳蛋白含量更高，已經接近美國和歐盟的標準。 農墾乳業聯盟早在2015年就成立了，由包括以下企業共同組建：
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b8d97edb-c2f5-4dce-a8ac-0ed3216e427f.png?asset_id=5452752f-dc63-41a6-abf1-5330d31d0cb1&amp;img_etag=%22061828df257ce0a8b60216fd282addc0%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b8d97edb-c2f5-4dce-a8ac-0ed3216e427f.png?asset_id=5452752f-dc63-41a6-abf1-5330d31d0cb1&amp;img_etag=%22061828df257ce0a8b60216fd282addc0%22&amp;size=1024)在上海東方衛視上親盧卡申科的示威者畫面上一個標語寫著：“兇手不能當總統。” 在後面，由作者標記，是另一個標語，上面寫著：“下台！”
+**中國農墾乳業聯盟成員單位**
 
-這些標語不是對盧卡申科皇帝的批評嗎？他們稱他為“兇手”。他們呼籲他下台。毛澤東曾經說過，在這個世界上，敬業精神值得恐懼。我有一個好朋友通過翻譯軟件檢查了這些口號。
+1. 中國農業科學院農業信息研究所《中國乳業》雜誌社（秘書處）
 
-我們可以感謝互聯網的力量：
+2. 北京首農畜牧發展有限公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/0d562106-e563-4bd5-a771-1c5c1203b4ef.png?asset_id=1fc1e279-5d10-4288-a287-ecb39d2d1e3c&amp;img_etag=%2256cc5797fbbd125f4ad84b302e1f386e%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/0d562106-e563-4bd5-a771-1c5c1203b4ef.png?asset_id=1fc1e279-5d10-4288-a287-ecb39d2d1e3c&amp;img_etag=%2256cc5797fbbd125f4ad84b302e1f386e%22&amp;size=1024)
+3. 北京三元食品股份有限公司
 
-顯然，這是對盧卡申科的嚴厲批評。
+4. 天津嘉立荷牧業集團有限公司
 
-因此，東方衛視拍攝了反對派的鏡頭，聲稱他們是支持盧卡申科的人群。我可以想像，這裡的編輯是一位國際新聞專家，並非沒有外語知識，所以他肯定是在欺騙那些不懂白俄羅斯語的人。
+5. 黑龍江省完達山乳業股份有限公司
 
-實際上，有一種更簡單的方法可以辨認哪些白俄羅斯示威者是反對盧卡申科，哪些是支持盧卡申科。那就是看他們揮舞的旗幟。
+6. 內蒙古海拉爾農墾集團有限公司
 
-例如，那些支持盧卡申科的人揮舞這種旗幟：
+7. 上海光明乳業股份有限公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/f83f2f87-44a9-4e39-a2b2-5f08a5784c9f.png?asset_id=811f4cdd-06a8-475d-b7d3-cd7abe8ef9e7&amp;img_etag=%220df8eca8e48feb41508d148502bb5511%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/f83f2f87-44a9-4e39-a2b2-5f08a5784c9f.png?asset_id=811f4cdd-06a8-475d-b7d3-cd7abe8ef9e7&amp;img_etag=%220df8eca8e48feb41508d148502bb5511%22&amp;size=1024)
+8. 廣東燕塘乳業股份有限公司
 
-這是白俄羅斯的國旗，帶有經典圖案和紅色和綠色的條帶。國旗最初的設計目的是表明白俄羅斯人是游牧的斯基泰人的後裔，後來又遷移到東歐平原。 （讀者可以在這裡找到有關白俄羅斯國旗的更多信息。）
+9. 中墾乳業股份有限公司
 
-因此，CCTV上顯示的畫面也是正確的：
+10. 寧夏農墾賀蘭山奶業有限公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b63a14e3-ffb2-4700-9838-67fee5312182.png?asset_id=7115f023-b27c-4b51-a4ba-f7bb7a2ed1a9&amp;img_etag=%22cfd214e1abd8d1dd5d5dc01fda54dd59%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/b63a14e3-ffb2-4700-9838-67fee5312182.png?asset_id=7115f023-b27c-4b51-a4ba-f7bb7a2ed1a9&amp;img_etag=%22cfd214e1abd8d1dd5d5dc01fda54dd59%22&amp;size=1024)作者發布了CCTV13 台報導白俄羅斯的屏幕截圖。屏幕上的滾動字幕寫著：“白俄羅斯首都舉行大規模群眾集會支持政府”
+11. 甘肅農墾天牧乳業有限責任公司
 
-這張來自中央電視台的照片中的人們都舉著紅綠旗，這是白俄羅斯目前的國旗。
+12. 新疆阿克蘇新農乳業有限公司
 
-反對派正在揮舞的旗有兩條白和一條紅，如下所示：
+13. 新疆天潤乳業生物制品股份有限公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/9f5b26fe-9a68-4cf9-ae69-ea8d82defb6a.png?asset_id=a4157abd-7a96-486a-8037-f1a96d8b7c24&amp;img_etag=%228597341312323ad7e3f50acd5ce497e2%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/9f5b26fe-9a68-4cf9-ae69-ea8d82defb6a.png?asset_id=a4157abd-7a96-486a-8037-f1a96d8b7c24&amp;img_etag=%228597341312323ad7e3f50acd5ce497e2%22&amp;size=1024)
+14. 新疆兵團乳業集團有限責任公司
 
-這是1918年曾經短暫存在的白俄羅斯民主共和國和第一次世界大戰的旗幟。這些顏色源自歷史悠久的立陶宛大公國，映襯了立陶宛目前的國旗，該國旗也為白色和紅色，因為白俄羅斯曾經是立陶宛大公國的一部分。
+15. 新疆西部牧業股份有限公司
 
-1991年蘇聯解體後，白俄羅斯將該旗短暫使用了一段時間。目前的國旗可以追溯到1995年，僅在盧卡申科就任總統後才使用。反對派使用白色-紅色-白色旗幟表示對今天的領導人的拒絕。
+16. 新疆西域春有限責任公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/e115a82d-49bc-44b8-8a9b-d301c4aa7fe6.png?asset_id=3ec8f016-04c7-4731-94f0-a0c91a9be268&amp;img_etag=%220b2e7545e2636fd645133d9d6abc16a0%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/e115a82d-49bc-44b8-8a9b-d301c4aa7fe6.png?asset_id=3ec8f016-04c7-4731-94f0-a0c91a9be268&amp;img_etag=%220b2e7545e2636fd645133d9d6abc16a0%22&amp;size=1024)
+17. 新疆西部天山乳業有限公司
 
-[!\[\](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/53924753-73b4-452f-9fec-65a7dd9baa9f.png?asset_id=8b7740a8-6945-4fcd-bac2-c2ce7f5652db&amp;img_etag=%22e18acd0a752299c0565f37964cd78aaa%22&amp;size=1024)](https://spark.adobe.com/page/M29CMLqAn0Qu3/images/53924753-73b4-452f-9fec-65a7dd9baa9f.png?asset_id=8b7740a8-6945-4fcd-bac2-c2ce7f5652db&amp;img_etag=%22e18acd0a752299c0565f37964cd78aaa%22&amp;size=1024)
+18. 廣州風行乳業股份有限公司
 
-因此，從上圖可以看出，東方衛視在解釋鏡頭時把事情進行了完全相反的描述。它不符合事實。
+19. 貴陽三聯乳業有限公司
 
-哦，東方衛視，如果您願意，可以支持盧卡申科。但是作為電視台，當您製作節目時就不能至少表現出一點誠實嗎？不要欺騙我們這些不懂外語的人。如果您繼續這麼做，人們可能會錯誤地認為您試圖高級黑。
+壹共19家小企業，整個集團的牛奶總產量不大，只占全國的10%左右，卻給我們保留了壹點希望，讓我們還有選擇產品的自由。 值得指出的是這個聯盟裏面少了兩家公司，蒙牛和伊利。
 
-對當前局勢，盧卡申科立場堅定。他曾表示，選舉已經完成，反對派就是不能拒絕接受選舉。他說，不會舉行新的選舉“除非你殺死我”。
+每個行業都需要發展，企業也需要競爭。企業家需要掙錢，這是正常現象，但是這種競爭應該有個底線。 如果壹邊拿創業事跡吹牛，壹邊給競爭對手下黑手；壹邊做慈善壹邊坑害消費者利益，這種企業即使能賺錢，即使是世界500強，我想大家也寧願它少壹點。
 
-看來，白俄羅斯人民不為之畏懼。
-
-隨著局勢的發展，盧卡申科現在表示，如果舉行憲法公投，他將準備舉行新的選舉並移交權力。
-
-
-> 本文經中國媒體項目許可重新發布。
-
-
-[原文鏈接](https://hongkongfp.com/2020/08/23/reading-between-the-crowds-chinese-state-medias-one-sided-reporting-on-the-belarus-protests/)
-
-編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/M29CMLqAn0Qu3/) 】
+但是CCP這個邪惡的體制不滅亡，我相信再有希望和生命力的企業，也會被它們這股“大勢”的浪潮所淹沒！所以，只有CCP滅亡了，這些民企才有希望，我們的後代子孫才能喝上放心奶！
 
 0
