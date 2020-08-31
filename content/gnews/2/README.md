@@ -1,16 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特裡托博士: 病毒變異已達11種中共隱藏病毒原始基因序列, 讓西方永遠都不會開發出完全有效的疫苗（瑞典語Swedish+英語English）
-`2020-08-30 23:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/325833/)
+## 香港跨國販毒案撿獲1.7億港元毒品
+`2020-08-31 02:21 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/326015/)
 
-瑞典語標題 Dr. Tritto: KKP-viruset har muterat till 11 olika stammar så att väst aldrig kommer att utveckla ett fullt effektivt vaccin
+編輯：玫瑰天空
 
-翻譯：JingMerit 校對：lxxy 視頻：年糕
+據香港雒东网”≤30日報道,香港警方毒品調查科根據線報並深入調查後,27日約21時進行反毒品行動,喺粉嶺安樂村幢工廈嘅辦公室,截查2名目標房屋搬出貨物緊嘅南亞裔男子,並持法庭手令搜查房屋,發現逾千個裝滿樽裝飲品嘅紙皮箱。 探員經仔細檢查之後,發現305瓶中裝有毒品,其中150樽裝有88千克冰毒、143樽裝有82千克海洛英,12樽裝有約8千克K仔(氯胺酮),毒品總重約178千克,市值估計逾1.7億港元,警方以涉嫌販毒拘捕。  2人。
 
-視頻簡介
-特里托博士指出，单一的疫苗不太可能阻止这种病毒，是因为目前已鉴定出11种不同的病毒株。 他还指出，最多可以在四到五个菌株上找到一种疫苗来覆盖全球70-75％的人口。
+被捕者包括一名持香港身份證、從事運輸工作嘅33岁巴基斯坦籍男子,另有一名報稱無業嘅27岁孟加拉囯國籍人士,持臨時身份證明書留港。 佢哋現已暫被控合共一項販毒罪,案件明日( 31日)在粉嶺裁判法院審理。 警方相信,案件涉及跨國販毒集團,亦是警方今年破獲嘅最大宗跨國販毒案,暫未確定毒品來源,正調查是否有主謀或成員在逃。
 
-Dr. Tritto påpekar att det är osannolikt ett enda vaccin att blockera viruset eftersom just nu har 11 olika stammar identifierats. Han påpekar också att som mest kan ett vaccin fungera effektivt på fyra eller fem stammar och kan täcka 70-75 procent av världens population.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31021322/image-228.png)
+
+警方毒品調查科叶秀兰女總督察(右)及邹旺忠警司交代案情。
+
+據報道,香港警方毒品調查科(行動)警司邹旺忠表示,根據警方數字,香港各類型毒品除可卡因外,撿獲數量均有明顯上升。 以冰毒及海洛英為例,今年1月至6月已分別撿獲348千克及43千克,較去年同期嘅16千克同23千克,各上升近20倍及約1倍。 連同此次案件,警方今年就冰毒及海洛英所撿獲的數字,已超過前年及去年的總和,反映毒品供應量維持高位。
+
+邹旺忠仲表示,各國喺疫情的實施出入境管制措施,毒販運毒模式亦隨之改變,主要以貨運方式偷運入香港。 警方重申,販毒屬嚴重罪行,根據《危險藥物條例》,一經定罪,最高可判處罰款500萬港元及終身監禁,呼籲市民切勿以身試法。
+
+(原題為《港警破獲今年最大宗跨國販毒案,拘2男子撿獲1.7億港元毒品》)。
+
+援引[:https://m.thepaper.cn/newsDetail\_forward\_8955672。](https://m.thepaper.cn/newsDetail_forward_8955672)
 
 0
