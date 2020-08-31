@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文)08/30期(視頻+ PDF下載)
-`2020-08-30 08:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/324730/)
+## 8月27日文貴連線澳喜: 要把共產黨這個統治人類信仰和利用迷信手段的這個組織, 思想徹底消除
+`2020-08-30 10:19 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/324922/)
 
-撰稿记者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3
+8月27日文貴連線澳喜：所以我們接下來的所有一切，要把共產黨這個統治人類的信仰和利用迷信手段把人類打回到動物世界、畜生世界的這一切的這個組織、思想徹底消除，不讓更多中國人變成雞腿潘、莊烈宏和曾宏，還有胡平、郭寶勝、夏業良這幫孫子。
 
-[每日政要推文-8-30](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30082620/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-8-30.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30082620/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-8-30.pdf)
+
+
+By：【秘密翻譯組G-Translators】
 
 0
