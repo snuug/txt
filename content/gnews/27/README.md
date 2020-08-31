@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/23-24 CCP病毒每日疫情直播簡報
-`2020-08-30 21:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/324782/)
+## 爆料革命以法滅共之戴維斯案(下)
+`2020-08-31 01:03 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/325906/)
 
-戰友之家圖文摘要及小語種組
+**編輯:SugarPup**
 
-[English\_0823-0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090931/English_0823-0824_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090931/English_0823-0824_CCP_Virus_Updates.pdf)
+**圖片:阿刁**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31005222/sun.jpg)
+喺普拉斯嘅要求之下,戴維斯安排布罗迪於2017年5月30日喺美國華盛頓特區嘅一家酒店會見孙立军。 布罗迪問戴維斯,是否需要佢嘅幫助嚟安排孙立军與美國高級官員會晤。  (法庭文件96-97段落)布罗迪於5月31日透過短信話畀戴維斯,FBIFBI安排嘅與孙立军嘅會晤,令孙立军好難向佢嘅老闆交代。 孙立军原本要見嘅FBI官員臨時安排去了越南出差,出嚟會見孙立军嘅FBI官員級別好低。 王岐山警告並羞辱孙立军話,除非佢今次見到美國司法部長得,不然就唔好返中國咗。 所以孙立军好开心有同凱利見面嘅機會。 孙立军有向美國方面移交一名孕婦,仲有兩個人都會喺短期內移交。 孙立军仲會接受美國對60個中共国公民嘅驅逐。 而一切只需要畀佢一個與司法部長之間安排一個簡短嘅會議。 都係习近平與川普喺海湖莊園達成的共識(法庭文件段落98)。
 
-[French\_0823-0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090927/French_0823-0824_CCP_Virus_Updates-copy.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090927/French_0823-0824_CCP_Virus_Updates-copy.pdf)
+布罗迪同時畀戴維斯去安排白宮負責政治事務嘅聯繫人和孙立军喺國土安全部會面,同時令凱利喺嗰度暖場,只需向凱利提及布罗迪嘅名。  (法庭文件段落99)。
 
-[German\_0823\_0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090919/German_0823_0824_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090919/German_0823_0824_CCP_Virus_Updates_.pdf)
+布罗迪原本以為可以輕鬆安排孙立军與凱利嘅會面,認為孙立军可以喺5月31日喺國土安全部與凱利會晤。 卻被戴維斯告知,凱利已經飛往海地,而此消息係佢自己由國土安全部嘅網站上得知嘅。 孙立军得知此情形,非常驚慌,據戴維斯向布罗迪形容,孙立军幾乎要喊起來。  (法庭文件段落100)。
 
-[Japanese\_0823-0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30105843/Japanese_0823-0824_CCP_Virus_Updates.pptx)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30105843/Japanese_0823-0824_CCP_Virus_Updates.pptx)
+時間進入2017年6月份,另一位重磅人物出場了–史蒂夫温。 赫赫有名嘅史蒂夫温係美國博彩業哥哥,同時也是共和黨嘅主要資助人。 布罗迪喺2017年6月27日,畀史蒂夫温嘅配偶發短信要求與史蒂夫溫見面傾遣返文贵先生事宜。  (法庭文件段落103)。 並進一步介紹說,文贵先生嘅簽證將於6月30日到期,因此務必要立即拒絕佢嘅新嘅簽證申請,而且需要被列入國土安全部嘅禁飛名單。 习近平與川普總統海湖莊園見面緊嘅時候要求美國幫助處理郭文贵先生事宜,承諾歸還被中共扣留嘅美國人質、接受大量美國遣返中共国非法移民,對北韓問題提供新嘅協助(法庭文件103段落)。
 
-[Korean\_0823-0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30213446/Korean_0823-0824_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30213446/Korean_0823-0824_CCP_Virus_Updates.pdf)
+布罗迪與史蒂夫溫和其配偶喺2017年6月28日喺一次社交聚會上見面。 其後,布罗迪發短信,追問遣返郭文贵事情的進展,包括簽證情況、是否已被列入禁飛名單。 同時表示孙立军非常擔心不能成功遣返郭先生,要求史蒂夫温嘅及時幫助。 史蒂夫温嘅配偶回話說國務院和國防部正在努力解決此事。  (法庭文件104段落)。
 
-[Russian\_0823\_0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090935/Russian_0823_0824_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090935/Russian_0823_0824_CCP_Virus_Updates.pdf)
+2017年6月30日天,係文贵先生嘅簽證到期之日。 能否成功續簽,決定文贵先生能否合法繼續喺美國居住。 戴維斯同布罗迪呢日都喺為此事忙碌。 戴維斯令布罗迪去畀美國政府施加壓力,話如果喺放工前出具拒簽確認信,就會讓兩個美國人喺7月4日美國獨立日之前回家。 這樣有多少人甚至可以因此得到總統頒發嘅自由勳章了。 布罗迪話正在等凱利嘅答覆。  (法庭文件107段落)。
 
-[Spanish\_0823-0824\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090923/Spanish_0823-0824_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/30090923/Spanish_0823-0824_CCP_Virus_Updates.pdf)
+隨後,布罗迪聯繫戴維斯說,凱利回復了消息,佢向總統講咗呢件事。 此外,布罗迪嘅另一個人脈-白宮人員總管雷恩斯普里巴斯畀布罗迪回覆話,佢好忙,但會跟進此事。  (法庭文件108段落)。
 
+2017年77月1日,布罗迪與雷恩斯就文贵先生簽證問題傾咗好耐,然而雷恩斯並不知道布罗迪與孙立军之間嘅關係(法庭文件108)。
 
+之後布罗迪繼續透過史蒂夫温進行運作,而当佢哋喺史蒂夫温嘅私人遊艇之上時,史蒂夫温仲一度接通埋川普總統電話,討論此事。  (法庭文件116)。
+
+**評:**透過美國地方法庭的文件可以看出,中共如何利用其代理人,喺美國尋找、並重金收買有政治人脈嘅說客幫助其喺美國上下打點。  法庭文件中提及中國大使館不得力,無法幫孙立军安排FBI 高管進行會面。  连孙立军噉嘅人物,因為見不到凱利,會被王岐山斥責而驚慌到要喊。  從中可以看出中共以黑治國嘅本質有幾咁荒唐和邪惡。  中共利用美國司法體制漏洞,首先開打法律超限戰。  而美國則利用其司法嘅獨立與公正,對中共發起咗以法滅共嘅新戰術。  司法文章中所曝光嘅嗰啲沉默嘅力量,恐怕而家已經成為寒蟬。  就係文贵先生所講嘅寒蟬效應。  由現在開始,所有美國官員為咗自保,唔會再像一切那樣對中共事務做自己能力範圍內嘅通融。  因為今日嘅通融,可能成為明日法庭文件中嘅≤通共門≤。  同時沉默嘅力量都唔敢再幫中共發聲,因為佢哋嘅名隨時可能會出現喺某法庭文件中,和某些外國代理人聯繫一起緊。
+
+**爆料革命以法滅共之戴維斯案****(****上）****)****連結**[**https://gnews.org/zh-hans/322915/****。。**](https://gnews.org/zh-hans/322915/)
 
 0
