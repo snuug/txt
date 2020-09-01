@@ -1,13 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 8月30日福克斯: 中共的“一帶一路”,“中國製造”,“千人計劃”軍民融合,為了是從各方面挑戰美國
-`2020-08-31 20:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/327269/)
+## 川普:我們對中共國的看法與以前完全不同了! 談論第一階段貿易協定的事情意義已不大 （丹麥語Danish+英語English）
+`2020-08-31 23:41 GM62` [轉載自GNews](https://gnews.org/zh-hant/327490/)
 
-8月30日福克斯週日瑪麗亞節目採訪：中共國有計劃地通過“一帶一路”、“中國製造”、“千人計劃”軍民融合發展法規，該法規要求企業藉由5G和華為為中共政府從事間諜活動，這一切都是為了從各方面挑戰美國的優勢，從而坐上頭一把交椅；我們說中國共產黨所有的決策，都以中共政府為中心，罔顧個人自由，違反人權，一切皆以所謂的“集體利益”為幌子
+丹麥語標題 Donald Trump: Vi ser anderledes på Kina end før! At tale om fase1-aftalen med Kina er meningsløs.
 
+視頻簡介
+川普認為,第一階段協定對總進口意義不大。 新冠狀病毒已釋放到歐洲,美國和世界各地。 因此,我們對共產主義中國的看法不同於八個月前。
 
-
-By：【秘密翻譯組G-Translators】
+Donald Trump mener, at Fase1-aftalen betyder meget lidt for den samlede import. Covid-19 har spredt sig i Europa, USA og over hele verden. Så vi ser anderledes på Kina end for otte måneder siden
 
 0
