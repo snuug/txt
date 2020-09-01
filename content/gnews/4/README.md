@@ -1,71 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一顆勇敢的心
-`2020-09-01 11:33 GM77` [轉載自GNews](https://gnews.org/zh-hant/328342/)
+## 地方政府下令拆除私人衛星接收器
+`2020-09-01 12:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/328416/)
 
-————**8/30新中國聯邦臺北場遊行紀實**
+*新聞來源：Bitter Winter寒冬｜作者：吳海平(Wu Haiping)；*
 
-作者：華文
+*翻譯、簡評：文明明｜校對：Beicy-數學老師｜審核：InAHurry｜PAGE：玄天生；*
 
-時間：2020/08/30 0600 AM
+**簡評：**
 
-地點：臺灣 臺北自由廣場
+很久以來，因為老百姓已經厭倦了假大空、偉光正的CCTV說教節目，觀看衛星電視節目，主要是港台地區的電視節目一直是內地老百姓茶餘飯後的娛樂活動。這些港台節目除了一些電視劇，還有一些時事政論節目，這些時政節目成了老百姓了解國內外大事的一個重要途徑。雖然中共政府在1993年，頒布了《衛星電視廣播地面接收設施管理條例》，禁止在家里安裝衛星接收器。但是，大多數地方政府並沒有有效地執行該條例。直到最近幾年，中共開始加大力度審查大眾之間所傳播的所有信息，那些通過衛星天線接收到的國外電視節目，尤其是那些批評中共的節目被嚴令封鎖。各級地方政府更是嚴格規定拆除所有的私人衛星接收器，並把它視為公民意識形態工作的“隱患”。
 
-裝備：墨鏡/口罩/帽子/水壺/食物/雨具/緊急醫療用品/手機/錢包/雙肩背包
+從這些各級政府發布的公告可以看出，國務院的129號令規定，對違反此規定的個人，最高可以罰款至5千元。更可笑的是，他們還危言聳聽地強調拆除衛星天線是為了防止設備由於雷擊或掉落在路人身上而發生意外傷害，更有甚者，還把使用衛星接收器上升到國家的政治安全、信息安全、文化安全和社會穩定。其實在他們這種掩耳盜鈴的做法背後就是害怕老百姓了解國內外的事實真相，怕老百姓了解真相後的反抗。爆料革命對香港民主運動、冠狀病毒真相、以及全球聯合滅共的廣泛傳播，是中共想進一步封鎖老百姓接觸大陸外媒體的深層原因。
 
-著裝：跑鞋/牛仔褲/白襯衫
+##  **地方政府下令拆除私人衛星接收器** 
 
-武器：壹顆勇敢的心
+**其背後的目的在於加強信息審查，防止中共國大陸的人民接收到有損中共形象的信息。**
 
-AM 05:58，到達臺北自由廣場，在廣場右側的帳篷報到，領取遊行戰裝/個人名牌和國旗，然後就地更衣著裝，準備就緒上場前，服用戰友貼心準備的氯喹200mg和鋅100mg… 此時的自由廣場，晴空朗朗，清風微涼…
+可在家里安裝的簡易衛星天線因價格低廉、又能接收眾多頻道而在中共國的農村地區特別受歡迎。在1993年，國務院頒布了《衛星電視廣播地面接收設施管理條例》，禁止在家里安裝衛星接收器。但是，大多數地方政府並沒有有效地執行該條例，而是允許人們繼續保留或安裝新的衛星天線。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112718/1-2.jpg)
+但是，近年來隨著中共政權開始加大力度審查大眾之間所傳播的所有信息，那些通過衛星天線接收到的國外電視節目，主要是那些批評[中共](https://bitterwinter.org/Vocabulary/ccp/)的節目被嚴令封鎖。因此，地方政府開始提出更嚴格的要求來拆除私人衛星接收器，並把它視為公民意識形態工作的“隱患”。許多在中共國的人認為，這與國外對中共政策的批評日益增加有關。
 
-AM 6:15，戰友們在小寶哥的呼喚下，向廣場中心集結，開始練習排隊形，在戰友熬夜搭建的室外大屏幕前面，大夥手持新中國聯邦和中華民國的國旗，舉著新冠病毒真相和嚴博士頭像的標語，開始練習陣型的排列…
+今年4月30日，遼寧省東北[部](https://bitterwinter.org/Vocabulary/province/) [縣級市](https://bitterwinter.org/Vocabulary/county-level-city/)莊河的“海外衛星整治工作領導小組”發布了一項命令，以“維護思想安全”的名義，要求在6月30日之前拆除所有私人安裝的衛星接收器，那些執行命令不及時的人可能會承擔法律責任。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112803/2-4.jpg)
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/c3fa84b5-875f-4bd8-b09d-1a3f9549be61.jpg?asset_id=acf0a271-f63b-4838-a273-ad85e14ce645&amp;img_etag=%22dcbcd7ca894c186d7b478c14cc73a904%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/c3fa84b5-875f-4bd8-b09d-1a3f9549be61.jpg?asset_id=acf0a271-f63b-4838-a273-ad85e14ce645&amp;img_etag=%22dcbcd7ca894c186d7b478c14cc73a904%22&amp;size=1024) *莊河市海外衛星整治工作領導小組的通知。*
 
-清晨6點半，自由廣場的人並不多，除了出席的100多號戰友，就是維安的警方了，鑑於CCP在臺灣黑白兩道皆有長期的經營與滲透，藍金黃的力量無所不在，尤其在反共網紅 “館長”槍擊事件發生後，媒體和輿論的關註焦點都反共的個人與團體身上….    因此，這次新中華聯邦的旗幟與戰友在反共最前線的臺灣高調登場亮相，警方繃緊神經，不敢怠慢，出動多組警員在現場執行維安工作，並在相關車輛上成立了臨時小型指揮中心，以應變任何突發的緊急事件…
+今年5月，浙江省東部的一個城市要求拆除所有的此類接收器，並稱這是禁止海外電視節目、確保思想安全的重要措施。
 
-![]()在自由廣場上，戰友們在搖滾版 Take down CCP神曲的帶動下，大夥賣力揮舞著新中國聯邦的旗幟，並大聲的喊出這次遊行的訴求:
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/1cabd1e0-77a2-432d-9c7b-ad335f9c381f.jpg?asset_id=758deeab-e46f-4b48-827e-32d5fa4da857&amp;img_etag=%22ab57da78afcd3ba5fadf4641bd76845a%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/1cabd1e0-77a2-432d-9c7b-ad335f9c381f.jpg?asset_id=758deeab-e46f-4b48-827e-32d5fa4da857&amp;img_etag=%22ab57da78afcd3ba5fadf4641bd76845a%22&amp;size=1024)
 
-**捍衛臺灣民主 聲援香港同胞**
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/21723e8b-e09b-45b9-9f06-56a6404e78c0.jpg?asset_id=402a90ef-589e-4e2d-9d7b-388925f2196e&amp;img_etag=%2226ed45f7a96be60b77a03d3b7c43b904%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/21723e8b-e09b-45b9-9f06-56a6404e78c0.jpg?asset_id=402a90ef-589e-4e2d-9d7b-388925f2196e&amp;img_etag=%2226ed45f7a96be60b77a03d3b7c43b904%22&amp;size=1024)
 
-**要求病毒真相 推翻共產極權**
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/7e4d32ab-942c-42a8-8b31-94c61fbb6458.jpg?asset_id=5e64c71c-b40d-49cc-a034-ac433b599da0&amp;img_etag=%22017a81b40b0821b77e90f1f0ca24c05c%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/7e4d32ab-942c-42a8-8b31-94c61fbb6458.jpg?asset_id=5e64c71c-b40d-49cc-a034-ac433b599da0&amp;img_etag=%22017a81b40b0821b77e90f1f0ca24c05c%22&amp;size=1024)
 
-**團結全球華人 挺新中國聯邦**
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/a76bebbb-e702-46cd-9597-401bd9aefa5a.jpg?asset_id=8d387445-d642-4158-8b3b-3158a62135d9&amp;img_etag=%22afe620481d74c2ed5e889e3fc0ff2c31%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/a76bebbb-e702-46cd-9597-401bd9aefa5a.jpg?asset_id=8d387445-d642-4158-8b3b-3158a62135d9&amp;img_etag=%22afe620481d74c2ed5e889e3fc0ff2c31%22&amp;size=1024)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112839/3-3.png)
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/72b6e0fb-9fe3-4430-bd80-afbc91f79df8.jpg?asset_id=8c15ca09-42ef-48b1-a59b-9a0024db5def&amp;img_etag=%22a85a005b8ecfb3e65e198a527a0f2921%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/72b6e0fb-9fe3-4430-bd80-afbc91f79df8.jpg?asset_id=8c15ca09-42ef-48b1-a59b-9a0024db5def&amp;img_etag=%22a85a005b8ecfb3e65e198a527a0f2921%22&amp;size=1024)
 
-AM07:00 ，開始和美西的戰友連線，大家雖然來自四面八方五湖四海，彼此相隔千裏，在互不相識的情況下，卻可以透過網絡與意識，手牽著手，心連著心，在不同的時空裡，為著同壹個目標與想望相互鼓勵與祝福，結伴前行…  這是怎樣的壹種跨越時空的美好，只有身在其中，才能細細體會…
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/05518a3e-dae7-4493-989f-ffb867e281e5.jpg?asset_id=6b66e5fa-698a-42e1-8e11-3a059d756a1b&amp;img_etag=%22cf217ab9d14c0289a4f28e14e96170f3%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/05518a3e-dae7-4493-989f-ffb867e281e5.jpg?asset_id=6b66e5fa-698a-42e1-8e11-3a059d756a1b&amp;img_etag=%22cf217ab9d14c0289a4f28e14e96170f3%22&amp;size=1024)
 
-AM07:30在訊號極端不好的情況下，現場終於可以和Sara姐和郭先生連上線了，郭先生壹壹回答戰友提出的問題，也對“館長”的槍擊案，提出關懷與問候，並對未來臺灣農場刻畫出美好的願景，更重要的是，對於臺灣的安全問題，郭先生也透漏了未來歐美各國對臺灣安全的關註與觀念的轉變，這樣的轉變，有可能讓臺灣2300萬同胞免受戰火的摧殘，讓傳統中華文化僅存的香火得以延續…
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/393157b8-7f22-4cff-916d-e3f2792ff855.jpg?asset_id=512ef7e0-fcc0-4c92-a9e0-2a39b32b9791&amp;img_etag=%227cd4ac18dbdc30b4c25a30baf04360fd%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/393157b8-7f22-4cff-916d-e3f2792ff855.jpg?asset_id=512ef7e0-fcc0-4c92-a9e0-2a39b32b9791&amp;img_etag=%227cd4ac18dbdc30b4c25a30baf04360fd%22&amp;size=1024) *各地發布拆除衛星鍋的通知*
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112848/4.png)
+與中共國東北吉林省[同名的地級市](https://bitterwinter.org/Vocabulary/prefecture-level-city/)吉林市的一位負責拆除私人衛星接收器的公司員工揭露，當地1000多個家庭中有700多家的衛星天線被被拆毀。
 
-AM08:20 路德訪談直播連線，戰友們和路德以及博博士聊臺灣相關問題，路德尚未來過寶島，而博博士每年都要帶孩子來臺灣壹次，他們壹致認為臺灣是保留中華文化最完整的地方，民主法治下的自由帶給臺灣無窮生命力…
+對拆毀天線表示抗議的群眾會受到罰款或取消他們國家福利的威脅。一位獨自生活在吉林[省](https://bitterwinter.org/Vocabulary/province/)蛟河市的老婦回憶道：“ [村](https://bitterwinter.org/Vocabulary/village/)黨支部書記說，如果我拒絕拆除衛星天線，我的養老金將被取消。”
 
-AM10:00 廣場遊行告壹段落，戰友們聚集到自由廣場牌樓下方，圍成圓圈，自我介紹與交流，增進彼此的認識與了解…
+一位70多歲的朝鮮族老人受到官員的威脅，如果不拆除衛星接收器，將被罰款3000元人民幣（約430美元）。
 
-AM11:00 在拍完集體照之後，結束今天的集會遊行活動，為8/29美西農場的聯合大遊行畫上完美的句點…
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/144de4f9-cb31-40e3-9a9b-18f37b7d5a4c.jpg?asset_id=373cfc47-b0c2-447e-82dd-4656b5bc6fd1&amp;img_etag=%227ad5dd79db40e54a2dcbe89202a6387e%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/144de4f9-cb31-40e3-9a9b-18f37b7d5a4c.jpg?asset_id=373cfc47-b0c2-447e-82dd-4656b5bc6fd1&amp;img_etag=%227ad5dd79db40e54a2dcbe89202a6387e%22&amp;size=1024) *工人們正在拆除衛星天線。*
 
-這是我有生之年第壹次參與政治活動，或是說第壹次參加遊行，所以在過程裡的壹切體驗對我來說都是新鮮和有趣的…      而臨場經驗的觸動，更加深對這塊土地的崇敬與認同…
+中共國大陸的官方媒體還發布了有關清除衛星天線的“正面”宣傳報導，強調為了防止設備由於雷擊或掉落在路人身上而發生意外傷害，拆除衛星天線是必要的。而另一個流行的宣傳主題是：國外的節目會傷害未成年人。
 
-由於來自於傳統的家庭，從小父親就教導我們做人做事要低調，要明哲保身，尤其在動盪的大時代裡，這是唯壹的保命之道….
+無論媒體如何賣力宣傳，許多人仍然相信這背後的主要目的是為了封鎖有關本地和國際事務的消息。
 
-我能夠理解，在歷經戰亂洗禮，面對生死瞬間的無常世事後，老壹輩的人對於世界變動的恐懼，是其來有自的… 只是，我也不禁的思考，明哲保身，歸隱南山就真的能得到永恆的平安嗎？**尤其在實體世界崩解，虛擬世紀到來的今日，或許直面恐懼接受現實與堅持為真不破的勇氣，才是永恆脫離黑暗與邪惡最好的方法****…**
+遼寧省一個村支書告訴《寒冬》（Bitter Winter）說：“政府擔心某些外國節目不利於它的統治，因此他們想拆除人們家中所有的衛星天線。” 他補充說，中共國大陸禁止來自香港和台灣的許多節目，以及類似[法輪功](https://bitterwinter.org/Vocabulary/falun-gong/)等被禁止的宗教團體所製作的節目。
 
-**而正義與邪惡，和平與戰亂，公義與私利，良善與邪惡的距離，其實就是壹顆心的距離****…**
+另一位遼寧政府內部的人士解釋說，衛星天線播放的外國節目可以揭露“中共對付中共國大陸人民的醜陋和罪惡行徑”。他補充說：“這會使政府更難控制百姓，這就是其中的原因。”
 
-**壹顆勇敢的心，能化暴戾為祥和，能使公義高舉，良善彰顯，讓世界充滿希望，帶給人類與子孫壹個美好的未來****…**
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/5d465768-9de9-45b0-bece-ad2986a4f046.jpg?asset_id=7730cab3-bdc8-44fe-8b41-6aab01e2af12&amp;img_etag=%22cfd126c70155ebecd00e5d20b257ada7%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/5d465768-9de9-45b0-bece-ad2986a4f046.jpg?asset_id=7730cab3-bdc8-44fe-8b41-6aab01e2af12&amp;img_etag=%22cfd126c70155ebecd00e5d20b257ada7%22&amp;size=1024) *關於拆除衛星接收器的宣傳海報。*
 
-**這樣的選擇，取決於妳和我****…**
+浙江杭州市的有關部門委託電網管理公司逐一調查其轄區有多少人擁有衛星天線。其中一位透露，在內部交流時他的上級曾表示，因為衛星天線可以接收到外國電視節目，所以要拆除。這位電網管理人員解釋說：“外界對中共的評價很不利，因此政府擔心人們會聽到真相。”
 
-**撥亂反正，扭轉乾坤，讓共產幽靈退卻，讓華夏榮光再現****…**
+[新聞鏈接](https://bitterwinter.org/local-governments-order-to-remove-private-satellite-receivers/)
 
-**原來 只需要壹顆勇敢的心****…**
-
-**我如斯相信****…**
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/BxIswrhILedoS/)
 
 0

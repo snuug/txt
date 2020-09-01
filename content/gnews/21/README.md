@@ -1,28 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共經濟學
-`2020-09-01 08:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/328078/)
+## 你敢查，我敢燒，霹靂年中共再次查糧倉
+`2020-09-01 10:01 GM01` [轉載自GNews](https://gnews.org/zh-hant/328127/)
 
-**作者：Xingfffooo**
+國內新聞作者：背靠背
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01095112/4B4F8449-5FB6-417B-979A-8453FBEF6BC4.png)
+四川國家儲備糧實際出倉價近日突然暴漲，比國家公示價漲出15%左右，得到消息的市民把超市糧油區搶購一空。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084400/%E5%B9%BB%E7%81%AF%E7%89%871.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084426/%E5%B9%BB%E7%81%AF%E7%89%872.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084456/%E5%B9%BB%E7%81%AF%E7%89%873.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084514/%E5%B9%BB%E7%81%AF%E7%89%874.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084538/%E5%B9%BB%E7%81%AF%E7%89%875.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084555/%E5%B9%BB%E7%81%AF%E7%89%876.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084612/%E5%B9%BB%E7%81%AF%E7%89%877.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084630/%E5%B9%BB%E7%81%AF%E7%89%878.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084649/%E5%B9%BB%E7%81%AF%E7%89%879.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084705/%E5%B9%BB%E7%81%AF%E7%89%8710.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084723/%E5%B9%BB%E7%81%AF%E7%89%8711.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084740/%E5%B9%BB%E7%81%AF%E7%89%8712.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084758/%E5%B9%BB%E7%81%AF%E7%89%8713.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084816/%E5%B9%BB%E7%81%AF%E7%89%8714.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084835/%E5%B9%BB%E7%81%AF%E7%89%8715.jpg)
+2020年7月份，四川省成都市農業農村局下方文件，要求村民退耕保糧，退出果樹果木，改種植水稻，對糧食緊缺預期強烈。老百姓看在眼裡，記在心上，通過實際行動，舉雙手雙腳超市搶購，徹底否定了中共全力宣傳的糧食豐收、庫存充裕，中共的信用在老百姓心底里是負數。
+
+中共進行政策性糧庫拉網式大排查，糧倉會否再次失火？
+
+2020年8月26日，新華社《「大國」糧倉進入強監管期》一文提出，今年9月至11月將對政策性糧食庫存進行拉網式大排查，全面提升國有糧庫管理水平。
+
+政策性糧食包括中央儲備糧、最低收購價糧、國家臨時存儲糧、國家一次性儲備糧、地方儲備糧、地方政策性糧食。
+
+通知未下，糧倉已燒。2020年7月1日18時許，位於都勻市沙包堡街道辦事處的都勻市糧食儲備庫發生火災，過火面積約200平方米。
+
+一位半輩子在糧庫工作的人說，糧倉正常情況下不會起火，哪怕電短路都不會。糧倉四壁與倉頂都是不可燃材料，以前木房子著火，房子燒盡，糧食只上面一層會燒毀，沒見過這麼濃煙滾滾。
+
+早在2019年國家糧食和物資儲備局查糧庫時，糧倉失火燒一批。
+
+2019年2月3日，國家糧食和物資儲備局《關於印發全國政策性糧食庫存數量和質量大清查實施方案的通知》，派出25個聯合抽查組和3個隨機流動檢查組，對黑龍江等17個重點省份進行抽查，順利完成全國政策性糧食庫存數量和質量大清查。
+
+2019年12月13日，上海嘉里糧油倉庫發生火災。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01095426/78CDA320-A99A-4A72-8F4B-51DAC27304CB.jpeg)
+糧庫數據是一個大泡沫，本來沒有那麼多糧食，為補貼款，下級討好上級，報大數能獲利更大，應付檢查時候把附近的糧食全調集到一個庫。
+
+上任領導高昇，挖下的坑，接任新領導得補上。為保住官位，糧食庫存數必須往高的上報，坑就越來越大，終有一天由於坑太大，附近糧食都運來也無法填上，堆上稻草、陳糧、廢糧，徹徹底底的燒掉，填坑。
+
+因此中共糧庫真實數據被隱瞞，沒人承擔責任，最後還得找背鍋的。
 
 
-（文章內容僅代表作者觀點）
 
 0

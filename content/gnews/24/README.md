@@ -1,47 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新聞看點
-`2020-09-01 08:27 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/327965/)
+## 滅共經濟學
+`2020-09-01 08:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/328078/)
 
-喜馬拉雅聯盟加拿大農場 孫行者大地鯤鵬
+**作者：Xingfffooo**
 
-2020年8 月31日新聞看點
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084400/%E5%B9%BB%E7%81%AF%E7%89%871.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084426/%E5%B9%BB%E7%81%AF%E7%89%872.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084456/%E5%B9%BB%E7%81%AF%E7%89%873.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084514/%E5%B9%BB%E7%81%AF%E7%89%874.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084538/%E5%B9%BB%E7%81%AF%E7%89%875.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084555/%E5%B9%BB%E7%81%AF%E7%89%876.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084612/%E5%B9%BB%E7%81%AF%E7%89%877.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084630/%E5%B9%BB%E7%81%AF%E7%89%878.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084649/%E5%B9%BB%E7%81%AF%E7%89%879.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084705/%E5%B9%BB%E7%81%AF%E7%89%8710.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084723/%E5%B9%BB%E7%81%AF%E7%89%8711.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084740/%E5%B9%BB%E7%81%AF%E7%89%8712.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084758/%E5%B9%BB%E7%81%AF%E7%89%8713.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084816/%E5%B9%BB%E7%81%AF%E7%89%8714.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084835/%E5%B9%BB%E7%81%AF%E7%89%8715.jpg)
 
-一、疫情真相
 
-1. 美國防部長艾斯伯（Esper）主動與斯里蘭卡總統通話，呼籲在病毒領域合作。習近平、美高層先後與小國斯里蘭卡反常互動，驗證了閆麗夢博士爆料：香港大學P3實驗室馬利克（Malik）是中共制毒關鍵人物，且已回國藏匿。
-
-2. 第一財經網文章8月30日證實中共疫苗存在ADE效應（抗體毒作用，疫苗加速死亡），文章經路德訪談節目引用分析後，中共高層發現疫苗真相欲蓋彌彰，火速刪帖回應。
-
-3.美國FDA表示在新冠疫苗三期臨床結果出來前將給予緊急使用授權。此前對新冠病毒具有良好治療和預防效果的羥氯喹，FDA則以沒有經過雙盲試驗驗證安全性和有效性為由，取消緊急授權。 FDA的雙重標準令人費解。
-
-二、新中國聯邦新聞
-
-1. 司法部公佈夏威夷的尼克蘭姆⋅戴維斯今天認罪：承認自己為了獲取數百萬美元，遊說司法部官員遣返郭文貴，並且遊說司法部放棄對馬來西亞劉特佐的起訴。戴維斯的認罪，坐實了中共通過美國公關干預美國司法，以及美國國內存在大量為了金錢而破壞美國司法的利益團體及個人。
-
-2. 美國國務卿蓬佩奧星期一（2020年8月31日）在首都華盛頓地區電台WMAL的一個節目中表示，川普總統可能會在未來幾周和幾個月內宣布限制中共國的公派留學生和研究人員簽證。中共常以各種方式滲透美國的大學和研究機構，竊取美國知識產權和軍事技術。
-
-3. 針對捷克斯洛伐克議長率團訪問台灣一事，中共偽政權外交部長王毅威脅捷克將“付出沉重代價”。對此，捷克外交部特別召見中共駐捷克大使，對王毅的言論表達不滿。捷克外交部長佩特里切克(Tomáš Petříček)更在其推文批評王毅的言辭太過分，不專業，且充滿情緒性。
-
-4. 北京大學海洋研究院“南海戰略態勢感知計劃”（SCS Probing Initiative）推文指一架美軍EP-3E偵察機從台灣起飛後在日本降落。另據中共國消息，解放軍將於9月1至22日在渤海舉行三個星期軍演。面對中共的武裝威脅，台灣國防部最新出爐的《二0一九年中共軍力報告書》指出，受限台灣地理環境、登陸載具與後勤能力不足，解放軍尚未完全具備全面犯台正規作戰能力。
-
-5. 美國星期一(8月31日)表示將與台灣舉辦新的高級別雙邊經濟對話，美方將由副國務卿領銜，以加強與台灣的聯繫，並且在面臨來自中共的越來越大的壓力之際支持台灣。華盛頓還將裡根時代對台灣的“六項保證”解密。美國國務院負責東亞事務的助理國務卿史達偉(David Stilwell)在傳統基金會主辦的一次視頻會議上說，美國的最新舉措並不是政策轉變，而是華盛頓內部對長期以來的“一個中國”政策所進行的一系列“重大調整”的一部分。
-
-6．澳大利亞外長佩恩（Marise Payne）8月31日在一份聲明中說，中共央視英文頻道CGTN的著名主持人、澳籍華裔媒體人成蕾（Cheng Lei）8月14日被中共扣押，目前處於監視居住狀態。今年7月，澳大利亞政府向準備前往中共國旅遊的本國公民發出旅遊警告，說中共任意拘禁的風險在增加。
-
-7．印度軍方周一發表聲明指出，8月29至30日發現大量中共軍隊士兵到班公錯湖南岸，試圖佔領這個地區。印軍先發製人，阻止了解放軍“試圖改變現狀的意圖” 。
-
-三、世界新聞
-
-1. 在周一的在線聽證會上，美國曼哈頓地區法官阿娜麗莎·托雷斯（Analisa Torres）確定2021年5月24日審理班農先生案件。這一決定使得班農先生無法在大選前回到白宮，幫助川普總統競選，政治構陷意味明顯。
-
-2. 中共國華為、抖音、阿里巴巴三家公司出資，在微信圈向華裔美國人為民主黨拜登買票，以使川普敗選。而根據美國國務院司法獎勵計劃， 舉報干擾選舉行為可獲得最高達1000萬美金的獎勵。
-
-3 . 世貿秘書長阿澤維多（Roberto Azevedo），今天（8月31日）正式請辭下台。阿澤維多自2013年上任，任期本應到2021年8月屆滿。目前有來自不同國家的8位候選人表示競選世貿秘書長職位。
-
-4．美國軍控問題特別代表馬歇爾·比林斯利最近與俄羅斯討論了兩國軍備控制，協商《未來的新削減戰略武器條約》(New START Treaty )和中共國秘密儲備核武器等事宜。
-
-5．曼谷郵報（Bangkok Post）報導，總理兼國防部長帕拉育（Prayut Chan-o-cha）決定，延後向中共國購買兩艘新潛艇的計劃。在新冠疫情重挫泰國經濟背景下，該軍購計劃受到泰國國會和民間強烈反對。
+（文章內容僅代表作者觀點）
 
 0

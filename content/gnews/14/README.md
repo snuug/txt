@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共經濟學
-`2020-09-01 08:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/328078/)
+## 中共體制是暴雨之下城鎮內澇之禍根
+`2020-09-01 11:04 GM01` [轉載自GNews](https://gnews.org/zh-hant/328233/)
 
-**作者：Xingfffooo**
+國內新聞作者:背靠背
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01103735/539A1E6D-2EFA-4B11-A8BB-C0B24058C634.png)
+四川城市下水道老舊，嚴重缺乏規劃建設，暴雨之下造成內澇。錦江區鎲鈀街下水道一年要疏通5-6次。成都下水道寬度，成年豬都容不下。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084400/%E5%B9%BB%E7%81%AF%E7%89%871.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084426/%E5%B9%BB%E7%81%AF%E7%89%872.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084456/%E5%B9%BB%E7%81%AF%E7%89%873.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084514/%E5%B9%BB%E7%81%AF%E7%89%874.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084538/%E5%B9%BB%E7%81%AF%E7%89%875.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084555/%E5%B9%BB%E7%81%AF%E7%89%876.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084612/%E5%B9%BB%E7%81%AF%E7%89%877.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084630/%E5%B9%BB%E7%81%AF%E7%89%878.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084649/%E5%B9%BB%E7%81%AF%E7%89%879.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084705/%E5%B9%BB%E7%81%AF%E7%89%8710.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084723/%E5%B9%BB%E7%81%AF%E7%89%8711.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084740/%E5%B9%BB%E7%81%AF%E7%89%8712.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084758/%E5%B9%BB%E7%81%AF%E7%89%8713.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084816/%E5%B9%BB%E7%81%AF%E7%89%8714.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084835/%E5%B9%BB%E7%81%AF%E7%89%8715.jpg)
+暴雨之下，城市下水道排水排污不順暢，如同泌尿系統出了問題，喝下過多的水，憋在身體里，排不出去，有多痛苦。
 
+人們都覺得下水道是城市建設公共事業與自己關係不大，看不見，摸不著，沒人關心，正是看起來無關緊要的工程，關鍵時候，給老百姓造成重大生命和財產損失。成都政府更願意花費120億建468米大廈，而不是建寬敞的下水道。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01105637/F795F8AE-3FE2-40E6-B74F-B9340D5A872C.jpeg)蛙人清潔工進入中共國狹窄的下水道進行疏通
+中共國內北上廣深大城市同樣飽受暴雨之後內澇嚴重問題。
 
-（文章內容僅代表作者觀點）
+中共國城市更願意投資建高樓大廈，路橋軌道，更容易出政績；搞地下排水設施吃力不討好，從官員利益方面看主要有兩個：第一、排水設施建設期限長，官員任內看不到效果，出政績難，前人種樹後人乘涼的美事違反官員利益；第二、官員任期內，每年反復搞一搞，更能出GDP，出政績。
+
+中共國城市排水管道設計標準低。2014年版《室外排水設計規範》中對於雨水管道設計重現期有明確規定，特大城市中心城區的防澇能力應該達到3-5年暴雨重現期，非中心城區達2-3年。此外，城市中心城區的重要地區需要有5-10年暴雨重現期的應對能力，中心城區地下通道和下沈式廣場等有30-50年應對能力。
+
+2011年版規範重現期一般採用1-3年，大部分城市普遍採用1年一遇重現期。發達國家雨水管道設計重現期一般略高，城鎮雨水管道設計重現期一般採用5年到10年，例如美國各州都將排水乾管系統的設計重現期定為100年，排水系統的其它設施分別具有不同的設計重現期，日本下水道設計指南中，排水系統設計重現期標準可以提高到30-50年。
+
+比起城市高樓大廈林立的外表，那下水道是內在修為，是受益民眾的良心工程。
+
+東京位於面積為6500平方英里的關東平原上，十幾條大小河流遍布四野,日本颱風多發，颱風季節首都圈地區也經常降暴雨，每到初夏季風時節，一小時內的降雨量就可以達到4英吋（10.1釐米）深，年平均降水量為1466.8毫米，但東京很少出現內澇。日本東京建立完善的排水系統，由有細小的水道、壕溝、更寬的地下水道組合起來形成有效的排水體系。堪稱世界上最先進的下水道排水系統-「首都圈外圍排水系統」，建造於1992年至2006年之間，共耗資30億美元。整個排水系統的排水標準是「五至十年一遇」，內徑10米的地下管道，5處直徑30米、深60米的儲水立坑，以及一處人造地下水庫，水庫長177米、寬77米、高度約20米，底下有59根鋼筋混凝土材質的柱子，每根柱子重500噸，高60英尺（約18.2米）。
+
+排水系統建成後的同年，江戶川流域遭水浸的房屋數量由最嚴重年份的41544家下降到了245家，浸水面積由27840公頃減至65公頃。
+
+下水道是一座城市的良心，中共非法統治下，城市內澇嚴重更是人禍，中共體制之禍。
 
 0
