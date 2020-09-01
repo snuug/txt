@@ -1,25 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/25～26 CCP病毒每日疫情直播簡報
-`2020-08-31 21:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/327117/)
+## 全球滅共大遊行必將崩塌中共執政基礎， 掀起滅共世界潮流！
+`2020-08-31 22:13 GM30` [轉載自GNews](https://gnews.org/zh-hant/327414/)
 
-英文標題 CCP Virus Pandemic Updates Ep 214-215:  over 100 million Americans’ personal information may have been stolen by TikTok
+**作者：銘白**
 
-視頻簡介
+爆料革命已經聚集了全球各地堅定滅共挺郭（郭文貴先生）的戰士，他們壹直站在滅共的最前線，從香港返送中運動到7/29、8/29在美國、英國、法國、德國、韓國、日本、澳洲、加拿大、臺灣等幾十個國家的滅共遊行示威中，都看到他們的身影，壹面面嶄新鮮艷的藍色旗幟—新中國聯邦國旗，飄揚在遊行隊伍中。這是壹個嶄新的時代，這是壹個摧枯拉朽、勢不可擋的滅共潮流！
 
-1. TikTok可能盜取了1億美國人的個人信息，中共黨媒環球網為TikTok起訴川普政府虛張聲勢。面對川普堅定的脫鉤策略，中共指使抖音在美國起訴川普政府。
-2. 紅色恐怖下的新疆人的生活。在新疆某地禁止百姓宣洩不滿，中共禁止在社交媒體傳消息，當局擔心傳到互聯網上讓世界知道中共的暴行。
-3. 中國說疫情不會人傳人，結果疫情人傳人；中共說病毒不會大流行，結果病毒大流行；現在中共勸大家不要屯糧，明白該做什麼了嗎？
-4. (8/24）（Steve Bannon）中國宣布他們已經開發出了疫苗，他們正試圖讓人們接種，看起來他們已經開始利用疫苗來秀肌肉。備受爭議的郭文貴先生，兩三個月前說，他們（中共）永遠不會把那個（基因組序列）給你，因為他們就是想占領疫苗的高地，向全世界宣布：“嘿，你們得向我們叩頭，因為我們可以拯救世界。”
-5. (郭文貴先生，8/25）如果（這些地方）“一中”政策都沒了，拜登，民主黨這大會，就這一句，就這一個政策，勝過千千萬。你們一定要意識到，那共產黨那就不是說你是非法政府合法政府了，你就是犯罪集團了你。
+香港覺醒，美國覺醒，世界覺醒！
 
+香港行動，美國行動，世界行動！
 
-1. In America, over 100 million Americans’ personal information may have been stolen by TikTok, the latter filed a lawsuit against the Trump’s administration, which was revealed by the Global Times – the Chinese Communist Party (CCP) media. Such a lawsuit was obviously instructed by CCP.
-2. Life in Xinjiang under Red Terror. In one part of Xinjiang where expressing personal grievances is forbidden, the CCP has blocked the information on social media in fear of letting the world know about the atrocities committed by the Chinese Communist Party.
-3. The CCP said the virus would not transmit between people, but it turns out it did; the CCP said that the virus would not cause a global pandemic, we are living in it every day; Now the CCP advises everyone not to store food, well, you know what you have to do?
-4. (Steve Bannon) The Chinese announced that they’ve got [guess what] a vaccine. They’re trying putting people on a vaccine. It looks like they’re trying to show their muscle. The controversial Miles Guo, said 2 or 3 monthes ago, they (CCP) are never gonna give that (genome sequence)  to you because what they want to do is get on top of a vaccine and then come forward to the world and say “Hey we’re the saviors of the world you’ve got to kow-tow to us.”
-5. (Miles Guo, 8/25) If “One China policy” is removed, Joe Biden, the DNC (Demoncratic National Convention), this policy alone works better than a thousand others. You must understand, if that happens, then the issue is not only whether or not the CCP is a  legitimate government, but the CCP will be deemed a criminal gang.
+7/29、8/29全球滅共大遊行，向世界宣告：新中國聯邦公民要滅掉共產黨，整個人類的邪靈惡魔必須在地球上消失！
 
+中國共產黨竊取中國政權70年來，靠著欺騙謊言和血腥暴政，滅絕人性，慘絕人寰，罪惡滔天，天怒人怨！
+
+在國內，共產黑幫靠著共黨官媒和黨衛軍，在國內以警治國、以黑治國，奉行“商鞅五術”為治國之策，諳熟並充分運用奶頭樂（英語：tittytainment）理論，麻痹和肢解民間反共力量，用天量民脂民膏於監控維穩鎮壓，用高高的防火墻，控言禁聲，欺騙奴役中國人民。
+
+不僅於此，共產政權更將魔爪伸向世界，用藍金黃手段全面滲透並控制各國政治、經濟、教育、科技等各個領域，借“壹帶壹路“實現其政治、經濟、軍事目標，最終完成其“領導制定世界新次序”的目標。
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31221120/001-1.png)
+
+爆料革命打響了滅共第壹槍，《新中國聯邦宣言》宣布中國共產黨是非法組織，中華人民共和國是非法政府，滅共是正義的需要，是歷史的必然！
+
+形成全球滅共大趨勢，掀起全球滅共大潮，是我們當前重要的目標，是影響和喚醒民眾的需要，特別在民主國家，民意影響政治，有民意基礎才能夠實現以美滅共，進而動員全世界圍剿中共！同時，形成世界滅共民意，也是我們新中國聯邦國家生存和和平發展的需要，通過諸如7/29、8/29全球滅共大遊行，世界人民和政府看到了我們新中國聯邦公民的靚麗形象，刷新並建立“新三觀”，為我們融入世界和平發展，成為世界健康和平發展的新鮮力量建立了極其有益的社會生態。
+
+我們的滅共之路可以怎麽走？怎樣用尖刀插入土共心臟？
+
+始終堅持爆料革命指路人提出的“以美滅共”“以共滅共”的戰略不動搖，只是條條大路通羅馬，具體的方法策略可以仁者見仁智者見智，壹己之見，當下發揮每個人的力量，集合每個人的力量，是滅共事業的壹體兩面。
+
+壹方面，發揮每個人的力量，我們每個人都是壓垮中共的最後那壹根稻草，正如文貴先生和路德先生所說：“滅共沒有妳不行”，妳的每個推，每個點贊，每個發聲，每個轉發，妳的每次傳播都是人民戰爭的重要壹環，都是聚勢的過程，積土成山，積水成淵就是這道理。
+
+另壹面，集合力量也是極其重要的工作，中共專制國家之所以可以在世界範圍卓有成效實行他們的邪惡計劃，不是邪惡的力量而是獨裁體制的所謂優越性“集中力量辦大事”，只不過他們辦的是邪惡的大事，有違天意的大事，而民主國家實現集中力量辦大事是需要民意基礎，而民意是點滴的持久的力量，天下興亡，匹夫有責，這是我們應有的態度。
+盡管民意是點滴的持久的積累，但如何加速點滴積累，我們依然有所作為，爆料革命的全球大遊行就是很好的榜樣。我們如何將遊行發揮得更好？如何更有影響力?每個人都可以有自己的思想和作為。
+
+首先，兩次大規模的遊行已經湧現了許多成功優秀的典範，如結合當地民族文化（韓國民間舞蹈、日本的動畫文化），加拿大、澳洲本地媒體的報道，日本標準化折疊國旗等等，不壹而足，戰友們用盡心思只為有份漂亮的遊行答卷。
+
+盡管這樣那樣的問題，都是前進中的問題，新生命分娩的疼痛，痛並快樂著！
+
+其次，加大遊行隊伍的影響力，擴充更多戰友和滅共力量的加入，除了我們爆料革命的力量，還有更大量的滅共力量有待我們聯合，這裏不要有種族的區別，不要有華裔非華裔的限制，只要在合法有規之下，我們應該有更加靈活的方式達到影響各個喜農場所在國的人民參加進來。這是壹個巨大的力量，也是壹個有深遠意義的方向。
+
+特別是TIKTOLK等社交軟件的限制和取締，為我們團結更多的華人提供了契機，值得好好發揮，尤其是熟悉本國語言的戰友在這次爆料革命的主戰場，可以發揮到更好的作用，
+
+運用好各國的社交媒體，利用當地大V等拓展宣傳，溝通聯絡大有作為！
+
+再次，我們要緊緊跟隨並按照郭文貴先生的指引，有的放矢，因時因地，堅持在爆料革命主導下，在新中國聯邦的旗幟下，結合不同滅共形勢需要表達遊行的不同訴求。
+
+顯而易見，壹個全球滅共大潮已然形成，土共必將在滾滾洪流中轟然倒下，並徹底在地球上消失，我們每個人都要清醒的知道，妳今天種下的每個因，壹定是妳未來的果，絕不能作土共邪黨的陪葬品，融入並推動滅共，是妳我的責任，更是妳我的榮耀！
+
+（文章內容僅代表作者觀點）
 
 0
