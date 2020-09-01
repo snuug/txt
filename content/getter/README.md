@@ -13,6 +13,11 @@
 
 
 
+[8月31日：认罪了……](/content/getter/content/2020/09/5f4db289d3bc84639c808a68.md)
+
+**郭文贵MILES** `2020-09-01T02:31:37`
+##
+
 [8月31号：衷心地感谢与战友们度过的美好的时光，由于文贵的声音给你带来的伤害，万分，抱歉。有些玩笑的事情，请大家千万要理解，特别是对老顽童先生开的玩笑万分的抱歉...](/content/getter/content/2020/09/5f4da8ccd3bc84639c807f29.md)
 
 **郭文贵MILES** `2020-09-01T01:50:04`
@@ -156,10 +161,5 @@
 [8月27号：尊敬的战友们好．半小时后，9:30我们在澳洲喜马拉雅农场连线中相见吧！https://gtv.org/?videoid=5f47a44dfb4f61...](/content/getter/content/2020/08/5f47aed0d3bc84639c7b07dd.md)
 
 **郭文贵MILES** `2020-08-27T13:02:08`
-##
-
-[【重要新闻 News】 1.美国奋斗者组成新共和党  The New Republican Party of American Strivers   https...](/content/getter/content/2020/08/5f4676d7d3bc84639c79ffae.md)
-
-**郭文贵MILES** `2020-08-26T14:51:03`
 ##
 
