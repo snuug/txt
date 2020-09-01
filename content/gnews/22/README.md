@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文)08/31期(視頻+ PDF下載)
-`2020-08-31 09:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/326618/)
+## 爆料革命需要“無我”
+`2020-08-31 11:18 GM31` [轉載自GNews](https://gnews.org/zh-hant/326820/)
 
-撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3
+郭先生在[8月16日](https://gtv.org/?videoid=5f3999db313eaf1e371f23c1)的G-TV直播中回答了一位紐西蘭喜馬拉雅農場的戰友的問題，關於正道主義的“無我”境界對年輕人有什麼樣的期許。郭先生解釋了“無我”的幾大核心，並表示這是信仰，而不是買賣，也不是交易。在利益上你不重要，但是沒你滅共不行。
 
-[每日政要推文-8-31](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)
+```
+“總結一下：永遠不要把責任推給別人，你第一(要)承擔責任。
+第二，永遠不要怪罪別人，就怪自己。
+第三，永遠改了你一切不好的，因為你要看到你得到的。
+永遠也把給別人的東西當成買賣，有去必有回，去了就不要回。這叫無我。”
+ - 郭文貴
+```
 
-0
+*翻譯**:**【**Dlrow**】* *校對**:**【**Winston Jackson**】【**Michelle**】* *字幕**:**【**Pamila**（文明）】* *編輯**:**【**GM31**】* *上傳**:**【**Michelle**】*
+
+*戰友之家玫瑰園小隊出品*
+
+1

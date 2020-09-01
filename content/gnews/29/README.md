@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我知道中共想統治全世界的秘密, 他們有周密的3F計劃,搞弱美國、搞垮美國、搞死美國
-`2020-08-31 06:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/326393/)
+## 每日政要Twitter播報(中文)08/31期(視頻+ PDF下載)
+`2020-08-31 09:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/326618/)
 
-8月29日班農戰斗室連線文貴：他們想殺死我，因為我知道他們的秘密，為什麼這些秘密如此重要？我知道中共想統治全世界的秘密，他們有周密的計劃，他們有3F計劃，搞弱美國、搞垮美國、搞死美國。 。 。
+撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3
 
-
-
-By：【秘密翻譯組G-Translators】
+[每日政要推文-8-31](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)
 
 0
