@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/25～26 CCP病毒每日疫情直播簡報
-`2020-08-31 21:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/327117/)
+## 中共在加拿大代言人譚詠詩醫生，一個試圖通過合法化販賣和服用芬太尼以忠實執行CCP邪惡的卑鄙門鬼！
+`2020-08-31 23:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/327516/)
 
-英文標題 CCP Virus Pandemic Updates Ep 214-215:  over 100 million Americans’ personal information may have been stolen by TikTok
+喜馬拉雅聯盟加拿大農場硫酸羥氯喹64 （文章僅代表作者個人觀點）
+[!\[譚詠詩表現好嗎？康尼批她杜魯多挺她| 溫哥華知道Vancoolver\](https://d46418ad944c54521591-13e75bca1e2d54325f0f744a8ac47457.ssl.cf2.rackcdn.com/2020/04/1586880617_3e46d381.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fvancoolver.ca%2F595191%2F&amp;psig=AOvVaw2VM9DrkY97-WSQVHiJhkVr&amp;ust=1599017270684000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCPDOttuBx-sCFQAAAAAdAAAAABAD)
+據魁北克新聞網近日報導，加拿大首席公共衛生官譚詠詩醫生，以因過量吸毒而導致死亡人數激增為由，罔顧本國公眾的生命和健康，公然敦促特魯多政府以謀求鴉片類藥物包括嗎啡，芬太尼和可卡因等在列的毒品在加拿大服用的合法化。
 
-視頻簡介
+在上週五的新聞發布會上，該加拿大頂級醫療職業高官，兒科傳染病專家急切表示，面對鴉片類藥物在加拿大日趨氾濫的危險狀況，公眾和政府都必須考慮相應的解決途徑。她強調：“社會各界應該充分利用本次特殊危機時刻盡快將服用鴉片類藥物合法化！因為這種因過量攝入毒品而致命的危險可以發生在任何人身上，特別是對現在那些將自己隔離在家中避疫的人而言，該風險可能會更高。”
 
-1. TikTok可能盜取了1億美國人的個人信息，中共黨媒環球網為TikTok起訴川普政府虛張聲勢。面對川普堅定的脫鉤策略，中共指使抖音在美國起訴川普政府。
-2. 紅色恐怖下的新疆人的生活。在新疆某地禁止百姓宣洩不滿，中共禁止在社交媒體傳消息，當局擔心傳到互聯網上讓世界知道中共的暴行。
-3. 中國說疫情不會人傳人，結果疫情人傳人；中共說病毒不會大流行，結果病毒大流行；現在中共勸大家不要屯糧，明白該做什麼了嗎？
-4. (8/24）（Steve Bannon）中國宣布他們已經開發出了疫苗，他們正試圖讓人們接種，看起來他們已經開始利用疫苗來秀肌肉。備受爭議的郭文貴先生，兩三個月前說，他們（中共）永遠不會把那個（基因組序列）給你，因為他們就是想占領疫苗的高地，向全世界宣布：“嘿，你們得向我們叩頭，因為我們可以拯救世界。”
-5. (郭文貴先生，8/25）如果（這些地方）“一中”政策都沒了，拜登，民主黨這大會，就這一句，就這一個政策，勝過千千萬。你們一定要意識到，那共產黨那就不是說你是非法政府合法政府了，你就是犯罪集團了你。
+今年在加拿大大部分地區，超劑量服用鴉片類藥物人數和因此導致死亡的人數都創下了該國歷史新高。自新冠病毒大流行以來，僅在多倫多地區，由於過量攝入該類毒品而致死的人數就增加了85％。
 
+而在不列顛哥倫比亞省，因同樣原因報告的死亡人數增加了130％，急救車護理人員為此日夜疲於奔命，平均每天要處理87宗超劑量攝毒個案。
 
-1. In America, over 100 million Americans’ personal information may have been stolen by TikTok, the latter filed a lawsuit against the Trump’s administration, which was revealed by the Global Times – the Chinese Communist Party (CCP) media. Such a lawsuit was obviously instructed by CCP.
-2. Life in Xinjiang under Red Terror. In one part of Xinjiang where expressing personal grievances is forbidden, the CCP has blocked the information on social media in fear of letting the world know about the atrocities committed by the Chinese Communist Party.
-3. The CCP said the virus would not transmit between people, but it turns out it did; the CCP said that the virus would not cause a global pandemic, we are living in it every day; Now the CCP advises everyone not to store food, well, you know what you have to do?
-4. (Steve Bannon) The Chinese announced that they’ve got [guess what] a vaccine. They’re trying putting people on a vaccine. It looks like they’re trying to show their muscle. The controversial Miles Guo, said 2 or 3 monthes ago, they (CCP) are never gonna give that (genome sequence)  to you because what they want to do is get on top of a vaccine and then come forward to the world and say “Hey we’re the saviors of the world you’ve got to kow-tow to us.”
-5. (Miles Guo, 8/25) If “One China policy” is removed, Joe Biden, the DNC (Demoncratic National Convention), this policy alone works better than a thousand others. You must understand, if that happens, then the issue is not only whether or not the CCP is a  legitimate government, but the CCP will be deemed a criminal gang.
+譚醫生繼續表示，合法化噬服芬太尼，嗎啡和可卡因等鴉片類毒品是可選擇的應對措施之一，其最終目的是希望所有吸毒者能夠更安全地獲得該類藥品。
 
+與此措施相呼應的是，特魯多的自由黨政府正在努力擴大該鴉片類毒品注射站的使用度。例如，僅在上週聯邦政府就花費了納稅人高達60萬加元來加強芬太尼等毒品注射站的運作，以此確保向多倫多地區的吸毒者“安全供應”該類鴉片劑。
+
+與此同時，近年來發生在毒品注射站的超劑量吸毒個案數飆增，僅在2017年至2019年期間就發生了15,000起由以上原因導致的緊急醫療事故。
+
+在艾伯塔省衛生局（Alberta Health）3月份發布的一份報告中顯示，鴉片類毒品注射站的存在實際上導致了其所在社區內過量服毒人數和相關犯罪案件數的急劇增加。
+
+該報告還指出：“除埃德蒙頓外，其他相關地區均已確認：毒品注射站的存在對當地社區產生了及其負面的社會和經濟影響。”但據知情人透露，在埃德蒙頓，由於擔心遭到毒品注射站癮君子們的恐嚇和報復，該站的利益相關者被迫發表了與其真實感受和觀點相反的意見和結果。
+
+評論：
+
+眾所周知，包括芬太尼在內的鴉片類毒品近年來在加拿大許多社區內暗中氾濫，並由此而引起的各種嚴重社會問題已成為各界有目共睹的可悲事實。但以特魯多為首的聯邦政府卻對此視而不見，聽而不聞！不僅沒有積極投入精力從根本上解決這一社會毒瘤，甚至背道而馳地大量揮霍納稅人的資金，以減少犯罪率和降低過量吸毒致死率為名，在各地多個社區建立鴉片類毒品注射站以滿足眾多癮君子的生理需求。這種揚湯止沸式的愚蠢舉措，與揮刀自宮無異！亦如舉巨石夯己之頭，百害而無一益！
+
+現如今在中共病毒瘋狂施虐加拿大的危殆情形之下，為加快加深荼毒無辜黎民百姓的邪惡罪行，以加拿大首席公共衛生官譚詠詩醫生為首的中共在加拿大的代言人，急不可耐地撕破其救死扶傷的天使畫皮，毫不隱諱地再次充當中共殘忍禍害世人的爪牙和儈子手。喪盡天良地妄圖合法化吸食芬太尼這一在中共國被大量生產並最終出口散佈於世界各地且極度危害人類生命安全和健康的毒品在加拿大的推廣使用。儘管假以合法化服用該毒品是為了更安全吸毒降並低死亡率之名，但其見利忘義，助共為虐，戕害生靈的罪惡企圖，明明如司馬昭之心，路人盡知！
+
+兒科流行病醫生譚詠詩，在加拿大新冠病毒疫情期間攜惡而出，並因其始終對中共控制的世界衛生組織違背真相的抗疫政策唯命是從而被其主席譚德塞推薦成為加拿大首席公共衛生執行官。此前，她曾在加拿大公共衛生署擔任過多個領導職務，包括傳染病預防和控制部門的副部長。她還參與處理了幾項加拿大公共衛生緊急事件，包括中共病毒1.0版的SARS，來自解放軍病毒實驗室的H1N1禽流感和埃博拉病毒以及現在源於中共P4實驗室的新冠病毒疫情。今年年初，該身居加拿大公共衛生部門要職的首席執行官面對中共病毒在武漢的大爆發其回應是：“無論疫情是由什麼原因引起的，迄今為止，沒有任何實質證據表明該病毒會人傳人和大爆發。照顧病人的醫護人員也沒有因此染疾，這是個好兆頭”。不僅如此，她甚至發表全國公告，勸諭加拿大人在疫情流行期間無需戴口罩防範病毒，並稱政府拒絕來自新冠病毒氾濫國家的旅客入境（對控制疫情）不會起太大作用。結果是，在其蓄意誤導之下，由於沒有及時採取封關和執行自我隔離等有效防疫措施而導致了當時加拿大中共病毒感染人數斷崖式的攀升，並因此引起了社會的極度惶恐和經濟的嚴重衰退。其以上種種無恥違背基本醫德，蓄謀掩蓋病毒事實真相，惡意罔顧本國人民生命和健康的卑拙行徑，讓其現今在加拿大的政界中臭名昭著，惡行遠揚！為此，不久前聯邦保守黨黨魁競選候選人之一的斯隆就嚴厲指責譚詠詩醫生完全聽命於中共操控的世界衛生組織，並堅決質疑其對新冠病毒疫情的防治不力，以及她與世界衛生組織（WHO）監督委員會的苟且合作。斯隆稱世衛組織就是低頭匍匐在中共惡魔膝下任其差之不折不扣的“傀儡”，並一針見血地指控這個聯合國下屬組織“不遺餘力地應中共國的要求掩蓋了CCP病毒疫情真相，致全世界億萬人的生命於危險之中而不顧。”
+
+隨著新中國聯邦奠基人郭文貴先生引領的爆料革命對中共企圖控制全世界的邪惡野心和對氾濫於各國的CCP病毒疫情真相不斷成功深入地揭露，以川普總統為首的美國及其同盟經已覺醒，真正明白了剷除中共是全世界正義和安全之必須。並因此逐漸形成了強大的滅共聯盟。徹底從地球上抹滅中共的時刻指日可待！從地獄來的魔鬼必將被上天之神再次焚葬於地獄之底！有鑑於此，試問無恥門鬼譚詠詩醫生：惡魔中共現已狀如塚中之枯骨，爾等欺民逆賊尚能苟延安寢否？ ！
 
 0

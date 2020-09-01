@@ -1,31 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共數據顯示北京仍在持續進口伊朗石油
-`2020-09-01 05:43 GM36` [轉載自GNews](https://gnews.org/zh-hant/327741/)
+## 滅共經濟學
+`2020-09-01 08:54 GM30` [轉載自GNews](https://gnews.org/zh-hant/328078/)
 
-編撰：天使、淨水-源、文肯尼; 審稿：文橙
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01054122/901_1.jpg)
-自今年6月份起，北京暫停報告其從伊朗伊斯蘭共和國進口原油後，本周剛恢復數據報告。 **據最新中共官方數據顯示，中共** **7** **月份平均每日從伊朗進口** **12** **萬桶** **/** **日石油。**
+**作者：Xingfffooo**
 
-根據法塔電台報導的中共海關數據，今年1月至7月，中共從伊朗的石油進口量平均為7.7萬桶/日，比美國重新對伊朗石油工業和出口實施制裁前中共報告的數字低9倍。
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084400/%E5%B9%BB%E7%81%AF%E7%89%871.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084426/%E5%B9%BB%E7%81%AF%E7%89%872.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084456/%E5%B9%BB%E7%81%AF%E7%89%873.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084514/%E5%B9%BB%E7%81%AF%E7%89%874.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084538/%E5%B9%BB%E7%81%AF%E7%89%875.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084555/%E5%B9%BB%E7%81%AF%E7%89%876.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084612/%E5%B9%BB%E7%81%AF%E7%89%877.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084630/%E5%B9%BB%E7%81%AF%E7%89%878.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084649/%E5%B9%BB%E7%81%AF%E7%89%879.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084705/%E5%B9%BB%E7%81%AF%E7%89%8710.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084723/%E5%B9%BB%E7%81%AF%E7%89%8711.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084740/%E5%B9%BB%E7%81%AF%E7%89%8712.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084758/%E5%B9%BB%E7%81%AF%E7%89%8713.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084816/%E5%B9%BB%E7%81%AF%E7%89%8714.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01084835/%E5%B9%BB%E7%81%AF%E7%89%8715.jpg)
 
-**但實際上，根據各種報導、媒體調查以及油輪跟踪公司的數據顯示，中共從伊朗獲得的石油比官方數字報告的多得多。**
 
-中共海關數據報告的中共從伊朗進口的石油量，與數據情報公司Kpler向法塔電台提供的數據一致。
-
-但是，根據Kpler的數據，有一艘油輪試圖掩蓋中共從伊朗進口石油的真相，將貨物標註為”印尼石油”。
-
-那艘名為”Giessel”的油輪是加勒比海島國聖基茨和尼維斯被剝奪旗幟的四艘油輪之一。此前，NBC新聞的調查發現，有多達15艘掛著不同旗幟的油輪操縱追踪器，以規避美國對伊朗石油出口的製裁。
-
-NBC新聞早前的調查發現，這些油輪關閉追踪器是為了掩蓋它們違反美國對伊朗石油業的製裁，前往伊朗海域裝油出口的事實。
-
-**據美國全國廣播公司新聞報導（** **NBC** **），** **TankerTrackers.com** **的數據顯示，伊朗出口的原油比美國數據顯示的要多得多。**
-
-根據數據，伊朗的出口量高達60萬桶/日，採用關閉應答器以避免被發現的船對船轉運方式以規避美國的製裁。 **NBC** **的** **RafSanchez** **在推特上寫道，這個日均數字與美國國會報告中估計的** **22.7** **萬桶** **/** **日相比，簡直是天壤之別。**
-
-新聞鏈接：
-
-[https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm](https://www.federalreserve.gov/newsevents/speech/bowman20200826a.htm)
+（文章內容僅代表作者觀點）
 
 0

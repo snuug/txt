@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王毅：你敢訪台？捷克：咋地？咬我？
-`2020-08-31 13:27 GM36` [轉載自GNews](https://gnews.org/zh-hant/326931/)
+## 【中英文視頻版】2020/08/25～26 CCP病毒每日疫情直播簡報
+`2020-08-31 21:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/327117/)
 
-編撰：JAY、文盲2020、文肯尼; 審稿：文橙
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31131910/831_.png) 2020年8月26日，捷克參議院主席Milos Vystrcil在捷克共和國布拉格接受路透社採訪時講話（路透社圖片）。 
-。
+英文標題 CCP Virus Pandemic Updates Ep 214-215:  over 100 million Americans’ personal information may have been stolen by TikTok
 
-北京（路透社）–據中共外交部周一發表的一份聲明稱，中共高級外交官王毅表示，捷克參議院議長米洛斯-維斯特奇爾（Milos Vystrcil）對台灣進行正式訪問，將為違反一個中國原則”付出沉重代價”。
+視頻簡介
 
-Vystrcil於週日抵達台北。他說，他的訪問將促進與台灣之間的商業聯繫，捷克共和國不會向北京低頭。
+1. TikTok可能盜取了1億美國人的個人信息，中共黨媒環球網為TikTok起訴川普政府虛張聲勢。面對川普堅定的脫鉤策略，中共指使抖音在美國起訴川普政府。
+2. 紅色恐怖下的新疆人的生活。在新疆某地禁止百姓宣洩不滿，中共禁止在社交媒體傳消息，當局擔心傳到互聯網上讓世界知道中共的暴行。
+3. 中國說疫情不會人傳人，結果疫情人傳人；中共說病毒不會大流行，結果病毒大流行；現在中共勸大家不要屯糧，明白該做什麼了嗎？
+4. (8/24）（Steve Bannon）中國宣布他們已經開發出了疫苗，他們正試圖讓人們接種，看起來他們已經開始利用疫苗來秀肌肉。備受爭議的郭文貴先生，兩三個月前說，他們（中共）永遠不會把那個（基因組序列）給你，因為他們就是想占領疫苗的高地，向全世界宣布：“嘿，你們得向我們叩頭，因為我們可以拯救世界。”
+5. (郭文貴先生，8/25）如果（這些地方）“一中”政策都沒了，拜登，民主黨這大會，就這一句，就這一個政策，勝過千千萬。你們一定要意識到，那共產黨那就不是說你是非法政府合法政府了，你就是犯罪集團了你。
 
-“我們將讓他為他的短視行為和政治機會主義付出沉重的代價，”王毅在德國訪問時說。
 
-王毅說，挑戰一個中國原則等於”與14億中國人民為敵”，中共政府和人民不會容忍捷克參議院議長及其背後反華勢力的這種”公開挑釁”。
+1. In America, over 100 million Americans’ personal information may have been stolen by TikTok, the latter filed a lawsuit against the Trump’s administration, which was revealed by the Global Times – the Chinese Communist Party (CCP) media. Such a lawsuit was obviously instructed by CCP.
+2. Life in Xinjiang under Red Terror. In one part of Xinjiang where expressing personal grievances is forbidden, the CCP has blocked the information on social media in fear of letting the world know about the atrocities committed by the Chinese Communist Party.
+3. The CCP said the virus would not transmit between people, but it turns out it did; the CCP said that the virus would not cause a global pandemic, we are living in it every day; Now the CCP advises everyone not to store food, well, you know what you have to do?
+4. (Steve Bannon) The Chinese announced that they’ve got [guess what] a vaccine. They’re trying putting people on a vaccine. It looks like they’re trying to show their muscle. The controversial Miles Guo, said 2 or 3 monthes ago, they (CCP) are never gonna give that (genome sequence)  to you because what they want to do is get on top of a vaccine and then come forward to the world and say “Hey we’re the saviors of the world you’ve got to kow-tow to us.”
+5. (Miles Guo, 8/25) If “One China policy” is removed, Joe Biden, the DNC (Demoncratic National Convention), this policy alone works better than a thousand others. You must understand, if that happens, then the issue is not only whether or not the CCP is a  legitimate government, but the CCP will be deemed a criminal gang.
 
-一個中國原則指的是中國和台灣都屬於”一個中國”，這是北京要求所有與其有外交關係的國家都必須遵守的立場。
-
-中共認為台灣是中共一個不可分離的省級行政區域，沒有資格建立國與國之間的關係。
-
-**評語：**
-
-中共嘴炮部長王毅此次訪問歐洲，一路遭到抵制，受到正義力量的窮追猛打，不但不長記性，還四處忽悠歐洲，辯護CCP病毒不是中共所為。嘴砲王毅以前靠假擀麵杖四處招搖撞騙，現在歐洲大地處處受CCP病毒折磨，這次歐洲徹底警醒了，中共在歐洲遭白眼和冷遇當然是再正常不過的了。不管是捷克還是歐洲其他國家，訪台都是他們本國自己事務，CCP猴急也沒用。
-
-本次台灣防疫工作深受全球好評，新西蘭等國效仿台灣防疫工作已得到明顯改善。美國政府也伸出橄欖枝，前段時間美國衛生部長也訪台並與台灣當局進行了磋商並達成了多項合作。種種跡象表明，台灣在某些方面比中共做得更出色，受人尊重。而中共一味霸凌，武力恐嚇台灣，想製造第二個香港的邪惡想法早已路人皆知，不得人心。
-
-王毅部長動輒拉出14億中國老百姓做背書，又玩了一把代表全國人民的把戲。國內14億同胞同樣遭受感染CCP病毒折磨的巨大風險，你王毅部長上前線支援了麼？大陸地區洪水氾濫，糧食歉收，大量失業，經濟崩潰，王毅部長你關注了麼？谁愿意被中共這種邪惡的體制所代表？好處中共全拿走，準備打仗了，又忽悠國人被你們綁票上前線？絕不可能。
-
-中共戰狼外交，世人皆知。中共滅亡已經是勢不可擋。所有正義國家的力量都已經站出來對抗共產主義幽魂——中共，我們牆內的14億人同胞更要站起來，Take down CCP！
-
-新聞鏈接：
-
-[https://www.reuters.com/article/us-taiwan-czech-china/china-says-czech-senate-speaker-must-pay-heavy-price-for-taiwan-visit-idUSKBN25R059](https://www.reuters.com/article/us-taiwan-czech-china/china-says-czech-senate-speaker-must-pay-heavy-price-for-taiwan-visit-idUSKBN25R059)
 
 0
