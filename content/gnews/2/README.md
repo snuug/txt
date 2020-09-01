@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友點評】不畏国安恶法 太子站恐襲一年 真相不會被遺忘
-`2020-09-01 14:01 GM42` [轉載自GNews](https://gnews.org/zh-hant/328463/)
+## 2020/08/29 全球抗议速写之一：生化武器
+`2020-09-01 15:10 Mr.Sheep` [轉載自GNews](https://gnews.org/zh-hant/326350/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-戰友評論：恩典/點蒼山
-後期製作：文粵
+继7/27全球大游行之后，8/29的新中国联邦抗议活动也在全球各地展开，战友们在包括台湾，日本，美国旧金山和洛杉矶，德国慕尼黑等地均开展了抗议活动，蓝色的新中国联邦旗帜和金色的信仰之星在阳光下飘扬。
+
+这次的抗议活动，主题包括声援香港抗争者，为中国大陆受灾人民祈福，但最重要的还是揭露中共病毒(aka. COVID-19)的真相。从香港运动可以看出，当今世界经济政治都处于大变革前夕，所以政治家都处于相对保守的状态，在美国决定支持香港之前，几乎没有国家敢于站出来为了正义，捍卫香港自由而挑战中共。
+
+2020/08/29新中国联邦全球灭共抗议活动中，在德国慕尼黑，台北，日本大阪，美国洛杉矶等地联合展开，要求中共交代清楚病毒真相，以下是抗议的精彩瞬间。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01172715/Germany-scaled.jpg)**德国慕尼黑的奥迪安广场（Odeonsplatz）上欧洲各国战友联合抗议**
+此时中共释放病毒，无论是什么给予什么背景，其必定是在内外巨大压力下做出的误判。既往过去七十年的历史，1989年的天安门大屠杀属于第一次误判，当时国际的社会绥靖政策为主，不痛不痒的放过了中共，全世界资本沆瀣一气把中国变成了血汗工厂。然而共产主义的终极问题之一就是会导致经济的崩溃，此次在2019年尾释放出的中共病毒，是对全球各国的第二次考验。
+
+我们看到台湾的战友也积极的站出来支持香港和捍卫台湾民主，要求中共交代病毒真相。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01172131/Taipei.jpeg)**台北自由广场的台湾战友捍卫台湾民主，声援香港和要求中共交代病毒真相**
+在洛杉矶的抗议中，来自图桑农场的战友们打出了CCP Lied, Americans Died的标语。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01173908/Tuscan.jpeg)
+在洛杉矶中共总领事馆前，在美国国旗和新中国联邦旗帜的映衬下，我们的抗议不怒自威。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31163733/829-Virus-LA-2.jpeg)**我们靓丽的女战友帅气的举着世界需要病毒真相的牌子**
+在大阪最繁华的商业区，「中共生物兵器」的标语直击人心。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31164218/829-Virus-Japan-1-1.jpeg)**日本大阪的战友用日语打出了病毒是「中共生物兵器」的横幅，颇有日漫之风**![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31163723/829-Virus-LA-1.jpeg)**Truth of COVID-19: CCP BIOLOGICAL WAR AGAINST THE USA!**
+当年1989年各国没有为解放中国人民站出来，导致30年后的今天，中共的魔爪在各国肆虐，手上占满了全球人民的血债，此是天道轮回，若是中共此次不灭，世界的灭亡则不远矣。
+
+我们也欣喜的看到，全球联合对中共追责的态势已经形成，王毅的欧洲五国出访铩羽而归，对捷克的威胁也遭致捷克政府的强硬回击，德国也表示和欧盟国家站在一起，当世界看清楚了中共的邪恶和对中国人民的绑架之后，中共的土崩瓦解指日可待。
 
 
-
-8.31太子站恐襲一周年前夕，有網民發起於旺角新世紀廣場舉行毋忘8.31行動。數十名市民下午於商場內，警方其後再表示，商場內有人一度高叫「光復香港 時代革命」的口號，有機會觸犯《香港國安法》下相關罪行。而截至下午4時半，警方在旺角共票控6男5女，涉嫌違反限聚令
-
-資料來源：蘋果日報
-
-[https://hk.appledaily.com/local/20200830/ABWCSRRHUJFUBOO2MFSHU263BM/](https://hk.appledaily.com/local/20200830/ABWCSRRHUJFUBOO2MFSHU263BM/)
-
-[https://hk.appledaily.com/local/20200831/3V3IVSTIH5G2PFAOXFKEMM7ZOI/](https://hk.appledaily.com/local/20200831/3V3IVSTIH5G2PFAOXFKEMM7ZOI/)
-
-[https://hk.appledaily.com/local/20200831/76CXFYNXQ5EPTOFCSZ6EPDGYOM/](https://hk.appledaily.com/local/20200831/76CXFYNXQ5EPTOFCSZ6EPDGYOM/)
 
 0
