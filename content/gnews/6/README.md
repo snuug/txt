@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Applico公司CEO莫阿茲德：對美國收購抖音感到擔憂
-`2020-09-01 08:21 GM65` [轉載自GNews](https://gnews.org/zh-hant/327961/)
+## 北京黨媒發力抹黑蓬佩奧是「三姓家奴」「政治病毒」
+`2020-09-01 11:29 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/328300/)
 
-翻譯：奔騰的長江校對、字幕：麥子
- 
+By：【秘密翻譯組G-Translators】
+
 0
