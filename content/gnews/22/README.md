@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共想要參與美國政治,併計劃要在美國散播更多的病毒。如果不行動,美國的黑暗時刻即將到來
-`2020-08-31 06:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/326384/)
+## 每日政要Twitter播報(中文)08/31期(視頻+ PDF下載)
+`2020-08-31 09:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/326618/)
 
-8月29日班農戰斗室連線文貴：我認為中共已經介入了本次美國總統大選，中共想要把川普總統趕下台，並參與美國政治；另外，中共已經計劃要在美國散播更多的病毒；另外，中共在美國進行準備，它們正在部署間諜系統；如果不行動，美國的黑暗時刻即將到來。
+撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3
 
-
-
-By：【秘密翻譯組G-Translators】
+[每日政要推文-8-31](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31092705/%E6%AF%8F%E6%97%A5%E6%94%BF%E8%A6%81%E6%8E%A8%E6%96%87-8-31.pdf)
 
 0
