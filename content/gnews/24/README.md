@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報(中文)09/01期(視頻+ PDF下載)
-`2020-09-01 21:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/328736/)
+## 內蒙古局勢升溫: 多地學校抗議, 學生拒絕上課， 抵制中共對蒙古族的文化清洗政策!
+`2020-09-02 00:08 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/329562/)
 
-撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
-
-[每日政要推文9月1日](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01194055/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879%E6%9C%881%E5%8F%B7.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01194055/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879%E6%9C%881%E5%8F%B7.pdf)
-
+中共要求內蒙學校不許用蒙古語授課。多地學校抗議，拒絕上課，抵制中共對蒙古族的文化清洗政策。
+視頻來源：推特視頻來源：推特
 
 
 0
