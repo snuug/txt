@@ -1,20 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对文贵先生释放股权的一点感想
-`2020-09-02 04:35 erzun250` [轉載自GNews](https://gnews.org/zh-hant/329570/)
+## 中共病毒免疫時間短有二次感染風險,若不搞清楚就無法研製出有效的疫苗（法語French+英語English）
+`2020-09-02 09:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/329966/)
 
-这是一种爱与信任的回馈。三年的爆料革命，已经无法用言语来表达对文贵先生和所有的战友之间的这种感情。从419断播，YouTube删除视频，再到Twitter的禁言，最终来到我们自己的GTV。自己曾经模糊无知的三观，彻底的崩塌，从而确立了自己新的人生目标，那就是打倒中国共产党，对于文贵先生发起的这场爆料革命，从未怀疑，从未退缩，这便是一种信任吧。
+法語翻譯：Naomi(文花开) 法語校對：黄玫瑰法国女郎 字幕製作：小羽 視頻校對：道一
 
-五月中旬，在病毒依然肆虐的一个普通日子里，有一位女士，冥冥中仿佛有神的旨意，带着文贵先生的信任和日本战友的期盼，组建了喜马拉雅日本樱花团，战友之间从未有过谋面，彼此一点都不了解，可是我们心中有着共同的理想，大家走到了一起。刚开始时，发生了小小的波澜，但这些都成为了过眼云烟。在经历了727、829游行的100多个日日夜夜后，我们樱花团的战友们，变得彼此更加信任，更加团结。我们的长腿美魔女团长，帅气村长，还有许许多多的小哥与大姐们 不负文贵先生重托和战友们的信任，彼此包容，谦卑礼让。我们的樱花团，为了我们的同胞，为了我们故乡的亲人，为了我们的子子孙孙，不再受那个邪恶魔鬼的统治，勇敢地向着喜马拉雅进发。
-文贵先生之厚爱，将数千亿的原始股票赠予各喜马拉雅农场的战友，这是君子之承诺，要让相信他的战友都过上体面的生活，这种厚爱与魔鬼的统治，形成鲜明的对比。什么才是正义？什么是邪恶？希望更多更多的国内的同胞，早日清醒过来，与我们的爆料革命战斗在一起，推翻那个统治了我们几代人的魔鬼共产党，还天地于正气，还人间于正道。
+法語標題 Le risque d’infection secondaire en corrélation avec un vaccin efficace impossible sans une compréhension claire du virus
 
-豫东小哥
+視頻簡介
+Un cas de réinfection rapporté de HK montre que le SRAS-CoV-2 peut présenter diverses mutations qui peuvent entraîner la réinfection des personnes à plusieurs reprises.
 
-9月1日秋夜
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02042126/autumn07.jpg)
-```
-                                          
-```
-
-1
+0

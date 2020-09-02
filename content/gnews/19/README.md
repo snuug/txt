@@ -1,39 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 近期G-TV平台視頻直播功能升級嘅價值一個支持視頻聯線、直播及加工製作嘅完備平台
-`2020-09-02 02:03 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/329399/)
+## 中共病毒免疫時間短有二次感染風險,若不搞清楚就無法研製出有效的疫苗（法語French+英語English）
+`2020-09-02 09:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/329966/)
 
-作者：whoisgod
+法語翻譯：Naomi(文花开) 法語校對：黄玫瑰法国女郎 字幕製作：小羽 視頻校對：道一
 
-美東時間8月31日文貴先生喺直播中介紹咗G-TV近期嘅升級,將支持基於OBS Studio視頻流媒體製作軟件,第三方攝錄機及文本、圖、視頻和音樂文件嘅播放。 並且喺9月1日嘅直播中,文贵先生又進行咗有關功能嘅測試。 本人認為係G-TV一次革命性嘅升級,使得原來僅支持封閉式嘅遠程會議系統( Conference Call )直播嘅G-TV真正咁成為一個不僅支持遠程連線並且仲可以開放性地支持流媒體視頻直播及製作同播放嘅強大媒體平台。
+法語標題 Le risque d’infection secondaire en corrélation avec un vaccin efficace impossible sans une compréhension claire du virus
 
-由於前期美國媒體對文贵先生爆料革命嘅各種打壓,文贵先生決定透過自建平台嚟進行發聲,創建了G-TV平台。 希望G-TV喺直播功能上可隨時隨地、拿起手機即可進行聯線直播,要方便用戶操作,簡單易用。 功能主要係把遠程視頻會議嘅功能透過流媒體嘅形式直接喺G-TV上進行廣播,如圖1所示。 G-TV嘅上線,功能確實好好咁滿足了爆料革命初期需求,並且經受住咗喺中共黑客不斷進攻中、內部開發人員變節破壞以及單項視頻直播用戶數量達到千萬以上級別下嘅規模性同健壯性嘅考驗。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02014303/image-6.png)
-
-圖1初始G-TV直播功能。
-
-但係呢個G-TV直播功能,G-TV嘅戰友在使用過程會發現,直播中要對視頻進行有關加工緊,比如視頻混合及切換、音頻、圖同文本文件嘅插入、加入視頻內容說明及logo等嘅層次編輯好難多,直播視頻畫面好鬼嘅原始同嚡。 因此有些農場戰友們就使用像類似于OBS Studio噉嘅視頻直播編輯軟件嚟對G-TV嘅直播畫面進行加工製作,然後推流到第三方嘅流媒體直播平台,比如youTube。 但係加工製作過嘅直播視頻無法再實時地推入到G-TV直播平台中。 主要係因為G-TV直播係封閉嘅遠程會議系統加視頻流廣播,如圖2所示。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02014325/image-7.png)
-
-圖2初始G-TV直播功能推流到第三方平台。
-
-而本次嘅GTV升級係將原來封閉嘅遠程視頻會議到視頻流服務器之間嘅通道打開了缺口,使其視頻信號可以由遠程視頻會議系統引出,並提供開發入口進入到視頻流服務器中,如圖3所示。 咁G-TV直播功能即可支持前期簡易操作嘅視頻聯線直播,又可對聯線視頻進行各種加工製作,要視頻直播內容其更加豐富多彩,提供更多有用信息。 正如文贵先生所講嘅撐OBS  Studio嘅視頻直播製作,能夠支持更多嘅攝錄機,能夠支持各種文本、圖、視頻、音頻嘅穿插、切換同混合等。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02014417/image-8.png)
-
-圖3升級嘅G-TV直播功能。
-
-實際上今次嘅升級對G-TV平台嘅提升遠遠不止上面所講嘅咁啲,將係一次革命性嘅平台升級。 它使得G-TV平台更加開放,能夠利用而家已有的所有相關視頻技術產業嘅資源,支持高質量嘅視頻直播同加工製作,如圖4所示。 比如與第三方遠程視頻聯線系統平台嘅集成和視頻流發佈,比如Skype、Google  Meeting、WebexWebex等;支持更多第三方類似于OBS  Studio嘅專業視頻、音頻軟件直播加工製作;支持更多第三方視頻、音頻製作硬件公司,比如Roland、Blackmagic  Design、Rode等。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02014432/image-9.png)
-
-圖4升級之後嘅G-TV直播功能所能形成嘅產業生態鏈。
-
-本次嘅G-TV直播功能嘅升級,為G-TV打下了未來視頻直播平台嘅重要基礎,可支持更多產業鏈第三方相關嘅技術、產品同服務,為高質量嘅直播節目嘅製作打開了大門,可吸引更多嘅用戶製作豐富多彩嘅視頻直播節目及觀眾。 喺新舊世界嘅轉換之際,我哋信G-TV將不斷的發展壯大,成為一個全世界人們,特別是華人,一個真實地表達自己嘅媒體平台。
-
-今次升級再次證實咗文贵先生對G-TV嘅諾千金。 我哋都更加期待更多戰友嘅精彩節目將喺G-TV上競相綻放。
+視頻簡介
+Un cas de réinfection rapporté de HK montre que le SRAS-CoV-2 peut présenter diverses mutations qui peuvent entraîner la réinfection des personnes à plusieurs reprises.
 
 0

@@ -1,14 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒免疫時間短有二次感染風險,若不搞清楚就無法研製出有效的疫苗（法語French+英語English）
-`2020-09-02 09:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/329966/)
+## 樱花叙语，朵朵唯真，瓣瓣相随
+`2020-09-02 12:24 xbwen7m` [轉載自GNews](https://gnews.org/zh-hant/330276/)
 
-法語翻譯：Naomi(文花开) 法語校對：黄玫瑰法国女郎 字幕製作：小羽 視頻校對：道一
+作者：魔女Peace
 
-法語標題 Le risque d’infection secondaire en corrélation avec un vaccin efficace impossible sans une compréhension claire du virus
+本人魔女Peace是日本樱花团的发起人和现在团队的核心领导者。建立初衷是以自己的经历，希望分散在日本各地的战友们不要在孤独的环境中独自作战。给大家提供一个相聚、互勉互助的平台。在爆料革命发起人郭文贵先生的鼓励下，于2020年5月底正式在LINE问世。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02121805/peace0902-1.jpg)
+以本人的经历和能力的确不是最佳人选。但事态的严峻、疫情的蔓延、中共的疯狂、各国媒体的谎言、日本民众的不觉醒、战友急需交流的空间，使我不得不当仁不让。
 
-視頻簡介
-Un cas de réinfection rapporté de HK montre que le SRAS-CoV-2 peut présenter diverses mutations qui peuvent entraîner la réinfection des personnes à plusieurs reprises.
+日本樱花团是由爆料革命忠实的跟随者、郭文贵先生长期的关注者、痛恨中共恶行的有良心者、有正义和民主信仰的深刻理解的人群、相信G系列发展前途的投资者为基础的一个自愿自由参加的无偿团体。以ONE FOR ALL, ALL FOR ONE为口号互勉、互爱、互助。以打倒中国共产党为现阶段目标的行动、行动、行动。以喜马拉雅农场建设为长期理想的学习、投资、创收，争取最大利益为发展的民间团体。
+
+日本樱花团在郭文贵先生的直接领导下，在爆料革命的最前沿，包括社交平台，Twitter、Youtube、G-TV、G-News进行宣传。以日文版形式向日本民众宣传真相与真理。用我们的文字、声音、抗议等活动进行斗争，为真不破。相信中华民族的重新崛起和振兴。相信爆料革命必胜。
+
+二零二零年八月二十七日
 
 0
