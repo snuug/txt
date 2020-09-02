@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共四騎士之一蓬佩奧國務卿被中共北京瘋狂詆毀
-`2020-09-01 16:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/328548/)
+## 中共印發《進一步推進新冠病毒核酸檢測能力建設工作方案》，為CCP病毒秋冬季再次大爆發做準備
+`2020-09-01 21:26 GM01` [轉載自GNews](https://gnews.org/zh-hant/328938/)
 
-滅共四騎士之一蓬佩奧國務卿於日前被中共北京衛視瘋狂詆毀，顯示出中共最後的瘋狂。
+国内新聞作者:文文
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01212311/E4C1D74D-BB55-4DBA-A222-F761076C9FAD.jpeg)
+8月31日中共國務院印發了《進一步推進新冠病毒核酸檢測能力建設工作方案》。該方案提出以下兩個目標：
 
-「妖言惑眾， 喪失底線， 人類公敵， 政治病毒， 美國史上最差國務卿。 讓他往東，他絕不往西， 讓他咬誰，他就立馬張嘴。 曾經的川普反對者， 為何演變為當今人見人厭， 國見國煩的謊言製造者。 美國國會議員， 美國國務卿， 美國中央情報局局長， 政治素人彭培奧， 一路躺贏的秘訣究竟是什麼 ？ 可以說是乾啥啥不行， 抱大腿第一名。 我們撒謊，我們欺騙，我們偷竊， 彭培奧罕見坦誠的背後， 又隱藏著哪些醜惡的故事。 政治傀儡， 外交庸人的拙劣表演仍在繼續， 北京衛視檔案將為您起底三姓家奴彭培奧的荒誕人生。」
+1. 2020年9月底前，轄區內三級綜合醫院、傳染病專科醫院、各級疾控機構以及縣域內至少1家醫院具備核酸採樣和檢測能力。
 
-“Deceiving the world, forfeiting the principles and morality, the public enemy of humankind, the political virus, the worst Secretary of State of the U.S. ever. Ask him to head east, he dare not turn west. Ask him to bite someone, he snaps with no hesitation. How does a used-to-be Trump opponent, turn into a lie generator loathed by everyone, dishonored by every country. Started as a congressman, then was the director of CIA, now become the Secretary of State of the U.S… What is the secret of a political amateur effortlessly succeeding throughout his entire political career? Feckless and incompetent, good for nothing but riding other’s coattails. “We lied, we cheated, we stole.” – how many disgraceful stories are covered by Pompeo’s uncommon frankness? Here it continues the clumsy hoax performed by this political puppet and diplomatic mediocre. Beijing TV Archives will unveil Pompeo’s absurd life and his servant career for the past three presidents.”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18211113/22_8.105.jpg)
-【編者注】中共國沒有獨立媒體，所有媒體皆為中共控制的喉舌，是共產黨宣傳的工具。北京衛視同中共中央電視台（CCTV）本質沒有不同。
+2. 2020年底前，所有二級綜合醫院具備核酸採樣和檢測能力，形成快速反應的調集機制，具備在發生局部聚集性疫情時較短時間內完成人群核酸檢測的能力。
 
-相關新聞：[滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
+在《方案》中中共要求城市檢測基地檢測能力應達到1萬份/天，發生疫情時通過增加班次達到3萬份/天。並在全國選取100家大型公立醫院、疾控中心建設公共檢測實驗室。每個公共檢測實驗室要具備1萬份/天的檢測能力，配備移動方艙實驗室（移動生物安全二級實驗室）及相關輔助移動設施，全國形成100萬份/天的機動檢測儲備能力。
 
-翻譯：【ddm】字幕：【相機過熱啊】聽寫：【羅賓 Robin (文賓) 】助理：【Melody太陽的旋律】編輯：【Michelle】
+中共還計劃建立片區機動支援制度。將全國劃分為8個片區，每個片區形成50萬—70萬份/天的機動核酸檢測能力。
 
-戰友之家玫瑰園小隊出品
+這一《方案》的印發說明中共正在對今年秋冬及明年有可能的CCP病毒再次爆發做準備，可見病毒再次大規模爆發的可能性很高。這種可能性來源於再次放毒或原本潛伏在人群中的病毒再次流行。
 
-> [滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
+對於牆內普通民眾而言，一定不能放鬆對CCP病毒的防控。需要備好個人防護用品（口罩、手套）、消毒用品及預防/治療性藥物。
 
 0
