@@ -1,71 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一顆勇敢的心
-`2020-09-01 11:33 GM77` [轉載自GNews](https://gnews.org/zh-hant/328342/)
+## 滅共四騎士之一蓬佩奧國務卿被中共北京瘋狂詆毀
+`2020-09-01 16:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/328548/)
 
-————**8/30新中國聯邦臺北場遊行紀實**
+滅共四騎士之一蓬佩奧國務卿於日前被中共北京衛視瘋狂詆毀，顯示出中共最後的瘋狂。
 
-作者：華文
+「妖言惑眾， 喪失底線， 人類公敵， 政治病毒， 美國史上最差國務卿。 讓他往東，他絕不往西， 讓他咬誰，他就立馬張嘴。 曾經的川普反對者， 為何演變為當今人見人厭， 國見國煩的謊言製造者。 美國國會議員， 美國國務卿， 美國中央情報局局長， 政治素人彭培奧， 一路躺贏的秘訣究竟是什麼 ？ 可以說是乾啥啥不行， 抱大腿第一名。 我們撒謊，我們欺騙，我們偷竊， 彭培奧罕見坦誠的背後， 又隱藏著哪些醜惡的故事。 政治傀儡， 外交庸人的拙劣表演仍在繼續， 北京衛視檔案將為您起底三姓家奴彭培奧的荒誕人生。」
 
-時間：2020/08/30 0600 AM
+“Deceiving the world, forfeiting the principles and morality, the public enemy of humankind, the political virus, the worst Secretary of State of the U.S. ever. Ask him to head east, he dare not turn west. Ask him to bite someone, he snaps with no hesitation. How does a used-to-be Trump opponent, turn into a lie generator loathed by everyone, dishonored by every country. Started as a congressman, then was the director of CIA, now become the Secretary of State of the U.S… What is the secret of a political amateur effortlessly succeeding throughout his entire political career? Feckless and incompetent, good for nothing but riding other’s coattails. “We lied, we cheated, we stole.” – how many disgraceful stories are covered by Pompeo’s uncommon frankness? Here it continues the clumsy hoax performed by this political puppet and diplomatic mediocre. Beijing TV Archives will unveil Pompeo’s absurd life and his servant career for the past three presidents.”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18211113/22_8.105.jpg)
+【編者注】中共國沒有獨立媒體，所有媒體皆為中共控制的喉舌，是共產黨宣傳的工具。北京衛視同中共中央電視台（CCTV）本質沒有不同。
 
-地點：臺灣 臺北自由廣場
+相關新聞：[滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
 
-裝備：墨鏡/口罩/帽子/水壺/食物/雨具/緊急醫療用品/手機/錢包/雙肩背包
+翻譯：【ddm】字幕：【相機過熱啊】聽寫：【羅賓 Robin (文賓) 】助理：【Melody太陽的旋律】編輯：【Michelle】
 
-著裝：跑鞋/牛仔褲/白襯衫
+戰友之家玫瑰園小隊出品
 
-武器：壹顆勇敢的心
-
-AM 05:58，到達臺北自由廣場，在廣場右側的帳篷報到，領取遊行戰裝/個人名牌和國旗，然後就地更衣著裝，準備就緒上場前，服用戰友貼心準備的氯喹200mg和鋅100mg… 此時的自由廣場，晴空朗朗，清風微涼…
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112718/1-2.jpg)
-
-AM 6:15，戰友們在小寶哥的呼喚下，向廣場中心集結，開始練習排隊形，在戰友熬夜搭建的室外大屏幕前面，大夥手持新中國聯邦和中華民國的國旗，舉著新冠病毒真相和嚴博士頭像的標語，開始練習陣型的排列…
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112803/2-4.jpg)
-
-清晨6點半，自由廣場的人並不多，除了出席的100多號戰友，就是維安的警方了，鑑於CCP在臺灣黑白兩道皆有長期的經營與滲透，藍金黃的力量無所不在，尤其在反共網紅 “館長”槍擊事件發生後，媒體和輿論的關註焦點都反共的個人與團體身上….    因此，這次新中華聯邦的旗幟與戰友在反共最前線的臺灣高調登場亮相，警方繃緊神經，不敢怠慢，出動多組警員在現場執行維安工作，並在相關車輛上成立了臨時小型指揮中心，以應變任何突發的緊急事件…
-
-![]()在自由廣場上，戰友們在搖滾版 Take down CCP神曲的帶動下，大夥賣力揮舞著新中國聯邦的旗幟，並大聲的喊出這次遊行的訴求:
-
-**捍衛臺灣民主 聲援香港同胞**
-
-**要求病毒真相 推翻共產極權**
-
-**團結全球華人 挺新中國聯邦**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112839/3-3.png)
-
-AM07:00 ，開始和美西的戰友連線，大家雖然來自四面八方五湖四海，彼此相隔千裏，在互不相識的情況下，卻可以透過網絡與意識，手牽著手，心連著心，在不同的時空裡，為著同壹個目標與想望相互鼓勵與祝福，結伴前行…  這是怎樣的壹種跨越時空的美好，只有身在其中，才能細細體會…
-
-AM07:30在訊號極端不好的情況下，現場終於可以和Sara姐和郭先生連上線了，郭先生壹壹回答戰友提出的問題，也對“館長”的槍擊案，提出關懷與問候，並對未來臺灣農場刻畫出美好的願景，更重要的是，對於臺灣的安全問題，郭先生也透漏了未來歐美各國對臺灣安全的關註與觀念的轉變，這樣的轉變，有可能讓臺灣2300萬同胞免受戰火的摧殘，讓傳統中華文化僅存的香火得以延續…
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01112848/4.png)
-
-AM08:20 路德訪談直播連線，戰友們和路德以及博博士聊臺灣相關問題，路德尚未來過寶島，而博博士每年都要帶孩子來臺灣壹次，他們壹致認為臺灣是保留中華文化最完整的地方，民主法治下的自由帶給臺灣無窮生命力…
-
-AM10:00 廣場遊行告壹段落，戰友們聚集到自由廣場牌樓下方，圍成圓圈，自我介紹與交流，增進彼此的認識與了解…
-
-AM11:00 在拍完集體照之後，結束今天的集會遊行活動，為8/29美西農場的聯合大遊行畫上完美的句點…
-
-這是我有生之年第壹次參與政治活動，或是說第壹次參加遊行，所以在過程裡的壹切體驗對我來說都是新鮮和有趣的…      而臨場經驗的觸動，更加深對這塊土地的崇敬與認同…
-
-由於來自於傳統的家庭，從小父親就教導我們做人做事要低調，要明哲保身，尤其在動盪的大時代裡，這是唯壹的保命之道….
-
-我能夠理解，在歷經戰亂洗禮，面對生死瞬間的無常世事後，老壹輩的人對於世界變動的恐懼，是其來有自的… 只是，我也不禁的思考，明哲保身，歸隱南山就真的能得到永恆的平安嗎？**尤其在實體世界崩解，虛擬世紀到來的今日，或許直面恐懼接受現實與堅持為真不破的勇氣，才是永恆脫離黑暗與邪惡最好的方法****…**
-
-**而正義與邪惡，和平與戰亂，公義與私利，良善與邪惡的距離，其實就是壹顆心的距離****…**
-
-**壹顆勇敢的心，能化暴戾為祥和，能使公義高舉，良善彰顯，讓世界充滿希望，帶給人類與子孫壹個美好的未來****…**
-
-**這樣的選擇，取決於妳和我****…**
-
-**撥亂反正，扭轉乾坤，讓共產幽靈退卻，讓華夏榮光再現****…**
-
-**原來 只需要壹顆勇敢的心****…**
-
-**我如斯相信****…**
+> [滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
 
 0

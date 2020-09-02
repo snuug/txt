@@ -1,30 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GFashion :攻城略地的戰略選擇
-`2020-09-01 11:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/328182/)
+## 地方政府下令拆除私人衛星接收器
+`2020-09-01 12:15 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/328416/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01103300/1-2.png)
-GFashion不僅僅是G系列金融平台之一，也是新中國聯邦下中國人美好生活的指引和載體，它將改寫世界時尚消費品的格局和歷史。
+*新聞來源：Bitter Winter寒冬｜作者：吳海平(Wu Haiping)；*
 
-一、中國人的消費是最大的市場
+*翻譯、簡評：文明明｜校對：Beicy-數學老師｜審核：InAHurry｜PAGE：玄天生；*
 
-當代全球消費，是市場主導。雖然時尚品與奢侈品不同，但是從奢侈品的市場數據，可以分析出GFashion潛在的市場規模。中國消費者每年的奢侈品購買金額總計1110億美元，佔全球奢侈品總消費金額的三分之一。 2015年—2019年間，中國消費者每年平均在海外消費2579億美元。由此可見，中國人將會是G Fashion的最為重要的消費群體。
+**簡評：**
 
-二、GFashion要從起步階段就要關注構建價值鏈、供應鏈、產業鏈的一體化運作。這是當今世界級企業普遍建構的生產方式和運營模式。要從起步階段就要尊重規律，高標準，看長遠，全球化。
+很久以來，因為老百姓已經厭倦了假大空、偉光正的CCTV說教節目，觀看衛星電視節目，主要是港台地區的電視節目一直是內地老百姓茶餘飯後的娛樂活動。這些港台節目除了一些電視劇，還有一些時事政論節目，這些時政節目成了老百姓了解國內外大事的一個重要途徑。雖然中共政府在1993年，頒布了《衛星電視廣播地面接收設施管理條例》，禁止在家里安裝衛星接收器。但是，大多數地方政府並沒有有效地執行該條例。直到最近幾年，中共開始加大力度審查大眾之間所傳播的所有信息，那些通過衛星天線接收到的國外電視節目，尤其是那些批評中共的節目被嚴令封鎖。各級地方政府更是嚴格規定拆除所有的私人衛星接收器，並把它視為公民意識形態工作的“隱患”。
 
-三、線上線下融合發展。
+從這些各級政府發布的公告可以看出，國務院的129號令規定，對違反此規定的個人，最高可以罰款至5千元。更可笑的是，他們還危言聳聽地強調拆除衛星天線是為了防止設備由於雷擊或掉落在路人身上而發生意外傷害，更有甚者，還把使用衛星接收器上升到國家的政治安全、信息安全、文化安全和社會穩定。其實在他們這種掩耳盜鈴的做法背後就是害怕老百姓了解國內外的事實真相，怕老百姓了解真相後的反抗。爆料革命對香港民主運動、冠狀病毒真相、以及全球聯合滅共的廣泛傳播，是中共想進一步封鎖老百姓接觸大陸外媒體的深層原因。
 
-GFashion的實體店不久就會面世。我相信GFashion的線上平台也在建設中。互聯網的發展和疫情的影響，是網絡銷售達到歷史上從未有過的水平，而且日益發展。重視G Fashion的線上平台的建設和發展，不僅有重要的現實意義，而且有深遠的歷史意義，因為不僅僅是網絡影響無國界，更重要它也是新中國聯邦的形象和影響，也是無言的宣傳機、播種機、收割機。這個平台的流量價值、社會價值、宣傳價值、服務價值、創新價值和經濟價值不可估量啊。
+##  **地方政府下令拆除私人衛星接收器** 
 
-四、立體物流通關
+**其背後的目的在於加強信息審查，防止中共國大陸的人民接收到有損中共形象的信息。**
 
-目前，國內人們購買國際網上商品，入境中國的清關基本是灰色的，究其原因是中國的電商制度設計失誤，海關製度落後。全世界只有中國有行郵稅（對個人物品進境徵收的稅種），而且，操作含糊，海關自由裁量權大，不與國際接軌。儘管中共領導人天天喊“審慎監管”“大力發展跨境電商”，但部門權利利益阻礙，領導人話基本就是口號而已。老百姓根本無法順利及時買到國際電商產品。目前清關多是這樣幾種形式：1、分拆，如果走中國郵政進口，商家或物流商要每件商品一個包裝，一個清單，以迴避中國海關個人行郵物品進境的規定。 2、以快件形式申報進口，海關的開包檢查率相對低，闖過去就賺，海關查住就陪，或退運轉口岸再闖。 3、是用跨境電商模式清關，主要是低值產品，價值高的商品要偽報成價值低的商品報關。 4、是水客捎帶，陸路邊境、周邊國家的飛機、客滾船都有成千上萬的專業水客，有國人和外國人。
+可在家里安裝的簡易衛星天線因價格低廉、又能接收眾多頻道而在中共國的農村地區特別受歡迎。在1993年，國務院頒布了《衛星電視廣播地面接收設施管理條例》，禁止在家里安裝衛星接收器。但是，大多數地方政府並沒有有效地執行該條例，而是允許人們繼續保留或安裝新的衛星天線。
 
-無論是GFashion和Gmall,都要考慮網上平台，特別是構建物流清關供應鏈，這是商品貿易服務的內在要求，是客戶體驗感的重要影響因素。因為G系列主要是面向14億中國人。需要指出的是， [中共不等於中國](http://cn.epochtimes.com/gb/tag/%25E4%25B8%25AD%25E5%2585%25B1%25E4%25B8%258D%25E7%25AD%2589%25E4%25BA%258E%25E4%25B8%25AD%25E5%259B%25BD.html) 。只要中共解體，中國人民重獲自由，中國和世界的關係就會重新構建，在普世價值的指引下，中國參與全球產業鏈重構，中國開放市場，這對中國對世界都將是莫大的好事。 GFashion和Gmall,當前對中國的攻城略地，要及時佈局，立體構建，專業運作。
+但是，近年來隨著中共政權開始加大力度審查大眾之間所傳播的所有信息，那些通過衛星天線接收到的國外電視節目，主要是那些批評[中共](https://bitterwinter.org/Vocabulary/ccp/)的節目被嚴令封鎖。因此，地方政府開始提出更嚴格的要求來拆除私人衛星接收器，並把它視為公民意識形態工作的“隱患”。許多在中共國的人認為，這與國外對中共政策的批評日益增加有關。
 
-作者： **Serenbe**
+今年4月30日，遼寧省東北[部](https://bitterwinter.org/Vocabulary/province/) [縣級市](https://bitterwinter.org/Vocabulary/county-level-city/)莊河的“海外衛星整治工作領導小組”發布了一項命令，以“維護思想安全”的名義，要求在6月30日之前拆除所有私人安裝的衛星接收器，那些執行命令不及時的人可能會承擔法律責任。
 
-2020/9/1
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/c3fa84b5-875f-4bd8-b09d-1a3f9549be61.jpg?asset_id=acf0a271-f63b-4838-a273-ad85e14ce645&amp;img_etag=%22dcbcd7ca894c186d7b478c14cc73a904%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/c3fa84b5-875f-4bd8-b09d-1a3f9549be61.jpg?asset_id=acf0a271-f63b-4838-a273-ad85e14ce645&amp;img_etag=%22dcbcd7ca894c186d7b478c14cc73a904%22&amp;size=1024) *莊河市海外衛星整治工作領導小組的通知。*
+
+今年5月，浙江省東部的一個城市要求拆除所有的此類接收器，並稱這是禁止海外電視節目、確保思想安全的重要措施。
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/1cabd1e0-77a2-432d-9c7b-ad335f9c381f.jpg?asset_id=758deeab-e46f-4b48-827e-32d5fa4da857&amp;img_etag=%22ab57da78afcd3ba5fadf4641bd76845a%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/1cabd1e0-77a2-432d-9c7b-ad335f9c381f.jpg?asset_id=758deeab-e46f-4b48-827e-32d5fa4da857&amp;img_etag=%22ab57da78afcd3ba5fadf4641bd76845a%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/21723e8b-e09b-45b9-9f06-56a6404e78c0.jpg?asset_id=402a90ef-589e-4e2d-9d7b-388925f2196e&amp;img_etag=%2226ed45f7a96be60b77a03d3b7c43b904%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/21723e8b-e09b-45b9-9f06-56a6404e78c0.jpg?asset_id=402a90ef-589e-4e2d-9d7b-388925f2196e&amp;img_etag=%2226ed45f7a96be60b77a03d3b7c43b904%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/7e4d32ab-942c-42a8-8b31-94c61fbb6458.jpg?asset_id=5e64c71c-b40d-49cc-a034-ac433b599da0&amp;img_etag=%22017a81b40b0821b77e90f1f0ca24c05c%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/7e4d32ab-942c-42a8-8b31-94c61fbb6458.jpg?asset_id=5e64c71c-b40d-49cc-a034-ac433b599da0&amp;img_etag=%22017a81b40b0821b77e90f1f0ca24c05c%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/a76bebbb-e702-46cd-9597-401bd9aefa5a.jpg?asset_id=8d387445-d642-4158-8b3b-3158a62135d9&amp;img_etag=%22afe620481d74c2ed5e889e3fc0ff2c31%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/a76bebbb-e702-46cd-9597-401bd9aefa5a.jpg?asset_id=8d387445-d642-4158-8b3b-3158a62135d9&amp;img_etag=%22afe620481d74c2ed5e889e3fc0ff2c31%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/72b6e0fb-9fe3-4430-bd80-afbc91f79df8.jpg?asset_id=8c15ca09-42ef-48b1-a59b-9a0024db5def&amp;img_etag=%22a85a005b8ecfb3e65e198a527a0f2921%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/72b6e0fb-9fe3-4430-bd80-afbc91f79df8.jpg?asset_id=8c15ca09-42ef-48b1-a59b-9a0024db5def&amp;img_etag=%22a85a005b8ecfb3e65e198a527a0f2921%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/05518a3e-dae7-4493-989f-ffb867e281e5.jpg?asset_id=6b66e5fa-698a-42e1-8e11-3a059d756a1b&amp;img_etag=%22cf217ab9d14c0289a4f28e14e96170f3%22&amp;size=3800)](https://spark.adobe.com/page/BxIswrhILedoS/images/05518a3e-dae7-4493-989f-ffb867e281e5.jpg?asset_id=6b66e5fa-698a-42e1-8e11-3a059d756a1b&amp;img_etag=%22cf217ab9d14c0289a4f28e14e96170f3%22&amp;size=1024)
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/393157b8-7f22-4cff-916d-e3f2792ff855.jpg?asset_id=512ef7e0-fcc0-4c92-a9e0-2a39b32b9791&amp;img_etag=%227cd4ac18dbdc30b4c25a30baf04360fd%22&amp;size=3520)](https://spark.adobe.com/page/BxIswrhILedoS/images/393157b8-7f22-4cff-916d-e3f2792ff855.jpg?asset_id=512ef7e0-fcc0-4c92-a9e0-2a39b32b9791&amp;img_etag=%227cd4ac18dbdc30b4c25a30baf04360fd%22&amp;size=1024) *各地發布拆除衛星鍋的通知*
+
+與中共國東北吉林省[同名的地級市](https://bitterwinter.org/Vocabulary/prefecture-level-city/)吉林市的一位負責拆除私人衛星接收器的公司員工揭露，當地1000多個家庭中有700多家的衛星天線被被拆毀。
+
+對拆毀天線表示抗議的群眾會受到罰款或取消他們國家福利的威脅。一位獨自生活在吉林[省](https://bitterwinter.org/Vocabulary/province/)蛟河市的老婦回憶道：“ [村](https://bitterwinter.org/Vocabulary/village/)黨支部書記說，如果我拒絕拆除衛星天線，我的養老金將被取消。”
+
+一位70多歲的朝鮮族老人受到官員的威脅，如果不拆除衛星接收器，將被罰款3000元人民幣（約430美元）。
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/144de4f9-cb31-40e3-9a9b-18f37b7d5a4c.jpg?asset_id=373cfc47-b0c2-447e-82dd-4656b5bc6fd1&amp;img_etag=%227ad5dd79db40e54a2dcbe89202a6387e%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/144de4f9-cb31-40e3-9a9b-18f37b7d5a4c.jpg?asset_id=373cfc47-b0c2-447e-82dd-4656b5bc6fd1&amp;img_etag=%227ad5dd79db40e54a2dcbe89202a6387e%22&amp;size=1024) *工人們正在拆除衛星天線。*
+
+中共國大陸的官方媒體還發布了有關清除衛星天線的“正面”宣傳報導，強調為了防止設備由於雷擊或掉落在路人身上而發生意外傷害，拆除衛星天線是必要的。而另一個流行的宣傳主題是：國外的節目會傷害未成年人。
+
+無論媒體如何賣力宣傳，許多人仍然相信這背後的主要目的是為了封鎖有關本地和國際事務的消息。
+
+遼寧省一個村支書告訴《寒冬》（Bitter Winter）說：“政府擔心某些外國節目不利於它的統治，因此他們想拆除人們家中所有的衛星天線。” 他補充說，中共國大陸禁止來自香港和台灣的許多節目，以及類似[法輪功](https://bitterwinter.org/Vocabulary/falun-gong/)等被禁止的宗教團體所製作的節目。
+
+另一位遼寧政府內部的人士解釋說，衛星天線播放的外國節目可以揭露“中共對付中共國大陸人民的醜陋和罪惡行徑”。他補充說：“這會使政府更難控制百姓，這就是其中的原因。”
+
+[!\[\](https://spark.adobe.com/page/BxIswrhILedoS/images/5d465768-9de9-45b0-bece-ad2986a4f046.jpg?asset_id=7730cab3-bdc8-44fe-8b41-6aab01e2af12&amp;img_etag=%22cfd126c70155ebecd00e5d20b257ada7%22&amp;size=2560)](https://spark.adobe.com/page/BxIswrhILedoS/images/5d465768-9de9-45b0-bece-ad2986a4f046.jpg?asset_id=7730cab3-bdc8-44fe-8b41-6aab01e2af12&amp;img_etag=%22cfd126c70155ebecd00e5d20b257ada7%22&amp;size=1024) *關於拆除衛星接收器的宣傳海報。*
+
+浙江杭州市的有關部門委託電網管理公司逐一調查其轄區有多少人擁有衛星天線。其中一位透露，在內部交流時他的上級曾表示，因為衛星天線可以接收到外國電視節目，所以要拆除。這位電網管理人員解釋說：“外界對中共的評價很不利，因此政府擔心人們會聽到真相。”
+
+[新聞鏈接](https://bitterwinter.org/local-governments-order-to-remove-private-satellite-receivers/)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/BxIswrhILedoS/)
 
 0

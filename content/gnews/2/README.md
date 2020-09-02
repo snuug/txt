@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020/08/29 全球抗议速写之一：生化武器
-`2020-09-01 15:10 Mr.Sheep` [轉載自GNews](https://gnews.org/zh-hant/326350/)
+## 沃伦· 巴菲特向日本五個最大貿易公司投資60億美金
+`2020-09-01 21:14 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/328922/)
 
-继7/27全球大游行之后，8/29的新中国联邦抗议活动也在全球各地展开，战友们在包括台湾，日本，美国旧金山和洛杉矶，德国慕尼黑等地均开展了抗议活动，蓝色的新中国联邦旗帜和金色的信仰之星在阳光下飘扬。
+編輯：玫瑰天空
 
-这次的抗议活动，主题包括声援香港抗争者，为中国大陆受灾人民祈福，但最重要的还是揭露中共病毒(aka. COVID-19)的真相。从香港运动可以看出，当今世界经济政治都处于大变革前夕，所以政治家都处于相对保守的状态，在美国决定支持香港之前，几乎没有国家敢于站出来为了正义，捍卫香港自由而挑战中共。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01204757/image-1.png)
 
-2020/08/29新中国联邦全球灭共抗议活动中，在德国慕尼黑，台北，日本大阪，美国洛杉矶等地联合展开，要求中共交代清楚病毒真相，以下是抗议的精彩瞬间。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01172715/Germany-scaled.jpg)**德国慕尼黑的奥迪安广场（Odeonsplatz）上欧洲各国战友联合抗议**
-此时中共释放病毒，无论是什么给予什么背景，其必定是在内外巨大压力下做出的误判。既往过去七十年的历史，1989年的天安门大屠杀属于第一次误判，当时国际的社会绥靖政策为主，不痛不痒的放过了中共，全世界资本沆瀣一气把中国变成了血汗工厂。然而共产主义的终极问题之一就是会导致经济的崩溃，此次在2019年尾释放出的中共病毒，是对全球各国的第二次考验。
+[沃伦](https://www.theguardian.com/business/warrenbuffett)[·](https://www.theguardian.com/business/warrenbuffett)[巴菲特(](https://www.theguardian.com/business/warrenbuffett)[Warren Buffett](https://www.theguardian.com/business/warrenbuffett)[)](https://www.theguardian.com/business/warrenbuffett)已向日本五個最大嘅貿易公司投資60億美金,呢啲大型企業集團涉足由進口食品和紡織品到技術和製造業嘅各個領域,佢希望喺美國以外嘅地區實現多元化發展。
 
-我们看到台湾的战友也积极的站出来支持香港和捍卫台湾民主，要求中共交代病毒真相。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01172131/Taipei.jpeg)**台北自由广场的台湾战友捍卫台湾民主，声援香港和要求中共交代病毒真相**
-在洛杉矶的抗议中，来自图桑农场的战友们打出了CCP Lied, Americans Died的标语。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01173908/Tuscan.jpeg)
-在洛杉矶中共总领事馆前，在美国国旗和新中国联邦旗帜的映衬下，我们的抗议不怒自威。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31163733/829-Virus-LA-2.jpeg)**我们靓丽的女战友帅气的举着世界需要病毒真相的牌子**
-在大阪最繁华的商业区，「中共生物兵器」的标语直击人心。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31164218/829-Virus-Japan-1-1.jpeg)**日本大阪的战友用日语打出了病毒是「中共生物兵器」的横幅，颇有日漫之风**![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/31163723/829-Virus-LA-1.jpeg)**Truth of COVID-19: CCP BIOLOGICAL WAR AGAINST THE USA!**
-当年1989年各国没有为解放中国人民站出来，导致30年后的今天，中共的魔爪在各国肆虐，手上占满了全球人民的血债，此是天道轮回，若是中共此次不灭，世界的灭亡则不远矣。
+啱啱滿90岁嘅巴菲特出人意料嘅舉動意味住佢係三菱公司,三井物產,伊藤忠商事株式會社,住友商事株式會社同丸紅公司嘅最大股東之一。巴菲特的投資公司伯克希爾·。 哈撒韋(Berkshire Hathaway)已購買了喺日本經濟中發揮住至關重要作用並日益成為全球參與者嘅”sogo  shosha”  ”(一般貿易公司)中嘅5%嘅股份。
 
-我们也欣喜的看到，全球联合对中共追责的态势已经形成，王毅的欧洲五国出访铩羽而归，对捷克的威胁也遭致捷克政府的强硬回击，德国也表示和欧盟国家站在一起，当世界看清楚了中共的邪恶和对中国人民的绑架之后，中共的土崩瓦解指日可待。
+巴菲特話:≤五家主要嘅貿易公司喺全球擁有好多合資企業,並且可能會有更多嘅呢種合伙關係。  ≤我希望將來可能會有互惠互利的機會。呢啲股份係透過子公司國家賠償機構購買嘅,總價值超過63億美金(合47億英鎊)。 伯克希爾哈撒韋計劃長期保持主要投資者的身份,有可能將其在五個交易公司中的任何一家的持股量增加,後者在大流行期間的股價已急劇下跌至9.9%。 呢啲股份係喺過去一年中透過喺東京證券交易所定期購買而積累起來的,但只係啱啱被披露。
 
+此舉喺日本市場受到了廣泛歡迎,促使五家貿易公司嘅股份喺伊藤忠商事中上漲了6 6%,在丸紅公司中上漲了14%。 三菱UFJ摩根士丹利證券(Mitsubishi UFJ Morgan  Morgan  Stanley Securities)駐東京嘅首席投資策略師藤纪纪弘(NorihiroFujito)表示:≤“平價嘅估值可能吸引咗佢哋。  ≤但係買入全部五家公司而唔係揀其中幾家,唔似巴菲特嘅風格。
 
+呢項投資將有助於減少伯克希爾對美國經濟的依賴,後者喺最後一個季度收縮咗至少73年以來的最高水平。 伯克希爾·。 哈撒韋公司(Berkshire Hathaway)直屬擁有90多個業務,並喺数十个投資項目(主要係美國)中進行了投資(由美國運通,可口可樂到美國銀行),以及1250億美金嘅蘋果股份。
+
+援引[:https://www.theguardian.com/business/2020/aug/31/warren-buffett-invests-6bn-in-japan-five-biggest-trading-houses。](https://www.theguardian.com/business/2020/aug/31/warren-buffett-invests-6bn-in-japan-five-biggest-trading-houses)
 
 0

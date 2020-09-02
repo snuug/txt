@@ -1,21 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的法律超限戰
-`2020-09-01 11:29 GM31` [轉載自GNews](https://gnews.org/zh-hant/328289/)
+## 【戰友點評】不畏国安恶法 太子站恐襲一年 真相不會被遺忘
+`2020-09-01 14:01 GM42` [轉載自GNews](https://gnews.org/zh-hant/328463/)
 
-郭文貴先生在8月20日在G-TV  ([https://G-TV.org](https://G-TV.org)) 直播中提到他事先並不知道班農先生被捕的事件，在他知道的20分鐘後，共產黨和中國的所有媒體如CCTV，一致行動，集中報道，行動迅速，比美國媒體還早。再過20分鐘後，美國三大媒體和其他所有媒體才頭條報道這個事件。班農先生是我們的兄弟，我們滅共的戰友，只要班農做的是合法的事情，做的是滅共的事情，我們全力支持。我們要看到共產黨的凶殘，共產黨的流氓。8月20號、21號，對中國人、對他和半年都是大日子，是共產黨的法律超限戰導致了班農被捕，如果美國政客不意識這點，不滅共，他們會成為下一個班農。
+製作單位：戰友之家-粵語組
+評述：卡西歐
+戰友評論：恩典/點蒼山
+後期製作：文粵
 
-*翻譯：【班仔】 校對：【Winston Jackson】 字幕：【Pamila（文明）】 編輯：【GM31】*
 
-*戰友之家玫瑰園小隊製作*
 
-相關新聞：
+8.31太子站恐襲一周年前夕，有網民發起於旺角新世紀廣場舉行毋忘8.31行動。數十名市民下午於商場內，警方其後再表示，商場內有人一度高叫「光復香港 時代革命」的口號，有機會觸犯《香港國安法》下相關罪行。而截至下午4時半，警方在旺角共票控6男5女，涉嫌違反限聚令
 
-[2020年8月20日郭文貴先生直播摘要](https://gnews.org/zh-hans/310100/)
+資料來源：蘋果日報
 
-[郭爆料串珠（三十三 – 2/2）我早就知道共產黨在美國的力量絕對會幹班農，也告訴過他，他還跟我咋乎不相信](https://gnews.org/zh-hans/313432/)
+[https://hk.appledaily.com/local/20200830/ABWCSRRHUJFUBOO2MFSHU263BM/](https://hk.appledaily.com/local/20200830/ABWCSRRHUJFUBOO2MFSHU263BM/)
 
-[文字版2020年8月21日郭先生GTV直播](https://gnews.org/zh-hans/315068/)
+[https://hk.appledaily.com/local/20200831/3V3IVSTIH5G2PFAOXFKEMM7ZOI/](https://hk.appledaily.com/local/20200831/3V3IVSTIH5G2PFAOXFKEMM7ZOI/)
 
-1
+[https://hk.appledaily.com/local/20200831/76CXFYNXQ5EPTOFCSZ6EPDGYOM/](https://hk.appledaily.com/local/20200831/76CXFYNXQ5EPTOFCSZ6EPDGYOM/)
+
+0
