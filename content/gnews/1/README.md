@@ -1,23 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黨員鍾南山 “科學抗疫，創新強國”。
-`2020-09-02 06:32 GM64` [轉載自GNews](https://gnews.org/zh-hant/329835/)
+## 【戰斗室346期】WHO在作秀沒有人調查真相,其原因是中共在背後作祟（德語German+英語English）
+`2020-09-02 09:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/329996/)
 
-內新聞作者:DM
+德語標題 Die WHO hat das Sagen, und niemand untersucht die Wahrheit Grund dafür – die KPCh steht dahinter
 
-8月23一29日，鍾南山實驗室首度舉行抗疫成果巡展，舉辦了300場以上的科普活動。
-對其中”病毒溯源，中醫藥抗擊疫情，疫苗抗疫”之觀點。
+德語翻譯：itIsHappening 德語校對：文月
 
-1 “病毒溯源”，對病毒的基因序列，是否來自實驗室人工制造，從來都沒有客觀的說明。
-被中共塑造成爲抗疫“英雄”，配合其虛假宣傳來欺騙人民，根本目的就是掩蓋病毒的真相，到處甩鍋，逃避世界的追責。
+視頻簡介
+郭文貴先生揭露中共掩蓋病毒真相, 呼籲美國和西方真正的調查病毒來源。
 
-2 “中醫藥抗疫”，對目前最有效的藥物硫酸羟氯喹，只字不提！
-強推“蓮花清瘟膠囊”，與鍾相關聯企業八十多間，在名利面前，讓人看到他對人的生命是:無視。
-
-3 “疫苗抗疫”，中共推向國內外的疫苗，有接種者已産生嚴重的不良反應及再次感染。
-無效有害疫苗都推廣使用，以假疫苗作爲手段，也阻止不了地球人一定會追究病毒全部真相的行動。也暴露出了中共邪惡的本質。
-
-鍾南山與中共沆瀣一氣，欺騙世人，拿人類存亡當兒戲，必將釘在曆史的恥辱架上！
+Herr Guo Wengui enthüllte weiterhin, dass die KPCh Informationen über den. Virus verbirgt und ruft die USA und den Westen dazu auf, den Ursprung des Virus herauszufinden
 
 0
