@@ -13,6 +13,11 @@
 
 
 
+[中共极力抹黑蓬佩奥，政治生涯“被朴素”  CCP state media diligently defame secretary Pompeo: his pol...](/content/getter/content/2020/09/5f4f14c1daed5626f9882ac6.md)
+
+**郭文贵MILES** `2020-09-02T03:42:57`
+##
+
 [北京党媒发力抹黑蓬佩奥是「三姓家奴」「政治病毒」  CCP controlled media made a great effort to smear Sec....](/content/getter/content/2020/09/5f4f13cbdaed5626f9882a19.md)
 
 **郭文贵MILES** `2020-09-02T03:38:51`
@@ -156,10 +161,5 @@
 [亲爱的战友们，这是VOH欧战团英语组战友们支持慕尼黑游行的动员视频。请战友们欣赏，感谢慕尼黑和欧洲战团VOH战友们对爆料革命和新中国联邦的支持](/content/getter/content/2020/08/5f495219d3bc84639c7c73bd.md)
 
 **郭文贵MILES** `2020-08-28T18:51:05`
-##
-
-[8月28日 安倍晋三因病辞任，文贵先生半月前称下任首相会更反共！这是巧合么？  August 28, Shinzo Abe resigned due to th...](/content/getter/content/2020/08/5f492f9ad3bc84639c7c59c1.md)
-
-**郭文贵MILES** `2020-08-28T16:23:54`
 ##
 
