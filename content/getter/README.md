@@ -13,6 +13,16 @@
 
 
 
+[北京党媒发力抹黑蓬佩奥是「三姓家奴」「政治病毒」  CCP controlled media made a great effort to smear Sec....](/content/getter/content/2020/09/5f4f13cbdaed5626f9882a19.md)
+
+**郭文贵MILES** `2020-09-02T03:38:51`
+##
+
+[9月1日 班农战斗室 尼基·戴维斯的认罪预示着美国的Deep State将被彻底揭露  September 1st, WarRoom：  Nickie Davi...](/content/getter/content/2020/09/5f4f12c7daed5626f9882969.md)
+
+**郭文贵MILES** `2020-09-02T03:34:31`
+##
+
 [9月1号：尊敬的战友们好，你们健身了吗？传播C C P病毒．香港危机真相了吗？感谢战友们的文字。昨天这跑调的歌声的包容和支持，希望不要再传播了，对战友们的耳朵少...](/content/getter/content/2020/09/5f4e660ed3bc84639c812874.md)
 
 **郭文贵MILES** `2020-09-01T15:17:34`
@@ -151,15 +161,5 @@
 [8月28日 安倍晋三因病辞任，文贵先生半月前称下任首相会更反共！这是巧合么？  August 28, Shinzo Abe resigned due to th...](/content/getter/content/2020/08/5f492f9ad3bc84639c7c59c1.md)
 
 **郭文贵MILES** `2020-08-28T16:23:54`
-##
-
-[8月28日：尊敬的战友们好．这一系列的重大事件．是上天帮助也是我们亿万个灭共同战友之努力的结果，大家从昨天的第一次历史性的共千日党的大会演讲，当中可以判断出多少...](/content/getter/content/2020/08/5f490946d3bc84639c7c337c.md)
-
-**郭文贵MILES** `2020-08-28T13:40:22`
-##
-
-[8月27日：这个照片对共产党的本质形容得太好了，请战友们今天要高度关注，今天晚上．共和党大会上几个重要人物的演讲，今天绝对是灭共历史上最关键的时刻之一⚠️⚠️⚠...](/content/getter/content/2020/08/5f484fded3bc84639c7b9780.md)
-
-**郭文贵MILES** `2020-08-28T00:29:18`
 ##
 
