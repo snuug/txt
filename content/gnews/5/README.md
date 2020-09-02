@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 燈下黑——隱藏於《中導條約》暗影下的中共火箭軍東風系列彈道導彈！
-`2020-09-02 12:08 GM01` [轉載自GNews](https://gnews.org/zh-hant/330273/)
+## 中共威脅：若美國封殺微信，中共國消費者將棄用IPHONE手機
+`2020-09-02 14:10 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/330649/)
 
-國內新聞作者：快慢機
+*新聞來源：Zero Hedge 《零對沖》｜作者：Tyler Durden；*
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02120727/kVW2-fyfeutq1348111.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02120743/bkn-20200512045828516-0512_00822_001_01s.jpg)
+翻譯/簡評：遊戲小哥｜PR：Julia Win｜審核：海闊天空｜PAGE：玄天生；
 
+**簡評：**
 
-在上世紀1987年12月8日，由美/蘇雙方於華盛頓簽署的《中程導彈條約》，於1988年6月1日正式生效。
+川普總統將對微信的封殺令著實給予中共當頭一棒，徹底封死了中共利用社交媒體應用洗腦海外華人、輸出意識形態、諜報監控和擾亂當地金融市場等陰謀。微信著實已經成為一個臭名昭著的網絡恐怖應用。封殺微信的意義對於生活在海外的華人影響遠大於封殺抖音。從中共國外交部毫無邏輯和事實的回應，就可以反應出這一行動著實擊中了中共要害。從另一方面來說，蘋果公司確實會在這次風波中受到波及，這也是蘋果公司為了利益長期以來無原則俯首稱臣中共所必須付出的代價。然而，隨著高科技領域軟硬件製裁的加劇，中共國的手機產業將形成斷崖式下跌的趨勢。由於iphone手機有其技術和用戶體驗方面的巨大優勢，絕大多數中國民眾還是願意選擇使用iPhone手機。如同當年在美蘇冷戰時期，蘇共也無法阻止莫斯科第一家麥當勞開業時大批民眾自發前往一樣。所以中共面對美國的各項製裁，除了口炮，沒有任何有效的反制措施。
 
-這份誕生於冷戰特殊歷史背景下的《中導條約》，是自古巴導彈危機後，由於潛艇技術的迅猛發展，以及大型遠程戰略轟炸機的叠代更新，美/蘇兩個超級軍事大國，對各自本土導彈防禦體系的擔憂，遂達成的壹項裁軍協議！以此來約束雙方，避免進壹步的軍備競賽！
+##  **北京高官警告：如果美國禁止微信，中共國消費者將”棄用”iPhone** 
 
-《中導條約》的簽署，美/蘇，以及蘇聯解體後的俄羅斯，都各自在條約框架內，分別銷毀了數量可觀的中遠程彈道導彈。美/俄雙也都各自遵守著條約協議並履行著承諾！壹切看似風平浪靜，但在這貌似平靜的表象下，壹股沈積著30年的暗湧，已悄然如潮湧至！
+中共國外交部發言人周五罕見地就可能抵制美國產品的問題發表評論，他警告稱，如果川普政府從9月中旬開始，繼續對流行的訊息應用微信實施禁令，那麼將導致中共國消費者棄用iPhone和其它蘋果手機產品。
 
-2018年10月20日，美國總統特朗普宣布，美國將於2019年2月2日起暫停旅行《中導條約》義務，並同時啟動為期180天的推出條約程序。美方基於俄羅斯並未遵守條約協議，以及擁有大量中短程彈道導彈的中國並非此條約的的簽署國，為理由，作出上述判斷並行動。
+*外交部發言人趙立堅發推特文說：“如果微信被禁，那麼中共國將沒有理由保留iPhone和蘋果產品。”*
 
-隨後的2019年2月2日，俄羅斯總統普京也同時宣布，俄羅斯也將暫停履行《中導條約》義務以回應美國的相關舉措。至此，執行了30年的《中導條約》正式壽終正寢。美俄的相互指責並非此次事件的真正主因，中共火箭軍所裝備的大量東風系列彈道導彈的監管真空，才是導致美國退出《中導條約》的幕後主旨！
+[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/aef48e6e-3013-40f9-9844-965b424ed1c6.png?asset_id=7d584324-8d25-4b39-97ac-c3686f43ed13&amp;img_etag=%22291f59356e9e4a20576838aced38df6f%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/aef48e6e-3013-40f9-9844-965b424ed1c6.png?asset_id=7d584324-8d25-4b39-97ac-c3686f43ed13&amp;img_etag=%22291f59356e9e4a20576838aced38df6f%22&amp;size=1024)
 
-據公開資料數據統計，中共軍方所裝備的80%以上的各類導彈，數量預計超過2000枚的彈道導彈及巡航導彈等，全部屬於《中導條約》中所限制約束的中短程導彈系列！尤其以中共火箭軍的看家裝備東風系列彈道導彈為主。近年，中共軍方在東南沿海方向，大量部署了射程可以覆蓋臺灣的導彈。此外，中共還有數量可觀的路基導彈發射單元，射程可以覆蓋日韓及印度等亞太地區。
+川普總統在未來幾週內[禁止微信的行政命令](https://www.zerohedge.com/markets/trump-signs-executive-order-banning-tiktok-wechat) ，不僅會加劇兩個超級大國之間的緊張關係，而且還可能給全球市值最高的公司-蘋果公司帶來巨大衝擊。
 
-近日，中共分別從浙江和青海兩地向南海方向發射的多枚導彈，即是火箭軍所裝備的東風系列中短程反艦彈道導彈，其主要攻擊目標是海面大型水面艦艇，中共軍方則稱之為航母殺手！目的指向性及其明確！
+趙立堅說：“許多中國人都說，如果美國禁止微信，他們可能會停止使用iPhone。” 他指責華盛頓針對這款流行的訊息應用程序，“是對非美國公司進行的系統性的經濟霸凌” 。
 
-其實自2002年以來壹直有壹項國際間的政治協議，《防止彈道導彈擴散海牙行為準則》，這是壹項類似《中導條約》的國際間協議。在該協議中，全球共有139個國際希望遏制某些導彈的擴散，並規定相互間保持監督及透明。然而，中共卻遲遲不願在此項協議上簽字，並暗地裏大量生產及裝備火箭軍此類中程彈道導彈。整個印太地區都處在中共東風系列彈道導彈的射程覆蓋範圍之內。
+[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/a17e859e-3ba4-4346-98f5-896685757b97.png?asset_id=6c97fe65-f547-4bce-b494-c6ff2795c7ad&amp;img_etag=%228de7255e61161a15087a4765a9eeebb5%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/a17e859e-3ba4-4346-98f5-896685757b97.png?asset_id=6c97fe65-f547-4bce-b494-c6ff2795c7ad&amp;img_etag=%228de7255e61161a15087a4765a9eeebb5%22&amp;size=1024)
 
-中共之所以大力發展東風系列彈道導彈是有它的考慮的。其壹，中共的空軍壹直缺乏大型遠程戰略轟炸機，而此類機型也是運載戰略彈道導彈的唯壹空基發射平臺；其二，中共海軍的戰略核潛艇在戰時能否成功突破第壹島鏈都還是個未知數，在自家門口用潛艇發射彈道導彈絕對不是明智之舉；
+一位中共國高層官員就美國產品可能遭到的抵制發表評論，然而，這條與蘋果公司有關的消息揭示了[緊張局勢的蔓延](https://www.zerohedge.com/markets/billionaire-dalio-warns-us-china-tensions-could-evolve-shooting-war-sees-parallels-30s-lead) ，從病毒大流行的指責到第一階段貿易協議下的[購買不足](https://www.zerohedge.com/markets/trade-deal-farce-summarized-these-charts) ，再到南海[軍事活動的迅速增加](https://www.zerohedge.com/markets/china-military-claims-it-expelled-us-destroyer-its-territorial-waters-us-military-counters) 。
 
-最後，只有路基彈道導彈發射單元是最佳選擇，因為中共大陸有著龐大的戰略縱深，錯綜復雜的地形地貌，無論是固定發射平臺，還是移動導彈發射車，另外中共還有全球為數不多的鐵路彈道導彈發射平臺，除了路基固定發射平臺生存概率相對較低外。公路移動導彈發射車及鐵路發射平臺都是高機動性發射單元，極其適合在中共大陸這類擁有大戰略縱深的地域內實施機動。
+TF國際證券公司的郭明池（Ming-Chi Kuo）在一份報告中指出，如果看到微信禁令，將[對蘋果的銷售產生潛在影響](https://www.zerohedge.com/markets/global-iphone-shipments-could-plunge-30-if-wechat-removed-app-store) 。他說，這一打擊對蘋果來說絕對是毀滅性的，導致全球手機出貨量可能每年下降25-30％。
 
-中共之所以敢大肆的在南海跑馬圈地，大興土木，利用島礁，填海造地，拓建大型離島軍事設施，力圖打造扼守南海的固定式航母，控制印太地區周邊國家的海洋利益，中共的底氣就來源於火箭軍所裝備的東風系列彈道導彈！
+[《亞洲時報》](https://asiatimes.com/2020/08/chinese-may-boycott-apple-if-us-bans-wechat/)援引微博用戶對微信禁令的回應-他們將不約而同地棄用iPhone：
 
-美國正是看透了中共的這壹手，才果斷的退出了《中導條約》，把戰略部署對準了日益擴張的中共。讓隱藏在《中導條約》暗影下的中共東風系列彈道導彈原形畢露！
+*一位微博用戶說：“我使用蘋果，但我也愛我的國家。” “這不矛盾。”*
+
+*另一位用戶說：“無論蘋果多麼出色，它只是一部手機。它可以被取代，但微信是不同的。” “現代中共國人，特別是商人，如果離開微信將失去靈魂。”*
+
+[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/75908b34-ff47-4b69-a002-8af8c386df79.jpg?asset_id=aac492d3-b50f-4d9d-bbf2-bc9ed7fb8ec8&amp;img_etag=%2285712ec255c8a5457a59b877fb7a8326%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/75908b34-ff47-4b69-a002-8af8c386df79.jpg?asset_id=aac492d3-b50f-4d9d-bbf2-bc9ed7fb8ec8&amp;img_etag=%2285712ec255c8a5457a59b877fb7a8326%22&amp;size=1024)
+
+雖然川普政府正在努力實現美國和中共國的經濟[脫鉤](https://www.zerohedge.com/geopolitical/top-communist-party-official-china-us-headed-complete-economic-decoupling) ，但上海美國商會(American Chamber of Commerce in Shanghai)最近警告稱，如果禁令生效，對在國際上接觸微信超過12億多活躍用戶的美國公司將產生“巨大的負面影響”。
+
+[原文鏈接](https://www.zerohedge.com/geopolitical/top-beijing-official-warns-chinese-consumers-will-abandon-iphones-if-us-bans-wechat?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/C7PuvVNwJ1sTF/)
 
 0

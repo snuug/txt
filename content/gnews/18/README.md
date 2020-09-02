@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/27～28 CCP病毒每日疫情直播簡報
-`2020-09-02 09:59 GM62` [轉載自GNews](https://gnews.org/zh-hant/330040/)
+## 歐洲火車頭德國滅共勢在必行
+`2020-09-02 12:25 GM01` [轉載自GNews](https://gnews.org/zh-hant/330333/)
 
-英文標題 CCP Virus Pandemic Updates Ep216-217: The CCP always abandons the people at critical times. When patients have no money, hospitals refuse to continue treatment and ask patients to leave.
+國內新聞作者:背靠背
 
-內容摘要
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02122414/images.jpeg)中共國039B型潛艇
 
-1. CCP在關鍵時候總會拋棄百姓。家屬沒錢，醫院拒絕繼續治療，並要求病人退出床位••••••這個煉獄般的社会，还在粉飾它的優越性！一旦到了關鍵时刻，就露出了它邪惡猙獰的面孔。纳税人的钱都用到了哪里？
-2. 妻子遭中共公職人員當面性騷擾，丈夫正當回擊卻被拘10日，被強迫賠償性騷擾者20萬。鄭女士爆料，去年，母親遭人猥褻，父親保護母親造成猥褻者受傷，父親被判賠償猥褻者19.5萬元。
-3. 港人乘快艇赴台，被截獲送中。李宇軒等12名香港反送中、抗惡法勇士乘坐快艇在逃離香港前往台灣途中遭中共海警扣押，其中包括8月10日以涉違“港版國安法”被捕的“香港故事”成員李宇軒，還有部分被捕後保釋的抗爭者.
-4. （閆麗夢博士，8/25）中共國政府，當然我們知道它是這次大流行的元兇，在剛開始的時候，這一切就能避免，因為這源於它們的實驗室，對吧。現在他們試圖在全世界，拿着所謂成功的疫苗，對大家說“你們得聽我的，因為我知道如何停止這場疫情。”但他們從來不會告訴你和承認，這其中有兩個風險。
-5. （8/27）共产病毒是什麼意思？絕對不會停止獨裁統治或到其他國家去使用藍金黃 (注：藍金黃代表藍色、金色和黃色。藍，指網絡監視和攻擊以及信息控制；金，指金錢利益賄賂手段；黃，指利用性的陷阱和控製手段。)戰術。
+2020年8月25日，印度斯坦時報報道,德國總理安格拉•默克爾領導的最高安全小組拒絕了巴基斯坦總理伊姆蘭•汗為其潛艇提供空氣獨立推進（AIP）系統的要求，該系統使潛艇能在水下潛航數周，隱蔽性更強。
 
+巴基斯坦與中共國潛艇的合作情況。
+早在2015年10月巴基斯坦媒體報道，巴向中共國采購八艘潛艇。巴基斯坦防衛建設部部長胡塞恩在壹個公開場合表示，中共國將在本國和巴基斯坦同時建造這八艘潛艇，並轉讓潛艇技術。
 
-1. The CCP always abandons the people at critical times. When patients have no money, hospitals refuse to continue treatment and ask patients to leave……This purgatorial society is still whitewashing its “superiority”! When people seek help, the CCP started to show its evil and ferocious face. Where did the taxpayers’ money go?
-2. The wife was sexually harassed by a CCP official, her husband fought back, but was detained for 10 days and  forced to compensate RMB 200,000 ($28,985.00) to the sexual harasser. According to Ms. Zheng, Last year, her mother was molested, and her father was forced to compensate the molester RMB 195,000 ($28,260) for protecting his wife.
-3. The Hong Kong people heading Taiwan on speedboat were intercepted and sent back to mainland China. 12 Hongkong pro-democracy activists including Lee Yu-hin were arrested by Communist China’s Coast Guard on their way to flee to Taiwan， including Hong Kong Story member Lee Yu-hin, who was arrested on August 10 for violating the Hong Kong National Security Law, and some protesters who were released on bail after their arrest.
-4. (Dr. Li-meng Yan, 8/25) China government, of course we know they are the reason we have this whole pandemic. Even from the early beginning everything can be avoided because this is from their lab, right? And now they try to show the world using the so-called vaccine success to tell people “you should listen to me because we know how to stop this pandemic”, but they never tell you and they never admit there are two risks behind.
-5. (8/27) The Communist virus, what does it mean? It definitely does not end with dictatorship or BGY1(Note 1: BGY stands for Blue, Gold and Yellow. Blue represents Internet and Media Control; Gold represents money and bribery is used to buy influence; Yellow represents the use of honey traps to compromise espionage targets.) tactics in other countries.
+2018年8月31日BBC報道，巴基斯坦花費50億美元向中共國采購8艘S20P型AIP潛艇（039/041改裝型，元級潛艇）常規動力攻擊型潛艇，在中共國建造的四艘潛艇預計將於2023年底前完成交付，在巴基斯坦建造的四艘將於2028年完成交付。
 
+巴基斯坦現存潛艇包括3艘法國“阿戈斯塔-90B”潛艇，其中壹艘“哈姆紮”(PNS Hamza)號潛艇已配備有AIP系統，兩艘已老化的“阿戈斯塔-70”型號。
+
+中共國海軍的032型潛艇、039A型潛艇、039B型潛艇采用斯特林發動機（SE）AIP技術，是80年代從瑞典引進技術後仿制。瑞典向國際市場推出的4-275型發動機，包括75千瓦和110千瓦的型號，但目前對國際市場出售的是75千瓦的型號，中共國引進的就是75千瓦型號。
+
+中共國通過巴基斯坦獲得德國先進的AIP系統，從而故技重施仿制系統。
+
+巴基斯坦2016年購買中共國8艘元級潛艇並且與中共國聯合制造元級潛艇，首批潛艇並且交付在即，確請求德國升級潛艇空氣獨立推進（AIP）系統。中共制造的AIP系統可能存在缺陷，或並不能滿足巴國需要。2018年6月20日，ETtoday新聞雲報道中共039B潛艇無法克服AIP系統問題壹度停產。
+
+中共國壹直垂涎德國先進發動機技術，據美國環球戰略網報道，中共國進口了壹批德國MTU 396SE85柴油機，被用來裝備中國海軍的潛艇，其中大部分裝備了039A宋級柴電潛艇。2012年3月26日東方網消息，NSL學會的亞洲海軍發展顧問約翰博士稱，德國海軍在未經政府批準的情況下，向中國轉讓其最新裝備的U-214型潛艇技術，中國正借此發展自身的第四代常規潛艇。
+
+常規動力潛艇AIP技術有三種分別為：
+1． 閉式循環柴油機（CCD）AIP，如英國、荷蘭等；
+2． 斯特林發動機（SE）AIP，如瑞典，中共國從瑞典引進；
+3． 燃料電池（FC）AIP，如德國已采用FCAIP方案。
+
+德國已經認識中共國在香港，制造和釋放中共病毒生化武器犯下的反人類罪惡，態度大轉變。
+
+2020年8月24日，中共外交部發言人趙立堅宣布，王毅將對意大利、荷蘭、挪威、法國和德國進行正式訪問。
+
+2020年8月25日，德國默克爾拒絕了中共 “好哥們”巴基斯坦升級潛艇空氣獨立推進（AIP）系統的要求。
+
+2020年8月29日，新加坡聯合早報報道，默克爾在王毅訪德前夕，稱：中德需就香港等多個課題繼續對話，尚不清楚默克爾是否將會見王毅。
+
+在全球滅共的大勢之下，歐洲火車頭德國帶頭滅共勢在必行，民意不可違。
 
 0

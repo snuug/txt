@@ -1,14 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒免疫時間短有二次感染風險,若不搞清楚就無法研製出有效的疫苗（法語French+英語English）
-`2020-09-02 09:14 GM62` [轉載自GNews](https://gnews.org/zh-hant/329966/)
+## 山西臨汾飯店坍塌救援工作結束，57人被埋人員，29人遇難，7人重傷，21人輕傷
+`2020-09-02 13:37 GM01` [轉載自GNews](https://gnews.org/zh-hant/330535/)
 
-法語翻譯：Naomi(文花开) 法語校對：黄玫瑰法国女郎 字幕製作：小羽 視頻校對：道一
+國內新聞作者:背靠背
 
-法語標題 Le risque d’infection secondaire en corrélation avec un vaccin efficace impossible sans une compréhension claire du virus
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02133652/CN-COLLAPSE-200829-18.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02133709/CN-COLLAPSE-200829-1815.jpg)
 
-視頻簡介
-Un cas de réinfection rapporté de HK montre que le SRAS-CoV-2 peut présenter diverses mutations qui peuvent entraîner la réinfection des personnes à plusieurs reprises.
+
+截止8月30日3時52分，山西臨汾市襄汾縣陶寺鄉陳莊村飯店坍塌救援工作結束，搶救出被困人員57人，其中29人遇難、7人重傷，21人輕傷。重傷者均得到有效救治，沒有生命危險。
+
+事情發生經過
+8月29日9時40分許，山西臨汾市襄汾縣陶寺鄉陳莊村壹兩層飯店發生坍塌。據陶寺鄉政府的工作人員稱，發生坍塌的位置是該飯店的偏廳。事發時，該飯店內有當地的壹名老人在過壽，親友前來飯店為老人慶祝。
+
+事發後，共有840多救援人員趕往現場，陸續采用小型設備或者徒手救援。當天18點多，大型設備進場，開始拆除飯店頂棚和大塊水泥預制板
+
+目前救援工作結束，具體坍塌原因正在調查中。
 
 0
