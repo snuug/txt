@@ -1,53 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一中共國公民因妨礙FBI調查罪被逮捕
-`2020-09-01 10:41 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/328181/)
+## 滅共四騎士之一蓬佩奧國務卿被中共北京瘋狂詆毀
+`2020-09-01 16:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/328548/)
 
-*新聞來源：美國司法部；發佈時間：2020年8月28日，星期五*
+滅共四騎士之一蓬佩奧國務卿於日前被中共北京衛視瘋狂詆毀，顯示出中共最後的瘋狂。
 
-*翻譯/簡評：Victory；校對：leftgun；審核：海闊天空；Page：拱卒*
-[!\[\](https://spark.adobe.com/page/j16W6QUMuLLlZ/images/1af54ab1-a249-4e5d-981e-7aacc986e46e.jpg?asset_id=8778683a-0f74-45bf-b5e8-f517ee5776d1&amp;img_etag=%22bbb0f68127fc6be1c29328a479d0f97f%22&amp;size=2560)](https://spark.adobe.com/page/j16W6QUMuLLlZ/images/1af54ab1-a249-4e5d-981e-7aacc986e46e.jpg?asset_id=8778683a-0f74-45bf-b5e8-f517ee5776d1&amp;img_etag=%22bbb0f68127fc6be1c29328a479d0f97f%22&amp;size=1024)
-簡評：
+「妖言惑眾， 喪失底線， 人類公敵， 政治病毒， 美國史上最差國務卿。 讓他往東，他絕不往西， 讓他咬誰，他就立馬張嘴。 曾經的川普反對者， 為何演變為當今人見人厭， 國見國煩的謊言製造者。 美國國會議員， 美國國務卿， 美國中央情報局局長， 政治素人彭培奧， 一路躺贏的秘訣究竟是什麼 ？ 可以說是乾啥啥不行， 抱大腿第一名。 我們撒謊，我們欺騙，我們偷竊， 彭培奧罕見坦誠的背後， 又隱藏著哪些醜惡的故事。 政治傀儡， 外交庸人的拙劣表演仍在繼續， 北京衛視檔案將為您起底三姓家奴彭培奧的荒誕人生。」
 
-美國最近曝光了多起中共軍人在美國隱瞞身份竊取技術的案件。中共長期對美國進行滲透，竊取技術，這些暴露的案件相信只是冰山一角，尚有大量其他的中共軍人潛藏在美國尚未被抓。但美國已經覺醒，在全力“清掃房屋”。本文中被告關磊（音譯Guan Lei）外出扔硬盤等行為都被發現，可見他早已在美國的監控之中。
+“Deceiving the world, forfeiting the principles and morality, the public enemy of humankind, the political virus, the worst Secretary of State of the U.S. ever. Ask him to head east, he dare not turn west. Ask him to bite someone, he snaps with no hesitation. How does a used-to-be Trump opponent, turn into a lie generator loathed by everyone, dishonored by every country. Started as a congressman, then was the director of CIA, now become the Secretary of State of the U.S… What is the secret of a political amateur effortlessly succeeding throughout his entire political career? Feckless and incompetent, good for nothing but riding other’s coattails. “We lied, we cheated, we stole.” – how many disgraceful stories are covered by Pompeo’s uncommon frankness? Here it continues the clumsy hoax performed by this political puppet and diplomatic mediocre. Beijing TV Archives will unveil Pompeo’s absurd life and his servant career for the past three presidents.”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18211113/22_8.105.jpg)
+【編者注】中共國沒有獨立媒體，所有媒體皆為中共控制的喉舌，是共產黨宣傳的工具。北京衛視同中共中央電視台（CCTV）本質沒有不同。
 
-關磊故意損毀證據，將面臨最高20年的監禁。這毫無價值，他為了中共搭上了他的人生，但中共絕不會對其有半點憐惜，會毫不猶豫把它當垃圾丟棄。為了中共的安全，中共不惜殺人滅口，張首晟教授就是活生生的例子。希望其他軍方潛伏人員，不要再為惡魔陪葬，儘早站出來做污點證人。
+相關新聞：[滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
 
-[!\[\](https://spark.adobe.com/page/j16W6QUMuLLlZ/images/e3a970ba-2d2a-4810-945a-55e5403d1d4e.png?asset_id=51dede5e-7b74-43f3-b90f-2b3a32890cc5&amp;img_etag=%22b9e1e451a3b771b5910e781e85d9d93c%22&amp;size=2560)](https://spark.adobe.com/page/j16W6QUMuLLlZ/images/e3a970ba-2d2a-4810-945a-55e5403d1d4e.png?asset_id=51dede5e-7b74-43f3-b90f-2b3a32890cc5&amp;img_etag=%22b9e1e451a3b771b5910e781e85d9d93c%22&amp;size=1024)
+翻譯：【ddm】字幕：【相機過熱啊】聽寫：【羅賓 Robin (文賓) 】助理：【Melody太陽的旋律】編輯：【Michelle】
 
-#### 司法部
+戰友之家玫瑰園小隊出品
 
-#### 公共事務辦公室
-
-#### 即時發布
-
-**週五，2020年8月28日**
-
-中共國國民被指控在聯邦調查局就其可能向中共國傳送敏感軟件調查期間銷毀硬盤
-
-美國司法部(Justice Department)今天宣布，一名中共國公民、加州大學洛杉磯分校(University of California, Los Angeles)研究員因涉嫌破壞證據妨礙聯邦調查局(FBI)調查，已被聯邦政府逮捕。此前，他被看到把一個損壞的硬盤扔到公寓外的垃圾箱。
-
-根據今天下午公佈的一項刑事起訴書，關磊（音譯Guan Lei） 29歲，來自阿罕布拉，在美國地區法院首次出庭時被逮捕。
-
-刑事起訴書稱，持J-1非移民簽證在美國的關磊（音譯Guan Lei）於7月25日將一個損壞的硬盤扔進了他家附近的垃圾箱。關磊被禁止登機前往中國並拒絕FBI檢查其電腦的要求後，FBI恢復了損壞的硬盤。支持該投訴的證詞指出，內部硬盤已被永久性損壞，該硬盤的所有數據似乎已被故意強行刪除。
-
-根據起訴書,關磊（音譯Guan Lei）正在因涉嫌傳輸敏感的美國軟件或技術數據到中國國防科技大學接受調查，同時他還被指控2018年申請簽證、在和聯邦執法部門面談中謊稱其與中共軍方沒關係。關磊後來承認，他曾參加過軍隊訓練，並在中國國防科技大學時著軍裝。關磊是中國國防科技大學的一位顧問，也是中共解放軍的一名中將，他曾為解放軍總參謀部、解放軍總裝備部、空軍、軍事天氣預報和核技術開發計算機。證詞顯示，中國國防科技大學（ NUDT）“涉嫌採購源自美國產品，用於開髮用於核爆炸的超級計算機”，並因防止核擴散理由而被列入商務部的實體名單。
-
-除銷毀硬盤之外，起訴書還稱，關磊向調查人員隱藏了數字存儲設備，並對聯邦官員謊稱，他在美國待了近兩年期間從未與中共國領事館有過任何联系。
-
-在今天下午的首次出庭時，關磊被美國地方法官下令拘留，並定於2020年9月17日進行傳訊。
-
-刑事訴狀包括對被告犯罪的指控。在排除合理懷疑證明有罪之前或之前，每名被告都被假定為無罪。
-
-破壞證據重罪的法定最高刑罰是在聯邦監獄服刑20年。
-
-美國聯邦調查局、國土安全部以及美國海關和邊境保護局正在調查這起案件。美國國務院外交安全部在調查期間提供了重要協助。
-
-這起案件由美國反恐和出口犯罪部門的助理檢察官威爾·羅林斯和喬治·彭斯起訴。
-
-[原文鏈接](https://www.justice.gov/opa/pr/chinese-national-charged-destroying-hard-drive-during-fbi-investigation-possible-transfer)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/j16W6QUMuLLlZ/)
+> [滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
 
 0

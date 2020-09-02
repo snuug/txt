@@ -1,55 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國與第三世界國家的“債務陷阱”外交
-`2020-09-01 11:59 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/328400/)
+## 沃伦· 巴菲特向日本五個最大貿易公司投資60億美金
+`2020-09-01 21:14 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/328922/)
 
-*新聞來源：Zero Hedge《零對沖》；作者：Lawrence A. Franklin；發佈時間：08/30/2020*
+編輯：玫瑰天空
 
-*翻譯/簡評：萬人往；校對：Julia Win；審核：海闊天空；Page：拱卒*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01204757/image-1.png)
 
-**簡評：**
+[沃伦](https://www.theguardian.com/business/warrenbuffett)[·](https://www.theguardian.com/business/warrenbuffett)[巴菲特(](https://www.theguardian.com/business/warrenbuffett)[Warren Buffett](https://www.theguardian.com/business/warrenbuffett)[)](https://www.theguardian.com/business/warrenbuffett)已向日本五個最大嘅貿易公司投資60億美金,呢啲大型企業集團涉足由進口食品和紡織品到技術和製造業嘅各個領域,佢希望喺美國以外嘅地區實現多元化發展。
 
-中共國的“一帶一路”計劃，可以稱為“一貸一擄”或“一貸一賂”，通過藍金黃海外有影響力的政商，打著共建共榮的旗號，輸出腐敗和債務，建立由中共主導的國際秩序。當這些國家深陷中共的債務陷阱無力償還時，中共會進一步提出要求，比如租借港口、低價購買資源等。
+啱啱滿90岁嘅巴菲特出人意料嘅舉動意味住佢係三菱公司,三井物產,伊藤忠商事株式會社,住友商事株式會社同丸紅公司嘅最大股東之一。巴菲特的投資公司伯克希爾·。 哈撒韋(Berkshire Hathaway)已購買了喺日本經濟中發揮住至關重要作用並日益成為全球參與者嘅”sogo  shosha”  ”(一般貿易公司)中嘅5%嘅股份。
 
-在中共習總加速師親自指揮、親自部署、親自踩油門加速的領導下，“一貸一賂”爛尾項目層出不窮，越來越多的國家認清中共的邪惡。所謂的“大國外交”逐漸演變成中共在國際上抱頭鼠竄，人人喊打的局面。
-[!\[\](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/4ead733f-db84-432e-b5f6-2f920b9fadb8.jpg?asset_id=d8d0be26-0c18-453d-a297-231944093890&amp;img_etag=%2236ed67ecb57a3eaada30687df33ed905%22&amp;size=2560)](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/4ead733f-db84-432e-b5f6-2f920b9fadb8.jpg?asset_id=d8d0be26-0c18-453d-a297-231944093890&amp;img_etag=%2236ed67ecb57a3eaada30687df33ed905%22&amp;size=1024)
-##  **中共國與第三世界國家的“債務陷阱”外交** 
+巴菲特話:≤五家主要嘅貿易公司喺全球擁有好多合資企業,並且可能會有更多嘅呢種合伙關係。  ≤我希望將來可能會有互惠互利的機會。呢啲股份係透過子公司國家賠償機構購買嘅,總價值超過63億美金(合47億英鎊)。 伯克希爾哈撒韋計劃長期保持主要投資者的身份,有可能將其在五個交易公司中的任何一家的持股量增加,後者在大流行期間的股價已急劇下跌至9.9%。 呢啲股份係喺過去一年中透過喺東京證券交易所定期購買而積累起來的,但只係啱啱被披露。
 
-中國共產黨主席習近平的標誌性外交政策是“一帶一路倡議”(簡稱“一帶一路”)的商業和戰略規劃。起初，這個網絡被定義為恢復連接中共國和歐洲的古代陸上貿易路線“絲綢之路”。這條“新絲綢之路”和它的前身一樣，將穿越廣袤的中亞大草原——但據稱，現代的“一帶一路”還將為沿線各國帶來經濟福祉。
+此舉喺日本市場受到了廣泛歡迎,促使五家貿易公司嘅股份喺伊藤忠商事中上漲了6 6%,在丸紅公司中上漲了14%。 三菱UFJ摩根士丹利證券(Mitsubishi UFJ Morgan  Morgan  Stanley Securities)駐東京嘅首席投資策略師藤纪纪弘(NorihiroFujito)表示:≤“平價嘅估值可能吸引咗佢哋。  ≤但係買入全部五家公司而唔係揀其中幾家,唔似巴菲特嘅風格。
 
-[!\[\](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/e5922755-5281-4400-ab9e-16f76bb80713.jpg?asset_id=3dedbdcf-9f72-4d03-a992-dd4a35d375be&amp;img_etag=%2220da5ab0ea295f61ee2c8e5506fe8e9f%22&amp;size=2560)](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/e5922755-5281-4400-ab9e-16f76bb80713.jpg?asset_id=3dedbdcf-9f72-4d03-a992-dd4a35d375be&amp;img_etag=%2220da5ab0ea295f61ee2c8e5506fe8e9f%22&amp;size=1024)
+呢項投資將有助於減少伯克希爾對美國經濟的依賴,後者喺最後一個季度收縮咗至少73年以來的最高水平。 伯克希爾·。 哈撒韋公司(Berkshire Hathaway)直屬擁有90多個業務,並喺数十个投資項目(主要係美國)中進行了投資(由美國運通,可口可樂到美國銀行),以及1250億美金嘅蘋果股份。
 
-習近平在提出陸地“一帶一路”之後，很快又提出海上版本的“一帶一路”，預計將中共國在南中國海的港口與印度洋的港口連接起來，繼續延伸到中東國家，最終到達歐洲港口。最初這些方案僅涉及“一帶一路”沿線國家。
-
-現在習近平的宏偉大道是在全球範圍內，一直延伸到阿拉伯半島以西的非洲海上戰略要道吉布提，以及南美第三大石油儲備國厄瓜多爾。
-
-然而，中共國與非洲和拉丁美洲貧窮的“第三世界”國家之間的一些協議的經濟利益是值得懷疑的。其中一些雙邊一攬子計劃似乎是為了將已經貧困的國家綁架為中共國的永久經濟附庸國。
-
-[!\[\](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/e316b233-1731-438c-93aa-c6fd4918e7b6.jpg?asset_id=2dfce84f-d6fa-4750-a865-527028e515ed&amp;img_etag=%22cdde2dd32e109446d7233d7018bd7dfe%22&amp;size=2560)](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/e316b233-1731-438c-93aa-c6fd4918e7b6.jpg?asset_id=2dfce84f-d6fa-4750-a865-527028e515ed&amp;img_etag=%22cdde2dd32e109446d7233d7018bd7dfe%22&amp;size=1024)
-
-“一帶一路”網絡的目的顯然是為了讓中共國受益，要么是通過刺激貿易的大幅增長，要么是在無法償還債務的情況，中共國選擇並侵占所在國資產。作為世界上最大的石油進口國，中共國將能夠通過幾項“一帶一路”雙邊協議實現石油來源的多樣化。中共國很可能還希望通過“一帶一路”安排獲得政治利益。參與中共國“一帶一路”的國家，普遍對美國及其盟友較為友好，但它們可能迴避支持西方的國家安全憂慮，因為它們擔心失去中共國對本國經濟的巨額投資。
-
-已有充分證據表明，一些“一帶一路”參與國對中共國人權狀況不佳的批評保持沉默。例如，對於中共國在其西北省份新疆對數百萬維族穆斯林近乎種族滅絕的行為，許多伊斯蘭國家都保持沉默。一些穆斯林國家甚至稱讚中共國對新疆維吾爾族的國內政策。沒有一個穆斯林占多數的國家投票譴責對維吾爾人的所作所為，以支持西方國家在聯合國公開制裁北京的決議。
-
-批評中共國“一帶一路”計劃的人士指出，中共國的貸款協議缺乏透明度，合同有時會以敲詐勒索的方式為中共國利益服務，無視當地的關切。例如，斯里蘭卡在未能履行對中共國的債務義務後，將漢班托塔(Hambantota)港口割讓給了中共國。委內瑞拉向中共國輸送石油，而不是其毫無價值的貨幣。在習近平任期的第一年, 厄瓜多爾已向中共國出口90%的石油，甚至可能低於國際市場價格。此外，厄瓜多爾似乎無法阻止數百艘中共國漁船在加拉帕戈斯群島(Galapagos Islands)附近對其主權海洋經濟區邊緣的海洋生物進行掠奪。一位不願透露姓名的船長說:“他們會把所有東西都拉起來!”
-
-[!\[\](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/9d8ed09a-5e5b-4a8d-8904-cfdfc8eb8d36.jpg?asset_id=bf0f2a56-a53a-404f-bbaf-49e4c309e847&amp;img_etag=%222cbdac58e690ab78e048d7fedb0df2b2%22&amp;size=2560)](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/9d8ed09a-5e5b-4a8d-8904-cfdfc8eb8d36.jpg?asset_id=bf0f2a56-a53a-404f-bbaf-49e4c309e847&amp;img_etag=%222cbdac58e690ab78e048d7fedb0df2b2%22&amp;size=1024)
-
-批評人士還指責中共國支持與獨裁政權國家簽訂“一帶一路”協議。北京已經在非洲的津巴布韋、東南亞的老撾和南美的委內瑞拉投資。西方一種新的、尤其不祥的批評是，中共國將其面部識別技術提供給玻利維亞、委內瑞拉和厄瓜多爾等國，這些“一帶一路”附屬國家安裝了中共國的監控系統。
-
-中共國對本國公民人權的漠視，毫不奇怪地延伸到了東道國公民的權利。例如，中共國在厄瓜多爾開採原材料和礦產，就引起了舒阿爾人（Shuar）和瓦拉尼人（Waorani）的抗議，他們擔心環境問題。雖然中共國的一些基礎設施項目是有益的，但代價高昂——比如在肯尼亞建設一條從首都內羅畢（Nairobi）到主要港口蒙巴薩（Mombasa）的鐵路線——其它項目則是“累贅”。中共國工程師修建的一條從烏干達首都坎帕拉（Kampala）到該國恩德培（Entebbe）國際機場的公路就是這樣一個不太有用的項目。該項目預計將改善交通狀況，但除了將當地資源轉移到中共國以外，其它好處幾乎沒有。
-
-中共國為基礎設施項目提供巨額貸款的另一個缺點是，附屬國被迫忍受中共主席習近平所說的“中共國特色”。當北京在一個基礎設施項目上安頓下來時，大量的中共國工人到達東道國，建立他們自己的生活區，完成項目，然後離開。中共國很少或從不僱傭當地工人，也沒有對當地人進行技術培訓，而這些都可以從大量存在的中共國專業技術人員處獲益。一些中共國團隊甚至自帶廚師，很少參與附屬國公民的社交活動。
-
-[!\[\](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/6a80918a-cd2d-44f8-9d45-c095a5b9c099.jpg?asset_id=b601764a-a6f2-4cd3-971f-1b46846a81f5&amp;img_etag=%2255d59d0cb82d33769172f6ee8c573561%22&amp;size=2560)](https://spark.adobe.com/page/ru5ZC0ndcyk0l/images/6a80918a-cd2d-44f8-9d45-c095a5b9c099.jpg?asset_id=b601764a-a6f2-4cd3-971f-1b46846a81f5&amp;img_etag=%2255d59d0cb82d33769172f6ee8c573561%22&amp;size=1024)
-
-中共國全球“一帶一路”倡議的目標顯然既是經濟目標，也是戰略和政治目標。 “一帶一路”項目的設計與其說是為了贏得新朋友，不如說是為了贏得新的依賴者，特別是在被西方忽視的地區或西方勢力範圍內的地區。
-
-中共國的“一帶一路”計劃在全球範圍內的最終目標，似乎是要用一個完全由中國共產黨主導的政治、軍事和經濟層面，取代西方自由民主秩序中現有的政治、軍事和經濟層面— —這一點也不足為奇。
-
-[原文鏈接](https://www.zerohedge.com/geopolitical/chinas-debt-trap-diplomacy-third-world-nations)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/ru5ZC0ndcyk0l/)
+援引[:https://www.theguardian.com/business/2020/aug/31/warren-buffett-invests-6bn-in-japan-five-biggest-trading-houses。](https://www.theguardian.com/business/2020/aug/31/warren-buffett-invests-6bn-in-japan-five-biggest-trading-houses)
 
 0

@@ -1,23 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共四騎士之一蓬佩奧國務卿被中共北京瘋狂詆毀
-`2020-09-01 16:26 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/328548/)
+## 加拿大喜莊園農場– 快樂滅共
+`2020-09-01 22:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/328976/)
 
-滅共四騎士之一蓬佩奧國務卿於日前被中共北京衛視瘋狂詆毀，顯示出中共最後的瘋狂。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01195838/1-6.png)
+2020年的8月29日，對於我們加拿大喜莊園農場來說是一個意義非凡的日子。這一天我們的莊主卡麗熙女士帶領著溫哥華爆料革命的戰友們一起走上街頭，進行了一整天的遊行和抗議活動。
 
-「妖言惑眾， 喪失底線， 人類公敵， 政治病毒， 美國史上最差國務卿。 讓他往東，他絕不往西， 讓他咬誰，他就立馬張嘴。 曾經的川普反對者， 為何演變為當今人見人厭， 國見國煩的謊言製造者。 美國國會議員， 美國國務卿， 美國中央情報局局長， 政治素人彭培奧， 一路躺贏的秘訣究竟是什麼 ？ 可以說是乾啥啥不行， 抱大腿第一名。 我們撒謊，我們欺騙，我們偷竊， 彭培奧罕見坦誠的背後， 又隱藏著哪些醜惡的故事。 政治傀儡， 外交庸人的拙劣表演仍在繼續， 北京衛視檔案將為您起底三姓家奴彭培奧的荒誕人生。」
+活動的當天風和日麗，經過了數週緊鑼密鼓的準備後，組織者和戰友們一早來到了中共國駐溫哥華總領館集合。伴隨著新中國聯邦的國歌，我們藍色七芒星國旗經由卡麗熙女士的雙手，冉冉升起在了中共國總領館的大門口。這一具有標誌性意義的升旗儀式，是新中國聯邦直面中共的一次吶喊：中共政府是非法政府，中共是恐怖組織，你們完了！我們新中國聯邦是你的終結者！
 
-“Deceiving the world, forfeiting the principles and morality, the public enemy of humankind, the political virus, the worst Secretary of State of the U.S. ever. Ask him to head east, he dare not turn west. Ask him to bite someone, he snaps with no hesitation. How does a used-to-be Trump opponent, turn into a lie generator loathed by everyone, dishonored by every country. Started as a congressman, then was the director of CIA, now become the Secretary of State of the U.S… What is the secret of a political amateur effortlessly succeeding throughout his entire political career? Feckless and incompetent, good for nothing but riding other’s coattails. “We lied, we cheated, we stole.” – how many disgraceful stories are covered by Pompeo’s uncommon frankness? Here it continues the clumsy hoax performed by this political puppet and diplomatic mediocre. Beijing TV Archives will unveil Pompeo’s absurd life and his servant career for the past three presidents.”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/18211113/22_8.105.jpg)
-【編者注】中共國沒有獨立媒體，所有媒體皆為中共控制的喉舌，是共產黨宣傳的工具。北京衛視同中共中央電視台（CCTV）本質沒有不同。
+隨後遊行隊伍來到了溫哥華市中心的美術館廣場，一曲郭文貴先生的“Take Down the CCP’ 動感十足，立刻把廣場上的人們帶動得情緒高漲。卡麗熙女士和戰友們揮舞著加拿大國旗和新中國聯邦的國旗，高聲呼喊著口號“打倒中國共產黨”，“中共病毒屠殺人類”。 廣場上的人慢慢多了起來，有些好奇的路人想要詢問這次遊行的原因和目的。戰友們拿出閆麗夢博士關於中共病毒的宣傳單，分發了起來。有幾位戰友還接受了當地媒體和電視台的採訪，向他們講述病毒的真相以及控訴中共的罪行。
 
-相關新聞：[滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
+忙碌且興奮的一天很快結束了，留下的是滿滿的記憶，戰友們還沉浸在第一次並肩戰鬥的喜悅之中。遊行隊伍裡有成年人，也有少年，整個遊行過程充滿了歡聲笑語。因為是爆料革命把志同道合的我們聚在了一起，所有人都是為了一個共同的信仰而來– 滅共！
 
-翻譯：【ddm】字幕：【相機過熱啊】聽寫：【羅賓 Robin (文賓) 】助理：【Melody太陽的旋律】編輯：【Michelle】
+我們加拿大喜莊園農場不但齊心滅共，而且還要快快樂樂地滅共。在談笑風生間，嬉笑怒罵時就把惡魔中國共產黨徹底從地球上清除掉！
 
-戰友之家玫瑰園小隊出品
+秘密翻譯組– 理查德
 
-> [滅共四騎士演講之四：蓬佩奧國務卿尼克松圖書館演講全文（2020.07.23）](https://gnews.org/zh-hant/276965/)
-
+原創觀點文章- 2020.08.30
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01195848/2.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/01195919/3-4.png)
 0
