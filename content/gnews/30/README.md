@@ -1,13 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 傳播真相，拯救三峽大壩潰壩危險中的家人！
-`2020-09-03 04:47 GM31` [轉載自GNews](https://gnews.org/zh-hant/331435/)
+## 拉烏爾醫生：一種被20億人服用過的藥物羥氯喹如何在2020年變成了有毒的? （丹麥語Danish+中文Chinese）
+`2020-09-03 09:50 GM62` [轉載自GNews](https://gnews.org/zh-hant/332268/)
 
-郭先生在在2020年8月29日與在三藩市遊行的戰友們連線直播時被問及關於三峽大壩崩溃的危險和如何幫助在國內的家人做準備，郭先生告訴大家現在唯一能做的事情就是在西方傳播真相，中共在三峽地區玩弄政治、搞大外宣欺騙，沒有任何的防災、救災的措施, 它巴不得都人死乾淨才好呢。我們所能做的唯一的事情就在西方傳播真相！我們唯一的希望就是新中國聯邦，我們也只有一條路: 幹倒共產黨， 拯救全中國人民。郭先生鼓勵戰友們在安全、身體健康的情況下，支援爆料革命、支持新中國聯邦。
+翻譯：麦丹奈 校對：螞蟻游擊隊(文蟻） 視頻製作: 小羽
 
-*翻譯：【JoyJoy】 校對&編輯:【GM31】 字幕：【Vinzo】*
+內容簡介
+迪迪埃·拉烏爾(Didier Raoult)博士目前是馬賽大學醫院傳染病研究所(IHU)的負責人。 拉烏爾博士積極宣導羥氯喹與抗生素聯合治療Covid-19。
 
-*戰友之家玫瑰園小隊出品*
+Dr. Didier Raoult er i øjeblikket en leder af Institut for infektionssygdomme (IHU) på Marseille Universitetshospital. Dr. Raoul går aktivt ind i kombinationen af ​​hydroxyklorokin og antibiotika til behandling af COVID-19.
 
 0

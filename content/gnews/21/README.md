@@ -1,181 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧國務卿9月2日發佈會表明對中共國的重錘已經落下！
-`2020-09-02 23:34 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/331176/)
+## 不富不行，不服不行-Gfashion在新中國聯邦的戰略意義
+`2020-09-03 10:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/332403/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02232245/DOS_20200902_News_Briefing-photo.jpeg)
-美國國務卿蓬佩奧[2020年9月2日的新聞發佈會](https://www.youtube.com/watch?v=m4OgVI73nSo)上，針對中共國的講話包含了諸多對中共國的實質性制裁和對國際刑事法庭的重大制裁措施。要點如下：
+喜馬拉雅聯盟加拿大農場金融時事欄目組 Karen（海嘯）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/03102548/710fe6afffbc9bb3-scaled.jpg) *圖片來源：VOG* 
+GFashion股票，引起了戰友們的沸騰。戰友們都在說翻多少倍，分多少股，沒有人聊這在大戰略中可能意味著什麼！
 
-- 對直接參與國際刑事法庭調查美國或其盟國人士，或為調查提供實質性幫助的外國人員施加經濟制裁。
-- 蓬佩奧國務卿下周將會見東盟和印度太平洋地區的同盟。
-- 恢復對等美中關係。由於中國共產黨對在中國境內工作的美國外交官施加了重大障礙，美國國務院已建立了相應機制，要求中國高級外交官在美訪問大學校園和會見地方政府官員需要獲得批准。 由中國大使館和領事館主辦的而非美方授意的文化活動如團體人數超過50人也需要批准。
-- 確保將所有中國官方使館和領事社交媒體帳戶正確標記為政府帳戶，即中國政府帳戶。
-- 已致信美國大學理事會，以突破中共對學術自由、人權和大學捐贈所構成的威脅。公開所有投資於捐贈基金的中共國公司，尤其是那些投資於新興市場指數基金的公司。
-- 提出以和平方式解決印中邊界的局勢。 指出從台灣海峽到喜馬拉雅山，乃至更遠的地方，中國共產黨都在以明顯和加劇的方式欺壓鄰國。
-- 對於中共總書記習近平最近呼籲將藏傳佛教「中國化」並與那裡的「民族分裂主義」作鬥爭，對中國在西藏的行動表示關切。
+爆料革命為什麼非要讓戰友們富呢？
 
+我們自己捫心自問做了點啥？
 
-**演講中有關中國部分內容（中英文對照）**
+對七哥來講，他為啥不花點錢讓職業經理人干呢，專業的人幹的不比我們好？
 
-REMARKS TO THE PRESS
+買股票借款我們自己那點錢，能比七哥躺一晚上，賺得更多？責任更小？
 
-MICHAEL R. POMPEO, SECRETARY OF STATE
+顯然不是。那我們開開腦洞，Gfashion這件事到底在幹什麼。
+![](https://gnews.org/de0e15de-20b4-45ed-9a73-494484981a1a)圖片來源：VOG 
+一、如何理解我們所處的時代背景
 
-國務卿蓬佩奧媒體發佈會講話
+咱們把爆料革命，放到當前大的背景之下，我們能看出個大概。很明顯世界經濟遇到重大的問題，貧富差距過大，已經到了不可調和的地步。貧富差距過大，在當前法幣時代怎麼解決？靠控制信息，靠fakenews，靠黨媒控制。印了錢，人們只要不知道就不會動搖內心。全世界信息都不通暢，最富的富人上百億的賺錢，老百姓根本不知道。而這種信息差，近百年造就了貧富差距。
 
-PRESS BRIEFING ROOM
+現在七哥開啟了爆料革命，我們才知道還有人手上有萬億甚至幾萬億，我們才知道這個世界還能這麼玩。當這個信息披露出來的時候，戰友們就應該明白，一定是世界定海神針的力量覺得，是時候解決貧富差距的時候了。因為已經說出去的話無法收回，當原來這些我們不可能知道的信息傳的滿大街的時候，事情就不得不改變了。
 
-WASHINGTON, D.C.
+二、貧富差距如何解決
 
-媒體室，華盛頓特區
+那既然要解決貧富差距的問題，怎麼解決呢？江財神說過，解決貧富差距的有四個手段，疫情、崩盤、革命、戰爭。只有這四個，讓所有人賠錢的方式，能真正解決貧富差距過大的問題。富人從天上掉到地上，窮人在地上摔倒，最後不管死活都在地上躺著，這樣差距就小了，人們心中的焦慮就消失了。
 
-SEPTEMBER 2, 2020
+疫情：已經在發生了；崩盤：各方肯定不願意；革命：打土豪分田地，正在上演，但定海神針們明白，誰敢玩這個，最後一定自己也得玩完，參考毛創始人的下場；局部戰爭：可控的局部戰爭，一場針對解決貧富差距，提出不同解決方案的人，最終的碰撞。
 
-2020年9月2日
+戰爭，比如已經我們已經見證過的，七哥和王歧山一開始就是對手，展開了全球範圍的超限戰。七哥和王歧山，代表了不同的勢力提出的解決方案。王岐山執掌紀委，在18大後乾掉百萬黨員，是為了向定海神針證明，CCP可以通過殺人，解決貧富差距的問題；七哥今天提出的G系列，也是向定海神針證明，我們可以通過造富，解決貧富差距的問題。值得思考的是，王岐山代表的黑暗力量走的是均貧路線，把富人都給你幹掉；七哥代表的光明力量，走的是均富，讓窮戰友都變得有錢。
 
-SECRETARY POMPEO:  Good morning, everyone.  Good to see you all.
+三、百年不遇的Gfashion
 
-彭培奧國務卿：大家早上好。 很高興見到大家。
+回到Gfashion，為什麼要給戰友們錢，在合法的前提下，盡可能有激勵且雨露均霑的“先富帶後富”？為什麼七哥定義Gfashion送股為新中國聯邦的一項國策？這真的是百年不遇的事情。七哥不需要展示什麼，也不是他缺什麼，他只是在完成上天賦予他的使命，人家就是來幹這個的，解決世界巨大的經濟問題。他在拼命用均富的方法，解決貧富差距。起碼在新中國聯邦的勢力範圍內，貧富差距盡可能縮小。
 
-I want to start today talking about multilateralism.  The Trump administration wants multilateral
+貧富差距是怎麼縮小的？比如我有1萬美元，定級富豪有一萬億，我倆差距是1億倍；我買了100萬股GFashion，他買了10億股Gfashion，由於Gfashion非常值錢，一增值，我倆差距就從一億倍縮小到一千倍。 G系列投資的實質，把資金門檻被大大降低，並把分配的依據掛鉤戰友在爆料革命中的行動，這樣盡可能造就了起點的公平。這樣的事多幾次投資，貧富差距在新中國聯邦內，就被大大的壓縮了。這就是七哥說未來扁平化的世界。而什麼能保證這種扁平化長時間持續呢？就是平等的政治地位和信息差被可能壓縮，這也是爆料革命三年來打下的堅實基礎。七哥說的信息，過去我們不可能知道，知道也聽不懂，聽懂了也做不到，今天不僅都知道了，而且都聽得懂，七哥把門檻抹平，戰友也能做得到。只是看戰友敢不敢，幹不干而已。
 
-institutions to function, to actually work.  But multilateralism just for the sake of it, just to get together in a room and chat, doesn’t add value.
+四、戰友不富不行
 
-今天我先從多邊主義開始談起。 川普政府希望多邊機構發揮作用，真正發揮作用。 但是，如果多邊主義僅僅只是多方聚在一個房間里聊天，那不能帶來任何意義。
+戰友們接觸的是最頂級的信息和情報，戰友們已經比普通人知道的多得多，因此真正的戰友實際上不富也不現實。掌握信息不僅意味著你比不知道的人有致富的先機，更是均富這個解決方案必經的過程。戰友們想富伸手可得，想不富也不差你一個人，過了這個村，沒這個店。還有的欺民賊看不明白，不願意相信，無法回頭，是因為他們徹徹底底錯過了這班歷史造富大潮，這得多鬧心。
 
-That brings me to the International Criminal Court, a thoroughly broken and corrupted institution.  The United States has never ratified the Rome Statute that created the court, and we will not tolerate its illegitimate attempts to subject Americans to its jurisdiction.
+滅共是解決貧富差距必經的路徑，這麼多年早不滅CCP晚不滅CCP，為啥今天司法部文件也出來了，兩黨意見也統一了，海外特務也被抓了？定海神針的力量不是為了滅而滅，是今天經濟問題到了這樣一個迫在眉睫的時刻，科技和信息也早已到了另一個時代，想回頭回不了，滅共這事不干不行了。
 
-這讓我聯想起國際刑事法庭，這個徹底崩潰和腐敗的機構。 美國從未批准美國從未批准創立這個法庭的《羅馬規約》，我們也不會容忍其欲將美國人民置於其管轄範圍之內的非法企圖。
+所以實際上七哥用了很長時間來考驗，來測試，希望找到誰是真戰友，因為只有真戰友才配得上這些財富，也只有真戰友掌握了財富，才能保證世界和平。這個隨著爆料革命的推進，真戰友一定會慢慢篩選出來。如果天量的財富，混進來幾個欺民賊，這就將給新中國聯邦埋下了定時炸彈。
 
-In June, the Trump administration authorized the imposition of economic sanctions against foreign persons directly engaged in ICC efforts to investigate U.S. or allied personnel, and those who materially assisted in those – in that effort.
+五、為什麼這次會真的改變？
 
-6月，川普政府授權對直接參與國際刑事法庭調查美國或其盟國人士，或為調查提供實質性幫助的外國人員施加經濟制裁。
+很多人不相信真的改變，我有一個觀點。大多數支持爆料革命的真戰友，在現實中往往是真正做事的人。如果世界經濟繼續高速發展，我們這些實際做事的人依然走不出來。為什麼？如果你是資源實際控制方，在經濟好的時候，這個項目給你也賺錢，給他也賺錢，最終當然會選擇給和我關係好的，為了我頭上烏紗帽，給我回扣最多的，幫我壞事幹最多的，這是人性的必然結果；如果經濟不好了，給你也做不成，給他也做不成，我當然會選擇給一個能幹事的人，能解決當前危機的人來幹。這時候什麼關係都不好使了，在真正危機時，這些人一點價值沒有。漲潮的時候，你看欺民賊，光著屁股游泳，遊的快的褲衩都跟不上；退潮的時候，就看出來誰踏實做事了，誰穿著泳衣。真正做事的戰友，退潮的時候尤其穿的多；不僅自己不露屁股，還能撕一塊給其他人擋一擋。這就是今天大趨勢下所有人的必然選擇。這個跟你跟誰熟沒關係，跟你師從哪派沒關係，你能不能堅持下來，只看你是不是這麼做事的人，你有沒有信仰，你是否能從這些蛛絲馬跡中找到背後的邏輯。
 
-Today we take the next step, because the ICC continues to target Americans, sadly.
+六、為什麼叫諾亞方舟
 
-Pursuant to Executive Order 13928, the United States will designate ICC Prosecutor Fatou Bensouda, and the ICC’s Head of Jurisdiction, Complementary, and Cooperation Division Phakiso Mochochoko for having materially assisted Prosecutor Bensouda.
+為啥叫諾亞方舟，不僅是因為你跟上了G系列，你能大富大貴；更因為如果你要沒上船，只看不干，你以後想上船，這種門檻可能一輩子都邁不過來。為什麼？戰友們想過沒想過，貧富差距能不能在全世界範圍，大規模的解決？歷史上一次也沒有。統計學有一個術語，組間不平等來替代組內不平等。美國人能夠保持自己內部相對扁平化，組內平等（也就是國內相對貧富差距小），那他國與美國之間的貧富差距就會拉大，而且越拉越大；七哥不是也說現在美國產業GDP佔世界的60-70%，滅共以後會變成90%以上。你看，如果你不上船還哪裡有工作呢？組內平等或叫國內平等，就一定帶來組間不平等，就是國與國之間不平等。七哥創造的新中國聯邦，就是這麼一艘船。
 
-今天，我們要採取下一步行動，因為可悲的是，國際刑事法庭繼續將視美國人民為目標。
+問題來了，新中國聯邦，戰友們都這麼富，誰窮啊？答案是全世界都窮，你只要和新中國聯邦沒關係，你都遭遇經濟危機。這種差距會越來越大，最終成為人與人之間不可逾越的門檻。你不上船，幾代人的希望被你的選擇毀掉了，甚至你後人的血脈就沒了。現在不上船，以後的代價越來越大，直到這個鴻溝完全填不平，直到你想都不敢想為止。分離文明，任何人之間分開了，越走越遠。
 
-根據13928號行政命令，美國將鎖定國際刑事法庭檢察長Fatou Bensouda以及國際刑事法庭司法互助合作部負責人Phakiso Mochochoko，因其對Bensouda檢察長提供了實質性協助。
+七、為什麼實際已經勝利
 
-Individuals and entities that continue to materially support those individuals risk exposure to sanctions as well.
+從這個扁平化的團體看，實際上戰友們這個團體已經形成了，沒有人能替代這個團體了。沒有人能滅掉所有人，因此從整體看，爆料革命是終會勝利的，只是這裡面有沒有你，並且你能不能夠堅持到最後而已。退一萬步講，即使沒有七哥，CCP這個體係也會完蛋；因為CCP這個體系，是個只會製造窮人的分配體系，分配就意味著他不會造血。家裡面10個人，2個人上班，8個人等著分配那2個人的財富過活，自己就把自己吃死了。所以勝利是必然的，只是代價有多大，時間有多長，我們還能不能活著。爆料革命當然有風險，我們當然要承擔風險，我們沒得選，因為不干的風險更大。
 
-任何繼續為上述兩位人員提供實質性支持的個人或實體也將有遭受制裁的風險。
+七哥所打造的，就是路德說的滅共體系，不以誰的意志為轉移，已經停不下來了，是這個時代的大潮，真的沖我們來了。
 
-Additionally, the State Department has restricted the issuance of visas for certain individuals involved in the ICC’s efforts to investigate U.S. personnel.
+八、壞人如何選擇
 
-另外，國務院已對涉嫌參與國際刑事法庭調查美國人員的個人限制簽發簽證。
+最後，提醒一下國保、國安、五毛，這麼大的歷史時刻啊，你們看明白了沒有？你滅掉幾個戰友有什麼用？你自己再想一想，你的上級在關鍵時刻待你們如何，爆料革命又是如何待這些特務的？何去何從，聰明人不用說太多了吧。現在真心對付爆料革命的，就剩下一幫留在CCP船上的傻子。你們要替自己、家人和後代早做選擇，留好後路。 CCP就想讓你們干點什麼壞事，傷害一下戰友，砸砸郭先生，讓你們走上不歸路。你們自己何去何從，好好想想吧！
 
-On the multilateral front further, I look forward to seeing my ASEAN and Indo-Pacific counterparts next week at a host of virtual meetings.
+戰友們有沒有點啟發，Gfashion讓我們不富不行，七哥的戰略是不是讓我們不服不行呢？
 
-在多邊方面，我期待下周在許多虛擬會議上見到我東盟和印度太平洋地區的同盟們。
-
-We’ll have discussions that will be wide-ranging, including on COVID, North Korea, South China Sea, Hong Kong, and Burma’s Rakhine State.
-
-我們將就COVID、朝鮮、南中國海、香港和緬甸若開邦，等議題進行廣泛的討論。
-
-I’ll also raise how the Trump administration is restoring reciprocity to the U.S.-China relationship.  And today we continue that necessary work.
-
-我還將提出川普政府如何恢復對等美中關係。 現今，我們將繼續進行此項必要的工作。
-
-For years, the Chinese Communist Party has imposed significant barriers on American diplomats working inside the PRC.
-
-多年來，中國共產黨對在中國境內工作的美國外交官施加了重大障礙。
-
-Specifically, the Chinese Communist Party has implemented a system of opaque approval processes, designed to prevent American diplomats from conducting regular business, attending events, securing meetings, and connecting with the Chinese people, especially on university campuses and via the press and social media.
-
-特別是，中國共產黨實施了一個不透明的審批程序，旨在防止美國外交官開展常規業務、參加各項活動、保障聚會、與中國人建立聯繫，特別是在大學校園裡面和媒體和社交媒體方面。
-
-Today I’m announcing the State Department has established a mechanism requiring approval for senior Chinese diplomats in the United States to visit university campuses and to meet with local government officials.  Cultural events with groups larger than 50 people hosted by the Chinese embassy and consular posts outside our mission properties will also require our approval.
-
-今天，我宣佈美國國務院已建立了相應機制，要求中國高級外交官在美訪問大學校園和會見地方政府官員需要獲得批准。 由中國大使館和領事館主辦的而非我們授意的文化活動如團體人數超過50人也需要我們的批准。
-
-Additionally, we’re taking further steps to ensure that all official PRC embassy and consular social media accounts are properly identified as government accounts, Chinese Government accounts.
-
-此外，我們正在採取進一步相關措施，確保將所有中國官方使館和領事社交媒體帳戶正確標記為政府帳戶，即中國政府帳戶。
-
-I have David Stilwell, our Assistant Secretary of East Asia-Pacific Affairs, with me today.  He’ll take questions.
-
-今天和我一起到會的還有我們的東亞太平洋事務助理部長戴維·史迪威（David Stilwell）。 他將會回答（你們）一些相關問題。
-
-We’re simply demanding reciprocity.  Access for our diplomats in China should be reflective of the access that Chinese diplomats in the United States have, and today’s steps will move us substantially in that direction.
-
-我們只是要求對等。 我們外交官在中國的權力特許應該和在美國的中共國外交官所特許的相對應，而今天的舉措將使我們朝著這個方向大步前進。
-
-**Further on China:**
-
-**更多關於中國（的消息）：**
-
-Under Secretary Krach sent a letter recently to the governing boards of American universities, altering them to the threats the Chinese Communist Party poses to academic freedom, to human rights, and to university endowments.
-
-副總理克拉奇（Krach）最近致信美國大學理事會，以突破中共對學術自由、人權和大學捐贈所構成的威脅。
-
-These threats can come in the form of illicit funding for research, intellectual property theft, intimidation of foreign students, and opaque talent recruitment efforts.
-
-這些威脅可能以用於研究的非法資金、知識產權盜竊、對外國學生的恐嚇，以及不透明的人才招募工作的形式出現。
-
-University governing boards can help ensure their institutions have clean investments and clean endowment funds by taking a few key steps:
-
-大學理事會可以通過採取一些關鍵步驟來幫助確保其機構擁有乾淨的投資和乾淨的捐贈基金：
-
-Disclose all PRC companies invested in endowment funds, especially those in emerging-market index funds.
-
-公開所有投資於捐贈基金的中共國公司，尤其是那些投資於新興市場指數基金的公司。
-
-Divest from Chinese companies on the Commerce Department Entity List that are contributing to human rights violations, military coercion, and other abuses.
-
-脫離《商務部實體名單》上（受制裁）的中國公司，這些公司正在助長侵犯人權，軍事脅迫和其它違法行為。
-
-And simply understand the recommendations issued by the President’s Working Group on Financial Markets, which examined the risk to investors of Chinese companies that are listed on U.S. stock exchanges.
-
-並且，簡單來講，只需去瞭解「總統金融市場工作組」發佈的建議，該建議就審查了所有在美國證券交易所上市的中國公司對投資者的風險。
-
-**Staying on China, but moving beyond our borders:**
-
-**繼續說中國，但是關於美國境外的：**
-
-We’re hoping for a peaceful resolution to the situation on the India-China border.  From the Taiwan Strait, to the Himalayas, and beyond, the Chinese Communist Party is engaged in a clear and intensifying pattern of bullying its neighbors.
-
-我們希望以和平方式解決印中邊界的局勢。 從台灣海峽到喜馬拉雅山，乃至更遠的地方，中國共產黨都在以明顯和加劇的方式欺壓鄰國。
-
-That bullying is also evident in the South China Sea.  Last week, the United States imposed sanctions and visa restrictions on Chinese individuals and entities responsible for the CCP’s imperialism there, doing things such as unlawful energy surveillance, activities in the economic zones of our ally the Philippines and other countries.
-
-這種霸凌行為在南中國海也很明顯。 上周，美國對在那裡奉行中共霸權主義，進行了能源監視等非法行為，或在我們盟友菲律賓和其它國家的經濟區進行活動的中國個人和實體實施了制裁和簽證限制。
-
-We also remain concerned – we’ve talked about this before – the activities of more than 300 Chinese-flagged vessels near the Galapagos, which are almost certainly engaged in illegal fishing.
-
-同時我們保持關注，我們之前已經討論過，關於加拉帕戈斯群島附近300多艘帶有中國國旗的船隻的活動，這些船隻幾乎肯定是從事非法捕魚的。
-
-In light of this maritime lawlessness, it’s no surprise that Beijing’s candidate in the International Tribunal for the Law of the Sea election last week received more abstentions than any other candidate.
-
-鑒於（中共）海事上的無法無天，上周在國際海洋法法庭選舉中，北京的候選人獲得比其它任何候選人更多的摒棄也就不足為奇了。
-
-China is the most flagrant violator of the Law of the Sea Convention, and nations all across the world are registering their disapproval.
-
-中國是最公然違反《海洋法公約》的國家，世界各國都對此表示反對。
-
-We’re also concerned about Chinese actions in Tibet, in light of the general secretary’s recent calls to “Sinicize” Tibetan Buddhism and fight “splittism” there.  We continue to call upon Beijing to enter into dialogue with the Dalai Lama or his representatives without preconditions, to reach a settlement that resolves their differences.
-
-對於（中共）總書記（習近平）最近呼籲將藏傳佛教「中國化」並與那裡的「民族分裂主義」作鬥爭，我們對中國在西藏的行動表示關切。 我們繼續呼籲北京無條件與達賴喇嘛或其代表進行對話，就雙方分歧的問題達成和解。
-
-We’re also tracking the situation in Belarus closely.  Deputy Secretary Biegun traveled there last week at my direction.  Belarusians deserve the right to choose their own leaders through a truly free and fair election under independent observation.
-
-我們也在密切追蹤白俄羅斯的局勢。 副秘書長Biegun上周在我的安排下已去了那裡。 白俄羅斯人民有權在獨立的觀察下，通過真正自由和公正的選舉來選擇他們自己的領導人。
-
-We demand an immediate end to the violence against them and the release of all who are unjustly detained, and that includes U.S. citizen Vitali Shkliarov.
-
-我們要求立即停止對他們（人民）的暴力行為，並釋放所有被非法拘留的人，其中包括美國公民Vitali Shkliarov。
-
-We’re closely coordinating, too, with our transatlantic partners, and are together reviewing significant, targeted sanctions on anyone involved in human rights abuses and repression.
-
-我們也與我們的跨大西洋夥伴緊密合作，並且正在共同審查對涉及侵犯人權和壓制人權的人採取的針對性制裁。
-
-[閱讀國務院英文原文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)
-
-翻譯：【一花一世界】【挺郭皇太子】校對 & 編輯：【Michelle】
-
-戰友之家玫瑰園小隊出品
+（文章僅代表作者個人觀點）
 
 0
