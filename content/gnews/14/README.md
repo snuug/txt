@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “火眼實驗室”規模化清算港人！
-`2020-09-02 13:04 GM01` [轉載自GNews](https://gnews.org/zh-hant/330406/)
+## 9月2日財經快訊: 中共四處耍流氓, 海外併購路艱難
+`2020-09-02 19:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/330812/)
 
-國內新聞作者:大樹
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02192523/Picture24.png)圖片來源： [https://s3.reutersmedia.net](https://s3.reutersmedia.net/resources/r/?m=02&amp;d=20200902&amp;t=2&amp;i=1531860259&amp;w=1100&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG81005) 
+[1.美國標普500和納斯達克收於科技推動的漲幅收盤記錄：標準普爾500指數和納斯達克指數週二收盤創下新高。科技股領漲，蘋果和Zoom Video飆升。經濟數據和華盛頓進行的刺激計劃磋商提振了樂觀情緒。](https://www.reuters.com/article/us-usa-stocks/sp-nasdaq-close-at-record-highs-in-tech-fueled-rally-idUSKBN25S4QC)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02130342/images_12.jpeg)
+[2.隨著美聯儲努力提高通貨膨脹率，短期利率預計將保持接近於零。美聯儲主席鮑威爾上週提出該戰略，並且談到了加強通貨膨脹的方法和修訂後的就業理念。](https://www.cnbc.com/2020/08/31/the-fed-could-be-locked-into-zero-rates-for-five-years-or-even-longer.html)
 
-26日，位於港島中山公園體育館的核酸檢測“火眼實驗室”，由大陸支持建成，即將參與抗擊新冠肺炎疫情。來源：新華網
-http://www.cankaoxiaoxi.com/china/20200828/2419362.shtml
+[3.中共國商業部近日稱，要對澳大利亞葡萄酒行業是否有政府補貼進行調查。針對中共的無理取鬧，澳大利亞商務部長西蒙·伯明翰明確表態，澳大利亞永遠不會出賣自己的價值觀和國家的安全利益。](https://au.finance.yahoo.com/news/china-wine-war-023940698.html)
 
-此事可能有3個目的。
-1、近期目的是控制、消滅反送中運動的積極分子，通過檢測數據修改，直接把健康人“檢測”成感染者，從而進行隔離，在隔離期投毒，真正變為感染者。
+[4.新西蘭支柱產業恆天然奶業集團行業排名新近下降至第八位。排名首位仍為年營業總收入221億美元的瑞士雀巢集團。中共國伊利集團排名第五位，蒙牛集團排名第八位。中共國國內奶製品行業市場競爭激烈，海外併購越來越難。 2019年全球併購115起，略高於2018年的112起。恆天然產量下降是由於環保監管更加嚴格。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12361430)
 
-2、通過高檢出率，強制港人打大陸的危險疫苗，健康人也會被疫苗感染或嚴重的副作用，從而不能再聚會、遊行。
+[5.花旗集團週三表示，花旗集團中國公司已獲得中國證監會的證券投資基金託管執照。花旗銀行是第一家獲得執照的美國銀行。一旦通過現場檢查，它將可以代替在中國的共同基金和私募基金保管有價證券。](https://www.reuters.com/article/us-citigroup-china/citi-receives-china-fund-custody-licence-idUSKBN25T09X)
 
-3、遠期目的是提取DNA，便於以後用生物手段控制民眾。
+[6. TikTok交易談判在應用程序的核心算法上遇到障礙。知情人士稱，TikTok美國業務的出售交易談判變得複雜，應用程序的核心算法是否可以包含在交易中成為談判的關鍵問題。](https://www.wsj.com/)
 
-上述分析的理由如下：
+[7.歐盟發起組織原材料工業聯盟：歐盟委員會本週將宣佈建立新的行業聯盟，以期建立完整的歐盟供應鏈，以供應鋰等原材料。這對於歐盟數字化和綠色經濟轉型至關重要。](https://www.europeanbusinessreview.eu/page.asp?pid=4177)
 
-1、港區最近沒有大規模暴發疫情，港人的醫護資源並不緊張，不需要大規模檢測，也無須大陸幫助開設專門的檢測場所。
+[8.以色列和阿拉伯聯合酋長國同意在兩國關係正常化的過程中促進雙邊貿易和商業活動。但他們將有關向阿聯酋出售高級美國軍事裝備的討論推遲到後期。](https://www.wsj.com/articles/israel-u-a-e-pursue-economic-ties-in-wake-of-u-s-brokered-breakthrough-11598989870?mod=e2tw)
 
-2、大陸用的核酸檢測方法準確率低，用時長，即使需要檢測，也可以從美日進口準確率高、檢測迅速的產品。
-
-所以，建議港人不去“火眼”檢測！
+By：【秘密翻譯組· 金融法律組】
 
 0

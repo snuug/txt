@@ -1,47 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共威脅：若美國封殺微信，中共國消費者將棄用IPHONE手機
-`2020-09-02 14:10 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/330649/)
+## “三姓家奴”就是共產黨本來的面目
+`2020-09-02 21:08 GM36` [轉載自GNews](https://gnews.org/zh-hant/331030/)
 
-*新聞來源：Zero Hedge 《零對沖》｜作者：Tyler Durden；*
+編輯：文橙
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02204203/902%E2%80%94%E2%80%945.jpg)
+中共黨媒北京衛視的一檔節目，在本週一（8月31日）播出了一個專題短片《起底三姓家奴彭培奧的荒誕人生》，對現任美國國務卿蓬佩奧發起了猛烈的攻擊與謾罵。
 
-翻譯/簡評：遊戲小哥｜PR：Julia Win｜審核：海闊天空｜PAGE：玄天生；
+“三姓家奴”常用來表示以身侍賊的人，而這個短片的謾罵也就覆蓋了包括川普總統在內的美國政治高層。但這個詞更像是面鏡子，照出了共產黨本來的面目。
 
-**簡評：**
+歸中宣部和廣電總局管理的北京電視台，由常委裡掌控宣傳的王滬寧指揮。此時由上海幫掌控多年的宣傳口，大肆挑起民眾對美國政客敵對情緒，也在向掌權者傳遞了民心可控的虛假印象。老百姓雖然被洗腦，但仍然是有許許多多清醒民眾的。北京電視台播出的這份短片是否描繪出了這樣一個現狀：黨內鬥爭通過激起黨內對立陣營、搖擺派對美國的敵對情緒，來讓這些部分人更緊密地圍繞現在的黨中央，從而同仇敵愾，讓共產黨再苟延殘喘下去？
 
-川普總統將對微信的封殺令著實給予中共當頭一棒，徹底封死了中共利用社交媒體應用洗腦海外華人、輸出意識形態、諜報監控和擾亂當地金融市場等陰謀。微信著實已經成為一個臭名昭著的網絡恐怖應用。封殺微信的意義對於生活在海外的華人影響遠大於封殺抖音。從中共國外交部毫無邏輯和事實的回應，就可以反應出這一行動著實擊中了中共要害。從另一方面來說，蘋果公司確實會在這次風波中受到波及，這也是蘋果公司為了利益長期以來無原則俯首稱臣中共所必須付出的代價。然而，隨著高科技領域軟硬件製裁的加劇，中共國的手機產業將形成斷崖式下跌的趨勢。由於iphone手機有其技術和用戶體驗方面的巨大優勢，絕大多數中國民眾還是願意選擇使用iPhone手機。如同當年在美蘇冷戰時期，蘇共也無法阻止莫斯科第一家麥當勞開業時大批民眾自發前往一樣。所以中共面對美國的各項製裁，除了口炮，沒有任何有效的反制措施。
+在公開的電視媒體上謾罵、侮辱他人，並且毫無驗證合理的法律依據和判決，單方面地就宣布美國政治家的所謂“罪行”，這本身是一種輿論的宣傳和誤導。如果一個由黨說了算的媒體，公開在電視上“批鬥”別國的政治家，可以看到中共的法治環境就是黨說了算，直接宣判。這不僅是對彭國務卿蓬佩奧的謾罵，也是一次對文明世界的公義與法治的宣戰。
 
-##  **北京高官警告：如果美國禁止微信，中共國消費者將”棄用”iPhone** 
+同時，在中共病毒肆虐全世界的今天，截至9月2號，美國檢測出的感染人數已超過610萬人，全球超過2600萬人。國務卿蓬佩奧一直在媒體上指出中共的種種毫無法律底線、泯滅人性的行為，並稱川普總統很快將在“所有方面反擊中共”。這樣一位美國超級強硬的重要政客在中南坑的眼裡恐怕是個無法控制，所以要不惜代價攻擊、替換掉的人。但共產黨在牆內用慣了的宣傳機器在美國完善的法治面前，更多就是一種無能為力後的叫罵。
 
-中共國外交部發言人周五罕見地就可能抵制美國產品的問題發表評論，他警告稱，如果川普政府從9月中旬開始，繼續對流行的訊息應用微信實施禁令，那麼將導致中共國消費者棄用iPhone和其它蘋果手機產品。
 
-*外交部發言人趙立堅發推特文說：“如果微信被禁，那麼中共國將沒有理由保留iPhone和蘋果產品。”*
-
-[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/aef48e6e-3013-40f9-9844-965b424ed1c6.png?asset_id=7d584324-8d25-4b39-97ac-c3686f43ed13&amp;img_etag=%22291f59356e9e4a20576838aced38df6f%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/aef48e6e-3013-40f9-9844-965b424ed1c6.png?asset_id=7d584324-8d25-4b39-97ac-c3686f43ed13&amp;img_etag=%22291f59356e9e4a20576838aced38df6f%22&amp;size=1024)
-
-川普總統在未來幾週內[禁止微信的行政命令](https://www.zerohedge.com/markets/trump-signs-executive-order-banning-tiktok-wechat) ，不僅會加劇兩個超級大國之間的緊張關係，而且還可能給全球市值最高的公司-蘋果公司帶來巨大衝擊。
-
-趙立堅說：“許多中國人都說，如果美國禁止微信，他們可能會停止使用iPhone。” 他指責華盛頓針對這款流行的訊息應用程序，“是對非美國公司進行的系統性的經濟霸凌” 。
-
-[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/a17e859e-3ba4-4346-98f5-896685757b97.png?asset_id=6c97fe65-f547-4bce-b494-c6ff2795c7ad&amp;img_etag=%228de7255e61161a15087a4765a9eeebb5%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/a17e859e-3ba4-4346-98f5-896685757b97.png?asset_id=6c97fe65-f547-4bce-b494-c6ff2795c7ad&amp;img_etag=%228de7255e61161a15087a4765a9eeebb5%22&amp;size=1024)
-
-一位中共國高層官員就美國產品可能遭到的抵制發表評論，然而，這條與蘋果公司有關的消息揭示了[緊張局勢的蔓延](https://www.zerohedge.com/markets/billionaire-dalio-warns-us-china-tensions-could-evolve-shooting-war-sees-parallels-30s-lead) ，從病毒大流行的指責到第一階段貿易協議下的[購買不足](https://www.zerohedge.com/markets/trade-deal-farce-summarized-these-charts) ，再到南海[軍事活動的迅速增加](https://www.zerohedge.com/markets/china-military-claims-it-expelled-us-destroyer-its-territorial-waters-us-military-counters) 。
-
-TF國際證券公司的郭明池（Ming-Chi Kuo）在一份報告中指出，如果看到微信禁令，將[對蘋果的銷售產生潛在影響](https://www.zerohedge.com/markets/global-iphone-shipments-could-plunge-30-if-wechat-removed-app-store) 。他說，這一打擊對蘋果來說絕對是毀滅性的，導致全球手機出貨量可能每年下降25-30％。
-
-[《亞洲時報》](https://asiatimes.com/2020/08/chinese-may-boycott-apple-if-us-bans-wechat/)援引微博用戶對微信禁令的回應-他們將不約而同地棄用iPhone：
-
-*一位微博用戶說：“我使用蘋果，但我也愛我的國家。” “這不矛盾。”*
-
-*另一位用戶說：“無論蘋果多麼出色，它只是一部手機。它可以被取代，但微信是不同的。” “現代中共國人，特別是商人，如果離開微信將失去靈魂。”*
-
-[!\[\](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/75908b34-ff47-4b69-a002-8af8c386df79.jpg?asset_id=aac492d3-b50f-4d9d-bbf2-bc9ed7fb8ec8&amp;img_etag=%2285712ec255c8a5457a59b877fb7a8326%22&amp;size=2560)](https://spark.adobe.com/page/C7PuvVNwJ1sTF/images/75908b34-ff47-4b69-a002-8af8c386df79.jpg?asset_id=aac492d3-b50f-4d9d-bbf2-bc9ed7fb8ec8&amp;img_etag=%2285712ec255c8a5457a59b877fb7a8326%22&amp;size=1024)
-
-雖然川普政府正在努力實現美國和中共國的經濟[脫鉤](https://www.zerohedge.com/geopolitical/top-communist-party-official-china-us-headed-complete-economic-decoupling) ，但上海美國商會(American Chamber of Commerce in Shanghai)最近警告稱，如果禁令生效，對在國際上接觸微信超過12億多活躍用戶的美國公司將產生“巨大的負面影響”。
-
-[原文鏈接](https://www.zerohedge.com/geopolitical/top-beijing-official-warns-chinese-consumers-will-abandon-iphones-if-us-bans-wechat?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-編輯[【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/C7PuvVNwJ1sTF/)
 
 0
