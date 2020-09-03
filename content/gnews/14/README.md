@@ -1,26 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月2日財經快訊: 中共四處耍流氓, 海外併購路艱難
-`2020-09-02 19:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/330812/)
+## 港版國安法惡法當道,香港孕婦慘遭黑警無情對待
+`2020-09-02 21:01 GM77` [轉載自GNews](https://gnews.org/zh-hant/331014/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02192523/Picture24.png)圖片來源： [https://s3.reutersmedia.net](https://s3.reutersmedia.net/resources/r/?m=02&amp;d=20200902&amp;t=2&amp;i=1531860259&amp;w=1100&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG81005) 
-[1.美國標普500和納斯達克收於科技推動的漲幅收盤記錄：標準普爾500指數和納斯達克指數週二收盤創下新高。科技股領漲，蘋果和Zoom Video飆升。經濟數據和華盛頓進行的刺激計劃磋商提振了樂觀情緒。](https://www.reuters.com/article/us-usa-stocks/sp-nasdaq-close-at-record-highs-in-tech-fueled-rally-idUSKBN25S4QC)
+編撰:Leonchan反省後反醒、文小明、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02205054/%E6%88%AA%E5%B1%8F2020-09-03-%E4%B8%8A%E5%8D%888.45.59-1.png)
+2020年8月31日是香港太子站831事件一周年,黑警在太子站B1出口外拉起封鎖線,但仍阻不了香港市民排隊獻花,至晚上10時許,黑警在亞皆老街一帶施放胡椒噴霧,混亂間有一名孕婦被推倒墮地受傷無法站起,在地上不斷哭喊慘叫,並忍痛流淚用手安撫腹中胎兒,其同行丈夫反被警員指控涉嫌在公共場合行為不檢被拘捕,禁止其上前與妻子接觸。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02205116/%E6%88%AA%E5%B1%8F2020-09-03-%E4%B8%8A%E5%8D%888.47.45-1.png)图片来源：丘品新闻
+孕婦在醫院接受訪問時表示,她被警方推倒,還被噴胡椒噴霧,感到恐懼傷心落淚。 其親屬表示該孕婦懷孕已經7至8個月,令人欣喜的是,她在接受初步檢查后,母子平安無事。 但為確保安全,孕婦還需要留院觀察,至於同行被捕的丈夫,警方起初考慮檢控襲警罪,義務律師到達協助瞭解案件后,改控丈夫涉嫌在公眾地方行為不檢罪名。
 
-[2.隨著美聯儲努力提高通貨膨脹率，短期利率預計將保持接近於零。美聯儲主席鮑威爾上週提出該戰略，並且談到了加強通貨膨脹的方法和修訂後的就業理念。](https://www.cnbc.com/2020/08/31/the-fed-could-be-locked-into-zero-rates-for-five-years-or-even-longer.html)
+**編者觀點****:**
 
-[3.中共國商業部近日稱，要對澳大利亞葡萄酒行業是否有政府補貼進行調查。針對中共的無理取鬧，澳大利亞商務部長西蒙·伯明翰明確表態，澳大利亞永遠不會出賣自己的價值觀和國家的安全利益。](https://au.finance.yahoo.com/news/china-wine-war-023940698.html)
+香港運動一年多以來,各種慘絕人寰的事情不斷發生,孕婦被黑警推到在地,乃至痛呼慘叫,只是香港一年多反抗鬥爭中一個小小的縮影。 正是黑警的肆意妄為與中共施行惡法—港版國安法,破壞香港自由法治體系,香港同胞以及全球正義力量才更加堅定地認識到,中共不滅,天理不容。
 
-[4.新西蘭支柱產業恆天然奶業集團行業排名新近下降至第八位。排名首位仍為年營業總收入221億美元的瑞士雀巢集團。中共國伊利集團排名第五位，蒙牛集團排名第八位。中共國國內奶製品行業市場競爭激烈，海外併購越來越難。 2019年全球併購115起，略高於2018年的112起。恆天然產量下降是由於環保監管更加嚴格。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12361430)
-
-[5.花旗集團週三表示，花旗集團中國公司已獲得中國證監會的證券投資基金託管執照。花旗銀行是第一家獲得執照的美國銀行。一旦通過現場檢查，它將可以代替在中國的共同基金和私募基金保管有價證券。](https://www.reuters.com/article/us-citigroup-china/citi-receives-china-fund-custody-licence-idUSKBN25T09X)
-
-[6. TikTok交易談判在應用程序的核心算法上遇到障礙。知情人士稱，TikTok美國業務的出售交易談判變得複雜，應用程序的核心算法是否可以包含在交易中成為談判的關鍵問題。](https://www.wsj.com/)
-
-[7.歐盟發起組織原材料工業聯盟：歐盟委員會本週將宣佈建立新的行業聯盟，以期建立完整的歐盟供應鏈，以供應鋰等原材料。這對於歐盟數字化和綠色經濟轉型至關重要。](https://www.europeanbusinessreview.eu/page.asp?pid=4177)
-
-[8.以色列和阿拉伯聯合酋長國同意在兩國關係正常化的過程中促進雙邊貿易和商業活動。但他們將有關向阿聯酋出售高級美國軍事裝備的討論推遲到後期。](https://www.wsj.com/articles/israel-u-a-e-pursue-economic-ties-in-wake-of-u-s-brokered-breakthrough-11598989870?mod=e2tw)
-
-By：【秘密翻譯組· 金融法律組】
+保護香港,是我們每一個聖城勇士的責任! CCP必滅! 香港必得永生!
 
 0

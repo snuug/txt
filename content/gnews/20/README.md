@@ -1,19 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲胃腸病學家：依維菌素、多西環素加鋅治療中共病毒效用可達近100%
-`2020-09-02 14:37 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/330674/)
+## 9月2日財經快訊: 中共四處耍流氓, 海外併購路艱難
+`2020-09-02 19:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/330812/)
 
-喜馬拉雅聯盟加拿大農場 坐看雲起時
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02143123/medicine_drug_treatment_coronavirus_covid_19_concept_1962_1697-16577.jpg)圖片來源：Freepik 
-9月2日，SKY NEWS報導，澳洲胃腸病學家Thomas Borody教授表示，根據6篇出版的研究結果，用伊維菌素、多西環素和鋅的組合治療中共病毒的方法，幾乎100 %有效。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02192523/Picture24.png)圖片來源： [https://s3.reutersmedia.net](https://s3.reutersmedia.net/resources/r/?m=02&amp;d=20200902&amp;t=2&amp;i=1531860259&amp;w=1100&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG81005) 
+[1.美國標普500和納斯達克收於科技推動的漲幅收盤記錄：標準普爾500指數和納斯達克指數週二收盤創下新高。科技股領漲，蘋果和Zoom Video飆升。經濟數據和華盛頓進行的刺激計劃磋商提振了樂觀情緒。](https://www.reuters.com/article/us-usa-stocks/sp-nasdaq-close-at-record-highs-in-tech-fueled-rally-idUSKBN25S4QC)
 
-Borody 教授在SKYNEWS節目中介紹了該方法的治療機制。教授指出：伊維菌素可阻斷整個肺部和腸道中被稱為AC2受體的病毒對接觸點，其次，它和鋅的配合使用可抑制病毒在細胞內的複制，而這種複制將幫助中共病毒進入宿主細胞。同時多西環素在這兩方面也有所幫助。
+[2.隨著美聯儲努力提高通貨膨脹率，短期利率預計將保持接近於零。美聯儲主席鮑威爾上週提出該戰略，並且談到了加強通貨膨脹的方法和修訂後的就業理念。](https://www.cnbc.com/2020/08/31/the-fed-could-be-locked-into-zero-rates-for-five-years-or-even-longer.html)
 
-Borody教授說：”從實際研究並發表的六篇出版物來看，它的作用接近100%。幸運的是，這三種藥物已經註冊並獲得使用許可，可以隨時使用，效果非常好。大家應該記得，世界衛生組織曾鼓勵對寄生蟲進行大規模治療，在現在目前這種死亡率的情況下，我們應該鼓勵大規模推廣這種治療方案。如果真的採用了這種治療方法，我們可以在疫苗研發成功前，安全地生活到聖誕節或甚至更長的時間。”
+[3.中共國商業部近日稱，要對澳大利亞葡萄酒行業是否有政府補貼進行調查。針對中共的無理取鬧，澳大利亞商務部長西蒙·伯明翰明確表態，澳大利亞永遠不會出賣自己的價值觀和國家的安全利益。](https://au.finance.yahoo.com/news/china-wine-war-023940698.html)
 
-根據維基百科的介紹，作為一名胃腸病專家，Borody教授最著名的是他對幽門螺桿菌感染的三聯療法的研發貢獻，同時在創新治療假膜性結腸炎和潰瘍性結腸炎方面也做出了重大貢獻。
+[4.新西蘭支柱產業恆天然奶業集團行業排名新近下降至第八位。排名首位仍為年營業總收入221億美元的瑞士雀巢集團。中共國伊利集團排名第五位，蒙牛集團排名第八位。中共國國內奶製品行業市場競爭激烈，海外併購越來越難。 2019年全球併購115起，略高於2018年的112起。恆天然產量下降是由於環保監管更加嚴格。](https://www.nzherald.co.nz/business/news/article.cfm?c_id=3&amp;objectid=12361430)
 
-原文鏈接：https://www.skynews.com.au/details/\_6186886770001
+[5.花旗集團週三表示，花旗集團中國公司已獲得中國證監會的證券投資基金託管執照。花旗銀行是第一家獲得執照的美國銀行。一旦通過現場檢查，它將可以代替在中國的共同基金和私募基金保管有價證券。](https://www.reuters.com/article/us-citigroup-china/citi-receives-china-fund-custody-licence-idUSKBN25T09X)
+
+[6. TikTok交易談判在應用程序的核心算法上遇到障礙。知情人士稱，TikTok美國業務的出售交易談判變得複雜，應用程序的核心算法是否可以包含在交易中成為談判的關鍵問題。](https://www.wsj.com/)
+
+[7.歐盟發起組織原材料工業聯盟：歐盟委員會本週將宣佈建立新的行業聯盟，以期建立完整的歐盟供應鏈，以供應鋰等原材料。這對於歐盟數字化和綠色經濟轉型至關重要。](https://www.europeanbusinessreview.eu/page.asp?pid=4177)
+
+[8.以色列和阿拉伯聯合酋長國同意在兩國關係正常化的過程中促進雙邊貿易和商業活動。但他們將有關向阿聯酋出售高級美國軍事裝備的討論推遲到後期。](https://www.wsj.com/articles/israel-u-a-e-pursue-economic-ties-in-wake-of-u-s-brokered-breakthrough-11598989870?mod=e2tw)
+
+By：【秘密翻譯組· 金融法律組】
 
 0

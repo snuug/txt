@@ -1,105 +1,181 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰情室362 抖音·封城的危害·三國滅共遊行
-`2020-09-02 21:26 GM67` [轉載自GNews](https://gnews.org/zh-hant/331068/)
+## 蓬佩奧國務卿9月2日發佈會表明對中共國的重錘已經落下！
+`2020-09-02 23:34 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/331176/)
 
-作者：澳喜新聞組 Lish    編輯：VOG翻譯組 flasher
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/02232245/DOS_20200902_News_Briefing-photo.jpeg)
+美國國務卿蓬佩奧[2020年9月2日的新聞發佈會](https://www.youtube.com/watch?v=m4OgVI73nSo)上，針對中共國的講話包含了諸多對中共國的實質性制裁和對國際刑事法庭的重大制裁措施。要點如下：
 
-
-
-主要內容
-
-1. 認清中共科技的危害——抖音等應用程式
-2. 封鎖造成的死亡是因病毒而死的10倍
-3. 中共無原因拘留澳洲記者 Cheng Lei
-4. 三國七城滅共遊行
-
-
-詳細內容
-
-- 認清中共科技的危害——抖音等應用程式
+- 對直接參與國際刑事法庭調查美國或其盟國人士，或為調查提供實質性幫助的外國人員施加經濟制裁。
+- 蓬佩奧國務卿下周將會見東盟和印度太平洋地區的同盟。
+- 恢復對等美中關係。由於中國共產黨對在中國境內工作的美國外交官施加了重大障礙，美國國務院已建立了相應機制，要求中國高級外交官在美訪問大學校園和會見地方政府官員需要獲得批准。 由中國大使館和領事館主辦的而非美方授意的文化活動如團體人數超過50人也需要批准。
+- 確保將所有中國官方使館和領事社交媒體帳戶正確標記為政府帳戶，即中國政府帳戶。
+- 已致信美國大學理事會，以突破中共對學術自由、人權和大學捐贈所構成的威脅。公開所有投資於捐贈基金的中共國公司，尤其是那些投資於新興市場指數基金的公司。
+- 提出以和平方式解決印中邊界的局勢。 指出從台灣海峽到喜馬拉雅山，乃至更遠的地方，中國共產黨都在以明顯和加劇的方式欺壓鄰國。
+- 對於中共總書記習近平最近呼籲將藏傳佛教「中國化」並與那裡的「民族分裂主義」作鬥爭，對中國在西藏的行動表示關切。
 
 
-卡薩姆問Wanagen Khabayan: 您察覺到抖音背後有什麼內幕——您之前提到美國聲稱抖音和中國其他應用程式沒有關聯，但中國的應用程式有潛在的代碼，服務器可向這些應用程式傳達請求。有觀眾想要知道刪除抖音後會有什麼遺留問題？
+**演講中有關中國部分內容（中英文對照）**
 
-Wanagen Khabayan：抖音中文版供中國人使用，Tik-Tok是其英文版。抖音聲稱這兩個版本沒有任何關聯都是完全獨立的。但我發現抖音是請求管道裡的一部分，服務器向我的手機請求關於抖音和新冠病毒的指令。關於刪除抖音的問題Wanagen Khabayan說從他的調查和網絡研究來看，如果我刪除這個 API 請求，服務器的請求指令將不會成功。讓我震驚的是一個獨立的公司居然要求從我的手機裡獲取新冠病毒的資訊並傳送給服務端。
+REMARKS TO THE PRESS
 
-班農先生問: 如果美國公司收購抖音，所有客戶的數據還是在中共的手中嗎？您對中共說的你們不會拿到演算法有什麼看法？
+MICHAEL R. POMPEO, SECRETARY OF STATE
 
-演算法基本上是應用程式的基礎的一部分，我們不知道微軟能否實現類似的演算法，即所有這些隱藏的代碼，這種運演算法則是如何運作，和青少年實際上在螢幕上看到的畫面。我們可能都不知道微軟是否可以回溯和重新創建他們自己的版本。
+國務卿蓬佩奧媒體發佈會講話
 
-傑克說中共想通過各種管道在美國進行間諜活動，他們極想得到科研成果和新冠疫苗的資訊。中共利用抖音從用戶手機裡橫掃新冠病毒及其相關的資訊。這就是他們從事間諜活動的很好的證明。
+PRESS BRIEFING ROOM
 
-卡薩姆：中國的應用程式首先是監控全世界的維族人，後來西方人也自然成了第二監控的目標。中國的海外華人可能中英文兩個版本的抖音都有在使用，這樣也可以知道這些人在西方做什麼。
+WASHINGTON, D.C.
 
-班農先生提到郭先生說過微信的危害是抖音的千萬倍，你所有的資訊會被中共收集。
+媒體室，華盛頓特區
 
-- 封鎖造成的死亡是因病毒而死的10倍
+SEPTEMBER 2, 2020
 
+2020年9月2日
 
-接下來連線另一位嘉賓Darren Beattie 討論一篇關於中共病毒的新聞報道題目叫做新冠封鎖的二次災難造成的死亡人數是因大流行死亡人數的10倍（Revolver News 發佈的文章）
+SECRETARY POMPEO:  Good morning, everyone.  Good to see you all.
 
-Darren Beattie: 這份研究報道和川普的一些演講吻合，川普總統說拜登所建議的封城會對我們的國家造成無法想像的毀壞，也會帶來二次災難例如抑鬱，失業，自殺等等。這篇文章採用嚴格的數據來分析新冠封城所帶來的災難和後期影響——如果拜登當選，那就很不幸了。
+彭培奧國務卿：大家早上好。 很高興見到大家。
 
-傑克問：封鎖造成的死亡是因病毒而死的10倍是如何計算的？
+I want to start today talking about multilateralism.  The Trump administration wants multilateral
 
-Darren Beatti：封鎖所造成的生命損失是其拯救人數的十倍。例如一個85歲的老人和一個25歲的年輕人都因新冠而死，但25歲的人就丟失了更多本可以享受的壽命。我們不僅僅是要計算有多少人因為新冠病毒而死，也要計算有多少個青春年華失去了。
+institutions to function, to actually work.  But multilateralism just for the sake of it, just to get together in a room and chat, doesn’t add value.
 
-Darren Beattie最後說封城是美國政治歷史上最大的錯誤，也是美國歷史上最大的犯罪事件。我們應該支持川普的政策而不是拜登的封鎖政策。經濟的破壞不僅僅是在經濟層面，而且伴隨著經濟蕭條很多生命也會因此凋零。
+今天我先從多邊主義開始談起。 川普政府希望多邊機構發揮作用，真正發揮作用。 但是，如果多邊主義僅僅只是多方聚在一個房間里聊天，那不能帶來任何意義。
 
-班農：為什麼你說這是犯罪式的封鎖？
+That brings me to the International Criminal Court, a thoroughly broken and corrupted institution.  The United States has never ratified the Rome Statute that created the court, and we will not tolerate its illegitimate attempts to subject Americans to its jurisdiction.
 
-Darren Beattie: 封鎖是對美國人的犯罪行為，這是犯罪和無能的行為。因為封鎖會帶來深遠的破壞和二次災難。Darren Beattie 重復兩遍說我們應該立刻開放經濟，封鎖暴徒。
+這讓我聯想起國際刑事法庭，這個徹底崩潰和腐敗的機構。 美國從未批准美國從未批准創立這個法庭的《羅馬規約》，我們也不會容忍其欲將美國人民置於其管轄範圍之內的非法企圖。
 
-接下來採訪Natalie Winter
+In June, the Trump administration authorized the imposition of economic sanctions against foreign persons directly engaged in ICC efforts to investigate U.S. or allied personnel, and those who materially assisted in those – in that effort.
 
-- 中共無原因拘留澳洲記者 Cheng Lei
+6月，川普政府授權對直接參與國際刑事法庭調查美國或其盟國人士，或為調查提供實質性幫助的外國人員施加經濟制裁。
 
+Today we take the next step, because the ICC continues to target Americans, sadly.
 
-Natalie Winter 說Cheng Lei 服務於與中共相關的媒體。她在中國出生，2000年的時候獲得澳洲公民身份。她現在被無故拘留在一個外界所不知道的地方。澳洲各個媒體都有詢問中國官方但都沒有得到答復。Natalie Winter認為這是中共對澳大利亞又一報復手段。
+Pursuant to Executive Order 13928, the United States will designate ICC Prosecutor Fatou Bensouda, and the ICC’s Head of Jurisdiction, Complementary, and Cooperation Division Phakiso Mochochoko for having materially assisted Prosecutor Bensouda.
 
-卡薩姆：Cheng Lei女士的微博等一些資訊網上都已經看不到了
+今天，我們要採取下一步行動，因為可悲的是，國際刑事法庭繼續將視美國人民為目標。
 
-班農：就像閆博士說的中共會讓你消失。
+根據13928號行政命令，美國將鎖定國際刑事法庭檢察長Fatou Bensouda以及國際刑事法庭司法互助合作部負責人Phakiso Mochochoko，因其對Bensouda檢察長提供了實質性協助。
 
-傑克說：如果你被中共問起這個人，最好說不知道或者不要想起。
+Individuals and entities that continue to materially support those individuals risk exposure to sanctions as well.
 
-- 三個國家七座城市的滅共遊行
+任何繼續為上述兩位人員提供實質性支持的個人或實體也將有遭受制裁的風險。
 
+Additionally, the State Department has restricted the issuance of visas for certain individuals involved in the ICC’s efforts to investigate U.S. personnel.
 
-班農：新中共聯邦由郭先生創辦，它可以替代中共。中共總說沒了他們，中國會陷入各種混亂，中國人也不沒有準備好迎接民主法制，但是台灣和香港給我們塑造了很好的榜樣。下面採訪在日本遊行的代表。班農問：為什麼你成為新中國聯邦的一員去和中共對抗？出來抗議會有什麼樣的危險？
+另外，國務院已對涉嫌參與國際刑事法庭調查美國人員的個人限制簽發簽證。
 
-Peace: 因為從三年前油管頻道上看郭先生直播，因為我是在中國長大，郭先生揭露的都是真相和事實。所以我已經跟隨他三年了。我現在是日本櫻花團的領導人，我們非常支持郭先生和爆料革命。這次的遊行隊伍有200 人。我們都很擔心我們自己和我們在中國的家人，擔心他們會受傷害，也有很多未知的危險。但是害怕不會阻止我們，因為70多年中共的統治已經夠了，我們需要為新一代人而戰鬥，我們沒有多少時間了。
+On the multilateral front further, I look forward to seeing my ASEAN and Indo-Pacific counterparts next week at a host of virtual meetings.
 
-班農：您說我們沒剩多少時間是什麼意思？
+在多邊方面，我期待下周在許多虛擬會議上見到我東盟和印度太平洋地區的同盟們。
 
-Peace: 這是很危險的生化武器，會殺死很多無辜的人。他們因此而失去生命卻不知道誰殺死了他們，誰是他們的敵人。中共為達目的不擇手段，再不抓緊時間會有更多人失去生命。
+We’ll have discussions that will be wide-ranging, including on COVID, North Korea, South China Sea, Hong Kong, and Burma’s Rakhine State.
 
-下面採訪德國遊行代表Bear
+我們將就COVID、朝鮮、南中國海、香港和緬甸若開邦，等議題進行廣泛的討論。
 
-這些移居國外的遊行者現在對抗中共是一個怎樣的心境？
+I’ll also raise how the Trump administration is restoring reciprocity to the U.S.-China relationship.  And today we continue that necessary work.
 
-Bear：其實是相當感人的，我們的抗議有一個很清楚的目的，那就是向世界傳播中共病毒真相——這是一個人造的病毒，由中共故意製造和釋放。我們有大概70人冒著被感染的風險參加了此次遊行，最年輕的只有 5 歲左右，最年長的近60歲，我們一直會戰鬥到底。當地人對病毒真相非常震驚，也被新中國的人民所感動。這也是第一次由中國大陸人民在這裡組織的抗議遊行活動。我想說，我們來自中國大陸，但我們不喜歡中共，中共不代表體面的辛勤工作的中國人，我們都喜歡自由世界，在那裡你可以沒有顧慮地說話，不用擔心會被消失。我們的抗議活動是非常和平且有組織有紀律的。你可以從畫面中看到，這是一個真正的和平抗議而不像美國波蘭特等城市的抗議那樣。謝謝。
+我還將提出川普政府如何恢復對等美中關係。 現今，我們將繼續進行此項必要的工作。
 
-班農問：你們對西方世界——德國，加拿大和美國的公民和媒體等不稱這個病毒為中共病毒，不理解這個病毒是中共實驗室洩露感到震驚嗎？
+For years, the Chinese Communist Party has imposed significant barriers on American diplomats working inside the PRC.
 
-Bear：我認為這需要一個過程。我想對戰斗室的所有人員致敬，你們是真正的愛國者，是你們讓美國人看到真相。在中共陰影下，沒人是百分百安全的。離大選之日還有60天，行動必須嚴肅、有效、快速。只有推翻中共，美國才能有公平的大選；只有推翻中共，美國才能解決所有病毒問題；只有推翻中共，美國和世界才能保護每個人的自由與法制。
+多年來，中國共產黨對在中國境內工作的美國外交官施加了重大障礙。
 
-我不得不說，一些德國當地人對真相感到非常驚訝，他們知道這種病毒背後一定有奇怪的事情，他們知道政府隱藏了什麼，但有些人是完全被中共洗腦了，你知道中共是真正擅長宣傳的——他們用抖音，微信，藍金黃等來破環當地媒體說出真相，但由於種種原因，仍然有一些當地的德國人，他們認為我們是正確的，他們認為我們說的真相是真實可靠的，他們相信病毒是人工造的。
+Specifically, the Chinese Communist Party has implemented a system of opaque approval processes, designed to prevent American diplomats from conducting regular business, attending events, securing meetings, and connecting with the Chinese people, especially on university campuses and via the press and social media.
 
-最後連線加拿大集會代表Halley
+特別是，中國共產黨實施了一個不透明的審批程序，旨在防止美國外交官開展常規業務、參加各項活動、保障聚會、與中國人建立聯繫，特別是在大學校園裡面和媒體和社交媒體方面。
 
-班農：為什麼你參加新中共聯邦這個團體，為什麼你認為你們可以替代中共，你們想向世界，加拿大和你們在中國的同胞傳達什麼？
+Today I’m announcing the State Department has established a mechanism requiring approval for senior Chinese diplomats in the United States to visit university campuses and to meet with local government officials.  Cultural events with groups larger than 50 people hosted by the Chinese embassy and consular posts outside our mission properties will also require our approval.
 
-Halley：首先感謝班農先生和戰斗室所有的成員一直努力來支持中國人民。這是一個簡單的問題，就像你為什麼選擇上帝而不選擇撒旦一樣。中共是邪惡的，而新中國聯邦就是讓世界看到中共的邪惡。中共對美國和世界所做的種種犯罪活動，新中國聯邦不會做。相反，我們會和美國人民一起創造更好的世界，在公平正義的情況下和美國競爭，我們會遵守國際法和任何我們簽署的協議。
+今天，我宣佈美國國務院已建立了相應機制，要求中國高級外交官在美訪問大學校園和會見地方政府官員需要獲得批准。 由中國大使館和領事館主辦的而非我們授意的文化活動如團體人數超過50人也需要我們的批准。
 
-班農：剛得到一個消息說是中共恐嚇了捷克政府一名高官。我們知道中共經常恐嚇國內外的中國百姓，就像他們動用一切可動用的資源想要把郭先生拿下一樣。您覺得世界上除中國人之外，還有人想試圖對中國說不嗎？
+Additionally, we’re taking further steps to ensure that all official PRC embassy and consular social media accounts are properly identified as government accounts, Chinese Government accounts.
 
-Halley：我的答案是，是的。中共唯一目的就是想擁有統治世紀的權力，他們的強大建立在削弱別人的基礎上，這不僅僅是針對對中國人，也針對生活在這個世界上的所有人。無論你是誰，無論你在世界的哪一端，知道中共的邪惡是非常重要的。
+此外，我們正在採取進一步相關措施，確保將所有中國官方使館和領事社交媒體帳戶正確標記為政府帳戶，即中國政府帳戶。
 
-班農最後問：您覺得你們今天的行動有成效嗎？讓加拿大人更加關注這些問題嗎？
+I have David Stilwell, our Assistant Secretary of East Asia-Pacific Affairs, with me today.  He’ll take questions.
 
-Halley：我們自從去年開始就收穫頗豐，但是我想告訴全世界，加拿大被中共滲透的很深很久，涉及到各個領域。現在加拿大銀行和養老基金始終投資中共。我們需要做更多來喚醒當地民眾，媒體和政府。
+今天和我一起到會的還有我們的東亞太平洋事務助理部長戴維·史迪威（David Stilwell）。 他將會回答（你們）一些相關問題。
+
+We’re simply demanding reciprocity.  Access for our diplomats in China should be reflective of the access that Chinese diplomats in the United States have, and today’s steps will move us substantially in that direction.
+
+我們只是要求對等。 我們外交官在中國的權力特許應該和在美國的中共國外交官所特許的相對應，而今天的舉措將使我們朝著這個方向大步前進。
+
+**Further on China:**
+
+**更多關於中國（的消息）：**
+
+Under Secretary Krach sent a letter recently to the governing boards of American universities, altering them to the threats the Chinese Communist Party poses to academic freedom, to human rights, and to university endowments.
+
+副總理克拉奇（Krach）最近致信美國大學理事會，以突破中共對學術自由、人權和大學捐贈所構成的威脅。
+
+These threats can come in the form of illicit funding for research, intellectual property theft, intimidation of foreign students, and opaque talent recruitment efforts.
+
+這些威脅可能以用於研究的非法資金、知識產權盜竊、對外國學生的恐嚇，以及不透明的人才招募工作的形式出現。
+
+University governing boards can help ensure their institutions have clean investments and clean endowment funds by taking a few key steps:
+
+大學理事會可以通過採取一些關鍵步驟來幫助確保其機構擁有乾淨的投資和乾淨的捐贈基金：
+
+Disclose all PRC companies invested in endowment funds, especially those in emerging-market index funds.
+
+公開所有投資於捐贈基金的中共國公司，尤其是那些投資於新興市場指數基金的公司。
+
+Divest from Chinese companies on the Commerce Department Entity List that are contributing to human rights violations, military coercion, and other abuses.
+
+脫離《商務部實體名單》上（受制裁）的中國公司，這些公司正在助長侵犯人權，軍事脅迫和其它違法行為。
+
+And simply understand the recommendations issued by the President’s Working Group on Financial Markets, which examined the risk to investors of Chinese companies that are listed on U.S. stock exchanges.
+
+並且，簡單來講，只需去瞭解「總統金融市場工作組」發佈的建議，該建議就審查了所有在美國證券交易所上市的中國公司對投資者的風險。
+
+**Staying on China, but moving beyond our borders:**
+
+**繼續說中國，但是關於美國境外的：**
+
+We’re hoping for a peaceful resolution to the situation on the India-China border.  From the Taiwan Strait, to the Himalayas, and beyond, the Chinese Communist Party is engaged in a clear and intensifying pattern of bullying its neighbors.
+
+我們希望以和平方式解決印中邊界的局勢。 從台灣海峽到喜馬拉雅山，乃至更遠的地方，中國共產黨都在以明顯和加劇的方式欺壓鄰國。
+
+That bullying is also evident in the South China Sea.  Last week, the United States imposed sanctions and visa restrictions on Chinese individuals and entities responsible for the CCP’s imperialism there, doing things such as unlawful energy surveillance, activities in the economic zones of our ally the Philippines and other countries.
+
+這種霸凌行為在南中國海也很明顯。 上周，美國對在那裡奉行中共霸權主義，進行了能源監視等非法行為，或在我們盟友菲律賓和其它國家的經濟區進行活動的中國個人和實體實施了制裁和簽證限制。
+
+We also remain concerned – we’ve talked about this before – the activities of more than 300 Chinese-flagged vessels near the Galapagos, which are almost certainly engaged in illegal fishing.
+
+同時我們保持關注，我們之前已經討論過，關於加拉帕戈斯群島附近300多艘帶有中國國旗的船隻的活動，這些船隻幾乎肯定是從事非法捕魚的。
+
+In light of this maritime lawlessness, it’s no surprise that Beijing’s candidate in the International Tribunal for the Law of the Sea election last week received more abstentions than any other candidate.
+
+鑒於（中共）海事上的無法無天，上周在國際海洋法法庭選舉中，北京的候選人獲得比其它任何候選人更多的摒棄也就不足為奇了。
+
+China is the most flagrant violator of the Law of the Sea Convention, and nations all across the world are registering their disapproval.
+
+中國是最公然違反《海洋法公約》的國家，世界各國都對此表示反對。
+
+We’re also concerned about Chinese actions in Tibet, in light of the general secretary’s recent calls to “Sinicize” Tibetan Buddhism and fight “splittism” there.  We continue to call upon Beijing to enter into dialogue with the Dalai Lama or his representatives without preconditions, to reach a settlement that resolves their differences.
+
+對於（中共）總書記（習近平）最近呼籲將藏傳佛教「中國化」並與那裡的「民族分裂主義」作鬥爭，我們對中國在西藏的行動表示關切。 我們繼續呼籲北京無條件與達賴喇嘛或其代表進行對話，就雙方分歧的問題達成和解。
+
+We’re also tracking the situation in Belarus closely.  Deputy Secretary Biegun traveled there last week at my direction.  Belarusians deserve the right to choose their own leaders through a truly free and fair election under independent observation.
+
+我們也在密切追蹤白俄羅斯的局勢。 副秘書長Biegun上周在我的安排下已去了那裡。 白俄羅斯人民有權在獨立的觀察下，通過真正自由和公正的選舉來選擇他們自己的領導人。
+
+We demand an immediate end to the violence against them and the release of all who are unjustly detained, and that includes U.S. citizen Vitali Shkliarov.
+
+我們要求立即停止對他們（人民）的暴力行為，並釋放所有被非法拘留的人，其中包括美國公民Vitali Shkliarov。
+
+We’re closely coordinating, too, with our transatlantic partners, and are together reviewing significant, targeted sanctions on anyone involved in human rights abuses and repression.
+
+我們也與我們的跨大西洋夥伴緊密合作，並且正在共同審查對涉及侵犯人權和壓制人權的人採取的針對性制裁。
+
+[閱讀國務院英文原文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)
+
+翻譯：【一花一世界】【挺郭皇太子】校對 & 編輯：【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0
