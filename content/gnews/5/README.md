@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】9月2日班農戰斗室EP366 閆博士採訪片段
-`2020-09-04 09:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/333578/)
+## 中共國正逐步減持其擁有美國國債的20%以應對軍事衝突
+`2020-09-04 11:16 GM31` [轉載自GNews](https://gnews.org/zh-hant/333877/)
 
-**班農戰斗室EP366閆博士採訪片段視頻【 [1](https://youtu.be/mKQqNISkBGA) 】【 [2](https://youtu.be/s8vWxVysYYA) 】**
+據[zerohedge 9月4日報導](https://www.zerohedge.com/economics/chinas-state-media-strongly-teases-nuclear-option-dumping-all-us-bonds-extreme-case)，中共國為防止可能發生的軍事衝突，正在逐步減持其擁有美國國債的20%。
 
-[【中文版】班農戰斗室EP366閆博士採訪片段1：閆博士起底中共倉促推出疫苗：疫苗替代，能產生ADE讓病毒更容易入侵人體](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091149/CN-%E7%8F%AD%E5%86%9C%E6%88%98%E6%96%97%E5%AE%A4-EP366-%E9%97%AB%E5%8D%9A%E5%A3%AB%E9%87%87%E8%AE%BF%E7%89%87%E6%AE%B51.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091149/CN-%E7%8F%AD%E5%86%9C%E6%88%98%E6%96%97%E5%AE%A4-EP366-%E9%97%AB%E5%8D%9A%E5%A3%AB%E9%87%87%E8%AE%BF%E7%89%87%E6%AE%B51.pdf)
+如圖1所示，中共國持有的美國國債在2013年達到頂峰之後開始逐年下降，目前其持有量已至八年來最低水準。雖然北京一直在逐步減少其美國國債持有量，但從未進行過大規模清算以震驚市場。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04111556/%E5%9B%BE%E7%89%87-1.png)圖 1
+另據zerohedg在其報導中引用的中共國某官媒公開發表的文章說法，“*隨著美國聯邦赤字激增增加的違約風險，以及川普政府繼續發動的猛烈攻擊，中國可能會將其持有的美國國債從目前的一萬億美元逐步減少至8000億美元。*”
 
-[【中文版】班農戰斗室EP366閆博士採訪片段2：中共既無疫苗開發能力，亦無生產能力，CCP疫苗不可信](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091155/CN-%E7%8F%AD%E5%86%9C%E6%88%98%E6%96%97%E5%AE%A4-EP366-%E9%97%AB%E5%8D%9A%E5%A3%AB%E9%87%87%E8%AE%BF%E7%89%87%E6%AE%B52.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091155/CN-%E7%8F%AD%E5%86%9C%E6%88%98%E6%96%97%E5%AE%A4-EP366-%E9%97%AB%E5%8D%9A%E5%A3%AB%E9%87%87%E8%AE%BF%E7%89%87%E6%AE%B52.pdf)
+逐步減持的另一個原因也是美國債務水準不斷增加而產生的風險，預計美國債務水準將超過2021年的全年經濟規模。美國以其過往三個月現有貨幣化的債務規模來看，中共國此舉除了能短期佔據新聞頭條之外，並不能對美國產生太大影響，相反，對中共國的外匯和金融市場是一致命打擊，一場全面的金融資本戰爭正悄然臨近。
 
-[【英文版】班農WarRoom EP 366燕博士的採訪中第1部分：中共倉促推動COVID-19疫苗：疫苗可能產生巨大的副作用，並生成ADE，促進中共病毒感染人](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091159/EN-Bannon-WarRoom-366-Interview-DrYan-part1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091159/EN-Bannon-WarRoom-366-Interview-DrYan-part1.pdf)
+原文出處：[https://www.zerohedge.com/economics/chinas-state-media-strongly-teases-nuclear-option-dumping-all-us-bonds-extreme-case](https://www.zerohedge.com/economics/chinas-state-media-strongly-teases-nuclear-option-dumping-all-us-bonds-extreme-case)
 
-[【英文版】Bannon WarRoom EP 366嚴博士的訪談第2部分：CCP沒有疫苗開發能力或批量生產能力；中共生產的疫苗不可信賴](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091203/EN-Bannon-WarRoom-366-Interview-DrYan-part2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04091203/EN-Bannon-WarRoom-366-Interview-DrYan-part2.pdf)
+*文章撰寫：【重生】  編輯：【GM31】*
 
-陸續更新中……
+*戰友之家玫瑰園小隊出品*
 
-**By：【秘密翻譯組G-Translators】**
+
 
 0

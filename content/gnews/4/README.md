@@ -1,23 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/27-28 CCP病毒每日疫情直播簡報
-`2020-09-04 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/333593/)
+## 【戰友點評】全民檢測衛生差 香港行政服務功能退化
+`2020-09-04 11:39 GM42` [轉載自GNews](https://gnews.org/zh-hant/333913/)
 
-戰友之家圖文摘要及小語種組
-
-[English\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)
-
-[French\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)
-
-[German\_0827\_0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)
-
-[Japanese\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)
-
-[Korean\_0827\_28\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)
-
-[Spanish\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)
+製作單位：戰友之家-粵語組
+評述：卡西歐
+戰友評論：點蒼山
+後期製作：文粵
 
 
+
+當中共接管香港後，將大陸政府腐敗管理的套路滲透到香港，削弱媒體監督權，威逼利誘政商界，以金錢名利控制公權力，以外行管理內行
+
+資料來源：蘋果日報
+
+[https://hk.appledaily.com/local/20200902/FQSUDHYPG5F6TODBRZCLFIE7OM/](https://hk.appledaily.com/local/20200902/FQSUDHYPG5F6TODBRZCLFIE7OM/)
 
 0
