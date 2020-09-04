@@ -1,23 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/27-28 CCP病毒每日疫情直播簡報
-`2020-09-04 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/333593/)
+## 【戰友點評】黎智英涉恐嚇罪名不成立 鄭若驊一意孤行起訴 做法「傲慢又無知」
+`2020-09-04 15:32 GM42` [轉載自GNews](https://gnews.org/zh-hant/334179/)
 
-戰友之家圖文摘要及小語種組
-
-[English\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)
-
-[French\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)
-
-[German\_0827\_0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)
-
-[Japanese\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)
-
-[Korean\_0827\_28\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)
-
-[Spanish\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)
+製作單位：戰友之家-粵語組
+ 經濟小組節目組
+評述：卡西歐
+戰友評論：恩典
+整理：zhong
+後期製作：文粵
 
 
+
+恩典
+
+評：
+
+香港目前受中共政府所壓迫，全體香港社會頑強抵抗中共獨裁強權。在知悉黎智英先生恐嚇罪名不成立之時，彷佛在香港動盪社會中點燃一盞明燈。
+
+相較於在這一年來許多香港人民、民運人士遭受政治迫害，被消失、關押、奸殺等，同時許多司法不公正的審判，黎智英的罪名不成立的判決結果，令人甚感欣慰。
+
+再者，雖然黎智英先生的恐嚇罪名雖然不成立，但理性觀之，整起事件的經過難以讓人不聯想到政治迫害。據瞭解《東方日報》九七年後，東方日報就投誠中共，早已成為中共為達成高壓統治、獨裁所用之新聞媒體，中共政府往往利用不公正、不正當的手段打壓任何違背中共的聲音，意圖抹滅真相的存在。簡言之，中共政府總是不允許真相存在，並徹底慣行「順我者昌逆我者亡」的作法。
+
+對比東方日報，黎智英所創辦之《蘋果日報》，才是真正香港人民所應致力維護的新聞媒體，香港人民應致力維護的理由不僅是堅守、挖掘真相，更是為了保護香港社會免於受中共欺騙、政治迫害。
+
+再者，除香港社會應奮力抵禦中共獨裁之外，世界如不徹底剷除獨裁中共，人類必定不會享有實質的和平與安寧。
+
+資料來源：蘋果日報
+
+[https://hk.appledaily.com/local/20200903/47P3CGTV6BGETFBTNMXXGGFGUI/](https://hk.appledaily.com/local/20200903/47P3CGTV6BGETFBTNMXXGGFGUI/)
 
 0

@@ -1,23 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰鬥室：264 評新中國聯邦8.29 在日本舉行游行【精華版國語配音】
-`2020-09-04 06:28 GM42` [轉載自GNews](https://gnews.org/zh-hant/333407/)
+## 【戰友點評】全民檢測衛生差 香港行政服務功能退化
+`2020-09-04 11:39 GM42` [轉載自GNews](https://gnews.org/zh-hant/333913/)
 
-製作單位：戰友之家·粵語頻道
-素材製作：
-Warroom Pandemic
-視頻配音：
-wikim bao
-農夫
-小野貓
-視頻剪輯：食飽飽
-字幕校對：YAMAP
+製作單位：戰友之家-粵語組
+評述：卡西歐
+戰友評論：點蒼山
+後期製作：文粵
 
 
 
-班農戰鬥室 評 新中國聯邦8.29 在日本舉行游行 清楚指出中共的邪惡
+當中共接管香港後，將大陸政府腐敗管理的套路滲透到香港，削弱媒體監督權，威逼利誘政商界，以金錢名利控制公權力，以外行管理內行
 
-資料來源： 戰友之家 WarRoom班農戰鬥室
+資料來源：蘋果日報
+
+[https://hk.appledaily.com/local/20200902/FQSUDHYPG5F6TODBRZCLFIE7OM/](https://hk.appledaily.com/local/20200902/FQSUDHYPG5F6TODBRZCLFIE7OM/)
 
 0
