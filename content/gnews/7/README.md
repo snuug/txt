@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報（中文）第09/03期（視頻+ PDF下載）
-`2020-09-04 01:29 GM62` [轉載自GNews](https://gnews.org/zh-hant/333248/)
+## 【世界多語言圖文】2020/08/27-28 CCP病毒每日疫情直播簡報
+`2020-09-04 09:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/333593/)
 
-撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+戰友之家圖文摘要及小語種組
 
-[每日政要推文9-3](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/03234100/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-3.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/03234100/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-3.pdf)
+[English\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093206/English_0827-0828_CCP_Virus_Updates.pdf)
+
+[French\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093216/French_0827-0828_CCP_Virus_Updates.pdf)
+
+[German\_0827\_0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093157/German_0827_0828_CCP_Virus_Updates.pdf)
+
+[Japanese\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093210/Japanese_0827-0828_CCP_Virus_Updates.pdf)
+
+[Korean\_0827\_28\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093220/Korean_0827_28_CCP_Virus_Updates_216_217.pdf)
+
+[Spanish\_0827-0828\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04093201/Spanish_0827-0828_CCP_Virus_Updates.pdf)
+
+
 
 0
