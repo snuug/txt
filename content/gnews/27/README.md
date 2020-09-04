@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府有國會批准的史上最大國防預算應對中共軍事威脅
-`2020-09-04 00:28 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/333223/)
+## “被貸款”背後的強權政治
+`2020-09-04 06:36 GM64` [轉載自GNews](https://gnews.org/zh-hant/333417/)
 
-在[9月2日的美國國務院新聞發佈會](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)上，一位記者問蓬佩奧國務卿：基於美國剛剛發表的[年度中國軍事報告](https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF)，中共國正以驚人的速度擴充軍備，美國及盟國將怎樣應對。 蓬佩奧指出川普政府是第一個提出中國共產黨軍事擴張野心的政府，問題既然提出來了，就會去應對。並指出川普總統的美國歷史上最大的一筆2年超過7000億美元的國防預算已經被國會通過，這是為了確保美國擁有足夠的武器去應對任何威脅，包括中共的威脅。
+国內新聞：阿依呀
 
-[**下載年度中國軍事報告**](https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/03234726/DOS_20200902_News_Briefing-part2-figure12.png)
-[閱讀發佈會英文全文](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)
+新京報（9月3號）發出：患癌老年夫婦“被貸款”，銀行職員卻稱“我頂多判2年”，誰來保護“被欺負”的弱者，這一新聞。
 
-翻譯：【挺郭皇太子】校對：【重生】字幕：【羅賓 Robin (文賓)】編輯：【Michelle】
+據澎湃新聞報道，在河北張家口陽原縣，原本靠低保和兒女供養的患癌農婦王秀梅和小腦萎縮的丈夫，突然被停了低保，只因莫名多出了一筆貸款已逾期，進入了征信系統的“黑明單”。
 
-戰友之間玫瑰園小隊出品
+涉事銀行職員擺出一副“死豬不怕開水燙”的樣子，拿“負了刑事責任，肯定不用還貸和賠償了”來唬人。善良的老兩口從2019年5月至今，多次跟涉事的該縣農商銀行溝通都未解決。
 
-相關新聞：[蓬佩奧國務卿9月2日發佈會表明美國的滅共大錘已經落下！](https://gnews.org/zh-hant/331176/)
+此類事件並非首次發生。之前媒體就報道了不少未出校門的大學生“被貸款”亂象。
+
+其根源，一方面公民個人信息未受到保護，我們經常會接到莫名的房産、教育機構、銀行、電商等電話，相信他們之間有相互買賣客戶信息現象。
+
+中共隨便玩弄自己制定法律的，確要求老百姓嚴格遵守，普天之下，此有其理。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04063159/image0-5-1.jpg)
+
 
 0
