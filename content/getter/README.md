@@ -13,6 +13,11 @@
 
 
 
+[《辽宁省大连市中级人民法院执行裁定书》  COURT JUDGMENT FOR ENFORCEMENT Issued by: Dalian Municipal ...](/content/getter/content/2020/09/5f52ef0edaed5626f98ae32e.md)
+
+**郭文贵MILES** `2020-09-05T01:51:10`
+##
+
 [9月4日 尊敬的战友们好！以下链接是各地农场负责人的联系方式，相关项目请战友们和各农场联系，截止日期为10月7号。战友们可以自由选择你喜欢的和你方便的农场，但是...](/content/getter/content/2020/09/5f52661edaed5626f98a885d.md)
 
 **郭文贵MILES** `2020-09-04T16:06:54`
@@ -156,10 +161,5 @@
 [8月29日 新中国联邦日本战友们在大阪的抗议游行活动现场（四）](/content/getter/content/2020/08/5f4a6a5cd3bc84639c7d799f.md)
 
 **郭文贵MILES** `2020-08-29T14:46:52`
-##
-
-[8月29日 新中国联邦日本战友们在大阪的抗议游行活动现场（三）](/content/getter/content/2020/08/5f4a5927d3bc84639c7d6593.md)
-
-**郭文贵MILES** `2020-08-29T13:33:27`
 ##
 
