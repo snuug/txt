@@ -1,34 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友點評】黎智英涉恐嚇罪名不成立 鄭若驊一意孤行起訴 做法「傲慢又無知」
-`2020-09-04 15:32 GM42` [轉載自GNews](https://gnews.org/zh-hant/334179/)
+## 川普政府又一重大外交勝利：塞爾維亞與科索沃實現關係正常化
+`2020-09-04 18:31 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/334347/)
 
-製作單位：戰友之家-粵語組
- 經濟小組節目組
-評述：卡西歐
-戰友評論：恩典
-整理：zhong
-後期製作：文粵
+編者按：川普政府於2020年9月4日宣佈促成了塞爾維亞與科索沃達成實現經濟關係正常化並簽署協議。並且兩國在中東和平進程方面也各自邁出了一大步：「科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。」
 
+這是川普政府外交上繼促成以色列-阿聯酋外交正常化以後的又一重大勝利。這不僅能使塞爾維亞與科索沃兩國得以打破僵局、促成經濟開放和共同繁榮，其帶來的世界轉向和平的大趨勢也給美國減輕在國際上的軍事負擔，並能促進美國業務在以上地區的展開和給美國人帶來就業。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04181424/WH_20200904_Serbia_and_Kosovo-photo169.png)
+聲明全文（中英文對照）
 
+**Statement by the President Regarding Economic Normalization between Serbia and Kosovo (09/04/2020)**
 
-恩典
+**川普總統關於塞爾維亞與科索沃經濟關係正常化的聲明 (2020/09/04)**
 
-評：
+Today, I am pleased to announce yet another historic commitment.  Serbia and Kosovo have each committed to economic normalization.  After a violent and tragic history and years of failed negotiations, my Administration proposed a new way of bridging the divide.  By focusing on job creation and economic growth, the two countries were able to reach a real breakthrough on economic cooperation across a broad range of issues.
 
-香港目前受中共政府所壓迫，全體香港社會頑強抵抗中共獨裁強權。在知悉黎智英先生恐嚇罪名不成立之時，彷佛在香港動盪社會中點燃一盞明燈。
+今天，我高興地宣佈另一項歷史性承諾。塞爾維亞和科索沃已經各自承諾致力於實現經濟關係正常化。歷經充滿暴力和悲慘的歷史以及多年失敗的談判，本屆政府提出了彌合分歧的新方法。通過專注於創造就業和經濟增長，兩國可以在更廣泛的問題上實現真正的，突破性的經濟合作。
 
-相較於在這一年來許多香港人民、民運人士遭受政治迫害，被消失、關押、奸殺等，同時許多司法不公正的審判，黎智英的罪名不成立的判決結果，令人甚感欣慰。
+We have also made additional progress on reaching peace in the Middle East.  Kosovo and Israel have agreed to normalization of ties and the establishment of diplomatic relations.  Serbia has committed to opening a commercial office in Jerusalem this month and to move its embassy to Jerusalem by July.
 
-再者，雖然黎智英先生的恐嚇罪名雖然不成立，但理性觀之，整起事件的經過難以讓人不聯想到政治迫害。據瞭解《東方日報》九七年後，東方日報就投誠中共，早已成為中共為達成高壓統治、獨裁所用之新聞媒體，中共政府往往利用不公正、不正當的手段打壓任何違背中共的聲音，意圖抹滅真相的存在。簡言之，中共政府總是不允許真相存在，並徹底慣行「順我者昌逆我者亡」的作法。
+在實現中東和平方面，我們也取得了額外的進展。科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。
 
-對比東方日報，黎智英所創辦之《蘋果日報》，才是真正香港人民所應致力維護的新聞媒體，香港人民應致力維護的理由不僅是堅守、挖掘真相，更是為了保護香港社會免於受中共欺騙、政治迫害。
+It has taken tremendous bravery by President Vučić of Serbia and Prime Minister Hoti of Kosovo to embark on these talks and to come to Washington to finalize these commitments.  By doing so, they have made their countries, the Balkans, and the world safer.  I look forward to seeing Serbia and Kosovo prosper as we work together on economic cooperation in the region going forward.
 
-再者，除香港社會應奮力抵禦中共獨裁之外，世界如不徹底剷除獨裁中共，人類必定不會享有實質的和平與安寧。
+塞爾維亞總統武契奇和科索沃總理霍蒂展示出了極大的勇氣來開展對話，並來到華盛頓最終確定了 這些承諾。他們的做法，為他們自己的國家，巴爾乾半島和整個世界帶來了安全。我期待著看到塞爾維亞和科索沃未來的繁榮，因為我們共同致力於該地區的經濟合作。
 
-資料來源：蘋果日報
+[閱讀白宮英文原文](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-economic-normalization-serbia-kosovo/)
 
-[https://hk.appledaily.com/local/20200903/47P3CGTV6BGETFBTNMXXGGFGUI/](https://hk.appledaily.com/local/20200903/47P3CGTV6BGETFBTNMXXGGFGUI/)
+[觀看簽字儀式視頻](https://www.youtube.com/watch?v=iG3srA1j42I)
+
+[觀看白宮記者會視頻](https://youtu.be/TIgnOHDZvSA)
+
+翻譯【jamie(文胤)】校對【石頭】編輯 & 撰稿：【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0
