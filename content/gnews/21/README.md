@@ -1,45 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新聞看點-2020 年9 月4 日
-`2020-09-05 10:09 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/335318/)
+## 【世界多語言圖文】2020/08/29 CCP病毒每日疫情直播簡報
+`2020-09-05 10:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/335010/)
 
-喜馬拉雅聯盟加拿大農場 孫行者大地鯤鵬
+戰友之家圖文摘要及小語種組
 
-一、疫情真相
+[English\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)
 
-1. 2020年9月1日，中共負責接管武漢P4病毒研究所的陳薇少將在央視談話中透露， 2月26日中共就從生產線製造出“正式的疫苗”，引起外界質疑：中共要在2019年夏天或更早以前就掌握病毒的序列和其它生物學特症， 才能於2月26日製造出新冠病毒疫苗，而武漢1月20日才宣佈人傳人病毒疫情。
+[French\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)
 
-2. 世界衛生組織公佈了新冠病毒國際調查組11名專家名單，其中包含中共國醫生鐘南山。
+[German\_0829\_KPCh\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)
 
-二、 新中國聯邦新聞
+[Japanese\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)
 
-1.為報復路德社爆料閻維文和彭麗媛的情人關係，中共國遼寧大連法院株連郭文貴先生的親戚，查封了66套房產。
+[Spanish\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)
 
-2.美《2020中共軍事報告》出爐，主要內容有：中共使用軍民融合項目對美全面滲透；中共以軍事力量取代外交力量；中共國經濟政策圍繞軍事武裝力量發展；中共全球軍事擴張。
 
-3.中共國減持20%的美國國債，以預防兩國可能發生的“軍事衝突” 。
-
-4.川普總統首次坦陳與普京關係融洽，而因為中共在疫情上的惡劣表現，他與中共國關係很糟糕。
-
-5.白宮幕僚長馬克·梅多斯（Mark Meadows）週四（9月3日）表示，川普總統正在研究禁止更多對國家安全構成威脅的中共應用程序（APP）。此表態印證“路德時評”透露美國政府將對中共APP進行限制的消息。
-
-6.路透社4日援引美國國防部一名官員消息稱，特朗普政府正考慮將中共國頂級芯片製造商中芯國際（SMIC）列入“貿易黑名單”。這項製裁力度僅次於對華為的製裁，將重挫中共國軍工發展。
-
-7.泰國昨天取消了和中共國的兩艘元級潛艇的訂購之後，今天又正式取消了由中共國領頭的克拉運河計劃。這讓中共想避開馬六甲海峽，建立由中共自己控制的運輸航路的計劃徹底破產。
-
-8.9月4日，中共國國防部長魏鳳和與印度國防部長拉杰納特·辛格在莫斯科舉行了會晤，雙方表達了和平解決邊境糾紛的意願，而根據印度媒體報導，中共軍隊在麥克馬洪線沿線的“7號公路” 抓走5名當地人，消息已經得到被抓人員家屬的證實。
-
-9.網上多段視頻顯示，9月4日下午，一架參與侵擾飛越台海和南海的中共解放軍“蘇-35”戰機在廣西桂林七星區三甲村墜毀，飛行員重傷。
-
-10.內蒙古阿拉善盟政府辦公室一位33歲蒙古族女公務員蘇日娜，本週五（9月4日）清晨在其住所跳樓自殺，以死抗議當局取消蒙語教學。
-
-三、世界新聞
-
-1.美國三大股指周四出現暴跌，截至收盤，道瓊斯指數報28292.73點，下跌807.77點，跌幅2.78%；納斯達克指數報11458.10點，跌598.34點，跌幅4.96%；標普500指數報3455.06點，下跌125.78點，跌幅3.51%。
-
-2.川普總統在外交領域再取得重大成果： 9月4日塞爾維亞和科索沃兩國領導人於白宮，在其見證下，簽署了兩國經濟關係正常化歷史性協議。協議包括科索沃承認以色列，塞爾維亞大使館遷往耶路撒冷等。
-
-3.拜登前往威斯康星州的暴亂小鎮慰問。和前天沿街數英里民眾歡迎川普總統的熱烈場面相比，沿街沒有出現歡迎民眾。拜登在當地的演講，聽眾不到20人。
 
 0

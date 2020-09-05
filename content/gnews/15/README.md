@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 天府之國嗅到了糧食危機的味道
-`2020-09-05 10:28 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/335388/)
+## 【中英文視頻版】2020/08/31 CCP病毒每日疫情直播簡報
+`2020-09-05 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/335450/)
 
-喜馬拉雅聯盟加拿大農場金融時事欄目組369
+英文標題 CCP Virus Pandemic Updates Ep220:  The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests
 
-中共國水稻產區主要是長江中下游地區，東北三省和四川盆地。今年南方雨澇災害天氣和人為將大量水庫開閘洩洪，導致四川及長江中下游地區產糧大省大面積遭到水患，糧食減產嚴重，很多水淹地區顆粒無收。那麼，在未發生洪災的地區，糧食情況是怎麼樣的呢。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101837/369.jpg)
-以筆者所在地之一的四川產糧縣為例，該縣及相鄰幾個縣都是糧食種植基地、糧食輸出縣。該縣未遭受任何洪澇災害，可是也出現了搶購糧食的苗頭。
+視頻重點
 
-9月5日，筆者鑑於之前家里屯的是陳米，想想新米彷彿就是最近上市，打算購買新米放置在家。於是筆者來到該縣菜市場售賣糧食的商店詢問，得到糧店店主的回復是，還有一個月時間新米才能上市，市場上均無新米可售。
+1. 中共取消蒙古語教學，已經造成當地蒙古族人民的強烈反彈及抗議。數萬蒙古族學生和家長發起罷課及抗議集會等各種抵制活動，當局強令維穩。
+2. 中共國警察光天化日之下在街頭揮舞棍棒野蠻執法，有人被打死。
+3. 今天是時隔香港831太子站手足遇難一周年的紀念日，香港人在街頭自發的舉辦紀念犧牲的手足，不放棄追查手足死去的真相，不放棄追求自由民主法治等天賦人權。這次該我們贏了。
+4. Steve Bannon）首先你說，中共從來未能成功地為動物做出疫苗，更不用說人用疫苗；第二，在六個月裡世界上最厲害的生物製藥專家以及最偉大的醫藥大學埋頭苦幹，離研究完成都還很遙遠，中共的人如何能造出疫苗？第三，你的意思是你認為死在測試假疫苗的人比死於病毒的人更多？            (郭文貴）是的先生，100%。
+5. （8/30連線台灣遊行戰友們）台灣人啊信佛信儒家，而且是中國文化的善良的一面，最美好的保留的地方。共產黨不是什麼極權主義，它就是流氓主義。他絕對就是流氓主義和黑幫主義。
 
-在接下來的攀談過程中，店主提到最近一個月以來，買糧食的客人越來越多，上週一位客人一次性買走1500斤大米，是店主自己親自給他送貨到家，確認是私人所購。店主還提到最近購糧的客人中不乏神神秘秘、不願多說、也不砍價，直接購買幾百斤大米的客戶，這種現像在以前是很少的。店主還說，跟我一樣來詢問新糧什麼時候上市的客人也不少，其中之前跟他預約說新米上市購買的客人，最近也提前購買了一部分，以防止以後不能如願購買到糧食。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101852/123-scaled.jpg)
-在我和店主攀談的過程中，一位前來購買大米，60多歲左右模樣的顧客對我說，“年輕人，你不知道哇，要缺糧了啊，災荒年辰（方言，意味災荒年份）要來了，多買點糧食放到屋頭存起”。
 
-店主說，的確近些日子以來，討論缺糧和屯糧的話題很火爆，糧店裡的生意也很火爆。大米價格也水漲船高，最近兩週質量最差的散裝陳米價格由2.3元/市斤漲到2.7元/市斤。估計後面市場上的庫存不夠了還要猛漲。先知先覺的一部分民眾已經開始屯糧。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101906/456-scaled.jpg)
-聽罷，我也沒有片刻猶豫，趕緊下單。因為我知道，一個月的時間太長了，等不到新米上市，CCP會搶先“截胡“了，從田間地頭將糧食強行徵收，極大可能不在市面上流通了。等不到新糧了，陳米也趕緊搶吧！
+1. The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests among the local Mongolian people. Tens of thousands of Mongolian students and parents launched various boycott activities such as strikes and protest rallies, and the authorities forced the maintenance of stability.
+2. In broad daylight, Communist China’s police wielded batons during the brutal law enforcement. Some people were killed.
+3. On August 31 last year, many people were killed at the Prince Edward Station in Hong Kong. Today is the first 831 anniversary of the death of these compatriots. Hong Kong people spontaneously commemorate their sacrificed siblings on the streets. Don’t give up tracing the truth about the death of our compatriots.
+4. (Steve Bannon) You’re saying first off the CCP has never been able to successfully make a vaccine for animals much less humans; No.2: in six months when you get the greatest biological pharma guys in the world and the greatest universities doing it, they’re not even close, how did these guys come up with; and No.3: you’re saying more people, you’re putting out there, you believe more people died in test taking the vaccine than actually died in the coronavirus?              (Miles Guo) Yeah 100% Sir.
+5. (8/30) Taiwanese people believe in Buddhism and Confucianism. Taiwan also preserves the most benevolent and finest aspects of the Chinese culture. The Communist Party are not just totalitarianism. They’re simply thuggish. Absolutely thuggish mafia. Consensus has been reached across the world to define them as thuggish mafia organization.
 
-親愛的同胞們，還在猶豫什麼呢，趕緊屯糧吧，刻不容緩啊！行動！行動！行動！
 
 0

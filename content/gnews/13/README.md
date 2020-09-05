@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士戰鬥室351:中共疫苗臨床顯示嚴重副作用,中共疫苗致死率甚至高於病毒（法語French+中文Chinese+英文English）
-`2020-09-05 10:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/335410/)
+## 每日政要Twitter播報（中文）第09/05期（視頻+ PDF下載）
+`2020-09-05 11:19 GM62` [轉載自GNews](https://gnews.org/zh-hant/335489/)
 
-翻譯：黄玫瑰法国女郎 校對：珠丝玛迹 字幕: 小羽
+撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+
+[每日政要推文-9-5](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05111616/%E7%BE%8E%E5%9B%BD%E6%94%BF%E8%A6%81%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05111616/%E7%BE%8E%E5%9B%BD%E6%94%BF%E8%A6%81%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-5.pdf)
 
 0
