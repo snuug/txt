@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/29 CCP病毒每日疫情直播簡報
-`2020-09-05 10:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/335010/)
+## 滅共宣傳片:共產黨,你徹底的完了（瑞典語字幕Swedish subtitles）
+`2020-09-05 12:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/335675/)
 
-戰友之家圖文摘要及小語種組
+瑞典語標題 KKP, du är helt slut！
 
-[English\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)
+翻譯：JingMerit 校對：lxxy 視頻：杨过
 
-[French\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)
+視頻簡介
 
-[German\_0829\_KPCh\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)
+共產黨正在走向瘋狂。 共產黨正在走向死亡。 共產黨毀滅世界。 爆料革命要讓中國人真正地站起來! 團結起來! 七芒星的含義就是再造華人的信仰形像。 一切己經開始!
 
-[Japanese\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)
-
-[Spanish\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)
-
-
+KKP marscherar mot galenskap. KKP marscherar mot sin egen död. KKP förstör hela världen! Visselblåsaresrörelsen kommer att göra allt för att det kinesiska folket ska återfå sin värdighet och hålla ihop！Vad sjupunktsstjärnan symboliserar är att återskapa kinesiska folkets trosstjärna. Allt har börjat！
 
 0

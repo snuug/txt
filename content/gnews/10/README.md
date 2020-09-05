@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【華爲】狼性文化就是“狗文化” 個人價值的追求會引發對人權的需求
-`2020-09-05 10:00 GM30` [轉載自GNews](https://gnews.org/zh-hant/335276/)
+## 【中英文視頻版】2020/08/31 CCP病毒每日疫情直播簡報
+`2020-09-05 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/335450/)
 
-**作者：小妍說**
+英文標題 CCP Virus Pandemic Updates Ep220:  The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests
 
-近日，華爲舉行戰略預備隊學員和新員工座談會，華爲CEO任正非在會上表示，我們不需要每個員工都去閱讀公司的總戰略，不要關注太大的事情，“不在其位，不謀其政”。如果天天跟你的主管高談闊論，他還可能在末位淘汰時給你穿小鞋。也許你是天才，但是他聽不懂。而且年輕人要多服從你的領導，多與你的團隊合作，踏實做好本職工作，小事做不好，怎麽能證明你能做大事呢？
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05095456/%E5%9B%BE%E7%89%871-18.jpg)
-這就是典型的共産黨思維，只談付出，不提回報。那在華爲35歲被淘汰的，是不服從領導？還是高談闊論了呢？在中共國，華爲是中共國市場下野蠻生長的畸形兒。它披著21世紀的皮，填充著20世紀的血肉，有著19世紀的大腦。華爲的成功，來源于每一個被壓榨的血肉。今天任正非的言論向我們赤裸裸展示了中共國的資本根植于骨血的貪婪。任正非的這些話就是在告訴大家，要多多搞奴性文化，不要提倡個人價值，個人價值和集體意識衝突，個人價值的追求會引發對人權的需求，集體意識能降低集體的智商，好好爲奴。不過這種不考慮員工意願和需求，單方面輸出價值觀的行爲都是耍流氓。爲什麽任正非的這麽簡單的幾句洗腦的話語，在中共國就可以上熱搜？無非就是灌輸聽了領導的話，即便是打掉了牙也要臉上挂著笑，這才叫忠誠。我想如果讓任正非重選一次，恐怕他還是會選聽領導的話，因爲這麽久時間過去，他已經完全肖申克化了，體制化了。而他則是真正的體制化的人。這就好像在中共國掌控士兵最好的方法是賞罰分明，接著是控制言行。士兵不能知道的太多。例如，戰前主將要進行政治動員，爲什麽而戰？如果士兵都知道一場戰爭是邪惡的是必輸的，那誰還去賣命呢？所以必須去給士兵灌輸最符合領導者利益的想法。任正非這個問題本質並不是不要你高談闊論，而是讓你去完全服從。做一個只會服從的機器，然後把事幹好領工資。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05095542/%E5%9B%BE%E7%89%872-15.jpg)
-不過我們現在想一想，現在中共國內年輕人有多少能高談闊論的？教室裏面，都沒幾人暢想未來。大家還記得去年的思政課嗎？有的老師讓大家談論談論自己的夢想，底下幾乎都是:買一套房子。另外，高談闊論，和不做實事兒有關系嗎？我看啊，是中共的利益集團，就怕太多既能幹，又能忽悠的人，帶領大家反抗。就好像奴隸時代，有人勸奴隸們說，“吃肉太多有害健康，吃雜糧對身體好”。話雖沒錯，但你不和滿嘴油光的奴隸主們說，和雜糧都吃不飽的奴隸們說是幾個意思呢？任正非的話足以說明，中共政府需要的員工是奴隸和狗那樣的款，老老實實幹活就可以，不需要有態度，不需要有想法。奴隸喜歡說話，會挨鞭子；狗喜歡叫，會挨棍子；員工喜歡發表意見，會被淘汰。這也是爲什麽生活在中共國的人經常感覺到自己小時候是人，長大後就變成了奴隸，變成了狗！
+視頻重點
 
-GNEWS之前文章：
-中共國再出奇葩【賣身契】[https://gnews.org/zh-hans/333437/](https://gnews.org/zh-hans/333437/)
-被判15年未進監獄 “紙面服刑 ”15年 [https://gnews.org/zh-hans/333317/](https://gnews.org/zh-hans/333317/)
-拒文化滅絕 內蒙抗議革命 [https://gnews.org/zh-hans/332000/](https://gnews.org/zh-hans/332000/)
+1. 中共取消蒙古語教學，已經造成當地蒙古族人民的強烈反彈及抗議。數萬蒙古族學生和家長發起罷課及抗議集會等各種抵制活動，當局強令維穩。
+2. 中共國警察光天化日之下在街頭揮舞棍棒野蠻執法，有人被打死。
+3. 今天是時隔香港831太子站手足遇難一周年的紀念日，香港人在街頭自發的舉辦紀念犧牲的手足，不放棄追查手足死去的真相，不放棄追求自由民主法治等天賦人權。這次該我們贏了。
+4. Steve Bannon）首先你說，中共從來未能成功地為動物做出疫苗，更不用說人用疫苗；第二，在六個月裡世界上最厲害的生物製藥專家以及最偉大的醫藥大學埋頭苦幹，離研究完成都還很遙遠，中共的人如何能造出疫苗？第三，你的意思是你認為死在測試假疫苗的人比死於病毒的人更多？            (郭文貴）是的先生，100%。
+5. （8/30連線台灣遊行戰友們）台灣人啊信佛信儒家，而且是中國文化的善良的一面，最美好的保留的地方。共產黨不是什麼極權主義，它就是流氓主義。他絕對就是流氓主義和黑幫主義。
 
-（文章內容僅代表作者觀點）
+
+1. The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests among the local Mongolian people. Tens of thousands of Mongolian students and parents launched various boycott activities such as strikes and protest rallies, and the authorities forced the maintenance of stability.
+2. In broad daylight, Communist China’s police wielded batons during the brutal law enforcement. Some people were killed.
+3. On August 31 last year, many people were killed at the Prince Edward Station in Hong Kong. Today is the first 831 anniversary of the death of these compatriots. Hong Kong people spontaneously commemorate their sacrificed siblings on the streets. Don’t give up tracing the truth about the death of our compatriots.
+4. (Steve Bannon) You’re saying first off the CCP has never been able to successfully make a vaccine for animals much less humans; No.2: in six months when you get the greatest biological pharma guys in the world and the greatest universities doing it, they’re not even close, how did these guys come up with; and No.3: you’re saying more people, you’re putting out there, you believe more people died in test taking the vaccine than actually died in the coronavirus?              (Miles Guo) Yeah 100% Sir.
+5. (8/30) Taiwanese people believe in Buddhism and Confucianism. Taiwan also preserves the most benevolent and finest aspects of the Chinese culture. The Communist Party are not just totalitarianism. They’re simply thuggish. Absolutely thuggish mafia. Consensus has been reached across the world to define them as thuggish mafia organization.
+
 
 0

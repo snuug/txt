@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美參議員給國務卿的公開信
-`2020-09-05 08:14 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/335129/)
+## 【世界多語言圖文】2020/08/29 CCP病毒每日疫情直播簡報
+`2020-09-05 10:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/335010/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05075919/1-24.png)
-尊敬的蓬佩奧國務卿：
+戰友之家圖文摘要及小語種組
 
-首先，我想要感謝您與川普總統一起站出來，採取的大膽且具有歷史性的行動，抵抗中共謊言和中共對人權的侵犯。我贊同川普總統追究中共違反香港長期協議的責任，以及取消香港的特殊地區的決定。為了人權，我們最終會制裁這些幫助中共限製香港自由，以及暴力侵犯維吾爾族人權的中共官員、企業和銀行。
+[English\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)
 
-雖然政府正在採取正確的措施，但還有更多的事要做，我們要繼續追究中共的責任，以及警告美國人去中國旅行會面臨危險。中共和它的傀儡們還在鎮壓和恐嚇那些主張民主人權的人們。我們知道在中國旅行的外國人和工作新聞記者需要自行承擔風險。我們已經看到，像香港民主領袖《蘋果日報》的創始人黎智英(Jimmy Lai)等人被捕的危險，這一切都是由於中共在香港強制實行新《國安法》造成的。我們都知道，每一個到中國旅行的人都會受到中共的廣泛監控，並且會不惜一切代價讓“不同聲音”的人閉嘴。
+[French\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)
 
-但是，除了健康的威脅之外，我們還必須認識到每一個美國人在中國會面臨嚴重的安全威脅。因此，鑑於中共目前侵犯的行為和對美國安全的嚴重威脅，我敦促國務院在疫情過後仍繼續維持4級“旅行禁令”的警告。
+[German\_0829\_KPCh\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)
 
-國防部已將包括伊朗在內的其他敵人指定為“第四級”因為它們肆意逮捕和拘留美國公民。現在我們是時候對中共採取同樣措施了。
+[Japanese\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)
 
-感謝你考慮到這一重要措施，它保護了自己家園的美國人免受來自中共的威脅。
+[Spanish\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)
 
-真誠的
 
-里克·斯科特(Rick Scott)
 
-美國參議員
-
-原文圖片
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05080834/2-11.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05080848/3-6.jpg)
 0
