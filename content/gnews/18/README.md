@@ -1,67 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共強推黨魁文化，蒙族文明急遭威脅
-`2020-09-04 15:13 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/334165/)
+## 川普政府又一重大外交勝利：塞爾維亞與科索沃實現關係正常化
+`2020-09-04 18:31 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/334347/)
 
-喜馬拉雅聯盟加拿大農場金融時事欄目組 遊子吟
+編者按：川普政府於2020年9月4日宣佈促成了塞爾維亞與科索沃達成實現經濟關係正常化並簽署協議。並且兩國在中東和平進程方面也各自邁出了一大步：「科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。」
 
-校對 風雲小哥
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04150933/8480348.jpg)圖片來源：美國新聞網
-8月26日內蒙古教育廳發布了《全區民族語言授課學校小學一年級和初中一年級使用國家統編語文教材實施方案》。文件規定從今年下半年學期開學起，內蒙古民族語言小學從一年級開始使用全國通用的語言教材，併計劃在2021和2022年三年內，《語文》、《道德與法治》和《歷史》三門課程將陸續使用“國家通用語言文字授課”，即漢語授課。
+這是川普政府外交上繼促成以色列-阿聯酋外交正常化以後的又一重大勝利。這不僅能使塞爾維亞與科索沃兩國得以打破僵局、促成經濟開放和共同繁榮，其帶來的世界轉向和平的大趨勢也給美國減輕在國際上的軍事負擔，並能促進美國業務在以上地區的展開和給美國人帶來就業。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04181424/WH_20200904_Serbia_and_Kosovo-photo169.png)
+聲明全文（中英文對照）
 
-蒙古族學校蒙古語課本中刪減了關於蒙古族熱愛故鄉、熱愛文化和母語的民族主義詩文片段。許多蒙古族學者和學生家長擔憂這一實施方案將會令蒙古語言陷入生存危機。孩子從小學開始學漢語，定會將唯一的蒙古語完全覆蓋掉。
+**Statement by the President Regarding Economic Normalization between Serbia and Kosovo (09/04/2020)**
 
-面對新政，蒙族社區人民用各種實際行動捍衛自己民族的權益。
+**川普總統關於塞爾維亞與科索沃經濟關係正常化的聲明 (2020/09/04)**
 
-內蒙古教育廳關於加強漢語教學的文件引發了蒙古族學生和家長不滿，激發了該地區多年來罕見的抗議和示威活動。內蒙古通遼市,鄂爾多斯市,呼和浩特市等多地的數万學生和家長發起罷課及抗議集會,反對當局加強漢語教學,進一步淡化蒙古族母語教學，部分示威標語：“學習蒙古語是蒙古族不可侵犯的權力”、“拒絕第二類雙語教育”…
+Today, I am pleased to announce yet another historic commitment.  Serbia and Kosovo have each committed to economic normalization.  After a violent and tragic history and years of failed negotiations, my Administration proposed a new way of bridging the divide.  By focusing on job creation and economic growth, the two countries were able to reach a real breakthrough on economic cooperation across a broad range of issues.
 
-**學生罷課、家長支持**
+今天，我高興地宣佈另一項歷史性承諾。塞爾維亞和科索沃已經各自承諾致力於實現經濟關係正常化。歷經充滿暴力和悲慘的歷史以及多年失敗的談判，本屆政府提出了彌合分歧的新方法。通過專注於創造就業和經濟增長，兩國可以在更廣泛的問題上實現真正的，突破性的經濟合作。
 
-阿都沁等中學學生陸續逃出校園集體罷課，市民稱讚孩子：”好樣子！”。家長表示，我們寧可讓孩子呆在家裡，也不要去上學。
+We have also made additional progress on reaching peace in the Middle East.  Kosovo and Israel have agreed to normalization of ties and the establishment of diplomatic relations.  Serbia has committed to opening a commercial office in Jerusalem this month and to move its embassy to Jerusalem by July.
 
-有學校把學生困在學校，防止罷課，不許孩子見家長，家長和學校雙方對峙一整天，學生和家長表示：”保護我們的母語(蒙語)會付出代價，但我們願意為我們的母語而死“。
+在實現中東和平方面，我們也取得了額外的進展。科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。
 
-哲理木，庫倫旗的家長在接孩子回家過程中，遭遇警察動手阻撓，視頻傳有學生家長被警察打傷。
+It has taken tremendous bravery by President Vučić of Serbia and Prime Minister Hoti of Kosovo to embark on these talks and to come to Washington to finalize these commitments.  By doing so, they have made their countries, the Balkans, and the world safer.  I look forward to seeing Serbia and Kosovo prosper as we work together on economic cooperation in the region going forward.
 
-**老師正義言辭，駁斥國安**
+塞爾維亞總統武契奇和科索沃總理霍蒂展示出了極大的勇氣來開展對話，並來到華盛頓最終確定了 這些承諾。他們的做法，為他們自己的國家，巴爾乾半島和整個世界帶來了安全。我期待著看到塞爾維亞和科索沃未來的繁榮，因為我們共同致力於該地區的經濟合作。
 
-有學校老師被國安詢問長達11個小時，國安要老師遵守正能量，老師直接回复：”什麼是正能量？我保護母語就是正能量！“
+[閱讀白宮英文原文](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-economic-normalization-serbia-kosovo/)
 
-**公職人員，聯名簽字**
+[觀看簽字儀式視頻](https://www.youtube.com/watch?v=iG3srA1j42I)
 
-2020年9月2號中共威逼利誘所有公務員子女必須返校支持雙語改革, 否則將受到嚴懲. 但廣播電視台三百多位員工沒有被中共嚇倒, 聯名簽字公開表示反對中共, 在民族大義之下他們決然先擇站在正義一面。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04150030/Borhonru-%E5%B8%83%E5%AE%8F%E5%A4%AB%E6%8E%A8%E7%89%B9.png)圖片來源：”Borhonru | 布宏夫”推特
-**領國蒙古，示威支持**
+[觀看白宮記者會視頻](https://youtu.be/TIgnOHDZvSA)
 
-8月31日，鄰國蒙古人在烏蘭巴托蒙古外交部外抗議中國內蒙當局以漢語取代蒙語授課的政策。示威者手舉豎寫的蒙古語海報，表示將捍衛蒙古傳統文化。海報上寫道：“我們反對中國的壓迫政策”；“即使神靈放棄，也不要放棄我們的領土”；“我們支持在內蒙保存我們的文化的兄弟”。
+翻譯【jamie(文胤)】校對【石頭】編輯 & 撰稿：【Michelle】
 
-一位驅車500公里來參與抗議的蒙古族人表示，“內蒙古是繼蒙古國和在俄羅斯的蒙古人以外，最後一個保存傳統蒙古文字的地方。因此世界各地的蒙古人都對中國在學校廢除蒙古語感到憤怒。”
-
-**正義市民呼籲：不落下任何一位同胞**
-
-一個小伙子說，微信上聽說在抓人，急忙騎著摩托車帶著幾歲的女兒就趕過來了，他號召蒙族同胞們，不管認識不認識，只要公安抓一個人，大家都要跟著去。大家記住我，並說了他家住址和自己的姓名。
-
-**中共持續對蒙族人施壓、恐嚇和抓捕**
-
-黨員帶頭，明確立場
-
-昨天，2020年9月2號，中共下達行政命令，南蒙古軍、公、教的子女必須返校接受第二類雙語授課，起黨員帶頭作用。
-
-記錄在檔，秋後算賬
-
-通遼的蒙古學校老師通知、恐嚇家長必須把孩子交到學校來，否則把不來的孩子記入黑名單，直接影響以後的中考和高考。
-
-天眼大數據，焚書坑儒
-
-昨天(9月2日),內蒙古通遼市公安局科爾沁區公安分局發布了“第四批”通緝人員名單。前三批通緝細節尚不清楚，但通緝人員名單已經排至第129位。通告還稱“公安機關對提供線索或者協助抓獲的人予以獎勵人民幣1000元。”該通告附有被通緝人員照片，但這些照片並非來自正式使用的證件照，部分照片是戴口罩的人臉，多數照片的背景中有聚集人群，有的被通緝人士手拿蒙古語標語，有的是夜景照片，顯然這些照片來自於示威現場，是通過攝像頭人臉識別出來的。
-
-據當地視頻傳出，通遼市扎旗某文具店不許賣蒙文書籍和與其相關東西；內蒙古的文具店和書店開始全面清理檢查。
-
-評：
-
-“內蒙古雙語教育”的目的是中共當局企圖洗腦蒙族人民，弱化蒙古族的民族主義情緒，更加鞏固習近平對國人的統治。
-
-中共必將不會由蒙族人自由發表自己的觀點，它除了擔心內蒙省給中國其他省份帶來的示範效應之外，縱觀中共歷史，它對與之不和諧的聲音從來就沒有手軟過：西藏、新疆、89六四、法輪功、香港反送中、國安法。儘管中共現在以尋釁滋事罪來壓制民眾，但隨著事件的升溫，中共必將冠民眾以“蒙獨”、“境外反華勢力策劃”、“勾結境外反華勢力”等罪名，流血傷亡必將發生在蒙古族人民身上，因此呼籲世界各界組織及正義人士快速、積極、有力地給中共施壓，減少和避免悲劇同樣發生在蒙族同胞身上。
+戰友之家玫瑰園小隊出品
 
 0

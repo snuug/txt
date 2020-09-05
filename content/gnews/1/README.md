@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 內蒙女公務員捍衛蒙古語言文化墜樓身亡
-`2020-09-04 21:59 GM01` [轉載自GNews](https://gnews.org/zh-hant/334649/)
+## 助理国务卿答印中衝突、台灣問題、中共外交人員限制等問題
+`2020-09-05 01:18 GM31` [轉載自GNews](https://gnews.org/zh-hant/334774/)
 
-內新聞作者:背靠背
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04215143/1EE7591E-C32E-4BD0-AE48-7D67753D6481.png)
-內蒙古阿拉善盟政府辦公室一位33歲蒙古族女公務員蘇日娜，2020年9月4日清晨在其住所墜樓身亡。中共警方指死者有抑鬱症病史。網絡流傳出死者遺書以及丈夫的錄音顯示，蘇日娜之死是為捍衛蒙古族語言文化。
+在9月2日的新闻发布会上，东亚和太平洋事务助理国务卿(Assistant Secretary of State for East Asian and Pacific Affairs)戴维·史迪威（David Stilwell）对印中衝突、台灣問題、中共外交人員限制等問題答记者问。
 
-蘇日娜的遺書是這樣寫的：我們阿拉善的人口少，沒法團結起來，我們寫的請願書連旗政府都沒過就給壓下去了。他們用各種辦法施加壓力。我們蒙語文工作人員的壓力更大。我們就算傻，我們就算懦弱，不要再罵我們了。我們用生命去證明瞭我們努力過。」
+在问及台积电製造產業回到亞利桑那时，他提到:”我們推動了台積電晶片製造產業回到亞利桑那，或者我們至少在往那個方向努力。這對臺灣和美國，都是好消息。我們在這個問題上還處於初級階段，但是我們對蔡(英文)總統排除最後障礙的決定表示非常地歡迎。”
 
-當天蘇日娜的丈夫立即接到公安警告，要求他撤下發到網上的有關妻子逝世的文字和圖片信息。
+*翻譯:【信正】 校對:【Jael菜园子】 字幕:【罗宾 Robin (文宾)】 編輯:【GM31】*
 
-在一段錄音中，蘇日娜的丈夫在回應國保，他這樣說 :「我發的是事實，我怎麼啦，我不能說話嗎？她現在是18歲以上。」
+*戰友之家玫瑰園小隊出品*
 
-公安：「你從網上發佈的東西，該撤就撤了。」
+*國務院URL: [https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)*
 
-蘇日娜丈夫：「我為什麼要撤，我發錯了嗎？」
+*YouTube連結：[https://www.youtube.com/watch?v=m4OgVI73nSo](https://www.youtube.com/watch?v=m4OgVI73nSo)*
 
-公安：「你要負責任的。」
+*美國年度中國軍事報告：[https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF](https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF)*
 
-蘇日娜丈夫：「那你就抓我嘛，我發錯什麼了。」
+> [蓬佩奧國務卿9月2日發佈會表明美國的滅共大錘已經落下！](https://gnews.org/zh-hant/331176/)
 
-公安：「這件事應該調查呀。」
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04215537/4D6D0D6D-2B61-4886-98AC-653535AE1B4B.png)
-蘇日娜墜樓身亡是自8月30日上萬名蒙古族學生和家長髮起集會抗議以來，傳出的第四起。第一起是通遼市捨伯吐鎮蒙古學校一位五年級學生，他得知母親被武警毆打後，從該校四樓跳下身亡。
+> [川普政府有國會批准的史上最大國防預算應對中共軍事威脅](https://gnews.org/zh-hant/333223/)
 
 0

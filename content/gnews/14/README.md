@@ -1,29 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農駁斥習近平：強奸民意的恰恰是你
-`2020-09-04 16:57 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/334247/)
+## “無邪教”社區幫助粉碎被取締宗教團體
+`2020-09-04 19:04 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/334414/)
 
-喜馬拉雅聯盟加拿大農場 龍井
+*新聞來源：bitter winter《寒冬》；作者：Gu Xi；發佈時間：2020年9月2日，星期三*
 
-校對 坐看雲起時
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04163843/xiaotian.png)圖片來源：YouTub 
-9月3日，習近平發表講話，概括了“中國人民堅決不答應”的五種情形，班農先生對此予以嚴厲駁斥，指責習近平“強奸民意”。
+*翻譯/簡評：Cathy r；校對：感恩；審核：海闊天空；Page：拱卒*
 
-北京時間9月3日下午，中共中央總書記習近平在人民大會堂發表講話，聲稱中國人民絕不答應”任何人、任何勢力企圖把中國共產黨和中國人民割裂開來，對立起來”等五種情形。
+**簡評：**
 
-當日，班農先生在他的war room節目中對習近平的“五個不答應”進行了針鋒相對的駁斥。他一針見血地說：“真正強奸民意的是你—習總書記！”
+中共現在又開始在各地大力開展“無邪教”城鎮或村莊建設，對“非正統”的宗教如法輪功和全能神教展開全面進攻。中共為什麼那麼怕這些獨立的宗教團體？因為他們怕人們有獨立的精神追求，衝破他們大一統的邪教系統。從中共進行的宣傳和洗腦可以看出，中共正是世界上最大的邪教團體，所以他們才會仇視任何宗教團體，對其他宗教團體不斷進行破壞和控制。
 
-班農表示，沒有國家可以將其意志強加於中國人民，事實上也沒有任何國家將其意志強加於中國人民。他說：“習總書記，你才是那個真正把意志強加於中國人民的人。”
+##  **“無邪教”社區幫助粉碎被取締宗教團體** 
 
-班農指出，揭露中共罪行，區分中共與中國人民，“關係到中國老百姓的自由，關係到中國老百姓的民主，關係到中國老百姓的法制。這關係到讓中國人民擁有法治和民主，讓中國人民擁有自由，像台灣和以前的香港那樣，像新加坡、澳大利亞、加拿大、美國和英國那樣。那裡的人民擁有民主、自由、法制，因此，他們蓬勃發展，繁榮富強。那裡沒有防火牆。”
+**中共國各地的地方政府都敦促創建“模範”城鎮或村莊，其中沒有居民是被貼上“非正統宗教”標籤的宗教團體的成員。**
 
-習近平宣稱的“五個不答應”，一是“歪曲中共歷史，醜化中共性質和宗旨”；二是“歪曲和改變中國特色社會主義道路，否定和醜化中國人民建設社會主義的偉大成就”；三是“把中共和中國人民割裂開來，對立起來”；四是“通過霸凌手段把意志強加給中國，改變中國的前進方向，阻撓中國人民創造自己美好生活的努力”；五是“破壞中國人民的和平生活和發展權利，破壞中國人民同其他國家人民的交流合作，破壞人類和平與發展的崇高事業”。有戰友（文溯）把它歸納為：一是揭露中共的醜惡歷史、性質和宗旨；二是改變中國社會主義道路、否定社會主義；三是把中國共產黨和中國人割裂開來；四是改變中國的前進方向；五是阻止中共與國際邪惡勢力的骯髒交易。
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/32906618-4588-4fcc-82d6-16b978bcb134.jpg?asset_id=b0ca5c8f-37d3-4760-8f06-ed445f4b5746&amp;img_etag=%229dce6e630e483e9464811f264ad8fe53%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/32906618-4588-4fcc-82d6-16b978bcb134.jpg?asset_id=b0ca5c8f-37d3-4760-8f06-ed445f4b5746&amp;img_etag=%229dce6e630e483e9464811f264ad8fe53%22&amp;size=1024) CCP 才是真正的邪教
 
-[https://twitter.com/GlobalHimalaya/status/1301676243255832578](https://twitter.com/GlobalHimalaya/status/1301676243255832578http://politics.people.com.cn/GB/n1/2020/0903/c1001-31848579.htmlhttps://twitter.com/quitecrazy/status/1301837041915686912)
+浙江省東部的紹興市政府夏初在其官網上宣布，該市柯橋區50%的村莊和社區將在6月底前實現無“邪教”。這意味著，居住在這些地方的被取締的宗教團體成員人數至少減少90%，或者在實施適當的灌輸和宣傳措施後完全被清除。去年，該地區19個村被宣佈為“無邪教”區，力爭成為“100個無邪教縣，1000無邪教個鄉，1萬個無邪教村”之一。該項目2014年由負責反邪教工作的中央政府機構在全國范圍內啟動，以協助實施中共清除所有被取締宗教團體的計劃。
 
-[http://politics.people.com.cn/GB/n1/2020/0903/c1001-31848579.html](https://twitter.com/GlobalHimalaya/status/1301676243255832578http://politics.people.com.cn/GB/n1/2020/0903/c1001-31848579.htmlhttps://twitter.com/quitecrazy/status/1301837041915686912)
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/12a9a218-60fd-4bc5-99a6-d480c1fea03d.jpg?asset_id=3d0bfd64-48e4-4b58-9731-ab6148beb7b9&amp;img_etag=%22aea3acdc2b247acd9175080f21e2b492%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/12a9a218-60fd-4bc5-99a6-d480c1fea03d.jpg?asset_id=3d0bfd64-48e4-4b58-9731-ab6148beb7b9&amp;img_etag=%22aea3acdc2b247acd9175080f21e2b492%22&amp;size=1024)紹興市關於柯橋區“無邪教”村的公告
 
-[https://twitter.com/quitecrazy/status/1301837041915686912](https://twitter.com/GlobalHimalaya/status/1301676243255832578http://politics.people.com.cn/GB/n1/2020/0903/c1001-31848579.htmlhttps://twitter.com/quitecrazy/status/1301837041915686912)
+名單上的邪教，經常被誤導地翻譯為“邪惡的宗教”（evil cults），最早是在明末（1368-1644）提出來。 1995年，中共重新提出了這些提法，認為所有獨立的宗教運動，特別是那些迅速發展的宗教運動對其政權充滿敵意。在邪教中活躍是一種犯罪，可根據《中共國刑法》第300條處以3年到7年“或更多年”的監禁。
+
+在邪教名單之首是法輪功和全能神教會(CAG)。 2019年，至少26683名全能神教會成員和3582名法輪功練習者受到騷擾，6132人和6109人分別被捕。
+
+按照習近平主席的指示“反對邪教對國家安全和贏得人民意志都很重要”，反邪教運動被視為維護國家安全的主要先決條件。
+
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/392f2312-f737-4d60-900b-d9188f6714c3.jpg?asset_id=30d847c2-cb62-419b-ba00-8dc80018dbe7&amp;img_etag=%22962c6f542f911b1b461ea60377dd0d24%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/392f2312-f737-4d60-900b-d9188f6714c3.jpg?asset_id=30d847c2-cb62-419b-ba00-8dc80018dbe7&amp;img_etag=%22962c6f542f911b1b461ea60377dd0d24%22&amp;size=1024)廣東省恩平市錦新村委會關於成為無邪教示範村的名冊。
+
+文件要求將地方官員在反教領域取得的成績納入基層黨組織或網格行政部門的工作考核和一般績效。鼓勵各地組建專職或兼職的反邪教隊伍，確保有系統地打擊被取締宗教團體。
+
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/e2bea9a7-67e9-4927-84c5-9ab4d1a155f0.jpg?asset_id=17aea672-3d1c-4b57-90e5-6fc344da02d9&amp;img_etag=%22995ba2a7a888eb64a623802df15a8492%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/e2bea9a7-67e9-4927-84c5-9ab4d1a155f0.jpg?asset_id=17aea672-3d1c-4b57-90e5-6fc344da02d9&amp;img_etag=%22995ba2a7a888eb64a623802df15a8492%22&amp;size=1024)六月份，廣東恩平市的一所學校校園裡一名學生在閱讀反邪教材料。
+
+中共還要求地方政府建立激勵性的舉報製度，組建公民舉報團體，對社區進行巡邏，並對信徒進行積極監督。被確認的被取締的宗教團體成員在個性化“課程”中“通過教育被轉化”，以確保所有法輪功練習者和90%以上全能神教會成員都被轉化。
+
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/97ca4ab9-5aa6-483e-8794-6070ece7ddf9.jpg?asset_id=08880c0d-5979-4f67-90a5-186a5da575c9&amp;img_etag=%22a137a8e495d6b97b5298b00056d96efb%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/97ca4ab9-5aa6-483e-8794-6070ece7ddf9.jpg?asset_id=08880c0d-5979-4f67-90a5-186a5da575c9&amp;img_etag=%22a137a8e495d6b97b5298b00056d96efb%22&amp;size=1024)恩平市各村的居民不得不參加六月份的許多反邪教活動
+
+為了實現這些目標，被取締的宗教團體的成員面臨著長期的灌輸和高壓監視，即使他們從拘留被釋放後，直到他們簽署三個聲明保證、懺悔和批判——承諾放棄他們的信仰。因不能忍受這樣的身心折磨，有些信徒就自殺了。
+
+這些文件還規定定期開展宣傳活動，向民眾灌輸思想，確保他們中的大多數人了解邪教造成的“危險”。
+
+河南省中部縣級市永城市韓寨村被評為省無邪教區。特別打造的宣傳場地，以及反邪教標語和橫幅，在村里隨處可見。
+
+[!\[\](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/1dc95ae9-6fd2-4b62-9cd7-edb7d202a9df.jpg?asset_id=c5cacf2b-3db2-45a5-884e-645cda772d24&amp;img_etag=%22b36c518426d642bc5f5ec034533fe0d0%22&amp;size=2560)](https://spark.adobe.com/page/h8Z93RwDAn1Py/images/1dc95ae9-6fd2-4b62-9cd7-edb7d202a9df.jpg?asset_id=c5cacf2b-3db2-45a5-884e-645cda772d24&amp;img_etag=%22b36c518426d642bc5f5ec034533fe0d0%22&amp;size=1024)在8月份，反邪教活動的參加者在廣東深圳市鹽田區的一個公園里合影。
+
+“當我的家人在村里的擴音器裡聽到關於被取締的宗教團體的信息後，他們開始向我施壓，讓我放棄信仰，因為他們擔心我可能會被逮捕，他們會受到牽連。 ”一名來自韓寨的全能神教會成員告訴《寒冬》。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04185229/image-18.png)今年8月，在鹽田區的一個反邪教教育基地，年輕人參加了關於舉報邪教成員的培訓。 
+一位來自福建省的全能神教會成員解釋說，政府要求在學校、國家機構和居民社區開展反邪教宣傳。 “全能神教會成員在工作中受到調查和威脅，他們的孩子被要求舉報他們的信教家庭成員，”信徒說，“在街道和公園裡可以看到誣陷和詆毀宗教信仰的宣傳橫幅和公告欄。人們被要求向警察舉報有信仰的人。我們每次見面都可能被舉報。這種巨大的精神壓力是無法忍受的。”
+
+[原文鏈接](https://bitterwinter.org/xie-jiao-free-communities-help-crush-banned-religious-groups/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/h8Z93RwDAn1Py/)
 
 0

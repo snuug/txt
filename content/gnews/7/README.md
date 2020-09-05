@@ -1,39 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普政府又一重大外交勝利：塞爾維亞與科索沃實現關係正常化
-`2020-09-04 18:31 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/334347/)
+## 出大事了! 泰國正式取消了本來由中共國領頭的克拉運河計劃
+`2020-09-04 21:23 GM77` [轉載自GNews](https://gnews.org/zh-hant/334573/)
 
-編者按：川普政府於2020年9月4日宣佈促成了塞爾維亞與科索沃達成實現經濟關係正常化並簽署協議。並且兩國在中東和平進程方面也各自邁出了一大步：「科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。」
+編撰:文肯尼；審核:臺灣荔枝
 
-這是川普政府外交上繼促成以色列-阿聯酋外交正常化以後的又一重大勝利。這不僅能使塞爾維亞與科索沃兩國得以打破僵局、促成經濟開放和共同繁榮，其帶來的世界轉向和平的大趨勢也給美國減輕在國際上的軍事負擔，並能促進美國業務在以上地區的展開和給美國人帶來就業。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04181424/WH_20200904_Serbia_and_Kosovo-photo169.png)
-聲明全文（中英文對照）
+**據印度主流國際電視媒體「寰宇一家」(WION)新聞報導,泰國週四(2020年9月3日)宣佈正式取消了由中共國領頭的克拉運河計劃。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04211009/%E6%88%AA%E5%B1%8F2020-09-05-%E4%B8%8A%E5%8D%888.46.52-1.png)*泰國克拉運河示意圖*
+克拉運河又被稱為”泰國運河”,是一條設想中的、建在馬來半島泰國一側的人工運河。 **克拉運河專案的提出與建設背後被認為主要是由中共政府來推動和主導的。** 2018年11月,據當時的《亞洲時報》報導,曾經承建過南中國海造島工程的中國龍浩集團已向泰國方面出具了一份建造克拉運河的計劃,另外有一些中國大陸和港澳地區的企業也表達了對參與運河建設的強烈興趣。 中共試圖將克拉運河納入一帶一路專案。
 
-**Statement by the President Regarding Economic Normalization between Serbia and Kosovo (09/04/2020)**
+倘若克拉運河項目能夠順利建設完成,將使得從印度洋進入東亞的海上運輸線路縮短至少1200公里,成為馬六甲海峽航道的強力競爭者。 **其中最受益方被認為無疑將是號稱東亞經濟體的主導者—中共政府(CCP)。 利用克拉運河,中共一方面可以通過該運河更快地進入印度洋,另一方面也可以擺脫對美軍控制的麻六甲海峽的依賴,奠定中共在印太地區地緣政治版圖中的霸權角色。**
 
-**川普總統關於塞爾維亞與科索沃經濟關係正常化的聲明 (2020/09/04)**
+泰國當前執政黨—為泰黨之所以宣佈正式取消本來由中共國領頭的克拉運河計劃,據報導主要是因為受到了其最大競爭對手普泰黨以及泰國民眾的強烈反對。 **他們認為,泰國將克拉運河計劃交由中共主導將嚴重破壞泰國、緬甸、柬埔寨等貧窮東南亞國家的主權獨立性,導致中共在東南亞的話語權將變得更大,會造成各方在軍事實力上更加懸殊的差距。**無論泰國政府處於何種原因宣佈取消由中共國領頭的克拉運河計劃,都將對中共的印太擴張計劃造成重大打擊。
 
-Today, I am pleased to announce yet another historic commitment.  Serbia and Kosovo have each committed to economic normalization.  After a violent and tragic history and years of failed negotiations, my Administration proposed a new way of bridging the divide.  By focusing on job creation and economic growth, the two countries were able to reach a real breakthrough on economic cooperation across a broad range of issues.
+此外,據報導,**泰國政府於週一(2020年8月31日)還推遲向中共購買價值7.24.24億美元的兩艘元級S26T潛艇。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04211030/%E6%88%AA%E5%B1%8F2020-09-05-%E4%B8%8A%E5%8D%888.55.54-1.png)*中共生產的元級S26T潛艇*
+泰國政府接連不斷地作出各項不利於往日老大哥中共的決定。 此舉被認為,**中共已經對在印度太平洋地區的主要盟國失去了控制力,影響力已經一落千丈**。 究其原因,主要是由於中共的霸權之心已經逐漸明面化,各方勢力已經清楚地意識到,與中共的密切交往帶來的只會是威脅恐嚇、債務纏身、主權喪失、經濟蕭條等。  2020年,CCP病毒與中共當前在台海以及南海的種種所作所為已經充分證明了這一點。
 
-今天，我高興地宣佈另一項歷史性承諾。塞爾維亞和科索沃已經各自承諾致力於實現經濟關係正常化。歷經充滿暴力和悲慘的歷史以及多年失敗的談判，本屆政府提出了彌合分歧的新方法。通過專注於創造就業和經濟增長，兩國可以在更廣泛的問題上實現真正的，突破性的經濟合作。
-
-We have also made additional progress on reaching peace in the Middle East.  Kosovo and Israel have agreed to normalization of ties and the establishment of diplomatic relations.  Serbia has committed to opening a commercial office in Jerusalem this month and to move its embassy to Jerusalem by July.
-
-在實現中東和平方面，我們也取得了額外的進展。科索沃和以色列已經同意實現兩國關係正常化，並建立外交關係。塞爾維亞已經承諾於本月在耶路撒冷開設一家商務辦事處，並在明年7月之前將其大使館遷至耶路撒冷。
-
-It has taken tremendous bravery by President Vučić of Serbia and Prime Minister Hoti of Kosovo to embark on these talks and to come to Washington to finalize these commitments.  By doing so, they have made their countries, the Balkans, and the world safer.  I look forward to seeing Serbia and Kosovo prosper as we work together on economic cooperation in the region going forward.
-
-塞爾維亞總統武契奇和科索沃總理霍蒂展示出了極大的勇氣來開展對話，並來到華盛頓最終確定了 這些承諾。他們的做法，為他們自己的國家，巴爾乾半島和整個世界帶來了安全。我期待著看到塞爾維亞和科索沃未來的繁榮，因為我們共同致力於該地區的經濟合作。
-
-[閱讀白宮英文原文](https://www.whitehouse.gov/briefings-statements/statement-president-regarding-economic-normalization-serbia-kosovo/)
-
-[觀看簽字儀式視頻](https://www.youtube.com/watch?v=iG3srA1j42I)
-
-[觀看白宮記者會視頻](https://youtu.be/TIgnOHDZvSA)
-
-翻譯【jamie(文胤)】校對【石頭】編輯 & 撰稿：【Michelle】
-
-戰友之家玫瑰園小隊出品
+中共此時此刻面臨的內憂外患正應了1974年4月1 0 日其領導人鄧小平在聯合國大會第六屆特別會議上的講話,「如果中國有朝一日變了顏色,變成一個超級大國,年4月10日其領導人鄧小平在聯合國大會第六屆特別會議上的講話,「**如果中國有朝一日變了顏色,變成一個超級大國,也在世界上稱王稱霸,到處欺負人家,侵略人家,剝削人家,那麼,世界人民就應當給中國戴上一頂”社會帝國主義”的帽子,就應當揭露他、反對他、並且同中國人民一道打到他。** 」
 
 0
