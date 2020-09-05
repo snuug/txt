@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美限制中共外交活動 斯伯丁：早該如此 華春瑩：反華妄想症
-`2020-09-04 21:26 GM01` [轉載自GNews](https://gnews.org/zh-hant/334601/)
+## 【中英文視頻版】2020/08/30 CCP病毒每日疫情直播簡報
+`2020-09-05 07:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/335030/)
 
-內新聞作者：α-Vega
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/04214312/DE90E18C-57EA-4550-BF60-7D6A02226666.jpeg)
-美國國務卿蓬佩奧9月2日表示，要對中國外交官實施新的限制，以推進美中關係里的對等原則。基於”對等”原則，美國國務院發表聲明，中國外交官訪問美國大學、會見美國當地政府官員或在駐地以外的地方舉行超過五十人的文化活動前，需要先經過國務院批准。
+英文標題 CCP Virus Pandemic Updates Ep219: Declaration of the New Federal State of China
 
-」數十年來，我們一直在跟中方溝通，要求對等。中共持續說不，甚至是一種不在乎的態度。我們早就該這麼做（對中國外交官發出限制反擊）了。”2016至2017年曾派駐在北京、擔任駐華高級國防官員的准將羅伯特·斯伯丁（Robert Spalding）坦言。
+視頻簡介
 
-“美國外交官的活動範圍通常被限制在派駐的城市，只能在非常嚴苛的申請下才有可能到中國其他城市，甚至包含私人行程。我們國防部官員需要向解放軍對口單位申請（出行），外交官則需要向外交部申請。有時候同意、有時不同意，有時根本等不到回音。”
+1. 中国共产黨抢占私有財產，欺壓百姓，以黑治國。中共宣傳地攤經濟，同時城管當街搶劫攤主，踐踏私有財產，在中共的極權统治下，无法治可言。
+2. 捷克參議院議長維特齊無懼中共威脅、打壓，率領有史以來訪台層級最高的捷克官員於8月30日至9月4日訪問台灣。之前布拉格市長拒絕”一中”（一個中國）承諾並與北京斷交，隨後訪問台灣支持民主政權。此次代表團所帶口罩為台灣捐贈。捷克參議長維特齊率團訪台，
+3. 全球聯合行動，遊行反抗，自由發聲，追求民主自由法制。新中國聯邦繼續全球連動大遊行，相繼在洛杉磯，舊金山，台灣台北和韓國開展抗議活動，反對中共，捍衛民主，聲援香港。
+4. 新中國聯邦宣言：我們因爆料革命凝聚在一起，為實現新中國法治、民主和自由而組成喜馬拉雅監督機構。
+5. （8月29日，連線台灣參加遊行戰友們）我給你們今天說一個好消息。就在我剛剛，就這一次直播前，這中間我有三個會議，這個會議當中，其中有一個就是關係到台灣的未來重大的使命、重大的事件和重大的改變。
 
-斯伯丁提到，中國對美國外交人員的一些”小動作”更是讓人感到氣憤。他舉例，中共限制了美國的外交包裹大小，或是在外交人員的居所進行監控、派人尾隨外交人員等。
 
-相反，在美國的中國外交官是自由的跑來跑去，利用媒體、社交平台寫帖子，宣傳他們的想法、進入美國的地方政府、美國的大學…這是不對等的！
+1. The CCP is used to terrorize people, fleece them of their wealth with the same behavior of a drug cartel. Although the CCP’s propaganda promoted a street-vendor economy, their Urban Management Officers are robbing vendors in broad daylight and trampling on private property rights. There is no rule of law under communist regime.
+2. Czech Senate Speaker Vystrcil arrived in Taiwan on official visit from August 30th to Sept. 4th, braving CCP’s threats and represals. He led the highest-level delegation in the history of the country’s bilateral relations with Taiwan, who, by the way, wore the masks donated by Taiwan during the pandemic. Previously, the Mayor of Prague rejected the “One China” policy and cut off diplomatic ties with Beijing. He later visited Taiwan in support of the democratic government.
+3. Global alliance against the CCP, speaking out for the freeedom of speech, democracy and the rule of law. The New Federal State of China continues its global march in Los Angeles, San Francisco, Taiwan and South Korea, to protest against the CCP, defend democracy, and support Hong Kong.
+4. Declaration of the New Federal State of China :It is the Whistleblower’s Movement that has brought us together! In order to realize the Rule of Law, Democracy, and Freedom in the New Federal State of China, we have established the Himalaya Supervisory Organization.
+5. (Live streaming with protestors in Taiwan, 8/29) I have good news for you guys today. Between now and my last live streaming, I attended three meetings, and one of them was about the future of Taiwan, its significant missions, great events and major changes.
 
-中共外交部發言人華春瑩對此新規回應，去年10月以來，美國國務院對中國駐美使領館及其工作人員在美正常履職不斷設置限制。有關做法嚴重違反國際法和國際關係基本准則，嚴重干擾中美關係和雙邊正常交往。
-
-她認為，這反映出美國反華勢力已經喪失理性和自信，得了「反華妄想症」。
-
-華春瑩所提到的中國駐美使領館在美「正常履職」不斷設置限制。所指應是於今年七月被關閉的中共駐休斯頓總領事館。司法部國家安全事務助理部長德默斯說，美國並不是隨意挑選關閉。他說，當時調查人員在美國30個城市展開了50項面談，針對中國軍人隱瞞身份、以訪問學者身份進入美國大學和科研機構進行調查，而休斯頓總領事館指導了這些軍人學者在美國的間諜和盜竊知識產權行動。
-
-有關調查只是冰山一角，美國政府對這些案件逐個起訴無法及時瓦解中國這項大規模間諜活動，於是要求中共關閉。
-
-格里斯教授說，被正式列入名單且公開身份的領事人員可以作為「合法間諜」展開工作，但法律要求他們遵守某些規則。「除此以外還有‘非法間諜’——那些沒有被列入任何大使館名冊的官員和代理人……通過假扮某個身份，或者只是利用已有的緣由在所駐國從事間諜活動。」
-
-中國軍人唐娟涉嫌隱瞞身份到加州大學戴維斯分校從事研究工作是一個範圍廣泛的網絡的一部分，這個網絡得到中共駐美國領事館的支持，由領館提供如何逃避和妨礙美方調查的指導。唐娟已被美國當局逮捕拘押，並交由法庭審判。
-
-中共要求美外交官提交出行審批，甚至採取監視、跟蹤等措施。此次美國國務院出台的外交新規是出於外交對等原則。而對於休斯頓總領事館從事非法間諜和盜取知識產權行為，是出於司法調查，兩者並無直接關係。身正不怕影子斜，何必過分解讀。看來中共已經喪失理性和自信，得了「被反華妄想症」。
-
-新聞來源：
-
-美國為什麼要對等外交？ 請看美駐華外交官的遭遇
-
-[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/jt-09032020125718.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/jt-09032020125718.html)
-
-美國國安高官：中國駐休斯頓領館關閉前主導間諜活動被FBI盯上
-
-[https://www.voachinese.com/a/us-china-houston-consulate-espionage-20200813/5541769.html](https://www.voachinese.com/a/us-china-houston-consulate-espionage-20200813/5541769.html)
-
-華春瑩：美鷹派喪失理性 得了「反華妄想症」
-
-[http://mil.news.sina.com.cn/2020-09-04/doc-iivhuipp2429712.shtml](http://mil.news.sina.com.cn/2020-09-04/doc-iivhuipp2429712.shtml)
 
 0

@@ -1,24 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 習王國家級遊說遣返事件曝光後，郭先生再爆家人及同事房產被沒收！
-`2020-09-05 06:20 GM01` [轉載自GNews](https://gnews.org/zh-hant/335004/)
+## 【世界多語言圖文】2020/08/29 CCP病毒每日疫情直播簡報
+`2020-09-05 10:27 GM62` [轉載自GNews](https://gnews.org/zh-hant/335010/)
 
-2020年8月，美司法部起訴尼基·戴維斯壹案正式曝光了中共最高國家領導人利用國家力量遊說美國政府遣返郭先生，根據美司法部最新消息顯示尼基·戴維斯對違反《外國代理人法》認罪不諱，雖然遊說最終以失敗告終，但該案件背後相關的政治意義仍在持續發酵。
+戰友之家圖文摘要及小語種組
 
-與此同時，2020年9月1日，大連法院隨即公布了《遼寧省大連市中級人民法院執行裁定書》
+[English\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064726/English_0829_CCP_Virus_Updates.pdf)
 
-裁定包括：
+[French\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064730/French_0829_CCP_Virus_Updates.pdf)
 
-壹、將被執行人北京政泉控股有限公司位於北京市朝陽區大屯裏301號樓1單元201號、301號樓1單元202號、301號樓1單元203號、303號樓2單元101號、303號樓2單元102號、303號樓2單元103號、309號樓3004號、309號樓3005號、309號樓3006號、309號樓3007號、309號樓3008號、309號樓3009號、309號樓3010號房產作價人民幣81,284,421.36元，交付江蘇省華建建設股份有限公司抵償江蘇省華建建設股份有限公司對北京政泉控股有限公司享有的民事債券人民幣75,483,420.02元。
+[German\_0829\_KPCh\_Virus\_Updates\_](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064738/German_0829_KPCh_Virus_Updates_.pdf)
 
-二、 債權金額與抵債金額差價5,801,001.34元由江蘇省華建建設股份有限公司補足。 2018年10月8日遼寧省大連市中級人民法院作出（2018）遼02刑初92號刑事判決書，被告單位北京政泉控股有限公司犯強迫交易罪，判處罰金六百億元（罰金於本判決生效後三十日內繳納）。
+[Japanese\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05064734/Japanese_0829_CCP_Virus_Updates.pdf)
 
-郭先生在2018年8月13日首次談到“強迫交易罪”，郭先生的許多同事都受到了非人道待遇，包括副總裁呂濤被中國關押三年，入獄時妻子懷孕在身，出獄的時候孩子已經三歲。
-
-“妳說盜國賊，我強迫妳共產黨交易罪，我強迫妳交易，我賠掉了120億，妳共產黨需要更多的強奸犯來強迫妳交易，妳有種對妳美國來搞個強迫交易罪呀，妳對川普總統搞個強迫交易罪呀，妳敢嗎？妳就拿著老百姓欺負，妳別的本事沒有，妳就是對內亂倫、強奸、重復強奸妳有本事，欺壓老百姓，興妳滿山放火呀，不興黑夜點燈。” 郭先生說。
-
-根據《中華人民共和國刑法》第二百二十六條規定，強迫交易罪，是指以暴力、威脅手段強買強賣商品，強迫他人提供服務或者強迫他人接受服務。
+[Spanish\_0829\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05102746/Spanish_0829_CCP_Virus_Updates.pdf)
 
 
 

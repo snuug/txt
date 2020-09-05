@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/30 CCP病毒每日疫情直播簡報
-`2020-09-05 07:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/335030/)
+## 天府之國嗅到了糧食危機的味道
+`2020-09-05 10:28 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/335388/)
 
-英文標題 CCP Virus Pandemic Updates Ep219: Declaration of the New Federal State of China
+喜馬拉雅聯盟加拿大農場金融時事欄目組369
 
-視頻簡介
+中共國水稻產區主要是長江中下游地區，東北三省和四川盆地。今年南方雨澇災害天氣和人為將大量水庫開閘洩洪，導致四川及長江中下游地區產糧大省大面積遭到水患，糧食減產嚴重，很多水淹地區顆粒無收。那麼，在未發生洪災的地區，糧食情況是怎麼樣的呢。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101837/369.jpg)
+以筆者所在地之一的四川產糧縣為例，該縣及相鄰幾個縣都是糧食種植基地、糧食輸出縣。該縣未遭受任何洪澇災害，可是也出現了搶購糧食的苗頭。
 
-1. 中国共产黨抢占私有財產，欺壓百姓，以黑治國。中共宣傳地攤經濟，同時城管當街搶劫攤主，踐踏私有財產，在中共的極權统治下，无法治可言。
-2. 捷克參議院議長維特齊無懼中共威脅、打壓，率領有史以來訪台層級最高的捷克官員於8月30日至9月4日訪問台灣。之前布拉格市長拒絕”一中”（一個中國）承諾並與北京斷交，隨後訪問台灣支持民主政權。此次代表團所帶口罩為台灣捐贈。捷克參議長維特齊率團訪台，
-3. 全球聯合行動，遊行反抗，自由發聲，追求民主自由法制。新中國聯邦繼續全球連動大遊行，相繼在洛杉磯，舊金山，台灣台北和韓國開展抗議活動，反對中共，捍衛民主，聲援香港。
-4. 新中國聯邦宣言：我們因爆料革命凝聚在一起，為實現新中國法治、民主和自由而組成喜馬拉雅監督機構。
-5. （8月29日，連線台灣參加遊行戰友們）我給你們今天說一個好消息。就在我剛剛，就這一次直播前，這中間我有三個會議，這個會議當中，其中有一個就是關係到台灣的未來重大的使命、重大的事件和重大的改變。
+9月5日，筆者鑑於之前家里屯的是陳米，想想新米彷彿就是最近上市，打算購買新米放置在家。於是筆者來到該縣菜市場售賣糧食的商店詢問，得到糧店店主的回復是，還有一個月時間新米才能上市，市場上均無新米可售。
 
+在接下來的攀談過程中，店主提到最近一個月以來，買糧食的客人越來越多，上週一位客人一次性買走1500斤大米，是店主自己親自給他送貨到家，確認是私人所購。店主還提到最近購糧的客人中不乏神神秘秘、不願多說、也不砍價，直接購買幾百斤大米的客戶，這種現像在以前是很少的。店主還說，跟我一樣來詢問新糧什麼時候上市的客人也不少，其中之前跟他預約說新米上市購買的客人，最近也提前購買了一部分，以防止以後不能如願購買到糧食。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101852/123-scaled.jpg)
+在我和店主攀談的過程中，一位前來購買大米，60多歲左右模樣的顧客對我說，“年輕人，你不知道哇，要缺糧了啊，災荒年辰（方言，意味災荒年份）要來了，多買點糧食放到屋頭存起”。
 
-1. The CCP is used to terrorize people, fleece them of their wealth with the same behavior of a drug cartel. Although the CCP’s propaganda promoted a street-vendor economy, their Urban Management Officers are robbing vendors in broad daylight and trampling on private property rights. There is no rule of law under communist regime.
-2. Czech Senate Speaker Vystrcil arrived in Taiwan on official visit from August 30th to Sept. 4th, braving CCP’s threats and represals. He led the highest-level delegation in the history of the country’s bilateral relations with Taiwan, who, by the way, wore the masks donated by Taiwan during the pandemic. Previously, the Mayor of Prague rejected the “One China” policy and cut off diplomatic ties with Beijing. He later visited Taiwan in support of the democratic government.
-3. Global alliance against the CCP, speaking out for the freeedom of speech, democracy and the rule of law. The New Federal State of China continues its global march in Los Angeles, San Francisco, Taiwan and South Korea, to protest against the CCP, defend democracy, and support Hong Kong.
-4. Declaration of the New Federal State of China :It is the Whistleblower’s Movement that has brought us together! In order to realize the Rule of Law, Democracy, and Freedom in the New Federal State of China, we have established the Himalaya Supervisory Organization.
-5. (Live streaming with protestors in Taiwan, 8/29) I have good news for you guys today. Between now and my last live streaming, I attended three meetings, and one of them was about the future of Taiwan, its significant missions, great events and major changes.
+店主說，的確近些日子以來，討論缺糧和屯糧的話題很火爆，糧店裡的生意也很火爆。大米價格也水漲船高，最近兩週質量最差的散裝陳米價格由2.3元/市斤漲到2.7元/市斤。估計後面市場上的庫存不夠了還要猛漲。先知先覺的一部分民眾已經開始屯糧。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101906/456-scaled.jpg)
+聽罷，我也沒有片刻猶豫，趕緊下單。因為我知道，一個月的時間太長了，等不到新米上市，CCP會搶先“截胡“了，從田間地頭將糧食強行徵收，極大可能不在市面上流通了。等不到新糧了，陳米也趕緊搶吧！
 
+親愛的同胞們，還在猶豫什麼呢，趕緊屯糧吧，刻不容緩啊！行動！行動！行動！
 
 0
