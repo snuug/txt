@@ -1,25 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 助理国务卿答印中衝突、台灣問題、中共外交人員限制等問題
-`2020-09-05 01:18 GM31` [轉載自GNews](https://gnews.org/zh-hant/334774/)
+## 如果沒有新中國聯邦,海外華人將萬劫不復！
+`2020-09-05 05:35 GM31` [轉載自GNews](https://gnews.org/zh-hant/334990/)
 
-在9月2日的新闻发布会上，东亚和太平洋事务助理国务卿(Assistant Secretary of State for East Asian and Pacific Affairs)戴维·史迪威（David Stilwell）对印中衝突、台灣問題、中共外交人員限制等問題答记者问。
+郭文貴先生[2020年8月29日與在慕尼克遊行的德國戰友連線直播](https://gtv.org/web/?videoid=5f4a43b8fb4f61689a519303#/VideoPlay_UI)，当被問到要如何説明海外華人在病毒真相大白時面對可能遇到的衝突和危險,郭先生提醒海外華人要提前行動,讓西方認識到他們在這些國家不是寄生蟲,不是共產黨派來的特務, 他們是反對中共病毒的,他們是反共、滅共的,除此之外別無選擇。
 
-在问及台积电製造產業回到亞利桑那时，他提到:”我們推動了台積電晶片製造產業回到亞利桑那，或者我們至少在往那個方向努力。這對臺灣和美國，都是好消息。我們在這個問題上還處於初級階段，但是我們對蔡(英文)總統排除最後障礙的決定表示非常地歡迎。”
+爆料革命和新中國聯邦給中國人帶來最大的貢獻就是讓全世界分清楚共產黨不代表中國和中國人。 如果沒有爆料革命、沒有新中國聯邦,不把共產黨和中國人分開,不把共產黨和中國分開,海外華人將在世界各地萬劫不復。
 
-*翻譯:【信正】 校對:【Jael菜园子】 字幕:【罗宾 Robin (文宾)】 編輯:【GM31】*
+郭先生寄語戰友們盡可能地拯救身邊的同胞,稱讚參加遊行的戰友們是中國幾千年歷史上最有熱血、最勇敢,保護同胞最多的,是真正的中國文明。 戰友Wen Tong 感謝郭先生所做的,感謝他給予戰友們的勇氣,能跟著他參加爆料革命, 同時也是參與了拯救全中華民族的一個偉大的事件!
+
+```
+"因為我們是中國歷史上幾千年
+最有熱血、最勇敢,保護同胞最多的,
+這是真正的中國文明......
+讓我們緊緊的相依,
+緊緊地擁抱,
+緊緊地相愛,
+這才是我們新中國人。"
+-郭文貴
+```
+
+*翻譯：【**JoyJoy**】* *字幕**:**【**Vinzo**】【班仔】* *編輯**:**【**GM31**】*
 
 *戰友之家玫瑰園小隊出品*
 
-*國務院URL: [https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/](https://www.state.gov/secretary-michael-r-pompeo-at-a-press-availability-12/)*
 
-*YouTube連結：[https://www.youtube.com/watch?v=m4OgVI73nSo](https://www.youtube.com/watch?v=m4OgVI73nSo)*
-
-*美國年度中國軍事報告：[https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF](https://media.defense.gov/2020/Sep/01/2002488689/-1/-1/1/2020-DOD-CHINA-MILITARY-POWER-REPORT-FINAL.PDF)*
-
-> [蓬佩奧國務卿9月2日發佈會表明美國的滅共大錘已經落下！](https://gnews.org/zh-hant/331176/)
-
-> [川普政府有國會批准的史上最大國防預算應對中共軍事威脅](https://gnews.org/zh-hant/333223/)
 
 0

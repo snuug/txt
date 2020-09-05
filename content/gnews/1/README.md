@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共準備打房地產這個“土豪”實現“內循環”
-`2020-09-05 04:19 GM08` [轉載自GNews](https://gnews.org/zh-hant/334923/)
+## 【中英文視頻版】2020/08/30 CCP病毒每日疫情直播簡報
+`2020-09-05 07:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/335030/)
 
-作者：小惠
+英文標題 CCP Virus Pandemic Updates Ep219: Declaration of the New Federal State of China
 
-7月24日，韓正主持召開房地產工作座談會，其中中共國務院房地產工作座談會明確提出，要實施好房地產金融審慎管理制度，穩住存量、嚴控增量，防止資金違規流入房地產市場。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05041325/2020_0611_bfa32c64p00qbr0q100t1c000z700ngc.png)
-8月20日，中共住房城鄉建設部、中共人民銀行在北京召開重點房地產企業座談會。明確要求12家房企9月底前提交降負債方案。加上此前謠傳的“三條紅線”與此次座談內容不謀而合，房企融資收緊的信號之強烈已經超乎了所有房地產企業的想像。毫不誇張的講，房地產企業已被推上了斷頭台，只等秋後問斬。什麼是“三條紅線”，即剔除預收款後的資產負債率大於70%；淨負債率大於100%；現金短債比小於1倍。根據“三條紅線”觸線情況不同，將房地產企業分為“紅、橙、黃、綠”四檔：三項指標全部“踩線”，有息負債不得增加；若指標中兩項“踩線”，有息負債規模年增速不得超過5%；若只有一項“踩線”，有息負債規模年增速可放寬至10%；若全部指標符合監管層要求，則有息負債規模年增速可放寬至15%。
+視頻簡介
 
-就以參加座談會的12家房企進行劃分，其中有4家房企位於全部踩線的“紅檔”，分別是恆大、融創、綠地、中梁；全部不踩線的“綠檔”房企，為保利、中海、華潤、華僑城4家央企；万科、碧桂園均因資產負債率偏高而位於“黃檔”。如果嚴格針對所有企業都按政策標準執行，那麼這麼多年主要依靠舉債、高槓桿來實現規模擴張和增長的房地產企業，都將瞬間“斷奶”。以我的估計，90%的房地產企業都將面臨資金鍊斷裂的危險。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05041349/2020_0427_39c790a9j00q9ga6q002lc0016u00oxm.jpg)
-今年3月7日，海南省首先“實行現房銷售制度”。海南省在《通知》中明確要求，即日起，實行新出讓土地建設的商品住房，實行現房銷售制度。按規定，現房銷售的房屋應通過竣工驗收且供水、供電、燃氣、通訊等配套基礎設施具備交付使用條件。這則新聞是由中共的喉舌CCTV報導，隨即多地試點現房銷售陸續推出。毫無疑問現房銷售，傷害影響最深的就是房企（根據公開數據顯示，截至2019年年底，中共國共有超過140萬家房地產企業。2019年全國商品房銷售面積171558萬平方米，商品房銷售額159725億元。）雖說中共國房地產預售制度是全世界最不把消費者當人，完全根據財政需要設計的搜刮百姓制度，但這個制度可以說關乎了幾乎所有的房企生存，直接影響背後關乎幾億人就業，真可謂是牽一發而動全身。由此可見，中共對房地產企業是動開了真格。
+1. 中国共产黨抢占私有財產，欺壓百姓，以黑治國。中共宣傳地攤經濟，同時城管當街搶劫攤主，踐踏私有財產，在中共的極權统治下，无法治可言。
+2. 捷克參議院議長維特齊無懼中共威脅、打壓，率領有史以來訪台層級最高的捷克官員於8月30日至9月4日訪問台灣。之前布拉格市長拒絕”一中”（一個中國）承諾並與北京斷交，隨後訪問台灣支持民主政權。此次代表團所帶口罩為台灣捐贈。捷克參議長維特齊率團訪台，
+3. 全球聯合行動，遊行反抗，自由發聲，追求民主自由法制。新中國聯邦繼續全球連動大遊行，相繼在洛杉磯，舊金山，台灣台北和韓國開展抗議活動，反對中共，捍衛民主，聲援香港。
+4. 新中國聯邦宣言：我們因爆料革命凝聚在一起，為實現新中國法治、民主和自由而組成喜馬拉雅監督機構。
+5. （8月29日，連線台灣參加遊行戰友們）我給你們今天說一個好消息。就在我剛剛，就這一次直播前，這中間我有三個會議，這個會議當中，其中有一個就是關係到台灣的未來重大的使命、重大的事件和重大的改變。
 
-很多看不懂共產的人要說共產黨要讓房價下跌了、要“感謝黨”一些無腦的“意淫”。現實卻是共產黨一切的一切都為了保它的政權，拿房地產企業開刀“打土豪分田地”全面搞“經濟內循環”繼續奴役14億奴隸。這裡面的邏輯就是，中共國經濟一直都是兩套經濟循環系統，即出口為核心的外部經濟循環系統，和消費為主的內部經濟系統。外部經濟出口是這個國家的根本，所有內部經濟不論發行貨幣還是就業創造財富，全部都依附於這個出口為核心的外部經濟循環系統。而如今脫鉤（出口停止和外資企業撤出）即將或者說正在擊垮外經濟循環，共產黨為了維持他的統權，只可以拿出經濟內循環（共產主義計劃經濟）這個“靈丹妙藥”。而內循環最大的一個羈絆就是房地產，房地產掏空了中共國百姓的所有消費能力；同時房地產吸收了幾乎所有的投資資金，使得中共國製造業全面衰退。中共想要它的“經濟內循環”玩的轉，就得讓百姓有工作、有消費能力，支撐的起它的這套經濟體系。中共的這套理想主義表面為了集體實則為了極少數獨裁者的統治，而全世界經歷了前蘇聯、毛時代中共國、紅色高棉等等，已經充分證明了是不可行的、錯誤的、荒唐的，這種“理想主義烏托邦”的結果伴隨的只會是物資匱乏、大饑荒、屠殺、死亡。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05041417/923686_1200x1000_0.jpg)
-面對如今的困境，中共不惜再次拿起共產主義的屠刀，再次對這個苦難的民族加以最沉痛的傷害，我們這些被魚肉的百姓如不看清未來反抗紅魔，這片土地將沒有一個人可以避免被屠戮。
 
-（文章內容僅代表作者觀點）
+1. The CCP is used to terrorize people, fleece them of their wealth with the same behavior of a drug cartel. Although the CCP’s propaganda promoted a street-vendor economy, their Urban Management Officers are robbing vendors in broad daylight and trampling on private property rights. There is no rule of law under communist regime.
+2. Czech Senate Speaker Vystrcil arrived in Taiwan on official visit from August 30th to Sept. 4th, braving CCP’s threats and represals. He led the highest-level delegation in the history of the country’s bilateral relations with Taiwan, who, by the way, wore the masks donated by Taiwan during the pandemic. Previously, the Mayor of Prague rejected the “One China” policy and cut off diplomatic ties with Beijing. He later visited Taiwan in support of the democratic government.
+3. Global alliance against the CCP, speaking out for the freeedom of speech, democracy and the rule of law. The New Federal State of China continues its global march in Los Angeles, San Francisco, Taiwan and South Korea, to protest against the CCP, defend democracy, and support Hong Kong.
+4. Declaration of the New Federal State of China :It is the Whistleblower’s Movement that has brought us together! In order to realize the Rule of Law, Democracy, and Freedom in the New Federal State of China, we have established the Himalaya Supervisory Organization.
+5. (Live streaming with protestors in Taiwan, 8/29) I have good news for you guys today. Between now and my last live streaming, I attended three meetings, and one of them was about the future of Taiwan, its significant missions, great events and major changes.
+
 
 0
