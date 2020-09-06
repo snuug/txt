@@ -1,25 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/31 CCP病毒每日疫情直播簡報
-`2020-09-05 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/335450/)
+## 你不得不了解中共國關於羥氯喹的7個真相
+`2020-09-05 12:43 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/335791/)
 
-英文標題 CCP Virus Pandemic Updates Ep220:  The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests
+喜馬拉雅聯盟加拿大牆內新聞作者: 文帝
 
-視頻重點
+早在1.29羥氯喹由墨博士在路德社廣泛傳播，而後又有川普總統說自己服用羥氯喹預防CCP病毒，關於羥氯喹的爭議就綿綿不斷。世衛組織更是在5月25日就暫停了，將羥氯喹作為CCP病毒治療藥物的全球臨床試驗。
 
-1. 中共取消蒙古語教學，已經造成當地蒙古族人民的強烈反彈及抗議。數萬蒙古族學生和家長發起罷課及抗議集會等各種抵制活動，當局強令維穩。
-2. 中共國警察光天化日之下在街頭揮舞棍棒野蠻執法，有人被打死。
-3. 今天是時隔香港831太子站手足遇難一周年的紀念日，香港人在街頭自發的舉辦紀念犧牲的手足，不放棄追查手足死去的真相，不放棄追求自由民主法治等天賦人權。這次該我們贏了。
-4. Steve Bannon）首先你說，中共從來未能成功地為動物做出疫苗，更不用說人用疫苗；第二，在六個月裡世界上最厲害的生物製藥專家以及最偉大的醫藥大學埋頭苦幹，離研究完成都還很遙遠，中共的人如何能造出疫苗？第三，你的意思是你認為死在測試假疫苗的人比死於病毒的人更多？            (郭文貴）是的先生，100%。
-5. （8/30連線台灣遊行戰友們）台灣人啊信佛信儒家，而且是中國文化的善良的一面，最美好的保留的地方。共產黨不是什麼極權主義，它就是流氓主義。他絕對就是流氓主義和黑幫主義。
+那我們今天給大家一起來揭秘，在美國福奇博士、各種外國研究機構、WHO等都說羥氯喹沒有效果的情況下，CCP病毒發源地的中共國，對於羥氯喹是什麼樣的態度呢？
 
+姑且不談郭文貴先生內部情報指出，從2019年12月開始，中共高官就開始服用羥氯喹作為病毒預防。我們今天僅以公開的數據和文件來探索，究竟羥氯喹(或者氯喹)在中共國抗疫中扮演什麼角色？
 
-1. The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests among the local Mongolian people. Tens of thousands of Mongolian students and parents launched various boycott activities such as strikes and protest rallies, and the authorities forced the maintenance of stability.
-2. In broad daylight, Communist China’s police wielded batons during the brutal law enforcement. Some people were killed.
-3. On August 31 last year, many people were killed at the Prince Edward Station in Hong Kong. Today is the first 831 anniversary of the death of these compatriots. Hong Kong people spontaneously commemorate their sacrificed siblings on the streets. Don’t give up tracing the truth about the death of our compatriots.
-4. (Steve Bannon) You’re saying first off the CCP has never been able to successfully make a vaccine for animals much less humans; No.2: in six months when you get the greatest biological pharma guys in the world and the greatest universities doing it, they’re not even close, how did these guys come up with; and No.3: you’re saying more people, you’re putting out there, you believe more people died in test taking the vaccine than actually died in the coronavirus?              (Miles Guo) Yeah 100% Sir.
-5. (8/30) Taiwanese people believe in Buddhism and Confucianism. Taiwan also preserves the most benevolent and finest aspects of the Chinese culture. The Communist Party are not just totalitarianism. They’re simply thuggish. Absolutely thuggish mafia. Consensus has been reached across the world to define them as thuggish mafia organization.
+1. 早在2020年2月19日份，就將羥氯喹的前身氯喹編入由國家衛生健康委員會出版的《新型冠狀病毒肺炎診療方案（試行第六版）》，作為重要的指導用藥。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05122824/image-19.png)
+上圖截取自《新型冠狀病毒肺炎診療方案（試行第六版）》，此中用氯喹，實際上安全性不如羥氯喹。
 
+2. 2020年3月2日，由張文宏和盧洪洲作為通信作者發布的《上海市2019冠狀病毒病綜合救治專家共識》中，將羥氯喹作為救治性治療藥物首位。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05122858/image-20.png)
+上圖截取自《上海市2019冠狀病毒病綜合救治專家共識》
+
+3. 在2020年3月9日，由中國醫藥學會醫藥專業委員會編寫的《新型冠狀病毒肺炎臨床合理用藥專家共識（第三版）》，將羥氯喹作為首位推薦藥物，並且詳細闡釋用量及副作用,並說**體外抗CCP新冠病毒羥氯喹效果優於氯喹** 。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05122937/image-21.png)
+上圖截取自《新型冠狀病毒肺炎臨床合理用藥專家共識（第三版）》
+
+4.中共國唯一批准的羥氯喹生產公司——上海醫藥，其羥氯喹開始擴產，每年可增產7億片。截止四月初，中共國就向德國、俄羅斯、澳大利亞、菲律賓、巴拉圭、尼日利亞等近20個國家出口3000多萬片。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05123051/image-22.png)
+新聞來源：界面新聞
+
+5. 2020第一季度，羥氯喹出口量已經超過2019全年總量。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05123117/image-23.png)
+新聞來源： 中國新聞網
+
+6. 4月16日，俄羅斯政府發布的政令第1030-P號，俄羅斯衛生部下屬國家心髒病醫學研究中心將使用在俄未經註冊的中國產羥氯喹片劑治療CCP新冠患者或疑似患者，並將該藥物分發到其他醫療組織。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05123155/image-24.png)
+新聞來源： 每日財經
+
+7.在5月1日，上海救治專家組成員、復旦大學附屬中山醫院感染病科主任胡必傑教授，接受媒體採訪表示： **上海最早運用於臨床的羥氯喹，在早期治療中使用羥氯喹，效果不輸瑞德西韋。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05123301/image-25.png)
+新聞來源： 一財網
+
+總結而言，在中共國對於羥氯喹的應用主要分為三步：第一步是推薦氯喹，第二步羥氯喹安全和有效性更高，推薦羥氯喹，第三步大量生產並無償捐贈或出口國外。
+
+通過以上的觀察，雖然中共一直在國內宣傳中醫藥在此次疫情充當非常重要的作用，事實上真正作為首推藥物的仍然是羥氯喹。
+
+今年5月，WHO暫停了羥氯喹治療新冠病毒的實驗，然而最相信權威的中共，卻沒有聽從WHO和外國研究機構的指導，仍然運用羥氯喹作為臨床治療用藥。所以，根據真正的專家研究，和我們英雄科學家閆麗夢博士的總結，根本不是中藥多神奇，而中共國祇是選擇了羥氯喹，就能降低死亡率。
+
+最後，我們用英雄科學家閆麗夢博士的話結束：福奇博士，請您用尿檢證明自己不用羥氯喹預防，也請您加入羥氯喹雙盲實驗的安慰劑組！
+
+中共撒謊是不爭的事實，一定不要聽中共說什麼，看他在做什麼！
 
 0

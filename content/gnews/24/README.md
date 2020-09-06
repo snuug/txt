@@ -1,63 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 根據路德時評駁斥《科學》雜誌上一篇提及NIH停止資助Ecohealth的文章
-`2020-09-05 10:24 立武` [轉載自GNews](https://gnews.org/zh-hant/335377/)
+## 【中英文視頻版】2020/08/31 CCP病毒每日疫情直播簡報
+`2020-09-05 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/335450/)
 
-鳴謝路德時評的精彩分析
+英文標題 CCP Virus Pandemic Updates Ep220:  The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests
 
-4月24日， **NIH** **“突然停止”給予生態健康聯盟（EcoHealth Alliance** **）的一項資助，**據了解，該資助旨在支持在中共國的**一項探討冠狀病毒如何從蝙蝠傳染給人類**的研究。
+視頻重點
 
-此前，川普總統堅稱， **中共病毒已經從** **NIH** **資助的中共國實驗室中逃脫（escape** **），**並誓言要終止這筆資金。
-
-5月8日，針對NIH停止資助的事件， **梅雷迪思·沃德曼** （Meredith Wadman）和**喬恩·科恩** （Jon Cohen） **在《科學》雜誌上**發表了一篇題為**[“NIH削減蝙蝠冠狀病毒資助的決定引發憤怒（NIH move to ax bat coronavirus grant draws fire）”](https://science.sciencemag.org/content/368/6491/561)**的文章。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05095801/%E6%89%B9%E6%B3%A8-2020-09-05-204805-1.png)題為“NIH削減蝙蝠冠狀病毒資助的決定引發憤怒”的文章
-
-可以感受到，通篇文章作者**極力秉持科學態度和中立原則，**卻仍然不可忽視文章中**引用了一些錯誤論據，**這將會引發讀者**作出偏頗的結論。**
-
-**熟悉路德時評的讀者**可以很快指出其中的一些核心論據是錯誤的，而這些錯誤論據**正大量被西方科學家引用** （有意或無意），這正是**中共想要達到的效果，用錯誤的“事實”引導科學界的輿論。**
-
-作者在文章中提到， *一月，她（石正麗）的研究小組公佈了**一串它收集到的一種蝙蝠病毒的基因序列（大名鼎鼎的*** ***RaTG13），*** *該序列與**SARA-CoV-2*** ***（中共病毒）*** *的基因序列**有96.2%*** ***的相同。*** *作者繼續寫道，這一發現表明**SARS-CoV-2*** ***起源於蝙蝠，*** *儘管研究人員廣泛認為，SARS-CoV-2極有可能**在感染人類之前已經傳染給另一種哺乳動物（中間宿主）。***
-
-儘管作者得出的結論可以是正確的，路德在節目中反復強調，中共病毒是**來源於舟山蝙蝠病毒，**是**在實驗室中通過大量的中間宿主使得能夠在短時間內**變異，達到**傳染人**的效果。
-
-但依據作者給出的論據，作者可能更想表達的結論是，中共病毒是**來源於石正麗公佈的基因序列所屬的病毒，**中間宿主是**自然中的宿主，**而非實驗室。
-
-如果是這樣，不管作者是有意還是無意的， **這種論據和結論都是錯誤的。**
-
-[路德時評](https://www.youtube.com/watch?v=GMdoB-kTmb4)在2月4日就揭露了**石正麗推出96%相似病毒是要為舟山蝙蝠病毒打掩護。**
-
-路德在節目中， **提出了以下質疑：**
-
-1. 1月29日，石正麗在NIH網站重新上傳了新的病毒序列，編號63300.1，96%的相似的，2月3日就把論文[發表在《自然》雜誌上](https://www.nature.com/articles/s41586-020-2012-7) ， **為什麼之前沒有上傳這個病毒，且要強調“石正麗自己擁有”？**
-2. 上傳序列， **並不是上傳病毒，問題是能否拿出病毒？**
-3. 石正麗在《自然》雜誌發表文章**都沒有同行評議，《自然》雜誌不承擔任何責任，無論真假，《自然》都不站台。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05100201/%E6%89%B9%E6%B3%A8-2020-09-05-20248205-1.png)石正麗2月3日發表的文章
-
-石正麗發布的基因序列**可能都不存在有所屬的病毒，甚至是瞎編亂造的，**目的就是要替中共轉移視線， **洗白舟山蝙蝠病毒，**那麼引用石正麗錯誤的數據**得出的結論也一定是錯誤的。**
-
-路德2月4日的[另一期節目](https://www.youtube.com/watch?v=V238d-tjiDg)中更加深入地**揭露了上傳的病毒序列的偽劣性：**
-
-1. 石正麗上傳的病毒序列與中共病毒相比， **E** **蛋白和ORF6** **具有100%** **相同，這只可能是人工的。**
-2. 蝙蝠病毒想要傳給人，就必須經過中間宿主， **只要經過中間宿主，就不可能有** **100%** **相似。**
+1. 中共取消蒙古語教學，已經造成當地蒙古族人民的強烈反彈及抗議。數萬蒙古族學生和家長發起罷課及抗議集會等各種抵制活動，當局強令維穩。
+2. 中共國警察光天化日之下在街頭揮舞棍棒野蠻執法，有人被打死。
+3. 今天是時隔香港831太子站手足遇難一周年的紀念日，香港人在街頭自發的舉辦紀念犧牲的手足，不放棄追查手足死去的真相，不放棄追求自由民主法治等天賦人權。這次該我們贏了。
+4. Steve Bannon）首先你說，中共從來未能成功地為動物做出疫苗，更不用說人用疫苗；第二，在六個月裡世界上最厲害的生物製藥專家以及最偉大的醫藥大學埋頭苦幹，離研究完成都還很遙遠，中共的人如何能造出疫苗？第三，你的意思是你認為死在測試假疫苗的人比死於病毒的人更多？            (郭文貴）是的先生，100%。
+5. （8/30連線台灣遊行戰友們）台灣人啊信佛信儒家，而且是中國文化的善良的一面，最美好的保留的地方。共產黨不是什麼極權主義，它就是流氓主義。他絕對就是流氓主義和黑幫主義。
 
 
-作者在後文還繼續提到， *他們（研究人員）注意到，石正麗描述的蝙蝠病毒，儘管與大流行性病毒（中共病毒）有96.2%的相似，但**它存在在至少20*** ***年前的蝙蝠身上，*** *這意味著如果從實驗室中逃脫（escape）， **進化成大流行性病毒需要數十年的時間。***
+1. The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests among the local Mongolian people. Tens of thousands of Mongolian students and parents launched various boycott activities such as strikes and protest rallies, and the authorities forced the maintenance of stability.
+2. In broad daylight, Communist China’s police wielded batons during the brutal law enforcement. Some people were killed.
+3. On August 31 last year, many people were killed at the Prince Edward Station in Hong Kong. Today is the first 831 anniversary of the death of these compatriots. Hong Kong people spontaneously commemorate their sacrificed siblings on the streets. Don’t give up tracing the truth about the death of our compatriots.
+4. (Steve Bannon) You’re saying first off the CCP has never been able to successfully make a vaccine for animals much less humans; No.2: in six months when you get the greatest biological pharma guys in the world and the greatest universities doing it, they’re not even close, how did these guys come up with; and No.3: you’re saying more people, you’re putting out there, you believe more people died in test taking the vaccine than actually died in the coronavirus?              (Miles Guo) Yeah 100% Sir.
+5. (8/30) Taiwanese people believe in Buddhism and Confucianism. Taiwan also preserves the most benevolent and finest aspects of the Chinese culture. The Communist Party are not just totalitarianism. They’re simply thuggish. Absolutely thuggish mafia. Consensus has been reached across the world to define them as thuggish mafia organization.
 
-事實上，研究人員忽略了一點， **即使石正麗描述的蝙蝠病毒存在，也可以在實驗室內縮短進化成大流行性病毒的時間。**
-
-這些研究人員都是**基於石正麗和中共實驗室非常善良的基礎上**得出的結論，因此**非常相信石正麗不會上傳假序列，**中共也不會故意製造並投放病毒。
-
-特別是，文章中還提到5月1日**美國國家情報局辦公室發布的那份認為不是人為或基因改造的聲明。**
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05100110/%E6%89%B9%E6%B3%A8-2020-09-05-2024805-1.png)美國國家情報局辦公室發表的聲明
-
-路德先生當天就[做節目](https://www.youtube.com/watch?v=ItfaJHFZes8)批駁了這種說法， **路德質疑此次聲明沒有簽名，而且情報界只能提供信息，不能得出結論，川普甚至也不知情這份聲明，**因此認為情報辦公室的聲明意圖不軌。
-
-《科學》雜誌上的這篇文章引用的論據**同樣會被其他權威雜誌和論文所引用，這將會得出錯誤的結論，**這是中共想要達到的結果， **以此來引開故意釋放來自軍方的人造病毒的事實。**
-
-同樣，也可以看出**，路德的揭露事實和爆料革命閆博士率領的博士團出具無可辯駁的報告**是非常重要的，這將**為病毒正本清源，為學術界撥亂反正。**
 
 0

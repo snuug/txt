@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又一種病毒來襲:諾如病毒?
-`2020-09-05 10:32 GM77` [轉載自GNews](https://gnews.org/zh-hant/335395/)
+## 09/02閆博士:短期內生產的疫苗副作用大（西班牙語Spanish+英文English）
+`2020-09-05 11:45 GM62` [轉載自GNews](https://gnews.org/zh-hant/335527/)
 
-作者:文非;審核:文肯尼
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101907/%E6%88%AA%E5%B1%8F2020-09-05-%E4%B8%8B%E5%8D%8810.09.06-1.png)
-西北民族大學榆中校區學生反映,近日大家陸續出現嘔吐腹瀉,每天都有人去校醫室就診。 學校通報稱,截至9月4日18:00,共計發病265人,其中有214人已經恢復健康上課。 經檢測,學生所患病毒確定為諾如病毒,由感染性腹瀉、腸胃性感冒、水土不服等疊加引發。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05101929/%E6%88%AA%E5%B1%8F2020-09-05-%E4%B8%8B%E5%8D%8810.11.38-1.png)
-**編者觀點**
+西班牙語標題 Las vacunas producidas en poco tiempo tienen efectos secundarios graves
 
-自爆發CCP新冠病毒以來,中共國的學校,尤其是高校大多數上半年都沒有開學。  8月底至9月初,各高校陸續開學,基本都實行了封閉式校園管理。 學生的就餐只能依靠學校食堂,此次諾如病毒的出現,一方面跟學校食堂環境的髒亂差有關,另一方面會不會是中共在釋放的第二種病毒呢?
+內容簡介
+閆博士:短期內生產的疫苗副作用大,會對人體造成二次傷害。
 
-封閉的大學校園被認為是最好的”病毒實驗室”,難免讓人聯想到中共的邪惡手段。 疫情爆發的真正高峰期還遠沒有到來,如果中共真的釋放了又一種病毒,對國人造成的災難後果真的是難以想像。
-
-這次諾如病毒的出現,給各位牆內有孩子或者正在上學的同胞敲響了警鐘,如果新冠與諾如病毒同時出現,那麼封閉式校園豈不是成了”活棺材”了嗎?
-
-新聞連結:
-
-[https://news.sina.com.cn/s/2020-09-05/doc-iivhuipp2656668.shtml](https://news.sina.com.cn/s/2020-09-05/doc-iivhuipp2656668.shtml)
+Las vacunas producidas en poco tiempo tienen efectos secundarios graves y pueden causar daños secundarios a los seres humanos
 
 0

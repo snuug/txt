@@ -1,17 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共宣傳片:共產黨,你徹底的完了（瑞典語字幕Swedish subtitles）
-`2020-09-05 12:24 GM62` [轉載自GNews](https://gnews.org/zh-hant/335675/)
+## 壹位內蒙古母親勇敢的提出訴求
+`2020-09-05 19:11 GM01` [轉載自GNews](https://gnews.org/zh-hant/336181/)
 
-瑞典語標題 KKP, du är helt slut！
+內新聞:背靠背
 
-翻譯：JingMerit 校對：lxxy 視頻：杨过
+我們都是合理的訴求，擁護我們黨的壹切決定，我們擁護我們黨領導，我們熱愛我們的國家，我們56個民族70年來真的和平相處，我有很多漢族的好朋友，還有回族的朋友，滿族的朋友，我們真的沒有說彼此有排斥，我們是互相平等，互相熱愛的，這樣壹個國度。
 
-視頻簡介
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05190419/m0129_ql2p1.jpg)
 
-共產黨正在走向瘋狂。 共產黨正在走向死亡。 共產黨毀滅世界。 爆料革命要讓中國人真正地站起來! 團結起來! 七芒星的含義就是再造華人的信仰形像。 一切己經開始!
+只是現在我們要表達的是我們想用我們的母語來學習國家讓我們學習的所有的內容，就是總編教材裏面的政治和歷史，還有漢語文。
 
-KKP marscherar mot galenskap. KKP marscherar mot sin egen död. KKP förstör hela världen! Visselblåsaresrörelsen kommer att göra allt för att det kinesiska folket ska återfå sin värdighet och hålla ihop！Vad sjupunktsstjärnan symboliserar är att återskapa kinesiska folkets trosstjärna. Allt har börjat！
+我們想用我們的母語來學習。我們不是不學，我們是好好學，只是我們想用我們的母語來學，這是我們的訴求。還有壹個我們反對，從壹年級讓我們的孩子來學習漢語，因為我們的七八歲的孩子連自己的母語都沒有說呢，母語的文字都不認識的時候，妳再給他（她）們加壹門語文課程，會不會加重孩子的負擔，我不敢說，但是我們所有的家長不……
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05190556/unknown-4-1.png)2020年9月4日包頭新聞《堅定不移推廣普及國家通用語言文字》壹文提及，學齡前是孩子語言學習的黃金期，應在民族地區加強學前雙語教育，統籌推進鄉鎮中心幼兒園、雙語幼兒園、民辦普惠性幼兒園建設。
+
+
 
 0

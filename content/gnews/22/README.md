@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月4日同聲傳譯: 班農戰斗室【第369+370期】
-`2020-09-05 10:27 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/335396/)
+## 每日政要Twitter播報（中文）第09/05期（視頻+ PDF下載）
+`2020-09-05 11:19 GM62` [轉載自GNews](https://gnews.org/zh-hant/335489/)
 
-By：【秘密翻譯組G-Translators】
+撰稿記者：宠宝⻉（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+
+[每日政要推文-9-5](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05111616/%E7%BE%8E%E5%9B%BD%E6%94%BF%E8%A6%81%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-5.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05111616/%E7%BE%8E%E5%9B%BD%E6%94%BF%E8%A6%81%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87-9-5.pdf)
 
 0
