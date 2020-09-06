@@ -1,19 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特裡托博士 病毒變異已達11種中共隱藏病毒原始基因序列 讓西方永遠都不會開發出完全有效的疫苗（日文Japanese+中文Chinese+英語English）
-`2020-09-06 04:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/336831/)
+## 9月6日財經快訊: 經濟蕭條在所難免; 聯合滅共勢在必行
+`2020-09-06 07:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/337045/)
 
-日文標題 Tritto博士ウイルスは既に11種類の変異は確認された。CCPはオリジナルウイルスのゲノム情報を隠蔽する事によって、西側諸国では完全で有効なワクチンの開発はほぼ不可能になっている
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06074052/Picture3.png)圖片來源： [https](https://www.bloomberg.com/opinion/articles/2020-09-05/europe-just-declared-independence-from-china) : [//www.bloomberg.com](https://www.bloomberg.com/opinion/articles/2020-09-05/europe-just-declared-independence-from-china) 
+[1.歐洲或將正式與中共脫鉤。上週五（8月28）王毅竄訪歐洲之行原計劃是為9月14日與歐盟領導人舉行的峰會做鋪墊，可戰狼外交激起歐洲多國反感。德國聯邦外交部長海科·馬斯聲明“威脅在此不合適”。法國，斯洛伐克和其他歐洲國家隨即表示聲援。](https://www.bloomberg.com/opinion/articles/2020-09-05/europe-just-declared-independence-from-china)
 
-翻譯：柑橘文旦 校對：风花雪月 視頻：菠萝 文稿：yuyu（文悠）
+[2.美國考慮制裁中芯國際，科技3F舉步維艱。繼抖音微信之後，五角大樓發言人上週表示：川普政府正考慮對中共最大半導體製造商中芯國際實施出口限制。](https://www.cnbc.com/2020/09/05/us-considers-blacklisting-chinas-largest-chipmaker-as-tech-tensions-escalate.html)
 
-石正麗和她的P4武漢病毒研究所,用基因逆向工程製造了更加危險致命和更具有傳染性的毒株。他們在美国北加州大学的実験室，接受了福奇博士的大筆資助、在実験室製造超級細菌，獲得冠状病毒，以这样才能研發出抗菌的疫苗為借口。他們把这項科研交給中共，譲解放軍生化武器部隊負責来做，但这并非為了研究治療方法，而是為了襲撃全世界。中共国拒絶提供病毒完整的基因序列，因為那将証明病毒来源于中共実験室。中共病毒發生多種変異，目前已確定11種不同的毒株,不太可能找到能阻斷所有変異病毒的頁面一疫苗。
+[3.俄羅斯能源部長表示2021年原油價格可能持續低迷並維持在每桶50至55美元。鑑於需求疲軟及中共病毒引發的商業和人類行為的變化，2021年原油價格可能僅獲得適度恢復。相比高盛預期的每桶65美元，俄羅斯能源部長亞歷山大·諾瓦克表示其預期更低，為50至55美元。](https://www.cnbc.com/2020/09/04/russias-energy-minister-calls-oil-at-50-to-55-a-barrel-in-2021-.html)
 
-中共為了掩盖自己的過錯，向全世界撒谎，所以西方国家永遠開發不出完全有効的疫苗。真正的中共病毒就是中国共産党本身，我們必須解決他們。
+[4.騰訊微博關停，用戶超3億。 9月5日騰訊微博發布官方公佈：將於9月28日停止服務和運營。](https://money.163.com/20/0906/08/FLR270E000259DLP.html?clickfrom=www_money)
 
-石正麗氏は所属しているP4武漢ウイルス研究所で、「逆遺伝学」の手法で一層危険で強力な致死性と伝染性を持つウイルスを開発した。アメリカのノースカロライナ州大学で、フーチ博士から大量の資金援助を受け、実験室で極めて強力な細菌を生成し、コロナウイルスも獲得した。それにより極めて強力な細菌に対抗するワクチンを開発する事を口実に研究成果をCCPに譲渡した。人民解放軍(PLA)の生物兵器部隊はその研究を引き継ぎ、開発を継続していた。彼らの研究はワクチンを開発するのではなく、世界中にコロナウイルスを拡散させることであった。CCPはウイルスの完全なゲノム情報の開示を拒否し続け、コロナウイルスがCCPの実験室で生成された事実を隠蔽した。現在CCPウイルスは多数の変異を起こし、既に11種類の異なる毒株が確認されている。全種類のコロナウイルスを防御する単一ワクチンの開発は、もはや不可能に近い。
+[5.超600億解禁洪流來襲。中共股市下週將有40隻股票解禁（不含科創版），按最新收盤價計算，合計解禁市值高達663.67億元，其中6隻股票市值在30億元以上。](https://money.163.com/20/0906/08/FLR13ATM00259DLP.html?clickfrom=www_money)
 
-CCPは自身の犯罪行為を隠蔽する為、世界を欺き続けている。それ故西側諸国では、永久に有効なワクチンを完成させる事は開発出来ない。真のCCPウイルスは、中国共産党自身であり、それを壊滅へと導かなければならない。
+[6.維珍航空公司將再裁員1，150名員工。今年年初以來，由於中共病毒肆虐，維珍已裁員3，500人。此前其員工總數為10，000人。](https://www.bbc.com/news/business-54027229?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_campaign=64&amp;at_custom4=CB60E50C-EEA2-11EA-93A0-9FF04744363C&amp;at_custom2=twitter&amp;at_custom3=%40BBCWorldBiz&amp;at_custom1=%5Bpost+type%5D&amp;at_medium=custom7)
+
+By：【密翻組·金融法律組】
 
 0

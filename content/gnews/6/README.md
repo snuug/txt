@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 洛杉磯時報記者內蒙採訪遭便衣強行扣押驅趕
-`2020-09-06 03:16 GM01` [轉載自GNews](https://gnews.org/zh-hant/336728/)
+## 9.6香港九龍大遊行不足2小時逾30人被捕 1女子播口號被指違國安法
+`2020-09-06 05:31 GM01` [轉載自GNews](https://gnews.org/zh-hant/336931/)
 
-作者：尚
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06030639/79AB66D7-7C07-4DAC-B09B-B1EAA5A104FA.jpeg)
-洛杉磯時報記者內蒙採訪遭便衣強行扣押驅趕
+國內新聞作者：文章
 
-新聞來自：VOA
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06051850/96-12_ypU5V_1200x0.png)
 
-華盛頓 — 美國洛杉磯時報一名記者近日在內蒙古首府呼和浩特採訪報道當地蒙族人對當局在中小學強推漢語教學取代蒙語作為教學語言進行抗議期間遭公安拘留及粗暴對待，最後被強行驅趕出內蒙。
+據立場新聞報道，今日原定是 2020 立法會選舉，但香港政府以疫情為由押後壹年，有網民發起今天下午「九龍大遊行」，大批警員在九龍各處戒備，又警告遊行未經批準。有百名市民在油麻地、旺角壹帶聚集，高叫口號要求投票。
 
-近年，在美國向中國包括「大外宣」的媒體敞開大門的同時，中國國內的言論控制和媒體控制卻日趨嚴厲。美國媒體網站幾乎全部遭到中共的封殺，美國及西方國家駐華記者受到各種限制和刁難。中國官方通過各種手段對西方記者製造恐懼以影響他們的報道內容，比如縮短簽證期、拒絕給他們不喜歡的外國記者發放簽證，甚至直接驅逐記者。
+截至下午3時半，油麻地區內約30人涉嫌非法集結被捕，1女子播口號被指違《香港國安法》。
 
-原文链接。[https://www.voachinese.com/a/US-paper-says-reporter-was-held-in-china-s-inner-mongolia-20200904/5571048.html](https://www.voachinese.com/a/US-paper-says-reporter-was-held-in-china-s-inner-mongolia-20200904/5571048.html)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052428/118928661_3431504146935181_4708514144946095686_n.jpg)大批市民被截查後　遭帶上警方旅遊巴
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052530/118824265_3431283136957282_8541859855912246467_n_5wq3z_1200x0.jpg)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052627/118772264_3431492620269667_2537421508236614813_n.jpg)其間壹名女子感到不適，送上救護車
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052922/118741105_3431363420282587_7335218670418204984_n_fVjVN_1200x0.jpg)
+原文鏈接：https://www.thestandnews.com/politics/9-6-%E4%B9%9D%E9%BE%8D%E9%81%8A%E8%A1%8C-%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0-%E7%99%BE%E4%BA%BA%E5%8F%AB%E5%8F%A3%E8%99%9F%E8%A6%81%E6%B1%82%E6%8A%95%E7%A5%A8-%E8%AD%A6%E5%A4%A7%E8%A6%8F%E6%A8%A1%E6%88%AA%E6%9F%A5-%E7%A4%BE%E6%B0%91%E9%80%A3-3-%E4%BA%BA%E8%A2%AB%E6%8D%95/
 
 0

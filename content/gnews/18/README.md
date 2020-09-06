@@ -1,51 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 速來圍觀:此地無銀三百兩! 又一中共巨頭即將倒下!
-`2020-09-05 22:21 GM77` [轉載自GNews](https://gnews.org/zh-hant/336439/)
+## 意大利一項3,451患者的研究表明羥氯喹顯著降低感染中共病毒住院患者死亡率達30%
+`2020-09-06 00:39 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/336616/)
 
-編撰:文肯尼; 審核:臺灣荔枝
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05232439/20200825_HCQ_Italian_CORIST_photo.png)
+意大利的CORIST多中心臨床試驗合作項目於2020年8月25日在《歐洲內科學雜誌》上發表了他們的一項最新研究。他們對意大利的住院感染中共病毒患者的死亡率進行了回顧性分析。根據意大利3,451名住院患者群組數據，相比未接受羥氯喹治療的患者，接受羥氯喹治療的患者死亡風險降低了約30%。
 
-【2020年9月5日】**據路透社獨家報導,特朗普政府正考慮,是否將中國芯片製造商中芯國際(SMIC)列入一份貿易限制的”實體名單”。 但此次白宮及相關政府機構並未透漏擬將中芯國際加入貿易黑名單的緣由所在。**目前,該「黑名單」上目前已經有包括華為、中興在內的275家中企。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05221124/%E6%88%AA%E5%B1%8F2020-09-06-%E4%B8%8A%E5%8D%8810.01.17-1.png)
-中芯國際全名為「中芯國際積體電路製造有限公司」(簡稱中芯國際,港交所:981, 上交所:688981),該公司於2000年4月在開曼群島註冊成立,總部位於中國上海。 **中芯國際是世界領先的積體電路晶圓代工企業之一,也是中國大陸規模最大、技術最先進的積體電路晶元製造企業。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05221059/%E6%88%AA%E5%B1%8F2020-09-06-%E4%B8%8A%E5%8D%8810.01.31-1.png)
-針對美政府考慮將公司列入貿易黑名單的報導,中芯國際在9月5日發佈了《關於外媒報導美國政府考慮將公司列入貿易黑名單的聲明》。 在聲明中,中芯國際為自己辯稱:「其產品及服務皆用於民用和商用,從沒有任何涉及軍事應用的經營行為,與中國軍方毫無關係」。**此聲明一出,輿論一片譁然,有網友調侃道:「別人都還隻字未提你是中共軍方企業,你倒先自證清白了,真是此地無銀三百兩”。**
+[閱讀英文全文](https://www.apple.com)
 
-中芯國際中英文聲明全文如下:
+**Use of hydroxychloroquine in hospitalised COVID-19 patients is associated with reduced mortality: Findings from the observational multicentre Italian CORIST study**
 
-**1.** **中文聲明**
+**對感染中共病毒的住院患者使用羥氯喹與死亡率的降低呈相關性：意大利****CORIST****回顧性多中心觀察研究的發現**
 
-**中芯國際關於外媒報導美國政府考慮將公司列入貿易黑名單的聲明。**
+The COVID-19 RISK and Treatments (CORIST) Collaboration members
 
-美國時間9月4日,據路透社等媒體報導,美國政府有關部門正在考慮將中國大陸最大的晶元製造商中芯國際(SMIC)列入貿易黑名單。
+**Abstract****摘要**
 
-對此,我公司嚴正聲明,中芯國際作為一家同時在香港證券交易所及中國大陸A股上市的國際化運營的積體電路製造企業,公司嚴格遵守相關國家和地區的法律法規,並在此基礎上一直合法依規經營;且與多個美國及國際知名的半導體設備供貨商,建立多年良好的合作關係,美國商務部多年來針對中芯國際進口採購的設備,也已經核發多件重要的出口許可。 同時,中芯國際自成立以來作為全球半導體供應鏈上的重要成員,客戶遍及美國、歐洲及中國大陸等世界各地,其產品及服務皆用於民用和商用,從沒有任何涉及軍事應用的經營行為,與中國軍方毫無關係;2016年及以前,中芯國際還是經美國商務部正式認可的「最終民用廠商」 (Validated End-User) , 並曾有多位美國商務部官員實地到中芯國際進行訪查。 因此,任何關於「中芯國際涉軍」的報導均為不實新聞,我們對此感到震驚和不解。 中芯國際願以誠懇、開放、透明的態度,與美國各相關政府部門溝通交流,以化解可能的歧見和誤解。
+**Background****背景**
 
-特此聲明!
+Hydroxychloroquine (HCQ) was proposed as potential treatment for COVID-19
 
-中芯國際積體電路製造有限公司
+羥氯喹（HCQ）被提議作為COVID-19的潛在治療方法
 
-2020年9月5日
+**Objective****目的**
 
-**2.** **英文聲明**
+We set-up a multicenter Italian collaboration to investigate the relationship between HCQ therapy and COVID-19 in-hospital mortality.
 
-Semiconductor Manufacturing International Corporation Responses to Media on the U.S. Government’s Consideration to Add the Company to a Trade Blacklist
+我們建立了一個意大利多中心臨床試驗合作項目，以研究HCQ治療與COVID-19住院死亡率之間的關係。
 
-Reuters reported Friday, September 4 (EST), citing a Defense Department official that the Trump administration is considering whether to add China’s top chipmaker SMIC to a trade blacklist.
+**Methods****方法**
 
-SMIC solemnly declares that the Company, a public company listed on the Hong Kong Stock Exchange and the Sci-Tech Innovation Board (STAR Market), is an international semiconductor foundry strictly complying with the laws and regulations of all jurisdictions where it performs its businesses. Since its inception, the Company has been fully compliant with all rules and laws. SMIC has maintained long-term strategic partnerships with multiple U.S.-based semiconductor equipment suppliers. Over the years, the Bureau of Industry and Security (BIS) has granted numerous export licenses for the Company. With a large and diverse customer base, serving companies in the U.S., Europe, and other Asian regions, SMIC plays an important role in the global semiconductor supply chain. The Company manufactures semiconductors and provides services solely for civilian and commercial end-users and end-uses. We have no relationship with the Chinese military. In and before 2016, SMIC had been granted Validated End-User (VEU) authorization by the BIS and the company hosted several visits from U.S. Government officials. Any assumptions of the Company’s ties with the Chinese military are untrue statements and false accusations. The Company is in complete shock and perplexity to the news. Nevertheless, SMIC is open to sincere and transparent communication with the U.S. Government agencies in hope of resolving potential misunderstandings.
+In a retrospective observational study, 3,451 unselected patients hospitalized in 33 clinical centers in Italy, from February 19, 2020 to May 23, 2020, with laboratory-confirmed SARS-CoV-2 infection, were analyzed. The primary end-point in a time-to event analysis was in-hospital death, comparing patients who received HCQ with patients who did not. We used multivariable Cox proportional-hazards regression models with inverse probability for treatment weighting by propensity scores, with the addition of subgroup analyses.
 
-Semiconductor Manufacturing International Corporation
+在一項回顧性觀察研究中，分析了2020年2月19日至2020年5月23日，在意大利33個臨床中心住院的3451名未經選擇的SARS-CoV-2實驗室確診感染的患者。事件時間分析的主要終點是住院死亡，將接受HCQ治療的患者與未接受HCQ治療的患者進行比較。我們使用逆向機率的多變量考克斯比例風險模型，來統計以傾向評分匹配權重的治療，並加上對分組的分析。
 
-2020/09/05
+**Results****結果**
 
-**編者觀點:**
+Out of 3,451 COVID-19 patients, 76.3% received HCQ. Death rates (per 1,000 person-days) for patients receiving or not HCQ were 8.9 and 15.7, respectively. After adjustment for propensity scores, we found 30% lower risk of death in patients receiving HCQ (HR=0.70; 95%CI: 0.59 to 0.84; E-value=1.67). Secondary analyses yielded similar results. The inverse association of HCQ with inpatient mortality was particularly evident in patients having elevated C-reactive protein at entry.
 
-中芯國際被認為打著民營企業的幌子,實際是一家由中共政府控制的軍民融合企業,其被認為和中共軍方有著千絲萬縷的聯繫,被認為是中共軍方最重要的晶元製造企業。**此次美國考慮將其加入實體制裁名單,對其實行全面制裁,是遏制中共軍事擴張又一即將落下的重錘。**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05221232/%E6%88%AA%E5%B1%8F2020-09-06-%E4%B8%8A%E5%8D%8810.01.43-1.png)
-外界有些人士認為,中芯國際目前最先進的技術也只有14nmFinFET的晶元可以實現量產,如何成為中共控制的軍民融合企業呢? **其實不然,與消費類電子產品晶元不同,14nmFinFET的晶片已經具備足夠能力向中共軍方提供相關服務。** 我們未來可以預見的是,中芯國際一旦被制裁,對中共軍用生產商及相關設備維護將造成重大打擊。
+在3451名COVID-19患者中，76.3%接受了HCQ治療。接受與未接受HCQ的患者的死亡率（每千人/天）分別是8.9和15.7。調整傾向評分匹配後，我們發現接受HCQ的患者死亡風險降低30%（HR=0.70；95%CI：0.59至0.84；E值=1.67）。二次分析得出了類似的結果。HCQ與住院死亡率的反向關係在入院時C反應蛋白升高的患者中尤為明顯。
 
-**如此著急發聲明,估計也是中芯國際在得知其將被制裁後步華為、中興後塵,所以才急不可耐地跳出來自證清白,撇清與中共之間的聯繫。**
+**Conclusions****結論**
+
+HCQ use was associated with a 30% lower risk of death in COVID-19 hospitalized patients. Within the limits of an observational study and awaiting results from randomized controlled trials, these data do not discourage the use of HCQ in inpatients with COVID-19.
+
+在COVID-19住院患者中，使用HCQ與死亡風險降低30%是關聯的。在觀察性研究和還在等待中的隨機對照試驗結果的範圍內，這些數據並不妨礙在COVID-19住院患者中使用HCQ。
+
+翻譯【Dlrow】編輯【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0

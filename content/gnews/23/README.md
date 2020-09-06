@@ -1,38 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰斗室 EP371: 文貴先生首次曝光“13579”中共統治全球計劃!
-`2020-09-05 20:26 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/336252/)
+## 意大利一項3,451患者的研究表明羥氯喹顯著降低感染中共病毒住院患者死亡率達30%
+`2020-09-06 00:39 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/336616/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05202359/Screen-Shot-2020-09-06-at-10.21.03-am.png)
-今天班農戰斗室現場主持：班農先生，卡薩姆，傑克，威什。嘉賓：郭文貴先生（Miles Guo）
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05232439/20200825_HCQ_Italian_CORIST_photo.png)
+意大利的CORIST多中心臨床試驗合作項目於2020年8月25日在《歐洲內科學雜誌》上發表了他們的一項最新研究。他們對意大利的住院感染中共病毒患者的死亡率進行了回顧性分析。根據意大利3,451名住院患者群組數據，相比未接受羥氯喹治療的患者，接受羥氯喹治療的患者死亡風險降低了約30%。
 
-班農先生連線郭文貴先生：文貴先生說，不要相信“我”說了什麼，讓觀眾們去驗證。回顧過去的五十年中美兩國關係，中共沒有說過一句真話，履行過任何一個合同，比如中共所說的“兩萬五千里長征”，都能從紐約和北京走個來回了。中共簽署的有關世界貿易組織、世界衛生組織、聯合國、反導條約、南海、台灣、香港、新疆、西藏、蒙古……任何一個合同都沒有兌現承諾。
+[閱讀英文全文](https://www.apple.com)
 
-班農先生在白宮工作時，川普總統與中共的新領導習近平，在馬阿拉哥簽署了中美戰略對話的內容，看看現在都發生了什麼。中共欺騙了美國五十年。病毒剛開始爆發的時候，習近平、中共、武漢疾控中心都說不會人傳人，100%可以控制，100%可以解決問題。他們禁止了國內的旅行，禁止航班飛到北京、上海，但是卻助推航班飛向世界各地，中共想讓病毒失控，這就是病毒在美國大爆發的原因。
+**Use of hydroxychloroquine in hospitalised COVID-19 patients is associated with reduced mortality: Findings from the observational multicentre Italian CORIST study**
 
-二月份時中共就買光了全世界的防疫物資，郭先生當時就已經提醒美國，“三年前我在華盛頓也是在告訴美國，黑暗的時刻即將到來。你可以不相信，去驗證。”郭先生感謝美國讓他和他的家人可以安全地住在美國，美國人想要安全與和平，只有一條路可以走，那就是推翻中共。
+**對感染中共病毒的住院患者使用羥氯喹與死亡率的降低呈相關性：意大利****CORIST****回顧性多中心觀察研究的發現**
 
-中共污衊文郭貴先生是瘋子，騙子。可是班農先生看到：
+The COVID-19 RISK and Treatments (CORIST) Collaboration members
 
-1. 美國之音在中共大使館的要求下被斷播，郭文貴先生在說中共，王岐山從中國老百姓那偷錢，再匯入美國洗錢，他們在美國買通政客，買通金融機構，在紐約很多金融機構在幫中共洗錢；
-2. 中共暴力鎮壓香港和平遊行，香港人會反抗；
-3. 還有郭先生關於劉鶴到華盛頓討論第一階段貿易協議發生的事，這一切都被驗證了。
+**Abstract****摘要**
 
+**Background****背景**
 
-2017年9月4日，郭先生在華盛頓把三份從中共內部得到的最高機密文件的其中兩份給了FBI。第一份是從中共來的間諜都隱藏在紐約的中國銀行里，另一份是關於中共幹掉美國的戰略，經FBI驗證兩份文件都是真實的，而第三份文件被郭先生燒毀了，如果不將第三份文件燒毀便會威脅到郭先生家人的安全。今天在戰斗室節目中首次談到：被燒掉的這份文件被中共稱為：1，3，5，7，9的絕密文件。
+Hydroxychloroquine (HCQ) was proposed as potential treatment for COVID-19
 
-中共有一個用P3、P4實驗室製造生物武器、化學武器的計劃。所以三年前文貴先生看到了今天的黑暗。郭先生談論過的病毒、海航、經濟、抖音、zoom、馬雲、微信……所有的這些都變為了現實。中共通過“3F”計劃、“藍金黃”計劃讓美國變得不穩定，最後乾掉美國。中共是惡魔，一隻手偷竊美國的工作與科技，另一隻黑手來自於美國的內部。美元、華爾街、世界貿易、美國媒體都在支持著中共這個惡魔越來越強大。真正的罪犯不只是中共，還有中共背後的華爾街。中共正在計劃著統治全世界。
+羥氯喹（HCQ）被提議作為COVID-19的潛在治療方法
 
-中共撒謊，全世界死光。美國不能一錯再錯，如果沒有郭先生告訴世界真相，就會有更多的人死去。中共率先對美國發起了生物武器戰，美國必須做好與中共戰爭的準備。郭先生是全世界第一個告訴美國，中共已經發動了對美國的生化戰爭的人，這是來自於中共內部的情報。中共還有一個關於國務卿彭培奧先生、皮特納瓦羅先生造謠的超限戰，可以看到北京衛視已經在進行這樣的“大外宣”，每一個真正敢於對抗中共的人中共就會對其污衊和造謠。中共形容彭培奧先生是一個失敗的人。在中國沒有真正的媒體，所有的媒體都是黨媒，黨媒聽黨的，中共在進行媒體超限戰。在中國，五到十個盜國賊家族控制了全中國，奴役中國人民。華爾街的寡頭和達沃斯的精英，都是這些盜國賊集團的幫兇，他們幫助中共奴役中國人民、控制世界。
+**Objective****目的**
 
-14億中國人被“防火牆”擋住，陳薇少將去武漢P4實驗室僅40天后，就出現了疫苗，疫苗從何而來，而中共說病毒是從海鮮市場來的，然後迅速拆除了海鮮市場。為什麼他們去武漢實驗室什麼病毒都沒找到，卻找到了疫苗？為什麼中共不允許談論真相，為什麼中共要殺掉李文亮醫生，為什麼不讓世界衛生組織去武漢調查？中共污衊彭培奧先生，作為中國人這真讓人感到丟臉。現在在中國“我們決不答應”已經成為了一個流行語了。
+We set-up a multicenter Italian collaboration to investigate the relationship between HCQ therapy and COVID-19 in-hospital mortality.
 
-下一期372期節目更加精彩。
+我們建立了一個意大利多中心臨床試驗合作項目，以研究HCQ治療與COVID-19住院死亡率之間的關係。
 
-[班農戰斗室的EP371視頻鏈接](https://pandemic.warroom.org/2020/09/05/ep-371-pandemic-the-ccps-plan-for-global-domination-w-miles-guo/)
+**Methods****方法**
 
-編輯：澳喜新聞組 般若
-審核：Giselle
+In a retrospective observational study, 3,451 unselected patients hospitalized in 33 clinical centers in Italy, from February 19, 2020 to May 23, 2020, with laboratory-confirmed SARS-CoV-2 infection, were analyzed. The primary end-point in a time-to event analysis was in-hospital death, comparing patients who received HCQ with patients who did not. We used multivariable Cox proportional-hazards regression models with inverse probability for treatment weighting by propensity scores, with the addition of subgroup analyses.
 
-1
+在一項回顧性觀察研究中，分析了2020年2月19日至2020年5月23日，在意大利33個臨床中心住院的3451名未經選擇的SARS-CoV-2實驗室確診感染的患者。事件時間分析的主要終點是住院死亡，將接受HCQ治療的患者與未接受HCQ治療的患者進行比較。我們使用逆向機率的多變量考克斯比例風險模型，來統計以傾向評分匹配權重的治療，並加上對分組的分析。
+
+**Results****結果**
+
+Out of 3,451 COVID-19 patients, 76.3% received HCQ. Death rates (per 1,000 person-days) for patients receiving or not HCQ were 8.9 and 15.7, respectively. After adjustment for propensity scores, we found 30% lower risk of death in patients receiving HCQ (HR=0.70; 95%CI: 0.59 to 0.84; E-value=1.67). Secondary analyses yielded similar results. The inverse association of HCQ with inpatient mortality was particularly evident in patients having elevated C-reactive protein at entry.
+
+在3451名COVID-19患者中，76.3%接受了HCQ治療。接受與未接受HCQ的患者的死亡率（每千人/天）分別是8.9和15.7。調整傾向評分匹配後，我們發現接受HCQ的患者死亡風險降低30%（HR=0.70；95%CI：0.59至0.84；E值=1.67）。二次分析得出了類似的結果。HCQ與住院死亡率的反向關係在入院時C反應蛋白升高的患者中尤為明顯。
+
+**Conclusions****結論**
+
+HCQ use was associated with a 30% lower risk of death in COVID-19 hospitalized patients. Within the limits of an observational study and awaiting results from randomized controlled trials, these data do not discourage the use of HCQ in inpatients with COVID-19.
+
+在COVID-19住院患者中，使用HCQ與死亡風險降低30%是關聯的。在觀察性研究和還在等待中的隨機對照試驗結果的範圍內，這些數據並不妨礙在COVID-19住院患者中使用HCQ。
+
+翻譯【Dlrow】編輯【Michelle】
+
+戰友之家玫瑰園小隊出品
+
+0
