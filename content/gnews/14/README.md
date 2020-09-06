@@ -1,16 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 王毅竄訪歐洲充分證明共產黨完蛋了
-`2020-09-05 14:15 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/335873/)
+## 郭文貴先生的手機被中共駭客
+`2020-09-05 22:56 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/336478/)
 
-郭文貴先生在[2020年8月29日與慕尼黑戰友聯線](https://gtv.org//?videoid=5f4a43b8fb4f61689a519303)時被問到對中國的外交部長王毅竄訪歐洲的看法。王毅訪問了意大利和荷蘭，還和荷蘭秘密簽了5G協議。郭先生揭秘王毅的歐洲訪問，是圖謀消除美國國務卿蓬佩奧剛剛結束的歐洲訪問的影響，是去「勾兌」、「撒錢」、「許諾」。還有楊潔篪的落空的西班牙的訪問都表明共產黨已經完了。
-翻譯：【Key】校對：【Clouds】字幕：【班仔】编輯：【Michelle】
+郭文貴先生於9月5日在[G-TV上發佈Getter](https://gtv.org/web/#/UserInfo/5e596957357cc612d35a8044)視頻，展示他的手機在前一天被駭客。並稱：「世界上使用藍牙和Wi-Fi牽引技術的最歷害的國家，就是中共國」，CCP「用藍牙牽引技術控制拿走了手機裡面的信息，並且在手機里植入了他們製造的虛假信息，準備以後的栽臟陷害使用」。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05223407/Miles_20200905Getter-figure1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05223355/Miles_20200905Getter-figure2.jpg)
+聽寫：【羅賓 Robin (文賓)】翻譯：【JoyJoy】校對：【Michelle】字幕：【相機過熱啊】視頻預處理：【恆久忍耐】編輯：【Michelle】
 
 戰友之家玫瑰園小隊出品
-
-相關新聞：[郭文貴先生8.29聯線戰友評王毅竄訪歐洲——充分證明共產黨完蛋了](https://gnews.org/zh-hant/323985/)
-
-
 
 0

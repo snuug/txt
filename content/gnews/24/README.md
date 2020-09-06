@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/08/31 CCP病毒每日疫情直播簡報
-`2020-09-05 10:58 GM62` [轉載自GNews](https://gnews.org/zh-hant/335450/)
+## 新學期伊始，學校侮辱人格從孩子剃頭開始！
+`2020-09-05 20:14 GM01` [轉載自GNews](https://gnews.org/zh-hant/336238/)
 
-英文標題 CCP Virus Pandemic Updates Ep220:  The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests
+內新聞 ：秋末的落葉
 
-視頻重點
-
-1. 中共取消蒙古語教學，已經造成當地蒙古族人民的強烈反彈及抗議。數萬蒙古族學生和家長發起罷課及抗議集會等各種抵制活動，當局強令維穩。
-2. 中共國警察光天化日之下在街頭揮舞棍棒野蠻執法，有人被打死。
-3. 今天是時隔香港831太子站手足遇難一周年的紀念日，香港人在街頭自發的舉辦紀念犧牲的手足，不放棄追查手足死去的真相，不放棄追求自由民主法治等天賦人權。這次該我們贏了。
-4. Steve Bannon）首先你說，中共從來未能成功地為動物做出疫苗，更不用說人用疫苗；第二，在六個月裡世界上最厲害的生物製藥專家以及最偉大的醫藥大學埋頭苦幹，離研究完成都還很遙遠，中共的人如何能造出疫苗？第三，你的意思是你認為死在測試假疫苗的人比死於病毒的人更多？            (郭文貴）是的先生，100%。
-5. （8/30連線台灣遊行戰友們）台灣人啊信佛信儒家，而且是中國文化的善良的一面，最美好的保留的地方。共產黨不是什麼極權主義，它就是流氓主義。他絕對就是流氓主義和黑幫主義。
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05201254/cq.jpg)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05201310/cq2.jpg)
 
 
-1. The CCP’s cancellation of Mongolian language teaching has caused strong backlash and protests among the local Mongolian people. Tens of thousands of Mongolian students and parents launched various boycott activities such as strikes and protest rallies, and the authorities forced the maintenance of stability.
-2. In broad daylight, Communist China’s police wielded batons during the brutal law enforcement. Some people were killed.
-3. On August 31 last year, many people were killed at the Prince Edward Station in Hong Kong. Today is the first 831 anniversary of the death of these compatriots. Hong Kong people spontaneously commemorate their sacrificed siblings on the streets. Don’t give up tracing the truth about the death of our compatriots.
-4. (Steve Bannon) You’re saying first off the CCP has never been able to successfully make a vaccine for animals much less humans; No.2: in six months when you get the greatest biological pharma guys in the world and the greatest universities doing it, they’re not even close, how did these guys come up with; and No.3: you’re saying more people, you’re putting out there, you believe more people died in test taking the vaccine than actually died in the coronavirus?              (Miles Guo) Yeah 100% Sir.
-5. (8/30) Taiwanese people believe in Buddhism and Confucianism. Taiwan also preserves the most benevolent and finest aspects of the Chinese culture. The Communist Party are not just totalitarianism. They’re simply thuggish. Absolutely thuggish mafia. Consensus has been reached across the world to define them as thuggish mafia organization.
+綜合報道，2020年9月2日，濟南歷城區港溝鎮中學開學，新任校長頒了壹道“剃頭令”，初二、初三學生有了“發禁”：男生壹律剃成小平頭，女生不能留披肩發。在過去的壹周裏，校方專程請來理發師，不限男女5元壹位，將“不合格”剪成“合格”的。經過3個半天，全校上下基本過關。校方認為，“標準頭”精神面貌好，但不少同學直說這頭發剪得“不得已”。
 
+標準： 女生“冬菇頭”，男生平頭。理發師忙了3天，“剃了百個頭”。校方稱：剪短發是為了更好學習。
+
+無獨有偶，遠在西南的重慶永川區北山中學頒布了壹項“剃頭令”：男生頭發不能超過三寸；女生短發不得過頸部，長發須紮成馬尾辮，不染發、不燙發，否則不能報名。昨日，永川北山中學眾多學生均說，學校強制性規定剝奪了他們的自由選擇權。
+
+永川區北山中學初三年級的劉玲玲，習慣性的用手去撥動留了6年的長發。“我們班37名女生，都不願意剪短”。劉說，“告別”長發，她哭了整整壹下午。
+
+同樣，河北涿州第二中學也是如此。9月5日，校方強迫學生剃頭。在手起剃刀落之間，壹個個青春洋溢的學生，失去了原有的笑容，取而代之的是呆滯失澤的目光，而這其中也包含了許多女孩子。在學校開學前期，校方已經通知，學生不得長發入校。
+
+中共處處無法無天，就連他們自己的所謂“憲法”都沒法過關。中華人民共和國法規第三十七條規定，人身自由權，身體保護，不能強制侵犯他人身體組織器官和肢體，包括指甲和頭發，校規還違反了憲法第五條，任何法律不得與憲法發生沖突！
+
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05201713/FYWhCOOnFjc85KxRM8rEI8hf8TUZCRoKS0NEGEtDRBg.jpeg)
 
 0
