@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【遇見爆料革命徵文】參加爆料革命是一場人生歷練與自我提升
-`2020-09-06 05:28 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/336908/)
+## 【世界多語言圖文】2020/08/30 CCP病毒每日疫情直播簡報
+`2020-09-06 09:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/337246/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06050810/2b327492-26be-4630-9a84-eba326b2da68.jpg)
-郭文貴先生髮起的爆料革命，是一場前所未有的互聯網時代下、引領全球華人追求民主、自由、法治，推翻中共暴政的一場運動，三年多以來得到了國際正義力量的廣泛支持。不同於歷史上的傳統革命，加入這場爆料革命，我自己在各方面得到很大收穫，參與爆料革命和加入澳喜農場的過程就是自我提升的過程。
+戰友之家圖文摘要及小語種組
 
-首先，最明顯就是我學會了使用眾多以前從沒用過的軟件。最早當然就是DISCORD。剛進群東南西北都搞不清，慢慢摸索發私信，加好友，搜索戰友。加入澳喜義工後最初的挑戰是做會議記錄，那時澳喜農場剛成立，戰友們終於有家了，熱情高漲，幾乎每晚聚集在各個會議室暢所欲言。為了方便記錄會議內容，我第一次學會了使用語音轉文字的軟件，在參與會議記錄過程中發現澳喜人才濟濟，特別是很多年輕人給我留下很深刻的印象。之後加入特戰旅又學會使用推特，發了人生第一條推後便一發不可收拾，以至於後來被推特連封16個推號。
+[English\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093421/English_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093421/English_0830_CCP_Virus_Updates.pdf)
 
-在視頻組首先是幫助收集圖片，影像素材。在戰友的幫助下，我學會了錄屏，視頻壓制軟件的使用。在7.27悉尼新中國聯邦大遊行活動中，我在後方做視頻製作的支援工作，第一次學會用Evernote和MEGA進行團隊彼此協作工作和共享。接著自己購買了視頻剪輯製作軟件，在油管上學習剪輯製作方法，現在已經參加澳洲15分鐘新聞節目組，幫助製作每天的新聞素材視頻。當我第一次看見自己製作的新聞素材視頻在GTV澳喜要聞節目中播出時，小小的成就感不禁從心底油然而生！
+[French\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093434/French_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093434/French_0830_CCP_Virus_Updates.pdf)
 
-記得第一次參與GTV直播當嘉賓，早上接到邀請，馬上安裝安卓手機版的GTV，在直播前10分鐘和主持人試連線成功，終於順利完成了人生又一個第一次。
+[German\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093425/German_0830_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093425/German_0830_CCP_Virus_Updates_.pdf)
 
-在剛成立的澳喜Gnews新聞中心我擔任編輯校對工作。這是最新的第一次。如果這篇文章能在Gnews發表，這將又是第一次！哈哈，想想都開心！
+[Japanese\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095305/Japanese_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095305/Japanese_0830_CCP_Virus_Updates.pdf)
 
-作為一個和郭先生、郝海東的同齡人，原來只期盼能在澳洲這個自由國度了此殘生，誰知參與爆料革命和加入澳喜農場後經歷了眾多人生的第一次，開啟了人生新的篇章！
+[Korean\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095309/Korean_0830_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095309/Korean_0830_CCP_Virus_Updates-.pdf)
 
-感恩爆料革命，感恩澳喜農場！感恩眾多戰友！
+[Spanish\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093429/Spanish_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093429/Spanish_0830_CCP_Virus_Updates.pdf)
 
-【後記】：此文得以成篇要特別感謝椰子哦耶戰友的鼓勵，是她從其他會議中抽身到我們特戰旅隊長會議，剛好聽到我的發言當即鼓勵我要把感言寫成文章在Gnews發表。
 
-作者：思鄉油餅
-編輯：Giselle
-
-(文章內容僅代表作者觀點)
 
 0
