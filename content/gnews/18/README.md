@@ -1,54 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利一項3,451患者的研究表明羥氯喹顯著降低感染中共病毒住院患者死亡率達30%
-`2020-09-06 00:39 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/336616/)
+## 挖掘91號檔與潘朵拉的盒子
+`2020-09-06 04:38 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/336833/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05232439/20200825_HCQ_Italian_CORIST_photo.png)
-意大利的CORIST多中心臨床試驗合作項目於2020年8月25日在《歐洲內科學雜誌》上發表了他們的一項最新研究。他們對意大利的住院感染中共病毒患者的死亡率進行了回顧性分析。根據意大利3,451名住院患者群組數據，相比未接受羥氯喹治療的患者，接受羥氯喹治療的患者死亡風險降低了約30%。
+作者：喜马拉雅攝影師
 
-[閱讀英文全文](https://www.apple.com)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/20011500/image0-6.jpg)
 
-**Use of hydroxychloroquine in hospitalised COVID-19 patients is associated with reduced mortality: Findings from the observational multicentre Italian CORIST study**
+91號檔! 也叫潘朵拉的盒子! 這個是伴隨著爆料革命三年的名字。 是個讓戰友們[心潮澎湃](https://hanyu.baidu.com/zici/s?wd=%E5%BF%83%E6%BD%AE%E6%BE%8E%E6%B9%83&amp;query=%E5%85%B4%E5%A5%8B%20%E6%88%90%E8%AF%AD&amp;srcid=28204&amp;from=kg0),讓中南坑的人夜不能寐的名字。 隨著爆料革命進入了最後的衝刺階段,潘朵拉的盒子隨時都會被打開,我們今天就來先試著解讀一下這個91號檔。
 
-**對感染中共病毒的住院患者使用羥氯喹與死亡率的降低呈相關性：意大利****CORIST****回顧性多中心觀察研究的發現**
+91號檔到底是什麼,先來看看郭先生怎麼說的:
 
-The COVID-19 RISK and Treatments (CORIST) Collaboration members
+2018-12-29″這種情況下就形成了一個叫91檔,啥叫91文件,當時是江澤民簽了三家公司,三個檔。 第一個檔叫上海94, 94號文件,現在就九四實業,大家知道是上海的大企業,那已經歸江家所有了啊,上海人的錢給他偷走了。 然後91 ,就是91號檔,就是允許馬健安全部合法介入調查國內腐敗啊。 同時這個91號檔就這幾十年來所有當官的,性愛、海外關係、子女留學、私生子女、財富轉移、內鬥、監聽、錄像全包括在裡邊了。 多少個GB我告訴大家,光視頻200個GB。 然後我以為這是全部,後來我聽說呀這隻是其中的百分之一都不是。 那的多少個GB,我的天呀,那得多大的數啊。 當時這個這個這麼大的視頻,檔聽說啊數十萬份,數十萬份啊。 ”
 
-**Abstract****摘要**
+這裡郭先生說的上海94號檔,和94實業公司(後來改名為上海久事公司),是當年上海的一個外資貸款的專案,主要是和城市基建有關,和現在的94號檔有沒有關係現在還不能確定。 **能確定的是91號檔就是當年馬健副部長在江澤民的指示下,為了「防止腐敗」,「合法」對黨內監聽,監控,調查的收集來的證據。 包括性愛、海外關係、子女留學、私生子女、財富轉移、內鬥、監聽、錄影。**
 
-**Background****背景**
+這個監聽監控計劃在當時一定會控制在一定級別一下,江這麼聰明,不可能挖一個坑來坑自己。 在郭先生在對話中提到的成立上海九四公司的94號檔是1986年簽發的,那麼同一時間簽發的91號文件也應該是1986年簽發。 而1986年習近平才只是一個副市長,到2007年才成為政治局常委。 假如監控只到常委級別以下的話,習這20年期間被獲得的”材料”應該是非常之多。
 
-Hydroxychloroquine (HCQ) was proposed as potential treatment for COVID-19
+再來看看郭先生的另一端爆料:2018-04-26  “另外一個,接下來文貴將有一系列的行動,大家別忘了,楊潔篪三P的料,還有王岐山同志小視頻,傅政華先生家人海外的資產,孫力軍在海外的資產,現在的常委,還有劉承傑的爹,劉承傑的媽咱都慢慢來,大家記住我說的話,讓敵人把招出 完完,我不能說在西香格裡拉,在1998年還有2000年之間,北京市公安局當年抓別人的時候,抓到了歌星,男歌星,超牛的歌星現在,現在是中國排前幾名的,和另外人被抓了,在西香格裡拉酒店,抓了以後,這個女的現在可了不得了,這個男歌星現在也了不得了,但是,這事情並沒有在地球上消失。  ”
 
-羥氯喹（HCQ）被提議作為COVID-19的潛在治療方法
+這一段郭先生的爆料標題:**就是在西香格裡拉酒店被抓嫖娼兩位歌星是誰?**最近路德先生8.22的爆料已經給出答案了:閻維文,彭麗媛! 2000年時習在福建擔任省長,彭在千里之外的北京給他帶了個綠帽子,可是為什麼這麼巧合就被公安撞到? 我認為這也是91號文件計劃的一部分,收集各個官員和其家人的腐敗,性愛證據拿到他們的把柄。
 
-**Objective****目的**
+再來看看8.22日路德先生的爆料”。。 那時候中南海都是令計劃說的算,什麼東西令都看得到,他的視頻,他的電話,全部都被監控。。 包括彭麗媛和閻維文在房間里的都監控了。。 ”
 
-We set-up a multicenter Italian collaboration to investigate the relationship between HCQ therapy and COVID-19 in-hospital mortality.
+我們知道令計劃在擔任中辦主任的時候也在中南海內部進行錄音錄像留下了大量的檔。 雖然不像91號文件那樣是全方位的進行監控錄像,但是地點卻是在最重要的中南海。 令計劃的這些大量檔被令完成帶出國后,**很重要的一點就是與郭先生手頭上的91號檔相互印證,形成證據鏈。**同一件事,例如**習近平批示對美國病毒攻擊**,假如有兩個不同來源的證據,比如郭先生拿出了習的批文,令完成拿出了錄音,那麼基本就沒有作假的可能,在法律上就是鐵證。
 
-我們建立了一個意大利多中心臨床試驗合作項目，以研究HCQ治療與COVID-19住院死亡率之間的關係。
+再來看看另一段郭先生對91號檔的描述:2018-12-29″我可以告訴你,這個檔是在某個幾個地方存放,存放呢,這些東西呢,非常重要的事情是,要打開需要三個人到場,有這個視網膜啊,指紋啊,在一起才能打開。 這個東西跟馬健已經沒什麼關係了,是馬健先生的下屬,也就是高輝先生,還有另外兩個人,高輝先生過世前,這個東西在外面已經存好了。
 
-**Methods****方法**
+現在呢只需要我們三個人到場,就會把這東西打開。 打開的時候,那就是我所說的,潘朵拉盒子的一部分,不都是啊,咱有潘朵拉總盒子,他是其中的一部分,所以我不到誰也打不開,拿不出來,我們得三個人一起到。 這倆人呢,都在海外,是自由的,而且有一個是一個人很高端的人士,是過去和其中的一個人在俄羅斯他們共同做事的。 ”
 
-In a retrospective observational study, 3,451 unselected patients hospitalized in 33 clinical centers in Italy, from February 19, 2020 to May 23, 2020, with laboratory-confirmed SARS-CoV-2 infection, were analyzed. The primary end-point in a time-to event analysis was in-hospital death, comparing patients who received HCQ with patients who did not. We used multivariable Cox proportional-hazards regression models with inverse probability for treatment weighting by propensity scores, with the addition of subgroup analyses.
+以下是我的推測:郭先生提到潘朵拉的盒子打開需要三個人,我認為說的就是證據需要有不同的來源,郭先生他有”潘朵拉的總盒子”,是說他手上有最多的證據,但是需要另外兩人手上的東西來印證。 另外兩個人其中一人應該就是令完成,還有一個是與令完成在俄羅斯一起做事的人。 希望有戰友能夠挖出來。
 
-在一項回顧性觀察研究中，分析了2020年2月19日至2020年5月23日，在意大利33個臨床中心住院的3451名未經選擇的SARS-CoV-2實驗室確診感染的患者。事件時間分析的主要終點是住院死亡，將接受HCQ治療的患者與未接受HCQ治療的患者進行比較。我們使用逆向機率的多變量考克斯比例風險模型，來統計以傾向評分匹配權重的治療，並加上對分組的分析。
-
-**Results****結果**
-
-Out of 3,451 COVID-19 patients, 76.3% received HCQ. Death rates (per 1,000 person-days) for patients receiving or not HCQ were 8.9 and 15.7, respectively. After adjustment for propensity scores, we found 30% lower risk of death in patients receiving HCQ (HR=0.70; 95%CI: 0.59 to 0.84; E-value=1.67). Secondary analyses yielded similar results. The inverse association of HCQ with inpatient mortality was particularly evident in patients having elevated C-reactive protein at entry.
-
-在3451名COVID-19患者中，76.3%接受了HCQ治療。接受與未接受HCQ的患者的死亡率（每千人/天）分別是8.9和15.7。調整傾向評分匹配後，我們發現接受HCQ的患者死亡風險降低30%（HR=0.70；95%CI：0.59至0.84；E值=1.67）。二次分析得出了類似的結果。HCQ與住院死亡率的反向關係在入院時C反應蛋白升高的患者中尤為明顯。
-
-**Conclusions****結論**
-
-HCQ use was associated with a 30% lower risk of death in COVID-19 hospitalized patients. Within the limits of an observational study and awaiting results from randomized controlled trials, these data do not discourage the use of HCQ in inpatients with COVID-19.
-
-在COVID-19住院患者中，使用HCQ與死亡風險降低30%是關聯的。在觀察性研究和還在等待中的隨機對照試驗結果的範圍內，這些數據並不妨礙在COVID-19住院患者中使用HCQ。
-
-翻譯【Dlrow】編輯【Michelle】
-
-戰友之家玫瑰園小隊出品
+跟隨郭先生爆料革命三年,郭先生第一次明鏡的直播我就有幸在線觀看,當時就驚為天人。 現在我也會不時的回看郭先生的爆料,體會他一路走來的艱辛和爆料革命的不易。 感恩郭先生! 感恩爆料革命! 期待當91號檔,潘朵拉盒子打開,橫掃中南坑盜國賊,與郭先生和戰友們相聚盤古龍頭的那一天!!
 
 0

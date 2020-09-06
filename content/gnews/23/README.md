@@ -1,54 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利一項3,451患者的研究表明羥氯喹顯著降低感染中共病毒住院患者死亡率達30%
-`2020-09-06 00:39 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/336616/)
+## 濤浪淘盡紅塵事 誰負誰勝天知曉 — 聽郭先生唱《滄海一聲笑》有感
+`2020-09-06 06:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/336926/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05232439/20200825_HCQ_Italian_CORIST_photo.png)
-意大利的CORIST多中心臨床試驗合作項目於2020年8月25日在《歐洲內科學雜誌》上發表了他們的一項最新研究。他們對意大利的住院感染中共病毒患者的死亡率進行了回顧性分析。根據意大利3,451名住院患者群組數據，相比未接受羥氯喹治療的患者，接受羥氯喹治療的患者死亡風險降低了約30%。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06062929/Screen-Shot-2020-09-06-at-8.28.24-pm.png)图片来源：郭先生直播视频截图
+《滄海一聲笑》讓我想起黃霑先生的一句話：“大樂至簡。偉大的音樂都是容易的，兩歲小孩都能記住。” 這首歌只有5個音，3段不斷重復，很簡單。我覺得「滄海」指的是世間的一切——財富、名利，像海一樣無窮盡，卻雙手怎麼都留不住的。“一聲笑”大概是看透了這一切的豪情吧。
 
-[閱讀英文全文](https://www.apple.com)
+這兩天我聽了郭先生唱的《滄海一聲笑》，出於好奇找了油管的一段影片，大概12分27秒，《笑傲江湖》的插曲粵語的片。內容大概如下：
 
-**Use of hydroxychloroquine in hospitalised COVID-19 patients is associated with reduced mortality: Findings from the observational multicentre Italian CORIST study**
+影片開始是順風堂堂主金盤洗手，離開江湖的儀式。在正準備退出江湖坐船離開的一刻，左冷禪剛到，他在追一個日月教的反賊。左冷禪拿著朝廷的令牌，綁架了國家權力，隨意殺人，就像今天的孟建柱、王岐山。此時老堂主和曲陽逃到小船上離開，並在船上唱出一曲《滄海一聲笑》。左冷禪隨後乘大船追了上來，撞沉他們的船，老堂主和日月教的曲陽，還有令狐衝用小船逃回了岸上，這時老堂主已死，曲陽也受了重傷，彌留之際把琴譜和琴交給令狐衝，並說了一句：“將來找到知音人，流傳下去。老一輩沒有做到的，你們後生（年輕）能做到的。”黃霑先生在曲中有一句：“蒼生笑，豪情仍在痴痴笑笑。”這句詞讓我看到了郭先生那天唱歌時的神態，消滅共產黨到尾聲了，蒼生大眾可以好了，他卻像個孩子般唱起了歌，高興的笑了，這是我個人的一種主觀的感覺。
 
-**對感染中共病毒的住院患者使用羥氯喹與死亡率的降低呈相關性：意大利****CORIST****回顧性多中心觀察研究的發現**
+以前的藝術家有理想、有情懷、有正義感、有武俠精神。現在的歌星演員，哪個不是為點為名，他們有正義嗎？有判斷能力嗎？他們即使知道什麼是正義，但能站出來抵抗邪惡嗎？現在有多少像何韻詩這樣的人敢站出來，有多少像梅艷芳這樣的藝人敢組織“黃雀行動”，用黑社會的走私網路解救內地的民運人士？當時連香港的黑社會都有正義。想象一下當年黃金時代的香港，再看看今天的所謂明星，他們還值得大家去追隨嗎？連著名的填詞人林夕，因為發表了一些言論支持香港，所有的作品都變成了「鐵名」，香港的歌曲有一半都是林夕的詞啊，對上這25年。
 
-The COVID-19 RISK and Treatments (CORIST) Collaboration members
+89年香港有個節目叫“歌聲獻中華”，那時有多少明星在台上，抗議中共8964天安門事件，大家熟悉的成龍也在台上。可是今天的成龍呢，已經變成了中共的宣傳機器。他會有好結果嗎？沒有。剛剛他在北京價值7千多萬的豪宅“被拍賣”了。當時香港的警察是有人性的，但現在的警察連土匪都不如。香港示威小女生們在茶餐廳討論的問題都是：“你被強姦了沒有？”。短短23年，香港就從天堂變成了地獄。
 
-**Abstract****摘要**
+香港人到底是什麼人？其實大多都是以前偷渡過去的廣東人，其實本質上他們是一種人種。可是為什麼香港人卻勇敢上街，而廣東人卻失去了一向的光輝呢？從古至今鬧革命的基本上都是廣東人，為什麼現在的廣東人卻沒有種了？歸根結底就是邪惡的共產主義，他們接受了共產黨的教育和宣傳，生活在沒有真正法治信仰的社會中，而香港人還用著英國人留下來的民主系統，僅管這個系統也被污染的很嚴重了，但是還是有民主自由的精神力量。這樣的精神力量支撐著他們一年來不停地上街、抗議，即使被強姦，被跳樓，他們仍在堅持。而只是一河之隔的廣東卻失去了多少世代以來廣東人應該有的精神，這個精神只有香港人繼承了。
 
-**Background****背景**
+文貴先生常說，“中國無男兒，陰盛陽衰”。現在的中國男人為了虛幻的名利，為錢、女人、名車、名表而失去了節操。從古至今，浪沙淘盡英雄，天地男兒，為蒼生擔憂的又有多少？當然有很多自以為是的小粉紅是“愛國”的，他們以韭菜的角色去想鐮刀的事情。中共常聲稱要治良知，他們真的把良知治沒了。現在很多官員不是像左冷禪這樣的東廠犬牙，就是公公般的太監。我一直很喜歡一句話：“見天地，見眾生，見自己”。文貴先生見過了世界，從最底層的草根到世界級的富豪和元首，他最後還能坦蕩的面對自己，達至“無我”的境界。我們的戰友看懂了文貴先生的用心嗎？我們已經成為那根能將火種傳下去的火柴了嗎？我們今天干了什麼？行動了嗎？這是我每天問我自己的問題。
 
-Hydroxychloroquine (HCQ) was proposed as potential treatment for COVID-19
+**【歌詞：滄海一聲笑】**作詞/作曲：黃霑
 
-羥氯喹（HCQ）被提議作為COVID-19的潛在治療方法
+滄海一聲笑，滔滔兩岸潮，浮沈隨浪只記今朝。
+蒼天笑，紛紛世上潮，誰負誰勝出天知曉。
+江山笑，煙雨遙，濤浪淘盡紅塵俗事知多少。
+清風笑，竟惹寂寥，豪情還勝了一襟晚照。
+蒼生笑，不再寂寥，豪情仍在痴痴笑笑。
 
-**Objective****目的**
+作者：澳喜 電流聲
+編輯：期待光明
+審核：Giselle
 
-We set-up a multicenter Italian collaboration to investigate the relationship between HCQ therapy and COVID-19 in-hospital mortality.
-
-我們建立了一個意大利多中心臨床試驗合作項目，以研究HCQ治療與COVID-19住院死亡率之間的關係。
-
-**Methods****方法**
-
-In a retrospective observational study, 3,451 unselected patients hospitalized in 33 clinical centers in Italy, from February 19, 2020 to May 23, 2020, with laboratory-confirmed SARS-CoV-2 infection, were analyzed. The primary end-point in a time-to event analysis was in-hospital death, comparing patients who received HCQ with patients who did not. We used multivariable Cox proportional-hazards regression models with inverse probability for treatment weighting by propensity scores, with the addition of subgroup analyses.
-
-在一項回顧性觀察研究中，分析了2020年2月19日至2020年5月23日，在意大利33個臨床中心住院的3451名未經選擇的SARS-CoV-2實驗室確診感染的患者。事件時間分析的主要終點是住院死亡，將接受HCQ治療的患者與未接受HCQ治療的患者進行比較。我們使用逆向機率的多變量考克斯比例風險模型，來統計以傾向評分匹配權重的治療，並加上對分組的分析。
-
-**Results****結果**
-
-Out of 3,451 COVID-19 patients, 76.3% received HCQ. Death rates (per 1,000 person-days) for patients receiving or not HCQ were 8.9 and 15.7, respectively. After adjustment for propensity scores, we found 30% lower risk of death in patients receiving HCQ (HR=0.70; 95%CI: 0.59 to 0.84; E-value=1.67). Secondary analyses yielded similar results. The inverse association of HCQ with inpatient mortality was particularly evident in patients having elevated C-reactive protein at entry.
-
-在3451名COVID-19患者中，76.3%接受了HCQ治療。接受與未接受HCQ的患者的死亡率（每千人/天）分別是8.9和15.7。調整傾向評分匹配後，我們發現接受HCQ的患者死亡風險降低30%（HR=0.70；95%CI：0.59至0.84；E值=1.67）。二次分析得出了類似的結果。HCQ與住院死亡率的反向關係在入院時C反應蛋白升高的患者中尤為明顯。
-
-**Conclusions****結論**
-
-HCQ use was associated with a 30% lower risk of death in COVID-19 hospitalized patients. Within the limits of an observational study and awaiting results from randomized controlled trials, these data do not discourage the use of HCQ in inpatients with COVID-19.
-
-在COVID-19住院患者中，使用HCQ與死亡風險降低30%是關聯的。在觀察性研究和還在等待中的隨機對照試驗結果的範圍內，這些數據並不妨礙在COVID-19住院患者中使用HCQ。
-
-翻譯【Dlrow】編輯【Michelle】
-
-戰友之家玫瑰園小隊出品
+(文章內容僅代表作者觀點)
 
 0
