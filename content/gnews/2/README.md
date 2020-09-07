@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月7日財經快訊: 雙循環內外交困, 樓市吹響腰斬潮
-`2020-09-07 10:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/339515/)
+## 港十二名抗爭者逃往台灣時被捕送中
+`2020-09-07 13:31 GM36` [轉載自GNews](https://gnews.org/zh-hant/339764/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05120230/1599321726710.jpg)圖片來源： [http://tapchitaichinh.vn](http://tapchitaichinh.vn/tai-chinh-quoc-te/chuyen-gia-canh-bao-kinh-te-trung-quoc-chi-co-the-hoi-phuc-trong-quy-iv-321907.html) 
-[1.週一歐元走低，投資者寄希望本週四歐洲央行會議推出進一步刺激政策。](https://mobile.reuters.com/article/amp/idUSKBN25Y03F?__twitter_impression=true)
+編撰：文卡西歐、文粵、文燕
 
-[2.亞洲股市漲跌不一:美中科技緊張局勢加劇，中芯國際在香港的股價暴跌](https://www.cnbc.com/2020/09/07/asia-markets-us-china-tech-tensions-chinas-august-trade-data.html)
+審核：Lori文噠
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07133017/907_5.jpg)
+上月23日，以“香港故事“成員李宇軒為首的12名港人，在潛逃台灣途中被廣東海警截獲，他們被指違反《國安法》，至今仍扣押在深圳市鹽田看守所。
 
-[3.中共國無人駕駛汽車公司認為未來3年無人駕駛出租車行業會隨著科技公司的競爭發展而急速擴張。](https://www.cnbc.com/2020/09/07/china-driverless-car-firms-see-robotaxis-scaling-up-in-3-years.html)
+內地律師盧思位向《立場新聞》透露，他受其中一位被捕喬姓女子的家人委託，到鹽田看守所試圖會見當事人，但遭拒絕；當局拒絕理由是：當事人有可能涉嫌“組織他人偷越國邊境罪”，俗稱”蛇頭”，比起拘留通知書寫的“偷越國邊境罪” 更重，一旦定罪，最高可判囚終生。
 
-[4.亞洲股市因估值上漲，石油滑行而動搖](https://www.reuters.com/article/us-global-markets/asian-shares-on-shaky-footing-amid-elevated-valuations-oil-skids-idUSKBN25Y027)
+盧思位亦向《蘋果》透露，他當天到達鹽田看守所門口時，負責公安不讓他進去，而是請他到鹽田公安分局去。經過一翻波折，當局最終未有批准他會見當事人，理由是他沒有“公證”，無法證明是其委託人身份。所謂“公證”， 盧指出一般是香港於內地的民事訴訟，法庭要採信證據的一個程序。他目前已取得公證，會盡快再到深圳爭取於當事人見面。
 
-[5.中共國恆大集團董事局主席許家印6日宣布自9月7日起至10月8日，恆大全國樓盤全線7折，並透露“金九銀十”兩個月，單月銷售額要衝刺1000億元。](https://finance.ifeng.com/c/7zZ6gPteI8u)
+然而，盧律師在鹽田看守所吃閉門羹並不是唯一的一位。另一受委託的內地律師範標文即使出示了家屬的委託書到看守所，當局以同樣理由把他拒之門外。
 
-[6.中共國家電行業營收排名第一的美的集團遭董事長方洪波和神秘資金拋售：9月2日的一筆13.62億交易後證明是董事長方洪波拋售，套現14億；另一筆18.11億元的更大手筆，目前尚不知背後是誰。](https://finance.ifeng.com/c/7zXMvEYN8Lu)
+編者觀點
 
-[7.受中共病毒影響，中共國首都機場公司於2020年9月7日才公開2019年度經審計的財務報表。同時公開的未經審計的2020年上半年財務報表顯示收入與上年同期相比減少63%，營業利潤從上年同期的盈利17.18億元變為上半年的虧損9.85億元。](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1767073&amp;priority=0)
+中共國有自己的一套法律系統，可是這套法律體系往往虛設，統治者與執法者往往根據自己的利益執法，以致於未審先判，私判定罪，強加罪名，失去了法律應有的公平公正和透明。
 
-[8.日前中共國銀保監會在官網連續開出30張罰單，5個金融機構民生銀行、華夏銀行、浙商銀行、廣發銀行和中國華融合計被處罰金額達3.2億元。](http://news.esnai.com/2020/0907/208260.shtml)
+這次12人被捕送中，中共諸多刁難，連家人委託的律師也不讓見，又隨意調整控罪定罪，毫無法律觀念，這是人治而非法治。
 
-By：【密翻組·金融法律組】
+從這件事我們可見中共的恐懼與瘋狂，當局以法律名義殺雞儆猴，透過此案來阻嚇未來逃離香港的抗爭者。
+
+目前這12人在看受所裡生死未卜，不知道他們在裡面受了多少非人的折磨。我們希望以美國為首的西方社會加以關注，向中共施加壓力，不能讓它們在全世界的眼皮底下繼續作惡。
+
+參考鏈接： [https://hk.appledaily.com/local/20200906/WYQVH4HNX5A45BOUGZZCAMK36M/](https://hk.appledaily.com/local/20200906/WYQVH4HNX5A45BOUGZZCAMK36M/)
 
 0
