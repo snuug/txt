@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精華版國語配音】班農戰斗室 366期 病毒的資料不足夠研發有效的疫苖 快速生的產副作用危害更大
-`2020-09-07 08:44 GM42` [轉載自GNews](https://gnews.org/zh-hant/339099/)
+## 【世界多語言圖文】2020/08/31 CCP病毒每日疫情直播簡報
+`2020-09-07 09:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/339242/)
 
-製作單位：戰友之家·粵語頻道
-素材製作：Warroom Pandemic
-視頻配音：Miko 農夫
-視頻剪輯：食飽飽
-字幕校對：YAMAP
+戰友之家圖文摘要及小語種組
+
+[English\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092257/English_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092257/English_0831_CCP_Virus_Updates.pdf)
+
+[French\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092306/French_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092306/French_0831_CCP_Virus_Updates.pdf)
+
+[German-0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092311/German-0831_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092311/German-0831_CCP_Virus_Updates-2.pdf)
+
+[Japanese\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092302/Japanese_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092302/Japanese_0831_CCP_Virus_Updates.pdf)
+
+[Korean\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092316/Korean_0831_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092316/Korean_0831_CCP_Virus_Updates-.pdf)
 
 
-
-概要：
-即使在世界頂級的實驗室裡開發疫苗也非常困難
-要考慮到倉促地生產新冠病毒疫苗，將給我們帶來比病毒本身更多的問題。
-羥氯喹幾十年來都在世衛組織網站上最安全藥品名單中，我們應該優先考慮使用該藥進行預防和治療。
-中共國大批量生產疫苗的能力不夠，他們連合格的裝疫苗的玻璃瓶都生產不了。
 
 0

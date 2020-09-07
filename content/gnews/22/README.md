@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共産黨都快爛尾了 更何況是房子呢？再不賣房就晚了！
-`2020-09-07 08:42 GM30` [轉載自GNews](https://gnews.org/zh-hant/339078/)
+## 【中英文視頻版】2020/09/01 CCP病毒每日疫情直播簡報
+`2020-09-07 09:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/339316/)
 
-**作者：小妍說**
+英文標題 CCP Virus Pandemic Updates Ep221:  The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia
 
-8月底，住建部召開房地産工作會商會，會議強調，要進一步統一思想認識，提高政治站位，毫不動搖堅持房子是用來住的、不是用來炒的定位，堅持不將房地産作爲短期刺激經濟的手段，保持調控政策連續性穩定性，確保房地産市場平穩健康發展。看一下參會的城市名單有：沈陽、長春、成都、銀川、唐山、常州等城市政府及所在省（自治區）住房和城鄉建設廳負責同志參加會商。 而早在7月下旬，住建部就舉行了一次同樣主題的房地産座談會，那次參會的城市是北京、上海、廣州、深圳、南京、杭州、沈陽、成都、甯波、長沙等10個城市政府部門相關負責人參會。兩次會議參與的城市都是2020年房價漲幅比較大的城市，其背後的含義可想而知，未來中共國的樓市收緊下跌的情況正在逐漸變成現實。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07083334/%E5%9B%BE%E7%89%871-19.jpg)
-此外，9月初，住建部印發政務公開工作要點：堅持房住不炒定位，落實城市主體責任，穩地價、穩房價、穩預期。防止虛假宣傳、惡意炒作等加劇市場波動。而這其中沈陽，成都則兩次榜上有名。這兩個城市未來應該是中共國房價調控的重點城市。從城市名單中不難看出，其中不光有一線城市，還有一些三線城市以及房價較低的城市，例如長春，銀川，唐山，常州，這幾個城市都是經濟比較差一些的城市，但是他們都是2020年房價上漲比較快的城市，中共這次做法我們不難看出，調控樓市的政策已經不單單只是從漲幅比較高的一線城市開始了，像一些三四線城市，價格不是特別的高的城市也要開始進行調控了。如果還有人抱著僥幸的心理，覺得自己不是住在一線城市，不用擔心房價調控的風險，這些人要小心了。
+内容简介
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07083423/%E5%9B%BE%E7%89%872-16.jpg)
+1. 某學校匿名老師：“蒙古語是我們日常交流和生存的語言的一種，所以我們對母語的感情十分的深厚，所以作為蒙古族想要保護自己的母語，就這麼簡單。”
+2. 恩和巴圖，南蒙古人權信息中心主任：“這是一個文化種族滅絕政策，這不是光是語言的問題，現在蒙古人的傳統文化已經基本上被中國政府扼殺掉了。現在剩下的就是語言。如果把這個語言扼殺掉了，基本上就沒有蒙古人的（身份特性）。所以我們就強烈譴責中國政府實行這種文化滅絕政策。”
+3. 中共政府在繼新疆實行種族滅絕之後，又要在內蒙古實行文化滅絕政策。引發大規模警民對峙。
+4. 2020年8月底，山西平遙古城私人臨街商舖已有210多戶祖產一夜之間收歸國有，30多家祖產被封被鎖，當地政府強制執行。私人房子被貼了封條，封條上寫著“平遙縣人民政府”。
+5. （8/31）中國十億人沒有公共廁所。到現在中國竟然教育還不免費。連非洲很多國家，它支持的非洲，都已經免費了。黑幫主義。 向非洲一帶一路放出了所謂的上萬億的支持，萬億美元，十來萬億人民幣的支持。 中國現在有人吃不上飯。
 
-我們再看看其他一些城市的樓市調控政策，先來看看江蘇無錫，8月30日，江蘇無錫發布《市政府辦公室關于進一步促進我市房地産市場平穩健康發展的通知》，其中就包括第一封堵假離婚買房的渠道，夫妻離異後2年內購買商品住房的，其擁有住房套數按離異前家庭在無錫市區範圍內擁有住房套數計算。第二個人住房轉讓增值稅征免年限由2年調整到5年；第三對已擁有一套住房且相應購房貸款未結清的居民家庭，再次申請商業性個人住房貸款購買商品住房的，最低首付比例調整爲不低于60%。其次是7月2日，東莞調控升級，禁止捂盤惜售，房價漲幅完全控制在5%。最後是深圳“7.15樓市新政”，購房人家庭名下在深圳市無房且無商業性住房貸款記錄或公積金住房貸款記錄的，繼續執行貸款首付款比例最低30%的政策;購房人家庭名下在深圳無房但有商業性住房貸款記錄或公積金住房貸款記錄的，購買普通住房的貸款首付款比例不低于50%，購買非普通住房的貸款首付款比例不低于60%。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07083501/%E5%9B%BE%E7%89%873-3.jpg)
-看看這近兩個月的時間裏，中共國有至少11個城市出台了樓市調控政策，而在現在這個時候，中共爲什麽要進行如此大規模的樓市調控呢？是不是因爲中共已經意識到中共國房地産的泡沫馬上要破滅了呢？而中共國的房地産泡沫一定會吸幹實體企業的最後一點資金，還有一點的原因就是爲了防止房價蹦盤暴跌！不過我奉勸各位有多余房産的，趁中共的房價沒有變成白菜價的時候，趕快賣掉，大家不妨想一想共産黨都快爛尾了，更何況是房子呢？
 
-GNEWS之前文章：
-【華爲】狼性文化就是“狗文化” [https://gnews.org/zh-hans/335249/](https://gnews.org/zh-hans/335249/)
-連“新生兒”也逃不開中共體制種下的毒 [https://gnews.org/zh-hans/326510/](https://gnews.org/zh-hans/326510/)
-拒文化滅絕 內蒙抗議革命 [https://gnews.org/zh-hans/332000/](https://gnews.org/zh-hans/332000/)
+1. Anonymous school teacher stated “Mongolian is the languages we use to communicate and survive on a daily basis, so we have a very strong attachment to our native language, thus it’s as simple as that as Mongolians want to protect our native language.”
+2. Enghebatu, Director of Southern Mongolia Human Rights Information Centre stated”This is a policy of cultural genocide, it is not just a matter of language, now the traditional Mongolian culture has been basically killed by the Chinese government. What is left now is the language. If this language is strangled, there will be no Mongolian (identity). That’s why we strongly condemn the Chinese government for this cultural extermination policy.”
+3. The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia. It has triggered a massive police standoff and armored military vehicles have been seen on street.
+4. By the end of August 2020, more than 210 private street-level shops in Pingyao Ancient City, Shanxi Province, have been nationalized overnight, and more than 30 ancestral properties have been sealed and locked, enforced by the local CCP government. Private houses were plastered with seals that read ‘People’s Government of Pingyao County’.
+5. (8/31 Miles Guo) One billion people still have no access to public toilets. Education in Communist China is not for free even until now. Even some African countries the CCP has been aiding already have free education. The CCP sent Africa up to one trillion dollars aid through the Belt and Road Initiative. Over 10 trillion RMB equivalent. Yet right now in China there’re people are still starving.
 
-（文章內容僅代表作者觀點）
 
 0

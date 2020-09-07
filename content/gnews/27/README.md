@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國驚現醫護 “防刺白大褂” 再現醫患矛盾的真實真相！
-`2020-09-07 08:52 GM30` [轉載自GNews](https://gnews.org/zh-hant/339132/)
+## 【中英文視頻版】2020/09/01 CCP病毒每日疫情直播簡報
+`2020-09-07 09:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/339316/)
 
-**作者：小妍說**
+英文標題 CCP Virus Pandemic Updates Ep221:  The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia
 
-前幾天我剛剛寫了散裝衛生巾的事件，這幾天在淘寶上又看到了一個奇葩物件，有網店在默默出售隱形的醫生防刺白大褂，和普通的白大褂不同，防刺白大褂使用特殊的材料，可以防護頸部、胸部等重點部位，月銷數十件。其中有不少醫生買家在評論區留言：“618剛買，21號收到貨，22號我們醫院就發生了傷醫事件，雖然不是我們科室，但還是太心痛了。”、“髒話威脅是家常便飯，希望衣服在意外來的時候抵禦一部分傷害，救死扶傷依然是我的第一要務，但也希望能夠保護好自己 “。” 女生當醫生太危險了，面對粗魯的患者，毫無還手之力，想一想就可怕 “。
+内容简介
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07084640/%E5%9B%BE%E7%89%871-6.png)
+1. 某學校匿名老師：“蒙古語是我們日常交流和生存的語言的一種，所以我們對母語的感情十分的深厚，所以作為蒙古族想要保護自己的母語，就這麼簡單。”
+2. 恩和巴圖，南蒙古人權信息中心主任：“這是一個文化種族滅絕政策，這不是光是語言的問題，現在蒙古人的傳統文化已經基本上被中國政府扼殺掉了。現在剩下的就是語言。如果把這個語言扼殺掉了，基本上就沒有蒙古人的（身份特性）。所以我們就強烈譴責中國政府實行這種文化滅絕政策。”
+3. 中共政府在繼新疆實行種族滅絕之後，又要在內蒙古實行文化滅絕政策。引發大規模警民對峙。
+4. 2020年8月底，山西平遙古城私人臨街商舖已有210多戶祖產一夜之間收歸國有，30多家祖產被封被鎖，當地政府強制執行。私人房子被貼了封條，封條上寫著“平遙縣人民政府”。
+5. （8/31）中國十億人沒有公共廁所。到現在中國竟然教育還不免費。連非洲很多國家，它支持的非洲，都已經免費了。黑幫主義。 向非洲一帶一路放出了所謂的上萬億的支持，萬億美元，十來萬億人民幣的支持。 中國現在有人吃不上飯。
 
-之前的網店出售 ” 散裝衛生巾 “，引發了人們對于女性問題的關注；” 防刺白大褂 ” 的出現，則是又一則提醒：傷醫事件離我們從不遙遠。在過去百姓都認爲醫者是再生父母，轉世華佗，提起醫生都是神聖的，令人尊敬的！在我們小的時候很多小朋友的願望都是長大以後當醫生，科學家！現如今呢？去醫院，永遠是人潮擁擠，醫生永遠都是忙不過來，去一次醫院就得花成百上千，這是至少的！看病難，看病貴這是大家對醫院的第一印象！在加之多起傷醫殺醫事件不斷暴露在公衆視野，不免讓人産生疑問，爲什麽會産生這麽多的醫療糾紛，造成現在這種醫患關系的最大責任人真的是醫生嗎？醫生固然有責任，但是我覺得最大的問題是老百姓日益增長的醫療需求和中共國不足的醫療資源，這些深層次的原因不分析、不研究、不解決，進而導致更多的醫鬧、傷醫事件。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07084728/%E5%9B%BE%E7%89%872-18.jpg)
+1. Anonymous school teacher stated “Mongolian is the languages we use to communicate and survive on a daily basis, so we have a very strong attachment to our native language, thus it’s as simple as that as Mongolians want to protect our native language.”
+2. Enghebatu, Director of Southern Mongolia Human Rights Information Centre stated”This is a policy of cultural genocide, it is not just a matter of language, now the traditional Mongolian culture has been basically killed by the Chinese government. What is left now is the language. If this language is strangled, there will be no Mongolian (identity). That’s why we strongly condemn the Chinese government for this cultural extermination policy.”
+3. The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia. It has triggered a massive police standoff and armored military vehicles have been seen on street.
+4. By the end of August 2020, more than 210 private street-level shops in Pingyao Ancient City, Shanxi Province, have been nationalized overnight, and more than 30 ancestral properties have been sealed and locked, enforced by the local CCP government. Private houses were plastered with seals that read ‘People’s Government of Pingyao County’.
+5. (8/31 Miles Guo) One billion people still have no access to public toilets. Education in Communist China is not for free even until now. Even some African countries the CCP has been aiding already have free education. The CCP sent Africa up to one trillion dollars aid through the Belt and Road Initiative. Over 10 trillion RMB equivalent. Yet right now in China there’re people are still starving.
 
-要知道中共國的基本國情就是老百姓的消費能力有限。“一病就會回到解放前”，依然是很多家庭，尤其是農村家庭的常態。有限的消費能力決定了，相當多的中共國人，對于自己的支出，有著很強的回報心態。一旦得到的回報小于自己的支出，乃至完全打水漂也就是人財兩空，就很容易心態失衡，做出很衝動的事情。而百姓消費能力的欠缺，也決定了，作爲社會主義國家的中共國，不可能真的將醫療服務設置成高端服務。所以很多普通家庭面對大病，只有等死的份。而等死産生的破滅感、絕望情緒，就會催生出一大批惡性治安案件。所以一定不要把醫患矛盾當成醫生和患者之間的矛盾，在中共國醫患矛盾是看病難和患者之間的矛盾。中共國的醫患矛盾具有極強的中共國特色，全世界都罕見，就算其他國家也會出現醫患矛盾，但遠遠沒有中共國這麽複雜，而導致這一切發生的就是中共國的黑暗醫療體系。
-
-GNEWS之前文章：
-【華爲】狼性文化就是“狗文化”[https://gnews.org/zh-hans/335249/](https://gnews.org/zh-hans/335249/)
-中共國再出奇葩【賣身契】 [https://gnews.org/zh-hans/333437/](https://gnews.org/zh-hans/333437/)
-被判15年未進監獄 “紙面服刑 ”15年 [https://gnews.org/zh-hans/333317/](https://gnews.org/zh-hans/333317/)
-
-（文章內容僅代表作者觀點）
 
 0
