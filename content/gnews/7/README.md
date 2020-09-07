@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆中小學9月6日起、高校9月10日起分批錯峰開學
-`2020-09-06 20:35 GM01` [轉載自GNews](https://gnews.org/zh-hant/337982/)
+## 美國家安全顧問奧布萊恩發佈會中指控中共干涉美國大選
+`2020-09-06 23:46 GM80` [轉載自GNews](https://gnews.org/zh-hant/338227/)
 
-內新聞作者：瓦者
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06203118/C268921D-0BDB-4D85-8229-34082F381015.jpeg)
-綜合消息，中共新疆維吾爾自治區教育廳3日公佈，全區中小學自9月6日起、高校自9月10日起分批、錯峰開學，在做好常態化疫情防控工作基礎上，恢復正常教育教學秩序。
+[https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06183150/WH\_20200904\_O\_Brien\_QA-Neutron-Star.mp4](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06183150/WH_20200904_O_Brien_QA-Neutron-Star.mp4)
 
-從2020年初新冠疫情在內地武漢的全面爆發，中共對疫情的防控就令人難以信服。疫區醫療物資的嚴重緊缺，醫療機構及醫護人員的超負荷運轉，對居民小區的封鎖，一切往日正常的社會生活秩序均遭重創。到目前為止，新冠疫情全球肆虐，國內疫情真實數據依然隱瞞。
+美國國安顧問奧布萊恩,顧問格雷內爾,和白宮新聞秘書麥肯尼於2020年9月4日舉行新聞發佈會, 滅共四騎士之一奧布萊恩回答了有關中共咄咄逼人地干涉美國大選, 愈演愈烈的侵犯人權行為, 以及被視而不見的惡性活動, 並表示在川普總統的領導下, 美國人民能夠迎接這個挑戰。
 
-在這樣的情況下，新疆教育廳下發通知要按照中共衛生健康委、教育部頒布的秋冬疫情防控技術方案以應對疫情常態化，恢復教育教學各項工作，無疑大大增加了學生及教師群體感染新冠的風險。目前沒有真正有效的疫苗，檢測試劑效率不高，即使校園實行封閉式的管理也毫無用處，校內人員聚集不可防也不可控！秋冬季節的到來，氣溫的急劇變化，恐怕新冠疫情形勢將更加嚴峻！
+[閱讀英文全文。](https://www.whitehouse.gov/briefings-statements/press-briefing-ambassador-obrien-ambassador-grenell-senior-advisor-kushner-press-secretary-kayleigh-mcenany-september-4-2020/)
+
+*翻譯&校對【Neutron Star】【Dlrow】字幕【Neutron Star】【奔騰的長江】編輯【JoyJoy】*
+
+*戰友之家玫瑰園小隊出品*
+
+相關新聞：
+
+> [滅共四騎士演講之一：國家安全顧問奧布賴恩鳳凰城演講全文（2020.06.24）](https://gnews.org/zh-hant/277652/)
 
 1
