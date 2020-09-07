@@ -1,67 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅! 美國正在一步步清理學術界的垃圾!
-`2020-09-06 21:41 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/336582/)
+## 川普政府稱中化集團和其他企業得到了中共軍方的支持
+`2020-09-07 01:28 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/338404/)
 
-*新聞來源：Wallstreet Journal《華爾街日報》；*
+*新聞來源：《REUTERS》；作者：Reporting by Mike Stone; Editing by Steve Orlofsky and Richard Chang；發佈時間：AUGUST 28, 2020*
 
-*作者：Kate O’Keeffe and Aruna Viswanatha；發佈時間：2020年7月30日*
-
-*翻譯：小小妹；* *簡評：小小妹/TCC；校對：TCC；審核：海闊天空；Page：拱卒*
+*翻譯/簡評：文意；校對：TCC；審核：InAHurry；Page：刀削麵面*
 
 **簡評：**
 
-在七月份，胡佛研究所從中共政府支持的學術數據庫中，找出254篇公開查閱的論文中找到了中共解放軍滲透美國學術界的證據。這些論文是由來自115個美國大學和政府研究實驗室的研究人員與來自中共解放軍有聯繫的七所重點研究大學和研究所的同僚一起撰寫的。
-[!\[\](https://spark.adobe.com/page/k3RzeV9na7JGn/images/6724933c-ca53-41eb-a247-256a6d257685.jpg?asset_id=fe86d185-5905-4d94-a79a-7cc7abbcd62d&amp;img_etag=%222469a0fd6623895e9f97ec506155b052%22&amp;size=1024)](https://spark.adobe.com/page/k3RzeV9na7JGn/images/6724933c-ca53-41eb-a247-256a6d257685.jpg?asset_id=fe86d185-5905-4d94-a79a-7cc7abbcd62d&amp;img_etag=%222469a0fd6623895e9f97ec506155b052%22&amp;size=1024)
-在下表中，整理了過去幾個月，被司法部起訴多位滲透美國學術界的中共軍方人員， 以及川普發布行政令與中共休士頓領事館關閉的時間點。譯者也找出了所謂的中共的”國防七子”( [https://www.aspi.org.au/report/china-defence-universities-tracker](https://www.aspi.org.au/report/china-defence-universities-tracker) )。這些眾所周知主要是由解放軍為主幹的七所大學院校，雖然僅由其校名，很難得以窺知其與國防之關聯性，北美的名校，在不知情的情況下就接納了這些”自費生”。誰知道，他們是來偷情報及研究成果的間諜。為此，胡佛報告更建議美國研究機構應建立一個外國合作夥伴共享的黑名單，並將此黑名單視為“合作的禁區。”這也是一種情報戰
+美國政府所採取的針對中共的行動是根據事實和長時間調查的結果。西方政府應針對新冠病毒的起因做迅速，深入的調查，並果斷採取行動。不然就像英雄科學家閆麗夢博士所說：“留給世界的時間不多了”。要切斷中共家族財富的來源，凍結其在世界各地的資產，停止美國科技企業與中共的合作，嚴厲懲罰繼續跟中共合作的科技，軍工，衛生，醫療以及各行各業影響美國國家安全的企業和個人。打開中共的防火牆，讓中共國被洗腦的老百姓能夠清醒的認識到他們是怎麼被欺詐這麼多年的。相信中國人民會站起來和美國以及西方追求保衛自由民主的國家一起消滅共產黨。
 
-美國除了在新冠疫情、貿易、香港《國安法》、新疆等問題上對中共有了新的認識，現在對於中共以交流學習為名公派學者和研究員實際上以間諜的身份竊取美國的高科技術和信息，並用領事館為掩護，暗地裡策劃一系列見不得光的行為，力挽狂瀾，以法治來應對。這也就是為什麼中國駐休斯頓總領館在被美國下令立即撤出的時候，在領事館焚燒一些機密文件。美國下令關閉中共國駐休斯敦總領館時，就是給中共一個明確的訊號-對中共盜竊美國知識產權的寬容已達極點。
+##  **川普政府稱中化集團和其他企業得到了中共軍方的支持** 
 
-其實這只是冰山一角，中共間諜涉及世界的各個領域，消滅他們刻不容緩。現在通過爆料革命的指引，西方慢慢覺醒，滅共的鐘聲已經敲響！
-[!\[\](https://spark.adobe.com/page/k3RzeV9na7JGn/images/ed932258-9206-41c0-99c8-5269b7b67f3a.jpg?asset_id=54526500-1ebf-40c1-b989-7bd3bec322da&amp;img_etag=%22458412e35382ea20b93ac5c030d7ebdb%22&amp;size=1024)](https://spark.adobe.com/page/k3RzeV9na7JGn/images/ed932258-9206-41c0-99c8-5269b7b67f3a.jpg?asset_id=54526500-1ebf-40c1-b989-7bd3bec322da&amp;img_etag=%22458412e35382ea20b93ac5c030d7ebdb%22&amp;size=1024)
-[!\[\](https://spark.adobe.com/page/k3RzeV9na7JGn/images/135a478b-f20f-47f6-b7c1-f6cb6f5b0bd5.jpg?asset_id=4feea47f-0b9e-458d-ac0d-d52d7ee77d9f&amp;img_etag=%2234a687375568917d02f5a9cbcb586502%22&amp;size=5650)](https://spark.adobe.com/page/k3RzeV9na7JGn/images/135a478b-f20f-47f6-b7c1-f6cb6f5b0bd5.jpg?asset_id=4feea47f-0b9e-458d-ac0d-d52d7ee77d9f&amp;img_etag=%2234a687375568917d02f5a9cbcb586502%22&amp;size=1024)中共國防七子
+[!\[\](https://spark.adobe.com/page/Z2Xj2UibNdtaM/images/5df715d0-4018-43e3-bb4a-a2e5c528a2f8.png?asset_id=678301eb-e41c-4260-80b2-57b442e04b61&amp;img_etag=%221b5f5b74dd1e3bf10a5656ba2d21d507%22&amp;size=1024)](https://spark.adobe.com/page/Z2Xj2UibNdtaM/images/5df715d0-4018-43e3-bb4a-a2e5c528a2f8.png?asset_id=678301eb-e41c-4260-80b2-57b442e04b61&amp;img_etag=%221b5f5b74dd1e3bf10a5656ba2d21d507%22&amp;size=1024) FILE PHOTO: Chinese and US flags flutter near The Bund, before US trade delegation meet their Chinese counterparts for talks in Shanghai, China July 30, 2019. REUTERS/Aly Song
 
 
 
-##  **揭示中共國使用軍方關聯研究人員情況的報告** 
+華盛頓（路透社）-五角大樓(美國國防部)週五表示，川普政府已確定了包括建築巨頭中共通信建設公司在內的另外11家中共公司為中共軍隊擁有或控制，這為新的製裁打下了基礎。
 
-華盛頓-根據斯坦福大學胡佛研究所周四發布的一份新報告顯示，美國研究人員已與中共國軍方的同僚進行廣泛合作，這有可能會增強中共國作為競爭對手的潛力。
-[!\[\](https://spark.adobe.com/page/k3RzeV9na7JGn/images/940c27a7-daae-4b6e-95a0-d2a69d9d11f4.jpg?asset_id=f4cc7c80-0641-4a72-b033-2591a5c5793f&amp;img_etag=%220cdac7f1cc86ec006650a9d1509c0e6a%22&amp;size=1024)](https://spark.adobe.com/page/k3RzeV9na7JGn/images/940c27a7-daae-4b6e-95a0-d2a69d9d11f4.jpg?asset_id=f4cc7c80-0641-4a72-b033-2591a5c5793f&amp;img_etag=%220cdac7f1cc86ec006650a9d1509c0e6a%22&amp;size=1024)
-這來自保守黨的智囊團報告，辨識了在中共政府支持下別學術數據庫中的254篇公開查閱的論文。這些論文是由來自115個美國大學和政府研究實驗室的研究人員與來自中國人民解放軍有聯繫的七所重點研究大學和研究所的同僚一起撰寫的。
+今年早些時候，美國國防部就已指定了20家中共國頂級公司為直接或間接在美國經營的中共軍工企業，名單包括了那些由中共國人民解放軍”擁有或控制”的，提供商業服務、製造、生產或出口的中共國公司。
 
-該論文涵蓋了從材料科學到海軍工程的一系列主題，胡佛（Hoover）報告發現了
+更新後的清單還包括了中國三峽股份有限公司[CYTGP。UL®]，中化集團有限公司[SASADA.UL]和中國空間衛星（600118.SS）。
 
-一些中國研究人員隱藏或未明確表明他們的國防隸屬關係的實例。該報告得出的結論是，任何可以促進中共國成為戰略和軍事競爭者的合作與援助，是不利於美國的利益的，因為“即使相關研究並非機密性的，不論是基礎研究或基礎原理的，且最終被發表了。”
+[!\[\](https://spark.adobe.com/page/Z2Xj2UibNdtaM/images/739df416-a430-4339-bbfe-6b8653aab556.png?asset_id=7d321e2e-11b3-42ba-bf7e-0f3c9d463932&amp;img_etag=%222b54ab8ffec293875e43af5ba6ec92b8%22&amp;size=1024)](https://spark.adobe.com/page/Z2Xj2UibNdtaM/images/739df416-a430-4339-bbfe-6b8653aab556.png?asset_id=7d321e2e-11b3-42ba-bf7e-0f3c9d463932&amp;img_etag=%222b54ab8ffec293875e43af5ba6ec92b8%22&amp;size=1024)
 
-該報告研究了從2013年1月至2019年3月期間發表的論文，其中詳細介紹了中共國通過與中共國軍隊有關聯的中共研究人員取得美國研究和技術所做出的一系列明顯而廣泛的努力。
+中國中化集團有限公司（簡稱中化集團，英文簡稱SINOCHEMGROUP）成立於1950年3月，前身為中國化工進出口總公司， 歷史上曾為中國最大的外貿企業。
 
-該報告的作者包括來自胡佛(研究所)和德克薩斯州A＆M大學系統的頂尖國防部分析師和國家安全專家。
+中共國駐華盛頓大使館沒有立即回應記者的置評請求。
 
-中共國駐華盛頓大使館未回應置評請求。中共外交部最近幾周向川普政府發出指控，指稱中共國正在利用美國的研究機構來獲取誇大和不必要地技術，並表示北京的作為是很正常的。
-[!\[\](https://spark.adobe.com/page/k3RzeV9na7JGn/images/55548646-74e2-4de0-8619-0a93b0a510df.jpg?asset_id=dea56e24-a6db-4887-a9db-149243d4edf7&amp;img_etag=%22cd2a9dce52166b3529ccec123185aedf%22&amp;size=1024)](https://spark.adobe.com/page/k3RzeV9na7JGn/images/55548646-74e2-4de0-8619-0a93b0a510df.jpg?asset_id=dea56e24-a6db-4887-a9db-149243d4edf7&amp;img_etag=%22cd2a9dce52166b3529ccec123185aedf%22&amp;size=1024)
-直到2018年澳大利亞人進行了開創性研究後，才對中共國使用與軍方關係卻未表明的研究人員引起了注意。
+五角大樓的指定不會引發處罰，但根據這個要求彙編這份名單的1999年的法律，總統可能會對名單中的實體實施制裁，具體制裁可能包括查封實體的所有財產。
 
-此後，美國採取了迅速行動來解決這一問題。其中包括川普總統於5月發布的一項行政命令，禁止為其工作或曾經參與建立中國國防部門的實體工作的中共國研究生和研究人員簽發簽證。
+在華盛頓和北京在技術、貿易和外交政策方面的關係日益緊張的情況下，五角大樓受到了來自美國兩黨議員們的壓力，要求它公佈這份名單。 。
 
-上週，美國官員援引中共領事館官員與軍事研究人員的不當配合而關閉在休斯敦的中共國領事館。司法部還強調了最近發生的四起案件，指控中共國學者在這裡進行研究時涉嫌掩蓋自己是解放軍成員的身份而詐取簽證。美國司法部說，聯邦調查局最近對25個美國城市中未申報的中國軍人進行了約談。
+這份名單可能會繼續加劇世界兩大經濟體之間的緊張關係。尤其是中共在新冠病毒在全球蔓延中的表現和中共在香港強行通過國安法而引發香港的人道危機以及中美其它摩擦已經導致了今年中美關係極度惡化。
 
-胡佛（Hoover）報告建議美國研究機構建立共同的品德和道德標準，以防止幫助威權政府或違反民主價值觀。該報告還建議，這些機構應建立一個外國合作夥伴共享的黑名單，並將此黑名單視為“合作的禁區”。
+週三，美國已將包括中共國交通建設公司在內的24家中國公司列入了黑名單，並將目標鎖定在與南中國海建築和軍事行動有關的個人身上，這是美國在有爭議的戰略水路上第一次對北京採取此類製裁行動。
 
-該報告關注的七所中共國大學和研究機構屬於中國領先的科學與工程學院，被認為是該國國防和工業基礎不可或缺的一部分。雖然他們的名字都沒有“國防”或“軍事”名稱，但他們與軍方的聯繫在中共國眾所周知，該組織被稱為“國防七子”。
+[原文鏈接](https://uk.reuters.com/article/us-usa-china-military/trump-administration-says-sinochem-and-others-backed-by-chinese-military-idUKKBN25O2PT)
 
-該報告所審閱論文的合著者有來自與解放軍總裝備部合作的大學部門，後者負責武器開發，負責管理中共國核導彈庫的解放軍火箭部隊， 和國防公司。
-
-該報告發現，有些作者通過使用聽起來更清白的名字來掩蓋其軍事隸屬關係，例如“國家重點實驗室”而不是“國防重點實驗室”。報告還說，在其他情況下，作者大學部門的英語網站並沒有披露與國防有關的細節。
-
-哈爾濱工業大學(HIT)是最頻繁的合作者，該報告發現了63家美國機構與HIT附屬機構合作撰寫了106篇論文。報告說，與能源部資助的勞倫斯·伯克萊國家實驗室，哥倫比亞大學和德克薩斯大學聖安東尼奧分校的研究人員皆是這些論文的共同作者。
-
-報告稱， HIT合作中討論的論文主題從零能耗建築等民用項目到具有潛在軍事應用的項目，包括交通運輸自動化和鋰離子電池開發。
-
-UT-聖安東尼奧大學的發言人表示，自2019年8月以來，此相關研究人員一直與大學無關。 HIT，勞倫斯·伯克利實驗室和哥倫比亞大學的代表沒有立即回應置評請求。
-
-[原文鏈接](https://www.wsj.com/articles/report-sheds-light-on-chinas-use-of-military-linked-researchers-11596092462)
-
-編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/k3RzeV9na7JGn/) 】
+編輯：【 [喜馬拉雅戰鷹團](https://spark.adobe.com/page/Z2Xj2UibNdtaM/) 】
 
 0
