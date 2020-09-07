@@ -1,60 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墻內必看：貨幣崩潰後的生活——委內瑞拉
-`2020-09-07 07:57 GM77` [轉載自GNews](https://gnews.org/zh-hant/338943/)
+## 9月7日財經快訊: 雙循環內外交困, 樓市吹響腰斬潮
+`2020-09-07 10:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/339515/)
 
-作者：文非
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05120230/1599321726710.jpg)圖片來源： [http://tapchitaichinh.vn](http://tapchitaichinh.vn/tai-chinh-quoc-te/chuyen-gia-canh-bao-kinh-te-trung-quoc-chi-co-the-hoi-phuc-trong-quy-iv-321907.html) 
+[1.週一歐元走低，投資者寄希望本週四歐洲央行會議推出進一步刺激政策。](https://mobile.reuters.com/article/amp/idUSKBN25Y03F?__twitter_impression=true)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07074904/1-23.jpg)
+[2.亞洲股市漲跌不一:美中科技緊張局勢加劇，中芯國際在香港的股價暴跌](https://www.cnbc.com/2020/09/07/asia-markets-us-china-tech-tensions-chinas-august-trade-data.html)
 
-- **食品和日用品貴得離譜**
+[3.中共國無人駕駛汽車公司認為未來3年無人駕駛出租車行業會隨著科技公司的競爭發展而急速擴張。](https://www.cnbc.com/2020/09/07/china-driverless-car-firms-see-robotaxis-scaling-up-in-3-years.html)
 
+[4.亞洲股市因估值上漲，石油滑行而動搖](https://www.reuters.com/article/us-global-markets/asian-shares-on-shaky-footing-amid-elevated-valuations-oil-skids-idUSKBN25Y027)
 
-壹罐可樂12400玻利瓦爾。民眾每月最低工資6萬玻利瓦爾，相當於4罐可樂。走進委瑞內拉首都卡拉卡斯（Caracas）的加油站，每當站方人員結束服務、取回油槍，只見駕駛熟練地掏出壹袋米、食用油、香煙或其他商品支付油錢，獨獨不見有人伸手掏錢。曾幾何時，惡性通膨讓委內瑞拉貨幣玻利瓦（bolivar）幾乎失去交易功能，以物易物成為常態，甚至造就“ **壹杯咖啡壹套房** ”的行情。
+[5.中共國恆大集團董事局主席許家印6日宣布自9月7日起至10月8日，恆大全國樓盤全線7折，並透露“金九銀十”兩個月，單月銷售額要衝刺1000億元。](https://finance.ifeng.com/c/7zZ6gPteI8u)
 
-- **搬不動的紙幣**
+[6.中共國家電行業營收排名第一的美的集團遭董事長方洪波和神秘資金拋售：9月2日的一筆13.62億交易後證明是董事長方洪波拋售，套現14億；另一筆18.11億元的更大手筆，目前尚不知背後是誰。](https://finance.ifeng.com/c/7zXMvEYN8Lu)
 
+[7.受中共病毒影響，中共國首都機場公司於2020年9月7日才公開2019年度經審計的財務報表。同時公開的未經審計的2020年上半年財務報表顯示收入與上年同期相比減少63%，營業利潤從上年同期的盈利17.18億元變為上半年的虧損9.85億元。](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1767073&amp;priority=0)
 
-在極高的通貨膨脹下，市面幾乎不使用現金，購買商品都用銀行卡。據稱因為人們出門已基本不帶現金，搶劫案件比過去少了許多。但如果妳到委內瑞拉，可千萬別露出名牌手機，普通民眾都用老式手機。只因為紙幣過於不值錢，購買物品需要大量的貨幣，所以銀行卡支付更為便利。這種情況曾經在1949年的中國大陸出現過，只不過當時叫做金圓券，堪比廢紙，所以1949年後，很多人保留了大量的這種紙幣來糊墻，因為貨幣比紙還要便宜。
+[8.日前中共國銀保監會在官網連續開出30張罰單，5個金融機構民生銀行、華夏銀行、浙商銀行、廣發銀行和中國華融合計被處罰金額達3.2億元。](http://news.esnai.com/2020/0907/208260.shtml)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07074940/2-13.jpg)
+By：【密翻組·金融法律組】
 
-- **基本公共服務設施也有諸多問題，尤其是水電沒有保障。**
-
-
-街頭許多供水管道跑漏，卻無人維修。在電力供應極不正常的情況下，街頭大白天有路燈亮著，多處交道信號燈失靈，城市疏於管理。由於治安狀況惡化，居民已經習慣自我宵禁，晚間灰暗的街頭沒有行人，只有偶爾駛過的車輛。
-
-- **基本藥品缺乏且昂貴**
-
-
-今年61歲的德拉奧斯患糖尿病、高血壓和心臟病多年。他說，以前買藥比現在要容易得多，價格也“平易近人”得多。 “我每天開車總共八九個小時，壹個月差不多能賺6萬主權玻利瓦爾，可是壹盒治高血壓的卡托普利就要1.2萬玻利瓦爾，我每天吃4片，才夠吃5天的。”德拉奧斯搖頭說。
-
-- **美元是最好的貨幣**
-
-
-**人們都想要美元。它是委內瑞拉目前最好的貨幣，因為每個人都接受它，並且它的價值超過了玻利瓦爾。**而且它是物理介質。如果妳在商店或餐廳，妳可以使用 Visa 和 Mastercard 付款。但是，如果是在貧民窟，妳只能用現金。但是，委內瑞拉的確有像 Venmo 這樣的付款應用程序，並且現在很多人都在使用它，它被大家接受僅僅是人們意識到打印收據、小票的成本太高。這就是大多數委內瑞拉人之間互相付款方式的現狀。
-
-- **世界上第壹個推行數字貨幣的國家**
-
-
-2018年2月，委內瑞拉成為第壹個推出類似於比特幣（全球最著名的去中心化數字貨幣）的電子貨幣的國家，委內瑞拉政府希望通過此舉，幫助國家擺脫令人窒息的經濟危機。由於連基礎的保障資產安全和儲值需求都無法滿足，加劇了貨幣的貶值速度。
-
-- **大量難民外逃**
-
-
-到了6月，已有約230萬人逃出深陷危機的委內瑞拉，主要逃到哥倫比亞、厄瓜多、秘魯與巴西，且糧食不足是出逃的主要原因。出逃人數約占委國3280萬人口的7%。聯合國發言人杜雅裏克（Stephane Dujarric）表示，「民眾說，沒有食物吃是他們離開的主因」，且出逃民眾中，約130萬人營養不良。
-
-編者觀點：郭文貴先生曾說委內瑞拉是中共國最好的模板，所以選擇委內瑞拉作為依據推演。當貨幣體系崩塌後，將會給人民的生活帶來了深刻的影響，壹切社會基本結構被打破，所以提前做好準備是極為必要的。
-
-新聞鏈接：
-
-1. [http://intl.ce.cn/sjjj/qy/201908/16/t20190816\_32923982.shtml](http://intl.ce.cn/sjjj/qy/201908/16/t20190816_32923982.shtml)
-2. [https://world.huanqiu.com/article/9CaKrnKi4tv](https://world.huanqiu.com/article/9CaKrnKi4tv)
-3. [https://finance.sina.com.cn/blockchain/roll/2020-03-19/doc-iimxxsth0081266.shtml](https://finance.sina.com.cn/blockchain/roll/2020-03-19/doc-iimxxsth0081266.shtml)
-4. [https://finance.sina.com.cn/blockchain/roll/2019-01-22/doc-ihqfskcn9342210.shtml](https://finance.sina.com.cn/blockchain/roll/2019-01-22/doc-ihqfskcn9342210.shtml)
-5. [https://www.storm.mg/article/1873055](https://www.storm.mg/article/1873055)
-6. [https://www.cna.com.tw/news/firstnews/201808150111.aspx](https://www.cna.com.tw/news/firstnews/201808150111.aspx)
-
-
-1
+0

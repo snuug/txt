@@ -1,35 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 近300人被拘捕! 絕不能放過香港黑警!
-`2020-09-07 06:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/338736/)
+## 【世界多語言圖文】2020/08/31 CCP病毒每日疫情直播簡報
+`2020-09-07 09:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/339242/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07055057/d67961cc-13c3-4d9f-9b1d-bc415a02990f.jpg)圖片來源： [推特](https://twitter.com/Kawaiiiii19/status/1302591671666794496?s=20) 
-9月6日原本是港共政府一早規定的香港立法會議員選舉日，卻因民意一面倒支持泛民主派，港共擔心親共派議員在選舉中落敗，於是7月本港莫名奇妙爆發「第三波」疫情，政府以疫情爆發為由，破天荒將選舉延後一年。
+戰友之家圖文摘要及小語種組
 
-網民不甘政府操作選舉，發起市民6日在九龍油尖旺區上街自由行表達意見。當日所見，絕大部份市民僅僅是逛街購物，偶爾有人叫抗爭口號，但是，港警今日出動二千警力應對，更有不少便衣打扮的黑警，混在人群中伺機抓人。
+[English\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092257/English_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092257/English_0831_CCP_Virus_Updates.pdf)
 
-下午時分，一隊防暴警察在旺角街頭驅趕路過的市民，其中一名12歲女童與兄長正路過附近，警察突然喝令途人停下接受檢查，女童疑害怕快步離開，不料被防暴警察一手抓住，4名黑警上前合力將小女孩推倒按在地上。部分目擊市民十分憤怒，不恥黑警胡亂使用武力，對付小女孩。其兄長也被警員按在地上，有市民見狀大聲指責，不料遭到警方以胡椒噴霧襲擊，有持槍警員更向在場採訪記者及圍觀市民發射胡椒球彈，頓時場面混亂，途人及記者紛紛走避。
+[French\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092306/French_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092306/French_0831_CCP_Virus_Updates.pdf)
 
-兄妹兩人是住在附近的街坊，惟警方以他們違反限聚令為由發出告票（每人罰款2000港元），其母聞訊趕至現場，並陪同兄妹兩人送院驗傷。
+[German-0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092311/German-0831_CCP_Virus_Updates-2.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092311/German-0831_CCP_Virus_Updates-2.pdf)
 
-現場消息稱，兄妹兩人當時打算在旺角買文具，不料遇上警暴，警方強辭奪理指控他們兄妹二人與另一名不認識的男子「三人行」，違反疫情期間的限制令，兄妹的母親何太氣憤表示，一定不會交罰款。
+[Japanese\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092302/Japanese_0831_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092302/Japanese_0831_CCP_Virus_Updates.pdf)
 
-另外，10多名混入人群的便衣警員，在旺角手持胡椒噴霧及伸縮警棍圍毆多名市民，其中一名青年慘遭便衣警毆傷，便衣警將他拖行20米壓在地上拘捕。
-
-至昨天晚上九點，警方已經拘捕近300名市民，當中以青年男女為主。
-
-反送中運動從去年6月開始，持續至今，中共港警犯下滔天大罪，卻沒有受到任何法律制裁，港警的暴行無日無之，香港人深信，待中共倒台滅亡之際，待香港重光之際，便是清算港共黑警之時。
-
-以下是現場的一些照片和視頻：
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07055716/e2a513c0-5c6b-4677-b224-0fcf4b8b74b4.jpg)圖片來源：推特
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07055738/716efe17-e166-459e-9d17-2f0bf69f95e4.jpg) *圖片來源：推特*
-視頻來源：推特
-新聞整理：澳喜
-編輯/審核：Giselle
+[Korean\_0831\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092316/Korean_0831_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07092316/Korean_0831_CCP_Virus_Updates-.pdf)
 
 
 
-1
+0

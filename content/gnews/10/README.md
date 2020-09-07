@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【遇見爆料革命徵文】過去所建立的三觀被完全重塑
-`2020-09-07 06:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/338746/)
+## 【中英文視頻版】2020/09/01 CCP病毒每日疫情直播簡報
+`2020-09-07 09:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/339316/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06050810/2b327492-26be-4630-9a84-eba326b2da68.jpg)
-2020年已經過去一大半了，現在回想起三年前開始看文貴先生爆料到今天的經歷，真覺得恍如隔世，過去所建立的三觀已被完全重塑。
+英文標題 CCP Virus Pandemic Updates Ep221:  The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia
 
-我在國內參加高考時學習過政治歷史。那時的考試都有正確答案，如果你想闡述個人觀點，那麼得到的分數將是零。還記得那時的政治課有三個代表，八榮八恥，馬克思主義唯物觀，等等；歷史則是學習共產黨如何帶領中國人民抗擊日本，如何“宜將胜勇追窮寇”地剿滅蔣匪軍，如何為解決百姓溫飽而打土豪分田地，如何艱難探索治國之道，又如何開啟國門改革開放，等等。那時候我覺得共產黨非常偉大，以至一聽到新聞裡在談日本或台灣修改語文歷史教材時，就特別為他們感到擔心，認為他們不可能學到真正的歷史，也不可能有正確的三觀。
+内容简介
 
-出國留學之後，我開始見識到很多不同的事務和不同的觀念，這讓我時常會反思之前所學過的一切，但仍然只停留在比較膚淺的層次。自從聽了文貴先生的爆料，才發現中共之邪惡實在令人瞠目，完全超出一個善良人的想像。比如，誰能想像中共會隨意活摘人體器官？誰能想像他們會為了搞垮美國和西方進而統治全世界而製造病毒並四處釋放？誰又能想到盜國賊竟然有其沉船計劃和基因圖譜？而這些邪惡的計畫有不少已經被美國司法部的文件所證實。
+1. 某學校匿名老師：“蒙古語是我們日常交流和生存的語言的一種，所以我們對母語的感情十分的深厚，所以作為蒙古族想要保護自己的母語，就這麼簡單。”
+2. 恩和巴圖，南蒙古人權信息中心主任：“這是一個文化種族滅絕政策，這不是光是語言的問題，現在蒙古人的傳統文化已經基本上被中國政府扼殺掉了。現在剩下的就是語言。如果把這個語言扼殺掉了，基本上就沒有蒙古人的（身份特性）。所以我們就強烈譴責中國政府實行這種文化滅絕政策。”
+3. 中共政府在繼新疆實行種族滅絕之後，又要在內蒙古實行文化滅絕政策。引發大規模警民對峙。
+4. 2020年8月底，山西平遙古城私人臨街商舖已有210多戶祖產一夜之間收歸國有，30多家祖產被封被鎖，當地政府強制執行。私人房子被貼了封條，封條上寫著“平遙縣人民政府”。
+5. （8/31）中國十億人沒有公共廁所。到現在中國竟然教育還不免費。連非洲很多國家，它支持的非洲，都已經免費了。黑幫主義。 向非洲一帶一路放出了所謂的上萬億的支持，萬億美元，十來萬億人民幣的支持。 中國現在有人吃不上飯。
 
-難怪共產黨總提到不忘初心，牢記使命。那麼什麼是初心，什麼又是使命呢？
 
-在中國學校裡學過馬列政治的人都知道，共產主義的初心和使命就是要消滅私有製，消滅階級，要把紅旗插遍全世界，要讓全世界共產化。而這些使命或者初心在現實世界中的體現，實際上就讓盜國賊的私生子女，憑著其祖輩所盜取的財富去藍金黃世界的政界和商界，從而達到控制世界的政治和經濟的目的。
+1. Anonymous school teacher stated “Mongolian is the languages we use to communicate and survive on a daily basis, so we have a very strong attachment to our native language, thus it’s as simple as that as Mongolians want to protect our native language.”
+2. Enghebatu, Director of Southern Mongolia Human Rights Information Centre stated”This is a policy of cultural genocide, it is not just a matter of language, now the traditional Mongolian culture has been basically killed by the Chinese government. What is left now is the language. If this language is strangled, there will be no Mongolian (identity). That’s why we strongly condemn the Chinese government for this cultural extermination policy.”
+3. The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia. It has triggered a massive police standoff and armored military vehicles have been seen on street.
+4. By the end of August 2020, more than 210 private street-level shops in Pingyao Ancient City, Shanxi Province, have been nationalized overnight, and more than 30 ancestral properties have been sealed and locked, enforced by the local CCP government. Private houses were plastered with seals that read ‘People’s Government of Pingyao County’.
+5. (8/31 Miles Guo) One billion people still have no access to public toilets. Education in Communist China is not for free even until now. Even some African countries the CCP has been aiding already have free education. The CCP sent Africa up to one trillion dollars aid through the Belt and Road Initiative. Over 10 trillion RMB equivalent. Yet right now in China there’re people are still starving.
 
-面對這些，一個普通人肯定會恐懼害怕，最終可能會選擇跟他們同流合污，畢竟在強大的中共面前，我們都太過渺小。
-
-上天一定是看到了中國人民這麼多年所經受的苦難，所以給我們送來了文貴先生。文貴先生這三年的爆料，讓整個世界都看清了中共的真面目，而中共發動的病毒超限戰又把全球的正義力量集結在一起。在這個歷史大變革時刻，希望每個人都能站在正義的一邊，一起捍衛正義，一起滅共。
-
-我是一個平凡的人，我深知中共存在一天，我們即使身處自由世界也沒有安全，所以我要站出來，要追隨文貴先生推翻暴政。
-
-滅共，就差你一個！
-
-作者：澳喜 貓本小哥
-編輯：期待光明
-審核：Giselle
-
-(文章內容僅代表作者觀點)
 
 0
