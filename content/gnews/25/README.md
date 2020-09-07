@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9.6香港九龍大遊行不足2小時逾30人被捕 1女子播口號被指違國安法
-`2020-09-06 05:31 GM01` [轉載自GNews](https://gnews.org/zh-hant/336931/)
+## 中共軍方「專利」SARS-CoV-2並非來源於自然界——全球十二國科學家聯合發表論文
+`2020-09-06 09:08 GM62` [轉載自GNews](https://gnews.org/zh-hant/337150/)
 
-國內新聞作者：文章
+編輯記者：川渝小哥G  校對編輯：文劍 文宠
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06090042/%E5%9B%BE%E4%B8%80-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06090216/%E5%9B%BE%E4%BA%8C-4.jpg)
+美東時間9月5號,全球權威科學雜誌《醫學病毒學雜誌》發表了一篇名為《有關SARS-CoV-2近端起源的問題》的文章,該文章進入排版發佈階段。 來自美國、瑞士、奧地利、北愛爾蘭、印度、紐西蘭等共十二個國家,包括來自奧地利維也納大學自然與技術科學、惡性腫瘤和自身免疫的穆拉特·塞蘭博士在內的共二十一位動物學、生物學、傳染病毒學等多名權威專家及專業人士參與了該文章的撰寫。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06051850/96-12_ypU5V_1200x0.png)
+該文章認為病毒載體SARS-CoV-2起源於蝙蝠冠狀病毒,但與其他CoV(冠狀病毒)相比,SARS-CoV-2宿主的向性和適應性模式存在明顯差異。 SARS-CoV-2穗蛋白(S蛋白)的唾液酸結合結構域的平坦且不凹陷的表面,與所有其他CoV(冠狀病毒)所觀察到的一般適應性和生存模式相互矛盾。與RaTG13(蝙蝠冠狀病毒)不同,SARS-CoV-2重組可能發生在S蛋白的S1和S2結構域之間,從而可以利用宿主弗林蛋白酶。儘管全球已記錄了數百萬例病例,但SARS-CoV-2的S蛋白沒有任何明顯的進一步重組記錄,使其與其他CoV的重組模型相衝突。同樣,SARS-CoV-2的S蛋白受體結合域(RBD)也沒有出現高密度交叉傳播,從而使SARS-CoV-2與其他RBD中具有正選擇和適應突變的CoV存在明顯區別。
 
-據立場新聞報道，今日原定是 2020 立法會選舉，但香港政府以疫情為由押後壹年，有網民發起今天下午「九龍大遊行」，大批警員在九龍各處戒備，又警告遊行未經批準。有百名市民在油麻地、旺角壹帶聚集，高叫口號要求投票。
+SARS-CoV-2的S蛋白無進一步重組記錄,S蛋白受體結合域也沒有出現高密度交叉傳播,證明SARS-CoV-2非自然進化而成。SARS-CoV-2通過人工”創造”而成,而具備人工”創造”條件的只有中共控制的各類病毒實驗室。英雄科學家閆麗夢博士於7月30號在WARROOM戰鬥室直播中提到的,SARS-CoV-2是中共解放軍實驗室獨家擁有的病毒,肆虐全球的CCP病毒是中共軍方的生化武器!
 
-截至下午3時半，油麻地區內約30人涉嫌非法集結被捕，1女子播口號被指違《香港國安法》。
+[原文](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06090248/%E5%9B%BE%E4%B8%89.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06090248/%E5%9B%BE%E4%B8%89.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052428/118928661_3431504146935181_4708514144946095686_n.jpg)大批市民被截查後　遭帶上警方旅遊巴
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052530/118824265_3431283136957282_8541859855912246467_n_5wq3z_1200x0.jpg)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052627/118772264_3431492620269667_2537421508236614813_n.jpg)其間壹名女子感到不適，送上救護車
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06052922/118741105_3431363420282587_7335218670418204984_n_fVjVN_1200x0.jpg)
-原文鏈接：https://www.thestandnews.com/politics/9-6-%E4%B9%9D%E9%BE%8D%E9%81%8A%E8%A1%8C-%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0-%E7%99%BE%E4%BA%BA%E5%8F%AB%E5%8F%A3%E8%99%9F%E8%A6%81%E6%B1%82%E6%8A%95%E7%A5%A8-%E8%AD%A6%E5%A4%A7%E8%A6%8F%E6%A8%A1%E6%88%AA%E6%9F%A5-%E7%A4%BE%E6%B0%91%E9%80%A3-3-%E4%BA%BA%E8%A2%AB%E6%8D%95/
+
+
+新聞來源:
+
+[https://onlinelibrary.wiley.com/doi/abs/10.1002/jmv.26478](https://onlinelibrary.wiley.com/doi/abs/10.1002/jmv.26478)
+
+(有關SARS-CoV-2近端起源的問題 《醫學病毒學雜誌》)
 
 0

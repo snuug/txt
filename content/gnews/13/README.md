@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/08/30 CCP病毒每日疫情直播簡報
-`2020-09-06 09:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/337246/)
+## 香港警方國安處上門拘捕人民力量副主席譚得志
+`2020-09-06 11:10 GM77` [轉載自GNews](https://gnews.org/zh-hant/337427/)
 
-戰友之家圖文摘要及小語種組
+編撰:荔枝、Zhong、文肯尼
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06110043/%E6%88%AA%E5%B1%8F2020-09-06-%E4%B8%8B%E5%8D%8810.57.02-1.png)
+**新聞摘要**
 
-[English\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093421/English_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093421/English_0830_CCP_Virus_Updates.pdf)
+據悉,近日港警去到人民力量副主席譚得志(快必)位於大埔的住所,進行搜查。
 
-[French\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093434/French_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093434/French_0830_CCP_Virus_Updates.pdf)
+經譚得志助理向《立場新聞》表示,警方是以「國安法」為法律依據,入屋搜查。 至於聲請搜查令的原因案件,直指譚得志今年3至7月的言論。
 
-[German\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093425/German_0830_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093425/German_0830_CCP_Virus_Updates_.pdf)
+且譚得志在其FB粉絲專頁,發文指出到他住所搜查的是國安處人員,且譚得志恐被帶回警署受偵訊。
 
-[Japanese\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095305/Japanese_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095305/Japanese_0830_CCP_Virus_Updates.pdf)
+**員警搜查片段**
 
-[Korean\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095309/Korean_0830_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06095309/Korean_0830_CCP_Virus_Updates-.pdf)
+[https://bit.ly/3i4m75g](https://bit.ly/3i4m75g)
 
-[Spanish\_0830\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093429/Spanish_0830_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/06093429/Spanish_0830_CCP_Virus_Updates.pdf)
+**新聞評論**
 
+人身自由是構成人的最基本的權力,在任何法治社會都被認為是神聖不可侵犯的。 人身自由的地位甚至遠高於言論自由,其原因在於,人身自由是其他人權的前提,沒有人身自由,談何言論自由?
 
+又雖然存在法治的社會當中,的確可以基於特定的目的,向法院申請搜查令進入個人住所進行搜查。 但這種強力侵犯人權的國家行為,應該要受到很嚴格的法律規範限制,今天賦予香港警方可以進入譚得志家中搜查的法律依據是「臭名遠播的港版國安法」。 在授權下,警方可以開展任何搜查並有權將個人任意帶回警署進行詢問。 中共港版國安法的實行已經使香港社會徹底進入了紅色恐怖當中。
+
+今天中共頒布的惡法—港版國安法,不僅是將法律對人民隱私權的保障刪除,更是把人民人身自由的權利棄之不顧。 國安法所追求的目的,並非造福人民,而是幫助中國共產黨在其所為”一國兩制”的香港實行專政的政治目的。
+
+新聞來源: 立場新聞
 
 0
