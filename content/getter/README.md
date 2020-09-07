@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-09-05T01:51:10`
 ##
 
+[9月7日 GTV版OBS直播使用简介](/content/getter/content/2020/09/5f5643aadaed5626f98d6ea1.md)
+
+**郭文贵MILES** `2020-09-07T14:28:58`
+##
+
 [9月7号：尊敬的战友们好，你们健身了吗？你们传统播C C P病毒．香港危机真相了吗？一切都已经开始！](/content/getter/content/2020/09/5f563215daed5626f98d5db8.md)
 
 **郭文贵MILES** `2020-09-07T13:13:57`
@@ -156,10 +161,5 @@
 [北京党媒发力抹黑蓬佩奥是「三姓家奴」「政治病毒」  CCP controlled media made a great effort to smear Sec....](/content/getter/content/2020/09/5f4f13cbdaed5626f9882a19.md)
 
 **郭文贵MILES** `2020-09-02T03:38:51`
-##
-
-[9月1日 班农战斗室 尼基·戴维斯的认罪预示着美国的Deep State将被彻底揭露  September 1st, WarRoom：  Nickie Davi...](/content/getter/content/2020/09/5f4f12c7daed5626f9882969.md)
-
-**郭文贵MILES** `2020-09-02T03:34:31`
 ##
 
