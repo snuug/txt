@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-09-05T01:51:10`
 ##
 
+[9月7号：尊敬的战友们好，明天9月8号上午．9:30文贵直播，陈贵明天唱歌给战友们听没有任何爆料！一切都已经开始！](/content/getter/content/2020/09/5f56d80ddaed5626f98dd611.md)
+
+**郭文贵MILES** `2020-09-08T01:02:05`
+##
+
 [9月7日 GTV版OBS直播使用简介](/content/getter/content/2020/09/5f5643aadaed5626f98d6ea1.md)
 
 **郭文贵MILES** `2020-09-07T14:28:58`
@@ -156,10 +161,5 @@
 [中共极力抹黑蓬佩奥，政治生涯“被朴素”  CCP state media diligently defame secretary Pompeo: his pol...](/content/getter/content/2020/09/5f4f14c1daed5626f9882ac6.md)
 
 **郭文贵MILES** `2020-09-02T03:42:57`
-##
-
-[北京党媒发力抹黑蓬佩奥是「三姓家奴」「政治病毒」  CCP controlled media made a great effort to smear Sec....](/content/getter/content/2020/09/5f4f13cbdaed5626f9882a19.md)
-
-**郭文贵MILES** `2020-09-02T03:38:51`
 ##
 
