@@ -23,6 +23,11 @@
 **郭文贵MILES** `2020-09-05T01:51:10`
 ##
 
+[9月7日 尊敬的战友们，请大家举报这个假G Fashion 招募账号， GFashion没有在GTV上进行任何招募，也没有任何官方频道，谢谢！](/content/getter/content/2020/09/5f570c11daed5626f98dfd6c.md)
+
+**郭文贵MILES** `2020-09-08T04:44:01`
+##
+
 [9月7号：尊敬的战友们好，明天9月8号上午．9:30文贵直播，陈贵明天唱歌给战友们听没有任何爆料！一切都已经开始！](/content/getter/content/2020/09/5f56d80ddaed5626f98dd611.md)
 
 **郭文贵MILES** `2020-09-08T01:02:05`
@@ -156,10 +161,5 @@
 [9月2号：尊敬的战友们好．文贵不过气用．最难听的嗓子……唱了两首歌……结果在美国……及全世界网络被封杀……郭文贵的名字．还有这两首歌全部也被封杀，但是他封杀不了...](/content/getter/content/2020/09/5f4fa198daed5626f98891e4.md)
 
 **郭文贵MILES** `2020-09-02T13:43:52`
-##
-
-[中共极力抹黑蓬佩奥，政治生涯“被朴素”  CCP state media diligently defame secretary Pompeo: his pol...](/content/getter/content/2020/09/5f4f14c1daed5626f9882ac6.md)
-
-**郭文贵MILES** `2020-09-02T03:42:57`
 ##
 
