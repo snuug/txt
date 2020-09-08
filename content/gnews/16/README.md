@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國地方政府破産潮一觸即發！
-`2020-09-08 08:55 GM64` [轉載自GNews](https://gnews.org/zh-hant/341092/)
+## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
+`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
 
-內新聞：大時代的小螞蟻
+英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
 
-由于壞賬潮，國內大銀行利潤出現了最嚴重的下滑
-中共國在進行了幾輪財稅改革後，中央與地方的財政收支和支出權責劃分基本形成。
+视频重点
 
-```
-  中央與地方收入劃分格局：中央固定收入包括進口環節增值稅和消費稅、關稅、國內消費稅、車輛購置稅、船舶噸稅、海洋石油資源稅、證券交易印花稅等。中央與地方共享收入包括國內增值稅、企業所得稅、個人所得稅。地方固定收入包括環境保護稅、房産稅、城鎮土地使用稅、城市維護建設稅、土地增值稅、資源稅、印花稅、車船稅、耕地占用稅、契稅、煙葉稅、教育費附加等。
+1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
+2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
+3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
+4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
+5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
 
-  中央與地方財政事權和支出責任劃分基本沿襲了改革前的格局，除國防、外交、重大基本建設外，主要按照隸屬關系確定支出範圍。
 
- 基本養老保險、義務教育、醫療衛生等領域，中央和地方財政事權和支出責任劃分按照相關規定采取“一事一議”的方式，中央財政按規定比例進行轉移支付。這點成了中共拿績效考核地方政府及官員的一把利劍！
+1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
+2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
+3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
+4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
+5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
 
-  中央擁有較爲穩定的財政事權，財力相對集中。有差距大地區發展差的地方政府則面臨著收入有限，支出較多的財政困局。
 
-    參考中共財政部長劉昆今年在全國人大常委會上報告的2019年數據，中央和地方收支情況如下：全國財政收入中，中央本級收入占46.9%，地方本級收入占53.1%。全國財政支出中，中央本級支出占14.7%，地方本級支出占85.3%。中央財政可支配收入中，用于對地方轉移支付的部分占67.9%。
-
-   也就是說中央拿了全部收入的46.9%，實際只支出了全部支出的45.83%。中共拿這1%多的財政收入去做了些啥事？沒人知道！
-
-   2019世界500強企業排行榜中，有129家中國企業，48家中央企業。這些世界級的中共黨産—央企許多都處于連年虧損狀態。中國的財政收入超過50%是來自于中共國小微企業，這些企業都是地方政府的基本財政來源。中央財政充盈，還有衆多央企可以支配，享受著天量的三公經費。地方也不甘落後，拼了命地壓榨區域內的企業經營者和人民。
-
-   隨著中共松綁經濟，大量外資外企入駐中國，再加上百姓生活得改善等因素疊加，需要大量地使用土地。中共國各級地方政府開始利用手中的土地財政權，大搞樓宇經濟。趁著搞城市發展建設，設置城投公司大肆圈錢，並從中中飽私囊。各地借著城建投資的錢，紛紛來開設銀行，再讓銀行上市圈錢。呈現出地方性銀行紮堆上市的金融盛世。
-
-  在地方政府各顯神通把地産經濟的泡泡吹到隨時都會破裂時，通過地産圈來的快錢卻成了手中甩不掉的巨額債務。在地方政府面臨破産時，中共打著金融創新的旗號，給地方政府扔下了P2P這根救命稻草。但，無數中國普通家庭的血本無歸哀鴻遍野不僅沒能填平中共國地方政府巨大的債務窟窿，反而越填越深！
-
- 中美貿易關系的不斷惡化，美國取消香港自由貿易區地位，中共國廉價勞動力優勢不再，加上中共狂妄無下限的種種令人不齒的行爲，讓世界的投資客對中共國敬而遠之，紛紛撤廠撤資逃離遷入他國。外貿經濟重挫下，中央和地方雙雙財政收入不保。地方政府此時再失去穩定的中央財政的支持還能支撐多久呢？
-
-無論中共把數據描繪得多少好看，那也只是中共統一口徑下所編制的欺世謊言。無論這個被吹到巨大的泡泡在陽光下有多麽的五彩斑斓，也逃脫不了下一秒就會破裂的命運！
-```
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08080915/Screenshot_2020-09-08-15-55-30-698_Discord.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08080925/Screenshot_2020-09-08-15-58-36-240_Discord.png)
 0

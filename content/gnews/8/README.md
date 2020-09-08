@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月8日財經快訊: 銀行業降薪, 地方債迸發
-`2020-09-08 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341218/)
+## 外交談判後，澳洲撤離所有駐中共國記者
+`2020-09-08 11:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/341544/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08091322/Picture15.png)圖片來源： [https://www.marketwatch.com](https://www.marketwatch.com/story/the-next-banking-crisis-is-already-in-the-making-2014-05-07) 
-[1. 紐約商業地產銷售降 54% 至歷史新低。](https://www.zerohedge.com/markets/nyc-commercial-real-estate-sales-plummet-54-lowest-record)
+喜馬拉雅聯盟加拿大農場 坐看雲起時
 
-[2. 英國周二將告訴歐盟，本週貿易談判必須取得進展，否則政府將加快準備，在沒有達成協議的情況下離開歐盟，因為時間已逼近年底的最後期限。歐盟則希望確定英國政府不會通過不公平的金融援助，幫助了英國企業卻傷害到歐盟企業。](https://www.reuters.com/article/uk-britain-eu-frost-idUSKBN25Y23A?taid=5f56b595ca23fc000139a3ac&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+校對 文騎士
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08113512/%E5%9B%BE%E7%89%873.png)圖片來源：台灣新聞
+據9NEWS 9月8日報導，在中共國從事新聞工作的兩名澳洲記者，因安全問題考量而戲劇性的撤離了中共國。此次撤離是自上世紀70年代以來，澳大利亞首次沒有記者常駐中共國。
 
-[3.   澳大利亞維多利亞州 CCP 病毒疫情第二次爆發，迫使 “ 一帶一路 ” 州長丹尼爾 · 安德魯斯再次延長兩週嚴禁活動期。中小企業業主苦不堪言，抱怨州長是在往 死亡的路上狂奔。](https://au.finance.yahoo.com/news/highway-to-hell-aussies-slam-crushing-lockdown-extension-011545812.html)
+文中提到，據澳大利亞聯邦通訊社報導，中共國國家安全官員在上週深夜突訪ABC記者Bill Birtles和澳大利亞金融評論記者Michael Smith的住所，並要求這兩名記者前往接受詢問，且被告知禁止離開中共國。在此之後，這兩名記者在澳大利亞外交使團的保護下度過了5天。
 
-[4. 日本內閣府週二公佈修正數據顯示，第二季當季 GDP 環比萎縮 28.1% ，萎縮幅度為戰後之最。 7 月家庭支出同比下降 7.6% 。實際薪資連續第五個月下降。外界普遍預計央行將維持貨幣政策。](https://cn.reuters.com/article/japan-economy-gdp-q2-0908-idCNKBS25Z03V)
+澳大利亞政府向Birtles和Smith提供了領事支持，在進行了高級別外交談判後，中共允許Birtles和Smith在接受審訊後返回澳大利亞。
 
-[5. 據《華爾街日報》週一報導，中國正在發起一項倡議，制定全球數據安全標準，反對美國勸說各國利用中國技術來打擊網絡的努力。據援引其審查的草案說，根據其新的《全球數據安全倡議》，中國將呼籲所有國家以 “ 全面、客觀和基於證據的方式 ” 處理數據安全問題。](https://www.reuters.com/article/us-china-usa-data-idUSKBN25Y1WK?taid=5f56bca6b524370001652516&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+9News政治編輯克里斯∙烏爾曼（Chris Uhlmann）說，澳大利亞金融評論和ABC認為他們的記者面臨著可能被任意拘留的無法接受的風險，並指出這是一件非同尋常的事件，當前的中澳關係令記者們不再認為自己在中共國是安全的。
 
-[6. 中共國銀行業六大行員工降薪：上半年中共國 36 家 A 股上市銀行的業績普遍下滑，資產質量承壓。這種情況下，員工的薪酬也跟著出現下調。 36 家上市銀行今年上半年支付給職工以及為職工支付的現金合計為 4 ， 008.4 億元，相比去年同期的 4 ， 014.3 億元，下降 5.9 億元，同比下降幅度達到 1.5% 。](https://finance.ifeng.com/c/7zaepkDkNHc)
+當回到悉尼機場時，Birtles慶幸自己終於回到了家，回到一個真正法治的國家是一種解脫。
 
-[7. 中共國農夫山泉公司 8 日首日在港掛牌，開盤價較招股價高出 85% ，成為今年認購人數雖多之新股，並創紀錄凍結資金逾 6 ， 700 億港幣。](https://cn.reuters.com/article/nongfu-spring-debut-0908-tues-idCNKBS25Z06G)
+外交部長瑪麗斯∙佩恩在2GB節目中說，中共國對Smith和Birtles的舉動”令人失望”。並對澳大利亞沒有駐中共國記者進行新聞報導表示擔憂，同時敦促在中共國和香港工作的澳大利亞人密切關注政府的旅行建議，”不要去中共國旅行”。
 
-[8.路透綜合報導，中共國8月新增人民幣貸款預計為1.22萬億元人民幣，環比增逾兩成，同比持平；M2同比增速預計仍為10.7%。在地方政府債券發行量大幅反彈驅動下，8月社融增量為2.73萬億元，環比大增逾六成，與去年同期相比漲逾兩成。](https://cn.reuters.com/article/china-aug-cpi-preview-0908-tues-idCNKBS25Z11S)
+據中共國安全官員所言，對Smith和Birtles的調查與最近澳大利亞記者成蕾被拘留有關。
 
-By：【秘翻組·金融法律組】
+外交部長佩恩在節目中說，她無法深入了解成蕾被拘留的細節。但澳大利亞有機會在成蕾被關押的拘留中心通過視頻進行領事訪問。
+
+澳大利亞公民成蕾是中共國國家廣播公司CGTN在北京的知名電視主播。 8月31日，外交部長瑪麗斯-佩恩證實，成蕾被中共國當局拘留。據信，成蕾在佩恩女士發表聲明前幾周其實已被拘留。
+
+屢獲殊榮的記者自由聯盟的發言人彼得∙格雷斯特（Peter Greste）說，中共國騷擾這兩名澳大利亞記者是為了在政治和外交上取得優勢。沒有任何證據表明Birtles或Smith有任何不法行為。格雷斯特指出，記者永遠不應該被當作政治棋子和人質。同時此次事件表明，當涉及到獨立和自由的新聞報導時，中共國已經變得何等的不寬容。
+
+參考鏈接：https://www.9news.com.au/national/bill-birtles-michael-smith-two-australian-journalists-pulled-from-china-after-cheng-lei-detention-abc-afr/f9d7e92a -e04a-4866-a08e-68786809e6b9
 
 0

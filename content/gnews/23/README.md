@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在捷克親共勢力——捷克總統澤曼
-`2020-09-08 08:22 shangshang` [轉載自GNews](https://gnews.org/zh-hant/341107/)
+## 9月8日財經快訊: 銀行業降薪, 地方債迸發
+`2020-09-08 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341218/)
 
-內新聞作者：文婷
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08073711/186D920F-9081-47BD-9D90-CA4F4B078915.jpeg)
-2020年9月7日中共外交部趙立堅對捷克總統澤曼批評參議院主席維斯特奇爾執意訪台作出回應：贊賞了澤曼總統能在涉台問題上主動站隊中共，希望總統能壓制捷克國內的親台勢力能和中共國一起攜手排除干擾因素，有利共享，推動雙邊關係繼續向前發展。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08091322/Picture15.png)圖片來源： [https://www.marketwatch.com](https://www.marketwatch.com/story/the-next-banking-crisis-is-already-in-the-making-2014-05-07) 
+[1. 紐約商業地產銷售降 54% 至歷史新低。](https://www.zerohedge.com/markets/nyc-commercial-real-estate-sales-plummet-54-lowest-record)
 
-此時中共派出了捷克總統澤曼為中共站台，說白了就是起了作秀、宣傳的功能。對內宣傳跟歐洲關係沒有破裂和解體，對外宣傳捷克重要人士支持中共國，也給美國、歐洲親共勢力心裡積極的暗示。
+[2. 英國周二將告訴歐盟，本週貿易談判必須取得進展，否則政府將加快準備，在沒有達成協議的情況下離開歐盟，因為時間已逼近年底的最後期限。歐盟則希望確定英國政府不會通過不公平的金融援助，幫助了英國企業卻傷害到歐盟企業。](https://www.reuters.com/article/uk-britain-eu-frost-idUSKBN25Y23A?taid=5f56b595ca23fc000139a3ac&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-捷克總統澤曼與中共國的關係：
+[3.   澳大利亞維多利亞州 CCP 病毒疫情第二次爆發，迫使 “ 一帶一路 ” 州長丹尼爾 · 安德魯斯再次延長兩週嚴禁活動期。中小企業業主苦不堪言，抱怨州長是在往 死亡的路上狂奔。](https://au.finance.yahoo.com/news/highway-to-hell-aussies-slam-crushing-lockdown-extension-011545812.html)
 
-2015年9月，澤曼應邀來中共國出席了紀念「抗日戰爭暨世界反法西斯戰爭勝利70週年閱兵活動」，登上天安門城樓觀看閱兵，被中共贊為最給面子的捷克總統。
+[4. 日本內閣府週二公佈修正數據顯示，第二季當季 GDP 環比萎縮 28.1% ，萎縮幅度為戰後之最。 7 月家庭支出同比下降 7.6% 。實際薪資連續第五個月下降。外界普遍預計央行將維持貨幣政策。](https://cn.reuters.com/article/japan-economy-gdp-q2-0908-idCNKBS25Z03V)
 
-2016年3月29日，澤曼在布拉格會見了習近平。
+[5. 據《華爾街日報》週一報導，中國正在發起一項倡議，制定全球數據安全標準，反對美國勸說各國利用中國技術來打擊網絡的努力。據援引其審查的草案說，根據其新的《全球數據安全倡議》，中國將呼籲所有國家以 “ 全面、客觀和基於證據的方式 ” 處理數據安全問題。](https://www.reuters.com/article/us-china-usa-data-idUSKBN25Y1WK?taid=5f56bca6b524370001652516&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-2017年5月12日，中共習近平在人民大會堂會見出席「一帶一路」國際合作高峰論壇的捷克總統澤曼 ；16日澤曼總統參觀了侵華日軍南京大屠殺遇難同胞紀念館並敬獻花圈，成為參觀該館的首位在職外國總統。
+[6. 中共國銀行業六大行員工降薪：上半年中共國 36 家 A 股上市銀行的業績普遍下滑，資產質量承壓。這種情況下，員工的薪酬也跟著出現下調。 36 家上市銀行今年上半年支付給職工以及為職工支付的現金合計為 4 ， 008.4 億元，相比去年同期的 4 ， 014.3 億元，下降 5.9 億元，同比下降幅度達到 1.5% 。](https://finance.ifeng.com/c/7zaepkDkNHc)
 
-2018年11月5日，習近平在上海會見澤曼。
+[7. 中共國農夫山泉公司 8 日首日在港掛牌，開盤價較招股價高出 85% ，成為今年認購人數雖多之新股，並創紀錄凍結資金逾 6 ， 700 億港幣。](https://cn.reuters.com/article/nongfu-spring-debut-0908-tues-idCNKBS25Z06G)
 
-2019年10月25日俄羅斯衛星網（Sputnik）報道，捷克總統澤曼痛批本國情報部門「預設目標」、針對中俄的搜尋行為。
+[8.路透綜合報導，中共國8月新增人民幣貸款預計為1.22萬億元人民幣，環比增逾兩成，同比持平；M2同比增速預計仍為10.7%。在地方政府債券發行量大幅反彈驅動下，8月社融增量為2.73萬億元，環比大增逾六成，與去年同期相比漲逾兩成。](https://cn.reuters.com/article/china-aug-cpi-preview-0908-tues-idCNKBS25Z11S)
 
-2020年自ccp病毒爆發以來澤曼公開場合對病毒起源中共國的「陰謀論」進行駁斥，還率先表態不讓中共國索賠，受到了中共上下的一致嘉獎。
-
-從捷克總統澤曼與中共國的「有好關係」中可以看出捷克總統澤曼就是中共利用「藍金黃」在捷克培養的親共勢力，在中共受到打擊的關鍵時刻起到了大外宣作用，給國內國外又一次的宣傳和洗腦，提振親共勢力的信心。
+By：【秘翻組·金融法律組】
 
 0

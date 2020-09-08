@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/02 CCP病毒每日疫情直播簡報
-`2020-09-08 08:07 GM62` [轉載自GNews](https://gnews.org/zh-hant/340053/)
+## 中共國地方政府破産潮一觸即發！
+`2020-09-08 08:55 GM64` [轉載自GNews](https://gnews.org/zh-hant/341092/)
 
-英文標題　CCP Virus Pandemic Updates Ep222:  The CCP is intending to abolish Mongolian language in schools. The Mongolian people are fighting back to defend their mother tongue
+內新聞：大時代的小螞蟻
 
-內容簡介
+由于壞賬潮，國內大銀行利潤出現了最嚴重的下滑
+中共國在進行了幾輪財稅改革後，中央與地方的財政收支和支出權責劃分基本形成。
 
-1. 近日,美國北德州大學（University of North Texas）突然下令驅逐15名中共國家留學基金委員會資助的公派訪問學者和留學生,並限他們在1個月內離境。
-2. 中共取消蒙古語教學，蒙古族為捍衛母語而戰，學生被禁止上街，就在校園內遊行抗議。
-3. 烏魯木齊每天警報長鳴，人民活在恐懼中。 “就是這個警報聲，每天都是，不知道哪一天才能出去。”當地居民普遍認為，中共當局以疫情為藉口，用封鎖、隔離或抓捕的方式，大範圍地抓人，抓得更徹底，以此進一步加強對新疆人的管制。
-4. 捷克參議院議長維特齊率團訪台，引發中共外長王毅“戰狼式”發言威脅。王毅失格的言論惹怒歐盟國家，紛紛力挺維特齊。
-5. （9月1日）你看看蒙古那些孩子，這是多大的事。蒙古的很多戰友說怎麼辦，我說你放心，你們不會白白付出代價的。 記住，蒙古的孩子們，我們已經在西方發起了，所有的，關於蒙古的現在的情況的。
+```
+  中央與地方收入劃分格局：中央固定收入包括進口環節增值稅和消費稅、關稅、國內消費稅、車輛購置稅、船舶噸稅、海洋石油資源稅、證券交易印花稅等。中央與地方共享收入包括國內增值稅、企業所得稅、個人所得稅。地方固定收入包括環境保護稅、房産稅、城鎮土地使用稅、城市維護建設稅、土地增值稅、資源稅、印花稅、車船稅、耕地占用稅、契稅、煙葉稅、教育費附加等。
 
+  中央與地方財政事權和支出責任劃分基本沿襲了改革前的格局，除國防、外交、重大基本建設外，主要按照隸屬關系確定支出範圍。
 
-1. Recently, the University of North Texas in the United States suddenly ordered the expulsion of 15 government-sponsored visiting scholars and international students funded by CCP’s China Scholarship Council, they have to leave the U.S. within one month.
-2. The CCP is intending to abolish Mongolian language in schools. The Mongolian people are fighting back to defend their mother tongue. Students marched on campus to protest the suspension of teaching in Mongolian language since they have been prohibited to leave campuses.
-3. The sirens scream in Urumqi every day while people live in fear. “That’s the siren, every single day, I have no idea when I could get out again. ” Local residents believe that the CCP authorities are using the epidemic as an excuse to arrest people on a larger scale and more thoroughly by blocking, quarantining, and detaining them. CCP’s object is to strengthen its control over people in Xinjiang.
-4. The visit of Czech delegation led by the president of the Senate Miloš Vystrčil to Taiwan made CCP’s Foreign Minister Wang Yi hit the roof, who reacted with a “wolf warrior” kind of threat in his rhetoric. Wang Yi’s outrageous statement triggered a lot of anger among EU countries, which overwhelmingly stand with Vystrčil.
-5. (9/1)  Look at those Mongolian kids. This is such a big deal.  Many of our Mongolian brothers and sisters asked me what they should do. I said “Don’t worry. The price you are paying will not be in vain.” Remember, children of Mongolia, we are exposing the facts on the current situation in Inner Mongolia to the West.
+ 基本養老保險、義務教育、醫療衛生等領域，中央和地方財政事權和支出責任劃分按照相關規定采取“一事一議”的方式，中央財政按規定比例進行轉移支付。這點成了中共拿績效考核地方政府及官員的一把利劍！
 
+  中央擁有較爲穩定的財政事權，財力相對集中。有差距大地區發展差的地方政府則面臨著收入有限，支出較多的財政困局。
 
+    參考中共財政部長劉昆今年在全國人大常委會上報告的2019年數據，中央和地方收支情況如下：全國財政收入中，中央本級收入占46.9%，地方本級收入占53.1%。全國財政支出中，中央本級支出占14.7%，地方本級支出占85.3%。中央財政可支配收入中，用于對地方轉移支付的部分占67.9%。
+
+   也就是說中央拿了全部收入的46.9%，實際只支出了全部支出的45.83%。中共拿這1%多的財政收入去做了些啥事？沒人知道！
+
+   2019世界500強企業排行榜中，有129家中國企業，48家中央企業。這些世界級的中共黨産—央企許多都處于連年虧損狀態。中國的財政收入超過50%是來自于中共國小微企業，這些企業都是地方政府的基本財政來源。中央財政充盈，還有衆多央企可以支配，享受著天量的三公經費。地方也不甘落後，拼了命地壓榨區域內的企業經營者和人民。
+
+   隨著中共松綁經濟，大量外資外企入駐中國，再加上百姓生活得改善等因素疊加，需要大量地使用土地。中共國各級地方政府開始利用手中的土地財政權，大搞樓宇經濟。趁著搞城市發展建設，設置城投公司大肆圈錢，並從中中飽私囊。各地借著城建投資的錢，紛紛來開設銀行，再讓銀行上市圈錢。呈現出地方性銀行紮堆上市的金融盛世。
+
+  在地方政府各顯神通把地産經濟的泡泡吹到隨時都會破裂時，通過地産圈來的快錢卻成了手中甩不掉的巨額債務。在地方政府面臨破産時，中共打著金融創新的旗號，給地方政府扔下了P2P這根救命稻草。但，無數中國普通家庭的血本無歸哀鴻遍野不僅沒能填平中共國地方政府巨大的債務窟窿，反而越填越深！
+
+ 中美貿易關系的不斷惡化，美國取消香港自由貿易區地位，中共國廉價勞動力優勢不再，加上中共狂妄無下限的種種令人不齒的行爲，讓世界的投資客對中共國敬而遠之，紛紛撤廠撤資逃離遷入他國。外貿經濟重挫下，中央和地方雙雙財政收入不保。地方政府此時再失去穩定的中央財政的支持還能支撐多久呢？
+
+無論中共把數據描繪得多少好看，那也只是中共統一口徑下所編制的欺世謊言。無論這個被吹到巨大的泡泡在陽光下有多麽的五彩斑斓，也逃脫不了下一秒就會破裂的命運！
+```
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08080915/Screenshot_2020-09-08-15-55-30-698_Discord.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08080925/Screenshot_2020-09-08-15-58-36-240_Discord.png)
 0

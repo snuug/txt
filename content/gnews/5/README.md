@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
-`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
+## 【香港要聞】【引章摘句】黨辦下旨抹除「三權分立」 不能以司法獨立架空行政主導體制
+`2020-09-08 12:10 GM42` [轉載自GNews](https://gnews.org/zh-hant/341588/)
 
-英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
-
-视频重点
-
-1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
-2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
-3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
-4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
-5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
+製作單位：戰友之家-粵語組
+評述：卡西歐
+整理：卡西歐
+後期製作：文粵
 
 
-1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
-2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
-3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
-4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
-5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
 
+引章摘句
+
+香港電台訊
+中聯辦表示，香港特區政治體制是「行政主導」，而非「三權分立」。發言人說，香港特區政治體制可概括為「三權分置、行政主導、司法獨立、行政長官代表特區向中央總負責」，即行政長官在特區政治體制中，是居於核心地位的「雙首長」，對中央和香港特區「雙負責」。發言人強調，香港不是獨立政治實體，所有權力均來自中央授權。在「一國兩制」下清晰明確，不存在灰色地帶。
+
+香港電台訊
+國務院港澳辦公室發言人表示，在以行政長官為核心的行政主導體制下，香港特區行政機關、立法機關既相互制約又相互配合，且重在配合，司法機關獨立行使審判權。發言人又強調，不搞「三權分立」是香港基本法起草政治體制有關內容時的一個重要指導思想。
+
+立場新聞訊
+《大公報》《文匯報》上周六頭版刊登終審法院前常任法官列顯倫專訪和評論，借列顯倫評論批評法庭，指香港司法阻礙特首施政「急需改革」，將近日三權分立的討論，引申到是反對派的「反中」行動。
+《文匯報》屬下的網媒《點新聞》上月底（8月28日）在網站發表報道，點名五名裁判官、法官，包括何俊堯、錢禮、林子勤、黃崇厚及張潔宜，內容引述「市民爆料」，批評五官過往判決「存在嚴重問題」，案情嚴重的罪行被輕判，又圖文並茂並指批准疑犯保釋，或讓他們有機會潛逃。指違國安法被捕的「香港故事」成員李宇軒、連同在反修例案件被捕者等 12 人中有七人保釋裁判，都是經東區法院主任裁判官錢禮處理。報道引述「市民」質疑法官的裁判過寬，「造就黑暴疑犯『着草』機會。」
+裁判官何俊堯早前審理東區區議員仇栩欣襲警案，判罪名不成立，並批評兩名涉案警員作供不合情理，形容「一個謊言接著一個謊言」。民建聯議員葛佩帆和周浩鼎，事後批評何俊堯立場偏頗、裁決不公，去信終審法院首席法官馬道立，要求停止讓何俊堯審理與政治相關案件。
+《星島日報》報道指，東區法院裁判官何俊堯將調往高等法院，任職「刑事案件排期法官」，專責處理原訟庭刑事案件的排期事宜，職責涉及行政工作，毋須審案，意味何暫時不會審理刑事案件。公民黨立法會議員譚文豪指，建制派議員及左派報章攻擊司法機構，營造壓力，認為是在壓力下安排何俊堯調職，質疑是干涉司法獨立。
+
+資料來源：香港電台 立場新聞
+
+[https://news.rthk.hk/rthk/ch/component/k2/1548353-20200907.htm](https://news.rthk.hk/rthk/ch/component/k2/1548353-20200907.htm)
+
+[https://news.rthk.hk/rthk/ch/component/k2/1548352-20200907.htm](https://news.rthk.hk/rthk/ch/component/k2/1548352-20200907.htm)
+
+[https://www.thestandnews.com/politics/%E4%BD%95%E4%BF%8A%E5%A0%AF%E8%AA%BF%E8%81%B7-%E4%B8%AD%E8%81%AF%E8%BE%A6%E6%8E%A7%E5%88%B6%E5%AA%92%E9%AB%94%E9%A0%BB%E7%99%BC%E5%8A%9F-%E9%BB%9E%E6%96%B0%E8%81%9E-%E6%9B%BE%E8%BD%9F%E4%BA%94-%E9%BB%83%E5%AE%98-%E6%94%BE%E7%94%9F%E6%9A%B4%E5%BE%92%E7%9D%80%E8%8D%89/](https://www.thestandnews.com/politics/%E4%BD%95%E4%BF%8A%E5%A0%AF%E8%AA%BF%E8%81%B7-%E4%B8%AD%E8%81%AF%E8%BE%A6%E6%8E%A7%E5%88%B6%E5%AA%92%E9%AB%94%E9%A0%BB%E7%99%BC%E5%8A%9F-%E9%BB%9E%E6%96%B0%E8%81%9E-%E6%9B%BE%E8%BD%9F%E4%BA%94-%E9%BB%83%E5%AE%98-%E6%94%BE%E7%94%9F%E6%9A%B4%E5%BE%92%E7%9D%80%E8%8D%89/)
 
 0
