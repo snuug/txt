@@ -1,24 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 號外! 號外! 中共太原發射的一枚長征4號乙運載火箭又出大事了!
-`2020-09-07 18:53 GM77` [轉載自GNews](https://gnews.org/zh-hant/340008/)
+## 新西蘭奧塔哥大學科學家聯名各國科學家發表文章質疑新冠病毒來源並非自然
+`2020-09-07 23:22 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/340398/)
 
-**編撰****:****文肯尼、臺灣荔枝**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07224059/Capture-10.jpg)
+翻譯/編輯: NewZealandOldShen
 
-據中共黨媒-新華網報導,**2020****年9月7日13時57分,中共在太原衛星發射中心用長征四號乙運載火箭,成功將高分十一號02星送入預定軌道,號稱:”發射獲得圓滿成功。** **“**
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07185515/%E6%88%AA%E5%B1%8F2020-09-08-%E4%B8%8A%E5%8D%886.54.30-1.png)
-中共官方宣稱,此次成功發射的高分十一號02星是一顆光學遙感衛星,地面像元解析度最高可達亞米級,主要用於國土普查、城市規劃、土地確權、路網設計、農作物估產和防災減災等領域,可為中共力推的「一帶一路」建設等提供資訊保障。
+近日，包含新西蘭奧塔哥科學家Adadi Parise在內的18位來自世界各國的科學家在病毒學期刊“Journal of Medical Virology”上聯名發表文章，質疑中國病毒來源並非自然。
 
-然而,中共所謂**成功發射背後卻是老百姓有可能會付出了生命的代價,迄今32**年以來,**第一次有網友拍攝到了中共發射火箭第一級墜落的全過程,火箭主體自由下落,砸在有人煙的地區,後果不堪設想。**火箭主體掉落後,地面砸出一個巨大的深彈坑,而且其攜帶的棕紅色的NO2毒霧騰空而起,對周圍老百姓將產生嚴重的致命性污染。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07184457/%E6%88%AA%E5%B1%8F2020-09-08-%E4%B8%8A%E5%8D%886.44.00.png)
-以下是由網友拍攝的視頻連結:
+該論文開門見山指出Kristian Anderson及其同事早先在自然醫學Nature Medicine雜誌上聲稱病毒來自自然這一說法存在疑點。
 
-> Some impressive footage from today's Long March 4B first stage return.
-> 
-> ℹ：[https://t.co/9oRPoR0ZdF](https://t.co/9oRPoR0ZdF) [pic.twitter.com/SEl7t1u5xJ](https://t.co/SEl7t1u5xJ)
-> — LaunchStuff (@LaunchStuff) [September 7, 2020](https://twitter.com/LaunchStuff/status/1302933386990891008?ref_src=twsrc%5Etfw)
+”通過對比已知冠狀病毒的基因序列，我們能夠非常堅決地肯定新冠病毒來自自然”，Anderson在今年3月份自然醫學期刊Nature Medicine上說道。
 
-**可見,在中共眼裡,只顧著宣稱發射過程有多麼成功,可誰曾想過老百姓的命**啊,**換句話說,是否砸死人根本不在中共考慮範圍之內啊。 大家可要知道:NO2可是劇毒物質。**
+該文中的論點主要可總結為：
+
+● 結構異常
+
+● 非正常RNA重組
+
+● 高頻率突變D614G
+
+結構異常
+
+根據“峽谷假說”(Canyon Hypothesis)，對於一個自然進化的病毒而言，為了躲避人類免疫系統的識別，其勢必會隱藏自身的病毒特性，在結構上往往是一個坑狀(Cavity)結構。然而新冠病毒用於和人體結合的突刺蛋白(Spike Protein,又稱S蛋白)，其“平坦的，並非坑狀凹陷”的結構於其他自然進化的病毒結構存在明顯不同。
+
+關鍵原文引述: The predicted flat, non-sunken pattern of the SARS-CoV-2 S protein NTD glycan binding domains conflicts with this evolutionary host tropism/adaptation strategy.
+
+非正常RNA重組
+
+冠狀病毒非常高頻率的RNA重組來自其模板切換機制，在這一過程中，冠狀病毒可能吸收其宿主的相關序列，而新冠病毒中S1/S2結合處的弗林酶切位點的識別基序，在其他冠狀病毒諸如穿山甲冠狀病毒和RaTG13中並沒有找到任何相似的類比。這說明S1/S2結合處並不是RNA重組的熱點區域。此外臨床分離出的S1/S2區域並沒有進行任何重組，這說明目前發現在S1/S2結合處的弗林酶切位點其本身是一個非常特異的重組的結果。
+
+關鍵原文引述: The furin recognition motif present at the SARS-CoV2 S1/S2 junction has no analogy in other “linage B” beta-coronaviruses, including neither pangolin-CoV nor RaTG13. Additionally, clinical isolates of SARS-CoV-2 S protein have not indicated any further recombination in this S1/S2 area, suggesting that the addition of a motif for S1/S2 site furin cleavage constituted a unique recombination occurrence.
+
+此外，新冠病毒中還出現了連續兩個CGG-CGG精氨酸，只存在同樣的這在其他冠狀病毒中極為罕見，進一步證明了非正常RNA重組的這一假設。
+
+關鍵原文引述: Finally, the CoV-unique insertion of 4 amino-acids creating a novel RRAR furin cleavage site introduces two arginine codons CGG-CGG, whose usage is extremely rare in CoVs, further supporting the hypothesis of a unique recombination occurrence.
+
+高頻率突變D614G
+
+病毒在進化到能夠傳染到人類這一過程中需要進行頻繁的突變來保證他們能夠更好的適應宿主，逃避免疫系統或是中和抗體，然後在臨床分離出的新冠病毒中，唯一一個高頻率突變的只有S蛋白中的D614G，並不像其他病毒在自然進化過程中有許多氨基酸的變化。同時更進一步證明了S蛋白並不是新冠病毒中的重組熱點，能夠自然進化出弗林酶切位點。
+
+關鍵原文引述: Interestingly, clinical SARS-CoV-2 isolates to date have only a single high frequency non-synonymous mutation, D614G, in their S protein 9. Based on currently known mutation rates and patterns in clinical isolates of SARS-CoV- 2, the S protein does not appear to be a mutational “hot spot” for SARS-CoV-2, unlike other human CoVs.
+
+評論：中共在病毒起源問題上使勁渾身解數，甚至不惜毒害中國同胞製造受害者形象來掩蓋自己想在全球製造疫情的目的。為了達到這一目的，科學界勢必是他們藍金黃的重要目標區域。但是就像他們自己崇拜強權統治一樣，他們認為只要控制了重要科學期刊和幾個審核編輯領軍人物就能控制科學界的口徑。 Nature Medicine的影響分子有36.130之高，離Nature期刊42.778的影響分子相差無幾，他們一定沒有想到在Journal of Medical Virology這樣影響分子只有2分的期刊上會有人提出關於新冠病毒的人為操作痕跡這樣的文章，然而就是這樣的一篇文章最終擁有來自全球18名科學家聯名提出，並且通過了同行評審，中共不能藍金黃所有人。
+
+Adadi Parise博士在奧塔哥大學所讀專業為食品科學，文中許多其他科學家專業也並非病毒學科班出身，這說明在新冠病毒來源問題上即使非專業領域人士也能看出貓膩，中共不能欺騙所有人。
+
+希臘的哲學家普魯塔克曾說過，“人類的偉大，就在於敢於面對恐懼的驕傲姿態”，在病毒真相這個問題上，由閆博士帶頭的更多有良知有勇氣的科學家勢將挺身而出，展現出人性光輝的一面，並將勇氣給予普通大眾，讓更多的人能夠向前一步對中共說不。
 
 0
