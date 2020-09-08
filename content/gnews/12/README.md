@@ -1,52 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西蘭奧塔哥大學科學家聯名各國科學家發表文章質疑新冠病毒來源並非自然
-`2020-09-07 23:22 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/340398/)
+## 中共治國“疲民 苦民” 當今百姓生存現狀真實寫照
+`2020-09-08 04:33 GM30` [轉載自GNews](https://gnews.org/zh-hant/340806/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07224059/Capture-10.jpg)
-翻譯/編輯: NewZealandOldShen
+**作者：小妍說**
 
-近日，包含新西蘭奧塔哥科學家Adadi Parise在內的18位來自世界各國的科學家在病毒學期刊“Journal of Medical Virology”上聯名發表文章，質疑中國病毒來源並非自然。
+在中共國目前有太多的老百姓活下去比死還難，在這片土地上每天都在上演著不同的悲劇。讓我們一起回顧一下，6月18日，廈門市同安區，一位年輕父親抱著一個出生才20多天的小嬰兒，從雙溪橋上跳了下去。經過8個多小時的打撈，搜救隊終于找到了這對父子冰冷的遺體。按照慣例，在水裏打撈出的遇難者遺體一般會用繩子拴在船尾，再由船體帶回岸邊。可看著小嬰兒的遺體，搜救隊長瞬間崩潰了，他不忍心用繩子捆綁遺體，甯願背負著沈重的潛水裝備，用仰泳的姿勢懷抱著小嬰兒，遊回岸邊，小心翼翼地把孩子捧上岸。他說，只想給孩子最後一點溫暖，送他最後一程。年輕的父親，本該享受新生命到來的喜悅，可究竟是有多絕望，才會帶著剛出生的孩子，一起離開這個世界？有時候成年人的奔潰，真的只是在一瞬間。
 
-該論文開門見山指出Kristian Anderson及其同事早先在自然醫學Nature Medicine雜誌上聲稱病毒來自自然這一說法存在疑點。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08042649/%E5%9B%BE%E7%89%871-23.jpg)
 
-”通過對比已知冠狀病毒的基因序列，我們能夠非常堅決地肯定新冠病毒來自自然”，Anderson在今年3月份自然醫學期刊Nature Medicine上說道。
+前不久，有一位年輕的媽媽，生完孩子後因爲心情抑郁，爬上了窗戶，想要跳樓輕生。可就在跳樓前，她還挂念著嗷嗷待哺的孩子，想著要給他再餵幾口奶。正當她離開窗台，給孩子餵奶的時候，消防員找到機會，迅速將她救了下來。事後，這位媽媽終于情緒失控，放聲大哭起來。跳樓前，她還想給孩子餵口奶。如果不是因爲生活的壓力，一個母親又怎麽會舍得丟下孩子呢？還有浙江一名女子，因爲嫌棄老公做的排骨不好吃，突然情緒失控，崩潰大哭，還將自己反鎖在家中要自殺。消防員到場後，女子一直嘶吼著，不讓消防員靠近。最後，女子在與丈夫交談一小時後，情緒才漸漸平複下來。你們以爲她哭的就是一頓排骨嗎？不是的，她哭得分明就是日積月累的情緒壓抑，在這一刻爆發了出來。這是生活給了多大的壓力，才會崩潰至此？
 
-該文中的論點主要可總結為：
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08042714/%E5%9B%BE%E7%89%872-21.jpg)
 
-● 結構異常
+還有一個中年外賣小哥，在暴雨天裏堅持送餐。本來想著趁雨天還能多接幾單，但萬萬沒想到，等他送完一單下樓的時候，電動車被人偷走了，只剩下孤零零的一個外賣箱，和還沒來得及送出去的外賣。看到眼前這一幕，他一個人蹲在暴雨中，放聲痛哭起來。或許你無法想象，一個大男人會卑微到爲了一輛電動車痛哭。他哭的何止是一輛電動車？他哭的，明明是接下來可能會面臨的老板的責罵、客戶的差評、還有扣掉的獎金。丟了這一輛車，或許他得再加班加點一個月，才能把丟掉的車錢彌補回來。而這一個月的生活開銷，又怎麽從天上掉下來？最後是一位貨車司機，兩年內有上百條疲勞駕駛記錄。面對民警的詢問，他解釋說：我運活魚呀，跑慢了，多一分鍾多死一條！原來，他每天淩晨往返在兩地的鮮魚市場。因爲車內的氧氣有限，魚很容易在運輸過程中死亡，而每多死一條魚，他的工錢就會少一點。爲了減少損失，他經常是馬不停蹄地趕路，連續開車，不敢休息。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08042755/%E5%9B%BE%E7%89%873-4.jpg)
+這一幕幕真的讓人特別的心酸，而這些才是生活在這個國家百姓的最真實的寫照，簡單一點來說就是共匪不想讓老百姓日子好過，就是要助長邪氣歪風，就是要打壓正氣。這就是爲什麽中共國社會出現這麽多悲慘的事件。在中共國“勤勞致富”喊了幾十年，但真正富裕的人絕大多數都不勤勞，底層百姓用盡一生心血換來的不是財富而是貧窮與病痛，相當一部分人最後也都是帶著傷痕與絕望含恨離開了。而中共還到處大撒幣，吹牛逼，強大偉大，爲什麽就不睜開狗眼看看自己國家百姓痛苦的日子，在這個國家最可恥的就是這個罪惡的制度！但是我相信，這一件件真實的事件，終究會扒下中共最後的遮羞布，讓老百姓清醒，讓中共的罪惡，在陽光下無所遁形！
 
-● 非正常RNA重組
+GNEWS之前文章：
+中共國驚現醫護 “防刺白大褂”[https://gnews.org/zh-hans/339110/](https://gnews.org/zh-hans/339110/)
+【華爲】狼性文化就是“狗文化” [https://gnews.org/zh-hans/335249/](https://gnews.org/zh-hans/335249/)
+被判15年未進監獄 “紙面服刑 ”15年 [https://gnews.org/zh-hans/333317/](https://gnews.org/zh-hans/333317/)
 
-● 高頻率突變D614G
-
-結構異常
-
-根據“峽谷假說”(Canyon Hypothesis)，對於一個自然進化的病毒而言，為了躲避人類免疫系統的識別，其勢必會隱藏自身的病毒特性，在結構上往往是一個坑狀(Cavity)結構。然而新冠病毒用於和人體結合的突刺蛋白(Spike Protein,又稱S蛋白)，其“平坦的，並非坑狀凹陷”的結構於其他自然進化的病毒結構存在明顯不同。
-
-關鍵原文引述: The predicted flat, non-sunken pattern of the SARS-CoV-2 S protein NTD glycan binding domains conflicts with this evolutionary host tropism/adaptation strategy.
-
-非正常RNA重組
-
-冠狀病毒非常高頻率的RNA重組來自其模板切換機制，在這一過程中，冠狀病毒可能吸收其宿主的相關序列，而新冠病毒中S1/S2結合處的弗林酶切位點的識別基序，在其他冠狀病毒諸如穿山甲冠狀病毒和RaTG13中並沒有找到任何相似的類比。這說明S1/S2結合處並不是RNA重組的熱點區域。此外臨床分離出的S1/S2區域並沒有進行任何重組，這說明目前發現在S1/S2結合處的弗林酶切位點其本身是一個非常特異的重組的結果。
-
-關鍵原文引述: The furin recognition motif present at the SARS-CoV2 S1/S2 junction has no analogy in other “linage B” beta-coronaviruses, including neither pangolin-CoV nor RaTG13. Additionally, clinical isolates of SARS-CoV-2 S protein have not indicated any further recombination in this S1/S2 area, suggesting that the addition of a motif for S1/S2 site furin cleavage constituted a unique recombination occurrence.
-
-此外，新冠病毒中還出現了連續兩個CGG-CGG精氨酸，只存在同樣的這在其他冠狀病毒中極為罕見，進一步證明了非正常RNA重組的這一假設。
-
-關鍵原文引述: Finally, the CoV-unique insertion of 4 amino-acids creating a novel RRAR furin cleavage site introduces two arginine codons CGG-CGG, whose usage is extremely rare in CoVs, further supporting the hypothesis of a unique recombination occurrence.
-
-高頻率突變D614G
-
-病毒在進化到能夠傳染到人類這一過程中需要進行頻繁的突變來保證他們能夠更好的適應宿主，逃避免疫系統或是中和抗體，然後在臨床分離出的新冠病毒中，唯一一個高頻率突變的只有S蛋白中的D614G，並不像其他病毒在自然進化過程中有許多氨基酸的變化。同時更進一步證明了S蛋白並不是新冠病毒中的重組熱點，能夠自然進化出弗林酶切位點。
-
-關鍵原文引述: Interestingly, clinical SARS-CoV-2 isolates to date have only a single high frequency non-synonymous mutation, D614G, in their S protein 9. Based on currently known mutation rates and patterns in clinical isolates of SARS-CoV- 2, the S protein does not appear to be a mutational “hot spot” for SARS-CoV-2, unlike other human CoVs.
-
-評論：中共在病毒起源問題上使勁渾身解數，甚至不惜毒害中國同胞製造受害者形象來掩蓋自己想在全球製造疫情的目的。為了達到這一目的，科學界勢必是他們藍金黃的重要目標區域。但是就像他們自己崇拜強權統治一樣，他們認為只要控制了重要科學期刊和幾個審核編輯領軍人物就能控制科學界的口徑。 Nature Medicine的影響分子有36.130之高，離Nature期刊42.778的影響分子相差無幾，他們一定沒有想到在Journal of Medical Virology這樣影響分子只有2分的期刊上會有人提出關於新冠病毒的人為操作痕跡這樣的文章，然而就是這樣的一篇文章最終擁有來自全球18名科學家聯名提出，並且通過了同行評審，中共不能藍金黃所有人。
-
-Adadi Parise博士在奧塔哥大學所讀專業為食品科學，文中許多其他科學家專業也並非病毒學科班出身，這說明在新冠病毒來源問題上即使非專業領域人士也能看出貓膩，中共不能欺騙所有人。
-
-希臘的哲學家普魯塔克曾說過，“人類的偉大，就在於敢於面對恐懼的驕傲姿態”，在病毒真相這個問題上，由閆博士帶頭的更多有良知有勇氣的科學家勢將挺身而出，展現出人性光輝的一面，並將勇氣給予普通大眾，讓更多的人能夠向前一步對中共說不。
+（文章內容僅代表作者觀點）
 
 0
