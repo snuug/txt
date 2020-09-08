@@ -1,26 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西蘭企業家感染中共病毒＂康復＂六個月後，繼續遭受病痛折磨
-`2020-09-08 06:25 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/340851/)
+## 9月8日財經快訊: 銀行業降薪, 地方債迸發
+`2020-09-08 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341218/)
 
-編譯：上進哥（文進）
-校對：SugarPup
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08091322/Picture15.png)圖片來源： [https://www.marketwatch.com](https://www.marketwatch.com/story/the-next-banking-crisis-is-already-in-the-making-2014-05-07) 
+[1. 紐約商業地產銷售降 54% 至歷史新低。](https://www.zerohedge.com/markets/nyc-commercial-real-estate-sales-plummet-54-lowest-record)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08060426/Capture-13.jpg)
+[2. 英國周二將告訴歐盟，本週貿易談判必須取得進展，否則政府將加快準備，在沒有達成協議的情況下離開歐盟，因為時間已逼近年底的最後期限。歐盟則希望確定英國政府不會通過不公平的金融援助，幫助了英國企業卻傷害到歐盟企業。](https://www.reuters.com/article/uk-britain-eu-frost-idUSKBN25Y23A?taid=5f56b595ca23fc000139a3ac&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-年輕的新西蘭企業家Jenene Crossan曾經在倫敦擔任一個提供美容美髮商務軟件系統的公司Powered by Flossie的執行總裁。然而自從今年三月份感染中共冠狀病毒以來，這個昔日光彩四射的成功女性，已經無法回到從前充滿活力的生活軌道了。
+[3.   澳大利亞維多利亞州 CCP 病毒疫情第二次爆發，迫使 “ 一帶一路 ” 州長丹尼爾 · 安德魯斯再次延長兩週嚴禁活動期。中小企業業主苦不堪言，抱怨州長是在往 死亡的路上狂奔。](https://au.finance.yahoo.com/news/highway-to-hell-aussies-slam-crushing-lockdown-extension-011545812.html)
 
-Jenene是新西蘭第37例被確診感染中共冠狀病毒的患者。據她回想，她應該是在英國倫敦的蓋特威克機場被感染的。她的飛機從倫敦起飛後，在多哈轉機回到新西蘭。到達奧克蘭時她並沒有出現感冒症狀，為了穩妥起見，她選擇在科羅曼德半島上一個沒有電也沒有自來水的小屋內進行自我隔離。之後她開始感覺喉嚨痛，突來的咳嗽，胸部開始發沉，但並沒有發燒。 24小時後，她的病毒檢測結果為陽性。
+[4. 日本內閣府週二公佈修正數據顯示，第二季當季 GDP 環比萎縮 28.1% ，萎縮幅度為戰後之最。 7 月家庭支出同比下降 7.6% 。實際薪資連續第五個月下降。外界普遍預計央行將維持貨幣政策。](https://cn.reuters.com/article/japan-economy-gdp-q2-0908-idCNKBS25Z03V)
 
-經過治療後，Jenene覺得自己似乎康復了，身體感覺＂驟然變好＂。然而在這之後的六個月時間內，她的身體卻一直在被病毒感染的諸多後遺症所折磨。 Jenene對記者說“每當我從椅子上起身，我感覺自己像一個85歲的老人。不僅全身嘎吱嘎吱的作響， 腿也疼痛不堪。我感覺自己身體內部的有很多炎症，似乎我的身體將毒素不斷向內排放。整個身體彷彿都得了關節炎一般。”
+[5. 據《華爾街日報》週一報導，中國正在發起一項倡議，制定全球數據安全標準，反對美國勸說各國利用中國技術來打擊網絡的努力。據援引其審查的草案說，根據其新的《全球數據安全倡議》，中國將呼籲所有國家以 “ 全面、客觀和基於證據的方式 ” 處理數據安全問題。](https://www.reuters.com/article/us-china-usa-data-idUSKBN25Y1WK?taid=5f56bca6b524370001652516&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-除此之外，她的身體還出現了其他無法解釋的問題- 她的卵巢囊腫去除手術才過去六個星期，囊腫就已經長回去了。儘管目前無法將卵巢手術與中共冠狀病毒兩者聯繫在一起，不過有科學數據顯示：是術後的傷口可能會導致病毒的二次復發。
+[6. 中共國銀行業六大行員工降薪：上半年中共國 36 家 A 股上市銀行的業績普遍下滑，資產質量承壓。這種情況下，員工的薪酬也跟著出現下調。 36 家上市銀行今年上半年支付給職工以及為職工支付的現金合計為 4 ， 008.4 億元，相比去年同期的 4 ， 014.3 億元，下降 5.9 億元，同比下降幅度達到 1.5% 。](https://finance.ifeng.com/c/7zaepkDkNHc)
 
-沒有跡象表明Jenene目前仍然感染了中共病毒，因為她不具備傳染性。她被告知說那些曾經被感染的細胞會被炎症感染而再度復發。她當前的檢測她的抗體為陰性。
+[7. 中共國農夫山泉公司 8 日首日在港掛牌，開盤價較招股價高出 85% ，成為今年認購人數雖多之新股，並創紀錄凍結資金逾 6 ， 700 億港幣。](https://cn.reuters.com/article/nongfu-spring-debut-0908-tues-idCNKBS25Z06G)
 
-像Jenene這樣患有中共冠狀病毒感染諸多後遺症的患者在全球有很多，他們中的一些在臉書上組成了一個擁有數千會員的群組。同時新西蘭本地患有類似後遺症的病友也組成了一個有大約40人的臉書社區。
+[8.路透綜合報導，中共國8月新增人民幣貸款預計為1.22萬億元人民幣，環比增逾兩成，同比持平；M2同比增速預計仍為10.7%。在地方政府債券發行量大幅反彈驅動下，8月社融增量為2.73萬億元，環比大增逾六成，與去年同期相比漲逾兩成。](https://cn.reuters.com/article/china-aug-cpi-preview-0908-tues-idCNKBS25Z11S)
 
-評：中共冠狀病毒並非來自自然，而是在中共的P3P4實驗室人工基因改造，特別是其中被植入了艾滋病的基因。中共冠狀病毒給身體帶來的潛在傷害是超越普通人所能夠理解的。可悲的是，Jenene的聲音目前還沒有被大型媒體廣泛報導。大部分受到中共冠狀病毒後遺症困擾的人們，目前只能通過社交媒體來相互扶持和發出自己的聲音。希望這篇報導可以喚醒更多對中共冠狀病毒還缺乏了解的新西蘭本地人。
+By：【秘翻組·金融法律組】
 
 0
