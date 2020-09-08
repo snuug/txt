@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/01 CCP病毒每日疫情直播簡報
-`2020-09-07 09:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/339316/)
+## 戰友溫馨提示 遊行注意事項
+`2020-09-07 11:30 GM99` [轉載自GNews](https://gnews.org/zh-hant/339576/)
 
-英文標題 CCP Virus Pandemic Updates Ep221:  The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia
+#### **作者：文珠**
 
-内容简介
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07112732/Cover-2.jpg)
 
-1. 某學校匿名老師：“蒙古語是我們日常交流和生存的語言的一種，所以我們對母語的感情十分的深厚，所以作為蒙古族想要保護自己的母語，就這麼簡單。”
-2. 恩和巴圖，南蒙古人權信息中心主任：“這是一個文化種族滅絕政策，這不是光是語言的問題，現在蒙古人的傳統文化已經基本上被中國政府扼殺掉了。現在剩下的就是語言。如果把這個語言扼殺掉了，基本上就沒有蒙古人的（身份特性）。所以我們就強烈譴責中國政府實行這種文化滅絕政策。”
-3. 中共政府在繼新疆實行種族滅絕之後，又要在內蒙古實行文化滅絕政策。引發大規模警民對峙。
-4. 2020年8月底，山西平遙古城私人臨街商舖已有210多戶祖產一夜之間收歸國有，30多家祖產被封被鎖，當地政府強制執行。私人房子被貼了封條，封條上寫著“平遙縣人民政府”。
-5. （8/31）中國十億人沒有公共廁所。到現在中國竟然教育還不免費。連非洲很多國家，它支持的非洲，都已經免費了。黑幫主義。 向非洲一帶一路放出了所謂的上萬億的支持，萬億美元，十來萬億人民幣的支持。 中國現在有人吃不上飯。
+我在法農羣裏跟戰友們討論遊行戰友是否可以聚餐，是否可以分享食物的問題。我很奇怪沒有人認同我，甚至有人說七哥讓戰友們喫好、喝好，當然可以聚餐。我的觀點是，絕對不可以！郭文貴先生在8月29日慕尼黑連線直播時，的確說過要讓戰友們喫好、喝好。但如果有人問一句，是室內聚餐好，還是室外聚餐好。我想郭先生一定回答，室外聚餐好，而且他一定會勸告戰友們，千萬不要室內聚餐。爆料革命戰友是最早了解病毒真相的一批人，也是世界上被感染病毒最少的一批人，是郭先生救了我們。我是最敬愛郭先生的人之一，他說的都是真的，但他說的不一定都是對的。如果他明確說大家去餐館裏聚餐吧，喫好喝好，我要糾正一下，這是非常危險的，請到室外去聚餐吧！餐館是最大的傳染源之一，比超市的危險性更大。我們在室外遊行都要戴着口罩，超市購物、坐火車公交必須都戴口罩，爲什麼可以在餐館聚餐？你缺心眼嗎？難道餐館比火車公交超市更安全？難道你可以帶着口罩喫飯喝湯？大家都知道無論是去哪裏的室內公共場合都要戴口罩，怎麼一想到美食就忘了呢？
 
+我們必須全程戴口罩，哪怕上街、購物、在賓館裏睡覺！你不知道誰是感染者，這是無症狀傳染的病毒，甚至他自己也不知道，你跟帶毒者擦肩而過，他呼吸出來的空氣被你聞到，或者他放個屁崩你，你就可能已經被感染了！千萬不要存任何僥倖心理。在全世界都Lockdown的同時，參加遊行是勇敢，但是不能有勇無謀，不能不膽大心細，否則真的可能死無葬身之地！還把你全家都害死。幹嘛不處處小心？活下來什麼美食都是你的，你死了，你就是病毒和細菌的美食。
 
-1. Anonymous school teacher stated “Mongolian is the languages we use to communicate and survive on a daily basis, so we have a very strong attachment to our native language, thus it’s as simple as that as Mongolians want to protect our native language.”
-2. Enghebatu, Director of Southern Mongolia Human Rights Information Centre stated”This is a policy of cultural genocide, it is not just a matter of language, now the traditional Mongolian culture has been basically killed by the Chinese government. What is left now is the language. If this language is strangled, there will be no Mongolian (identity). That’s why we strongly condemn the Chinese government for this cultural extermination policy.”
-3. The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia. It has triggered a massive police standoff and armored military vehicles have been seen on street.
-4. By the end of August 2020, more than 210 private street-level shops in Pingyao Ancient City, Shanxi Province, have been nationalized overnight, and more than 30 ancestral properties have been sealed and locked, enforced by the local CCP government. Private houses were plastered with seals that read ‘People’s Government of Pingyao County’.
-5. (8/31 Miles Guo) One billion people still have no access to public toilets. Education in Communist China is not for free even until now. Even some African countries the CCP has been aiding already have free education. The CCP sent Africa up to one trillion dollars aid through the Belt and Road Initiative. Over 10 trillion RMB equivalent. Yet right now in China there’re people are still starving.
+還有就是千萬別分享食物？無論是從家裏帶，還是在餐館共餐。你缺心眼呢你？爲什麼沒有人帶食物分享，就你能帶食物分享啊？你可以帶食物分享那其他人可不可以啊？憑什麼你特殊啊？哪裏沒有好東西喫非要喫你的？不累嗎？大老遠帶你的食物去分享，完全沒這個必要，你的食物再好喫，也不要帶過去分享。你不知道會發生什麼。全世界都Lockdown，出遠門是最危險的。有的國家有的地區都已經禁止旅遊，坐公交、地鐵、火車、高鐵，購物，喫飯（包括外賣和在餐館裏喫飯），逛街，都有不同程度的危險。郭先生2020年2月8日就說：“現在連氣溶膠都傳染了，如果脫了褲子放屁都可能傳染了。”萬一有人感染，他/她和他/她的家人都會極度憤怒，會逐一排查可能被傳染的地方，當然也會懷疑你的食物有毒。哪怕你是冤枉的，也必須找你說清楚，你說得清楚嗎？你說不清楚！就別幹這種缺心眼的事。幹嘛幹這種公公背媳婦——喫力不討好的事。這不是缺心眼嗎？
 
+不要忘了2020年3月16日郭先生說：“1918年西班牙流感，全世界17億人口，5億人感染，死了1億人。但不要忘了，當時在地球上，在城市裏生存的人，加在一起還不到4億人。那個時候沒有這麼繁華的交通，沒有這麼好的飛機都可以出（遠）門，也沒這麼多城市的空調可以傳染（病）源。現在那是N倍，百倍，千倍，萬倍。就那個傳染大家可以看到，第二次回來的時候比第一次厲害幾倍，第三次比第二次幾倍，第四次，第五次把人類幹掉了什麼，十七分之一啊！在那個情況下。今天這個傳染率、傳染平臺，傳染可能性是什麼情況？大家想想，你還想着喫香的、喝辣的，還想着3個月、6個月好，你做夢吧！那才真是你的災難啊。”
+
+下面我就整理一下郭先生爆料，看看戰友們應該怎麼做？應該怎麼防護不感染病毒，咱寧可累死，餓死，渴死，也別染上病毒，中共病毒太可怕了。我們現在正處在第三次世界大戰，在跟一個完全看不見的敵人作戰。別忘了2020年3月7日，郭先生說：“戰友們、同事們，我求求你們了一定要記住文貴一句話。你活着什麼都存在，你死了你就是一堆爛泥都不是！立馬燒掉你。你憑啥不去尊重這個規矩？疫情完全不知道是哪來的現在，咱知道還沒得到正式的認可。病情有多大危害力沒人知道，所謂的出解藥根本沒有兌現。”
+
+[郭爆料串珠（三十八）借鑑郭先生的防毒措施給遊行戰友的溫馨提示：寧可累死，也別染上病毒！](https://gnews.org/zh-hant/327842/)
+
+**以下轉自戰友**
+病毒防護篇：
+訂靠窗座位，不摸面部。途中的物品扔掉。
+多多肥皂水洗手至少20秒。戴手套
+與人接觸保持1米以上距離，加上戴口罩防護！
+酒店自帶毛巾，寢具，衛生間使用前做好消毒。
+回家後自行隔離14天，或通過病毒檢測。
+防CCP放毒篇：
+不能以任何理由進入CCP大使館
+與外人（如粉紅）保持距離（2米以上）。迴避肢體接觸，由我們專門安保人員處理。
+遇到可疑人立即報告，並緊盯可疑人員。不能接受外人給的任何東西（包括任何幫助）。
 
 0
