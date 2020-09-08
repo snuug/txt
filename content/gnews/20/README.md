@@ -1,23 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/01 CCP病毒每日疫情直播簡報
-`2020-09-08 09:46 GM62` [轉載自GNews](https://gnews.org/zh-hant/341224/)
+## “北戴河會議”後，中共國應對新世界形勢的長期戰略輪廓已經顯露頭角
+`2020-09-08 11:27 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/341497/)
 
-戰友之家圖文摘要及小語種組
+*新聞來源：《零對沖》；作者：Tyler Durden；發佈時間：08/26/2020*
 
-[English\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092205/English_0901_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092205/English_0901_CCP_Virus_Updates.pdf)
+*翻譯/簡評：毛毛貓貓；校對/審核：InAHurry；Page：拱卒*
 
-[French\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092230/French_0901_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092230/French_0901_CCP_Virus_Updates.pdf)
+**簡評：**
 
-[German\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092221/German_0901_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092221/German_0901_CCP_Virus_Updates.pdf)
+面對內外交困四面楚歌的局勢，中共今年的“北戴河會議”顯得更加撲朔迷離。隨著中共黨魁的陸續露面，外界猜測這個具有中共傳統的“勾兌務虛會”已經落幕。從習，李國內的災區視察，到楊潔篪，王毅的歐亞串訪，從黨媒罕見的長篇“炮轟彭培奧，到中共全海域軍演和導彈實射，這預示著中共國應對世界新形勢的長期戰略輪廓已經初露端倪。
 
-[Japanese\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092210/Japanese_0901_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092210/Japanese_0901_CCP_Virus_Updates.pdf)
+##  **埃斯科瓦爾（Escobar）：** 
 
-[Korean\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092215/Korean_0901_CCP_Virus_Updates_221.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092215/Korean_0901_CCP_Virus_Updates_221.pdf)
+##  **對於中共國而言，一切都在按他們的計劃進行** 
 
-[Spanish\_0901\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092226/Spanish_0901_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092226/Spanish_0901_CCP_Virus_Updates.pdf)
+**中共國新冷戰的長期戰略輪廓正在迅速顯現…**
 
+[!\[\](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/a3c8f68e-07a7-4ea4-b568-66c16f52d3e1.jpg?asset_id=d0911026-fcf2-4725-a52f-963e998b4b1a&amp;img_etag=%22e071f998fed9993263299534fe8811f7%22&amp;size=2560)](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/a3c8f68e-07a7-4ea4-b568-66c16f52d3e1.jpg?asset_id=d0911026-fcf2-4725-a52f-963e998b4b1a&amp;img_etag=%22e071f998fed9993263299534fe8811f7%22&amp;size=1024)
 
+讓我們從一個令人難以置信的，消失中的峰會開始。
+
+每年八月，中共的領導人們會聚集在距北京約兩個小時車程的海濱度假勝地北戴河，認真地討論政策的製定，並將它們納入到會在十月份召開的中共中央全體會議中審議批准的關鍵的國家戰略規劃中。
+
+“北戴河會議”的模式是由偉大的領袖毛澤東制定的，他非常喜歡這個地方。巧合的是：公元前三世紀統一中國的秦始皇也曾在這裡建造過一座行宮。
+
+到目前為止，2020年我們猶如真實的置身於《災難歲月》（這部電影中）。最終，北戴河會議沒有召開也就不足為奇了。然而不見北戴河會議的踪影並不意味著它沒有發生。
+
+**證據1.李克強總理從公眾視野中消失了近兩週這個事實** – （此前）習近平主席在7月末主持召開了一次重要的中共中央政治局會議，會上闡述的內容不亞於中共國未來15年的整個發展戰略
+
+李克強因主持召開國務院常務會議再次浮出水面。正如中共頂級思想家王滬寧- 他恰好也是中共政治局常委第5號人物，作為特邀嘉賓出現在了中華全國青年聯合會的一次會議上。
+
+更耐人尋味的是，與王滬寧一同出席該會議的還有有中共中央辦公廳主任丁薛祥– 他就好比是習主席的幕僚長，以及其他三名政治局委員。
+
+這些中共政治局常委在“波詭雲譎”的隱身了近兩週後一起現身，這一事實使敏銳的中共國觀察家斷定北戴河會議的確發生了，即便（大家）沒有發現在海邊（北戴河）有任何政治行動的明顯跡象。另一種半官方的說法是，由于冠狀病毒大流行，北戴河會議今年沒有召開。
+
+**不過，證據2完完全全證明了北戴河會議的召開。 7月底由習近平主持的著名的中共中央政治局會議確定了今年10月將在北京召開中國共產黨第十九屆中央委員會第五次全體會議。**
+
+言外之意：
+
+*對於前面的戰略的輪廓已經達成共識。無需再到北戴河進行進一步的討論。*
+
+[!\[\](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/dd75d293-a92e-4cdd-bea6-f7d108f8f091.jpg?asset_id=ff5dab70-b716-4dcb-b124-ce35fa831317&amp;img_etag=%221e8fb4e777379a8b852c678942b83809%22&amp;size=2560)](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/dd75d293-a92e-4cdd-bea6-f7d108f8f091.jpg?asset_id=ff5dab70-b716-4dcb-b124-ce35fa831317&amp;img_etag=%221e8fb4e777379a8b852c678942b83809%22&amp;size=1024)讓我們從一個令人難以置信的，消失中的峰會開始。
+
+**試探性言論還是官方政策？**
+
+幾天前在某些中共國媒體上開始釋放出的一系列試探性的言論使情況變得更複雜。以下是從這些媒體上節選的一些關鍵點。
+
+*1.在貿易戰方面，北京不會關閉已經在中共國開展業務的美國企業。但是，想要進入金融，信息技術，醫療保健和教育服務市場的公司將不會獲得批准。*
+
+*2.北京不會一口氣拋售其全部的美國國債，但是，就像已經發生了的，賣掉美國國債的撤資行為將會加速。去年，這一數字達到了1000億美元。到2020年底，這一數字將達到3000億美元。*
+
+*3.可以預見的是，人民幣的國際化也將加速。這將包括盡快配置通過CHIPS（中共國的美元清算系統）清算美元，以防範川普政府或任何於2021年1月後在任職白宮的美國總統可能會切斷北京與SWIFT清算系統的聯繫的可能性。*
+
+*4.在整個中共國被廣泛理解為“全譜戰”戰線（主要是混合戰爭）的地方，解放軍已進入第3階段警戒狀態，並且在2020年剩餘時間內取消所有官兵的休假。將國防總支出增加到GDP的4％，並加快核武器的發展。細節肯定會在十月份將要舉行的中共中央委員會全體會議上公佈。*
+
+*5.總重點是非常具有中共國特色的自給自足精神，並建立可以被定義為國民經濟“雙循環”體系：與全球人民幣結算機制並行運行的歐亞一體化項目的鞏固。*
+
+對於這種驅動力最好的表述是： **“堅決放棄對美國的所有幻想並對我們的人民進行戰爭動員”。我們將大力推動戰爭以抵抗美國的侵略（…）我們將以戰爭的心態來指導國民經濟（…）為徹底中斷與美國的關係做準備。 ”**
+
+目前尚不清楚是否這些僅僅是在中共國公眾輿論中傳播的試探性言論還是在“無形”的北戴河會議達成的決定。因此，當中共中央全體委員會在十月份提出其戰略計劃時，所有的目光都將集中到將這種令人震驚的配置打包成什麼樣的語言上。值得注意的是，10月的中央委員會僅比美國大選早了幾週。
+
+[!\[\](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/c26b8326-7f06-4e40-9d7b-d1f17e7990fd.jpg?asset_id=bf9c2ece-803f-4ff5-a9e1-440f1707b400&amp;img_etag=%225b68acb0415bbeb6089888fd2ec36a82%22&amp;size=2560)](https://spark.adobe.com/page/mDgKHdwUb4rZ9/images/c26b8326-7f06-4e40-9d7b-d1f17e7990fd.jpg?asset_id=bf9c2ece-803f-4ff5-a9e1-440f1707b400&amp;img_etag=%225b68acb0415bbeb6089888fd2ec36a82%22&amp;size=1024)
+
+**一切都與政權的傳承有關**
+
+以上所有的這些在某種程度上都反映在最近在荷蘭的阿姆斯特丹發生的，關於中共國如何對西方社會構成“威脅”的辯論中。以下是這場辯論中的一些關鍵點：
+
+*1.中共國在全球範圍內不斷加強其混合經濟模式，這是絕對罕見的：它既不是完全公有製但也不是市場經濟。*
+
+*2.愛國主義的程度是驚人的：一旦中共國人面對外敵入侵，14億國民會馬上團結起來如一人。*
+
+*3.國家機制具有強大的力量：一旦制定了政策，絕對沒有任何東西會妨礙中共國充分利用其財政，物力和人力資源去貫徹執行。*
+
+*4.中共國建立了世界上最全面，最背靠背的工業體系，如果需要的話，不會受到外國的干擾（嗯，當然，對於華為來說，半導體問題是他無法迴避的）。*
+
+**中共國不僅在規劃未來的數年，而是在規劃未來的數十年。**它的“五年計劃”與“十年計劃”的相得益彰，而據習近平主席主持的會議顯示，還有十五年計劃來補充前者。 “一帶一路’”倡議實際上是一項近40年的計劃，設計於2013年，將於2049年最終完成。
+
+傳承有序是這個遊戲的核心。中共的“和平共處五項原則”最早於1949年制定，然後由周恩來在1955年的萬隆會議上提出，那以後就被定為中共國的外交政策的指導方針。
+
+“橋組織”是一個獨立的團體，致力於發動具有戰略意義的華僑（“海外華人”）來推動與世界的聯繫溝通的“橋樑”作用。他們一直鼓吹中共國做的只是針對中共國具體國情的，有中國特色的解決方案，中共國從未要求將中共國模式作為解決全球問題的辦法。
+
+該組織還曾有力地指出，歷史唯物主義與資本主義的自由民主制度水火不容，信奉歷史唯物主義會迫使國家體系實行緊縮政策和政權更迭，並迫使國家體系更願意接受一種先入為主的模式。
+
+**這套理論最終總是回到中共外交政策的核心：即每個國家都有權制定適合其國情的路線。**
+
+這也合理的揭示瞭如何描繪一個具有儒家思想和社會主義特徵的中央功權主義國家的全部輪廓： **一個自視極高並且不願接受其它文明模式的國家政權，最終的宿命將是“背水一戰”。**
+
+[原文鏈接](https://www.zerohedge.com/geopolitical/escobar-china-everything-proceeding-according-plan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/mDgKHdwUb4rZ9/)
 
 0

@@ -1,11 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報（中文）09/07期（視頻+ PDF下載）
-`2020-09-08 10:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/341356/)
+## 外交談判後，澳洲撤離所有駐中共國記者
+`2020-09-08 11:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/341544/)
 
-撰稿記者：宠宝贝（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+喜馬拉雅聯盟加拿大農場 坐看雲起時
 
-[每日政要推特播報9月7号](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08095748/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87%E6%92%AD%E6%8A%A59%E6%9C%887%E5%8F%B7.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08095748/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%87%E6%92%AD%E6%8A%A59%E6%9C%887%E5%8F%B7.pdf)
+校對 文騎士
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08113512/%E5%9B%BE%E7%89%873.png)圖片來源：台灣新聞
+據9NEWS 9月8日報導，在中共國從事新聞工作的兩名澳洲記者，因安全問題考量而戲劇性的撤離了中共國。此次撤離是自上世紀70年代以來，澳大利亞首次沒有記者常駐中共國。
+
+文中提到，據澳大利亞聯邦通訊社報導，中共國國家安全官員在上週深夜突訪ABC記者Bill Birtles和澳大利亞金融評論記者Michael Smith的住所，並要求這兩名記者前往接受詢問，且被告知禁止離開中共國。在此之後，這兩名記者在澳大利亞外交使團的保護下度過了5天。
+
+澳大利亞政府向Birtles和Smith提供了領事支持，在進行了高級別外交談判後，中共允許Birtles和Smith在接受審訊後返回澳大利亞。
+
+9News政治編輯克里斯∙烏爾曼（Chris Uhlmann）說，澳大利亞金融評論和ABC認為他們的記者面臨著可能被任意拘留的無法接受的風險，並指出這是一件非同尋常的事件，當前的中澳關係令記者們不再認為自己在中共國是安全的。
+
+當回到悉尼機場時，Birtles慶幸自己終於回到了家，回到一個真正法治的國家是一種解脫。
+
+外交部長瑪麗斯∙佩恩在2GB節目中說，中共國對Smith和Birtles的舉動”令人失望”。並對澳大利亞沒有駐中共國記者進行新聞報導表示擔憂，同時敦促在中共國和香港工作的澳大利亞人密切關注政府的旅行建議，”不要去中共國旅行”。
+
+據中共國安全官員所言，對Smith和Birtles的調查與最近澳大利亞記者成蕾被拘留有關。
+
+外交部長佩恩在節目中說，她無法深入了解成蕾被拘留的細節。但澳大利亞有機會在成蕾被關押的拘留中心通過視頻進行領事訪問。
+
+澳大利亞公民成蕾是中共國國家廣播公司CGTN在北京的知名電視主播。 8月31日，外交部長瑪麗斯-佩恩證實，成蕾被中共國當局拘留。據信，成蕾在佩恩女士發表聲明前幾周其實已被拘留。
+
+屢獲殊榮的記者自由聯盟的發言人彼得∙格雷斯特（Peter Greste）說，中共國騷擾這兩名澳大利亞記者是為了在政治和外交上取得優勢。沒有任何證據表明Birtles或Smith有任何不法行為。格雷斯特指出，記者永遠不應該被當作政治棋子和人質。同時此次事件表明，當涉及到獨立和自由的新聞報導時，中共國已經變得何等的不寬容。
+
+參考鏈接：https://www.9news.com.au/national/bill-birtles-michael-smith-two-australian-journalists-pulled-from-china-after-cheng-lei-detention-abc-afr/f9d7e92a -e04a-4866-a08e-68786809e6b9
 
 0

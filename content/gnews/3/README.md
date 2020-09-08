@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生傾情獻聲《Take Down the CCP》登錄美國各大音樂類App，戰友們打Call的機會來了！
-`2020-09-08 12:56 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/341647/)
+## 滄海一聲嘯 超限戰無處逃
+`2020-09-08 15:49 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/341855/)
 
-郭先生傾郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，發行方是G Music。這是我們爆料革命在音樂類App的第一首戰歌。戰友們，我們為搖滾歌星Miles Guo打Call的機會已經來了！請大家到自己熟悉的音樂類App收聽下載點贊。另外，請大家欣賞音樂的同時，多多轉發宣傳。「爆料革命，我最重要！」
+喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
 
-iTune:
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123120/figure1.png)圖片來源：iTunes
-[Spotify](https://open.spotify.com/track/6CxkWCdqMLjZaTtyY2A1KV?si=1RXP0FIaQzGyx2fj8zD6zA):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123130/figure2.png)圖片來源：Spotify
-[Amazon Music](https://music.amazon.com/albums/B08HMCLFJX?trackAsin=B08HMC1X64&amp;ref=dm_sh_4135-18b3-dmcp-4017-1cea5&amp;musicTerritory=US&amp;marketplaceId=ATVPDKIKX0DER):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123141/figure3.png)圖片來源：Amazon Music
-[YouTube](https://youtu.be/f5LE6WqfvvE):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123151/figure4.png)圖片來源： [https://youtu.be/f5LE6WqfvvE](https://youtu.be/f5LE6WqfvvE)
-[Apple Music](https://music.apple.com/us/artist/miles-guo/1530852387):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123201/figure5.png)圖片來源：Apple Music
-撰寫：【相機過熱啊】資料：【文青】編輯：【Michelle】
+校對 小鷗
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08154252/TAKE_4-4-scaled.jpg)圖片來源:VOG 
+隨著爆料革命既定戰略的推進，越來越多的證據不斷呈現出來，充分證明“中共這個邪魔向文明世界發動了超限戰！”美國已經覺醒，川普總統聲明即將“脫鉤”，郭先生激情排演“滄海一聲嘯”，潛台詞就是“決胜超限戰的時刻到了！”
 
-戰友之家玫瑰園小隊出品
+一、儘管中共超限戰具有隱蔽性的特殊戰爭形態，爆料革命最終讓文明世界認識到“中共發動了超限戰！”
 
-2
+中共兩位軍方人士於2004年、2016年分別寫了《超限戰》、《超限戰與反超限戰》兩部戰爭書籍，是中共開展超限戰的系統描述。此前，遲浩田執掌中共軍委副主席、國防部長期間，也曾披露了中共重點研發生化武器消滅美國、拓展空間、獨裁全球的撒旦戰略。班農很久前開始閱讀《超限戰》這本書，應該是美國了解中共超限戰的開端，經過爆料革命策略推動，現在美國應該讀懂了。
+
+超限戰，就是中共無所不用其極地發動的、超越人類底線的、全領域全方位戰爭，包括但不限於軍備恐嚇、經濟綁架、網絡攻擊、恐怖活動、輿論造謠、法律纏訟、貨幣挑戰、文化侵蝕等等，其形式更加不擇手段，充分利用人性弱點藍金黃，其目的就是為了消滅美國，因為消滅了美國就會控制、獨裁全世界。至今這場超限戰已經讓美國和世界各國付出了極其慘重的代價，任其下去，文明世界最終會被病毒等等各種超限武器滅亡。這絕非危言聳聽，好在美國開始醒了。
+
+二、美國司法部起訴書的出台，就是對中共超限戰的法律回擊。法治社會一旦正式法律回擊，就會師出有名，隨著登堂入室的證據，美國一切的戰爭選項隨時啟動。
+
+司法部起訴書的內容，坐實了中共藍金黃美國各界人士的事實，其中部分展現了中共迂迴滲透、收買、策反、綁架目標人士的手段，令人觸目驚心，也透露了爆料革命的背後艱辛。此後戴維斯的認罪僅僅是大戲之一，關鍵的證據印證了中共首腦直接策劃、指揮及發動了這場超限戰。
+
+面對超限戰引起的超過911和珍珠港總和的慘重代價，美國不會因為執政者的拍腦袋做決策，而是依靠法治證據和民意。隨著閆博士和國際上有正義感的病毒專家的不斷推進，得出CCP病毒是生化武器、定點投放的結論後，美國就會進一步揭開中共超限戰的面紗，採取行動。一是匯同國際同盟，全面切斷與中共國的經濟、金融、貿易等往來，這已經開始。二是重磅宣布向中共開戰，以所有武器和戰爭手段對付、消滅中共的超限戰。美國防部長發表了《五角大樓已經做好應對中共的準備》，不應是應對，應該就是消滅。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08154316/WhatsApp_Image_2020-03-31_at_02.11.18.jpeg)圖片來源：VOG 
+三、超限戰是中共對中國傳統戰爭思想的惡意濫用，試圖綁架全世界與其一黨共存亡，必將被送上歷史的絞刑架。非正義的戰爭應該被消滅。
+
+中國歷史上戰爭不斷，看看《封神演義》、《隋唐演義》、《三國演義》等就可知一二，孕育出《孫子兵法》等這類名著，其中“不戰而屈人之兵” 、“上兵伐謀”等思想，應該是被中共濫用發起超限戰的祖宗思想。日本用三十六計來賺錢，中共則濫用來發起無底線的超限戰。德國人克勞塞維茨的《戰爭論》則提出了正義與非正義的戰爭之說，認為必鬚髮動正義戰爭來消滅非正義戰爭。
+
+現在是發動正義戰爭的時候了。面對中共邪惡如撒旦的本性，美國要充分估計到其可能採取的殘暴手段，譬如製造人道災難轉移視線、拉台灣做墊背發動熱戰等等。也許擒賊先擒王采取斬首行動是最好的選項，或釜底抽薪來癱瘓中共的軍事信息網絡，總之需要把戰爭給普通百姓帶來的損失降到最低。
+
+“滄海一聲嘯，滔滔滅共潮“，“盤古開天覆紅朝“ ， 在這重要的歷史關頭，爆料革命的國內外每位戰友們，每個人都力所能及地踢出臨門一腳——決勝超限戰！
+
+0

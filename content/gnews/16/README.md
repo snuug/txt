@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
-`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
+## 香港：12歲女童路過突遭男防暴警迎面撞飛
+`2020-09-08 11:53 GM36` [轉載自GNews](https://gnews.org/zh-hant/341569/)
 
-英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
-
-视频重点
-
-1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
-2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
-3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
-4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
-5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
+編撰：文卡西歐、文粵、文燕、文肯尼
 
 
-1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
-2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
-3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
-4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
-5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
 
+**新聞簡訊**
+
+一名**12**歲女童9月6日與哥哥在路過旺角買顏料時，突遭男防暴警迎面撞飛，身體失去平衡後，後腦著地，再被多名警員騎身和膝壓制服 ，造成身體多出受傷。
+
+女孩媽媽–何太今早向《蘋果》記者表示，女兒現在抗拒接觸外界，不願意再聽到或提起當天的事情，現在情緒很不穩定，或需尋求心理輔導。
+
+何太透露，兩兄妹都被警察票控違反限聚令，但當時兄妹倆只是逛街，並沒有參與活動或也不認識現場人士。
+
+根據多名不願意透露名字的骨科醫生翻看事發影片後表示，女童體質單薄，而迎面撞上的防暴警則體格高壯，單是身體的撞擊力，亦有可能撞傷女童；加上她當時被撞倒後失去重心，身體後傾，後腦最先著地，若非哥哥在身旁，隨時都有腦震蕩的可能。其次是被多名警員騎身和膝壓，若用力過度，女童的脊椎和神經線都有有可能受到重創。骨科醫生認為12歲孩子的骨骼尚未完全發育，肋骨脆弱，是很容易被折斷的。事件中，女童只是擦傷，可算是不幸中的大幸。
+
+社區組織協會幹事施麗珊認為，警員的反應明顯“過激”、處理手太“過火”。女童當時受驚才跑，卻無辜遭受警察的粗暴對待。施麗珊表示，警方必須審視對待青少年及兒童的態度。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08115239/908-1-scaled.jpg)
+**編者觀點**
+
+經過這次事件，女童身心受傷。身體的創傷看得見，但心靈的創傷是看不見的。身體的創傷假以時日能被治好，可心靈的創傷什麼時候才能治愈？國際人權律師兼澳洲保護兒童組織政策總監SimonHenderson認為，目睹今天香港的社會狀況，香港兒童長大後會害怕警察。無可否認，香港今天的警察，並沒有起到維持社會治安的作用，而是為社會製造了更多不安，是典型的黑警！
+
+女童當時明顯沒有做出任何危害共眾的行為，卻遭到防暴警察的暴力製服，從看不到對方是“大肚婆”，到該次的暴力製服小孩子，對社會的弱勢群體，這種不必要和不合比例的惡劣執法令港人以及全人類憤怒，這般惡霸和暴徒，不配稱為警察。他們應該受到全世界的遣責與審判。
+
+新聞來源
+
+[https://hk.appledaily.com/local/20200907/KGEGLAWLMNF7JJWRRCFA5LU571/](https://hk.appledaily.com/local/20200907/KGEGLAWLMNF7JJWRRCFA5LU571/)
 
 0

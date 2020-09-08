@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月8日財經快訊: 銀行業降薪, 地方債迸發
-`2020-09-08 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341218/)
+## 無論輕重症患者，中共病毒都可能對心臟產生長期損害
+`2020-09-08 10:46 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/341436/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08091322/Picture15.png)圖片來源： [https://www.marketwatch.com](https://www.marketwatch.com/story/the-next-banking-crisis-is-already-in-the-making-2014-05-07) 
-[1. 紐約商業地產銷售降 54% 至歷史新低。](https://www.zerohedge.com/markets/nyc-commercial-real-estate-sales-plummet-54-lowest-record)
+喜馬拉雅聯盟加拿大農場 文醫
 
-[2. 英國周二將告訴歐盟，本週貿易談判必須取得進展，否則政府將加快準備，在沒有達成協議的情況下離開歐盟，因為時間已逼近年底的最後期限。歐盟則希望確定英國政府不會通過不公平的金融援助，幫助了英國企業卻傷害到歐盟企業。](https://www.reuters.com/article/uk-britain-eu-frost-idUSKBN25Y23A?taid=5f56b595ca23fc000139a3ac&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+校對 坐看雲起時
 
-[3.   澳大利亞維多利亞州 CCP 病毒疫情第二次爆發，迫使 “ 一帶一路 ” 州長丹尼爾 · 安德魯斯再次延長兩週嚴禁活動期。中小企業業主苦不堪言，抱怨州長是在往 死亡的路上狂奔。](https://au.finance.yahoo.com/news/highway-to-hell-aussies-slam-crushing-lockdown-extension-011545812.html)
+據美國心臟協會9月3日報導，越來越多的研究表明，許多感染中共病毒的倖存者–不論重症，輕症抑或無症狀感染者，或是否本身存在潛在的心臟病，都會遭受某種形式的心臟損害。這些研究使衛生保健專家們擔心會增加潛在的心臟衰竭風險。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08102949/PLUSTV.jpg)圖片來源：PLUSTV 
+加州大學洛杉磯分校心臟病學系主任Gregg Fonarow博士指出，在中共病毒流行早期，許多住院的患者都發現有心臟損傷。目前的研究表明，一些沒有住院的中共病毒患者中也發現了心臟損傷。這種情況引起了人們的擔憂。研究者認為病毒早期感染便會造成心血管損傷和並發症。
 
-[4. 日本內閣府週二公佈修正數據顯示，第二季當季 GDP 環比萎縮 28.1% ，萎縮幅度為戰後之最。 7 月家庭支出同比下降 7.6% 。實際薪資連續第五個月下降。外界普遍預計央行將維持貨幣政策。](https://cn.reuters.com/article/japan-economy-gdp-q2-0908-idCNKBS25Z03V)
+在因中共病毒住院的患者中，有近四分之一的人被診斷為心血管並發症，而這一併發症已被證明在所有與中共病毒相關的死亡中約佔40%。
 
-[5. 據《華爾街日報》週一報導，中國正在發起一項倡議，制定全球數據安全標準，反對美國勸說各國利用中國技術來打擊網絡的努力。據援引其審查的草案說，根據其新的《全球數據安全倡議》，中國將呼籲所有國家以 “ 全面、客觀和基於證據的方式 ” 處理數據安全問題。](https://www.reuters.com/article/us-china-usa-data-idUSKBN25Y1WK?taid=5f56bca6b524370001652516&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+最近的兩項研究表明，感染者的心臟損傷可能更廣泛。 《美國醫學會心臟病學》研究了過去兩到三個月內從中共病毒中康復的100人的心臟MRI。研究人員發現78%的康復患者心臟出現異常，60%的患者心臟出現”持續心肌炎症”。同一項研究發現，76%的受檢患者血液中的血液酶肌鈣蛋白水平較高，肌鈣蛋白是心臟損傷的指標，不過心臟功能似乎普遍得到了保留。研究中的大多數患者並沒有住院治療。
 
-[6. 中共國銀行業六大行員工降薪：上半年中共國 36 家 A 股上市銀行的業績普遍下滑，資產質量承壓。這種情況下，員工的薪酬也跟著出現下調。 36 家上市銀行今年上半年支付給職工以及為職工支付的現金合計為 4 ， 008.4 億元，相比去年同期的 4 ， 014.3 億元，下降 5.9 億元，同比下降幅度達到 1.5% 。](https://finance.ifeng.com/c/7zaepkDkNHc)
+凱斯西儲大學克利夫蘭診所勒納醫學院的心臟病學家和醫學教授Mina Chung博士正在領導協調美國心臟協會資助的十多項進行中的中共病毒研究。 Chung博士認為對於那些從病毒中恢復的人來說，很多人會在一段時間內感到疲憊不堪，但很難檢測是肺部還是心臟需要時間恢復。
 
-[7. 中共國農夫山泉公司 8 日首日在港掛牌，開盤價較招股價高出 85% ，成為今年認購人數雖多之新股，並創紀錄凍結資金逾 6 ， 700 億港幣。](https://cn.reuters.com/article/nongfu-spring-debut-0908-tues-idCNKBS25Z06G)
+對心血管損害的篩查檢測是否應該成為中共病毒患者後續護理的常規部分目前仍不明朗。對此Fonarow博士認為需要額外的研究，以確定這種情況發生的頻率以及風險因素是什麼。
 
-[8.路透綜合報導，中共國8月新增人民幣貸款預計為1.22萬億元人民幣，環比增逾兩成，同比持平；M2同比增速預計仍為10.7%。在地方政府債券發行量大幅反彈驅動下，8月社融增量為2.73萬億元，環比大增逾六成，與去年同期相比漲逾兩成。](https://cn.reuters.com/article/china-aug-cpi-preview-0908-tues-idCNKBS25Z11S)
+Chung和Fonarow建議那些從中共病毒中恢復的人注意以下症狀–如果出現這些症狀，請諮詢他們的醫生或心臟病專家：隨著勞累而增加或極度氣短，胸痛，腳踝腫脹，心悸或不規則的心跳，不能平躺而不氣短，晚上醒來時呼吸急促，頭暈或頭痛。並建議未產生特殊情況但仍有顧慮的康復者也向醫生諮詢。
 
-By：【秘翻組·金融法律組】
+Fonarow博士補充說，研究人員發現一些心血管損傷可以自行痊癒，一些可以用藥物治療。
 
 0
