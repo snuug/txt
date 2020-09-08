@@ -1,40 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保衛美國技術: 對抗新的 “中共国威胁”
-`2020-09-07 19:52 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/340092/)
+## 新西蘭奧塔哥大學科學家聯名各國科學家發表文章質疑新冠病毒來源並非自然
+`2020-09-07 23:22 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/340398/)
 
-![A close up of a signDescription automatically generated](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07194526/1-32.png)
-Source: Chinatechthreat.com
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/07224059/Capture-10.jpg)
+翻譯/編輯: NewZealandOldShen
 
-托尼·谢弗(Tony Shaffer)上校是一名退休高級情報軍官，在美國陸軍部隊工作超過20年，現任倫敦中心政策研究副總裁。他2010年的著作 《回憶在阿富汗工作的日子》 (《Operation Dark Heart: Spycraft and Special Operations on the Frontlines of Afghanistan》), 這本著作成為紐約時報最暢銷的回憶錄書籍之一。
+近日，包含新西蘭奧塔哥科學家Adadi Parise在內的18位來自世界各國的科學家在病毒學期刊“Journal of Medical Virology”上聯名發表文章，質疑中國病毒來源並非自然。
 
-谢弗在9月4日市政廳 (Townhall) 網站發表他個人的意見，他認為川普總統遵守他競選時的承諾, 會用強硬態度對待中共國。因為美國承擔著中共國帶來的不公平貿易政策, 川普總統必须保障美國供應鏈, 保障美国的科技及軍事領導地位, 防止中(共)國繼續偷取屬於美國的敏感科技。
+該論文開門見山指出Kristian Anderson及其同事早先在自然醫學Nature Medicine雜誌上聲稱病毒來自自然這一說法存在疑點。
 
-谢弗提及在去年一個非牟利創新組織 C4ADS 發放了一份報告，詳盡報導了中國政府大規模利用中共國私人公司偷取该組織的軍事技術。報告中揭露, 一所貿易公司高兰德数码有限公司(High Lander Digital Company Limited )在深圳交易所宣傳中共利用所谓法律及經濟途徑取得的敏感科技來建造中共國第一艘空母艦，利用美國技術来建造他們的軍事工業。由於中國釆用不誠實的生意手段并不斷升级，美國防衛有必要負責起對抗中共國持续的威脅。
+”通過對比已知冠狀病毒的基因序列，我們能夠非常堅決地肯定新冠病毒來自自然”，Anderson在今年3月份自然醫學期刊Nature Medicine上說道。
 
-谢弗 慶幸地看到兩黨已經意識到中(共)國試圖在美國科技、市場及資源上謀取利益. 密蘇裡州共和黨參議員 乔希·霍利(Josh Hawley )提出, 应採取立法程序防止中共國取得商業技術用作軍事用途，即所謂,利用技術得到“军民两用” ( Dual-use)。紐約民主黨參議院 查克·舒默(Chuck Schumer)和阿肯色州共和黨參議員汤姆·科顿(Tom Cotto) 要求美国公司，接收由美國國防部所提交的被中共國擁有或控制的公司名單。佛羅里達州共和黨參議员马尔·卢比奥(Marco Rubio )紧跟着宣佈他會使用立法程序禁止从事間諜活动, 破坏人權 以及支持中國軍事行動的中國公司進入美國資本市場。谢弗将军認為國會應盡快通過這些法案以及其他相关法案, 譬如 “戰略法案” 來应對来自中國侵略，美國面對中共國的技術競爭和挑戰需要全面加強本身戰略。
+該文中的論點主要可總結為：
 
-川普政府已經遵守競選承諾對中國公司審查。去年美國商務部工業及安全事務處已經针对數家中共國公司展开审查，包括電信巨頭華為、中國超級電腦公司以及美國最大的核電公司，經審查確定這些公司違反了國際安全及對外政策，違背美国國家利益。谢弗承認這是一個非常好的开端，因為他覺得美國應該保持強硬的態度保護國家的 “雙重用途” 技術，诸如機器人、無人機、 鋰電池、量子數據以及自動驾驶車輛技术等等。
+● 結構異常
 
-谢弗同意自動駕駛車輛 (Autonomous vehicle – AV) 是美國重點需要保護的技术，AV技術具備成为戰略资源并发挥作用，在經濟領域, 也被視為極度敏感的重要因素。正如由美国国防高级研究计划局出资的DARPA自动驾驶汽挑战赛(The Darpa Grand Challenges ),在用來鼓勵支持社區進步、工業蓬勃發展的同时， AV 生產的多種程式还可用于軍事用途。五角大樓到2020年的預算案中，3.7億美元將用于在自動駕駛車輛技術方面的發展。谢弗曾經是軍人, 他解釋軍事計劃正考慮部署 AV 貨車, 由於多過半數的戰地傷亡都发生在士兵運送物資到戰區的过程中，如果釆用自動貨車输送軍用物資進入戰地, 可以极大保障軍人在戰爭期間的安全。中共國已在尋求方法增加AV貨車作為儲備武器，但他們并不立足在自已國內自主研发, 而是设法偷取美國技術。
+● 非正常RNA重組
 
-谢弗認為美國應該關注中(共)國快速擴張的企图, 例如中(共)國所擁有所謂的 “國際” AV貨車公司: 图森未来(TuSimple )和 智加科技(Plus Al)， 其40%的員工都是在中共國基地, 因而威脅到美國人的就業和工作。這些中(共)國公司的無人駕駛重型貨車, 可以隨意在美國領土上免除限制, 在公共道路上任意測試, 並且将蒐集到的美國運輸基礎建設的數據和技術提供給与中共政府及軍方有密切關係的公司。 可惜這些規則都是由美國運輸部、 德薩斯州亞利桑拿州加州及其他州的當選官員推動的, 他们認為會為美國帶來更多就業機會。但是当美國 AV 進入中(共)國運行的時候, 就会受到諸多阻撓。谢弗还提及商業 AV 裝甲車所用的平台能夠容易適應及控制裝甲車及商業貨車, 因此可以被中共利用來支持其軍用所需的供應鏈。
+● 高頻率突變D614G
 
-美國政府已經揭露中共國無人貨車公司的暗黑運作, 並已将它們列入黑名單。美國國防部已經加強關注那些和中共政府有聯繫的公司在美國運作所帶來的國家安全問題。很清楚，美國聯邦必須大量審查那些包括中共國的对外投資機構。 谢弗认为如果這麼嚴重的國防安全問題还不足以令美国採取行動, 這会导致中共國所擁有的公司(包括 AV 貨車公司图森未来在內)将從數以百萬計的美國納稅人的金錢上獲得巨额利益。 而這些資金,本來是計劃幫助那些挣扎于CCP病毒所致經濟危機中的美國小型企業。
+結構異常
 
-谢弗聲明, 美國政府應該立即採取強硬態度來應對這次中共针對美國安全及經濟的嚴重威脅，美國絕對不能容許中共國在敏感科技上作任何暗箱操作,而使其在美國資源及市場中非法获利。 中共國的威胁活動據證確鑿, 這是他們的軍方擴張以及对全球的霸權策略。
+根據“峽谷假說”(Canyon Hypothesis)，對於一個自然進化的病毒而言，為了躲避人類免疫系統的識別，其勢必會隱藏自身的病毒特性，在結構上往往是一個坑狀(Cavity)結構。然而新冠病毒用於和人體結合的突刺蛋白(Spike Protein,又稱S蛋白)，其“平坦的，並非坑狀凹陷”的結構於其他自然進化的病毒結構存在明顯不同。
 
-谢弗毫不怀疑川普總統會保護美國利益,不論在供應鏈或是在貿易戰中都會取得勝利。但川普内阁一定要关注在軍事技術上的劇烈競爭。假 如果失敗的話會使中共更加强大。“這是一場真正戰爭，在美國失去優勢, 並在經濟及軍事可能输給中(共)國之前, 是时候，该行動了” ，他说。
+關鍵原文引述: The predicted flat, non-sunken pattern of the SARS-CoV-2 S protein NTD glycan binding domains conflicts with this evolutionary host tropism/adaptation strategy.
 
-評論:
+非正常RNA重組
 
-Tony Shaffe所提到的中共國的軍事擴張、經濟貿易入侵、技術盜取等行经,在美国 如入無人之境, 嚴重滲透美。 如果美國再不醒來的話, 遭受的後果將會非常嚴重。但是他深信川普總統所領導下的政府会践行当初的競選的承諾，美國必勝。11月總統大選, 將是一個歷史性的抉择，Shaffe希望更多的美國人明白中共给世界帶來的嚴重威脅, 美國人應該已經知道哪位總統候選人才能真真正正領導美國再次強大起來。
+冠狀病毒非常高頻率的RNA重組來自其模板切換機制，在這一過程中，冠狀病毒可能吸收其宿主的相關序列，而新冠病毒中S1/S2結合處的弗林酶切位點的識別基序，在其他冠狀病毒諸如穿山甲冠狀病毒和RaTG13中並沒有找到任何相似的類比。這說明S1/S2結合處並不是RNA重組的熱點區域。此外臨床分離出的S1/S2區域並沒有進行任何重組，這說明目前發現在S1/S2結合處的弗林酶切位點其本身是一個非常特異的重組的結果。
 
-[原文鏈接](https://townhall.com/columnists/ltcoltonyshaffer/2020/09/04/in-defense-of-us-technology-countering-the-new-china-syndrome-n2575621)
+關鍵原文引述: The furin recognition motif present at the SARS-CoV2 S1/S2 junction has no analogy in other “linage B” beta-coronaviruses, including neither pangolin-CoV nor RaTG13. Additionally, clinical isolates of SARS-CoV-2 S protein have not indicated any further recombination in this S1/S2 area, suggesting that the addition of a motif for S1/S2 site furin cleavage constituted a unique recombination occurrence.
 
-翻译报道: 叮噹
+此外，新冠病毒中還出現了連續兩個CGG-CGG精氨酸，只存在同樣的這在其他冠狀病毒中極為罕見，進一步證明了非正常RNA重組的這一假設。
 
-校对: 意翎
+關鍵原文引述: Finally, the CoV-unique insertion of 4 amino-acids creating a novel RRAR furin cleavage site introduces two arginine codons CGG-CGG, whose usage is extremely rare in CoVs, further supporting the hypothesis of a unique recombination occurrence.
+
+高頻率突變D614G
+
+病毒在進化到能夠傳染到人類這一過程中需要進行頻繁的突變來保證他們能夠更好的適應宿主，逃避免疫系統或是中和抗體，然後在臨床分離出的新冠病毒中，唯一一個高頻率突變的只有S蛋白中的D614G，並不像其他病毒在自然進化過程中有許多氨基酸的變化。同時更進一步證明了S蛋白並不是新冠病毒中的重組熱點，能夠自然進化出弗林酶切位點。
+
+關鍵原文引述: Interestingly, clinical SARS-CoV-2 isolates to date have only a single high frequency non-synonymous mutation, D614G, in their S protein 9. Based on currently known mutation rates and patterns in clinical isolates of SARS-CoV- 2, the S protein does not appear to be a mutational “hot spot” for SARS-CoV-2, unlike other human CoVs.
+
+評論：中共在病毒起源問題上使勁渾身解數，甚至不惜毒害中國同胞製造受害者形象來掩蓋自己想在全球製造疫情的目的。為了達到這一目的，科學界勢必是他們藍金黃的重要目標區域。但是就像他們自己崇拜強權統治一樣，他們認為只要控制了重要科學期刊和幾個審核編輯領軍人物就能控制科學界的口徑。 Nature Medicine的影響分子有36.130之高，離Nature期刊42.778的影響分子相差無幾，他們一定沒有想到在Journal of Medical Virology這樣影響分子只有2分的期刊上會有人提出關於新冠病毒的人為操作痕跡這樣的文章，然而就是這樣的一篇文章最終擁有來自全球18名科學家聯名提出，並且通過了同行評審，中共不能藍金黃所有人。
+
+Adadi Parise博士在奧塔哥大學所讀專業為食品科學，文中許多其他科學家專業也並非病毒學科班出身，這說明在新冠病毒來源問題上即使非專業領域人士也能看出貓膩，中共不能欺騙所有人。
+
+希臘的哲學家普魯塔克曾說過，“人類的偉大，就在於敢於面對恐懼的驕傲姿態”，在病毒真相這個問題上，由閆博士帶頭的更多有良知有勇氣的科學家勢將挺身而出，展現出人性光輝的一面，並將勇氣給予普通大眾，讓更多的人能夠向前一步對中共說不。
 
 0

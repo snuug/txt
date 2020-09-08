@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/01 CCP病毒每日疫情直播簡報
-`2020-09-07 09:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/339316/)
+## 9月7日財經快訊: 雙循環內外交困, 樓市吹響腰斬潮
+`2020-09-07 10:56 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/339515/)
 
-英文標題 CCP Virus Pandemic Updates Ep221:  The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/05120230/1599321726710.jpg)圖片來源： [http://tapchitaichinh.vn](http://tapchitaichinh.vn/tai-chinh-quoc-te/chuyen-gia-canh-bao-kinh-te-trung-quoc-chi-co-the-hoi-phuc-trong-quy-iv-321907.html) 
+[1.週一歐元走低，投資者寄希望本週四歐洲央行會議推出進一步刺激政策。](https://mobile.reuters.com/article/amp/idUSKBN25Y03F?__twitter_impression=true)
 
-内容简介
+[2.亞洲股市漲跌不一:美中科技緊張局勢加劇，中芯國際在香港的股價暴跌](https://www.cnbc.com/2020/09/07/asia-markets-us-china-tech-tensions-chinas-august-trade-data.html)
 
-1. 某學校匿名老師：“蒙古語是我們日常交流和生存的語言的一種，所以我們對母語的感情十分的深厚，所以作為蒙古族想要保護自己的母語，就這麼簡單。”
-2. 恩和巴圖，南蒙古人權信息中心主任：“這是一個文化種族滅絕政策，這不是光是語言的問題，現在蒙古人的傳統文化已經基本上被中國政府扼殺掉了。現在剩下的就是語言。如果把這個語言扼殺掉了，基本上就沒有蒙古人的（身份特性）。所以我們就強烈譴責中國政府實行這種文化滅絕政策。”
-3. 中共政府在繼新疆實行種族滅絕之後，又要在內蒙古實行文化滅絕政策。引發大規模警民對峙。
-4. 2020年8月底，山西平遙古城私人臨街商舖已有210多戶祖產一夜之間收歸國有，30多家祖產被封被鎖，當地政府強制執行。私人房子被貼了封條，封條上寫著“平遙縣人民政府”。
-5. （8/31）中國十億人沒有公共廁所。到現在中國竟然教育還不免費。連非洲很多國家，它支持的非洲，都已經免費了。黑幫主義。 向非洲一帶一路放出了所謂的上萬億的支持，萬億美元，十來萬億人民幣的支持。 中國現在有人吃不上飯。
+[3.中共國無人駕駛汽車公司認為未來3年無人駕駛出租車行業會隨著科技公司的競爭發展而急速擴張。](https://www.cnbc.com/2020/09/07/china-driverless-car-firms-see-robotaxis-scaling-up-in-3-years.html)
 
+[4.亞洲股市因估值上漲，石油滑行而動搖](https://www.reuters.com/article/us-global-markets/asian-shares-on-shaky-footing-amid-elevated-valuations-oil-skids-idUSKBN25Y027)
 
-1. Anonymous school teacher stated “Mongolian is the languages we use to communicate and survive on a daily basis, so we have a very strong attachment to our native language, thus it’s as simple as that as Mongolians want to protect our native language.”
-2. Enghebatu, Director of Southern Mongolia Human Rights Information Centre stated”This is a policy of cultural genocide, it is not just a matter of language, now the traditional Mongolian culture has been basically killed by the Chinese government. What is left now is the language. If this language is strangled, there will be no Mongolian (identity). That’s why we strongly condemn the Chinese government for this cultural extermination policy.”
-3. The Communist China government, after practicing genocide in Xinjiang, is now pursuing a policy of cultural genocide in Inner Mongolia. It has triggered a massive police standoff and armored military vehicles have been seen on street.
-4. By the end of August 2020, more than 210 private street-level shops in Pingyao Ancient City, Shanxi Province, have been nationalized overnight, and more than 30 ancestral properties have been sealed and locked, enforced by the local CCP government. Private houses were plastered with seals that read ‘People’s Government of Pingyao County’.
-5. (8/31 Miles Guo) One billion people still have no access to public toilets. Education in Communist China is not for free even until now. Even some African countries the CCP has been aiding already have free education. The CCP sent Africa up to one trillion dollars aid through the Belt and Road Initiative. Over 10 trillion RMB equivalent. Yet right now in China there’re people are still starving.
+[5.中共國恆大集團董事局主席許家印6日宣布自9月7日起至10月8日，恆大全國樓盤全線7折，並透露“金九銀十”兩個月，單月銷售額要衝刺1000億元。](https://finance.ifeng.com/c/7zZ6gPteI8u)
 
+[6.中共國家電行業營收排名第一的美的集團遭董事長方洪波和神秘資金拋售：9月2日的一筆13.62億交易後證明是董事長方洪波拋售，套現14億；另一筆18.11億元的更大手筆，目前尚不知背後是誰。](https://finance.ifeng.com/c/7zXMvEYN8Lu)
+
+[7.受中共病毒影響，中共國首都機場公司於2020年9月7日才公開2019年度經審計的財務報表。同時公開的未經審計的2020年上半年財務報表顯示收入與上年同期相比減少63%，營業利潤從上年同期的盈利17.18億元變為上半年的虧損9.85億元。](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1767073&amp;priority=0)
+
+[8.日前中共國銀保監會在官網連續開出30張罰單，5個金融機構民生銀行、華夏銀行、浙商銀行、廣發銀行和中國華融合計被處罰金額達3.2億元。](http://news.esnai.com/2020/0907/208260.shtml)
+
+By：【密翻組·金融法律組】
 
 0
