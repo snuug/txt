@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/02 CCP病毒每日疫情直播簡報
-`2020-09-09 08:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/343054/)
+## 一首歌開啓反洗腦新文化運動
+`2020-09-09 09:25 GM30` [轉載自GNews](https://gnews.org/zh-hant/343394/)
 
-戰友之家圖文摘要及小語種組
+**作者：心是蓮花**
 
-[English\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)
+9月8日路德先生在與唐平女士、威廉王連線節目中分享了這首《滄海一聲嘯》的創作故事，大家從這首歌的藝術性、創造性、政治性、文化性，全面進行了解析，向世界展示：在民主自由的條件下，優秀的中華傳統文化與普世價值相結合，會産生多麽震撼世界的作品。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09092414/504-3-scaled.jpg)
+百年前的新文化運動之所以失敗，很大程度上是因爲，這一場自上而下的“精英運動”，沒有根基。文化精英的目的或許是好的，想給中國引入民主與科學，啓蒙民衆。但是我們都有過這樣的經曆，“醒來”這件事，如果不是自己主動，而是被外來因素喚醒或者吵醒，多半不痛快，有機會還會睡去。百年前的新文化運動即是這樣，魯迅先生曾說：“假如一間鐵屋子，是絕無窗戶而萬難破毀的，裏面有許多熟睡的人們，不久都要悶死了，然而是從昏睡入死滅，並不感到就死的悲哀。”當時就是這種情況，各種機緣都尚未聚齊，民衆未覺迫在眉睫，世界也不認爲北洋政權對自己有所威脅，“新文化運動”只能是文化精英的一廂情願罷了。 但是，現在不同。經過三年的爆料革命，不止是中國人，更重要的世界已經覺醒，就算還有人貪床，可是天已經亮了，時間已到，還能睡多久？爆料革命是一場自下而上的運動，即班農先生所說的“平民運動”，現在是大衆有需求，推動精英采取行動。民意已到，從“要你給”到“我需要”。到這一刻，平民擺脫精英階層救世主，真正實現自己選擇自己的道路，當一個人擺脫“救世主”情結後，就進入了強勢文化屬性，強勢文化屬性必然會取代等待救世主的弱勢文化屬性，這一場文化啓蒙運動，成矣！
 
-[French\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)
+2018年底，我曾與兩位作家朋友聊天。其中一位表示中國人從未接受過真正意義上的民主啓蒙，一旦實行民主制度，民主恐怕會被利用，到時候不堪設想。另一位年長者則表示，先做起來，到時候就有辦法了。
 
-[German\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)
+是的，先做起來。只有行動才會産生問題，也只有行動才能找到方法。佛家常說,要做成一件事，需要“因緣具足”。可是這個因緣，不是天上掉下來的，也不是等來的，是通過日拱一卒紮紮實實做出來的，行動産生因緣，“具足”來自事在人爲。
 
-[Korean\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)
+多年以來，我也一直在思考這個問題，這一場對于中國人遲遲不到的啓蒙運動該如何開始？沒想到這個百思不得其解的問題，竟然被一首歌解決了。《滄海一聲嘯》正式開啓了對中共洗腦文化反擊的新文化運動，從文化上消滅中共，ACTION！
 
-[Spanish\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)
-
-
+（文章內容僅代表作者觀點）
 
 0
