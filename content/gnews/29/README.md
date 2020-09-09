@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
-`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
+## 今日的表彰大會，明日的國際審判
+`2020-09-08 15:36 pmzy` [轉載自GNews](https://gnews.org/zh-hant/341839/)
 
-英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
+內新聞：旅行
 
-视频重点
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08153426/image0-28.jpg)
 
-1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
-2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
-3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
-4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
-5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
+9月8日上午，中共在北京召開抗擊新冠肺炎疫情表彰大會，鐘南山獲授“共和國勛章”，張伯禮、張定宇、陳薇獲授“人民英雄”稱號。
 
+中共總書記習近平指出“中國人民在同這場嚴重疫情的殊死較量中，鑄就了偉大抗疫精神。為了保護人民生命安全，我們什麽都可以豁得出來！不遺漏壹個感染者、不放棄壹位病患者、費用全部由國家承擔，把最優秀資源向武漢和湖北集結，舉全國之力實施規模空前的生命大救援。”
 
-1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
-2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
-3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
-4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
-5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
+臺上這四位獲獎者和習近平合影時各個面無表情，無人知道他們心裏在想什麽，我們永遠無法體會到魔鬼的內心，更無法想象到他們有多邪惡！
 
+中共政權的無恥超出了普通民眾的想象，竟然無恥宣稱”不遺漏壹個感染者不放棄壹位病患”，而我們看到的是那些把整棟樓整排房的門都釘死的視頻、那些求助無門的哭喊、那些在街頭露宿的外地人和不願回家感染家人的人、那些病的嚴重不給診斷的患者、那些沒有防護服的醫生護士，那個在雪中風中飛舞了幾個月的窗簾…這些鏡頭歷歷在目永遠不會忘記，僅僅壹個武漢就不知道消失了多少生命。但是他們卻說不遺漏壹個人，還口口聲聲說國家承擔治療費用。為了不承擔費用，他們在全國實施“不給有癥狀的患者確診，或者只診斷為疑似病例，這樣就可以讓患者自己掏錢治病”。只有那些跟權貴有關系的人才能獲得壹張確診證明，確診成為了壹種身份的象征。
+
+文中厚顏無恥的說：“共產黨除了人民的利益沒有任何私利”。在這個改革開放了幾十年，GDP世界第二的國家，他的國民有6億人月收入1000元，那些看似高收入的中產背負著高額的房貸車貸，整個國家積貧積弱。普通老百姓的錢財被盜國賊們掏空移到海外，供他們的親戚私生子女們享受豪華奢侈生活。
+
+現在共產黨又用表彰大會來掩蓋自己的惡行，推出“抗疫精神”，還記得我們小時候的雷鋒精神嗎？還記得那個坐在輪椅上的張海迪嗎？還記得黃繼光、董存瑞嗎？中共用壹個個被虛構出來的故事給民眾洗腦，從小灌輸愛黨、為黨犧牲壹切的思想。去年那個開學第壹堂課的董卿阿姨今年出不來了吧，現在又用抗疫精神給老百姓打雞血。我們生活在壹個充斥著精神、語錄、思想、主義、理想、夢的時空裏。
+
+這些領獎的人是制造死亡的惡魔，全世界多少人死於他們的惡行無法統計，今天他們站在領獎臺，明天就上審判臺。我們期待紐倫堡大審判早日到來，我們期待這些邪惡的魔鬼早日被鏟除，還世界壹份安寧。
 
 0

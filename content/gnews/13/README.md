@@ -1,27 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鳴槍！中共與印度邊境衝突升級
-`2020-09-08 14:39 yingdongdongtw` [轉載自GNews](https://gnews.org/zh-hant/341707/)
+## 爆料革命發起人：郭文貴先生希望中國擁有真正的信仰自由以及法治（西班牙語Spanish+English)
+`2020-09-08 23:43 GM62` [轉載自GNews](https://gnews.org/zh-hant/342268/)
 
-中共軍方周一（9月7日）發表的一份聲明，指責印軍7日再次越過中印邊境西段班公湖（或稱班公錯）南岸神炮山地域。聲明稱，印軍對前來交涉的中方軍隊巡邏人員“鳴槍威脅”，中方“被迫採取應對措施穩控現地局勢”。印方行為是“嚴重的軍事挑釁行為”。
+西班牙語標題 El iniciador del Movimiento de Denunciantes: Miles Guo desea que los chinos tengan la libertad de religión y el estado de derecho
 
-自1975年以來，中印實際控制線（LAC）沿途都沒有開過槍。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08141704/image-78.png)
-印度斯坦時報報導，印度軍方稱中共解放軍開槍恐嚇印度士兵。在星期二發表的一份聲明中，印度軍隊表示，儘管有嚴重的挑釁，但印度軍隊仍“保持克制並以成熟和負責任的態度行事”。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08142034/image-79.png)
-印度軍方拒絕中共指控稱，從沒有跨越實際控制線（LAC）。印度軍隊在任何時候都沒有越過LAC或採取任何進攻手段，包括開火
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08142302/image-80.png)
-印度斯坦時報進一步指出，中共解放軍在拉達克的行動是北京破壞印度穩定計劃的一部分。中共的長期目標是，在3488公里的實際控制線（LAC）上施加持續的壓力，以破壞印度的穩定，影響印度政體和納倫德拉•莫迪總理形象。
-
-印度正面臨來自中共的三重打擊。首先，受中共病毒影響，第一季度的經濟縮水了23％；其次，超過印度負荷的軍費開支拖垮印度經濟；第三，中共利用巴基斯坦通過跨境射擊和恐怖分子滲透在控制線上挑釁印度。
-
-2020年9月2日，印度與巴基斯坦在邊境再次交火，3個月以來，印度軍隊9人死於印巴交火。同時巴基斯坦重啟購買殲-10談判，尋求引進30架殲-10戰機以及配套先進的空空導彈。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08142538/image-81.png)
-2020年6月15日，在拉達克東部加爾萬河谷發生中印暴力衝突，造成20名印度軍人員喪生後，雙方之間的緊張局勢升級。中共軍隊也有人員傷亡，但尚未透露死亡士兵人數及詳情。
-
-網曝中印邊界解放軍官兵墓群照片。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08142723/image-82.png)
-内新闻：背靠背
+翻译：CUTE PANDA 校对：帅虎 视频：小羽
 
 0

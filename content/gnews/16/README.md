@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生傾情獻聲《Take Down the CCP》登錄美國各大音樂類App，戰友們打Call的機會來了！
-`2020-09-08 12:56 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/341647/)
+## 中共國“脅迫”外交的規模和成效
+`2020-09-08 22:52 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/342213/)
 
-郭先生傾郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，發行方是G Music。這是我們爆料革命在音樂類App的第一首戰歌。戰友們，我們為搖滾歌星Miles Guo打Call的機會已經來了！請大家到自己熟悉的音樂類App收聽下載點贊。另外，請大家欣賞音樂的同時，多多轉發宣傳。「爆料革命，我最重要！」
+喜馬拉雅聯盟加拿大Cran
 
-iTune:
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123120/figure1.png)圖片來源：iTunes
-[Spotify](https://open.spotify.com/track/6CxkWCdqMLjZaTtyY2A1KV?si=1RXP0FIaQzGyx2fj8zD6zA):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123130/figure2.png)圖片來源：Spotify
-[Amazon Music](https://music.amazon.com/albums/B08HMCLFJX?trackAsin=B08HMC1X64&amp;ref=dm_sh_4135-18b3-dmcp-4017-1cea5&amp;musicTerritory=US&amp;marketplaceId=ATVPDKIKX0DER):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123141/figure3.png)圖片來源：Amazon Music
-[YouTube](https://youtu.be/f5LE6WqfvvE):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123151/figure4.png)圖片來源： [https://youtu.be/f5LE6WqfvvE](https://youtu.be/f5LE6WqfvvE)
-[Apple Music](https://music.apple.com/us/artist/miles-guo/1530852387):
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123201/figure5.png)圖片來源：Apple Music
-撰寫：【相機過熱啊】資料：【文青】編輯：【Michelle】
+校對文錦
+[!\[戰狼不是一種精神，而是一種精神病- YouTube\](https://i.ytimg.com/vi/lLtU27Iks8c/maxresdefault.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DlLtU27Iks8c&amp;psig=AOvVaw1F7YOOqSirIcnde2r82K3C&amp;ust=1599705569626000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCLiZx-mF2-sCFQAAAAAdAAAAABAO)圖片來源：YouTube 
+9月7日專欄作家Matthew Fisher 在加拿大環球新聞網的文章揭示加拿大已成為中共國第二脅迫外交的目標，這個數據來自澳大利亞政策研究所。
 
-戰友之家玫瑰園小隊出品
+在堪培拉一個智囊團的報告中闡述了中共為了實現擴張使用了欺凌的手段來達到經濟和政治優勢。從152份公開資料揭示出北京挑戰世界外交政策的野心，
 
-2
+中共國以8種脅迫策略來強制其它國家順從。在其針對的27個國家中，澳大利亞、加拿大和美國依次被襲擊了17次、10次和9次。
+
+澳大利亞抵制中共強硬政策的急劇上升與該研究所的報告有密切關係。相比之下加拿大應對中共的軟硬兼施是卑躬屈膝。加拿大與中共的這種眉來眼去令外交事務進退兩難毫無成效。
+
+中共的外交部發言人、大使以及官方媒體在習近平領導下經常公開地對其它國家進行恐嚇和攻擊，以此報復那些提出進出口貿易條款和限制的國家。
+
+中共經常綁架外國人為籌碼，由此在過去的兩年中加拿大人感覺被中共卡住了脖子，中共為了停止一些進口商品人為地編造出各種理由。為了抵制美國的反導系統安裝，韓國的演藝界人士以商家被拒絕進入中國。中共由於政治脅迫原因對中國遊客進入菲律賓和台灣也進行了限制。
+
+2010年中共因為反對向奧斯陸的中國持不同政見者頒發諾貝爾和平獎禁止進口挪威鮭魚。最近因為澳大利亞尋求國際調查中共是否掩蓋了冠狀病毒起因的真相， 其大麥和葡萄酒已成為被打擊目標。
+
+中共對拒絕安裝華為的5G 網絡的國家進行了威脅。以貿易商業交易來威脅加航從地圖上抹去台灣。以金錢利益迫使美國籃球協會因言道歉。
+
+8月一位中國-澳大利亞電視主播在北京失踪，中國將扣押的加拿大、澳大利亞、日本等國民關進獨裁邪惡的法律制度中。當一位瑞典-中國作家和出版商因批評中國而監禁，中國駐斯德哥爾摩大使桂聰友對瑞典公共電台說：”我們用美酒來對待朋友，但為了我們的敵人，我們有獵槍。顯示中共的毫無法律底線。
+
+加拿大因要求釋放被關押的兩名邁克爾被中共國前駐加大使盧沙耶指責為東道國”白人至上”，桂聰友威脅說，如果瑞典首相和外交部長出席紀念桂敏海的儀式，將禁止他們離開加拿大。然而，他們出席了儀式。
+
+中共對最近訪問台灣的捷克官員所指出的中共對台灣及其南中國海大部分地區和東海部分地區的厚顏無恥主張，表示憤怒並和威脅報復。
+
+中共對包括任何海外討論中國嚴重虐待藏人、法輪功信徒、維吾爾族穆斯林少數民族，以及現在，北京如何鎮壓香港剩餘的自由，並拘留那些試圖離開這個所謂的半自治飛地的批評者進行了打壓和迫害。
+
+澳大利亞研究所建議，通過五眼情報共享國家（澳大利亞、加拿大、新西蘭、英國和美國）之間更多的信息共享是對被監視和採取針對華人恐嚇的集體安全措施的最佳方法。但是，由於中國活躍在印度太平洋地區，應將信息共享擴展到另一個被稱為“四方”的情報組織（澳大利亞，印度，日本和美國）。
+
+加拿大對中共國的所作所為至今選擇了軟弱和被挾持的立場，因此選擇不參加四方聯合的情報系統。另外渥太華不想加入由印度，日本和澳大利亞目前正在談判的的締約國，此協議旨在削弱包括醫藥和保健用品等關鍵領域的中國在供應鏈上的獨立性，特別是。與印度合得來對於加拿大來說意味著那裡的貿易機會，它還可以在中印衝突上聲援印度。
+
+中共國推行的脅迫性策略到目前為止有成效所以它會加大力度。加拿大如果加入五眼聯盟和尋求加入四方峰會並在亞洲尋求新的貿易協定，不僅抵制中共還有利於本國經濟發展。價值觀相同的國家必須經常交流關於中共國的信息，並製定策略以應對其玩弄技倆和強硬策略來削弱和擊敗習近平正在取得進展的強硬壓制策略。
+
+0
