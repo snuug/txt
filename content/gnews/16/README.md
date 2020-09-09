@@ -1,29 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港又多了一個病毒孤兒, 封鎖真相等於謀財害命
-`2020-09-09 03:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342655/)
+## 火爆！郭先生新歌《Take Down the CCP》登榜首！
+`2020-09-09 08:15 yingdongdongtw` [轉載自GNews](https://gnews.org/zh-hant/343032/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09020842/Screen-Shot-2020-09-09-at-4.08.07-pm.png)圖片來源：香港蘋果日報（圖為因感染CCP病毒而失去雙親的阿Moon） 
-爆料革命的意義是什麼？是保命保財，是揭露中共這個惡魔的反人類罪惡，是滅共的正義者聯盟；爆料革命喚醒了億萬戰友，喚醒了美國；爆料革命的重要情報與信息唯真不破；路德社早在今年1月19日率先揭露武漢肺炎就是中共CCP實驗室病毒，更公告硫酸羥氯喹可以救命及預防。
+```
+作者：文非
+```
 
-然而，爆料革命的重要「保命」情報，卻得不到主流媒體的廣泛報導，無論是中文媒體還是英文媒體，屢屢遭到所謂的權威專家及機構諸多阻撓及封殺，可見中共的藍金黃力量滲透是何等猖獗。
+北京時間9月8日，郭文貴先生出品的新歌《Take Down the CCP》在各大平台上發布，因搖滾風的律動及朗朗上口的歌詞，受到全世界人民的追捧，在iTunes排行榜上排名飆升。
 
-CCP病毒至今已經造成全世界89萬人不幸死亡，近月在香港爆發的第三波疫情，短短兩月，已奪走90多條寶貴生命。
-
-其中一對香港中年夫婦同告感染，醫生曾指兩人的病毒量並不太高，懷疑是病毒變種，令免疫系統被攻擊而喪命。
-
-父母雙亡的阿Moon憶述，7月27日她父親首先因感冒及少許不清醒送院，隨後其父母均確診，她作為密切接觸者亦需接受病毒測試，結果是陰性。她來不及跟父母道別，被送去隔離中心觀察14天，她萬萬沒想到，一個月後，父母竟然相繼病逝。
-
-她記得8月27日下午，醫院來電告知噩耗，指其父親血含氧量下跌至很低水平，隔著病房玻璃兩父女對望，8月28日早上她飛奔到醫院，隔著病房玻璃送別垂死的父親。 4天后，悲劇重演，其母也去世。
-
-香港的醫療水平一直與西方看齊，香港每天下午4點半由衛生署和醫管局召開記者會，但是大半年過去，從未聽見官員及記者提及「救命良藥」硫酸羥氯喹，到底香港醫管局是否知道硫酸羥氯喹的臨床療效？還是根本不知道？
-
-如果阿Moon是爆料革命的戰友，或者曾經關注過爆料革命，關注過英雄科學家閰麗夢博士，關注過班農戰斗室，關注過郭文貴先生，至少，她知道有方法救回父母的性命。如果主流媒體能報導真相，捍衛新聞媒體傳遞真實信息、守護普世價值底線，她也不會淪為孤兒，全世界那89萬條無辜生命，也不會連喊一聲救命的機會都沒有，就失去了性命。
-
-作者：澳喜香港
-編輯/審核：Giselle
-
-(文章內容僅代表作者觀點)
+1. 現在港區iTunes 歌曲排行總榜 “Take Down the CCP”總排行榜第一！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09074417/image-118.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075950/12345.jpg)
+2. 美區iTunes搖滾類排行第一
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09074740/image-120.png)
+3. Live iTunes US最新榜單 上線24小時TAKE DOWN THE CCP 衝上第22名！
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080320/12346.jpg)
+4. iTunes總下載榜的第29名，九月新歌下載榜的第8名
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080440/12347.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080531/12348.jpg)
+```
+圖片來源：
+1.https://twitter.com/niuniu_Liu2/status/1303583197972684800
+2.https://twitter.com/GlobalHimalaya/status/1303552506081939456
+3.https://twitter.com/cU5RrOo0DdfFhiI/status/1303620485402357761
+```
 
 0

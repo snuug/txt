@@ -1,136 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以歌滅共——滄海一聲嘯A roar of the vast sea
-`2020-09-09 00:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342370/)
+## 新西蘭近期破產人數翻三倍
+`2020-09-09 06:13 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/342913/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09003437/2-7.png)
-滄海一聲嘯
- A roar of the vast sea 
-滔滔滅共潮
- The tidal waves surging up to take down the CCP 
-四海英雄聚今朝
- Heroes from all over the world get together 
-蒼天笑
- A laugh from heaven 
-拔劍斬紅妖
- Take out a sword to behead the red demon 
-浪沙淘盡毒霾消
- The waves and sands wash off the haze filled with poison
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09060731/Capture-18.jpg)圖片作者：Melinda Gimpel
 
-整整七十年它把中華人⺠奴役
- Having enslaved the Chinese people for a total of 70 years 還讓這片土地變得滿目瘡痍
- Rendered this land full of ruins and scars 
-全世界投毒製造各種生化武器
- Dropped the virus to the whole world, making all kinds of biochemical weapons 
-我去它大爺的人類命運共同體
- Screw the so-called Community with Shared Future for Mankind 
-三載爆料攜手戰友行天道
- In the three years of whistleblowing we carried out God’s will with fellow fighters 
-震醒我中華同胞，興起了滅共浪潮
- Wake up my fellow Chinese compatriots and set off a wave to take down the CCP 
-壯志衝雲霄，看那國旗飄飄
- In the sky our aspirations are soaring with the flag of NFSC fluttering 
-滅掉邪靈惡黨神州陽光普照
- Take down the evil CCP and bring sunshine back to China
+知名商業作家凱特·麥克納馬拉（Kate MacNamara ）9月8日在《新西蘭先驅報》上發文：由於經濟受到了中共病毒政策的影響，新西蘭的破產人數提高了三倍。
 
-江山笑
- A laugh from mountains and rivers 
-天宇搖
- Shakes the sky and universe 
-誰負誰勝出已分曉
- Who is the victor or loser is now obvious 
- ⻛蕭蕭
- The wind whistles 
-真相掀怒潮
- The truth sets off raging tides 
-盤古開天覆紅朝
- Overthrow the red regime of tyranny as Pangu created the earth and sky
+文章引用數據—商務創新和就業部門模擬的新的個人破產高峰：2020年最後一個季度的破產規模在2800到3200人之間，較之去年第四季度是800人。
 
-三年多的爆料就是跟丫死磕
- Whistleblowing for over 3 years is just to keep smashing the CCP 
-重磅實錘每天都有，一點兒也不嫌多
- We can never have too many breaking news and solid proofs every day
+作者指出有預算文件顯示，政府已撥出1000萬美元來應對這次破產潮。即將到來的破產浪潮使全球金融危機中的破產程度黯然失色。在2010年，新的個人無力償債（破產）達到了每季度1800的峰值（危機前的水平大約每季度700人）。
 
-以美滅共以共滅共，還得靠我們戰友們行動
- Our fellow fighters’ actions are crucial to taking down the CCP with forces from both inside of CCP and America
+文章列舉：政府對工作的支持，包括三倍的工資補貼，最近的措施仍然對新申請人開放，這些措施可能是推遲失業激增的原因。新西蘭破產服務從業者基頓·普龍克（Keaton Pronk）說，IRD債權人，也是破產的主要誘因，普龍克還指出，由於疫情封城，行動有限，法院積壓案件。
 
-天佑我中華兒女，共建聯邦新中國
- God bless our Chineses men and women who together build the New Federal State of China 
-黑夜現曙光，照亮東方的天
- The dawn comes up in the darkness, lighting up the sky in the east 
-戳破共匪的謊言，我準備了三十多年， 
- To expose the CCP’s lies I prepared for more than three decades 
-越過了死亡幽谷，我踏上了滅共之路
- I crossed the valley of death, embarking on a journey to take down the CCP 
-縱有太多凶險，我們不枉此生虛度
- Even with so much danger, our lives are not wasted
+但是作者表示，準確預測破產時間點是困難的。 MBIE（譯者註：該機構為新西蘭的商業、創新和就業部）發言人說，雖然預測模型對於規劃和籌資目的很有用，但“不可能精確地預測”破產人數增加的時間點，“或可能的最大的破產數字”。 “我的感覺是直到2021年才會出現。個人方面的重要因素是失業率，還有中小企業的健康在轉折點時很脆弱。還有大量抵押貸款已被推遲[銀行提供貸款延期至2021年3月]。
 
-清⻛笑
- A laugh of breezes 
-終歸正道
- finally returns to the Way of Righteousness 
-一舟踏浪自逍遙
- An unfettered boat rides freely on the waves 
-蒼生嘯
- A roar of Lao Baixing, Old Hundred Names 
-熱血萬丈高
- Their passions are running high 
-戰友們豪氣穿雲霄
- Our fellow fighters’ heroic spirit rises up through the clouds and sky 
-盤古相聚在今朝
- Time to get together at Pangu now 
-仰天⻓嘯贊英豪
- Look up and roar, praising the heroes of ours
+作者最後表示擔憂，在今年追加撥款200萬美元之前，破產部門的預算是1,670萬美元。追加的資金是從政府對500億美元的中共病毒響應和恢復基金中抽出來的。目前還未對中共病毒對公司的破產數據進行建模分析。
 
-Whatta you waiting for 
-你還在等什麼? 
- The world is safe no more. 
-世界已不再安全
- CCP lyin, The people’s dyin 
-中共撒謊，人們死亡
- We are running outta time 
-時不待我
- Action! 
-行動! 
- Take Down 
-滅共
- Action 
-行動滅共
- Action 
-行動
- Take down the CCP 
-滅掉中共
- Take Down 
- Take down the CCP 
-滅掉中共啦啦啦啦啦
- Lah lah lah lah lah 
- CCP 你完了
- CCP, you’re finished
+評：此時的中共正在舉行全國抗擊新冠肺炎疫情表彰大會。長安街上、人民大會堂裡，上千朵大紅花們深刻、沉痛悼念因疫情去世的同胞們。幾小時會議內容是再一次將中共的“偉光正”推向高潮。有網友指出：論喪事喜辦的能力唯中共政府最強。世界各地被中共病毒搞的焦頭爛額，經濟下滑，實體行業受衝擊。破產尚可東山再起，然而因中共病毒而逝去的生命卻一去不復返。中共放毒，毀滅全球。
 
-原曲:[沧海一声笑] 
- Original Song: [One Roar of Laughter in the Vast Sea] 
-詞曲:⻩沾
- Lyrics and Music by: James Wong
-
-改編:【滄海一聲嘯】 
- Adaptive Song: [A Roar of the Vast Sea] 
-歌詞:爆料革命戰友
- Lyrics by: The Fellow Fighters of the Whistleblowers’ Movement 
- Rap詞:⻬馥偉唐平
- Rap Lyrics by: Qi Fuwei, Tang Ping
-
-編曲:盲人草根
- Arrangement: Mangren Caogen 
-後期縮混:Q.May 
-盲人草根
- Tex Hill 
- Downmix: Q.May, Mangren Caogen, Tex Hill 
-和音:GTV空中唱響團隊
- Chord: GTV Sky Shouters 
-製作人:唐平
- Producer: Tang Ping 
-監製: 唐平⻬馥偉
- Supervisor: Tang Ping, Qi Fuwei
-
-1
+0

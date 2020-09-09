@@ -1,11 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命發起人：郭文貴先生希望中國擁有真正的信仰自由以及法治（法文French+英文English）
-`2020-09-09 08:40 GM62` [轉載自GNews](https://gnews.org/zh-hant/343169/)
+## 世纪大案 2：环球赌王
+`2020-09-09 11:05 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/343619/)
 
-法語標題 Fondateur du Mouvement des Lanceurs d’Alerte : M. Miles Guo souhaite une véritable liberté de culte et l’État de droit en Chine
+作者：美东香草山农场文艺组：Revenge
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09104618/WhatsApp-Image-2020-09-09-at-18.40.19.jpeg)图片来源：美东香草山农场
+摘要：赌王Wynn起家于美国，但早已将触角伸向了中共控制的澳门。权力、金钱、博彩，掩盖着勾兑、寻租、违法等种种难为人知的画面。
 
-英文翻譯：Lully 英文校對：tiger64 法文翻譯：石野鲜生 法文校對：文文-自由法兰西 字幕：AVA文晓
+司法部公布的联邦政府诉Davis案文件中（Hawaii Businesswoman Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China），辩方Davis女士除对1MDB非法游说认罪外，也对遣返一位中国籍人士的非法游说认罪，这位中国籍人士不是别人，正是郭文贵先生。
+
+1999年，澳门政权从葡萄牙移交给CCP，澳门赌王何鸿燊等的澳门旅游娱乐有限公司已被独家特许经营澳门博彩业近40年。2002年，澳门政府重发赌牌，由澳门控股、银河娱乐、永利三分天下。过江龙永利(Wynn)来自环球赌王、赌城拉斯维加斯的传奇缔造者Steve Wynn。
+
+在内华达州荒无人烟的莫哈维沙漠中，资本主义的冒险家们建立了光怪陆离、一派北非热带风光的拉斯维加斯。赌城现代化发展的里程碑是新开发的Las Vegas Strip地带。这里聚集了很多世界著名的酒店和娱乐公司。沿着Las Vegas Strip行驶，游客往往惊讶于夸张而豪华的酒店大楼和充满异国风情的度假村，The Mirage，Treasure Island，Bellagio，Encore，Wynn。这些博彩酒店度假村，连同Las Vegas Strip规划，背后的重要推手就是赌王Wynn，他旗下的Wynn酒店(Wynn Las Vegas)和Encore酒店(Encore Las Vegas)坐享4000多间客房，毗邻的地标性建筑就是金光闪闪的标志性建筑——来自地产大亨、Trump总统的Trump国际酒店。
+
+两大地产娱乐大亨在赌城做邻居，私交也相当密切。Trump关注美国业务，而Wynn早早地就在澳门政权移交之际，作为唯一的外资公司拿到了当地的赌牌——过去20年在澳门的经营许可。能在黑幕重重的共产中国治下的澳门拿到唯一的外资赌牌，没有CCP的认可是绝对不可能的。这里究竟有多少和CCP的勾兑故事呢？
+
+2016年大选，Trump入主白宫，在Trump背后政商两界的支持者中，Wynn无疑是最铁杆者之一。近年来，Wynn给共和党和Trump竞选团队捐出的政治捐款达数百万美元。Trump竞选成功后，Wynn被任命为总统就职委员会的副主席，之后被任命为共和党全国委员会的财务主席。
+
+Wynn的政治身价随着他投资Trump的成功水涨船高，CCP的老妖怪们自然想到借助Wynn的私人关系去影响Trump总统。司法部诉Davis案的核心人物Elliott Broidy，同为共和党全国委员会财务主席。Broidy和Wynn参与了对Trump总统的游说。在司法部披露的文件中，Davis承认她在2017年前往香港，会见了时任中国公安部主管国内安全(情报)的副部长孙力军和Broidy等人，随后Broidy开展了游说活动，游说对象包括时任白宫幕僚长Reince Priebus以及总统本人。
+
+Broidy和Wynn进一步游说Trump总统，提出对郭文贵的遣返建议。一边是Davis在Wynn和孙力军之间牵线搭桥，一边是Broidy和Wynn在白宫吹风。Wynn和CCP在澳门勾兑多年，澳门博彩业的大部分营业额来自中国内地官商勾结的非法收入的洗钱，这种关系使Wynn能够直通CPP的匪首们。2017年，Wynn通过私人渠道直接向Trump总统传递了习近平要求遣返郭文贵的信息。
+
+刚刚掌握世界上最强大国家行政领导权的Trump总统，获得高等级的国家安全情报权限不久，对国际政治背后的复杂背景还没有完全理解。对于遣返郭文贵的提议，Trump总统并未觉察出任何异样。冒与一强国对抗的风险拒绝遣返一位当时对美国公众尚名不见经传的郭文贵先生，这从任何政治家的角度来看都是不理智的。于是，遣返郭文贵先生的提议在Trump总统那边被放行，白宫幕僚长Priebus随即把遣返提议转到了国家安全委员会。
+
+与Trump总统这样的民选官员不同，国家安全委员会的要员，除了行政班子任命的内阁要员外，还有美国政治的中坚力量——政治中立的职业公务员系统。他们中的许多人多年来以超越党派的方式低调处理着国家安全事务，对许多细节问题有着不限于党派任期的长远考虑。只有对美国国家安全事务有长期研究和事务处理经验的专业人员才能认识到，当时名不见经传、来自遥远东方的郭文贵先生，对于美国的国家安全有多大的价值——这些在之后的几年中逐渐得到了验证。
+
+国家安全委员会和司法部最终否决了遣返郭先生的动议。Jeff Sessions，历任阿拉巴马州联邦检察官、阿拉巴马州总检察长，做了20年参议员，并曾任参议院司法委员会副主席(ranking member，由少数党担任)，是Trump内阁的第一任司法部长。他在美国司法界任职多年，十分了解遣返郭文贵先生的严重性。司法部长Sessions先生最终公开在媒体上发表声明，高调警告Trump内阁，一旦同意遣返郭先生，自己将辞职。
+
+郭先生最终留在美国，Session后来辞职，由更强硬的Willian (Bill) Barr接任，司法部灭共的力度更加强大，而CCP试图遣返郭先生的努力并未停息，更强有力的游说者则是郭七条之“不反习”的习近平。
+
+编辑：美东香草山农场教育组：飞虹
 
 0

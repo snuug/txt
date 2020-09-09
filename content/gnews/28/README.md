@@ -1,76 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以歌滅共——Take down the CCP的歌詞
-`2020-09-09 00:42 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342349/)
+## 高登.張警告：中國“配置軍隊殺死美國人”
+`2020-09-09 06:33 GM06` [轉載自GNews](https://gnews.org/zh-hant/342921/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09002541/1-49.png)
-let me tell u what i been through baby 
-告訴你我經歷了什麼
- lived a life that was hella unfair 
-過著一種不公的生活
- seen things that been driving me crazy 
-看到許多讓我發瘋的事
- in a country where the leaders don’t care 
-而國家領導卻毫不在乎
+编辑：雅典娜之矛
 
-didn’t think we that the courage to change it 
-不認為我們有勇氣改變它？ 
- tore it down and they wasn’t prepared 
-推翻它而他們卻毫無準備
- everything that they kept us from saying 
-所有那些不讓我們說的話
- now we talking and they better be scared 
-現已傳遍大街小巷，他們最好開始恐懼
+張敦促特朗普將美國經濟與中國脫鉤
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09053109/%E9%AB%98%E7%99%BB.png)张：中国破坏和平与稳定
+亚洲分析师高登（Gordon Chang）对中国日益增长的军事威胁作出反应。
+外交事務專家高登·張周壹表示，支持唐納德·特朗普總統將美國經濟與中國脫鉤的想法，警告該共產主義國家“正在配置其軍隊以殺死美國人”。
 
-take down the CCP 
-推翻共產黨
- take down the CCP 
-推翻共產黨
- follow me and ima set us free 
-跟隨我解放自己
- take down the CCP 
-推翻共產黨
+周壹出現在福克斯新聞頻道的“比爾·海默報道”上的張說：“我們不應該通過我們的貿易和投資來充實敵對政權。我相信，特別是今年，脫鉤是我們絕對要做的。”
 
-take down the CCP 
-推翻共產黨
- take down the CCP 
-推翻共產黨
- communism’s dead to me 
-共產黨必死
- because it killed our families 
-因他殺了我們的家人
- fuck the CCP 
-去他媽的共產黨
+張指出，五角大樓最近的壹份報告顯示，中國可能試圖在本世紀末使包括核彈頭在內的核彈頭數量增加壹倍。
 
-they take and take and take from us 
-他們不斷奴役我們
- tell us what and who to love 
-告訴我們該做什麼該去愛誰
- swear i’ve finally had enough 
-我真受夠了
- it’s time to rise above 
-是時候站起來了
+他說：“習近平主席越來越多地談論這種觀念，即中國有統治世界的天堂。” “他們（相信他們）不僅有權這樣做，而且有義務這樣做。”
+他補充說：“他在公開場合已經變得非常具體，他的官員也變得非常具體，這意味著他們正在試圖改變國際體系，而不是在國際體系中競爭。”
+他警告說，中國認為它需要迅速采取行動，這意味著美國不會在2030年代看到問題，而是“現在”。
 
-VERSE 2
+特朗普在八月份接受福克斯新聞采訪時提出可能切斷與中國的所有貿易關系。
 
-communism sucks 
-共產主義真他媽爛
- hard for me to give a fuck 
-在我眼裡就是狗屁
- tried to tell em & try to keep it up on the hush 
-警告過你，沉默之後必將爆發
- middle finger up, turn into a fist 
-豎起的中指變成鐵拳
- they wanna keep the poor poor so they never rich 
-他們想要窮人永不翻身
- if u wanna see the future look into the past 
-回看過去你會看到未來
- been a century of silence we gon take it back 
-一世紀的沉默，我們必將奪回家園
- i’m just stating facts, tell you how it is 
-我只是告訴你事實、告訴你真相
- ain’t no way to change shit if we don’t resist 
-我們若不反抗就無法改變這腐爛的世界
+特朗普說：“沒有哪個國家比中國更能騙我們。” “我們損失了數十億美元，數千億美元。我們從中國得不到任何東西。是的，我們得到了壹些我們可以生產的商品……。但是，我們什麽也得不到。我們所做的就是虧錢。”
+
+
+
+
+
+援引：
+https://www.newsmax.com/t/newsmax/article/985732?section=newsfront&keywords=gordonchang-military&year=2020&month=09&date=07&id=985732
+援引：https://www.foxnews.com/world/gordon-chang-warns-china-configuring-its-military-to-kill-americans
 
 0

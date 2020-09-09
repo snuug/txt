@@ -1,21 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/02 CCP病毒每日疫情直播簡報
-`2020-09-09 08:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/343054/)
+## 日本製造業開始與中共國脫鉤
+`2020-09-09 10:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/343567/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09103835/1-53.png)圖片來源： [GNEWS](https://gnews.org/zh-hans/) 
+據《日經亞洲》（Nikki Asia）9月9日報導，為了撤離中共國而尋求日本政府補貼的日資企業數量激增，這些企業申請的補貼總額急升至政府預算的11倍。報導指出，日本政府正在積極地幫助日資企業撤離中共國，以恢復其國內製造業，因為中共病毒大流行凸顯了供應鏈集中在單個地區，尤其是在獨裁的中共國的風險。
 
-[English\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)
+根據此報導以及之前GNEWS 1 的報導，日本政府在2020財年補充預算中指定了2200億日元（20.7億美元）作為恢復和促進其內部製造業的計劃。在今年6月結束的第一輪申請中，日本政府批准了90個申請項目中的57個，總補充金額為574億日元。第二輪申請於7月結束，申請數量激增至1670份，而申請總額約為1.76億億這些申請正在經歷外部專家審查，從而重新公佈了受補貼清單。
 
-[French\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)
+儘管日本政府目前還沒有計劃為該補貼預留更多資金，但安倍晉三之後有望繼任的首相候選人已經提到了支持供應鏈多元化的措施。除此前受補貼的回流日本的企業外，另外還有30家企業已獲批准235億日元的一項單獨計劃，該計劃的重點是將日資企業從中共國向東南亞轉移。
 
-[German\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)
+總體來講，日本政府的補貼計劃針對的是對公共衛生至關重要的產品，還有在某些特定國家大規模生產的產品。許多先前已經獲得批准的項目涉及到口罩和醫療產品，而每個項目的補貼上限為150億日元。例如這三家企業均獲得了此項補貼。一是在第一輪中獲得補貼的Ace Japan，該企業為藥物原料製造商，之前主要從中共國進口原料，但該企業將於明年夏天在日本山形縣（Yamagata Prefecture）破土動工建廠；二是Iris Ohyama，該企業也在第一輪中獲得補貼，並逐步脫離其在蘇州和大連的基地，開始在日本國內生產口罩，同時著手拓展美國、法國和韓國多地元化經營；三是Showa Glove ，該公司是一家橡膠手套生產企業，其計劃最早於2023年春季在日本國內生產橡膠手套，取代其進口的約10%。
 
-[Korean\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)
+報導還指出，日本政府之前也通過補貼方式吸引生產商回歸本土來應對其他危機，如2011年3月的地震和海嘯後，日本政府為了刺激商業向750份項目申請中的250個提供補貼，總計約2000億日元，但此次補貼計劃實施的情況有所不同，就是中美貿易戰導致的不確定性使經濟安全比以往任何時候都更加重要。基於此，東京早稻田大學經濟學教授戶唐康之（Yasuyuki Todo）稱，保護主義政策在中共病毒爆發之前就已盛行，只是此次中共病毒帶來的衝擊加劇了這種趨勢，全球企業應該通過供應鏈多元化來減少對中共國的過度依賴。
 
-[Spanish\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)
+隨著勞動力成本上漲，中共國作為製造國的吸引力一直在下降。日本貿易振興會（Japan External Trade Organisation）在2019年對日本公司進行的一項調查中，將日本的製造成本作為100的基數，中共國的成本為80，越南為74。
 
+評：隨著以美國為首的西方主流國家的製造業撤離中共國，全球製造業撤離中共國已是大勢所趨。此次撤離中共國而尋求日本政府補貼的日資企業數量激增，更重要地說明與中共脫鉤是全球民心所向。經濟滅共至關重要，製造業撤離和金融制裁，全面實現與中共國的脫鉤無疑是擊垮中共擀麵杖的重要舉措。中共邪魔對內殘酷統治的同時對外惡意散播病毒禍害全球，全球正義聯盟已經覺醒，聯合中共大局已形成！ Take down the CCP!
 
+新聞參考鏈接：
+
+1】 [https://gnews.org/zh-hans/168319/](https://gnews.org/zh-hans/168319/)
+
+報導原文鏈接:
+
+https://asia.nikkei.com/Economy/Japan-companies-line-up-for-China-exit-subsidies-to-come-home
+
+翻譯報導：時晗
+
+校對：Sarathecat
 
 0

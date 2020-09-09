@@ -1,26 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月9日財經快訊: 美台重塑全球供應鏈, 中共制裁訪台企業
-`2020-09-09 01:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342453/)
+## 班農戰鬥室專訪郭文貴先生：中共以騙術妄圖統治世界
+`2020-09-09 06:44 GM06` [轉載自GNews](https://gnews.org/zh-hant/342938/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09010042/Picture16.png)圖片來源： [https://s2.reutersmedia.net](https://s2.reutersmedia.net/resources/r/?m=02&amp;d=20200909&amp;t=2&amp;i=1532661397&amp;w=430&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG871VH) 
-[1. 科技股大跌攪亂亞洲股市，石油期貨延續低迷。亞洲股市週三下跌，油價跌至6月份以來的低點，科技股連續第三天下跌。阿斯利康製藥公司由於一名研究參與人員莫名染病而停止其疫苗臨床三期測試，引起風險市場恐慌情緒。](https://www.reuters.com/article/us-global-markets/tech-rout-roils-asian-shares-oil-futures-extend-slump-idUSKBN25Z3DY)
+作者：文徬
 
-[2. 美國和台灣將重塑供應鏈，將相關產業撤離中國。美國和台北呼籲價值觀一致的民主政體加強合作，擺脫對中共的依賴。](https://www.ft.com/content/64be66cd-91eb-4862-a8fe-7c998b2e4770)
+班農先生戰鬥室9月5日第371期特輯，專訪郭文貴先生，談中共全球統治計劃，郭先生揭露中共以騙術滲透控制西方世界。
 
-[3. 中共的中東戰略以損害美國利益為代價。今年上半年，伊拉克對美國石油出口減少近一半。近期中共影響力在中東地區迅速擴張, 事實上阻礙了中東和平進程。北京承諾一旦美國永久撤出中東地區，將為塔利班投入大量能源和基礎設施投資。](https://www.ft.com/content/e20ae4b9-bc22-4cb5-aaf6-b67c885c845c)
+美國司法部長巴爾近日表示，中共是美國2020年總統選舉的最大幹預者，中國對美國的滲透和威脅遠遠超出俄國和伊朗。美國總統國家安全事務助理奧布萊恩也指出“中國有幹預美國選舉的最大規模政治計劃。”
 
-[4. 美國海關和邊境保護局擬禁止進口中共國新疆地區的棉花和西紅柿，因其生產過程涉及強迫勞動。](https://www.reuters.com/article/us-usa-trade-china-xinjiang/u-s-to-block-cotton-tomato-product-imports-from-chinas-xinjiang-over-forced-labor-idUSKBN25Z29N)
+郭先生指出，回顧過去的五十年中美兩國關系，中共沒有說過壹句真話，履行過任何壹個合同。比如中共所說的“兩萬五千裏長征”，都能從紐約和北京走個來回了，中共杜撰的歷史全是謊言。中共與西方的近13000次協議，如世界貿易組織、世界衛生組織、聯合國、反導條約、南海、臺灣、香港、新疆、西藏、蒙古，任何壹個合同都沒有兌現承諾。
 
-[5. 中共將製裁訪台的美國高官及關聯企業。](https://3g.163.com/money/article/FM2L97T900258105.html?clickfrom=channel2018_money_index_newslist&amp;ver=c#child=index&amp;offset=2)
+中共欺騙了美國五十年。川普總統與習近平總書記在馬阿拉哥簽署了中美戰略對話，看看現在都發生了什麽。正如美國總統國家安全顧問奧布萊恩所言“在過去40年來，美國最大的外交政策失敗或就是我們與中國打交道的方式。”中共和美國締結的合約，從最惠國待遇到入世協議，中共的承諾全部是謊言和欺騙。在疫情之初，中共告訴美國不會人傳人，封鎖國內交通，卻放任國際航班，大肆搜刮全球防疫材料和設備。
 
-[6. 中共國建設銀行9月8日披露的經安永會計師事務所審閱的半年報顯示吸收存款和年初相比增加2萬億元，貸款餘額增加1.5萬億元。其中單位貸款增加1.1萬億元，貸款減值損失增加49%，營業現金流下降45%。沒有披露與關鍵管理人員的薪酬關聯交易。那麼是誰的存款增加了？安永會計師事務所是怎麼審閱的？！值得注意的是阿里巴巴的螞蟻集團在香港交易所的IPO財務報表也是安永所審計。](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1768109&amp;priority=0)
+實際上，中共對政權的竊取和維持也是依靠詐術。1978年2月胡耀邦的壹次講演中，提到“要是讓人民知道了我們共產黨的歷史，人民就要起來推翻我們了。” 14億中國人被“防火墻”擋住，陳薇少將去武漢P4實驗室僅40天後，就出現了疫苗，疫苗從何而來，而中共說病毒是從海鮮市場來的，然後迅速拆除了海鮮市場。
 
-[7. 美國洛杉磯超越肉類公司（Beyond Meat)本週二宣布進軍亞洲，計劃在上海附近設立兩家工廠，搶占大市場，生產肉類替代食品。](https://www.google.com/amp/s/news.yahoo.com/amphtml/beyond-meat-makes-china-push-154418470.html)
+中共的詐術獲得了巨大成功。5到10個中共盜國賊家族控制了海量的數以萬億美元的財富，中國14億人民淪為奴隸。中共不僅在中國建立網絡防火墻，而且在美國也建立了媒體防火墻，通過大外宣迷惑美國人民，有太多美國人對中共的邪惡毫無認知。美國養肥了中共這個紙老虎，中共的技術來自美國，資金來自華爾街。
 
-[8. 中共控制下代孕產業火爆，疫情期間訂單增加。](https://m.sohu.com/a/417162241_260616/?pvid=000115_3w_a)
+如果不是郭文貴先生領導的爆料革命說出真相，全世界都會陷入深淵。美國人想要安全與和平，只有壹條路可以走，那就是推翻中共。美國是時候分清敵我了，美國必須做好開戰準備。
 
-By：【秘翻組-金融法律團隊】
+
+
+信息来源：war room YouTube频道，Ep371
+https://pandemic.warroom.org/2020/09/05/ep-371-pandemic-the-ccps-plan-for-global-domination-w-miles-guo/
 
 0

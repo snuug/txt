@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 火爆！郭先生新歌《Take Down the CCP》登榜首！
-`2020-09-09 08:15 yingdongdongtw` [轉載自GNews](https://gnews.org/zh-hant/343032/)
+## 世纪大案 1：华尔街之狼
+`2020-09-09 10:59 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/343605/)
 
-```
-作者：文非
-```
+作者：美东香草山农场文艺组：Revenge
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09104618/WhatsApp-Image-2020-09-09-at-18.40.19.jpeg)图片来源：美东香草山农场
+摘要：现实中的华尔街之狼，身负要案却能兴风作浪且受到重重保护的神秘华裔，远比电影更精彩。
 
-北京時間9月8日，郭文貴先生出品的新歌《Take Down the CCP》在各大平台上發布，因搖滾風的律動及朗朗上口的歌詞，受到全世界人民的追捧，在iTunes排行榜上排名飆升。
+2013年，国际巨星Leonardo Di Caprio主演的电影《华尔街之狼》上映。片中充斥了大量裸体、性爱、粗口场面，在美国被评为R级上映。过去在人们心目中被认为是高尚、高智商、高情商、光鲜靓丽的金融业，通过这种方式展现在大众媒体上，一时间让许多观众难以接受，甚至热衷于讨论“真实的金融界真如电影这样荒诞下流吗？”这类的话题。我们的故事将告诉读者，真实的世界远比电影更让人难以接受。
 
-1. 現在港區iTunes 歌曲排行總榜 “Take Down the CCP”總排行榜第一！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09074417/image-118.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075950/12345.jpg)
-2. 美區iTunes搖滾類排行第一
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09074740/image-120.png)
-3. Live iTunes US最新榜單 上線24小時TAKE DOWN THE CCP 衝上第22名！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080320/12346.jpg)
-4. iTunes總下載榜的第29名，九月新歌下載榜的第8名
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080440/12347.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09080531/12348.jpg)
-```
-圖片來源：
-1.https://twitter.com/niuniu_Liu2/status/1303583197972684800
-2.https://twitter.com/GlobalHimalaya/status/1303552506081939456
-3.https://twitter.com/cU5RrOo0DdfFhiI/status/1303620485402357761
-```
+观众们不一定注意到，这部电影的投资方之一是Red Granite Pictures(红岩影业)，作为电影的金主，它背后出现了近年来充斥媒体的美国最大金融腐败调查案件——涉及数十亿美元款项的马来西亚国家主权基金1MDB案的影子。红岩影业创始人Riza Aziz的生母是Rosmah binti Mansor，他的继父则是现已锒铛入狱的前马来西亚总理Najib Razak。
+
+Riza Aziz能纵横商界的更强大的人脉是1MDB丑闻的主角，圆圆滚滚的小白胖子刘特佐(Jho Low)。小李子Di Caprio在《华尔街之狼》中展现的荒淫无度的生活，只是刘特佐现实生活的小小一面。当然，刘特佐不够帅，或者太不帅了，所以砸钱拍电影，也算让大帅哥小李子圆了自己的梦？
+
+帅不帅，得看亲爹。作为美国政府通缉的1MDB案头号嫌疑人，涉嫌对1MDB数十亿美元的侵吞，小胖子刘特佐在马来西亚和中国可谓横行无忌的大亨。 在上海外滩黄浦江的夜夜灯火中，刘特佐在半岛酒店享用着《华尔街之狼》也无法表述的迷离生活，他身边是国家级的安保力量，因为他的DNA来自CCP魔窟中的大魔头——前江派大佬、政治局委员、公安部长、中央政法委书记孟建柱。身负数十亿美元案底，美国政府对他却无能为力。
+
+2020年8月底美国联邦司法部(DOJ)在夏威夷州发起一项刑事指控，诉夏威夷商界人士Davis女士与1MDB案件有染。联邦检察官的文件表明，刘特佐参与出资给一个共和党的游说集团，游说Trump内阁安排时任总理的Najib高调访美会见Trump总统。众所周知，近年来1MDB案已经成为美国和马来西亚外交关系的主要问题，这样的高调访问，势必可以让Najib有机会当面和Trump总统勾兑，从而影响司法部的办案，甚至让此案不了了之，洗脱刘特佐这只胖胖的、真正的华尔街之狼。
+
+从2017到2018年，国际“睡客”Davis女士游走于共和党全国委员会(DNC)副主席Elliot Broidy和刘特佐之间，谈成了这项对Trump行政当局，包括Trump总统本人、其行政分支、司法部的游说计划——问题在于，这种游说是非法的。司法部重拳出击，宣布Davis认罪。这位交际花大姐的倒台，推倒了多米诺骨牌，接下来倒下的，将是她在全球编织的性丑闻网络中的谁呢？
+
+编辑：美东香草山农场教育组：飞虹
 
 0
