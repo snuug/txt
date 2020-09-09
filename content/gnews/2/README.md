@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧：香港穩定要靠民主及問責而非限制言論自由
-`2020-09-08 16:07 pmzy` [轉載自GNews](https://gnews.org/zh-hant/341899/)
+## 病毒並非源自武漢華南海鮮市場! 閆博士揭露秘密調查結果（挪威語Norwegian+中文Chinese）
+`2020-09-08 19:40 GM62` [轉載自GNews](https://gnews.org/zh-hant/342070/)
 
-內新聞作者：文章
+挪威語標題 Coronaviruset kom ikke fra sjømatmarkedet Huanan i Wuhan!
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08160310/mfile_1548578_1_L_20200909031602.jpg)
+翻譯：rabbit79 校對：tiger64 視頻：年糕
 
-香港民眾6日在九龍區發起遊行，要求重啟立法會選舉，有近300人遭港警逮捕。美國國務卿蓬佩奧在社交網站Twitter貼文表示，香港要穩定，最佳途徑是民主、尊重基本自由和政府問責，而非限制言論自由、延遲選舉及限制行動等嚴苛的做法。
+視頻簡介
+
+閆博士揭露接受任務秘密調查武漢疫情的細節，2019年12月底已經有很多新冠病毒病例，其中三分之一的案例與海鮮市場無關。中共隱瞞病毒疫情、隱瞞基因序列，所有的醫生都被要求對疫情”閉嘴”
+
+Dr. Yan avslører fra det hemmelig oppdraget hun fikk om å undersøke utbruddet av coronaviruset i Wuhan. Det har vært mange nye tilfeller i slutten av desember 2019, og en tredjedel av tilfellene har ingenting å gjøre med sjømatmarkedet. KKP dekket over epidemien, skjulte virusets genetiske sekvens, og legene i Kina måtte holde munn om coronaviruset
 
 0

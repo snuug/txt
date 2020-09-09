@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共路上沒有第一，您就是那個唯一
-`2020-09-08 09:35 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341294/)
+## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
+`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08092758/Ed2mtCLU0AAc_Pe.jpeg)圖片來源：澳喜農場湘北兩萬球
-文貴先生早些時候在直播中曾說過：先生不做第一，只做唯一；爆料革命不做第一，只做唯一。戰友們、朋友們、所有心存善良與正義的人們，您就是這場人類社會進入二十一世紀以來最重磅事件：幹掉邪惡的中國共產黨這場大戲中的主角。滅共，沒您不行！
+英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
 
-####  **俯仰天地之間，浩然正氣長存。** 
+视频重点
 
-邪共為禍中華民族近百餘載，所做之惡罄竹難書人神共憤，所到之處生靈塗炭滿目瘡痍。久之，人間定然善良隕落妖孽橫生。邪共對內施以暴政，恐怖大行其道，百姓多有敢怒而不敢言者，於強權下掙扎求生；官員阿諛奉承，務虛之風瀰漫盛行，粉飾太平渾噩度日。邪共對外巧言令色虛以委蛇，對各國政要以色利誘之，不惜犧牲國家民族利益輸出腐敗，妄圖以此玩弄世界於股掌，奴役全人類。如今更是向全球輸出病毒，造成全球停擺，幾千萬人感染、幾百萬人死亡之人類從未有過的人道災難。文貴先生三年前就多方奔走，呼喊預警人類將陷入前所未有的黑暗。 “一燈能除千年暗，一智能滅萬年愚”，善良已經甦醒，正義正在集結，一支穿雲箭，千軍萬馬來相見，今生能跟隨先生共襄滅共義舉，榮甚，幸甚。善良正義除了滅掉邪惡的中國共產黨，沒有其他選擇，當我們面對正義與邪惡時又何須選擇，這就是吾輩之選擇，吾輩之歷史擔當。滅共，沒您不行。
+1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
+2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
+3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
+4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
+5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
 
-####  **個業與眾業，第一與唯一** 
 
-人類步入文明的二十一世紀，自由民主法治已成為這一人類世紀的發展基石，生而為人就要有最基本的人權。中國共產黨把中國人民當豬狗一般奴役了71年，肆意剝削，肆意屠戮。他們口口聲聲要消滅剝削，但是他們創造了對人類剝削的極限。他們口口聲聲要為人民服務，他們把人民當畜生一般對待，讓人民相互戕害。國內幾乎每天都會發生因為中共集權暴政，民眾生存艱辛而相互撕咬洩憤的慘劇。這一樁樁一件件，施暴者與受害者的根源都是中國共產黨。所有人都是不自知的受害者，魔鬼搶走了人民的靈魂，鮮活的生命如行屍走肉般被奴役致死。每一個生命都是有靈性的、是上天賦予使命的，每一個來到人間的生命都在推動著人類社會往前走，每一天都身處於我們自己所創造的歷史當中。
+1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
+2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
+3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
+4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
+5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
 
-先生曾說過：想要改變人生，何須多時多日多費周章，一秒鐘足矣。對此我深信不疑，外部世界都是我們每個人內心的照見，有什麼樣的內心就會呈現什麼樣的世界。如果我們每個人都能看到中共成功統治世界以後的景象，亦或能看到世界沒有了中共以後的樣子，那滅不滅共還會是一個問題嗎？您的每一個對美好生活嚮往的起心動念，每一個追求美好生活願望，就是一顆顆射向邪惡的中國共產黨的子彈。滅共路上沒有第一，您就是那個唯一。中共意圖再次誆騙中國人民，欺騙全世界，這一次我們堅決不答應！
-
-####  **日拱一卒無有盡，功不唐捐終入海** 
-
-在文貴先生髮起的爆料革命推動下，世界正義力量已經達成共識，中共的滅亡指日可待。中共權貴們殊不知大廈將傾，還在沐猴而冠、彈冠相慶，極盡醜陋之能事，妄想裹挾著被防火牆隔絕真相的善良勇敢的中國人民作困獸鬥。三年來，先生用一個個事實堆砌起來的幾千個視頻喚醒了全世界。三十年來，先生與敵周旋，不斷強大自身，且能出淤泥而不染委實可嘆可敬；先生在給戰友講玉米地的故事時，真性情又令人折服。三十年的蓄力，三十年的隱忍，如今終於開出了美麗的花朵。這朵花就是真相之花、正義之花、正道之花。戰友們，您的每一個對美好生活的願望都是幸運的，因為這願望很快就能長出翅膀，自由翱翔在明媚的陽光之下。戰友們，日拱一卒無有盡，功不唐捐終入海。滅共路上您就是唯一！
-
-讓我們一起唱著《笑傲江湖》快樂地滅共！
-
-Enjoy take down CCP！
-
-作者：澳喜探花郎
-編輯/審核：Giselle
 
 0

@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港：12歲女童路過突遭男防暴警迎面撞飛
-`2020-09-08 11:53 GM36` [轉載自GNews](https://gnews.org/zh-hant/341569/)
+## 郭先生傾情獻聲《Take Down the CCP》登錄美國各大音樂類App，戰友們打Call的機會來了！
+`2020-09-08 12:56 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/341647/)
 
-編撰：文卡西歐、文粵、文燕、文肯尼
+郭先生傾郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，發行方是G Music。這是我們爆料革命在音樂類App的第一首戰歌。戰友們，我們為搖滾歌星Miles Guo打Call的機會已經來了！請大家到自己熟悉的音樂類App收聽下載點贊。另外，請大家欣賞音樂的同時，多多轉發宣傳。「爆料革命，我最重要！」
 
+iTune:
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123120/figure1.png)圖片來源：iTunes
+[Spotify](https://open.spotify.com/track/6CxkWCdqMLjZaTtyY2A1KV?si=1RXP0FIaQzGyx2fj8zD6zA):
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123130/figure2.png)圖片來源：Spotify
+[Amazon Music](https://music.amazon.com/albums/B08HMCLFJX?trackAsin=B08HMC1X64&amp;ref=dm_sh_4135-18b3-dmcp-4017-1cea5&amp;musicTerritory=US&amp;marketplaceId=ATVPDKIKX0DER):
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123141/figure3.png)圖片來源：Amazon Music
+[YouTube](https://youtu.be/f5LE6WqfvvE):
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123151/figure4.png)圖片來源： [https://youtu.be/f5LE6WqfvvE](https://youtu.be/f5LE6WqfvvE)
+[Apple Music](https://music.apple.com/us/artist/miles-guo/1530852387):
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08123201/figure5.png)圖片來源：Apple Music
+撰寫：【相機過熱啊】資料：【文青】編輯：【Michelle】
 
+戰友之家玫瑰園小隊出品
 
-**新聞簡訊**
-
-一名**12**歲女童9月6日與哥哥在路過旺角買顏料時，突遭男防暴警迎面撞飛，身體失去平衡後，後腦著地，再被多名警員騎身和膝壓制服 ，造成身體多出受傷。
-
-女孩媽媽–何太今早向《蘋果》記者表示，女兒現在抗拒接觸外界，不願意再聽到或提起當天的事情，現在情緒很不穩定，或需尋求心理輔導。
-
-何太透露，兩兄妹都被警察票控違反限聚令，但當時兄妹倆只是逛街，並沒有參與活動或也不認識現場人士。
-
-根據多名不願意透露名字的骨科醫生翻看事發影片後表示，女童體質單薄，而迎面撞上的防暴警則體格高壯，單是身體的撞擊力，亦有可能撞傷女童；加上她當時被撞倒後失去重心，身體後傾，後腦最先著地，若非哥哥在身旁，隨時都有腦震蕩的可能。其次是被多名警員騎身和膝壓，若用力過度，女童的脊椎和神經線都有有可能受到重創。骨科醫生認為12歲孩子的骨骼尚未完全發育，肋骨脆弱，是很容易被折斷的。事件中，女童只是擦傷，可算是不幸中的大幸。
-
-社區組織協會幹事施麗珊認為，警員的反應明顯“過激”、處理手太“過火”。女童當時受驚才跑，卻無辜遭受警察的粗暴對待。施麗珊表示，警方必須審視對待青少年及兒童的態度。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08115239/908-1-scaled.jpg)
-**編者觀點**
-
-經過這次事件，女童身心受傷。身體的創傷看得見，但心靈的創傷是看不見的。身體的創傷假以時日能被治好，可心靈的創傷什麼時候才能治愈？國際人權律師兼澳洲保護兒童組織政策總監SimonHenderson認為，目睹今天香港的社會狀況，香港兒童長大後會害怕警察。無可否認，香港今天的警察，並沒有起到維持社會治安的作用，而是為社會製造了更多不安，是典型的黑警！
-
-女童當時明顯沒有做出任何危害共眾的行為，卻遭到防暴警察的暴力製服，從看不到對方是“大肚婆”，到該次的暴力製服小孩子，對社會的弱勢群體，這種不必要和不合比例的惡劣執法令港人以及全人類憤怒，這般惡霸和暴徒，不配稱為警察。他們應該受到全世界的遣責與審判。
-
-新聞來源
-
-[https://hk.appledaily.com/local/20200907/KGEGLAWLMNF7JJWRRCFA5LU571/](https://hk.appledaily.com/local/20200907/KGEGLAWLMNF7JJWRRCFA5LU571/)
-
-0
+2

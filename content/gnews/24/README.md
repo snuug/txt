@@ -1,25 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/03 CCP病毒每日疫情直播簡報
-`2020-09-08 10:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/341385/)
+## 賊喊捉賊？中共發起《全球數據安全倡議》只不過是欲蓋彌彰
+`2020-09-08 11:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/341530/)
 
-英文標題 CCP Virus Pandemic Updates Ep223:  Chinese police hunted for the South Mongolian students, arrested them and took them to school
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08113339/1-45.png)圖片來源：華盛頓時報
+據美國CNBC電台報導，中共國外交部長王毅在星期二宣稱，中共國已發起《全球數據安全倡議》，為保護個人信息安全和防止監控行為定下原則。這份倡議書總共包含八項原則，涵蓋從數據保存到數據使用的範圍。在抖音和微信快被禁之際，作為侵犯知識產權和偷盜個人信息都堪稱第一的中共，這會兒突然發起《全球數據安全倡議》，難道是真的悔改了嗎？
 
-视频重点
+正當美國政府不斷對中國大科技公司進行施壓，以及倡導其他國不和這些公司做生意時，中共政府推出了這份倡議書。倡議書的內容包括反對利用信息技術破壞他國關鍵基礎設施或竊取重要數據，以及確保科技公司不在產品和服務中設置後門，非法獲取用戶數據。
 
-1. 內蒙古中小學生新學期於9月1日正式開學，中共當局施壓利誘且發佈各種強制命令，但連日來絕大多數家長拒絕送子女上學，各地蒙古學校教室空蕩蕩。同時中共當局安排其它族學生身穿蒙古袍上學，製造蒙古族學生上課的假新聞。
-2. 中共員警四處追捕蒙古族學生，抓他們回去上課。蒙古語教學事件中23人遭通緝。
-3. 內蒙古呼和浩特師範大學附中，學生集體抗議。學生抗議活動得到在場民眾支持。
-4. 中共內蒙古政府檔案：中共黨員或公職人員的子女罷課就懲治家長。這是中共以黑治國的證據之一。
-5. （9/1）昨天很多戰友給我打電話，蒙古的戰友。這兩天當我們看到蒙古的孩子被給弄在學校的時候。我們都在學校長大的。看到那些孩子竟然被關在學校裏不讓回家，你說這個世界有多瘋狂。你看看在新疆幹的事兒、西藏幹的事兒、台灣幹的事兒、香港幹的事兒、在美國DOJ的文件幹的事兒、在歐洲幹的事兒、在非洲幹的事兒，你能看出來共產黨想幹啥。就和1932年到1946年的德國希特勒完全一樣。
+**中共的倡議是** **“** **賊喊捉賊** **”** **的老套路**
 
+據王毅稱，此倡議書將終止那些侵犯個人信息安全的活動，並要求科技公司必須尊重其營業當地國的法律，停止脅迫本國企業將海外數據存儲在科技公司所屬國境內。這幾項原則似乎是在回應近期美國政府對中共國信息技術企業的不滿。美國指控中共國科技公司收集美國人的個人信息並把這些信息發送回中共政府。這些被指控的中共國企業包括華為和字節跳動，但這些兩家公司都否認了這項指控。
 
-1. The new school year started on September 1st in South Mongolia. Although the Chinese government has issued various coercive orders with intimidation and inducement, most of parents refused to send their children to school, which made the school deserted.
-2. Chinese police hunted for the South Mongolian students, arrested them and took them to class. Over 23 people are wanted in the Mongolian Language Teaching Incident.
-3. In South Mongolia, students protested at the secondary school of Hohhot Normal University, which gained support from the public.
-4. News revealed from the document of the South Mongolia Government of the CCP: Punishment will be imposed to CCP Members or Public Officials whose children invovled in strike for school.  This is one of the evidences of blackmail from CCP’s dictatorship ruling the country.
-5. (9/1) Yesterday, many brothers and sisters called me from Inner Mongolia. In recent days we saw kids there getting locked up in school. We all grew up going to school. Look at those kids, locked up on campus, not allowed to go home. What a crazy world. Look at CCP’s deeds in Xinjiang, Tibet, Taiwan, Hong Kong, as written in the DOJ file, and in Europe and Africa. From these, you can see what the CCP want to do. Exactly the same as Nazi Germany in 1932-1946.
+在發表倡議的同時，王毅對美國的指控予以否認稱：“我們從來沒有也不會要求中國企業傳送海外用戶的數據到中國，這麼做是違背他國法律的行為。” 並稱，任何國家簽署這份倡議書，就必須尊重他國的主權、法律和對信息數據管理的方式，不得要求他國的企業或個人未經批准下提供數據。
 
+中共國網絡上的審查制度和個人數據方面的規則，離不開中共“偉大的防火牆”。中共利用防火牆把像谷歌和臉書的西方信息科技企業的網站屏蔽掉，並要求國內互聯網企業定期審查和封殺網絡上對中共不利的內容和言論。一些像澳大利亞的國家，也曾經提出關於中國企業被中共政府強迫提交海外用戶數據的擔憂。
+
+是否有國家簽署中共國的這份倡議書，目前為止還不得而知。作為第二大經濟體，中共國無疑正在努力擴大其在全球信息數據和通訊領域的標準制定者的角色作用。
+
+**美國** **“** **清網行動** **”** **打臉中共**
+
+就在上個月，美國公佈了“清網行動”項目，這個項目旨在保護美國國家資產包括美國公民的個人信息和企業的敏感信息和數據，避免這些信息被像中共這種惡勢力侵犯和盜取。美國國務院聲稱目前有超過30個國家和多家企業已經加入“清網行動”項目。
+
+美國的“清網行動”項目明顯是針對中共對美國信息通訊領域的滲透侵犯所做的反擊。但王毅在其演講裡卻暗諷了美國，他說：“某些國家單方面地對他人做出無理無據的指控，美其名為了’清潔網絡’，以國土安全為名欺負他國具有競爭力的企業。這種明目張膽的無理行為應當被否定和製止。”
+
+無論中共如何狡辯，美國政府並未放鬆對中共的反制措施，依舊對中共國科技企業繼續施壓。在八月份修改的一項規定中，美國很有效地阻止了華為公司為美國企業供應半導體材料。在同一個月裡，美國川普總統簽署了一項行政令，禁止一切和字節跳動（抖音的母公司）或騰訊（微信的母公司）有關的任何交易。
+
+除美國外，幾個其他國家也對中共國科技公司進行封殺。澳洲和英國拒絕了華為公司為其建設5G網絡技術。印度近期也因中印邊界的緊張局勢加劇，封殺了118項中國公司開發的手機和電腦應用。
+
+**評** ：中共發表的《全球數據安全倡議》實際表明中共知道盜取海外用戶數據是非法，但他們不敢承認他們的違法行為，純粹的“賊喊捉賊“。中共多年來無數次地耍紙面功夫和許空頭承諾，每當國際社會對中共國不滿，中共都是用這個老套路回應。試問過去許下的無數項的承諾，有多少真正得到兌現？這次的《倡議》沿襲中共的一貫手法，目的就是靠空洞的紙面承諾企圖拖延或減輕美國對其的製裁，但美國這回不會在上當了，重錘依舊會砸下！
+
+[原文鏈接](https://www.cnbc.com/2020/09/08/china-launches-global-data-security-initiative-to-counter-us-pressure.html)
+
+譯評：XO醬
+
+校對：Sarathecat
 
 0
