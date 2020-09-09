@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命發起人：郭文貴先生希望中國擁有真正的信仰自由以及法治（法文French+英文English）
-`2020-09-09 08:40 GM62` [轉載自GNews](https://gnews.org/zh-hant/343169/)
+## 爆料革命新文化運動引爆全球——中共防火牆已搖搖欲墜
+`2020-09-09 09:25 GM62` [轉載自GNews](https://gnews.org/zh-hant/343357/)
 
-法語標題 Fondateur du Mouvement des Lanceurs d’Alerte : M. Miles Guo souhaite une véritable liberté de culte et l’État de droit en Chine
+編輯記者：川渝小哥G  校對編輯：文劍
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09091957/%E5%9B%BE%E4%B8%80-3.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09092049/%E5%9B%BE%E4%BA%8C-5.jpg)
+美東時間9月8號,爆料革命發起人郭文貴先生接受了WARROOM戰鬥室班農先生的採訪,郭文貴先生就新中國聯邦近期發起的針對中共的文化運動發表了自己的觀點,並對美國人民的未來送上了誠摯的祝福。
 
-英文翻譯：Lully 英文校對：tiger64 法文翻譯：石野鲜生 法文校對：文文-自由法兰西 字幕：AVA文晓
+郭文貴先生認為中共是用謊言建立的政權,其欺騙了中國人民和全世界。中共編造的「二萬五千里長征」就是最好的例子,中共宣稱其用九個月的時長走完了從中國北京到美國曼哈頓往返的路程,其編造的「故事」存在明顯的漏洞及邏輯矛盾,卻蒙蔽了中國人民和全世界。
+
+郭文貴先生指出中共一直宣稱自身神聖莊嚴,污衊美國邪惡貪婪,大量的中國人民因為它的謊言而喪命。中共發起的文化大革命,造成中國人民食不果腹,大部分人民因饑餓致死。中共在精神文化上洗腦中國甚至全世界人民,比如其樂意看好萊塢電影,卻扼殺中國人民看好萊塢電影的權利,甚至控制了好萊塢製片人員及好萊塢電影。
+
+郭文貴先生表示信仰和文化是一個民族的力量之源,這也是新中國聯邦希望用文化運動同中共對抗的原因。拒絕讓中共對全世界進行洗腦,拒絕讓中共控制世界電影文化以及製片人。郭文貴先生認為美國是擁有民主法治、自由的國家。祝福好萊塢能重獲自由,美國能重獲自由,美國文化能回到引領世界潮流的時代。
+
+新聞來源：
+
+[https://www.youtube.com/watch?v=tKhuT1k7nAE](https://www.youtube.com/watch?v=tKhuT1k7nAE)
+
+（WARROOM376期 ）
 
 0
