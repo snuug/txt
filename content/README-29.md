@@ -14,6 +14,8 @@
 
 ## 頁面 29/29 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [查看全部](/content/README-all.md)
 
+[8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
+
 [郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
 
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)

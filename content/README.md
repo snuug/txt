@@ -14,6 +14,8 @@
 
 ## 頁面 1/29 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [29](/content/README-29.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年8月28日郭先生GTV直播连线澳喜农场  ](/content/2020/09/20200909-625122146730580835.md)
+
 [文字版：2020年8月25日郭先生GTV直播](/content/2020/08/20200831-561623715436101894.md)
 
 [文字版：2020年8月23日郭先生GTV直播](/content/2020/08/20200831-6862101542404324400.md)
@@ -61,8 +63,6 @@
 [文字版:郭先生2020年7月17日GTV直播](/content/2020/07/20200720-623099392723005208.md)
 
 [文字版:7月14日郭先生盖文汇总](/content/2020/07/20200719-4379804612561417938.md)
-
-[文字版:郭先生7月15日GTV直播](/content/2020/07/20200719-3882705048622934643.md)
 
 
 ## 頁面 1/29 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [29](/content/README-29.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

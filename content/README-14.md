@@ -14,6 +14,8 @@
 
 ## 頁面 14/29 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [29](/content/README-29.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/2019/06/20190611-3204594728389036788.md)
+
 [文字版：2019年6月8日文貴直播](/content/2019/06/20190608-7050696263727200895.md)
 
 [文字版：2019年6月7日 香港的事真搞大了 ](/content/2019/06/20190608-7273432154872200395.md)
@@ -61,8 +63,6 @@
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190507-3556468867911732041.md)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
-
-[文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
 
 
 ## 頁面 14/29 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [29](/content/README-29.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
