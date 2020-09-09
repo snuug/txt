@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大政府正調查中共病毒疫情發生數月前的大流行病預警系統被關事件
-`2020-09-08 20:57 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/342123/)
+## 9月9日財經快訊: 美台重塑全球供應鏈, 中共制裁訪台企業
+`2020-09-09 01:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342453/)
 
-喜馬拉雅聯盟加拿大農場文來
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09010042/Picture16.png)圖片來源： [https://s2.reutersmedia.net](https://s2.reutersmedia.net/resources/r/?m=02&amp;d=20200909&amp;t=2&amp;i=1532661397&amp;w=430&amp;fh=&amp;fw=&amp;ll=&amp;pl=&amp;sq=&amp;r=LYNXMPEG871VH) 
+[1. 科技股大跌攪亂亞洲股市，石油期貨延續低迷。亞洲股市週三下跌，油價跌至6月份以來的低點，科技股連續第三天下跌。阿斯利康製藥公司由於一名研究參與人員莫名染病而停止其疫苗臨床三期測試，引起風險市場恐慌情緒。](https://www.reuters.com/article/us-global-markets/tech-rout-roils-asian-shares-oil-futures-extend-slump-idUSKBN25Z3DY)
 
-校對文錦
-[!\[疫情后期: 加拿大各省重啟時間表復工、復課倒計時- Liv Rent Blog\](https://liv.rent/blog/wp-content/uploads/2020/05/0248_637205561118859116-770x513.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fliv.rent%2Fblog%2Fzh%2F2020%2F05%2F%25E5%258A%25A0%25E6%258B%25BF%25E5%25A4%25A7%25E5%25A4%258D%25E5%25B7%25A5%25E6%2597%25B6%25E9%2597%25B4%25E8%25A1%25A8%2F&amp;psig=AOvVaw05ykZ8m2L_dLazE_10HLEg&amp;ust=1599698378029000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCLCc24Xr2usCFQAAAAAdAAAAABAD)
-概要
+[2. 美國和台灣將重塑供應鏈，將相關產業撤離中國。美國和台北呼籲價值觀一致的民主政體加強合作，擺脫對中共的依賴。](https://www.ft.com/content/64be66cd-91eb-4862-a8fe-7c998b2e4770)
 
-• 對全球公共衛生情報網絡關閉事件的獨立審查正在進行中
+[3. 中共的中東戰略以損害美國利益為代價。今年上半年，伊拉克對美國石油出口減少近一半。近期中共影響力在中東地區迅速擴張, 事實上阻礙了中東和平進程。北京承諾一旦美國永久撤出中東地區，將為塔利班投入大量能源和基礎設施投資。](https://www.ft.com/content/e20ae4b9-bc22-4cb5-aaf6-b67c885c845c)
 
-• 追踪健康問題的特種監視研究單位可能會構成全球風險
+[4. 美國海關和邊境保護局擬禁止進口中共國新疆地區的棉花和西紅柿，因其生產過程涉及強迫勞動。](https://www.reuters.com/article/us-usa-trade-china-xinjiang/u-s-to-block-cotton-tomato-product-imports-from-chinas-xinjiang-over-forced-labor-idUSKBN25Z29N)
 
-• 聯邦衛生部長帕蒂·哈吉杜要求進行快速審查，以便政府可以解決存在的任何問題
+[5. 中共將製裁訪台的美國高官及關聯企業。](https://3g.163.com/money/article/FM2L97T900258105.html?clickfrom=channel2018_money_index_newslist&amp;ver=c#child=index&amp;offset=2)
 
-大約在中共病毒襲擊發生一年前，加拿大大流行病預警系統被關閉了。這件事引起了負責關注國際衛生問題的科學家的質疑，獨立調查正在展開。
+[6. 中共國建設銀行9月8日披露的經安永會計師事務所審閱的半年報顯示吸收存款和年初相比增加2萬億元，貸款餘額增加1.5萬億元。其中單位貸款增加1.1萬億元，貸款減值損失增加49%，營業現金流下降45%。沒有披露與關鍵管理人員的薪酬關聯交易。那麼是誰的存款增加了？安永會計師事務所是怎麼審閱的？！值得注意的是阿里巴巴的螞蟻集團在香港交易所的IPO財務報表也是安永所審計。](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1768109&amp;priority=0)
 
-衛生部長帕蒂·哈吉杜（Patty Hajdu）告訴《環球郵報》，該調查將查明在2018年末和2019年初關閉全球公共衛生情報網（Global Public Health Intelligence Network）的目的，以及其醫生和研究人員團隊的重新分配的原因。這個部門對於及早發出中共病毒警告非常重要。該網的關閉大大削弱了此部門的作用。
+[7. 美國洛杉磯超越肉類公司（Beyond Meat)本週二宣布進軍亞洲，計劃在上海附近設立兩家工廠，搶占大市場，生產肉類替代食品。](https://www.google.com/amp/s/news.yahoo.com/amphtml/beyond-meat-makes-china-push-154418470.html)
 
-公共衛生機構的科學家抱怨由於此網絡關閉，團隊被轉移到不涉及流行病規劃的其他項目，他們關注的重要信息沒有被正確的傳遞。
+[8. 中共控制下代孕產業火爆，疫情期間訂單增加。](https://m.sohu.com/a/417162241_260616/?pvid=000115_3w_a)
 
-哈吉杜在關閉系統的決定生效時沒有任衛生部長。她現在要求進行快速審查，以解決存在的問題。她希望能在六個月內得到一份包含建議的報告。
-
-最後一次更新在2017年3月15日的政府網站顯示，全球公共衛生情報網的目標是“以領先的通訊技術和24/7實時自動化流程，輔以人工分析來監控全球媒體資源，並提供有組織的，給用戶相關的信息，使他們能夠及時應對潛在的健康威脅。”
+By：【秘翻組-金融法律團隊】
 
 0

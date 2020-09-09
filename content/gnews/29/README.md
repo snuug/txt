@@ -1,25 +1,136 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今日的表彰大會，明日的國際審判
-`2020-09-08 15:36 pmzy` [轉載自GNews](https://gnews.org/zh-hant/341839/)
+## 以歌滅共——滄海一聲嘯A roar of the vast sea
+`2020-09-09 00:40 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/342370/)
 
-內新聞：旅行
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09003437/2-7.png)
+滄海一聲嘯
+ A roar of the vast sea 
+滔滔滅共潮
+ The tidal waves surging up to take down the CCP 
+四海英雄聚今朝
+ Heroes from all over the world get together 
+蒼天笑
+ A laugh from heaven 
+拔劍斬紅妖
+ Take out a sword to behead the red demon 
+浪沙淘盡毒霾消
+ The waves and sands wash off the haze filled with poison
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08153426/image0-28.jpg)
+整整七十年它把中華人⺠奴役
+ Having enslaved the Chinese people for a total of 70 years 還讓這片土地變得滿目瘡痍
+ Rendered this land full of ruins and scars 
+全世界投毒製造各種生化武器
+ Dropped the virus to the whole world, making all kinds of biochemical weapons 
+我去它大爺的人類命運共同體
+ Screw the so-called Community with Shared Future for Mankind 
+三載爆料攜手戰友行天道
+ In the three years of whistleblowing we carried out God’s will with fellow fighters 
+震醒我中華同胞，興起了滅共浪潮
+ Wake up my fellow Chinese compatriots and set off a wave to take down the CCP 
+壯志衝雲霄，看那國旗飄飄
+ In the sky our aspirations are soaring with the flag of NFSC fluttering 
+滅掉邪靈惡黨神州陽光普照
+ Take down the evil CCP and bring sunshine back to China
 
-9月8日上午，中共在北京召開抗擊新冠肺炎疫情表彰大會，鐘南山獲授“共和國勛章”，張伯禮、張定宇、陳薇獲授“人民英雄”稱號。
+江山笑
+ A laugh from mountains and rivers 
+天宇搖
+ Shakes the sky and universe 
+誰負誰勝出已分曉
+ Who is the victor or loser is now obvious 
+ ⻛蕭蕭
+ The wind whistles 
+真相掀怒潮
+ The truth sets off raging tides 
+盤古開天覆紅朝
+ Overthrow the red regime of tyranny as Pangu created the earth and sky
 
-中共總書記習近平指出“中國人民在同這場嚴重疫情的殊死較量中，鑄就了偉大抗疫精神。為了保護人民生命安全，我們什麽都可以豁得出來！不遺漏壹個感染者、不放棄壹位病患者、費用全部由國家承擔，把最優秀資源向武漢和湖北集結，舉全國之力實施規模空前的生命大救援。”
+三年多的爆料就是跟丫死磕
+ Whistleblowing for over 3 years is just to keep smashing the CCP 
+重磅實錘每天都有，一點兒也不嫌多
+ We can never have too many breaking news and solid proofs every day
 
-臺上這四位獲獎者和習近平合影時各個面無表情，無人知道他們心裏在想什麽，我們永遠無法體會到魔鬼的內心，更無法想象到他們有多邪惡！
+以美滅共以共滅共，還得靠我們戰友們行動
+ Our fellow fighters’ actions are crucial to taking down the CCP with forces from both inside of CCP and America
 
-中共政權的無恥超出了普通民眾的想象，竟然無恥宣稱”不遺漏壹個感染者不放棄壹位病患”，而我們看到的是那些把整棟樓整排房的門都釘死的視頻、那些求助無門的哭喊、那些在街頭露宿的外地人和不願回家感染家人的人、那些病的嚴重不給診斷的患者、那些沒有防護服的醫生護士，那個在雪中風中飛舞了幾個月的窗簾…這些鏡頭歷歷在目永遠不會忘記，僅僅壹個武漢就不知道消失了多少生命。但是他們卻說不遺漏壹個人，還口口聲聲說國家承擔治療費用。為了不承擔費用，他們在全國實施“不給有癥狀的患者確診，或者只診斷為疑似病例，這樣就可以讓患者自己掏錢治病”。只有那些跟權貴有關系的人才能獲得壹張確診證明，確診成為了壹種身份的象征。
+天佑我中華兒女，共建聯邦新中國
+ God bless our Chineses men and women who together build the New Federal State of China 
+黑夜現曙光，照亮東方的天
+ The dawn comes up in the darkness, lighting up the sky in the east 
+戳破共匪的謊言，我準備了三十多年， 
+ To expose the CCP’s lies I prepared for more than three decades 
+越過了死亡幽谷，我踏上了滅共之路
+ I crossed the valley of death, embarking on a journey to take down the CCP 
+縱有太多凶險，我們不枉此生虛度
+ Even with so much danger, our lives are not wasted
 
-文中厚顏無恥的說：“共產黨除了人民的利益沒有任何私利”。在這個改革開放了幾十年，GDP世界第二的國家，他的國民有6億人月收入1000元，那些看似高收入的中產背負著高額的房貸車貸，整個國家積貧積弱。普通老百姓的錢財被盜國賊們掏空移到海外，供他們的親戚私生子女們享受豪華奢侈生活。
+清⻛笑
+ A laugh of breezes 
+終歸正道
+ finally returns to the Way of Righteousness 
+一舟踏浪自逍遙
+ An unfettered boat rides freely on the waves 
+蒼生嘯
+ A roar of Lao Baixing, Old Hundred Names 
+熱血萬丈高
+ Their passions are running high 
+戰友們豪氣穿雲霄
+ Our fellow fighters’ heroic spirit rises up through the clouds and sky 
+盤古相聚在今朝
+ Time to get together at Pangu now 
+仰天⻓嘯贊英豪
+ Look up and roar, praising the heroes of ours
 
-現在共產黨又用表彰大會來掩蓋自己的惡行，推出“抗疫精神”，還記得我們小時候的雷鋒精神嗎？還記得那個坐在輪椅上的張海迪嗎？還記得黃繼光、董存瑞嗎？中共用壹個個被虛構出來的故事給民眾洗腦，從小灌輸愛黨、為黨犧牲壹切的思想。去年那個開學第壹堂課的董卿阿姨今年出不來了吧，現在又用抗疫精神給老百姓打雞血。我們生活在壹個充斥著精神、語錄、思想、主義、理想、夢的時空裏。
+Whatta you waiting for 
+你還在等什麼? 
+ The world is safe no more. 
+世界已不再安全
+ CCP lyin, The people’s dyin 
+中共撒謊，人們死亡
+ We are running outta time 
+時不待我
+ Action! 
+行動! 
+ Take Down 
+滅共
+ Action 
+行動滅共
+ Action 
+行動
+ Take down the CCP 
+滅掉中共
+ Take Down 
+ Take down the CCP 
+滅掉中共啦啦啦啦啦
+ Lah lah lah lah lah 
+ CCP 你完了
+ CCP, you’re finished
 
-這些領獎的人是制造死亡的惡魔，全世界多少人死於他們的惡行無法統計，今天他們站在領獎臺，明天就上審判臺。我們期待紐倫堡大審判早日到來，我們期待這些邪惡的魔鬼早日被鏟除，還世界壹份安寧。
+原曲:[沧海一声笑] 
+ Original Song: [One Roar of Laughter in the Vast Sea] 
+詞曲:⻩沾
+ Lyrics and Music by: James Wong
 
-0
+改編:【滄海一聲嘯】 
+ Adaptive Song: [A Roar of the Vast Sea] 
+歌詞:爆料革命戰友
+ Lyrics by: The Fellow Fighters of the Whistleblowers’ Movement 
+ Rap詞:⻬馥偉唐平
+ Rap Lyrics by: Qi Fuwei, Tang Ping
+
+編曲:盲人草根
+ Arrangement: Mangren Caogen 
+後期縮混:Q.May 
+盲人草根
+ Tex Hill 
+ Downmix: Q.May, Mangren Caogen, Tex Hill 
+和音:GTV空中唱響團隊
+ Chord: GTV Sky Shouters 
+製作人:唐平
+ Producer: Tang Ping 
+監製: 唐平⻬馥偉
+ Supervisor: Tang Ping, Qi Fuwei
+
+1

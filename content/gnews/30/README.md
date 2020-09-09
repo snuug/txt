@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共抗疫表彰大會翻車 李文亮微博評論破100萬+ 李醫生我們沒有忘記妳
-`2020-09-08 15:19 pmzy` [轉載自GNews](https://gnews.org/zh-hant/341824/)
+## 香港區議員及網民發起聯署 要求中國立即交回12名被拘留香港青年
+`2020-09-09 00:39 shangshang` [轉載自GNews](https://gnews.org/zh-hant/342369/)
 
-內新聞：α-Vega
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09003127/D26833C2-FC01-48C4-9942-F40BDED56733.jpeg)
+新聞來自：VOA
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08150438/image0-34.jpg)
+香港 — 12名因參與去年反送中運動被拘捕的香港青年，8月23日懷疑搭快艇偷渡到台灣，途中被廣東海警拘捕，目前在深圳鹽田看守所拘留超過兩星期。
 
-9月8日，中共舉行全國抗擊新冠肺炎疫情表彰大會。鐘南山被授予“共和國勛章”，張伯禮、張定宇、陳薇被授予“人民英雄”稱號。
+據多家香港傳媒報道，12名香港青年一直被拒絕與律師會面，甚至有可能被控最高刑罰為終身監禁的「組織他人偷越國邊境罪」。
 
-仿佛整個世界已經忘記，疫情中犧牲的李文亮醫生。有人說，魚的記憶只有七秒，互聯網的記憶只有七天。可今天，我們沒有選擇忘記，百萬網友們在李文亮醫生的微博評論下致敬，#李文亮微博評論#話題刷上熱搜。
+有香港區議員及網民分別發起本地及白宮聯署，要求中國立即交回12名被拘留的香港青年，以免他們受酷刑對待並得到公平審訊的基本權利。
 
-李文亮醫生去世後，媒體壹直在引導輿論，甚至“吹哨人”這個稱號，也被強行模糊。他們試圖扭曲我們的記憶，今天100萬+的評論留言，就是我們無聲的反抗。
+民主派沙田區議員趙柱幫表示，鑒於中國司法系統不公，黑獄冤案屢見不鮮，9月2日發起香港本地網上聯署，目標有10萬人參與，要求中國立即交回12名被拘留的香港青年，以免他們受酷刑對待並得到公平審訊的基本權利。另有網民發起白宮聯署，要求中國當局立即釋放12名被拘留的香港青年。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08151112/Screenshot_2020-09-08-20-46-47-628_Discord.png)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08151139/image0-11-1.jpg)
-
-
-我們記得，李文亮醫生被誣陷造謠而發的訓誡書。
-我們記得，李文亮醫生去世後，頭七在朋友圈、微博…點起的蠟燭。
-妳們越是掩蓋，我們越是要說出真相。李文亮醫生的死亡讓中共隱瞞疫情的事實永遠釘在恥辱柱上。今天所謂的抗疫表彰大會，辦的紅紅火火，但人們不會忘記是妳們做的孽。武漢人不會忘記、百步亭居民不會忘記、無數犧牲的醫護人員不會忘記。
-
-
-
-千千萬萬的網友們不會忘記，到筆者截稿時為止，刷評扔不停息。壹分鐘以內，評論看不到頭….
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/08151511/image0-26.jpg)
-妳們隱瞞疫情的原因，終有壹天大白於天下！以告李文亮醫生、疫情中無數亡者，其在天之靈！
+原文：[https://www.voachinese.com/a/petition-to-release-of-12-hong-kong-protesters-under-chinese-custody-20200908/5575589.html](https://www.voachinese.com/a/petition-to-release-of-12-hong-kong-protesters-under-chinese-custody-20200908/5575589.html)
 
 0
