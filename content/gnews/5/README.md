@@ -1,29 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共連種豬都需要靠進口，那裡的勇氣抗衡美國
-`2020-09-09 04:49 GM08` [轉載自GNews](https://gnews.org/zh-hant/342834/)
+## 【世界多語言圖文】2020/09/02 CCP病毒每日疫情直播簡報
+`2020-09-09 08:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/343054/)
 
-作者：小惠
+戰友之家圖文摘要及小語種組
 
-9月2日，新希望集團董事長劉永好在中外記者見面會上表示，“現在原種豬很多是靠進口，這種格局必須要改變，必須要有自己的種豬。”此話一出，引起了國內眾多人士的震驚。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09044440/vY9A7Z.jpg)
-根據美國農業部數據顯示，在2018年，全球豬肉消費量約112584千噸，其中，中共國消費量就達56115千噸，佔全球豬肉消費量的50%。由此可見中共國是名副其實的“全球最大豬肉消費國”。
+[English\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075210/English_0902_CCP_Virus_Updates.pdf)
 
-中國人對豬肉的消費偏好由來已久。在日常用語中，“肉”這個詞，一般來說是指豬肉。據河北武安境內“磁山遺址”的挖掘考證，中國人在8000年前就開始養豬吃肉了。但在 1949 年前， 在當時佔中國人口大多數的中國農民的食物能量中， 只有1% 來自肉製品，他們的日常飲食還是以穀物為主。共產黨統治之後實施計劃經濟，影響糧食、牲畜的產出，生豬存欄僅6500萬頭左右，豬肉產量在400萬噸左右。直到1975年6月底，全國生豬存欄數比1949年僅僅增加三倍，而且主要供給權貴階層。
+[French\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075214/French_0902_CCP_Virus_Updates.pdf)
 
-隨著1978年，共產黨為了續命開始在農村實行家庭聯產承包責任制，之後豬的出欄量才開始大幅增加，中共才取消了憑票供應豬肉。此後，豬肉產業經歷大型的專業和商業養全面走向市場化。經過近此後幾十年的快速發展，通過引進豬的新品種，飼料和設備不斷完善。中共國豬肉產量突飛猛進，佔據全球一半的產量。
+[German\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075205/German_0902_CCP_Virus_Updates.pdf)
 
-同時中國人豬肉的消費量也在快速增長，根據美國農業部的數據顯示，2017年，全球豬肉消費總量為11058.8萬噸。其中中共國就佔了一半，為5493.5萬噸。 2017年，中國人均豬肉消費量約39.5公斤，佔所有肉類消費的66%。其次為禽類（雞鴨）21%、牛肉8%、羊肉5%。
+[Korean\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075218/Korean_0902_CCP_Virus_Updates.pdf)
 
-為什麼豬對於中國人如此重要。首先，豬相對比較容易飼養，並可以向土地提供肥料，而且養豬隻需要很小的空間而無需放牧。除此之外，豬肉相對多樣的烹飪方式和良好的口感，以及數千年來的飲食習慣也令其在中國人的飲食結構中佔據了重要地位。直到1994年，豬肉仍佔中共國肉類消費總量的四分之三，儘管近年來其他肉類的消費量有了迅速的增加，目前豬肉消費比例仍在60%以上。
+[Spanish\_0902\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09075223/Spanish_0902_CCP_Virus_Updates.pdf)
 
-可正是如此重要的豬，中共國也只能依靠進口。中國人傳統養殖的是黑豬，但存在一個天然的缺陷就就是生長周期長。料肉比（豬長一公斤的肉要吃多少飼料。目前國內市場的進口種豬料肉比為2~3：1，而中國本土豬料肉比高達6：1。 ）遠遠低於進口豬。所以從國外引進了長白、大白、杜洛克等優質豬品種。進口豬的生長周期短、出欄速度快、瘦肉率高，產仔多，經濟價值遠高於傳統的黑色土豬。經過三十餘年的淘汰，本土豬種幾乎到了非滅絕即瀕危的程度。三十年前，本土豬佔據市場的90%以上，而十年前，只剩下2%。同時由於公母豬的自然交配效率太低（1頭公豬隻能負責25~30頭生產母豬），大型養豬場都會採用人工授精的方式來提高效率：人工授精體系下，1頭公豬可以對應300～500頭母豬。最可怕的就是本土公豬的精液不如國外運進來的冷凍豬精液質量高。而且這些從國外引進的白豬，也存在著一個重大問題“品種退化”，從國外引進一隻種豬，在國內繁殖到4代，優勢性能就會退化，各種疾病，長不大。所以，一頭種豬在繁殖6到8胎之後，基本失去了繁殖的價值，需要重新進口。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09044511/ce853bee0d96412ba24f3635605dd9ff_th.jpeg)
-這樣的問題，不僅僅是豬肉，縱觀中共國其他食品，雞肉、鴨肉、大豆、玉米等等，都是這樣的情況。例如雞翅來說，這些雞翅體積大，肉質肥，是20世紀90年代，大量從國外引進隱性白羽雞，他們產蛋多、生長塊、肉質肥。而除了種豬之外，中共國的種雞、種牛，甚至連北京烤鴨的種鴨，基本上都依靠引種、依靠進口！
 
-共產黨你連這些老百姓依賴的食品育種都搞不好，還想搞“人類命運共同體”，是誰給你的勇氣與整個西方為敵的，一旦脫鉤歐美封鎖中共國，得不到這些和飲食直接相關的引種，首先就會造成國內副食品的快速短缺，其次必然引起物價的飛漲。那必然是民不聊生，動盪不安。共產黨你還是趕緊退出歷史舞台，別在這裡禍害中國百姓了，現在退出好歹能留下一條狗命活著，等到世界起來反抗，怕是廟堂之上這些碩鼠一個也活不了。
-
-（文字內容僅代表作者觀點）
 
 0
