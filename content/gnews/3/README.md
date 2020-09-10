@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 太平洋島國帕勞意識到中共威脅，邀請美軍上島駐軍
-`2020-09-10 05:35 shangshang` [轉載自GNews](https://gnews.org/zh-hant/345206/)
+## 【中英文視頻版】2020/09/04 CCP病毒每日疫情直播簡報
+`2020-09-10 08:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/345601/)
 
-內軍事作者：快慢機
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10053048/70F0AC7C-6024-4C16-BD6C-6E6D49247D22.png)
-據美國五角大樓官員表示，太平洋島國「帕勞」正式邀請美軍進駐本國，並在其領土上建設可供雙方共享的軍事設施，包括港口，機場以及軍事基地。上周剛剛結束對帕勞訪問的美防長也是五角大樓首次出訪此國的高級官員。
+英文標題 CCP Virus Pandemic Updates Ep224:  The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school
 
-帕勞的此舉正是其在強烈意識到中共對其的嚴重威脅後，作出的反制措施。特朗普總統政府同樣希望對付中共在該區域的破壞性影響及安全性挑戰。
+內容簡介
 
-此舉也必將增強美國在印太防區的軍事存在。從地理位置上來看，帕勞分布於太平洋及菲律賓海中的數百個島嶼，其距南海和台灣的航程均比關島要近。中共對此片區域早已垂延已久，拿下這片區域，既可以鞏固南海，又可以向太平洋延伸。軍事意義更加重大！
+1. 素有糧倉之稱的東北三省洪災十分嚴重，中共官方媒體不得報導，對此全部沉默。
+2. 中共內蒙古教育局造假，代家長簽名，下發學生限期入學通知書。內蒙古巴彥淖爾市。
+3. 中國共產黨加緊控制糧食，為倒退回計劃經濟做準備。中共極權主義，搞全球擴張，同時中共病毒激怒了全世界，以糧食進口為主的中共得到的國際支持也越來越少，加上天災人禍，中國糧食危機就凸顯出來。
+4. （9月3日國務卿蓬佩奧在福克斯商業节目受访）我今天聽了美國司法部長關於CCP與選舉有關的特殊威脅的評論；但CCP的實際威脅比那更廣泛更深遠。中共正在建設它的軍隊，用俄羅斯從來沒有的方式來滲透美國；透過國有企業和公司補貼，施加經濟影響力，來摧毀美國數以萬計的工作崗位。
+5. （8月31日郭文贵）14億人哪，可憐可悲。希望我們新中國聯邦滅掉共產黨以後能找回中國人應有的尊嚴。我看到這個“中國人均四千人民幣”，這事兒咱得好好說道說道。
 
-帕勞與台灣一直保持著長期的友好夥伴關係。這也是中共千方百計用各種「藍/金/黃」等手段，期望拉攏帕勞捨棄與台灣的關係，轉投與中共建交，但確遲沒有收穫。
 
-如今，帕勞正式邀請美軍上島駐軍，並大力支持擴建軍事基地等相關戰略設置，令中共在此區域的計劃徹底失敗。
+1. The flooding in the three northeastern provinces in China, known as the Granaries of China, was very severe, but the official China Communist Party media has been keeping silence and has discarded this tragedy.
+2. The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school. The government officials of Wulateqian County in Bayannaoer City, fabricated the parents’ signatures upon receipt of such notices.
+3. The CCP is tightening its control over food as it prepares to revert to a planned economy. The CCP’s totalitarianism and global expansion, as well as the global outrage caused by the CCP virus, have led to the decline of international support for the Communist Party’s food-importing policy. With natural and man-made disasters, China’s food crisis is emergering.
+4. (Secretary Pompeo, with Fox Business, 9/3)  I heard the Attorney General’s comments today about the particular threat related to elections; but broader and more deeply than that, the Chinese Communist Party is building out its military, it has infiltrated the United States in ways that Russia has not, and its economic might has been used through state-owned enterprises and subsidizing companies to destroy tens of thousands of jobs all across the heartland in America.
+5. (8/31) 1.4 billion Chinese people, pitiful and pathetic. Hopefully, after the New Federal State of China takes down the CCP, the Chinese people can recover the dignity that we should have had. Recently when I saw (the CCP talk about) “ Now Chinese people average about RMB 4000 (USD 585) per capita in China” We have to talk about this in deep.
 
-中共在印太地区的地缘政治上再次“棋差一招”！
 
 0

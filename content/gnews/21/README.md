@@ -1,155 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《滄海一聲嘯》 完整歌詞（中英）
-`2020-09-09 23:25 GM62` [轉載自GNews](https://gnews.org/zh-hant/344164/)
+## 中共國外賣員的“難逃速命” 共匪不滅 底層互害 屌絲經濟 無人幸免！
+`2020-09-10 05:20 GM30` [轉載自GNews](https://gnews.org/zh-hant/345158/)
 
-整理 小雨
+**作者：小妍說**
 
-滄海一聲嘯
+9月8日《人物》刊發報道《外賣騎手，困在系統裏》。報道反映了外賣平台算法系統和騎手實際工作的大量衝突，直接導致外賣員遭遇交通事故的數量急劇上升，使得外賣騎手已經成爲中共國最危險的職業之一，引發全網關注。對此餓了麽，美團在9月9日分別都做出了回應。9月9日淩晨，餓了麽通過官方微博對此事進行了第一時間的回應，其在官方微博宣布，將于近期發布兩個新功能：一是在結算付款時增加“願意多等5分鍾/10分鍾”的自主小按鈕，消費者可以選擇也可以不選擇。餓了麽會爲按下按鈕的消費者提供紅包或吃貨豆等權益；二是針對曆史信用好、服務好的藍騎士提供個別訂單的“超時免責”權益。美團對此事回應沒做好就是沒做好，沒有借口。並表示每一單外賣，在爲用戶提供准時配送服務的同時，美團調度系統會給騎手留出8分鍾彈性時間，將增強配送安全技術團隊，重點研究技術和算法如何保障安全。
 
-A roar of the vast sea
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10050859/%E5%9B%BE%E7%89%871-29.jpg)
 
-（說唱）滄海一聲嘯
-（Rap）A roar of the vast sea
-滔滔滅共潮
-The tidal waves surging up to take down the CCP
+先說說餓了麽的做法，好一招“乾坤大挪移”，把老板與職工的矛盾，轉嫁到了底層職工與普通消費者的矛盾。這就是溫情脈脈的道德綁架，以後外賣員要罵也罵消費者的“不寬容”，卻記著公司給自己的好，真是好一朵白蓮花。以後萬一有外賣員出了事故，消費者會不會想：如果當時我選擇“願意多等5分鍾”就好了……外賣小哥爲搶時間拼命，這鍋真的應該消費者來背嗎？經常能看到外賣小哥爲趕時間拼命，這個情況難道是消費者造成的嗎？平台不願意多給自己的員工增加時間，卻要消費者買單，這是合理的訴求嗎？如果一個行業成爲高危行業，從業者人人以命相搏，這個問題能靠消費者的同情心解決嗎？說一千道一萬，平台將自己撇幹淨了，然後消費者和外賣員一地雞毛。矛盾轉移了，消費者還平白無故多了一個“責任”。以後外賣員違反交通規則又或者被平台扣錢，那都可以成爲消費者的鍋。
 
-（唱） ​滄海一聲嘯
-(Sing) ​A roar of the vast sea
-滔滔滅共潮
-The tidal waves surging up to take down the CCP
-四海英雄聚今朝
-Heroes from all over the world get together
-蒼天笑
-A laugh from heaven
-拔劍斬紅妖
-Take out a sword to behead the red demon
-浪沙淘盡毒霾消
-The waves and sands wash off the haze filled with poison
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10051001/%E5%9B%BE%E7%89%872-29.jpg)
 
-(說唱）​整整七十年 它把中華人民奴役
-(Rap) ​Having enslaved the Chinese people for a total of 70 years
-還讓這片土地 變得滿目瘡痍
-Rendered this land full of ruins and scars
-全世界投毒 製造各種生化武器
-Dropped the virus to the whole world,making all kinds of biochemical ​weapons
-我去它大爺的 人類命運共同體
-Screw the so-called Community with Shared Future for Mankind
-三載爆料 攜手戰友行天道
-In the three years of whistleblowing we carried out God’s will with fellow ​fighters
-震醒我中華同胞 興起了滅共浪潮
-Wake up my fellow Chinese compatriots and set off a wave to take down ​the CCP
-壯志衝雲霄 看那國旗飄飄
-In the sky our aspirations are soaring with the flag of NFSC fluttering
-滅掉邪靈惡黨 神州陽光普照
-Take down the evil CCP and bring sunshine back to China
+再來說說美團，看了美團的聲明，我終于知道爲什麽餓了麽競爭不過美團了，因爲美團更不要臉。餓了麽還停留在道德綁架用戶的層面，美團已經到第二層，學會制造階級矛盾，把責任推卸給騎手了。對于騎手的考核都有一個很重要的指標叫做“T+8超時率”，這裏面的T就是客戶看到的預計送達時間，再加8分鍾就是騎手能看到的送餐考核時間，所以說客戶和騎手看到的時間是不一樣的，不是說已經預留8分鍾了，而是本來就是按照這個時間來考核的，要是真想爲騎手考慮，就應該拿出來實打實的措施，拿一個一直都存在的措施騙老百姓有意思嗎？美團的措施只是把一直存在的問題擺到了台面上而已，沒有任何實質性的改變。
 
-(唱）​江山笑
-(Sing) ​A laugh from mountains and rivers
-天地搖
-Shakes the sky and universe
-誰負誰勝出已分曉
-Who is the victor or loser is now obvious
-風蕭蕭
-The wind whistles
-真相掀怒潮
-The truth sets off raging tides
-盤古開天覆紅朝
-Overthrow the red regime of tyranny as Pangu created the earth and sky
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10051128/%E5%9B%BE%E7%89%873-9.jpg)
 
-(說唱）​三年多的爆料 就是跟丫死磕
-(Rap) ​Whistleblowing for over 3 years is just to keep smashing the CCP
-重磅實錘每天都有 一點也不嫌多
-We can never have too many breaking news and solid proofs every day
-以美滅共 以共滅共 還得靠我們戰友們行動
-Our fellow fighters’ actions are crucial to taking down the CCP with forces ​from both inside of CCP and America
-天佑我中華兒女 共建聯邦新中國
-God bless our Chinese men and women who together build the New ​Federal State of China
-黑夜現曙光 照亮東方的天
-The dawn comes up in the darkness, lighting up the sky in the east
-戳破共匪的謊言 我準備了三十多年
-To expose the CCP’ s lies I prepared for more than three decades
-越過了死亡幽谷 我踏上了滅共之路
-I crossed the valley of death, embarking on a journey to take down the CCP
-​​縱有太多凶險 我們不枉此生虛度
-Even with so much danger, our lives are not wasted
+這就相當于平台舉著刀架在滴血的外賣員脖子上，對客戶說：“你們交錢，我就砍輕一點。”無論是美團還是餓了麽，爲什麽不能通過提升自身的科技含量，優化自身的管理水平，最終爲消費者創造消費者認可的消費價值？爲什麽一定要通過壓榨員工的應有報酬，通過各種看得清的還是道不明的手段，來剝削員工來實現自己公司的資本利益呢？這就是中共國的日常，底層互害，屌絲經濟，無人幸免。
 
-(唱）​清風笑
-(Sing) ​A laugh of breezes
-終歸正道
-Finally returns to the Way of Righteousness
-一舟踏浪自逍遙
-An unfettered boat rides freely on the waves
-蒼生嘯
-A roar of Lao Baixing (Old Hundred Name)
-熱血萬丈高
-Their passions are running high
-仰天長嘯知英豪
-Look up and roar, praising the heroes of ours
+GNEWS之前文章：
+中共數字集權再升級 [https://gnews.org/zh-hans/343416/](https://gnews.org/zh-hans/343416/)
+中共惡政象征之一【城管】 [https://gnews.org/zh-hans/343195/](https://gnews.org/zh-hans/343195/)
+開啓房屋【共産時代】 [https://gnews.org/zh-hans/340885/](https://gnews.org/zh-hans/340885/)
 
-(說唱）​戰友們豪氣穿雲霄
-(Rap) ​Our fellow fighters’ heroic spirit rises up through the clouds and sky
-盤古相聚 在今朝
-Time to get together at Pangu now
-你還在等什麼？
-Whatta you waiting for
-世界也不再安全
-The world is safe no more
-中共撒謊 人們死亡
-CCP lyin, The people’s dyin
-時不待我
-We are running outta time
-滅共
-Take Down
-行動！
-Action！
-滅掉中國共產黨
-Take down the CCP
-滅共
-Take Down
-行動！
-Action！
-滅掉中國共產黨
-Take down the CCP
-啦啦啦
-Lalala…
-啦啦啦
-Lalala…
-啦啦啦啦啦拉… 啦啦啦啦啦拉…
-LalalaLalala… LalalaLalala…
-
-CCP 你完了
-CCP,you’re finished!
-
-原曲：滄海一聲笑
-Original Song：One Roar of Laughter in the Vast Sea
-詞曲：黃霑
-Lyrics and Music by: James Wong
-改編：滄海一聲嘯
-Adaptive Song: A Roar of the Vast Sea
-歌詞：爆料革命戰友
-Lyrics by：The Fellow Fighters of the Whistleblowers’ Movement
-Rap詞：齊馥偉 唐平
-Rap Lyrics by: Qi Fuwei, Tang Ping
-編曲：盲人草根
-Arrangement: Mangren Caogen
-後期縮混：Q.May, 盲人草根，Tex Hill
-Downmix: Q.May, Mangren Caogen，Tex Hill
-和音：GTV空中唱響團隊
-Chord: GTV Sky Shouters
-製作人： 唐平
-Producer：Tang Ping
-監製： 唐平 齊馥偉
-Supervisor： Tang Ping， Qi Fuwei
-MV： G Translaors
-
-MV鏈接
-
-[htts://www.youtube.com/watch?time\_continue=20&v=WyYVXmJcNds&feature=emb\_logo](//www.youtube.com/watch?time_continue=20&amp;v=WyYVXmJcNds&amp;feature=emb_logo)
-
-[滄海一聲嘯](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09193930/%E6%BB%84%E6%B5%B7%E4%B8%80%E8%81%B2%E5%98%AF.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09193930/%E6%BB%84%E6%B5%B7%E4%B8%80%E8%81%B2%E5%98%AF.pdf)
-
-
+（文章內容僅代表作者觀點）
 
 0

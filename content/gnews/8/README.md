@@ -1,24 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共頒布《中國共產黨軍隊黨的建設條例》坐實解放軍是黨衛軍
-`2020-09-10 01:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/344899/)
+## 習近平抗疫表彰大會“金句”竟出自香港社運支持者
+`2020-09-10 06:51 pmzy` [轉載自GNews](https://gnews.org/zh-hant/345404/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09131737/CCP_20200909_photo169.png)圖片來源：www.81.cn
-[新華社北京9月9日報道](http://www.xinhuanet.com/politics/2020-09/09/c_1126473452.htm)，經黨中央、中央軍委批准，《中國共產黨軍隊黨的建設條例》開始頒佈施行。條例清楚說明瞭「堅持黨對軍隊絕對領導」，從而坐實中國人民解放軍其實是共產黨的黨衛軍，根本不是什麼國家的軍隊或人民的軍隊。證據已經確鑿，等待他們的會是像紐倫堡一樣的大審判嗎？
+內新聞作者：文章
+![习近平金句“世上没有从天而降的英雄，只有挺身而出的凡人。”竟出自香港一名支持街头抗争的五金店“国难五金”老板李政熙](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10064731/55555.jpg)新聞來自：法國國際廣播電臺
+中共總書記習近平日前在北京人民大會堂舉行抗疫表彰大會上演說期間，贊揚年輕壹代為抗疫而犧牲，說出了壹句相當鼓舞人心的金句：“世上沒有從天而降的英雄，只有挺身而出的凡人。”但根據香港蘋果日報報道，此句原來出自香港壹名支持街頭抗爭的五金店“國難五金”老板李政熙。
 
-[報道全文](http://www.xinhuanet.com/politics/2020-09/09/c_1126473452.htm)（中英文對照）如下：
+李政熙的“國難五金”在香港反修例街頭抗爭運動期間，以售賣店形式售賣防毒面具、頭盔、眼罩、口罩及手套等防護裝備，有時甚至以低於成本價出售貨品，以示支持抗爭運動，但也因如此經常受到警方無故騷擾。
 
-《條例》深入貫徹習近平新時代中國特色社會主義思想和黨的十九大精神，貫徹習近平強軍思想，以黨章為根本遵循，落實新時代黨的建設總要求，堅持黨對軍隊絕對領導，堅持全面從嚴治黨，堅持聚焦備戰打仗，對軍隊黨的建設的指導思想、目標任務和原則，黨對軍隊絕對領導和貫徹軍委主席負責制的重大問題，軍隊的黨組織和軍隊黨的紀律檢查機關的有關問題，軍隊黨的建設主要任務，軍隊黨的建設工作責任制和監督保障機制等作了全面規定，為加強新時代軍隊黨的建設提供了基本遵循。
+李政熙開玩笑說，要特別鳴謝習近平為他做宣傳，令他用這句口號制作的T恤，從前晚開始銷量大增，比平日多出50%。而“國難五金”Facebook已發文除了感激習“厚愛”外，亦指“定必竭盡全力，繼續推動及緊記其教誨”。
 
-The “Regulations” are thoroughly implementing the socialism ideology with Chinese characteristics and the spirit of the 19th CPC National Congress from Xi Jinping’s new era and carry out Xi Jinping’s vision on building a strong military.  Following the party constitution as the fundamental principle, implementing these general requirements of party construction in the new era, adhere to the party’s absolute leadership over the armed forces, adhere the comprehensive governing the party strictly, adhere to the focus on preparing to fight a war, the guiding ideology to strengthening the political ideologies within the army, objectives, tasks, and principles, insisting on the party’s absolute leadership of the armed forces, and implementing that the chairman of  the military commission has absolute power, (also, regarding issues of) party’s organization within the army and party’s disciplinary agencies, and the main task of party’s development in the army, the “Ordinances” has laid out the comprehensive regulation for all of the above responsibility system, supervisions, and a guarantee mechanism.  It provides the basic compliance to strengthen the party’s development in the army for the new era.
-
-《條例》是全面規範軍隊黨的建設的基礎主幹黨內法規，是推進軍事政策制度改革的重要成果，標誌著我軍黨的建設科學化、規範化、制度化水平邁上新台階。《條例》的頒佈施行，必將全面提高軍隊黨的領導和黨的建設工作質量，推動軍隊增強「四個意識」、堅定「四個自信」、做到「兩個維護」，貫徹軍委主席負責制，為實現黨在新時代的強軍目標、把人民軍隊全面建成世界一流軍隊提供堅強政治保證。
-
-These “Ordinances” are the backbone party’s internal regulations for comprehensively standardizing party’s development within the armed forces. It is an important to reach this achievement in order to advance the full reformation of military policies and its systems.  It marks a new step into scientific, standardized, and institutionalized way to further developing the party structure in our military. The promulgation and implementation of this “Ordinances” will comprehensively improve the quality of the party leadership and the party’s efficiencies, promoting the military to enhance the “ four consciousness”, strengthen the “four confidence”, achieving “two maintenance”, to carry out the responsibility of chairman of the military commission.  The “Ordinances” provide a strong political guarantee for realizing the party’s goal of strengthening the army and building it to a world-class in the new era.
-
-翻譯：【奔騰的長江】校對：【key】編輯：【Michelle】
-
-戰友之家玫瑰園小隊出品
+原文鏈接：https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20200910-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%8A%97%E7%96%AB%E8%A1%A8%E5%BD%B0%E5%A4%A7%E4%BC%9A-%E9%87%91%E5%8F%A5-%E7%AB%9F%E5%87%BA%E8%87%AA%E9%A6%99%E6%B8%AF%E7%A4%BE%E8%BF%90%E6%94%AF%E6%8C%81%E8%80%85
 
 0

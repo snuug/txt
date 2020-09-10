@@ -1,39 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中澳關係惡化:中國外交部首次證實 成蕾涉嫌危害中國國安
-`2020-09-10 01:00 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/344872/)
+## 國土安全部長查德·沃爾夫談中國等外國勢力干預美國大選
+`2020-09-10 05:58 GM31` [轉載自GNews](https://gnews.org/zh-hant/345257/)
 
-作者：玫瑰天空
+國土安全部代理部長查德·沃爾夫於2020年9月9日發表年度國土安全諮文，期間談到中國、伊朗和俄羅斯政府以邪惡的動機和手段干預美國大選，以及中共國和世界衛生組織對新冠疫情不負責任的反應，稱他們的行動不力，反應太慢。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09231848/image-127.png)
+*“Due to what we now know was China’s irresponsible response, COVID-19 was permitted to become the worst global pandemic in more than 100 years. Along with World Health Organization, their actions were inept, their response too slow.”*
 
-澳洲外交部長佩恩早前發聲明話,成蕾已遭中國當局拘留長達两周,形容係對中澳關係惡化嘅新打擊。
+*“就我們現在所知道，由於中（共）國的不負責任的回應，新冠病毒堪稱100多年來最嚴重的全球大流行病。與世界衛生組織一起，他們的行動平庸無能，反應遲緩。”。*
 
-中國環球電視網(CGTN)主播、澳洲籍華裔女主播成蕾上個月據報在北京遭拘捕。 中國外交部昨天證實,有關部門是以”涉嫌從事危害中國國家安全嘅犯罪活動”為由,對佢採取強制措施。 不過,中國外交部網站關於新聞發佈會內容冇文字相關報告。 此前有消息指成蕾報道或涉及了批評中國新冠病毒疫情。
+**DHS 要點總結：**
 
-據聯合早報今日報道稱,中國環球電視網(CGTN)主播、澳洲籍華裔女主播成蕾出生於中國,1010岁就隨父母定居澳洲。 成蕾上個月據報在北京遭拘捕。 中國外交部昨天首度證實,有關部門是以≤涉嫌從事危害中國國家安全嘅犯罪活動≤為由,對佢採取強制措施。
+**Cyber****and****election security:**
 
-該報道引據路透社消息,外交部發言人赵立坚昨天在例行記者會上,作了上述表示。
+**網路和選舉的安全：**
 
-不過,中國外交部官網發佈嘅記者會文字實錄並未記錄,僅稱≤關於你提到嘅澳洲籍人員成蕾案,目前此案依法偵辦過程中緊,其各項郃灋權益均得到充分保障≤。
+“Elections are a bedrock of our Constitutional republic, and securing them is paramount to accurately expressing the will of the American people.”
 
-此外,中國官媒報道,中共外交部再次重提澳方突擊搜查4名駐澳中國記者,迄今未畀出合理解釋。
+“選舉是我們立憲共和國的基石，確保選舉的安全對美國人民意願的準確表達至關重要”。
 
-中新網北京9月9日中國外交部發言人赵立坚9日在例行記者會上證實,今年6月下旬,澳洲安全機構對3屋企中國駐澳媒體嘅4名記者進行突擊搜查和盤問。 他表示,中方已就此多次向澳方提出嚴正交涉,澳方迄今未就搜查中方記者畀出合理解釋。
+“To protect the integrity of our representative government, our ultimate goal must be to ensure that American voters decide American elections.”
 
-赵立坚表示,經向有關新聞單位瞭解,今年6月下旬,澳洲安全情報機構以可能違反澳≤反外國干涉法≤為由,對新華社、中央廣播電視總台和中新社駐澳洲嘅4名記者進行突擊搜查和盤問,扣押了工作電腦、手機,甚至仲包括記者仔用嘅兒童平板電腦同電子玩具等物品。
+“為了保護代議制政府的廉正，我們的最終目標必須是確保由美國選民決定美國大選”。
 
-并據了解,澳方迄今未就搜查中方記者畀出合理解釋,仍未向中方記者歸還全部被扣押物品。  “赵立坚話。
+“Beyond our shores, we face an ever-changing threat landscape as the governments of China, Iran, and Russia target our election systems, each with its own separate and nefarious motives and tactics.”
 
-他指出“,澳政府所作所為嚴重干擾中國媒體喺澳正常報道活動,粗暴侵犯中國駐澳記者正當郃灋權益,對記者及其家人的身心健康造成嚴重損害,充分暴露了澳方一些人標榜嘅≤新聞自由≤同所謂≤尊重並保護人權≤嘅虛偽性,他們的行動都完全不具建設性。
+“面對境外勢力，觸目所及，我們處於不斷變化的威脅之中，因為中國、伊朗和俄羅斯政府針對我們的選舉制度，它們都有各自不同的邪惡動機和手段”。
 
-中澳雙方均表達各自不滿情緒,近期官方行動也都傳遞出中澳關係日趨緊張。 唔單止噉,近期,中共喺世界各國都越嚟越多嘅遭到了冷眼,幾乎已經成為常態。 無論中共官媒如何清詞奪理,都改變不了目前中共引起世界共憤嘅事實。 凡有動作,必留下痕跡! 倒行逆施嘅中共迎來風起雲湧緊嘅滅共浪潮!
+“The right to choose one’s own leaders is rare in the course of history. The Department recognizes this fact and will continue to uphold the integrity of this indispensable American tradition.”
 
-援引:。
+“歷史上（公民）鮮少有選擇自己的領導者的權利。國土安全部認識到這一事實，並將一以貫之地繼續維護這一不可或缺的美國傳統的廉正性”。
 
-[https://www.rfi.fr](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200909-%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E9%A6%96%E6%AC%A1%E8%AF%81%E5%AE%9E-%E6%88%90%E8%95%BE%E6%B6%89%E5%AB%8C%E5%8D%B1%E5%AE%B3%E4%B8%AD%E5%9B%BD%E5%9B%BD%E5%AE%89)[/cn/%E4%B8%AD%E5%9B%BD/20200909%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E9%E9%E6%E6%A1%E8%AF%8 1 %E5%AE%9E-%E6%88%90%E8%95%BE%E6%B6%89%E5%AB%8C%E5%8D%B%%E5%AE%B3%E4%B8%AD%E5%9B%B%E5%9B%B5%B.89%。](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200909-%E4%B8%AD%E5%9B%BD%E5%A4%96%E4%BA%A4%E9%83%A8%E9%A6%96%E6%AC%A1%E8%AF%81%E5%AE%9E-%E6%88%90%E8%95%BE%E6%B6%89%E5%AB%8C%E5%8D%B1%E5%AE%B3%E4%B8%AD%E5%9B%BD%E5%9B%BD%E5%AE%89)
+Of all the threats DHS has confronted in the last year, the COVID-19 pandemic has posed one of the most formidable, rapidly evolving and uniquely challenging.
 
-https://m.chinanews.com/wap/detail/chs/zw/9286801.shtml。
+在國土安全部去年面臨的所有威脅中，新冠疫情構成了最可怕、發展迅速和具有獨特挑戰性的威脅之一。
+
+Due to what we now know was China’s irresponsible response, COVID-19 was permitted to become the worst global pandemic in more than 100 years. Along with the World Health Organization, their actions were inept, their response too slow.
+
+就我們現在所知道，由於中國的不負責任的回應，新冠病毒堪稱100多年來最嚴重的全球大流行病。與世界衛生組織一起，他們的行動平庸無能，反應遲緩。
+
+[閱讀英文全文](https://www.dhs.gov/news/2020/09/09/2020-state-homeland)
+
+*翻譯:【石頭】 校對:【Dlrow】 字幕:【羅賓 Robin (文賓)】 編輯:【GM31】*
+
+*戰友之家玫瑰園小隊出品*
 
 0
