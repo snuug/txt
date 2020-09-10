@@ -1,18 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快訊】《Take Down the CCP》美東時間9月10日晨強勢登上美國iTunes即時下載榜冠軍寶座！
-`2020-09-10 11:30 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/345925/)
+## 中共將內蒙古的反抗歸咎於“邪教”
+`2020-09-10 16:43 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/346509/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10112510/song-rank_first-photo.png)圖片來源：iTunes
-郭先生傾情獻聲 《Take Down the CCP》於美國東部時間9月10號早上11時左右強勢登頂美國iTunes即時下載榜，目前這第一首公開發行的戰歌已於早先時候登頂香港地區的iTunes即時榜。這就是爆料革命的力量，是新中國聯邦新中國人的力量。爆料革命不僅有實力，也需要被看見。我們做到了，從全球遊行到戰歌登頂，堂堂正正，體體面面，驕傲自豪地邁向勝利。請戰友們再接再厲持續點贊宣傳。「爆料革命，沒我不行！」 戰友們，讓我們舉起我們的音浪巨炮，以歌滅共： Take Down the CCP！ Take Down the CCP！ 共產黨你完了！ 共產黨你完了！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10113104/action-photo-scaled.jpg)
-撰寫：【相機過熱啊】編輯：【Michelle】
+*新聞來源：Bitter Winter《寒冬》；作者：Massimo Introvigne；發佈時間： 2020年9月7日*
 
-戰友之家玫瑰園小隊出品
+*翻譯/簡評：Cathy r；校對：感恩；審核：海闊天空；Page：拱卒*
 
-相關新聞：[郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，戰友們打Call的機會來了！](https://gnews.org/zh-hant/341647/)
+簡評：
 
-> [“Take Down the CCP” Song by Miles Guo Is Landed on All Major Music Apps](https://gnews.org/342069/)
+中共在蒙古實行文化滅絕政策，蒙古人民展開了堅決的抵抗。就在人們都拭目以待中共如何處理蒙古族問題的情況下，中共祭出這麼一招，啟動“防範邪教宣傳月”，把所有不聽它指揮的人群行為都歸為邪教。為了具有儀式感，中共用一個黑色的球體作為啟動儀，把手按下去表明他們同心合力反對邪教。這實際正表明了他們的心裡沒有底，他們的說法沒有說服力，面對蒙古族人民的正義聲音，他們膽怯，想不出更好的壓制辦法了。實際上，他們才是世界上最大的邪教集團。
+
+##  **內蒙古：中共試圖將所有問題歸咎於”邪教”** 
+
+**正當對學校改革的抗議持續發生時，當局啟動了“防範邪教宣傳月”，並聲稱被取締的宗教團體正在威脅該地區的穩定。**
+
+[!\[\](https://spark.adobe.com/page/u4wlSmiMjZeCx/images/7bee74fc-0c81-4526-93b6-6f6b0e31c729.jpg?asset_id=89652c88-25a5-41d7-9414-639b44bf199e&amp;img_etag=%22404627cbebd63e47a68d94d92f0a4941%22&amp;size=2560)](https://spark.adobe.com/page/u4wlSmiMjZeCx/images/7bee74fc-0c81-4526-93b6-6f6b0e31c729.jpg?asset_id=89652c88-25a5-41d7-9414-639b44bf199e&amp;img_etag=%22404627cbebd63e47a68d94d92f0a4941%22&amp;size=1024)
+
+由於反對學校改革的抗議， 當地蒙古人更喜歡稱之為南蒙的內蒙古正在世界各地成為頭條新聞，此項改革使漢語成為該地區的主要語言，並將蒙古語邊緣化。中共正在對抗議活動進行嚴厲鎮壓，就像它通常會在危機局勢中所做的那樣。它把問題和不穩定歸咎於邪教，這個詞被中共自己翻譯為“邪惡的宗教”，但實際上是“非正統信仰”，並被用來標識被取締的宗教運動，如法輪功和全能上帝教會。
+
+8月28日，內蒙古自治區反邪教協會在呼和浩特市舉辦在全區範圍內發起的“防範邪教宣傳月”活動啟動儀式（選擇在此可能是因為當地漢族人佔多數）。這個反邪教月是在一個奇怪的球體上按下按鈕開始的。
+
+[!\[\](https://spark.adobe.com/page/u4wlSmiMjZeCx/images/4f384e5a-c19b-47ba-b0d6-475c0b095b83.jpg?asset_id=f2812e33-9789-4392-97f8-a2c8d0ad1586&amp;img_etag=%22e9b1e26c0626c1997d116c071cd5630b%22&amp;size=2560)](https://spark.adobe.com/page/u4wlSmiMjZeCx/images/4f384e5a-c19b-47ba-b0d6-475c0b095b83.jpg?asset_id=f2812e33-9789-4392-97f8-a2c8d0ad1586&amp;img_etag=%22e9b1e26c0626c1997d116c071cd5630b%22&amp;size=1024)一個孩子的抗議：”不接受消滅蒙古語言和文化的政策”。由南蒙古人權信息中心提供。
+
+反邪教協會秘書長趙建民在開幕式致辭中指出，“反邪教鬥爭是正義與邪惡的較量，更是一場鞏固政權、維護邊疆穩定的政治鬥爭“。顯然，他補充說，這次反邪教宣傳月“應以習近平新時代中國特色社會主義思想為指導，深入貫徹落實黨中央關於新冠肺炎疫情防控的指示精神，針對邪教組織利用新冠肺炎疫情製造各種謠言，擾亂社會秩序”。
+
+9月28日之前，將組織各種活動，分發橫幅和小冊子，宣傳“內蒙古各民族防範邪教，為在祖國北部邊界建立安全穩定的屏障作出積極貢獻”，這是中共用其作為方便替罪羊來打擊所謂分裂主義、反對任何批評中共如何應對新冠肺炎疫情和邪教等所有問題的有趣組合。
+
+[原文鏈接](https://bitterwinter.org/inner-mongolia-the-ccp-tries-to-blame-all-problems-on-cults/)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/u4wlSmiMjZeCx/)
 
 0
