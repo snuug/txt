@@ -1,36 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共取消捷克鋼琴訂單 被富豪打臉出手 530萬鋼琴全買下送學校
-`2020-09-09 22:42 GM64` [轉載自GNews](https://gnews.org/zh-hant/344641/)
+## 中共頒布《中國共產黨軍隊黨的建設條例》坐實解放軍是黨衛軍
+`2020-09-10 01:36 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/344899/)
 
-內新聞：菠蘿油加凍檸
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09131737/CCP_20200909_photo169.png)圖片來源：www.81.cn
+[新華社北京9月9日報道](http://www.xinhuanet.com/politics/2020-09/09/c_1126473452.htm)，經黨中央、中央軍委批准，《中國共產黨軍隊黨的建設條例》開始頒佈施行。條例清楚說明瞭「堅持黨對軍隊絕對領導」，從而坐實中國人民解放軍其實是共產黨的黨衛軍，根本不是什麼國家的軍隊或人民的軍隊。證據已經確鑿，等待他們的會是像紐倫堡一樣的大審判嗎？
 
-从河南的固始到贵州的大方，近年来中共国各地不断爆出拖欠教师工资，克扣教师补贴的问题。大方县对待教育真是一点也不大方。
+[報道全文](http://www.xinhuanet.com/politics/2020-09/09/c_1126473452.htm)（中英文對照）如下：
 
-中共国教育部发布的2019年教育经费执行情况：全国教育经费总投入为50175亿元，比上年增长8.74%，首次突破5万亿，占当年GDP的4%，是历史最高纪录。其中，2019年全国学前教育、义务教育、高中阶段教育、高等教育经费总投入分别为4099亿元。剩余的部分没有详细说明。
+《條例》深入貫徹習近平新時代中國特色社會主義思想和黨的十九大精神，貫徹習近平強軍思想，以黨章為根本遵循，落實新時代黨的建設總要求，堅持黨對軍隊絕對領導，堅持全面從嚴治黨，堅持聚焦備戰打仗，對軍隊黨的建設的指導思想、目標任務和原則，黨對軍隊絕對領導和貫徹軍委主席負責制的重大問題，軍隊的黨組織和軍隊黨的紀律檢查機關的有關問題，軍隊黨的建設主要任務，軍隊黨的建設工作責任制和監督保障機制等作了全面規定，為加強新時代軍隊黨的建設提供了基本遵循。
 
-这些钱的具体分配情况就是一笔糊涂账，中国人民是没有监督权的。
+The “Regulations” are thoroughly implementing the socialism ideology with Chinese characteristics and the spirit of the 19th CPC National Congress from Xi Jinping’s new era and carry out Xi Jinping’s vision on building a strong military.  Following the party constitution as the fundamental principle, implementing these general requirements of party construction in the new era, adhere to the party’s absolute leadership over the armed forces, adhere the comprehensive governing the party strictly, adhere to the focus on preparing to fight a war, the guiding ideology to strengthening the political ideologies within the army, objectives, tasks, and principles, insisting on the party’s absolute leadership of the armed forces, and implementing that the chairman of  the military commission has absolute power, (also, regarding issues of) party’s organization within the army and party’s disciplinary agencies, and the main task of party’s development in the army, the “Ordinances” has laid out the comprehensive regulation for all of the above responsibility system, supervisions, and a guarantee mechanism.  It provides the basic compliance to strengthen the party’s development in the army for the new era.
 
-新浪财经专栏作家周天勇2019年底的一份统计数据显示，中共国宏观税收负担水平仍保持在36.2%，持续高位收税十多年了。也就是说中共收取了国民生产总值中的36.2%作为财政收入。如此高税负高财政收入的中共国，却没有给中国人在教育、养老、医疗这些基本民生上予以应有的社会保障。
+《條例》是全面規範軍隊黨的建設的基礎主幹黨內法規，是推進軍事政策制度改革的重要成果，標誌著我軍黨的建設科學化、規範化、制度化水平邁上新台階。《條例》的頒佈施行，必將全面提高軍隊黨的領導和黨的建設工作質量，推動軍隊增強「四個意識」、堅定「四個自信」、做到「兩個維護」，貫徹軍委主席負責制，為實現黨在新時代的強軍目標、把人民軍隊全面建成世界一流軍隊提供堅強政治保證。
 
-光明日报和搜狐教育网在2015年关于教师工资水平的一份不完全统计数据：北上广深在7500～8500元。河北山东广西四川等在2000元左右。广东省较高达到5000元左右。各地教师结构性工资差别不大，但地区性差别巨大。各偏远地区的教师工资待遇很低，仅能维持温饱。
+These “Ordinances” are the backbone party’s internal regulations for comprehensively standardizing party’s development within the armed forces. It is an important to reach this achievement in order to advance the full reformation of military policies and its systems.  It marks a new step into scientific, standardized, and institutionalized way to further developing the party structure in our military. The promulgation and implementation of this “Ordinances” will comprehensively improve the quality of the party leadership and the party’s efficiencies, promoting the military to enhance the “ four consciousness”, strengthen the “four confidence”, achieving “two maintenance”, to carry out the responsibility of chairman of the military commission.  The “Ordinances” provide a strong political guarantee for realizing the party’s goal of strengthening the army and building it to a world-class in the new era.
 
-在中共国教师工资的支出占比整体教育工资支出只有40%，60%支付给了行政管理和教职人员。分配制度严重不合理。
+翻譯：【奔騰的長江】校對：【key】編輯：【Michelle】
 
-自从陈至立任教育部长力推教育产业化后，教育资源分配出现更大裂痕。老师的收入出现巨大的不平衡。许多农村地区面临着严重的人才流失师资短缺问题。此时这些地方还不断被曝出克扣老师的工资。而这些地区往往都中共国㾾价劳动力输出地，接受教育的是那些父母常年外出务工的留守儿童。
-
-以实现共产主义为奋斗目标的中共，征收了盖冠地球的税费，而用在教育这样事关国家未来的基本民生投入却少得可怜。而这少得可怜的教育投入，还要分给30多万一带一路及非洲各国的留学生，给他们免费留学并提供充盈的生活费。
-
-中共统治者们一边把自己的子女送到欧美西方国家接受资本主义贵族式的教育，一边超国民待遇引进亚非拉国家的留学生。那些供养着中共的中国平民们，用于他们子女的教育开支却被一再地压缩和层层地盘剥，连給孩子上课的老师们的工资都没有保障。
-
-中共国的教育只是中共维持对人民洗脑的工具！再穷也不能穷教育穷孩子，只是中共为了树立自己形象的一句宣传口号而已！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09223801/image0-1-12.jpg)
-5年拖欠教師工資補貼等超4億元 貴州大方縣被通報
-來源：新京報
-
-[http://www.bjnews.com.cn/news/2020/09/04/765865.html](http://www.bjnews.com.cn/news/2020/09/04/765865.html)
-
-[http://opinion.people.com.cn/n/2014/1224/c1003-26268678.html](http://opinion.people.com.cn/n/2014/1224/c1003-26268678.html)
+戰友之家玫瑰園小隊出品
 
 0

@@ -1,144 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大海原の唸り聲《滄海一聲嘯》日本語歌詞
-`2020-09-09 21:57 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/344546/)
+## 天府之國嗅到了糧食危機的味道法語版La crise d&#039;alimentaire approche du Plaine de Sichuan
+`2020-09-10 00:41 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/344830/)
 
-滄海一聲嘯
- 大海原が唸り聲を上げ
+L’Alliance Himalaya Ferme du Canada l’équipe de la financière et l’actualié 369 Traducteur小丁
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10003333/Snipaste_2020-09-10_12-33-04.png) Twitter 
+Les trois régions principales de la production de riz du Parti Communiste Chinois sont dans le Moyen et le Bas du fleuve Yangtze, les trois provinces du Nord-Est de la Chine et le bassin du Sichuan.Cette année, les fortes pluies et les inondations dans le sud de la Chine et l’ouvverture de nombreuse des vannes au réservoirs ont causées des inondations dans de vastes régions productive de grains du Sichuan et du Moyen et le Bas du fleuve Yangtze, la production d’agricole s’est fortement réduite, il n’y a pas de récolte dans de nombreuses zones inondées. Alors, quelle est la situation d’alimentaire dans les zones où il n’y a pas d’inondations?
 
-滔滔滅共潮
- 滔々と滅共の潮が流れ
+Prenant par exemple, le comté producteur de céréales du Sichuan, l’un des sites de l’auteur, le comté et plusieurs comtés voisins sont des bases de plantation et des comtés exportateurs de céréales. Le comté n’a pas souffert d’inondations , mais il ya des signes de précipitation pour acheter des céréales. La panique d’achat de nourriture est également apparue.
 
-四海英雄聚今朝
- 天下の英雄が今ここに集結する
+Le 5 septembre, l’auteur, considérant que le riz vieilli était stocké chez lui, pensant que Le riz fraîchement récolté sera bientôt disponible sur le marché, il envisage d’acheter du riz fraîchement récolté et de le stocker chez lui. L’auteur est donc venu au marché d’alimentaire du comté pour s’enquérir de la vente de céréales, le propriétaire du magasin de céréales a répondu qu’il faudra un mois pour que le riz fraîchement récolté soit mis sur le marché, et qu’il n’y a pas de riz fraîchement récolté disponible sur le marché.
 
-蒼天笑
- 蒼天が笑い
+Au cours de la conversation, le propriétaire a mentionné que de plus en plus de clients achetaient de la nourriture au cours du mois dernier. La semaine dernière, un client a acheté 750 kg de riz à la fois. Le propriétaire a livré le riz à son domicile par lui-même et a confirmé qu’il avait été acheté en privé. Récemment, le propriétaire a également mentionné que de nombreux clients achètent de la nourriture, sont secrètement, ne veulent pas en dire plus et ne négocient pas, mais achètent directement des centaines de livres de riz. Ce phénomène était rare dans le passé. Le propriétaire a également déclaré que de nombreux clients viennent demander quand le riz fraîchement récolté sera disponible et que l’un de ces clients qui a fait une réservation avec lui, a également acheté quand même un peu à l’avance pour éviter une future pénurie de riz.
 
-拔劍斬紅妖
- 剣を抜き紅の妖怪を斬り
+Lors de notre conversation, un client d’environ 60 ans venu acheter du riz m’a dit: “Jeune homme, tu ne sais pas, il ya une pénurie de nourriture. L’année de la famine (en dialecte, c’est -à-dire l’année de la famine) arrive. Achetez plus de nourriture à conserver à la maison”.
 
-浪沙淘盡毒霾消
- 波嵐が毒気を晴らす
-
-整整七十年它把中華人民奴役
- 丸々七十年中華の民を奴隷にし
-
-還讓這片土地變得滿目瘡痍
- この大地を満身創痍に変え
-
-全世界投毒製造各種生化武器
- 世界中に毒をばら撒き、あらゆる生物兵器を作る
-
-我去它大爺的人類命運共同體
- 何が人類運命共同體だこのクソったれが
-
-三載爆料攜手戰友行天道
- 三年で集いし爆料革命戦友と手を攜え天命を果たす
-
-震醒我中華同胞興起了滅共浪潮
- 中華同胞を揺さぶり起こし滅共のうねりが巻き起こる
-
-壯志衝雲霄看那國旗飄飄
- 雄大な志は空の果てまで貫き翻る我が國旗を仰ぎ
-
-滅掉邪靈惡黨神州陽光普照
- 邪な悪黨を滅ぼし陽光が神州をあまねく照らす
-
-江山笑
- 山河が笑い
-
-天宇搖
- 空が揺れ
-
-誰負誰勝出已分曉
- 勝敗は既に決す
-
-風蕭蕭
- 風蕭々として
-
-真相掀怒潮
- 真実は怒潮を巻き起こし
-
-盤古開天覆紅朝
- 天地開闢紅い朝廷を覆う
-
-三年多的爆料就是跟丫死磕
- 三年餘りの爆料革命は玉砕そのもの
-
-重磅實錘每天都有
- 重量級の動かぬ証拠を毎日暴露し
-
-一點兒也不嫌多
- 少しも多いと厭わない
-
-以美滅共以共滅共
- 米を以て共を制し共を以て共を制すには
-
-還得靠我們戰友行動
- 戦友達の行動が頼みである
-
-天佑我中華兒女共建聯邦新中國
- 天が我が中華の子孫を守り共に新中國連邦を築く
-
-黑夜現曙光照亮東方的天
- 黒夜に暁の光が現れ東方の空を照らす
-
-戳破共匪的謊言我準備了三十多年
- 共匪の噓を突き破る三十年餘りの計畫
-
-越過了死亡幽谷我踏上了滅共之路
- 死の幽谷を越え滅共の道を踏み出す
-
-縱有太多凶險我們不枉此生虛度
- 例え幾多の危険があろうともこの生を無駄にはしない
-
-清風笑
- 清風が笑い
-
-終歸正道
- やっと正道に帰り
-
-一舟踏浪自逍遙
- 舟は自由気ままに波に乗り
-
-蒼生嘯
- 人々は唸り聲を上げ
-
-熱血萬丈高
- 血潮は萬丈高く沸き立ち
-
-仰天長嘯致英豪
- 天を見て唸り聲を上げ英雄を稱える
-
-戰友們豪氣穿雲霄
- 戦友達の豪気が空の果てまで突き上がり
-
-盤古相聚在今朝
- 盤古大観で今集う
-
-Whatta you waiting for? 
- 何を待っている?
-
-The world is safe no more. 
- 世界はもう安全ではない
-
-CCP lyin, the people’s dyin. 
- 中共が噓をつき人々が死んだ
-
-We are running outta time! 
- もう我々には時間がない！
-
-Take Down 
- 倒せ
-
-Action! 
- 行動だ！
-
-Take down the CCP 
- 中共を倒せ
-
-翻訳：茉莉花、RyouTb
-
-1
+0
