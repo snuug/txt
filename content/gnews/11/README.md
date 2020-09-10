@@ -1,61 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七哥素描（2）：富貴的預言之後
-`2020-09-10 06:07 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/345287/)
+## 【中英文視頻版】2020/09/04 CCP病毒每日疫情直播簡報
+`2020-09-10 08:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/345601/)
 
-喜馬拉雅農場加拿大農場 LI
+英文標題 CCP Virus Pandemic Updates Ep224:  The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school
 
-校對 不動之光
+內容簡介
 
-菩薩蠻∙七哥與使命
+1. 素有糧倉之稱的東北三省洪災十分嚴重，中共官方媒體不得報導，對此全部沉默。
+2. 中共內蒙古教育局造假，代家長簽名，下發學生限期入學通知書。內蒙古巴彥淖爾市。
+3. 中國共產黨加緊控制糧食，為倒退回計劃經濟做準備。中共極權主義，搞全球擴張，同時中共病毒激怒了全世界，以糧食進口為主的中共得到的國際支持也越來越少，加上天災人禍，中國糧食危機就凸顯出來。
+4. （9月3日國務卿蓬佩奧在福克斯商業节目受访）我今天聽了美國司法部長關於CCP與選舉有關的特殊威脅的評論；但CCP的實際威脅比那更廣泛更深遠。中共正在建設它的軍隊，用俄羅斯從來沒有的方式來滲透美國；透過國有企業和公司補貼，施加經濟影響力，來摧毀美國數以萬計的工作崗位。
+5. （8月31日郭文贵）14億人哪，可憐可悲。希望我們新中國聯邦滅掉共產黨以後能找回中國人應有的尊嚴。我看到這個“中國人均四千人民幣”，這事兒咱得好好說道說道。
 
-一二三四五六七，
 
-女媧造人神創世。
+1. The flooding in the three northeastern provinces in China, known as the Granaries of China, was very severe, but the official China Communist Party media has been keeping silence and has discarded this tragedy.
+2. The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school. The government officials of Wulateqian County in Bayannaoer City, fabricated the parents’ signatures upon receipt of such notices.
+3. The CCP is tightening its control over food as it prepares to revert to a planned economy. The CCP’s totalitarianism and global expansion, as well as the global outrage caused by the CCP virus, have led to the decline of international support for the Communist Party’s food-importing policy. With natural and man-made disasters, China’s food crisis is emergering.
+4. (Secretary Pompeo, with Fox Business, 9/3)  I heard the Attorney General’s comments today about the particular threat related to elections; but broader and more deeply than that, the Chinese Communist Party is building out its military, it has infiltrated the United States in ways that Russia has not, and its economic might has been used through state-owned enterprises and subsidizing companies to destroy tens of thousands of jobs all across the heartland in America.
+5. (8/31) 1.4 billion Chinese people, pitiful and pathetic. Hopefully, after the New Federal State of China takes down the CCP, the Chinese people can recover the dignity that we should have had. Recently when I saw (the CCP talk about) “ Now Chinese people average about RMB 4000 (USD 585) per capita in China” We have to talk about this in deep.
 
-佛陀升天去，
-
-老七天命禦。
-
-一人扛藍旗，
-
-橫掃萬魔寂。
-
-不忍回頭覷，
-
-滿襟親人淚。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10054234/194989.jpg)
-當年，郭家結識一位算命看風水的先生，曾經告訴了一個有關“老七”的秘密天機。因為郭家一直過得不順利，郭媽媽曾經突發神經病；1976年唐山大地震那年，郭家大兒子被人砍；之後郭爸爸又被人打斷了腿……疾病和血光之災多次降臨郭家。算命先生說，郭家的祖墳有問題，墳墓下面埋有其他人，需要遷墳有助一家平安。原本郭家不相信這些玄學數術，但是一波未平又起一波，家人不得安寧，於是相信了算命先生的建議。
-
-就在遷墳的時候，算命先生告訴了“老七”的驚天秘密。他說，這個孩子富貴至極，將來會改變國家命運，不僅富可敵國，而且可居一國之王位。不過他之後的兄弟姐妹一個都活不下來……
-
-當時，郭家聽了算命先生對“老七”殿堂級未來的預言，斷然不敢相信。儘管算命先生與郭家已是多年朋友，對其神算功力頗為信服，但如此處泰山之巔“一覽眾山小”的人生高度焉能奢望。為什麼呢？了解郭家那時候在趙家溝的生活狀況就不難理解了。
-
-雖然七十年代末，郭家遷居回祖籍山東省莘縣古城鎮西曹營村，而且祖墳遷移也一定發生在祖籍之地，或許那時郭家已經回到山東祖籍居住，或許即將遷居，但是無論如何，當時郭家的生活記憶主要還是在趙家溝。過著吃了上頓愁下頓的生活，他們只是希望孩子平安、健康、飽足就心滿意足了，而富可敵國和一國之君距離他們的生活實在太遙遠、太虛幻了！
-
-那麼，“老七”後來如何呢？那次遷墳之後，日漸成長的“老七”顯現出一些“與眾不同”。他有過目不忘的驚人記憶，他可以一心幾用，他的身心也比同齡孩子發育得快。因為身體長得快，家裡吃不飽，他餓得慌便去捉人家的鴨子烤了吃，把山林都燒了幾次；他小學就情竇初開了，熱衷寫情書談戀愛；他又愛打抱不平保護弱小，常常打架……家裡常常有不速之客來告狀，兒子的“奇事”讓郭媽媽哭笑不得。
-
-長大後，他馳騁國際市場，成為了真正的千億美金富豪。不含國內資產，僅僅海外資產CCP就評估了1000億美金，並以此懸賞遣返他回國，引各路“狗熊”盡折腰，成為了美國政壇最大醜聞，這一切美國司法部文件皆已實錘。
-
-但是這些輝煌的成就背後，有著常人難以承受的苦痛和犧牲。 2020年6月4日，郭文貴先生已經50歲，他在GTV直播新中國聯邦宣言的歷史意義（-2:17～-2:14分）時隨性談起的這段“遷墳道天機”的往事。時已步入“天命”之年的他，無限感慨幾十年郭家因為他而經歷的風風雨雨。
-
-郭媽媽一共生育的十個孩子，“老七”之後，唯有“老八”活了下來，其餘早早夭折。然而1989年，滿眼盡是帥的“老八”郭文斌，為了保護文貴妻小，不幸倒在醉酒警察的亂槍下，血盡而死，不足二十歲。之後，文貴的三哥也早早離世。
-
-尤其近些年來，文貴遭受CCP迫害，累及家人和公司員工。據文貴先生2017年1月26日在《明鏡》專訪中爆料，2015年1月10日，100多個警察去盤古酒店，同時也在海南布控，共抓走了文貴的8個親人， 30多個高管，現場打傷了很多員工。幸而2014年8月，文貴有幸得到消息，時任國家安全部副部長馬建將被逮捕，會牽連到自己，他便立即出國避禍，躲過了那次抓捕。從此他不能再回國，成為了眾人皆知的“流亡富商”。繼而CCP變本加厲，查封他在香港國內的資產上千億人民幣，同時利用海內外媒體和網絡鋪天蓋地造謠、誹謗、污衊文貴。
-
-其中，他的270名左右被抓捕問詢的員工，遭受毆打、侮辱、性侵，導致很多員工精神崩潰，身心重創。前後共有3000名左右員工被抓捕或邊控，不同程度遭受到經濟和身心的傷害。而他的幾個家人長期被關押，母親後來被活活氣死……文貴為這些無辜遭遇迫害的親友不知默默流了多少淚。
-
-有很多次機會文貴可以與CCP講和，保住自己的財產，保護家人和員工。例如，2020年路德社“119病毒揭底”後，楊潔篪打電話代CCP求和，願意將國內的查封財產和扣押的家人員工完璧歸趙，文貴斷言拒絕。又在2020年8月，為了阻止“文貴遣返案”美國司法部文件公諸於眾，CCP開價50億美金，文貴絲毫不為所動。
-
-他為什麼那麼傻呢？為何不退一步海闊天空呢？因為他知道自己及家人員工沒有任何犯罪，CCP查了幾年，也沒有找到違法證據。更重要，他選擇了自己更高的人生目標。他在2017年5月10日生日直播中談到自己的四個人生目標：“齊家敬業以報父母，基本做到；創造社會價值以報自身，這個基本做到了；創造財富回饋社會，這個基本做到了；立身為他，這個事做的不夠好，正在做。”可以說，2015年開始，就在CCP無視法紀瘋狂迫害他及親人員工的時候，他堅定地選擇了去實現自己的第四個人生目標，那就是以“無我”而戰：滅共，建立自由、民主、法治的新中國。他2015年開始與美國FBI合作，揭露CCP的反人類行徑和魔鬼本質，於2017年發起爆料革命，以自身為誘餌，釣出遍布全球的CCP爪牙，曝光其惡行，做實罪證。那時起，他就對親人和員工說，過去的文貴已經死了！但是，全世界的人都看到，另一個大寫的文貴誕生了，他放下身家性命，與世上最邪惡的CCP集團殊死搏鬥，為拯救14億中華兒女而戰鬥！
-
-如今，他已經喚醒了人們，以美滅共，以共滅共，全球滅共開始了，CCP已是窮途末路，新中國聯邦已經建立，G系列也已經運作，將為中華民族真正實現民主、自由、法治提供資金和人才基礎。
-
-回頭來看，當年算命先生的預言不算是“空穴來風”，頗有見地。因為宇宙萬物遵循著因果定律，一切便有了可預測的基礎，中國的易經玄學的確具有一套獨特的推演預測體系。這也就是人們常說的，冥冥中自由安排。
-
-天降大任，文貴先生他就是一個肩負天命的人，他的降生就是為了滅共，為了摧毀極權統治，為了中華民族建立民主、自由、法治的國度。他的智慧能力和卓越貢獻足可以為王、為總統，只不過他無意於此，早已規劃好功成後歸隱山林。
-
-參考鏈接：https://youtu.be/v4JRk2YKRkU2020年6月4日新中國聯邦成立精華版
 
 0

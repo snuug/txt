@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/04 CCP病毒每日疫情直播簡報
-`2020-09-10 08:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/345601/)
+## 路德社解析中共軍方少將陳薇研製的&#8221;殺人疫苗&#8221;
+`2020-09-10 11:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/345944/)
 
-英文標題 CCP Virus Pandemic Updates Ep224:  The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school
+编辑记者：川渝小哥G  校对编辑：文劍
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10113914/%E5%9B%BE%E4%B8%80-4.jpg)擺拍中的中共陳薇
+美東時間9月9號晚,路德社解析了中共研發的新冠病毒疫苗研發過程。該疫苗由中共解放軍少將陳薇進駐新冠病毒發源地武漢四十天內研製而成,在臨床試驗過程中跳過了關鍵的第三期臨床試驗,隨後中共官方宣佈疫苗成功研發,並面向全世界廣泛推廣。
 
-內容簡介
+近期英國牛津大學暫停了新冠病毒疫苗三期研發,因疫苗引發了貫穿性脊髓炎,嚴重時令感覺神經、運動神經失控。路德認為新冠病毒的原理是引發人體自身免疫紊亂,而脊髓炎也是自身免疫紊亂,不能判斷的情況下就只能叫停,證明疫苗產生了嚴重副作用。英國牛津大學研發的疫苗與中共軍方陳薇少將研發並推廣的疫苗原理一致,均為S蛋白腺病毒疫苗,因為中共不具備研發疫苗能力,故跳過了第三期臨床試驗。
 
-1. 素有糧倉之稱的東北三省洪災十分嚴重，中共官方媒體不得報導，對此全部沉默。
-2. 中共內蒙古教育局造假，代家長簽名，下發學生限期入學通知書。內蒙古巴彥淖爾市。
-3. 中國共產黨加緊控制糧食，為倒退回計劃經濟做準備。中共極權主義，搞全球擴張，同時中共病毒激怒了全世界，以糧食進口為主的中共得到的國際支持也越來越少，加上天災人禍，中國糧食危機就凸顯出來。
-4. （9月3日國務卿蓬佩奧在福克斯商業节目受访）我今天聽了美國司法部長關於CCP與選舉有關的特殊威脅的評論；但CCP的實際威脅比那更廣泛更深遠。中共正在建設它的軍隊，用俄羅斯從來沒有的方式來滲透美國；透過國有企業和公司補貼，施加經濟影響力，來摧毀美國數以萬計的工作崗位。
-5. （8月31日郭文贵）14億人哪，可憐可悲。希望我們新中國聯邦滅掉共產黨以後能找回中國人應有的尊嚴。我看到這個“中國人均四千人民幣”，這事兒咱得好好說道說道。
+路德社特邀嘉賓科學家冠博士表示歐美法律的監管體系獨立且科學嚴謹, 疫苗研發萬分之一的概率也需要叫停,因為即使推廣到幾千萬人,也會有大量的人被殺死。 新冠病毒疫苗研發最重要的是第三期臨床試驗,而中共陳薇跳過了最重要的試驗階段,說明中共疫苗存在嚴重副作用,世界各國如聽信中共宣傳,使用中共疫苗恐造成大型人道災難。
+
+中共陳薇因為研製出疫苗獲得了共和國勳章獎表彰,陳薇也對外宣稱其研發的疫苗能治癒所有變異新冠病毒。 路德認為陳薇研製的疫苗是殺人武器,功效不如鹽水,至少鹽水沒有副作用。 路德明確包括陳薇、終南山等獲得了中共嘉獎的”人民英雄”未來一定會被釘在歷史的恥辱柱上。
 
 
-1. The flooding in the three northeastern provinces in China, known as the Granaries of China, was very severe, but the official China Communist Party media has been keeping silence and has discarded this tragedy.
-2. The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school. The government officials of Wulateqian County in Bayannaoer City, fabricated the parents’ signatures upon receipt of such notices.
-3. The CCP is tightening its control over food as it prepares to revert to a planned economy. The CCP’s totalitarianism and global expansion, as well as the global outrage caused by the CCP virus, have led to the decline of international support for the Communist Party’s food-importing policy. With natural and man-made disasters, China’s food crisis is emergering.
-4. (Secretary Pompeo, with Fox Business, 9/3)  I heard the Attorney General’s comments today about the particular threat related to elections; but broader and more deeply than that, the Chinese Communist Party is building out its military, it has infiltrated the United States in ways that Russia has not, and its economic might has been used through state-owned enterprises and subsidizing companies to destroy tens of thousands of jobs all across the heartland in America.
-5. (8/31) 1.4 billion Chinese people, pitiful and pathetic. Hopefully, after the New Federal State of China takes down the CCP, the Chinese people can recover the dignity that we should have had. Recently when I saw (the CCP talk about) “ Now Chinese people average about RMB 4000 (USD 585) per capita in China” We have to talk about this in deep.
 
+新聞來源:
+
+[https://www.youtube.com/watch?v=BIGMk4ngpcE](https://www.youtube.com/watch?v=BIGMk4ngpcE)
+
+(路德社美東時間2020年9月9號晚節目)
 
 0
