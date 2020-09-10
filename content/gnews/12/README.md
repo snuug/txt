@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奧：川普總統對待中共威脅非常嚴肅
-`2020-09-09 17:39 GM65` [轉載自GNews](https://gnews.org/zh-hant/344134/)
+## 9月9日同聲傳譯: 班農戰斗室【377+378】
+`2020-09-09 22:12 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/344570/)
 
-https://twitter.com/SecPompeo/status/1303754445185048577
- 
+By：【秘密翻譯組G-Translators】
+
 0

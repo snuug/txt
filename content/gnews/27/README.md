@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滅共歌曲響徹班農戰鬥室，郭文貴先生開啟滅共新文化運動
-`2020-09-09 13:50 GM06` [轉載自GNews](https://gnews.org/zh-hant/343837/)
+## 牛津大學新冠疫苗試驗被緊急叫停，被測試者疑似出現嚴重不良反應
+`2020-09-09 18:22 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/344186/)
 
-作者：文徬
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/09181004/20200908_Oxford_vaccine_photo169.png)總理斯科特·莫里森（Scott Morrison）參觀了位於麥格理公園（Macquarie Park）的阿斯特拉（Astra Zeneca）實驗室。圖片來源：Nick Moir / AAPIMAGE
+據[澳洲7NEWS](https://7news.com.au/lifestyle/health-wellbeing/covid-vaccine-trials-at-oxford-university-suffers-setback-after-participants-suspected-severe-adverse-reaction-c-1301824)媒體報道，CCP病毒疫苗研究處於領先地位的阿斯利康（AstraZeneca）在進行相關實驗時因一名被測試者出現嚴重不良反應而被暫且擱置。該機構發言人稱不良反應的確切性質和嚴重性尚不清楚，但有望得到完全康復，暫停開發是「常規操作」。
 
-班農先生戰鬥室9月8日第375、376期，播放文貴先生兩首歌曲Take Down the CCP和《滄海壹生嘯》，郭文貴先生開啟滅共文化運動，爆料革命進入以歌滅共新時代，文化運動去打倒壹個政黨，超越核武器的力量！
+該公司發佈聲明表示已主動暫停疫苗接種，啓動標準審查程序 ，並允許獨立委員會審查安全數據。暫停實驗是出現無法解釋發病原因時的一種常規操作，以確保試驗的完整性。
 
-郭先生表示，對於任何壹個民族而言，信仰及文化是壹切力量之源。爆料革命需要利用文化運動，向世界講述中共的真相。希望通過文化的力量同其對抗中共的洗腦，不能再讓中共控制世界。
+一位不願透露姓名的消息人士告訴《紐約時報》，該名英國受試者參加的是三期臨床試驗中的第二期。該消息人士還透露，另一名也是在英國的志願者被發現患有「貫穿性脊髓炎「，這種病症的發生往往與自身免疫性疾病相關聯。目前尚不清楚是否由阿斯利康疫苗直接導致發病。
 
-音樂在21世紀具有非常巨大的文化沖擊力，傳播速度和民意的力量勢不可擋。中共善於用紅歌洗腦，就是把共產主義放到文化裏，前蘇聯解體也和音樂密切相關，因此音樂對於滅共至關重要。Take Down the CCP這首英文rap歌響徹全球，rap歌手和各大平臺也首次不懼中共淫威，體現了美國及全球民意達成滅共潮流，滅共進入到沖刺階段。
+澳大利亞最近與牛津大學簽署了該疫苗的意向書。總理斯科特·莫里森（Scott Morrison）說，如果試驗成功，該疫苗將在當地生產和分銷。牛津大學疫苗定於2021年初上市。
 
-爆料革命將會有更多的音樂進壹步推動滅共潮流，形成世界文化，推動越來越多的人覺醒。
+為防萬一，澳洲政府也與昆士蘭大學的研究人員發出了類似的意向書。昆士蘭大學疫苗有望在明年的年中推出。
 
-信息來源：War Room YouTube頻道，Ep375、376
+據瞭解全球正在研究的潛在新冠疫苗多達160多種。
 
-> [Ep 376- Pandemic: The Cultural Insurgency (w/ Miles Guo and Dr. Bradley Thayer)](https://pandemic.warroom.org/2020/09/08/ep-376-pandemic-the-cultural-insurgency/)
+撰寫：【一花一世界】校對&編輯：【Michelle】
 
-
+戰友之家玫瑰園小隊出品
 
 0

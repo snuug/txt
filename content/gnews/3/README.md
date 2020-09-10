@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 曆史的巨輪滾滾前行—— 紅朝大宇中傾；中共惡稔罪盈！
-`2020-09-09 20:27 GM64` [轉載自GNews](https://gnews.org/zh-hant/344389/)
+## 國土安全部長查德·沃爾夫發表年度國土安全咨文- 中國對美國的威脅
+`2020-09-09 23:44 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/344728/)
 
-內軍事：快慢機
+國土安全部代理部長查德·沃爾夫於[2020年9月9日發表年度國土安全咨文](https://www.youtube.com/watch?v=o2o-NsymK7E)，明確談到了中國在經濟、軍事和外交上對美國的威脅，並表示中國的行動一直有增無減，但並非不可阻擋。以下為國土安全部[講話要點總結](https://www.dhs.gov/news/2020/09/09/one-mission-acting-secretary-wolf-delivers-2020-state-homeland-address)（節選與中國相關部分）：
 
-曆史不會重演，但確總是驚人的相似！
+“Due to what we now know was China’s irresponsible response, COVID-19 was permitted to become the worst global pandemic in more than 100 years. Along with World Health Organization, their actions were inept, their response too slow.”
 
-1945年4月，距盟軍徹底攻陷柏林還有不到1個月的時間。
-大勢已去的希特勒在靠近其總理府的掩體內，接見了他困獸猶鬥的最後武裝力量——“希特勒青年團”的部分代表成員，並向其授予了“鐵十字勳章”。
+「由於現在眾所周知的中（共）國不負責任的反應，使得新冠肺炎成為百多年來最嚴重的全球大流行。他們和世界衛生組織的行動是無能的，他們的反應太慢了」。
 
-隨後不久，這個發動了人類有史以來規模最大的“二戰始作俑者”，並導致近600萬猶太人被殘忍屠殺的“納粹魔頭”，在其總理府的地堡內，飲彈自盡，結束了他罪惡的一生！
+**Economic security and China:**
 
-時光荏苒，歲月穿梭。轉眼間七十幾年已從不知不覺中悄悄劃過。
-結束于上個世紀中葉的那場殘酷戰爭早已煙消雲散。
-人類才剛剛從戰爭的陰霾中步出，確不想又被“邪惡紅魔”所釋放的“中共病毒”所侵入！
-從2020年伊始至今，這“180多天”的全球蔓延，奪去了數以萬計的無辜生命。
-人類已經陷入了有史以來最爲嚴重的空前生死存亡危機。
-而一手策劃並實施這一切的幕後黑手就是——“紅魔中共”！
+**經濟安全與中（共）國：**
 
-惡魔已經降臨，地獄尤在人間！
-全世界都在這次“中共病毒”的“生化襲擊”下幾近停擺！生靈塗炭，亂象叢生！
+“China has leveraged every aspect of its country including its economy, its military, and its diplomatic power, demonstrating a rejection of western liberal democracy and continually renewing its commitment to remake the world order in its own authoritarian image.”
 
-然而，就在全人類都在滴血哭泣之時。
-這肆虐世界的“中共病毒”始作俑者——“共産黨”，卻在北京堂而皇之的舉行，它們所謂的“抗擊疫情表彰大會”，論功行賞，加官晉爵。
+「中（共）國利用其國家的方方面面，包括經濟、軍事和外交力量，表現出對西方自由民主的拒絕，並不斷重申其企圖以自己的專制形象重塑世界秩序的決心」。
 
-這場人類的浩劫，已遠遠超出了七十幾年前那場曠世戰爭所帶來的傷害。
+“From intellectual property theft and stealing trade secrets that rob from American innovators, to harvesting personal data to turn a profit, shattering the privacy of Americans of all ages, to exporting unjust business practices in the form of state backed enterprises that harm American entrepreneurs, to hacking attempts to penetrate and compromise American organizations conducting COVID research, to abusing student visas to exploit American academia, the actions of China may be unabating, but they are not unthwartable.”
 
-“郭文貴先生”當年所親手銷毀的“13579”號“中共絕密”文件。
-其內容就是如何准備及實施攻擊全球的“中共病毒”武器“生化襲擊”計劃。
+「從竊取知識產權、通過掠奪美國創新者竊取商業機密，到收集個人數據以牟取暴利，破壞所有年齡段美國人的隱私，再到以國家支持的企業形式輸出不公正的商業行為傷害美國的企業家，再到黑客企圖滲透和破壞研究新冠病毒的美國組織，再到濫用學生簽證剝削美國學術界，中（共）國的惡行或許有增無減，但並非不可阻擋」。
 
-此種超乎人類所有認知的“邪惡計劃”，
-恐怕只有“中共”才能想的出並加以實施。
+“We are blocking visas for certain Chinese graduate students and researchers with ties to China’s military fusion strategy to prevent them from stealing and otherwise appropriating sensitive research.”
 
-“留給我們人類的時間已經不多了”！
-這是我們的天使英雄科學家“闫麗夢博士”，透過“爆料革命”向全球所發出的呐喊！
-世界已經被喚醒，正義的力量正在集結！
+「我們正在封鎖某些與中（共）國的軍事融合戰略有關係的中國研究生和研究人員的簽證，以防止他們竊取和以其他方式侵佔敏感的研究」。
 
-曆史的巨輪滾滾前行！
-紅朝大宇中傾——中共惡稔罪盈！
-正義或許會遲到，但一定不會缺席！
+“We are targeting illicit Chinese manufacturers who have exploited the COVID-19 pandemic by producing fraudulent or prohibited PPE and medical supplies that especially endanger our front-line workers.”
+
+「我們正在鎖定中（共）國的非法製造商，他們利用新冠疫情，生產假冒或違禁的個人防護設備和醫療用品，如此尤其會危及到我們（抗疫）前線的人員」。
+
+“We are preventing goods produced by Uighur slave labor from entering our markets and demanding that the CCP respect the inherent dignity of each human being.”
+
+「我們阻止維吾爾族奴工生產的商品進入我們的市場，並要求中共尊重每個人固有的尊嚴」。
+
+“At our borders and our ports of entry, we are leveraging technology and innovation to target and interdict deadly Chinese-made fentanyl before it can destroy American communities and take American lives.”
+
+「在我們的邊境和入境口岸，我們正在利用技術和創新來發現和攔截中（共）國製造的致命的芬太尼，以免它摧毀美國社區和奪走美國人的生命」。
+
+Of all the threats DHS has confronted in the last year, the COVID-19 pandemic has posed one of the most formidable, rapidly evolving and uniquely challenging.
+
+在國土安全部去年面對的所有威脅中，新冠疫情構成了最可怕、發展迅速和具有獨特挑戰性的威脅之一。
+
+Due to what we now know was China’s irresponsible response, COVID-19 was permitted to become the worst global pandemic in more than 100 years. Along with the World Health Organization, their actions were inept, their response too slow.
+
+由於我們現在知道的中（共）國不負責任的反應，使得新冠肺炎成為百多年來最嚴重的全球大流行。他們和世界衛生組織的行動是無能的，他們的反應太慢。
+
+[閱讀講話全文](https://www.dhs.gov/news/2020/09/09/2020-state-homeland)
+
+翻譯【Dlrow】校對【石頭】字幕【相機過熱啊】編輯【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0
