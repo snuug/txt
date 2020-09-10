@@ -1,38 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 0911财经快讯：缉毒科调查经济案，断供潮华为丧钟响
-`2020-09-10 11:55 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/346008/)
+## 裡根滅蘇經驗：文化也是核彈
+`2020-09-10 14:48 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/346204/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10113829/image-135.png)
-1，一家被《纽约时报》（New York Times）称为美国人“信息收集库”的软件公司与中共海信科技公司合作。海信科技董事会成员包含与华为公司和中共军方合作的人员。《国家脉动》揭示，数以百万计的美国房屋公司与中共科技公司共享数据。
+喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
 
-[https://thenationalpulse.com/exclusive/alphonso-ccp-spyware/](https://thenationalpulse.com/exclusive/alphonso-ccp-spyware/)
+校對 小鷗
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10142050/gtv.jpeg)圖片來源：GTV 
+30年前，強大的前蘇聯轟然倒塌，裡根政府的核彈之一就是文化“滲透”。歷史驚人的相似，郭先生在9月9日的直播中也談到：音樂也是滅共的核彈！滄海一聲嘯，掀起文化滅共潮。是時候了！文化滅共得天意。
 
-2，德国新印太战略结束了与中国的蜜月期，将集中精力与与该地区的民主国家（如日本和韩国）建立更牢固的伙伴关系，以促进法治。
+一、裡根政府打出的“快速”、“簡單”、“普及”的文化核彈，攪動了前蘇聯和東歐社會無數年輕人的心，加速把蘇共掃進了歷史垃圾堆。
 
-[https://asia.nikkei.com/Politics/International-relations/Germany-ends-China-honeymoon-with-new-Indo-Pacific-strategy](https://asia.nikkei.com/Politics/International-relations/Germany-ends-China-honeymoon-with-new-Indo-Pacific-strategy)
+當年的里根政府面對不可一世的前蘇聯，除了利用“能源危機”和“星球大戰計劃”把蘇聯經濟引入困局之外，還借鑒了號稱顏色革命的“精神教父”、政治社會學家吉恩.夏普的著作《從獨裁到民主》、《讓歐洲不可戰勝——非暴力政權更迭和防禦的潛力》的“軟政變”戰略，加強了文化滲透的力量，達到了分化蘇共、吸引民眾的目的。
 
-3, 华为禁令令日本，韩国和台湾面临260亿美元的风险。美国对华为技术公司的新制裁将于周二生效，这可能会削弱该公司的生产，这家公司在日本，台湾和韩国的供应商每年依赖的零部件销售额达数百亿美元。
+具體而言，美國大片、美國快餐等不斷衝擊著蘇聯民眾的視野，影響著民眾的生活。特別是後期美國流行音樂進入蘇聯社會，爵士樂、搖滾樂這種簡單快速普及的音樂形式，經過傑克遜、麥當娜等流行歌星的魅力演繹，迅速佔領了蘇聯群眾性市場。最終，“悅耳之音”、“口福之樂”解體了蘇聯人心，蘇共煙消雲散。目前的CCP如出一轍，會殊途同歸。
 
-[https://www.cnbc.com/2020/09/08/disney-thanked-groups-linked-to-china-detention-camps-in-mulan-credits.html?amp\_js\_v=0.1&usqp=mq331AQFKAGwASA=&recirc=taboolainternal](https://www.cnbc.com/2020/09/08/disney-thanked-groups-linked-to-china-detention-camps-in-mulan-credits.html?amp_js_v=0.1&amp;usqp=mq331AQFKAGwASA=&amp;recirc=taboolainternal)
+二、“滄海一聲嘯”橫空出世，瞬間成為好萊塢ROCK排行榜冠軍，CCP驚慌失措。爆料革命發起文化滅共新戰略，爵士搖滾勢不可擋，滅亡CCP指日可待。
 
-4, 《2020年1-6月中国游戏产业报告》显示，2020年1-6月，国内游戏市场营销收入1394.93亿元，同比增长22.34%。中国青年报社社会调查中心通过问卷网，对1017名受访者进行的一项调查显示，77.2%的受访者今年玩电子游戏的频率增加了，65.5%的受访者每天玩游戏超过2小时。
+改革開放之初，CCP治下社會曾經人性複活，個性張揚過一段時間。崔健的搖滾、竇唯的“黑豹樂隊”風靡一時，但隨著八九“六四”學生運動被鎮壓，中共國又逐步恢復了獨裁壓抑，百姓只許勞役不許做聲，敢言的“大砲”任志強就要在北京開庭接受“審判”了。當前的CCP社會，就是一片可怕的、巨大的精神荒漠，有人昏睡，有人假寐，急需“滄海一聲嘯”來振聾發聵，當頭棒喝。
 
-[http://finance.people.com.cn/n1/2020/0910/c1004-31856313.html](http://finance.people.com.cn/n1/2020/0910/c1004-31856313.html)
+所以，是時候了！可樂街舞唱起歌，踩著鼓點來滅共，文化滅共，TAKE DOWN the CCP，正得天時地利。如郭先生所言，懂音樂的戰友們需要改編所有的CCP歌曲，向CCP發動大規模的音樂戰爭，揭開《一塊紅布》，消滅CCP的音樂八股文，打贏文化超限戰。要知道，CCP出價10億美元要求“滄海一聲嘯”下架但未得逞，還設立了音樂網絡巡警、音樂綜合執勤崗，這也說明音樂滅共、文化滅共是多麼讓CCP恐懼。但滅共潮流，浩浩蕩盪，誰能擋得住呢？ ！
 
-5，腾讯发布了一份报告，预计今年上海电竞产业收入可达36. 3亿元。报告显示，在“新基建”浪潮的引领下，云计算作为新基建的底座，2019年全国用云量总体达1012点，实现了118%的高速增长。
-
-[https://huacheng.gz-cmc.com/pages/2020/09/10/678b96a71695427d8a93e6dbdd4719ea.html](https://huacheng.gz-cmc.com/pages/2020/09/10/678b96a71695427d8a93e6dbdd4719ea.html)
-
-6，壹传媒股价大幅波动，港警毒品调查科以壹传媒股价波动为由滥捕15人
-
-[https://news.sina.cn/gn/2020-09-10/detail-iivhuipp3558956.d.html?from=wap](https://news.sina.cn/gn/2020-09-10/detail-iivhuipp3558956.d.html?from=wap)
-
-7，数家公开上市的中国公司披露了过去几周意外股票销售事件。
-
-[https://www.cnbc.com/2020/09/09/more-chinese-companies-blaming-trading-typos-for-insider-stock-](https://www.cnbc.com/2020/09/09/more-chinese-companies-blaming-trading-typos-for-insider-stock-)
-
-BY 【金融法律组】
+說到這裡，感到更為可悲的是，縱觀我們這泱泱幾千年大國的音樂史，竟然沒有像樣的音樂作品流傳下來，而人家西方國家幾百年就留下了眾多的古典音樂，如巴赫肖邦。滅共以後，中華民族的音樂創作和文化重塑，爆料革命也是任重道遠。
 
 0

@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 習近平抗疫表彰大會“金句”竟出自香港社運支持者
-`2020-09-10 06:51 pmzy` [轉載自GNews](https://gnews.org/zh-hant/345404/)
+## 【中英文視頻版】2020/09/04 CCP病毒每日疫情直播簡報
+`2020-09-10 08:37 GM62` [轉載自GNews](https://gnews.org/zh-hant/345601/)
 
-內新聞作者：文章
-![习近平金句“世上没有从天而降的英雄，只有挺身而出的凡人。”竟出自香港一名支持街头抗争的五金店“国难五金”老板李政熙](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10064731/55555.jpg)新聞來自：法國國際廣播電臺
-中共總書記習近平日前在北京人民大會堂舉行抗疫表彰大會上演說期間，贊揚年輕壹代為抗疫而犧牲，說出了壹句相當鼓舞人心的金句：“世上沒有從天而降的英雄，只有挺身而出的凡人。”但根據香港蘋果日報報道，此句原來出自香港壹名支持街頭抗爭的五金店“國難五金”老板李政熙。
+英文標題 CCP Virus Pandemic Updates Ep224:  The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school
 
-李政熙的“國難五金”在香港反修例街頭抗爭運動期間，以售賣店形式售賣防毒面具、頭盔、眼罩、口罩及手套等防護裝備，有時甚至以低於成本價出售貨品，以示支持抗爭運動，但也因如此經常受到警方無故騷擾。
+內容簡介
 
-李政熙開玩笑說，要特別鳴謝習近平為他做宣傳，令他用這句口號制作的T恤，從前晚開始銷量大增，比平日多出50%。而“國難五金”Facebook已發文除了感激習“厚愛”外，亦指“定必竭盡全力，繼續推動及緊記其教誨”。
+1. 素有糧倉之稱的東北三省洪災十分嚴重，中共官方媒體不得報導，對此全部沉默。
+2. 中共內蒙古教育局造假，代家長簽名，下發學生限期入學通知書。內蒙古巴彥淖爾市。
+3. 中國共產黨加緊控制糧食，為倒退回計劃經濟做準備。中共極權主義，搞全球擴張，同時中共病毒激怒了全世界，以糧食進口為主的中共得到的國際支持也越來越少，加上天災人禍，中國糧食危機就凸顯出來。
+4. （9月3日國務卿蓬佩奧在福克斯商業节目受访）我今天聽了美國司法部長關於CCP與選舉有關的特殊威脅的評論；但CCP的實際威脅比那更廣泛更深遠。中共正在建設它的軍隊，用俄羅斯從來沒有的方式來滲透美國；透過國有企業和公司補貼，施加經濟影響力，來摧毀美國數以萬計的工作崗位。
+5. （8月31日郭文贵）14億人哪，可憐可悲。希望我們新中國聯邦滅掉共產黨以後能找回中國人應有的尊嚴。我看到這個“中國人均四千人民幣”，這事兒咱得好好說道說道。
 
-原文鏈接：https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20200910-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%8A%97%E7%96%AB%E8%A1%A8%E5%BD%B0%E5%A4%A7%E4%BC%9A-%E9%87%91%E5%8F%A5-%E7%AB%9F%E5%87%BA%E8%87%AA%E9%A6%99%E6%B8%AF%E7%A4%BE%E8%BF%90%E6%94%AF%E6%8C%81%E8%80%85
+
+1. The flooding in the three northeastern provinces in China, known as the Granaries of China, was very severe, but the official China Communist Party media has been keeping silence and has discarded this tragedy.
+2. The CCP Inner Mongolia Education Bureau sent a notice to Mongolian students setting a deadline for them to return to school. The government officials of Wulateqian County in Bayannaoer City, fabricated the parents’ signatures upon receipt of such notices.
+3. The CCP is tightening its control over food as it prepares to revert to a planned economy. The CCP’s totalitarianism and global expansion, as well as the global outrage caused by the CCP virus, have led to the decline of international support for the Communist Party’s food-importing policy. With natural and man-made disasters, China’s food crisis is emergering.
+4. (Secretary Pompeo, with Fox Business, 9/3)  I heard the Attorney General’s comments today about the particular threat related to elections; but broader and more deeply than that, the Chinese Communist Party is building out its military, it has infiltrated the United States in ways that Russia has not, and its economic might has been used through state-owned enterprises and subsidizing companies to destroy tens of thousands of jobs all across the heartland in America.
+5. (8/31) 1.4 billion Chinese people, pitiful and pathetic. Hopefully, after the New Federal State of China takes down the CCP, the Chinese people can recover the dignity that we should have had. Recently when I saw (the CCP talk about) “ Now Chinese people average about RMB 4000 (USD 585) per capita in China” We have to talk about this in deep.
+
 
 0
