@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 廣東珠海一酒店附近發生爆炸，初步發現3人受傷
-`2020-09-11 00:14 yingdongdongtw` [轉載自GNews](https://gnews.org/zh-hant/347208/)
+## 【世界多語言圖文】2020/09/04 CCP病毒每日疫情直播簡報
+`2020-09-11 07:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/348016/)
 
-2020年9月11日9時左右，廣東珠海騰湖大酒店附近發生煤氣爆炸事件，造成周邊商舖及居民樓不同程度受損，現場一片狼藉，有明火和濃煙。截至10時，現場明火已撲滅。據初步掌握，有3名群眾在事件中受傷，其中2名輕傷、1名燒傷（傷勢待確認），受傷人員已送附近醫院救，已無群眾受困。
+戰友之家圖文摘要及小語種組
 
-據珠海交警消息，本次爆炸是煤氣爆炸，具體事故原因仍在進一步調查中。目前，事故現場正在疏導交通，藤達二路、白藤二路中實施臨時交通管制。
+[English\_0904\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073028/English_0904_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073028/English_0904_CCP_Virus_Updates.pdf)
 
-内新闻：背靠背
+[French\_0904\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073032/French_0904_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073032/French_0904_CCP_Virus_Updates.pdf)
+
+[German\_0904\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073048/German_0904_CCP_Virus_Updates_DE.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073048/German_0904_CCP_Virus_Updates_DE.pdf)
+
+[Korean\_0904\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073043/Korean_0904_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073043/Korean_0904_CCP_Virus_Updates-.pdf)
+
+[Spanish\_0904\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073037/Spanish_0904_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11073037/Spanish_0904_CCP_Virus_Updates.pdf)
+
+
 
 0
