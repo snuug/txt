@@ -28,6 +28,11 @@
 **郭文贵MILES** `2020-09-09T20:11:52`
 ##
 
+[【Gnews September 10】A newly released rock song “Take Down the CCP” by Miles Guo,...](/content/getter/content/2020/09/5f5b1660daed5626f99140c0.md)
+
+**郭文贵MILES** `2020-09-11T06:17:04`
+##
+
 [9月11号：衷心地感谢．万分的感激．所有的战友们一起共同创造的这个文化运动．奇迹．干掉中共……没你们不行．事实就是最好的证明．每小时都在创造奇迹，共产党在过去的...](/content/getter/content/2020/09/5f5b07d4daed5626f99135ac.md)
 
 **郭文贵MILES** `2020-09-11T05:15:00`
@@ -156,10 +161,5 @@
 [9月5日 班农战斗室：CCP在成千上万次交易中撒谎，整整50年没有一次践行过诺言  September 5, War Room: CCP lied about ...](/content/getter/content/2020/09/5f546e7edaed5626f98c0226.md)
 
 **郭文贵MILES** `2020-09-06T05:07:10`
-##
-
-[9月5日班农战斗室：回顾爆料革命，中共病毒疫情的发展使三年爆料得到了验证 September 5, War Room: Whistleblower moveme...](/content/getter/content/2020/09/5f545ddedaed5626f98bf556.md)
-
-**郭文贵MILES** `2020-09-06T03:56:14`
 ##
 
