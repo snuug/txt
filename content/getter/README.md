@@ -28,6 +28,11 @@
 **郭文贵MILES** `2020-09-09T20:11:52`
 ##
 
+[9月11日 尊敬的战友们好！这是文贵2017年10月5日在华盛顿新闻发布会上说的中共将对美国造成的巨大的危害，这个危害可能是911的100倍1000倍！911的...](/content/getter/content/2020/09/5f5b7a1fdaed5626f9918532.md)
+
+**郭文贵MILES** `2020-09-11T13:22:39`
+##
+
 [【Gnews September 10】A newly released rock song “Take Down the CCP” by Miles Guo,...](/content/getter/content/2020/09/5f5b1660daed5626f99140c0.md)
 
 **郭文贵MILES** `2020-09-11T06:17:04`
@@ -156,10 +161,5 @@
 [9月6号：尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机真相吗？ 加拿大江财神发出的这个声明．是及时的．正确的！唯真不破，一切以战友的安全和利益为主...](/content/getter/content/2020/09/5f54e6c8daed5626f98c59d5.md)
 
 **郭文贵MILES** `2020-09-06T13:40:24`
-##
-
-[9月5日 班农战斗室：CCP在成千上万次交易中撒谎，整整50年没有一次践行过诺言  September 5, War Room: CCP lied about ...](/content/getter/content/2020/09/5f546e7edaed5626f98c0226.md)
-
-**郭文贵MILES** `2020-09-06T05:07:10`
 ##
 
