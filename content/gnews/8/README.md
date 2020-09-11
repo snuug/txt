@@ -1,21 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一個曾經的《笑傲》迷，被七哥的歌聲觸到了心底
-`2020-09-10 19:36 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/346690/)
+## 全球音樂綜合排行榜第一 ——爆料革命「流行樂新人」郭文貴第一首單曲《Take down the CCP》
+`2020-09-10 23:39 GM62` [轉載自GNews](https://gnews.org/zh-hant/347083/)
 
-喜馬拉雅聯盟加拿大農場活水江河
-[!\[文貴先生最新MV【滄海一聲嘯- A Roar of the Vast Sea】 - YouTube\](https://i.ytimg.com/vi/WyYVXmJcNds/maxresdefault.jpg)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DWyYVXmJcNds&amp;psig=AOvVaw0NKs0EEnrcj44m5tSy5-KN&amp;ust=1599866971457000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCOC0gIjf3-sCFQAAAAAdAAAAABAD)
-我從高中時候開始特別喜歡《笑傲江湖》，這書我看了不下七八遍。後面拍的電視劇，我曾經都能聽出哪句台詞是出自原著。
+編輯記者:川渝小哥G。 校對編輯:文劍
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233506/%E5%9B%BE%E4%B8%80-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233531/%E5%9B%BE%E4%BA%8C-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233556/%E5%9B%BE%E4%B8%89.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233621/%E5%9B%BE%E5%9B%9B.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233644/%E5%9B%BE%E4%BA%94.jpg)
+美東時間9月10號,爆料革命贊助者郭文貴先生第一首單曲《Take down the CCP》登頂美國iTunes即時下載榜榜首,郭文貴先生也成為了全球排名第一的流行樂歌手。
 
-後來工作了，步入社會了，人已步入中年，以為再也沒有了那時候的俠客出來行俠仗義。武俠的世界漸漸在心中淡漠了。
+這是華人歌手首次進入該榜單的前十名,首次佔據iTunes榜首。《Take down the CCP》由爆料革命唐平女士、威廉王先生等戰友原創改編,採用了輕鬆歡快的曲調,簡潔明瞭的中英文結合歌詞,在中共製造的CCP病毒全球蔓延的背景下,宣導全球正義力量滅共。
 
-直到昨天看到七哥唱出了這首歌，我看一遍哭一遍，看一遍哭一遍。年少時心中曾夢想過的肝膽相照，快意恩仇，不背情義的浪漫武俠世界，居然又在我心中回來了。我回想起了當初我是怎樣喜歡上了令狐衝，因為他武功尚微不足道的時候就要想方設法救儀琳，五嶽劍派同氣連枝，沒拋棄沒放棄；因為他在名譽和功利面前從來都看淡生死，絲毫不願違背自己心中的情義，甘願忍受冤屈；因為他始終追尋著一份簡單摯誠的愛，始終沒有忘他幼年時愛過的師父師娘和小師妹，不論他們後來的選擇多麼與自己向左。
+作為一個曾經被中共深度迫害的中國人,郭文貴先生的歌聲充滿了普通歌手甚至音樂巨星所不具備的力量,那是一種被中共邪惡力量逼到絕境后爆發出來的洪荒之力。
 
-但凡是《笑傲》的迷，都會明白我為何這樣談起。你也便明白，我們為什麼愛七哥。
-
-這個MV，我看一遍哭一遍。都是因為七哥，讓我恍恍惚惚又幸幸福福地過了這兩天，不可思議。讓我無比感恩上天，讓一個經常感念這個世界如此邪惡的中年忽夢少年時，能對自己說，你心中的令狐衝真的存在這個世界，你心中所夢想過的那個武俠世界真的此生來過。
-
-今天喝多了，那聲音那作曲，聽著聽著又哭了，內心卻還是無比歡喜。寫下這篇微不足道的小文，獻給懂我的江湖過旅。
+《Take down the CCP》受到了全世界人民的追棒,人們競相下載並相互傳唱,歌曲遍佈大街小巷。 歌曲的出現引發了中共的巨大恐慌,公安部迅速成立了音樂監管部門以監視牆內民眾動向。中共深知自己非民選政府,該歌曲代表了全世界人民的民意,爆料革命和新中國聯邦的每一次投票,將成為壓垮它的最後一根稻草。
 
 0
