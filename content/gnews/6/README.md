@@ -1,49 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方國家說：在台灣問題上要挺身而出反對中共
-`2020-09-10 17:00 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/346544/)
+## 9月10日財經快訊: 緝毒科調查經濟案, 斷供潮華為喪鐘響
+`2020-09-10 19:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/346706/)
 
-*新聞來源：THE TIMES《時代周刊》；作者：DiDi Tang Beijing；發佈時間： 2020年9月1日*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10193851/Picture1-7.png)圖片來源： [https://image.cnbcfm.com](https://image.cnbcfm.com/api/v1/image/105593671-1543284635381gettyimages-1072476308.jpg?v=1543284705&amp;w=740&amp;h=416) 
+[1，一家被《紐約時報》（New York Times）稱為美國人“信息收集庫”的軟件公司與中共海信科技公司合作。海信科技董事會成員包含與華為公司和中共軍方合作的人員。 《國家脈動》揭示，數以百萬計的美國房屋公司與中共科技公司共享數據。](https://thenationalpulse.com/exclusive/alphonso-ccp-spyware/)
 
-*翻譯/簡評：Linda Black；校對：TCC；審核：海闊天空；Page：拱卒*
+[2，德國新印太戰略結束了與中國的蜜月期，將集中精力與與該地區的民主國家（如日本和韓國）建立更牢固的伙伴關係，以促進法治。](https://asia.nikkei.com/Politics/International-relations/Germany-ends-China-honeymoon-with-new-Indo-Pacific-strategy)
 
-**簡評：**
+[3,華為禁令令日本，韓國和台灣面臨260億美元的風險。美國對華為技術公司的新制裁將於週二生效，這可能會削弱該公司的生產，這家公司在日本，台灣和韓國的供應商每年依賴的零部件銷售額達數百億美元。](https://www.cnbc.com/2020/09/08/disney-thanked-groups-linked-to-china-detention-camps-in-mulan-credits.html?amp_js_v=0.1&amp;usqp=mq331AQFKAGwASA=&amp;recirc=taboolainternal)
 
-中共國外交部發言人對捷克共和國的威脅和恫嚇並未成功，捷克參議院議長維斯特里西爾在台灣的講話對中共做出了強硬回應。西方各個國家開始改變對中共的態度，捷克曾經是中共在歐洲一帶一路的重點合作國家，但現在捷克執政黨對中共的態度已經發生了180度轉彎，捷克已然明白過去幾十年的綏靖政策，通過對中共勢力做出政治讓步，以換取經濟利益的做法是錯誤的。值得一提的是文章中提到中共最先進的驅逐艦是美國海軍阿利·伯克號航空母艦的對手，網上有一張美國海軍阿利·伯克號航空母艦的2003年的圖片。通過圖片來看，中共所謂最先進的驅逐艦從外觀來看和美國的阿利·伯克號非常相似，幾乎一摸一樣，就是一個劣質的山寨翻版。中共就連海軍軍艦都不得不抄襲美國海軍，然後還厚顏無恥的自吹自擂說是美國海軍的對手。就如此一個靠盜竊知識技術產權來維持生存，如果一天不讓它偷，它就活不下去的這麼一個流氓政黨，讓西方各國越來越遠離。
+[4, 《2020年1-6月中國遊戲產業報告》顯示，2020年1-6月，國內游戲市場營銷收入1394.93億元，同比增長22.34%。中國青年報社社會調查中心通過問卷網，對1017名受訪者進行的一項調查顯示，77.2%的受訪者今年玩電子遊戲的頻率增加了，65.5%的受訪者每天玩遊戲超過2小時。](http://finance.people.com.cn/n1/2020/0910/c1004-31856313.html)
 
-##  **西方國家說：在台灣問題上要挺身而出反對中共** 
+[5，騰訊發布了一份報告，預計今年上海電競產業收入可達36. 3億元。報告顯示，在“新基建”浪潮的引領下，雲計算作為新基建的底座，2019年全國用雲量總體達1012點，實現了118%的高速增長。](https://huacheng.gz-cmc.com/pages/2020/09/10/678b96a71695427d8a93e6dbdd4719ea.html)
 
-**捷克政客訪問台灣激怒北京**
+[6，壹傳媒股價大幅波動，港警毒品調查科以壹傳媒股價波動為由濫捕15人](https://news.sina.cn/gn/2020-09-10/detail-iivhuipp3558956.d.html?from=wap)
 
-[!\[\](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/6a92fc5d-d7ef-4458-92c1-c9d348eb037f.jpg?asset_id=68f8e991-509c-4bb6-b133-80d1ca54fd70&amp;img_etag=%227f8ad1ed21903e37ad33bae2e1b68a2d%22&amp;size=2560)](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/6a92fc5d-d7ef-4458-92c1-c9d348eb037f.jpg?asset_id=68f8e991-509c-4bb6-b133-80d1ca54fd70&amp;img_etag=%227f8ad1ed21903e37ad33bae2e1b68a2d%22&amp;size=1024)
+[7，數家公開上市的中國公司披露了過去幾週意外股票銷售事件。](https://www.cnbc.com/2020/09/09/more-chinese-companies-blaming-trading-typos-for-insider-stock-sales.html)
 
-來台灣訪問的最資深的歐洲政治人物之一引用了溫斯頓·丘吉爾（Winston Churchill）的話向西方國家發出警告，說他們必須挺身而出面對中共國。
-
-在北京表示捷克將為此出行“付出沉重的代價”之後，該國參議院議長米洛斯·維斯特里西爾（Milos Vystrcil）在訪問台北時發表了講話。
-
-維斯特里西爾說，民主國家必須挑戰北京對香港的鎮壓，並敦促世界各國註意歷史教訓，不要通過犧牲台灣來取悅中共國。
-
-他說，“讓您在戰爭與恥辱之間做出選擇，你選擇了恥辱，你還會有戰爭。” 他引用了丘吉爾當年對納粹綏靖政策的回應。
-
-他補充說，肯尼迪總統在1963年在德國發表的聲明“我是柏林人”，是一個反抗共產主義的自由的重要信息。他對那些站起來熱烈鼓掌的觀眾說：“請允許我使用相同的方法表達對台灣人民的支持。請允許我謙虛而又堅決地對貴國議會說我是台灣人。”
-
-中共國將台灣視為自己的領土，並威脅要在2050年之前(如果必要的話)用武力佔領台灣。北京早些時候警告說，捷克共和國將面對以維斯特里西爾先生為團長的89人代表團的訪問所造成的不良後果。訪問德國的中共國外交部長王毅，對此進行了批評。
-
-[!\[\](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/718bd58f-2db7-491b-9e6c-61c4285bb3d0.jpg?asset_id=c8aecdb7-8241-4deb-9d0c-968e3b511268&amp;img_etag=%22dd3fff03ccb3c5f5bd091f9cf158c832%22&amp;size=2560)](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/718bd58f-2db7-491b-9e6c-61c4285bb3d0.jpg?asset_id=c8aecdb7-8241-4deb-9d0c-968e3b511268&amp;img_etag=%22dd3fff03ccb3c5f5bd091f9cf158c832%22&amp;size=1024)阿利·伯克號航空母艦/圖片來源於網絡(譯者)
-
-王毅說，“台灣是中共國領土不可分割的一部分。挑戰“一個中國”的原則就是成為14億中國人民的敵人，是對信任的破壞。” “當捷克參議院院長及其背後的反共勢力公開挑釁時，中共國政府和人民不會袖手旁觀。我們必須讓他為他的短視行為和政治投機付出沉重的代價。”
-
-文章寫到，隨著兩艘最先進的驅逐艦的派出，中共國爭奪南海海軍優勢競賽已經進入了“新階段”。這些船被描述為是美國海軍的阿利·伯克（Arleigh Burke）和祖姆沃爾特（Zumwalt）等級的驅逐艦的對手。中共國計劃在下個月在該地區進行一場新的戰爭遊戲，這是以與美國的緊張局勢和接近台灣作為焦點。
-
-[!\[\](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/39118d85-5e40-4bc9-b31e-fadfe19c601a.png?asset_id=7c5b249a-d3b7-4e7b-b484-8889f469653a&amp;img_etag=%22184f1d01c18c03c5b7813bc1a576f00d%22&amp;size=2560)](https://spark.adobe.com/page/OdgOzfQ4H4PDW/images/39118d85-5e40-4bc9-b31e-fadfe19c601a.png?asset_id=7c5b249a-d3b7-4e7b-b484-8889f469653a&amp;img_etag=%22184f1d01c18c03c5b7813bc1a576f00d%22&amp;size=1024)中國下水了兩艘最先進的驅逐艦，以爭奪南海的海軍優勢。
-
-這項宣布是在美國哈爾西號（DDG-97）航行經過台灣海峽的第二天，這是美國在兩週內的第二次過境，也是今年的第九次。美國海軍發言人說：“美國海軍將繼續在國際法允許的範圍內飛行，航行和操作。”
-
-• 儘管在6月戰鬥造成20多名印度士兵死亡之後，努力緩解了緊張局勢下，中共國和印度昨日相互指責對方部隊越過有爭議的喜馬拉雅邊界。
-
-[原文鏈接](https://www.thetimes.co.uk/article/stand-up-to-china-on-taiwan-west-told-76g2ztnbp)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/OdgOzfQ4H4PDW/)
+By：【秘翻組-金融法律組】
 
 0
