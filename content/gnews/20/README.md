@@ -1,128 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利參議員譴責迪士尼在製作《花木蘭》時粉飾種族滅絕，提問會否撤回影片
-`2020-09-10 15:49 GM80` [轉載自GNews](https://gnews.org/zh-hant/346223/)
+## 扒扒共和国勋章获得者钟南山的上位史
+`2020-09-10 16:48 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/346521/)
 
-參議員喬希·霍利（Josh Hawley）（密蘇裏州共和黨人）2020年9月9日致信迪士尼CEO羅伯特·查佩克（Robert Chapek），譴責該公司在製作《花木蘭》過程中粉飾正在發生的對維吾爾族和其他穆斯林少數民族的種族屠殺。在電影製作過程中，迪士尼前往發生暴行的新疆省，與當地的中共宣傳機關合作，並對負責管理新疆集中營的中共機構表示 “特別感謝”。霍利參議員寫道，迪士尼已經從自滿越界變成同謀：
+作者：美东香草山农场弹指灭共组 文荷
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10164108/Screenshot_20200910-121851.png)
+近日，两则与钟南山院士有关的新闻刷爆网络。一则是中共在北京举行万人表彰大会，习近平亲自授予钟南山“共和国勋章”。另一则是世卫组织（WHO)重启对新冠疫情调查，专家组名单中钟南山赫然在列。小编今天来扒一扒这个被中共和世卫捧成香饽饽的防疫专家的上位史，看看中共是如何操控世卫和钟南山这些所谓专家，躲避舆论追责，行欺世盗名之实的。
 
-“近一個世紀以來，迪士尼通過講述故事，電影製作，建造主題公園激發了我們的靈感，將我們聚集在一起，並向我們展示了美國能給這世界提供的最好東西。你們決定不加批判地批准該電影上映，而非向那些受到迪士尼行為傷害的人道歉，這理應受到譴責。你們決定將利益置於原則之上，不僅無視中共的種族滅絕和其他暴行，而且還幫助和教唆他們，這是對美國價值觀的侮辱。”
+**靠疫情危机为中共洗地上位的“专家”**
 
-霍利參議員詢問迪士尼是否會將木蘭從Disney+中撤下，以避免進一步美化中共官員以及該對新疆暴行負責的機構。他還要求迪士尼解釋他們從參與種族滅絕的中共機構那裏得到了什麼援助，以及這些機構是如何得到補償的。
+2003年对钟南山来说是个神奇的分水岭。在此之前，他的职业履历并不起眼。除了成名后收获的一堆光鲜的荣誉博士头衔，他的最高学历只是北京医学院学士学位，曾在英国爱丁堡大学访问两年，期间也没有十分重量级的论文发表。回国后，主要在广州医学院担任教学科研工作，直到1996年被选为中共国工程院院士。这期间，钟南山没有什么令人眼前一亮的学术成果发表，所获得过的最高奖项也仅仅是中国卫生部重大科技成果三等奖。难怪钟南山多次强调“看一个医生的水平不能看他发表过多少论文”来回应外界对其评上工程院院士资质的质疑。
 
-[閱讀原文](https://www.hawley.senate.gov/sites/default/files/2020-09/Hawley-Disney-Chapek-Mulan-Letter.pdf)
+直到2003年，一场席卷全国的非典（SARS）疫情把钟南山推上了神坛。这里不得不提另一个与“非典”有关的名字—–蒋彦永。后者在非典爆发后率先向国际媒体披露中共隐瞒疫情的严重性，正因为他的及时爆料，引起了国际舆论关注，中共才开始对非典采取措施，从而没有引起更大面积的爆发。但蒋本人也因此触怒中共，加上他长期呼吁平反六四事件和揭露活摘器官真相而被中共严厉打压和监控。钟南山也正是在这个契机下被官方选中，一来为成功转移国际舆论对蒋的关注，二来为挽救政府防疫不力的负面形象找一个代言人。在铺天盖地的媒体宣传中，钟南山被包装成了敢说真话的专家，成了“抗击非典第一功臣”，而事实证明钟只是中共危机公关的一枚棋子，而他也绝非媒体说的那样正直敢言，至少在两个关键问题上他对世人撒了弥天大谎。一是在没有任何证据支持下宣布SARS的中间宿主是果子狸，连世卫组织都对此存疑。二是为自己用大剂量激素治疗非典患者带来的股骨头坏死问题狡辩称是非典本身的后遗症，也因其他类似SARS的冠状病毒治疗案例没有出现股骨头坏死案例而被打脸。
 
-信件全文翻譯如下：
+2019年新冠疫情从中国爆发，和当年SARS疫情一模一样的桥段又一次上演。因为李文亮医生的吹哨，中共再次陷入掩盖疫情的舆论漩涡。尽管从香港大学P3实验室逃到美国爆料的闫丽梦博士，用证据证明中共早在12月底就有充分渠道获得新冠病毒人传人的消息，却对各方下令封口，可通过媒体的报道可见，直到1月18号钟南山才“姗姗来迟”。美其名曰调查，却对病毒的源头问题只字不提，还对媒体表示看到有医护人员感染感到吃惊。虽然他最早以官方名义说出了人传人的事实并给出封城的建议，但与此时正遭受不公正待遇的李文亮有天壤之别，他的这番表态完全是得到中共默许的。靠这样的亲民秀又一次赚到群众信任之后，他又开始了和当年把SARS甩锅果子狸一样的表演，为中共洗地说“新冠疫情最早在中国爆发，但源头不一定在中国”。17年过去，不变的套路却依然管用，可悲的是一次次被欺骗又一次次选择遗忘的国人。
 
-*September 9, 2020*
+**靠名人效应为企业站台发国难财**
 
-2020年9月9日
+钟南山为中共洗地，使其逃避追责，自然获得力捧，名利双收。但这也为他将来和中共一起走上审判席、被钉在历史的耻辱柱上埋下了伏笔。天眼查上显示钟南山名下有3家公司，其中一家叫广州呼研所医药科技有限公司，钟南山任董事长，而通过这家公司的高管层与钟有交集的企业竟达90多家，遍布医药科技行业。钟南山敛财的另一个途径是通过自己名下的基金会接受大额捐赠，然后再以投资为名把钱注入和自己有关的企业中。以广东省钟南山医学基金会为例，这家公司2020年上半年仅来自长隆集团，马云基金会、伊利集团的大笔捐赠就多达4000多万元，而该基金会财务报表显示，这些钱很多投到了钟南山自己名下的企业。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10164216/fb0b-ixeeisa1697226.jpg)
+钟南山还被多次曝光利用自己的名人效应，为企业站台，做广告代言人。比如带着印有厂商品牌的口罩视察防疫工作，或是在工作场合一边喝着伊利牛奶一边说露骨的广告语。最令外界诟病的，是他与同为院士的吴以岭和其创立的以岭药业间不可告人的利益关联。今年3月以来，钟南山三次公开为“连花清瘟胶囊”背书，使该药的唯一厂商以岭药业股价一度飙升至200%，在韭菜们欢呼雀跃地跟随进场时，却发现该公司高管高位密集减持套现3亿多元。媒体质疑钟南山推荐该药动机不纯，因为早在2015年钟南山就与以岭药业创始人吴以岭签订了有关连花清瘟系列产品研究的战略合作项目，还于2019年合作成立了“南山-以岭肺络联合研究中心。和在国内被热捧成神药形成鲜明反差的是，该药在多国受到冷遇：新加坡、加拿大卫生部质疑其疗效被夸大；瑞典研究机构直言其对新冠无效，当局更明确禁止进口；美国海关也查扣了大批即将流入美国市场的连花清瘟。截止到目前，对该药治疗新冠疗效的研究，仅限于一份5月底发表在《植物医学》（《Phytomedicine》上的一篇“中药连花清瘟胶囊治疗新型冠状病毒肺炎前瞻性、随机、对照、多中心临床研究”的论文。且不论该研究的设计和数据来源是否存在局限，从其仅提到“改善新型冠状病毒肺炎患者的临床症状与临床结局，但在降低重症病例转化率和提升病毒检测转阴率方面没有明显差异”这一结论就和此前的“神药”宣传存在巨大出入。而这项研究的参与方，是钟南山、李兰娟、张伯礼这些名下有医药企业的专家团队，这种“既是运动员又是裁判员”的研究，实在无法不让人怀疑其背后的巨大利益动机。
 
-*Robert Chapek**羅伯特**-查佩克*
-*Chief Executive Officer**首席執行官*
-*The Walt Disney Company**沃特迪士尼公司*
-*114 5th Ave #13*114 5th Ave #13
-*New York, NY 10011*紐約州紐約市10011
+**钟南山的危害为何远胜胡锡进**
 
-*Dear Mr. Chapek:*
+中共自知自己的危权统治，容易激起民愤，多年的假大空和制度性贪腐难以再取信于民，于是便想出了在官民之间找一些看上去有点棱角的人，充当这两个阶层间的润滑剂，也就是我们常说的小骂大帮忙。钟南山之流就是典型的在无关痛痒的小问题上挑点刺，博取民众的信任，但在关键问题上，和中共一个鼻孔出气的最佳代言人。这种所谓的人民专家派比胡锡进之类的跪舔党更有市场，也更有危害性。如今，这种御用专家不仅在国内搅动风云，还打着正义的旗号到世界上替中共洗地。近日，世卫组织号称重启新冠病毒来源调查，却毫不避嫌启用最大嫌疑犯中共推荐的专家，令人大跌眼镜。也注定这轮调查不会有真相，而终将沦为又一场“专家走秀”。卷入其中的学术大牛们，在中共蓝金黄的强大攻势下，也难以避免将像钟南山那样，用模棱两可的学术用语为中共洗地，这背后牵着他们的是一条条像共和国勋章那样的金灿灿的狗链。
 
-*親愛的查佩克先生，*
+有中共存在一天，科学界就永无宁日！
 
-*The Chinese Communist Party (CCP) is committing genocide in Xinjiang—and not just cultural genocide either. There was a time when Beijing might have been satisfied with enslaving Uighurs and other Muslim ethnic minorities, even as it tortured them into abandoning their beliefs and swearing loyalty to the Party.[*[*1*](https://www.hrw.org/report/2018/09/09/eradicating-ideological-viruses/chinas-campaign-repression-against-xinjiangs)*] But that is no longer the case. Now Beijing appears intent on destroying the Uighur people. And it has rolled out a sophisticated campaign to do just that, including by systematically sterilizing Uighur women and aborting their children.[*[*2*](https://apnews.com/269b3de1af34e17c1941a514f78d764c)*]*
+资料来源：
 
-*中共正在新疆進行種族滅絕–而不僅僅是文化種族滅絕。曾幾何時，北京可能滿足於奴役維吾爾族和其他穆斯林少數民族，甚至對他們進行折磨，迫使他們放棄自己的信仰，宣誓效忠於共產黨。[[1](https://www.hrw.org/report/2018/09/09/eradicating-ideological-viruses/chinas-campaign-repression-against-xinjiangs)] 但現在已經不是這樣了。現在北京似乎打算摧毀維吾爾族。它為此展開了一場精心策劃的運動，包括有計畫地對維吾爾族婦女進行絕育，並讓她們的孩子流產。[[2](https://apnews.com/269b3de1af34e17c1941a514f78d764c)]*
+http://phtv.ifeng.com/program/shnjd/detail\_2012\_02/28/12837132\_0.shtml
 
-*On August 13, 2018, Walt Disney Studios announced that production had begun on Mulan.**[*[*3*](https://twitter.com/DisneyStudios/status/1029042409026408450?s=20)*]**By that time, numerous reports had been released by the U.S. government and non-government organizations concerning the mass internment of Uighurs and others in camps in Xinjiang.**[*[*4*](https://www.hrw.org/news/2017/09/10/china-free-xinjiang-political-education-detainees;%20https:/www.state.gov/reports/2018-report-on-international-religious-freedom/china-includes-tibet-xinjiang-hong-kong-and-macau/xinjiang/;%20https:/jamestown.org/program/evidence-for-chinas-political-re-education-campaign-in-xinjiang/)*]**But that did not stop Disney from going to Xinjiang to film Mulan. Nor did it stop Disney from collaborating with the Chinese officials directly responsible for the atrocities at those camps.*
-
-*2018年8月13日，華特·迪士尼影業宣佈，《花木蘭》的製作已經開始。”[[3](https://twitter.com/DisneyStudios/status/1029042409026408450?s=20)]當時，美國政府和非政府組織已經發佈了許多關於新疆營地大規模關押維吾爾人和其他人的報告。”[[4](https://www.hrw.org/news/2017/09/10/china-free-xinjiang-political-education-detainees;%20https:/www.state.gov/reports/2018-report-on-international-religious-freedom/china-includes-tibet-xinjiang-hong-kong-and-macau/xinjiang/;%20https:/jamestown.org/program/evidence-for-chinas-political-re-education-campaign-in-xinjiang/)]但這並沒有阻止迪士尼前往新疆拍攝《花木蘭》。也沒有阻止迪士尼與對這些集中營暴行負有直接責任的中國官員合作。*
-
-*The Mulan closing credits tell the story. Nine minutes into the ten-minute credit roll, Disney gives “special thanks” to the Turpan Public Security Bureau—the very same bureau responsible for administering the concentration camps in the Turpan jurisdiction. Disney also chose to give “special thanks” to several CCP propaganda organs, including the Xinjiang Communist Party’s publicity department. These agencies are tasked with spreading disinformation about the atrocities in Xinjiang in order to shield Beijing from accountability.*
-
-*《木蘭》片尾字幕講了一個故事。在10分鐘的片尾鳴謝中，迪士尼用了有9分鐘向吐魯番公安局表示“特別感謝”，該局負責管理吐魯番轄區的集中營。迪士尼還選擇了對中共的幾個宣傳機關，包括新疆中共的宣傳部門進行 “特別感謝”。這些機構的任務是傳播有關新疆暴行的虛假資訊，以包庇外界針向北京問責。*
-
-*Disney’s whitewashing of the ongoing Uighur genocide is contrary to all of your company’s supposed principles. Just a few weeks ago, for instance, you wrote about the need to “confront the inscrutable idea that the lives of some are deemed less valuable—and less worthy of dignity, care and protection—than the lives of others.”**[*[*5*](https://thewaltdisneycompany.com/resolve-in-a-time-of-unrest-a-message-to-fellow-employees/)*]**Elsewhere, Disney has declared its commitment “to providing comfort, inspiration, and opportunity to children and families around the world” and described its “commitment to respect human rights” as a “core value.”**[*[*6*](https://thewaltdisneycompany.com/social-responsibility/;%20https:/thewaltdisneycompany.com/app/uploads/Human-Rights.pdf)*]*
-
-*迪士尼對正在發生的維吾爾族種族滅絕事件進行粉飾，這與貴公司的所有原則背道而馳。例如，就在幾周前，你寫道，需要 “正視這樣一種難以捉摸的想法，即一些人的生命被認為不如其他人的生命有價值，也不值得尊嚴、關懷和保護。”[[5](https://thewaltdisneycompany.com/resolve-in-a-time-of-unrest-a-message-to-fellow-employees/)] 在其他地方，迪士尼宣佈致力於 “為世界各地的兒童和家庭提供安慰、靈感和機會”，並將其 “尊重人權的承諾 “描述為 “核心價值”。[[6](https://thewaltdisneycompany.com/social-responsibility/;%20https:/thewaltdisneycompany.com/app/uploads/Human-Rights.pdf)]*
-
-*How exactly does giving “special thanks” to the officials responsible for imprisoning, torturing, and forcibly sterilizing millions of people because of their ethnicities and beliefs align with your supposed commitment to promoting human dignity and respecting human rights? How does glorifying the Chinese authorities perpetrating abuses in Xinjiang provide comfort, inspiration, and opportunity to Uighur children—including those who were never born because the CCP forced their mothers to abort them? Disney’s actions here cross the line from complacency into complicity.*
-
-*對因民族和信仰而監禁、折磨和強行絕育數百萬人的官員表示 “特別感謝”，這與你所謂的促進人的尊嚴和尊重人權的承諾相符嗎？美化中國當局在新疆遭受虐待的人如何為維吾爾族兒童（包括因中共強迫其母親流產而從未出生的維吾爾族兒童）提供安慰，啟發和機會？ 迪士尼在這裏的行動從自滿變成同謀。*
-
-*For nearly a century, Disney has told stories, produced films, and built theme parks that inspired us, brought us together, and showed us the very best of what American had to offer the world. Your decision to uncritically approve this film’s release rather than apologizing to those harmed by Disney’s actions is reprehensible. Your decision to put profit over principle, to not just ignore the CCP’s genocide and other atrocities but to aid and abet them, is an affront to American values.*
-
-*近一個世紀以來， 迪士尼講述故事， 製作電影， 建造主題公園 ，激發了我們的靈感， 把我們聚集在一起 ，向我們展示了美國人向世界提供的最好的東西。你們決定不加批判地批准這部電影的上映，而不是向那些受到迪士尼行為傷害的人道歉，這是應該受到譴責的。你們決定將利益淩駕於原則之上，不僅無視中共的種族滅絕和其他暴行，還幫助和教唆他們，這是對美國價值觀的侮辱。*
-
-*As you contemplate your next steps, I request your answers to the following questions:*
-
-*在你們考慮下一步行動時，我請你們回答以下問題：*
-
-1. *Does Disney agree that the Chinese Communist Party is responsible for imprisoning and torturing Uighurs and other Muslim ethnic minorities in Xinjiang?*
-
-
-*迪士尼是否同意中共要對新疆關押和折磨維吾爾族和其他穆斯林少數民族負責？*
-
-- *Why did Disney choose to film portions of Mulan in Xinjiang, despite the fact that the Chinese Communist Party was imprisoning and torturing Uighurs and others in Xinjiang at the same time?*
-
-
-*為什麼迪士尼選擇在新疆拍攝《木蘭》的部分內容，儘管中共同時在新疆關押和折磨維吾爾族和其他少數民族？*
-
-- *What assistance did Disney receive from the Turpan Public Security Bureau and other Chinese government agencies involved in the atrocities in Xinjiang?*
-
-
-*迪士尼從參與新疆暴行的吐魯番公安局和其他中國政府機構得到了什麼幫助？*
-
-- *How did Disney compensate the Turpan Public Security Bureau and other Chinese agencies for any assistance rendered? Is Disney still providing compensation to the Chinese entities listed in the Mulan closing credits, and does it plan to provide compensation to these entities in the future?*
-
-
-*迪士尼如何對吐魯番公安局和其他中國機構提供的任何援助進行補償？迪士尼是否還在向《木蘭》結尾字幕中所列的中國實體提供報酬，未來是否計畫向這些實體提供報酬？*
-
-- *Has Disney coordinated, collaborated, or otherwise engaged with any of the Chinese actors that have been designated for sanctions by the Treasury Department on account of their contributions to the atrocities in Xinjiang?*
-
-
-*迪士尼是否與任何因對新疆暴行有貢獻而被財政部指定為制裁對象的中國肇事者進行協調、合作或其他接觸？*
-
-- *Does Disney condemn the atrocities committed by the Chinese Communist Party against Uighurs and other Muslim ethnic minorities in Xinjiang?*
-
-
-*迪士尼是否譴責中共在新疆對維吾爾族和其他穆斯林少數民族犯下的暴行？*
-
-- *Will Disney sever its relationships with the Chinese Communist Party in response to the Party’s abuses in Xinjiang, Hong Kong, and elsewhere?*
-
-
-*迪士尼會不會針對中共在新疆、香港等地的暴行而斷絕與中共的關係？*
-
-- *Will Disney pull Mulan from Disney+ in order to avoid any further glorification of Xinjiang or validation of the Chinese Communist Party officials and agencies responsible for the atrocities in that province?*
-
-
-*迪士尼是否會將《花木蘭》從**“**迪士尼**+”**中撤下，以避免進一步美化新疆或認可中共官員和機構要對在該省所做暴行負責？*
-
-- *Will Disney donate any of the profits drawn from Mulan to non-governmental organizations dedicated to fighting human trafficking and the other atrocities underway in Xinjiang?*
-
-
-*迪士尼是否會將《花木蘭》的利潤捐給致力於打擊新疆人口販賣和其他暴行的非政府組織？*
-
-*Please deliver your responses to these questions to my office by September 30, 2020. Thank you for your attention to this urgent matter.*
-
-*請於2020年9月30日前答復上述問題並送至我辦公室。謝謝您關注此緊急事件*。
-
-*Sincerely,*
-
-*真誠的，*
-
-*Josh Hawley*
-
-*喬希·霍利*
-
-*United States Senator*
-
-*美國參議員*
-
-翻譯：【Naomi】校對：【重生】圖片：【Michelle】編輯：【JoyJoy】
-
-戰友之家玫瑰園小隊出品
-
-相關新聞：
-
-> [中共在新疆不僅在肉體上消滅活著的人 更在制造一場種族滅絕的大屠殺!](https://gnews.org/zh-hant/290811/)
+http://blog.sina.cn/dpool/blog/s/blog\_544838700102w22p.html
 
 0

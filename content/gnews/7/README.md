@@ -1,49 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國村民：為了保護大城市，共產黨讓我們氾濫成災
-`2020-09-10 16:51 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/346533/)
+## 9月10日財經快訊: 緝毒科調查經濟案, 斷供潮華為喪鐘響
+`2020-09-10 19:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/346706/)
 
-*新聞來源：《布雷特巴特》 (Breitbart) ；作者：約翰·海沃德(JOHN HAYWARD）；發佈時間：2020年9月4日上午*
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10193851/Picture1-7.png)圖片來源： [https://image.cnbcfm.com](https://image.cnbcfm.com/api/v1/image/105593671-1543284635381gettyimages-1072476308.jpg?v=1543284705&amp;w=740&amp;h=416) 
+[1，一家被《紐約時報》（New York Times）稱為美國人“信息收集庫”的軟件公司與中共海信科技公司合作。海信科技董事會成員包含與華為公司和中共軍方合作的人員。 《國家脈動》揭示，數以百萬計的美國房屋公司與中共科技公司共享數據。](https://thenationalpulse.com/exclusive/alphonso-ccp-spyware/)
 
-*翻譯/簡評：仙女兒-文善；校對：Beicy-數學老師；審核：*海闊天空*；Page：草根文人*
+[2，德國新印太戰略結束了與中國的蜜月期，將集中精力與與該地區的民主國家（如日本和韓國）建立更牢固的伙伴關係，以促進法治。](https://asia.nikkei.com/Politics/International-relations/Germany-ends-China-honeymoon-with-new-Indo-Pacific-strategy)
 
-簡評：
+[3,華為禁令令日本，韓國和台灣面臨260億美元的風險。美國對華為技術公司的新制裁將於週二生效，這可能會削弱該公司的生產，這家公司在日本，台灣和韓國的供應商每年依賴的零部件銷售額達數百億美元。](https://www.cnbc.com/2020/09/08/disney-thanked-groups-linked-to-china-detention-camps-in-mulan-credits.html?amp_js_v=0.1&amp;usqp=mq331AQFKAGwASA=&amp;recirc=taboolainternal)
 
-獨裁中共國，人命如草芥，多難不興邦，魔鬼商鞅策。
+[4, 《2020年1-6月中國遊戲產業報告》顯示，2020年1-6月，國內游戲市場營銷收入1394.93億元，同比增長22.34%。中國青年報社社會調查中心通過問卷網，對1017名受訪者進行的一項調查顯示，77.2%的受訪者今年玩電子遊戲的頻率增加了，65.5%的受訪者每天玩遊戲超過2小時。](http://finance.people.com.cn/n1/2020/0910/c1004-31856313.html)
 
-在過去的幾個月裡，中共國長江流域的居民飽受洪澇之苦，特別是四川、安徽以及兩湖地區災情尤為嚴重，百姓苦不堪言。令人憤恨的是苦難的降臨並非天災，而是赤裸裸的人禍。中共國官員不顧百姓的生命及財產安全，卻按其經濟或政治鬥爭需要，毫無預警地控制蓄洪與洩洪，視百姓生命為螻蟻。
+[5，騰訊發布了一份報告，預計今年上海電競產業收入可達36. 3億元。報告顯示，在“新基建”浪潮的引領下，雲計算作為新基建的底座，2019年全國用雲量總體達1012點，實現了118%的高速增長。](https://huacheng.gz-cmc.com/pages/2020/09/10/678b96a71695427d8a93e6dbdd4719ea.html)
 
-在中共國，所有的事實都被曲解，所有的真相都被掩蓋，所有的人禍都變成天災，所有的瀆職都變成功績，所有的劣幣在驅逐良幣……然而大自然的規律是物極必反。以史鑒今，所有的暴政統治最終都無法逃脫它自隕的宿命， 中共國盜國賊的種種倒行逆施，就是其帶著邪惡體制奔向滅亡的加速器。正可謂自作孽不可活，“滅六國者，六國也，非秦也; 族秦者，秦也，非天下也” ，而亡中共者，必CCP也。
+[6，壹傳媒股價大幅波動，港警毒品調查科以壹傳媒股價波動為由濫捕15人](https://news.sina.cn/gn/2020-09-10/detail-iivhuipp3558956.d.html?from=wap)
 
-##  **中國村民:為了保護大城市，共產黨讓我們氾濫成災** 
+[7，數家公開上市的中國公司披露了過去幾週意外股票銷售事件。](https://www.cnbc.com/2020/09/09/more-chinese-companies-blaming-trading-typos-for-insider-stock-sales.html)
 
-[!\[\](https://spark.adobe.com/page/r5bGQwaOHvDqL/images/52600a57-033d-4a9d-b09a-1ea8ebf51b2d.jpg?asset_id=26d04475-e1cb-43e5-9c2e-b7d0a9b1115d&amp;img_etag=%2278a9a5f2d1595f99b7daa87827df01a0%22&amp;size=2560)](https://spark.adobe.com/page/r5bGQwaOHvDqL/images/52600a57-033d-4a9d-b09a-1ea8ebf51b2d.jpg?asset_id=26d04475-e1cb-43e5-9c2e-b7d0a9b1115d&amp;img_etag=%2278a9a5f2d1595f99b7daa87827df01a0%22&amp;size=1024)圖片來源：STR/AFP選自蓋蒂圖片社
-
-根據《大紀元時報》週四發布的報告，生活在安徽省廬江縣的村民控訴政府不惜故意淹沒其家園，來保護大城市和保全具有經濟價值的製造業資產免受破壞。
-
-中共國官員於週五估計，今年的暴雨與洪水氾濫已經造成將近7000萬災民，直接經濟損失至少達到290億美元。
-
-反共的《大紀元時報》採訪了安徽省廬江縣農村的一些悲憤的居民，他們認為當局故意破壞了當地的堤圍，才致使堤圍在大雨的壓力下坍塌，進而導致洪水淹沒了他們的家園。
-
-由於洪水侵襲，廬江已經被整整隔斷了40 天，幾乎失去了任何的供應。洪水已經迫使數以千計的村民流離失所，無家可歸。政府官員只是做出了一個含糊的承諾，稱會幫助村民排幹洪水，卻對具體實施時間隻字未提，因此村民只能被迫尋求出租屋。一位姓陳的男子說，這場洪水已經讓他失去了家園和所有商業財產，而這個受災的四口之家從政府獲得的唯一援助只是“一袋大米和一瓶食用油”。
-
-[!\[\](https://spark.adobe.com/page/r5bGQwaOHvDqL/images/613eed58-3b5b-4e4e-9d05-596cb5090f98.png?asset_id=3ea04de0-e11b-4ea3-8484-d4a777990c1e&amp;img_etag=%22a7217ec83f1ef9f266b6c53cb6292c70%22&amp;size=2560)](https://spark.adobe.com/page/r5bGQwaOHvDqL/images/613eed58-3b5b-4e4e-9d05-596cb5090f98.png?asset_id=3ea04de0-e11b-4ea3-8484-d4a777990c1e&amp;img_etag=%22a7217ec83f1ef9f266b6c53cb6292c70%22&amp;size=1024)
-
-他說，“我把大半生的積蓄都花在了店鋪上，我還有債務和貸款要還……我們老百姓真的太難了。”
-
-陳（村民）說，當局在堤圍莫名坍塌前一晚命令石大圩村的居民撤離，這引起當地人的懷疑。人們懷疑堤圍是被中共官員故意破壞，他們為了避免洪水吞噬其他更有經濟價值的資產，而讓洪水洪水吞噬了整個村莊，摧毀了16,000英畝的良田。
-
-陳（村民）在談到堤圍的坍塌和洪水背後的真正經過時說：“這是另人無法接受的。”
-
-“為什麼政府不承認洩洪，卻只提堤圍坍塌？ 為什麼？ 我們付出瞭如此巨大的犧牲，難道我們不應該討一個說法嗎？” 他問道。
-
-中共國官員承認故意破壞了許多水壩，其中包括一些安徽省的水壩。採取這些極端措施的目的是為了避免大規模的災難，並保護長江流域包括大型三峽大壩在內的最具價值的資產。許多地區的居民抱怨說，中共官方不惜犧牲居民的利益以減輕三峽大壩的壓力，官方的蓄意洩洪直接導致村民的家園和企業被摧毀，良田被吞噬。
-
-受災嚴重的湖南省官員於週五承諾，他們將在今年年底前完成重建工作，並在2021年2月中旬之前為失去房屋的居民提供新的住所。而目前，華東地區仍在遭受大量洪災的侵襲，這不禁使其兌現承諾的可能性受到質疑。
-
-[原文鏈接](https://www.breitbart.com/national-security/2020/09/04/chinese-villagers-communist-party-flooded-us-protect-big-cities/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/r5bGQwaOHvDqL/)
+By：【秘翻組-金融法律組】
 
 0

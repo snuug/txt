@@ -1,24 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月10日財經快訊: 緝毒科調查經濟案, 斷供潮華為喪鐘響
-`2020-09-10 19:44 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/346706/)
+## 全球音樂綜合排行榜第一 ——爆料革命「流行樂新人」郭文貴第一首單曲《Take down the CCP》
+`2020-09-10 23:39 GM62` [轉載自GNews](https://gnews.org/zh-hant/347083/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10193851/Picture1-7.png)圖片來源： [https://image.cnbcfm.com](https://image.cnbcfm.com/api/v1/image/105593671-1543284635381gettyimages-1072476308.jpg?v=1543284705&amp;w=740&amp;h=416) 
-[1，一家被《紐約時報》（New York Times）稱為美國人“信息收集庫”的軟件公司與中共海信科技公司合作。海信科技董事會成員包含與華為公司和中共軍方合作的人員。 《國家脈動》揭示，數以百萬計的美國房屋公司與中共科技公司共享數據。](https://thenationalpulse.com/exclusive/alphonso-ccp-spyware/)
+編輯記者:川渝小哥G。 校對編輯:文劍
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233506/%E5%9B%BE%E4%B8%80-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233531/%E5%9B%BE%E4%BA%8C-1.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233556/%E5%9B%BE%E4%B8%89.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233621/%E5%9B%BE%E5%9B%9B.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/10233644/%E5%9B%BE%E4%BA%94.jpg)
+美東時間9月10號,爆料革命贊助者郭文貴先生第一首單曲《Take down the CCP》登頂美國iTunes即時下載榜榜首,郭文貴先生也成為了全球排名第一的流行樂歌手。
 
-[2，德國新印太戰略結束了與中國的蜜月期，將集中精力與與該地區的民主國家（如日本和韓國）建立更牢固的伙伴關係，以促進法治。](https://asia.nikkei.com/Politics/International-relations/Germany-ends-China-honeymoon-with-new-Indo-Pacific-strategy)
+這是華人歌手首次進入該榜單的前十名,首次佔據iTunes榜首。《Take down the CCP》由爆料革命唐平女士、威廉王先生等戰友原創改編,採用了輕鬆歡快的曲調,簡潔明瞭的中英文結合歌詞,在中共製造的CCP病毒全球蔓延的背景下,宣導全球正義力量滅共。
 
-[3,華為禁令令日本，韓國和台灣面臨260億美元的風險。美國對華為技術公司的新制裁將於週二生效，這可能會削弱該公司的生產，這家公司在日本，台灣和韓國的供應商每年依賴的零部件銷售額達數百億美元。](https://www.cnbc.com/2020/09/08/disney-thanked-groups-linked-to-china-detention-camps-in-mulan-credits.html?amp_js_v=0.1&amp;usqp=mq331AQFKAGwASA=&amp;recirc=taboolainternal)
+作為一個曾經被中共深度迫害的中國人,郭文貴先生的歌聲充滿了普通歌手甚至音樂巨星所不具備的力量,那是一種被中共邪惡力量逼到絕境后爆發出來的洪荒之力。
 
-[4, 《2020年1-6月中國遊戲產業報告》顯示，2020年1-6月，國內游戲市場營銷收入1394.93億元，同比增長22.34%。中國青年報社社會調查中心通過問卷網，對1017名受訪者進行的一項調查顯示，77.2%的受訪者今年玩電子遊戲的頻率增加了，65.5%的受訪者每天玩遊戲超過2小時。](http://finance.people.com.cn/n1/2020/0910/c1004-31856313.html)
-
-[5，騰訊發布了一份報告，預計今年上海電競產業收入可達36. 3億元。報告顯示，在“新基建”浪潮的引領下，雲計算作為新基建的底座，2019年全國用雲量總體達1012點，實現了118%的高速增長。](https://huacheng.gz-cmc.com/pages/2020/09/10/678b96a71695427d8a93e6dbdd4719ea.html)
-
-[6，壹傳媒股價大幅波動，港警毒品調查科以壹傳媒股價波動為由濫捕15人](https://news.sina.cn/gn/2020-09-10/detail-iivhuipp3558956.d.html?from=wap)
-
-[7，數家公開上市的中國公司披露了過去幾週意外股票銷售事件。](https://www.cnbc.com/2020/09/09/more-chinese-companies-blaming-trading-typos-for-insider-stock-sales.html)
-
-By：【秘翻組-金融法律組】
+《Take down the CCP》受到了全世界人民的追棒,人們競相下載並相互傳唱,歌曲遍佈大街小巷。 歌曲的出現引發了中共的巨大恐慌,公安部迅速成立了音樂監管部門以監視牆內民眾動向。中共深知自己非民選政府,該歌曲代表了全世界人民的民意,爆料革命和新中國聯邦的每一次投票,將成為壓垮它的最後一根稻草。
 
 0
