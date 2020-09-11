@@ -1,57 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 親共商業集團收到了來自納稅人價值2500萬英鎊的補助金
-`2020-09-11 11:53 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/348741/)
+## 賀新中國聯邦成立100天
+`2020-09-11 13:04 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/348808/)
 
-*新聞來源：THE SUNDAY TIMES《星期日泰晤士報》；作者：Ross Kempsell；發佈時間：2020年8月27日*
+***《Take Down the CCP》位居多國榜首，滅共民意如奔騰大海***
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11121811/1599841037354.jpg)圖片來自：秘密翻譯組
+《Take down the CCP》在全球音樂排行榜急劇飆升，在多國名列下載榜首。而且位居榜首的國家名單還在繼續拉長中：美國、台灣、香港、新加坡、新西蘭、澳門、阿聯酋、加拿大、匈牙利、澳大利亞等。這不僅是郭先生創造了音樂歷史的奇蹟，這更是代表了全球的民意。各個音樂APP都在下載：Amazon，Spotify, YouTube , ITUNEs、Apple Music等。各大媒體都在推薦：War Room、國家脈動（National Pulse）、Followcn等各類專業或綜合媒體。中共試圖像以前一樣收買歌手、威脅音樂製作公司或集結網軍黑癱ITUNEs的做法已經來不及了，因為滅共音樂像閃電一樣光速壯大。
 
-*翻譯/簡評：Linda Black；校對/審核：InAHurry；Page：拱卒*
+不朽的藝術作品來自向黑暗集權抗爭的歷史時代。 《Do You Hear the People Sing》是[法國](https://zh.wikipedia.org/wiki/%E6%B3%95%E5%9C%8B)大文豪[雨果](https://zh.wikipedia.org/wiki/%E9%9B%A8%E6%9E%9C)小說《 [悲慘世界](https://zh.wikipedia.org/wiki/%E6%82%B2%E6%83%A8%E4%B8%96%E7%95%8C) 》的同名改編[音樂劇](https://zh.wikipedia.org/wiki/%E9%9F%B3%E6%A8%82%E5%8A%87)中的一首著名[歌曲](https://zh.wikipedia.org/wiki/%E6%AD%8C%E6%9B%B2) 。樂曲背景誕生於從[拿破崙戰爭](https://zh.wikipedia.org/wiki/%E6%8B%BF%E7%A0%B4%E5%B4%99%E6%88%B0%E7%88%AD) 、 [波旁王室復辟](https://zh.wikipedia.org/wiki/%E6%B3%A2%E6%97%81%E5%A4%8D%E8%BE%9F) 、 [七月革命](https://zh.wikipedia.org/wiki/%E4%B8%83%E6%9C%88%E9%9D%A9%E5%91%BD)到1832年法國爆發的意圖推翻法國[七月王朝](https://zh.wikipedia.org/wiki/%E4%B8%83%E6%9C%88%E7%8E%8B%E6%9C%9D)的[六月起義](https://zh.wikipedia.org/wiki/%E5%85%AD%E6%9C%88%E8%B5%B7%E4%B9%89) ，曲風激昂悲壯，被視為反[極權](https://zh.wikipedia.org/wiki/%E6%A5%B5%E6%AC%8A)統治的[革命](https://zh.wikipedia.org/wiki/%E9%9D%A9%E5%91%BD)代表歌曲之一。
 
-**簡評：**
+香港的反送中運動誕生了《 [願榮光歸香港](https://zh.wikipedia.org/wiki/%E9%A1%98%E6%A6%AE%E5%85%89%E6%AD%B8%E9%A6%99%E6%B8%AF) 》。 [香港人](https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E4%BA%BA)為了[公義](https://zh.wikipedia.org/wiki/%E5%85%AC%E7%9C%BE%E5%88%A9%E7%9B%8A)而拒絕沉默，選擇不再退縮走上街頭,唱著歌走向抗爭的行列，用鮮血和生命進行一年多的持續抗爭，向世界證明了中共的殘暴和血腥。
 
-中共多年來在西方的滲透進入了商業，科技，學術和政府等各個方面。英國的一個私人公司英中貿易委員（CBBC）會拿著政府的補貼，卻替華為來游說政府部長們，企圖改變對華為的禁令。中共多年來在英國的投資，似乎是為促進了英國的經濟發展，但是它實際是對自由民主制度國家的一種經濟和信息的侵略。想像一下，如果中共獨裁政府掌控了5G網絡和能源市場（比如在英國建核電站），英國的國家安全將面臨危險。英國站在美國一邊，無疑是正確的選擇，但各種遊說的力量也存在。
+《Take down the CCP》代表了全球民意，達到了各國政府外交縱橫遊說達不到的偉大成就。歌聲聯合了民間的力量，人民不再害怕，人們找到了受摧殘折磨的根源，即中共病毒的肆虐。歌聲吹響了滅共號角，全球滅共民意如燃燒的火焰，瞬間吞噬中共；也如奔騰的大海，隨時淹沒中共。
 
-[!\[\](https://spark.adobe.com/page/625bOSDlY04xU/images/71a9cf23-b345-4c37-b437-5ef63e36ec77.jpg?asset_id=ab6993e3-5ab4-4462-a880-bf38cc4da855&amp;img_etag=%2243e9a2f2508b0f082aec28bb167a906d%22&amp;size=2560)](https://spark.adobe.com/page/625bOSDlY04xU/images/71a9cf23-b345-4c37-b437-5ef63e36ec77.jpg?asset_id=ab6993e3-5ab4-4462-a880-bf38cc4da855&amp;img_etag=%2243e9a2f2508b0f082aec28bb167a906d%22&amp;size=1024)
+我們現在站在今天看歷史，歷史就是這樣的巧合。今天是我們新中國聯邦成立100天，今天也是911事件19週年紀念日，別忘了，1941年的今天也是第二次世界大戰中**， [美國海軍](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9B%BD%E6%B5%B7%E5%86%9B)受命可以攻擊納粹德國[潛艇](https://zh.wikipedia.org/wiki/%E6%BD%9C%E8%89%87)的一天。**
 
-###  **親共商業集團收到了來自納稅人價值2500萬英鎊的補助金** 
+## 共產黨，你完了！ 
 
-[!\[\](https://spark.adobe.com/page/625bOSDlY04xU/images/56b24427-459c-40e2-bcb5-39e7f45cae52.jpg?asset_id=76b7a54a-663f-49a7-b57d-a2de6c2433f0&amp;img_etag=%22726f793b19148c427b7a355e12b903d1%22&amp;size=2560)](https://spark.adobe.com/page/625bOSDlY04xU/images/56b24427-459c-40e2-bcb5-39e7f45cae52.jpg?asset_id=76b7a54a-663f-49a7-b57d-a2de6c2433f0&amp;img_etag=%22726f793b19148c427b7a355e12b903d1%22&amp;size=1024)公司對禁止華為進入5G網絡的決定表示“失望”
+**【本文只代表作者個人觀點】**
 
-在過去十年中，這個對鮑里斯·約翰遜（Boris Johnson）禁止華為參與英國5G網絡的決定提出批評的商業組織囊獲了近2500萬英鎊的納稅人。
+撰稿：Skagen【秘翻Gnews原創組】
 
-英中貿易委員會（CBBC）是一家私人公司，由國際貿易部（DIT）為其提供部分資金。
+校對：心聲
 
-保守黨議員對這筆資金表示了關注，而一位前部長更是呼籲撤回這筆資金。
+歌曲鏈接：
 
-在政府於7月宣布對5G採取行動之後，英中貿易委員會（CBBC）表示：“ [我们]對禁止華為的決定感到失望。這意味著英國家庭和企業將無法從華為領先市場的、有競爭力的產品中受益。英中貿易委員會（CBBC）相信，這一決定主要是出於對美國強硬的貿易政策的回應。”
+1． 《Take down the CCP》
 
-[!\[\](https://spark.adobe.com/page/625bOSDlY04xU/images/81c66fc8-2b08-4f06-86d1-29bba185e5af.png?asset_id=522b278c-e8d9-4c52-8bb5-7d86b43cc8d4&amp;img_etag=%22ada8319a6303cbc5377f0a99e93b7d0f%22&amp;size=2560)](https://spark.adobe.com/page/625bOSDlY04xU/images/81c66fc8-2b08-4f06-86d1-29bba185e5af.png?asset_id=522b278c-e8d9-4c52-8bb5-7d86b43cc8d4&amp;img_etag=%22ada8319a6303cbc5377f0a99e93b7d0f%22&amp;size=1024)
+Apple： 
+ [https://music.apple.com/album/take-down-the-ccp/1530859183](https://music.apple.com/album/take-down-the-ccp/1530859183) 
+ Spotify 
+ [https://open.spotify.com/album/1Gtc991QnEqKpHe9yubi2t](https://open.spotify.com/album/1Gtc991QnEqKpHe9yubi2t)
 
-《星期日泰晤士報》還報導了英中貿易委員會（CBBC）曾邀請金融時報證券交易所100指數（也稱為FTSE 100指數）公司去向部長們遊說英國與北京關係惡化的風險。英中貿易委員會（CBBC）首席執行官馬修·羅斯（Matthew Rous）這樣告訴《泰晤士報》：“我們與國際貿易部（DIT）及其前身有著悠久的歷史淵源。實際上，我們就是在舊的國際貿易部（DIT）的建議下成立的。多年來，（我們）一直都收到了不同金額的援助的補助金-這是人盡皆知的。在2017年，應國際貿易部（DIT）的要求，我們與其簽訂了合同。 所有的信息都在我們的財務報表中有披露。
+2． 《Do you hear the people sing》 [https://www.youtube.com/watch?v=1q82twrdr0U](https://www.youtube.com/watch?v=1q82twrdr0U)
 
-那些補助金並不是免費的禮物，而是用於提供服務的。我們一直在為中共國提供了海外商業網絡服務。我們在增進出口上取得了大量的成績，在簽訂合同後的三年的期間，我們促成了價值約23.5億英鎊的出口。這項記錄經得起審查，國際貿易部（DIT）對我們的補助是物有所值的投資。 ”
-
-該公司將繼續為中英商業關係牽線搭橋，羅斯（Rous）他說，英中貿易委員會（CBBC）對英國關於華為的決定表示“失望”，但沒有提出“特別的批評”。儘管委員會成員會與政府進行定期的對話，但遊說部長並不是他們“作為執行團隊所做的事情”。
-
-[!\[\](https://spark.adobe.com/page/625bOSDlY04xU/images/a6c664de-0e60-4173-82f4-5753b3f07c1a.jpg?asset_id=649b0d4e-9f46-4117-a59d-90d3de999957&amp;img_etag=%2210b36848d166f38ae9b732661423ecbe%22&amp;size=2560)](https://spark.adobe.com/page/625bOSDlY04xU/images/a6c664de-0e60-4173-82f4-5753b3f07c1a.jpg?asset_id=649b0d4e-9f46-4117-a59d-90d3de999957&amp;img_etag=%2210b36848d166f38ae9b732661423ecbe%22&amp;size=1024)
-
-前保守黨領袖伊恩·鄧肯·史密斯（Iain Duncan Smith）呼籲撤回給予英中貿易委員會（CBBC）的這部分公共資金。他說：“像這樣的機構，如果這是某些公司想要做的，他們完全有自由設立這樣的委員會但需自行負擔所有費用。”
-
-“但錯誤的是，這樣的機構似乎在代表北京的利益遊說（英國政府）。[现在]是時候結束對它的補貼了。如果您希望有一個提供此類服務的組織，那麼私營部門應在不花納稅人錢的前提下設立類似的組織。”
-
-下議院外交事務委員會主席，保守黨議員中國研究小組的創始人湯姆·圖根哈特（Tom Tugendhat）表示：“英國與中國的貿易關係至關重要。英中貿易委員會（CBBC）應該被用來促進英國企業的成功和保護英國的利益。如果英中貿易委員會（CBBC）利用其資金來促進支撐這種價值觀，而不是捍衛像華為這樣的公司，那就更好了。”
-
-根據政府透明度數據，自2011年4月以來，支付給英中貿易委員會（CBBC）的總金額為2470萬英鎊。最近一次付款是在2020年4月，金額為380,367.77英鎊。
-
-國際貿易部（DIT）發言人說：“我們與英中貿易委員會（CBBC）及其他合作夥伴合作，為希望在中共國開設，重啟或擴大對華出口的英國企業提供支持服務。
-
-“我們的採購和合同管理流程符合我們提供平等待遇的法律義務，並且是非歧視性的。我們國際貿易部（DIT）和英中貿易委員會（CBBC）的關係與政府根據安全建議作出的關於華為的決定是完全分開的。
-
-“對於中共國在英國內的投資，我們是一個公平開放的市場，中共國在英國的投資為英國的增長和就業提供了支持。 但它必須遵守我們的價值觀和國家安全的要求。”
-
-[原文鏈接](https://www.thetimes.co.uk/article/pro-china-group-has-banked-25m-of-taxpayers-cash-3xhxxnjml)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/625bOSDlY04xU/)
+3． 《 [願榮光歸香港](https://zh.wikipedia.org/wiki/%E9%A1%98%E6%A6%AE%E5%85%89%E6%AD%B8%E9%A6%99%E6%B8%AF) 》https://www.youtube.com/watch?v=oUIDL4SB60g
 
 0

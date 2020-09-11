@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文革縮影重現內蒙古
-`2020-09-11 07:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/347998/)
+## 閆博士:短期內生產的疫苗副作用大,會對人體造成二次傷害（法語French+英語English）
+`2020-09-11 11:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/348507/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11065620/1-63.png)圖片來源：AFD 
-美國智庫機構—國家安全政策中心（CENTER FOR SECURITY POLICY）的楊海英（Yang Haiying）報導了內蒙古自治區正面臨著來自中共的危機，中共企圖消滅蒙古族的歷史和文化。
+法文標題 Dr YAN : les effets secondaires des vaccins développés dans la précipitation sont inquiétants, ça risquerait d’affecter le corps humais pour une deuxième fois
 
-中共惡行：
+英文校對： tiger64,  Magician文心 法文翻譯： Cathy-FR&EN 法文校對： Cnquledebut 字幕：小羽 視頻校對：道一
 
-今年六月份中共公佈了一項新政策，該政策要求從今年秋季開始，蒙古族學校語言從蒙古語改為普通話，雖然蒙古語教學班仍然保留，但其他所有課程都將採用普通話教學。中共還強迫蒙古人撒謊，讓蒙古人稱普通話為母語。中共的這項政策其實早有預謀。中共將普通話“我們是中國人” 的字樣印在幾十萬冊新的蒙古語課本中第一節課的位置。除此之外，不僅蒙古族的民間故事和民歌消失，就連“蒙古“ 二字也消失了。蒙古族人對中共此舉感到憤怒，於是抵制學校課程，反對中共決策的簽名運動在蒙古族迅速蔓延開來。
+概要
 
-蒙古外援：
+Alors que le monde entier se précipite sur le développement du vaccin contre la Covid-19 et sa mise en place, une question se pose sur la sécurité de ces vaccins développés sans avoir suivi strictement le protocole scientifique.
 
-楊海英開闢專門網頁講述此事，並吸引了大量的支持者，支持者中的一半人來自蒙古國。這說明雖然蒙古地區被雅爾塔協議分為兩地，但是大家普遍承認自己是成吉思汗的後裔，大家有著共同的情感和歷史。現在蒙古國的同胞知道了內蒙古同胞正受到中共的打壓，決定主動支援內蒙古的同胞。
+Les expériences du passé lors de SRAS en 2003 et les résultats d’essai de certains nouveaux vaccins contre la Covid-19 sonnent déjà l’alarme sur les risques.
 
-二戰前內蒙古自治區三分之二的地區就曾受到日本的影響，楊海英希望日本也能夠伸出援手支持蒙古人。
+Pourquoi le PCC veut à tout prix pousser son vaccin au monde en dépit des risques encourus ?
 
-簡評：中共在內蒙古的惡行，可以算是文化大革命的翻版，意圖從語言歷史音樂等最基礎的方面來扼殺一個擁有自己獨特文化的民族。中共在文化大革命中毀掉多少燦爛的文化遺跡和遺產，因為它們害怕歷史、害怕真相、害怕信仰，它們只能讓你相信共產黨，所謂爹親娘親不如黨親，一切都是黨給的，一切也都是屬於黨的。
 
-而郭先生目前提出的以音樂滅共的文化運動，正是對中共新文革的反擊，我們通過改編紅歌對被洗腦的人們進行反洗腦。這正是以其人之道，還治其人之身。
-
-[原文鏈接](https://www.centerforsecuritypolicy.org/2020/09/10/chinese-ethnic-cleansing-in-inner-mongolia/)
-
-翻譯報導： Chris
 
 0
