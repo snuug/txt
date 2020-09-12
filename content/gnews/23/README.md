@@ -1,36 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被中共病毒奪取生命的英國家屬公開質疑：中共可能掩蓋疫情我們需要挖掘真相
-`2020-09-11 19:16 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/348967/)
+## 【快訊】英雄科學家閆麗夢博士在英國主流媒體發聲，引發民眾熱烈討論
+`2020-09-11 22:07 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/349369/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11131035/1599842480437.jpg)圖片來自：ca.glbnews.com 
-英國收視份額排第二的獨立電視台（ITV）於倫敦時間9月10日播放了一個訪談節目，節目中記者採訪了來自肯特郡（Kent）的簡•巴克蘭（Jane Buckland）—– -其父親因為患上中共病毒而失去生命。此報導簡旗幟鮮明的表示人們的無辜喪生是由於中共政府掩蓋疫情真相。簡的父親，阿特伍德先生的逝世將英國第一個中共病毒死亡病例的死亡時間提前了35天，並成為中國以外發現的首個死亡病例。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215456/20200911_Loose_Women-photo.png)
+英國時間9月11日英雄科學家閆麗夢博士作為揭露中共政府製造COVID-19全球疫情大流行的吹哨人，接受英國著名脫口秀節目《Loose Women》採訪，本次採訪是英國主流媒體第一次正面報道閆博士，並向英國民眾揭露真相。節目立刻引發了推特上有關閆博士和中共病毒來源的討論，#LooseWomen和#COVID19被聯繫在了一起。
 
-簡的父親名叫彼得•阿特伍德（Peter Attwood），來自肯特郡查塔姆。據介紹，他在去年聖誕節前不久因咳嗽和發燒生病，並於今年1月30日在醫院逝世，享年84歲，最初死因歸咎於心力衰竭和肺炎。然而，驗屍官現在已經證實阿特伍德先生肺部組織檢出中共病毒，死因也被重新列為中共病毒。記者稱，此前英國首例中共病毒死亡病例被認為發生在3月5日。
+以下是一些推特評論的分類總結（和推文翻譯）。
 
-由此可見，首個死亡病例的發生時間提前了35天，成為中國以外發現的首個死亡病例。距離武漢首個死亡病例發生的時間僅19天。這使得阿特伍德先生家人承受痛苦的同時，充滿質疑和擔憂。
+**對閆博士的採訪引起了推特網友的好奇**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215319/20200911_Loose_Womenfigure1.png)
+【翻譯】**@palouze\_:** 剛才有人在#LooseWomen上聽到過冠狀病毒「吹哨人」嗎？這名女士目前正在隱藏中。她逃離了中國。她將在接下來的幾天內發佈信息，並說這種病毒是實驗室里起源的，儘管世界衛生組織表示沒有證據。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215330/20200911_Loose_Womenfigure2.png)
+【翻譯】**Teresa McGowan:** 為什麼如此驚天的新聞是Loose Women爆出的，而不是天空新聞或BBC新聞？？？？
 
-簡對記者說：雖然她確信中共病毒是罪魁禍首，但當驗屍官確認這一點時，她還是感到震驚。 （以下摘自簡的部分與記者的對話）
+**Teresa McGowan:** 這是否意味著如果Covid是人造的，那麼在同一實驗室一定有解藥？？？？
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215340/20200911_Loose_Womenfigure3.png)
+【翻譯】**Samantha Wragg:** 為什麼#LooseWomen採訪到了冠狀病毒的吹哨人，但她沒有登上什麼新聞報道？如果病毒是被製造出來的，難道這件事情不大嗎？
 
-“我最初感到震驚，但另一個我的並不震驚。在我的內心深處，我已經知道了，我一直對朋友和家人說’我認為他有中共病毒’。但每個人都對我說’不，這不可能，因為中共病毒根本都不在英國。”
+**推特網友對閆博士的背景和經歷做的總結和介紹**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215351/20200911_Loose_Womenfigure4.png)
+【翻譯】**Karl Booton:** #LooseWomen對一位博士的進行了驚人的採訪，她發現了#COVID19，並堅持認為是武漢實驗室的人造病毒。她聲稱自己受到了中國政府的威脅，世衛組織並未接受到真實報告或選擇性地忽略它們。為了安全，她不得不逃離中國。她即將發表相關的研究和證據。
 
-現年46歲的簡進一步認為：“需要做更多的工作來確定是否在過去認為的中共病毒到達英國的時間點之前，就已經有人死於這種病毒。中共官員可能掩蓋了疫情。如果我們進一步挖掘，我們可能會發現其實有些人確實更早死於中共病毒。我想我們需要知道（中共病毒真相）。即使這不會改變現狀，但我認為家庭需要知道（真相），如果我們知道（真相） ，可能，我們就會避免此類失去親人的悲劇”。
+**Karl Booton:** 老實說，我並不是什麼陰謀論者、COVID否定論者、或反口罩人士，但她真的非常可信。她是一名醫生，並擁有博士學位，並且至少會說兩種語言，這就是為什麼她被選擇研究這種新病毒。很有意思。
 
-簡作為一個全職的照顧者，她也擔心感染中共病毒，畢竟她也遭受了發燒和乾咳等症狀。簡說，如果她早知道是中共病毒作祟，並鑑於她老父親患有潛在的心臟疾病，她會一直做好隔離。
+Ka**rl Booton:** 她不得不逃離中國，目前隱藏在美國。她將很快發表與其他人合作的研究成果，其中包含有力證據。她說，他們已經對該病毒進行了「基因組測序」，從而以某種方式證明該病毒是人為的？但是，我不是病毒學家。
 
-評：
+**閆博士的觀點得到了網友們的支持，網友們同時關心閆博士的安全**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215402/20200911_Loose_Womenfigure5.png)
+【翻譯】**Amy Louise:**一直知道它是人造的。媒體都是騙子。我們被他們編排了，為了讓我相信他們希望我們相信的。#LooseWomen
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215412/20200911_Loose_Womenfigure6.png)
+【翻譯】**K：**非常勇敢的女士。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215423/20200911_Loose_Womenfigure7.png)
+【翻譯】**DoLLyHeAd:**100％支持她。我想我們大多數人都知道C19是人造的。等不及想要在幾周內看到她的證據。希望她在此期間保持安全。
 
-這個訪談中的案例有兩點值得關注，一是這個中國以外的病例的發病時間和死亡時間都非常早，有沒有可能是因為故意投毒？這要檢測這個病例的病毒遺傳信息並分析它在整個中共病毒變異譜系中的位置來確定，但這需要中共的初代毒株才能做到結論準確。二是阿特伍德先生的接觸史，該報導沒有透露，也許是秘密情報。魔鬼就隱藏在這些線索的後面。 CCP Lie, People Die!
+**Karl Booton:**是的，我擔心她的安全。還好她在美國，而且美國非常大，會很難找到她（因為俄羅斯設法在英國找到了謝爾蓋·斯克里帕爾…）。我只是希望她安全，並且希望她的研究能夠盡快得以發表。
 
-這個訪談的重要意義還在於英國輿論也開始直面中共掩蓋疫情的現實並關注病毒來源問題。雖然比美國慢了很多步，但一切已經開始了，在病毒問題上歐美國家追責中共的步伐越來越近。這些離不開爆料革命文貴先生的巨大貢獻和各位戰友孜孜不倦的傳播。
+**MrsM:**在證據發佈之前，她可能會「消失」。希望她能把復本給其他一些值得信賴的人。
 
-另外，戰友們一定對巴克蘭女士被人質疑的遭遇感同身受，所以大家一定要堅持住，齊心協力用病毒真相這把鑰匙打開全世界自動滅共這扇大門！
+**當然也有網友並不相信，但在傳播學上來講，有討論就是好事**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11215433/20200911_Loose_Womenfigure8.png)
+【翻譯】**KittyCadabra:**「我有關於COVID的重要信息！舉報者應該去哪裡？
 
-原文： [https://www.itv.com/news/2020-09-09/daughter-of-early-uk-coronavirus-victim-says-people-have-died-unnecessarily-due-to-china-cover- up](https://www.itv.com/news/2020-09-09/daughter-of-early-uk-coronavirus-victim-says-people-have-died-unnecessarily-due-to-china-cover-up)
+世界衛生組？不行…….
 
-翻譯報導：匿名
+英國廣播公司？…… 太正式了
 
-校隊整理：瑞安平
+也許是《天空新聞》？
+
+等一下！我知道！ #LooseWomen！」
+
+好吧 …… 不，我才不信呢
+
+【編者按】請搜索#LooseWomen（[https://twitter.com/hashtag/loosewomen?src=hashtag\_click](https://twitter.com/hashtag/loosewomen?src=hashtag_click)）查看更多評論。請觀看 Loose Women 採訪視頻（[https://www.youtube.com/watch?v=7Lq3\_rsBJ9w](https://www.youtube.com/watch?v=7Lq3_rsBJ9w)）。也請戰友們再次領略英雄科學家的風采的同時多多支持、點贊、「行動，行動，行動」！
+
+撰文：【相機過熱啊】校對&編輯：【Michelle】
+
+戰友之家玫瑰園小隊出品
 
 0

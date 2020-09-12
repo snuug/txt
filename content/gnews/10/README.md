@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月9日國土安全部代理部長查德·沃爾夫發表2020年國土安全狀況
-`2020-09-11 22:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/349439/)
+## 閆博士:短期內生產的疫苗副作用大,會對人體造成二次傷害（葡萄牙語Portuguese+英文English）
+`2020-09-12 01:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/349689/)
 
-9月9日國土安全部代理部長查德·沃爾夫發表2020年國土安全狀況：中共國充分利用了該國的方方面面，包括其經濟，軍事和外交力量，表明了對西方自由民主的拒絕，並不斷強調其以獨裁形象。
+葡萄牙語標題 Dra Yan : As vacinas produzidas a curto prazo têm efeitos colaterais e podem causar danos secundários aos seres humanos
+
+翻译：福瑞德 校对：Allan，珍珠奶茶 视频：文件夹
 
 
-
-By：【秘密翻譯組G-Translators】
 
 0
