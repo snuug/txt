@@ -1,23 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Take Down The CCP当高呼灭共可以赚钱的时候！
-`2020-09-12 09:37 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/350419/)
+## 閆博士揭底,打假雲南礦洞病毒事件! （德語German+中文Chinese）
+`2020-09-12 13:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/350816/)
 
-作者：改兰
+德语标题：Dr. Yan enthüllt und bekämpft die gefälschte Theorie mit dem Minenhöhlenvirus in Yunnan!
 
-2020年9月10日,七哥的付費精美單曲Take Down The CCP用了70多個小時問鼎iTunes美國等國音樂排行榜榜首,創造了一個奇跡,很快3個大型應用公司,致電七哥尋求投資合作,預將會推出大量的精美的滅共單曲甚至專輯! 從G系列的成功私募,估值翻20倍,到G幣的火爆銷售,火到CCP運用行政手段阻礙銀行匯款,再到今天滅共歌曲榮登榜首,音樂公司接踵而至撒錢投資。 我們看到一個奇觀,高呼滅共可以賺錢了!
+德語翻譯：爱护女人和孩子 德語校對：MilaM(米拉猫)，平常心（文常心） 字幕： 文件夹
 
-我們都知道,在全世界,各路資本多少都與CCP有勾兌,蘋果自然不會例外,那今天輕易的的榜首意味著什麼呢? 美國資本砸錢進來滅共音樂意味著什麼呢? 川普總統上任后一直在你踐行自己的使命,讓美國再次偉大,當然美國指的是美國人而非那一小撮和CCP深度勾兌的精英群體,所以處處受資本大佬的阻礙困難重重,但是在背後的定海神針,班農大爺等人的支援下,依舊堅定前行。
+視頻簡介
+閆麗夢博士在路德訪談節目中談論「雲南礦洞病毒議題」,中共試圖藉此引導人們去相信一個原本在蝙蝠身上的病毒跳到人身上,再慢慢地在人體、人群當中流行。 她明確地提出許多質疑,她指出為什麼有人敢把4991特定基因嵌入到舟山蝙蝠病毒內的原因,及為什麼石正麗自始至終也不怕別人到她實驗室去搜查。 最後也解釋這種病毒自然來源假說的各種利益勾兌。
 
-在中美脫鉤這條路上,因為美國企業在CCP那裡,千絲萬縷的經濟聯繫和藍金黃的重重滲透,很多企業是左顧右盼,對馬上面臨大選的川普政府持有觀望態度,萬一無法連任,政策很可能無法持續實施。 首先,曾經CCP布下的全世界大外宣文,那力量不可謂不大,攪混水的能量不可謂不強,但是今天,中文世界、英文世界的很多人們,通過爆料革命,獲得了大量真相,看清了CCP的惡魔嘴 人臉,在危害全球的生化病毒被它擴散以後,這些人滅共的意願開始由漣漪形成浪潮,擁有了巨大的爆發能量和持續力,浩浩蕩蕩往上可以推新成「王」往下可以碾「王」成灰, 只看你是否成天意順民心,其中民意由此一役,可窺究竟!
-
-第二,在美國CCP藍金黃的力量,是巨大的,竟然阻止不了一首歌的發佈和躥紅,曾經和CCP深度勾兌的公司,看到了川普總統滅共的決心,雖然即將到來的大選讓政策的持續性受到考驗,但是由於民意的積累,背後正義力量的支援,美中脫鉤是箭在弦上,並且CCP自己已經做好了閉關鎖國的準備,誰還會渴望和朝鮮、伊朗一樣的國家做生意? 新中國聯邦如此生機煥發、正義、有信仰的群體難道不香? 更何況,七哥透露,彭培奧將參加2024年大選,”滅共三劍客”2024年必將入主白宮重要職位,將延續川普的滅共清毒政策,更加堅定了很多企業脫離勾兌的信心,逐漸堅守勾兌,逐漸和爆料革命走在一起!
-
-第三,CCP不等於中國不等於中國人的意識在七哥的領導下,幾年內傳遍全世界,傳遍海外華人圈,深入社會群體意識裡面,在美國這個社會竟然沒有人去拿民族主義吹風污衊,可見已經社會群體已經正式宣佈:CCP不等於中國人! 不等於中國! 第四,歌曲是一個良好的文化文明的傳播與溝通的媒介,深受全世界人喜愛,尤其是製作精良的歌曲,再加上最先進的文化思潮,不火都不行! 不賺錢都不行! 沒有殺傷力更不行!
-
-最後,我們可以看到當七哥的單曲可以爆火的時候,當高呼滅共可以賺錢的時候! 1,CCP大外宣的力量,徹底輸了! 2,CCP藍金黃的力量,徹底輸了! 3,CCP用14億人綁架世界,企圖代表14人的戰略,徹底輸了! 4,CCP從文化文明的角度上背離了人類和上天,他的命運,徹底輸了! 當CCP完全喪失了道德根據地以後,等待他的只剩下法理上的窮追猛打!
-
-但是CCP會就這麼認輸嗎? 明天就會滅亡嗎? 不可能的! 魔鬼最邪惡的武器也會壓在箱底的,戰友們不可大意,不可放棄,不可急功近利,繼續為了自己家人,為了人類和社會,為了新世界的財富和美好,努力前行,不拋棄不放棄,等待七哥找出惡魔最後的武器之後,給他致命一擊,等待七哥的諾亞方舟滿圓之後,給他致命一擊,等待上天降下天雷消滅CCP的一刻!
+Dr. Yan Limeng spricht in der Talkshow von Lude zum Thema des Minenhöhlenvirus von Yunnan. Die “Höhlentheorie” der Kommunistischen Partei Chinas ist ein Versuch, die Menschen glauben zu lassen, dass ein Virus, das ursprünglich in Fledermäusen gefunden wurde, auf Menschen gesprungen ist und sich dann langsam auf Menschen und die allgemeine Bevölkerung ausgebreitet hat. Es wirft eindeutig viele Fragen auf. Dr. Yan spricht auch an, warum jemand es wagen würde, ein bestimmtes Gen 4991 in das Zhoushanfledermaus-Virus einzubetten, und warum Shi Zhengli nie Angst davor hatte, in ihrem Labor durchsucht zu werden. Schließlich sprach Dr. Yan auch die verschiedenen Interessen der Hypothese des natürlichen Ursprungs des Virus an.
 
 0

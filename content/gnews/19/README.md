@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要聞精選】【引章摘句】工賊政黨為警暴張目 兩巴工會譴責其顛倒黑白
-`2020-09-12 09:33 GM42` [轉載自GNews](https://gnews.org/zh-hant/350415/)
+## 【世界多語言圖文】2020/09/05 CCP病毒每日疫情直播簡報
+`2020-09-12 13:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/350683/)
 
-製作單位：戰友之家-粵語組
-評述：卡西歐
-整理：卡西歐
-後期製作：文粵
+戰友之家圖文摘要及小語種組
+
+[English\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)
+
+[French\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)
+
+[German\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)
+
+[Korean\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)
+
+[Russian\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)
+
+[Spanish\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)
 
 
-
-引章摘句
- 警方周日（6日）在油麻地彌敦道拘捕一名正在駕駛新巴970號線的車長，三度更改其罪名，昨晚（10日）落案控告「不小心駕駛」。雖然新巴根據巴士行車紀錄（黑盒），已指出涉事巴士事發時時速為10至35公里，但工聯會屬會、汽車交通運輸業總工會新巴分會代表仍盲撐警方而指控車長，聲稱「時速十幾公里都可以危險、可以撞死人」。
- 新巴及城巴職工會再發聯合聲明，批評有關言論有違專業車長精神、混淆視聽。並斥『龍運分會』提出解僱車長的要求是「落井下石，絕非工會應該做的事情」，新巴及城巴職工會對此表示強烈憤怒。
- 兩巴工會亦要求警方撤控，並表示會視乎事態發展，再進一步考慮任何跟進行動。另外聲明提到，留意到巴士業界聯合工會有意發起行動，澄清兩會並非該組織成員，未曾與該組織商討任何行動，「不過正所謂兄弟爬山、各自努力，我們樂見更多同行兒女為正義發聲表態及有所行動。」
- 兩工會強調，繼續留意事態發展，但不排除按既定程序，召開會員大會正式表決進行工業行動，「兩巴職工會希望大眾繼續密切留意事態發展，必要時來齊集一起，來全力抗對，捍衛權利。」
- 「巴士業界聯合工會」原要求警方及政府明天（周五）下午 4 時前回應訴求，包括就濫捕向業界及當事人致歉等，否則發起工業行動。工會今日指收到中間人聯絡，透露涉事兼職車長希望稍作冷靜，並想事件降溫，工會尊重當事人意願，暫緩工業行動的決定，觀望事態發展再作決定。
-
-
-
-資料來源：蘋果日報/立場新聞
-
-[https://hk.appledaily.com/local/20200911/52AIONHQTRB5RF5MCK3SO2XGFE/](https://hk.appledaily.com/local/20200911/52AIONHQTRB5RF5MCK3SO2XGFE/)
-
-[https://www.thestandnews.com/politics/%E5%B7%B4%E5%A3%AB%E6%A5%AD%E7%95%8C%E8%81%AF%E5%90%88%E5%B7%A5%E6%9C%83-%E8%A2%AB%E6%8D%95%E6%96%B0%E5%B7%B4%E8%BB%8A%E9%95%B7%E6%9C%9B%E9%99%8D%E6%BA%AB-%E6%9A%AB%E7%B7%A9%E5%B7%A5%E6%A5%AD%E8%A1%8C%E5%8B%95/](https://www.thestandnews.com/politics/%E5%B7%B4%E5%A3%AB%E6%A5%AD%E7%95%8C%E8%81%AF%E5%90%88%E5%B7%A5%E6%9C%83-%E8%A2%AB%E6%8D%95%E6%96%B0%E5%B7%B4%E8%BB%8A%E9%95%B7%E6%9C%9B%E9%99%8D%E6%BA%AB-%E6%9A%AB%E7%B7%A9%E5%B7%A5%E6%A5%AD%E8%A1%8C%E5%8B%95/)
 
 0

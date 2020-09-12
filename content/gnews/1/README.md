@@ -1,17 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生以歌聲滅共！ 以歌推牆！被譽為當今的大衛·赫索霍夫
-`2020-09-12 15:50 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/350965/)
+## 台美宣布5G安全共同宣言
+`2020-09-12 18:17 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/351128/)
 
-滅共者郭文貴先生的兩首歌曲：《[Take Down the CCP](https://www.youtube.com/watch?v=KBaT8xoksjE)》和《[滄海一聲嘯](https://www.youtube.com/watch?v=WyYVXmJcNds)》，自2002年9月9日推出以來迅速佔領包括[Apple Music](https://music.apple.com/us/artist/miles-guo/1530852387)，[Spotify](https://open.spotify.com/track/6CxkWCdqMLjZaTtyY2A1KV?si=1RXP0FIaQzGyx2fj8zD6zA)，和[Amazon Music](https://music.amazon.com/albums/B08HMCLFJX?trackAsin=B08HMC1X64&amp;ref=dm_sh_4135-18b3-dmcp-4017-1cea5&amp;musicTerritory=US&amp;marketplaceId=ATVPDKIKX0DER) 等各大榜單之首，並一直保持領先排名。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12151304/Miles_20200912-DavidHasselhoff-figure1.jpeg)圖片來源：[https://gtv.org](https://gtv.org)
-今天郭先生作為特約嘉賓參加班農先生和他的團隊主持的戰斗室的[第383期](https://youtu.be/zx7v1SHB8s8)特別節目：「中國新文化革命」，被譽為當今的大衛·赫索霍夫。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12151314/Miles_20200912-DavidHasselhoff-figure2.jpg)圖片來源：[https://hagerstownairport.org/](https://hagerstownairport.org/) 
-大衛·赫索霍夫是著名的美國德裔演員和歌手，1989年除夕夜他在柏林牆上高歌《尋找自由》（[Looking for Freedom](https://youtu.be/cJ2Sgd9sc0M)），在前蘇聯、東德及其它當時的東歐國家廣為傳唱、影響深遠。 中共一直利用控制文化來洗腦中國人，郭先生的歌曲開啓了文化滅共的先河，以歌聲滅共！以歌推牆！然而郭先生推的是比柏林牆更加邪惡的防火牆，解救的是比東德人口更多的中國14億老百姓！ 敬請關注郭先生及其領導的爆料革命的戰友們更多的滅共歌曲！
+*新聞來源：FOCUS TAIWAN-CNA English News；*
 
-作者：【JoyJoy】編輯：【Michelle】
+*翻譯、簡評：仙女兒-文善｜PR：沐子璐璐｜審核：海闊天空｜PAGE：玄天生；*
 
-戰友之家玫瑰園小隊出品
+**簡評：**
+
+在過去的幾十年裡，中共國將其“超限戰”用在了國際競技場的各個領域，並愚蠢地認為其“超限戰”可以天下無敵，殊不知騙人終騙己。當這些伎倆被世界看穿，中共國萎靡的經濟，低劣的科技水平等都將無處遁形。中共國的電信巨頭華為在5G國際市場中的挫敗，證明了中共國的網絡“超限戰”的不堪一擊；相反，在公平競爭和法制的基礎上開發和部署的5G網絡才是被全世界文明國家所支持和信賴的，台灣與美國近期宣布的5G安全共同宣言就是一個完美的例證。
+
+台美宣布5G安全共同宣言
+
+*2020年8月26日，晚09:06*
+
+[!\[\](https://spark.adobe.com/page/lxEUWNfcbG7VB/images/794f6bb7-28bc-4b0c-93ea-a134e3f04c01.jpg?asset_id=83452f9b-b9e6-4f87-81b6-50bdc404f800&amp;img_etag=%22d6be50d1465d7ef9dc622d257ca1fd22%22&amp;size=1024)](https://spark.adobe.com/page/lxEUWNfcbG7VB/images/794f6bb7-28bc-4b0c-93ea-a134e3f04c01.jpg?asset_id=83452f9b-b9e6-4f87-81b6-50bdc404f800&amp;img_etag=%22d6be50d1465d7ef9dc622d257ca1fd22%22&amp;size=1024) *外交部長約瑟夫·吳（左中）和美國在台協會會長佈倫特·克里斯滕森（中）。照片來源：中央社(CNA) ，2020年8月26日*
+
+8月26日，中央社（CNA）台北報導，根據台灣和美國星期三在台北發布的關於5G安全的共同宣言，雙方正在進行密切合作，以提高全球對5G網絡相關風險的認識，並將繼續與志同道合的合作夥伴一起制定5G安全準則及開展最佳實踐方式。
+
+根據該宣言，台灣和美國都認可2019年5月起草的布拉格提案(PRAGUE PROPOSALS)，該提案強調需要在自由和公平競爭、透明和法治的基礎上開發、部署及商業化5G網絡。
+
+宣言稱：“我們認為，所有利益相關者都有共同的責任，對5G硬件和軟件供應商以及供應鏈進行仔細的、平衡的評估，以促進安全、有彈性的5G架構。”
+
+“為此，美國和台灣正緊密合作，通過全球合作與培訓框架幫助全球提高對5G網絡風險的認識，並期待繼續與志同道合的合作夥伴一起制定適當的5G標準、 準則及開展最佳實踐方式” ， 它補充說。
+
+宣言最後指出，“通過定期的生命週期替換，從現有的不受信任的網絡硬件和軟件供應商過渡到受信任的供應商，這一點至關重要”，而這裡並沒有明確其所謂的不受信任的供應商是否包含中共國的電信巨頭華為。
+
+它總結說：“這些努力不僅會提高我們各自的安全，而且還將為私營企業的創新者們提供機會，使其在自由和公平競爭的環境下取得成功，並使我們各自的數字經濟受益。 ”
+
+外交部長吳釗燮（Joseph Wu）在發表宣言的5G政策論壇中的講話稱，台灣和美國的有關當局在過去的一年中一直在密切合作，並提出一個信息安全框架，預計該宣言將使台灣與美國在這一領域的合作“制度化”。
+
+吳（釗燮）說，蔡英文主席在5月份的就職演說中提及要優先發展可以與5G融合的網絡安全產業、數字化轉型以及可以保護國家安全的產業鏈，這是她在第二任期內的六個核心戰略產業之一。
+
+這位部長還指出，台灣的五家電信服務提供商都已被美國列為“清潔5G”網絡，台灣有信心將成為世界各國在信息安全合作方面的完美合作夥伴。
+
+[!\[\](https://spark.adobe.com/page/lxEUWNfcbG7VB/images/d02269ad-16a8-4fa6-a222-baabe5afe801?asset_id=f8f6f312-6f5d-4417-a489-6007c66a5d49&amp;img_etag=%225c56f6fa39da7c5b1de1ea6051748823%22&amp;size=1024)](https://spark.adobe.com/page/lxEUWNfcbG7VB/images/d02269ad-16a8-4fa6-a222-baabe5afe801?asset_id=f8f6f312-6f5d-4417-a489-6007c66a5d49&amp;img_etag=%225c56f6fa39da7c5b1de1ea6051748823%22&amp;size=1024)
+
+同時，美國在台協會（AIT）會長佈倫特·克里斯滕森（Brent Christensen）在講話中說，美國為與台灣站在一起而感到自豪，台灣是“真正可靠的合作夥伴，公開宣布我們在5G安全方面的共同價值觀和密切合作”。
+
+他說，政府和電信運營商現在做出的關於5G的部署和選擇所帶來的結果，將在未來幾年中顯現。
+
+他繼續說：“各國需要與能夠被信任的5G設備和軟件公司合作，並知道它們不會威脅到其國家的安全、隱私、知識產權或人權。”
+
+他指出：“在電信供應商受到像中華人民共和國這樣的權威政府影響的情況下，信任是不存在的。中國缺乏獨立的司法機構或法治，而其有限的隱私保護會導致安全漏洞，”
+
+美國在台協會（AIT）官員表示，美國很高興看到台灣成為其“5G清潔路徑計劃”的成員。
+
+他說：“台灣和美國與其他’淨網’夥伴一起，旨在保持技術系統的清潔和摒除不受信任的供應商，從而通過保護公民和公司的敏感數據不受專制政府的影響來促進國家的安全。”
+
+共同宣言是以美國在台協會（AIT）和駐美的台北經濟文化代表處的名義發表的，在雙方沒有正式外交關係的情況下，此宣言代表了台灣和華盛頓的的各自利益。
+
+[新聞鏈接](https://focustaiwan.tw/politics/202008260022)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/lxEUWNfcbG7VB/)
 
 0

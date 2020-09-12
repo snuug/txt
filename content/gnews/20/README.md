@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月12日財經快訊: 貨幣市場萎縮威脅美元地位, 顧客吐槽難吃遭狗不理報警
-`2020-09-12 09:17 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/350384/)
+## 身份平等是民主的前提
+`2020-09-12 13:09 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/350797/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12091018/Picture20-1.png)圖片來源： [https://internationalbanker.com](https://internationalbanker.com/brokerage/us-dollar-consistently-falling-throughout-2017/) 
-[1.路透社報導：中共寧見TikTok被關停而非賣給美國公司。字節跳動回應此事不實](https://mobile.reuters.com/article/amp/idUSKBN2622L6?__twitter_impression=true)
+**作者：美东香草山农场写作组 Kathy (文艺）**
 
-[2.美司法部宣布針對3民朝鮮和馬來西亞國名涉嫌銀行欺詐，洗錢和違反制裁行為的指控。司法部昨日指控朝鮮人Ri Jong Chol，Ri Yu Gyong和馬來西亞國民Gan Chee Lim串謀違反《朝鮮制裁條例》和銀行欺詐行為，並被指控串謀洗錢。據稱，被告建立並利用了通過美國輸送美元的皮包公司，以代表朝鮮顧客購買商品。](https://www.justice.gov/opa/pr/department-justice-announces-charges-north-korean-and-malaysia-nationals-bank-fraud-money)
+**翻开法国****19****世纪作家托克维尔的《论美国的民主》一书，** **真是开卷有益，序言里第一个触及我灵魂的词就是****:****身份平等——“它给予舆论方向，赋予法律方针，供给执政者新的箴言，赋予被统治者特有的习惯”****.**
 
-[3.貨幣市場基金萎縮或威脅美元供應。根據投資公司協會（Investment Company Institute）的數據，主要貨幣市場基金的資產週三達到7416.2億美元，較6月下旬的反彈水平下降了240億美元，較2月中旬的2020年峰值約8100億美元大幅下降，這對依賴其的非美國銀行構成了不小威脅。](https://www.wsj.com/articles/shrinking-money-market-funds-threaten-global-dollar-supply-11599818495?mod=markets_major_pos2)
+**上海电影制片厂在1979年拍了一部战争剧情片《从奴隶到将军》，** **原型是中共将军罗霄（杨在葆饰演），讲述他从一个彝族奴隶成长为一名将军、最后牺牲的故事。电影很煽情，演员演得更精彩。后来，中国人常用“从奴隶到将军”形容人身份的改变。但外在身份的改变，一定意味着真实身份（地位）的真正改变吗？改革开放后，中国出现了到处打工的农民工，表面上看，他们似乎从农民摇身一变成了城里人，但是他们连在城市居住与上学的权利都受到很多限制，何谈与城市居民同等的身份认同与权益。**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12130035/Picture7-3.png)《从奴隶到将军》剧照
+**基督教旧约《圣经》里，描写了神派摩西带领以色列民族走出埃及的史诗级的故事, 多么壮烈，但最后发生的事情却让我们倒抽一口凉气，第一代走出埃及的以色列人，大多倒毙在旷野， 只有年轻一代才进入应许之地。连摩西也只在应许之地对岸望了一眼，便死在迦南美地的彼岸。神要告诉以色列年轻人：唯有脱下为奴的负累，以将军的身份攻进迦南，打败其地的住民——亚玛力人和迦南人，才能真正获得生存的权利。用属灵的说法，即只有穿上神的军装，才能击垮你内心的巨魔，不受它控制，获得真正的自由。**
 
-[4.芝加哥論壇報近日報導：若無更多政府資金支持，中小企業或迎來破產潮](https://www.chicagotribune.com/coronavirus/ct-coronavirus-chicago-ppp-small-business-bankruptcy-20200910-khlgodbctfefjkj7q2zhcbr4ti-story.html)
+**王阳明的心学也教给我们，心外无物，良知即天理，宇宙万物即是人心灵的载体与外化。他也曾挣扎过，祖父那魏晋遗风的诗书风范与父亲的功名世俗追求，使他在两种人生理想间挣扎苦痛，但追求圣贤之路，追寻心灵至善至美的境界，吸引着他一生为之求索，终成一代心学圣哲，为后人在儒学的心性解放、人性尊严认同方面做出了杰出的贡献。**
 
-[5.巴克萊最新報告表示，匯豐銀行日前宣布的裁員措施力度仍然不夠，若匯豐希望到2022年達到10%回報率的目標，它需要額外裁剪97610個工作崗位。](https://news.efinancialcareers.com/cn-en/3004422/hsbc-new-job-cuts?utm_campaign=JS_EDI_MC&amp;utm_source=AMS_US_ENG&amp;utm_medium=EM_NW)
+**从为奴到为将，不应该只是外在身份的改变，更应该是内心的自省和升华；身份的认同归属，必须伴随着自我灵魂的苏醒；民主自由只能自己挣得，不能靠别人施予，更不能跪求别人施舍怜悯，以求得可怜有限的生存空间。专制统治者们只会在你低垂卑微的头上踩上一只脚，将你踢翻在地，再踩上另一只脚，使你终身为奴，万代为婢。请问，这样的奴民，你愿意当吗？**
 
-[6.被吐槽難吃，狗不理報警。 9月8日，微博博主@谷岳發布了一則狗不理包子（王府井總店）的探店視頻，視頻中該博主在餐廳就餐之後給出差評。視頻發出後不久，微博賬號“王府井狗不理店”就發布了一則聲明。聲明中稱，該視頻所有惡語中傷言論均為不實信息，並報警。](https://money.163.com/20/0912/12/FMAUQ02700259GU8.html?clickfrom=w_money)
+长岛伟哥携香草山战友编辑
 
-By：【密翻組·金融法律組】
+
 
 0
