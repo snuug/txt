@@ -1,13 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士:短期內生產的疫苗副作用大,會對人體造成二次傷害（葡萄牙語Portuguese+英文English）
-`2020-09-12 01:52 GM62` [轉載自GNews](https://gnews.org/zh-hant/349689/)
+## 【12 港人送中】家屬晤傳媒　哭訴被捕者音訊全無 生死未蔔
+`2020-09-12 04:09 pmzy` [轉載自GNews](https://gnews.org/zh-hant/350003/)
 
-葡萄牙語標題 Dra Yan : As vacinas produzidas a curto prazo têm efeitos colaterais e podem causar danos secundários aos seres humanos
+內新聞作者：文章
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12040724/Layer201_AGMy1_1200x0.png)新聞來自：立場新聞
+被指違反《國安法》的「香港故事」成員李宇軒等 12 名港人，上月下旬疑潛逃臺灣時被中國海警截獲，至今被關押在深圳鹽田看守所逾 20 天，受家屬委託的內地律師屢遭中國公安拒絕會面當事人要求，更有多名律師被當局要求退出代理本案。
 
-翻译：福瑞德 校对：Allan，珍珠奶茶 视频：文件夹
+今日（12 日）下午，在南海被廣東海警拘捕的 12 名港人的家屬，聯同立法會議員朱凱廸、塗謹申召開記者會。他們批評，事發至今 21 日，被拘留人遭中國當局秘密關押，音訊全無，當中包括未成年人士，家屬除了無法透過自己委託律師親眼見被拘留者，港府亦未提供任何協助。因此，家屬提出 4 項要求，包括拒絕「官派律師」、要求當局提供合適藥物予被拘留者、要求當局準許被拘留者致電家屬、以及要求港府確保 12 港人權利，立即將他們中國接回香港。
 
+有被捕者母親在記者會上哭訴兒子音訊全無，生死未蔔。
 
+美國國務卿蓬佩奧（Mike Pompeo）週五（9月12日）發表聲明，表示美國深切關註在中國廣東省被關押的 12 名香港民主活動人士，質疑香港行政長官林鄭月娥對保護公民權利的承諾，並呼籲當局確保正當程序。
+
+原文鏈接：https://www.thestandnews.com/politics/12-%E6%B8%AF%E4%BA%BA%E9%80%81%E4%B8%AD-%E5%AE%B6%E5%B1%AC%E5%8F%AC%E9%96%8B%E8%A8%98%E8%80%85%E6%9C%83-%E8%BD%9F%E6%B8%AF%E5%BA%9C%E6%9C%AA%E4%BA%88%E5%AF%A6%E8%B3%AA%E5%8D%94%E5%8A%A9-%E6%8B%92%E7%B5%95%E4%B8%AD%E5%9C%8B-%E5%AE%98%E6%B4%BE%E5%BE%8B%E5%B8%AB/
 
 0
