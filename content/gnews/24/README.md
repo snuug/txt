@@ -1,11 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士:免疫病毒時間短有二次感染風險,若不搞清楚病毒就無法研製出有效的疫苗（葡萄牙語Portuguese+英語English）
-`2020-09-12 03:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/349890/)
+## 英雄科學家閆麗夢博士通過英國LOOSE WOMEN節目傳播CCP病毒真相——英倫三島民意將被喚醒
+`2020-09-12 08:34 GM62` [轉載自GNews](https://gnews.org/zh-hant/350288/)
 
-葡萄牙語標題 A curta duração da imunidade contra vírus epresenta um risco de infecção secundária, e uma vacina eficaz não pode ser desenvolvida sem uma compreensão clara do vírus
+編輯記者：川渝小哥G  校對編輯：文劍
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12082156/%E5%9B%BE%E4%B8%80-2.png)
+美東時間9月11號晚,英雄科學家閆麗夢博士參加了英國知名節目LOOSE WOMEN,繼續向英國及全世界人民傳播CCP病毒的真相,英格蘭著名足球明星蘭帕德妻子克裡斯汀·布萊克利等主持人對閆麗夢博士進行了訪談。
 
-翻譯：福瑞德 校對：Allan 視頻：文件夹
+閆麗夢博士指出CCP病毒並非來源於自然,是由中國軍事研究院專屬擁有的蝙蝠冠狀病毒ZC45和ZXC21,通過中共政權控制的武漢病毒實驗室改造產生的新型冠狀病毒。閆麗夢博士表示病毒基因組序列等同於人的指紋,根據病毒基因序列可以識別病毒。閆麗夢博士將用SARS-CoV-2(CCP病毒)基因序列組裡的證據,告訴人們這個病毒來源於中共國實驗室。
+
+閆麗夢博士撰寫的科學報告與美國頂尖科學家團隊合作完成,共兩份報告。第一份報告將公佈於眾,向全世界展示關於CCP病毒的科學證據。閆麗夢博士認為即使沒有生物學背景知識的人,也可以讀懂並驗證報告內容,戰勝病毒的核心是解密病毒的來源,否則全人類都將處於生命威脅中。
+
+新闻来源：
+[https://www.youtube.com/watch?v=7Lq3\_rsBJ9w](https://www.youtube.com/watch?v=7Lq3_rsBJ9w)
+
+（英国LOOSE WOMEN 美东时间2020年9月11号晚）
 
 0

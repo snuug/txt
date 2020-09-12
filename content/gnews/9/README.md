@@ -1,94 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友文学原创】連載002:《 1984進行時》
-`2020-09-12 08:34 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/350298/)
+## 川普總統又一外交勝利：以色列和巴林王國達成建交協議
+`2020-09-12 11:41 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/350555/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/11100649/6c467ea9-f803-4087-8548-3283e4abc102.jpg)图片来源：澳喜农场
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12112240/WH_20200911_IsraelBahrain_photo169.png)图片来源：[https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-brokered-historic-deal-israel-kingdom-bahrain/](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-brokered-historic-deal-israel-kingdom-bahrain/)
+**President Donald J. Trump Has Brokered a Historic Deal** **Between Israel and the Kingdom of Bahrain**
 
-【引子】七十多年前，喬治·奧威爾在他的代表作《1984》中描述了一個完全處於極權政府監視、控制和奴役下的絕望世界……今天世界已經行走在絕望深淵的邊緣，如果沒有文貴先生和爆料革命，人類文明早已被邪惡碾碎，就像這部小說《1984進行時》中描述的那樣。
+**唐納德·傑·川普總統促成了以色列和巴林王國之間的一項歷史性協議**
 
-本書獻給文貴先生、班農先生、爆料革命和我們的聖城香港，以及所有和新中國聯邦站在一起的正義力量。
+Issued on: September 11, 2020
 
-#### **3.“愛的聯盟”**
+發佈時間：2020年9月11日
 
-媽媽和茱莉婭都努力討好對方。他們三個人在一起時，溫斯頓極不自在。兩個女人都很愛他，也都知道對方對他很重要。她們好像要形成一個“愛的聯盟”把他圍起來。她們都怕失去他。
+“Now that the ice has been broken, I expect more Arab and Muslim countries will follow the United Arab Emirates’ lead.” – President Donald J. Trump
 
-溫斯頓覺得自己配不上。他無法在深度上回報媽媽的愛，也無法在濃度上回報茱莉婭的愛。他只是捧著外表上的自己獻給她們，讓她們去愛。更多的，在外表下麵，對他來說更本質性的、更廣大的區域，他留給了自己。不是他不願意給她們，是她們看不到。只有他自己能感受到那裏有一個真實存在的溫斯頓。
+「開啓破冰之旅後，我預計會有更多的阿拉伯和穆斯林國家將追隨阿聯酋的腳步」 – 唐納德·傑·川普總統
 
-當然，他也知道她們愛他，不僅因為他是個年輕健康、懂得要對女性溫和體諒的男子。她們接受他，因為他是她們所熟悉的那個溫斯頓，他已經是她們生活的一部分。這種感情已經和本能融合在一起，是在她們自己都意識不到時，就已經給予他的。
+SECURING ANOTHER HISTORIC AGREEMENT: President Donald J. Trump has brokered a deal to establish full diplomatic relations between Bahrain and Israel – the second such agreement between Israel and an Arab nation in less than one month.
 
-他享受著，就像享受著B國的安靜和空氣裏清澈的甜味一樣，可以讓他默默地獨自在心裏回味。媽媽代表著A國、他的母語、不言自明的默契和從小養成的各種習慣；茱莉婭代表著B國、高度文明、對人的尊重寬容和彼此信任不用處處提防。
+**達成另一項歷史性協議**：美國總統唐納德·傑·川普總統促成了一項在巴林和以色列之間建立全面外交關係的協議。這是以色列和阿拉伯國家在不到一個月的時間內達成的第二項的此类協議。
 
-媽媽開始衰老了，很明顯，半年不見，她的臉部就有了變化。溫斯頓第一次發現時，心裏沉了一下。這是規律啊，沒辦法，他只能告訴自己。他覺得媽媽是個聰明女人，一定也是心知肚明，而且能夠坦然對待。即便她老了，她也不是弱者。她知道必須照顧好自己。父親去世有十年了，她明白，有她在，他和她就有一個家。
+- Israel and Bahrain have committed to begin the exchange of embassies and ambassadors, start direct flights between their countries, and launch cooperation initiatives across a broad range of sectors.
+- 以色列和巴林已承諾開始互建大使館和互派大使，開通兩國直航，在廣泛的領域起動合作計劃。
+- This peace deal is a significant step forward for both Israel and Bahrain.
+- 這項和平協議是以色列和巴林關係向前邁出的重要一步。
+- It further enhances their security while creating opportunities for them to deepen their economic ties.
+- 這進一步加強了他們的安全，同時為他們創造了深化經濟聯繫的機會。
+- This deal comes on the heels of the historic normalization agreement between Israel and the United Arab Emirates.
+- 這項協議是緊隨以色列和阿拉伯聯合酋長國間歷史性的正常化協議之後達成的。
+- The United Arab Emirates and Bahrain are the first Arab nations to normalize relations with Israel in more than 25 years.
+- 阿拉伯聯合酋長國和巴林是25年來第一個與以色列關係正常化的阿拉伯國家。
+- The United States will continue to support the people of Bahrain as they work to counter terrorism and extremism, develop economically, and build new peaceful partnerships across the region.
+- 美國將繼續支持巴林人民努力打擊恐怖主義和極端主義、發展經濟並在該地區建立新的和平夥伴關係
 
-茱莉婭並不很好看，B國有很多女孩子相當漂亮，在超市裏，在電車上都會看到漂亮的女孩子，讓人忍不住多看幾眼，多看也還是看不夠。但是她們都和他沒有關係，只是街上的一個景觀、一個物體而已。溫斯頓珍惜茱莉婭，因為她是唯一的，和他在一起實實在在的，有著身體的溫度和氣息的女性。她還有青春的美。眼睛一眨、肩膀和腰部一扭，就飄散出媽媽已經沒有了的那種活力。
+CREATING THE CONDITIONS FOR PEACE:  President Trump’s wise foreign policy strategy has created the conditions for peace between Israel and its neighbors.
 
-媽媽曾經也是這樣啊。她是什麼時候知道自己老了呢？溫斯頓看著媽媽和茱莉婭在一起，覺得很不真實。人在不知不覺的時候就青春綻放，又在不知不覺時就失去了青春。
+**為和平創造條件**：川普總統英明的外交策略為以色列及其鄰國之間的和平創造了條件。
 
-茱莉婭失去青春時還會和自己一起嗎？如果他們一直這樣下去就有可能。他為什麼不可以想辦法留在B國，和茱莉婭在一起呢。當然茱莉婭也可以和自己回到A國去。
+- When President Trump took office, the Middle East was in a state of extreme turmoil.
+- 川普總統上任時，中東處於極度動蕩狀態。
+- President Trump has worked to rebuild trust with our regional partners and identify their shared interests, moving them away from the conflicts of the past.
+- 川普總統努力與我們的地區夥伴重建信任，確認他們的共同利益，讓他們遠離過去的衝突。
+- Thanks to the President’s bold foreign policy vision and his acumen as a dealmaker, nations across the region are realizing the benefits of his thoughtful approach.
+- 得益於總統大膽的外交願景和他作為一個精明的商人 ，該地區的國家正意識到他的深謀遠慮帶來的利益。
+- As the President’s work continues, more Arab and Muslim countries will likely seek to normalize relations with Israel.
+- 隨著總統的工作推進，更多的阿拉伯和穆斯林國家可能會尋求與以色列關係正常化。
+- Each country that normalizes relations will build upon the other, bringing peace and prosperity to the region and the people who live there.
+- 實現關係正常化的每個國家都將建立在給該地區和人民帶來和平與繁榮的基礎上
 
-茱莉婭有一次這樣說，嚇了他一跳。他們正溫柔地靠在一起，茱莉婭忽然說：“我可以和你一起去A國。”溫斯頓像被人猛推了一把。A國是一個黑洞，溫斯頓暫時把它忘了。他頓時興致全無，茱莉婭讓他回到了現實。只有現實中才會有A國。溫斯頓掩飾著，沒有讓茱莉婭發現他態度的變化。
 
-有時候，溫斯頓更像女性，他比茱莉婭還敏感脆弱。他覺得這是A國在他身上留下的去不掉的痕跡。他不能像茱莉婭那樣放鬆，對周圍完全信任。他總是習慣於偽裝，不讓任何人察覺他的想法。而且時刻洞察著別人，對所有人都要努力討好，同時也保持距離。這是不是自己顯得善解人意的原因？茱莉婭總是誇耀自己的男友非常溫和體貼，比B國的男孩子成熟。溫斯頓覺得悲哀。成熟就是世故、偽裝。他也想天真的啊。當然，這也是要掩飾的。他怎麼向茱莉婭解釋清楚呢？
+AN UNPRECEDENTED REGIONAL TRANSFORMATION: After decades of instability and crisis, nations across the Middle East and Africa are increasingly working together to build a more peaceful and prosperous future.
 
-後來再想起茱莉婭的話，溫斯頓覺得有點內疚。他完全沒有顧及到茱莉婭的感受。她說這樣的話需要極大的勇氣。當然，也許她只是在那一瞬間，在情感處於峰值時覺得可以捨棄自己。女人畢竟是女人。她們對於情感的需求和易於被情感左右，都是不可思議的。
+**前所未有的區域變革**：在經歷了數十年的不穩定和危機之後，中東和非洲各國正日益加強合作，以建設一個更加和平與繁榮的未來。
 
-不過，溫斯頓還是感激她。這個傻女孩真是太好了。雖然她並不知道和他去A國意味著什麼。不行，絕對不能讓她去。溫斯頓立即就下了決心。不能讓她掉進一個又髒又臭又黑暗又恐怖的洞裏。
+- Thanks to President Trump’s leadership, the Arab world is experiencing the most rapid geopolitical transformation in more than a generation.
+- 由於川普總統的領導，阿拉伯世界正在經歷一個逾一代人以來最迅速的地緣政治的變革。
+- As more countries normalize relations with Israel, the region is becoming more stable, secure, and prosperous.
+- 隨著越來越多的國家與以色列實現關係正常化，該地區會變得更加穩定、安全和繁榮。
+- Expanded business and financial ties between economies will accelerate growth and economic opportunity across the region.
+- 各經濟體之間擴大的商業和金融的聯繫將提升整個地區的成長和經濟機遇。
+- Agreements with Bahrain and the United Arab Emirates also help to advance President Trump’s vision for finding a fair and lasting peace between Israel and the Palestinians.
+- 與巴林和阿拉伯聯合酋長國達成的協議也有助於推進川普總統在以色列和巴勒斯坦之間尋求公平且持久的和平的願景。
+- The United States will continue to stand with the people of the region as they work to build a brighter, more hopeful future.
+- 美國將繼續與該地區的人民站在一起， 為建設一個更光明更有希望的未來而努力。
 
-溫斯頓從沒覺得A國這麼醜陋可鄙，直到把它和茱莉婭聯繫在一起。他不敢想這麼清澈乾淨的女孩子在A國會怎麼樣。他保護不了她。A國可以把任何東西擠壓變形，瞬間就可以把她吞沒。
 
-但，不是這樣的，A國沒有那麼可怕，很多人過的好好的，太平無事。不僅是A國的人覺得那裏好，B國的人也這麼認為啊。A國蒸蒸日上，越來越富裕的。很多人比B國普通人還有錢。茱莉婭的鄰居夫人就說，他可沒錢讓兒子到A國上學。但是溫斯頓到B國來，不愁吃穿，還租了個小公寓，交了個女朋友呢。
+[閱讀白宮原文](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-brokered-historic-deal-israel-kingdom-bahrain/)
 
-溫斯頓沒和媽媽討論過畢業後的去向，更沒說過將來茱莉婭怎麼辦。他們只能回避這件事。因為他們都不知道會發生什麼。
+翻譯：【小粉紅】 校對：【石頭】編輯：【Michelle】
 
-“愛的同盟”遲早會解體。溫斯頓想讓自己習慣於這個想法，免得真到那一天時受不了。失去茱莉婭更難受，還是和媽媽永別？
-
-#### **4.離別**
-
-離別是匆匆忙忙的。他們很擔心行李超重。溫斯頓走在前面，拖著大箱子出了一身汗。媽媽很費勁地拉著小箱子，還背個大包跟在後面。倆人顧不上說一句話。
-
-準時到達機場，溫斯頓松了一口氣。媽媽卻突然哭了，撲過來抱住他。溫斯頓腦子裏空空的，一句安慰的話也說不出來。
-
-看著媽媽的背影消失在安檢區，溫斯頓覺得特別疲憊，木然地往回走。昨天晚上，他和媽媽討論了可能的饑荒。
-
-A國在幾十年前有一次大饑荒。現在親戚們聚會時，食物總是過於豐盛。所有人很快就吃飽了，變得懶洋洋的。主婦們看著桌上的大盤小盤會勸大家繼續吃。如果一個老人突然感慨起來，講起自己如何熬過饑荒，撿了條命，旁邊的老人會附和說，誰誰誰那時候餓死了。
-
-媽媽是在饑荒過去多年後出生的。溫斯頓這輩人從小沒有缺過吃的。老人說的就像故事一樣，很快就在你一言我一語中飄過去了。在A國總是這樣，大家邊吃邊聊，家暴、交通事故、判刑、空氣污染、電話詐騙和各種死亡，沒人會覺得影響胃口。
-
-溫斯頓知道媽媽特別討厭在飯桌上談暴力、男女之事和死亡之類的重口味話題。在他們自己家，這是不允許的。溫斯頓會下意識抬頭看看媽媽的表情。他也說不清是什麼心理，是想看媽媽如何在眾人面前偽裝掩飾，還是要對媽媽表示同情。
-
-到B國後不久，有一次他騎車上學時摔倒了。很快，他就被人圍了起來。B國的街上通常並不是熙熙攘攘的。溫斯頓發現竟有這麼多人站在自己身邊，覺得很尷尬，以為是自己阻礙了交通。但這些人都是想幫助他的，有人幫他把車扶起來，有人問他是不是把腿摔壞了。很誇張的是，有個老太太打電話叫了救護車。他本來可以爬起來接著騎車去學校，卻不得不在旁人的攙扶下坐在路邊等了一會兒。救護車鳴著笛飛馳而來，跳下來兩個小夥子，把他好好檢查了一下，確認他沒有事。陪他在路邊坐著時，還有個大媽遞給他一塊巧克力。
-
-溫斯頓想，可能是因為在A國，不幸的事情太多了，好像幾十年中不斷在發生，每天都有各種倒楣的人。有一次媽媽在地鐵站等車時身體不舒服，就坐到長椅上，有個年輕人坐在另一頭。她再睜開眼，發現自己躺在地上，一個戴紅袖章維持秩序的人俯身看著她。媽媽說她好像是被這個人拉起來，又坐回長椅上。旁邊的年輕人一動不動，頭也不抬，還在看手機。她和溫斯頓當然都不相信一個人擺弄手機會專注得對周圍毫不察覺。
-
-幸好媽媽沒有在馬路中間暈倒。溫斯頓知道有人倒在大街上，會一直躺著，沒人一個人停下幫助他。如果是媽媽怎麼辦呢？她一個人，而他遠在B國，怎麼辦呢？
-
-昨天晚上忙著收拾行李，他和媽媽只吃了點麵包。今天早上醒來，溫斯頓覺得很餓。他呼嚕嚕塞了一堆吃的，頓時覺得胃裏暖暖的，全身的血液好像都流通開了。如果媽媽沒有說到饑荒，他不會留意身體的感受。
-
-肉體是我們的主人。記得媽媽喜歡這樣說。在慵懶的週末，睡了一大覺，或者特別渴的時候喝一大杯果汁，他會想起媽媽這句話。
-
-很多很多人死了，在那次大饑荒的三年。在A國的上空遊蕩著成千上萬饑餓的冤魂。他們是冤死的。老人們都說是因為自然災害，糧食絕收。但是A國很大，任何一種氣候都不可能造成全國顆粒無收。而且，有人查了氣象資料，那三年沒有大面積惡性災害。
-
-A國在隨後幾十年沒有出現過大災荒。而且生活越來越好了。因為A國和B國成了朋友。A國為B國生產各種用品，然後從B國買食品。從小，溫斯頓就知道食物是個大問題，不是因為太少，而是太多。A國可能是被餓怕了，每個人都對吃懷有不可遏制的激情。肥胖成了健康殺手。因此製作美食和減肥是人們在飯桌上最常討論的話題，和各種惡性事件的小道消息穿插在一起。
-
-媽媽和溫斯頓談到饑荒，因為有人提出警告。A國因為缺錢，無法從B國買到足夠的糧食。目前沒有人相信。好像只有媽媽信。她在B國買了很多壓縮的高熱量食物帶回A國。
-
-暮色四合，屋裏沒有開燈。溫斯頓和媽媽相對而坐，都不再說話。在黯淡的光線中似乎可以看到媽媽更為黯淡的表情，也許只是他的想像。一場遲早會來的大難，好像一直在等，隨時會來。A國的各種不正常終究會是大難臨頭，只是不知道何時會來，也不知會是饑荒還是其他的方式。
-
-所以媽媽會突然抱住他。從此天各一方，他們不知道會發生什麼，不知道什麼時候可以再見面，不知道……會不會是永別。
-
-當然，也許什麼事都沒有，一切照舊，全世界依然陽光普照、太平無事。絕大多數人都是這樣想的。媽媽是不是過於焦慮了？溫斯頓希望是的。
-
-（未完待续……）
-
-《1984進行時》篇章：【[連載001](https://gnews.org/zh-hant/348345/)】【[連載002](https://gnews.org/zh-hant/350298/‎%28opens%20in%20a%20new%20tab%29)】
-
-作者： 文 石
-
-编辑：期待光明  
-审核：Giselle
-
-(文章內容僅代表作者觀點)
+戰友之家玫瑰園小隊出品
 
 0
