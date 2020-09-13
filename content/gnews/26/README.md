@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰鬥室381、382期紀念911事件特輯談英雄主義、犧牲和教訓
-`2020-09-13 05:32 GM06` [轉載自GNews](https://gnews.org/zh-hant/351912/)
+## 中共通過食品供應鏈將芬太尼運送到美國（西班牙語Spanish+英語English）
+`2020-09-13 07:39 GM62` [轉載自GNews](https://gnews.org/zh-hant/352164/)
 
-作者：文徬
+西班牙語標題 El PCCh entrega fentanilo a EE.UU. a través de la cadena de suministro de alimentos
 
-班農先生戰鬥室9月11日第381、382期特別版，紀念9月11日在紐約市、華盛頓哥倫比亞特區和賓夕法尼亞州發生的恐怖襲擊事件19周年。連線時任紐約市警察局長的伯納德·凱裏克（Bernard Kerik），時任紐約市長的魯迪·朱利安尼（Rudy Giuliani）等嘉賓，討論這次美國悲劇及其體現出的英雄主義、犧牲和教訓。
+翻譯：Benzhang(文羽) 校對：謎擬Q、Cute panda、David XX 視頻：AVA 文嶢 、文靓、小羽、菠萝
 
-昨天是911恐怖襲擊19周年，美國各地舉行了不分黨派的紀念活動。時任紐約市警察局長的伯納德·凱裏克回憶了紐約警察在911事件中的貢獻和犧牲，告誡民眾永遠不要忘記911，必須珍惜美國價值，絕不能認為理所當然擁有這些。時任紐約市長的魯迪·朱利安尼談到他在911事件現場所面臨的生死考驗和紐約市政府和州政府的聯合應對措施，特別提及當時大雨帶來的洪水淹沒曼哈頓下城的危機。
 
-退伍老兵內爾（Scott Neil）回憶其參加反恐戰爭，表示“我們將這壹代人的戰鬥移交給了我們的孩子”，現在美軍服役的人員中，幾乎有壹半是911之後出生的。某安全咨詢公司創辦人與CEO波·迪特爾（Bo Dietl）在連線中指出，中共是美國今天的最大敵人。
-
-911恐怖襲擊事件給美國民眾造成嚴重心理傷害，成為美國人永遠揮之不去的心病。班農先生指出，這次中共病毒對美國的襲擊，紐約的今天比911之後更蕭條肅殺，就像是科幻電影中的場景。19年前《時代》周刊第壹次采用全黑框封面，19年後的今天，《時代》周刊封面再次采用了全黑框，公布了最新壹期雜誌的封面。黑色打底、布滿白色文字的圖片，記錄了從2月29日開始，每壹天美國因中共病毒死亡的病例數。
-
-對911恐怖襲擊的痛苦回憶，緬懷英雄主義，討論美國發動的反恐戰爭得失教訓，是為了更好應對這壹次共產主義、社會主義對美國的禍害和中共對世界發動的生物戰爭。
-
-信息來源：War Room YouTube頻道，Ep381、382
-
-> [Ep 382- Pandemic: 9/11 Heroism, Sacrifice, and Lessons Learned Pt.2 (w/ Scott Neil, Sam Faddis, Bo Dietl, Maureen Bannon, and Evi Angelakis)](https://pandemic.warroom.org/2020/09/11/ep-382-pandemic-9-11-heroism-sacrifice-and-lessons-learned-pt-2-w-scott-neil-sam-faddis-bo-dietl-maureen-bannon-and-evi-angelakis/)
 
 0

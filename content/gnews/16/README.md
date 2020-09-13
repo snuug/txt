@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農戰鬥室383、384期專訪郭文貴先生談滅共新文化革命
-`2020-09-13 05:43 GM06` [轉載自GNews](https://gnews.org/zh-hant/351935/)
+## 9月13日財經快訊: 美國出口管制將再出招,中共監管金交所治標不治本
+`2020-09-13 09:51 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/352389/)
 
-作者：文徬
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13093739/Picture1-10.png)圖片來源： [https://fingfx.thomsonreuters.com](https://fingfx.thomsonreuters.com/gfx/ce/yzdvxxzdkvx/ChinaPorkImportsDashboard.png) 
+[1，納斯達克綜合指數上週五又一個震盪下跌，科技股的持續拋售將基準指數跌至數月來最糟糕的一周。](https://www.cnbc.com/2020/09/10/stock-market-futures-open-to-close-news.html)
 
-班農先生戰鬥室9月12日第383、384期訪談郭文貴先生談爆料革命滅共新文化革命。
+[2，正值全球最大肉類買家面臨前所未有的豬肉短缺之際，中共上週六宣布禁止從德國進口豬肉。中共上週確認了首例非洲豬瘟病例，中共以此為藉口，禁止從第三大肉類供應商德國進口豬肉。](https://www.reuters.com/article/us-germany-swinefever-china/china-bans-german-pork-imports-after-african-swine-fever-case-idUSKBN2630H0)
 
-郭文貴先生在2017年10月5日在華盛頓國家記者俱樂部舉行新聞發布會告誡世人“來自中國盜國賊的黑夜即將到來”，現在都得到驗證。在原定2017年10月4日在智庫哈德森研究所舉行的對話活動被臨時取消後，郭先生燒毀了三份絕密文件，郭先生在2020年9月5日班農戰鬥室節目中披露，這些文件就是中共制造生化武器的“13579計劃”。閆麗夢博士9月11日接受英國著名節目Loose Woman采訪指出新冠病毒來自中共軍方武漢實驗室。新冠病毒的全球蔓延是中共發動的生物戰爭。
+[3，美國有可能再次對中共科技公司採取行動，導致國際銀行減少對中企敞口。美國正考慮繼華為、中興之後，對中共最大的芯片製造商中芯國際集成電路製造有限公司（SMIC）實施出口管制。該消息傳出後，與中芯國際有2億多美元未償還信貸的國際銀行內部討論希望中芯國際提前償還部分貸款。](https://www.voachinese.com/a/US-crackdown-chinese-companies-global-banks-20200911/5580360.html)
 
-中共利用文化、歌曲和媒體等壹切手段進行大內宣大外宣，對內洗腦，對外欺騙。中共統治下的社會沒有法治，沒有宗教自由，沒有健康的食品。也沒有藍天，壹切都已經被汙染，而中共根本不在乎。中共妄稱“政治安全是國家安全的根本”，為了維護其獨裁利益無所不用其極，甚至摧毀全世界也在所不惜。中共不斷宣傳的四個自信，吹噓控制疫情的制度優勢，讓近兩億學生開學，而對美國的疫情和社會混亂大加撻伐。郭文貴先生領導的爆料革命掀起了以歌滅共的新文化革命。文貴先生與加拿大唐平戰友和好萊塢搖滾歌手制片人共同創作的《推翻共產黨》、《滄海壹聲嘯》兩首單曲在全世界掀起滅共狂潮，紅遍中國大江南北，而中共竟然害怕到設置音樂警察來應對。
+[4，中共監管地方金融資產交易所，切斷弱資質房企及城市建設投資公司通過金交所融資的可能，將這部分需求轉向地方政府推動成立的民間融資服務中心，變向收取服務費，換湯不換藥。](https://cn.reuters.com/article/china-wrapup-financial-exchange-0911-fri-idCNKBS263023)
 
-郭文貴先生表示，他所唱的是爆料革命滅共戰歌。爆料革命掀起的新文化革命使用歌曲向世界講述中共的真相。中共過去透過歌曲對中國人洗腦，而他要重新讓音樂的力量和美好重回中國老百姓的生活當中。新文化革命必將掃除中共70年統治對中國文化的毒害。
+[5，中共交通建築公司正在有關的人工島和有爭議的島礁進行大規模挖掘、建造和軍事化，以圖推進中共在南海（South China Sea）的軍事擴張。此外，中共交通建築公司為一帶一路倡議的為發展中國家進行新的基礎設施建設，工程質量低劣，且存在虐待勞工的現象，同時導致不可持續的債務和環境受到破壞。 8月26日，美國商務部已將包含中共交通在內的24家中共企業和個人列入黑名單。](https://share.america.gov/zh-hans/chinas-construction-companies-sow-chaos-worldwide/)
 
-信息來源：War Room YouTube頻道，Ep383
+[6，公司讓員工自願簽署《奮鬥者自願申請書》，做“公司奮鬥者”，需自願加班，放棄帶薪休假，放棄加班費，自己能力不足時接受公司淘汰，並承諾不與公司產生法律糾紛。](https://wap.peopleapp.com/article/rmh15656081/rmh15656081)
 
-> [Ep 383- Pandemic: The New Cultural Revolution in China Pt.1 (w/ Miles Guo)](https://pandemic.warroom.org/2020/09/12/ep-383-pandemic-the-new-cultural-revolution-in-china-w-miles-guo/)
+[7，創業板繼續跳水，逾340股跌超10%，首個連板跌停股來了，還有跌停股兩日振幅超50%](https://mp.weixin.qq.com/s/MD58bOW6EX5-yhM1rSBgrQ)
+
+[8，新疆天山畜牧生物工程股份有限公司（天山生物）一個月內股票暴漲近500%的背後，實控人是場外配資老闆，自2015年以來就連年虧損。](https://www.yqqlm.com/2020/09/tianshan-biotechs-stock-price-has-soared-5-times-but-has-been-losing-money-for-two-consecutive-years-need-to-introduce-a-short-selling-mechanism-on-the-chinext/)
+
+By：【秘翻組·金融法律組】
 
 0

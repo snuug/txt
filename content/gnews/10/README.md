@@ -1,16 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士:我有科學證據證明CCP病毒不是自然產生的（西班牙語Spanish+英語English）
-`2020-09-13 06:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/351950/)
+## 9月12日戰斗室EP383: 中共不說話(只是行動), 他們就是要毀滅美國, 毀滅你們
+`2020-09-13 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/352316/)
 
-西班牙語標題 Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza
+9月12日戰斗室EP383 精選片段：“行動, 行動, 行動”, 這就是為什麼中共不說話（只是行動）,他們就是要毀滅你們的國家（美國）, 毀滅你們！
 
-翻譯：谜拟Q 校對：帅虎 視頻：小羽
 
-視頻簡介
-閆博士:我有科學證據證明CCP病毒不是自然產生的 不久後將公開
 
-Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza. Será publicado muy pronto
+By：【秘密翻譯組G-Translators】
 
 0

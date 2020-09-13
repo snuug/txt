@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## #重磅#中共“辟謠”：新冠病毒是SARS病毒加艾滋病毒的總和
-`2020-09-13 04:48 GM64` [轉載自GNews](https://gnews.org/zh-hant/351832/)
+## 中國共產黨正在為螞蟻集團(ANTgroup)進行IPO(首次公開募股)形式的籌款活動（西班牙語Spanish+英語English）
+`2020-09-13 07:10 GM62` [轉載自GNews](https://gnews.org/zh-hant/352097/)
 
-內病毒專題:文文
+西班牙語標題 El Partido Comunista Chino está haciendo una recaudación de fondos, está recibiendo la ayuda de Wall Street para atraer inversores estadounidenses
+翻譯：Benzhang(文羽) 校對：帅虎 視頻：小羽
 
-網友都懂中共“辟謠”的意義，越辟謠就越是真實信息。9月13日中共發布了一則新聞《武大中南醫院：有人假借彭志勇醫生之名發布涉疫情不實言論》，新聞報道內容如下：
+視頻簡介
+中國共產黨正在為螞蟻集團(ANTgroup)進行IPO(首次公開募股)形式的籌款活動。 該集團參與了為中共國軍方的收集資訊和濫用人權的活動。
 
-一則“8.30日記：繼續吹哨人，彭志勇醫生”的信息在朋友圈不斷轉發，文內假借彭志勇醫生之名，發布不實言論，不但誤導了公衆，也幹擾了國家的防疫工作。該信息假借彭志勇醫生之名，發布所謂“彭志勇醫生對多起死亡病例的解剖、化驗和分析，得出的結論是新冠病毒是SARS病毒加艾滋病毒的總和，無症狀病毒攜帶者也具有傳染性”等聳人聽聞的言論。
+El Partido Comunista Chino está haciendo una recaudación de fondos, está recibiendo la ayuda de Wall Street para atraer inversores estadounidenses por muchos miles de millones de dólares. razones de peso para no invertir en ANTgroup, incluida la participación informada de la Compañía en abusos de derechos humanos
 
-中共否認以上網上流傳信息的可靠性，即新冠病毒不是SARS加艾滋的總和。事實上，從新冠病人死亡病例的解剖結果來看，其症狀確實類似于SARS+艾滋病毒造成的總和。
-
-早在2月17日，著名的《The Lancet》就發表了解放軍總醫院第五醫學中心(302醫院)王福生院士團隊的全世界首例新冠肺炎死亡患者的病理解剖結果。除了其肺部總體病理學表現與SARS和MERS相似之外，外周血“CD4+”和CD8+細胞的數量大大減少。
-
-而“CD4+”T細胞減少正是艾滋病感染的主要特征之一！CD4細胞是人體免疫系統中的一種重要免疫細胞，是人體免疫系統的指揮中樞，負責消滅和控制多種的感染，對抗入侵的病菌。而艾滋病毒攻擊的對象恰恰是CD4細胞，因此艾滋病病毒感染者的CD4細胞可能會出現進行性或不規則性下降，提示感染者的免疫系統受到了嚴重損害。
-
-所以從科學角度而言，CCP病毒所造成的損傷確實是肺部與免疫系統的同時損傷，相當于既感染了SARS又感染了艾滋病毒。
-
-我們再來仔細閱讀一下網絡“謠言”的內容，其內容非常有參考價值。
-
-“武漢大學新冠病毒重症科主任彭志勇醫生半年多來通過對多起死亡病例解剖、化驗和分析得出結論：新冠病毒是SARS病毒+艾滋病毒的總和。SARS病毒攻擊人的肺葉，艾滋病毒攻擊免疫系統。凡是患過新冠肺炎的人，即便核酸檢測成陰性，病毒也沒有完全消除，仍在較長時間內成爲無症狀病毒攜帶者。”
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13041325/Screenshot_2020-09-13-15-18-10-881_Discord-1.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13041452/Screenshot_2020-09-13-15-22-20-385_Discord-1.png)
 0

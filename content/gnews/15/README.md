@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【戰友點評】12位被送中港人家屬開記者招待會 哭訴被捕者音訊全無 拒絕中國「官派律師」港府無作為
-`2020-09-13 06:03 GM42` [轉載自GNews](https://gnews.org/zh-hant/351960/)
+## 【世界多語言圖文】2020/09/06 CCP病毒每日疫情直播簡報
+`2020-09-13 09:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/352393/)
 
-搜集：臺灣荔枝
-編撰：文燕、文悦
-點評：文燕、文悦
-覆核：文非
-後期製作：文粵
+戰友之家圖文摘要及小語種組
 
-十二日下午，在南海被廣東海警拘捕的 12 名港人家屬召開記者會，批評事發距今 21 日，被拘留者仍被「秘密關押、音訊全無」，更牽涉未成年人士。家屬提出 4 項要求：
-一、拒絕中國「官派律師」受理事件，要求安排委託律師與拘留者會面。現時已有6名 委託律師被拒絕與拘留者會面，當中2人已帶備中國公證書。
-二、拘留者當中有人有哮喘疾病，要求提供合適藥物予拘留人士。
-三、容許家屬聯絡拘留人士及准許拘留者者致電其家屬。
-四、要求香港政府確保拘留人士權利及人權保障，立即安排12名港人從中國接回香港
-新聞稿說，12 人被廣東海警拘捕後，家屬透過香港警方獲得《港澳居民被採取刑事強制措施情況通報表》，知道 12 人在深圳鹽田看守所被拘留。
-家屬有循正式途徑，委託中國律師前往看守所會見 12 港人，惟當局要求家屬辦理中國公證書才獲准會面。到目前為止，6 位家屬委託的律師被拒絕安排會面，「其中 2 位已帶備中國公證書」。當局亦聲稱，被拘留者已「委託」其他律師，即「官派律師」，而其中更有多人需日常服食藥物。「這意味著當局決心全面封鎖一切有關 12 港人的消息」。
+[English\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094829/English_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094829/English_0906_CCP_Virus_Updates.pdf)
+
+[French\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094833/French_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094833/French_0906_CCP_Virus_Updates.pdf)
+
+[German\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094816/German_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094816/German_0906_CCP_Virus_Updates.pdf)
+
+[Japanese\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094812/Japanese_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094812/Japanese_0906_CCP_Virus_Updates.pdf)
+
+[Korean\_0906\_ccp\_virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094820/Korean_0906_ccp_virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094820/Korean_0906_ccp_virus_Updates.pdf)
+
+[Spanish\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094825/Spanish_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094825/Spanish_0906_CCP_Virus_Updates.pdf)
 
 
-
-資料來源：立場新聞
 
 0
