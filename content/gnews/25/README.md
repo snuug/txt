@@ -1,65 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “我是音雄”第一季第四期–選手陣容
-`2020-09-12 12:11 GMusic` [轉載自GNews](https://gnews.org/zh-hant/350661/)
+## 閆博士揭底,打假雲南礦洞病毒事件! （德語German+中文Chinese）
+`2020-09-12 13:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/350816/)
 
-*我是音雄文字組天涯客， 然小哥，山上的城整理*
+德语标题：Dr. Yan enthüllt und bekämpft die gefälschte Theorie mit dem Minenhöhlenvirus in Yunnan!
 
-GTV“我是音雄”大型音樂滅共節目第一季第四期直播活動，即將於美東時間9月12日週六晚7點，北京時間9月13日週日早7點，正式火熱開播。本期是加拿大喜莊園主題，將有10名來自世界各地的參賽選手，2名補位選手，分享他們高昂的歌聲和不為人知的滅共心路歷程。
+德語翻譯：爱护女人和孩子 德語校對：MilaM(米拉猫)，平常心（文常心） 字幕： 文件夹
 
-在空中唱響discord 上，開闢了一個專門為“我是音雄”參賽選手展示和投票區，您可以為自己喜歡的選手投上寶貴的一票。
+視頻簡介
+閆麗夢博士在路德訪談節目中談論「雲南礦洞病毒議題」,中共試圖藉此引導人們去相信一個原本在蝙蝠身上的病毒跳到人身上,再慢慢地在人體、人群當中流行。 她明確地提出許多質疑,她指出為什麼有人敢把4991特定基因嵌入到舟山蝙蝠病毒內的原因,及為什麼石正麗自始至終也不怕別人到她實驗室去搜查。 最後也解釋這種病毒自然來源假說的各種利益勾兌。
 
-[https://discord.gg/AB9Xrrz](https://discord.gg/AB9Xrrz)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17115934/Music_paper2-3-e1598108824490.jpg)
-01 小輝美東農場
-
-要想喚醒國人，首先喚醒家人。這就是他做的，並且做到了。參與爆料革命三年多來，雖步履艱難但從不放棄，家人從懷疑反駁侮辱諷刺責備爭論，到最後看到真相堅定支持，並開始服用硫酸羥氯喹。家人的改變使他感動，也給了他更大的信心和勇氣。
-
-02 Estie 加拿大農場
-
-在國內沒見過陰暗面也沒受過打壓的她以前愛國愛黨不分，聽到有人批評中共就很難受。她先生的一句話讓她好奇感動“64以後我滅共的心就死了，文貴先生重新點燃了我的希望。” 她開始關注參與爆料革命，勇敢的向朋友傳播真相，身邊好友也成為了戰友。
-
-03 家駒2020 G-talent
-
-用歌聲向英雄科學家閆麗夢博士以及爆料革命獻上感恩。如果沒有這位美麗的天使和爆料革命，這個世界可能已經被毀滅了。感恩加感動，才有我們的歌聲和心聲。喜馬拉雅的後代會將今天發生的故事一代一代地傳下去。
-
-04 喜山必勝 美東香草山農場
-
-她是千萬個普通百姓中的一員，生活中的點滴讓她走上了爆料革命的反共之路。線下向身邊的朋友宣傳中共的惡行，線上在Twitter積極轉發揭露中共的推文，並用英文宣傳爆料革命和病毒真相。參加了724休斯頓抗議遊行並加入了美東香草山農場。
-
-05 庫克山
-
-2017年因為一個負面評論產生好奇進而接觸到爆料革命。從點贊，回复，到捐款，現在全家都跟隨支持，儘自己的能力傳播，讓家人和朋友了解爆料革命。也經常在微信上發一些隱晦的視頻。耳濡目染下就連七歲的孩子都會唱“願榮光歸香港”和“喜馬拉雅國歌”。
-
-06 A+藝術頻道澳喜農場
-
-因怕出現意外被消失，父母捐款後把銀行賬戶告訴她們。手機被監控常常出現異常，甚至遭到陌生人深夜敲門騷擾。帶著對郭先生及爆料革命的極大信心，她們才能堅持。今天她們用心唱出自己的心聲。
-
-07 摟住！摟住 日本富士會
-
-普通百姓家庭的他曾是政治小白，隨大流參加過89年遊行。日後漸漸認識到中共的邪惡。爆料革命讓他在絕望中看到希望。由於國內捐款極度困難，託海外親戚捐款。三年多的跟隨對自己最滿意的就是對七哥和爆料革命堅定的信心！
-
-08 Q大哥美東農場
-
-斷播門之前就關注郭先生的爆料革命，一路見證，三年如一日。他是GMedia第一批註冊者和法治基金第一批捐款者。後在“妄議熱線”介紹西方盟友QAnon 給華語社會，因此獲贈“Q大哥”稱號。感恩被神所用，能見證參與這個偉大的歷史變革。
-
-09 張螞蟻加拿大農場
-
-2017年看到郭先生在明鏡爆料慢慢走向支持爆料革命。從不敢點贊評論到註冊油管會員並與五毛PK。隨後看到香港孩子被打壓，就註冊了推特，每天轉發香港遊行。參加空中唱響團錄製歌曲“自由”。站起來發聲是為了成千上萬被中共破害的怨魂。
-
-10 文空 新西蘭農場
-
-通過爆料革命，對國內的奇怪現狀找到了答案。越發認識到爆料革命背後民意的力量。而香港人的抗爭更加激發了自己。給法制基金的捐款不只是金錢，更是對新中國聯邦的愛。一心想貢獻自己的力量，隨心創作了歌曲“摧毀”，讓音樂的子彈射向CCP。
-
-候補選手
-
-11 Scw 加拿大農場
-
-她是來自香港的中一學生，本來對政治沒感覺，直到親眼看見「警察」打人。反送中時看見師哥師姐連成人鏈非常感動，理大抗爭時很想去看哥哥姐姐，雖然自己做不了什麼。很想念那些被送走的哥哥姐姐，想告訴他們，right here waiting, 在這裡等他們回家。
-
-12 冠軍的後媽美西農場
-
-追隨爆料革命三年多，很幸運和媽媽都是爆料革命的戰友，得到媽媽很多支持。積極參與做義工和新聞稿件寫作。郭先生的滄海一聲笑讓她激動，唐平姐的歌讓她感動。愛唱歌的她要用自己的嗓音去講訴爆料革命的故事。
+Dr. Yan Limeng spricht in der Talkshow von Lude zum Thema des Minenhöhlenvirus von Yunnan. Die “Höhlentheorie” der Kommunistischen Partei Chinas ist ein Versuch, die Menschen glauben zu lassen, dass ein Virus, das ursprünglich in Fledermäusen gefunden wurde, auf Menschen gesprungen ist und sich dann langsam auf Menschen und die allgemeine Bevölkerung ausgebreitet hat. Es wirft eindeutig viele Fragen auf. Dr. Yan spricht auch an, warum jemand es wagen würde, ein bestimmtes Gen 4991 in das Zhoushanfledermaus-Virus einzubetten, und warum Shi Zhengli nie Angst davor hatte, in ihrem Labor durchsucht zu werden. Schließlich sprach Dr. Yan auch die verschiedenen Interessen der Hypothese des natürlichen Ursprungs des Virus an.
 
 0

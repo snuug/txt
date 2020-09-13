@@ -1,55 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黨衛軍會成為美國的巨大威脅嗎？
-`2020-09-12 16:41 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/351067/)
+## 澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭報導閆麗夢博士接受《Loose Women》採訪，將提供病毒來自中共實驗室證據
+`2020-09-12 18:58 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/351172/)
 
-*新聞來源：Foxnews《福克斯新聞》；作者：Kris Osborn | Warrior Maven；發佈時間：2020年9月7日*
+喜馬拉雅聯盟加拿大農場 熊媽媽
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12185114/666666666666.jpg)圖片來源：YouTube 
+9月12日，澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭媒體報導閆麗夢博士接受《Loose Women》採訪，表示SARS-CoV-2是在中共實驗室基於天然冠狀病毒人工製造的，並將提供病毒來自中共實驗室證據。
 
-*翻譯/簡評：Victory；校對：感恩；審核：海闊天空；Page：拱卒*
+閆博士表示，她將與美國領先的病毒學家合作發表多篇科學文章，其中將包含證據證明該病毒首先是在實驗室中產生的，其次是在中共政府擁有的武漢的實驗室中產生的。她說，這些文章的第一篇將在“幾天之內”發表。
 
-**簡評：**
+閆博士說，她去年是最早進行了COVID-19研究的成員之一。她堅持認為，關於去年在武漢一家海鮮市場出現這種病毒的廣泛報導是一種”煙幕”。
 
-文中五角大樓在戰術上很重視中共匪軍，這也體現了美軍極高的戰術素養。不過記得有個段子：全球空軍實力排名如下，第一美國空軍，第二美國海軍陸戰隊和海軍航空兵，第三美國空中國民警衛隊，之後才開始排其他國家空軍。
+當被問及造成全球90多萬人死亡的致命病毒來自哪裡時，閆博士在一個秘密地點的視頻中回答說：”它出現在武漢的一個實驗室，實驗室由中國政府控制。”
 
-先看看中共裝備的軍機，主要是依靠偷竊美國和俄羅斯技術為基礎發展的。中共殲-10是模仿F-16戰機；殲-11是模仿蘇-27；JF-17是米格-21的改版；艦載戰鬥機J-15飛鯊也是抄襲蘇聯戰機蘇33等等。事實上中共基礎工業還非常落後，即便抄襲東拼西湊生產出飛機，也都是徒有其表。據說遼寧號的艦載機問題頻發，單去年一年就摔下來10架，當然中共很快就封鎖了相關消息。
+“首先，在武漢的海鮮市場–是煙幕，這種病毒是不自然的，”閆說，並進一步解釋說，她收到了”來自中國的疾病預防控制中心及各地醫生的信息”。 ”
 
-除飛機本身，戰場上最關鍵的因素是飛行員素質。中共的演習軍費，想必將軍們不會真捨得拿來演習。對於戰爭而言，士氣更是非常重要。剛剛據中共“央視新聞客戶端”9月9日消息，中共黨中央、中央軍委批准《中國共產黨軍隊黨的建設條例》(以下簡稱《條例》)頒布。 《條例》明確了中國共產黨對軍隊絕對領導，以及軍隊實行軍委主席負責制等問題。該《條例》的頒布，反映出中共總書記、軍委主席習近平對軍隊的全面接管和掌控，中國軍隊已公開轉變為聽由中共習近平－人指揮的“私家軍”，已經徹底淪為不折不扣的中共“黨衛軍”！為中共這樣一個犯罪集團服務，士兵怎麼會有士氣？怎麼去戰鬥？怎麼能夠勝利？笑話而已。
+她在脫口秀節目中說，”基因組序列就像一個人的指紋，所以，基於它，你可以識別這些東西。我用證據告訴人們為什麼它來自中國的一個實驗室，為什麼他們是唯一做到這一點的人。”
 
-五角大樓：中共空軍迅速成為巨大威脅
+病毒學家說，“她計劃發表具有科學證據的文章，證明病毒是在武漢的一個實驗室製造的。任何人，甚至沒有生物學知識的人，都可以閱讀這篇文章。”
 
-![](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/ccc09196-76fa-44d3-9823-0175dfbbfdca.jpg?asset_id=f3987a68-8704-49ac-99aa-582a9d24c1d1&amp;img_etag=%22732a9124d9d7b268cf9bb30135ba091a%22&amp;size=2560)
+她解釋說，她現在之所以說這些是因為，”我知道，如果我不告訴世界真相，我會後悔的。”
 
-**據報導，中共解放軍空軍共裝備2500架飛機**
+閆博士還表示，在離開中國之前，她得知自己的信息已從政府數據庫中刪除。她告訴《Loose Women》，“他們刪除了我的所有信息，他們僱傭網絡水軍散播關於我是騙子的謠言。”
 
-新型攻擊無人機、第五代隱形戰鬥機、改裝的運輸機和俄羅斯製造的防空系統使中國空軍更加致命。事實上，所有這些進展都引起了美國戰爭規劃者的極大關注。
+武漢病毒研究所所長王延軼此前否認有關該病毒可能意外從其研究所洩露的報導。王延軼4月份對中國的官方媒體說：“這種病毒絕不是來自我們的。”
 
-![](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/0c32bc12-737b-4d0d-90c7-6267d99594a1.jpg?asset_id=fadd0d53-5212-45bb-84c0-8de6a12d8eb0&amp;img_etag=%22558a430f1257e237bf2e46a1dbd1b85b%22&amp;size=1024)美軍為何害怕中國的新型隱形戰鬥機、防空系統和無人機？
+回想一下，閆博士在4月從香港逃到美國。據她說，她為自己的生命而擔憂，並想向世界講述有關病毒起源的真相。她在2019年11月至12月進行的研究表明，該病毒會在人與人之間傳播，中共政府對世界撒謊，掩蓋病毒真相。
 
-據五角大樓《2020年中共國軍事力量報告》稱，中共解放軍空軍共裝備2500架飛機，是世界第三大空軍。
+在英雄科學家閆麗夢博士接受英國著名《Loose Women》節目採訪之後，9月12日，多國就此次採訪進行了跟踪報導，表達了震驚與期待，特別是閆博士提出的近幾日即將發布的“證明新冠病毒就是來自中共軍方實驗室的科學文章”，以及里面有“普通大眾可以看懂的像人體指紋一樣的基因組序列”。此次採訪就像在平靜的水面扔下一顆石子，波紋在持續不斷的向外擴散中，中共的謊言即將被戳穿。
 
-美國的威脅評估人員不僅擔憂中共空軍規模，還包括其日益成熟的技術和由此實施的多任務戰術。例如，作為討論中共空軍力量的一部分，報告指出，中共國擁有很先進的俄羅斯建造的S-400和S-500防空系統。
+參考鏈接：https://www.cqnews.com.au/news/chinese-defectors-shocking-virus-claim/4097902/
 
-這些世界領先的系統越來越多地使用網絡數字處理器、更快的計算機速度和更廣泛的頻率探測飛機。俄羅斯媒體報導稱，他們的防空系統甚至可以追踪隱形飛機，這一說法尚未得到官方證實。
+[https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8](https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8)
 
-[!\[\](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/370c78e7-81fd-459c-8b25-e9a6faf2103c.jpg?asset_id=384ac12d-7893-43cb-a58d-f35926e78999&amp;img_etag=%22f764940ffa59a79f1b76a5dc9cd6a794%22&amp;size=1024)](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/370c78e7-81fd-459c-8b25-e9a6faf2103c.jpg?asset_id=384ac12d-7893-43cb-a58d-f35926e78999&amp;img_etag=%22f764940ffa59a79f1b76a5dc9cd6a794%22&amp;size=1024) 2018年11月11日，在廣東珠海舉行的中共國航展第6天，中共空軍殲-20戰機進行了首次實彈空中演示。 （攝影/VCG 蓋蒂圖片）
+[https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme](https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme)
 
-對中共空軍的另一個擔憂是其快速增長的攻擊範圍。例如，中共運-20貨機可能會被配置成一架加油機，使中共戰鬥機的攻擊範圍擴大近一倍。技術上講，雖然美國空軍的KC-46加油機肯定不同於其c -130，但將大型運輸機Y-20改裝成加油機技術上並不困難。
+[https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1](https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1)
 
-這不僅便於發動對台灣的潛在攻擊，而且能大規模地擴展中共國從大陸觸及到南中國海的更多區域。雖然許多中共戰鬥機單次出擊範圍可到達台灣，但擴大作戰半徑不僅會增加偵察選項，還能使在台灣上空搜尋目標的戰鬥機延長其“停留時間”。
-
-因為具備自海上執行更遠距離、更大範圍作戰任務的能力，此類型的大型加油機也可能極大地提高中共國航母的兵力投送能力。
-
-中共正在努力建造在國內使用的北京J-31隱形戰鬥機的改型艦載機型，使得這種可能性進一步增強。這樣一個被中共報紙稱為J-31B的平台，使海戰擁有第五代隱形戰機攻擊力，類似於美國的F-35B和F-35C。
-
-這些因素很可能只是美國空軍不斷尋求加速現代化和大規模擴增的眾多原因之一。許多空軍高級將領表示非常關切的不僅是部隊老化並需要改進維護的問題，還包括尚不足以滿足全球前線部署的戰鬥指揮官提出的作戰需求。空軍領導持續要求增加空軍中隊數量到386個中隊，該要求是幾年前首次提出的。
-
-[!\[\](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/48f81151-51cc-4e55-b887-5cd6df84b798.jpg?asset_id=0a38f8f8-3549-4727-a5a4-61e53ed2f53a&amp;img_etag=%224bfc3ac5e9f583b86ee9993bafed2ef4%22&amp;size=1024)](https://spark.adobe.com/page/hcxrxTsb4EvqB/images/48f81151-51cc-4e55-b887-5cd6df84b798.jpg?asset_id=0a38f8f8-3549-4727-a5a4-61e53ed2f53a&amp;img_etag=%224bfc3ac5e9f583b86ee9993bafed2ef4%22&amp;size=1024)五角大樓稱中共空軍”迅速追趕”西方空軍。
-
-雖然許多人認為目前的努力不足以應對威脅，但美國空軍平台正在進行一些有力的維護活動。 F-15繼續改進新武器、雷達和高速計算機系統以確保這款1980年代的飛機能夠保持優於中共第四代殲十（J-10）。此外，空軍最近完成了F-22武器的軟件升級，以提高射程、制導和精度。另外，服務部門正在重新配置老化的c -130機隊的一些翼盒，並且大量的升級已經使著名的B-2轟炸機比它最初型號先進得多。 B-2正在安裝新型防空警報傳感器、升級的武器和大幅提升的計算機處理速度，以及其他部件。
-
-[原文鏈接](https://www.foxnews.com/tech/pentagon-chinese-air-force-fast-becoming-massive-threat)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/hcxrxTsb4EvqB/)
+[https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm\_medium =twitter&utm\_content=Nieuws&utm\_source=dlvr.it&referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1](https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm_medium=twitter&amp;utm_content=Nieuws&amp;utm_source=dlvr.it&amp;referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1)
 
 0

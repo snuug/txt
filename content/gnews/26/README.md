@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 828渥太華/多倫多/溫哥華三地反共示威遊行的回顧宣傳片
-`2020-09-12 12:11 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/350678/)
+## 【世界多語言圖文】2020/09/05 CCP病毒每日疫情直播簡報
+`2020-09-12 13:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/350683/)
 
-喜馬拉雅聯盟加拿大農場Nancy凱路視頻組
+戰友之家圖文摘要及小語種組
 
-文案：文錦
+[English\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)
 
-繼2020年7月27日參與首次全球聯合滅共示威後，加拿大農場數百名戰友摩拳擦掌，8月28日再次出征，分別在多倫多、溫哥華中共總領館前進行全球聯動滅共大遊行。
+[French\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)
 
-七芒星藍色大旗再次飄揚，前面是頻頻鳴笛致敬的車流，背後是惶恐不安的中共，中間佇立著有著堅定信仰的勇敢戰友，向加拿大民眾揭露中共邪惡、傳播中共病毒真相、展現了新中國聯邦新中國人的新形象。
+[German\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)
 
-爆料革命秉承上天的使命，站在你們面前，向邪惡的中共說不！ ！ ！我們不承認這個非民選、非法的恐怖組織、邪教集團來執掌中國的政權。中國人民不需要你，世界人民不需要你！你們用謊言、暴力愚弄全世界，收買西方政客、干擾他國政治、破壞各國民主！你們可以掩蓋一時，但現在人神共憤，必將天誅地滅！
+[Korean\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)
 
-全世界華人越來越看清中共的本質，邪惡的中共，你聽到人們憤怒的吶喊了吧！共產黨，你們的謊言終將被揭穿，惡行終將被審判！中共不等於中國人，共產黨不等於中國！全世界人民越來越看清是中共企圖把全體中國人牢牢地綁在自己的戰車上，企圖拉十多億百姓一同墮入地獄。
+[Russian\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)
 
-爆料革命戰友、新中國聯邦公民和全世界的反共力量會團結在一起，揭露中共的邪惡和陰謀。邪惡的中國共產黨，今天我們就站在你們面前，誓要戰鬥到底！永不放棄!
+[Spanish\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)
+
+
 
 0

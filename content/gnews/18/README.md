@@ -1,16 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士揭底,打假雲南礦洞病毒事件! （德語German+中文Chinese）
-`2020-09-12 13:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/350816/)
+## 中共國及世界是否處於重大糧食短缺的&#8221;邊緣&#8221;?
+`2020-09-12 14:52 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/350892/)
 
-德语标题：Dr. Yan enthüllt und bekämpft die gefälschte Theorie mit dem Minenhöhlenvirus in Yunnan!
+*新聞來源：zerohedge《零對沖》；作者：Tyler Durden；發佈時間：2020年9月6日*
 
-德語翻譯：爱护女人和孩子 德語校對：MilaM(米拉猫)，平常心（文常心） 字幕： 文件夹
+*翻譯/簡評：Cathy r；校對：1818；審核：海闊天空；Page：拱卒*
 
-視頻簡介
-閆麗夢博士在路德訪談節目中談論「雲南礦洞病毒議題」,中共試圖藉此引導人們去相信一個原本在蝙蝠身上的病毒跳到人身上,再慢慢地在人體、人群當中流行。 她明確地提出許多質疑,她指出為什麼有人敢把4991特定基因嵌入到舟山蝙蝠病毒內的原因,及為什麼石正麗自始至終也不怕別人到她實驗室去搜查。 最後也解釋這種病毒自然來源假說的各種利益勾兌。
+**簡評：**
 
-Dr. Yan Limeng spricht in der Talkshow von Lude zum Thema des Minenhöhlenvirus von Yunnan. Die “Höhlentheorie” der Kommunistischen Partei Chinas ist ein Versuch, die Menschen glauben zu lassen, dass ein Virus, das ursprünglich in Fledermäusen gefunden wurde, auf Menschen gesprungen ist und sich dann langsam auf Menschen und die allgemeine Bevölkerung ausgebreitet hat. Es wirft eindeutig viele Fragen auf. Dr. Yan spricht auch an, warum jemand es wagen würde, ein bestimmtes Gen 4991 in das Zhoushanfledermaus-Virus einzubetten, und warum Shi Zhengli nie Angst davor hatte, in ihrem Labor durchsucht zu werden. Schließlich sprach Dr. Yan auch die verschiedenen Interessen der Hypothese des natürlichen Ursprungs des Virus an.
+民以食為天，糧食危機不僅在中共國顯露，隨著新冠疫情發展，經濟下滑，如果中共國出現了糧食危機，全世界的糧食供應鏈都會受到不利影響，隨之而來的就是糧食價格的上漲，各國可能都會出現糧食短缺，甚至在局部地區出現大饑荒。由此世界各地人民都可能爆發對政府的抗議活動，全世界會陷入動盪不安的局面。現在全球各國都處在秩序重置的前夜，人們不得不面對縱容中共多年帶來的深刻影響。
+
+中共國是否處於重大糧食短缺的”邊緣”?
+
+中共國最近發起“光盤運動”，目標是阻止人們浪費食物，因為對全球糧食短缺的猜測越來越多。
+
+習近平主席在病毒大流行後推出了遏制食物浪費的新措施，稱那些在社交媒體上吃播的人是“令人震驚和痛心的” 。
+
+![](https://spark.adobe.com/page/IZtH0HZf5gZk9/images/7c1b3ff2-f945-47ef-aef5-24c366b492ae.jpg?asset_id=22c31915-3fc0-491a-afb9-59e9502b707b&amp;img_etag=%227ff68b7c368645309e0e3dd7d3465122%22&amp;size=2560)太嚴格還是不夠嚴格？最近美國有線新聞網(CNN)的一篇文章說，“獨裁”中共國希望用其新的“光盤”運動來控制人 們吃什麼，但也表明這一運動不夠具體。這太讓*人摸不著頭腦了！似乎中共國做什麼都不對！*
+
+習近平說，中共國必須在新冠病毒疫情下”保持對糧食安全的危機感”。發出這個警告之際，這個世界第二大經濟體可能很快就會面臨糧食短缺。除了病毒引起的經濟衰退擾亂食品供應鏈外，還有乾旱、洪水和害蟲，這些都可能導致今年糧食歉收。
+
+中共國國家通訊社《環球時報》淡化了中共國將面臨糧食危機的概念。中共國的一些餐館限制了提供給食客的菜餚數量，而另一些餐館在點菜前給顧客稱重。
+
+
+
+據中國科學院和世界野生動物基金會發表的一項研究顯示，中共國每年浪費的食物足以養活3000萬至5000萬人。中共政府對食物浪費的突然打擊表明，糧食短缺可能即將到來：
+
+*但這場運動（光盤運動）引發了人們對中共國可能面臨糧食短缺的猜測，儘管官方媒體迅速試圖阻止對糧食短缺迫在眉睫的恐慌，據報導中共國最近連續豐收，糧食產量創歷史新高。*
+
+*但隨著這次疫情，消費水平已降低，中共國緩解國內任何方面短缺的選擇是有限的。*
+
+*補貼生產可能會違反世界貿易組織的規定，這可能會加劇與美國之間的緊張關係。*
+
+*這將意味著中共國，已經是世界上最大的糧食進口國，需要尋求增加進口以滿足需求。*
+
+*這隨後可能會對全球價格產生連鎖反應。 ——《農民衛報》*
+
+“適應2030”網站的大衛·杜伯恩(David Du Byne)提出了另一種觀點，即什麼可能會導致天氣惡化，給全球食品供應鏈帶來壓力。他說，在未來的太陽週期中，太陽能量輸出的減少將對地球氣候產生深刻的變化，並可能導致更差的糧食收成。
+
+![](https://spark.adobe.com/page/IZtH0HZf5gZk9/images/0b7eafa1-1704-4a30-a85c-e0f5e28d875d.png?asset_id=ab5660e4-0034-49b9-867a-c9a2975f01c5&amp;img_etag=%224db5c19dbee9b008e702c499717b871b%22&amp;size=2560)
+
+杜伯恩說，“全球糧食生產” 不可能養活所有人，中共國已經出現了食品供應鏈的裂縫……
+
+*中共國現在承認出現了糧食危機，就在這一周，美國農業部開始從農民手中購買剩餘作物到糧食儲備銀行。宇宙射線正在增加到自1810年道爾頓最小值（DaltonMinimum）以來沒有測量到的水平。 ——杜伯恩*
+
+視頻: 你正在接受糧食短缺的訓練
+
+
+
+讀者可能還記得，聯合國在8月下旬警告說，為了防止出現一場威脅世界大部分地區的“聖經描述的飢荒“，需要數十億美元的緊急資金，
+
+糧食短缺最終將導致糧價飛漲。考慮到美聯儲貨幣政策的新轉變，一些可能令美聯儲興奮的事情為通脹遠高於2%的目標鋪平了道路。正如我們在2011年指出的，美聯儲認為，考慮到技術價格正在變得越來越便宜，食品價格上漲並不是一個令人擔憂的問題。
+
+正如我們在2014年所解釋的，生活成本對家庭來說越來越昂貴。以低收入家庭為例，家庭中的成員從事低工資的工作；多年來不斷上漲的食品、住房、教育和醫療費用使他們陷入了沒有儲蓄和無法克服的債務的危險境地。
+
+央行行長們不能印出的一件事是食品——如果中共國和其它地方的短缺變得更加嚴重，導致隨著新冠病毒疫情和經濟衰退的繼續，食品價格的飆升失控，那麼世界各地將會有很多飢餓的人。只有到了那時，下一輪全球抗議才可能壓倒各國政府和央行行長，因為他們意識到“你不可能吃一個ipad”。
+
+**全球（秩序）重置即將到來。**
+
+[原文鏈接](https://www.zerohedge.com/commodities/china-brink-major-food-shortage)
+
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/IZtH0HZf5gZk9/)
 
 0

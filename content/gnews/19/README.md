@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/05 CCP病毒每日疫情直播簡報
-`2020-09-12 13:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/350683/)
+## 【香港要聞精選】【引章摘句】建制派盡顯奴才本色 為僭越司法鳴鑼開道
+`2020-09-12 14:52 GM42` [轉載自GNews](https://gnews.org/zh-hant/350907/)
 
-戰友之家圖文摘要及小語種組
+製作單位：戰友之家-粵語組
+評述：卡西歐
+整理：卡西歐
+後期製作：文粵
 
-[English\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)
-
-[French\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)
-
-[German\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)
-
-[Korean\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)
-
-[Russian\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)
-
-[Spanish\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)
+港共奴才貫徹執行黨意志，黨報喉舌口誅筆伐指控法官，衝擊法治基石。當法治的崩壞，帶來其後果，失去的豈止所謂『一國兩制』，而是整個香港的所有一切。
 
 
+
+引章摘句
+ 民建聯周浩鼎稱向林鄭建議參考美國及英國成立量刑委員會。他批評法庭對抗爭者量刑過輕，當中有很多主觀因素，令人誤會是否鼓吹違法抗爭，損害公眾對法治的信任。有必要制訂一套令人信服的量刑指引供法庭依據。被問及量刑委員會的詳細安排，周浩鼎指委員會可由法律界人士及非法律界人士合組，工作包括制定讓量刑指引及諮詢公眾。
+ 《大公報》社評昨以「司法機權要有自我改革的勇氣」為題，直指何前日裁定一名藏有噴漆及雷射筆學生罪名不成立，是「一再放生黑暴被告」，裁決時彷彿忘記法官身份、變身被告的「辯護律師」，並指所謂「疑點利益」成無罪釋放理由，形容「警方抓人、法官放人」又上演。
+ 上述黨報社論以「對法治威脅最大的不是外在因素，而在司法機構本身」作結，批評司法機構若不自我革新，「遲早有被改革的一天。」《文匯報》以「何俊堯再『發功』 17歲男兩罪竟脫罪」為題報道此案，更指「何俊堯被外界質疑有政治傾向及裁決偏頗」。
+ 除了社評外，《大公》亦刊出全國港澳研究會理事顧敏康的文章指出，別輕視裁判官何俊堯調任，「因為何官不僅被加薪，而且對有關修例風波案件的安排有決定權。司法機構如此作為，如何令人信服？」
+ 法律界人士不諱言，憂慮無理批評法官風氣持續，必對法庭及司法機會造成壓力。而時事評論員劉銳紹分析，建制派指控法官不公絕非按案情，批評法官只是政治手段。
+
+
+
+資料來源：香港獨立媒體/立場新聞
+
+[https://www.inmediahk.net/node/1077263](https://www.inmediahk.net/node/1077263)
+
+[https://www.thestandnews.com/politics/%E4%B8%AD%E8%81%AF%E8%BE%A6%E5%AA%92%E9%AB%94%E7%B9%BC%E7%BA%8C%E7%8B%99%E6%93%8A%E8%A3%81%E5%88%A4%E5%AE%98%E4%BD%95%E4%BF%8A%E5%A0%AF-%E5%A4%A7%E5%85%AC%E7%A4%BE%E8%A9%95-%E5%86%8D%E6%94%BE%E7%94%9F%E9%BB%91%E6%9A%B4%E8%A2%AB%E5%91%8A-%E9%A6%99%E6%B8%AF%E5%8F%B8%E6%B3%95%E6%81%A5%E8%BE%B1/](https://www.thestandnews.com/politics/%E4%B8%AD%E8%81%AF%E8%BE%A6%E5%AA%92%E9%AB%94%E7%B9%BC%E7%BA%8C%E7%8B%99%E6%93%8A%E8%A3%81%E5%88%A4%E5%AE%98%E4%BD%95%E4%BF%8A%E5%A0%AF-%E5%A4%A7%E5%85%AC%E7%A4%BE%E8%A9%95-%E5%86%8D%E6%94%BE%E7%94%9F%E9%BB%91%E6%9A%B4%E8%A2%AB%E5%91%8A-%E9%A6%99%E6%B8%AF%E5%8F%B8%E6%B3%95%E6%81%A5%E8%BE%B1/)
 
 0
