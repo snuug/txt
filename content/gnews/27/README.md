@@ -1,67 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共國及世界是否處於重大糧食短缺的&#8221;邊緣&#8221;?
-`2020-09-12 14:52 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/350892/)
+## 澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭報導閆麗夢博士接受《Loose Women》採訪，將提供病毒來自中共實驗室證據
+`2020-09-12 18:58 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/351172/)
 
-*新聞來源：zerohedge《零對沖》；作者：Tyler Durden；發佈時間：2020年9月6日*
+喜馬拉雅聯盟加拿大農場 熊媽媽
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12185114/666666666666.jpg)圖片來源：YouTube 
+9月12日，澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭媒體報導閆麗夢博士接受《Loose Women》採訪，表示SARS-CoV-2是在中共實驗室基於天然冠狀病毒人工製造的，並將提供病毒來自中共實驗室證據。
 
-*翻譯/簡評：Cathy r；校對：1818；審核：海闊天空；Page：拱卒*
+閆博士表示，她將與美國領先的病毒學家合作發表多篇科學文章，其中將包含證據證明該病毒首先是在實驗室中產生的，其次是在中共政府擁有的武漢的實驗室中產生的。她說，這些文章的第一篇將在“幾天之內”發表。
 
-**簡評：**
+閆博士說，她去年是最早進行了COVID-19研究的成員之一。她堅持認為，關於去年在武漢一家海鮮市場出現這種病毒的廣泛報導是一種”煙幕”。
 
-民以食為天，糧食危機不僅在中共國顯露，隨著新冠疫情發展，經濟下滑，如果中共國出現了糧食危機，全世界的糧食供應鏈都會受到不利影響，隨之而來的就是糧食價格的上漲，各國可能都會出現糧食短缺，甚至在局部地區出現大饑荒。由此世界各地人民都可能爆發對政府的抗議活動，全世界會陷入動盪不安的局面。現在全球各國都處在秩序重置的前夜，人們不得不面對縱容中共多年帶來的深刻影響。
+當被問及造成全球90多萬人死亡的致命病毒來自哪裡時，閆博士在一個秘密地點的視頻中回答說：”它出現在武漢的一個實驗室，實驗室由中國政府控制。”
 
-中共國是否處於重大糧食短缺的”邊緣”?
+“首先，在武漢的海鮮市場–是煙幕，這種病毒是不自然的，”閆說，並進一步解釋說，她收到了”來自中國的疾病預防控制中心及各地醫生的信息”。 ”
 
-中共國最近發起“光盤運動”，目標是阻止人們浪費食物，因為對全球糧食短缺的猜測越來越多。
+她在脫口秀節目中說，”基因組序列就像一個人的指紋，所以，基於它，你可以識別這些東西。我用證據告訴人們為什麼它來自中國的一個實驗室，為什麼他們是唯一做到這一點的人。”
 
-習近平主席在病毒大流行後推出了遏制食物浪費的新措施，稱那些在社交媒體上吃播的人是“令人震驚和痛心的” 。
+病毒學家說，“她計劃發表具有科學證據的文章，證明病毒是在武漢的一個實驗室製造的。任何人，甚至沒有生物學知識的人，都可以閱讀這篇文章。”
 
-![](https://spark.adobe.com/page/IZtH0HZf5gZk9/images/7c1b3ff2-f945-47ef-aef5-24c366b492ae.jpg?asset_id=22c31915-3fc0-491a-afb9-59e9502b707b&amp;img_etag=%227ff68b7c368645309e0e3dd7d3465122%22&amp;size=2560)太嚴格還是不夠嚴格？最近美國有線新聞網(CNN)的一篇文章說，“獨裁”中共國希望用其新的“光盤”運動來控制人 們吃什麼，但也表明這一運動不夠具體。這太讓*人摸不著頭腦了！似乎中共國做什麼都不對！*
+她解釋說，她現在之所以說這些是因為，”我知道，如果我不告訴世界真相，我會後悔的。”
 
-習近平說，中共國必須在新冠病毒疫情下”保持對糧食安全的危機感”。發出這個警告之際，這個世界第二大經濟體可能很快就會面臨糧食短缺。除了病毒引起的經濟衰退擾亂食品供應鏈外，還有乾旱、洪水和害蟲，這些都可能導致今年糧食歉收。
+閆博士還表示，在離開中國之前，她得知自己的信息已從政府數據庫中刪除。她告訴《Loose Women》，“他們刪除了我的所有信息，他們僱傭網絡水軍散播關於我是騙子的謠言。”
 
-中共國國家通訊社《環球時報》淡化了中共國將面臨糧食危機的概念。中共國的一些餐館限制了提供給食客的菜餚數量，而另一些餐館在點菜前給顧客稱重。
+武漢病毒研究所所長王延軼此前否認有關該病毒可能意外從其研究所洩露的報導。王延軼4月份對中國的官方媒體說：“這種病毒絕不是來自我們的。”
 
+回想一下，閆博士在4月從香港逃到美國。據她說，她為自己的生命而擔憂，並想向世界講述有關病毒起源的真相。她在2019年11月至12月進行的研究表明，該病毒會在人與人之間傳播，中共政府對世界撒謊，掩蓋病毒真相。
 
+在英雄科學家閆麗夢博士接受英國著名《Loose Women》節目採訪之後，9月12日，多國就此次採訪進行了跟踪報導，表達了震驚與期待，特別是閆博士提出的近幾日即將發布的“證明新冠病毒就是來自中共軍方實驗室的科學文章”，以及里面有“普通大眾可以看懂的像人體指紋一樣的基因組序列”。此次採訪就像在平靜的水面扔下一顆石子，波紋在持續不斷的向外擴散中，中共的謊言即將被戳穿。
 
-據中國科學院和世界野生動物基金會發表的一項研究顯示，中共國每年浪費的食物足以養活3000萬至5000萬人。中共政府對食物浪費的突然打擊表明，糧食短缺可能即將到來：
+參考鏈接：https://www.cqnews.com.au/news/chinese-defectors-shocking-virus-claim/4097902/
 
-*但這場運動（光盤運動）引發了人們對中共國可能面臨糧食短缺的猜測，儘管官方媒體迅速試圖阻止對糧食短缺迫在眉睫的恐慌，據報導中共國最近連續豐收，糧食產量創歷史新高。*
+[https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8](https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8)
 
-*但隨著這次疫情，消費水平已降低，中共國緩解國內任何方面短缺的選擇是有限的。*
+[https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme](https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme)
 
-*補貼生產可能會違反世界貿易組織的規定，這可能會加劇與美國之間的緊張關係。*
+[https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1](https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1)
 
-*這將意味著中共國，已經是世界上最大的糧食進口國，需要尋求增加進口以滿足需求。*
-
-*這隨後可能會對全球價格產生連鎖反應。 ——《農民衛報》*
-
-“適應2030”網站的大衛·杜伯恩(David Du Byne)提出了另一種觀點，即什麼可能會導致天氣惡化，給全球食品供應鏈帶來壓力。他說，在未來的太陽週期中，太陽能量輸出的減少將對地球氣候產生深刻的變化，並可能導致更差的糧食收成。
-
-![](https://spark.adobe.com/page/IZtH0HZf5gZk9/images/0b7eafa1-1704-4a30-a85c-e0f5e28d875d.png?asset_id=ab5660e4-0034-49b9-867a-c9a2975f01c5&amp;img_etag=%224db5c19dbee9b008e702c499717b871b%22&amp;size=2560)
-
-杜伯恩說，“全球糧食生產” 不可能養活所有人，中共國已經出現了食品供應鏈的裂縫……
-
-*中共國現在承認出現了糧食危機，就在這一周，美國農業部開始從農民手中購買剩餘作物到糧食儲備銀行。宇宙射線正在增加到自1810年道爾頓最小值（DaltonMinimum）以來沒有測量到的水平。 ——杜伯恩*
-
-視頻: 你正在接受糧食短缺的訓練
-
-
-
-讀者可能還記得，聯合國在8月下旬警告說，為了防止出現一場威脅世界大部分地區的“聖經描述的飢荒“，需要數十億美元的緊急資金，
-
-糧食短缺最終將導致糧價飛漲。考慮到美聯儲貨幣政策的新轉變，一些可能令美聯儲興奮的事情為通脹遠高於2%的目標鋪平了道路。正如我們在2011年指出的，美聯儲認為，考慮到技術價格正在變得越來越便宜，食品價格上漲並不是一個令人擔憂的問題。
-
-正如我們在2014年所解釋的，生活成本對家庭來說越來越昂貴。以低收入家庭為例，家庭中的成員從事低工資的工作；多年來不斷上漲的食品、住房、教育和醫療費用使他們陷入了沒有儲蓄和無法克服的債務的危險境地。
-
-央行行長們不能印出的一件事是食品——如果中共國和其它地方的短缺變得更加嚴重，導致隨著新冠病毒疫情和經濟衰退的繼續，食品價格的飆升失控，那麼世界各地將會有很多飢餓的人。只有到了那時，下一輪全球抗議才可能壓倒各國政府和央行行長，因為他們意識到“你不可能吃一個ipad”。
-
-**全球（秩序）重置即將到來。**
-
-[原文鏈接](https://www.zerohedge.com/commodities/china-brink-major-food-shortage)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/IZtH0HZf5gZk9/)
+[https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm\_medium =twitter&utm\_content=Nieuws&utm\_source=dlvr.it&referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1](https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm_medium=twitter&amp;utm_content=Nieuws&amp;utm_source=dlvr.it&amp;referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1)
 
 0

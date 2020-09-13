@@ -1,43 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自然雜誌：疫苗研製 解放軍“異軍”突起？
-`2020-09-12 14:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/350862/)
+## 世纪大案0：引子 L&#8217;affaire du siècle 0: le début ( CN/FR)
+`2020-09-12 17:39 xiaopijiang` [轉載自GNews](https://gnews.org/zh-hant/351099/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12142032/image1-1.jpeg)
-近日，自然雜誌發表了一篇名為《新冠病毒疫苗顯示軍方在醫學研究中的作用日益增強》的文章。文中指出作為世界上最大的武裝力量，中國人民解放軍並不以尖端的醫學研究著稱。但自2015年以來，作為其軍事現代化戰略的一部分，它加大了對科學家的招聘力度，並擴大了對該領域的投資。
+作者：美东香草山农场文艺组 Tiffany的早餐
+Auteur: Le petit déjeuné du Tiffany du Groupe littérature et art de MOS HIMALAYA
+法语翻译：皮尔 （VOH 法语翻译组）法语校对：Marie （VOH 法语翻译组）
+Traduction: Pierre (Groupe français du VOH) Relecture: Marie (Groupe français du VOH)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12173816/14-1.jpg)
+2020年8月31日，美国司法部发布声明，宣布一位夏威夷商界人士Nickie Davis女士认罪，罪名是对1MDB案调查工作和对一位中国籍人士遣返的非法游说（相关资料链接：Hawaii Businesswoman Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China， [https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb](https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb)）。
 
-**“異軍”突起**
+Le 31 août 2020, le ministère de la justice des États-Unis a publié une déclaration annonçant qu’une femme d’affaires hawaïenne, Mme Nickie Davis, avait plaidé coupable de lobbying illégal dans le cadre de l’enquête sur l’affaire 1MDB et de l’expulsion d’un ressortissant chinois. (Lien vers les informations connexes : https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb).
 
-近期，陳薇領銜的疫苗研製對外宣稱取得進展，疫苗的研製得到了許多政府部門、大學的幫助。於此同時，解放軍與醫學公司之間的關係加速發展，如天津生物製藥公司康希諾參與疫苗研製。 3月以來，解放軍一直與生產消毒和醫療設備的北京誠益通控制工程科技公司進行合作。除了在病毒疫苗的研究中的重要角色，解放軍也在其他方面起到“突出作用”，如向多國提供醫療援助，並利用疫苗與各國建立了新的聯繫。這些引起了世界專家的注意。
+有趣的是，对此案关注最多的却是在地球另一边万里之遥的中国。两百多年世世代代的成熟民主生活，文明的思维方式，使美国人对政治的敏感性很低，极少能有人敏锐地认识到，司法部以及其背后的Trump行政分支，为这次史诗般的世纪大案祭出了第一位降将——全球知名的lobbyist，中文翻译为“说客”（一些特殊“说客”则扮演了“睡客”的角色）——Nickie M. L. Davis女士。
 
-紐約的波基普西市瓦薩學院（Vassar College）研究中國生物技術產業的阿比蓋爾·科普林（Abigail Coplin）表示：“中國絕對是從公關的角度利用這次危機。”研究解放軍的澳大利亞國立大學中國問題專家亞當·尼（Adam Ni）認為，如果中共在疫苗方面取得進展，“這（對中共）的輿論宣傳是一個相當大的勝利”。在中美關係日益緊張的背景下，中共解放軍在科技轉型過程中的規模與速度讓人感到擔憂。
+Il est intéressant de noter que à l’autre bout de la planète, c’est la Chine, qui accorde le plus d’attention à cette affaire. Ayant une démocratie de plus de deux cents ans et une manière de pensée civilisée, les Américains sont peu sensibles à la politique et peu de gens sont conscients que le ministère de la Justice et l’administration de Trump ont dévoilé le premier personnage de cette affaire la plus épique du siècle :
 
-**軍民融合**
+– la lobbyiste de renommée mondiale, Mme Nickie L. Davis.
 
-2015年之前，解放軍主要從內部或軍事大學中招募科學家，部分原因是軍事研究職位不具有吸引力，不如民間機構靈活。但是自2018年以來，解放軍開始在民間大量招募科學家，尤其是加大了對醫學家的招聘。倫敦國際戰略研究所凱琳泰（Kai Lin Tay）發布的分析表明，自2018年以來，軍事醫學科學院已經招募了213名平民擔任科研職位，招聘人數之多，位居軍事科學院10個研究機構中第二名。
+此时此刻，美国人在生物武器的攻击下昏头昏脑地过了半年。疫情、病痛、死亡、恐惧；明尼苏达州的George Floyd死于警察执法的新闻带来的黑命贵(Black Lives Matter)运动；美国人的生活中莫名奇妙地出现了骚乱，死于骚乱的警民远远超过了Floyd的个案，而偏偏在最不应该大规模群众集会的疫情期间——显然黑命鬼运动刺激了疫情的大幅增长；民主党在极左的道路上狂奔，政治精英带头在国会下跪，民主党全国大会连续进行多日，政治大佬和政治新星们纷纷上台献艺，你方唱罢我登场，却没有人提到CCP。
 
-作為中國政府在2015年宣布的”軍民融合”政策的一部分，軍方也在加強與中國普通大學的聯繫。解放軍的定向研究生在普通大學越來越普遍了，軍民融合戰略將生物學作為優先研究領域。解放軍還通過向國外派遣研究人員來增強其學術專長。
+À ce jour, les Américains ont passé six mois sonnés par l’attaque d’ armes biologiques. Épidémies, maladie, mort, peur ; le mouvement Black Lives Matters provoqué par la mort de George Floyd au Minnesota; les émeutes qui ont causé de nombreuses morts et d’importants nouveaux cas de contamination du Covid-19. Les démocrates se déchaînent vers l’extrême gauche, les élites politiques montrent la voie en s’agenouillant au Congrès, la Convention nationale démocrate se poursuit pendant des jours, des personnalités politiques de premier plan et des étoiles montantes de la politique montent sur scène à tour de rôle. Cependant, personne ne parle du PCC.
 
-在新美國安全中心研究中共軍事戰略的的艾爾莎·卡尼亞（Elsa Kania）說，解放軍重新關注科學，有助於推進現有的軍事研究項目，特別是在腦科學方面。 2018年，解放軍神經學專家發表了一篇評論，概述了軍事腦科學如何影響未來的戰爭，例如，利用腦-機接口來提高士兵的能力，以及對敵國進行心理戰。
+CCP——它红色的血旗和百年来的言行令人想起圣经启示录中的红龙——和所有美国人面临的困境和疑惑都有直接关系，此刻它正在盘算着下一个阴谋——征服美国，统治世界。
 
-**自主研發？**
+Le PCC – avec son drapeau rouge et sa doctrine et ses actes vieux d’un siècle faisant penser au dragon rouge dans l’Apocalypse de la Bible – a un lien direct avec les difficultés et les doutes auxquels sont confrontés tous les Américains, et en ce moment même, il prépare sa prochaine conspiration : conquérir l’Amérique et diriger le monde.
 
-在過去的幾個月裡，美國安全官員透露，中共試圖監視和竊取從事疫苗研究的美國製藥公司和大學的研究成果。
+此次此刻，在中文世界，有一位喜爱健身的直播播主郭文贵(Miles Guo)先生正在一边品尝美食，一边点评世界的未来；一位勤奋的主播路德先生，正在每天早晚两集制作评论节目，为十几亿中文观众群体点评CCP的邪恶。在英文世界，特立独行的Steve K. Bannon先生刚刚从纽约南区法院获得保释，回到他在华盛顿的War Room节目，继续唤醒沉睡的美国人。在普通人无法看见的地方，是这场世纪大战的名将们：总统Donald J. Trump，副总统、国务院、国防部、国家安全委员会、国家经济顾问，参众两院已经觉醒的议员们……
 
-7月，美國司法部（US Justice Department）起訴兩名中國公民在三個進行疫苗研究的美國實體從事間諜活動。美國生物技術公司莫德納（Moderna），在冠狀病毒疫苗研究處於領先地位，告訴路透社，它是黑客攻擊的目標之一。中國官員否認有任何參與。艾爾莎·卡尼亞認為：“技術轉移明顯是中國政府最高層的政策和優先事項，涉及到相當駭人聽聞的黑客事件，目的是竊取數據。” “這種行為方式，無論其規模和範圍，還有這些事件的嚴重性以及它對基本科學和商業準則的破壞，都是中國特有的。”
+En ce moment, dans le monde chinois, le radiodiffuseur M. Miles Guo est en train d’avertir le monde; un autre Youtubeur très assidu, M. Lude, est en train de faire des émissions deux fois par jour, matin et soir, exposant les maux provoqués par le PCC auprès d’un milliard d’internautes chinois.
 
-**國際舞台**
+Dans le monde anglophone, Steve K. Bannon au fameux franc-parler vient d’être libéré sous caution par le District Sud de New York et revient à son émission War Room à Washington, D.C., continuant à réveiller le peuple américain concernant le PCC.
 
-疫情為中國在國際舞台上展示其軍隊科學成就提供了機會。例如，軍方對巴基斯坦、伊朗、伊拉克、黎巴嫩、越南、老撾、緬甸、柬埔寨和意大利提供了大量協助。航空大學中國航空研究所的中國軍事分析師伊恩.麥卡斯林（Ian McCaslin）表示，解放軍研製的疫苗可能給予中國更多的地緣政治影響力，關係好的國家優先獲得疫苗。康希諾生物公司已經與俄羅斯、墨西哥、沙特阿拉伯和巴基斯坦簽訂了進行第三階段臨床試驗的協議。
+Les gens ne remarquent pas les héros cachés de la bataille du siècle : le président Donald J. Trump, le vice-président, le département d’État, le département de la défense, le Conseil national de sécurité, les conseillers économiques nationaux, les membres anti-PCC du Sénat et de la Chambre des représentants….
 
-評：
+这场世纪大战的决战开始于司法部。在法律精英治国的美国，司法部以白宫为导向，手握联邦检察权，领导FBI，以U.S.的名义打击犯罪，起诉案件。这位认罪的Davis女士，她所游说的1MDB案和对中国籍人士的遣返，背后的千头万绪都指向当今世界中几乎所有悬而未决的关键社会矛盾，从美国的疫情到黑命贵，从民主党不切实际的极左倾向到共和党出卖信仰的伪保守派，从Trump内阁面对的巨大困难，到历任总统和国会对CCP的纵容，遗留的各种问题和不为人所知的内幕，从商界大佬到社会名流；从北美到欧洲、非洲，到土耳其、俄罗斯，到中东、印度洋、中亚，到东南亚的Najib、刘特佐，沿着CCP所谓的一带一路，指向黑幕重重的共产中国。
 
-作為中共的黨衛軍，不能單純的從一般軍事科研的角度看待中共解放軍的醫學研究。中共在這個時間點急切的推出疫苗，就是給自己在和美國的對峙中增加政治資本，讓各國選邊站，挾疫苗以令各國。
+Le duel du siècle a commencé au ministère de la Justice ( DOJ ) aux États-Unis où l’élite juridique dirige le pays. Où le ministère de la justice, sous l’égide la Maison Blanche, détient le pouvoir fédéral des poursuites, et dirige le FBI, lutte contre la criminalité et poursuit les affaires au nom des États-Unis.
 
-[原文鏈接](https://www.nature.com/articles/d41586-020-02523-x)
+L’implication de Mme Davis dans l’affaire 1MDB et l’expulsion des ressortissants chinois, dévoilent les actions de la Chine communiste qui cherche à mettre sa main sur le monde: de l’épidémie en Amérique à Black Lives Matter; des idées farfelues d’extrême gauche des Démocrates au pseudo-conservateur républicain qui trahi sa foi; des difficultés énormes rencontrées par l’administration du Trump au laxisme des anciens Présidents et du congrès vis-à-vis du PCC; des magnats des affaires aux mondains; de l’Amérique du Nord à l’Europe jusqu’à l’Afrique, de la Turquie à la Russie, au Moyen-Orient, de l’océan Indien à l’Asie centrale et à Najib et Jho Low de l’Asie du Sud-Est, tout au long de cette soit disant initiative de la nouvelle Route de la Soie, nous sont révélées les actions occultes de la Chine communiste.
 
-翻譯報導：Bheart 
-校對整理：蒸汽機
+Davis案，将要呈现给这个世界的，是全人类邪恶的总成。不过，能让司法部首战告捷的背后，是代表正义的更大的力量——郭文贵先生领导的爆料革命所汇集的正道主义的复仇者联盟。
+
+L’affaire Davis est sur le point de révéler au monde les complexes infiltrations du PCC aux États-Unis. Cependant, derrière la première victoire du DOJ des États-Unis, se trouve la force de justice la plus efficace – une coalition de justiciers réunis par le Mouvement des Lanceurs d’Alertes mené par M. Miles Guo.
+
+
 
 0

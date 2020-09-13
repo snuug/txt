@@ -1,50 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世纪大案0：引子 L&#8217;affaire du siècle 0: le début ( CN/FR)
-`2020-09-12 17:39 xiaopijiang` [轉載自GNews](https://gnews.org/zh-hant/351099/)
+## 世纪大案 5：红色通缉令
+`2020-09-13 01:13 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/351515/)
 
 作者：美东香草山农场文艺组 Tiffany的早餐
-Auteur: Le petit déjeuné du Tiffany du Groupe littérature et art de MOS HIMALAYA
-法语翻译：皮尔 （VOH 法语翻译组）法语校对：Marie （VOH 法语翻译组）
-Traduction: Pierre (Groupe français du VOH) Relecture: Marie (Groupe français du VOH)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12173816/14-1.jpg)
-2020年8月31日，美国司法部发布声明，宣布一位夏威夷商界人士Nickie Davis女士认罪，罪名是对1MDB案调查工作和对一位中国籍人士遣返的非法游说（相关资料链接：Hawaii Businesswoman Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China， [https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb](https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb)）。
 
-Le 31 août 2020, le ministère de la justice des États-Unis a publié une déclaration annonçant qu’une femme d’affaires hawaïenne, Mme Nickie Davis, avait plaidé coupable de lobbying illégal dans le cadre de l’enquête sur l’affaire 1MDB et de l’expulsion d’un ressortissant chinois. (Lien vers les informations connexes : https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb).
+摘要：红色通缉令被通缉的人安然无恙，签发通缉令的人却离奇被捕。公安部的绞肉机，今天刀俎，明天鱼肉，在遣返郭先生中异常活跃的孙力军，日后又是什么下场？
 
-有趣的是，对此案关注最多的却是在地球另一边万里之遥的中国。两百多年世世代代的成熟民主生活，文明的思维方式，使美国人对政治的敏感性很低，极少能有人敏锐地认识到，司法部以及其背后的Trump行政分支，为这次史诗般的世纪大案祭出了第一位降将——全球知名的lobbyist，中文翻译为“说客”（一些特殊“说客”则扮演了“睡客”的角色）——Nickie M. L. Davis女士。
+2018年10月5日，法国警方接到一起离奇报案，一位名为高歌的女士称自己的丈夫——时任国际刑警组织(Interpol, ICPO)主席孟宏伟失踪。总部位于法国里昂的ICPO为仅次于联合国的世界第二大国际组织，CCP看中了ICPO遍布全球的司法合作体系，多年来筹划着如何让ICPO成为自己的刀把子在全世界的延申。ICPO每年一亿多欧元的预算，在CCP眼里只是毛毛雨，长期的砸钱和渗透，终于让CCP在2016年底把公安部副部长(正部级)孟宏伟推上了ICPO主席的位置。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13010918/timg-2.jpg)原国际刑警组织主席 孟宏伟
+两天后，绞肉机通告孟宏伟在北京落马，随即ICPO声明收到了孟宏伟的辞呈。几乎所有人都立即把这件事联系到了2018年7月3日海航创始人之一王健在法国普罗旺斯离奇死亡的事件。然而孟宏伟自上位ICPO主席后担负的一项主要任务，则是遣返郭文贵——两年来的努力毫无起色，郭文贵先生在美国的反共事业则风声水起，这多少耗尽了CCP匪首们的耐心。而干脏活太多，且人在国外不受控制，若投诚西方后果不可设想，是否也是共匪起意圈禁孟宏伟的原因？
 
-Il est intéressant de noter que à l’autre bout de la planète, c’est la Chine, qui accorde le plus d’attention à cette affaire. Ayant une démocratie de plus de deux cents ans et une manière de pensée civilisée, les Américains sont peu sensibles à la politique et peu de gens sont conscients que le ministère de la Justice et l’administration de Trump ont dévoilé le premier personnage de cette affaire la plus épique du siècle :
+公安部这个绞肉机中，人们对刀俎变成鱼肉的宫斗戏习以为常。孟宏伟的故事按下不表。司法部诉Davis案的主角之一，PRC Minister A正是孙力军。海湖庄园之后，郭文贵签证到期之前，他就要带着孟宏伟在ICPO的成果，打着中美执法合作的名号踏上美国的土地忽悠郭文贵了。
 
-– la lobbyiste de renommée mondiale, Mme Nickie L. Davis.
+如果不是郭文贵先生几年来持续点名，大部分不熟悉CCP刀把子运作的人，包括普通党员，都不会注意到当时连中央候补委员都不是的小小的厅级干部，公安部一局(国内安全)局长孙力军，何以成为郭先生眼中王岐山、孟建柱、傅政华、孙力军四大盗国贼之一？
 
-此时此刻，美国人在生物武器的攻击下昏头昏脑地过了半年。疫情、病痛、死亡、恐惧；明尼苏达州的George Floyd死于警察执法的新闻带来的黑命贵(Black Lives Matter)运动；美国人的生活中莫名奇妙地出现了骚乱，死于骚乱的警民远远超过了Floyd的个案，而偏偏在最不应该大规模群众集会的疫情期间——显然黑命鬼运动刺激了疫情的大幅增长；民主党在极左的道路上狂奔，政治精英带头在国会下跪，民主党全国大会连续进行多日，政治大佬和政治新星们纷纷上台献艺，你方唱罢我登场，却没有人提到CCP。
+在澳大利亚学习公共卫生管理的孙力军，最初在上海市卫生局工作，攀上了江家的爪牙孟建柱。根据江家南普陀会议的计划，在十八大前后拿下薄熙来、令计划、周永康等集团，紧靠江绵恒(江泽民长子)的孟建柱进一步得到江家信任，并从公安部长升为中央政法委书记。孙力军作为孟最大的马仔，在公安部逐渐掌握要职，特别是一局（国内安全）、610办（法轮功）、港澳台办等，后成为公安部主管国保的副部长。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13011129/0baab665p00q91a4q00cac000hp00bjc.png)原中共公安部副部长 孙力军
+孟建柱的私生子刘特佐(Jho Low)，华尔街之胖狼，在美国因1MDB案臭名昭著。孙力军去美国办事，许多方面要借助刘特佐巨大的全球勾兑网络。根据司法部披露的Davis案信息，刘特佐除了游说马来西亚总理Najib和Trump总统会见的高尔夫活动，以便给自己在1MDB案脱罪外，另一个主要工作就是指示Broidy和Davis两人与孙力军合作，游说美国政界遣返郭文贵先生。
 
-À ce jour, les Américains ont passé six mois sonnés par l’attaque d’ armes biologiques. Épidémies, maladie, mort, peur ; le mouvement Black Lives Matters provoqué par la mort de George Floyd au Minnesota; les émeutes qui ont causé de nombreuses morts et d’importants nouveaux cas de contamination du Covid-19. Les démocrates se déchaînent vers l’extrême gauche, les élites politiques montrent la voie en s’agenouillant au Congrès, la Convention nationale démocrate se poursuit pendant des jours, des personnalités politiques de premier plan et des étoiles montantes de la politique montent sur scène à tour de rôle. Cependant, personne ne parle du PCC.
+2017年5月18日左右，歌手Pras Michel、Elliott Broidy、Nickie Davis经香港抵达深圳，在酒店见到了刘特佐和孙力军。孙力军直接表达了游说川普政府遣返郭文贵的要求，并希望通过运作与美国政府高层会晤。接到这个大单，掮客们兴奋不已，开始动用自己的勾兑网络进行游说。Broidy找到总统顾问Rick Gates，让他去运作司法部长Jeff Sessions。孙力军整了一份像模像样的备忘录“Opportunity for Significantly Increased Law Enforcement Cooperation between US and the PRC(中美间大幅促进执法合作)”给Broidy，Brodiy则把这份备忘录发给Gates作为说服司法部长的材料。
 
-CCP——它红色的血旗和百年来的言行令人想起圣经启示录中的红龙——和所有美国人面临的困境和疑惑都有直接关系，此刻它正在盘算着下一个阴谋——征服美国，统治世界。
+值得注意的是，这份材料中对郭先生的主要材料就是ICPO的红通。2017年4月19日，在万众瞩目的美国之音关于郭文贵的直播节目中发生了断播门事件，当日中共外交部发言人陆慷证实，ICPO之前已对郭文贵发出红色通缉令，即红色通报。这类通报表示需要逮捕和引渡，但标注为“在被司法宣判有罪之前，都视同无罪”。CCP一手把孟宏伟推上位，马上就指示孟宏伟加快动用ICPO的资源推动遣返郭文贵。出于对419美国之音直播的恐惧，在节目开播前发出了红通，试图给美国之音施压。一个月后，孙力军访美时的那份所谓“中美执法合作”的备忘录也便有了ICPO的背书。
 
-Le PCC – avec son drapeau rouge et sa doctrine et ses actes vieux d’un siècle faisant penser au dragon rouge dans l’Apocalypse de la Bible – a un lien direct avec les difficultés et les doutes auxquels sont confrontés tous les Américains, et en ce moment même, il prépare sa prochaine conspiration : conquérir l’Amérique et diriger le monde.
+有了Broidy和Gates等人牵线搭桥，在备忘录所云中美执法合作的大旗下，为了诱惑美方遣返郭文贵，中方提出了许多可以让各级官员表现政绩的条件。日后司法部对辩方的指控依据，就涉及这份作为游说材料的备忘录有意隐藏了背后的勾兑行为。
 
-此次此刻，在中文世界，有一位喜爱健身的直播播主郭文贵(Miles Guo)先生正在一边品尝美食，一边点评世界的未来；一位勤奋的主播路德先生，正在每天早晚两集制作评论节目，为十几亿中文观众群体点评CCP的邪恶。在英文世界，特立独行的Steve K. Bannon先生刚刚从纽约南区法院获得保释，回到他在华盛顿的War Room节目，继续唤醒沉睡的美国人。在普通人无法看见的地方，是这场世纪大战的名将们：总统Donald J. Trump，副总统、国务院、国防部、国家安全委员会、国家经济顾问，参众两院已经觉醒的议员们……
+多年来在阿拉巴马州、联邦参议院从事司法要职的司法部长Sessions显然了解郭文贵对美国的重大意义。他不仅一口回绝了游说，对Trump总统遣返的意见也没有放行，甚至公开在媒体上发表声明，以辞职相胁迫。司法部这条游说的路碰到了硬钉子。
 
-En ce moment, dans le monde chinois, le radiodiffuseur M. Miles Guo est en train d’avertir le monde; un autre Youtubeur très assidu, M. Lude, est en train de faire des émissions deux fois par jour, matin et soir, exposant les maux provoqués par le PCC auprès d’un milliard d’internautes chinois.
+根据司法部文件，孙力军同时还试图游说美国政府的其他部门。除司法部，游说目标还包括时任白宫幕僚长Reince Priebus以及此后继任白宫幕僚长的John Kelly，美军海军陆战队退役将军，时任Trump内阁的国土安全部长。多管齐下、布局周密，发动许多沉默的力量，案件主角孙力军在ICPO红通的加持下，志得意满地来到美国，一边看到刘彦平在肯尼迪机场被扣留和遣返而心有余悸；另一方面，他总算见到了所谓“中美执法合作”的美方FBI，以某种未曾预料的方式。
 
-Dans le monde anglophone, Steve K. Bannon au fameux franc-parler vient d’être libéré sous caution par le District Sud de New York et revient à son émission War Room à Washington, D.C., continuant à réveiller le peuple américain concernant le PCC.
+(待续)
 
-Les gens ne remarquent pas les héros cachés de la bataille du siècle : le président Donald J. Trump, le vice-président, le département d’État, le département de la défense, le Conseil national de sécurité, les conseillers économiques nationaux, les membres anti-PCC du Sénat et de la Chambre des représentants….
+编辑：美东香草山农场教育组 飞虹
 
-这场世纪大战的决战开始于司法部。在法律精英治国的美国，司法部以白宫为导向，手握联邦检察权，领导FBI，以U.S.的名义打击犯罪，起诉案件。这位认罪的Davis女士，她所游说的1MDB案和对中国籍人士的遣返，背后的千头万绪都指向当今世界中几乎所有悬而未决的关键社会矛盾，从美国的疫情到黑命贵，从民主党不切实际的极左倾向到共和党出卖信仰的伪保守派，从Trump内阁面对的巨大困难，到历任总统和国会对CCP的纵容，遗留的各种问题和不为人所知的内幕，从商界大佬到社会名流；从北美到欧洲、非洲，到土耳其、俄罗斯，到中东、印度洋、中亚，到东南亚的Najib、刘特佐，沿着CCP所谓的一带一路，指向黑幕重重的共产中国。
+相关链接：
 
-Le duel du siècle a commencé au ministère de la Justice ( DOJ ) aux États-Unis où l’élite juridique dirige le pays. Où le ministère de la justice, sous l’égide la Maison Blanche, détient le pouvoir fédéral des poursuites, et dirige le FBI, lutte contre la criminalité et poursuit les affaires au nom des États-Unis.
+> [世纪大案 4：肯尼迪机场](https://gnews.org/zh-hans/344780/)
 
-L’implication de Mme Davis dans l’affaire 1MDB et l’expulsion des ressortissants chinois, dévoilent les actions de la Chine communiste qui cherche à mettre sa main sur le monde: de l’épidémie en Amérique à Black Lives Matter; des idées farfelues d’extrême gauche des Démocrates au pseudo-conservateur républicain qui trahi sa foi; des difficultés énormes rencontrées par l’administration du Trump au laxisme des anciens Présidents et du congrès vis-à-vis du PCC; des magnats des affaires aux mondains; de l’Amérique du Nord à l’Europe jusqu’à l’Afrique, de la Turquie à la Russie, au Moyen-Orient, de l’océan Indien à l’Asie centrale et à Najib et Jho Low de l’Asie du Sud-Est, tout au long de cette soit disant initiative de la nouvelle Route de la Soie, nous sont révélées les actions occultes de la Chine communiste.
+> [世纪大案 3：海湖庄园](https://gnews.org/zh-hans/343557/)
 
-Davis案，将要呈现给这个世界的，是全人类邪恶的总成。不过，能让司法部首战告捷的背后，是代表正义的更大的力量——郭文贵先生领导的爆料革命所汇集的正道主义的复仇者联盟。
+> [世纪大案 2：环球赌王](https://gnews.org/zh-hans/343551/)
 
-L’affaire Davis est sur le point de révéler au monde les complexes infiltrations du PCC aux États-Unis. Cependant, derrière la première victoire du DOJ des États-Unis, se trouve la force de justice la plus efficace – une coalition de justiciers réunis par le Mouvement des Lanceurs d’Alertes mené par M. Miles Guo.
+> [世纪大案 1：华尔街之狼](https://gnews.org/zh-hans/343549/)
 
-
+> [世纪大案 0：引子](https://gnews.org/zh-hans/343534/)
 
 0
