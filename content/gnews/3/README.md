@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共公佈海峽論壇臺灣主辦方名單，賣台賊一夜曝光
-`2020-09-13 06:42 EWENFEI` [轉載自GNews](https://gnews.org/zh-hant/352052/)
+## 【世界多語言圖文】2020/09/06 CCP病毒每日疫情直播簡報
+`2020-09-13 09:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/352393/)
 
-編者：臺灣荔枝、文非、文肯尼
+戰友之家圖文摘要及小語種組
 
-近日，中共在中國臺灣網上公佈了海峽論壇的歷屆主辦單位。**其中，臺灣方面的主辦方引起了人們的關注，這些機構和組織可以確定是被中共徹底藍金黃，為中共在臺灣的所謂****“****統戰****”****工作搖旗呐喊。**中共披著“論壇“的名義對臺灣進行滲透由來已久，這些機構和組織在與中共勾兌的同時，更是出賣了臺灣人民的利益。
+[English\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094829/English_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094829/English_0906_CCP_Virus_Updates.pdf)
 
-以下是第五屆海峽論壇，台方主辦單位的名單：
+[French\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094833/French_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094833/French_0906_CCP_Virus_Updates.pdf)
 
-臺灣省農會 | 臺灣省漁會 | 臺灣農業整合行銷發展協會 | 臺灣農田水利會聯合會 | 臺灣鄉鎮市民代表會聯合總會 | 臺灣佛教慈濟慈善事業基金會 | 臺灣媽祖聯誼會 | 海峽兩岸勞工發展交流協會 | 中華兩岸勞動關係發展協會 | 中華青年交流協會 | 十大傑出青年基金會 | 臺灣青年創業協會總會 | 臺灣中華婦女會總會 | 兩岸共同市場基金會 | 臺灣觀光協會 | 臺灣中華廣播電視節目製作商業同業公會 | 中華文物保護協會 | 中華文化推廣協會 | 中華演藝總工會 | 臺北市影音節目製作商業同業公會 | 臺灣體育總會 | 中華僑聯總會 | 臺灣工業總會 | 臺灣商業總會 | 臺灣工業協進會 | 臺灣工商建設研究會 | 臺灣工商協進會 | 臺灣中小企業協會 | 臺灣區電機電子工業同業公會 | 臺北市航空運輸商業同業公會 | 臺灣商工統一促進會 | 臺灣關懷中小企業基金會 | 中華兩岸經貿投資協會 | 台南市各商業同業公會理事長商務發展協會 | 旺旺中時媒體集團 | 聯合報系 | 東森電視事業股份有限公司 |
+[German\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094816/German_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094816/German_0906_CCP_Virus_Updates.pdf)
 
-**參加這種論壇，意味著必須要承認中共所謂的****“****九二共識****”****。可以毫不誇張的講，這些賣台賊給臺灣人民帶來了巨大的傷害。臺灣人民需要警惕以上名單上的組織和機構。**
+[Japanese\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094812/Japanese_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094812/Japanese_0906_CCP_Virus_Updates.pdf)
 
-**什麼是****“****九二共識****”****？**
+[Korean\_0906\_ccp\_virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094820/Korean_0906_ccp_virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094820/Korean_0906_ccp_virus_Updates.pdf)
 
-九二共識是與臺灣海峽兩岸關係相關的政治術語，是指獲得官方授權的民間組織海協會與海基會，在1992年經由香港會談及其後函電往來，所達成的非正式共識。簡言之，**一個中國，各自表述**。中華民國與中華人民共和國雙方都同意一個中國，但是對一個中國的內涵，雙方可以有各自不同的表述方式。
+[Spanish\_0906\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094825/Spanish_0906_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094825/Spanish_0906_CCP_Virus_Updates.pdf)
 
-**當前的九二共識是什麼情況呢？**
 
-2019年1月2日，中共中央總書記習近平於《告臺灣同胞書》發表40周年紀念活動發表談話時，用“海峽兩岸同屬一個中國，共同努力謀求國家統一”來形容九二共識，中共直接挑明瞭說九二共識就是一國兩制，沒有一中各表，沒有兩個中國，一個中國只有中華人民共和國。
-
-翌日，**中華民國總統蔡英文對此回應，表示絕對不會接受九二共識，並堅決反對一國兩制，呼籲臺灣所有政黨不應該再講九二共識**。
-
-新聞參考連結：
-
-[http://www.taiwan.cn/hxlt/zb/](http://www.taiwan.cn/hxlt/zb/)
 
 0

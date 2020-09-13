@@ -1,23 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微博大V趙盛燁宣稱中共國具備與全世界同歸於盡的核力量
-`2020-09-13 01:56 GM101` [轉載自GNews](https://gnews.org/zh-hant/351575/)
+## 閆博士:我有科學證據證明CCP病毒不是自然產生的（西班牙語Spanish+英語English）
+`2020-09-13 06:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/351950/)
 
-[中共國紅客聯盟](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E7%BA%A2%E5%AE%A2%E8%81%94%E7%9B%9F/837764)的發起人之一趙盛燁，男性滿族人，1985年9月5日出生於遼寧省[撫順市](https://baike.baidu.com/item/%E6%8A%9A%E9%A1%BA%E5%B8%82)。[中國電腦學會](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%AD%A6%E4%BC%9A/1594491)成員、[系統分析師](https://baike.baidu.com/item/%E7%B3%BB%E7%BB%9F%E5%88%86%E6%9E%90%E5%B8%88/6080301)、[高級工程師](https://baike.baidu.com/item/%E9%AB%98%E7%BA%A7%E5%B7%A5%E7%A8%8B%E5%B8%88/9495887)、中國[九三學社](https://baike.baidu.com/item/%E4%B9%9D%E4%B8%89%E5%AD%A6%E7%A4%BE/181146)社員、瀋陽工學院教授、[中國浦東幹部學院](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E6%B5%A6%E4%B8%9C%E5%B9%B2%E9%83%A8%E5%AD%A6%E9%99%A2/8601745)學員、中國保釣聯合會成員，“地球品質重新佈局”原理創始人。同時也是中共國微博知名人物，具備300萬微博關注度（粉絲）。
+西班牙語標題 Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza
 
-趙盛燁近期在微博上宣稱在美國川普政府繼續“反人類”，插手中共國事務前提下，中共國無需將核彈投放到美國境內也能毀滅美國甚至全世界。
+翻譯：谜拟Q 校對：帅虎 視頻：小羽
 
-並如下舉例3個方案（趙盛燁原文）：
+視頻簡介
+閆博士:我有科學證據證明CCP病毒不是自然產生的 不久後將公開
 
-1、在太平洋引爆裝滿核彈頭的核潛艇，巨浪可超過2000米，將淹沒除了青藏高原以外的所有地區；
-
-2、在喜馬拉雅山脈同時引爆數千枚核彈，可以改變地球的公轉軌道，地球將帶著全人類飄向無邊無際的黑暗宇宙；
-
-3、在四川盆地深鑽10000米，埋入數千枚核彈同時引爆，將激起地心的塌陷，全世界人類滅亡。
-
-趙盛燁宣稱美國川普政府企圖消滅全球黃種人和黑種人的生存空間，甚至在未來中共國“解放”臺灣戰爭中插手，全美國人可能將“盡數見上帝”，川普政府應該三思而後行。
-
-在中共國新聞、媒體、輿論嚴格管控背景下，作為一名擁有300萬粉絲的微博大V，趙盛燁就是中共牆內代言人。其在此時發出毀滅美國及全球的言論，背後是中共政府的授權，中共為延續政權並繼續奴役十四億人民，企圖利用核力量綁架全世界。
+Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza. Será publicado muy pronto
 
 0

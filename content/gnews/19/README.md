@@ -1,57 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從紅黃藍幼兒園到活摘器官再到“建築藝術項目”, 中共深耕百年撒下層層魔網捕獲全球“精英”
-`2020-09-12 23:18 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/351394/)
+## 【中英文視頻版】2020/09/07 CCP病毒每日疫情直播簡報
+`2020-09-13 05:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/351868/)
 
-喜馬拉雅聯盟加拿大農場坐看雲起時
+英文標題 CCP Virus Pandemic Updates Ep227: The Mongolian gathered in front of the Tokyo Embassy to protest against CCP’s cultural extermination
 
-校對：小鷗
+內容簡介
 
-*摘要：文中歸納出中共不僅以種種令人髮指的惡行戕害億萬國人，還在海外深耕近百年，撒下層層魔網捕獲全球“精英”，企圖實現其毀滅美國、統治全世界的終極目標。作者呼籲戰友們緊跟爆料革命，每一個人都盡一份力，為壓死紅魔加上一根稻草。*
-[!\[警惕：邪惡中共妄圖利用疫情扮演世界的救世主，中共是這場危機的煽動者- Gnews\](https://s3-ap-northeast-1.amazonaws.com/news.guo.offload.media/wp-content/uploads/2020/03/28021157/54DC016C-FEB7-4ACC-8DA3-083BFABD0745.png)](https://www.google.ca/url?sa=i&amp;url=https%3A%2F%2Fgnews.org%2Fzh-hans%2F154928%2F&amp;psig=AOvVaw1JBnvx--rGoYHXTD-DEr-C&amp;ust=1600053153313000&amp;source=images&amp;cd=vfe&amp;ved=0CAIQjRxqFwoTCMiEgNiU5esCFQAAAAAdAAAAABAJ)圖片來源：Gnews 
-2020年9月9日，文貴先生直播中痛批中共邪黨超越人類底限,連嬰兒也不放過的無恥行徑。社會中某些群體變態的戀童、孌童癖已成為西方很多保守派網友們近年來談論最多的話題，著名的好萊塢明星布萊克.拉伊烏里（Blake Lively) 曾在一次公開演說中提到，兒童色情最小的受害者竟是還帶著臍帶的嬰兒。世人對此瞠目結舌，一張中共布向全球的魔網卻若隱若現。
+1. 在歐洲訪問的中國外長王毅威脅訪問台灣的捷克參議長踩到紅線了，將會為此付出沈重的代價；德國外長發言力挺捷克，警告王毅不准威脅歐洲；布拉格市某區長嗆王毅是“魯莽的小丑”，要求王毅24小時內道歉。
+2. 蒙人東京大使館前集會抗議中共文化滅絕。中共實施對蒙古語教育滅絕性的政策，引起了全世界華人的關注。在日蒙古人自發組織活動，抗議中共。
+3. 中共終於意識到美國與中共脫鉤的局面已經無法避免，開始給牆內老百姓洗腦，說中美脫鉤對中國有利。中國將與美國脫鉤。
+4. 昨天香港人的大遊行遭到警方殘酷鎮壓，至少有289民香港市民被抓捕；路邊一名被警察嚇到的12歲小女生，看到警察後，因為害怕慌張的跑開了，卻被5名警察抓住壓在其身上，小女孩在地上不斷地掙扎。
+5. （郭文貴在戰鬥室，9/7）美國和西方世界沒有選擇。這不是你們想不想脫鉤的問題，你們沒有能力選擇不脫鉤，中共在這方面有準備。另一條路，脫鉤。你們只有一條路（讓中共）餓死，用脫鉤來完全餓死中共。讓美國恢復安全和宗教自由。
 
-文貴先生爆料伊始就揭露了中共控制和腐蝕世界的武器，是所謂“藍金黃（BGY)”。 “藍（B）”指監控情報——管控和影響互聯網及海內外媒體，“金（G）”——用金錢賄賂外國政客及各界“精英”，“黃（Y）”——利用“性”控制他們鎖定的目標人群等。
 
-中共病毒疫情爆發以來，我們看到不少政客、名人甚至科學醫學界人士從世界各地跳出來罔顧事實，為中共站台。他們出賣靈魂、顛倒黑白的荒唐表現令普通人非常驚訝，其背後究竟藏著什麼見不得人的勾當呢？
+1. The CCP Foreign Minister Wang Yi, who is visiting Europe, threatened that the Czech Senate President visiting Taiwan stepped on the red line, and he would pay a heavy price for it; the German Foreign Minister backed the Czech Republic and warned Wang Yi not to threaten Europe; Prague district mayor Řeporyje called Wang Yi “a reckless clown” and demanded an apology within 24 hours.
+2. The Mongolian gathered in front of the Tokyo Embassy to protest against CCP’s cultural extermination. The CCP’s policy of abolishing Mongolian language education has aroused the attention of Chinese people all over the world. In Japan, Mongolians organized activities spontaneously to protest against the CCP.
+3. The CCP finally has realized that it was inevitable to decouple from the U.S. and began to brainwash the people inside the firewall, saying that the decoupling between China and the U.S. is good to China, thus China will actively decouple itself from the U.S.
+4. At least 289 Hong Kong citizens were arrested yesterday when their peaceful march was brutally suppressed by the police yesterday. A 12-year-old girl who was frightened by the police on the side of the road ran away in a panic at the sight of the police, only to be grabbed by five CCP police officers and crushed on top of her as she struggled on the ground.
+5. (Miles Guo With War Room, 9/7) America and the western world have no choice. Decoupling is not about you want or not. You have no capability to choose not to decouple. The CCP has prepared this… Another side, decouple! You know, you have only one way to go. It is to starve the CCP, to decouple with the CCP in order to completely starve it. Only by doing that you could make America safe, secure, and have the freedom of religion again.
 
-2019年12月15日文貴先生在直播中爆料，中共黨內打著共產主義的旗號，卻形成了一個隱密的魔教——“雙修教”。 “雙修教”自稱得傳於西藏密宗的一支，其實這西藏密宗的分支因為其反人類的惡行實在令人髮指早被禁止在西藏傳揚。王歧山居然是該魔教教宗，也因此王岐山成了中共各勢力中真正最隱黑的力量。他把這個魔教打造成中共頂層隱秘流行的“最高尚”的生活方式。他以生殖器治國，利用手中特權，從金融系統，中紀委，安全部到政法委，全面控制。凡不聽話的，不和他一起“雙修”的，不配合“雙修”的，都以反腐的名義抓起來。處理官員有中紀委，抓人有政法委，判人有檢察院、有公安。十八大以後被抓的官員都有相同的罪行，即“生活淫亂，失去了對共產主義的信仰，迷信風水，迷信邪教”。是什麼樣的證據證明他們淫亂呢？很多落馬官員在內部傳閱文件中明確是搞“雙修”。 “雙修”在十八大以後是消滅高層官員的一個重要依據。 “雙修”，既是拉幫結派時的投名狀，又是以腐反腐以貪反貪時的索命符。文貴先生說，“這些招對中國人是99%或是100%的靈，對外國人是200%的靈。你見過哪個外國人不是搞一下子，被雙修的不給修歪歪了？不給修聽話了?各個如此！” 那麼，是不是可以說，“雙修”，也成了中共魔教在海外控制的一種重要手段了呢？
-
-“雙修教”需要各類8—16歲的處女作為淫亂工具。為了討上級官員歡心，一些人在全國採選“雙修”目標，在孩子很小的時候就有人著意培養。不僅建立海南桃花島，以海航招空姐空少的名義搜羅俊男美女，還蓄意成立了全國連鎖的紅黃藍幼兒園。在華爾街的幫助下上了市的紅黃藍幼兒園收費不菲，家長們都蒙在鼓裡，不知道其成立目的竟然是給魔教提供源源不斷的“雙修”工具。
-
-共產黨打著無神論的幌子，內部發展出一個政教合一的魔教，它本身已然成為史上最大的邪教組織，最終的目標是統治、毒害全人類！中共不只在中共國內肆虐，事實上它的魔網已經撒向世界，這魔網至少有四層：
-
-第一層：通過藍金黃滲透腐蝕，收買各階層。
-
-第二層：販賣生命。通過駭人聽聞的器官活摘販賣，血清販賣及掌控暗網，讓某些群體對中共產生依賴。
-
-第三層：邪教控制。通過推廣“雙修”魔教蠱惑人心，層層綁架直至徹底地把目標玩於股掌之中。
-
-第四層：通過“建築藝術項目”幾十年海外深耕，企圖直接掌管各國政治。
-
-除此以外，中共還在花大力氣控制世界媒體，妄圖操控輿論對大眾洗腦，對所謂的精英階層則推銷中共擅長的“馭民”之術，這些精英階層也一拍即合。某些精英認為大眾愚蠢且貪得無厭，平民階層的生存完全仰仗於精英階層的賜予。網上流傳甚廣的希拉里講話就是這一類思想的代表。在這份據說是維基解密獲取的希拉里.克林頓在高盛的秘密付費演講稿中，希拉里稱，普通民眾為“little people”（屁民），“the unwashed mass”(無知眾生），而稱掌握大資本的華爾街精英們則是“captains”（領航人），“lords”(主人）。她傲慢地宣稱普通民眾所仰賴的一切均來自於精英們，大肆地嘲笑班農先生倡導的“平民主義”，認為全民就業是完全沒有必要的，19世紀時工人們對於失業的恐懼才能產生良好的效率和工作態度—— 與中共的“馭民”術如出一轍。
-
-文貴先生在2019年12月14日直播中談到，海航總經理陳峰認為自己掌握一國的權力和女人，操控著全世界的經濟、金融圈、以及全世界的間諜網，因此在哈佛的西方精英面前他完全有傲慢的資格與底氣。陳峰的嘴臉如此，中共近年來的所謂“戰狼外交”，是否也來源於相似的底氣？
-
-很多人以為中共對海外的滲透腐蝕只是近20年來的事，事實上，中共對世界的野心，從它誕生那一刻就開始了。美國國家安全顧問奧布萊恩6月24日在鳳凰城發表題為《中國共產黨的意識形態和全球野心》的演講中提到：“我們錯得實在很離譜。這種錯誤的判斷已成為上世紀三十年代以來美國對外政策最大的敗筆。”
-
-為什麼對中共的政策是從上世紀三十年代以來美國對外政策的最大敗筆？從路德時評中，我們第一次得知中共在海外的佈局、運作從上世紀三十年代就已經開始。中共在全球的滲透之廣、佈局之深、用心之險惡實在是令人髮指。
-
-文貴先生引領的爆料革命、滅共運動，在全世界展開的是一場正義和邪惡的對決，是屬靈的世紀大戰，影響的不僅僅是14億中國人的命運，還直接影響全人類的命運。
-
-正如路德先生所說，文貴先生是中共完美的掘墓人。沒有文貴先生對中共的深刻了解，世界根本無法真正地把中共徹底剷除殆盡。中共在世界各個角落都潛伏著陰暗勢力，如同《哈利波特》中伏地魔隱藏的魂片，即使中共在中共國倒台之後，依舊隨時可能捲土重來。文貴先生以西方正義的司法之劍來斬斷中共魔網的戰略戰術令人不得不嘆為觀止。
-
-2020年8月18日，美國司法部公開了一份39頁的起訴尼克·倫·戴維斯（Nickie Lum Davis）的司法文件。該文件的公佈正式宣告文貴先生引領的爆料革命開啟了戰略的新篇章。按照路德先生的說法，文貴先生用了5年時間，以身為餌，與美國司法部一同打造了一把斬向中共紅龍的龍晶石劍，由此引發的世界級政壇巨震才剛剛開始。
-
-文貴先生在與澳喜農場連線時指出，這次美國司法部正式審判文件的公開，既是對中共的一個司法宣判，也是對中共司法宣戰的開始。司法部文件僅僅是一個開始，文件揭開的黑幕遠不及他經歷真相的千分之一。文貴先生在2019年12月15日的直播中曾說過，爆料革命向世界提供的司法巨案，一定不下於100個。當更多被中共控制的異鬼們被送上審判庭之日，就是中共在西方苦心經營近百年的魔網覆滅之時。
-
-我們不幸，生在這個紅魔瘋狂肆虐的土地上；我們又何其有幸，能夠站在時代的最前沿，親歷紅魔覆滅的革命中。正如路德所說，“滅共路上，你最重要，沒你不行！” 讓我們每個人都儘自己的一份力，為壓死紅魔加上一根稻草。中共不滅，無論身在天涯海角皆無寧日。
-
-美國司法部文件鏈接： [https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf](https://ilind.net/misc%20/2020/lum%20information%20Aug%202020.pdf)
-
-網傳希拉里講話： [https://mp.weixin.qq.com/s/D8qGq941EPquECJXa7pD0g](https://mp.weixin.qq.com/s/D8qGq941EPquECJXa7pD0g)
-
-Blake Lively演講： [https://www.youtube.com/watch?v=hMVHz-1I1zY&list=PLnlO\_1qRdBCJePTg3hLYdEganT2B7Ff90&index=16&t=0s&ab\_channel=Variety](https://www.youtube.com/watch?v=hMVHz-1I1zY&amp;list=PLnlO_1qRdBCJePTg3hLYdEganT2B7Ff90&amp;index=16&amp;t=0s&amp;ab_channel=Variety)
 
 0

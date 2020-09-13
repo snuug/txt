@@ -1,15 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精華版粵語配音】9.06 路德時評： 脫鉤即將成為現實
-`2020-09-13 01:34 GM42` [轉載自GNews](https://gnews.org/zh-hant/351565/)
+## 閆博士:我有科學證據證明CCP病毒不是自然產生的（西班牙語Spanish+英語English）
+`2020-09-13 06:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/351950/)
 
-製作單位：戰友之家-粵語組
-製作團隊：西林、一簾幽夢、阿恩、哥阿
+西班牙語標題 Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza
 
-摘要
-面對中美脫鈎之勢，中共轉而儲備戰略物資，但無一可以自給自足，只能從只能繼續盤剝人民。
+翻譯：谜拟Q 校對：帅虎 視頻：小羽
 
+視頻簡介
+閆博士:我有科學證據證明CCP病毒不是自然產生的 不久後將公開
 
+Tengo fuertes evidencias científicas de que el virus del PCCh no procede de la naturaleza. Será publicado muy pronto
 
 0

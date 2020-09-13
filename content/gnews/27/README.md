@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭報導閆麗夢博士接受《Loose Women》採訪，將提供病毒來自中共實驗室證據
-`2020-09-12 18:58 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/351172/)
+## 【中英文視頻版】2020/09/07 CCP病毒每日疫情直播簡報
+`2020-09-13 05:20 GM62` [轉載自GNews](https://gnews.org/zh-hant/351868/)
 
-喜馬拉雅聯盟加拿大農場 熊媽媽
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12185114/666666666666.jpg)圖片來源：YouTube 
-9月12日，澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭媒體報導閆麗夢博士接受《Loose Women》採訪，表示SARS-CoV-2是在中共實驗室基於天然冠狀病毒人工製造的，並將提供病毒來自中共實驗室證據。
+英文標題 CCP Virus Pandemic Updates Ep227: The Mongolian gathered in front of the Tokyo Embassy to protest against CCP’s cultural extermination
 
-閆博士表示，她將與美國領先的病毒學家合作發表多篇科學文章，其中將包含證據證明該病毒首先是在實驗室中產生的，其次是在中共政府擁有的武漢的實驗室中產生的。她說，這些文章的第一篇將在“幾天之內”發表。
+內容簡介
 
-閆博士說，她去年是最早進行了COVID-19研究的成員之一。她堅持認為，關於去年在武漢一家海鮮市場出現這種病毒的廣泛報導是一種”煙幕”。
+1. 在歐洲訪問的中國外長王毅威脅訪問台灣的捷克參議長踩到紅線了，將會為此付出沈重的代價；德國外長發言力挺捷克，警告王毅不准威脅歐洲；布拉格市某區長嗆王毅是“魯莽的小丑”，要求王毅24小時內道歉。
+2. 蒙人東京大使館前集會抗議中共文化滅絕。中共實施對蒙古語教育滅絕性的政策，引起了全世界華人的關注。在日蒙古人自發組織活動，抗議中共。
+3. 中共終於意識到美國與中共脫鉤的局面已經無法避免，開始給牆內老百姓洗腦，說中美脫鉤對中國有利。中國將與美國脫鉤。
+4. 昨天香港人的大遊行遭到警方殘酷鎮壓，至少有289民香港市民被抓捕；路邊一名被警察嚇到的12歲小女生，看到警察後，因為害怕慌張的跑開了，卻被5名警察抓住壓在其身上，小女孩在地上不斷地掙扎。
+5. （郭文貴在戰鬥室，9/7）美國和西方世界沒有選擇。這不是你們想不想脫鉤的問題，你們沒有能力選擇不脫鉤，中共在這方面有準備。另一條路，脫鉤。你們只有一條路（讓中共）餓死，用脫鉤來完全餓死中共。讓美國恢復安全和宗教自由。
 
-當被問及造成全球90多萬人死亡的致命病毒來自哪裡時，閆博士在一個秘密地點的視頻中回答說：”它出現在武漢的一個實驗室，實驗室由中國政府控制。”
 
-“首先，在武漢的海鮮市場–是煙幕，這種病毒是不自然的，”閆說，並進一步解釋說，她收到了”來自中國的疾病預防控制中心及各地醫生的信息”。 ”
+1. The CCP Foreign Minister Wang Yi, who is visiting Europe, threatened that the Czech Senate President visiting Taiwan stepped on the red line, and he would pay a heavy price for it; the German Foreign Minister backed the Czech Republic and warned Wang Yi not to threaten Europe; Prague district mayor Řeporyje called Wang Yi “a reckless clown” and demanded an apology within 24 hours.
+2. The Mongolian gathered in front of the Tokyo Embassy to protest against CCP’s cultural extermination. The CCP’s policy of abolishing Mongolian language education has aroused the attention of Chinese people all over the world. In Japan, Mongolians organized activities spontaneously to protest against the CCP.
+3. The CCP finally has realized that it was inevitable to decouple from the U.S. and began to brainwash the people inside the firewall, saying that the decoupling between China and the U.S. is good to China, thus China will actively decouple itself from the U.S.
+4. At least 289 Hong Kong citizens were arrested yesterday when their peaceful march was brutally suppressed by the police yesterday. A 12-year-old girl who was frightened by the police on the side of the road ran away in a panic at the sight of the police, only to be grabbed by five CCP police officers and crushed on top of her as she struggled on the ground.
+5. (Miles Guo With War Room, 9/7) America and the western world have no choice. Decoupling is not about you want or not. You have no capability to choose not to decouple. The CCP has prepared this… Another side, decouple! You know, you have only one way to go. It is to starve the CCP, to decouple with the CCP in order to completely starve it. Only by doing that you could make America safe, secure, and have the freedom of religion again.
 
-她在脫口秀節目中說，”基因組序列就像一個人的指紋，所以，基於它，你可以識別這些東西。我用證據告訴人們為什麼它來自中國的一個實驗室，為什麼他們是唯一做到這一點的人。”
-
-病毒學家說，“她計劃發表具有科學證據的文章，證明病毒是在武漢的一個實驗室製造的。任何人，甚至沒有生物學知識的人，都可以閱讀這篇文章。”
-
-她解釋說，她現在之所以說這些是因為，”我知道，如果我不告訴世界真相，我會後悔的。”
-
-閆博士還表示，在離開中國之前，她得知自己的信息已從政府數據庫中刪除。她告訴《Loose Women》，“他們刪除了我的所有信息，他們僱傭網絡水軍散播關於我是騙子的謠言。”
-
-武漢病毒研究所所長王延軼此前否認有關該病毒可能意外從其研究所洩露的報導。王延軼4月份對中國的官方媒體說：“這種病毒絕不是來自我們的。”
-
-回想一下，閆博士在4月從香港逃到美國。據她說，她為自己的生命而擔憂，並想向世界講述有關病毒起源的真相。她在2019年11月至12月進行的研究表明，該病毒會在人與人之間傳播，中共政府對世界撒謊，掩蓋病毒真相。
-
-在英雄科學家閆麗夢博士接受英國著名《Loose Women》節目採訪之後，9月12日，多國就此次採訪進行了跟踪報導，表達了震驚與期待，特別是閆博士提出的近幾日即將發布的“證明新冠病毒就是來自中共軍方實驗室的科學文章”，以及里面有“普通大眾可以看懂的像人體指紋一樣的基因組序列”。此次採訪就像在平靜的水面扔下一顆石子，波紋在持續不斷的向外擴散中，中共的謊言即將被戳穿。
-
-參考鏈接：https://www.cqnews.com.au/news/chinese-defectors-shocking-virus-claim/4097902/
-
-[https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8](https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8)
-
-[https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme](https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme)
-
-[https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1](https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1)
-
-[https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm\_medium =twitter&utm\_content=Nieuws&utm\_source=dlvr.it&referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1](https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm_medium=twitter&amp;utm_content=Nieuws&amp;utm_source=dlvr.it&amp;referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1)
 
 0
