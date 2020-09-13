@@ -1,23 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/05 CCP病毒每日疫情直播簡報
-`2020-09-12 13:17 GM62` [轉載自GNews](https://gnews.org/zh-hant/350683/)
+## 《路德重磅》 路德社：美副國務卿訪台可能與滅共的第二道大門有關
+`2020-09-12 15:27 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/350944/)
 
-戰友之家圖文摘要及小語種組
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12151930/1599938357203.jpg)
+路德社9月11號分析了美國副國務卿凱克拉奇（Keith Krach）訪問台灣的意義。凱克拉奇將於本月17日至19日訪問台灣。凱克拉奇是主管經濟、能源和環境的副國務卿，他將乘坐川普總統專用的空軍一號訪問台灣。路德先生和其他嘉賓分析認為副國務卿表面上是參加美台經濟對話，實際上更多的是政治和外交的原因：
 
-[English\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121450/English_0905_CCP_Virus_Updates.pdf)
-
-[French\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121446/French_0905_CCP_Virus_Updates.pdf)
-
-[German\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121455/German_0905_CCP_Virus_Updates_.pdf)
-
-[Korean\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121459/Korean_0905_CCP_Virus_Updates.pdf)
-
-[Russian\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121503/Russian_0905_CCP_Virus_Updates.pdf)
-
-[Spanish\_0905\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12121507/Spanish_0905_CCP_Virus_Updates.pdf)
+1. 告訴中共，凱克拉奇就是代表川普總統訪問台灣。
+2. 展現美台關係已上升到國與國之間外交層面。
+3. 鑑於台灣對習近平在黨內的地位穩定極為關鍵，訪台是美國主動行動，打擊中共領導人的地位，助推以共滅共。
 
 
+郭文貴先生說香港是滅共的第一道大門，台灣是第二道大門，病毒是第三道大門。台灣在滅共的地位上非常重要，台灣將如何配合滅共讓我們拭目以待。
+
+另外，今天閆博士參加了英國著名脫口秀節目《Loose Women》，避開政治，避開被中共藍金黃非常深的主流媒體如BBC，而從女性家庭人性的角度來解釋和傳播病毒真相，該節目以爆炸力的速度在名流和普遍大眾中傳播，影響力巨大。
+
+**【本文只代表作者本人對路德社節目的解讀】**
+
+撰稿：Skagen【秘翻Gnews原創組】
 
 0

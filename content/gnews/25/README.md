@@ -1,16 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士揭底,打假雲南礦洞病毒事件! （德語German+中文Chinese）
-`2020-09-12 13:38 GM62` [轉載自GNews](https://gnews.org/zh-hant/350816/)
+## 郭文貴先生的歌 澆滅中共文化滲透的火
+`2020-09-12 15:35 pmzy` [轉載自GNews](https://gnews.org/zh-hant/350959/)
 
-德语标题：Dr. Yan enthüllt und bekämpft die gefälschte Theorie mit dem Minenhöhlenvirus in Yunnan!
+內新聞: 大時代的小螞蟻
 
-德語翻譯：爱护女人和孩子 德語校對：MilaM(米拉猫)，平常心（文常心） 字幕： 文件夹
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12153300/Screenshot_2020-09-10-19-18-54-431_Twitter.png)
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12153321/Screenshot_2020-09-10-19-29-33-171_Discord.png)
 
-視頻簡介
-閆麗夢博士在路德訪談節目中談論「雲南礦洞病毒議題」,中共試圖藉此引導人們去相信一個原本在蝙蝠身上的病毒跳到人身上,再慢慢地在人體、人群當中流行。 她明確地提出許多質疑,她指出為什麼有人敢把4991特定基因嵌入到舟山蝙蝠病毒內的原因,及為什麼石正麗自始至終也不怕別人到她實驗室去搜查。 最後也解釋這種病毒自然來源假說的各種利益勾兌。
 
-Dr. Yan Limeng spricht in der Talkshow von Lude zum Thema des Minenhöhlenvirus von Yunnan. Die “Höhlentheorie” der Kommunistischen Partei Chinas ist ein Versuch, die Menschen glauben zu lassen, dass ein Virus, das ursprünglich in Fledermäusen gefunden wurde, auf Menschen gesprungen ist und sich dann langsam auf Menschen und die allgemeine Bevölkerung ausgebreitet hat. Es wirft eindeutig viele Fragen auf. Dr. Yan spricht auch an, warum jemand es wagen würde, ein bestimmtes Gen 4991 in das Zhoushanfledermaus-Virus einzubetten, und warum Shi Zhengli nie Angst davor hatte, in ihrem Labor durchsucht zu werden. Schließlich sprach Dr. Yan auch die verschiedenen Interessen der Hypothese des natürlichen Ursprungs des Virus an.
+郭文貴先生，壹個非專業音樂人士，偶然興起唱了首歌，卻震動了世界，嚇壞了中共。
+
+郭文貴先生不僅壹夜成名，上了音樂排行榜頭名，還成了最短時間內的被下載音樂王。
+
+當世界都在為之瘋狂的時候，中共國公安在壹夜之間成立了音樂執勤巡邏隊伍。
+
+壹個中國人唱了壹首歌，唱響了所有善良正義者的心聲，暢銷了全世界。在郭文貴先生唱出了音樂界的奇跡，創造了華人在世界的歷史時刻時，他的母國中共國也在第壹時間創造另壹個世界歷史。迅速成立音樂糾查別動隊，世界上第壹個對音樂進行掃雷滅爆的政府執法部門在中共國誕生了。
+
+要引領世界打造世界命運共同體的中共，怎麽會連音樂都害怕呢？！中共刻意對世界展示的自信此刻正在被壹首歌擊得粉碎！壹首歌讓中共在世界面前現了原形。
+中共，妳完了！妳完了！妳徹底完了！！！
 
 0

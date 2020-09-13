@@ -1,67 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 究竟誰越界了？中共還是捷克？
-`2020-09-12 14:02 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/350839/)
+## 郭文貴先生以歌聲滅共！ 以歌推牆！被譽為當今的大衛·赫索霍夫
+`2020-09-12 15:50 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/350965/)
 
-*新聞來源：Breitbart《布雷特巴特新聞網》；作者：Breitbart London /布雷特巴特倫敦站；發佈時間：2020年9月3日*
+滅共者郭文貴先生的兩首歌曲：《[Take Down the CCP](https://www.youtube.com/watch?v=KBaT8xoksjE)》和《[滄海一聲嘯](https://www.youtube.com/watch?v=WyYVXmJcNds)》，自2002年9月9日推出以來迅速佔領包括[Apple Music](https://music.apple.com/us/artist/miles-guo/1530852387)，[Spotify](https://open.spotify.com/track/6CxkWCdqMLjZaTtyY2A1KV?si=1RXP0FIaQzGyx2fj8zD6zA)，和[Amazon Music](https://music.amazon.com/albums/B08HMCLFJX?trackAsin=B08HMC1X64&amp;ref=dm_sh_4135-18b3-dmcp-4017-1cea5&amp;musicTerritory=US&amp;marketplaceId=ATVPDKIKX0DER) 等各大榜單之首，並一直保持領先排名。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12151304/Miles_20200912-DavidHasselhoff-figure1.jpeg)圖片來源：[https://gtv.org](https://gtv.org)
+今天郭先生作為特約嘉賓參加班農先生和他的團隊主持的戰斗室的[第383期](https://youtu.be/zx7v1SHB8s8)特別節目：「中國新文化革命」，被譽為當今的大衛·赫索霍夫。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12151314/Miles_20200912-DavidHasselhoff-figure2.jpg)圖片來源：[https://hagerstownairport.org/](https://hagerstownairport.org/) 
+大衛·赫索霍夫是著名的美國德裔演員和歌手，1989年除夕夜他在柏林牆上高歌《尋找自由》（[Looking for Freedom](https://youtu.be/cJ2Sgd9sc0M)），在前蘇聯、東德及其它當時的東歐國家廣為傳唱、影響深遠。 中共一直利用控制文化來洗腦中國人，郭先生的歌曲開啓了文化滅共的先河，以歌聲滅共！以歌推牆！然而郭先生推的是比柏林牆更加邪惡的防火牆，解救的是比東德人口更多的中國14億老百姓！ 敬請關注郭先生及其領導的爆料革命的戰友們更多的滅共歌曲！
 
-*翻譯/簡評：風起雲湧；校對：Julia Win；審核：海闊天空；Page：拱卒*
-[!\[\](https://spark.adobe.com/page/3IeGzufe9u7CY/images/4d2f76f8-900a-43a5-ace4-0511cc944f95.jpg?asset_id=4ba7816e-1d24-4722-a1bd-b5795bda86e6&amp;img_etag=%222b67b9062e3965f529c951b4719df441%22&amp;size=1024)](https://spark.adobe.com/page/3IeGzufe9u7CY/images/4d2f76f8-900a-43a5-ace4-0511cc944f95.jpg?asset_id=4ba7816e-1d24-4722-a1bd-b5795bda86e6&amp;img_etag=%222b67b9062e3965f529c951b4719df441%22&amp;size=1024)
-每一位崇尚自由民主的人，都會為捷克議長的訪台叫好。他們沒有屈服於中共的壓力，用行動維護了自由民主的權力。
+作者：【JoyJoy】編輯：【Michelle】
 
-就像肯尼迪總統在1963年說的“自由是不可分割的，當一個人被奴役時，所有人都不自由。”中共高築防火牆，剝奪了中國人民的自由，又開始把黑手伸向全世界，用藍金黃、大外宣的卑鄙手段滲透、挾持海外各界，妄想洗腦和奴役全世界人民。
-
-據分析人士稱，這次捷克不屑於中共的壓力訪台，主要原因是捷克在經濟上不依賴於中共。所以那些與中共存在深度貿易合作的國家，更容易被威脅。希望更多的民主國家，能認清中共無底線的邪惡，站在正義和公正的立場上，捍衛自己來之不易的法制、民主和自由，不為經濟利益出賣國家原則和價值觀。
-
-相信隨著中共病毒真相公之於眾，中共一定會被宣佈為恐怖組織或非法政府。屆時，根據郭文貴先生所說，盜國賊的巨額資產將被查封並移交給新中國聯邦，萬惡的中共將土崩瓦解，華夏大地將飄揚起美麗的藍色七芒星國旗！期盼這一天的到來！
-
-####  “你越界了！”—中共國就捷克議長率團訪問台灣威脅捷克
-
-[!\[\](https://spark.adobe.com/page/3IeGzufe9u7CY/images/ac7e972a-3c40-48ff-ba39-85b1aa231319.png?asset_id=cda4f90d-14c7-4b4e-a53e-02c3ae6cf29f&amp;img_etag=%226240238dd08fc499ca0d0e273789bef0%22&amp;size=2560)](https://spark.adobe.com/page/3IeGzufe9u7CY/images/ac7e972a-3c40-48ff-ba39-85b1aa231319.png?asset_id=cda4f90d-14c7-4b4e-a53e-02c3ae6cf29f&amp;img_etag=%226240238dd08fc499ca0d0e273789bef0%22&amp;size=1024)
-
-台灣台北（美聯社）- 捷克參議院主席週四會見了台灣領導人蔡英文和其他高級政府官員，這是一名外國政要對台灣這個民主自治的島國進行的罕見訪問。而這一訪問被中共國稱為“公開挑釁”。
-
-蔡總統為捷克參議院議長米洛什·維特齊（Milos Vystrcil）的前任、已故的議長雅羅斯拉夫·庫貝拉(Jaroslav Kubera)，頒發了一枚榮譽獎章。
-
-庫貝拉（Kubera）於一月份不幸去世，未能達成訪問台灣的願望。維特齊（ Vystrcil ）稱，中共國的壓力，包括中共國大使館警告他不要對蔡總統連任表示祝賀，是促使他決定前往台灣的原因之一。
-
-蔡英文稱庫貝拉是“偉大的朋友”，並在周四對維特齊（ Vystrcil ）的講話表示贊同，稱他那句“我是台灣人”感動了很多人。
-
-蔡英文說：“我們在用行動告訴歐洲和世界各地的朋友們，無論台灣人還是捷克人，我們都不會屈服於壓迫，我們會勇敢地發聲，積極參與國際事務，並貢獻自己的力量。 ”
-
-北京對捷克代表團的訪問表示憤怒，外交部隨後召見了捷克共和國駐華大使提出嚴正交涉，並聲稱捷克代表團此次訪台，等同於“公然支持台灣獨立”。中共國宣稱台灣為自己的領土，並強烈反對其它國家與這個自治島嶼進行任何官方接觸。
-
-![](https://spark.adobe.com/page/3IeGzufe9u7CY/images/a50d49f8-540a-471c-a9b2-01cfc902ca62.jpg?asset_id=59cb8126-8b17-473f-868e-364898fff811&amp;img_etag=%222ed14092f418bc9f72ea9a310ce9e379%22&amp;size=2560)
-
-中共國外交部長王毅於週二表示，維特齊（ Vystrcil ）的訪問是“公開挑釁”。
-
-王說“中共國必須告訴捷克參議院領導人：你已經越界了！” 。
-
-維特齊（ Vystrcil ）和台灣外交部長也駁斥了中共國的警告。
-
-維特齊（ Vystrcil ）在周四回答記者提問時說：“我並不認為自己越過了任何紅線。” “我們沒有做任何違反一個中共國政策的事情。”
-
-他補充說：“每個國家都有權以自己的方式解釋一個中國的原則。”
-
-台灣外交部長吳釗燮(Joseph Wu)說：“我們就待在這裡，台灣不會改變。” 台灣正在努力維持現狀，這種現狀就是台灣不屬於中共國。台灣由自己的人民管理。 ”
-
-維特齊（ Vystrcil ）和吳釗燮(Joseph Wu)宣布了在商業科學研究和民主交流方面的進一步合作。
-
-維特齊（ Vystrcil ）還宣布捷克方面成立了一個工作組，致力於經濟和網絡安全方面的合作。
-
-自去年兩國首都之間發生爭端以來，捷克共和國與中共國的緊張關係有所惡化。他們終止了一項姊妹城市協議，因為北京希望布拉格同意“一個中共國”原則，該原則說台灣是中共國的一部分。
-
-週二在他下榻的地點，維特齊（ Vystrcil ）直接引用了前美國總統約翰·肯尼迪（John F. Kennedy），在1963年訪問當時四分五裂的柏林時，發表的著名的反共演講。並強調了捷克共和國，在冷戰結束時擺脫了共產主義統治、台灣在1980年代末擺脫了戒嚴法以來所享有的民主自由。
-
-![](https://spark.adobe.com/page/3IeGzufe9u7CY/images/486d9803-7dca-4286-a0b0-db617f62368f.jpg?asset_id=79779eec-2431-406d-be17-63eb4077f572&amp;img_etag=%222064cbaee6264c5044c2f857fd4e1687%22&amp;size=2560)
-
-維特齊（ Vystrcil ）說：“ 1963年，美國總統約翰·肯尼迪（JFK）在題目為《我是柏林人》的著名演講中，明確反對共產主義和政治壓迫，並支持西柏林人民，” 維特齊（ Vystrcil ）說。 “約翰·肯尼迪（JFK）說’自由是不可分割的，當一個人被奴役時，所有人都不自由。’”
-
-他說：“請讓我以同樣的方式來表達對台灣人民的支持：’我是台灣人。’”他用中文普通話說出了最後一句話。
-
-[原文鏈接](https://www.breitbart.com/europe/2020/09/03/youve-crossed-line-china-threatens-czechia-over-taiwan-visit/)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/3IeGzufe9u7CY/)
+戰友之家玫瑰園小隊出品
 
 0

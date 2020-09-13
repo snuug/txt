@@ -1,33 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 論滅共神曲的走紅與迪斯尼電影的墮落
-`2020-09-12 15:46 pmzy` [轉載自GNews](https://gnews.org/zh-hant/350981/)
+## 世纪大案0：引子 L&#8217;affaire du siècle 0: le début ( CN/FR)
+`2020-09-12 17:39 xiaopijiang` [轉載自GNews](https://gnews.org/zh-hant/351099/)
 
-內新聞:銅豌豆
+作者：美东香草山农场文艺组 Tiffany的早餐
+Auteur: Le petit déjeuné du Tiffany du Groupe littérature et art de MOS HIMALAYA
+法语翻译：皮尔 （VOH 法语翻译组）法语校对：Marie （VOH 法语翻译组）
+Traduction: Pierre (Groupe français du VOH) Relecture: Marie (Groupe français du VOH)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12173816/14-1.jpg)
+2020年8月31日，美国司法部发布声明，宣布一位夏威夷商界人士Nickie Davis女士认罪，罪名是对1MDB案调查工作和对一位中国籍人士遣返的非法游说（相关资料链接：Hawaii Businesswoman Pleads Guilty to Facilitating Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove a Foreign National to China， [https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb](https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb)）。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12154407/IMG-20200911-WA0021.jpg)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12154433/Screenshot_2020-09-12-22-38-35-695_Discord.png)
+Le 31 août 2020, le ministère de la justice des États-Unis a publié une déclaration annonçant qu’une femme d’affaires hawaïenne, Mme Nickie Davis, avait plaidé coupable de lobbying illégal dans le cadre de l’enquête sur l’affaire 1MDB et de l’expulsion d’un ressortissant chinois. (Lien vers les informations connexes : https://www.justice.gov/opa/pr/hawaii-businesswoman-pleads-guilty-facilitating-back-channel-lobbying-campaign-drop-1mdb).
+
+有趣的是，对此案关注最多的却是在地球另一边万里之遥的中国。两百多年世世代代的成熟民主生活，文明的思维方式，使美国人对政治的敏感性很低，极少能有人敏锐地认识到，司法部以及其背后的Trump行政分支，为这次史诗般的世纪大案祭出了第一位降将——全球知名的lobbyist，中文翻译为“说客”（一些特殊“说客”则扮演了“睡客”的角色）——Nickie M. L. Davis女士。
+
+Il est intéressant de noter que à l’autre bout de la planète, c’est la Chine, qui accorde le plus d’attention à cette affaire. Ayant une démocratie de plus de deux cents ans et une manière de pensée civilisée, les Américains sont peu sensibles à la politique et peu de gens sont conscients que le ministère de la Justice et l’administration de Trump ont dévoilé le premier personnage de cette affaire la plus épique du siècle :
+
+– la lobbyiste de renommée mondiale, Mme Nickie L. Davis.
+
+此时此刻，美国人在生物武器的攻击下昏头昏脑地过了半年。疫情、病痛、死亡、恐惧；明尼苏达州的George Floyd死于警察执法的新闻带来的黑命贵(Black Lives Matter)运动；美国人的生活中莫名奇妙地出现了骚乱，死于骚乱的警民远远超过了Floyd的个案，而偏偏在最不应该大规模群众集会的疫情期间——显然黑命鬼运动刺激了疫情的大幅增长；民主党在极左的道路上狂奔，政治精英带头在国会下跪，民主党全国大会连续进行多日，政治大佬和政治新星们纷纷上台献艺，你方唱罢我登场，却没有人提到CCP。
+
+À ce jour, les Américains ont passé six mois sonnés par l’attaque d’ armes biologiques. Épidémies, maladie, mort, peur ; le mouvement Black Lives Matters provoqué par la mort de George Floyd au Minnesota; les émeutes qui ont causé de nombreuses morts et d’importants nouveaux cas de contamination du Covid-19. Les démocrates se déchaînent vers l’extrême gauche, les élites politiques montrent la voie en s’agenouillant au Congrès, la Convention nationale démocrate se poursuit pendant des jours, des personnalités politiques de premier plan et des étoiles montantes de la politique montent sur scène à tour de rôle. Cependant, personne ne parle du PCC.
+
+CCP——它红色的血旗和百年来的言行令人想起圣经启示录中的红龙——和所有美国人面临的困境和疑惑都有直接关系，此刻它正在盘算着下一个阴谋——征服美国，统治世界。
+
+Le PCC – avec son drapeau rouge et sa doctrine et ses actes vieux d’un siècle faisant penser au dragon rouge dans l’Apocalypse de la Bible – a un lien direct avec les difficultés et les doutes auxquels sont confrontés tous les Américains, et en ce moment même, il prépare sa prochaine conspiration : conquérir l’Amérique et diriger le monde.
+
+此次此刻，在中文世界，有一位喜爱健身的直播播主郭文贵(Miles Guo)先生正在一边品尝美食，一边点评世界的未来；一位勤奋的主播路德先生，正在每天早晚两集制作评论节目，为十几亿中文观众群体点评CCP的邪恶。在英文世界，特立独行的Steve K. Bannon先生刚刚从纽约南区法院获得保释，回到他在华盛顿的War Room节目，继续唤醒沉睡的美国人。在普通人无法看见的地方，是这场世纪大战的名将们：总统Donald J. Trump，副总统、国务院、国防部、国家安全委员会、国家经济顾问，参众两院已经觉醒的议员们……
+
+En ce moment, dans le monde chinois, le radiodiffuseur M. Miles Guo est en train d’avertir le monde; un autre Youtubeur très assidu, M. Lude, est en train de faire des émissions deux fois par jour, matin et soir, exposant les maux provoqués par le PCC auprès d’un milliard d’internautes chinois.
+
+Dans le monde anglophone, Steve K. Bannon au fameux franc-parler vient d’être libéré sous caution par le District Sud de New York et revient à son émission War Room à Washington, D.C., continuant à réveiller le peuple américain concernant le PCC.
+
+Les gens ne remarquent pas les héros cachés de la bataille du siècle : le président Donald J. Trump, le vice-président, le département d’État, le département de la défense, le Conseil national de sécurité, les conseillers économiques nationaux, les membres anti-PCC du Sénat et de la Chambre des représentants….
+
+这场世纪大战的决战开始于司法部。在法律精英治国的美国，司法部以白宫为导向，手握联邦检察权，领导FBI，以U.S.的名义打击犯罪，起诉案件。这位认罪的Davis女士，她所游说的1MDB案和对中国籍人士的遣返，背后的千头万绪都指向当今世界中几乎所有悬而未决的关键社会矛盾，从美国的疫情到黑命贵，从民主党不切实际的极左倾向到共和党出卖信仰的伪保守派，从Trump内阁面对的巨大困难，到历任总统和国会对CCP的纵容，遗留的各种问题和不为人所知的内幕，从商界大佬到社会名流；从北美到欧洲、非洲，到土耳其、俄罗斯，到中东、印度洋、中亚，到东南亚的Najib、刘特佐，沿着CCP所谓的一带一路，指向黑幕重重的共产中国。
+
+Le duel du siècle a commencé au ministère de la Justice ( DOJ ) aux États-Unis où l’élite juridique dirige le pays. Où le ministère de la justice, sous l’égide la Maison Blanche, détient le pouvoir fédéral des poursuites, et dirige le FBI, lutte contre la criminalité et poursuit les affaires au nom des États-Unis.
+
+L’implication de Mme Davis dans l’affaire 1MDB et l’expulsion des ressortissants chinois, dévoilent les actions de la Chine communiste qui cherche à mettre sa main sur le monde: de l’épidémie en Amérique à Black Lives Matter; des idées farfelues d’extrême gauche des Démocrates au pseudo-conservateur républicain qui trahi sa foi; des difficultés énormes rencontrées par l’administration du Trump au laxisme des anciens Présidents et du congrès vis-à-vis du PCC; des magnats des affaires aux mondains; de l’Amérique du Nord à l’Europe jusqu’à l’Afrique, de la Turquie à la Russie, au Moyen-Orient, de l’océan Indien à l’Asie centrale et à Najib et Jho Low de l’Asie du Sud-Est, tout au long de cette soit disant initiative de la nouvelle Route de la Soie, nous sont révélées les actions occultes de la Chine communiste.
+
+Davis案，将要呈现给这个世界的，是全人类邪恶的总成。不过，能让司法部首战告捷的背后，是代表正义的更大的力量——郭文贵先生领导的爆料革命所汇集的正道主义的复仇者联盟。
+
+L’affaire Davis est sur le point de révéler au monde les complexes infiltrations du PCC aux États-Unis. Cependant, derrière la première victoire du DOJ des États-Unis, se trouve la force de justice la plus efficace – une coalition de justiciers réunis par le Mouvement des Lanceurs d’Alertes mené par M. Miles Guo.
 
 
-郭文貴先生的壹曲《Take down the CCP》在三天之內登上了美國、加拿大、香港、匈牙利、澳門、新西蘭、新加坡、臺灣和阿聯酋9個國家蘋果itune流行歌曲排行榜的第壹名。
-
-毋庸置疑，這是我們這個被CCP病毒陰雲籠罩下的世界裏，上天之神射向每壹個人心底的、壹道開天辟地的、穿透壹切黑暗的強光。文貴先生既不是專業歌手，之前也從未踏入過音樂類相關行業領域，他完全是個門外漢，竟然憑借單曲在許多國家摘得桂冠。除去了必要的商業運作，最關鍵的要素就是單曲本身所蘊含的巨大魅力。
-
-藝術作品，包括音樂，包括舞蹈，包括電影，優秀與否，成功與否，炫酷的技巧和層層包裝僅僅是最外層的，核心在於是否擁有靈魂，換句話說，是否擁有打動人心的力量。所有的包裝憑借資金、技術、資源，在短時間內都是很容易可以達到的，然而內在的精神則是難以憑借任何外在的物質資源獲得的。只有出自心底最真實的聲音，出自靈魂最深處的渴求，才可以打動全世界的所有人，並與他們產生綿綿不絕的共鳴。文貴的歌不僅僅唱出了14億中國老百姓的心聲，還唱出了全世界各地珍視普世價值、熱愛自由的老百姓的心聲。在這個世界，這樣的穿透力，將是無人可擋、無可比擬的！
-
-早先幾乎於此同時，被共產黨挾持的迪斯尼公司隆重推出了花木蘭，然而市場反應極其暗淡，明顯遭到全世界老百姓的拋棄。除去電影的拍攝取景點是在被中共恐怖集中營了的新疆不談，除去女演員劉若非支持香港黑警惡行、公開發表讓人震驚的添共言論不談，除去電影觀眾不滿迪斯尼公司為了票房收入、跪舔中共的行為不談，單從影片本身的價值取向來看，已經在實質上徹底失敗了。
-
-花木蘭的故事之所以在中國民間上千年來廣為流傳，根本的原因有兩個。
-壹、中國古代傳統社會的老百姓，為壹位女性英雄的壯舉而大聲贊美和表示驚嘆。壹位孱弱女性，勇敢擔當了很多男人都不敢想、不敢做、甚至巴不得逃掉的事情，這對老百姓來說是非常震驚和羨慕而做不到的事情；
-二、這個故事是老百姓對連年戰爭帶來的極端痛苦的委婉訴說。幾千年帝王等級集權體制帶來了數不盡的戰亂，生靈塗炭。老百姓從來沒有過過好日子。社會的主力，老百姓家的男人們，被壓迫、被鞭打、被招安、被從軍、被戰死，幾千年來從來沒有變過。這樣的痛苦讓許許多多的男人都閉了嘴，精神上被暴政殘忍的閹割了。所以轉向借用壹位女性，用壹種更加安全的方式，從壹個纖纖弱女子的視角，表達勇敢、表達痛苦、表達希望。無論是直接表達還是間接表達，老百姓對於父親深刻的愛，內心超乎想象的勇敢，壹點都沒有減退過，對於暴政和戰爭的憎恨壹點都沒有減退過。
-
-這才是花木蘭故事幾千年來流傳至今和真正打動人心的地方。不是什麽中共的電影裏拍出來的，像東方不敗，或者像黑山老妖，或者像梅超風似的，滿眼殺氣，滿身戾氣的女魔頭形象。花木蘭故事的真意完全被共產黨殘酷的扭曲了。真正的花木蘭精神的傳承者是像閆麗夢博士那樣的女子。
-
-就像他們扭曲了孔子、扭曲了魯迅，他們扭曲了所有的人和事。把黑的說成白的，把白的說成黑的。把流氓說成偉人，把偉人變成狗屎。扭曲了歷史，把它當成獲取權力的工具。為了控制世界，把所有老百姓，包括中國的也包括全世界其他國家的老百姓，變成累累白骨，踩在腳下，變成巴比倫的通天塔，就是為了淩駕壹切的權力。什麽電影、什麽音樂、什麽文學藝術，都是他們可以玩弄、可以摧毀的。為了統治世界，共產黨可以扭曲所有人類文明，不管哪個種族的，上萬年發展遺留下來的優秀結晶；他們可以無情的消滅人類的肉體；更加殘忍的是他們利用音樂，利用文化，利用電影，利用舞蹈，利用壹切可以利用的東西，制造壹代又壹代活著的僵屍，讓他們沒有靈魂、沒有信仰、甚至沒有任何思想，更不用提創新了。中國共產黨就是撒旦在這個世界的代言人，他們的根本目的就是要摧毀全人類，摧毀這個世界。但是上帝必勝，上帝是愛，上帝是正義，正因為我們堅守愛和正義，從來沒有放棄過，所以我們在贏，上帝站在我們壹邊，上帝在幫助我們。
-
-中國共產黨必亡，聽著文貴先生鏗鏘有力的歌聲，妳感受到了這股強大的力量了嗎？妳有勇氣像真正的花木蘭壹樣，保護家人，以超乎想象的勇敢和智慧，對抗邪魔共產黨，頑強的，堅定的，鬥爭到底，重獲自由嗎？美好未來在每個人的心裏，解放和自由靠每個人壹步壹步的努力和作為。跟著文貴先生，他率領我們奔向自由，妳邁開了第壹步了嗎？妳放下了心頭的恐懼了嗎？妳還想做壹頭任人宰割的豬嗎？妳還要做套著手銬和腳鏈起舞的奴隸嗎？
-
-是時候找回做人的尊嚴了，或許妳有各種各樣的顧慮，但是奔向自由的努力是每個人都可以做到的，或大或小，或偉大或卑微。然而，行動行動行動，這是唯壹自我救贖的路，上帝在指引著我們，上帝就站在我們的身旁，我們壹定會取得勝利！
 
 0

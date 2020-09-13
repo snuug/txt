@@ -1,34 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快訊】人民日報再次“問候”彭培奧之流！
-`2020-09-12 16:00 pmzy` [轉載自GNews](https://gnews.org/zh-hant/351029/)
+## 澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭報導閆麗夢博士接受《Loose Women》採訪，將提供病毒來自中共實驗室證據
+`2020-09-12 18:58 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/351172/)
 
-內新聞： 文帝
+喜馬拉雅聯盟加拿大農場 熊媽媽
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12185114/666666666666.jpg)圖片來源：YouTube 
+9月12日，澳大利亞、俄羅斯、加拿大、摩爾多瓦、荷蘭媒體報導閆麗夢博士接受《Loose Women》採訪，表示SARS-CoV-2是在中共實驗室基於天然冠狀病毒人工製造的，並將提供病毒來自中共實驗室證據。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12155913/Screenshot_2020-09-12-23-02-00-084_Discord.png)
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/12155941/Screenshot_2020-09-12-22-59-16-351_Discord.png)
+閆博士表示，她將與美國領先的病毒學家合作發表多篇科學文章，其中將包含證據證明該病毒首先是在實驗室中產生的，其次是在中共政府擁有的武漢的實驗室中產生的。她說，這些文章的第一篇將在“幾天之內”發表。
 
+閆博士說，她去年是最早進行了COVID-19研究的成員之一。她堅持認為，關於去年在武漢一家海鮮市場出現這種病毒的廣泛報導是一種”煙幕”。
 
-繼北京衛視用紀錄片諷刺彭培奧之後，人民日報再次發10張漫畫，指責彭培奧之流：與其花那麽多時間朝中國潑臟水，不如思考以下所十個“問題”：
+當被問及造成全球90多萬人死亡的致命病毒來自哪裡時，閆博士在一個秘密地點的視頻中回答說：”它出現在武漢的一個實驗室，實驗室由中國政府控制。”
 
-1、講規則
-2、尊重科學
-3、包容性
-4、負責任
-5、最重視人權平等
-6、熱愛和平
-7、有自信
-8、公共衛生水平全世界最棒
-9、講道義
-10、“幹凈”的國家
+“首先，在武漢的海鮮市場–是煙幕，這種病毒是不自然的，”閆說，並進一步解釋說，她收到了”來自中國的疾病預防控制中心及各地醫生的信息”。 ”
 
-相信彭培奧之流從2019年大家已經不陌生，也曾叫做“班農之流”，就是那些專門扒掉中共底褲的人，那些堅決反抗之士。中共連續數月壹直指責彭培奧，用罵和謊言編織精美的反美言論，在國內大逞口舌之快！
+她在脫口秀節目中說，”基因組序列就像一個人的指紋，所以，基於它，你可以識別這些東西。我用證據告訴人們為什麼它來自中國的一個實驗室，為什麼他們是唯一做到這一點的人。”
 
-中共高頻率咒罵另壹個國家國務卿，實在上不得臺面毫無大國形象可言。內部人民失業、水災、臺風等災害帶來的民不聊生他們全不管，只能通過語言，掀起人民的仇恨，轉移國內矛盾。
+病毒學家說，“她計劃發表具有科學證據的文章，證明病毒是在武漢的一個實驗室製造的。任何人，甚至沒有生物學知識的人，都可以閱讀這篇文章。”
 
-當然，也很容易看出，中共確實被“彭培奧之流”打痛了，而這些狂風驟雨的諷刺中，我們也能看出，美國正在進行的行動和即將落下的重錘，讓中共萬分恐懼，只能靠“罵聲”壯膽。
+她解釋說，她現在之所以說這些是因為，”我知道，如果我不告訴世界真相，我會後悔的。”
 
-中共，可憐！可悲！可笑！
+閆博士還表示，在離開中國之前，她得知自己的信息已從政府數據庫中刪除。她告訴《Loose Women》，“他們刪除了我的所有信息，他們僱傭網絡水軍散播關於我是騙子的謠言。”
+
+武漢病毒研究所所長王延軼此前否認有關該病毒可能意外從其研究所洩露的報導。王延軼4月份對中國的官方媒體說：“這種病毒絕不是來自我們的。”
+
+回想一下，閆博士在4月從香港逃到美國。據她說，她為自己的生命而擔憂，並想向世界講述有關病毒起源的真相。她在2019年11月至12月進行的研究表明，該病毒會在人與人之間傳播，中共政府對世界撒謊，掩蓋病毒真相。
+
+在英雄科學家閆麗夢博士接受英國著名《Loose Women》節目採訪之後，9月12日，多國就此次採訪進行了跟踪報導，表達了震驚與期待，特別是閆博士提出的近幾日即將發布的“證明新冠病毒就是來自中共軍方實驗室的科學文章”，以及里面有“普通大眾可以看懂的像人體指紋一樣的基因組序列”。此次採訪就像在平靜的水面扔下一顆石子，波紋在持續不斷的向外擴散中，中共的謊言即將被戳穿。
+
+參考鏈接：https://www.cqnews.com.au/news/chinese-defectors-shocking-virus-claim/4097902/
+
+[https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8](https://rossaprimavera-ru.turbopages.org/rossaprimavera.ru/s/news/951696c8)
+
+[https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme](https://www.journaldemontreal.com/2020/09/11/une-virologue-chinoise-pense-que-la-covid-19-a-ete-fabriquee-par-lhomme)
+
+[https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1](https://noi.md/ru/obshhestvo/zayavlenie-esti-dokazatelistva-chto-virus-covid-19-byl-sozdan-v-laboratorii?prev=1)
+
+[https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm\_medium =twitter&utm\_content=Nieuws&utm\_source=dlvr.it&referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1](https://www.hln.be/nieuws/buitenland/chinese-klokkenluidster-beweert-dat-coronavirus-ontstaan-is-in-lab-en-kan-daar-wetenschappelijk-bewijs-voor-leveren~a76ef055/?utm_medium=twitter&amp;utm_content=Nieuws&amp;utm_source=dlvr.it&amp;referer=https%3A%2F%2Ft.co%2FHd3RxYsj61%3Famp%3D1)
 
 0
