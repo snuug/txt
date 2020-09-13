@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中國共產黨正在為螞蟻集團(ANTgroup)進行IPO(首次公開募股)形式的籌款活動（西班牙語Spanish+英語English）
-`2020-09-13 07:10 GM62` [轉載自GNews](https://gnews.org/zh-hant/352097/)
+## 9月12日戰斗室EP383: 中共不說話(只是行動), 他們就是要毀滅美國, 毀滅你們
+`2020-09-13 09:20 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/352316/)
 
-西班牙語標題 El Partido Comunista Chino está haciendo una recaudación de fondos, está recibiendo la ayuda de Wall Street para atraer inversores estadounidenses
-翻譯：Benzhang(文羽) 校對：帅虎 視頻：小羽
+9月12日戰斗室EP383 精選片段：“行動, 行動, 行動”, 這就是為什麼中共不說話（只是行動）,他們就是要毀滅你們的國家（美國）, 毀滅你們！
 
-視頻簡介
-中國共產黨正在為螞蟻集團(ANTgroup)進行IPO(首次公開募股)形式的籌款活動。 該集團參與了為中共國軍方的收集資訊和濫用人權的活動。
 
-El Partido Comunista Chino está haciendo una recaudación de fondos, está recibiendo la ayuda de Wall Street para atraer inversores estadounidenses por muchos miles de millones de dólares. razones de peso para no invertir en ANTgroup, incluida la participación informada de la Compañía en abusos de derechos humanos
+
+By：【秘密翻譯組G-Translators】
 
 0

@@ -1,16 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我們需要利用文化運動,向世界講述中共的真相（西班牙語Spanish+中文Chinese）
-`2020-09-13 07:25 GM62` [轉載自GNews](https://gnews.org/zh-hant/352126/)
+## 中新聞：拍花木蘭是否用奴工？美議員要迪士尼解釋
+`2020-09-13 09:49 EWENFEI` [轉載自GNews](https://gnews.org/zh-hant/352391/)
 
-西班牙語標題 Estámos utilizando la cultura como arma para derrocar el PCCh. Quiero decir la verdad del PCCh, el PCCh es un mentiroso
+收集人：JAY  整理：zhong 覆核：文非
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13094901/11-3.jpg)
+摘要：電影《花木蘭》在歐美的線上上映時，外界發現迪士尼在片尾感謝了幾個新疆政府部門，這些部門涉嫌囚禁維吾爾人，（如“吐魯番公安局”、“新疆自治區黨委宣傳部”等實際參與維吾爾人“再教育營”的中共機構。）
 
-翻譯：谜拟Q 校對：帅虎 視頻：文靓
+美國國會兩黨參議員（含信件圖片）要求迪士尼公司首席執行官鮑勃•查佩克Bob Chapek解釋電影《花木蘭》製作期間，迪士尼與中共新疆“安全和宣傳部門”的合作。
 
-視頻簡介
-Estámos utilizando la cultura como arma para derrocar el PCCh, para decirle al mundo entero que el PCCh ha lavado el cerebro a los chinos en los últimos 70 años. Quiero decir la verdad del PCCh, el PCCh es un mentiroso
+評論
 
+中共大外宣近年透過電影將思想洗腦到全世界，在爆料革命的努力之下，已是眾所皆知的事情。但是，在美國政府全力滅共、全球團結人道救援之際，中共政府仍然執迷不悟。且迪士尼也在中共資金滲透之下，成為中共大外宣的工具之一。
 
+美國政府在過去幾個月進行了金融、科技脫鉤，只為了降低中共利用經濟、科技手段將全世界拖向毀滅深淵，且十分有效。但中共卻以電影等娛樂產業為他非法行為洗白，可見美國政府在金融、科技、學術研究脫鉤之後，接下來會以中共在娛樂產業的滲透為主要脫鉤對象，徹底剿滅中共在牆外的影響力。讓協助中共為非作歹之人付出代價，同時達到維護美國國安、國際社會安全、種族人權等目的。
+
+新聞源：大紀元
+
+[https://www.epochtimes.com/gb/20/9/12/n12399257.htm](https://www.epochtimes.com/gb/20/9/12/n12399257.htm)
 
 0
