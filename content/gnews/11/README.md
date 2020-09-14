@@ -1,13 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 劍指生物武器&#8211;《中共病毒最新科學報告》
-`2020-09-14 11:26 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/355465/)
+## 一切都已經開始：以共滅共 中共官員落馬記事簿之十二
+`2020-09-14 13:48 GM06` [轉載自GNews](https://gnews.org/zh-hant/355861/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬
+山東省退役軍人事務廳副廳長於松巖被查
 
-校對 文錦
+編輯：雅典娜之矛
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14134412/%E5%AE%98%E5%91%98%E8%90%BD%E9%A9%AC3.jpg)
+2020年9月14日，滅共進入越來越快節奏中。
 
-美東時間9月14日，英雄科學家閆麗夢博士在個人Twitter賬號@Limengyan119發布了關於新冠病毒的重磅科學報告《Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolutio》，自安全逃離中共魔爪，閆博士和多位科學家在法制基金和法制社會的支持下，經過149天的辛苦工作，在報告中科學的論證了新冠病毒是中共已有的蝙蝠病毒經過“功能增強實驗”得到的軍事武器。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111339/The_Yan_Report_%E9%A1%B5%E9%9D%A2_01.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111353/The_Yan_Report_%E9%A1%B5%E9%9D%A2_02.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111407/The_Yan_Report_%E9%A1%B5%E9%9D%A2_03.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111420/The_Yan_Report_%E9%A1%B5%E9%9D%A2_04.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111434/The_Yan_Report_%E9%A1%B5%E9%9D%A2_05.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111447/The_Yan_Report_%E9%A1%B5%E9%9D%A2_06.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111515/The_Yan_Report_%E9%A1%B5%E9%9D%A2_07.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111502/The_Yan_Report_%E9%A1%B5%E9%9D%A2_08.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111528/The_Yan_Report_%E9%A1%B5%E9%9D%A2_09.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112131/The_Yan_Report_%E9%A1%B5%E9%9D%A2_10-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111608/The_Yan_Report_%E9%A1%B5%E9%9D%A2_11.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111621/The_Yan_Report_%E9%A1%B5%E9%9D%A2_12.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111541/The_Yan_Report_%E9%A1%B5%E9%9D%A2_13-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111554/The_Yan_Report_%E9%A1%B5%E9%9D%A2_14.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111939/The_Yan_Report_%E9%A1%B5%E9%9D%A2_15.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111633/The_Yan_Report_%E9%A1%B5%E9%9D%A2_16.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111645/The_Yan_Report_%E9%A1%B5%E9%9D%A2_17.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111658/The_Yan_Report_%E9%A1%B5%E9%9D%A2_18.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111710/The_Yan_Report_%E9%A1%B5%E9%9D%A2_19.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111723/The_Yan_Report_%E9%A1%B5%E9%9D%A2_20.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112007/The_Yan_Report_%E9%A1%B5%E9%9D%A2_21.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111735/The_Yan_Report_%E9%A1%B5%E9%9D%A2_22.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112036/The_Yan_Report_%E9%A1%B5%E9%9D%A2_23.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112048/The_Yan_Report_%E9%A1%B5%E9%9D%A2_24.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112102/The_Yan_Report_%E9%A1%B5%E9%9D%A2_25.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112219/The_Yan_Report_%E9%A1%B5%E9%9D%A2_26.jpg)
+戰友們以前每天等待重磅哥直播，目前幾天已經對於每日重磅推出帶來的震撼越來越有免疫力。因為，大家越來越覺得，某日醒來CCP倒臺了那壹天很近了！大家越來越相信：CCP妳完了！
+
+每天好消息越來越密集！朱利安尼先生和路德先生“摟住”過後，今日朱利安尼先生在專訪中爆出：病毒屬於生化武器，不是無意傳播。對CCP定性明確，滅共又晉級到壹個新高度！中共完美的掘墓人郭文貴先生世界各地熱歌下載排行版雄踞榜首，開啟全球文化運動滅共狂潮！今日直播更加的快樂滿滿，新歌段子加山東小曲兒了開啟了快樂音樂滅共時光！臺前幕後大劇繼續壹步步穩紮穩打！
+
+世界推動加速以共滅共力度持續加大，壹切盡在加速中！壹切都已經開始！九月序幕拉開，落馬個個相續，不要停！落馬不分先後，善惡終有因果！為了維護世界的安全和正義，全世界壹起來消滅CCP！爆料革命啟動的新史冊繼續接力創造中……
+
+今日以共滅共記事簿繼續開工：
+
+2020年9月14日， 據山東省紀委監委消息：山東省退役軍人事務廳黨組成員、副廳長於松巖涉嫌嚴重違紀違法，目前正在接受山東省紀委監委紀律審查和監察調查。
+
+於松巖簡歷
+
+於松巖，男，漢族，1964年7月生，山東沂水人，省委黨校研究生學歷，1985年2月加入中國共產黨，1985年7月參加工作。曾任省公安廳人事處副處長、裝備財務處處長等職。
+
+2010年5月任省公安廳刑事偵查總隊政委(副廳級);
+
+2010年12月任省公安廳出入境管理總隊政委;
+
+2011年12月任德州市副市級幹部，市政府黨組成員，市公安局黨委書記、局長;
+
+2015年9月任德州市政府黨組成員、副市長，市公安局黨委書記、局長;
+
+2018年11月至今任省退役軍人事務廳黨組成員、副廳長。
+
+來源：山東省紀委監委
+
 0

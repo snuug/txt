@@ -1,35 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共正在對美國發動全面戰爭
-`2020-09-14 08:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/354531/)
+## 劍指生物武器&#8211;《中共病毒最新科學報告》
+`2020-09-14 11:26 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/355465/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14083051/Picture3-5.png)圖片來源：gnews.org 
-美國高級政策顧問，川普總統競選顧問柯蒂斯·埃利斯（Curtis Ellis）9月11日在《每日世界網》（WND）發表文章稱，中共正在對美國發動全面戰爭，這是一場沒有硝煙的戰爭，包括三個領域：經濟戰，意識形態戰和信息戰。
+喜馬拉雅聯盟加拿大農場 大地鯤鵬
 
-在經濟方面，中共通過補貼自己的產業，以低於生產成本的價格傾銷產品，並操縱其貨幣匯率等手段，奪取美國企業市場份額，從鋼鐵和鋁業製造，到電信，汽車和能源，它在一個行業接一個行業中都做到了，這導致了大批美國企業破產。
+校對 文錦
 
-在意識形態方面，中共通過各種手段，不遺餘力地推銷其所謂“具有中國特色的社會主義”制度，其實質就是一黨專制，中央計劃經濟，和對社會各個方面的管控。中共通過表面的友善和有利可圖的交易，誘使西方政策制定者或輿論引導人士接受這個馬克思-列寧主義國家作為合作夥伴。
-
-本文作者認為，最激烈的戰爭是在信息領域進行的，在這個“虛擬”網絡世界中，戰爭卻是非常真實的。最著名的例子是中共電信巨頭，5G互聯網技術的領導者—華為公司。美國政府已禁止華為硬件進入美國電信系統，並敦促其他國家也這樣做。這場戰鬥與市場份額和硬件本身無關，其實質目的是要阻止中共竊取數據。
-
-同時，出於類似原因，美國政府還禁止中共的社交媒體視頻應用TikTok。該應用程序允許用戶提供自定義內容，獲取用戶的個人信息，並通過人工智能計算和監視用戶喜歡的視頻，收集用戶的詳細心理特徵。 TikTok收集用戶的信息包括：年齡，性別，搜索和瀏覽歷史記錄；用戶與之互動的帖子的特徵，包括帖子的主題以及用戶查看該帖子所需的時間；以及用戶的位置。然後，通過算法將向用戶生成建議，並向用戶推送中共的宣傳內容。
-
-中共還進一步匯總從各種來源收集的信息，並針對每個美國人創建檔案。例如，它入侵了美國政府的人事記錄，掌握官員的付款記錄；或黑客入侵酒店電腦系統，記錄美國政府僱員或承包商的履行和出訪情況，等等。
-
-更有甚者，中共還利用矽谷Alphonso公司與中共國有技術公司海信的共享數據，通過Alphonso的軟件，使智能手機的麥克風可以用來收集用戶的電視和電影觀看數據。不僅如此，該軟件還安裝在美國成千上萬的智能電視和機頂盒上，中共的間諜軟件已深入到美國的千家萬戶。
-
-另外，一家尋求接管GNC的中共國公司也引起了人們的擔憂，人們不禁要問，他們除了要購買GNC商店，是否也購買了GNC的用戶信息呢？
-
-本文更進一步指出，中共現在毫不掩飾其致力於在全球範圍內控制信息的野心。中共非常清楚，控制了信息就控制了人的行為和思想，這也是為什麼中共要建立防火牆的原因。
-
-另據《華爾街日報》報導，中共發起了一項“全球數據安全倡議”，以製定全球數據安全標準。但中共的意願和利益以及它劣跡斑斑的歷史，注定它沒有資格製定國際數據規則。可悲的是，Facebook和Google這樣的行業巨頭也是如此。
-
-由此，我們必須警醒並意識到信息戰就在我們每一個人身邊。
-
-[相關鏈接](https://www.wnd.com/2020/09/like-not-war-china/)
-
-翻譯：Hanstyle 
-校對：文投
-
+美東時間9月14日，英雄科學家閆麗夢博士在個人Twitter賬號@Limengyan119發布了關於新冠病毒的重磅科學報告《Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolutio》，自安全逃離中共魔爪，閆博士和多位科學家在法制基金和法制社會的支持下，經過149天的辛苦工作，在報告中科學的論證了新冠病毒是中共已有的蝙蝠病毒經過“功能增強實驗”得到的軍事武器。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111339/The_Yan_Report_%E9%A1%B5%E9%9D%A2_01.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111353/The_Yan_Report_%E9%A1%B5%E9%9D%A2_02.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111407/The_Yan_Report_%E9%A1%B5%E9%9D%A2_03.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111420/The_Yan_Report_%E9%A1%B5%E9%9D%A2_04.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111434/The_Yan_Report_%E9%A1%B5%E9%9D%A2_05.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111447/The_Yan_Report_%E9%A1%B5%E9%9D%A2_06.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111515/The_Yan_Report_%E9%A1%B5%E9%9D%A2_07.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111502/The_Yan_Report_%E9%A1%B5%E9%9D%A2_08.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111528/The_Yan_Report_%E9%A1%B5%E9%9D%A2_09.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112131/The_Yan_Report_%E9%A1%B5%E9%9D%A2_10-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111608/The_Yan_Report_%E9%A1%B5%E9%9D%A2_11.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111621/The_Yan_Report_%E9%A1%B5%E9%9D%A2_12.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111541/The_Yan_Report_%E9%A1%B5%E9%9D%A2_13-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111554/The_Yan_Report_%E9%A1%B5%E9%9D%A2_14.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111939/The_Yan_Report_%E9%A1%B5%E9%9D%A2_15.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111633/The_Yan_Report_%E9%A1%B5%E9%9D%A2_16.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111645/The_Yan_Report_%E9%A1%B5%E9%9D%A2_17.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111658/The_Yan_Report_%E9%A1%B5%E9%9D%A2_18.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111710/The_Yan_Report_%E9%A1%B5%E9%9D%A2_19.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111723/The_Yan_Report_%E9%A1%B5%E9%9D%A2_20.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112007/The_Yan_Report_%E9%A1%B5%E9%9D%A2_21.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111735/The_Yan_Report_%E9%A1%B5%E9%9D%A2_22.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112036/The_Yan_Report_%E9%A1%B5%E9%9D%A2_23.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112048/The_Yan_Report_%E9%A1%B5%E9%9D%A2_24.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112102/The_Yan_Report_%E9%A1%B5%E9%9D%A2_25.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112219/The_Yan_Report_%E9%A1%B5%E9%9D%A2_26.jpg)
 0
