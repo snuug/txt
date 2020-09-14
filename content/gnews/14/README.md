@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班農疫情作戰室377期
-`2020-09-14 02:05 GM47` [轉載自GNews](https://gnews.org/zh-hant/353988/)
+## 【世界多語言文字版】9月11日Loose Women採訪閆麗夢博士
+`2020-09-14 09:33 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/354750/)
 
-戰友之家新聞譯製組製作
+![This image has an empty alt attribute; its file name is 4d4bf30b-012a-4a76-ba66-9b32ae57f1f0.jpg](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13025543/4d4bf30b-012a-4a76-ba66-9b32ae57f1f0.jpg)
 
+[【中文版】閆博士：新冠病毒是一個傳染力極強的病毒，為了人類、為了世界公共健康，我必須站出來說出真相，即使我“被消失” ！](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14093152/N091107-CN-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman-1-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14093152/N091107-CN-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman-1-1.pdf)
 
+[【西班牙語】Entrevista a la Dra. Yan en el programa Loose Women (UK)](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14091644/ES-N091107-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14091644/ES-N091107-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman.pdf)
 
-377.摘要
+[【法語版】Dr. Yan: Le nouveau coronavirus est un virus très contagieux. Pour le bien de l’humanité et pour la santé publique du monde, je dois me présenter et révéler la vérité, même si je ferais partie des “disparus” !](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13202009/FR-N091107-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13202009/FR-N091107-%E9%96%86%E5%8D%9A%E5%A3%ABin-loose-woman.pdf)
 
-川普：如果拜登贏，中(共)國就贏了。
+陸續更新中……
 
-民調職業籃球(NBA)收視率下降達40%，原因有三。第一，NBA變得十分政治化，第三，19%的觀眾說他們不看NBA的原因是他們支持中共。表示普通美國人知道共產中國才是讓他們目前跪下的根本原因。
-
-確保選舉合法和公正會是戰斗室圍繞的話題，任何候選人在取得最後結果前宣布勝利，我們會直接說：尚無最終結果。我們需要盡一切努力減少大選後發生暴力或內亂的機會。
-
-根據「過渡完整性技劃」的左翼分析，更激烈的戰鬥會在11月3日晚上開始，直到就職典禮那天。國家安全的人將盡全力確保美國人民永遠無法染指自己的選舉。 「過渡完整性技劃」是有劇本的，戰斗室看穿了他們的劇本。
-
-播放當紅“Take Down the CCP”的音樂錄像帶。
+**By：【秘密翻譯組G-Translators】**
 
 0

@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德談中共的生物武器並點名關鍵中共病毒科學家（2000.09.08）
-`2020-09-14 01:51 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/353699/)
+## 【中英文視頻版】2020/09/08 CCP病毒每日疫情直播簡報
+`2020-09-14 07:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/354386/)
 
-[《路德時評》2020年9月8日節目](https://youtu.be/Fgbm02Ij3vg)里講了冠狀病毒就是一個生物武器，它的隱秘性、易於攻擊性和範圍之廣，很難追跟溯源，這是共產黨陰險之處。視頻中提到了馬力克、[李放](https://gnews.org/zh-hant/345593/)、曹務春都與該生物病毒有關。不難看出這是一個預謀已久針對搞亂、搞弱、搞死美國（3F）的計劃。從2005年遲浩田的報告中就可以看出這是一個超限戰，戰爭一直都在。2008年的次貸危機到2009年的豬流感在美國爆發，再到華爾街運動，迫使美國產業鏈不得不選擇市場廣大、勞動力低廉的中共國市場，這一切的一切都是策劃好，預謀好的。
+英文標題 CCP Virus Pandemic Updates Ep228: A 12-year-old girl was tackled by the Hong Kong police while her family said she was only going out to buy art supplies.
 
-翻譯：【小粉紅】校對：【Rock小哥】二校：【一花一世界】終校：【Michelle】字幕：【恆久忍耐】聽寫：【羅賓Robin (文賓)】編輯：【Michelle】
+視頻重點
 
-戰友之家玫瑰園小隊出品
+1. 中國老百姓沒有私有土地，所有的土地都屬於國家或集體所有，集體財產歸國家，國家的財產歸黨，黨又由幾個掌權家族實行獨裁控制。看看八九∙六四和香港的返送中運動， 就會明白就連你的生命，也歸國家所有。
+2. 由於中國經濟低迷，中共先是鼓勵全民擺地攤以解決就業，後又叫停地攤經濟以配合”經濟正在轉好”的欺騙宣傳。推行地攤經濟時，城管甚至登門請求小商販來擺攤；現在城管恢復原來的惡劣作風。
+3. CCP無恥的宣傳：取消蒙語教學是為了孩子好，情切切意惶惶，推進國家統編語文教材的使用。
+4. 中共國在新疆集中營拘留了超過一百萬以上的維族同胞。吃飯前他們要說“習近平萬歲”；要學習毛澤東思想。處於24小時被監控、被洗腦、和強制勞動的狀態。甚至，不被允許同家人聯繫，有的最後死亡消失了都不被知道。
+5. 一名12歲女孩被香港警方逮捕，而她的家人說她只是上街購買藝術用品。這次逮捕發生在香港7月1日以來爆發的最大規模的街頭抗議之際，有近300人被捕，絕大多數人被控非法集會。
 
-相關新聞：[路德社點名的中共病毒專家「李放」](https://gnews.org/zh-hant/345593/)
 
-翻譯：【小粉紅】校對：【Rock小哥】二校：【一花一世界】終校：【Michelle】字幕：【恆久忍耐】聽寫：【羅賓Robin (文賓)】編輯：【Michelle】
+1. The people of CCP China do not own private land. All land belongs to the country or to the collective, the collective property belongs to the country, the country’s property belongs to the party, and the party is dictated by a few ruling families. If you look at the 89.64 (Tianamen Square Massacre) and the Hong Kong Anti-Extradition Law Movement, you will understand that even your life belongs to the country.
+2. Due to the economic downturn in China, the CCP first encouraged all of the people to set up stalls to solve unemployment, and then stopped the “Street Vendor Economy” to cope with the deceptive propaganda that “the economy is improving”. When promoting the street vendor economy, the ChengGuan (city management officers) even went door to door to ask the street vendors to set up the stalls.
+3. CCP shameless publicity: Canceling Mongolian teaching is for the good of the children in a hypocritical way. It is to promote the use of nationally unified Chinese teaching materials.
+4. The CCP has detained more than one million Uighurs in concentration camps in Xinjiang. Before eating, they must say “Long live Xi Jinping”; they must learn Mao Zedong Thought. They are being monitored, brainwashed, and forced into labor for 24 hours a day. They were not allowed to contact their family members, and some eventually died and disappeared without being known.
+5. A 12-year-old girl was tackled by the Hong Kong police while her family said she was only going out to buy art supplies. The arrest came amid the largest street protest seen in Hong Kong since July 1st. Almost 300 people were arrested. The vast majority are accused of unlawful assemblies.
 
-戰友之家玫瑰園小隊出品
 
 0
