@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/08 CCP病毒每日疫情直播簡報
-`2020-09-14 07:55 GM62` [轉載自GNews](https://gnews.org/zh-hant/354386/)
+## 0914 财经快讯：眼见甲骨文起朱楼，眼见他安邦楼塌了
+`2020-09-14 11:18 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/355374/)
 
-英文標題 CCP Virus Pandemic Updates Ep228: A 12-year-old girl was tackled by the Hong Kong police while her family said she was only going out to buy art supplies.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111330/image-185.png)
 
-視頻重點
+1.甲骨文在美国赢得TikTok的投标;微软提案被拒绝。甲骨文公司（OracleCorp.）赢得了视频共享应用程序TikTok在美国业务的竞标，在一项备受瞩目的交易中击败了微软公司
 
-1. 中國老百姓沒有私有土地，所有的土地都屬於國家或集體所有，集體財產歸國家，國家的財產歸黨，黨又由幾個掌權家族實行獨裁控制。看看八九∙六四和香港的返送中運動， 就會明白就連你的生命，也歸國家所有。
-2. 由於中國經濟低迷，中共先是鼓勵全民擺地攤以解決就業，後又叫停地攤經濟以配合”經濟正在轉好”的欺騙宣傳。推行地攤經濟時，城管甚至登門請求小商販來擺攤；現在城管恢復原來的惡劣作風。
-3. CCP無恥的宣傳：取消蒙語教學是為了孩子好，情切切意惶惶，推進國家統編語文教材的使用。
-4. 中共國在新疆集中營拘留了超過一百萬以上的維族同胞。吃飯前他們要說“習近平萬歲”；要學習毛澤東思想。處於24小時被監控、被洗腦、和強制勞動的狀態。甚至，不被允許同家人聯繫，有的最後死亡消失了都不被知道。
-5. 一名12歲女孩被香港警方逮捕，而她的家人說她只是上街購買藝術用品。這次逮捕發生在香港7月1日以來爆發的最大規模的街頭抗議之際，有近300人被捕，絕大多數人被控非法集會。
+[https://www.wsj.com/articles/microsoft-drops-out-of-bidding-for-tiktoks-u-s-operations-11600039821](https://www.wsj.com/articles/microsoft-drops-out-of-bidding-for-tiktoks-u-s-operations-11600039821)
 
+2.最新数据显示，随着两国之间的不信任加剧，以及来自中国内地的公司转向新兴市场，中国在澳大利亚的投资继续大幅下降.
 
-1. The people of CCP China do not own private land. All land belongs to the country or to the collective, the collective property belongs to the country, the country’s property belongs to the party, and the party is dictated by a few ruling families. If you look at the 89.64 (Tianamen Square Massacre) and the Hong Kong Anti-Extradition Law Movement, you will understand that even your life belongs to the country.
-2. Due to the economic downturn in China, the CCP first encouraged all of the people to set up stalls to solve unemployment, and then stopped the “Street Vendor Economy” to cope with the deceptive propaganda that “the economy is improving”. When promoting the street vendor economy, the ChengGuan (city management officers) even went door to door to ask the street vendors to set up the stalls.
-3. CCP shameless publicity: Canceling Mongolian teaching is for the good of the children in a hypocritical way. It is to promote the use of nationally unified Chinese teaching materials.
-4. The CCP has detained more than one million Uighurs in concentration camps in Xinjiang. Before eating, they must say “Long live Xi Jinping”; they must learn Mao Zedong Thought. They are being monitored, brainwashed, and forced into labor for 24 hours a day. They were not allowed to contact their family members, and some eventually died and disappeared without being known.
-5. A 12-year-old girl was tackled by the Hong Kong police while her family said she was only going out to buy art supplies. The arrest came amid the largest street protest seen in Hong Kong since July 1st. Almost 300 people were arrested. The vast majority are accused of unlawful assemblies.
+[https://www.abc.net.au/news/2020-09-13/chinese-investment-in-australia-takes-nosedive/12657140](https://www.abc.net.au/news/2020-09-13/chinese-investment-in-australia-takes-nosedive/12657140)
 
+3.中共中小银行疫情后处境艰辛，资本缺口巨大，地方专项债实施方案已经提上日程，陕西省政府已拟定46亿地方债用于农商行资本补充的方案，温州银行9月7日将地方专项债列入增资扩股方案的募资来源。政府专项债注资不过是杯水车薪，资产质量堪忧的商业银行和抵御风险能力极低的中小银行，唯有通过合并重组才能保持一定的资产规模，降低不良占比。银行提高治理水平和风控能力才是根本，否则中共金融系统崩盘只是时间问题。
+
+[https://twgreatdaily.com/HgmvinQBeElxlkkadxbu.html](https://twgreatdaily.com/HgmvinQBeElxlkkadxbu.html)
+
+4.9月12日，李开复在HICOOL全球创业峰会上表示蚂蚁金服为合作公司提供人脸数据？蚂蚁集团紧急辟谣后李开复道歉并表示为口误
+
+[https://mp.weixin.qq.com/s/srJVB4kfQwhzvwg5eIPKCw](https://mp.weixin.qq.com/s/srJVB4kfQwhzvwg5eIPKCw)
+
+5.万亿金融帝国安邦集团今日宣布：申请解散并清算！
+
+[https://money.163.com/20/0914/20/FMGTGV4N00259DLP.html](https://money.163.com/20/0914/20/FMGTGV4N00259DLP.html)
+
+[秘密翻译组·金融法律组]
 
 0
