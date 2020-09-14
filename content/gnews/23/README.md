@@ -1,13 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 劍指生物武器&#8211;《中共病毒最新科學報告》
-`2020-09-14 11:26 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/355465/)
+## 妄想用核武花式爆破來毀滅人類，中共有這個能力嗎？
+`2020-09-14 12:51 Wenxiu` [轉載自GNews](https://gnews.org/zh-hant/355745/)
 
-喜馬拉雅聯盟加拿大農場 大地鯤鵬
+作者：小強
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14123738/nuke169-1.png)
+中共紅客聯盟創始人趙盛燁壹篇用核武器反人類的博客文章，抱著無知者無畏的精神，引起人們的嘩然。然而文章中提及的中共靠核武器毀滅地球的可能性真的存在嗎？
 
-校對 文錦
+我們先算壹下核武器的數量，根據斯德哥爾摩國際和平研究所（SIPRI）2019年年鑒（6月版）數據，世界上核武器總數從2018年的14,465枚下降到今年的約13,885枚。其中，中共國約持有290枚，具體的當量沒有準確記錄。
 
-美東時間9月14日，英雄科學家閆麗夢博士在個人Twitter賬號@Limengyan119發布了關於新冠病毒的重磅科學報告《Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolutio》，自安全逃離中共魔爪，閆博士和多位科學家在法制基金和法制社會的支持下，經過149天的辛苦工作，在報告中科學的論證了新冠病毒是中共已有的蝙蝠病毒經過“功能增強實驗”得到的軍事武器。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111339/The_Yan_Report_%E9%A1%B5%E9%9D%A2_01.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111353/The_Yan_Report_%E9%A1%B5%E9%9D%A2_02.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111407/The_Yan_Report_%E9%A1%B5%E9%9D%A2_03.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111420/The_Yan_Report_%E9%A1%B5%E9%9D%A2_04.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111434/The_Yan_Report_%E9%A1%B5%E9%9D%A2_05.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111447/The_Yan_Report_%E9%A1%B5%E9%9D%A2_06.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111515/The_Yan_Report_%E9%A1%B5%E9%9D%A2_07.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111502/The_Yan_Report_%E9%A1%B5%E9%9D%A2_08.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111528/The_Yan_Report_%E9%A1%B5%E9%9D%A2_09.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112131/The_Yan_Report_%E9%A1%B5%E9%9D%A2_10-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111608/The_Yan_Report_%E9%A1%B5%E9%9D%A2_11.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111621/The_Yan_Report_%E9%A1%B5%E9%9D%A2_12.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111541/The_Yan_Report_%E9%A1%B5%E9%9D%A2_13-scaled.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111554/The_Yan_Report_%E9%A1%B5%E9%9D%A2_14.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111939/The_Yan_Report_%E9%A1%B5%E9%9D%A2_15.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111633/The_Yan_Report_%E9%A1%B5%E9%9D%A2_16.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111645/The_Yan_Report_%E9%A1%B5%E9%9D%A2_17.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111658/The_Yan_Report_%E9%A1%B5%E9%9D%A2_18.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111710/The_Yan_Report_%E9%A1%B5%E9%9D%A2_19.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111723/The_Yan_Report_%E9%A1%B5%E9%9D%A2_20.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112007/The_Yan_Report_%E9%A1%B5%E9%9D%A2_21.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14111735/The_Yan_Report_%E9%A1%B5%E9%9D%A2_22.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112036/The_Yan_Report_%E9%A1%B5%E9%9D%A2_23.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112048/The_Yan_Report_%E9%A1%B5%E9%9D%A2_24.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112102/The_Yan_Report_%E9%A1%B5%E9%9D%A2_25.jpg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14112219/The_Yan_Report_%E9%A1%B5%E9%9D%A2_26.jpg)
+二戰期間廣島的原子彈約1.5萬噸級TNT。當今的核武器經過多年的研究和發展，百萬噸級屬於正常的當量。以100萬噸級核彈為例，它對不同隱蔽物後的人員的殺傷半徑如下：暴露人員6.3公裏，塹壕內人員3.6公裏，坦克內人員2.8公裏，避彈所內人員1.2公裏，永備工事內人員0.76公裏。因而在城市裏，百萬噸級的核彈爆炸後，正好在堅固建築後的人員在4公裏外不會送命，而地鐵內人員只要在8—900米外就能躲過壹劫。
+
+按照壹個百萬噸級的核彈摧毀半徑5公裏計算，摧毀面積約80平方公裏。中大型城市的面積約600-1000平方公裏，尚需要10枚百萬噸級的核彈精準打擊才能徹底摧毀。中共國300枚核彈，以地爆的方式只夠摧毀2.5萬平方公裏，連河北省（19萬平方公裏）都摧毀不了。也許是因為中共知道數量遠遠不夠，所以趙盛燁用開腦洞的引爆方式威脅要摧毀全人類。那麽博客中提到的方式真的可能嗎？
+
+我們再按照博客中核潛艇海底爆炸，引起海嘯的方式計算，300枚百萬噸級的核彈引爆就是3億噸TNT當量，人類所制造的最強核武器是俄羅斯的AN602“沙皇炸彈”其當量在5000萬噸左右。約為6倍沙皇炸彈。2004年著名的印尼大海嘯，就是由海底9.3級地震所引起的10米海嘯，其能量相當於AN602“沙皇炸彈”的3.75倍破壞力。我們先不討論如何核潛艇能裝多少枚核彈頭，就算中共國300枚百萬噸級的核彈能夠同時海底引爆，其3億噸TNT能量約為2倍的印尼大海嘯，掀起的海浪高度約20米。要想掀起2000米海浪，至少需要3000枚百萬噸級的核彈頭。因此靠海嘯毀滅世界的方式，中共的能力是絕對無法辦到的。
+
+我們再按照博客中地下爆破的方式分析，博客中提到的四川盆地再挖10000米，四川盆地海拔250米～750米，往下挖10000米就算海拔-10000米。2008年的汶川地震，震源約14公裏，釋放能量約11億噸TNT，也就是說300枚核彈地下10公裏引爆的破壞力僅為汶川地震的1/3，就算增加到1000枚，和毀滅人類，造成地球軌道偏離也根本沾不上邊。也許是趙盛燁認為10000米已經很深了，但是地殼的平均厚度達到17公裏，10000米連地殼還沒有穿透，如何才能影響到地心呢？
+
+至於喜馬拉雅山脈同時引爆數千枚核彈的方式，我覺得趙盛燁壹定是《流浪地球》看多了，電影可以，就認為壹定可以。墨西哥尤卡坦半島上有壹個直徑為180千米的希克蘇魯伯隕石坑，科學家認為那次撞擊終結了恐龍時代，這顆隕石碰撞所爆發的能量是沙皇氫彈的200萬倍，換算成百萬噸級的核彈是1000萬枚。即使如此地球公轉軌道也沒有明顯變化。全球現存的1.5萬枚的核武器，要翻700倍，同時引爆才能毀滅人類，而地球還將存在。關鍵，誰會和中共這個瘋子壹樣去引爆核武器呢？
+
+最後，其實我們可以看出，中共真是到了山窮水盡的階段，能拿得出手的只有病毒，壹旦病毒的事被坐實，被拿住，就完全失去了威懾力。這種核訛詐的吹牛文章根本不打草稿，完全走上了朝鮮的宣傳路線，只能嚇唬墻內無知老百姓，所堆砌的數字根本經不起推敲。但是卻暴露了中共反人類的狼子野心，人類具有信仰的壹方，壹定要把中共釘在歷史的恥辱柱上，掃進人類歷史的垃圾堆，絕對不能讓中共繼續威脅著全人類，壹定要把中共和病毒壹起消滅。
+
+References:
+
+https://baike.baidu.com/item/%E6%A0%B8%E5%BC%B9%E5%BD%93%E9%87%8F/3568645?fr=aladdin
+https://www.sohu.com/a/356810978\_100146980
+https://baijiahao.baidu.com/s?id=1567168899425835&wfr=spider&for=pc https://www.sohu.com/a/335109332\_120145956
+
 0
