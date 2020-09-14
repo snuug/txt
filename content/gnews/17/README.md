@@ -1,27 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人民日報黑白照詛咒蓬佩奧 雇五毛辱罵被抓現行
-`2020-09-13 11:18 shangshang` [轉載自GNews](https://gnews.org/zh-hant/352595/)
+## 加拿大官方也转推Take down the CCP神曲？
+`2020-09-13 14:45 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/352856/)
 
-內新聞：α-Vega
-![](https://gnews.org/wp-content/uploads/2020/09/CF0A898B-F80D-4475-BAEA-EB08C8F87E74.png)
-11日，人民日報微博，發出一條侮辱蓬佩奧國務卿的視頻。
+**作者：** **美东香草山农场弹指灭共****组 文荷**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13143928/hqdefault-3.jpg)
+文贵先生的一曲*Take down the CCP* 无疑是目前网络上蹿红速度最快的神曲，不仅连续多日占据全球iTunes下载量首位，还在Twitter上掀起了一股Take down the CCP的热潮，转推响应者不乏许多名人，甚至还出现了加拿大公共卫生局的官方推特。
 
-原文如下：
+一位网友展示了自己Twitter下面来自一个署名Govcanhealth的跟帖，并写到“感谢加拿大卫生提醒我们需要干掉共产党！” 该推特有30多万粉丝，关联网站为加拿大卫生局的官方网站。尽管该推文在不久后遭到删除，但仍然引起了广大推友的兴趣。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13144116/Screenshot_20200913-125356.png)
+由于中共在该国的蓝金黄渗透非常猖獗，加拿大特鲁多政府对中共一直比较软弱，反共的声音在官方和民间都受到压制。这一跟帖事件不免让人猜测加拿大卫生部门有人面对新冠疫情，和特鲁多政府态度不一致，借机宣泄对CCP的不满。不管是无心之过还是有意为之，加拿大官方部门的这一“表态”，为“Take down the ccp”全球灭共文化浪潮增加了一个不小的亮点。
 
-【#外交部反擊蓬佩奧合集#】撒謊成性，罔顧事實，3分鐘看#蓬佩奧是如何抹黑中國的#↓↓險惡圖謀，注定不會得逞！
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13105928/A9A6D904-29C9-4C74-8701-050021A288B7.png)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13105957/BCAD78B0-A7AD-4F5D-9A14-409739A3BE87.png)
-其中截取蓬佩奧國務卿的演講，拼湊外交部的戰狼言論，斷章取義，混淆視聽。視頻封面和內容均用蓬佩奧的黑白影像，其他內容卻用彩色的。
+据美国网站*The National Pulse*报导，*Take down the CCP*这首饶舌曲风的英文单曲，自9月8日推出后已占iTunes下载冠军超过72小时。另一首同时推出由文贵先生演唱的反共题材中文单曲《沧海一声啸》，也在iTunes及Spotify等各大流行音乐平台上受到热捧。文贵先生表示，他将与美国知名音乐公司签约，未来将推出至少100～500首“灭共单曲”。
 
-不僅如此，人民日報覺得視頻力度不夠。在微博評論下，雇傭五毛辱罵詛咒，十分難聽。翻到最早的評論9:13分，可以看到五毛偷懶露出的破綻。重復評論，甚至連表情都不換。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13110052/64381AB6-79F4-4FD9-98AB-FD978B84ABA9.png)
-黑白照代表遺照，評論里多次出現豬、狗，這都是中國文化里最忌諱和罵人相當難聽的字眼。人民日報作為中共第一大黨媒，自稱代表中國和14億人民，利用五毛假裝普通網民，說話極其難聽，這對中國人是極大的貶低。
-
-不管是微博還是推特、臉書等社交媒體，五毛無處不在。不管是名人還是普通網民，五毛有組織的辱罵任何反對中共的人。在推特，有大量五毛到處罵NMSL，中國人甚至被打上NMSLer的標籤。
-
-中共慣用「假裝群眾」的卑鄙手段，假裝香港暴徒、假裝網絡暴民、假裝恐怖分子…花著人民的錢愚弄人民。請不要再代表14億人民了，人民不是你們假裝的樣子。
-
-新聞來源：https://m.weibo.cn/status/4548260092449793
+信息来源：https://spencerfernando.com/
 
 0
