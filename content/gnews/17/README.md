@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雅典娜的希望——英雄科學家閆麗夢博士團隊公佈“中共病毒”報告
-`2020-09-15 04:52 GM101` [轉載自GNews](https://gnews.org/zh-hant/356992/)
+## 【世界多語言文字版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士
+`2020-09-15 10:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/357925/)
 
-在爆料革命路德社於美東時間9月13號提到的未來一周內全球會有重磅發生，川普總統助理納瓦羅先生通過福克斯新聞官方定性“新冠病毒”為中共病毒後。英雄科學家閆麗夢博士團隊于美東時間9月14號早上十點，通過社交媒體推特公開“中共病毒”報告。該報告由閆麗夢博士團隊花費數月時間整合了大量醫學文獻和相關資料撰寫而成，報告共二份，本次公開的是第一份英文版報告。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13203855/maxresdefault-1-11.jpg)
 
-報告認為通過以下三點及大量文獻可證明SARS-CoV-2（中共病毒）以舟山冠狀蝙蝠病毒為骨架，並通過中共軍方病毒實驗室改造而成的，具有高度的傳染性和顯著的致死性的病毒。
+[【中文版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)
 
-一、搜索NCBI序列資料庫發現，在所有已知的冠狀病毒中有兩個相關的蝙蝠冠狀病毒ZC45和ZXC21，與SARS-CoV-2具有最高的相似性（每個蝙蝠冠狀病毒與SARS-CoV-2在核苷酸水準上有約89%的相似），早期SARS-CoV-2版本與ZC45和ZXC21 在E蛋白上有100%的一致性，ZC45和ZXC21是由第三軍醫大學（中國重慶）和南京軍區軍事醫學研究所（中國南京）的軍事實驗室發現（2015年7月至2017年2月）、分離和鑒定的蝙蝠冠狀病毒。該資料和相關工作已於2018年發表。證明SARS-CoV-2關鍵的骨架或範本存在於中共控制的相關病毒實驗室中；
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15043925/%E5%9B%BE%E4%B8%80-3.png)
-二、S蛋白其中的受體結合基序（RBM）應該是經過人工作業的，在此基礎上，病毒獲得了與血管緊張素轉換酶II（hACE2）結合並感染人類的能力；大量文獻表明，冠狀病毒的尖峰蛋白經過特殊工程改造的增益功能研究，已經多次導致由非人類來源的冠狀病毒成功產生感染人類的冠狀病毒。記錄還顯示，例如武漢病毒學研究所(WIV)，已經成功地與美國研究人員合作開展了此類研究。此外，WIV進行了長達十年的冠狀病毒監測研究，因此擁有世界上最大的冠狀病毒收集量。
+[【英文版】Sept. 13th Dr. Yan’s Interview with Dr. Ryan on Uncovering The Truth](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)
 
+[【西班牙語版】Entrevista de la Dra. Ryan a la Dra. Yan en “Uncovering the Truth”](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15043958/%E5%9B%BE%E4%BA%8C.png)
-三、在S蛋白的S1至S2結合點中發現弗林蛋白酶切位點是SARS-CoV-2獨有的，不存在於在其它冠狀病毒。一個不尋常的弗林酶切位點可能被引入並插入S蛋白的S1至S2結合處，這有助於提高病毒的毒性和致病性。這些轉化就使SARS- CoV-2病毒分期最終成為一種高傳播、發病隱匿、致死性強、後遺症不明確的大規模破壞性病原體。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15044049/%E5%9B%BE%E4%B8%89.png)
-病毒基因組就像人的指紋，任何高明的改造都會留下痕跡。冠博士引用了動物舉例論證，他表示一隻貓擁有一個狗的鼻子，並且狗鼻子的周圍留下了傷口，除此外其它部位都正常，說明通過手術改造而成。
+陸續更新中……
 
-報告公開了人工合成路徑分析圖，並表示沒有呈現全部證據，例如最近公佈的幾種冠狀病毒（RaTG13、RmYN02和幾種穿山甲冠狀病毒）非常可疑，近似欺詐。這些捏造除了欺騙科學界和公眾，目的是要隱藏SARS-CoV-2的真實身份。報告呼籲要找到SARS-CoV-2的來源，就必須儘快對武漢病毒研究所P4實驗室及其密切合作者的實驗室進行獨立核查。
-
-閆麗夢博士團隊的第一份報告公開時，遭到了駭客的瘋狂攻擊，但正義必勝，該報告終於向全球公開“中共病毒”真相，相信隨著第二份報告的公開，中共即將推出歷史的舞臺，而全世界人民將迎來雅典娜的希望。
+**By：【秘密翻譯組G-Translators】**
 
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15044123/%E5%9B%BE%E5%9B%9B.png)
+
 0

@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/08 CCP病毒每日疫情直播簡報
-`2020-09-15 10:22 GM62` [轉載自GNews](https://gnews.org/zh-hant/357357/)
+## 【精華版國語配音】班農戰斗室 371期：郭文貴一早提醒美國 必須小心 中共會用盡辮法破壞美國總統選舉
+`2020-09-15 13:30 GM42` [轉載自GNews](https://gnews.org/zh-hant/358315/)
 
-戰友之家圖文摘要及小語種組
+製作單位：戰友之家-粵語組
+素材制作：Warroom Pandemic
+視頻配音：miko\农夫
+视频剪辑：食饱饱
+字幕校對：YAMAP
 
-[English\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)
 
-[French\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)
 
-[German\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)
+概要：
+為什麼是這些新中國聯邦的謙卑的人們
+從各地集結到華盛頓在中共大使館前抗議
+高舉標語“中共撒謊，美國人死亡”
+但是你沒看到美國人這麼做
+中共他們製造出中共病毒這個生化武器
+中共他們要搞死美國
+搞垮美國的經濟
+他們想讓美國對中共叩頭。
 
-[Spanish-0908-CCP-Virus-Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)
+
 
 0
