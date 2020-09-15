@@ -1,17 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/08 CCP病毒每日疫情直播簡報
-`2020-09-15 10:22 GM62` [轉載自GNews](https://gnews.org/zh-hant/357357/)
+## 欲灭其族，先毁其文&#8211;强推汉语教学
+`2020-09-15 12:34 HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hant/358194/)
 
-戰友之家圖文摘要及小語種組
+伪共内蒙古自治区教育厅要求各小学与中学在9月1日新学期开始后，语文、历史、道德与法治三科目一律使用国家统一编制教材，并强制以汉语授课，此举引发内蒙古当地人士强烈反弹，并引发大规模的“抗议运动”。这是伪共继上世纪1957年之后，对蒙古文化的又一次阉割，使蒙古民族彻底的汉化，沦为其的新时代的“奴隶”。
+自爆料革命以来，国际各界和国内民众对伪共的认识逐步清醒，从香港的新生代的“反送中运动”到新疆维吾尔族的“百万集中营”，以及现在的内蒙古的“强推汉语教学”，凡此种种，无不显示伪共“抗拒文明，坚持独裁”的反动本质。在其统治区域，地不分南北，色不论黄白，对伪共的恶法，邪恶统治各族人民只能逆来顺受，稍有不从，或被维稳，或被失踪，相比当年的纳粹有过之而不及，纳粹出于意识形态和利益的考虑，迫害的主体对象多为犹太人，而伪共却赤裸裸针对自己的同胞，所谓的“百姓，人民”，虎毒尚且不食子，可我们善良的百姓人民遇到了一只毫无底线的“盖世奇虎”，呜乎唉哉！中华民族之悲哀！
 
-[English\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)
+华夏大地自古以来就生活着大大小小的各种民族，民族文化和语言是其传承的纽带。由于地理位置的原因，内蒙古地区的蒙古族是和汉族是融合最好的民族，长期的杂居，许多蒙古民族的文化逐渐消失，一些新生带的蒙古族甚至丧失本民族的语言功能，即便如此，当地还是保留大量的蒙古族学校，使用蒙古语言教学，继续传承民族的基因。这次的教育改革，中小学新学期开始强制使用汉语，将使蒙古语言逐步消失，原本已经弱化的蒙古文化，就靠蒙语作为演化的支撑，如果取消蒙语教学，蒙古文化就无根可寻，不过经年，蒙古民族就只能是字面上的蒙古民族，将彻底断层。
 
-[French\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)
-
-[German\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)
-
-[Spanish-0908-CCP-Virus-Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)
+淡化民族意识，文化上集体消灭，这是伪共针对少数民族的一贯手段，蒙古民族也不是第一个，之前的西藏，新疆早已经实行。“排除杂音，一党独尊”，加上他们的防火墙，遍布各地的宣传机构，一个指令，一个声音，黑即是白，白即是黑，亿万奴隶，扶手贴耳，万万年！
 
 0

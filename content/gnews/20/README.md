@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 閆博士:短期內生產的中共病毒疫苗副作用大（挪威語Norwegian+英語English）
-`2020-09-15 10:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/357809/)
+## 本文獻給用生命與中共抗爭的烏蘭女士和索約爾特先生等勇士——中共在內蒙古發動“以警治國”持續文化大滅絕
+`2020-09-15 12:12 GM101` [轉載自GNews](https://gnews.org/zh-hant/358136/)
 
-挪威語標題 Dr Yan om Kinas nye vaksine for COVID-19
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15121843/%E5%9B%BE%E4%B8%80-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15121853/%E5%9B%BE%E4%BA%8C-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15121904/%E5%9B%BE%E4%B8%89-1.jpeg)![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15121914/%E5%9B%BE%E5%9B%9B-1.jpeg)
+中共政府計畫在內蒙古地區用漢語取代蒙語教學的秘密計畫在當地教育局洩漏，引發了當地蒙古人發動了大規模的抗議活動，並持續到第三周。中共政府將整個內蒙古變成一個員警國家，至少有九名蒙古人喪生，數千人被捕。
 
-翻譯：rabbit79 校對：tiger64, Magician文心 視頻：小羽
+中共當局採取了粗暴的行動，公安機關、黨委、教育局、紀檢監察部門、法院等部門和學校發行的各種格式的行政檔充斥覆蓋了整個地區。已通知並逮捕拘留不聽話的人，將拒絕執行命令的人解雇。中共動員了一支龐大的員警部隊，特警隊、便衣官員和臨時社會工作者來恐嚇整個內蒙古同胞。採用任意逮捕、法外拘留、強迫失蹤和軟禁等方式，根據蒙古南部人權資訊中心估計，在過去三周內至少有近5000名蒙古人被拘留。這些人包括作家、基層活動家、牧民領袖、最近的抗議者和線民。
 
-視頻簡介
-閆博士談中共病毒疫苗,短期內生產,副作用大,會對人體造成二次傷害。
+埃裡恩熱蒙古小學46歲的校長烏蘭女士辭職後，仍受到學校當局和政府的巨大壓力，在她的家中“自殺”身亡，這是對中共政府試圖通過內蒙古教育系統消滅蒙古語言的政策表示抗議而消逝的第九條生命。迄今為止，還有八人喪生，其中包括一名來自舒倫哈·班納的蒙古老師兼詩人索約爾特先生，來自霍欽左翼中旗蒙古中學的蒙古學生，來自Ongniud Banner的蒙古父母，來自蒙古的蒙古大學生等。
 
-Dr Yan redegjør for farene ved å gå for raskt fram i vaksineutviklingen, og spesielt om mulige problemer knyttet til den nye koronavaksinen som Kina (KKP) er i ferd med å utvikle
-
+中共同樣的手法幾乎用遍了整個神州大地，甚至香港以及全世界。內蒙古因抗爭而犧牲的同胞們，只有等中共退出歷史舞臺之時，才能還你們一個公道，還世界一個真相，願萬神萬佛庇佑內蒙古、香港、西藏以及全部華夏兒女和全世界愛好正義和平的人民。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15120019/%E5%93%AD%E6%B3%A3%E7%9A%84%E8%92%99%E5%8F%A4%E5%AD%A9%E5%AD%90.mp4)
 0
