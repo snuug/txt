@@ -1,42 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蘋果日報顛倒是非, 越砸我們越勇猛!
-`2020-09-15 07:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/357165/)
+## 【世界多語言圖文】2020/09/08 CCP病毒每日疫情直播簡報
+`2020-09-15 10:22 GM62` [轉載自GNews](https://gnews.org/zh-hant/357357/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15065910/Screen-Shot-2020-09-15-at-8.58.46-pm.png)圖片來源： [戰友阮尚李推特](https://twitter.com/1808_W73/status/1305720540066320384?s=20) 
-香港《蘋果日報》9月14日發表時事評論員桑普文章，稱爆料革命領軍人物高調宣傳音樂滅共，只有兩個字：自保！
+戰友之家圖文摘要及小語種組
 
-看完之後，我立馬卸載了壹周刊APP！真是眼瞎了啊！黎智英你是不是老眼昏花了？忘記香港那些死去的孩子們的血海深仇了？CCP給你開了什麼空頭支票，讓你在這個節骨眼上開始砸郭？亦或者你本來就是九層妖塔上的塔妖，共匪難逃一劫時把你放出來咬人？要不，你來解釋解釋，為什麼在滅共最激烈、最關鍵的時刻，你信口雌黃攻擊我們的滅共英雄郭文貴？
+[English\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080550/English_0908_CCP_Virus_Updates.pdf)
 
-你嫌大陸人沒文化、沒素質，不願意與我們同在一個屋簷下，沒問題，滅共之後港人治港，誰說不可以呢？可是，在這個滅共最關鍵的時刻，你跳出來砸郭，攻擊我們的領軍人物，又是什麼心理呢？
+[French\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080559/French_0908_CCP_Virus_Updates.pdf)
 
-你當年從廣東偷渡到香港的時候，人家大英帝國可是沒有嫌棄過你，給了你成長學習的機會，一點一滴、一磚一瓦把香港培育成了東方之珠。香港如今的衰敗，正是中共一手導致，香港運動中，爆料革命的戰友們一直在為香港奔走呼號，出錢出力！如今，在這個滅共最激烈的時刻，你不集中火力滅共，反而在背後朝我們的英雄開冷槍，其心可誅！這與當年國民黨前線抗日，共產黨後邊開槍、搶地盤的作風，又有何異！
+[German\_0908\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080605/German_0908_CCP_Virus_Updates.pdf)
 
-看看蘋果日這篇文章，裡面都是什麼垃圾吧：
-
-#### **1，郭先生為什麼不反習。**
-
-全宇宙你還能找到一個比習近平更愚蠢、更固執的蠢貨嗎？作為我們的敵人，對方越蠢，我們越開心，我們為什麼要反習？由著它​​一路蠢下去，使勁踩油門把中共帶進地獄，何樂而不為？習總加速師變著法子幫我們滅共，我們為什麼要反它？有一句話叫策略，懂嗎？
-
-#### **2，為什麼打習近平政敵王岐山、孫力軍、孟建柱？**
-
-反正都要打，先選一邊動手，咋地？借力打力，懂嗎？把厲害角色先乾掉，留個蠢的做敵帥。郭先生，您真是太聰明了！！
-
-#### **3，為什麼不反民主黨？**
-
-反民主黨，引髮美國內戰，分化滅共力量，削弱美國國力，不正是中共想要的結果？民主黨只要出來滅共，就是我們的同盟，這叫策略，懂嗎？
-
-#### **4，川普總統調查郭先生？**
-
-你哪隻眼睛看見郭先生被川普政府調查了？前天川普總統的心腹好友朱利安尼先生，還親自接見了我們的路德先生、班農先生、閆博士呢，你這是羨慕嫉妒恨？信口雌黃功力太low了！
-
-#### **5，郭先生突然成了搖滾明星。**
-
-這就是天意民心了！我們爆料革命的戰友就是這麼牛，郭先生滅共神曲，72小時登上iTunes歌曲排行榜榜首，創造了音樂史上的奇蹟！郭先生不會唱歌，沒有關係，有我們唐平美女填詞創意；郭先生不會搖滾，沒有關係，有好萊塢大咖團隊包裝製作；郭先生沒有歌迷，沒有關係，爆料革命戰友全球接力，共同創造了奇蹟。你不服氣？可以理解，因為你永遠到達不了那個高度！那就是民心、實力！郭先生凝聚著我們所有爆料革命的戰友對新中國聯邦的希望，我們願意支持他、呵護他、寵愛他，他就是我們的大明星！蘋果日報你顛倒是非, 你越砸，我們只會越勇猛!
-
-作者：Giselle
-
-(文章內容僅代表作者觀點)
+[Spanish-0908-CCP-Virus-Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15080554/Spanish-0908-CCP-Virus-Updates-Es.pdf)
 
 0
