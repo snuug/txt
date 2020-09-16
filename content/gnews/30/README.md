@@ -1,21 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士
-`2020-09-15 10:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/357925/)
+## 江財神財經系列解讀之美共必有一戰
+`2020-09-15 12:49 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/358221/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13203855/maxresdefault-1-11.jpg)
+喜馬拉雅加拿大農場金融時事欄目組 海嘯
 
-[【中文版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)
+校對 不動之光
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15124517/cvffff-1.jpg)
+以下根據江財神在《金融時事欄目》直播連線所講內容整理：
 
-[【英文版】Sept. 13th Dr. Yan’s Interview with Dr. Ryan on Uncovering The Truth](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)
+世界經濟出了問題，貧富兩極分化，帶來了種種的亂象。
 
-[【西班牙語版】Entrevista de la Dra. Ryan a la Dra. Yan en “Uncovering the Truth”](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)
+世界為什麼走到今天！
 
-陸續更新中……
+從二戰以來，世界上大的資本和勢力逐步形成了金融寡頭，控制全球金融的遊戲規則，直接導致了貧富兩極分化的格局。富人越來越富，窮人越來越窮，中產基本在夾縫中生存。而中共是金融寡頭邪惡勢力開出的黑暗之花，其背後的根脈，是華爾街、共產國際等龐大的黑暗金融勢力。這些勢力紮根於華盛頓、倫敦、法蘭克福、悉尼、東京、新加坡、香港、巴哈馬、開曼群島、英屬維京群島、天堂島、安提瓜等全世界各個角落。中共的生態無處不在，它代表著舊世界的秩序。而金融寡頭並不直接創造價值，它的不斷吸血導致世界面臨債務超發和通貨膨脹兩個無法迴避的問題。
 
-**By：【秘密翻譯組G-Translators】**
+債務和通脹到了什麼水平！
 
+一方面，從疫情爆發以來，美國額外發行了過去一倍的債務，資產負債表從疫情前負債4.5萬億，瞬間在疫情后提升到8-9萬億。美國能承擔的債務是GDP的95%，而川普總統接手時，債務已經達到GDP的105%。由於疫情的爆發，目前美國債務已經達到120%以上。
 
+另一方面，100年以來，作為各國銀根的美元，價值已經貶值了99%，通貨膨脹實際已經掠奪了老百姓的大量資產。疫情來襲後，美聯儲在應對危機時，大量印發“從天而降”的錢，非但沒有根本解決老百姓和中產的實際問題，反而大部分流入了華爾街等黑暗勢力的腰包。而印錢如果能解決問題，就沒有歷史上的1929的大蕭條、80年代日本房地產泡沫、南美的貨幣崩盤、1998、2008金融海嘯。
+
+問題如何解決！
+
+歷史上，解決世界貧富差距的方法有四種，戰爭、瘟疫、全面崩盤和革命。首先，疫情已經在2020年出現，中共放出的冠狀病毒已經肆虐世界，給已經瀕臨崩盤的世界經濟雪上加霜。其次，全面崩盤是各方不可接受的，因為這會導致人類文明回到石器時代，人類像曾經的地球文明終結在歷史長河中；再次，革命會導致出現新的共產主義，打土豪分田地將在全世界大規模上演，而共產主義帶來的貧窮也將最終導致全面崩盤。
+
+最後，選項回到了戰爭。一場規模可控的戰爭，可以避免現有社會體系的崩塌，也可以避免交戰雙方元氣大傷。美國國家，需要通過戰爭解決破敗的經濟、高企的通貨膨脹和憤怒的民眾；美國政府也需要通過戰爭，來解決一個邪惡的政府，分配它的資產解決美國政府債務問題。甚至邪惡的中共，也需要一場戰爭，和世界討價還價，對內剝削人民。
+
+舊世界需要戰爭解決問題，而代表著新世界的G系列，卻面臨前所未有的機會。全世界各個階層的人，都在找一個值得信賴的，有黃金背書，有絕對實力的機構，託付自己的財富和身家性命。 G系列就像一把尖刀，扎在了CCP身上，戰友們的信心和錢像是血液奔湧而出，湧向新世界。中共千方百計阻止戰友們將錢匯給G生態，就是擔心失血過快，導致快速崩盤。然而中共只能延緩這個過程，卻終將無法徹底堵上這個傷口。不用多久，被經濟、疫情折磨得忍無可忍的美國，將以戰爭終結CCP這個奄奄一息的魔鬼，而戰友們需要做的就是儘早跳上諾亞方舟，迎接新世界！
 
 0
