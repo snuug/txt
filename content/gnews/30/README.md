@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月15日中共病毒疫情要聞快報
-`2020-09-15 09:47 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/357775/)
+## 【世界多語言文字版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士
+`2020-09-15 10:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/357925/)
 
-**重要內容：**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/13203855/maxresdefault-1-11.jpg)
 
-- 閆麗夢博士重磅論文發布！全球媒體轉載！
-- 中共病毒全球單日新增創新高，一天30萬人確診；
-- 雲南瑞麗疫情再爆發，全城封鎖全民檢測！
-- 中共泯滅蒙族文化政策逼死學校校長。
+[【中文版】9月13日77WABC TALKRADIO瑪麗亞·瑞恩博士採訪閆麗夢博士](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103246/CN-Sept-13th-DrYan-Interview-with-Dr.-Ryan-1.pdf)
+
+[【英文版】Sept. 13th Dr. Yan’s Interview with Dr. Ryan on Uncovering The Truth](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15103250/EN-Sept-13th-DrYan-Interview-with-Dr.-Ryan.pdf)
+
+[【西班牙語版】Entrevista de la Dra. Ryan a la Dra. Yan en “Uncovering the Truth”](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)[下载](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/15104456/N091301-Dr-Yan-in-Uncovering-the-Truth-P1P2-ES.pdf)
+
+陸續更新中……
+
+**By：【秘密翻譯組G-Translators】**
 
 
-
-
-By：【上天造滅疫組】
 
 0
