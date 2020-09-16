@@ -1,16 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共和世衛組織壓制所有知道真相的人讓病毒擴散到全球（意大利語Italian+中文Chinese）
-`2020-09-16 09:13 GM62` [轉載自GNews](https://gnews.org/zh-hant/359211/)
+## 海航集團法人陳峰被執行限制高消費
+`2020-09-16 11:16 GM64` [轉載自GNews](https://gnews.org/zh-hant/361425/)
 
-意大利語標題 Se il partito comunista cinese fosse stato sincero e l’OMS avesse fatto il proprio dovere, il 95% delle morti e la distruzione economica sarebbero state tutte evitate.
+內新聞：inzaghi
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16110723/fd0ce73f45ffc0bc.png)
+據中國執行信息公開網9月15日消息，因未執行法律裁定的給付義務，海航集團和其法定代表人陳峰被限制高消費和非工作生活必需的消費行為.
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16110554/c0388ef032b2e2c0.jpg)
+本次執行依據文號（2019）陝0103民初9225號.此信息顯示，2020年8月13日西安市碑林區人民法院判決，被告海南海易通投資管理有限公司於判決生效後十日內償還原告柴某借款本金36975元及該款利息，而海航集團對上述債務承擔連帶清償責任。
 
-翻譯：明天的彩虹 校對： Carota Einstein 視頻：小羽
+海航集團前身是1998年4月16日成立的海南航空控股有限公司，總部位於海南省海口市.得益於有官方背景支持，集團發展速度驚人，在國內外的業務併購也是進展的異常迅猛.曾於2017年位居世界500強的第170位.轉眼兩年後，也就是2019年海航集團的待償債務已達7000億之巨.海航開始陸陸續續出售旗下資產，由前幾年的狂買到現在的狂賣，且集團的大批員工連工資都無法按時發放.有海航員工透露，欠薪已是常態，而且更嚴重的是海航集團自2017年大力推動員工購買旗下的各種金融理財產品，如今也只能以機票來對付.
 
-視頻重點
-如果中國共產黨沒有撒謊，世衛組織履行了基應有的職責，那麼會避免95％的死亡和經濟損失。
-
-Se il partito comunista cinese fosse stato sincero e l’OMS avesse fatto il proprio dovere, il 95% delle morti e la distruzione economica sarebbero state tutte evitate.
+往日要風得風，要雨得雨的海航集團到了今日如此田地，因為區區幾萬圓的欠債而被執行消費限制，只能用這一句中國特色的話來總結：說你行你就行不行也行，說你不行就不行行也不行—不服不行.
 
 0

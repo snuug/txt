@@ -1,38 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “媒體戰”為什麼這麼難打?
-`2020-09-16 06:58 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/360517/)
+## 【世界多語言圖文】2020/09/09 CCP病毒每日疫情直播簡報
+`2020-09-16 10:30 GM62` [轉載自GNews](https://gnews.org/zh-hant/360585/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16064313/Picture21-1.png)圖片來源：fpri.org 
-美東時間9月14日，閆麗夢博士在其新近開通的推特賬號上發布了新冠病毒的最新報告，並在全世界引起軒然大波。白宮官員皮特·納瓦羅轉推，全球正義力量接力擴散，真相蔓延勢不可擋。閆博士推特賬號開通不到48小時，吸納粉絲5.9萬。
+戰友之家圖文摘要及小語種組
 
-####  **西方的淪陷** 
+[English\_0909\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073152/English_0909_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073152/English_0909_CCP_Virus_Updates.pdf)
 
-然而，推特公司在閆博士發佈病毒報告十幾個小時之後，迅速封掉了閆博士的賬號，並刪除了相關搜索顯示。顯然，推特已經淪為中共的走狗，失去了一個獨立平台的公正性。這一點是毋庸置疑的，中共不但百分百控制了推特，還控制了FB、油管以及全球絕大部分主流媒體。中共以槍桿子、筆桿子起家，對於輿論的控制已經形成了一套非常成熟、完整的打法。利用九層妖塔，環環相扣，滲透、影響西方主流社會，而整個西方國家的民眾卻渾然不知，他們把偽類當良知，把特務當英雄，以為自己有言論自由，有民主法治，有工作有錢賺，但實際上都淪落成了中共的玩偶。
+[French\_0909\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073200/French_0909_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073200/French_0909_CCP_Virus_Updates.pdf)
 
-在澳洲，很多民眾包括小學生都毫無理由地討厭川普，為什麼？這就是主流媒體被滲透的結果。澳洲的良心媒體《SKY NEWS》，在很多澳洲人眼裡，卻是不可信、騙子的代言人，而被中共深度控制的《7NEWS》、《9NEWS》，卻成了大部分澳洲人獲取信息的渠道。中共通過對主流媒體的控制，誤導影響民眾幾十年，也是造成今天真相傳播出去困難重重的最根本原因。
+[German\_0909\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073147/German_0909_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073147/German_0909_CCP_Virus_Updates.pdf)
 
-####  **戰役的關鍵** 
+[Korean\_0909\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073204/Korean_0909_CCP_Virus_Updates_229.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073204/Korean_0909_CCP_Virus_Updates_229.pdf)
 
-病毒起源的真相和病毒特效藥硫酸羥氯喹是這場由中共發起的病毒超限戰中最關鍵的兩個要素。
-
-如果新冠病毒是CCP軍方實驗室製作出來的生化武器，那麼閆博士的報告將是一個可以把CCP直接釘死在人類公敵恥辱柱上的最有力罪證。這也是中共傾盡全力也要阻止病毒真相擴散的最根本的原因。但由於中共數十年對聯合國權威機構、全球科學家、各國政客、經濟專家和各大媒體集團的長期滲透與控制，真相的傳播非常困難。在上述多方勢力與中共的配合之下，西方主流國家的民眾被大量的假消息湮沒，輿論走向愈發親共，能保持清醒頭腦的少之又少。當然，這也是中共70年來的慣用伎倆，對民眾進行媒體引導、“奶頭樂”洗腦、輿論宣傳封鎖等手段駕輕就熟；對於西方主流社會，通過數十年的滲透與控制，已經到了非常嚴重的階段。因此，西方民眾的覺醒，對於這場戰役，十分關鍵。我們必須要衝破中共的媒體封鎖和限制，打破壁壘，把真相傳播出去。
-
-而硫酸羥氯喹，作為目前為止預防與治療早期病毒最有效的藥物，可以起到遏制疫情、恢復經濟的作用。中共之所以全球控制、抹黑硫酸羥氯喹，正是出於戰略考量。硫酸羥氯喹製作成本低廉、技術成熟、安全有效，適合大面積推廣，是遏制全球病毒擴散的關鍵因素。中共不惜出動全球所有黑暗勢力，包括權威科學家、雜誌、病毒專家、媒體、政客，污衊硫酸羥氯喹，將公眾對解除病毒疫情的希望，引向遙遙無期的疫苗，並不時放出一些疫苗曙光，誤導公眾望梅止渴。事實已經證明，初級版的SARS疫苗，歷經17年仍然遙遙無期，而對於加強版的新冠病毒疫苗，希望更加渺茫。
-
-####  **曙光的重現** 
-
-閆博士病毒報告的出台，已經驗證了中共在美國試圖勾兌、封鎖真相的失敗。儘管幾個月之前川普總統就親自服用硫酸羥氯喹，為打贏這場病毒戰身先士卒，然而，由於美國反對勢力的攻擊以及媒體的助紂為虐，仍然有大量的民眾對此持懷疑態度。他們對FDA、CDC等權威機構以及科學家的信任度更高，所以中共從一開始就滲透控制了這些機構，目的就是利用他們的影響力，誤導民眾，給真相的傳播製造壁壘。
-
-在爆料革命戰友以及美國滅共者聯盟不遺餘力的運作中，這些壁壘正在被打破，然而，要贏得這場病毒戰役，還需要喚醒更多的媒體、政客和民眾參與進來。
-
-爆料革命滅共行動進展到現在，曙光已現。在此，呼籲全球所有的戰友們都行動起來，以筆墨為武器，寫文章、發推特，在全球主流媒體、政客、明星大V留言區留言，給自己所在地的媒體、政要發郵件、打電話，傳播真相，喚醒民意。救人一命勝造七級浮屠，早一天消滅中共，就能早一天結束這場禍及全球的大災難！
-
-作者：Giselle（秘密翻譯組）
-
-校對：文投
-
-(文章內容僅代表作者觀點)
+[spanish\_0909\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073156/spanish_0909_CCP_Virus_Updates-Es-final.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16073156/spanish_0909_CCP_Virus_Updates-Es-final.pdf)
 
 0

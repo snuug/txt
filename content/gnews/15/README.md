@@ -1,16 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 目前硫酸羥氯喹可以救成千上萬人的生命，為什麼會有這麼多的阻礙要來禁用它呢？（意大利語Italian+中文Chinese）
-`2020-09-16 09:23 GM62` [轉載自GNews](https://gnews.org/zh-hant/359220/)
+## 再次行動!美國實施制裁中共企業
+`2020-09-16 11:36 vog_dongdong_vog` [轉載自GNews](https://gnews.org/zh-hant/361408/)
 
-意大利語標題 HCQ (idrossiclorochina) è la droga che in questo momento può salvare migliaia di migliaia di vite, ma perché ci sono ostacoli così grandi e smettere di usarlo?
+2020年9月15日，美國國務院根據建立並實施《全球馬格尼茨基人權》的行政命令（EO）13818對中華人民共和國國有的聯合發展集團有限公司（UDG）實施制裁問責法，因為它在柬埔寨的腐敗活動中發揮了作用。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16111215/1-7-1.jpg)
+蓬佩奧國務卿推文：“今天，美國對中國擁有的聯合發展集團有限公司實施了製裁，因其在柬埔寨的腐敗行為。我們將不容忍對無辜人民採取這些行動，並將永遠與柬埔寨人民站在一起。”
 
-翻譯：明天的彩虹 校對： Carota Einstein 視頻：小羽
+中共利用公司，通過勾結柬埔寨腐敗官員對普通無辜緬甸老百姓使用軍事力量，非法牟利。
 
-視頻重點
-目前硫酸羥氯喹可以救成千上萬人的生命，為什麼會有這麼多的阻礙要來禁用它呢？
+根據美國國務院《美國製裁中國國有實體在柬埔寨的腐敗行為中的作用》寫道，“柬埔寨政府於2008年向UDG授予了為期99年的租約，用於開發Dara Sakor項目，該項目佔該國海岸線近20％。UDG是一家中國獨資公司，後來成為柬埔寨企業，以接收將近90,000英畝土地的租賃。在獲得租賃和由此產生的土地後，該公司又恢復為中國所有。柬埔寨軍方與一名前柬埔寨陸軍官員一起，使用暴力手段以武力清除了租賃土地。然後，柬埔寨皇家武裝部隊參謀長Kun Kim（Kim）從與UDG的這種關係中獲得了可觀的經濟利益。”
 
-HCQ (idrossiclorochina) è la droga che in questo momento può salvare migliaia di migliaia di vite, ma perché ci sono ostacoli così grandi e smettere di usarlo?
+UDG開始承諾建設基礎設施，包括道路，學校，醫療中心，但現實相反，建造了酒店，賭場和高爾夫球場，並迫使當地老百姓搬遷。
+
+2020年1月1日，sohu《巴鐵一陣歡呼：中國若在柬埔寨建立永久軍港，能停2個航母打擊群》一文寫到，中共在海外並沒有像美俄那樣的常駐軍事基地，即使是位於吉布提的基地，也僅僅只是一個半軍事性質的保障基地，目的是為了方便我們的維和部隊，參與護航艦隊提供綜合性的後勤保障，並未達到實際軍事基地的標準。不過，這些似乎都將成為歷史，據可靠消息報導，我們已經拿下了位於柬埔寨的Dara Sakor港。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16111704/1-9-2.jpg)
+Dara Sakor港位於柬埔寨Dara Sakor度假村附近，這裡不但有天然港口，中共企業還通過貿易的形式，在這裡修建了一座國際機場，是目前柬埔寨最現代化的城市。
+
+中共在Dara Sakor港建立軍事基地，威脅印度洋穩定，影響美國印太戰略，甚至直接威脅柬埔寨的主權和領土完整。
+
+柬埔寨是中共東南亞長期投資重要之地。根據經濟和財政部以及柬埔寨發展委員會的官方數據，中共國是柬埔寨的最大投資國和捐助國。從1994年到2016年，中共國的投資額約為150億美元。緬甸2018年GDP 245.72億美元。僅2019年上半年投資額25億美元。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16111902/1-11-3.jpg)
+內新聞：背靠背
 
 0
