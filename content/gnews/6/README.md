@@ -1,16 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德談朱利安尼的CNN訪談與閆博士的報告，中共偽專家團隊將無人能駁！
-`2020-09-16 02:45 GM31` [轉載自GNews](https://gnews.org/zh-hant/360069/)
+## 【中英文視頻版】2020/09/10 CCP病毒每日疫情直播簡報
+`2020-09-16 07:11 GM62` [轉載自GNews](https://gnews.org/zh-hant/360528/)
 
-[路德在9月12日這期節目](https://www.youtube.com/watch?v=tY3LU5HK55I&amp;ab_channel=%E8%B7%AF%E5%BE%B7%E7%A4%BE)里講到美國CNN電視台在911這天邀請朱利安尼做節目，而不是現任紐約州長庫莫或者紐約市長白思豪，被稱之為「永遠的美國紐約市長」的朱利安尼不會輕易被中共藍金黃。還談到了為什麼說閏麗夢博士被稱之為核武級的人物，可以來對抗中共的整個偽科學家團隊，包括石正麗、高福、曹務春和李放，他們都沒有像閆博士和爆料革命博士團隊這樣全面的專業知識，因此共產黨沒有能力駁倒[閆博士的《報告》](https://gnews.org/zh-hant/357288/)。
+英文標題 CCP Virus Pandemic Updates Ep230:  The Whistleblower Movement initiated the new era of “Take Down the CCP by Songs”.
 
-*翻譯：【小粉紅】校對：【Prof. Bacteriophage】【Michelle】字幕：【Pamila（文明）】*
-*聽寫：【Naomi(文花開)】 編輯：【Michelle】【GM31】*
+視頻重點
 
-*戰友之家玫瑰園小隊出品*
+1. 中共最後的糧倉大東北發洪水，糧食減產嚴重。南方網評，糧食問題從“光碟”升級到“全鏈條”（糧食生產、加工、銷售的各個環節都要控制）
+2. 江西永修縣，被洩洪後至今未能恢復，水位持續一月未退。 9月9日。 7月13日，洩洪次日對比。
+3. 爆料革命開創“以歌滅共”的新紀元，共產黨為此專門成立了網路音樂巡警。
+4. （Sky News Australia, 9/9） 六名據稱在澳大利亞從事間諜活動或外國干涉的中國公民，遭拒絕再入境或被情報機構詢問後離境。
+5. （9/8）過去的180天裡邊我將近100天是在船上度過的，將近110天。我們給美國和西方提供了三個計劃：沒有共產黨的新中國如何與西方打交道；第二，如何把中國人和共產黨分開後，將共產黨掠奪的財富，將共產黨犯的罪行，将共产党在西方世界犯的罪行依法审判；
 
-相關新聞：[SARS-CoV-2基因組的不尋常特徵表明其經過複雜的實驗室改造而非自然進化，以及對其可能的合成過程的描述 （中英文對照版）](https://gnews.org/zh-hant/357288/)
+
+1. The CCP China’s last food production base, the big Northeast area, was severely flooded. Agricultural production suffered heavy losses. The food crisis will escalate from “clearing the plates” to “overhauls in food processing production chains” (All links of grain production, processing and sales must be controlled).
+2. Yongxiu County in Jiangxi province still hasn’t recovered from the discharge of floodwater. The water didn’t retreat for a month. Let’s see the pictures. This is September 9. That was July 13, the next day after floodwater was released upon this area. Any improvement after so many days?
+3. The Whistleblower Movement initiated the new era of “Take Down the CCP by Songs”. The CCP specifically formed the online music police to suppress this.
+4. (Sky News Australia, 9/9) Six Chinese citizens believed to have engaged in espionage or foreign interference in Australia have either been denied re-entry into the country or have left after being questioned by intelligence agencies.
+5. (9/8) In the last 180 days, I spent around 100 days on my yacht, nearly 110 days. We provided three plans to the U.S. and the West. The first is about how the new China without the CCP should deal with the West. Second, as we separated the Chinese people from the CCP, how to bring the CCP to justice for the wealth they pillaged and their crimes committed in the Western world.
+
 
 0
