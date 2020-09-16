@@ -1,24 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特封殺了揭露中共病毒真相的閆麗夢博士的賬號
-`2020-09-16 09:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/360856/)
+## 閆麗夢博士接受福克斯採訪明確中共製造並釋放病毒——美國民意已經形成，中共面臨生死抉擇
+`2020-09-16 11:23 CYXG` [轉載自GNews](https://gnews.org/zh-hant/361452/)
 
-![閆麗夢(@Yan_limeng1) | Twitter](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16085015/1-84.png)圖片來源：google.com 
-據零對沖（Zerohedge）網9月15日報導，中國病毒學家閆麗夢博士的推特賬號在註冊不到48小時後即遭到關閉。閆博士昨天發表了一篇證據性質的論文震驚了科學界和整個世界。該論文直指中共病毒係人為製造，但事實真相被中共掩蓋。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16111602/%E5%9B%BE%E4%B8%80-5.jpg)MIAMI, UNITED STATES – JANUARY 03, 2020: Evangelical supporters of Donald Trump are being led in prayers inside the El Rey Jesus church. President Donald Trump holds an Evangelicals for Trump rally at the El Rey Jesus megachurch in south Miami to show up support among his evangelical base in the key swing state of Florida.- PHOTOGRAPH BY Adam DelGiudice / Echoes Wire/ Barcroft Media (Photo credit should read Adam DelGiudice / Echoes Wire / Barcroft Media via Getty Images)
+美東時間9月15號晚，英雄科學家閆麗夢博士接受全美新聞節目，收視率第一的福克斯主持人塔克卡森的採訪。閆麗夢博士表示其團隊撰寫科學報告論證了中共病毒是由中共軍方實驗室獨家製造，中共釋放了病毒並試圖掩蓋真相，並對科學界關於病毒真相的論文或論點進行了打壓和控制。閆麗夢博士明確必須調查中共病毒實驗室，才能獲取病毒真相及投毒動機。
 
-閆麗夢博士的推特在不到48小時的時間內積累了約6萬名追隨者，而截至週二早上，該閆博士只有4條推文，而且均未違反任何推特的政策。唯一相關的推文是她與其他三位中國科學家共同撰寫的科學論文的鏈接，該論文題為《SARS-CoV-2基因組的不尋常特徵表明其經由實驗室複雜改造的特性非源於自然進化及其可能的合成途徑的描述》。目前推特還沒有給出任何關閉閆博士賬號的理由。
+閆麗夢博士的第一份報告於美東時間9月15號上午通過社交媒體推特公開，舉世震驚。該報告的下載量如火箭般飛速增長，各國政要及主流媒體紛紛轉載和查閱。中共當局對報告的公開感到異常恐慌，再次動用了國家力量，採用駭客修改報告的轉載和下載資料，相關資料一度出現了逆增長，隨後推特無任何理由前提下，直接封停了公開報告的推特帳號。
 
-根據零對沖的報導，推特可能受到來自中共或其他科學家的壓力，從而拒絕讓作為一名科學家的閆博士發表科學見解。但是，閆博士的科學論文已經如福音一般被快速傳播並被普遍接受。推特此舉只會增加更多猜測，讓我們確信這種病毒確實是人為製造的。報導進一步質問推特，為什麼不讓其他科學家公開回應閆麗夢博士的論文？我們不是應該講“科學”嗎？為什麼要讓閆博士閉嘴？如果一個社會中，某人因揭露真相而越過了所謂的紅線，並以“不便解釋”的理由遭到審查，那麼我們一直以來引以為榮的那個言論自由的社會將不復存在。
-
-報導在最後附上了閆麗夢博士論文的全文和鏈接，並明確指出，這就是本應是科學探討，卻被推特封殺的內容。希望推特能夠為這種前所未有的審查提供一個合理和明確的解釋。
-
-評：人類的光輝思想和重大歷史真相從來就沒有被真正封殺過，哪怕是在焚書坑儒和大興文字獄的年代。當然，古往今來，獨裁者們的瘋狂和愚蠢也沒有改變過。對閆博士的封殺，再一次向世人展示了中共的邪惡與恐懼，但是，就像當年對文貴先生的封殺一樣，他們的所作所為必將適得其反，從而引起全世界對閆博士更廣泛的關注。另外，推特早有為虎作倀的前科，對閆博士的封殺是可以預見的，那麼為什麼還要開這個賬號呢？這是不是又一次釣魚行動？甚至是全面清理社交媒體的前奏呢？我們拭目以待。
-
-[原文鏈接](https://www.zerohedge.com/geopolitical/twitter-suspends-account-china-scientist-who-published-paper-alleging-covid-was)
-
-翻譯簡評：Hanstyle
-
-校對：Sarathecat
+中共的行為向世界說明了閆麗夢博士團隊報告的價值，暴露了中共面對病毒真相即將公開的恐懼。福克斯作為美國的權威主流媒體，在此時段採訪閆麗夢博士並公開病毒真相，標誌著美國民意已經形成。美國是民主國家，所有政黨及政府機構都服務於民意，留給中共及其背後勢力的時間已經不多。
 
 0
