@@ -1,24 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月16日財經快訊: 抖音死撐欲強行續命, 美國考慮退出世貿
-`2020-09-16 02:25 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/359997/)
+## 推特封殺了揭露中共病毒真相的閆麗夢博士的賬號
+`2020-09-16 09:01 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/360856/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16021403/Picture20-2.png)圖片來源： [https://img-s-msn-com.akamaized.net](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/BB194BiO.img?h=450&amp;w=799&amp;m=6&amp;q=60&amp;o=f&amp;l=f) 
-[1,美股：得益於廣泛的市場上漲和強勁的經濟數據，在上一交易日的強勁表現基礎上，股票週二上漲。科技股領漲大盤，標普500和納斯達克指數收高。標普500指數上漲0.5％，收於3,401.20，納斯達克綜合指數上漲1.2％，至11,190.32。道瓊斯工業平均指數上漲了237點，收盤於27,995.60點，持平於該水平之上。](https://www.cnbc.com/2020/09/14/stock-market-futures-open-to-close-news.html)
+![閆麗夢(@Yan_limeng1) | Twitter](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16085015/1-84.png)圖片來源：google.com 
+據零對沖（Zerohedge）網9月15日報導，中國病毒學家閆麗夢博士的推特賬號在註冊不到48小時後即遭到關閉。閆博士昨天發表了一篇證據性質的論文震驚了科學界和整個世界。該論文直指中共病毒係人為製造，但事實真相被中共掩蓋。
 
-[2，WTO裁定川普政府2018年對中國的第一輪關稅違反了全球貿易規則。更多的證據表明，世貿組織已經過時，僵化，並且通常對美國不利。美國應退出並領導廢除它。 （由於美國已經關閉了世貿組織的上訴機構，這一裁決在很大程度上只有像徵意義。今天的裁決不會強迫美國取消或改變中國的關稅。）](https://twitter.com/HawleyMO/status/1305877296826515456)
+閆麗夢博士的推特在不到48小時的時間內積累了約6萬名追隨者，而截至週二早上，該閆博士只有4條推文，而且均未違反任何推特的政策。唯一相關的推文是她與其他三位中國科學家共同撰寫的科學論文的鏈接，該論文題為《SARS-CoV-2基因組的不尋常特徵表明其經由實驗室複雜改造的特性非源於自然進化及其可能的合成途徑的描述》。目前推特還沒有給出任何關閉閆博士賬號的理由。
 
-[3，週一晚間提交的法院文件顯示，美國已提議將川普總統對TikTok的行政命令交易排除在外，試圖使總統“要么賣要么死”的命令延期執行。](https://www.reuters.com/article/china-bytedance-tiktok-lawsuit-idUSKBN2662KC?taid=5f61846dfeb41b0001a5354e&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+根據零對沖的報導，推特可能受到來自中共或其他科學家的壓力，從而拒絕讓作為一名科學家的閆博士發表科學見解。但是，閆博士的科學論文已經如福音一般被快速傳播並被普遍接受。推特此舉只會增加更多猜測，讓我們確信這種病毒確實是人為製造的。報導進一步質問推特，為什麼不讓其他科學家公開回應閆麗夢博士的論文？我們不是應該講“科學”嗎？為什麼要讓閆博士閉嘴？如果一個社會中，某人因揭露真相而越過了所謂的紅線，並以“不便解釋”的理由遭到審查，那麼我們一直以來引以為榮的那個言論自由的社會將不復存在。
 
-[4，由於全球冠狀病毒大流行導致需求放緩，美國出口出貨量減少，8月日本出口連續第六個月出現兩位數下滑，這為貿易驅動型經濟從深度衰退中復蘇打下了陰影。](https://www.msn.com/en-us/money/markets/japan-s-exports-extend-double-digit-declines-as-pandemic-hits-demand/ar-BB194ZQQ?ocid=msedgntp)
+報導在最後附上了閆麗夢博士論文的全文和鏈接，並明確指出，這就是本應是科學探討，卻被推特封殺的內容。希望推特能夠為這種前所未有的審查提供一個合理和明確的解釋。
 
-[5，中共商務部等部門聯合發布《2019年度中國對外直接投資統計公報》。 《公報》顯示，2019年中國對外直接投資主要呈現以下特點：一是對外直接投資流量蟬聯全球第二，存量保持全球第三。二是投資覆蓋全球188個國家和地區，對“一帶一路”沿線國家投資穩步增長。 2019四五是對東道國稅收和就業貢獻顯著，對外投資雙贏效果凸顯。](https://china.huanqiu.com/article/3zu2XkHrbmA)
+評：人類的光輝思想和重大歷史真相從來就沒有被真正封殺過，哪怕是在焚書坑儒和大興文字獄的年代。當然，古往今來，獨裁者們的瘋狂和愚蠢也沒有改變過。對閆博士的封殺，再一次向世人展示了中共的邪惡與恐懼，但是，就像當年對文貴先生的封殺一樣，他們的所作所為必將適得其反，從而引起全世界對閆博士更廣泛的關注。另外，推特早有為虎作倀的前科，對閆博士的封殺是可以預見的，那麼為什麼還要開這個賬號呢？這是不是又一次釣魚行動？甚至是全面清理社交媒體的前奏呢？我們拭目以待。
 
-[6，國內房市危已：“金九銀十”之後，樓市怎麼走？今年受疫情的影響，許多房企為了回籠資金，推出了力度較大的促銷方案。最近，廣西南寧樓市就率先打響了“金九銀十”價格戰。](https://mp.weixin.qq.com/s/ng9wZjGrNaqp7N9kmSb4_Q)
+[原文鏈接](https://www.zerohedge.com/geopolitical/twitter-suspends-account-china-scientist-who-published-paper-alleging-covid-was)
 
-[7，中國病毒學家嚴麗萌博士出現在《塔克·卡爾森今晚》上，她告訴福克斯新聞主持人，該病毒是“弗蘭肯斯坦”病毒，旨在針對人類，該病毒是有意釋放的。 “它永遠不會來自自然,基因組中還有證據”-嚴在與其他三位中國科學家合著的長達26頁的科學論文中詳述了這一點。 “他們不希望人們知道這個真相。而且，這就是為什麼我的推特號被封，我是中共要消失的目標。](https://www.zerohedge.com/medical/i-am-target-silenced-chinese-virologist-tells-tucker-covid-19-intentionally-released-ccp)
+翻譯簡評：Hanstyle
 
-By 【秘翻組-金融法律團隊】
+校對：Sarathecat
 
 0
