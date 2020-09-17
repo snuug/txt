@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从共产主义接班人到共产党的掘墓人
-`2020-09-16 21:41 天涯客` [轉載自GNews](https://gnews.org/zh-hant/362489/)
+## 【中英文視頻版】2020/09/11 CCP病毒每日疫情直播簡報
+`2020-09-17 05:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/363058/)
 
-作者：清咖
+英文標題 CCP Virus Pandemic Updates Ep231: A No. 1 Middle School gave students moldy vegetables and rotten meat;
 
-“我们是共产主义接班人…..“ 在血旗下，读小学的我们，还不懂什么是主义的时候就一直唱这首歌。
+視頻重點
 
-究竟什么是共产主义？现在百度上搜到的定义，和当时的《政治》课本不太一样，已经被中国国产党（以下均称CCP）粉饰N多遍了。只有这一句似乎跟当时课本差不多，“共产主义者认为未来所有阶级社会最终将过渡到各尽所能、各取所需的共产主义社会，人类社会的意识形态将进入高级阶段 。” 懵懂中，不知共产主义为何物。但在物质缺乏的年代，”各取所需“听上去还真有吸引力。
-
-从小学到中学，一路到大学似乎已经被洗脑了。有幸的，可能我们这些80年代末在大学校园的，是第一批接触到《西方经济学》的。大三时，我们西方经济学老师是从英国留学回来的，他的课、他的观点让学生耳目一新。因为学生太多，在学校的小礼堂上课还是挤的满满的。人间六月天时，同学竟然有被抬出来的。中暑啦！我们也许开始怀疑了：共产主义真的是社会主义的高级阶段？
-
-那时的校园生活是充满了真诚和热情，文艺气息浓厚。不象现在网络媒体时代的纷繁复杂，我们可以安心的读书，学习，创作。诱惑少了，成就了一个喜欢思辨，谈论概念的时代。至少还有理想残存，还有信念依稀。可以讨论很多形而上的问题。记不得多少次宿舍熄灯后讨论共产主义能否实现的讨论。
-
-然后就到了89年那个清丽的初夏。在广场上，我似乎看到了民主中国的未来。可一夜之间，我们从追求民主自由的天之骄子就变成了反革命暴徒。同样在广场上，看到的是横冲直撞的坦克军车，同学们和无辜市民的鲜血，那些鲜活的、来不急绽放就消逝的生命…… 看不到未来，离开中国是唯一的出路。有神的护佑，来到美国。读MBA时， 更多的读到各路宏观、微观经济学。随着年龄增长，在美国生活的时间越久，就越感到那个被CCP绑架的，也是CCP的理论根基的《资本论》乏善可陈。在中共国的课本里，学到的是万恶腐朽的资本主义将被社会主义所代替，而我看到的是资本主义在自我修复中螺旋上升。资本主义、美国的政治体制并不完美，但纵观世界，它是最好的社会制度和政治体系。
-
-带着探索的心，到马克思的故乡德国。在柏林参观柏林墙展。这是一个飞奔自由的传说。我想到的是CCP的防火墙。独裁的政府都是一样的，害怕老百姓看到自由世界的信息。哪里有共产主义的影子？一幅幅画面，都是东德人民想着飞跃柏林墙的眼泪，有悲壮，有无奈，更有追求自由的含泪微笑。
-
-虽然我人在美国，最后一次回国是在2008年。对中国的了解仅仅在网络上。看似中国发展了得。自打文贵先生开启了爆料革命，每次看完直播，才知道CCP从来没改过自新，而且在美国和西方的绥靖政策下，更加变本加厉地压榨14亿奴隶，窃取国家财富转化为私产藏在国外。特别是病毒爆发后，看了《路德时评》1·19那期，更是醍醐灌顶。一个邪魔恶党CCP，在总加速师的领引下，奴役14亿中国人还不够，还要独霸世界。为了实现所谓的“中国梦”，制造病毒这样的生化武器，搞垮美国和世界经济，屠杀全世界。
-
-社会主义、共产主义就是人类生态圈的毒瘤。不除去毒瘤，人类会灭绝的。我们，支持参与爆料革命的每一个人，都是共产主义的掘墓人。伴随着天王巨星“Take down the CCP”的旋律，行动、行动、行动起来。英雄科学家闫博士发布了病毒真相报告。这是一个载入史册的日子。我看到了雅典娜希望之光。行动，很多人会说，我们不是名人大咖，只是普通人，能做什么呢？9月14日的路德节目，路德先生说到这个震惊世界的病毒真相报告署名是《法治基金》和《法治社会》，是他和闫博士力争的结果。当说到荣光属于每一位给法治基金的战友时，路德哽咽了。几年来从不间断的直播，顶着各种压力和风险，还有4月29日，全程追踪闫博士来美国的行程。一切的压力、CCP的威逼利诱、伪类的谩骂，都化作两行清泪。还有《路德时评》的博士军团、安红、艾丽女士都是我们的英雄。每每向周围的朋友、熟人讲病毒真相却没人相信。看到一直被我视为乐土的美利坚竟不让用氢氯喹治病，感到沮丧的时候，每天早晨看到阳光洒满一片天的安红女士，听到她自信的声音，感觉就好多了。。 那么，普通人能做什么呢？给法治基金捐款。动动钻石级手指，转推、传播病毒真相。用路德先生和安红女士的话说，也许，你就是压垮CCP的最后的那颗稻草。灭共不能没有你。
-
-是的，我们是，我们都是共产主义的掘墓人。
-
-柏林墙倒了，CCP防火墙的倒塌还会远吗？
+1. 9月11日，哈爾濱依蘭縣境內一堤壩潰壩。全網搜索國內相關新聞，只能找到官媒新華網的一篇總計139字的免責聲明似的報導。另有一篇文章報導（該文章已經被刪除）說，“該堤壩能抵禦10年一遇的洪水”，而官方說“此次的洪水是15年一遇的，所以潰壩了”。
+2. 雲南威信一中食堂給學生吃發霉變質的蔬菜和肉類；有家長爆料說該食堂是縣委書記老丈人承包，官媒發文謊稱該事件屬謠言。
+3. 宜賓一24歲男子，因不滿鐘南山在疫情期間給百姓提供大量錯誤的防疫指導，直接導致大量中國人無辜死亡，在朋友圈發文抨擊鐘南山；卻因言獲罪，遭到逮捕;
+4. 香港太子洗衣街運動場道體育館旁，一女子被幾名男子強行抓上黑色轎車，整個過程該女士不停地大喊救命。
+5. （9/11）接下來，中國人如果不趕快聯合起來滅共的話，共產黨讓中國人死的，絕對不是一千萬人，也不會是一億人。你想再像過去文化大革命似的死一億人，那你是做夢呢。
 
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16213536/Capture-24.jpg)
+1. September 11 , a dam broke in Yilan County, Harbin. When trying to search for related news on all available websites, only one report on Xinhuanet was found with a 139-word disclaimer. In another article which has been deleted, it reported that the dam was prepared to withstand the once-in-10-year flood, and the official said this flood was once in 15 years, therefore the dam failed.
+2. The canteen of Yunnan Weixin No. 1 Middle School gave students moldy vegetables and rotten meat; some parents broke the news that the canteen was contracted by the father-in-law of the county party secretary, and the official media lied that the incident was a rumor.
+3. A 24-year-old man from Yibin was arrested after he posted criticism within his circle of friends, displaying his dissatisfaction with Zhong Nanshan’s misguidance to contain the epidemic, holding him responsible for the high death toll in China.
+4. In a Hong Kong stadium near Prince Edward Station, a woman kept screaming and calling for help after being kidnapped by several men, who forced her into a black car.
+5. (9/11) Next, for Chinese people if we don’t unite and take down the CCP fast enough, the CCP won’t just kill 10 million or even 100 million. If you think it will be the same as the Cultural Revolution, with around 100 million people killed, you are dreaming.
+
+
 0

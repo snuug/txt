@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9月15日福克斯知名主持人塔克·卡爾森關於病毒專題節目【完整版】
-`2020-09-17 04:31 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/363051/)
+## （葡Portuguese+English）郭文貴先生希望中國擁有真正的信仰自由以及法治
+`2020-09-17 07:35 GM62` [轉載自GNews](https://gnews.org/zh-hant/362247/)
 
-9月15日福克斯知名主持人塔克·卡爾森：國際衛生組織支持這種解釋，他們（國際組織）把新病毒命名為COVID-19，冠狀病毒疾病的簡稱，他們想取個盡可能通用的名字。他們想掩蓋這種新病毒與中共政府間的任何联系。閆麗夢博士是一位病毒學家，她說她有證據，關於這場大流行實際上來自何處（的證據），（證明）這個COVID-19，SARS-CoV-2病毒，實際上並非源於自然界，它是人造病毒, 是在實驗室製造出來的。中共政府製造了這個病毒。
+葡萄牙語標題 O Sr. Guo Wengui (Miles Guo) espera que a China tenha verdadeira liberdade de crença e o estado de direito
 
-
-
-By：【秘密翻譯組G-Translators】
+翻譯：福瑞德 校對：Allan, 珍珠奶茶 視頻：文件夹
 
 0
