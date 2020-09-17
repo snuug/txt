@@ -1,19 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英首相：香港國安法嚴重摧毀《中英聯合聲明》
-`2020-09-17 01:51 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/362827/)
+## 【中英文視頻版】2020/09/11 CCP病毒每日疫情直播簡報
+`2020-09-17 05:05 GM62` [轉載自GNews](https://gnews.org/zh-hant/363058/)
 
-編者：文章
+英文標題 CCP Virus Pandemic Updates Ep231: A No. 1 Middle School gave students moldy vegetables and rotten meat;
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17014905/%E4%B8%8B%E8%BD%BD-1-1.jpg)新闻来源：法广新闻
+視頻重點
 
-英國首相約翰遜今天在國會下議院接受議員質詢時指出，中國通過《港區國安法》是踐踏香港高度自治，直接沖擊《基本法》，嚴重摧毀《中英聯合聲明》。
+1. 9月11日，哈爾濱依蘭縣境內一堤壩潰壩。全網搜索國內相關新聞，只能找到官媒新華網的一篇總計139字的免責聲明似的報導。另有一篇文章報導（該文章已經被刪除）說，“該堤壩能抵禦10年一遇的洪水”，而官方說“此次的洪水是15年一遇的，所以潰壩了”。
+2. 雲南威信一中食堂給學生吃發霉變質的蔬菜和肉類；有家長爆料說該食堂是縣委書記老丈人承包，官媒發文謊稱該事件屬謠言。
+3. 宜賓一24歲男子，因不滿鐘南山在疫情期間給百姓提供大量錯誤的防疫指導，直接導致大量中國人無辜死亡，在朋友圈發文抨擊鐘南山；卻因言獲罪，遭到逮捕;
+4. 香港太子洗衣街運動場道體育館旁，一女子被幾名男子強行抓上黑色轎車，整個過程該女士不停地大喊救命。
+5. （9/11）接下來，中國人如果不趕快聯合起來滅共的話，共產黨讓中國人死的，絕對不是一千萬人，也不會是一億人。你想再像過去文化大革命似的死一億人，那你是做夢呢。
 
-英國外交大臣拉布也表示，已非常仔細地評估“港區國安法”內容，明顯而且嚴重違反中英聯合聲明，除了違反香港的自治，也直接威脅香港人民的自由。他表示，英國和其他國際夥伴將共同采取回應行動。
 
-英國政府周三宣布，由於港版國安法違反中英聯合聲明，威脅香港人民的權利與自由，因此決定放寬BNO簽證權。把現行入境6個月期 限延長至5年，申請人數不設上限。新規定將在未來數個月內生效，具體日期與細節將再行公布。
+1. September 11 , a dam broke in Yilan County, Harbin. When trying to search for related news on all available websites, only one report on Xinhuanet was found with a 139-word disclaimer. In another article which has been deleted, it reported that the dam was prepared to withstand the once-in-10-year flood, and the official said this flood was once in 15 years, therefore the dam failed.
+2. The canteen of Yunnan Weixin No. 1 Middle School gave students moldy vegetables and rotten meat; some parents broke the news that the canteen was contracted by the father-in-law of the county party secretary, and the official media lied that the incident was a rumor.
+3. A 24-year-old man from Yibin was arrested after he posted criticism within his circle of friends, displaying his dissatisfaction with Zhong Nanshan’s misguidance to contain the epidemic, holding him responsible for the high death toll in China.
+4. In a Hong Kong stadium near Prince Edward Station, a woman kept screaming and calling for help after being kidnapped by several men, who forced her into a black car.
+5. (9/11) Next, for Chinese people if we don’t unite and take down the CCP fast enough, the CCP won’t just kill 10 million or even 100 million. If you think it will be the same as the Cultural Revolution, with around 100 million people killed, you are dreaming.
 
-原文鏈接：https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200701-%E7%BA%A6%E7%BF%B0%E9%80%8A%E6%8C%87-%E6%B8%AF%E5%8C%BA%E5%9B%BD%E5%AE%89%E6%B3%95-%E4%B8%A5%E9%87%8D%E6%91%A7%E6%AF%81-%E4%B8%AD%E8%8B%B1%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E
 
 0

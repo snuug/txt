@@ -1,59 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 頂級設計師品牌成群結隊地撤離香港
-`2020-09-16 17:01 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/362036/)
+## 美國宣布對在柬埔寨從事腐敗活動的中國國有實體進行製裁 (2020.09.15)
+`2020-09-16 19:27 GM80` [轉載自GNews](https://gnews.org/zh-hant/362217/)
 
-*新聞來源：The Times 《泰晤士報》；作者：Didi Tang；發佈時間：2020年9月9日*
+美國依據第13818號行政命令（E.O.），對一個中華人民共和國（PRC）的國有企業: 優聯發展集團有限公司 (UDG) 實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16191636/20200915-Sanction.png)圖源：https://n.sinaimg.cn/translate/783/w1920h1263/20181119/fAV0-hnyuqhi3348498.jpg 
+[閱讀英文原文](https://www.state.gov/the-united-states-sanctions-chinese-state-owned-entity-for-its-role-in-corruption-in-cambodia/)
 
-*翻譯/簡評：遊戲小哥；校對：1818；審核：海闊天空；Page：拱卒*
+China is the world’s largest emitter of environmental pollution including of greenhouse gases and the exploitation of natural resources around the globe.  Today, the United States again took action by imposing sanctions on the People’s Republic of China (PRC) state-owned Union Development Group, Ltd. (UDG) under Executive Order (E.O.) 13818, which builds upon and implements the Global Magnitsky Human Rights Accountability Act, for its role in corrupt activities in Cambodia.
 
-**簡評：**
+中國是世界上最大的環境污染排放國，其污染包括了溫室氣體以及在全球範圍開採自然資源帶來的污染。 今天，美國再次採取行動，依據第13818號行政命令（E.O.），對中華人民共和國（PRC）的國有企業-優聯發展集團有限公司 (UDG)-實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
 
-香港在中共的持續打壓下，各行各業都遭受了重大打擊。香港自治遭到嚴重破壞，引起了一系列連鎖反應，其中包括文中所提及得各大跨國企業對一個沒有健全法制的香港逐步產生憂慮和恐慌，紛紛開始或計劃撤離香港。這必將造成失業率持續上升，加劇民眾對中共的抗議。在這樣一個惡行循環之下，昔日自由時尚的東方之珠已經逐漸變成“臭港”。
+Today’s action demonstrates how the Chinese Communist Party coopts companies to expand its influence, including by working through corrupt officials to use military force against innocent people in a blatant attempt to secure illicit financial gains.  There are credible reports that the coastal development project at Dara Sakor could be used to host PRC military assets, and if so would go against Cambodia’s Constitution and could threaten Indo-Pacific stability, possibly impacting Cambodia’s sovereignty and the security of our allies.
 
-頂級設計師品牌成群結隊地撤離香港
+今天的行動印證了中國共產黨是如何通過收買當地公司以擴大其影響力，包括通過與腐敗官員合作來對無辜民眾使用武力，公然試圖獲取非法經濟利益。可信的報告表明，七星海 (Dara Sakor) 的沿海開發專案可能被用於託管中國的軍事資產，此種做法會違反柬埔寨的憲法，並可能給印度洋-太平洋地區的穩定帶來威脅，可能會影響到柬埔寨的主權和我們盟友的安全。
 
-**勞力士（Rolex），歐米茄（Omega）和拉佩拉（La Perla）近期將退出動蕩的地區**
+The government of Cambodia granted UDG a 99-year lease in 2008 for the development of the Dara Sakor project on a site that encompasses almost 20 percent of the country’s coastline. UDG was founded as a wholly-owned PRC corporation, but became a Cambodian enterprise in order to receive the lease for nearly 90,000 acres of land.  The company then went back to being PRC-owned after acquisition of the lease and resulting land.
 
-[!\[\](https://spark.adobe.com/page/OdpzjUhO5UOSt/images/91391997-5552-42f2-880d-ef0ec411f533.jpg?asset_id=92749e48-fc07-45f2-9261-7bfa30a83d45&amp;img_etag=%226145a21c2a9d2b3ae895db97ee99b98a%22&amp;size=1024)](https://spark.adobe.com/page/OdpzjUhO5UOSt/images/91391997-5552-42f2-880d-ef0ec411f533.jpg?asset_id=92749e48-fc07-45f2-9261-7bfa30a83d45&amp;img_etag=%226145a21c2a9d2b3ae895db97ee99b98a%22&amp;size=1024)香港經濟正遭受數十年來最嚴重的挫折，主要是由於反政府抗議活動和疫情大流行
+柬埔寨政府於2008年授予優聯發展集團有限公司一份99年的租賃合約，用於開發七星海專案，該專案覆蓋了柬埔寨近20%的海岸線。優聯發展集團有限公司本是中國國有企業，但為了獲得近9萬英畝土地的租賃權，它變成了一家柬埔寨企業。在取得租約和相應的土地後，該公司又恢復為中國國有企業性質。
 
-由於抗議中共國對該地區日益專制統治的抗議活動從而引發的經濟危機，一些世界頂級品牌退出了香港的主要購物區。
+In conjunction with a former Cambodian Army official, the Cambodian military cleared the leased land by force using violent tactics. Then Royal Cambodian Armed Forces chief of staff, Kun Kim (Kim), reaped significant financial benefit from this relationship with UDG.  Kim was previously designated by the United States for his role in corruption under the Global Magnitsky sanctions program in December 2019.  The land in question is also considered part of Botum Sakor National Park, a protected natural area.
 
-勞力士，歐米茄（Omega），拉佩拉（La Perla）和契爾氏（Kiehl’s）步普拉達(Prada)後塵，關閉了在銅鑼灣的商店，普拉達（Prada）於2月撤離了羅素街（Russell Street）商店。
+柬埔寨軍方與一名前柬埔寨軍官合作，使用暴力手段強行清理租賃的土地。時任柬埔寨皇家武裝部隊參謀長的金昆 (Kim) 從與優聯發展集團有限公司的交易中攫取了巨額經濟利益。 此前，Kim已經因其腐敗行為，於2019年12月被美國依據全球馬格尼茨基制裁專案予以制裁。 該片爭議土地同時被認為是波洞沙果 (Botum Sakor) 國家公園的一部分，屬於自然保護區。
 
-華倫天奴（Valentino）已關閉其旗艦店，而蒂芙尼（Tiffany＆Co）和周大福（Chow Tai Fook）也已關閉了該市高檔地區的門店。
+The United States stands with the Cambodian people and calls on the world to join us in condemning corruption and environmental degradation.
 
-一系列的品牌店撤離之際，香港經濟正遭受數十年來最嚴重的挫折，這在很大程度上是由於反政府抗議活動和冠狀病毒大流行將游客拒之門外。
+美國與柬埔寨人民站在一起，並呼籲全世界加入我們，共同譴責腐敗和導致環境惡化的行為。
 
-與去年同期相比，5月份零售額下降了近33％。根據政府數據，6月份零售商報告下降了25％。
+For more information regarding this action, please see the press release issued today by the Department of the Treasury: [https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
 
-由於香港限制旅行的規定，第二季度遊客數量下降了99％。遊客們也避開了這個前英國殖民地。 ， 因為反對北京新安全法的示威遊行引起騷動，新法也限制了公民的權利。
+有關這一行動的更多資訊，請參見財政部今天發佈的新聞稿：[https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
 
-香港財政司司長陳茂波（Paul Chan）表示，經濟衰退的深度和持續時間超出了人們的預期，其中餐館，零售和旅遊業受到的打擊最大。
+*翻譯：【jamie(文胤)】校對：【Rock小哥】編輯：【Michelle】【JoyJoy】*
 
-任何恢復似乎都還很遙遠。據《南華早報》報導，國泰航空是香港的旗艦航空公司，計劃將多達180架飛機的機隊中的一半長期存放在沙漠地區，例如澳大利亞的愛麗絲泉(Alice Springs)。
-
-[!\[\](https://spark.adobe.com/page/OdpzjUhO5UOSt/images/b35f9f0c-e251-493d-817e-ae3c3e95a715.jpg?asset_id=dd2c0693-78c6-451c-bc67-4bc082a6fd3a&amp;img_etag=%2224bfb3c71572628e1148d8fa6d6b49a8%22&amp;size=1024)](https://spark.adobe.com/page/OdpzjUhO5UOSt/images/b35f9f0c-e251-493d-817e-ae3c3e95a715.jpg?asset_id=dd2c0693-78c6-451c-bc67-4bc082a6fd3a&amp;img_etag=%2224bfb3c71572628e1148d8fa6d6b49a8%22&amp;size=1024)
-
-同時，更多的美國企業正在考慮離開。在香港美國商會調查的154家公司中，有近40％的公司表示，他們計劃將資本，資產或業務遷出香港。
-
-調查報告說：“公司考慮離開香港的趨勢變得更加明顯。總而言之，與公司相比，有更大比例的個人考慮離職。”
-
-報告說：“在那些考慮撤離的公司中，約有六分之五正在規劃中長期的計劃。”
-
-在針對該市激進分子的新案件中，香港檢察官指控前廣播電台主持人發表“煽動性”言論。
-
-譚得志（譯者註：藝名快必，香港電台節目主持，近年投身社會運動-維基百科）被控煽動對政府和警察的仇恨，高喊抗議口號，包括“解散警察”和“光復香港，時代革命”。
-
-法官拒絕了對譚先生的保釋請求，譚的案件正在由該市新成立的國家安全部門進行調查。
-
-批評者認為，對譚先生的起訴是違反言論自由的罪行。
-
-不過，香港行政長官林鄭月娥宣布，只要遵守法律，香港的言論自由就不會改變。
-
-[原文鏈接](https://www.thetimes.co.uk/article/top-designer-brands-desert-hong-kong-in-droves-thfb8lk3q)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/OdpzjUhO5UOSt/)
+*戰友之家玫瑰園小隊出品*
 
 0
