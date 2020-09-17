@@ -1,33 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江財神解讀之金融滅共
-`2020-09-16 12:48 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/361656/)
+## 【世界多語言文字版】9月15日閆博士接受福克斯知名主持人Tucker Carlson採訪
+`2020-09-16 17:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/362130/)
 
-喜馬拉雅聯盟加拿大農場金融時事欄目組 文紫 海嘯
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16123728/fffffff-2.jpg)
-以下根據江財神在金融時事欄目直播連線所講內容整理。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16091358/51857ffd-f0e7-4df2-934a-1de2a27a64cf.jpg)
 
-共產主義宣言中把共產黨自己描述成一個幽靈，而中共的歷史就是沒有造血能力的幽靈，玩弄龐氏騙局的歷史。這一期我們就來聊一聊中共的金融龐氏騙局。
+[【中文版】SARS-CoV-2是人造病毒，是在實驗室製造出來的,是基於中共軍方發現和擁有的一種蝙蝠冠狀病毒](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173616/%E4%B8%ADN091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173616/%E4%B8%ADN091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)
 
-CCP的金融龐氏騙局是怎麼玩的？
+[【英文版】SARS-CoV-2 virus is not from the nature. It is a man-made virus, created in the lab](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173623/%E8%8B%B1N091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173623/%E8%8B%B1N091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)
 
-CCP的經濟就是三個擀麵杖子：外貿（外貿加工）、房地產和內需（內部消費）。
+陸續更新中……
 
-外貿：就是靠出賣每一個老百姓的血汗錢、勞動力、生命、安危、福利和人權等資源，換取了每年幾千億的外匯，並拿這些外匯支撐國內的虛假房地產市場和內部消費。從2008年金融危機以來，中共國的出口業務持續走低，外貿企業利潤幾乎為0。為了抵消這一影響，中共通過壓低成本，印鈔，發放出口補貼，以低價傾銷的方式佔領海外市場，繼續換取美元維持外向型經濟體系。而錢並不是憑空變出來的，作為政府印發的白條，中共國印鈔補貼出口企業的副作用，就是實際犧牲國內貨幣的購買力，透支政府信用。
+**By：【秘密翻譯組G-Translators】**
 
-房地產：中國240萬億的房地產市值，每年漲價17.4%，每年增值大約35-40萬億。而我們國家總共創造GDP約90萬億，較上一年GDP增長5萬億。這就意味著，盜國賊通過調高房價就增長了35萬億後，每年僅增加5萬億，也就是實際每年虧損近30多萬億。中共為什麼一定要搶土地，因為土地是支撐中共最快的資源。這也解釋了為什麼房價不能下跌？當房地產價格下跌10%，也就意味著要跌去24萬億的GDP。所以，不讓你降價，形成有行無市的局面。
 
-內需：經過了洪水、疫情、制裁，你拿什麼來內需，連生存都成了問題，還怎麼內需。
-
-中共為什麼還能生存下去？
-
-香港對於中共的龐氏騙局起到了最關鍵的和不可替代的作用。
-
-CCP離開了香港這個輸血動脈，連北朝鮮都不如。所以，香港的自貿區優惠協議和待遇取消後，70-80%的外資輸血管被完全切斷。這也是為什麼郭先生一直說：香港是滅共的第一道大門。中共最怕自己的錢袋子被掏空，金融騙局被揭穿，最怕老百姓不認賬，不貢獻自己的財富。
-
-爆料革命不僅在政壇上揭露3F計劃、藍金黃計劃、病毒真相，更重要的是揭露中共在金融上的龐氏騙局。
-
-而喜馬拉雅的G系列，作為全世界華人的諾亞方舟，將會拯救無數人的性命，它將是這場災難唯一的解藥。
 
 0
