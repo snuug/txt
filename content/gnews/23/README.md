@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英首相：香港國安法嚴重摧毀《中英聯合聲明》
-`2020-09-17 01:51 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/362827/)
+## 【世界多語言圖文】2020/09/10 CCP病毒每日疫情直播簡報
+`2020-09-17 07:50 GM62` [轉載自GNews](https://gnews.org/zh-hant/363257/)
 
-編者：文章
+戰友之家圖文摘要及小語種組
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17014905/%E4%B8%8B%E8%BD%BD-1-1.jpg)新闻来源：法广新闻
+[English\_0910\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070404/English_0910_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070404/English_0910_CCP_Virus_Updates.pdf)
 
-英國首相約翰遜今天在國會下議院接受議員質詢時指出，中國通過《港區國安法》是踐踏香港高度自治，直接沖擊《基本法》，嚴重摧毀《中英聯合聲明》。
+[French\_0910\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070417/French_0910_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070417/French_0910_CCP_Virus_Updates.pdf)
 
-英國外交大臣拉布也表示，已非常仔細地評估“港區國安法”內容，明顯而且嚴重違反中英聯合聲明，除了違反香港的自治，也直接威脅香港人民的自由。他表示，英國和其他國際夥伴將共同采取回應行動。
+[German\_0910\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070408/German_0910_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070408/German_0910_CCP_Virus_Updates.pdf)
 
-英國政府周三宣布，由於港版國安法違反中英聯合聲明，威脅香港人民的權利與自由，因此決定放寬BNO簽證權。把現行入境6個月期 限延長至5年，申請人數不設上限。新規定將在未來數個月內生效，具體日期與細節將再行公布。
+[Korean\_0910\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070413/Korean_0910_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070413/Korean_0910_CCP_Virus_Updates-.pdf)
 
-原文鏈接：https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20200701-%E7%BA%A6%E7%BF%B0%E9%80%8A%E6%8C%87-%E6%B8%AF%E5%8C%BA%E5%9B%BD%E5%AE%89%E6%B3%95-%E4%B8%A5%E9%87%8D%E6%91%A7%E6%AF%81-%E4%B8%AD%E8%8B%B1%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E
+[Spanish\_0910\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070400/Spanish_0910_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17070400/Spanish_0910_CCP_Virus_Updates.pdf)
+
+
 
 0
