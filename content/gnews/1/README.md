@@ -1,83 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士和美國國立衛生研究院在中共病毒疫情中扮演何種角色？
-`2020-09-16 16:29 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/361949/)
+## 美國宣布對在柬埔寨從事腐敗活動的中國國有實體進行製裁 (2020.09.15)
+`2020-09-16 19:27 GM80` [轉載自GNews](https://gnews.org/zh-hant/362217/)
 
-喜馬拉雅聯盟加拿大農場 坐看雲起時
+美國依據第13818號行政命令（E.O.），對一個中華人民共和國（PRC）的國有企業: 優聯發展集團有限公司 (UDG) 實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16191636/20200915-Sanction.png)圖源：https://n.sinaimg.cn/translate/783/w1920h1263/20181119/fAV0-hnyuqhi3348498.jpg 
+[閱讀英文原文](https://www.state.gov/the-united-states-sanctions-chinese-state-owned-entity-for-its-role-in-corruption-in-cambodia/)
 
-校對 小鷗
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16161947/The-Guardian-1.jpg)圖片來源：The Guardian 
-9月13日，美國著名自媒體The Gateway Pundit發表了對福奇博士（Dr. Anthony Fauci）、美國國家過敏和傳染病研究所（以下簡稱NIAID)與中共國武漢病毒研究所合作關係的質疑，呼籲須對他們展開司法調查。
+China is the world’s largest emitter of environmental pollution including of greenhouse gases and the exploitation of natural resources around the globe.  Today, the United States again took action by imposing sanctions on the People’s Republic of China (PRC) state-owned Union Development Group, Ltd. (UDG) under Executive Order (E.O.) 13818, which builds upon and implements the Global Magnitsky Human Rights Accountability Act, for its role in corrupt activities in Cambodia.
 
-作者開篇明確指出，目前大量證據毫無疑問地表明了幾個事實—中共病毒來自於中共國實驗室，中共國政府和世界衛生組織（WHO)勾結隱瞞疫情、掩蓋病毒真相。目前人們迫切希望知道，為什麼中共國當時切斷了武漢與其它中共國城市的航班時，卻任由武漢的乘客飛往全世界？
+中國是世界上最大的環境污染排放國，其污染包括了溫室氣體以及在全球範圍開採自然資源帶來的污染。 今天，美國再次採取行動，依據第13818號行政命令（E.O.），對中華人民共和國（PRC）的國有企業-優聯發展集團有限公司 (UDG)-實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
 
-在這篇文章中作者重點質疑的是，福奇博士領導的美國國立衛生研究院（以下簡稱NIH)下屬部門NIAID，將美國政府資金投入中共國武漢病毒研究所，與之合作進行的病毒實驗，在這次全球大流行中所扮演了何種角色？同時呼籲參議院委員會或司法部必須對此盡快展開司法調查。
+Today’s action demonstrates how the Chinese Communist Party coopts companies to expand its influence, including by working through corrupt officials to use military force against innocent people in a blatant attempt to secure illicit financial gains.  There are credible reports that the coastal development project at Dara Sakor could be used to host PRC military assets, and if so would go against Cambodia’s Constitution and could threaten Indo-Pacific stability, possibly impacting Cambodia’s sovereignty and the security of our allies.
 
-作者對NIH的質疑具體如下：
+今天的行動印證了中國共產黨是如何通過收買當地公司以擴大其影響力，包括通過與腐敗官員合作來對無辜民眾使用武力，公然試圖獲取非法經濟利益。可信的報告表明，七星海 (Dara Sakor) 的沿海開發專案可能被用於託管中國的軍事資產，此種做法會違反柬埔寨的憲法，並可能給印度洋-太平洋地區的穩定帶來威脅，可能會影響到柬埔寨的主權和我們盟友的安全。
 
-2020年4月17日，川普總統在記者招待會回答記者提出的關於NIH對中共國武漢病毒研究所（以下簡稱武毒所)合作項目問題時，提及考慮停止NIH在奧巴馬時期開始的對武毒所一筆共計為370萬美元的撥款。
+The government of Cambodia granted UDG a 99-year lease in 2008 for the development of the Dara Sakor project on a site that encompasses almost 20 percent of the country’s coastline. UDG was founded as a wholly-owned PRC corporation, but became a Cambodian enterprise in order to receive the lease for nearly 90,000 acres of land.  The company then went back to being PRC-owned after acquisition of the lease and resulting land.
 
-2020年4月19日，NIH負責校外研究的副主任Michael Lauer主動給長期與中共國合作的生態健康聯盟（EcoHealth Alliance）去信，指出因武毒所釋放中共病毒的指控，NIH暫停武毒所參與聯邦項目的資格，如果生態健康聯盟沒有資金流向武毒所，那麼依舊能獲得餘下款項。
+柬埔寨政府於2008年授予優聯發展集團有限公司一份99年的租賃合約，用於開發七星海專案，該專案覆蓋了柬埔寨近20%的海岸線。優聯發展集團有限公司本是中國國有企業，但為了獲得近9萬英畝土地的租賃權，它變成了一家柬埔寨企業。在取得租約和相應的土地後，該公司又恢復為中國國有企業性質。
 
-2020年4月21日，生態健康聯盟總裁Peter Daszak郵件回復中稱沒有資金流向武毒所。
+In conjunction with a former Cambodian Army official, the Cambodian military cleared the leased land by force using violent tactics. Then Royal Cambodian Armed Forces chief of staff, Kun Kim (Kim), reaped significant financial benefit from this relationship with UDG.  Kim was previously designated by the United States for his role in corruption under the Global Magnitsky sanctions program in December 2019.  The land in question is also considered part of Botum Sakor National Park, a protected natural area.
 
-2020年4月24日Lauer通知生態健康聯盟，以福奇博士為首的NIAID選擇終止撥款資助”研究蝙蝠冠狀病毒風險”的項目，因為”NIH認為目前的項目成果與計劃目標和機構優先事項不一致” 。
+柬埔寨軍方與一名前柬埔寨軍官合作，使用暴力手段強行清理租賃的土地。時任柬埔寨皇家武裝部隊參謀長的金昆 (Kim) 從與優聯發展集團有限公司的交易中攫取了巨額經濟利益。 此前，Kim已經因其腐敗行為，於2019年12月被美國依據全球馬格尼茨基制裁專案予以制裁。 該片爭議土地同時被認為是波洞沙果 (Botum Sakor) 國家公園的一部分，屬於自然保護區。
 
-2020年4月27日，NIH 宣布暫停了NIAID對生態健康聯盟的369,819美元的撥款。當時這一舉動還曾引起了主流媒體和科學界一些代表的憤怒。
+The United States stands with the Cambodian people and calls on the world to join us in condemning corruption and environmental degradation.
 
-2020年6月23日，在回答眾議員Marc Veasey 關於取消生態健康聯盟資助的原因時，福奇博士卻說：”我不知道原因，但我們被告知要取消它”。
+美國與柬埔寨人民站在一起，並呼籲全世界加入我們，共同譴責腐敗和導致環境惡化的行為。
 
-2020年7月，Lauer給生態健康聯盟去信，要求該機構完成條件即“提供武毒所用於確定其基因序列的中共病毒樣本”後方可繼續撥款。
+For more information regarding this action, please see the press release issued today by the Department of the Treasury: [https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
 
-安排對武毒所及其記錄進行外部檢查，”特別注意解決武毒所工作人員在2019年12月之前是否擁有中共病毒的問題”，Lauer寫道。
+有關這一行動的更多資訊，請參見財政部今天發佈的新聞稿：[https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
 
-解釋武毒所的所謂限制，包括”2019年10月手機流量減少，以及2019年10月14日至19日期間設施周圍可能存在路障的證據”。
+*翻譯：【jamie(文胤)】校對：【Rock小哥】編輯：【Michelle】【JoyJoy】*
 
-提供武毒所對2018年國務院關於安全問題電報的答复。
-
-生態健康聯盟認為以上這些是”不可能和不相關的條件“
-
-2020年8月27日，在條件沒有完成、爭議沒有平息之際，美國國立衛生研究院（NIH)竟令人驚訝且靜悄悄地通過了對生態健康聯盟750萬美元的一筆撥款。該撥款是8200萬美元計劃的一部分，用以創建一個由10個新興傳染病研究中心（CREID）組成的全球網絡，全面主持這項工作的是福奇博士。
-
-沒有人清楚NIH當時取消生態健康聯盟撥款的確切依據是什麼，也沒有人清楚為什麼在原有問題還沒有解決的情況下，NIH又向生態健康聯盟提供了比之前削減金額多20多倍的新撥款。
-
-作者對生態健康聯盟的質疑：
-
-2020年4月21日，生態健康聯盟總裁Peter Daszak通過郵件回應Lauer對武毒所的撥款質疑：”我可以明確地聲明，沒有任何來自2R01 AI110964-06的資金被送到武漢病毒學研究所，也沒有簽署任何合同。”
-
-Daszak在2019年12月9日接受采訪的視頻，證明了他的這個陳述不實。在這個視頻中Daszak表示，生態健康聯盟80%以上的資金來自於美國政府。生態健康聯盟利用政府資金，通過分包合同，投資於其他國家（如中共國）的基礎設施，並在中共國等其他國家進行培訓和能力建設。管理方式則是在各國設立項目官員，並經常性地僱傭中共國技術人員和博士生。在採訪中他明確指出該機構給在中共國工作的人發工資。在生態健康聯盟的10份被列為因NIAID撥款停止而取消的科學論文中，有5篇是與武毒所直接合作的，還有一篇是與中共政府實驗室合作進行的。因此，Daszak之後與武毒所沒有資金輸出及合同簽署的說法有理由讓人懷疑。
-
-在同一個視頻中，Daszak透露他們收集了100多種蝙蝠冠狀病毒，這些能感染人類、無疫苗也無法用藥物治療的蝙蝠冠狀病毒，目前有極大可能性存放於中共國實驗室裡。同時Daszak描述了正在進行中的病毒生物工程，他的原話是：
-
-“冠狀病毒相當不錯”，“在實驗室裡你可以很容易地操縱它們。S蛋白增加了冠狀病毒人畜共患的風險。所以，你可以得到序列，你可以建立蛋白質，我們與北卡羅來納大學（ UNC）的Ralph Baric合作來做這件事，在實驗室裡研究把它插入另一種病毒的骨幹中”。
-
-在文章的結尾，作者強烈地要求作為NIAID負責人福奇博士必須接受質詢，回答以上的疑問。
-
-簡評：自CCP病毒大流行伊始，美國主流媒體就把福奇博士捧為“美國版的鐘南山”，似乎這個堅決反對川普總統一月底實施旅行禁令的福奇博士才是拯救美國的英雄。福奇博士花樣追隨中共走狗WHO的政策，與川普總統的種種對立成了主流媒體把美國疫情完全甩鍋給川普總統的抓手。被中共嚴重“藍金黃”的NIH，在2019年就已有140名科研人員因與中共的聯繫而受到調查。
-
-2020年9月14日，閆麗夢博士和博士團隊共同完成的26頁科學報告《SARS-CoV-2基因組的異常特徵指向實驗室改造而不是自然進化以及對其可能的合成路線進行勾畫》在ResearchGate， Zenodo等科學網站推出，在世界頂尖學術單位引起核彈級的影響。 ResearchGate網站因該論文上傳迅速被黑，而在Zenodo，僅僅上傳12小時，在網站的80多萬份科學刊物中，它的瀏覽量和下載量就迅速攀升到第三名。
-
-在這份報告中，閆博士指出：
-
-SARS-CoV-2（中共病毒）應該是一種實驗室產品，通過使用蝙蝠冠狀病毒ZC45和/或ZXC21作為模板和/或骨架而產生，該病毒擁有者為中共軍方病毒研究所。
-
-病毒的S蛋白獨特的Furin蛋白酶切位點是基因工程的結果；
-
-SARS-CoV-2（中共病毒）顯示出與自然發生的人畜共患病毒不一致的生物學特徵；
-
-在已有證據的基礎上，證明了實驗室可以在大約6個月內合成這種冠狀病毒。
-
-在報告中，閆博士也特別質疑了武毒所與美國NIH合作的病毒增強試驗與美國NIH370萬的撥款情況。
-
-生態健康聯盟總裁Daszak在2019年12月9日採訪時介紹，他們正在進行中的病毒增強試驗，與閆博士論文里中共病毒製造過程驚人地相似。結合閆博士對此提出的質疑，世人更迫切需要福奇博士、NIH及生態健康聯盟對自己在此次疫情大流行中所扮演的角色做出回答。
-
-參考鏈接：https://www.thegatewaypundit.com/2020/09/time-investigation-dr-fauci-niaid-accused-collaboration-china-covid-19-virus/
-
-
-
-
-> [闫丽梦博士第一份报告【新型冠状病毒非源于自然】中文全文翻译](https://gnews.org/zh-hans/359379/)
-
+*戰友之家玫瑰園小隊出品*
 
 0

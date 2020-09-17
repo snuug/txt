@@ -1,69 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共疫情速報：雲南瑞麗封城首日，肉類漲到100元每斤
-`2020-09-16 12:47 GM77` [轉載自GNews](https://gnews.org/zh-hant/361653/)
+## 《Take Down the CCP》歌詞（下載版）
+`2020-09-16 17:34 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/362114/)
 
-整撰：文錦
-審核：文肯尼
+[下載圖片](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165526/Take_Down_the_CCP_Lyrics-VOG-scaled.jpg)
 
-疫情特殊時期，勸誡大家現在家裏面還是要備一點糧食為好，萬一出現了什麽事情，價格上漲了可就麻煩了，甚至說有錢也買不到。就比如之前有報道說瑞麗封城首日肉價居然漲到了100元了。**是的妳沒有聽錯就是100元****/****斤****。**
+[下載PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165439/Take_Down_the_CCP_Lyrics-VOG.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165526/Take_Down_the_CCP_Lyrics-VOG-scaled.jpg)
+**Take Down the CCP**
 
-據中共媒體《新浪財經》15日報道，**2020年9月14日，瑞麗市人民政府召開新聞發布會，宣布自當日22時始，無特殊情況不得進出瑞麗市城區，時間暫定一周。**
+From the Album Take Down the CCP
 
-當天同時通報兩起偷渡者新冠核酸陽性案例。緬甸人楊佐某攜2名保姆、3名孩子入境。並於9月3日—12日期間，先後前往商場、公園、餐廳、健身房；在10日自感不適接受核酸檢測後，又前往菜市場買菜。在接受調查時，她自稱上述行程均“戴口罩”。另一名陽性病例系其保姆。
+Miles Guo
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16123632/1-67.jpg)
+G-Music
 
-雲南瑞麗口岸
+Take down the CCP!
 
-**11日已現疫情傳聞 ，14日封閉交易場所**
+Take down the CCP!
 
-早在9月11日，在當地從事翡翠交易的某位商客就已經聽到一些傳聞。當天，她照常前往當地著名的珠寶交易市場德龍珠寶城工作。那裏的玉石夜市相當繁華，但當天的氣氛卻有些詭異，“所有人都戴了口罩”。當該名商客 14日再去德龍夜市，發現德龍被封了。”
+Follow me and ima set us free
 
-**瑞麗只是一個面積1020平方千米的邊境小城。但它卻是全國最大的翡翠交易市場之一。**近年隨著網絡“直播帶貨”的興起，淘寶、抖音等互聯網巨頭均在當地建立了直播基地。
+Take down the CCP!
 
-2019年，瑞麗珠寶翡翠直播行業交易額突破百億元；截至今年5月，當地珠寶翡翠行業直播從業人員已超6萬人。
+Let me tell you what I’ve been through baby
 
-緬甸是全球最知名的翡翠產地，且大部分銷往中國。除了來自全國各地的玉商，還有大批緬甸人在此出貨。如今，這樁年逾百億的大生意已全面停擺。
+Lived a life that was hella unfair
 
-**瑞麗市新冠肺炎疫情防控工作指揮部14日發布《關於全面強化疫情防控措施的通告》（下稱《通告》），要求****“****暫停瑞麗市行政區域內所有珠寶翡翠網絡直播基地及珠寶交易市場（場所）直播、交易等聚集性活動****“****。無論經營管理者還是直播從業人員，都必須進行新冠病毒核酸檢測，”經核酸檢測呈陰性者方可入場****“****。**
+Seen things that been driving me crazy
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16123833/2-30.jpg)
+In a country where the leaders don’t care
 
-瑞麗某珠寶翡翠交易市場
+Didn’t think we had the courage to change it?
 
-**肉價漲至100元，外賣幾乎全停**
+Tore it down and they weren’t prepared
 
-盡管早已隱約聽到流言，該名商客直到發現德龍市場關閉，才趕緊又去采購了一批生活物資。“今天淩晨全城都在買菜，有的超市都被搬空了。”
+Everything that they kept us from saying
 
-**至9月15日中午，當地青菜價格已漲至十多元/斤，豬肉60元/斤，牛肉則要100元/斤。**
+Now we’re talking and they better be scared
 
-這位商客也曾想過要暫時離開瑞麗，但突出其來的消息讓她有些措手不及。他講：“我朋友是江西的，昨天從隔壁芒市坐飛機走了。等我想走的時候已經走不掉了”。
+Take and take and take from us
 
-周姓店主的餐飲店則是在9月14日下午接到的消息，“所有人都要居家隔離”，整個商業區的店鋪也都要關門。“昨天下午都在處理店裏的東西。我的營業額基本上一天6000元以上，還有3萬多元的備料。鮮菜那些不值錢，主要是凍貨，外地發來的調料、肉。”
+Tell us what and who to love
 
-對於偷渡客確診新冠肺炎導致的封城，這位店主也只能表示無奈。“封城一周，我估計要損失8萬—9萬元。”從9月14日下午至今，在雲南德宏瑞麗市經營餐飲生意的周姓店主還沒緩過神來。
+Swear I finally had enough
 
-**確診感染者所住小區全封閉**
+It’s time to rise above
 
-在兩名新冠肺炎病例確診後，當地已於12日晚對其暫住的奧星世紀小區實施封閉管理。在當地工作的某位人員恰好當天前往確診病例楊佐某暫住小區做客。“5點進來，8點下去特警就把小區的門口堵了，既不能進又不能出。” 小區大門已被柵欄層層封死，門口僅提供了一些桶裝的食用水和口罩。
+Take down the CCP!
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16123916/3-17.png)
+Take down the CCP!
 
-奧新小區現狀（拍攝*/*受訪者）
+Follow me and ima set us free
 
-過去兩天，在當地打工的這位和朋友一家都靠叫外賣維持日常飲食。東西送到小區大門後，在協警的監管下消毒，再由居民自行拿回家中。到15日中午，他試圖再次通過美團APP解決午餐問題時發現，“美團生鮮，都關了。全城都封了，餐飲都停了，我們怎麽辦？”
+Take down the CCP!
 
-此外，小區垃圾箱也無人清理，“都滿了，滲出來了。”這位打工人員說。
+I said take down the CCP!
 
-恰巧與確診病例住在同一棟樓，所以，他和朋友是當地防疫的重點人群。9月12日小區封閉當晚，他們已經接受了核酸檢測。13日晚間，又有醫護人員在協警陪同下上門展開了一次地毯式的排查。當地政府9月14日稱，目前該小區1185個送檢樣本均為陰性。
+Take down the CCP!
 
-**編者觀點：**
+Communism’s dead to me because it killed our families
 
-瑞麗市官方公布僅僅兩名確診感染者，就被勒令封城。**我們從文中可以看出，9月11日在翡翠交易市場已發現很多人突然戴上了口罩，聯想到武漢1月23日封城時，實際感染人數絕不僅僅是武漢市衛健委網上公布的數字，中共故伎重演撒謊成性。**前幾天還大肆宣揚在黨的領導下抗疫取得了巨大的成功，還表彰了以鐘南山、陳薇為首的“代言人”，疫情隨時都又可能再次爆發，今天瑞麗被封，明天又會是其他地方。**墻內老百姓一定要提前預備糧食及生活必需物資，以備不時之需。**
+F\*\*k the CCP
 
-參考鏈接：
-[https://finance.sina.com.cn/world/gjcj/2020-09-15/doc-iivhuipp4509587.shtml](https://finance.sina.com.cn/world/gjcj/2020-09-15/doc-iivhuipp4509587.shtml)
+Communism sucks, hard for me to give a f\*\*k
+
+Tried to tell ’em and they try to keep it on the hush
+
+Middle finger up, turn into a fist
+
+They wanna keep the poor poor so they never rich
+
+If you wanna see the future look into the past
+
+Been a century of silence we gonna take it back
+
+I’m just stating facts, tell you how it is
+
+Ain’t no way to change shit if we don’t resist
+
+Take and take and take from us
+
+Tell us what and who to love
+
+Swear I finally had enough
+
+It’s time to rise above
+
+Take down the CCP!
+
+Take down the CCP!
+
+Follow me and ima set us free
+
+Take down the CCP!
+
+I said take down the CCP!
+
+Take down the CCP!
+
+Communism’s dead to me because it killed our families
+
+F\*\*k the CCP!
+
+聽寫 & 翻譯：【noraTina】校對：【Dlrow】設計：【VOG文宣】編輯：【Michelle】【GM31】
+
+戰友之家玫瑰園小隊出品
+
+相關新聞：
+
+[郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，戰友們打Call的機會來了！](https://gnews.org/zh-hant/341647/)
+
+[【快訊】《Take Down the CCP》美東時間9月10日晨強勢登上美國iTunes即時下載榜冠軍寶座！](https://gnews.org/zh-hant/345925/)
 
 0
