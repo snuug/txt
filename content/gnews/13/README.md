@@ -1,39 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美國宣布對在柬埔寨從事腐敗活動的中國國有實體進行製裁 (2020.09.15)
-`2020-09-16 19:27 GM80` [轉載自GNews](https://gnews.org/zh-hant/362217/)
+## 美國司法部就“中共國計算機入侵活動中的刑事起訴及逮捕行動”召開新聞發布會
+`2020-09-16 22:02 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/362526/)
 
-美國依據第13818號行政命令（E.O.），對一個中華人民共和國（PRC）的國有企業: 優聯發展集團有限公司 (UDG) 實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16191636/20200915-Sanction.png)圖源：https://n.sinaimg.cn/translate/783/w1920h1263/20181119/fAV0-hnyuqhi3348498.jpg 
-[閱讀英文原文](https://www.state.gov/the-united-states-sanctions-chinese-state-owned-entity-for-its-role-in-corruption-in-cambodia/)
+![美國司法部](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/14083918/Picture4-4.png)美國司法部
 
-China is the world’s largest emitter of environmental pollution including of greenhouse gases and the exploitation of natural resources around the globe.  Today, the United States again took action by imposing sanctions on the People’s Republic of China (PRC) state-owned Union Development Group, Ltd. (UDG) under Executive Order (E.O.) 13818, which builds upon and implements the Global Magnitsky Human Rights Accountability Act, for its role in corrupt activities in Cambodia.
+###  **美國司法部就“中共國計算機入侵活動中的刑事起訴及逮捕行動”召開新聞發布會全文翻譯** 
 
-中國是世界上最大的環境污染排放國，其污染包括了溫室氣體以及在全球範圍開採自然資源帶來的污染。 今天，美國再次採取行動，依據第13818號行政命令（E.O.），對中華人民共和國（PRC）的國有企業-優聯發展集團有限公司 (UDG)-實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
+**華盛頓特區- 2020年9月16日（星期三）**
 
-Today’s action demonstrates how the Chinese Communist Party coopts companies to expand its influence, including by working through corrupt officials to use military force against innocent people in a blatant attempt to secure illicit financial gains.  There are credible reports that the coastal development project at Dara Sakor could be used to host PRC military assets, and if so would go against Cambodia’s Constitution and could threaten Indo-Pacific stability, possibly impacting Cambodia’s sovereignty and the security of our allies.
+####  **第一部分：美司法部副部長傑佛瑞·羅森發言稿** 
 
-今天的行動印證了中國共產黨是如何通過收買當地公司以擴大其影響力，包括通過與腐敗官員合作來對無辜民眾使用武力，公然試圖獲取非法經濟利益。可信的報告表明，七星海 (Dara Sakor) 的沿海開發專案可能被用於託管中國的軍事資產，此種做法會違反柬埔寨的憲法，並可能給印度洋-太平洋地區的穩定帶來威脅，可能會影響到柬埔寨的主權和我們盟友的安全。
+我們今天在此宣布的是一場經廣泛協調的、旨在破壞一個進行惡意網絡活動的團伙，他們被稱為“深度且持續的威脅41號’或是’APT-41’，以及涉及APT- 41行動的相關國際犯罪企業。網絡安全專家稱，APT-41的活動是中國間諜網絡活動近年來最廣泛的一次。
 
-The government of Cambodia granted UDG a 99-year lease in 2008 for the development of the Dara Sakor project on a site that encompasses almost 20 percent of the country’s coastline. UDG was founded as a wholly-owned PRC corporation, but became a Cambodian enterprise in order to receive the lease for nearly 90,000 acres of land.  The company then went back to being PRC-owned after acquisition of the lease and resulting land.
+我們今天宣布將採取多種措施來阻止這些活動。首先，我們已經公佈了三份起訴書，指控五名中共國公民進行電腦黑客攻擊，並指控兩名馬來西亞公民幫助黑客鎖定受害者、並出售其黑客成果。
 
-柬埔寨政府於2008年授予優聯發展集團有限公司一份99年的租賃合約，用於開發七星海專案，該專案覆蓋了柬埔寨近20%的海岸線。優聯發展集團有限公司本是中國國有企業，但為了獲得近9萬英畝土地的租賃權，它變成了一家柬埔寨企業。在取得租約和相應的土地後，該公司又恢復為中國國有企業性質。
+我們的起訴包括兩類刑事犯罪行為：
 
-In conjunction with a former Cambodian Army official, the Cambodian military cleared the leased land by force using violent tactics. Then Royal Cambodian Armed Forces chief of staff, Kun Kim (Kim), reaped significant financial benefit from this relationship with UDG.  Kim was previously designated by the United States for his role in corruption under the Global Magnitsky sanctions program in December 2019.  The land in question is also considered part of Botum Sakor National Park, a protected natural area.
+第一類，作為APT-14計算機黑客核心行為，中共國的被告把全球100多名（用戶）作為目標，涉及各行業、各領域，可悲的是，他們都在中共國駭客的打擊清單裡。這些犯罪行為被施以一項非常複雜的技術，名為“供應鏈攻擊”。中共駭客給軟件供應商的軟件做了手腳，（這些軟件的用戶）遍布全球，並修改了（軟件）供應商的代碼、安裝了可以持續進行黑客攻擊的後門，用以對付使用這些軟件的用戶；
 
-柬埔寨軍方與一名前柬埔寨軍官合作，使用暴力手段強行清理租賃的土地。時任柬埔寨皇家武裝部隊參謀長的金昆 (Kim) 從與優聯發展集團有限公司的交易中攫取了巨額經濟利益。 此前，Kim已經因其腐敗行為，於2019年12月被美國依據全球馬格尼茨基制裁專案予以制裁。 該片爭議土地同時被認為是波洞沙果 (Botum Sakor) 國家公園的一部分，屬於自然保護區。
+第二類，作為賺錢的另一種模式，好幾個中共國被告，給全球的視頻遊戲公司網絡動了手腳，（遊戲）是個數十億的產業，在遊戲內嵌資源里做了手腳。有兩個中共國被告和兩個馬拉西亞被告共同被起訴，他們被訴在黑市上通過他們的非法網站上銷售這些（被做了手腳的）資源。
 
-The United States stands with the Cambodian people and calls on the world to join us in condemning corruption and environmental degradation.
+除了這些被披露的刑事起訴外，我還在這裡宣布，經與馬來西亞執法部門合作，這兩個馬來西亞被告已於週日晚被逮捕，他們現在正面臨被引渡（到美國）的司法程序。
 
-美國與柬埔寨人民站在一起，並呼籲全世界加入我們，共同譴責腐敗和導致環境惡化的行為。
+所以，我們現在已有刑事起訴和兩個逮捕行動來甄別這些人。讓他們承擔責任是我們的首要任務
 
-For more information regarding this action, please see the press release issued today by the Department of the Treasury: [https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
+。但是，刑事調查和起訴本身並不足以使網絡更加安全。
 
-有關這一行動的更多資訊，請參見財政部今天發佈的新聞稿：[https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
+這就是我們今天新聞發布會的第三部分。除這些刑事起訴和兩個逮捕行動以外，我們司法部和聯邦調查局一直在和七個私營企業合作，包括：微軟、臉書、谷歌、威訊媒體（Verizon Media）和其他公司，以對APT -41的犯罪行為進行識別、並使計算機基礎設施更中立化，包括：虛擬私人服務器、惡意軟件、惡意域名和其他工具。這些都是我們通過與政府和非政府機構合作進行的行動，包括：使用技術手段對這些威脅者進行攔截、攔截他們進入受害人的計算機系統、還有發布大眾安全警告，對他們的技巧、技術和程序進行概要公告，以幫助網絡防火牆公司通過採取控制措施，或根據法院禁令和違反合同約定等對他們的賬號採取禁用措施。
 
-*翻譯：【jamie(文胤)】校對：【Rock小哥】編輯：【Michelle】【JoyJoy】*
+我們的底線是，我們用盡了司法部可以使用的所有工具來挫敗這些APT-41違法行為。
 
-*戰友之家玫瑰園小隊出品*
+我本希望能夠感謝中共國執法部門在此事上與我們合作，（如果是這樣）這五名中共國黑客現在應已被拘留並正等待著審判。但不幸的是，近年來的記錄告訴我們，中國共產黨選擇了一條不同的道路，就是只要這些黑客能幫助他們竊取知識產權或者協助其扼殺自由，中共就使其（網絡罪犯）能在中共國境內逍遙法外。
+
+在不到2個月前，助理司法部長Demers在這個講台上宣布了對另一起黑客案的起訴。在該案件中，中共政府縱容被告的犯罪活動，因為這些被告願為中共的情報機構工作。
+
+而這次亦如是。在本案中，一名中共國被告被控向其同事吹噓，稱其和（中共國）國家安全部“關係密切”，且“除非是出了大事兒”否則他絕對受到保護。該黑客及其同事們同意“不再觸碰國內事務”。
+
+我們知道中共當局至少在打擊電腦入侵方面和美國或其他類似國家的執法部門一樣有能力，但他們並沒有這樣做。
+
+但，請注意，一個國家如果只是在口頭上支持法治，而不採取措施制止這種無恥的犯罪行為，那麼它是無法被其他國家尊重、也成不了國際領袖。沒有一個負責任的政府會故意包庇網絡罪犯
+
+，而這些罪犯的目標是在全球範圍內行竊。負責任的國家不僅譴責犯罪行為，還要就其根除並懲罰，負責任的國家不會包庇境內罪犯，而是將其繩之以法，確保法律得以伸張。中共國卻絲毫不履行這些義務。
+
+因此，你們可以從今天的會議上得到另外三個重點：
+
+首先，中共國政府有能力幫助阻止這類犯罪；其次， 中共國政府已經做出了明確的選擇，允許它的公民犯下計算機入侵罪，並在世界範圍內進行攻擊，因為這些行為也會幫到中共國。但是， 第三， 司法部將盡一切可能來阻止這些罪行，通過曝光APT-41使用的技術、策略和步驟，並通過私營企業來使它們失去作用，通過和我們世界各地的執法同仁合作。我們隨時準備好逮捕那些黑客，就像今天抓捕的這兩個一樣。
+
+我們感謝我們的合作夥伴、以及我剛剛提到的私營企業，包括：微軟，臉書，谷歌和威訊媒體（Verizon media）以及我們在世界其他國家的執法同仁們，他們加大了執法的力度，在與這些國際犯罪的對抗中，這種夥伴關係可以傳遞出的消息是： **政府和私營企業已經準備一起合作，以抗擊重大的網絡威脅** 。
+
+今天，除了我上面提到的措施外，我們將這種威脅曝光給全世界，曝光給網絡安全專家們和社會大眾。 **我們會一直努力追踪那些應對其所犯罪行負責的個人，無論國內或國外，無論他們逃到哪裡。**
+
+####  **第二部分：美國聯邦哥倫比亞特區檢察院執行檢察長麥克·希文發言稿** 
+
+女士們、先生們：
+
+本周公開的這三個指控中所涉及的罪行之廣度和復雜程度是從未有過的，這麼說的原因是，就像剛才提到的，成百上千的個人賬戶被中共國的黑客鎖定為目標，而且造成了數以百萬計美元的損失。
+
+那麼，是什麼讓這幾個起訴更棘手？從某種意義上說，更值得被關注呢？
+
+（從這三個指控中）我們現在可以看到黑客們鎖定目標的標誌，除了熟知的跨國公司、企業、機構和院校，我們還發現（黑客）鎖定了遊戲公司，副部長剛才也提到了，這是一個數十億級別的產業。因此，遊戲產業是被黑客鎖定的，目標豐富的新產業。
+
+從我們接下去會分別談到的這三項起訴書中（可以看到），中共國的黑客與這兩名馬來西亞人協同合作，不僅僅駭客這些在線數字遊戲公司，而且還窩藏贓物並隨後把從遊戲平台上黑客所得的數字貨幣、代幣、硬幣轉賣給第三方。也就是說，他們不僅讓線上游戲公司成了受害者，還把非法所得合法地洗回中共國手中。
+
+女士們，先生們，第一項指控是“對張的指控”，其中涉及兩名中共國公民。第一項指控其實與兩種犯罪計劃有關：第一種犯罪計劃是常規的蠻力攻擊式黑客，我們在其他的案件中已經見到過了，但是在這第一個犯罪計劃中還包括了如副部長所說的供應鏈攻擊，即：中共國黑客先會用一種很先進的方式，來駭客目標公司的軟件並在其中插入惡意插件，這個軟件隨後會被賣給不知真相的第三方，供其公司所用，但這個有惡意插件的軟件其實就像是特洛伊木馬，這使得黑客可以進入第三方的數據庫，以竊取更多的專有信息，這種情況在第一份指控書全文均有出現。
+
+除了上述第一份指控中的第一種犯罪計劃之外，還有第二種犯罪計劃，其中這兩個中共國黑客與兩名馬來西亞人同夥合作，他們一起攻擊世界範圍內的線上游戲公司。一旦他們黑客攻擊這些線上游戲公司成功後，正如我們大家，尤其是有孩子的人所知道的，那些線上游戲中會用到很多的硬幣，代幣，數字貨幣等，他們（被告人）會偷這些電子貨幣，然後他們與這兩個馬來西亞人合作。這兩個馬來西亞人在第二份起訴中有提到，他們倆會收購贓物然後轉賣。這些偷來的電子貨幣給不知真相的第三方。因此，這同樣的令人非常不安。
+
+我們看到，很不幸的是，這（線上游戲）已經成了一個受到黑客剝削的新領域，而且這是個價值數十億的行業。我相信（黑客攻擊）並不會就此打住，很遺憾，我們將會看到更多的此類犯罪行為。
+
+第三份指控，女士們和先生們，與三個來自中共國的人有關。這份指控和前面第一份涉及兩個中共國人的指控非常相似，是很常規的對蠻力攻擊式黑客的指控。
+
+但有意思的是，在第三份起訴書中，女士們和先生們，這其中提到了成都404，這是一個中共國的公司，它與中共政府有著緊密的聯繫，為中共國政府工作，而且這個公司還與中共國解放軍、中共國軍事安全機構關係緊密。因此，關於這第三份指控，我們可以看到其中有黑客行為，有對專有信息的盜竊行為，我們再次看到有全世界上百家公司被攻擊，損失高達數百萬。
+
+因此，這三份指控，女士們和先生們，本質上是**向全世界通報：司法部、中情局和美國檢察官辦公室將確認、發現並起訴在世界上任何角落的網絡犯罪分子，無論你是在馬來西亞、中共國、東歐還是西歐，我們都將你們帶回（美國聯邦）哥倫比亞特區接受法律的製裁。**
+
+[演講稿原版](https://www.justice.gov/opa/speech/remarks-deputy-attorney-general-jeffrey-rosen-announcement-charges-and-arrests-computer)
+
+**By：【秘密翻譯組G-Translators】**
 
 0

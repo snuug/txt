@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言文字版】9月15日閆博士接受福克斯知名主持人Tucker Carlson採訪
-`2020-09-16 17:43 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/362130/)
+## 馮德萊恩：無論香港或新疆 歐盟必須就侵犯人權發聲 推動馬格尼茨基立法
+`2020-09-16 21:08 pmzy-vog` [轉載自GNews](https://gnews.org/zh-hant/362390/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16091358/51857ffd-f0e7-4df2-934a-1de2a27a64cf.jpg)
+編輯：文章
 
-[【中文版】SARS-CoV-2是人造病毒，是在實驗室製造出來的,是基於中共軍方發現和擁有的一種蝙蝠冠狀病毒](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173616/%E4%B8%ADN091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173616/%E4%B8%ADN091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16210613/%E4%B8%8B%E8%BD%BD-2.jpg)新聞來源：法廣新聞
 
-[【英文版】SARS-CoV-2 virus is not from the nature. It is a man-made virus, created in the lab](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173623/%E8%8B%B1N091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16173623/%E8%8B%B1N091504-Dr-Yan-interviewed-on-Tucker-Carlson-Tonight.pdf)
+歐盟委員會主席馮德萊恩（Ursula von der Leyen）9月16日在比利時首都布魯塞爾發表了其上任以來的，第壹次面對歐洲議會的歐盟國情咨文演講，主旨演講題為“建立我們想要生活的世界：脆弱世界中的活力聯盟”。
 
-陸續更新中……
+馮德萊恩在演講中提到，“所以侵犯人權的行為無論在何時或何地發生，歐盟都必須對其表態，不管是在香港或是維吾爾人（身上）。”她接著問道，“ 為什麽基於歐盟價值的聲明在其他動機的驅使下被拖延、刪減或挾持？”
 
-**By：【秘密翻譯組G-Translators】**
+歐洲議會過去多次要求應在歐盟境內進行歐盟馬格尼茨基人權問責法案的立法。馮德萊恩對此宣布，將提出壹個歐盟馬格尼茨基人權問責法案的議案。
 
+馮德萊恩還提到要深化和完善同美國的盟友關系，“無論今年晚些時候會發生什麽事，我們都準備建立新的跨大西洋議程。加強我們的雙邊夥伴關系-無論是就貿易、科技還是稅收（問題）。”
 
+原文鏈接：https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20200916-%E5%86%AF%E5%BE%B7%E8%8E%B1%E6%81%A9-%E6%97%A0%E8%AE%BA%E9%A6%99%E6%B8%AF%E6%88%96%E6%96%B0%E7%96%86-%E6%AC%A7%E7%9B%9F%E5%BF%85%E9%A1%BB%E5%B0%B1%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83%E5%8F%91%E5%A3%B0-%E6%8E%A8%E5%8A%A8%E9%A9%AC%E6%A0%BC%E5%B0%BC%E8%8C%A8%E5%9F%BA%E7%AB%8B%E6%B3%95
 
 0

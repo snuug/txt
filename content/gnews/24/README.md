@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七哥素描（3）“龍脈”是傳說，還是天意
-`2020-09-16 17:09 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/362048/)
+## 美國宣布對在柬埔寨從事腐敗活動的中國國有實體進行製裁 (2020.09.15)
+`2020-09-16 19:27 GM80` [轉載自GNews](https://gnews.org/zh-hant/362217/)
 
-喜馬拉雅聯盟加拿大農場 YUAN
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16170854/%E5%9B%BE%E7%89%872-57.jpg)
-眾所周知，文貴在中國大地建有兩座著名的建築，一個是河南的裕達，一個是北京的盤古。文貴說：“ 在河南造樓時叫裕達，就是取欲速則不達之意，君子報仇，三十年不晚，先讓自己強大；北京叫盤古，乃是盤古開天地之意，立志要把善惡真假顛倒的混沌世界開出天青地泰，一片清明。“
+美國依據第13818號行政命令（E.O.），對一個中華人民共和國（PRC）的國有企業: 優聯發展集團有限公司 (UDG) 實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16191636/20200915-Sanction.png)圖源：https://n.sinaimg.cn/translate/783/w1920h1263/20181119/fAV0-hnyuqhi3348498.jpg 
+[閱讀英文原文](https://www.state.gov/the-united-states-sanctions-chinese-state-owned-entity-for-its-role-in-corruption-in-cambodia/)
 
-文貴先生1989年立下志向滅共，之後的人生便一步步向目標邁進，裕達和盤古，不僅是他獻給人們的兩大經典建築，更是他滅共進程中兩大標誌。正如他的描述：“欲速則不達，翅膀基本長硬了，我就要在龍脈上把糊塗的變清楚，開天闢地！“
+China is the world’s largest emitter of environmental pollution including of greenhouse gases and the exploitation of natural resources around the globe.  Today, the United States again took action by imposing sanctions on the People’s Republic of China (PRC) state-owned Union Development Group, Ltd. (UDG) under Executive Order (E.O.) 13818, which builds upon and implements the Global Magnitsky Human Rights Accountability Act, for its role in corrupt activities in Cambodia.
 
-於是，盤古與“龍脈”便有了很多傳說。的確，風水龍脈的神秘玄奧，對普通人來說，是望塵莫及的。甚至，在現代科技文化為主流教育的今天，很多人對中國傳統文化中的易經玄學抱以“迷信”和“愚昧”的看法。不過，普通老百姓如何看待風水龍脈並不重要，重要的是“盜國賊”們特別看重就夠了。不僅CCP極權統治者們特別重視，歷朝歷代帝王皇室都極其重視，簡直把“龍脈”視為命根，當作秉承天命，執掌天下，奴役百姓的“上方寶劍”。由此，他們千方百計佔有“龍脈”，鞏固江山才有了底氣。
+中國是世界上最大的環境污染排放國，其污染包括了溫室氣體以及在全球範圍開採自然資源帶來的污染。 今天，美國再次採取行動，依據第13818號行政命令（E.O.），對中華人民共和國（PRC）的國有企業-優聯發展集團有限公司 (UDG)-實施制裁，該行政命令的構建和實施基於全球馬格尼茨基人權責任法案，針對該公司在柬埔寨從事腐敗活動的事實。
 
-晉代郭璞著有《葬經》一書，堪稱中國風水文化之宗。漢帝劉邦智囊張良也寫了一本風水著作《赤霆經》，還記載了一個“尋龍”故事。說是有個人，特別擅長潛水摸魚，所以得了個外號叫“下得水”。有天，他遇到一個“尋龍”的劉風水師。劉風水師發現了龍脈，便徇著山脈而來，千辛萬苦終於找到“龍穴”，卻發現在深潭之下。他不會水性，正在焦急無助時，潭里竟冒出一個人頭來。原來是“下得水”正潛水摸到魚露出頭來。劉風水師立即請他幫忙，潛到水下找“龍穴”，並描繪其形狀，像兩個犀牛角和一個犀牛口，故稱“犀牛穴”。下得水到水下一看，果然有此龍穴，劉風水師便說咱們一起把祖宗骨灰放進去，共享。於是，兩人分頭回家取祖先骨灰，劉家用布包著骨灰，而下得水太窮，扯了菜葉包了骨灰。他潛到水下後，將自家菜葉骨灰扔進犀牛口，哪知牛口吞下菜葉包後即刻關閉了。他只得潛上水面告訴劉風水師，劉也無奈，只得讓他再到水下把布包骨灰掛在牛角上。安頓好骨灰後，風水師要講話稱為“一語成齏”。劉風水師見下得水一游上來，就說：“口出和尚，角出相”。下得水一聽惱怒萬分，威脅劉說要下水把他祖先的骨灰布包取上來……劉只得補了一句“朱家天子劉家相”。這個下得水就是朱元璋的祖父，劉風水師是劉伯溫的祖父。
+Today’s action demonstrates how the Chinese Communist Party coopts companies to expand its influence, including by working through corrupt officials to use military force against innocent people in a blatant attempt to secure illicit financial gains.  There are credible reports that the coastal development project at Dara Sakor could be used to host PRC military assets, and if so would go against Cambodia’s Constitution and could threaten Indo-Pacific stability, possibly impacting Cambodia’s sovereignty and the security of our allies.
 
-果真，後來朱元璋先做和尚後做皇帝，建立了明朝，劉伯溫為其丞相。哪知，這個撿了便宜得了“龍脈”蔭蔽做了草根皇帝的朱元璋，登基後就跟“龍脈”較上了勁。他害怕別人也像他家一樣撿漏得了“龍脈”，造反奪了他朱家江山，便命令精通風水的劉伯溫四處尋龍脈並斬段龍脈，以防後患。這樣的風水龍脈典故在帝王朝代中流傳頗多，聽起來不免啼笑皆非。但是極權統治者們深信不疑，CCP貴權們也不例外。
+今天的行動印證了中國共產黨是如何通過收買當地公司以擴大其影響力，包括通過與腐敗官員合作來對無辜民眾使用武力，公然試圖獲取非法經濟利益。可信的報告表明，七星海 (Dara Sakor) 的沿海開發專案可能被用於託管中國的軍事資產，此種做法會違反柬埔寨的憲法，並可能給印度洋-太平洋地區的穩定帶來威脅，可能會影響到柬埔寨的主權和我們盟友的安全。
 
-CCP土匪出生，搶到政權後，進駐“中南坑”，那也是衝著好風水去的。北京城是龍盤虎踞之寶地，從元朝開始建都歷經元明清一直到當代，歷時八百餘年古都。尤其是近年來發現，北京城的風水佈局更為玄妙，是雙龍戲珠佈局結構。一條土龍在中軸線，也就是皇宮建築群所在，綿延十五里，乃世界之最，體現了洛書的方位常數十五之數。這條中軸線從古到今都被人們稱為龍脈。另外還有一條水龍，以南海為龍頭，湖心島為龍眼，中南海和北海構成龍身，什剎海是龍尾，擺向西北方向。民國時期，國民黨開放中南海為公園。可CCP搶奪政權後，佔據中南海，據說毛賊東的菊香屋就在水龍上，得了龍氣。當然後面繼任的“坑主”們，也是住處極盡講究，巴不得多沾點龍氣，好有底氣奴役14億老百姓。
+The government of Cambodia granted UDG a 99-year lease in 2008 for the development of the Dara Sakor project on a site that encompasses almost 20 percent of the country’s coastline. UDG was founded as a wholly-owned PRC corporation, but became a Cambodian enterprise in order to receive the lease for nearly 90,000 acres of land.  The company then went back to being PRC-owned after acquisition of the lease and resulting land.
 
-CCP自以為是，佔據龍脈之後，決定保護“龍脈”的手段一定要比朱元璋青出於藍更甚於藍。於是，他們直接破壞中國傳統文化，將風水龍脈之說冠上“封建迷信”，企圖將“龍脈”從人們思想意識中抹去。其實風水就是“用神”，所謂風水寶地就是天地陰蔽之處，神佛保佑之地。 CCP割斷傳統文化，就是想讓老百姓不再敬仰天地，信仰神佛，但他們自己深信不疑，以便獨得天地庇佑，永享龍脈，江山代代傳。可是，人算不如天算，朱元璋的大明朝後來被清朝取代；而CCP的統治也將被新中國聯邦取代，因為中華大地降生了破壞其“龍脈”的郭文貴先生。更確切地說，是天要滅中共，中共不得不滅。何以見得，略舉以下三例。
+柬埔寨政府於2008年授予優聯發展集團有限公司一份99年的租賃合約，用於開發七星海專案，該專案覆蓋了柬埔寨近20%的海岸線。優聯發展集團有限公司本是中國國有企業，但為了獲得近9萬英畝土地的租賃權，它變成了一家柬埔寨企業。在取得租約和相應的土地後，該公司又恢復為中國國有企業性質。
 
-文貴先生幼年時，有一次家中遷墳，算命先生告訴了一個有關他的天機秘密。他說：“這個孩子富貴至極，將來會改變國家命運，不僅富可敵國，而且可居一國之王位………”顯而易見，按照CCP信奉的風水寶典，文貴這樣高大上未來的人，也是得了“龍脈”之人，也是秉承天命之人。不過他的降生是要滅共的，這是天意！
+In conjunction with a former Cambodian Army official, the Cambodian military cleared the leased land by force using violent tactics. Then Royal Cambodian Armed Forces chief of staff, Kun Kim (Kim), reaped significant financial benefit from this relationship with UDG.  Kim was previously designated by the United States for his role in corruption under the Global Magnitsky sanctions program in December 2019.  The land in question is also considered part of Botum Sakor National Park, a protected natural area.
 
-後來，文貴長大了，建造了盤古，他遇到了一樁奇事。文貴說：“有一天我夢見了過世的大伯，他說’孩子你也不好好看看盤古對面那個亮的地方，你從小就信佛，你知道跟佛有什麼關係嗎？’非常清楚！我醒來後用google earth 一量，發現了三個秘密！現在我還不能說。把我給嚇懵了“！他又繼續說道：”我突然回想起2001年底盤古大觀動工挖出來的兩隻蛇，一黑一白，其中一個讓當時施工隊的人打死了，結果清土時車折過去了，把他給弄死了，保佑他啊！我知道後，另外一個蛇放生到香山臥佛寺“。 “2009年時，這個蛇竟然真的回到了我們盤古大觀，爬到了我住的一個院的門上面，都有錄像。他們跟我說以後，我說千萬別打死它，從樓上跑下去，然後他就弄個小筐把它給弄下來，大家都給它磕頭，有錄像。用我們酒店的小籃子，開車又送回到香山給放生。你說神不神吧？”據有關風水大師解釋，盤古是建在龍穴處，兩條蛇是守龍穴的，分別代表土龍和水龍。盤古一建，土龍已死，水龍已走，“中南坑”龍氣殆盡也。這又豈不是天意！
+柬埔寨軍方與一名前柬埔寨軍官合作，使用暴力手段強行清理租賃的土地。時任柬埔寨皇家武裝部隊參謀長的金昆 (Kim) 從與優聯發展集團有限公司的交易中攫取了巨額經濟利益。 此前，Kim已經因其腐敗行為，於2019年12月被美國依據全球馬格尼茨基制裁專案予以制裁。 該片爭議土地同時被認為是波洞沙果 (Botum Sakor) 國家公園的一部分，屬於自然保護區。
 
-當然，“中南坑”裡聽說盤古破了龍脈，相當於毀了紅色江山根基，斷了他們命根，急忙找來風水大師破局。於是建了一個觀光塔，由5個高低不等、獨立的塔組成，形似5顆矗立的釘子，欲把盤古龍釘住。哪知，有易經大師對文貴先生說，塔建成之時，便是盤古龍與水龍交配之時，盤古龍就騰飛了。 2020年，盤古龍真正發力之時，CCP就完。果不其然，釘子塔建成第二天，文貴先生被迫逃離中國，流亡國外，之後便開始了滅共之路。大家有目共睹，文貴先生2015年開始與美國FBI合作，揭露CCP罪惡，獲得美國定海神針力量對滅共的支持。從2017年起，文貴走到台前，從爆料開始喚醒全世界認清中共邪惡。 2020年建立新中國聯邦，建立G系列，已喚醒了全世界，以美滅共，以共滅共，全球滅共到了最後決戰時刻，CCP真的完了！
+The United States stands with the Cambodian people and calls on the world to join us in condemning corruption and environmental degradation.
 
-風水的確有些道理和用處，可是CCP佔盡天下資源和人才也保不住“龍脈”與江山，是因為一切之上有善惡的審判。大惡者天必滅之，CCP這種反人類的犯罪集團，無論多麼強大，必被清除！而大善者天助之，文貴一心幫助14億同胞實現民主、自由、法治和信仰，自然得到天助和人助，哪怕草根出生，僅憑一己之力，也能推動起這場轟轟烈烈的滅共事業，取得勝利！
+美國與柬埔寨人民站在一起，並呼籲全世界加入我們，共同譴責腐敗和導致環境惡化的行為。
 
-參考鏈接：https://www.youtube.com/watch?v=ENxdnTTO9j4&feature=share
+For more information regarding this action, please see the press release issued today by the Department of the Treasury: [https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
+
+有關這一行動的更多資訊，請參見財政部今天發佈的新聞稿：[https://home.treasury.gov/news/press-releases/sm1121](https://home.treasury.gov/news/press-releases/sm1121)
+
+*翻譯：【jamie(文胤)】校對：【Rock小哥】編輯：【Michelle】【JoyJoy】*
+
+*戰友之家玫瑰園小隊出品*
 
 0

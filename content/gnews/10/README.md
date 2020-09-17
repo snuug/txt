@@ -1,117 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《Take Down the CCP》歌詞（下載版）
-`2020-09-16 17:34 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/362114/)
+## 农民的孩子见证中共怎样剥削和压迫农民
+`2020-09-16 21:02 天涯客` [轉載自GNews](https://gnews.org/zh-hant/362354/)
 
-[下載圖片](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165526/Take_Down_the_CCP_Lyrics-VOG-scaled.jpg)
+作者：心虹
 
-[下載PDF](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165439/Take_Down_the_CCP_Lyrics-VOG.pdf)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16165526/Take_Down_the_CCP_Lyrics-VOG-scaled.jpg)
-**Take Down the CCP**
+“翻身农奴把歌唱”这句话骗惨了中国的亿万农民。我们什么时候翻身过？一个充满欺骗、贪婪和阴谋的土地所有制绑架并挖空了所有农民。农民表面上拥有使用土地的绝对权力，但实际上在这个魔鬼横行的共产极权国家，一切都是他们的，都是他们赚钱的工具。下面我就从一个农民的孩子的角度和大家分享一下这里面的事情。
 
-From the Album Take Down the CCP
+我家承包的土地大概有20亩，先按照每亩地的支出费用计算，分为必要支出（买种子，化肥，农药，收割等费用）和大队费用（地租，水费，村长工资，抗韩排涝费，零工费）。必要支出是每亩地600元，大队费用中每亩地地租100元，水费150元，村长工资10元，抗韩排涝120元，零工费120元，共计500元。而每亩地产出的水稻安照多的算，能够产出1400斤，每斤按照前两年多的每斤1.5元计算（现在才1.3元），每亩地收入是2100。减去这两项支出，每亩地就只剩下1000元。我家二十亩地，总共一年到头只剩下两万元。这就是现在中国农民的一年的收入水平，省吃俭用，这么干二十年能在城市买个房子就不错了，还不能生病。一场大病这些钱都不够用的。
 
-Miles Guo
+前面说到大队费用里面有一堆莫名其妙的费用，咱们来一条条看。地租费用100。我家有20亩地就是2000元，我们所在的整个张家分场共有8000亩地，那么只有地租这一项收入就是80万；水费每亩地150元，共收入120万；村长工资每亩地10元，共收入8万；抗旱排涝费每亩地120元，共收入96万；零工费每亩地120元，共收入96万，全部加起来是410万。
 
-G-Music
+这些钱都是农民辛辛苦苦挣来的汗水钱啊，张家分场的那几个工作人员的工资能有多少？剩下的钱哪去了？地租不说了，用人家地，咱们认给。村长为咱们服务，也认给。水费不就是中国境内的水吗，你凭什么要钱？就是因为你是魔鬼社会主义，什么必要资源都是你的？还有剩下的两个抗旱排涝和零工费，这两项简直莫名其妙，我们家这里哪有洪水？今年是旱年，它们收着水费，也没看它们想办法给农民弄水源。零工费收着那么多，到时候犁地和平地的钱都得农民自己出。后面这两项就是找一个收费的由头，从农民手里抢钱。
 
-Take down the CCP!
+农民都是很朴素的，没有那么多思想，就只想踏踏实实的过日子，但你中共和你的所谓工作人员不能拿我们当傻子啊！现在就是农民有怨恨也没地方去说理，官官相护，因为那些都是他们魔鬼的利益。还有，农民都不懂得投资，挣的钱基本上都存进了中共的银行。辛辛苦苦挣点钱都赶不上通货膨胀和房价上涨的速度。农民虽然不能发声，但他们知道什么是好，什么是坏，魔鬼的本质早晚会暴露。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/16204455/Capture-23.jpg)
 
-Take down the CCP!
-
-Follow me and ima set us free
-
-Take down the CCP!
-
-Let me tell you what I’ve been through baby
-
-Lived a life that was hella unfair
-
-Seen things that been driving me crazy
-
-In a country where the leaders don’t care
-
-Didn’t think we had the courage to change it?
-
-Tore it down and they weren’t prepared
-
-Everything that they kept us from saying
-
-Now we’re talking and they better be scared
-
-Take and take and take from us
-
-Tell us what and who to love
-
-Swear I finally had enough
-
-It’s time to rise above
-
-Take down the CCP!
-
-Take down the CCP!
-
-Follow me and ima set us free
-
-Take down the CCP!
-
-I said take down the CCP!
-
-Take down the CCP!
-
-Communism’s dead to me because it killed our families
-
-F\*\*k the CCP
-
-Communism sucks, hard for me to give a f\*\*k
-
-Tried to tell ’em and they try to keep it on the hush
-
-Middle finger up, turn into a fist
-
-They wanna keep the poor poor so they never rich
-
-If you wanna see the future look into the past
-
-Been a century of silence we gonna take it back
-
-I’m just stating facts, tell you how it is
-
-Ain’t no way to change shit if we don’t resist
-
-Take and take and take from us
-
-Tell us what and who to love
-
-Swear I finally had enough
-
-It’s time to rise above
-
-Take down the CCP!
-
-Take down the CCP!
-
-Follow me and ima set us free
-
-Take down the CCP!
-
-I said take down the CCP!
-
-Take down the CCP!
-
-Communism’s dead to me because it killed our families
-
-F\*\*k the CCP!
-
-聽寫 & 翻譯：【noraTina】校對：【Dlrow】設計：【VOG文宣】編輯：【Michelle】【GM31】
-
-戰友之家玫瑰園小隊出品
-
-相關新聞：
-
-[郭先生傾情獻聲《Take Down the CCP》隆重登陸美國各大音樂類App，戰友們打Call的機會來了！](https://gnews.org/zh-hant/341647/)
-
-[【快訊】《Take Down the CCP》美東時間9月10日晨強勢登上美國iTunes即時下載榜冠軍寶座！](https://gnews.org/zh-hant/345925/)
 
 0
