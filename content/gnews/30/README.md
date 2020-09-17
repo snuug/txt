@@ -1,45 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 现代自由主义和古典自由主义
-`2020-09-17 10:07 GM42` [轉載自GNews](https://gnews.org/zh-hant/363689/)
+## 《The Klaxon》雜誌的總編輯分享中共國武漢實驗室在巴基斯坦開展“秘密行動”的詳細資訊
+`2020-09-17 11:03 GM31` [轉載自GNews](https://gnews.org/zh-hant/363897/)
 
-作者：三木真黒ホーム
+《The Klaxon》雜誌的一份報告引述多個情報來源的話說，巴基斯坦和中共國已經簽署了一項為期三年的秘密協議，以擴大潛在的生物戰的能力，包括開展與致命的炭疽相關的多個研究項目。《The Klaxon》雜誌的總編輯說，這些實驗令人極其憂慮，它們揭露了中共國與巴基斯坦軍方之間的聯繫。
 
-今天西方社會通常說的自由主義更準確的說應該昰現代自由主義，這個和古典自由主義其實在政治光譜昰兩個極端，這也是大家怎麼理解「自由」這個詞的差異產生的。最近因為美國「黑命貴」運動引發的一繫列問題，讓不少人重新思考什麽是「自由」，我們享受的「自由」是不是理所當然的呢？「自由」的邊界又在哪呢？！這個話題其實我想寫了有一段時間，就是抽不出時間好好寫一下我的思考，今天終於靜下心來寫一篇吧。
+注：該報告的一些內容過於驚悚，請以英文原文為准，中文翻譯僅供參考。
 
-這裏首先開始講的昰「自由」，自由一詞西方和東方的理解最早就有很大的歧義，東方尤其昰國人理解的「自由」屬於一種放任不受控制的行為，宋朝王安石有首白話詩：「風吹瓦墮屋，正打破我頭。瓦亦自破碎，豈但我血流。我終不嗔渠，此瓦不自由」。這首詩說的昰風吹屋頂瓦掉下來，砸到我頭破流血，但是我不怪責瓦片，因為這塊瓦不自由，這裏帶出了自由的意義就是能自己控制自主的行為，所以不自由就是不能自己控制自己行為的一種表現。《東周列國志》中宣王斥責臣下曰:“怠棄朕命,行止自繇(由),如此不忠之臣,要他何用!”晉武帝司馬炎下詔指責王浚“忽棄明制,專擅自由”。在這兩個例子中,“自由”(自繇)都具貶義色彩。秦漢以後,“自由”概念的貶義化日益凸顯。自由常常被視為散漫放縱、為所欲為、擾亂秩序等等。這個和現代國人理解自由的定義相差不大，今天很多國人還是認為自由就是想做什麽就做什麼這種概念。可以說東方的自由一直昰秉持着差別不大的意義。哪西方對自由的定義又是什麼呢？
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17095648/ff231aa2dd50ceaaee51b.png)圖：《論自由》約翰·斯圖爾特·密爾
-西方對自由其實一直有爭議，從哲學概念到經濟概念，其實有很多不同的爭議，比較出名的就是來自英國哲學家約翰·斯圖爾特·密爾出版於1859年的一本功利自由主義哲學著作《論自由》其中定義了自由就是基於「最大幸福原則」此外他還提出的基於個人自由之道德準則包括：出版自由、思想自由，以及討論自由。除此之外，密爾在總結中還提出了還兩條針對個人與社會關係的格言，以及在不涉及個人自由情況下，反對政府干涉三條的合乎功利的理由。這個可能曾經是西方最主流的關於自由的定義了。
+**Anthony Klan shares details on China’s Wuhan lab operating ‘covert operations’ in Pakistan**
 
-哪什麽是「現代自由主義」什麼昰「古典自由主義」呢？先說說「古典自由主義」吧，既然稱得上古典，就說明這種自由主義的定義存在更久，哪什麼昰「古典自由主義」呢？簡單來說，就是早期的自由主義，從啟蒙時代開始直到約翰·斯圖爾特·密爾為止的自由主義。「古典自由主義」是一種支持個人先於國家存在的政治哲學，強調個人的權利、私有財產，並主張自由放任的經濟政策，認為政府存在的目的僅在於保護每個個體的自由，可以說昰小政府大社會的概念。哪「現代自由主義」又昰什麼呢？「現代自由主義」又有另外一個名稱，叫「社會自由主義」顧名思義，「現代自由主義」更偏向社會主義，在十九世紀末和二十世紀初的英國，一群被稱為「社會自由主義者」的思想家提出反對自由放任的古典自由主義的主張，主張國家干預社會，經濟和文化生活，將個人自由視為只​​有在有利的社會環境下才能實現的自由，屬於中間偏左的政治思想。在羅斯福新政之後，其新政思想結合更早以前的帶社會主義色彩的自由主義，在後來體系化後，即成為社會自由主義。二戰後社會自由主義運動常與和工人階級、工會運動聯繫在一起，典型的就是女權，平權，工會，都是屬於這類。
+**安東尼·克蘭（Anthony Klan）分享了中（共）國武漢實驗室在巴基斯坦開展“秘密行動”的詳細資訊**
 
-大致上的介紹說完了，哪這些自由其實體現在哪呢？之前我也寫過一篇文章，「我解讀的個人自由」昰寫個人為什麼能體會到自由，今天說說今天西方主流社會兩種「自由」的差別，從上面的定義來看，古典自由主義崇尚小政府大社會，放任經濟，保護個人自由優先於集體，而現代自由主義就推崇大政府小社會，保護弱勢集體，那到底在裏面價值觀的區別又在哪呢？！
+*Pakistan and China have entered a secret three-year deal to expand potential bio-warfare capabilities, including running several research projects related to the deadly agent anthrax, a report by The Klaxon said, quoting multiple intelligence sources. Speaking to India Today from Sydney, the Editor-in-Chief of The Klaxon, Anthony Klan, said that the experiments were a serious ‘concern’ and exposed the nexus between China and the Pakistani military.*
 
-在20世紀下半葉，以賽亞·伯林開始用「兩種自由」的概念來劃分自由：「消極自由」和「積極自由」（我之前文章曾經用「被動自由」和「主動自由」），這就昰兩種自由的價值觀區別，哪什麼昰「消極自由」呢，就是一種被動的行為的自由，像昰不喜歡的自由，這裏包括表達不喜歡言論的自由，因為不喜歡屬於思想自由的層面，那出版自由，言論自由，甚至討論自由都屬於思想的自由，也是「消極自由」，那「積極自由」呢，簡單說，就是想做什麼就做什麼的自由，有支配自己行為的自由。當然這裏不應該包括犯法的自由。更準確的說昰不傷害他人自由的自由。這兩種自由其實正正體現在「古典自由主義」和「現代自由主義」，近代世界有個價值觀，就是平權，平權昰什麼，當然來自權利不公平產生的問題，哪什麼引發權利不公平呢？當然昰來自結構性的問題，例如法律的不公平，造成弱勢群體爭取平權，典型就是美國黑人平權，女權平權，同性戀平權和少數族裔平權等等，那平權如果來自制度的不公平，當然需要平權，那如果不是來自制度的不公平，個人有沒有權利不喜歡某些族群呢？！那就是一個一直爭執不休的問題，就是保護個人自由重要還是保護那些少數族群不被歧視重要的問題了。
+《The Klaxon》雜誌的一份報告引述多個情報來源的話說，巴基斯坦和中(共)國已經簽署了一項為期三年的秘密協議，以擴大潛在的生物戰能力，包括開展與致命的炭疽相關的多個研究項目。 《The Klaxon》雜誌的總編輯Anthony Klan在悉尼對《今日印度》說，這些實驗令人極其憂慮，它們揭露了中（共）國與巴基斯坦軍方之間的聯繫。
 
-今天西方左派思維就是大政府小社會，所以會利用公權力保護少數族群，本來從想達到的結果來看昰出於好意，但是往往昰事與願違，首先，維護少數族群的權力，是不是來自公平的制度呢？如果保護某些人的權利而侵犯了其他人的自由，那這種保護優先還是個人自由優先呢？！這裏就要說到「消極自由」和「積極自由」了，因為消極自由並不形成積極的行為，所以消極自由應該全面保護，也就是屬於思想自由層面，一個人的思想昰不可能也不應該被外部左右的，那「不喜歡」是不是應該也受到保護呢？曾經有一句話說：「沒有批評的自由，則讚美毫無意義」那沒有不喜歡的自由，喜歡也一樣毫無意義了。而且喜歡不喜歡很多包括了個人自由意志，就像美醜一樣，很個人的觀點，沒有一個可以衡量的標準，那喜歡肥的瘦的也是個人喜好，強逼別人不許「不喜歡」算不算昰思想控制呢？那如果政府利用公權力保護少數族群不許其他人「不喜歡」這個族群，是不是侵犯人權呢？
+Pakistan and China have entered a secret three-year deal to expand potential bio-warfare capabilities, including running several research projects related to the deadly agent anthrax, a report by The Klaxon said, quoting multiple intelligence sources.
 
-真正的保護其實來自維護社會的「公平」，那利用族群的差異產生的矛盾，制定法律保護某些族群，何來體現「公平」呢？！本來平權來自公平，不是來自平等，人本來就不存在平等，除非想實現共產主義，而現實上，共產主義其實也不能實現平等，這個也是西方共產主義走到今天已經被遺棄的原因，但是共產主義雖然被遺棄，但是左派還是換瓶不換酒，利用現代自由主義的馬甲重新復活了，因為本來平權昰解決結構性的不公平造成的，也就是法律上不公平的問題，但是廢除了不公平法律之後，平權就會要求越來越多，也就是說從廢除不公平的法律，到制定新的法律保護自己，那就昰從一個不公平走向另外一個不公平，這就是左派利用少數族群爭取權力，讓自己獲得更多政治利益而破壞了制度性平衡，造成一個社會不公平產生的不穩定。這就是今天美國為什麼會發生「黑命貴」問題的原因。
+《The Klaxon》雜誌的一份報告引述多個情報來源的話說，巴基斯坦和中（共）國已經簽署了一項為期三年的秘密協議，以擴大潛在的生物戰能力，包括開展與致命的炭疽相關的多個研究項目。
 
-當年曾經有個蘇聯冷戰時期的笑話，說一個蘇聯科學家準備移民美國，臨走之前領導找他談話，想瞭解一下為什麼他移民美國，領導問他說：你是不是有什麽對國家不滿意呢？科學家說，沒有，非常滿意，領導又問，這麽滿意為什麼還要去美國？科學家答到，因為美國可以讓我不滿意。這個笑話我經常說，其實就是代表了曾經的美國對自由的價值觀，因為這裏正正體現了「消極自由」，一個人不能有自己的「消極自由」那還算有自由嘛？！而「古典自由主義」的核心就是出版自由、思想自由，以及討論自由，其實簡單的說，就是保護「消極自由」「被動自由」「不作為的自由」因為這些都是思想自由的一部分。而共產主義其實就是因為消滅了思想自由，所以在西方社會被主流遺棄，但是今天的左派，其實也在慢慢侵蝕「消極自由」，美其名「反對歧視」，其實昰把歧視上升到道德層面，剝奪了人的「不喜歡」的自由，縱容社會底層侵蝕「消極自由」最終社會會因為不能表達「不喜歡」而形成逆向淘汰，最終昰社會倒退。這也是為什麼會發生「黑命貴」這種反智現象，你可能從來不會想象到美國會發生這種事，但是事實上的確發生了。
+**CHINA-PAK MILITARY NEXUS**
 
-其實「消極自由」存在積極作用，我們看見的所謂「歧視」其實昰來自不同階級產生的差異，而不喜歡被歧視的感受其實昰一種推動自己向上的動力，而這種動力其實也是人類發展的動力，人類依靠自己的努力跨越階級的界限，本身就昰一種原始的動力，而人類出生就不存在平等，甚至起跑線都不一樣，但是至少在一個遊戲規則公平的環境，這種不平等昰可以忽略的，就像一場運動會，黑人白人各自有自己的優勢，遊戲規則不會因為人種膚色改變，最多昰在性別和體重分類，這也是可以維護最公平的遊戲規則了，那運動會只有一個勝利者，也是叢林法則，但是你可以因為自己比較弱而要求更多有利自己的規則嘛？試想想一場人人都能贏的比賽能持續下去還是一場公平但是只有一個人能贏的比賽能持續下去呢？就像奧運會，很多人參與都明知道自己不可能贏，但是都把參與視為一種榮耀，因為這是靠自己努力爭取的，而有機會參與已經昰一種光榮，那如果奧運會昰人人都能贏的比賽，或者可以用藥讓自己勝利的比賽，你覺得參與還有榮耀嘛？！
+**中巴軍事聯繫**
 
-所以除非比賽規則不公平，不然參加者不可能人人平等，但是不影響參加者感覺自卑，因為參與一場公平的競技比起人人平等的獲得獎勵更有意義。這也是人類賴以生存的自然法則，因為一個公平的社會，本身歧視對社會的影響力很小，因為歧視本身就存在在不同階級之間，超級富豪會歧視普通富豪，普通富豪會歧視中產階級，中產階級也會歧視底層階級，這是不可避免的，但是有沒有法律保護歧視鏈中間的人呢，你如果昰普通富豪，被超級富豪歧視有沒有法律保護呢？肯定沒有，那為什麼歧視鏈最底層的就需要特別保護呢？一個公平的制度對他們的保護不夠嘛？！當然我不贊成歧視，但是純粹因為膚色性別種族而歧視的人其實在社會佔的比例很少，大部分人「不喜歡」昰來自個體行為，而一個族群大部分存在這種行為，昰很容易被人整體「不喜歡」的，但是最根源的原因也不是源自於膚色種族，最終還是來自整體行為給人的觀感。
+Speaking to India Today from Sydney, the Editor-in-Chief of The Klaxon, Anthony Klan, said that the experiments were a serious “concern” and exposed the nexus between China and the Pakistani military.
 
-我曾經寫過一篇關於西方左右派價值觀的文章，「左右價值觀的不同」我看來左派昰追求結果正義，右派追求的昰程序正義，其實維護一個公平的遊戲規則本身就是維護程序正義，這裏的程序正義昰泛指自然法則的程序，所以維護一個社會法律公平也是程序正義的一部分，而結果正義本身就是不惜破壞法律的公平性而追求結果正義，也就是像平權法案這種對於劣勢族群的不平等待遇，這種待遇可能昰從以前的劣勢到現在的優勢，從一個極端走向另外一個極端，而這種不公平其實還存在，甚至更加激化了歧視問題。我們普遍認為的歧視昰政策劣勢，其實政策優勢同樣昰歧視，因為最終制度公平的社會，歧視不會造成社會問題激化，因為被歧視或者歧視的人群體其實會自我平衡，甚至超越公平的歧視行為，也不需要歧視法律，因為其他法律也可以保護這些族群，而制度性的不公平才昰讓社會產生問題，甚至激化社會問題的根源。
+《The Klaxon》雜誌的總編輯Anthony Klan在悉尼對《今日印度》說，這些實驗令人極其憂慮，它們揭露了中（共）國與巴基斯坦軍方之間的聯繫。
 
-今天的現代自由主義，其實就是換了馬甲的社會主義，其實本質上昰對真正自由的傷害，也就是打著自由反自由，如果真正的自由主義追求者，其實更應該捍衛自己的「消極自由」。當然消極自由不可能讓所有人滿意，甚至不可能保障達到結果正義，但是如果沒有消極自由，那整個西方價值觀就不存在了，改革需要符合程序正義，而不是追求結果正義，因為歷史證明，任何追求結果正義的人，最終都變成了魔鬼，這個世界本身就會自我平衡，所以當極左橫行的時候，這也就是極右的土壤，所以如果你不喜歡川普的右，那就問問誰讓極左橫行，讓右派有這種土壤吧。
+“There have been experiments carried out since 2015 with five different high level pathogens. The studies are being conducted in Pakistan. A lot of the Wuhan Institute of Virology scientists are working on Pakistan soil with Pakistan’s defence agencies which raises very serious concerns among the intelligence agencies,” said Anthony.
 
-要知道極權之下昰不可能有「消極自由」的，那追求「積極自由」的時候任由「消極自由」被侵蝕，最終的結果就是連最初爭取的「積極自由」也會喪失。因為當你沒有說「不」的自由的時候，你就不再可以擁有任何「自由」了。
+“自2015年以來，（中巴）已經針對五種不同的高水準病原體進行了實驗。 這些研究在巴基斯坦進行。 武漢病毒研究所的許多科學家正在與巴基斯坦的國防機構一起在巴基斯坦境內進行研究，這引起了情報機構的嚴重憂慮。” Anthony說。
 
-以上觀點僅代表筆者本人
+According to the report, China’s now infamous Wuhan Institute of Virology has signed the covert deal with Pakistan military’s Defence Science and Technology Organization (DESTO), to collaborate research in “emerging infectious diseases” and advance studies on the biological control of transmitted diseases.
 
-資料來源：三木真黒ホーム.blog
+根據這份報告，中（共）國臭名昭著的武漢病毒研究所已經與巴基斯坦軍方的國防科學技術組織（DESTO）簽署了秘密協定，合作開展“新型傳染病”的研究，並推進對傳播疾病生物控制的研究。
 
-[http://is.gd/uQ1Jvw](https://is.gd/uQ1Jvw)
+**ON PAK SOIL**
 
+**（在）巴國本土（的研究）**
 
+Despite fierce denial from Pakistan and China, there is enough proof according to the report that a lot of the research can be tied to Pakistan.
 
-0
+儘管巴基斯坦和中（共）國強烈否認，但根據該報告，有足夠的證據表明許多研究都可能與巴基斯坦有關。
+
+Proving that the research is being carried out on Pakistani soil, Anthony said, “It is interesting to know that within these five studies, Wuhan is mentioned, Chinese funding is mentioned and studies on Pakistani soil are mentioned, for e.g. blood serum from thousands of camels and other animals and also thousands of humans. It does not mention specifically where the lab work is done, but mentions several areas.”
+
+為證明研究正在巴基斯坦境內進行，Anthony說：“有趣的是，在這五項研究中，提到了武漢，提到了中（共）國的資助，也提到了在巴基斯坦境內的研究，例如來自數千隻駱駝和其他動物以及數千個人類的血清。 它沒有具體提到實驗工作的地點，但是提到了幾個區域。”
+
+“After we first reported this, the Pakistani government came out and said there is no secret about biosafety levels 3 labs which obviously confirmed that it was happening on Pakistani soil,” he added.
+
+他補充說：“在我們首次報導這件事之後，巴基斯坦政府出來說，三級生物安全水準的實驗室並沒有秘密，這顯然證實了在巴基斯坦境內確有此事。”
+
+**PAKISTANI GUINEA PIGS**
+
+**巴基斯坦的幾內亞豬**
+
+The findings of the report also suggest that the entire project is being done between the Chinese government and the Pakistani military which allows them to keep the locations a secret and the operations “covert”.
+
+該報告的調查結果還表明，整個專案是在中（共）國政府與巴基斯坦軍方之間完成的，這使他們能夠將地點保密，且（確保）行動 “隱蔽”。
+
+In fact, the report says that Pakistanis have been used for testing and have participated in the experiments. When asked how the news never got out and did the individuals who participated in such research in secret labs didn’t know, Anthony said, “I suspect not. I suspect that most of these studies have a rural sample size. Lot of them are herdsmen from remote areas. How much would they know of what they are involved in? These people wouldn’t know what the samples were for and what happens with the results of the studies that they have been privy to or have been involved in. It is a real scare. There are a lot of question marks.”
+
+實際上，該報告說，巴基斯坦人已被用於（實驗）測試，而且參與了實驗。 當被問及為何該消息從未走漏，以及在秘密實驗室中參與此類研究的人員是否不知情時，Anthony說：“我懷疑不是。 我懷疑這些研究大多數樣本量來自農村。 他們中很多是來自偏遠地區的牧民。 他們對所參與的事情會瞭解多少？ 這些人不會知道（從他們那兒提取的）樣本的用途，也不會知道他們知情或參與的那些研究的結果會被如何處理。這的確非常恐怖，存在許多問號。”
+
+On the sample size used, he said, “Around two thousand to two and a half thousand samples in each of the studies. Some of them were about five hundreds. Overall, there were about seven-eight thousand people and about 4,000-5,000 animals, predominantly camels or usually those that are domesticated or reared for consumption.”
+
+關於使用的樣本量，他說：“每個研究中大約有兩千至兩千五百個樣本。 其中一些大約五百個。 總體而言，大約有七八千人和大約4,000到5,000只動物，主要是駱駝，或者通常是馴化的或是用於食用的飼養動物。”
+
+**FUNDED BY CHINA**
+
+**由中（共）國資助**
+
+All the research projects are being funded by China under the auspices of the China-Pakistan Economic Corridor (CPEC) which falls within China’s Belt and Road Initiative, according to the report.
+
+該報告稱，所有研究專案均由中（共）國資助，受中（共）國“一帶一路” 倡議下的中巴經濟走廊（CPEC）專案的扶持。
+
+He said, “It is being done under the auspices of the economic corridor under the Belt and Road Initiative (BRI) and the US $63 billion fund… It is difficult to get an exact breakdown but the money for each of these studies, when we track, is tied to the BRI initiative in Pakistan. Almost all of it is funded by China so the Chinese Academy of Sciences and Institute of Virology. A lot of it is a part of the flagship BRI project.”
+
+他說：“這是在“一帶一路” 倡議（BRI）的經濟走廊專案以及630億美金的的扶持下完成的……要獲得確切的細目很困難，但是我們可以追蹤到，每項研究的資金都與巴基斯坦的BRI倡議密切相關。幾乎全部資金都是由中（共）國提供的，跟中科院和病毒研究所一樣。其中大部分（資金）是BRI旗艦項目的一部分。”
+
+**BIOLOGICAL WEAPONS**
+
+**生化武器**
+
+The biggest worry for the international community is the fact that this research with dangerous pathogens dates back to before the Covid-19 outbreak and the fact that Pakistan does not have the facilities for such viruses. Also, that this is a breeding ground for “biological weapons”.
+
+國際社會最大的擔憂是，這項對危險病原體的研究可以追溯到新冠病毒爆發之前，而巴基斯坦還沒有（防護）這種病毒的設施。 而且，這是“生化武器”的溫床。
+
+“You can use technology to wipe coronavirus etc., but it can also be weaponised very easily as has been the concern of many intelligence sources. This is happening on Pakistani soil, fully funded by China,” said Anthony Klan.
+
+“你可以使用技術去消滅新冠病毒等（病毒），但正像許多情報來源所關注的那樣，它也很容易被武器化。 這是在巴基斯坦境內發生的，完全由中（共）國出資。” Anthony Klan說。
+
+He added, “It is happening in laboratories that are not necessarily equipped to handle some of the viruses. We know that some of the pathogens are too dangerous for the facilities that Pakistan operates. BL3 (biosafety levels 3 labs) and BL4 are known to be the most secure. There is no known BL4 facility in Pakistan.”
+
+他補充說：“正在進行（研究項目的）這些實驗室不一定具備處理某些病毒的能力。 我們知道，某些病原體對於巴基斯坦運營的設施來說太危險了。 BL3（三級生物安全水準的實驗室）和BL4被認為是最安全的。 巴基斯坦沒有已知的BL4設施。”
+
+Intelligence sources, including from the Indian subcontinent, have told The Klaxon they have serious concerns about the secret project, which involves China testing biological agents outside its borders in an apparent bid to minimize the “risk of drawing condemnation from the international community”.
+
+包括印度次大陸在內的情報來源告訴《The Klaxon》雜誌 ，他們對秘密項目感到極其憂慮。該專案涉及中（共）國在其境外測試生物製劑，以期儘量減少“招致國際社會譴責的風險”。
+
+“DESTO has been engaged in various dual-use research projects related to anthrax under a covert biological weapons program,” one senior intelligence source said.
+
+一位資深的情報人士說：“根據秘密生化武器計畫，DESTO參與了與炭疽有關的各種雙重用途的研究專案。”
+
+According to another report by The Klaxon, the results of five studies conducted by Wuhan and Pakistani scientists have been published in scientific papers, each involving the “detection and characterisation” of “zoonotic pathogens”.
+
+根據《The Klaxon》雜誌的另一份報告，武漢和巴基斯坦科學家進行的五項研究的結果已經發表在科學論文上，每篇研究都涉及“動物病原體”的“檢測和表徵”。
+
+The studies involve experiments and genome sequencing of the West Nile Virus; MERS-Coronavirus; Crimean-Congo Hemorrhagic Fever Virus; the Thrombocytopenia Syndrome Virus; and the Chikungunya Virus.
+
+研究涉及西尼羅河病毒的實驗和基因組測序；中東呼吸綜合症冠狀病毒； 克裡米亞-剛果出血熱病毒； 血小板減少綜合症病毒； 以及基孔肯雅病毒。
+
+There is no vaccine or cure for any of those pathogens, which are among some of the world’s deadliest and most contagious.
+
+這些病原體都是世界上最致命、最具傳染性的，沒有疫苗或治癒方法。
+
+As revealed by The Klaxon, highly credible intelligence sources believe China, via its Wuhan Institute of Virology, is testing lethal biological agents in Pakistan and providing “extensive training on manipulation of pathogens and bio-informatics” to Pakistani scientists, which could “enrich a potential offensive biological programme”.
+
+正如《The Klaxon》雜誌透露的那樣，高度可信的情報人士認為，中（共）國正在通過其武漢病毒研究所在巴基斯坦測試致命的生物製劑，並向巴基斯坦科學家提供“操控病原體和生物資訊學的廣泛培訓”，這可能“豐富一個潛在的進攻性生物計畫”。
+
+It was revealed China’s Wuhan Institute of Virology had allegedly recently signed a secret three-year deal with Pakistan military’s DESTO to collaborate research in “emerging infectious diseases” and the “biological control of transmitted diseases”.
+
+據透露，中（共）國武漢病毒研究所最近與巴基斯坦軍方的DESTO簽署了一項為期三年的秘密協議，以合作開展“新型傳染病”和“傳染病的生物控制”研究。
+
+That Wuhan-Pakistan military tie-up had never been publicly announced or disclosed before, said the report.
+
+報告說，武漢與巴基斯坦的軍事合作從未被公開宣佈或披露過。
+
+Key concerns are that Pakistan could use the technology in bio-warfare, or that deadly pathogens could accidentally escape from inadequately equipped facilities.
+
+關鍵問題是巴基斯坦可能在生物戰中使用該技術，或者致命的病原體可能會意外地從裝備不足的設施中洩漏。
+
+Raising concerns regarding biological weaponisation and biological terrorism he said, “There are concerns and the most important threat is what if these viruses escape the laboratories accidentally, how much would the impact be. Secondly, is the weaponisation and potential future weaponisation of this technology. With the instability in Pakistan, the concern is real. China and Pakistan deny it, but the real danger is biological weaponisation and biological terrorism.”
+
+為引起人們對生化武器化和生物恐怖主義的關切，他說：“擔憂是存在的，然而最大的威脅是，如果這些病毒從實驗室意外洩漏，將會帶來多大的影響。 其次是這項技術的武器化和未來潛在的武器化。 由於巴基斯坦動盪的局勢，人們的擔憂是真實的。 儘管中（共）國和巴基斯坦否認這一點，但真正的危險是生化武器化和生物恐怖主義。”
+
+英文原文連結：[https://www.indiatoday.in/world/story/exclusive-anthony-klan-shares-details-on-china-s-wuhan-lab-operating-covert-operations-in-pakistan-1722198-2020-09-16](https://www.indiatoday.in/world/story/exclusive-anthony-klan-shares-details-on-china-s-wuhan-lab-operating-covert-operations-in-pakistan-1722198-2020-09-16)
+
+*翻譯：【石頭】校對：【雷鳴（文鳴）】*
+
+*戰友之家玫瑰園小隊出品*
+
+1
