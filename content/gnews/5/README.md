@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020年9月16日CCP冠狀病毒大流行第236集
-`2020-09-18 05:12 GM30` [轉載自GNews](https://gnews.org/zh-hant/365528/)
+## 每日政要Twitter播報（中文）09/18期（視頻+ PDF下載）
+`2020-09-18 08:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/365855/)
 
-中共銀行大懲戒，信用卡總逾期超900億；海航陳峰被限制高額消費；中共玩命抹黑闫麗夢；洪水過後，到處減産；內蒙古警察抓孩子去上學……
+撰稿記者：宠宝贝（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+
+[每日政要推文9-18](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18083638/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-18.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18083638/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-18.pdf)
 
 0

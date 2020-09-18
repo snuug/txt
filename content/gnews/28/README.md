@@ -1,21 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世界多語言圖文】2020/09/11 CCP病毒每日疫情直播簡報
-`2020-09-17 21:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/363265/)
+## 备战 10.1 罗马抗议游行
+`2020-09-18 05:00 喜意农场` [轉載自GNews](https://gnews.org/zh-hant/365478/)
 
-戰友之家圖文摘要及小語種組
+视频制作：Valerio
 
-[English\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)
+网络海报：文小小
 
-[French\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)
+编辑：文园
 
-[German\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)
+传播真相，备战10.1罗马抗议游行，意大利战友在行动！
 
-[Korean\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)
 
-[Russian\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)
 
-[Spanish\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)
+我们是谁，我们为什么要游行？
+
+我们是热爱民主自由法治的中国人，谢谢意大利给我们有一个发声的地方。我们要求中国共产党给我们病毒的真相。中国共产党不代表中国人民，中国人民也是中国共产党的受害者。我们要消灭中国共产党！
+
+**Chi siamo e****perch****é****facciamo la manifestazione?**
+
+Siamo un gruppo di cinesi dello Stato Federale della Nuova Cina che amano la democrazia, la libertà e lo stato di diritto. Grazie Italia per averci dato un posto in cui annunciare. Chiediamo al Partito Comunista Cinese di darci la verità sul virus. Il Partito Comunista Cinese non rappresenta il popolo cinese e il popolo cinese èin realtàvittima del Partito Comunista Cinese.Voliamo Eliminare il Partito Comunista Cinese!
+
+- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18044351/image0-3-5-scaled.jpg)
+
+
+**Eliminare il Partito Comunista Cinese!**
+
+Coronavirus, movimento di Hong Kong, legge sulla sicurezza nazionale, la minacce militari a Taiwan, programma BGY negli Stati Uniti (è globale) …Con l’esistenza del PCC, questi non si fermeranno.
+
+消灭中国共产党！
+
+冠状病毒，香港运动，国家安全法，对台湾的军事威胁，美国（全球）的BGY计划…伴随着中共的存在，这些不会停止，所以消灭中共是正义的需要。
+
+翻译：明天的彩虹
 
 0

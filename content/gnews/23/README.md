@@ -1,18 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （法French+English)閆博士9月15日福克斯Tucker Carlson Tonight採訪
-`2020-09-18 00:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/364985/)
+## FOX體育台經營不善年底撤台
+`2020-09-18 05:20 GM06` [轉載自GNews](https://gnews.org/zh-hant/365530/)
 
-法語標題 Un lanceur d’alerte sur le coronavirus parle de l’origine non-naturelle de la COVID-19 sur “ Tucker Carlson Tonight”
+作者：GM40
 
-英語一校：lxxy 英語二校：tiger64
 
-法語翻譯: Lully 法語校對：珠丝玛迹 視頻製作：珠丝玛迹 文菠萝
 
-視頻重點
-中國病毒學家閆麗夢博士在福克斯的新聞節目 “Tucker Carlson Tonight” 裡面宣稱，根據病毒基因序列，新冠病毒是在中共所發現和擁有的蝙蝠病毒基礎上製造的。新冠病毒能夠感染人類是因為武漢實驗室對其進行的某些改造。
+迪士尼集團旗下的FOX體育台3頻道傳出因連年虧損，年底前將撤出台灣 
 
-Virologue Dr. Yan sur &lt;&lt;Tucker&gt;&gt; a déclaré, sur la base de la séquence du génome, la Covid-19 est fabriqué à partir d’un virus de chauve-souris unique découvert et possédé par le PCC. Et elle vise les humains grâce à certaines modifications dans le laboratoire de Wuhan.
+ 據《鏡周刊》報導，迪士尼集團旗下的FOX體育台3頻道，包括FOX體育台、二台以及三台（MOD 211頻道），傳出因連年虧損，年底前將撤出台灣，同時整個亞太地區，也將放棄經營體育台。今日下午四點FOX頻道將進一步說明。
+
+ 不過據本報記者了解，4點實為內部會議、不會對外公開，媒體誤傳為要開說明會，待內部有結論後會正式對外公告。此外據內部員工透露，消息應該為真，但也是今早到辦公室時才收到通知。
+
+ FOX體育台原名為ESPN衛視體育台，起初隸屬美國迪士尼集團，於2012年7月由迪士尼將ESPN頻道所有股權售予福斯娛樂集團，隔年更名FOX體育台（FOX Sport）。2019年3月FOX體育台重返迪士尼，迪士尼集團該年回頭併購二十一世紀福斯大部分子公司，包括東南亞FOX體育台各頻道隸屬的福斯傳媒。
+
+ 迪士尼併購後逐漸整頓旗下虧損頻道。由於全球收視習慣轉至網路平台，目前旗下台灣所有的體育頻道幾乎虧損。每每都能炒熱話題的的HBL高中籃球聯賽，今年首度沒有體育台要競標轉播權。
+
+ 迪士尼今天傳出決定撤掉台灣FOX體育台3個頻道，亞太地區體育台經營同樣多年未獲利，因此可能整個亞太區FOX Sport、FOX Sports 2以及FOX Sports 3都將退出市場。至於詳細狀況，FOX頻道將於今天下午4點發表說明。
 
 0
