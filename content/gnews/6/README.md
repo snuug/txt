@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共新浪網替閆麗夢博士及班農先生打廣告
-`2020-09-17 18:39 GM62` [轉載自GNews](https://gnews.org/zh-hant/364570/)
+## 【世界多語言圖文】2020/09/11 CCP病毒每日疫情直播簡報
+`2020-09-17 21:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/363265/)
 
-作者 文靈 修改、校對：文蚁
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17185556/334A93B6-C02F-4E47-B895-02484AF077FB.jpeg)
-中共黨媒於9月17日在新浪（受控於中共的媒體）上刊登了閆麗夢博士關於CCP病毒（中共稱：新型冠狀病毒）的新聞，標題為：再次造謠！港大前僱員發論文稱新冠出自武漢研究所。
+戰友之家圖文摘要及小語種組
 
-該文章截至目前（大陸時間：9月18日0點點擊率為2.2萬），中共此舉無異於搬起石頭砸自己的腳——讓更多不了解實情的中國人了解到閆麗夢博士。
+[English\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)
 
-文章提到閆麗夢博士的論文一經發表就被推特、臉書等國外社交平台封禁。在擁有言論自由的民主國家，允許人民對政黨、從政人員及社會問題、當下實事發表個人觀點，它們理應不會封禁閆麗夢博士的這篇論文，更何況閆麗夢博士的這篇論文有理有據、條理清晰；閆麗夢博士這篇論文之所以被封禁，是因為推特、臉書是中共藍金黃的重點對象，中共暗中使壞——中共的謊言已經沒人再相信，它只好阻止人們知道真相。
+[French\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)
 
-文中對閆麗夢博士的介紹中提到：閆麗夢博士稱自己遭到中國政府威脅，有生命危險才離港逃至美國。文中沒有提到閆麗夢博士為什麼受到中共的威脅，不過這一點以足以說明閆麗夢博士了解內幕，知道普通人不知道的內情。此外，該文也提到了和閆麗夢博士同一戰線，即CCP病毒為人為製造的斯蒂夫·班農先生以及他主持的節目“疫情戰斗室”（War Room:Pandemic)。該文不斷借美國國內的社會、政治問題對班農先生進行抹黑，且一口咬定“病毒從武漢病毒研究室洩露”為不實言論。
+[German\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)
 
-閆麗夢博士的這篇論文於14日發佈在世界知名網站Zenodo，Zenodo是根據OpenAIRE計劃開發並由歐洲核子研究組織（CREN）運營的通用開放訪問存儲庫，允許研究人員儲存數據、軟件、報告及任何研究相關工具。閆麗夢博士使用個人推特賬號公開鏈接該篇論文，結果一經發表它的賬號就被封禁，閆麗夢博士在15日接受福克斯電視台採訪後，再次發聲。 17日中共旋即發表文章進行抹黑，中共如此迅速、強硬地做出反應，否定閆麗夢博士、否定班農先生，不得不讓每一個閱讀新聞的人對閆麗夢博士和班農先生產生好奇——他們做了什麼？為什麼要這麼做？究竟誰在撒謊？
+[Korean\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)
 
-中共執政70年以來，老百姓都知道它說好的東西，就是壞的；它說能做到的，就是做不到的；它否定的，就是正確的，再結合這篇文章，那麼顯而易見：CCP病毒正是人造的！且是從武漢病毒實驗室故意釋放出來的！
+[Russian\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)
+
+[Spanish\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)
 
 0
