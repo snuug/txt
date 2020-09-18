@@ -1,93 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 現實生活中的黑鏡
-`2020-09-17 15:46 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/364475/)
+## （法French+English)閆博士9月15日福克斯Tucker Carlson Tonight採訪
+`2020-09-18 00:53 GM62` [轉載自GNews](https://gnews.org/zh-hant/364985/)
 
-*新聞來源：MAILONLINE《每日郵報》；作者：Emilia Jiang；發佈時間： 2020年9月8日*
+法語標題 Un lanceur d’alerte sur le coronavirus parle de l’origine non-naturelle de la COVID-19 sur “ Tucker Carlson Tonight”
 
-*翻譯/簡評：沐子璐璐；校對/審核：海闊天空；Page：拱卒*
+英語一校：lxxy 英語二校：tiger64
 
-**簡評：**
+法語翻譯: Lully 法語校對：珠丝玛迹 視頻製作：珠丝玛迹 文菠萝
 
-本文描述了中共國蘇州當局引進一款智能手機應用程序，利用這款APP， 蘇州當局可以給市民的行為打分。當局冠冕堂皇地稱這一系統是為了讓市民養成良好的生活習慣，如分類垃圾、 遵守交通規則、用餐禮儀等，其實質則是當局意圖監控市民的一舉一動和所有日常生活。他們美其名曰通過這一系統要將其市民塑造成“政府眼中的模範公民“，言外之意是他們要控制所有人的言行，並用打分給人們貼上標籤，這樣市民就會變成只聽政府的、只按政府的意願和要求做事的，沒有自己思想和靈魂的木偶。
+視頻重點
+中國病毒學家閆麗夢博士在福克斯的新聞節目 “Tucker Carlson Tonight” 裡面宣稱，根據病毒基因序列，新冠病毒是在中共所發現和擁有的蝙蝠病毒基礎上製造的。新冠病毒能夠感染人類是因為武漢實驗室對其進行的某些改造。
 
-這款打分系統在蘇州的試用，可以看出中共加快加強了對中國人的管控。此時是在蘇州試用，一旦有經驗和把握，便可以向全中國推廣。中共日益加強對中國14億人的監控力度，蘇州的這款智能手機打分系統就是一個明證。除此之外，中共國還一直在建設大規模的監視網絡，根據“ 一項調研表示，最快今年內中共國的居民將被6.26億個街道監控器嚴密的監控，一個攝像頭大概可以監控兩個人。”。
-
-中共處心積慮的就是要中國人民都生活在攝像頭的監視下，沒有隱私，同時被打分系統貼上標籤，被塑造成“政府眼中的模範公民“。這與奧威爾（George Orwell ）的小說《1984》裡描述的生活極為相似，那位“老大哥”（Big Brother）的眼睛時刻盯著你，監控著你，讓你不能成為你自己。這是你想要的生活嗎？你想被時刻監控嗎？如果不滅掉中共，你和你的子孫後代有的選擇嗎？
-
-##  **“現實生活中的黑鏡”：中共國城市試用智能手機應用程序，對居民行為進行評分—志願服務者將被獎勵，闖紅燈者將受到懲罰** 
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/017dce11-2dfc-4a45-8a9f-1094317c4c11.jpg?asset_id=4cc6bbde-4e4a-49ab-b8e4-8919d1799118&amp;img_etag=%2208b6448f98e58458b1faac93a7ba758b%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/017dce11-2dfc-4a45-8a9f-1094317c4c11.jpg?asset_id=4cc6bbde-4e4a-49ab-b8e4-8919d1799118&amp;img_etag=%2208b6448f98e58458b1faac93a7ba758b%22&amp;size=1024)
-- 中共國東部城市蘇州引入了一個監控人們生活的評分系統
-- 這個新應用程序對市民的行為進行評分，行為包括道路禮儀和志願服務
-- 蘇州的這一計劃在網上激起了網民的憤怒且有很多人稱之為“現實生活中的黑鏡”
-- 官員們稱人們對此試用版應用程序持有“某些誤解”
-
-
-中共國東部城市蘇州當局打算對當地市民的行為進行評分。評分是通過一個可以監控人們日常生活的智能手機應用程序進行。蘇州當局的這一評分計劃激起了蘇州市民的憤怒。據中共媒體報告，蘇州當局官員們引進這一評分系統，簡稱為’文明碼’，旨在鼓勵人們變成政府眼中的模範公民。
-
-根據這個應用程序，每個居民最開始都獲得1000分，然後根據居民行為進行加或減分。如居民做了志願服務則可加分，若闖紅燈則減分。
-
-該市這一新計劃遭到中共國社交媒體用戶的廣泛批評。很多人稱之是“令人窒息” 和“無意義“的，也有人將此計劃與很流行的英國電視連續劇”黑鏡“相提並論。
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/499593ac-c3df-4be7-8a3c-b50e29ce90e1.jpg?asset_id=d3c299f4-a933-4c89-8399-f86c0eb96ee2&amp;img_etag=%224cb5fbfb39e51981fd6f84c2da88cea3%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/499593ac-c3df-4be7-8a3c-b50e29ce90e1.jpg?asset_id=d3c299f4-a933-4c89-8399-f86c0eb96ee2&amp;img_etag=%224cb5fbfb39e51981fd6f84c2da88cea3%22&amp;size=1024)中共國一個城市當局計劃通過智能手機應用程序監控市民的日常生活然後給市民評分，激起市民憤怒。本圖片攝於8月19日，拍攝了一位中國男士正在北京火車站外使用他的手機
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/3fc2b5e4-e195-48ee-9480-7e41c26d6b29.jpg?asset_id=a128ff6d-e672-4ceb-bfec-e5e4be284c88&amp;img_etag=%22c3747b9aace39901e852e07b56760d4b%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/3fc2b5e4-e195-48ee-9480-7e41c26d6b29.jpg?asset_id=a128ff6d-e672-4ceb-bfec-e5e4be284c88&amp;img_etag=%22c3747b9aace39901e852e07b56760d4b%22&amp;size=1024)根據蘇州官員引進的應用程序，每一位市民最開始都有1000分，然後根據市民行為進行加減分。如做了志願服務則可加分，若闖紅燈則減分。圖攝於8月18日，記錄一位女子在北京購物大廈外正在使用她的手機
-
-中共國在新冠病毒大流行期間使用人工智能監控中國公民，這已經引起了廣泛的質疑和批評。
-
-成千上萬的中國居民在病毒爆發期間被命令使用一個智能手機應用程序，此程序可以評估他們的健康狀況並可以追踪他們的出行歷史。
-
-數以百萬的攝像機遍布中國主要的大城市和小城鎮的大街小巷。網絡審查員監視互聯網和社交媒體上的活動。中共國國有電信運營商們可以跟踪其所有手機用戶的行踪。
-
-根據全球時報（Global Times）報導，蘇州這一新評分系統是由一個”出行指數” 和一個“志願服務指數” 以及其他指數組成。出行指數與人們的道路禮儀和交通違章記錄相關，而志願服務指數由個人參與志願活動程度來衡量。
-
-據報導，當局在一個聲明中說，該系統旨在為每位居民建立一份’個人形象’，力圖幫助他們養成良好的日常習慣，例如垃圾分類，文明用餐，禮貌社交和良好在線行為。
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f8000335-354b-4e0d-a1c9-0f57443a86d1.jpg?asset_id=2b852e38-a914-47e9-906f-e57a719cf24e&amp;img_etag=%22514e40f01f37ea0a2db26c407ef8965e%22&amp;size=4175)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f8000335-354b-4e0d-a1c9-0f57443a86d1.jpg?asset_id=2b852e38-a914-47e9-906f-e57a719cf24e&amp;img_etag=%22514e40f01f37ea0a2db26c407ef8965e%22&amp;size=1024)在中國東部城市蘇州，當地官員引進評分系統，簡稱’文明碼’，以鼓勵市民變成政府眼中的文明公民
-
-在上週的簡短試用期間，該智能手機應用程序遭到公眾的強烈反對。很多網頁用戶攻擊此系統“讓人窒息” 並且是“現實版黑鏡”。
-
-很流行的英國電視連續劇’黑鏡’中名為《下衝》( Nosedive) 的一集描述了一個反烏托邦世界，人們在每次互動後都用智能手機互相評分，這種評分會影響他們的社會等級排名。
-
-一位評論員者評道：“我的老天啊，我感覺我們正生活在《黑鏡》那集《下衝》描述的世界裡。“
-
-另一位回复：“請給普通人一些生存和呼吸的空間。”
-
-第三位網民說：“大數據將讓我們”全裸“，這是我們失去自由的標誌。”
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/91849d20-1dd5-43f5-a4fc-e3bb74104838.jpg?asset_id=2ff2fd77-8a56-4abc-8f21-2b2d3e11b8b5&amp;img_etag=%221dbf91ae516dcf3762b4887693c81434%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/91849d20-1dd5-43f5-a4fc-e3bb74104838.jpg?asset_id=2ff2fd77-8a56-4abc-8f21-2b2d3e11b8b5&amp;img_etag=%221dbf91ae516dcf3762b4887693c81434%22&amp;size=1024)在新冠狀病毒大流行期間中共國使用人工智能監控其公民，這讓中共國面對廣泛的質疑和批評。攝於4月1日，圖為一位乘客在武漢一個地鐵站正在掃描二維碼以便得到綠色通行證
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f86f576f-9941-4552-9176-9630eb89006c.jpg?asset_id=ce59b378-c19d-4c23-8ae8-13e176567dd4&amp;img_etag=%22903a397cc244d0b55f80edad99c98aa9%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f86f576f-9941-4552-9176-9630eb89006c.jpg?asset_id=ce59b378-c19d-4c23-8ae8-13e176567dd4&amp;img_etag=%22903a397cc244d0b55f80edad99c98aa9%22&amp;size=1024)圖為5月3日一個工人正在一位記者家門口調測一個監控攝像頭，這位記者剛從武漢返回到北京隔離在家中。根據環球時報（The Global Times）報導，安裝這樣的安全監控器“僅是為了抗疫“工作。
-
-官員們在周日針對公眾的批評做出了回應，告訴記者們說這個系統仍在試用階段，等全部開發後會再次引進給公眾使用。
-
-澎湃新聞（The Paper）的記者們報導，這些官員們還稱公眾對此系統“有些誤解“，這個系統是公眾自願使用。據說政府在公眾強烈反對後已經停止測試這個智能手機公共應用程序。
-
-撰寫了有關全球受監控程度最高的城市的報告的安全分析師保羅·比紹夫（Paul Bischoff）認為，中共國已利用健康危機來加快實施國家監控的速度。
-
-比紹夫（Bischoff）先生對郵報在線（MailOnline）表示：“這正是自引入聯繫人跟踪應用程序以來，隱私倡導者一直警告要提防的那種監視蠕變。”
-
-他繼續說道：“一直以來聯繫人跟踪應用程序存在一個風險，那就是其使用會超出預期用途，尤其可能被用於監視。 不難想像當局會利用對聯繫人跟踪數據的訪問權，用以限制活動和集會的自由。”
-
-“不論實際上這是否會發生，只要當局有監視用戶的能力就會導致他們採取不同的行動，這對活動和集會等自由造成令人不寒而栗的影響。“
-
-據比紹夫（Bischoff）先生表示，官員們已經使用了各種監視方法，包括在新冠病毒大流行期間通過人們的手機增加位置跟踪， 在公共場合增加臉部識別的使用。
-
-中共國還一直在建設大規模的監視網絡，自詡安裝了上億個街道攝像頭。
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/7f6c88cd-164e-4546-b254-d716dea1480e.jpg?asset_id=fdf589cf-f654-4999-81bd-a2152210a8a9&amp;img_etag=%2282804d6f9db891c366d1725b00b7afa4%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/7f6c88cd-164e-4546-b254-d716dea1480e.jpg?asset_id=fdf589cf-f654-4999-81bd-a2152210a8a9&amp;img_etag=%2282804d6f9db891c366d1725b00b7afa4%22&amp;size=1024)在中國湖北省中心的武漢市，一名乘客在一個輕軌上手持通過手機顯示的一張綠色通行證。綠色是表示用戶無症狀的“健康代碼”，搭乘地鐵，入住酒店或進入武漢市都要持有這張通行證
-
-[!\[\](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f47721f0-86e9-448b-8a2f-792e3172188e.jpg?asset_id=a0a99672-6e75-47fb-8a5b-0bdc5e5f92d0&amp;img_etag=%229f483a389b9052bbb33707d6edccf7e9%22&amp;size=2560)](https://spark.adobe.com/page/W0LmlMpHRemUf/images/f47721f0-86e9-448b-8a2f-792e3172188e.jpg?asset_id=a0a99672-6e75-47fb-8a5b-0bdc5e5f92d0&amp;img_etag=%229f483a389b9052bbb33707d6edccf7e9%22&amp;size=1024)撰寫了有關全球受監控程度最高的城市的報告的安全分析師保羅·比紹夫（Paul Bischoff）認為，中共國已利用健康危機來加快實施國家監控的速度。圖為在6月22日一位男子進入北京一家超市前，被要求通過其手機裡的一個應用程序掃描一個QR 碼以顯示他的健康狀況和出行狀態。
-
-中共建立的這個監視網絡被認為是世界上最強大的人臉識別系統，旨在3秒內識別處14億中國人中的任何一人。
-
-一項調研表示，最快今年內中共國的居民將被6.26億個街道監控器嚴密的監控，一個攝像頭大概可以監控兩個人。中共國有5個全球監控最嚴的城市。其中受監控最嚴格的是重慶市，那里安裝有250萬個街道攝像頭，相當於一個攝像頭監控6個人。
-
-評論家對此計劃特別警惕。很多人將之類比為喬治·奧威爾（George Orwell ）的小說《1984》裡描述的反烏托邦體系。故事中此體係被一個名為“老大哥”（Big Brother）的虛構的國家領導人監管著。
-
-[原文鏈接](https://www.dailymail.co.uk/news/article-8709539/Chinese-city-trials-monitor-rate-residents-behaviour-smartphone-app.html)
-
-編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/W0LmlMpHRemUf/)
+Virologue Dr. Yan sur &lt;&lt;Tucker&gt;&gt; a déclaré, sur la base de la séquence du génome, la Covid-19 est fabriqué à partir d’un virus de chauve-souris unique découvert et possédé par le PCC. Et elle vise les humains grâce à certaines modifications dans le laboratoire de Wuhan.
 
 0

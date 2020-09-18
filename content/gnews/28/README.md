@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆革星評：媒體超限戰猖獗 美國需加大打擊力度
-`2020-09-17 14:16 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/364383/)
+## 【世界多語言圖文】2020/09/11 CCP病毒每日疫情直播簡報
+`2020-09-17 21:42 GM62` [轉載自GNews](https://gnews.org/zh-hant/363265/)
 
-喜馬拉雅聯盟加拿大農場 文星（一號&大衛阿波羅）
+戰友之家圖文摘要及小語種組
 
-校對 小鷗
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17124637/Pixabay.png)圖片來源：Pixabay 
-9月14日閆博士病毒報告剛公佈， 她當天才註冊的推特帳號僅僅出了3個推， 48小時之內直接被推特封號，這兩天多位大V為此的轉推也被刪除。 9月15日，閆博士接受美國黃金時段晚8點FOX著名主持人Tucker Carlson的採訪，當晚Carlson把這段節目視頻發在Facebook自己的帳號裡，很快就被臉書以“錯誤信息”而屏蔽。這一下全美震驚，充分體現美國各大社交平台與大多主流媒體已經被CCP控制的事實。如果美國還不加大打擊力度，“言論自由”的立國之本將不復存在。 
+[English\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071513/English_0911_CCP_Virus_Updates.pdf)
 
-歷史上，CCP執政前後，都仰仗輿論宣傳和控制。執政前，CCP利用國民黨的言論自由，大造其謠，分化了國民黨內部，得以欺騙上位。執政後，對內封鎖，建立網絡防火牆，對外進攻，發起媒體超限戰。 “筆桿子”配合“刀把子”，內外大打宣傳戰，是CCP的主要戰略武器，主要打擊目標就是美國。 
+[French\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071523/French_0911_CCP_Virus_Updates.pdf)
 
- CCP媒體超限戰包括但不限於以下途徑，一是藍金黃美國主管媒體的議員、官員；二是直接或間接投資美國媒體公司，成為股東或實際控制人，進而操縱媒體；三是利用龐大的國內市場為誘餌，誘使美國基金大舉投資中共國市場，藉此綁架美國投資界從而影響媒體；四是通過CCP駐外使領館、統戰部定期舉辦海外各類活動，扶植線人，歪曲破壞美國媒體的事實報導。 
+[German\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071532/German_0911_CCP_Virus_Updates_.pdf)
 
-經過多年經營滲透，CCP的媒體超限戰成效顯著，令美國媒體界亂象叢生，也直接導致了對爆料革命一系列的非法干預。三年前的美國之音郭先生斷播、哈德遜研討會斷播、油管推特強制凍結賬戶、無數次癱瘓干擾GTV，現在乾脆毫無厘頭地直接封掉閆博士的推特賬戶等。 CCP窮途末路時，圖窮匕首見。 
+[Korean\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071518/Korean_0911_CCP_Virus_Updates-.pdf)
 
-繼今年將CGTV、新華社等9家CCP駐美媒體定義為外國使團後，納瓦羅、參議員布萊克本等這次直接發推質問為什麼凍結閆博士的推特？美國政府已經開始直接干預CCP媒體超限戰的行動，但接下來美國需要採取更大力度的行動，才能打贏這場媒體超限戰。
+[Russian\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17194046/Russian_0911_CCP_Virus_Updates.pdf)
+
+[Spanish\_0911\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/17071527/Spanish_0911_CCP_Virus_Updates-231-1.pdf)
 
 0
