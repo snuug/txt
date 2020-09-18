@@ -1,72 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利戰友寫給意大利人的一封公開信
-`2020-09-18 09:45 喜意农场` [轉載自GNews](https://gnews.org/zh-hant/365588/)
+## 突發號外! 川普總統重拳出擊! 美政府週日封禁微信和TikTok
+`2020-09-18 13:40 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hant/367013/)
 
-我們要告訴意大利，告訴歐洲，告訴世界，告訴你們關於CCP與人類為敵，與文明社會為敵的罪惡的真相。
+編輯：玫瑰天空
 
-作者：文曜
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18132606/%E4%B8%83.png)
+週四,特朗普總統在威斯康辛州莫西尼的一場競選活動上。 AL DRAGO FOR THE NEW YORK TIMES 。
 
-意大利語翻譯：阿娜
+倒行逆施的CCP,繼續顫動吧! 接下來的重拳會暴風雨一樣席捲而來!
 
-編輯：文園
+這是你們所有應得的輪迴因果! 作惡的代價總會到來!
 
-海報設計：波街5號
+特朗普政府周五宣佈,將自周日起在美國應用商店中封禁中國擁有的應用程式微信和TikTok,這對兩個在美國擁有超過1億使用者的流行應用程式造成了沉重打擊。
 
-scrittrice Wenyao
+相關限制將自周日開始實施,屆時美國境內將禁止通過微信進行資金轉帳或付款。 就微信而言,這些限制還將阻止任何公司向微信提供互聯網託管、內容交付網路、互聯網傳輸或對等服務,或在美國其他軟體或服務中使用該應用的代碼。
 
-**Il Partito Comunista Cinese è un regime che non rappresenta i cinesi**
+對TikTok提供服務的同等限制將於11月12日生效。
 
-Gentili italiani tutti,
+“今天的行動再一次證明川普總統將傾盡所能,確保我們的國家安全,保護美國人不受中國共產黨的威脅,”商務部長威爾伯· 。 羅斯(Wilbur  Ross))(在一則聲明中說。
 
-Siamo i cittadini del **Nuovo Stato Federale Cinese** . In questo giorno speciale che per il Partito Comunista Cinese è il’NATIONAL DAY’, noi siamo maggiormente in pericolo per esserci riuniti nelle strade di Roma per manifestare a gridare con tutta la nostra voce che:“ il Partito Comunista Cinese” e il suo regime non rappresenta i cinesi. Noi vogliamo dire agli italiani, a tutta l’Europa e il mondo intero la verità riguardo il PCC che è di fatto contro l’umanità e le società civilizzate.
+這些行動根據的是8月6日總統頒布的一項行政令,在其中,他提出TikTok和微信會從美國用戶那裡收集資訊,而這些資訊有可能被中國政府進行分析。
 
-**La verità sul Corona-** **Virus**
+TikTok目前正在與美國軟體商甲骨文(Oracle)就收購事宜進行談判,並且有可能宣佈一項緩和特朗普政府對國家安全擔憂的交易。 商務部在公告中表示,總統將解決TikTok的國家安全擔憂問題的時限設至11月12日,如果獲得解決,行政令中的限制將被解除。
 
-Questo è un Virus che potete chiamare il ‘Virus del PCC'(Partito Comunista Cinese) perché si tratta di un arma biologica creata nei laboratori militari del PCC. Loro lo hanno creato e rilasciato nel mondo per indebolire e distruggere America e Europa per perseguire il loro ambizioso programma di occupazione del mondo intero. Fino adesso (9 settembre 2020) nel mondo 27.840.000 persone sono state infettate dal virus e 900.000 persone sono morte. Cari italiani ricordate che in questo paese qualche mese fa si sentiva il suono delle ambulanze una ad una in una ininterrotta fila. Gli ospedali erano stracolmi di persone che piangevano, di famiglie e parenti piene di preoccupazioni che piangevano nella notte per le paure. Perché tutto questo è successo? Quale è l’origine? Lo volete sapere?
+TikTok拒絕置評,騰訊和甲骨文沒有立即回應置評請求。
 
-**La verità su Hong Kong**
+在接受福克斯商業新聞網(Business Network)採訪時,羅斯表示禁令最初將對微信影響更大。
 
-Un anno fa il Partito Comunista Cinese ha inviato i propri soldati e delinquenti mafiosi provenienti dalla Cina per sequestrare le persone che manifestavano per la giustizia e libertà. Moltissimi giovani sono stati sequestrati, torturati e violentati, giovani che poi sono spariti. Yanlin Chen, una ragazza di appena 15 anni, è stata violentata da 30 uomini della polizia e poi uccisa. La madre anch’essa venne uccisa dalla polizia al solo scopo di impedirgli di parlare. Il suo corpo più tardi venne trovato in mare. Perchè queste persone sono state uccise in questa maniera? Migliaia di persone sono state assassinate così. Fin dal giugno 2019 più di 10.000 persone sono state uccise ad Hong Kong. Più tardi la polizia affermò che tutte le persone morte si suicidarono. Questi numeri sono i numeri ufficiali. Quale è il numero reale di persone morte? Il numero aumenta giorno anche adesso.
+“實際上自週一淩晨起,它將在美國被關停,但只在美國,”羅斯說。
 
-**La verità sugli schiavi del PCC**
+TikTok也將面對一些變化,但直至11月12日仍將被允許運行,羅斯說。 屆時如果無法達成能夠足以解決特朗普政府擔憂的交易,該應用將面臨與微信一樣的禁令。
 
-Cari italiani, Voi non credete che i cittadini cinesi non debbano avere autorità sulla loro terra? Voi non credete che i cittadini cinesi non abbiano il diritto di votare? In Cina tutto questo purtroppo accade ed è vero. Il Partito Comunista Cinese ha costruito un muro all’internet cinese. Attraverso l’alta tecnologia il cervello delle persone viene sistematicamente lavato. I cinesi sono costretti a vivere la propria vita come degli animali che non hanno una propria mente e devono lavorare come schiavi.
+「至於TikTok,自周日晚間開始,唯一真正的變化將是使用者無法獲得升級版本的應用、升級應用或維護,「他說。
 
-In realtà tutti i risparmi accumulati dai lavoratori cinesi attraverso il duro lavoro vengono controllati da poche famiglie rappresentanti il Partito Comunista Cinese. Queste poche famiglie rubano la maggior parte dei risparmi dei lavoratori per investirle o depositarle fuori dalla Cina. Per esempio 20 trilioni di dollari sono depositati in banche svizzere e sono intestate a famigliari del PCC“National Bandits”. Il PCC ha sequestrato 1.4 miliardi ai cittadini cinesi. Comprano e corrompono politici, media in tutto il mondo che ovviamente si prestano allo sporco gioco. Questo è il vero motivo per cui i grandi media mondiali non dicono il vero sia sul ‘PCC virus’ sia sulla reale situazione di Hong Kong.
+羅斯用直白的語言來形容自這兩款應用的威脅,將其服務比作美國與中國之間的窗戶,而這扇窗戶會讓北京窺視美國人的日常生活。
 
-Siamo qui a dirvi che il Partito Comunista Cinese sta usando soldi, sesso, 5G ed altro per corrompere e controllare il mondo intero. La loro volontà è quella di schiavizzare e controllare il mondo intero.
+「他們收集的是位置數據、你打算在線觀看什麼、你的喜好、你在參考什麼這些數據,美國使用者沉迷進行的每一個行為,都能成為另一邊監測的物件,「他說。  」這就是我們在試圖壓制的。  “
 
-Per favore svegliatevi tutti diversamente quello che potete vedere in Hong Kong oggi potrebbe avvenire domani a Roma. Adesso il mondo è nell’ombra del diavolo del PCC. Il Partito Comunista Cinese mente e le persone del mondo muoiono. La verità è potente. Buttate giù il Partito Comunista Cinese per la libertà, la democrazia e per il rispetto delle regole e delle leggi.
+在其公告中,商務部表示微信和TikTok均從用戶那裡收集了包括位置數據、網路活動及瀏覽器歷史等資訊。 公告稱,身為中國公司,它們須遵守中國”軍民融合”政策,並與中國情報機構強制合作。
 
-Grazie a tutti coloro che ci dedicano la loro attenzione e supporto! Desideriamo che tutti insieme mostriamo e diffondiamo la verità contro il Partito Comunista Cinese PCC e per la giustizia!
+援引:[https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban/](https://cn.nytimes.com/usa/20200918/trump-tik-tok-wechat-ban/) 。
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18051659/2020-09-04_17.26.56-1.png)
-
-
-親愛的意大利朋友：
-
-我們是新中國聯邦的公民。在這個特殊的日子，中共國的“國慶日”，我們冒著危險，齊聚羅馬的街頭。此時此刻，我們向意大利、歐洲、乃至世界，發出我們的吶喊：中國共產黨及其政權不代表我們中國人！我們要告訴意大利，告訴歐洲，告訴世界，告訴你們關於CCP與人類為敵，與文明社會為敵的罪惡的真相。
-
-關於Coronavirus的真相
-
-這個病毒就是CCP Virus！它是生化武器，來自CCP的實驗室。製造並投放的目的是為了癱瘓美國、歐洲等文明發達國家，達到CCP稱霸世界的野心。目前為止（2020年9月9日），全世界已經超過兩千七百八十四萬人被感染，超過九十萬人死亡。親愛的意大利人，我們一起回想一下幾個月前的意大利：大街上救護車的呼嘯聲，醫院里人們的哀嚎聲，深夜裡親人們的啜泣聲，······ 難到你們不想弄清楚造成這一切的根源是什麼嗎？
-
-關於香港的真相
-
-一年前，為了打壓香港人合理合法的訴求，CCP派出解放軍、大陸黑警綁架殺害香港民主、正義人士，無數年輕人被綁架、被強姦和輪姦。 15歲的香港女孩陳彥霖就是被30名黑警輪姦後殺害的！她的母親也被滅口殺害，拋尸大海。香港還有多少像陳彥霖母女這樣被殘害的正義人士呢？答案是成千上萬！從2019年6月以來，超過一萬名香港人被自殺，這僅僅是統計在案的數字。還有無數的心懷良知的香港人，以及從大陸趕到香港聲援的義人們被綁架、被消失。
-
-關於中國人被奴役的真相
-
-親愛的意大利朋友們，你們能相信中國人是沒有土地的嗎？你們能相信中國人是沒有投票的嗎？在中國，這就是事實。 CCP建立了防火牆，利用高科技對老百姓洗腦，讓他們像動物一樣活著，讓他們像奴隸一樣透支體力去賺錢。而CCP幾個家族的盜國賊們，把中國人的血汗錢通過銀行轉到國外自己私人賬戶上。僅在瑞士銀行的帳戶上，就有來自中國盜國賊家族，超過20萬億美元的存款！ CCP綁架14億中國人，利用金錢收買全世界的政客、媒體，跟他們一起做骯髒的交易，這就是主流媒體一直都沒有報導病毒真相和香港真相的主要原因。
-
-我們要告訴世界，CCP不但奴役中國人，殘害香港人，它還用金錢、性、5G等侵蝕整個世界，妄圖奴役全人類！如果全世界的同胞還不覺醒的話，那麼，明天的羅馬，就是今日的香港！整個世界都將籠罩在CCP的魔爪下！ CCP LIE, THE PEOPLE OF THE WORLD DIE!
-
-我們新中國聯邦正在進行一場浩浩蕩蕩的消滅CCP的運動。唯真不破！消滅中國共產黨！ Take Down the CCP！為中國人民爭取得到自由、民主、法治！
-
-感謝你們每一個人的關注、支持，希望我們一起揭露真相、傳播真相！消滅CCP，是正義的需要！
-
-
-
-0
+2

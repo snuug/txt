@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 备战 10.1 罗马抗议游行
-`2020-09-18 05:00 喜意农场` [轉載自GNews](https://gnews.org/zh-hant/365478/)
+## 重磅:9月20日起美國將禁止下載TikTok和微信
+`2020-09-18 11:49 GM77` [轉載自GNews](https://gnews.org/zh-hant/366685/)
 
-视频制作：Valerio
+編撰:文白、文錦、文肯尼
 
-网络海报：文小小
+TikTok終於塵埃落定。 美國商務部剛剛宣佈,從9月20日起在美國境內禁止下載和使用手機應用程式微信,同時禁止美國公司通過微信”以在美國境內轉移資金或處理付款為目的”提供服務。  TikTok也將從9月20日期被禁止下載,從11月12日期被禁止使用。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18114531/%E6%88%AA%E5%B1%8F2020-09-18-%E4%B8%8B%E5%8D%8811.25.56-2.png)
+川普總統最終兌現了承諾。 8月3日他在白宮表示,有條件限期微軟或任何美國公司在9月15日左右之前完成收購TikTok 的交易,否則仍將簽署禁令。
 
-编辑：文园
+**TikTok****頻頻在美遊說尋求續命**
 
-传播真相，备战10.1罗马抗议游行，意大利战友在行动！
+得知美國審查並考慮禁止TikTok之際,TikTok母公司中國位元組跳動就已頻頻在美國四處遊說,上竄下跳。
 
+位元組跳動表面同意完全退出TikTok在美業務,希望以此與白宮達成協定,允許其在9月15日前完成與美國公司的收購交易。 位元組跳動首先考慮的是微軟,希望達成由微軟接管TikTok美國業務,負責保存管理所有美國用戶數據。
 
+交易截止日(15日)前一天有消息稱,位元組跳動宣佈其與甲骨文公司的合作從外界原本預期的收購轉變成合作模式,而之前公開表明競標TikTok美國營運權的微軟同一天也發佈聲明,表示已被告知位元組跳動將不會把TikTok美國營運權賣給微軟。
 
-我们是谁，我们为什么要游行？
+同一天TikTok把與甲骨文的交易方案上報給了美國財政部外國投資審查委員會,開始進入審查。 美國參議員霍利、盧比奧等公開反對TikTok與甲骨文合作的方案。
 
-我们是热爱民主自由法治的中国人，谢谢意大利给我们有一个发声的地方。我们要求中国共产党给我们病毒的真相。中国共产党不代表中国人民，中国人民也是中国共产党的受害者。我们要消灭中国共产党！
+9月17日,甲骨文與北京位元組跳動協定被曝光,協議顯示甲骨文購買海外版抖音20%TikTok股份。 TikTok與甲骨文的協定中並無核心資產的交換,他們之間更像”夥伴關係”而不是收購。
 
-**Chi siamo e****perch****é****facciamo la manifestazione?**
+實際上8月3日川普總統就已打下伏筆,同意有條件給與位元組跳動45天的時間,尋找美國政府允許下的收購物件 。 條件必須滿足:收購對像是一家真正的美國公司;出於安全原因,它不能被中國控制;建議整體購買,最終收購成功的美國公司,必須交給政府一筆酬勞。
 
-Siamo un gruppo di cinesi dello Stato Federale della Nuova Cina che amano la democrazia, la libertà e lo stato di diritto. Grazie Italia per averci dato un posto in cui annunciare. Chiediamo al Partito Comunista Cinese di darci la verità sul virus. Il Partito Comunista Cinese non rappresenta il popolo cinese e il popolo cinese èin realtàvittima del Partito Comunista Cinese.Voliamo Eliminare il Partito Comunista Cinese!
+**TikTok****毫無誠意的行為令美國政府果斷頒發禁令**
 
-- ![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18044351/image0-3-5-scaled.jpg)
+美國商務部的措辭清楚表明,美國政府的態度是希望這些應用在美國消失。 它不僅禁止了TikTok和微信兩款應用程式的下載和更新,而且從周一開始還禁止了與微信相關的任何付款。
 
+商務部長羅斯(Wilbur Ross)表示,此舉是”在總統的指導下”採取的。 羅斯部長在聲明中說:「今天的行動再次證明,川普總統將竭盡所能,以確保我們的國家安全並保護美國人免受中共的威脅。 “
 
-**Eliminare il Partito Comunista Cinese!**
+該禁令範圍還包括:互聯網託管服務的任何提供,均可在美國實現移動應用的功能或優化;內容交付網路服務的任何提供,均可在美國實現移動應用的功能或優化;任何直接簽約或安排的互聯網運輸或對等服務的規定,可在美國境內實現移動應用程式的功能或優化;在美國境內開發和/或訪問的軟體或服務的功能中,對移動應用程式的組成代碼,功能或服務的任何利用。
 
-Coronavirus, movimento di Hong Kong, legge sulla sicurezza nazionale, la minacce militari a Taiwan, programma BGY negli Stati Uniti (è globale) …Con l’esistenza del PCC, questi non si fermeranno.
+所有這些都意味著白宮正在努力遏制訪問該應用程式的漏洞出現。 位元組跳動及其合作夥伴已沒有時間嘗試推遲或撤銷該決定。 禁令還將迫使託管服務迅速做出反應以刪除該應用程式。
 
-消灭中国共产党！
+參考連結:
 
-冠状病毒，香港运动，国家安全法，对台湾的军事威胁，美国（全球）的BGY计划…伴随着中共的存在，这些不会停止，所以消灭中共是正义的需要。
-
-翻译：明天的彩虹
+https://www.engadget.com/tik-tok-and-we-chat-will-be-banned-from-us-app-stores-on-sunday-115345120.html
 
 0

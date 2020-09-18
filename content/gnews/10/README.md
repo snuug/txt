@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 9/18財經快訊: 中共干預經濟實錘, 中小企業難以生存
-`2020-09-18 09:39 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/366167/)
+## 特朗普批評FBI局長克裡斯托弗. 雷:中共比俄羅斯對大選造成的威脅更大
+`2020-09-18 13:31 GM77` [轉載自GNews](https://gnews.org/zh-hant/367002/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18093326/Picture28-1.png)圖片來源： [https://www.fool.ca](https://www.fool.ca/2020/05/11/top-tsx-tech-stocks-for-may-2020/) 
-[1，9月18日美股三大指數集體收低,科技股遭拋售，特斯拉跌逾4%。美元指數收盤下跌0.24%，現貨黃金收盤下挫0.6%。](https://cn.reuters.com/article/us-stock-market-tech-0918-idCNKBS269011)
+編撰:天使、淨水-源、文肯尼
 
-[2，在各國央行的支持下，亞洲股市週五小幅上漲。油價守住隔夜的巨大漲幅，因石油輸出組織（OPEC）稱將對沒有減產的成員國採取嚴厲措施。](https://cn.reuters.com/article/us-stock-market-tech-0918-idCNKBS269011)
+川普總統本週四晚上告訴聯邦調查局局長克裡斯托弗-雷(Christopher Wray),中共干涉總統大選的威脅比俄羅斯大得多。 此前雷向國會作證說,莫斯科 「非常積極 」地試圖影響大選。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18132720/%E6%88%AA%E5%B1%8F2020-09-19-%E4%B8%8A%E5%8D%881.26.42-1.png)
+川普總統在他的推特上說「嘿! 雷,即使你沒有看到中共的任何活動,但他仍然是比俄羅斯! 俄羅斯! 俄羅斯! 更大的威脅! “”中共! 俄羅斯! 再加上其他國家,他們都能利用選票騙局來干預我們2020的大選! 。 瞧著吧! “
 
-[3，知情人士周四表示，字節跳動正在製訂計劃，如果擬議的交易獲得白宮批准，將讓負責運營廣受歡迎的短視頻應用TikTok的新公司TikTok Global在美國首次公開募股。](https://cn.reuters.com/article/usa-tiktok-global-ipo-0918-idCNKBS269035)
+雷在本週四向眾議院國土安全委員會表示,「我們肯定已經看到俄羅斯非常積極地努力影響我們2020年的選舉,他們製造分裂和不和,還詆毀拜登。 “
 
-[4，美國勞工部：上周初請失業金人數下降，因就業市場復甦放緩。美國8月份增加了140萬份工作，最近申請失業救濟的人數趨於穩定，較之前一個星期減少3萬3千人。](https://www.voachinese.com/a/us-unemployment-benefit-claims-dip-slightly-20200917/5588274.html)
+“我認為情報委員會應該達成的共識是,俄羅斯主要通過惡意的他國影響,繼續試圖干預我們的選舉,與2016年不同,俄羅斯針對我們的選舉基礎設施——你知道的,網络目標”雷說。
 
-[5，大型投行–中共國際金融股份有限公司（中金公司）3908.HK A股首次公開發行（IPO）申請獲准通過發審委問及所涉瑞幸咖啡項目等問題。](https://cn.reuters.com/article/cicc-ipo-luckin-coffee-0918-idCNKBS2690AG)
+雷還說:「我們已經非常明確的看到了俄羅斯通過惡性他國影響來干預選舉–社交媒體、使用代理人、國家主權媒體、網路期刊等來傳播分裂和不和! 我認為情報界已經對2020年的此情況作了公開評估,俄羅斯的目的就是詆毀拜登和反餓機構。 “
 
-[6，中共銀保監會層層限制，中小企業難以生存： “貸款不得用於炒股和金融衍生產品” ，稱此舉強化准入管理，規範債務催收。](https://mp.weixin.qq.com/s/02GenRDcSAj_DQVWxWjrkg)
+雷認為對自稱為ANTIFA的暴力極端分子的調查是對國內恐怖主義調查的一部分。 川普總統對此表示異議! 總統回應說:「ANTIFA是一群資金充足的無政府主義者和暴徒,他們之所以受到保護,是因為FBI受科米和穆勒這兩位前FBI局長的激勵,使得FBI根本無法,或者說不願意找到ANTIFA的資金來源,讓他們得以逃脫 「謀殺」和法律與秩序的制裁! “
 
-[7，共產黨干預經濟的又一鐵證：在貴州省國資委干預下茅台發債150億，跨界“拯救”貴州高速公路集團有限公司這家虧損企業！這是茅台集團首次發債，力度之大，史無前例。](https://mp.weixin.qq.com/s/rLCUAw7oj7enk2aozxcFbA)
+**編者觀點****:**
 
-[8，商務部：今年1-8月，中共企業對“一帶一路”沿線國家非金融類直接投資118億美元，同比增長31.5%，較上年提升4.8個百分點。](https://mp.weixin.qq.com/s/0zAryUFTf__CbDx2bgIREg)
+毫無疑問,中共是近年來主動向美國發起所謂超限戰的世界麻煩製造者。 中共之所以現在採取一切之手段影響美國大選。 根據郭先生爆料,我們可以知道,他們這麼做主要是為了降低川普總統的信任度,扶植新的代理人上臺,使川普總統丟掉2020年的大選。 美國作為直接受害國,必須奮起反抗,對抗中共日益擴張的野心,維護世界的和平與正義。
 
-[9，只許買不許賣，深交所9月16日發布暫停500etf融券賣出公告](https://wap.eastmoney.com/a/202009171639592854.html)
+新聞連結:
 
-By 【秘翻組- 金融法律團隊】
+[https://www.washingtontimes.com/news/2020/sep/17/trump-jabs-christopher-wray-says-china-bigger-thre/](https://www.washingtontimes.com/news/2020/sep/17/trump-jabs-christopher-wray-says-china-bigger-thre/)
 
 0

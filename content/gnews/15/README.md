@@ -1,39 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要聞】譚得志被控發表煽動文字等9 罪遭還押　高院再拒保釋申請
-`2020-09-18 07:13 GM42` [轉載自GNews](https://gnews.org/zh-hant/365698/)
+## 新加坡会成为中共下一个接轨国际金融系统的后门？
+`2020-09-18 12:34 SGHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/366897/)
 
-製作單位：戰友之家-粵語組
-蒐集：文燕
-編撰：文燕
-點評：文燕
-覆核：文非
+![Singapore Guest Houses - Best Price + HD Photos of Guest Houses in Singapore](https://pix10.agoda.net/geo/city/4064/1_4064_02.jpg?s=1920x822)
+在美国对中共企业连出重拳、纠正不平等贸易与威胁国家安全的行为下，中共国的企业家们正前仆后继地前往新加坡设立业务。
 
-人民力量副主席譚得志（快必）早前遭國安處便衣上門拘捕，指控他在今年3 月至7 月，多次擺街站，期間發表言論如“ 721 唔見人”、“黑警死全家”等煽動文字，即具意圖引起憎惡或藐視香港政府或激起對其離叛，引起香港居民間的不滿或離叛，或慫恿他人不守法或不服從合法命令的文字。
+腾讯、阿里巴巴和字节跳动近日先后宣布数十亿美元的投资计划。
 
-譚得志被控5 項發表煽動文字罪及一項在公眾地方擾亂秩序行為罪，另外又被控一項煽惑他人參與未經批准集結罪，及票控發表煽動文字罪、在公眾地方內擾亂秩序行為罪，兩宗案件、合共9 控罪。
+腾讯在被川普总统8月6日的行政命令打击与印度禁止一系列的手机应用程序后，南韩的PUBG集团也宣布停止与腾讯在印度游戏分销的合作。彭博社于9月15日报道新加坡将成为该公司的区域总部。据匿名人士透露，该公司也计划把包括国际游戏在内的部分业务迁离中国。腾讯的招聘网站9月18日显示该公司计划招聘超过70个职位，涉及领域很广，包括销售、客服、技术开发、人事部、产品开发、法律和政策事务以及财务等。但律师指出即使把业务迁至新加坡也无法规避印度的《信息科技法》第69（A）条所带来的限制。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121543/001.jpg)
+阿里巴巴在于2016年以30亿美元收购新加坡网购平台Lazada的90%控制权后，近日以12亿美元收购AXA办公楼的50%股权。该集团传将再以30亿美元收购电召、外卖与支付商Grab Holdings Inc. Grab 正从一家东南亚电召公司转向以金融为核心的区域超级应用程序。据路透社6月报道，Grab申请了新加坡网银行牌照和腾讯支持的新加坡在线游戏开发商Sea Ltd.已入围新加坡金融管理局网银执照的筛选名单。阿里巴巴的蚂蚁集团也申请了网银牌照，但是申请的是不带零售银行业务的wholesale digital banking license.![]()
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121705/002.jpg)
+在新加坡经营一家受监管的银行会获得一笔宝贵的好处：免费进入美国主导的全球金融网络。如果北京决定运行自己的独立金融系统，这对于中共金融科技公司可能很重要。这种推动力可能来自中共的数字货币，它可能会侵蚀蚂蚁金融支付和腾讯的微信支付建立的护城河。此外，彭博资讯（Bloomberg Intelligence）指出，入股Grab可以立即让阿里巴巴利用Grab在东南亚的客户数据帮助阿里巴巴支持的Lazada与腾讯支持的竞争对手Shopee抗衡。
 
-上週提堂時，粉嶺裁判法院裁判官蘇文隆拒絕讓譚保釋，還押一周後，譚得志今（ 17 日）再向高等法院申請保釋，法官潘敏琦拒絕他保釋。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18065954/tam-10_5e6mv_1200x0.png)圖片來自：立場新聞
-戰友點評：【文燕】
- 譚得志向高院上訴申請保釋再次被拒，這標誌著香港正式進入司法三權合作的典範。譚需要繼續留在拘留所，直到11月17日。
-11月17日再回到粉嶺裁判處，而該粉嶺裁判法院就事之前拒絕譚得志保釋的那位法官。那麼問題就來了：譚得志再回到粉嶺裁判法院，裁判官蘇文隆會讓他保釋嗎？讓他保釋意味著推翻自己的判決，蘇法官願意嗎？因此，估計譚得志獲得保釋的機會很小。根據法律界人士指出，接下來案件將會轉到區域法院，譚可能要等到明年初才能有機會保釋出來。
+目前正试图与Oracle集团挽救TikTok美国业务的字节跳动也已申请了新加坡虚拟银行牌照，这将使这座城市成为该公司未来发展的亚洲滩头堡。据彭博社9月10日报道，字节跳动将在新加坡投资几十亿美元和在未来三年聘请数百名员工。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121832/003-3.jpg)
+现在说美中冲突是否会产生同样大规模和持久的影响还为时过早。在数据中心等领域，新加坡受益匪浅。以电源来衡量，它是世界上最大的存储和处理数据的存储库，仅Facebook Inc.就建立了一个11层的设施。香港因北京实施的国家安全法而失去了与美国的特殊贸易地位。新加坡与这两个国家都有自由贸易协定。去年，与中共国的关系扩大到包括电子商务。
 
-香港時事評論員李惠玲指出，香港政府以言入罪，指譚得志犯了“刑事條例煽動文字罪”。追溯該“煽動文字罪”屬殖民地年代舊法，幾十年從未採用過。現在進入國安法年代拿來狀告港人，實在可圈可點。當年刑事條例裡的“煽動文字罪”立法時，既沒人權法，也沒有《基本法》。因此，“刑事條例煽動文字罪”，被用在法庭上是一個案例，到底還能不能入罪，在法律界引起了很大的爭議。
+可以肯定的是，新加坡人比以往任何时候都不愿意接受无休止的海外专业人才来换取繁荣。不过，还有什么选择？ 7月的游客人数比去年同期下降了99.6％。新加坡航空有限公司将裁员五分之一。只要新的中共投资者不要求提供过多的外国就业准证，新加坡就会为他们提供庇护所，以抵御冷战，否则该岛的新兴创业经济将受到打击。
 
-那麼問題又來了，在“刑事條例煽動文字罪”還不肯定是否適用於香港法律前，就拒絕譚得志保釋，這意味著什麼？意味著要是最後判譚得志無罪釋放的話，那麼他這幾個月不就是白白坐了冤枉牢？
+金融资本不会走在同一条红地毯上。香港可以依靠三倍于经济规模的私营部门信贷来生存，而房地产市场则被推到了难以承受的水平。相同的策略在新加坡将是个政治自杀行为，因为新加坡的繁荣基石是房地产。房地产泡沫破裂可能会让自1959年执政的人民行动党造成沉重的代价。与香港不同，香港有庞大的中国内地经济支持，新加坡没有。它输不起。
 
-以前香港法庭是寧願放過一百個，也不願意殺錯一個，現在國安法年代，香港政府是寧願“有殺錯，無放過“。可見，譚得志這次保釋不被批准，這就是整個案情的標誌性。
+**新加坡是否会成为中共规避国际围堵的避风港和接轨国际经济与金融系统的后门？**
 
-香港是三權分立即：立法、行政、司法三種國家權力，分別由三個不同部門互相制約和平衡。司法權的獨立在於防止執法機構濫權。同時各種權力由於在行使的過程中獨立於其他公權力之外，不會受到其他權力所帶來的干擾。
+个人认为: 如果美国对中资银行与企业的制裁只局限在中国境内（包括香港、澳门），那把业务迁至新加坡将或许可以让这些企业暂避美国的制裁。但是如果这些企业以新加坡为海外基地，收集、储存并转送数据至中共国，必将导致美国把制裁扩大到全球，就像对华为的供应链一样，那将于事无补。而如果中共像利用香港金融系统一样利用新加坡，那将对该岛国造成非常严重的系统性风险。
 
-譚得志向高院上訴申請保釋再次被拒，這標誌了香港三權遭破壞，香港正式進入司法三權合作、三權相互影響。
+资料来源：
 
-以上觀點僅代表筆者本人
+[https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore](https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore)
 
-資料來源：立場新聞
+[https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms](https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms)
 
-[https://www.thestandnews.com/politics/%E4%BB%A5%E8%A8%80%E5%85%A5%E7%BD%AA-%E8%AD%9A%E5%BE%97%E5%BF%97%E8%A2%AB%E6%8E%A7%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E7%AD%89-9-%E7%BD%AA%E9%81%AD%E9%82%84%E6%8A%BC-%E9%AB%98%E9%99%A2%E5%86%8D%E6%8B%92%E4%BF%9D%E9%87%8B%E7%94%B3%E8%AB%8B/](https://www.thestandnews.com/politics/%E4%BB%A5%E8%A8%80%E5%85%A5%E7%BD%AA-%E8%AD%9A%E5%BE%97%E5%BF%97%E8%A2%AB%E6%8E%A7%E7%99%BC%E8%A1%A8%E7%85%BD%E5%8B%95%E6%96%87%E5%AD%97%E7%AD%89-9-%E7%BD%AA%E9%81%AD%E9%82%84%E6%8A%BC-%E9%AB%98%E9%99%A2%E5%86%8D%E6%8B%92%E4%BF%9D%E9%87%8B%E7%94%B3%E8%AB%8B/)
+[https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans](https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans)
+
+[https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources](https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources)
+
+[https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796](https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796)
+
+[https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban](https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban)
+
+by 天网灰灰
 
 0
