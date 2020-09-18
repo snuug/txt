@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/12 CCP病毒每日疫情直播簡報
-`2020-09-18 09:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/364995/)
+## 环保，如何成了中共国汽车工业发展的助推器
+`2020-09-18 12:10 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/366771/)
 
-英語標題 CCP Virus Pandemic Updates Ep232: a suspected mass food poisoning incident occurred in a primary school in Fuchuan County, Guangxi Province
+作者：美东香草山农场写作组  飞虹
 
-視頻重點
+2000年以后，中共国加入WTO，促使国内很多工业部门进入了大发展时期，汽车工业是其中最为突出的一个行业。下图展示了2001～2019年中共国国内汽车历年销售量，几乎呈直线增长态势，只是在最近两年才出现了一定程度的下滑。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18120805/Picture22-3.png)
+汽车工业的发展、汽车销售量的增加，从一个侧面反映了人民生活水平的提高，这是好事。但市场并不是无限的，由于人口数量、收入水平的限制，任何市场在经历了从无到有的快速发展后，都会到达饱和状态，何况国内还有6亿多人口月收入不足1000元人民币，无论如何也不能指望中共国达到同发达国家一样平均人手一车的程度。最近两年销量的下滑，恐怕就是国内汽车市场接近或达到饱和的一个信号。
 
-1. 9月12日中共官媒發表文章稱衛星發射再次失敗。今年以來，中共的衛星、火箭等發射屢遭失敗。
-2. CCP病毒在美導致近二十萬人死亡。美國最新一期時代周刊,繼2001年911恐襲事件後,第二次使用黑色封面。
-3. 兩週時間內東北迎來三次颱風，正值玉米生長、水稻初長的關鍵時期，颱風過境後一些農作物大片倒伏，主要的糧倉東北 水稻減產嚴重。
-4. 9月11日廣西富川縣一小學爆發疑似集體食物中毒，眾多學生午飯後，集體出現嘔吐症狀，醫院被擠爆。
-5. （Loose Women, 9/11）閻麗夢博士）好的，基因組序列就像我們人的指紋，所以基於這個，你可以識別這個病毒。所以我用SARS-COVID-2的基因組序列中存在的證據，告訴人們為什麼這是來自中共國的實驗室，為什麼他們是唯一製造病毒的人。
+但是，已经建立起来的汽车工业和汽车产能怎么办？这个为权贵阶层创造了大量财富的产业会满足于今后平稳的，甚至有可能萎缩的发展态势吗？当挖掘新市场的潜力越来越小的时候，如何才能保持市场销售维持在一定的规模，至少下滑得慢一些呢？从现有的汽车保有者下手是一个不错的选择。设法缩短汽车的使用寿命、加快现有汽车的更新换代，不就可以变相维持一定规模的汽车市场吗？但如何才能鼓励，甚至强制人们更换自己的爱车呢？仅靠竭力宣传汽车技术的更新起到的作用是有限的，但中共国永远不乏聪明人，此时，环保成了强制人们更换代步工具的绝佳借口。
 
+仿效欧美国家制定的汽车尾气排放标准，中共国也制定了自己的机动车污染物排放标准，并且标准的严格程度越来越向欧美看齐。但是，这些标准的实施对象却大相径庭。在欧美国家，这些标准主要针对生产企业，确保企业新生产汽车发动机的尾气排放能达到一定标准，如果超过标准，企业要接受巨额惩罚。但在中共国，这些标准虽间接却实则瞄向了汽车的拥有者。
 
-1. On September 12, the Chinese Communist Party’s official media announced that the satellite launch failed again. Since the beginning of this year, the CCP’s satellite and rocket launches have repeatedly failed.
-2. After the terrorist attack on 9/11, the latest issue of Time Magazine again adopted a dark front cover to alert the public. The CCP virus has taken nearly 200K lives in the US.
-3. Three typhoons occurred in Northeast China within two weeks. It was a critical period for growth of corn and rice. After the typhoon passed, some crops fell in large areas, and rice production in the main granary of Northeast China got severely reduced.
-4. On September 11, a suspected mass food poisoning incident occurred in a primary school in Fuchuan County, Guangxi Province. Many students vomitted collectively after lunch and the local hospital was overcrowded with these children suffering from food-positioning.
-5. (Loose Women, 9/11) (Dr. Li-meng Yan) The genome sequence is like our human fingerprint, so based on this you can recognize, identify this thing. So I use the evidence (that) exists in the genome sequence of SARS-COVID-2 to tell people why this is from the lab in Communist China, why they are the only one who made it.
+比如，国内实施国3标准的时间是2007年，实施国4标准的时间是2011年，这意味着，在这一时期，消费者购买了大量国3标准的汽车。但到了2018年，国内在陆续推行生产和销售国6标准汽车的同时，也开始了对国3甚至国4标准汽车使用的限制，一些地区规定，将停止对国3汽车的年检，及停止给国4汽车上牌，并对主动申请报废的汽车给予一定补贴。停止年检，意味着无法上路，停止上牌，意味着无法自由转让，哪怕是刚刚购买7～10年，行车里程达不到10万公里，各方面还运行良好的汽车，将很快面临被强制报废的命运。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18120754/Picture21-3.png)
+这样的政策，无疑整体上加快了汽车市场的周转，一定程度上维系了这个垄断行业所有者的利润来源，但对整个社会来说，却意味着巨大的浪费（当然，那些获得了报废补贴、被强制报废的汽车，不知道最终会落在何方），对消费者个人来说，则意味着必须更换汽车的又一笔额外支出。
 
+而作为借口的环保呢？他们真的那么重视吗？加强环保可采取的措施那么多，为什么只有这样的政策执行得那么严格？这些政策对环保的贡献究竟有多大？可想而知。
+
+编辑：美东香草山农场写作组 Kathy（文艺）
 
 0
