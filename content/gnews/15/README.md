@@ -1,46 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新加坡会成为中共下一个接轨国际金融系统的后门？
-`2020-09-18 12:34 SGHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/366897/)
+## 【香港要聞】【戰友點評】前刑事檢控專員江樂士：港警保一國兩制 應獲頒諾貝爾和平獎
+`2020-09-18 13:54 GM42` [轉載自GNews](https://gnews.org/zh-hant/367040/)
 
-![Singapore Guest Houses - Best Price + HD Photos of Guest Houses in Singapore](https://pix10.agoda.net/geo/city/4064/1_4064_02.jpg?s=1920x822)
-在美国对中共企业连出重拳、纠正不平等贸易与威胁国家安全的行为下，中共国的企业家们正前仆后继地前往新加坡设立业务。
+製作單位：戰友之家-粵語組
+蒐集：文燕
+編撰：文燕
+評論：文燕
+覆核：文非
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18134751/0_EoqUG_1200x0.png)圖片：立場新聞
 
-腾讯、阿里巴巴和字节跳动近日先后宣布数十亿美元的投资计划。
+【立場新聞】前刑事檢控專員江樂士（Grenville Cross）昨天（17日）在《中國日報》發表文章，題為“Protest violence: Criminal justice system must hold offenders fully accountable（示威暴力：刑事司法系統必須確保違法者負全責）”，認為香港員警拯救了香港，面對了數十年來最嚴峻的威脅，即使有人犧牲香港整座城市以傷害中國，但警察決心捍衛這座城市。他指警隊成功令到“一國兩制”得以保存，奪得諾貝爾和平獎是受之無愧（if any Nobel Peace Prizes are up for grabs, there could be no better recipient）。
+ 江樂士指，去年 6 月 9 日至 11 月 29 日，受傷的港警至少 483 人，被多種武器攻擊而受傷。警隊多個月的“專業精神”，避免了如美國警察造成有市民死亡，又指示威者以“玉石俱焚”（If we burn, you burn with us）為口號，顯示他們樂於摧毀香港，甚至幾乎成功。他反指，若當時警方示弱，一旦中國政府派遣解放軍，只會令資本主義制度造成深遠影響。
+ 江樂士曾接受《無線新聞》訪問，表態支持逃犯條例修訂，指內地司法制度近年有很大進步，不應過分憂慮；他又曾接受中國官媒《中央電視臺》旗下“中國環球電視網”訪問時稱，去年反修例運動引發大量暴力示威，香港獨立運動興起，認為北京是在“別無選擇”(no option) 下實施“港區國安法”。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18134837/nobelprize-21_dPTo8_1200x0.png)圖片：立場新聞
+戰友點評：【文燕】
+ 看完整篇報導，江樂士為香港警察站台，“擦中共鞋子”的立場非常鮮明。文章中他認為香港能保存一國兩治要歸功於香港警察奮不顧身地捍衛這座城市，如果香港員警奪得諾貝爾和平獎是受之無愧的。
+ 也許江樂士最近沒有留意國際新聞。中國外交部長王毅在8月底訪問歐洲，當時他嚴厲地警告挪威，不要用《諾貝爾和平獎》來干涉中國內政。王毅之所以有這番言論，原因是當時挪威部分議員提名香港人奪取諾貝爾和平獎，令中共非常惱火。現在江樂士要支援香港員警奪取《諾貝爾和平獎》，這不是跟王毅唱反調嗎？江樂士是不是要利用國際勢力來干預中國內政？您這麼做是違反《香港國安法》。
+ 有趣的是，在西方有《諾貝爾和平獎》，十年前中方就有《孔子和平獎》。第一屆獲獎者是當時臺灣國民黨主席連戰，得獎原因是連戰令兩岸關係跨前了一步；結果連戰辦公室回應：“多謝了，我們不會來領獎”。第二屆《孔子和平獎》得獎者是普京，可惜當時執政黨替普京回應：“對不起，我們不要！” 後來《孔子和平獎》也就不了了之。我個人建議江樂士應該提名香港員警《孔子和平獎》，這樣肯定是愛中共，肯定是政治正確。
+ 時事評論員李惠玲指出，江樂士先生作為英國人，來自西方自由民主國家，出身律師，在香港的法律界身經百戰。可是他今天所擁抱的卻不是西方世界的民主、自 由價值，實在令人唏噓。
 
-腾讯在被川普总统8月6日的行政命令打击与印度禁止一系列的手机应用程序后，南韩的PUBG集团也宣布停止与腾讯在印度游戏分销的合作。彭博社于9月15日报道新加坡将成为该公司的区域总部。据匿名人士透露，该公司也计划把包括国际游戏在内的部分业务迁离中国。腾讯的招聘网站9月18日显示该公司计划招聘超过70个职位，涉及领域很广，包括销售、客服、技术开发、人事部、产品开发、法律和政策事务以及财务等。但律师指出即使把业务迁至新加坡也无法规避印度的《信息科技法》第69（A）条所带来的限制。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121543/001.jpg)
-阿里巴巴在于2016年以30亿美元收购新加坡网购平台Lazada的90%控制权后，近日以12亿美元收购AXA办公楼的50%股权。该集团传将再以30亿美元收购电召、外卖与支付商Grab Holdings Inc. Grab 正从一家东南亚电召公司转向以金融为核心的区域超级应用程序。据路透社6月报道，Grab申请了新加坡网银行牌照和腾讯支持的新加坡在线游戏开发商Sea Ltd.已入围新加坡金融管理局网银执照的筛选名单。阿里巴巴的蚂蚁集团也申请了网银牌照，但是申请的是不带零售银行业务的wholesale digital banking license.![]()
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121705/002.jpg)
-在新加坡经营一家受监管的银行会获得一笔宝贵的好处：免费进入美国主导的全球金融网络。如果北京决定运行自己的独立金融系统，这对于中共金融科技公司可能很重要。这种推动力可能来自中共的数字货币，它可能会侵蚀蚂蚁金融支付和腾讯的微信支付建立的护城河。此外，彭博资讯（Bloomberg Intelligence）指出，入股Grab可以立即让阿里巴巴利用Grab在东南亚的客户数据帮助阿里巴巴支持的Lazada与腾讯支持的竞争对手Shopee抗衡。
+以上觀點僅代表筆者本人
 
-目前正试图与Oracle集团挽救TikTok美国业务的字节跳动也已申请了新加坡虚拟银行牌照，这将使这座城市成为该公司未来发展的亚洲滩头堡。据彭博社9月10日报道，字节跳动将在新加坡投资几十亿美元和在未来三年聘请数百名员工。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121832/003-3.jpg)
-现在说美中冲突是否会产生同样大规模和持久的影响还为时过早。在数据中心等领域，新加坡受益匪浅。以电源来衡量，它是世界上最大的存储和处理数据的存储库，仅Facebook Inc.就建立了一个11层的设施。香港因北京实施的国家安全法而失去了与美国的特殊贸易地位。新加坡与这两个国家都有自由贸易协定。去年，与中共国的关系扩大到包括电子商务。
+資料來源：獨立媒體
 
-可以肯定的是，新加坡人比以往任何时候都不愿意接受无休止的海外专业人才来换取繁荣。不过，还有什么选择？ 7月的游客人数比去年同期下降了99.6％。新加坡航空有限公司将裁员五分之一。只要新的中共投资者不要求提供过多的外国就业准证，新加坡就会为他们提供庇护所，以抵御冷战，否则该岛的新兴创业经济将受到打击。
+[https://www.thestandnews.com/politics/%E5%89%8D%E5%88%91%E4%BA%8B%E6%AA%A2%E6%8E%A7%E5%B0%88%E5%93%A1%E6%B1%9F%E6%A8%82%E5%A3%AB-%E6%B8%AF%E8%AD%A6%E4%BF%9D%E4%B8%80%E5%9C%8B%E5%85%A9%E5%88%B6-%E6%87%89%E7%8D%B2%E9%A0%92%E8%AB%BE%E8%B2%9D%E7%88%BE%E5%92%8C%E5%B9%B3%E7%8D%8E/](https://www.thestandnews.com/politics/%E5%89%8D%E5%88%91%E4%BA%8B%E6%AA%A2%E6%8E%A7%E5%B0%88%E5%93%A1%E6%B1%9F%E6%A8%82%E5%A3%AB-%E6%B8%AF%E8%AD%A6%E4%BF%9D%E4%B8%80%E5%9C%8B%E5%85%A9%E5%88%B6-%E6%87%89%E7%8D%B2%E9%A0%92%E8%AB%BE%E8%B2%9D%E7%88%BE%E5%92%8C%E5%B9%B3%E7%8D%8E/)
 
-金融资本不会走在同一条红地毯上。香港可以依靠三倍于经济规模的私营部门信贷来生存，而房地产市场则被推到了难以承受的水平。相同的策略在新加坡将是个政治自杀行为，因为新加坡的繁荣基石是房地产。房地产泡沫破裂可能会让自1959年执政的人民行动党造成沉重的代价。与香港不同，香港有庞大的中国内地经济支持，新加坡没有。它输不起。
-
-**新加坡是否会成为中共规避国际围堵的避风港和接轨国际经济与金融系统的后门？**
-
-个人认为: 如果美国对中资银行与企业的制裁只局限在中国境内（包括香港、澳门），那把业务迁至新加坡将或许可以让这些企业暂避美国的制裁。但是如果这些企业以新加坡为海外基地，收集、储存并转送数据至中共国，必将导致美国把制裁扩大到全球，就像对华为的供应链一样，那将于事无补。而如果中共像利用香港金融系统一样利用新加坡，那将对该岛国造成非常严重的系统性风险。
-
-资料来源：
-
-[https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore](https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore)
-
-[https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms](https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms)
-
-[https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans](https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans)
-
-[https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources](https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources)
-
-[https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796](https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796)
-
-[https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban](https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban)
-
-by 天网灰灰
+[https://www.thestandnews.com/politics/%E6%B1%9F%E6%A8%82%E5%A3%AB%E6%92%B0%E6%96%87%E4%BF%83%E9%A0%92%E8%AB%BE%E8%B2%9D%E7%88%BE%E7%8D%8E%E4%BA%88%E6%B8%AF%E8%AD%A6-%E6%94%BF%E7%A0%94%E6%9C%83-%E4%BD%95%E5%90%9B%E5%A0%AF%E7%99%BC%E8%B5%B7%E8%81%AF%E7%BD%B2%E9%9F%BF%E6%87%89/](https://www.thestandnews.com/politics/%E6%B1%9F%E6%A8%82%E5%A3%AB%E6%92%B0%E6%96%87%E4%BF%83%E9%A0%92%E8%AB%BE%E8%B2%9D%E7%88%BE%E7%8D%8E%E4%BA%88%E6%B8%AF%E8%AD%A6-%E6%94%BF%E7%A0%94%E6%9C%83-%E4%BD%95%E5%90%9B%E5%A0%AF%E7%99%BC%E8%B5%B7%E8%81%AF%E7%BD%B2%E9%9F%BF%E6%87%89/)
 
 0

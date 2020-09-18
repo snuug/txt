@@ -1,29 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅! 美國呼籲台美建交、承認台灣為獨立國家,已提交「共同決議案」
-`2020-09-18 12:05 GM77` [轉載自GNews](https://gnews.org/zh-hant/366734/)
+## 新加坡会成为中共下一个接轨国际金融系统的后门？
+`2020-09-18 12:34 SGHIMALAYA` [轉載自GNews](https://gnews.org/zh-hant/366897/)
 
-編撰:文珺、文錦、文肯尼
+![Singapore Guest Houses - Best Price + HD Photos of Guest Houses in Singapore](https://pix10.agoda.net/geo/city/4064/1_4064_02.jpg?s=1920x822)
+在美国对中共企业连出重拳、纠正不平等贸易与威胁国家安全的行为下，中共国的企业家们正前仆后继地前往新加坡设立业务。
 
-美國國務次卿科拉克(Keith Krach)17日抵台參訪,**共和黨議員帝芬尼(Tom Tiffany)同天便**[**發佈**](https://tiffany.house.gov/media/press-releases/tiffany-introduces-bill-scrap-one-china-policy-resume-normal-ties-taiwan)**聲明表示他已於16日提交「第117號共同決議案(H.Con.Res. 117-116th)」,代表「國會意見」要求美國當局恢復1979年前與臺灣正式邦交關係、終結「一中政策」以承認臺灣為獨立國家,同時支援臺灣加入聯合國參與國際交流,以及簽署自由貿易協定(FTA)**。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18115814/%E6%88%AA%E5%B1%8F2020-09-18-%E4%B8%8B%E5%8D%8811.55.10-1.png)*2020年9月17日,美國國務院次卿基思·克拉奇(Keith Krach)率團抵台*
-聲明指出,**1979****年美國總統卡特(Jimmy Carter)未經國會同意便與臺灣斷交,轉向支援中國共產黨政權,一夕破壞了美台原本穩定且正常的外交關係。**所幸台美藉由「[台灣關係法](https://www.ait.org.tw/our-relationship/policy-history/key-u-s-foreign-policy-documents-region/taiwan-relations-act/)」(TRA)」使經濟與文化活動保持友好,也授權美國軍售臺灣以利對抗中國打壓。
+腾讯、阿里巴巴和字节跳动近日先后宣布数十亿美元的投资计划。
 
-帝芬尼也提及已故總統雷根(Ronald Reagan)的對台「[六項保證](https://www.upmedia.mg/news_info.php?SerialNo=95050)」,雖然確立美國不承認中國持有台灣主權,但可惜美國對台仍未正式建交,還在用對待北韓和伊朗極端政權方式,對臺灣民選政府。
+腾讯在被川普总统8月6日的行政命令打击与印度禁止一系列的手机应用程序后，南韩的PUBG集团也宣布停止与腾讯在印度游戏分销的合作。彭博社于9月15日报道新加坡将成为该公司的区域总部。据匿名人士透露，该公司也计划把包括国际游戏在内的部分业务迁离中国。腾讯的招聘网站9月18日显示该公司计划招聘超过70个职位，涉及领域很广，包括销售、客服、技术开发、人事部、产品开发、法律和政策事务以及财务等。但律师指出即使把业务迁至新加坡也无法规避印度的《信息科技法》第69（A）条所带来的限制。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121543/001.jpg)
+阿里巴巴在于2016年以30亿美元收购新加坡网购平台Lazada的90%控制权后，近日以12亿美元收购AXA办公楼的50%股权。该集团传将再以30亿美元收购电召、外卖与支付商Grab Holdings Inc. Grab 正从一家东南亚电召公司转向以金融为核心的区域超级应用程序。据路透社6月报道，Grab申请了新加坡网银行牌照和腾讯支持的新加坡在线游戏开发商Sea Ltd.已入围新加坡金融管理局网银执照的筛选名单。阿里巴巴的蚂蚁集团也申请了网银牌照，但是申请的是不带零售银行业务的wholesale digital banking license.![]()
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121705/002.jpg)
+在新加坡经营一家受监管的银行会获得一笔宝贵的好处：免费进入美国主导的全球金融网络。如果北京决定运行自己的独立金融系统，这对于中共金融科技公司可能很重要。这种推动力可能来自中共的数字货币，它可能会侵蚀蚂蚁金融支付和腾讯的微信支付建立的护城河。此外，彭博资讯（Bloomberg Intelligence）指出，入股Grab可以立即让阿里巴巴利用Grab在东南亚的客户数据帮助阿里巴巴支持的Lazada与腾讯支持的竞争对手Shopee抗衡。
 
-另外帝芬尼站在共和黨立場,回溯美國總統川普(Donald Trump)任內與台交涉政績,包含2016年12月當選後,直接打破美台領導人40年紀錄、與臺灣總統蔡英文[聯 機對話](https://www.upmedia.mg/news_info.php?SerialNo=8409);2018年通過「[臺灣旅行法](https://www.upmedia.mg/news_info.php?SerialNo=37078)」;2019年8月也批准軍售臺灣總價達80億美元(約新臺幣2327億元)、共66架[F-16戰機](https://www.upmedia.mg/news_info.php?SerialNo=69762)。 近期除派出衛生部長[阿札爾](https://www.upmedia.mg/news_info.php?SerialNo=93514)(Alex Azar)及國務次卿訪台,也正在談論自由貿易協定簽署與另一波的國防軍售。
+目前正试图与Oracle集团挽救TikTok美国业务的字节跳动也已申请了新加坡虚拟银行牌照，这将使这座城市成为该公司未来发展的亚洲滩头堡。据彭博社9月10日报道，字节跳动将在新加坡投资几十亿美元和在未来三年聘请数百名员工。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18121832/003-3.jpg)
+现在说美中冲突是否会产生同样大规模和持久的影响还为时过早。在数据中心等领域，新加坡受益匪浅。以电源来衡量，它是世界上最大的存储和处理数据的存储库，仅Facebook Inc.就建立了一个11层的设施。香港因北京实施的国家安全法而失去了与美国的特殊贸易地位。新加坡与这两个国家都有自由贸易协定。去年，与中共国的关系扩大到包括电子商务。
 
-即使此次的共同決議案僅為國會參眾兩院合意表態,無須經總統簽名生效不具法律約束。 但蒂芬尼也強調,**美國與世界對話不需要中國同意,要求美國不再附和北京「一中幻想」,表示現在正是當局以實際政策回應台灣作為「自由、民主與獨立國家事實」的時機。**
+可以肯定的是，新加坡人比以往任何时候都不愿意接受无休止的海外专业人才来换取繁荣。不过，还有什么选择？ 7月的游客人数比去年同期下降了99.6％。新加坡航空有限公司将裁员五分之一。只要新的中共投资者不要求提供过多的外国就业准证，新加坡就会为他们提供庇护所，以抵御冷战，否则该岛的新兴创业经济将受到打击。
 
-帝芬尼最後補充,既然阿拉伯聯合公國及巴林都能與以色列關係正常化,那麼美國與臺灣的友誼勢必也能藉實質建交確立。
+金融资本不会走在同一条红地毯上。香港可以依靠三倍于经济规模的私营部门信贷来生存，而房地产市场则被推到了难以承受的水平。相同的策略在新加坡将是个政治自杀行为，因为新加坡的繁荣基石是房地产。房地产泡沫破裂可能会让自1959年执政的人民行动党造成沉重的代价。与香港不同，香港有庞大的中国内地经济支持，新加坡没有。它输不起。
 
-除了以上提到的川普總統當選後打破美台領導人40年來的記錄,與臺灣總統蔡英文連線對話,通過臺灣旅行法,2019年批准對台80億美元軍售和美國衛生部長訪台以及這次國務次卿訪台,還有美國之外的捷克共和國參議長維斯特奇爾率領89人的訪問團於8月30日至9月4日訪台,包括這個月4日臺灣、美國、日本、歐盟在臺灣共同舉辦” 重組供應鏈:促進理念相近夥伴間之韌性論壇」。 臺灣近兩個月的外事活動以及曝光度前所未有。
+**新加坡是否会成为中共规避国际围堵的避风港和接轨国际经济与金融系统的后门？**
 
-三年來,爆料革命逐漸喚醒了世界正義的力量。 2020年以來的這次新冠病毒也讓世界感受到了死亡的威脅和中共帶來的遮天蔽日的黑暗。 **在此背景之下,會有越來越強烈的民意促使越來越多的國家拋棄中共掛在嘴邊的”一個中國的原則”,而去擁抱文明的臺灣。**
+个人认为: 如果美国对中资银行与企业的制裁只局限在中国境内（包括香港、澳门），那把业务迁至新加坡将或许可以让这些企业暂避美国的制裁。但是如果这些企业以新加坡为海外基地，收集、储存并转送数据至中共国，必将导致美国把制裁扩大到全球，就像对华为的供应链一样，那将于事无补。而如果中共像利用香港金融系统一样利用新加坡，那将对该岛国造成非常严重的系统性风险。
 
-參考連結:
+资料来源：
 
-https://www.upmedia.mg/news\_info.php?SerialNo=96235
+[https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore](https://www.bloomberg.com/opinion/articles/2020-09-16/haven-from-u-s-china-cold-war-what-s-in-it-for-singapore)
+
+[https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms](https://www.businessinsider.in/tech/apps/news/tencent-joins-alibaba-and-bytedance-in-making-singapore-its-new-headquarters-after-india-ban-and-tensions-in-the-us/articleshow/78125459.cms)
+
+[https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans](https://www.bloombergquint.com/business/tencent-picks-singapore-as-asia-hub-after-india-u-s-bans)
+
+[https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources](https://www.straitstimes.com/business/companies-markets/alibabas-lazada-to-announce-chun-li-as-new-ceo-sources)
+
+[https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796](https://www.channelnewsasia.com/news/business/pubg-corp-says-tencent-not-to-publish-mobile-game-in-india-13091796)
+
+[https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban](https://www.bloomberg.com/news/articles/2020-09-11/tiktok-owner-plans-to-spend-billions-in-singapore-after-u-s-ban)
+
+by 天网灰灰
 
 0
