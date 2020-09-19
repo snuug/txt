@@ -1,25 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共衛健委：秋冬季聚集性疫情須5-7天內全員核酸檢測！因D614G突變感染力暴增？
-`2020-09-19 08:43 GM64` [轉載自GNews](https://gnews.org/zh-hant/368678/)
+## （Spanish+English）閆博士9月15日福克斯Tucker Carlson Tonight採訪
+`2020-09-19 12:03 GM62` [轉載自GNews](https://gnews.org/zh-hant/369078/)
 
-內病毒專題:文文 校對:天藍色獨角色
+西班牙語標題 La entrevista de la Dra.Yan del 15 de septiembre con Fox, Tucker Carlson Tonight
 
-9月18日，中共衛生健康委主任馬曉偉表示，秋冬季疫情防控任務艱巨，要確保一旦發現聚集性疫情，在5至7天內完成所在地區全員核酸檢測，最大程度控制疫情擴散蔓延。
+翻譯：帅虎 校對：謎擬Q 視頻：文靓
 
-可見中共對秋冬季疫情的“嚴防死守”程度，中共知道自己的試劑靈敏度低造成了衆多無症狀感染者潛伏在人群中，疫情重新爆發可能性極大。另外，這一嚴格防範措施也許和目前病毒D614G突變，病毒傳染性爆增9-10倍有關（圖1）。
+視頻簡介
+病毒來自中共實驗室 只有他們可以做出這種病毒
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19082647/image0-6-2.jpg)
-
-目前全球流行的中共病毒毒株已經幾乎都具有D614G突變特征（接近100%，圖2），這與最初在武漢爆發的原始毒株不同，武漢爆發初期病幾乎都不具備這一突變特征。D614G突變指的是病毒的第614氨基酸位點 D(天冬氨酸)到 G(甘氨酸)的突變，位于S蛋白上。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19083220/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-09-19-202916.jpg)
-
-9月15日，《細胞》雜志發表了一項新研究，通過冷凍電鏡揭示了新冠病毒D614G突變S蛋白的結構，發現D614G其實反而降低了S蛋白與ACE2的親和力，但是突變之後的S蛋白表現出了更加“開放”的構象，更容易與ACE2結合（圖3）。因此，一旦再次出現大規模流行情況，其防控難度將大增。6月11日起北京新發地所發生的聚集性感染已經具備D614G突變特征。
-
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19083309/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2020-09-19-203051-1.jpg)
-
-9月下旬國務院聯防聯控機制將對17省（自治區、直轄市）開展秋冬季新冠肺炎疫情防控專項督查，督促各地落實各項防控措施，及時堵漏洞、補短板、強弱項，堅決防止秋冬季疫情反彈。根本目的是爲維護社會穩定，繼續共産黨的統治。
+El virus proviene del laboratorio del PCCh, ello son los únicos que pueden fabricar este virus
 
 0
