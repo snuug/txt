@@ -1,138 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生首發中文單曲《滄海一聲嘯》MV 正式版
-`2020-09-19 04:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/368227/)
+## 在韓中國朝鮮族人抗議中共推行滅絕民族語言的非法政策
+`2020-09-19 08:22 GM30` [轉載自GNews](https://gnews.org/zh-hant/368649/)
 
-視頻來源：郭文貴先生油管
-**歌手：郭文貴**
+**作者：喜馬拉雅韓國農場 恩真**
 
-滄海一聲嘯
- A roar of the vast sea 
-滔滔滅共潮
- The tidal waves surging up to take down the CCP 
-四海英雄聚今朝
- Heroes from all over the world get together 
-蒼天笑
- A laugh from heaven 
-拔劍斬紅妖
- Take out a sword to behead the red demon 
-浪沙淘盡毒霾消
- The waves and sands wash off the haze filled with poison
+2020年9月19日，在韓中國朝鮮族人聚集在中共大使館前，一同抗議中國共産黨對各民族的 滅絕語言，強制漢化（赤化）的政策。因爲中共病毒在韓國反複爆發，因韓國政府的防疫措施，限制集會人數，今天只聚集了10人參與活動。今天有韓國媒體對本次活動進行了現場采訪，另外有一位來自沈陽的人權運動的人士從加拿大朋友那裏得知了這次活動，參與本次活動。
 
-整整七十年它把中華人⺠奴役
- Having enslaved the Chinese people for a total of 70 years 還讓這片土地變得滿目瘡痍
- Rendered this land full of ruins and scars 
-全世界投毒製造各種生化武器
- Dropped the virus to the whole world, making all kinds of biochemical weapons 
-我去它大爺的人類命運共同體
- Screw the so-called Community with Shared Future for Mankind 
-三載爆料攜手戰友行天道
- In the three years of whistleblowing we carried out God’s will with fellow fighters 
-震醒我中華同胞，興起了滅共浪潮
- Wake up my fellow Chinese compatriots and set off a wave to take down the CCP 
-壯志衝雲霄，看那國旗飄飄
- In the sky our aspirations are soaring with the flag of NFSC fluttering 
-滅掉邪靈惡黨神州陽光普照
- Take down the evil CCP and bring sunshine back to China
+目前中國境內的朝鮮族主要分布在東北三省，位于吉林省的延邊朝鮮族自治州和⻓白朝鮮族自治縣是中國兩個最大的朝鮮族自治地區。
 
-江山笑
- A laugh from mountains and rivers 
-天宇搖
- Shakes the sky and universe 
-誰負誰勝出已分曉
- Who is the victor or loser is now obvious 
- ⻛蕭蕭
- The wind whistles 
-真相掀怒潮
- The truth sets off raging tides 
-盤古開天覆紅朝
- Overthrow the red regime of tyranny as Pangu created the earth and sky
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19080844/1-83.jpg)
 
-三年多的爆料就是跟丫死磕
- Whistleblowing for over 3 years is just to keep smashing the CCP 
-重磅實錘每天都有，一點兒也不嫌多
- We can never have too many breaking news and solid proofs every day
+對于少數民族的民族語言國家“憲法”明確規定了各⺠族有使用和發展本⺠族語言文字的自由，都有保持或改革本⺠族⻛俗習慣的自由。然而中共制定的法律一直是維系中共體制和奴役14億人民的手段，按照需要可以肆意篡改和糟蹋。
 
-以美滅共以共滅共，還得靠我們戰友們行動
- Our fellow fighters’ actions are crucial to taking down the CCP with forces from both inside of CCP and America
+中共對包括朝鮮民族在內的其它少數民族的打壓和排斥由來已久。自新疆維吾爾自治區的教育改造事件以來，中共政府不斷加強中共思想的統一戰略。直到今年8月底，中國內蒙教育廳要求，從今年9月1日新學期開始，停止使用蒙語語文教材，而改用漢語語文教材。因此大量蒙古族人站紛紛出來走向街頭抗議中共政府的這個舉措。
 
-天佑我中華兒女，共建聯邦新中國
- God bless our Chineses men and women who together build the New Federal State of China 
-黑夜現曙光，照亮東方的天
- The dawn comes up in the darkness, lighting up the sky in the east 
-戳破共匪的謊言，我準備了三十多年， 
- To expose the CCP’s lies I prepared for more than three decades 
-越過了死亡幽谷，我踏上了滅共之路
- I crossed the valley of death, embarking on a journey to take down the CCP 
-縱有太多凶險，我們不枉此生虛度
- Even with so much danger, our lives are not wasted
+據韓國聯合日報報道，部分中國朝鮮族學校相關人士稱，從新學期開始這個學校從小學到初中的教學都將使用全國統一的語文教材，不再使用延邊教育出版社出版的朝鮮語文教材。這個政策會從部分學校開始擴展到地方，然後逐步覆蓋到所有的朝鮮族學校。可⻅中共要滅絕不是單單幾個民族的語言，而是同化所有的民族便于中共奴役人民。
 
-清⻛笑
- A laugh of breezes 
-終歸正道
- finally returns to the Way of Righteousness 
-一舟踏浪自逍遙
- An unfettered boat rides freely on the waves 
-蒼生嘯
- A roar of Lao Baixing, Old Hundred Names 
-熱血萬丈高
- Their passions are running high 
-戰友們豪氣穿雲霄
- Our fellow fighters’ heroic spirit rises up through the clouds and sky 
-盤古相聚在今朝
- Time to get together at Pangu now 
-仰天⻓嘯贊英豪
- Look up and roar, praising the heroes of ours
-
-Whatta you waiting for 
-你還在等什麼? 
- The world is safe no more. 
-世界已不再安全
- CCP lyin, The people’s dyin 
-中共撒謊，人們死亡
- We are running outta time 
-時不待我
- Action! 
-行動! 
- Take Down 
-滅共
- Action 
-行動滅共
- Action 
-行動
- Take down the CCP 
-滅掉中共
- Take Down 
- Take down the CCP 
-滅掉中共啦啦啦啦啦
- Lah lah lah lah lah 
- CCP 你完了
- CCP, you’re finished
-
-原曲:[沧海一声笑] 
- Original Song: [One Roar of Laughter in the Vast Sea] 
-詞曲:⻩沾
- Lyrics and Music by: James Wong
-
-改編:【滄海一聲嘯】 
- Adaptive Song: [A Roar of the Vast Sea] 
-歌詞:爆料革命戰友
- Lyrics by: The Fellow Fighters of the Whistleblowers’ Movement 
- Rap詞:⻬馥偉唐平
- Rap Lyrics by: Qi Fuwei, Tang Ping
-
-編曲:盲人草根
- Arrangement: Mangren Caogen 
-後期縮混:Q.May 
-盲人草根
- Tex Hill 
- Downmix: Q.May, Mangren Caogen, Tex Hill 
-和音:GTV空中唱響團隊
- Chord: GTV Sky Shouters 
-製作人:唐平
- Producer: Tang Ping 
-監製: 唐平⻬馥偉
- Supervisor: Tang Ping, Qi Fuwei
+（文章內容僅代表作者觀點）
 
 0

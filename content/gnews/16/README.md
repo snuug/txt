@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中英文視頻版】2020/09/13 CCP病毒每日疫情直播簡報
-`2020-09-19 07:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/368457/)
+## 加強新時代民營經濟統戰工作是“黨權”公開宣示侵入民營經濟領域是公開搶劫—–1956年毛時代公私合營運動的翻版(現代版的工商業社會主義改造再次上演)
+`2020-09-19 10:55 GM64` [轉載自GNews](https://gnews.org/zh-hant/368889/)
 
-英語標題 CCP Virus Pandemic Updates Ep233:  Inner Mongolia cancelled Mongolian language teaching and began to destroy objects with Mongolian culture
+內新聞：藍蓮花 校對：天藍色獨角色
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19104655/screenshot_2020-09-19-22-17-23-254_discord.jpg)
+2020年9月15日中共中央辦公廳印發《關於加強新時代民營經濟統戰工作的意見》，並在當日的新聞聯播中重點播報。這個文件的下發預示著民營企業的社會主義改造在中共國第二次上演，很快全國就不會再有私營企業老板了，民營私營企業都會轉變成像60、70年代那樣的社會主義全民所有制企業，再也不會有資本家了，私營資本民間資本將再壹輪被收割，稱呼“老板”的時代結束了。
 
-視頻重點
+首先，我們看看什麽是公私合營。
+1956年1月10日，北京首先宣布實現全行業公私合營，自此全國範圍出現社會主義改造高潮，開始對49年後沒有逃離大陸的資本主義工商業實行全行業公私合營。隨後，上海、天津、廣州、武漢、西安、重慶、沈陽等大城市以及50多個中等城市相繼實現了公私合營，中共對資本主義私股的贖買改行定息制度，統壹規定年息五厘，作為紅利期限20年。企業的生產資料由中共統壹調配使用，資本家除定息外，不再以資本家身份行使職權，並在勞動中逐步改造為自食其力的勞動者。1966年9月隨著文化大革命運動開始，停止發放股息，10年時間，中共完成了公私合營企業最後轉變為社會主義全民所有制，等同於壹夜之間就將所有民營私營資本收歸黨有。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19104722/screenshot_2020-09-19-22-17-43-556_discord.png)
+回顧歷史重看50年代中共是怎麽變著花樣完成搶劫的，我們僅看當時全國最發達的工商業城市上海是“如何”改制的。
 
-1. 雲南瑞麗一小區發現CCP新冠病例，該小區已被封閉。瑞麗緊急封城，全市市民被要求做核酸檢測。年初疫情爆發以來，中國經濟受到重挫，導致很多商家經營困難。
-2. 內蒙古取消蒙語教學，並開始破壞帶有蒙古族文化的物件。蒙古族學生及家長抗議中共對他們掀起的”文化大革命”似的運動，拒絕複課。中共用取消學生學籍，來威脅學生，讓他們返校。
-3. 中共繼續擴大中型銀行債務，金融風險系統化加劇。同時，中共央行前副行長吳曉靈提醒房產泡沫恐隨時破滅。
-4. 從7月24日到今天，安徽合肥廬江縣遭受洪水，災情仍沒有任何緩解跡象。水患接近兩個月，災民生活艱難；政府不積極救災的，卻在党媒人民網秀了幾張災區受淹後的”美景照”。
-5. （9/9）“Take Down the CCP”在美國現在你們看到有多少孩子唱啊。真的是震撼。就美國那小孩子“Take down the CCP, take down the CCP”每個人跳着唱。一家一家人唱，好多人唱就唱哭了，突然找到同感了。
+1953年中共下發了《關於利用、限制、改造資本主義工商業的意見》，並提出了在過渡時期的總路線，“對資本主義工商業的社會主義改造”即成為總路線的重要內容之壹，而“對資改造”最重要的實現形式就是“公私合營”。1953年底、1954年初，在過渡時期總路線的影響下，上海的不少私營工業企業主動提出自願合營要求，共有316家私營工業企業向政府部門表示了合營要求，其中不乏具有行業代表性的著名大型企業。如大隆機器廠、上海水泥廠、浦東電氣公司、華生電器廠、信誼藥廠、新亞藥廠、中國化學工業社、大中華火柴廠、廣勤紗廠、三友實業社、大中華橡膠廠、美亞綢廠、章華毛紡廠、景福衫襪廠等等。
 
+為什麽“資本家”們這麽積極呢？
+起因於1952年的“三反”、“五反”運動對“資本家”們造成了恐懼心理，資本家階級已經被列為社會主義革命要消滅的對象。據記錄，運動中工人店員揚眉吐氣，對資本家呼來吼去，揭發檢舉此起彼伏。資本家人人自危，紛紛“坦白”交待，許多人主動低頭認罪爭取過關。上海在“五反”運動中，四個月自殺企業主及家屬就達到了876人，在生與死的選擇下資本家群體失去了繼續經營的信心。
 
-1. A new case of CCP Covid-2 has been found in a community of Ruili, Yunnan province. The community and the whole city has been urgently sealed off and people across the city are being asked to take virus nucleic acid tests. The Chinese economy has suffered a major setback since the outbreak of the CCP virus pandemic earlier this year, making it difficult for many businesses to operate.
-2. Inner Mongolia cancelled Mongolian language teaching and began to destroy objects with Mongolian culture. Mongolian students and their parents protested against the CCP’s “Cultural Revolution” campaign and refused to resume classes. The CCP threatened the students to return to school by cancelling their school registration.
-3. The CCP continues to expand the debts of medium-sized banks. The systematic financial risks is intensifying. Meanwhile, Wu Xiaoling, former vice president of Central Bank of China warned that the housing bubble might collapse at any moment.
-4. From July 24 to today, Lujiang County, Hefei, Anhui Province suffered floods, and the disaster still shows no signs of relief. The floods lasted for nearly two months, and the lives of the victims were difficult; the CCP government is not active in disaster relief, but has shown a few “beautiful pictures” of the flooded area on the CCP media People’s Daily Online.
-5. (9/9) This song “Take Down the CCP” in America, you know how many kids are singing this song right now? It’s stunning. You see American kids going “Take down the CCP, take down the CCP” and dancing while singing, these kids.Many families sang together and as they sang, they suddenly began to cry as their feelings resonated with the lyrics.
+在此僅舉老字號“永安百貨”壹例：
+上海永安百貨公司是1955年自願要求公私合營，1956年1月14日，永安宣布“公私合營”完成。這壹天，上海南京路上永安公司門樓上的老招牌“永安百貨”卸了下來，裝上了“公私合營永安公司”的霓虹燈。
 
+1966年，永安百貨改成“國營東方紅百貨商店”。1969年時再度更名為“上海第十百貨商店”。1988年，永安第三度改名，改為“華聯商廈”。到了2005年，又改回了“永安百貨“的店名。
+
+永安百貨的老板郭琳爽在公私合營後，擔任了壹段時間的總經理，後來還曾擔任上海市人大代表、市政協常委等。文革開始後仍因資本家身份遭到批鬥，1974年心臟病發病逝。
+
+這次中共文件直接指出統戰工作的對象是所有民營企業和民營經濟人士，包括民營企業主要出資人、實際控制人，民營企業中持有股份的主要經營者，民營投資機構自然人大股東，以及民營企業和民營經濟人士為主體的工商領域社會團體主要負責人，甚至延續至港澳工商界人士，和比較有規模的個體工商戶。統戰的目的就是先幹預後控制，和公私合營運動如出壹轍，60多年前的公私合營已經是真的再次上演了！
+
+其實去年9月20日，杭州市舉行全面實施“新制造業”動員大會，大會頒布了向百家重點企業派駐“政府事務代表”文件。杭州市政府將抽調100名機關幹部，進駐阿裏巴巴、吉利控股、娃哈哈等第壹批100家重點民營企業。今年這個文件下發前山西平遙古城許多深宅大院的戶主祖產被充公，都是中共“國進民退”盤剝百姓大政策的預演。這個文件的出臺是中共壹脈相承的既定政策，也不令人意外。
+
+我們看到，這次中共毫不遮掩對民營資本“割韭菜”的企圖，以黨務系統中共中央辦公廳的名義下發文件，宣示黨權、破壞法制，赤裸裸的幹預民營經濟，公開表達意圖搶劫民營經濟領域的狼子野心， 和1956年毛澤東時代公私合營運動何其相似，歷史在重復，現代版的工商業社會主義改造將再次上演，只是這次許多民營企業家還沒有警醒，提醒包括港澳的各界經濟人士擦亮眼睛認清中共的“暴政”本質，智慧應對。
 
 0

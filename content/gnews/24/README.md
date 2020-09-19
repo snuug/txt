@@ -1,27 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gnews熱點追蹤（第一期）〈中文字幕〉
-`2020-09-19 04:42 GM99` [轉載自GNews](https://gnews.org/zh-hant/368272/)
+## “我是音雄”第一季第五期–——選手陣容
+`2020-09-19 09:29 GMusic` [轉載自GNews](https://gnews.org/zh-hant/368748/)
 
-#### **戰友之家新聞譯製組**
+*我是音雄文字組荒漠甘泉，天涯客，山上的城整理*
 
-#### Collapse of Hong Kong 香港淪陷
+GTV “我是音雄” 大型音樂滅共節目第一季第五期，將於美東時間9月19日週六晚7點，暨北京時間9月20日週日早7點火熱直播。本期是俄羅斯農場主題，將有11名來自世界各地的參賽選手分享他們高昂的歌聲和不為人知的滅共心路歷程。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/08/17115934/Music_paper2-3-e1598108824490.jpg)
+在空中唱響discord上，開闢了一個專門為“我是音雄” 參賽選手展示和投票區，您可以為自己喜歡的選手投上寶貴的一票。
 
-Hello, this is your host Michael from Gnews Current Affairs. The latest video released online showed that a 12-year girl was subdued by a group of HK riot police on Xiyangcai South Street in broad daylight. She was viciously wrestled onto the ground, kicked and pinned by several police officers who apprehended her. Hong Kong, the previous harbor of freedom, has become a city of terror after the Chinese Communist Party passed their national security law.
+[https://discord.gg/AB9Xrrz](https://discord.gg/AB9Xrrz)
 
-大家好，我是Gnews熱點追蹤的主持人麥克。網上發佈的最新視頻顯示，光天化日之下一名12歲的女孩在西洋菜南街被一羣香港防暴警察制服。她被惡毒地摔在地上，踢倒，並被逮捕她的幾名警察釘住。在中共通過國家安全法後，曾經的自由之港香港已成爲恐怖之城。
+01 人性的光輝美西農場
 
-#### CCP’s Genocide towards Mongols 中共對蒙古人的種族滅絕
+音樂歌唱和追求民主自由是他的夢想。他在洛杉磯和休斯頓先後參加過三次遊行，今年6.27和7.4也在戰友之家平台上做過兩次演講。 “我是音雄” 讓他找到了用自己的歌聲唱出夢想的平台，希望通過這個平台結識更多心靈相通的戰友。
 
-Now turning to mainland China, no surprise, the CCP continues to enforce its illegitimate rule. The regime has forcibly implemented an education reform in Inner Mongolia which required students in schools to be taught in Mandarin exclusively, however, the public do not agree. After weeks of peaceful demonstrations, the CCP continues its suppression and escalates its actions for the crackdown. If the international community continues to tolerate, appease and compromise this regime, the Mongolians will encounter the fate of genocide.
+02 YUNO 文璟俄羅斯農場
 
-現在轉向中國大陸。這不足爲奇，中共一直在執行其非法統治。中共政權在內蒙古強制實施了一項教育改革。該改革要求學校的學生僅接受普通話授課，但是公衆對此並不認同。經過數週的和平抗議之後，中共繼續鎮壓並升級其行動。如果國際社會繼續容忍、安撫，和對該政權妥協，蒙古人將遭受種族滅絕的命運。
+2019年末她正式加入爆料革命行列並成為戰友之家的義工。她榮幸的參加了新中國聯邦64建國宣言的俄文翻譯工作，雖然辛苦卻樂在其中。宣言翻譯工作讓她深刻體會到了新中國聯邦的美好前景。她也是“我是音雄” 節目組俄羅斯農場的執行導演。
 
-#### The Expose of Covid-19 新冠病毒真相曝光
+03 喜馬拉雅的文雅澳喜農場
 
-Now, turning our focus to the global pandemic. Breaking news, Dr. Li-Meng Yan’s first scientific report was just released, which states that COVID-19 was created from a government lab in Wuhan. Please visit the full investigative reports on Gnews.org for details. To no surprise, Gnews has already published an article titled “a Brief Summary of Evidence of Lab-Made 2019 nCoV”, back in Jan 25th with over 55,000 views so far. Furthermore, Lude Media published the world’s first mention of the COVID-19 as a bio-weapon unleashed by the Chinese Communist Party on January 19th. Last but not least, the article titled “Miles Guo reveals CCP’s biochemical war plan” traced back his warning to the whole world in a press conference three years ago at Hudson Institute. That’s all for today’s news, we are the Gnews Current Affairs team, stay tuned, stay healthy. We’ll see you soon.
+2017年關注爆料革命追隨至今，她從一個默默認同的旁觀者成長為積極傳播真相的爆料革命支持者。在微信群傳播香港遊行真相被踢出群，推特也被封號，但都不能減少她傳播真相的熱情。她投身“我是音雄” 節目組幫助無名音雄們發光發熱加速滅共。
 
-現在，我們將注意力轉向全球疫情情況。頭條新聞。閆麗夢博士的第一篇科學報告剛剛發表，聲稱新冠病毒由武漢的政府實驗室製造。請訪問gnews.org查看詳盡的調查報告全文。無需驚歎的是，Gnews早在1月25日就已經發表了一篇題爲《2019新冠病毒爲實驗室制的簡要證據概述》的文章。至今已有超過五萬五千瀏覽量。此外，路德社於1月19日即在全世界首次提及新冠病毒是中共釋放的生化武器，請訪問我們網站上的完整英文報道。最後，題目爲《郭文貴揭示了中共的生化戰爭計劃》的文章追溯了他對全世界的警告，在三年前在哈德森研究所的新聞發佈會上。這就是今天的全部新聞。我們是Gnews熱點追蹤新聞團隊，敬請期待下期節目。保持健康，我們很快會再見。
+04 易恩日本櫻花團
+
+他2017年開始通過VPN看文貴先生直播，從不關心政治到漸漸意識到共匪的邪惡。帶著對爆料革命的信仰孤身來到日本，躲過了武漢疫情爆發。出國後積極轉推，並向身邊的人傳播爆料革命。他要用音樂喚醒人們心中那僅存的善良，感動，和愛。
+
+05 G-TV 博士喜媽新觀察澳喜農場
+
+他們是一對戰友夫妻，接觸爆料革命後曾發生過分歧和爭執。在妻子的幫助下，丈夫從完全不相信到慢慢了解真相，最終轉變觀念成為堅定的戰友。他們帶來一首妻子作詞，女兒作曲編曲的原創歌曲，講訴他們夫妻從分歧到一起前行的真實故事。
+
+06 卡爾愛麗絲韓國農場
+
+她有一段從不願向人提起的悲傷回憶，她因一次偶然的機會在2018 年接觸到爆料革命，從一開始懷疑到後來積極向家人朋友傳播真相，雖常常不被理解，依然毫無畏懼地堅持。她堅信，新中國聯邦創造美好未來，就在現在，就在你我!
+
+07 文空新西蘭農場
+
+他跟隨爆料革命三年，在新中國聯邦建國日把之前買G幣被退回的2000美金加了$20.64，一共2020.64美金捐給了法治基金。這是他對新中國聯邦的愛。他創作了這首原創作品《摧毀》來揭露CCP邪惡本質，用音樂子彈射向CCP。
+
+08 heaven20 日本櫻花團
+
+他來自东南亚，曾被中共的大外宣蒙蔽，通過爆料革命才認識到共產黨的真實面目和邪惡本性。他很感恩得以見證美國滅共的決心，也很榮幸能參與到滅共隊伍中，跟新中國聯邦站在一起徹底Take Down the CCP。新中國聯邦必勝！
+
+09 宇宙之涇日本農場
+
+2019年當她看到香港孩子被CCP折磨迫害，內心崩潰，流乾眼淚。她的美國先生也在她的影響下積極參與爆料革命。曾經消極反共現在積極滅共的她呼籲每個媽媽要為自己，為家庭，為下一代站出來支持文貴先生，支持爆料革命和新中國聯邦。
+
+10 CVN-76 俄羅斯農場
+
+2018年他開始關注爆料革命，2019年加入戰友之家並成為義工。親戚朋友不理解，但他還是堅持自己的決定。農場拉近了戰友之間的距離，也讓他更能腳踏實地的為滅共付出自己的力量。他相信每個人微不足道的力量都是壓死CCP的最後一根稻草。
+
+11 欲逃脫的鳥俄羅斯農場
+
+三年跟隨爆料革命，他成長了不少也學會了很多。今年3月份開始計劃音樂創作。在簡陋的條件下完成了《願榮光歸香港》和《女人花》的改編。第三個作品《一起出發》是一首節奏輕快，朗朗上口，通俗易懂的音樂作品，希望大家喜歡。
 
 0

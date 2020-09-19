@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日政要Twitter播報（中文）09/19期（視頻+ PDF下載）
-`2020-09-19 07:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/368430/)
+## 9.14 路德時評：博士團隊解讀系列-胡博士專業講解閆麗夢報告 【精華版粵語配音】
+`2020-09-19 10:54 GM42` [轉載自GNews](https://gnews.org/zh-hant/368890/)
 
-撰稿記者：宠宝贝（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
+製作單位：戰友之家-粵語組
+製作團隊：文恩、打雜的、阿恩、Wikim bao
 
-[每日政要推文9-19](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19065251/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-19.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19065251/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-19.pdf)
 
 
+概要：
+胡博士專業講解:閆博士發現新冠病毒的關鍵部位具有嵌入性，證明該病毒有人工操作的痕跡
 
 0
