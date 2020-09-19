@@ -1,16 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （德German+English)Foxnews Tucker Carlson 採訪閆博士關於冠狀病毒來源
-`2020-09-18 23:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/367692/)
+## 【香港要聞】【突發】12港人之一黃偉然家屬委託內地律師 帶備公證書往看守所探視仍遭拒 該律師已上訴深圳法院維權【跟踪報導】
+`2020-09-19 02:23 GM42` [轉載自GNews](https://gnews.org/zh-hant/368107/)
 
-德語標題 Coronavirus Whistleblower spricht über möglichen COVID-Ursprung auf. FoxNews ‘Tucker Carlson“
+製作單位：戰友之家-粵語組
+蒐集：文悦
+評語：文悦
+覆核：文粵
 
-原稿一校：lxxy 原稿二校：tiger64 德語翻譯：文月 德語校對：平常心（文常心）
+本週五（十八日），涉嫌偷越邊境被扣押在深圳鹽田看守所的十二港人之一黃偉然，其家屬委託內地律師任全牛，帶備公證書到看守所申請會面，看守所人員稱其當事人已委託了兩名官派律師，故拒絕安排。任全牛隨即到鹽田檢察院控告公安局涉嫌違法剝奪當事人辯護權。
+至此，12港人被扣深圳鹽田看守所已逾三周，至少五名律師被勸退出案件，三人帶同公證書申請會面被拒。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19022044/SZ-LAWYER-200918-21.jpg)圖片：Now 新聞
+戰友點評：【文悦】
+中共惡法，不單港人嫌疑犯無法回港，還公然越界執法，港人在未有定罪的情形下在內地扣留，依法依規帶備所要求材料去探視仍被拒之門外，更有甚者當事人竟要「被官派律師」，造成事發至今十二港人都無法與家人取得實質性聯繫。他們的生死安危，現況如何親友都無從得知。香港深圳僅一河之隔，這是名副其實的「咫尺天涯」。中共惡行，罄竹難書，善惡到頭終有報，相信公義審判的日子不遠了！
 
-內容簡介
-Foxnews Tucker Carlson 採訪剛剛發表揭露新冠病毒來源真相學術報告的閆麗夢博士。 該報告通過分析SARS-CoV-2基因組的不尋常特徵,判定病毒不是自然進化,而是來源於中共實驗室改造。 閆博士以非科學專業民眾能瞭解的方式解說為什麼病毒是中共實驗室改造的。
+以上觀點僅代表筆者本人
 
-Foxnews Reporter Tucker Carlson interviewte Dr. Limeng Yan, die gerade einen akademischen Bericht veröffentlicht hat, der die Wahrheit über den Ursprung des neuen Coronavirus enthüllt. Durch die Analyse der ungewöhnlichen Merkmale des SARS-CoV-2-Genoms kam sie in dem Bericht zu dem Schluss, dass sich das Virus nicht natürlich entwickelt hat, sondern in einem Labor der KPCh modifiziert wurde. Dr. Yan erklärte auf einer Weise, dass Nicht-Wissenschaftler verstehen können, warum das Virus vom Labor der KPCh modifiziert wurde.
+資料來源：Now 新聞
+
+[http://news.now.com/home/local/player?newsId=406081](https://news.now.com/home/local/player?newsId=406081)
 
 0
