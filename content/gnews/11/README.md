@@ -1,19 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 失去親中派美國駐中大使作溝通橋樑,兩國形同斷交
-`2020-09-19 11:26 GM62` [轉載自GNews](https://gnews.org/zh-hant/368935/)
+## （Spanish+English）閆博士9月15日福克斯Tucker Carlson Tonight採訪
+`2020-09-19 12:03 GM62` [轉載自GNews](https://gnews.org/zh-hant/369078/)
 
-作者 文靈 校對、修改，意見，圖片：文蚁
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112112/42f0cb1a5c4d248d.jpg)
-美國駐中大使布蘭斯塔德於9月17日召開新聞發佈會,宣佈將於10月初卸任職務。 布蘭斯塔德在卸任前曾向中共黨媒《人民日報》投稿名為《基於對等重置關係》的文章,遭到《人民日報》的拒絕,其後蓬培奧國務卿發文譴責中共治下的中國沒有言論自由且對政治辯論感到恐懼。
+西班牙語標題 La entrevista de la Dra.Yan del 15 de septiembre con Fox, Tucker Carlson Tonight
 
-由此可見,布蘭斯塔德在卸任前仍一廂情願地希望中共做出改變,無奈中共無意改變,因此不得不選擇離開。 布蘭斯塔德的離開,昭示著美國和中共治下的中國關係將急轉直下。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112046/a24af973e8394ab3.jpg)
-布蘭斯塔德曾公開表示:我不支持脫鉤。 並一直推動中共企業在美投資。 明面上是中共企業對美投資,實則是推動中共企業在美紮根從事間諜活動、偷竊美國技術、綁架美國人才。 布蘭斯塔德的政治立場無疑是親中派,在全球反共的當下,特朗普總統不會允許像他這樣仍舊助紂為虐的人擔任如此重要的政治角色。
+翻譯：帅虎 校對：謎擬Q 視頻：文靓
 
-布蘭斯塔德公佈,美國駐華大使一職將由駐華使團副團長傅德恩(Robert Forden)臨時代辦。 傅德恩曾任美國在台協會副處長,妻子也是臺灣人。 親台的人物接手該職位,戳中中共命脈,而中共對布蘭斯塔德為什麼卸任、為什麼選擇在當下卸任、是否會有繼任以及繼任的將會是誰等問題一概避而不談。
+視頻簡介
+病毒來自中共實驗室 只有他們可以做出這種病毒
 
-布蘭斯塔德的卸任,也意味著美國和中共治下的中國的脫鉤,將不再僅僅局限於經濟方面,政治方面也將全面肅清。
+El virus proviene del laboratorio del PCCh, ello son los únicos que pueden fabricar este virus
 
 0

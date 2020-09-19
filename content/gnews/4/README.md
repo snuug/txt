@@ -1,54 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【司法部「以法滅共」系列行動】一女子企圖非法向中國出口海上突擊艇和引擎將面臨15年刑期
-`2020-09-19 14:01 Isaiah4031` [轉載自GNews](https://gnews.org/zh-hant/369277/)
+## 疫情信息超限戰第二波: “蝙蝠女”石正麗說病毒源頭可能永遠找不到
+`2020-09-19 18:23 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/369488/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19135053/DOJ_20200916-YangYang-photo169.png)圖片來源：[Frederick Tubiermont](https://unsplash.com/@callmefred?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText) on [Unsplash](https://unsplash.com/s/photos/maritime-raiding-craft-and-engines?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText)
-Department of Justice
+- **第一波超限戰：Twitter關閉閆博士賬號和Facebook及Instagram關閉採訪閆博士的Foxnews知名主持人塔克·卡爾森（Tucker Carlson）賬號**
+- **第二波超限戰：中共已經從社交媒體、意識形態宣傳和對閆博士個人的污衊報導上升到從偽科學研究視角對閆博士科研論文進行信息歪曲超限戰。**
 
-Office of Public Affairs
 
-司法部
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19111932/1600528755675.jpg)圖片來源：戰友推特圖片
 
-公共事務辦公室
+9月14日閆麗夢博士在Zenodo上發表了《SARS-CoV-2基因組異常特徵表明其來自精細的實驗室改造而非自然進化以及其可能的合成路徑描述》。兩天后的16日，中共宣傳機器“觀察者網”發表了詆毀閆麗夢博士撒謊的報導。 17日“環球時報”稱病毒是中共人為製造的言論是造謠和陰謀論。同日“觀察者網”也炮製了另外一篇詆毀閆博士，讚揚Facebook的報導。所有這些報導可稱為中共針對閆博士這篇揭露中共冠狀病毒毒源重磅報導的第一波信息超限戰。
 
-Wednesday, September 16, 2020
+第一波疫情信息超限戰以Twitter關閉閆博士賬號和Facebook及Instagram關閉採訪閆博士的Foxnews知名主持人塔克·卡爾森（Tucker Carlson）賬號為標誌。中共這一波疫情信息戰拿美國社交媒體關閉閆博士及其電視訪談相關賬號為根據來詆毀和造謠她。不過，中共的政治宣傳機器和盜國賊們未免高興的早了點。 Facebook和Twitter藉口“這篇帖子中關於新冠疫情的信息已被獨立事實核查機構認定為虛假信息”而關閉閆博士賬號，將是這些這些社交媒體勾結和叩頭中共的永遠無法抵賴的鐵證。多名國會議員已經表達了要對Twitter和Facebook這種與中共沆瀣一氣，審查自由言論，危害公共和國家安全的行為進行責問和追責。美國司法部長7月16日的講話很明確地警告這些高科技公司不能充當中共的代言人和合謀犯罪者。
 
-2020年9月16日 星期三
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112152/1600528876159.jpg)圖片來源：參議員推特截圖
 
-**Jacksonville Woman Pleads Guilty to Attempting to Illegally Exporting Maritime Raiding Craft and Engines to China**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112258/1600528917091.jpg) *圖片來源：參議員推特截圖*
 
-**傑克遜維爾女子認罪 – 企圖非法向中國出口海上突擊艇和引擎**
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112414/1600528944266.jpg) *圖片來源：參議員推特截圖*
 
-Yang Yang (34, Jacksonville) has pleaded guilty to conspiring to submit false export information through the federal government’s Automated Export System and to fraudulently export to China maritime raiding craft and engines in violation of United States (U.S.) law, and also to attempting to fraudulently export that equipment in violation of U.S. law. Yang faces a maximum penalty of 15 years in federal prison. A sentencing date has not yet been set.
+“新京報”9月18日對中共“蝙蝠女”石正麗進行了題為“溯源很重要，但可能永遠找不到”的專訪報導。這標誌著中共已經從社交媒體、意識形態宣傳和對閆博士個人的污衊報導上升到另外一個層次，即從科學研究視角開始了對閆博士第一篇科研論文進行的第二波信息歪曲超限戰。中共也意識到僅僅靠歇斯底里宣傳、社交媒體表演和人格污衊自嗨肯定是駁不倒閆博士那邏輯嚴謹、證據充分而事實清晰的科研論文的。所以抬出了他們的“蝙蝠女”石正麗進行科學方面的應戰和過招。但石正麗的應戰可謂是謹小慎微卻依然漏洞百出。她灰頭土臉地像蝙蝠一樣出場，沒等華麗亮相，就已做好逃之夭夭的準備了。這篇石正麗專訪暴露了以下自相矛盾之處。
 
-楊洋（34歲，[現居住在美國佛羅里達州的]傑克遜維爾市）認罪，共謀通過聯邦政府的自動出口系統提供虛假出口信息，違反美國法律以欺詐手段向中國出口海上突擊艇和發動機。並試圖違反美國法律以欺詐手段出口設備。楊面臨15年在聯邦監獄度過的最高刑期。判決日期尚未確定。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19112431/1600528996924.jpg) *圖片來源：中共黨媒新京報網*新聞截圖
 
-According to the plea agreement, Yang was employed by Shanghai Breeze Technology Co. Ltd., a company headquartered in Shanghai, People’s Republic of China. At the direction of co-conspirators in China, she attempted to order from a U.S. manufacturer seven combat rubber raiding craft equipped with engines that can operate using gasoline, diesel fuel, or jet fuel. These vessels and multi-fuel engines are used by the U.S. military and can be operated after being launched from a submerged submarine or dropped into the ocean by an aircraft. No comparable engine is manufactured in China. When the U.S. manufacturer suggested that Yang purchase cheaper gasoline-fueled engines, she insisted that she wanted to purchase the military-model multi-fuel engines.
+####  **自相矛盾一：認定自然源頭卻又宣傳可能永遠找不到** 
 
-根據這個認罪協議，楊受聘於上海微風科技有限公司，該公司總部位於中國上海。在中國的同謀者的指示下，她試圖從一家美國製造商那裡訂購7架戰鬥橡皮突擊艇，這些突擊艇配備了可以使用汽油，柴油或噴氣燃料的發動機。這些突擊艇和多燃料發動機由美國軍方使用，可從水下潛水艇下水，或從飛機上降落到海上後進行操作。中國沒有同類發動機生產能力。當美國製造商建議楊購買更廉價的汽油發動機時，她堅持要購買軍用多燃料發動機。
+這位蝙蝠女研究員一方面裝模作樣地表示病毒溯源很重要，同時卻說“可能永遠也找不到答案”。今年2月3日石正麗團隊在“自然”雜誌發表論文論文證明中共新冠病毒與她在雲南礦洞發現的RaTG13蝙蝠病毒的核苷酸序列（nucleotide sequence）有96%的一致性。此後，全世界科學界和社會輿論都把這個論文作為中共病毒自然來源的根據和基石。那個時候石正麗怎麼不提醒科學界和社會公眾，可能永遠找不到“新冠病毒藉由哪種中間宿主、如何從自然界傳播到人類”呢？她現在提這一說法，很顯然是自己的虛假蝙蝠病毒數據被閆博士論文駁斥和曝光之後，做出的一種無奈回應和逃避。
 
-To induce the manufacturer to sell this equipment, Yang falsely represented that her customer was an entity called United Vision Limited in Hong Kong, rather than Shanghai Breeze Technology Co. in Shanghai. One of Yang’s Chinese co-workers had told her that American manufacturers would be more likely to sell to an entity in Hong Kong rather than one in mainland China. By misrepresenting what company was buying the equipment, and where it was located, Yang caused the entry of false information in the Department of Commerce’s Automated Export System in violation of federal law.
+既然找不到從自然界到人類的中間宿主，而且她的蝙蝠數據真實性被曝光是捏造和虛假，石正麗為什麼依然死死地抓住病毒溯源於自然的定論，聲稱她的團隊“正在溯源新冠病毒的自然源頭”呢？這就像一個江湖騙子的騙人把戲在一個地方（美國）被人（閆博士）揭穿了，但她依然道貌岸然地換個地方（中國），在騙子黑幫首領的指揮下，依然行騙和愚弄對其頂禮膜拜的傻子（被洗腦的普通百姓）。
 
-為了誘使製造商出售該設備，楊訛稱她的客戶是一家叫香港聯視微科技有限公司（United Vision Limited）的實體, 而不是位於上海的上海微風科技有限公司。其中一個楊在中國的同事曾告訴過她，美國製造商更有可能賣給香港實體，而不是中國大陸的。通過虛假陳述設備買家之公司及其所在地，楊導致了在商務部的自動出口系統中輸入虛假信息，其違反美國法律。
+####  **自相矛盾二：既然無法確定中間宿主，當初怎麼鎖定病毒來源是海鮮市場？** 
 
-When interviewed by federal agents on Oct. 17, 2019, Yang admitted that she had only one client, Shanghai Breeze, and that based on her communications with a co-conspirator, she knew that the combat raiding craft were not intended for Hong Kong, but instead, mainland China.
+石正麗談到2003年SARS暴發時，第一時間就鎖定了果子狸是病毒的直接來源。但花了8年時間才在雲南礦洞裡找到SARS最原始的來源。言外之意，這個雲南礦洞蝙蝠是2003年SARS真正來源。說明當初第一時間鎖定的果子狸是錯誤的。同樣道理，這次中共很快宣佈病毒來源於蝙蝠或穿山甲等野味海鮮市場，也是不攻自破。根據閆博士的報告，這個所謂的雲南蝙蝠純粹是轉移學界和公眾關注真正病毒來源的煙霧彈。這就證明了2003年SARS和2019年中共病毒來源於果子狸、蝙蝠、穿山甲等海鮮市場的定論，是中共借助於所謂的科學家說出的徹頭徹尾的謊言、欺騙和對全體人類的犯罪。
 
-在2019年10月17日接受聯邦特工問詢時，楊承認自己只有一位客戶，即上海微風，並且基於與其同謀的交流，她知道戰鬥突擊艇不是給香港，而是給中國大陸的。
+####  **自相矛盾三：12月底很快檢測出冠狀病毒但1月20日才確認“人傳人”** 
 
-On Aug. 13, 2020, Yang’s co-defendant, Zheng Yan, also pleaded guilty to conspiring to submit false export information and to fraudulently export the raiding craft and engines in violation of U.S. law. The trial of their remaining co-defendants, Fan Yang and Ge Songtao, is scheduled to begin on Feb. 1, 2021.
+在專訪中石正麗透露，實驗室12月30日接到第一份樣本後，根據核酸檢測方法，很快就檢測出冠狀病毒陽性。如果她說的很快指一兩天的話，1月2號左右就已經確定了新型冠狀病毒了，為什麼到1月20日，才由鍾南山這個“專家”而不是政府說病毒會“人傳人” 。 23日武漢官方突然宣布封城，全中國人民還蒙在鼓裡，到底發生什麼了？ 1月初李文亮等八名醫生因為發布疫情真相被訓誡。 1月18日百步亭舉行超過4萬家庭的萬家宴。 1月28日，最高人民法院官方微博稱，對這八名醫生的處罰是正當的，因為“新型肺炎不是SARS，說武漢出現了SARS，屬於編造不實信息，且該信息造成了社會秩序的混亂，符合法律規定的編造並傳播虛假信息的行為”。從石正麗口中說出的信息，可見中共政府現在聲稱對公眾和世界進行了及時披露是多麼的無恥和邪惡。
 
-2020年8月13日，楊的共同被告鄭燕（Zheng Yan）也認罪，共謀提交虛假的出口信息，違反美國法律以欺詐手段出口海上突擊艇和引擎。其餘的共同被告人範揚（Fan Yang）和葛松濤（Ge Songtao）的審判定於2021年2月1日開始。
+####  **自相矛盾四：聲稱能把傳染病遏制在萌芽狀態，卻把病毒散佈全世界** 
 
-This case was investigated by the FBI, the U.S. Naval Criminal Investigative Service, the U.S. Department of Commerce – Bureau of Industry and Security, and the U.S. Bureau of Alcohol, Tobacco, Firearms and Explosives. It is being prosecuted by Assistant United States Attorney Michael J. Coolican and Heather Schmidt, Senior Trial Attorney, Counterintelligence and Export Section, U.S. Department of Justice.
+石正麗強調疫情的長期監控非常重要。這樣就“應該做到早檢測、早預警、早干預，把傳染病遏制在萌芽階段。這不是能不能做的問題，是我們願不願長期持久做的問題。”她自己說對冠狀病毒已經進行了15年的積累研究，對任何科研項目而言，這可謂是長期監控研究了。她坦言把病毒遏制於萌芽中，這不是能力的問題，而是意願的問題。這簡單的一句話，一語道破天機。中共對這個病毒本來完全有能力可以早發現、早干預，把病毒遏制與萌芽中。但現實中，中共坐視疫情傳遍全中國，並肆虐全世界。石正麗的話證明中共純粹是蓄意而為，造成全球病毒大流行，殺死近百萬無辜人士。
 
-聯邦調查局，美國海軍刑事調查局，美國商務部-工業和安全局以及美國酒精，煙草，槍支和炸藥局對此案進行了調查。美國助理檢察官邁克爾·J·庫里坎（Michael J. Coolican）和美國司法部反情報和出口處高級審判律師希瑟·施密特（Heather Schmidt）正在對此案提起訴訟。
+####  **自相矛盾五：病毒並不是新出現的病毒，但卻被命名為新冠狀病毒** 
 
-[閱讀司法部英文原文](https://www.justice.gov/opa/pr/jacksonville-woman-pleads-guilty-attempting-illegally-exporting-maritime-raiding-craft-and)
+石正麗宣稱通過高通量測試得出，“這（中共冠狀病毒）是一個新型的SARS相關冠狀病毒”，接著她就表示“新冠病毒並不是新出現的病毒，是它原來就在那裡，我們新發現的。”這看似矛盾的話，應該怎麼理解呢？這個矛盾透露出中共的石正麗科研人員們的邪惡、狡詐和陰險。當她說這個病毒並不是新出現的，她是為了給自然溯源尋找理論根據，因為它是自然產生的，所以是一直原本都在那裡。當她們命名為新冠狀病毒或Covid-19的時候，表面上的理由是因為這個病毒是她們新發現的，這個“新”就是一個名字，沒有實質性的“新”內容。這其實是想通過命名之“新”來混淆這個病毒的人工“新”造之本質。所有推動和支持新冠狀病毒或Covid-19命名的機構和專家，都是有意或無意地充當了中共的爪牙和幫兇，掩蓋了這個病毒真正的人工製造之本質。
 
-翻譯：【文所未聞】編輯：【Michelle】
+從石正麗專訪中分析出來的以上五個方面的矛盾之處，基本上勾畫了中共想利用蝙蝠女研究員石正麗來和閆博士叫板的巨大落差及她無法自圓其說的死穴。一個來自陰暗世界現在看來灰頭土臉的蝙蝠女為什麼這麼漏洞百出、猥瑣奴顏？因為有一位降到地獄、飽嚐黑暗卻不甘心整個人類被黑暗吞噬的智慧天使閆麗夢博士，撬開了一道通往光明的縫隙。通過這道縫隙，黑暗中覺醒的人們要一起走向那艱辛卻無限愉悅的攀登天梯。
 
-戰友之家玫瑰園小隊出品
+**參考信息：**
+
+[1.專訪武漢病毒所研究員石正麗：溯源很重要，但可能永遠找不到](http://www.bjnews.com.cn/news/2020/09/18/770485.html) [2.肺炎疫情：新冠病毒奪命幫兇細胞因子風暴的真相與應對](https://www.bbc.com/zhongwen/simp/science-52646665) [3.李文亮自由百科](https://zh.wikipedia.org/wiki/%E6%9D%8E%E6%96%87%E4%BA%AE) [4.閆博士推特被封：中共恐懼的不只是那篇報告](https://gnews.org/zh-hans/360110/) [5. A pneumonia outbreak associated with a new coronavirus of probable bat origin](https://www.nature.com/articles/s41586-020-2012-7?rel=outbound) 
+ [6.閆博士中共病毒科學報告震撼發布！相關網站直接被黑！](https://gnews.org/zh-hans/355039/)
+
+撰稿：心聲【㊙️翻Gnews原創組】 
+校對：瑞安平
+ (本文僅代表作者個人觀點)
 
 0
