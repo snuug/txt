@@ -1,86 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生iTunes 排行榜冠軍歌曲《Take Down the CCP 》 MV 正式版
-`2020-09-19 04:37 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/368273/)
+## 病毒真相是拯救世界唯一的雅典娜希望
+`2020-09-19 08:19 GM64` [轉載自GNews](https://gnews.org/zh-hant/368636/)
 
-郭文貴先生首發英文單曲，創造以歌滅共奇蹟，震驚世界！ Take Down the CCP!
+內新聞：勝利之光 校對:天藍色獨角色
 
+自9月14日闫麗夢博士發布病毒來源科學報告，第一份長達26頁的科學論文，在上傳到不同的平台後，在很短時間內即遭到黑客攻擊，造成論文不能下載。而在zenodo網站恢複訪問後12小時內，該論文總浏覽量和總下載量已經排到該網站浏覽量的第3位，不重複下載量排在第2位。論證新型冠狀病毒與來源于大自然的病毒不同，呼籲追查中國湖北武漢 P4實驗室，以及美國衛生研究院之間的金流。
 
-視頻來源：郭文貴先生Youtube
-let me tell you what I’ve been through baby 
-告訴你我經歷了什麼
- lived a life that was hella unfair 
-過著一種不公的生活
- seen things that been driving me crazy 
-看到許多讓我發瘋的事
- in a country where the leaders don’t care 
-而國家領導卻毫不在乎
+接受福克斯新聞主持人盧·多布斯采訪說：闫博士的論文是重磅實錘，證據確鑿。隨即川普總統轉推了對白邦瑞的采訪。9月15日闫博士在美國時間黃金檔第二次接受福克斯采訪，明確說出病毒來自武漢實驗室，是中共投毒。
 
-didn’t think we had the courage to change it 
-不認為我們有勇氣改變它？ 
- tore it down and they weren’t prepared 
-推翻它而他們卻毫無準備
- everything that they kept us from saying 
-所有那些不讓我們說的話
- now we’re talking and they better be scared 
-現已傳遍大街小巷，他們最好開始恐懼
+此事一出，全世界是多麽需要知道病毒真相，而中共又是多麽害怕人們知道真相。中共大外宣試圖建立世界媒體新秩序，發動信息超越戰欺騙誤導國際社會。
 
-they take and take and take from us 
-他們不斷奴役我們
- tell us what and who to love 
-告訴我們該做什麼該去愛誰
- swear i’ve finally had enough 
-我真受夠了
- it’s time to rise above 
-是時候站起來了
+中共媒體原標題《中科院武漢病毒所石正麗：新冠病毒中間宿主仍未找到》18日下午，在中關村論壇的平行論壇全球科學與生命健康論壇上，中國科學院武漢病毒所新發傳染病中心主任石正麗介紹了新冠肺炎病原學鑒定和可能的起源。她透露，團隊研究顯示，我們沒有找到新型冠狀病毒的中間宿主，它的自然宿主現在推測可能是蝙蝠，但是也不排除其他野生動物，比如說穿山甲，因爲現在的工作量還沒有大到足夠下一個確定的結論。石正麗分析，新冠病毒的中間宿主我們現在完全不知道，這就說明，新冠病毒是一個非常狡猾的病毒，它在從野生動物傳到人類社會的過程中，是悄無聲息、慢慢變化的，這也是後續在新冠病毒病原學研究中需要重視的一部分。
 
-take down the CCP 
-推翻共產黨
- take down the CCP 
-推翻共產黨
- follow me and ima set us free 
-跟隨我解放自己
- take down the CCP 
-推翻共產黨
+路德時評爆了很重要的料。中共本來已經找好了中間宿主的方案，是貉。之前有人給Leo Poon發信息說貉可能是中間宿主，讓他們調查。樣品都已經准備好送到香港了。只要順著這個演戲中間宿主就找到了。但是闫博士是關鍵的聯系人，闫博士選擇了告訴世界真相。這次中共就是想把當年SARS的戲再演一遍，換成Leo Poon。如果闫博士順著這個戲演下去，她就是發現中間宿主額的關鍵人物。相當于重複了當年管轶找到果子狸的大戲。這意味著她以後就是管轶的江湖地位。但闫博士選擇了真相。這也是爲什麽中共對闫博士如此恐懼
 
-take down the CCP 
-推翻共產黨
- take down the CCP 
-推翻共產黨
- communism’s dead to me 
-共產黨必死
- because it killed our families 
-因他殺了我們的家人
+9月17日布萊克本恩議員就大型科技公司禁言闫博士發表評論：馬克·紮克伯格，如果你認爲那位病毒學家不可信，或者你有證據證明那位病毒學家不可信，那就站出來，把你所知道的告訴我們！順便說一句，推特，把她的賬號解禁！
 
-they take and take and take from us 
-他們不斷奴役我們
- tell us what and who to love 
-告訴我們該做什麼該去愛誰
- swear i’ve finally had enough 
-我真受夠了
- it’s time to rise above 
-是時候站起來了
-
-VERSE 2
-
-communism sucks 
-共產主義真他媽爛
- hard for me to give a fuck 
-在我眼裡就是狗屁
- tried to tell em & try to keep it up on the hush 
-警告過你，沉默之後必將爆發
- middle finger up, turn into a fist 
-豎起的中指變成鐵拳
- they wanna keep the poor poor so they never rich 
-他們想要窮人永不翻身
- if you wanna see the future look into the past 
-回看過去你會看到未來
- been a century of silence we don’t take it back 
-一世紀的沉默，我們必將奪回家園
- i’m just stating facts, tell you how it is 
-我只是告訴你事實、告訴你真相
- ain’t no way to change shit if we don’t resist 
-我們若不反抗就無法改變這腐爛的世界
-
+推特這一行徑，引起了美國輿論更大的反彈，越來越多的重磅媒體采訪出爐。隨著闫博士論文的持續發酵，爆料革命也漸漸走進公衆視野。“真相”是最有力的武器，也是雅典娜留給人類的唯一希望。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19081409/image0-5-4.jpg)
 0

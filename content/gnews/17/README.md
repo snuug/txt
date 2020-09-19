@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微信辦公版在美改名，玩金蟬脫殼？
-`2020-09-19 02:43 GM64` [轉載自GNews](https://gnews.org/zh-hant/368129/)
+## 每日政要Twitter播報（中文）09/19期（視頻+ PDF下載）
+`2020-09-19 07:01 GM62` [轉載自GNews](https://gnews.org/zh-hant/368430/)
 
-內新聞:inzaghi 校對:天藍色獨角色
+撰稿記者：宠宝贝（⽂宠）、CYC⽂颖、尘凡3、⽯头剪⼑布
 
-9月18日美商務部宣布，從9月20日起，在美境內禁止下載和使用微信。同時抖音也將從9月20日起被禁止下載，從11月12日起被禁止使用。此舉基于8月6日川普總統簽署的兩項行政令.
+[每日政要推文9-19](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19065251/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-19.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19065251/%E6%AF%8F%E6%97%A5%E6%8E%A8%E6%96%879-19.pdf)
 
-由于微信和抖音對美國國家安全構成威脅，8月6日川普總統簽署兩項分別針對抖音和微信的行政令，內容基本一致，即禁止受美國司法管轄的任何個人和實體與騰訊進行任何和微信有關的交易，與抖音母公司字節跳動進行任何交易，此交易禁令將在45天後生效.
 
-日前，騰訊公司已正式將微信辦公版應用程序的名稱WeChat-Work改名爲WeCom-Work.有消息稱，騰訊于8月19日就注冊了WeCom的商標，看來是早有准備.但是在大錘就要砸下之前，換個馬甲就能逃生的想法也過于天真，相信美國政府不會看不穿這小小的伎倆.
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19023614/Screenshot_2020-09-19-13-35-31-207_Discord-1.png)
+
 0

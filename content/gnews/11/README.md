@@ -1,138 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文貴先生首發中文單曲《滄海一聲嘯》MV 正式版
-`2020-09-19 04:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/368227/)
+## 中共縣政府貪汙挪用貧困學生餐費 營養改善計劃是假 政府破産才是真！
+`2020-09-19 08:03 GM30` [轉載自GNews](https://gnews.org/zh-hant/368583/)
 
-視頻來源：郭文貴先生油管
-**歌手：郭文貴**
+**作者：小妍說**
 
-滄海一聲嘯
- A roar of the vast sea 
-滔滔滅共潮
- The tidal waves surging up to take down the CCP 
-四海英雄聚今朝
- Heroes from all over the world get together 
-蒼天笑
- A laugh from heaven 
-拔劍斬紅妖
- Take out a sword to behead the red demon 
-浪沙淘盡毒霾消
- The waves and sands wash off the haze filled with poison
+近日中共國內多個省市早前被指拖欠老師工資，引起社會廣泛關注。陝西商洛市丹鳳縣政府近日又被揭發拖欠全縣學生營養餐配送費，金額高達1000多萬元。當地食品公司指，自2016年起縣政府僅支付了126萬元的配送費，其余欠款則遲遲未有歸還。當地政府18日回應指，該縣財政困難，將與食品公司商討還款事宜。“學生營養改善計劃”是中共國于2011年開始實行一項解決農村義務教育學生就餐問題的健康計劃。2012年，陝西省將“蛋奶工程”與國家營養改善計劃並軌，在非國家試點縣（區）開展營養改善計劃地方試點，于2014年底實現了全省農村義務教育學生營養改善計劃全覆蓋。2016年6月8日，陝西省商洛市丹鳳縣人民政府召開該年第7次縣政府常務會議，確定在該縣農村義務教育“學生營養改善計劃”實施中，由縣營養配送中心監管，准入企業負責運營，對糧油、蔬菜和肉類全部實行統一配送。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19073711/%E5%9B%BE%E7%89%871-23.png)
+食品公司負責人吳先生表示，公司在2016年通過公開招標，參與丹鳳縣的「學生營養改善計劃」，爲全縣76家實施該計劃的學校配送營養餐食材，爲期5年。合約規定，營養改善計劃專項資金，由縣財政局、科技和教育體育局每月按比例支付。但直至今年1月5日，政府仍未兌付相關費用。吳先生曾多次向有關部門追討欠款，但每次都無功而還。吳先生更展示相關文件，指該縣科技和教育體育局局長方傳亮曾在《關于申請撥付學生營養改善計劃食材配送費用的報告》文件中簽署，證明拖欠配送費的情況屬實。吳先生又指出，公司由2016年秋季至2019年秋季7個學期配送費共956萬元，但政府只償還了當中126萬元。截至今年9月，政府的欠款已逾千萬。
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19073825/%E5%9B%BE%E7%89%872-73.jpg)
+吳先生強調，5年間爲縣內學生配送營養餐，從無間斷，惟縣政府卻一直拖欠配送費，導致公司經營面對困難，現在更需要抵押廠房，借款應付日常營運開支，更被迫向食材供應商以及送餐的工人打下欠條。吳先生指自己已去信縣政府，說明公司運作困難的情況。他斥責縣政府借故推搪，吳先生現已打算向商洛市、甚至陝西省相關部門反映情況。該縣科技和教育體育局局長方傳亮9月18日回應此事件，指縣政府非故意拖欠配送費，過去亦曾向食品公司繳付費用；只是目前縣內財政緊绌，需要與公司溝通。他指出，當時合同裏也沒有很明確說得給他這麽多錢，加上我們了解到其他與其合作的縣裏，雖然也給錢，但並沒有給他們提供場地這些，我們丹鳳縣都是無償提供（場地等）的。目前，有關剩下的配送費撥付事宜，則正在溝通協商當中，“怎麽給、給多少，這個還需要溝通處理。”
+![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19073958/%E5%9B%BE%E7%89%873-14.jpg)
+什麽叫怎麽給給多少？不應該是欠了多少給多少嗎？難道還想一千萬給一百萬嗎？那就太不要臉了，而且這個配送費到底是什麽？學校的餐費是學生自己付錢還是財政免費提供？如果學生自費那學生繳納的錢哪去了？不應該專款專用嗎？怎麽跟當地政府財政困難扯上了？最近太多地方政府財政緊張的新聞了，近日貴州、安徽、河南和遼甯接連傳出教師被拖欠工資的新聞，地方政府強調的原因都是財政資金緊張，加上這次的新聞，從各個省份的地方政府都在喊缺錢的狀態，可見中共國的財政窟窿已經大到完全糊不住了，崩塌隨時可能發生。
 
-整整七十年它把中華人⺠奴役
- Having enslaved the Chinese people for a total of 70 years 還讓這片土地變得滿目瘡痍
- Rendered this land full of ruins and scars 
-全世界投毒製造各種生化武器
- Dropped the virus to the whole world, making all kinds of biochemical weapons 
-我去它大爺的人類命運共同體
- Screw the so-called Community with Shared Future for Mankind 
-三載爆料攜手戰友行天道
- In the three years of whistleblowing we carried out God’s will with fellow fighters 
-震醒我中華同胞，興起了滅共浪潮
- Wake up my fellow Chinese compatriots and set off a wave to take down the CCP 
-壯志衝雲霄，看那國旗飄飄
- In the sky our aspirations are soaring with the flag of NFSC fluttering 
-滅掉邪靈惡黨神州陽光普照
- Take down the evil CCP and bring sunshine back to China
+GNEWS之前文章：
+中共國學生自殺頻發 [https://gnews.org/zh-hans/367474/](https://gnews.org/zh-hans/367474/)
+中共國再次出現大規模傳染事件 [https://gnews.org/zh-hans/365537/](https://gnews.org/zh-hans/365537/)
+中共內蒙【文化強拆】開啓文革2.0 [https://gnews.org/zh-hans/357195/](https://gnews.org/zh-hans/357195/)
 
-江山笑
- A laugh from mountains and rivers 
-天宇搖
- Shakes the sky and universe 
-誰負誰勝出已分曉
- Who is the victor or loser is now obvious 
- ⻛蕭蕭
- The wind whistles 
-真相掀怒潮
- The truth sets off raging tides 
-盤古開天覆紅朝
- Overthrow the red regime of tyranny as Pangu created the earth and sky
-
-三年多的爆料就是跟丫死磕
- Whistleblowing for over 3 years is just to keep smashing the CCP 
-重磅實錘每天都有，一點兒也不嫌多
- We can never have too many breaking news and solid proofs every day
-
-以美滅共以共滅共，還得靠我們戰友們行動
- Our fellow fighters’ actions are crucial to taking down the CCP with forces from both inside of CCP and America
-
-天佑我中華兒女，共建聯邦新中國
- God bless our Chineses men and women who together build the New Federal State of China 
-黑夜現曙光，照亮東方的天
- The dawn comes up in the darkness, lighting up the sky in the east 
-戳破共匪的謊言，我準備了三十多年， 
- To expose the CCP’s lies I prepared for more than three decades 
-越過了死亡幽谷，我踏上了滅共之路
- I crossed the valley of death, embarking on a journey to take down the CCP 
-縱有太多凶險，我們不枉此生虛度
- Even with so much danger, our lives are not wasted
-
-清⻛笑
- A laugh of breezes 
-終歸正道
- finally returns to the Way of Righteousness 
-一舟踏浪自逍遙
- An unfettered boat rides freely on the waves 
-蒼生嘯
- A roar of Lao Baixing, Old Hundred Names 
-熱血萬丈高
- Their passions are running high 
-戰友們豪氣穿雲霄
- Our fellow fighters’ heroic spirit rises up through the clouds and sky 
-盤古相聚在今朝
- Time to get together at Pangu now 
-仰天⻓嘯贊英豪
- Look up and roar, praising the heroes of ours
-
-Whatta you waiting for 
-你還在等什麼? 
- The world is safe no more. 
-世界已不再安全
- CCP lyin, The people’s dyin 
-中共撒謊，人們死亡
- We are running outta time 
-時不待我
- Action! 
-行動! 
- Take Down 
-滅共
- Action 
-行動滅共
- Action 
-行動
- Take down the CCP 
-滅掉中共
- Take Down 
- Take down the CCP 
-滅掉中共啦啦啦啦啦
- Lah lah lah lah lah 
- CCP 你完了
- CCP, you’re finished
-
-原曲:[沧海一声笑] 
- Original Song: [One Roar of Laughter in the Vast Sea] 
-詞曲:⻩沾
- Lyrics and Music by: James Wong
-
-改編:【滄海一聲嘯】 
- Adaptive Song: [A Roar of the Vast Sea] 
-歌詞:爆料革命戰友
- Lyrics by: The Fellow Fighters of the Whistleblowers’ Movement 
- Rap詞:⻬馥偉唐平
- Rap Lyrics by: Qi Fuwei, Tang Ping
-
-編曲:盲人草根
- Arrangement: Mangren Caogen 
-後期縮混:Q.May 
-盲人草根
- Tex Hill 
- Downmix: Q.May, Mangren Caogen, Tex Hill 
-和音:GTV空中唱響團隊
- Chord: GTV Sky Shouters 
-製作人:唐平
- Producer: Tang Ping 
-監製: 唐平⻬馥偉
- Supervisor: Tang Ping, Qi Fuwei
+（文章內容僅代表作者觀點）
 
 0

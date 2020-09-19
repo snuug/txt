@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普重拳——週日起應用商店禁止抖音微信
-`2020-09-19 03:22 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/368157/)
+## 【中英文視頻版】2020/09/13 CCP病毒每日疫情直播簡報
+`2020-09-19 07:21 GM62` [轉載自GNews](https://gnews.org/zh-hant/368457/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19032027/1-95.png)圖片引自BusinessInsider 
-《金融時報》報導，華盛頓週日頒布了禁止應用商店裡抖音和微信的行政命令。美國商業部周五宣布只要是在蘋果應用商店或者是谷歌應用商店就不能有這兩款應用，即便是在中國。商務部長羅斯說這是阻止中共惡意收集美國公民信息並保衛美國民主價值標準、徹底執行美國法律法規的關鍵一步。
+英語標題 CCP Virus Pandemic Updates Ep233:  Inner Mongolia cancelled Mongolian language teaching and began to destroy objects with Mongolian culture
 
-這次突然行動發生在甲骨文與字節跳動與政府商討TikTok交易化解川普政府對於該視頻應用防範之際。這筆交易還要得到北京的允許。甲骨文和字節跳動已經達成共識要將TikTok改造成一家美國公司，TikTok將會有全部都是美國人的董事會，並且由一個受美國政府安全許可的人來領導董事會。被改造之後的公司開始會由字節跳動持有大部分所有權，但會逐步在美國上市。
+視頻重點
 
-**川普和美國政府持強硬態度**
+1. 雲南瑞麗一小區發現CCP新冠病例，該小區已被封閉。瑞麗緊急封城，全市市民被要求做核酸檢測。年初疫情爆發以來，中國經濟受到重挫，導致很多商家經營困難。
+2. 內蒙古取消蒙語教學，並開始破壞帶有蒙古族文化的物件。蒙古族學生及家長抗議中共對他們掀起的”文化大革命”似的運動，拒絕複課。中共用取消學生學籍，來威脅學生，讓他們返校。
+3. 中共繼續擴大中型銀行債務，金融風險系統化加劇。同時，中共央行前副行長吳曉靈提醒房產泡沫恐隨時破滅。
+4. 從7月24日到今天，安徽合肥廬江縣遭受洪水，災情仍沒有任何緩解跡象。水患接近兩個月，災民生活艱難；政府不積極救災的，卻在党媒人民網秀了幾張災區受淹後的”美景照”。
+5. （9/9）“Take Down the CCP”在美國現在你們看到有多少孩子唱啊。真的是震撼。就美國那小孩子“Take down the CCP, take down the CCP”每個人跳着唱。一家一家人唱，好多人唱就唱哭了，突然找到同感了。
 
-川普對於此次交易仍然由中共擁有這款應用不滿，共和黨盧比奧議員和其他立法者則批評這次交易會讓字節跳動對每一位用戶觀看視頻的統計量保持現有的控制。川普上個月頒布從應用商店移除TikTok和微信的兩項有關行政命令中，也禁止了美國公司在9月20日之後與其有任何商業來往。後來川普總統又允許字節跳動在10月12日之前處理其在Tiktok的利益相關事項。
 
-羅斯部長在fox商業新聞上表示，美國將會很快關停微信。現有的TikTok用戶慢慢地也會得不到服務，直到10月12日完全不能使用該應用。字節跳動在此之前如果沒有達成令美國政府滿意的解決方案的話，TikTok就無法繼續存在。當被問到中共是否會報復時，羅斯部長表示隨便他們。
+1. A new case of CCP Covid-2 has been found in a community of Ruili, Yunnan province. The community and the whole city has been urgently sealed off and people across the city are being asked to take virus nucleic acid tests. The Chinese economy has suffered a major setback since the outbreak of the CCP virus pandemic earlier this year, making it difficult for many businesses to operate.
+2. Inner Mongolia cancelled Mongolian language teaching and began to destroy objects with Mongolian culture. Mongolian students and their parents protested against the CCP’s “Cultural Revolution” campaign and refused to resume classes. The CCP threatened the students to return to school by cancelling their school registration.
+3. The CCP continues to expand the debts of medium-sized banks. The systematic financial risks is intensifying. Meanwhile, Wu Xiaoling, former vice president of Central Bank of China warned that the housing bubble might collapse at any moment.
+4. From July 24 to today, Lujiang County, Hefei, Anhui Province suffered floods, and the disaster still shows no signs of relief. The floods lasted for nearly two months, and the lives of the victims were difficult; the CCP government is not active in disaster relief, but has shown a few “beautiful pictures” of the flooded area on the CCP media People’s Daily Online.
+5. (9/9) This song “Take Down the CCP” in America, you know how many kids are singing this song right now? It’s stunning. You see American kids going “Take down the CCP, take down the CCP” and dancing while singing, these kids.Many families sang together and as they sang, they suddenly began to cry as their feelings resonated with the lyrics.
 
-**外界分析此次行動**
-
-專注於中共國風險諮詢機構Plenum的評論員馮楚成（音譯）認為北京採取激烈反擊措施的可能性不大，因為美國的行動還有所保留。他分析中共國不會採取實際打擊行動，而是會像徵性地批評美國對中共科技公司的單邊主義行動。
-
-文章指出，川普總統對於TikTok的戰爭是對他對中共強硬姿態的一個例子。有人批評川普針對主要用戶是青少年的應用，但是有專家指出這款應用收集的用戶信息威脅到了美國的國家安全。
-
-國際戰略研究中心的網絡安全專家詹姆斯·李維斯表示大數據是如今情報的核心，這款應用是裡根總統以來對美國國家安全最大的間諜活動威脅。他認為美國正在與中國進行情報間諜戰。
-
-川普總統上個月表示TikTok的威脅在於它能夠收集聯邦僱員的位置信息，建立個人信息檔案，並將之用於敲詐，強迫從事間諜活動。
-
-喬治敦的教授，奧巴馬時期白宮亞洲顧問Evan Medeiros表示，政府禁止TikTok，卻從未深究其造成國家安全問題的根本原因。他指責川普政府只說TikTok收集了個人信息但沒有提供證據。他認為與中共的技術交易有很多合法合理的憂慮，但是當局卻採取了導致恐慌的緊急措施。
-
-評：川普在TikTok金蟬脫殼之前用行政命令給它判了死刑。估計後面是Zoom，還有傷害過我們的YouTube以及推特，臉書等等。
-
-[原文鏈接](https://www.ft.com/content/c460ce4c-c691-4df5-af49-47a395429fe8)
-
-翻譯報導：張雨桐
 
 0

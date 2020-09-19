@@ -1,21 +1,138 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 233期疫情播報 文字版9/13
-`2020-09-19 00:48 GM62` [轉載自GNews](https://gnews.org/zh-hant/367874/)
+## 郭文貴先生首發中文單曲《滄海一聲嘯》MV 正式版
+`2020-09-19 04:10 秘密翻译组` [轉載自GNews](https://gnews.org/zh-hant/368227/)
 
-1. 雲南瑞麗一社區發現CCP新冠病例，該社區已被封閉。瑞麗緊急封城，全市市民被要求做核酸檢測。年初疫情爆發以來，中國經濟受到重挫，導致很多商家經營困難。
-2. 內蒙古取消蒙語教學，並開始破壞帶有蒙古族文化的物件。蒙古族學生及家長抗議中共對他們掀起的”文化大革命”似的運動，拒絕復課。中共用取消學生學籍，來威脅學生，讓他們返校。
-3. 中共繼續擴大中型銀行債務，金融風險系統化加劇。同時，中共央行前副行長吳曉靈提醒房產泡沫恐隨時破滅。
-4. 曠視科技用人臉識別技術監控學生引發爭議。去年，美國商務部把包括海康威視、大華科技、科大訊飛、曠視科技、商湯科技、美亞柏科、溢鑫科技和依圖科技等在內的28家中國機構和公司列入美國出口管制“實體名單”（又稱黑名單），限制這些機構從美國購買零部件。
-5. 從7月24日到今天，安徽合肥廬江縣遭受洪水，災情仍沒有任何緩解跡象。水患接近兩個月，災民生活艱難；政府不積極救災的，卻在黨媒人民網秀了幾張災區受淹後的”美景照”。
-6. 日本防衛大臣河野太郎在美日聯盟60周年會議中提醒中共是威脅。
-7. 12位被迫離港異議人士在逃往臺灣途中被中共抓捕，性命堪憂。
-8. （川普總統，9/12）我花了四年的時間把就業機會帶回美國 丶保護邊界 丶重建軍隊並以從未有過的（強烈）姿態面對中共國。從來沒有人像這樣堅定地對抗中共國，而且我們還會繼續。過去我們做得太好了，不幸的卻遭受病毒，中共病毒的襲擊。任何人都不應該死去，然而病毒卻攻擊了我們，攻擊了全世界，但他們（中共）阻止了它進入中共國其他地區。他們（中共）可以阻止病毒在中共國擴散，但卻沒有阻止病毒進入美國 丶歐洲以及全球188 個國家。永遠不要忘記他們（中共）針對的是我，因為我在為你們而戰。這是事實。總而言之，未來的四年，我們將讓美國成為世界製造業的超級大國。我們將一次性徹底結束對中共國的依賴。
-9. （9/11）（史蒂夫·班農，關於美國中央情報局（CIA)在中國）我深信這個新冠病毒是個生化武器計畫。我想，在接下來的幾天裡，你會聽到閻博士等人站出來，把所有的癥結點串在一起，其中一些人是由中國逃離出來的。美國中情局是不是在中國錯過了？是不是在阿富汗、伊拉克耗費了太多時間，過於關注激進的伊斯蘭吉哈德（聖戰組織），卻錯過了這個也許是美國迄今為止，所遇過的最大威脅，特別是在這個中共和解放軍的生化武器計畫呢？ （山姆·法迪斯）是的，毫無疑問我們在中國錯過了。因為我們忙於應付阿富汗或政治淩駕了中情局總部，當然這是另外一個話題，我的意思是我們本應該對武漢所有的實驗室做雙向連線（指監控）。我們本應該精確地知曉發生了什麼事，而不該在過了半年後還在猜到底發生了什麼。
-10. （9/9）“Take Down the CCP”在美國現在你們看到有多少孩子唱啊。真的是震撼。就美國那小孩子“Take down the CCP, take down the CCP”每個人跳著唱。 一家一家人唱，好多人唱就唱哭了，突然找到同感了，“就是啊，為什麼我待在家裡啊，誰要殺了我們的family啊？CCP啊。”對吧。這個力量太大了。記住，美國的帳號買的85%。  在美國和西方，我可以告訴大家，“Take Down the CCP”這個歌絕對超過一個核彈的水準。因為在這個五分鐘它重複，把這個所有全世界人內心的憤怒全給唱出來了，而且信息量很大。
+視頻來源：郭文貴先生油管
+**歌手：郭文貴**
 
+滄海一聲嘯
+ A roar of the vast sea 
+滔滔滅共潮
+ The tidal waves surging up to take down the CCP 
+四海英雄聚今朝
+ Heroes from all over the world get together 
+蒼天笑
+ A laugh from heaven 
+拔劍斬紅妖
+ Take out a sword to behead the red demon 
+浪沙淘盡毒霾消
+ The waves and sands wash off the haze filled with poison
 
+整整七十年它把中華人⺠奴役
+ Having enslaved the Chinese people for a total of 70 years 還讓這片土地變得滿目瘡痍
+ Rendered this land full of ruins and scars 
+全世界投毒製造各種生化武器
+ Dropped the virus to the whole world, making all kinds of biochemical weapons 
+我去它大爺的人類命運共同體
+ Screw the so-called Community with Shared Future for Mankind 
+三載爆料攜手戰友行天道
+ In the three years of whistleblowing we carried out God’s will with fellow fighters 
+震醒我中華同胞，興起了滅共浪潮
+ Wake up my fellow Chinese compatriots and set off a wave to take down the CCP 
+壯志衝雲霄，看那國旗飄飄
+ In the sky our aspirations are soaring with the flag of NFSC fluttering 
+滅掉邪靈惡黨神州陽光普照
+ Take down the evil CCP and bring sunshine back to China
 
+江山笑
+ A laugh from mountains and rivers 
+天宇搖
+ Shakes the sky and universe 
+誰負誰勝出已分曉
+ Who is the victor or loser is now obvious 
+ ⻛蕭蕭
+ The wind whistles 
+真相掀怒潮
+ The truth sets off raging tides 
+盤古開天覆紅朝
+ Overthrow the red regime of tyranny as Pangu created the earth and sky
+
+三年多的爆料就是跟丫死磕
+ Whistleblowing for over 3 years is just to keep smashing the CCP 
+重磅實錘每天都有，一點兒也不嫌多
+ We can never have too many breaking news and solid proofs every day
+
+以美滅共以共滅共，還得靠我們戰友們行動
+ Our fellow fighters’ actions are crucial to taking down the CCP with forces from both inside of CCP and America
+
+天佑我中華兒女，共建聯邦新中國
+ God bless our Chineses men and women who together build the New Federal State of China 
+黑夜現曙光，照亮東方的天
+ The dawn comes up in the darkness, lighting up the sky in the east 
+戳破共匪的謊言，我準備了三十多年， 
+ To expose the CCP’s lies I prepared for more than three decades 
+越過了死亡幽谷，我踏上了滅共之路
+ I crossed the valley of death, embarking on a journey to take down the CCP 
+縱有太多凶險，我們不枉此生虛度
+ Even with so much danger, our lives are not wasted
+
+清⻛笑
+ A laugh of breezes 
+終歸正道
+ finally returns to the Way of Righteousness 
+一舟踏浪自逍遙
+ An unfettered boat rides freely on the waves 
+蒼生嘯
+ A roar of Lao Baixing, Old Hundred Names 
+熱血萬丈高
+ Their passions are running high 
+戰友們豪氣穿雲霄
+ Our fellow fighters’ heroic spirit rises up through the clouds and sky 
+盤古相聚在今朝
+ Time to get together at Pangu now 
+仰天⻓嘯贊英豪
+ Look up and roar, praising the heroes of ours
+
+Whatta you waiting for 
+你還在等什麼? 
+ The world is safe no more. 
+世界已不再安全
+ CCP lyin, The people’s dyin 
+中共撒謊，人們死亡
+ We are running outta time 
+時不待我
+ Action! 
+行動! 
+ Take Down 
+滅共
+ Action 
+行動滅共
+ Action 
+行動
+ Take down the CCP 
+滅掉中共
+ Take Down 
+ Take down the CCP 
+滅掉中共啦啦啦啦啦
+ Lah lah lah lah lah 
+ CCP 你完了
+ CCP, you’re finished
+
+原曲:[沧海一声笑] 
+ Original Song: [One Roar of Laughter in the Vast Sea] 
+詞曲:⻩沾
+ Lyrics and Music by: James Wong
+
+改編:【滄海一聲嘯】 
+ Adaptive Song: [A Roar of the Vast Sea] 
+歌詞:爆料革命戰友
+ Lyrics by: The Fellow Fighters of the Whistleblowers’ Movement 
+ Rap詞:⻬馥偉唐平
+ Rap Lyrics by: Qi Fuwei, Tang Ping
+
+編曲:盲人草根
+ Arrangement: Mangren Caogen 
+後期縮混:Q.May 
+盲人草根
+ Tex Hill 
+ Downmix: Q.May, Mangren Caogen, Tex Hill 
+和音:GTV空中唱響團隊
+ Chord: GTV Sky Shouters 
+製作人:唐平
+ Producer: Tang Ping 
+監製: 唐平⻬馥偉
+ Supervisor: Tang Ping, Qi Fuwei
 
 0
