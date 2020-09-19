@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 部署直—10 依舊輓救不了075艦
-`2020-09-18 21:39 shangshang` [轉載自GNews](https://gnews.org/zh-hant/367575/)
+## 【世界多語言圖文】2020/09/12 CCP病毒每日疫情直播簡報
+`2020-09-19 01:28 GM62` [轉載自GNews](https://gnews.org/zh-hant/367953/)
 
-內軍事：鷹(文言) 校對: 天藍色獨角色
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18211840/CCC51433-6FEC-4DD8-907B-5D8876B3E519.png)
-近期，中共首艘075兩棲攻擊艦完成18天的試航，而直10武裝直升機也在071登陸艦完成艦上起降、跨海機降突擊訓練，為接下來部署075預演。
+戰友之家圖文摘要及小語種組
 
-但直10的上艦，並不能達到提升競爭力的效果。因為直10的負載較小，且安全性也待考究。直-10的空重5540kg，最大起飛重量7噸多，最大載重不足2噸，搭載紅旗-10反坦克彈（作戰範圍10km）、霹靂-9空空彈（作戰範圍22km）。自2011年服役以來發生至少兩次事故，分別是2014年3月渭南上空失事，和2019年4月墜毀，值得注意的是參加過兩次十一閱兵的特級飛行員查顯偉在後者事故中身亡，所以直-10的安全性和穩定性要打個大大的問號。
+[English\_0912\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012109/English_0912_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012109/English_0912_CCP_Virus_Updates-1.pdf)
 
-英國的「海洋」號兩棲攻擊艦，搭載8~12架「阿帕奇」武裝直升機。「阿帕奇」自重5165kg，最大起飛重量卻高達10433kg，搭載AGM-114地獄火（8km）、AIM-92刺針、AIM-9響尾蛇導彈（18.2km）等，91年伊拉克戰爭中圓滿完成執行沙漠風暴行動，並在海灣戰爭中更驗證了其戰場控制能力。
+[German\_0912\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012054/German_0912_CCP_Virus_Updates_-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012054/German_0912_CCP_Virus_Updates_-1.pdf)
 
-法國的「西北風」級兩棲攻擊艦，搭載12~16架「虎」式直升機。「虎」式直升機空重3060kg，最大起飛重量6000kg，載重達3噸，搭載AGM-114、AIM-92、APKW激光制導火箭（最大射程14km）。
+[Japanese\_0912\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012048/Japanese_0912_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012048/Japanese_0912_CCP_Virus_Updates-1.pdf)
 
-對比直-10和英法常用艦上武裝直升機，不難發現，受限於發動機技術直-10的載重較小，要達到同等戰鬥力需要至少18架，其日常訓練中的穩定性都不能保證，更妄稱在戰場態勢下發揮戰鬥力。
+[Korea\_0912\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012058/Korea_0912_CCP_Virus_Updates.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012058/Korea_0912_CCP_Virus_Updates.pdf)
 
-再看075艦兩棲攻擊艦，20年4月首艘075艦失火，而後8月開始海試，直白一點就是075艦目前階段僅能做到海上航行，而搭載直升機等訓練還未開展，實彈演練更是遙遙無期。所以即便直-10部署075艦，對075艦的戰鬥力提升也是相當有限，在遇到同等級的兩棲艦時也只有被打壓驅趕的份兒。
+[Spanish\_0912\_CCP\_Virus\_Updates](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012104/Spanish_0912_CCP_Virus_Updates-1.pdf)[下載](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19012104/Spanish_0912_CCP_Virus_Updates-1.pdf)
 
-新聞來源：
 
-直10已為部署075兩棲艦做準備 每艦可攜10多架(圖)
-
-[https://mil.news.sina.com.cn/zhengming/2020-09-17/doc-iivhuipp4844459.shtml](https://mil.news.sina.com.cn/zhengming/2020-09-17/doc-iivhuipp4844459.shtml)
 
 0

@@ -1,75 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 反驳海外五毛对闫丽梦博士的攻击
-`2020-09-18 16:25 CHANGDAO` [轉載自GNews](https://gnews.org/zh-hant/367279/)
+## （德German+English)Foxnews Tucker Carlson 採訪閆博士關於冠狀病毒來源
+`2020-09-18 23:04 GM62` [轉載自GNews](https://gnews.org/zh-hant/367692/)
 
-作者：美东香草山写作组 直截了当
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18162141/Screen_Shot_2020-09-18_at_4.03.39_PM.png)
-摘要：闫丽梦博士的论文报告，揭露出CCP病毒的真相，在网上掀起了轩然大波。众多五毛在媒体上对闫博士发起猛烈攻击。笔者将一一对五毛言论进行反驳。
+德語標題 Coronavirus Whistleblower spricht über möglichen COVID-Ursprung auf. FoxNews ‘Tucker Carlson“
 
-2020年9月14日，闫丽梦博士在Zenodo发表了一篇论文报告，揭露中共病毒的真相，立刻在网路媒体上掀起了轩然大波，在科学界、新闻界、政治领域等引起了诸多关注。截至9月18日，该报告已经超过60万阅读量和50多万次的下载。
+原稿一校：lxxy 原稿二校：tiger64 德語翻譯：文月 德語校對：平常心（文常心）
 
-近日，CCP发动五毛和大外宣等，在一些美国媒体上，对闫丽梦博士以及她的这篇论文进行猛烈攻击。然而大多都是针对闫博士的人身进行的攻击，即使提到闫博士的报告也只是严重的歪曲与诽谤，并无任何科学性的质疑与责难。笔者将针对从huaren.us以及foxnews.com两个网站上摘录下来的五毛言论，一一反驳。
+內容簡介
+Foxnews Tucker Carlson 採訪剛剛發表揭露新冠病毒來源真相學術報告的閆麗夢博士。 該報告通過分析SARS-CoV-2基因組的不尋常特徵,判定病毒不是自然進化,而是來源於中共實驗室改造。 閆博士以非科學專業民眾能瞭解的方式解說為什麼病毒是中共實驗室改造的。
 
-**五毛言论****1**：（闫丽梦）连正经教授都不是，别出来丢人现眼。
-
-**反驳：**闫丽梦博士是不是正经教授，与她的论文的科学性没有直接关联，有质疑请针对文章。如果你不能针对闫博士的报告提出疑问，仅仅用“正经”与否，“丢人现眼”等低俗语言，来侮辱一位真正有着学位证明的教授，那么，我只好把你的原话返还给你:请别再出来“丢人现眼”好吗？
-
-**五毛言论****2**： （闫丽梦）用谣言反共真是其一大发明，造谣成了天赋人权。
-
-**反驳：**你动不动就直接说闫博士在“造谣”，请问：您的证据何在？否则，你就是那个造谣诬蔑者。
-
-**五毛言论****3**：（闫丽梦的言论）不过就是年初的阴谋论的英文翻版而已，真是一大笑话。这种垃圾是不会有peer reviewed， 也不会有正规journal发表其文章的。（闫丽梦）不要脸，但journals是要脸的。所以闫的文章只能发表在zenodo这种不需要同行评议，谁都能发，仅相当于自媒体blog性质的刊物上。
-
-闫水平太差，没意识到自己在出多大的洋相。郭文贵的拥趸者学历低，以获政庇偷渡跳船的人为主，根本看不懂，也不知道闫丽梦的这些说法有多丢人现眼，还当宝贝呈献给美国。笑死人。
-
-**反驳：**1. 阴谋论是五毛们最擅长的攻击人的手段，那就请看在闫博士的文章里，是否有阴谋。阴谋论是指没有证据的说法与传闻，而闫博士的论文恰恰有理有据，经得起科学的验证。五毛们把闫博士的论文诬蔑为阴谋论，那请对闫博士论文里关于病毒的真相的质疑，一一做出解答。
-
-2. 闫博士论文为什么选择在Zenodo发表？在论文里她自己解释过，由于很多科学杂志对病毒起源的文章会严格的审核，如经过同行评议，一般需要至少几周的时间才能发表，这样极可能会丧失该论文的时效性。闫博士之所以选择Zenodo来发表她的论文，就是考虑到了这份杂志的公开、便捷、时效性。请问：一篇论文的科学性与严谨性，会因为它在哪个被公认的杂志被发表而提升或降低吗?
-
-3. 对闫博士资历的质疑是无用的，闫博士的个人经历信息遍布网络，且多如繁星，目前可以说无人企及。她发表的文章也可以在她的researchgate（[https://www.researchgate.net/profile/Limeng\_Yan](https://www.researchgate.net/profile/Limeng_Yan)）找得到。
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/18162354/Screen_Shot_2020-09-18_at_4.06.29_PM-1.png)
-**五毛言论****4**：（闫丽梦）估计得等到美国政府批准政庇绿卡后才发声， 说早了怕被大家发现她其实没货， 竹篮打水一场空。
-
-**反驳：** 首先，闫博士冒着个人以及家人的生命危险来揭露CCP的罪行、拯救全人类，这么伟大的英雄行为难道是为了一张绿卡而为？此言论侮辱了人性的光辉！其次，闫博士特殊的科研经历，在美国，完全可以通过EB-1a申请杰出人才绿卡，根本不需要通过政治庇护来获得。
-
-**五毛言论****5**：真相很重要！但郭文贵吹嘘的所谓而已真相就算了吧。郭其实是以反华反共为核心的，这是郭氏的所谓政治正确。
-
-**反驳：**五毛们诬蔑闫博士论文的帖子，把方向带往文贵先生的极多。但必须指出的是，郭先生从不反华，只有灭共!
-
-**五毛言论****6**: 欧美白人主流科学家都已经证实病毒非人造了，唯独华人还拼命揪着所谓阴谋论不放。
-
-**反驳：**首先，并非所有的欧美主流科学家都对有关新冠病毒发过声，讨论病毒是不是人造的话题，跟你是哪个国家或者种族也没有必然联系，不光华人全世界，所有有良知的人都应对中共病毒的起源表示质疑。
-
-闫博士这篇论文指出，来自世界各地的很多科学家，也在质疑病毒自然来源说，虽确实有一些科学家支持自然起源说法，但他们大多引用石正丽2020年在*N**ature*上的一篇论文（A pneumonia outbreak associated with a new coronavirus of probable bat origin），推测病毒可能起源于RaTG13的自然变异。然而，这个RaTG13病毒片段的真实性，在科学界是存疑的。“路德访谈”以及Gnews上很多战友的文章都指出，这个RaTG13很可能是石正丽团队伪造出来混淆病毒真正来源的。闫博士在论文的结尾处也说，她和她的博士团队很快将发表第二篇报告，揭露石正丽关于RaTG13的造假。
-
-**五毛言论****7**：她（闫丽梦博士）是中共的特工，应该被禁在媒体发声。
-
-**反驳：**这又是五毛对闫博士的另一种无端造谣与攻击，没有任何证据说明闫博士是中共的特工。相反，我们看到的是，她为了正义，勇敢地站出来指责中共制造病毒并掩盖真相。美国是一个言论自由的国家，根据美国宪法第一修正案：在不违反法律的情况下，每个人都拥有发表正当言论的权利。而更戏剧性的是，闫博士在发表这篇报道以后，其Twitter账号被无端封停。有关闫博士论文的报道，在Facebook以及Instagram等媒体上也被封杀屏蔽。
-
-**五毛言论****8**：根据《新科学家》杂志，她（闫丽梦博士）的论文没有经过同行评议，数据很可疑。
-
-**反驳：**闫博士的论文目前没有经过同行评议，但这并不代表她的论文是有问题的。文章发表后，不到一周阅读量就超过60万次，相信不久就会得到许多科学家的积极回应。闫博士文章里的数据，几乎全部出自美国卫生部NIH的GenBank，以及已公开发表的学术文献。所以闫博士地论文是基于公开发表的数据进行的逻辑推理与推断。其科学性、可靠性远超石正丽团队的所谓自然起源说。
-
-**五毛言论****9**：事实上，闫的论调充满了阴谋论。比如，她说“科学界也保持了沉默，跟中共勾兑，不想让人民知道真相。这就是我为什么被打压的原因，中国共产党想让我消失”。
-
-**反驳：**又是阴谋论。闫博士的质疑有理有据，既有科学证据，本人亦是人证。目前，没有任何证据能表明闫博士的理论是造谣，相反，闫博士说的都得到了验证。今年3月底，国内的所有大学科研机构被告知，新冠肺炎疫情有关的学术论文，需采用分类管理的方式进行审核备案（[https://gnews.org/zh-hans/175265/](https://gnews.org/zh-hans/175265/)），全世界范围内的科学家也因为各种原因不敢发表评论。笔者与多位在药厂或者大学里从事生物医学研究的朋友聊天发现，一旦谈到新冠病毒，他们便默不作声。除了Foxnews，NY Post等极少数媒体，美国主流媒体更是对病毒起源闭口不谈。从今年5月始，中共针对闫博士的人身攻击与毁谤，更是没有间断过。
-
-**五毛言论****10**：《福布斯》报道过：宣称中国制造了新冠状病毒的吹哨人（郭先生？），与班农有关系。她（闫丽梦）显然也在为班农工作。任何有脑子的人都看得出来，但是川普的狂热支持者都拒绝承认。
-
-**反驳：**五毛们针对闫博士论文的批驳没有任何有效的科学论据，便转而攻击班农先生以及川普总统，试图把追寻病毒真相转变为政治阴谋论。目的是挑拨美国国内左右派的斗争，转移人们地视线。
-
-至此，笔者选取了部分五毛在海外中英文媒体上发出的对闫博士论文的攻击，并进行了逐条分析与反驳。值得一提的是，阅读各种留言，发现许多海外华人和美国人是清醒的，他们能够辨别五毛言论的实质，也意识到了中共的邪恶。我们相信，针对中共五毛的一系列打击行动即将展开。五毛伪类大外宣们，你们的日子不多了！
-
-编辑：美东香草山农场写作组 Kathy（文艺）
-
-五毛评论的来源：
-
-[https://forums.huaren.us/showtopic.html?topicid=2596416 HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398” HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416 HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″& HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″fid=398” HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″& HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398” HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416 HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″& HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″fid=398” HYPERLINK “https://forums.huaren.us/showtopic.html?topicid=2596416&fid=398″fid=398](https://forums.huaren.us/showtopic.html?topicid=2596416&amp;fid=398)
-
-[https://www.foxnews.com/media/chinese-virologist-government-intentionally-coronavirus](https://www.foxnews.com/media/chinese-virologist-government-intentionally-coronavirus)
-
-闫博士的researchgate页面  [https://www.researchgate.net/profile/Limeng\_Yan](https://www.researchgate.net/profile/Limeng_Yan)
+Foxnews Reporter Tucker Carlson interviewte Dr. Limeng Yan, die gerade einen akademischen Bericht veröffentlicht hat, der die Wahrheit über den Ursprung des neuen Coronavirus enthüllt. Durch die Analyse der ungewöhnlichen Merkmale des SARS-CoV-2-Genoms kam sie in dem Bericht zu dem Schluss, dass sich das Virus nicht natürlich entwickelt hat, sondern in einem Labor der KPCh modifiziert wurde. Dr. Yan erklärte auf einer Weise, dass Nicht-Wissenschaftler verstehen können, warum das Virus vom Labor der KPCh modifiziert wurde.
 
 0

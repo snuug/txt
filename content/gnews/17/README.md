@@ -1,9 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 江財神財經系列解讀之美共必有一戰
-`2020-09-18 16:47 gnewscanada` [轉載自GNews](https://gnews.org/zh-hant/367295/)
+## （西Spanish+中文）Take Down the CCP 火爆打破紀錄
+`2020-09-18 23:34 GM62` [轉載自GNews](https://gnews.org/zh-hant/367774/)
 
-喜馬拉雅聯盟加拿大農場金融時事欄目組 音頻 文漪 製作 海嘯
+西班牙語標題 La canción de Mile Guo (Take Down the CCP) bate récords
+
+翻譯：CUTE PANDA 校對：帅虎 視頻：文靓
+
+簡介
+
+Take Down the CCP 火爆得打破紀錄 中共組建新的員警部隊試圖阻止這首歌的發佈。
+
+La canción de Mile Guo (Take Down the CCP) bate récords. El PCCh tiene una nueva fuerza policial para detener la promulgación de esta canción
 
 0
