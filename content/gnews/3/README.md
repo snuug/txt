@@ -1,103 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日快報- 2020.9.19
-`2020-09-20 15:48 喜玛拉雅-华盛顿DC站` [轉載自GNews](https://gnews.org/zh-hant/369249/)
+## 推特將閆麗夢博士打入冷宮
+`2020-09-20 17:45 喜馬拉雅戰鷹團 Himalaya Hawk Squad` [轉載自GNews](https://gnews.org/zh-hant/371920/)
 
-**作者：星空無垠**
+*新聞來源：Breitbart《布賴特巴特》；作者： LUCAS NOLAN；發佈時間： 2020年9月16日*
 
+*翻譯/簡評：Victory；校對：感恩；審核：海闊天空；Page：拱卒*
 
+**簡評：**
 
+[!\[\](https://spark.adobe.com/page/oNLPc9hea1wGq/images/826cabc8-de76-47e7-bea4-7c6f80047c03.jpg?asset_id=fe222d74-2e26-4107-b685-021cb029e54a&amp;img_etag=%22d13d2710c14f9d4d7f3bc82fea51775c%22&amp;size=2560)](https://spark.adobe.com/page/oNLPc9hea1wGq/images/826cabc8-de76-47e7-bea4-7c6f80047c03.jpg?asset_id=fe222d74-2e26-4107-b685-021cb029e54a&amp;img_etag=%22d13d2710c14f9d4d7f3bc82fea51775c%22&amp;size=1024)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/20154125/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5-1.png)
+閆博士的賬號被封本身就是對病毒報告最好的背書。閆博士推特賬號註冊一兩天內就達到幾萬的關注，論文發出後，下載量也在極短時間內創造網站下載次數記錄。前幾天閆博士在英國Loose women 節目的訪談很快就達到76萬多次觀看（平常訪談節目點擊次數只有幾千）。閆博士公佈的中共制毒投毒的信息都是以爆炸速度在傳播。中共和其在西方的代理人已經完全慌了手腳，昏招頻出。
 
+除了推特賬號被無理由關閉，臉書也同時將閆博士公佈的信息毫無理由地標註為虛假信息。閆博士選擇在推特發布信息，也是幫助美國政府排幹沼澤行動的一部分。推特媒體自2017年就開始打壓爆料。最開始先關閉郭先生的賬號，接下來批量關閉支持爆料革命戰友的賬號。而這次推特更是毫不遮掩地站在中共一邊。這無疑讓美國朝野上下看到了中共在美國的控制力有多可怕。目前已經有很多議員和政要站出來公開批評和質疑推特和臉書的行為。如此赤裸裸地打壓言論自由，明顯違反美國憲法。此舉不但不能限制真相的傳播，反而會幫助更多的人認清中共的本質，也加速了中共在這場被追責戰爭中的滅亡。
 
+**推特將聲稱冠狀病毒是在武漢實驗室製造的中國病毒學家列入黑名單**
 
+**推特把說出冠狀病毒是在中共國武漢實驗室製造的中國病毒學家閆麗夢博士列入黑名單**
 
-###  農場新聞 
+[!\[\](https://spark.adobe.com/page/oNLPc9hea1wGq/images/75f432e4-fe1e-4984-a9b8-a1262c8813f3.jpg?asset_id=8e7da0d0-0970-47aa-a650-3fc2936594a8&amp;img_etag=%2205946994ed86032ba506864c504b1ac6%22&amp;size=3287)](https://spark.adobe.com/page/oNLPc9hea1wGq/images/75f432e4-fe1e-4984-a9b8-a1262c8813f3.jpg?asset_id=8e7da0d0-0970-47aa-a650-3fc2936594a8&amp;img_etag=%2205946994ed86032ba506864c504b1ac6%22&amp;size=1024)
 
-####  華盛頓DC新聞： 
+紐約郵報報導，前香港大學公共衛生學院研究員、中國病毒學家閆麗夢博士，在她採訪時說出新冠病毒是由中共國武漢病毒實驗室製造，隨後不久她的推特賬戶就被封停。
 
-9.17 DC農場眾言堂，“戰友故事匯專題“，由農場戰友分享參與爆料革命，走在滅共之路上的故事。交流對爆料革命和新中國聯邦的理解與思考。
+在與福克斯新聞主持塔克·卡爾森對話中，閆博士指稱中共國掩蓋病毒來自武漢實驗室的證據。閆博士告訴卡爾森：“他們不想讓人們知道真相，這也是我的賬號為什麼被暫停，我受到了打壓，而且中共想讓我消失。
 
-###  重大事件 
+卡爾森回答閆博士說：“我願意相信你，我先假設你不是一個反華種族主義者，不清楚為什麼推特會關閉你的賬號，或者為什麼你被其他美國媒體忽視。”
 
-- **網傳**華為深圳總部上千台Win7、Win10電腦被鎖死。 18日下午6點40分起，電腦被鎖，無法進入系統，鎖屏提示：”…根據美國法律規定，貴公司不得使用微軟公司產品…”
+布賴特巴特新聞聯繫推特了解更多信息，該社交媒體網站的一名代表表示，推特對此事不予置評。閆博士周一在開放獲取知識庫網站Zenote上發表了一篇文章，她聲稱這篇論文支持了她的說法，並詳細介紹了在實驗室環境下如何可以在六個月內方便地製造出新冠病毒。
 
+這篇有兩位共同作者的論文要求注意新冠病毒顯示出的生物學特性如何與自然發生的人畜共患病毒不一致。除了這篇論文，她的觀點還沒有科學證據和支持。
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19122838/1-96.png)
+許多人在推特上發帖質疑關閉閆博士賬號的做法：
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123839/2-28.png)
+**推特賬號：benjamin weingarten（知名作家）**
 
-- 騰訊在美國禁令生效前，將北美區WeChat換名WeCom繼續使用
-- 加拿大外長：加拿大放棄與中國的自由貿易談判
-- ZeroHedge消息：川普“批准”赦免阿桑奇以換取DNC洩漏的來源。如果屬實，阿桑奇顯然沒有去做，很可能與維基解密堅定不移的政策相一致，即無論洩密組織受到多大的壓力，都不會透露任何消息來源。
+[!\[\](https://spark.adobe.com/page/oNLPc9hea1wGq/images/cf812721-5ab0-4f78-af3b-f902f67b107b.jpg?asset_id=a12f659f-0f70-4273-96ec-b80e11ba490f&amp;img_etag=%22946fe3c703eabc64604073071f3500d0%22&amp;size=3124)](https://spark.adobe.com/page/oNLPc9hea1wGq/images/cf812721-5ab0-4f78-af3b-f902f67b107b.jpg?asset_id=a12f659f-0f70-4273-96ec-b80e11ba490f&amp;img_etag=%22946fe3c703eabc64604073071f3500d0%22&amp;size=1024)
 
+*推文翻譯：據我所知，網絡文檔顯示，閆麗夢博士在推特賬號被停之前共發布了4條推文。推文是關於中共在新冠病毒中扮演的角色， 
+包括她對人工製造病毒的指控。推特基於什麼理由停止她的賬號？*
 
-###  文貴直播和蓋特 
+**推特賬號：Ryan Fournier**
 
-####  直播：無 
+[!\[\](https://spark.adobe.com/page/oNLPc9hea1wGq/images/e8a4cb28-9671-4f06-a0a7-d23fd7c17afc.jpg?asset_id=7dc06d37-a622-4176-af0c-a60c65e8b91d&amp;img_etag=%22885dbc96636539e6e7730c9fad034c74%22&amp;size=2560)](https://spark.adobe.com/page/oNLPc9hea1wGq/images/e8a4cb28-9671-4f06-a0a7-d23fd7c17afc.jpg?asset_id=7dc06d37-a622-4176-af0c-a60c65e8b91d&amp;img_etag=%22885dbc96636539e6e7730c9fad034c74%22&amp;size=1024)
 
-####  蓋特： 
+*推文翻譯：華人病毒學家閆麗夢博士推特賬號被暫停了。因為她說中共政府製造並釋放了新冠病毒。她是冒著生命危險說出了這件事。* 
+ *這真讓人噁心。*
 
-9月18號：會議期間再和戰友們聊一會兒。蓋特視頻：
+**圖片推特賬號：Tom Quiggin（作家）**
 
-[https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f6524e9be623f30dc7c3cc5](https://gtv.org/web/#/FriendsCommunityDetail?detailId=5f6524e9be623f30dc7c3cc5)
+[!\[\](https://spark.adobe.com/page/oNLPc9hea1wGq/images/7ea83217-a6fa-49b7-8fa2-9a59e0f7e17c.jpg?asset_id=822e07e8-60b6-4f73-9c53-a4b754c64bee&amp;img_etag=%2293c5bbb067be7c2da40caab89fbd2094%22&amp;size=2560)](https://spark.adobe.com/page/oNLPc9hea1wGq/images/7ea83217-a6fa-49b7-8fa2-9a59e0f7e17c.jpg?asset_id=822e07e8-60b6-4f73-9c53-a4b754c64bee&amp;img_etag=%2293c5bbb067be7c2da40caab89fbd2094%22&amp;size=1024)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123516/8-5.png)
+*推文翻譯：難以置信閆博士的賬號被暫停了，她就是那位從中共國逃出來為我們解釋新冠病毒是怎麼開始的那位女士。*
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123541/3-20.png)
+[原文鏈接](https://www.breitbart.com/tech/2020/09/16/twitter-blacklists-chinese-virologist-who-claims-coronavirus-was-manufactured-in-wuhan-lab/)
 
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123554/4-4.png)
+編輯： [【喜馬拉雅戰鷹團】](https://spark.adobe.com/page/oNLPc9hea1wGq/)
 
-9月18號：這是真正的懂文貴的好戰友，萬分感謝您！還要有一個親自的行動呢？ 😘😘😘😊😊😊🌽🌽🌽
-
-9月18號：再沒錢也得過日子吧……也得吃飯呢，只能喝點白松茸湯．貓屎咖啡．吃點法囯鴨腿．弄點草雞蛋．再吃點．草．加點海貝，也只能這樣了……窮人有窮人的活法，C CP．欺民賊的那種生活方式． ……咱可享受不了！特別是政法委．中紀委．中南坑人……最喜歡的炒人肉胎盤．人肉胎盤的亂炖火鍋！
-
-###  路德社和War Room節目： 
-
-####  9/18/2020早路德社 
-
-路德時評（路安墨談）：川普政府宣布9月20日開始美國全面禁止下載抖音、微信；為什麼石正麗不得不出來說可能永遠找不到中間宿主？為什麼這就是變相承認閆麗夢博士論文的無懈可擊？
-
-路德先生又爆大料：原來中共早在1月中旬就想如法炮製當年讓果子狸背鍋中間宿主的一系列操作，這次用貉來背鍋。閆博士掌握了所有這些港大實驗室和中共科研人員勾兌，並準備造假的證據，而且有情報顯示03年的SARS是成功進行了這個計劃。
-
-###  9/18/2020晚路德社 
-
-路德時評（路博艾冠李維談嘉賓班農先生）：閆博士的論文在美國政府影響力？班農先生怎麼看路德社119節目？百歲老人老班農站出來讓所有人淚奔！
-
-今天路德節目看到班農先生99歲的的老父親出鏡，支持我們的路德頻道和爆料革命，感動的落淚。感謝感恩遇見文貴先生，爆料革命，還有這麼多優秀的博士團，國內的無名氏，還有真戰友們！
-
-路德節目班農父親百歲老人的出境，震撼我了。班農平民主義的傑出代表，其父親對爆料革命的認可和期待支持，感動我們無數戰友，能把自己父親介紹給大家認識，就是把路德社和戰友們當成家人般對待，這種真摯的情感是偽類五毛們一輩子都達不到的。
-
-###  推特文摘 
-
-[https://twitter.com/VOG2020/status/1307137085443387392](https://twitter.com/VOG2020/status/1307137085443387392)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123718/6-3.png)
-[https://twitter.com/OTcaUcap23PTd25/status/1307154086513451008](https://twitter.com/OTcaUcap23PTd25/status/1307154086513451008)
-![](https://s3.amazonaws.com/gnews-media-offload/wp-content/uploads/2020/09/19123732/7-2.png)
-###  Honey Badger @baobaoxiaoliao 
-
-近一百歲的老人一個世紀的興衰榮辱他沒必要去討好誰或者貶低誰
-
-他是發自內心的相信正義勇敢善良還有堅韌執著對良知的追求。
-
-我們雖然有老有少不同種族但我們都相信正道主義
-
-我們會為武漢的孤兒而流淚也會為楊改蘭而憤怒我們相信無我更重要的是我們會行動
-
-謝謝老人家的祝福我們會成功的！
-
-###  牆內咨訊 
-
-- 環球網：剛卸任的安倍晉三今天除了“拜鬼”(參拜靖國神社)，還追悼李登輝，想幹什麼？
-- 中共發布商務部令2020年第4號不可靠實體清單規定
-- 禁令生效前，美國WeChat用戶展開“最後決戰”。代表美國微信（WeChat）用戶利益的非盈利組織“美國微信用戶聯盟”再次在法庭上發起訴求，以便在周日特朗普政府將微信從美國下架的禁令生效前予以阻止。
-- 國辦印發通知：堅決制止耕地“非農化”行為。強調解決好14億人口的吃飯問題，必須守住耕地這個根基。
-- 參考消息：安倍晉三離職，給菅義偉留下了這道外交難題繼任者菅義偉能否在中美緊張關係持續危險升級之際繼續推行安倍的地緣政治平衡政策？
-- 環球網：台軍又報了：今天來了19架台媒今天繼續炒作報導解放軍軍機在台灣周邊的戰訓活動。
-- 武漢弘芯千億項目停擺之謎：最大股東零出資。總投資額高達1280億元的武漢弘芯半導體製造項目，日前因恐遭“爛尾”而引發輿論高度關注。
-- 海航集團：將按時發薪、恢復公積金比例等各項承諾兌現
 
 
 0
