@@ -1,66 +1,68 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 21/26 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
+## 頁面 21/29 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [29](/content/README-29.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
 
-[文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180809-4256963212298749895.md)
 
-[文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
+[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180809-3627104687795521023.md)
 
-[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/2018/04/20180418-3510219950010298563.md)
+[文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180808-5918968027514942039.md)
 
-[文字版：《文贵看春晚》爆料（三，四）](/content/2018/04/20180418-9010451938927487211.md)
+[文字版：2018 7月22号王建被杀背后的其他细节！及为什么李红宽输掉了官司！（1，2）](/content/2018/07/20180725-7254204072739066791.md)
 
-[文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
+[文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/2018/07/20180722-7878722502564769859.md)
 
-[文字版：《文贵看春晚》爆料（一，二）](/content/2018/04/20180418-7031561939158175109.md)
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/2018/07/20180719-6182147046946865202.md)
 
-[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/2018/04/20180418-763599540793711583.md)
+[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
 
-[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/2018/04/20180418-3829299290570910245.md)
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/2018/07/20180719-5443469418694785796.md)
 
-[文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
+[文字版：July 10th 2018王岐山设计王健可能用诈死．被杀事件使海航重组．将盗国财富合法化！王岐山已经开始出大招了！](/content/2018/07/20180711-4817682308462486547.md)
 
-[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
+[文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/2018/07/20180710-2033069974209071479.md)
 
-[文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
+[文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180707-180274757659338281.md)
 
-[文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
+[翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
 
-[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
+[文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180705-8441159493365541935.md)
 
-[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
+[翻译：谍战大戏：虎穴追踪，智擒线民熊 （2）](/content/2018/07/20180703-1798568715370804702.md)
 
-[文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
+[翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
-[文字版：郭文贵先生2018年2月4日郭媒体直播](/content/2018/04/20180418-7184160832028927540.md)
+[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
-[2018年2月3号 文贵郭媒体报平安视频](/content/2018/04/20180418-8770803911585151936.md)
+[文字版6/27/18郭媒体直播](/content/2018/06/20180630-1675811568156911003.md)
 
-[郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/content/2018/06/20180626-3936778233865225859.md)
 
-[郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
+[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/2018/06/20180619-3280425494890246053.md)
 
-[翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
+[文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/content/2018/06/20180612-5378414891358976970.md)
 
-[翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
+[翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180607-8000393637108456093.md)
 
-[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
+[文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/content/2018/06/20180605-3544664024044691633.md)
 
-[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
+[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180602-4228988724633844641.md)
 
-[2018年1月4号文贵谈习主席李克强两个领导人的女儿进入北大的背后故事](/content/2018/04/20180418-619291156807124954.md)
+[文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/05/20180531-5466761042269971935.md)
 
-[郭文贵先生遥祝澳洲挺郭后援会新年快乐！呼吁放下私心，团结一致，克服恐惧，排除干扰，一起走向喜马拉雅](/content/2018/04/20180418-3865257394170288457.md)
+[文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180529-639277482984082138.md)
 
 
-## 頁面 21/26 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
+## 頁面 21/29 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [29](/content/README-29.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

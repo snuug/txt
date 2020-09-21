@@ -1,63 +1,140 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
 
-**milesguo** 2020年4月17日CCP冠状病毒大流行第84集<br>https://gnews.org/zh-hans/177074/
+### [雲南瑞麗連夜封城，我們應該警覺什麼？](/content/gnews/1/README.md)
 
-[https://www.guo.media/posts/277722](https://www.guo.media/posts/277722) `2020-04-18T10:10:11`
-##
+當科技進步不僅不能為民所用，造福於民，反成為統治者奴役老百姓、監控老百姓的生活，甚至屠殺無辜老百姓的工具時，這不僅是科學的悲哀，更是對人類生存的巨大挑戰。  `2020-09-21 01:14 CHANGDAO`
 
-**milesguo** 2020年4月16日CCP冠状病毒大流行第83集<br>https://gnews.org/zh-hans/175180/
+### [2020/9/12 班農戰斗室郭文貴專場中文摘要EP383&amp;384](/content/gnews/2/README.md)
 
-[https://www.guo.media/posts/277711](https://www.guo.media/posts/277711) `2020-04-17T18:10:11`
-##
+爆料革命掀起了文化滅共的新浪潮。中共的存在就是美國的威脅。閆博士是上天派來揭露病毒真相的。  `2020-09-21 01:12 CHANGDAO`
 
-**milesguo** 班农战情室120: 美切断WHO资金支持 呼吁北京冬奥会取消<br>https://gnews.org/zh-hans/174247/
+### [別了，蘋果日報](/content/gnews/3/README.md)
 
-[https://www.guo.media/posts/277700](https://www.guo.media/posts/277700) `2020-04-16T20:40:09`
-##
+在這個歷史轉折的關鍵時刻，《蘋果日報》和黎智英先生做出什麼樣的選擇，是選擇站在人民和正義一邊，還是選擇與中共沆瀣一氣、狼狽為奸、助紂為虐，成為邪惡的幫兇和共犯，望《蘋果日報》和黎智英先生三思！  `2020-09-21 01:11 CHANGDAO`
 
-**milesguo** 班农战情室120: 美切断WHO资金支持 呼吁北京冬奥会取消<br>https://gnews.org/zh-hans/174247/
+### [簡單讀懂閆麗夢博士的科學報告](/content/gnews/4/README.md)
 
-[https://www.guo.media/posts/277699](https://www.guo.media/posts/277699) `2020-04-16T21:55:11`
-##
+閆博士本身是高級廚師（醫學博士，病毒學博士，疫苗研究博士後），也參與過馬力克的相關工作。但是更可貴的是她有正義感和勇氣，能冒著生命危險，拋家舍業來到美國，向全世界揭露中共製造病毒的真相。  `2020-09-21 01:10 CHANGDAO`
 
-**milesguo** 勿忘香港，全民抗疫！“共渡难关，中共病毒疫情每日热线”<br>https://gnews.org/zh-hans/174184/
+### [1619 Project&#8212;修正主義版的新美國歷史](/content/gnews/5/README.md)
 
-[https://www.guo.media/posts/277697](https://www.guo.media/posts/277697) `2020-04-16T20:55:10`
-##
+《1619》作為身份政治(identity politics)的極品，與今天的主流政治手段交相輝印。 《1619》希望用一種新的“群體”權利制度來取代美國建國精神中經久不衰的黃金法則，即保護“個人”享有平等權利。  `2020-09-21 01:08 CHANGDAO`
 
-**milesguo** 2020年4月14日CCP冠状病毒大流行第81集<br>https://gnews.org/zh-hans/173330/
+### [揭露曾宏一條披著羊皮的狼](/content/gnews/6/README.md)
 
-[https://www.guo.media/posts/277668](https://www.guo.media/posts/277668) `2020-04-15T08:55:14`
-##
+如曾宏之流表面偽裝成民主人士，商業人士等，實際幹的是幫中共收集情報，破壞民主活動，迫害真正的民主人士的勾當。  `2020-09-21 01:06 CHANGDAO`
 
-**milesguo** https://gnews.org/zh-hans/173301/<br>https://gnews.org/zh-hans/173301/
+### [每日快報- 2020.9.20](/content/gnews/7/README.md)
 
-[https://www.guo.media/posts/277667](https://www.guo.media/posts/277667) `2020-04-15T09:55:13`
-##
+要想了解今天發生什麼大事。來看華盛頓DC農場的每日快報！  `2020-09-20 21:39 喜马拉雅-华盛顿DC站`
 
-**milesguo** 2020年4月13日CCP冠状病毒大流行第80集<br>https://gnews.org/zh-hans/172058/
+### [星火聚燎原，滴水匯成海——美東十一終共大遊行招募令](/content/gnews/8/README.md)
 
-[https://www.guo.media/posts/277654](https://www.guo.media/posts/277654) `2020-04-14T16:40:20`
-##
+滅共大潮大浪滔滔，這是這個時代的選擇。站在時代的一邊，加入我們，一生榮耀。  `2020-09-20 21:06 CHANGDAO`
 
-**milesguo** TNT Daily : CCP media tells Chinese peope that New York is overwhelmed by the number of unemployed resident<br>https://gnews.org/171151/
+### [對爆料人閆麗夢的爆炸性採訪讓《大話女人》主持人和觀眾們驚呆了](/content/gnews/9/README.md)
 
-[https://www.guo.media/posts/277645](https://www.guo.media/posts/277645) `2020-04-13T18:40:11`
-##
+病毒學家閆博士告訴主持人，冠狀病毒並非來自海鮮市場，其來自武漢的實驗室而非大自然，中共國正在“掩蓋真相”。  `2020-09-20 21:00 CHANGDAO`
 
-**milesguo** The Farm: Miles Guo hints at CCP’s “AI virus”<br>https://gnews.org/171538/
+### [我給美國人啟蒙（一）](/content/gnews/10/README.md)
 
-[https://www.guo.media/posts/277644](https://www.guo.media/posts/277644) `2020-04-13T17:10:13`
-##
+十八世紀德國哲學家康德關於啟蒙有句名言：“（敢於求知），勇於運用你自己的理智”。由此可見，無論是啟蒙別人還是自我啟蒙，就是要運用理性思考現實，但前提是要有勇氣！  `2020-09-20 20:58 CHANGDAO`
+
+### [新時代的南北戰爭](/content/gnews/11/README.md)
+
+這場新時代的南北戰爭不是某個國家、某個民族的戰爭，而是全世界所有人與中共及支持中共的“奴隸主們”的戰爭。  `2020-09-20 20:58 CHANGDAO`
+
+### [親共的中共國團體資助“黑命貴”的相關組織](/content/gnews/12/README.md)
+
+中共的海外所謂“非政府組織”資助“黑命貴”激進組織，企圖將他們的維權運動升級為政治運動，以搞亂美國、搞弱美國、進而搞垮美國  `2020-09-20 20:56 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [9/19 郭文貴先生: 中共懼怕RICO法案, 嘴上威脅台灣, 實際上是紙老虎](/content/gnews/13/README.md)
+
+中共嘴上威脅台灣,實際上是紙老虎;中共害怕朱利安尼使用RICO法案滅共,閆博士在瑞恩博士的訪談撼動了中共高層內部;蓬佩奧是美國的英雄  `2020-09-21 01:04 秘密翻译组`
+
+### [2020/09/11 班農戰斗室總結（下）](/content/gnews/14/README.md)
+
+整理：美東香草山翻譯組 GB Water、雪蓮、任意東西、月球小飛象
+ `2020-09-21 01:04 CHANGDAO`
+
+### [從狗不理包子王府井店門關閉說開去](/content/gnews/15/README.md)
+
+由於狂妄自大，貪戀皇位，對內蠻橫專權，暴斂民財；對外野心勃勃，老子天下第一。到頭來，終落得狗不理，人害怕，世厭棄，無處居。千年老字號也會被砸了招牌。  `2020-09-21 01:03 CHANGDAO`
+
+### [中共正在效仿納粹第三帝國的宣傳機器奴役百姓](/content/gnews/16/README.md)
+
+作者：美東香草山農場喜馬之光
+審核：悟空
+ `2020-09-21 00:59 CHANGDAO`
+
+### [郭文貴一曲《推翻共產黨》飆升全球iTunes串流下載冠軍](/content/gnews/17/README.md)
+
+香草山綜合報導
+ `2020-09-21 00:58 CHANGDAO`
+
+### [為什麼人民幣對美元近期在升值？未來的走勢將如何？](/content/gnews/18/README.md)
+
+人民幣近期對美元走出了一波小幅升值的走勢。那麼人民幣為什麼出現升值呢？這種升值還會持續嗎？未來的走勢會如何？近期這些都是很多人關心的問題。本文將試著解釋一下最近的人民幣的狀況。  `2020-09-21 00:57 CHANGDAO`
+
+### [【要闻说 第4期】谁是爆料革命背后真正的大佬](/content/gnews/19/README.md)
+
+谁是爆料革命背后真正的大佬  `2020-09-20 20:17 康州喜马拉雅农场`
+
+### [【司法部「以法滅共」系列行動】七名被告包括五名與國安有關聯的中國人被控入侵全球計算機](/content/gnews/20/README.md)
+
+司法部指控五名中國公民：張浩然、譚戴林、蔣立志、錢川和付強和兩名馬來西亞公民：黃王華（Wong Ong Hua）和凌陽晴（Ling Yang Ching）犯多項罪名  `2020-09-20 20:06 Isaiah4031`
+
+### [中共強制“毀苗還田”以應對“糧食危機”](/content/gnews/21/README.md)
+
+隨著糧食嚴重短缺的真相無法再依靠宣傳洗腦來掩蓋之時，習總加速師發出了遏制糧食浪費的號召，這更加引發了對糧食短缺問題的猜測  `2020-09-20 20:05 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [爆料革命诵](/content/gnews/22/README.md)
+
+诗朗诵--歌颂闫丽梦博士，歌颂爆料革命，推翻共产党  `2020-09-20 20:02 天涯客`
+
+### [FACEBOOK禁言對閆博士的採訪遭批](/content/gnews/23/README.md)
+
+“審查制度不會讓我們變得更明智，不會讓我們更多地了解情況。如果審查制度有用的話，我們現在就說俄語了、蘇聯就統治全世界了  `2020-09-20 19:25 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [爆革星評： 中共加快禁牧滅族引蒙古族極大憤慨](/content/gnews/24/README.md)
+
+中共除了禁止蒙古語教學，目前下發通知將全面禁牧。游牧是蒙古族的生命特色，中共“禁牧”就是企圖消滅蒙古族群  `2020-09-20 19:13 gnewscanada`
+
+### [香港民主運動獲2020年自由獎](/content/gnews/25/README.md)
+
+香港民主運動獲得非政府組織“自由之家”評選的2020年“自由獎”。這是對香港抗議者的承認和支持，也對中共鎮壓民主運動的鞭撻  `2020-09-20 18:39 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [班農疫情作戰室 389期](/content/gnews/26/README.md)
+
+閻博士被封殺事件讓人警醒：科學沒有進行客觀和開放的討論，臉書和推特任意進行內容審查
+蘭州爆發了布魯氏菌病，又一次暴露了中共的邪惡本質  `2020-09-20 18:28 GM47`
+
+### [推特將閆麗夢博士打入冷宮](/content/gnews/27/README.md)
+
+ 科學家閆麗夢博士在推特註冊了賬號，然而僅僅發了四條推文，推特就無理由的封停了她的賬號。而她發的推文均與中共病毒的真相有關  `2020-09-20 17:45 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [莫拉·莫尼漢告訴你中共在西藏的所作所為—中國的三峽大壩危機《美國思想領袖》](/content/gnews/28/README.md)
+
+譯者說，懷著對喜馬拉雅的嚮往，對達賴喇嘛尊者和西藏人民的尊重，以及對信仰和真相的追求，以期喚起華語世界對西藏問題的認識和思考  `2020-09-20 17:07 GM65`
+
+### [第二名了解中共生化武器內情的逃離者將信息傳給了美國](/content/gnews/29/README.md)
+
+繼閆博士逃出中共魔掌，揭露中共病毒真相後，又一位從中共軍隊逃出來的人士，向美國情報部門提供了有關中共國生物武器計劃的信息  `2020-09-20 16:58 喜馬拉雅戰鷹團 Himalaya Hawk Squad`
+
+### [加國眾網友挖苦批評百名前外交官苦勸特魯多用孟晚舟換加國兩人質](/content/gnews/30/README.md)
+
+加拿大的民意正在逐漸甦醒。希望這些甦醒的民意能形成燎原之火，加入全球的滅共浪潮中，將中共紅魔徹底從加拿大清掃出去  `2020-09-20 16:34 gnewscanada`
 

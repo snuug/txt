@@ -1,66 +1,68 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 13/26 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [26](/content/README-26.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+## 頁面 13/29 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [29](/content/README-29.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
 
-[文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
+[文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
 
-[文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190330-2880102853633751402.md)
+[文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
 
-[文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
+[文字版：2019年7月23日健身后直播](/content/2019/07/20190723-3137442274090003733.md)
 
-[文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
+[文字版：2019年7月21日 爆料革命进入全球灭共的新时代](/content/2019/07/20190722-5623982298172574655.md)
 
-[文字版：2019年3月3日金正恩为什么直接回朝鲜为什么要枪毙，偷拍金正恩视频的······](/content/2019/03/20190305-7678928871394571383.md)
+[文字版：郭先生7月15日直播：盤古大觀在7月14日被北京高院公告······將以實際價格的10%被拍賣······實際的背後的黑手就是江澤民和江志成，孟建柱和孫力軍······王岐山！這就是過去兩週他們要栽贓····](/content/2019/07/20190716-7014702308102493724.md)
 
-[文字版：2019年3月2日文贵和Sara，安红女士，路德，邱先生谈话](/content/2019/03/20190304-4934492035985499612.md)
+[文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/content/2019/07/20190716-7612931641491284190.md)
 
-[文字版：2019年2月28日談金正恩談判的破裂和藍標公司在美國犯罪的各種信息](/content/2019/03/20190303-6089231756466029624.md)
+[文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/content/2019/07/20190712-9051839422089379972.md)
 
-[文字版：2019年2月27日：一切都是天注定吗？习亡（于）岐山，民心向郭······](/content/2019/02/20190228-4589670167001687334.md)
+[文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/content/2019/07/20190711-2214533308636884375.md)
 
-[文字版：2019年2月26日談法治基金和金正恩與川普團隊的不同](/content/2019/02/20190227-2121363787945897238.md)
+[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
 
-[文字版：2月24日，文贵谈，法治基金建立的真正目的](/content/2019/02/20190227-189178427361048869.md)
+[文字版：2019年7月8日：文贵车上谈王健之死](/content/2019/07/20190710-5360676795961744736.md)
 
-[文字版：2019年2月23日文貴和班農談宗教革命：爆梵蒂岡與中共的交易](/content/2019/02/20190226-8859437159396757540.md)
+[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
 
-[文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
+[文字版：2019年7月7日王岐山又出手王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义](/content/2019/07/20190709-1755868837124119656.md)
 
-[文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
+[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/2019/07/20190708-1629076298190675341.md)
 
-[文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/2019/02/20190222-1257758446657176479.md)
+[文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
 
-[文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/2019/02/20190220-7271469985429924299.md)
+[文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/content/2019/02/20190219-8738304753006288590.md)
+[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
-[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/content/2019/02/20190219-2494851897294759550.md)
+[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
 
-[重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/content/2019/02/20190219-5950789475618575573.md)
+[文字版：2019 年6月30日郭先生班農先生直播 談G20 香港 臺灣 北朝鮮](/content/2019/07/20190702-6850390939330933218.md)
 
-[关于C3 和C4基金](/content/2019/02/20190211-7844473960324146477.md)
+[文字版2019-06-29郭文貴先生直播【G20有….協議  爆料革命大勝】](/content/2019/06/20190630-3604984578617941887.md)
 
-[文字版：2月7日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-8075148906737063035.md)
+[文字版：6月26日郭文贵先生直播：谈香港游行的中共黑手，东南西北四方围剿中共正在收网](/content/2019/06/20190627-3104653818463071254.md)
 
-[文字版：2月6日文贵、班农、凯琳 回答战友们对春晚爆料的问题](/content/2019/02/20190210-7889508875905531484.md)
+[文字版：6月25日文貴報平安6月25日从香港的成功抗议行动，和近几天共产党的统一宣传口径，让我们看到了过去两年爆料革命所面临的挑战！](/content/2019/06/20190625-920777833882255491.md)
 
-[文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
+[翻译美国对伊朗实施制裁的行政命令](/content/2019/06/20190625-2187152093709329841.md)
 
-[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190208-3310541803704262131.md)
+[文字版：2019年6月23日念从心起力量无比念念不忘必有回响](/content/2019/06/20190623-2853766971834487830.md)
 
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/2019/02/20190207-4952752821783304200.md)
+[文字版：2019年6月22日文贵直播中共如何和塔利班共同反恐](/content/2019/06/20190623-4535731736984314689.md)
 
-[For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/2019/02/20190206-4750659155472193962.md)
+[文字版：郭文贵先生2019年6月20日谈王毅讲的潘多拉盒子是什么意思](/content/2019/06/20190621-2858079650750078361.md)
 
 
-## 頁面 13/26 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [26](/content/README-26.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)
+## 頁面 13/29 [**<**](/content/README-12.md) [1](/content/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13** [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) ... [29](/content/README-29.md) [**>**](/content/README-14.md) [查看全部](/content/README-all.md)

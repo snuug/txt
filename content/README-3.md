@@ -1,66 +1,68 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 3/26 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [26](/content/README-26.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/29 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [29](/content/README-29.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
 
-[文字版：2020年2月14日文贵试直播谈GTV的武汉疫情视频免费用，战友不树敌只为灭共](/content/2020/02/20200216-8326399150836754935.md)
+[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/2020/06/20200609-6663996851433423244.md)
 
-[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
+[新中国联邦六四建国直播图文版](/content/2020/06/20200606-8976575972430129554.md)
 
-[文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
+[文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
 
-[文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
+[文字版：5月30日郭先生GTV第二次直播](/content/2020/06/20200602-4381535378837818753.md)
 
-[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/2020/02/20200210-962029426939304062.md)
+[文字版：2020年5月30日郭先生GTV直播](/content/2020/06/20200602-6823555117302845700.md)
 
-[文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/content/2020/02/20200208-1574169935593183081.md)
+[文字版:郭先生2020年5月29日GTV直播](/content/2020/06/20200601-3800927915915287668.md)
 
-[文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/2020/02/20200207-1018085438750382057.md)
+[文字版:5月27日郭先生GTV直播](/content/2020/05/20200530-3579241706056800133.md)
 
-[文字版：2020年2月1日郭文贵先生第三次直播分享参加川普总统晚宴有感](/content/2020/02/20200204-4372842395981895522.md)
+[文字版：5月25日郭先生GTV直播](/content/2020/05/20200528-6916942439704303274.md)
 
-[文字版:20年2月1日文贵在马阿拉歌总统套房第二次直播](/content/2020/02/20200204-1180621866015014143.md)
+[文字版:郭先生5月23日GTV第二次直播](/content/2020/05/20200528-1016481976863648605.md)
 
-[文字版:2020年2月1日文贵第一次直播：共产党救灾不利又拒绝国际救援，百姓何去何从？一起找书记！](/content/2020/02/20200204-5956561708667682413.md)
+[文字版:5月23日郭先生第一次GTV直播](/content/2020/05/20200528-4447173668011122398.md)
 
-[文字版：2020年1月31日文贵谈导致疫情扩大的真正原因是共产党隐瞒了疫情，我们要唯真不破传播武汉疫情真相](/content/2020/02/20200203-308153761485477225.md)
+[文字版:郭先生5月22日GTV直播](/content/2020/05/20200525-8248369863817556998.md)
 
-[文字版：2020年1月30日文贵谈中南坑政治局常委有人会死，不死不会发生大事](/content/2020/02/20200201-4702863158571733458.md)
+[文字版:郭先生5月21日GTV直播](/content/2020/05/20200525-8500785424702761303.md)
 
-[文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
+[文字版:郭先生5月19日GTV直播](/content/2020/05/20200524-8312018362582702518.md)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
+[文字版：5月17日郭先生直播-国内的战友不要在6月4号左右有任何冲动的行动，我们要灭共灭贼，不要反真正的好企业](/content/2020/05/20200520-8311112395612251879.md)
 
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/2020/01/20200130-1699829441084097385.md)
+[文字版：郭先生5月16日GTV直播](/content/2020/05/20200519-6331288695899345209.md)
 
-[文字版：2020年1月27日文贵谈科比意外死亡并呼吁中共在灾难面前以人命为主，不要再玩儿政治](/content/2020/01/20200129-3976457637426719538.md)
+[文字版:5月15日郭先生GTV直播](/content/2020/05/20200519-1610344704805853359.md)
 
-[文字版: 2020年1月23日文贵直播谈今天法治基金会议的花絮和“文贵看春晚”的一些安排](/content/2020/01/20200128-8595436432379526422.md)
+[文字版:郭先生5月14日GTV直播](/content/2020/05/20200518-4909626383559328893.md)
 
-[文字版：2020年1月26日郭先生报平安直播——爆料革命三周年文贵向所有战友致谢！](/content/2020/01/20200128-4895858785511453067.md)
+[文字版：5月10日郭先生GTV直播连线文欣](/content/2020/05/20200516-5917193876811912006.md)
 
-[文字版：2020年1月25日大年初一文贵严肃负责地向疫区同胞们报告-武汉疫情绝对是人为不是天灾！](/content/2020/01/20200127-3403056014280027444.md)
+[文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/2020/05/20200516-6242836971583369231.md)
 
-[文字版：2020年1月24日庚子年“文贵看春晚”直播](/content/2020/01/20200127-1065691289737851203.md)
+[文字版:郭先生5月9日GTV直播连线魔女Peace](/content/2020/05/20200514-7037618968169156768.md)
 
-[文字版：2020年1月22日文贵第二次直播谈武汉疫情紧急事件](/content/2020/01/20200124-5709534972923488807.md)
+[文字版：5月8日郭先生GTV直播连线挺郭小妹](/content/2020/05/20200512-5842185723258318346.md)
 
-[文字版：2020年1月22日文贵谈中共新4000隐士灭爆计划以及借中美贸易协议之名行盗国之实](/content/2020/01/20200124-8451089471226145185.md)
+[文字版：5月9日郭先生GTV直播连线草根小哥](/content/2020/05/20200512-4168570393845620810.md)
 
-[文字版：2020年1月20日文贵谈中国正在发生的非典真相并分享西方人如何看待勤劳的中国人却如此多灾多难不受人尊重的原因](/content/2020/01/20200122-2341307363254649322.md)
+[文字版:5月8日郭先生GTV直播连线战友文信](/content/2020/05/20200510-6481268913488602343.md)
 
-[文字版：2020年1月19日文贵爆惊天新闻——中美协议是卖港交易](/content/2020/01/20200121-9098198645527028408.md)
+[文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
-[文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
+[文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
 
 
-## 頁面 3/26 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [26](/content/README-26.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)
+## 頁面 3/29 [**<**](/content/README-2.md) [1](/content/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [29](/content/README-29.md) [**>**](/content/README-4.md) [查看全部](/content/README-all.md)

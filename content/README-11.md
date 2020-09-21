@@ -1,66 +1,68 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 11/26 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [26](/content/README-26.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/29 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [29](/content/README-29.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
-[文字版：2019年6月14日郭文貴先生直播：林鄭月娥必须提出辭職，取消「逃犯條例」](/content/2019/06/20190615-9025117161508016054.md)
+[文字版：20190928郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临](/content/2019/09/20190929-7939918714279530876.md)
 
-[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/content/2019/06/20190615-8556712015252001819.md)
+[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/2019/09/20190928-167661051507921662.md)
 
-[文字版：郭先生緊急喊話香港616必須上街！](/content/2019/06/20190615-3492189013164617550.md)
+[文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/content/2019/09/20190927-5347503096158314507.md)
 
-[文字版：2019年6月13日谈香港反遣返游行](/content/2019/06/20190613-2395571549035614161.md)
+[文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/content/2019/09/20190927-2016233729904353338.md)
 
-[文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/content/2019/06/20190613-2844499569524374811.md)
+[文字版：2019年9月22日郭文贵先生直播 CCP突發三大戰役挑戰全球，妄圖共產天下，垂死掙扎](/content/2019/09/20190924-48639377592397821.md)
 
-[文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/2019/06/20190611-3204594728389036788.md)
+[文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/content/2019/09/20190921-9126784850251019674.md)
 
-[文字版：2019年6月8日文貴直播](/content/2019/06/20190608-7050696263727200895.md)
+[文字版：2019年9月17日文貴報平安](/content/2019/09/20190917-2323498074578492581.md)
 
-[文字版：2019年6月7日 香港的事真搞大了 ](/content/2019/06/20190608-7273432154872200395.md)
+[文字版：2019年9月15日 香港已成为恐惧之港](/content/2019/09/20190917-7577220596935524798.md)
 
-[文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/content/2019/06/20190606-5836717562215401221.md)
+[文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
 
-[文字版2019年5月31日文貴試直播](/content/2019/06/20190605-8092628019236727777.md)
+[文字版：2019年9月14日郭先生报平安视频](/content/2019/09/20190915-5986309951181433663.md)
 
-[文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/content/2019/06/20190604-5110748633595841625.md)
+[文字版：2019年9月13日与战友们分享第一个没有母亲的中秋节的感受](/content/2019/09/20190915-1829806510018363153.md)
 
-[文字版：2019年6月1日文貴報平安直播！無論任何方式的任何人的「偷「都是錯的，都應該感到可恥······我們今天的額爆料革命！就是為了我們中國兒童！有一個美好的健康的國家和未來！](/content/2019/06/20190601-2272712478111328158.md)
+[文字版：2019年9月11日 博爾頓離開白宮內幕！全世界各方面滅共人士滅共力量大聚集！](/content/2019/09/20190912-697366715802787855.md)
 
-[翻译：班农法国行：“胜利在我们一边”](/content/2019/05/20190527-4863328313468786056.md)
+[文字版：2019年9月9日 路德访谈文贵，班农先生](/content/2019/09/20190911-4067565485172047887.md)
 
-[文字版：2019年5月25日：G20會議將是美中新遊戲開始](/content/2019/05/20190526-773797126638093114.md)
+[文字版：2019年9月9日為什麼香港的富豪，被威脅他們隱蔽海外資產共產黨可以沒收！](/content/2019/09/20190910-2862056043397167369.md)
 
-[文字版：2019年5月23日魯仁達先生與文貴在線互訪直播](/content/2019/05/20190526-2377635576100864352.md)
+[文字版：2019年9月8日 美國國會山開山「滅共助港」，李小加港交所期貨交易當機玩兒大了！中共如何用通貨膨脹奴役中國人民！](/content/2019/09/20190909-1380855058008823233.md)
 
-[文字版：2019年5月20日凌晨4点 直播](/content/2019/05/20190520-5140210759327330200.md)
+[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/2019/09/20190908-7629841718868230274.md)
 
-[文字版：2019年5月19日文貴船上直播](/content/2019/05/20190520-8156245383371433216.md)
+[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
 
-[文字版：2019年5月18日文贵郭媒体直播，爆料王健之死原视频！李嘉诚与江家的关系！欧洲将有大行动······](/content/2019/05/20190519-4417640762564146374.md)
+[文字版：9月3號白宮前直播  ](/content/2019/09/20190904-4087259509718924066.md)
 
-[文字版：5月13日文贵报平安，关注金融市场，中共真的完了](/content/2019/05/20190519-3485871189561501121.md)
+[文字版：2019年9月3日郭先生第一次直播](/content/2019/09/20190904-8691813112681761342.md)
 
-[翻译：史蒂夫•班农(Steve Bannon)为贸易战欢呼，希望中国政府垮台](/content/2019/05/20190514-851228741762433038.md)
+[文字版：2019年9月2日郭文贵先生图桑报平安直播](/content/2019/09/20190904-5593137024471595991.md)
 
-[文字版：2019年5月12日母亲才是我们的国，父母才是我们的家](/content/2019/05/20190514-4477543672120238865.md)
+[文字版：2019年8月27日郭文贵先生报平安：这些招数的出台．才是共产党要拿下香港的真实目的！暴露了共产党要彻底拿下香港规划已久的野心！这不仅仅是一个＂香港戒严法＂这是要毁灭香港](/content/2019/09/20190904-6068893514694750692.md)
 
-[文字版：2019年5月11日文貴談中美貿易談判失敗的真正原因，台灣和香港人民的未來](/content/2019/05/20190512-8072600133061975327.md)
+[文字版：2019年9月1日文贵与班农先生直播](/content/2019/09/20190903-5392054395112197573.md)
 
-[文字版：2019年5月10日文贵50岁生日感言](/content/2019/05/20190511-4805446820921789375.md)
+[文字版：2019-08-28郭文貴直播军车进入香港](/content/2019/08/20190829-4985715477870205378.md)
 
-[文字版：郭文贵 5月9日 中共玩弄中美贸易协议重大事件！全球金融市场陷入惊慌！美国将对台湾香港采取战略调整](/content/2019/05/20190511-3890850294287177156.md)
+[文字版：2019年8月26日報平安](/content/2019/08/20190827-4686079139048004973.md)
 
-[文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/2019/05/20190510-4083283175191346612.md)
+[文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
 
 
-## 頁面 11/26 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [26](/content/README-26.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
+## 頁面 11/29 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [29](/content/README-29.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

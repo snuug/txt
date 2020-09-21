@@ -1,66 +1,68 @@
-###  [:eagle:郭文](https://github.com/ourhimalayas/txt) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:newspaper:GNews](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
+###  [:newspaper:GNews](https://github.com/ourhimalayas/txt) | [:tv:蓋特](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) | [:books:視頻文字](https://github.com/ourhimalayas/txt/blob/master/content/README.md) | [:pray:關於](https://github.com/ourhimalayas/home/tree/master/about)
 ---
 
 推薦文章:point_right:
+
+[:statue_of_liberty: 2020年6月4日新中国联邦宣言](https://github.com/ourhimalayas/txt/blob/master/content/docs/declaration-of-the-New-Federal-State-of-China/README.md)
 
 [香港抗争者致内地同胞书](https://github.com/ourhimalayas/news/blob/master/2019/08/a_letter_from_the_hong_kong_people.md)
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 
-[:newspaper:GNews 節錄 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/gnews/README.md) 
+[:tv: 蓋特 :fire: :new:](https://github.com/ourhimalayas/txt/blob/master/content/getter/README.md) 
 
 
-## 頁面 24/26 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
+## 頁面 24/29 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
-[翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
+[文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/content/2018/04/20180418-456944924800011468.md)
 
-[翻译：《华盛顿时报》塞申斯威胁要因中国异议人士而辞职](/content/2018/04/20180418-7145054021115241529.md)
+[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/2018/04/20180418-9206841940282105316.md)
 
-[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
+[文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
 
-[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
+[文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
 
-[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
+[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/2018/04/20180418-3510219950010298563.md)
 
-[翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
+[文字版：《文贵看春晚》爆料（三，四）](/content/2018/04/20180418-9010451938927487211.md)
 
-[翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
+[文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
 
-[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/2018/04/20180418-3704285633140806842.md)
+[文字版：《文贵看春晚》爆料（一，二）](/content/2018/04/20180418-7031561939158175109.md)
 
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
+[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/2018/04/20180418-763599540793711583.md)
 
-[华尔街日报：中国追捕逃亡富商郭文贵，开启曼哈顿版惊悚间谍片](/content/2018/04/20180418-8134538330051894256.md)
+[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/2018/04/20180418-3829299290570910245.md)
 
-[推特党筹委会: 推友就郭文贵推号被禁言致推特公司的公开信及首批签名 ](/content/2018/04/20180418-6592319178525638083.md)
+[文字版：文贵2月11号报平安视频](/content/2018/04/20180418-7379798999426119015.md)
 
-[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
+[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
 
-[翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
+[文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
 
-[（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
+[文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
 
-[（十）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6751902581957520102.md)
+[文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
 
-[（九）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-6171763823261464315.md)
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
-[（八）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-2147041283197958185.md)
+[文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
 
-[（七）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-5887917197465527624.md)
+[文字版：郭文贵先生2018年2月4日郭媒体直播](/content/2018/04/20180418-7184160832028927540.md)
 
-[（六）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7403014981154876678.md)
+[2018年2月3号 文贵郭媒体报平安视频](/content/2018/04/20180418-8770803911585151936.md)
 
-[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
+[郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
 
-[（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-980107644225560251.md)
+[郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
 
-[(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
+[翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
 
-[（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
+[翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
 
-[（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7734893512727563056.md)
+[2018年1月15号郭文贵先生谈蓝金黄陈小平的夫人，孟建柱，王岐山一手策划假报习家财富](/content/2018/04/20180418-6010297384739671403.md)
 
-[1012郭文贵先生分享纽约城市天际线，想大家了没有爆料即兴直播](/content/2018/04/20180418-4451931649943991252.md)
+[郭文贵先生加拿大挺郭后援会2018年首次挺郭聚会发言](/content/2018/04/20180418-5726696199328694940.md)
 
 
-## 頁面 24/26 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
+## 頁面 24/29 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
